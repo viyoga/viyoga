@@ -5,74 +5,59 @@ weight = 251
 chapter = 251
 +++
 
-<p>-Besides us, there's another intruder.</p>
-<p>Otagi Yuka heightened her senses upon hearing Eve's voice through the communicator in her ear. However, whatever trick they were using, even a vampire with her keen senses couldn't detect the intruder's presence.</p>
-<p>-Don't worry, it's not Kurotsuki-doo. It seems like they're just a night thief like us.</p>
-<p>Eve's words came as Otagi Yuka continued to look around, trying to find the intruder. Thankfully, it wasn't Kurotsuki-doo. Since it was just a thief, there was no need to worry.</p>
-<p>What an unfortunate situation for the Metropolitan Museum to have thieves overlapping. It wasn't a big deal for Otagi Yuka, but she thought she should quickly secure what she wanted in case they were after the same item, so Otagi Yuka asked Eve.</p>
-<p>,"Where is the item we're after? I need to grab it quickly in case our targets overlap."</p>
-<p>-Just a moment...! Checking the CCTV footage from earlier and the museum's blueprints... It's on the second floor. Go up to the second floor, turn right, and keep going straight.</p>
-<p>Otagi Yuka, listening to Eve's instructions, leaped up the stairs five steps at a time. With her incredible physical abilities, she quickly reached her desired destination and saw the golden sword standing inside a glass case.</p>
-<p>Seeing it up close, she could tell for sure. This golden sword was definitely the item prepared for her. As Otagi Yuka approached, the blade glowed crimson, asserting that the golden sword was a weapon for vampires.</p>
-<p>Just as Otagi Yuka was about to break the glass case containing the golden sword.</p>
-<p>,"Ah!"</p>
-<p>Someone shouted from behind. Otagi Yuka gave up on touching the glass case and turned around to see two girls with blonde hair wearing VR goggle-like devices standing there.</p>
-<p>,"Do you really need that? We were after it too...."</p>
-<p>The thief with slightly lighter platinum blonde hair asked Otagi Yuka. Her face wasn't visible because of the VR goggle-like device, but her voice sounded slightly embarrassed. Otagi Yuka said with a firm expression and voice.</p>
-<p>,"This sword is mine."</p>
-<p>,"But still...!"</p>
-<p>As the platinum blonde thief was about to say something, the blonde thief grabbed her shoulder, stopped her, and whispered in her ear. An ordinary person wouldn't have heard, but Otagi Yuka, being a vampire, could hear what they were whispering.</p>
-<p>,"The sword lost its light when that woman got close. Maybe it's more beneficial for us if she takes it."</p>
-<p>,"So, it's the right thing for that red-haired woman to have it?"</p>
-<p>,"Maybe...."</p>
-<p>They were talking about light and something else that Otagi Yuka couldn't quite understand, but she knew that the two blonde VR thieves were about to give up on her golden sword. That was fortunate. There was no need to spill blood other than Kurotsuki-doo's.</p>
-<p>,"We'll give up the sword, but don't touch the glass case for now. Even though we've blocked everything, each of these glass cases has a built-in sensor with its own power source, so if you touch it carelessly, the security company will come running. We still have a lot to steal, you know? We'll open it for you, so just stand still."</p>
-<p>The blonde thief raised her hand as if to say not to attack and slowly approached. Otagi Yuka also stepped back from the glass case, signaling the blonde thief to proceed. The blonde thief fiddled with the glass case and cut one of the several wires hidden under the display case below the glass case.</p>
-<p>,"There! Now you can take it as you please. You can break the glass or take the whole glass case, whatever you want."</p>
-<p>At the blonde thief's words, Otagi Yuka shattered the glass case. With nothing blocking her from the golden sword, it flew through the air like a magnet and landed in Otagi Yuka's hand. It was a considerably large greatsword, but even though Otagi Yuka held it with one hand, it felt so perfectly suited that she didn't feel its weight. Anyone could see that it was so natural that it really looked like Otagi Yuka was the owner of this golden sword.</p>
-<p>,"Looks like she really is the owner. Let's go get the rest of our stuff then."</p>
-<p>,"Okay~! If you don't have anything else to steal, go back. We'll take our share and leave...!"</p>
-<p>Kwaaaang!!</p>
-<p>While they were talking, a huge explosion was heard from the first floor. All three of them were surprised and looked at each other's faces. Eve's voice was heard from the communicator attached to Otagi Yuka's ear.</p>
-<p>-It's Kurotsuki-doo! He's been avoiding battles at night until now, but seeing him come to find Yuka like this, it seems like he's obtained some new weapon too.</p>
-<p>,"It's okay. With this sword, I'm not afraid of anything."</p>
-<p>Otagi Yuka answered Eve and then turned to the two blonde thieves. Since it was something that happened because of her, she needed to let them know.</p>
-<p>,"The sound from the first floor is probably because of me, so don't get involved and run away."</p>
-<p>,"We can't do that. We have some items we've marked on the first floor too."</p>
-<p>The blonde thief duo refused to flee and went down to the first floor with Otagi Yuka.</p>
-<p>On the first floor, a black SUV had crashed through the entrance of the museum, and dozens of Muyoungdae goons with guns were standing around, aiming their weapons.</p>
-<p>Tang tang tang tang!!</p>
-<p>As soon as Otagi Yuka, who was leading the way, revealed herself, a barrage of Muyoungdae bullets rained down. Until now, she had no choice but to avoid the silver bullets, but Otagi Yuka scoffed and swung the golden sword in her hand.</p>
-<p>Akagamikiba-style Chiyahankyō (Mirror Reflecting a Thousand Arrows)</p>
-<p>Otagi Yuka swung the sword so quickly that it looked like a disc, deflecting the bullets. All the deflected bullets returned to the Muyoungdae goons. They were wearing tech armor, so they weren't injured by the deflected bullets, but it was an incredible feat to deflect and bounce back the bullets.</p>
-<p>After deflecting all the bullets, Otagi Yuka charged forward at an incredible speed and swung her sword vertically. A mixture of golden and red blood energy split one of the Muyoungdae in half.</p>
-<p>While Otagi Yuka had drawn their attention, the two blonde thieves tried to cross the stairs towards the items they wanted, but they were mistaken for accomplices by the Muyoungdae, and bullets rained down on them as well.</p>
-<p>,"Tch!"</p>
-<p>The bodysuits worn by the two blonde thieves had considerable defensive power, as they didn't seem to be in any pain or injured even after being hit by several bullets.</p>
-<p>,"Eat this!"</p>
-<p>The platinum blonde thief threw a small black disc that looked like a hockey puck. The black disc fell to the floor where the Muyoungdae were gathered and emitted electricity.</p>
-<p>In an instant, more than ten Muyoungdae were electrocuted and collapsed, and as Otagi Yuka cut down two more, the back door of the black SUV that had been sitting still after crashing through the museum's main gate opened.</p>
-<p>Muyounggwi got out of the SUV, dragging a large steel coffin. At that moment, everyone in the museum couldn't take their eyes off Muyounggwi and the black coffin. It was excessively ominous. Even the two blonde thieves, who had thrown the black disc and were trying to escape, stopped and looked at Muyounggwi and the coffin.</p>
-<p>It was that moment.</p>
-<p>Ppiyong ppiyong ppiyong ppiyong!</p>
-<p>Police sirens sounded, and the sound of people getting out of cars was heard. Someone must have seen the SUV crashing into the museum's main gate and reported it. Soon after, the police's voice came through a loudspeaker.</p>
-<p>,"Criminals inside the museum, listen up! If you come out with your hands up right now, we will not fire. But if we go in, there will inevitably be bloodshed!"</p>
-<p>Muyounggwi chuckled at the police's words outside. And he snapped his fingers in the black mist. Then, a fallen corpse stood up. It was a corpse that had been electrocuted to death. The corpse raised both hands as if surrendering and went outside.</p>
-<p>Kwaaaang!</p>
-<p>An explosion was heard a few seconds later. Everyone except Muyounggwi and the Muyoungdae widened their eyes in surprise. Soon after, the corpse that had been beheaded by Otagi Yuka stood up and went outside again. And then another explosion. As the roar and vibration of the explosion stopped, laughter was heard from the black mist where Muyounggwi was.</p>
-<p>,"Keukeukeu.... Now that the interrupters are gone, shall we start again?"</p>
-<p>Muyounggwi's laughter was a sinister laugh that shook the soul as he opened the coffin. The coffin opened with an unpleasant creaking sound, revealing a corpse that could only be called a knight wearing a black helmet and black armor.</p>
-<p>,"Arise."</p>
-<p>At Muyounggwi's words, the black knight lying in the coffin stood up. Something like the black smoke that Muyounggwi was wearing was leaking out from the gaps in the armor, making it look very ominous.</p>
-<p>Blue lights flickered from between the closed helmet, and he raised a huge sword placed in the coffin and pointed it at Otagi Yuka. Otagi Yuka also raised her golden sword upwards, taking a high stance so she could strike down at any moment, not backing down.</p>
-<p>,"Kill."</p>
-<p>Following Muyounggwi's words, the black knight ran towards Otagi Yuka with heavy footsteps. Although the footsteps had a heavy, dull feeling, each step was incredibly fast, so he was not to be taken lightly.</p>
-<p>,"Shall we get rid of the small fries in the meantime?"</p>
-<p>,"Small fries! We're the world's greatest phantom thieves, François!"</p>
-<p>,"Seeing him hiding in the mist, he must be ugly!"</p>
-<p>When Muyounggwi pointed a large scythe at the blonde thieves, no, the phantom thieves François, and called them small fries, they yelled back, annoyed at being treated as such. Then, realizing that they couldn't avoid the battle, they both pulled out the pistols attached to their thighs.</p>
-<p>,"Let's see who the small fries are...!"</p>
-<p>,"We're going to see what's in the mist!"</p>
-<p>The two phantom thieves François said, aiming their pistols with skillful postures.</p>
-<p>-----Otagi Yuka Unused Illustrations</p>
-<p>Even if I wrote gold sword, only ordinary swords came out, so I failed to illustrate it ㅠㅠ</p>
+<p>"How far have you mastered the Abyss?" Aha, Fujigasaki Rinka was worried about the danger of the Abyss. If you master Shinkai Yatsude, you can awaken the Abyss, and the Abyss Stats have side effects, after all. She must be worried about how much of the side effects have manifested.</p>
+<p>"Don't worry, Sabu. I'm controlling it well."</p>
+<p>"Hmm, shall we Duel for a moment? Just a little." As if she couldn't believe my answer, Fujigasaki Rinka proposed a Duel. She threw down the Bag she had slung over her Shoulder and lightly leaped onto the ring. Then, with a playful Expression, she wiggled her Index Finger.</p>
+<p>Since it's an opportunity to exchange blows with Fujigasaki Rinka, who is a much greater Master than me, there's no need to refuse, right? And I can show Sabu that my Abyss operation is fine.</p>
+<p>As soon as I stepped onto the ring, Fujigasaki Rinka suddenly thrust out a Fist. It was an incredible speed and Intimidating Aura, as if a Spear was being shot.</p>
+<p>Shinkai Yatsude (Deep Sea Eight Hands) Shin'en Kyuuban (Abyss Suction Cup) I simultaneously struck away Fujigasaki Rinka's Arm and generated suction to deflect the Fist's trajectory. While the suction from my Shin'en Kyuuban pulled, Fujigasaki Rinka instead used it to grab my Wrist and leap up, delivering a Kick to my Neck.</p>
+<p>"Keok!" Because it happened so quickly, my vision flashed and I felt dizzy from the shock, but perhaps Fujigasaki Rinka went easy on me because it was a Duel, the actual Impact wasn't that great.</p>
+<p>"Hap!" I delivered a Low Kick as a Counterattack. Fujigasaki Rinka tried to avoid it, but Shackles emerged from my Shadow and wrapped around Fujigasaki Rinka's Ankle. Naturally, she couldn't avoid it, and Fujigasaki Rinka had no Choice but to take my Low Kick.</p>
+<p>Jjeok! With a 'jjeok!' sound, my instep struck the side and back of Fujigasaki Rinka's Thigh like a Whip, but Fujigasaki Rinka was smiling as if she felt no Impact at all. Looking closely, it seemed she had instantly drawn up the Abyss to her Thigh to defend against the Low Kick.</p>
+<p>"This is a unique Method?" Seeing the Shackles created by Shadow Domination, and seeing Fujigasaki Rinka enjoying it like a Child who had seen something new, I truly felt that she was sincere about Fighting.</p>
+<p>"Show me something else!" Aside from Shadow Domination, there's not much else to show, is there? I could change the trajectory of my Fists or Feet with Telekinesis, but....</p>
+<p>Fujigasaki Rinka rushed at me with sparkling Eyes, but I had no Choice but to get thoroughly beaten. Shinkai Yatsude's Level itself was much higher, and through countless Actual combat experiences, she had sensed the Intention of the techniques I was using, so I couldn't even Counterattack properly and had no Choice but to take the beating.</p>
+<p>"Hmm...." Except for successfully landing one Low Kick (even that, Fujigasaki Rinka blocked with the Abyss), I ended up getting hit for one Round until I collapsed from exhaustion. Although I used Shinkai Yatsude's Martial Arts Forms, since they were the Martial Arts Forms Fujigasaki Rinka had taught me, she naturally knew them, so I had no Choice but to be completely seen through and Counterattacked.</p>
+<p>Normally, I wouldn't get exhausted in just one Round, but because I had expended considerable Electricity in the battle with Famine, I was completely drained from this one Fight.</p>
+<p>"Well done, my Disciple. You weren't devoured by the Abyss." As I lay collapsed on the ring Floor, gasping for Breath, Fujigasaki Rinka squatted in front of me and stroked my Head.</p>
+<p>"When I went to the USA, I thought you had given up Martial Arts entirely, but you still haven't let go of it."</p>
+<p>"It became a Situation where I had to protect my own Body." At my Words, Fujigasaki Rinka, who roughly knew my Situation from Kiyohira and Kazuhiro, nodded her Head.</p>
+<p>"If you tell me when you truly need it, I'll help you once. Because appropriate challenges help a martial artist grow, I can't keep following you around like a mom and helping you." Hmm, but I don't really want to grow as a martial artist...? I just want to become the Head of the Taira Group someday, according to my ambition.</p>
+<p>Because of Fujigasaki Rinka's Gaze, which saw me as such a promising prospect, I couldn't answer that I had no thoughts of being a martial artist, so I just laughed awkwardly, "Ahahaha."</p>
+<p>"Then explain about that strange Guy called Famine. He seems like a Guy worth fighting, and this Sabu will get your Revenge."</p>
+<p>"First...." I explained about Famine to Fujigasaki Rinka. When I told her that he uses an Ash-Gray Aura similar in Grade to the Abyss, that this Ash-Gray Aura drains HP, and even that he flies and possesses quite powerful regenerative Ability, Fujigasaki Rinka rested her Chin on her Hand and thought for a Moment.</p>
+<p>"The flying part is a Problem. I'll have to fight him next time!" It was Fujigasaki Rinka, giving up coolly. At my Absurd Gaze, Fujigasaki Rinka shouted fiercely.</p>
+<p>"Fighting and winning in a favorable environment is the true warrior's way! The Fight between Miyamoto Musashi and Sasaki Kojiro...."</p>
+<p>"Yeah~ yeah." As my stamina had recovered a little, I answered Fujigasaki Rinka, who was about to give a Long Speech, half-heartedly, and got up from where I had been lying on the ring. I should go out and eat something. The calories I consumed today were so immense that I was on the verge of Famine. If this continues, I'll suffer Muscle Loss.</p>
+<p>"Wait."</p>
+<p>"Yes?" Fujigasaki Rinka, who stopped me as I was about to leave the Training ground, made a protein shake from the Shelf set up in a corner of the training room and handed it to me. As expected, she couldn't tolerate her Disciple suffering Muscle Loss.</p>
+<p>"Now, shouldn't we review our Duel?"</p>
+<p>"Ah!" I was helplessly caught by Professor Fujigasaki Rinka and had to attend a Martial Arts Introduction class.</p>
+<p>"Explain about the Shadow Ability you used earlier." As I explained about Shadow Domination, Fujigasaki Rinka looked at me with a slightly Stifling Expression.</p>
+<p>"What, you only used this good Technology for Shackles? If you learn a new Technology, you have to apply it. A school that emphasizes basics but only teaches one Martial Arts Routine will only be Defeated and disappear." Then she told me about several applications she had thought of, for example, when kicking, striking once more from the Shadow for a double Impact, or using a one-two punch to draw aggro while attacking the cock area from the Shadow, teaching me such unconventional techniques.</p>
+<p>Then, as if her own Explanation was funny, she suddenly started laughing loudly.</p>
+<p>"It's what you call a Chinpo (チンポ: cock) Attack. Kyahahahaha! If a large black Shadow attacks from between their Legs, how surprised would the Opponent be?" Hmm, I don't know if she was giving serious advice or just Pranking.</p>
+<p>"Kazuhiro!"</p>
+<p>"older brother, Genbaki!" When Kazuhiro drove the Car and arrived at Fujigasaki Rinka's mansion, it was late Evening.</p>
+<p>"Sorry, the team told me to go get counseling from a psychiatrist." Well, it was such a big Incident, so that's understandable. Kazuhiro and I came to the large restaurant, prepared for several people, and took our Seats.</p>
+<p>Because they had planned a Home Party but canceled it due to this Incident, there were so many ingredients that the servants had prepared an incredibly diverse array of food.</p>
+<p>While waiting for Kazuhiro, I couldn't resist my hunger and had a few snacks, but since I hadn't had a meal, I could still eat deliciously.</p>
+<p>"Kazu, are you okay?"</p>
+<p>"I'm fine. There are so many dead People, a living Person can't whine, can they?" Perhaps because Kazuhiro-nyeoseok was strong-willed from the start, he didn't seem to be greatly shocked by this Incident either. Rather, in my opinion, Kiyohira, who couldn't properly witness the Incident and fled first, suffered a slight Mental wound.</p>
+<p>He had learned Martial Arts, longing for Power, but the fact that he could do nothing in the face of such a transcendent Calamity seemed to have wounded his Pride.</p>
+<p>"Thank you, older brother."</p>
+<p>"Huh? For what?"</p>
+<p>"You were the one in that Armor, older brother, weren't you? Kiyohira told me on the Phone Call earlier. That you could have fled together, but you participated in the battle because of me...."</p>
+<p>"That's natural. You and Kiyohira would have done the same." Kazuhiro, Kiyohira, and I were creating a touching Scene together, but at Fujigasaki Rinka's Words, that Atmosphere shattered with a 'wajangchang' sound.</p>
+<p>"Don't create a strange Atmosphere while eating a Meal."</p>
+<p>"Yep~!"</p>
+<p>"Sorry!" Fujigasaki Rinka, as if unable to stand the cringe-worthiness, muttered softly, then, as if to start a different Story, asked Arisu.</p>
+<p>"Arisu, you came to LA because you had Work in Hollywood too, right?"</p>
+<p>"Yes, because there's a Scene in the Movie with a lot of models. But because of this Incident, I don't know if I'll be able to film on time."</p>
+<p>"You can stay at my Home as long as you need until Filming. Because you're my Disciple's Cousin. You're just like my Nephew/Niece." It's not even the Martial Arts Era of old, but Fujigasaki Rinka seemed to think that Parents and Sabu are of equal standing. Nephew/Niece, when there's only an Age Difference of two or three years....</p>
+<p>"Actor-ssi there, don't you have a schedule?"</p>
+<p>"Ah, ah.... I do! While I'm in LA, I've decided to do a pictorial Filming with a related theme. And, and.... get an autograph from Rinka-nim...." Hanasaki Sayaka, as if moved that Fujigasaki Rinka had asked her a Question, stammered her Answer. Since both were in the Entertainment Industry, they both had schedules. Though getting an autograph from Fujigasaki Rinka wasn't exactly a schedule.</p>
+<p>"Both of you, feel free to stay at Our Home. However, Ryuta will have to return to Japan tomorrow."</p>
+<p>"Yes?" I still have quite a bit of my USA schedule left, though? When I, surprised, asked Fujigasaki Rinka again, Fujigasaki Rinka opened her mouth with a heavy Voice.</p>
+<p>"The USA government is currently preoccupied with chasing that Guy called Famine, but eventually, they'll find you. If you're in Japan, you can at least respond, but if you're in the USA, you'll inevitably get entangled. Returning Home quickly is the best Option." Fujigasaki Rinka also recognized me immediately after seeing the Shinkai Yatsude Martial Arts Form I used, and there's no Law saying others couldn't do the same. I hadn't even thought about it, but indeed, as Fujigasaki Rinka said, I should leave the USA tomorrow.</p>
+<p>Rinka-tan Fantasy Costume Clothes Because I didn't put in Clothes-related tags, it automatically dressed her in fantasy Costumes kkeuk kkeuk kkeuk</p>

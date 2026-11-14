@@ -5,81 +5,76 @@ weight = 940
 chapter = 940
 +++
 
-<p>and chapter check contains erotic illustrations please surroundings this your</p>
-<p>"Hmm.... What should I do? Should I do them simultaneously?"</p>
-<p>At my Question, Saionji Diana and Sakagami Rena simultaneously shook their Heads again. Even while raising their hands simultaneously or shaking their heads simultaneously, they didn't seem to want to have Sex together.</p>
-<p>Normally, they often had 2-on-1 Sex, but thinking about why it was different today, it was a day they had struggled quite a bit, so for today, just the two of them seemed to want to be affectionate and cozy. Also, it was almost the last day in Miyashi.</p>
-<p>"Then, the two of you talk about who will go first. In the meantime, let's order some Dinner for delivery."</p>
-<p>I had finished Sex with Otagi Yuka, and since there were two more people left, I first decided to replenish my Calories with a Meal. Saionji Diana and Sakagami Rena also hadn't eaten Dinner, so even if we were to have Sex, I thought we should eat something first.</p>
-<p>"I'll order what I want, okay?"</p>
-<p>The two of them were talking with serious Expressions about who would go first with me, so they didn't seem to be thinking about choosing Dinner. Since they had worked hard today, I thought we should cut some meat, so I ordered Steak.</p>
-<p>While preparing the Wine, Drinks, and side dishes, the delivery arrived, so we immediately began our Meal.</p>
-<p>"Thank you, Teacher-ssi~!"</p>
-<p>"I will eat well, Master!"</p>
-<p>Although it was delivery, since it was ordered from a high-end Steak restaurant, the Steak was quite delicious. As expected of Miyashi, which has many wealthy people, there were many high-end Steak restaurants nearby.</p>
-<p>"So, what did you decide?"</p>
-<p>"Rena decided to go first."</p>
-<p>At my Question, Saionji Diana said. The two of them, after talking seriously, seemed to have finally made a Decision.</p>
-<p>"From now on, since I have to leave Miyashi, I'll soon be parting with my Parents, won't I? So today, I will first offer my Service to my Master and sleep at Home. The remaining Time, I decided to yield to Diana."</p>
-<p>Ah, I see. Sakagami Rena, unlike Saionji Diana, is close with her Family, so before leaving with me, she seemed to be planning to stay at her Parents' Home for a long Time. Of course, it was already past Dinner Time, and if she were to have Sex with me, tonight would be late, but she seemed to think sleeping at Home was important.</p>
-<p>Saionji Diana also seemed satisfied with this Consent, as she could have me exclusively until tomorrow Morning after Sakagami Rena leaves.</p>
-<p>Everyone was hungry and the Steak was quite delicious, so the Meal ended quickly. Saionji Diana decided to do the cleanup, and Sakagami Rena and I brushed our teeth and after showering together, went into the Bedroom.</p>
-<p>"Master-nim...."</p>
-<p>Instead of her normally reliable Attitude, Sakagami Rena clung to me, calling my name with a spoiled, clingy Attitude. While with Friends, she wasn't like that, but when we were alone, Sakagami Rena had always shown this spoiled Attitude, so I also hugged Sakagami Rena and stroked her Head.</p>
-<p>After showering, since she was naked, her moist skin clinging to me felt quite good.</p>
-<p>For a while, I, who had been stroking her Head, lifted Sakagami Rena in a Princess carry and carried her to the bed, setting her down. Even though I had only hugged her a little and stroked her Head, clear vaginal fluid was profusely flowing from Sakagami Rena's Pussy.</p>
-<p>"Master, I have already finished all preparations, so please come quickly...♥"</p>
-<p>Sakagami Rena, with her Legs spread, reached out her hand towards me. Indeed, even if we had a Mealtime in between, after watching Otagi Yuka's and my Sex and having a happy time, her Pussy would be sufficiently loosened. Even if I didn't bother with Foreplay, it meant she was in a state where immediate Insertion was possible.</p>
-<p>I sat between Sakagami Rena's Legs, holding my Cock, and began to rub my Cock on Sakagami Rena's Pussy.</p>
-<p>"Ah-heung...! Master-nim...♥"</p>
-<p>As if spreading her moist and sticky vaginal fluid with my Glans, I rubbed around Sakagami Rena's Pussy, and she looked at me with an incredibly anxious Expression. Because of that pleading Expression, wanting me to insert my Cock quickly, a slight Sadistic Urge rather arose, so instead of inserting my Cock, as if performing Sumata, I moved my Cock back and forth.</p>
-<p>"Hwaaang...! Master-nim, Master-nim...! If you rub like that, Rena, Haaht! I'll feel strange...! The inside is getting itchier and itchier, Master-nim...♥"</p>
-<p>As I rubbed my Cock, she twitched her Pelvis, and Sakagami Rena appealed to me with even more anxiety, but I didn't grant Sakagami Rena's Pleading and continued the pseudo-Sumata.</p>
-<p>"Master's Penis, Haaht...! Please put it inside...♥ In a place that can't be reached if it's not Master's Penis, Haaht! Please put it in...!"</p>
-<p>Now, Sakagami Rena was seriously asking me to put it inside, but this time too, I didn't grant it and continued to sway my hips. Sakagami Rena then made a determined Expression, and in the process of me swaying while doing pseudo-Sumata, when I pulled my hips back, she changed the angle of her Pelvis and lifted it so that when I moved my hips forward, it would be inserted automatically.</p>
-<p>Like a ninja, it was incredible agility. Sakagami Rena, because she was a Master of the ninja martial art, Bone Law, had a high understanding of Body movements, so in this short Time, she was able to induce my Insertion.</p>
-<p>"Haa-eut! You finally put it in...! Master's Heueut! Big Penis.... Touching the inside feels so good...♥"</p>
-<p>Although I didn't exactly put it in, since it turned out this way, I decided to make Sakagami Rena, who had struggled today, feel good. I thrust into the deepest part of Sakagami Rena's Pussy, stimulating the inside she had so desperately pleaded for.</p>
-<p>"Aha-eut...! This, it's dangerous, Master-nim...! Heueut, it feels so Haa-eung, too good...! It's dangerous♥ Haa-aa-aang!"</p>
-<p>As I thrust into her inside for about two minutes, saying it was dangerous, Sakagami Rena quickly reached Climax. Perhaps because she had warmed up with Masturbation earlier, she seemed to have reached Climax quickly. Sakagami Rena's narrow Pussy, not very large in Physique, narrowed even further at Climax and twitched as if craving my Semen, making me almost Ejaculate, but since I had already fired two rounds into Otagi Yuka, I was able to endure it.</p>
-<p>"Haa... Haa..., Master-nim, now Haaht! I will Service you from above."</p>
-<p>Still, like a ninja, her control over pleasure was excellent, so Sakagami Rena quickly regained her composure. This Time, saying she would offer Service, she laid me down and climbed on top. Perhaps because I had also struggled today, it seemed she meant she would make me feel good if I lay down.</p>
-<p>"Master's Size is big.... I don't know if it will all fit♥"</p>
-<p>Instead of immediate Insertion like I did, she placed it against her Lower Abdomen as if measuring the length of my Cock standing erect towards the sky, and said.</p>
-<p>"Heu-eung....! Master's hot Cock...! Rubbing it feels so good♥"</p>
-<p>As expected, instead of immediate Insertion, Sakagami Rena was tormenting me, moving her Pelvis exquisitely as if spreading vaginal fluid on my stiffly erect Cock.</p>
-<p>She seemed to want to receive a Request for Insertion by tormenting me, just as she had just experienced, but instead, as I gently swayed my hips, stimulating Sakagami Rena's Clitoris and its surrounding area, Sakagami Rena, unable to bear it, lifted her hips and began to insert my Cock.</p>
-<p>"Heu-eung, Master's Cock.... I can't bear it...!"</p>
-<p>As soon as my Cock entered, Sakagami Rena's Expression quickly crumbled. As if feeling the curves of my Cock, she slowly moved her hips up and down, then gradually began to increase her speed.</p>
-<p>"Haaht! Eung, Heueut! Master-nim, Haaht! It feels so good♥ Cock...! Haaht! Heueut...!"</p>
-<p>Her Body was light, and like a trained ninja, even in the Cowgirl sexual position, without showing much sign of fatigue, Sakagami Rena continued to sway her hips.</p>
-<p>I also felt quite good as Sakagami Rena moved, but since it was different from my usual rhythm of movement, it felt rather stimulating.</p>
-<p>Of course, I also didn't just lie there doing nothing; I touched Sakagami Rena's perfectly adequate breasts and stimulated her Nipples, making Sakagami Rena feel good.</p>
-<p>"Haaht, there, eu-heung...! If you touch there, Haaht, Rena will come quickly, Master-nim...♥"</p>
-<p>Every Time I touched her, she would Flinch, and her Hip Movements would slightly pause, which was amusing.</p>
-<p>"Heueut, Haa-eung! Master-nim...! Master-nim...! Heu-eung.... Together, together...! Haa-eut! I want to come...! Quickly, Haa-eung, please give me Master's baby seed...♥"</p>
-<p>Once again, perhaps feeling Climax approaching, Sakagami Rena was urging for my Semen.</p>
-<p>"I also feel like I'm about to come."</p>
-<p>"Haaht! Give it to me, quickly give it to me...! Master's Haaht hot Baby Juice...! Inside me, Haaht! Uh-eung...!"</p>
-<p>Sakagami Rena stopped her Hip Movements and completely collapsed onto my Cock. As she completely collapsed, my Cock, as if lifting her Cervix, went deep inside, and Sakagami Rena reached Climax.</p>
-<p>I also, as if being tightly squeezed by a hand, as Sakagami Rena's Intravaginal contracted, couldn't hold back my Ejaculation and immediately began to pour Semen into her Cervix.</p>
-<p>"Haa-aa-aang~! Master-nim...♥ Haaht! Inside my belly, Haaht! It's warm...!"</p>
-<p>Sakagami Rena, with her waist raised, trembling, feeling my Ejaculation, went through Climax multiple Times.</p>
-<p>After feeling Climax for a while, as if her strength was depleted, Sakagami Rena collapsed onto my Upper Body. I had Ejaculated once, but Sakagami Rena kept feeling Climax, and her Pussy contracted and twitched, stimulating my Cock embedded inside, so my Cock had no chance to go soft.</p>
-<p>I hugged Sakagami Rena, who was lying leaning on me, tightly and began to sway my hips.</p>
-<p>"Haaht.... Just a little, Haa-eung...! Rest, Master-nim...!"</p>
-<p>Sakagami Rena said, as if exhausted, but I showed no mercy.</p>
-<p>"Today, you said you'd go Home and sleep, didn't you? If it gets too late, it'll be a bit much, so let's do it quickly just one more Time, then I'll send you off."</p>
-<p>"Haaht.... I came, Master. Just a little more, Haa-eung...! Just a little, Master-nim!!"</p>
-<p>Sakagami Rena screamed loud enough to shake the Room, but there was no one to help her. Thus, Sakagami Rena, until she briefly lost consciousness, had no choice but to be relentlessly pounded.</p>
-<p>Today's B-cut!</p>
-<p>Actually, I made many Illustrations, but it's troublesome to put the seaweed, so I'm only uploading one B-cut haha.</p>
-<p>Requested by TheDreaming-nim: Kiyona Hori 1. A barely clothed Maid awkwardly smiling 2. A Maid serving with her breasts on a tray~!</p>
-<p>1.</p>
-<p>2.</p>
-<p>"Not like that, please put your breasts completely on the tray~!"</p>
-<p>"Like this?"</p>
-<p>The last one is serving with food haha. Hori's model Figure is incredibly good. It seems worth researching haha.</p>
-<p>Requested by Gojoy-nim: The Illustration of Nagumo Sian inducing her to grab her buttocks or breasts was complex (the inducing part), so I just made it as the result, a tightly gripped Appearance~!</p>
-<p>Buttocks grab!</p>
-<p>Breast grab~!</p>
+<p>"Hmph...!"</p>
+<p>Kobiki Fusamoto, the detective Team Leader investigating the mass Murder Incident in Village A that occurred today, tilted his Head while looking at the results of the investigation in front of the Corpse of the orphanage Director, which the forensic team members were examining.</p>
+<p>As a result of investigating the connections of the dead through inquiries, one suspect emerged. It was a woman named Sato Tsukiyo, who had just graduated from High School, and most of the dead had a history of tormenting this woman named Sato Tsukiyo.</p>
+<p>"What's wrong, Team Leader-nim?"</p>
+<p>'There's something bothering me. I know that the dead were people who tormented Sato Tsukiyo. But, you know. The two people who died at the orphanage aren't? The orphanage Director, Sato-ssi, is a man who is famous in the village for his good character, and the orphanage Teacher's reputation wasn't bad either...."</p>
+<p>Kobiki Fusamoto pointed out the strange points in response to his buha's question. Moreover, these weren't the only suspicious points.</p>
+<p>"There are many CCTVs, but there isn't a single screen where Sato Tsukiyo is filmed. The last screen where Sato Tsukiyo is filmed is all that came out on the CCTV on the road to the coastal Cliff just yesterday."</p>
+<p>Not only were there no CCTVs, but there were also no witnesses. In this day and age, killing eighteen people without leaving any traces is a bizarre thing.</p>
+<p>"Then, could it be that it's not Sato Tsukiyo? Except for the orphanage, the rest are people with bad reputations, so there may be grudges in other directions."</p>
+<p>"Yes. Let's look at it from various angles. Still, it's not like we didn't get anything at all."</p>
+<p>As Kobiki Fusamoto said, it wasn't like they didn't get anything at all. There were no CCTVs or witnesses, but there was one piece of evidence that the police found. It was the fingerprints taken from the blood and brain fluid on the orphanage Director's clothes.</p>
+<p>Kobiki Fusamoto hoped to find the culprit based on this. First of all, he was thinking of running the fingerprints he found through the criminal database.</p>
+<p>"Still, since Sato Tsukiyo is the suspect based on the circumstances, find out her location.... Tell the team members to investigate in other directions as well."</p>
+<p>"Understood, Team Leader-nim!"</p>
+<p>After the buha police officer saluted and disappeared, Kobiki Fusamoto looked at the Corpse of the orphanage Director in front of him with an uneasy Expression. A hole pierced through his forehead. What kind of equipment did they use to make such a wound? Looking at the hole pierced in the orphanage Director's forehead, he felt an ominous Feeling as if he were looking into an endless Abyss.</p>
+<p>When I went to the kitchen to drink water, all traces of the meal we had eaten were already cleaned up. Hanakame probably cleaned it up. I poured water from the water purifier, then rinsed the cup roughly and put it on the shelf.</p>
+<p>After drinking all the water and turning around to open the door to leave the kitchen, Hanakame was standing right in front of the door. She wasn't wearing the Miko clothing she had been wearing earlier, but like Urabe Konoka, she was wearing something similar to sexy lingerie.</p>
+<p>Of course, Hanakame's Appearance was more daring than Urabe Konoka, who could still be called a novice(?). Even though she was wearing underwear, it was a sex-only underwear system that allowed for immediate sex without having to undress or push it to one side, with her nipples and pussy exposed.</p>
+<p>"Hanakame, what is this...?"</p>
+<p>"I said it was my turn next♥"</p>
+<p>That's right. I remember Hanakame saying it was her turn next when I went to the room with Urabe Konoka.</p>
+<p>"Since it's right next door, I can hear the sounds of Bugun and Konoka?"</p>
+<p>Ah...! It was next door? I was wondering how I knew sex was over, but Hanakame quickly answered how she knew, being quick-witted.</p>
+<p>By the way, she seemed to be able to move quite stealthily. My sensing ability isn't very high, but seeing her standing in front of the kitchen door without me noticing at all, it seemed Hanakame's combat ability was also considerable.</p>
+<p>I remembered being surprised when I realized that Hanakame was also quite skilled when I was worrying about personnel distribution before the battle with An-yaji. So, I assigned her to support Seizawa Shii, and I heard that she did quite well.</p>
+<p>"Then, where...?"</p>
+<p>When I asked if we would do it in the room like Urabe Konoka or right here in the kitchen, Hanakame shook her Head with a bright Smile, as if to say neither.</p>
+<p>"These days, the weather is getting warmer, so how about doing it under the moonlight in a charming way?"</p>
+<p>What Hanakame proposed to me was Outdoor sex. It was quite a daring proposal that surprised me a little.</p>
+<p>"Is it okay to do it inside the Urabe Shrine grounds?"</p>
+<p>I asked somewhat cautiously. I've had Outdoor sex a few times, but it was in sparsely populated parks or places like that, not inside the Urabe Family Shrine, which has a certain amount of prestige, so I asked cautiously. I didn't want to cause problems by getting caught doing Outdoor sex.</p>
+<p>"The security guards do night patrols, but the night patrols start at 11 o'clock, so there's plenty of time. And there are hardly any people who visit our shrine."</p>
+<p>Believing Hanakame's Words that it was okay, I went outside. I was also wearing a Shirt and panties, so it was an inappropriate Appearance to go out in, but Hanakame, who was exposing both her nipples and pussy, was an inappropriate Appearance anywhere, whether outdoors or indoors, so I thought that my Appearance was relatively okay.</p>
+<p>Hanakame had even prepared shoes in advance, wearing black high heels with red soles and walking next to me with an excited Expression. It was still mid-February, so the weather was a bit chilly. I was fine as I was due to various Traits, but I was worried about Hanakame, so I looked to the side and saw her smiling with an excited Expression, so it seemed she was okay. She had proposed the Outdoor Play walk first, after all.</p>
+<p>"Ufufu, if I had known this would happen, I would have prepared a leash. Then it would have been a true Outdoor walk."</p>
+<p>Hanakame, walking quietly inside the shrine, was regretting not being able to have a true Outdoor walk. I didn't know why a leash was needed to have a true Outdoor walk.</p>
+<p>After walking inside the shrine for a while, Hanakame stood in front of a tree. And she smiled brightly at me.</p>
+<p>"This place will be good."</p>
+<p>Hanakame put her Hand on the tree, leaned against it, stuck out her Buttocks, and bent her waist. It was a very sexy pose and Appearance, but as Hanakame said, it felt quite charming.</p>
+<p>With the round moon hanging on the end of the tree branch of the tall tree, the subtle orange lighting spread below, and the lights of Miyashi City visible in the distance, and even Hanakame's Buttocks as round as the moon.... It could be said to be a perfect scene.</p>
+<p>"When you were mixing Bodies with Konoka, I finished all the preparations. Please come in right away, Bugun...♥"</p>
+<p>Hanakame, leaning against the tree, wiggled her Buttocks and seduced me. Just as Hanakame had said that she had fully loosened her pussy when I was having sex with Urabe Konoka, vaginal fluid was flowing from her pussy, wetting the stone floor.</p>
+<p>I slowly approached and touched Hanakame's Buttocks. When I touched her Buttocks, which had a bouncy and soft contradictory sensation at the same time, I unknowingly put strength into my cock.</p>
+<p>Slap!</p>
+<p>"Haaheung...!"</p>
+<p>When I slapped her Buttocks, not too hard but enough to feel good, Hanakame's sweet moan came out, and vaginal fluid fell in droves. I lowered her underwear, then put my cock under her pussy and rubbed it as if doing Sumata.</p>
+<p>"Heueung, don't do that...! Put it inside, put it inside, Bugun...!"</p>
+<p>Hanakame said in an anxious Voice, but I didn't answer and moved my waist while being close to her vaginal flesh. Then, the vaginal fluid was smeared all over my cock as if it were coated, and that's why I didn't put it in right away. If I coated it with vaginal fluid before putting it in, it would go in even better.</p>
+<p>I matched my cock, which was covered in Hanakame's vaginal fluid, to Hanakame's Jilgu and put it in.</p>
+<p>"Haaheueuheung...! Bugun's cock, heueung! It's still magnificent...!"</p>
+<p>I just put my cock in, but Hanakame herself started to move. Holding onto the tree and using it to balance, she moved her waist quite vigorously, so her Buttocks swayed and piston movement was made.</p>
+<p>Hanakame's pussy wasn't narrower than Urabe Konoka's, but I felt a pleasure as if tentacles were sprouting from the inside of her pussy and stimulating my entire cock. The clench was also appropriate, and it was a top-class pussy that tightened my cock in various places as if she knew my erogenous zones.</p>
+<p>Of course, it felt good that Hanakame was moving, but it was true that it felt somewhat stuffy compared to me moving. After enjoying Hanakame's movement for a while, I grabbed Hanakame's waist and started to vigorously move my waist to poke her pussy.</p>
+<p>"Haaht! Heueung...! The inside, Bugun's glans, haaht! It's pounding my inside!!"</p>
+<p>Hanakame's moans started to escalate. I was worried that someone would come because Hanakame's moans kept getting louder, but it was my first Outdoor sex in a long time, so I was also filled with excitement and didn't pay attention to it, continuing to shake my waist vigorously.</p>
+<p>"Haaht! Quickly...! I'm going! Bugun too, heueung, please cum quickly! Bugun's precious baby seed♥ Haaht! Please pour it into Hanakame's uterus!!"</p>
+<p>Hanakame started to urge me to ejaculate, perhaps because she felt my cock getting bigger and bigger. Hanakame also seemed to be reaching Climax, as her pussy contracted as if trying to squeeze out semen.</p>
+<p>"Keueueueut...! I'm cumming (more vulgar)!"</p>
+<p>Ul-keok Ul-keok Ul-keok!!</p>
+<p>Just as I was raising the last pitch for Ejaculation, a light was seen in the distance.</p>
+<p>"Who's there...?"</p>
+<p>The Voice of an Elderly Person who seemed to be a security guard was heard in the distance. But the semen that had risen from my Balls had already started to pour semen from the tip of my glans into Hanakame's uterus. With the last remaining Fading Reason, I moved my Hand to cover Hanakame's mouth.</p>
+<p>Ulkeok! Ulkeok! Ulkeok!!</p>
+<p>I couldn't do anything because of the pleasure that made my Field of Vision turn white. Hanakame also seemed to be unable to take any action because she was already trembling with Orgasm with her Eyes full of whites.</p>
+<p>"Hmph...! What is it? I definitely heard something...?"</p>
+<p>Whether it was a Miracle or the security guard noticed and backed off, I don't know, but the security guard, who was shining a flashlight here and there, turned back again.</p>
+<p>"Haa, haa, haa...! What happened?"</p>
+<p>"Haaheueu, haa. Haaheueuheung...! I put an invisible Talisman on the tree in advance, heueu, haa, haa...! It felt good, Bugun...!"</p>
+<p>You knew this would happen and put a Talisman on it in advance? It seemed Hanakame had planned the Outdoor sex in advance. I was surprised because I thought we would get caught. It seemed that the invisible Talisman didn't block the sound. I was worried because she was moaning so loudly, and it seemed that the security guard came because he heard that sound.</p>
+<p>Sex Scene~!</p>
+<p>Ha Ju-yoon and Jin Mi-ja lying face down, requested by I Save I-nim~!</p>
+<p>Starting with Ha Ju-yoon~!</p>
+<p>Jin Mi-ja Yeosa~!</p>

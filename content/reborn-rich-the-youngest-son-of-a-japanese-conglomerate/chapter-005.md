@@ -5,41 +5,47 @@ weight = 5
 chapter = 5
 +++
 
-<p>Kkiyoot!</p>
-<p>Nagumo Sian bunny girl, lingerie, bikini requested by Gojoy-nim</p>
-<p>Sian Onee-san is still alive! Kkiyoot</p>
-<p>Kijimoto Jurie in a Dongtan dress requested by Skypelly-nim~!!</p>
-<p>As expected, it's a magical dress, haha</p>
-<p>Nagumo Sian, Daigo Terue, Minamoto Lisa + nude, cat ear headband, cat pose with an embarrassed expression requested by lSave l-nim~!</p>
-<p>Nagumo Sian.</p>
-<p>,C-Cat pose... Ryuta, that's a little embarrassing."</p>
-<p>,Nya, nyaaaa...!"</p>
-<p>Daigo Terue.</p>
-<p>,Nyaㅡ Nyaa...! Am I doing it right?"</p>
-<p>Minamoto Lisa.</p>
-<p>Minamoto Lisa, who is good at cat poses as expected of a hidden otaku.</p>
-<p>#Since Minamoto Lisa is a character who doesn't have a sex scene yet, I excluded the nude cut, haha</p>
-<p>Seizawa Shii bed scene requested by Kirichen's Math Classroom-nim</p>
-<p>Kkiyoooot!</p>
-<p>Mommies in tank tops + dolphin pants requested by Mireumar2-nim!</p>
-<p>Nagumo Sian</p>
-<p>Daigo Terue</p>
-<p>Nae Fitzgerald</p>
-<p>The last cut is Nae Mommy carrying a dolphin tail, haha</p>
-<p>Alik, Home Ec Teacher in a maid outfit requested by Munyeom-nim!</p>
-<p>Alik!</p>
-<p>A mini maid dress is pretty too, haha</p>
-<p>Home Ec Teacher</p>
-<p>Should I give you white stockings, black stockings, or bare legs?</p>
-<p>Home Ec Teacher, bikini or crop top armpit flex requested by RefundAbsolutelyImpossible-nim!</p>
-<p>,You get excited here?"</p>
-<p>Cute student SD requested by Mireumar2-nim!</p>
-<p>Seizawa Shii!</p>
-<p>Otagi Yuka!</p>
-<p>Naruse Shiyo!!</p>
-<p>Alik!</p>
-<p>Kkawaiing~!</p>
-<p>Bunny girl Home Ec Teacher requested by JeongChucky-nim!!</p>
-<p>Home Ec Teacher's unique skinny body with everything sticking out that should be sticking out... nice, haha</p>
-<p>**I knew there would be a lot of requests for Home Ec Teacher, who is a strong contender, but I'm somehow touched that you didn't forget about Nagumo Sian, haha Kkiyoooot!</p>
-<p>Thank you for chapter 600. I wouldn't have been able to come this far without the readers who ran with me! Thank you!</p>
+<p>After arriving home and searching the internet, I learned one despairing fact. If I stayed in Korea for more than a year and a half under the identity of Jin Yong-tae, I would have to join the army. Go to the army again? I should just live as Taira Ryuta, a Japanese person, not Jin Yong-tae, in Korea.</p>
+<p>And now that I've become Taira Ryuta of the Taira Group, not Hata Ryuta working at a small business, I need to acquire a few hidden pieces in Korea. If I get involved in the Taira Group's succession issues, even three lives wouldn't be enough, so I need to get something.</p>
+<p>But there was one worry. I was extremely worried about whether this world I was possessed into was the world of the original game or the world of the drama that reinterpreted the original and got a shit ton of flak from people.</p>
+<p>In the drama, there were obviously no nonsensical items like those in the game, so even if I went to Korea, there wouldn't be much to gain. If it was the drama's world, I would just be going to eat Korean food that I hadn't been able to eat for a week. But if I was possessed into the game's world, I could gain quite a lot.</p>
+<p>Hmm, how can I figure out which world this is? Hmm.... That's it! Should I check the protagonist?</p>
+<p>In the original game, you could choose the gender of the protagonist, male or female, despite the title of "youngest 'son' of MegaCorp," and in the drama, it was a male protagonist, so if it's a female, it's 100 percent the game's world, and even if it's a male, there's still a 50 percent chance it's the game's world.</p>
+<p>First, if I go into Gugol and search for the Shinkang Group family tree in Korean.... There it is. The fourth son of Han Mun-gang, the founder and current Chairman of Shinkang Group.... Han Yu-gyeong! It's a woman! It wasn't the drama. Thankfully, it was the game's world. There wasn't a picture, but if it's the basic appearance from the game, she'll be incredibly pretty.... If I get the chance on this trip, I should see her once.</p>
+<p>Now that I've gained certainty, I had to decide what to get and plan my route. Before that, I need to borrow some money from Mom. I was a high school student until recently, so I didn't have much money. I had saved about 200,000 yen by working part-time in between, but it's always good to have more money.</p>
+<p>"Mom! Lend me some money. I'm going on a trip to Korea a few weeks before I start working."</p>
+<p>"Korea? You're not very good at Korean."</p>
+<p>Jin Mi-ja-ssi, who came out of my room, asked with a puzzled look, and I said with a triumphant smile, thanks to the special perk of being a Korean possessor.</p>
+<p>"I'm really good at Korean, you know? (Korean)"</p>
+<p>"Eh? Better than me?"</p>
+<p>Mom was also a second-generation Korean-Japanese, so her accent was a bit awkward, so she couldn't compare her Korean skills to mine, who was possessed. Just a week ago, I was like Heungseon Daewongun, who only knew Korean. Now I'm a bilingual speaker of Japanese and Korean.</p>
+<p>"So, how much do you need?"</p>
+<p>"I'll be there for about four days, so about 200,000 yen?"</p>
+<p>"Okay~"</p>
+<p>Mom coolly said she would give it to me. If I combine it with the money I already have, 400,000 yen is roughly four million won, so it should be enough, right? I'm going as the Korean Jin Yong-tae this time, so I have the passport I made during my second year of high school's male-only Chinese field trip, so I just need to book a plane ticket and exchange the money.</p>
+<p>###</p>
+<p>When I got off at the airport, I smelled Korea. It was just an indescribable Korean feeling. It had only been about ten days, but being in Japan, it smelled somewhat unfamiliar. Or maybe it's how Hata Ryuta, the original owner of the body, feels.</p>
+<p>Incheon Airport was different from what I remembered before I was possessed. It wasn't that different, but I could feel that it was a different world. It feels strange, doesn't it?</p>
+<p>I took the airport railroad and got off at Yeongjong Station. My goal was Baegunsa Temple and Yonggungsa Temple on Baegunsan Mountain. Before that, I stopped by a gukbap (soup and rice) restaurant near the station and ate a hot sundae gukbap. It was like heaven to eat gukbap with kkakdugi (cubed radish kimchi) after a long time. I came out of the gukbap restaurant patting my stomach and caught a taxi to Yonggungsa Temple.</p>
+<p>I got off in front of Yonggungsa Temple and headed to the stone pagoda where the item was hidden. I was nervous that there might not be an item. I knew it was the game's world, so I knew there was an item, but I was worried that someone else might have taken it.</p>
+<p>As befitting Yonggungsa Temple, four dragons, one on each side, are carved on each side of the foundation of the stone pagoda, and the Yeouiju (wish-fulfilling orb) held by the dragon on the back side facing the mountain was the item.</p>
+<p>The name is Yeouiju, just as it appears. Gamers guessed that the developers prepared it for newbies and those with clumsy hands who were struggling with the game's difficulty. In other words, it's that overpowered.</p>
+<p>The Yeouiju's ability is, first, to prevent instant death. To explain in a little more detail, it ignored damage of 50 percent or more of the character's health once a day and granted invincibility for 3 seconds. Saving you once + 3 seconds of invincibility is an incredibly overpowered effect. Usually, when playing the youngest son of MegaCorp, there are many sudden deaths due to snipers or ambushes, and this option suppressed that.</p>
+<p>Second, it was a good option to reduce the death rate of newbies by halving damage below a certain level. As the explanation says, even if it's not damage that leads to death, it's halved, so it could greatly increase survivability.</p>
+<p>Third, potential enhancement. In the original game, MegaCorp's youngest son could choose two stats each time he leveled up and one of three randomly appearing traits, but this option changed the randomly appearing traits to higher-tier traits. Traits were abilities that were only obtained through luck, so potential enhancement was also an incredibly good ability.</p>
+<p>Finally, there was the increased experience gain option, which was exactly as it sounds. Leveling up was about 1.5 times faster than usual.</p>
+<p>In the game, using the Yeouiju would have earned you the label of a pussy, but this was reality. Moreover, it was a world in the era when ruthless MegaCorporations were just emerging. So, I had to take care of my own life.</p>
+<p>When I pulled the Yeouiju from the dragon's mouth, it emitted a mysterious green light and was absorbed into me. It wasn't displayed in the status window or anywhere else, but it would give me beneficial effects like in the game. In the game, it becomes a bound item that can't be transferred to others, but here, it was absorbed into me and the form wasn't visible.</p>
+<p>After obtaining the Yeouiju, I came down from Yonggungsa Temple and took a taxi back to Baegunsa Temple. Usually, temples have an Iljumun Gate, a Cheonwangmun Gate, and a Geumgangmun Gate, which is the real gate of the temple, but my purpose in coming to Baegunsa Temple was at the Cheonwangmun Gate, where the Four Heavenly Kings are located.</p>
+<p>The Four Heavenly Kings were Jikguk Cheonwang of the East, Gwangmok Cheonwang of the West, Jeungjang Cheonwang of the South, and Damun Cheonwang of the North, and the item was with Gwangmok Cheonwang of the West.</p>
+<p>Gwangmok Cheonwang controls dragons and holds a Yeouiju in his hand and a spear in his other hand, so if you have any sense, you'll know that the item you get from Gwangmok Cheonwang is a set item with the Yeouiju of Yongwangsa Temple. When I lightly pressed the space between Gwangmok Cheonwang's feet, a space appeared and a small wooden box came out. The wooden box contained a consumable item called Cheonwanghwan.</p>
+<p>It was a panacea that permanently greatly increased stats related to the body, provided a trait called regeneration that could grow, and added +1 to the limit related to the body.</p>
+<p>Let's skip the stat increase, and regeneration is a trait that goes very well with the Yeouiju's damage reduction, and it was an ability that goes very well with the Yeouiju, as it allows you to quickly recover even if you receive reduced damage. Moreover, it's a god-tier trait that can even grow, so you'll become a monster that survives with very little health later on.</p>
+<p>The body-related limit +1 is an option that allows you to exceed the stat limit of 20 and reach 21, and even though it's only 1 point, the character becomes so strong that you wonder if it's a bug when you exceed the limit.</p>
+<p>In the end, Cheonwanghwan is also an overpowered item. In the end, there was a reason why the protagonist's starting point in the game was Incheon. It was the developers' consideration to have weaklings start by eating the Yeouiju and Cheonwanghwan. Of course, I was also weak, so I accepted the consideration of the absolute being who possessed me here. I hate that I was possessed here, but thank you, absolute being-nim.</p>
+<p>Now that I've obtained these two items, I've achieved 70 percent of my purpose in coming to Korea. I should rest today. It was already evening, so I carefully went down the mountain. My phone battery is also running low.</p>
+<p>I came down the mountain and went into a nearby motel. If you eat Cheonwanghwan, you'll faint for a few hours in the game, so I didn't eat it right away at Baegunsa Temple and booked a motel.</p>
+<p>In fact, the moment I searched for the Shinkang Group family tree in Japan and realized it was the game's world, there was a forbidden word that I unknowingly shouted. That's right, that forbidden word.... 'Fucking status window'</p>
+<p>"Status window."</p>
+<p>When I said it quietly, a translucent status window appeared in front of me. Why didn't I do it sooner? Because this world was too real. In the world before I was possessed, it was a truth that there was no status window, so I didn't even think of shouting it in this world. If I hadn't been sure after seeing the Shinkang Group family tree, I would never have shouted the word status window.</p>
+<p>For reference, I got caught by my mom while messing around with the status window.... My mom grabbed her stomach and rolled around laughing, saying that her son had belatedly caught middle school disease, but I couldn't make any excuses. It's true that I got caught shouting status window. I shouldn't think about any more dark history and just focus on the status window in front of me.</p>

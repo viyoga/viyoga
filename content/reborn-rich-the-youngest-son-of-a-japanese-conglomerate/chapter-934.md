@@ -5,83 +5,63 @@ weight = 934
 chapter = 934
 +++
 
-<p>「Airen, shall we have a reflection session after so long?」</p>
-<p>Fujigasaki Rinka lay in the Hospital Room, looking at Shimokawabe Airen on the bed beside her, and opened her mouth. The two had often dueled or fought against people from other martial arts schools since childhood due to their Sabu's friendship.</p>
-<p>After that, they always held reflection sessions for their Duels or battles together, and what they learned from those sessions became the foundation for their current outstanding Skill. Lying side by side with Shimokawabe Airen after a long time (though it was a Hospital Room), Fujigasaki Rinka felt nostalgic and proposed a reflection session to Shimokawabe Airen.</p>
-<p>「Shall we? It's been a long time.」</p>
-<p>Shimokawabe Airen gave an Eye Smile with a nostalgic Expression at Fujigasaki Rinka's Words.</p>
-<p>「Takakusaki Gengo was strong...」</p>
-<p>「Yes, he was strong.」</p>
-<p>Takakusaki Gengo, whom they fought this time, was strong. In fact, the battle showed that he hadn't surpassed Fujigasaki Rinka in martial arts Realm, but due to his various sorceries and the regeneration and other Abilities he displayed after his Outer God transformation, he was an even more troublesome Opponent.</p>
-<p>「But we could have won without taking this much harm.」</p>
-<p>「Yes, if I had been a little more careful...」</p>
-<p>At Shimokawabe Airen's Words, Fujigasaki Rinka spoke dejectedly. If Fujigasaki Rinka hadn't been caught by the tentacles in the early stage, Takakusaki Gengo wouldn't have undergone his Outer God transformation, and the Situation would have ended more easily. Even if he had combined sorcery and possessed the antithetical white light to Fujigasaki Rinka, Takakusaki Gengo, as a human, could not have defeated Fujigasaki Rinka.</p>
-<p>「I didn't tell you this Story to blame you. Takakusaki Gengo meticulously prepared to target your power. Even if you had avoided it then, there would have been another method. And since he had a power antithetical to the Abyss, it couldn't be helped that you were affected.」</p>
-<p>Shimokawabe Airen said she wasn't blaming Fujigasaki Rinka. What Shimokawabe Airen wanted to say was elsewhere.</p>
-<p>「The problem with this fight was acting too hastily. The environment inside that Cliff Shrine was hostile to us and beneficial to Takakusaki Gengo. We should have thought a little before entering that Place.」</p>
-<p>「You're right. It wasn't good that we rushed into a disadvantageous Place. Of course, some people held grudges against Takakusaki Gengo and wanted to attack quickly, and Ryuta's friend Genba Kiyohira was captured, so our minds were rushed... but we should have thought about it for at least ten more minutes before going in.」</p>
-<p>Fujigasaki Rinka also gave her Consent to Shimokawabe Airen's Words.</p>
-<p>Of course, she herself was included among those Fujigasaki Rinka mentioned who held grudges against Takakusaki Gengo or whose minds were rushed because of Taira Ryuta's friend Genba Kiyohira, but Fujigasaki Rinka, as a martial artist with excellent training, was sincerely reflecting on her hasty actions today.</p>
-<p>「And when we fought...」</p>
-<p>「You're right. I also need to know more about my Sword's Ability...」</p>
-<p>The two reflected on this battle for a long time, then fell into a chewing-on-silence as if savoring it. Reducing Mistakes in this way meant they wouldn't make similar Mistakes in the next battle, so reflection was a good Habit.</p>
-<p>Fujigasaki Rinka, reviewing the battle today, recalled the almost Last Scene where her Disciple Taira Ryuta had embraced her to protect her when she collapsed.</p>
-<p>'That guy, his Embrace was quite sturdy, and he smelled good too....'</p>
-<p>Blushing and thinking about Taira Ryuta's Embrace, Fujigasaki Rinka realized what thoughts she was having about her Disciple and thumped her pillow, stomping her Feet.</p>
-<p>'Crazy! Crazy! Rinka, what are you thinking about your Disciple?!'</p>
-<p>「Rinka?」</p>
-<p>Shimokawabe Airen, surprised by Fujigasaki Rinka suddenly making a commotion on the bed, called her name.</p>
-<p>「Ah, I should have ended Gengo with my own hands, I'm so resentful about that...」</p>
-<p>「Ah...! Ufufu, indeed.... Rinka has always had a strong Spirit of competition.」</p>
-<p>Shimokawabe Airen accepted Fujigasaki Rinka's mere Excuse as if she understood. Fujigasaki Rinka, who was embarrassed alone for a while, then had another thought.</p>
-<p>It was about the Last Story she had with the Bae-sinja Serihara Tamijiro, a friend of Sabu Soda Haruto, whom she had fought on the way to Miyashi before fighting Takakusaki Gengo.</p>
-<p>「You will either die today, or you will tell me where Sabu is.」</p>
-<p>Fujigasaki Rinka said chillingly, looking at the collapsed Serihara Tamijiro. Fujigasaki Rinka had been searching for Soda Haruto for several years, so now that she had finally found a clue, her mind became rushed.</p>
-<p>Kkwadeudeuk.</p>
-<p>「Keuah-aaaah!」</p>
-<p>Fujigasaki Rinka grabbed Serihara Tamijiro's right Index Finger and crushed it with immense, press-like power. Serihara Tamijiro screamed in excruciating pain.</p>
-<p>「Where is Sabu?」</p>
-<p>「Keueu, So, Soda Haruto is...」</p>
-<p>Serihara Tamijiro tried to speak through the pain of his finger being crushed, but hesitated as if fearing Something.</p>
-<p>「....」</p>
-<p>Kkwadeudeudeuk!</p>
-<p>「Keuah-aaaah! I'll tell you! I'll tell you, so...!」</p>
-<p>Fujigasaki Rinka crushed his Middle Finger without a Word, and only then did Serihara Tamijiro say he would speak.</p>
-<p>「Originally, I had Haruto. It was to steal Shinkai Yatsude from Haruto. Gengo already had Shinkai Yatsude anyway, so he wasn't interested in Haruto.」</p>
-<p>Serihara Tamijiro continued his Story. Takakusaki Gengo and Serihara Tamijiro together subjugated Soda Haruto, and Serihara Tamijiro locked Soda Haruto in a warehouse and Tortured him, trying to obtain Shinkai Yatsude.</p>
-<p>But Soda Haruto didn't tell Serihara Tamijiro even a single Rhythmic Motion of Shinkai Yatsude's Fist Technique Martial Arts Form.</p>
-<p>Several years passed, and when Takakusaki Gengo founded Anyaji, Serihara Tamijiro joined Anyaji. He thought he might be able to gain even a shred of new martial arts from Takakusaki Gengo, who had already become a far greater Master than himself.</p>
-<p>「Gengo demanded Haruto again as the Price for giving me martial arts. So I asked him the Reason. Why he wanted to take Haruto back now.」</p>
-<p>Takakusaki Gengo brought a Person to answer Serihara Tamijiro's Question. The Person who appeared was an Elderly Person, a white man. He was called the Black Sage, a man wearing a hood and a Robe, and he was the one who had created Anyaji's sorcerous framework.</p>
-<p>Of course, he didn't do it for free, but received several Prices. One of those Prices was Fujigasaki Rinka's Sabu, Soda Haruto.</p>
-<p>「So I handed Soda Haruto over to that Black Sage. The Black Sage is a terrifying Person.... Even you, Rinka, Kek! Kek!」</p>
-<p>It was Fujigasaki Rinka who began to strangle Serihara Tamijiro's neck as he spoke.</p>
-<p>「Don't call my name with that filthy mouth that betrayed and sold off your friend.」</p>
-<p>Fujigasaki Rinka lost her Fading Reason and almost strangled Serihara Tamijiro to Death, but she soon released her hand from Serihara Tamijiro's neck. There was still some Information she needed to hear.</p>
-<p>「So that Black Sage, or whatever he is, still has Sabu?」</p>
-<p>「Th-that... I don't know! It was a long time ago. Keuah-aaaah!」</p>
-<p>Because Serihara Tamijiro couldn't answer properly, Fujigasaki Rinka crushed another finger.</p>
-<p>「I really don't know! Really! That Elderly Person called the Black Sage was in Anyaji and then left! He took Haruto with him, but that was years ago!」</p>
-<p>Serihara Tamijiro quickly opened his mouth as if he wouldn't lose another finger. Left Anyaji with a Person called the Black Sage? According to Serihara Tamijiro's Words, the Black Sage was the one who created the framework of Anyaji's sorcery, and Anyaji's sorcery was all evil sorcery.</p>
-<p>So he would never have taken Sabu with good intentions. Fujigasaki Rinka had a Premonition that something very evil would be done to Sabu.</p>
-<p>「Then I'll let that pass. Next, tell me everything you know about the Black Sage. Then I'll let you return to your family alive.」</p>
-<p>At the Words that she would let him live, Serihara Tamijiro began to tell Information about the Black Sage. From basic Information like Kina's Size to his Way of Speaking and frequently used sorcery, Serihara Tamijiro unexpectedly gave Fujigasaki Rinka detailed information.</p>
-<p>After recording all the Stories Serihara Tamijiro told, Fujigasaki Rinka raised her fist. And very slowly, she extended it.</p>
-<p>Kkwadeuk! Kkwadeuk!</p>
-<p>Fujigasak Rinka's fist, which touched Serihara Tamijiro's chest, began to burrow into Serihara Tamijiro's chest as if digging into mud.</p>
-<p>「You, you said you'd let me live...! Keuah-aaaah! You did!!!」</p>
-<p>「Just as you betrayed Sabu, I betrayed my promise with you. Let's call it even with this.」</p>
-<p>From the start, Fujigasaki Rinka had no intention of letting Serihara Tamijiro live. He had betrayed Sabu, Tortured him, and on top of that, sold him off to an evil sorcerer called the Black Sage, so letting him live was an absurd Story.</p>
-<p>Even as Fujigasaki Rinka spoke, her fist went in by a quarter of a joint. The chilling sound of cracking breast bone, Ppadeuk Ppadeuk, was heard.</p>
-<p>Serihara Tamijiro suffered excruciating pain for a very long time until his heart burst, leading to his Death. Fujigasaki Rinka, bursting Serihara Tamijiro's heart, vowed to definitely get Sabu back.</p>
-<p>Gojoy-nim requested Nagumo Sian 1. Bra + Jeans side profile and 2. Bra + Jeans taking off.</p>
-<p>1.</p>
-<p>It feels like a duplicate of yesterday, so I'll only upload two images, haha.</p>
-<p>2.</p>
-<p>MidNightSKY-nim requested Alik Seducing with sexy lingerie and Ryuta's Astonishment upon seeing it, and Ryuta enraged after realizing Shii is the Instigator~! It's virtually three Requests, but since it's just changing Expressions, I'll accept the Request this time?! Haha.</p>
-<p>Alik Seducing with sexy lingerie~!</p>
-<p>Ryuta's Astonishment and enraged Ryuta.</p>
-<p>Astonishment</p>
-<p>Ah, Alik?!</p>
-<p>Anger</p>
-<p>Shii! What did you do, enticing an innocent child?!</p>
+<p>「...So, I'm going to America myself to find my Sabu.」</p>
+<p>According to Sabu Fujigasaski Rinka's Words, her Sabu's Sabu, Soda Haruto, was kidnapped by An-yaji and then handed over to a Sorcerer named Black Sage. The Black Sage was the one who laid the foundation for An-yaji's Sorcery, and he was with An-yaji from its early days but has now left, though his True Identity has not yet been uncovered. Still, since they now knew the name Black Sage, she said she was going to America to track him based on that.</p>
+<p>「Well.... If that's the case, there's no Choice but to do it. I can't go to America right away, but I'll provide some support.」</p>
+<p>Having just heard the Story, I hadn't thought about how to provide support, but I decided to help Fujigasaski Rinka with Money, equipment, and manpower, and returned to the Hospital Room with her.</p>
+<p>「Ryutacchi~! What happened?」</p>
+<p>「Well.... What can I do? Sabu says she's going. Are you really going to be okay in America, Shii?」</p>
+<p>Seizawa Shii, perhaps thinking I would oppose her going to America, asked with a slightly worried Expression, but when I spoke as if it were fine, she showed a relieved Expression.</p>
+<p>「I've been to Foreign Countries a few times for missions, so I'm fine. Aren't you worrying too much, Ryutacchi? I'm not Ryutacchi's Student anymore?!」</p>
+<p>At my Words asking if she was okay, Seizawa Shii said she was fine. Well, naturally, coming from a well-off Family, she must have traveled abroad a lot, and as Seizawa Shii said, she's been to Foreign Countries for missions, so she should be fine. Even if nothing else, Seizawa Shii is quite good at foreign languages, so Communication shouldn't be a Problem. Still, since the Opponent was a prominent figure in the Sorcery world, I couldn't help but Worry. I'm worried about just the two of them, so I'll have to assign a few more people.</p>
+<p>「So, when are you going to America?」</p>
+<p>Even if she's discharged tomorrow, there will be various Preparations, so I asked Fujigasaski Rinka.</p>
+<p>「If I'm discharged tomorrow, then.... After some Preparations, perhaps Thursday? Friday? Around then, I suppose?」 「Understood. Shii, talk to Sabu about what you need....」</p>
+<p>For now, I concluded the discussion about going to America for the Sajo rescue Operation and approached Shimokawabe Airen, whose wounds were more severe than I had thought.</p>
+<p>「I'll speak to the Hospital, so don't Worry, Shimokawabe seonsaengnim.」 「Thank you. I also believe I'll be treated, so I'm not too worried.」</p>
+<p>Otagi Yuka said that the Blood Doctors of the Otagi Family were excellent, so I believed she would be treated, but even if the Treatment didn't go well, I had a last resort. I hoped it would be resolved before then, but if the Treatment failed, I would have no Choice but to use my last Means.</p>
+<p>「Don't overexert yourself until you've fully recovered.」</p>
+<p>I told her not to overexert herself, fearing she might feel anxious and push herself too hard, having just joined me and being hospitalized from the start. If nothing unusual happens, there probably won't be any battles for a while, so there won't be anything for Shimokawabe Airen to step forward for. Therefore, there was no Problem with her resting in the Hospital for a while without overexerting herself.</p>
+<p>After a few more Words, I finished my hospital visit to Shimokawabe Airen, left the Hospital Room, and headed to the Hospital Room where Kiyohira was lying.</p>
+<p>Knock.</p>
+<p>When I knocked, I heard Kiyohira's Voice saying, 「Come in.」 I slid open the Hospital Room Door and entered to find Kiyohira lying alone, watching TV. His Sabu, Musashi Takuro, was nowhere to be seen.</p>
+<p>「It was you?」 「Yes, where's your Sabu?」</p>
+<p>I sat on the Chair next to the bed and asked about Musashi Takuro's whereabouts.</p>
+<p>「Sabu went to the Am-sang Branch you introduced because of my Arm. He was curious about what Technology goes into Cyber Implants.」</p>
+<p>Ah, he must have left because of the Cyber Implant. Saionji Diana is probably at the Am-sang Branch too, so they'll meet.</p>
+<p>「Are you okay?」</p>
+<p>I asked, looking at his dangling Arm. Since Shimokawabe Airen was suffering from unexpected Poison, I asked, worried that Kiyohira, who had been thrown into that Corpse pit, might also have a severe infection or something similar. Kiyohira chuckled at my Appearance.</p>
+<p>「I'm fine. You said the Cyber Implant would be okay. I'm thinking about how I should fight once I get it.」</p>
+<p>Kiyohira said he was fine, perhaps thinking I was just worried about him losing his Arm. I was worried about something else, but seeing him smile like that, he seemed to have no Sore Spots and was fine. Fortunate.</p>
+<p>-A staggering 18 People have been found Murdered....</p>
+<p>On the TV Kiyohira had turned on, content that was hard to ignore came up, and when I looked at the TV Screen, a small village by the sea was shown in the News. Below the Screen, the Text read: Mass Murder in Village A!</p>
+<p>A Story about people dying came up, and I wondered if it was related to our battle with An-yaji? I watched the TV in surprise, but it didn't seem to be the case.</p>
+<p>「Geez, the World is scary these days. They say a whopping 18 People died?」 「I'm watching it too. 」</p>
+<p>-Orphanage Director S-ssi and Orphanage Teacher J-ssi, along with 10 Students nearing Graduation, three faculty members, and three company employees near the village, met with sudden Death.</p>
+<p>An orphanage.... Surely it's not an An-yaji orphanage, is it? A Photo of a mosaic-blurred Corpse flashed by, so I picked up my phone and searched for the Village A Murder Incident.</p>
+<p>As expected, un-blurred images of the Murder Scene were circulating on the Internet. Looking at the Corpses, it didn't seem like a Sword or Gun was used. In fact, just by looking at these Corpses, it was impossible to tell how they died. It was as if a Giant had torn off a human's Arms, or as if a Corpse had been minced all over its Body with a pork cutlet Hammer, or a Corpse had been killed with a clean Hole in its Furrowed Brow-all without any discernible Rule.</p>
+<p>「They were killed incredibly brutally.」 「Indeed.」</p>
+<p>Certainly, most of the Corpses were brutally mutilated. To this extent.... Was there some grudge against the deceased?</p>
+<p>-The police are viewing this Incident not as a serial Murder, but as a mass Murder driven by a grudge, and are currently identifying the connections between the Victims.</p>
+<p>The police seemed to have similar thoughts to mine. It was quite an intriguing Incident, but I didn't pay it any more attention. Because I thought it was none of my business, as I was neither a police officer nor a detective.</p>
+<p>「When do you plan to go to America?」 「Well.... I'll have to wait for the Cyber Implant surgery schedule to come out.」</p>
+<p>Kiyohira's profession is a UMC fighter, so he'll have to go to America soon. However, he was judging that it would be better to get the Cyber Implant in Japan before going, as going with a severed Arm would cause a huge stir.</p>
+<p>Deureureuk.</p>
+<p>「The Cyber Implant surgery has been decided to be done in America.」</p>
+<p>Suddenly, the Door opened, and Musashi Takuro came in, speaking about the Cyber Implant surgery. He seemed to have just returned after stopping by the Am-sang Branch. By the way, what is he talking about, having the surgery in America?</p>
+<p>「What are you talking about?」 「The Am-sang side you introduced wanted the surgery to be done in America. Saying something about not being a formally authorized organization....」</p>
+<p>Musashi Takuro Answered my Question. Musashi Takuro didn't seem to know exactly what he had heard, but I understood roughly what he meant after hearing this Story. The Cyber Implant procedure performed by Eve was, in fact, an illegal procedure. Because it was a Cyber Implant created using TG Tech's Technology and Eve's own proprietary Technology, it had not undergone safety inspections by authorized organizations.</p>
+<p>Kiyohira became a huge celebrity after becoming the UMC Openweight Champion. However, if it became known that Kiyohira's Arm was severed, he would receive immense Attention, and naturally, the Cyber Implant procedure Kiyohira received would also receive Attention. But if he were to receive that Cyber Implant from us, rather than a licensed company, we would also receive unwanted Attention. In severe cases, Am-sang or even TG Tech could be investigated.</p>
+<p>That's why Eve suggested doing the Cyber Implant surgery in America to resolve this Situation. It must be to establish some legitimate company during that short time they gained. Because if it's a legitimate company, investigative agencies won't dig deeper.</p>
+<p>「Anyway, that Eve woman said if she sees you, she wants you to stop by the Branch today. She said there's a Share to discuss.」 「Ah, thank you for relaying that.」</p>
+<p>Since TG Tech's Technology is significantly incorporated into Eve's Cyber Implant Technology, Eve can't just create a company as she pleases. My Consent and Han Yu-gyeong's are required. By the way, this Matter seems like it will become quite a Topic...? The shocking Scene of a UMC Champion entering America with a severed Arm, and then winning a Champion Defensive Battle with a new Cyber Implant-this was an unparalleled global Advertisement opportunity. Eve probably thought the same as I did.</p>
+<p>Once I finish the hospital visit, I should stop by Eve's.</p>
+<p>「What are you holding in your Hand, Sabu?」</p>
+<p>While I was thinking about Eve's Intention, Kiyohira pointed to a booklet-like object in his Sabu's Hand and asked.</p>
+<p>「This is a catalog. You need to know what Abilities you need, don't you? Come on.... Let's read it together, Disciple.」</p>
+<p>He already made a catalog? His Will to formally create a company seemed clear. Musashi Takuro opened the catalog and showed it to Kiyohira, then looked at me with an Expression that said, 「Why aren't you leaving?」 Staying too long would be rude, and since I suddenly had somewhere to go, I felt I should leave too.</p>
+<p>「Kiyohira, I'll be going now.」 「Okay. You don't have to come too often. My Arm being severed is my own fault.」</p>
+<p>Kiyohira, with a slightly bitter Expression, spoke at my Words that I was leaving. It was Takakusaki Gengo who tore off his Arm, but Kiyohira was blaming himself. He seemed to think that getting involved with An-yaji in the first Place was a Mistake. He looks a bit dejected now, but once he gets the Cyber Implant, he'll probably return to his original self that I know. I patted Kiyohira's Shoulder as if to tell him to cheer up, then bowed to Musashi Takuro, opened the Hospital Room Door, and went Outside.</p>
+<p>There were no requested Illustrations today, so I made a few Illustrations as a Test to see if the new program works well haha.</p>
+<p>Adult Linling~!</p>
+<p>Tsukiyo, who hasn't appeared yet(?)~!</p>

@@ -5,80 +5,90 @@ weight = 748
 chapter = 748
 +++
 
-<p>before but check contain erotic flesh illustrations is no please some surroundings the there your After visiting the shrine and eating Osechi, we released our pent-up desires after a long time, completely naked. Since it had been quite a while since our last sex, everyone made active demands, especially Otagi Yuka was proactive.</p>
-<p>Otagi Yuka, who had been starved of semen for several days, licked up all the semen injected into the other students' pussies. She had never done this before, so the New Year's text message saying she was short on semen must have been true.</p>
-<p>"Hooah...! Now I feel like I can live again."</p>
-<p>"You had some stored up, didn't you? Were you really that short?"</p>
-<p>"I thought I'd be fine.... But, I couldn't control my Lust."</p>
-<p>Hmm.... To say she couldn't control her Lust, Otagi Yuka seemed to be afflicted with the Blood Craving status effect. There are several situations in which a Vampire enters the Blood Craving status effect: not consuming blood for a long period, being cursed, or evolving into a higher Vampire. In my opinion, Otagi Yuka's case seemed to be a state of final evolution.</p>
-<p>Her level had also increased, and Otagi Yuka's Bloodline wasn't bad, so there was sufficient plausibility for her to evolve into a higher Vampire.</p>
-<p>"Just a moment, I'll check Yuka's Stats."</p>
-<p>Still, it could be a status effect caused by a curse or Jusul, so I should definitely check. I put on the glasses from the remaining Ruins and checked Otagi Yuka's Status Window.</p>
-<p>◆Name: Yuka Otagi (愛宕 夕香) Lv15</p>
-<p>※Status effect: Blood Craving</p>
-<p>Power:16 Agility:16 Stamina:16 Resistance:16 Recovery:16 Sensitive Nerves:16 Appearance:16</p>
-<p>Intelligence:8 Knowledge:7 Concentration:10 Will:10 Creativity:3 Charm/Allure:15 Judgment:8</p>
-<p>Luck:6 Blood Energy:16 Satiety: 71/100</p>
-<p>◆Akagamikiba Style (赤神牙式: Red God Fang Style) (Unique Swordsmanship Lv13) ◆Otagi Style Blood Energy Sorcery (愛宕流 血氣 呪術) (Unique Sorcery Lv10) ◆Investigation (Normal Skill Lv8) ◆Dish (Normal Skill Lv8) ◆Linguistics (Normal Skill Lv12) ◆Special Driving (Special+ Skill Lv9) ◆Fog Flight (Epic Skill Lv10)</p>
-<p>◇Vampire's Physical Body - Otagi (愛宕) [Legendary Bloodline]: All Physical Body stats, except Appearance, are tied to the special stat, Blood Energy. However, even if the Blood Energy stat goes beyond its limit, if the Physical Body stat's limit hasn't been unlocked, it will only increase up to that limit.</p>
-<p>As a Vampire's Physical Body, the Limit of all Stats increases by 2, and the more frequently Blood Sucking is performed, the higher the Blood Energy Stat rises. The higher the Blood Energy Stat, the higher the regeneration power, and Proficiency in Blood Energy skills additionally increases.</p>
-<p>At night without the Sun, Blood Energy increases by 120%, and if the Blood Sucked target does not completely die, they can be used as a Vassal.</p>
-<p>If Blood Sucking is not performed and Satiety decreases to 40 or below, the Blood Energy ability is only applied by the Satiety's multiplier, and the Stats given upon Level Up are halved and not invested in the Blood Energy Stat.</p>
-<p>Becomes very vulnerable to Silver and also takes more damage from Light and Fire attributes.</p>
-<p>As a trait of the Otagi (愛宕) family vampire, they have an exceptional talent for swordsmanship.</p>
-<p>◆Fog Transformation [Epic Race Trait]: Vampire Race Trait. Can transform into a blood-red fog. When in fog form, reduces Physical Damage by 70%, and can deal continuous Damage to enemies within the fog.</p>
-<p>◆Blood Energy Affinity [Unique Trait]: Freely manipulates Blood Energy. The power of all skills and Traits that use Blood Energy increases by 145%, the maximum value of the Blood Energy Stat increases by 2, and the efficiency of the Blood Energy Stat increases.</p>
-<p>◆Blood Energy Regeneration (血氣 再生) [Epic Race Trait]: Significantly boosts regeneration power based on the Blood Energy stat. Increases the maximum Blood Energy and Recovery stats by 1, and raises the Blood Energy stat by 2. Can also further enhance regeneration by using Satiety.</p>
-<p>◆Noble of the Night [Epic Race Trait]: Charm/Allure Stat increases by 2, and its maximum value also increases by 1. The probability of successfully Seducing the opposite sex increases. Even for the same sex, Seduction can be performed in proportion to Charm/Allure. If Seduction is successful, the opponent is afflicted with the status effect .</p>
-<p>◆Veil of Darkness [Epic Race Trait]: Damage from Light and Flame Attributes is reduced, and the Blood Energy multiplier that increases at night increases to 130.</p>
-<p>◆Mutation - Semen Absorption [Rare+ Race Trait]: Vampire Race Trait. When semen, containing strong life energy, is ingested through the uterus or mouth, it acts like bloodsucking. The efficiency of Blood Energy is increased.</p>
-<p>◆Blood Physical Body [Legacy Race Trait]: Vampire Race Trait. The maximum value of Physical Body Stats is linked to the maximum value of the Blood Energy Stat. The maximum value of the Blood Energy Stat increases by 1.</p>
-<p>◆??? Blood Clan Lord [??? Grade Race Trait]: ___</p>
-<p>◆Blood Sucking Regeneration [Epic Race Trait]: ___</p>
-<p>Looking at her Stats, her Level had gone up by one, and her Will Stat had also increased by one due to the Level Up. Although her skills also seemed to have gone up by one or two Levels, what really stood out was the status effect.</p>
-<p>The Blood Craving status effect was clearly attached. To see definite information, I focused my mind on Blood Craving, and information about it appeared.</p>
-<p>◆Blood Craving [Status effect]: A Vampire's Blood Energy Satiety is consumed quickly, and the lower the Satiety, the faster its consumption rate increases.</p>
-<p>If the value is 50 or below, the Field of Vision turns red, and if the value is 35 or below, all Physical Body Stats decrease by 2. If the value is 20 or below, one falls into the Frenzy status effect and attacks nearby living creatures.</p>
-<p>As expected, it's no different from what I knew. Wondering why she got it, I checked the Status Window, and two Traits I hadn't seen before had appeared.</p>
-<p>◆??? Blood Clan Lord [??? Grade Race Trait]: Becomes the head of a faction and evolves into a higher Vampire, gaining abilities befitting that status. Until this Trait is fully acquired, the status effect is applied. [Evolution Rate: 7%]</p>
-<p>◆Blood Sucking Regeneration [Epic Race Trait]: Promotes a Vampire's basic regeneration power by consuming Blood Energy Satiety. If used simultaneously with Blood Sucking, even faster regeneration becomes possible.</p>
-<p>The Blood Sucking Regeneration Trait is a representative Trait that greatly increases a Vampire's tanking ability, making them almost Invincible on a Battlefield where blood can be obtained. Of course, in battles where blood cannot be obtained, such as 1-on-1 combat or anti-Cyborg battles, it was a Trait that actually decreased Combat power by consuming Satiety, but it wasn't a bad Trait nonetheless.</p>
-<p>Blood Sucking Regeneration seemed to be a Trait gained from Level Up, and it seemed the Blood Craving status effect was attached due to the ??? Blood Clan Lord Trait, which also had ??? attached. The Trait description also clearly stated that the Blood Craving status effect is applied.</p>
-<p>I read the new Traits to Otagi Yuka.</p>
-<p>"...You have these Traits, what do you think?"</p>
-<p>"Ah.... I see."</p>
-<p>At my explanation, Otagi Yuka nodded her Head as if she understood. When I looked at Otagi Yuka as if expecting an explanation, Otagi Yuka let out a slight Sigh and opened her mouth.</p>
-<p>"Didn't you think it was a bit strange? That even after the battle with the SPF ended, the severance between the Otagi Family and me wasn't lifted."</p>
-<p>In fact, that was a bit of a question/doubt. When the Vampire Hunter organization SPF targeted Otagi Yuka, the Otagi Family severed ties by disowning Otagi Yuka, and it was a bit strange that they hadn't canceled the disownment even after the battle with the SPF ended.</p>
-<p>Since it was a Matter between Otagi Yuka and her Family, I hadn't asked in detail, but it seemed she was about to tell me the Story now.</p>
-<p>"Vampires are connected to each other by the name Blood relative or Blood Clan. Disownment in a Vampire Family is much heavier than disownment in a human Family. It's about completely severing ties with the Family, magically and spiritually, so it's similar to truly becoming a stranger."</p>
-<p>Now I understand a little. Otagi Yuka being quickly disowned from the Family during the SPF's attack really meant cutting off all ties with the Family, according to the Hanja characters for '절연' (絶緣 - severance). It must have been to reduce the Family's damage by removing one person.</p>
-<p>"Ultimately, since I was cut off from the Blood Clan called Otagi, I've become able to create my own clan. This is quite strange. Usually, disowned Vampires fall to the rank of lower Vampires. There's almost no probability of becoming a higher being capable of forming their own clan."</p>
-<p>It's probably because your level is high. The level seen through the glasses from the Ruins isn't just a game-like level; it also reflects the height and depth of one's 'status' (格). It means your status has risen enough for you to create a clan.</p>
-<p>Even I, who thought I had quite a lot of Vampire Knowledge, didn't know precisely about disownment, but I knew that Vampires evolve if their status (Level) is high. It seemed that Vampires without a Blood Clan had a mechanism where if they possessed a certain level of status, they would become a Blood Lord themselves.</p>
-<p>Besides the Otagi Family or the giant Vampire Clans of Europe, smaller Blood Clans must be formed in this way.</p>
-<p>Otagi Yuka also fought Kurotsugi Doo for a year in New York, and after I was appointed as the Class Teacher of St. Francisco Girls' Academy, she became entangled in numerous Matters, so she must have been able to acquire sufficient status.</p>
-<p>"Still, that's fortunate. I was worried she might have caught some strange illness."</p>
-<p>"It's fortunate, but it wasn't a light Matter. If she had fallen into a Frenzy and attacked her Surroundings for no reason, she could have definitely been attacked by the SPF or other organizations within Japan. Especially in the Blood Craving state, her abilities also drop, so it would have been incredibly dangerous."</p>
-<p>A Vampire who falls into a Blood Frenzy and attacks her Surroundings was an easy Opponent. This is because they lack Fading Reason, cannot think strategically, and their Combat power has even decreased. It was fortunate that it could be resolved with my semen without reaching that level.</p>
-<p>"Keep coming to recharge for a while. I don't know how long it will take, but because of the Blood Craving, you'll be short on blood."</p>
-<p>In fact, it might be semen she was short on, not blood, but it was an unavoidable Situation, and Otagi Yuka was a student confirmed to be under me, so I had to keep taking care of her.</p>
-<p>"Then, even now, you can give me strength a few more times, can't you?"</p>
-<p>At my Words, Otagi Yuka spoke seductively, her Eyes shining bewitchingly. Since her Satiety wasn't very high right now anyway, it was a Situation where she needed some recharging (?). The sex until just now was only enough to recover her depleted Satiety, and ultimately, her Satiety needed to be fully replenished.</p>
-<p>In the case of the Blood Craving status effect, the lower the Satiety, the faster it decreases, so it was important to always keep it close to its maximum value.</p>
-<p>"Did you bring the Glass Bottle for Milk storage too?"</p>
-<p>In fact, it was a Bottle for semen storage, but because the name was too Explicit, I asked about the Glass Bottle for Milk storage. Actually, since some Women ask for milk to be poured into their uterus during sex, it wasn't necessarily the wrong name.</p>
-<p>"Of course. I'll take plenty."</p>
-<p>When tested with a Glass Bottle enchanted with Vampire Blood Jusul, capable of storing blood freshly, it also had an Effect on semen, so if there was a trip overseas or a long absence, I would fill Otagi Yuka's Glass Bottle with semen.</p>
-<p>Even during this New Year's trip to Korea, I had filled the Glass Bottle, but it seemed she had quickly consumed it all due to the Blood Craving. If it hadn't been for the semen in the Glass Bottle, Otagi Yuka, with her decreased Satiety, might have been Subjugated/Exterminated.</p>
-<p>"We're also having sex together, right?"</p>
-<p>"That's right, Liege/Master! Yuka only needs semen, so we can do it with you, and Yuka can lick it all up and drink it, right?"</p>
-<p>"Shinkai Hime-nim also wants to join us♥"</p>
-<p>Saionji Diana, Sakagami Rena, and Urabe Konoka, who had been listening quietly, shrewdly declared their participation in sex. Otagi Yuka gnashed her teeth slightly at her Friends' shrewd Appearance, but since there were no flaws in her Friends' Logic, she could only Sigh and acquiesce.</p>
-<p>"You might be full from my semen, but I'll get hungry, you know."</p>
-<p>"Meals after exercise are even more delicious♥"</p>
-<p>"That's right. I'm afflicted with Blood Craving, so please bear with me a little, Sensei-ssi."</p>
-<p>"Liege/Master...! I'm sorry. Your Liege/Master's sausage looks so delicious, I can't hold back any longer."</p>
-<p>"My Partner, the milk that comes from your Partner's tip is truly the delicacy of the World♥"</p>
-<p>Although I grumbled about being hungry, everyone was already in Heat/Rut (Simyeonui ttal had already Possessed Urabe Konoka). I, as if there was nothing I could do, erected my cock.</p>
-<p>Christmas Special Gift Box Han Yu-gyeong~! I tried making them with different models hehehe Lisa-ttang supporting her breasts, requested by Hwanbuljeoldaebulga-nim, and Class Teacher will be uploaded tomorrow~!</p>
+<p>"Ribbon-chan."</p>
+<p>Sakagami Rena, holding Hamtaro in her arms, this time summoned Ribbon-chan, a Tsuchiitachi (槌鼬) yokai given to her by the Naruse family. Ribbon-chan was a white weasel yokai capable of creating brief openings by summoning winds that pushed her opponents back.</p>
+<p>"Ribbon-chan, circle around the building and find an entry point for us."</p>
+<p>Sakagami Rena's shikigami, Ribbon-chan, was a yokai that was almost like a wind spirit, making her very useful for reconnaissance.</p>
+<p>"Jjii!"</p>
+<p>Ribbon-chan, at Sakagami Rena's command, chirped once and scurried towards the building. After circling the building once or twice, Ribbon-chan returned to Sakagami Rena.</p>
+<p>"How is it, Ribbon-chan?"</p>
+<p>"Jjii! Jjii! Jji!"</p>
+<p>In response to Sakagami Rena's question, Ribbon-chan began to explain with chirps. Of course, the friends next to her stared, wondering what was going on, but since shikigami and their masters had a contractual relationship, they could communicate their intentions to each other, allowing for smooth communication as if they were conversing.</p>
+<p>"Yeah, yeah... I see. Okay. Thank you, Ribbon-chan."</p>
+<p>"So, what did Ribbon-chan say?"</p>
+<p>As Sakagami Rena's conversation with Ribbon-chan ended, Naruse Shiyo, who was skilled in Onmyodo and shikigami techniques, asked about the details.</p>
+<p>"There's a door on the opposite side from where we're looking. And there are a lot of small cameras, apparently?"</p>
+<p>"It seems like sneaking in will be difficult because of the cameras... It looks like they deliberately created a door on the opposite side of the path to come up for security."</p>
+<p>Konoe Akina said with a hint of disappointment at Sakagami Rena's words. Unfortunately, sneaking in was impossible, and they had to prepare for a fight. Faced with a situation where combat was unavoidable, everyone bit their lips as if they had made up their minds.</p>
+<p>"Let's get ready for battle here first."</p>
+<p>"Okay."</p>
+<p>Everyone began to equip their cyber suits and weapons that they had brought from the vehicle. Everyone put on their cyber suits and grabbed their guns and swords.</p>
+<p>"There's something we need to decide before we go into battle."</p>
+<p>"What do you mean?"</p>
+<p>Seizawa Shii asked about the meaning of Sakagami Rena's words.</p>
+<p>"It's about how far we go. It's about how much we're going to hurt Taira Kanna, who is suspected of being the kidnapper, and the goons guarding that building."</p>
+<p>"Well, since the opponent is the youngest daughter of the Tairaga, it's a bit much to kill her, right? The repercussions wouldn't be small."</p>
+<p>"Isn't it simple? We just don't kill them. Being incapacitated should be fine, right? Medical technology is good these days, isn't it?"</p>
+<p>"That's right~! We have to show them the price for kidnapping Ryuta-jji~!"</p>
+<p>Some agreed with Sakagami Rena's words, but Otagi Yuka and Seizawa Shii set the same standard as if there was nothing to even listen to.</p>
+<p>The standard was to not kill, but to inflict damage equivalent to being incapacitated. All the students nodded as if they liked that standard.</p>
+<p>After setting the standard and finishing all preparations, the students exchanged glances and then simultaneously ran off.</p>
+<p>The homeroom teacher rescue squad students ran to the entrance behind the building in an instant. The door opened suddenly, and several people wearing cyber suits popped out.</p>
+<p>"Ryuta... give him back...!"</p>
+<p>Alik was the fastest to react. Before the building's security guards could point their guns at the rescue squad students, Alik swung his sword like lightning, cutting off the guns and electrocuting them at the same time.</p>
+<p>"Alik, you've really improved, huh?"</p>
+<p>Otagi Yuka said, slightly surprised by Alik's movements. Alik was originally quick, but his speed had become even faster.</p>
+<p>"Yuka, give me compliments after we save Ryuta."</p>
+<p>"Puhahat~! So you want to be praised after all."</p>
+<p>"Yeah...! Alik likes praise."</p>
+<p>Otagi Yuka burst out laughing at Alik's words. It seemed like everyone's tension had eased a little at Alik's words.</p>
+<p>It wasn't good to be too tense for a rescue mission, so it was a good thing for the homeroom teacher rescue squad. Everyone, having relieved their tension a little, entered the still-open door of the building.</p>
+<p>###</p>
+<p>"Haa, haa, haa...! That was so good, Onii-sama."</p>
+<p>Taira Kanna, with her arms as a pillow, looked at me with a happy expression and stroked my chest. Because I was lying tied up in a large spread-eagle position, Taira Kanna could lie down using my arm as a pillow even if I didn't want her to.</p>
+<p>"Then, shall we talk a little now?"</p>
+<p>"What is Onii-sama's proposal?"</p>
+<p>Hmm... Actually, I didn't really have a proposal to give anything. But I had thought about something over the past day, so I should be able to persuade her with that.</p>
+<p>"First, Kanna, I want to know your goal."</p>
+<p>"Goal? Why suddenly that...?"</p>
+<p>Taira Kanna looked at me with an expression that asked why I was asking such a thing. Of course, there was a reason why I was asking.</p>
+<p>"Anyway, your goal is to become the Chairman of Tairaga, right? I'm the same."</p>
+<p>"Yes. I plan to one day avenge Onii-sama and stand at the very top of the Taira Group."</p>
+<p>The Onii-sama that Taira Kanna mentioned this time seemed to be Taira Saburo, not me.</p>
+<p>Could it be...? Is she obsessed with me, his son, instead of Taira Saburo? Could it be that I was just a victim of a brother complex? This is also unpleasant in its own way.</p>
+<p>"Could it be that you kidnapped and violated me thinking of me as a substitute for my father? That's a bit disappointing... Of course, I share DNA with my dead father, but he's someone I've never met in my life. I and Taira Saburo are completely different people. I'm not the kind of person that aunt thinks I am."</p>
+<p>When I spoke with a slightly disappointed attitude, Taira Kanna made a flustered expression. But she quickly corrected her expression and began to explain to me in a calm manner.</p>
+<p>"Of course, Onii-sama can think that way. It's true that I initially became interested in Onii-sama because Onii-sama and... no, Saburo Onii-sama and Ryuta Onii-sama looked alike."</p>
+<p>Taira Kanna readily admitted to some of my story. So, the rest of my words were wrong?</p>
+<p>"But as I continued to watch Ryuta Onii-sama, I quickly realized that he was different from Saburo Onii-sama. Saburo Onii-sama was a very smart person. But Ryuta Onii-sama's final education is high school, and looking at his actions, he's far from being a brainy type."</p>
+<p>Hey, is it okay to hit me with facts like that? It hurts my feelings?!</p>
+<p>"Unlike Saburo Onii-sama, Ryuta Onii-sama is a physical type. His outstanding martial prowess was amazing. Also, he's very charming, so he's made a lot of good colleagues. A lot of stray cats..."</p>
+<p>Although a yandere expression suddenly appeared at the stray cat part of the story, Taira Kanna calmly opened her mouth again.</p>
+<p>"As I looked at Ryuta Onii-sama like that, I unknowingly came to love him? Of course, I loved Saburo Onii-sama as well. Of course, I loved him not with the feelings I have for my actual brother, but with the feeling of an idol and a fan. But the feelings I felt for Ryuta Onii-sama were different from such puppy love."</p>
+<p>Taira Kanna, who was smiling kindly, then looked at me again with a vacant yet obsessive expression. Her expression is getting scarier and scarier.</p>
+<p>"I felt a strong desire to possess Ryuta Onii-sama all to myself. I couldn't bear that desire any longer, so I brought Onii-sama here like this."</p>
+<p>I don't know when kidnapping turned into "bringing," but I accepted it and started talking again to persuade Taira Kanna.</p>
+<p>"Okay, I understand. In the current situation, we won't be recognized anyway. How about looking a little more into the future?"</p>
+<p>"The future?"</p>
+<p>"Like I just said, our goal is to stand at the top of Tairaga, right? First, we cooperate until only the two of us remain as successors. And when only the two of us are left, we decide our relationship. Who will have whom."</p>
+<p>Taira Kanna was silent for a moment at my proposal. After a moment of silence, Taira Kanna opened her mouth with a faint smile.</p>
+<p>"That's not a bad proposal."</p>
+<p>At the moment Taira Kanna evaluated it as not bad, something was heard crackling from the sound equipment installed on the ceiling.</p>
+<p>-The enemy has infiltrated the building. The intruders are women who appear to be high school or college students wearing cyber suits, numbering less than ten.</p>
+<p>Oh, perfect timing, it seems like my students have come to save me. I said to Taira Kanna with a smile on my face.</p>
+<p>"It looks like they've come to save me. Now that the story has ended well, let me go. We had a good talk, so there's no need to fight."</p>
+<p>At my story, Taira Kanna shook her head with a still faint smile. Why is she refusing? Didn't she agree to my proposal?</p>
+<p>"No, I only said it was a good proposal, I haven't agreed yet. So, here's my condition. I'll judge whether Onii-sama can get involved in the Taira succession war by checking the capabilities of Onii-sama's subordinates."</p>
+<p>Taira Kanna, who was slowly smoothing out the school uniform she was wearing, took out a fairly long rapier hanging on the wall. I had my clothes torn to shreds with that rapier.</p>
+<p>"If you kill or seriously injure my students, this proposal is over. I'll hate you for life, so keep that in mind."</p>
+<p>At my words, Taira Kanna smiled as she touched the handle of the rapier, holding it vertically as if telling me not to worry.</p>
+<p>"Hehehe, it's just a test. St. Francisco Girls' Academy Rule 84, the student council president has the right to check the learning abilities of the students during their term. Would I, as the student council president, hurt my cute students?"</p>
+<p>Taira Kanna, as if telling me not to worry at my words, grandly recited the rules of St. Francisco Girls' Academy and went out with the rapier. Ah, there was something I hadn't said yet.</p>
+<p>"Wait~! When that test you mentioned is over, I'll be meeting the kids, but I'm naked right now? Before the fight starts, can you give me any clothes?"</p>
+<p>"They're in that drawer over there, so wear whatever you want, Onii-sama."</p>
+<p>Taira Kanna pointed to a closet on one side and then left the room without stopping now.</p>
+<p>No! I need to unlock the chains to put on clothes! You woman! I couldn't even scream in panic and watched Taira Kanna's back as she left the room.</p>
+<p>__________</p>
+<p>Kanna Rapier B-cut!</p>
+<p>Similar composition, no yandere Kanna.</p>
+<p>Kkiyoot!</p>

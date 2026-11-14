@@ -5,85 +5,70 @@ weight = 353
 chapter = 353
 +++
 
-<p>,"So you're saying you're going to make Saionji Diana-ssi do part-time work?"</p>
-<p>-Yes! With this, we can find out which part is responsible for the compatibility with superpowers, you know?</p>
-<p>After returning home, I talked to Eve about Saionji Diana's surgery. Fortunately, the cyber implant transplant surgery went well, and even more fortunately, it was compatible with superpowers even after being lightened and changed to a custom model.</p>
-<p>Eve saw that and became quite interested in the combination of superpowers and cyber implants, so she offered Saionji Diana-ssi a part-time job, and Saionji Diana-ssi accepted. And she even asked if it would be helpful to me, not because of the money... It seemed that the cyber implant had made a big impression on Saionji Diana-ssi. She's probably thinking of repaying my kindness.</p>
-<p>,"Okay. You'll provide AS if the cyber implant breaks down, right?"</p>
-<p>-Ei~! What do you take me for! Of course, I'll fix it up like new again!</p>
-<p>Well, I guess she'll take care of it. As long as she doesn't break everything and pretend she doesn't know.</p>
-<p>,"Okay. Then I'll stop by soon."</p>
-<p>I remembered that Eve said she had something to say about business, so I said I would stop by soon.</p>
-<p>-Yes! I'll be waiting!</p>
-<p>The call with Eve ended, and it was dinner time. It took longer than I thought because of an unexpected incident.</p>
-<p>To understand that incident, I had to go back to 10 minutes after I signed the club establishment application for Konoe Akina-ssi.</p>
-<p>###</p>
-<p>Ten minutes after signing for Konoe Akina-ssi, I was packing my bags to go home when I got a call from Konoe Akina-ssi. We often chatted on Line, but this is the first time she's called. What's wrong?</p>
-<p>,"Konoe-ssi, what's wrong?"</p>
-<p>-Ryuta-nim, the situation has become a bit strange... The student council Chairman is saying that if we want to start a club, we have to bring a faculty advisor.</p>
-<p>Taira Kanna? It seems like she's putting a damper on creating a club... I thought the Taira Family was helping me? Why is she interfering...?</p>
-<p>I finished the conversation and headed to the student council room with my bag to leave work immediately.</p>
-<p>At Saint Francisco Girls' Academy, the student council has quite a bit of power. The Disciplinary Committee, an organization under the student council, cracks down on students' daily school life, patrols Miyashi, and even controls outside life.</p>
-<p>And it has almost all the power over clubs, so it has the right to establish and inspect clubs. Since almost all students in the school belong to a club, the right to clubs was a considerable level of power.</p>
-<p>Most of the students are rich, so they can't put pressure on club operating expenses, but they have the powerful authority to audit and shut down clubs that don't follow the rules.</p>
-<p>The student council building was attached to the building with the faculty office, and it was a considerable site even though it was only used by the student council and its subordinate Disciplinary Committee.</p>
-<p>As I was about to go through the entrance, two female students wearing black armbands that said 'Discipline (風紀)' stood on either side of the door and blocked my way.</p>
-<p>,"What brings you here?"</p>
-<p>,"I'm Yamashiro Ryuta, the homeroom teacher of the 3rd grade special class. The student council Chairman called me."</p>
-<p>Taira Kanna is quite something. She's using the Saint Francisco Girls' Academy's heiresses almost like private soldiers. As expected of the Taira Family's heiress?</p>
-<p>At my words, the two checked something on a tablet for a moment and then nodded.</p>
-<p>,"Yamashiro-sensei, we apologize for the inconvenience. The Chairman is waiting for you, so please go in."</p>
-<p>Come to think of it, isn't this subtly expressing her ambition to aim for the Chairman of the Taira Group? She's not just called the student council Chairman, but just Chairman. If that's true, she's quite bold.</p>
-<p>,"Okay, good work."</p>
-<p>I said to the Disciplinary Committee students guarding and entered the student council building. Let's see... The Disciplinary Committee is on the 2nd floor, and the student council is on the 3rd floor. The elevator happened to be on the 1st floor, so I took the elevator to the 3rd floor where the student council is located.</p>
-<p>A ding sounded as I arrived on the 3rd floor and got off the elevator, and the student council room was immediately visible. I felt an ominous aura, and I had a bad feeling about going in.</p>
-<p>But I have to go in. I knocked twice and turned the doorknob of the student council room.</p>
-<p>In the student council room were Taira Kanna, Konoe Akina, and Minamoto Risa. Konoe Akina was fidgeting as if she didn't know what to do, and Taira Kanna and Minamoto Risa were having an eye fight. Minamoto Risa didn't even notice I had entered and was shouting.</p>
-<p>,"Explain to me why it's not allowed!"</p>
-<p>,"As I said a few seconds ago, I can't tell you until the club advisor comes."</p>
-<p>Hmm, now that I see it, I can understand why they're raising their voices (strictly speaking, it seems like only Minamoto Risa is shouting...).</p>
-<p>Taira Kanna postponed the club's establishment, and Minamoto Risa asked why, but Taira Kanna said she would only tell the club advisor. Of course, Minamoto Risa is angry because she doesn't know the reason, and Taira Kanna is just repeating the club advisor like a parrot, so a vicious cycle of discord was completed.</p>
-<p>,"What's going on?"</p>
-<p>I pretended to be calm to change the situation.</p>
-<p>,"No, listen. This woman is preventing the club from being established and won't even tell me the reason...!"</p>
-<p>,"Minamoto-sunbae, please speak to the teacher with a little more respect."</p>
-<p>When Minamoto Risa complained to me, Taira Kanna said with a serious face this time. Was Taira Kanna's aunt thinking of me like this? While I was tilting my head slightly, the two were bickering again.</p>
-<p>,"Hmph! It's my business how I treat you!"</p>
-<p>,"You...!"</p>
-<p>,"Let's solve the club issue first. Student council Chairman, what's the problem?"</p>
-<p>As if they were about to fight again, I intervened between the two. Taira Kanna relaxed her serious face and quickly smiled at me.</p>
-<p>,"I want to talk to Yamashiro-sensei alone in the student council Chairman's office."</p>
-<p>,"Okay."</p>
-<p>,"Why can't we hear it!?"</p>
-<p>Minamoto Risa got angry again at Taira Kanna's request for a private meeting, but Taira Kanna ignored Minamoto Risa's words and entered the student council Chairman's office beyond the heavy door.</p>
-<p>,"I'll tell you when I get back."</p>
-<p>,"Okay, hurry back."</p>
-<p>,"Please be careful, Ryuta-nim!"</p>
-<p>Hmm, Konoe Akina-ssi is telling me to be careful like an NPC in front of a boss room. I nodded roughly and entered the student council Chairman's office.</p>
-<p>The student council Chairman's office had a quite luxurious feel, centered around a high-end desk made of mahogany wood, and photos of past student council Chairmans were hung on the wall, allowing you to feel the history.</p>
-<p>,"The Date Club will be a problem for the Disciplinary Committee."</p>
-<p>,"The kids are just going to cafes, movie theaters, and trips, and packaging it as a date experience. And our school isn't co-ed anyway, right?"</p>
-<p>Taira Kanna said her business as soon as I entered. So I gave my own excuse for the Date Experience-Meditation Club. It's definitely not a dating agency or a club for dating guys, but it seemed problematic to prevent its establishment just by the name.</p>
-<p>But if it's this kind of content, shouldn't she be able to tell the kids outside? It doesn't seem like there's anything particularly problematic.</p>
-<p>,"That's a good excuse. But the problem is the teacher."</p>
-<p>,"I'm the problem?"</p>
-<p>,"Yes, because of the previous homeroom teacher of the special class, the special class is under surveillance. If it's a date club and the advisor is a man, it will be quite a problem."</p>
-<p>Ah, that damn former homeroom teacher... Because of that bastard, nothing goes smoothly. As I was cursing the former homeroom teacher in prison in my mind, Taira Kanna asked again.</p>
-<p>,"I understand that teachers seduce 'targets,' but you wouldn't be like a man without principles and touch multiple women, would you?"</p>
-<p>For a moment, Taira Kanna's expression became very scary. She was smiling, but I could feel the murderous intent and obsession... But I'm sorry, it would be difficult to find a man in this world who has fewer principles than me. But I couldn't just tell the truth, so I shook my head firmly and said.</p>
-<p>,"I don't see minors as the opposite sex, so it's okay."</p>
-<p>,"Is that so?"</p>
-<p>Taira Kanna nodded with a dissatisfied expression at my answer.</p>
-<p>,"How is school life?"</p>
-<p>,"Well, it's a little annoying because it's earlier than my usual work hours, but there's nothing difficult."</p>
-<p>Is she going to reveal the reason why she had a private meeting with me soon? Taira Kanna asked a question that had nothing to do with the club.</p>
-<p>,"You sleep a lot, how's the food?"</p>
-<p>,"It seems delicious. I eat a lot, so I eat two bowls every day."</p>
-<p>,"You eat a lot... You're a cute glutton, hehe!"</p>
-<p>What is she doing? Isn't she supposed to be delivering a mission or a message from the Taira main family? Why is she writing my profile in a notebook? I was asked strange and privacy-invading questions by Taira Kanna for a while. Fortunately, it only took about two or three minutes, so it didn't take long.</p>
-<p>Thinking that she had talked enough to be satisfied, Taira Kanna put the notebook in her pocket and came out with a refreshing expression, saying, "Let's go out now." When I followed her out, Minamoto Risa opened her mouth as if surprised.</p>
-<p>,"What, the story is over already?"</p>
-<p>,"Yes, the story went well. I will allow the establishment of the Date Experience-Meditation Club with three conditions."</p>
-<p>Seeing her set three conditions, it was clear that she was Taira Danjo's daughter. I am also infiltrating Saint Francisco Girls' Academy as one of the three conditions I agreed to in exchange for getting a PMC.</p>
-<p>---</p>
-<p>Yandere feeling Taira Kanna.</p>
+<p>Cheolkeok!</p>
+<p>I heard the sound of the hotel front door opening, and I felt footsteps approaching the bedroom where I was. The door opened slightly, and a woman with brown hair and a perfect figure entered. She jumped straight onto the bed and hugged me. The voluptuous feeling and the longed-for sweet scent filled my nose.</p>
+<p>"Ryuta-aaa...! I missed you."</p>
+<p>"Me too, Yukiko-ssi."</p>
+<p>Yukiko was wearing a face full of longing and affection. Thankfully, she didn't have that sex-crazed, horny look on her face like last time, which I had been worried about before coming here.</p>
+<p>"Um, are you... okay?"</p>
+<p>"Huh? About what?"</p>
+<p>"Like, transforming and stuff like last time."</p>
+<p>"Ah...! I'm fine. I've gotten a little better at controlling that power, you could say?"</p>
+<p>Ah, she's getting used to her succubus abilities. That's a relief. It would be a little troublesome if she went into heat all the time. Especially since I can't exactly relieve her when I'm overseas. And I can't just leave it to another guy.</p>
+<p>"It was hard at first. My feelings for Ryuta just kept boiling over... and my body was heating up too. But I ate people's dreams using this power, and it calmed me down a bit, you know?"</p>
+<p>Eating dreams...? Could it be that she can eat dreams because she's a dream-eating succubus? I said, 'Just a moment,' and got up from the bed, taking out the glasses from the ruins from my luggage.</p>
+<p>Then, wearing the glasses from the ruins, I looked at Yukiko. Immediately, a translucent window popped up, displaying Yukiko's status window.</p>
+<p>"W-what is it?"</p>
+<p>I was very surprised when I saw Yukiko's status window. The reason being, Yukiko's status window had changed almost drastically.</p>
+<p>Name: Taira Yukiko Lv17</p>
+<p>Strength: 8 Agility: 8 Stamina: 12 Resistance: 8 Recovery: 7 Nerves: 16 Appearance: 20</p>
+<p>Intelligence: 10 Knowledge: 14 Concentration: 18 Willpower: 15 Creativity: 8 Charm: 19 Judgment: 16</p>
+<p>Luck: 6 Dream: 15</p>
+<p>◆Domination Lv13 [Epic Skill]: Gains a bonus when commanding a group of a certain size or larger. The probability of betrayal decreases, and the surrender rate of hostile males increases.</p>
+<p>◆Projectile Manipulation Lv16 [Unique Skill]: Possesses the ability to control all projectiles fired.</p>
+<p>◆Cooking Lv2 [Common Skill]: Gains a bonus in making food.</p>
+<p>◆Barrier Art Lv5 [Unique Skill]: Increases the efficiency of barrier art and barrier abilities. Gains 10 percent efficiency per level.</p>
+<p>◆Mindscape Entry LV5 [Unique Skill]: Enters the mindscape within oneself through meditation. Duration varies depending on Concentration and Willpower stats.</p>
+<p>◆Dream Combat Lv2 [Legacy Skill]: Materializes techniques stolen by eating the opponent's dreams.</p>
+<p>◆Alluring Destruction [Legacy Trait]: Appearance and Charm stats and their limits increase by 4, and efficiency also increases. Increases the probability of seducing the opposite sex and also increases sexual appeal. Those who are charmed show blind obedience.</p>
+<p>◆Darkborn [Unique Trait]: Becomes stronger in places without light. All stats increase by 2 in dark places, restrictions in the dark disappear, and bonuses are gained instead. When it gets dark, sub-traits of  are acquired.</p>
+<p>◆Awakened Succubus Flesh [Legendary++ Trait]: A trait that can only be obtained if sexual skills or traits and dark traits or skills exist simultaneously. All physical stats and limits increase by 2 each, Charm stat increases by 4, and the player's level limit also increases by 2. Absorbs essence when having sex with humans. When having sex with Cambions or Incubuses, essence is not absorbed, and experience increases for both.</p>
+<p>Impregnation with human seed becomes impossible. Only impregnation with the seed of a higher-ranking Incubus is possible.</p>
+<p>Can manipulate dreams and gains the special stat 'Dream'.</p>
+<p>All stats increase by 2 when transformed into succubus form. Charm, Appearance, and Dream stats increase by an additional 1.</p>
+<p>◆King of Projectiles [Epic Trait]: The ability for all projectile skills and weapon skills is greatly increased. Gains a bonus to accuracy, and if hit, gains a bonus to critical hit chance.</p>
+<p>◆Sense Manipulation [Unique Trait]: The efficiency of the Nerve and Concentration stats increases, and the stats increase by 2. Senses become very sensitive. Can find the opponent's weaknesses. Can manipulate the senses of those under one's control.</p>
+<p>◆Succubus Eyes [Unique Trait]: Eyesight improves. Can see the dreams of sleeping opponents. Can discern the opponent through dreams.</p>
+<p>◆Dream Eater [Unique Legacy Trait]: The maximum Dream stat increases by 2, and the succubus instinct can be suppressed by eating the dreams of sleeping humans within a certain range, increasing experience and the special stat Dream. Can eat dreams within 1KM per 1 Dream stat. Can heal wounds by eating dreams.</p>
+<p>◆Dream Library [Legacy Trait]: Creates a dream library in the mindscape. Stores information obtained by eating dreams in the dream library. Can always retreat into the mindscape to obtain information and skills from the dream library.</p>
+<p>◆Succubus Queen's Palace [Unique Legacy Trait]: The maximum special stat Dream increases by 1, and a dream barrier is created by consuming the special stat Dream. All physical stats increase by 4 within the dream barrier. A barrier of 15M and 15 minutes can be created per 1 Dream. Everyone within the dream barrier is treated as if they are dreaming, even when awake.</p>
+<p>What is this? Where did Yukiko go, and why is the Demon King here? As the succubus's flesh fully awakened, the most crucial trait, the succubus's flesh, also changed from Legendary+ to Legendary++, and most of the other traits and skills changed. (The only skill that remained the same was cooking.) I've seen some traits change quite a bit, but this is the first time I've seen almost all of them change.</p>
+<p>Also, she built a shooting range next to her house before I left, and she must have been shooting a lot because the level of the skill that changed from gun shooting to projectile manipulation was a whopping 16. At this rate, I think her shooting skills are better than most PMC snipers.</p>
+<p>And just 3 weeks ago, her level was 12 or 13, but now it's 17... She must have leveled up like crazy because of the Dream Eater trait. Is there even such a broken trait...? I'm at this level even after doing piston exercises until my back breaks... Should I go around doing things like Yakusa exterminations on the weekends...?</p>
+<p>Still, it's subtly fortunate that, looking at her traits, Yukiko seems to have stronger dream-eating traits than lust-demon traits, even though she's a succubus. If she had evolved into a lust demon, she might have been fucking any man like Reverse Ryuta, so it's fortunate that she went the dream-eating route. It's not something I should say, given that I sleep around with any woman, but I still wanted my woman to only look at me.</p>
+<p>"How is it? Have I changed a lot?"</p>
+<p>Yukiko, who roughly knows about the abilities of the glasses from the ruins, asked me with a subtly expectant face.</p>
+<p>"Yes, you've changed a lot. Do you know that you've become incredibly strong, Yukiko-ssi?"</p>
+<p>"Hoho! Strong? I'm just the director of the Human Resources Development Center? I do have a hobby of shooting, though..."</p>
+<p>It's even scarier that she's not aware that she's strong. Well, given her personality and lack of combat experience, it seems better for her to just stick to her main job like now rather than relying on her abilities to fight. I didn't want her to get hurt fighting for no reason.</p>
+<p>"Even if you get stronger, don't think about fighting. I'll protect you, Yukiko-ssi."</p>
+<p>"Okay, you have to come save me like a prince whenever I'm in danger?"</p>
+<p>Yukiko, who was sitting on the bed, smiles brightly at my words. I've seen all her stats, and now that the shock of seeing Yukiko's shocking status window is fading, Yukiko's outfit comes into view.</p>
+<p>Today, she was wearing stockings that emphasized vertical lines and a light pink, form-fitting dress with straps on the shoulders. Of course, it was incredibly sexy, as much as Yukiko was wearing it.</p>
+<p>"Of course. If Yukiko is in danger, I'll go save you anywhere."</p>
+<p>"Ehehe... Come here♥"</p>
+<p>Yukiko, pleased with my answer, spreads her arms out to me. I threw down the glasses from the ruins and went to Yukiko, hugging her as she was. Yukiko's breasts, which seemed to have the most perfect feeling somewhere between fluffy and bouncy, were very pleasing.</p>
+<p>A hug that feels so good that I get hard right away... Is it because she's a succubus? Or is it because my body is reacting on its own after smelling Yukiko's scent, which I've been mixing with for so long?</p>
+<p>"Hehehe... What's this hard thing touching my stomach?"</p>
+<p>"Guess."</p>
+<p>When Yukiko asked about my dick, which was erect and pressing against her stomach, I pretended not to know and told her to guess what it was. Yukiko smiled like a little devil and opened her mouth again.</p>
+<p>"Hmm...♥ Wait, I'll definitely guess it."</p>
+<p>With a smile that contained both playfulness and sexiness, Yukiko moved her pelvis slightly while hugging me. Then, my erect dick rubbed against Yukiko's abdomen, bringing a considerable amount of pleasure.</p>
+<p>"Eueuheung, what is this long, thick, and hard thing...?"</p>
+<p>As expected of a succubus, I felt an incredible amount of pleasure just from hugging and rubbing my body. I thought I might cum in my clothes like this, so I pushed Yukiko away slightly and opened my mouth.</p>
+<p>"Can you guess what it is if I show you?"</p>
+<p>"If I can't tell even after seeing it, I'll have to taste it♥"</p>
+<p>Yukiko looked at me with lustful eyes, licking her lips.</p>
+<p>----</p>
+<p>Stripe Stocking B-cut</p>
+<p>I was worried about two drawing styles, but I went with the one above, kekeke</p>

@@ -5,70 +5,81 @@ weight = 1063
 chapter = 1063
 +++
 
-<p>-Changse Hon-don-ryu (創世混沌流: Creation Chaos Style) Changseong (創星: Creation Star).</p>
-<p>I immediately used Changseong, the linked technique of Paseong. I immediately struck Behemoth's Solar Plexus, and I definitely felt a stronger rebound force than when I had just used Paseong. His defense had immediately risen due to the damage he received from Paseong.</p>
-<p>"Kuh-heo-eo! You can't defeat me with just this!!"</p>
-<p>Seeing Behemoth let out a painful Scream, it seemed I was inflicting damage. As if he wouldn't just keep taking hits, Behemoth approached me further, trying to grab me.</p>
-<p>Behemoth hadn't learned high-grade Martial Arts like Shinkai Yatsude or Changse Hon-don-ryu, but he had mastered various modern Martial Arts such as boxing, Krav Maga, and Jiu-Jitsu, and created and used a Martial Art adapted to his powerful Strength.</p>
-<p>It was a linear and simple Martial Art that utilized Strength, but it had excellent Compatibility with Behemoth, who had accumulated enough Buffs, making it quite threatening. Even in game communities, users who had analyzed the Data sometimes posted complaints, grumbling about why a Fist Technique of such a low grade was so painful.</p>
-<p>-Behemoth Jagi-ryu (Behemoth Self-Style) Beast's Mace.</p>
-<p>Behemoth raised his Fist and brought it down on my Head. Now almost 3 meters in Size, Behemoth's opponent was so much smaller than him that most of his Hand attacks inevitably became downward strikes. Because the Size difference with his opponent was so vast, he couldn't use general Martial Arts.</p>
-<p>Even I, with a Height of over 190 cm, felt quite burdened as Behemoth grew so large. But I was waiting for Behemoth to strike down for one particular Technique.</p>
-<p>-Changse Hon-don-ryu (Creation Chaos Style) Jimaekbaldo (Earth Vein Draw).</p>
-<p>A leg technique (脚法) that used my own strength and even the power of the earth, raising my leg as if performing a draw-slash. It was meant to strike Behemoth's neck with Jimaekbaldo.</p>
-<p>Kwaaaang!</p>
-<p>With a tremendous roar, I used Jimaekbaldo's linked technique without looking at the Result.</p>
-<p>-Changse Hon-don-ryu (Creation Chaos Style) Gakdochamsu (Leg Blade Decapitation).</p>
-<p>It was a Leg Technique that brought the raised Leg from Jimaekbaldo down from top to bottom, as if striking with a Sword. Through the powerful action of Changse Hon-don-gi, it was a Technique that could inflict Slash attack damage as if cutting an opponent, true to its name, Decapitation.</p>
-<p>Chwaaaah!</p>
-<p>"Kuaaaah!"</p>
-<p>Along with Behemoth's Scream, his special T-shirt was torn apart. Because Behemoth's Body Size fluctuated, he was wearing clothes made of special fibers that contracted and expanded well. Although it was clothing with considerable Defense, I had instantly cut through it.</p>
-<p>However, on Behemoth's Upper Body, revealed as his clothes tore, only a reddish tint remained. A red trace, as if he had been struck hard with a switch. It was clearly painful, but not a significant harm; such a trace remained.</p>
-<p>"...!"</p>
-<p>In truth, I was quite flustered. Even though I had devised a strategy to win by accumulating small amounts of damage, the fact that a critical blow, aimed at a specific pattern of the opponent, failed to inflict significant harm, shook me mentally.</p>
-<p>"Keu-heu-heu! That was quite a critical Attack, so you must be flustered that I endured it."</p>
-<p>Behemoth, who must have often experienced such situations, quickly noticed my fluster. His Attitude was as if he possessed a Sense of Smell that could detect an opponent's Will to fight, Despair, and Fear.</p>
-<p>"Everyone like you, thinking they had the advantage, made a fuss and then died in Despair. Now it's your Turn to suffer!"</p>
-<p>Behemoth, with his even larger and faster Body, swung his Leg at me in a similar fashion. No, rather than swinging, it was a more accurate Depiction to say he thrust with his Curling Toes.</p>
-<p>-Behemoth Jagi-ryu (Behemoth Self-Style) Beast's Horn.</p>
-<p>Kwaaaah!</p>
-<p>Perhaps due to his Trait, or because he was wearing Armor, it wasn't particularly painful, but instead, my sturdy Armor also made a Kkwadeuk sound and a large crack appeared on my Abdomen. But I didn't show my Pain and continued to charge at Behemoth. During this Time, I had to continuously accumulate damage.</p>
-<p>Kwa-kwa-kwa!</p>
-<p>Melee Combat continued, with both of us exchanging Fists and kicks. Behemoth didn't refuse any of my attacks, taking them all, because each of my Fists and kicks was a Buff for him, but I dodged Behemoth's attacks while delivering my own.</p>
-<p>In the aftermath of our battle, the western part of the Fragment of All-Knowledge scramble's center was being completely devastated.</p>
-<p>In fact, the entirety of New Rochelle was being laid waste as if it had suffered an air raid in a War, but the northern area where the scramble was taking place and the western area where Behemoth and I were fighting seemed to be far more severely affected.</p>
-<p>As the battle continued, Behemoth grew progressively faster and stronger. Now, he wasn't even letting out a single moan of Pain from my Changse Hon-don-ryu Martial Arts Form, and a sense of unease slowly began to grow in my Mind.</p>
-<p>In fact, even in the game, facing Behemoth with Fist Techniques was one of the most foolish Acts. This was because strike damage couldn't inflict significant harm, and it was difficult to break through Behemoth's progressively strengthening Defense.</p>
-<p>Guns or Swords had better Compatibility, and the proper strategy was to attack Behemoth, who lacked recovery Abilities, before his Buffs accumulated, causing bleeding to inflict continuous damage.</p>
-<p>Currently, I hadn't even known Behemoth would suddenly appear, and since he had already accumulated a certain amount of Buffs upon his appearance, the Situation had become even more challenging.</p>
-<p>Kwaang! Kwaaaang!</p>
-<p>As Buffs accumulated and his speed continuously increased, Behemoth's attacks slowly began to hit me directly. Cracks continuously appeared on my Armor, and damage was accumulating.</p>
-<p>As the battle continued, I couldn't shake off the Despair and Doubt that kept rising in my Mind. No matter that Behemoth was a mid-Boss level, I was the Man who had defeated the Outer God, Endless Despair. I couldn't believe I was being defeated like this.</p>
-<p>I nearly collapsed several Times, but my Will, which had surpassed the Limit of 20, prevented me from falling.</p>
-<p>However, my Will couldn't block Behemoth's attacks.</p>
-<p>-Behemoth Jagi-ryu (Behemoth Self-Style) Beast's Horn.</p>
-<p>Kkwadeudeuk!</p>
-<p>With a kick that felt like it was piercing my Abdomen, just like before, this Time the Abdomen part of my Armor was completely shattered. I could restore it with Changse Hon-don-gi, but that was impossible during combat.</p>
-<p>"Keu-heo-eo-eok!"</p>
-<p>Being pushed back forcefully, I involuntarily let out a moan of Pain. As I was pushed back, I thought, 'I couldn't break that Guy's Armor, but that Guy broke mine.'</p>
-<p>Eung...?! Armor?!</p>
-<p>From my last thought, some Inspiration came to me. No, it wasn't quite 'came to me' yet; it felt more like the tickling sensation in one's Nose just before a sneeze. It was a Feeling as if a Breakthrough was about to emerge, yet still elusive.</p>
-<p>Taang! Taang!</p>
-<p>Because snipes continuously came at Behemoth if he was even slightly separated from me, Behemoth couldn't just watch me get pushed back by his kick and approached me again. Even though he wouldn't take direct Impact from snipes now that he had accumulated so many Buffs, the continuous Dibeopeu seemed to bother him.</p>
-<p>Indeed, his Body was seen deflecting Bullets like very sturdy Armor. Armor...?! Yes, that's it.</p>
-<p>The elusive edge of Inspiration, which had seemed just out of reach, was now grasped in my Hand. Ultimately, Behemoth's increasing Strength and Defense were due to the energy accumulated within his Body from impacts.</p>
-<p>Energy accumulating in all his Muscles would strengthen his power, and energy accumulating in his Skin layer would strengthen his Defense, that must be it. His Body Size also grew as energy accumulated in his Body.</p>
-<p>Thinking about it, it was a mechanism that made it hard to call him entirely Human. For now, it was a matter of life and death, so I decided to overlook this aspect and move on....</p>
-<p>Ultimately, the Problem for me now wasn't Behemoth's Strength, but the energy acting as Armor, accumulated in his Skin layer like an actual Armor.</p>
-<p>This battle, too, was like the previous one with Sajo; it meant I could achieve Victory if I destroyed Behemoth's invisible Armor.</p>
-<p>As it happened, I had a Technique to shatter Armor, learned from the knack I felt while fighting Sabu.</p>
-<p>Watching Behemoth charge, I seized the Opportunity and extended my Hand.</p>
-<p>-Ryuta-aryu (竜太我流: Ryuta Self-Style) Gappa (甲破: Armor Break).</p>
-<p>I used Gappa, a technique that only destroys the opponent's exterior, the exact opposite of the Inner Heavy Hand Method, which only destroys the opponent's interior.</p>
-<p>My extended Palm adhered to Behemoth's breast, and while the Aura that destroys Armor poured out, Behemoth remained unharmed.</p>
-<p>"Keu-heu-heu! Are you trying to give me Foreplay?!"</p>
-<p>Peo-eok!!</p>
-<p>This Time, his Shoulder Armor burst open. But I didn't give up. Thinking about what had gone wrong, I created distance.</p>
-<p>I could easily discern what the Problem was. It was a matter of grade and purpose of Use. Gappa was a Technique hastily created in a recent battle. It was insufficient to destroy the Defense of Behemoth, who was a mid-Boss level.</p>
-<p>And the biggest Problem was that Gappa was a Technique created to destroy actual physical Armor, not a Technique to destroy an opponent's energy Shield or defense-boosting Buffs accumulated within the Body like Behemoth's. Ultimately, to achieve Victory... I had to create a new Technique to destroy the opponent's Defense.</p>
-<p>Requested by Gojoy-nim, Hanakame's costume using a pumpkin~! Requested by Chomisaemeonji-nim, Demon Liz~! Requested by TheDreaming-nim, Mummy Rinka Sabu~! Requested by Hwanbuljeoldaebulga-nim, Home Ec Teacher's bikini + Witch Hat~! Requested by TheDreaming-nim, Jiangshi cosplay Yang Seol-hui~! Requested by ISaveI-nim, Erotic Nun Nae~! Requested by Hwanbuljeoldaebulga-nim, Lisa's Witch Hat + bikini~! Requested by TheDreaming-nim, Wolf-eared Yuka~! Requested by Gojoy-nim, Tanning Shinoe Misano with red Hair and a Tiger-print bikini in a Warrior costume. Requested by Inoega Doegopeun-nim, Chieri the Writer, Omakase (with cuteness)~! After making it, I wondered if it was more comical than cute? So I made one more haha. Capybara Chieri~!! haha Requested by TheDreaming-nim, Vampire cosplay Kurayamada Kirie~! Except for the first illustration, the requested Sex Shop isn't highlighted much haha. Is it because I added Wine? Requested by Skyperry-nim, Pumpkin Body Painting Witch School Nurse~! I said buttocks wouldn't be possible in the request, but I found a lora and tried making it haha. Finally, requested by Gyoblin (?), Fallen Angel Han Yu-gyeong and~! Angel Taira Yukiko~! Fallen Angel Han Yu-gyeong~! Angel Yukiko~!  Requested by Gojoy-nim, 1. Shinoe Misano taking off Stockings, 2. Shinoe Misano in Underwear. 1. 2. Requested by Chomisaemeonji-nim, 1. Liz washing in the Bathroom, 2. Liz lying prone looking at her phone~! 1. The last one's posture kkeuk kkeuk 2.</p>
+<p>When she first arrived at the hotel and heard her Disciple Taira Ryuta's words that she had to engage in Sexual Intercourse with him for treatment, she thought, 'Is this Disciple insane?'</p>
+<p>But soon, seeing her Disciple's serious Expression, she realized his Words were Sincerity.</p>
+<p>Healing wounds with Sex was something she had never heard of, but listening to her Disciple's Explanation, he said he would treat her with a principle similar to a type of Sexual Act called Bedroom Arts.</p>
+<p>In truth, even after hearing it, she couldn't understand, but Fujigasaki Rinka also knew well that her current Situation was quite serious.</p>
+<p>Because it was her own Body, and with Fujigasaki Rinka's Skill, which had already reached a Realm, she could relatively accurately diagnose her own wounds.</p>
+<p>In her Simsang, there was a large vessel containing the Abyss, and consuming the Abyss meant using the Abyss contained within that vessel.</p>
+<p>Under no circumstances had that vessel ever shrunk, but in the fight with the Outer God-transformed Takakusaki Gengo, when the Abyss was taken from her, a situation occurred where a part of the vessel was torn away along with it.</p>
+<p>The reduction in the total amount of Abyss was serious, but the torn vessel was cracked, and if there wasn't enough rest, she also knew that her Internal Injury would continuously worsen.</p>
+<p>But she couldn't just rest quietly. Because she had found the trace of her Sabu, who had been missing for a long period.</p>
+<p>Even though Fujigasaki Rinka knew it was too much, she headed to the USA to find her Sabu. In truth, there wasn't a big problem in the USA either. Because she could sufficiently fight Back Alley gangsters to an extent that she wouldn't sustain Internal Injury.</p>
+<p>But fighting the Black Sage who kidnapped her Sabu became a big problem. The Black Sage was a powerful Enemy she had never fought before, and if the Black Sage hadn't been blinded by the forbidden book, the Fragment of Omniscience, even she, in her normal state, wouldn't have been able to win.</p>
+<p>Even in that battle, if it hadn't been for her Disciple who burst in at the climax of the battle, she would have died right there by the Black Sage's hand.</p>
+<p>Thinking that, that guy, her Disciple, suddenly felt reliable.</p>
+<p>In her Eyes, that Boy, who was like a child at their first meeting, had somehow, without her realizing it, changed into a reliable and trustworthy Man.</p>
+<p>He had become dependable, such a good Man that even she, his Sabu, felt her heart pound.</p>
+<p>Perhaps that's why she was initially disappointed by Taira Ryuta's Proposal. Because she had misunderstood that he was merely coveting her Body under the pretext of her Sabu's condition.</p>
+<p>But in that Disciple guy's Gaze and Words, there was full of worry for her.</p>
+<p>Of course, behind the worry, an undeniable Expectation for Sexual Act was reflected, but if that hadn't been there, Fujigasaki Rinka would have been very disappointed.</p>
+<p>If he had only had Sex out of worry for his Sabu, it would have meant she had no Charm as a Woman at all.</p>
+<p>She wanted to nod her Head right away, but nodding her Head and spreading her Legs as soon as her Disciple proposed treatment Sex was somehow embarrassing and Embarrassed.</p>
+<p>Fujigasaki Rinka refused treatment Sex and quoted her previous Words that she would do it with the Man who defeated her.</p>
+<p>Saying something she herself couldn't understand, that since Taira Ryuta killed the Black Sage she was fighting, it was no different from winning against her, she permitted Sex with Taira Ryuta.</p>
+<p>Just like that, her Disciple's hand cupped her breast.</p>
+<p>A Man's hand touching her for the first time. She wondered if Sex would feel good, but as her Disciple's hand touched her breast, Fujigasaki Rinka felt as if electricity surged through her.</p>
+<p>Her Sensitive Body, trained to react to any Attack from an opponent, became an enormous weakness for Sex.</p>
+<p>"Haaht...!"</p>
+<p>She was making Embarrassed moaning sounds she didn't even recognize, but Fujigasaki Rinka, caught in the pleasure washing over her like a Wave, didn't even notice the high Voice of an Aroused Woman escaping her lips.</p>
+<p>With the pleasure spreading throughout her entire Body, Fujigasaki Rinka couldn't keep her mind straight. If it weren't for her Mental Power, trained through thousands of battles until now, she would have gone mad long ago.</p>
+<p>"I'm going to put it in now, Sabu...!"</p>
+<p>Along with Taira Ryuta's Words, her Disciple's Large Penis gradually burrowed into her down there. Having pierced through the Hymen that guarded her deepest part, her Disciple's penis had already filled her down there.</p>
+<p>It was a strange Feeling. The sensation of something enormous, not her own, entering her Lower Cauldron-uncomfortable yet pleasurable, forcibly stretching her inside with a pleasure incomparable to before. But Fujigasaki Rinka forcibly sank into her Simsang.</p>
+<p>She was curious if her Disciple's treatment Act was truly healing her Internal Injury.</p>
+<p>Before Fujigasaki Rinka, who had closed her Eyes, her vessel was visible. A vessel cracked and torn at the top. A precarious vessel that seemed like it would shatter into pieces if she pushed herself a little more.</p>
+<p>With her Disciple's Rhythmic Motion, her Disciple's Aura imbued her vessel, and she felt the cracks being mended. Of course, it wasn't an Internal Injury that could be easily healed with a few Piston Motions, but it was important that her Disciple's Words were not a lie.</p>
+<p>Fujigasaki Rinka opened her Eyes again. Having confirmed her Disciple's Sincerity, it was now her turn to enjoy this new Intimate Experience.</p>
+<p>Opening her Eyes, she saw her Disciple's handsome Face. And simultaneously, the pleasure felt in her Lower Cauldron began to wash over her like a Wave.</p>
+<p>"Haaang!!!"</p>
+<p>After I performed insertion, Sabu, who had been closing her Eyes for a moment, opened her Eyes and suddenly began to let out a loud moaning sound.</p>
+<p>Was she closing her Eyes to endure the pain of her Hymen being pierced? Or was she closing her Eyes to get used to my enormous Size? I made a few conjectures, but since I couldn't know without entering Sabu's Head, I decided to focus on the present.</p>
+<p>Sabu's tightly clenching pussy felt incredibly good. It clenched so tightly that it was slightly painful with each moan, but her vaginal fluid sufficiently coated my cock, allowing for smooth Rhythmic Thrusts even when her pussy gripped my cock tightly.</p>
+<p>Sabu, who had closed and then opened her Eyes, as if she had undergone an awakening, abandoned her shy Attitude from moments ago and began to enjoy Sex with me.</p>
+<p>From merely awkwardly receiving, she began to hug me tightly or adjust her waist angle, attempting things even in missionary position, which is difficult for a Woman to initiate.</p>
+<p>As Sabu was the pinnacle of Martial Arts, her Body control could also be said to be the best, so as Sabu adjusted herself even slightly, my movements became more comfortable, and the pleasure felt in my cock also increased.</p>
+<p>"Ha-eung, Heueuuhang...! This, Heueung! This♥ how is it...?"</p>
+<p>"Kueu, it's good, Keut...! Sabu!"</p>
+<p>Sabu's Appearance, moving slightly and observing my Reaction, was like engaging in a reconnaissance battle. To treat Sex like a battle, it was truly Sabu-like.</p>
+<p>Of course, I didn't think badly of Woman-led Sex and enjoyed it, but now was different. Giving the Initiative to a Virgin was a matter of wounded Pride for me, a Baekjeonnoljang of Sex, so I decided to push Sabu a little harder.</p>
+<p>I grabbed one of Sabu's wrists and pulled her, and thrust my waist even more roughly.</p>
+<p>"Haaang, Heueung...! If you, Haaht! do it so roughlyyy...♡"</p>
+<p>Sabu began to raise her moans at my sudden Attack. Along with the smacking sounds of flesh colliding, Sabu's moaning sounds blended together, creating a sound like Music.</p>
+<p>After having Sex while holding Sabu's wrist for a while, I released her wrist and grabbed Sabu's breasts with both hands, thrusting my waist. As I stimulated her nipples and pussy simultaneously, Sabu lost her mind, reveling in the pleasure.</p>
+<p>"Heueuuhut! It feels, Eueuheung...! My Lower Cauldron, Hyaeuhut! is throbbinggg...! It feels good, Haaang♥"</p>
+<p>Of course, as I moved roughly and quickly, it was natural for me to also be captivated by the intensified pleasure.</p>
+<p>Along with the Forbidden Pleasure of doing it with Sabu, Sabu's top-tier pussy, which clenched incredibly tightly, and Sabu's moans stimulating my Sensitive Ear, various elements combined, and the feeling of ejaculation rapidly approached.</p>
+<p>Normally, I would have taken a breath by slowing the Tempo or changing the sexual position here, but instead, I began to accelerate my Hip Movements even more.</p>
+<p>Because the primary Goal was Sabu's Internal Injury treatment, it was to perform Creampie, which has the strongest Effect from the Sacred Pillar.</p>
+<p>Cheolsseok! Cheolsseok! Cheolsseok! Cheolsseok!</p>
+<p>"Heuaaang! If you, Haaht! thrust so hard, Heueung...! Haaht! I'll go crazy, Eungheut♥ I'll be ruineddd!!"</p>
+<p>As flesh collided strongly, vaginal fluid, Sweat, and saliva splattered everywhere. The feeling of ejaculation surged, and now I was almost on the verge of Ejaculation.</p>
+<p>"Sabu, I'm going to cum inside...!"</p>
+<p>"Haaht! Insideee...! Heueuuhang♥ Nooo! Haaht!"</p>
+<p>It was Sabu, saying no while spreading her Legs even wider. Was she telling me to do it? Or not to? Of course, Creampie was essential for Sabu's treatment, so I would do it no matter how much Sabu refused.</p>
+<p>I released the hand that was touching her breast and this time, grabbed Sabu's waist. Then, pulling Sabu's Body closer, I pressed my cock as tightly as possible. It was to Ejaculate into Sabu's deepest part.</p>
+<p>"I'm cumming! Sabu, I'm cumming inside...!"</p>
+<p>Byuut! Byuuut! Byuuut!!</p>
+<p>"Haaaaaang!!! Hot, Heueut! cum...! Haaht! fill me up insideee♥"</p>
+<p>As I began to Ejaculate, Sabu also reached Climax simultaneously. She felt so good that she stuck out her tongue and rolled her Eyes back, her Body trembling, truly feeling the Climax.</p>
+<p>Sex B-cut~!</p>
+<p>Young Ryuta, as Sabu imagined him hehe</p>
+<p>He was a handsome Little One even when he was young hehe</p>
+<p>Bonus</p>
+<p>Ryuta around 9th grade to 10th grade~!</p>
+<p>MidNightSKY-nim requested Rinka-sabu whose Face turned red thinking of her Disciple, and Ryuta surprised when the river split from a punch~!</p>
+<p>Sabu~!</p>
+<p>Ryuta~!</p>
+<p>Gojoy-nim requested Chapter 42, Simyeonui ttal's first Appearance. Han Yu-gyeong secretly watching the Situation</p>
+<p>Simyeonui ttal.</p>
+<p>Han Yu-gyeong~!</p>

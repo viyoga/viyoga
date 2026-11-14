@@ -5,81 +5,85 @@ weight = 891
 chapter = 891
 +++
 
-<p>"As I told you before, please take good care of my Daughter, Teacher-nim."</p>
-<p>"Please take good care of her."</p>
-<p>Sakagami Ginshiro and Sakagami Shiine, Sakagami Rena's Parents, approached me, asking me to take good care of their Daughter, and gave me a luxury specialty gift set from the Sakagami Family's main family in northern Kyoto, then left with Sakagami Rena. Sakagami Rena mouthed 'See you soon, Liege/Master' to me, then went to have lunch with her Parents.</p>
-<p>"It's a pleasure to meet you, Teacher-nim."</p>
-<p>"Hello, Father-nim."</p>
-<p>Next, I met and greeted Shido Atashi, Shido Tsubaki's father, who serves as the Political Department Editing Director-General of Shido Newspaper Company, and also received a gift set. For reference, the gift set was fruit.</p>
-<p>Having met the heads of various families until now, Shido Atashi, who wasn't a company representative or a family head, felt a little humble, but Shido Newspaper Company was the third-largest newspaper company after Minamoto and Taira, and even owned a terrestrial national broadcasting company, so the Political Department Editing Director-General of Shido Newspaper Company was by no means an opponent to be ignored.</p>
-<p>After exchanging greetings with Shido Atashi, the next person was Kujo Kazuo, who could be called Kujo Kina's Older Brother. In fact, by order, he should have come to me around the same time as Seizawa Eiji, but he had been busy taking Photos of his younger sibling and only just arrived.</p>
-<p>"You introduced my younger sibling to her Sabu, didn't you? Thank you for all the conveniences you've provided."</p>
-<p>Kujo Kazuo greeted me with a relaxed attitude, unlike the other parents I had met so far. Among Japan's top five chaebol groups, Kujo Kazuo was the only designated Successor, while the others had not yet decided theirs.</p>
-<p>Because his position was stable, he didn't have that peculiar distorted feeling characteristic of chaebol successors engaged in succession battles. He was more like a generous and good-natured neighborhood Older Brother.</p>
-<p>"Not at all. It's naturally my job as a Class Teacher."</p>
-<p>"Is that so? Here, take my Business Card. Contact me if you ever have a hard time. Can I take my younger sibling now?"</p>
-<p>In a way, Kujo Kazuo had given the most valuable gift. A Business Card officially given by the legitimate Successor of the Kujo Group was by no means inferior to a mere gift set. Of course, in addition to the Business Card, his secretary separately provided a gift set. For reference, the gift was a luxury cookie set.</p>
-<p>"Teacher~! You worked hard! See you next time!"</p>
-<p>Kujo Kina, leaving with Kujo Kazuo, waved her Hand at me and shouted. I also waved back at Kujo Kina.</p>
-<p>Next to arrive was Urabe Konoka's nominal adoptive father, and after him, Naruse Shiyo's father, Naruse Koyou. Naruse Koyou, like Sakagami Rena's father Sakagami Ginshiro, greeted me, asking me to take good care of his Daughter, and left with Naruse Shiyo, while I only exchanged perfunctory greetings with Urabe Konoka's adoptive father.</p>
-<p>The next person to arrive was Alik's adoptive mother, Egawa Shiho.</p>
-<p>"Thank you for introducing me to such a cute Daughter, Teacher-nim."</p>
-<p>"Thank you for cherishing Alik, I truly appreciate it."</p>
-<p>Egawa Shiho cherished Alik as if she were her own biological Daughter, so I also thanked her respectfully. After exchanging greetings, Egawa Shiho took Alik to eat. I felt a little sorry that I wouldn't see Alik often if she followed me now. For reference, she said she would send the gift later through Alik.</p>
-<p>"Teacher-nim, thank you once again...!"</p>
-<p>Konoe Minako, Konoe Akina's Mother, held my Hand and repeatedly thanked me. Konoe Akina's Mother had every Reason to be grateful to me. I had saved Konoe Akina from being sold as a slave, and thanks to several people I introduced, Konoe Akina had become the head of the Konoe Family.</p>
-<p>Next, Uenozono Karen's Parents came to greet me, and they looked quite tired, perhaps because many people had come to ask for their Daughter's autograph due to her popularity.</p>
-<p>After receiving greetings from the parents, Daigo Terue, who arrived the latest, also thanked me for saving her Daughter, who had been a hikikomori.</p>
-<p>"Teacher-nim~! I'll see you again with Mom!"</p>
-<p>"Alright, have a delicious lunch."</p>
-<p>After greeting Oofuchi Erika, I approached Otagi Yuka, who was standing alone.</p>
-<p>"Today, I'll be your dad."</p>
-<p>The Otagi Family was the only one whose parents did not participate in St. Francis Girls' Academy's Graduation ceremony and thus did not greet me. So, I playfully offered to be Otagi Yuka's dad.</p>
-<p>"Ugh, Teacher-ssi as my dad? Disgusting. I'm fine, so go take Photos with the fans waiting over there."</p>
-<p>Otagi Yuka pretended to vomit, as if saying it was disgusting, then pointed to one side. On that side, the Female Students who had taken my Korean language class and the graduating students who had belatedly become my fans (?) were waiting for me with sparkling gazes.</p>
-<p>Well, broadly speaking, they could also be called my Students, so taking Photos should be fine. Otagi Yuka would be with Saionji Diana, so she wouldn't be lonely, and I thought I might as well go for a moment.</p>
-<p>"Kyaaah, Teacher-nim~!"</p>
-<p>"Please take a Photo with us!"</p>
-<p>After taking Photos with the Students, who were practically screaming because it was the last day, I returned to where Otagi Yuka and Saionji Diana were waiting.</p>
-<p>"Let's eat something delicious too."</p>
-<p>"Today, the graduating families must have reserved all the good restaurants near Miyashi. Where are we going to eat? Are we ordering in?"</p>
-<p>At my words, Otagi Yuka replied with a slightly grumbling voice. Her attitude showed she was pretending to be fine, but she still seemed a little disappointed that her parents hadn't come.</p>
-<p>"No, I anticipated this and made a Reservation in advance."</p>
-<p>"Oh, really?"</p>
-<p>I had expected that Otagi Yuka and a few other students' parents wouldn't come, so I also reserved a restaurant for the Students. However, the place I reserved was a place with a bad history with me.</p>
-<p>"Here."</p>
-<p>When I showed the location on my phone, Otagi Yuka and Saionji Diana looked at me dumbfounded.</p>
-<p>"Teacher-ssi, don't you remember getting kidnapped after going here?"</p>
-<p>"That's right, why are we coming here?"</p>
-<p>The place I chose was that very Japanese restaurant where I had gone with Taira Kanna, been given an Anesthetic, and kidnapped. Seeing that Taira Kanna had used it as the location for my kidnapping, it seemed to be connected to the Taira side, so I thought there was no need to worry anymore. Besides, the taste was good when I ate there before.</p>
-<p>"It was so delicious I fainted."</p>
-<p>"You really fainted from the drug!!"</p>
-<p>Seeing her immediately tackle my playful jest, she's full of energy. No need to comfort her further.</p>
-<p>"It has delicious food, and I'm meeting old man Danjo there.... So we have to go."</p>
-<p>"Ah.... Is that how it is?"</p>
-<p>"If that's the case, it can't be helped."</p>
-<p>Of course, I didn't make the Reservation without any thought. I was meeting Taira Danjo to finalize the details of my Mission. Since it was a restaurant similar to a Taira safe house, I could meet him in secret, so I decided to have a meal while I was there anyway and made the Reservation.</p>
-<p>"Then, let's go to the Parking Lot."</p>
-<p>"Okay. Thank you, Teacher-ssi."</p>
-<p>"Let's go quickly, Teacher-nim~!"</p>
-<p>To prevent other Students or anyone from recognizing my vehicle, the car Taira Kanna had prepared was in the staff Parking Lot. The Mission was practically over, but I still had to consider security until the very end.</p>
-<p>Since most of the Students and faculty had already left school by the time I finished taking Photos and talking with the Students, we carefully went to the staff Parking Lot, got into the vehicle Taira Kanna had prepared, and headed to that restaurant from before.</p>
-<p>Seiwa Rieko entered St. Francis Girls' Academy wearing her School Uniform, which she hadn't yet discarded. Even if security was tightened due to the high-ranking Japanese parents attending the Graduation ceremony, no one could stop Seiwa Rieko, a former St. Francis Girls' Academy student with a genuine Student ID.</p>
-<p>Seiwa Rieko entered a building with a good view of the main athletic field and sat by the window. And she looked at only one place. It was the spot where the special class, which she had been a part of a few months ago, was lined up. Seiwa Rieko herself didn't know why she had come here. She just seemed curious about what kind of expressions her former Friends would make at the Graduation ceremony.</p>
-<p>"That person is the new Class Teacher...."</p>
-<p>Even from a distance, he was a Teacher with such outstanding appearance that she thought he was handsome. He was a man with an appearance that couldn't be compared to the former Class Teacher, who was like a pig, and he even seemed to have a good personality.</p>
-<p>Minamoto Lisa, seemingly the class president, stood at the very front, and Shido Tsubaki, whom Seiwa Rieko was scheduled to meet tomorrow, stood right behind her, seemingly the vice class president.</p>
-<p>The new Class Teacher, Minamoto Lisa, and Shido Tsubaki chatted and laughed even during the Graduation ceremony. After the Graduation ceremony, they were also seen happily conversing with each other and gathering together to take a group photo to commemorate their Graduation.</p>
-<p>They looked incredibly happy. And her own miserable appearance was reflected in the window glass.</p>
-<p>Miserable Seiwa Rieko, hiding and only able to watch her Friends' Graduation, a defiled existence who had bad things done to her by a dirty man, no longer easily valued by a prestigious family.</p>
-<p>As her own reflection, contrasting with the clear weather, appeared in the window glass, she no longer wanted to be there. Suddenly, resentment towards Shido Tsubaki, whom she was scheduled to meet tomorrow, began to overflow.</p>
-<p>"Why are you the only one happy? While I'm so miserable...."</p>
-<p>Mumbling softly, Seiwa Rieko stood up from her seat. Then she left the building and mixed with the students leaving school, exiting St. Francis Girls' Academy.</p>
-<p>Graduation commemorative peace sign photo~!</p>
-<p>While writing, I only managed to make Yuka, Alik, and Shiyo hehe. By the way, Alik is cute hehe.</p>
-<p>Seiwa Rieko B-cut</p>
-<p>I wanted to make her a somewhat decadent character hehe.</p>
-<p>TheDreaming-nim requested: 1. Seiwa Rieko covering her groin at the Airport. 2. Seiwa Rieko in a similar situation, with her eyes closed, feeling resigned.</p>
+<p>Kinui Tachio, called Yoda Harabeoji by Taira Ryuta, was an elder of the Gwonmaeng (Fist Alliance), Anyaji's biggest Enemy.</p>
+<p>Kinui Tachio himself knew well that he couldn't defeat Hojo Otoji, Anyaji's second-in-command, with his own power alone. Therefore, he secretly summoned Masters of the Gwonmaeng to Miyashi.</p>
+<p>Athena Mannerheim had informed him about Anyaji's spies within the Gwonmaeng, so without being noticed by Anyaji, he was able to infiltrate many Masters into Miyashi.</p>
+<p>For reference, they haven't dealt with the spies yet, because if they were to eliminate the spies and lose Contact, it would be revealed that information had leaked, which could put Athena Mannerheim, their informant, in Danger.</p>
+<p>Upon hearing that Kinui Tachio would receive Help from the Gwonmaeng, Taira Ryuta and his intelligence team, Joseodang, were no longer greatly worried. No matter how infamous Anyaji was as an organization, the mainstream of the Japanese martial arts world was the Gwonmaeng.</p>
+<p>Unlike the Main of Anyaji, they couldn't use wicked Sorcery or Jusul, but there were martial artists like a galaxy of stars gathered from all over Japan.</p>
+<p>Taira Ryuta and the leaders of Joseodang thought that no matter if their Opponent was Hojo Otoji, Anyaji's second-in-command, he wouldn't be able to defeat the thick layer of Gwonmaeng Masters. Since the confirmed number of Gwonmaeng participants on their side was almost thirty, they weren't greatly worried.</p>
+<p>Tatatak!</p>
+<p>The sound of keyboards clattering was noisy inside the mobile Joseodang Base, which also served as the general Situation room overseeing this battle, they were assessing the Miyashi battle Situation with cameras pre-attached to the battle locations.</p>
+<p>"Team Leader-nim 1...! An unexpected Situation in this battle!"</p>
+<p>"The Opponent is stronger than expected...!"</p>
+<p>"The Opponent of Group B is showing different Abilities than what we assumed!"</p>
+<p>Asada Ei listened to several reports simultaneously and simultaneously checked the installed battle screens at once, making her judgment.</p>
+<p>"No matter if an unexpected Situation arises, proceed as planned. The battle Situation isn't changing."</p>
+<p>"Contact Group C, whose battle has ended, and tell them to Rest for a moment."</p>
+<p>"Don't worry about that side. The 'Predator' has decided to go there."</p>
+<p>As she answered without hesitation and looked at the screen, Asada Ei narrowed her Eyes. It was Group D, Kinui Tachio's group, which was virtually unrelated to Taira Ryuta's side. Of course, Konoe Akina had joined as a helper, but since the Gwonmaeng had agreed to Help, they weren't paying much attention. But the Situation was taking a strange turn.</p>
+<p>"Magnify Group D's screen."</p>
+<p>At Asada Ei's Words, the screen, which had been divided into several views, changed to a single screen showing Kinui Tachio's Group D.</p>
+<p>"Indeed, perhaps because he's Anyaji's second-in-command, he fights better than expected."</p>
+<p>Asada Ei's subordinate opened his mouth with a serious Expression while looking at the screen. However, Asada Ei, as if completely unworried, looked at the screen with indifferent Eyes.</p>
+<p>"I understand bringing so many People to take Revenge on me.... But how did you completely deceive us and gather so many?"</p>
+<p>Hojo Otoji, who had dealt with the seventh Gwonmaeng Fist Technique practitioner, asked Kinui Tachio with a slightly tired Expression. In fact, it was a tremendous feat.</p>
+<p>Although Hojo Otoji had brought one Guardian and several Anyaji martial monks, due to the Attack of the Gwonmaeng elite, with everyone else annihilated except Hojo Otoji, having single-handedly defeated seven elder-level Muin of the Gwonmaeng, the name of Anyaji's second-in-command was not in vain.</p>
+<p>"Well, let's just say everyone gathered like this because of your evil deeds."</p>
+<p>Hojo Otoji, Anyaji's second-in-command, had accumulated many grudges. People who had lost Disciples like Kinui Tachio, or conversely, people who had lost their Sabu, even people who had lost their Senior Brothers, there were many in the Gwonmaeng who wanted to kill Hojo Otoji, and many who hated Anyaji for other reasons, which is why they were able to gather an Attack party numbering in the dozens.</p>
+<p>"Huhu, you know what I mean, yet you answer differently. I'm asking how you gathered like this without our 'suckers' knowing."</p>
+<p>Kinui Tachio did not Answer. He merely took a step forward to kill Hojo Otoji. He thought that such Conversation wouldn't defeat Kinui Tachio, so he intended to say nothing.</p>
+<p>"Well, I have a rough Guess. It seems there are 'suckers' even within our Anyaji."</p>
+<p>"!"</p>
+<p>Hojo Otoji, from the current Situation, realized there was a spy within Anyaji. He even figured out that there was a high-ranking spy who knew the Existence of the 'suckers' Anyaji had planted within the Gwonmaeng, and even their entire list, but what he needed to do first was either defeat the Enemies in front of him or, avoiding them, convey the information he had learned to Anyaji.</p>
+<p>Although the Opponent's numbers were many, Hojo Otoji was confident. No matter how many Opponents there were, he only needed to block Attacks coming from four directions.</p>
+<p>Even if the Opponent's numbers were in the dozens, he only had to face four People. He thought he could sufficiently overcome that much.</p>
+<p>"Until now, I've been at Leisure, but now that I have important information to convey, come at me all at once."</p>
+<p>"!"</p>
+<p>At Hojo Otoji's arrogant Words, everyone's Eyes filled with murderous Killing Intent. And shouting, they swarmed Hojo Otoji like a Wave.</p>
+<p>Dozens of rushing Arms and Legs, Hojo Otoji fended them off one by one in a trance. And if he had the Leisure, he thrust a hand Sword into a fatal spot, attacking the Opponent's vital points.</p>
+<p>Just like a Machine, as he defended and attacked, reducing the Opponent's numbers, a different kind of Attack came. But by the time he felt it, it was already too late.</p>
+<p>'Jusul?!'</p>
+<p>It's unavoidable! Hojo Otoji thought, feeling the intangible Attack. In that Instant, Hojo Otoji's Body stiffened. In Hojo Otoji's Eyes, Kinui Tachio's Hand was visible.</p>
+<p>'He was aiming for this Situation...!'</p>
+<p>If he had shown this Jusul from the beginning, Hojo Otoji would have fled. If it were him, who knew countless Jusul, at the start of the battle when his stamina was highest, he would have been able to escape using Jusul.</p>
+<p>But the invisible Enemy waited for Hojo Otoji to tire. Even as the Gwonmaeng elders fell by his Hand, as if not caring at all, like a patient Hunter, he waited for him to tire.</p>
+<p>Hojo Otoji looked at the Place from which the Jusul seemed to have been fired. It was a young Woman who looked like a fresh University Student. From her spectacled Eyes, scattering red Light, she was looking at him.</p>
+<p>"Maan...?"</p>
+<p>Hojo Otoji's muttering did not reach the Woman scattering the Maan's Gaze. It merely scattered into the air. What Answered Hojo Otoji's Words was the Fist Technique of Kinui Tachio, famous for his 'Killing Fist'.</p>
+<p>-Pahyeong-ryu (破形流: Form-Shattering Style) Paseongchu (破城椎: Castle-Shattering Drill).</p>
+<p>By the Maan of the suddenly appearing Woman, Hojo Otoji's petrified Abdomen was destroyed, and Kinui Tachio's fist plunged in. And Kinui Tachio's penetrating Gi exploded inside Hojo Otoji.</p>
+<p>Kwakwakwakwang!</p>
+<p>Hojo Otoji's Torso burst open, signaling the end of this fight. Kinui Tachio, with a cold Gaze, approached Hojo Otoji's tattered Corpse.</p>
+<p>"With this, let the grudge for my Disciple be forgotten. May you cleanse your sins and attain Nirvana."</p>
+<p>Kinui Tachio decided to end the grudge with this, but the dozen or so surviving Gwonmaeng elders didn't seem to agree. Each of them spat on Hojo Otoji's Corpse or trampled it, defiling the Corpse.</p>
+<p>"You've worked hard."</p>
+<p>Kinui Tachio said, looking at his two Disciples, Kujo Kina and Nakasone Rishin, who were waiting for him.</p>
+<p>"I don't know if I should call this... a celebration, but since Sabu's grudge has been avenged, it must be a good thing."</p>
+<p>"Master-nim, you are the one who truly worked hard."</p>
+<p>Kujo Kina and Nakasone Rishin also had fought quite fiercely against the Anyaji martial monks, so their Bodies were wounded in various Places. But perhaps because they had experienced Actual combat and achieved Victory, they felt as if they had grown.</p>
+<p>"First, after finishing the Situation Report, we'll have to Attack other Places. Can you handle the next battle too?"</p>
+<p>Since the intention was to completely finish Anyaji today, the Gwonmaeng People couldn't just stand by after avenging their grudges. It couldn't end with just one fight. They had to take the next action.</p>
+<p>"While you were facing Hojo Otoji, we were Resting, weren't we? Just say the Words anytime, Sabu!"</p>
+<p>"I also don't think my Revenge is over yet."</p>
+<p>Kujo Kina showed her biceps, saying she was fine, and Nakasone Rishin also had an Attitude of wanting to fight more. Kinui Tachio, seeing the two of them, made a satisfied Expression and bowed his Head to Konoe Akina, who was standing nearby.</p>
+<p>"Thank you. Konoe-dangju! If it weren't for Konoe-dangju, I don't know how this fight would have turned out."</p>
+<p>"Even if I weren't here, you would have won in the end."</p>
+<p>Kinui Tachio politely greeted Konoe Akina, who was younger than him. This was because she had played a crucial role in this battle, and also because she was the Clan Head representing the prestigious Konoe Family, not just an individual.</p>
+<p>Taira Ryuta's inclusion of Konoe Akina in Kinui Tachio's group was considerable support. In a battle where an Instant could decide the Match, a being who could bind an Opponent with just a Gaze could change the Battle Situation.</p>
+<p>Konoe Akina possessed a Maan that could even temporarily stop an Incarnation of an Outer God, and having even obtained equipment called a 'Gaze Amplifier' from Taira Ryuta, she could stop Hojo Otoji without difficulty.</p>
+<p>"First, I will make my Report, and then formally express my gratitude."</p>
+<p>Kinui Tachio picked up the Phone Call and called the general Situation room overseeing this battle.</p>
+<p>Requested by DoubleBarrelShotgun-nim: Korean School Uniform Yukiko~! Since there were no specific instructions, I made it in her usual version, not Succubus Mode hehe.</p>
+<p>On the rooftop hehe.</p>
+<p>At the school gate hehe.</p>
+<p>On the playground hehe.</p>
+<p>Actually, Korean School Uniforms aren't something that's been Learned or has a LORA, so I tried making them directly with prompts, and it was quite fun hehehe.</p>
+<p>Requested by Gojoy-nim: Taira Kokoro's casual attire and underwear attire~!</p>
+<p>Kkiyot~!</p>
+<p>Underwear~!</p>
+<p>Requested by TheDreaming-nim: Jung Darim in a greenhouse 1. Wrapped in tentacles, covering her groin~! 2. Wrapped in tentacles, whimpering~!</p>
 <p>1.</p>
 <p>2.</p>
-<p>Actually, I had already made the requested illustrations but waited until Seiwa Rieko's appearance hehe.</p>
+<p>The writer's Situation...!</p>
+<p>It seems about 4 Tera can be saved? It's taking an awfully long time ㅠㅠ.</p>

@@ -5,84 +5,79 @@ weight = 745
 chapter = 745
 +++
 
-<p>-My partner.</p>
-<p>The suddenly appearing Simyeonui ttal smiled at me and called me. I was also quite happy to see Simyeonui ttal after a long time. It had been quite a while since I had seen her true form like this, other than when she was possessing Urabe Konoka.</p>
-<p>"Ah... I didn't expect you to show up so suddenly."</p>
-<p>-I'm not interested in human holidays, but you came to see me to commemorate that holiday, so I had to see my partner. I wore an outfit similar to your group's.</p>
-<p>Certainly, Simyeonui ttal was wearing a furisode with a fur collar over it, and a short cape that came down to her waist. It wasn't a typical shape, but a furisode with a unique pattern, and that slightly bizarre appearance suited Simyeonui ttal well.</p>
-<p>"Pretty."</p>
-<p>-Uhehehe... If you think I'm beautiful, give me a hug.</p>
-<p>As Simyeonui ttal said, I took a step closer and hugged her tightly. Simyeonui ttal also laughed in my ear with a uhehehe sound and hugged me.</p>
-<p>-Eung... *chu*, *chup*, *jjeuup*...! *Jjeup*♥ *Jjeubeup*...!</p>
-<p>The hug naturally turned into a kiss, and Simyeonui ttal and I passionately shared our tongues. We kissed for a while, then parted our lips and looked at each other.</p>
-<p>-Hehe... I don't have time today, so I'll have to stop here.</p>
-<p>"That's a shame."</p>
-<p>-There will be other opportunities in the future. Today isn't about us getting physically intimate.</p>
-<p>I was quite disappointed by Simyeonui ttal's declaration of stopping, but it seemed like she had something to say to call me like this.</p>
-<p>-I heard from Urabe Konoka that my husband has something to ask me.</p>
-<p>Urabe Konoka said I had something to ask? What was it...? After thinking for a moment, I remembered something.</p>
-<p>Takakusaki Athena.</p>
-<p>The power that silver-haired woman had to scatter the abyss.</p>
-<p>Right, I was curious about that.</p>
-<p>"I have a question. I fought a woman named Takakusaki Athena a while ago..."</p>
-<p>I told Simyeonui ttal about the situation when I was involved with Takakusaki Athena. Simyeonui ttal listened to my story and nodded with a serious expression.</p>
-<p>-The abyss that my father and I have is a tremendous power, but it's not without opposing forces. It seems that the woman named Takakusaki Athena has that opposing power.</p>
-<p>Certainly, just emitting some energy was enough to make me, who hadn't directly fought Takakusaki Athena, cough up blood, so it was a power that could be called an opposing force.</p>
-<p>-There are several candidates, but Takakusaki Athena seems to be wielding the power of an Outer God, the Unextinguishable White Light.</p>
-<p>I don't know what kind of Outer God the Unextinguishable White Light that Simyeonui ttal mentioned is, but the flashing white light that Takakusaki Athena uses seemed to fit the name White Light.</p>
-<p>"Is there no way?"</p>
-<p>-There are several ways. The easiest way is not to deal directly with that woman named Takakusaki Athena. Send a subordinate or become friends with her.</p>
-<p>Is not fighting winning? Of course, I'd be happy if I didn't have to fight, but Anya-ji was an enemy of our Shin Kaiyatsude school. It meant an enemy that I couldn't avoid fighting.</p>
-<p>In particular, Takakusaki Athena, who had the power to oppose the abyss, was clearly the hidden weapon prepared by Anya-ji's leader, Takakusaki Gengo, so she would definitely participate to eliminate me and my master, Fujigasaki Rinka.</p>
-<p>"Looking at the situation, I can't avoid fighting. And even if I don't want to fight, they'll start a fight."</p>
-<p>-If so... there's one more way.</p>
-<p>"What is that one way?"</p>
-<p>As expected, Simyeonui ttal has a plan. I was curious about the method and immediately asked about it.</p>
-<p>-That is to abandon the abyss.</p>
-<p>"Huh?"</p>
-<p>I was momentarily stunned by Simyeonui ttal's answer. The abyss was a major factor that greatly affected my combat power. Of course, I've been using psychokinesis and shadow control recently, but ultimately, the source of my strength was the abyss-based martial art, Shin Kaiyatsude.</p>
-<p>-It's not about abandoning it completely. This is also related to this girl's future.</p>
-<p>Not abandoning it completely? And it's related to Simyeonui ttal's future? What does that have to do with me abandoning the abyss? I didn't understand at all.</p>
-<p>"Could you explain in detail?"</p>
-<p>I asked Simyeonui ttal for a detailed explanation.</p>
-<p>-All of this goes back to when my partner first offered me the body of a god...</p>
-<p>At my request, Simyeonui ttal began to explain. Simyeonui ttal's words brought back my memories. In the past, in Aokigahara, I offered Simyeonui ttal the soul of a unique human who had repeatedly reincarnated with a god named Shirashira.</p>
-<p>-And a few months ago, my partner sent me the body of the Avatar of the Sunken-Root King, and I spent some time absorbing it. And I felt a change. As a result of absorbing the power of several gods, I felt my power gradually moving away from the abyss.</p>
-<p>Ah... I sent several gods as offerings, and it seems that they were mixed with the power that Simyeonui ttal had, and it was becoming a different power. I just sent them thinking it would be helpful, but I didn't expect this result.</p>
-<p>-Because the abyss paints everything black, if I wanted to, I could always return that changing power to the original abyss. But...</p>
-<p>Simyeonui ttal paused for a moment. And with an expression as if she had made up her mind, she opened her mouth again.</p>
-<p>-I didn't want that. I can't be in my father's shadow forever. Eventually, I'm going to break out of the shell of the abyss and gain my own power.</p>
-<p>That meant that Simyeonui ttal refused to be called the "Daughter of the Abyss" anymore. Simyeonui ttal, who wanted to be independent from her father, the abyss, seemed to be trying to abandon the abyss and be reborn as something new.</p>
-<p>After listening to the explanation, I learned that if you are under the abyss, no matter how much the abyss cherishes you, you cannot refuse the abyss's control, and in severe cases, you may be absorbed back into the abyss.</p>
-<p>-Above all, the reason I suggested that my partner abandon the abyss is that the ruler of the abyss is ultimately my father, so he could make the abyss that is full in my partner's body poisonous to my partner at any time. I have prevented my partner's mind or body from changing, but my father's thoughts may be different.</p>
-<p>That's quite a scary thing to say. Simyeonui ttal is not the abyss itself, but ultimately just the daughter of the abyss? If the abyss wants to, I could eventually become a tentacle monster like something out of the Cthulhu mythos.</p>
-<p>-The second reason is that if I change, I won't be able to call my partner, who is centered on the abyss, my partner anymore.</p>
-<p>"Is that so?"</p>
-<p>-I wouldn't be able to meet like this either. The reason my partner and I can meet is because the abyss that my partner has and my abyss resonate. If I become another god, I won't be able to resonate with my partner anymore. The reason why my partner and I don't have enough time to get physically intimate is also because my energy is gradually changing and the resonance is weakening.</p>
-<p>Come to think of it, last time I had sex with Simyeonui ttal for an unknown amount of time even in a very fleeting moment of reality, but considering that she said there was no time to get physically intimate, it seemed that Simyeonui ttal had already decided to change.</p>
-<p>I stood still and thought for a moment. Should I abandon the abyss or maintain it?</p>
-<p>"Then I'll abandon the abyss. Even if I abandon the abyss, you'll change it to another power for me, right?"</p>
-<p>Even if Simyeonui ttal changes into an Outer God with a different power, from what I've heard, it seemed like she would fill my abandoned abyss with her own power. Of course, I don't know what kind of power it will change into yet, but somehow it didn't seem like I would be greatly weakened. Simyeonui ttal will fill the power as much as it weakens.</p>
-<p>Also, at least in the upcoming battles, I won't be vulnerable to Takakusaki Athena.</p>
-<p>The last thing I decided was because of the abyss, not Simyeonui ttal. When I look at the statue of Simyeonui ttal that I obtained, it seemed that the abyss was a huge daughter-fool.</p>
-<p>However, if the abyss thinks that I am leaving the abyss's embrace because of the god I offered, it may have a tremendous animosity towards me. If I continue to possess the abyss in such a situation, there will definitely be a big loss.</p>
-<p>The reason why Simyeonui ttal said just now, 'The abyss that is full in my partner's body may become poisonous to my partner,' must have been said with this reason in mind.</p>
-<p>-Thank you, my partner. Thank you for trusting me.</p>
-<p>Simyeonui ttal smiles brightly at my answer. She seemed very happy that I was with her. I wondered if I should keep calling her Simyeonui ttal, but since she is still maintaining her identity as Simyeonui ttal, it would be okay to call her that.</p>
-<p>"Then is there anything I can do to help?"</p>
-<p>-Shamefully, I have one more request to ask of my partner.</p>
-<p>Oh, I thought Simyeonui ttal would try to change on her own, but there was something I could help with?</p>
-<p>-I need the essence of the earth that my partner has. It's not just an elixir, but it's like a core made from the seed of an earthquake that can create the Avatar of the Sunken-Root King, so it will be a great help to me.</p>
-<p>Certainly, what Simyeonui ttal said is what I have. If it's the essence of the earth, it was definitely the item that Simyeonui ttal refined from the seed of the earthquake that I obtained after dealing with the Avatar of the Sunken-Root King. I just thought it was an elixir ingredient, but seeing that Simyeonui ttal wanted it, it seemed to be an item with more value than that. Simyeonui ttal seemed to be feeling a bit of embarrassment and apology at the same time. It would be a bit embarrassing to ask for something back that she refined for me to eat.</p>
-<p>"Okay. I don't have it now, I left it at home, so I'll give it to you later."</p>
-<p>The essence of the earth was quite a valuable item, so I put it in the secret warehouse in my house. I can't keep carrying it around.</p>
-<p>-I'm not going to change right away either. I need to prepare... I'll send Urabe Konoka to my partner tomorrow, so give it to her then.</p>
-<p>I thought it would take a week to prepare, but it only takes a day? I nodded in agreement.</p>
-<p>Simyeonui ttal looked at me with a complicated expression. It was an expression mixed with gratitude, affection, and apology. I made a reassuring expression and kissed Simyeonui ttal as if to reassure her that it was okay.</p>
-<p>I closed my eyes for a moment during the kiss, and when I opened my eyes again, I was already at the Shin Kai Hime Shrine of the Urabe family. As Simyeonui ttal said, it seemed that I couldn't maintain the time together any longer because I couldn't resonate.</p>
-<p>______</p>
-<p>Simyeonui ttal Furisode Illustration B-cut~!</p>
-<p>I changed the model, does it look okay?</p>
-<p>It came out with a very Demon King-like feel, hehehe.</p>
-<p>Stewardess Home Teacher requested by RefundAbsolutelyNotPossible-nim!!</p>
-<p>Kkioot</p>
+<p>Having finished their classes, the special class's teacher rescue squad students split into several groups and scattered. Konoe Akina and Otagi Yuka contacted Seizawa Shii with a request, summoning her to their teacher Yamashiro Ryuta's house.</p>
+<p>"KinaKina-chan! Why did you call Shii to Ryuta-jji's house?"</p>
+<p>Seizawa Shii had been to Yamashiro Ryuta's house a few times, but never without the teacher present, so she looked around, slightly awkward, and spoke.</p>
+<p>"I want to make a request, but we can't do it at a family restaurant or cafe. So, I called you to a secure place."</p>
+<p>"Ah, is that so? But Ryuta-jji isn't here? I thought he said he was sick today and would be sleeping at home.... Is he really sick? Is he hospitalized?"</p>
+<p>Seizawa Shii, giving perfunctory answers to Konoe Akina's explanation about the request, seemed to have her mind entirely on Yamashiro Ryuta, looking here and there. Seizawa Shii, too, seemed to find it strange that their teacher Yamashiro Ryuta, who had taken sick leave, wasn't home.</p>
+<p>"Our request is about our teacher."</p>
+<p>"Really? Is there something else besides Ryuta-jji being sick?"</p>
+<p>When Konoe Akina said it was about Yamashiro Ryuta, Seizawa Shii, who had been running around like a beagle trying to find Yamashiro Ryuta, finally focused and sat across from Konoe Akina on the living room sofa.</p>
+<p>"You know that some of our classmates want to work with the teacher even after graduation, right?"</p>
+<p>"Yeah, that's why Yuka-tan and a few others keep going in and out of Ryuta-jji's house."</p>
+<p>"So, usually we can contact him no matter what, but we haven't been able to reach him since yesterday...."</p>
+<p>Konoe Akina explained her suspicion that Yamashiro Ryuta might not be sick and that he had been out of contact since meeting with student council Chairman Taira Kanna yesterday, suggesting he might have been kidnapped.</p>
+<p>"Wait, Ryuta-jji's skills are not ordinary.... If he was kidnapped, how did they manage to do it?"</p>
+<p>"That's why we're asking you, Shii. Since a skilled teacher was kidnapped, it would be troublesome if the enemy is stronger than our forces."</p>
+<p>"Is that so? Kanna-chi calling Ryuta-jji 'Oppa' gives me a bit of a fox-like feeling. If Ryuta-jji really was kidnapped as KinaKina-chan says, then I should lend a hand too~!"</p>
+<p>Having heard the whole story, Seizawa Shii rolled up her sleeves and enthusiastically expressed her determination to rescue their teacher.</p>
+<p>"Still, it's a dangerous job.... Here's the contract."</p>
+<p>Konoe Akina handed Seizawa Shii a contract. Of course, they could have just asked as fellow special class students, but since there was danger involved and for the sake of confidentiality, it was better to have a written contract.</p>
+<p>"It's a standard contract with only the commission fee written in."</p>
+<p>The contract itself, called the resolver standard contract, had a confidentiality clause, so they simply added the commission fee. Seizawa Shii, upon receiving the contract, widened her eyes slightly.</p>
+<p>"50 million yen? That's a bit steep for a one-day search and rescue, isn't it?"</p>
+<p>Seizawa Shii was surprised by the commission fee written in the contract. A 50 million yen a day commission was rare for search and rescue requests. Of course, assassination requests for socially influential celebrities had a different number of digits, so it was hard to compare.</p>
+<p>"The teacher is worth it."</p>
+<p>"Yeah... Ryuta-jji is worth it. I signed it, so let's go now."</p>
+<p>Seizawa Shii agreed with Konoe Akina and stood up. Their first destination was a restaurant called Kiyoshikiyoshi. Some of the students who had split into groups had already gone to the restaurant to investigate Yamashiro Ryuta's whereabouts.</p>
+<p>###</p>
+<p>"Oppa, I'm back from school."</p>
+<p>The door creaked open and Taira Kanna entered. The sex battle with Taira Kanna that had lasted from last night until this morning ended in a draw.</p>
+<p>Her physical abilities were high, so she didn't tire easily, and her learning ability was also high, so her sex skills had improved rapidly in just one day. Above all, her mental recovery from the pleasure of sex was remarkable.</p>
+<p>Of course, I was tied up, so I couldn't properly use the sexual techniques I had learned so far.</p>
+<p>In fact, the more I had sex with her, the more her affection for me increased, but even if her affection increased, it wasn't all good for me.</p>
+<p>For a yandere like Taira Kanna who was obsessed with me, it only made her twisted love grow stronger.</p>
+<p>Someone might look at me still tied to the bed and ask.</p>
+<p>Since I have regeneration anyway, why don't I just break my finger and escape? Of course, if I could have just unlocked the handcuffs and escaped, I would have.</p>
+<p>But the problem was this building. Taira Kanna had said as she left for school that the entire building was made of metal with the same strength as the chains I was tied to, so I shouldn't even think about escaping.</p>
+<p>If I had the Abyss, I would have broken through the handcuffs or the walls and escaped, but Taira Kanna had kidnapped me at the perfect moment when I had lost the Abyss, so I was feeling helpless.</p>
+<p>"If they find out I didn't go to work today, someone will look for me."</p>
+<p>"Hehe, I've taken care of that. I've manipulated it so that Oppa took sick leave, so it'll be fine for a while."</p>
+<p>She manipulated it so that I took sick leave? Surely the people who know me well among my students won't believe it....</p>
+<p>"There will be people who don't believe it."</p>
+<p>"There were some sneaky cats who came to probe around during lunchtime. But what can they do? There's no evidence.</p>
+<p>Taira Kanna wouldn't have left easy evidence. But Taira Kanna was underestimating my students too much. If there were students who suspected something, they would gather everyone and combine their strength to find me, and there was a high possibility that they would come here soon.</p>
+<p>"Since Oppa hasn't submitted to my body yet, shall we start the second round♡"</p>
+<p>Taira Kanna was about to do it in her school uniform, pulling down only her panties from under her skirt. How did she know I liked school uniform sex (actually, I like most sex), I don't know how she makes it so hot.</p>
+<p>"I was excited enough coming here, so Oppa just needs to come inside me."</p>
+<p>Taira Kanna says shyly. She's going to put it in herself, but she's talking as if I'm actively having sex?</p>
+<p>"Haaah...!"</p>
+<p>As I pushed my dick deep into Taira Kanna's pussy, Taira Kanna trembled slightly and reached a small climax.</p>
+<p>As Taira Kanna said, it was already wet enough, but it wasn't the kind of feeling where it slid right in, probably because it was tight. I did it all day yesterday, and it's still this tight.... Her pussy has considerable restorative power.</p>
+<p>"Feels so good, euheung~! Oppa, do you want to see inside?"</p>
+<p>Because she was wearing a school uniform, the inserted appearance was hidden by the skirt. So, depending on how you looked at it, it just looked like Taira Kanna was sitting on top of me.</p>
+<p>"Hehehe, if you want to see it that much, here's a sexy view of my wet pussy and haah! Oppa's heinous dick heuh! combined together!"</p>
+<p>No, I never said I wanted to see it. Of course, I'll watch if you show me. Before I could even protest that I didn't say that, Taira Kanna lifted her skirt and showed me the sight of me and her connected.</p>
+<p>"We only did it once yesterday...! I thought about it all day today and thought I was going to die♡ From now on, haah! If Oppa doesn't have a dick heuheu...! I can't live, Oppa...!"</p>
+<p>Taira Kanna diligently wiggling her hips and confessing her love for my dick. She can't live without my dick.... Her obsession was getting worse, which was a big problem.</p>
+<p>"No, I can't live like this forever. Why don't you just let me go? I'll hang out with you like this from time to time...."</p>
+<p>I was going to change my strategy from yesterday and try to persuade Taira Kanna by telling her that this wasn't right.</p>
+<p>The intense sex over yesterday and early this morning revealed that I couldn't subdue her with a sex battle while tied up like this.</p>
+<p>"Haa, heuheu, be quiet...! Oppa, your dick heuh! is saying something different...♡"</p>
+<p>My dick didn't say anything, but Taira Kanna was making things up. Still, I was curious about what she said, so I decided to ask.</p>
+<p>"What did my dick say?"</p>
+<p>"Haaang~♡ It wants to heuh! stay inside Kanna's pussy forever...!"</p>
+<p>She was saying something ridiculous (of course, the feeling of Taira Kanna's pussy felt by my dick felt really good), so I decided to continue persuading her with what I had been saying until just now.</p>
+<p>"What about grandfather? It's not just me who's in trouble if I go missing during a mission."</p>
+<p>"What about grandmother? She cares about me a lot, she'll be sad if I go missing."</p>
+<p>Even when I mentioned Taira Danjo and Taira Shizuku, Taira Kanna didn't care and just made moaning sounds and wiggled her hips frantically. I can't do this. I'll have to gradually raise the level of my words.</p>
+<p>"I don't like being tied up like this. If I keep being tied up, I don't think I'll be able to like Kanna. Are we just going to have sex like this forever? We can go on dates, talk to each other, and do the things that other couples do. If you keep me locked up like this and just have sex, you'll never be able to receive true love."</p>
+<p>This time, the words that she would never be able to receive true love seemed to be quite shocking, and Taira Kanna's movements, which had been like pounding rice, stopped.</p>
+<p>"Does Oppa hate me?"</p>
+<p>Taira Kanna's yandere-like eyes deepened. Hmm.... I think I need to answer this well.</p>
+<p>__________</p>
+<p>Bikini finger hearts of the nurse and home economics teacher requested by NoRefunds~!</p>
+<p>From the nurse~!</p>
+<p>Home economics teacher~!</p>
+<p>Kkiyot!</p>

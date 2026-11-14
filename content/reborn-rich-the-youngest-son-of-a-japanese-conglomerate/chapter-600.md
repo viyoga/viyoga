@@ -5,79 +5,61 @@ weight = 600
 chapter = 600
 +++
 
-<p>I ate at the Jeil Electronics cafeteria, but I didn't know if the food was going into my mouth or my nose because of Chun Ha-rin.</p>
-<p>I just said my name and suggested an alliance, but it's bothering me this much... Isn't she a total pro at seducing people?</p>
-<p>And because her traits are different every time, I was curious about Chun Ha-rin's status window. I don't know when I'll meet her next, but I have to wear the glasses from the ruins no matter what. I'm curious about what kind of mystic eyes she has... Judging by the fact that she knows my name, I have a few candidates for what kind of mystic eyes they are, but it's best to check it out myself.</p>
-<p>"What are you thinking about, Ryuta-cchi?"</p>
-<p>Seizawa Shii asks while eating across from me. Ah, I guess I was too lost in thought.</p>
-<p>"I was thinking about how Seizawa was laughing like crazy when she was drunk yesterday."</p>
-<p>"I don't think so? If you were thinking about me laughing, Ryuta-cchi should be laughing too. Ryuta-cchi's expression looked pretty serious."</p>
-<p>Hmm, the reason is a bit strange, but she's quite sharp?</p>
-<p>"I just had something to think about."</p>
-<p>"Really? It's meal time now, so don't think about complicated things and try this."</p>
-<p>Seizawa Shii puts a big fried shrimp on my rice. It was a shrimp almost the size of a small lobster. It's so big, from what size do you call it a lobster?</p>
-<p>"I tried them one by one, and the fried shrimp was the most delicious. Ryuta-cchi is a glutton, so you'll feel better if you eat something delicious, right?"</p>
-<p>"Yeah, thanks."</p>
-<p>It seemed that Seizawa Shii thought I was a glutton who gets happy when I eat delicious things. I picked up the fried shrimp that Seizawa Shii put on my rice with chopsticks and took a bite.</p>
-<p>The crispy layer broke with a *pasak* sound, and the sweet taste of the shrimp meat wrapped around my tongue. Hmm... Seizawa Shii was right, it's really delicious. It would be delicious to put a lot of shrimp on top and eat it like an ebidon?</p>
-<p>"Hehe~☆ You're back to your original expression now."</p>
-<p>As Seizawa Shii said, I guess I really am a glutton character. Only when a new stimulus came to my tongue could I shake off the thought of Chun Ha-rin.</p>
-<p>"You're right, it's really delicious? I should put a few shrimp on top of my rice and eat it as ebidon."</p>
-<p>"Ryuta-cchi is a genius! Should I try eating it like that too?"</p>
-<p>After eating another bowl of rice like that, I ate a sweet dessert with the students at a cafe right next to the cafeteria, and then followed Chun Ha-rin again to see Jeil Electronics' advanced facilities.</p>
-<p>As expected, everyone was from prestigious families, so they listened carefully to Chun Ha-rin's explanation, and it seemed that they were thinking about how to link it with the technology of their respective families.</p>
-<p>Looking at the serious expressions of the St. Francisco's female students, it seemed that this kind of tour was quite good for the company. If the ideas of the female students who took the tour here are passed on to their families, the families may propose collaboration to the company that they visited. From the company's point of view, it's an opportunity to gather collaborators with new ideas without spending a lot of money, and it's also an opportunity for the families to make money, so it can be seen as a win-win relationship.</p>
-<p>Of course, more than half of the students in the special class, including Seizawa Shii, Kujo Kina, and Alik, didn't have any special thoughts. There were also students who just thought it was amazing and moved on, or didn't pay much attention and were looking at their phones.</p>
-<p>I was also among those who weren't interested. I already knew enough about Jeil Electronics' geography and technology, and now I was talking with Han Yu-gyeong and Mimata Chieri about the pros and cons of forming an alliance with Chun Ha-rin.</p>
-<p>-Han Yu-gyeong: I think we can get a lot of profit in the beginning. If an article comes out saying that our TG Tech and Jeil Electronics have collaborated, we can enjoy a huge advertising effect on our side, which is still unknown.</p>
-<p>-Chieri-chan: That's right. TG Tech doesn't have any other products yet besides bodyguard pets on the dark web.</p>
-<p>In fact, Bodyguard Pet is also produced by TG Tech, but it is sold under the name of the dark web without putting the name of TG Tech due to various regulations. This made quite a bit of money, and it was playing the role of a new source of money for TG Tech, which had not yet made any money.</p>
-<p>We were planning to release various products such as cyber armor and special firearms around the end of this year or next year, but if an article about collaborating with Jeil Electronics came out, it seemed that we could spread our name widely, which would be difficult to publicize in the early stages.</p>
-<p>-Jin Yong-tae: Are there any disadvantages?</p>
-<p>-Han Yu-gyeong: I think we need to know what level of alliance it is to know that.</p>
-<p>That's right. For now, what Chun Ha-rin said is just an alliance, so we need to talk to her about that to make the pros and cons clear.</p>
-<p>-Jin Yong-tae: I guess I'll have to leave the details to Yu-gyeong. Sorry for always asking you.</p>
-<p>I'm going to South China soon for a graduation trip and then go back to Japan, so Han Yu-gyeong will have to do the practical work after all.</p>
-<p>-Han Yu-gyeong: I'm also the CEO of TG Tech, so you don't have to be sorry. It's also for our Yong-tae and me to do well.</p>
-<p>-Chieri-chan: I'll help with anything I can do if I go to Korea~!</p>
-<p>If Mimata Chieri even comes to Korea to help, there will be no problem. Eve is also in the dark web Seoul branch, so if it's these three, we won't lose money at least.</p>
-<p>I said goodbye and was about to put my phone in my pocket when I got a call from Kurayamda Kirie this time.</p>
-<p>-Kurayamda Kirie: Congratulations.</p>
-<p>-Kurayamda Kirie: You passed the PMC certification.</p>
-<p>Ah, I passed. It should have come out yesterday, but I got a call saying that a few questions on the exam had problems, so the announcement was delayed by a day due to protests. I expected it because the score was good when I took the test and did the preliminary grading, but I felt pretty good when I passed.</p>
-<p>-Taira Ryuta: Thanks for the congratulations. Kurayamda-ssi must have passed, right?</p>
-<p>Kurayamda Kirie had a higher score than me in the preliminary grading, so she must have passed.</p>
-<p>-Kurayamda Kirie: Of course. I registered as a PMC today and registered the Jinildang members as PMC members as well. I'll give you a formal thank you... Thank you for your help.</p>
-<p>-Taira Ryuta: If you're grateful, just work hard.</p>
-<p>I did a little more Line with Kurayamda Kirie and put my phone away. Hmm, I got the PMC qualification under the name of Yamashiro Ryuta for now, so I should create a PMC and take the test under the name of Taira Ryuta later.</p>
-<p>"Thank you for being with us today. Here's my business card, please take one each. If you have any good ideas, please contact me anytime."</p>
-<p>Before I knew it, Chun Ha-rin was handing out business cards after finishing the tour. I also received one, even though she gave one to the teachers as well. This business card didn't seem to be a direct line to Chun Ha-rin. Unlike the business card I received, it didn't have a phone number, only an email address.</p>
-<p>We left Chun Ha-rin behind and headed back to the bus, but when I suddenly looked back, Chun Ha-rin was looking at me with a strange smile.</p>
-<p>"All the schedules in Korea are over for now. We'll go back to the accommodation, have dinner, enjoy free time, and then take a plane to China tomorrow morning."</p>
-<p>It was quite relaxed because it was a 5-night, 6-day trip. There's so much free time.</p>
-<p>"You're not going anywhere else today, right?"</p>
-<p>"Yeah, let's all get together and have fun with the people on our bus today."</p>
-<p>I couldn't be the only one being harassed by the students, so I dragged in Kijimoto Jurie and Shimokawabe Airen, who were on the bus with me.</p>
-<p>"Me too?"</p>
-<p>"Are we playing together too?"</p>
-<p>"Of course. You're both practically honorary special class homeroom teachers."</p>
-<p>I smiled and answered the two female teachers' questions. The bus started, and I sat in my designated seat behind the driver and registered Chun Ha-rin's phone number from the business card and sent a text message.</p>
-<p>-Jin Yong-tae: This is Jin Yong-tae. I've decided to think positively about the alliance. I'd like you to talk to my partner in Korea about the details...</p>
-<p>-Chun Ha-rin: Han Yu-gyeong-ssi?</p>
-<p>As expected, she seemed to know a lot about me, seeing as she even knew Han Yu-gyeong. What doesn't she know?</p>
-<p>-Jin Yong-tae: Yes.</p>
-<p>-Chun Ha-rin: I understand. Then please give my contact information to Han Yu-gyeong-ssi.</p>
-<p>-Chun Ha-rin: You will never regret today's decision, Yong-tae-ssi.</p>
-<p>-Jin Yong-tae: Chun Ha-rin-ssi won't regret it either. Han Yu-gyeong-ssi will contact you soon.</p>
-<p>I gave Han Yu-gyeong Chun Ha-rin's contact information, and Han Yu-gyeong said she would do her best and then didn't say anything, probably contacting Chun Ha-rin.</p>
-<p>Dinner was eating whatever we wanted at the hotel restaurant, but since we decided to rent a big room this time and eat pizza together while playing, the students didn't eat much dinner.</p>
-<p>"First of all...! Mafia game!"</p>
-<p>As if she had already decided on all the game orders, we played the Mafia game that Minamoto Risa suggested first. At first, we were all miserably defeated by Alik, who had a poker face, and everyone was killed by Alik, who was the Mafia. The second time, the Mafia was wiped out by Shido Tsubaki's citizen alliance, who had excellent observation skills, and the citizen team won.</p>
-<p>After that, we played giant Jenga, and then we enjoyed the game by playing Monopoly.</p>
-<p>The last one was a pillow fight, but since there were so many talented people in the special class, we decided to disqualify anyone who burst a pillow. Of course, the Moka-sensei team with Shimokawabe Airen won the final victory. For reference, I was attacked by the students and lost because my pillow burst while I was counterattacking.</p>
-<p>After all the games were over, the hotel room was a mess (Minamoto Risa decided to pay for any repairs or costs.), but everyone seemed to have enjoyed it and went back to their hotel rooms to sleep with satisfied expressions.</p>
-<p>-Yamashiro Ryuta: Come to my room in a little while.</p>
-<p>Kijimoto Jurie was close to Shimokawabe Airen, who had sensitive senses, so I couldn't say it directly and left a Line message. Kijimoto Jurie must have been looking forward to the graduation trip a little bit too. It's the last day in Korea, so I have to make up for not hugging her all this time.</p>
-<p>------------</p>
-<p>Chun Ha-rin's drawing style when she first appeared.</p>
-<p>Alik cover B-cut~!</p>
+<p>The week-long break that Daigo Terue-san promised wasn't going to start right away; first, there was a memorial service for the presumed-dead homeroom teacher of Class C.</p>
+<p>Since not everyone made it back safe and sound, and there was one presumed casualty, St. Francisco Girls' Academy probably felt obligated to hold a service out of respect for the bereaved family and the school staff.</p>
+<p>,Did everyone get some good rest yesterday?</p>
+<p>,I ate so much of what I wanted to eat, Ryuta-cchi~!</p>
+<p>,Alik, slept soundly....</p>
+<p>,Did you rest well, sensei?</p>
+<p>I asked, looking at the students gathered in the classroom, all dressed in black, before heading to the memorial service.</p>
+<p>Since everyone would either take a break after the memorial service, visit a psychiatrist for trauma treatment, or go on vacation, the third-year students were told they could wear dark-colored casual clothes instead of their uniforms, so everyone was dressed in dark colors.</p>
+<p>,By the way, who was the Class C homeroom teacher again?</p>
+<p>Seizawa Shii-ssi, dressed in a black gothic lolita outfit, asked. The Class C homeroom teacher was the art teacher, and since the third-year fine arts classes were electives and it was a special class isolated without other classes nearby, it wasn't entirely incomprehensible that she wouldn't know, but it was already November of the third year. I couldn't help but think that not knowing who the homeroom teacher of another class was after this much time had passed meant she was too uninterested in other people.</p>
+<p>It just seemed like only Seizawa Shii-ssi didn't know, as she doesn't pay any attention to things she's not interested in. I overheard Minamoto Lisa-ssi, who was sitting next to her, saying, ,Idiot, it's the art teacher, and Seizawa Shii-ssi asking back, ,Really?</p>
+<p>,So, what is everyone going to do during this break?</p>
+<p>I suddenly got curious and asked the students. It was practically a week-long vacation, so I was curious about what the students would be doing.</p>
+<p>,I'm going to Korea~!</p>
+<p>Uenozono Karen-ssi said, raising her hand. Recently, she couldn't go back and forth to Korea because she would fail if she missed any more classes, but it seemed like she was going to Korea during this week-long break, though I didn't know if she would be resting or doing entertainment activities.</p>
+<p>,Still, it's also a break, so don't work too much, okay?</p>
+<p>,I know! I'm going to hang out with the Serifs unnie-deul!</p>
+<p>The Serifs, to which Uenozono Karen-ssi belonged, must have been worried about their youngest member, Uenozono Karen-ssi, so it seemed like she was planning to spend time with her members.</p>
+<p>For reference, the South Nanjing video that Uenozono Karen-ssi filmed was decided not to be released. I briefly contacted Taira Kokoro-ssi about it yesterday, and even though it was an interesting video that everyone was looking forward to, the damage to Shin-Nankyo City was too great, so they decided not to upload it because it could backfire.</p>
+<p>Since TG Tech was already becoming famous and profiting from the leaked video, I didn't really care whether Uenozono Karen-ssi uploaded the video or not.</p>
+<p>Since we agreed not to film me fighting and I used a GoPro, my abilities weren't really shown, so even if the video was released, it wouldn't really affect me, and it would actually have the effect of advertising TG Tech's equipment. Come to think of it, wouldn't it be more beneficial for me to release it?</p>
+<p>,I'm going to do some part-time jobs and laze around at home!</p>
+<p>Seizawa Shii-ssi said that she would do the part-time job she had mentioned several times before. I was curious about what kind of part-time job she was doing, but since she was a determined girl who said she wouldn't accept support from her family, I wasn't too worried.</p>
+<p>,Alik is going on training with Moka-sensei.... I wanted to play with Ryuta.</p>
+<p>Alik said with a slightly gloomy expression. I had a brief conversation with Shimokawabe Airen-ssi about this, and she said that she was going to train Alik even harder because of this incident, so he would be going on a week-long training. Shimokawabe Airen-ssi, who is in charge of the fairly large club Cheongsim Hall, also received a week-long vacation as she participated in this Shin-Nankyo City graduation trip.</p>
+<p>And she said it would be okay to leave it to the Cheongsim Hall club president for about a week. The Cheongsim Hall side was also preparing for the festival in December, so it was a time when they didn't necessarily need a faculty advisor to teach martial arts.</p>
+<p>,I'm going with Alik too~!</p>
+<p>It was Naruse Shiyo-ssi. Perhaps because she lured the giant robot with Shimokawabe Airen-ssi when heading from the zoo to the hotel, it seemed like Shimokawabe Airen-ssi would also look after Naruse Shiyo-ssi's martial arts. Since Naruse Shiyo-ssi lacked technique compared to her excellent physical abilities, it would be good for both me and her if she grew a lot during this week.</p>
+<p>In addition, Minamoto Lisa-ssi said she would get counseling for a day and then rest, and Oofuchi Erika-ssi, who didn't have any particular trauma because she played so many zombie shooting games, said she would do what she wanted to do for a week, and Shido Tsubaki-ssi said she would write an article about the Shin-Nankyo City disaster for the newspaper.</p>
+<p>The other students also had things to do, so it seemed like they would make good use of the week-long vacation they received for consolation and rest.</p>
+<p>I thought I would be able to rest comfortably for a week, but I was actually going to be quite busy rather than working. TG Tech was suddenly soaring, so the amount of work I had to do increased, and I had appointments with several students, so I really didn't have time to rest.</p>
+<p>-The memorial service will begin soon, so students are asked to gather in the main stadium.</p>
+<p>While we were asking each other what we were going to do, the memorial service started, so we went outside. After the memorial service, the third-year students went straight home without stopping by the classroom, so I checked to see if the students had left any belongings and closed the door.</p>
+<p>When the students gathered, they proceeded with the ceremony, such as lighting incense at the altar where a photo of the Class C homeroom teacher's life was placed, offering flowers, and offering a silent tribute. As she was the Class C homeroom teacher, the third-year Class C students were shedding tears.</p>
+<p>-...This concludes the memorial service.</p>
+<p>With the end of the in-house broadcast, the memorial service ended, and all the students except for the third-year students went back to their classrooms, and the third-year students and the teachers who participated in this graduation trip went straight home because their week-long vacation had begun.</p>
+<p>###</p>
+<p>I had to do some work today, so I quickly left the school and drove to Miyashi City Hall. The results of the PMC certification exam were announced during the graduation trip, so I had to get my PMC certification issued and register as a PMC, which I hadn't been able to do right away.</p>
+<p>In fact, it was possible to do it online, but even in 2053, it was faster to do it directly at a government office than online in Japan, so I visited City Hall in person.</p>
+<p>Even though it was faster to do it in person, it was based on Japanese standards. There were several registration procedures, so it took quite a long time, which was actually a bit annoying. If I wasn't disguised as a teacher at St. Francisco Girls' Academy, I could just have my secretary do it.</p>
+<p>With the thought that I would never do this kind of thing again, I continued the tedious paperwork. After struggling with documents and certificates for about thirty minutes, I was able to register the PMC that I was the president of, along with my PMC certification.</p>
+<p>In fact, Seryu Military Company, East Weapon, and the PMC that Kurayamata Kirie-ssi newly established were virtually owned by me, but they still had different names on paper, but now that I received a document with my name (though it's Yamashiro Ryuta...), I felt a new emotion.</p>
+<p>The name of the PMC company registered under my name this time was Kōtetsubutai (Steel Troops), named after a variety show I watched before I got possessed.</p>
+<p>Thinking about making it a reliable base defense unit that uses cyber armor and sturdy armor, befitting the name Steel Troops, I suddenly became curious about the name of the PMC that Kurayamata Kirie-ssi created. Surely she wouldn't use the name Jinildang as is.</p>
+<p>I immediately sent a text message to Kurayamata Kirie-ssi to satisfy my curiosity.</p>
+<p>-Taira Ryuta: I registered as a PMC today. I named it Kōtetsubutai.</p>
+<p>-Kurayamata Kirie: Is that so? I'm quite busy because there are many things to do in the early stages of establishment.</p>
+<p>She seems busy. But I have to resolve my curiosity.</p>
+<p>-Taira Ryuta: What did you name yours? You didn't name it Jinildang as is, did you?</p>
+<p>-Kurayamata Kirie: Are you stupid? How could I possibly use the name of a terrorist organization as it is? I named it Chūōōkamitai (忠狼隊).</p>
+<p>Chūōōkamitai.... It was a name with the character for loyalty attached to the front of the wolf, which is the symbol of the Kurayamata family. If you break it down, it's a name like Loyal Wolf Corps. If the loyalty in loyalty refers to loyalty to me, it was a pretty pleasing name.</p>
+<p>-Taira Ryuta: That's a good name. I'll have to bring a leash when I see you next time.</p>
+<p>Kurayamata Kirie-ssi didn't respond for a while to my words. I went back to the car and sat down, and then Kurayamata Kirie-ssi's reply came.</p>
+<p>-Kurayamata Kirie: I'll bring the leash.</p>
+<p>As expected, she was prickly but honest about her sexual desires, Kurayamata Kirie-ssi. I'm looking forward to the next time we meet? I'll have to torment her until she surrenders with the leash.</p>
+<p>I started the car to take care of the remaining work. The next place to go was the Amsang Miyashi branch.</p>
+<p>______________________</p>
+<p>Seizawa Shii-ssi wearing a gothic lolita dress</p>

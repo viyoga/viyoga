@@ -5,79 +5,86 @@ weight = 215
 chapter = 215
 +++
 
-<p>The first thing I worried about when coming to Akita Prefecture was whether Mimata Chieri or the Seryutai members might be hurt or killed, and the second was whether I would be late for my trip with Yukiko in four days. I promised, and if I'm late, Yukiko will definitely pout.</p>
-<p>Fortunately, my strategy with Sawayanagi Tobe to draw aggro and confuse the enemies worked quite well, and we were able to annihilate Kurotsukido that very dawn.</p>
-<p>Originally, I didn't think I could solve it in four days, but I caught the clairvoyant sniper Yang Xueshi early, and I easily defeated Dang Sohwa with my special ability, so I was able to solve it right away.</p>
-<p>I tormented Nagumo Sian until morning, but she must have considerable stamina because Nagumo Sian woke up on time for the meeting to handle the aftermath. Thanks to Nagumo Sian's consideration, I woke up about an hour late, prepared slowly, and headed to Taira Foods headquarters.</p>
-<p>It seems the meeting hasn't ended yet. I could hear them talking quietly. The aftermath isn't my job, so I didn't bother going into the conference room and went into the nearby reception room. While waiting, I should contact Konoe Akina because the kids waiting in Akita City might be worried.</p>
-<p>Taira Ryuta: Konoe-ssi, we're going back tomorrow, so think of today as a sightseeing tour of Akita City and have fun. I don't think I can go back today because I have some aftermath to take care of.</p>
-<p>Actually, I could go back today if I wanted to, but since I'm planning to hand over the other kids except for Konoe Akina to Seryutai anyway, I thought it would be better to go with Seryutai tomorrow, so I decided to go tomorrow. Ah, I should ask Jung Da-rim what she wants to do later. Whether she wants to stay with Seryutai or start her own lab....</p>
-<p>Konoe Akina: Okay. Can I buy some clothes for the kids? I think the clothes I bought in Kraskino don't suit the weather and the quality is poor.</p>
-<p>Taira Ryuta: Okay. There's a lot of money on the card, so buy as much as you want. There's about 15 million yen.</p>
-<p>After writing 'buy as much as you want,' I thought that Konoe Akina, being a young lady from a prestigious family, would buy all luxury clothes, so the money might not be enough, so I told her the balance on the card so she would know roughly. Then she'll use it well on her own.</p>
-<p>Konoe Akina: With this money, we could live for over a year, just us? You're definitely coming tomorrow, right? Some of the kids said they want to see Ryuta-nim.</p>
-<p>Hearing that she could live for over a year with this money, it didn't seem like she would buy luxury clothes as I had worried. That's a relief. Even if I'm rich, it would have been a bit much to spend 15 million yen in one day.</p>
-<p>Taira Ryuta: Yeah, I'll definitely go tomorrow. Have fun today. You haven't had good memories with the kids because you've been locked up until now, so eat delicious food and make good memories.</p>
-<p>Konoe Akina: Okay. I'll make good memories today as Ryuta-nim said.</p>
-<p>After finishing the Line chat with Konoe Akina, I heard people leaving the conference room, so I came out of the reception room as well. Several people were coming out of the conference room, including Mimata Chieri and Sawayanagi Azuma. They seemed to sense my presence and looked my way.</p>
-<p>,Oh, Sunbae-nim!</p>
-<p>,Investor-nim!</p>
-<p>Mimata Chieri and Sawayanagi Azuma greeted me happily. The rest of Seryutai didn't need to attend the meeting, so only the two of them were there.</p>
-<p>,Where is Nagumo Sian-nim?</p>
-<p>,She's still in the conference room.</p>
-<p>,Then let's go into the conference room together for a moment.</p>
-<p>I took Mimata Chieri and Sawayanagi Azuma and went back into the conference room. Actually, Sawayanagi Azuma had nothing to do with the story I was going to tell Nagumo Sian, but if I only took Mimata Chieri, it would seem like I was ostracizing her, so I took her along.</p>
-<p>I knocked on the conference room door and went in. Nagumo Sian was still talking with her chief of staff and executives. Nagumo Sian turned her head at the sound of the door opening, smiled brightly, and greeted me.</p>
-<p>,I thought you'd be asleep, but you came.</p>
-<p>,I... I have a proposal to make to Daemo-nim.</p>
-<p>I was about to say 'Nuna,' but Nagumo Sian's chief of staff and several executives were there, so I just called her Daemo, which is what they call Nagumo Sian in Akita Prefecture. She seems a little disappointed that I called her Daemo? Nagumo Sian's attitude was quite cute, so I couldn't help but smile slightly.</p>
-<p>,A proposal? Wait a moment. Let's finish what we were talking about and talk over lunch together.</p>
-<p>At Nagumo Sian's words, we nodded and left the conference room, going to the reception room where I had been waiting earlier and sat down. It was better to sit in the comfortable chair in the reception room and wait, without having to listen to the boring meeting contents.</p>
-<p>,If we're going to talk over lunch, I should contact Seryutai and tell them to eat lunch on their own.</p>
-<p>Sawayanagi Azuma took out her phone and sent a Line message to someone in Seryutai, and Mimata Chieri came close to me and started asking about what happened this morning.</p>
-<p>,Sunbae-nim, how was it?</p>
-<p>,How was what?</p>
-<p>,Aww~ You know.</p>
-<p>Of course, I know. Mimata Chieri was asking how the sex with Nagumo Sian was. She was truly an incorrigible netorare woman. It was a bit uncomfortable to talk about it because of the place, so I started a different conversation.</p>
-<p>,I don't know? More than that, Sunbae, you said you wanted to learn martial arts before, right?</p>
-<p>,Yes, I can cover long and medium ranges with sniping and shooting, but close combat is impossible.</p>
-<p>When I sparred with her before, Mimata Chieri immediately followed my Shinkaiyatsude moves, so she had tremendous talent.</p>
-<p>,I got a martial arts secret book from Seoul. Was the name Eight Extremities Divine Fist? If I check it out and it's good, I'll give it to you so you can learn it.</p>
-<p>,Did you buy it thinking of me?</p>
-<p>,Of course.</p>
-<p>It's true that I bought it thinking of Mimata Chieri, but I also thought I should pass it on to Kiyohira if possible, so both of them had about half a share. She looks so happy that it's a gift, so I should choose a different martial arts book for Kiyohira.</p>
-<p>,Investor-nim, what were you talking about?</p>
-<p>,Ah, Korean travel stories.</p>
-<p>It was Sawayanagi Azuma asking if I had finished the Line contact. Actually, I left Seoul in a hurry because of the building explosion, so I couldn't buy a gift for Sawayanagi Azuma, so I just said it was a travel story. I'm glad Mimata Chieri didn't provoke Sawayanagi Azuma by talking about gifts.</p>
-<p>,Ah, then tell me the story of rescuing those boys and girls! I'm so curious.</p>
-<p>,Well, it happened when I went to Pyongyang and wanted to visit the area I received from Russia, so I arrived in a small city called Kraskino.</p>
-<p>I didn't bother telling the story of going directly to the slave traders, but said that I was sightseeing and heard the story from a tout, and thought there might be people with abilities, so I followed him.</p>
-<p>,Rather, it seems that those with superpowers can protect themselves because of their abilities, so they don't sell well. They're not all adults, so I decided to rescue them. Well, it's more like I bought them with money than rescued them.</p>
-<p>,Still, it's a relief. Thanks to Investor-nim for saving them....</p>
-<p>Well, I bought them because I wanted to have a future mid-boss under my command, but Sawayanagi Azuma thought of me as a great saint because I rescued her from the lab. It's a bit burdensome, but well. Still, it's not bad if I think about it positively.</p>
-<p>,Seryutai will be going back soon, right?</p>
-<p>,Yes, probably tomorrow by car?</p>
-<p>,A few people go to Akita City tomorrow and take a plane. The kids are in a hotel near Akita Airport. Still, I'd like a few Seryutai officials to be there when they take the plane.</p>
-<p>At my words, Sawayanagi Azuma began to divide the personnel, folding her fingers.</p>
-<p>,Kiyona Hori and the Mari sisters, Shigero and Junichi will drive, and the rest will take the plane.</p>
-<p>,Then I'll reserve 13 seats for me, 6 Seryutai members, and 6 kids.... When are you going back, Sunbae-nim?</p>
-<p>I wondered if I should reserve a seat for Mimata Chieri, so I asked, and Mimata Chieri nodded.</p>
-<p>,Yes, if I finish all the work today, there's no need to stay. There's no need to do dangerous missions, and if I complete the security consignment contract today, there's no reason for me to be here.</p>
-<p>That's true. Now, some members of East Weapon will stay and do security work, so there's no need for Mimata Chieri, the president, to keep staying here.</p>
-<p>,Then I'll reserve 14 seats.</p>
-<p>,I'm Sunbae-nim's secretary, so I'll book it now.</p>
-<p>,It's a bit of a complicated situation, but the kids don't have IDs. And I have to take two prisoners....</p>
-<p>,Hey, don't worry about that.</p>
-<p>At my words, Mimata Chieri waved her hand as if not to worry. Well, she's been a member of the Taira Group for a while, so she must have made identities or sent people as cargo a few times.</p>
-<p>Mimata Chieri made a few calls and sent a few texts, then smiled brightly, saying it was done. Amazing. She was indeed perfect as my secretary.</p>
-<p>After completing the plane reservation, Nagumo Sian's secretary opened the door to the reception room.</p>
-<p>,Let's go to the dining room.</p>
-<p>We were guided to the limousine I rode yesterday. Inside the limousine, Nagumo Sian was waiting for us, wearing an elegant Kimono different from the one she wore this morning.</p>
-<p>,Let's go to the best restaurant in Daisen.</p>
-<p>The best restaurant.... I said I had a proposal, so she must be thinking of eating in a high-class restaurant with a private room. But the way we're going is somehow familiar?</p>
-<p>The place we arrived at was Nagumo Sian's mansion where I came out today. I knew the way felt familiar for a reason.</p>
-<p>,My house chef is the best in Daisen, so this is the best restaurant in Daisen.</p>
-<p>,Well...! Certainly, the president's company is the best in Akita, so the president's house must be the best restaurant.</p>
-<p>At Nagumo Sian's words, Mimata Chieri and Sawayanagi Azuma nodded.</p>
-<p>,I called in advance, so the food will be ready. Let's go in.</p>
-<p>We followed Nagumo Sian's lead to the mansion's dining room. I hadn't eaten breakfast because I overslept and went to Taira Foods, so it was my first time in the dining room.</p>
+<p>-Alik, I miss Ryuta.</p>
+<p>,I just saw you yesterday. We can see each other again. I'll stop by Seryutai again after going to America.</p>
+<p>-Okay.... It's almost time. I'll hang up now."</p>
+<p>Alexandra received a whopping 3-minute phone call chance today for becoming an outstanding trainee. Is this really the military or something? Only a 3-minute call? Besides, when these kids get a chance to make a phone call, I'm the only person they know, so they only call me.</p>
+<p>Seryutai's planned basic military training was expected to be quite tough as it lasted for a whopping two months.</p>
+<p>After the basic training, the trainees would choose their own mentors and receive training in an apprenticeship style to hone their skills. After going through several actual battles, they would become full-fledged PMC employees.</p>
+<p>,Isn't that Alik kid sticking to Sunbae-nim too much?</p>
+<p>Mimata Chieri asked while sitting on my lap. No, who's the one sticking here? Even if it's an empty office, there are plenty of seats, but sitting on my lap like this is a typical action to express the word 'sticking'.</p>
+<p>,Sunbae-nim is sticking more right now?</p>
+<p>"No way~! I'm different."</p>
+<p>,Sunbae-nim should become Alexandra's mentor and give her some training.</p>
+<p>After the training, Alexandra was supposed to be mentored by Kiyona Mari, a pyrokinesis user with similar abilities using natural power, although not the same ability. However, she wanted to work directly under me instead of Seryutai, so she asked Mimata Chieri to give her more training.</p>
+<p>Although she usually seems a bit ditzy, if Alexandra receives training from Mimata Chieri, who successfully completed the Taira Group's agent training, she will become an excellent combat agent.</p>
+<p>From the beginning, Alexandra's future self, before she met me, is the Cheil Group's secret weapon. I need to keep giving her experience and letting her participate in actual battles to unleash her potential.</p>
+<p>,Haa.... Okay. I'll have to modify the curriculum a bit since she's an ability user.</p>
+<p>,Thank you, Sunbae. But when are you planning to get off my lap?</p>
+<p>,I'm planning to stay here until Arisu-yang comes. I want to teach her the feeling of being NTR'd [Netorare - cuckolded].</p>
+<p>What is she, some kind of NTR evangelist? Mimata Chieri was doing something that ordinary people like me couldn't understand. Speak of the devil, Arisu approached the office where we were sitting.</p>
+<p>She approached Mimata Chieri, who was sitting on my lap and hugging me, put her hands on her waist, and asked with a stern expression.</p>
+<p>,Chieri, what are you doing?!</p>
+<p>,Trying to provoke Arisu-yang's jealousy~.</p>
+<p>I don't know when they became so close, but at some point, they became comfortable talking to each other. Maybe it was because of the 3-on-1 sex they had with Arisu, Mimata Chieri, and Sawayanagi Azuma back then that they became close.</p>
+<p>,I feel sorry for Arisu-yang, who doesn't know the true taste of NTR....</p>
+<p>,I don't need to know that taste for the rest of my life, so get down!</p>
+<p>When Arisu spoke sternly, Mimata Chieri sat on the chair next to me with a sulky expression. Seeing that, Arisu quickly sat on my lap with swift movements.</p>
+<p>,Hehe, Ryuta♥</p>
+<p>,Ah, Aah...!</p>
+<p>Mimata Chieri, seeing Arisu sitting on my lap, made an expression that was hard to tell whether it was sad or happy, an expression that would be highly praised as great acting if an actor did it.</p>
+<p>,When did you two become so close?</p>
+<p>,We became friends by often using Line after Ryuta went to Korea. Recently, the three of us, including Sayaka, met up and hung out.</p>
+<p>Yeah, I thought it was strange. Mimata Chieri suddenly came and said she would go to America with me, and I wondered if Arisu would allow it, but she said she had already received permission. There was an untold story of the three of them, including Hanasaki Sayaka, becoming friends....</p>
+<p>For reference, Hanasaki Sayaka said that she would join us when we went to LA in America. When I said I was going to see my master, Fujigasaki Rinka, she begged me and Arisu to allow her to accompany us. Coming all the way to America, she really has amazing fan loyalty.</p>
+<p>,I have a schedule too, so Ryuta will be bored and won't be able to communicate while I'm gone. So, I decided to go with Chieri as an interpreter.</p>
+<p>Well, since I hardly know any English, I can use a translation app when Arisu is away due to her schedule, but it would be nice to have someone who can translate right away. But did Mimata Chieri speak English well?</p>
+<p>,But are you good at English, Sunbae-nim?</p>
+<p>,No, Hubae-nim! If you're going to enter the Talent Development Institute, you need to know at least one or two foreign languages. Unlike Hubae-nim, who came in through connections, like a parachute.</p>
+<p>No, Mimata Chieri also came to the Talent Development Institute to observe me with Chairman Taira Danjo's backing. I looked at Mimata Chieri with a dumbfounded expression and turned on the standby screen of my smartphone to check the time. It was almost time to leave.</p>
+<p>,Let's go to the airport now.</p>
+<p>,Yeah, let's go quickly!</p>
+<p>I and Mimata Chieri would go in one car, and Arisu had to go separately in the car of the manager assigned by her agency.</p>
+<p>After going to the airport from the East Weapon headquarters building, we spent some time in the first-class lounge and then boarded the plane. Thanks to technological advancements, the speed of passenger planes has increased significantly, reducing the time from Tokyo to New York to about 8 hours, but it was still a long time.</p>
+<p>There were many things to do during the 8 hours. I could eat in-flight meals, check the schedule in New York, and watch a movie if I was bored.</p>
+<p>,New York....</p>
+<p>New York is not the main stage for the youngest son of Megacorp. It was one of the main stages of TMC, which depicted the future era of the youngest son of Megacorp, the previous work.</p>
+<p>New York itself was not an old city compared to the ancient capitals around the world, but through the American Dream and several world wars, numerous people and races flowed in from Europe, Asia, and Africa, which had become the stages of war.</p>
+<p>The problem was that some of the people who flowed in were exiled magicians, mad scientists conducting human experiments, fanatics believing in strange gods, and cannibals addicted to human flesh. Furthermore, non-human beings were mixed in among the humans, forming the city of New York.</p>
+<p>In addition, with the gangs armed with guns supplied by the military-industrial complex and the police cracking down hard, it was a city that could be called a demon metropolis. New York was a city where hundreds of people went missing every day, and a significant number were found dead.</p>
+<p>Well, for me, TMC and the youngest son of Megacorp, most of them are chunks of experience and pieces of hidden pieces, so I should take good care of them while I'm in New York. I won't even go near dangerous guys at my current level, though.</p>
+<p>I ate in-flight meals, thought about the items and benefits I could get in New York, and with some time left, I took a picture of the sky through the window. Then I uploaded it to the group Line chat room of Kazuhiro and Kiyohira.</p>
+<p>Ryuta: Photo</p>
+<p>Ryuta: Going to America.</p>
+<p>Kiyohira: Oh, are you coming to America?</p>
+<p>Kazuhiro: Hyung-nim, are you going to New York? I saw on the news that there are gunfights between Chinese gangs these days, so be careful.</p>
+<p>Was there such news? If it's a Chinese gang, it couldn't be Kurotsuki, could it? Well, even if it is, it's just a power struggle among themselves, so it won't affect me.</p>
+<p>Ryuta: They're just having gunfights among themselves, so how could it be dangerous for me?</p>
+<p>Kiyohira: More than that, the slut is coming, so American women should be careful.</p>
+<p>Kazuhiro: Well, yeah. Hyung-nim is coming to bomb again.</p>
+<p>Ryuta: I'm coming with Arisu, so don't talk nonsense....</p>
+<p>Once I get a slut image, these guys extract the broth to the bone and make jokes. Arisu, who has the pinnacle of Western appearance, is next to me, so would I look at other women?</p>
+<p>.</p>
+<p>.</p>
+<p>.</p>
+<p>,Arisu~!</p>
+<p>,Mom~!</p>
+<p>Arisu's mother and my aunt, Nae Fitzgerald, was waiting for us at the airport. She was a Japanese-Western half, but she was a beautiful woman who resembled Arisu, who was closer to Western in appearance.</p>
+<p>The differences from Arisu were that she had bigger breasts, brighter platinum blonde hair than Arisu, and her eye color was a bit brighter than Arisu's deep green eyes.</p>
+<p>Anyway, the scene of the beautiful blonde mother and daughter hugging each other was quite picturesque, so people passing by at the airport glanced at the two of them at least once. After their greetings were over, Nae Fitzgerald noticed my presence and looked at me.</p>
+<p>,Oh my, Ryuta!</p>
+<p>,Hello, Aunt.</p>
+<p>,What 'Aunt'? Just call me Nae-ssi. And who is this?</p>
+<p>,Hello, I'm Mimata Chieri, Ryuta-nim's interpreter and Arisu's friend.</p>
+<p>,Oh my, Arisu's friend?</p>
+<p>Everyone introduced themselves, but there was one strange thing. Nae Fitzgerald also had a large carrier next to her. Wasn't she here to pick up Arisu? Where is she going?</p>
+<p>,Where are you going?</p>
+<p>,Ah, no. I just came to New York from France and was waiting for you guys~.</p>
+<p>Ah, she was in France. It seemed like she had adjusted her flight time to meet her daughter and waited to go home together.</p>
+<p>,Okay, let's go home and talk. The car will probably be there.</p>
+<p>We were guided by Nae Fitzgerald and went outside the airport, where a limousine was indeed waiting for us. A man who looked like a butler with gray hair was waiting for us in the limousine.</p>
+<p>,There was no need for the butler-nim to come in person.</p>
+<p>,You're both coming together, so I had to come. The young lady's friends are also here....</p>
+<p>Ah, he really was a butler. We loaded our luggage and then took the limousine to the Fitzgerald family's mansion.</p>
+<p>-----</p>
+<p>Arisu also gets a chapter for the first time in a while for comparison with Arisu!</p>

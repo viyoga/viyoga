@@ -5,79 +5,115 @@ weight = 674
 chapter = 674
 +++
 
-<p>,Haaam~! What's the topic of today's meeting?</p>
-<p>Takakusaki Athena, dressed in light clothing, stretched and yawned as she sat at the round table.</p>
-<p>"You're late. Punctuality is a basic human virtue."</p>
-<p>The large, red-haired man, Kaishu Kakan, scolded the slightly late Takakusaki Athena.</p>
-<p>"Kakan, stop it. It's not like Athena-nim will listen no matter what you say."</p>
-<p>The pale-skinned, white-haired man, Kokubo Shiratsu, said with a sneer. Kokubo Shiratsu and Takakusaki Athena seemed to have a bad relationship, glaring at each other and growling.</p>
-<p>"Don't call me by my first name as you please, Kokubo. It gives me the creeps."</p>
-<p>"Well, your last name is the same as our master's, so I can't help it. I want to curse you out, but if I say your last name, it feels like I'm cursing out our master."</p>
-<p>Kukuku...! As the auras of the two Anya Organization's Four Heavenly Kings clashed, the air trembled and the objects in the room began to shake.</p>
-<p>"Stop it...!"</p>
-<p>The last of the Four Heavenly Kings, Funayama Seigo, said, dissipating their energy. Funayama Seigo, a slit-eyed glasses-wearing man with a friendly smile, still possessed the skills befitting one of the Anya Organization's Four Heavenly Kings.</p>
-<p>"It's fine if you two fight, but let's finish the meeting first."</p>
-<p>"Hmph.... Kokubo, watch yourself."</p>
-<p>"You're the one who shouldn't be late."</p>
-<p>Even after being told to prioritize the meeting over their squabble, the two continued to bicker, so Funayama Seigo sighed softly and ignored their argument before opening his mouth.</p>
-<p>"First, our 'sucker' gave us good information. The fact that there's a disciple of Kamiken (God Fist) at St. Francisco Girls' Academy."</p>
-<p>Kamiken referred to Fujigasaki Rinka, the best martial artist in Japan. Of course, the Four Heavenly Kings gathered here did not think of Fujigasaki Rinka as the best martial artist in Japan, but rather considered their master, Takakusaki Gengo, to be the best martial artist.</p>
-<p>"We can inflict the pain of losing a disciple on Kamiken."</p>
-<p>Kokubo Shiratsu muttered at Funayama Seigo's words. If there was an outstanding martial artist who opposed them, one of the Anya Organization's methods was to kill those close to that martial artist to inflict pain.</p>
-<p>"I don't like it. Whether it's Kamiken or someone else, shouldn't we just crush them head-on? I don't really like harassing people around them."</p>
-<p>Takakusaki Athena pouted and voiced her opposition. Takakusaki Athena had been wandering all over Japan under the pretext of traveling because she didn't like the Anya Organization's method of doing anything for victory.</p>
-<p>"Doing anything for victory is the belief of our master, and all of us."</p>
-<p>Kaishu Kakan said quietly. Even Kaishu Kakan, who silently trained himself and was sincere about the martial arts themselves, was saying this because their views on victory all came from their master, Takakusaki Gengo. Because the Anya Organization followed Takakusaki Gengo almost like fanatics, Takakusaki Athena remained silent. She knew that even if she spoke, their thoughts would not change.</p>
-<p>"If we talk about that, it'll get long again, so let's skip it. According to the 'sucker', they'll be visiting Kinui Tachio's dojo this Friday. We were going to deal with Kinui Tachio anyway, and Kinui Tachio was trying to get back our disciples that he accepted, so it's a good opportunity to solve several problems at once."</p>
-<p>"What are the skills of that Kamiken disciple? How much force should we send?"</p>
-<p>Kaishu Kakan asked at Funayama Seigo's words. The skills of Kamiken's disciple were an important issue. It was a situation where a second Kamiken could emerge.</p>
-<p>"Why are you even asking that? If it's a young Kamiken disciple, they must be a student, so even if they've mastered Shinkaiyatsude, we can beat them with our pinky finger."</p>
-<p>Kokubo Shiratsu said with a nonchalant expression, picking his ear. Shinkaiyatsude, the martial art of Kamiken's school, was not so shallow that a mere high school student could grasp its essence. The Anya Organization also knew this well, as they were also learning a martial art derived from Shinkaiyatsude.</p>
-<p>"They're not a student."</p>
-<p>Funayama Seigo said at Kokubo Shiratsu's words. Everyone looked at Funayama Seigo with expressions that said, What are you talking about? Weren't we told that Kamiken's disciple is at St. Francisco Girls' Academy?</p>
-<p>"Kamiken's disciple is a teacher at St. Francisco Girls' Academy."</p>
-<p>"A teacher? Even if they're a young teacher, they must be at least twenty-four years old, so there's not much age difference with Kamiken, is there? How did they become a disciple?"</p>
-<p>It was an incomprehensible matter. They didn't know when they had a grown-up disciple, or what the disciple's skills were, so the other three, except for Funayama Seigo, seemed confused.</p>
-<p>"Their name is Yamashiro Ryuta. They've been a Korean language teacher at St. Francisco Girls' Academy since September of this year. It's presumed that this Yamashiro Ryuta is the one who eliminated Kujo Kina's Rampage Factor, which we had marked."</p>
-<p>"If they can eliminate the Rampage Factor, then they must have some skill."</p>
-<p>Kokubo Shiratsu, who had been picking his ear and speaking nonchalantly until just now, was now speaking with a serious expression. Being able to eliminate the Rampage Factor meant that they could properly handle the Abyss, so they were not to be underestimated.</p>
-<p>"There's one problem."</p>
-<p>"Besides the fact that Kamiken's disciple is quite useful, is there any other bad news?"</p>
-<p>"Shimokawabe Airen-ssi will also be visiting that day."</p>
-<p>Everyone fell silent for a moment at Funayama Seigo's words. Shimokawabe Airen-ssi didn't have a title like Kamiken, but she was famous as a skilled martial artist, so they became quiet for a moment.</p>
-<p>"Hmm.... Our current forces are ambiguous. Neither Kinui Tachio nor Shimokawabe Airen-ssi are opponents to be underestimated. And there's even Kamiken's disciple, whose skills we don't know yet."</p>
-<p>Kaishu Kakan said with a cautious attitude. Of course, the four Anya Organization's Four Heavenly Kings could somehow handle it. However, Kaishu Kakan was of the opinion that there should be no damage in battle, so he took a cautious approach as the opponent's forces were not easy to deal with.</p>
-<p>"If you're worried, we can just increase our forces."</p>
-<p>Kokubo Shiratsu said to Kaishu Kakan and Funayama Seigo as if telling them not to worry.</p>
-<p>"The two Guardians and our master are busy right now and can't help us, so can we increase our forces? The Anya Organization's general martial monks won't be of any help."</p>
-<p>"Even if our master and the Guardians can't help us, we can borrow strength from outside. We have experts affiliated with the dojos we've merged with, and if necessary, we can hire mercenaries."</p>
-<p>Kokubo Shiratsu said as if it were simple, in response to Kaishu Kakan's expression of difficulty. Certainly, there were experts from martial arts schools that the Anya Organization secretly controlled, and they could hire mercenaries with the money they had collected from various illegal activities.</p>
-<p>"I'm against mercenaries who use guns. Don't forget that our Anya Organization is a martial arts group, Shiratsu."</p>
-<p>"Hehe.... There are quite a few mercenaries who don't use guns. I heard that there's an assassin in Miyashi who only kills people with his bare hands, so we can borrow their strength. If we try them out and like them, we can recruit them to our side."</p>
-<p>"If they don't use guns, I won't object."</p>
-<p>Kaishu Kakan nodded at Kokubo Shiratsu's words. He had taken it to mean that they would hire a martial artist. Killing people with bare hands. Isn't that what martial arts are?</p>
+<p>"How did that bastard hear about Minamoto Lisa-ssi's marriage proposal?"</p>
+<p>Gocho Kikuhito muttered to himself after ending the call with Taira Ryuta. As Taira Danjo-nim's eighth secretary, additionally in charge of the Miyashi team in the Taira information team's St. Francisco Girls' Academy division, Gocho Kikuhito was not satisfied with that position.</p>
+<p>So, when Taira Ichiro's secret recruitment offer came, he did not hesitate. Gocho Kikuhito, still young in his mid-30s, did not want to end his career as the eighth secretary.</p>
+<p>He thought that Taira Ichiro was the closest to being the successor among the three currently vying for the succession of the massive Taira Group empire, so Gocho Kikuhito gladly took Taira Ichiro's hand when he reached out.</p>
+<p>So, as soon as they joined forces, he told Taira Ichiro that Taira Ryuta was in charge of a mission at St. Francisco Girls' Academy. Of course, Gocho Kikuhito didn't know exactly what Taira Ryuta was doing infiltrating St. Francisco Girls' Academy.</p>
+<p>However, the information that Taira Ryuta, who was known to be on a business trip to the Human Resources Development Center branch, was actually on a secret mission was important information for Taira Ichiro, so he even received a reward for it.</p>
+<p>The subsequent instruction was to not obviously help Taira Ryuta's mission. That was an easy mission. If he had been instructed to interfere with the mission, it would have been quite difficult, but not providing help was simple.</p>
+<p>Not giving any information other than what Taira Ryuta requested. By doing only that, he could inconspicuously carry out Taira Ichiro's instructions.</p>
+<p>"He spoke as if he would just let it go on the phone... but just in case..."</p>
+<p>Gocho Kikuhito muttered and hurriedly began typing on the keyboard. Not conveying information that must be conveyed was a significant mistake. Especially if it was about the movements of Taira's rival, the Minamoto side, it would be a big mistake that could never be overlooked.</p>
+<p>He couldn't just stay still, trusting Taira Ryuta's phone call that he would let it go this time. Gocho Kikuhito hurriedly went to his office and began modifying the electronic information. To eliminate the mistake, he was modifying it to make it seem like he himself had received the report from the information team member late.</p>
+<p>It wouldn't completely erase the mistake, but if there was a reason like this, there was a high possibility that it would be taken into consideration and end with just a warning.</p>
+<p>However, there was something Gocho Kikuhito didn't consider. The fact that Taira Ryuta, being an illegitimate child, had no fear of Taira Group's chairman, Taira Danjo-nim, to the point of calling his grandfather at this late hour, and that he had gotten angry again after reading the report he sent. Gocho Kikuhito didn't expect that an audit would be coming right away.</p>
+<p>"Now, if I just modify this part..."</p>
+<p>Gocho Kikuhito, who was modifying the last part, suddenly stopped his fingers. He noticed that someone was behind him without the sound of the door opening. A small presence was felt behind the chair.</p>
+<p>He couldn't stay still when he even heard an ominous sound like a gunshot, *cheolkeok*! So Gocho Kikuhito quietly opened his mouth.</p>
+<p>"Are you from the audit team?"</p>
+<p>"...."</p>
+<p>The other person didn't answer. The *cheolkeok* sound he had just heard was very unsettling. Suddenly, the chair he was sitting on turned around. As he felt, there was someone standing behind him.</p>
+<p>A brown-skinned man wearing a Hawaiian shirt and sunglasses was wearing black leather gloves and pointing a gun.</p>
+<p>It wasn't the audit team that Gocho Kikuhito had thought of. That means....</p>
+<p>"Is it Ichiro? Are you trying to get rid of me to hide that you're involved?"</p>
+<p>"Don't talk nonsense, just spread out your hands."</p>
+<p>When the man in the Hawaiian shirt spoke, his hands involuntarily spread out.</p>
+<p>'He's a psychic...!'</p>
+<p>The man in front of him was a psychic with telekinetic abilities. The man in the Hawaiian shirt placed a gun in Gocho Kikuhito's outstretched hand. He tried to resist as much as possible, but the gun was naturally placed in his hand.</p>
+<p>"You didn't get killed by someone, you committed suicide. Got it? *Keukeukeu*...."</p>
+<p>His arm slowly moved by telekinesis. To Gocho Kikuhito, the gun pointed at him looked like the Grim Reaper's scythe. He wanted to scream, but his mouth was closed by telekinesis, so he could only make *eup eup* sounds.</p>
+<p>When the cold muzzle of the gun touched under his chin, Gocho Kikuhito closed his eyes. And with a *taang*! sound, his consciousness was cut off forever.</p>
+<p>"Okay, this side is taken care of..."</p>
+<p>After muttering for a moment while looking at Gocho Kikuhito's corpse, the man in the Hawaiian shirt approached Gocho Kikuhito's computer and plugged in a UCT (Universal Connection Terminal).</p>
+<p>"If I leave information that this guy was in contact with SCSMC, they won't associate it with us."</p>
+<p>The information being transmitted to the computer was the trace of SCSMC, a large corporation in South China. It was data that subtly left traces of trying to erase information, as leaving traces too obviously would rather be suspected of information manipulation.</p>
+<p>*Tak*.</p>
+<p>The Hawaiian man who pulled out the universal connection terminal smiled as he looked at Gocho Kikuhito, who died with his head blown off.</p>
+<p>"*Keukeukeu*, good bye."</p>
+<p>*Seureureuk*.</p>
+<p>The door opened silently with telekinesis, and the man in the Hawaiian shirt went outside.</p>
 <p>###</p>
-<p>Dark night. After school, Seizawa Shii had dinner with Minamoto Lisa and opened her mouth excitedly on the way back.</p>
-<p>"It's been a while since we went to a ski resort together, hasn't it, Lisa-tan?"</p>
-<p>"We went together in middle school, so it's been a few years."</p>
-<p>Today's club activity was a discussion about which ski resort to go to. Seizawa Shii wanted to go to a place like Jungfrau in Switzerland if possible, but due to the short schedule and the fact that all the special class students had some trauma from their recent graduation trip, it was decided to go to a ski resort in Japan.</p>
-<p>"Actually, I didn't think it would take this long to choose a ski resort."</p>
-<p>"It couldn't be helped because everyone wanted to eat different local foods."</p>
-<p>There were ski resorts in each region of Japan, but each region had its own specialty foods, so it took quite a while to choose one. After several discussions, it was decided to go to a ski resort in Nagano Shiga Kogen.</p>
-<p>It was decided based on the opinions that there were hot springs nearby and that they wanted to eat Sanzoku-yaki (Nagano Prefecture's fried chicken dish) or horse meat sashimi.</p>
-<p>"Shii...."</p>
-<p>Minamoto Lisa opened her mouth cautiously. She had something to ask Seizawa Shii. Minamoto Lisa knew the true nature of what Seizawa Shii called her part-time job.</p>
-<p>Seizawa Shii had told her that she was working as a troubleshooter and assassin under the alias Ogre. Because Seizawa Shii had her own principles even while doing such work, she wasn't too worried that her friend would change.</p>
-<p>What Minamoto Lisa was about to ask Seizawa Shii was an assassination request to kill someone, and she was wondering if it was okay to ask her best friend, Seizawa Shii, to do this.</p>
-<p>But because it was an important matter to her, she decided to ask Seizawa Shii, whom she trusted the most, and called out to Seizawa Shii.</p>
-<p>"Huh? Ah! Just a moment...."</p>
-<p>Seizawa Shii reacted to Minamoto Lisa's call, then saw her vibrating phone, showed her palm, and answered the phone.</p>
-<p>"Yes. So, you want me to take care of the person who kidnapped the child? Please send me the details by email. I'll check the email and decide whether to take the job. Yes, yes. Okay, I understand."</p>
-<p>From the sound of it, it seemed to be a request. Seizawa Shii hung up the phone and put it in her pocket, saying, Ah, sorry, sorry.</p>
-<p>"So, Lisa-tan, what did you want to say to me?"</p>
-<p>"It's nothing. Was that a work call?"</p>
-<p>"Yeah, I have to rescue some kids on Friday."</p>
-<p>Is that so? Minamoto Lisa replied, pretending to be calm, and repeated to herself that there was still a lot of time left.</p>
-<p>___________________</p>
-<p>Athena B-cut!</p>
-<p>I made it several times because the stretching didn't come out well hehehe</p>
+<p>"The 1st squad leader has reported that the job is done."</p>
+<p>Kurinami Chuhei, Taira Ichiro's secretary and driver, reported to Taira Ichiro after ending the call.</p>
+<p>"Our plan was resolved quite easily."</p>
+<p>"I also didn't know that idiot wouldn't report Minamoto's matter to that bastard. If I hadn't installed a wiretap on Gocho Kikuhito's phone, I would have missed the opportunity."</p>
+<p>Kurinami Chuhei said to Taira Ichiro's muttering. From the beginning, Taira Ichiro's goal was not to win over Gocho Kikuhito.</p>
+<p>He was planning to make Gocho Kikuhito continue to commit corruption and then self-destruct, and then make the information agent that Taira Ichiro had planted long ago as the head of the 8th information team centered around Miyashi.</p>
+<p>He didn't know that the plan to make his own person, not Gocho Kikuhito who had the possibility of betraying, as the head of the 8th information team would succeed this quickly.</p>
+<p>"Our guy is the most likely, right?"</p>
+<p>"Although the 8th district is important, it's customary for the head of the local information team to be an outstanding person among the existing information agents, so that guy will be it."</p>
+<p>Taira Ichiro, who nodded at Kurinami Chuhei's words, stood up and approached the Taira power map attached to one wall. And he directly took out a red pen and put an X on the part where Gocho Kikuhito was written.</p>
+<p>There were already quite a few parts on the Taira power map that had been X'd out. The names of several important figures, including Taira Saburo, were marked with a red pen.</p>
+<p>"Father, by the time you realize it, there will be no one on your side."</p>
+<p>Taira Ichiro smiled faintly as he looked at the Taira power map.</p>
+<p>###</p>
+<p>"Fa..., Teacher!"</p>
+<p>"Oh, Oofuchi-ssi. Where are you going?"</p>
+<p>On Sunday, as I was going to Director Daigo Terue's mansion at Daigo Terue's invitation, I ran into Oofuchi Erika, who was just coming out of the mansion. It was a lunch appointment, but it seemed like Oofuchi Erika wouldn't be having lunch with us.</p>
+<p>"I'm going to talk to Tsubaki-ssi about Search Eye business."</p>
+<p>"Ah, high school business girls are busy even on weekends."</p>
+<p>"Ehehe."</p>
+<p>Oofuchi Erika and Shido Tsubaki, who jointly run the internet newspaper and detective agency Search Eye, were often busy. This is because Oofuchi Erika's internet investigation skills and Shido Tsubaki's on-site coverage skills were creating quite a good synergy.</p>
+<p>In addition, Sakagami Rena also helps out occasionally, so their investigation skills are good enough to not fall behind anywhere.</p>
+<p>"Still, dangerous things can happen while investigating, so it would be good to hire a bodyguard."</p>
+<p>"We're still not doing Search Eye in earnest right now, so we're working with bodyguards assigned by our family, but when we graduate and start in earnest, we're thinking of establishing a security department."</p>
+<p>When I threw out the topic, the story came out right away, so it seems like they have their own plans. Personally, I think it would be better to outsource to the numerous PMCs in Japan rather than hiring new employees. But they'll decide that.</p>
+<p>"I also have some connections in the PMC world, so I'll help if you need it."</p>
+<p>"Thank you, Fa... no, Teacher!"</p>
+<p>Hmm... I wonder how long she'll call me Dad. She probably secretly saw me and Daigo Terue doing it, so that's why she calls me Dad.</p>
+<p>"Then I'll go."</p>
+<p>"Okay, I'll go in too. See you at school tomorrow."</p>
+<p>Oofuchi Erika went outside, and I went into Daigo Terue's mansion. When I went into Daigo Terue's mansion, Daigo Terue in comfortable clothes was waiting.</p>
+<p>She used to wear quite revealing dresses, but it seems like she didn't wear such flashy clothes because Oofuchi Erika had been in the house until just now.</p>
+<p>"Welcome, Yamashiro-sensei."</p>
+<p>"Thank you for the invitation, Director-nim."</p>
+<p>After greeting her, I went to the table I was guided to, and there was quite a feast laid out. Of course, the problem was that most of the dishes were for stamina, but I sat down because I roughly guessed why she called me today.</p>
+<p>"Director-nim. Thank you for supporting the after-party of the festival."</p>
+<p>"That was support as Erika's mother, not as the director."</p>
+<p>"Still, I ate well, so I'm grateful for what I'm grateful for."</p>
+<p>"Really? Was it delicious?"</p>
+<p>"Yes, it was a very excellent taste."</p>
+<p>After thanking Daigo Terue for the mantis shrimp she supported, we started lunch. Of course, there was eel, which is a synonym for stamina food, and there was also a salad with yam juice and a steak with black garlic sauce.</p>
+<p>Looking at the menu, it's clear that she's determined to exploit me completely. Looking at it now, the outfit she's wearing looks like ordinary comfortable everyday clothes, but if you look closely, it's subtly sexy.</p>
+<p>She wasn't wearing underwear inside her loose sweater, so when she bowed her head, her cleavage was clearly visible, and when she looked straight ahead, her nipples, already erect with anticipation of the upcoming sex, stood out on the sweater.</p>
+<p>Daigo Terue's smile deepened every time I ate stamina food, and I also licked the whole abalone grilled as a side dish and looked at Daigo Terue.</p>
+<p>"Then... shall we go to the bedroom?"</p>
+<p>By the time the meal was over, Daigo Terue's polite honorifics had changed to casual speech. The fact that Daigo Terue, who always speaks casually during sex, had switched gears to sex instead of normal mode.</p>
+<p>When I nodded, Daigo Terue gave a deep, seductive smile, grabbed my sleeve, and led me to the bedroom.</p>
+<p>______________</p>
+<p>Lisa-ttang bikini, bikini + armpit boast, crop top requested by RefundAbsolutelyImpossible-nim!</p>
+<p>I've only been making tanned skin tone lately, but I like the original skin tone too hehehe</p>
+<p>Knight home teacher, belly button exposure skirt requested by JeongChucky-nim!!</p>
+<p>It's a shame that the knight costume doesn't feel like a knight ㅠㅠ</p>
+<p>Nagumo Sian bikini, mini skirt requested by leafi-nim!</p>
+<p>Her chest is so big that she looks very clumsy when she wears clothes ㄷㄷ</p>
+<p>Sexy witch Nae Fitzgerald requested by ISaveI-nim!!</p>
+<p>Nae mama...!</p>
+<p>Witch costume home teacher, Alik requested by Munyeom-nim!</p>
+<p>Home teacher doesn't wear clothes even if I tell her to....</p>
+<p>Alik is cute....</p>
+<p>USA bikini Lisa, Pikachu pajamas Alik (Pikachu pajamas are not available, so I changed them to Tarakyu pajamas hehe) requested by Giggle-nim</p>
+<p>I don't know why there are Tarakyu clothes but no Pikachu clothes ㅋㅋ</p>
+<p>Moka Sabu requested by Inoegadoegopeun-nim!</p>
+<p>Pajamas</p>
+<p>Lingerie</p>
+<p>Mo character cosplay ㅎ</p>
+<p>I made it as a free theme because you didn't specify a topic ㅎㅎ</p>
+<p>Hero party feeling character requested by Neosblue-nim?</p>
+<p>Sage Karen</p>
+<p>Warrior Sabu</p>
+<p>I couldn't create a scene where several people appear at the same time like a hero party harem, so I took the sage and warrior from the hero party and dressed them in clothes that suit the characters ㅎㅎㅎ</p>
+<p>Witch, mummy costume health teacher requested by Skypeari-nim!</p>
+<p>There were many requests for witch clothes this time, but the nurse teacher suits it the best ㅋㅋㅋ</p>
+<p>Requests that could not be implemented with some AI drawings or that did not have data were excluded ㅠㅠ</p>

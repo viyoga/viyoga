@@ -5,87 +5,57 @@ weight = 956
 chapter = 956
 +++
 
-<p>and breast chapter check contains exposure please surroundings this your</p>
-<p>A day ago, Village A.</p>
-<p>"Tsu, Tsukiyo...! Pl, please spare me...! Still, I raised you until now, didn't I...!"</p>
-<p>A middle-aged man raised both hands above his face and said to the girl approaching him, Tsukiyo. The middle-aged man was the Director of the orphanage Tsukiyo belonged to.</p>
-<p>He was the Director of that orphanage who, in despair, had tried to Rape the girl, Tsukiyo, who was trying to survive somehow, and severed her remaining Will to live.</p>
-<p>The Director saw Tsukiyo brutally Murder one of the orphanage Teachers with a strange power in front of his Eyes and was trembling.</p>
-<p>With both thumbs, after gouging out the eyeballs, and tearing the Head in half, the scene of splitting the Head in half was something the Director couldn't even Imagine in his dreams. It was as if she had Muscle strength far beyond what a living being could produce.... She showed the Appearance of Murdering with a Machine-like power, so he couldn't even dare to defy her.</p>
-<p>Tsukiyo, who heard the Director's Words, without caring about the blood splattered on her Face, looked at the Director and smiled sweetly. It was the Smile of Tsukiyo, a famous beautiful girl in the village, but that Smile only stimulated the Director's fear.</p>
-<p>"Director Father. That's why I'm killing you last. As a Price for raising me, you get to live a few more minutes, isn't that good?"</p>
-<p>The Director couldn't nod his Head at Tsukiyo's Words. He couldn't die yet. Only a few minutes...! But the Calamity named Tsukiyo was not something easy for the Director to refuse just by refusing.</p>
-<p>Tsukiyo looked at the Director and raised her slender Index Finger. And slowly, she extended her Index Finger towards the Director's Face.</p>
-<p>The Director, like a Mouse before a Cat, showed no Movement at Tsukiyo's strange action. He merely, with a terrified Expression, was just staring at the slowly approaching finger.</p>
-<p>Tuk.</p>
-<p>Tsukiyo's slender Index Finger touched his forehead.</p>
-<p>"Thank you for raising me, Director Father."</p>
-<p>Kkwadeuk.</p>
-<p>As much as half a joint of the Index Finger, the finger dug into the skull. With an immense shock, the Director's Eyes were wide open as if they would pop out.</p>
-<p>"Still, in the end, the Price for trying to Rape me, you must pay, mustn't you?"</p>
-<p>"...!"</p>
-<p>Kwadeudeuk!</p>
-<p>With those final Words, the Index Finger pierced through the skull and stirred the Brain. The Director died with his Eyes wide open as if they would pop out.</p>
-<p>Ppok...!</p>
-<p>With a strange sound, Tsukiyo, who pulled out her Index Finger, looked at the blood on her Hand. Her Revenge in this village was complete. But that didn't mean her Revenge was entirely over yet.</p>
-<p>The School Friends who bullied Tsukiyo, and the Parents of those friends who, instead, blamed Tsukiyo and showed a defiant Attitude, the Teacher who abused her for being an Orphan, the indifferent Teacher who ignored the Bullying, the orphanage Teacher who constantly committed Seonghuirong, and even the Director who attempted Rape-she had killed them all, but Tsukiyo's Revenge was not yet over.</p>
-<p>A few Thugs (yangachi) who had bullied Tsukiyo most maliciously and were caught, and transferred to Tokyo, were still remaining. Only by killing all of them would the Revenge of this Body be complete.</p>
-<p>"Ryuta, I want to see you soon."</p>
-<p>Tsukiyo looked at her blood-stained Hand and murmured plaintively. But a promise is a promise. She had to keep the promise with the Owner of this Body. Only by completing her Revenge could Tsukiyo exist as Tsukiyo.</p>
-<p>"Going to Tokyo in advance and waiting wouldn't be bad."</p>
-<p>Before she knew it, the plaintiveness that filled her Voice had vanished as if washed away. What filled the void left by the vanished plaintiveness was chilling Killing Intent (salgi).</p>
-<p>"Since they bothered me, it would be best to make their Revenge as painful as possible."</p>
-<p>Tsukiyo, on the Director's Chest, wiped the blood from her Hand, then took Money from his Wallet, and left the orphanage.</p>
-<p>In the small seaside village, with the blaring sirens of police cars, when the police stormed in, Tsukiyo had already left the village.</p>
-<p>And the mass Murder Incident of 18 People was reported in the News, causing all of Japan to tremble, but that was none of Tsukiyo's concern.</p>
-<p>"Lizhael-nim said that I could look forward to a return gift."</p>
-<p>This time, Hanakame spoke. In fact, when I gave a gift, Lizhael, who had always returned the favor since her Simyeonui ttal days, so I couldn't help but feel expectant too. Moreover, this time, it was the biggest Gift I had ever given to Simyeonui ttal / Lizhael.</p>
-<p>Of course, until Lizhael Digested Takakusaki Gengo's power, I would have to wait a while, but if I thought about the return gift, it would be a worthwhile wait.</p>
-<p>"You said you went to the Hospital today, didn't you? How are the Injuries of the others? No one was seriously injured, right?"</p>
-<p>As we were talking, Urabe Konoka, as if she had just remembered, about the people Hospitalized, asked with a worried Expression.</p>
-<p>"They're fine. The most severely injured one is Kiyohira, the guy whose Arm was severed, but he can get a Cyber Implant.... And the next most severely injured people are those who were stabbed by Takakusaki Gengo's tentacles, and there's some unknown toxicity, so it will take a little more time to recover."</p>
-<p>At my Explanation, Urabe Konoka and Hanakame nodded their Heads. In the past, a severed Arm would indeed have been a very serious wound, but these days, as there are people who intentionally get Cyber Implants, it wasn't considered as serious as before.</p>
-<p>"Ah...!"</p>
-<p>Suddenly, as I was talking about the Poison in Takakusaki Gengo's tentacles, I realized that we also had Poison Experts on our side. They were Dang So-hwa and Kijimoto Jurie.</p>
-<p>Since Dang So-hwa had received several Neo Tokyo construction projects and was busy, if she was excluded due to being busy, it seemed I could ask Kijimoto Jurie to check it once. Since I didn't know when the Blood Doctors (Hyeol-ui) of the Otagi Family would be dispatched, I should contact Kijimoto Jurie, who was nearby.</p>
-<p>"Just a moment."</p>
-<p>As I thought of it, I contacted Kijimoto Jurie. After the battle yesterday, Kijimoto Jurie had obtained Corpse Poison (sidok) from the pile of Corpses in the Donggul (Cave), and immediately disappeared, saying she would research it.</p>
-<p>-Yes~! Yamashiro seonsaengnim~!</p>
-<p>Before the Phone Call even rang once, Kijimoto Jurie answered the Phone Call. Surely she wasn't waiting for my Phone Call all this time? Although the speed at which she answered the Phone Call was a little chilling, I immediately got to the point.</p>
-<p>"Jurie seonsaengnim, I have a Request for you."</p>
-<p>-What is it?</p>
-<p>"In this fight, among the people stabbed by Takakusaki Gengo's tentacles, Addiction reactions appeared. I'd like you to check that."</p>
-<p>-I just need to go to the Hospital, right? I'll go right now!</p>
-<p>The Phone Call immediately hung up. Kijimoto Jurie had a considerable Interest in such Poisons. She was a unique Woman, a Scholar and an Assassin at the same time, but since she was on our side, I felt Sweet Relief. If she were an Enemy, she would be a quite troublesome Opponent.</p>
-<p>I told Kijimoto Jurie to Contact Asada Ei, then looked at Urabe Konoka and Hanakame, who were waiting.</p>
-<p>"Sorry for the sudden interruption. As I thought about it, it occurred to me that we also have Poison Experts on our side. Konoka or Hanakame, is there a Reward you want to receive? You made a great contribution in this battle against Anyaji."</p>
-<p>I asked, looking at the two sitting in front of me. Coming to Urabe Shrine this time wasn't just to check the Reward for the meal or the Gift I gave to Lizhael.</p>
-<p>To the two who made contributions in this battle, asking if they wanted a Reward could be said to be one of the big Reasons.</p>
-<p>"I didn't make any contributions. I merely protected the personnel in the rear."</p>
-<p>Hanakame, with a slightly awkward Expression, waved his Hand and spoke.</p>
-<p>Of course, like Hanakame, one could say he merely protected the rear, but Hanakame, before the battle against Takakusaki Gengo, when Seizawa Shii and Sakagami Rena were struggling in the battle against Anyaji Guardian and Four Heavenly Kings (Sacheonwang) Funayama Seigo, provided crucial Help.</p>
-<p>Also, in the battle against Takakusaki Gengo, because Hanakame protected the rear, many injured People could be evacuated to the rear, and Urabe Konoka, who was supporting from the rear, could also comfortably make contributions.</p>
-<p>"Hanakame also made contributions, so don't be too modest."</p>
-<p>"Then.... After you grant Urabe's Demand, please grant my Demand."</p>
-<p>At Hanakame's Words, I nodded my Head. In fact, Urabe Konoka, for whom Hanakame yielded the lead, did play a decisive Role in this battle.</p>
-<p>Urabe Konoka shot an Arrow, preventing Takakusaki Gengo from absorbing all of Fujigasaki Rinka's Abyss, thus he could not fully transform into an Outer God (Oeisin), which allowed us to achieve Victory in this fight.</p>
-<p>Along with Konoe Akina and Alik, who helped destroy the Cliff Shrine, Urabe Konoka could be called the top contributor to this battle.</p>
-<p>"Eh, Eht...! M-me?!"</p>
-<p>Urabe Konoka, as the Gaze suddenly focused on her, seemed a little flustered, and asked back, "Me?"</p>
-<p>"Yes, since Urabe is one of the People who made the biggest contributions in this fight, tell me what you want."</p>
-<p>"Then...!"</p>
-<p>Urabe Konoka tried to say something, but then closed her mouth. It seemed she was too shy to say something. What was she trying to say, hesitating like that?</p>
-<p>Hanakame, who was blushing and couldn't say anything, looked at that Appearance, laughed, and then approached me. And grabbing my Large Penis (geogeun) in my Groin, he Whispered into my ear.</p>
-<p>"Urabe wants your Husband's Penis (yukbong)."</p>
-<p>Hanakame Whispered, but because he was so close, it seemed Urabe Konoka heard it too, and her already flushed Face turned crimson. Urabe Konoka, who heard that Whisper, didn't deny it, so it seemed Hanakame's Story wasn't wrong.</p>
-<p>Tsukiyo B-cut!</p>
-<p>Requested by TheDreaming-nim: Sakagami Rena in the warehouse. 1. Tied with Rope (batjul)~! 2. Handcuffed~!</p>
-<p>1.</p>
-<p>The Scene of her hanging in empty space seems to have only appeared once by chance haha.</p>
-<p>2.</p>
-<p>For the second Illustration, since the Compositions are all similar, I'm only uploading two images haha.</p>
-<p>Requested by MidNightSKY-nim: 1. Shii surprised by the value displayed on the Monitor while holding a grip strength measuring sponge~! 2. Liz happily eating the Dessert received as an offering~!</p>
-<p>1.</p>
-<p>Because the sponge created foam, it felt like I came to clean and ended up finding an Erotic video haha.</p>
-<p>2.</p>
-<p>Because it was hot, the Dessert theme was ice cream haha.</p>
+<p>"I've been waiting. Come in quickly."</p>
+<p>Seido Omina, who heard Tsukiyo's Words, was flustered. She thought, 'How did she know we were coming?' but like a skilled Investigator, she didn't show it and entered Inside the House.</p>
+<p>However, Kahei Jingoro, having synthesized various situations, inwardly believed there was an eighty percent chance the Target was aware of them, so he wasn't particularly surprised by Tsukiyo's Words.</p>
+<p>"Did you know we were coming?" "Yes, I didn't exactly think you would come, but didn't you come here after seeing some 'traces' I left behind? Ordinary police wouldn't be able to find me, and I thought there would be an Organization in Japan that handles such Incidents. Or a special team within the police."</p>
+<p>At Kahei Jingoro's Words, Tsukiyo gave a surprisingly detailed Explanation. Tsukiyo thought there would be an Organization in Japan that manages Paranormal Phenomenon, not the police, and had left clues that the police wouldn't be able to see.</p>
+<p>The Aura left on the Corpse, or even the Memory remaining on the object that was excessively clear for a psychometrist to see, all were deliberately left by Tsukiyo.</p>
+<p>The clues left by Tsukiyo were confirmed by the Paranormal Phenomenon Management Bureau investigation team, and they eventually came this far; Tsukiyo had led the investigation team through all of this with meticulous Calculation.</p>
+<p>"If it were you, you might have found me quickly with the clues I left, but the police, who only thought it was a Murder case, bought me Time well. During that Time, I was able to carry out this 'body's' boksu without interruption."</p>
+<p>Calculating even the Time wasted by the police investigation, Tsukiyo had completed 'Sato Tsukiyo's' boksu without interruption.</p>
+<p>"That body.... Did you take it?"</p>
+<p>Kahei Jingoro, since the topic of the body came up, asked about the body. It was a Question that had to be asked, now that he knew there was another Existence inside that body. If it was a spiritual Entity that could freely take bodies? Kahei Jingoro was thinking of pressing the highest-grade emergency button and committing suicide.</p>
+<p>"It's more accurate to say I saved her rather than took her. This kid tried to commit suicide by falling into the Sea. I also have a Purpose, so I helped her with her boksu and in return, used her Body for a while."</p>
+<p>They felt Relief at the Words that she saved her, not took her, but at Tsukiyo's last Words that she used it as a Price, Kahei Jingoro and Seido Omina swallowed their saliva and felt Taut Tension.</p>
+<p>What exactly could be the Purpose of such a cunning divine Existence, capable of calculating all these situations? They couldn't Guess what that Purpose was at all, but if that Purpose was something bad for humans, could they really stop this god? Because that thought came to mind.</p>
+<p>"Ahahaha. Don't worry. The Purpose is nothing special."</p>
+<p>Tsukiyo laughed loudly, looking at the two who were tense. And she waved her Hand, telling them not to worry, but still, the two couldn't relax their Taut Tension. Because she might say, "Don't worry, my Purpose is just to be offered about 100,000 lives~!" From the start, the standards of that Existence and human standards could not be the same.</p>
+<p>"Even if I say it's nothing special, you’re not relaxing your taut tension. You there, if you’re a Shrine Maiden, you’d understand well, right? You know well about the 'Divinity’s Division (神格の分化)', don’t you?"</p>
+<p>Tsukiyo pointed at Seido Omina and spoke. Seido Omina nodded her Head at Tsukiyo's Words.</p>
+<p>"As generations pass, the role of a god changes, or when a god ascends to a higher rank, isn't it when one 'Divinity' (位: a unit for counting gods) becomes two Divinities?" "You can roughly say something similar happened to me. The Kids who originally served me are now serving another god, so I came to meet them."</p>
+<p>Seido Omina immediately understood what was happening from Tsukiyo's Explanation. The Solution to this Matter was simple. However, as an Investigator, Seido Omina couldn't make a Decision on what to do, so consultation was needed.</p>
+<p>"Can the two of us talk for a moment?" "Anytime."</p>
+<p>Seido Omina and Kahei Jingoro came Outside the House for a moment. Kahei Jingoro was listening, but because he hadn't fully understood The Situation, he looked at Seido Omina as if telling her to explain.</p>
+<p>"So, you roughly understand the story of Divinity's Division I just told you, right?" "Roughly, as you said...." "To simply explain the Solution, that god is currently without a Home. So, if we call the relevant priests and build a shrine for them, the Matter will be over. However, I can't make that Choice, can I? We are Investigators, not decision-makers."</p>
+<p>For an Incident where as many as twenty-one people died, the Solution seemed easy. However, since the Paranormal Phenomenon Management Bureau might want something else instead of this Solution, Kahei Jingoro nodded his Head and immediately Contacted Kuroda Ouji, the person in charge.</p>
+<p>"...Understood."</p>
+<p>Kahei Jingoro, who had been making a Report for a while, nodded his Head and then ended the Call.</p>
+<p>"What did he say?" "Club President Kuroda also said he would ask the Director-General. He seemed rather disheartened because the Solution was simple."</p>
+<p>Seido Omina asked with a slightly anxious Expression. If the Solution she proposed were to be rejected, she didn't want to Imagine what would happen next. She would have to face that powerful and even intelligent god-of course, it would be the subjugation team, not the investigation team-but there was a high Possibility that even she, who didn't grant the god's Request, would suffer harm.</p>
+<p>However, contrary to Seido Omina's Expectation, even Club President Kuroda Ouji of the investigation department couldn't make an immediate Decision, so he decided to ask the Director-General of the Japan Paranormal Phenomenon Management Bureau about the Solution to this Incident.</p>
+<p>"...."</p>
+<p>After waiting a little like that, the Phone Call rang, but it was a Phone Call from Director-General Iwanu Sadakake, not Kuroda Ouji.</p>
+<p>-Can we control that individual?</p>
+<p>"No. It is a divine Existence and its intelligence is superior to anything else. It planned all these situations. Even our meeting. If we try to control it unnecessarily, great harm is expected in Japan."</p>
+<p>Kahei Jingoro also felt Tsukiyo's danger like Seido Omina, so he flatly said no to the Director-General's Question. A strong Existence could be controlled, but a cunning Existence could not. If that cunning Existence possessed power, merely trying to control it could become dangerous.</p>
+<p>-Yes. As soon as I asked if it could be controlled, an enormous sense of unease swept over me. Use the Solution the investigation team found to send that Existence back to their World.</p>
+<p>Because Director-General Iwanu Sadakake's precognitive superpower was a famous Story even within the Paranormal Phenomenon Management Bureau, Kahei Jingoro nodded his Head, thinking his thoughts were correct. And after answering, "Understood," he hung up the Phone.</p>
+<p>"I got permission. Let's go with your Solution." "Good."</p>
+<p>The two, having received permission from above, went Inside the House again. Inside the House was still full of Blood Scent, but because they had already received permission for the Solution, there wasn't the same level of Tension as when they first entered.</p>
+<p>"Th-then, who should I call?" "If you call one person who is with Konoka of the Urabe Family to me, the Matter will be resolved well."</p>
+<p>Ah, it's the Urabe Family. Seido Omina heard the name Urabe and inwardly let out a Sigh of Relief. If they brought Shrine Maidens or priests and said they had no Money to build a shrine, they would have to endure the anger of this unknown god named Tsukiyo, but if it was the Urabe Family, they would have the Money to build a new shrine.</p>
+<p>For reference, Seido Omina, unlike the Urabe faction that serves Susanoo, was a shrine maiden who served Tsukuyomi (月読).</p>
+<p>'By the way, if the name were Tsukiyo (月夜), it would suit us well.'</p>
+<p>Of course, it was the name of the Body possessed by this unknown god, but Seido Omina felt a bit regretful. She thought that if it had the same 'Moon' (月) character, it would be more fitting for the Tsukuyomi side. At the same time, she found the contact information of a high-ranking person from the Urabe side on her phone and made a call.</p>
+<p>"Hello? Yes, I apologize for the late hour, but...."</p>
+<p>Seido Omina roughly informed them of what had happened so far. Due to the nature of the Work that required solving various Paranormal Phenomenon, the Paranormal Phenomenon Management Bureau maintained a quite strong Relationship with the shrine side, so she was able to explain this Incident well without hiding anything.</p>
+<p>"Oh, is that so? Thank you...!"</p>
+<p>Seido Omina thanked them and hung up the Call with the Urabe person. And looking at Tsukiyo, she smiled and opened her Mouth.</p>
+<p>"They said they would send them as quickly as possible." "Really? That's good. Oh, and...."</p>
+<p>She smiled, saying it was good that the Shrine Maidens who had served her in the past were coming, then Tsukiyo soon became serious. And she pointed at herself, but not knowing what she meant, Seido Omina and Kahei Jingoro stared blankly at Tsukiyo.</p>
+<p>"I quite liked the owner of this Body. So I'm going to make her my Shrine Maiden. So, will you make sure she doesn't get sent to prison for killing people?"</p>
+<p>Kahei Jingoro and Seido Omina looked at each other at Tsukiyo's Words. Anyway, a fake culprit had already been decided to be the culprit of this mass Murder Incident, so it seemed there would be no Problem in granting this Request. All the deceased were also extremely vicious. The two, having reached a conclusion with just a Gaze, nodded their Heads at Tsukiyo as if they understood.</p>
+<p>"That's good. Then, while we wait, shall we order something to eat?"</p>
+<p>Even while in the blood-stained living room, she seemed to have an Appetite. Since the two had no intention of eating a Meal here, they said the Shrine Maidens would arrive soon and postponed Tsukiyo's meal.</p>
+<p>Requested by Gojoy-nim, Yang Seol-hui belly dancer, Tape~! Belly dancer~! Tape~! Requested by MidNightSKY-nim, Ryuta wielding Genesis Chaos as a Sword, and Shii who broke the Wall with her finger~! Ryuta first~! The entire thing, including the Handle, changing into Energy, has a huge randomness, so it doesn't appear much hehe. Shii~! Bonus~! Shii who breaks the Wall with her breast and says you'll get scolded if you point with your finger and speak hehe. Mid-Boss Alik in a frill dress making a V-sign next to her eye~! I used a frill dress prompt, but the frills didn't appear as much as I thought hehe. Ppyu</p>

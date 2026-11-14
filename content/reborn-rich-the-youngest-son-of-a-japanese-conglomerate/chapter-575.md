@@ -5,89 +5,67 @@ weight = 575
 chapter = 575
 +++
 
-<p>There are no explicit illustrations, but there is some suggestive content!</p>
-<p>,Yamashiro-sensei, the favor you've done for me is by no means small. You eliminated the Black Dragon, severing our family's misdeeds, and even saved my daughter."</p>
-<p>Naruse Koyou, sitting in his wheelchair, bowed respectfully as he listed my accomplishments one by one. I wondered why he didn't mention the story of making him the head of the family, but it seemed he didn't have much ambition in the first place.</p>
-<p>In the end, it seemed that Naruse Koyou became the head of the Naruse family to eliminate the family's misdeeds, as he said, the evil practice of offering a girl to the Black Dragon every six years, and to save his daughter, Naruse Shiyo.</p>
-<p>,Please allow me to repay your kindness."</p>
-<p>,There is something I want from the Naruse family."</p>
-<p>I didn't hold back and honestly said that there was something I wanted from the Naruse family. I was going to skip the tedious back-and-forth and just say what I wanted. Yukiko was waiting, and I really thought, 'The reward is fine,' but they might say, 'Oh, is that so?' so it would be better to say it without hiding.</p>
-<p>,That's a relief! What is it that you want?"</p>
-<p>Naruse Koyou looked very pleased when I said I wanted something. I had done him a favor, but why was he so happy to give me a reward?</p>
-<p>,First of all, I'm planning to create an intelligence team. Please dispatch a few basic shikigami (familiar spirit) instructors so that the intelligence team can learn."</p>
-<p>You might ask, "Why shikigami for an intelligence team?" But according to Sakagami Rena, all Onmyoji (spiritual diviner) families have considerable intelligence capabilities. The reason for this was the shikigami they used. It was possible to collect information by flying paper shikigami, which is a basic shikigami technique, to the desired location. A more skilled Onmyoji could even collect information by using small animals undergoing yokai (supernatural beings) transformation.</p>
-<p>Sakagami Rena knew that I wanted to build an intelligence team, so she made this recommendation.</p>
-<p>,That's not too difficult. I don't know if I can say that I've repaid your kindness with that..."</p>
-<p>Even though it was a transfer of the family's techniques, even if it was just basic shikigami techniques, Naruse Koyou was still trying to give me more, saying it wasn't enough. How much were you planning to give me? Then I could even say what Sakagami Rena told me to try asking for?</p>
-<p>,Then, I have a hobby of collecting art and antiques, so could I receive an ancient book or antique from the Naruse family?"</p>
-<p>This was the second reward Sakagami Rena recommended, as I had obtained a technique from a hanging scroll I got from the Daigo family before. She said that it would be much better to get one of the items collected by the Naruse family, an Onmyoji family, than money.</p>
-<p>,I understand. However, those items are in the main family's warehouse in Kyoto, so I will invite you separately."</p>
-<p>,Yes. I understand."</p>
-<p>Of course, the mansion in Miyashi here can be said to be a villa, so they wouldn't keep useful items here. I accepted the promise to be invited next time and got up from my seat. Seeing Naruse Koyou's expression, it seemed like he had something more to say, so I asked him why as I stood up.</p>
-<p>,Is there anything else you would like to talk about?"</p>
-<p>,Um... I wasn't able to inherit all of my father's shikigami this time, so the family is having a bit of a hard time. Could you help me a little?"</p>
-<p>I heard that some shikigami had disappeared before he inherited them. Given the nature of Onmyoji families, where most of the power of the family is concentrated on the head of the family, the weakening of the head of the family could lead to checks or attacks from other families. It seems that we weakened him because of the shikigami we killed without knowing, so I should help him. If I can get the support of the Naruse family, it could be of considerable help in the Taira throne war later.</p>
-<p>,We're not strangers, so if there's anything I can do to help, I will."</p>
-<p>,Thank you...!"</p>
-<p>I received Naruse Koyou's thanks and headed to where Yukiko was waiting. I wondered if she would be with Naruse Shiyo, but only Yukiko was waiting for me in the reception room.</p>
-<p>,Where is Naruse Shiyo?"</p>
-<p>,Oh, she fell asleep. The adaptation process is quite exhausting."</p>
-<p>It was still early to fall asleep, but it seemed that the adaptation process was quite tiring.</p>
-<p>Now that I had nothing else to do, Yukiko and I left the Naruse family's mansion right away. The butler who greeted us when we first came in saw us off again this time. Naruse Koyou also came in his wheelchair and greeted us. I'm his benefactor, but it's a bit burdensome to see a sick person like that.</p>
-<p>,Is this the first time you've driven this car?"</p>
-<p>,Is it? I couldn't drive the car I used to drive under the identity of Yamashiro Ryuta."</p>
-<p>The car I used to drive was an SUV like a Hummer, but now I couldn't drive that car, so I was driving a foreign sports car I received from the family. Yukiko had never ridden in this car when she met me, so she looked around the car as if it were new.</p>
-<p>,So, where do you want to go?"</p>
-<p>,Um... I want to go to the school where Ryuta works."</p>
-<p>Was she curious about the school...? I nodded at Yukiko's words and drove to the school.</p>
-<p>It was evening when the sun was setting, and students who had finished their club activities were returning home. There were quite a few students leaving school, so I checked with the kids just in case, and it seemed that they decided to take a break from club activities today because I wasn't there. It was fortunate for me in my position to visit the special class building with Yukiko, but I wondered if they really needed me to write the Date Experience Club's magazine.</p>
-<p>,Our class is a special class with kids who are physically weak, often absent, or troublemakers, so it's in a different building."</p>
-<p>,Oh, really? Is that the building?"</p>
-<p>I explained the school to Yukiko as we walked, and soon we arrived at the special class building. First, I showed Yukiko the education preparation room where I mainly stay. Yukiko went inside the education preparation room and looked around the seat I use.</p>
-<p>,I usually prepare for class here, or study for the certifications I'm doing now."</p>
-<p>,It's quite spacious. Do you use it alone?"</p>
-<p>,Until recently, there was an assistant teacher, but she was a student teacher, so her term ended and I use it alone now."</p>
-<p>Yukiko, who smiled mischievously at my answer, approached me and stroked my crotch, whispering in my ear. Yukiko's sweet scent wafted over me, and her breath tickled my earlobe.</p>
-<p>,Did you sleep with that student teacher too?"</p>
-<p>,...Yes."</p>
-<p>For some reason, I couldn't lie to Yukiko. After hearing my answer, Yukiko gently rubbed my glans over my pants a few times with her palm, then stepped away again.</p>
-<p>,Shall we go to another place in the building this time?"</p>
-<p>,Okay."</p>
-<p>Yukiko said, leading me by the hand, and I awkwardly followed Yukiko in an erect state. Yukiko saw my awkward appearance and smiled with a devilish expression, "Ufufu."</p>
-<p>The next place we went was the nurse's office diagonally across from the education preparation room. Of course, Kijimoto Jurie, who had no students to treat because all the students in the special class had left school, had also left work.</p>
-<p>When I entered the nurse's office, the scent of medicine unique to the nurse's office and Kijimoto Jurie's scent brushed past my nose.</p>
-<p>,Heung, heu-heung~♪"</p>
-<p>Yukiko hummed and looked around the nurse's office, then sat on the nurse's office bed, which could almost be called Naruse Shiyo's designated seat. Yukiko patted the seat next to her as if telling me to sit next to her.</p>
-<p>When I sat next to her, Yukiko started whispering in my ear again. This time, she stroked my half-soft penis and teased me.</p>
-<p>,Did you do it with the school nurse here too?"</p>
-<p>,Keueut! Yes, I did...!"</p>
-<p>,Our Ryuta, you're such a pervert♥"</p>
-<p>This time, Yukiko bit my earlobe once and then got up from her seat again.</p>
-<p>,Show me the club room this time~!"</p>
-<p>Is she tormenting me because I've been with a lot of other women? I adjusted the position of my stiffly erect penis as I watched Yukiko's back as she left the nurse's office, and then followed Yukiko out of the nurse's office.</p>
-<p>I held Yukiko's hand and headed to the club room on the second floor, and as soon as I opened the door, Yukiko looked at the club room and exclaimed, "Wow~!"</p>
-<p>This was because the club room was so well decorated. A super-large TV was hanging on one wall, the kitchen had a top-of-the-line refrigerator, and the sofas were worth millions of yen, so it was natural for Yukiko, who came from a regular high school, to be surprised.</p>
-<p>,Looking at the club room, I realize that this is St. Francisco Girls' Academy. It's so famous as a prestigious girls' school that I had a feeling of longing?"</p>
-<p>,You longed for it?"</p>
-<p>,Yeah, a little?"</p>
-<p>It seemed that St. Francisco Girls' Academy was quite famous during Yukiko's school days. Yukiko also looked around the club room and looked at this and that as if she was curious, then opened the refrigerator and took out a pudding.</p>
-<p>It was the vanilla caramel pudding that Seizawa Shii had recently become addicted to. Hmm, I should fill it up when I go to work tomorrow. If it disappears, she'll make a fuss trying to find the culprit.</p>
-<p>,Ah~!"</p>
-<p>Was she trying to feed me instead of eating it herself? Yukiko smiled brightly and scooped up a spoonful of pudding and brought it to my mouth. As I ate the pudding, Yukiko ran to me and started kissing me.</p>
-<p>Tsu-eup, chu-eup, chu-beup, jjok...!</p>
-<p>Yukiko, who had been kissing me until the pudding in my mouth disappeared, took her mouth off with a "Puha" and looked at me with hazy eyes.</p>
-<p>,As expected, Ryuta's lips are sweet♥"</p>
-<p>My penis, which had become erect again from the kiss, was throbbing, but Yukiko got up from her seat again and poured all the remaining pudding into her mouth.</p>
-<p>,I've eaten all the snacks, so will you show me the classroom now?"</p>
-<p>It seemed that she was completely determined to dry me up. After sighing for a moment, I took Yukiko and went back to the first floor and entered the classroom.</p>
-<p>,The classroom is no different from other schools?"</p>
-<p>,That's right. It's also a school with a long history. They often redecorate the interior, but it's not much different from other schools."</p>
-<p>Yukiko ended her impressions of the classroom briefly, as if she wasn't as impressed as she was with the club room earlier.</p>
-<p>,Turn around for a moment."</p>
-<p>,Yes? Yes."</p>
-<p>What is she trying to do this time? I turned around for a moment as Yukiko said. Not even 10 seconds after I turned around, I turned around at Yukiko's words to turn around again.</p>
-<p>Yukiko was wearing the uniform of St. Francisco Girls' Academy in her original form. Yukiko, blushing and smiling, looked at me and opened her mouth seductively.</p>
-<p>,Sensei, please hug me♥"</p>
-<p>------------------</p>
-<p>Yukiko B-cut!</p>
-<p>I like how big her breasts look even when she's wearing a uniform, hehehe.</p>
+<p>Inevitably, I ended up wearing the Hanbok the students had prepared for me on the bus. Once I said, "I'm done," Kujo Kina, who had been shielding me with a screen, removed it again. The students, after seeing me in my Hanbok, nodded at each other.</p>
+<p>"It's not over yet."</p>
+<p>Seizawa Shii was holding something in her hand, and upon closer inspection, it was a manggeon, the headband used when putting hair up in a topknot. Seriously, it's not like I'm filming a historical drama, why do I need to wear a manggeon? Surely, they didn't prepare a gat (traditional Korean hat) to wear on top of it, did they? No, wait. Now that I think about it, it might be better to wear the gat rather than just the manggeon.</p>
+<p>The special class girls gathered around me and put the manggeon on me. They skillfully put it on, as if they had watched videos and practiced. When I asked how they were so good at it, they said they practiced on mannequin heads. Then, after arriving near Gyeongbokgung Palace and getting off the bus, they even put the gat on me.</p>
+<p>"You look like a handsome villain from a Korean historical drama!"</p>
+<p>"Yeah, not exactly protagonist material. Is it because you give off a dangerous vibe?"</p>
+<p>"Ryuta, did you appear on TV?"</p>
+<p>"Like a villainous second male lead who's obsessed with the female lead?"</p>
+<p>Everyone had something to say after seeing me in the Hanbok, manggeon, and gat. After hearing their comments, it seemed like I looked like a charming villain who's popular with the ladies, but not the main character. I was curious as to why they were so eager to dress me up in a Hanbok, so I asked. Seizawa Shii said that a fantasy romance historical drama came out in Korea at the beginning of the year, and it was quite popular in Japan. If it was at the beginning of the year, I was probably still adjusting after being possessed, so there's no way I would have seen it.</p>
+<p>Beyond the special class girls who were fixing my clothes and hat around me, Minamoto Risa, holding a camera, smiled at me. Something about this composition is creepy....</p>
+<p>"Hehe.... You ditched us yesterday, so you're going to have to hang out with us today."</p>
+<p>I was curious about how many photos of me they were planning to put in the club's anthology, but I couldn't bring myself to ask. In the end, I had to keep taking pictures with the special class students and other students I met while walking around.</p>
+<p>This is more tiring than fighting this morning. I had to suffer through photo shoots until lunchtime, when we had free time by class. I didn't count, but I think I took over a thousand pictures.</p>
+<p>After the Gyeongbokgung Palace tour and enjoying a traditional Korean meal nearby, we changed clothes and took a short break on the bus before receiving our free sightseeing time by class.</p>
+<p>This free sightseeing time was quite long, from after lunch until we had dinner and returned to the hotel before bed, which meant the special class students had to have a pretty long discussion. Everyone wanted to go to different places, but since it was free sightseeing time by class, they couldn't move separately and had to move together as a class, so it was natural that there were conflicts of opinion.</p>
+<p>Unexpectedly, Seizawa Shii and Minamoto Risa, who are close friends, wanted to do different things and clashed. Seizawa Shii, a gyaru who's very interested in appearance, wanted to enjoy Korean cosmetic tourism, while Minamoto Risa, a closet otaku, wanted to experience a slightly more static tour like a Korean VR PC room. There were other sightseeing spots that each of them wanted, so it took quite a while to sort things out.</p>
+<p>In the end, because of the limited time, they couldn't do all the sightseeing that the students wanted, so they decided on the schedule through a simple and fair game of ladder climbing. Seizawa Shii's Korean cosmetic experience and Uenozono Karen's Korean agency experience were chosen.</p>
+<p>Cosmetics is a general term for things that make the body beautiful, such as makeup, so Seizawa Shii's Korean cosmetic experience and Uenozono Karen's Korean agency experience were somewhat connected.</p>
+<p>So, after shopping at a large cosmetics store this time, the schedule naturally connected to going straight to Uenozono Karen's Korean agency to receive Korean-style makeup and have an experience.</p>
+<p>Once we entered the cosmetics store, even Minamoto Risa, Kujo Kina, and Shido Tsubaki, who hadn't been very enthusiastic about this tour at first, were frantically buying things. I wondered if I should buy something too, so I was looking around when a pretty decent clerk approached me and spoke to me.</p>
+<p>"Are you looking for anything in particular?"</p>
+<p>"Could you pick out some whitening products for me?"</p>
+<p>I periodically tan to maintain my appearance as a teacher at St. Francisco Academy for Girls, but I don't really prefer tanned skin. So I asked if there were any whitening products I could use after this mission was over.</p>
+<p>"Ah, are you Korean?"</p>
+<p>"No. I'm a Korean language teacher."</p>
+<p>"Ah, that's why your Korean is so fluent...!"</p>
+<p>As a famous store with many tourists, the part-timers could speak basic Japanese, Chinese, and English. Perhaps because I was with the special class students, she asked me in Japanese, but she was very surprised when I answered in Korean. It was a fluent way of speaking that anyone would consider Korean.</p>
+<p>"Ah! Ryuta-cchi, how could you play around with another woman and leave us behind!"</p>
+<p>While I was getting recommendations for cosmetics from the part-timer, Seizawa Shii, who had found me while shopping, shouted. Playing around.... That sounds weird.</p>
+<p>"Playing around...? I just got some cosmetic recommendations."</p>
+<p>"But you were getting too close~!"</p>
+<p>Seizawa Shii ran up to me, put her arm around mine, and glared at the part-timer. She was pretty enough that even this kind of troublemaking was worth watching, but the part-timer, as if the best thing to do was not to engage, apologized and quickly left.</p>
+<p>"Hehehe...☆ I defeated her. I did well, right?"</p>
+<p>Seizawa Shii looked around at the other special class students and spoke, and half of them nodded, while the other half shook their heads as if they were dumbfounded. Half of them agreed with Seizawa Shii, so it seemed like there were quite a few students who had a sense of ownership, like, "Yamashiro Ryuta is our teacher!"</p>
+<p>"Defeated? Is the store clerk an enemy?"</p>
+<p>"Ryuta-cchi, that's because you're a guy. In my opinion, she was wagging her tail and trying to seduce Ryuta-cchi, you know?"</p>
+<p>Hmm.... She was definitely kind, but.... I whispered to Seizawa Shii, so only she could hear, to tease her as she was getting heated up in front of me.</p>
+<p>"Were you jealous because your favorite teacher was talking happily with another woman?"</p>
+<p>Paak!</p>
+<p>"R, Ryuta-cchi, you idiot...!"</p>
+<p>At my words, Seizawa Shii's face turned red and she kicked me in the shin. She kicked me so hard that my regeneration ability was activated for a moment. As I suspected before, she's incredibly strong. I almost groaned without realizing it because of the sudden pain.</p>
+<p>There were several commotions, but the shopping ended without any major problems, and we headed to Uenozono Karen's agency, Hyper Entertainment. Of course, before going there, I had to give banana milk to the special class students to relieve Seizawa Shii's sulkiness or embarrassment, I don't know which, but anyway, to relieve her pout.</p>
+<p>Fortunately, Seizawa Shii liked the banana milk and quickly cheered up.</p>
+<p>Uenozono Karen was humming a song, as if she was happy even though it was an agency she went to often. Uenozono Karen, who was famous in both Korea and Japan, was wearing a simple ponytail and glasses instead of her trademark twin tails to disguise herself. It suits her too.</p>
+<p>When we arrived at the agency, the manager of Serif, the group Uenozono Karen belongs to, and the scout team leader, who was a pretty high-ranking person in the agency, came out to greet us.</p>
+<p>By the way, a scout team leader.... Did they come to scout our class? It won't work.</p>
+<p>About half of the special class was going to follow me after graduation, and I wanted to solidify the rest as well. As their homeroom teacher, I had been working hard on career counseling, so I knew what the kids wanted, and except for Uenozono Karen, who was already an idol, none of the students wanted to become celebrities.</p>
+<p>"Since you said you wanted to have a makeup experience, we'll go to the makeup room that Hyper Entertainment is proud of."</p>
+<p>Following the manager's guidance, we arrived at a large room with mirrors and luxurious chairs lined up, filled with the scent of women's powder. There was a guest there, and I saw a very familiar back.</p>
+<p>A voluptuous beauty with wavy, light brown hair. It was Ha Ju-yoon. Ha Ju-yoon looked at me in the mirror with a surprised expression and winked. She said she was going to surprise me, was this what she was talking about?</p>
+<p>Some of the special class members looked at Ha Ju-yoon with admiration. Her recent American drama was a big hit, and the Korean drama she filmed before that was also quite popular in Japan, so it seemed like some of them had become fans.</p>
+<p>"Hello, Sunbae-nim."</p>
+<p>Uenozono Karen approached Ha Ju-yoon and greeted her politely, calling her Sunbae-nim. As expected of the entertainment industry, it seemed like they valued the relationship between seniors and juniors. Ha Ju-yoon smiled and accepted the greeting and also greeted us.</p>
+<p>"Nice to meet you, Karen's friends. Karen is a junior I cherish."</p>
+<p>Ha Ju-yoon, with a languid but seductive smile, got up from her seat as if all her makeup was finished. Otaki Yuka, Shido Tsubaki, and Seizawa Shii seemed to be fans and approached Ha Ju-yoon to take selfies with her, but Ha Ju-yoon didn't look at me even once during that time.</p>
+<p>Of course, it would be difficult if Ha Ju-yoon pretended to know me here, but I was a little disappointed that she didn't even acknowledge me at all. She could have at least said, "Are you Karen's homeroom teacher?" To relieve this disappointment, I'll have to torment her at night later.</p>
+<p>________</p>
+<p>Second requested Hanbok pics!</p>
+<p>Oofuchi Erika~!</p>
+<p>Sakagami Rena~!</p>
+<p>Naruse Shiyo!</p>
+<p>Alik~!</p>
+<p>When I was trying to make a two-person pic of Lisa and Shii, an error suddenly occurred</p>
+<p>It came out like this and didn't work well, so that's it for today~! hehe I'll upload the rest of the requested Hanbok pics tomorrow!!</p>

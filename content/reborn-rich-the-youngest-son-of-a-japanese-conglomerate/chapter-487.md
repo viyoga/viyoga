@@ -5,85 +5,70 @@ weight = 487
 chapter = 487
 +++
 
-<p>"I, is that really okay?"</p>
-<p>A new recruit of PMC Green Dragon, under Ryuto Construction, muttered while watching President Dang So-hwa confidently walk into the building alone.</p>
-<p>Dang So-hwa leisurely walked in, wearing only her cyber suit without a gun or sword. To the new recruit, who didn't know much about Dang So-hwa, it seemed like his boss had gone crazy. The cyber suit wasn't cheap, but it was for defense, not offense.</p>
-<p>"Is this your first mission?"</p>
-<p>A Sunbae, who he heard was from the infamous Kurotsuki-doo, a huge Chinese corporation, spoke to him in awkward Japanese. The new recruit, regretting opening his mouth, replied with a slightly intimidated expression.</p>
-<p>"Yes! It is. I'm just worried...."</p>
-<p>"Hehe, your worries are no different from a rabbit worrying about a tiger. We just need to easily deal with the prey that jumps out in fear when the tiger shakes the forest. If you don't believe me, just stand there and watch the power your boss possesses."</p>
-<p>With those words, the Sunbae looked at Dang So-hwa. Before he knew it, Dang So-hwa was standing at the entrance of the Toyo Construction building. The building's entrance was tightly closed. It wasn't the usual glass door, but a steel door like a shutter, firmly shut.</p>
-<p>The moment Dang So-hwa casually extended her empty hand towards the steel door, an ominous green aura rippled out like concentric circles.</p>
-<p>Wuung!</p>
-<p>The steel door melted in the shape of the concentric circles, and the area around the entrance beyond the door was also melted and destroyed. A semi-circular entrance was newly created, and Dang So-hwa entered as if someone had opened the door for her.</p>
-<p>"Are you still worried...?"</p>
-<p>"Ah, no! As Sunbae-nim said, the President is really a tiger."</p>
-<p>"Not just any tiger, but a very ferocious one. The reason we can talk so comfortably is...."</p>
-<p>Pakang!!!</p>
-<p>Glass shattered and scattered from the second floor along with green poisonous smoke. It was because of several men who jumped out of the window to avoid the poisonous smoke.</p>
-<p>Pyoote! Pyoote!</p>
-<p>The Green Dragon members surrounding the building nonchalantly shot the fallen men with silenced pistols. They had already bought their tickets to hell by inhaling the poisonous smoke, so there was no need to shoot, but the bullets contained both confirmation and mercy.</p>
-<p>"If the Captain steps up, all we can do is confirm kills like this."</p>
-<p>At the Sunbae's words, the new recruit looked at the building with a look of horror. Dang So-hwa was already on the 6th floor. Even though it was a height where they would die if they fell, people were still breaking windows and falling.</p>
-<p>'How terrified must they be....'</p>
-<p>The new recruit thought. The enemies were so terrified of Dang So-hwa that they would rather jump from the building than die from the poisonous smoke.</p>
-<p>From the 10th floor and above, there was no need to confirm kills. The people who jumped had their heads crushed like watermelons.</p>
-<p>Before he knew it, on the 12th floor, just before the last floor, the 13th, green smoke exploded. This time, it wasn't people breaking the windows. It was because of the powerful energy that broke the glass.</p>
-<p>###</p>
-<p>Dang So-hwa looked at the man in front of her. A man with a thick beard and dark eyebrows. With an enormous neck and mountain-like trapezius muscles, his bulging muscles seemed to be tearing his clothes. Just by looking at him, he was a different level from the former Yakuza who had fought their way up to the 12th floor.</p>
-<p>"You.... You don't seem to belong here?"</p>
-<p>"I'm not affiliated here. I just received a request."</p>
-<p>It was a heavy voice. He was definitely a different kind of man than the Yakuza rabble. The man also realized that Dang So-hwa was no ordinary person and began to reveal his name.</p>
-<p>"I am Kazato Koshin of the Anya-ji (Dark Night Temple) Sixteenth Division. I think I can reveal my name to you."</p>
-<p>If it were Taira Ryuta, he would have known Anya-ji, the enemy of the Ryu-ha, but Dang So-hwa, who didn't know the story yet, only tilted her head. If it's a temple (ji), why is a monk here? she thought.</p>
-<p>Of course, the man in front of her didn't look like a monk at all. Instead of monk's robes, he was wearing a dobok worn by martial artists, and his hair was short, but not the shaved head of a monk.</p>
-<p>"Anya-ji? Is that a temple name...? Why is a monk here?"</p>
-<p>"We are not devoted to the Buddhist path. We are devoted to the vast and infinite martial path."</p>
-<p>"So, you're not a monk, but a martial artist. Then you won't step aside from my path."</p>
-<p>As soon as Dang So-hwa finished speaking, she lashed out her hand. Five streaks of green light ominously illuminated the surroundings and shot towards Kazato Koshin.</p>
-<p>Kuuuuu!</p>
-<p>Kazato Koshin punched away the green light. If it were an ordinary person, their fist would have melted, but Kazato Koshin's fist was dyed with a black aura, protecting it from Dang So-hwa's poison.</p>
-<p>"You use a similar aura to Ryuta!"</p>
-<p>Dang So-hwa shouted after seeing the black aura. Of course, it wasn't a refined aura like Taira Ryuta's, but a black aura with an ominous feeling, but the essential feeling was similar.</p>
-<p>"I don't know who Ryuta is! I have only mastered the Kwon-gong of Anya-ji!"</p>
-<p>If Taira Ryuta or Fujigasaki Rinka had heard this, they would have been very angry at his shamelessness in not being ashamed of stealing martial arts, but fortunately, they weren't here.</p>
-<p>"Hap!"</p>
-<p>The fist, dyed with an ominous black aura, shot towards Dang So-hwa at an incredible speed, like a cannonball. The sound of wind cutting through the air was heard as it shot to crush Dang So-hwa's face.</p>
-<p>The name of the Sixteenth Division Commander of Anya-ji was by no means light, but Dang So-hwa was the head of the Northeast Asia branch of the former Kurotsuki-doo, responsible for Korea, Japan, and the Russian Far East. She was able to reach that position because she was the best in the Northeast Asia branch among the numerous Kurotsuki-doo martial artists, psychics, and combatants.</p>
-<p>The only strong people in Anya-ji who could aim for Dang So-hwa's life were the Four Heavenly Kings, masters who had directly learned martial arts from Takakusaki Gengo, the head of Anya-ji. The division commanders were below the Four Heavenly Kings, so it was impossible for them to face Dang So-hwa.</p>
-<p>Dang So-hwa easily changed the trajectory of the fist by striking Kazato Koshin's elbow. With a dull sound of air being torn, the black fist grazed Dang So-hwa's hair, and after that, they exchanged dozens of punches and kicks.</p>
-<p>After fighting for a while, Dang So-hwa stepped back about two steps. Close combat was not her specialty. She could win like this, but it would take a lot of time. She had to fight in a way that Dang So-hwa was confident in, not close combat.</p>
-<p>Dang So-hwa began to release green poisonous smoke, just like she had done from the 1st to the 11th floor. Unless they had resistance or immunity to the poison, their combat power would drastically decrease if they inhaled even a little of this poisonous smoke.</p>
-<p>"Haa!"</p>
-<p>Kazato Koshin shouted. An intangible aura shattered all the windows in the 12th floor office, pushing the poisonous smoke out of the building. This was the opportunity that Dang So-hwa was aiming for. Dang So-hwa gathered the green aura and made it into a sphere. As the green aura gathered, it took on the shape of a jade bead.</p>
-<p>Tang Family Secret Art, Azure Jade Orb.</p>
-<p>Even a master like Kazato Koshin was bound to have a weakness after releasing a massive aura that shattered all the windows in the building. Dang So-hwa created that weakness with poisonous smoke, and the ferocious tigress never missed the prey's weakness.</p>
-<p>Dang So-hwa's Azure Jade Orb seeped into Kazato Koshin's solar plexus as if it were melting into him. Kazato Koshin stepped back in surprise, but soon realized that he was fine.</p>
-<p>"I don't know what you did, but I'm fine.... Uhuk!!!"</p>
-<p>Kazato Koshin collapsed, unable to support his body. It was because his feet, which were covered in shoes, had all melted away.</p>
-<p>"The unfortunate thing about the Azure Jade Orb is that it even melts away the senses, so it doesn't inflict pain on the opponent."</p>
-<p>Dang So-hwa muttered. However, the fear of the person who directly saw his hands and feet melting away from the ends without pain was no less than the physical pain.</p>
-<p>"Uwaaa! Please...! Uheok!! Sa, save...!"</p>
-<p>Kazato Koshin, who had been so confident, screamed in terror. Everything he had built up was melting away in the poison of the Azure Jade Orb. His strong body, trained muscles, and even the nerves that felt sensation could not overcome the poison.</p>
-<p>"If you fight without being prepared for death, this is the kind of sound that comes out."</p>
-<p>Dang So-hwa coldly muttered as she watched Kazato Koshin melt into a black puddle and recovered the poison of the Azure Jade Orb. The poisonous smoke she had used so far would fade over time, but if she left the poison of the Azure Jade Orb unattended, this area would turn into a land of death for decades.</p>
-<p>"Then, shall we go to the last floor?"</p>
-<p>Dang So-hwa began to climb the stairs to the 13th floor, where the surviving executives of Toyo Construction were. The elevator had been destroyed on the 1st floor, so there was no need to worry about the Toyo Group executives escaping by elevator.</p>
-<p>The old man called Chairman is dead, so who's left? Could there be a separate president like a chaebol group? Dang So-hwa muttered quietly and opened the door to the 13th floor Chairman's office.</p>
-<p>"Hiiiik!"</p>
-<p>An unsightly sound was heard, and several people hiding in the Chairman's office looked at Dang So-hwa with terrified expressions.</p>
-<p>"You guys started this fight in the first place. You won't regret dying, right?"</p>
-<p>"I'll give you Toyo Construction, so please spare my life...!"</p>
-<p>A middle-aged man sitting in the seat of honor instead of the dead Chairman shouted. Dang So-hwa's eyes lit up when she saw the man. And she strode forward.</p>
-<p>Kwadeuk!</p>
-<p>Dang So-hwa put her foot on the large, elegant wooden desk. The dead Chairman's nameplate was shattered to pieces under Dang So-hwa's foot.</p>
-<p>"There's no need to give me Toyo Construction. But if you become my dog, I might spare you."</p>
-<p>Dang So-hwa held out a small, dark green pill to the middle-aged man.</p>
-<p>"Eat it."</p>
-<p>"Wh, what is this...!"</p>
-<p>"Just want to die?"</p>
-<p>The man hesitated at the ominous appearance of the pill, but at Dang So-hwa's either die or eat it? ultimatum, the man chose to eat the pill.</p>
-<p>"Everyone else who survived here, eat it too."</p>
-<p>The rest also ate the dark green pill with reluctant expressions. Dang So-hwa, after confirming that everyone had eaten the pills, smiled and opened her mouth.</p>
-<p>"That's poison."</p>
-<p>---</p>
+<p>This episode contains explicit scenes and illustrations! Please check your surroundings before viewing~!!</p>
+<p>The reason I allowed a relationship with Saionji Diana-ssi was because, although she was a high school student due to repeating a year because of an accident, she was now an adult. So, it didn't violate my vow not to be with a minor, and I also had my principle of not rejecting women who come to me, and I knew that rejecting her after she had courted me so much would cause her great emotional pain.</p>
+<p>When I allowed her my body (?), Eve seemed even happier than Saionji Diana-ssi, who was the one actually doing it with me.</p>
+<p>,Instead! Please do it in the love hotel upstairs!</p>
+<p>Ah, so that was the ulterior motive. Eve, who was researching human pleasure nerves, might have been waiting for Saionji Diana-ssi, who could be considered a half-cyborg with cyber implants in her limbs, to have sex. She needed to check if it applied to mechanical bodies as well.</p>
+<p>Eve gave me a card key. It was the key to a love hotel room labeled VIP501. The room with the scanning device that I used with Kasaoka Yuzuki before was room 501.</p>
+<p>I was already used to being spied on during sex. From Minama Chieri to Eve and Kurayamada Kirie. Maybe there's some voyeur I don't know about watching my sex. So, I nodded without much resistance and opened my mouth.</p>
+<p>,Are you going to check the sensation when I do it with Diana-ssi too?</p>
+<p>,If this goes well, we can make cyber implants that can feel pleasure! Then we'll make so much money we could rake it in!</p>
+<p>Eve exclaimed excitedly again at my question. Cyber implants certainly moved under the will of their owners, but they couldn't feel sensations. Especially not pleasure.</p>
+<p>If Eve succeeded, she could sell it to rich people who had cyber implants due to aging at a very high price.</p>
+<p>Being able to add human senses to the powerful steel body that they had given up, rich old people would buy our new cyber implants no matter the cost.</p>
+<p>I thought she was just researching out of curiosity, but she also had this kind of business plan. That's Eve for you.</p>
+<p>,I'll go up first.</p>
+<p>,T-thank you, Eve.</p>
+<p>Saionji Diana-ssi, who was following me up the stairs, thanked Eve with her face as red as a persimmon under her hair.</p>
+<p>The situation was turning out a bit strange, so I was a little embarrassed. I received a request to let my student have sex as a reward, and that student was probably plotting with Eve, who oversees everything in the world-class back alley called Amsang, and even made a plan for sex with me.</p>
+<p>,Let's go quickly.</p>
+<p>Saionji Diana-ssi, who was clearly blushing and embarrassed, grabbed my arm and came out of the basement first, as if she was determined to be proactive since things had turned out this way.</p>
+<p>,Huh?!</p>
+<p>That confidence was short-lived. As soon as we came out of the basement, we ran into an unexpected person. It was Otagi Yuka. Otagi Yuka was also close to Eve, wasn't she? I forgot about that.</p>
+<p>Otagi Yuka saw Saionji Diana-ssi holding my hand and pulling me along, and gave a deep smile. She seemed to have guessed what was going on.</p>
+<p>,Hehe, have a good time.</p>
+<p>Otagi Yuka smiled and went into the basement we had come out of. She's so cool.... Saionji Diana-ssi's face turned even redder and she didn't know what to do. She seemed to have lost the courage she had to pull me along just now, probably because she was flustered.</p>
+<p>,Kyaa!</p>
+<p>I couldn't just stand still at the entrance of the Amsang basement, so I picked up the flustered Saionji Diana-ssi in a princess carry. She was lighter than expected. Eve seemed to have done a good job of making the cyber implants lightweight. I was prepared for her to be very heavy, but I was surprised at how light she was.</p>
+<p>I carried Saionji Diana-ssi to the elevator and pressed the 5th floor. Saionji Diana-ssi was quietly held in my arms like a herbivore caught by a hunter, and my arms seemed to be quite cozy.</p>
+<p>Ding!</p>
+<p>I got off the elevator on the 5th floor. Befitting the name VIP room, there were only two rooms on the 5th floor, 501 and 502. Unfortunately, unlike the name VIP room, both were being broadcasted with the scan sensors that Eve had installed on the ceiling.</p>
+<p>The reason Eve installed scan sensors on the ceilings of both rooms was because of my specialness. Because of my sex-specific trait, I had a different level of pleasure-inducing ability than others, so she installed sensors in room 502 to create a pleasure map of ordinary people.</p>
+<p>For reference, Eve only lets me use room 501 for hygiene reasons, so I could use it with peace of mind without worrying about sexually transmitted diseases.</p>
+<p>,This is....</p>
+<p>Saionji Diana-ssi was impressed by the love hotel room, which was no different from any luxury hotel room, befitting the name VIP room. As the daughter of the Saionji family, she would have been to such luxury hotels enough, but Saionji Diana-ssi had become much more common(?) after the accident, so she looked at the room with admiration. Of course, while being held in my arms.</p>
+<p>,Ah...!</p>
+<p>I carried Saionji Diana-ssi to the bed and laid her down. Hmm.... I could have started something right away, but I couldn't stand lying on the bed with shoes on. I took off Saionji Diana-ssi's shoes and threw them into the shoe rack at the entrance, then looked at Saionji Diana-ssi.</p>
+<p>,Do you not regret it?</p>
+<p>,No, I'm even sad that my body is the only thing I can give to you, sensei-nim. But, since it's my first time, please.... Be gentle.</p>
+<p>The way she was looking at me with moist eyes through her hair excited me, so I put my lips on Saionji Diana-ssi's lips.</p>
+<p>Saionji Diana-ssi actively accepted my lips. She said it was her first time, but she was quite skilled. She probably had special training (?) somewhere. Eve must have provided the video materials.</p>
+<p>Tsuup...! Chok, chok...! Chup...♥</p>
+<p>,Sensei-nim, your kiss is delicious...♥</p>
+<p>When I stopped kissing and took my lips off, Saionji Diana-ssi smiled with a dazed expression. Saionji Diana-ssi raised her hand and touched my cheek. It was a natural touch that couldn't be called a cyber implant.</p>
+<p>,Can you feel the sensation in your hand?</p>
+<p>,Yes, Eve made it so I could feel sensations for today. It's still being tested, but I'm happy that I can feel sensei-nim's touch with my hands like this....</p>
+<p>Eve seemed to have systematically applied sensation to Saionji Diana-ssi's cyber implants for today. Saionji Diana-ssi was very satisfied that she could touch my face with her own hands and feel the sensation.</p>
+<p>I looked at Saionji Diana-ssi and took off her clothes. I took off her black Chinese collar shirt and her pleated skirt. She had prepared thoroughly in advance.</p>
+<p>Saionji Diana-ssi was wearing sexy lingerie and a garter belt as if she had expected to show me her underwear, and she was still looking at me with moist eyes. Excited by Saionji Diana-ssi's sexy underwear, I touched Saionji Diana-ssi's soft inner thigh.</p>
+<p>It was the part with the cyber implant, but Saionji Diana-ssi started to make subtle moans as if she felt pleasure from my touch. Judging by the moans, she had successfully created pleasure nerves as well.</p>
+<p>,Ah.... Sensei-niim, it feels strangeee♥</p>
+<p>She was the third student I had a relationship with, but Otagi Yuka knew my identity, and Sakagami Rena treated me as her lord. On the other hand, Saionji Diana-ssi was someone I met at this St. Francis Girls' Academy, so she always treated me as her teacher.</p>
+<p>Even in this situation, she kept calling me sensei-nim, sensei-nim, which was new and doubled my excitement. But as I kept hearing the word sensei-nim, it felt like I was giving Saionji Diana-ssi a sex lesson.</p>
+<p>,Haa, haa, sensei-nim, quickly...!</p>
+<p>Saionji Diana-ssi was already very heated up with just her thighs. But Saionji Diana-ssi seemed to still feel something was missing and started urging me. Because she was a virgin, she probably didn't know what that missing feeling was yet, but she probably felt like she was craving something that could fill her pussy.</p>
+<p>But I had no intention of stopping the foreplay yet. Saionji Diana-ssi's pussy wasn't a cyber implant, so I had to heat her up enough here so that she could accept my huge cock without difficulty.</p>
+<p>,Haeuh...!</p>
+<p>When I moved my hand past her thighs to her crotch, Saionji Diana-ssi closed her legs as if it was a virgin's instinct. But my hand had already dug in. I slowly touched around her pussy and gently touched her pussy.</p>
+<p>,Heueuh...! The feeling is different from my thighs, haat! Sensei-niim♥</p>
+<p>As expected, there was a difference in the area between her pussy and her thighs, but it seemed that the sensation hadn't been fully implemented yet. She was showing a different level of reaction even when I was touching around her pussy.</p>
+<p>Saionji Diana-ssi was a skilled swordswoman, so her senses were also sensitive. She was about to reach her climax just by touching the outside of her pussy over her panties. I didn't let go of the reins and gently flicked Saionji Diana-ssi's Clitoris.</p>
+<p>,Haeueueuheut!! Heuahhaang...! It feels heueut! Strangeeeee...♥</p>
+<p>Saionji Diana-ssi's back arched as she reached her climax from my touch. She didn't do shiofuki because she was wearing panties, but her underwear was wet with a lot of juices.</p>
+<p>,This is what climax is.</p>
+<p>,Haeuh... Hang, haeuheung....</p>
+<p>This was my first teaching. Saionji Diana-ssi smiled faintly at me even as she breathed heavily from the afterglow of her climax.</p>
+<p>,Sensei-nim, please proceed to the next lesson♥</p>
+<p>I think I know now why teachers cherish their top students. I didn't know how pretty she was because she understood the teacher's heart, which wanted to teach her even one more thing.</p>
+<p>----Underwear Diana B-cut!</p>

@@ -5,97 +5,88 @@ weight = 806
 chapter = 806
 +++
 
-<p>are illustrations of there</p>
-<p>"Sseup, ha.... Sseup... ha! It's delicious!"</p>
-<p>"Mm, mm! It's spicy but delicious, Ryuta-cchi~!"</p>
-<p>The special class Female Students, Takakusaki Athena, and I, who had come down to the restaurant, cooked the leftover flower shrimp from yesterday that I had brought, along with Instant Noodles, to make shrimp ramen.</p>
-<p>It was quite spicy by Japanese standards, so except for a few who handled spicy food well, everyone was eating with sseup-ha sounds (they all ate well, despite the spiciness). Then the University Students came down.</p>
-<p>They looked at us awkwardly for a moment, then soon went into the restaurant kitchen and came out with something they had made: simple toast sandwiches.</p>
-<p>And as they ate the sandwiches, they were chewing them with extremely tired, haggard Expressions, as if gnawing on cardboard.</p>
-<p>Well, they had been wandering around looking for their friend since Dawn, so it was understandable they were tired.</p>
-<p>"Shall we have some coffee?"</p>
-<p>Since the restaurant had a coffee machine used for the breakfast buffet, we all had a cup of coffee after finishing our Instant Noodles.</p>
-<p>Most of the other Students drank their coffee as it was, but I poured ice water into a large cup and made a light Iced Americano. After all, Iced Americano is the best in Winter. With the snow falling Outside, it seemed to taste even better.</p>
-<p>"No matter how much it snows Outside, I don't want to keep staying in my room."</p>
-<p>"But the Killer is still wandering around...."</p>
-<p>While drinking coffee, some grumbled that they didn't want to stay in their rooms, while others said they should be careful because the Killer was roaming around. I thought it might be okay if we all went together, even with a Killer, so I decided to make a Proposal.</p>
-<p>"How about going to the hot spring? I think it would be fine if we all went at once."</p>
-<p>At my Proposal, the Students nodded their Heads, wondering if that was a good idea. Playing board games inside the Resort was fun once or twice, but it would get boring if they kept doing it, so they excitedly nodded at my other Proposal.</p>
-<p>"How about you all also take a dip in the hot spring together? If we're all together, the Killer won't be able to do anything, whether they're on our side or yours."</p>
-<p>I said this to the University Students. They had been listening to our conversation at a nearby table, so they knew we were going to the hot spring, which is why I made the offer to them. They looked quite tired, and since the hot spring would separate into men's and women's baths, we could also say things we couldn't when Men and Women were together.</p>
-<p>"Shall we?"</p>
-<p>At my Proposal, the Club President brightened and said. It seemed he was very pleased with my Words, suggesting they go to the hot spring to relieve their fatigue, especially since they were already tired.</p>
-<p>So, after lunch, we packed our toiletries and went to the hot spring. Everyone went excitedly, but there was one Student who didn't go to the hot spring.</p>
-<p>"Diana, aren't you going?"</p>
-<p>"No, because of my cyber implants.... I can shower, but staying in the hot spring for a long Time is too much."</p>
-<p>Actually, Saionji Diana's cyber implants were a top-of-the-line, waterproof Product personally designed and engineered by Eve, so there was no chance of them breaking even if she went into the hot spring. However, because we had a separate conversation, she decided to use her cyber implants as an excuse not to go into the hot spring.</p>
-<p>"Saionji, will you be okay alone?"</p>
-<p>"Yes. I have a Gun, you know. And everyone else is at the hot spring, so who would Attack me?"</p>
-<p>"Alright, rest in your room."</p>
-<p>I conversed with Saionji Diana loudly enough for everyone to hear, telling her to rest, and then subtly winked at her, unseen by others. Saionji Diana also nodded with a strange Smile.</p>
-<p>Leaving Saionji Diana, we went down to the 1st floor and stepped Outside. The hot spring was built Outside the Resort accommodation, so we had to go out.</p>
-<p>The snowstorm was still raging. The Corpses I had dug up were almost invisible by now, and to get to the hot spring, we had to trudge through snow piled almost up to my thighs. However, since it was an experience hard to come by normally, the special class doggos were very excited to walk through the snowstorm. Of course, since I was doing the hardest work of breaking through the snow and making a path, the others might have been a bit more excited.</p>
-<p>"Wow~! This is the first Time I've seen so much snow~!"</p>
-<p>"Ryuta-cchi~! Eit~!"</p>
-<p>They were troublemakers, excitedly jumping around and throwing snow at me, but as soon as they saw the hot spring building, they slipped into the Women's bath building as if nothing had happened.</p>
-<p>"Let's go in too."</p>
-<p>"Yes."</p>
-<p>It felt a little awkward with only Men, but to enjoy the warm hot spring water, we took off our Clothes, showered, and then, holding small towels, entered the hot spring.</p>
-<p>Actually, it was hot spring Manners to cover one's sensitive areas with a small towel, but on the first day, I thought I would be the only user and just went in naked, inadvertently showing off my python. Today, however, I observed the Manners and lightly covered myself with a towel.</p>
-<p>Of course, it wasn't my Large Penis that could be hidden by merely covering it, so the Male Students glanced at my 'there' and made disgusted Expressions.</p>
-<p>"...."</p>
-<p>Once in the hot spring, we were enveloped in Silence for a moment. Still, we had to say something. The Reason we had specifically invited the University Students to the hot spring, even though we could have come alone, was to gather Information.</p>
-<p>"Since it's come to this, let's introduce ourselves. I am Yamashiro Ryuta, working as a Teacher at St. Francis."</p>
-<p>First, I introduced myself, thinking we should at least know each other's names. Then, perhaps finding the Silence a bit burdensome, these friends also followed with greetings. The Club President was Suzuki Soki, the slightly flashy, light-hearted-looking Man was Itsu Tomohiko, and the Man with an ordinary Impression but a quite good Body was Shiojima Atsushi.</p>
-<p>"Since the Situation has come to this, how about we each ask one Question to resolve our curiosities?"</p>
-<p>At my direct Proposal, the Male Students, who had been conversing amongst themselves for a moment, nodded their Heads heavily.</p>
-<p>"Let's do this. There are three of us, and Yamashiro-ssi is one, so let's each ask three questions...."</p>
-<p>Three questions each.... Not bad. And they're not getting angry like the Women, asking if we suspect them.</p>
-<p>"Alright. I'll start. Was the deceased Tanaka Norio-ssi the type of Person to incur grudges?"</p>
-<p>"No, Tanaka had a somewhat timid Personality, so he wasn't the type to incur grudges. I was even surprised when Tanaka brought the accommodation Tickets and suggested we Travel here. He usually followed whatever the club decided, so I didn't expect him to make such a Proposal himself."</p>
-<p>Suzuki Soki answered my Question. Tanaka Norio, with his timid Personality, brought accommodation Tickets and insisted on going on a trip.... Something smelled fishy.</p>
-<p>"Then, conversely, who was close to Tanaka Norio-ssi?"</p>
-<p>"All the Men were close. As I just said, he was a bit introverted, so he was slightly awkward with the Female Students, but...."</p>
-<p>"Ah, Norio liked Uzuka."</p>
-<p>Itsu Tomohiko added to Suzuki Soki's Answer.</p>
-<p>"Uzuka, you mean...?"</p>
-<p>"The girl wearing the pink Cardigan."</p>
-<p>Ah, I see. The pink Cardigan, you say.... Ah, I remember. The deceased Tanaka Norio seemed to have liked the prettiest of the female college students in the International Politics Discussion Club.</p>
-<p>Of course, even if she was the prettiest there, she was still much less attractive compared to the special class Students.</p>
-<p>"Since you've already explained one Person, could you explain the rest of your friends too?"</p>
-<p>"The friend who greeted me in the restaurant back then was Nakamura Shunna, the club vice-president, and the remaining one is Hiragami Noyu, Tomohiko's childhood friend here."</p>
-<p>Ah, I see. So, roughly, the vice-president, the slut, the childhood friend, and the pretty girl, that sums it up.</p>
-<p>"Finally.... This isn't a very important Question, but are there any Lovers within the club?"</p>
-<p>"Hmm, within the club, you could say this guy Tomohiko and Hiragami are almost in a Relationship."</p>
-<p>"What are you talking about~? Soki!"</p>
-<p>Suzuki Soki said this as a Playful Jest to my Question. Itsu Tomohiko waved his Hand as if it was nonsense, but his Face was slightly flushed. I couldn't tell if it was because of the hot spring or Shameful Blush. Itsu Tomohiko and Hiragami Noyu seemed to be frequent targets of teasing, perhaps because they were childhood friends. From the Answer, it seemed there were no people dating each other within the club.</p>
-<p>"Then it's our Turn, isn't it?"</p>
-<p>"Yes. Ask three questions."</p>
-<p>"First...."</p>
-<p>The first Question we received was about our alibi. I honestly answered that we had gathered in my room until late last night playing board games, and after that, we all went to Sleep, so we couldn't prove our alibis for the Time Tanaka Norio was presumed to have died.</p>
-<p>"Then the second Question is.... Why are those Students so strong?"</p>
-<p>Shiojima Atsushi asked the second Question. It seemed he was asking after seeing the Skill Seizawa Shii and Kujo Kina had shown earlier in the Auditorium.</p>
-<p>"I understand they received Training by inviting traditional martial artists or excellent Fist Technique practitioners."</p>
-<p>Of course, that wasn't the whole Story, but I roughly told them it was due to Training. Everyone nodded their Heads, saying "Ah~!" at my Answer.</p>
-<p>"Do those Students have boyfriends?"</p>
-<p>"Is this the third Question?"</p>
-<p>This Time, it was Itsu Tomohiko's Question. Itsu Tomohiko flinched slightly when I asked again, but soon nodded his Head.</p>
-<p>"Probably not, I think? If they were to date, wouldn't the Man have Problems? Even though they look like that, they are all Young Ladies of prestigious families...."</p>
-<p>"As expected...! Prestigious families have things like that. Is it something like a Political Marriage? How fascinating~!"</p>
-<p>Itsu Tomohiko let out an Exclamation of Admiration at my Answer, as if it was fascinating. He looked a bit like a slut, so I wondered if he was asking to hit on the special class Students, but it seemed he asked out of pure Innocence.</p>
-<p>At the same Time.</p>
-<p>Saionji Diana stood in front of Room 306, the Male University Students' room. Saionji Diana placed her Palm on the card key reader at the Door.</p>
-<p>Bbeep!</p>
-<p>Since Saionji Diana's cyber implants had a hacking tool installed, the locked Door quickly opened by placing her Palm on it.</p>
-<p>Opening the Door, Saionji Diana began searching the Men's room. What Saionji Diana was looking for was the deceased Tanaka Norio's smartphone. She thought that since all the University Students would have taken their own phones, Tanaka Norio's phone must definitely be in this room.</p>
-<p>"Ah, here it is...!"</p>
-<p>Saionji Diana quickly retrieved the phone, now without an Owner. When she turned on the phone, a Screen appeared asking for a Fingerprint, so she placed her thumb on it. While the others had gone to the hot spring, Saionji Diana had already gone to Tanaka Norio's Corpse and obtained his Fingerprint. Saionji Diana's Finger could use any Fingerprint once registered, making it extremely useful.</p>
-<p>The phone was unlocked, and Saionji Diana checked the Line and Text Messages Tanaka Norio had used.</p>
-<p>"I found it...!"</p>
-<p>Saionji Diana, who had been searching the phone for a while, looked at the phone and smiled slightly.</p>
-<p>Sawayanagi Azuma Illustration requested by Gojoy-nim~!</p>
-<p>Casual Attire~! As the Boss of Seryu Military Company, her casual attire is a Suit hehe.</p>
-<p>Underwear~!</p>
-<p>Breast Covering~!</p>
-<p>Lisa's Misi Attire requested by Lee Seung-joo_367-nim~! I wondered what Misi attire would be, so I just simply dressed her in a Dongtan Dress hehe.</p>
-<p>Baek Lisa~!</p>
+<p>'Yes, but what brings you here...?'</p>
+<p>Haino Den-ei pointed to one side. St. Francis Girls' academy had several small classrooms in the auditorium where physical education theory classes could be held, so I followed Haino Den-ei.</p>
+<p>As we entered the classroom, Haino Den-ei took something out of the inside pocket of his Suit jacket. For a moment, I thought it was a pistol? But since I could regenerate even if I was shot by a pistol anyway, I didn't show any signs of tension. If I got nervous for no reason, I might be suspected.</p>
+<p>'Have you forgotten? I said I would give you a Reward for taking good care of and saving Agassi Lisa.'</p>
+<p>What Haino Den-ei took out was a bankbook and a Seal. Not an envelope, but a bankbook.... Just how much did he put in?</p>
+<p>'Ah, if it's that.... I'll gratefully accept it.'</p>
+<p>There was no Reason not to accept something given with gratitude. Since I might be suspected if I refused for no Reason, I received the bankbook and Seal that Haino Den-ei gave me.</p>
+<p>Today's earnings are quite substantial? From the Bounty directly offered by the police agency to the Money given by the Minamoto Family.... I haven't checked either yet, but I thought I could treat my PMCs, whom I had promised to visit this week, with this.</p>
+<p>'Then, I'll be going....'</p>
+<p>As if Haino Den-ei's business was really just to give me a Reward, he handed me the bankbook, gave a polite greeting, and left the classroom.</p>
+<p>Just as Haino Den-ei left and I was about to check the Amount in the bankbook, there was a Knock right away. I put the bankbook in my pocket and answered, 'Yes,' and the Door opened, and this Time a young man came in.</p>
+<p>'Good morning? I'm Shizu Hiromasa, Team Leader of the 3rd Team in the Kujo Group's Secretarial Office.'</p>
+<p>Ah, it seems the Families, starting with Minamoto, are trying to give me Money. Of course, not all the Families of the special class Students would give Money, but it seemed that even so, the great Families with Face like Minamoto or Kujo were trying to express their gratitude to me with Money.</p>
+<p>After the Kujo Group and several Families came to the classroom to give Money or gifts, the outside of the auditorium classroom became quiet before I knew it. It seemed that all the Students, reporters, and various Family officials had returned.</p>
+<p>Thinking about it, everyone is amazing. To call the Teacher and give Money when there are reporters around. Of course, the reporters who were called now are pro-Meiga reporters called by each Family, but still.</p>
+<p>I opened the envelopes I had received. First, the Bounty, as expected of Japan's greatest serial Killer, there was a check for a large sum of ten million yen. I received this as the representative, so I have to share it with the Students.</p>
+<p>Next, when I opened the Reward Money given by the Minamoto Family, there was 30 million yen in it. As expected, helping the Minamoto direct Lineage made the inside of the bankbook full.</p>
+<p>Next, Kujo was 20 million yen, and the butler sent by Seizawa Shii's Family didn't give anything in particular since they were a politician Family. He only gave an Invitation Ticket to meet Seizawa Shii's Father, Seizawa Ei, and it seemed like there would be some benefit if I went with the Invitation Ticket.</p>
+<p>From then on, it was a little small, giving roughly a Reward Money or gift certificate of about one million yen. Of course, the Amount itself wasn't small, but it was small compared to Minamoto or Kujo, who had given me a large sum of Money earlier.</p>
+<p>'Orabeoni, could it be that the Teacher-nim received a Bribe?'</p>
+<p>When I came out of the auditorium, Taira Kanna, the Public Morals Committee Chairman Nakanoin Rina, and Vice-Prefect Muko Neika were waiting for me and spoke playfully.</p>
+<p>'A Bribe.... The exam period has already started, so there's nothing I can do.'</p>
+<p>'Well, that's true. The Meiga didn't give Money right away on purpose, and the Reason they gave it today is because the Class Teacher can't do anything more now. They revealed their intention to give a Reward, not a Bribe.'</p>
+<p>Taira Kanna nodded and said at my Words. It seemed that the rest of the Meiga, including the Minamoto Family, all had thoughts and gave me something at this timing.</p>
+<p>'But why were you waiting?'</p>
+<p>'Ah, these Friends have something to talk to Orabeoni rather than me.'</p>
+<p>When Taira Kanna pointed to Nakanoin Rina and Muko Neika, who were standing next to her, they bowed their Heads to me.</p>
+<p>'Umm, I was very rude before.'</p>
+<p>'I was just doing as I was told....'</p>
+<p>It seemed they were waiting for me on purpose to apologize for what happened during my kidnapping. Taira Kanna was the one who kidnapped me, and they were just guarding the building, but doing wrong is doing wrong.</p>
+<p>'Well, now that I'm in a cooperative Relationship with Kanna, I'll just let it go. But if something like this happens next Time, I won't stand still either.'</p>
+<p>'I understand. If something like this happens next Time, I'll be prepared.'</p>
+<p>Nakanoin Rina answers at my okay. She's a Subordinate who listens to Taira Kanna's orders, so she doesn't say that there won't be such a thing next Time. Because she has to do it if Taira Kanna tells her to.</p>
+<p>'By the way, I heard that Nakanoin is going to Edo University, and where is Muko going?'</p>
+<p>'I don't have good grades, so.... I'm going to St. Francis Women's University, hehe....'</p>
+<p>Muko Neika scratched her Head and answered at my question.</p>
+<p>'What are the two's future plans besides university?'</p>
+<p>'Rina will become a police officer. And Neika will go to the PMC side.'</p>
+<p>It seemed that Taira Kanna was trying to seize police Power through Nakanoin Rina. I heard that Nakanoin Rina's Parents are high-ranking police officers, and with Taira Kanna behind her, her promotion will be very fast.</p>
+<p>But what I was curious about was Muko Neika. I wondered if Muko Neika was one of the four martial forces of St. Francis Girls' academy that I talked about with Daigo Terue before.</p>
+<p>For reference, the four martial forces of St. Francis Girls' Academy were Kuniaki Ichiro of the Daigo Family, Ogre, Shimokawabe Airen, and a mercenary called Juuki (銃鬼: Gun Oni), and I wondered if Muko Neika was Juuki.</p>
+<p>'By any chance, Muko Neika, are you Juuki?'</p>
+<p>'Since there's not much Time left until graduation, let's be honest, I'm Juuki. I did some work that the academy ordered to earn some Allowance.'</p>
+<p>I had guessed, but it was quite a surprising fact. Juuki, who could be hired even in the game, had good Aptitude for all firearms, so he could change his Style according to the Situation at that Time, so he was a quite useful Character. In the game, he was the most named monster among the Students gathered here, including me.</p>
+<p>He was always wearing a combat helmet that completely covered his Face and a Power Suit that covered his Figure, so he was a mysterious Character who didn't know if he was a woman, a man, an Elderly Person, or a child, but it was somewhat amazing and empty to see his True Identity revealed like this.</p>
+<p>But in the game, Juuki was clearly a Freelancer without Affiliation.... Does that mean something will happen to Taira Kanna in the future? Of course, the future has changed a lot because I possessed and acted, but it seemed necessary to watch.</p>
+<p>'I still have work left, so I have to go to the education preparation room. You guys also have exams starting today, so go study.'</p>
+<p>'Yes, Orabeoni~! Let's meet up after the exams are over. I'll treat you to a meal.'</p>
+<p>'Since my kidnapping PTSD won't disappear, I won't go to the restaurant that Kanna invited me to, so I'll buy the Meal.'</p>
+<p>'Ufufufu....'</p>
+<p>After making an appointment with Taira Kanna after the exams, I headed back to the education preparation room. As much as the Students were studying, I also hated studying. But since I wanted to have one more PMC, I had no choice but to drag my heavy Feet and study.</p>
+<p>'Ugh...!'</p>
+<p>After roughly finishing studying, I groaned and stretched my Body a little. My Body was a little stiff from sitting for so long. Before I knew it, the outside of the window had darkened, and when I looked at the clock, it was a little past 7 PM.</p>
+<p>Now I can go Home and have a late dinner. I immediately packed my Luggage and left the special class building. Should I call Saionji Diana, whom I had promised to call in the evening, while going Home?</p>
+<p>When I called Saionji Diana, she answered quickly without the signal ringing several Times. It seemed she was waiting for my Phone Call.</p>
+<p>-Teacher-nim~!</p>
+<p>'Yeah, did you have dinner?'</p>
+<p>-I just finished eating. What about Teacher-nim?</p>
+<p>'I'm going Home to eat now. How did it go with the Family?'</p>
+<p>-That's how big the Kotowazuki arrest incident was. When I came Home the day before yesterday, there were so many people at Home. Even though there was only one Person to manage the mansion until then....</p>
+<p>Saionji Diana, who had been living as a complete loner because she wasn't a Saionji Bloodline, didn't seem to like the Saionji Family's behavior of switching gears so quickly.</p>
+<p>-Actually, there weren't any special conversations. My Grandfather came in person, but my uncle, who is the Successor, didn't come either....</p>
+<p>'Then they're just trying to use you to take care of the Image?'</p>
+<p>-That's right. So I negotiated. I asked for what I should have originally received.</p>
+<p>If it's what she should have originally received.... It couldn't be the Successor position.... It seemed she was talking about the Legacy that Saionji Diana's Father left behind.</p>
+<p>'Are you talking about the Legacy?'</p>
+<p>-Yes. There are some Assets that my Grandfather took because I wasn't an Adult. I was too tired right after the accident, so I didn't have the mental Capacity to think about my dad's property.</p>
+<p>It was the Legacy. By the way, Saionji Diana's grandfather is also a Thug. Not only did he abandon his Granddaughter, but he also took all of his child's Legacy. Was he telling his Granddaughter to just starve to Death?</p>
+<p>'Did he give it back willingly?'</p>
+<p>-Of course not. So I did some hyeoppak. I said that I would expose that they had abandoned me all this Time and came to find me because I had done this, and only then did he say he understood.</p>
+<p>I thought that he wouldn't have returned the Money if she hadn't done hyeoppak.</p>
+<p>'I haven't forgotten what I promised you yet, so study hard and study Management hard in preparation for that Time.'</p>
+<p>I said that I would get boksu for her Parents while recruiting Saionji Diana. Perhaps that enemy was Saionji Diana's uncle, Saionji Fusato, who is now the Successor.</p>
+<p>If Saionji Fusato is removed, Saionji Diana will naturally become the Successor. No matter how much she is treated poorly now, she had to prepare now for the sake of the future.</p>
+<p>-I understand, I remember it too. I'll thank you again. If it wasn't for Teacher-nim, I wouldn't have been able to yell at my Grandfather like that.</p>
+<p>She seemed very touched that I said I hadn't forgotten my promise. I'm embarrassed because she's too grateful...? I could see my Home while walking. I should cut it off with the Excuse that I've arrived.</p>
+<p>'You're welcome.... Ah, I've arrived Home now. Let's talk tomorrow.'</p>
+<p>-I understand, Teacher-nim~! I'll see you tomorrow.</p>
+<p>'Okay, see you tomorrow~!'</p>
+<p>It was Saionji Diana who obediently hung up the Phone at my Words that I had arrived. Still, if Saionji Diana was to get boksu and regain her Father's position someday, it was better to have a Relationship like now than to continue being abandoned by her Family like before.</p>
+<p>Since the Legacy that Saionji Diana will receive this Time has some shares of the Saionji Financial Group, Saionji Diana's grandfather or uncle won't be able to treat Saionji Diana carelessly.</p>
+<p>If they harass Saionji Diana even in the current Situation, I was thinking of properly showing the Saionji Family what a spicy taste is.</p>
+<p>Taira Kanna Footjob Posture requested by seungj050-nim~!</p>
+<p>Yandere Mode</p>
+<p>Kkiyoot~!</p>

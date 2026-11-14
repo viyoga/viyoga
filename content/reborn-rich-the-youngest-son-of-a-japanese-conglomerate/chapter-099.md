@@ -5,84 +5,84 @@ weight = 99
 chapter = 99
 +++
 
-<p>Nadachi Tojo disappeared. It wasn't just that he went into hiding, but it seemed he received a disappearing disciplinary action like the former deputy team leader, Kurakake Kuma. He's probably in some place answering questions about Minamoto, what he did at the Talent Development Center, and whether there are other spies.</p>
-<p>As it concerned the Talent Development Center, most of the information was passed on to the Director, Yukiko, which naturally made it easy for me to get information as well. According to the information received, there were no more Minamoto spies within the Talent Development Center, and there was only a list of people on Taira Jiro's side that Nadachi Tojo had worked with.</p>
-<p>Yukiko coldly dismissed all the people on the list. Those who had been involved from the beginning were demoted to Taira Transportation and Taira Shipbuilding, one of the lowest-ranking subsidiaries. Taira Shipbuilding is where Taira Jiro is the president, so I'm sure he'll take good care of them.</p>
-<p>Those who had joined in the middle were sent to Talent Development Center branches in the provinces instead of other subsidiaries, which I personally thought was worse, but Yukiko said that the Talent Development Center's ranking within the Taira Group was relatively high, so keeping the Talent Development Center title would be good for those being demoted. Is that so? Not knowing much about the Taira Group, I could only nod.</p>
-<p>But strangely, Suzuki Chisami didn't go to Taira Shipbuilding or Transportation, nor was she sent to a Talent Development Center branch.</p>
-<p>,There's nothing on our team's deputy team leader?"</p>
-<p>,No information came out about Suzuki Chisami. It's strange, but what can we do? She hasn't been here long since being assigned, and it's a bit lacking to tie her to Nadachi Tojo, so we'll just have to move on. Ryuta, keep a close eye on her."</p>
-<p>There was no way to resist Yukiko, who hugged me tightly to her chest as if to comfort me. I playfully sucked on Yukiko's nipple once and kissed her on the lips.</p>
-<p>Chuup...! Chup chup!</p>
-<p>After sharing a sweet kiss, I got up from Yukiko's bed. I had done it so much with Yukiko yesterday that I fell asleep, and I almost got caught by the housekeeper in the morning, so we decided to only sleep in the same bed on Fridays, the day before Saturdays when the housekeeper doesn't come to work in the morning.</p>
-<p>,Good night, Yukiko."</p>
-<p>,Good night, Ryuta-gun."</p>
-<p>After saying goodbye, I left Yukiko's room and entered my room. It feels like it's been a while even though I only didn't sleep here for one day. It was still early to sleep, so I just lay down and looked at my phone. Just as I was looking at my phone, I got a KakaoTalk message from Han Yu-gyeong.</p>
-<p>Han Yu-gyeong: Yong-tae, are you asleep?</p>
-<p>Jin Yong-tae: Not yet. What's up?</p>
-<p>Han Yu-gyeong: I was wondering if you could come to Korea this weekend....</p>
-<p>Hmm? To Korea? What's going on? I was planning to go during the next summer vacation, but it seemed there was a reason why she was asking me to come so suddenly.</p>
-<p>Jin Yong-tae: I can go. If you're asking me to come so suddenly, there must be a reason. Can you tell me?</p>
-<p>Han Yu-gyeong: The thing is....</p>
-<p>Han Yu-gyeong's story was like this. Park Sang-beom, a Sunbae from Korea University, had been hitting on Han Yu-gyeong and asking her to meet him, but Han Yu-gyeong refused, saying she had a boyfriend. But Park Sang-beom didn't believe it and spread rumors that Han Yu-gyeong had a delusional disorder, and Han Yu-gyeong, unable to bear it, wanted to reveal me to her friends to dispel the rumors of her having a delusional disorder.</p>
-<p>My woman is being rumored to have a delusional disorder, I can help with that. But if it's Park Sang-beom, he's one of the early villains in MegaCorp's youngest son, so he hasn't changed here either. If he's a man, he's a villain who harasses the protagonist out of jealousy, and if he's a woman, he harasses her by asking her to date him. He was the son of the BS Group, a group ranked 5th in the business world, about 4 places higher than the Shinkang Group. That's why he could harass the protagonist of MegaCorp's youngest son.</p>
-<p>Towards the end of the game, the Shinkang Group takes over Korea, and the protagonist has already dismantled and devoured 5th-ranked groups like the BS Group, so Park Sang-beom becomes a guy who isn't scary at all, but in the beginning, the BS Group mostly appeared as villains who hindered the protagonist.</p>
-<p>While going to Korea, I should check Han Yu-gyeong's stats with the glasses from the ruins I bought on the black market and help her a bit with the game knowledge I have. I have a lot to prepare before going....</p>
+<p>"...That's what happened."</p>
+<p>"Hmm.... So that's what happened."</p>
+<p>After returning from my business trip, I immediately met with Yukiko and told her in detail what had happened. Yukiko nodded as I told her the detailed story, from the shooting murder during the business trip to the fact that I had won over Suzuki Chisami, the double agent, and that Nagumo Sian had said she would give her support on the condition that she receive the support of two core subsidiaries.</p>
+<p>"So, you just need to get one more supporter, right?"</p>
+<p>"Huh?"</p>
+<p>"Isn't it obvious that the Human Resources Development Institute, where I am the director, would support you, Ryuta? The Human Resources Development Institute doesn't have production power, but its network is the best, so wouldn't it be right to call it a core subsidiary? There's a reason why your uncles and aunts covet the Human Resources Development Institute."</p>
+<p>Aha, I see, I'm already getting support from one company. So, I just need to get the support of one more company. I don't know how to get it, but having at least 1 is much better than starting from 0.</p>
+<p>"I have uncles and aunts, will I be able to do it?"</p>
+<p>"It will be difficult. But if you don't, you'll end up being brutally purged by someone else who takes over the Taira Group empire."</p>
+<p>That's right. Even as the youngest son of a megacorp, if another competitor took the throne, it would almost certainly be a death ending. It wouldn't be any different even if it was the Taira Group. Taira Danjo-nim won't be alive forever. Someday, a fierce civil war will break out over the throne of the Taira Group. All I had to do was accumulate power in preparation for that time.</p>
+<p>"Here's the money you asked me to get for you. And Health Miracle was said to drop to the $300 range, so I put all your money in a short position. Are you really okay with that? If Health Miracle keeps going up, the money you've saved up will be worthless."</p>
+<p>"It's okay."</p>
+<p>I answered as I received the 007 briefcase that Yukiko handed me. It was an investment I could make because I already knew it would plummet to the $300 range. Otherwise, I wouldn't have the balls to short Health Miracle's stock, which is currently all the rage.</p>
+<p>I searched for an article on my smartphone. I immediately saw a CMM article.</p>
+<p>[Forest of High-Flying Health Miracle, Revealed to Have Tremendous Side Effects...!]</p>
+<p>"Eventually, what's going to happen will happen."</p>
+<p>I showed the article to Yukiko and smiled.</p>
 <p>###</p>
-<p>,Team leader, I have something I'm personally curious about."</p>
-<p>I requested an interview with Shinoe Misano. No matter how much I thought about it, I couldn't understand why Suzuki Chisami hadn't been demoted or disciplined.</p>
-<p>So I decided to call Shinoe Misano to the empty office we used to have sex in and ask her.</p>
-<p>,Why did you call me all the way here?"</p>
-<p>,I have something I'm curious about regarding Deputy Team Leader Suzuki Chisami."</p>
-<p>First, I explained that the people who had been recently demoted from the Talent Development Center were Jiro's line, excluding the work of Nadachi Tojo, the head of the personnel department who was a Minamoto spy. Recently, the employees were curious about what this demotion meant, so there were many stories going around, so Shinoe Misano nodded as if she understood after hearing my explanation.</p>
-<p>,You're asking why Suzuki Chisami wasn't demoted?"</p>
-<p>,Yes, I heard that Nadachi Tojo was looking out for Suzuki Chisami."</p>
-<p>Shinoe Misano nodded as if she understood my words. But she continued the story, saying that it wasn't true.</p>
-<p>,Hmm.... The situation was quite subtle at the time. The team members who saw the situation could misunderstand."</p>
-<p>,So the team members misunderstood the situation?"</p>
-<p>,Yes, Nadachi Tojo came to me for something else."</p>
-<p>Something else.... What could he have come for?</p>
-<p>,That other thing is...?"</p>
-<p>,...He asked about you. Is Taira Ryuta adapting well? What kind of work is Taira Ryuta in charge of? It was a trivial question like that."</p>
-<p>,Huh?"</p>
-<p>Ah, that's right. In that temporary email, the person called Chairman said they were interested in 5-1-s. Since 5-1-s was me, it was natural for Nadachi Tojo to call Shinoe Misano and ask.</p>
-<p>,So did you tell him?"</p>
-<p>,No, I asked him, 'Does the Director know that you're asking me these questions?' and he backed off. He said he was just curious and left. After that, Suzuki Chisami personally apologized and we moved on."</p>
-<p>Ah, I see. So she's not in Jiro's line? Then why did she act so recklessly as if she had no backing? The question about Suzuki Chisami hasn't been resolved yet. But since there's no evidence, I'll have to be satisfied with watching her.</p>
-<p>,Do you have any other questions, Ryuta-gun?"</p>
-<p>,Yes, are you getting along well with your husband?"</p>
-<p>Shinoe Misano asked playfully, but soon her face hardened at the question about her husband that I mentioned. I had noticed that Shinoe Misano had been worried about this lately. I noticed that her heart loved her husband, but her body was not satisfied, so her desires were building up day by day.</p>
-<p>Before having a relationship with me, she might have been satisfied with the sex she had with her husband after a long time, but now that she has tasted the greater pleasure of me, she will never be able to go back to the old days. Now that I had enough women, I didn't want to instigate Shinoe Misano myself, but I didn't want to see her suffering from the disconnect between her mind and body.</p>
-<p>,That's... none of your business."</p>
-<p>,Is that so?"</p>
-<p>I took a step forward towards Shinoe Misano. Is it really none of my business?</p>
-<p>,Is it really?"</p>
-<p>I asked Shinoe Misano again. Shinoe Misano couldn't answer.</p>
-<p>,Is the guilt towards your husband the problem?"</p>
-<p>,....."</p>
-<p>,Or is it because you hate yourself for cheating?"</p>
-<p>Shinoe Misano still couldn't answer. I kissed Shinoe Misano. Shinoe Misano accepted my kiss with surprising obedience.</p>
-<p>,If that's the case, don't worry. Your husband will be the same."</p>
-<p>I smiled and showed her the video I had taken with the black box of Shinoe Misano's husband, Shinoe Fuujiro, kissing a mysterious woman.</p>
-<p>Shinoe Misano shed tears after watching the video. But it wasn't tears of sadness. It was tears of joy.</p>
-<p>,I'm... I wasn't the only one who was wrong...!"</p>
-<p>Shinoe Misano was happy that she could now embrace me without guilt. Shinoe Misano lost her reason and rushed at me. Shinoe Misano took off my pants and began to suck my dick ravenously, like someone who hadn't eaten for days.</p>
-<p>,Chuuuup...! Chuwwap...! This is it, it has to be this full in my mouth! Uuup...!"</p>
-<p>I grabbed Shinoe Misano's head and repeatedly thrust my dick into her throat. I hadn't done it in a few days, so I hadn't gotten the hang of it yet, and she gagged, Ku-eop! Ku-eup!, but after a while, she skillfully tightened and loosened her throat pussy, urging my dick to ejaculate. I pulled my dick out as it was.</p>
-<p>,Spread them, I'll let you know who the owner of your pussy is."</p>
-<p>Shinoe Misano raised her skirt in joy. I pierced Shinoe Misano's pussy as it was. The pussy already knew. That my dick, not the weak dick that had been coming in for the past few days, was its owner. Shinoe Misano's insides wriggled as if welcoming my dick that had come in after a long time, doing its best to satisfy my dick.</p>
-<p>It definitely felt narrower and tighter than before, probably because she had surgery to enhance her sexual organ.</p>
-<p>,Haaak!!"</p>
-<p>,You like it this much after only a week?"</p>
-<p>,Heeeuuung! I like it so, so much~!! My husband can't even compare...! Haaang!!!"</p>
-<p>The enhanced pussy+1 of Shinoe Misano, who had surgery, definitely felt good. Also, since I had called her out during work, I didn't try to hold back and sprayed my semen inside Shinoe Misano's pussy as it was.</p>
-<p>,Heeueeeaaang~ It's warm...!"</p>
-<p>Not caring that Shinoe Misano had gone, I pulled out my dick and gave it to Shinoe Misano to suck. Shinoe Misano naturally sucked and cleaned my dick even though she had climaxed. No, why did you try to reject me when you're so used to cleaning my dick even when you're this out of it?</p>
-<p>,Spread them."</p>
-<p>I took out a small pack of wet wipes that I usually carry around and wiped Shinoe Misano's pussy. I suddenly thought about why I had tried to act like an owner to Shinoe Misano just now. Yeah, I didn't like that Shinoe Misano prioritized her husband over me. In my head, I was like, 'Well, he's her husband, so I can understand,' but in my heart, I felt annoyed.</p>
-<p>I couldn't help but laugh at my possessiveness, which was like a child showing off. Yeah, any woman who has a relationship with me has to prioritize me. I threw the wet wipe, which was covered in my Semen, into the trash can with that selfish thought.</p>
-<p>--------------------------</p>
-<p>It's been a while since Shinoe Misano's Yasushin Memorial Shinoe Misano illustration~!</p>
-<p>Shinoe Misano means tennis wear....!</p>
-<p>No bra, nipple sticking out Shinoe Misano</p>
-<p>I made it with the drawing style I usually use, but it became similar to Yukiko, so I tried making it with a different drawing style!</p>
+<p>I put some of the money I received from Yukiko, 30 million yen, in my bag and headed to the gym. It was 6:15, so it was still the time when Kawaji Emiko was working out. As expected, Kawaji Emiko was seen working out alone in the gym. I took my bag and approached Kawaji Emiko.</p>
+<p>"Kawaji Emiko-ssi, here's the money I promised."</p>
+<p>I immediately gave the bag to Kawaji Emiko. It was the money I had promised Kawaji Emiko for manipulating the team formation to create Team 74 during the new employee training. Thanks to her, various information is still being passed on to me, so 30 million yen wasn't a waste at all.</p>
+<p>"You keep your promises well, don't you? Thank you. Tell me if you need anything in the future, I'll help you as much as I can."</p>
+<p>"Okay. I hope Kawaji Emiko-ssi will be in charge of forming the teams next time too."</p>
+<p>"I'll have to see when the time comes. And how about today?"</p>
+<p>Kawaji Emiko was showing off her leggings-clad ass and shaking it while asking how about today. Normally, I would never refuse this kind of experience farming, but I had to refuse today because I had to deal with the money I had received.</p>
+<p>"I'm a little tired from my business trip today.... How about tomorrow?"</p>
+<p>"I work out tomorrow too, so I'm always available. But are you okay? I heard the news too."</p>
+<p>"Well, it's not like I'm dead."</p>
+<p>I left the gym after being worried about by Kawaji Emiko because of the death of Matsuhira Ginichiro. Then I drove to Suzuki Chisami's house. When I offered her money at that time, Suzuki Chisami said that all she needed was my dick, but I still had to give her the money I had offered to give her a sense of trust.</p>
+<p>Suzuki Chisami's house was in a mansion near the Human Resources Development Institute. I parked my car in the parking lot and headed to Suzuki Chisami's house, which I had found out about in advance.</p>
+<p>-Who is it?</p>
+<p>When I rang the bell, I heard Suzuki Chisami's voice. I simply answered that it was me. Soon the door opened and Suzuki Chisami appeared. She looked quite tired, as I had tormented her quite a bit during my business trip (?). Suzuki Chisami was wearing quite comfortable clothes at home, wearing a white shirt over her underwear. She was incredibly hot, but I wasn't enough of a villain to torment a patient.</p>
+<p>"Here's the money I promised."</p>
+<p>I handed Suzuki Chisami the 007 briefcase. There were 50 million yen in the 007 briefcase.</p>
+<p>"Huh? I clearly said it was okay...."</p>
+<p>"You're risking yourself too, so just take it."</p>
+<p>"Yes...."</p>
+<p>Suzuki Chisami eventually received the 007 briefcase. And I handed her another bag. It was a bag of medicine for body aches. Suzuki Chisami had ended up getting a body ache because she had been tormented by me for two consecutive nights despite being a virgin, so I bought her medicine for body aches on the way because I felt sorry for her.</p>
+<p>".... Thank you, Ryuta-nim."</p>
+<p>Suzuki Chisami, who received the medicine for body aches, had a very touched face. Hehe, is it because she didn't know I would care about things like this? If she's touched, that's a good thing.</p>
+<p>"I'm leaving. I parked in the mansion's parking space, so I have to move it quickly."</p>
+<p>"Yes.... Please be careful on your way, Ryuta-nim."</p>
+<p>Where did the touched face from just now go, she has a dissatisfied face.... I must be mistaken, right?</p>
+<p>###</p>
+<p>"Hello, Sunbae-nim."</p>
+<p>Mimata Chieri greeted me with her usual refreshing smile. I also asked, how was your vacation, Sunbae-nim? and looked at Mimata Chieri's face.</p>
+<p>Her orange hair and the refreshing appearance full of fruit juice that could be seen as the center of an idol group, as described before, made it impossible to think that Mimata Chieri was the assassin from that time.</p>
+<p>"Vacation? It was good. I went to the Shonai area of Yamagata Prefecture, and I heard that pigs are famous there, so I had a lot of fun~!"</p>
+<p>Mimata Chieri showed me pictures of her eating pork with a happy expression. There were pictures of tonkatsu, pork sukiyaki, and simple grilled dishes. There are almost only pictures of food....</p>
+<p>"Did you go alone?"</p>
+<p>"O-Of course! I want to go with my boyfriend, but I don't have a boyfriend, and it's more comfortable to go on these gourmet trips alone.... So, I'm alone! It's not sad at all!"</p>
+<p>Mimata Chieri was raising her voice slightly, as if she was embarrassed to be touring these restaurants alone. As expected, there's no way this Mimata Chieri is an assassin.</p>
+<p>"Here's a gift for you, Hubae-nim~! Yamagata Prefecture is famous for cherries, so I bought you cherry jam~!"</p>
+<p>Yamagata Prefecture is famous for cherries.... I just found out. I also gave her the sake from Akita Prefecture that I had prepared as a gift while receiving the cherry jam.</p>
+<p>"Akita Prefecture is famous for rice, so I prepared sake made from rice from Akita Prefecture."</p>
+<p>"Ooh! I'll enjoy it, Hubae-nim!"</p>
+<p>We exchanged gifts and gave the prepared gifts while going around the office, which was not very crowded because many people were on vacation. Shinoe Misano, a heavy drinker who drinks sweet potato shochu straight at company dinners, was very happy with my sake gift.</p>
+<p>"Thank you, Ryuta-gun. I have an outside business tomorrow.... Prepare yourself, okay?"</p>
+<p>"Yes, I'm always ready."</p>
+<p>If it's an outside business, it means prepare for sex. For a moment, Shinoe Misano's expression changed to a very lewd one, but soon it changed back to her usual relaxed and leisurely expression.</p>
+<p>After giving out all the gifts, I returned to my seat. And as I was putting the cherry jam I received from Mimata Chieri in my bag, I read the phrase written on the cherry jam.</p>
+<p>This cherry jam is made from cherries made in Yamagata at the Fukiyura Cultural Center.</p>
+<p>Fukiyura Cultural Center? It seemed to be a handmade product, not a factory-made product. I didn't have any work to do right now, and I was interested, so I searched for the Fukiyura Cultural Center.</p>
+<p>Yamagata Prefecture... Yuza Town.... Yuza Town was the northernmost part of Yamagata Prefecture. Above that was Akita Prefecture. Yuza Town and Daisen City, where the shooting that killed Matsuhira Ginichiro took place, were about an hour away.</p>
+<p>I closed the internet window where I searched for the Fukiyura Cultural Center as naturally as possible.</p>
+<p>When I looked to the side, Mimata Chieri was smiling with an innocent expression. For some reason, I became afraid of Mimata Chieri's innocent expression.</p>
+<p>###</p>
+<p>A very short side story.</p>
+<p>After Taira Ryuta left, Suzuki Chisami took the medicine for body aches that Taira Ryuta had brought. She was grateful that he cared about things like this. Money doesn't run away, so she just left it in the bag.</p>
+<p>"Am I not attractive?"</p>
+<p>Suzuki Chisami, who had taken the medicine and went straight to bed, sighed and looked at her body. Her sexually attractive brown skin and good figure were by no means bad. Rather, it was good, if anything. Taira Ryuta probably left quickly because he was considerate of her being sick, but she felt a little resentful.</p>
+<p>"Tch.... Clueless bastard."</p>
+<p>Suzuki Chisami lay down as she was. She fell asleep quickly, probably because the medicine for body aches also contained sleeping pills.</p>
+<p>----</p>
+<p>Mimata Chieri drawing style experiment</p>
+<p>Number 1: Calm Chieri</p>
+<p>Number 2: Since she's said to be refreshing, real fruit came out of Chieri</p>
+<p>Number 3: A slightly rounder drawing style Chieri</p>
+<p>Number 4: Mature Chieri</p>
+<p>Number 5: An innocent expression felt scary ver. Chieri.</p>
+<p>Which one is the best?</p>

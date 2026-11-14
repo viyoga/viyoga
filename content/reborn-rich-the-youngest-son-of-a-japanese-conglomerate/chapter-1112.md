@@ -5,84 +5,98 @@ weight = 1112
 chapter = 1112
 +++
 
-<p>Tteubeup, Jeubeup...!</p>
-<p>Maya Reed, performing fellatio, was quite persistent. She bit down deep on my cock, observing my reactions, moving her tongue and the inside of her throat, striving to receive my semen.</p>
-<p>"Eueut...! I'm about to cum!"</p>
-<p>Maya Reed's efforts were quite successful, as she managed to extract my semen during her first fellatio. As the feeling of ejaculation gradually intensified, I grabbed Maya Reed's head with both hands and pressed down.</p>
-<p>I didn't know if her throat also had an erogenous zone, but as Maya Reed performed fellatio, her nipples hardened, and her face was flushing red.</p>
-<p>"Kheueu...! I'm cumming!"</p>
-<p>Byuuut!! But! Byeut!!</p>
-<p>Because I had firmly pressed her head with my hands, Maya Reed's cheeks didn't puff out from my immense ejaculate volume. This was because I had shot my semen directly into the back of her throat.</p>
-<p>Whether it was due to the mental satisfaction of having sucked my cock and brought me to ejaculation, or if her throat truly had an erogenous zone, Maya Reed's eyes rolled back slightly, and she seemed to have reached her climax.</p>
-<p>"Huuu.... That felt good. It doesn't end with ejaculation; after ejaculation, you need to suck out the semen remaining in the urethra and clean the cock."</p>
-<p>I said, stroking Maya Reed's head. Maya Reed nodded with my cock still in her mouth, as if understanding, then pulled my cock from her throat, bit down only on the glans, and sucked out the remaining semen with a 'jjok' sound.</p>
-<p>"If you stroke it with your hand while sucking.... Yes, just like that."</p>
-<p>She was doing it well on her own. Even before I spoke, Maya Reed was already grabbing my cock from the root, squeezing it as if to milk out the semen, and sucking all the remaining semen from my urethra.</p>
-<p>"Boss, this is what you call ejaculation, right?"</p>
-<p>I nodded at Maya Reed's question. Maya Reed smiled happily, with an expression that said she had accomplished something.</p>
-<p>"How was it for you? It was your first time doing it orally, wasn't it? Was it difficult?"</p>
-<p>"The first time it poked my throat, it was a little difficult...."</p>
-<p>"It was difficult?"</p>
-<p>"Seeing Boss enjoy it, and having my throat poked, strangely made me feel good. Every time the inside of my throat was poked, it tingled down there...."</p>
-<p>As I expected, she seemed to have felt pleasure from having her throat poked by my cock. Maya Reed made an eager expression, saying it tingled "down there," so I decided to repay her for the fellatio.</p>
-<p>"Now, it's my turn to please you. Lie down and spread your legs."</p>
-<p>Maya Reed lay down on the bed with a slightly Shameful Blush. Whether from shame or a virgin's instinct, she held her constantly closing legs to keep them spread, and revealed her pussy to me.</p>
-<p>When she performed fellatio, she seemed so skilled that I doubted if she was truly a virgin, but now she was shy again, confusing me. Of course, I would know for sure once I directly inserted my cock.</p>
-<p>I put my head between Maya Reed's legs, and first observed her pussy. As expected of a Westerner, it was a beautiful pussy with a light color. I slightly extended my tongue between her labia majora and labia minora and began to lick.</p>
-<p>"Heueeut...!"</p>
-<p>I had only licked her lightly, but Maya Reed trembled as if electrocuted. She seemed to be feeling quite good.</p>
-<p>Satisfied with Maya Reed's sensitivity, I continued to lick her pussy. Perhaps because she had been aroused while sucking my cock earlier, her pussy was already drenched in vaginal fluid. I licked Maya Reed's pussy as if wiping away the vaginal fluid smeared around it with my tongue.</p>
-<p>"Eungheueueut...! It's strange, Bossueeut! Down there, haaht! A strange♥ heueut! sensation is coming...!"</p>
-<p>At the sensation of her pussy being licked for the first time, Maya Reed twisted her entire body, resisting.</p>
-<p>"It's not strange, it's pleasurable. Don't try to resist; just accept this pleasurable sensation."</p>
-<p>I momentarily lifted my tongue, and gave Maya Reed some advice.</p>
-<p>"Neheeet...! It feels good...! Boss's tongue♥ is making my down there, heueut! feel so good, oooht!"</p>
-<p>To switch her stance immediately at my one word.... She really is like a fanatic, isn't she? I moved my tongue rhythmically, matching the rhythm of Maya Reed's moans.</p>
-<p>"Euhheut! Bossueeut...! Haaht! It's strange, ooht, no, heueut! It feels good, ooh♥"</p>
-<p>Maya Reed's pussy was already thoroughly loosened from when she performed fellatio, but since she was a virgin, I diligently used my tongue to loosen her up a bit more.</p>
-<p>Thinking this was enough, I sat up, grabbed Maya Reed's calves, and spread her legs. This was because her legs had been quite clamped shut from the pleasure while I was licking her.</p>
-<p>"Now, I'm going to put it in."</p>
-<p>"Nehee...♥ Boss and I are becoming one now, aren't we?"</p>
-<p>"Becoming one," she said, with that strange gaze again. She seemed surprisingly dependent. Just by looking at her, I would have thought she'd become an independent and intellectual lawyer. Instead of answering, I nodded and slowly pushed my cock inside.</p>
-<p>"Eugeueuht...! Down there, heueut! Boss's haaueeut~! Big cock, ooh...! It's widening, ooht...! It's being stretched, eeeheong♥"</p>
-<p>Maya Reed's virgin pussy was widening to its limit, accepting my cock. The pressure seemed considerable, as Maya Reed tried to close her legs, but I was holding her legs, so she couldn't achieve her purpose.</p>
-<p>Kkuuk...!</p>
-<p>My cock was blocked by something like a wall. It was her hymen. Earlier, she had become so skilled at fellatio so quickly that I wondered if she wasn't a virgin, but it seemed she was simply a sex genius who learned sex skills quickly.</p>
-<p>I pushed my hips forward, and slowly began to tear Maya Reed's hymen. Maya Reed's virgin pussy, which felt as if it was filled with tiny granules, was pushing my cock out as if expelling a foreign object.</p>
-<p>I enjoyed the sensation of her pussy and the pushing pressure, and thrust my hips further inward.</p>
-<p>Deudeuk...!</p>
-<p>"Ah, it hurts, aaht!"</p>
-<p>Perhaps because her sensitivity was so acute, Maya Reed vividly felt the pain of her hymen tearing. Undeterred by her pain, I completely tore through her hymen, penetrating her.</p>
-<p>"Haaueeut...! It hurts, aaht! Heueut! It's strange, eee...! Inside, eungheueut...! My deepest inside♥ is being pressed by Boss's haaht! cock, eeeheong!!"</p>
-<p>Naturally, because of the Black Mirok Gong, all the pain Maya Reed felt was soon converted into pleasure.</p>
-<p>Cheol-sseok! Cheol-sseok! Cheol-sseok!</p>
-<p>Making sounds of flesh colliding, I thrust my hips, searching for Maya Reed's sensitive spots. Of course, her sensitivity was so acute that even if I just thrust my hips thoughtlessly, Maya Reed would still moan with pleasure, but it was like a man's instinct to give a woman the utmost pleasure.</p>
-<p>"Haaang, haaht! Haaang...! Haaaaaang♥"</p>
-<p>Maya Reed's moaning sound, as I initially worried, didn't become excessively loud due to her sound Ability, but it was a moan that seemed to resonate within my body, like an echo. It was a more vivid moaning sound, somehow.</p>
-<p>One could even say it was a moan that made a man move more fiercely, like whipping a galloping horse.</p>
-<p>"Heueut! It feels...! Ooht...! Strange, eung, heueut! No...! It feels good♥ It feels good, Bossueeut!!"</p>
-<p>That she felt good was probably the truth. Just moments ago, Maya Reed's pussy had been making pushing movements, but now it was squirming and clinging to me, exhibiting a sucking motion inward, like during a vacuum fellatio.</p>
-<p>Of course, Maya Reed's pussy felt incredibly good. With its unique granular sensation and the added sucking movements, the pussy's intention to exploit my semen was clearly felt, and I could feel the semen gradually rising from my Balls.</p>
-<p>Cheolpeok! Cheolpeok! Cheolpeok!!</p>
-<p>Matching the sound of flesh colliding, which was much wetter than before, I thrust my hips even more fiercely. It was a final spurt to spray the semen, which was slowly rising, into Maya Reed's pussy.</p>
-<p>"Haaueuheung...! This! Haaht! Something...! Euhheung...! It's coming, haaht! Something big, eeet...! It's coming, oooht♥"</p>
-<p>"Haa, haa...! That's what a climax is."</p>
-<p>Although she had reached climax earlier from Breast Caress, this climax would be a massive one, incomparable to before. As her pussy was continuously stimulated and their flesh touched, it wouldn't even compare to a climax felt merely from foreplay.</p>
-<p>"Kheueu...! I'm, I'm cumming...!"</p>
-<p>I pressed my pubic bone against Maya Reed's groin as much as possible and cried out. In that instant, my cock expanded to its limit then contracted, profusely gushing out semen.</p>
-<p>Buuut! Buuut! Buuut!!</p>
-<p>"Haaaaaaaaaang! Ah, something hot inside, so much, eeeuk!!! It's coming, it's coming, it's coming, aaht♥"</p>
-<p>Maya Reed reached climax, her tongue lolling out. Her eyes were half-rolled back, her mind half-gone, and her pelvis twitched and shuddered.</p>
-<p>But I had no intention of ending it there. I didn't pull out my cock, but lifted Maya Reed's almost unconscious, trembling body into the air. It was a modified breeding press posture, allowing for the deepest possible penetration.</p>
-<p>"Haa, haa. Haa...?! Bo, Boss? It's not over?"</p>
-<p>"Before I return to Japan, I need to make Maya completely mine."</p>
-<p>At my words, Maya Reed's eyes widened, and she began to panic. Ignoring Maya Reed's panicked expression, I began to thrust my hips.</p>
-<p>"Boss...! I'm already yours...! So! Stooooop! Haaaaaang♥"</p>
-<p>Maya Reed couldn't finish her sentence and could only moan. Thus, within hours of losing her virginity, Maya Reed's intimate experiences surpassed double digits.</p>
-<p>Today's B-cuts~!</p>
-<p>Requested by Gojoy-nim: Chapter 53 Remake Chieri, Suzuki Chisami</p>
-<p>Worried Chieri~!</p>
-<p>Suzuki Chisami</p>
-<p>Requested by TheDreaming-nim: Lara Sinclair 1. See-Through Shirt 2. Bike Riding</p>
-<p>1.</p>
-<p>2.</p>
+<p>and chapter check contains content erotic please surroundings this your</p>
+<p>"So that Biseon-nim won't be embarrassed, I will take off my clothes first."</p>
+<p>I took off my clothes first so that Nasian wouldn't be embarrassed. That way, even if I then took off Nasian's clothes, it would be a little less embarrassing.</p>
+<p>As I took off my clothes and hung them on a nearby tree branch, I realized Nasian's eyes were fixed on my cock, which was stiffly pointing towards the sky.</p>
+<p>In that gaze, there was no longer any Repulsion. Receiving that aroused gaze, mixed with Expectation, desire, and Desire, I unconsciously put more power into my cock. As my cock twitched, Nasian let out a small Sigh, "Haa."</p>
+<p>Now naked, I slowly approached Nasian. Nasian looked up at me with eyes full of Expectation.</p>
+<p>"I will begin now."</p>
+<p>"...♥"</p>
+<p>Having said I would begin, I grasped the Cleavage of Nasian's blue clothes and slowly pulled it down. Then, Nasian's large, white breasts were revealed.</p>
+<p>"Heueu...!"</p>
+<p>As the cold wind brushed her nipples, Nasian's body trembled slightly. The effect of the aphrodisiac seemed considerable.</p>
+<p>They were beautiful breasts, and they felt as if they would have a very good Touch if touched, as if seducing me to touch them.</p>
+<p>Since I had already decided to help Nasian resolve the aphrodisiac's effects, I didn't hesitate to reach out both hands and touch her breasts.</p>
+<p>"Haaht!! If you touch them like that♥ My breasts...! It feels strangeee...!"</p>
+<p>As I grasped her breast, filling one hand, Nasian let out a moan and raised her Voice. The Sensation of her breasts softly changing shape under my Touch felt incredibly good. With the magic power of her breasts softly filling my hands, I senselessly touched Nasian's breasts for a while.</p>
+<p>"Heueuhaang...! No, no more Heueut! Don't just touch my breasts Haaht! Down there Haaht! It's hot, I tell you♥"</p>
+<p>Nasian's impatient Voice was heard. It seemed I had only touched her breasts too much. I took my hands off her breasts and brought my lips to Nasian, who was looking at me impatiently.</p>
+<p>"Haeup...!"</p>
+<p>Nasian, as if she had been waiting, sucked my lips as if devouring them and entwined her tongue with mine. I didn't know if it was because of the aphrodisiac or her natural constitution, but the inside of Nasian's mouth was incredibly hot.</p>
+<p>"Eungheup.... Jjeueup, Jjeup, Jjeubeup...♥ Jjok, Chyubeup...!"</p>
+<p>Nasian's aggressive Kiss and the alluring Scent of a female in Heat emanating from her body made it impossible for me to hold back any longer. In fact, to detoxify the aphrodisiac, I had to inject Yang Energy into her Pussy inside, so quick insertion was the more correct choice rather than just touching her breasts like before.</p>
+<p>"Eungheut...! Jjeueup, Jjeubeup...! Jjeup! Chyuup♥"</p>
+<p>While kissing, I lifted Nasian's body, raising her from the tree stump. And then I parted our lips.</p>
+<p>"Haaah.... A little moree...♥ Keep kissing my lips, chuu♥"</p>
+<p>Whether the aphrodisiac's energy had completely taken over, Nasian's eyes were completely glazed over. Perhaps because she was still a Virginity, she didn't know much about Sexual Acts, so she wasn't squeezing my cock, but seemed to be continuously exploring only my lips.</p>
+<p>I turned Nasian around, who was clinging to me, asking for more kisses, had her lean her hands on the tree, then lifted her skirt to her waist and tore off her soaked underwear that was no longer functioning.</p>
+<p>Jijiik!</p>
+<p>"Haaaeueung!"</p>
+<p>Just from the Stimulation of tearing her underwear, the pleasure was so immense that Nasian arched her back and reached Climax. Shooting out vaginal fluid and trembling violently showed how strong her Climax was.</p>
+<p>At this point, no matter how much of a Virginity Nasian was, there seemed to be no need to specifically loosen her Pussy. I grasped Nasian's plump buttocks and slowly began to push in my cock.</p>
+<p>With a ripping sensation, Nasian's Hymen tearing was felt by my glans.</p>
+<p>"Heueut!! Haaang! The insideee...♥"</p>
+<p>When a Large Penis of my cock's size entered, tearing the Hymen, ordinary women would feel Pressure and pain from the tearing Hymen and the Foreign Sensation of being stretched open inside, but Nasian, heavily addicted to the aphrodisiac, screamed with pleasure and ecstasy rather than pain and Pressure.</p>
+<p>As expected, perhaps because she was a woman who had trained in Martial Arts and a Virginity, the Pressure of her Pussy was considerable. Nasian's Pussy was a Heavenly Vessel that could only be described as "biting down."</p>
+<p>Her Hot Pussy, heated by the aphrodisiac, which bit down on my cock with a chewing sensation, was profusely dripping sexy smell vaginal fluid, like a dog drooling in front of food.</p>
+<p>Because the lubricating fluid continuously gushing from Intravaginal was heavily coating my cock, no matter how strong the Pressure of her Pussy was, I could thrust my hips without difficulty.</p>
+<p>Cheol-sseok! Cheol-sseok! Cheol-sseok!!</p>
+<p>"Heook, Heook...! It feels good, Biseon-nim!"</p>
+<p>"Haaht! Heueut! Eoh-heok...! Me too♥ Haaht! This kind of feeling is! My first timeee!!!"</p>
+<p>Since it had been quite a long time since I had engaged in Sexual Acts while Training with the Sabu-nim, the feeling of ejaculation quickly came. Normally, I would have changed sexual positions to delay the feeling of ejaculation, but my partner was Nasian, addicted to an aphrodisiac that required my Yang Energy.</p>
+<p>"Keueut...! I'm cumming...! Please get pregnant!!"</p>
+<p>I informed Nasian of my Ejaculation and began to pour out an enormous amount of semen into Nasian's Pussy inside.</p>
+<p>Ulkeok! Ulkeok! Ulkeok!</p>
+<p>"Heoeok...! Heueut! Inside, Haaht! Inside me...! Something hot...♥ Hyaaaang!!"</p>
+<p>As I pulled out my cock, my white White Fluid was seen gushing from Nasian's Pussy hole and falling onto the forest floor. That Appearance was incredibly erotic, so even after Ejaculation, my cock quickly regained its power.</p>
+<p>I embraced Nasian, who was trembling with pleasure, from behind and whispered into her Whispering Ear.</p>
+<p>"Does it feel like it's detoxifying a little?"</p>
+<p>"Heueung, Eungheueut...! Not yet♥ Yongtae's Large Penis.... Haaht! No, I need more Yang Energy...!"</p>
+<p>At my question, Nasian trembled repeatedly at the Climax and demanded more of my semen. Swaying her Pelvis gently and stimulating my cock that was pressing against her buttocks seemed to be manifesting her innate sex appeal.</p>
+<p>I couldn't help it. Looking at her condition, even if we did it one more time, the aphrodisiac didn't seem like it would be detoxified.... At least two or three more vaginal ejaculations seemed necessary.</p>
+<p>"Then this time, like this...."</p>
+<p>This time, instead of from behind, I turned Nasian's body so we faced each other. The sexual position we would do this time was a standing position (立位). However, I planned to modify it slightly by having Nasian lift one leg and then insert.</p>
+<p>For an ordinary woman, it would have been a difficult Intimate Posture, but for Nasian, a Super Peak Realm Master who could freely control her Body, it was not a difficult Intimate Posture.</p>
+<p>"Lift your leg."</p>
+<p>"Uh.... Is this how it's usually done?"</p>
+<p>"I've never seen others do night work either, so I don't really know."</p>
+<p>Although she did as I instructed, before Nasian, who was asking if this was a normal Sexual Act, could feel anything strange, I immediately embraced Nasian and inserted. My semen, filling the Pussy inside, was pushed out as my cock slid in with a 'swoosh'.</p>
+<p>"Haaht!!"</p>
+<p>As I put in my cock, Nasian's body trembled slightly again. The very Appearance of her standing, holding her highly lifted leg, was like a lump of alluring sex appeal that made me hard, so I quickened my Hip Movements from the start. While pulling Nasian's firm thigh and moving my hips, I was able to insert quite deeply.</p>
+<p>"Haaht! Heueung! Eung-hiit!! The inside Eueut! Is being gouged Heueut! It feels like it, Haaang♥"</p>
+<p>Whether it was to support her Balance with one leg or to receive my cock even deeper, Nasian let out moans that were almost Screams and leaned her Body towards me.</p>
+<p>In fact, this modified standing position was new to me, so it felt a little awkward, but as I continued, I gradually adapted. Nasian, likewise, seemed to have gotten used to it, lifting her leg and spreading it wide, she helped me to press closer to her Pussy.</p>
+<p>Of course, it felt incredibly good, but what Nasian immediately needed was for my Yang Energy-filled semen to be fully injected Intravaginal. Since it hadn't been long since I ejaculated, even with this highly Arousal sexual position, it seemed it would take more than half a shigyeong (15 minutes).</p>
+<p>"Haaht! Heueung... Hieueu-heung♥ Kyaaht...!"</p>
+<p>Thinking this wouldn't do, I grasped Nasian's buttocks with both hands and lifted her. With this Intimate Posture, I would be able to make movements solely for Ejaculation. Although she was one of the Five Great Masters, she was light enough that I didn't feel much Weight when I lifted her, and also soft. The Realism of me violating Biseon-nim further aroused me.</p>
+<p>"Heueueut!! The inside Haaht! Is being pressed down!!"</p>
+<p>As I inserted deepest due to gravity, her Cervix pressed against my glans and my glans pushed up her Cervix, so Nasian, feeling a unique pleasure, rolled her eyes back and screamed. Of course, it was a Scream of extreme pleasure, not pain.</p>
+<p>I paid no mind to Nasian's Screams, grasping her buttocks, shaking Nasian's Body up and down, while simultaneously thrusting my hips.</p>
+<p>"Haeu-heueut! It's deep, Heueut! Ohh...! Yongtae's Haaht cock isss♥ Piercing me throughhh...!"</p>
+<p>Although it was a movement solely for Ejaculation, surprisingly, Nasian was also feeling immense pleasure.</p>
+<p>Almost as much as when I took her Virginity earlier, her Pussy tightened around my cock and trembled, as if it were a movement to induce my Ejaculation.</p>
+<p>"Haeu-heung! Insideee...! It's getting biggerrr♥"</p>
+<p>As I relentlessly thrust my Arms and hips simultaneously, the feeling of ejaculation quickly returned. Whether she felt my cock swelling, Nasian's Pussy was also twitching even more violently.</p>
+<p>"I'll cum deepest inside again...!"</p>
+<p>"Heueut! Give me a lot. Yongtae's hot stuff♥ A lottt...!"</p>
+<p>Cheol-sseok! Cheol-sseok! Cheol-sseok!!</p>
+<p>Byuut! Byuut! Byuuu-uut!!</p>
+<p>Exploding deep inside Nasian, semen began to gush out in throbs. Nasian also reached Climax in response, rolling her eyes back and showing me the Orgasm Face of a woman who had completely come.</p>
+<p>Of course, I too, with such immense Ejaculation, was feeling pleasure to the point where my Mind almost left my Body.</p>
+<p>Dugeun Dugeun...!</p>
+<p>My cock pulsed like a heart and poured out semen in rhythm. Each time, Nasian thrashed, convulsed, and climaxed, and my Field of Vision seemed to turn completely white.</p>
+<p>"Haa...! Haa...! Has it detoxified a little now?"</p>
+<p>"Not yet...! The two Treatments we just did are merely temporary measures. It seems we need to do it at least three more times."</p>
+<p>At my question, Nasian was claiming "three more times!" No, looking at her Face now, it was completely smooth and radiant, and there was no trace of the aphrodisiac's Aura.</p>
+<p>"Are you doubting me...?"</p>
+<p>As if she read my Expression, Nasian sent out a chilling Killing Intent.</p>
+<p>"No. My opinion is, since we've temporarily suppressed the aphrodisiac, even if it's just a stopgap measure, how about we go to an Inn and rent a Room to do it?"</p>
+<p>After running non-stop to Haxeseong, then searching Bicheonseong, and then running continuously without rest, and coming all the way to the forest to "treat" Nasian (?), I felt quite fatigue. I thought I should stop by a nearby village Inn and eat something to recover my stamina.</p>
+<p>"Let's do that. But.... While going to the Inn, the aphrodisiac Addiction might worsen, so you have to do it four more times, understand?"</p>
+<p>"Of course."</p>
+<p>It's said that a thief who learns late doesn't know when dawn breaks.... Despite losing her Virginity today, Nasian was quite proactive. I smiled slightly at the Appearance of Nasian linking Arms in arm with me, asking for support, and headed towards the village with a nearby Inn.</p>
+<p>B-cuts~!</p>
+<p>Suddenly white panties hehe</p>
+<p>Originally, I tried to grab her breast with one hand, but I thought two hands would be better hehehe</p>
+<p>I don't know if it's because of the clothes Lora or for some other Reason, but even though I didn't input a separate prompt, many split screens appeared hehehe</p>

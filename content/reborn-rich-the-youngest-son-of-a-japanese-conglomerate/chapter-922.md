@@ -5,69 +5,103 @@ weight = 922
 chapter = 922
 +++
 
-<p>After Takakusaki Gengo disappeared with Genba Kiyohira, Asada Ei, who had gone to the General Situation Room to grasp the overall information, returned after I waited for a moment in the ruined pension.</p>
-<p>"First, Fujigasaki-nim's requested location is currently on Road 140, coming by vehicle. It will take about twenty minutes."</p>
-<p>Since Fujigasaki Rinka had been fighting on her way from Tokyo to here, it seemed to be taking a bit longer for her to arrive.</p>
-<p>Still, seeing that she was coming, it seemed she had dealt with all the White Light Fist Masters and Guardians. I had worried she might be overwhelmed by enemies using Compatibility/Affinity, but since she won, that's Fortunate. No matter that she was a legendary Fist Technique Master named Fujigasaki Rinka, to deal with three Anyaji Guardians and White Light Fist Masters who overwhelmed with Compatibility/Affinity, I could only say it was amazing.</p>
-<p>"Are all the other groups alright?"</p>
-<p>"Yes. Everyone seems to have overcome it well without serious injury. But Saionji-ssi's cyber implant is broken, so she won't be able to continue fighting."</p>
-<p>Even if she couldn't participate in battle immediately, cyber implants could be replaced at any time, so it wasn't a big loss. I had expected at least three or four people to be injured, but surprisingly, apart from the repairable cyber implant damage, everyone was unharmed, so it could be called an unexpectedly great Achievement. As I was grasping the status of Asada Ei and the personnel who participated in this battle, Athena Mannerheim and Musashi Takuro approached.</p>
-<p>Both of them were on the Phone Call, trying to figure out where Takakusaki Gengo had gone, and it seemed they had found his Position and come.</p>
-<p>"He said he went to a Place called Genashi Mountain (Hairless Mountain), and he'll send the exact Position by Text Message."</p>
-<p>Athena Mannerheim and Musashi Takuro, who were not Miyashi natives, while explaining to me, wore Expressions wondering where Genashi Mountain was, but Genashi Mountain was a Mountain between Miyashi and Mount Fuji.</p>
-<p>It was a Mountain that was a local attraction where one could see Mount Fuji from the summit, but Takakusaki Gengo probably took Genba Kiyohira to a Place other than the official hiking trail. By the way, how did Takakusaki Gengo know about Genashi Mountain? Even Athena Mannerheim and Musashi Takuro, who were also affiliated with Anyaji, didn't know.</p>
-<p>"We should depart immediately once Sabu joins us. Please let me know when the exact Position is ascertained."</p>
-<p>As I spoke, Shimokawabe Airen, Alik, and Naruse Shiyo arrived. Alik called me, "Ryuta!" and ran to me, hugging me. I stroked Alik's Head and told Shimokawabe Airen and Naruse Shiyo that they had worked hard.</p>
-<p>And soon after, all the groups that had fought today were arriving one after another. Except for Saionji Diana, whose cyber implant Arm had been torn off, everyone was safe, but they all looked quite exhausted, as if they had fought a fierce battle.</p>
-<p>"Ugh, Ryuta-jji...! I'm sooooo tired~!"</p>
-<p>Seizawa Shii swayed, came to the opposite side where Alik was holding my Arm, and leaned her Body against me. Then the old man Yoda approached Seizawa Shii.</p>
-<p>"Did you Handle Funayama Seigo well...?"</p>
-<p>"Of course, instead of old man Yoda-nim, I pulled out his tongue and killed him. I did well, didn't I?"</p>
-<p>To pull out his tongue and kill him.... It was quite cruel, but since the deceased Target was Funayama Seigo, the one Responsible for kidnapping and Brainwashing boys and girls, I didn't feel sorry for him.</p>
-<p>The old man Yoda, hearing that Story from Seizawa Shii, wore a complex Expression of slight sadness and relief. The relief of finally completing his Disciple's boksu and the sadness of still not being able to see his Disciple, must have coexisted.</p>
-<p>"What should we do now?"</p>
-<p>This time, it was the old man Yoda asking me a Question. The old man Yoda's Party/Group included not only Kujo Kina but also Fist Technique Masters from Gwonmaeng, so he had Demanded an Explanation from me.</p>
-<p>"The Last battle still remains. That is, dealing with Takakusaki Gengo, the ringleader of Anyaji."</p>
-<p>Although I was answering the old man Yoda's Question, I spoke a little louder so everyone could hear. After all, everyone had the curiosity of 'What's next?'</p>
-<p>"We will soon be able to ascertain Takakusaki Gengo's exact Position, so please Rest for a moment."</p>
-<p>I glanced at Athena Mannerheim, who had been speaking as if she would receive the detailed Position by Text Message any moment, and indeed, she was nervously biting her nails and staring only at her phone Screen. I didn't know what Takakusaki Gengo had said, but it seemed she couldn't receive the Information immediately.</p>
-<p>In fact, I was also anxious. It was a Situation where I didn't know how long Genba Kiyohira could hold out. Although Takakusaki Gengo had wrapped the severed Arm's cross-section with a strange black Aura, he had already bled a lot before that, so it must be quite Dangerous. Since the life of a close friend from childhood was at stake, I felt considerable anxiety.</p>
-<p>As I waited for a moment with an anxious Expression, I saw a car approaching the pension. Soon the car stopped, and a welcome Face emerged from the Driver's Seat.</p>
-<p>"Yo!"</p>
-<p>Fujigasaki Rinka, too, seemed to have spotted me and waved her Arm with a welcoming Expression. Everyone's Gaze focused on the appearance of the world's number one martial artist. The Gwonmaeng people, including the old man Yoda, looked as if to say, 'Oh, she's here,' since they had been together all this time, and the special class Students looked at Fujigasaki Rinka with an Expression of wonder, exclaiming, 'Wow, a Celebrity!'</p>
-<p>Of course, there were those who showed a different Reaction than the two types just mentioned. They were Kujo Kina and Naruse Shiyo, long-time fans of Fujigasaki Rinka.</p>
-<p>"Kyaaaaaaaak! I'm a fan!"</p>
-<p>Naruse Shiyo appealed to be a fan, letting out a Scream almost like a jeolgyu, and Kujo Kina was shedding Tears, smiling with an Expression as if she had achieved enlightenment.</p>
-<p>"Are they also.... your Disciples?"</p>
-<p>Fujigasaki Rinka, who had gotten out of the car, approached, looked at Naruse Shiyo and Kujo Kina, and cautiously asked me.</p>
-<p>"Yes, they're Sabu's fans, so please understand."</p>
-<p>"Well, it's a familiar thing, but anyway...."</p>
-<p>Ttak!</p>
-<p>After saying 'anyway,' Fujigasaki Rinka immediately gave me a knuckle rap. I felt a Pleasurable Ache so intense that Stars flashed before my Eyes. It hurt far more than the one or two blows I had just taken while sparring with Musashi Takuro; Sabu's knuckle rap was much more painful.</p>
-<p>"That hurts!"</p>
-<p>"I hit you so it would hurt! You abandon your school without even telling Sabu?"</p>
-<p>Ah, so that's why she hit me. If it was about Shinkai Yatsude, honestly, I had nothing to say. As I just rubbed my Head and said nothing, Fujigasaki Rinka approached her friend, Shimokawabe Airen.</p>
-<p>"Airen~! You're not hurt, are you?"</p>
-<p>"No, I'm not hurt. You haven't changed, Rinka."</p>
-<p>Perhaps because they were friends, the two were having a natural Conversation without awkwardness. Although I was curious what they were talking about, I had no choice but to turn my attention to Athena Mannerheim, who had approached at just the right time, to talk with her.</p>
-<p>"I just received Contact."</p>
-<p>"Takakusaki Gengo's exact Position, right?"</p>
-<p>"Yes, it was almost simultaneous with her arrival, as if he knew Fujigasaki Rinka-ssi was coming."</p>
-<p>He wouldn't have known Sabu was coming.... I looked at the phone Screen Athena Mannerheim showed me. Since the Coordinates were written in latitude and longitude on the phone Screen, I called Asada Ei to ascertain the Position.</p>
-<p>"As we predicted, the Coordinates are marked in a Place other than the hiking trail."</p>
-<p>Asada Ei showed me the map on her tablet Screen and gave an Explanation. Honestly, I wouldn't know by looking at the map, never having been to Genashi Mountain, but I roughly grasped the Position and nodded my Head.</p>
-<p>"It would take more than 2 hours on Foot, but if it's Takakusaki Gengo, he probably used some other Ability to arrive quickly. Since he knows Fujigasaki Rinka-nim is coming, there's a high Possibility he's even set up traps."</p>
-<p>"For normal traps, we can trust Joseodang.... Urabe will be able to Handle the Jusul traps. There are also agents sent by the Naruse Family."</p>
-<p>No matter how many traps Takakusaki Gengo prepared, since everyone was a talented Person, they would be able to break through sufficiently.</p>
-<p>"Excluding personnel unable to fight, everyone will move out!"</p>
-<p>Since all personnel unable to fight had already been checked during the Rest, they could depart quickly. Saionji Diana, whose cyber implant Arm had been torn off and who couldn't participate in the next battle, was standing, looking at me with a sorry Expression, so I gently pinched her cheek and opened my mouth.</p>
-<p>"Don't be sorry, I'm grateful you fought to that extent."</p>
-<p>"Yes.... Please don't get hurt, Teacher-nim...!"</p>
-<p>I smiled at Saionji Diana and boarded the vehicle heading to Genashi Mountain. Even though Takakusaki Gengo's Position was off the hiking trail, going by car was faster to the vicinity of Genashi Mountain, which is why I boarded the vehicle.</p>
-<p>Saionji Diana, who was judged combat-incapable, and some of Gwonmaeng, withdrew to the rear, and most people, excluding the auxiliary personnel of the General Situation Room, participated in the battle.</p>
-<p>I tried to send Nakasone Rishin and Kujo Kina to the rear as well, but since both held a grudge against Anyaji and insisted on participating, even if just to Support, I let them participate in a role like a communications soldier, receiving Contact in the General Situation Room. If there was any important Information, Kujo Kina or Nakasone Rishin would hear it from the General Situation Room and inform us.</p>
-<p>MidNightSKY-nim requested: Liz-tang, blushing while thinking of Linling and Ryuta-jji smiling brightly for Children's Day!</p>
-<p>Linling first!</p>
-<p>I couldn't think of a way to express Children's Day, so I just dressed them in kindergarten uniforms haha</p>
-<p>Liz-tang~!</p>
-<p>Kkiyot!</p>
+<p>"Then, I'll see you tomorrow, Liege/Master...!"</p>
+<p>Sakagami Rena, who had been thoroughly fucked by me, staggered as she returned Home, and now only Saionji Diana remained at Home.</p>
+<p>Although she was recently being treated as a direct-line Young Lady again in the Saionji Family due to catching the serial killer Kotowazuki at the ski resort, before that, she had been treated as completely invisible and hadn't even received proper support, so Saionji Diana had no affection for the Main family. The only affection that someone named Saionji had was for her dead Parents and younger sibling.</p>
+<p>So, she had yielded the priority for Sex to Sakagami Rena, who was returning Home today. After all, there was no Reason to go to the Saionji Mansion, and she could monopolize me for the rest of the time. It was a shrewd profit calculation worthy of the Young Lady of Saionji Bank.</p>
+<p>"I'll go Shower."</p>
+<p>Since she had waited for me like this to monopolize me on purpose, I couldn't, out of Etiquette, have Sex while reeking of another Woman's vaginal fluid, so I said I was going to Shower.</p>
+<p>"Ah...! I was waiting without Showering too. I'm going to Shower with Teacher-nim...♥"</p>
+<p>"Then shall we go in together?"</p>
+<p>I could do something like Showering together as much as she wanted. While Sakagami Rena and I were having Sex in the room, Saionji Diana had cleaned up all the dinner and even did some housework that she thought was lacking, so Showering together was a simple matter.</p>
+<p>"Go into the Shower Room first. I'll just have a glass of water and go in."</p>
+<p>"Okay~♥"</p>
+<p>I had discharged quite a bit of Sweat and semen etc. from Sex with Sakagami Rena just now, so I should drink some water. I'll probably lose moisture again when I'm with Saionji Diana, so I should drink it in advance.</p>
+<p>I received cold water from the water purifier, took off my Clothes, and entered the Shower Room, and Saionji Diana was already inside the Shower booth. When I entered, she smiled brightly at me and stuck to the glass wall of the Shower booth.</p>
+<p>The sight of her breasts being pressed against the glass wall was enough to anger my cock. I went straight into the Shower booth.</p>
+<p>"You didn't just want to Shower?"</p>
+<p>I said, grabbing Saionji Diana's elastic breasts, which had no pressed marks at all.</p>
+<p>"Heueung...♥ I don't know, Teacher-nim...!"</p>
+<p>What's with setting her nipples up while saying she doesn't know? It seems like she already knows everything.</p>
+<p>For a while, I touched Saionji Diana's breasts, then grabbed Saionji Diana's chin, gently pulled it, and kissed her. As if she had been waiting, Saionji Diana's mouth opened and actively responded to my Kiss.</p>
+<p>Chyu-eup...! Jjeu-bbeut♥ Jjok...! Chyu-heup!</p>
+<p>It wasn't a bad feeling at all to kiss lustfully while being hit by the warm water falling from the Sensual Showerhead. No, it was rather good. As I kissed while being hit by the warm water that made my Body languid, a feeling like a comfortable pleasure was dominating my whole Body.</p>
+<p>"Haa...! Haa...! Teacher-nim...♥ Since you had a hard time today, I'll Service you."</p>
+<p>After the Kiss ended, Saionji Diana knelt before me, saying she would Service me. And she poured a lot of something like gel that she had brought from somewhere, and began to sandwich my cock between her breasts.</p>
+<p>It seemed like she was going to do a paizuri. Saionji Diana had considerably Big Tits, so there was no Problem wrapping my cock with her breasts. But it couldn't be helped that my Large Penis peeked out from between Saionji Diana's Cleavage.</p>
+<p>As my cock was being rubbed between her slippery and soft breasts, I felt a peaceful pleasure that made my whole Body lose strength. Like floating in the clouds?</p>
+<p>"Hulureup...! Chyureup! Jjeubbeup, Jjeubbeup!"</p>
+<p>For a while, I closed my Eyes and enjoyed Saionji Diana's breasts, then Saionji Diana moved on to the second pattern. She began to suck the glans that had popped out from between her Cleavage intensely, as if sucking on candy or ice cream.</p>
+<p>"Heuheok...!"</p>
+<p>Naturally, it was an Ambush that almost made me sit down due to the pleasure that pierced from my Curling Toes to the top of my Head for me, who was feeling a comfortable pleasure.</p>
+<p>It seemed like she instinctively knew that the Opponent would feel more pleasure if she made them feel unexpectedness with strong and weak adjustments rather than continuous constant pleasure.</p>
+<p>I reflexively pulled my waist back due to the sudden pleasure, but Saionji Diana pushed me so that I couldn't pull my waist back and stuck my back to the wall. And while looking up at me, she did a vacuum fellatio that made her cheeks hollow, and began to lick around my urethral opening intensely with her tongue inside her mouth.</p>
+<p>After being subjected to that for about ten minutes, I couldn't hold on any longer either. Semen rose up irresistibly and filled Saionji Diana's mouth.</p>
+<p>Although a tremendous amount of semen poured out, Saionji Diana moved her neck gulping and gurgling and swallowed all the semen. It was a sight that made me feel her Determination not to miss a single drop of semen.</p>
+<p>Saionji Diana, who had swallowed all the semen in her urethra, spat out my cock and smiled at me.</p>
+<p>"How was my Service, Teacher?"</p>
+<p>"It was the best...!"</p>
+<p>I almost had my Soul sucked out while Ejaculating, so I couldn't say it wasn't the best. Saionji Diana, who had a cyber implant, seemed almost like a mecha Succubus.</p>
+<p>After ending the Shower that was so satisfying (after lathering our Bodies with soap, we rubbed our Bodies together while washing, so my cock quickly resurrected), I returned to the bed and decided to give her a Repayment for the Service I had received in the Shower booth.</p>
+<p>Just like Saionji Diana had done for me, I would suck Saionji Diana's pussy with my mouth.</p>
+<p>Naelreum.</p>
+<p>"Haeueuheung...! Teacher-niim~♥"</p>
+<p>Saionji Diana, who was feeling pleasure, twisted her whole Body and trembled after I had licked her once. She had a strong Attack power, but she was the type with a weak Defense, but she felt pleasure so close to Climax with just one lick of my tongue? She had definitely felt pleasure herself while Servicing me.</p>
+<p>I didn't let Saionji Diana, who was feeling pleasure like that, watch me, and I licked and sucked Saionji Diana's pussy ravenously.</p>
+<p>"Chyureup! Chwip, Jjeubbeup! Chwip, Hulureup, Chwip...!Chwip!"</p>
+<p>"Haeueheung...! Teacher-niim...! So, Haaht! Hard...! Haeimyeoeon, Eungheut...! I'm going to cum♥"</p>
+<p>Saionji Diana, who had been trembling her Thighs, suddenly gathered her Legs and squeezed my Head. If it were a normal Woman, it would be a feeling of being buried in soft Thigh flesh, but Saionji Diana's Legs were a cyber implant.</p>
+<p>Thanks to the technology that Eve had researched diligently, they were soft like a human's, but their power was so great that I felt considerable Pain.</p>
+<p>"Are you okay, Teacher?"</p>
+<p>"Yeah, I'm okay. If it were another man, he would have suffered a skull fracture."</p>
+<p>Saionji Diana also realized what she had done, and hurriedly opened her Legs and asked with a worried Expression. Because I had high Defense, it ended with me feeling Pain, but if it were another man, his skull would have been cracked and he would have been taken to the Hospital.</p>
+<p>Although I said I was okay, I mentally promoted Saionji Diana to 2nd place in the ranking of Women who are dangerous during Sex, after Seizawa Shii.</p>
+<p>"It's Fortunate that there's no Work to do with other men. But I'll be careful from now on."</p>
+<p>Saionji Diana said with an awkward Smile when I said I was okay. I smiled too because it was quite good that she was subtly showing me her Sexual Loyalty, saying that there was no Work to do with other men.</p>
+<p>Although there was an unexpected accident for a Moment, I decided to enter the main game, insertion Sex, because the Foreplay of sucking her pussy was over.</p>
+<p>I grabbed Saionji Diana's Legs, who was lying down in the missionary position, and lifted them up slightly, making a position similar to a half-breeding press or a curved position, and then thrust my cock in.</p>
+<p>"Heueu...! It's big, Teacher-niim...! My inside is...! Haaht! Keueuheung...♥ Being opened, Euheung, it is...!"</p>
+<p>As my cock expanded and entered Saionji Diana's Vagina, Saionji Diana shook her Head, making a moaning sound with an Expression somewhere between Pain and pleasure (but closer to pleasure).</p>
+<p>But Saionji Diana couldn't resist any further because her Legs were already grabbed so that she couldn't move. I slowly began to shake my waist in that position.</p>
+<p>"Haeue...! Heueu....! It's deep, Haaht...! Teacher's cock, Heuheung...♥ Because it's long and thick, Haeueheung...! The inside feels good♥ The feeling is jyeohaang, cock is the best...!"</p>
+<p>Saionji Diana began to praise my cock with moans, as if she felt good about the insertion after a long time.</p>
+<p>Cheol-sseok! Cheol-sseok! Cheol-sseok!</p>
+<p>Saionji Diana's pussy also felt good, so instead of shaking my waist slowly, I also began to shake my waist strongly and quickly in search of pleasure.</p>
+<p>"Haeueaang...! Haaang! Eueueheung! Teacher-niim...! Haaht! It's dangerous, Haaht! It's too strong, Haaht! Heueung!"</p>
+<p>Saionji Diana, who was constantly saying it was dangerous, was gradually heading towards Climax. I also shook my waist intensely, and I could feel semen rising from my balls.</p>
+<p>"Teacher-niim...♥ In my uterus, Haaang! Please put pregnancy fluid in, Haeuheueung...! Teacher's lustful white fluid, Heueung! Quickly, Heueung, put it in..."</p>
+<p>Saionji Diana, whose Climax was in sight, began to urge for my semen. By the way, pregnancy fluid.... The Address for semen is gradually increasing.</p>
+<p>"Keueu, I'll cum as you wish...! You have to receive it all in your uterus?"</p>
+<p>"Neeehet! Quickly, Haeung, before I go, Heueung, give it to me..."</p>
+<p>I thrust my cock deep into Saionji Diana's uterus and began to Ejaculate. Because of the sexual position, I could see Saionji Diana's pussy being opened well when my cock expanded due to Ejaculation. Because I was Aroused by that Appearance, the semen came out more powerfully and knocked on Saionji Diana's cervix. Then Saionji Diana also reached Climax at the same time.</p>
+<p>"Haeuehahaang...! I'm going, I'm going, I'm going, Teacher, Haaht! I'm goingooooht♥"</p>
+<p>The Eyes of Saionji Diana, which were revealed through her Hair, seemed slightly out of it, as if the Climax from Ejaculation was so good.</p>
+<p>"Haa...! Haa...! Haa...!"</p>
+<p>Saionji Diana let out a heavy Breath, and I pulled out my cock and lay down next to Saionji Diana, giving her an Arm Pillow.</p>
+<p>"Haa, Haa...! Haeue...! Teacher, you had a hard time today."</p>
+<p>Saionji Diana looked up at me while being embraced by me and said. As Saionji Diana said, I did have a hard time, but it wasn't just my hard time, but everyone had a hard time together.</p>
+<p>"Everyone had a hard time. Diana, you had a hard time too."</p>
+<p>"Yes...."</p>
+<p>"So...."</p>
+<p>I pulled out the Arm that was giving her an Arm Pillow and raised my Body again. Saionji Diana looked at me, wondering what was going on.</p>
+<p>"Since you had a hard time today, I'll Service you one more time."</p>
+<p>"Yes? I'm okay now, Teacher?"</p>
+<p>"No, I'm not okay."</p>
+<p>Saionji Diana, whose pupils were shaking when I showed her my stiffly Erect cock, raised both fists and opened her Legs as if she had made up her mind.</p>
+<p>"P, please come in, Teacher...!"</p>
+<p>Like that, Saionji Diana was able to monopolize Taira Ryuta until Dawn, which she had wanted since she decided on the order.</p>
+<p>Nagumo Sian requested by Gojoy-nim 1. Lying down and covering her breasts 2. Inviting into the Entwined Sheets</p>
+<p>1.</p>
+<p>2.</p>
+<p>Aegyo of child Linling and Zero Two pose of adult Linling requested by MidNightSKY-nim~!</p>
+<p>Child Linling Aegyo~!</p>
+<p>Half Ball Heart</p>
+<p>Double Ball Heart</p>
+<p>Finger Heart~! Hehe, actually, you made the same Request before, so.... I've run out of repertoire hehe.</p>
+<p>Adult Linling~!</p>
+<p>I remade the adult Linling drawing style hehe.</p>
+<p>Yang Seol-hui and Tang So-hwa sexy Cheongsam requested by Iseibu-nim~!</p>
+<p>From Yang Seol-hui~!</p>
+<p>You might say, what's so sexy about this Cheongsam? But if you look closely, it's a Cheongsam designed to reveal the Side breast hehe.</p>
+<p>Tang So-hwa~!</p>
+<p>Tang So-hwa was made with a Cheongsam that showed her Cleavage hehe.</p>

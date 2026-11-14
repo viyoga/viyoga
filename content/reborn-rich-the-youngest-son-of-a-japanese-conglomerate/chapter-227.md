@@ -5,80 +5,63 @@ weight = 227
 chapter = 227
 +++
 
-<p>"Hng...! No more...♥"</p>
-<p>Thud.</p>
-<p>Dang So-hwa couldn't take it anymore and fainted. Three times in a row would have been too much for a virgin. Still, Dang So-hwa kept telling me to just kill her at first and held out quite a bit, but in the end, she kept saying "I like it♥ I like it♥" as she was driven mad by the repeated climaxes, clinging to me.</p>
-<p>However, it was difficult to say that Dang So-hwa had been won over in just one day. She would act hostile again when she came to her senses. But I think if I repeat this a few times, she will eventually surrender.</p>
-<p>"I'll leave the birth control pills here, so let me know when your leader wakes up. Oh, and I'll leave a few breads since you've been through quite a bit."</p>
-<p>I showed Yang Seol-hui the pills and bread and put them on a corner of the mattress as I spoke. Since Dang So-hwa had fainted, I had no choice but to talk to Yang Seol-hui. Yang Seol-hui just nodded without saying anything to my words, her eyes empty like a boyfriend who was tied up and watched his girlfriend being constantly raped by a rapist.</p>
-<p>Could it be.... Is she a lesbian? Does she like Dang So-hwa? Judging from her reaction, it really seemed like it. Then the situation would flow quite interestingly...?</p>
-<p>I came out of Dang So-hwa's room, locked the iron bars, and opened the door to Yang Seol-hui's iron bars. Yang Seol-hui didn't rush at me like Dang So-hwa. In the first place, Yang Seol-hui was a sniper who was weak in close combat, so she probably thought that attacking me, whom Dang So-hwa couldn't beat, would just waste her energy.</p>
-<p>However, unlike her eyes that were empty just now, Yang Seol-hui was glaring at me as if I were her parents' enemy. I grinned and squatted down to meet Yang Seol-hui's eyes.</p>
-<p>"Are you thinking of violating me?"</p>
-<p>"I will someday, but not now. It's almost morning. I have to go back too."</p>
-<p>"Then you can get the hell out of here right now."</p>
-<p>Get the hell out, that's harsh. Still, it wasn't as bad as I expected. Still, seeing Yang Seol-hui's reaction, which was similar to what I expected, I smiled bitterly and opened my mouth.</p>
-<p>"Get the hell out? Still, there's still time to talk. How's your impression? Your esteemed leader was so happy, wasn't she?"</p>
-<p>"Th, that's not happiness! The leader's reaction is just a physical reaction, you raped a defenseless woman!"</p>
-<p>"Then.... If you help, you can reduce the amount of time the leader is being raped?"</p>
-<p>I was demanding that Yang Seol-hui voluntarily allow me her body. It was an absurd logic, but of course, if Yang Seol-hui and I did it, Dang So-hwa could rest during that time, so Yang Seol-hui would have no choice but to worry.</p>
-<p>"Okay. I'd rather take all your filth, so don't touch the leader-nim."</p>
-<p>"That depends on how long you can last. Come here."</p>
-<p>I said come here, but I approached and sat behind Yang Seol-hui, wrapping my body around her as if giving her a back hug. Yang Seol-hui didn't even want me to touch her, and she screamed, startled when I hugged her from behind.</p>
-<p>"Wh, what are you doing?!"</p>
-<p>"Aren't you a virgin? If you're a virgin, it'll hurt, so I'm teaching you how to prepare."</p>
-<p>From behind Yang Seol-hui, I grabbed Yang Seol-hui's chest with one hand and put the other hand on top of her panties. And I slowly started to caress her.</p>
-<p>"Heung, keueut! Wh, hng!"</p>
-<p>Yang Seol-hui had a more sensitive body than Dang So-hwa. It was quite fun because the reaction came immediately with just a little touching. Her pussy juice was coming out through her panties, my hand was already wet, and the inside of her thighs were trembling.</p>
-<p>"Ahng...! Aaaah...!"</p>
-<p>"Feels good, doesn't it?"</p>
-<p>"Heuaang, I don't know...!"</p>
-<p>If she doesn't know, I have to let her know. I pinched her nipples, which were erect as if they would pierce through her clothes, and rubbed her pussy, and she soon reached climax, gushing out pussy juice. Because I was hugging her from behind, I could feel Yang Seol-hui's warm body temperature and trembling.</p>
-<p>"This is climax."</p>
-<p>"Ah.... Ah...."</p>
-<p>It doesn't seem like she's in a situation to answer. I got up from my seat and washed my hands in the sink. And like Dang So-hwa, I put a few bags of bread on one side of the bed.</p>
-<p>"I'll come again tonight, so prepare in advance as I told you."</p>
-<p>"Heue.... Heueung...."</p>
-<p>I chuckled at Yang Seol-hui, who was only breathing heavily without answering, and came out of the iron bars, locked the door, and came out of the building where I had imprisoned them. I checked the time and it was five o'clock. I can sleep for about three hours.</p>
-<p>I returned to the villa, washed my body, and lay down next to Yukiko. And I fell asleep right away.</p>
-<p>###</p>
-<p>"Ryuta! Wake up, it's morning!"</p>
-<p>I opened my eyes to Yukiko's voice. Yukiko opened the window with a view of the sea where the sun was rising and was looking at me in a swimsuit. It was a gold and black bikini that matched Yukiko's explosive figure.</p>
-<p>Oh, what a reward from the morning? My Johnson, which was naturally stiff with morning wood, became even stiffer after seeing Yukiko in her swimsuit. I opened my eyes and slightly lifted my waist, showing my erect dick, and opened my mouth.</p>
-<p>"Mother, take responsibility. It's all because of you."</p>
-<p>"Oh, you!"</p>
-<p>"How can you show me something so sexy from the morning?"</p>
-<p>Yukiko chuckled at my compliment and took off my pants, grabbed my erect dick, and put it in her mouth. A super beauty giving me fellatio in a swimsuit from the morning. There was no greater luxury than this. I closed my eyes and enjoyed Yukiko's oral sex.</p>
-<p>Yukiko's morning fellatio felt so good that the feeling of ejaculation came quickly. As I shot into her mouth with a "bueok bueok" sound, Yukiko, who swallowed the fresh semen produced in the morning, smiled and opened her mouth to show that she had swallowed it all, grabbed both of my hands, and stood me up.</p>
-<p>"Can you get up now?"</p>
-<p>"Yes."</p>
-<p>I got out of bed and put on the swimsuit I had prepared. The swimsuit I brought was a trunk-type swimsuit. Men's triangle swimsuits or tight swimsuits were uncomfortable around the crotch, so I prepared a trunk-type swimsuit.</p>
-<p>"Are we going to the swimming pool or the sea?"</p>
-<p>"We can go to the swimming pool anytime, so let's go to the sea!"</p>
-<p>"Okay."</p>
-<p>I linked arms with Yukiko and left the villa towards the beach. It was morning, but the summer sun was showing its power, so the day was hot. We put up a parasol and a mat, applied sunblock all over Yukiko's body, and Yukiko also applied it to my body.</p>
-<p>And we went into the water right away and played in the water. Yukiko was quite good at swimming, and I could swim to some extent, so we splashed each other and had a good time.</p>
-<p>I didn't eat breakfast and swam, so I got hungry, so Yukiko and I came out of the sea and went up to the beach, enjoyed a walk on the beach for a while, and returned to the villa.</p>
-<p>The villa managers were making lunch, so there was a delicious smell. A male worker among the villa managers was fixing something like a hinge at the entrance of the villa, and when we came in, he stared intently at Yukiko's swimsuit.</p>
-<p>As a man, I understand that it's impossible to take my eyes off Yukiko's body, but I was uncomfortable with him staring like this, so I glared at the man with murderous intent. The man was startled by my gaze, lowered his head, and focused on his work again.</p>
-<p>"I'll go put on a jacket."</p>
-<p>Yukiko also noticed the male worker's gaze and went up to the second floor. I was hungry, so I followed the smell to the dining room.</p>
-<p>In the dining room, old man Fukami and an ajumma called Hashima-ssi were setting the table. Looking at the menu, today's lunch was a neat Japanese meal.</p>
-<p>Soon after, Yukiko came down wearing a thin summer windbreaker and had lunch together. Whether it was because I was hungry or because the villa keepers' cooking skills were excellent, I ate four bowls of rice.</p>
-<p>"You don't have to prepare dinner today either. We're going out for dinner. We'll eat cereal or bread for breakfast like today, so please prepare lunch from tomorrow like today."</p>
-<p>"I understand."</p>
-<p>It would be very convenient for the villa keepers. They only have to prepare one meal a day, and they don't do things like ordering errands, so to speak.</p>
-<p>We finished our meal, changed our clothes, got into my car, and came outside. There was a shooting range built in Katsuurashi, which has a small population, to attract tourists in any way possible, and that's where we were going.</p>
-<p>As the succession war of the Taira Group intensifies in the future, Yukiko also needed to have military power, so I was trying to have Yukiko, who has many shooting characteristics, do live shooting once.</p>
-<p>I had already made a reservation a few days before the trip, so we entered the shooting range smoothly. It was a weekday afternoon, so we were the only ones using it.</p>
-<p>"Are both of you using it?"</p>
-<p>"Yes. I'll just do a little, and this woman will try shooting various types of firearms."</p>
-<p>The clerk came up and asked, so I answered. Yukiko has characteristics that are good for shooting, such as a master of shooting, eagle eyes, sensitive senses, and dark vision, but there will be some guns that she is good at and some that she is not, so I am having her try out various guns.</p>
-<p>"I've only done clay shooting, so will I be able to do well?"</p>
-<p>The gun that Yukiko mainly used for clay shooting was a shotgun, so she seemed to have some unknown fear of using pistols or rifles. But as she has the characteristic of being a master of shooting, Yukiko will be able to do well.</p>
-<p>"Yukiko-ssi will be able to do well."</p>
-<p>"Okay, I'll give it a try!"</p>
-<p>Yukiko lightly accepted the gun that the clerk handed her, as if she had shaken off her fear with my encouragement. It was quite cool to see her eyes change sharply as soon as she received the gun.</p>
-<p>The first gun the clerk handed to Yukiko was the Japanese standard rifle, Type 40 rifle. Yukiko shouldered the gun as if she had shot it before and showed a flawless posture. Her skillful posture seemed to be due to her characteristic of being a master of shooting.</p>
-<p>Yukiko took a breath for a moment and then aimed at the target with sharp eyes and started shooting.</p>
-<p>-------A time to swim with Yukiko</p>
+<p>The antique Shop Owner was a bald Black Person with a bushy beard braided into eight long dreadlocks. With his bald head and long, dreadlocked beard, he gave off a strange cephalopod-like Feeling, despite being a human.</p>
+<p>"Oh, hohoho! Welcome!" The Owner rose from the Counter, greeted us with a strange laugh, then sat back down.</p>
+<p>"Ryuta, shall we make a Bet? We each pick an Item here and see who picks the more valuable one." Arisu, who had been watching the Owner with me at the Entrance for a moment, turned around and asked me. Hmm, she probably had the Ability to discern the Value of Items. A very useful Ability for a thief. I wasn't a Detective or a private investigator, but having already learned that Arisu was a member of Phantom Thief François, my Thoughts naturally gravitated towards things related to that.</p>
+<p>"Huh? Shall we? If it's a Bet, what should we wager?"</p>
+<p>"Hmm, if I win, I get something Erotic from Ryuta, and if Ryuta wins, I do something for him, Heh."</p>
+<p>What, no matter who wins, it's Sex in the end. Not a bad Bet. Still, it's better to win a Bet, so if I pick the Item I had in mind to get from here, I should win.</p>
+<p>Leaving Arisu, who was already looking around, I focused on examining the Items here. There are quite a lot of Items? As I focused, translucent windows appeared everywhere. Hmm.... But even with many translucent windows appearing, there wasn't much that was useful. For example, if you look at a Bracelet like that one over there....</p>
+<p>◆L̵̢̟̦͑̑̀͠o̵̡̗͎̘̽̑͠h̴̘̀̈͜͠a̸̡̩̰͉̋̎͡l҉̧̛͉͗̏̄ą̵̝͛͊͠n̴͔̍͆͋͢͝t̴̢̫̦҇͊e҉̛̜̙̜̅͜'̸̳̑͜͞'s Bracelet [Unique Accessory - Curse]</p>
+<p>A Ring worn by L̵̢̟̦͑̑̀͠o̵̡̗͎̘̽̑͠h̴̘̀̈͜͠a̸̡̩̰͉̋̎͡l҉̧̛͉͗̏̄ą̵̝͛͊͠n̴͔̍͆͋͢͝t̴̢̫̦҇͊e҉̛̜̙̜̅͜'̸̳̑͜͞. Because it was too large to be considered a Ring, humans regarded it as a Bracelet. It increases Knowledge by 10 and allows one to know L̵̢̟̦͑̑̀͠o̵̡̗͎̘̽̑͠h̴̘̀̈͜͠a̸̡̩̰͉̋̎͡l҉̧̛͉͗̏̄ą̵̝͛͊͠n̴͔̍͆͋͢͝t̴̢̫̦҇͊e҉̛̜̙̜̅͜'̸̳̑͜͞'s secret Order.</p>
+<p>Each time the related Knowledge and Order are used, one Finger disappears. When all Fingers disappear, one is devoured by the Dimension where L̵̢̟̦͑̑̀͠o̵̡̗͎̘̽̑͠h̴̘̀̈͜͠a̸̡̩̰͉̋̎͡l҉̧̛͉͗̏̄ą̵̝͛͊͠n̴͔̍͆͋͢͝t̴̢̫̦҇͊e҉̛̜̙̜̅͜'̸̳̑͜͞ resides.</p>
+<p>In this way, they granted immense Abilities, but the Price was also immense. No matter how many there were, they couldn't be used due to their Side Effects.</p>
+<p>Still, this Necklace I intended to purchase with the Knowledge I gained from the game was a quite decent Item with no Side Effects. Although it was a single-use Item, it was useful. Especially for Arisu.</p>
+<p>◆Necklace of Smoke [Rare Consumable]</p>
+<p>The gray pearl of the Necklace was made by collecting smoke. When thrown, the pearl breaks, filling the surroundings with smoke, helping one to easily escape.</p>
+<p>The Necklace itself had a modest Feeling. A lustrous silver-gray pearl hung from a thin Gold chain. As the description stated, it was for escape. Even if Arisu were to get caught during her phantom thief activities, this would allow her to escape once.</p>
+<p>"This is what I chose." I held out the Necklace of Smoke to Arisu. Arisu was still looking around the Store. Seeing that she wasn't choosing the numerous high-grade but dangerous Items, it seemed Arisu's Ability was at a Level where she could comprehensively review such Dangers. I should check it later with the Glasses from the Ruins. I'm incredibly curious what Trait it is.</p>
+<p>"Hmm.... I'll take this." Arisu held out something like a Brooch with a slightly unconfident Attitude. It was a bronze Brooch shaped like octopus tentacles coiled together, which some might find a little grotesque.</p>
+<p>◆Grace of the Deep Sea [Unique Accessory] A Brooch containing the Aura of the deep sea. Abyss Stats increase by 1, and luck increases in the Sea.</p>
+<p>Oh, a Brooch that gives Stats and, though conditional, even increases the rarely obtained luck! It seems Arisu won this Bet. The increase in Abyss Stats means that if I wear this Brooch, my Stats would become Abyss 16, Resistance 16, Will 17, which is close to the Side Effect threshold for Abyss Stats, making it a bit awkward, but since Abyss isn't higher yet, I probably don't need to worry about Side Effects for now.</p>
+<p>"Arisu won. This looks much better."</p>
+<p>"How do you know that, Ryuta? What you chose looks good too?"</p>
+<p>Arisu and I talked about the Items we bought as we went to the Counter. We first placed the antiques we each chose on the Counter. The Shop Owner made a slightly surprised Expression as he looked at the Items on the Counter. The Shop Owner's Gaze seemed to say, 'How could they choose Items without Side Effects?' It looked a bit suspicious...?</p>
+<p>"How much are the Necklace and Brooch, respectively?"</p>
+<p>"Ohohoh! The Necklace is 550 Dollars, and the Brooch is.... 800 Dollars." Compared to their outward Appearance, they were expensive, but considering their Abilities, both were incredibly cheap. I nodded my Head and looked at Arisu.</p>
+<p>"Arisu won, didn't she?"</p>
+<p>"Yes♥ You have to definitely pay the Price of the Bet, right?"</p>
+<p>Anyway, no matter who won, it was Sex. Shaking my Waist diligently would be paying the Price for losing the Bet. Since I had already lost the Bet, I paid for both Items, including Arisu's, with my Card.</p>
+<p>"Ohohoh! Use them well!" Leaving behind the Owner's still strangely sounding Playful Laughter, we exited the antique store. And at the Entrance of the antique store, I put the Necklace I bought around Arisu's neck.</p>
+<p>"When in Danger, if you throw the pearl on this Necklace, smoke will spread, and you'll be able to escape."</p>
+<p>"You chose it to give to me?" Receiving the Necklace, Arisu's large green Eyes welled up as if she were touched. I expected her to ask how I knew it had such an Ability, but she didn't ask that, instead being purely moved.</p>
+<p>Arisu, who had been touching the Necklace for a while, also held out the Grace of the Deep Sea Brooch. If Arisu wore it, she would also gain Abyss Stats, and I didn't know what Side Effects there might be, so I was going to Force her to take it, but it worked out well. For some reason, Arisu seemed a little hesitant to give me the Brooch.</p>
+<p>"It looks a bit strange, but I'll give you this. Ryuta will need it."</p>
+<p>"Thank you, I like it." So she hesitated because of its strange Appearance. I also smiled and accepted the Brooch. Since there was no particular place to wear it right now, I just pinned the Brooch to the Waist of my Jeans. Then I asked Arisu about the next schedule.</p>
+<p>"Now, where's the next schedule?"</p>
+<p>"Hotel♥ Since I won the Bet, I have to get what's due."</p>
+<p>Huh? Weren't you going to give me a New York tour? Was it a New York Hotel tour...? Arisu went straight to the nearest Hotel. Somehow, giving her the Necklace seemed to have pressed her Heat/Rut Switch....</p>
+<p>Arisu arrived at the Hotel, immediately received the key to the Reserved Room, and silently pulled my Hand, getting into the elevator. What? When did she Reserve the Hotel Room? She probably made the Reservation today or yesterday in advance, sensing that doing it at Home with me would be awkward.</p>
+<p>Didn't she have any intention of touring New York in the first place? I gave her a slightly suspicious Gaze, but well, I lost the Bet.... A defeated general has no Words.</p>
+<p>Since we were already at the Hotel, I wanted to create a slightly passionate Feeling, so I started Kissing in the elevator, a situation sometimes seen in Movies, and continued into the Room. Arisu didn't seem to dislike my passionate Kissing, and she actively returned my Kisses.</p>
+<p>Kissing passionately rather than stickily, we entered the Room, still with our Lips pressed together, and began stripping each other's Clothes. With Arisu's Clothes reduced to just her underwear, I stopped Kissing and gently pushed her onto the Bed.</p>
+<p>Arisu sat on the Bed, gazing at me with slightly hazy Eyes. Her Appearance, dressed in white underwear with restrained splendor, truly gave the Feeling of a model. Perhaps because it was a Date after a long Time, she seemed to have put quite a lot of Thought into it. I took my Time admiring Arisu, who was gazing at me, and then stripped off my remaining panties. Then I climbed onto the Bed where Arisu was sitting.</p>
+<p>Perhaps because I approached with an Erection, the long, thick Shadow of my Dick fell across Arisu's white Face. Arisu, as if enchanted, lifted her Head to gaze at my cock. Being a model, her Legs were long, making her sitting Height small. The sight of her lifting her Head almost all the way back to look at my cock was, for some reason, incredibly Arousing.</p>
+<p>As my cock passed over her Nose, Arisu stuck out her Tongue and Licked the underside of my Erect penis. Moving my Waist and Tongue simultaneously felt quite good.</p>
+<p>"Do you like cock?"</p>
+<p>"Yeah, I loove it♥"</p>
+<p>Arisu, who had been talking with me, grabbed my cock as if she couldn't hold back any longer and began to suck it ravenously. In this Intimate Posture, I couldn't really give her Foreplay, so I just received the Fellatio as Arisu gave it.</p>
+<p>She must have practiced with bananas or branches, as Arisu's Fellatio Skill had significantly improved. After sucking for a while, Arisu spit out my cock and spread her Legs while sitting on the Bed. Because of her white underwear, her pussy was practically transparent from the vaginal fluid. To suck a pussy drenched in so much vaginal fluid? I couldn't resist. I almost wanted to make myself thirsty by jogging just for this. "Ryuta, make me feel good too♥"</p>
+<p>"Shall we do it together?"</p>
+<p>"Yes♥"</p>
+<p>We assumed the 69 sexual position, Licking each other's Genitals. Arisu was below, and I was above. It had been a long Time since Arisu's pussy. Come to think of it, I did meet 1/2 of Arisu's pussy last night.</p>
+<p>Thinking of Nae Fitzgerald, I immediately wanted to Thrust into Arisu's pussy.... I was curious about the Difference between Mother and daughter, so an Impulse to Thrust immediately arose, but there was no need to rush.</p>
+<p>It was important to slowly raise each other's Sensitivity. I pulled aside her panties and slowly Licked Arisu's pussy, which was a lighter pink due to less pigmentation, like a Slug moving.</p>
+<p>"Haaht! Haaht! It's been a long Time, Ryuta's Tongue...! It feels so good♥"</p>
+<p>Arisu was incredibly pleased, perhaps because she had been in Heat/Rut since earlier. I stubbornly continued to Lick Arisu's pussy with my Tongue. No, "rubbed with my Tongue" was a slightly more accurate Expression than "Licked."</p>
+<p>"Heueu...! Any more...! Heueut! I...! I'm going to cum!!"</p>
+<p>To cum with spurting squirts in just a few minutes, why have you become so weak, Arisu's pussy? My cock, which had already been in Arisu's mouth, was starting to get a little dejected because Arisu had spit it out and was only moaning, so it wasn't receiving any Fellatio. Well, Arisu's moaning sound was so arousing that it wouldn't truly get dejected, though.</p>
+<p>I moved my cock away from around Arisu's mouth, then gently placed it on Arisu's pussy. Her Body Flinched even though I only placed my cock, indicating she was still incredibly Sensitive. Although her panties hadn't been removed yet, and there was a thin cloth between her pussy and my cock, so much vaginal fluid was gushing from her pussy that the Feeling of the panties was almost imperceptible.</p>
+<p>Using Arisu's abundant vaginal fluid as Lubricant, I slid my cock over her panties, giving her pussy Foreplay. Hmm, this feels quite good too. Arisu also seemed to be enjoying it, continuously urging my cock.</p>
+<p>"Heueuung♥ Put it in...! Hurry...! Heueung!"</p>
+<p>As expected, stimulating her pussy brought a quick Reaction. I smiled at Arisu's continuous Pleading and pulled down her panties. It was finally Time to compare the Mother's and Daughter's pussies.</p>

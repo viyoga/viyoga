@@ -5,62 +5,73 @@ weight = 239
 chapter = 239
 +++
 
-<p>,"Sunbae-nim, where are you headed this time?",</p>
-<p>,"I'm going towards the Brooklyn Navy Yard.",</p>
-<p>To Mimata Chieri's question, I replied as I got on the motorcycle. During World War III, many warships were produced at the Brooklyn Navy Yard, and to deliver them as quickly as possible, many defense industry factories gathered nearby like mushrooms after rain. Now, eight years after the war, many of these factories were abandoned.</p>
-<p>My goal is to secure the high-performance equipment hidden in those abandoned factories. In the factory district of the Brooklyn Navy Yard, there were high-performance, high-cost prototype weapons that were too expensive for mass production. Perhaps the companies went bankrupt because they produced such weapons, which is why the factories became ruins.</p>
-<p>,"But why weren't you angrier at that Otagi Yuka girl? I know it's my fault for causing a ruckus and creating a misunderstanding, but if it were a regular person instead of you, Sunbae-nim, they would have died from that attack.",</p>
-<p>,"As Sunbae-nim said, we did contribute to the misunderstanding, but more than anything, the goal is to make Otagi Yuka act out more and draw Kurotsuki-doo's attention, so I held back.",</p>
-<p>,"Attention?",</p>
-<p>,"That way, Dang So-hwa's newly created organization can be safer while it stabilizes. Even if a regular person almost dies, it's not me, so I can tolerate it once. If I got angry and Otagi Yuka became more cautious and acted out less, the Kurotsuki-doo headquarters might attack Dang So-hwa first. So, rather than prioritizing my immediate emotions, I chose to secure practical benefits.",</p>
-<p>,"That makes sense too. Since they're on the same continent, they can attack at any time, and if the New York branch completely disappears, they'd have to start from scratch again, unlike the Northeast Asia branch, which still has a human network. So, they'll focus on this side first.",</p>
-<p>,"Exactly.",</p>
-<p>Even if Otagi Yuka gets into danger because she's not cautious, it's not my business. The safety of my people, Dang So-hwa and Yang Seol-hui, is more important to me. Even if Otagi Yuka is about to get into danger, Eve, who is collaborating with Otagi Yuka, has a firm grip on the information power of Amsang, so she'll let me know if she's in danger.</p>
-<p>We rode the motorcycle towards the south of Brooklyn. The sun was setting, casting a glow. Watching the orange sun, similar to Mimata Chieri's hair color, gradually sink into the sea, we arrived at our destination.</p>
-<p>On one side of the rusty, large factory, the words 'Energy-Link Industrial Company' were written, and on the other wall, there was slightly crude graffiti.</p>
-<p>The graffiti was painted here and there on the abandoned factory, giving the feeling that gangsters would appear at any moment, so a normal person would never go near it. Of course, there was nothing to scavenge here, and there couldn't be a gang around a military base, so it was just a gloomy ruin.</p>
-<p>We hid the motorcycle in a secluded place, slowly looked around, and then entered the factory.</p>
-<p>Inside the factory, various abandoned and rusty facilities were bathed in the light of the sunset. A strange stench and eerie atmosphere lingered, probably because of 'that' which I knew.</p>
-<p>A few steps further in, the sound of machinery being activated could be heard, and two eerie red lights stared at us.</p>
-<p>'That,' revealed by the sunset light shining through the window, was a mechanical wolf. It used to attack innocent users from TMC or MegaCorp's youngest sons who were trying to find items in New York, making them pissed off.</p>
-<p>The origin of this mechanical wolf was Energy-Link Industrial Company, the owner of the factory we were in now. The president, who is now dead, was a psycho and often scattered these monsters all over the world, so they would suddenly appear.</p>
-<p>Judging by the fact that it was just looking at us and shining its eyes without attacking, it seemed that the mechanical wolf's AI hadn't properly learned about combat yet. Still, it must have killed a few intruders in the factory. The strange stench seemed like the smell of rotting humans. The corpses were not visible inside the factory, as if they had been disposed of separately, and there were dark, blackish bloodstains on the floor in between.</p>
-<p>Many weapons made during World War III had such murderous AI built into them. During World War III, these AIs were leaked and used in various ways, causing various accidents even after World War III ended. Therefore, all countries were strongly regulating AI.</p>
-<p>The most problematic incident was in Japan, where a drone with a gun was programmed with murderous AI, resulting in the deaths of over 300 people, including a sitting member of the National Assembly, at a local festival.</p>
-<p>Starting with that incident, terrorist groups and mentally deranged social misfits in various countries followed suit, leading to very strong regulations on attaching guns or bombs to drones, and similar regulations on murderous AI.</p>
-<p>,"Sunbae-nim, it's a mechanical puppy!",</p>
-<p>,"Be careful.",</p>
-<p>I stopped Mimata Chieri from approaching further because of her fuss. A mechanical puppy? Doesn't it look incredibly scary? Its teeth are like saw blades, and it's a metal wolf with glowing red eyes.</p>
-<p>Although it looked scary, in the case of mechanical wolves, they were just annoying for hiding and aiming for the nape of the neck. Players who had grown to some extent could easily catch them.</p>
-<p>I slowly approached the mechanical wolf. The mechanical wolf looked at me and crouched down, preparing to jump.</p>
-<p>When I got close enough, the mechanical wolf jumped at my neck as if a heavily compressed spring was bouncing up. I dodged slightly. It was incredibly fast, but the movement was linear, so it was easy to avoid.</p>
-<p>I grabbed the mechanical wolf, which failed to bite my neck and passed through the air, and slammed it to the ground. Just as I was about to completely destroy it, grabbing its neck with one hand and infusing the abyss into the other to strike the mechanical wolf's neck, something suddenly came to mind.</p>
-<p>If I fix its AI and put fur on it, it would be useful as a puppy and bodyguard? But I can destroy it, but I can't stop it. I turned my head to look at Mimata Chieri and opened my mouth.</p>
-<p>,"Sunbae-nim, do you know anything about machines? I want to stop it.",</p>
-<p>,"Maybe cutting off the energy supply will do it. Please hold it tight for a moment.",</p>
-<p>I don't know what she learned at the Taira Group's agent training school, but while I was holding the mechanical wolf, Mimata Chieri touched here and there and then put her hand inside its belly.</p>
-<p>,"I think it's this wire. Should I remove it?",</p>
-<p>,"Yes.",</p>
-<p>The mechanical wolf, which had been struggling to get out of my grasp, stopped moving as if by magic when Mimata Chieri cut the power supply wire.</p>
-<p>,"Let's decide to take it with us later and find the original purpose of our visit.",</p>
-<p>I left the mechanical wolf where it was and went to a corner of the factory. I think it's here, based on my memory... When I touched the spot I had accessed before, the steel wall of the factory opened, revealing a small space.</p>
-<p>,"Wow! How did you find it?",</p>
-<p>,"I saw it in the future.",</p>
-<p>Mimata Chieri asked with admiration, but I made the excuse of precognition as usual. On the workbench in the small space, there was a gun about 45 centimeters long with a sci-fi feel that seemed like it would appear in movies or games.</p>
-<p>Officially named EL-0001, nicknamed El1, this gun was a next-generation rifle that Energy-Link Industrial Company pushed as the U.S. military's standard rifle during World War III. Like its futuristic appearance, it wasn't a gun that fired bullets but a rifle that fired energy bullets with a battery pack.</p>
-<p>The power was decent, and it was an attractive product with a rechargeable battery pack, but it could only fire ten shots per battery pack, and the battery was quite heavy, so it failed the first screening. Maybe that's why the president went dark and released steel monsters.</p>
-<p>In the early days of the game, it was treated as a novelty item, but it was re-examined by a user who posted on the TMC community that when a user with pyrokenesis characteristics used it, the magazine capacity greatly increased, and fire damage was added.</p>
-<p>This discovery revealed that this gun was linked to specific superpowers, and many studies were conducted. The results showed that natural abilities such as pyrokenesis and electrokenesis were a good match for this gun.</p>
-<p>Since we have Kiyona Marina with pyrokenesis and Alexandra with electrokenesis on our side, it seemed like it could be quite useful.</p>
-<p>,"I've never seen a gun like this before. Try shooting it, Sunbae-nim!",</p>
-<p>,"Shall I?",</p>
-<p>Mimata Chieri, who was watching from behind as I packed the gun and battery packs, said. I smiled slightly and aimed at one side of the ground.</p>
-<p>With a woom... sound, the activated El1 was fired. Instantly, my abyss was sucked into the gun, and an energy bullet in the shape of a black tentacle flew to the ground.</p>
-<p>Kwaang!</p>
-<p>With a loud noise, the ground was deeply pitted... This has good compatibility with the abyss too? The power is considerable?</p>
-<p>,"But why are tentacles being fired?",</p>
-<p>,"I don't know either. Since there was a loud noise, people will come here. Let's leave quickly.",</p>
-<p>I handed the gun and battery packs to Mimata Chieri and picked up the deactivated mechanical wolf. There are a few more things to get in this factory area, but since it's near a military base, soldiers will be wandering around, so it would be too much for today.</p>
-<p>I put the mechanical wolf on my lap because there was no good place to put it and got on the motorcycle. Mimata Chieri put the gun and battery packs in the motorcycle trunk and ran beside me.</p>
-<p>We quickly left the Brooklyn Navy Yard area and headed back to the Amsang New York branch. I have to send this gun and mechanical wolf to Japan. I don't know much about smuggling, so I was thinking of entrusting it to Amsang, who are experts.</p>
-<p>-----Bike Chieri.</p>
+<p>After playing one more round of games (?) at the hotel, we were finally able to go to the Fitzgerald mansion. Arisu and Nae Fitzgerald must have put in a good word, because no one suspected anything between us.</p>
+<p>Honestly, even if it was three women and one man, two of the three are mother and daughter, and my relationship with them is aunt and cousin, so anyone who thinks we had a 3-on-1 sex session is a pervert. Some people might think Mimata Chieri and I rented a separate room and did it, though.</p>
+<p>Everyone went to their respective rooms to rest, and I was heading to the drawing room because Oliver Fitzgerald, the head of the Fitzgerald family, had called for me. What's going on? He wouldn't have just called me for no reason, so is there something to do business-wise?</p>
+<p>"Did you have fun playing yesterday?"</p>
+<p>I felt a little guilty towards Oliver Fitzgerald, who was speaking so kindly, but there was nothing I could do. If I give up here, I can't touch Shinoe Misano or Ha Ju-yoon either.... From the moment the Golden Pillar trait appeared, I thought about using it to become the owner of the Taira Group, so as long as my ambition exists, I couldn't give up on women. I just had to hope that Nae Fitzgerald would hide it well.</p>
+<p>"Yes, it was my first time sightseeing in New York, so it was fun. My aunt and Arisu gave me a good tour."</p>
+<p>I sat across from Oliver Fitzgerald and took a sip of the coffee he poured for me.</p>
+<p>"There's a reason I called you separately. I understand you have a connection to Korea, is that right?"</p>
+<p>How did he know? Did Taira Danjo-yeonggam tell him...? Nagumo Sian also heard from Taira Danjo-yeonggam that I had a PMC and contacted me, so it's likely that Taira Danjo-yeonggam told him about this too.</p>
+<p>"Yes, a close friend of mine is the daughter of a large Korean corporation."</p>
+<p>I figured there was no point in lying if he already knew, so I answered honestly. Oliver Fitzgerald smiled brightly, as if he liked my answer.</p>
+<p>"Then I should explain. You know that our company is involved in the Mars colonization project, right?"</p>
+<p>"Yes, you've been in the news a lot."</p>
+<p>Mars colonization was a world-class project, so many companies were trying to get even a finger in, and Fitzgerald's Theron was chosen to manufacture the engines for the Mars migration spacecraft.</p>
+<p>Because of that, they were receiving huge subsidies from the US government and investments from many investors, so I heard they were overflowing with money. I also heard that Theron was using this money to buy companies around the world that had the necessary technology and had expanded to the point where it could be called the Theron Group.</p>
+<p>So, according to what I heard from Nae Fitzgerald, Oliver Fitzgerald was running around like crazy because of the Mars colonization project, but the fact that he was asking me for help meant that something must have gone wrong.</p>
+<p>"Don't tell anyone about this. A defect was discovered in the spacecraft engine we developed this time. The problem was that it overheated too easily."</p>
+<p>"A Korean company has the cooling technology that Theron wants."</p>
+<p>"Yes, a company called ISIS in Korea is said to have the technology we want."</p>
+<p>ISIS? I've never heard of that company before....</p>
+<p>"I've never heard of that company before."</p>
+<p>"It's not a very famous company. Have you ever heard of a business that freezes people with incurable diseases and then thaws them out and treats them when treatment technology becomes available in the future?"</p>
+<p>Ah, I knew about stories of freezing people because they appear quite often in novels and movies. I even heard that there was such a company before I possessed this body.</p>
+<p>"Ah, I've heard about that a few times. So that ISIS company is...?"</p>
+<p>"Yes, that ISIS company is the company that makes frozen humans. The cooling technology patented by that company is a perfect match for the engine cooling technology we want."</p>
+<p>"Then you can negotiate with ISIS to buy the technology, or you can buy ISIS. I know you have a lot of money because of the Mars colonization project."</p>
+<p>Oliver Fitzgerald shook his head at my words. He looked like something wasn't going his way.</p>
+<p>"Of course, we have enough money. But unfortunately, we can't do that. There are countless companies trying to get involved in this project right now. If we suddenly buy ISIS, which has no connection to us, our competitors will investigate why we're buying that company and find out that our engine has a defect, and we'll be eliminated from the Mars colonization project. Then our company will be finished. We've already done too much to get the Mars colonization project going."</p>
+<p>Ah, I see. There were many rival companies eager to pull Theron down, which had not yet boarded the Mars colonization project, so they couldn't move carelessly.</p>
+<p>"So what do you want us to do?"</p>
+<p>"First, we need to set up a research company in Korea that doesn't seem to be related to us. That company will acquire ISIS, receive our engine data, fix our Theron engine defect with ISIS's cooling technology, and then we'll acquire that research company. Then, even if another company tries to point out our engine problem, it won't be a problem because the problem is already gone."</p>
+<p>Ah, so instead of directly acquiring ISIS to fix the engine defect, they want to create a shell company or something similar, have that company acquire ISIS, and then acquire that company when it fixes the engine defect?</p>
+<p>"Then my friend and I are thinking of setting up a company in Korea, so we'll acquire ISIS. Instead of sending the engine data after the acquisition, how about you acquire the company directly from me? You'll need the original ISIS engineers too, right? Of course, you'll have to give us a generous amount of money when the problem is solved?"</p>
+<p>"It seems like that would be better. Don't worry about the money, we have plenty.... And if you solve this problem, I'll take my nephew's side in the Taira family issue."</p>
+<p>It's nice that Theron is taking my side, but it won't be a big help because Theron is a completely different company that is not affiliated with the Taira Group. It's important to have connections in the US that can help each other. Also, if we acquire ISIS, Theron will buy it from us later at a high price, so it's profitable in terms of money....</p>
+<p>"Okay, I'll talk to my friend and give you a definite answer."</p>
+<p>"Tell them I'll make sure they get at least double the profit."</p>
+<p>How much research funding and investment money are they getting that they're saying they'll give us double? I was thinking of investing in Theron too, but it doesn't look like they'll budge with any amount of money.</p>
+<p>"Are there any companies with Mars colonization rights that want investment? Looking at Theron, it doesn't seem like they have any money problems."</p>
+<p>"Well, not really. If we receive investment, we'll eventually have to pay it back to the investors, so since we have enough money now, no one will want your investment. Rather...."</p>
+<p>Oliver Fitzgerald paused for a moment after saying "rather." He seemed to be feeling a little regretful.</p>
+<p>"Okay, a big scandal will break out in one of the food companies that received Mars colonization rights in about three days. Then the remaining companies that haven't received Mars colonization rights will tear it apart. It would be good to invest in one of those companies that will tear it apart."</p>
+<p>Ah, so he's saying to invest in a food company that hasn't received Mars colonization rights? Of course, there are many companies aiming for Mars colonization rights, so it's not 100 percent, but he's telling me to invest in a promising company. He's giving me quite valuable information.</p>
+<p>"Thank you for the good information. We'll repay you with good results too."</p>
+<p>"Okay, contact your friend."</p>
+<p>I briefly left the drawing room and called Han Yu-gyeong. Han Yu-gyeong answered my call right away, as if she had been waiting for it.</p>
+<p>-Yong-tae-ya~♥</p>
+<p>"Yeah, Yu-gyeong-a. What were you doing?"</p>
+<p>-I'm preparing to start our company. I'm also talking to Hatake Investment Company. I'm also talking to that Amsang side and discussing equity....</p>
+<p>While I was playing in the US, Han Yu-gyeong was living quite busily to create a company with me, with the equity split 50/50. I feel a little sorry. But she's done things like Amsang's investment and other things, so she's not just playing around, so I don't need to feel so guilty.</p>
+<p>"You've been through a lot. We're going to meet in Tokyo later and talk about everything, so I'll treat you well then."</p>
+<p>-Okay, okay! How are you going to treat me well?</p>
+<p>I haven't really thought of a way.... I said whatever came to mind.</p>
+<p>"We'll go on a Tokyo date that we couldn't do properly before.... I'll give you presents...."</p>
+<p>-Great, I'm looking forward to it! I hope we can meet in Tokyo soon♥</p>
+<p>"Oh, right. I heard a story that could be called a request this time, or something that would benefit us?"</p>
+<p>I told Han Yu-gyeong about the ISIS acquisition that I heard from Oliver Fitzgerald.</p>
+<p>-If we can just acquire it, of course we can do it. I'll take care of the practical work, so give me that contact information and give them our Korean contact information.</p>
+<p>"Okay, I'll do that."</p>
+<p>-You're doing a good job getting work from outside, our Yong-tae is amazing? Are we going to become a big company later?</p>
+<p>As long as I support Han Yu-gyeong, Han Yu-gyeong will definitely become the owner of the Shin-gang Group, so it's certain that the company we're working with will become a large corporation.</p>
+<p>"Our Yu-gyeong is working hard, so the company is growing rapidly. Then I'll tell my uncle that you've accepted."</p>
+<p>-Okay, see you in Tokyo later♥</p>
+<p>I ended the call with Han Yu-gyeong, went back to the drawing room, told Oliver Fitzgerald that the story was positive, and exchanged contact information with each other. If it goes well, he'll return double the acquisition amount.... It was quite a profitable deal.</p>
+<p>From Theron's point of view, it's better than the company collapsing due to an engine defect, so they must have crunched the numbers and made that offer, but for now, I should think of it as forming an alliance with Theron.</p>
+<p>------</p>
+<p>Han Yu-gyeong selfie</p>
+<p>When I searched for "tight pencil skirt," pencils kept coming up lol</p>
+<p>Erotic appeal!</p>
+<p>Is it okay for the boss to dress this sexy?</p>

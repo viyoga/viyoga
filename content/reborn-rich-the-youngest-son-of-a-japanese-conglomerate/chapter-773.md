@@ -5,77 +5,93 @@ weight = 773
 chapter = 773
 +++
 
-<p>"It's nothing special. It's just a discussion about joining hands until all the other successors are gone in the Tairaga succession war. And then, when only Taira Kanna and I are left in the succession war, we'll compete to see who's the best."</p>
-<p>"If the story is about a Tairaga succession alliance, isn't that kind of a big deal?"</p>
-<p>Sakagami Rena asks back, surprised by my words. Actually, it is nothing special. Because it's about choosing an alliance in the Tairaga succession war, which is nothing special.</p>
-<p>Currently, Taira Kanna's faction, which is starting to emerge as the fourth power as she becomes an adult, is also aiming for the next Chairman of the Tairaga family, and since their power in the Tairaga Group is relatively small, they had to find a collaborator.</p>
-<p>"Still, it's appropriate. The other side is too powerful to form an alliance with."</p>
-<p>For both my side and Taira Kanna's side, if we were to join forces with a side where the power difference is too great, it could lead to a subcontracting relationship rather than an alliance, or even absorption by the other side, so it was the right situation to ally with Taira Kanna's side, where the power difference was not that great.</p>
-<p>And since Minamoto or one of the three successors must have killed Taira Saburo, the three successors were not the ones Taira Saburo's younger sister, Taira Kanna, and his son, I, should join hands with. Sakagami Rena was also considering all the situations, so she nodded at my explanation.</p>
-<p>"In fact, it's a great achievement that Jugun-nim, who has no power in the Tairaga Group except for the Human Resources Development Center, has formed an alliance with Taira Kanna-nim, who has absorbed most of Taira Saburo-nim's power."</p>
-<p>As Sakagami Rena said, the only place in the Tairaga Group that I can call my power right now is the Human Resources Development Center, where Yukiko is the director. The Human Resources Development Center is actually a special place that is difficult to call a power, so it was as good as having no power.</p>
-<p>Of course, outside the name of Tairaga, there were Hatake Investment Company, TG Tech, several PMCs, and several construction companies controlled by Tangsohwa, but it was not yet time to reveal them.</p>
-<p>Once I finish this mission, I'm supposed to receive a subsidiary from Danjo-halbae as compensation, so I have to use that as a foundation to grow. To receive a subsidiary after only half a year of suffering (the infiltration of St. Francisco Girls' Academy that I'm doing now wasn't that much of a suffering) was a very profitable deal.</p>
-<p>"Then, we'll have to meet with the working-level staff of Taira Kanna's side after all."</p>
-<p>"Yeah, let's start that after I finish this mission and receive a subsidiary."</p>
-<p>Since I thought it would be meaningless to talk about it since I didn't have any power in the Tairaga Group, I was thinking of starting the story related to Taira Kanna after taking over at least one subsidiary.</p>
-<p>"That story is enough for now.... Thank you again, everyone...!"</p>
-<p>I greeted the students who had gathered again. In fact, it wasn't easy to notice that I was missing from the morning and come to find me right away. I myself thought that it would take a few days to start searching for me, but to start looking for me the day after I was kidnapped. Honestly, I was touched.</p>
-<p>"Ryuta, from now on, you shouldn't follow strangers if they say they'll buy you something delicious."</p>
-<p>Alik says with a stern expression at my words of gratitude. Actually, it's similar to the current situation. Taira Kanna isn't a stranger, but I went to meet her because she said she would buy me something delicious, and then I got kidnapped.</p>
-<p>"That's right, Sensei! I think you're too weak for delicious things and women!"</p>
-<p>"This time, you followed the female student council president because she said she would buy you something delicious~!"</p>
-<p>Saionji Diana and Naruse Shiyo laughed and added to Alik's words. It's true that I'm weak for women, but I don't know if I'm weak for delicious things. Of course, I'm a big eater, but I can endure it as much as I want when I need to. How much of a glutton do they think I am?</p>
-<p>"Ah, Jugun~! Don't forget to contact Sabu-nim."</p>
-<p>"That's right. I'll go make a call."</p>
-<p>At Sakagami Rena's words, I went back into the room and called Yukiko.</p>
-<p>-Ryuta, are you okay?</p>
-<p>Being worried by Yukiko's languid and kind voice made me feel very comforted. Hearing her voice like this makes me want to see our Yukiko-mama.</p>
-<p>###</p>
-<p>The Daughter of the Abyss was curled up inside the cocoon she had created herself. As the Daughter of the Abyss's immense power and the various divine offerings that her partner, Taira Ryuta, had given her as gifts melted into the cocoon, a huge energy was swirling inside the cocoon.</p>
-<p>The Daughter of the Abyss, who always hated the name Daughter of the Abyss that came secondarily after her father's name, wanted to throw off the shackles of the abyss herself.</p>
-<p>The Daughter of the Abyss, who had always lived under the dark sea, liked the warmth of the sun shining from space. She hated being tied to the deep sea.</p>
-<p>She hated always receiving from her partner. She wanted to become a powerful being who could share her power with Taira Ryuta as much as she wanted.</p>
-<p>The Daughter of the Abyss, or rather, the still nameless one, was curled up inside the cocoon she had created, absorbing the powerful energy inside the cocoon in order to become the being she wanted to be.</p>
-<p>###</p>
-<p>"Ugh...!"</p>
-<p>I woke up from the strange feeling below and found myself in my room, not the room where I was being held by Taira Kanna. The bed below was swollen, so I lifted the blanket and saw that Otagi Yuka was biting my third leg, my thick sausage.</p>
-<p>"Are you charging from the morning?"</p>
-<p>Nod.</p>
-<p>At my question, Otagi Yuka nodded instead of spitting out my Johnson that she was biting. Whether it was because she had a trauma from the debuff being strongly applied because she couldn't absorb my semen while I was kidnapped, she said that she would come to suck Taira Ryuta's special milk in the morning until her thirst for blood was over.</p>
-<p>"Haaah...♥"</p>
-<p>"Jugun-nim~♥"</p>
-<p>Saionji Diana and Sakagami Rena were lying on either side of me. My hands were placed on their chests, so when I moved a little, they made moaning sounds like sleep talking.</p>
-<p>For reference, yesterday, after sending Alik and Naruse Shiyo back, I mixed bodies with Konoe Akina and Urabe Konoka, who had to go home first.</p>
-<p>Otagi Yuka, Sakagami Rena, and Saionji Diana, who had cut off ties with their families or become independent, generously gave up their bedrooms to their friends. After all, they had a kind of leeway that their seats would be available in the early morning.</p>
-<p>Because everyone caught me being violated by Taira Kanna in the rescue operation yesterday, they rushed at me excitedly, saying that they would purify me with their bodies (?).</p>
-<p>After Konoe Akina and Urabe Konoka, who went back with a satisfied expression, saying that they would overwrite it, I naturally had to deal with Otagi Yuka, Sakagami Rena, and Saionji Diana, who were waiting, and I had to order a late-night snack because I had consumed a lot of calories again.</p>
-<p>It's actually the succubi around me who make me consume a lot of calories that make me a glutton. It was a bit unfair to become a glutton who just likes to eat unconditionally.</p>
-<p>"Keueu, I'm cumming...!"</p>
-<p>I got up after pouring out special milk to Otagi Yuka from the morning.</p>
-<p>"Are you going to eat breakfast? I'll make toast, so eat it."</p>
-<p>"Thank you, Jugun-nim...!"</p>
-<p>"Sensei-nim...! Thank you..."</p>
-<p>"I just ate Sensei's milk♥"</p>
-<p>When I got up from the bed and spoke, Sakagami Rena and Saionji Diana greeted me with voices full of sleepiness. It seemed like they hadn't woken up yet because they had been tormenting me all night. Only Otagi Yuka, who was under the blanket, answered with a very satisfied voice.</p>
-<p>"That stomach and that stomach are different."</p>
-<p>"That's true, but I'll make the toast today, so Sensei, go wash up."</p>
-<p>Vampires in this world couldn't live on blood alone. They also needed food like humans. Blood was like an essential nutrient that vampires had to consume additionally. It would be more troublesome than the vampires in legends who only needed blood, but eating food was a pleasant thing, so it wasn't a bad thing.</p>
-<p>Otagi Yuka, who was in a good mood from eating special milk from the morning, said that she would cook, so I immediately took my underwear and took a shower. It's worth giving her special milk from the morning. She's even making breakfast for me.</p>
-<p>When I came out after washing, a plate was placed with thick bacon, well-cooked sunny-side-up fried eggs, and bread with butter on it. I ate breakfast in an instant wearing only my underwear, brushed my teeth, and put on my clothes. Otagi Yuka watched me eat breakfast deliciously and sat down to eat breakfast with a satisfied expression.</p>
-<p>"I'm going to work first, so come so you're not late."</p>
-<p>In response to my words, I heard the voices of the two who had gone into the shower room to wash up. Saionji Diana and Sakagami Rena went into the two shower rooms in this house and were washing up. Otagi Yuka, who had just finished cooking and eating with me, followed me to the entrance to see me off.</p>
-<p>"Sensei, have a good day today~♥ Fheuheu...! It's like we're a married couple?"</p>
-<p>Otagi Yuka was still wearing the apron she had put on to cook, but she was only wearing underwear and a large shirt inside the apron, so she had a somewhat newlywed sexy bride feeling. She blushed and was embarrassed because her current appearance and the way she was seeing me off gave off a married couple feeling.</p>
-<p>"Then, shall we have a kiss to see me off to work?"</p>
-<p>"...Eung♥"</p>
-<p>Chup...!</p>
-<p>I lifted Otagi Yuka's chin and gave her a have-a-good-day kiss, then smiled, waved my hand, and left the house. The expression on Otagi Yuka's face that I saw before the door closed was a very satisfied one.</p>
-<p>____</p>
-<p>Bra top + hot pants + armpit Lisa-ttang, Home Ec Teacher illustration requested by RefundAbsolutelyNotPossible-nim!</p>
-<p>Starting with Lisa-ttang!</p>
-<p>At first, when I searched for bra top, only bras came out like this, so I tweaked the prompt a bit hehe</p>
-<p>Home Ec Teacher~!</p>
-<p>Kkiyot~!</p>
-<p>Seeing-off-to-work Yuka B-cut!</p>
-<p>Bonus Covered Yuka + Naked Apron.</p>
+<p>before chapter check contains erotic please surroundings this your</p>
+<p>"Ah, it's fun to glide on the snow after so long~!"</p>
+<p>Kujo Kina began chattering excitedly inside the bus. As Kujo Kina was the most athletic and sports-loving Woman in the special class, she seemed incredibly thrilled about winter sports after a long time. Especially since she was with her Friends, she couldn't help but be even more excited.</p>
+<p>"Ah, I'm so frustrated!"</p>
+<p>"I didn't know Kina-cchi was so good at snowboarding.... I shouldn't have made that bet."</p>
+<p>Otagi Yuka and Seizawa Shii opened their mouths in frustration. A moment ago, the three of them had been zipping around on their snowboards, and it seemed they had made a racing Bet.</p>
+<p>While it would be difficult to beat Otagi Yuka or Seizawa Shii in raw physical Ability, Kujo Kina seemed to have won because accumulated Skill was more important than individual physical prowess.</p>
+<p>"So, what did you bet on?"</p>
+<p>"Just.... A family restaurant meal after school."</p>
+<p>Otagi Yuka answered my question. I thought they had made a big Bet, but it turned out to be just a Meal at a family restaurant. If it had been a large-scale Bet, I would have said something as their Class Teacher, but this seemed fine to let slide.</p>
+<p>"Tomorrow's Event will be skiing! I'm not very used to snowboarding."</p>
+<p>"Kyahaha~! Good~! What do you want to bet on? Even if we change the Event, it won't be easy for Shii-chan to win, will it?"</p>
+<p>Seizawa Shii's Spirit of competition was ignited, and she suggested competing again tomorrow, but Kujo Kina, confident in skiing as well, laughed and provoked Seizawa Shii, saying it wouldn't be easy for her to win.</p>
+<p>"But why is Kina so confident?"</p>
+<p>"The Kujo Group also runs a Resort Business, so I often went on inspections with my dad and Older Brother when I was little. Though for me, it was more about skiing or snowboarding than actual inspections."</p>
+<p>Aha...! If she had frequently snowboarded or skied since childhood, it would be difficult for Seizawa Shii or Otagi Yuka, who hadn't done snow sports as often, to win. That's why Kujo Kina seemed so confident in this Bet.</p>
+<p>"By the way, Ryuta-cchi, you were surprisingly bad at snowboarding, weren't you?"</p>
+<p>"Actually, this is only my second time at a ski resort. I've gotten a bit used to it today, so maybe I'll be better tomorrow?"</p>
+<p>Before I knew it, the topic of conversation had shifted to my snowboarding Skill, and while we were talking, we quickly arrived back at the Resort.</p>
+<p>"Change your Clothes and come out right away. I've made a restaurant Reservation."</p>
+<p>"Alright~! I'm hungry from all the exercise."</p>
+<p>Today, we decided to have our Meal at the Resort's restaurant. Since it was a long 3-night, 4-day schedule, there would be plenty of opportunities to eat at famous restaurants around Shiga Kogen in Nagano, so for the first day, when separate preparations were difficult, we decided to simply eat at the Resort.</p>
+<p>Of course, as a restaurant in a VIP-exclusive Resort, the Meals were said to be quite good.</p>
+<p>We left our snow-covered equipment at the Resort Counter, took the elevator back to our Rooms, and changed our Clothes.</p>
+<p>After quickly changing and sitting down for a moment, I heard the sound of a door opening in the next room, so I went Outside as well.</p>
+<p>Outside, Konoe Akina, Urabe Konoka, and Alik had come out. It seemed these three were the Members of Room 304, right next to mine (I was in Room 305, for reference).</p>
+<p>"Ryuta...!"</p>
+<p>""Teacher-nim.""</p>
+<p>"Hungry, aren't you? But I didn't see the two of you at the ski resort, only Alik?"</p>
+<p>"Ah.... We're also not very good at skiing and snowboarding, so we were learning in a corner from Erika and Tsubaki."</p>
+<p>Konoe Akina and Urabe Konoka also seemed to have no particular Talent for snow sports, just like me. I don't know about Konoe Akina, but Urabe Konoka is from an island close to the Pacific Ocean, so she probably isn't familiar with snow.</p>
+<p>"Did they teach you well?"</p>
+<p>"Yes. They taught us well, so we've gotten a little used to it."</p>
+<p>As I was asking if Oofuchi Erika and Shido Tsubaki had taught them well, the door to Room 301 opened as if they had been listening. Oofuchi Erika, Shido Tsubaki, and Sakagami Rena came out.</p>
+<p>"Were you talking about us, d-dad, no, Teacher-nim?"</p>
+<p>"Yes, I was asking if you were good Teachers."</p>
+<p>Oofuchi Erika seemed to have overheard, asking if we were talking about them, so I nodded and answered her.</p>
+<p>"Surely Akina or Konoka didn't say we couldn't teach, did they?"</p>
+<p>"No, they said you taught them well."</p>
+<p>When I shook my Head and answered Shido Tsubaki's question, Students came out from the other two Guest Rooms. From Room 302 came Saionji Diana, Kujo Kina, and Naruse Shiyo, and from Room 303 came Minamoto Risa, Seizawa Shii, and Otagi Yuka.</p>
+<p>Although nothing was likely to happen, it was reassuring that there was at least one skilled person in each room. And since the Rooms weren't far apart, we could quickly go to help if needed.</p>
+<p>Of course, the Probability of anything happening at a Resort like this was almost zero, but recently, a few unexpected Accidents had occurred in situations with almost no Probability, which had made me a little on edge.</p>
+<p>"Shall we go eat now?"</p>
+<p>We immediately went to the restaurant on the first floor. The restaurant, called Seolhwa (雪花, Snow Flower), was a fusion place offering a mix of Western and Japanese dishes.</p>
+<p>"Welcome. We will guide you to your table."</p>
+<p>As we entered, a Clerk guided us to a large Table. It was a long Dining table, like one from a Lord's Castle in a movie, and it was more than enough to seat all 13 Members of the special class Party.</p>
+<p>"The main menu offers a choice of lobster, wagyu Steak, or Fish Steak...."</p>
+<p>As it targeted a small number of Customers, the Menu wasn't extensive. There were three main dishes and a few side dishes on the Menu, and everyone ordered their desired main dish. I ordered all three main dishes and two side dishes that I liked.</p>
+<p>While waiting for the Food to come out, we heard some boisterous Whispers of Pleasure from the restaurant's Entrance, which seemed to be the group of University Students the Resort manager had mentioned earlier. Even though they were a group, there were only seven of them, fewer than us.</p>
+<p>There were three Women and four Men, and they were chattering as they entered. They paused for a moment when they saw us, then sat down at a Table some distance away from us.</p>
+<p>"Hello, we are Students from the Chiba University International Politics Discussion Club."</p>
+<p>A friendly and sociable-looking man among the University Students approached and greeted us. A Female Student stood beside him, looking at us with Curious Eyes.</p>
+<p>International Politics Discussion Club, huh.... What a unique club.</p>
+<p>"We are from St. Francis Girls' Academy."</p>
+<p>I didn't think it was necessary to elaborate that we had won a Reward at the sports festival and were on a trip During the Semester, so I just stated where we were from. The University Students had only revealed their club, after all.</p>
+<p>"If it's a girls' academy, then you...?"</p>
+<p>"I'm the Class Teacher. You mistook me for a Female Student because I'm pretty, right?"</p>
+<p>I don't know if she was curious because there was a man at a girls' academy, or if she was interested in my Beauty(?), but a Woman among the University Students' Companions asked me, and when I answered playfully, everyone laughed.</p>
+<p>"You look young, but you're a Class Teacher-nim?"</p>
+<p>"This is my first year working. There probably isn't much of an Age difference between us."</p>
+<p>The Woman kept talking to me as if she had many questions, and the man who first greeted us showed a slight Expression of Jealousy. Was it unrequited love? Or was she his Girlfriend?</p>
+<p>"Then, enjoy your Meal."</p>
+<p>"Yes, yes!"</p>
+<p>As I was laughing and having a Conversation with the Female Student, the special class Students began to glare at me, so I ended the Conversation with "Enjoy your Meal" before my approval rating dropped further.</p>
+<p>"Keep your small talk with Women to a minimum, you."</p>
+<p>"That's right, Ryuta-cchi, you seem too easy."</p>
+<p>"You Playboy!"</p>
+<p>I thought I had ended the Conversation at an appropriate Timing, but from the Students' perspective, I seemed to have ended the Conversation a little too late. After the two University Students' Companions left, each of them had a Word to say to me.</p>
+<p>Fortunately, just as the Students were about to say a few more Words, a Clerk pushed a serving Cart laden with Plates. Since there were 13 of us, it seemed they chose to bring the Plates on a serving Cart rather than carrying them one by one.</p>
+<p>"Here is the Cream Stew. It's a cream Stew made with Milk freshly squeezed from a farm in Shiga Kogen and homemade Cheese. It will warm your Body, which has been chilled by outdoor activities."</p>
+<p>The Cream Stew wasn't on the Menu, but it seemed to come with the main dish. So, in front of me, who had ordered three main dishes, there were three Stew Vessels.</p>
+<p>I'll have to clear these quickly to make Space for the main dishes. I picked up a Spoon and ate the Cream Stew; its savory and rich Taste was exquisite. My Body, which had been slightly chilled from playing at the ski resort, felt like it was warming up.</p>
+<p>"The Stew is delicious, isn't it?"</p>
+<p>"Yes, it really warms your Body."</p>
+<p>The Students also seemed to like the Cream Stew, eating it and saying it was delicious. Soon after, our ordered main dishes and side dishes arrived, and we all enjoyed our Meal.</p>
+<p>Perhaps because we were hungry from skiing and snowboarding, or because the Meal here was excellent, every dish was delicious.</p>
+<p>"Ryuta, ah...!"</p>
+<p>Starting with Alik, all the Students began to put Food into my Mouth one by one, and eventually, I became incredibly full, but we had a delightful Evening Mealtime.</p>
+<p>Athena, requested by Mirumar2-nim, after a long time~!</p>
+<p>Rampaging Otagi Yuka requested by MidNightSKY-nim~! (Casual Clothes, Battle Suit, Bikini, Nude)</p>
+<p>I considered Casual Clothes to be her School Uniform, so I used that, hehe.</p>
+<p>Battle Suit~!</p>
+<p>Bikini~!</p>
+<p>Nude~!</p>
+<p>I couldn't quite capture the rampaging Feeling ㅠㅠ</p>
+<p>Asada Ei in Casual Clothes, Underwear, and Belly Dancer Attire, requested by Gojoy-nim~! Nude images were excluded as they would feel like spoilers for a Character who hasn't had sex with Ryuta-cchi yet, hehe.</p>
+<p>Her Outing attire is a long Coat, turtleneck, Skirt, and Boots, but the Clothes she wears most often are a Suit with a function to replenish Cold energy, hehe.</p>
+<p>Underwear~!</p>
+<p>Belly Dancer~!!</p>
+<p>I tried to capture the pale Skin Color and expressionless Feeling befitting a Seolnyeo, hehe.</p>

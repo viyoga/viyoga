@@ -5,61 +5,75 @@ weight = 462
 chapter = 462
 +++
 
-<p>The morning after the St. Francisco Girls' Academy terror incident, I attended a meeting of all the faculty and staff of St. Francisco Girls' Academy.</p>
-<p>The St. Francisco Girls' Academy side was attended by teachers, the principal, and the vice-principal, as well as the PMC in charge of security services and the head of the Disciplinary Committee and the student council president, who were the main players in this counterattack.</p>
-<p>Of course, this meeting was not only attended by the St. Francisco Girls' Academy side, but also by parent representatives, the local police chief, and directors of the St. Francisco Foundation who came to audit St. Francisco Girls' Academy.</p>
-<p>,First of all, I would like to apologize. I am sorry for the damage caused by this sudden incident...'</p>
-<p>Daigo Terue got up and started the meeting by apologizing for the terrorist incident as the principal.</p>
-<p>Next, student council president Taira Kanna got up and explained the timeline of the incident, and when she explained the damage, sighs poured out from the parent representatives. There were no bereaved families of the victims, so there were no tears, but the atmosphere was not good.</p>
-<p>,Do you know why this terror happened at the school?'</p>
-<p>,The New Liberal Japan Solidarity, which carried out this terror, seems to have posted a statement online saying that they would attack aristocratic schools, which are a scourge of Japan, which is no different from aristocracy. Of course, it was deleted immediately...'</p>
-<p>The police explained to Daigo Terue's question. Taira Jiro seemed to have been quite thorough in his work, even preparing a statement with a plausible reason. It was a big accident in which three students and fifteen guards died, but as the police explained, the St. Francisco Girls' Academy terror incident was not mentioned at all in the media or on the Internet, as if the terrorist group's statement had been deleted immediately.</p>
-<p>If this incident were to attract a lot of attention, St. Francisco Girls' Academy could become the target of other terrorist groups, so they were preventing the spread of rumors about the incident as if nothing had happened, in the style of covering up anything that smelled like Japan.</p>
-<p>Now that World War III is over, most of the PMC mercenaries belonging to the government have lost their jobs and are living as homeless people or Yakuza in the back alleys, or have formed terrorist groups out of dissatisfaction with the government, so there was no need to broadcast it on the news and inform the terrorist groups that there was a target that had not been revealed until now.</p>
-<p>Now that we know the reason, the next step was to figure out who was more at fault. The Toyota faction, which is a non-mainstream faction of the current Daigo family, would not miss this opportunity, so the conference room was likely to become quite noisy.</p>
-<p>However, the police were the most criticized. It was natural for the police to stop terrorist groups, but they did not even notice that the terrorist group was coming to Miyashi, and they did not prevent the terror, so it was natural that they were criticized.</p>
-<p>The local police chief was sweating profusely and repeatedly apologizing to the parent representatives, each of whom could be said to be a local leader, and the criticism from those involved in St. Francisco Girls' Academy, which had a huge influence in the area.</p>
-<p>After nailing down that the police were most responsible, the PMC company, which was hired at a high price, began to be criticized. In the end, it was the Disciplinary Committee that solved this problem. No matter how much the Disciplinary Committee was armed with state-of-the-art equipment that even the US military would use, it was still just a group of high school girls. It was a very fatal accident that the PMC only suffered damage in this attack and was pushed back by a group of high school girls.</p>
-<p>In the end, the PMC, which is currently in charge of security at the school, had no choice but to be crushed by the iron hammer of contract review.</p>
-<p>The police and the PMC company took the biggest responsibility for this attack, and the Tadanoripa and Toyotaka factions of the St. Francisco Foundation continued to argue over the remaining small faults.</p>
-<p>Of course, since the mainstream of this school was the Tadanoripa, the Toyotaka faction was mainly attacking. They started attacking by finding several small flaws, and I was included in those small flaws. Seeing the attack coming in, it seemed that I was also being classified as a Tadanoripa.</p>
-<p>,The homeroom teacher of the special class left his seat before the attack started!'</p>
-<p>In the middle of the story, history teacher Otawa Masato pointed at me and shouted. I don't know when Otawa Masato decided to become a Toyotaka, but he had a complaint about me because of Kijimoto Jurie's matter, so he probably thought that now was the perfect time to attack me.</p>
-<p>,Mr. Yamashiro Ryuta? Would you like to tell us why you left work early?'</p>
-<p>Daigo Terue asked me in a calm manner. I got up from my seat and started explaining what happened yesterday.</p>
-<p>,Recently, students have been having study groups for the exam period, and one team in that study group caught a highly contagious cold and couldn't come to school.'</p>
-<p>,What does that have to do with the fact that Mr. Yamashiro coincidentally left the school before the terrorist group attacked?'</p>
-<p>While I was explaining, Otawa Masato shouted and attacked me again. Hey, what are you doing without listening to me? I looked at Otawa Masato and cursed him once in my mind, and then continued to explain.</p>
-<p>,I happened to meet a student in the study group who had a cold during the weekend, so I left early to go to the hospital in case I caught a cold too. There are also students in our special class who are weak, so I went to the hospital to be careful because colds are also dangerous, but I didn't know this would happen.'</p>
-<p>Everyone nodded as if they acknowledged that my explanation was not bad. Only Otawa Masato was glaring at me with eyes that he could not acknowledge.</p>
-<p>,Okay. Does anyone have any problem with Mr. Yamashiro Ryuta's early dismissal?'</p>
-<p>Of course not. And I was confident even if someone wanted to make sure.</p>
-<p>This is because Otagi Yuka had a hospital in Miyashi that she received from her family, so I had prepared an alibi in advance at that hospital.</p>
-<p>It was already registered on the computer that I had been examined, and the diagnosis that Otagi Yuka, Saionji Diana, Alik, and other study group members had caught a cold was also registered, so there would be no more reason to attack.</p>
-<p>Since my turn was over and I was no longer interested in the meeting, I quietly talked with Kijimoto Jurie, who was sitting next to me. Of course, it was to piss off Otawa Masato, who was watching us.</p>
-<p>Unfortunately, however, Daigo Terue, the principal, was suspended for a month and a half due to the continued attacks of the Toyotaka faction. Since three students, not just one, had died, it seemed unavoidable that she had to take responsibility as the principal.</p>
-<p>During the month and a half that Daigo Terue was suspended, the temporary principal sent down by the board of directors decided to take over the school management, and I thought the temporary principal would probably come from the Toyotaka faction.</p>
-<p>I often overlapped bodies with Daigo Terue and she listened to my requests well. I have no contact with the temporary principal who will be coming this time, so it will be difficult to use the principal comfortably for a while.</p>
-<p>Of course, since Daigo Terue is the daughter of Daigo Tadamori, the current chairman of the St. Francisco Foundation, no matter how well the temporary principal does her job, she will return as soon as her suspension is over, but no one knew what would happen during that month and a half.</p>
-<p>After the meeting, a ceremony was held in the first period to pay tribute to the three dead students, one teacher, and fifteen guards, so I went to the special class building to lead the special class students.</p>
-<p>Fortunately, the students who were seriously injured were recovering smoothly, so there would be no additional deaths.</p>
-<p>,Is everyone okay?'</p>
-<p>I looked around at the students as I entered the special class. As I looked around, it seemed that none of the students were injured. As the story came out yesterday, Konoe Akina and Kurayamata Kirie seemed to have protected them well.</p>
-<p>,I'm sorry that the homeroom teacher had to be with you when you were having a hard time. And thank you, Ms. Kurayamata, for protecting the students.'</p>
-<p>First, I apologized to the students who were surprised by yesterday's incident, and I also politely thanked Kurayamata Kirie. The children who don't know about Otagi Yuka's incident might think that I abandoned them and went outside, so I have to apologize in advance like this. I couldn't let my likeability drop by just glossing over it.</p>
-<p>,Ei~! What are you talking about, Ryuta-cchi? The bad guys are the ones who attacked!'</p>
-<p>,You went to the hospital because you were worried about giving us a cold~, Sensei!'</p>
-<p>The cool Seizawa Shii said that she was okay, and Konoe Akina subtly created public opinion. Saionji Diana also sympathized, saying that she was sorry for catching a cold, and Sakagami Rena was just sitting quietly because it would be strange if she suddenly acted up because of her usual taciturn attitude.</p>
-<p>,The first period will not be a class, but everyone will gather in the main stadium to pay tribute to the people who were sacrificed this time, so let's get ready to go out.'</p>
-<p>I led the students except for Naruse Shiyo, who was weak, to the main stadium. St. Francisco Girls' Academy was an integrated school with both middle and high schools, so the main stadium was quite large.</p>
-<p>We lined up according to each grade, and the homeroom and vice-homeroom teachers stood behind the students. As I stood looking at the sturdy back of Kujo Kina, who was standing at the very back, Kurayamata Kirie spoke to me quietly.</p>
-<p>,Are you serious about saying thank you?'</p>
-<p>,Of course. I'm not a psychopath who doesn't even know that I'm grateful for protecting my students, and I say thank you when I'm grateful.'</p>
-<p>Does she think I'm a personality failure...? But I'm the kind of person who says thank you when I'm grateful.</p>
-<p>,Then please grant me one reward.'</p>
-<p>If she says reward, it's probably something lewd. When I nodded as if to tell her to speak, Kurayamata Kirie opened her mouth with a still glaring expression.</p>
-<p>,...Please rape me outdoors.'</p>
-<p>Oh my. Is she now an exhibitionist after being a voyeur? I couldn't know how far Kurayamata Kirie's fetish would develop. I was even afraid of how much she had developed(?) so soon after losing her virginity to me.</p>
-<p>--------</p>
-<p>Kujo Kina SD!</p>
-<p>It's hard to make Kujo Kina's characteristic muscles into an SD ㅠㅠ</p>
+<p>,Teacher! Let's work out together next time!"</p>
+<p>,Ryuta-jji, today was fun~! I'll come play again next time☆"</p>
+<p>,Don't come play anymore!"</p>
+<p>Kujo Kina and Seizawa Shii left (strangely, they both seemed to like it and left wearing their maid outfits). I was left alone. Still, it's a relief that I don't have to clean up all by myself because I made them do all the cleaning as punishment.</p>
+<p>,Then, shall I check this out?"</p>
+<p>I stared at the gray onahole of the Daughter of the Abyss that caused a commotion among the students. A translucent information window appeared above the gray body.</p>
+<p>◆Husband's Disposable Self-Pleasuring Device of the Daughter of the Abyss [Legendary Consumable]: A masturbation tool created by the Daughter of the Abyss by tearing off a part of the abyss and making it in the same shape as her own pussy.</p>
+<p>It is connected to the Daughter of the Abyss, giving you a fantastic feeling when you masturbate.</p>
+<p>If you ejaculate semen inside the masturbation tool, the tool melts and is absorbed into your body, increasing the limit of all physical stats by 1 and the limit of abyss stats by 2.</p>
+<p>So, it's a super good onahole, and if I cum in it, the limit increases, right? Oh, nice! Stats can be obtained just by leveling up, but limit increases are usually impossible to obtain, so in the later stages, it's better than an elixir that raises stats. In the early stages, elixirs that raise stats are better because the stats are low.</p>
+<p>Also, it's said to be connected to the Daughter of the Abyss, so when I looked closely, the pussy hole of this onahole was definitely gaping open in an unusual way. It was a hole that seemed very pleasurable.</p>
+<p>,Let's lock the door first."</p>
+<p>I looked around the living room and dining room once in case the students might come back, and then locked the front door. Then I sat down comfortably and grabbed the onahole.</p>
+<p>,Do I need something like lubricant...?"</p>
+<p>Still, it's an onahole directly connected to the Daughter of the Abyss, so I wondered if it would be different, so I put my finger in. The pussy and inside of the onahole bit down tightly the moment I put my finger in, chewing and chewing, making it feel really alive.</p>
+<p>When I pulled out my finger, it was covered in a slippery and sticky, pleasant liquid. As I expected, I don't need lubricant. The smell is... it definitely smelled like the Daughter of the Abyss, as if it was connected. A scent similar to human vaginal fluid, but with a slightly different, nostalgic feeling. It was definitely the scent I smelled when I overlapped bodies with the Daughter of the Abyss.</p>
+<p>The shape of the pussy was lewd, and even the smell made my dick naturally hard. I hurriedly took off my pants and put the onahole to my dick. Just putting it on my glans, the hole of the onahole was sucking my dick in.</p>
+<p>I was about to start masturbating when someone grabbed my hand. I was surprised and looked up, and it was Sakagami Rena. Sakagami Rena was looking at me with a slight smile.</p>
+<p>,My lord... you were really frustrated. This Sakagami Rena will help you."</p>
+<p>Since I was already turned on, I was more excited that Sakagami Rena was going to give me an onahole handjob than being embarrassed about getting caught masturbating. I handed the onahole to Sakagami Rena and said.</p>
+<p>,Okay, I'll leave it to you."</p>
+<p>Sakagami Rena started shaking the onahole while watching my expression. No matter how much Sakagami Rena learned bedroom arts from her family, it seemed like it was her first time giving an onahole handjob, so her hand movements were a bit awkward, but she gradually got used to it because of her experience with bedroom arts techniques.</p>
+<p>,My lord, does it feel good?"</p>
+<p>Sakagami Rena's voice, whispering in my ear, doubled my excitement. When I nodded, Sakagami Rena overlapped her lips with mine as if she couldn't stand it. At the same time, her hands didn't stop shaking the onahole.</p>
+<p>Smooch, smooch, mwah...! mwah!</p>
+<p>Tsugeok tsugeok tsugeok.</p>
+<p>The sound of lewdly mixing tongues, along with the wet sound of the lewd onahole, mixed together, continuously increasing my excitement like an infinite engine and leading me to climax.</p>
+<p>,I'll make you comfortable, my lord."</p>
+<p>Chop chop chop chop!</p>
+<p>Sakagami Rena, realizing my imminent ejaculation, started shaking the onahole up and down even faster. In response, the onahole rhythmically bit and released my dick, making me feel a pleasure that made my waist float in the air, and soon ejaculation began. The onahole also noticed my ejaculation and started wriggling even more violently, urging my semen.</p>
+<p>,Keueut...!"</p>
+<p>Buut! Buut! Byuuut!!</p>
+<p>,Ah!"</p>
+<p>As I poured semen into the onahole, the onahole twitched and twitched, showing movements like a pussy feeling climax. It seemed like the connected Daughter of the Abyss also reached climax. When my ejaculation was completely over, the onahole, which had been twitching for a while, melted and began to be absorbed into my body. Sakagami Rena was surprised by the sudden anomaly, but there was nothing she could do.</p>
+<p>I didn't feel stronger because my stats didn't increase immediately, but I still felt refreshed.</p>
+<p>,Come here."</p>
+<p>Sakagami Rena was surprised by the sudden disappearance of the onahole, but as I said, she climbed onto my lap. I had received service, so I had to repay her, so I touched Sakagami Rena's chest over her clothes and started a conversation.</p>
+<p>Even I have a bit of post-nut clarity, so I'm going to talk while my dick recovers.</p>
+<p>,When did you come? I definitely saw you leave."</p>
+<p>,I had a story to tell to my lord, so I pretended to leave and hid in the house for a while... but suddenly my lord took out the onahole..."</p>
+<p>Ah, I see. No matter how sharp my senses are, if the ninja Sakagami, who is specialized in stealth, is hiding, I won't be able to feel it easily.</p>
+<p>,So, what's the story you wanted to tell?"</p>
+<p>,That's... the information fee is paid in advance♥"</p>
+<p>Sakagami Rena, who is teasing me as she speaks as if she's horny from giving me a kiss handjob. I could always give Sakagami Rena the information fee she wanted in abundance.</p>
+<p>###</p>
+<p>,Heueueung♥ Payment completeee!!"</p>
+<p>The price negotiation(?) with Sakagami Rena was quickly concluded with two vaginal ejaculations. After giving her aftercare kisses and rubbing her chest, I went to the kitchen and poured a cup of water.</p>
+<p>,Thank you for paying the information fee, my lord."</p>
+<p>Sakagami Rena chugged a cup of water and then smiled at me. And she continued to speak to tell me the information.</p>
+<p>,Jinildang's movements are unusual, my lord."</p>
+<p>If it's Jinildang, is she talking about that Jinildang where Kurayamda Kirie is the vice-leader?</p>
+<p>,In what way?"</p>
+<p>,I have confirmed that combat personnel belonging to Jinildang that I am checking are moving towards Yamanashi Prefecture."</p>
+<p>Yamanashi Prefecture is the prefecture where Miyashi belongs. Could it be... that they are trying to terrorize St. Francisco Girls' Academy? It hasn't been long since the terrorist attack by the SPF, and if another terrorist attack occurs, the school is likely to close down altogether due to its characteristics.</p>
+<p>Because it was St. Francisco Girls' Academy, where daughters of prestigious families attend, they were much more sensitive to safety than ordinary students.</p>
+<p>,Could it be that our school is the target?"</p>
+<p>,That's not certain."</p>
+<p>Still, it's important information. If the school goes on leave, it will be for at least a month or two, and the probability of my mission succeeding will decrease that much. If it's a terrorist attack, I'll have to quietly resolve it before the terrorist attack occurs.</p>
+<p>,Find out more details. I'll look into it on my side too."</p>
+<p>,Yes. Still, Miyashi's security has been strengthened due to the recent incident, so things don't seem like they will happen urgently, so please rest comfortably over the weekend."</p>
+<p>According to Sakagami Rena's story, whether the terrorist attack location is here or not, it is currently in the reconnaissance stage. Miyashi is on high alert since the SPF attack, so there was no need to worry with the troops that are here now.</p>
+<p>Besides Sakagami Rena, there were options to ask Eve, Dang So-hwa, who is expanding her power in the back alleys, or even Kurayamda Kirie herself, so I would be able to hear detailed information from anywhere. However, asking Kurayamda Kirie herself is something that should be done last because it could unnecessarily stir up a poisonous snake in the bushes.</p>
+<p>I couldn't rest comfortably as Sakagami Rena said because I recently received a message from Dang So-hwa that she had established herself to some extent, so I decided to go meet her on the weekend.</p>
+<p>Kurotsuki also absorbed the remnants and then tried to take root in the back alleys by going back and forth between Korea and Japan, so it must have been even more difficult. From the perspective of Korea and Japan, it was even more difficult to establish itself because Kurotsuki Do-o, which is made up of Chinese people and has a different name, but in the end, it was said that he had created his own place.</p>
+<p>Of course, in Korea, he received quite a bit of help from Han Yu-gyeong, so Dang So-hwa and Yang Xue-shi are said to have become close to Han Yu-gyeong. For reference, in Japan, he received help from Mimata Chieri.</p>
+<p>Of course, if they openly form a criminal organization like the Yakuza, it will be difficult to operate in Japan or Korea, so they are operating as real estate and construction companies on the surface, like Kurotsuki Do-o. They said that the business side is going smoothly because they have Kurotsuki Do-o's know-how.</p>
+<p>,What are you thinking about?"</p>
+<p>,Ah, I was thinking about other places where I can get information."</p>
+<p>Still, I was thinking too deeply about other things with someone in front of me. I hugged Sakagami Rena, who was lying on the sofa.</p>
+<p>,Shall I give you an additional information fee since it was quite important information?"</p>
+<p>,Oh...♥ You've paid enough, haven't you?"</p>
+<p>I threw Sakagami Rena, who was hugging me while saying it was enough, onto the bed and started teasing her.</p>

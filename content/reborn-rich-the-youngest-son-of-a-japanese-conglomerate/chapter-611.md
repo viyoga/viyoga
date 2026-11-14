@@ -5,83 +5,78 @@ weight = 611
 chapter = 611
 +++
 
-<p>After enjoying a fancy dinner at the SCSMC Secret Research Lab cafeteria, we slowly set off towards downtown New Nanjing City. I didn't know the geography of this neighborhood well, but there were quite a few students who could speak Chinese, and there was a female student in Class B who had been to New Nanjing City twice, so we were able to find our way. As time passed, it got darker and darker, but we couldn't turn on the car headlights.</p>
-<p>It was obvious that zombies would rush towards the headlights like crazy, just like bugs swarm to a fire in the mountains. So, I left the driving to Otagi Yuka, who has good night vision, and decided to think about the escape plan.</p>
-<p>Even if we went to the first gathering point, the hotel, we wouldn't be able to escape New Nanjing City, so we had to decide on the next route after gathering at the hotel.</p>
-<p>The best thing to do was to get out of New Nanjing City and move to another city, and then go to Japan from that city's airport. Or, there was a way to go to the airport in New Nanjing City and wait for rescue. Of course, to be rescued, we had to be connected with the side that was rescuing us, but communication was cut off now, so it was a bit of an unreasonable method.</p>
-<p>,In the end, do we have no choice but to go to the next city...?</p>
-<p>,Huh?</p>
-<p>The Class B homeroom teacher sitting next to me across the aisle asks at my muttering. I guess she thought I was talking to her.</p>
-<p>,I was thinking about the next step. What to do after arriving at the hotel....</p>
-<p>,Oh, I haven't thought about it....</p>
-<p>,I also think we should get out of the city like Yamashiro seonsaengnim thinks.</p>
-<p>The Class B homeroom teacher answered with an awkward expression as if she hadn't thought about it at all, and Muko Neika added a word after listening from the side. Actually, it would be better to get out of the city right away from the zoo on the outskirts of New Nanjing, but we had already decided to meet at the hotel, so there was nothing we could do.</p>
-<p>,It seems like the movement of cyber zombies decreases a bit at night.</p>
-<p>Perhaps because it was an electric vehicle-based safari bus, the noise was low. Besides, as it became a difficult-to-see night, the zombies were just slowly wandering around. Of course, there were cyber zombies who had replaced their eyes with cyber implants from time to time, but it was easy to recognize them because they emitted a red light from their eyes, so Saionji Diana sniped them down with a silent energy gun.</p>
-<p>,That gun looks good? What brand is it?</p>
-<p>,It's a new company called TG Tech.</p>
-<p>Muko Neika looked at the energy gun and asked curiously, so I answered as an advertisement.</p>
-<p>,Oh, I want to try using it once.</p>
-<p>,I'll have a few more in my hotel room, so I'll let you use them when we get back to the hotel.</p>
-<p>We talked quietly about the gun and drove tediously, and before we knew it, we were able to arrive at a hotel with a golden dragon carved splendidly.</p>
-<p>,It doesn't seem like anyone has arrived yet?</p>
-<p>There might be a bus in the underground parking lot, but I thought they would have parked on the ground instead of underground because of the height, but the St. Francisco Girls' Academy bus was not visible.</p>
-<p>,Aren't they still being chased?</p>
-<p>,Could they have been caught?</p>
-<p>Everyone was buzzing because they couldn't see the other class's bus. In this case, it would be better to contact them directly than to look for the bus. I picked up the radio.</p>
-<p>,We arrived at the hotel as promised. Where are you?</p>
-<p>As I was waiting for an answer, Taira Kanna's voice was heard after a while. Unlike before, there was no static noise because the distance was close. It seemed like they were coming.</p>
-<p>-We're on our way too. We're almost there, but the zombies....</p>
-<p>Those who don't have good night vision will turn on the lights and drive, so the zombies have no choice but to swarm. I have no choice but to prepare on this side too.</p>
-<p>,I know what the situation is. I'll be preparing on this side too.</p>
-<p>-Yes, we'll be there in 3 minutes.</p>
-<p>If they arrive in 3 minutes, there was no time to be doing this. I looked at Muko Neika, who was listening to the radio next to me, and opened my mouth.</p>
-<p>,Muko, how much ammo do you have?</p>
-<p>,There are seven guns, and each of us has about one or two magazines.</p>
-<p>Even if it's one or two magazines, it will be quickly exhausted if we face countless swarming zombies. Besides, the zombies in the hotel will rush in because of the noise of the battle, so it was quite a headache because we had to guard the rear as well. In addition, the guns that Class B had were gunpowder-based guns, so the noise was so loud that it was ambiguous to use them because they could stimulate the zombies.</p>
-<p>,First, the gun users come out, and the rest shouldn't get out of the bus because it's dangerous. Otagi, park the bus in a corner where it's not noticeable.</p>
-<p>,Okay, seonsaengnim.</p>
-<p>The students with guns got off, and Otagi Yuka parked the bus in one corner. Anyway, the bus will be safe if we make a fuss, so I didn't worry too much.</p>
-<p>,Class B's guns are gunpowder-based, so they're noisy, so don't shoot until it's an emergency.</p>
-<p>New Nanjing City had become a city with almost no noise, so if you shoot a gun wrong, you could gather all the zombies within that noise radius.</p>
-<p>,Saionji, zombies may come out from the hotel side because of the commotion of the battle, so watch the back.</p>
-<p>,Don't worry about the back, seonsaengnim.</p>
-<p>I entrusted the rear to Saionji Diana, who can be active in both long and short distances, and as Otagi Yuka, Alik, and I stood near the hotel entrance parking lot, the lights of the bus were visible in the distance.</p>
-<p>,Are there that many? Did they go around New Nanjing City and collect them, or what?</p>
-<p>Otagi Yuka, who can see through the night as well as the day, muttered as she looked at the zombies swarming behind the bus. There must be a lot, but I don't have good night vision like Otagi Yuka, so I didn't know how many were swarming.</p>
-<p>Soon the bus came in and lined up horizontally like a makeshift barricade, and the students got off in a rush. Several students wearing cyber suits and holding the guns I handed over, full of thoughts of fighting, and the special class students who set up the wall last got off. But.... A few are missing?</p>
-<p>,Where did Shimokawabe seonsaengnim and Naruse go?</p>
-<p>I asked Minamoto Risa, who got off last. Minamoto Risa opened her mouth with a slightly guilty face.</p>
-<p>,Shimokawabe seonsaengnim and Naruse said they would lure the giant robot zombies that were chasing us and got off. They went out the window before I could stop them, so I couldn't stop them. Thanks to that, we were able to shake off the robot zombies, but I don't know if they'll be safe....</p>
-<p>That's what happened. Shimokawabe Airen doesn't need to be said, and even Naruse Shiyo's defense increases considerably when she transforms, and she can even fly, so she won't be seriously injured.</p>
-<p>,They'll both be fine. Let's think about stopping the zombies that are running now first.</p>
-<p>The cyber zombies were already screaming and passing through the hotel's main gate and approaching, so I couldn't comfort them any further here.</p>
-<p>,Let's take care of everything here and rest!</p>
-<p>I shouted as I smashed the head of the zombie running at the very front. Certainly, as Otagi Yuka said, there were countless zombies running.</p>
-<p>Let's think simply. Unlike the zombies in movies or novels, you don't get infected even if you get bitten, and no matter how many there are, the only direction those guys can attack is the front.</p>
-<p>I grabbed the approaching zombie, threw it, and chopped its neck with a hand blade, reducing the number of zombies one by one.</p>
-<p>When I glanced around to grasp the zombies and the war situation, Otagi Yuka was actively using the dark state to secretly use blood to sweep away the zombies, and Alik was also fighting by frying the enemies with electricity.</p>
-<p>Sakagami Rena was also shooting a gun and often throwing shurikens that I didn't know where they came from, but a small creature was collecting the shurikens thrown by Sakagami Rena and returning them to Sakagami Rena. What, did Sakagami Rena also have a summoned beast? I couldn't see it exactly, but it looked like a weasel, so there was a reason why she said she liked weasels at the zoo earlier.</p>
-<p>The rest of the students were also blocking the zombies by shooting the guns I had prepared.</p>
-<p>We swung our fists and swords non-stop for almost three hours. The students who used guns ran out of bullets after about an hour and couldn't fight, so they moved to the rear, and after that, the students with melee weapons had no choice but to do their best for two hours.</p>
-<p>Everyone was exhausted, but after three hours, the end was in sight. There weren't many zombies left. But everyone was exhausted, so they had no choice but to fall into a very dangerous situation.</p>
-<p>,Damn it...!</p>
-<p>While Nakanoin Rina was pulling out the bat stuck in the zombie's skull, another cyber zombie suddenly rushed in front of her.</p>
-<p>,Rina-ssi!</p>
-<p>Taira Kanna's voice was heard, and Nakanoin Rina was about to be attacked.</p>
-<p>Chwaaaak!</p>
-<p>The cyber zombie was split in half. The remaining zombies also fell, spraying blood.</p>
-<p>,You came back at the right time.</p>
-<p>I said as I looked at Shimokawabe Airen elegantly sheathing her lead sword.</p>
-<p>,You've worked hard, Yamashiro seonsaengnim.</p>
-<p>,Did we come at the right time, seonsaengnim?</p>
-<p>,Yes, you came at the right time.</p>
-<p>I smiled and answered Naruse Shiyo's question. It would have been quite dangerous if these two hadn't come now. I would have been fine, but if Nakanoin Rina had been breached, there would have been unarmed students behind her, so it could have caused considerable damage.</p>
-<p>,Everyone worked hard. So.... Let's go to the hotel and rest.</p>
-<p>The cyber zombies that were already in the hotel had all rushed out due to the commotion of the battle in front of the hotel, so there would be almost no cyber zombies left in the hotel. Still, just in case, the Class B students with guns decided to search each floor.</p>
-<p>After a while, the search was over, and all the students and teachers of St. Francisco Girls' Academy went to their respective rooms after the report that the hotel was clean. They were already exhausted, so they just wanted to throw themselves on the bed.</p>
-<p>I also came into my room. When I lay down on the bed, the level-up window was flashing in front of my eyes. It's no wonder the level-up window popped up. It's like I fought non-stop for 3 hours in a hunting ground that regenerates infinitely.</p>
-<p>,Let's do it tomorrow.</p>
-<p>I was quite tired. The level-up points weren't going anywhere, so I thought I should do it when I wake up tomorrow, and I closed my eyes.</p>
-<p>________________</p>
-<p>Dongtan Dress! This time it's Shii~! Hehe</p>
+<p>I opened my Eyes, and it was Morning. How did I get back yesterday? As I replayed the intermittent memories that came to mind, I remembered Otagi Yuka carrying me on her back and bringing me into the room after we arrived Home. I must have immediately collapsed onto the bed and fallen asleep.</p>
+<p>Getting up and looking around, Otagi Yuka and Saionji Diana were asleep. Since I had said I would check their Abilities today anyway, it seemed they had slept at our Home.</p>
+<p>I carefully got up and left the room. Feeling a presence in the guest room as well, when I slightly opened the Door, Sakagami Rena, Konoe Akina, and Urabe Konoka were sleeping there.</p>
+<p>So, everyone slept at our Home. It's good that I don't need to call them again.</p>
+<p>Yesterday I was quite tired, but today, after a deep Sleep, my stamina seemed to have recovered. Thinking about it now, Nagumo Sian probably couldn't control the Bedroom Arts she recently started learning, and absorbed a large amount of my Yang Energy. If not for that, I wouldn't be this tired.</p>
+<p>I put a lot of Bread slices into the oven, then set the timer, and sat on the living room sofa and turned on the TV.</p>
+<p>**-News reports that the New Nanjing City recapture Operation began this Dawn. The South China government, which had been contemplating the treatment of people who had become Zombies, ultimately established the principle of 'kill on Attack, isolate and Chiryo if not attacking'....**</p>
+<p>'Kill on Attack' means they're going to kill everyone, doesn't it? Is it because the population is hundreds of millions that ten or twenty million aren't seen as mere numbers? It's practically saying they'll kill all the zombified people in New Nanjing City.</p>
+<p>In fact, from what I've seen through several Regression runs so far, there's no mention of a Chiryo for this cyber Zombie virus, so to recapture New Nanjing City, the cyber Zombies inevitably had to be eliminated.</p>
+<p>My thought was that even with cyber implants, they're still fundamentally People, so if they just waited about a month, everyone would starve to Death, then they could just clear the Corpses, so was there really a need to dirty their own Army's Hands?</p>
+<p>Even in the game before my Possession, I had seen Entry into New Nanjing City after the cyber Zombies starved to Death once or twice, so this current Choice was quite regrettable. Or is there a Reason to enter now? Surely it's not because of me, is it?</p>
+<p>Even as I thought, 'Is it because of me?', the News continued, but this time it was even more ominous News.</p>
+<p>**-The South China government has deployed its Army to the North China border region. Due to the North China extremist Terror group, the Red Revolution Front, as most of New Nanjing City has died or been infected, the anti-North China sentiment among the South China People is greater than ever before. There are rumors that North China is supporting Terror groups, but the North China government is denying it....**</p>
+<p>Indeed, although the Red Revolution Front, which caused this incident, is an illegal Terror group, because it is ultimately a 'North China' Terror group, anti-North China sentiment among the South China People has grown more than ever. Ultimately, this flows like a prelude to War, but as World War III ended just 8 years ago, in the game, only Tension flowed, and it didn't lead to War.</p>
+<p>But now, perhaps because of my intervention, the New Nanjing recapture Operation is starting early, so I couldn't guarantee that a War wouldn't break out. I'll have to see how the Situation unfolds.</p>
+<p>Dding!</p>
+<p>As I was watching the News, the alarm from the oven, where I was heating toast, rang, indicating time was up. As if they heard the alarm, the Doors of my room and the guest room opened, and the special class Students came out one by one.</p>
+<p>"We're going to eat breakfast right away, so at least Wash Face and come."</p>
+<p>I turned off the TV and went to the kitchen, speaking to the special class Students who had woken up. Then I took the toast out of the oven, fried Bacon and eggs, took out jam, whipped cream, and butter, and took out orange juice and Milk.</p>
+<p>Even the deliciously golden-brown fried Bacon and eggs were placed on the Dining table in a vessel, and the Students who had quickly washed up sat at the table.</p>
+<p>"Haam~! Teacher-ssi, yesterday you completely Fainted, but you woke up early today?"</p>
+<p>"Indeed. Was my Condition not so good yesterday? I felt a bit tired."</p>
+<p>"I'll eat well, Teacher-nim. You worked hard since Morning."</p>
+<p>"It's a very appetizing breakfast, Liege."</p>
+<p>We enjoyed Morning while Chatter. It was a simple Morning of Bread, eggs, and Bacon, but it was quite edible.</p>
+<p>When everyone went to wash up after finishing the Meal, while I finished Dishwashing and everyone was drying their Hair, I also took a Shower. Since it was late November now, I couldn't wash with cold Water anymore, so I showered with warm Water, and the Feeling of my Muscles relaxing in the warm Water was quite pleasant.</p>
+<p>After finishing my Shower and shaking my Head dry as I came Outside, everyone was sitting in the living room, waiting.</p>
+<p>"Just wait a Moment. I'll just dry my Hair and come out."</p>
+<p>"No, we'll dry it for you, so please come here."</p>
+<p>As if she had already thought of drying my Hair, Konoe Akina was shaking a hairdryer and Smiling. If they dry it for me, it's convenient for me. I didn't refuse and sat in the middle of the sofa that the Students had left empty.</p>
+<p>"I'll dry it for you quickly~!"</p>
+<p>Uwoong~!</p>
+<p>As Konoe Akina turned on the hairdryer, no less than five Hands simultaneously began to ruffle my Hair. The mischievous special class Students sitting around had each placed their Hands on my Head. Naturally, with several Hands ruffling my Hair, the Dewy Moisture dried quickly, but my Hair became a mess.</p>
+<p>"Hey, what is this?"</p>
+<p>"Ahahaha! Teacher-ssi's Hair is funny~!"</p>
+<p>"It'll be fine if I comb it for you, Teacher-nim."</p>
+<p>Konoe Akina gently combed my Hair with a comb. After Dyeing my Hair, I had been wearing it swept back for an Image transformation, but with my Hair combed down like this, I felt like the usual Taira Ryuta before the Dyeing.</p>
+<p>"Oh, covered Ryuta looks quite good?"</p>
+<p>"When I didn't dye my Hair and didn't tan my Skin, I used to wear my Hair down like this."</p>
+<p>"Liege, I'm curious about your Appearance before the transformation~!"</p>
+<p>"That's right, Teacher-nim. I want to see it!"</p>
+<p>Except for Otagi Yuka, Konoe Akina, and Urabe Konoka, everyone else had met me at St. Francis Girls' academy, so Sakagami Rena and Saionji Diana were curious about my old Appearance.</p>
+<p>"Just a Moment...."</p>
+<p>Since Students who didn't know my True Identity might see them, all my old Photos or Photos that could hint at my True Identity were kept in a secure folder, so they could only be viewed by entering a separate Password. I unlocked the Password and showed them to the Students who said they were curious.</p>
+<p>"This is... good tooo♥"</p>
+<p>"Perhaps because his Skin is white, he gives off more of a cold handsome man vibe."</p>
+<p>Whether white Skin and black Hair were also their Preference, they seemed quite delighted as they admired my Photos. While the Students were admiring my Photos, I went into the room and retrieved the Ruins' Glasses.</p>
+<p>"Who should I check first?"</p>
+<p>"Please check me first, Teacher-nim."</p>
+<p>As if the Students had already discussed it among themselves in response to my Question, Saionji Diana raised her Hand. I had only seen Saionji Diana before her cyber implant surgery. She probably leveled up quite a bit, and I was most curious about it too.</p>
+<p>Since the Order didn't matter anyway, I should check Saionji Diana first. I put on the Ruins' Glasses and focused my Mind while looking at Saionji Diana's Face.</p>
+<p>**◆Name: Saionji Diana (Saionji Tsukimegami) Lv12**</p>
+<p>**Stats**</p>
+<p>**Physical Body** **Power:6(+14) Agility:12(+14) Stamina:11 Resistance:5(+14) Recovery:4 Sensitive Nerves:12(+5) Appearance:15**</p>
+<p>**Mind** **Intelligence:6 Knowledge:6 Concentration:8 Will:11 Creativity:4 Charm/Allure:14 Judgment:8(+5)**</p>
+<p>**Other** **Luck:3 Cyber Implant Battery:(Arm: 85%)(Legs: 83%)**</p>
+<p>**Skills** **◆Saionji Style (西園寺流) (Narrative Swordsmanship Lv12)** **◆Management [General Skill Lv8]** **◆Riding [General Skill Lv5]** **◆Accounting [General Skill Lv8]** **◆Linguistics [General Skill Lv12]** **◆Tea Ceremony [General Skill Lv7]** **◆Wind Blade Art (風刃術) [Unique Swordsmanship Lv7]** **◆Dark Merchant Firearm Combat Art [Rare+ Marksmanship Lv6]** **◆Wind Reconnaissance [Narrative Skill Lv1]**</p>
+<p>**Modifications** **◇Machine Modification-Arm Implant EVE Special Modification Model [Unique Modification]: A special model created by the Dark Merchant's AI Android Eve for Saionji Diana. Superpower usage possible.** **◇Machine Modification-Leg Implant EVE Special Modification Model [Unique Modification]: A special model created by the Dark Merchant's AI Android Eve for Saionji Diana. Superpower usage possible.**</p>
+<p>**Traits** **◆Swordsmanship Genius [Growth Narrative Trait]: Can easily learn Swordsmanship. Depending on Effort, the Trait can change to one of Swordsmanship Master/Seongin/Choin.** **◆Master's Sensation [Narrative Trait]: Detects Killing Intent, Opponent's presence, or Will with excellent Sensation. Agility Stat receives a bonus the Moment Killing Intent is felt.** **◆Predator of the Battlefield [Narrative Trait]: Senses the flow of battle well. In combat situations, if there are Colleagues, Judgment and Concentration Stats receive a significant bonus.** **◆Kamaitachi's Dance (かまいたち) [Unique+ Trait]: Maximum agility and sensitive nerves, stats increase by 1, and when using a blade, you can use Wind Blade (風刃: Wind Blade).** **◆Sword and Gun Stance [Unique Trait]: Applies the Trait with the higher combined Grade among Sword and Firearm Traits that can be applied when using a Sword. Traits with lower combined Grades are not applied.** **Applies the Trait with the higher combined Grade among Sword and Firearm Traits that can be applied when using a Firearm. Traits with lower combined Grades are not applied.** **◆Wind Affinity [Unique Trait]: Wind Attribute Skills and Traits Effect increases by 130 percent, and damage taken from Wind Attribute Skills is reduced by 70 percent. Can better grasp Surroundings with Wind Sensation.**</p>
+<p>"Oh...!"</p>
+<p>I was surprised without realizing it. Although it had been quite a while since I last saw Saionji Diana's Status Window, to have leveled up 4 times! That's amazing, isn't it? She seemed to have worked hard during that Time. Since she had followed me and participated in several battles, and there was this Zombie incident, it was impossible for her not to Level up.</p>
+<p>Her Stats were greatly boosted thanks to the cyber implants. Just looking at her Stats, she'd be stronger than me. Due to the nature of cyber implants, even if the total exceeds 20, a Limit Break isn't possible, but since there were almost no Characters who could achieve a Limit Break anyway, it wasn't a major disadvantage.</p>
+<p>Two new Skills had appeared: Dark Merchant Firearm Combat Art and Wind Reconnaissance. Since Saionji Diana had been abandoned by her Family, it seemed she had received the new Firearm Skill from Eve. And Wind Reconnaissance was clearly a Skill Sawayanagi Seari possessed, but seeing that its Level was 1, it seemed she had just learned it at this Fellowship meeting.</p>
+<p>What was important were the Traits, and I don't know how both of the two recently acquired Traits ended up being Unique Grade, given Saionji Diana's Luck of 3. As expected of their high Grade, both were good Traits, but especially Sword and Gun Stance was an incredibly overpowered Trait.</p>
+<p>If all Traits are focused on Sword or Firearm Traits, and this Trait is acquired, it's a Trait that allows one to handle both Guns and Swords at a similar Level. The disadvantage is that if Firearm and Swordsmanship Traits are present together, the Trait with the lower combined Grade is not applied, but this can be solved by focusing on one side.</p>
+<p>Taking Saionji Diana as an example, both Swordsmanship Genius and Kamaitachi's Dance, which are Swordsmanship-exclusive Traits, were applied even when she held a Firearm. It was almost regrettable that she didn't have many Swordsmanship Traits.</p>
+<p>If only Swordsmanship Traits appear as she Levels up in the future, she will be able to become a Person excellent in both Swords and Firearms. Of course, since this Sword and Gun Stance only applies to Traits, she needs to learn Skills that can utilize Firearms, but Saionji Diana herself instinctively felt this and was learning Dark Merchant Firearm Combat Art.</p>
+<p>The second Trait, Wind Affinity, was an unconditionally good Trait for Characters using Wind Attributes, like a Gukbap Trait. Although she only had Traits and Skills like Kamaitachi's Dance and Wind Blade Art, it was still quite useful.</p>
+<p>"You've grown well during that Time, haven't you?"</p>
+<p>"Really?"</p>
+<p>At my Words, Saionji Diana brightened and said. Although her Eyes were hidden by her Hair, I felt like she wanted Praise, so I stroked her Head.</p>
+<p>"Write it down if you want to. I'll read it out for you."</p>
+<p>I began to read the Status Window that had appeared before my Eyes to Saionji Diana.</p>
+<p>_________________</p>
+<p>Today's protagonist of Stats, Saionji Diana~!</p>

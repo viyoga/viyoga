@@ -5,89 +5,30 @@ weight = 317
 chapter = 317
 +++
 
-<p>Even after spending a day full of sex with Nagumo Sian, Ha Ju-yoon and Nae Fitzgerald continued to stay at the Talent Development Institute's house.</p>
-<p>The housekeeper was delighted with the sudden paid vacation she received, and we were all mostly naked after work. We spent a stimulating life having sex whenever our eyes met while naked.</p>
-<p>While Yukiko and I were working in the morning and afternoon, Nae Fitzgerald, who had become skilled at sneaking around with her phantom thief activities, took Ha Ju-yoon around for Tokyo sightseeing. Also, Ha Ju-yoon signed a contract with Nae Fitzgerald's company, Légion, and decided to become an ambassador for advertising and Légion in Asia.</p>
-<p>Ha Ju-yoon was a well-known actress in Korea and had recently appeared in a supporting role in an American drama, so she was starting to become quite known, making it a decent deal for Légion as well.</p>
-<p>In the meantime, I had finished most of my studies and was at a level where I could teach students for about a semester. Of course, whether that was really true would be revealed in the practical experience of teaching students directly, but I was confident now.</p>
-<p>There were about two weeks left until the start of the semester, and I had to move my residence to St. Francis Girls' School a week before that, so I had about a week of time given to me.</p>
-<p>As promised with Nae Fitzgerald, I exchanged the Blue Sky Thunderbolt and the necklace I had prepared.</p>
-<p>The necklace was quite expensive, but the Blue Sky Thunderbolt was a legendary weapon, so it was incomparable in value. Nae Fitzgerald was very happy with my gift. She said she was happy that I had taken the time to give her a gift.</p>
-<p>I had to get all my work done in advance. First, I took the Japanese sword Blue Sky Thunderbolt that I received from Nae Fitzgerald, along with the swordsmanship books I bought from the Black Market branches, Gokusan Swordsmanship and Kunst des Fechten (Art of Combat), and headed to East Weapon.</p>
-<p>I was planning to give the sword to Alik and the swordsmanship books to Mimata Chieri-nim. I had already given her several martial arts books I bought from the Black Market before, so she probably had learned quite a bit. The swordsmanship books were meant for Mimata Chieri-nim to learn and then teach to Alik.</p>
-<p>Yukiko was able to take a break under the pretext of a pre-dispatch vacation because I had finished my studies and there was no work at the Talent Development Institute, so I was free to move around as I pleased from the morning.</p>
-<p>"Good morning, Director-nim?"</p>
-<p>Since I also held the position of director at East Weapon, it wasn't strange to go to East Weapon from the morning. Some employees recognized me and greeted me.</p>
-<p>I even had an office under my name next to the president's office of Mimata Chieri-nim, who was the president. I don't know why, but it boasted amazing soundproofing and had a large waterbed.</p>
-<p>I haven't been able to use that waterbed yet. I've only shown my face at East Weapon and then went to other schedules.</p>
-<p>I had contacted Mimata Chieri-nim in advance, so I headed to the underground training room 2 as I was told.</p>
-<p>The underground training room 2 that I went to was a place where elite agents were trained, so ordinary East Weapon troops rarely came there.</p>
-<p>It was a place for Mimata Chieri-nim to create a small number of elite agents by combining the know-how she learned from the Taira Group's agent training institution and the experience she gained in actual combat.</p>
-<p>Mimata Chieri-nim said that she was currently training a few promising people from East Weapon mixed with Alik.</p>
-<p>When I went to the underground training room, Mimata Chieri-nim was watching several East Weapon soldiers training through the glass wall. The underground training room 2 was quite large and divided into several parts, allowing for several types of training to be received at once.</p>
-<p>"Sunbae-nim."</p>
-<p>"Ah, Hubae-nim. You're here? First, take a look over there."</p>
-<p>Mimata Chieri-nim greeted me happily and pointed to the glass wall. Below the glass wall, there were agents wearing VR devices and standing on what looked like treadmills. And on the wall, there was a virtual combat simulator that they were doing.</p>
-<p>"Number 3 is Alik."</p>
-<p>Alik was moving quickly, dodging bullets and accurately hitting the opponent's forehead with bullets, moving as agilely and quickly as a squirrel.</p>
-<p>"He's good?"</p>
-<p>"Right? He has some kind of electrical ability that accelerates his nerves? That's why he can move so fast."</p>
-<p>Ah, right. When Alik was the mid-boss, he dodged hellish ranged lightning attacks and sliced up the approaching enemies at an incredible speed. So that's starting now.</p>
-<p>"Ah, Sunbae-nim, this..."</p>
-<p>After watching the training for a while, I handed the book I had brought to Mimata Chieri-nim.</p>
-<p>"Oh my! Is it a gift?"</p>
-<p>"It's kind of a gift. It's a swordsmanship book, and I'd like Sunbae-nim to learn it and teach the basics to Alik."</p>
-<p>Mimata Chieri-nim, who received the book, flips through it. Gokusan Swordsmanship was a Goryeo Dynasty book written in Chinese characters, and the Art of Combat was written in German, so she couldn't understand it.</p>
-<p>There were illustrations to teach the stances, but the text was still important to know the essence.</p>
-<p>"Hmm... The translation work will be quite difficult. Could Alik know this English-like thing?"</p>
-<p>"Wouldn't he not know since it's German?"</p>
-<p>Alik is Russian, so he probably doesn't know German. But I could ask him once.</p>
-<p>"But Alik seems a little bigger?"</p>
-<p>"Yes, he's growing so fast, he's in full growth spurt right now."</p>
-<p>Maybe it's because he's finally getting enough nutrients after being deficient for so long, or maybe it's because of his characteristics, but he was growing quickly. He used to be cute, but now he's becoming cute and sexy?</p>
-<p>The VR combat training ended quickly. Alik did quite well, but he didn't get the highest score yet because he lacked experience. VR combat training isn't a panacea, and it doesn't properly implement superpowers, so Alik's combat power should be considered higher than his score.</p>
-<p>Later, when Alik's characteristic development is somewhat complete, he will be able to fight in larger battles instead of combat training.</p>
-<p>"Alik, come up here, and the rest of you, take a break."</p>
-<p>Mimata Chieri-nim said into the microphone. The others who were receiving elite training left, and only Alik came up here. Alik saw me and ran over to me and hugged me tightly.</p>
-<p>"Ryuta, did you come to see Alik...?"</p>
-<p>"Yeah, I came to see Alik. I also have a gift to give you."</p>
-<p>Others might say he has a blank expression, but as an expert on Alik's expressions, I could tell that Alik was very excited.</p>
-<p>"Gift?"</p>
-<p>"Yeah. Take this."</p>
-<p>I gave Alik the Blue Sky Thunderbolt, which I had wrapped up nicely. Alik excitedly tore open the wrapping paper. When the wrapping was removed, the antique Japanese sword, Blue Sky Thunderbolt, appeared. Alik slightly pulled the sword halfway out of its scabbard.</p>
-<p>"меч...."</p>
-<p>Was that word sword? Alik seemed very satisfied. I should make him even more ecstatic here.</p>
-<p>"Make the sword crackle."</p>
-<p>"Crackle?"</p>
-<p>Alik asked me back, then completely drew the sword and pursed his lips, pretending to give some strength.</p>
-<p>Until now, he only knew how to discharge it. He hadn't learned how to concentrate it in one place, so I thought it would take some time, but soon the steel blade of the Blue Sky Thunderbolt began to turn into lightning.</p>
-<p>It was definitely a legendary-grade weapon from another dimension. I don't know how this phenomenon occurs, but it has to be this level to be called a legendary weapon.</p>
-<p>"Thank you, Ryuta..."</p>
-<p>"Do you like it?"</p>
-<p>"Yeah...!"</p>
-<p>Alik thanked me and hugged my arm tightly again. I'm glad he likes it.</p>
-<p>"Sunbae-nim will teach you swordsmanship."</p>
-<p>"Chieri, is a Sabu?"</p>
-<p>Hmm, Mimata Chieri-nim's Alik-style nickname seems to be Cherry. I was wondering why it wasn't Jjerry, but it must be Alik's preference.</p>
-<p>"Alik, try calling her Sabu-nim. Hehe."</p>
-<p>"Cherry... Sabu-nim?"</p>
-<p>It seemed like he was saying it reluctantly, and it seemed like Alik didn't want to add -nim to it.</p>
-<p>"Alik, are you doing well with the other training?"</p>
-<p>To change the subject, I suddenly asked how Alik's maid training was going, and Mimata Chieri-nim had a slightly troubled expression.</p>
-<p>"Ah, that side is... They like Alik too much, it's a problem. They want to adopt him."</p>
-<p>Already after meeting him for a short time? Alik is cute, but still. Isn't adoption too hasty? It's not like Alik is young either.</p>
-<p>"I'll leave that matter to Alik's free will."</p>
-<p>"That would be the best. For Alik personally, it's like gaining another sponsor."</p>
-<p>I know that the person teaching Alik is also a member of a prestigious family, so it's not like they're trying to continue the family line with Alik, but that's how much they like Alik.</p>
-<p>"And Sawayanagi Seari-ssi was too embarrassed to contact you directly, so she told me to tell you. She wants to use the date voucher she received from the injury this week."</p>
-<p>Ah, right. When we went to the Seryutai picnic, we said we would give a date voucher to the women's volleyball MVP, and Sawayanagi Seari received the MVP at that time. I have to take another day out of the remaining week.</p>
-<p>Still, Sawayanagi Seari is the most promising person in Seryutai, so I couldn't cancel it. I'll have to make time as much as possible.</p>
-<p>"Then, I'm sorry, but please tell her again, Sunbae-nim. Let's meet on Thursday. Tell her to say in advance if there's anything she wants to do before then."</p>
-<p>"Okay."</p>
-<p>"Ryuta..."</p>
-<p>While I was talking with Mimata Chieri-nim about the date with Sawayanagi Seari, Alik spoke to me.</p>
-<p>"I want to go on a date too."</p>
-<p>"Then, since you said it, should we go today?"</p>
-<p>Today, I should think of it as a rehearsal for the date with Sawayanagi Seari and play with Alik.</p>
-<p>-----</p>
-<p>Alik in a maid outfit after a long time!</p>
+<p>-wi-ing "I'll go get it." Just as I was about to ask another Question, a vibration sound indicated the food was ready. I stood up from my Seat, went to the Counter, picked up two trays with my ordered food, two Psycho Chicken Burger Sets, and Shimokawabe Airen's Amazing Burger Set, went to our Seats, and placed the Amazing Burger Set in front of Shimokawabe Airen.</p>
+<p>"Thank you. You're so kind, Taira-ssi." "Hmm, since I'm on a mission right now, 'Taira-ssi' isn't quite right. Please just call me Ryuta-gun." Although there was no one around to hear, I still cautioned Shimokawabe Airen, as it shouldn't become a habit to call me Taira-ssi.</p>
+<p>"Understood, Ryuta-gun. Seeing as you're concealing your True Identity, I suppose I shouldn't ask what kind of mission it is." Shimokawabe Airen said this, subtly implying, 'You're not doing anything bad, are you?' I laughed "Ahaha," and evaded, saying, "Shall we eat?" I unwrapped the Chicken Burger and took a bite. Hmm, perhaps because I exercised, it tastes even better.</p>
+<p>"By the way, Shimokawabe Airen-nim, you're such an excellent Swordsman that you know my Sabu, so why are you working as a Home Teacher?" I asked Shimokawabe Airen about her Story, partly to divert the Topic from my mission. Actually, I don't know if her Skill is excellent right now, but I asked because I know her certain future.</p>
+<p>"Actually, the Act of wielding a Sword doesn't make Money. My main profession is a Swordsman, but to make a living, I have to Work. Rather, being a Teacher is my side job." I wanted to say, 'Wielding a Sword makes a lot of Money. In your future, you become a Mercenary with incredibly high employment fees,' but I just kept quiet for now. If I don't say anything, I might be able to hire her a bit cheaper.</p>
+<p>"Is that so? Still, if you're a Swordsman, you could open a Kendo Dojang, couldn't you?" Our Kashima Ichishin Doryu (鹿島鬼一神道流) is a martial art passed down through a single lineage, so we cannot have many disciples. Is it a single-line inheritance martial art like Shinkai Yatsude? In my Memory, Shimokawabe Airen clearly founded a school and was a Swordsman leading a large force. Surely, a major Incident must have occurred between the present and the era of TMC that changed Shimokawabe Airen's Thoughts.</p>
+<p>"Of course, I can teach the basics, not the secret techniques of our school, but it's pitiful that they can't learn more than that. So I don't open a Dojang. Instead of a Dojang, I run a club at the school." Oh, right. There was a club, wasn't there? A fax had clearly arrived, telling me to investigate and submit the Students' clubs by next week... I had completely forgotten about it. I must do it on Monday.</p>
+<p>"Is it a Swordsmanship club?" To be precise, I'm the advisor for Cheongsim-gwan (淸心館), an ancient martial arts club. Hearing from Shimokawabe Airen, it seemed they practiced not only Swordsmanship but various martial arts. Since all the Female Students were Young Ladies from prestigious families, there were quite a few Students who practiced ancient martial arts passed down through their Family.</p>
+<p>In the case of St. Francisco Girls' Academy, since the middle school and high school divisions shared clubs, the club members were said to have a very strong camaraderie. Because they spent almost six years in club activities, their relationship was that good. That camaraderie continued into society, and in the case of long-established clubs, it was said to be helpful even in the professional world.</p>
+<p>"Ryuta-gun, you'll probably have to take on a club advisor role. There's an unwritten Rule that second foreign language Teachers, like Korean language Teachers, usually have more free Time, so they have to take on an advisor role." Ah, so that's how it was? If I become a club advisor, I can't leave Work right away, and I dislike that... Of course, there might not be a Rule that the advisor must attend every day, but it's still one more thing to worry about, so I disliked it.</p>
+<p>"I'm also the Class Teacher for the 3rd-year special class, do I still have to be a club advisor?" "The 3rd-year special class?" Shimokawabe Airen was surprised by my Words and asked back instead. Does she have some Fate with the special class? Or some other Secret?</p>
+<p>"Yes, the previous Class Teacher caused an Accident last semester and was fired, so I came in." "Ah, then... you must know a Student named Saionji Diana?" I knew Saionji Diana. She was a somewhat gloomy-looking girl in a wheelchair. Her Hair was disheveled and grown down to below her Eyes, so her Face wasn't properly visible.</p>
+<p>"Yes. I know her. Although I've only been in charge for a week, a Class Teacher is still a Class Teacher." "Ah, Diana was... the Club President of Cheongsim-gwan." That girl in the wheelchair was the Club President of Cheongsim-gwan, an ancient martial arts club? If so, it didn't seem like she was born with a physical Disability. Indeed, if she had no Limbs and wore Prosthetic Legs and Prosthetic Hands, she couldn't have been the Club President of an ancient martial arts club.</p>
+<p>"Then, is her current use of a wheelchair due to an Accident?" "Yes, unfortunately, she was in a truck Accident." A truck... For an Accident to be severe enough to sever Limbs, it must have been a tremendous Incident.</p>
+<p>"But if she's attending St. Francisco Girls' Academy, she must be from a prestigious Family, yet all her Prosthetic Hands, except for one Arm, are just rudimentary forms. There are excellent cyber implants available these days, you know." "That's..." Shimokawabe Airen hesitated for a moment, then opened her Mouth. Her Words began with an Explanation of the Saionji Family. The Saionji Family was a wealthy Family involved in banking.</p>
+<p>Saionji Diana was the daughter of the Saionji family's successor, and she was in an accident when she and her parents were hit by a truck while traveling. Shimokawabe Airen said it seemed like the work of Saionji Fusato, the second son of the Saionji family, but there was no evidence. Saionji Diana's father died, leaving the position of Saionji family's successor vacant. Naturally, the most likely successor would be Saionji Fusato.</p>
+<p>Since then, Saionji Diana quit her club and is currently just quietly commuting to and from school. Those rich bastards... Why are they so lacking in Imagination? Both my Father, Taira Saburo, and Saionji Diana's Father died in truck accidents. Thinking about it, the fact that the culprits were never identified in either case, and that both were successful, suggests it was a very effective Assassination Event.</p>
+<p>"So, is Saionji Diana, having lost her connections, unable to receive cyber implants?" "That's right. While there are prestigious families that aren't wealthy, the Saionji Family is rich. It seems they don't provide cyber implants, saying that a Child without Limbs is useless." Hmm, in the end, Saionji Diana will only have a negative future. If she can't become the Head of the Saionji Family, only the Life of a poor Jang-ae will remain. Revenge would be out of the question. If Saionji Diana had the Skill, I might be able to help her.</p>
+<p>"If Saionji Diana was the Club President of an ancient martial arts club, her Skill must be considerable, right?" "Among the Disciples I taught, her Talent was the most outstanding. She couldn't become my Disciple because she had a separate school she was learning." If her Skill was sufficient, I could Sponsorship her to get cyber implants. Next Monday, I'll have to wear the Ruins' Glasses for the first Time in a while and go. If Shimokawabe Airen wanted to take her as a Disciple, her Skill would be beyond doubt, but I still need to confirm it.</p>
+<p>"I'll pay a little more Attention." "Thank you, Ryuta-gun." Shimokawabe Airen elegantly bowed her Head and expressed her gratitude. To express such gratitude even though I haven't done anything yet, it must mean Shimokawabe Airen cares for Saionji Diana that much.</p>
+<p>Good, even if her Skill isn't great when viewed through the Ruins' Glasses, I'll at least get her low-grade cyber implants that allow for daily Life. Even if it costs some Money, it will raise Shimokawabe Airen's Affection Level. "Shall we get up now?" Having finished our meal, we stood up from our Seats, cleaned up the trash, and went Outside.</p>
+<p>"Which way are you going?" When I asked, Shimokawabe Airen pointed in the direction of St. Francisco Girls' Academy. "I'm staying in the Cheongsim-gwan building. The Headmaster also gave her permission. She said it's like hiring a Security Guard by letting me live there, huff-huff." Since the academy grounds are quite large, having a skilled Person like Shimokawabe Airen would reduce the area that needs to be covered. Although it's unlikely for a mere school, if someone were to invade, they could also borrow Shimokawabe Airen's Power.</p>
+<p>"My direction is similar too, so let's go together." My Home was also a three-minute distance from St. Francisco Girls' Academy, so our directions were similar. Ah, come to think of it, I didn't hear the answer to my earlier Question. "By the way, the Question I asked earlier. I'd like to ask it again." "Yes? What Question?" "The Question about whether I have to be a club advisor even if I'm the special class Class Teacher." As soon as the special class Story came up, Shimokawabe Airen started talking about Saionji Diana, so I didn't get an answer.</p>
+<p>"Actually, there's no Rule that you absolutely have to be an advisor, but you'll face immense Pressure to do so. Ryuta-gun, you're a Newcomer and a second foreign language Teacher." In the end, two conditions were attached to me that meant I had to become an annoying advisor. Because I'm a Newcomer Teacher who's easy to assign Work to, and a second foreign language Teacher who doesn't have that much Work.</p>
+<p>"Ah, my Home is here." "That's a very nice Home." While walking, I arrived Home before I knew it and greeted Shimokawabe Airen.</p>
+<p>"Please come visit anytime. If you're Sabu's friend, you're a special Person to me too." "...Ryuta-gun, please visit Cheongsim-gwan anytime as well." We bowed our Heads to each other and parted ways. I watched Shimokawabe Airen's Back View for a while, then went Inside the House.</p>
+<p>I went to exercise to relieve Stress, but I came back even more stressed because of the advisor Work. Meeting Shimokawabe Airen was a big Harvest, though. If I have to do the advisor Work anyway, I should choose a club that's most advantageous to me. Like a club that my Goal, Minamoto Risa, is a member of. I searched through the data on St. Francisco Girls' Academy provided by the Taira Information Team. But there was something I hadn't expected. Minamoto Risa, the delinquent Student, wasn't in any club.</p>

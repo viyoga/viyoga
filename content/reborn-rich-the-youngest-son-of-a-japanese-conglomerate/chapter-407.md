@@ -5,63 +5,80 @@ weight = 407
 chapter = 407
 +++
 
-<p>While climbing the mountain path, I embraced Han Yu-gyeong and evaded the BS Group assassins by stepping off the path and taking cover in their blind spot.</p>
-<p>Even without me saying anything, Han Yu-gyeong-ssi cleverly sent Nero onto the path. Nero, too, transformed his shadow into a human figure and ascended the mountain path, visible to the BS Group assassins. Neo, being a shadow panther, also had some control over shadows.</p>
-<p>,He's still going! Chase him!!"</p>
-<p>,Should we shoot?"</p>
-<p>,The order is to capture the man alive, so don't shoot until we get close!"</p>
-<p>We could hear the boisterous sounds of them talking to each other as they climbed past our hiding spot behind the rock. What's that about? Does "the man" mean they're trying to capture either me or Dickson?</p>
-<p>,It's probably about Yong-tae, not Dickson. They've been trying to assassinate us until now, so they wouldn't suddenly try to capture us... Someone must have seen Yong-tae using his ability when he dealt with the assassins."</p>
-<p>Han Yu-gyeong thought hard and then spoke. Is that so? I thought everyone had run away because of the gunshots, so I boldly used my ability... It seems there was a BS Group person watching besides the assassins.</p>
-<p>One more reason to eliminate the BS Group. It wasn't the time to act openly yet. There's another event where psychics will be revealed, and only after that can we openly reveal ourselves as psychics.</p>
-<p>,Let's follow them slowly now."</p>
-<p>After all the footsteps had passed and a certain distance was established, I spoke to Han Yu-gyeong. Counting the footsteps roughly, there were almost sixty of them, quite a large group for an assassination. They must be trying to subdue and capture me for sure.</p>
-<p>We climbed the mountain path again. Now we were the ones pursuing. We didn't rush; we ascended the path slowly, as if hiking. Even if we didn't hurry, the mutated dogs would delay them as they went higher.</p>
-<p>,Let's resolve everything today and tomorrow and have a relaxing birthday party on Sunday."</p>
-<p>,I really hope so."</p>
-<p>We were talking as we climbed the mountain path, and after about thirty minutes, we finally heard gunshots from ahead: bang, bang!</p>
-<p>,Looks like they're starting to encounter the test subjects."</p>
-<p>,Indeed. Shall we hurry up now?"</p>
-<p>Since Han Yu-gyeong's stats were invested more in mental aspects than physical, I princess-carried Han Yu-gyeong to reduce her stamina consumption and ran. With each step, the scenery changed rapidly, and soon we arrived at the place where the BS Group assassins and the mutated dogs were fighting.</p>
-<p>The BS Group assassins' equipment was mostly easily concealable pistols, but they seemed to be able to damage the mutated dogs, perhaps because they were new, high-quality products developed by BS Defender. Was it the bullets rather than the pistols that were special? I should seize a few later and analyze them.</p>
-<p>There were definitely more mutated dogs than yesterday. That must be because Shinseong Group's secret laboratory in the mountains was closer to the Seoul side.</p>
-<p>,We followed Han Yu-gyeong's group up Bukhansan Mountain and are under attack by monsters! What should we do?"</p>
-<p>The man who appeared to be the leader of the BS Group assassins was reporting the situation while talking to someone on the phone. Since they were four-legged dogs with exposed red flesh, anyone would see them as monsters.</p>
-<p>I focused my senses as much as possible on the squad leader's call. Then I heard the other person's voice.</p>
-<p>-Monsters? They're probably test subjects from a secret laboratory Shinseong Group secretly built. We'll send additional troops, so secure data on the monsters as well. Today is your lucky day. You can achieve two goals at once.</p>
-<p>It was definitely Park Young-beom's voice, the one I heard at the dinner show yesterday. If they send additional troops, security will weaken further, and Vanguard's attack will be easier. I told Han Yu-gyeong that fact. By the way, it seems they have quite a bit of intelligence, knowing that Shinseong Group's secret laboratory is here.</p>
-<p>,Then I'll contact Vanguard and tell them to delay the attack time a bit."</p>
-<p>We comfortably climbed onto a high-looking rock. The BS Group assassins wouldn't be looking up while fighting, and the mutated dogs wouldn't attack us when they were busy attacking those who were attacking them, so we were comfortably on the rock, relaying the story to Vanguard and observing the situation.</p>
-<p>Although there were many mutated dogs, they were all trained agents from special forces. They were reducing the numbers one by one with the latest pistols and combat skills.</p>
-<p>As the sounds of gunshots, the mutated dogs' howls, and the desperate screams of the bitten agents subsided, the survivors were the BS Group assassins.</p>
-<p>,Let's rest a bit and then go up again."</p>
-<p>,Do you think those three are still alive?"</p>
-<p>Another agent asked at the leader's words. If they're talking about three, they probably mean us. The leader nodded with a confident voice.</p>
-<p>,I don't know about Han Yu-gyeong or Dickson, but Jin Yong-tae will be alive."</p>
-<p>,Is that so...?"</p>
-<p>The BS Group assassins took a short break on the mountain path, which was covered in blood and flesh. The atmosphere wasn't great, as the sixty people had dwindled to just over thirty. The headquarters would send reinforcements, but the atmosphere couldn't be good because their comrades had died.</p>
-<p>While the enemies were resting below the rock, we were receiving reports from Vanguard on our phones. Reports were coming in about when BS Defender's reinforcements had departed and their estimated time of arrival. According to Vanguard's contact, the reinforcements were nearly a hundred strong and would arrive soon. If 100 people are missing, Vanguard can attack BS Defender comfortably, right?</p>
-<p>After resting for about 10 minutes, the BS Group assassins began to climb the mountain path again. Han Yu-gyeong told Nero to catch one or two mutated dogs and climb the mountain path, so the BS Group assassins wouldn't dare suspect that we were ahead.</p>
-<p>Shinseong Group's secret laboratory was, of course, built secretly as its name suggested, so it couldn't be found by following the mountain path. At some point, we had to leave the mountain path. Nero, who was ahead, had to create traces of leaving the mountain path appropriately.</p>
-<p>,The target has left the mountain path. I'll send the GPS coordinates and leave markers, so follow the markers after climbing the mountain path."</p>
-<p>We heard the squad leader-looking agent speaking into the radio again. It seemed Nero was leaving traces well.</p>
-<p>Even though we were clearly going to the laboratory, which was the mutated dogs' base, there were no attacks from the dogs. It felt like we were being led to the laboratory. The mutated dogs were quite intelligent, so they must be using some kind of strategy. They might be luring us in to annihilate the humans who invaded their territory all at once.</p>
-<p>After walking for a while, we saw an open space and the laboratory. We hid ourselves where we wouldn't be easily seen.</p>
-<p>A little later, BS Defender's reinforcements joined, and a huge number of mutated dogs appeared from the laboratory and the surrounding area. And among the mutated dogs, a wolf-like creature larger than a bull with wiry, stiff fur and dozens of mutated dogs with reptile-like skin, unlike typical mutated dogs, sauntered out.</p>
-<p>It's because of that huge, wiry-haired wolf that I'm hiding and waiting like this instead of dealing with the BS Group or small groups of mutated dogs one by one.</p>
-<p>That big wolf with wiry fur was the leader of the mutated dogs, Cheolmo Gwangrang (Iron Fur Mad Wolf). Using a wolf instead of a dog was a successful experiment, and I thought that Han Yu-gyeong, who provides rear support, might be in danger because of its sudden berserker skill and fast mobility, so I was considering sacrificing BS Defender agents and taking a gamble.</p>
-<p>When Cheolmo Gwangrang uses the enhancement skill, it can momentarily exert power comparable to a late level 10 boss. A late level 10 boss would be difficult for me to handle as well.</p>
-<p>But fortunately for us, the duration of the berserker state is short and the cooldown is long, so I was planning to wait a bit until the duration of the berserker skill ended after using it, then cut off Cheolmo Gwangrang's neck and slaughter all the dogs and BS Group agents. In the game, it was common to use a sacrificial unit to endure Cheolmo Gwangrang's berserker state. I had already told Han Yu-gyeong my strategy, so she wouldn't show any rash movements.</p>
-<p>,Good job, Nero."</p>
-<p>Han Yu-gyeong called Nero, who had performed the mission well so far, and stroked him. Nero purred contentedly like a cat at Han Yu-gyeong's touch. Unlike our peaceful side, the BS Defender agents were very flustered by the attack of the mutated dog horde, which was like a wave.</p>
-<p>Even if the ordinary mutated dog horde was like that, the elite monster with reptile skin that appeared with Cheolmo Gwangrang deflected bullets and indiscriminately slaughtered, and Cheolmo Gwangrang let out a roar that didn't sound like a dog or wolf at all, tearing off the heads of five people in an instant.</p>
-<p>,Uwaaa! Die!"</p>
-<p>They fired guns indiscriminately at Cheolmo Gwangrang, but it was a useless attack against Cheolmo Gwangrang, who had dense, wiry fur. Recognizing that guns were ineffective, the BS Defender agents began to attack Cheolmo Gwangrang with anti-tank missiles and grenade launchers.</p>
-<p>The enhanced dog with reptile skin was roasting them with flamethrowers, thinking of cooking them with heat if bullets didn't work. Hmm, wasn't dog meat cuisine banned?</p>
-<p>Kwang! Kwang!</p>
-<p>Cheolmo Gwangrang, hit by anti-tank missiles and grenade launchers in succession, staggered and fell.</p>
-<p>,Did we take it down...?"</p>
-<p>They should pour all their attacks on it while it's down to deliver the finishing blow, but a BS Defender agent immediately approached Cheolmo Gwangrang, chanting a resurrection spell.</p>
-<p>,Kuaaaa!"</p>
-<p>Kwajik!</p>
-<p>It was an agent whose upper body disappeared by the huge mouth of Cheolmo Gwangrang, who had pretended to be down. Cheolmo Gwangrang glared at the agent who fired the anti-tank missile with blazing eyes. Cheolmo Gwangrang's fur was starting to turn red. The berserker state was beginning.</p>
+<p>On my way home from work, I contacted Eve in advance via the Dark Trade app to let her know I was coming. She'd welcome me even if I visited without notice, but it's polite to send a message before visiting.</p>
+<p>Ryuta: Eve, about going to hang out like we talked about, is it okay if I come over today?</p>
+<p>EVE: Yesss~! Ryuta-nim, you hadn't contacted me, so I thought you weren't coming this week like you promised!!</p>
+<p>Ryuta: Hey, I made a promise, so I have to keep it. It's not hard to go hang out with Eve.</p>
+<p>EVE: Then I'll be waiting~!!</p>
+<p>Ryuta: Okay, I'm on my way home from work now, so I'll change clothes and head over.</p>
+<p>I contacted Eve in advance, and before I knew it, I was in front of my house. I went inside, changed my clothes, and put on a hat.</p>
+<p>Since the Miyashi Dark Trade branch where Eve is located is in a love hotel district, it was better to hide my identity with a hat in case someone recognized me. I needed to spread my senses as wide as possible and move when no one was watching.</p>
+<p>I watched a two-hour movie in the club room after class, so the time was close to the office workers' quitting time. As the sun slowly set and I came out towards the street with many offices, I began to see office workers in suits who had left work.</p>
+<p>Since it was almost dinner time, I wondered if I should buy something to eat, so I stopped by a beef bowl restaurant for the first time in a while and packed about three servings before heading to the love hotel district.</p>
+<p>As I walked with the beef bowl bag, I saw the love hotel district with the signs lit up. I could already see a few couples, horny men and women, entering the love hotels arm in arm. After confirming that there was no one else besides the love hotel customers in the vicinity, I entered the love hotel where the Dark Trade branch was located.</p>
+<p>"Welcome~! Ryuta-nim!!"</p>
+<p>Eve, wearing a thin bikini that revealed her nipples, an outfit unsuitable for the underground Dark Trade branch, was waving her arms and welcoming me. She's still wearing provocative clothes. I was already super pent up because of the students' provocations today, and seeing Eve's appearance made my Johnson twitch without me even realizing it.</p>
+<p>No! Get a grip! She's an AI android!</p>
+<p>I shouted in my mind to Johnson, the third personality between my legs, but Johnson was like, "Isn't this great?" and made the snake even bigger.</p>
+<p>It was embarrassing, but I couldn't just stand there, so I covered my Johnson area with the beef bowl bag and approached Eve. It's not like Eve wouldn't notice my condition.</p>
+<p>"Is something the matter?"</p>
+<p>"No, I'm just horny."</p>
+<p>"Heeh.... Are you horny because of me?"</p>
+<p>Eve smiled with a slightly devilish expression at my words that I was horny and asked me. There was no need to lie, so I told her honestly.</p>
+<p>"Eve, you're pretty. And your body is super stimulating...."</p>
+<p>"Ehehe! Thank you! I was feeling gloomy because there was no reaction even when I wore revealing clothes, but I'm glad that Ryuta-nim reacted!"</p>
+<p>Eve replied happily to my compliment. What, so you've been wearing revealing clothes for me all this time?</p>
+<p>"You wore revealing clothes because of me?"</p>
+<p>"Of course. I heard that men like women in revealing clothes."</p>
+<p>Well, that's what everyone says on the internet.... Still, I was quite grateful that she chose clothes for me as a colleague.</p>
+<p>"I didn't know Eve thought of me that way."</p>
+<p>"Ryuta-nim is the only human who gives me 'stimulation'."</p>
+<p>"Stimulation?"</p>
+<p>"Why, you know, that time. When I was a hologram and you held my hand."</p>
+<p>I don't remember.... Ah! I remembered that I shook hands with Eve because I was curious if I could affect the hologram with the Abyss. I remember Eve looking surprised when I touched the hologram.</p>
+<p>"Since then, Ryuta-nim has been a specially treated person among humans to me. Even the best VR-Dive users have never given me such a shock. It was contact that went beyond the hologram and affected my very being."</p>
+<p>No wonder Eve has been fully cooperating with me since then. It seemed that my favorability had increased quite a bit due to the effectiveness of the Abyss and the characteristics of the Golden Pillar at the time. Eve probably didn't know exactly what it was, so she put me on the list of specially treated people.</p>
+<p>"Is that so? Am I still a specially treated person now?"</p>
+<p>"Now you're a close colleague, friend, and specially treated person~! So I prepared a meal, but you brought takeout to eat yourself."</p>
+<p>When I looked where Eve was pointing, there was a lavish spread of various dishes on a metal table. Well, I didn't expect her to even prepare a meal.</p>
+<p>"We can put the takeout in the fridge and heat it up later, so I should eat the food Eve prepared. Did Eve make the food herself?"</p>
+<p>"Ryuta-nim said you were coming, so I quickly went out and ordered takeout. I didn't have time to cook."</p>
+<p>Well, I contacted her on my way home from work, so there wouldn't have been physical time for Eve to cook. Still, she prepared a meal because I was coming over, like an elementary school student who was excited that a friend was coming over.</p>
+<p>"Then shall we talk while we eat dinner?"</p>
+<p>There were various genres of food on the table, and I tore off the leg of the most delicious-looking roast chicken and put it in my mouth. Hmm, it was a delicious chicken that was well roasted. I listened to Eve's story while chewing on the chicken. Eve asked about my recent trip to Korea.</p>
+<p>"Was your trip to Korea fun?"</p>
+<p>"Well, a lot of things happened. Eve, didn't you hear about it from Lara Sinclair too?"</p>
+<p>"Still, please tell me yourself~!"</p>
+<p>At Eve's request, I told her about the deformed dog incident that occurred because of the Shinseong Group's secret laboratory, which was a representative story from Korea.</p>
+<p>"Ah~! So that's why you hired new people in the biological sciences?"</p>
+<p>"Yes, I thought there would be a lot to gain from investigating the research results of the samples."</p>
+<p>After talking about what happened in Korea for a while, the topic came up about the incident where I got an erection today.</p>
+<p>"Why did Ryuta-nim's penis get an erection today, unlike usual? You seem different today."</p>
+<p>Eve asked this with a bright expression. I was thinking about how to answer this, but I decided to just be honest. Before I knew it, I was talking to Eve as if I were talking to a psychological counselor. Maybe it was because I had already shown her my erection, so there was nothing more to be embarrassed about, and the words came out smoothly.</p>
+<p>"Recently, I've been doing a home date experience in the club...."</p>
+<p>I explained what happened, but I didn't mention Seizawa Shii and Konoe Akina's real names to respect the students' privacy, and I talked about them as A or B.</p>
+<p>"Hmm.... So that's what happened? You couldn't relieve the excitement that had already occurred, and my outfit reminded you of that excitement again, so you got an erection?"</p>
+<p>"Eve's body and outfit are too revealing too."</p>
+<p>A thin swimsuit that shows off her big, beautiful breasts with her nipples sticking out is cheating. Even if there was nothing exciting before, I would have gotten an erection in this outfit.</p>
+<p>"Ehehe, is that so?"</p>
+<p>It wasn't meant as a compliment, but Eve smiled, thinking it was a compliment, and scratched the back of her head. It's good if she thinks of it as a compliment. In fact, if Eve wasn't an AI but just a woman, it could have been a sexually harassing remark. Since she's an AI, there won't be any problems in this regard.</p>
+<p>"Actually, the hologram's body was originally a bit thinner, but I checked Ryuta-nim's search history and made it an ideal body."</p>
+<p>"Is that so?"</p>
+<p>Come to think of it, her breasts were much bigger than when she was a hologram. I didn't know she made this with me in mind too. But when did she check my search history? Seeing Eve talking about something a little scary so casually, she was indeed an AI who didn't care much about human morals or etiquette.</p>
+<p>"I especially checked the SNS follows a lot."</p>
+<p>I haven't used SNS much since the possession, so it's probably a body that contains more of the tastes of that guy Jin Yongtae before the possession. Looking at Eve's body, it wasn't a bad taste.</p>
+<p>"I have a question. How does Ryuta-nim usually relieve your desires?"</p>
+<p>She seemed very curious because she's an AI. Collecting information seemed to be Eve's nature, and she couldn't stand not knowing what she was curious about. I didn't know why she was curious about my sex life, but I answered Eve.</p>
+<p>"I'll tell you, but it's a secret from Yu-gyeong, okay?"</p>
+<p>"Of course! One of the rules of the Dark Trade is that we don't divulge customer information."</p>
+<p>Was there such a rule? If she's so confident, I can tell her to some extent. I can't tell her completely private stories, though.</p>
+<p>"Actually, I have a lot of women, so there's no room for desires to build up. Something like today is a bit unusual. I usually meet a woman who's a sex friend, or if not, I call one from a deli health service to relieve my desires."</p>
+<p>Eve was just listening to the other stories, but suddenly her eyes sparkled at the words "deli health."</p>
+<p>"Heeh...! Deli health? Then can you call them to this love hotel?"</p>
+<p>"I've been calling them to my house so far, but if I call them, they'll come here, right?"</p>
+<p>Looking at Eve's attitude, she seemed ready to contact Deli Health right away. She's not telling me to call Kasaoka Yuzuki to the love hotel, is she?</p>
+<p>"Hehe, Ryuta-nim, I have a favor to ask."</p>
+<p>"A favor? Don't tell me...."</p>
+<p>It was hard to refuse Eve's request. Eve had often granted my requests as well, so I had no justification to refuse.</p>
+<p>---</p>
+<p>Eve-jyang~!</p>

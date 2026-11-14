@@ -5,70 +5,72 @@ weight = 416
 chapter = 416
 +++
 
-<p>After having sex with Kijimoto Jurie, I packed the Korean souvenirs I had prepared and headed to the building with the faculty office. Of course, the souvenirs were in a separately wrapped box containing banana milk, yakgwa (Korean honey cookies), and a mask pack.</p>
-<p>Since I took a vacation to go to Korea during the semester, I thought it would be good to give souvenirs to my fellow teachers to maintain my reputation.</p>
-<p>There was no need to give them to teachers from other grades I wasn't familiar with, so I went straight to the 3rd-grade faculty office and gave souvenirs directly to the teachers who were there, and left souvenirs on the desks of the teachers who weren't there. Of course, since the souvenirs were purchased for my reputation, I left a note saying "Yamashiro Ryuta Dream."</p>
-<p>"Chief Teacher-nim, this is a souvenir."</p>
-<p>"Ah.... Thank you."</p>
-<p>I also gave a souvenir to Kasaoka Yuzuki, the 3rd-grade chief teacher and mask delivery deli-health girl. She had a very frustrated expression, perhaps because she hadn't been able to have sex with me at all from around the picnic until today.</p>
-<p>But I was still under the setting that I hadn't noticed that Kasaoka Yuzuki was a delivery mask girl, so I just greeted her plainly and gave her the gift. As I turned to leave, I clapped my hands lightly as if I had remembered something and turned back.</p>
-<p>"Ah! This...."</p>
-<p>When I gave her another gift, Kasaoka Yuzuki tilted her head and looked at me. Kasaoka Yuzuki's expression was a mixture of doubt and anticipation.</p>
-<p>"This is a gift for Kasaoka Kouki-ssi."</p>
-<p>I gave it to Kasaoka Yuzuki, the wife, because I had a slightly awkward relationship with Kasaoka Kouki, a French teacher who was in a competitive relationship with me as a fellow second foreign language teacher.</p>
-<p>"Ah...! Yes, I'll pass it on."</p>
-<p>Kasaoka Yuzuki's expression darkens as if she's disappointed that it's nothing special. It seemed like she could be eaten very deliciously if she was aged a little more.</p>
-<p>This time, after really leaving the faculty office, I head to the Director's office. After all, Daigo Terue, the Director, was the one who allowed me to go to Korea this time, so I thought I should give Daigo Terue a souvenir as well.</p>
-<p>I needed to win Daigo Terue's favor if I wanted to move freely in the academy. And she's Oofuchi Erika's godmother, so she's also my student's parent. The biggest reason was that Daigo Terue was a woman who was good to hug.</p>
-<p>Knock knock.</p>
-<p>"This is Yamashiro Ryuta, the homeroom teacher of the special class."</p>
-<p>"Come in."</p>
-<p>I had called in advance, so there was no word to wait. When I opened the door and went inside, a voluptuous beauty who still looked a bit chilly was sitting there. Daigo Terue pointed to the chair opposite her and gestured for me to sit down.</p>
-<p>"Did you have a good trip to Korea?"</p>
-<p>"Yes. I learned a lot. This is a souvenir."</p>
-<p>The reason I said I learned a lot was because the excuse for my trip to Korea was a Korean language education seminar. Daigo Terue smiled slightly as she received the souvenir I handed her.</p>
-<p>"Thank you."</p>
-<p>"Director-nim, let's have a meal sometime."</p>
-<p>Unlike the infirmary of the special class in the corner where no one comes, this Director's office is a place where many people come and go for work, so I couldn't have sex inside the Director's office like Kijimoto Jurie, so I told Daigo Terue directly to have a meal sometime.</p>
-<p>"Wh, what...."</p>
-<p>Daigo Terue couldn't continue her words with a flustered expression at my sudden surprise attack(?). But she had a slight expectation, as if she couldn't forget that she had mixed bodies with me.</p>
-<p>"I also want to report on Oofuchi-yang's studies and talk as the homeroom teacher of the special class."</p>
-<p>"Ah, is that so...?"</p>
-<p>Daigo Terue seems relieved and disappointed at my words. I smile brightly, get up slightly, hold the desk with one hand, and stroke Daigo Terue's cheek with the other. I gently stroke from around Daigo Terue's ear to the end of her chin, and then I gently lift Daigo Terue's chin.</p>
-<p>And slowly my lips approach Daigo Terue's lips and make contact. I tickle her warm breath and neat teeth with my tongue and make her open her mouth.</p>
-<p>At first, Daigo Terue's tongue, which didn't react as if resisting, slowly began to move aggressively as if welcoming me. Daigo Terue's wriggling flesh of the tongue enters my mouth and exchanges saliva with each other.</p>
-<p>"Hng...! Hnhng...!"</p>
-<p>I hear Daigo Terue's excited nasal sounds and she hugs my neck and responds passionately.</p>
-<p>What stopped us was someone's knock. After all, it was impossible to perform a great deed in the Director's office. We looked at each other with hot eyes and parted our lips. A silver thread stretched out long and soon broke.</p>
-<p>"There's club activities today, so let's leave work together after club activities are over."</p>
-<p>Daigo Terue seems to think for a moment at my words and then nods. I smile again and leave the Director's office. In front of the Director's office, the school's management team leader was waiting with some kind of document file. Maybe.... His name was Asada Fukushi.</p>
-<p>"Hello, Management Team Leader-nim?"</p>
-<p>"Ah.... You're the new teacher-nari. Long time no see."</p>
-<p>We greeted each other and passed by. When I glanced at the documents, it was a document titled "Management Team Budget for this Month." Only the top item was visible, which was detergent. After all, the school was so large that the budget for detergent was considerable.</p>
-<p>I didn't really have anything to think about there, so I headed to my next destination. It was the student council building, which was next to the faculty office. It was to meet Taira Kanna, the student council president who is my younger aunt.</p>
-<p>I was also curious if the student council had any new information, and I bought so many souvenirs that I had quite a lot left over, so I was going to give all the remaining ones to the student council as gifts.</p>
-<p>Perhaps because it was during class, there were no disciplinary committee members guarding the entrance to the building today like last time. The disciplinary committee members are also students, so they must be in class. I put my faculty ID on the entrance scanner and opened the door. When I went up to the 3rd floor where the student council was located, two people were talking.</p>
-<p>One was Taira Kanna, the student council president and my aunt, and the other was a beautiful girl with braided ash-brown hair. She was standing next to the blackboard with a confident smile, so she had a pretty confident feeling.</p>
-<p>"Oh my, Yamashiro-sensei. What's going on?"</p>
-<p>"I came back from Korea and wanted to give you some souvenirs.... But who is this?"</p>
-<p>When I asked about the student I was meeting for the first time today, Taira Kanna smiled and introduced the girl to me.</p>
-<p>"This is Nakanoin Rina-ssi, the disciplinary committee chairman of our school. Nakanoin-ssi, this is Yamashiro Ryuta-nim, the homeroom teacher of the special class. We were close when we were young, so we are also friends."</p>
-<p>Ah, this girl Nakanoin Rina is the head of the disciplinary committee, which has considerable power over the discipline of all the students at St. Francisco Girls' Academy.</p>
-<p>As explained countless times before, St. Francisco Girls' Academy was a school attended by daughters of prestigious families. Except for some teachers who were recommended, there were many teachers who were not from prestigious families. Because of that invisible class difference, the students didn't listen well. So the importance of the disciplinary committee, which autonomously encouraged students to follow the rules, began to be highlighted.</p>
-<p>Therefore, the disciplinary committee, which was established not long after St. Francisco Girls' Academy was built, gradually increased its power, and the disciplinary committee chairman became the second in command after the student council president, surpassing the vice president.</p>
-<p>Unlike the student council president who is elected by vote, the disciplinary committee chairman is chosen by the student council president from among a few people recommended by the former disciplinary committee chairman.</p>
-<p>The principle is to choose someone who is good at martial arts, has a good eye, and does not abuse their power, but in most cases, the student council president chooses someone who is comfortable with them.</p>
-<p>The power of the disciplinary committee was great, and the disciplinary committee members patrolled not only the discipline within St. Francisco Girls' Academy but also Miyashi, where St. Francisco Girls' Academy was located, and uncovered students' deviations. They had tremendous power to control the lives of female students not only inside the school but also outside the school.</p>
-<p>"You're a special class teacher?"</p>
-<p>"Yeah, please take care of me. Here, this...."</p>
-<p>"Thank you, this isn't a bribe, is it?"</p>
-<p>"I just met you today, what kind of bribe is this? It's just a gift I prepared after briefly visiting Korea. I bought quite a lot, so I have a lot left over."</p>
-<p>I shook my head and answered Nakanoin Rina's question, but in fact, I gave the souvenir because I thought it would be easier in the future if I looked good to the disciplinary committee chairman. Of course, I handed over all the remaining items to Taira Kanna as I had thought from the moment I came to the student council building.</p>
-<p>"Let's give the remaining things to the student council...."</p>
-<p>"Thank you, Yamashiro-sensei."</p>
-<p>Taira Kanna received the boxes and opened one of them, and smiled when she saw the banana milk, yakgwa, and mask inside. Taira Kanna is the heiress of Japan's number one Tairaga family, so I didn't think she would like it very much, but she likes it quite a bit.</p>
-<p>"I'll eat well and use it well."</p>
-<p>Taira Kanna put a straw in the banana milk, took a sip, and then greeted me. When I looked to the side, Nakanoin Rina was also taking out banana milk and drinking it.</p>
-<p>-----</p>
-<p>Nakanoin Rina.</p>
-<p>The disciplinary committee chairman must be in the academy story, right? Hehe</p>
+<p>I came out of the reception room and watched Alik meditating in a formal posture for a moment before going outside. As I came outside, Shimokawabe Airen's last expression suddenly came to mind.</p>
+<p>Shimokawabe Airen had an expression that seemed to envy Alik, who would be experiencing actual combat in the future. Clearly, her last expression contained emotions like envy and slight jealousy.</p>
+<p>Certainly, as a martial arts hall's advisor, she wouldn't have many opportunities to experience actual combat... So, shouldn't I promise Shimokawabe Airen actual combat and recruit her?</p>
+<p>There's still a lot of the semester left, so I should subtly ask her about it later. If I can recruit Shimokawabe Airen, my power will increase tremendously, so it would be good to at least try.</p>
+<p>I stopped thinking about Shimokawabe Airen and picked up my phone. I hadn't received much support until now, but it seemed like I needed to ask the Tairaga Family for some help now.</p>
+<p>I called Gocho Kikuhito, the eighth secretary of Taira Danjo-halbae, who oversees St. Francis Girls' Academy. The phone rang exactly twice before Gocho Kikuhito answered.</p>
+<p>-This is Gocho Kikuhito, youngest master.</p>
+<p>"Yes. I have a request for an investigation. An assistant teacher came to our class today as a student teacher, so please investigate that person and their family."</p>
+<p>Gocho Kikuhito seemed a little flustered at my words. From Gocho Kikuhito's perspective, he should have informed me in advance that an assistant teacher would be assigned to the special class, but I was experiencing it directly and informing him, so he couldn't help but be flustered.</p>
+<p>-I, I'm sorry. We should have investigated in advance....</p>
+<p>"Now that things have come to this, focus on the investigation rather than apologizing. The academy director of St. Francis Girls' Academy and other factions sent the assistant teacher, so it could interfere with future events."</p>
+<p>-Understood. I will investigate the information as quickly as possible.</p>
+<p>I gave the rest of the explanation, listened to Gocho Kikuhito's answer, and ended the call. Even if I investigate Kurayamada Kirie, nothing might come out, but I still had to do a minimal investigation since there was a possibility that she would interfere with me in the future.</p>
+<p>###</p>
+<p>Sakagami Rena stopped investigating Yamashiro Ryuta and began investigating forces that had newly contacted the Yamashiro family or from August before the second semester began.</p>
+<p>Since Yamashiro Ryuta was a fictitious person anyway, there was no point in tracking his movements any further, and she wanted to find out which forces had paid the price to use the new name Yamashiro Ryuta.</p>
+<p>'Looking at the accounts, there's no money coming in... There's a high probability that they received it in kind as compensation. And....'</p>
+<p>There was no one particularly suspicious among the accounts or visitors. But there was one thing that caught her attention. The third son of the Yamashiro family, Yamashiro Atsuteru, had been accepted into the Tairaga Group. And now he was receiving new employee training at the Tairaga Group's Human Resources Development Institute.</p>
+<p>At first, she was going to just let it pass, but just in case, she checked Yamashiro Atsuteru's college grades and specifications, and they weren't good enough to work for the Tairaga Group. And even though the Yamashiro family was a prestigious family, they weren't at the level where they could put their child into the Tairaga Group.</p>
+<p>'In the end, it seems like the compensation was paid with employment at the Tairaga Group.'</p>
+<p>According to the investigation so far, Yamashiro Ryuta-sensei is a member of the Tairaga Family. Now the situation has become more complicated. Investigating the small, prestigious Yamashiro family in the countryside was not the same as investigating Japan's number one Tairaga Group.</p>
+<p>Finding the true identity of Yamashiro Ryuta among the numerous people in the Tairaga Group would be very difficult. Moreover, it didn't seem like the Tairaga Group would just stand by and watch the Sakagami family investigate them.</p>
+<p>"Haa... I thought I could do it easily, but it's getting more and more complicated. I wish the teacher's last name was Tairaga so I could easily find the data."</p>
+<p>Sakagami Rena muttered to herself and sighed. Without realizing it, she typed Taira Ryuta (平 竜太) into the Sakagami family's data search window instead of Yamashiro Ryuta.</p>
+<p>"Huh?"</p>
+<p>She just typed Taira Ryuta instead of Yamashiro Ryuta, but surprisingly, data about Taira Ryuta came up.</p>
+<p>When she clicked on Taira Ryuta, there was no photo and only one line of explanation was written. There were no photos and not much data, so it seemed like the Sakagami family didn't have much data on this person either.</p>
+<p>●Taira Ryuta (平 竜太): 20 years old, the illegitimate child of Taira Saburo, recently recognized by Taira Danjo. Currently working at the Human Resources Development Institute. Of Korean descent.</p>
+<p>"Could it be...."</p>
+<p>They could just be people with the same name. Besides, he was said to have recently joined the family, so would they entrust such a person with this kind of infiltration mission? Moreover, even though he was an illegitimate child, he was a direct descendant of the Tairaga Family.</p>
+<p>Sakagami Rena rationally thought that Yamashiro Ryuta was not the same person as Taira Ryuta, but they had the same name, and if he was of Korean descent, then there would be no problem with the Korean language he was teaching now, so she was quite confused because a few things matched up.</p>
+<p>'In the end, the only way to be sure of everything is to go to the Tairaga Group's Human Resources Development Institute.'</p>
+<p>Even if Taira Ryuta wasn't Yamashiro Ryuta, she could investigate Yamashiro Atsuteru, who was currently receiving new employee training at the Human Resources Development Institute, so she didn't think it would be a loss, and she boarded a privately prepared light aircraft.</p>
+<p>Looking down from the light aircraft, Sakagami Rena thought about a few scenarios. Why would the Tairaga Group dispatch someone to St. Francis Girls' Academy, and to the special class, not just a regular class?</p>
+<p>Sakagami Rena couldn't figure out exactly what benefit there was for sending a direct descendant of the Tairaga Family. She vaguely thought it was because of Minamoto Risa, but Sakagami Rena, who had little experience, could never know that Taira Danjo had sent Taira Ryuta to defile Minamoto Risa.</p>
+<p>Numerous thoughts flashed through her mind, and before she knew it, Sakagami Rena had arrived in Chiba, where the Human Resources Development Institute was located. Sakagami Rena got off the light aircraft, found accommodation near the Human Resources Development Institute, and decided to rest first.</p>
+<p>Sakagami Rena was very tired because she had hardly slept and had come all the way to the Yamashiro family to investigate without resting. Sakagami Rena, who had received ninja training, could still move.</p>
+<p>But since there was still time during the weekend, she thought she could just sleep now and resume the investigation again after waking up, so Sakagami Rena jumped straight into bed.</p>
+<p>###</p>
+<p>Sakagami Rena quickly opened her eyes. It felt like she hadn't slept for even a minute, but it was already morning. She woke up because of the sunlight shining through the window. She opened the door of her hotel room to take a walk, and before she knew it, she was in the elevator.</p>
+<p>'Am I still not fully awake?'</p>
+<p>Sakagami Rena pressed the first floor of the elevator with a dazed feeling. Soon, the elevator doors opened and when she got off, she saw the Human Resources Development Institute building instead of the hotel lobby. The moment she saw the sign for the Tairaga Group Human Resources Development Institute in front of her, she got goosebumps all over her body.</p>
+<p>'It's an illusion...! And a very powerful one.'</p>
+<p>Sakagami Rena, who had received ninja training, could tell that her current situation was not normal. She could tell that she was under an illusion by a prominent illusionist that she couldn't even guess. As she came to her senses, the elevator had disappeared and she was at the entrance of the Human Resources Development Institute.</p>
+<p>Kkiiiiiik....</p>
+<p>The main gate of the Human Resources Development Institute opened with a chilling metallic sound. It was as if it was telling her to come in. Sakagami Rena hesitated, but she couldn't go anywhere else. This was because the area outside the Human Resources Development Institute was a pitch-black space with not a single ray of light. Sakagami Rena had a near-certain premonition that it would not be good to go into this pitch-black space, so she had no choice but to enter the Human Resources Development Institute through the open gate.</p>
+<p>Tsu tsu tsu tsu....</p>
+<p>As soon as she entered the Human Resources Development Institute, the entrance she had just entered was now dyed black. As if enveloped in black mist, the space itself, which was the entrance to the Human Resources Development Institute, disappeared.</p>
+<p>It was a very terrifying scene, but at the same time, it didn't feel foreign at all. Sakagami Rena couldn't believe the senses she was feeling now, that the surroundings were full of black space but it didn't feel foreign. Sakagami Rena had no choice but to continue moving forward.</p>
+<p>It was as if she was being told to follow, and she saw streetlights sparsely lined up along the road, and Sakagami Rena walked along that road.</p>
+<p>After walking for a long time, not even realizing whether this was the Tairaga Group Human Resources Development Institute or just a park somewhere, Sakagami Rena saw a woman standing with a huge clock tower behind her.</p>
+<p>Not human...! Sakagami Rena swallowed. The woman had horns on her head. Her hair was pink and her eyes were glowing red. And.... She was very beautiful. She was a woman who didn't feel human at all.</p>
+<p>"What brings you to the Human Resources Development Institute?"</p>
+<p>The pink-haired woman with horns also had a beautiful voice. Sakagami Rena opened her mouth to the question that didn't feel malicious at all.</p>
+<p>"Is this the Tairaga Group Human Resources Development Institute?"</p>
+<p>"If you came through the entrance of the Human Resources Development Institute, then it must be the Human Resources Development Institute. Can you tell me the reason now?"</p>
+<p>Another question. Sakagami Rena realized that she could never deceive the pink-haired woman who was looking at her with red eyes. She was an absolute being in this space. Sakagami Rena knew that the woman in front of her would immediately know if she was lying.</p>
+<p>"I'm investigating to find someone to serve as my lord."</p>
+<p>"A lord? I see.... So that's why. As a souvenir for coming all the way from afar, I'll answer for that lord instead. Ask me."</p>
+<p>At Sakagami Rena's words, the pink-haired woman's eyes softened. At the pink-haired woman's words that she would answer instead, Sakagami Rena asked as if she was possessed whether Yamashiro Ryuta and Taira Ryuta were the same person.</p>
+<p>"Yes. They are the same person. Are you satisfied?"</p>
+<p>"Yes."</p>
+<p>As Sakagami Rena nodded, the pink-haired woman plucked a rose that had grown next to her. And she handed it to Sakagami Rena. Sakagami Rena accepted the rose without refusing. It was a pink rose.</p>
+<p>"This is a gift. Now wake up. You can hear the rest directly from that child."</p>
+<p>The moment the pink-haired woman told her to wake up, Sakagami Rena opened her eyes. When she opened her eyes, the Human Resources Development Institute was gone and she was on the hotel bed where she had fallen asleep.</p>
+<p>"Was it a dream?"</p>
+<p>Such a vivid dream... she thought for a moment before her hand stung. When she looked at her hand, Sakagami Rena was holding a rose and was bleeding from being pricked by a rose thorn.</p>
+<p>"...So it wasn't a dream after all."</p>
+<p>Sakagami Rena muttered as she looked at the pink rose stained red with drops of blood.</p>

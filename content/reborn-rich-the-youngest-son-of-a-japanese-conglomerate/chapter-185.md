@@ -5,87 +5,90 @@ weight = 185
 chapter = 185
 +++
 
-<p>Ha Ju-yoon-ssi must have worked out quite a bit to manage her figure, because her stamina was considerable. Even after several climaxes, she quickly recovered and pounced on me. It was as if all the pent-up sexual desire had exploded, and I had to come three more times to satisfy her.</p>
-<p>"Heuung.... Actually, I wasn't drunk earlier?"</p>
-<p>"At the eel restaurant?"</p>
-<p>I smiled and asked back at Ha Ju-yoon's words. It was getting late, so I was putting on my clothes, leaving Ha Ju-yoon-ssi, who was lying naked on the bed. Ha Ju-yoon-ssi, with a languid expression from the orgasm, smiled and spoke to me.</p>
-<p>"Yeah, actually, my alcohol tolerance is five bottles."</p>
-<p>"Wow, I really thought you were drunk, your acting is amazing, Nuna?"</p>
-<p>"Hehet, I'm this good~."</p>
-<p>To be honest, I was a little suspicious because she wasn't staggering when she walked, but her actions themselves were those of a drunk person. Amazing? An actress is an actress, I guess. Ha Ju-yoon-ssi, who was very pleased with my compliment on her acting, was quite cute.</p>
-<p>"I won't be able to see you anymore? Because there's no reason to meet like a stand-in for acting today...."</p>
-<p>Ha Ju-yoon-ssi seemed very disappointed. I came to Korea to meet Han Yu-gyeong, so it would be strange to keep meeting her mother, Ha Ju-yoon-ssi.</p>
-<p>"It takes an hour to get to Japan. You can come if you want to see me."</p>
-<p>"Really? Then will you meet me if I go to Japan?"</p>
-<p>"Of course."</p>
-<p>Ha Ju-yoon-ssi, who was happy like a child at my words that I would meet her. I'm not the kind of person who stops a woman from coming to see me, so I could meet her anytime. Besides, if it's a charming woman like Ha Ju-yoon-ssi, she's welcome anytime.</p>
-<p>"I'll go now."</p>
-<p>I kissed Ha Ju-yoon-ssi on the forehead and left her house. I immediately caught a taxi and went to Han Yu-gyeong's house. Ha Ju-yoon's house and Han Yu-gyeong's house were quite far apart, so it took some time. I didn't get off right in front of Han Yu-gyeong's house, but I got off in the university district of Korea University.</p>
-<p>I had passionate sex with Ha Ju-yoon-ssi several times, so I was a little hungry, so I was thinking of getting takeout. Before entering the restaurant, I sent a KakaoTalk message to Han Yu-gyeong.</p>
-<p>Jin Yong-tae: I'm a little hungry, so I'm going to come out and get some takeout, is there anything you want to eat?</p>
-<p>Normally, Han Yu-gyeong would reply within 30 seconds, but she must be busy with negotiations, so she didn't reply right away. Or maybe it's taking her a little longer to think about what she wants to eat.</p>
-<p>Han Yu-gyeong: I want to eat spicy pork feet. With beer! I want to eat something spicy because I'm stressed ㅠㅠ</p>
-<p>Jin Yong-tae: I'll buy it and wait. Let's eat together😘</p>
-<p>Han Yu-gyeong: Okay okay! 😍 It looks like it'll be over soon today. But I think they're going to keep bothering us. They said the stolen items are about 20 billion won worth of data, and they want us to compensate 150 percent as stated in the contract? 30 billion won isn't just some dog's name....</p>
-<p>Jin Yong-tae: Let's talk about that when we meet. I'll wait until you come.</p>
-<p>Han Yu-gyeong: Okay~! I'll KakaoTalk you when I leave after I'm done😍</p>
-<p>I packed a large portion of spicy pork feet from the pork feet restaurant and also packed a chicken from a nearby chicken restaurant. I was going to eat the chicken while waiting for Han Yu-gyeong. I'm hungry now, and if I wait for Han Yu-gyeong, who I don't know when she'll be done, I'll have to hold my rumbling stomach, so I'll soothe it a little with a chicken.</p>
-<p>"Ah, right! She said she wanted to drink beer too?"</p>
-<p>I stopped by a convenience store and bought beer and ice cream. Ah, now that I think about it, I should have eaten the Häagen-Dazs at Ha Ju-yoon's house. I remembered giving offerings to the Daughter of the Abyss for the first time at the convenience store in this neighborhood, so I bought quite a lot, even for the Daughter of the Abyss. I went back to Han Yu-gyeong's house with a slightly heavy bag.</p>
-<p>I put the ice cream and beer, except for the offerings, in the refrigerator as they were, created a magic circle, and sent the ice cream and desserts to the Daughter of the Abyss. What came back with the offering was a piece of paper with a short message written on it.</p>
-<p>I will continue to accumulate merits. I miss the eternal time with you.</p>
-<p>Until now, she gave rewards right away when I gave offerings, but it seemed like she was accumulating merit points to give a bigger reward. Ooh, I was wondering what she would give as a reward later. She'll definitely give something pretty good, right?</p>
-<p>I put the note in my pocket and opened the chicken box. Mmm~! The smell of chicken was always good.</p>
-<p>And I turned on the big TV in the living room and connected it to my smartphone to turn on MiTube. There was a video uploaded on the sports information channel I subscribed to, and it was a breaking news about Kazuhiro.</p>
-<p>Breaking News! Kazuhiro Smith transfers to FC Los Angeles! Does he choose the US national team instead of the troubled Japanese national team?</p>
-<p>Ah, he finally decided to go to FCLA in the city where Kiyohira lives after thinking about it. Fujigasaki Rinka said she was in LA too, so I could meet them all at once when I go to the US later. The public sentiment in the comments that Kazuhiro might choose the US national team was half and half, but since he's American anyway and can't be selected for the current Japanese national team, the public opinion was evenly divided between those who said it's better to go to the US and those who cursed him as a traitor.</p>
-<p>But when I thought about it, I got a little angry. Why do I have to see my friend's news on MiTube? I got angry and turned on Line. Aha, Kazuhiro had already sent a Line message earlier. While I was having sex with Ha Ju-yoon-ssi, Kazuhiro's Line message came to the group chat room where Kiyohira and I were.</p>
-<p>Kazuhiro: I decided to go to LA!</p>
-<p>Kiyohira: Oh! As expected! LA is the best! The weather is nice too.</p>
-<p>Kazuhiro: Hyung-nim isn't reading it, so he must be having sex....</p>
-<p>Kiyohira: He's really a slut. I think he needs to go to a mental hospital for sex addiction.</p>
-<p>There wasn't much talk about the transfer, and there was only a lot of useless talk about me being a slut. Are they really crazy? I got annoyed and quickly tapped the keyboard on my smartphone.</p>
-<p>Taira Ryuta: Are you guys crazy? How can you make a normal person a slut?</p>
-<p>Kazuhiro: Hyung-nim, so what have you been doing all this time?</p>
-<p>Taira Ryuta: .... Had sex.</p>
-<p>Kiyohira: 🤣 As expected, a slut WWWWWWWWW</p>
-<p>Kazuhiro: Anyway, come to LA when you come to the US later. Kiyohira will buy you something delicious.</p>
-<p>Kiyohira: Why are you talking like you're doing me a favor when I'm the one buying?</p>
-<p>The two started bickering again about who would treat in LA. I ignored the Line where the two abnormal sex maniacs were arguing and turned on another YouTube channel. I turned on a video that I could watch while eating, something that I could laugh at lightly, and ate the chicken.</p>
-<p>"I'm home."</p>
-<p>Han Yu-gyeong came back when I had finished eating the chicken and watched about half of a movie on Ratflix. I got up and opened my arms, saying, "You worked hard," and Han Yu-gyeong ran to me and hugged me.</p>
-<p>"Heuung.... I'm tired."</p>
-<p>"Let's have a beer while eating spicy pork feet. And talk about work."</p>
-<p>"Let's do that, I'll change my clothes for a bit...."</p>
-<p>"No, don't change your clothes."</p>
-<p>I stopped Han Yu-gyeong, who was about to change her clothes first. It was because Han Yu-gyeong's career woman outfit was quite sexy, and I wanted to do it while she was wearing this outfit. Han Yu-gyeong, who didn't think about the reason at all, tilted her head and looked at me.</p>
-<p>"Huh? Why can't I change?"</p>
-<p>".... You look so sexy in that outfit."</p>
-<p>"Oh my♥ Was I that sexy?"</p>
-<p>Han Yu-gyeong giggled, kissed me on the cheek, and sat down on the dining table chair. Han Yu-gyeong sat down and immediately headed towards the refrigerator.</p>
-<p>"I need to take a sip of beer first."</p>
-<p>Han Yu-gyeong took out a beer from the refrigerator, gulping it down as if she was thirsty, and made a "Kheu~! " sound before sitting back down. I unpacked the spicy pork feet in the meantime.</p>
-<p>"Cheers~!"</p>
-<p>Han Yu-gyeong took out a beer for me too, so we toasted each other and drank the beer. After eating spicy pork feet and beer for a while, Han Yu-gyeong started talking about work.</p>
-<p>"Clearly, the contract stated that we would not be in charge of Area A, which is an important area, for security reasons, right? They said we shouldn't see the data in Area A. But the thief clearly passed through Area A to steal. But they're saying that it was our fault and trying to blame us. It's annoying."</p>
-<p>No matter how intelligent Han Yu-gyeong is, it was difficult to deal with them if they came out like that. Even though it was clearly the other party's fault, they said, "No, it's your fault." If they said that, there was no way to respond with logic, so it was understandable that Han Yu-gyeong was annoyed.</p>
-<p>"The problem is that you're too smart and nice, so you only respond in a textbook way. If it goes to negotiation or trial, Vanguard will end up being the one who gets hurt."</p>
-<p>"Then? Should I use unconventional methods?"</p>
-<p>"That's right. If words don't work...."</p>
-<p>"I'll have to use force."</p>
-<p>Han Yu-gyeong completed the sentence by taking my words. It seemed like she had completely grasped my intentions. Since it was true that a thief broke into Base Technology, which Han Yu-gyeong's Vanguard was in charge of guarding, their reputation would drop if they dragged out the negotiations.</p>
-<p>Due to the nature of security companies that protect lives, a drop in reputation was fatal, so it was better to resolve this matter as quickly as possible.</p>
-<p>"Actually, there's BS Group behind Base Technology. This time, they're trying to mess with you on purpose."</p>
-<p>"BS? Could it be.... Is it because of Park Sang-beom?"</p>
-<p>Park Sang-beom was one of the grandsons of BS Group, whom I had seen during my last trip to Korea, and was Han Yu-gyeong's Sunbae at Korea University. I remember that he kept hitting on Han Yu-gyeong, so I warned him not to mess around unless he wanted his spine to be folded in half by folding a coin.</p>
-<p>"The 'maybe' is actually true."</p>
-<p>"Ah, really...! I hate him so much."</p>
-<p>Han Yu-gyeong rarely made a contemptuous expression. According to the story, he kept hitting on her even though I came to Korea last time and certified her as my girlfriend.</p>
-<p>Hmm.... Should I kill him? I unintentionally felt murderous because he kept hitting on Han Yu-gyeong. Originally, he was a guy who should be killed by Han Yu-gyeong, but I was worried about what ripple effects there would be if I killed him.</p>
-<p>"Hoo...."</p>
-<p>Yeah, it's right for Han Yu-gyeong to kill him as the game dictates since he annoyed her. However, I should put some effort into targeting BS Group while I'm in Korea. So that Park Sang-beom can fall into hell quickly.</p>
-<p>Before that, I have to figure out what to do with Base Technology first. I started giving Han Yu-gyeong information about the attack on Base Technology.</p>
-<p>-----</p>
-<p>Mother and daughter illustration requested by Munyeom-nim!</p>
-<p>They're a good mother and daughter~!</p>
-<p>Other requested illustrations will be uploaded in tonight's continuous updates~!</p>
+<p>I, in a hurry, turned on the dark web app. I needed transportation to Akita as quickly as possible. I had to ask Eve, even if it cost me 10,000 points. I quickly pressed the conversation button with Eve on the dark web app. As soon as I pressed the conversation button, Eve's message popped up.</p>
+<p>EVE: Hello, Ryuta-nim! Do you need my help?</p>
+<p>Ryuta: Is there any transportation available to get from Kraskino to Akita Prefecture as quickly as possible? There are 7 people in the group.</p>
+<p>EVE: Just a moment.... There is a dark web member with a light aircraft north of Kraskino. Since there are two light aircraft, you should be able to go to Akita Prefecture.</p>
+<p>Ryuta: Ah, then please make a reservation with them and mark it on the navigation app?</p>
+<p>EVE: Yes~! Then is that all for the information you need?</p>
+<p>Ryuta: Can I get information on the current situation of the fight between Taira Foods and Kurotsukido in Akita Prefecture?</p>
+<p>EVE: I'm sorry, but I can't provide that information due to dark web policy.</p>
+<p>That's right. Even in the later stages of the game, they wouldn't give me this kind of information, so I didn't use this feature much. Still, it was fortunate that I was able to find transportation.</p>
+<p>Ryuta: Then I don't need any new information right now.</p>
+<p>EVE: Okay~! The information fee is 10,000 points! As a service, I've contacted the light aircraft owners, so they'll be getting ready. You'll be able to leave as soon as you get there.</p>
+<p>Oh, I got the information for the basic fee. That's a relief.</p>
+<p>Ryuta: Thank you. I'll be going now.</p>
+<p>EVE: Okay~! I will end the chat!</p>
+<p>I turned off the dark web app, finished eating the porridge, and opened my mouth to the children who were looking at me. I must have been touching my phone with such a serious expression that they were watching to see what was going on.</p>
+<p>"A friend of mine is in danger, so I think I need to go quickly. I wanted to let you rest today, but I'm sorry."</p>
+<p>"No. We don't have good memories of this city anyway, so we wanted to leave quickly."</p>
+<p>"We're scared because we don't know when the slave traders will catch us again, so I think it's better to leave."</p>
+<p>In response to my apology, they all said it was okay and that it would be better to leave this city. I guess they wouldn't have any good memories in this city. I picked up the suitcase that I hadn't unpacked yet and left the room with the children. Looking at what was marked on the navigation app, the location was an empty lot about 20 minutes away on foot.</p>
+<p>"It's okay to walk a little, right?"</p>
+<p>"Yes."</p>
+<p>I led the newly acquired psychic boys and girls out of Kraskino and walked. As I diligently walked along the navigation, I saw an empty lot with a fence. At the entrance, a Russian and a Korean were standing.</p>
+<p>"Ah, hello, you are the guest who made the reservation, right?"</p>
+<p>"Yes."</p>
+<p>I and my party were guided into the fence. The Korean and Russian seemed to be partners. The Korean told me to call him Mr. Choi, and the Russian's name was Nikolai.</p>
+<p>"If you go to Akita Prefecture Airport....it's 4,000 points per person, so that's 28,000 points, and you have to apply for departure separately, so if there are 7 people, it's 500 points per person...."</p>
+<p>"Only I need to apply for departure."</p>
+<p>"Ah! The others...."</p>
+<p>As expected of the dark web, he nodded as if he knew that I was trying to smuggle them in. He nodded, tapped on the calculator, showed it to me, and opened his mouth.</p>
+<p>"Then you just need to give me a total of 32,000 points."</p>
+<p>It wasn't cheap, but I could take a plane right away without a reservation, and there were services like departure declaration and even smuggling, so I could give this much for a total service. Besides, it was an urgent situation, so I couldn't afford to be picky.</p>
+<p>"Okay, please sign this document only if you are applying for departure."</p>
+<p>I signed a few documents and boarded the plane. Perhaps because of weight distribution, three men rode in one plane, and three women and I rode in one plane. The pilots of each plane were the Russian partner and the Korean Mr. Choi.</p>
+<p>"The distance is almost twice the distance from Seoul to Jeju, so it will probably take about an hour."</p>
+<p>Before the plane took off, Mr. Choi, the pilot in charge of our light aircraft, told us the time and started the plane. As soon as the plane took off, I sent a Line message to Mimata Chieri.</p>
+<p>Taira Ryuta: I'm on a light aircraft now. I heard I'll arrive in about an hour.</p>
+<p>Cherry-chan★: Yes. Please come safely, junior. I'll send a car to meet you on time. I don't think I can go because I'm in the middle of a battle.</p>
+<p>Seeing the reply with a few typos as if she was in the middle of a battle, I put my smartphone in my pocket. I shouldn't keep sending Line messages, or Mimata Chieri might get hurt, so I should contact her after I arrive. I asked Konoe Akina, who was looking at me, what I was curious about.</p>
+<p>"By the way, Konoe-ssi, how did you get caught by the slave traders?"</p>
+<p>"That's.... Last summer vacation, I came to Russia for a trip, and a handkerchief was covered over my nose from behind, and I lost consciousness. And when I woke up, I was caught by the slave traders, but I kept activating my ability to prevent myself from being sold. And after that, a year passed."</p>
+<p>It seemed that even a user of the Evil Eye could be neutralized if they were knocked out with a sleeping pill on a handkerchief. She was kidnapped during her third year of high school summer vacation, so it's a bit unfortunate that she has to attend the second semester of her senior year at the age of twenty.</p>
+<p>I was thinking of letting the rest of the kids abandon school and roll them in places that suit their aptitude. Most of them will probably have to go to Seryutai. Or, I should create a new research institute just for Jung Da-rim and have her grow precious medicinal herbs.</p>
+<p>"How long was Alexandra captured by the slave traders?"</p>
+<p>In response to my question, Alexandra Smirnova folded her fingers and calculated, then opened her mouth.</p>
+<p>"I was caught by bad ajosshi and slept nine hundred.... twenty nights."</p>
+<p>Nine hundred and twenty nights, it seemed to be about three years. She was captured for a very long time. According to the setting, she would have been sold and returned in the middle, but still.</p>
+<p>"Did Alexandra's parents sell her too?"</p>
+<p>"Papa and Mama went to heaven during the war. Alik was caught by bad ajosshi while stealing food to survive."</p>
+<p>Ah, I see. That's why she didn't raise her hand when I asked if she had a place to go. By the way, is Alik a nickname for Alexandra? I continued to speak to Jung Da-rim, who was sitting in the light aircraft seat with a relaxed expression, following Alexandra.</p>
+<p>"How did Da-rim end up with the slave traders?"</p>
+<p>"Hmm? Just.... We were a farm family in the countryside, but my mom passed away and my dad became an alcoholic. I was farming alone, and my dad called me, and there were gangsters. I was caught by those people and came all the way here."</p>
+<p>I guess this family was also sold by their parents. Anyone who is constantly captured by slave traders will have a bad personality, but seeing her still making a relaxed expression, it seemed that her relaxed personality was innate.</p>
+<p>"But oppa, can you give me the seeds in your bag?"</p>
+<p>Suddenly, Jung Da-rim pointed to my carrier and said. Ah, could it be.... Is she talking about the jujube and seeds? I put my hand in the carrier and took out the jujube and seeds in a disposable plastic bag.</p>
+<p>"Are you talking about this?"</p>
+<p>"Yes."</p>
+<p>"How did you know it was in the carrier?"</p>
+<p>"Um, the seeds said they were stuffy and asked me to take them out...."</p>
+<p>Hmm.... It seemed that she heard the seeds talking because of that trait called plant communication. I handed the seeds to Jung Da-rim.</p>
+<p>"They are the seeds of a very precious fruit."</p>
+<p>"It said it was stuffy."</p>
+<p>Jung Da-rim didn't listen to me and tore open the plastic bag and put the seeds on her palm. Smirnova Alexandra and Konoe Akina looked at the seeds with curiosity, but they didn't feel any difference from other seeds and stopped paying attention to the seeds.</p>
+<p>Jung Da-rim looked at the seeds and said, "Uh-huh~. Is that so? It's okay now," and talked to the seeds. Because she's doing that, she looks like she's talking to a ghost. If someone didn't know Jung Da-rim's characteristics, it would be very scary. Just by looking at her, she looks like a crazy woman or someone possessed by a ghost.</p>
+<p>It's been about 50 minutes now, so I should talk about what to do after getting off. I looked at Konoe, the oldest, and opened my mouth.</p>
+<p>"I have to go help my friends after I arrive, so you guys wait at the hotel. Should I get Konoe-ssi a phone or something? Do you want to contact your parents?"</p>
+<p>Konoe Akina shook her head at my words.</p>
+<p>"The place we're going now is dangerous, right? I can't let my parents come to a dangerous place. I'll wait until Eunin returns, comforting the children. I'm the oldest, after all."</p>
+<p>Hmm, it's reassuring to hear the owner of the Evil Eye say that. But Smirnova Alexandra, who had come close, grabbed my sleeve and opened her mouth.</p>
+<p>Alik wants to follow. Alik can help fight with zzi릿zzi릿.</p>
+<p>Seeing that she said she would help with her electric ability, she seemed quite confident, but it would be a big disaster if I hastily took Alexandra, whose ability was not yet ripe, and she died. I looked at Alexandra and smiled, stroking her head.</p>
+<p>"Thank you, but you need to have basic training to fight. How about helping me after you train next time?"</p>
+<p>"Uung....."</p>
+<p>Alexandra made a pleasant expression, as if she was melting away when you stroked a hamster. Seeing that, Konoe Akina puffed out her cheeks as if she was upset.</p>
+<p>"Please stroke me too! I have to comfort the children as the oldest, so someone has to comfort me! Eunin, please do it."</p>
+<p>With an absurd logic, I ended up stroking Alexandra Smirnova with one hand and Konoe Akina with the other. I wondered if Jung Da-rim would want it too, so I looked at her, but Jung Da-rim was still busy looking at the jujube and seeds and talking to them.</p>
+<p>"Okay, we'll be landing soon, so please get ready to get off."</p>
+<p>I heard Mr. Choi's words and felt the altitude getting lower and lower. I was stroking them both until we landed completely. Jung Da-rim, who had taken her eyes off the jujube and seeds, looked at me and the two being stroked and opened her mouth.</p>
+<p>"Maybe.... a pervert?"</p>
+<p>"What are you talking about? Everyone, get ready to get off!"</p>
+<p>At the same time as my shout, the door opened, and our party got off the plane. Looking to the side, the boys were getting off the light aircraft driven by the Russian. I gestured for the boys to come this way.</p>
+<p>----------------------</p>
+<p>Konoe Akina</p>
+<p>Akina, who is 20 years old but a high school student, is so cute.</p>
+<p>Kimono shot because she is the daughter of a prestigious family.</p>
+<p>----</p>
+<p>Alexandra</p>
+<p>Cute maid Alik.</p>

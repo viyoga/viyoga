@@ -5,73 +5,85 @@ weight = 392
 chapter = 392
 +++
 
-<p>After playing in the water with the female students, it was lunchtime before I knew it. There was no need to go all the way to the villa; the staff brought us a menu, and we could order and have it delivered to the beach where we were gathered.</p>
-<p>We were all sitting in a corner of a building that looked like a beach house, pondering the menu. From the outside, it seemed like a simple wooden structure, but the inside had that upscale Minamoto flair. The luxurious interior and the powerful air conditioning made it very comfortable.</p>
-<p>,Since it feels like a beach house, I'll order two servings each of yakisoba and grilled corn."</p>
-<p>I told Shido Tsubaki, who was walking around taking orders, the menu I had in mind. Since I was in a building that felt like a beach house, I decided to choose a menu that was mainly sold at beach houses. The menu even had yakisoba and grilled corn, as if they were aiming for that.</p>
-<p>,I understand. I knew you ate a lot, Sensei, but isn't two servings of yakisoba and two servings of grilled corn a total of four servings?"</p>
-<p>,Look at this body. I need to eat at least four servings to maintain it. I burned a lot of calories swimming all morning."</p>
-<p>I said to Shido Tsubaki while doing a side chest, a bodybuilding pose, while sitting down. Shido Tsubaki lifted her glasses with her finger, looked at my body, nodded, and opened her mouth as if to agree.</p>
-<p>,You certainly need a lot of food to maintain Sensei's body."</p>
-<p>The reaction was too calm, making me feel awkward... I shouted to Shido Tsubaki, who was going to listen to the other students' menus, to make the dessert shaved ice! Seizawa Shii, who was listening to the conversation at a nearby table, spoke to me. Seizawa Shii was wearing a white frilly bikini. Her casual clothes were also a frilly dress, so is she unifying the theme with frills?</p>
-<p>,Yakisoba and grilled corn? That's modest, Ryuta-chi?"</p>
-<p>,It's a beach house vibe. So I tried to pick a beach house menu."</p>
-<p>,Hee... I've never been to a beach house before~!"</p>
-<p>Well... Most of them here are daughters of prestigious families, so they probably haven't been to a beach house that sells cheap food.</p>
-<p>Only Urabe Konoka, who is not from a prestigious family as an adopted daughter of the Urabe family, or Oofuchi Erika, who is only from a prestigious family in name, would have experience with beach houses. Of course, Alik is also an adopted daughter of a prestigious family who was not originally from a prestigious family, but let's skip over Alik because Alik is Russian.</p>
-<p>,Tell me about beach houses, Ryuta-chi."</p>
-<p>,There's nothing special. There aren't many stores around the beach, so the perception is that they're expensive and tasteless. Sometimes, there's an event where guys trying to pick up girls flirt with the female employees..."</p>
-<p>Taira Ryuta didn't have much experience with beach houses (he only remembered buying yakisoba about twice.), so I told them a story about beach houses that I had seen somewhere.</p>
-<p>,Oh, really? There are no female employees or guys trying to pick them up here, so it'll be hard to see such interesting situations."</p>
-<p>,If it were a real beach house, wouldn't you be the one getting hit on rather than the female employees? You're much prettier than the employees..."</p>
-<p>I just said it nonchalantly, but when I thought about it again, it turned out to be a very flirtatious remark.</p>
-<p>,What are you saying? Ryuta-chi?! Since there are no guys trying to pick up girls, are you trying to pick me up, Ryuta-chi?"</p>
-<p>,Pick up? I'm just stating a fact."</p>
-<p>Seizawa Shii said something to me with a slightly flushed face, but she didn't seem to dislike it very much. Since I had already made a cheesy remark, I decided to just be brazen about it.</p>
-<p>While I was talking to Seizawa Shii, the staff brought the food. As expected, the quality was impossible for a beach house. The yakisoba was like it was made at a specialty restaurant, and the grilled corn wasn't just grilled, but had cheese powder and various seasonings sprinkled on it.</p>
-<p>Ei, the dessert didn't come out. Did Shido Tsubaki not hear my order? I'll think about the dessert later and eat what's out first.</p>
-<p>The other female students were also hungry and started gobbling up the food they ordered. They must have burned a lot of calories swimming all morning. Of course, they would be very hungry. Swimming especially burns a lot of calories.</p>
-<p>Because I heard the story about the beach house that I shared with Seizawa Shii, I shared some yakisoba with the female students who were curious, and I exchanged the menus that the female students gave me to eat a variety of foods. Eating the grilled corn on top of that satisfied my hunger.</p>
-<p>It would be perfect if I had a dessert here. I was about 85 percent satisfied, so I was even more eager for dessert.</p>
-<p>When everyone was done eating, the staff brought watermelons on a cart. There seemed to be about a dozen watermelons, roughly the number of students.</p>
-<p>,If you come to the beach, you have to break a watermelon!"</p>
-<p>Kujo Kina, who was already out in the shade of the beach, shouted with a stick in her hand while wearing a leopard-print bikini. It was quite a shocking bikini, but it suited her muscular body quite well.</p>
-<p>I thought it was strange that no one else ordered dessert besides me, but today's dessert was watermelon. The students must have planned the schedule among themselves, so they knew there would be watermelon breaking except for me.</p>
-<p>,After breaking the watermelon, Ryuta-chi is the Korean teacher, so we're going to make Korean dessert, watermelon hwachae."</p>
-<p>In addition to the game, it seemed like they chose the dessert with my subject as the homeroom teacher in mind. Certainly, when I looked again, cider and milk were also brought by the staff after the watermelon.</p>
-<p>They put the watermelon on a mat so that sand wouldn't get on it after it was broken.</p>
-<p>The very first hitter in the watermelon breaking was Konoe Akina. Konoe Akina was wearing a bikini with red flowers on a black background, which suited Konoe Akina's black hair and red eyes quite well.</p>
-<p>,Sensei, please cheer me on~♥"</p>
-<p>,Konoe, fighting! I'll buy you something delicious if you break the watermelon."</p>
-<p>Konoe Akina asked me to cheer her on and then covered her eyes with a long cloth. At that moment, a certain wave spread forward from Konoe Akina as the epicenter. She wouldn't be using her mystic eyes to get something delicious from me, would she?</p>
-<p>Konoe Akina quickly approached the watermelon and struck it with a stick. Everyone cheered and congratulated Konoe Akina on her success. Originally, you're supposed to cover your eyes and move in the direction that the people around you are calling out to break the watermelon. It's amazing that she broke it without listening. She must have used the power of her mystic eyes.</p>
-<p>After that, most of them failed. After Konoe Akina, the only people who succeeded were Otagi Yuka, Alik, Kujo Kina, and Saionji Diana.</p>
-<p>They were all people who were likely to succeed. The vampire Otagi Yuka, who has sharp senses, the martial arts practitioner Alik, Saionji Diana, and Kujo Kina easily broke the watermelon.</p>
-<p>Otagi Yuka found and smashed the watermelon with her sharp senses, and Alik found the watermelon by spreading microcurrents around her. Saionji Diana found the watermelon with her innate wind ability, and Kujo Kina smashed the watermelon with something like a wild sense. They all had their own unique characteristics, which made it fun to watch.</p>
-<p>When I think about it, five out of 12 people succeeded, so the success rate is quite high? Looking at this, I thought that our class might have the highest combat power in St. Francis Girls' Academy. Alik and Saionji Diana alone could probably beat all the students, though.</p>
-<p>,Okay! It's Sensei's turn last."</p>
-<p>Otagi Yuka, who was the last in line among the female students, handed me a long cloth. Otagi Yuka was wearing a red one-piece swimsuit that matched her hair color, which gave off a very seductive feeling. Except for the color, it was a one-piece swimsuit that didn't have any special features, but it seemed to give off that feeling because Otagi Yuka's body itself was firmly supporting it.</p>
-<p>,Shall I give it a try?"</p>
-<p>,Do your best, Sensei!"</p>
-<p>I decided to enjoy myself by moving as the students called out without using the abyss or other abilities. The staff was already cutting up the broken watermelon in the back to make hwachae, so it seemed like I could just enjoy the watermelon breaking and eat the hwachae.</p>
-<p>When I put on the eye patch, I could hear the students' voices guiding me.</p>
-<p>,It's on the right! Ryuta-chi!"</p>
-<p>,Go straight ahead~! Sensei!"</p>
-<p>Guided by the students, I struck the area where I thought the watermelon was with all my might, but it felt like I was striking the sand field.</p>
-<p>,Kyahahaha! How can you go to a completely different place, Sensei!"</p>
-<p>,Ahaha~! Ryuta-chi is so funny!"</p>
-<p>When I took off the eye patch, the watermelon was in a completely different place. It seemed like the students had guided me to a completely different place to play a prank. They were all mischievous.</p>
-<p>The next turn was Kijimoto Jurie's, but we decided to skip it to check on Naruse Shiyo, who was not feeling well for a while. As the homeroom teacher, I also asked about Naruse Shiyo's condition, and Kijimoto Jurie told me that she just needed to rest a little because she had overdone it playing today.</p>
-<p>The hwachae that the staff brought out was not much different from the one I used to eat before I possessed it, probably because they knew the recipe well and made it. It was a slightly nostalgic taste.</p>
-<p>,Um! This is delicious!"</p>
-<p>,It's sweet and cool."</p>
-<p>The watermelon hwachae was well received by everyone. Alik especially liked it, and she was eating it diligently without saying a word. I unknowingly looked at Alik and smiled like a dad. Even while eating the watermelon hwachae, the staff couldn't rest and were diligently making something like a sumo wrestling ring on the beach.</p>
-<p>That was probably the place where Kujo Kina and I would be sparring. When I looked to the side, Kujo Kina was wearing fighting trunks over her bikini and stretching. It was okay to fight right now, but I should at least pretend to stretch.</p>
-<p>It would be quite embarrassing if I beat Kujo Kina without even stretching.</p>
-<p>-------</p>
-<p>Swimsuits mentioned today~!</p>
-<p>Kujo Kina's leopard swimsuit</p>
-<p>It's hard to adjust the muscles ㄷㄷ But where did the leopard tail come from...?</p>
-<p>Konoe Akina's floral swimsuit</p>
-<p>Otagi Yuka's red one-piece swimsuit</p>
-<p>Nice, Otagi Yuka....</p>
+<p>As I slowly moved my fingers, Han Yu-gyeong's pussy gradually released more and more juices. As my fingers got wet, increasingly lewd sounds began to emanate from her pussy.</p>
+<p>Jjeueuk, jjeugeok, jjeugeok...! Jjilkkeok..!</p>
+<p>As the sounds from her pussy became increasingly lascivious, unconscious moans also escaped from Han Yu-gyeong's mouth, who was asleep and drunk.</p>
+<p>"Heeeuuu...eung...! Haaeeuu....Eut...!"</p>
+<p>As Han Yu-gyeong's moans became sweeter, her pussy loosened up, so I took off my pants, grabbed my dick, and aligned it with Han Yu-gyeong's pussy as she lay face down.</p>
+<p>Ssuuuuuk.</p>
+<p>My dick widened Han Yu-gyeong's already sufficiently loosened pussy, entering deeper and deeper into the sticky interior.</p>
+<p>"Heuaaaat...! Yong-tae-yaaah...."</p>
+<p>Perhaps because my dick had entered, Han Yu-gyeong was moaning and calling my name. Judging by her closed eyes, she didn't seem to be awake yet.</p>
+<p>I slowly began to move my hips. Along with the sound of flesh against flesh, I could hear Han Yu-gyeong's suppressed moans. I was curious about what sleep-fucking felt like, but I still preferred regular sex with mutual interaction. This is no different from just banging an onahole by myself.</p>
+<p>Of course, Han Yu-gyeong's pussy is an amazing masterpiece that can't be compared to any onahole, but I used the onahole analogy because it felt like I was doing it alone.</p>
+<p>I still couldn't feel Han Yu-gyeong waking up or anything. The Holy Pillar wasn't activating. Maybe it will recover after I ejaculate?</p>
+<p>Curious about the function of the Holy Pillar, I shook my hips solely for the purpose of cumming. Even though I was shaking only to cum, Han Yu-gyeong was writhing in ecstasy from the pleasure caused by my dick.</p>
+<p>That writhing climax made me feel even better, so I shook my hips even more vigorously. As the sensation of cumming reached the top of my head, I pressed my glans tightly against Han Yu-gyeong's deepest cervix and released my semen.</p>
+<p>Byuuut! Byuuut! Byeut!</p>
+<p>My dick throbbed, spewing out a load of semen and filling Han Yu-gyeong's uterus. I kept my dick inside and watched to see how Han Yu-gyeong would recover.</p>
+<p>She had seemed a bit tired recently after the battle and the negotiations regarding the BS Defender this weekend, but after I came, that tired look disappeared and her skin began to glow. And about a minute later, Han Yu-gyeong slowly opened her eyes. There was no sign of a hangover or drunkenness on Han Yu-gyeong's face at all.</p>
+<p>It's quite effective. It was indeed a Unique-grade trait. I don't know how much it will heal wounds, but the status ailment recovery seemed pretty good.</p>
+<p>"Eueueeum...! Yong-tae-ya?"</p>
+<p>Han Yu-gyeong turned her head and looked at me, feeling the weight behind her and the subtle pleasure in her pussy. As soon as she realized it was me, she smiled brightly.</p>
+<p>"Are you awake?"</p>
+<p>"Eueung, you couldn't stand just watching me while I was sleeping?"</p>
+<p>"Yeah, Yu-gyeong-ssi is too sexy."</p>
+<p>"Aww~♥"</p>
+<p>Han Yu-gyeong didn't get angry that I did it while she was sleeping. Rather, she looked at me with a seductive expression and tightened her pussy. My dick, which was slightly losing its strength after cumming, became hard again from that stimulation.</p>
+<p>"I didn't feel it because I was sleeping, so do it one more time...♥"</p>
+<p>"Then let's do it wearing the gift Eve gave you."</p>
+<p>"Should we?"</p>
+<p>When Han Yu-gyeong said let's do it one more time, I thought of the sexy lingerie Eve gave her and suggested we wear it, and Han Yu-gyeong excitedly went to get Eve's gift box. As expected, she was just pretending to be shy earlier because there were so many people around.</p>
+<p>Soon, Han Yu-gyeong entered the bedroom wearing black sexy lingerie. Ah, Eve-sensei, you are the best...! To gift lingerie that suits Han Yu-gyeong so well, it's Han Yu-gyeong's birthday gift, but in fact, I'm the one benefiting from it. My eyes were happy to see it.</p>
+<p>"How is it?"</p>
+<p>The lingerie was made entirely of straps except for the breasts and crotch, and the way the straps pressed against her skin and made her feel sexy made it clear that it was made by someone who knew their stuff.</p>
+<p>"I won't explain it with words, I'll show you with this."</p>
+<p>In response to Han Yu-gyeong's question about how it was, I showed her my dick, which was already stiff and staring at the air. Seeing that, a satisfied smile spread across Han Yu-gyeong's face.</p>
+<p>"Lie down. I'll do it."</p>
+<p>Han Yu-gyeong laid me down as I was. And she grabbed my dick, which was still looking at the sky, aimed, and inserted it into her pussy. Of course, she didn't take off the lingerie, she just pushed it to the side before inserting it.</p>
+<p>"My insides are already wet with Yong-tae's sexy white fluid, so there's no need to foreplay."</p>
+<p>Her body was already heated up and her pussy was full of my semen, so there was no need for foreplay. Han Yu-gyeong, wearing sexy lingerie, shook her hips seductively and flamboyantly above me like a succubus.</p>
+<p>Han Yu-gyeong was not only good at using magic, but also good at using her body. Because she was good at using her body, she naturally shook her hips well too.</p>
+<p>"Haaeeueuheung...! Yong-tae, I looove your dick♥"</p>
+<p>Han Yu-gyeong climaxed several times without getting tired and shook her hips for a long time. Nevertheless, she couldn't subdue my dick, which was still fresh from cumming, and leaned her body on mine, breathing heavily.</p>
+<p>"Now I'll move."</p>
+<p>Since we did it lying face down earlier, this time I decided to do it missionary style to see her in the sexy lingerie.</p>
+<p>"Heeueueeung...! Yong-tae-yaaahng♥ It feels weird...!"</p>
+<p>Han Yu-gyeong shuddered as she changed positions with my dick still inside her, experiencing a small climax in the process of changing positions.</p>
+<p>"Heeueueeheung! I love you, I love you...! Heeueeheung...!"</p>
+<p>Cheolssak cheolssak cheolssak!</p>
+<p>Listening to Han Yu-gyeong's declaration of love, I shook my hips vigorously, making a 'cheolssak cheolssak' sound.</p>
+<p>As the juices splattered between our crotches, the excitement grew. We kissed, intertwining our tongues, and became entangled like snakes, connected both above and below, having sticky sex.</p>
+<p>After shaking our hips while entangled for a while, I slowly felt the semen rising from my balls.</p>
+<p>"I think I'm going to cum...!"</p>
+<p>"Eueung...! Inside, put Yong-tae's sexy juice inside meee...♥"</p>
+<p>Listening to Han Yu-gyeong's desperate urging, I pushed my glans against her cervix and began to cum in the deepest part.</p>
+<p>Bueut! Bueut! Byuuut!</p>
+<p>This cumming was much more voluminous and pleasurable than the sleep-fucking earlier. As expected, sex is better when you match each other's rhythm rather than doing it alone.</p>
+<p>"Heuaahaaang...!"</p>
+<p>Han Yu-gyeong rolled her eyes at my cumming and hugged me tightly. I also hugged Han Yu-gyeong tightly and squeezed out all the remaining semen into her pussy.</p>
+<p>We hugged and kissed each other for a long time, talking and enjoying the afterglow.</p>
+<p>"By the way, I drank a lot of alcohol today, but I feel so refreshed?"</p>
+<p>"That's because...."</p>
+<p>When Han Yu-gyeong, amazed, talked about her physical condition, I told her about my new trait. Han Yu-gyeong listened with wide eyes, amazed, and then nodded as if she had realized something.</p>
+<p>"Did you do it the first time to sober me up?"</p>
+<p>"I was horny because of Yu-gyeong's backside, and I was also curious about the performance of the new trait...."</p>
+<p>"Thanks to you, I don't have to suffer from a hangover when I wake up tomorrow, hehe. Thank you♥"</p>
+<p>Han Yu-gyeong kissed me on the cheek and expressed her gratitude. Now that I've started explaining, it would be good to explain about the Starry Constellation Bracelet I gave her today. It's not just an accessory, it's an item that gives stats, so the person using it needs to know it well.</p>
+<p>"This bracelet is called the Starry Constellation Bracelet."</p>
+<p>I grabbed Han Yu-gyeong's arm, which was wearing the bracelet, and started explaining about the Starry Constellation Bracelet. When I explained about the amazing options, including the Starlight Aura, +1 to all mental stats, and the Meteor Dash blink skill, Han Yu-gyeong seemed quite surprised.</p>
+<p>"Do you want to try Meteor Dash once?"</p>
+<p>"Okay. I'll try it."</p>
+<p>Jjeueuk...!</p>
+<p>Han Yu-gyeong pulled out my dick, which was still inside her, and got up from her seat. As she got up, her pussy scratched against my glans, and Han Yu-gyeong went 'Haaeeueut!' and had a light climax, staggering slightly as she got off the bed.</p>
+<p>"I'll try it now...!"</p>
+<p>Han Yu-gyeong closed her eyes for a moment and focused her mind on the bracelet. At some point, she seemed to get the hang of it, and with a flash of starlight, Han Yu-gyeong disappeared. Han Yu-gyeong was not visible in the bedroom. Where did she go?</p>
+<p>Soon, the bedroom door opened and Han Yu-gyeong came in with two glasses of champagne. Ah, she teleported to where the refrigerator is. Since she can move even to places that are not visible, it seemed to be a pretty good high-level blink skill.</p>
+<p>Usually, blink skills that move short distances only move to places that are within sight, but the Starry Constellation Bracelet's Meteor Dash seems to be able to move within a certain distance even if the place is not within sight.</p>
+<p>"Wow...! Teleportation is something I've only seen in movies, but it's so amazing to use it myself!"</p>
+<p>"You can use it up to five times, and it recharges once every hour, so think carefully before using it. And the ability of this bracelet can only be used by people who have learned Star Magic, so you're probably the only one in the world who can use it."</p>
+<p>"Only me...? Thank you. It's really the best gift I've ever received in my life."</p>
+<p>I told her about the limitations of the ability. Han Yu-gyeong seemed touched to receive a bracelet that only she could use as a gift.</p>
+<p>"Since we've seen the bracelet's ability, shall we check Yu-gyeong's level too?"</p>
+<p>"Ah, would you? I was wondering if my level went up while catching those mutated wild dogs...."</p>
+<p>Han Yu-gyeong also seemed curious about how much her level had increased after going through the Holy Group Secret Laboratory event. I put on the glasses from the ruins that I had prepared in advance in the bedroom and looked at Han Yu-gyeong.</p>

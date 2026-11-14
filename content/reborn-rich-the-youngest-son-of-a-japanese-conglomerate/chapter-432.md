@@ -5,67 +5,69 @@ weight = 432
 chapter = 432
 +++
 
-<p>As compensation for the self-defense item gift, I received service from Kijimoto Jurie-ssi and returned to the teachers' lounge. I sent a message on LINE to the students who knew my identity and were genuinely helping me.</p>
-<p>I called Konoe Akina-ssi, who graduated from the same school as Saionji Diana-ssi and Otagi Yuka-ssi and decided to work with me, and Konoe Akina-ssi, a student who has infinite goodwill towards me. I didn't contact Alik-gun on purpose because he didn't seem to fit the mission I was giving this time.</p>
-<p>Ryuta: Let's meet briefly in the clubroom after the first period.</p>
-<p>It wasn't anything special, but since I don't usually contact students to meet separately, the three who received the LINE message probably sensed that I was going to tell them something important.</p>
-<p>It was about 10 minutes before the end of class when I finished receiving Kijimoto Jurie-ssi's service, so I sent the LINE message from the teachers' lounge and went up to the clubroom right away.</p>
-<p>♪!~♬~♩~!</p>
-<p>Soon, the bell rang to signal the end of the first period, and the door of the Date Experience Club opened, and Konoe Akina-ssi, Saionji Diana-ssi, and Otagi Yuka-ssi entered.</p>
-<p>,Teacher, what's going on?"</p>
-<p>,Teacher-ssi, is it urgent?"</p>
-<p>,You called for me."</p>
-<p>,Yeah, sit down first. It's not that urgent or dangerous...."</p>
-<p>Once everyone was seated, I started explaining. When I explained that the new assistant teacher trainee, Kurayamada Kirie-ssi, was planted by the same Toyotaka faction as the former homeroom teacher, everyone nodded with slightly serious expressions.</p>
-<p>In fact, Konoe Akina-ssi and Otagi Yuka-ssi didn't know much about the former homeroom teacher because they were attending the special class from this semester like me, but Saionji Diana-ssi knew about the former homeroom teacher and had a rather unpleasant expression.</p>
-<p>Of course, I don't know the exact expression because Saionji Diana-ssi's bangs are covering her eyes, but biting her pretty lips below her nose didn't seem favorable to the former homeroom teacher.</p>
-<p>,The former homeroom teacher, Nomata Shigemichi, not only sexually harassed a mentally ill student, but also did almost nothing that a teacher should do. So Kijimoto-sensei suffered quite a bit."</p>
-<p>Otagi Yuka-ssi slams the desk after hearing Saionji Diana-ssi's words, which are common testimony with Kijimoto Jurie-ssi.</p>
-<p>,What a bad teacher...! Should I take care of him?"</p>
-<p>,He's already in jail, what are you trying to take care of?"</p>
-<p>,If any of the four of us here use our strength, we can get rid of a former teacher in jail."</p>
-<p>Otagi Yuka-ssi said something extreme, so I stopped her, but Otagi Yuka-ssi said that everyone can do it. I wondered if it was right to do it if I could, but it seemed better not to do it because it was annoying and the risk of getting caught was considerable.</p>
-<p>Come to think of it, can these four really take care of the former homeroom teacher in jail, as Otagi Yuka-ssi said?</p>
-<p>I, who have the abyss, and the vampire Otagi Yuka-ssi, who can turn into mist, can sneak into the prison and harm the former homeroom teacher, but Konoe Akina-ssi, who has no combat power other than her mystic eyes, and Saionji Diana-ssi, who has considerable combat power but not much infiltration ability, seem impossible.</p>
-<p>Ah, come to think of it, Konoe Akina-ssi can use the power of her family, and Saionji Diana-ssi's cyber implant would have increased her combat power rapidly, so Otagi Yuka-ssi seems to have judged that she can just go in through the main gate and cut him down.</p>
-<p>,The important thing is not that. Daigo Headmaster chose someone who is as unrelated to the opposing faction as possible, but just in case, I gathered you to tell you to keep a close eye on whether they are doing any strange work. It may be unrelated as the headmaster said, so just watch and don't tell the other kids."</p>
-<p>,I can do well just watching...! I have good 'eyes'."</p>
-<p>,Teacher-ssi, don't worry."</p>
-<p>,I swear on my new limbs that I will keep a close eye on you."</p>
-<p>Konoe Akina-ssi winked at me with her red eyes, Otagi Yuka-ssi answered with a refreshing smile as if it wasn't a big mission, and Saionji Diana-ssi gave a slightly scary answer.</p>
-<p>,Ah! Come to think of it, Kurayamada Kirie-sensei must be a master of swordsmanship. I don't know why, but I felt that way. She also has calluses on her hands.... So just watch and don't do anything else."</p>
-<p>I stroked all three of their heads and suddenly remembered and told them about Kurayamada Kirie-ssi's martial arts skills. Saionji Diana-ssi, who heard my words, suddenly raised her hand as if she remembered something.</p>
-<p>,Since you said that the teacher is a master of swordsmanship, I just remembered that I saw the name Kurayamada Kirie-ssi in the list of past club presidents of the Cheongsim Hall."</p>
-<p>Eh? Kurayamada Kirie-ssi was from St. Francis Girls' School? That's new information.</p>
-<p>Saionji Diana-ssi is a former president of the Cheongsim Hall, so she would know about the past presidents, so this information was likely to be true. I should visit the Cheongsim Hall after class today.</p>
-<p>###</p>
-<p>Not long ago, the Jinildang leader election.</p>
-<p>,Our activities have been too quiet lately."</p>
-<p>Kurayama Kazuma, the leader of Jinildang, a far-right terrorist group in Japan, opened his mouth quietly. Since the Taira Talent Development Institute cherry blossom terror incident last spring, Jinildang has disappeared.</p>
-<p>Even if it's a reckless terrorist group, it couldn't dare to point a knife at the Taira Group and be safe. Three-thirds of the 3,000 members were killed by Taira's PMC, and they were unable to do other activities. Fortunately, the Minamoto Group, which instigated the cherry blossom terror incident, protected them to some extent, so they were able to prevent this much damage.</p>
-<p>After a while, when there was no attack from the Taira Group, Kurayama Kazuma had another thought. It was the thought of starting Jinildang activities again.</p>
-<p>Originally, terrorist groups were attention seekers. They were the kind of people who committed terrorism, which is the last thing they should do, to promote their claims, so they couldn't help but feel restless after not being able to do anything for several months.</p>
-<p>In addition, recently, a superpower incident broke out in the United States, and they even recruited some far-right superpower users, so their confidence, which had been lost due to the loss of troops, was rising again.</p>
-<p>,So, where are you planning to attack this time?"</p>
-<p>Kurayamada Kirie-ssi asked at Kurayama Kazuma's words. Kurayamada Kirie-ssi was Kurayama Kazuma's daughter and was acting as the hidden second-in-command of Jinildang.</p>
-<p>,Well...."</p>
-<p>Kurayama Kazuma looked at Kurayamada Kirie-ssi with pitiful eyes. Kurayamada Kirie-ssi had changed since the cherry blossom terror incident.</p>
-<p>Kurayamada Kirie-ssi, who was bright and innocent like a typical Yamato Nadeshiko, became increasingly dark and taciturn as she lost her Jinildang colleagues to the Taira Group, and she seemed to have a lot on her mind.</p>
-<p>,There's something you need to do before the new activities."</p>
-<p>,The Toyotaka faction of the Daigo family is looking for a student teacher for the special class at St. Francis Girls' School. I want you to apply there."</p>
-<p>,Special class?"</p>
-<p>Kurayamada Kirie-ssi also attended St. Francis Girls' School, so she knew what the special class did. It was a class mainly for kids who were often sick and couldn't come to school, students who had to repeat a grade due to circumstances, and troublemakers.</p>
-<p>,Is there any reason to go to that special class?"</p>
-<p>,It's not bad to put the Toyotaka faction in debt, but this year's special class at St. Francis Girls' School is special as its name suggests. The heiress of Minamoto and the heiress of Seizawa are there, as well as the head of the Konoe family. The rest of the heiresses of families with great names are also in the special class."</p>
-<p>,The head of the Konoe family is also there?"</p>
-<p>Minamoto and Seizawa were heavier in terms of family name, but Kurayamada Kirie-ssi was surprised that there was a head of a family. It is quite rare for the head of a family to be a high school student. I heard that there was a succession war-like thing in the Konoe family recently, and it seemed that the high school heiress had won. As the head of the family, she has power in the family that is different from ordinary heiresses, so it was understandable that the Toyotaka faction or her father, Kurayama Kazuma, were interested.</p>
-<p>,What does the Toyotaka faction want?"</p>
-<p>,First of all, the requirement is to increase influence more than the current homeroom teacher."</p>
-<p>Kurayama Kazuma's words meant to seize control of the special class by playing politics in a nutshell. It wasn't a particularly difficult task.</p>
-<p>,What's next?"</p>
-<p>,We need to hear their goals and set our goals."</p>
-<p>Kurayama Kazuma smiled with a bitter expression. After that, Kurayamada Kirie-ssi collected information in her own way. The former homeroom teacher was arrested for sexual harassment, and a new homeroom teacher came, but the Toyotaka faction shamelessly wanted to find their influence right away.</p>
-<p>First of all, I should stay quiet in the beginning, check how much influence the current homeroom teacher has, and then act, Kurayamada Kirie-ssi planned and went to work at school. Since there was no detailed information, she decided to go to school first, see the situation, and decide on a course of action.</p>
-<p>,Hello, I'm Kurayamada Kirie."</p>
-<p>Kurayamada Kirie-ssi opened the door of a room called the teachers' lounge and bowed her head. She saw the back of a man who seemed to be the homeroom teacher of the special class. The tanned brown skin and blonde hair, based on Kurayamada Kirie-ssi's conservative standards, was disqualified as a teacher.</p>
-<p>Yamashiro Ryuta, the homeroom teacher of the special class, heard Kurayamada Kirie-ssi's greeting and began to turn his head.</p>
+<p>When I told Saionji Diana and Konoe Akina about Otagi Yuka's situation, both of them arrived at the warehouse where we were in less than fifteen minutes, even though it was morning, as if it were their own problem. Saionji Diana doesn't have a car because she doesn't receive support from her family, so she came together in Konoe Akina's car.</p>
+<p>"Yuka...!"</p>
+<p>"Otagi-ssi."</p>
+<p>"Yeah, thanks for coming..."</p>
+<p>Everyone arrived with worried expressions due to the sudden incident, hugging and comforting Otagi Yuka. After letting them talk to each other for a while, I approached Eve.</p>
+<p>"Eve, is the video editing all done?"</p>
+<p>"Yes~! Would you like to see it?"</p>
+<p>Since the AmSang branch's unique hologram machine was installed in the warehouse as well, when I nodded, the battle that took place in the New York Museum was shown as a hologram in mid-air. It was a scene of Otagi Yuka, holding a golden sword, fighting the Death Knight and the Necromancer, Shadow Ghoul, who was supporting him from behind. Whether it was because Eve edited it well, the Phantom Thief Francois and her daughter or I didn't appear on the screen.</p>
+<p>Otagi Yuka, Konoe Akina, and Saionji Diana also became interested and watched when the screen suddenly appeared and showed Otagi Yuka fighting the Death Knight wearing black armor.</p>
+<p>"Ooh~! Yuka-chan fights well...!"</p>
+<p>"Otagi-ssi, why didn't you say you were good at swordsmanship? I could spar with you."</p>
+<p>Konoe Akina and Saionji Diana said, admiring the screen. Otagi Yuka, unlike her usual outgoing self, was embarrassed by her friends' compliments. She's the type who can't stand compliments, unexpectedly.</p>
+<p>Sakagami Rena, like a ninja, was recording something on her smartphone while watching the video, and it seemed like she was writing about Otagi Yuka's combat abilities.</p>
+<p>"Should I send this to SPF headquarters as is?"</p>
+<p>"Otagi, how is it? Is this good enough?"</p>
+<p>"Yeah, this should be enough for headquarters to tell the New York branch to stop."</p>
+<p>Eve asked, so I confirmed with Otagi Yuka, who was the person involved. Otagi Yuka nodded, as if she liked the video editing.</p>
+<p>"Sent!"</p>
+<p>As expected, it was Eve. Being able to send it right away without separate operation must be one of the advantages of an AI android. Since one thing is done, I should do the next thing now.</p>
+<p>"The members who decided to participate in the battle include Otagi, me, Saionji, Alik, Eve, and Sakagami, but if we exclude Sakagami, we're all from the same study group, so..."</p>
+<p>"What about me? I can fight too...!"</p>
+<p>Konoe Akina, who was listening, raised her hand and said, as if she was upset.</p>
+<p>In fact, I didn't know Konoe Akina's combat abilities well. I only knew that she had Mystic Eyes, and although the Mystic Eyes that Konoe Akina had were a cheat-like trait, I excluded her because I didn't think she was a martial arts character like Otagi Yuka, who is a vampire and a swordswoman, or Saionji Diana, a swordswoman modified with cyber implants.</p>
+<p>Besides, Konoe Akina was not an ordinary young lady, but the head of the Konoe family. If she participated in the battle and died, it would cause a huge backlash.</p>
+<p>"Konoe, I have another favor to ask of you. This will be as difficult as this fight, so it's not like I'm excluding Konoe for no reason."</p>
+<p>"Ah, do you have other things to order me to do? I'll listen to anything!"</p>
+<p>When I said I had a favor to ask, Konoe Akina smiled as if her disappointment was quickly resolved, telling me to say anything.</p>
+<p>"I heard from Otagi that the head of the SPF's Tokyo branch is my second uncle, Taira Jiro. Even if the New York branch asked for cooperation, he's someone who would never help if there's no benefit to himself, but this time, it seems like the damage will not only end with the battle at the shrine, but will also affect St. Francisco Academy for Girls. Konoe, please keep a close eye on what's happening at St. Francisco Academy for Girls with the few people I've assigned to you."</p>
+<p>According to Yukiko, Taira Jiro is very sensitive to profit and loss, so he never does anything that would be a loss to himself. And because he wants to get the maximum benefit from one action, I thought this wasn't just limited to Otagi Yuka.</p>
+<p>Fortunately, when I asked Gocho Kikuhito, the secretary in charge of St. Francisco Academy for Girls, yesterday, only Taira Danjo-halbae and Gocho Kikuhito's 8th secretary team knew that I had been appointed as the homeroom teacher of the special class at St. Francisco Academy for Girls.</p>
+<p>That means Taira Jiro doesn't know that I'm at St. Francisco Academy for Girls. In that case, there aren't many people Taira Jiro can target at St. Francisco Academy for Girls. Either a daughter of a family that has a conflict with the affiliate that Taira Jiro is in charge of, or Taira Kanna, the younger sister of my dead father, Taira Saburo, or Minamoto Risa, who he thinks he'll be praised by Danjo-halbae if he gets rid of her?</p>
+<p>"If that's the case, I understand."</p>
+<p>"Make sure to protect your classmates because they'll definitely do something. And make a good excuse about the cold..."</p>
+<p>"The cold?"</p>
+<p>Ah, before I talked about the cold, Konoe Akina raised her hand and said, "I can fight too!" so I couldn't say it. I told Konoe Akina that Otagi Yuka, Saionji Diana, and Alik's simultaneous absence would be excused by saying that they caught a cold from each other while studying, and Konoe Akina had a slightly dissatisfied expression.</p>
+<p>"I'm not catching a cold?"</p>
+<p>"You have to go to school. You have to subtly tell the kids that the study group kids caught a cold."</p>
+<p>"But if I'm the only one who doesn't catch a cold in the study group, it'll be like I'm an idiot."</p>
+<p>Ah, it seems like she's saying this because there's a saying in Japan that idiots don't catch colds. I laughed at Konoe Akina's unnecessary worries.</p>
+<p>"They'll think Konoe has high immunity. Do you think they'll think you're an idiot?"</p>
+<p>"Seizawa Shii might make fun of me..."</p>
+<p>I said there's no one who would do that, but Otagi Yuka said that Seizawa Shii might do that. Now that I think about it, Seizawa Shii might say, "Kya haha, isn't it because Konoe-chan is an idiot that she doesn't catch a cold?"</p>
+<p>"Don't worry about that, let's set up a strategy first. Eve, can you show me the satellite photo of Onuta Shrine?"</p>
+<p>"Yes~!"</p>
+<p>At my request, Eve showed a hologram of the satellite photo of Onusa Shrine and the surrounding terrain.</p>
+<p>Onuta Shrine was the ruins of a shrine located in the mountains east of Miyashi. There were two entrances: the west entrance that could be reached from Miyashi and the south entrance that went down the mountain path, and the surroundings were covered with forests and bushes, making it a good environment for ambushes.</p>
+<p>"We need to be careful of ambushes, right?"</p>
+<p>"Yes, there are a few points."</p>
+<p>At my question, Eve marked the ambush points in red. Most of the ambush points that Eve predicted were near the entrances.</p>
+<p>"I think it's better to use our strengths now."</p>
+<p>"Strengths?"</p>
+<p>Konoe Akina, who was looking at the hologram map, opened her mouth.</p>
+<p>"The SPF who will fight Yuka-chan don't know that we're joining. If we ambush the points where we can ambush the enemy's ambush, they'll only pay attention to the entrance, so they won't expect that they might be attacked."</p>
+<p>In short, she was saying that we should do another ambush to attack the ambush. It was a good idea, but it was a method that could only be used if we knew the exact location of the enemy's ambush, so it felt too reliant on luck for us to use.</p>
+<p>"That's good too, but how about installing traps like bombs at the enemy's expected ambush points?"</p>
+<p>"SPF are experts, so there's no chance they'll fall for the traps."</p>
+<p>This time it was Saionji Diana's suggestion, but Otagi Yuka said that method wouldn't work. We could install things like bombs in advance, but SPF were specialists in firearms. Even if we installed traps in advance, they would probably find them quickly.</p>
+<p>Everyone said their own battle plans, but it was difficult to choose because there were disadvantages. As we were talking, Eve, who had been listening quietly, opened her mouth.</p>
+<p>"To be honest, I don't think strategy is meaningful? Ryuta-nim alone is so strong that I think he can win alone. And with Shimokawabe Airen-ssi, whom Ryuta-nim said was stronger than him, and Yuka, Alik, and Saionji-ssi, I think we can win without any special strategy. More than anything.... I'm here too."</p>
+<p>Eve seemed to be optimistic in her own way. It seemed like she meant that we're all so damn strong anyway, so we don't need complicated strategies. Hmm, is that so? Maybe she's overestimating because she experienced SPF in the TMC of the future. With Shimokawabe Airen and Eve, there's no need to worry.</p>
+<p>"I agree, my lord. I think it's better to keep it simple than too complicated tactics. As long as we know that the enemy is ambushing, we won't be attacked. I'll take responsibility for finding out whether the enemy is ambushing or not, so don't worry too much."</p>
+<p>"Okay, I'll trust Sakagami about the ambush. But we can't have no strategy at all, so let's talk to each other and come up with something simple."</p>
+<p>I nodded at Sakagami Rena's confident words. We decided to approach this matter with a bigger strategy rather than complicated tactics.</p>
+<p>----</p>
+<p>Pre-made selfie illustration of the tutor~!!</p>
+<p>Feeling like you're making eye contact with someone who's taking pictures of you...ㄷㄷ</p>

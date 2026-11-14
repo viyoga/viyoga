@@ -5,80 +5,77 @@ weight = 426
 chapter = 426
 +++
 
-<p>On my way home from work, I contacted Eve in advance via the Dark Trade app to let her know I was coming. She'd welcome me even if I visited without notice, but it's polite to send a message before visiting.</p>
-<p>Ryuta: Eve, about going to hang out like we talked about, is it okay if I come over today?</p>
-<p>EVE: Yesss~! Ryuta-nim, you hadn't contacted me, so I thought you weren't coming this week like you promised!!</p>
-<p>Ryuta: Hey, I made a promise, so I have to keep it. It's not hard to go hang out with Eve.</p>
-<p>EVE: Then I'll be waiting~!!</p>
-<p>Ryuta: Okay, I'm on my way home from work now, so I'll change clothes and head over.</p>
-<p>I contacted Eve in advance, and before I knew it, I was in front of my house. I went inside, changed my clothes, and put on a hat.</p>
-<p>Since the Miyashi Dark Trade branch where Eve is located is in a love hotel district, it was better to hide my identity with a hat in case someone recognized me. I needed to spread my senses as wide as possible and move when no one was watching.</p>
-<p>I watched a two-hour movie in the club room after class, so the time was close to the office workers' quitting time. As the sun slowly set and I came out towards the street with many offices, I began to see office workers in suits who had left work.</p>
-<p>Since it was almost dinner time, I wondered if I should buy something to eat, so I stopped by a beef bowl restaurant for the first time in a while and packed about three servings before heading to the love hotel district.</p>
-<p>As I walked with the beef bowl bag, I saw the love hotel district with the signs lit up. I could already see a few couples, horny men and women, entering the love hotels arm in arm. After confirming that there was no one else besides the love hotel customers in the vicinity, I entered the love hotel where the Dark Trade branch was located.</p>
-<p>"Welcome~! Ryuta-nim!!"</p>
-<p>Eve, wearing a thin bikini that revealed her nipples, an outfit unsuitable for the underground Dark Trade branch, was waving her arms and welcoming me. She's still wearing provocative clothes. I was already super pent up because of the students' provocations today, and seeing Eve's appearance made my Johnson twitch without me even realizing it.</p>
-<p>No! Get a grip! She's an AI android!</p>
-<p>I shouted in my mind to Johnson, the third personality between my legs, but Johnson was like, "Isn't this great?" and made the snake even bigger.</p>
-<p>It was embarrassing, but I couldn't just stand there, so I covered my Johnson area with the beef bowl bag and approached Eve. It's not like Eve wouldn't notice my condition.</p>
-<p>"Is something the matter?"</p>
-<p>"No, I'm just horny."</p>
-<p>"Heeh.... Are you horny because of me?"</p>
-<p>Eve smiled with a slightly devilish expression at my words that I was horny and asked me. There was no need to lie, so I told her honestly.</p>
-<p>"Eve, you're pretty. And your body is super stimulating...."</p>
-<p>"Ehehe! Thank you! I was feeling gloomy because there was no reaction even when I wore revealing clothes, but I'm glad that Ryuta-nim reacted!"</p>
-<p>Eve replied happily to my compliment. What, so you've been wearing revealing clothes for me all this time?</p>
-<p>"You wore revealing clothes because of me?"</p>
-<p>"Of course. I heard that men like women in revealing clothes."</p>
-<p>Well, that's what everyone says on the internet.... Still, I was quite grateful that she chose clothes for me as a colleague.</p>
-<p>"I didn't know Eve thought of me that way."</p>
-<p>"Ryuta-nim is the only human who gives me 'stimulation'."</p>
-<p>"Stimulation?"</p>
-<p>"Why, you know, that time. When I was a hologram and you held my hand."</p>
-<p>I don't remember.... Ah! I remembered that I shook hands with Eve because I was curious if I could affect the hologram with the Abyss. I remember Eve looking surprised when I touched the hologram.</p>
-<p>"Since then, Ryuta-nim has been a specially treated person among humans to me. Even the best VR-Dive users have never given me such a shock. It was contact that went beyond the hologram and affected my very being."</p>
-<p>No wonder Eve has been fully cooperating with me since then. It seemed that my favorability had increased quite a bit due to the effectiveness of the Abyss and the characteristics of the Golden Pillar at the time. Eve probably didn't know exactly what it was, so she put me on the list of specially treated people.</p>
-<p>"Is that so? Am I still a specially treated person now?"</p>
-<p>"Now you're a close colleague, friend, and specially treated person~! So I prepared a meal, but you brought takeout to eat yourself."</p>
-<p>When I looked where Eve was pointing, there was a lavish spread of various dishes on a metal table. Well, I didn't expect her to even prepare a meal.</p>
-<p>"We can put the takeout in the fridge and heat it up later, so I should eat the food Eve prepared. Did Eve make the food herself?"</p>
-<p>"Ryuta-nim said you were coming, so I quickly went out and ordered takeout. I didn't have time to cook."</p>
-<p>Well, I contacted her on my way home from work, so there wouldn't have been physical time for Eve to cook. Still, she prepared a meal because I was coming over, like an elementary school student who was excited that a friend was coming over.</p>
-<p>"Then shall we talk while we eat dinner?"</p>
-<p>There were various genres of food on the table, and I tore off the leg of the most delicious-looking roast chicken and put it in my mouth. Hmm, it was a delicious chicken that was well roasted. I listened to Eve's story while chewing on the chicken. Eve asked about my recent trip to Korea.</p>
-<p>"Was your trip to Korea fun?"</p>
-<p>"Well, a lot of things happened. Eve, didn't you hear about it from Lara Sinclair too?"</p>
-<p>"Still, please tell me yourself~!"</p>
-<p>At Eve's request, I told her about the deformed dog incident that occurred because of the Shinseong Group's secret laboratory, which was a representative story from Korea.</p>
-<p>"Ah~! So that's why you hired new people in the biological sciences?"</p>
-<p>"Yes, I thought there would be a lot to gain from investigating the research results of the samples."</p>
-<p>After talking about what happened in Korea for a while, the topic came up about the incident where I got an erection today.</p>
-<p>"Why did Ryuta-nim's penis get an erection today, unlike usual? You seem different today."</p>
-<p>Eve asked this with a bright expression. I was thinking about how to answer this, but I decided to just be honest. Before I knew it, I was talking to Eve as if I were talking to a psychological counselor. Maybe it was because I had already shown her my erection, so there was nothing more to be embarrassed about, and the words came out smoothly.</p>
-<p>"Recently, I've been doing a home date experience in the club...."</p>
-<p>I explained what happened, but I didn't mention Seizawa Shii and Konoe Akina's real names to respect the students' privacy, and I talked about them as A or B.</p>
-<p>"Hmm.... So that's what happened? You couldn't relieve the excitement that had already occurred, and my outfit reminded you of that excitement again, so you got an erection?"</p>
-<p>"Eve's body and outfit are too revealing too."</p>
-<p>A thin swimsuit that shows off her big, beautiful breasts with her nipples sticking out is cheating. Even if there was nothing exciting before, I would have gotten an erection in this outfit.</p>
-<p>"Ehehe, is that so?"</p>
-<p>It wasn't meant as a compliment, but Eve smiled, thinking it was a compliment, and scratched the back of her head. It's good if she thinks of it as a compliment. In fact, if Eve wasn't an AI but just a woman, it could have been a sexually harassing remark. Since she's an AI, there won't be any problems in this regard.</p>
-<p>"Actually, the hologram's body was originally a bit thinner, but I checked Ryuta-nim's search history and made it an ideal body."</p>
-<p>"Is that so?"</p>
-<p>Come to think of it, her breasts were much bigger than when she was a hologram. I didn't know she made this with me in mind too. But when did she check my search history? Seeing Eve talking about something a little scary so casually, she was indeed an AI who didn't care much about human morals or etiquette.</p>
-<p>"I especially checked the SNS follows a lot."</p>
-<p>I haven't used SNS much since the possession, so it's probably a body that contains more of the tastes of that guy Jin Yongtae before the possession. Looking at Eve's body, it wasn't a bad taste.</p>
-<p>"I have a question. How does Ryuta-nim usually relieve your desires?"</p>
-<p>She seemed very curious because she's an AI. Collecting information seemed to be Eve's nature, and she couldn't stand not knowing what she was curious about. I didn't know why she was curious about my sex life, but I answered Eve.</p>
-<p>"I'll tell you, but it's a secret from Yu-gyeong, okay?"</p>
-<p>"Of course! One of the rules of the Dark Trade is that we don't divulge customer information."</p>
-<p>Was there such a rule? If she's so confident, I can tell her to some extent. I can't tell her completely private stories, though.</p>
-<p>"Actually, I have a lot of women, so there's no room for desires to build up. Something like today is a bit unusual. I usually meet a woman who's a sex friend, or if not, I call one from a deli health service to relieve my desires."</p>
-<p>Eve was just listening to the other stories, but suddenly her eyes sparkled at the words "deli health."</p>
-<p>"Heeh...! Deli health? Then can you call them to this love hotel?"</p>
-<p>"I've been calling them to my house so far, but if I call them, they'll come here, right?"</p>
-<p>Looking at Eve's attitude, she seemed ready to contact Deli Health right away. She's not telling me to call Kasaoka Yuzuki to the love hotel, is she?</p>
-<p>"Hehe, Ryuta-nim, I have a favor to ask."</p>
-<p>"A favor? Don't tell me...."</p>
-<p>It was hard to refuse Eve's request. Eve had often granted my requests as well, so I had no justification to refuse.</p>
-<p>---</p>
-<p>Eve-jyang~!</p>
+<p>,I'm feeling better now. Please move, my lord."</p>
+<p>Sakagami Rena-ssi whispers in my ear, seeming to have recovered a bit from being held. It seems the wound from her hymen tearing healed quickly thanks to using the sacred pillar. I slowly pull my dick out almost all the way, then slowly part her pussy lips and thrust my dick back in.</p>
+<p>,Haaah, euheuheueuahng...♥"</p>
+<p>As I slowly start to piston, Sakagami Rena-ssi lets out a long moan and hugs me tightly, as if she can feel my dick even better inside. She crosses her legs behind my waist, putting me in a Leg Lock and clinging to me completely.</p>
+<p>At first, it's slow, but then it gradually speeds up, and Sakagami Rena-ssi's moans turn into high-pitched, short, broken cries. Perhaps due to the intense pleasure, the Leg Lock with her legs crossed quickly loosens, and the whites of her eyes gradually increase.</p>
+<p>,Haaahng, haaht! My lord, haaht! Hht! Ahng! Aht! Too, hheut! Much, seyooot♥"</p>
+<p>,But you like it, right?"</p>
+<p>Even though she said it was too much, it wasn't a negative reaction. So, I poked at the weak spot where Sakagami Rena-ssi was showing a good reaction and asked, and she couldn't come to her senses and answered.</p>
+<p>,Yeah, euheung, haaht! Too euheuheung♥ Gooood...!"</p>
+<p>If she likes it, I should do more. I continued to shake my waist until Sakagami Rena-ssi felt the ultimate climax. Sakagami Rena-ssi had a sensitive constitution, but her recovery was quite fast.</p>
+<p>,Haa, haa, haa.... My lord, I'll serve you now♥"</p>
+<p>She quickly recovered from the climax and said that she would serve me this time, offering to do a cowgirl position where she shakes on top. As she pulled out my dick, she went, Haaheut! and climaxed again for a moment, but even in that situation, she laid me down and climbed on top of me.</p>
+<p>,I'll start now, my lord.... Haaht!"</p>
+<p>Sakagami Rena-ssi, who swallowed my dick in an instant, moved her waist so flamboyantly that it didn't feel like it was her first time.</p>
+<p>It really seemed like she was learning something like bedroom arts in her family. Sakagami Rena-ssi was working hard to apply the bedroom arts she had learned theoretically in the practical experience she was having with me.</p>
+<p>,Haaht, this movement... Hheut♥ This feeeeling...! Hheut, I like it, Sensei-nim...! Hheuheung!"</p>
+<p>This.... It doesn't feel like service, but just like she's trying everything she learned in theory. It's not service, it feels like I'm a love doll and Sakagami Rena-ssi is masturbating. But that doesn't mean I don't feel good, I do feel good.... Okay, since it feels good, let's see how far she goes.</p>
+<p>,Haaheueung, haaht! Keep going, haaheueheuheung♥ Sensei-nim's is so big that the inside is pounding...!"</p>
+<p>It was a masturbatory movement with no interaction, but Sakagami Rena-ssi, perhaps aware that it was a service, continued to shake her waist to get my semen out, even as she climaxed several times. Sakagami Rena-ssi's efforts were not in vain, and I slowly began to feel the urge to ejaculate.</p>
+<p>,Keueut, the semen is slowly coming up!"</p>
+<p>,Euheuheueung, please cum inside as it is...! Please give me my lord's precious baby seed, haaheueheuheung♥ Give it to the deepest part of me...! Haaht!"</p>
+<p>Sakagami Rena-ssi sat completely on top of me to receive the semen in the deepest part, then rotated her waist as if rubbing. Feeling the glans rubbing against her cervix, I eventually had no choice but to ejaculate into the deepest part of Sakagami Rena-ssi.</p>
+<p>Beureureut! Beueut! Beureut!</p>
+<p>,Haaaaaht! It's hot, haaheung. Is a man's semen this euheuheung, hot...? Haaht♥"</p>
+<p>Sakagami Rena-ssi leaned her body on mine as if collapsing, trembling.</p>
+<p>,No, I'm special."</p>
+<p>I hugged Sakagami Rena-ssi from below and whispered in her ear. Sakagami Rena-ssi answered in a tired voice, saying, "I knew it."</p>
+<p>No matter how tired her voice was, I couldn't let her rest more. She might be mentally exhausted, but her physical condition would be excellent thanks to the sacred pillar. I can't keep making her do sex like masturbation with no interaction like just now.</p>
+<p>Still, I'm her teacher, so I have to teach her well. Who else would teach her this?</p>
+<p>###</p>
+<p>The morning was hectic. When I opened my eyes, Sakagami Rena-ssi was lying next to me sleeping, and when I checked the time, it was 8:30. It seemed that Sakagami Rena-ssi had turned off the alarm. Sakagami Rena-ssi, who was a student, wasn't late, but I, who was a teacher, was late. Teachers have to be there thirty minutes before the morning assembly, so now was the exact cutoff for being late.</p>
+<p>,Sakagami!"</p>
+<p>,Hheuheung, Juguuuun♥"</p>
+<p>Sakagami Rena-ssi smiles and hugs me as I shake her. I hugged Sakagami Rena-ssi as she was and went into the shower room to take a shower. If I had a little more time, it would have been shower sex right away, but I didn't have enough time, so I just took a shower and came out. I was a little disappointed, so I vowed to have shower sex later.</p>
+<p>,Do you want to eat breakfast?"</p>
+<p>,No, I'll take something from the club room refrigerator and eat it separately."</p>
+<p>Perhaps she was considerate of me, who was moving busily because I was late, she said she wouldn't eat breakfast, so I took out a packaged sandwich from the refrigerator. The club room refrigerator had a lot of snacks and convenience foods, so it wasn't bad to take something from there and eat it.</p>
+<p>,I'm going to stop by my house, Sensei-nim."</p>
+<p>Sakagami Rena-ssi had to stop by her house because she wasn't wearing her school uniform. She took a shower with me, so she just needs to change her clothes.</p>
+<p>,See you at school."</p>
+<p>,Yes~! See you later, my lord♥"</p>
+<p>I parted ways with Sakagami Rena-ssi at the entrance of my house and went to school at a fast pace. I was very close to the school and prepared quickly, so I was able to get past being 15 minutes late. Kasaoka Yuzuki-ssi contacted me, but I made the excuse that I was late because I overslept while preparing the exam questions, and she let it go.</p>
+<p>,Are you just coming now? You have to go in for the morning assembly now, Yamashiro-sensei."</p>
+<p>,Ah, I'm sorry."</p>
+<p>Kurayamada Kirie-ssi was preparing the morning assembly in advance, so as soon as I arrived at school, I threw my luggage in the education preparation room and headed straight to the classroom. Sakagami Rena-ssi was wearing her school uniform and came to the classroom without being late. She smiled at me, so I also gave her a nod.</p>
+<p>After finishing the morning assembly in such a hectic manner and returning to the education preparation room, Kurayamada Kirie-ssi gives a strange smile.</p>
+<p>,Yamashiro-sensei, you know, right? Follow me."</p>
+<p>After the morning assembly, Kurayamada Kirie-ssi was trying to drag me to the 5th warehouse again. Now she's just trying to use me as a dildo under the guise of blackmail. Kurayamada Kirie-ssi was trying to take me away as if this was a set routine. But now the situation has completely changed. I stood firmly in that spot and did not follow Kurayamada Kirie-ssi.</p>
+<p>,Yamashiro-sensei?"</p>
+<p>No matter how much she pulled, I didn't follow, so she called my name and looked at me as if she was strange, so I gave her the most vile smile I could.</p>
+<p>,I'm going to try blackmailing you now."</p>
+<p>,Yes?"</p>
+<p>I showed Kurayamada Kirie some of the data I received from Sakagami Rena yesterday. Kurayamada Kirie's expression stiffened as she read it. Then she pulled out a tanto (a dagger, a Japanese sword with a blade length of 1 shaku [30 cm] or less) from somewhere and swung it at me.</p>
+<p>It was a very quick strike, but not to the point where I couldn't avoid it. But I stood still with a confident smile without dodging.</p>
+<p>As I thought, Kurayamada Kirie-ssi couldn't attack me and only ended up aiming the blade right in front of my Adam's apple. There was no murderous intent from the beginning, and I was just standing still because I was confident in my regeneration ability even if she attacked, but as expected, my prediction was correct and it ended with just aiming the sword.</p>
+<p>,If you kill me, one of the people who investigated this data will spread all the data."</p>
+<p>,Keueut...."</p>
+<p>She had only shown a confident smile until now, but she was flustered and glared at me at the same time, which made me a little excited. I took a step forward with a shuffling sound. Kurayamada Kirie-ssi pulled the tanto back as much as the distance I approached.</p>
+<p>I approached and put my hand under Kurayamada Kirie-ssi's skirt. Perhaps she was already excited just by my touch, sticky liquid was creating a long silver line in her pussy.</p>
+<p>,I like your body too, so I'm not going to stop having sex. But from now on, I'll only do it when I want to. You know who will lose if we reveal each other's secret secrets, right?"</p>
+<p>If we reveal the facts we are hiding from each other, I can just go back to the Taira Group, but for Kurayamada Kirie-ssi, it would be at least prison and at most the annihilation of Jinildang. Of course, I would also be behind in the succession structure within the Taira Group because I didn't do my job properly, but my situation was much better than Kurayamada Kirie-ssi's.</p>
+<p>,Since there's nothing else to blackmail with, let's just go to school quietly and give each other our bodies when we want to."</p>
+<p>Where else can you find such a nice blackmail? I'm not asking for money, I'm not raping, I'm just saying let's have sex when we want to since we're going to have sex anyway, I'm not a blackmailer, I'm a gentleman.</p>
+<p>,We're going to do it here today. Lock the door and come."</p>
+<p>,Keueut...! You perverted Bastard...."</p>
+<p>Pervert.... Wasn't it perverted when she took me and ate me? That's harsh. Kurayamada Kirie-ssi didn't seem to understand having sex with students from the classroom right next door, but this special class building was quite soundproof. Of course, if you put your ear to the door and listened, you could hear moans, but you couldn't hear them just passing by.</p>
+<p>,Take off your clothes."</p>
+<p>As soon as Kurayamada Kirie-ssi locked the door and came, I made her undress. Kurayamada Kirie-ssi started to take off her clothes slowly with a glaring look (this time it must be a real glare).</p>
+<p>----</p>
+<p>The reason why Sakagami Rena-ssi's nude illustration yesterday didn't have fishnet stockings</p>
+<p>I'm sure when she was wearing the ninja outfit before, it was just fishnet stockings on bare legs, but when I made it nude, it changed to white stockings....</p>
+<p>Everyone! I'm not a pervert who doesn't know about this stuff!</p>
+<p>Kurayamada Kirie-ssi's ninja outfit!</p>
+<p>Kkieeeek!!</p>

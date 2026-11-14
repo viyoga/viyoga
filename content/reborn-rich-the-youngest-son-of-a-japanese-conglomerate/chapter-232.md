@@ -5,84 +5,74 @@ weight = 232
 chapter = 232
 +++
 
-<p>Seeing Dang So-hwa and Yang Seol-hui facing each other, embracing, their breasts pressed together, and their plump pussy mounds touching as they lay there, my dick naturally hardened like steel.</p>
-<p>Come to think of it, when I was a mentor at the Human Resources Development Institute, I'd done it with ten people, but I'd never done it like this, holding each other and pressing pussies together. Back then, the sex situation was 10-to-1, but I had sex in a 1-on-1 fashion, one after the other.</p>
-<p>Past me, how naively did you have sex? I always have to strive and give my brain new stimulation. If I did it with ten people at the same time, there would be so many things to try, but I just passed it over smoothly... Pathetic bastard.</p>
-<p>I briefly scolded my past self and groped Yang Seol-hui's firm and soft ass, who was lying on top of Dang So-hwa below. Yang Seol-hui's ass changed shape according to my hand movements, seducing me.</p>
-<p>,Huuheung~♥ Do you like my ass?"</p>
-<p>As Yang Seol-hui gently shook her ass, the pussy mounds rubbing against each other created a very arousing scene.</p>
-<p>"Haaheueung~! Shue-ssi, don't shake your ass! Th-there, it's rubbing!"</p>
-<p>"There? You mean p-ussy, Boss?"</p>
-<p>As we learned from the banana-dick debate, Dang So-hwa, who seems like she'd be uninhibited, is surprisingly demure, while Yang Seol-hui, who is usually quiet, has a daring style.</p>
-<p>While kneading Yang Seol-hui's mochi-like ass with both hands, I slightly spread her legs and inserted my dick into Dang So-hwa's hole below.</p>
-<p>"Heueut, so suddenly♥ If you put it in like that, heueut! I can't...!"</p>
-<p>Even if it's sudden, Dang So-hwa's pussy was already drooling wet, like Pavlov's dog, from days of hard sex training, so there was no problem inserting my dick.</p>
-<p>"Aahng~ Please put your d.ick in me too, Ryuta-nim♥"</p>
-<p>"Heungheut! Don't listen to Shue-ssi and haaheut, concentrate on m-my... precious place, heunghat...!"</p>
-<p>As Yang Seol-hui wiggled her ass and acted cute, Dang So-hwa, who was lying under Yang Seol-hui, tightened her pussy to prevent me from pulling out my dick. Perhaps because she had trained in the family's secret martial arts, she seemed to be able to slightly control the involuntary muscles inside her vagina.</p>
-<p>After shaking inside Dang So-hwa for about five minutes, I pulled out my dick and inserted it into Yang Seol-hui this time.</p>
-<p>"Eueung, good, it's good! Heueung!"</p>
-<p>As expected of Yang Seol-hui, who has a sensitive body, she seemed to have come slightly as soon as I inserted it. Oho! Certainly, from threesomes onwards, there was a taste in comparing pussies. Dang So-hwa's pussy, which tightly constricted the entire inside, and Yang Seol-hui's pussy, which wriggled and stimulated every element, felt like they compensated for each other's shortcomings quite a bit.</p>
-<p>I took turns thrusting inside their pussies and then stuck my cum-covered dick into the place where their pussy mounds were facing each other.</p>
-<p>"Heungeuheut! Haaheut! Ryuta! Keut! Haaheut!"</p>
-<p>"Ryuta-nim! I like it, Ryuta-nim's dick, I like your dick so much!"</p>
-<p>As I moved back and forth between the two pussies, both Clitoriss were stimulated at the same time, and both of them made loud moaning sounds.</p>
-<p>I kept rubbing between their pussy mounds, and when the vaginal fluids dried up, I took turns thrusting into each pussy once more to refill the fluids and rubbed between their pussy mounds again. After repeating that several times, I gradually felt the sensation of cumming.</p>
-<p>I pressed Yang Seol-hui tightly with my body. Naturally, the pressure of the Dang So-hwa-Yang Seol-hui pussy sandwich increased even more. Naturally, the adhesion with my dick, which was moving in and out between them, increased, and all three of us experienced increased pleasure.</p>
-<p>"Heueuaang! I like it, Ryuta-nim! It feels strange~♥"</p>
-<p>"Heueut! I'm coming, I'm coming, I'm coming! Heung, eueheut! Hyaaheueut♥"</p>
-<p>"I'm gonna cum!"</p>
-<p>Byuut! Beut! Byuut! Byureut!</p>
-<p>I ejaculated powerfully on their bellies, which were pressed together. Since they had only experienced internal ejaculation until now, they seemed slightly surprised by the new sensation of hot, sticky liquid pouring onto their bellies.</p>
-<p>"H-hot. Is other men's also this hot?"</p>
-<p>"It's warm, Ryuta-nim...!"</p>
-<p>"I don't know why, but my semen tends to be a bit hot."</p>
-<p>Of course, this wasn't the end of the sex. Since they both learned sex from me, they probably know that doing it three or four times is the norm. As I looked at the two of them, I had the silly thought that I had my own private bitch secretly in a Private Beach. Of course, this silly thought made me slightly excited, and my dick hardened again.</p>
-<p>"Who wants to go first?"</p>
-<p>"Of course, I'll go first, Ryuta. Put your hard banana in my... th-there."</p>
-<p>"Please put Ryuta-nim's firm and wonderful dick♥ in me."</p>
-<p>Both of them were seducing me with their own charms. I was momentarily stuck in a stalemate. Have I always been this indecisive? How can I choose when both pussies look so delicious? In the end, I came up with rock-paper-scissors.</p>
-<p>"You two play rock-paper-scissors. I'll fuck the winner first."</p>
-<p>They both looked at me with dumbfounded eyes at my suggestion, but in the end, they played rock-paper-scissors. The winner was Dang So-hwa. It seemed that she had deeply trained in martial arts and ambiguously lowered her hand, then changed her hand shape after seeing what Yang Seol-hui had put out.</p>
-<p>"Hey, that's cheating, Boss!"</p>
-<p>"Ryuta, put it in quickly!"</p>
-<p>Dang So-hwa cheerfully shouted at me, slapping both of her thighs. You'll be moaning in no time even if I put it in... Showing off.</p>
-<p>I looked at Dang So-hwa's face, who was looking at me with expectant eyes, and thrust my dick in. Dang So-hwa felt a small climax as my dick entered her inside and moaned loudly.</p>
-<p>"Heuhyaat! Heueung!"</p>
-<p>See? You'd be like this in no time.</p>
-<p>###</p>
-<p>Before I knew it, it was the last day at the villa. Dang So-hwa and Yang Seol-hui left to take care of the remaining Kurotsuki-doo forces, and I enjoyed my vacation with Yukiko, going on beach dates and visiting attractions an hour away by car.</p>
-<p>Today, I enjoyed the sea to my heart's content on a jet ski. Jet skiing itself was a very physically demanding activity, so I was fine, but Yukiko seemed a little tired. I had fun jet skiing until sunset and returned to the villa.</p>
-<p>"It's a bit cold."</p>
-<p>After jet skiing under the hot sun, I felt a bit chilly when I entered the villa, which had the air conditioning blasting at 18 degrees.</p>
-<p>"I thought you might, so I brought a jacket."</p>
-<p>I gave Yukiko a long pink coat. The swimsuit concept for this trip was gold, whether it was black-gold, white-gold, pink-gold last night, or today's completely golden swimsuit. She also wore golden ornaments in her hair, giving her a goddess-like feel. It sparkled in the sunlight at the beach, dazzling my eyes.</p>
-<p>We went straight to the dining room. Perhaps because it was the last night's dinner, it was set up quite lavishly. In the center of the table was a huge king crab, cooked with its shell turned red, and various delicious dishes were laid out around the king crab.</p>
-<p>"It's a shame it's the last dinner. How would you like breakfast tomorrow morning?"</p>
-<p>"Give it to me around 10 o'clock, brunch style."</p>
-<p>Since I was planning to sleep in a little on the day of departure, I asked Old Man Fukami for a brunch that was neither a late breakfast nor lunch. Fukami-rojin nodded as if he understood and left towards the kitchen. He's probably going to make dessert.</p>
-<p>After finishing our meal and eating dessert, we went up to the second floor. I went up to the second floor and opened my mouth to Yukiko.</p>
-<p>"Yukiko-ssi, you have something you want to say, don't you? Go ahead and say it."</p>
-<p>"Ah...! You noticed?"</p>
-<p>I had seen her trying to say something to me since yesterday, but then she would shut her mouth, so I opened my mouth and asked. Yukiko was the type to not say anything if I just left her alone, so I was curious about what she wanted to say, so I just asked.</p>
-<p>"Ryuta, you filmed a music video in Korea, right?"</p>
-<p>Ah, that's what it was about? And you hesitated so much to talk about this?</p>
-<p>"Is that what you wanted to talk about?"</p>
-<p>"No, actually, Ryuta's appearance in that was so impressive...."</p>
-<p>While speaking, she suddenly disappeared somewhere and came back with a carrier. Why did she suddenly bring a carrier? My question was slightly resolved as Yukiko opened the carrier and took something out.</p>
-<p>What Yukiko took out of the carrier was about seven types of men's school uniforms. One of them was the old Korean school uniform that I wore in the movie. A quarter of Yukiko's many belongings were men's school uniforms, so what is this situation?</p>
-<p>"Uh...."</p>
-<p>"Besides the school uniform you wore in the music video, I got some school uniforms that I thought would suit Ryuta."</p>
-<p>Yukiko took the school uniforms and took me to a certain room. The villa was large, and I was too busy having sex to look around all the rooms, but the room she took me to this time was also a room I had never opened. When I opened it, it was a room that was all green, like a movie set.</p>
-<p>"I wanted to take pictures of you wearing this...."</p>
-<p>Ah.... She was inspired by the music video I filmed, so she got school uniforms that would suit me and remodeled this room into a photography room. The room was made entirely of green chroma key, so all I had to do was put on the clothes and film, since I could composite whatever I wanted.</p>
-<p>Yukiko picked up a huge camera with a lens half the size of her face and made adjustments, and I was so flustered that I couldn't refuse and changed into the school uniform that Yukiko gave me.</p>
-<p>She took almost hundreds of cuts per school uniform, and it took quite a while since I had to do the poses and facial expressions that Yukiko wanted for every single cut.</p>
-<p>The filming ended almost when it was time to sleep, but Yukiko's demands didn't end there. Yukiko gave me a school uniform with a slightly embarrassed expression and asked me to have sex wearing it, saying it was the school uniform of the high school that Yukiko attended.</p>
-<p>According to Yukiko, she had never had a relationship in middle or high school, so she wanted to have sex with me wearing a school uniform. Of course, I allowed it, but unfortunately, Yukiko didn't bring her own school uniform.</p>
-<p>It should be fresh and cute for a school uniform couple, but the current situation is a horny high school student and a tutor with an explosive body. It wasn't fresh and cute at all, it was just raunchy.</p>
-<p>Anyway, Yukiko was very satisfied with the service I provided while wearing a school uniform and gave this vacation a perfect score of 5 out of 5. This is how my summer vacation with Yukiko ended.</p>
-<p>-----</p>
-<p>Pink-Gold Swimsuit</p>
-<p>Yukiko in High School</p>
-<p>She had a slightly colder feel than now, hehe.</p>
+<p>-Besides us, there's another intruder.</p>
+<p>Otagi Yuka heightened her senses upon hearing Eve's voice through the communicator in her ear. However, whatever trick they were using, even a vampire with her keen senses couldn't detect the intruder's presence.</p>
+<p>-Don't worry, it's not Kurotsuki-doo. It seems like they're just a night thief like us.</p>
+<p>Eve's words came as Otagi Yuka continued to look around, trying to find the intruder. Thankfully, it wasn't Kurotsuki-doo. Since it was just a thief, there was no need to worry.</p>
+<p>What an unfortunate situation for the Metropolitan Museum to have thieves overlapping. It wasn't a big deal for Otagi Yuka, but she thought she should quickly secure what she wanted in case they were after the same item, so Otagi Yuka asked Eve.</p>
+<p>,"Where is the item we're after? I need to grab it quickly in case our targets overlap."</p>
+<p>-Just a moment...! Checking the CCTV footage from earlier and the museum's blueprints... It's on the second floor. Go up to the second floor, turn right, and keep going straight.</p>
+<p>Otagi Yuka, listening to Eve's instructions, leaped up the stairs five steps at a time. With her incredible physical abilities, she quickly reached her desired destination and saw the golden sword standing inside a glass case.</p>
+<p>Seeing it up close, she could tell for sure. This golden sword was definitely the item prepared for her. As Otagi Yuka approached, the blade glowed crimson, asserting that the golden sword was a weapon for vampires.</p>
+<p>Just as Otagi Yuka was about to break the glass case containing the golden sword.</p>
+<p>,"Ah!"</p>
+<p>Someone shouted from behind. Otagi Yuka gave up on touching the glass case and turned around to see two girls with blonde hair wearing VR goggle-like devices standing there.</p>
+<p>,"Do you really need that? We were after it too...."</p>
+<p>The thief with slightly lighter platinum blonde hair asked Otagi Yuka. Her face wasn't visible because of the VR goggle-like device, but her voice sounded slightly embarrassed. Otagi Yuka said with a firm expression and voice.</p>
+<p>,"This sword is mine."</p>
+<p>,"But still...!"</p>
+<p>As the platinum blonde thief was about to say something, the blonde thief grabbed her shoulder, stopped her, and whispered in her ear. An ordinary person wouldn't have heard, but Otagi Yuka, being a vampire, could hear what they were whispering.</p>
+<p>,"The sword lost its light when that woman got close. Maybe it's more beneficial for us if she takes it."</p>
+<p>,"So, it's the right thing for that red-haired woman to have it?"</p>
+<p>,"Maybe...."</p>
+<p>They were talking about light and something else that Otagi Yuka couldn't quite understand, but she knew that the two blonde VR thieves were about to give up on her golden sword. That was fortunate. There was no need to spill blood other than Kurotsuki-doo's.</p>
+<p>,"We'll give up the sword, but don't touch the glass case for now. Even though we've blocked everything, each of these glass cases has a built-in sensor with its own power source, so if you touch it carelessly, the security company will come running. We still have a lot to steal, you know? We'll open it for you, so just stand still."</p>
+<p>The blonde thief raised her hand as if to say not to attack and slowly approached. Otagi Yuka also stepped back from the glass case, signaling the blonde thief to proceed. The blonde thief fiddled with the glass case and cut one of the several wires hidden under the display case below the glass case.</p>
+<p>,"There! Now you can take it as you please. You can break the glass or take the whole glass case, whatever you want."</p>
+<p>At the blonde thief's words, Otagi Yuka shattered the glass case. With nothing blocking her from the golden sword, it flew through the air like a magnet and landed in Otagi Yuka's hand. It was a considerably large greatsword, but even though Otagi Yuka held it with one hand, it felt so perfectly suited that she didn't feel its weight. Anyone could see that it was so natural that it really looked like Otagi Yuka was the owner of this golden sword.</p>
+<p>,"Looks like she really is the owner. Let's go get the rest of our stuff then."</p>
+<p>,"Okay~! If you don't have anything else to steal, go back. We'll take our share and leave...!"</p>
+<p>Kwaaaang!!</p>
+<p>While they were talking, a huge explosion was heard from the first floor. All three of them were surprised and looked at each other's faces. Eve's voice was heard from the communicator attached to Otagi Yuka's ear.</p>
+<p>-It's Kurotsuki-doo! He's been avoiding battles at night until now, but seeing him come to find Yuka like this, it seems like he's obtained some new weapon too.</p>
+<p>,"It's okay. With this sword, I'm not afraid of anything."</p>
+<p>Otagi Yuka answered Eve and then turned to the two blonde thieves. Since it was something that happened because of her, she needed to let them know.</p>
+<p>,"The sound from the first floor is probably because of me, so don't get involved and run away."</p>
+<p>,"We can't do that. We have some items we've marked on the first floor too."</p>
+<p>The blonde thief duo refused to flee and went down to the first floor with Otagi Yuka.</p>
+<p>On the first floor, a black SUV had crashed through the entrance of the museum, and dozens of Muyoungdae goons with guns were standing around, aiming their weapons.</p>
+<p>Tang tang tang tang!!</p>
+<p>As soon as Otagi Yuka, who was leading the way, revealed herself, a barrage of Muyoungdae bullets rained down. Until now, she had no choice but to avoid the silver bullets, but Otagi Yuka scoffed and swung the golden sword in her hand.</p>
+<p>Akagamikiba-style Chiyahankyō (Mirror Reflecting a Thousand Arrows)</p>
+<p>Otagi Yuka swung the sword so quickly that it looked like a disc, deflecting the bullets. All the deflected bullets returned to the Muyoungdae goons. They were wearing tech armor, so they weren't injured by the deflected bullets, but it was an incredible feat to deflect and bounce back the bullets.</p>
+<p>After deflecting all the bullets, Otagi Yuka charged forward at an incredible speed and swung her sword vertically. A mixture of golden and red blood energy split one of the Muyoungdae in half.</p>
+<p>While Otagi Yuka had drawn their attention, the two blonde thieves tried to cross the stairs towards the items they wanted, but they were mistaken for accomplices by the Muyoungdae, and bullets rained down on them as well.</p>
+<p>,"Tch!"</p>
+<p>The bodysuits worn by the two blonde thieves had considerable defensive power, as they didn't seem to be in any pain or injured even after being hit by several bullets.</p>
+<p>,"Eat this!"</p>
+<p>The platinum blonde thief threw a small black disc that looked like a hockey puck. The black disc fell to the floor where the Muyoungdae were gathered and emitted electricity.</p>
+<p>In an instant, more than ten Muyoungdae were electrocuted and collapsed, and as Otagi Yuka cut down two more, the back door of the black SUV that had been sitting still after crashing through the museum's main gate opened.</p>
+<p>Muyounggwi got out of the SUV, dragging a large steel coffin. At that moment, everyone in the museum couldn't take their eyes off Muyounggwi and the black coffin. It was excessively ominous. Even the two blonde thieves, who had thrown the black disc and were trying to escape, stopped and looked at Muyounggwi and the coffin.</p>
+<p>It was that moment.</p>
+<p>Ppiyong ppiyong ppiyong ppiyong!</p>
+<p>Police sirens sounded, and the sound of people getting out of cars was heard. Someone must have seen the SUV crashing into the museum's main gate and reported it. Soon after, the police's voice came through a loudspeaker.</p>
+<p>,"Criminals inside the museum, listen up! If you come out with your hands up right now, we will not fire. But if we go in, there will inevitably be bloodshed!"</p>
+<p>Muyounggwi chuckled at the police's words outside. And he snapped his fingers in the black mist. Then, a fallen corpse stood up. It was a corpse that had been electrocuted to death. The corpse raised both hands as if surrendering and went outside.</p>
+<p>Kwaaaang!</p>
+<p>An explosion was heard a few seconds later. Everyone except Muyounggwi and the Muyoungdae widened their eyes in surprise. Soon after, the corpse that had been beheaded by Otagi Yuka stood up and went outside again. And then another explosion. As the roar and vibration of the explosion stopped, laughter was heard from the black mist where Muyounggwi was.</p>
+<p>,"Keukeukeu.... Now that the interrupters are gone, shall we start again?"</p>
+<p>Muyounggwi's laughter was a sinister laugh that shook the soul as he opened the coffin. The coffin opened with an unpleasant creaking sound, revealing a corpse that could only be called a knight wearing a black helmet and black armor.</p>
+<p>,"Arise."</p>
+<p>At Muyounggwi's words, the black knight lying in the coffin stood up. Something like the black smoke that Muyounggwi was wearing was leaking out from the gaps in the armor, making it look very ominous.</p>
+<p>Blue lights flickered from between the closed helmet, and he raised a huge sword placed in the coffin and pointed it at Otagi Yuka. Otagi Yuka also raised her golden sword upwards, taking a high stance so she could strike down at any moment, not backing down.</p>
+<p>,"Kill."</p>
+<p>Following Muyounggwi's words, the black knight ran towards Otagi Yuka with heavy footsteps. Although the footsteps had a heavy, dull feeling, each step was incredibly fast, so he was not to be taken lightly.</p>
+<p>,"Shall we get rid of the small fries in the meantime?"</p>
+<p>,"Small fries! We're the world's greatest phantom thieves, François!"</p>
+<p>,"Seeing him hiding in the mist, he must be ugly!"</p>
+<p>When Muyounggwi pointed a large scythe at the blonde thieves, no, the phantom thieves François, and called them small fries, they yelled back, annoyed at being treated as such. Then, realizing that they couldn't avoid the battle, they both pulled out the pistols attached to their thighs.</p>
+<p>,"Let's see who the small fries are...!"</p>
+<p>,"We're going to see what's in the mist!"</p>
+<p>The two phantom thieves François said, aiming their pistols with skillful postures.</p>
+<p>-----Otagi Yuka Unused Illustrations</p>
+<p>Even if I wrote gold sword, only ordinary swords came out, so I failed to illustrate it ㅠㅠ</p>

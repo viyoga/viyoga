@@ -5,56 +5,67 @@ weight = 923
 chapter = 923
 +++
 
-<p>20 years ago.</p>
-<p>Takakusaki Gengo watched his Father die before his Eyes.</p>
-<p>His Father, whom he thought was the strongest in the World, was defeated in a fight with an unknown Person, and he witnessed it in real-time at that Scene.</p>
-<p>Although his Opponent was not a fellow Martial artist, but rather a Magician like those seen in movies, comics, or novels, it was the first time his Father had been so powerlessly defeated. His Father's Appearance, unable to land even a single Fist on that Face, left Takakusaki Gengo with a deep, indelible humiliation.</p>
-<p>「Is this the Skill of one of Japan's best? Does the Martial art of a human, made of Blood and flesh, ultimately have a Limit?」</p>
-<p>The Opponent who killed his Father, the Magician, muttered as he looked at Takakusaki Gengo's dying Father, as if disappointed. Those Words pierced deep into Takakusaki Gengo's Mind, becoming an unhealable wound.</p>
-<p>And the last Words spoken while looking at Takakusaki Gengo also became Words Takakusaki Gengo would never forget in his Life.</p>
-<p>「If you believe the Power your Father showed is not the end of Martial art, come to me anytime. I will give you a chance for boksu.」</p>
-<p>The Magician who killed his Father left a contact info and disappeared with those Words. Takakusaki Gengo told no one about the Person who killed his Father. He merely announced at the funeral that his Father had died in a Duel.</p>
-<p>Takakusaki Gengo, who was not yet an Seongin, became the adopted Son of Soda Haruto, the current successor of Shinkai Yatsude, who was his Father's best friend and rival.</p>
-<p>Soda Haruto willingly accepted his friend's Son as his own. Although he didn't change his surname, he truly treated him like a Son. Although he didn't teach him Shinkai Yatsude, he often gave advice during Takakusaki Gengo's Training and sometimes became his Duel opponent.</p>
-<p>As his Father's rival, the Shinkai Yatsude that Soda Haruto had mastered was strong. To Takakusaki Gengo, Shinkai Yatsude seemed less like a Fist Technique and more like the Ability of that Magician.</p>
-<p>As he trained relentlessly, when he thought his father's martial art, Tetsue Shintoryu (鐵重 神道流), wouldn't be enough against that magician, the strange power of Shinkai Yatsude caught Takakusaki Gengo's eye.</p>
-<p>Takakusaki Gengo wanted to be taught Shinkai Yatsude by Soda Haruto, but Shinkai Yatsude was a one-line transmission Martial art, and Soda Haruto had a young Disciple.</p>
-<p>「Gengo, are you my Older Brother now?」</p>
-<p>Takakusaki Gengo, who still had some humanity left at the time, couldn't bring himself to think of killing the young Fujigasaki Rinka, whom he had known since before, and becoming the Disciple himself. He merely stroked Fujigasaki Rinka's Head, who was looking at him with an Innocent Expression.</p>
-<p>Thus, Takakusaki Gengo temporarily set aside his desire for Shinkai Yatsude, but at the Words of Serihara Tamijiro, a mutual friend of his deceased Father and adoptive Father Soda Haruto, he began to burn with desire again.</p>
-<p>No, perhaps he hadn't set aside his desire from the beginning. Takakusaki Gengo's desire for Power might have merely remained like a small ember, only to be rekindled by the Words of encouragement from the Side.</p>
-<p>- You know that your current Martial art alone is not enough for boksu, don't you? If you can't learn it directly, why not steal it and learn it?</p>
-<p>Hearing those Words, Takakusaki Gengo, using the excuse of gratitude for being taken in when he had nowhere to go, began to take charge of the Dojang's cleaning from that day on. Under the excuse of cleaning the Dojang every day, he secretly installed Cameras here and there, filming Shinkai Yatsude's Intimate Posture and Soda Haruto's Teaching to learn them.</p>
-<p>As Fujigasaki Rinka was a beginner who had only recently started learning Shinkai Yatsude, Takakusaki Gengo was fortunately able to learn Shinkai Yatsude almost from the Early Stage.</p>
-<p>Reducing his Sleep every day and staying alone in the Dojang until late to master Shinkai Yatsude was an extremely arduous Work. But Takakusaki Gengo, intoxicated by new Power, didn't feel the hardship and stole Shinkai Yatsude for several years without being caught.</p>
-<p>After several years passed, Takakusaki Gengo had mastered all of Shinkai Yatsude. He was 25 years of Age then.</p>
-<p>Of course, he hadn't mastered all the essence of Shinkai Yatsude, but he had reached a Level where Soda Haruto's Teaching was no longer necessary. It was a Time for him to train alone, contemplate himself, and build his Power through Actual combat.</p>
-<p>Thus, he had successfully deceived Soda Haruto for several years, but eventually, a long Tail gets stepped on. By chance, he was caught by Soda Haruto having mastered Shinkai Yatsude, but Serihara Tamijiro, who had told Takakusaki Gengo that there was also a Method of stealing Shinkai Yatsude, was also present.</p>
-<p>Serihara Tamijiro, who had always felt jiltu towards his friend Soda Haruto's Skill and character, willingly lent his Power to Takakusaki Gengo. Thus, Soda Haruto was betrayed by his adopted Son and close friend, disappearing and leaving behind 14-year-old Fujigasaki Rinka.</p>
-<p>Serihara Tamijiro confined Soda Haruto and Tortured him to obtain the Shinkai Yatsude he also coveted, while Takakusaki Gengo began to fuse Shinkai Yatsude with his Father's Martial art, Tetsue Shintoryu.</p>
-<p>But Takakusaki Gengo, still feeling something lacking, collected various ancient Martial arts and Jusul, striving to create a new Martial art. The standard, of course, was a Martial art powerful enough to kill the Magician who killed his Father.</p>
-<p>What was created as a result was Takakusaki Gengo's ultimate technique, Mumatsu Anya (無末暗夜). It meant 'endless dark night,' but secretly, it suggested that it was formed by blending various martial arts, much like countless colors combine to create a murky black.</p>
-<p>While he was completing Mumatsu Anya and wandering the country, obsessed with the perfection of Martial art, he coincidentally met Fujigasaki Rinka, who was a high school Student.</p>
-<p>Because rumors had spread in the Martial arts world that Takakusaki Gengo had mastered a suspicious Martial art using black Aura under the name 'Kwonma,' Fujigasaki Rinka already believed Takakusaki Gengo had stolen Shinkai Yatsude.</p>
-<p>「Takakusaki Gengo! How could you repay such a Favor with such Betrayal? To steal a Martial art, that's everything to a Martial artist!」</p>
-<p>Fujigasaki Rinka was truly filled with anger, but she didn't consider that Takakusaki Gengo was responsible for Sabu Soda Haruto's disappearance.</p>
-<p>At the time of Soda Haruto's disappearance, she didn't think Takakusaki Gengo's Skill was enough to defeat his Sabu, and even if he had stolen a Martial art, she couldn't imagine Takakusaki Gengo would harm his adoptive Father, Soda Haruto.</p>
-<p>Therefore, Fujigasaki Rinka believed her Sabu had disappeared for some other Reason. The Reason they met that day was that rumors circulated about the Place being a secluded Training spot favored by Fist Technique practitioners, and she went there hoping to meet her Sabu, but it was Takakusaki Gengo who was actually Training at that Place. Fujigasaki Rinka, who had suffered mentally after her Sabu's disappearance, exploded with accumulated anger.</p>
-<p>The battle eventually ensued. Takakusaki Gengo, who had created and endlessly developed Mumatsu Anya, was underestimating Fujigasaki Rinka, who was merely a high school Student. At that time, he was in his late twenties, the prime Age for a Martial artist, and he was convinced that Fujigasaki Rinka, a Woman and a high school Student, was no match for him.</p>
-<p>But that dismissive thought proved to be a Mistake less than a minute after the fight began.</p>
-<p>With her excellent combat Sense, Power that overcame the physical Limits of being a Woman, and techniques close to perfection, he understood why Soda Haruto had taken Fujigasaki Rinka as his Disciple instead of him.</p>
-<p>Despite being merely a high school Student, she possessed Skill comparable to his own. Fujigasaki Rinka had already surpassed Sabu Soda Haruto.</p>
-<p>The two, who fought to the point where the surrounding Scenery was completely shattered, could not reach a Showdown and stopped fighting with the arrival of the police, and that fight became an Opportunity for Takakusaki Gengo to realize that he shouldn't continue as he was.</p>
-<p>After the battle with Fujigasaki Rinka, Takakusaki Gengo obsessively reviewed countless data and discovered that the Power of Shinkai Yatsude came from a being called an Oeisin, and he also learned that there were other beings with such Power in the World.</p>
-<p>「This is it!」</p>
-<p>Takakusaki Gengo thought. The Power to avenge his Father, the Power to defeat that Magician! That was this Oeisin Existence.</p>
-<p>By now, the boksu for his Father had become a blurry Situation, but Takakusaki Gengo was always chasing Power due to the influence of that Incident.</p>
-<p>The Magician who killed his Father had already become Takakusaki Gengo's Goal in Life. His Father's Face was no longer a memory, but he remembered the Face of the Magician who killed his Father with such clarity.</p>
-<p>Now that he had discovered a new source of Power, the Oeisin, he became engrossed in the thought that if he made that Power his own, he could reach the Realm of the Magician he had seen.</p>
-<p>Young Rinka Sabu B-cut!</p>
-<p>I don't know why tiny Ryuta keeps appearing hehehe</p>
-<p>High school Sabu B-cut~!</p>
-<p>Toilet Byeontae Chieri, requested by TheDreaming-nim~! Tied with batjul, 1. Blindfold VER. 2. Sobbing with M-Shape Legs~!</p>
-<p>1.</p>
-<p>2.</p>
-<p>M-Shape Legs are surprisingly difficult to achieve hehe. I've been struggling with them for a while and wondering what prompt to use, but trying it today, it seems I still can't get a satisfactory Intimate Posture hehe.</p>
+<p>Receiving the sunlight pouring from the window, I opened my eyes. Looking beside me, Saionji Diana was sleeping soundly, clinging to me with her arm as a pillow.</p>
+<p>I carefully got up so Saionji Diana wouldn't wake, but perhaps because her Sensation was so acute, she immediately opened her eyes.</p>
+<p>"Did you sleep well?" "Yes...."</p>
+<p>I kissed Saionji Diana's forehead, who was looking at me with a drowsy Gaze and smiling, then fully got up from my seat.</p>
+<p>"Teacher-nim...." "Hm?" "My Legs, please...."</p>
+<p>Ah, that's right. I picked up one of Saionji Diana's Legs, which was lying in a corner of the bed, and handed it to her. Saionji Diana, with a slightly embarrassed Expression, took the Leg and attached it to her Body.</p>
+<p>I don't know what Technology was used, but with a Clink sound, it attached to her Pelvis, and the seams were barely visible, making it look completely natural.</p>
+<p>The reason she fell asleep with her Leg removed was that after having frenzied Sex until Dawn yesterday, during various Play, Saionji Diana, exhausted from Sex, fell asleep with her Leg off, leaving one Leg rolling around on the bed like this.</p>
+<p>"We're still meeting today, right?" "Yeah, we decided to meet to handle the aftermath. We also need to organize what we've gained, and there are other matters."</p>
+<p>In fact, Combatants like Saionji Diana or Otagi Yuka didn't necessarily have to participate, but since they all possessed the qualities to become future Executives, having them participate in Meetings like this to foster their qualities was also a necessary task.</p>
+<p>"Can I shower first?" "Yes. Go shower first."</p>
+<p>Saionji Diana said she would shower first and ran to the Shower Room, covering her breasts and groin. Although they had indulged in wild Sex until Dawn today, Saionji Diana still had a girlish side that felt shy.</p>
+<p>While Saionji Diana went to shower, I decided to organize the Achievements gained from killing Takakusaki Gengo.</p>
+<p>First, I brought up the Achievement Window before my eyes. I had expected only one Achievement, but surprisingly, three appeared.</p>
+<p>Mythical Achievement! You have defeated the Transcendent Being, Endless Despair! Damage against Transcendent Beings increases by 15 percent. * *Legendary Achievement! You have defeated a Transcendent Being! Your potential Grade has increased, and your Max Level increases by 1!</p>
+<p>Great Achievement! You have personally witnessed the birth of a Transcendent Being! Your Luck Stat increases by 2!</p>
+<p>Surprisingly, the System seemed to recognize Takakusaki Gengo as a Transcendent Being. Perhaps because of that, the Rewards were quite generous.</p>
+<p>Seeing that defeating the individual Endless Despair and defeating a Transcendent Being were counted as separate Achievements, it seemed I might receive Achievement Rewards for individual kills even if I deal with another Transcendent Being later.</p>
+<p>The Endless Despair defeat Reward, being a Damage increase against Transcendent Beings, had limited versatility, but it would likely be useful later since Boss-level enemies would eventually be Transcendent Beings who had surpassed Level 20.</p>
+<p>The second Legendary Achievement Reward was even better. The Max Level increase Reward offered a chance to transcend past Max Level 20 (though leveling up after reaching Level 20 was extremely difficult). Even gamers highly valued this Reward.</p>
+<p>I already had a +1 Max Level bonus, so my Max Level became 22.</p>
+<p>The final Reward was also not bad; the Luck Stat could not be increased through Stat investment, only through Achievements or special Traits and Items, as it was now. Since my Luck was already very low, a +2 Luck increase could be considered a very good Reward.</p>
+<p>Wait.... But if the Achievement acquisition condition is witnessing the birth of a Transcendent Being oneself.... it seems to apply to everyone who saw Takakusaki Gengo transform into Endless Despair in that Donggul? I'll have to check with the Ruins' Glasses later.</p>
+<p>So, next is Level Up? I should choose a Trait first today.</p>
+<p>LEVEL UP!</p>
+<p>Please select a Trait.</p>
+<p>①Golden Blessing ②Modification Efficiency ③Flame Affinity</p>
+<p>"Ah! Golden Blessing...!"</p>
+<p>I admired the Trait that appeared this time. Golden Blessing was a Trait related to Luck, as I mentioned when explaining the Achievement just now.</p>
+<p>It was simply a Trait whose Effect improved with higher Luck Stats. When acquiring Golden Blessing, the Effect was good only if the Luck Stat was 10 or higher, so for me, whose Luck Stat had risen by 2 to 7 this time, it was an inefficient Trait.</p>
+<p>Besides Golden Blessing, the other Traits were also useless to me. I was a no-Modification Character with the "Innocence Praise" Trait, so Modification Efficiency was completely useless, and since I had no Flame Technology, Flame Affinity was equally useless.</p>
+<p>As expected, with a Luck Stat of 7, no good Traits appeared immediately. In the end, I'll have to reroll this time too. Can't be helped.</p>
+<p>With the [Potential Enhancement] option of Item [Yeouiju], you can change the Traits selectable upon Level Up to random Traits of a higher Grade. Would you like to change?</p>
+<p>As I decided to reroll, the previous choices disappeared, and new choices appeared before my eyes.</p>
+<p>Please select a Trait.</p>
+<p>①Super Absorption ②Summon Coordinates:ዐክፕ ዕዐ ቻዪዐዪ 0074, ክጎጠ-ጊ0565 ቻ ③Physical Body Overconfidence</p>
+<p>This time, instead of completely useless Traits like before, some decent, usable Traits appeared.</p>
+<p>Super Absorption was a good Trait for Characters with Alchemy or Restriction Traits, or for those who had such Characters as Colleagues. It was a Trait that received 1.3 times the Effect of Potion-type Items, including Potions and Allyak. It was a very good Trait because it could receive a 1.3x option not only for temporary Effects but also for Elixir-type Items that provide permanent Effects, but it also had the downside of receiving 1.3x Side Effects and increasing Dependency on Medicine/Drug.</p>
+<p>The second, Summon Coordinates, was a coordinate where a tameable Summoned Beast existed, but since the coordinates of cheat Summoned Beasts were already known, and the rest were either not great or had high Danger, it was the right Choice to skip if the coordinates were unknown. The coordinates that appeared now were highly likely to be a dud, as I didn't remember them at all.</p>
+<p>The last, Physical Body Overconfidence, though its name suggested a Physical Body Stat Trait, was actually a Mental Power Superpower-type Trait. It was a Trait that added 30 percent of the Strength Stat to the Will Stat, which is the main Stat for Mental Power Superpowers.</p>
+<p>For reference, Mental Power Superpowers included Telepathy used by Lianna Holden, precognition used by Sawayanagi Azuma, and Telekinesis used by me. For reference, Superpowers like Shadow Domination or Pyro Kinesis were calculated using the average Mental Stats, so they were not greatly affected by this Trait.</p>
+<p>In the end, my Worry was whether to choose Super Absorption or Physical Body Overconfidence, and I ultimately chose Physical Body Overconfidence, which always applied to me. I chose Physical Body Overconfidence, a constantly active Trait, because Super Absorption required finding Alchemy or Restriction Colleagues, and the Trait only applied while consuming Medicine/Drug or Potions.</p>
+<p>◆Physical Body Overconfidence [Unique Trait]: Mental Power increases with infinite Belief in one's own Physical Body. Applies to Mental Power Superpowers that use the Will Stat. When using Superpowers, 30 percent of the Strength Stat is added to the Will Stat, the main Stat.</p>
+<p>Now that I had chosen a Trait, all that remained was Stat investment. I opened the Status Window to check my current Status.</p>
+<p>◆Name: Jin Yongtae/■■■/Taira Ryuta/Yamashiro Ryuta: Lv16</p>
+<p>Stats</p>
+<p>Physical Body Strength:16 Agility:13 Stamina:16 Resistance:21 Recovery:12 Sensitive Nerves:12 Appearance:17</p>
+<p>Mind Intelligence:8 Knowledge:8 Focus:7 Will:20 Creativity:6 Charm/Allure:15 Judgment:5</p>
+<p>Other Luck:7 Creation Chaos:18</p>
+<p>Skills ◆Creation Chaos Style [Mythical+ Fist Technique] ◆Black Maitreya Art [Unique Legacy Technology] ◆Shadow Domination [Unique Technology] ◆Telekinesis [Narrative Technology] ◆Telekinetic Reaction Shield [Narrative+ Technology] ◆Magic Circle Usage [Narrative Magic] ◆Acting [Special Technology] ◆Education [Special Technology] ◆Linguistics-English language [General Technology] ◆Management [Special Technology]</p>
+<p>Traits ◆Regeneration [Growth Trait] ◆New Killing Spear [Legendary+ Trait] ◆Adult's Sensation [Unique Trait] ◆Limit Break: Will [Unique Trait] ◆Creation Chaos Affinity [Legacy Trait] ◆Seal of the Opposing Chaos Boundary [Unique+ Trait] ◆Telekinesis [Narrative Trait] ◆Cambion's Physical Body [Legendary Trait] ◆Magic Circle [Gift to Lizhael of the Opposing Chaos Boundary] [Legendary Trait] ◆Innocence Praise [Legacy Trait] ◆Stigma of the Opposing Chaos Boundary [Unique Legacy Trait] ◆Chaos Body - Creation [Unique Legacy+ Trait] ◆Saint of Fist Technique [Unique Trait] ◆Holy Shaft [Unique Trait] ◆Telekinetic Reaction Shield [Unique Trait] ◆Dragon Slaying [Legacy Trait] ◆Spectral Skin [Limit Break Trait] ◆Telekinetic Body [Unique Trait] ◆Physical Body Overconfidence [Unique Trait]</p>
+<p>My Will Stat was exactly 20. If I invested just 1 more point, I could break through the Stat Limit and obtain a Limit Break Trait. Then, for the remaining Stat point, I should raise Sensitive Nerves, which was the lowest among the Physical Body Stats. Sensitive Nerves was a useful Stat for reflexes, meaning for Evasion of an Opponent's Attack or exploiting their momentary Weakness, so a Fighting-type Character like me needed to invest quite a bit in it.</p>
+<p>First, I invested in Sensitive Nerves to make it 13, then raised my Will Stat, which was 20. As my Will broke through 20 and became 21, another translucent window appeared before my eyes.</p>
+<p>-Your Will Stat has broken its Limit. The Efficiency of your Will Stat greatly increases. You strongly resist Mental Power Technology inflicted by Opponents, the Output of Mental Power Superpowers increases, and Will consumption decreases. You acquire the Limit Break Trait, Will of Destruction.</p>
+<p>◆Will of Destruction [Limit Break Trait]: The Power of Superpowers using the Will Stat greatly increases. Opponents affected by Superpowers using the Will Stat receive the  Dibeopeu for 4 seconds and take more Damage from Mental Power Superpowers.</p>
+<p>Since Limit Break Traits appeared randomly among the Limit Break Traits for each Stat, I was both expecting and worrying about what Limit Break Trait would appear, but a considerably good Trait appeared.</p>
+<p>Will of Destruction was one of the best Traits desired by Telekinesis Users, so it could be said to have turned out better than my Expectation. This Level Up, both the chosen Trait and the Limit Break Trait, all turned out to be suitable for Telekinesis.</p>
+<p>Until now, I had used Telekinesis for Telekinetic Flight or merely to block Opponent attacks, but with Traits like these appearing, I could try using it a bit more aggressively.</p>
+<p>A little after I finished selecting the Trait, Saionji Diana, wrapped in a Shower towel, entered the Room, saying she was all clean.</p>
+<p>I immediately pulled Saionji Diana with Telekinesis.</p>
+<p>"Kyaaak...!"</p>
+<p>Saionji Diana was already lying beside me. I could use Telekinesis with much less Power than before, and with greater smoothness and precision. I slapped Saionji Diana's buttocks and got up from the bed.</p>
+<p>"I'm going to shower." The Rewards from the Takakusaki Gengo Raid were considerable, so I could enjoy a pleasant Shower from Morning.</p>
+<p>Requested by TheDreaming-nim, Exposure Maid Mari and Exposure Maid Mari's Masturbation~! Exposure Maid Mari~! Exposure Maid Mari Masturbation~!</p>

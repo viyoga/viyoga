@@ -5,53 +5,87 @@ weight = 113
 chapter = 113
 +++
 
-<p>"Excuse me."</p>
-<p>Suzuki Chisami greeted me and got into my car. It was a two-night, three-day business trip, so I didn't have that much luggage.</p>
-<p>"Is the travel time okay?"</p>
-<p>"The flight leaves at 10, so we have plenty of time, Deputy Team Leader-nim."</p>
-<p>There were two airports near Tokyo: Tokyo International Airport, called Haneda Airport, and Narita International Airport. Haneda Airport had more domestic flights, making it easier to catch a plane, but Narita International Airport was closer to Chiba Prefecture, where the Human Resources Development Institute was located, so I booked a ticket to Narita International Airport.</p>
-<p>"Did you prepare all the necessary documents?"</p>
-<p>"Yes, I put them in my bag this morning."</p>
-<p>The conversation in the car was almost entirely work-related. It wasn't much of a conversation, as the two of us didn't even say ten sentences combined, so silence lingered for the 30 minutes to the airport.</p>
-<p>After getting out of the car, we took our luggage and went to the airport. Our destination was Akita Prefecture. It was a prefecture in the Kita-Tohoku region of Tohoku, and it was a famous granary in Japan. Perhaps because of that, the headquarters of Taira Foods was located there.</p>
-<p>For reference, Minami-Tohoku in Tohoku had Fukushima, famous for the nuclear accident. The headquarters of Minamoto Foods was located there.</p>
-<p>As a granary, rice production was high, and naturally, the sake made from that rice was also famous. I should buy some sake as a gift this time.</p>
-<p>Also, Akita is said to be a place with many beautiful women, so I should take a look with some expectations. But I wasn't really expecting much. Because it was a rural area with many granaries, the population was aging. How many young women could there be? Even if there were young women, they would have gone to cities like Tokyo or Chiba to find jobs.</p>
-<p>I don't know if Suzuki Chisami intended it or not, but our plane seats were separated. Well, that's good for me. I can go comfortably without paying attention to Suzuki Chisami.</p>
-<p>Since the flight time was about an hour, the total travel time one way, including the time to go to the Kita-Tohoku branch of the Human Resources Development Institute, was about two hours.</p>
-<p>I'm glad we were flying, because as I found out separately, it would take a whopping 7 hours to drive from the Human Resources Development Institute to the Kita-Tohoku branch. If I hadn't gone by plane, I would have had to drive for seven hours with Suzuki Chisami's hellish silence.</p>
-<p>During the flight, I read the materials I had brought. Today, I had to look around the Kita-Tohoku branch, and the next day, I had to look around Taira Foods, where they mainly receive training. Finally, I had to wrap up at the Kita-Tohoku branch again in the morning and take the afternoon flight back. Well, Suzuki Chisami will do all the work, and I just have to watch and assist, so there's nothing particularly difficult.</p>
-<p>After getting off at Akita Airport, I took a rental car that I had booked online and went to the Taira Human Resources Development Institute Kita-Tohoku branch, located north of Akita City in Akita Prefecture.</p>
-<p>The Kita-Tohoku branch was much smaller than the main Human Resources Development Institute, which had a slightly larger building and an auditorium about the size of a basketball court. Well, it didn't need to be that big, since only Taira Foods and its subcontractors in the Tohoku region came to receive training.</p>
-<p>"Oh my~! You've worked hard to come here!"</p>
-<p>"No, it's nothing. Thanks to you, I came comfortably."</p>
-<p>The person who greeted us was the head of the Kita-Tohoku branch, Matsuhira Ginichiro, a balding man in his mid-50s with a short beard and a big nose. Matsuhira Ginichiro was quite jovial, bowing to Suzuki Chisami, who was only about half his age.</p>
-<p>Even though the branch manager is much higher in position than Suzuki Chisami, who is a deputy team leader. Something smelled fishy. Maybe he wants more support or something.</p>
-<p>"I'm Suzuki Chisami, Deputy Team Leader of Education Support Team 2, and this is Taira Ryuta, an employee."</p>
-<p>"...Taira?"</p>
-<p>Suzuki Chisami and Matsuhira Ginichiro exchanged business cards, and after I gave Matsuhira Ginichiro my business card, I received a business card from Matsuhira Ginichiro.</p>
-<p>In the early days of joining the company, I was also educated on business card etiquette by my mentor, Mimata Chieri, who said that it was polite for the junior to hand over the business card first, and then the senior to give the business card. I also learned that you should always stand up when giving and receiving business cards, and give them in a way that is easy for the other person to read.</p>
-<p>And while going on outside work with Shinoe Misano, I often exchanged business cards with people from other companies, so I was able to practice, and now I have become a working person who can skillfully exchange business cards.</p>
-<p>"Let's go for lunch first!"</p>
-<p>Since the arrival time was close to 12 o'clock, we followed Matsuhira Ginichiro to the restaurant. The restaurant that Matsuhira Ginichiro took us to was a high-end sushi restaurant.</p>
-<p>As expected, the rice was delicious because it was a granary. Akita City faces the sea to the west, so the fish was also not bad.</p>
-<p>"By any chance, is Taira Ryuta-gun... from the main family?"</p>
-<p>"Yes, my mother is the Director-nim of the Human Resources Development Institute."</p>
-<p>"Ah~! I asked because the surname was Taira, but you're the Director-nim's son!"</p>
-<p>Mitsuhira Ginichiro clapped his hands and rejoiced at my answer. Did he interpret the arrival of the son of the Director of the Human Resources Development Institute as meaning that he would pay more attention to the branch? I just came for experience.</p>
-<p>"Please tell your mother. The Kita-Tohoku branch needs a little more budget. There were many applicants from Taira Foods and related companies this time. So naturally, many people flocked to our Kita-Tohoku branch, and what I did at that time was..."</p>
-<p>Mitsuhira Ginichiro was a talkative man. He started talking to me about what he had achieved while being in this branch, and he didn't shut his mouth for almost thirty minutes. Ah, so this is what it feels like to have blood coming out of your ears...</p>
-<p>And Suzuki Chisami was getting more and more angry because he was talking to me for thirty minutes without even looking at her. I know Suzuki Chisami's personality, but Matsuhira Ginichiro didn't know, so he'll pay the price later when Suzuki Chisami shakes up the branch.</p>
-<p>After the long lunch, we started auditing the branch's education team and education support team, following Matsuhira Ginichiro's lead. Suzuki Chisami found that the branch's education team was not following the revised education content we sent, as if possessed, and Matsuhira Ginichiro's face next to her also rotted.</p>
-<p>Now that he realized that he had been rude to Suzuki Chisami at lunch, Matsuhira Ginichiro didn't know what to do, but he couldn't stop Suzuki Chisami, who was even picking fights with me, who is directly related to the Chairman. I didn't have much to do. I was just doing simple things like checking if they were following the checklist I had made in advance, and putting an X if they weren't. Of course, there were far more X's than checks.</p>
-<p>Watching Suzuki Chisami work without hesitation, I kept suspecting. There must be something backing Suzuki Chisami up to be able to act so confidently. In the jungle of the company, politics was as important as skill. Korean companies are like that, but Japanese companies value politics even more, and the future is determined by whose line you are on.</p>
-<p>The fact that Suzuki Chisami came to the position of Deputy Team Leader while acting so arrogantly meant that someone was backing her up. Suzuki Chisami must have believed that and picked a fight with me openly. Recently, the head of the personnel department, Nadachi Tojo, was eliminated, and Jiro's line was transferred to other places in large numbers, so Suzuki Chisami was a little quieter, but I didn't know when she would go wild again.</p>
-<p>But seeing someone else being treated the way I was being treated was somehow fun, especially Matsuhira Ginichiro's expression rotting every time Suzuki Chisami pointed something out, which was a little funny.</p>
-<p>After Suzuki Chisami shook up each education team and education support team in the branch, almost 5 hours had passed, and it was close to 7 o'clock. Matsuhira Ginichiro showed off his smiling skills with a distorted face and patted Suzuki Chisami on the shoulder.</p>
-<p>"Haha, you're really working hard. Today, there's a dinner with the president of Taira Foods, so let's go quickly."</p>
-<p>Nagumo Sian, the president of Taira Foods, was one of the many subsidiary presidents of the Taira Group and was famous as one of the few female presidents. Originally, she was the president of a company that produced small retort foods, but she was scouted by Taira Danjo and became the president of Taira Foods. Since then, she has raised Taira Foods' market share, which had been far behind Minamoto, to almost the same level over the past ten years.</p>
-<p>As Nagumo Sian was a president directly scouted by Taira Danjo, she did not side with Ichiro, Jiro, or Kokoro, but only pledged allegiance to Chairman Taira Danjo, so the three successors were also trying to make her a person who was friendly to them as much as possible without antagonizing her.</p>
-<p>Suzuki Chisami couldn't get angry in front of such a great Nagumo Sian, so she nodded at Matsuhira Ginichiro's words.</p>
-<p>"We can't make the president wait. Isn't it too late?"</p>
-<p>"Don't worry. The appointment time is 7:30, so..."</p>
-<p>Matsuhira Ginichiro's expression wasn't good at the sudden change in attitude, but Suzuki Chisami didn't seem to care.</p>
+<p>,"Doesn't just breasts get you going?"</p>
+<p>With Mimata Chieri's question, this time the lower body parts fall off. Mimata Chieri, being quite the connoisseur of perversion, spreads her pussy wide open with her fingers, having only taken off one of her knee-high leg tights.</p>
+<p>,"*Hubae*-nim, please taste this *Sunbae*'s brand new pussy♥"</p>
+<p>A brand new pussy, huh.... A virgin? I thought she was a total slut, but she was a virgin.... She's a virgin making such a request, braving her embarrassment, so I couldn't keep refusing.</p>
+<p>I had already taken off my top while sparring, so I just needed to take off my pants and underwear. I took off my pants and underwear and approached Mimata Chieri.</p>
+<p>,"It might hurt since it's your first time, *Sunbae*."</p>
+<p>,"More than getting shot by a bullet?"</p>
+<p>Ah! She's the one who stood in front of me and got shot by a bullet a few days ago, so tearing her hymen is nothing.... Thinking back to that time, Mimata Chieri became even more lovable. Even though it was an order to protect me, blocking a bullet in a potentially fatal situation couldn't have been easy.</p>
+<p>,"It probably won't hurt as much as getting shot by a bullet. I wouldn't know since I'm not a woman."</p>
+<p>,"Then I can endure it. I have the skills to endure torture, too."</p>
+<p>Where the hell did she learn all this? I lifted Mimata Chieri's chin and kissed her. At first, she moved her tongue awkwardly, but soon she seemed to get the hang of it and skillfully responded to my kiss. She quickly followed Shinkai Yatsude's moves, so it seemed she had a knack for physical stuff.</p>
+<p>,"Eung.... This is, a kiss, huh. It tastes like *Hwagwaja*."</p>
+<p>Mimata Chieri, having tasted the *Hwagwaja* I had for dessert in the morning, said with a slightly flushed face.</p>
+<p>,"It's not that the kiss tastes like *Hwagwaja*, it's because I ate *Hwagwaja* last."</p>
+<p>,"Ah, that must be it! Then teach me other things, *Hubae*-nim...."</p>
+<p>Mimata Chieri was a student who wanted to move fast. As if responding to Mimata Chieri's expectations, I gently squeezed her moderately sized breasts, boasting pink nipples.</p>
+<p>,"Heuung...!"</p>
+<p>Sensitive, huh. Mimata Chieri's breasts were not so much soft as they were bouncy and firm. As I massaged her breasts with my whole hand, her nipples perked up and tickled my palm.</p>
+<p>,"Heung, heueum...! *Hubae*-nim, I'm getting weird, heuhaang...! Euhaang!"</p>
+<p>Mimata Chieri's reaction, making increasingly intense moaning sounds, was quite amusing. I took my palm off and gently rolled her nipples with my fingers.</p>
+<p>,"Eung, heut! Haeut! Heuheuung...! I can't take it anymore, *Hubae*-nim!"</p>
+<p>,"Pleasure isn't something to endure. Accept it all."</p>
+<p>,"Heueut...! Neehet! I'll take all the pleasure you give me♥ Haeut!! Give me more...♥"</p>
+<p>To feel this much just from her nipples, she's amazing? I kept touching her nipples with one hand, and with the other hand, I stroked her bare lower abdomen and moved towards her pussy.</p>
+<p>,"Heuaang! Th-there...!"</p>
+<p>,"*Sunbae* told me to taste her brand new pussy, so I need to check if it's really brand new first."</p>
+<p>,"Haeueung, brand new, it's brand new. *Hubae*-nim is the first to touch it...!"</p>
+<p>Sure enough, as I touched around her pussy and gently inserted my finger into the hole, there was something blocking it. This must be her hymen. Okay, it wasn't a used goods scam.</p>
+<p>,"I'm telling you in advance, I'm not brand new."</p>
+<p>,"I know, *Hubae*-nim, you're a manwhore."</p>
+<p>Ah, that's right. She must have heard everything Kazuhiro said while pretending to be a part-timer grilling meat at that restaurant...! I need to teach that Kazuhiro a lesson. Thinking about it again, it seems Mimata Chieri was the one who reported my activities to old man Taira Danjo, so she must have seen me meeting a lot of women. After we're done having sex, I need to ask her what she reported to Taira Danjo.</p>
+<p>,"Come here for a second."</p>
+<p>I sat Mimata Chieri on top of a large metal box and gently placed my dick at the entrance of her pussy.</p>
+<p>,"I'm going to put it in now. I can't allow anything else to be put in after I put it in. Understand?"</p>
+<p>,"I understand, *Hubae*-nim...."</p>
+<p>Smiling at Mimata Chieri's obedient answer, I generously coated my glans with the fluids constantly gushing from Mimata Chieri's pussy. Now that both her pussy and my dick were wet, I thrust my hips in with force.</p>
+<p>,"Eueup!"</p>
+<p>,"Does it hurt?"</p>
+<p>She certainly seemed to endure it better than other women. She shook her head at my question and smiled slightly, but there were tears in the corners of her eyes. She was good at enduring the pain, but it didn't mean it didn't hurt.</p>
+<p>I kissed Mimata Chieri and caressed her breasts, waiting for her to get used to it. As Mimata Chieri's breath gradually became hotter and I felt her pussy loosening up, I started to gently sway my hips.</p>
+<p>,"Haeheureuk!, It's weird, haeut...! It feels weird♥ *Hubae*-nim!"</p>
+<p>,"Instead of 'weird,' you should say 'good'."</p>
+<p>,"Haang! Good, it feels so good♥"</p>
+<p>As expected, it was exciting to gradually dye a virgin with my colors. Especially Mimata Chieri, who seemed ignorant about this kind of thing, listened to me better.</p>
+<p>Mimata Chieri's pussy felt great. Whether she was doing it intentionally or unconsciously, the way she tightened and loosened her pussy matched my rhythm perfectly. If I hadn't trained with so many women, I would have cum too quickly.</p>
+<p>,"Haa, haaeung! It's weird, no, it's good, haaeueung, I feel so good that it's weird."</p>
+<p>,"That's an orgasm. It means you're coming."</p>
+<p>,"Heueeung, *Hubae*-nim, I'm going, I'm going♥ Haeheureueut!! Heueut!"</p>
+<p>As Mimata Chieri reached orgasm, she rolled her eyes back and hugged me tightly. I could feel her body trembling all the way here. I didn't care that Mimata Chieri was already at her peak and couldn't control her body, and I shook my hips only for my own pleasure.</p>
+<p>,"Haang! No! I already, came, *Hubae*-nim♥ If this keeps up, I'll completely become yours! Haeheut, heueut, eunghheueut!"</p>
+<p>,"What did *Sunbae* tell me? You told me to make sure you can't betray me anymore. Quietly become mine."</p>
+<p>,"Haang! I won't, betray you♥ Haeueut! Haeut! I'm only.... *Hubae*'s secretary now♥ Haeueung!"</p>
+<p>To be your own secretary was quite a touching thing to hear. I quickly felt the urge to cum, so I pressed as close as possible to Mimata Chieri's pussy and ejaculated my semen into the deepest part. As the lava-like hot semen filled Mimata Chieri's uterus and pussy, Mimata Chieri reached her second climax.</p>
+<p>,"Haeueung! If I feel this kind of feeling, I can't escape...♥"</p>
+<p>Mimata Chieri's body trembled again as I pulled out my dick. Her pussy was washed away with semen and fluids, and there was no trace of blood from her torn hymen. I held my dick, covered in semen and fluids just like Mimata Chieri's pussy, right in front of Mimata Chieri's nose.</p>
+<p>,"After doing it once, you have to clean it with your mouth."</p>
+<p>,"Ah, I didn't know. Give it here, *Hubae*-nim."</p>
+<p>Watching Mimata Chieri diligently suck on my dick, I felt satisfied. It felt like my painting was being drawn on a white canvas.</p>
+<p>Mimata Chieri, who had cleaned my dick, smiled at me.</p>
+<p>,"Since we can't stay here, shall we go to the room?"</p>
+<p>,"Yes, I'll show you my bedroom."</p>
+<p>Seeing Mimata Chieri excited to go to the bedroom and do it again, as if she was bringing a friend home, I felt a slight pang of conscience. But I justified it by thinking we could do it after looking around the bedroom, and followed Mimata Chieri upstairs.</p>
+<p>###</p>
+<p>In the end, we had sex before looking around the bedroom. Mimata Chieri was exhausted and didn't have the strength to move, so she was clinging to me on the bed and chattering away. Though I was the one who asked her.</p>
+<p>When I asked Mimata Chieri what she had reported to Taira Danjo, she honestly told me that she had reported my relationships with Sinoe Misano, Arisu, a certain Korean beauty, and Group 74.</p>
+<p>So, Grandpa Taira Danjo was scolding me for being a womanizer. But it's a huge relief that Mimata Chieri didn't know about my relationship with Yukiko. Most of it happened at home, and Mimata Chieri didn't monitor the house separately except for the first few days. If she had known, she would have reported it immediately. I couldn't imagine what Taira Danjo would have done.</p>
+<p>He would have thought it was incest, even though we weren't blood-related, and would have taken some kind of action. I'm a bit uneasy that the incident with Arisu was also reported, but since cousin marriage is possible in Japan, he probably won't care too much, right?</p>
+<p>,"From now on, only report to me."</p>
+<p>,"Yes. I will. Now that I'm *Hubae*-nim's subordinate, I won't report to anyone but *Hubae*-nim."</p>
+<p>Suddenly, something I was curious about came to mind while we were talking. It was Mimata Chieri's behavior when we first started having sex.</p>
+<p>,"By the way, where did you learn things like 'Please taste my brand new pussy'?"</p>
+<p>,"I learned it from watching AVs I took from *Hubae*-nim's computer when I was monitoring the house in the beginning. The title was 'Cyber Girl and Battle Sex,' or something like that? That's why I insisted on sparring."</p>
+<p>Ah, no wonder the situation seemed familiar.... I strictly forbade Mimata Chieri from touching my computer. So Mimata Chieri requested sparring because she wanted to cling to me.</p>
+<p>Besides that, I had several conversations with Mimata Chieri, and she told me about her unfortunate childhood and the story of Fumimoto Takayuki, who had saved her.</p>
+<p>,"Don't people usually fall in love with the person who saved them? Mr. Fumimoto is a complete benefactor, isn't he?"</p>
+<p>,"I'm always grateful. But I've never thought of the Chief Secretary that way. Maybe...."</p>
+<p>,"Maybe?"</p>
+<p>I looked at Mimata Chieri, who had interrupted her words, and asked back. Mimata Chieri smiled cutely and answered.</p>
+<p>,"I guess I'm a woman who looks at faces. Hehe."</p>
+<p>,"Aha...!"</p>
+<p>As expected, my face did all the work again this time. Being handsome is the best. It's always thrilling!</p>
+<p>-----</p>
+<p>Mimata Chieri made into a live-action version!</p>
+<p>Live-action AI is too real, so it will probably be banned....</p>

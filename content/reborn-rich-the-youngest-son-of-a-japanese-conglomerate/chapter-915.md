@@ -5,65 +5,83 @@ weight = 915
 chapter = 915
 +++
 
-<p>Anyaji, having entered Miyashi, divided its personnel into a total of nine teams.</p>
-<p>First, the teams directly battling Fujigasaki Rinka and her Disciple, Shimokawabe Airen, Kinui Tachio, and others were dispatched as Attack teams to a total of six locations, and there was also the General Situation team, where Takakusaki Gengo, Anyaji's Leader, who oversaw all aspects of the Miyashi Attack, was located.</p>
-<p>The remaining two teams were two Reserve teams that could be deployed if the Attack teams faced an unfavorable Situation, making a total of nine teams.</p>
-<p>Reserve Team 1 and Reserve Team 2 were separately located close to each Attack team; the team supporting the Attack teams in northern Miyashi was Reserve Team 1, and the team supporting the Attack teams in southern Miyashi was Reserve Team 2.</p>
-<p>"Hey, have there been any requests?"</p>
-<p>Saimura Tatsushi (斎村 達至), a senior Anyaji martial monk and leader of Reserve Team 1, asked the administrative employee monitoring the situation with a frustrated attitude. He had grown bored from sitting and waiting indefinitely for requests for help.</p>
-<p>"No, sir. Honestly, Team Leader-nim, you know well that the Attack teams won't call for reserves, no matter how unfavorable the Situation."</p>
-<p>"Indeed.... They're not the kind of old farts who'd pass the credit to us."</p>
-<p>At the administrative employee's Words, Saimura Tatsushi nodded his Head. Anyaji itself was a competitive, militant group that trained in martial arts. They were individuals who would do any jit for Victory, but also a gathering of selfish martial artists who couldn't stand to see others steal their credit. Therefore, they had a Tendency to be reluctant to receive Help from others if they couldn't complete the Mission entrusted to them. Because of this Tendency, they would often fail, even losing their lives rather than seeking Help.</p>
-<p>"It's a shame I couldn't achieve anything."</p>
-<p>Saimura Tatsushi, with a deeply regretful Expression, Collapse into his Seat. Excluding Fujigasaki Rinka and her Disciple, Shimokawabe Airen, and Kinui Tachio, their Opponents were girls who had just graduated from High School. So, he thought this Attack team would easily achieve credit. Even against Fujigasaki Rinka, since three White Light Fist Masters, specifically trained to exploit her weakness, and three Guardians from the Guardian Hall, who could be called monsters, had gone, he judged that they would not suffer Defeat, no matter if their Opponent was Fujigasaki Rinka. Saimura Tatsushi, who thought he could capture several High School Girls by himself, even if not Fujigasaki Rinka, considered himself Annoying for being chosen for the Reserve team and missing the opportunity to achieve credit. Anyaji was a group of martial artists who pursued only power, so if they achieved credit, they could become even stronger as a Reward. Saimura Tatsushi also felt regret that if he achieved credit, he could become directly subordinate to the Four Heavenly Kings or receive martial arts Training from the Guardians, which is why his Frustrating level was naturally rising in this current idleness. That's why he pressed the administrative employee, whom he considered insignificant, asking if there had been any contact, as if taking out his frustration.</p>
-<p>"Um.... I just ordered an employee to buy some coffee, Saimura-nim, would you like anything to drink?"</p>
-<p>To appease Saimura Tatsushi, who wasn't hiding his Annoyed Attitude, the administrative employee revealed that he had sent someone for coffee and asked Saimura Tatsushi what he wanted.</p>
-<p>"Tsk.... I'll have black coffee."</p>
-<p>Saimura Tatsushi didn't like the administrative employee looking for food in this Situation, but thinking that getting more Annoyed at the administrative employee here would show a lack of Self-Discipline, he clicked his tongue and also requested coffee.</p>
-<p>At Saimura Tatsushi's Words, the administrative employee picked up the Phone Call and requested an additional coffee from the employee who had gone to buy coffee. Saimura Tatsushi watched that scene and then looked at his computer Screen. It was a screen showing various statuses along with a map of Miyashi, and indeed, there was no Change. No one had asked for Help, nor had any Mission success contact arrived. In fact, everyone in Anyaji, except Saimura Tatsushi and the Attack teams, didn't know, but some of Anyaji's Attack teams had requested Help. However, because Taira Ryuta's Joseodang had blocked radio waves around the Attack teams, those requests for Help had not reached the Reserve teams. 'It's taking a long time. Are they playing around?' Saimura Tatsushi thought that, then minimized the status screen and looked at the internet News. Since he had nothing to do, he thought it would be better to watch the News than just wait idly.</p>
-<p>A short while later, a Female Employee pushing a Cart full of packaged coffee entered and began approaching, handing out coffee cups one by one to the Anyaji martial monks of the Reserve team. He thought it had taken quite a long time, but it seemed she had brought packaged coffee for everyone in the office. Saimura Tatsushi, thinking that although it was a corporate card, there were at least thirty Anyaji martial monks in the Reserve team, so it must have cost quite a lot of Money, looked at the approaching Female Employee. She was a typical administrative employee in a women's Suit and Glasses, but her Appearance was remarkably outstanding. Her Face, with a gentle Smile, was as beautiful as a celebrity's, and her Mommae was also incredible.</p>
-<p>Saimura Tatsushi, looking at the Female Employee, felt a Sense of Incongruity. If a Female Employee with that level of Beauty existed, her Face would surely be known, but he was seeing her for the first time.</p>
-<p>"She's an employee I've never seen at headquarters...?"</p>
-<p>"Ah, she's not a headquarters employee. To cover both the Situation headquarters and the two Reserve teams, we were short on administrative staff, so Ms. Jurie Suzuki (鈴木 珠理) came to assist from the Shizuoka Branch." Anyaji had almost all of its power concentrated at its Tokyo headquarters, but it had branches in various locations to manage the members of the Gwonyeonghoe, a rival organization to the Gwonmaeng that Anyaji dominated. There were actually more administrative staff at the branches, so, as the administrative employee said, this Jurie Suzuki seemed to have come from a branch.</p>
-<p>'Ah, so she was support from another Branch...?'</p>
-<p>At the administrative employee's Answer, Saimura Tatsushi nodded in understanding and then looked at Suzuki Jurie, who had approached closer. There were two coffee cups left. It seemed they were for the administrative employee and himself.</p>
-<p>"You're Reserve Team 1 Team Leader-nim, aren't you? Here's your coffee!"</p>
-<p>Suzuki Jurie looked at Saimura Tatsushi and offered him one of the coffees she was holding. Her Attitude was very lively, and Saimura Tatsushi liked her Appearance.</p>
-<p>"Hmm...."</p>
-<p>Saimura Tatsushi took the coffee Suzuki Jurie offered and took a sip. It had become slightly lukewarm from carrying many cups and distributing them to the Reserve team members in the office, but it was quite drinkable coffee.</p>
-<p>"You.... Don't you drink coffee?"</p>
-<p>Saimura Tatsushi watched her hand the last remaining coffee cup to the administrative employee and asked Suzuki Jurie. It was because there was no coffee left, so even though she had gone on a coffee errand, she had nothing for herself to drink. Normally, given Anyaji's nature, he wouldn't pay attention to an administrative employee whom he considered insignificant, but Suzuki Jurie's Beauty made him unnecessarily curious, so he asked.</p>
-<p>"Ah, I don't particularly like coffee. Especially...."</p>
-<p>"Especially?"</p>
-<p>Suzuki Jurie quietly said something after "especially," but Saimura Tatsushi couldn't hear it, and as Saimura Tatsushi asked again, a loud noise came from the Entrance.</p>
-<p>"Kheu-euk!"</p>
-<p>"Keo-heok!"</p>
-<p>"Kkeu-eu-eut...!"</p>
-<p>Everyone who had received coffee from Suzuki Jurie was moaning and collapsing in order. When Saimura Tatsushi saw that Scene and looked at Kijimoto Jurie, Kijimoto Jurie took off her Glasses, let down her Hair, and opened her mouth.</p>
-<p>"Especially coffee with dok, you see, huhuhuhu."</p>
-<p>"You...!"</p>
-<p>Saimura Tatsushi reached out his Hand to grab Suzuki Jurie's Neck, but suddenly the power drained from his hand. No, not just his hand, but the power drained from his entire Body, and he slumped down.</p>
-<p>"Here's the 25 million yen we promised earlier."</p>
-<p>"...Ahahaha, thank you."</p>
-<p>The administrative employee, receiving the Bankbook filled with Money from Suzuki Jurie, bowed his Waist more than 90 degrees, a full Smile on his Face. And without looking back, he left the office where the Corpses of Anyaji's Reserve team were gathered.</p>
-<p>It was incredibly easy to win over the administrative employee, who had always received unfair Treatment from Anyaji's martial monks. In fact, Joseodang had been prepared to offer up to 50 million yen, but he immediately nodded at the initial offer of 25 million yen, showing how much resentment he held towards Anyaji's martial monks.</p>
-<p>Now, the only ones left in the office were Suzuki Jurie-no, Kijimoto Jurie-and Saimura Tatsushi, who was still clinging to life. Kijimoto Jurie, her previously gentle Face now a mask of Madness, looked down at Saimura Tatsushi.</p>
-<p>"Perhaps because he only took one sip, his breath isn't stopping quickly. Well, it can't be helped. Since I've received the Mission, I must ensure the kill...."</p>
-<p>Kijimoto Jurie squatted down, grabbed Saimura Tatsushi's Chin, and Forced his mouth open. And she began to pour the remaining coffee into Saimura Tatsushi's mouth.</p>
-<p>"Delicious, isn't it? It contains my special dok."</p>
-<p>Kijimoto Jurie asked a Question, but Saimura Tatsushi couldn't Answer. His mouth was already full of coffee, so he couldn't speak even if he wanted to, and the dok's Aura was spreading further, bringing him to the brink of death, so he couldn't speak either. Then, as Saimura Tatsushi couldn't endure it and lost consciousness, Kijimoto Jurie stopped pouring the coffee.</p>
-<p>"How delicious must it be for him to lose his mind like this~?"</p>
-<p>Kijimoto Jurie, speaking Words that would make Saimura Tatsushi die once more from sheer rage if he heard them, casually tossed the coffee cup aside, wiped the coffee from her hands onto Saimura Tatsushi's Clothes, and then stood up. And she calmly walked across the dead Corpses and left the Reserve Team 1 office.</p>
-<p>Kijimoto Jurie Suzuki Jurie version B-cut~!</p>
-<p>Scary Face~!</p>
-<p>Kkiyot!</p>
-<p>Requested by MidNightSKY-nim: Alik and Ryuta, shooting electron cannons like Misaka Mikoto~!</p>
-<p>Alik!</p>
-<p>The disadvantage of LORA is that it even affects the art style hehe. When I used LORA, Alik's feeling was less pronounced ㄷㄷ.</p>
-<p>Ryuta~!</p>
-<p>The male side doesn't seem to have been Learned well, so it doesn't come out well hehe.</p>
-<p>Requested by Gojoy-nim: Jinmija Yeosa Belly Dancer, Tape~!</p>
-<p>Belly Dancer~!</p>
-<p>Tape~!</p>
-<p>Requested by I세이브I-nim: Jinmija Yeosa in underwear under the desk~!</p>
-<p>Kkiyot!</p>
+<p>「Airen, shall we have a reflection session after so long?」</p>
+<p>Fujigasaki Rinka lay in the Hospital Room, looking at Shimokawabe Airen on the bed beside her, and opened her mouth. The two had often dueled or fought against people from other martial arts schools since childhood due to their Sabu's friendship.</p>
+<p>After that, they always held reflection sessions for their Duels or battles together, and what they learned from those sessions became the foundation for their current outstanding Skill. Lying side by side with Shimokawabe Airen after a long time (though it was a Hospital Room), Fujigasaki Rinka felt nostalgic and proposed a reflection session to Shimokawabe Airen.</p>
+<p>「Shall we? It's been a long time.」</p>
+<p>Shimokawabe Airen gave an Eye Smile with a nostalgic Expression at Fujigasaki Rinka's Words.</p>
+<p>「Takakusaki Gengo was strong...」</p>
+<p>「Yes, he was strong.」</p>
+<p>Takakusaki Gengo, whom they fought this time, was strong. In fact, the battle showed that he hadn't surpassed Fujigasaki Rinka in martial arts Realm, but due to his various sorceries and the regeneration and other Abilities he displayed after his Outer God transformation, he was an even more troublesome Opponent.</p>
+<p>「But we could have won without taking this much harm.」</p>
+<p>「Yes, if I had been a little more careful...」</p>
+<p>At Shimokawabe Airen's Words, Fujigasaki Rinka spoke dejectedly. If Fujigasaki Rinka hadn't been caught by the tentacles in the early stage, Takakusaki Gengo wouldn't have undergone his Outer God transformation, and the Situation would have ended more easily. Even if he had combined sorcery and possessed the antithetical white light to Fujigasaki Rinka, Takakusaki Gengo, as a human, could not have defeated Fujigasaki Rinka.</p>
+<p>「I didn't tell you this Story to blame you. Takakusaki Gengo meticulously prepared to target your power. Even if you had avoided it then, there would have been another method. And since he had a power antithetical to the Abyss, it couldn't be helped that you were affected.」</p>
+<p>Shimokawabe Airen said she wasn't blaming Fujigasaki Rinka. What Shimokawabe Airen wanted to say was elsewhere.</p>
+<p>「The problem with this fight was acting too hastily. The environment inside that Cliff Shrine was hostile to us and beneficial to Takakusaki Gengo. We should have thought a little before entering that Place.」</p>
+<p>「You're right. It wasn't good that we rushed into a disadvantageous Place. Of course, some people held grudges against Takakusaki Gengo and wanted to attack quickly, and Ryuta's friend Genba Kiyohira was captured, so our minds were rushed... but we should have thought about it for at least ten more minutes before going in.」</p>
+<p>Fujigasaki Rinka also gave her Consent to Shimokawabe Airen's Words.</p>
+<p>Of course, she herself was included among those Fujigasaki Rinka mentioned who held grudges against Takakusaki Gengo or whose minds were rushed because of Taira Ryuta's friend Genba Kiyohira, but Fujigasaki Rinka, as a martial artist with excellent training, was sincerely reflecting on her hasty actions today.</p>
+<p>「And when we fought...」</p>
+<p>「You're right. I also need to know more about my Sword's Ability...」</p>
+<p>The two reflected on this battle for a long time, then fell into a chewing-on-silence as if savoring it. Reducing Mistakes in this way meant they wouldn't make similar Mistakes in the next battle, so reflection was a good Habit.</p>
+<p>Fujigasaki Rinka, reviewing the battle today, recalled the almost Last Scene where her Disciple Taira Ryuta had embraced her to protect her when she collapsed.</p>
+<p>'That guy, his Embrace was quite sturdy, and he smelled good too....'</p>
+<p>Blushing and thinking about Taira Ryuta's Embrace, Fujigasaki Rinka realized what thoughts she was having about her Disciple and thumped her pillow, stomping her Feet.</p>
+<p>'Crazy! Crazy! Rinka, what are you thinking about your Disciple?!'</p>
+<p>「Rinka?」</p>
+<p>Shimokawabe Airen, surprised by Fujigasaki Rinka suddenly making a commotion on the bed, called her name.</p>
+<p>「Ah, I should have ended Gengo with my own hands, I'm so resentful about that...」</p>
+<p>「Ah...! Ufufu, indeed.... Rinka has always had a strong Spirit of competition.」</p>
+<p>Shimokawabe Airen accepted Fujigasaki Rinka's mere Excuse as if she understood. Fujigasaki Rinka, who was embarrassed alone for a while, then had another thought.</p>
+<p>It was about the Last Story she had with the Bae-sinja Serihara Tamijiro, a friend of Sabu Soda Haruto, whom she had fought on the way to Miyashi before fighting Takakusaki Gengo.</p>
+<p>「You will either die today, or you will tell me where Sabu is.」</p>
+<p>Fujigasaki Rinka said chillingly, looking at the collapsed Serihara Tamijiro. Fujigasaki Rinka had been searching for Soda Haruto for several years, so now that she had finally found a clue, her mind became rushed.</p>
+<p>Kkwadeudeuk.</p>
+<p>「Keuah-aaaah!」</p>
+<p>Fujigasaki Rinka grabbed Serihara Tamijiro's right Index Finger and crushed it with immense, press-like power. Serihara Tamijiro screamed in excruciating pain.</p>
+<p>「Where is Sabu?」</p>
+<p>「Keueu, So, Soda Haruto is...」</p>
+<p>Serihara Tamijiro tried to speak through the pain of his finger being crushed, but hesitated as if fearing Something.</p>
+<p>「....」</p>
+<p>Kkwadeudeudeuk!</p>
+<p>「Keuah-aaaah! I'll tell you! I'll tell you, so...!」</p>
+<p>Fujigasaki Rinka crushed his Middle Finger without a Word, and only then did Serihara Tamijiro say he would speak.</p>
+<p>「Originally, I had Haruto. It was to steal Shinkai Yatsude from Haruto. Gengo already had Shinkai Yatsude anyway, so he wasn't interested in Haruto.」</p>
+<p>Serihara Tamijiro continued his Story. Takakusaki Gengo and Serihara Tamijiro together subjugated Soda Haruto, and Serihara Tamijiro locked Soda Haruto in a warehouse and Tortured him, trying to obtain Shinkai Yatsude.</p>
+<p>But Soda Haruto didn't tell Serihara Tamijiro even a single Rhythmic Motion of Shinkai Yatsude's Fist Technique Martial Arts Form.</p>
+<p>Several years passed, and when Takakusaki Gengo founded Anyaji, Serihara Tamijiro joined Anyaji. He thought he might be able to gain even a shred of new martial arts from Takakusaki Gengo, who had already become a far greater Master than himself.</p>
+<p>「Gengo demanded Haruto again as the Price for giving me martial arts. So I asked him the Reason. Why he wanted to take Haruto back now.」</p>
+<p>Takakusaki Gengo brought a Person to answer Serihara Tamijiro's Question. The Person who appeared was an Elderly Person, a white man. He was called the Black Sage, a man wearing a hood and a Robe, and he was the one who had created Anyaji's sorcerous framework.</p>
+<p>Of course, he didn't do it for free, but received several Prices. One of those Prices was Fujigasaki Rinka's Sabu, Soda Haruto.</p>
+<p>「So I handed Soda Haruto over to that Black Sage. The Black Sage is a terrifying Person.... Even you, Rinka, Kek! Kek!」</p>
+<p>It was Fujigasaki Rinka who began to strangle Serihara Tamijiro's neck as he spoke.</p>
+<p>「Don't call my name with that filthy mouth that betrayed and sold off your friend.」</p>
+<p>Fujigasaki Rinka lost her Fading Reason and almost strangled Serihara Tamijiro to Death, but she soon released her hand from Serihara Tamijiro's neck. There was still some Information she needed to hear.</p>
+<p>「So that Black Sage, or whatever he is, still has Sabu?」</p>
+<p>「Th-that... I don't know! It was a long time ago. Keuah-aaaah!」</p>
+<p>Because Serihara Tamijiro couldn't answer properly, Fujigasaki Rinka crushed another finger.</p>
+<p>「I really don't know! Really! That Elderly Person called the Black Sage was in Anyaji and then left! He took Haruto with him, but that was years ago!」</p>
+<p>Serihara Tamijiro quickly opened his mouth as if he wouldn't lose another finger. Left Anyaji with a Person called the Black Sage? According to Serihara Tamijiro's Words, the Black Sage was the one who created the framework of Anyaji's sorcery, and Anyaji's sorcery was all evil sorcery.</p>
+<p>So he would never have taken Sabu with good intentions. Fujigasaki Rinka had a Premonition that something very evil would be done to Sabu.</p>
+<p>「Then I'll let that pass. Next, tell me everything you know about the Black Sage. Then I'll let you return to your family alive.」</p>
+<p>At the Words that she would let him live, Serihara Tamijiro began to tell Information about the Black Sage. From basic Information like Kina's Size to his Way of Speaking and frequently used sorcery, Serihara Tamijiro unexpectedly gave Fujigasaki Rinka detailed information.</p>
+<p>After recording all the Stories Serihara Tamijiro told, Fujigasaki Rinka raised her fist. And very slowly, she extended it.</p>
+<p>Kkwadeuk! Kkwadeuk!</p>
+<p>Fujigasak Rinka's fist, which touched Serihara Tamijiro's chest, began to burrow into Serihara Tamijiro's chest as if digging into mud.</p>
+<p>「You, you said you'd let me live...! Keuah-aaaah! You did!!!」</p>
+<p>「Just as you betrayed Sabu, I betrayed my promise with you. Let's call it even with this.」</p>
+<p>From the start, Fujigasaki Rinka had no intention of letting Serihara Tamijiro live. He had betrayed Sabu, Tortured him, and on top of that, sold him off to an evil sorcerer called the Black Sage, so letting him live was an absurd Story.</p>
+<p>Even as Fujigasaki Rinka spoke, her fist went in by a quarter of a joint. The chilling sound of cracking breast bone, Ppadeuk Ppadeuk, was heard.</p>
+<p>Serihara Tamijiro suffered excruciating pain for a very long time until his heart burst, leading to his Death. Fujigasaki Rinka, bursting Serihara Tamijiro's heart, vowed to definitely get Sabu back.</p>
+<p>Gojoy-nim requested Nagumo Sian 1. Bra + Jeans side profile and 2. Bra + Jeans taking off.</p>
+<p>1.</p>
+<p>It feels like a duplicate of yesterday, so I'll only upload two images, haha.</p>
+<p>2.</p>
+<p>MidNightSKY-nim requested Alik Seducing with sexy lingerie and Ryuta's Astonishment upon seeing it, and Ryuta enraged after realizing Shii is the Instigator~! It's virtually three Requests, but since it's just changing Expressions, I'll accept the Request this time?! Haha.</p>
+<p>Alik Seducing with sexy lingerie~!</p>
+<p>Ryuta's Astonishment and enraged Ryuta.</p>
+<p>Astonishment</p>
+<p>Ah, Alik?!</p>
+<p>Anger</p>
+<p>Shii! What did you do, enticing an innocent child?!</p>

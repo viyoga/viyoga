@@ -5,112 +5,36 @@ weight = 749
 chapter = 749
 +++
 
-<p>I spent the next day until dawn satisfying the students' desires and sent them all home. Urabe Konoka went to the shrine to prepare for the Deep Sea Daughter's transformation work that would take place today, and I opened the secret vault to find the Essence of Earth that the Deep Sea Daughter said she needed.</p>
-<p>I opened the secret vault, which was secured with triple security including fingerprint, iris, and voice recognition, and took out the Essence of Earth, which was stored in one corner. It looked like a pink, fist-sized jewel, and it was emitting a subtle light, so anyone could see that it was a precious jewel.</p>
-<p>◆Essence of Earth [Legendary+ Elixir/Material/Consumable]</p>
-<p>The essence of the earth's energy, coveted by everyone from the ground. You can consume it directly, but using alchemy to make an elixir will make it even more effective.</p>
-<p>When consumed, your physical stats permanently increase by +1, and your strength, stamina, resistance, and recovery stats increase by 2. The limit of your physical stats also increases by 1.</p>
-<p>Looking at the options, it's a bit of a waste, but if the Deep Sea Daughter transforms into a new being, she'll give me a suitable reward. I took good care of the Essence of Earth and went outside to go to the shrine.</p>
-<p>I drove my car along the familiar road I drove yesterday, parked in the parking lot of Urabe Shrine, and headed to Shinkai Hime Shrine.</p>
-<p>I carried the box containing the Essence of Earth up the stairs and arrived at the shrine, where Urabe Konoka and Hangari Muneo were waiting.</p>
-<p>"Here's the Essence of Earth."</p>
-<p>"Thank you, my partner."</p>
-<p>Urabe Konoka was already possessed by the Deep Sea Daughter. The Essence of Earth that was on Urabe Konoka's hand had already disappeared.</p>
-<p>"First, I will recover all of my partner's abyss."</p>
-<p>When the Deep Sea Daughter grabbed both of my hands, the abyss poured out of my body, gushing out. When the abyss stat of 17 disappeared, I felt a greater sense of lethargy than I thought. I felt like all my strength was drained.</p>
-<p>"Use your power of contemplation, my partner."</p>
-<p>The Deep Sea Daughter said, releasing my hands. The Deep Sea Daughter called the ability to see my status window the power of contemplation, and said that it was a powerful power worthy of being called a power. I checked my status window.</p>
-<p>◆Name: Jin Yongtae/■■■/Taira Ryuta/Yamashiro Ryuta: Lv15</p>
-<p>Strength: 16 Agility: 13 Stamina: 16 Resistance: 21 Recovery: 12 Nerves: 12 Appearance: 17</p>
-<p>Intelligence: 8 Knowledge: 8 Concentration: 7 Will: 20 Creativity: 6 Charm: 15 Judgment: 5</p>
-<p>Luck: 5</p>
-<p>◆Shinkai Yatsude (Unavailable)</p>
-<p>◆Black Miroku Art</p>
-<p>◆Shadow Domination</p>
-<p>◆Psychokinesis</p>
-<p>◆Psychokinetic Reactive Shield</p>
-<p>◆Magic Circle Use</p>
-<p>◆Acting</p>
-<p>◆Education</p>
-<p>◆Language - English</p>
-<p>◆Management</p>
-<p>◆Regeneration</p>
-<p>◆Crimson Flesh Pillars Swimming in Cum</p>
-<p>◆Sense of a Saint</p>
-<p>◆Limit Break: Will</p>
-<p>◆Abyss Affinity (Unavailable)</p>
-<p>◆Deep Sea Daughter's Seal (Unavailable)</p>
-<p>◆Psychokinesis</p>
-<p>◆Cambion's Flesh</p>
-<p>◆Magic Circle [Offering to the Deep Sea Daughter]</p>
-<p>◆Praise of Purity</p>
-<p>◆Deep Sea Daughter's Brand (Unavailable)</p>
-<p>◆Flesh Wrapped in the Abyss (Unavailable)</p>
-<p>◆Saint of Kwonbeop</p>
-<p>◆Holy Pillar</p>
-<p>◆Psychokinetic Reactive Shield</p>
-<p>◆Dragonslaying (Dragon Killing)</p>
-<p>◆Spectral Skin</p>
-<p>◆Psychokinetic Body</p>
-<p>The abyss stat in the special stats had completely disappeared, and the abyss-based traits and skills remained unavailable. My combat power will drop a lot if this happens? Still, it was fortunate that psychokinesis, regeneration, and physical abilities remained, so I wasn't completely helpless. Still, I should be careful until my abilities return.</p>
-<p>"...It's like this."</p>
-<p>"I will return as much abyss as my partner has given me, so don't worry. All of those traits are still alive, so if you receive new power, they will change into abilities that suit it."</p>
-<p>What the Deep Sea Daughter meant by the rank of traits seemed to refer to the grade of each trait. It's a relief that the traits aren't disappearing completely. She said that if the Deep Sea Daughter transforms, she will return with similar abilities of the same grade.</p>
-<p>"Ah, this too...."</p>
-<p>I took off the Deep Sea Lord's combat equipment, which I had been wearing constantly even when I showered, and handed it to the Deep Sea Daughter. The power contained here is by no means small, so I gave it to her hoping it would help. It's also an item that can't be used without the abyss.</p>
-<p>"Thank you...."</p>
-<p>"It's like a token of affection, so please give it back when you return."</p>
-<p>"Fufufu, I understand."</p>
-<p>The Deep Sea Daughter laughed, "Fufufu," at my words to return it when she came back. She must have realized the worry and affection contained in my words.</p>
-<p>"Then what should I do now?"</p>
-<p>"I can't ask for any more help when you've helped me this much. Now the rest is entirely my responsibility, my partner."</p>
-<p>The Deep Sea Daughter, possessed by Urabe Konoka, smiled faintly and stroked my cheek.</p>
-<p>"The time of change is long for me, but it will be short for my partner. The flow of time is not fair to everyone. I will miss you for a long time, my partner."</p>
-<p>It seemed that although it would be a short time in real time, it would be a very long time for the Deep Sea Daughter who was directly changing. I didn't understand it well, but I decided to hug the Deep Sea Daughter and cheer her on.</p>
-<p>"No matter how short the time I wait, I will always miss you."</p>
-<p>"Fufu, you're using informal speech for the first time."</p>
-<p>"Who would say anything if I use informal speech to my woman?"</p>
-<p>It took quite a long time to get to this point. Perhaps because of the difference in status, I unconsciously used honorifics. The Deep Sea Daughter, who had been silent for a while at my words, gently pushed me away. And with a smile that was thicker than before, she looked at me and opened her mouth.</p>
-<p>"Yes.... I am my partner's woman. That is a fact that will not change even if I change."</p>
-<p>The Deep Sea Daughter looked at me and Hangari Muneo as if she was done. And she said as if she was asking.</p>
-<p>"Please tell this to Konoka too. I hope everyone will be careful while I am away."</p>
-<p>It was natural for the Deep Sea Daughter to worry. I have other abilities, but the Deep Sea Daughter's shrine maiden relied only on the power given by the Deep Sea Daughter, so she was almost defenseless.</p>
-<p>Of course, the archery and self-defense skills she had learned would not disappear, but she still had to be careful. She had gone from an excellent combatant to a slightly trained ordinary person.</p>
-<p>"It's not good to nag for too long.... I'll be going now. I guess I'll meet you then under a new name, not the Deep Sea Daughter."</p>
-<p>That's right. The Deep Sea Daughter rose up to become independent from the abyss, so when I meet her next time, it will be under a new name.</p>
-<p>The Deep Sea Daughter looked at me with affectionate eyes until the end, then closed her eyes. When she opened her eyes again, it was Urabe Konoka.</p>
-<p>"Has Shinkai Hime-nim left?"</p>
-<p>I nodded silently at Urabe Konoka's question. Urabe Konoka muttered, "Is that so...?" at my nod.</p>
-<p>I suddenly became curious and checked my status window, and the names of the Deep Sea Daughter's Seal and the Deep Sea Daughter's Brand, which were traits with the name Deep Sea Daughter, had been changed.</p>
-<p>◆???'s Seal</p>
-<p>◆???'s Brand</p>
-<p>It seemed that she had already abandoned the name Deep Sea Daughter. Then what should I call her now? Should I call her ???? She said it wouldn't take long, so I should ask her when she comes back.</p>
-<p>###</p>
-<p>After the Deep Sea Daughter left for her transformation, I practiced psychokinesis and shadow domination. The only Kwonbeop I had learned was Shinkai Yatsude, so when I fought in the future, I decided to use practical-style close combat using basic skills that suited the situation without forms.</p>
-<p>As the opening of the semester approached, I had quite a lot to do. In February, I was busy studying for the 7 PMC certification under the name Taira Ryuta and writing the remaining Korean test questions.</p>
-<p>Otagi Yuka, who was evolving into a higher being, also came to me day and night, demanding semen, so I had to inject it into her mouth above and below and fill the bottles, which made my already absent mind even more absent.</p>
-<p>And as the opening of the semester approached, the remaining students who were at the main house, except for the special class students who were originally in Miyashi, returned to Miyashi one by one, and each of them came to my house or called me, so I had no personal time.</p>
-<p>"You have to play with me when the semester starts, Ryuta-jji!"</p>
-<p>Just now, I forced Seizawa Shii, who had returned from Tokyo, to go back with the excuse that I had a lot of work to do. She was about to tell me all about the mission she had in Tokyo, so I sent her back saying that we should talk about it after the third semester starts.</p>
-<p>It was Sunday today, so I could postpone it because tomorrow was the opening of the semester, but if the opening of the semester was still a long way off, Seizawa Shii would have sulked greatly, saying that I was keeping her away.</p>
-<p>Ding-dong!</p>
-<p>Not long after Seizawa Shii left, the doorbell rang again. Did she leave something behind? She didn't leave anything behind....</p>
-<p>"Shii, didn't you leave anyth.... Huh? Shido?"</p>
-<p>"Teacher, please give me an interview."</p>
-<p>The girl who came to my house this time was Shido Tsubaki. I have no idea what kind of interview she's talking about. Did I have any information that I could give to Shido Tsubaki?</p>
-<p>"Come in for now."</p>
-<p>"Yes."</p>
-<p>I let Shido Tsubaki into the house first. In fact, Shido Tsubaki and Uenozono Karen were the two least close students in the special class at St. Francisco Girls' Academy.</p>
-<p>Uenozono Karen didn't come to school often because she was doing idol activities, so I didn't have a chance to talk to her, and Shido Tsubaki just didn't have a chance to get close to her?</p>
-<p>I couldn't properly do the dating events (?) that each student had once or twice, and I just wrote articles or just passed by, so I personally didn't have much of a chance to get close to her.</p>
-<p>"So, what kind of interview did you come to me for?"</p>
-<p>In fact, she had written articles about me several times. I also helped the Search Eye newspaper, which Shido Tsubaki and Oofuchi Erika were doing together in club activities, with internet articles.</p>
-<p>Shido Tsubaki closed her mouth for a moment at my question. And she opened her mouth as if she had made up her mind.</p>
-<p>"I want to interview the Black Knight, Teacher."</p>
-<p>_______</p>
-<p>Lisa-ttang supporting her breasts, requested by RefundAbsolutelyImpossible-nim!</p>
-<p>Home Ec Teacher supporting her breasts!</p>
-<p>In fact, this Home Ec Teacher is a fake Home Ec Teacher. No matter how much I used the prompt to support her breasts, it didn't work, so when I checked, it was because her breasts were small ㅠㅠ So it worked when I made her breasts bigger ㅎㅎ</p>
-<p>Bonus!</p>
-<p>Hangari Muneo Illustration!</p>
-<p>I made it by changing the style ㅎㅎ Is there a look that matches the image you had in mind?</p>
+<p>The Student running at the very front among the Students of the Class Teacher-ssi's Rescue Squad was Alik. Alik could run while tanking because he could block the pouring lead bullets with his charge shield, one of his lightning abilities. The Students ran, defeating enemies that appeared intermittently. Although it didn't seem like a very large building from the outside, as they went Underground, it became quite spacious, and they realized the first-floor building was merely a Disguise.</p>
+<p>"Everyone, you'll have to stop." On the first basement floor, the ones who blocked the Class Teacher-ssi's Rescue Squad Students were Vice-Prefect Muko Neika of the Disciplinary Committee and Disciplinary Committee members wearing cyber Suits. Muko Neika was wearing a cyber Suit, had pistols that fired rubber bullets strapped to both her thighs, and in her Hands, she held a subjugation rifle that continuously fired rubber bullets at high speed.</p>
+<p>"Hmm... what was it again? This is the Student Council President's direct Problem Child Rehabilitation and Custody Room, so those who suddenly invaded, it would be good if you left?" It was Muko Neika, speaking as if she had memorized something. Naturally, the Students of the Class Teacher-ssi's Rescue Squad were not about to meekly leave after hearing those Words. Rather, because of the name "Rehabilitation and Custody Room" that Muko Neika mentioned, they gained conviction that Ryuta was imprisoned, and their Will to absolutely not retreat grew stronger.</p>
+<p>"Among the Problem Children imprisoned here, there's someone we're looking for, so it seems impossible for us to leave." "Then it can't be helped." At Otagi Yuka's Words, Muko Neika and the Disciplinary Committee all raised their Guns. Battle seemed unavoidable.</p>
+<p>"If we waste time here, they might move Teacher-nim to another Place." Konoe Akina opened her mouth. As if her Words were right, Sakagami Rena also nodded her Head.</p>
+<p>"Since they're rubber bullets, which are non-conductive, Alik's charge shield can't block them... I'm sorry, but Shiyo, can you handle them alone? While you do that, we'll go down alone." It was an Operation for the rest to proceed to the second basement floor while one Person bought time. After assessing the opponent's combat armament, the number of enemies, and the Combat power of her allied Students, Sakagami Rena had pulled out the most suitable Card.</p>
+<p>"Alright. Leave it to me. But you will rescue Teacher-nim, right?!" "I'll definitely rescue him." "Then go now!" While Naruse Shiyo charged at the Disciplinary Committee members, the remaining Students ran towards the stairs to the third floor, visible in the distance.</p>
+<p>Tung! Tung! Tung! The Disciplinary Committee members showered the charging Naruse Shiyo with rubber bullets, but it was an attack that caused no Damage to Naruse Shiyo, who had already undergone Dragon Transformation beneath her cyber Suit. With rubber bullets, whose Purpose was to stop the opponent without injuring them, they could not inflict any Impact on the cyber Suit and the Dragon Scales that had grown beneath it.</p>
+<p>"They said not to kill them... so I guess I'll have to put this back." Naruse Shiyo sheathed the Nagamaki (長巻) she had drawn on her back. Now that she was using Dragon Transformation, any slight mistake in controlling her power could slice her opponent in half, cyber suit and all.</p>
+<p>"In that case... I guess I'll have to do what I've always wanted to do." Naruse Shiyo had loved professional wrestling since she was physically weak. Since she couldn't use the Nagamaki she had trained with until now, she decided to freely use the professional wrestling techniques she had watched since childhood in Actual combat.</p>
+<p>"Haap!" Naruse Shiyo ignored the pouring rubber bullets and leaped horizontally, knocking down the Disciplinary Committee members like bowling pins with a Cross Body. And immediately stood up, and struck one Person with her Palm in a Chop, making a Jjak! sound.</p>
+<p>"Kyaak!" Without even caring about the fallen Disciplinary Committee member who let out an immense Scream, this time, she held her Arm horizontally and tripped one Person by their Neck with a Clothesline.</p>
+<p>"Amazing!" Tungtungtung! From the moment Naruse Shiyo charged, it was Muko Neika, continuously firing rubber bullets while evading with backsteps. But Naruse Shiyo ignored them as if flies were clinging to her, and continued to try out the professional wrestling techniques she had watched on TV since childhood in Actual combat. Even with her marksmanship, Muko Neika watched Naruse Shiyo, who was having fun using flashy foot techniques like Rolling Sobat, Enzuigiri, and Shining Wizard, and looked at the subjugation rifle in her hands, which fired rubber bullets, with a slightly resentful gaze.</p>
+<p>"If it were real Guns, it would have been different..." Muko Neika muttered, looking at her Gun. Because Muko Neika, who handled numerous Guns and even worked as a fixer, was confident in gun combat, but in the current Situation, it was difficult to deal with Naruse Shiyo. Even while Muko Neika was muttering like that, seeing Naruse Shiyo use a Headscissors Whip, hooking the opponent's Neck in her groin, spinning, and throwing them, Muko Neika decided to Surrender.</p>
+<p>"Excuse me, Shiyo-ssi? We're going to Surrender now." "I won't accept that Surrender." "Huh?" Naruse Shiyo refused even when they offered to Surrender. When Muko Neika looked closely, Naruse Shiyo's Eyes were already glazed over.</p>
+<p>"I'm testing out each technique right now, you see? I'll finish you off with a Body Slam, so just wait." Muko Neika, who heard Naruse Shiyo's Answer, once again looked at her rubber bullet launcher with Resentful Eyes.</p>
+<p>"I should have brought a real Gun..."</p>
+<p>On the next floor, Disciplinary Committee Chairman Nakanoin Rina was waiting. Nakanoin Rina saw the Rescue Squad students descending with the Class Teacher and said, drawing her giant Jitte (十手).</p>
+<p>"Everyone... Attack!" Unlike Muko Neika, her Words contained no Warning. Since they had already passed Muko Neika on the upper floor and had come down even after hearing a Warning, it seemed she had judged that a Warning was unnecessary.</p>
+<p>Tung! Tung! Tung! As if they had already heard the Information that Alik used lightning, several Disciplinary Committee members were concentrating their rubber Guns' Marksmanship on Alik. Although the charge shield was Neutralized, Alik's trained Swordsmanship wasn't going anywhere. Alik drew his Sword and advanced slowly, brilliantly swinging it and cutting down the rubber bullets. The remaining Combatants, who didn't seem to be Disciplinary Committee members, attacked the rest of the Class Teacher-ssi's Rescue Squad Students, and, as if all from the same group, their movements were perfectly coordinated. They used taser rounds, which had a higher stopping power than rubber bullets. Compared to rubber bullets, which could be Forced through, even a single taser round could incapacitate one in battle.</p>
+<p>"Come behind me or scatter, I'll provide cover!!" Saionji Diana unfolded the synthetic Plastic shield she carried on her Back and shouted while firing her Gun. Because the synthetic Plastic shield had a Defense Effect against rubber bullets, the taser rounds the enemies were currently using, and even ordinary pistol rounds, it allowed Saionji Diana to fire with Confidence. Agile Students like Sakagami Rena and Seizawa Shii scattered, running to opposite sides, and Konoe Akina was firing a Crossbow coated with Anesthetic, relying on the shield Saionji Diana had deployed. Finally, Disciplinary Committee Chairman Nakanoin Rina ran towards Otagi Yuka, who she judged to have the highest Combat power.</p>
+<p>Huung! Otagi Yuka blocked the roughly swung Jitte with her Blood Energy-blazing Hands. But that Blood Energy easily dispersed. Otagi Yuka quickly pulled her Hands away, then looked at the Jitte and opened her mouth.</p>
+<p>"Mithril?" "It's an alloy of Silver and Mithril. A good Weapon to use against Vampires who invade our Facility." Explaining about the Jitte, Nakanoin Rina, who lovingly stroked the silver and blue-tinged Jitte, pointed the Jitte at Otagi Yuka.</p>
+<p>"Be prepared." "Ha...!" At Nakanoin Rina's Words, Otagi Yuka laughed Absurdly and swept her Hair back with both Hands. Although Otagi Yuka usually wore her Hair swept back, her Hair had fallen down from rushing Underground, but as she swept it back, her Appearance returned to normal.</p>
+<p>The only difference was that the Absurd Smile she had just worn was gone, and she was glaring at Nakanoin Rina with a murderous Gaze.</p>
+<p>"You be prepared. Do you think you can get away with kidnapping Teacher-ssi?" Otagi Yuka's Gaze was glowing yellow, as if burning. The Madness caused by Blood Longing was gradually eroding Otagi Yuka, but Otagi Yuka was not so mad as to mistake her Enemy. With only the thought that she had to rescue Ryuta, she was overcoming the Madness.</p>
+<p>"It seems there are still Enemies left, so I'll finish this as quickly as possible." A blood-red Aura shimmered around Otagi Yuka's entire Body, then a materialized Blood Arrow flew towards Nakanoin Rina. Nakanoin Rina swung her Jitte like a windmill, deflecting the Blood Arrow. The deflected Arrow scattered and became a fog of Blood.</p>
+<p>"Heh?!" Because of the fog that instantly enveloped her Surroundings, Nakanoin Rina lost Otagi Yuka's trace. And a sharp Pain was felt in her Shoulder. Before she knew it, by something sharp, her cyber Suit was torn, and Blood flowed out. It wasn't just bleeding. Moreover, as if it wasn't a normal Attack, the speed at which Blood was flowing was unusual. Nakanoin Rina sharpened her Senses as much as possible and searched for Otagi Yuka's presence. Suddenly, she felt something move on one Side.</p>
+<p>"Is that you!?" She thrust her Jitte towards the felt presence, but Otagi Yuka was not there. At that Moment, Nakanoin Rina could clearly feel that she had been tricked. Because Otagi Yuka, who had appeared from Behind the Back, was aiming at her Neck with sharp Claws, with the Intention of slitting her throat if she moved.</p>
+<p>"If you move recklessly, your Head will fall off. Where is Teacher-ssi?" It was not Nakanoin Rina who answered Otagi Yuka's Question, but Taira Kanna.</p>
+<p>"Please release Rina. You all came to deal with the Villain who kidnapped the Prince, didn't you?" Taira Kanna said with a leisurely Expression. Before she knew it, the remaining Students, who had dealt with the rest of the troops, stood beside Otagi Yuka.</p>
+<p>"As expected, they are indeed excellent Students, carefully chosen by Orabeoni. Truly outstanding. But..." Taira Kanna's calm Expression changed. Her empty Eyes glowed with a strange Light, and she seemed to be consumed by Madness.</p>
+<p>"This much isn't enough for me to give you Orabeoni. Prove your worth to me." Taira Kanna raised the Rapier she was holding and glared at everyone with a mad Gaze.</p>

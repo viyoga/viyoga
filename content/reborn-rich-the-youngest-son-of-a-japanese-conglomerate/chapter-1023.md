@@ -5,91 +5,81 @@ weight = 1023
 chapter = 1023
 +++
 
-<p>-Gensuke hyung-nim. I heard you handled the Work well in South America this Time, congratulations.</p>
-<p>That bastard cousin, who was only half-decent looking, with a sneering Expression, was praising his Achievement. In fact, Taira Ryuta had not made such an Expression at all when he heard this Praise, but to Taira Gensuke, who was filled with Inferiority Complex, it was engraved as mockery.</p>
-<p>-But I'm the Boss of an Affiliate Company. From now on, would you please call me Boss-nim? Gensuke Branch Manager-nim?</p>
-<p>"Keuaaaak! This fucking dog...!"</p>
-<p>With a shriek, Taira Gensuke woke from his Sleep. He was fuming, but realizing he was in his Bedroom, Gensuke realized he had a Dream. And breathing roughly, he raised his Palms and rubbed his Face, performing a dry Wash Face.</p>
-<p>"jenjang, Ryuta bastard...!"</p>
-<p>Taira Gensuke, having finished his dry Wash Face, let out a low Curse. Of course, the calm and intelligent Taira Gensuke knew that this Dream stemmed from his Inferiority Complex.</p>
-<p>From a young Age, Taira Gensuke had been compared to his older half-brother, Taira Tabenobu, who was a bit older, and during his school days, although he wasn't Bullying because he was a Taira, he had felt an invisible Contempt as a Mixed Blood with different skin Color, and thus grew up engulfed in an Inferiority Complex. Because of this, Taira Gensuke grew up with a significantly twisted Personality.</p>
-<p>Rather, thanks to that, with his reckless and rough Personality and drive, he was able to achieve great Achievements as the South America Branch Manager of Taira Bussan, but due to his rough Personality and victim mentality stemming from his Inferiority Complex, he didn't have many People around him.</p>
-<p>Taira Gensuke knew of his Personality flaws, but with his arrogant and selfish Tendency, he genuinely believed that the People who left him and those who made him feel inferior were more at fault.</p>
-<p>Taira Ryuta, who appeared in this Nightmare, was no different. Just a bastard child, his Appearance of making a fuss to catch his Grandfather's Eye was extremely annoying, which is why he appeared in his Dream. He thought he should give him a good scolding someday.</p>
-<p>"Tsk...!"</p>
-<p>Taira Gensuke clicked his Tongue and turned on his phone. The Time was five in the Dawn. Although it was earlier than his usual waking Time, he was already wide awake, so he had no Intention of lying back down on the bed.</p>
-<p>"Why Kitsumasa...?"</p>
-<p>Taira Gensuke muttered, looking at his phone. A Text Message from Taira Kitsumasa had arrived.</p>
-<p>Taira Kitsumasa was his Cousin, two years older than him, and the Son of Taira Jiro. Although he was older in Age, he himself was the Son of Taira Ichiro, the legitimate eldest Son of Taira, while Taira Kitsumasa was the Son of the second.</p>
-<p>Therefore, Taira Gensuke had never shown Etiquette to Taira Kitsumasa. Yet, in Taira Gensuke's Eyes, who didn't show any sign of being upset, he was a worthless bastard who seemed to be harboring hundreds of Snakes inside. So he thought he was a bastard who needed to be dealt with someday.</p>
-<p>For such an unpleasant bastard to suddenly send a Text Message, 'What Story does he want to tell me?' he thought, and Taira Gensuke looked at the content of the Text Message. The content of the Text Message was quite long. True to Taira Kitsumasa's style, it was filled with meaningless Stories and all sorts of modifiers. Taira Gensuke, annoyed, was about to turn off the Text Message screen, but looked at his phone again. This was because the core content Taira Kitsumasa wanted to convey was almost at the end of the Text Message.</p>
-<p>-Kitsumasa: Oh, right. Did you hear about our youngest bastard? He managed to secure a pretty big contract this Time.... At this rate, won't he get another Reward from Grandfather at the next competition? Saburo Uncle passed away, and I was worried about what would happen to the youngest bastard, but it's Fortunate he's adapting well.</p>
-<p>He sent the Text Message as if he were a good Person, but it was subtly Stimulating Taira Gensuke. Taira Gensuke, having read the Text Message, gnashed his Teeth.</p>
-<p>Rage surged at Taira Kitsumasa, who didn't even hide his Intention to provoke and use Taira Gensuke to Attack Taira Ryuta, and he was also angry that Taira Ryuta, who had only recently taken over the company, had achieved something, and he was even angry at himself for being angry as Taira Kitsumasa intended.</p>
-<p>"Kitsumasa...!"</p>
-<p>Taira Gensuke, who had been softly calling Taira Kitsumasa's name, rose from his Seat. Anger was anger, and it was Time for his morning routine of martial arts Training.</p>
-<p>"Good, I'll play along as you wish. But you'd better abandon the thought that you'll be Safety just because you're in distant Europe."</p>
-<p>As he went to the Underground Training ground, Taira Gensuke picked up his phone and made a Phone Call to someone.</p>
-<p>"Uh, yeah. I want to hire someone.... Anonymously, so that even if Taira or Minamoto search, they can't catch a Tail.... Ahaha! It's nothing. Just one employee from a financial company in London gone...."</p>
-<p>Taira Gensuke laughed as if he had never been angry, and headed to the basement while on the Phone Call.</p>
-<p>"You can sign here."</p>
-<p>As Eve said, I was signing the Document. This was the Last Document. Today was quite busy.</p>
-<p>I, who woke up early in the Morning, first met with several Public Officials from the Morning and had a Story.</p>
-<p>After the Third World War, countless People went missing or disappeared without even leaving a Corpse. And because it was common for People to set up companies under such Ghost identities and commit fraud, to properly conduct a large Business in the USA, the Boss truly had to confirm to the relevant Public Officials whether the name belonged to them.</p>
-<p>Naturally, my Status was perfect. Since it was a Status created by a US intelligence agency, it would be strange if a Public Official caught it.</p>
-<p>The Public Officials were kind, probably because I had promised to provide cyber implants at a discounted Price to the child of one of the Public Officials.</p>
-<p>Cyberware had recently become famous as a company that makes lifestyle cyber implants that are not significantly different from human Skin, so the Public Official in charge was very happy.</p>
-<p>"Here are the Documents."</p>
-<p>"Thank you, Ryuta-nim~!"</p>
-<p>Eve received the Documents I handed her. For reference, Eve was currently in the USA with her android Main body, not as a hologram.</p>
-<p>After I left St. Francis Girls' academy, there was no longer any Reason to be in Miyashi as an android body, so she immediately left Japan and came to the USA, she said. She said it was for Cyberware Work and also for personal Purpose.</p>
-<p>I asked Eve about that personal Purpose out of curiosity, but unlike the usual Eve who would answer anything I asked, she shook her Head with an embarrassed Expression, so I couldn't find out her Purpose.</p>
-<p>"Since Ryuta-nim is also a Shareholder with the Rights and Responsibility of this company, this Document Work is naturally something that must be done, so it can't be called a Price, but since you've come all the way to the USA, I'll give you the Information I've gathered."</p>
-<p>As Eve said, Cyberware could be considered my company, so this trip to the USA was naturally something I had to help with, but seeing my Sincerity in coming all the way to the USA, Eve seemed to have prepared a Gift of Information.</p>
-<p>"Thank you."</p>
-<p>After receiving the UCT that Eve handed me, I parted ways with Eve and returned to the Federal Superpower Management Department's Safe House. Since it was around lunch Time, I asked my Party what they wanted to eat, and then bought and packed what each of them wanted.</p>
-<p>"Haaam~! Disciple, you brought the Hamburger I requested, right?"</p>
-<p>"Yes. Is this burger really that delicious?"</p>
-<p>I asked Fujigasaki Rinka, who was yawning as if she had just woken up and immediately looked for a burger. What Fujigasaki Rinka had requested was a Hamburger, and it seemed to be quite a famous Place, as I had to queue up to get it packed.</p>
-<p>I heard it was the Hamburger franchise that was expanding the fastest since the Third World War. It was called Mars Burger, and now that I think about it, if Mars means the planet Mars, is this a Mother Mars company Product?</p>
-<p>"It suited my Taste. Lots of Meat too."</p>
-<p>"Let's all eat together first."</p>
-<p>When I arrived, everyone gathered except for a few who were Sleeping due to yesterday's Patrol. I placed the packed food on the long Dining table and handed Naruse Shiyo the UCT I received from Eve.</p>
-<p>"What is this, Teacher-nim?"</p>
-<p>"Information received from Eve. I think it might be Information about New York's Back Alley...."</p>
-<p>"Then, shall we see what Information there is while eating lunch?"</p>
-<p>"That's fine too."</p>
-<p>So we sat at the Dining table, looking at the Screen. Three Jo Seodang employees brought by Naruse Shiyo connected their laptops to a large Screen and displayed the Information Eve had provided.</p>
-<p>While the Information was being displayed, we ate Mars Burgers, and indeed, it was a Taste Fujigasaki Rinka would like. The thick patty was overflowing with Meat juice, and with fresh tomatoes and lettuce, rich cheese, and a high-quality bun full of butter scent.... Indeed, it was a Taste that explained why it was so popular even in the USA, the country of burgers.</p>
-<p>After taking a bite and searching, it was indeed a franchise created by Mother Mars. It seemed Mother Mars was slowly starting to show movements to become one of the future five MegaCorporations.</p>
-<p>While I'm in the USA, should I meet Vivian Taylor one more Time? Hmm, let's think about Vivian Taylor's side after I've resolved all the Work I came for.</p>
-<p>Having finished my Thoughts about Mother Mars, I looked at the Screen and saw a screen densely filled with various Information. Among them, something caught my Eye, and Seizawa Shii happened to be reading that part.</p>
-<p>"...A valuable ancient book, or a forbidden book called a grimoire, a fragment of omniscience (Omniscient shard), has flowed into New York's Back Alley, and sorcerers or Magicians are flocking to New York.... Is this a fact? A grimoire? Magicians? Do they really exist?"</p>
-<p>Seizawa Shii said, as if she couldn't believe it. Of course, even though Seizawa Shii had personally been subjected to Jusul, it was understandable that she couldn't believe it when it was written like that.</p>
-<p>"There are sorcerers and Yin-Yang masters, so there's no way there aren't Magicians. Shii, you've been subjected to Jusul before too."</p>
-<p>"Still.... It's strange, isn't it? If it were someone who didn't know anything about this kind of Matter, they would have thought it was a Novel, wouldn't they?"</p>
-<p>At Naruse Shiyo's Words, Seizawa Shii grumbled. Although Seizawa Shii spoke as if she couldn't believe it, I thought this must be a fact.</p>
-<p>As there was a Magician tree, there were grimoires in the game as well. However, a grimoire called the fragment of omniscience was new.</p>
-<p>Because of this Information, the Black Sage's Rhythmic Motion began to be understood.</p>
-<p>"Investor-nim, the Black Sage is also.... a sorcerer, right?"</p>
-<p>Sawayanagi Azuma asked. Sawayanagi Azuma also seemed to Guess roughly what was happening.</p>
-<p>"Yes, the Black Sage, like those mentioned in this Information, is probably one of the Magicians and sorcerers who have flocked here. Probably...."</p>
-<p>"The fake Black Knight stirring up New York's Back Alley must also be to find that grimoire."</p>
-<p>Following my Words, Fujigasaki Rinka spoke. Until now, I hadn't known why the Black Sage came to New York and was doing such an Act, but with Eve's Information, it was becoming clear.</p>
-<p>"And because of that fake Black Knight, Famine sent his Subordinates under his command, right? What the fuck...."</p>
-<p>This Time, Lianna Holden spoke. Surprised by this Information, she had ketchup on her Mouth and was staring blankly at the Screen.</p>
-<p>"...A Storm of Confusion will sweep over New York."</p>
-<p>Musashi Takuro, who knew the Black Sage's Strength, muttered. If the Black Sage was only a part of this Matter, then, as Musashi Takuro said, a Storm of Confusion would truly sweep over New York.</p>
-<p>Chomise-meonji-nim requested Liz's breast covering and underwear Attire~!</p>
-<p>Breast covering~!</p>
-<p>Underwear~!</p>
-<p>TheDreaming-nim requested Gokado Hanako 1. Rainy Park 2. Falling on the Road</p>
-<p>1.</p>
-<p>2.</p>
-<p>When I tried with the requested loose panties, it came out like this, so from the next Image, I just put on normal panties hehe.</p>
-<p>As I mentioned a few days ago, due to an AI error, I'm currently organizing the LORA, so I couldn't apply the phone camera LORA ㅠㅠ. It seems it will be applicable from the next Request~!</p>
-<p>Hwanbuljeoldaebulga-nim requested Lisa, the lying Belly Dancer, and the Home Teacher-nim~!</p>
-<p>Lisa~!</p>
-<p>Home Teacher-nim~!</p>
-<p>Bonus~! Home Teacher-nim made with the Lisa model~!</p>
-<p>I didn't even realize I hadn't changed the model, and then I checked, wondering, 'Huh, why doesn't it feel like the original Home Teacher-nim?' and it turned out I had made it with the Lisa model hehe.</p>
+<p>The Woman with brown and orange hair mixed, wearing a Lace Blindfold, Whisper, saw the fragment of the Grimoire of Omniscience bound in Chains, which appeared on the Screen. Perhaps the fragment of Omniscience would be the Last auction Item.</p>
+<p>Being a regular room, she couldn't see it directly like in a special room, but even on the Screen, the strange magic power emanating from the fragment of Omniscience was enough to reach Whisper's skin. Even with a screen not directly connected, it was this much, so in a special room where one could see the real thing directly through a window, the influence would likely be even greater.</p>
+<p>"At this rate, an accident could happen...."</p>
+<p>Whisper muttered softly. She had heard the legends about the fragment of Omniscience, but she hadn't known it would be this intense. Because Whisper dealt with sound, she could feel the entire massive Cruise ship buzzing and stirring.</p>
+<p>"In this Situation, it seems impossible for me to obtain it...."</p>
+<p>Whisper, as if stifled, muttered as she removed the Lace Blindfold covering her Eyes. Beneath the Lace, green pupils filled with complex Emotions were revealed.</p>
+<p>Whisper, Maya Reed, was both a Superhuman and a witch. But despite having two such special Abilities, until a few months ago, Maya Reed herself thought she was an Ordinary student attending law school.</p>
+<p>The future she desired was in a completely different place from using her innate Abilities. Maya Reed, who wanted to become a Judge, had as her primary Goal to graduate from law school and join a famous law firm.</p>
+<p>But that Goal was shattered by an Incident. It was because of the disaster caused by Famine at LA Dignity Health Sports Park.</p>
+<p>In that Incident, where tens of thousands died simultaneously with Famine's appearance, Maya Reed's entire family died. Maya Reed, whose Goal was to be a Judge, couldn't help but vividly feel the powerlessness of the law in this Incident.</p>
+<p>Arrest warrants or Binding warrants were useless against Famine. Even if Famine were tried and sentenced to life imprisonment in prison, Famine had the power to escape from prison before noon.</p>
+<p>Ultimately, Maya Reed, who thought there was no other way to get revenge for her family than to personally execute Famine, joined Superior, a Superhuman Organization founded by Famine.</p>
+<p>Maya Reed, who possessed the Ability to manipulate sound waves, was given the name Whisper, and developed her superpowers while listening to the advice of various Superhumans.</p>
+<p>As she developed her Abilities, she was eventually recognized by Famine, and became one of Superior's top ten Executives.</p>
+<p>But even after becoming an Executive of Superior, Maya Reed could not get revenge. It was just like how the law couldn't bind Famine. It was simply because Famine was too strong.</p>
+<p>Around the time she wondered if she could ever defeat Famine, no matter how much she grew, she was assigned the mission to deal with Black Knight and came to New York with Behemoth. In New York, Maya Reed heard a piece of Information.</p>
+<p>That Information was that a fragment of Omniscience was up for auction. The fragment of Omniscience.... It was a legendary grimoire that her Grandmother, who had left Maya Reed her witch Bloodline in childhood, had told her about like an old Story.</p>
+<p>Maya Reed thought, 'If superpowers don't work, perhaps magic will?' and forcibly fabricated a story that Black Knight might appear at the auction, attending it.</p>
+<p>The foolish Behemoth followed her opinion, which made no sense even with a little thought, but if Black Knight didn't appear at this auction, he was the kind of guy who would explode with anger and attack Maya Reed.</p>
+<p>While Maya Reed was thinking about what excuse she would make, the price of the fragment of Omniscience had already exceeded fifty million Points. Since 1 Point was 1 Dollar, it was an enormous sum of fifty million Dollars.</p>
+<p>"Who would invest so much money...?"</p>
+<p>Maya Reed muttered, watching the auction Situation on the Screen.</p>
+<p>Through the deeds performed in New York with the fake Black Knight, the Black Sage had acquired immense Wealth. The vast property of numerous New York underworld figures, dealt with by the fake Black Knight's actions, flowed to the Black Sage, and with enormous amounts of Cash, cryptocurrency Assets, and even a massive quantity of Drugs coming under the Black Sage's control, the Black Sage became a magnate.</p>
+<p>The Black Sage already had a lot of money from various illegal activities around the World, but the deeds performed in New York increased his original property by more than tenfold, and he was participating in the auction for the fragment of Omniscience.</p>
+<p>"How much is left?"</p>
+<p>"If we hand over even the Drugs to AmSang.... Fifty-seven million is the Limit."</p>
+<p>He participated in the auction, thinking he could simply receive the winning Items from AmSang without needing to forcibly seize them, but the bid price had already risen to fifty-five million. Although the speed at which the price rose significantly slowed once it reached fifty million Points, still, more than five individuals were bidding on the fragment of Omniscience.</p>
+<p>**-Fifty-seven million! Fifty-seven million! Any more? Fifty-eight million! Fifty-eight million Points!**</p>
+<p>"Damn it...!"</p>
+<p>As the bid price exceeded fifty-seven million Points, which his Subordinate had stated as the Limit, the Black Sage softly uttered a Curse.</p>
+<p>"Ultimately, there's no choice but to seize the Items as planned. Rather, it's good. Because I can get the fragment of Omniscience without spending any money...."</p>
+<p>The Black Sage was repeating the words 'rather, it's good,' but his Expression was distorted.</p>
+<p>"Tell everyone to start preparing."</p>
+<p>"Understood."</p>
+<p>As the auction for the fragment of Omniscience, the Last auction Item, was nearing its end, he had to prepare his Subordinates, who were waiting around the port, to seize the Items.</p>
+<p>**-Yes! It's successfully bid for ninety-eight million Points! Congratulations!!**</p>
+<p>The fragment of Omniscience was successfully bid for a staggering ninety-eight million Points. It was a price that Laypersons could never understand. After all, it was just a book bound in Chains, yet it was bid for an Amount close to 100 million Dollars.</p>
+<p>In fact, Magicians might even react with, 'Is that all it costs?' to this winning bid. If you think about it, with this Amount, it could be bought with the Red Revolution Front's bounty, and a somewhat large Enterprise could afford it with a little stretch.</p>
+<p>Although Magicians would say the price was low compared to its Value, because most Magicians and Sorcerers were individuals or small groups, the scale of money they possessed wasn't that large, so it was unavoidable.</p>
+<p>"Oh my gosh...! Ninety-eight million? That's almost 100 million Dollars, isn't it? Is this price correct?"</p>
+<p>Lianna Holden, who was not a Magician, was dumbfounded upon hearing the winning bid for the fragment of Omniscience. The others were no different; Sawayanagi Azuma and Kurayamada Kirie also wore Expressions of 'Is this right?'.</p>
+<p>"We're not buying it anyway, so the price is meaningless. Wouldn't it be better to prepare for what's to come?"</p>
+<p>At my Words, everyone snapped to attention with an 'Ah, right!' Expression. We didn't participate in the auction to target the fragment of Omniscience anyway.</p>
+<p>Our true purpose was to track the Black Sage, who was almost certainly after the fragment of Omniscience, and rescue my Grandmaster Sajo Soda Haruto. Since there was a high probability of battle ahead, we had to prepare for battle starting now.</p>
+<p>Ttok-ttok!</p>
+<p>The sound of someone knocking on the cabin door was heard. When I told them to come in, AmSang employees carrying the Items I had purchased at the auction entered.</p>
+<p>"These are the winning Items."</p>
+<p>"Thank you for bringing them."</p>
+<p>"Not at all. We will arrive at the port soon, so please enjoy your comfortable time until the Last moment."</p>
+<p>Since there was no remaining schedule, it seemed we were heading straight to the port. Because we hadn't gone far out to Sea, we would arrive at the port quickly.</p>
+<p>The AmSang employees left after placing the Items, and I put a necklace containing time around Sawayanagi Azuma's neck, and placed a Bracelet symbolizing space on Kurayamada Kirie's wrist.</p>
+<p>Lianna Holden was looking at the scene with a slightly envious Expression, but she soon saw the mental amplifier and grinned.</p>
+<p>"Kirie. Would you put the Items I bought into Subspace?"</p>
+<p>"Of course."</p>
+<p>Normally, she would have grumbled a bit, but Kurayamada Kirie, who was touching the Bracelet, put all the Items I had bought into her Subspace without a word.</p>
+<p>"Does it feel like there's been some Change in Subspace?"</p>
+<p>"Hmm.... It feels a bit wider."</p>
+<p>Because the Bracelet had a 'space attribute grade increase' attached to it, when I asked out of curiosity, Kurayamada Kirie answered that the size of the Subspace had increased.</p>
+<p>Other options could have been attached, but since a larger Subspace was indeed the best, the option gained from the grade increase via the Bracelet could be called a Success.</p>
+<p>"That's good."</p>
+<p>"Wait a moment...!"</p>
+<p>As I nodded my Head, satisfied with the increase in Kurayamada Kirie's Subspace Size, Sawayanagi Azuma exclaimed.</p>
+<p>Huh? Is something wrong? Something must have been caught in her premonition.</p>
+<p>"What's happening...."</p>
+<p>"Hold on tight!"</p>
+<p>Sawayanagi Azuma's Words meant one thing. It was a Story that an accident would happen inside the ship.</p>
+<p>At Sawayanagi Azuma's Words, I grabbed the fixed Table, then embraced Lianna Holden, who was physically the weakest.</p>
+<p>Kwaaaang!</p>
+<p>And with a tremendous roar, the ship began to shake.</p>
+<p>Requested by Chomisaemeonji-nim: Pilates Liz, Nun Liz~!</p>
+<p>Nun~!</p>
+<p>Requested by chea yun-nim: Shy Ha Ju-yoon~!</p>
+<p>Requested by Titan-nim: Slender Eve~!</p>
+<p>Requested by Gojoy-nim: Chapter 26 Shinoe Misano's first meeting, and Mimata Chieri's first meeting~!</p>
+<p>Shinoe Misano</p>
+<p>Chieri~!</p>
+<p>Requested by JungChucky-nim: Teacher Gajeong's Thunderclap Flash</p>
+<p>Since Thunderclap Flash was not learned, I added a little Lightning to the sword drawing technique haha.</p>

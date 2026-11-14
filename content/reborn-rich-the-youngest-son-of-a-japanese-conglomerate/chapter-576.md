@@ -5,69 +5,86 @@ weight = 576
 chapter = 576
 +++
 
-<p>Wearing the uniform of the school where I'm a teacher and saying, "Please hug me, Teacher," isn't that a bit too stimulating for me? Hearing Yukiko's words, I got excited and unknowingly approached her, starting to kiss her.</p>
-<p>Chup, chuheup, jjuubeop...! Jjueup♥</p>
-<p>Lifting my hand over her uniform and touching her chest, I grasped Yukiko's ample breasts fully. As I touched her breasts, Yukiko, while kissing, let out short moans intermittently, revealing her pleasure without hiding it.</p>
-<p>Jjeubeeup....</p>
-<p>Breaking the kiss for a moment, I pulled my lips away, and a lustful silver thread stretched out long and unbroken. Seeing her use honorifics while calling me "Teacher," I wondered if she wanted to do a role-playing scenario, so I whispered while still holding Yukiko's breasts.</p>
-<p>"Is it okay for a student to seduce a teacher with such a sexy body?"</p>
-<p>"I'm sorry, but when I see you, Teacher, my chest feels tight and strange.... I couldn't hold back anymore."</p>
-<p>She's good at acting. Yukiko's eyes were moist and dreamy, like a high school girl truly in love for the first time, with the feeling of a student in heat because she could be with her beloved teacher. Come to think of it, she made me wear a school uniform and do a role-playing scenario when we went to the beach villa before. Seeing her act like this then and now, it seemed Yukiko had a preference for these kinds of situational dramas or role-playing scenarios.</p>
-<p>Because Yukiko's appearance in the St. Francisco Girls' Academy uniform was quite unique, I didn't know how many times we would do it today, but I was thinking of having her wear the uniform for a while. I lowered one of the hands that was touching her breasts and stroked her thigh before placing it over her panties.</p>
-<p>Yukiko's panties were already so wet that they couldn't fulfill their purpose. Due to the damp and slippery vaginal fluids, they were completely stuck to her pussy, and the mounds and curves of her pussy were being transmitted to my fingertips. Like a blind person reading Braille, I felt Yukiko's entire pussy with my fingers. It was so soaked that I could picture its shape in my head without even looking at the pussy area.</p>
-<p>"Why are you so wet?"</p>
-<p>"Haa, Sir, Teacher's touch feels so good...♥"</p>
-<p>Judging by the way she flinched and trembled every time my touch grazed her, my hand must have felt good. I continued to rub the mound of her pussy over her panties, and due to the overflowing vaginal fluids, a *chyak chyak* sound seemed to be heard, and Yukiko couldn't hold back her pleasure and started to rotate her pelvis back and forth.</p>
-<p>"Haaeeuuut, heueueung...! Teacher's thick hands, heuhang...! It feels so good...♥"</p>
-<p>Not long after I touched around her pussy, Yukiko climaxed. As if she couldn't just stand there, her legs gave way, and she leaned against the desk behind her, trembling, which was very seductive. My dick, which had already been heavy since earlier, gained even more strength and pushed against my pants as if it were frustrated.</p>
-<p>"Heuuht, heueueung.... Now, haa, I'll do it for you♥"</p>
-<p>As expected of a succubus, she quickly overcame her climax and, with a seductive smile, lowered the zipper of my pants. As the dick, half-popped out of my underwear and dripping with pre-cum, was revealed with a *jiiik* sound, Yukiko feigned surprise.</p>
-<p>"Oh my♥ Sir, Teacher's.... it's big....!"</p>
-<p>Yukiko was surprised as if she was seeing it for the first time. At this point, it was almost method acting. She was completely immersed in the role of a student in love with her teacher. As Yukiko lowered my underwear following the zipper, my dick revealed its magnificent form in the special class classroom. Yukiko stared at my dick in a daze before kneeling in front of me as if possessed and starting to lick it.</p>
-<p>She started by licking it cautiously at first, but before I knew it, she was taking my massive cock into her mouth and even doing a deep throat, shoving it all the way down.</p>
-<p>"Jjubeuep, gueok, jjeup, chujeup, kkeuek, jjeeup...!"</p>
-<p>My throat was being poked, and she was gagging slightly, but she was still sucking my dick to the end, stimulating it by tightening and loosening her throat around my glans and shaft as if her throat were a living creature.</p>
-<p>"Keueuuht...! Feels good, I'm gonna cum...!"</p>
-<p>Because Yukiko had been teasing my dick so eagerly even before entering the classroom, I couldn't hold back for long and had no choice but to explode.</p>
-<p>Boo-ut, byu-ut! Byueeut!</p>
-<p>Yukiko swallowed my semen as I shot it, and as she pulled my dick out of her mouth, she narrowed her lips and sucked as much as possible, using an advanced technique to extract the semen from my urethra.</p>
-<p>"Aah~ It's delicious, Teacher♥"</p>
-<p>Yukiko, as if trying to get me to confirm that she had eaten everything, opened her mouth and showed it to me, causing my dick, which had just ejaculated, to revive.</p>
-<p>"Sit on the desk and spread your legs."</p>
-<p>At my words, Yukiko, without being told, took off her panties and straddled the desk. And she spread her legs, even slightly parting her pretty pussy with one hand.</p>
-<p>As Yukiko spread her legs, the sweet scent of Yukiko's unique female body filled the classroom. It was a scent that seduced and aroused men.</p>
-<p>I can't help it. It's time for a face-burial. I buried my face in Yukiko's pussy as it was and started licking it ravenously.</p>
-<p>"Haeueueheung! Teacher, heueung, if you lick like that...! Nooo♥"</p>
-<p>Yukiko said it as if she didn't want me to, but she was grabbing my head and pushing it further towards her pussy. I entrusted my head to Yukiko's touch and was licking and sucking the pussy in front of me. The more I licked, the more honey-like, sticky vaginal fluids gushed out of Yukiko's pussy, wetting my chin and the desk.</p>
-<p>"Haaheueueeuht!"</p>
-<p>Yukiko, who had climaxed once again, squeezed my head with her thighs, tilted her head back, and was immersed in pleasure. Of course, at the same time as her climax, she poured out a large amount of vaginal fluids, completely covering the area around my mouth. I licked around my lips with my tongue, tasting Yukiko's vaginal fluids.</p>
-<p>"Haa, haa, haa.... Teacher-nim♥ Now...."</p>
-<p>Yukiko, looking at me with eyes slightly blurred by her climax, pulled up her skirt and spread her legs as if telling me to put it in now. I didn't refuse that look and went between Yukiko's legs, aligning my dick with her pussy hole.</p>
-<p>"Haaht!"</p>
-<p>Yukiko, who had become sensitive due to her climax, fluttered with a small climax just from my dick touching her vaginal entrance. I slowly widened Yukiko's pussy, which was still a beautiful light pink color, with my glans and gradually inserted it into her squishy insides.</p>
-<p>"Teacher, haaht! It feels so good...! Teacher, haaht! How do you feel? My pu...ssy, heuheuung♥ Does it feel good?"</p>
-<p>"Yeah...! Yukiko's pussy feels good."</p>
-<p>At my words that it felt good, she wriggled even more, enveloping my dick with pleasure. I slowly moved my waist, starting a piston motion, overcoming the pressure of Yukiko's pussy, which was holding on tightly as if not wanting to let go.</p>
-<p>"Haaht, heueung...! Too, big, keueeot♥ Teacher's dick, haaht! It's strange. Haaht! The feeling....! Euheung, haaht!"</p>
-<p>With Yukiko's moans as a side dish, my excitement and the speed of my piston motion gradually increased. Yukiko grabbed the area below my waist and hugged me tightly, and even the soft feeling of her breasts being pressed against me, although the uniform was in between, was increasing my excitement.</p>
-<p>Yukiko's pussy had always felt good, but after she awakened as a succubus, it had become a pleasure zone almost to the level of an organ that exploited a man's semen, so even though I had just ejaculated, the feeling of ejaculation was coming again.</p>
-<p>I increased the speed of my waist movements to the point where it made a *cheolssuk, cheolssuk* sound and instinctively prepared to ejaculate in Yukiko's deepest part. Yukiko must have felt my ejaculation coming, as she wrapped her legs around the back of my hips, making it impossible to pull out.</p>
-<p>"Keueut, I'm gonna cum...!"</p>
-<p>"Heuuht! Inside, haa, give it to me inside...! Teacher's hot baby seed, euheung♥ Give it to me deep inside my pussy♥ Haaaaaang...!"</p>
-<p>At my declaration of ejaculation, Yukiko pulled her legs that had been wrapped around my back, allowing my dick to ejaculate in Yukiko's innermost part, and her pussy began to wriggle tremendously as if welcoming the arrival of the sperm.</p>
-<p>"I'm cumming!"</p>
-<p>"Please come, Teacher-niim...!"</p>
-<p>I also clung to Yukiko's inside as much as possible, hugging her and starting to spew semen. My dick was repeating expansion and contraction, repeatedly widening and narrowing Yukiko's pussy, and Yukiko's pussy was wriggling and accepting it as if not wanting to miss even a single drop of my semen.</p>
-<p>Byueeut! Bureut! Byureeut!</p>
-<p>Every time semen came out, Yukiko let out a hot breath in my ear. We were both exhausted, as if we had run at full speed. The sound of us both being sweaty and panting was echoing in the classroom.</p>
-<p>After hugging each other for a while, I massaged Yukiko's breasts and buttocks, which had both elasticity and softness, and then I pulled out my dick. Because my semen volume was so large, milky white semen flowed backwards and started to flow from Yukiko's pussy hole.</p>
-<p>Hmm, an excellent cream pie. I saved this scene in my memory and gave Yukiko a quick kiss.</p>
-<p>"Shall we go home now?"</p>
-<p>"Huh? This time...."</p>
-<p>Yukiko suddenly covered my eyes with her hand. When Yukiko removed her hand, it was the awakened Yukiko with pink hair this time. As she became a succubus St. Francisco female student with wings and horns, my dick perked up again.</p>
-<p>"Are we going to do it in this form?"</p>
-<p>"Then shall we try it in the club room this time?"</p>
-<p>Of course, there was no way I would refuse sex with Yukiko. At my words, Yukiko smiled, took my hand, and got up from her seat. That day, I enjoyed the bodies of three versions of Yukiko: normal Yukiko, awakened Yukiko, and Takinogawa Yukiko. Needless to say, all three versions of Yukiko were the best.</p>
-<p>----</p>
-<p>Yukiko B-cut!</p>
-<p>It's too annoying to put on the seaweed....</p>
+<p>While the special class students were absorbed in makeup, I had a brief chat with the scout team leader from Hyper Entertainment. It was in a room near the makeup room, and as soon as he sat down, he asked me about the students.</p>
+<p>"Teacher, are there any students who want to become celebrities?"</p>
+<p>"No. After counseling them, they all have separate career plans."</p>
+<p>At my answer, the scout team leader went, "Ah...," sounding disappointed. But he didn't seem to have given up yet. He must be thinking of handing out business cards to the students.</p>
+<p>"Then... how about you, Teacher?"</p>
+<p>"Ah, I'm okay...."</p>
+<p>"If you come to this industry, you can have both fame and money! Actually...."</p>
+<p>Was he targeting me? I was about to wave my hand and refuse, but the scout team leader started explaining like a machine gun, dudududu.</p>
+<p>"Stop it, Team Leader-nim. Ryuta has no intention of working as a celebrity."</p>
+<p>"Ah, were you acquainted with Ha Ju-yoon-ssi?"</p>
+<p>"Yes. I'm friends with her daughter. Even when I tell him to become a celebrity to his face, he says he won't."</p>
+<p>"Ah.... Is that so."</p>
+<p>While I was flustered, Ha Ju-yoon appeared like a hero and saved me. The scout team leader looked at me several times as if he was disappointed, then said, "Excuse me," and left the room.</p>
+<p>"Noona, but how did you know we were coming here?"</p>
+<p>Once we were alone, I asked what I was curious about. I had only mentioned going to Korea, but I hadn't shared any details, so I was curious how she knew my whereabouts.</p>
+<p>"Ah, about coming here? Of course, Karen and I are in the same agency, so I naturally found out. They were talking about it super last minute, right? I heard some people complaining that they were told two or three days before the graduation trip."</p>
+<p>Ah, right.... Actually, Ha Ju-yoon was with an agency under the Shinkang Group, but after divorcing Han Yu-gyeong's father, Han Seong-jae, she received help from Nae Fitzgerald and was with a one-person agency before moving to Hyper Entertainment.</p>
+<p>I hadn't thought much of it and had forgotten, but I didn't connect the fact that Uenozono Karen's agency for her activities in Korea and globally was Hyper Entertainment, so I didn't consider that Ha Ju-yoon might know about this.</p>
+<p>"The reason they told us three days ago is.... The school decided on the travel destination late. So, we also decided what to do for today's free time by drawing lots super last minute, you know?"</p>
+<p>"So, Karen won the lottery and ended up visiting our agency?"</p>
+<p>Hearing the behind-the-scenes story of how our special class ended up visiting the agency, Ha Ju-yoon laughed merrily.</p>
+<p>"But is this what you meant by surprising me?"</p>
+<p>"No? You probably expected that you might meet Karen since you know Karen and I are in the same agency.... The surprise is something else."</p>
+<p>I see. If I said I forgot that Uenozono Karen and she were in the same agency and didn't even think about it, she would be disappointed, so I casually brushed it off with, "Ah, is that so?"</p>
+<p>"Ah, and did you receive what I sent by quick service okay?"</p>
+<p>"Yeah! I enjoyed the snacks Yongtae sent."</p>
+<p>I had sent the snacks from the Japanese mart that Ha Ju-yoon asked for by quick service yesterday before going to meet Han Yu-gyeong. I'm glad she received them okay.</p>
+<p>"What have you been up to lately, Noona?"</p>
+<p>"Me? I'm preparing for my next project. I also meet Nae-unni or Yukiko often."</p>
+<p>As expected of an actress, her only job would be preparing for her next project. But this was the first time I heard that she often meets Nae Fitzgerald or Yukiko. It seemed they had become very close, perhaps because they lived in the same house for a few days.</p>
+<p>"By the way, I knew you were working as a teacher for a mission, but I didn't know you were with such pretty girls? How many have you laid your hands on?"</p>
+<p>"I don't touch minors."</p>
+<p>I answered firmly to Ha Ju-yoon's question. Ha Ju-yoon smiled slyly at my answer.</p>
+<p>"I already heard from Yukiko that some of them are adults, you know?"</p>
+<p>Ah, this isn't working.... I knew she was close to Yukiko, but I didn't know she would talk about this too.</p>
+<p>"Don't worry. I won't tell anyone. We're just sharing information because we're Yongtae's women."</p>
+<p>Of course, I didn't think Ha Ju-yoon would spread my story anywhere.</p>
+<p>"I'm not worried. I trust Noona no matter what anyone says."</p>
+<p>"Yongtae-ya...."</p>
+<p>Ha Ju-yoon looked touched by my words of trust. Just as a slightly pink atmosphere was about to form, the door opened. I was about to reach out to Ha Ju-yoon, but if the door had opened just a little later, it would have been a disaster.</p>
+<p>"Ha Ju-yoon-nim, it's time for your next schedule."</p>
+<p>It seemed to be Ha Ju-yoon's manager. Ha Ju-yoon answered that she understood and got up from her seat.</p>
+<p>"Hehe, please take good care of our Karen, Teacher."</p>
+<p>As the manager was watching, Ha Ju-yoon mentioned Karen and said her goodbyes.</p>
+<p>"Ah, and the students are looking for you too, Teacher."</p>
+<p>The manager looked at me and spoke as if he had just remembered. Ha Ju-yoon and the manager left the room, and I followed them out and headed to the makeup room.</p>
+<p>"Ryuta-cchi, where were you?"</p>
+<p>As I went to the makeup room, Seizawa Shii was the first to greet me. Her appearance with Korean-style makeup instead of her usual gyaru makeup was definitely new. It felt a bit more innocent, perhaps? The students were already so pretty to begin with, so it was a different feeling from usual, but they were all beautiful.</p>
+<p>"The makeup suits you well."</p>
+<p>"Ah, really? Ryuta-cchi, you're so smooth with your words."</p>
+<p>Even so, Seizawa Shii seemed quite pleased. The special class students lined up like they were getting lunch from the cafeteria lady, receiving evaluations that they looked good and were pretty one by one, and finished their Korean makeup experience in a good mood.</p>
+<p>Next was the Hyper Entertainment in-house cafeteria experience, which had become quite famous through Mitube and variety shows. We had spent quite a bit of time shopping and getting makeup done, so it was dinner time, and we followed Uenozono Karen up to the cafeteria.</p>
+<p>"Wow~! I saw this on Mitube!"</p>
+<p>"I saw it through a VR experience, so it feels familiar even though it's my first time here in person."</p>
+<p>Some were amazed, and Oofuchi Erika, having seen it several times through VR Dive, familiarly took a tray and lined up. You can come and see places like this building in advance with VR Dive. How fascinating.</p>
+<p>I also lined up and received my meal. Today, galbi-tang (short rib soup) was the main dish, along with several delicious-looking Korean side dishes. They gave a lot of galbi. They put galbi in one bowl that you would normally only see if you ordered at least two servings, so it looked very generous.</p>
+<p>As we sat in a row at one table, the members of Uenozono Karen's group, Serif, also received their food and joined us.</p>
+<p>"Hello, Teacher."</p>
+<p>"Yes, I'll enjoy the meal."</p>
+<p>"Ohoho, it's not like we're paying for it."</p>
+<p>Seyoon, the Korean member and leader of Serif, greeted me familiarly, so I greeted her back. Is what I said that funny?</p>
+<p>I greeted the other members and ate my meal. It was galbi-tang after a long time, so I ate it quite deliciously. The students were also satisfied. It wasn't a spicy dish for Japanese people, so everyone could eat it without any dislikes.</p>
+<p>While eating, the Serif members said that they were having a great time resting during their break thanks to Uenozono Karen. Serif had been working so hard that Uenozono Karen's attendance was almost at the limit, so they said that taking a break like this felt like an oasis in the desert.</p>
+<p>On the contrary, Uenozono Karen felt sorry to her Serif unnies because their activities had been temporarily suspended because of her, but the Serif members seemed genuinely happy to be resting.</p>
+<p>"Still, should Karen turn on a live stream since she's in Korea for the first time in a while?"</p>
+<p>"Let's do the live stream later.... I'm going to practice dancing with my classmates today. Like a trainee experience?"</p>
+<p>Ah, that's right. She said we were going to have a trainee experience today. Most of the kids in our class are good with their bodies, so I think they'll be good at dancing if they learn.</p>
+<p>After the meal, we ordered dessert and enjoyed sweet treats while resting. Then, we went to the practice room with mirrors that the trainees use. Of course, they would upload it as a vlog later, so Hyper Entertainment's filming team came in to film.</p>
+<p>I was sitting in the corner watching the students sweat and dance happily when my phone suddenly vibrated. I checked and saw that I had received a message from Tairaga Kokoro.</p>
+<p>-Tairaga Kokoro: You're not allowed to join any agency other than Tairaga Entertainment?</p>
+<p>How does she know I came to Hyper Entertainment? Even if Tairaga Entertainment and Hyper Entertainment have a relationship similar to an alliance, there's no way she would know.... As expected of the eldest daughter of the Tairaga family, she seemed to have a mole hidden somewhere in Hyper Entertainment.</p>
+<p>-Tairaga Ryuta: I told you, I have no intention of becoming a celebrity in the first place, Aunt.</p>
+<p>-Tairaga Kokoro: Don't be so sure.</p>
+<p>Seriously, why is she so confident when I'm saying I won't do it? While I was arguing with Tairaga Kokoro for a while, someone plopped down next to me. I looked to the side and saw Minamoto Risa drinking water while sweating.</p>
+<p>"You're good at dancing. Did you learn a bit?"</p>
+<p>"If you're from a prestigious family, you learn dance lessons from a young age.... You just need to apply that well to idol dances like this."</p>
+<p>I see. Everyone was good at dancing. It seemed that they had all learned to dance since they were young.</p>
+<p>________</p>
+<p>Seizawa Shii in Hanbok~!</p>
+<p>Saionji Diana in Hanbok~!!</p>
+<p>Minamoto Risa in Hanbok!</p>
+<p>Last but not least, the Home Economics Teacher~!!</p>
+<p>The Home Economics Teacher looks good in all kinds of Eastern-style clothes. Next time, I should have her try on a cheongsam or an Ao Dai, hehe.</p>

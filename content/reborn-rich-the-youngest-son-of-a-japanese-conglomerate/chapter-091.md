@@ -5,82 +5,75 @@ weight = 91
 chapter = 91
 +++
 
-<p>The shape of Taira Ryuta's massive cock under the towel was like a brand. It was etched into Taira Yukiko's mind, impossible to forget. She kept thinking about it while working and even while sleeping.</p>
-<p>"This can't be helped..."</p>
-<p>Not knowing who she was making excuses to, Taira Yukiko muttered to herself and accessed an adult product sales site on her smartphone. Taira Yukiko clicked on dildos and scrolled down, looking for a dildo that was a similar size to what she remembered Taira Ryuta's to be.</p>
-<p>But all the dildos that were the size of what she remembered Taira Ryuta's to be were black, as if they were modeled after a Black person's dick. Taira Yukiko, who was looking for a dildo with the apricot color of an East Asian person, couldn't find one in the end and ordered the lightest brown dildo she could find.</p>
-<p>After that, she was so busy with work that she forgot she had ordered the dildo. This was because there was an attempted sexual harassment incident in the Education Support Team 2 that Taira Ryuta was in, where the deputy team leader knocked out the team leader with spray, so she had to discipline them, and she was busy with various other things. When she was unable to pay attention, she received a LINE message from Taira Ryuta.</p>
-<p>Taira Ryuta: Mother, I'm staying out tonight. And I left your package in front of the door.</p>
-<p>A package? What package is he talking about? Taira Yukiko thought for a moment, then her face turned pale. That's right, she had ordered a dildo. Taira Yukiko hurriedly moved her fingers and sent a message.</p>
-<p>Taira Yukiko: Okay, you didn't happen to open my package, did you?</p>
-<p>Taira Ryuta: I may be a high school graduate, but I know my manners. I just put it on the side table with the flower pot next to the door so it would be easy for you to take.</p>
-<p>That was a relief. If Taira Ryuta had opened it, she would have been too embarrassed to ever look Taira Ryuta in the face again.</p>
-<p>Taira Yukiko: Thank you. You're hanging out with friends, right? Have fun.</p>
-<p>Taira Yukiko has sent 100,000¥.</p>
-<p>Taira Yukiko sent Taira Ryuta some spending money so that he wouldn't pay any more attention to the package. And because it was the weekend, she quickly left work and found the long box on the side table next to her door. Fortunately, the invoice cleverly said "stationery."</p>
-<p>Taira Yukiko carefully carried the box into the bedroom. When she opened the box, an overwhelmingly large 10-inch (25.4 cm) brown dildo came out. However, Taira Yukiko hesitated to put that brown dildo inside her pussy.</p>
-<p>"If it gets stretched out before I even do it..."</p>
-<p>Taira Yukiko was surprised even after saying that, and she had to admit that she was already thinking of Taira Ryuta as her partner. Instead of putting the dildo in her pussy, Taira Yukiko put it in her mouth. She held the dildo in one hand, put it in her mouth, and started masturbating, stroking her pussy with the other hand.</p>
-<p>"Haa... Ryuta...! I'm sorry, your stepmother is such a pervert..."</p>
-<p>She apologized, but Taira Yukiko didn't seem to be reflecting at all, as she put the dildo back in her mouth and rubbed her pussy again.</p>
+<p>"Hnnng!"</p>
+<p>Yukiko makes a moaning sound of pleasure just from me lightly touching her pussy. She's always been like this, so sensitive. Well, it's only been a few days, and after the infertility results, Saburo-san reduced their bedroom activities, so she probably hasn't gotten used to not doing it for years.</p>
+<p>According to what Yukiko-san told me, she and Saburo-san were a sexless couple for the three years before he died, and even before that, they didn't do it often, so it's no wonder she's so sensitive to stimulation.</p>
+<p>I gently rubbed the outer part, then inserted just the tip of my index finger, and Yukiko's hot pussy tightened as if to cut off my finger. It was only in the entrance, but it was so hot and tight. I feel it every time, but Yukiko's pussy is as good as a virgin's.</p>
+<p>"Haaahm...! Ryuta, don't just touch there... put it in a little deeper...."</p>
+<p>It was just the tip of my finger, so Yukiko-san had an impatient expression and wiggled her hips back and forth. This time, I put in two knuckles, but it still didn't seem enough for Yukiko-san. I smiled and looked at Yukiko-san.</p>
+<p>"Should I put it in more?"</p>
+<p>"Uhn! More, put it deeper inside, I'm longing for the deep inside...!"</p>
+<p>This time, I pulled it out slightly and inserted not only my index finger but also my middle finger, all the way to the third knuckle. And I started rubbing Yukiko's weakness that I had found before mercilessly.</p>
+<p>"Hyaak! No, no, too... too strong! No, gooood, ahhh!"</p>
+<p>As I targeted her G-spot with my index and middle fingers, Yukiko-san clung to my arm and squirted her juices like a water pistol. She said no, then she said good, it was hard to figure out, but I guess it all meant good. As she poured out the water pistol and her legs gave way, I grabbed Yukiko's shoulders to support her. And then I pushed her onto the bed.</p>
+<p>I lifted her apron and showed her pussy, then thrust my dick in. She had already gone once, but Yukiko-san moved her waist and pelvis on her own while lying down, fitting my glans into her pussy hole. Impressive, huh? To be able to put it in like this while lying down.</p>
+<p>"Now, just move your waist, Ryuta. Shake Ryuta's chinko (チンコ: a cute way of calling it a 'dick') in this mother's precious place as much as you want."</p>
+<p>Yukiko-san looked at me with a loving face and a seductive gaze. Is she trying to do a mother-son incest play? Okay, I can't lose either. I pushed my waist forward and shoved my dick all the way in.</p>
+<p>"Haaht!"</p>
+<p>"Ugh, Mommy's inside feels so good...!"</p>
+<p>When I pressed her cervix with my dick and whispered in her ear, Yukiko-san seemed to have gone a little. She unexpectedly likes role-playing. By the way, the more I get to know Yukiko-san, the more strange attributes she's getting. Scent patissier, role-play enthusiast... What kind of attribute will she get next? She was a surprisingly rewarding married woman to develop.</p>
+<p>"Hwaaang! More, put it in more. Fill Mommy's lewd flesh pot with Ryuta's baby juice...!"</p>
+<p>It was still far from climaxing, but Yukiko-san was already wriggling her waist and begging for my semen. Maybe because she's infertile, she's actually aggressive about internal ejaculation.</p>
+<p>From the reactions of women up until now, I knew that my semen was hot and plentiful, so they felt good when they received internal ejaculation. Still, most women were instinctively a little afraid of internal ejaculation even though they knew that hot pleasure, but Yukiko-san almost always demanded internal ejaculation from me unless it was a blowjob.</p>
+<p>Is it because she's infertile that she's releasing it this way? I felt a little sorry for Yukiko-san, so I kissed Yukiko-san on the lips.</p>
+<p>"Haaahm! Ryuta's tongue is delicious...! Hwaa.. um...eup, chuu.... Chup!</p>
+<p>Yukiko-san sucked on my tongue ravenously and hugged me tightly. When Yukiko-san hugged me tightly, I felt Yukiko's breasts being pressed against my chest. Ah, it's a shame I'm wearing an apron right now. I wanted to feel the bare skin of her breasts. Well, it's not like we're only going to do it once tonight, so I'll take off the apron when we do it the second time.</p>
+<p>We continued our passionate kiss and kept shaking our waists without rest. Yukiko's pussy, which was not yet used to my length, put pressure on my dick as if trying to push it out every time I thrust. But when I pulled it out, it sucked my dick as if telling me not to go. Unlike the benevolent Yukiko-san, who doesn't refuse my requests, her pussy was like a tsundere.</p>
+<p>Of course, the stimulation on my dick was the best because of that tsundere-like reaction. Yukiko's pussy was definitely a masterpiece. Thanks to my size, most women's pussies felt like masterpieces, but Yukiko's was an amazing masterpiece even without that.</p>
+<p>"Hheoeoeong...! Hwaahk! I think I'm going...! Ryuta, Ryuta, I love you♥ Haaang, haaang! I'm going, going, going♥"</p>
+<p>"Mommy, I think white pee is coming out!"</p>
+<p>"Aaaahaaang!!!"</p>
+<p>Yukiko-san rolled her eyes and reached a splendid climax at my lines that were faithful to the role-play until the end. At the same time, Yukiko's pussy showed contradictory muscle movements, pushing my dick out and sucking it in. With the complicated wriggling movements inside her vagina, I couldn't help but ejaculate white pee deep inside Yukiko-san.</p>
+<p>As my hot semen filled her uterus and vagina, Yukiko-san went again. Her body trembled, and she seemed to be feeling very good.</p>
+<p>"Heeheung.... I love you, Ryuta...♥"</p>
+<p>Yukiko's face, wet with tears and sweat, looked very beautiful. More than anything, it was because she was looking at me with loving eyes.</p>
+<p>"This time, let's take off your apron and do it naked, Mommy♥"</p>
+<p>"Haaang, just a little, just rest a little, heeheung...♡"</p>
+<p>No, why is your gaze so lewd while saying let's rest a little? I took off Yukiko's apron, following the will of her gaze rather than Yukiko's words.</p>
 <p>###</p>
-<p>"Director, something terrible has happened!"</p>
-<p>The secretary, who was usually calm, hurriedly opened the door to the Director's office of the Human Resources Development Center and came in.</p>
-<p>"What's wrong?"</p>
-<p>"There's been a terror attack at Yotsukaido General Park...!"</p>
-<p>"What?"</p>
-<p>Suddenly, she remembered the day her husband, Taira Saburo, died. Taira Yukiko hurriedly ran to Yotsukaido General Park. Arriving at the scene of the terror attack in one breath, Taira Yukiko was able to find Taira Ryuta, covered in blood, sitting in front of an ambulance and talking to Shinoe Misano, the team leader of Education Support Team 2.</p>
-<p>"Ryuta...!"</p>
-<p>"Mother, you're getting blood on you..."</p>
-<p>Taira Yukiko hugged the blood-soaked Taira Ryuta as he was. Taira Ryuta was not worried about himself being hurt, but only worried about Taira Yukiko's clothes getting blood on them.</p>
-<p>"I was so worried."</p>
-<p>Taira Yukiko had lost her mind at the news of the terror attack, even surprising herself. She realized that her stepson, Taira Ryuta, had become a precious person to her. Taira Yukiko thought that Taira Ryuta shouldn't be sitting in front of the ambulance covered in blood like this.</p>
-<p>"Let's go to the hospital."</p>
-<p>"I'm okay. They're just scratches... More than that, I want to eat something like meat?"</p>
-<p>"You're okay?"</p>
-<p>After hearing Taira Ryuta's words, Taira Yukiko called a paramedic and asked about his current condition. Contrary to Taira Yukiko's expectations, she was relieved to hear that he was fine with just scratches.</p>
-<p>"He really is okay. Shinoe Team Leader, come here."</p>
-<p>Taira Yukiko called Shinoe Misano, the team leader of Education Support Team 2, who was standing next to her. Shinoe Misano bowed politely and approached, saying, "Yes, Director!"</p>
-<p>"I'm going to take my son home and come back, so Shinoe Team Leader, please take care of our company's work here. Since we're not responsible for the situation anyway and we're the victims, there's no need for Shinoe Team Leader to do anything. However, please make sure to check the damage to our Human Resources Development Center staff and make sure to provide condolence money in the company's name to the deceased."</p>
-<p>After telling Shinoe Misano what to do, she put Taira Ryuta in the car and headed home. Taira Yukiko looked at Taira Ryuta in the back seat through the rearview mirror.</p>
-<p>"I heard you fought the terrorists?"</p>
-<p>"If I hadn't stepped up, everyone but me would have died."</p>
-<p>"Still, don't do that again. Your life is more precious than everything here."</p>
-<p>Taira Ryuta, who had been silent for a moment, opened his mouth.</p>
-<p>"I won't die."</p>
-<p>"...."</p>
-<p>He seemed to have noticed that she was worried that he would suddenly die like her husband, Taira Saburo. Taira Ryuta's eyes were calm. His expression was as if the incident had not been a threat at all. Taira Yukiko felt complicated by the look in his eyes that said, "Unlike your dead husband, I won't leave you alone."</p>
-<p>###</p>
-<p>I don't know exactly when it was, but it was probably when the housekeeper was on vacation. Taira Yukiko was taking the laundry basket in front of the bathroom and putting the laundry in the washing machine. As she was about to put Taira Ryuta's underwear in the washing machine, a certain smell wafted into her nose.</p>
-<p>Without realizing it, Taira Yukiko put the panties that Taira Ryuta had worn to her nose. It was an addictive smell, different from her husband Taira Saburo's.</p>
-<p>That night, Taira Yukiko masturbated while smelling Taira Ryuta's panties.</p>
-<p>After that, she developed a habit of stealing Taira Ryuta's used panties from time to time. Her mind told her it was wrong, but her desires always suppressed her reason.</p>
-<p>The same was true when he suddenly suggested going to see the cherry blossoms; her desires suppressed her reason. On the day that Taira Saburo's 49th day memorial service ended, Taira Ryuta suggested a cherry blossom date because he couldn't stand to see her depressed. As his mother, she should have refused, but she couldn't.</p>
-<p>A long-awaited date with someone, the cherry blossoms fluttering in the wind, and the fireworks adorning the sky... Was it because of the atmosphere of the surrounding environment, or was it because she had fallen deeply for her stepson Taira Ryuta? Taira Yukiko ended up giving him her lips.</p>
-<p>She felt tremendous ecstasy while kissing, but she suddenly became afraid when Taira Ryuta touched her breasts. She felt like everything had become real, and the ethics that had been hiding behind her until now were coming out.</p>
-<p>"Let's stop here. I'll do it next time, next time."</p>
-<p>Taira Ryuta smiled gently at her clumsy refusal of "next time."</p>
-<p>"Next time, I'm going all the way."</p>
-<p>How sweet were the words "all the way" that lingered in her ear... Taira Yukiko's panties were unknowingly soaked.</p>
-<p>###</p>
-<p>After that, Taira Ryuta stopped calling her "Mother." It was like a declaration that he would be more active and blatant in targeting her, but Taira Yukiko was not displeased. In particular, the line that Taira Ryuta said when two men were hitting on her when he briefly left his seat at Dijuni Land shook her heart.</p>
-<p>"Excuse me, do you have business with my girlfriend?"</p>
-<p>When Taira Ryuta glared at the men confidently, the two men disappeared in an instant, as if they had never persistently asked her to hang out with them. Girlfriend... Taira Yukiko thought her heart had broken for a moment. Her heart was beating so loudly that she was embarrassed, wondering if Taira Ryuta could hear her heartbeat.</p>
-<p>Taira Yukiko pretended to be asleep after eating gyudon at a gyudon restaurant. She felt like she would give Taira Ryuta everything if she continued like this.</p>
-<p>When they arrived home, she continued to pretend to be asleep, so Taira Ryuta carried her in his arms like a princess and laid her on the bed.</p>
-<p>Taira Yukiko pretended to be sleepy and forced her eyes open, looking at Taira Ryuta.</p>
-<p>"Thank you."</p>
-<p>"You're welcome."</p>
-<p>Taira Ryuta kissed Taira Yukiko on the forehead, then lightly kissed her on the lips, whispered "Good night," and left the room.</p>
-<p>Her forehead and lips were hot. Taira Yukiko felt like she had become a girl again.</p>
-<p>"Hehe..."</p>
-<p>Looking at herself touching her forehead and lips and making strange smiles, she felt embarrassed and excited.</p>
-<p>And a few days later, she finally mixed bodies with Taira Ryuta. A pleasure that was on a different level from what she had with her husband a few years ago pierced through her. She felt orgasms dozens of times, and when she received Taira Ryuta's hot semen inside her, she felt as happy as if she had the whole world.</p>
-<p>After the long sex that lasted until dawn, Taira Ryuta showed her the Health Miracle stock, which had been soaring recently, to reassure her, and then told her about the head of the personnel department, who was rumored to be on Taira Jiro's line, and the deputy team leader of his team.</p>
-<p>"Don't worry about it anymore. I'll take care of it."</p>
-<p>Yukiko gently spoke, embracing Taira Ryuta's face with her voluptuous breasts. Looking at Taira Ryuta, who was leaning on her chest and slowly falling asleep, she felt an indescribable sense of happiness. Is this the heart of a mother who has a son?</p>
-<p>"Good night, Ryuta."</p>
-<p>Now she had to protect this child. Taira Yukiko was determined that she would not stand by and watch anyone try to touch Taira Ryuta.</p>
-<p>----------------------------------------------------------</p>
-<p>Bonus</p>
-<p>Taira Yukiko wearing a mini Kimono</p>
+<p>I woke up to the small alarm sound, carefully lifted Yukiko's head, who was sleeping next to me, and pulled out my arm. And I put a pillow under Yukiko's head. I looked at the clock and it was 5 o'clock. The housekeeper ajumma will be here soon, so I have to go to my room.</p>
+<p>Chooch!</p>
+<p>I lightly kissed Yukiko's lips and went to my room. In my room, the suitcase I brought back from my trip to Korea was still there. Ah, I have to organize this too. Since I woke up early in the morning, I should organize it now.</p>
+<p>"I was going to sleep a little more...."</p>
+<p>But what can I do? I couldn't just leave the suitcase like this. I sighed softly and opened the suitcase to start organizing my things.</p>
+<p>The clothes I wore need to be washed, so I'll put them in the laundry basket... I'll take out the souvenirs for Yukiko-san and the people around her here, and the glasses from the ruins in their original place... Should I have Yukiko-san try them on? Even regular NPCs get traits every 2 levels, so Yukiko-san, who is the director of the Human Resources Development Center, must have gotten quite a few traits. I'm curious, so I should organize first and then go to Yukiko-san and have her try them on.</p>
+<p>"Ah, I also had Juankwa."</p>
+<p>I should also give her the Juankwa, the elixir I got from Korea. First, I'll set aside the Juankwa and the glasses from the ruins and start organizing. The suitcase was big, but it was mostly gifts and the clothes I wore, so the organization was quick.</p>
+<p>As I was organizing, I heard the sound of the front door opening. It seemed like the housekeeper ajumma had arrived. I put on my clothes, took the prepared gifts, and went down to the first floor.</p>
+<p>"Hello."</p>
+<p>"Did you have a good business trip?"</p>
+<p>"Yes, here's a gift."</p>
+<p>The gift was a Korean seaweed set. Even in 2053, seaweed was still a popular Korean travel gift, so I prepared seaweed. It was too much trouble to think about anything else.</p>
+<p>"You shouldn't have... Thank you, Doryeon-nim."</p>
+<p>"It's just a simple gift. I'll wake up my mother today, so you don't have to wake her up yourself. She probably won't eat breakfast either."</p>
+<p>"Ah, thank you. I'll ask her about breakfast one more time."</p>
+<p>I went back up to my room on the second floor, took out the laundry, Juankwa, and the glasses from the ruins. First, I put the laundry in the laundry basket, took a cup of water, and went into Yukiko's room.</p>
+<p>"I think it was a good thing I said I would wake her up."</p>
+<p>When I entered Yukiko's room, the smell of a man's semen and a woman's pheromones, which I didn't notice when she was sleeping in the room, filled the room. The smell almost made me hard again. If the housekeeper ajumma had come in, she would have found out about the relationship between Yukiko-san and me because of the smell. I turned on the air purifier to remove the smell and opened the curtains to let in the sunlight.</p>
+<p>"Eueum...!"</p>
+<p>Yukiko-san frowned at the sunlight coming through her eyelids. I put the Juankwa, the cup of water, and the glasses from the ruins on the bedside table and kissed Yukiko-san. Yukiko-san, who was already half awake because of the sunlight, naturally opened her lips and mixed her tongue with mine when my lips touched hers.</p>
+<p>"Haaahm...! Morning kiss?"</p>
+<p>"Yes, the housekeeper ajumma came, but I said I would wake you up. And here's water."</p>
+<p>"Really? Thanks for the water."</p>
+<p>Yukiko-san took the cup of water I handed her and drank it all in one shot. She must have been thirsty since she had shed so much sweat and juices this morning.</p>
+<p>"Have this for breakfast."</p>
+<p>"What is this?"</p>
+<p>"It's a fruit I forgot to give you yesterday. It makes you prettier and slows down aging."</p>
+<p>Yukiko-san bit into it right away at the words that it would make her prettier and slow down aging. Han Yu-gyeong-ssi was like that too, but women seem to go crazy for the words that they will become prettier. Now that there's only one left, I should give the remaining one to Arisu.</p>
+<p>"It's a taste I've never had before, but it's really delicious?"</p>
+<p>The Juankwa was an elixir, so its taste was also special. It was the average taste of pineapples, peaches, and apples harvested at their most delicious, then multiplied by 1.5. In other words, it was incredibly delicious.</p>
+<p>I looked at Yukiko-san eating the Juankwa with a happy expression and put on the glasses from the ruins. I was curious to see what kind of traits they would have.</p>
+<p>___</p>
+<p>Illustration</p>
+<p>Yukiko showing off her armpits.</p>
+<p>Yukiko in the morning.</p>

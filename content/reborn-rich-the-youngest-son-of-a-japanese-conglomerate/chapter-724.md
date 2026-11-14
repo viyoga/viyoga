@@ -5,78 +5,89 @@ weight = 724
 chapter = 724
 +++
 
-<p>On the airplane to Datong, I began to ponder one thing. It was about how much of my skill and true identity I should reveal.</p>
-<p>Gao Xiang (高翔), the leader of the Red Revolution Front, was a monster with his entire body illegally modified with cybernetic implants. As the huge bounty on his head suggested, he was much more dangerous than Jeon Yong-cheol, whom I had fought before.</p>
-<p>Especially since Gao Xiang's goal was to turn all Chinese citizens into cyborgs, creating a unified cyberpunk communist nation that solely followed the Red Revolution Front's ideology, all of his executives were cyborgs who had replaced over 70 percent of their bodies with cyber implants.</p>
-<p>This meant that not only Gao Xiang but also his subordinates were quite strong, so I would have to fight with some seriousness to truly contend with them.</p>
-<p>Jeon Yong-cheol, a similar cyborg character I had fought before, was strong alone, and his subordinates were mostly Trash Mobs, so there was no need to worry about the others. But here, each subordinate in the boss battle was strong, making the enormous bounty understandable once I fought them.</p>
-<p>Of course, the high bounty wasn't just because Gao Xiang was strong, but because of the numerous atrocities committed by the Red Revolution Front, including the New Nanjing cyber Zombie incident. Players who directly faced them in the game could only curse in frustration.</p>
-<p>I also had elite Vanguard comrades, including I Yeon-ju, but excluding I Yeon-ju, I didn't know how much capability the Vanguard rescue team would demonstrate.</p>
-<p>Moreover, since rescue was the main objective here, I might even have to fight Gao Xiang alone.</p>
-<p>「And if I'm going to film evidence, I'll ultimately have to hide my true identity....」</p>
-<p>Since I was rescuing Lara Sinclair and her party anyway, I planned to film a video of killing Gao Xiang to also claim the bounty, but to do that, I had to hide my identity.</p>
-<p>Even if I participated in combat, the Vanguard agents would be fine since they were wearing combat helmets and cyber suits, but I was the problem....</p>
-<p>「Ultimately, I'll have to say Black Knight handled this.」</p>
-<p>My worry until now was whether to reveal that I was Black Knight to everyone except I Yeon-ju, who already knew my true identity through Han Yu-gyeong.</p>
-<p>Considering the difficulty and the need to hide my identity, no matter how I thought about it, fighting as Black Knight seemed to be the only option.</p>
-<p>First, during the rescue mission, I could just fight. If we fought the boss battle together, I would reveal my identity, but if I fought alone, I wouldn't have to, so I could just fight in Black Knight mode.</p>
-<p>While I was pondering, the airplane had already landed at Datong Yuangang International Airport.</p>
-<p>「This time, we decided to just rent a car instead of a guide. We can just input the coordinates of where contact was lost and follow the navigation. Since combat is almost certain, a guide would only be a burden.」</p>
-<p>I Yeon-ju explained to me in the airport Parking Lot. If we already knew the way, it was better not to have a guide. Besides becoming a burden, as I Yeon-ju said, we were going to cause a ruckus in another country, so the fewer people who knew our true identities, the better.</p>
-<p>Even if a guide was affiliated with the Shadow Merchant, they could betray our trust and contact Public Security, so the choice to only rent a vehicle was excellent.</p>
-<p>「We've brought all the cargo.」</p>
-<p>As I Yeon-ju and I waited briefly in front of a vehicle that seemed to be a modified large military transport, Vanguard agents brought plastic containers filled with combat equipment.</p>
-<p>「Let's load it into the car and depart. The navigation says it'll take about an hour and a half, so let's put on our gear in the car.」</p>
-<p>「Understood.」</p>
-<p>At I Yeon-ju's words, the Vanguard agents swiftly loaded the equipment into the car. And as everyone boarded the vehicle, it began to depart.</p>
-<p>「Here are your combat helmet and cyber suit.」</p>
-<p>One of the Vanguard agents handed me the equipment. Everyone was casually stripping off their clothes and putting on their cyber suits. For reference, I Yeon-ju was sitting in the passenger seat, and the driver was a woman. The driver's seat side seemed to be blocked off, so the Vanguard agents appeared to be undressing without much thought.</p>
-<p>I only had the one set of clothes I was wearing, so I'd have to take them off and put on the cyber suit. After all, I needed clothes to wear when I returned after the mission was over.</p>
-<p>Hulleong!</p>
-<p>「!」</p>
-<p>As I stripped off my clothes, everyone who had been glancing over stared at me with wide eyes. To be so surprised when I hadn't even taken off my underwear... they'd probably faint if I did. Though, the front of my boxer briefs was indeed incredibly thick because of my Large Penis.</p>
-<p>I put on my cyber suit with a slightly smug feeling. I left the combat helmet beside me, as I could put it on later before disembarking.... I subtly checked my phone.</p>
-<p>Habitually, I turned on the internet and saw the search screen for the Phantom Thief François suspicion case, where I had searched why Nae Fitzgerald had come to Korea early. The internet signal was weak.</p>
-<p>As we headed towards the former Wolf's research complex, now occupied by the Red Revolution Front, there would be no internet or satellite communication, making it indeed a suitable hiding place for a terrorist organization.</p>
-<p>Looking at the Phantom Thief François incident screen on my phone, I realized I hadn't asked Nae Fitzgerald what I was curious about.</p>
-<p>I'd have to ask her next time what data Phantom Thief François had stolen from the Taira Laboratory.</p>
-<p>I had planned to ask her after giving her plenty of sex and completely satisfying Nae Fitzgerald.</p>
-<p>But because contact with Lara Sinclair had suddenly been cut off, forcing me to rush to China, my questions for Nae Fitzgerald would have to wait.</p>
-<p>After quickly changing clothes and thinking about Nae Fitzgerald for a moment, we had already left the Datong Downtown Area and were driving through a wasteland.</p>
-<p>This is why there was no internet. Since it wasn't a populated area, they probably didn't bother building a base station. Or it could have been destroyed by war and still not restored.</p>
-<p>「We're now slowly entering the area where the Shadow Merchant guide and Lara Sinclair-ssi lost contact. Please prepare, as we don't know what might happen.」</p>
-<p>I Yeon-ju rolled down the driver's seat window and informed us. I glanced over and saw that I Yeon-ju also seemed to have already changed into her cyber suit.</p>
-<p>Bu-aaaaang!</p>
-<p>No sooner had I Yeon-ju's warning ended than guys on bikes appeared from nowhere and began chasing our vehicle.</p>
-<p>「Kiehehe!」</p>
-<p>Tang! Tang! Tang!</p>
-<p>Ordinary people would feel fear from guys approaching with monstrous shouts and gunfire, but these individuals were Vanguard agents, among the top few in Korea.</p>
-<p>Since it was a combat transport vehicle modified to look like a civilian car, there were holes through which gun muzzles could be extended. So, the Vanguard agents, holding their guns with one hand, counterattacked the enemies who were precariously riding their bikes with one hand.</p>
-<p>Kwang!</p>
-<p>Several of them were swept up with a bike that was hit by a Bullet in its Battery and engulfed in a spectacular explosion. To hit the Battery so accurately while moving like this was amazing.</p>
-<p>After calmly shooting down about twelve or thirteen Red Revolution Front bike attackers, the former Wolf's research laboratory, now the Red Revolution Front's Base, began to appear in the distance.</p>
-<p>Kkii-ik...!</p>
-<p>The car stopped, and everyone got out. The research Laboratory was surrounded by a high Wall, and where it connected to the road, there was a large door and a smaller door beside it, suitable for people to pass through.</p>
-<p>「The Wall is high, so we'll have to go through the door.」</p>
-<p>「I'll lead the way.」</p>
-<p>I said this in response to I Yeon-ju's words. If someone else needlessly went first and got shot, one of our valuable combat forces would become incapacitated. Since I had high Defense and regenerative power, it was right for me to lead the way.</p>
-<p>「Understood.」</p>
-<p>I Yeon-ju, who knew my abilities, nodded her Head. I also nodded once and approached the research Laboratory, opening the door.</p>
-<p>As I opened the door, indeed, as if they had heard the sounds of the recent fight with the bike unit, a dozen or so Red Revolution Front terrorists were aiming their guns.</p>
-<p>"Where are you from?"</p>
-<p>「What did you say?」</p>
-<p>They were shouting at me in incomprehensible Chinese, but I pretended not to understand and placed my Hand on the ear part of my helmet. Thus, no one saw the Shadow on the research Laboratory's Wall move. It was also harder to notice because it was night.</p>
-<p>Puhwahak!!!</p>
-<p>A gigantic Thorn that rose from the Shadow pierced the bellies of all but one, causing Instant Death. Indeed, at night, Shadow Domination was more useful than telekinesis....</p>
-<p>I opened the door I had closed again, then looked at I Yeon-ju and the Vanguard agents waiting, and spoke.</p>
-<p>「The Entrance has been cleared, so please come in.」</p>
-<p>At my words, I Yeon-ju and the Vanguard agents swiftly entered. All of them Flinched for a moment upon seeing the dozen or so corpses under the moonlight, their bellies pierced with holes the size of two fists, bleeding profusely.</p>
-<p>They subtly looked at me after seeing the corpses. Since I was wearing a helmet, I couldn't tell their exact expressions, but they were probably making faces that said, 'How did he do that without a gun?'</p>
-<p>「I left one alive, so we should be able to find out where Lara Sinclair went.」</p>
-<p>At my words, I Yeon-ju and one of the Vanguard agents who could speak Chinese approached the guy who was lucky enough to be alive and lying down, and began asking him a few things in Chinese. After questioning him for a while, I Yeon-ju, seemingly having gotten all the answers, finished off the surviving Red Revolution Front terrorist with the nail gun on her Wrist and approached me.</p>
-<p>「Good news. It seems there were some sacrifices, but Lara Sinclair-ssi and her party haven't been caught yet.」</p>
-<p>Oh...! It's been over a day since contact was lost, and they still haven't been caught? That's amazing.</p>
-<p>「But how could they not be caught?」</p>
-<p>「It seems the former Wolf's research facility here is wider than Imagination. Even with over a thousand Red Revolution Front troops entrenched here, they can't search it all at once, so it seems they're escaping well.」</p>
-<p>Listening to I Yeon-ju's story, I remembered. This place was incredibly vast. I recalled getting a lot of Stress from trying to navigate it when I came here for Gao Xiang's bounty, because it was so huge.</p>
-<p>I Yeon-ju after a long time</p>
+<p>After a boisterous dinner at the lab, I said goodbye to Lara Sinclair and Linling and returned to the hotel.</p>
+<p>I dropped Jinmija Yeosa off at her hotel room and spent the last night of this trip to Korea with Han Yu-gyeong, who was waiting in the room two doors down. I rented the room two doors down because if I did it with Han Yu-gyeong right next door, Jinmija Yeosa might hear the explicit sounds.</p>
+<p>Barely getting any sleep, we piled on top of each other until dawn and then got up and headed out. Han Yu-gyeong also rubbed her sleepy eyes and came out to see Jinmija Yeosa off with me.</p>
+<p>We first had a hearty breakfast at a restaurant that opened early in the morning and then headed to the airport.</p>
+<p>"Mother, take care going back."</p>
+<p>"Okay, Yu-gyeong-i, take care of yourself too."</p>
+<p>The two had become close and said their goodbyes with a hug. Well, Hatake Investments will continue to cooperate with TG Tech, so Jinmija Yeosa will likely have frequent trips to Korea. So, they will meet often and be able to maintain their friendship.</p>
+<p>"Mom, have a good flight. I'll contact you."</p>
+<p>"Okay. Nothing should happen on your way to Japan, but you take care too."</p>
+<p>Jinmija Yeosa had to go to Tokyo, and I had to go to Miyashi, so we had to take different planes. Of course, there were more frequent flights to Tokyo than to Miyashi, so I sent Jinmija Yeosa off on her plane first.</p>
+<p>"But Eve hasn't been seen since yesterday?"</p>
+<p>"Huh? Now that you mention it? She said she couldn't stop by the lab because she had something to do, but it's too quiet."</p>
+<p>While saying goodbye to Jinmija Yeosa, I realized that I had said goodbye to Lara Sinclair and Linling yesterday, but I hadn't said goodbye to Eve. So, I asked Han Yu-gyeong, but Han Yu-gyeong didn't seem to know much about Eve's whereabouts either.</p>
+<p>Of course, I could meet Eve at the Amsang branches all over the world, so saying goodbye didn't really make sense, but since Eve's android body had been in Seoul until just now, her continued silence made me wonder if something was up.</p>
+<p>-Ryuta: Is something wrong?</p>
+<p>Just in case, I sent a text message through the Amsang app, but Eve didn't reply. This had never happened before. She usually replied right away, so the fact that she didn't meant something must be wrong. I should stop by the Amsang branch when I get to Miyashi.</p>
+<p>"I'll have to check with the branch about Eve later."</p>
+<p>Since it was more important to spend time with Han Yu-gyeong, with whom I had little time left, rather than worrying at the airport where I couldn't do anything, I ate snacks and talked with Han Yu-gyeong in the airport first-class lounge.</p>
+<p>"What are you going to do today?"</p>
+<p>"I have to work. And take summer courses...."</p>
+<p>Han Yu-gyeong had been much busier since I came to Korea. She was already very busy with her college life (taking summer courses during vacation to graduate early) and business, but she also had to fit in time with me, so she couldn't help but be busy.</p>
+<p>"You must be tired because of me, so take it easy and rest."</p>
+<p>"No, I actually feel energized every time I'm with Ryuta.... I actually feel better."</p>
+<p>Thanks to the stamina recovery ability of the Holy Pillar, Han Yu-gyeong didn't seem too tired. That's a relief. I talked with Han Yu-gyeong for a short time and then parted ways when it was time for my flight.</p>
+<p>"Heeing~ I always hate saying goodbye...."</p>
+<p>"We'll be able to be together someday."</p>
+<p>I comforted the sad Han Yu-gyeong for a while, then gave her one last hug and boarded the plane. In fact, Fujikawa Airport, the closest airport to Miyashi, didn't have many passengers.</p>
+<p>Of course, there were many passengers during peak season near Mount Fuji, which could be considered a tourist destination, but now it wasn't peak season, so it seemed that only people with travel plans in that area were on board.</p>
+<p>"Ryuta-nim! Welcome."</p>
+<p>I heard a familiar voice and looked up to see Eve smiling and greeting me. But why is she wearing a stewardess uniform?</p>
+<p>"Why that outfit...?"</p>
+<p>"I just wanted to try it on, hehe. It took quite a while to find this outfit yesterday, you know?"</p>
+<p>Ah, she thought she would meet me on the plane, so she tried to find a stewardess outfit? Seeing this, Eve was quite the eccentric.</p>
+<p>"So, the reason you didn't reply to my message was...?"</p>
+<p>"I wanted to surprise you~!"</p>
+<p>I chuckled at Eve's answer and sat down in my seat. Eve also sat down, right next to me. Of course, it was first class, so the seats themselves were quite far apart.</p>
+<p>"You didn't arrange for a car to pick you up in Miyashi, did you?"</p>
+<p>"No. I came from Tokyo when I came to Korea. I was going to take a taxi."</p>
+<p>"Then I'll give you a ride!"</p>
+<p>Oh, that's good. There's no need to waste money on a taxi. The unexpected encounter with Eve ended, and the flight began. I couldn't sleep because I was injecting semen into Han Yu-gyeong until dawn, so I should get some sleep during the flight.</p>
+<p>###</p>
+<p>When I opened my eyes, I saw Mount Fuji through the plane window. I feel refreshed after sleeping a little. I missed the in-flight meal, but I had already eaten a lot for breakfast, so I didn't miss it.</p>
+<p>"Kkeueu...!"</p>
+<p>Eve, who was looking at me, opened her mouth as I stretched.</p>
+<p>"The stewardesses passed by several times even though they didn't have any work to do, just to see Ryuta-nim's sleeping face."</p>
+<p>"Eh, no way."</p>
+<p>I laughed and replied to Eve's exaggerated words. But Eve shook her head as if to say no.</p>
+<p>"Based on the position of the stewardesses' pupils and the depth and number of their excited breaths, it's a reasonable judgment that they came to see Ryuta-nim."</p>
+<p>If she said it that way, I had nothing to say. They must have really come to see me.</p>
+<p>"Well.... I'm not going to meet them anyway, so I don't care. Let's get off now, Eve."</p>
+<p>"Shall we?"</p>
+<p>Eve seemed to be happy with my answer. We got off the plane and headed to the parking lot. The car Eve prepared was an ordinary sedan, and it seemed that Eve would be driving herself. Since she's an AI android, she must be a good driver.</p>
+<p>"I'll take you home comfortably, Ryuta-nim~!"</p>
+<p>"Thank you, Eve."</p>
+<p>I greeted Eve and got into the car. Soon, the car started smoothly and headed to Miyashi.</p>
+<p>"Is Linling's body being made well?"</p>
+<p>"Ah, that? We're talking about the functions first. Actually, after the recent incident at the Jeonrang Research Institute, I decided that we need to increase the self-combat power of the androids a little more."</p>
+<p>I suddenly became curious about Linling's android body and asked, and Eve gave an unexpected answer. Like Lara Sinclair, she could be surrounded by enemies, so increasing her combat power wasn't a bad idea.</p>
+<p>Of course, Eve, Lara Sinclair, and Linling have separate main bodies, and the androids are like terminals, but if they are captured by the enemy, there could be a huge information leak, so it's good to prepare.</p>
+<p>"So, Ryuta-nim, please invest in this project. We need money to develop the technology."</p>
+<p>Even though the three of them are AI androids, it seems that they need money to develop the technology.</p>
+<p>"The developed technology can also be used for TG Tech, right?"</p>
+<p>"Of course~! If you invest in the android side, you can apply it to the power suit you're trying to make now, so it won't just be a waste of money."</p>
+<p>Whether it's a power suit or an android body, the only difference is whether a person or artificial intelligence is inside, so there would be many compatible technologies.</p>
+<p>"Okay. Take some from the Amsang points that I haven't exchanged yet."</p>
+<p>"I'll only take about 25 percent of the bounty I got from catching Gao Xiang this time."</p>
+<p>Only 25 percent? I received a huge reward for killing Gao Xiang, so even 25 percent was by no means a small amount of money. But I nodded because the research would help TG Tech and ultimately help me.</p>
+<p>"With the funds Ryuta-nim gave us, we can buy a few patents we need and hire more researchers, so the research will progress much faster."</p>
+<p>Eve could probably do it with her own funds. It seemed that she was requesting the investment for the development of TG Tech.</p>
+<p>Eve, who clearly maintained the boundary between Amsang and TG Tech, seemed to be requesting the investment to benefit me.</p>
+<p>I didn't know why Eve was being so nice to me. At first, we were just a customer and an Amsang AI. Somehow, we had become such close business partners.</p>
+<p>"Thank you, Eve."</p>
+<p>"Huh? I'm the one who's grateful that Ryuta-nim invested a lot of money?"</p>
+<p>We moved to Miyashi, thanking each other, or rather, I was more grateful.</p>
+<p>"We're already here. You've worked hard in Korea and China, so go in and rest, Ryuta-nim."</p>
+<p>"I can't tell Eve to rest. She definitely won't have time to rest."</p>
+<p>We arrived in front of my house. Eve has Amsang work spread all over the world in addition to our TG Tech work, so she won't have time to rest.</p>
+<p>"I'm distributing resources appropriately, so don't worry. I'll be going now~!"</p>
+<p>"Okay, thank you for the ride."</p>
+<p>I sent Eve off and took my luggage and returned to my house, which I hadn't been to in a while. It was only a house I had been in for a few months, but somehow I had become a little attached to it. I felt like I had returned.</p>
+<p>When I opened the door, there were a few pairs of shoes. Knowing that I was coming home, some of the troublemakers from St. Francisco Girls' Academy were already waiting at my house.</p>
+<p>_____</p>
+<p>Stewardess Eve B-cut!</p>
+<p>Lisa-ttang with emphasized thighs requested by RefundAbsolutelyNotPossible-nim!</p>
+<p>Illustration with emphasized stockings!</p>
+<p>Kkiyooot!</p>

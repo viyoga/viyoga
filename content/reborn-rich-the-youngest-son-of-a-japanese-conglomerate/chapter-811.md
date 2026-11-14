@@ -5,81 +5,93 @@ weight = 811
 chapter = 811
 +++
 
-<p>At Minamoto Risa's sudden words, I couldn't help but remain silent for a moment. If she was telling me this, she must already be certain (and Minamoto Risa's conviction was indeed the truth). No matter what I said, the answer wouldn't please Minamoto Risa.</p>
-<p>Still, I had to answer. I had no intention of lying to Minamoto Risa. After all, if I lied now that I'd already been caught, that would truly be deception.</p>
-<p>"Well..."</p>
-<p>"Agassi!"</p>
-<p>Someone called Minamoto Risa just as I was about to speak.</p>
-<p>No, if the flow was broken, it would be awkward to talk about it later.... Still, I felt a slight sense of relief. It was going to be quite a long story, and it wasn't something to discuss on the short helicopter ride.</p>
-<p>Minamoto Risa seemed to share my thoughts, quietly saying, "Let's talk later," and headed towards the Minamoto-ga associate who had called her.</p>
-<p>"Hoo..."</p>
-<p>I let out a small sigh. Actually, according to my plan, I intended to reveal it to Minamoto Risa someday, but I didn't expect it to be now. I had planned to tell her after the exams, so she wouldn't have to worry about it.</p>
-<p>Since Minamoto Risa had already noticed, it seemed better to discuss it sooner rather than later. If I just left it like this, the misunderstanding would only deepen.</p>
-<p>"Teacher-nim, thank you very much. I am Haino Deneie, a retainer of the Minamoto-ga. I heard you protected the Students well during this Kotowazuki Incident?"</p>
-<p>While I was worrying about Minamoto Risa's matter, an Elderly Person who seemed to be the Minamoto-ga's Butler approached me and bowed his Waist.</p>
-<p>Actually, rather than me protecting them, the Students protected themselves.... But here, I should respond like a typical Class Teacher.</p>
-<p>"They are my class Students, so it's naturally my duty."</p>
-<p>"Huhu, that's right. A Reward will also be sent to Teacher-nim separately for this matter."</p>
-<p>Haino Deneie said with a Smile. A Reward.... Is it like a reward for protecting Minamoto Risa, the Young Lady of the Minamoto-ga?</p>
-<p>"Oh, is that so? Thank you."</p>
-<p>I was about to refuse, but I felt like I would be suspected if I did, so I pretended to be pleased with the Reward.</p>
-<p>I thought there would be almost no Teacher in the world who would refuse a Reward from the Minamoto-ga, so refusing it would likely draw unwanted Interest.</p>
-<p>"Could you briefly tell me what happened?"</p>
-<p>"Of course. This Incident..."</p>
-<p>At Haino Deneie's Request, as I briefly recounted the Incident, I found myself arriving at the helicopter and boarding it.</p>
-<p>"You can hear the detailed content through the police."</p>
-<p>"I see. Thank you once again."</p>
-<p>As I received Haino Deneie's greeting and boarded the helicopter, the door closed. It seemed I was the very Last, so the helicopter door closed as soon as I got in.</p>
-<p>Looking around inside the helicopter, Minamoto Risa was not visible. Since we had split into two helicopters just like when we came, she seemed to be in the other helicopter.</p>
-<p>"First... everyone suffered through an unexpected Situation. It will be a little past Evening when we arrive, so everyone will go straight Home, right?"</p>
-<p>Even without Minamoto Risa, I had to do what needed to be done. Since the snow had suddenly stopped, the police had arrived, and the Minamoto-ga's helicopter had come, nothing had been decided about what to do today, so I first asked the Students.</p>
-<p>"What are you talking about? On the contrary, since it's already past Evening, we should eat a Meal together~! We'll be getting off at the academy, so we can have Dinner at a nearby restaurant and then part ways."</p>
-<p>At my Words, Kujo Kina said, stroking her Belly as if hungry. After having lunch, being in the hot spring, searching, catching Kotowazuki, and undergoing police investigation, the sky was already getting a little dark.</p>
-<p>Since it would take another hour by helicopter to St. Francis Girls' Academy, they would be extremely hungry upon arrival. Then, I also thought it might be good to have Dinner and part ways, as Kujo Kina suggested.</p>
-<p>"Then I'll open a poll in the Line chat room. Let's decide with that."</p>
-<p>Konoe Akina suggested deciding fairly by vote, and opened a poll in the Line chat room where everyone was gathered.</p>
-<p>'Haa... I shouldn't have talked about it there.'</p>
-<p>Minamoto Risa let out a sigh. It wasn't a story suitable for the short helicopter ride, but because of the lecherous smell she had caught in her Class Teacher's Bedroom today, she had momentarily lost her Restraint.</p>
-<p>In fact, Minamoto Risa had somewhat noticed. No matter how beautiful and noble the special class Female Students were, their Class Teacher, Yamashiro Ryuta, was a man even more outstanding than that.</p>
-<p>After seeing him for a long time, no Female Student could help but fall for him. Just like herself.</p>
-<p>The Female Students would have clung to him, and naturally, Yamashiro Ryuta, overflowing with Hormones, would not have refused those Female Students.</p>
-<p>Because of such a Situation, even though Minamoto Risa had anticipated Yamashiro Ryuta's philandering, when she actually smelled that scent, she reacted uncalmly without realizing it.</p>
-<p>In fact, Minamoto Risa wasn't as angry as Yamashiro Ryuta currently thought. Though she was a little Frustrating. This was due to Minamoto Risa's upbringing.</p>
-<p>Minamoto Risa's Mother was Minamoto Ushin's Mistress. And she deeply loved Minamoto Ushin.</p>
-<p>But as a Mistress who couldn't meet him often, she justified her Situation, and as that justification was exposed to young Minamoto Risa, Minamoto Risa unconsciously began to think similarly to her Mother without realizing it.</p>
-<p>-Lisa. An outstanding man can take multiple Women. Mom isn't struggling at all. On the contrary, I'm happy, you know? To be able to be the Woman of such an outstanding man.</p>
-<p>-Men have become rare due to War. Outstanding men even more so. If you, Lisa, have the Opportunity to have such a man, you must not miss that Opportunity. Like Mom...</p>
-<p>-Not seeing Dad often doesn't make me unhappy. Mom is happy. You're still young, Lisa, so you might not understand, but Waiting is also Happiness.</p>
-<p>Because Minamoto Risa had grown up hearing her Mother's strange stories in her childhood, she unconsciously began to think similarly to her Mother.</p>
-<p>Even after entering the Minamoto-ga, and being Abused by Minamoto Toyomi, Minamoto Ushin's Main Wife, the fact that she didn't Resent her Father, Minamoto Ushin, was all due to her Mother's influence.</p>
-<p>Of course, experiencing the Situation firsthand, she couldn't help but feel a little Frustrating. That's why, like today, she couldn't maintain her composure and blurted out the story on the way to the helicopter.</p>
-<p>'You... I hate you.'</p>
-<p>She hated Yamashiro Ryuta. But even though it had only been a few minutes since he boarded the other helicopter, she already missed him.</p>
-<p>"Oh, that's right. Since we caught Kotowazuki, we should be able to receive a Reward.... What should we do?"</p>
-<p>While Minamoto Risa was feeling a mix of Love and hate for Yamashiro Ryuta, Seizawa Shii, who was looking at her phone next to her, nudged Minamoto Risa.</p>
-<p>"Oh, we can get a Reward too? How much is it? Since we all worked hard together, it would be good to share it, right?"</p>
-<p>From the appearance of a Woman who had just been agonizing over a man, Minamoto Risa had returned to her cool-headed Class president persona, showing Curiosity at Seizawa Shii's Words. Of course, not only Minamoto Risa, but all the special class Female Students inside the helicopter had sparkling Eyes.</p>
-<p>"Kotowazuki is quite a famous serial Killer, let's see.... I'll access the Dark Shark App and check."</p>
-<p>Seizawa Shii, who had been tapping on her phone for a moment, opened her Eyes wide. The Reward seemed more expensive than she thought.</p>
-<p>"1.224 billion yen? Is it because there were quite a lot of victims.... That's quite a lot of Money, isn't it?"</p>
-<p>"Wow, that much of a Reward?"</p>
-<p>"If we get that, we can buy new VR parts..."</p>
-<p>At the sound of 1.22 billion yen, the Female Students inside the helicopter began to Fuss.</p>
-<p>1.22 billion yen, even for someone affiliated with the Minamoto-ga, was not a small amount of Money. Especially since Minamoto Risa was still a Student, the Money felt a little larger to her.</p>
-<p>Perhaps a considerable proportion of Kotowazuki's victims were the sons or Daughters of wealthy People or persons in power living in upscale residential areas, which is why such a large Reward was offered.</p>
-<p>"Then we can all share it. For now, say we caught him."</p>
-<p>"Understood. It will be reported in the news anyway, but if we don't apply for something like this, it often just gets overlooked..."</p>
-<p>At Minamoto Risa's Words, Seizawa Shii nodded her Head and tapped on her phone. Not long after, Seizawa Shii, who had muttered, "Done..." looked at Minamoto Risa with a bright Smile.</p>
-<p>"I've already talked to Eve, so once Eve confirms Kotowazuki has been caught, the Reward Money will come in."</p>
-<p>"Eve is the one in the Dark Shark Underground, right?"</p>
-<p>"Yeah. She also handles my broker Work. She's quite trustworthy."</p>
-<p>Seizawa Shii, who was talking about Eve, checked her phone again when it vibrated. Minamoto Risa subtly glanced at the Screen next to her, and it was the special class group Line chat room.</p>
-<p>"Oh?! A poll appeared in the special class Line chat room. Lisa-ttang~! Will we part ways immediately after arriving at the academy? Or will we have Dinner and then part ways?"</p>
-<p>"Since our ski Travel schedule was until tomorrow anyway, let's have Dinner together before we go. Everyone's okay with that, right?"</p>
-<p>Minamoto Risa looked at her classmates inside the helicopter and asked. Seeing all her Friends nod their Heads, it seemed they were all Regrettable to part ways like this.</p>
-<p>Minamoto Risa watched her Friends voting on their phones, and realized something. Among those Students, there must be some who had engaged in Lewd Acts with Yamashiro Ryuta.</p>
-<p>'As the Main Wife, I need to sort things out once and for all...'</p>
-<p>Although no one had decided it, Minamoto Risa decided to become the Main Wife herself. That thought would later cause a great commotion, but for now, it was merely a small thought in Minamoto Risa's Head.</p>
-<p>Leggings Lizhael requested by Lee Seung-joo_367-nim~!</p>
-<p>Magical Girl Alik requested by ISaveI-nim~!</p>
-<p>Kkiyoooot!</p>
+<p>Thursday morning. Hatake Investment Company Headquarters.</p>
+<p>Jinmija, who was achieving quite excellent results as the CEO of Hatake Investment Company, sat in her seat checking the contents that her son, Jin Yongtae, had requested via Phone Call yesterday. In the well-organized documents, there was a new Business Plan, which was a plan to launch a new premium Sword brand.</p>
+<p>In fact, if Jin Yongtae were the son of an ordinary chaebol family, she would have scolded him, asking why he was creating a company for some childish Play, but Jin Yongtae was the son of the Taira Group. Moreover, he was not a typical Tairaga Descendant, but the son of a man who had died in a Successor War. If excellent Swordsmen were by her son's side, Jinmija felt her mind would be a little more at ease.</p>
+<p>And strangely, because her son was seeing enormous profits from every Investment he made, Hatake Investment Company's finances were sound enough to create dozens more companies like this Sword-making one.</p>
+<p>"Wagato-ssi. Please review this Proposal and find out the necessary finances and qualifications for the new company."</p>
+<p>"Understood, CEO-nim."</p>
+<p>Jinmija handed the documents to her secretary and instructed her to prepare for the company's establishment. Since she had already spoken with the Master, Ichimonji Harugoro, and roughly agreed on the terms, there were no obstacles to establishing the new company.</p>
+<p>"Deciding the company's name will be the only Problem."</p>
+<p>Because the name was also important for a premium brand, she would have to discuss this separately with her son, Jin Yongtae. Other than that, Hatake Investment Company could handle everything.</p>
+<p>"Tsukumi-ssi, what's the next schedule?"</p>
+<p>Jinmija asked her second secretary, Tsukumi, for the next schedule, in place of Secretary Wagato who had gone to do other Work. Because Hatake Investment Company had many companies to manage and Investments to oversee, Jinmija also had many secretaries, with a total of four secretaries assisting Jinmija, each with their assigned mission.</p>
+<p>"The next schedule is a Meeting regarding the Mithril supply contract with Taira Jiro-nim. It's scheduled to be held in the meeting room in fifteen minutes."</p>
+<p>Jinmija nodded her Head. In fact, the deal with Taira Jiro was a very large deal, so she wouldn't forget it, but asking her secretary for the next schedule had become a routine, which was why she asked.</p>
+<p>"It's fifteen minutes before, so all the data and such in the conference room should be ready, right?"</p>
+<p>"Yes, everything is ready."</p>
+<p>"Then let's move now."</p>
+<p>Because of who the Opponent was, not only the secretary but also Jo Seodang, the information organization under Jin Yongtae, had joined forces to prepare the data. Taira Jiro was that dangerous an Opponent.</p>
+<p>Because the data research and investigation into Taira Jiro's Surroundings had been so meticulous, she was confident in this deal. Moreover, Mithril was a mineral with enormous Demand. There were many places to sell it even if they didn't supply it to Taira Steel. This meant Hatake Investment Company had the upper hand over Taira Steel.</p>
+<p>"CEO-nim, Taira Steel's side has arrived. But...."</p>
+<p>As Jinmija sat reviewing the prepared data, Secretary Tsukumi soon approached and informed her that a representative from Taira Steel had arrived. However, something embarrassing seemed to have happened.</p>
+<p>"What's the Matter?"</p>
+<p>"We expected Taira Steel's CEO's Assistant manager to come, but Taira Jiro-nim himself has come."</p>
+<p>No matter how well Hatake Investment Company was doing, it couldn't be compared to a Large Corporation of the Taira Group like Taira Steel.</p>
+<p>And the Affiliate Companies Taira Jiro managed, besides Taira Steel, included several other Taira Affiliate Companies, so it was rumored that he was extremely busy. Therefore, during Negotiations with Hatake Investment Company, which was of a lower rank, she hadn't even considered that the busy Taira Jiro would come.</p>
+<p>"Don't panic. The data sent by Jo Seodang contained Information that Taira Jiro might come, didn't it?"</p>
+<p>"Th-that, that was less than 3 percent probability...."</p>
+<p>"Pull yourself together. Once that has already happened, it's 100 percent."</p>
+<p>After reprimanding Secretary Tsukumi, who was stiff with Taut Tension and surprise, Jinmija quickly skimmed through the data until Taira Jiro arrived in the meeting room. In The Situation like this, Jinmija was bolder than any man.</p>
+<p>Cheolkak.</p>
+<p>Soon, the door of the meeting room opened, and Taira Jiro and his secretary, Tateyama Genta, entered. Taira Jiro was a man of considerable Size, with a tall Height in the mid-180s. Not only his Size, but the Aura emanating from him was tremendous. Indeed, it was the kind of Presence befitting a man engaged in the next Taira Group Successor War.</p>
+<p>Jinmija's secretary, Tsukumi, seemed tense by Taira Jiro's Presence and swallowed her Saliva, but Jinmija maintained a calm Attitude, unyielding to Taira Jiro's Presence.</p>
+<p>"It's been a long Time since the funeral, sister-in-law!"</p>
+<p>Taira Jiro said, Collapsing into the seat on Jinmija's Opposite Side. It was an extremely impolite Attitude, not treating the other party as a Negotiation partner, but Taira Jiro's confident Attitude somewhat masked that Feeling.</p>
+<p>"It's been over 20 years since I parted ways with Saburo-ssi, so I'm not your sister-in-law. And I wasn't married to him either."</p>
+<p>No matter how arrogant Taira Jiro acted, Jinmija knew very well that Hatake Investment Company was currently in the superior position in the Negotiation. Jinmija showed a deeply displeased Expression and frowned.</p>
+<p>"Haha, it's a Playful Jest~! I just said it to try and get closer since you're my lovely Nephew's Mother, so don't take it too much to Heart."</p>
+<p>Taira Jiro slyly passed off his Mistake as a Joke. Jinmija couldn't say anything more and entered the Negotiation.</p>
+<p>"I want Hatake Mining. I hope you'll sell it."</p>
+<p>The original content to be negotiated today was how much Mithril Hatake Mining would supply to Taira Steel. But Taira Jiro suddenly made a Proposal to buy Hatake Mining, which hadn't been discussed beforehand.</p>
+<p>"Can you even buy it?"</p>
+<p>This Time, Jinmija asked with a Smile, without getting angry. The reserves of the Mithril mine that Hatake Mining was excavating were enormous. Although it was still the Early Stage and they weren't producing large quantities of Mithril, Hatake Mining's Value was so immense that Taira Jiro alone couldn't buy it.</p>
+<p>Of course, if one considered only the property he owned, he might be able to buy it, but that was property that had not been converted into Cash. It could be said that he didn't have enough Cash to buy Hatake Mining immediately.</p>
+<p>"Of course, it's impossible. I just mentioned it on the off chance."</p>
+<p>Taira Jiro, who quickly changed his Words with a sly Attitude. Jinmija thought he wouldn't be easy to deal with and looked at Taira Jiro as if telling him to make another Proposal.</p>
+<p>"Let's do twenty tons of supply per month, at a supply Price of 1.2 billion yen per ton."</p>
+<p>Even as a first Proposal, it was still an absurd one. A coated Ammunition bullet, merely coated with Mithril, cost 2,200 yen. Mithril was so precious that the general market Price was 2.3 billion yen per ton. And a monthly supply of twenty tons was a contract that Hatake Mining, which had not yet reached its Orbit, could not accept.</p>
+<p>This was because its properties were different from other metals, so production could not be rapidly increased.</p>
+<p>"Taira Jiro-ssi."</p>
+<p>Jinmija called Taira Jiro's name softly. Her Expression seemed to be suppressing her Anger.</p>
+<p>"I didn't want to say this, but as you know, Ryuta received Saburo-ssi's Share after his death. Do you want him to take that Share and support your older brother, Ichiro-ssi? Otherwise, there's no way you'd make such a Prank-like Proposal, is there?"</p>
+<p>Because Taira Jiro kept making absurd Proposals, Jinmija had no choice but to Threaten him by making the Successor structure difficult. Only then did Taira Jiro raise both Hands as if in Surrender and open his Mouth.</p>
+<p>"Can't even make a Joke, huh. Let's go with 2.3 billion yen per ton, as per market Price, and 2 tons per month."</p>
+<p>That was an acceptable contract. Taira Jiro seemed to have intended this Proposal from the beginning, as he presented a contract stating 2.3 billion yen per ton and 2 tons per month, completely unrevised.</p>
+<p>"May I check the contract?"</p>
+<p>"Of course, it's not a contract for a few pennies."</p>
+<p>At Jinmija's Words, Taira Jiro clasped both Hands behind his Head and leaned back in his Chair, speaking. Jinmija handed the received documents to Secretary Tsukumi.</p>
+<p>Tsukumi, who received the documents, went Outside. There was a legal team that reviewed such contracts, so she sent it there. With Experts on hand, Jinmija didn't necessarily need to examine every single letter of the document herself.</p>
+<p>"Ah, we also have a Proposal to offer. It's not a big contract, but we'd like to receive some steel supply from Taira Steel."</p>
+<p>"Ah, discuss that with my secretary, Genta, later."</p>
+<p>TG Tech also produced various Products, so they lacked Mithril alloy. Thanks to Hatake Mining, Mithril was sufficient, but other metals were lacking, and in Korea, some Enterprises were checking TG Tech, which had suddenly appeared like a comet, so they couldn't properly receive metal supplies and planned to receive supplies from Japan.</p>
+<p>She thought that since they were already dealing with Taira Steel for Mithril, they might as well deal with steel, but Taira Jiro, even though the Mithril contract was almost over and it was an opportunity to open a new deal, showed an indifferent Expression.</p>
+<p>"CEO-nim."</p>
+<p>Secretary Tsukumi returned with the contract, seemingly having finished reviewing it.</p>
+<p>"The legal team has confirmed that there is no Problem."</p>
+<p>This was unexpected. She had expected some kind of Trap in the contract, but it was just a regular contract. Jinmija signed the contract, thinking it was good that she didn't need to revise it.</p>
+<p>"Here you go."</p>
+<p>"Good. Discuss that steel deal you mentioned with the working-level staff who will arrive soon."</p>
+<p>Although there were still a few procedures left after signing the contract, Taira Jiro signed and rose from his Seat. It seemed he meant for them to finalize it with the working-level staff who would arrive soon.</p>
+<p>Taira Jiro waved his Hand and left the meeting room, and Taira Jiro's secretary, Tateyama Genta, said, "The working-level staff will be here soon," then bowed at the Waist, greeted her, closed the door, and left.</p>
+<p>"Crazy Bastard, he really does whatever he wants."</p>
+<p>Jinmija Yeosa muttered slightly awkwardly in Korean language. Because no matter that he was a Taira, his Attitude was truly without Etiquette.</p>
+<p>"It's all recorded on Camera, isn't it?"</p>
+<p>"Yes, CEO-nim."</p>
+<p>"Send that to Ryuta and Jo Seodang."</p>
+<p>Just in case there was another Scheme, she planned to send all The Situation that had occurred here, along with the contract, to her son, Jin Yongtae.</p>
+<p>"Kukuku, she's probably cursing a lot right now, isn't she?"</p>
+<p>"Indeed. It's not proper business Manners."</p>
+<p>Taira Jiro chuckled and laughed, then got into the back seat of his luxury sedan. Taira Jiro's secretary, Tateyama Genta, also smiled and sat in the Driver's Seat. And he glanced at the working-level staff of Taira Steel entering Hatake Investment Company.</p>
+<p>"I said what I wanted first, but she didn't understand."</p>
+<p>"Isn't she just a Woman who used to be a housewife?"</p>
+<p>What Taira Jiro said first in the Negotiation was that he wanted Hatake Mining. That was Taira Jiro's True Feelings. Seeing him dismiss Jinmija as merely a former housewife, it seemed he had no intention of dealing with her properly from the start.</p>
+<p>"If Hatake Mining becomes mine, there's no need to buy Mithril. I'll have to show my Nephew-nim and my Nephew's Mother how terrifying it is to do Business in Japan. Her Attitude was also arrogant, so she won't be able to hold Resentment against me, right?"</p>
+<p>Taira Jiro watched the Hatake Investment Company building recede, a wry Smile on his Face.</p>
+<p>Gojoy-nim requested Sakagami Rena's usual Attire and Underwear~!</p>
+<p>She was the mask Woman in the Early Stage, hehe.</p>
+<p>Her other usual attire is, of course, the cyber Suit she wears during missions, hehe.</p>
+<p>Underwear~!</p>
+<p>Home Economics Teacher new model Remake~!</p>
+<p>No matter how much I tried to create it with the new model, it didn't have that Feeling. So, I trained it with the numerous Home Economics Teacher Illustrations I already had to create a LORA specifically for the new model, hehe. I didn't know I'd even get my Hands on Learning, hehe.</p>
+<p>Kkiyoot~! Does it look good? Hehe.</p>

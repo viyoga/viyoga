@@ -5,89 +5,79 @@ weight = 653
 chapter = 653
 +++
 
-<p>Urabe Konoka's shy words, "I want to be alone with you," sent me into heat, and I started looking for the nearest lodging.</p>
-<p>Of course, in this villa district, a resort for the wealthy, there were no love hotels to spoil the view, and there were more luxurious villas than hotels, so there were no ordinary hotels either.</p>
-<p>But....</p>
-<p>No matter how rich the house, they don't have hot springs. Just as I was about to give up looking for accommodation and head towards the city, I saw a sign for an onsen ryokan (hot spring inn).</p>
-<p>I called on the way, and thankfully, same-day reservations were possible, and there were rooms available. I thought there might not be any rooms since it's Saturday today. Of course, there were no standard rooms, only luxury rooms with private open-air baths, but that wasn't a problem. It's even better.</p>
-<p>,Wow...! It reminds me of the old days~ The entrance is similar to our inn."</p>
-<p>Urabe Konoka, who was the daughter of a hot spring inn like this one, sparkled as she looked at the inn. Seeing the inn seems to bring back memories. I parked the car in the parking lot, and an employee came out to greet us.</p>
-<p>,Are you Yamashiro-nim who just made the reservation?"</p>
-<p>,Yes."</p>
-<p>Following the polite inn employees, we were led to a separate building. As expected of a luxury room, it's in a separate building. Nice. No need to worry about other people's eyes.</p>
-<p>,How would you like your meals...?"</p>
-<p>,We had lunch, so please just prepare dinner."</p>
-<p>,Understood. Then, I'll see you at dinner."</p>
-<p>After the employee left, we looked around the room. Interestingly, it was a room that seemed to blend Japanese (和式) and Western styles, and seeing the bed, it felt like a room designed to give a modern Japanese vibe. And, of course, as a room with an open-air bath, there was a private open-air bath when you opened the large sliding door at the front of the room.</p>
-<p>,The room feels a bit different."</p>
-<p>It seems like the interior was designed to evoke the feel of the Taisho (大正) or early Showa (昭和) era.</p>
-<p>Urabe Konoka, like the daughter of an inn, looked around the room here and there. She seems to have some talent in this area, nodding as she looked at the interior of the room, or tilting her head as if she didn't like some things.</p>
-<p>Watching Urabe Konoka looking around the room for a while, I started to wonder if I should entrust the lodging business to her if she's interested in this kind of thing. Well, that's something for later.... First, I sat down on the bed. And I opened my mouth to Urabe Konoka, who was looking around the room.</p>
-<p>,Urabe, can I get a bath from you for the first time in a while?"</p>
-<p>Of course, I couldn't just say, "I'm going to yas, so take off your clothes right now," which would ruin the mood, so I talked about the bath she gave me a few months ago when Urabe Konoka was Hamahata Konoka.</p>
-<p>,Sensei...."</p>
-<p>Urabe Konoka blushed a lot at my words and opened her mouth.</p>
-<p>,Role-playing from the first experience is a bit...."</p>
-<p>,No, I just said let's wash in the hot spring first."</p>
-<p>,Is that so?"</p>
-<p>Yeah, actually, that's a lie. It doesn't work. I was going to play a submissive servant and a lecherous guest with Urabe Konoka, but I guess it's too much for a virgin.</p>
-<p>,Shall we wash up first?"</p>
-<p>,Sensei, could you turn around?"</p>
-<p>,Okay."</p>
-<p>As Urabe Konoka said, I turned around, and I heard the sound of clothes rustling as she took them off. This sound never gets old.</p>
-<p>,I-I'm done."</p>
-<p>,...Oh."</p>
-<p>When I turned around, Urabe Konoka was standing there, covering her whole body with a white towel, not naked. She had already neatly folded her clothes. As expected of a former inn employee, she's super fast at folding clothes. I was expecting her to be naked. No, wait. Is it even more exciting to cover up like this?</p>
-<p>,Go into the hot spring first. I'll take off my clothes and go too."</p>
-<p>,Ye-Yes, Nehet...!"</p>
-<p>At my words that I was going to take off my clothes, Urabe Konoka answered in a shrill voice and opened the door and went into the hot spring. Even though she's wrapped in a towel, she's naked inside without even wearing underwear, so it's better to soak in the warm hot spring water than just standing there.</p>
-<p>I was going to go into the hot spring completely naked, but my weapon-like huge dick could give a virgin too much fear, so I wrapped a towel around my lower body as well.</p>
-<p>,Hmm...."</p>
-<p>Even with a towel, I can't hide the snake-like curves between my crotch. But still, it's not a no-mo, so it's okay. I opened the closed door to go to the hot spring, and Urabe Konoka was soaking only her calves in the hot spring with a nervous expression.</p>
-<p>,Why are you just doing a foot bath? It's cold, let's go inside quickly."</p>
-<p>,Ye-Yes...."</p>
-<p>At my words, I put my body next to Urabe Konoka, who was sitting in the hot spring. With the sound of the water splitting, concentric circles formed around me, creating a water path. Hmm, it's warm and nice. Because it's a winter hot spring, the place soaked in water is warm, and the place not soaked in water is cool.</p>
-<p>,Heut...!"</p>
-<p>,Don't be surprised."</p>
-<p>To relieve Urabe Konoka's tension, who was flinching, I massaged her stiff shoulders. When I first put my hand on her shoulder, Urabe Konoka was startled, but gradually, she began to relax and yield to my touch massaging her shoulders.</p>
-<p>,Heue.... Haeu...."</p>
-<p>Or not? Her breathing is getting rougher and rougher, so it seems like she's not relaxing, but her physical excitement is increasing.</p>
-<p>,Sensei-nim.... The massage is, Heut! Too sexy...♥"</p>
-<p>,No, I really didn't intend to be sexy...."</p>
-<p>Now, even a touch to relieve tension has the principle of sex embedded in it.... My bedroom skills have definitely reached the realm of Hwagyung.</p>
-<p>Well... Hwagyung or whatever is a joke, and like Urabe Konoka said, I must have touched her without realizing it. I've touched so many women that it's engraved in my body.</p>
-<p>,Well... if you're relaxed, that's...!"</p>
-<p>Urabe Konoka's excitement increased, so I just took my hand off her shoulder, but Urabe Konoka turned her head and kissed me.</p>
-<p>,Euseup, Jjeu-eup...! Jjeup! Cheu-heup, Chup♥"</p>
-<p>Urabe Konoka was a virgin, but her kiss was not. She had a passionate kiss with me in the counseling room when Simyeonui ttal descended before, so this was her second time. That's why her kiss was lewd and passionate, unlike a virgin.</p>
-<p>,Sensei-nim, Heut...."</p>
-<p>Even when she took her lips off for a moment, Urabe Konoka called my name and clung to me. Urabe Konoka, who was already sitting on my thigh, grabbed the back of my neck and pulled me in to kiss me. At the same time, she subtly moved her pelvis and began to rub her virgin pussy against my huge, mountain-like bulge.</p>
-<p>,Haeut...! Jjook, Heueung...! Chup♥"</p>
-<p>Rubbing against my dick covered with only one towel, the pleasure was an unbearable stimulus for a virgin, so it became a level where I didn't know if she was kissing or moaning.</p>
-<p>,I-I can't take it anymore, Sensei♥"</p>
-<p>,So, what do you want to do?"</p>
-<p>When I teasingly asked and gently shook my waist, Urabe Konoka arched her back like a bow with a Haeut. Because of the movements so far, the towel wrapped around Urabe Konoka's body came off, revealing Urabe Konoka's naked body.</p>
-<p>Her skin, dyed peach-colored with the warmth and excitement of the hot spring, her breasts that were neither too big nor too small, and her feminine body lines were quite beautiful.</p>
-<p>,P-Please put what's under my pussy... Heut! In me~♥"</p>
-<p>,This?"</p>
-<p>I wondered if she didn't have the courage to say "dick" even though she said "pussy," so when I pretended not to understand by saying "this?", Urabe Konoka didn't answer my question and directly untied my towel with her own hands.</p>
-<p>The dick, whose seal called the towel was released, bounced up and hit Urabe Konoka's pussy with a chaek! Urabe Konoka was startled and reached orgasm once again, but she looked at me with an expression that she was missing something and moved her waist to put my glans on her vulva.</p>
-<p>But Urabe Konoka, who was still a virgin, looked at me with an expression that she didn't know what to do anymore because of the unknown fear, but I became even more excited because of that pitiful yet lustful expression.</p>
-<p>,Urabe, is your desire for me only yours?"</p>
-<p>This confirmation was a must. The reason why I went on a date with Urabe Konoka today was because I was confused because I didn't know if the favor Urabe Konoka had for me was her own or Simyeonui ttal's. I didn't want to be resented later, so I had to ask once right before sex.</p>
-<p>,Yes, I want Sensei, not anyone else. Please take my virginity with Sensei's dick...!"</p>
-<p>Urabe Konoka said with more conviction than ever before. I didn't know if she was saying this because of the lewd hot spring atmosphere right now or if she was saying it sincerely, but I didn't intend to ask her sincerity anymore here. I'm just satisfied with the answer that she wants me.</p>
-<p>I smiled and grabbed both of Urabe Konoka's hips. And I slowly lowered Urabe Konoka's body. Since my dick was already accurately aimed at her vulva, my dick entered Urabe Konoka's vagina just by lowering Urabe Konoka's body.</p>
-<p>,Heueut...! It feels stuffy for some reason...!"</p>
-<p>,Only the glans has entered, so bear with it a little."</p>
-<p>Urabe Konoka hugged me tightly and complained of stuffiness as my dick entered, widening the inside of her pussy where nothing had entered in her entire life.</p>
-<p>I don't need to gently soothe her pussy. Since she already loosened her pussy by shaking her waist on top of me, there was no need for additional foreplay.</p>
-<p>Tututuk...!</p>
-<p>I didn't actually hear the sound, but I felt the glans tearing the hymen.</p>
-<p>,Hahak...!"</p>
-<p>Urabe Konoka took a deep breath and endured the pain from the sudden pain. I continued to put my dick all the way in and widened Urabe Konoka's innermost part with my dick. Because she was a virgin, the pressure I felt on my dick was enormous.</p>
-<p>,It hurts.... I like Shinkai Hime-nim, but I'm glad I'm having this experience alone. Because I want Sensei's first appearance of taking me to be only my experience."</p>
-<p>Urabe Konoka looked at me with teary eyes and smiled as she spoke. That appearance looked very lovely.</p>
-<p>______________</p>
-<p>Urabe Konoka Onsen Scene</p>
-<p>She's wearing a red hairband even in the hot spring ㅎㅎ</p>
+<p>"Hweo-eok!"</p>
+<p>Nakasone Risshin woke up in a sweat, bolting upright in bed. It was a terrible nightmare. He hadn't had a nightmare since becoming a disciple of Kinui Tatsuo, but today, a terribly vivid nightmare had him tossing and turning all night.</p>
+<p>Strangely enough, though, he couldn't remember the content of the nightmare. He only remembered how difficult and painful it was; he couldn't recall any of the characters or the story from the nightmare.</p>
+<p>"Ssa-hyung~! Come eat!"</p>
+<p>Ageba Tsurumi's cheerful voice came from outside. Although they had decided to serve Kinui Tatsuo as their master on the same day, Nakasone Risshin was the oldest, so he became the third disciple, following Kujo Kina, who had become a disciple earlier. The remaining three younger disciples were also ranked in order of age.</p>
+<p>In fact, he was only nominally the third disciple; the first disciple had lost his life in a battle with Anya District, so Nakasone Risshin was effectively Kinui Tatsuo's second disciple.</p>
+<p>"Yeah, I'm coming."</p>
+<p>Nakasone Risshin answered Ageba Tsurumi, then swung his legs off the bed and stood up.</p>
+<p>"Huh...?"</p>
+<p>Why were his feet covered in dirt? Was he sleepwalking or something...? Just in case, he looked at his hands, and they were also covered in dirt. He was confused, not knowing what had happened, but Nakasone Risshin decided to take care of this mess first.</p>
+<p>The dojo and home were currently in a container building, but Kujo Kina had taken care to make sure each bedroom had its own bathroom, laundry room, and shower room, so Nakasone Risshin picked up the soiled bedding, put it in the washing machine, washed his hands and feet, and went outside.</p>
+<p>"Ssa-hyung...?"</p>
+<p>Suzuki Kaho was waiting in front of the door, worried that he wasn't coming out.</p>
+<p>"Ah, I sweated a lot last night, so I'm washing the bedding... Sorry."</p>
+<p>"It's okay. Let's go eat breakfast quickly."</p>
+<p>When he went to the dining room, his master, Kinui Tatsuo, and the other disciples were sitting at the table. Nakasone Risshin said, "I'm sorry for being late," and sat down.</p>
+<p>"I was a bit late because I sweated a lot and had to clean up."</p>
+<p>"That can happen. Let's eat quickly."</p>
+<p>And so, Kinui Tatsuo and his four disciples quietly ate breakfast.</p>
+<p>###</p>
+<p>"What's with the atmosphere? Is it festival after-effects?"</p>
+<p>When I returned to school on Monday after the weekend, all the kids were drooping. They felt like they were missing something.</p>
+<p>"No, Ryuta-jji. The only school event left is the exam."</p>
+<p>In fact, the exam was coming up soon, and after a short vacation, there was the third semester of the third year, which could be called the last semester. Since there were only final exams and graduation ceremonies left in the third semester, it could be said that there were no fun events left from a student's point of view.</p>
+<p>The funny thing about this story is that St. Francisco Girls' Academy had a lot of events. I had only been there since the second semester, but I had experienced school events such as picnics, autumn sports days, Halloween festivals, graduation trips, and the festival a few days ago.</p>
+<p>Other schools would have festivals for a year, but we had them in one semester, so it could be said that we had more than twice as many events compared to other schools. I didn't understand why they were whining about not having any events when we had so many.</p>
+<p>"There are a lot of fun things in college, so enjoy them after you graduate."</p>
+<p>"Oooo~! Ryuta-jji is an old man~! Oooo!"</p>
+<p>Seizawa Shii made 'ooo' sounds, calling me an old man, but I wondered what her reaction would be if she knew that I was the same age as her or only a year older.</p>
+<p>"Anyway, the exam is in the third semester, so enjoy the remaining second semester. Most of you have already decided on your next step, right?"</p>
+<p>In fact, the least influential exam at St. Francisco Girls' Academy was the final exam in the third semester of the third year. As students from prestigious families, they already had a blueprint for their future, and it was designed to lead straight to a brilliant future like a train rail, so the final exam in the third semester of the third year had no impact whatsoever.</p>
+<p>In fact, about half of the students in the special class who decided to follow me had no pressure about their grades. They could work under me even if they didn't go to college. (Of course, they had decided to go to college.) The rest, except for a few who chose to go to prestigious universities, weren't under much pressure either.</p>
+<p>Looking at the students' hopes for further education, Kujo Kina, Sakagami Rena, Seizawa Shii, Naruse Shiyo, Otagi Yuka, Alik, Saionji Diana, and Urabe Konoka decided to go to St. Francisco Women's University, which students at St. Francisco Girls' Academy could automatically enter.</p>
+<p>Personally, I thought it was a waste for Otagi Yuka and Seizawa Shii, who had good grades, to go to St. Francisco Women's University, but after consulting with them separately, they said they didn't want to go through the difficult exam life to go to another university, so I said I understood. Well, St. Francisco Women's University wasn't a bad university, so I could understand.</p>
+<p>Among the remaining people, Minamoto Risa had passed the Minamoto Group exam this time, so she would probably attend a famous prestigious university and work for the Minamoto Group, and Konoe Akina, the head of the Konoe family, said she would attend a university in Tokyo and work for the family.</p>
+<p>I heard that Oofuchi Erika was going to a prestigious university specializing in her strengths, VR diving and science, and there was a high probability that she would work with Shido Tsubaki, who is currently the co-representative of the company.</p>
+<p>Finally, Uenozono Karen said that she would not go to college or would only be enrolled at St. Francisco Girls' Academy and would focus on her idol activities.</p>
+<p>So, since all the students in the special class had already decided what they would do after graduation, the final exam was not a very important matter.</p>
+<p>"Oooo~! Is that what a teacher should say? Oooo!"</p>
+<p>"Oooo!"</p>
+<p>Of course, telling them to just take the exam casually was not something a teacher should say. Still, I thought they would have more important things to do than a useless exam, so it was practical advice.</p>
+<p>"Of course, students who are taking exams for universities other than St. Francisco Women's University need to focus because their grades will be reflected, but the rest of you, it's meaningless, so make more memories during that time."</p>
+<p>"But there are no events...!"</p>
+<p>"Even if there are no events, you can meet in clubs every day, go out after school, or hang out on weekends. Ah...!"</p>
+<p>While answering Seizawa Shii's grumbling, something came to mind. When I said "Ah!" as if I had realized something, everyone focused on what I was going to say.</p>
+<p>"Didn't we get a vacation voucher for winning the sports day? We can use that to go on a trip with the whole class."</p>
+<p>Since we had a vacation voucher as a prize for winning the sports day, if we used it on Friday, we could go on a trip from Friday to Sunday, so I could create an event that Seizawa Shii wanted so much.</p>
+<p>"Ah! That's right! We had that...!"</p>
+<p>"Since it's a one-day vacation voucher, if we use it on Friday, we can play from Friday to Sunday~!"</p>
+<p>"It's almost time for the morning assembly, so let's talk about it next time, and everyone, have a good day in class today."</p>
+<p>I left the special class, leaving behind the students who were happy to remember the vacation voucher that I had forgotten. The story had gotten quite long, and it was almost time for the first period teacher to come. I went to the education preparation room and sat down.</p>
+<p>An alarm popped up on the tablet I had left on my desk, saying that I had received an email, so I turned on the tablet with my fingerprint and checked it.</p>
+<p>It was our advertisement video sent from the TG Tech Public Relations Department. It seems like the filming was only a few days ago, but the editing is incredibly fast... Well, since our company has two world-class AI androids, editing can be done at an incredible speed.</p>
+<p>There were as many as four versions. Creating multiple versions of an advertisement was not a new thing at all, but I thought everyone would have worked hard to create so many quickly.</p>
+<p>I clicked on the first advertisement first.</p>
+<p>A cowboy who looked similar to the macho man I saw yesterday was holding a regular gunpowder rifle. The opponent was Arisu, who was holding our TG Tech energy gun. Arisu was also wearing a cowboy hat, which suited her quite well.</p>
+<p>The two gunslingers glared at each other, and at some point, they started firing at each other. They ran and hid behind cover, shooting, but the macho man used all thirty bullets in his magazine, and he was frustrated with a clanging sound.</p>
+<p>But Arisu had fired countless bullets, and her energy level hadn't decreased much. While the macho man was frantically trying to change his magazine, Arisu slowly approached and pointed the gun at the macho man's forehead.</p>
+<p>"Gotcha!"</p>
+<p>Bang! The name of our new TG Tech Oni-Killer gun came out with the sound, and the advertisement ended with a caption saying that it could fire more than 150 rounds with one energy pack.</p>
+<p>Oh... Well made? It felt like it was pointing out the limitations of gunpowder-based guns well. I clicked on the second advertisement video as if possessed.</p>
+<p>This time, it was a place with a city warfare feel. Snipers using gunpowder-based guns were firing with tremendous noise, "Bang! Bang!"</p>
+<p>But one by one, they began to fall from the energy bullets flying in without a sound.</p>
+<p>"Where are they shooting from without a sound?!"</p>
+<p>The sniper with the gunpowder gun shouted and fell after being hit by an energy bullet. And scene change, Arisu is seen holding TG Tech's gun for snipers.</p>
+<p>"If you can't hear it, you can't find it."</p>
+<p>The way she kissed the gun and winked at the camera was quite sexy.</p>
+<p>Finally, the TG Tech logo and the name of the Predator-Destroyer sniper rifle line came out.</p>
+<p>A small caption followed, saying that the low-noise version is only applied to military specifications.</p>
+<p>This was a bit ambiguous.</p>
+<p>Gun noise is of course good to have, but when shooting for hunting or general sports rather than war, gun noise can be a signal that you are shooting a gun, so if there is no noise, there could be victims.</p>
+<p>Of course, military specifications will not be sold to civilians, but we need to create a response logic for why we don't sell them, because they might ask why we don't sell them.</p>
+<p>I wrote down my impressions of the first and second advertisements for feedback and then played the next advertisement.</p>
+<p>____________</p>
+<p>Arisu Advertisement Version~!</p>
+<p>It's a shame that the gun wasn't more cybernetic ㅎㅎ</p>

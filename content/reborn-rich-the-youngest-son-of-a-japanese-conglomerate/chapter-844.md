@@ -5,70 +5,78 @@ weight = 844
 chapter = 844
 +++
 
-<p>Matsunaga Yuzuki's ex-Husband Kasaoka Koki was still living in the same Home as Matsunaga Yuzuki.</p>
-<p>They had decided to live together only until this semester, and because Kasaoka Koki had sided with the wrong line in the Daigo Family's succession fight, his job as a French Teacher at St. Francis Girls' Academy for 2054 was out of the question.</p>
-<p>In fact, when it was decided that way, he didn't care much. He had promised a future with a Female Student attending St. Francis Girls' Academy, so he thought he could pursue other Business ventures with the support of a prestigious Family instead of his tiresome Teacher Work.</p>
-<p>"I'm sorry. Now I like the Prince-nim more than Koki-ssi. If you're going to talk about our Relationship outside, think carefully. You might disappear without a trace by my Family."</p>
-<p>But it was a Mistake to trust a Woman's fickle Heart. The Female Student who had an Affair with Kasaoka Koki abandoned him, saying she preferred some unknown Prince-nim (she even Threat-ened him not to tell anyone about their Relationship), and now, Kasaoka Koki, having lost the Strap of being the daughter of a prestigious Family, was waiting for the day he would leave Miyashi, which was steadily approaching.</p>
-<p>"Jenjang, jenjang...! What happened...? Why did it turn out like this?"</p>
-<p>Kasaoka Koki's future was bleak. If he sold the Home he was currently living in and paid off his Debt, he would have some Money left to live on for a while, but he didn't know what to do next.</p>
-<p>It was even a Question whether he could get Employment as a French Teacher in another region. It wasn't just a regular retirement; he was retiring because he had displeased the influential Daigo Family in the Education sector, so it seemed unlikely that other schools would accept him.</p>
-<p>Of course, his biggest Mistake was siding with the losing party in the Daigo succession War, but he knew that the first deviation began when Kasaoka Koki, while working as a French Teacher, gained popularity among the Students and started messing with them.</p>
-<p>After that, out of vanity, despite his Wife's dissuasion, he took out a Debt to buy an expensive Home beyond his means, and because he couldn't properly pay attention while dating a Female Student, he pushed all his Work onto his Wife, Matsunaga Yuzuki, who then fell victim to fraud and incurred an enormous Debt.</p>
-<p>But Kasaoka Koki, instead, raged like a Crazy man and shifted all the Responsibility onto his Wife, Matsunaga Yuzuki. He abandoned his Wife, who was struggling after being defrauded, and enjoyed himself with Female Students, so it was Reap What You Sow.</p>
-<p>Even after that, even though Matsunaga Yuzuki was working two jobs, including her Teacher Work, to pay off the Debt, Kasaoka Koki didn't care enough to even know what kind of Work it was. Kasaoka Koki only knew that his Wife did other Work besides being a Teacher.</p>
-<p>The Couple's Relationship, which had been drifting along, was finally decided by Matsunaga Yuzuki's divorce notification after the Daigo succession fight ended. Of course, Kasaoka Koki was very happy about Matsunaga Yuzuki's suggestion of divorce, thinking he could Marry a Female Student from a prestigious Family.</p>
-<p>Contrary to his true feelings, Kasaoka Koki stubbornly insisted he wouldn't divorce, so even though Matsunaga Yuzuki took most of the Debt, she transferred the ownership of the Home to Kasaoka Koki. His Forced insistence that he wouldn't divorce unless she handed over the Home had succeeded.</p>
-<p>Instead, as a Condition, Matsunaga Yuzuki agreed to live with him until the end of this academic year, so the two ex-Couple couldn't help but see each other's Faces more often than they had expected.</p>
-<p>Matsunaga Yuzuki lived in the guest room, so they didn't share the same bed, and she left early and returned late every day for her Head of Household Work, so they rarely saw each other's Faces, but living together inevitably meant there were times they had to face each other.</p>
-<p>It was when their leaving work times were similar, and they ate Evening Meal together. Of course, Matsunaga Yuzuki didn't prepare Meals for him like she did when they were a Couple. Most of the time, she would bring takeout after leaving work or cook only for herself.</p>
-<p>Kasaoka Koki expressed his Dissatisfaction about it, but he couldn't say anything to Matsunaga Yuzuki's Question, 'Am I your Wife?'</p>
-<p>It meant that since they were no longer in any Relationship, she couldn't even prepare Meals for him. Naturally, as they were divorced, Matsunaga Yuzuki had no obligation to prepare Meals, so Kasaoka Koki had nothing to say.</p>
-<p>Coincidentally, today was the week after the Last Test, so their Time matched. No, in fact, it would be more accurate to say that Kasaoka Koki now had almost no classes and was just waiting for the day he'd be cut off from his Home, and Matsunaga Yuzuki came Home earlier than usual, allowing them to see each other's Faces.</p>
-<p>"...."</p>
-<p>Matsunaga Yuzuki, who returned Home, silently dished out the takeout Food she had bought onto a Plate without a Greeting and began her Meal.</p>
-<p>Kasaoka Koki brought Cup Noodles, sat opposite her, and poured hot Water. He didn't necessarily have to eat with her, but the uncomfortable Feeling of having Evening Meal together actually provoked Kasaoka Koki's rebellious spirit, so he deliberately ate Evening Meal with her.</p>
-<p>It was a Thought full of defiance: 'I'm eating Evening Meal in my own Home, can't I eat if that Woman is here?'</p>
-<p>While waiting for the Cup Noodles to cook, Kasaoka Koki subtly glanced at the Food Matsunaga Yuzuki had brought as takeout; it was stir-fried udon with large diced Beef and noodles. A raw egg yolk was even placed on top, making it look incredibly delicious.</p>
-<p>Wooong~! Wooong~!</p>
-<p>While both were eating their Meal in silence, a Vibration rang out. Kasaoka Koki was eating Cup Noodles while looking at his phone, so the Vibration wasn't from Kasaoka Koki's phone.</p>
-<p>Matsunaga Yuzuki took out her phone from her pocket. She didn't know who the Phone Call was from, but upon seeing the name, Matsunaga Yuzuki's Expression brightened. It was as if a Flower, touched by sunlight, had fully bloomed. Kasaoka Koki thought, 'Has that Woman ever made such an Expression in front of me since our divorce?'</p>
-<p>"Yes, Teacher-nim."</p>
-<p>Matsunaga Yuzuki glanced at Kasaoka Koki, then answered the Phone Call with a bright Expression. 'Teacher-nim?' Kasaoka Koki, who thought that this wasn't the Expression one would make when talking to a colleague Teacher, pretended not to be interested but focused all his Sensation on his Hearing and listened intently.</p>
-<p>-Hello... Matsunaga-ssi.</p>
-<p>It wasn't a speakerphone Call, so the exact content wasn't audible, but from the Voice he vaguely heard, it seemed to be a Man's Voice, deep and resonant.</p>
-<p>'Who is it...?'</p>
-<p>Kasaoka Koki felt an Emotion he had never felt before. His ex-Wife, contacting another Man, looked incredibly unfamiliar. Matsunaga Yuzuki, who had seemed pathetic when he was dating a Female Student from St. Francis Girls' Academy, suddenly began to appear Charm-ing. Her flushed Face, as if in Love, and her good Figure, which he had known since long ago, suddenly caught his Eye.</p>
-<p>"Just a moment...."</p>
-<p>Matsunaga Yuzuki, who had been on the Phone Call for a moment, saw Kasaoka Koki staring intently at her, frowned slightly, then stood up from the Dining table. And she went into her Room.</p>
-<p>He knew he shouldn't do this, but Kasaoka Koki unconsciously stood up from his Seat and went to the guest Room Matsunaga Yuzuki was using. And he pressed his Sensitive Ear against the closed Door.</p>
-<p>-Long time no see? Of course~!</p>
-<p>-Lunch or Evening Meal tomorrow? I don't care when. Both? Good...!</p>
-<p>It was a cooing Voice, like a female animal in Heat flattering a Leader male animal. It was a gentle, sweet Voice his Wife had never shown him. He became curious about who the Opponent on the Phone Call was.</p>
-<p>-Understood. See you tomorrow...♥</p>
-<p>Seeing signs that the Phone Call was about to end, Kasaoka Koki pulled his Sensitive Ear away from the Door and hurriedly rushed back to the Dining table.</p>
-<p>Kki-ik.</p>
-<p>As Kasaoka Koki sat down, the Door soon opened, and Matsunaga Yuzuki, with a flushed Expression, returned to the Dining table and sat down.</p>
-<p>"Who is it?"</p>
-<p>Kasaoka Koki asked as casually as possible, as if just passing by. His Attitude was that he wasn't interested but was asking anyway. But deep Inside, he was extremely curious about the Opponent on that Phone Call.</p>
-<p>"You don't need to know."</p>
-<p>At Matsunaga Yuzuki's Words, which felt like a cold Wind blowing, Kasaoka Koki felt suffocated, as if something was weighing on his chest. A Feeling of being completely blocked. It was a mystery why he felt this way about a Woman who was already divorced from him and had nothing to do with him.</p>
-<p>"I wasn't that curious anyway."</p>
-<p>"Right."</p>
-<p>Matsunaga Yuzuki, in stark contrast to her cold Attitude from moments ago, smiled with a flushed Expression and ate her Meal while looking at her phone, and Kasaoka Koki also ate his Cup Noodles while looking at his phone, as if he didn't care.</p>
-<p>Only after Matsunaga Yuzuki finished her Meal first, did her Dishwashing of the Tableware she had used, and entered the guest Room, did Kasaoka Koki also stand up from his Seat.</p>
-<p>Tuk.</p>
-<p>Kasaoka Koki threw the Cup Noodles he had eaten and the used chopsticks into the trash can, then returned to the living room and sat on the sofa.</p>
-<p>'She definitely said from Lunch to Evening Meal, so it must be a Date....'</p>
-<p>Kasaoka Koki bit his Lips, replaying Matsunaga Yuzuki's Phone Call he had just eavesdropped on.</p>
-<p>'Right, if she doesn't want to tell me, I'll just find out myself.'</p>
-<p>Kasaoka Koki made a Plan to follow Matsunaga Yuzuki tomorrow. He knew his Action was ugly, but he simply couldn't suppress his Curiosity.</p>
-<p>'I need to personally confirm how worthless the Guy Yuzuki is meeting is.'</p>
-<p>Kasaoka Koki sincerely hoped that Matsunaga Yuzuki would meet a Man inferior to him.</p>
-<p>Matsunaga Yuzuki B-cut~!</p>
-<p>Hangari Muneo Suit + Jeans white T-shirt requested by Gojoy-nim~!</p>
-<p>White T-shirt and Jeans~!</p>
-<p>Old model Otagi Yuka, Saionji Diana USA flag bikini + Jeans + Belly button piercing requested by Hwanbuljeoldae-bulga-nim~!</p>
-<p>Otagi Yuka first~!</p>
+<p>"More Information is needed."</p>
+<p>Funayama Seigo and Genba Kiyohira disappeared to take over other martial arts schools, and after Bernardo, who had repeatedly Dueled, went to the Infirmary, Anyaji's Meeting began.</p>
+<p>"Isn't Information coming in smoothly even now? Although it's not our Faction, but a side connected with us...."</p>
+<p>Hojo Otoji, Anyaji's second-in-command, said as if puzzled. This was because Anyaji was receiving Information from several large powers by handling their dirty work, so it wasn't a situation of great lack. Eventually, they had to acquire Anyaji's own Information gathering capability, but an information organization was no different from a money-eating hippopotamus, so they were still in the process of gathering more Money.</p>
+<p>"There's no Information from Miyashi, is there? It's quite an important Place for us, you see."</p>
+<p>"Ah, I see."</p>
+<p>Anyaji was planning Revenge because they had recently lost two Four Heavenly Kings in Miyashi. Moreover, one of the people who killed the Four Heavenly Kings was Fujigasaski Rinka's Disciple, who could be called Anyaji's Opponent, and there was also Kinui Tachio, who stole the Disciples Anyaji had kidnapped and made them his own, so they certainly had to get Revenge and retrieve the Disciples.</p>
+<p>But due to the special nature of Miyashi, where St. Francis Girls' Academy is located, they couldn't obtain much Information, which was becoming a Problem, and that was the Story Takakusaki Gengo was telling.</p>
+<p>"Ah, I know an informant who, I heard, became an intermediary for the St. Francis Girls' Academy Students. If we ask them, couldn't we obtain Information, even indirectly?"</p>
+<p>Takakusaki Athena raised her Hand and spoke. Because she had already been Guessing that such a Story would come up, she was trying to execute one of the several Plans she had discussed with Yamashiro Ryuta.</p>
+<p>"It's an information broker named K from Tokyo, and I heard he became the broker for Seizawa Shii, who is on our list."</p>
+<p>"K? Wasn't he Seizawa Shii's informant before?"</p>
+<p>Hojo Otoji said, tilting his Head. Since the code names of Seizawa Shii's current broker and former broker were the same, a little suspicion couldn't be helped. The original broker, K, had died by Seizawa Shii's Hand, so he was not the same Person as the K mentioned this Time.</p>
+<p>They are people with the same name. I heard that the original broker K for Seizawa Shii used K from the name Kenta (健太)... and my broker K comes from the nickname Kyoshiro (狂死郎). I heard that brokers usually prefer to use letters as code names, so overlaps are common.</p>
+<p>In fact, when Takakusaki Athena heard this Story, she was also a little surprised. Because Seizawa Shii's broker and her own broker had the same code name. Of course, since they were different People, it wasn't a Problem.</p>
+<p>"So, what Information can be obtained?"</p>
+<p>"It will just be about her Traces or schedule. Seizawa Shii was already Betrayed by a broker once, so if we try to dig out detailed Information, she will be suspected."</p>
+<p>In response to Takakusaki Gengo's Question, Takakusaki Athena said, shaking her Head slightly as if detailed Information was impossible.</p>
+<p>"Is that so...? Traces and schedule aren't bad, but ask if there's another Method. Tell them we can give as much Money as they want. Those brokers are guys who move for Money, so they'll certainly find a way somehow."</p>
+<p>"I understand, Father."</p>
+<p>At the Words to bribe the broker with Money, Takakusaki Athena nodded her Head. Anyway, since it was Anyaji she would Betray, Takakusaki Athena thought she should at least take a lot of Money.</p>
+<p>"Anyway, our Newcomer Four Heavenly Kings will need a little Time to settle down, so during that Time, let's gather Information and establish a Plan. Today's Meeting is now adjourned."</p>
+<p>At Takakusaki Gengo's Words that it was adjourned, all Anyaji high-ranking officials stood up, bowed at the Waist to Takakusaki Gengo, and made their greeting.</p>
+<p>"Athena."</p>
+<p>As everyone was leaving the meeting hall, leaving the sitting Takakusaki Gengo behind, Takakusaki Gengo suddenly called Takakusaki Athena in a low Voice.</p>
+<p>Takakusaki Athena had the thought, 'Was I caught?' but since she hadn't done anything yet and hadn't shown any sign, she took a deep Breath in and out, and turned her Body.</p>
+<p>"What is it, Father?"</p>
+<p>"Your Expression isn't good. What is the Matter?"</p>
+<p>At Takakusaki Gengo's Words, Takakusaki Athena felt her back getting damp with Taut Tension. She had clearly thought she was managing her Expression, but for Takakusaki Gengo to notice, she felt she needed to be even more careful.</p>
+<p>"Tell me honestly."</p>
+<p>"Ah, in fact.... I felt resentful towards you, Father."</p>
+<p>At Takakusaki Athena's Words that she suddenly felt resentful, Takakusaki Gengo continued to look at Takakusaki Athena as if telling her to continue speaking.</p>
+<p>"Father, you're talking about Revenge for the Four Heavenly Kings and thinking of killing Fujigasaski Rinka's Disciple and those People, but... you're not paying attention to the promise you made with me, about getting Revenge for my biological Parents. Honestly... that made me a little resentful."</p>
+<p>It was Words that were half the truth. Now that the Seal of her Memory had been released, she knew that Takakusaki Gengo was the culprit, but when she didn't know that, she had thought, 'Why isn't Father keeping his promise?'</p>
+<p>"I see, thank you for telling me honestly. I promise. When this Miyashi Work and Fujigasaski Rinka's Work are over, I will prioritize resolving your Revenge, Athena."</p>
+<p>Hearing Takakusaki Athena's Words, Takakusaki Gengo nodded his Head as if they were right, and said he would certainly keep his promise.</p>
+<p>Seeing the true culprit who killed her biological Parents speak Void Words, Takakusaki Athena felt a thousand fires rising inside her, but she endured, doing her best not to show it.</p>
+<p>"Thank you for your promise, Father. I'll take my leave now."</p>
+<p>"Yes, go."</p>
+<p>Takakusaki Athena bowed her Head, made her greeting, and came out of the meeting hall. And she hurriedly returned to her Room.</p>
+<p>Kwang!</p>
+<p>After hurriedly closing the door, Takakusaki Athena entered the Restroom and turned on the water forcefully. And she began Sobbing.</p>
+<p>Because Takakusaki Athena felt the Memory of her Parents' Death, which had been Sealed due to Jusul, as if it had happened yesterday, she was under immense mental Stress from calling that enemy 'Father' and acting as if nothing was wrong.</p>
+<p>After shedding Tears for a while, Takakusaki Athena Washed her Face with the running water. And she decided to think of The Situation positively. If she thought of all these situations as a Process for her Parents' Revenge, it seemed it would get a little better.</p>
+<p>After finishing Washing her Face, Takakusaki Athena looked at the Mirror and Forced a Smile. Because her Parents wouldn't want her to cry like this either.</p>
+<p>At the Woong Vibration, I opened my Eyes. Sitting on the edge of the bed and checking, it was Athena Mannerheim's Contact.</p>
+<p>-Athena: K Operation went well. And there won't be an attack while the new Four Heavenly Kings settle down. Though that won't take long.</p>
+<p>Because it was a Text Message sent via a highly secure dark market App, Athena Mannerheim wouldn't be caught as a spy through this chat.</p>
+<p>It's good that there's time. Time was also needed for Ichimonji to make Swords for the Kids, and just like Anyaji, we needed time to completely establish the Operation we had planned.</p>
+<p>-Ryuta: I understand. I'll inform you immediately if there's any Situation on this side, so Athena-ssi, I'd appreciate it if you'd inform me if anything happens.</p>
+<p>-Athena: Yes. I'll Contact you next Time.</p>
+<p>The chat felt a little blunt, especially today. Is something difficult happening? Indeed, being a spy would be mentally tiring.</p>
+<p>Of course, Athena Mannerheim is also doing this Work for Revenge, but I will give her a Reward for this spy Work. I could recruit her to our side and treat her well. Since Athena Mannerheim said she had the best Skill among the Four Heavenly Kings, she's also a useful Talent, you see.</p>
+<p>In fact, although I don't experience Stress like Takakusaki Athena, I also had quite a lot of worry about how The Situation would proceed. Of course, I can continuously receive Information from Athena Mannerheim, but I have to deal with it flexibly each Time.</p>
+<p>Unless Takakusaki Gengo is crazy, he wouldn't directly Attack St. Francis Girls' Academy, but I hope he doesn't openly Attack Miyashi.</p>
+<p>Eventually, because I could be politically Attacked later with the narrative, 'Taira Ryuta was here, so there was a commotion in Miyashi!', I had to make a plan as carefully as possible. There's no need to necessarily make the Japanese Upper class, who have Daughters, feel resentment towards me.</p>
+<p>Of course, we have set up several Operations on our side to avoid a commotion, but the most important thing is to draw Anyaji into our Operation.</p>
+<p>"What is it, Orabeoni?"</p>
+<p>Taira Kanna hummed, embracing my Waist as I sat, and asked. It was Taira Kanna, who, saying she needed to absorb her Orabeoni's essence after a long Time, had followed me to my Home after playing a bit at Ichimonji's blacksmith workshop and in Kofu yesterday, and spent the night.</p>
+<p>To prevent Taira Kanna's yandere tendencies from exploding, and with the thought of intermittently replenishing her with my 'yasu' essence, I also did my best in Service yesterday.</p>
+<p>"I was just thinking about the Anyaji Plan."</p>
+<p>"Don't think about such trivial Work, Orabeoni."</p>
+<p>An Anyaji attack is trivial Work, she says.... Taira Kanna's boldness was no less than a Man's.</p>
+<p>"Instead of such trivial Work, there's something more important, isn't there?"</p>
+<p>"What is that?"</p>
+<p>In response to my Question, Taira Kanna pulled back the Entwined Sheets, revealing her breast, and Smiled sweetly.</p>
+<p>"Morning Sex♥"</p>
+<p>"Then, as you say, without thinking about trivial Work, shall we do a little morning Athleticism?"</p>
+<p>Since there was a large and beautiful breast in front of my Eyes, my Worry disappeared, so I Smiled and decided to follow Taira Kanna's Words.</p>
+<p>Requested by Hwanbuljeoldae-bulga-nim: Off-shoulder side-slit Dress Lisa, Home Ec Teacher~!</p>
+<p>Starting with Lisa-ttang~!</p>
+<p>Home Ec Teacher~!</p>
+<p>Because it was difficult to accurately grasp the Bodysuit requested by Bodagasanda-nim, I tried making Shii and Diana with additional keywords like high-leg and sleeveless tops like tank tops, hehe.</p>
+<p>Shii~!</p>
 <p>Diana~!</p>
-<p>Kkiyoot~!!</p>

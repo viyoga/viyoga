@@ -5,93 +5,81 @@ weight = 830
 chapter = 830
 +++
 
-<p>Thursday morning. Hatake Investment Company Headquarters.</p>
-<p>Jinmija, who was achieving quite excellent results as the CEO of Hatake Investment Company, sat in her seat checking the contents that her son, Jin Yongtae, had requested via Phone Call yesterday. In the well-organized documents, there was a new Business Plan, which was a plan to launch a new premium Sword brand.</p>
-<p>In fact, if Jin Yongtae were the son of an ordinary chaebol family, she would have scolded him, asking why he was creating a company for some childish Play, but Jin Yongtae was the son of the Taira Group. Moreover, he was not a typical Tairaga Descendant, but the son of a man who had died in a Successor War. If excellent Swordsmen were by her son's side, Jinmija felt her mind would be a little more at ease.</p>
-<p>And strangely, because her son was seeing enormous profits from every Investment he made, Hatake Investment Company's finances were sound enough to create dozens more companies like this Sword-making one.</p>
-<p>"Wagato-ssi. Please review this Proposal and find out the necessary finances and qualifications for the new company."</p>
-<p>"Understood, CEO-nim."</p>
-<p>Jinmija handed the documents to her secretary and instructed her to prepare for the company's establishment. Since she had already spoken with the Master, Ichimonji Harugoro, and roughly agreed on the terms, there were no obstacles to establishing the new company.</p>
-<p>"Deciding the company's name will be the only Problem."</p>
-<p>Because the name was also important for a premium brand, she would have to discuss this separately with her son, Jin Yongtae. Other than that, Hatake Investment Company could handle everything.</p>
-<p>"Tsukumi-ssi, what's the next schedule?"</p>
-<p>Jinmija asked her second secretary, Tsukumi, for the next schedule, in place of Secretary Wagato who had gone to do other Work. Because Hatake Investment Company had many companies to manage and Investments to oversee, Jinmija also had many secretaries, with a total of four secretaries assisting Jinmija, each with their assigned mission.</p>
-<p>"The next schedule is a Meeting regarding the Mithril supply contract with Taira Jiro-nim. It's scheduled to be held in the meeting room in fifteen minutes."</p>
-<p>Jinmija nodded her Head. In fact, the deal with Taira Jiro was a very large deal, so she wouldn't forget it, but asking her secretary for the next schedule had become a routine, which was why she asked.</p>
-<p>"It's fifteen minutes before, so all the data and such in the conference room should be ready, right?"</p>
-<p>"Yes, everything is ready."</p>
-<p>"Then let's move now."</p>
-<p>Because of who the Opponent was, not only the secretary but also Jo Seodang, the information organization under Jin Yongtae, had joined forces to prepare the data. Taira Jiro was that dangerous an Opponent.</p>
-<p>Because the data research and investigation into Taira Jiro's Surroundings had been so meticulous, she was confident in this deal. Moreover, Mithril was a mineral with enormous Demand. There were many places to sell it even if they didn't supply it to Taira Steel. This meant Hatake Investment Company had the upper hand over Taira Steel.</p>
-<p>"CEO-nim, Taira Steel's side has arrived. But...."</p>
-<p>As Jinmija sat reviewing the prepared data, Secretary Tsukumi soon approached and informed her that a representative from Taira Steel had arrived. However, something embarrassing seemed to have happened.</p>
-<p>"What's the Matter?"</p>
-<p>"We expected Taira Steel's CEO's Assistant manager to come, but Taira Jiro-nim himself has come."</p>
-<p>No matter how well Hatake Investment Company was doing, it couldn't be compared to a Large Corporation of the Taira Group like Taira Steel.</p>
-<p>And the Affiliate Companies Taira Jiro managed, besides Taira Steel, included several other Taira Affiliate Companies, so it was rumored that he was extremely busy. Therefore, during Negotiations with Hatake Investment Company, which was of a lower rank, she hadn't even considered that the busy Taira Jiro would come.</p>
-<p>"Don't panic. The data sent by Jo Seodang contained Information that Taira Jiro might come, didn't it?"</p>
-<p>"Th-that, that was less than 3 percent probability...."</p>
-<p>"Pull yourself together. Once that has already happened, it's 100 percent."</p>
-<p>After reprimanding Secretary Tsukumi, who was stiff with Taut Tension and surprise, Jinmija quickly skimmed through the data until Taira Jiro arrived in the meeting room. In The Situation like this, Jinmija was bolder than any man.</p>
-<p>Cheolkak.</p>
-<p>Soon, the door of the meeting room opened, and Taira Jiro and his secretary, Tateyama Genta, entered. Taira Jiro was a man of considerable Size, with a tall Height in the mid-180s. Not only his Size, but the Aura emanating from him was tremendous. Indeed, it was the kind of Presence befitting a man engaged in the next Taira Group Successor War.</p>
-<p>Jinmija's secretary, Tsukumi, seemed tense by Taira Jiro's Presence and swallowed her Saliva, but Jinmija maintained a calm Attitude, unyielding to Taira Jiro's Presence.</p>
-<p>"It's been a long Time since the funeral, sister-in-law!"</p>
-<p>Taira Jiro said, Collapsing into the seat on Jinmija's Opposite Side. It was an extremely impolite Attitude, not treating the other party as a Negotiation partner, but Taira Jiro's confident Attitude somewhat masked that Feeling.</p>
-<p>"It's been over 20 years since I parted ways with Saburo-ssi, so I'm not your sister-in-law. And I wasn't married to him either."</p>
-<p>No matter how arrogant Taira Jiro acted, Jinmija knew very well that Hatake Investment Company was currently in the superior position in the Negotiation. Jinmija showed a deeply displeased Expression and frowned.</p>
-<p>"Haha, it's a Playful Jest~! I just said it to try and get closer since you're my lovely Nephew's Mother, so don't take it too much to Heart."</p>
-<p>Taira Jiro slyly passed off his Mistake as a Joke. Jinmija couldn't say anything more and entered the Negotiation.</p>
-<p>"I want Hatake Mining. I hope you'll sell it."</p>
-<p>The original content to be negotiated today was how much Mithril Hatake Mining would supply to Taira Steel. But Taira Jiro suddenly made a Proposal to buy Hatake Mining, which hadn't been discussed beforehand.</p>
-<p>"Can you even buy it?"</p>
-<p>This Time, Jinmija asked with a Smile, without getting angry. The reserves of the Mithril mine that Hatake Mining was excavating were enormous. Although it was still the Early Stage and they weren't producing large quantities of Mithril, Hatake Mining's Value was so immense that Taira Jiro alone couldn't buy it.</p>
-<p>Of course, if one considered only the property he owned, he might be able to buy it, but that was property that had not been converted into Cash. It could be said that he didn't have enough Cash to buy Hatake Mining immediately.</p>
-<p>"Of course, it's impossible. I just mentioned it on the off chance."</p>
-<p>Taira Jiro, who quickly changed his Words with a sly Attitude. Jinmija thought he wouldn't be easy to deal with and looked at Taira Jiro as if telling him to make another Proposal.</p>
-<p>"Let's do twenty tons of supply per month, at a supply Price of 1.2 billion yen per ton."</p>
-<p>Even as a first Proposal, it was still an absurd one. A coated Ammunition bullet, merely coated with Mithril, cost 2,200 yen. Mithril was so precious that the general market Price was 2.3 billion yen per ton. And a monthly supply of twenty tons was a contract that Hatake Mining, which had not yet reached its Orbit, could not accept.</p>
-<p>This was because its properties were different from other metals, so production could not be rapidly increased.</p>
-<p>"Taira Jiro-ssi."</p>
-<p>Jinmija called Taira Jiro's name softly. Her Expression seemed to be suppressing her Anger.</p>
-<p>"I didn't want to say this, but as you know, Ryuta received Saburo-ssi's Share after his death. Do you want him to take that Share and support your older brother, Ichiro-ssi? Otherwise, there's no way you'd make such a Prank-like Proposal, is there?"</p>
-<p>Because Taira Jiro kept making absurd Proposals, Jinmija had no choice but to Threaten him by making the Successor structure difficult. Only then did Taira Jiro raise both Hands as if in Surrender and open his Mouth.</p>
-<p>"Can't even make a Joke, huh. Let's go with 2.3 billion yen per ton, as per market Price, and 2 tons per month."</p>
-<p>That was an acceptable contract. Taira Jiro seemed to have intended this Proposal from the beginning, as he presented a contract stating 2.3 billion yen per ton and 2 tons per month, completely unrevised.</p>
-<p>"May I check the contract?"</p>
-<p>"Of course, it's not a contract for a few pennies."</p>
-<p>At Jinmija's Words, Taira Jiro clasped both Hands behind his Head and leaned back in his Chair, speaking. Jinmija handed the received documents to Secretary Tsukumi.</p>
-<p>Tsukumi, who received the documents, went Outside. There was a legal team that reviewed such contracts, so she sent it there. With Experts on hand, Jinmija didn't necessarily need to examine every single letter of the document herself.</p>
-<p>"Ah, we also have a Proposal to offer. It's not a big contract, but we'd like to receive some steel supply from Taira Steel."</p>
-<p>"Ah, discuss that with my secretary, Genta, later."</p>
-<p>TG Tech also produced various Products, so they lacked Mithril alloy. Thanks to Hatake Mining, Mithril was sufficient, but other metals were lacking, and in Korea, some Enterprises were checking TG Tech, which had suddenly appeared like a comet, so they couldn't properly receive metal supplies and planned to receive supplies from Japan.</p>
-<p>She thought that since they were already dealing with Taira Steel for Mithril, they might as well deal with steel, but Taira Jiro, even though the Mithril contract was almost over and it was an opportunity to open a new deal, showed an indifferent Expression.</p>
-<p>"CEO-nim."</p>
-<p>Secretary Tsukumi returned with the contract, seemingly having finished reviewing it.</p>
-<p>"The legal team has confirmed that there is no Problem."</p>
-<p>This was unexpected. She had expected some kind of Trap in the contract, but it was just a regular contract. Jinmija signed the contract, thinking it was good that she didn't need to revise it.</p>
-<p>"Here you go."</p>
-<p>"Good. Discuss that steel deal you mentioned with the working-level staff who will arrive soon."</p>
-<p>Although there were still a few procedures left after signing the contract, Taira Jiro signed and rose from his Seat. It seemed he meant for them to finalize it with the working-level staff who would arrive soon.</p>
-<p>Taira Jiro waved his Hand and left the meeting room, and Taira Jiro's secretary, Tateyama Genta, said, "The working-level staff will be here soon," then bowed at the Waist, greeted her, closed the door, and left.</p>
-<p>"Crazy Bastard, he really does whatever he wants."</p>
-<p>Jinmija Yeosa muttered slightly awkwardly in Korean language. Because no matter that he was a Taira, his Attitude was truly without Etiquette.</p>
-<p>"It's all recorded on Camera, isn't it?"</p>
-<p>"Yes, CEO-nim."</p>
-<p>"Send that to Ryuta and Jo Seodang."</p>
-<p>Just in case there was another Scheme, she planned to send all The Situation that had occurred here, along with the contract, to her son, Jin Yongtae.</p>
-<p>"Kukuku, she's probably cursing a lot right now, isn't she?"</p>
-<p>"Indeed. It's not proper business Manners."</p>
-<p>Taira Jiro chuckled and laughed, then got into the back seat of his luxury sedan. Taira Jiro's secretary, Tateyama Genta, also smiled and sat in the Driver's Seat. And he glanced at the working-level staff of Taira Steel entering Hatake Investment Company.</p>
-<p>"I said what I wanted first, but she didn't understand."</p>
-<p>"Isn't she just a Woman who used to be a housewife?"</p>
-<p>What Taira Jiro said first in the Negotiation was that he wanted Hatake Mining. That was Taira Jiro's True Feelings. Seeing him dismiss Jinmija as merely a former housewife, it seemed he had no intention of dealing with her properly from the start.</p>
-<p>"If Hatake Mining becomes mine, there's no need to buy Mithril. I'll have to show my Nephew-nim and my Nephew's Mother how terrifying it is to do Business in Japan. Her Attitude was also arrogant, so she won't be able to hold Resentment against me, right?"</p>
-<p>Taira Jiro watched the Hatake Investment Company building recede, a wry Smile on his Face.</p>
-<p>Gojoy-nim requested Sakagami Rena's usual Attire and Underwear~!</p>
-<p>She was the mask Woman in the Early Stage, hehe.</p>
-<p>Her other usual attire is, of course, the cyber Suit she wears during missions, hehe.</p>
-<p>Underwear~!</p>
-<p>Home Economics Teacher new model Remake~!</p>
-<p>No matter how much I tried to create it with the new model, it didn't have that Feeling. So, I trained it with the numerous Home Economics Teacher Illustrations I already had to create a LORA specifically for the new model, hehe. I didn't know I'd even get my Hands on Learning, hehe.</p>
-<p>Kkiyoot~! Does it look good? Hehe.</p>
+<p>and chapter contains illustrations of similar this underwear</p>
+<p>"Are you having fun?"</p>
+<p>When I opened the club room door and entered, the Date Experience Club students were still divided, playing as they pleased.</p>
+<p>Naturally, Alik, who had an additional Test tomorrow, was groaning, clutching his Head, solving Test problems his friends had picked out for him, and several Students were taking turns helping Alik study. His struggling with unsolved problems was quite cute and also a little pitiful.</p>
+<p>The rest were, as usual, doing what they wanted, mostly watching TV on a large screen or looking at their phones, while Minamoto Lisa, Oofuchi Erika, and Shido Tsubaki, who were advancing to other schools instead of St. Francis Women's University, were practicing essays or interviews.</p>
+<p>"Ah~! Ryuta-jji! Come over here~!"</p>
+<p>"Teacher! Teacher, judge who is right~!"</p>
+<p>"Just a moment...."</p>
+<p>Seizawa Shii, Naruse Shiyo, Kujo Kina, Otagi Yuka, and others were gathered, looking at something, and they asked me to make a judgment. But I had the more important matter of Alik's additional Test, so I decided to go to Alik first and hand him the printed exam paper.</p>
+<p>"Ryuta.... Alik, Math is hard...."</p>
+<p>Alik complained to me with a gloomy Expression. He looked very tired from continuously studying difficult Math.</p>
+<p>"The Test is tomorrow, so let's just bear with it a little longer. If you pass this one well, shall we go see a Movie or something with your friends who suffered with you?"</p>
+<p>I stroked Alik's Head and comforted him. Then I handed Alik the 'Practice Problems' I had received from Matsunaga Yuzuki.</p>
+<p>"Don't solve what you're doing now, try solving this. A few problems will come from here."</p>
+<p>"Really, Ryuta...?"</p>
+<p>"Of course."</p>
+<p>Since I said it would appear on the Test, Alik eagerly took the exam paper I offered and began to solve it. I handed the storage device containing the practice problems to Konoe Akina, who was in charge of helping Alik study.</p>
+<p>Originally, Naruse Shiyo, who was closest to Alik, helped him study, but Naruse Shiyo also had problems explaining to Alik due to academic limitations, so Konoe Akina, who had the highest grades in the special class (excluding students advancing to other universities), decided to help Alik study.</p>
+<p>"That exam paper is in here. Most of the problems seem to be coming from here."</p>
+<p>I couldn't openly say that I had received the additional Test problems from Matsunaga Yuzuki, so I whispered into Konoe Akina's Sensitive Ear, and Konoe Akina nodded as if she understood.</p>
+<p>"Ah, I understand. I'll check it myself and then explain how to solve it to Alik."</p>
+<p>"Okay. Just bear with it a little longer."</p>
+<p>After handing the storage device to Konoe Akina, I headed towards Seizawa Shii, who had just called me.</p>
+<p>"Alright, what's up?"</p>
+<p>"You know, the UMC Unlimited Class Champion Match? We were talking about that. Opinions were divided. I thought since Ryuta-jji is also a Fist Technique practitioner, you might have something to say...."</p>
+<p>Ah, that's right. Kiyohira's Champion Match was this Friday. I had forgotten about it while focusing on Alik's Graduation. This is quite an important Matter, too.</p>
+<p>I wondered why these four were gathered. Kujo Kina and Naruse Shiyo were originally Martial Arts enthusiasts, Otagi Yuka said she became a fan by often watching UMC while in the USA, and Seizawa Shii seemed to have Intrigue as a Fist Technique practitioner.</p>
+<p>"So, why do you need my judgment?"</p>
+<p>"Naturally, it's about victory or defeat. Kina-jji and I bet on Kiyohira winning, while Shiyo-ppi and Yuka-jji bet on the current Champion, Hunter Herrera."</p>
+<p>"You even made a Bet?"</p>
+<p>After hearing the Story, it was clear. Otagi Yuka and Naruse Shiyo, who were under my command, knew that Kiyohira was likely affiliated with Anyaji, so it seemed they wished he would lose the Champion Match.</p>
+<p>Seizawa Shii and Kujo Kina, not yet knowing that fact, seemed to have bet on Kiyohira out of patriotic betting, hoping a fellow Japanese Person would become Champion.</p>
+<p>"It's not a big Bet, just a Meal Bet."</p>
+<p>At my Words, "You even made a Bet?", Seizawa Shii said, flinching slightly. I wasn't trying to scold her for the Bet itself. It was more like, 'You'd even bet on that?'</p>
+<p>"Anyway, Teacher-ssi, who do you think will win?"</p>
+<p>Otagi Yuka asked me. Her Expression implied, 'You'll take my side, right?', but honestly, I hadn't thought about Kiyohira's Opponent, Hunter Herrera. I was too shocked by Kiyohira practicing Anyaji Martial Arts to pay attention to his Opponent.</p>
+<p>"I don't know much about Hunter Herrera...."</p>
+<p>"Then sit here. Kina-jji and Shiyo-ppi will explain while we watch Hunter Herrera's highlights."</p>
+<p>At my Words, Seizawa Shii patted the middle of the sofa next to her. I also had Intrigue in Kiyohira's Match, so I sat on the sofa and watched the highlight Video of Hunter Herrera that Seizawa Shii played.</p>
+<p>First, looking at the Specs that appeared, his Height was 2 meters 6 centimeters.... His weight was 180 kilograms, and his Reach was 2 meters 44 centimeters.... He was a giant of immense Size. Moreover, since it was an Unlimited Class that allowed everything except full Cyborg conversion, his speed would be incredibly fast compared to his Size and weight.</p>
+<p>Next, as expected for the Unlimited Class, information about what Modifications he had undergone was revealed. He was a dual gaejo, with Biological Modification in addition to Cyber Implants on his shoulders and fists.</p>
+<p>Normally, if it's Biological Modification, it's only Biological Modification, and if it's mechanical Modification, it's only mechanical Modification; dual gaejo is not common.</p>
+<p>If two Modifications are well combined, the disadvantages of each Modification can be minimized and the advantages maximized, but dual gaejo usually isn't done because it puts a strain on the Sensitive Nerves, leading to tremendous Side Effects such as delirium, phantom pain, and inability to distinguish friend from foe.</p>
+<p>However, the current Champion, Hunter Herrera, seemed to have chosen dual gaejo to maintain his UMC Unlimited Class Champion position, without any thought of the Side Effects.</p>
+<p>After the Explanation of Hunter Herrera, a highlight Video of his Matches immediately followed, mostly showing him crushing Opponents with animalistic Rhythmic Motion, using his Power and Body Abilities.</p>
+<p>To express Hunter Herrera's combat style in one sentence, it was simply strong and fast. Perhaps due to the Modifications, his incredibly extended Reach and iron-fist Cyber Implants made even a typical defensive jab a Murder technique.</p>
+<p>In particular, when he was lower in the Ranking, breaking an Opponent's Arm with just a few jabs was more than enough to instill Fear in them.</p>
+<p>So, what about the Champion Deciding Match with Kiyohira? Kiyohira is a Guy who fights with the exquisite techniques of Anyaji Fist Technique, which he recently began to learn, in his natural, un-Modified state.</p>
+<p>It's a Match between Modification and purity, Power and Technique, and in my Estimation, Kiyohira would win. Even if his Opponent had undergone dual gaejo, having seen Kiyohira's highlights a few days ago, I could make a relatively objective Evaluation.</p>
+<p>UMC was an excellent Martial Arts competition, but ultimately, it was a Martial Arts sport. Such a sport would not be able to defeat an Anyaji Fist Technique practitioner who had mastered Murder techniques. Until now, the Unlimited Class Champion was Fujigasaki Rinka, who had also mastered Murder techniques, so I thought Kiyohira would win. Of course, I wasn't saying Kiyohira was on the same level as our Master.</p>
+<p>After all the highlight Videos ended, the four of them looked at me with a Gaze that asked, 'Who do you think will win?', so I opened my Mouth.</p>
+<p>"I think Kiyohira will win."</p>
+<p>I spoke with conviction, but my Mind was actually a bit complicated. He was both a friend and a Guy who practiced Anyaji Martial Arts, so while I wanted to see my friend become Champion, I also wished he would lose the Champion Match and not come to Japan.</p>
+<p>"Eh~! Teacher-ssi. Are you serious?"</p>
+<p>"Even if Kiyohira is highly likely to become an Enemy, we must look at the Match objectively."</p>
+<p>At Otagi Yuka's Words, I nodded and spoke as if I was sincere.</p>
+<p>"I chose him because I'm a fan of Hunter Herrera."</p>
+<p>Naruse Shiyo seemed to be a fan of the Champion. She was originally a fan of Fujigasaki Rinka, but since Fujigasaki Rinka had relinquished the Champion title and disappeared, she seemed to have chosen Hunter Herrera as her second pick.</p>
+<p>"But what's this about him possibly becoming an Enemy?"</p>
+<p>"Right, why would Kiyohira-nim and Teacher fight?"</p>
+<p>Seizawa Shii and Kujo Kina asked, looking puzzled by my Words about him possibly becoming an Enemy, rather than just a prediction.</p>
+<p>"Kiyohira has learned Anyaji Martial Arts. That's why he's doing so well in the Unlimited Class recently. Moreover, there's Information that he'll join the Anyaji Four Heavenly Kings, whose ranks became vacant because of us."</p>
+<p>"Really?!"</p>
+<p>"No way...!"</p>
+<p>Both Seizawa Shii and Kujo Kina were very surprised by my Explanation because they had experienced the Anyaji attack. It seemed they never expected the Word 'Anyaji' to come up in the UMC Unlimited Class Champion Match.</p>
+<p>"Since things have already come to this and we can't control The Situation, we'll just watch the Match comfortably on Friday. We can also confirm Kiyohira's Skill."</p>
+<p>"Then.... Shall we all watch the Match together in the club room? Alik will have passed his additional Test by then, and... it'll be Morning in Japan time."</p>
+<p>Otagi Yuka made her own Proposal. She seemed to be trying to put my Mind at ease a little, knowing that Kiyohira was my friend. I was quite grateful for that Proposal. If I had watched the Match alone, my Mind would have been complicated.</p>
+<p>"Shall we? But I don't know if Alik will have Intrigue."</p>
+<p>I said, wondering, 'Was Alik interested in Martial Arts?'</p>
+<p>"Right now, Alik would find anything fun as long as it's not Math, wouldn't he?"</p>
+<p>At my Words, Kujo Kina glanced at Alik and said. His Appearance, groaning and solving Math problems with one hand supporting his forehead, certainly looked like he'd enjoy anything but Math.</p>
+<p>Gojoy-nim requested Hangari Muneo Belly Dancer, breast-covering~!</p>
+<p>Belly Dancer~!</p>
+<p>Breast-covering~!</p>
+<p>Hwanbuljeoldae-bulga-nim requested Lisa-ttang in white underwear and black stockings, and the Home Ec Teacher.</p>
+<p>Starting with Lisa-ttang~!</p>
+<p>Home Ec Teacher</p>

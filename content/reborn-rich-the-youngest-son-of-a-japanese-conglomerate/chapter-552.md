@@ -5,71 +5,78 @@ weight = 552
 chapter = 552
 +++
 
-<p>After the three-legged race, the remaining events were the class relay race and, for the Red and White Team competition, the equestrian battle. Both were highlight events that could decorate the finale of any athletic meet.</p>
-<p>I wondered which event would be the final one for St. Francisco Girls' Academy, so I checked the pamphlet and, as expected, it was the equestrian battle. Thinking about it, the equestrian battle, with its group combat nature, probably had a higher risk of injury than the relay race, so they likely did the less risky relay race first and the equestrian battle last. Since it's the last event, even if students get hurt, they can go straight to the hospital without affecting any subsequent schedule.</p>
-<p>,To think that right after the three-legged race, which is also a running event, we have the relay race... The person who planned the schedule really has a twisted sense of humor."</p>
-<p>Minamoto Risa muttered as the announcement to prepare for the relay race came on. It was true that this athletic meet's schedule was quite hardcore. It's not like it's the Olympics... Archery, dodgeball, three-legged race, relay race, lacrosse, fencing, equestrianism, and even the equestrian battle, that's eight events?</p>
-<p>Minamoto Risa was originally a relay race runner, but since she overdid it in the three-legged race just now, Saionji Diana decided to run instead. Saionji Diana did have a cyber implant, but it wasn't obvious just by looking, so the thought was that as long as she didn't run too fast, she wouldn't get caught.</p>
-<p>,We're the top class anyway, so don't push yourselves too hard."</p>
-<p>Since we had already won all the previous class competition events, I said to the students. Even if we didn't win the relay race, our class would still be the top class. However, Minamoto Risa seemed to have a different idea than me and tried to boost my motivation in front of the students.</p>
-<p>,If we win this relay race too, we'll be the first top class in St. Francisco Girls' Academy history to win every event. Let's all decorate a page in history."</p>
-<p>St. Francisco Girls' Academy's history was by no means short. The Daigo family took over a mission school founded by the missionary Francisco (later canonized as Saint Francisco), so it had a considerably long history. The athletic meet was the 137th, but there were many times when the athletic meet was canceled due to events like the World War or major earthquakes, so it had a history of nearly 160 years.</p>
-<p>But in 160 years, there hasn't been a class that has won in every event? That's more impressive than I thought? At Minamoto Risa's words, everyone's morale blazed with the thought that they could become a page in the history of St. Francisco Girls' Academy.</p>
-<p>,Ryuta-cchi! With such a complacent attitude, you can't aim for the world!"</p>
-<p>,That's right, sensei! I want to remain as a scene in St. Francisco's history with you!"</p>
-<p>As a result, somehow I was the one being scolded. I just hoped that everyone wouldn't fall while running because they were too motivated.</p>
-<p>After the students all left, the only ones remaining were Naruse Shiyo, Minamoto Risa, Shido Tsubaki, and I. Fortunately, Naruse Shiyo seemed to be in pretty good condition today.</p>
-<p>,I wanted to participate in at least one event..."</p>
-<p>Naruse Shiyo muttered with a slightly lonely expression. It seemed like she had mixed feelings about just watching the matches today. It must feel like her classmates are achieving something, but she's not a part of it.</p>
-<p>,Then you can participate in the equestrian battle."</p>
-<p>Minamoto Risa tossed out at Naruse Shiyo's words. The equestrian battle would be quite intense, so I was about to stop her, thinking it might be too much for Naruse Shiyo, but Minamoto Risa continued before that.</p>
-<p>,You can be the rider. If the horses are well-fighting kids like Kujo Kina, there won't be much chance of getting hurt."</p>
-<p>Ah... Is that so? In the equestrian battle, there's the role of the horse and the role of the rider who rides on it, so the rider role might be less physically demanding. Of course, the rider also needs combat ability, but as Minamoto Risa said, if the students acting as the horses below take on more of the burden, it might be possible to make up for Naruse Shiyo's lack of combat ability.</p>
-<p>,Sensei-nim..."</p>
-<p>Naruse Shiyo was sending me pleading eyes, wanting to participate. Unable to resist the sparkling eyes, I had no choice but to nod.</p>
-<p>,But you have to give up if you feel like it's too much during the match, okay?"</p>
-<p>,I understand."</p>
-<p>Naruse Shiyo nodded with an excited expression. I should be the one to decide which students will be the horses to support Naruse Shiyo. In the equestrian battle, one team consists of one rider and three horses, so our class could make three teams. With Saionji Diana and Otagi Yuka, and one person supporting from behind, they would probably do well.</p>
-<p>,So, let's decide on Naruse's team like this..."</p>
-<p>,Aren't you putting Kujo Kina in?"</p>
-<p>It was Minamoto Risa who raised a question about the team I had made. But Saionji Diana and Otagi Yuka are stronger than Kujo Kina.</p>
-<p>,I'm trying to create a team that can win even if Naruse drops out."</p>
-<p>,Hmm, that could work too."</p>
-<p>Minamoto Risa, who nodded at my hastily made excuse, was now worrying about forming the remaining two teams. The Red and White Team competition didn't really matter whether we won or lost, but she seemed to want to win anyway.</p>
-<p>While we were forming the teams, the relay race ended.</p>
-<p>,,,,Ah...!""""</p>
-<p>Minamoto Risa, Naruse Shiyo, and I simultaneously let out a "Ah!" We were so busy forming the equestrian battle teams that we didn't watch the match. If the relay race runners found out we didn't watch, they would definitely sulk. Shido Tsubaki, who was sitting next to us, smiled and told us that we had won.</p>
-<p>,We won? Then I'll have to gloss over it somehow."</p>
-<p>,What are you going to do, Ryuta-cchi?"</p>
-<p>,No, it's nothing. Congratulations on winning the relay race!"</p>
-<p>,Right? I created a half-lap difference, you know!"</p>
-<p>Whether my acting worked or not, Seizawa Shii said with a smug grin. I unintentionally said, "Yeah, good job," but Seizawa Shii pounced on me with a "Gotcha!" expression.</p>
-<p>,You didn't watch the match, did you!? You should have watched when it was my turn to run~☆"</p>
-<p>,Sensei~! You didn't watch the match? Isn't that too much?"</p>
-<p>,Sensei-ssi, that's too much! I can't even defend you on this one."</p>
-<p>,Ahahaha...! Sorry, I was busy planning the next match."</p>
-<p>As Seizawa Shii scolded and yelled at me, the other students also added a word each with disappointed expressions. Even though I made excuses, it didn't seem like they were going to let it go. Minamoto Risa, unable to watch the students' nagging any longer, made an excuse for me instead.</p>
-<p>,Ah, it's because of me. My calf hurt from overdoing it in the three-legged race, so Naruse had to run instead. So I was so focused on forming a team that could win that I didn't watch the match."</p>
-<p>,Risa-tan, are you okay?"</p>
-<p>,Your calf? Was it the one that was tied up?"</p>
-<p>,Should I give you a massage or something?"</p>
-<p>As expected, they seemed to let it go since she said she was in pain. Seeing everyone worried, Minamoto Risa, who was cold to men and me, was quite loved by her classmates. She was doing a good job as the class representative.</p>
-<p>,It's okay, it's just muscle shock from running too fast. The newly formed teams are..."</p>
-<p>Minamoto Risa quickly announced the equestrian battle teams. I called Saionji Diana and Otagi Yuka and asked them to take good care of Naruse Shiyo.</p>
-<p>-The Red and White Team equestrian battle will begin soon, please proceed to the arena.</p>
-<p>The announcement signaling the preparation for the final match rang out. Since the equestrian battle was a match that almost all students participated in, the schoolyard was swarming with students. Everyone was wearing the red and white hats of their respective teams, but apparently, they switched to hats from headbands a dozen years ago because there were too many accidents.</p>
-<p>The captain of the Red Team was, as expected, the student council Chairman Taira Kanna. The captain of the White Team was the Public Morals Committee Chairman Nakanoin Rina, who had a confident expression on her face.</p>
-<p>Our class's students were in charge of the left wing, and when the screen showed Uenozono Karen, one of the riders, wearing a red hat, the students who couldn't participate in the equestrian battle cheered. I didn't know until now, but Uenozono Karen was quite popular...</p>
-<p>-Ready... Beeep!</p>
-<p>After the "ready" signal that I had heard so many times today, the teams of four formed horses and advanced towards each other's territories.</p>
-<p>The most noticeable after the start was Kujo Kina's team, with Alik riding piggyback. Usually, two people hold the rider's legs and one person supports from behind to create the horse, but Kujo Kina put Alik on top of her and had the other two support Alik from behind, creating an unconventional horse.</p>
-<p>Kujo Kina ran towards the White Team's formation at an incredible speed, like a warhorse carrying a vanguard. Of course, she didn't care about her allies following her and charged alone, so she was bound to be surrounded by the White Team. But the rider on Kujo was Alik. Like a cat dodging a snake's strike, he dodged the hands trying to snatch his hat with incredible reflexes, and when he counterattacked, Alik's hands invariably held a white hat.</p>
-<p>The next thing I saw was Naruse Shiyo's team, which I was worried about. Of course, it was a team with the overpowered horse combo of Saionji Diana and Otagi Yuka, so they were making the most of that advantage. Like an out-boxer, the horses would automatically step back when the opponent reached out, and they would push in at the timing when the opponent withdrew their hand, allowing Naruse Shiyo to take off the hat just by reaching out.</p>
-<p>Naruse Shiyo was weak, but she surprisingly had a good sense of touch, so she was able to eat the meals that the horses prepared for her. It seemed like it had been a long time since she had a match like this, so she seemed quite happy. Even though it was an athletic meet match, it must have been a very long time since she had played with her friends like this.</p>
-<p>Of course, the White Team, which strangely included most of the Public Morals Committee members, also fought quite well, but the Red Team was able to win thanks to the strength of Kujo Kina and Alik's team, Naruse Shiyo's overpowered horse team, and the iron wall-like Captain Taira Kanna's team.</p>
-<p>Fortunately, despite the quite intense equestrian battle, no students were injured, and finally, all the events of the athletic meet were over.</p>
-<p>_________________</p>
-<p>Naruse Shiyo's athletic meet outfit~!</p>
-<p>I don't know what the greasy-eyed dolphin next to her is ㅋㅋㅋㅋ</p>
-<p>Why is she glaring from the window ㅋㅋㅋㅋ</p>
-<p>Naruse Shiyo wearing an equestrian battle hat.</p>
+<p>◆Name: Jin Yong-tae/■■■/Taira Ryuta: Lv14</p>
+<p>Strength: 18 Agility: 18 Constitution: 18 Resistance: 18 Recovery: 18 Nerves: 18 Appearance: 18</p>
+<p>Mental</p>
+<p>Intelligence: 8 Knowledge: 8 Concentration: 6 Willpower: 18 Creativity: 6 Charm: 15 Judgment: 5</p>
+<p>Other</p>
+<p>Luck: 5 Abyss: 17</p>
+<p>All physical stats were maxed out at 18, matching the mental stat of willpower, which was also 18. Except for the resistance stat, which was originally 19 and decreased by 1, the other stats had increased by a little as 1 and as much as 6. Roughly calculated, I had gained stats that would normally require leveling up a whopping 11 times.</p>
+<p>Of course, these stats are only obtainable in the mindscape and are temporary, but seeing these magnificent physical stats filled me with confidence. With these stats, I can beat the shit out of that black Naruse Shiyo, right?</p>
+<p>"Kyaak!"</p>
+<p>Ignoring herself and only talking about me and Yukiko, the black dragon got pissed and rushed at me, claws extended. Of course, it looked like a frail high school girl waving her hands, but the essence of the opponent is a dragon. As she swung her claws, a dark blue aura burst out, tearing through the air.</p>
+<p>Since regeneration didn't work in the mindscape, I used my superior physical abilities to evade the black dragon's claw attacks. Not only strength but also reaction speed and agility, all physical abilities had increased, so I could easily dodge the fast black dragon's claws.</p>
+<p>After dodging both claw attacks, I landed a solid blow on her abdomen.</p>
+<p>"Kyahak!! Human, I'll kill you!"</p>
+<p>As expected of a dragon. If a normal high school girl took a body blow like that, her internal organs would be immediately ruptured, leading to death. The impact wasn't nonexistent, but she was still burning with revenge and swinging her claws, so she seemed quite tough. But a creature with human-like limbs, no matter how strong and fast, can't win if someone of a similar build has mastered techniques.</p>
+<p>I used several techniques of Shinkai Yatsude to toy with the black dragon and continued to attack. She couldn't hit me and kept getting hit, so she became as angry as she could be.</p>
+<p>"I'll kill you!"</p>
+<p>With a scream close to a shriek, the black dragon's skin tore, and black scales began to appear. It seemed she was trying to return from the frail body of Naruse Shiyo to the true form of a dragon accustomed to battle.</p>
+<p>Her back tore, wings sprouted, and her thin limbs began to thicken. The ground even cracked under the dragon's weight. It was physically impossible, but maybe because it was the mindscape, or maybe this is what happens when the seal is released, but gradually, the black Naruse Shiyo began to transform into a dragon's massive body. The dragon was an overwhelming size, almost like a building.</p>
+<p>-Kuworeo!</p>
+<p>The black dragon roared after transforming, shaking the atmosphere. This is probably phase 2 in a game.</p>
+<p>As soon as she transformed, the black dragon took a deep breath, her jaw swelling, and then unleashed dragon's breath at me, Yukiko, and Naruse Shiyo. A dark blue flame breath began to pour down on us.</p>
+<p>She seemed really pissed. She transformed and immediately unleashed her dragon's ultimate move, the breath.</p>
+<p>I hurriedly grabbed Yukiko and Naruse Shiyo on both sides, activated a psychokinetic barrier, and leaped into the air, escaping the range of the breath and dodging.</p>
+<p>In an instant, the Naruse family's mansion in the mindscape was half destroyed. The Naruse family's mansion had a considerable area, but half of it was destroyed with a single breath, what a terrifying power. In that case, close combat would be better. The dragon's breath is cone-shaped, and the range widens the farther away you are, making it difficult to dodge. It would be better to get close and be careful not to be in a straight line with the dragon's mouth while hitting it. There's a preparation time for inhaling, making it easier to dodge, so I wasn't too worried even up close.</p>
+<p>"And... I felt bad hitting her when she was in Naruse Shiyo's form, but now she looks perfect to hit."</p>
+<p>With my enhanced strength, I leaped over ten meters at once and approached the black dragon.</p>
+<p>Seeing the black dragon raising her foot to stomp on me like a bug, I kicked off the air and jumped up. Then, I kicked the shin of the leg supporting the leg she had raised.</p>
+<p>Actually, after transforming into a dragon, she became so huge that it didn't seem to do much damage. Still, even a small needle prick hurts, so getting hit by me would hurt just as much.</p>
+<p>I grabbed the scales on her shin and started climbing up. I thought I should target the parts that would be dangerous if I inflicted even a little damage, rather than the shin. Like a monkey climbing a tree, I quickly climbed up the dragon's body and stood above where her leg ended. Here, I could inflict damage on her internal organs, which her ribs wouldn't protect.</p>
+<p>The black dragon knew I was messing around under her flank, but due to her body structure, she couldn't forcibly remove me. The black dragon gave up attacking me and began to breathe dragon's breath and swing her claws to attack Yukiko and Naruse Shiyo. Yukiko also pulled out her succubus's demon wings and easily evaded the attacks.</p>
+<p>I held onto the scales with one hand to avoid falling from the black dragon flying around and continued to punch one spot with the other hand. As expected of a dragon, her defense was incredible. But my attacks, with the stats boosted in the mindscape, were incredibly sharp, and before I knew it, her skin was pierced, and blood was flowing.</p>
+<p>Of course, this was just a sting like being bitten by a bug, but until now, it was all preparation. I closed my eyes for a moment and began to gather all the abyss into my outstretched index finger.</p>
+<p>Like iron filings gathering to a magnet, the surrounding darkness gathered on my index finger. Naturally, the black dragon also sensed something dangerous and was twisting her body, causing a commotion in the sky, trying to shake me off.</p>
+<p>-Kyaaaaa!</p>
+<p>Yeah, no matter how much you scream, it's useless. I stabbed the abyss, gathered at the tip of my finger and emitting a light darker than anything else, into the wound I had made.</p>
+<p>Shinkai Yatsude (Deep Sea Eight Hands) Fusion Secret Technique (Fusion Secret Art) Isshikaichimanshi (One Finger Transforms into Ten Thousand Branches)</p>
+<p>It was a technique developed by fusing Isshitenkan (One Finger Pierces the Sky), a technique of Shinkai Yatsude that stabs with a finger, and Isshokugaichimanshi (One Touch Transforms into Ten Thousand Branches), which spreads energy widely for a wide-area attack. It was a technique that could destroy the entire inside of the body with a single small wound.</p>
+<p>"Kuh..."</p>
+<p>Maybe because there was no regeneration, I felt tremendous pain from the finger where I had gathered power to the limit. But my pain was nothing compared to the pain the black dragon was feeling. Explosions of the abyss were occurring sequentially inside her body, tearing her whole body apart.</p>
+<p>I landed back on the ground and watched the black dragon die. I had never seen a dragon even in a game, so it was incredibly fascinating, and I kept watching because I couldn't believe that I had killed this huge monster.</p>
+<p>-Kyaaaa! I curse you, I curse you!</p>
+<p>The black dragon uttered curses even as she died. Whether she really had the talent for curses or not, something like black smoke approached me, but Yukiko, who had approached by then, waved her hand and scattered the black energy.</p>
+<p>"...Actually, Yukiko, couldn't you have easily won with your own power?"</p>
+<p>When I said that, watching Yukiko scatter the curse with a single gesture, Yukiko smiled and shook her head.</p>
+<p>"How could a frail woman like me beat that huge monster?"</p>
+<p>Yukiko herself said no, but I couldn't keep arguing, so this time I looked at Naruse Shiyo.</p>
+<p>"Are you okay?"</p>
+<p>"Am I not going to die now?"</p>
+<p>"Yeah."</p>
+<p>"Am I not going to be in pain anymore?"</p>
+<p>"Yeah."</p>
+<p>Naruse Shiyo started to cry, hiccuping, at the words that she didn't need to be in pain anymore. Now that it's over, I was wondering if we could leave, but Yukiko shakes her head as if she knew what I was thinking. Is there something more to do here?</p>
+<p>"The dragon's spirit is dead, but the dragon's body, still sealed in Shiyo's body, remains, so we have to deal with that. Eventually, the seal will eat away at Shiyo's body, so if we leave it as it is, she won't live long."</p>
+<p>I had just said "Yeah" to the question "Am I not going to die now?", but Yukiko-mamang immediately fired a fact attack, saying "Oh no~ You're actually terminally ill." Of course, she's saying that because there's a way, but I feel a bit awkward.</p>
+<p>"There are two ways."</p>
+<p>It's a relief that there are two ways. Naruse Shiyo, who had been very depressed because she was terminally ill, looked at Yukiko again with sparkling eyes when she said there was a way.</p>
+<p>"The first is to completely remove the dragon's body with a magical method. But because the assimilation phenomenon has occurred while sealing the dragon's body for several years, you may lose a part of your body if something goes wrong, and your body will become a bit weak."</p>
+<p>"What's the second way?"</p>
+<p>"The second way is to completely make the dragon's body Shiyo's. It's also a magical method, but instead of removing it, it's mixing it. Because of the assimilation phenomenon, this method is actually easier. However..."</p>
+<p>As expected, there seems to be some side effect. When Naruse Shiyo and I looked at her with eyes full of curiosity at the same time, Yukiko smiled slightly and continued to explain.</p>
+<p>"Wait a minute..."</p>
+<p>Yukiko waved her hand in the air. Then, a white screen appeared with a certain image. Did she use illusion magic?</p>
+<p>"Huh...?"</p>
+<p>What appeared on the white screen was Naruse Shiyo, but she was a little different. She had horns on one side of her head, and dragon wings and a tail. I don't know why, but she was wearing a one-piece swimsuit, which must be Yukiko's taste.</p>
+<p>"You'll change like this. If you get a little used to it, you can control the transformation or hide it using illusion magic, but in the beginning, you'll look like this. Additionally, you may gain strength that surpasses humans."</p>
+<p>In the end, both methods have their pros and cons. If you remove the dragon's body, you can live as a human, but because it's difficult to remove due to the assimilation phenomenon, you may lose a part of your body. If you go with having the dragon's body, the magic itself isn't difficult, but you'll lose your human appearance and become like a dragon girl.</p>
+<p>"Please do the second one. I can become stronger, and it's cool...!"</p>
+<p>Naruse Shiyo had been constantly weak and thirsty for strength, so she seemed to have chosen the second method. The dragon girl look is quite pretty and cute, but will she have to take a break from school until she can control her appearance?</p>
+<p>"Hehe, I'll just do a little processing in the mindscape and use magic when we get out."</p>
+<p>Yukiko was flying around, installing something around the Naruse mansion. I waited and looked around, but the dragon's corpse had disappeared. Maybe because it was a spiritual body, it disappeared after dying.</p>
+<p>"It's all done. I've installed a few safety devices in Shiyo's mind in case of shock."</p>
+<p>After listening to Yukiko's explanation, I nodded and blinked. When I opened my eyes, I was back in the real world, not the mindscape.</p>
+<p>------------</p>
+<p>Dragon Girl Naruse Shiyo B-cut</p>
+<p>Black Naruse Shiyo, who will no longer appear</p>

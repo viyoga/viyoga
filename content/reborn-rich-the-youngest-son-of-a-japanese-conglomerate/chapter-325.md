@@ -5,84 +5,74 @@ weight = 325
 chapter = 325
 +++
 
-<p>The tanning and blonde hair dye weren't done at a regular shop, but at a place prepared by the Taira Group. Naturally, this was to prevent my disguise from being rumored. Thanks to the latest tanning machines and the efforts of the hairdressers, I was able to become a splendid blonde-tanned man.</p>
-<p>After finishing everything, I looked in the mirror. Just dyeing my hair and tanning made me look like a different person. They said that if I wore brown-tinted lenses instead of my original black eyes, the infiltration character would be complete. After running a simulation, it was fortunate that I didn't need to inject fillers.</p>
-<p>Since I also changed my hairstyle at the same time as dyeing my hair, only people who already know me would recognize me as Taira Ryuta.</p>
-<p>Everything I needed to change my identity was prepared here. In the parking lot, instead of the Taira Motors SUV I usually drive, a sports sedan was prepared, and next to me were clothes that weren't the usual office worker suits or white t-shirts with jeans that I usually wear. More like flashy street fashion, you know?</p>
-<p>And there was an ID with the name Yamashiro Ryuta written on it, which I would use to disguise myself, and credit cards with Yamashiro Ryuta's name on them, neatly arranged. They said they prepared this in case Minamoto could track me down using the credit card. The limit is up to 50 million yen per month, which is quite generous considering it's the teacher's operation fee.</p>
-<p>They said I didn't need to change my phone since it uses the Taira Group's telecommunications line anyway. That was a relief.</p>
-<p>,Thorough."</p>
-<p>I muttered and took off my clothes to change into the new outfit. Ooh! Maybe it's because of the tanning, but the definition of my muscles looked really clear. I stopped changing and struck several bodybuilding poses before putting on the clothes.</p>
-<p>Definitely more alien since I even changed my clothing style. I put on the brown lenses and took a picture, sending it to Yukiko, Han Yu-gyeong, Arisu, and Mimata Chieri, who know that I'm going on a mission to St. Francis Girls' Academy.</p>
-<p>The first reply came from Yukiko. Until yesterday, she was sad about our separation, so I comforted her a lot with my body, but today she seemed to be in a better mood.</p>
-<p>Taira Ryuta: Photo</p>
-<p>Yukiko: Where did my Ryuta go?</p>
-<p>Yukiko: Maybe it's not as bad as I thought...?</p>
-<p>As expected, her reaction wasn't too bad, probably because my original face is good-looking. Oh, it's Han Yu-gyeong this time?</p>
-<p>Han Yu-gyeong: Should I get a tan too?</p>
-<p>Taira Ryuta: Yu-gyeong-ie, the contrast between your black hair and white skin is your charm, so I don't think you should. I like Yu-gyeong's flawless white skin 👄</p>
-<p>Han Yu-gyeong: Really? Is that what you usually think of me? ❤️😍</p>
-<p>Han Yu-gyeong suddenly said she would get a tan too, so I praised her current appearance to stop her, and she really liked it and went along with it.</p>
-<p>Arisu: (˃ བ˂) Ryuta, don't go down a bad path (｡ᵕ ꘍ ᵕ｡)</p>
-<p>Taira Ryuta: It's the same hair color as Arisu?</p>
-<p>Arisu: (๑˃́ꇴ˂̀๑) Aha~! That's what it was~!! ⸜( ˙ ˘ ˙)⸝♡ I guess we're a couple after all hehe</p>
-<p>Arisu seemed to dislike it at first, but when I said it was the same hair color as a couple, she quickly cheered up and giggled. Actually, it's a similar color to Nae Fitzgerald, who has brighter hair than Arisu. But if she's happy, that's all that matters.</p>
-<p>Mimata Chieri: Seeing that appearance, sunbae-nim looks like a villain from an NTR manga! Please leave some videos behind! Please!</p>
-<p>I didn't reply to Mimata Chieri separately. I have nothing to say to that kind of reaction. Yes, I'll definitely leave a video! I can't say that, and if I say I won't leave it, she'll keep bothering me.</p>
-<p>She's still a netorare maniac, just happy to die because I became a gold-haired guy....</p>
-<p>After finishing Line and KakaoTalk, I took Yamashiro Ryuta's ID, wallet, and cards, and finally the car keys.</p>
-<p>Going down to the parking lot, a German brand sports sedan was parked there, not a Taira Motors car, probably to completely eliminate any connection between me and the Taira Group.</p>
-<p>Miyashi (Female Shrine City) west of Mount Fuji was 3 hours away from Tokyo, but I didn't realize how long it was because it was fun driving a new car. I parked the car in the parking lot of my new house, which was a 3-minute walk from Miyashi St. Francis Girls' Academy.</p>
-<p>Miyashi itself was a city where many wealthy people came and went, so my house was good for a teacher's house. It was spacious and had quite a few rooms.</p>
-<p>Whether the Taira Group had prepared it in advance, furniture, electronics, and even ovens and microwaves for cooking were all provided. The closet was also full of clothes, so I didn't think I needed to buy new clothes.</p>
-<p>,Not bad."</p>
-<p>After looking around the house where I would live for a few months, I came outside. Now it was time to go to St. Francis Girls' Academy, where I would work for a few months.</p>
-<p>I had to prepare for work before the start of the semester, and today I had an interview with the school principal.</p>
-<p>,What's going on?"</p>
-<p>A guard who seemed quite well-trained, not a typical school security guard, asked me as I tried to pass through the entrance.</p>
-<p>,I'm Yamashiro Ryuta, who will be teaching Korean from next semester."</p>
-<p>,I'll check."</p>
-<p>The guard went into the security office and typed something diligently on the laptop, then nodded.</p>
-<p>,Please come in! Please stop by the personnel department to get your teacher's ID."</p>
-<p>,Okay, thank you for your hard work."</p>
-<p>There's a teacher's ID. I'll meet the principal first and then stop by the personnel department. St. Francis Girls' Academy was, of course, quite large. It was an escalator-type school that led directly to middle and high school, and since it was a place where the daughters of famous Japanese families attended, the buildings were large and numerous.</p>
-<p>,Where should I go?"</p>
-<p>I first approached what seemed to be the largest building. Fortunately, there was a student who came to school even during vacation, and when I asked, it seemed that this building was the one with the principal's office.</p>
-<p>,She said it's on the 5th floor, right?"</p>
-<p>Actually, it's not the 5th floor but the 4th floor, but since East Asians don't use the 4th floor well, they probably said it's the 5th floor. I went up to the 5th floor and knocked on the door of the place that said Principal's Office.</p>
-<p>,I'm Yamashiro Ryuta, who will be working from next semester."</p>
-<p>,...Come in."</p>
-<p>The voice was quite beautiful, but it sounded a bit cold. The principal was Daigo Terue, a woman from the Daigo family who owns St. Francis Girls' Academy.</p>
-<p>,Hello."</p>
-<p>I opened the door and greeted her. There was only Daigo Terue in the principal's office, a quite beautiful woman with brown hair and a voluptuous figure, wearing a neat suit. For some reason, Daigo Terue was standing up from her seat.</p>
-<p>,Please sit in front."</p>
-<p>Daigo Terue offered me a seat and sat down herself.</p>
-<p>,Yamashiro Ryuta, 24 years old. Graduated from Kanto University's Korean Language Education Department.... From the Yamashiro family, recommended by the Matsuzono family...."</p>
-<p>Daigo Terue began to read my documents. Kanto University was a university with quite a bit of Taira Group's shares, and since it was difficult to forge a university degree, they disguised it as graduating from Kanto University, which had Taira Group's shares. If they manipulated it at a school owned by the Taira Group, it would be suspicious, so they used Kanto University, which was not outwardly owned by the Taira Group.</p>
-<p>,The 3rd grade special class that Yamashiro-nim will be in charge of in the future will be quite difficult. The previous homeroom teacher was even overthrown by the students."</p>
-<p>I knew about it, though not in detail. I heard that the former homeroom teacher was caught by Minamoto Risa for trying to harass a mentally unstable female student and was fired.</p>
-<p>,Yamashiro-sensei is still young and full of energy, so don't touch the students unnecessarily."</p>
-<p>Daigo Terue spoke firmly. Of course, I acknowledge that she's speaking firmly because the former teacher committed such an act, but I actually came to touch the students. By order of Taira Danjo, I came to violate Minamoto Risa.</p>
-<p>,That will never happen."</p>
-<p>I said with a straight face as if I had never even thought about it. Judging by how my acting skills are improving day by day, acting might be registered in the skill window soon.</p>
-<p>,Okay. The special class homeroom teacher has a education preparation room next to the special class, so you don't have to go back and forth from the faculty room. You have to take good care of the kids."</p>
-<p>,Um... I don't know the location well...."</p>
-<p>,Ah, I see. Wait a moment."</p>
-<p>Daigo Terue made a phone call to someone, and soon an old man in a bluish work uniform came to the principal's office.</p>
-<p>,This person is the school janitor. He will guide you."</p>
-<p>,Okay."</p>
-<p>The janitor and I left the principal's office and introduced ourselves to each other. The janitor's name was Asada Fukushi, and he was the manager of the maintenance team with ten cleaning ladies.</p>
-<p>,Then should I call you Manager-nim?"</p>
-<p>,Hehe, I'd appreciate it if you called me that."</p>
-<p>,Ah, the personnel department told me to get my teacher's ID, but can I get it before going?"</p>
-<p>,That won't take long, so let's do that."</p>
-<p>We stopped by the personnel department two floors below the principal's office and got our teacher's IDs issued. It was a necklace-type teacher's ID, and if you have this ID, you can scan it on the door handle like a transportation card to open classrooms or gyms that are allowed.</p>
-<p>When I got my teacher's ID issued, Asada Fukushi guided me to the building where the 3rd grade special class was located. The 3rd grade special class was in a building east of the large building with the faculty room, and it was a bit secluded because it was a building with special classes for repeaters or students with poor health. It's probably in a secluded place because of the Japanese tradition (?) of hiding things that aren't good.</p>
-<p>,There are quite a few students with poor health, so the classroom is on the first floor. And for the same reason, there is a education preparation room next to the special class and a nurse's office across from it for the teacher to stay in."</p>
-<p>The first floor was good. I don't have to climb the stairs every day. It was a secluded building, but it was quite spacious and nice. It was a two-story building, with classrooms, a nurse's office, and a education preparation room on the first floor, and club rooms and a warehouse on the second floor.</p>
-<p>,Thank you for the guidance."</p>
-<p>,Hehe, I hope you become a good educator!"</p>
-<p>I parted ways with Asada Fukushi at the entrance of the building and headed to the classroom. It was very quiet because there was no one in the building. Only my footsteps echoed through the air, and soon I saw a classroom with a nameplate that said 3rd Grade Special Class, so I scanned my teacher's ID and opened the door.</p>
-<p>Deureureuk! The door opened and the classroom was immediately visible. It was a classroom with not many desks where sunlight poured in. When I checked the number of desks, it seemed that there were about 8 students.</p>
-<p>Entering the classroom, it finally felt a bit real. From a week later, I will have to teach students under the name Yamashiro Ryuta. At the same time, I have to seduce Minamoto Risa as well.</p>
-<p>It's definitely not an easy task, but it's my job, so let's do our best. I closed the classroom door, making a resolution to myself.</p>
+<p>Yamashiro Ryuta: Head teacher-nim, I have a question, so I'm leaving a message on LINE.</p>
+<p>As soon as I left a fairly polite message on LINE, a reply came from Kasaoka Yuzuki. It felt like she had been waiting, replying in just one second; it seemed she had been well-trained over the weekend.</p>
+<p>Kasaoka Yuzu(ki): What's your question?</p>
+<p>Yamashiro Ryuta: I was wondering what to do about students who keep skipping school.</p>
+<p>In fact, from the perspective of just doing my mission, I wouldn't need to care about hikikomori students, but since I'm their homeroom teacher, I felt like I should at least pretend to do something, so I asked Kasaoka Yuzuki, the head of the grade.</p>
+<p>Later, if they say I didn't do anything, Kasaoka Yuzuki will be my witness.</p>
+<p>Kasaoka Yuzu(ki): There might be a lot of students in the special class who don't come to school. All the information on the 3rd-year students comes to me, so please wait. I'll check the special class's data.</p>
+<p>All the student information comes to Kasaoka Yuzuki. This is pretty big information. I need to call the delivery health service more often to capture Kasaoka Yuzuki. If I have a firm grip on the information, it will be useful for my mission.</p>
+<p>Kasaoka Yuzu(ki): Counting Egawa Alexandra, who transferred to the 3rd-year special class today, there are a total of 13 students. If we exclude the two who can't come due to suspension and one who informed me in advance, there's only one student who's absent without notice... Oofuchi Erika (大渕 絵理香).</p>
+<p>Ah, there were kids in our class who were suspended or told me in advance they wouldn't come? No, the previous homeroom teacher screwed things up, so I didn't get a proper handover, and I just thought there were four kids who weren't coming to school without notice.</p>
+<p>Then it seemed like I only needed to contact the parents of the student named Oofuchi Erika separately. Thankfully, the amount of work I have to do has been reduced to a quarter.</p>
+<p>Idol Uesonozo Karen, who often skips, and the sickly girl Naruse Shiyo, contact me in advance to say they can't come. The other four don't contact me at all, so I thought they were all absent without notice. Everyone except Oofuchi Erika had their own reasons.</p>
+<p>But there are two students suspended, so the special class is quite scary... I should check later what kind of trouble they caused.</p>
+<p>Yamashiro Ryuta: This is the first time I'm hearing about the suspension and the advance notice. That's why I was wondering why the attendance rate wasn't good.</p>
+<p>Kasaoka Yuzu(ki): Didn't you receive the 3rd-year special class student roster?</p>
+<p>Yamashiro Ryuta: I did, but that information wasn't there.</p>
+<p>Kasaoka Yuzu(ki): Ah, that was all written in the special notes on the last page, but it seems the administration side didn't print it out properly.</p>
+<p>As expected, even if I'm a newbie, it didn't seem like this was my fault. It seemed like there was an error or a paper shortage while printing the roster to give to me, and they didn't notice and just handed it over.</p>
+<p>Yamashiro Ryuta: Then I'll go pick it up now.</p>
+<p>Kasaoka Yuzu(ki): Yes, I'll have it printed out.</p>
+<p>I thought I would be visiting the faculty room building for the last time for a while after receiving the attendance book for the Korean class in the morning, but in the end, I'm going there again on the same day. Still, there was quite a bit of information I was curious about, so it wasn't too much of a hassle.</p>
+<p>Honestly, it's a bit of a pain, but the rules of Saint Francis Girls' Academy require that materials containing student information must be received in person, so I couldn't help it.</p>
+<p>I came out of the education preparation room and looked at the closed classroom door of the special class right next to it. Concentrating my senses and listening to the sound, it seemed like it was Japanese classics time.</p>
+<p>It's a field I don't know at all, so let's just go straight to the faculty room. I walked slowly along the path next to the sports field, watching the students doing physical education. The PE teacher was a muscular man with short-cropped hair and tanned skin, wearing a white short-sleeved shirt. His eyes were long and narrow, giving him a slightly snake-like impression.</p>
+<p>Our eyes met for a moment as I walked, but it wasn't a good feeling. He was a teacher who gave off the feeling of being a pervert at first glance. Judging by the color of the kids' gym uniforms, he seems to be the 3rd-year PE teacher... I should tell Alik, Konoe Akina, and Otagi Yuka in advance. I should tell them to tell me immediately if the PE teacher does anything weird.</p>
+<p>Before I knew it, I arrived at the faculty room and went to the 3rd-year head teacher's office. Kasaoka Yuzuki was waiting for me with a slightly anxious expression. Does she get nervous just by seeing my face? Even though she doesn't know that I know her true identity.</p>
+<p>,Yamashiro-sensei, here are the materials."</p>
+<p>,Thank you for preparing them."</p>
+<p>I received the paper with the special notes written on it from Kasaoka Yuzuki. I can read it later in the education preparation room, and I don't really have anything to say to Kasaoka Yuzuki, so I should go back right away. Kasaoka Yuzuki doesn't know that I'm aware of her true nature yet, so there's not much to say. We don't have much contact normally anyway.</p>
+<p>,I'll be going now."</p>
+<p>,Yes, go ahead."</p>
+<p>After a formal greeting, I walked back to the education preparation room, looking at the sports field again. I should install an ultra-small camera in a hidden place in the PE storage or the indoor sports field. I was enough of an existence to devour women in this school.</p>
+<p>Alik is here too, so I can't let a perverted teacher run rampant. If he gets caught doing something bad, I'll kill him with my own hands.</p>
+<p>I arrived at the education preparation room, resolving to commit murder. Quite a bit of time had passed, and it was almost time for lunch. Hmm, I should have lunch with the school nurse, Kijimoto Jurie, again today. I can check the special notes after lunch.</p>
+<p>###</p>
+<p>,First of all, it's important to gather even one student."</p>
+<p>,That's definitely true."</p>
+<p>Konoe Akina and Otagi Yuka were sitting in the classroom, eating bread they bought from the cafeteria, and talking about the dating experience club.</p>
+<p>Minamoto Risa and Seizawa Shii glanced at them as lunch break started and headed to the cafeteria. They probably want to talk in the cafeteria.</p>
+<p>,According to Ryuta-nim's words, we have to gather students who don't belong to any clubs, so it's going to be quite difficult."</p>
+<p>Otagi Yuka nodded at Konoe Akina's words. At Saint Francis Girls' Academy, where the principle was at least one club per person, creating a new club was quite difficult. Almost everyone is affiliated with a club, so it was hard to find students who weren't.</p>
+<p>,Listening to what the teacher-ssi said during morning assembly today, it seems like most of the students in our class haven't joined a club. How about we target the kids in our class who don't have a club first?"</p>
+<p>Konoe Akina also nodded at Otagi Yuka's words. First of all, if the closest classmates don't have a club, it would be easier to get them to join. It's easier to talk to someone you know than to talk to someone you don't know at all.</p>
+<p>,But we can't give up on the kids without clubs among all the students... How about we make a poster to recruit members and put it up on the school bulletin board?"</p>
+<p>,That's basic, so we definitely have to do it. But I don't have any talent for making posters..."</p>
+<p>Otagi Yuka, who usually leads an active life, had no talent for making something cute and detailed. But Konoe Akina smiled as if to say not to worry.</p>
+<p>,I like making those kinds of things, so leave the poster to me."</p>
+<p>,Then while Konoe is making the poster, I'll ask the kids in our class."</p>
+<p>The two decided to divide the work. While Konoe Akina was making the poster to put up on the school bulletin board, Otagi Yuka decided to promote the club to her classmates.</p>
+<p>###</p>
+<p>,Heeeh... Things have gotten bigger."</p>
+<p>Seizawa Shii muttered powerlessly, cutting the gyukatsu she received from the cafeteria.</p>
+<p>She just wanted to create a meditation club that would make school life easier, but now there's competition. For Seizawa Shii, who has a laid-back personality, it has become a troublesome matter.</p>
+<p>Minamoto Risa ignored Seizawa Shii's grumbling and elegantly twirled the pasta in front of her and brought it to her mouth. Then, she chewed the food exactly 30 times before swallowing and opening her mouth.</p>
+<p>,Don't worry. I have something in mind."</p>
+<p>,Huh? Can we win? Risa-tan~! Tell me quickly!"</p>
+<p>Seizawa Shii was curious about Minamoto Risa's calm attitude and begged her to tell her quickly. In Seizawa Shii's eyes, the dating experience club seemed much more fun than the boring meditation club.</p>
+<p>,The homeroom teacher told us to do it fairly, but there are no specific laws for creating a club."</p>
+<p>,Right? Five members and one advisor are all the rules, right?"</p>
+<p>As Seizawa Shii said, there were no specific rules for creating a club except for five members who don't belong to a club and one advisor. Minamoto Risa was planning to take full advantage of this loophole-filled rule.</p>
+<p>,First, I'm going to request the list of students who don't belong to a club from the Minamoto Group's information team."</p>
+<p>,You're so smart, Risa-tan! We can know our targets exactly."</p>
+<p>Minamoto Risa was planning to borrow the power of her family. Since there was no rule prohibiting borrowing the power of the family, Minamoto Risa boldly decided to use the power of the Minamoto Group.</p>
+<p>,And then we'll target each student with a customized strategy. If we have information from the information team, we can target them easily."</p>
+<p>,Then what should I do?"</p>
+<p>Seizawa Shii looked at Minamoto Risa with sparkling eyes. Minamoto Risa smiled at Seizawa Shii.</p>
+<p>,Shii just needs to trust me and follow me."</p>
+<p>Minamoto Risa was confident that she would win. If she could borrow the power of the Minamoto Group, that is.</p>
+<p>---</p>
+<p>Masked Girl Sakagami Rena</p>
+<p>She's a mysterious girl~!</p>

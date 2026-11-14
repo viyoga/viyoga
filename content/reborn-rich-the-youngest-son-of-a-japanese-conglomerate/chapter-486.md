@@ -5,90 +5,80 @@ weight = 486
 chapter = 486
 +++
 
-<p>My question wasn't immediately answered. The call lasted for several more minutes. Since Dang So-hwa-ssi was mostly on the receiving end of the report, she didn't say much besides, "Um, I see," so I couldn't grasp the full details. Dang So-hwa-ssi hung up and looked at me, slightly bowing her head.</p>
-<p>"...Sorry for suddenly yelling."</p>
-<p>"It's okay. But what's going on?"</p>
-<p>"Ah, it's nothing much. One of the organization's... no, the company's executives died, and other executives are being attacked right now...?"</p>
-<p>Is that "nothing much?" I don't know if Dang So-hwa-ssi really thinks it's nothing or if she's just incredibly composed, but she didn't seem particularly flustered.</p>
-<p>"Is it because of me?"</p>
-<p>"Since you provided the cause, I can't say it's your fault. Apparently, the old man you assassinated was their Chairman-nim. They're burning with vengeance, I hear."</p>
-<p>Yang Seol-hui-ssi carefully asked, and Dang So-hwa-ssi shook her head in response. From what I gathered, Toyo Construction, a construction company, had been constantly harassing Dang So-hwa-ssi's Ryuto Construction, so she ordered Yang Seol-hui-ssi to snipe a few of them as a warning.</p>
-<p>Among the people Yang Seol-hui-ssi sniped and killed was the Chairman-nim of Toyo Construction... The fact that Toyo Construction isn't just a collection of companies and has someone called "Chairman-nim" instead of "President" implies that it's connected to an underworld organization, not just a regular company.</p>
-<p>Especially since the Yakuza often refer to their leaders as "Supreme Boss" or "Chairman-nim," it seemed that Toyo Construction was very close to that culture.</p>
-<p>Construction companies tend to be like that, so it wasn't surprising. Ryuto Construction, under Dang So-hwa-ssi, used to be Kurotsuki-doo, after all. Although Kurotsuki-doo's business practices were illegal, it was more inclined towards the corporate side, but Ryuto Construction and Toyo Construction seemed to be closer to the underworld.</p>
-<p>"Do you have to go?"</p>
-<p>"No, probably...."</p>
-<p>As Dang So-hwa-ssi answered my question, the building suddenly went dark. Someone must have cut off the power.</p>
-<p>"They must be coming."</p>
-<p>Surely, if other executives are being attacked, Dang So-hwa-ssi wouldn't be spared. As soon as Dang So-hwa-ssi finished speaking, I began to sense killing intent and footsteps.</p>
-<p>"Ryuta-gun and Chieri-yang are guests, so rest here. I and Seol-hui-ssi will handle the intruders."</p>
-<p>As Dang So-hwa-ssi stood up, Yang Seol-hui-ssi also rose. She reached under the table where we were sitting and pulled out something: a brand-new MCX SPEAR IV, the U.S. military's standard rifle.</p>
-<p>I had no idea, but there was a gun under the table? It seemed like there were guns hidden all over the house.</p>
-<p>"We should help more since we're guests. I'll help too."</p>
-<p>"Please let me help too!"</p>
-<p>Since we would save time by helping catch the intruders, it was more rational for us to assist. Dang So-hwa-ssi nodded as if she couldn't help it at my words.</p>
-<p>"...Alright. Ryuta-gun, you won't need a gun, and Chieri-yang...."</p>
-<p>"Gun here."</p>
-<p>Yang Seol-hui-ssi interrupted Dang So-hwa-ssi and pulled out a pistol from somewhere else, handing it to Mimata Chieri-yang. It was a Chinese-made pistol, commonly used by the Yakuza.</p>
-<p>"It'll be faster if we join in, so let's quickly deal with this and also handle the Toyo Construction issue that's threatening Ryuto Construction."</p>
-<p>Mimata Chieri-yang said, cocking the pistol while wearing her signature refreshing smile. It's refreshing, but it's a bit creepy since she's saying it while cocking a pistol.</p>
-<p>"It's fortunate that all the staff have left for the day. Otherwise, they would have died along with the intruders."</p>
-<p>Dang So-hwa-ssi said, spraying a green fluorescent smoke-like substance into one of the corridors. One side of the corridor was blocked by green smoke, eliminating the worry of being attacked from both sides. A two-sided attack wouldn't be much of a threat to me or Dang So-hwa-ssi, but it was safer to block one side since Yang Seol-hui-ssi and Mimata Chieri-yang would be in danger if they got shot.</p>
-<p>Tang! Tang!</p>
-<p>Mimata Chieri-yang and Yang Seol-hui-ssi shot and knocked down two people approaching through the corridor without green smoke.</p>
-<p>Since the gunshots would have alerted everyone, we decided to find and move towards the enemies rather than waiting for them here. We quietly passed through the dining room and entered the living room.</p>
-<p>"Hap!"</p>
-<p>Dang So-hwa-ssi threw a thin needle-like object and hit an approaching enemy. It wasn't just a regular iron needle; it seemed to be a poisoned needle. The enemy, who was aiming a gun at us, foamed at the mouth and collapsed, trembling.</p>
-<p>"If I use too potent a poison, it'll dissolve them, and it'll be a pain to clean up, so I used a moderate poison."</p>
-<p>I was just staring because her throwing skills were amazing, but Dang So-hwa-ssi seemed to have mistaken my gaze as asking why they weren't dying instantly, so she explained defensively.</p>
-<p>"No, I just thought you threw the dart well."</p>
-<p>"Oh, was that it? I'm always practicing throwing needles...!"</p>
-<p>Tang!!</p>
-<p>"Stop flirting and kill at least one more person!"</p>
-<p>Yang Seol-hui-ssi shouted while shooting her gun. Since it was the living room of the mansion, there were many connected corridors, and enemies kept pouring out.</p>
-<p>"I'll take this corridor!"</p>
-<p>I shouted as I ran towards one of the corridors. Excluding the one we came through, there were two remaining corridors, so it seemed like we could block them adequately if the three of us split up.</p>
-<p>"Kuaaak!"</p>
-<p>Using telekinesis, I lifted the gun pointed at me upwards and charged forward. Without slowing down, I collided with my shoulder. I felt the chest bones of the enemy I hit cave in with a cracking sound, and they collapsed.</p>
-<p>As the intruder at the front fell, the eyes of the intruder standing right behind them widened. Before the intruder whose chest had caved in completely collapsed, I twisted the neck of the intruder behind them.</p>
-<p>Kwadeuk!!</p>
-<p>With a gruesome bone-breaking sound, they died instantly. I jumped over the second intruder and pierced through the third and fourth intruders, who were coming in a line, with Shadow Domination, killing them.</p>
-<p>"...."</p>
-<p>It seems these were all the intruders who came this way. I focused my mind and sensed for any more presences, but I couldn't feel any others. This side is annihilated. I turned around and went back to where my companions were fighting.</p>
-<p>"Already finished? Impressive...!"</p>
-<p>She said I was impressive, but Dang So-hwa-ssi was no less so. Dang So-hwa-ssi must have taken charge of one corridor like me, as there were corpses with discolored skin lying in one corridor. On the side that Mimata Chieri-yang and Yang Seol-hui-ssi were in charge of, the enemies had fallen with only one or two bullet holes per person.</p>
-<p>"I'll go restore the power!"</p>
-<p>"Let's go together, just in case...!"</p>
-<p>Judging by the fact that no more presences could be felt, it seemed that all the intruders had been annihilated. But just in case, Yang Seol-hui-ssi and Mimata Chieri-yang went to the power room together. One would restore the power while the other kept watch.</p>
-<p>"You seem to have gotten stronger in the meantime."</p>
-<p>"Well... a lot of things happened."</p>
-<p>Dang So-hwa-ssi seemed quite pleased that I had become stronger. Although it was dark, Dang So-hwa-ssi's face, revealed in the faint moonlight shining into the house, had an expression of pride. The last time I won against Dang So-hwa-ssi, it was because of my overwhelming advantage with poison immunity, so her actual skill was higher. But now, I was thinking that we might be somewhat similar.</p>
-<p>"This matter will be resolved tonight, so I'd like you to tell me about what's been happening tomorrow."</p>
-<p>"Sure, it'll be quite interesting."</p>
-<p>As I was talking with Dang So-hwa-ssi, the electricity came back on, and the lights in the mansion turned on. They fixed it really quickly? I don't know which of the two who went to fix it, but it seemed like they had this kind of repair skill. Probably Yang Seol-hui-ssi, since she said she would go fix it.</p>
-<p>"I need to go take care of things now. I'll go prepare my equipment, so rest."</p>
-<p>Dang So-hwa-ssi got up from her seat and went somewhere to put on her combat gear, and I was sitting on the sofa in the living room, which was full of corpses. Well... looking at the surrounding scenery, it doesn't feel like resting at all.</p>
-<p>"I've fixed it, Sunbae-nim!"</p>
-<p>"Ryuta-nim, where did the Boss-nim go?"</p>
-<p>"Good work, Sunbae-nim. Dang So-hwa-ssi went somewhere to get her equipment?"</p>
-<p>Mimata Chieri-yang and Yang Seol-hui-ssi returned. At my answer, Yang Seol-hui-ssi said she needed to prepare as well and moved in the direction Dang So-hwa-ssi went.</p>
-<p>"There are so many corpses that it doesn't feel like resting, Sunbae-nim."</p>
-<p>"I know, right? It smells like poison too...."</p>
-<p>"Let's go now. While we were gone, a professional will have cleaned up the mansion."</p>
-<p>Dang So-hwa-ssi, wearing techwear and a skull-shaped mask like when we first met, and Yang Seol-hui-ssi, wearing a tight-fitting cyber suit and carrying a guitar case, returned. Well, there are so many corpses in the house that we need to leave it to a professional. If we left it to the maids, they might report it to the police.</p>
-<p>Me and Mimata Chieri-yang also got up from the sofa and followed Dang So-hwa-ssi to the garage. Dang So-hwa-ssi took out a black vehicle that seemed to be a modified civilian Hummer. Mimata Chieri-yang said she would drive, so Yang Seol-hui-ssi sat in the passenger seat, and I and Dang So-hwa-ssi sat in the back.</p>
-<p>The modified Hummer, driven by Mimata Chieri-yang, headed towards the outskirts of Neo Tokyo. Compared to the neatly built central area, which was like a planned city, the outskirts had many complex roads and alleys.</p>
-<p>"Stop here."</p>
-<p>Dang So-hwa-ssi stopped the car in an empty lot where dozens of people were gathered. The people gathered were all wearing techwear and carrying firearms. They were probably all combat personnel from Ryuto Construction.</p>
-<p>"You've arrived, President-nim!"</p>
-<p>As Dang So-hwa-ssi got out, everyone bowed. My guess was right. They were all employees of Ryuto Construction. Judging by the fact that everyone's eyes were full of respect, fear, and loyalty towards Dang So-hwa-ssi, it seemed that Dang So-hwa-ssi was running the company well.</p>
-<p>"I'm going to hit that building."</p>
-<p>Dang So-hwa-ssi raised her hand and pointed to a building. It wasn't much different from the surrounding buildings, but it was probably the Toyo Construction building.</p>
-<p>"Should I help?"</p>
-<p>"No, I can't entrust revenge. I need to show them that I'm personally avenging my subordinate's death."</p>
-<p>Dang So-hwa-ssi expressed her refusal at my question. She was talking about avenging the death of someone named Ri Jong-shien, who had died earlier.</p>
-<p>"Seol-hui-ssi, take a sniping position from a high place, and the rest of you, kill everyone who comes out of the entrance. I'll go inside the building alone."</p>
-<p>"Understood!"</p>
-<p>It was a reckless plan to jump into enemy territory alone, but no one here raised any objections or questions. Everyone trusted Dang So-hwa-ssi's strength that much. Of course, I knew Dang So-hwa-ssi's skills, so I wasn't worried. Dang So-hwa-ssi turned to look at me, smiled, and opened her mouth.</p>
-<p>"I'll show you my skills, so enjoy the show."</p>
-<p>And with a flick, she turned her body and walked alone towards the building she had just pointed to. That's pretty cool, Dang So-hwa-ssi. I could see why she received absolute loyalty from her subordinates.</p>
+<p>"It seems that Toyotaka's faction and the Minamoto side are indeed intertwined, just as Terue-nim said."</p>
+<p>At the secretary's words, Daigo Tadanori, the acting head of the Daigo family, wore a serious expression. Until now, he had always had the upper hand in the power struggle with the Toyotaka faction, but if Toyotaka had joined forces with Minamoto, it was no ordinary matter.</p>
+<p>"He's overdoing it."</p>
+<p>For Toyotaka, who was not a mainstream member of the Daigo family, to join hands with Minamoto meant that he had given or promised a considerable price. Since he had nothing to give right now, he must have promised to give up a significant portion of the Daigo family's profits in the future when they took control of the Daigo family.</p>
+<p>To think they're trampling on the family's future themselves just to seize power now... Daigo Tadanori was furious. As the acting head of the Daigo family, he was almost certain to be the next head. If his father, Daigo Hisagoro, who was battling illness, passed away, he would become the head, an irreversible situation.</p>
+<p>But even in that situation, he borrowed the power of another family to try to overturn it, so it was only natural that Daigo Tadanori was angry.</p>
+<p>"In the end, we have no choice but to borrow the power of foreign forces as well."</p>
+<p>"If the opponent is Minamoto, then the side we should borrow power from is... Tairaga, perhaps?"</p>
+<p>The secretary asked at Daigo Tadanori's words. But Daigo Tadanori shook his head.</p>
+<p>"We can't handle either Minamoto or Tairaga. In the first place, our power is much greater than that Toyotaka bastard's side, so even if Minamoto is attached to that side, we don't need to borrow the power of a giant family like Tairaga. We can borrow power from a moderate force."</p>
+<p>Daigo Tadanori was saying that he wouldn't bring in the burdensome Tairaga because the power difference between the original Tadanori faction and the Toyotaka faction was already large.</p>
+<p>"And..."</p>
+<p>Daigo Tadanori smiled.</p>
+<p>"Tairaga is always on the opposite side of Minamoto in these kinds of incidents. Even if we don't necessarily borrow the power of Tairaga."</p>
+<p>If the Toyotaka faction, which borrowed the power of Minamoto, wins in this fight between the Tadanori faction and the Toyotaka faction, Tairaga will eventually suffer losses in the long run. So, even if Tadanori doesn't borrow power, Tairaga will lend power on their own.</p>
+<p>Daigo Tadanori was using his head well. If you add Tadanori, a third force, and Tairaga, who will participate as they please to hinder Minamoto, even if the Toyotaka faction borrows the power of Minamoto, they will be able to overwhelm them.</p>
+<p>"First, let's try to find a force we can borrow power from. The forces within the academy might be surprisingly good. Because the students and parents will be most interested."</p>
+<p>"If it's a force within the academy..."</p>
+<p>"To spread it widely, we can hand over the data to that kid from the Shido family."</p>
+<p>"If the opponent is Minamoto, won't they refuse?"</p>
+<p>"Tell them to post it as an anonymous article. Tell them not to worry because we'll take care of the work on our side once they release the article."</p>
+<p>"I will prepare the data, Acting Head-nim...!"</p>
+<p>Daigo Tadanori and his secretary busily began preparing to find a force to join hands with.</p>
+<p>###</p>
+<p>"Welcome~! You're right on time?"</p>
+<p>Eve greeted us with her usual attitude. Saionji Diana and I also greeted Eve and entered the basement of the Miyashi Amasang branch, a love hotel.</p>
+<p>"It's been a while, Eve."</p>
+<p>"Hello, Eve."</p>
+<p>When I greeted Eve, Saionji Diana also greeted her. Saionji Diana seemed to have become close to Eve while getting cyber implants on her arms and legs, and treated her comfortably. You have to acknowledge Eve's sociability.</p>
+<p>"I heard, Diana's grades have gone up a lot, so Ryuta-nim is going to give her a present, right?"</p>
+<p>"Yes, her grades have gone up a lot."</p>
+<p>Eve, who already knew the situation roughly, said with a smile, so I nodded. Her grades last time weren't very good, so they went up a lot, but Saionji Diana also worked quite hard this time. If you look at the fact that her score has risen more than her usual grades in her second year, not just her bad grades last semester.</p>
+<p>"The teacher encouraged the study group, so that's why."</p>
+<p>Saionji Diana said, twisting her body slightly as if she was embarrassed by the compliment.</p>
+<p>"Then, about the parts. What Diana was worried about was this endurance and destructive power..."</p>
+<p>"Ah, I've been thinking about it, and I've decided to prepare two separately, one for everyday use and one for combat."</p>
+<p>"Really?"</p>
+<p>Eve clapped her hands and was very happy at my words. Eve liked doing all sorts of development, so it seemed natural that she was happy.</p>
+<p>"I didn't think about separating combat and everyday use. Then, for the combat limbs, we can remove the special synthetic silicone that creates the skin texture and increase the volume even more. If we do that, we can increase the simple output by more than 1.67 times!!"</p>
+<p>Eve was very happy that she was going to make new ones for combat because the performance degradation was quite severe due to covering the arms and legs with special silicone that looked like human skin. Eve was very excited and talking about what she could do, probably because she could do new development.</p>
+<p>"I think we can add several other functions besides the output as the volume increases. Since Diana is a swordsman, we can install a missile launcher that can attack from a distance, or simply attach a module that can fire bullets..."</p>
+<p>Eve was telling a very interesting story. She could fight with a sword and fire a rocket launcher at the same time, so she could make up for Saionji Diana's weakness as a close-range character.</p>
+<p>"Or how about this?"</p>
+<p>While Eve was getting excited while talking about ideas, I started talking about the abilities of various cyber implants I had seen in the game. In particular, I explained the functions of Cyborg Samurai Reito, one of the swordsmen called the Future Three Swordsmen.</p>
+<p>"Ah, that function also sounds interesting! Then, from the function that Ryuta-nim told me, a little more..."</p>
+<p>I smiled with satisfaction at Eve, who was giving her opinion on improving the function I had told her. At this rate, one of the future three swordsmen might be Saionji Diana instead of Reito. Or maybe she'll become a four swordsman... Ah, if you include Alik, will she become a five swordsman?</p>
+<p>Eve excitedly displayed Saionji Diana's appearance in a hologram, displaying the appearance of wearing the parts on her arms and legs in advance and explaining the functions.</p>
+<p>"I think we can improve the weapons a little bit besides the cyber implants on the arms and legs, but how about this? If you make an acceleration device in the scabbard that assists with the quick draw technique, you can increase the attack power even more."</p>
+<p>Besides cyber implants, I also gave advice on the equipment that Saionji Diana would wear. If the scabbard isn’t just a scabbard, but also includes a device that can assist with the quick draw technique, which is one of the sword techniques, her attack power will increase even more. In fact, Saionji Diana had the ability to unleash a sword wind at the same time as a quick draw using the Kamaitachi trait and the Wind Art technique, so if the quick draw technique were further enhanced, her attack power would grow significantly.</p>
+<p>"Ah, that's good. If the scabbard assists with the quick draw technique, I'll be able to use a new technique."</p>
+<p>Saionji Diana also nodded, agreeing with my idea. She seemed interested when the story about swordsmanship came up. As expected, Saionji Diana was also crazy about martial arts, although she didn't show it as much as Kujo Kina.</p>
+<p>"Then, more budget will be needed for the development side. Of course, if we do this research, our TG Tech's overall technology will improve and we can add functions to related equipment, so we can get enough research funds."</p>
+<p>"How much will it cost?</p>
+<p>"There are quite a few things that need research among the ideas that Ryuta-nim mentioned, so the initial development research funds will need about 323.4 million yen."</p>
+<p>Saionji Diana seemed very surprised at Eve's words. She just came to receive parts as a gift, but it was a natural reaction to suddenly hear about 323.4 million yen. By the way, she's a super high-performance AI, so she's saying the price in great detail. Other companies would have much more expensive research costs, but Eve doesn't need labor costs and does research very quickly with calculations, so it must have been reduced that much.</p>
+<p>"I understand. For now, let's round it up and make the budget 400 million yen."</p>
+<p>I still have most of the four million dollars, 5 billion won, that I got from the United States, so even if I use this for research expenses, I'll still have 100 million yen left. I think I can do these kinds of missions from time to time.</p>
+<p>"I'll support this research fund."</p>
+<p>"Not with company money?"</p>
+<p>Eve asked as if she was wondering, but TG Tech's main business wasn't cyber implants, and it was research that I was doing at my request, so I said I would do it with my own money because the other research funds that the company was doing might be reduced, so Eve agreed with my words.</p>
+<p>"I think it's okay because it's linked to the power suit business... If Ryuta-nim thinks so, I understand."</p>
+<p>Eve nodded, then turned her body and smiled at Saionji Diana. There seemed to be some meaning in Eve's smile, but I couldn't know what that meaning was yet.</p>
+<p>"Diana, Ryuta-nim invested 400 million yen for Diana, so you're grateful, right?"</p>
+<p>"Yes, 400 million... The amount is so large that I don't know how to repay it."</p>
+<p>The two who had a conversation, Eve looked at me and smiled lewdly. Saionji Diana's face turned red. Looking at the two of them, it seemed that they had already talked about something in advance.</p>
+<p>"If you can't repay it with other things, then how about repaying Ryuta-nim with your body?"</p>
+<p>"E, Eve, what are you talking about?!"</p>
+<p>I asked as if shouting at Eve's sudden words. Repay with my body, what am I, a debtor...? But unlike my reaction, Saionji Diana nodded with a shy expression.</p>
+<p>"Teacher, please let me repay the debt. It's not something I'm forced to do, it's something I want to do."</p>
+<p>If I were to explain this, it would be like a female student in my class begging me, please have sex with me because I want to. It seemed that Eve and Saionji Diana had planned it in advance, and it was a plan to make me repay them with my body no matter what.</p>
+<p>Rather, my idea of making new combat arms seemed to make their idea more persuasive. Oh my, you invested 1 billion yen for me, please let me express my gratitude with my body! That's how it became.</p>
+<p>"Diana just wants to have a deeper relationship with Ryuta-nim."</p>
+<p>When I looked at Eve, Eve winked and said. I can't refuse when they're going this far. I nodded.</p>
+<p>----</p>
+<p>Combat Cyber Implant Diana!</p>
+<p>Hologram Diana</p>
+<p>I need to practice cyber implants a little more hehe</p>

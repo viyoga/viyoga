@@ -5,74 +5,44 @@ weight = 375
 chapter = 375
 +++
 
-<p>I headed to Hatake Investment Company, where Jinmija Yeosa is the CEO, with Mimata Chieri. Hatake Investment Company entrusted its security to East Weapon and was located close to the buildings of East Weapon and Seryu Military Company for convenient visits.</p>
-<p>,To make me, your mom, come to work on a Saturday after not seeing me for so long, Yongtae, you unfilial son.</p>
-<p>,It's Yamashiro Ryuta now, though.</p>
-<p>Jinmija Yeosa greeted me with a pout as soon as she saw me. She's been quite busy lately because of Hatake Investment Company's recent expansion into mining, so she might be a little annoyed that I asked to see her even on the weekend. I feel sorry for my mom, but what can I do when the weekend is the only time I have?</p>
-<p>,Changing your family name as you please. Don't you have three identities now?</p>
-<p>,Are you saying I'm Lu Bu? And it wasn't me who changed it as I pleased, it was Grandpa.</p>
-<p>Jin-ssi, Taira-ssi, and Yamashiro-ssi, it was true that I had three IDs. I really became a man with three surnames like Lu Bu. Hmm, if I use this, I can get married three times....</p>
-<p>,How is Hatake Mining going?</p>
-<p>,We've hired most of the workers, and excavation is slowly starting.</p>
-<p>It's been a few months since I acquired the mithril mine, and I've been pushing the mining business ever since, so I'll be able to mine mithril soon. If I start supplying mithril to TG Tech and other companies that have already promised to supply it, I will start making huge profits.</p>
-<p>,Any other special notes?</p>
-<p>,Taira Jiro's side contacted us yesterday. They asked if we could supply to them.</p>
-<p>,You need to check the documents carefully. If you don't limit the quantity that can be requested for delivery, they will request delivery of a huge number of items and then sue us on the pretext that we can't deliver within the deadline. In that way, they may make us pay huge compensation or swallow the company whole.</p>
-<p>When Jinmija Yeosa told me that Taira Jiro's side had contacted her, Mimata Chieri told me her concerns. Hatake Investment Company isn't that big of a company, so Taira Jiro's side might be tempted to swallow it whole. Since it's Taira Jiro who's in charge of Taira Steel, he couldn't help but be more interested in our mine. If so, then all we have to do is not give them an excuse in the first place.</p>
-<p>,Hmm, for now, tell them that it's not possible because there are already a lot of reserved items. And keep buying land around the mine. Ask East Weapon to increase security as well. I don't know what Taira Jiro's side will do.</p>
-<p>Even if I don't supply mithril to Taira Steel anyway, there were many places to sell it. Mithril is a rare and precious metal, so there were people lining up to buy it, so I had to be selective about whether it would benefit us or not.</p>
-<p>,We've been buying land around the area. We're building a mining village around the mine and also building shopping districts, so we've established a small construction company called Hatake Construction.</p>
-<p>The size of the mithril mine is quite large, and there are many workers, so I thought that if I built a mining village around it, I could recover some of the labor costs spent on the miners.</p>
-<p>,Not bad. It's going to be quite difficult to get permission from the local government to build residential buildings around the mine.</p>
-<p>,Nagumo Sian-ssi solved it well. Nagumo Sian-ssi is so popular in Akita Prefecture that it was solved quickly, you know?</p>
-<p>Nagumo Sian is a big shot who is called the godmother in Akita Prefecture, so helping our Hatake Mining would be a simple matter. I should send her a separate gift. Would a dildo made in the shape of my dick be okay....</p>
-<p>,For now, let's decide not to accept Taira Steel's proposal and continue as we are now, but increase security.</p>
-<p>,Okay. It's just as we've been doing, so there's not much to change. The president of East Weapon, our main security contractor, is right in front of us, so shall we sign the contract now?</p>
-<p>,Hehe, shall we?</p>
-<p>Mimata Chieri and Jinmija Yeosa quickly started talking separately. In the meantime, I contacted Sawayanagi Seari on my cell phone. Sawayanagi Azuma, the president of Seryu Military Company, had left for overseas dispatch with only a few people left behind, so there weren't many people in the Seryu Military Company building right now.</p>
-<p>Sawayanagi Seari, who succeeded in elf awakening, couldn't go on overseas dispatch because she hadn't solved the problem of hiding her ears yet, and Sawayanagi Sinya was guarding the building as vice president. Judging from the fact that all the new recruits rescued from Korea have been put into missions, it seemed like a very large-scale request.</p>
-<p>Taira Ryuta: What do you want to eat? I'll pack it up and take it with me before I go to Seryutai.</p>
-<p>Sawayanagi Seari: Something sweet! Chieri-chan is coming too, right?</p>
-<p>Taira Ryuta: Yeah, I'll go with something sweet and Chieri-chan.</p>
-<p>Sawayanagi Seari: Okay! I'll be waiting, Ryuta-nim~!</p>
-<p>Were Sawayanagi Seari and Mimata Chieri close? I didn't know that.... After simply ending the Line chat, the contract between Hatake Investment Company and East Weapon wasn't over yet, so I turned on the Dark Merchant app. I'm sure I remember there being an earring called Fairy's Secret.</p>
-<p>Fairy's Secret was a useless item that only changed the race notation of awakened fairy-type characters to human, but it seemed like it would be in the Dark Merchant. I was almost certain because I could get it from the Dark Merchant in the game as well. Maybe if I have this, I can solve the problem of the elf's pointy ears.</p>
-<p>,Hmm, it's here after all.</p>
-<p>I wondered if it was in the Tokyo branch, but luckily it was in the Tokyo branch. I immediately placed an order and pressed the button to pick it up directly from the branch instead of delivery.</p>
-<p>,Are you done?</p>
-<p>Mimata Chieri asked me if the contract was over. I was just waiting for the two of them to sign the contract and doing this and that on my phone.</p>
-<p>,Then I'll go, Mom.</p>
-<p>,Yeah, you must be tired from doing disguise work during the week and your main job on the weekends.</p>
-<p>,I'm just checking, though.</p>
-<p>,Still, being tired is being tired.</p>
-<p>Unlike Yukiko, my adoptive mother who only thinks about fucking me, Jinmija Yeosa was worried about me as expected of my real mother. This must be a parent's heart.</p>
-<p>,I'm really going. Don't overdo it yourself, Mom.</p>
-<p>,How can I not overdo it when my son makes me come to work on the weekend?</p>
-<p>,I'm sorry about that.</p>
-<p>After coming out of Hatake Investment Company, we took a taxi and stopped by the Dark Merchant's Tokyo branch. Mimata Chieri went to buy the sweets that Sawayanagi Seari had requested, and only I went into the branch.</p>
-<p>,Hello~! Ryuta-nim~!</p>
-<p>Eve in hologram form was in the Tokyo branch. The Eve android that was in Tokyo must have moved to the Miyashi branch as I expected. Then does that mean there's only one Eve android? I don't know why she's following me, but is it because she's a business partner?</p>
-<p>,Ryuta-nim, you said you'd come to visit around the weekend, so you meant you'd come to the Tokyo branch?</p>
-<p>,I'm just here to pick up the item today. Going to visit is, um....</p>
-<p>Come to think of it, I promised to help prepare for the picnic early next week, and then there's the picnic right after that, and then there's another schedule, so I won't be able to do it next week either.</p>
-<p>,When I think about the schedule, it'll be the week after next.</p>
-<p>,Why are you so busy?</p>
-<p>,I know, right.</p>
-<p>Eve said something to me with a slightly pouting expression, but it's not my fault that things turned out this way, it's because of the school schedule....</p>
-<p>,I'll definitely stop by the week after next.</p>
-<p>,Yes~! The item is here.</p>
-<p>After promising to stop by the Miyashi branch the week after next, I received the box containing the Fairy's Secret. After saying goodbye to Eve once again and coming out of the Tokyo branch, Mimata Chieri was waiting for me with shopping bags full of desserts that almost ten people could eat.</p>
-<p>,Why did you buy so much?</p>
-<p>,There were just a lot of things that looked delicious, hehe.</p>
-<p>As expected, it was like Mimata Chieri, who can't resist exploring famous restaurants. I took half of the luggage and took a taxi together to the small building where Seryu Military Company was located.</p>
-<p>I swiped the card key I had and entered the building, heading to the upper floor dormitory room where Sawayanagi Seari was. It was to put the desserts that Mimata Chieri bought in large quantities first. There were quite a few things that needed to be frozen, so if I did business with Sawayanagi Sinya first, they would all melt.</p>
-<p>,Waa~! Ryuta-nim~! Chieri-chan~!</p>
-<p>Sawayanagi Seari, wearing light clothes like dolphin pants and a tank top, greeted us. Sawayanagi Seari, who had awakened as an elf and had a completely busty and curvy body, was just wearing casual clothes, but she was exuding a very sexy atmosphere.</p>
-<p>,Ehehe, I missed you♥</p>
-<p>,Me too, but where's Sinya-ssi?</p>
-<p>She hugged me slightly with an innocent expression and pressed her breasts tightly against me, giving me the feeling that Ero-Elves are different, but I asked about Sawayanagi Sinya's whereabouts first to take care of the business inspection, which was the purpose of coming to Seryu Military Company.</p>
-<p>,Sinya is probably in the vice president's office.</p>
-<p>,Then I'll go see Sinya-ssi quickly and come back, so please wait a bit.</p>
-<p>,I'll be playing with Seari-chan, so junior, please go do your work and come back~!</p>
-<p>Mimata Chieri said with a bright smile, giving me a strange feeling, but I nodded and went downstairs alone to see Sawayanagi Sinya.</p>
-<p>-----Seari B-cut</p>
+<p>Talking with Urabe alone right now would be too conspicuous to the Female Students, so I first told Urabe Konoka 'just a moment' and gave her a wink. Urabe Konoka also nodded as if she understood and sat back down on the chair in the Beach House.</p>
+<p>"Ryuta-jji! Are you really a Teacher? Kina-ppi is a famous monster in our school, you know." If Kujo Kina had heard it, she would have said 'Who's a monster?!' but she was Faint, so she couldn't hear Seizawa Shii's Words. Seeing everyone agree with 'That's right, that's right,' it seemed Kujo Kina reigned as an object of Fear. After all, she had sent 30 people to the Hospital, so the exaggerated rumors unique to a girls' school must have made Kujo Kina an even more unapproachable opponent.</p>
+<p>"I knew Teacher-nim would win~!" Konoe Akina said, with a slight Blush blooming on her Face. Well, Konoe Akina knew my Skill to some extent, so she could probably predict this Match.</p>
+<p>"Well, you did well." Minamoto Risa didn't look at me, but gave a thumbs-up. I didn't know what she meant by 'well done,' but it seemed Minamoto Risa's preconceptions about me were slowly crumbling.</p>
+<p>After being surrounded by the Female Students for a while, Kujo Kina regained consciousness and was finally released. This was because Minamoto Risa had announced the next schedule.</p>
+<p>"Now it's free Time until Evening Meal. You can go back to the Villa and rest, or continue playing in the Sea." At Minamoto Risa's Words, most decided to rest at the Villa. They had been playing in the Water since Morning, eaten Lunch, and watched my and Kujo Kina's nail-biting sparring, so they must be tired. I was also slightly mentally exhausted, and since most of them were delicate Female Students, except for a few, they must be incredibly tired by now.</p>
+<p>Arriving at the Villa and being shown to my Room, it was quite spacious. Still, it seemed they had given me a rather luxurious Room because I was the Class Teacher. The Luggage I had handed over to the employee at the dock had also been properly moved.</p>
+<p>"Hmm...!" I picked up my phone and contacted Urabe Konoka, asking her to come to my Room. I was curious about what Urabe Konoka had felt. Since I didn't have the Ability to Detect things like dibeopeu or curses, if I asked Urabe Konoka, who was presumed to have such Abilities, I would know the Truth.</p>
+<p>Urabe Konoka came to my Room quickly, as if she had been preparing in advance. She had already changed her Clothes, wearing comfortable everyday Clothes instead of a Swimsuit.</p>
+<p>"How are your Rooms?" "It's a similar Size to Teacher-nim's Room, but we decided to use it with three people each." Urabe Konoka looked around my Room at my question, then answered. The Villa was quite spacious, so individual Rooms would be possible, but chatting at night is also a kind of Travel romance, so it seemed they had assigned three people per Room.</p>
+<p>Since Uenozono Karen was absent and there were 12 people, it seemed they were using four Rooms with three people each. This time, unlike at the department store, the composition was a little different, perhaps assigned according to friendships. Of course, there was a Room made up of the remaining Kids who couldn't be affiliated with any group, but I thought it wasn't bad, as they could become friends this way too.</p>
+<p>"I'm in the same Room as Sakagami-yang and Naruse-yang." It seemed Urabe Konoka's Room was the Room for the remaining Children who didn't have close friends. The Masked Woman Sakagami Rena had no close friends, and Naruse Shiyo also often skipped school, so she was closer to the Infirmary Teacher Kijimoto Jurie than to the Students. Similarly, Urabe Konoka also had no friends, as she had no Fate before transferring as a transfer Student.</p>
+<p>Hmm, I thought Oofuchi Erika would be in this Room instead of Naruse Shiyo. But I heard she was in the same Room as Shido Tsubaki. It seemed Shido Tsubaki would hear the Story about the VR Dive that Oofuchi Erika and I had discussed in the helicopter. As a former Newspaper Club President, a VR diver would be good to use as an informant, so she must be trying to get close to Oofuchi Erika.</p>
+<p>That's enough talk about Rooms, now I intended to discuss Kujo Kina's Story.</p>
+<p>"Now, tell me what you felt from Kujo Kina." Actually, at the start of the fight, I didn't notice any unusual expression at all. But gradually, I began to strongly feel the aura of the curse, and before I knew it, it had engulfed Kujo-yang's entire body. After that, Kujo-yang started to go on a rampage.</p>
+<p>Hmm, a curse.... As expected, it wasn't a Trait, but a Dibeopeu. Since I still had uses left for the Ruins' Glasses, I could check what kind of curse it was. Should I call her and check?</p>
+<p>"There's no need to drag this kind of Matter out." As Urabe Konoka said, if it was a curse, the berserk state would gradually worsen. Before she knew it, the influence of the berserk state would affect her Personality, and if the Madness exploded like when she received Discipline, it seemed it could even cause casualties.</p>
+<p>Then, of course, it would affect my Mission, so it would be better to resolve it in advance. I contacted Kujo Kina and had her come to my Room.</p>
+<p>"Teacher-nim~! Wow! I was pleasantly defeated, you know. To Faint without any wounds like this, you went easy on me in the sparring, didn't you?" Kujo Kina spoke heartily, opened the door, and entered. She flinched slightly upon seeing Urabe Konoka in the Room, but soon sat down on the Opposite Side of the Table where I was sitting. Since I had already put on the Ruins' Glasses, I immediately looked at Kujo Kina.</p>
+<p>Kujo Kina Lv06 berserk curse ya seal</p>
+<p>Power:7 Agility:5 Stamina:7 Resistance:4 Recovery:4 Sensitive Nerves:6 Appearance:14</p>
+<p>Intelligence:4 Knowledge:3 Concentration:2 Will:5 Creativity:7 Charm/Allure:12 Judgment:6</p>
+<p>Luck:9</p>
+<p>◆Kujo Kina Style Mixed Martial Arts Lv8[Special Skill]: A mixed martial art that Kujo Kina learned herself by combining various martial arts. Not yet complete.</p>
+<p>◆Body Training Lv10[General Skill]: When performing Body Training, it slightly increases the Probability of related Body Stats below 10 rising.</p>
+<p>◆Kujo Family Traditional Cooking Skill Lv05[Rare Skill]: Can cook various dishes of the Kujo Family, passed down through generations.</p>
+<p>◆Wild Sensation[Narrative Trait]: Sensitive Nerves and Luck Stats increase by 2, and there is a Probability of sensing approaching Danger. Additionally, Evasion Rate and Accuracy Rate increase, and she becomes skilled at utilizing terrain in battle.</p>
+<p>◆Genius of Fist Technique[Growth-type Narrative Trait]: Can easily learn Fist Technique. Depending on Effort, the Trait can change to Master of Fist Technique/Seongin/Choin. The growth rate of other Skills excluding Fist Technique decreases by 15 percent.</p>
+<p>◆Wild Body[Narrative Trait]: Power and Agility Stats increase by 1, and their Limit also increases by 1. The efficiency of Power and Agility increases, and she acquires faint wound Regeneration. Surprisingly, her Traits were well-developed. Although her Level was still low, all her Traits were Narrative Traits, and 'Genius of Fist Technique' was a growth type, so it could rise further. She'd be good as an evasion-type critical hit Fist Technique practitioner, mainly investing in Agility, Sensitive Nerves, and Concentration Stats, wouldn't she? Ah, rather than this, I should focus on the Dibeopeu under that name right now.</p>
+<p>As I focused my mind on the Dibeopeu window, a detailed Explanation appeared in a translucent window.</p>
+<p>◇Dibeopeu/Curse - Mumatsuan'ya (無末暗夜) Berserk Seal (狂爆印): A martial arts technique of Mumatsuan'ya. Can apply a berserk curse mark on the opponent. └Berserk Stigma: Curse, periodically grants the Opponent a Berserk Status effect. During battle, the activation rate increases by 150 percent. Mumatsuan'ya.... I've heard that somewhere, but where? As I thought about Mumatsuan'ya, an Explanation of Mumatsuan'ya appeared before my Eyes again.</p>
+<p>◆Mumatsuan'ya (無末暗夜) [Legend+ Fist Technique]: A fist technique created by Takakushi Gengo (高草木 玄悟) by combining Shinkaiyatsude (深海八手) and Tetsue Shinto-ryu (鐵重 神道流). It utilizes an unknown power called the Abyss, but has the side effect of mental distortion.</p>
+<p>Ah! It was the name of Takakushi Gengo's Fist Technique. He had stolen and mastered Shinkaiyatsude, which my Sabu Fujigasaki Rinka had warned me about, and formed a martial arts group called An'yaji (暗夜寺). I had forgotten about it because I was busy preparing to come to St. Francisco Girls' Academy right after receiving the warning about Takakushi Gengo from my Sabu. I didn’t expect to get caught up in this kind of situation.</p>
+<p>But why does Kujo Kina have traces of Mumatsuan'ya? I don't know the connection with Kujo Kina, but thinking about it, since Mumatsuan'ya is also a Fist Technique that deals with the Abyss, it seemed natural that Urabe Konoka, a Shrine Maiden related to Simyeonui ttal, would recognize it.</p>
+<p>"Ahahaha...! Teacher-nim, I know I'm alluring, but why are you staring so intently?" As I kept staring intently, looking at the Stats window, Kujo Kina, unable to bear it any longer, blushed slightly and tried to lighten the Atmosphere with a Playful Jest.</p>
+<p>"Kujo, haven't you been unable to control your Fading Reason recently? Perhaps the Incident that got you suspended and this sparring Match are related, you know." "Was it that obvious in the sparring just now?" At my Words, Kujo Kina asked back without much surprise, as if she had somewhat guessed. Indeed, she seemed to be aware of it herself. I shook my Head and continued to speak.</p>
+<p>"It wasn't that obvious. Only I, who directly faced you, and Urabe here, would have noticed." Saionji Diana and Otagi Yuka would have noticed too, but there was no need to say it in a way that implied many people knew she had many strange things about her.</p>
+<p>"You know what kind of Family the Urabe Family is, right?" "Yeah, they're a famous Shrine Family." At my question, Kujo Kina nodded her Head and answered.</p>
+<p>"Urabe seems to have felt a strange Aura from you. It's probably curse-related, do you have any idea where it might have come from?" If it were a Layperson, many would scoff at the mention of a curse, but a Scion of a prestigious Family, who knows more about the hidden side of the World, would know that curses exist. Indeed, at my Words, Kujo Kina shook her Head with a slightly serious Expression and smiled.</p>
+<p>"Fortunate. Because it's a curse.... I thought I was going Crazy." To be Fortunate that it's a curse. Indeed, a curse that can be removed might be better than going Crazy. With a slight hint of Tears in her Eyes, it seemed she had been worrying a great deal by herself.</p>
+<p>"Right. I don't know much about Curse Removal, so. Talk to Urabe here. Since we don't even know who cast the curse, talk to your Family and investigate." "Thank you, Teacher-nim. I'll repay this Favor someday." The Kujo Family is a Family that ranks around 3rd or 4th in the business hierarchy after Taira and Minamoto, so if I put them in Debt, it would eventually return as a great profit. Of course, I didn't interfere in this Matter because of the Reward, but receiving a Reward is good. There was no need to foolishly refuse when they offered a Reward.</p>

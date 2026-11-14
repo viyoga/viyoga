@@ -5,99 +5,81 @@ weight = 231
 chapter = 231
 +++
 
-<p>Katsuura Beach, the Taira family's privately owned prison. From within the dark iron bars, Tang So-hwa's voice could be heard.</p>
-<p>,He'll be here soon.... Xuexi, I'll handle him today. You don't need to suffer anymore."</p>
-<p>Tang So-hwa spoke from inside the iron bars. She sounded like she was concerned for Yang Seol-hui, but her face was flushed, and she was breathing heavily with excitement.</p>
-<p>,No... I will protect Daejang-nim."</p>
-<p>Yang Seol-hui also said she was looking out for Daejang-nim, but her cheeks were pink, and she looked like she was waiting for something. Is this what a young girl looks like when she's waiting for a date with her first love?</p>
-<p>They confirmed each other's intentions with the words they exchanged. Yes, now the esteemed Daejang and the beloved subordinate were competing for one big banana.</p>
-<p>,Xuexi...."</p>
-<p>,Daejang...."</p>
-<p>Jiiiiing!</p>
-<p>Their eyes met across the iron bars. It wasn't visible in reality, but it was the kind of gaze that felt like sparks would fly.</p>
-<p>After a long staring contest, Tang So-hwa finally sighed and spoke.</p>
-<p>,Okay, I'll be honest. You too, but we've become prisoners of his banana."</p>
-<p>,Banana, Daejang? He likes things lewd. There's a perfectly good name: cock."</p>
-<p>Yang Seol-hui replied like a fanatic to Tang So-hwa's words. At that, a vein popped out on Tang So-hwa's temple. She was angry at Yang Seol-hui for nitpicking.</p>
-<p>,Banana or cock! That's not the point!"</p>
-<p>,It is important! If you want to be one of his women, you have to match his tastes!"</p>
-<p>,What, one of his women?!"</p>
-<p>Tang So-hwa asked back with an angry expression at Yang Seol-hui's words, but soon acknowledged the fact and nodded. Most of the executives of the Hei Yue Tang (Black Moon Hall) she had been a part of had many concubines, so a man of that caliber wouldn't just date one woman.</p>
-<p>,Well, that's true."</p>
-<p>Having mainly seen people from the Hei Yue Tang, a criminal organization, the two of them had distorted common sense and didn't even realize that the conversation they were having was strange.</p>
-<p>The two had a heated debate over whether cock was better or whether it was better to speak indirectly using things like bananas as metaphors.</p>
-<p>,How can you talk to me like that when you said you would serve me to the end?"</p>
-<p>In the end, Tang So-hwa, unable to contain her anger, used her position as Daejang to try to crush Yang Seol-hui instead of using logic.</p>
-<p>,Eventually, he will be our master. Seeing how anxious Daejang is, you'll become his subordinate. Now we're in the same position as subordinates."</p>
-<p>,What?"</p>
-<p>,I'm saying that Daejang won't be my Daejang in the end. He will become Daejang."</p>
-<p>Even from Tang So-hwa's perspective, who had already succumbed to Taira Ryuta's banana, it was an undeniable statement. Yes, I was no longer Yang Seol-hui's Daejang. Tang So-hwa sighed and nodded.</p>
-<p>,Okay, I admit it. I'm not your Daejang anymore. But I can't say 'cock' so vulgarly!"</p>
-<p>,Banana is more childish!"</p>
-<p>The admission was only temporary, and the prison was filled with the voices of women shouting at each other.</p>
+<p>Mimata Chieri seemed to have fully recovered from the nasty hangover, a side effect of the elixir of power. She came running to me from the morning, shaking me awake-me, who'd stayed up late having sex with Nae Fitzgerald.</p>
+<p>,Sunbae-nim, Sunbae-nim! Wake up!"</p>
+<p>"Ugh... it's only 6 AM?"</p>
+<p>Breakfast at the Fitzgerald mansion is usually at 7:30, so it's still quite early, but she's waking me up already. She must be thrilled to actually feel the increase in power.</p>
+<p>"That potent liquor you gave me is really an elixir, Ryuta! I feel so much stronger!"</p>
+<p>Mimata Chieri strikes a front double biceps pose, like a bodybuilder, boasting about her increased strength. Even if she tries to show off her muscles, her arms are still thin. Is it because she's a woman, or because of the bio-remodeling? She looks toned, but there's no bulging.</p>
+<p>"I still don't see any muscles, Sunbae?"</p>
+<p>"But I did get stronger! Yaap! Can't you see it now?"</p>
+<p>Thanks to Mimata Chieri's excited fuss, I woke up and sat up. The thin sheet I was sleeping under slid down, revealing my bare upper body. Mimata Chieri twitched her nose, opened her narrow eyes, and looked at me.</p>
+<p>"Hmm, there's a reason you were tired. Now that the sheet's down, I can smell a woman all over you? This scent... is it Arisu? Doesn't seem like it..."</p>
+<p>"Is your hangover better now?"</p>
+<p>I ignored Mimata Chieri's words and tried to change the subject to her hangover. There's no need to tell Mimata Chieri anything. Anything I say will just end up in Mimata Chieri's collection of fodder.</p>
+<p>"Yes, I'm fine now!"</p>
+<p>"Then I'll go wash up. Sorry, but could you put the sheet in the laundry basket, Sunbae?"</p>
+<p>I got up, grabbed my underwear, and headed to the shower. I glanced at Mimata Chieri, who was sniffing the sheet, muttering, "Whose scent is this?" I ignored her and went to wash up.</p>
+<p>While showering in cold water, I thought about what to do today. Instead of a complicated plan, I decided to just go through the day's schedule, and when Arisu and Nae Fitzgerald move at night, I'll secretly follow them, and after the theft, I'll catch them.</p>
+<p>The problem is whether to tell this to Mimata Chieri or not... Of course, I can trust Mimata Chieri, but if I tell her that Arisu and Nae Fitzgerald are probably Phantom Thief François, she'll freak out.</p>
+<p>"Ryuta, what are you thinking about?"</p>
+<p>"I was wondering whether to tell you what I'm expecting to happen, Sunbae-nim."</p>
+<p>"Aww♥ Tell me~. If you say that and then don't tell me, I'll be so curious."</p>
+<p>Mimata Chieri snuggled up to me, acting cute as if trying to seduce me. Okay, let's tell her. I can endure a little fuss.</p>
+<p>I told Mimata Chieri about a few incidents and my thoughts, saying that Arisu and her aunt, Nae Fitzgerald, are probably Phantom Thief François.</p>
+<p>"Heeeh~? Really? Ryuta, you're amazing~! If what you say is true, then you figured out something that no one else has?! Su~goi!"</p>
+<p>Mimata Chieri reacted to my story with a typical Japanese "Heeeh~! Su~goi!" and made a fuss, but it was bearable.</p>
+<p>"They're probably going to steal something today."</p>
+<p>"Hmm, then how about this? We suffered at the lab before, so after catching them both, you should violate them!"</p>
+<p>"Huh?"</p>
+<p>What is this woman saying? I'm not some serial rapist... Violate them after catching them?</p>
+<p>"You know that Nae Fitzgerald is my aunt, right, even if Arisu is not?"</p>
+<p>"I know, but you did it, right? I smelled Nae-nim's perfume on the sheet? And the other woman's scent on the sheet is different from Arisu's. So, the only women in this mansion are Nae-nim and the maids, but the maids in this mansion aren't very pretty."</p>
+<p>No, don't give me that yandere look again... Anyway, her nose is amazing. To smell Nae Fitzgerald's perfume, which must have faded a long time ago. And to be able to identify who's who by the woman's scent (?) is truly amazing.</p>
+<p>"You'll watch me violate them both, Sunbae-nim?"</p>
+<p>"Nehe, of course♥"</p>
+<p>I unconsciously touched my temple. Am I getting dizzy...? The thought that maybe I shouldn't keep Mimata Chieri by my side briefly crossed my mind, but I also felt a little excited, so I started to think that good is good.</p>
+<p>Clap!</p>
+<p>I slapped both cheeks with my palms and barely managed to fend off the lewd thoughts. Then I opened my mouth.</p>
+<p>"Let's decide after seeing how things go."</p>
+<p>"So, you're saying you'll do it?"</p>
+<p>"Let's go eat breakfast first, Sunbae."</p>
+<p>I put Mimata Chieri, who was full of lewd fantasies, under my arm and went down to the dining room. We were a little late because we were talking, and Oliver Fitzgerald, Nae Fitzgerald, and Arisu were all sitting at the table.</p>
+<p>Nae Fitzgerald's face was constantly smiling, and her skin was smooth and glossy. It must be because she sucked up so much of my yang energy early this morning.</p>
+<p>"Oh, Ryuta, come sit down. Butler~! Please give Ryuta a lot of food."</p>
+<p>As expected, it was worth pretending to take sleeping pills and staying erect yesterday. As soon as I sat down, Nae Fitzgerald took good care of me.</p>
+<p>Arisu, not knowing why, tilted her head and looked at her mother, wondering why she was acting like that, and Oliver Fitzgerald greeted me, asking if I slept well, then frowned and kept looking at his phone. Something must be going on at the company?</p>
+<p>"Ryuta, what are you going to do today?"</p>
+<p>"I'll probably look around New York again today. Mimata Sunbae hasn't seen New York properly, and I haven't seen everything either."</p>
+<p>In fact, the only places I've seen in New York are the AmSang branch, the Fitzgerald mansion, the factory district, and the hotel where I met Arisu, so today I should enjoy a vacation.</p>
+<p>Arisu made a slightly embarrassed expression at my words, then stuck out her tongue and smiled.</p>
+<p>"Then let's go out together after breakfast! I'll make sure you have a day of fun without regrets."</p>
+<p>It was hard to believe Arisu's words, but today I'll finally be able to go sightseeing.</p>
 <p>###</p>
-<p>After satisfying Yukiko, who had been clinging to him since the beach walk, he headed back to the prison where Tang So-hwa and Yang Seol-hui were being held. Today, before having sex with the two in prison, he should try to persuade them again with words. Come to think of it, Tang So-hwa and Yang Seol-hui probably don't even know my name.</p>
-<p>I should introduce myself and let them know what they can gain if they come under my command. Whether it's honor, money, or pleasure, they need to have something to gain in order to be brought in as subordinates.</p>
-<p>,You're here again."</p>
-<p>I opened the door and entered as if I were visiting a friend's house. But the atmosphere was strange. Even though the air conditioner was running inside the prison, the room was excessively cold. Yang Seol-hui and Tang So-hwa were glaring at each other with faces that exuded chilliness.</p>
-<p>,What's wrong?"</p>
-<p>,Important question. When referring to a man's genitals, which do you prefer: cock, or metaphors like banana?"</p>
-<p>When I asked what was wrong, Tang So-hwa asked with a serious expression. What? Cock? Banana? What were they fighting about?</p>
-<p>Hmm.... Basically, Tang So-hwa's question was whether I preferred to speak directly like "cock" or indirectly using metaphors like "banana" or the "serpent" I usually say.</p>
-<p>Actually, I didn't care either way, so I answered as I thought. Cock or banana, the important thing is putting it in a pussy.</p>
-<p>,I don't care either way? Speaking metaphorically is cute, and saying 'cock' is hot...."</p>
-<p>,Y-you think I'm cute?"</p>
-<p>,Do you find me hot?"</p>
-<p>Ah, the banana side is Tang So-hwa, and the cock side is Yang Seol-hui. I don't understand why they were fighting about that, but they seemed satisfied with my answer. If I had said I liked one more, the other's morale would have probably plummeted. Looking at the result, it seems I answered well.</p>
-<p>,Today, instead of sex, I'm going to have a conversation."</p>
-<p>,Why?"</p>
-<p>,Why?"</p>
-<p>They both opened their eyes wide and asked "Why?" at the same time. No, I know they both enjoyed the sex yesterday, but is not doing it something they'd react to so sensitively? I thought they might try to stop me if I continued the conversation, so I ignored their "Why?" and continued.</p>
-<p>,You guys don't even know my name. We should introduce ourselves and share our visions. I thought I might be able to win you two over."</p>
-<p>,Hmm, that's true."</p>
-<p>,Speak."</p>
-<p>Smiling at the two who quickly agreed that they didn't know my name, I revealed my name.</p>
-<p>,My name is Taira Ryuta."</p>
-<p>,Ah.... So that's why you fought us in Akita."</p>
-<p>,Taira Ryuta, Taira Ryuta, Taira Ryuta...."</p>
-<p>Tang So-hwa nodded as if she finally understood, and Yang Seol-hui kept repeating my name as if she didn't want to forget it. But what's wrong with her? She's so different from when I first met her....?</p>
-<p>Thinking in game terms, it seems Tang So-hwa, being a mid-boss named character, has a higher resistance to pleasure.</p>
-<p>On the other hand, Yang Seol-hui is just a minion of the mid-boss Tang So-hwa in the game, so she couldn't resist my characteristic, the crimson pillar of flesh swimming in arousal fluids, and was won over.</p>
-<p>Maybe it would have taken a little longer if it had been the pre-upgrade golden pillar? I should shout it out around this time. Thank you, Abyss Mommy! I haven't offered any tributes lately, so I should offer something delicious.</p>
-<p>Let's think about the tribute later and look at Tang So-hwa and Yang Seol-hui and speak again.</p>
-<p>,Actually, I'm a bastard, and my father is dead, so I don't have much power. That's why I keep recruiting talent from outside. That's why I brought you here to win you over."</p>
-<p>,Ha! Is sex how you win people over?"</p>
-<p>Tang So-hwa asked, sounding dumbfounded at my words. I gave a charming smile and approached Tang So-hwa and asked.</p>
-<p>,So it wasn't effective?"</p>
-<p>,...."</p>
-<p>She became a mute who ate honey. After a moment of silence, Tang So-hwa opened her mouth.</p>
-<p>,We only have talent for fighting, not for running a company."</p>
-<p>,I learned imperial studies from the Yang family since I was young, so I can do a little."</p>
-<p>Yang Seol-hui seemed to be the daughter of the Yang family, one of the ruling families of Kurotsukido, which I had suspected since I first heard her name. Probably from a collateral line, though.... If I use her well, she could be a useful card later?</p>
-<p>,Tang So-hwa, if you're willing to give up everything because your dream of becoming the boss of Kurotsukido, no, Hei Yue Tang, has been shattered, why not receive my support, take control of the Japanese underworld, and use that as a base to devour Hei Yue Tang and achieve your dream in a different way?"</p>
-<p>,In other words, you want me to take control of the Japanese underworld and help you become the Chairman of the Taira Group?"</p>
-<p>As expected of the Northeast Asia branch manager of Kurotsukido, she understands my intentions well. Of course, the Japanese underworld is not an easy opponent, but Tang So-hwa should be able to establish a foothold to some extent.</p>
-<p>Yang Seol-hui, feeling left out of the conversation centered around Tang So-hwa, quickly opened her mouth.</p>
-<p>,W-what can I do to help you?"</p>
-<p>,Yang Seol-hui, you will be an important justification for devouring Kurotsukido later. Until then, assist Tang So-hwa in establishing a foothold in the underworld."</p>
-<p>,Yes!"</p>
-<p>Yang Seol-hui answered immediately as if my words were law. She's a bit like a fanatic, so it's scary, but it'll be good if she listens well. Seeing Yang Seol-hui's immediate response, Tang So-hwa opened her mouth as if not to be outdone.</p>
-<p>,Okay. I'll become your subordinate too. Starting over isn't so bad...."</p>
-<p>,Rather than starting over, it's important to unite the Kurotsukido Northeast Asian forces that followed the former Daejang-nim. Before the new Northeast Asia branch manager arrives."</p>
-<p>As expected, Yang Seol-hui is looking at the situation from a broader perspective because she learned imperial studies. If we can steal the Kurotsukido forces in Korea and Japan, it will be a great help.</p>
-<p>,What happened to the prisoners who were with me?"</p>
-<p>Tang So-hwa asked about the Kurotsukido remnants at the school at that time. I don't know either.... It's a little past midnight, I wonder if Mimata Chieri is still awake?</p>
-<p>,Wait a moment."</p>
-<p>I sent a Line message to Mimata Chieri about the Kurotsukido prisoners, and I got a reply right away.</p>
-<p>Chieri-chan🍒: We were thinking of taking them over and using them as mine workers? Do you need them for something else?</p>
-<p>That's a bit scary. It's not like it's the pre-modern era, but losing in war means going to the mines.... But I'm sure it was registered as Chieri-chan★, when did she change it to Chieri-chan🍒? I lent her my phone a few times to do something, but this won't do. I have to give her a stern scolding next time I see her.</p>
-<p>,For now, our side has them."</p>
-<p>,With that many people, you can establish a foothold anywhere in Japan. Because they gathered all the guys in the Japanese branch to fight the war, the original forces of Kurotsukido are probably in a state of vacancy now."</p>
-<p>,Okay. I'll transfer them to your side. Then, since we have to go quickly, should I release them now?"</p>
-<p>Tang So-hwa shook her head at the word "release." A prisoner refusing to be released.... Of course, I knew what they both wanted, so what I had to do was decided.</p>
-<p>,It's late anyway since it's night. What you have to do is satisfy me until dawn."</p>
-<p>,Please let me serve Ryuta-nim."</p>
-<p>Hmm, you're both insolent. I opened both Tang So-hwa and Yang Seol-hui's iron bars. And after putting Yang Seol-hui in Tang So-hwa's room, I opened my mouth.</p>
-<p>,Lie down on top of each other."</p>
-<p>If I have to use my body for both of them anyway, I should try eating a Jujong deopbap with Tang So-hwa and Yang Seol-hui stacked on top of each other.</p>
-<p>-----A collection of other cuts of Yukiko's swimsuit that appeared in the previous episode</p>
+<p>Arisu Fitzgerald and Nae Fitzgerald quietly left the mansion and headed to the Metropolitan Museum.</p>
+<p>"Why are you so late?"</p>
+<p>"I couldn't help it, Mom, we were sightseeing in New York."</p>
+<p>The three of them went out together in the morning and enjoyed sightseeing until late at night, so Nae Fitzgerald, who had to do all the preparations alone, gave Arisu Fitzgerald a slight scolding. Arisu Fitzgerald said it couldn't be helped and clung to Nae Fitzgerald, acting cute.</p>
+<p>"Let's park the car here for now."</p>
+<p>Nae Fitzgerald and Arisu Fitzgerald parked their car in a parking lot one block away from the museum and entered an alley.</p>
+<p>When they came out of the alley, Nae Fitzgerald and Arisu Fitzgerald had disappeared, and the world's most famous thief, Phantom Thief François, had appeared.</p>
+<p>With cyberware equipped with various devices and even complex tactical night headwear like VR machines... Their appearance was exactly the same as Phantom Thief François, whose appearance had been exposed in the media. Except for the chest size, their body shape and appearance were similar, so it was hard to tell who was who unless you knew them well. They moved through the shadows of the night and soon arrived at the Metropolitan Museum.</p>
+<p>Nae Fitzgerald headed towards the entrance, and Arisu Fitzgerald climbed up the wall of the Metropolitan Museum as if defying gravity. She stopped at a third-floor window and carefully opened it.</p>
+<p>Because she had taken measures when she visited the museum in advance, opening the window didn't trigger an alarm.</p>
+<p>Arisu Fitzgerald quietly ran to the control room on the third floor. All the CCTV cameras can be checked in the control room, and the police can be called, so this place had to be taken care of.</p>
+<p>Arriving quietly in front of the control room, Arisu Fitzgerald attached a radio wave blocking device to the control room door and pushed a sleeping gas canister with a small straw-like tube through the gap in the door.</p>
+<p>Shiiiii!</p>
+<p>With the sound of air entering, the control room was filled with white smoke-like sleeping gas. Arisu Fitzgerald waited for a while and then opened the door. Inside the control room, two fat guards were sitting in chairs, fast asleep due to the sleeping gas. This should keep them asleep for at least four hours.</p>
+<p>"Control room secured."</p>
+<p>Arisu Fitzgerald turned off all the CCTV cameras and radioed Nae Fitzgerald, who should have taken care of the guard at the guardhouse by the door by now.</p>
+<p>"There's a problem."</p>
+<p>Strangely, Nae Fitzgerald's answer came from behind Arisu Fitzgerald, not from the radio. Arisu was slightly surprised but turned around, pretending to be okay. As expected, Nae Fitzgerald was standing behind Arisu Fitzgerald.</p>
+<p>"What's wrong, Mom?"</p>
+<p>"It seems like there's already an intruder. The guard was collapsed."</p>
+<p>At Nae Fitzgerald's words, Arisu Fitzgerald turned on the CCTV footage recorded at the front gate guardhouse. Coincidentally, just one minute before they arrived at the museum, a red mist suddenly entered through the front gate and surrounded the guard, knocking him unconscious?</p>
+<p>"That mist is the intruder?"</p>
+<p>"Maybe? Wait a minute, Mom...! Look over there! Look at number 1!"</p>
+<p>The screen captured on CCTV number 1 showed the red mist gradually gathering and changing into the shape of a person. The person was an Asian woman with long red hair.</p>
+<p>"This woman must be a thief too, right? Then let's hurry up before our stuff gets stolen!"</p>
+<p>"I guess we have to. It wasn't intentional, but it suddenly turned into a competition between thieves."</p>
+<p>Afraid that their chosen items would be stolen, the two quickly left the control room. As soon as both Phantom Thief François left the control room, the computer in the control room suddenly started working. From the moment the red-haired woman was captured on the screen, all CCTV data began to be erased.</p>

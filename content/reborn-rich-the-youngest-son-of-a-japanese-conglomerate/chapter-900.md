@@ -5,81 +5,70 @@ weight = 900
 chapter = 900
 +++
 
-<p>and breast chapter check contains exposure please surroundings this your</p>
-<p>Otagi Yuka and Saionji Diana were heading to the Place where they had arranged to meet Taira Ryuta. Of course, they weren't actually meeting Taira Ryuta there; it was a Place they had leaked to Anyaji.</p>
-<p>"We have a tail."</p>
-<p>Otagi Yuka was driving the car, and Saionji Diana was checking the rear camera and side mirrors. Just as Saionji Diana had confirmed, a black sedan was tailing the compact car Otagi Yuka and Saionji Diana were in.</p>
-<p>"The Operation worked."</p>
-<p>Otagi Yuka also checked the rear camera screen and muttered. As expected, perhaps because they were martial artists by nature, Anyaji's car tailing was clumsy. Anyone could see they were chasing Otagi Yuka and Saionji Diana's vehicle.</p>
-<p>"Do they think we wouldn't notice? They're really bad at tailing."</p>
-<p>"They might think it doesn't matter if we notice."</p>
-<p>The two continued badmouthing the car behind them as they headed to the promised Place. The promised Place, leaked to Anyaji through Kyoshiro, was a secluded pension on the outskirts of Miyashi, and they had passed on Information that they would be having a graduation Party there, grilling meat.</p>
-<p>Even as the surrounding Scenery slowly changed from the city center to a landscape of forests and Mountains near Mount Fuji, the black sedan continued to follow Otagi Yuka and Saionji Diana's vehicle.</p>
-<p>Since the pension was in a secluded Place and it was around weekday lunchtime, there were no other vehicles around. Now, they were openly driving aggressively, getting so close that their cars almost collided.</p>
-<p>"They seem to know they've been caught."</p>
-<p>"Anyone who isn't an idiot would know. Ah, now they're pulling alongside."</p>
-<p>The black sedan crossed the center line, pulled alongside Otagi Yuka and Saionji Diana's vehicle, then rolled down its window. The Appearance of a bald, sunglasses-wearing man, looking just like a Yakuza, was revealed, and he opened his mouth to them.</p>
-<p>"If you don't want a car accident, follow us."</p>
-<p>"Alright, lead the way."</p>
-<p>When Otagi Yuka meekly replied that she understood, the Yakuza-like man seemed a little flustered. But soon, he drove ahead of Otagi Yuka's vehicle and began to lead them to a different Place than the pension.</p>
-<p>In fact, the two already knew where Anyaji was going. With Athena Mannerheim and Kyoshiro's Information collection, they knew almost all of Anyaji's Operation, so there was no fear.</p>
-<p>"They said they'd go somewhere else because there's an owner at the pension, for fear of reporting, right?"</p>
-<p>"Yeah. If we didn't follow, they were planning to deal with the pension owner and guests first as Plan B...."</p>
-<p>Anyaji's judgment was that there might be an owner and other guests at the pension, so they needed to take Saionji Diana and Otagi Yuka elsewhere. Of course, Taira Ryuta had rented the entire pension in case of an unforeseen Situation, so no people, neither guests nor owner, were present.</p>
-<p>After following the car ahead for a few minutes, a fairly wide empty lot appeared. The vehicle in front stopped at the Entrance of the empty lot. The man rolled down the window and waved his hand as if telling them to enter, but Otagi Yuka didn't obey and parked her car near the Entrance. Then, she got out of the Driver's Seat and walked towards the black sedan.</p>
-<p>Kwadeudeuk! Kuung!</p>
-<p>Otagi Yuka, who tore off the door and threw it, then grabbed the bald Yakuza-like man, who was watching with a surprised Expression, by the Collar, pulled him out, and lifted him into empty space.</p>
-<p>"Hey, who the fuck are you to be so rude?"</p>
-<p>"L-let go of me!?"</p>
-<p>The bald man shouted boldly, but Otagi Yuka ignored him and swung her fist.</p>
-<p>Peok!</p>
-<p>With one punch, his nose shattered, and blood splattered. With two punches, his head caved in the shape of a fist, and he lost his life.</p>
-<p>"Annoying bastard."</p>
-<p>Thud.</p>
-<p>Otagi Yuka threw the Yakuza-like man to the side of the car, then walked into the middle of the empty lot with Saionji Diana, who had been waiting.</p>
-<p>"Not very woman-like, her personality is fiery, isn't it?"</p>
-<p>From the shade of the forest next to the empty lot, an eccentric-looking Elderly Person and a brown-skinned Latin man walked out. Behind them, about ten Anyaji martial artists walked out, and their Appearance gave off a Sense of Incongruity that was hard to pinpoint.</p>
-<p>"Old man, what, are you from the 2020s? To make such discriminatory remarks against women in this day and age."</p>
-<p>"Kekeke. As I heard, her personality is extraordinary. It's been a long time since someone acted without Etiquette towards me, Mad Fist Kamishirato Manzo."</p>
-<p>The eccentric-looking Elderly Person was Mad Fist Kamishirato Manzo, who boasted outstanding Skill even in the Guardian Hall. An innately acquired Demonic person who had traveled the World and learned countless Sorcery, his strange Fist Technique and magic were so exceptional that Hojo Otoji, Anyaji's second-in-command and the most outstanding Jusul practitioner in Anyaji, would even concede a move to him.</p>
-<p>"Looks like a crazy old man, just like his name. Just looking at you, you're Anyaji, so there's not much need for Words between us, is there?"</p>
-<p>As Otagi Yuka drew her beloved Sword Golden Blood, Saionji Diana also drew the Famous sword En (Swallow) she had received from Ichimonji Harugoro. And she unfastened the holster on her thigh, making it so she could draw her pistol at any time.</p>
-<p>"Now that I see it, you anticipated our Attack? Who did you get the Information from?"</p>
-<p>Both were wearing cyber Suits and carrying exclusive weapons, so the sinister Kamishirato Manzo quickly grasped that Information had leaked. But to Kamishirato Manzo's question, Otagi Yuka snickered and opened her mouth.</p>
-<p>"Takakusaki Gengo told us, why?"</p>
-<p>"Kekeke, alright. A little later, I'll have to make you beg for your life."</p>
-<p>Kamishirato Manzo, who had been treated as an Adult in Anyaji for several years, could not win against Otagi Yuka's verbal sparring Skill, honed from fighting gangs and using slang in New York. With a reddened Face, he looked at the Latin man standing next to him.</p>
-<p>"This guy is someone I've put a lot of effort into. His name is Bernardo, and he's supposed to fight the woman with bangs covering her eyes."</p>
-<p>Bernardo, who had newly joined Anyaji as one of the Four Heavenly Kings, beckoned with his hand towards Saionji Diana. Even seeing the Gun hanging on Saionji Diana's thigh, he wore a confident Expression.</p>
-<p>This Confidence was only possible for Bernardo, who had fought against drug cartels with Guns for several years in the favelas of Brazil, the slums among slums.</p>
-<p>"...."</p>
-<p>Saionji Diana also, without a word, extended En and pointed it at Bernardo. Although it was quite a distance, Bernardo momentarily felt a chilling sensation as if Saionji Diana's katana stretched out and pierced his neck, but he growled and showed an even more aggressive Appearance.</p>
-<p>'He's a skilled person.'</p>
-<p>Kamishirato Manzo, watching him, realized that Saionji Diana's Skill was extraordinary, but he didn't think she could overcome Bernardo, his carefully cultivated experiment subject.</p>
-<p>"Are those hangers-on in the back joining the battle too?"</p>
-<p>Otagi Yuka said, looking at the Anyaji martial artists standing behind Kamishirato Manzo and Bernardo. In fact, the participation of the martial artists was rather a welcome thing for Otagi Yuka.</p>
-<p>Because she was a Vampire stronger against the weak, even if the enemy's minions were added, they would only become Otagi Yuka's instant potion blood pouches, or merely ingredients for various blood energy Jusul or Attacks.</p>
-<p>"Those guys just came to watch. Just watching a battle helps with development."</p>
-<p>Kamishirato Manzo waved his hand as if telling her not to interfere. Otagi Yuka wondered if they would just watch during the fight, but since she was confident she could turn them into living blood pouches at any time, even if they Ambushed, she nodded her Head as if she understood.</p>
-<p>"Well, our introductions are over, so let's begin."</p>
-<p>No sooner had Kamishirato Manzo finished saying 'let's begin' than Bernardo charged towards Saionji Diana. He charged on all fours like a Predator of the plains, and although the distance was quite far, perhaps due to his inhuman movements, he closed the distance at an incredible speed.</p>
-<p>Saionji Diana, without surprise, calmly swung her Sword. No matter how fast Bernardo was closing the distance, it wasn't a distance her Sword could reach, but Bernardo's shoulder was cut, and a stream of blood spurted up.</p>
-<p>Bernardo jumped back in surprise from the intangible Attack, but this time, it was Saionji Diana who closed the distance. With the tremendous output of her combat cyber implants, Saionji Diana closed the distance at a speed no less than Bernardo's, and her Sword was swung.</p>
-<p>Bernardo, with terrifying animalistic Instinct, moved intricately and dodged the Sword. It was truly a movement befitting the word 'animalistic'.</p>
-<p>Bernardo, having dodged Saionji Diana's Sword, spread his hand wide and swung it. Saionji Diana raised her Sword and blocked his hand.</p>
-<p>Kakang!</p>
-<p>Normally, if he had swung his hand with all his might at a Famous sword made by Ichimonji Harugoro, his hand would have been cut off, but Bernardo's hand was fine. This was because it wasn't his hand, but sharp Claws that looked about a span long that struck the Sword.</p>
-<p>Even after striking the master's Sword, there was no wound on Bernardo's Claws. It could not possibly be considered human.</p>
-<p>"Krrr-rrr-rrr!"</p>
-<p>'They said he learned some kind of divine possession magic from Kamishirato Manzo, so only his Face is human, the rest is no longer human.'</p>
-<p>Saionji Diana, predicting a difficult Match from Bernardo's animalistic Appearance, lowered her hand to her thigh and drew her pistol.</p>
-<p>TheDreaming-nim requested milking of Simyeonui ttal and Lisa~!</p>
-<p>Lisa~!</p>
-<p>The prompt you mentioned about putting Breast Milk in a container doesn't seem to work due to insufficient learning data hehe.</p>
-<p>Gojoy-nim requested Seizawa Shii belly dancer, Tape attire~!</p>
-<p>Belly dancer~!</p>
-<p>Tape~!</p>
-<p>Neosblue-nim requested Alik Gunvolt's Unlimited Volt? The appearance of using a buff skill like that... didn't come out exactly, so I'll upload what I made in my own way hehe.</p>
-<p>In the case of skills from games, anime, or comics, unless they are incredibly famous (like an Energy Wave? Even the Shoryuken someone requested before wasn't learned ㅠㅠ), they are not learned hehe.</p>
-<p>Hwanbuljeoldaebulga-nim requested Home Teacher, Lisa-chan cheongsam~!</p>
-<p>Home Teacher~!</p>
+<p>Hoodudeuk!</p>
+<p>The Blood that burst from Genba Kiyohira's Arm and Shoulder rained down onto the floor of the empty lot in front of the pension. Genba Kiyohira, as if Fainting from the Pleasurable Ache of his Arm being torn from his Torso, hung limp like a doll, held by Takakusaki Gengo, only intermittently twitching his Body without even a moan.</p>
+<p>「Th-this...!」</p>
+<p>「Kiyohira, y-your Arm...!!」</p>
+<p>「Gengo, you bastard!」</p>
+<p>Musashi Takuro immediately rushed at Takakusaki Gengo. Takakusaki Gengo smiled broadly, seeing Musashi Takuro charging, then threw Genba Kiyohira's Arm, which he was holding, towards Musashi Takuro. The timing was incredibly exquisite.</p>
+<p>Musashi Takuro abruptly stopped and caught his Disciple's Arm. It wasn't cut with a Sword, but forcibly torn off, so it was unknown if it could be reattached, but it was his last remaining Disciple's Arm, so he had no choice but to choose to catch his Disciple's Arm rather than Attack Takakusaki Gengo. After all, with surgery, it might be saved.</p>
+<p>「Haap!」</p>
+<p>If Musashi Takuro couldn't do it, then I had no choice but to. As I sprang out and threw a fist at Takakusaki Gengo, Takakusaki Gengo lifted Genba Kiyohira and used him as a Shield. It was an Attitude that he didn't care what happened to Genba Kiyohira.</p>
+<p>「Tsk...!」</p>
+<p>I, too, had no choice but to withdraw my fist, just like Musashi Takuro. Although Genba Kiyohira was a foolish bastard who had joined Anyaji, in the current Situation with his Arm torn off, I couldn't strike his Face with full Electricity.</p>
+<p>「What do you want?」</p>
+<p>Excluding the act of tearing off Genba Kiyohira's Arm, Takakusaki Gengo's actions indicated he had no immediate Intention to fight, so I asked about Takakusaki Gengo's Intention.</p>
+<p>「This is not a suitable Place for Fujigasaki Rinka and me to fight. I don't wish to become Japan's strongest in a Place like this.」</p>
+<p>Takakusaki Gengo's Attitude was as if he had already defeated Fujigasaki Rinka. Takakusaki Gengo hadn't anticipated the other operations in this Attack, but he seemed to have anticipated the Failure of the Attack on Fujigasaki Rinka's side. After all, there are few who know Fujigasaki Rinka's Skill as well as he does.</p>
+<p>His immediate arrival at this pension, of course, might have been due to the ominous Premonition Takakusaki Gengo mentioned, but it was probably his Intention to take me, Fujigasaki Rinka's Disciple, as a Hostage.</p>
+<p>「It seems he came straight here to capture me, fearing Rinka Sabu.... Does he lack confidence in winning?」</p>
+<p>Even with my Provocation, comparing him to his lifelong rival, Takakusaki Gengo showed no Agitation of Emotion. At his utterly emotionless Appearance, I once again felt the Aversion, like looking at an insect, and the unknown Thrilling Fear I had felt when Takakusaki Gengo first appeared.</p>
+<p>「My training is too profound to get angry at such trivial Provocation. As you said, it's true I came to capture you. However, it is to ensure Fujigasaki Rinka cannot avoid a fight with me; it is not to Threaten Fujigasaki Rinka or to win the Match with it.」</p>
+<p>Takakusaki Gengo spoke as if Fujigasaki Rinka had been avoiding him. Having finished speaking, Takakusaki Gengo looked at Genba Kiyohira, whom he was still holding, and said.</p>
+<p>「With this guy, there's no need to capture you. You'll come to save your friend, and naturally, your Sabu Fujigasaki Rinka will follow you.」</p>
+<p>Ttak!</p>
+<p>As Takakusaki Gengo snapped his finger, a repulsive, black Gi slowly rose from Takakusaki Gengo's Body and began to envelop the place where Genba Kiyohira's Arm had been severed. I looked at Takakusaki Gengo with a puzzled Expression, wondering what he was doing, and he opened his mouth as if to give an Explanation.</p>
+<p>「For a Hostage to have Value, they must be alive. I've given him emergency treatment, so he won't die immediately, but there isn't much time left. Bring Fujigasaki Rinka, and I don't care who else you bring; come to the Place I've prepared for today's Match. I've left a message at the Anyaji Situation Room, so Athena or Guardian Musashi should be able to find that Information.」</p>
+<p>Takakusaki Gengo, telling me to bring Sabu Fujigasaki Rinka, disappeared with Genba Kiyohira. Although I, possessing psychokinetic Flight Ability, could have followed him, I didn't, as I lacked the Conviction that I could defeat Takakusaki Gengo alone. My thought was that it was right to go fully prepared, as following him alone might not guarantee Genba Kiyohira's life and could put me in Danger as well.</p>
+<p>「First, Musashi-ssi and Athena, please find out where Takakusaki Gengo went. I will prepare on my own.」</p>
+<p>After instructing Musashi Takuro and Athena Mannerheim to find out where Takakusaki Gengo had gone, I picked up the Phone Call to sort out the current Situation. However, there was no need to talk on the Phone Call.</p>
+<p>A large dump truck was entering the pension. The side of the dump truck that arrived in front of the pension opened, and Asada Ei quickly disembarked. The True Identity of the dump truck was Joseodang's General Situation Room, a mobile Situation Room. They were operating a mobile Situation Room to quickly provide support anywhere in this battle.</p>
+<p>「Ryuta-nim! Are you alright? Are you hurt anywhere?」</p>
+<p>「I'm fine. More importantly, please inform me about the Situation of the other groups. Above all, please ascertain Fujigasaki Rinka's whereabouts.」</p>
+<p>In the fight with Takakusaki Gengo, the most important thing was still Rinka Sabu. That's why I ordered Asada Ei to prioritize locating Fujigasaki Rinka.</p>
+<p>Katsushika Ward may have cheap land, but building such a large property in Tokyo would still cost a lot of money. How on earth did just a martial arts group come up with that kind of money? Is someone funding them...?</p>
+<p>Taira Kanna muttered, looking at the quite spacious-looking Anyaji Headquarters visible Outside the window from inside the Helicopter.</p>
+<p>The Anyaji Headquarters, built broadly as a Japanese-style tiled mansion rather than a Western-style Building, had a considerably large plot even to Taira Kanna, a Young Lady of the Tairaga. A plot of this Size would be difficult for Anyaji to purchase or maintain, no matter how much they sold their military power.</p>
+<p>In an instant, several forces capable of providing such support to Anyaji flashed through Taira Kanna's Head. Among them was the Taira Group, to which Taira Kanna belonged. Tokyo is a Place where countless forces are intertwined, but ultimately, the Taira's influence, with their Main family in Chiba close to Tokyo, was the most dominant, so that was the first thought that came to mind. Just as she was wondering if it was a Place owned by her Orabeoni or Kokoro eonni, Nakanoin Rina opened her mouth.</p>
+<p>「Well, wouldn't it be better to investigate after the Subjugation is over?」</p>
+<p>「That's right. Let's just kill everyone first and then think.」</p>
+<p>As if answering Taira Kanna's muttering, Nakanoin Rina and Muko Neika said to prioritize the Subjugation. Taira Kanna also nodded as if agreeing, muttering, 「It would be best to finish the assigned task first, wouldn't it...」</p>
+<p>「By the way, would Orabeoni's battle be over?」</p>
+<p>「It's probably in full swing right now, or just finished. We matched the time like that in advance.」</p>
+<p>Taira Kanna's group's Attack on the Anyaji Headquarters was scheduled to take place after the battle in Miyashi. If they had attacked in advance, Anyaji would have noticed something strange, so they decided to start the battle with a bit of Leisurely interval.</p>
+<p>As the three former St. Francis Girls' Academy Students spoke, a Helicopter landed on the rooftop of a Building close to the Anyaji Headquarters. As could be understood from the recent Conversation, Taira Kanna's mission was to raid the Anyaji Headquarters, which had been emptied of its main forces.</p>
+<p>Of course, though it was called a 'raid on an empty house,' it was by no means an easy mission. This was because five Guardians remained at the Headquarters, and a considerable number of Anyaji martial monks were also present. Taira Ryuta thought that facing five Anyaji Guardians would be too much even for Taira Kanna, who had single-handedly subdued the troublemakers of the special class, so he had dispatched a support unit to assist Taira Kanna.</p>
+<p>「You may disembark now, Agassi.」</p>
+<p>「Thank you.」</p>
+<p>Taira Kanna, giving the pilot a refreshing Smile, disembarked from the Helicopter. Following Taira Kanna, Nakanoin Rina and Muko Neika also disembarked, all in cyber Suits and armed with their own weaponry.</p>
+<p>On the rooftop, two Women were waiting for Taira Kanna. Judging by the fact that both Women were wearing cyber Suits, they seemed to be the Leaders of the support unit dispatched by Taira Ryuta. They were Mimata Chieri with orange Hair and Sawayanagi Azuma with blue Hair.</p>
+<p>Since the Anyaji Headquarters was not in Miyashi, PMCs could be mobilized, which is why Mimata Chieri of East Weapon and Sawayanagi Azuma of Seryu Military Company were participating.</p>
+<p>「Nice to meet you, Taira Kanna-nim~!」</p>
+<p>「Ah, hello...!」</p>
+<p>Mimata Chieri, having already met many Tairaga members as a former Taira secret agent, greeted Taira Kanna with a bright Smile, while Sawayanagi Azuma, meeting a direct lineage member of the Tairaga for the first time apart from Taira Ryuta, greeted her with a slightly awkward Attitude, appearing nervous.</p>
+<p>「Hello. You are the ones Orabeoni mentioned, right?」</p>
+<p>Both of them simultaneously thought 'Orabeoni?' internally at Taira Kanna's greeting. They felt the Address was strange because they knew Taira Kanna was Taira Ryuta's Aunt. However, since both had encountered many strange clients while operating PMCs, they decided to let it slide.</p>
+<p>「Yes. All preparations were completed before you arrived!」</p>
+<p>「We're fully prepared too.」</p>
+<p>Mimata Chieri and Sawayanagi Azuma had completed their Preparation to Attack the Anyaji Headquarters, which was threatening Taira Ryuta. Seeing their Appearance, Taira Kanna also raised her rapier.</p>
+<p>「We've also finished our Preparation on the way here, so let's depart immediately.」</p>
+<p>Cherry-chan after a long time~!</p>
+<p>Azuma after a long time~!</p>
+<p>Aegyo-ing Liz and Alik, requested by MidNightSKY-nim~!</p>
+<p>Alik first~!</p>
+<p>Alik, showing a Smile he doesn't usually show and making a heart haha Suddenly, strange spirits (?) appeared again hahaha</p>
+<p>Alik striking a Rabbit-ssi pose.... This time, a stray cat appeared hahaha</p>
+<p>Rabbit pose once more~!</p>
+<p>Liz~!</p>
+<p>A wink and a cheek heart~!</p>
+<p>Finger heart~!!</p>

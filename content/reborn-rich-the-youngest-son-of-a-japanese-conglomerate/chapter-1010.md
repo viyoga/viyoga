@@ -5,74 +5,73 @@ weight = 1010
 chapter = 1010
 +++
 
-<p>a before breast chapter check exposure is please surroundings this with your</p>
-<p>Kki-ik.</p>
-<p>Taira Yukiko entered the room Taira Ryuta used with a slightly nostalgic Expression. The room Taira Ryuta had stayed in before was now being used by Taira Yukiko as a computer room. Yukiko, who rarely used the computer outside of Work, hardly used Taira Ryuta's room, but today there was a Reason to use the computer.</p>
-<p>Taira Yukiko sat in front of the computer, turned on the power, and then plugged the UCT she had received from Taira Shizuku into the computer.</p>
-<p>Soon, the files contained in the UCT appeared on the Monitor screen, and the UCT contained a considerable amount of important Information Taira Shizuku had collected.</p>
-<p>Although Taira Shizuku had almost no real power in the Taira Group, as the Head of Household of the Taira Family, she held Command and Responsibility over all the Maids and servants of the Taira Main family.</p>
-<p>There was a significant amount of Manpower to cover the enormous Taira Main family, and with Japanese high-ranking officials frequently visiting the Taira Main family, surprisingly important Information was often collected.</p>
-<p>Taira Shizuku gathered all the Fragments of that Information and, like assembling a puzzle, created new and important Information, collecting it all in the UCT.</p>
-<p>"If I give this to Ryuta, he'll be able to use it well."</p>
-<p>Since Taira Ryuta also had an intelligence organization called Jo Seodang, if she handed over this Information, he would be able to use it well. Yukiko smiled, looking at the computer screen, then made a slightly surprised Expression.</p>
-<p>"Huh? This is...?"</p>
-<p>Inside the UCT, besides the Information Taira Shizuku had gathered from the Taira Main family, there was another Information File, which was about the movements of the deceased Taira Saburo's faction.</p>
-<p>After Taira Saburo's death, the faction that could be called the Taira Saburo faction split into several branches: 70 percent pledged Loyalty to Taira Kanna for Survival, 20 percent returned to being unaffiliated, and the last 10 percent left the Taira Group.</p>
-<p>The latter 10 percent who left Taira, excluding Shinonome Mio, who was said to have become a Cripple, were currently missing, and there was a rumor that Taira Jiro and Taira Ichiro had both pursued and killed them.</p>
-<p>Taira Yukiko had not been well-informed about the 10 percent faction that had left Taira, but Taira Shizuku had left Information about the 10 percent faction that had left the Taira Group.</p>
-<p>-The 10 percent of Saburo's faction appears to have left the Taira Family after hearing Saburo's last Will.</p>
-<p>"Last Will...?"</p>
-<p>Taira Yukiko tilted her Head in bewilderment. Taira Saburo had died due to a car accident or at someone's instigation. There was no Time for him to leave a last Will.</p>
-<p>Of course, he had prepared a Will in case anything happened, but that was about how to use Taira Saburo's personal property, and there was no mention of anyone leaving the Family.</p>
-<p>Taira Yukiko, Taira Saburo's widow, had confirmed all the Wills, so she could be certain of that content.</p>
-<p>However, the UCT handed over by Taira Shizuku mentioned the existence of another last Will, different from what Taira Yukiko knew. Where on earth was this Will? Why had she not known about the existence of this Will?</p>
-<p>"Saburo-ssi...."</p>
-<p>Taira Yukiko, as if unable to understand, spoke her deceased Nampyeon's name and scrolled down the Document.</p>
-<p>-Saburo's faction, which left the Taira Family, is currently...</p>
-<p>"Ryuta...!"</p>
-<p>Nagumo Sian hugged me tightly, welcoming me. One might wonder what people would think, but since I was guided to the CEO's Office where only Nagumo Sian was present, she could hug me without worrying about other people's Gazes. Mmm... the Feeling of her Big Tits pressing firmly against my Body was always delightful.</p>
-<p>Nagumo Sian released the hug and looked at Tsukiyo standing next to me.</p>
-<p>"Who is this...?"</p>
-<p>Nagumo Sian, seeing Tsukiyo for the first time, seemed to sense something from Tsukiyo, who was half Outer God, as befitting a sorceress, but soon wore a puzzled Expression and tilted her Head. It was an Expression that implied she felt something but didn't know what it was. Perhaps Tsukiyo further concealed her Presence when Nagumo Sian seemed to sense something.</p>
-<p>"Hello, Taira Food Boss-nim~! I'm Tsukiyo, Ryuta Oppa's Disciple and driver here~!"</p>
-<p>Tsukiyo greeted brightly and waved her Hand. Nagumo Sian seemed confused again upon hearing the word 'Disciple'.</p>
-<p>"Disciple? You mean a martial arts Disciple, right? The Age Difference doesn't seem that big...?"</p>
-<p>In terms of physical Age, it was true that the Age Difference wasn't significant. Sato Tsukiyo, who formed Tsukiyo, had just become an Adult at 20, so she was only 1 year younger than me, who was 21. It was indeed true that the Age Difference was extremely small for forming a martial arts Master/Disciple Relationship.</p>
-<p>In fact, even Fujigasaki Rinka and I, with a 6-year Age Difference, were considered to have a small Age Difference, so a 1-year difference was extremely small.</p>
-<p>Especially in martial arts schools like Shinkaiyatsude, which are passed down from generation to generation through single transmission rather than increasing the school's power by having many Disciples, the Master and Disciple often had a large Age Difference or the lineage was passed from Father to Son, which is why Nagumo Sian wore a puzzled Expression.</p>
-<p>"Ah, about that...."</p>
-<p>I roughly explained the Reason to Nagumo Sian. Omitting the story that Tsukiyo was an Outer God, I told her that my combat's Foundation Energy had changed from the Abyss to Primordial Chaos, and because of that, I had also changed my martial arts, so Nagumo Sian nodded as if she understood.</p>
-<p>"So, you're trying to continue the lineage of Shinkaiyatsude by taking a Disciple before you forget your original martial arts."</p>
-<p>"Yes."</p>
-<p>So, we chatted for a while. Since we weren't strangers, it would be too bleak to talk Business right after meeting.</p>
-<p>"We can chat later, so shall we talk Business now?"</p>
-<p>Nagumo Sian, who had been chatting for a while, checked the Time and spoke. Since she was supposed to come to my mansion today, as Nagumo Sian said, we could talk later, so it was right to talk Business now.</p>
-<p>Soon, secretaries carrying Documents entered the CEO's Office, and the discussion began about supplying foodstuffs to the companies I had recently contracted with.</p>
-<p>"So... you signed contracts with East Weapon and a few other places this Time?"</p>
-<p>The "few other places" Nagumo Sian mentioned were the Buildings I owned in Neo Tokyo. I was thinking of opening cafeterias in the Buildings, and since I was going to open them anyway, I thought it would be good to receive supplies from Taira Food distribution, so I signed a contract.</p>
-<p>"Yes. So, we need to receive more supplies from Taira Food."</p>
-<p>"That's good for us, then."</p>
-<p>This was a considerably large Matter for Taira Food as well. Although it was just supplying to one company, East Weapon was the largest independent PMC with many personnel, even if the quality was lower, so supplying foodstuffs to that company every single day would result in significant fixed sales.</p>
-<p>"Then, let's sign the contract as is. The contract Conditions remain the same..."</p>
-<p>At Nagumo Sian's Words, I nodded my Head and signed the contract to increase foodstuff supply. With this, my Work for one quarter was essentially finished. Since the Boss had secured a contract of this scale, no one would criticize me even if I ran Auto-Hunting. The remaining tasks would be handled well by the company's employees. That's why the Strategic Planning Team was created, for them to handle things well.</p>
-<p>"Thanks to Ryuta, I'm getting unexpected Performance. Thank you."</p>
-<p>"Since I've become the Boss of Taira Food distribution, I should at least do this much for you."</p>
-<p>Nagumo Sian sent me a sensual Gaze, as if she wanted to Kiss me right away, but since this was inside the company where many people's Eyes were, she seemed to just say thank you and move on.</p>
-<p>"I'll wait a bit until Older Sister finishes her Work, so let's go to the mansion together."</p>
-<p>"Shall we? Yukiko is also coming this way soon, so we can all go together."</p>
-<p>If Nagumo Sian came to my mansion alone, it could lead to unnecessary Misunderstandings (though those Misunderstandings would be true), so I decided to call my adoptive Mother, Yukiko, and disguise it as simply inviting a close unaffiliated Sunbae of my Mother's to the mansion.</p>
-<p>In fact, Yukiko hadn't seen my mansion yet, so I had also called her to show her my Home. For reference, my birth Mother, Jinmija Yeosa, had toured the mansion a few days ago. Like a mom, she seemed to dislike a few things, but still, she seemed quite pleased that her Son lived in a spacious Home.</p>
-<p>"While you wait, look around the company."</p>
-<p>"Shall we?"</p>
-<p>While waiting for Yukiko and Nagumo Sian to finish their Work, I decided to tour the Taira Food Neo Tokyo Branch. Nagumo Sian assigned an employee with good Awareness to us so we could look around comfortably.</p>
-<p>The Taira Food Neo Tokyo Branch was the largest Branch among Taira Food's branches, with a huge Logistics Warehouse next to the Building, so all Taira Food products heading to the metropolitan area would first gather here. Naturally, Taira Food distribution also received goods here and delivered them throughout the metropolitan area.</p>
-<p>"Wow~! Ryuta Oppa, is that delicious?"</p>
-<p>Tsukiyo, looking around the Taira Food Neo Tokyo Branch, saw the piled-up new Snack products and her Eyes sparkled. Since it was a new product I hadn't even tasted, I shook my Head, saying I didn't know, and the employee guiding us smiled and gave us a bag each to try.</p>
-<p>So, we ate new Snack products and our favorite snacks while touring the Building and Logistics Warehouse. Just as we were about to see the last warehouse, I received Contact that Yukiko had arrived, and I moved my Footsteps back to the CEO's Office where Nagumo Sian was.</p>
-<p>Gojoy-nim requested Tsukiyo's Tape attire and breast covering~!</p>
-<p>Tape.</p>
-<p>Tsukiyo's breasts aren't that big, but when you see a front Shot, her Pelvis is incredibly wide, which I like ㅎㅎ</p>
-<p>Breast covering~!</p>
-<p>TheDreaming-nim requested Exposure Vivian Taylor 1. Baseball field Interview 2. Throwing the first pitch at the baseball field with Eyes squeezed shut~!</p>
-<p>2.</p>
-<p>The Blush was too strong, making the Face seem a bit distorted, so I removed the Blush for the second one ㅎㅎ Squeezing Eyes shut didn't work well ㅎㅎ It just looks like throwing with Eyes closed...</p>
+<p>「Geomi and Gamer are dead.」</p>
+<p>The Black Sage muttered, feeling the Jusul he had cast activate. The Jusul that caused death when one of several Triggers was spoken aloud had been triggered.</p>
+<p>「Khehehe, well, that's because those two, Geomi and Gamer, were weak, wasn't it? While doing the Work I ordered this Time, those vigilantes' Equipment wasn't easy to deal with either. Of course, they were just a tasty snack for me, though.」</p>
+<p>At the Black Sage's Words, a huge man wearing a Luchador mask said, tearing into some unidentifiable meat. A few days ago, when he was hunting vigilantes, he called himself Hungry Korean, but he was actually a Murderer who had been active in Mexico, enjoying cannibalism, and was called Ogre, a cannibalistic Monster.</p>
+<p>「As Ogre says, Geomi and Gamer both don't have much direct Combat power. Geomi has nothing to offer besides his Barrier and Spiderweb, and Gamer is just a slightly skilled VR diver. No matter how good their compatibility is, wouldn't there be vigilantes in this crowded New York who can beat those two?」</p>
+<p>This Time, the Woman sitting next to Ogre spoke. She was Hertha Vogel, a bewitching blonde Woman wearing a Black Robe, but the material clung to her Body in a strangely revealing way, showing off her figure.</p>
+<p>Hertha Vogel was a Witch from Germany called the Witch of the Black Forest (Die Hexe des Schwarzwaldes), who had been capturing those lost in the Black Forest and continuously using them as test subjects for her evil magic, until she was caught and chased by the German government. The Black Sage rescued the Witch of the Black Forest from the crisis of being captured and executed, and she joined him.</p>
+<p>「How did they die?」</p>
+<p>A Black Person with a huge greatsword nearly 2 meters long on his back asked the Black Sage. He had the most heterogeneous background among the Monsters under the Black Sage, and was an researcher named Isaac Flint who had been conducting bio-gaejo research to strengthen the human Body.</p>
+<p>When research funds were cut, he couldn't find clinical trial participants, and Isaac Flint experimented on his own body, going mad from the Side Effect, killing everyone in the laboratory, and then wandering the underworld until he was lured under the Black Sage with the promise of a stronger Body.</p>
+<p>Isaac Flint, who enjoyed Combat and Murder to the point where he couldn't be called a former researcher, was being called Berserker by his colleagues instead of his name.</p>
+<p>As much as the Black Sage's Subordinates, who were anything but ordinary, had named him Berserker, Isaac Flint's Madness was unusual. He could be said to be a madman who would do anything for a thrilling battle.</p>
+<p>「The Geumji Jusul was activated. Either the police investigated, or some secret organization interrogated them, and Geomi or Gamer made a Mistake.」</p>
+<p>The Black Sage said as if it was nothing, in response to Berserker's Question. He didn't seem to care much even though two of his buha had died.</p>
+<p>「Even so, since they caught Geomi and Gamer, they must be worth fighting. Shall I take care of them?」</p>
+<p>The Black Sage shook his Head at the warmongering Berserker's Words.</p>
+<p>「There's something more important than that. I've found out when and where the Shard of Omniscience will appear.」</p>
+<p>「Really? Where is it?」</p>
+<p>The Witch of the Black Forest asked back with a delighted Expression at the Black Sage's Words. The Witch of the Black Forest had also grown up listening to the legend of the Geumseo called the Shard of Omniscience since she was a child, so she had high Expectations.</p>
+<p>The other two weren't sorcerers, so they didn't care much even though the Black Sage said it was important.</p>
+<p>「Three days from now, at midnight. It's said it will be put up for auction at the AmSang Auction House.」</p>
+<p>「Tsk, AmSang is a bit tough, isn't it?」</p>
+<p>As much as it was the Shard of Omniscience that countless sorcerers and Collectors were aiming for, he couldn't be sure if he could buy it with the Money the Black Sage had.</p>
+<p>The Black Sage originally had a lot of property and had made a lot of Money from the Black Knight's vigilante activities in New York, but he was Worried because he couldn't be sure if he could buy the Shard of Omniscience even with that Money.</p>
+<p>「You all agree that we can't rob AmSang.」</p>
+<p>With the Combat power the Black Sage had, he could rob AmSang's auction. But this Act would turn the underworld forces of the entire World into Enemies. It could be said that it was something that should never be done if you thought about the aftermath.</p>
+<p>「Then, how about participating in the auction first, and if that doesn't work, stealing the Shard of Omniscience from the Person who wins the bid as Plan B?」</p>
+<p>「Yes, that's the only way.」</p>
+<p>Once the Book appeared at the auction house, he was confident that he could track it no matter who it went to. Even if someone bought the Shard of Omniscience, he had an Attitude that he would never acknowledge that Person as its owner.</p>
+<p>「There will definitely be many Idiots thinking the same thing as us, so let's all prepare to fight.」</p>
+<p>As the Black Sage gave the Combat Command, all three Subordinates fell into Excitement. Ogre was excited because he could cannibalize again with the upcoming battle, and Berserker was excited about the battle itself. The Witch of the Black Forest was excited about the Expectation of seeing the Shard of Omniscience, the loot, rather than the battle.</p>
+<p>「We should mobilize all the Collection items that the Black Sage-nim has gathered.」</p>
+<p>「We should.」</p>
+<p>The Black Sage traveled the World and gathered People who were skilled but wouldn't become his buha as Collection items. The fake Black Knight Soda Haruto and Sonny Vine, who handles vines, were also the Black Sage's Collection items.</p>
+<p>He was forcibly commanding and handling them by adding various Geumji, and he was thinking of mobilizing all the Collection items in this jakjeon.</p>
+<p>The Black Sage cherished his Collection items, but the Shard of Omniscience was so precious that it was an unavoidable Choice. Even if he lost all the Collection items he had gathered so far, it could be said that it would be a very big profit if he obtained the Shard of Omniscience.</p>
+<p>「Isaac, Hertha. Let's come up with a jakjeon.」</p>
+<p>The brilliant researcher-turned-Berserker and the cunning Witch Hertha Vogel were also serving as the Black Sage's staff, so they nodded at the Black Sage's Command.</p>
+<p>When I lowered the Entwined Sheets, I saw bare skin with black straight Hair down to her waist and only wearing underwear. There's only one Person among our Party with this Hairstyle.</p>
+<p>The Woman on my bed, covered with Entwined Sheets and wearing only underwear, was Kurayamada Kirie. As expected of an excellent Swordsman, her Sensation was sharp, so even though she had fallen asleep while waiting for me, she seemed to have woken up when I lowered the Entwined Sheets I was covering.</p>
+<p>「Why are you so late?」</p>
+<p>Kurayamada Kirie said, nagging about me being late without even thinking about the fact that she had been secretly waiting for me.</p>
+<p>If I had been late knowing that Kurayamada Kirie was waiting for me, it could be said that it was my Mistake, but I had no Idea she was waiting, so it wasn't my Mistake. It was Kurayamada Kirie's Mistake for waiting for me as she pleased.</p>
+<p>「You should have told me in advance.」</p>
+<p>「...I forgot.」</p>
+<p>Kurayamada Kirie, knowing that she had been unreasonable, said that she had forgotten with a flushed Face. She seemed to be nagging because she was embarrassed that she had been caught falling asleep while waiting for me.</p>
+<p>I found such Kurayamada Kirie a bit cute, so I gently pinched her cheek.</p>
+<p>「Why were you waiting for me?」</p>
+<p>「You know. Why I was waiting...」</p>
+<p>Like Kurayamada Kirie's Answer, I asked why, but of course I guessed the Reason. Kurayamada Kirie's lust is quite strong, so she probably couldn't stand seeing me after a long Time.</p>
+<p>Besides, just looking at her waiting on my bed In Underwear, I could tell that she was waiting to have Sex with me.</p>
+<p>「I haven't showered yet.」</p>
+<p>「It's okay.」</p>
+<p>Kurayamada Kirie said it was okay in 0.1 seconds, as if trying to stop me from going to shower.</p>
+<p>「I'll lick your whole Body.... It's okay if you don't shower.」</p>
+<p>Of course, we're not Animals, so licking with our tongues doesn't make us clean. But I couldn't help but get a little excited when Kurayamada Kirie said she would lick my whole Body.</p>
+<p>「Then.... Before you lick me, will you take off my Clothes first?」</p>
+<p>As I stood in front of the bed with my Arms spread wide, Kurayamada Kirie, who had been lying on the bed, got up and came closer on her knees, starting to take off my Clothes one by one.</p>
+<p>「F, first, the c, collar.... Haa.... Haa.... Haa...♥」</p>
+<p>Kurayamada Kirie started to get excited, smelling my Smell while taking off my Clothes. I could see that she was so excited that she was stuttering. And her Eyes were gradually going crazy with lust.</p>
+<p>Kurayamada Kirie didn't take off my Clothes as quickly as I thought she would, stroking my Pectoral Muscle or touching my Abdominal Muscles with her finger while taking off my Clothes.</p>
+<p>I expected her to tear off my Clothes and start Sex right away, but it seemed she was planning to enjoy some Foreplay. No matter how late she took off my Clothes, I wasn't wearing many Clothes because it was indoors, so I quickly became naked.</p>
+<p>「Now that I've taken off all my Clothes, you're going to lick my Body with your tongue as Kirie said, right?」</p>
+<p>「I'll lick every nook and cranny...♥」</p>
+<p>Kurayamada Kirie said she would lick every nook and cranny, but as soon as I became naked, she put my cock in her mouth. Seeing her suck on the sausage right away, it seemed she was the Style to eat the delicious stuff first.</p>
+<p>Kirie B-cut~!</p>
+<p>Chomisaemeonji-nim requested Bunny Girl, Reverse Bunny Girl Liz~!</p>
+<p>Bunny Girl~!</p>
+<p>Reverse Bunny~!</p>
+<p>Kkiyot~!</p>

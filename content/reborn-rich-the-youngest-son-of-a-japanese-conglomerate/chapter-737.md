@@ -5,73 +5,93 @@ weight = 737
 chapter = 737
 +++
 
-<p>After having dinner and some seriously hot sex, Ha Ju-yoon passed out before 12 o'clock with a very satisfied expression. I thought we were going to listen to the New Year's bell together, but seeing her sleeping so contentedly, smacking her lips and mumbling, I figured it was better to let her sleep than to wake her up.</p>
-<p>Uuung! Uuung!</p>
-<p>As 12 o'clock approached, my phone was buzzing non-stop. Most of them were messages from acquaintances on KakaoTalk, LINE, Dark Web apps, and texts, wishing me a Happy New Year.</p>
-<p>-Han Yu-gyeong: Yong-tae, thank you for this year, and please take care of me next year too. I love you❤️</p>
-<p>-Arisu: Is it almost New Year's in Korea? Ryuta, I want to see you soon~ I'll be going to Japan soon too ( •͈ᴗ-)ᓂ-ෆ</p>
-<p>-Cherry-chan❤️: Hoobae-nim~! I'm watching Hoobae-nim's videos and the New Year is almost here, so I'm contacting you! Please make new videos in '54 too♥</p>
-<p>Han Yu-gyeong and Arisu contacted me first, followed by a text from Mimata Chieri. Mimata Chieri's text was a bit strange, but I replied with a smile.</p>
-<p>-Yukiko: I'll make sure to pass on the story about the Taira New Year's meeting tomorrow. I hope Ryuta's mission ends soon and we can be together. If I miss you too much, I might visit you in your dreams?</p>
-<p>Yukiko's text, saying she might visit me in my dreams, didn't seem like a lie, so I replied that I missed her too and she could come anytime. As a succubus, Yukiko had a real chance of visiting me in my dreams.</p>
-<p>-Minamoto Risa: Meeting you this year seems like the luckiest thing. Please take care of me next year too.</p>
-<p>It was a simple text, typical of Minamoto Risa. She said she's been studying hard for her exams recently, and since Minamoto Risa is smart, the results will be good.</p>
-<p>-Seizawa Shii: Ryuta-chi! When are you coming to Japan! I bought a coin laundry for nothing because I can't see Ryuta-chi~! Are you coming in the New Year?</p>
-<p>Seizawa Shii, while working as an ogre, mentioned the coin laundry in Miyashi even though she was in Tokyo, not Miyashi. It seemed like she was a little embarrassed to say directly that she wanted to see me.</p>
-<p>-Sakagami Rena: My lord, it was a meaningful 2053 to be able to serve you. I will continue to devote myself to you, the hero of the world.</p>
-<p>-Saionji Diana: If it weren't for you, Sensei, I'd still be in a wheelchair. Thank you, Sensei. I will repay this debt for the rest of my life.</p>
-<p>-Otagi Yuka: Come quickly. I can't drink Sensei's milk, so my vampire instincts are about to burst out.</p>
-<p>Among the students who decided to follow me after graduation, Sakagami Rena, Saionji Diana, and Otagi Yuka sent me LINE messages almost simultaneously. Except for Sakagami Rena, the other two don't have good relationships with their families, and Sakagami Rena also feels independent, so they must be together for the New Year.</p>
-<p>By the way, I collected a lot of semen in a bottle and gave it to Otagi Yuka before going to Korea, but did she already drink it all? Or is she just pretending to have drunk it all because she misses me? I don't know. But since I collected a huge amount of semen in a bottle, the latter is more likely.</p>
-<p>-Konoe Akina: Thanks to you, Sensei, I was able to return home this year, become the head of the Konoe family, and live a school life. From next year, I will be your strength.</p>
-<p>-Urabe Konoka: Shinkai Hime-sama said she wants to see you when she comes to Japan. I miss you too, Sensei....</p>
-<p>Starting with Konoe Akina and Urabe Konoka, LINE messages from the students of the special class at St. Francisco Girls' Academy came in a row, including Uenozono Karen and Kujo Kina. Is this why I'm a teacher? There are still some students who haven't sent me LINE messages, but they might be planning to send them for the New Year, or they might have other things to do.</p>
-<p>-Sawayanagi Azuma: After Investor-nim acquired our Seryu Military Company, all of our fates changed. Thank you. Even when I look at my future vision, there's only a good future, so please take care of us next year too!</p>
-<p>-Sawayanagi Seari: Ryuta-nim~! I miss you! Let's meet often in the New Year!</p>
-<p>At the same time as the LINE message from Sawayanagi Azuma, the president of Seryu Military Company, the other employees of Seryu Military Company sent me texts. They must be together too. I replied and glanced at the TV.</p>
-<p>-5! 4! 3! 2! 1!! 2053 is gone and 2054 has arrived! Happy New Year to everyone!</p>
-<p>The year 2054 arrived and the New Year's bell was ringing. As the date changed to 2054, my phone vibrated again, and it seemed like Nagumo Sian, Jinmija Yeosa, Jeong Da-rim, and others who hadn't contacted me just now were sending texts for the New Year.</p>
-<p>But.... What is this text?</p>
-<p>-Taira Kanna: Oraboni, I'm an adult now.</p>
-<p>-Naruse Shiyo: Sensei, I'm twenty years old now (⸝⸝&gt; ᴗ•⸝⸝)!!</p>
-<p>-Alik: Ryuta, Alik adult.</p>
-<p>The kids who were minors just a few seconds ago were sending texts saying they were adults now that the year had changed. What should I reply? While I was wondering, Ha Ju-yoon, who had woken up from the New Year's bell, hugged me from behind.</p>
-<p>"Heung.... It's 2054 now? Happy New Year, Yong-tae."</p>
-<p>"Happy New Year to you too, Noona."</p>
-<p>Yeah, let's reply with a simple Happy New Year, like I did with Ha Ju-yoon. If I react strangely, they might go crazy. Especially Taira Kanna and Naruse Shiyo, who sometimes looked at me with yandere-like expressions, which was a bit scary. As I was replying to the New Year's greetings, Ha Ju-yoon bit my ear slightly, as if wanting attention, and opened her mouth.</p>
-<p>"How about having the first sex of 2054 with the actress who won the Best Supporting Actress award in 2053?"</p>
-<p>"Sounds good."</p>
-<p>I immediately said yes to Ha Ju-yoon's words without thinking. Was it a spinal reflex? I thought that I'm always horny, so I should be careful of honey traps in the future.</p>
-<p>"Hehe.... Knowing that, I brought the dress I received at the awards ceremony in advance."</p>
-<p>I kept wondering what was in the pretty big bag she was carrying around, and it turned out she had brought the dress from the awards ceremony that I had found impressive. As expected.... Ha Ju-yoon was the best actress. She's always preparing for a real battle(?) with me.</p>
+<p>Kim Jae-wook, the audit team leader of Shinkang Life Insurance, wore a very nervous expression. It was because of a summons from Han Yu-gyeong, the granddaughter of the Chairman of Shinkang Group, who became the president of Shinkang Life Insurance as a parachute appointment.</p>
+<p>"What I would like to ask the audit team is if there are any audit records of former President Lee Taek-joon."</p>
+<p>He felt like what was coming had arrived. As Kim Jae-wook was the audit team leader who audited the entire Shinkang Life Insurance, he was well aware of the irregularities of former President Lee Taek-joon, who had been in office until recently.</p>
+<p>In order for Kim Jae-wook to survive, he should have gone to the president's office with evidence of the former president's embezzlement or illegal activities as soon as the new president took office.</p>
+<p>However, Kim Jae-wook's big misstep was hesitating because the new president was only a 21-year-old female college student. This was because the president directly looking for him gave the impression that he was trying to cover up the former president's wrongdoings.</p>
+<p>"I have it. H-Here is the data about him, President-nim...!"</p>
+<p>Kim Jae-wook handed over the UCT (Universal Connection Terminal) containing the data. And at the same time, he opened his mouth again to make excuses.</p>
+<p>"As it is the former president's wrongdoing, I was collecting data. If I reported it elsewhere, something big might happen...."</p>
+<p>"I understand. I won't fire you or hold you responsible, so be quiet."</p>
+<p>The new president, Han Yu-gyeong, coldly cut off Kim Jae-wook's words. Kim Jae-wook sighed in relief at those words. And after connecting the UCT to the computer and skimming through it, he nodded.</p>
+<p>"Heueung... He really made a killing, didn't he...? Good. I think this is enough."</p>
+<p>What's enough? Kim Jae-wook felt a great sense of unease at Han Yu-gyeong's words. Soon, Kim Jae-wook realized the identity of that unease.</p>
+<p>"Only the audit team leader and deputy team leader remain, and the rest can go back."</p>
+<p>The audit team that was called together left the president's office, leaving only Deputy Team Leader Bang Ju-hye and Team Leader Kim Jae-wook. Now, in the president's office, there were only Han Yu-gyeong's bodyguards standing like statues at parade rest, Kim Jae-wook and Bang Ju-hye, and the president, Han Yu-gyeong.</p>
+<p>"Do you know why I left the audit team leader and deputy team leader behind?"</p>
+<p>"I-I don't know."</p>
+<p>"I don't know...."</p>
+<p>Han Yu-gyeong continued to speak as if she didn't expect an answer in the first place.</p>
+<p>"It's because the audit team is the only department here at Shinkang Life Insurance that has the authority to clean up the inside. What I want is...."</p>
+<p>Han Yu-gyeong, who was speaking softly, looked at the two members of the audit team. Her eyes were so cold that Kim Jae-wook felt like a mouse in front of a snake.</p>
+<p>"To completely grasp this Shinkang Life Insurance in my hands. It means that I don't want the employees that my uncles have planted in Shinkang Life Insurance to be here. Do you understand?"</p>
+<p>Han Yu-gyeong was different from the presidents of Shinkang Life Insurance who had just passed through like now. Han Yu-gyeong wanted to make this Shinkang Life Insurance completely her own. Her mindset was different from the former presidents who received a salary, embezzled the company's money, and comfortably stayed before being transferred elsewhere.</p>
+<p>"Yes! Of course, according to the President-nim's wishes...."</p>
+<p>"Of course, you won't properly follow what I, a child, tell you to do. First, I will show you an example."</p>
+<p>Han Yu-gyeong cut off Kim Jae-wook's words and said. An example? What is she talking about? When the audit team leader and deputy team leader had questions, the door opened.</p>
+<p>Former President Lee Taek-joon, who should have left the company, was dragged in by a huge white man. The huge white man sat Lee Taek-joon, who was limply slumped as if he had been anesthetized, in a chair and fixed his body with cable ties and duct tape as if water was flowing.</p>
+<p>Seeing that, Han Yu-gyeong got up from her seat and sat on the heavy desk in the president's office. She was now in a position to look down at Lee Taek-joon, who was sitting down, from close range.</p>
+<p>"Wake him up."</p>
+<p>"Yes."</p>
+<p>At Han Yu-gyeong's words, the huge white man gave Lee Taek-joon an electric injection. Whether that injection was effective or not, Lee Taek-joon quickly opened his eyes.</p>
+<p>"W-What is this...!"</p>
+<p>"I'm sorry. I'm an inexperienced college student, so I brought the former president here because I have something to ask."</p>
+<p>Lee Taek-joon rolled his eyes at Han Yu-gyeong's words. He seemed to be figuring out what was going on.</p>
+<p>"Ahahaha...! I think I took the handover too lightly. May I know what the question is?"</p>
+<p>Lee Taek-joon answered with a sly expression and tone, but he felt his back getting wet. It was natural to be nervous when he woke up from unconsciousness and found himself tied to a chair with huge men around him.</p>
+<p>"First of all, I have about three or four questions to ask. First, did the former president install the bugging device in the president's office?"</p>
+<p>When Han Yu-gyeong spoke while holding a small camera and microphone in her hand, the two members of the audit team swallowed hard.</p>
+<p>"N-No, I didn't do it...! I only heard that the President-nim was taking office at Shinkang Life Insurance an hour or two ago. There wasn't even time to install it!"</p>
+<p>That was true. It hadn't been a few hours since Han Yu-gyeong chose to go to Shinkang Life Insurance. There wasn't enough time to install a bugging device hidden in a secret place, and it seemed unlikely that a president would install a bugging device in his own room, so it seemed true that Lee Taek-joon hadn't installed the bugging device.</p>
+<p>"Then where would they have installed the bugging device?"</p>
+<p>"W-Well.... Wouldn't it be Han Byeong-jae and Han Woo-min, who are competing with President Han Gyeong-jae for the succession?"</p>
+<p>That was certainly true as well. Since Shinkang Life Insurance was headed by Lee Taek-joon, who was in the Han Gyeong-jae line, it was highly likely that Han Gyeong-jae's opponents had installed the bugging device.</p>
+<p>"Is that so. Thank you for your opinion. Then, here's the second question. What did you think of me to try to complete the handover with just a few documents?"</p>
+<p>Han Yu-gyeong's second question was difficult to answer. This was because both Han Yu-gyeong and Lee Taek-joon knew the meaning contained in those few handover documents.</p>
+<p>"I'll make it easier for you to answer. You'll be able to answer the next question well too."</p>
+<p>Wiiiiiing!</p>
+<p>One of the Vanguard agents approached Lee Taek-joon, who was fixed to the chair, with an electric drill.</p>
+<p>"Kuaaaaaak!"</p>
+<p>Blood splattered on his right arm, and at the same time, Lee Taek-joon's scream echoed. One person drilled a hole in his arm with an electric drill, and another person next to him injected a hemostatic agent to stop the bleeding. There were many stories to hear, so Lee Taek-joon couldn't die from excessive bleeding now.</p>
+<p>"Don't worry. In this day and age, having a cyber implant on your arms and legs isn't a flaw."</p>
+<p>Han Yu-gyeong's words were a threat. It was a threat that she would make not only his arms but also his legs unusable.</p>
+<p>"Now, answer me? What did you think of me?"</p>
+<p>"I-I'm sorry...! I'm sorry! I just thought you were a college student who didn't know anything...!"</p>
+<p>Han Yu-gyeong smiled at Lee Taek-joon's answer.</p>
+<p>"I understand. Since you've answered, let's move on to the next question. This time, it's a question about embezzlement."</p>
+<p>Wiiiiiing....!</p>
+<p>At the same time as Han Yu-gyeong's words, the blade of the electric drill began to rotate threateningly. The head and deputy head of the audit team, who were watching the scene, were terrified. Even the female deputy head involuntarily peed herself.</p>
+<p>The two members of the audit team almost simultaneously recalled what Han Yu-gyeong had said.</p>
+<p>-Of course, you won't properly follow what I, a child, tell you to do. First, I will show you an example.</p>
+<p>It was a strong warning that if they didn't do what they were told, they could end up like this.</p>
+<p>####</p>
+<p>Everyone only drank one can of beer, so only one person was drunk. The only person who was drunk was Saionji Diana. Wow, she's really weak with alcohol....</p>
+<p>"Heueungeu, Teacher-niim...!"</p>
+<p>Saionji Diana's face was red as she clung to my arm and made heueungeu noises, and seeing that, Alik clung to my other arm.</p>
+<p>"I want to hug Ryuta's arm too...!"</p>
+<p>As expected of a Russian girl, Alik, who had become a hot body before I knew it, hugged my arm tightly, and I felt her soft breasts pressing against me. Of course, I also felt Saionji Diana's breasts pressing against my other arm, so I felt twice as good.</p>
+<p>"Alik, you've grown up so much...."</p>
+<p>When I first met her, she was skinny because she couldn't get enough to eat under the slave trader, but now she's a well-developed high school girl, so I felt a sense of pride.</p>
+<p>"Yes, Alik is an adult."</p>
+<p>As I was looking at Alik with pride, the students who had heard the explanation from Urabe Konoka looked at me.</p>
+<p>"The black energy that the teacher used is a power received from God?"</p>
+<p>"Well, yeah. It's a bit different from the God we know, though. Maybe it's similar to a transcendent being from another world?"</p>
+<p>In fact, Simyeon or (although I've never actually seen them) Simyeonui ttal didn't match the image of God that we think of as God.</p>
+<p>"Anyway, be careful until my power comes back because of those circumstances."</p>
+<p>"Surely Teacher-ssi won't get kidnapped just because you've gotten a little weaker, right?"</p>
+<p>Otaki Yuka said playfully after hearing my words.</p>
+<p>"I'm not an important person, who would try to kidnap me?"</p>
+<p>If it were Jin Yong-tae or Taira Ryuta, there might be a reason to kidnap me, but now I was just a Korean teacher, the second foreign language at St. Francis Girls' Academy. I could say that there was no reason for anyone to kidnap me.</p>
 <p>###</p>
-<p>2054, Chiba Prefecture, Taira Main House.</p>
-<p>Even though it was still early in the morning, the Taira family's large parking lot was already full. It was because of the Taira family members and people from all walks of life who had gathered to give New Year's greetings to Taira Danjo, the head of the Taira family and the head of the Taira Group.</p>
-<p>But even though the large parking lot was full, there were no ordinary people among those who came here. Even excluding the Taira family members, most of them were presidents of well-known mid-sized companies in Japan, influential politicians, local influential figures, famous journalists or entertainers, and highly educated professors, people who were well-known in various fields.</p>
-<p>Of course, many influential figures also gathered on the Minamoto side, which was the Taira family's rival, but the Minamoto side had more visits from aristocratic families such as the old nobility, and the Taira side, which was flexible in accepting various talents, had more visits from promising people from various fields, so the Taira side had more New Year's greetings every year.</p>
-<p>The New Year's greetings took place after the Taira family's meal. Of course, there was also a place for guests to have breakfast, so the guests weren't just waiting endlessly. Everyone was able to spend their time without getting bored, eating the New Year's food prepared by the Taira family and talking to each other.</p>
-<p>"Is everyone here?"</p>
-<p>Taira Danjo, who was sitting at the head of the table in the Taira family's dining room, opened his mouth. He glanced around and saw a few empty seats.</p>
-<p>"Tabenobu and Gensuke are abroad, so they couldn't come."</p>
-<p>"Hmm...!"</p>
-<p>Taira Ichiro said that his sons, Taira Tabenobu and Gensuke, couldn't come. Taira Tabenobu was working at the Taira Group's US branch, and Taira Gensuke was working at the Taira Group's Latin American branch, so it seemed like they couldn't participate. Taira Danjo nodded expressionlessly at Taira Ichiro's words.</p>
-<p>"Even so, it's not easy to get together unless there's something else going on, so shouldn't we call everyone on a day like today?"</p>
-<p>Taira Jiro, who had brought all of his children, said as if to provoke Taira Ichiro. Taira Ichiro didn't react at all, as if he couldn't hear Taira Jiro's words.</p>
-<p>"Our family has all come too."</p>
-<p>Taira Kokoro, as if agreeing with Taira Jiro's words, smiled and answered as she looked at her husband and children.</p>
-<p>"Ryuta...."</p>
-<p>"That's enough. I know you can't come today because of the mission I sent you on."</p>
-<p>When Taira Yukiko opened her mouth, Taira Danjo waved his hand and said. The words were strange.</p>
-<p>When Taira Ichiro said that his children were missing from the gathering, Taira Danjo didn't say anything other than "hmm," but the fact that he said it was okay about Taira Ryuta's matter felt like he was blaming Taira Ichiro.</p>
-<p>"Let's eat first."</p>
-<p>At Taira Danjo's words, everyone picked up their chopsticks. Everyone quietly began eating Osechi, a traditional Japanese New Year's dish.</p>
-<p>"There were many good things and bad things last year. In particular, Saburo's death was quite bad."</p>
-<p>Taira Danjo opened his mouth during the meal. At Taira Danjo's words, Taira Shizuku shed tears and wiped her eyes with a handkerchief.</p>
-<p>"I hope that only good things happen to our Taira family this year."</p>
-<p>Taira Danjo didn't mention Taira Saburo's death any further. As Taira Danjo said, good things can't always happen.</p>
-<p>Bad things could happen this year as well, just like last year, but Taira Danjo hoped that the bad things wouldn't be his children killing each other. Of course, he knew very well that it was a vain hope. Taira Danjo himself had killed most of his siblings and become the head of the Taira Group.</p>
-<p>_____</p>
-<p>Armpit seduction illustration requested by RefundAbsolutelyImpossible-nim!</p>
-<p>I thought about what armpit seduction could be, and it seems like this pose is the best ㅎㅎ</p>
-<p>Bikini seduction illustration requested by RefundAbsolutelyImpossible-nim!</p>
-<p>Kkiyot!</p>
+<p>"Uhehehe.... Older brother....!"</p>
+<p>In a dark room, a woman's voice is heard, and eyes that shine eerily like wild animals illuminate the darkness.</p>
+<p>"Just be patient. I.... I can be patient too, so older brother can be patient too, right?"</p>
+<p>The woman, who was muttering incomprehensible things, tapped something. And the screen of her smartphone turned on, revealing the woman's face in the darkness.</p>
+<p>The face revealed by the cold light of the smartphone was Taira Kanna. Her empty eyes and melted expression created an atmosphere of madness.</p>
+<p>_____________</p>
+<p>Illustration of Han Yu-gyeong and Ha Ju-yoon's mother and daughter in belly dancer outfits requested by MidNightSKY-nim~!</p>
+<p>Starting with the mother, Ha Ju-yoon~!</p>
+<p>I thought it would be quite difficult to create Ha Ju-yoon with the new model, but it turns out it can be done hehe</p>
+<p>Daughter Han Yu-gyeong!</p>
+<p>Kiyoot!</p>

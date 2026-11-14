@@ -5,92 +5,81 @@ weight = 1072
 chapter = 1072
 +++
 
-<p>"Ah-r.... No, François."</p>
-<p>"Th-thank you for saving me."</p>
-<p>I opened my mouth, carrying my fallen Sabu on my back and looking at Arisu.</p>
-<p>Because someone might be watching or eavesdropping from afar, I didn't say Arisu's name. Arisu, perhaps noticing that, didn't say my name and only offered thanks. I'll have to talk about the details separately later.</p>
-<p>With my Sabu on my back, I began looting the Items scattered around. First, I picked up the Magic Tome and staff dropped by the Black Magician and approached the Fragment of Omniscience contenders who had been chasing Arisu.</p>
-<p>I picked up a few Items dropped by the Vampire, half of whose Body was blown away and dead, and even the Sword of the man in melted Armor lying next to him. The Armor had melted, so I couldn't pick it up.... Huh? This Person is the SPF New York Branch Chief, isn't he?</p>
-<p>When I looked closely to pick up the Armor, the man in Armor was the SPF New York Branch Chief, infamous among Vampires and werewolves.</p>
-<p>Then the Vampire next to him was.... Oh, Fuck, it's the Vampire Grand Duke, isn't it? To think that the first Vampire to cross from Europe to the New World was lying dead, who the hell was the Black Robe Magician who killed both of them simultaneously?</p>
-<p>Since the SPF New York Branch Chief and the Vampire Grand Duke are dead, the Eastern USA Underworld will be in utter Confusion for a while. Since the SPF New York Branch Chief, who lent a hand in attacking Otagi Yuka, is dead, it's not a bad thing for me, but still, the SPF was a necessary organization for Humans.</p>
-<p>If things go wrong, it could lead to a Vampire Apocalypse Ending, so I had to make sure it didn't completely Collapse. Of course, since the Vampire Grand Duke also died, what I'm worried about won't happen.</p>
-<p>And as I was meticulously picking up the Lizardman's accessory and trident, and even the Magic Tomes and equipment the Magicians had, Arisu subtly approached.</p>
-<p>"There are quite a lot of good Items buried around here. Are you going to pick up a few more?"</p>
-<p>Certainly, this area was where Strong People clashed, so there must be many good Items. But I shook my Head.</p>
-<p>"No, because I also have to take care of Sabu, I'll just do this much."</p>
-<p>Getting Items is good, but treating Sabu was the priority. I picked up the Items I just got because they were right in front of my Eyes, but searching these Ruins would take a tremendous amount of Time, so it was right for me to withdraw.</p>
-<p>"Really...? Then hurry and take care of Sabu. I'll give you a few things I got from here."</p>
-<p>Arisu was an Angel, as expected. It must be hard to search since it's so ruined, yet she's offering to share the Items she found.</p>
-<p>I nodded, then said "See you later" and, carrying the Items I'd collected and Sabu, flew away, beginning to move away from the center of the Fragment of Omniscience struggle.</p>
-<p>The Scenery of New Rochelle, seen as I flew, was a mess. Of course, it wasn't as if the entire central area had been flattened, but intact-looking Buildings were extremely rare. Even a City bombed during World War III wouldn't be this bad.</p>
-<p>With New Rochelle, which is right next to New York and could even be considered New York, so utterly destroyed, I became very curious about how the USA government would respond.</p>
-<p>Of course, knowing such an Event might occur, they issued an emergency evacuation order, so casualties wouldn't be large, but it would be a considerable Political risk.</p>
-<p>The Ruins of New Rochelle. There was someone harvesting something, like Phantom Thief François. It was a thin man in a researcher's attire, accompanied by Cyborgs as bodyguards on both sides, searching through the Ruins.</p>
-<p>However, instead of collecting rare Items like Phantom Thief François, what this man in researcher's attire was collecting was something entirely different.</p>
-<p>"Oh, I found it! That's right...!"</p>
-<p>The man in researcher's attire, though the Body was in pieces, after finding the intact Head of a Black Person, was extremely delighted.</p>
-<p>"I happened to witness the battle and prayed that the Head would be intact, to think it was found perfectly intact like this! What luck!"</p>
-<p>The Black Person, with only his Head remaining, was none other than the Berserker Isaac Flint, who had battled Shimokawabe Airen.</p>
-<p>Having dueled with Shimokawabe Airen, his entire Body was severed, leaving only his Head intact, making it an Item worth collecting for this man in researcher's attire.</p>
-<p>"Quickly, put it in the ice Box."</p>
-<p>At the man in researcher's attire's Words, the Cyborg brought the Box it was holding. What the Cyborg brought was a cryogenic ice Box equipped with its own Battery.</p>
-<p>The Cyborg opened the ice Box and carefully placed Isaac Flint's Head inside. The ice Box already contained many Heads.</p>
-<p>Although the sight of countless frozen Heads was extremely eerie, the man in researcher's attire, on the contrary, smiled contentedly like a farmer looking at a bountiful Harvest.</p>
-<p>"Hahahaha...! With this many Heads, it should be enough combat Data to use for the Reito Project."</p>
-<p>The man in researcher's attire muttered and gave a Command with his finger to close the ice Box. Because the ice Box was full, he couldn't collect any more Heads, so the man in researcher's attire decided to withdraw.</p>
-<p>"I wish more of these battle Events would occur. So we can collect a lot of Data. Hmm.... Next time, we might even participate directly to collect Data. Because it's about Time to create a prototype...."</p>
-<p>The man in researcher's attire walked among the Cyborgs carrying the ice Box and muttered. The Cyborgs paid no attention to the man in researcher's attire's muttering and focused solely on the mission of moving the ice Box.</p>
-<p>The hideout in Superior, Southern USA.</p>
-<p>"Kyaaaaa! Fuck!! Damn it! Daaamn it!!"</p>
-<p>A fat white man screamed and stomped his Feet. Seeing the man expressing unbearable Anger, a man who appeared to be a Native American approached, holding a pipe Cigarette in his mouth.</p>
-<p>"What's wrong? Jacob."</p>
-<p>"Damn it! Damn it!! Quickly, call Famine! This...! This...! This is no ordinary Matter! Famine! Yes, Famine must know...!"</p>
-<p>Because it wasn't the first time the fat man called Jacob had made such a Fuss, the Native American man merely puffed on his pipe Cigarette and didn't move.</p>
-<p>"Why aren't you moving?! Damn it! Yee, if you won't do it, I'll go myself...!"</p>
-<p>Jacob pushed away the man called Yee and tried to go to Famine himself. But Jacob's mere fat push had no effect on Yee at all.</p>
-<p>Yee, possessing a trained Body, looked down at Jacob nonchalantly. But he wore a slightly serious Expression, because no matter how much Jacob fussed, he had never pushed Yee, whose physical Ability was so different.</p>
-<p>"What's wrong? Tell me, Jacob. Because I need to know what's wrong to tell Famine."</p>
-<p>"C-Cunt...! He's dead! He's dead!!"</p>
-<p>"Dead?"</p>
-<p>Thinking, "Dead, suddenly? What does that mean?", Yee asked Jacob again. Because he was rambling so much, he couldn't understand well.</p>
-<p>"So, you need to tell me who died to whom so I can inform Famine. Can you calm down a little?"</p>
-<p>"Hmph...! Yes, I understand. Hmph...! Hmph...!"</p>
-<p>Jacob, as Yee said, took a deep breath in and out and began to calm down. After taking a deep breath, Jacob, who had regained some composure, looked at Yee and opened his mouth.</p>
-<p>"Behemoth is dead. By Black Knight."</p>
-<p>"Behemoth...?!"</p>
-<p>"Y-Yes! He's dead! Damn it...! Behemoth! My Behemoth is dead!!"</p>
-<p>At Yee's repeated question, Jacob lost the composure he had just barely gathered. Yee, with a slightly troubled Expression, looked at the frantic Jacob, then raised his hand and struck him on the Back of the neck.</p>
-<p>Kuung! Yee, looking with a bitter Expression at Jacob, who had fainted with a thud and laid his heavy Body on the floor, left the room and headed towards where Famine was.</p>
-<p>As Jacob had just said, the Story Jacob told was not a Story that could simply be ended at his level.</p>
-<p>A dark basement. There were countless sorcerous Items and a single coffin there.</p>
-<p>Squeak...!</p>
-<p>With a chilling sound, the coffin opened. What emerged from the coffin was a middle-aged man. The man, as if checking the functions of his Body, rotated his Arms, Legs, and neck, moved for a moment, then stood still.</p>
-<p>"In my life until now, I have experienced my greatest Failure."</p>
-<p>The middle-aged man, staring at the coffin he had emerged from, muttered. He hadn’t obtained the Fragment of Omniscience he originally sought, and had lost all his subordinates and his Collection. The greatest loss was the meticulously crafted Sorcerous Golem.</p>
-<p>When using high-level sorcery, the human Body experienced considerable Recoil that was difficult to endure, so exceptional sorcerers, as the first step towards transcendence, chose the path of shedding their human Body.</p>
-<p>The Black Sage also, long ago, had left his true Body in this secret space and had been active through a painstakingly created Sorcerous Golem.</p>
-<p>Normally, if the Sorcerous Golem died, the Soul contained within it would also die, but the Black Sage had taken sorcerous measures to transfer his Soul to his true Body if the Sorcerous Golem died, which is why he survived.</p>
-<p>"Damn it...! Fujigasaki Rinka! I will definitely have my Revenge...!"</p>
-<p>The Black Sage, chewing on his Defeat, muttered. Having killed him (of course, the one who directly killed him was another Person, but he didn't know their True Identity because he was attacked from behind), the Black Sage, who swore Revenge on Fujigasaki Rinka, looked around at the sorcerous Items.</p>
-<p>Thanks to collecting these Items for a "just in case" Situation, he could start again, but the Road ahead was too long. He had to create another Sorcerous Golem, and obtain Items that help transcend Humanity, like the Tome of Omniscience.</p>
-<p>"Huh...?!"</p>
-<p>The Black Sage opened his Eyes wide. Clearly, he felt the Position of the Fragment of Omniscience that had disappeared across Dimensions.</p>
-<p>Before the Fragment of Omniscience struggle officially began, he had marked the Fragment of Omniscience with his sorcery, and that marking had been transmitted even across Dimensions.</p>
-<p>"Dimension, I must cross Dimensions...!"</p>
-<p>The Black Sage gathered all the sorcerous Items collected in the room and began to create a magic Circle. He made a grand Plan to go to another Dimension, obtain the Fragment of Omniscience, transcend Humanity, then return and take Revenge on Fujigasaki Rinka.</p>
-<p>Woong...!</p>
-<p>As the magic Circle activated, with a strange resonance, Dimensions split open, and a dimensional Gap appeared.</p>
-<p>Sacrificing all the sorcerous Items in the secret room, the Black Sage, who had opened the dimensional Gap, without Hesitation, plunged his Body into the dimensional Gap.</p>
-<p>Kukukuku!</p>
-<p>After the Black Sage disappeared, as a result of the aftermath, the space of the secret room began to Collapse. After an enormous amount of Energy was released, and some of it flowed into the dimensional Gap, the Building could not withstand the shock and collapsed.</p>
-<p>The Black Sage left this World, believing he would never Fail, but even decades after the Black Sage disappeared, no one claiming to be the Black Sage ever appeared.</p>
-<p>The Illustrations requested in the previous chapter will be uploaded at the usual time, hehe.</p>
-<p>Since there are no pre-made Illustrations like in the previous chapter, I will upload the process of sculpting Liz, hehe.</p>
-<p>The very first prototype, trying too hard to evoke the feeling of Simyeonui ttal, I ended up making her a tentacle-headed one, haha.</p>
-<p>After continuously making tentacle-headed ones, thinking there might be a dislike for it, Prototype 2 was created by removing the tentacle Head + judging that bright Hair would be better.</p>
-<p>The mascot jellyfish appeared from this point, hehe.</p>
-<p>Laurel wreath + outer Silver hair, inner Hair established as space Style, hehe. At this Time, the laurel wreath was gold, hehe.</p>
-<p>Since she's an Outer God, to give her Individuality, cross pupils were added.</p>
-<p>Odd-eye is also charming, hehe.</p>
-<p>Through this Process, Liz is complete~! Looking at them again today, I like the prototypes too, hehehe. Maybe I can use them when creating other Characters someday? The initial tomboyish Feeling was passed on to Tsukiyo, hehe.</p>
+<p>Nae Fitzgerald and I went to the restaurant, where Arisu and Uncle Oliver Fitzgerald were waiting. Arisu had said she was changing out of her work clothes, but she had already changed into a white sundress-like outfit, waving her hand and welcoming me.</p>
+<p>"It's been a while, Arisu."</p>
+<p>"Ryuta~~! Ahahaang~! What's with your Head? Did you fall asleep or something?"</p>
+<p>When I greeted her, it was Arisu laughing at my Head. At Arisu's Words, I touched my Head and found one side of my Hair was sticking up. If my Head was like this, it seemed I had slept incredibly deeply without realizing it. Perhaps treating Rinka Sabu's Internal Injury had consumed a lot more stamina than I thought.</p>
+<p>"I fell asleep waiting to have dinner with you."</p>
+<p>"Ahahaang...! Is that so? We're a bit late, aren't we?"</p>
+<p>As I brushed down my sticking-up Hair with my hand and replied, Arisu spoke in a slightly apologetic Way of Speaking. Actually, 7:30 PM isn't that late for dinner, but since I had arrived early, the waiting Time had become quite long.</p>
+<p>If you count the Time I spent talking business with Uncle Oliver and then falling asleep, it was about three hours? Ah...! There's an Attack on the Japan side today.... I completely forgot and fell asleep. Surely no harm was done, right? As I sat down, I discreetly checked the Contact that had come to my phone.</p>
+<p>-Asada Ei: This Attack Incident went all according to plan. I know you are currently at the Fitzgerald Mansion for business. I will convey the details to Naruse-yang.</p>
+<p>Looking at the Time the Contact came, it had arrived almost immediately after I fell asleep. Around that Time, Japanese Time would be roughly.... between 4 and 5 AM.... It seemed the Attack had taken place quite late. Everyone must have suffered because of that Gensuke guy.</p>
+<p>"Let's eat first."</p>
+<p>"Yes. You eat a lot too. I heard you've been busy lately and haven't been able to eat much?"</p>
+<p>At Oliver Fitzgerald's Words, Nae Fitzgerald spoke as if taking care of him. The Atmosphere felt a bit strange. If I listened carefully to their Conversation, it seemed their schedules didn't align so much that they barely knew how each other ate their meals.</p>
+<p>In the Early Stage, my aunt and uncle seemed a bit awkward with each other, making the meal heavy, but once the Topic shifted to something else, we were able to enjoy a pleasant Conversation and meal.</p>
+<p>Especially Arisu, following Nae Fitzgerald around, grumbling about how hard it was to train as the next Boss of Legion, was very funny and cute, making the dining table Atmosphere quite bright.</p>
+<p>Naturally, the meal was excellent. Both Uncle Oliver Fitzgerald and Aunt Nae Fitzgerald had their businesses doing well, so the chef seemed to have cooked with expensive ingredients without hesitation, and the quality of all the food was high.</p>
+<p>Especially to my mouth, the prime rib braised in dark Maekju was delicious, and when I took a bite, I wondered how it was cooked; the soft texture that almost melted in my mouth was superb. The flavor of the dark Maekju was also good, and the seasoning, unlike American food, wasn't too salty and was just right, so I could almost endlessly devour it.</p>
+<p>With the apple tart with clotted cream as dessert, dinner ended, and I ate very satisfactorily. Everyone, seeing me eat so well, seemed to feel good, saying it felt like watching a Mukbang in real-time?</p>
+<p>"So, are you staying the Sleep tonight?"</p>
+<p>To Aunt Nae's Question, which contained some Intention, I regretfully had no choice but to shake my Head. Although I wasn't entirely unwilling to have a lot of fun with the phantom Mother and daughter, as Taira Gensuke's side had attacked as expected, I first had to talk to my Subordinates about the current Situation, so I couldn't leisurely stay the Sleep.</p>
+<p>"I want to stay the Sleep too, but.... urgent news has suddenly come from Japan, so I don't think I can stay the Sleep."</p>
+<p>"Ah, what a pity! We met after such a long Time...."</p>
+<p>At my Words that I couldn't go, Arisu was particularly disappointed. Since we had met after such a long Time, she thought I would stay the Sleep for the day, so she seemed disappointed that I couldn't.</p>
+<p>"From Japan? What's the Matter?"</p>
+<p>"Is something happening?"</p>
+<p>At the Story that something had happened in Japan, my aunt and uncle asked me curiously.</p>
+<p>"You all know I took over Taira Yutong, right? Perhaps because of that, my business was attacked."</p>
+<p>"Attack?!"</p>
+<p>Just recently, there was the New Rochelle Terror Incident, so everyone reacted strongly to the Word "Attack". Even Arisu, who was about to get sulky when I said I wasn't staying the Sleep, had her Eyes widen at the Word "Attack".</p>
+<p>However, my aunt and uncle seemed to know the meaning of my Words that I had taken over a Taira Affiliate Company and was attacked, and wore serious Expressions.</p>
+<p>They knew well that the places that would attack the business of a Taira Affiliate Company's Boss were one of two: Taira or Minamoto. Since neither side was easy to deal with, they instead wore Expressions of worry for me.</p>
+<p>"Yes. So I need to check the Situation with the employees I brought, and I don't think I can stay the Sleep."</p>
+<p>"Indeed, if it's an Attack, it's no ordinary Matter, so you certainly can't stay the Sleep. Request help anytime, Nephew."</p>
+<p>Uncle Oliver patted my Shoulder and said. It seemed he intended to help me, considering our friendly Relationship.</p>
+<p>"Still, talk with your aunt and Arisu a bit before you go."</p>
+<p>"Of course, I have that much Time."</p>
+<p>It seemed they were probably going to give me a few Items they had been Farming in New Rochelle as gifts. I also, having seen Arisu almost die in New Rochelle, needed to nag them a bit, so I wasn't planning to go straight to the Federal Superpower Management Bureau Safe House right after dinner.</p>
+<p>So Arisu, Nae Fitzgerald, and I headed to the reception room, and Uncle Oliver Fitzgerald said he was busy and returned to his company.</p>
+<p>When only we remained in the reception room, Arisu asked with an Expression full of worry.</p>
+<p>"Is the Attack okay?"</p>
+<p>"Probably...? I haven't heard the exact Story yet, but it's probably fine."</p>
+<p>Since the Text Message said it succeeded as planned, it should be fine. If there had been any Problem, Contact would have come from Naruse Shiyo, who would have heard the detailed Situation.</p>
+<p>"Still, it's an Attack.... Taira or Minamoto must have done it...."</p>
+<p>Even at my Answer, Nae Fitzgerald worried. Since she was so worried, I had no choice but to tell her a bit of the Story.</p>
+<p>"Don't worry. We knew about the Attack in advance."</p>
+<p>"Oh really? Who attacked?"</p>
+<p>"Gensuke."</p>
+<p>At my Words, both of them had an "of course" Expression. Taira Gensuke was Nae Fitzgerald's Nephew and Arisu's Cousin, so they naturally knew Gensuke.</p>
+<p>Knowing here meant not just knowing a Person named Taira Gensuke, but also knowing Taira Gensuke's fiery Personality and rough Way of handling Work.</p>
+<p>"Ugh...! I don't like Gensuke. Before, he just kept staring at my Mommae~! That Sly Expression... ugh!"</p>
+<p>"Well, he's just one of my Nephews. Actually, I don't have the same kind of close Relationship with him as with Ryuta♥"</p>
+<p>Arisu shivered with a disgusted "Ugh!" and Aunt Nae had a slightly indifferent Attitude, saying she had no particular close Relationship with him. By the way, if you had a close Relationship like mine with every Nephew, wouldn't that be a Problem, Aunt?</p>
+<p>"It seems he couldn't stand that I surpassed him and became the Affiliate Company Boss."</p>
+<p>"Tsk~! Our Ryuta became Boss because he's good. Shouldn't he just do better himself?!"</p>
+<p>"Even with Gensuke's Personality, he has a certain drive, so he must have attacked a rather troublesome Place, but where exactly did he attack?"</p>
+<p>Arisu got even angrier than I did, and Aunt Nae, curious about the Situation, asked me where Taira Gensuke had attacked.</p>
+<p>"The Mithril warehouse in Akita, and our new Home in Neo Tokyo."</p>
+<p>Both Arisu and Aunt Nae knew I was in the Mithril Business, so there was no need to explain about the Mithril mine separately.</p>
+<p>"A Mithril warehouse, and a Mansion in Neo Tokyo.... If the Attack had succeeded, both would have been quite an Impact, wouldn't they? But isn't attacking the Neo Tokyo side too much? No matter that he's Ichiro's Son, Neo Tokyo is a Project being undertaken at the Taira Group level."</p>
+<p>"He probably wasn't thinking. The Mansion side would have been well defended, and the Mithril warehouse side would have succeeded in the Attack."</p>
+<p>Since Asada Ei said it went according to plan, the Mithril warehouse side must have succeeded. At my nonchalant Words, both looked at me with a "Huh?" Expression. It was an Expression that asked if I wasn't worried, considering it was called a Mithril warehouse, implying a huge amount of Mithril would be stored there.</p>
+<p>"If the warehouse was attacked, all the Mithril would have been stolen.... Are you okay?"</p>
+<p>"Even if it's a medium-sized warehouse, the current market price of Mithril is 10 grams for...."</p>
+<p>As expected, since both were phantom thieves, they immediately thought about the Mithril being stolen. Arisu asked if I was okay, and Aunt Nae was calculating how much my loss would be.</p>
+<p>"Don't worry. That warehouse isn't my warehouse."</p>
+<p>"Huh? What do you mean?"</p>
+<p>"Gensuke attacked you, didn't he? Then isn't that warehouse yours?"</p>
+<p>"That's why I said we knew about the Attack in advance...."</p>
+<p>To the two who asked me again as if they couldn't understand my Words, I told them my Operation.</p>
+<p>Arisu B-cut~!</p>
+<p>I liked this Illustration more, but it was disqualified because the viewpoint was looking up haha</p>
+<p>Chieri requested by Gojoy-nim: 1. The Appearance of being surprised by the protagonist's Erection after waking up and looking elsewhere~! And 2. The Appearance of liking it and slapping him when praised~!</p>
+<p>1.</p>
+<p>It only shows the Palm and that's it ㄷㄷ</p>
+<p>Tsukiyo beach Exposure requested by TheDreaming-nim: 1. Smile 2. Embarrassment</p>
+<p>1.</p>
+<p>Tsukiyo was too compatible with the phone camera Lora, which was the Problem ㄷㄷ Illustrations kept coming out where she was holding the opposite hand that was constantly touching the phone, so many Gacha attempts were needed ㄷㄷ</p>
+<p>2.</p>

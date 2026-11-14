@@ -5,98 +5,93 @@ weight = 370
 chapter = 370
 +++
 
-<p>Kasaoka Yuzuki's pussy was wriggling, welcoming my dick like it was happy to see it after a few days. I slowly moved my hips and asked Kasaoka Yuzuki.</p>
-<p>"Were you jealous when you saw me with another woman?"</p>
-<p>"Huuuheuung...! Don't, hyaaang♥, don't ask...!"</p>
-<p>Kasaoka Yuzuki, already unable to think straight from the stimulation my dick was giving her, wriggled her pelvis and avoided answering my question. If she wouldn't answer, there was nothing I could do. I grabbed Kasaoka Yuzuki's ample breasts with both hands and shook my hips roughly.</p>
-<p>Slap! Slap! Slap!</p>
-<p>Along with the sharp sound of flesh hitting flesh, Kasaoka Yuzuki's pheromone-like feminine scent, moans, and the humidity were creating a strange atmosphere in the room. Naturally, our excitement continued to rise without subsiding.</p>
-<p>"Huuung, too strong...! Yamashiro-ssi's dick, huuuheung♥, is hard and big, haaang! I like it...!"</p>
-<p>"I like Yuzu-ssi's pussy too, it's delicious."</p>
-<p>"Haaheut! Was that woman's pussy delicious too?"</p>
-<p>She told me not to ask earlier, but now she's asking. The way she was squeezing me while asking made it seem like she had a bit of a netorare tendency. I hoped someone like Mimata Chieri wouldn't appear again.</p>
-<p>"It was delicious. I guess you could say it was a different flavor than Yuzu-ssi?"</p>
-<p>"Haaheut! Huuung...♥"</p>
-<p>As expected, she probably doesn't know herself, but I praised another woman while doing it with Kasaoka Yuzuki, and her pussy is wriggling. I don't know why there are so many perverts around me.</p>
-<p>"She had big breasts like Yuzu-ssi and a body that felt great."</p>
-<p>"Huuuheuung...! Euheut! Hwaaaaaang♥"</p>
-<p>Kasaoka Yuzuki orgasmed grandly at my whisper, and seeing that, I urged myself to shake my hips.</p>
-<p>"Huuung, stop, I just came! Heut, it's too strong...! Stop, huuung, slowly! Be gentle...!"</p>
-<p>I definitely vowed when she was being all huffy earlier that I wouldn't give her any attention even if she begged me to. So, I didn't pay her any mind and shook my hips only for my own pleasure. I booked 180 minutes, so I figured I could cum however I wanted at first.</p>
-<p>"Huuueueoheo...! Heueo, heueut! I can't think of anything♥, I feel like I'm going crazy...! Heut, Woohoooot!!"</p>
-<p>Kasaoka Yuzuki was losing her mind from the constant waves of climax. I was doing piston movements only for my own pleasure, so I quickly felt the urge to cum.</p>
-<p>"I'm going to cum deep inside, so receive it well in your uterus so it doesn't spill."</p>
-<p>"Huuuung.... Inside, haheut! Insiiiide...! Noooo♥"</p>
-<p>She says noooo, but it feels like she's welcoming it a lot? I didn't say anything and pushed my dick as far inside as possible, then throbbed and poured semen into her uterus.</p>
-<p>"Huuueueueueut...!"</p>
-<p>Kasaoka Yuzuki lifted her legs up and trembled, showing a flamboyant climax reaction. Her eyes, visible above the mask, rolled back, showing mostly the whites.</p>
-<p>Looking at the time, it was a little over forty minutes. I booked 180 minutes, so there's still a lot of time left. I paid, so I can enjoy Kasaoka Yuzuki's body more, right?</p>
-<p>I pulled out my dick and made Kasaoka Yuzuki lie on her stomach. Whether it was because she was exhausted from the climax, Kasaoka Yuzuki was still as I moved her, like a doll with its strings cut.</p>
-<p>After making Kasaoka Yuzuki lie on her stomach, I slightly spread her legs and inserted my dick. Normally, a man would only be able to insert the glans slightly because of Kasaoka Yuzuki's huge ass, but my dick, as the owner of a huge cock, was able to insert it deeply enough despite the ass's obstruction(?).</p>
-<p>"Ooooohot! You're already doing it...?"</p>
-<p>She almost comes again as soon as I insert it. And she looks at me with fearful eyes, but no way.</p>
-<p>"I'm going to completely soak you in pleasure for 180 minutes, so wait."</p>
-<p>Now that it's come to this, I have to completely subdue her today. So she can never be huffy again.</p>
+<p>A few hours earlier. The 3rd year special class hosted a girls' talk.</p>
+<p>The female students of the 3rd year special class and the members of Serifu, gathered around a large round table in the banquet hall, were all laughing. But everyone was wearing VR goggles and laughing, so the atmosphere was strange.</p>
+<p>That's right. In fact, the special class's girls' talk was a talk that took place in a VR virtual space.</p>
+<p>,First of all, the stories that come out here must never go outside. And I hope you can distinguish between stories that can be revealed on your own and stories that should be kept secret. There's also an anonymous mode, so you can use that too."</p>
+<p>The VR virtual space was also a round table. It was a system where lights shone on the person speaking, and the person currently being lit was the vice-Chairman Shido Tsubaki. This VR girls' talk was planned by Shido Tsubaki.</p>
+<p>Even if they wanted to have a girls' talk, they couldn't speak honestly because of their position as daughters of prestigious families, so they held a VR girls' talk where they could speak in anonymous mode. Moreover, there were even idols who were sensitive to scandals, so VR girls' talk was more suitable.</p>
+<p>-Is this how anonymous people talk? Ah! My voice is weird, ahaha!</p>
+<p>Someone turned on anonymous mode and spoke. Of course, because it was anonymous mode, no lights were shining. And the voice was automatically distorted. It seemed that the person who spoke could also hear the distorted voice.</p>
+<p>-Then I'll go first. I... I actually have someone I like. Their name starts with Ya and ends with Taro.</p>
+<p>-Oh my! What a coincidence~! Mine also starts with Ya and ends with Taro...!</p>
+<p>Everyone who heard the story just now thought it was homeroom teacher Yamashiro Ryuta, but they didn't say anything. It was an opportunity to talk irresponsibly with each other.</p>
+<p>-Ahaha! Surely the person whose name starts with Ya and ends with Taro isn't Ryuta-cchi, right?</p>
+<p>Even though a female student who seemed like anyone would know even in anonymous mode spoke, several people avoided answering the question, saying, "Eh, surely not."</p>
+<p>-It seems like there's no one overlapping with me. I like someone whose name starts with Taro and ends with Taro...!</p>
+<p>At someone's words, a slight sense of relief passed among the female students. It was because they thought that not everyone in the class liked the same person.</p>
+<p>-I like Ryuta.</p>
+<p>-Alik, Alik doesn't have to be anonymous.</p>
+<p>,Oh, really? Alik likes Ryuta."</p>
+<p>-Ahaha~! Alik is so cute~☆</p>
+<p>While talking about who they liked, the story gradually deepened. The deepening story started with a female student who asked to be called O.</p>
+<p>-Please call me O. It's a story that my friend asked me for advice on. It's difficult for me to judge alone, so I'm trying to talk to you all.</p>
+<p>-My friend's father passed away early, and she only has her mother... One day, that friend saw a scene in the living room.</p>
+<p>At first, everyone thought that O's story, which she said was her friend's story, was actually O's own experience, but in the 3rd year special class, there were people like Saionji Diana who had no parents, but there were no single-parent families, so they really thought it was her friend's story.</p>
+<p>-What on earth did she see? This is so exciting!!</p>
+<p>-My mother and my friend's homeroom teacher were at home... doing that, that... lewd thing!</p>
+<p>-Kyaa! What should I do!</p>
+<p>-So, so what happened? Tell me quickly!</p>
+<p>-That's the end. My friend's concern is that she's confused about whether she should think of that homeroom teacher as her new dad or just as her teacher.</p>
+<p>The story was too stimulating for the female students to hear, but they all gave serious advice.</p>
+<p>,Well, isn't it important how the two of them will build a relationship in the future? If they were just having a fling...."</p>
+<p>As Minamoto Risa was talking, someone cut her off in the middle of her sentence.</p>
+<p>-Risa-chan, do it anonymously too! It seems more fun that way!</p>
+<p>-If they were just having a fling, then you can just let it go, and if they're serious about spending the future together, then you can think of him as your new dad.</p>
+<p>-Ah, I think that's good. I'll tell my friend that.</p>
+<p>-Kyahaha! More than that, tell me in detail about that lewd thing your friend saw~!</p>
+<p>After O's story ended, various concerns and subtly lewd stories began to flood the VR space.</p>
+<p>They chattered about trivial things, such as a story about meeting a man she knew at a laundromat and that man washing sheets covered in vaginal fluids, or a story about how the outline of the thing of a man whose name starts with Ya and ends with Taro was huge when he came wearing jeans.</p>
+<p>The story generally flowed smoothly, but another story using a friend as an excuse caused a big stir.</p>
+<p>-Umm... I also have a friend's concern...</p>
+<p>-What is it? Tell me, tell me!</p>
+<p>-My friend entered into a 'friends with benefits' relationship with a man, but they've only had sex once so far. After that, she was worried about how to initiate sex again. I don't know much about this area, so I'm trying to ask here.</p>
+<p>-There's no way we would know that~! We're daughters of prestigious families, so a sex friend! That's impossible.</p>
+<p>-In that case, lewd cosplay is good.</p>
+<p>-Even if you don't go as far as cosplay, if you slightly expose lewd underwear or a swimsuit, wouldn't he get excited and rush at you right away?</p>
+<p>Everyone was a virgin, but the questioner nodded at the advice of the female students of St. Francis Girls' School, who had solid theories.</p>
+<p>-Thank you. I'll tell my friend. Tell her not to be afraid and to seduce him with lewd clothes...!</p>
+<p>-Okay, whoever it is, fighting!</p>
+<p>-....I'll pass on that "fighting" too.</p>
+<p>The sex friend story was the last story of the girls' talk. Everyone took off their VR goggles and looked at each other. Except for a few, most of them probably had the same thought.</p>
+<p>'There are a lot of perverts in here.'</p>
+<p>There were quite a few lewd stories, so many of the female students were fanning themselves with their faces red, and many of the students were excited that it was fun.</p>
+<p>,Ahaha~! That was fun. Let's do this often."</p>
+<p>Seizawa Shii said with a laugh as if she had enjoyed it. No matter how anonymously she spoke, she couldn't hide that it was Seizawa Shii, but she seemed to have enjoyed the VR girls' talk quite a bit.</p>
+<p>,We had fun too."</p>
+<p>,But talking made me hungry, should we get some snacks?"</p>
+<p>The chat lasted for quite a long time, so the students gathered in groups of three or five and headed to the restaurant area and the cruise mart. There, only Kijimoto Jurie headed to her cabin with a determined expression.</p>
 <p>###</p>
-<p>Kasaoka Yuzuki, who extended the 180 minutes by an additional thirty minutes, returned with trembling legs. I didn't think she would be huffy like before, but she still wasn't completely subdued to me.</p>
-<p>It's because I subtly asked her to take off her mask, but she was startled and shook her head. It must be that she absolutely can't show it. I felt it when Kasaoka Yuzuki sucked my dick earlier, but she had a pretty strong mentality.</p>
-<p>"Hmm, there's a lot of laundry."</p>
-<p>I thought I would have to wash the sheets from doing it with Kijimoto Jurie in the guest room until this morning, and then with Daigo Terue and Kasaoka Yuzuki in the master bedroom. Since I'm going to do laundry anyway, I should take care of it today. I didn't have time because I had to go to Tokyo tomorrow.</p>
-<p>I took the basket full of laundry and went to the laundromat I had visited a while ago. At the laundromat, there was a familiar platinum blonde Shiro-gyaru wearing short 청 (cheong) shorts.</p>
-<p>"Oh! Ryuta-chi!"</p>
-<p>Seizawa Shii was in the laundromat like I saw before. Is this girl a laundromat NPC? I keep meeting her at the laundromat.</p>
-<p>"Don't look at me with those eyes. Girls have a lot of laundry, so I just come often...!"</p>
-<p>Seizawa Shii, noticing my gaze, blushed and answered.</p>
-<p>"Ryuta-chi is the one who's always there whenever I go to the laundromat, though?"</p>
-<p>I can't say it's because women are dirtying my bed sheets... so I decided to return Seizawa Shii's story as is.</p>
-<p>"Guys have a lot of laundry too, so I just come often."</p>
-<p>"Don't copy me, Ryuta-chi! By the way, I'm curious about what kind of laundry you have, can I take a look?"</p>
-<p>Seizawa Shii, suddenly approaching my laundry basket, started looking at my laundry. Fortunately, in addition to the sex-stained sheets, there were also the clothes, socks, and underwear that I wore, so it wouldn't be easy to notice that I was living a promiscuous life.</p>
-<p>"Ryuta-chi, you pervert."</p>
-<p>"What's perverted?"</p>
-<p>How did she notice right away? I was flustered and looked at Seizawa Shii.</p>
-<p>"How can you put your underwear out like this when a girl is watching!"</p>
-<p>Ah, thankfully she was saying something about the underwear.</p>
-<p>"It's not like I told you to look..."</p>
-<p>"Still! Did you want to show off your panties to everyone passing by, so you put them on top like this?"</p>
-<p>What kind of perverted story is she telling? No one is curious about a man's panties.</p>
-<p>"No one cares except you, probably?"</p>
-<p>"Are you saying I'm a pervert, Ryuta-chi?"</p>
-<p>"Yeah."</p>
-<p>I answered while putting the laundry in the washing machine. Of course, I put the underwear that Seizawa Shii was complaining about inside first.</p>
-<p>I put in the other clothes too, and I was getting a little impatient because it was almost time for the aeg-aek-soaked sheets to come out, but Seizawa Shii was squatting and watching me put the laundry in the washing machine while spinning around.</p>
-<p>I should just quickly put it in. It'll just look like it's wet with water to anyone who sees it....</p>
-<p>"Ah! Ryuta-chi, why is your sheet wet? Did you pee?"</p>
-<p>Why does she have such good eyes again? I racked my brain as much as possible. I couldn't become a bed-wetter like this. Of course, the story of me being a bed-wetter would be passed on to Minamoto Risa, who is Seizawa's best friend, and then it would be very difficult to capture my target, Minamoto Risa. If I want to meet a woman, it would be better to be a Casanova than a bed-wetter.</p>
-<p>"It's not pee."</p>
-<p>"Then what is it?"</p>
-<p>"A high school student who is still a minor doesn't need to know."</p>
-<p>"I'm not a minor!"</p>
-<p>Seizawa Shii says she's not a minor and snatches the sheet away. And she touches the wet spot. She'll feel that it's slippery and sticky. The moment she realizes what that liquid is, Seizawa Shii's face turns red and she shouts at me.</p>
-<p>"Y-you're a pervert!"</p>
-<p>"It's better to be a pervert than a bed-wetter."</p>
-<p>"Hmm, that's true."</p>
-<p>It was a little funny that she agreed with me even though she called me a pervert.</p>
-<p>"Sorry, it's Ryuta-chi's privacy. Is it your girlfriend?"</p>
-<p>"No, one of my sex friends."</p>
-<p>I decided to just go with it shamelessly now. There was no other way.</p>
-<p>"Ryu, Ryuta-chi, you were a playboy??"</p>
-<p>"A playboy... you're talking like someone from a long time ago? I'm just popular. And I'll break up with everyone when I get a girlfriend."</p>
-<p>Actually, even if I get a girlfriend in the future, I won't have to break up with the women. Because there are too many people to break up with.</p>
-<p>"Well, it's better than my dad? My dad still has a lot of girlfriends..."</p>
-<p>For reference, Seizawa Shii's dad is a current member of the National Assembly and a former minister. This is a huge scandal story, is it okay to talk about it so casually?</p>
-<p>"Still, it's a teacher's privacy, so keep it a secret from the kids."</p>
-<p>"Ehhh~! I wanted to tell the kids because it's a really fun story!"</p>
-<p>"I'll grant you one wish, so please bear with it."</p>
-<p>"A wish? Okay. I don't have anything in mind right now, so I'll keep it~!"</p>
-<p>Then, a beep sounded and the alarm went off, indicating that Seizawa Shii's laundry, which she had come earlier, was finished. Seizawa Shii said, "Ah, the laundry is done!" and opened the washing machine and started putting the laundry in. I stared intently at the laundry that Seizawa Shii was putting in as revenge for what happened earlier. Seizawa Shii was about to say something to me, but she had something she did, so she just focused on putting the finished laundry in the basket.</p>
-<p>"Don't look! It's embarrassing, Ryuta-chi."</p>
-<p>"I was embarrassed too."</p>
-<p>"Ugh...! Then look just a little."</p>
-<p>After putting various clothes in the basket, it was naturally time for the underwear. What's with those underwear that have a lot of lace and look like they're all see-through?</p>
-<p>"Is it for your boyfriend?"</p>
-<p>"I don't have a boyfriend?! I'm not a pervert like Ryuta-chi, so I don't have a sex friend either!"</p>
-<p>Seizawa Shii's face turned completely plum-colored and she shouted. Then why are you wearing underwear like that?</p>
-<p>"Hmph! I'm going now, Ryuta-chi is an idiot!"</p>
-<p>"It's getting dark, so go carefully."</p>
-<p>With a clatter and a click, Seizawa Shii closed the door and left, and the coin laundromat fell silent instantly. Hmm, she really won't spread rumors to the kids, right?</p>
+<p>,Come in."</p>
+<p>At my words, Kijimoto Jurie opened the door and came in. She didn't just come in with her bare body, but she came with some shopping bag, what did she bring? Did she bring something to eat?</p>
+<p>,What's that?"</p>
+<p>,Ah, this is...."</p>
+<p>Kijimoto Jurie, who was trying to stammer an answer with her face extremely red at my question, lowered her head and answered.</p>
+<p>,Actually... it's a swimsuit."</p>
+<p>,Ah...!"</p>
+<p>She brought it to show me her swimsuit. But anyway, there's swimming time tomorrow, so can't she just show it to me then? Or....</p>
+<p>,Did you bring it to show only me?"</p>
+<p>,I have something else to show the students...."</p>
+<p>If she has something else to show the students, then the swimsuit in the shopping bag now means it's a pretty lewd or vulgar style swimsuit... I was quite looking forward to it. If Kijimoto Jurie, who has a great body, wears a vulgar swimsuit, the destructive power would be doubled.</p>
+<p>,How lewd is it... You came to show it to me, right? Then will you put it on now?"</p>
+<p>,Yes... Can you turn around for a moment?"</p>
+<p>I like watching women change clothes, but this time I thought it would be better to see it all at once and be surprised. If I keep watching her change, I'll see what kind of swimsuit it is.</p>
+<p>As Kijimoto Jurie said, I turned around and listened to the rustling sound of clothes brushing against each other, waiting for Kijimoto Jurie to change into her swimsuit.</p>
+<p>This is pretty good too. The anticipation and strange atmosphere made me extremely excited. I haven't even seen it yet, but my dick is already hard.</p>
+<p>,I'm done changing."</p>
+<p>At Kijimoto Jurie's words that she was done changing, I turned my body and looked at Kijimoto Jurie's swimsuit. Oh...!</p>
+<p>,Indeed... It would be difficult to show it to the students."</p>
+<p>What Kijimoto Jurie was wearing was a slingshot swimsuit, and because the fabric area was small and her body was so lewd, it was a figure that she couldn't possibly show to the students. The color was also a passionate red, so it looked even more lewd.</p>
+<p>,Turn around once."</p>
+<p>,Heuht♥ I'm embarrassed...."</p>
+<p>Kijimoto Jurie, who said she was embarrassed, swayed and turned around once in front of me. Her nipples were sticking out and her crotch and thighs were glistening and wet, it seemed that Kijimoto Jurie was also quite excited about this situation.</p>
+<p>While looking at Kijimoto Jurie's lewd figure, I also took off my clothes one by one.</p>
+<p>,Don't even think about taking off that swimsuit today."</p>
+<p>When I took off all my pants, Kijimoto Jurie came to me. She already had a horny face looking at my dick.</p>
+<p>,Heueung...♥ Can't you put it in right away?"</p>
+<p>,Why can't I? Try putting it in yourself."</p>
+<p>I was sitting on the bed, and Kijimoto Jurie was standing, so to put it in herself, she had to turn her body and sit on me as if to put my dick in.</p>
+<p>Kijimoto Jurie, who had pushed aside the pussy part of her slingshot swimsuit, sat on my dick without hesitation. And she immediately reached a grand climax.</p>
+<p>,Haeueung!!"</p>
+<p>She went right away after putting it in, why is she so excited today?</p>
+<p>--Slingshot collection by color.</p>

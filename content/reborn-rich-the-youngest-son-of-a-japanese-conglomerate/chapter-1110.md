@@ -6,79 +6,81 @@ chapter = 1110
 +++
 
 <p>and chapter check contains erotic please surroundings this your</p>
-<p>Taira Entertainment CEO's Office.</p>
-<p>"Gensuke, that child, raided the Mithril warehouse?"</p>
-<p>Taira Kokoro said, looking at the informant who had reported to her. At first, her expression was one of surprise, but after a moment, she thought it might be possible.</p>
-<p>Taira Gensuke, unlike Taira Ichiro's son, had a hot-headed and Impromptu side, so she thought he must have raided Taira Jiro's warehouse.</p>
-<p>Of course, she briefly considered that he might have acted on Taira Ichiro's Command, but if Taira Gensuke had committed the Act under Taira Ichiro's Command, he wouldn't have been caught by her so quickly.</p>
-<p>"Because of that Incident, Taira Jiro-nim rushed to the Chairman-nim and, combining it with the commotion Gensuke caused in Neo Tokyo, claimed that Taira Ichiro-nim and Gensuke were anti-Taira members."</p>
-<p>Taira Kokoro crossed her Legs with a satisfied Smile at the informant's detailed Information Report. She was wearing Stockings with quite a flamboyant pattern, which naturally drew the Eye, but the informant deliberately looked up, avoiding gazing at Taira Kokoro's Legs.</p>
-<p>Even when compared among the Taira Successor Group, Taira Kokoro's Information gathering Ability was considerable; she was collecting deep and diverse Information using her own intelligence organization, along with the Entertainment Industry paparazzi reporters from several weekly magazines she owned.</p>
-<p>"Father probably won't accept Jiro's Forced claim.... Of course, Gensuke's Attack on Ryuta within Neo Tokyo was a big Mistake, so he'll be scolded to some extent."</p>
-<p>"Taira Jiro-nim's side doesn't seem to have high Expectations either. Judging by the fact that they are concentrating all their Information Assets in Europe, it seems they are putting more effort into Assassination than Mithril."</p>
-<p>Taira Kokoro thought Taira Jiro's actions were meaningless, but soon realized The Situation Taira Jiro was in and understood that he was trying to buy time.</p>
-<p>"He intends to take Revenge for his son first, while Ichiro is being scolded by Father...."</p>
-<p>As a Parent, Taira Kokoro also understood Taira Jiro's actions. Raiding the Mithril warehouse was a significant loss, but that loss could be repaid someday. However, the Assassin who killed Taira Kitsumasa, Taira Jiro's son, would soon change their Status and completely hide if there was even a slight delay. In Japan, no matter how much an Assassin hid, Jiro would catch them, but Europe was different. No matter how vast and powerful the Taira's influence, they couldn't find an Assassin who had deliberately hidden on another Continent.</p>
-<p>That's why Taira Jiro went to Taira Danjo, even knowing it was a Forced move. He must intend to conclude the Mithril Matter with this and then find the culprit who killed Kitsumasa.</p>
-<p>Taira Kokoro, in the same Situation, would also try to catch the Guy who killed her child before worrying about the Mithril warehouse, so she empathized with Taira Jiro's Choice.</p>
-<p>Of course, all of Taira Kokoro's children are in Japan, so she wouldn't lose a child in vain like Taira Jiro did. Even if such a thing happened, she would be able to catch the culprit within a few hours.</p>
-<p>"Everyone should manage their children overseas well."</p>
-<p>Excluding Taira Kokoro, the Successor rivals who had children had at least one child overseas. Since Taira Kitsumasa, who was in the UK, had died, she thought they would either call their overseas children back or strengthen their Security.</p>
-<p>"My children are also in Japan, but please strengthen their Security."</p>
-<p>"Yes, Kokoro-nim. I will implement it immediately."</p>
-<p>Taira Kokoro was convinced that with Taira Kitsumasa's Death, the successor competition, which had been quiet since Taira Saburo's After Death, would truly begin again. Therefore, since her own children could die at any time, she asked her buha to strengthen their Security.</p>
-<p>"Sigh~! Children are Luggage...! Kanna must be comfortable without Luggage."</p>
-<p>As her buha left the office, Taira Kokoro sighed and grumbled, envying Taira Kanna, who was unmarried and had no children. Regardless of loving her children, neither of her two children pleased Taira Kokoro's Mind.</p>
-<p>Her capable First Child, Taira Kisa, had left the Taira Group to pursue her own Business, so she was no Help to Taira Kokoro, and her second child, Taira Akio, was an Idler who just went around taking Photos with his Parents' Money. In the end, it meant neither was helpful.</p>
-<p>Taira Kokoro felt a little disappointed that her children seemed to have no particular thoughts while their Mother was fiercely waging a Successor War.</p>
-<p>"By the way, who could it be?"</p>
-<p>Taira Kokoro thought the culprit was one of two: Minamoto or Taira. If it wasn't Minamoto but Taira, and she hadn't Commanded Kitsumasa's Death, then Ichiro was almost certainly the culprit.</p>
-<p>Of course, besides Taira Ichiro, there was Taira Kanna who had entered the successor competition, but Taira Kanna wasn't yet strong enough to fight Jiro, so Taira Kokoro had the conviction that Kanna wouldn't have rashly killed Taira Kitsumasa.</p>
-<p>"If only Ichiro were the culprit, and he and Jiro fought fiercely.... With the Mithril Matter too, it would be a huge fight."</p>
-<p>If the one who requested Taira Kitsumasa's Assassination was Taira Ichiro, then Taira Danjo's admonition for Taira Blood relatives not to shed Blood would clearly not be heeded. Taira Jiro would begin a bloody Revenge.</p>
-<p>"When I go to Kitsumasa's funeral, I'll have to subtly probe. About who the culprit is...."</p>
-<p>Taira Kokoro's Nephew/Niece's funeral, which she thought would be boring, was starting to become quite Intriguing.</p>
-<p>"With this Mother Mars visit, the things to do in LA are finished. Now, I can rest until I take the Airplane tomorrow. Both of you worked hard."</p>
-<p>Riding in the vehicle returning to Fujigasaki Rinka's mansion, I spoke to Naruse Shiyo and Maya Reed, who had accompanied me today just like yesterday.</p>
-<p>Actually, both of them had done nothing but come along to Moth Tactical and Mother Mars, but since I had worked while the others played, I commended their contributions.</p>
-<p>"Oh, it was fun. Since we signed the contract today, when can we eat Mars Burgers in Japan?"</p>
-<p>Naruse Shiyo, who had become a Half-Dragon and gained a slight gluttonous Attribute, spoke with an Expression full of Expectation. Even though a rough contract was made today, there were still things to do among the working-level staff and Points to establish, so it would take quite some time for Mars Burgers to arrive in Japan. And since the first Mars Burger Point is in Pasadena, if she wanted to eat it, she shouldn't wait for it to appear in Japan, but eat it now.</p>
-<p>"Rather than waiting until then, shall we get some to go on the way back today?"</p>
-<p>"Sounds good~!"</p>
-<p>Naruse Shiyo was excited because her Work was done and she would get to eat the Mars Burger she wanted, while Maya Reed was quiet.</p>
-<p>Perhaps it was because of that Incident at Divinity Health Sports Park, among the stories Vivian Taylor and I shared today. Vivian Taylor survived, but all of Maya Reed's family died in that Accident, so her Mood seemed complicated. Hearing that Story so suddenly, without Preparation, must have made her feel unsettled.</p>
-<p>I couldn't possibly Guess how Maya Reed, who had lost her entire family, felt, so I thought it might be better to quietly observe rather than rashly offer Comfort with Words, and ended my Comfort by gently patting her Shoulder.</p>
-<p>So, we stopped by the Mother Mars first Point and ordered a burger set for dozens of people. With my direct Members and the personnel from Seryu Military Company, we had to order quite a lot.</p>
-<p>After waiting a considerable amount of Time, we received the burgers and loaded them along with French fries and Drinks. Having loaded all the burgers and gotten into the car, I offered a separately ordered milkshake to Maya Reed, who was still silent.</p>
-<p>"They say eating something sweet helps a little when you're in a bad Mood."</p>
-<p>"...Thank you, Boss."</p>
-<p>Accepting the milkshake I offered with a greeting of thanks, Maya Reed drank it with a straw, then murmured, "It's delicious," and gave a slight Smile.</p>
-<p>"What about me, Teacher-nim?!"</p>
-<p>"Here it is~!"</p>
-<p>Of course, I also ordered milkshakes for Naruse Shiyo and myself. When I offered the milkshake, Naruse Shiyo quickly took it and Sucked it so hard that it made a jjok-jjok sound. If she ate that fast...</p>
-<p>"Ah! My Head hurts, Teacher-nim...."</p>
-<p>Of course her Head would hurt. Maya Reed and I both laughed at Naruse Shiyo, who was clutching her Temple. Naruse Shiyo must have done it on purpose, to make her new friend in America laugh.</p>
-<p>I drank my milkshake, watching Maya Reed laugh as she looked at Naruse Shiyo, who was clutching her Head.</p>
-<p>With its rich Milk flavor and the violently sweet taste that screamed "American food," it was a perfect milkshake.</p>
-<p>Thus, the three of us headed towards Fujigasaki Rinka's mansion, Sucking our milkshakes through straws.</p>
-<p>"Doing it two days in a row is getting a bit tiresome."</p>
-<p>Returning to Fujigasaki Rinka's mansion, I ate Mars Burgers with my Party/Group, and then, led by surfing enthusiast Seizawa Shii and her Party/Group, who insisted on going surfing one more time because it was the Last day, I went surfing and came back.</p>
-<p>I don't enjoy surfing that much, so today, on my second time, rather than surfing, I floated around and watched everyone else surf. Especially the breasts that swayed with the Waves were quite a sight to behold.</p>
-<p>After surfing and returning to the mansion, we ate American-style boiled seafood, a "Boiling Seafood" dish steamed with lobster, crab, Sausage, corn, shrimp, and more.</p>
-<p>It was my first time trying it, and it tasted quite good. Crustaceans mixed with spicy and salty sauce couldn't possibly taste bad.</p>
-<p>After enjoying plenty of crustaceans, I returned to my room, took a Shower, and was packing my Luggage to return to Japan tomorrow.</p>
-<p>Knock-knock!</p>
-<p>Huh? Who is it? I thought everyone would be packing their Luggage to take the Airplane to Japan tomorrow...</p>
-<p>"Come in."</p>
-<p>Kkii-iik...!</p>
-<p>At my Words to come in, the Door opened, and I looked to see Maya Reed, wearing a sheer babydoll, gazing at me with a flushed Face.</p>
-<p>Kokoro B-cut~!</p>
-<p>At first, I used plain, basic Stockings, but then I suddenly wanted to add a pattern....</p>
-<p>I tried adding it a bit excessively, hehe.</p>
-<p>Maya Reed B-cut~!</p>
-<p>Hmm... it's probably better if her breasts are sheer rather than not sheer, right?</p>
-<p>So I made a new one, hehe.</p>
-<p>Requested by TheDreaming-nim: Vivian Taylor 1. Walking topless, wearing only a Coat 2. Running naked body, wearing only a Coat</p>
+<p>"Did Urita Rie return Home safely?"</p>
+<p>After the funeral ended, Taira Jiro asked his only remaining son, Taira Yuuichi, if Urita Rie had returned Home safely.</p>
+<p>Although his Relationship with Taira Jiro wasn't good, he still seemed a little concerned because she was his wife.</p>
+<p>"She returned safely."</p>
+<p>"Alright."</p>
+<p>Just as a brief Silence lingered between the two father and son, someone knocked on the door from outside. And a Voice was heard from outside the door.</p>
+<p>"Boss-nim, it's Tateyama."</p>
+<p>The one who knocked on the door from outside was Taira Jiro's secretary, Tateyama Genta. When Taira Jiro said, 'Come in,' Tateyama Genta opened the door and entered.</p>
+<p>"The investigation regarding the Assassin who assassinated Young Master Kitsumasa has been updated, so I will inform you."</p>
+<p>"Tell me quickly."</p>
+<p>"Please speak, Tateyama-ssi."</p>
+<p>At Tateyama Genta's Words, both Taira Jiro and his son focused on what content would emerge from Tateyama Genta's Lips.</p>
+<p>"We have found the Assassin's Path."</p>
+<p>At Tateyama Genta's Words, Taira Jiro's and Taira Yuuichi's Expressions brightened. Finding the Assassin's Path, which they hadn't been able to track until now, was no different from being able to find the Assassin's whereabouts.</p>
+<p>"After Young Master Kitsumasa was assassinated, we obtained all nearby CCTV footage, identified the Suspect, and continuously tracked their Path. Eventually, we found the Path."</p>
+<p>Taira Jiro's side relentlessly pursued the Assassin. Using CCTV and satellites was basic, and they did everything they could, even analyzing the pattern of their Steps and the disguise pattern of their Face captured on CCTV, to track the Assassin until now.</p>
+<p>"Alright, where did that damned bastard go?"</p>
+<p>"We confirmed he arrived in Hungary, passing through Belgium, Germany, Czech Republic, and Slovakia, after traveling from the UK through France. In just a few days, we will be able to identify his exact Position within Hungary."</p>
+<p>Tateyama Genta calmly explained the Assassin's Path. The Assassin had traveled a straight distance of a whopping 1500 kilometers from London, UK, but Taira Jiro's side accurately uncovered the Assassin's Path.</p>
+<p>In fact, Taira Jiro hadn't been confident he could find them accurately, but at Tateyama Genta's Report, he felt Overwhelming Joy. But soon, he felt extreme Anger towards the Assassin for making him feel Overwhelming Joy for this.</p>
+<p>Originally, if the Assassin hadn't killed his son, there would have been no need to feel such Overwhelming Joy, but with the thought, 'Why should I care about this and feel Overwhelming Joy just for finding the Assassin?', Taira Jiro was enraged.</p>
+<p>"Bring him as quickly as possible. I myself must find out from that Guy who instigated it."</p>
+<p>Taira Jiro spoke with an Expression full of Killing Intent. From Taira Ichiro to Taira Kokoro, and Taira Jiro himself, they were cold-blooded Successors who had broken through countless lines of death.</p>
+<p>Just like his son, Taira Yuuichi, he had the Intimate Experience of helping his Father, Taira Danjo, in the succession competition. Taira Jiro, walking that Blood Path, had shown no hesitation in Torture, so he was confident he could extract Information from the Assassin.</p>
+<p>"Understood. I will try to shorten the Time as much as possible."</p>
+<p>Tateyama Genta bowed his Head at Taira Jiro's Words and went Outside.</p>
+<p>Again, in the quiet Room where only Taira Jiro and his son Taira Yuuichi remained. Taira Yuuichi, who had been silent, opened his mouth.</p>
+<p>"When Father's interrogation is over, I myself want to finish off the Assassin."</p>
+<p>At the Eldest son's Words that he would kill the Assassin, Taira Jiro looked at his son with a blank Expression. And opened his mouth.</p>
+<p>"Do you want to take Revenge?"</p>
+<p>"Yes, that's right."</p>
+<p>"Then I cannot let you kill the Assassin."</p>
+<p>"What? What do you mean?!"</p>
+<p>Taira Yuuichi raised his Voice at his Father Taira Jiro's refusal. He wanted to kill that Assassin bastard who killed his younger sibling right now, but he couldn't understand why his Father was stopping him.</p>
+<p>"If you kill the Assassin, your desire for Revenge will be clouded. However, the Assassin is merely a Sword. The Person behind the curtain who made the Sword move is the true Target of Revenge. I will kill the Assassin, so you kill the one who wielded that Sword."</p>
+<p>He understood his Father's Words, but Taira Yuuichi was confident that even if he killed the Assassin, his desire for Revenge would absolutely not be clouded. And if Taira Jiro's Words were true, wouldn't Taira Jiro's desire for Revenge be clouded if he killed the Assassin?</p>
+<p>"If that's the Theory, wouldn't Father's desire for Revenge also fade?"</p>
+<p>At Taira Yuuichi's defiant Words, Taira Jiro made a slightly sorrowful Expression and opened his mouth.</p>
+<p>"A Parent's desire for Revenge for a child's death does not fade in any case, Yuuichi."</p>
+<p>After Taira Kitsumasa's funeral ended, I returned to the mansion. And I decided to hold a small Meeting, calling only Linling, Tsukiyo, and Sakagami Rena, who were currently staying at the mansion.</p>
+<p>We had already held a Meeting at the Taira Main family, but after that, Taira Ichiro made a Proposal to become a Mithril business partner, so we had to talk anew.</p>
+<p>"...I heard such a Proposal. What should we do?"</p>
+<p>"Accepting it doesn't seem bad. However, we need to make the Contract well. As long as there are no malicious clauses stating that we will receive a large amount of penalty if they fail to meet the delivery deadline, it's a good Opportunity to diversify our business partners."</p>
+<p>"Yeah, it doesn't seem bad, Older Brother."</p>
+<p>"It seems fine, Liege."</p>
+<p>At my Explanation, all three gave an Answer that it seemed fine. Then, we should proceed with the Contract with Taira Ichiro's side.</p>
+<p>"Then, let's proceed with the Contract...."</p>
+<p>"Linxiang will send official Documents to Taira Bussan."</p>
+<p>At my Words, Linling immediately answered. Anyway, Linling and Linxiang are the same Existence, so even if Linxiang was at Taira Food distribution, she could check the Information in real-time.</p>
+<p>"Then, let's decide to proceed with the Ichiro and Mithril deal and move on.... Are there any other Report matters?"</p>
+<p>In fact, I had been continuously awake while grasping the Surroundings Situation at the funeral, so I was a little tired mentally. I had asked, intending to finish the Meeting and take a Sigh of Sleep, but Linling and Sakagami Rena raised their Hands.</p>
+<p>"Rena, speak first."</p>
+<p>"According to our hacking Program planted on Taira Gensuke's side, Taira Gensuke seems to have erased one Favela in São Paulo."</p>
+<p>If it's a Favela.... To put it simply, it was the Brazilian version of a Slum. Of course, it wasn't just a Slum, but felt like a Slum + Drug Organization den, a dilapidated and dangerous Place, so erasing that Place, risking Danger, means there was a Reason to do such an Act.</p>
+<p>"Taira Gensuke is said to have the Development rights for the entire area, including that Favela area. Until now, due to lack of funds, even though he had the Development rights, he couldn't do it...."</p>
+<p>"A massive amount of Mithril came into Gensuke's Hands."</p>
+<p>He seems to have disposed of some Mithril to raise Money for Development costs and Bribes. Given Gensuke's Personality, if he erased a Favela, it must have been almost a massacre.</p>
+<p>"For now, since we can't do anything in Brazil, we can only watch."</p>
+<p>"Or, couldn't we subtly leak this Information to Jiro's side? If he deals with the culprit who killed Kitsumasa, the next will be Gensuke."</p>
+<p>"Then, try to proceed."</p>
+<p>Immediately, we might not be able to check Taira Gensuke, but if Taira Jiro deals with the Assassin who killed Taira Kitsumasa, the next Target will be Taira Gensuke, so if we subtly give him the Information, he'll probably handle it well on his own.</p>
+<p>If this doesn't work well, we can send our strong Kids to Brazil.</p>
+<p>As Sakagami Rena sat down in her Seat, as if her Report was finished, I looked at Linling. Linling smiled brightly and began her Report to me.</p>
+<p>"A Report came from the Negotiation team who went to New York."</p>
+<p>Ah, there was also the New York Work. We dispatched a Negotiation team to purchase patents from the Obsidian Syndicate and, if possible, to hire an alchemist affiliated with the Obsidian Syndicate, and a Report seemed to have come from that side. Looking at Linling's bright Expression, it doesn't seem like a bad Result.</p>
+<p>"First, if I give you the Report from the patent side, the patents we decided to receive first were purchased well at a low Price."</p>
+<p>Because of my Proposal to the USA government to blame everything on the Obsidian Syndicate and Superior along with Information, it was an Opportunity to purchase patents obtained as a Reward, so it seems they were able to purchase the patents under good Conditions.</p>
+<p>Of course, they have to compete with other pharmaceutical companies for the remaining patents.</p>
+<p>"The remaining patents' auction date is not far off, so we are preparing.... Next is the alchemist recruitment matter."</p>
+<p>I thought the alchemist recruitment matter might be difficult. I had heard that the Root of the Obsidian Syndicate started from a gathering of alchemists and witches, and now the alchemists won and it became a Drug Organization, so I thought it would be good to recruit an alchemist.</p>
+<p>However, because of my Proposal that everything in the New Rochelle Incident was the Obsidian Syndicate's fault, it rather became difficult to recruit an alchemist.</p>
+<p>Because it became a matter of extracting a criminal who would receive a heavy sentence. So, without much Expectation, I looked at Linling.</p>
+<p>"Before giving the Report, first, I think I need to tell you something else."</p>
+<p>Huh? Suddenly? In the middle of the Report, what Story is she going to tell?</p>
+<p>Requested by TheDreaming-nim: Taira Kokoro 1. Stage Exposure 2. Exposure at the Store.</p>
 <p>1.</p>
 <p>2.</p>
-<p>Kkyut~!</p>
+<p>When using phone camera Lora, the Hair color became slightly reddish like the last Illustration, so I had to slightly correct the Hair color hehehe</p>

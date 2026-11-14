@@ -5,62 +5,65 @@ weight = 536
 chapter = 536
 +++
 
-<p>"Drugs, you say..."</p>
-<p>Shido Tsubaki, an information guru who could be called the best in the school, not just in the Special Class, muttered with complex emotions. It seemed to contain a sense of defeat, similar to the feeling of, 'How could there be information I don't know at St. Francisco's Girls' Academy?' as well as the awkwardness of a big problem like drugs.</p>
-<p>"Shall we wait until the Disciplinary Committee member brings the data?"</p>
-<p>Just as Konoe Akina was trying to organize things like the club president she is, the door opened as if on cue. It was a fairly tall female student, who seemed to be the Disciplinary Committee member Taira Kanna had promised to send. She was a girl with short, brown hair and navy blue eyes, quite a beauty, but she gave off a vague feeling that didn't leave much of an impression.</p>
-<p>"Hello? I'm Muko Neika of the Disciplinary Committee, vice-chairman. Please take care of me for a while, -imda."</p>
-<p>The Disciplinary Committee member they sent is the vice-chairman? I thought they'd just send a regular Disciplinary Committee member, but it's the vice-chairman... Seems like too high-ranking a person to be subcontracting to us because they're busy.</p>
-<p>Anyway, she seemed like quite a unique student. Not just her way of speaking, but also the long bag she was carrying on her back, which she was trying to hide, but the silhouette clearly looked like a gun to anyone. And on the straps around her thighs, visible under her skirt, there was something that looked like a handgun.</p>
-<p>As I was wondering if a student was allowed to be so openly armed, Muko Neika seemed to notice my gaze lingering on her thighs and covered her skirt with both hands, shouting.</p>
-<p>"Aht! Where are you looking?"</p>
-<p>"Ah, Ryuta-ssi, you pervert!"</p>
-<p>"Looking under a girl's skirt when you've just met her? You're a disgrace as a teacher."</p>
-<p>At Muko Neika's shout, the members of our Special Class swarmed around me like piranhas smelling blood, each saying a word. Most of them seemed to be joking, not really thinking I would do such a thing, their faces full of playfulness. They just want to tease me.</p>
-<p>"What are you all talking about? I just looked because it looked like she had a gun on her thigh!"</p>
-<p>"Ah, are you talking about this?"</p>
-<p>At my words, Muko Neika seemed to understand the misunderstanding and pulled out the handgun from her thigh. Everyone flinched instinctively at the sight of the gun, but Muko Neika leaned against the window behind her as if it were nothing, raising the hand holding the gun.</p>
-<p>"It's nothing much, -imda. It's a rubber bullet gun for suppression, -imda. It's not a real gun, so you don't need to worry, -imda."</p>
-<p>Is a rubber bullet gun for suppression really nothing much? If there really are drug criminals, then minimal arming would be necessary, so it seems they provided a rubber bullet gun for suppression instead of a real gun.</p>
-<p>Or... maybe they're just calling it a rubber bullet gun and she has a real gun. Considering the situation when the Disciplinary Committee members were firing Mithril bullets like crazy when Oofuchi Erika was kidnapped, it was unimaginable that they would use rubber bullets. The latter seems more likely, but we won't know unless a fight breaks out.</p>
-<p>"Even if Ryuta-ssi is a pervert, he's not the type to just stare at people he's just met, so everyone calm down!"</p>
-<p>Seizawa Shii calmed the students down. I remember Seizawa Shii was the first one to call me a pervert... And come to think of it, if you carefully consider Seizawa Shii's words, it implies that I'm the type to stare at thighs if I'm not meeting them for the first time. That's too much, Seizawa Shii. I'll get my revenge later.</p>
-<p>"Okay, now that you've had fun with the teacher, let's focus on the request."</p>
-<p>"Ah, the Chairman told me to deliver these documents, -imda."</p>
-<p>Muko Neika handed me the documents, which weren't very thick. It seems the academy doesn't have much information either, since it happened recently. I immediately handed the received documents to Konoe Akina, the president of the Dating Experience Club.</p>
-<p>Since the Student Council's request was given to the Dating Experience Club, strictly speaking, the subject of the request was the students of the Dating Experience Club. I, as the advisor teacher, am just helping, and the students should do the request themselves. Of course, if it gets really dangerous, I'll have to step in and help. While the students were looking at the documents, I asked Muko Neika what I was curious about.</p>
-<p>"By the way, if you're the vice-chairman of the Disciplinary Committee, you must have a lot of work to do, is it okay for you to be helping us?"</p>
-<p>"I have the title of vice-chairman, but... to borrow the Chairman's words, I'm just a fool who can only use strength, -imda. She said this mission would be better, -imda."</p>
-<p>Ah, so she's specialized in combat, so she's not very helpful in the work the Student Council and Disciplinary Committee are doing now. So, assigning her as a bodyguard to our side means that Muko Neika can be properly utilized. Even if she holds the position of vice-chairman of the Disciplinary Committee, it seems there aren't many places to utilize her in the school if she's specialized in combat.</p>
-<p>"Teacher-ssi, come over here for a second. Shido Tsubaki said she'll give you a rough explanation."</p>
-<p>Otagi Yuka called me over, as if the information had been organized to some extent, and I approached the place where the students were huddled together. Shido Tsubaki confirmed that I had arrived and then opened her mouth.</p>
-<p>"The documents contain information about Z-MAX. After reading it all, it first appeared seven years ago, and it seems that this drug called Z-MAX has been slowly spreading from the cities around Mount Fuji since six years ago."</p>
-<p>Seven and six years ago, that's a really old drug, isn't it? Looking at the timeline, it seems it started being produced almost right after the war. The war ended eight years ago, so if you think about it, they developed the drug for a year after the war and then started spreading it around Mount Fuji...</p>
-<p>"But it's not a huge amount, so it seems it only spread to the areas around Mount Fuji. It seems there wasn't enough quantity to spread it to Tokyo. If we look at it from the perspective of the drug, the quality is quite good, but the reason it couldn't spread further is either because the maximum production amount isn't that high or it's difficult to obtain the materials."</p>
-<p>It seems that quite a lot of drugs were released after the war, so the police were focusing on other things rather than Z-MAX, which had a limited production amount and wasn't spreading to Tokyo.</p>
-<p>"But in the past week, the production amount has increased explosively, and there are signs that it's about to spread to Tokyo, so the police were investigating and found the drugs wrapped in newspapers that the Student Council Chairman presented."</p>
-<p>"Then shouldn't we just continue to entrust the investigation to the police? It would be better to have all the investigators sign a confidentiality agreement and leave it to the police."</p>
-<p>Kujo Kina, for once, said something reasonable in response to Shido Tsubaki's words. In fact, it would be better to leave this matter to the police than to have the students handle it, but Taira Kanna seemed to have a different idea.</p>
-<p>"Actually, the police don't know much either. The reason they caught the drug vehicle this time wasn't because they were trying to catch a Z-MAX carrier, but because there was a traffic accident and the driver ran away, and they found it while searching the vehicle. It seems difficult to find because they're selling Z-MAX in a decentralized manner, not forming an organization in the underworld like other drug dealers."</p>
-<p>"So, there's not much difference between the police investigating and us investigating? The Student Council wants us to investigate instead of the police because they have to investigate St. Francisco's Girls' Academy anyway? And since the timing is sensitive, it would be a bit of a problem if the police were wandering around the academy."</p>
-<p>This time, Otagi Yuka answered in response to Shido Tsubaki's words. They're saying they'll solve it themselves rather than borrowing the power of the police, who don't know anything anyway. And there will be visits from high-ranking Japanese officials during the Sports Day, so they can't allow the police to snoop around.</p>
-<p>"First of all, if we start the investigation, we need to divide into groups. It seems like we should divide into groups that directly go around and scout and groups that investigate by searching the internet or documents."</p>
-<p>Shido Tsubaki spoke while looking at the students. And she opened her mouth while looking at Muko Neika.</p>
-<p>"Muko-ssi, how many Disciplinary Committee members can support us?"</p>
-<p>"Not many, -imda. You can think of it as about three people, including me, -imda."</p>
-<p>"If there are three people, it seems like we can have three scouting teams."</p>
-<p>It definitely seemed like Shido Tsubaki had done a lot of information gathering. Shido Tsubaki skillfully began to divide the groups.</p>
-<p>Shido Tsubaki, who is excellent at finding information, and Oofuchi Erika became the information team, and Konoe Akina, the club president, and Minamoto Risa, the class president, became the command team that directs the students in the club room.</p>
-<p>The remaining students decided to become the scouting team that scouts the remote areas of the academy's huge grounds. Since there were three Disciplinary Committee members escorting the scouting team, they were divided into three teams, and Otagi Yuka, Saionji Diana, and Sakagami Rena, who have combat power, exchanged glances without saying a word and split into three teams. I had faith that those three would be safe until they received support, no matter how big the incident.</p>
-<p>Naruse Shiyo, who is weak, and I became the support team that stays in the club room and goes to help where needed. In fact, the support team was practically just me. It wouldn't be strange if Naruse Shiyo took a day off from school at any time.</p>
-<p>"The scouting team should go to the Disciplinary Committee to get a map of the academy grounds and divide the areas. And the information team and the command team will work together to investigate the internet and gather information."</p>
-<p>"What about our support team?"</p>
-<p>Minamoto Risa took the initiative and set the tasks for today, but she didn't give any tasks to the support team. So, when I asked, Seizawa Shii answered.</p>
-<p>"Ryuta-ssi and Shido-tsu should buy us something delicious! The academy is so big, we'll be hungry after going around once~☆"</p>
-<p>Was the support team a support team that supports in that way...? I nodded and looked at Naruse Shiyo.</p>
-<p>"Then Naruse, shall we go on a shopping date with the teacher?"</p>
-<p>"A, a, a date?!"</p>
-<p>Naruse Shiyo was incredibly surprised by what I just said. But she soon gave a shy smile and nodded.</p>
-<p>------------</p>
-<p>Muko Neika B-cut</p>
-<p>Handguns are harder to draw than rifles, lol. I scrapped all the images except for the ones used as illustrations, -dd.</p>
+<p>On Saturday, I went to the hospital where Asada Ei, the daughter of Asada Fukushi, the former caretaker of St. Francisco Girls' Academy, was staying. It was the only large hospital in Miyashi and was run by the Otagi family.</p>
+<p>Since I had spent from yesterday evening until this morning with Otagi Yuka, Saionji Diana, and Sakagami Rena, I came to Miyashi Otagi Hospital with them for a light date and to check on Asada Ei's condition.</p>
+<p>,It's been a while. I used to get blood here before I cut ties with the family,"</p>
+<p>Otagi Yuka opened her mouth with a slightly nostalgic expression. Ah, that's right. As a vampire, Otagi Yuka ate meals with the other girls, but she still needed blood to continue living. I was wondering how she was getting blood in Miyashi, far from her family, but she was getting it from this hospital.</p>
+<p>Since I had contacted Asada Fukushi in advance to let him know we were visiting, we were quickly guided to the hospital room.</p>
+<p>When I opened the door, a cold air greeted us. It felt like it was almost 0 degrees Celsius? The weather was in full autumn, but the room was very cold. In the middle of the hospital's VIP room, on a bed with various devices attached, a woman was lying with her eyes closed. She was a woman around the age of a college student with pale blue-tinged white hair, and she was frowning as if in pain and had a tube inserted in her mouth.</p>
+<p>,What exactly are your daughter's symptoms?"</p>
+<p>,I don't know the exact diagnosis, but it's a temperature allergy. If the temperature rises above a certain point, she loses consciousness and complains of severe side effects, so she can't handle it."</p>
+<p>Asada Fukushi, who was touching his daughter's cheek with a worried expression, answered my question. A temperature allergy... From what I heard, it seemed like high temperatures above a certain level were fatal.</p>
+<p>I wondered if it was some kind of status ailment, so I put on the glasses from the ruins and looked at Asada Ei.</p>
+<p>◆Name: Asada Ei (浅田 永) Lv8</p>
+<p>Strength: 6 Agility: 10 Stamina: 9(-2) Resistance: 8(-2) Recovery: 5 Nerves: 10 Appearance: 14</p>
+<p>Intelligence: 8 Knowledge: 10 Concentration: 8(-2) Willpower: 8(-2) Creativity: 7 Charm: 12 Judgment: 8</p>
+<p>Luck: 7 Cold Resistance: 1</p>
+<p>◆Information Manipulation (Rare Skill Lv9): Can manipulate information through various schemes.</p>
+<p>◆Information Gathering (Rare Skill Lv8): The ability to obtain desired information.</p>
+<p>◆Shooting (Common Skill Lv10): Fires with a ranged weapon. Accuracy increases as the level increases.</p>
+<p>◆Language - English (Common Skill LV9)</p>
+<p>◆Trap Installation and Disarming (Rare Skill Lv8): Installs and disarms traps, snares, and mines. The higher the skill level, the faster the installation and disarming speed without being caught by the opponent.</p>
+<p>◆Trap Detection (Rare Skill Lv5): Detects the presence of traps in the surrounding area.</p>
+<p>◆Owl's Eyes [Rare+ Trait]: Can see through the darkness and can see far away by concentrating.</p>
+<p>◆Stealthy Movement [Rare Trait]: Moves without being noticed by people around you. Footstep sounds are reduced, and movement speed is increased. The darker it is, the more you blend into the environment, and the lower the chance of being detected.</p>
+<p>◆Inquisitor's Sense [Epic+ Trait]: Can instinctively detect the opponent's lies. If you discern the opponent's lie, all physical stats increase by 1 during combat with that opponent. The maximum value of Judgment and Concentration stats increases by 1.</p>
+<p>◆Master of Trap Installation: Becomes a master at installing traps.</p>
+<p>◇Snow Woman's Bloodline [Legacy Bloodline]: Gains the special stat 'Cold Resistance'. Can increase the Cold Resistance stat by absorbing surrounding cold air, and the higher the maximum Cold Resistance, the better you can withstand the heat. The maximum value of the Cold Resistance stat increases by 5, and in cold places, 50 to 80 percent of the Cold Resistance stat is added to all physical stats depending on the temperature.</p>
+<p>However, in hot places, Stamina, Resistance, Willpower, and Concentration stats are reduced by 2 to 6 depending on the temperature. This debuff is indicated as [High Temperature]. If the [High Temperature] debuff persists for a long time, you will faint.</p>
+<p>These aren't the stats of an ordinary woman? There are so many people around with flashy stats that these stats seem a bit low, but they were still good enough to be used as troops in a game. Is it because her father is in the intelligence unit? Or did she become a soldier following her father?</p>
+<p>,Did you serve in the Self-Defense Forces like Asada-ssi?"</p>
+<p>,Yes, she was in the same intelligence unit as I was. She didn't work for many years, but she suddenly collapsed and was discharged seven years ago."</p>
+<p>Seven years ago was probably when the World War ended and Asada Fukushi started manufacturing drugs. After reading all the status windows in detail, it seemed that the last trait, the Snow Woman's Bloodline, was the problem. The disadvantage was that she would get debuffs if the temperature was high, but if she could gather cold resistance, it was a conditional cheat trait that could greatly increase her raw stats. However, since she didn't know that, she would have continued living her life, and in the middle of summer, it would have been fatal, so she would have collapsed.</p>
+<p>However, the problem with Asada Ei was that she had hardly gathered any cold resistance, so her Cold Resistance stat was only 1. The solution seemed simple. She just needed to absorb cold resistance to increase her Cold Resistance stat.</p>
+<p>And I wanted Asada Ei to wake up as soon as possible. I had been thinking about my own intelligence team since yesterday, and some of Asada Ei's skills and traits seemed perfect for being an informant.</p>
+<p>By the way, a Snow Woman... It seemed that either Asada Fukushi or his wife had inherited the Snow Woman's Bloodline. Among Asada Ei's traits, there were no particularly interesting traits except for the Snow Woman's Bloodline, but if she fully awakened the Snow Woman's Bloodline, her traits might change like when Yukiko fully awakened as a succubus. This was a point of anticipation. If I do it well, she could become incredibly strong?</p>
+<p>,Um, how is my daughter?"</p>
+<p>As I was silently looking at Asada Ei, Asada Fukushi looked at me with a worried expression and asked for my opinion. I opened my mouth with a reassuring smile.</p>
+<p>,I think I can cure her for now."</p>
+<p>,Really, really?!"</p>
+<p>Asada Fukushi was very happy at my words. He had been selling drugs for years just to keep his daughter alive, so he couldn't help but be happy when I said I could cure her.</p>
+<p>,But what kind of treatment...?"</p>
+<p>,Do you know about cryotherapy?"</p>
+<p>Cryotherapy is a hypothermic freezing therapy that some athletes do after a game, but in Asada Ei's case, she needed to absorb cold resistance almost all day long, not just for a short time like after a game. In fact, it would be fine to leave this bed as it is in a freezer, but since her father was listening, I couldn't say, 'Your daughter can get better if you put her in a freezer.' So I used the more luxurious term cryotherapy.</p>
+<p>I can ask Eve to do this. Eve loves observing things like superpowers, so if I ask her with a reward, she will gladly accept.</p>
+<p>,I see."</p>
+<p>,If the treatment doesn't work, I'll send her back here and pay for the medical expenses, so don't worry too much."</p>
+<p>He still seemed a bit suspicious, as if he couldn't completely believe my words, so I reassured him and contacted Eve. When I talked to her through the dark web chat, she said that the Miyashi branch happened to have a cryotherapy machine and a freezer, and that she would send a freezer truck soon.</p>
+<p>,You'll probably see your daughter get better in a few days."</p>
+<p>,Thank you...!"</p>
+<p>Asada Fukushi bowed to me repeatedly, feeling like something was being resolved. Asada Ei's problem would be solved with this, and there was nothing more for me to do here.</p>
+<p>,Have you contacted Kurayamada-ssi?"</p>
+<p>,Yes, I'm scheduled to meet him tomorrow. I'm not going to the PMC alone, but my subordinates will be going with me, so we're going to greet him all at once."</p>
+<p>While waiting for the freezer truck, I asked about the new PMC that Kurayamada Kirie would be establishing, and Asada Fukushi answered me as much as he knew. In fact, he didn't know much, because we were scheduled to meet formally tomorrow. In fact, Asada Fukushi had only been caught by me recently. He was caught on the night before the sports day, and yesterday was the sports day, so it had only been two days.</p>
+<p>While we were going through the discharge procedures, the dark web deliverymen who had received Eve's orders arrived. The hospital was flustered when they heard that a patient who paid tens of millions of yen every year was being discharged, but the situation was quickly resolved when Otagi Yuka stepped in.</p>
+<p>,Just go home and rest, and you'll be contacted in a few days."</p>
+<p>,Thank you so much...!"</p>
+<p>I said goodbye to Asada Fukushi, who was packing his things after Asada Ei left, and went out of the hospital. Otagi Yuka seemed displeased that she had helped a drug dealer, and she was sulking.</p>
+<p>,You don't have to forgive him."</p>
+<p>,I hate that I want to forgive him because it's for his daughter."</p>
+<p>So that's how she felt. Otagi Yuka seemed to have mixed feelings because she had lost a friend because of drugs.</p>
+<p>,If it were our family, they would have abandoned him right away. Seeing this makes me hate my family even more."</p>
+<p>Saionji Diana, who had been abandoned by her family after her limbs were cut off, also seemed to feel strange.</p>
+<p>,My lord, how about pizza for lunch? I want to eat Tomino Pizza after a long time."</p>
+<p>Sakagami Rena didn't have any particular thoughts. She was just hungry.</p>

@@ -5,74 +5,77 @@ weight = 614
 chapter = 614
 +++
 
-<p>Because we had been massacring zombies that swarmed the hotel until last night, the area around the hotel was quiet even as the bus moved. Perhaps it was thanks to the commotion we caused during the battle, as all the cyber zombies within a few kilometers radius rushed to the hotel and died.</p>
-<p>Otagi Yuka absorbed the blood of all those cyber zombies we took down, so there was no smell of blood, but I wondered if the hotel people would be able to endure the terrible smell that would soon come as the flesh of the cyber zombies rotted.</p>
-<p>It's almost ten thousand corpses rotting, you know. Fortunately, it was mid-November and cool, so the decay was slow, which was fortunate for the people left in the hotel. It would be okay for a few days.</p>
-<p>The bus formation was such that our Special Class, with the highest combat power, would break through the road at the front, followed by ABC classes in alphabetical order.</p>
-<p>Saionji Diana and Shimokawabe Airen went up on the bus, with Saionji Diana shooting at cyber zombies far away and Shimokawabe Airen cutting down cyber zombies up close.</p>
-<p>Still, since we were driving along the same route we took from the zoo yesterday, there weren't many zombies, so we could drive leisurely. However, many cars were abandoned on the road, so we had to avoid them, so we couldn't drive that fast.</p>
-<p>,Where are we?"</p>
-<p>,Um, about half of half way to the zoo?"</p>
-<p>Minamoto Risa, who was looking at the map next to me, said in response to my question. Half of half... That wasn't very fast.</p>
-<p>,It's much slower than yesterday?"</p>
-<p>,Yesterday, we were being chased by a horde of zombies and a strange robot, so we were in a hurry, pushing cars with the bus."</p>
-<p>Ah, that's right. Yesterday, we were pushing cars blocking the road with the bus and running, but today we were slowly avoiding them, so it was bound to be much slower. If we pushed with the bus like yesterday, it would cause a commotion, and naturally the zombies would gather, and there would definitely be another battle. It was too much to hope that there would be no casualties like yesterday if another battle broke out.</p>
-<p>Yesterday, the combatants sacrificed themselves at the forefront to stop the zombies' advance, but today we were moving by bus, so it was an environment where deaths could occur at any time.</p>
-<p>,It's best to go safely."</p>
-<p>While muttering that and driving, I suddenly became curious and called out to Sakagami Rena, who was looking at the scenery outside the window from the back seat.</p>
-<p>,Sakagami, what was that little weasel yesterday?"</p>
-<p>,Ah, Hamtaro? You noticed, hehe."</p>
-<p>Sakagami Rena said the weasel's name in response to my question. The weasel seemed to know it was being called and poked its face out of Sakagami Rena's bag. It was a weasel with orange patterns on a white background.</p>
-<p>Ah, so that's Hamtaro. Hamtaro's Japanese name in the Hamtori manga was Hamtaro. It seemed like it was named after that because the pattern color and pattern were similar.</p>
-<p>,Kkyu?"</p>
-<p>When I looked at Hamtaro, Hamtaro made a 'kyukkyu' sound with an expression that said, 'Do you have something to say?' Cute. No, I had something I was curious about more than that.</p>
-<p>,How did you bring him all the way to a foreign country? You didn't do any paperwork or anything."</p>
-<p>,That's... Hamtaro follows me on his own. He finds gaps and sneaks in on his own even during inspections. If it's not possible, he hides in the cargo hold of the aircraft and comes."</p>
-<p>He hides and comes on his own... Is he a ninja weasel too? Amazing.</p>
-<p>,Kyaa! Cute~!"</p>
-<p>The reaction was quite good when Hamtaro revealed himself. Minamoto Risa, who said she liked small animals like flying squirrels, seemed to find Hamtaro cute, and her eyes were dripping with honey. That's a new expression.</p>
-<p>,Let me touch him once."</p>
-<p>,But... I have to look at the map."</p>
-<p>,You can ask Sakagami to look at the map for a while."</p>
-<p>In the end, Minamoto Risa couldn't resist and asked Sakagami Rena to look at the map instead, and held Hamtaro in her arms and stroked him. Minamoto Risa was taking the lead as class president even though she didn't have much combat ability.</p>
-<p>Of course, I didn't show it, but I wanted to let her relieve her tension in this way because she must have been accumulating stress and mental fatigue.</p>
-<p>While Minamoto Risa was adoring Hamtaro, we continued to move forward. When we saw zombies in the distance, Saionji Diana accurately shot their heads to prevent a commotion, so we were able to go without any particular danger.</p>
-<p>By the way, Saionji Diana is good at swordsmanship, but she's also quite good at shooting? I wondered if she had changed her cyber implant to one for shooting, or if she had gained shooting skills after leveling up. Once this graduation trip is over, everyone should check their stats with the glasses from the ruins.</p>
-<p>If I leveled up, everyone else must have leveled up by 1 or 2 levels, so I felt the need to check their stats and update the ability window I had organized.</p>
-<p>-Should we stop for a while at the empty lot 100 meters ahead that I see on the map?</p>
-<p>A radio message came from Taira Kanna. Stop? What's going on?</p>
-<p>-Let's have lunch and then leave.</p>
-<p>Ah, it was lunchtime already. As Taira Kanna said, I headed to the empty lot shown on the map. The empty lot seemed to be a park with a lawn, but there weren't many cyber zombies in the park, perhaps because the residents of Neo Nanjing City didn't use it much.</p>
-<p>First, the students with guns got off and dealt with the few cyber zombies and scouted the area to see if there were any other threats. After checking inside the public restrooms and confirming that there were no particular threats, all the students got off the bus.</p>
-<p>Lunch was sandwiches. It was a good choice of food because it could be eaten easily outdoors and it tasted good.</p>
-<p>,Teacher, how's lunch?"</p>
-<p>Uenozono Karen asked me, holding a GoPro. Uenozono Karen said she wanted to record the current situation until the end, so I allowed her on the condition that she didn't film my battle scenes in detail. More than 100 students at St. Francis Girls' Academy had already seen my combat abilities, but it was still better than having it recorded on video.</p>
-<p>Also, I allowed it because I had one idea for using the footage that Uenozono Karen took.</p>
-<p>,It's delicious. Did Karen make it?"</p>
-<p>,I didn't do it alone, everyone did it together."</p>
-<p>Uenozono Karen was a non-combatant, so she was assigned to cooking. Maybe one of the sandwiches I was eating was Uenozono Karen's.</p>
-<p>,It feels even more delicious because you said you made it, Karen?"</p>
-<p>,Ehehe...! Enjoy your meal~!"</p>
-<p>Uenozono Karen blushed slightly as if she was embarrassed, smiled 'hehe' and went to another place with the GoPro camera. She seemed to be doing short interviews with everyone except for a few students who didn't welcome filming.</p>
-<p>,Everyone, if you're done eating, take care of things like going to the bathroom here. You'll have to spend a few more hours on the bus and you won't be able to go to the bathroom in the middle."</p>
-<p>Taira Kanna said as the meal was coming to an end. She was definitely right. Although we were going on the road we cleared of zombies yesterday, it wasn't safe enough to come out in the middle to take care of business. We had to take care of things here where there were public restrooms so that we wouldn't have any embarrassing situations later.</p>
-<p>Actually, I was wondering why we were eating outside when we could just eat on the bus, but it seemed to be because of the bathroom.</p>
-<p>Taira Kanna, who had informed the students about using the bathroom, soon approached me, gave me a kind smile, and opened her mouth.</p>
-<p>,Oppa, please use the bathroom first. After Oppa uses the bathroom, I'm thinking of letting the others use the men's bathroom to save time."</p>
-<p>Ah, I see. Since I was the only man (originally, there were two men including the homeroom teacher of Class C, but now that the homeroom teacher of Class C was missing at the zoo, I was the only man at St. Francis Girls' Academy), she was thinking of letting the other female students use the men's bathroom after I used it to save waiting time.</p>
-<p>,Huh? Kanna, are you going to use the men's bathroom too?"</p>
-<p>,I thought I should take the lead and show them so that the other students will use the men's bathroom."</p>
-<p>Ah, I see. Taira Kanna blushed and answered my question. After all, they were young ladies from prestigious families, so they might be reluctant to use the men's bathroom. As expected of the student council president, she seemed to be taking the lead.</p>
-<p>After everyone used the bathroom, we checked the number of students and got back on the bus. I started driving again, and after driving for several hours, we finally saw the zoo.</p>
-<p>,Now that we can see the zoo, if we go east from the zoo, we can reach the border of Neo Nanjing City in an hour."</p>
-<p>Hearing this, it felt like it was stupid to go to the hotel yesterday. Even though I didn't know much about the zombie situation, hearing that we could have left Neo Nanjing City in an hour from the zoo made me think that we had fought for nothing. Of course, I leveled up and got good skills, so it wasn't bad for me.</p>
-<p>,We should have run away east instead of going to the hotel yesterday...! Our Ryuta-tchiman keeps suffering?"</p>
-<p>Seizawa Shii seemed to have the same thought as me and complained after hearing Minamoto Risa's words.</p>
-<p>,No, if we had gone to the city border with that giant robot, we would have been attacked by the military together."</p>
-<p>That was also somewhat reasonable. The city next to Neo Nanjing City, where we were going, was Shanghai. They might have thought that we were going to terrorize a big city with a giant robot, so the bus of St. Francis Girls' Academy students might have been attacked as well.</p>
-<p>By the way, the SCSMC's secret laboratory was east of the zoo. From a distance, I could see the SCSMC's secret laboratory with a hole blown in it.</p>
-<p>Kugugugu!</p>
-<p>Suddenly, the giant zombie robot rises from the blown hole in the SCSMC's secret laboratory. I stared blankly at the zombie robot and muttered.</p>
-<p>,Why is he coming out from there?"</p>
-<p>________________</p>
-<p>Arisu practicing with a new model!</p>
+<p>I had been to the mansion where Kujo Kina lived once before. As the advisor of the Date Experience Club, I had a one-on-one date with the special class students in turns, and I had a health date with Kujo Kina in the gym inside the mansion.</p>
+<p>,Hello, sensei. Thank you again for helping Kina-yang in Shin-Namgyeong."</p>
+<p>At the entrance of the mansion, Kujo's white-haired butler bowed deeply to me.</p>
+<p>,As a homeroom teacher, it's natural to help my students. You don't have to greet me."</p>
+<p>,Hehe.... Kina-yang will be waiting in the gym you visited before."</p>
+<p>I nodded to the butler and headed to the gym inside the mansion. It was a gym used only by Kujo Kina, but it was quite spacious and had everything it needed. I heard that Kujo Kina's older brother, the next Chairman of the Kujo family, had a great love for his younger sister, and he seemed to give Kujo Kina everything she wanted.</p>
+<p>,Sensei, you're here?"</p>
+<p>When I entered the gym, Kujo Kina, wearing a black workout tank top that showed her abs and lime-colored leggings, greeted me with a slight smell of sweat. She was already working out and sweating a bit. Dumbbells and exercise equipment were placed around her.</p>
+<p>,Did you warm up?"</p>
+<p>,Huh? It's just my daily workout routine?"</p>
+<p>,Really? Don't overdo it."</p>
+<p>Well, with abs like that, there's no way she wouldn't work out every day. For a woman to build her body to that extent, she either has to be addicted to exercise or steroids. There was little chance that Kujo's daughter would be injecting steroids, so she must be addicted to exercise.</p>
+<p>,Then let's go to the arena."</p>
+<p>Past the weight training room, there was an arena with mats where you could practice martial arts forms, and it seemed like she would be training her martial arts here.</p>
+<p>,Should we start with sparring first?"</p>
+<p>Since I decided to give her special training, I was going to start with sparring. I was going to figure out Kujo Kina's strengths and weaknesses while sparring. I put on the gloves hanging on the wall. Still, it's sparring, so I can't hit my student with my bare fists. When Kujo Kina was about to put on gloves, I stopped her.</p>
+<p>,Don't wear gloves."</p>
+<p>,Are you sure, sensei?"</p>
+<p>Since my resistance stat had already exceeded 20, I wouldn't be too shocked even if I got hit by Kujo Kina's bare fists, so I told her to take off her gloves. Kujo Kina seemed to have her pride hurt by my words, and she clicked her tongue and took a stance, looking at me.</p>
+<p>,Attack whenever you're ready."</p>
+<p>,Aren't you underestimating me too much?!"</p>
+<p>Kujo Kina, saying, "Aren't you underestimating me?" simultaneously threw a punch. It was quite fast, but that was it. I deflected Kujo Kina's punch to the side and tapped her side. I didn't hit her hard, but she seemed even more angry because of that, and she kicked me with an "Iik!"</p>
+<p>I wondered if she was angry because I did it weakly, so this time I mercilessly grabbed her ankle and threw Kujo Kina. Still, she hadn't neglected her breakfall training, and Kujo Kina, who landed softly even with my throw, rushed at me again, swinging her fists and feet as if she was furious. It seems like she's just angry at the fact that she's being hit.</p>
+<p>Rather, the attacks she swung in anger were sharper and more threatening than the previous attacks, but the martial artist was the combat style with the shortest range of all combat styles. If you give in to anger, you'll only hurt yourself. That's why the martial artist had to remain calm more than anyone else.</p>
+<p>I blocked and neutralized all of Kujo Kina's attacks as she rushed at me recklessly. In the beginning, she gave in to anger and attacked recklessly, but you can't be angry forever. After a few minutes, Kujo Kina soon regained her composure and began to make precise attacks.</p>
+<p>,Stop."</p>
+<p>I, who had been receiving attacks for a while, opened my mouth. Kujo Kina stopped her hands and breathed heavily, "Haa, haa." I went to the water purifier on one side and got some water and gave it to Kujo Kina. Kujo Kina, who received the water cup, tilted her head back and drank the water heartily. She could do a beer commercial at that level.</p>
+<p>,Let's sit down and talk for now."</p>
+<p>I said, sitting on the mat as it was. Kujo Kina also sat down on the spot as if she understood.</p>
+<p>,First of all, the things to point out are.... Don't get excited during battle. It was much better to calmly attempt techniques towards the end than to get swept up in anger and attack recklessly."</p>
+<p>,I think that's definitely right. When I swing my fists while giving in to anger, I feel like I'm putting too much power into it, so my accuracy is lacking and my stamina is being consumed quickly."</p>
+<p>,And...."</p>
+<p>In fact, there were many things to point out. The thing I wanted to point out the most was that Kujo Kina was a self-taught mixed martial artist who had learned various martial arts. Of course, I didn't mean that mixed martial arts was bad. But you need to have a base martial art that is the foundation, but it felt like she had just learned this and that, so it felt like she had no roots.</p>
+<p>Of course, Alik was also a self-taught swordsman who had learned this swordsmanship and that swordsmanship, but Alik had Shimokawabe Airen, the future Three Sword Master, as his teacher. This was a big difference. Because the teacher can guide you through the many crossroads.</p>
+<p>Of course, Alik had the fraudulent electric-type trait, but if you limit it to martial arts, Kujo Kina wasn't bad either. She had the qualities to become a good martial artist because she had the martial arts prodigy trait, as well as the wild sense and wild body traits that helped her movement. If she continues to train alone like now, it would be no different from wasting her precious talent.</p>
+<p>,And?"</p>
+<p>,It's good to absorb the advantages of various martial arts, but how about learning one martial art properly that will be your root first? Or you could find an excellent teacher."</p>
+<p>In fact, saying this was no different from saying, "Your direction itself is wrong!" so I spoke a little cautiously. But Kujo Kina nodded as if she had felt a lot from the sparring just now.</p>
+<p>,Definitely.... It seems to make sense. Then, can you be my master, sensei?"</p>
+<p>Me as a master was impossible. I was a martial artist armed with stat buffs and traits, a style that pushed through with strength rather than technique.</p>
+<p>Besides, because I had an extremely aggressive style that rushed in without taking care of my body due to my excellent defense and regeneration, Kujo Kina and my conditions were too different to help Kujo Kina.</p>
+<p>If Kujo Kina fought according to my style, Kujo Kina, who had no regeneration, would surely die soon.</p>
+<p>,I'm not good enough to be someone's martial arts master yet. Just a moment.... I wonder who is an excellent martial artist...?"</p>
+<p>I thought for a moment about whether there was anyone who could be Kujo Kina's teacher. Should I ask Fujigasaki Rinka if she has a good teacher? I was already wondering who to entrust the brainwashed martial arts boys and girls rescued from Anya-ji to, so it seemed like I could include Kujo Kina there.</p>
+<p>,I have a method in mind, so I'll ask for now."</p>
+<p>,Okay, sensei. I'll go work out again in the meantime."</p>
+<p>When I took out my phone and spoke, Kujo Kina nodded. Even during this short break, she's working out.... She's really addicted.</p>
+<p>-Taira Ryuta: Teacher, you know that friend who was cursed with berserk from Anya-ji that I mentioned before....</p>
+<p>When I sent a line with a brief explanation, I soon received a reply from Fujikasaki Rinka.</p>
+<p>-Rinka-ttang: I was already thinking of entrusting the kids to a martial artist named Kinui Tachio, so ask her if she's interested too. The only problem is that this person is a martial artist who trains in Mt. Fuji and has no fixed residence, so I'm looking for a place to accommodate all the kids who were kidnapped from Anya-ji. If the residence problem isn't resolved, he says he'll let the kids roam free on Mt. Fuji to train, isn't that too much?</p>
+<p>Mt. Fuji? It's right next to Miyashi. That's even better. Kinui Tachio.... As someone with shallow knowledge of martial artists, I don't know him well, but if Fujigasaki Rinka is entrusting the kids to him, he seems to be a person with no problems in terms of skill and personality.</p>
+<p>-Taira Ryuta: She's rich, so she'll solve the residence problem. And since this neighborhood is near Mt. Fuji anyway, it should be fine.</p>
+<p>-Rinka-ttang: Really? Then the residence problem is solved? As expected, I have a good disciple, so a solution comes out quickly! I'm going to have the kids meet Kinui Tachio-ajusshi tomorrow, so ask if she's coming.</p>
+<p>-Taira Ryuta: Just a moment.</p>
+<p>I paused the Line conversation for a moment and called Kujo Kina. Kujo Kina approached me while holding a dumbbell.</p>
+<p>,Do you know someone named Kinui Tachio?"</p>
+<p>,I know him! He's famous as a wandering martial artist who travels around Japan and breaks into dojos. He was said to be terrifyingly strong when he was young, but now I hear he's traveling around the country to establish the martial arts he's learned."</p>
+<p>He was a famous person. Or maybe Kujo Kina is a martial arts otaku.</p>
+<p>,This time, I rescued one child who was affected by berserk like you and a few children who were kidnapped.... I'm thinking of entrusting them to someone named Kinui Tachio, so I'm asking if you're thinking of becoming a disciple together...."</p>
+<p>,Great! As expected, sensei is the best! To find me a master so quickly."</p>
+<p>Kujo Kina was very happy even before I finished speaking.</p>
+<p>,The story isn't over yet. There's a problem, and that is that since this person is a wanderer, there's no suitable place for the new disciples to be with.... He said he might just let the kids roam free on Mt. Fuji where he trains."</p>
+<p>,That's not a problem. If you just get out of Miyashi, the land prices on the Mt. Fuji side aren't expensive.... Hmm, that's how it'll work out."</p>
+<p>As expected of the young lady of the Kujo Group, she seemed to have finished the calculation quickly in her head.</p>
+<p>,Leave that to me. Is there anything else you need?"</p>
+<p>,Probably not. Do you have time tomorrow? They said they're meeting the new disciples and that Kinui Tachio-ssi."</p>
+<p>,Of course I do! If I don't meet them together tomorrow, I'll become a disciple in order of enrollment, so I have to meet them together no matter what! No, can I meet him first instead? Since I've decided to become a disciple, I want to be the highest-ranking senior."</p>
+<p>After hearing Kujo Kina's words, I conveyed Kujo Kina's answer to Fujigasaki Rinka.</p>
+<p>-Rinka-ttang: It wouldn't be bad to see him in advance if you're going to prepare a place for the kids to be in advance. Ask her if she can come here right now.</p>
+<p>I sent Kujo Kina the location and asked if she could go now, and she looked at me with a look that asked if I was asking the obvious.</p>
+<p>,I have to leave right away, sensei-ssi! If I join even a day earlier, I'll become a senior, right?!"</p>
+<p>____________________</p>
+<p>Leggings Kina</p>
+<p>I was surprised that someone predicted the leggings in advance hehehe</p>

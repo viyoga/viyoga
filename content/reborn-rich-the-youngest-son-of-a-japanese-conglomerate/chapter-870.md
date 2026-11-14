@@ -5,70 +5,75 @@ weight = 870
 chapter = 870
 +++
 
-<p>"Dad!!"</p>
-<p>Sakagami Rena, who hadn't expected Sakagami Ginshiro to act this way, shrieked. Not Father, but more intimately, Dad! she said. But Sakagami Ginshiro, ignoring Sakagami Rena's cry, looked at me and opened his mouth.</p>
-<p>"Teacher-nim will also understand later when you have a Daughter. The desire to know if the Man her Daughter brings, whether he is her Husband or Liege/Master, is truly a Man who can take Responsibility for his Daughter."</p>
-<p>At Sakagami Ginshiro's Words, I nodded my Head and stood up from my Seat. Since there was a Father's mind, I could accept his curiosity about whether I was a Man safe enough to entrust Sakagami Rena to.</p>
-<p>But what kind of Test was he going to put me through? Surely not a Duel....</p>
-<p>"This mansion was actually an old mansion that existed even before St. Francis Girls' Academy was built. In the Underground of the mansion, there is a Testing Ground for ninjas. However...."</p>
-<p>As I was to undergo the Test, Sakagami Ginshiro began to explain the Test. After explaining that there was a Place in the mansion's Underground for testing ninjas, he paused for a moment.</p>
-<p>"Dad! Surely...."</p>
-<p>Sakagami Rena also couldn't finish her Words and made a surprised Expression. What the hell kind of Test was it that everyone kept cutting off their Story midway?</p>
-<p>"Although it's a bit difficult to say from the position of proposing the Test.... It's quite a dangerous Test. You could even die trying to take the Test."</p>
-<p>Could die? Even if it was just a Trap or sealed spirits for a Test, it might be enough to cause Death for a Layperson, but it wouldn't inflict significant harm on me. With my regenerative Ability and various defense Traits, it was difficult for ordinary Attacks to cause me harm.</p>
-<p>"Actually, it's a Test for top-tier ninjas, but the return rate is only 50 percent."</p>
-<p>Even for top-tier ninjas, their defense wouldn't be on my Level, so it was certainly worth challenging. Although he tried to instill fear in me, I couldn't stop at this.</p>
-<p>"Still, I'll take the challenge."</p>
-<p>"...Is that so?"</p>
-<p>Sakagami Ginshiro asked back, as if surprised by my Answer. As I nodded my Head again, Sakagami Ginshiro and his Family began to guide me.</p>
-<p>Entering a small building in a Corner of the spacious mansion, two large Buddha statues were enshrined. When I pushed aside the right Buddha statue among those placed there, a Secret Passage leading to the Underground appeared. I stepped into the Secret Passage without fear.</p>
-<p>"Then, I'll be back."</p>
-<p>"Liege/Master~! Be careful...!"</p>
-<p>"I sincerely hope for your Success."</p>
-<p>I descended into the Secret Passage, seeing off the Sakagami People. The Secret Passage grew darker the further I descended, and upon reaching the end of the Passage, complete Darkness greeted me.</p>
-<p>Since I didn't have the Ability to see through Darkness, I activated Creation Chaos. Relying on the Light of Creation Chaos, where deep blue and purple Light mysteriously harmonized, I walked the Road. With this level of brightness, I could sufficiently navigate the Road.</p>
-<p>"There's nothing here?"</p>
-<p>I muttered as I walked the Road. No matter how long I walked, there were no Traps, no Attacks from hidden ninjas, nor any assaults from spirits sealed in the Underground.</p>
-<p>It was just an incredibly long Passage. After walking at a fast pace for about twenty minutes without rest, an exit appeared. Climbing the stairs again, I arrived at a Passage behind another Buddha statue, right next to the Entrance.</p>
-<p>Seeing that the Entrance and exit were in the same Place and the Road was extremely long, it seemed to have been designed to circle the entire Underground of the mansion.</p>
-<p>"There was nothing there?"</p>
-<p>When I, emerging from the exit, asked with a bewildered Expression, Sakagami Ginshiro laughed heartily.</p>
-<p>"Hahaha! Actually, the top-tier ninja Testing Ground has been moved elsewhere. It was such an old Place that many Traps no longer worked. I wanted to Test whether Teacher-nim would willingly go to a dangerous Place for my Daughter."</p>
-<p>Ah, so it was that kind of Test? It seemed it wasn't really a Test of Ability, but rather a Test of whether I would take Risks for his Daughter. It was a Test to observe my Attitude, pointing to an empty Testing Ground and saying I could die, deliberately trying to instill fear in me, to see if I would willingly risk my Life for his Daughter.</p>
-<p>"W-when on earth was the Testing Ground moved?"</p>
-<p>Seeing her bewildered Expression like mine, Sakagami Rena also seemed unaware that the Underground Testing Ground had been moved.</p>
-<p>"Hahaha! Now that you've become independent, I couldn't tell you. It was moved elsewhere from the Time you lost Interest in Family matters. You were busy running around doing outside Work, so how could you know?"</p>
-<p>At Sakagami Ginshiro's Words, everyone except Sakagami Rena and me laughed heartily. It seemed Sakagami Rena, who hadn't noticed the ongoing Construction, was amusing.</p>
-<p>"A Liege/Master served by a ninja cannot always be strong. I wanted to know how you treat your Subordinates rather than Test your Skill. Thank you for cherishing my Daughter. I look forward to your continued care."</p>
-<p>Sakagami Ginshiro, who had been laughing for a while, suddenly became serious and respectfully bowed at the Waist to me.</p>
-<p>"I am truly grateful for sending such an excellent Daughter."</p>
-<p>In response to Sakagami Ginshiro's respectful greeting, I also faced Sakagami Ginshiro with a serious Attitude and bowed at the Waist.</p>
-<p>"It's a pleasant day, so let's have a Banquet today! Teacher-nim, you must participate today!"</p>
-<p>At Sakagami Ginshiro's Words, when we returned to the Place where we had eaten Dinner, Alcohol and Snacks were already laid out. Personally, due to my Trait, I didn't get drunk easily, so I didn't particularly enjoy Alcohol, but since it was laid out like this, I couldn't refuse.</p>
-<p>I drank Alcohol for several hours, then returned Home when everyone was drunk and passed out. Sakagami Rena followed me all the way Home, saying she would see me off, and Inside the House, Otagi Yuka, who had stopped by to replenish her Semen, was waiting for me.</p>
-<p>Following the Drinking Party, I was able to end the day's schedule by simultaneously enjoying Otagi Yuka's and Sakagami Rena's naked bodies until Dawn for a second round.</p>
-<p>"Pretending to be drunk is tough."</p>
-<p>As Yamashiro Ryuta left the mansion with his Daughter, Sakagami Ginshiro, who had been pretending to be drunk, rose from his Seat. As Sakagami Ginshiro finished his Words, everyone from the Sakagami Family sat down as if they hadn't been drinking Alcohol at all. Since they were all excellent ninjas, getting drunk was an impossible feat.</p>
-<p>"Ichikage (一影), have you checked the Underground Testing Ground?"</p>
-<p>"There were no abnormalities."</p>
-<p>At Sakagami Ginshiro's Words, a Man named Ichikage, whose Face was covered, rose from the Shadows and nodded his Head.</p>
-<p>"No abnormalities? Then that means he properly passed the Testing Ground...."</p>
-<p>In fact, the Test Yamashiro Ryuta underwent was a complete one, not one that had been moved elsewhere. It was a Place that stimulated human fear to its extreme with endless Darkness and various vengeful spirits sealed by Sorcery. While Life wasn't at Risk, it was a Place where anyone not mentally well-trained could experience severe Trauma. For top-tier ninjas, for whom testing Skill was already meaningless, Mental Power was a more crucial Element, which is why this Test was conducted. As Sakagami Ginshiro had said earlier, it was true that he intended to count merely challenging the Test as a pass.</p>
-<p>But he hadn't expected him to pass so easily. They had been on standby at any Time to rescue Yamashiro Ryuta, but since he finished the Test as if there were no problems at all, it was natural for everyone to be surprised.</p>
-<p>"The Underground Testing Ground absorbs even mechanical Light like phone flashes, so I wonder how he managed to pass."</p>
-<p>"He must be a Person with that much Ability."</p>
-<p>Since the Sakagami Family had excellent Information gathering Ability in the Miyashi area, they had some Guess about Yamashiro Ryuta's Combat power. But they hadn't expected him to pass the Underground Testing Ground, which tested Mental Power, so easily.</p>
-<p>"Aren't you going to get scolded by Rena for lying earlier, length-nim?"</p>
-<p>Seeing Yamashiro Ryuta's calm appearance, his younger sibling Sakagami Mansaku (坂上 満作) asked Sakagami Ginshiro, who had lied about moving the Testing Ground, with a smile. In reality, the contents of the Miyashi mansion's Underground Testing Ground were unknown to anyone except top-tier ninjas who had passed the Test, so Sakagami Rena, who had not yet become a top-tier ninja, naturally did not know the details of the Test. Sakagami Rena would certainly believe her father, Sakagami Ginshiro, when he said he had moved the Testing Ground. Later, when Sakagami Rena takes the top-tier ninja Test, she will uncover the truth from today and eventually speak to her father, Sakagami Ginshiro.</p>
-<p>"I'll just say the Test content was a Secret, so it couldn't be helped. And who would have known Teacher Yamashiro would pass the Test so easily? If he had passed so easily and we called it our Family's real Test, he would have looked down on our Family."</p>
-<p>From the perspective of Sakagami Ginshiro, the length-nim of the Sakagami Family, he should have said that what I passed was not actually a Test, even for the sake of his Face. Because it truly seemed Yamashiro Ryuta hadn't felt anything at all in the Testing Ground.</p>
-<p>"That's true. With a well-trained Body and having excellently passed our Test, Rena has certainly chosen a good Liege/Master."</p>
-<p>"I, however, liked his Face?"</p>
-<p>As Sakagami Mansaku said that Sakagami Rena's choice of Liege/Master was a good one, Sakagami Rena's Mother Sakagami Shiine also playfully Smiled and said she liked Yamashiro Ryuta's Face.</p>
-<p>"I, on the other hand, think his Face is the Problem. If he's too handsome, he's bound to live up to his looks...! It's the mark of a Womanizer, the mark of a Womanizer!"</p>
-<p>Sakagami Ginshiro grumbled as if he didn't like Yamashiro Ryuta's smooth Face. Sakagami Ginshiro's Words were not wrong. Because at this very moment, Yamashiro Ryuta was embracing two women simultaneously: Sakagami Ginshiro's Daughter Sakagami Rena, and Otagi Yuka.</p>
-<p>Shido Tsubaki new model Remake~!</p>
-<p>Original Ryuta, delivering a Punch imbued with Creation Chaos, as requested by MidNightSKY-nim~!</p>
-<p>Shido Tsubaki Stuck in wall, as requested by TheDreaming-nim~!</p>
-<p>I wish the wall Position was a bit better, but it's not turning out as I want, hehe.</p>
-<p>Kkiyot!</p>
+<p>Tutu-tutu!</p>
+<p>Like during the last Sports Festival, two helicopters, after a prolonged Battle of Wills in the empty space, landed almost simultaneously at St. Francis Girls' Academy's helicopter landing pad. And from each helicopter, two figures descended.</p>
+<p>They were the two giants of Japan's business world, Taira Danjo and Minamoto Ushin, along with their Wives. Taira Shizuku and Minamoto Toyomi each stood beside their Husbands and began to walk.</p>
+<p>"That ugly Face of yours is still the same."</p>
+<p>"And your unsightly bald Head is just as it was."</p>
+<p>The two eccentric Elderly Persons, having exchanged Sharp Tongue remarks, walked side by side. Behind them, Taira Shizuku and Minamoto Toyomi smiled and greeted each other warmly, but that warmth held no Sincerity.</p>
+<p>Following them, a helicopter from the Kujo Group landed, and Kujo Kazuo, the eldest son of the Kujo family and the future Chairman of the Kujo Group, got off the helicopter. Kujo Kazuo was alone, as he did not yet have a wife.</p>
+<p>No matter how solid a Foundation Kujo Kazuo had as the next Chairman of Kujo Group, to Taira Danjo and Minamoto Ushin, he was merely a young upstart in his early thirties. Thus, Kujo Kazuo hurried towards the advancing Taira Danjo and Minamoto Ushin and greeted them with Etiquette.</p>
+<p>"Greetings, Elderly Persons."</p>
+<p>"Yes, how is Jhonoshin?"</p>
+<p>"You still look impressive, Kazuo."</p>
+<p>After the ceremonial greetings, the theme immediately shifted to Kujo Kazuo. More precisely, it was the large Camera hanging around Kujo Kazuo's Neck.</p>
+<p>"What is that Camera?"</p>
+<p>"My younger sibling is graduating, so I plan to take Photos."</p>
+<p>Kujo Kazuo answered Minamoto Ushin's Question with a doting Smile. It was an incredibly expensive, high-performance Camera capable of photographing the Moon's Surface, but even for a Graduation ceremony where a Young Lady of a prestigious family was graduating, such a Luxury item was hardly necessary. However, because Kujo Kazuo was famously a doting fool for his Youngest, Taira Danjo and Minamoto Ushin simply conceded with a 'Is that so?'</p>
+<p>"Speaking of Cameras, I heard Kokoro's company is doing some Filming?"</p>
+<p>"Yes, I believe all Negotiations with your side have concluded?"</p>
+<p>"Of course, the Negotiations are over, but can't I just ask in Conversation? What an utterly Humanity-less old man."</p>
+<p>This time, the theme shifted to Uenozono Karen's vlog, which Taira Entertainment, managed by Taira Kokoro, was scheduled to Film today.</p>
+<p>As the Faces of students from prestigious families would appear, Taira Entertainment had to conduct quite a lot of Negotiations. Since Minamoto Lisa was the Class president of the special class, the Minamoto family was naturally among the subjects of Negotiation.</p>
+<p>Normally, the Minamoto family would never negotiate such a Proposal from the Taira side, but they agreed to hand over Minamoto Lisa's Filming footage separately to Minamoto Ushin, and since it concerned Uenozono Karen, Minamoto Lisa's classmate and friend, they granted special permission for this Filming.</p>
+<p>"I also arranged to receive Kina's Video separately, which I'm looking forward to."</p>
+<p>Kujo Kazuo also seemed to have given his permission on the Condition of receiving Kujo Kina's Video. Since Minamoto Lisa and Kujo Kina were in the same class, they could receive the Filming footage this way, but Taira Kanna was in a different class. Even though the vlog Filming was a Taira Group project, Taira Danjo had to bring a separate Filming team.</p>
+<p>While not as overtly doting as Minamoto Ushin or Kujo Kazuo, Taira Danjo also cherished his youngest daughter, Taira Kanna, quite a bit.</p>
+<p>Of course, that cherishing was closer to an artist cherishing their outstanding Work than a Father cherishing his Daughter, but Taira Danjo was a Person who believed there were many kinds of paternal love.</p>
+<p>'Still, perhaps because their Wives are with them this time, they're not fighting much.'</p>
+<p>Kujo Kazuo thought it was Fortunate inwardly. During the last autumn Sports Festival, the Battle of Nerves between Taira Danjo and Minamoto Ushin, those two old men, was intense, making it quite a headache to be with them. But today, with the Wives of the two Elderly Persons present, he thought they would somewhat Suppress the old men's fighting.</p>
+<p>In fact, it would usually be a good thing for Kujo Kazuo if the number one and number two groups fought, but not today. He didn't want any interference from his Surroundings while taking Photos of his beloved younger sibling.</p>
+<p>"The Neo Tokyo Business is...."</p>
+<p>"A national Technology autonomous City?"</p>
+<p>Before they knew it, the theme of their Story had shifted to Business. Specifically, it was about the cyber cities the two groups were building. Kujo Group was also building a cyber City based on a smaller City, but it couldn't compare to the cities being built by the two colossal groups, Taira and Minamoto.</p>
+<p>As they discussed Business, the executives running Japan's top companies soon arrived at the parent observation seats, where parents could sit and watch the Graduation ceremony.</p>
+<p>St. Francis Girls' Academy did not have the tradition of wearing hakama like other High School Graduation ceremonies. Instead, there was a tradition of wearing School Uniforms as usual for the Graduation ceremony, rather than preparing something special to wear. It was as if to say, 'You won't really have a chance to wear a School Uniform once you become an Adult, so wear it one last time and enjoy your youth!' That kind of Feeling.</p>
+<p>So, even though it was the last Morning Jorye on Graduation day, the Atmosphere was the same as usual. The special class Students were still wearing their School Uniforms and were still chattering noisily and cheerfully. It was an Appearance that wouldn't feel awkward at all, even if it were a weekday Morning During the Semester, not Graduation day Morning.</p>
+<p>"Is everyone ready for Graduation?"</p>
+<p>"""Yes~!"""</p>
+<p>Although I entered the Classroom, followed by a Camera, the Students were not flustered. This was because they had been informed in advance about the vlog Filming. And since there had been several vlog Filming sessions, they had also become a little accustomed to the Camera.</p>
+<p>In fact, there wasn't much content for the Morning Jorye. After all, these were Students who would leave after Graduation, so St. Francis Girls' Academy had nothing special to say. Still, the Reason for giving time for the Morning Jorye was to provide a farewell moment between the Class Teacher and the Students who had grown fond of each other.</p>
+<p>"As a novice Teacher, I was appointed midway and now we've already reached Graduation. I worked hard in my own way, but I don't know if I did well. Even if there were things you didn't like, let's leave the bad memories behind and only take the good ones. It's been fun for half a year, you troublemakers!"</p>
+<p>After finishing my last speech, Jeers poured out as before. Of course, they weren't genuinely upset; everyone smiled as usual and sent their Jeers my way.</p>
+<p>"Woo~! Troublemakers, you say~!"</p>
+<p>"That's right, Ryuta-cchi! Your Words are too harsh~☆"</p>
+<p>"You're the biggest troublemaker, Teacher-nim~!"</p>
+<p>Listening to the Students' rebuttal, I called attendance one by one. Naturally, no one was absent. Uenozono Karen, who was usually busy with Entertainment Industry work and rarely seen, naturally came to School today because of her Graduation vlog Filming. All the other Students also filled their Seats, allowing the last day to conclude gracefully without any absences.</p>
+<p>"Then, gather in front of the special class by 8:50 and we'll depart.... Just sit and relax until then."</p>
+<p>I roughly gave the vlog Filming team time to Interview the Students and then left the Classroom. Outside the Classroom, Taira Kokoro was leaning against the wall, smiling as she watched me.</p>
+<p>"That was quite a speech. Calling the Young Ladies of prestigious families troublemakers...."</p>
+<p>"Look at the signboard written on this class. It's a special class for troublemakers, after all."</p>
+<p>Taira Kokoro seemed quite impressed that I called the Students troublemakers, but my Words were a fact. And it wasn't as if I said anything I shouldn't have, either.</p>
+<p>"You're quite close with the Students? Are you a born Teacher?"</p>
+<p>"It's because we've been through so many things together. There was the Shinnamgyeong Zombie incident, and catching the serial Murderer at the ski resort."</p>
+<p>I answered Taira Kokoro's Question with examples, but Taira Kokoro didn't seem very interested in my Answer. If she wasn't interested in the Students' Story, why did she come here today? Did she come to meet Taira Danjo while he was here...?</p>
+<p>"That's true. Now that your Work as a Teacher is over, do you really not want to Work under me? Someone of your caliber could become Japan's most outstanding Actor or model."</p>
+<p>No way.... Did she come to scout me? Judging by her Gaze, Taira Kokoro's Words seemed quite sincere. But this was an unacceptable Proposal. If I went to Work under Taira Kokoro, I wouldn't be able to take Responsibility for the People who had trusted and followed me until now. An Alliance might be possible, but I couldn't go under her.</p>
+<p>"I'm sorry, but I'll have to decline. I have Work I want to do. And my Grandfather's mission is still ongoing."</p>
+<p>"Is that so? It's your Choice, but I hope you don't Regret it later."</p>
+<p>Surprisingly, Taira Kokoro nodded her Head as if she had expected my refusal and had no regrets. Since it would be problematic if a Scene of me continuously talking with Taira Kokoro was filmed, I bowed my Head slightly to Taira Kokoro and then exited the special class building.</p>
+<p>Outside the special class building, Kijimoto Jurie was caught by the vlog Filming team and was being Interviewed. By the way, how many Cameras did they bring?</p>
+<p>Of course, an Interview Request also came to me, and I gave a short Interview. I smiled and gave my greetings in response to the Request to share my Graduation thoughts and greet the Gudokja of Uenozono Karen's channel.</p>
+<p>After finishing the Interview, the Students began to emerge one by one. Minamoto Lisa, the Class president, stood behind me, and the Students stood behind her, and we headed towards the large sports ground where the Graduation ceremony would be held.</p>
+<p>Requested by Gojoy-nim: Muko Neika's breast-covering and belly dancer~!</p>
+<p>Starting with breast-covering~!</p>
+<p>Belly dancer~!</p>
+<p>Requested by TheDreaming-nim: Ryuta with blue spiky Hair 1. Holding an Energy Gun in the laboratory 2. Sitting in a cyber spaceship holding an Alcohol bottle~!</p>
+<p>1.</p>
+<p>2.</p>
+<p>Requested by MidNightSKY-nim: Ryuta, clad in the Genesis Chaos Aura, striking the Ground~!</p>
+<p>It's difficult hehe.</p>
+<p>Requested by ISaveI-nim: Cat disguise Kokoro, Nae</p>
+<p>Starting with Kokoro~!</p>
+<p>Nae~!</p>
+<p>The Aunts are so firm and bouncy hehe.</p>

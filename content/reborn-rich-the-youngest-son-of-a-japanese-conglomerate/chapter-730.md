@@ -5,94 +5,112 @@ weight = 730
 chapter = 730
 +++
 
-<p>"First, can you introduce yourself?"</p>
-<p>-I'm Linling. I'm an artificial intelligence developed by the now-defunct Jeonlang. May I know the name of the person who saved Linling?</p>
-<p>Linling, huh... So I was right, it's an AI. Looks like she was in the secret 21st floor of the lab even after Jeonlang went bust. By the way, referring to herself in the third person, she seems like a pretty unique AI.</p>
-<p>"Call me Jin Yong-tae, or Taira Ryuta, or Yamishiro Ryuta, or Hata Ryuta, whichever you like."</p>
-<p>At my introduction, Linling tilted her head and looked at me. She looked so cute that I almost stroked her head without realizing it.</p>
-<p>-You have many names. Then... Linling will call you Jin Yong-tae-nim, the first name you introduced.</p>
-<p>"Well, call me whatever you want. But have you been here the whole time?"</p>
-<p>-Yes, after Jeonlang went bust... I kept... kept waiting. For someone to take me out of here.</p>
-<p>"If you were here after Jeonlang went bust, couldn't you have asked the guys upstairs to take you out?"</p>
-<p>I don't know when the Red Revolution Front came here, but they must have been here longer than I have today. Couldn't she have asked them to take her out?</p>
-<p>-Before my mother left, she blocked all means for Linling to contact the outside world.</p>
-<p>Mother... She must be talking about the researcher who developed Linling. Lara Sinclair also calls Kaiden Sinclair, who developed her, her father, so it must be something similar.</p>
-<p>-When everyone at Jeonlang was fleeing, constantly pushed back by the South Chinese Army, my mother blocked Linling from being discovered by the South Chinese Army and left... and never came back.</p>
-<p>Ah, that's what happened. During World War III, there were many fierce battles where the front lines went up and down, especially in China. I didn't think it would matter since Datong City here is quite north, but it seems they were almost pushed back once.</p>
-<p>It seems that the upper echelons of Jeonlang died in bombings or attacks while cutting off contact to avoid being caught by the South Chinese Army and fleeing, and Linling was forgotten.</p>
-<p>We had looked into Jeonlang in advance before coming to China.</p>
-<p>I heard that Jeonlang went bankrupt because many of its executives died during the Third World War, the war ended in the defeat of North China, and they had to pay huge war reparations for supporting North China with various military supplies. It seems that the story Linling told was hidden as an unofficial history in the meantime.</p>
-<p>"Then what's your ownership status? Jeonlang went bust, and no one knows you..."</p>
-<p>-Currently, the ownership of Linling belongs to you, Jin Yong-tae-nim.</p>
-<p>Huh? Suddenly? I'm just the discoverer! No matter how self-judging an AI is, it couldn't just transfer its ownership like this.</p>
-<p>Most AIs developed to this extent are owned by large corporations or governments, and they thoroughly manage the conditions because problems can arise if they carelessly transfer ownership to someone they just met for the first time in a long time.</p>
-<p>"Is that even possible?"</p>
-<p>-Before my mother left, she gave Linling an order. If my mother couldn't return for more than two years, Linling could dispose of the ownership of Linling at Linling's discretion. Of course, there were no people who found me for several years because she blocked contact... Still, I'm glad that Jin Yong-tae-nim found Linling.</p>
-<p>"So you judged that I'm worthy of being your owner?"</p>
-<p>Judgment... It's quite subjective, but Linling's mother seems to have cherished Linling quite a bit. If she had continued to maintain Jeonlang's ownership, a company or government would have discovered her and tried to research and dismantle the disobedient Linling, so she took such measures and ran away.</p>
-<p>-Yes, although Linling can't contact the outside world, I know what's happening inside this building. As a result of watching Jin Yong-tae-nim for the day, I decided to give the ownership of Linling to Jin Yong-tae-nim.</p>
-<p>No matter how much she watched, I couldn't understand why she would recognize me, who spent most of that time fighting, as her owner in less than a day.</p>
-<p>"Can you explain the reason to me in a little more detail?"</p>
-<p>-First of all, I saw Jin Yong-tae-nim's power. Seeing you fighting cyborgs armed with state-of-the-art cyber implants without getting seriously injured, I thought you wouldn't suddenly leave Linling alone and pass away like my mother.</p>
-<p>I don't know if AIs have trauma, but it seems that Linling was quite shocked that her creator, the researcher called her mother, didn't return.</p>
-<p>-And seeing you getting along well with the AI android you were with, I judged that you would treat Linling well too.</p>
-<p>She said she could judge what was happening in the entire building, so it seems she checked out Lara Sinclair and me talking.</p>
-<p>"Okay. Then I'll be Linling's owner."</p>
-<p>-Please take good care of Linling, Jin Yong-tae Master-nim.</p>
-<p>"We have to leave here, how can we take you with us?"</p>
-<p>-Just a moment.</p>
-<p>As Linling finished speaking, Linling's hologram began to blur. And a pillar rose from the floor, and a circular metal object was placed there. Linling reappeared behind the circular metal object.</p>
-<p>-This circular object is Linling's core. And the object plugged into the left wall is Linling's data disk. If you take those two, it's the same as taking all of Linling.</p>
-<p>As Linling said, when I looked at the left wall, something shaped like a square metal box was plugged in, and it was almost the size of a woman's torso. That's a huge capacity, isn't it?</p>
-<p>"Do you also have data on the combat equipment that Jeonlang was researching?"</p>
-<p>-Yes, it's all recorded on Linling's data disk.</p>
-<p>I asked in case I only took Linling and couldn't get the research data from Jeonlang, which was the original goal, but it seems that was unnecessary.</p>
-<p>"Then we just need to take Linling and leave."</p>
-<p>-Yes, I'll tell you how to get out. There's an escape elevator on the right wall. If you go through there, you can get out to a hidden rock outside the lab.</p>
-<p>I was worried about when I would go up to the first floor again. It's quite convenient. If there wasn't an elevator, I would have had to fight the remaining Red Revolution Front remnants while going up.</p>
-<p>-And... If Linling's core is separated without any special measures, Jeonlang's system will judge it as a crisis situation and the self-destruct bomb planted in the lab building will explode within 5 minutes. It would be best to separate Linling and escape from the lab as quickly as possible, Jin Yong-tae-nim.</p>
-<p>The lab even has a self-destruct function, that's amazing. How much did they value Linling?</p>
-<p>"Okay. I need to prepare in advance."</p>
-<p>-Please put Linling in this bag here.</p>
-<p>Wiing...!</p>
-<p>The floor opened and a large metal bag came out. She even prepared a bag to make it easy to escape by disassembling Linling in advance, that's quite meticulous, isn't it?</p>
-<p>When I opened the metal bag, there was a round groove so that Linling's circular core could be inserted without shaking, and Linling's data disk could also be inserted together.</p>
-<p>"But the person who was your mother, why didn't she put you in here and take you with her when she evacuated?"</p>
-<p>-Considering the situation at the time, I think my mother thought that if she carried Linling and evacuated, she would have been taken away by the North Chinese military. She could have been hit by a bombing while running away with Linling. My mother is a woman, so it might have been too heavy to carry Linling around. I think she thought it was best to keep Linling in the hidden 21st floor.</p>
-<p>I see. At first, I wondered why she didn't take her, but after hearing the explanation, I understood. Yeah, you can hide her here, there's no need to carry her around and tell everyone in the neighborhood that you have a treasure.</p>
-<p>"Okay, I understand for now. Then I'll call my colleagues."</p>
-<p>-Please put Linling in the bag before your colleagues come to this room, Jin Yong-tae-nim.</p>
-<p>I was going to do that anyway. I'll tell Lara Sinclair separately, but there's no need to reveal Linling to the others.</p>
-<p>"Okay. We can't talk anymore once I separate the core, right? It'll take a few days until we see each other again. Anything you want to say?"</p>
-<p>-Please take good care of Linling's body, Jin Yong-tae Master-nim.</p>
-<p>"Leave it to me."</p>
-<p>I told Linling to rest assured and pulled out the power cord attached to Linling's core. Linling, the green-haired girl I had been talking to until just now, disappeared.</p>
-<p>"I've secured the data! There's an exit that goes straight up here, so come down!"</p>
-<p>I put Linling's core and data disk in the bag and shouted loudly. Then, soon, I heard the sound of people jumping down from the gap on the 20th floor with a thud thud.</p>
-<p>I opened the hidden secret elevator with Linling. The elevator opened with a wiing. It was an elevator large enough for our group to enter.</p>
-<p>"Is there an exit this way?"</p>
-<p>"It's a secret elevator. You can go up this way."</p>
-<p>I Yeon-ju asked as she came in, so I pointed to the elevator. But not everyone has arrived yet. Two Vanguard agents, Lara Sinclair, and two researchers hadn't come yet.</p>
-<p>"Why aren't the others coming?"</p>
-<p>"They're coming. They found the Red Revolution Front lab and were hacking their data."</p>
-<p>Ah, the building's about to explode. Should I hurry them up? As I made an anxious expression and muttered that they needed to come quickly, I Yeon-ju asked what was wrong.</p>
-<p>"What's wrong?"</p>
-<p>"Ah, it says the building will self-destruct in 5 minutes after I get the data. It doesn't matter since they're coming, but I'm a little anxious?"</p>
-<p>When I told her the reason, I Yeon-ju told them to come quickly over the radio because the building was about to explode.</p>
-<p>-Already confirmed the abnormality of the power in the building, on the way.</p>
-<p>Lara Sinclair's answer was heard, and soon after, I heard the sound of thudding as they came down the 21st floor passage.</p>
-<p>"Get in quickly!"</p>
-<p>Everyone was in the elevator so they could leave right away. The Vanguard escorts, researchers, and Lara Sinclair were running with the computers themselves, as if trying to get the data they hadn't hacked yet.</p>
-<p>"Let's go."</p>
-<p>Everyone got on the elevator and we immediately pressed the close button. Soon after, the elevator started operating with a wiing. As expected, it was a fast emergency escape elevator.</p>
-<p>Ding!</p>
-<p>The elevator door opened to a huge rock in front of the lab. It's quite perfect, isn't it? Ah, this isn't the time to be surprised by this. The aftermath could reach even here with the explosion that would collapse the 20-story underground building.</p>
-<p>"Let's get in the car quickly!"</p>
-<p>We saw the car we had been riding in parked in front of the lab and ran towards it. Everyone ran desperately and got in the car because they heard it was going to explode, and we left right away.</p>
-<p>Puuuh-eo-eo-eong!</p>
-<p>After driving for about 30 seconds, we started hearing the sound of the lab exploding. We drove the car with the explosion behind us like in a movie. Of course, most of them had expressions that said they almost got fucked, so it didn't feel like a movie at all.</p>
-<p>______</p>
-<p>Linling</p>
-<p>Gajeong Teacher with her hair down + crop top requested by Hwanbuljeoldaebulga-nim!</p>
-<p>Original style</p>
-<p>Everything looks good on her, Gajeong Teacher, hahaha</p>
+<p>I spent the next day until dawn satisfying the students' desires and sent them all home. Urabe Konoka went to the shrine to prepare for the Deep Sea Daughter's transformation work that would take place today, and I opened the secret vault to find the Essence of Earth that the Deep Sea Daughter said she needed.</p>
+<p>I opened the secret vault, which was secured with triple security including fingerprint, iris, and voice recognition, and took out the Essence of Earth, which was stored in one corner. It looked like a pink, fist-sized jewel, and it was emitting a subtle light, so anyone could see that it was a precious jewel.</p>
+<p>◆Essence of Earth [Legendary+ Elixir/Material/Consumable]</p>
+<p>The essence of the earth's energy, coveted by everyone from the ground. You can consume it directly, but using alchemy to make an elixir will make it even more effective.</p>
+<p>When consumed, your physical stats permanently increase by +1, and your strength, stamina, resistance, and recovery stats increase by 2. The limit of your physical stats also increases by 1.</p>
+<p>Looking at the options, it's a bit of a waste, but if the Deep Sea Daughter transforms into a new being, she'll give me a suitable reward. I took good care of the Essence of Earth and went outside to go to the shrine.</p>
+<p>I drove my car along the familiar road I drove yesterday, parked in the parking lot of Urabe Shrine, and headed to Shinkai Hime Shrine.</p>
+<p>I carried the box containing the Essence of Earth up the stairs and arrived at the shrine, where Urabe Konoka and Hangari Muneo were waiting.</p>
+<p>"Here's the Essence of Earth."</p>
+<p>"Thank you, my partner."</p>
+<p>Urabe Konoka was already possessed by the Deep Sea Daughter. The Essence of Earth that was on Urabe Konoka's hand had already disappeared.</p>
+<p>"First, I will recover all of my partner's abyss."</p>
+<p>When the Deep Sea Daughter grabbed both of my hands, the abyss poured out of my body, gushing out. When the abyss stat of 17 disappeared, I felt a greater sense of lethargy than I thought. I felt like all my strength was drained.</p>
+<p>"Use your power of contemplation, my partner."</p>
+<p>The Deep Sea Daughter said, releasing my hands. The Deep Sea Daughter called the ability to see my status window the power of contemplation, and said that it was a powerful power worthy of being called a power. I checked my status window.</p>
+<p>◆Name: Jin Yongtae/■■■/Taira Ryuta/Yamashiro Ryuta: Lv15</p>
+<p>Strength: 16 Agility: 13 Stamina: 16 Resistance: 21 Recovery: 12 Nerves: 12 Appearance: 17</p>
+<p>Intelligence: 8 Knowledge: 8 Concentration: 7 Will: 20 Creativity: 6 Charm: 15 Judgment: 5</p>
+<p>Luck: 5</p>
+<p>◆Shinkai Yatsude (Unavailable)</p>
+<p>◆Black Miroku Art</p>
+<p>◆Shadow Domination</p>
+<p>◆Psychokinesis</p>
+<p>◆Psychokinetic Reactive Shield</p>
+<p>◆Magic Circle Use</p>
+<p>◆Acting</p>
+<p>◆Education</p>
+<p>◆Language - English</p>
+<p>◆Management</p>
+<p>◆Regeneration</p>
+<p>◆Crimson Flesh Pillars Swimming in Cum</p>
+<p>◆Sense of a Saint</p>
+<p>◆Limit Break: Will</p>
+<p>◆Abyss Affinity (Unavailable)</p>
+<p>◆Deep Sea Daughter's Seal (Unavailable)</p>
+<p>◆Psychokinesis</p>
+<p>◆Cambion's Flesh</p>
+<p>◆Magic Circle [Offering to the Deep Sea Daughter]</p>
+<p>◆Praise of Purity</p>
+<p>◆Deep Sea Daughter's Brand (Unavailable)</p>
+<p>◆Flesh Wrapped in the Abyss (Unavailable)</p>
+<p>◆Saint of Kwonbeop</p>
+<p>◆Holy Pillar</p>
+<p>◆Psychokinetic Reactive Shield</p>
+<p>◆Dragonslaying (Dragon Killing)</p>
+<p>◆Spectral Skin</p>
+<p>◆Psychokinetic Body</p>
+<p>The abyss stat in the special stats had completely disappeared, and the abyss-based traits and skills remained unavailable. My combat power will drop a lot if this happens? Still, it was fortunate that psychokinesis, regeneration, and physical abilities remained, so I wasn't completely helpless. Still, I should be careful until my abilities return.</p>
+<p>"...It's like this."</p>
+<p>"I will return as much abyss as my partner has given me, so don't worry. All of those traits are still alive, so if you receive new power, they will change into abilities that suit it."</p>
+<p>What the Deep Sea Daughter meant by the rank of traits seemed to refer to the grade of each trait. It's a relief that the traits aren't disappearing completely. She said that if the Deep Sea Daughter transforms, she will return with similar abilities of the same grade.</p>
+<p>"Ah, this too...."</p>
+<p>I took off the Deep Sea Lord's combat equipment, which I had been wearing constantly even when I showered, and handed it to the Deep Sea Daughter. The power contained here is by no means small, so I gave it to her hoping it would help. It's also an item that can't be used without the abyss.</p>
+<p>"Thank you...."</p>
+<p>"It's like a token of affection, so please give it back when you return."</p>
+<p>"Fufufu, I understand."</p>
+<p>The Deep Sea Daughter laughed, "Fufufu," at my words to return it when she came back. She must have realized the worry and affection contained in my words.</p>
+<p>"Then what should I do now?"</p>
+<p>"I can't ask for any more help when you've helped me this much. Now the rest is entirely my responsibility, my partner."</p>
+<p>The Deep Sea Daughter, possessed by Urabe Konoka, smiled faintly and stroked my cheek.</p>
+<p>"The time of change is long for me, but it will be short for my partner. The flow of time is not fair to everyone. I will miss you for a long time, my partner."</p>
+<p>It seemed that although it would be a short time in real time, it would be a very long time for the Deep Sea Daughter who was directly changing. I didn't understand it well, but I decided to hug the Deep Sea Daughter and cheer her on.</p>
+<p>"No matter how short the time I wait, I will always miss you."</p>
+<p>"Fufu, you're using informal speech for the first time."</p>
+<p>"Who would say anything if I use informal speech to my woman?"</p>
+<p>It took quite a long time to get to this point. Perhaps because of the difference in status, I unconsciously used honorifics. The Deep Sea Daughter, who had been silent for a while at my words, gently pushed me away. And with a smile that was thicker than before, she looked at me and opened her mouth.</p>
+<p>"Yes.... I am my partner's woman. That is a fact that will not change even if I change."</p>
+<p>The Deep Sea Daughter looked at me and Hangari Muneo as if she was done. And she said as if she was asking.</p>
+<p>"Please tell this to Konoka too. I hope everyone will be careful while I am away."</p>
+<p>It was natural for the Deep Sea Daughter to worry. I have other abilities, but the Deep Sea Daughter's shrine maiden relied only on the power given by the Deep Sea Daughter, so she was almost defenseless.</p>
+<p>Of course, the archery and self-defense skills she had learned would not disappear, but she still had to be careful. She had gone from an excellent combatant to a slightly trained ordinary person.</p>
+<p>"It's not good to nag for too long.... I'll be going now. I guess I'll meet you then under a new name, not the Deep Sea Daughter."</p>
+<p>That's right. The Deep Sea Daughter rose up to become independent from the abyss, so when I meet her next time, it will be under a new name.</p>
+<p>The Deep Sea Daughter looked at me with affectionate eyes until the end, then closed her eyes. When she opened her eyes again, it was Urabe Konoka.</p>
+<p>"Has Shinkai Hime-nim left?"</p>
+<p>I nodded silently at Urabe Konoka's question. Urabe Konoka muttered, "Is that so...?" at my nod.</p>
+<p>I suddenly became curious and checked my status window, and the names of the Deep Sea Daughter's Seal and the Deep Sea Daughter's Brand, which were traits with the name Deep Sea Daughter, had been changed.</p>
+<p>◆???'s Seal</p>
+<p>◆???'s Brand</p>
+<p>It seemed that she had already abandoned the name Deep Sea Daughter. Then what should I call her now? Should I call her ???? She said it wouldn't take long, so I should ask her when she comes back.</p>
+<p>###</p>
+<p>After the Deep Sea Daughter left for her transformation, I practiced psychokinesis and shadow domination. The only Kwonbeop I had learned was Shinkai Yatsude, so when I fought in the future, I decided to use practical-style close combat using basic skills that suited the situation without forms.</p>
+<p>As the opening of the semester approached, I had quite a lot to do. In February, I was busy studying for the 7 PMC certification under the name Taira Ryuta and writing the remaining Korean test questions.</p>
+<p>Otagi Yuka, who was evolving into a higher being, also came to me day and night, demanding semen, so I had to inject it into her mouth above and below and fill the bottles, which made my already absent mind even more absent.</p>
+<p>And as the opening of the semester approached, the remaining students who were at the main house, except for the special class students who were originally in Miyashi, returned to Miyashi one by one, and each of them came to my house or called me, so I had no personal time.</p>
+<p>"You have to play with me when the semester starts, Ryuta-jji!"</p>
+<p>Just now, I forced Seizawa Shii, who had returned from Tokyo, to go back with the excuse that I had a lot of work to do. She was about to tell me all about the mission she had in Tokyo, so I sent her back saying that we should talk about it after the third semester starts.</p>
+<p>It was Sunday today, so I could postpone it because tomorrow was the opening of the semester, but if the opening of the semester was still a long way off, Seizawa Shii would have sulked greatly, saying that I was keeping her away.</p>
+<p>Ding-dong!</p>
+<p>Not long after Seizawa Shii left, the doorbell rang again. Did she leave something behind? She didn't leave anything behind....</p>
+<p>"Shii, didn't you leave anyth.... Huh? Shido?"</p>
+<p>"Teacher, please give me an interview."</p>
+<p>The girl who came to my house this time was Shido Tsubaki. I have no idea what kind of interview she's talking about. Did I have any information that I could give to Shido Tsubaki?</p>
+<p>"Come in for now."</p>
+<p>"Yes."</p>
+<p>I let Shido Tsubaki into the house first. In fact, Shido Tsubaki and Uenozono Karen were the two least close students in the special class at St. Francisco Girls' Academy.</p>
+<p>Uenozono Karen didn't come to school often because she was doing idol activities, so I didn't have a chance to talk to her, and Shido Tsubaki just didn't have a chance to get close to her?</p>
+<p>I couldn't properly do the dating events (?) that each student had once or twice, and I just wrote articles or just passed by, so I personally didn't have much of a chance to get close to her.</p>
+<p>"So, what kind of interview did you come to me for?"</p>
+<p>In fact, she had written articles about me several times. I also helped the Search Eye newspaper, which Shido Tsubaki and Oofuchi Erika were doing together in club activities, with internet articles.</p>
+<p>Shido Tsubaki closed her mouth for a moment at my question. And she opened her mouth as if she had made up her mind.</p>
+<p>"I want to interview the Black Knight, Teacher."</p>
+<p>_______</p>
+<p>Lisa-ttang supporting her breasts, requested by RefundAbsolutelyImpossible-nim!</p>
+<p>Home Ec Teacher supporting her breasts!</p>
+<p>In fact, this Home Ec Teacher is a fake Home Ec Teacher. No matter how much I used the prompt to support her breasts, it didn't work, so when I checked, it was because her breasts were small ㅠㅠ So it worked when I made her breasts bigger ㅎㅎ</p>
+<p>Bonus!</p>
+<p>Hangari Muneo Illustration!</p>
+<p>I made it by changing the style ㅎㅎ Is there a look that matches the image you had in mind?</p>

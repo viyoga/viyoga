@@ -5,92 +5,88 @@ weight = 328
 chapter = 328
 +++
 
-<p>Konoe Akina and Otagi Yuka knew each other's faces and names, but they weren't actually that close. They had only been in the same class once, and at that time, they belonged to different friend groups, so there was no point of contact for them to become close.</p>
-<p>This was because Konoe Akina liked feminine things like tea ceremonies and flower arrangements, while Otagi Yuka was an active student who liked sports and motorcycles. The two had distinctly different tendencies, so they couldn't become close.</p>
-<p>Even though they didn't have much contact, they were very happy to see each other's faces in the 3rd grade special class today. This was because the remaining students had even less contact with them.</p>
-<p>Considering troublemakers like Minamoto Risa and Seizawa Shii, who didn't attend classes well and went astray, and the kids who were always in the special class because they weren't feeling well, and even the eccentric Sakagami Rena, who always wore a mask, or the students who became hikikomori and didn't come to school, they were actually the closest to each other in the class, having been in the same class for a year.</p>
-<p>,Please take care of me.</p>
-<p>,Likewise.</p>
-<p>They didn't know why each other was a 20-year-old high school student, but they both thought that the other must have a story like them. The curiosity they had for each other completely disappeared when the classroom door opened and Taira Ryuta entered.</p>
-<p>He had dyed his hair blonde, tanned his skin brown, and wore glasses, but it was definitely Taira Ryuta. He still looked handsome.</p>
-<p>,Nice to meet you, I'm Yamashiro Ryuta, the homeroom teacher of the special class from the second semester.</p>
-<p>Yamashiro Ryuta? Why did he change his last name? Or was that his original last name? Both Konoe Akina and Otagi Yuka were confused.</p>
-<p>Still, the two didn't pretend to know him right away and stayed still. Today is the first day of school, so it will end quickly, so they can ask him later.</p>
-<p>The first day of the semester, which was short but long, ended, and Konoe Akina and Otagi Yuka were waiting to have a one-on-one conversation with Taira Ryuta, glancing at each other while thinking the same thing.</p>
-<p>,Why isn't she leaving?</p>
-<p>While they were thinking the same thing, Taira Ryuta opened his mouth.</p>
-<p>,Both of you, follow me to the education preparation room.</p>
-<p>The two immediately followed him to the education preparation room next to the classroom. The two didn't know what to say because the other was there.</p>
-<p>,,,,</p>
-<p>,,,,</p>
-<p>,Since you both know my identity, you can say whatever you want.</p>
-<p>Taira Ryuta opened his mouth as if he was frustrated because they were both keeping silent. At those words, Konoe Akina and Otagi Yuka looked at each other.</p>
-<p>The crimson eye of the Evil Eye and the golden eye of the vampire met. Neither of them had imagined that the other knew Taira Ryuta's identity. This was the only point of contact between them that hadn't overlapped until now.</p>
-<p>According to what they talked about in the education preparation room, Taira Ryuta changed his name to Yamashiro Ryuta due to some kind of mission and infiltrated St. Francisco Girls' Academy.</p>
-<p>,Then let's see each other tomorrow.</p>
-<p>On the way home after being seen off by Taira Ryuta, the two were silent for a while before Konoe Akina opened her mouth.</p>
-<p>,Shall we stop by a cafe for a while?</p>
-<p>,I like it!</p>
-<p>At Konoe Akina's suggestion, Otagi Yuka nodded vigorously. They had so many things they were curious about each other.</p>
-<p>Miyashi was small, but it had everything. This was because the people of the prestigious families, who were daughter-fools, brought all the major franchises to Miyashi so that they wouldn't fall behind the trends. No matter how much of a deficit they had, the St. Francisco Girls' Academy PTA would provide support, so they couldn't have a deficit even if they wanted to.</p>
-<p>,Let's go to Starbucks.</p>
-<p>,Yeah.</p>
-<p>The two headed to the franchise coffee shop closest to the school. After ordering and receiving their respective coffees, they sat down in a secluded spot where no one could hear them.</p>
-<p>,How did you meet sensei, no, Ryuta-nim?</p>
-<p>,Um... I have something to talk about before that.</p>
-<p>At Konoe Akina's question, Otagi Yuka told the story of her friend's disappearance and how she flew to New York in the United States to search for her friend.</p>
-<p>,Then what about that story when you asked the question earlier?</p>
-<p>,That's right. That's when I met Taira-ssi.</p>
-<p>Otagi Yuka left out the fact that she was a vampire and told her about what happened in New York. It was a story about how her friend died of drug addiction and she took revenge, and Taira Ryuta helped her in the process.</p>
-<p>,After all, if I want to help Ryuta-nim, it would be good to take Korean classes, right?</p>
-<p>,That's right. Taira-ssi is a teacher for the first time, so we have to help him.</p>
-<p>The two smiled at each other and nodded. It was a smile with other intentions rather than helping Taira Ryuta.</p>
+<p>Before leaving work, I grabbed the document detailing the student's special circumstances that I had tossed onto my desk earlier. I decided to check it out as soon as I got home. If I didn't take it home, there was a good chance I'd forget about it entirely, so I had to take it with me to make sure I looked at it.</p>
+<p>I returned home, grabbed the special circumstances document and the thick file investigated by the Taira Group's information team, and sat down.</p>
+<p>First, I should check out the two suspended members, right? Let's see... Here it is.</p>
+<p>Shido Tsubaki, the head of the newspaper club, is the heiress of Shido Newspaper, one of the top four newspaper companies in Japan, and she was active in the newspaper club, befitting a newspaper heiress.</p>
+<p>She was suspended for reckless reporting, but the specifics of that reckless reporting weren't detailed in the special circumstances.</p>
+<p>Curious about what that reporting was, I decided to check the student roster investigated by the Taira Group's information team.</p>
+<p>I found Shido Tsubaki in the third-year student roster and started reading the details. The daughter of the Shido family, the head of the newspaper club... There was the information I had just read, and below it was what I was looking for.</p>
+<p>Nomata Shigemichi, the homeroom teacher of the special class, filmed the sexual assault of Seiwa Rieko, a student in the same special class, and published the photos in the newspaper club's weekly paper....</p>
+<p>Certainly, an article alone might not have been a problem, but publishing the photos was too much. As a result, the victim, Seiwa Rieko, dropped out of school.</p>
+<p>It was also written that she was caught forcibly trespassing while investigating the state of hikikomori at St. Francisco Girls' Academy, which led to her suspension being confirmed. This hikikomori investigation was not published as an article, it seems.</p>
+<p>In short, she's a female student who can't distinguish herself when there's a story. When this girl's suspension is lifted, she'll be coming to our class. I need to be careful not to end up in her articles, huh? Or I should just make her one of my people.</p>
+<p>The next troublemaker is Kujo Kina, and this time it was violence, a common reason for suspension. It was a violent incident that occurred in The Fist, a martial arts club different from the Cheongsim Hall, and a whopping thirty people suffered serious or minor injuries.</p>
+<p>With as many as 30 victims, there was a high possibility of expulsion, but all the victims testified that it was a fair fight, so the suspension was confirmed.</p>
+<p>If the testimony is true, did she win against 30 people in the martial arts club? That's amazing, huh? She seems to be a formidable fighter. I should check her out with the glasses from the ruins too.</p>
+<p>One person who didn't get suspended but notified in advance of her absence is...? Urabe Konoka, the adopted daughter of the Urabe family, a family of Shinto priests. According to the Taira Group's information, her previous name was Hamahata Konoka.</p>
+<p>Hamahata Konoka, that's a name I've heard somewhere before.... The Taira Group's information didn't have any information before that. I think I'll remember if I think about it a little more.</p>
+<p>Ah! The girl from that inn on Chōten Island! I remember her becoming a shrine maiden apprentice at the shrine where I first met Simyeonui ttal directly, so she's been adopted into a family of Shinto priests.</p>
+<p>She knows my identity, so I need to have an interview with her before she opens her mouth.</p>
+<p>They're all troublemakers. All that's left is one hikikomori who didn't say anything in advance and doesn't come to school.</p>
+<p>I'll look at the hikikomori information later. Right now, I need to contact Mask Delivery and call  to hang out. I have to go to the black market branch with Saionji Diana tomorrow, so I need to unwind in advance.</p>
 <p>###</p>
-<p>After sending Konoe Akina and Otagi Yuka, the last students left in the building, home and preparing for tomorrow's class, I heard someone knocking on the door of the education preparation room. Who is it? It's been over an hour since all the students left the school.</p>
-<p>,Yes, it's open.</p>
-<p>At my words, the door opened with a creak. A female student with several books in her arms entered the education preparation room. That female student was my aunt, Taira Kanna. What's going on with Taira Kanna? Did she come to help from the first day?</p>
-<p>,,,,Aunt?</p>
-<p>,Don't say that, sensei, because someone might hear you.</p>
-<p>At Taira Kanna's gentle voice, I nodded without realizing it. Yeah, the mouth is the problem. If someone passing by heard it, this infiltration would be over. I have to be more careful.</p>
-<p>,Then Taira-yang?</p>
-<p>,Just call me by my name. That would be more comfortable than the last name. If someone asks, let's say we saw each other briefly when we were young.</p>
-<p>Saw each other briefly when we were young... Suddenly, Taira Kanna was coming in as a childhood friend position.</p>
-<p>,Okay, then I'll just call you Kanna.</p>
-<p>Even though she's my aunt, she's younger than me, so it was a bit much to call her aunt and use honorifics, but it's convenient for me if she takes the initiative to sort it out like this.</p>
-<p>,I'm in a position to help sensei's mission, so please contact me whenever you need anything.</p>
-<p>Taira Kanna says, handing me a note with her email address written on it. In a position to help... Is she in charge of something?</p>
-<p>,In a position to help?</p>
-<p>When I said that while receiving the note, Taira Kanna smiled slightly and opened her mouth.</p>
-<p>,I'm the Chairman of the St. Francisco Girls' Academy High School Student Council.</p>
-<p>Ah~ Well, a female student from the Taira family is attending, so it's a bit much for another student to become the Chairman. Even if there's a female student from the rival Minamoto Group, she's a delinquent who's not interested, so she wouldn't have run in the Chairman election.</p>
-<p>,Well, here's the student roster. Originally, it should have been given before the semester started, but the special class is special. Sensei understands, right?</p>
-<p>Ah, that's the student roster I've been looking for. The book that Taira Kanna brought in seemed to be the student roster. I nodded and looked at the student roster.</p>
-<p>,I've also written down some special notes, so it will be easier to adapt.</p>
-<p>,Thank you. I think it will be quite helpful.</p>
-<p>When I thanked her, she smiled again. What is this? It's not like she's seducing me...</p>
-<p>,But you got a tan?</p>
-<p>,Even if I'm not well-known, they said I needed a little disguise. They said I needed a tan too, so I did as I was told.</p>
-<p>,Ah, that's right. If someone comes to this school, they'll investigate.</p>
-<p>Taira Kanna asked about the tanning, so I explained my disguise to her. Taira Kanna frowned slightly as if she didn't like the fact that I got a tan.</p>
-<p>,Well, since today is the first day, I'll go now. If you need anything, please contact me here.</p>
-<p>Since they weren't people who met and talked often, Taira Kanna bowed slightly and left the education preparation room when there was nothing more to say.</p>
-<p>Come to think of it, it seems like the short conversation I had with her today was longer than the conversations I had with her at the main house until now. Even though we didn't talk much just now.</p>
-<p>I first looked at the note that Taira Kanna showed me. The handwriting was neat and cute. I registered the address on my phone and sent a Line message to Taira Kanna. Taira Kanna seemed to be looking at her phone, as she replied immediately.</p>
-<p>Taira Ryuta: Please take care of me in the future.</p>
-<p>Taira Kanna: I look forward to working with you too.</p>
-<p>I put my phone in my pocket, sat down, and opened the student roster that Taira Kanna gave me.</p>
-<p>The student roster contained personal information such as grades up to this point and where their family was from. And only the students in the special class had the reason why they were in the special class written down.</p>
-<p>I first read the reason for Minamoto Risa.</p>
-<p>-Failure to meet the required number of attendance due to habitual absence, resulting in grade repetition.</p>
-<p>I was right about what I knew. Let's see. What about the other students...? As I was about to learn about the other students, the internal phone in the education preparation room rang.</p>
-<p>,Hello. This is Yamashiro Ryuta, the homeroom teacher of the 3rd grade special class.</p>
-<p>-Yamashiro-ssi, this is Kasaoka Yuzuki, the head teacher of the 3rd grade.</p>
-<p>Kasaoka Yuzuki was a woman in her late thirties who looked quite neurotic, but she was a quite sexy married woman. She looked like a milf who didn't even look like she was in her mid-thirties, but she was already the head teacher of the 3rd grade. For reference, the subject she taught was mathematics.</p>
-<p>,Ah, yes, Yuzuki-sensei.</p>
-<p>-Some students have contacted me saying that they want to learn Korean and want to change their current subjects. Did Yamashiro-ssi force the students in your class to take your class?</p>
-<p>She sounded like she was full of suspicion right now. No, why would I? It's clear that it would be more tiring if there were more students.</p>
-<p>,I didn't force them at all...</p>
-<p>-We'll see about that. Come to the faculty room before class tomorrow and pick up a new attendance book.</p>
-<p>I hear the sound of the phone being hung up with a click. She only said what she wanted to say and hung up, she completely ate manners for breakfast. Hooo.... Well, there's a villain wherever you go. I'll have to put up with it since I won't see her often anyway.</p>
-<p>But what about the students who asked to change to Korean class? Thinking about what Kasaoka Yuzuki said, it seems like a student in our class said they would change classes... I can guess about Konoe Akina and Otagi Yuka, but there's no way there's more, right?</p>
-<p>With my head in a mess, I got up from my seat and decided to leave work. The identity of the student who changed classes was something I could check in class tomorrow.</p>
+<p>,This is Egawa Alexandra, a third-year high school student who has newly joined our club. Alik, introduce yourself."</p>
+<p>Shimokawabe Airen grabbed Alik's shoulder and introduced Alik to the Cheongsim Hall club members. Alik nodded slightly and opened his mouth.</p>
+<p>,Please call me Alik."</p>
+<p>The Cheongsim Hall members all looked at Alik with sparkling eyes at the appearance of the new recruit. One of the people looking at Alik raised his hand and asked a question.</p>
+<p>,What school of martial arts are you learning?"</p>
+<p>,To be exact, Alik isn't learning any traditional Japanese martial arts. You could say it's his own style of martial arts."</p>
+<p>Shimokawabe Airen answered for Alik to the members' questions. The Cheongsim Hall members all looked at Alik with question marks on their faces. If he didn't learn traditional martial arts in the first place, why did he join the club? Everyone was thinking that.</p>
+<p>,Alik is also interested in traditional martial arts, so I'm going to give him the basics, so don't be too dismissive."</p>
+<p>,Yes! Master!"</p>
+<p>Because the club's name was Cheongsim Hall, everyone called Shimokawabe Airen "Master." But there was a certain heat in everyone's eyes.</p>
+<p>The Cheongsim Hall members wanted to know how strong a new member was when they joined. From the young middle school members to the third-year high school members who were the same age as Alik, everyone seemed to want to spar with Alik once.</p>
+<p>,Akemi. Do you want to spar?"</p>
+<p>,Yes, please give me the opportunity!"</p>
+<p>When Shimokawabe Airen asked Akemi, the first-year high school club leader, Akemi stood up from her seat and answered. She was a promising girl who became the leader with considerable skill among the first-year high school students.</p>
+<p>So Alik and Akemi decided to spar, and they held their bamboo swords and faced each other.</p>
+<p>,I'm Shimao Akemi, the first-year high school leader. My school is Gokuten Sangata-ryu."</p>
+<p>,Alik, I've learned a lot."</p>
+<p>The two introduced each other and pointed their swords at each other. The moment Shimao Akemi felt a flash of lightning in Alik's eyes, Alik rushed in. It was an incredible speed.</p>
+<p>Shimokawabe Airen, watching the scene, observed Alik's appearance in detail with shining eyes.</p>
+<p>Tak!</p>
+<p>In the blink of an eye, Alik's bamboo sword hit her head. Shimao Akemi was stunned. How could he be so fast...! Soon after, she realized that she had lost and bowed to Alik.</p>
+<p>,...Thank you for teaching me a lot."</p>
+<p>,Yeah, you're welcome."</p>
+<p>Alik also greeted her in return, and this time the second-year students stood up from their seats.</p>
+<p>,Please let us spar too!"</p>
+<p>,Me too!"</p>
+<p>That day, Alik sparred with a total of 12 second-year students and won all of them. Shimokawabe Airen's eyes sparkled as she watched Alik's skills.</p>
+<p>,We'll have the sparring with the third-year students the day after tomorrow."</p>
+<p>The third-year students looked disappointed at Shimokawabe Airen's words, but they thought it would be better to fight a fresh Alik after a day of rest than to fight a tired Alik after more than ten matches, so they soon agreed.</p>
+<p>,Now, today's club activities are...."</p>
+<p>After the sparring, the Cheongsim Hall club activities began with Shimokawabe Airen's words. Alik began to receive basic instruction from Shimokawabe Airen separately.</p>
+<p>###</p>
+<p>Tuesday morning. Konoe Akina and Otagi Yuka gathered an hour early to post the Dating Experience Club's posters on the school bulletin boards.</p>
+<p>,How's the poster?"</p>
+<p>,Y-You're going to put this on the school bulletin board?"</p>
+<p>Otagi Yuka asked, slightly embarrassed and angry at Konoe Akina's question. Yesterday, after school, Konoe Akina had dressed her in a suit and taken various photos.</p>
+<p>As a result, the poster featured Otagi Yuka, who even she thought looked handsome, saying in a speech bubble, "Won't you go on a date...?" and below it was written "Dating Experience Club Recruitment!"</p>
+<p>,No, it looks like I'm the main character...! It's not like a movie poster promoting the top method actor...."</p>
+<p>,Yeah, the competition is until tomorrow, so there's no time to make a new one."</p>
+<p>Konoe Akina smiled and posted the poster on the school bulletin board despite Otagi Yuka's complaints.</p>
+<p>The school bulletin boards were next to the main gate, on the first floor of each grade's building, and in the faculty office. So Konoe Akina had quite a few posters with her.</p>
+<p>,Did you get permission from the student council?"</p>
+<p>,Of course. While you were asking the other kids yesterday, I took the poster I made yesterday and went to the student council to get club approval."</p>
+<p>Sure enough, there was a student council approval stamp in the corner. The two went around recruiting club members every break.</p>
+<p>After taking photos after school, Otagi Yuka went around to franchise cafes around the school to recruit club members, and Konoe Akina took the finished poster back to school and got approval from the student council.</p>
+<p>,But there aren't any at the cafe, right?"</p>
+<p>,Yeah, they all said they were in a club.... Only a few people in our class aren't in a club."</p>
+<p>Otagi Yuka thought that students who didn't participate in club activities after school and were at the cafe might not be in a club, so she tried to recruit students, but that expectation completely failed.</p>
+<p>Most of them were already members of a club. Most of them were just students who put their names on the list and hung out, so they were unnecessary students for club recruitment.</p>
+<p>,But it's a relief that we succeeded in recruiting one person."</p>
+<p>,Yeah, we were able to add one person because Naruse-yang willingly joined."</p>
+<p>With the addition of the sickly Naruse Shiyo, the total number of members was now three. Sakagami Rena, who always wore a mask, had disappeared somewhere during breaks, and it was difficult to talk to Saionji Diana, the girl in the wheelchair, because she was always lying down during breaks.</p>
+<p>Other students included Minamoto Risa and Seizawa Shii, who were competing with them, and the rest were students who didn't come to school often.</p>
+<p>,Let's make sure to talk to Sakagami-yang and Saionji-yang today."</p>
+<p>,Yeah! We have to get them to join. If we get those two to join, won't we win?"</p>
+<p>The two chatted and put up posters at the school gate and stood up. It was now time to split up and put up posters on the bulletin boards of each grade.</p>
+<p>,But it's a bit much to accept middle school students, so we should just put them up for high school students."</p>
+<p>,Yeah, a dating club for middle school students is still a long way off, of course!"</p>
+<p>Both of them were heiresses of prestigious families, so they had a slightly old-fashioned mindset that middle school students shouldn't be dating.</p>
+<p>,I'll put them up on the 1st and 2nd grade bulletin boards, so Yuka, put them up on the 3rd grade and faculty office bulletin boards."</p>
+<p>,Okay. Let's meet in the classroom after we're done."</p>
+<p>Konoe Akina and Otagi Yuka divided the posters and parted ways amicably.</p>
+<p>----</p>
+<p>Poster B-cuts!</p>

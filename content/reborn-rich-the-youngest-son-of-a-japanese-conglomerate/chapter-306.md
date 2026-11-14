@@ -5,83 +5,84 @@ weight = 306
 chapter = 306
 +++
 
-<p>"Please take good care of Alik and Da-rim-i."</p>
-<p>I said to Mimata Chieri, entrusting Alik and Jeong Da-rim to her. Alik now had a grueling schedule of learning maid duties at the prestigious family while also being trained by Mimata Chieri, and Jeong Da-rim had to study basic subjects to get a donation-based admission to university next year, as well as knowledge to establish a research institute.</p>
-<p>Since it was a donation-based admission, a national university was out of the question, and she had to choose from universities under the Taira Group, but since they all had the Taira name, they were decent universities where Jeong Da-rim could learn a lot.</p>
-<p>"Ryuta, I... I'll work hard there too."</p>
-<p>"Yeah, I hope you become a great maid."</p>
-<p>"Okay."</p>
-<p>I stroked Alik's head, who was sad to part, and shook hands with Jeong Da-rim.</p>
-<p>"Thanks for investing in me, Oppa. But can I really do well?"</p>
-<p>"Now you're asking? You'll do great. You like trees and grass, right? If you learn what you like, you'll improve quickly, so do your best."</p>
-<p>Even Jeong Da-rim, who was only interested in plants, seemed a little anxious because she had to work alone, separated from her fellow prisoner.</p>
-<p>It can't be helped. Jeong Da-rim has no aptitude for combat and is all-in on growing plants, so she has to do what she's good at. She's also raising Juan properly. Juan alone was worth investing in Jeong Da-rim.</p>
-<p>The Seiryutai side was quite sad that Alik and Jeong Da-rim, who had been with them for a while, were leaving. They must have grown quite fond of them.</p>
-<p>Everyone was sad to say goodbye to Alik because she was so cute, and Jeong Da-rim was surprisingly close to Sawayanagi Seari, so Sawayanagi Seari was so sad that she almost teared up.</p>
-<p>Was it because Jeong Da-rim's specialty was plants and Sawayanagi Seari's was fairies that the two were close? I don't know if attributes apply to this kind of personality compatibility.</p>
-<p>"It's not like we're parting far away, Seari. Da-rim-i will be living in Tokyo too. You can meet in Tokyo."</p>
-<p>"Heueung.... Really?"</p>
-<p>Sawayanagi Seari stopped tearing up when I explained. How cute. Oh, by the way, the one-day date with Sawayanagi Seari was scheduled to be arranged before going to St. Francis Girls' School.</p>
-<p>Of course, since Sawayanagi Seari looked so young, I had no intention of touching her even if she was an adult. Unless she fully unlocked her fairy body and had an adult body, that is.</p>
-<p>Everyone said their goodbyes and parted ways, but the Kiyona Hori sisters' attitudes were so strange because of the hot night they had last night and this morning that they caught the attention of others.</p>
-<p>Since we started having sex while drunk yesterday, they seemed a little embarrassed when they sobered up in the morning.</p>
-<p>"See you next time, Ryuta-ssi...."</p>
-<p>"I, I was drunk, so that, that's why...! I, it's not like I liked it!"</p>
-<p>Kiyona Hori gave a very quiet greeting and got into the driver's seat, and Kiyona Mari made a tsundere statement and got into the passenger seat with her face as red as a tomato. Aren't you guys making it too obvious...? Later, they'll both be bombarded with questions from other people, right? I'm curious how they'll answer. I'll have to ask Sawayanagi Azuma later.</p>
-<p>"Azuma-ssi, please contact the Krascano slave traders. Try to bear with it even if it brings back old memories."</p>
-<p>The transaction with the Krascano slave traders was entrusted to Sawayanagi Azuma. I'm busy with studying right now, and I don't have time to go there, and even if I bring back ability users, they'll end up joining Seiryutai led by Sawayanagi Azuma anyway, so it would be better to entrust it to Sawayanagi Azuma. It's a bit of a cold statement, but it was already decided that we would exclude ambiguous ability users from recruitment.</p>
-<p>However, I was worried that she might not be able to control her anger when she saw the situation there and remembered her days as a test subject, and kill all the slave traders, but she'll do well.</p>
-<p>"Don't worry. They only capture them there, they don't experiment on them."</p>
-<p>"Yes, that's right. They're just people who catch and sell them. Rather, the ones who buy them, except for us, are probably the ones who do research."</p>
-<p>It seemed that the trigger for the Seiryutai people's anger was experimentation rather than capture. That's a relief.</p>
-<p>"I'll be going too, Investor-nim."</p>
-<p>"Yes, it's not like we're parting forever, so I'll stop by Tokyo if I'm bored."</p>
-<p>Come to think of it, everyone except me is going to Tokyo. I'm going to the Human Resources Development Center in Chiba, so the path is a little different.</p>
-<p>Everyone left the pension, and I also drove to the Human Resources Development Center where Yukiko was waiting.</p>
-<p>While I was driving, I received a call from someone, and when I checked, it was Nae Fitzgerald. I answered the phone on speaker.</p>
-<p>"Yes, Nae-ssi."</p>
-<p>-Nae-ssi, you say...! Don't call me by such a cold title, just call me Nae by my name♥</p>
-<p>"I'm afraid I'll keep calling you Nae and accidentally do it in front of Grandpa."</p>
-<p>-Okay....</p>
-<p>I smiled slightly as I watched Nae Fitzgerald, who quickly became sullen at my words. She was still an incredibly cute mama, not her age.</p>
-<p>"So, what's the matter, Nae?"</p>
-<p>-Huh? Hehe.... Ryuta said he's going to Japan with a knife now~</p>
-<p>Ah, Nae Fitzgerald said she would bring the bombshell to Alik.</p>
-<p>"Do you have a place to stay in Japan?"</p>
-<p>-I guess I'll just have to stay in a hotel. Ryuta is living at Yukiko's house right now, right?</p>
-<p>Judging by the fact that she called Yukiko by her first name, the two seemed to be quite close. Since she didn't follow the Taira surname from the beginning and didn't fight for succession with the only family member, Saburo, who died, Nae Fitzgerald said that she had a good relationship with all the successors.</p>
-<p>"It's not so much that I'm living there... Come to think of it, I am living there."</p>
-<p>Well, it was originally Yukiko's house, so I was living there. Of course, Yukiko wouldn't think that way at all.</p>
-<p>-I deliberately brought things to Japan, so you'll go on a date with me, right?</p>
-<p>"Do you even need to ask? I have to make time for Nae, even if I don't have it."</p>
-<p>Nae Fitzgerald's laughter could be heard, as if she was in a good mood at my smooth answer.</p>
-<p>-Hohoho! You're such a kid...!</p>
-<p>"Ah, but when exactly are you coming?"</p>
-<p>I had to ask this question because I needed to know Nae Fitzgerald's schedule so I could plan my schedule accurately. I've been quite busy studying these days.</p>
-<p>-I'll arrive around the day after tomorrow. I'm taking a late flight tomorrow, and the flight will take a long time...</p>
-<p>"The day after tomorrow? Okay. I'll clear my schedule."</p>
-<p>Hmm, the day after tomorrow... I'll just sit in the office and study and then pick her up at the airport.</p>
-<p>-I'm excited to be in Japan after a long time~! Then, see you the day after tomorrow!</p>
-<p>She was still My Pace, Nae Fitzgerald. In the end, it was about her bringing a knife and asking me to go on a date with her. You could say she had a bouncy feeling that didn't match her age.</p>
-<p>I kept driving, thinking about what I would do on a date with Nae Fitzgerald. After driving for several tens of minutes, I arrived at the Human Resources Development Center and Yukiko greeted me.</p>
-<p>"Ryuta, did you have fun?"</p>
-<p>"Yes, I had a lot of fun."</p>
-<p>Seeing Yukiko wearing a Dongtan-style dress that fit her body perfectly, I wanted to lift her skirt and fuck her right away, but it was impossible because the housekeeper was there. It's a bit of a shame.</p>
-<p>"I'll do it for you later at night~♥"</p>
-<p>I was annoyed that Yukiko was deliberately swaying her hips and seducing me, telling me to wait until night, but there was nothing I could do. I nodded and went up to my room.</p>
-<p>I had already showered at the pension, so I didn't have much to do, so I decided to do some of the studying that I hadn't been able to do over the weekend.</p>
-<p>No, I'm not even a student, but I have to study like this, so it's a little... no, it's very annoying, but since I've been given a mission, I have to do it properly. Of course, before that....</p>
-<p>"Before I study, I'll just watch one Mytube video...."</p>
-<p>I was about to sit at my desk and turn on Mytube on my phone when I saw that I had a text message. It probably came while I was driving. I have two text messages? To be exact, I had one KakaoTalk and one LINE message.</p>
-<p>I checked KakaoTalk first, thinking that Han Yu-gyeong might have sent a KakaoTalk message about business, but the person who sent the KakaoTalk message was Ha Ju-yoon. A KakaoTalk message came with a photo, and the photo was of a plane ticket to Tokyo.</p>
-<p>Ha Ju-yoon: Yong-tae, I'm sorry for the sudden notice, but I'm going to Japan, can we meet? The flight is the day after tomorrow.</p>
-<p>This is a disaster.... Her schedule overlaps with Nae Fitzgerald's. I was wondering how to answer when I decided to check the next LINE message first.</p>
-<p>It's Nagumo Sian? What's going on?</p>
-<p>Nagumo Sian: Ryuta, there will be a Taira Group executive meeting in Tokyo on Monday. Can I see you on Tuesday after the executive meeting?</p>
-<p>It was a big deal. All the mamas were gathering in Tokyo.</p>
-<p>All three were charming mamas that I liked, so I couldn't refuse to meet any of them. Besides, they all had their own reasons.</p>
-<p>Nae Fitzgerald was bringing a bombshell to Alik and it was a prior engagement, and Ha Ju-yoon was going through a hard time mentally due to her recent divorce issues, so it was hard to refuse.</p>
-<p>Lastly, Nagumo Sian was the head of my only friendly force within the Taira Group, excluding Yukiko, and she was very busy, so it was not easy to meet her. It meant that if I didn't meet her this time, I wouldn't know when I would meet her again.</p>
-<p>-------</p>
-<p>B-cuts left over from making Minamoto Lisa's cover!</p>
-<p>I like Gyaru girls~!!</p>
+<p>The tanning and blonde hair dye weren't done at a regular shop, but at a place prepared by the Taira Group. Naturally, this was to prevent my disguise from being rumored. Thanks to the latest tanning machines and the efforts of the hairdressers, I was able to become a splendid blonde-tanned man.</p>
+<p>After finishing everything, I looked in the mirror. Just dyeing my hair and tanning made me look like a different person. They said that if I wore brown-tinted lenses instead of my original black eyes, the infiltration character would be complete. After running a simulation, it was fortunate that I didn't need to inject fillers.</p>
+<p>Since I also changed my hairstyle at the same time as dyeing my hair, only people who already know me would recognize me as Taira Ryuta.</p>
+<p>Everything I needed to change my identity was prepared here. In the parking lot, instead of the Taira Motors SUV I usually drive, a sports sedan was prepared, and next to me were clothes that weren't the usual office worker suits or white t-shirts with jeans that I usually wear. More like flashy street fashion, you know?</p>
+<p>And there was an ID with the name Yamashiro Ryuta written on it, which I would use to disguise myself, and credit cards with Yamashiro Ryuta's name on them, neatly arranged. They said they prepared this in case Minamoto could track me down using the credit card. The limit is up to 50 million yen per month, which is quite generous considering it's the teacher's operation fee.</p>
+<p>They said I didn't need to change my phone since it uses the Taira Group's telecommunications line anyway. That was a relief.</p>
+<p>,Thorough."</p>
+<p>I muttered and took off my clothes to change into the new outfit. Ooh! Maybe it's because of the tanning, but the definition of my muscles looked really clear. I stopped changing and struck several bodybuilding poses before putting on the clothes.</p>
+<p>Definitely more alien since I even changed my clothing style. I put on the brown lenses and took a picture, sending it to Yukiko, Han Yu-gyeong, Arisu, and Mimata Chieri, who know that I'm going on a mission to St. Francis Girls' Academy.</p>
+<p>The first reply came from Yukiko. Until yesterday, she was sad about our separation, so I comforted her a lot with my body, but today she seemed to be in a better mood.</p>
+<p>Taira Ryuta: Photo</p>
+<p>Yukiko: Where did my Ryuta go?</p>
+<p>Yukiko: Maybe it's not as bad as I thought...?</p>
+<p>As expected, her reaction wasn't too bad, probably because my original face is good-looking. Oh, it's Han Yu-gyeong this time?</p>
+<p>Han Yu-gyeong: Should I get a tan too?</p>
+<p>Taira Ryuta: Yu-gyeong-ie, the contrast between your black hair and white skin is your charm, so I don't think you should. I like Yu-gyeong's flawless white skin 👄</p>
+<p>Han Yu-gyeong: Really? Is that what you usually think of me? ❤️😍</p>
+<p>Han Yu-gyeong suddenly said she would get a tan too, so I praised her current appearance to stop her, and she really liked it and went along with it.</p>
+<p>Arisu: (˃ བ˂) Ryuta, don't go down a bad path (｡ᵕ ꘍ ᵕ｡)</p>
+<p>Taira Ryuta: It's the same hair color as Arisu?</p>
+<p>Arisu: (๑˃́ꇴ˂̀๑) Aha~! That's what it was~!! ⸜( ˙ ˘ ˙)⸝♡ I guess we're a couple after all hehe</p>
+<p>Arisu seemed to dislike it at first, but when I said it was the same hair color as a couple, she quickly cheered up and giggled. Actually, it's a similar color to Nae Fitzgerald, who has brighter hair than Arisu. But if she's happy, that's all that matters.</p>
+<p>Mimata Chieri: Seeing that appearance, sunbae-nim looks like a villain from an NTR manga! Please leave some videos behind! Please!</p>
+<p>I didn't reply to Mimata Chieri separately. I have nothing to say to that kind of reaction. Yes, I'll definitely leave a video! I can't say that, and if I say I won't leave it, she'll keep bothering me.</p>
+<p>She's still a netorare maniac, just happy to die because I became a gold-haired guy....</p>
+<p>After finishing Line and KakaoTalk, I took Yamashiro Ryuta's ID, wallet, and cards, and finally the car keys.</p>
+<p>Going down to the parking lot, a German brand sports sedan was parked there, not a Taira Motors car, probably to completely eliminate any connection between me and the Taira Group.</p>
+<p>Miyashi (Female Shrine City) west of Mount Fuji was 3 hours away from Tokyo, but I didn't realize how long it was because it was fun driving a new car. I parked the car in the parking lot of my new house, which was a 3-minute walk from Miyashi St. Francis Girls' Academy.</p>
+<p>Miyashi itself was a city where many wealthy people came and went, so my house was good for a teacher's house. It was spacious and had quite a few rooms.</p>
+<p>Whether the Taira Group had prepared it in advance, furniture, electronics, and even ovens and microwaves for cooking were all provided. The closet was also full of clothes, so I didn't think I needed to buy new clothes.</p>
+<p>,Not bad."</p>
+<p>After looking around the house where I would live for a few months, I came outside. Now it was time to go to St. Francis Girls' Academy, where I would work for a few months.</p>
+<p>I had to prepare for work before the start of the semester, and today I had an interview with the school principal.</p>
+<p>,What's going on?"</p>
+<p>A guard who seemed quite well-trained, not a typical school security guard, asked me as I tried to pass through the entrance.</p>
+<p>,I'm Yamashiro Ryuta, who will be teaching Korean from next semester."</p>
+<p>,I'll check."</p>
+<p>The guard went into the security office and typed something diligently on the laptop, then nodded.</p>
+<p>,Please come in! Please stop by the personnel department to get your teacher's ID."</p>
+<p>,Okay, thank you for your hard work."</p>
+<p>There's a teacher's ID. I'll meet the principal first and then stop by the personnel department. St. Francis Girls' Academy was, of course, quite large. It was an escalator-type school that led directly to middle and high school, and since it was a place where the daughters of famous Japanese families attended, the buildings were large and numerous.</p>
+<p>,Where should I go?"</p>
+<p>I first approached what seemed to be the largest building. Fortunately, there was a student who came to school even during vacation, and when I asked, it seemed that this building was the one with the principal's office.</p>
+<p>,She said it's on the 5th floor, right?"</p>
+<p>Actually, it's not the 5th floor but the 4th floor, but since East Asians don't use the 4th floor well, they probably said it's the 5th floor. I went up to the 5th floor and knocked on the door of the place that said Principal's Office.</p>
+<p>,I'm Yamashiro Ryuta, who will be working from next semester."</p>
+<p>,...Come in."</p>
+<p>The voice was quite beautiful, but it sounded a bit cold. The principal was Daigo Terue, a woman from the Daigo family who owns St. Francis Girls' Academy.</p>
+<p>,Hello."</p>
+<p>I opened the door and greeted her. There was only Daigo Terue in the principal's office, a quite beautiful woman with brown hair and a voluptuous figure, wearing a neat suit. For some reason, Daigo Terue was standing up from her seat.</p>
+<p>,Please sit in front."</p>
+<p>Daigo Terue offered me a seat and sat down herself.</p>
+<p>,Yamashiro Ryuta, 24 years old. Graduated from Kanto University's Korean Language Education Department.... From the Yamashiro family, recommended by the Matsuzono family...."</p>
+<p>Daigo Terue began to read my documents. Kanto University was a university with quite a bit of Taira Group's shares, and since it was difficult to forge a university degree, they disguised it as graduating from Kanto University, which had Taira Group's shares. If they manipulated it at a school owned by the Taira Group, it would be suspicious, so they used Kanto University, which was not outwardly owned by the Taira Group.</p>
+<p>,The 3rd grade special class that Yamashiro-nim will be in charge of in the future will be quite difficult. The previous homeroom teacher was even overthrown by the students."</p>
+<p>I knew about it, though not in detail. I heard that the former homeroom teacher was caught by Minamoto Risa for trying to harass a mentally unstable female student and was fired.</p>
+<p>,Yamashiro-sensei is still young and full of energy, so don't touch the students unnecessarily."</p>
+<p>Daigo Terue spoke firmly. Of course, I acknowledge that she's speaking firmly because the former teacher committed such an act, but I actually came to touch the students. By order of Taira Danjo, I came to violate Minamoto Risa.</p>
+<p>,That will never happen."</p>
+<p>I said with a straight face as if I had never even thought about it. Judging by how my acting skills are improving day by day, acting might be registered in the skill window soon.</p>
+<p>,Okay. The special class homeroom teacher has a education preparation room next to the special class, so you don't have to go back and forth from the faculty room. You have to take good care of the kids."</p>
+<p>,Um... I don't know the location well...."</p>
+<p>,Ah, I see. Wait a moment."</p>
+<p>Daigo Terue made a phone call to someone, and soon an old man in a bluish work uniform came to the principal's office.</p>
+<p>,This person is the school janitor. He will guide you."</p>
+<p>,Okay."</p>
+<p>The janitor and I left the principal's office and introduced ourselves to each other. The janitor's name was Asada Fukushi, and he was the manager of the maintenance team with ten cleaning ladies.</p>
+<p>,Then should I call you Manager-nim?"</p>
+<p>,Hehe, I'd appreciate it if you called me that."</p>
+<p>,Ah, the personnel department told me to get my teacher's ID, but can I get it before going?"</p>
+<p>,That won't take long, so let's do that."</p>
+<p>We stopped by the personnel department two floors below the principal's office and got our teacher's IDs issued. It was a necklace-type teacher's ID, and if you have this ID, you can scan it on the door handle like a transportation card to open classrooms or gyms that are allowed.</p>
+<p>When I got my teacher's ID issued, Asada Fukushi guided me to the building where the 3rd grade special class was located. The 3rd grade special class was in a building east of the large building with the faculty room, and it was a bit secluded because it was a building with special classes for repeaters or students with poor health. It's probably in a secluded place because of the Japanese tradition (?) of hiding things that aren't good.</p>
+<p>,There are quite a few students with poor health, so the classroom is on the first floor. And for the same reason, there is a education preparation room next to the special class and a nurse's office across from it for the teacher to stay in."</p>
+<p>The first floor was good. I don't have to climb the stairs every day. It was a secluded building, but it was quite spacious and nice. It was a two-story building, with classrooms, a nurse's office, and a education preparation room on the first floor, and club rooms and a warehouse on the second floor.</p>
+<p>,Thank you for the guidance."</p>
+<p>,Hehe, I hope you become a good educator!"</p>
+<p>I parted ways with Asada Fukushi at the entrance of the building and headed to the classroom. It was very quiet because there was no one in the building. Only my footsteps echoed through the air, and soon I saw a classroom with a nameplate that said 3rd Grade Special Class, so I scanned my teacher's ID and opened the door.</p>
+<p>Deureureuk! The door opened and the classroom was immediately visible. It was a classroom with not many desks where sunlight poured in. When I checked the number of desks, it seemed that there were about 8 students.</p>
+<p>Entering the classroom, it finally felt a bit real. From a week later, I will have to teach students under the name Yamashiro Ryuta. At the same time, I have to seduce Minamoto Risa as well.</p>
+<p>It's definitely not an easy task, but it's my job, so let's do our best. I closed the classroom door, making a resolution to myself.</p>

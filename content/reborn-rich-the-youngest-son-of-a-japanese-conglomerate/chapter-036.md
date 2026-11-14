@@ -5,87 +5,83 @@ weight = 36
 chapter = 36
 +++
 
-<p>The next day. I overslept a bit, so I arrived at the academy entrance at 8:15 AM instead of the promised time of 8:00 AM. Smith Kazuhiro, whom I was supposed to meet at the entrance, was chatting happily with some girl.</p>
-<p>"Oh, Ryuta-hyung-nim~! You're a bit late?"</p>
-<p>"Sorry, I overslept a little. But who is this...?"</p>
-<p>The girl Kazuhiro was happily talking to was exactly Kazuhiro's type. A plain style, a plain face, and plain clothes. At least her chest is huge. That son of a bitch Kazuhiro showed me a picture yesterday, saying she was a new girl he met, and now he's already grinning like an idiot at the new girl in front of him. He really is a simp.</p>
-<p>"This beautiful woman is named Kagawa Umi."</p>
-<p>"Oh my~!"</p>
-<p>These two are making a fuss. Kazuhiro was signaling with his eyes, asking me to help him succeed.</p>
-<p>"I'm Taira Ryuta. I'm friends with this guy. He's a good guy, so please take care of him."</p>
-<p>"Ah~ Hyung-nim, what are you saying?"</p>
-<p>I can see the corners of his mouth going up, you little bastard. Alright, if I'm going to push him, I might as well push him properly.</p>
-<p>"So, what were you two talking about?"</p>
-<p>"Umi-chan is a sophomore at Edo University."</p>
-<p>"Wow, that's amazing! So, Kagawa-san and Kazuhiro have what the other doesn't?"</p>
-<p>Kagawa Umi seemed curious about what I meant and asked me. But when did he start adding -chan to her name? He really is a friendly guy. By the way, isn't Edo University the best university in Japan? She looks like she studies well, and she really does.</p>
-<p>"Kagawa-san has intelligence, and this guy has athletic ability. He's a soccer player."</p>
-<p>"Hee~?! Really? I thought he looked like an athlete, but he's a soccer player?"</p>
-<p>"I guarantee you'll see his face in the national team within a few years."</p>
-<p>Kazuhiro scratched the back of his head at my compliment, looking like a bashful boy... but that's all an act. Kazuhiro says that when a guy as big as him acts like a pure boy, girls feel a gap moe?</p>
-<p>"Umi-chan, if I score a goal, I'll do a celebration for Umi-chan."</p>
-<p>"Really? Hehe♥"</p>
-<p>They were entering their own world again. I decided to help, but I'm starting to feel sick. I need to ask what I'm curious about before they completely enter their own world.</p>
-<p>"But can't we just go in? Why are we still outside?"</p>
-<p>"Ah. I was waiting for my friend Hanako-chan."</p>
-<p>"Umi-chan said she applied with a friend, just like us."</p>
-<p>"I see. Then let's wait together."</p>
-<p>While waiting, the three of us asked Kagawa Umi what we were curious about. Kazuhiro was genuinely curious about university life, and I, who had attended university before being possessed, asked what was different about Edo University, which is said to be the best university in Japan.</p>
-<p>At Edo University, when you enroll, you are grouped into academic clusters rather than specific departments or majors. For instance, Liberal Arts Cluster 1 includes the Faculty of Law, while Science Cluster 1 includes the Faculty of Engineering, the Faculty of Science, the Faculty of Pharmaceutical Sciences, and the Faculty of Agriculture. Typically, students are part of the College of Liberal Arts until their third year, at which point they select a faculty within their academic cluster to continue their studies.</p>
-<p>"Which academic cluster are you in, Umi-chan?"</p>
-<p>"Me? I'm in Liberal Arts Cluster 1. My friend is also in Liberal Arts Cluster 1."</p>
-<p>As expected of an Edo University student, her explanation was coherent. Umi was about to explain a few more things when she heard footsteps next to her and turned around to see a very beautiful female college student looking at us.</p>
-<p>"Hanako-chan! Over here!"</p>
-<p>Kagawa Umi waved her hand and called Hanako. Ah, so that's Hanako. Usually, someone with that kind of appearance would be at the top of their department at school. Han Yu-gyeong or Arisu are at the top of their schools. She's pretty, so definitely not Kazuhiro's style.</p>
-<p>"This is my friend Gokado Hanako."</p>
-<p>"Hello, I'm Smith Kazuhiro."</p>
-<p>"I'm Taira Ryuta, please take care of me during this short training camp."</p>
-<p>"Ah, hello, I'm Gokado Hanako."</p>
-<p>Gokado Hanako bowed slightly with a slightly shy attitude. We went inside the academy, paid, and went to the auditorium where students gather for lectures.</p>
-<p>A few people passed by when we were talking earlier, and those people were sitting in the auditorium. Three men and two women. They all seemed awkward, sitting separately and just looking at their phones, so Gokado Hanako and Kagawa Umi, who had become part of our group, sat with us.</p>
-<p>"Hyung-nim, I looked it up, and usually there are a lot of people around December, and there aren't many people right before the semester starts like now."</p>
-<p>"Is that so?"</p>
-<p>"That's why we deliberately chose a time when there aren't many people."</p>
-<p>When I answered Kazuhiro, Kagawa Umi, who hadn't even been asked, started explaining their circumstances.</p>
-<p>"Gokado-san, do you have a boyfriend?"</p>
-<p>"Ah, yes. I do."</p>
-<p>"Ah~! That's too bad. My hyung-nim seemed to like Hanako-san."</p>
-<p>Kazuhiro was trying to push Gokado Hanako on me, perhaps feeling sorry that only he was having a sweet time with Kagawa Umi. In times like this, you should approach her with a comfortable, friendly feeling rather than pushing too hard.</p>
-<p>"Since we met like this, let's just be close friends."</p>
-<p>"Should we?"</p>
-<p>Gokado Hanako smiled slightly when I made her feel comfortable.</p>
-<p>Two men and two women entered the auditorium, and at 9:00 AM, the start time of the training, a bald-headed academy director with a shaved head came in and stood on the platform.</p>
-<p>"Before we begin the training, I will explain the course of the training."</p>
-<p>The director's words were boring. The lecture, which was half academy bragging and half training course explanation, ended after about fifteen minutes.</p>
-<p>"I'll assign you to your rooms, but before that, let's take a group photo with the academy as the background. Please follow me~!"</p>
-<p>We went to the place led by the director and positioned ourselves so that the name of the academy was visible. But I heard a small *hiik!* sound from Gokado Hanako, so I looked over and saw a pig with a greasy expression groping Gokado Hanako's butt.</p>
-<p>Ah, man.... I can't stand this. I took my hand off my thigh, released the posture of bending over, and grabbed the hand that was groping Hanako.</p>
-<p>"Wh-what?!"</p>
-<p>"You're the one who should be asking what you're doing! Why are you groping someone else's girlfriend's butt?"</p>
-<p>Everyone buzzed at my words. Groping someone's butt in such an open place while taking a group photo was beyond imagination.</p>
-<p>"Wh-what nonsense are you talking about?"</p>
-<p>"I saw it too! I saw this pig touching her butt!"</p>
-<p>Kazuhiro shouted. Actually, he probably didn't see it. He just shouted that he saw it to take my side. The director, who was about to take the photo, approached Hanako and asked in a serious tone.</p>
-<p>"Did this person really touch your butt?"</p>
-<p>"Hng... Yes, this person suddenly groped my butt."</p>
-<p>Tears welled up and fell from Gokado Hanako's pretty face. Seeing that made me even angrier.</p>
-<p>"I'm sorry, but could you please leave with a refund?"</p>
-<p>The director spoke to the pig in a fairly polite tone. If it were me, I would have told him to get lost before suing him for obstruction of business.</p>
-<p>"Do you have any evidence? Are you just going to kick me out based on words?"</p>
-<p>"Shall we call the police and look for evidence? If even one of your skin flakes comes out on that young lady's skirt, you'll be eating prison food, you know?"</p>
-<p>"Hmph! Make sure you give me a refund!"</p>
-<p>The pig left with a stiff attitude until the end. I've got his face, so if I meet him at night, I'll show him the face of the Grim Reaper. I don't understand. Has he been watching too much manga? How could he think of groping someone's butt so brazenly in such an open place? Go jerk off to Hitomi, you pig.</p>
-<p>After a brief commotion, the director apologized for his negligence and offered Gokado Hanako a 30 percent discount. Gokado Hanako looked like she was about to run out of the academy right away, but she nodded at the mention of the discount.</p>
-<p>"Alright, shall we take the photo again? Say cheese!"</p>
-<p>We took the photo safely and went to see the accommodations, guided by a staff member. As we were walking, Gokado Hanako walked next to me and tugged at my sleeve.</p>
-<p>"Thank you, Taira-san."</p>
-<p>"It's something anyone would do."</p>
-<p>"No. I'm sure the person next to that *buta*-san saw him groping my butt, but Taira-san, who was in front, stopped him."</p>
-<p>"Then, as a reward for helping you, will you grant me a favor?"</p>
-<p>"Yes, I'll grant you anything as long as it's not something impossible for me to do!"</p>
-<p>She clenched both fists tightly, saying she would grant me a favor, which was so cute.</p>
-<p>"Then, instead of calling me Taira-san, please call me by my first name."</p>
-<p>For some reason, being called Taira-san gave me the creeps. Is it because I've had to say Taira a lot recently...? At my words, Gokado Hanako blushed, looked at the ground, and spoke.</p>
-<p>"Okay.... Ryuta-gun.... Please call me Hanako too."</p>
-<p>"I will, Hanako-chan."</p>
-<p>Gokado Hanako gave a faint smile at my answer.</p>
+<p>"Yes, I've been training a little since middle school."</p>
+<p>I answered Hanasaki Sayaka's question. Then, as if excited, she started to open her mouth.</p>
+<p>"Then, what martial arts did you learn? Karate? Boxing? Kickboxing? You're from Korea, so Taekwondo?"</p>
+<p>"Actually, I'm learning Shinkai Yatsude (Deep Sea Eight Hands)."</p>
+<p>"Ehhh? Are you kidding me?"</p>
+<p>As explained in the description of Shinkai Yatsude's techniques, my master is Fujigasaki Rinka. I'm not that famous, but Fujigasaki Rinka is very famous. She became the UMC Openweight Champion as a woman.</p>
+<p>UMC Openweight is a martial art that doesn't care about gender or weight class, and it's famous for the participation of numerous hidden masters. It was truly an openweight Colosseum of the modern era, allowing drugs, bio-modification, and even cyber implants, which are mechanical modifications.</p>
+<p>Fujigasaki Rinka, who stepped into that UMC Openweight and earned the title of champion as a woman without physical modification, was evaluated as the GOAT in martial arts history. In particular, she had a lot of female fans, and Hanasaki Sayaka seemed to be a fan who followed Fujigasaki Rinka. Seeing the light shining in her eyes, she's almost certainly a fan.</p>
+<p>"Wow~ I really admire Rinka-nim, I'm a fan of Rinka-nim!"</p>
+<p>"Well, my master has a lot of fans."</p>
+<p>Thinking about it now, I'm curious if Fujigasaki Rinka, the GOAT of the martial arts world, would have become the master of a mere middle school student who knew nothing, but it's most likely that Taira Danjo, who saw me being bullied, asked Fujigasaki Rinka, who was a promising martial artist at the time, though not the strongest, to teach me martial arts.</p>
+<p>"Do you happen to have any photos?"</p>
+<p>"I want to see too! I know Rinka-nim too!"</p>
+<p>Arisu also said that she knew Fujigasaki Rinka and showed me a picture I took with Fujigasaki Rinka.</p>
+<p>What I showed was a picture taken when I first formed a master-disciple relationship with Fujigasaki Rinka in the second year of middle school. It was a picture of a still young Fujigasaki Rinka putting her arm around my shoulder. If you were to call it a rare item, it would be a rare item among rare items.</p>
+<p>Fujigasaki Rinka is a beautiful woman with purple hair, and she was also famous for being so strong and so pretty? By the way, I don't know if she doesn't age, but she looked almost the same in middle school and when I said goodbye to her when I went to the United States in the second year of high school. Her hairstyle changed often, though. When she had an afro hairstyle, it was completely hilarious.</p>
+<p>"Wow, Ryuta looks cute at this time, hehe."</p>
+<p>"Rinka-niim~!!"</p>
+<p>Arisu didn't seem to be a martial arts fan, and she seemed to enjoy looking at my old photos more than Fujigasaki Rinka, and Hanasaki Sayaka seemed to enjoy seeing Fujigasaki Rinka's unreleased photos, screaming Rinka-nim~! and tasting happiness. She must be a huge fan.</p>
+<p>"Um... I'm sorry...."</p>
+<p>"Yes?"</p>
+<p>"Could I ask you for an autograph?"</p>
+<p>Hmm... a request for an autograph. It was a difficult but not difficult request.</p>
+<p>"It's not difficult to ask for an autograph, but my master lives in the United States, so I only see her once every two years."</p>
+<p>"Ah...."</p>
+<p>"Or I can ask her to send it by letter."</p>
+<p>"Thank you! Thank you! You're a lifelong benefactor!"</p>
+<p>Hanasaki Sayaka was holding my hands with both hands and repeatedly saying thank you. Now that I think about it, should I send her a Line message?</p>
+<p>-Taira Ryuta: Master, I got my driver's license and got a job at a company.</p>
+<p>Still, I should politely tell her about my recent situation before asking for an autograph out of the blue. That's how a true disciple should be.</p>
+<p>-Rinka-ttang☆: I told you to just enter the martial arts world, why are you taking such a difficult path? You keep calling me master, master, but you don't listen to me at all~.</p>
+<p>For reference, Rinka-ttang☆ was entered directly by Fujigasaki Rinka, not me.</p>
+<p>-Taira Ryuta: The life of a superstar is a bit lacking in privacy... More than that, Master, can you make a few autographs and send them to me by letter? One of my friends said they're a huge fan of Master.</p>
+<p>-Rinka-ttang☆: You little punk! You didn't contact me for a long time, and now you're looking for me when you need me?</p>
+<p>-Taira Ryuta: I got my driver's license, so when you come to Japan, shall we go on a trip to the beach or something? I'll take you anywhere Master wants to go.</p>
+<p>Fujigasaki Rinka liked to travel so much that she taught me a few stances and then went on a trip for a month to check if I had mastered the stances well.</p>
+<p>-Rinka-ttang☆: Hmm~! If it's that much, I'll send you a few autographs. I'll probably go to Japan this summer too.</p>
+<p>-Taira Ryuta: Ah, I changed my place of residence because of work, so send it here !</p>
+<p>-Rinka-ttang☆: Okay~ See you later!</p>
+<p>"It really was Rinka-ttang...."</p>
+<p>Hanasaki Sayaka must have been peeking at me using Line, because her title changed from Rinka-nim to Rinka-ttang.</p>
+<p>"As you can see, she said she'll send me an autograph."</p>
+<p>"Thank you!"</p>
+<p>"I asked her to make plenty so Arisu can get one too."</p>
+<p>"Wow! Really? I'm not a fan, but Alex will like it."</p>
+<p>It seems that Arisu's older brother, Alex Fitzgerald, is also a martial arts fan. After that, Hanasaki Sayaka and Arisu got excited and sang the UMC theme song together. When I asked Arisu, she said that Hanasaki Sayaka asked her to do a duet with her and told her to practice.</p>
+<p>She's usually very modest, but when something she likes comes out, she becomes very bright. Well, being bright is better than being quiet.</p>
+<p>We sang excitedly for two hours and were hungry, so when we checked the time, it was seven o'clock, so we decided to go to the restaurant. TERT has 111 floors, so there were 4 restaurant floors, and each floor had Japanese, Western, Chinese and Asian food, and South American and African food. You can eat at these 4 restaurants, or you can order the menu you want and eat in your room like a hotel.</p>
+<p>"What do you want to eat?"</p>
+<p>"Hmm... I want to eat Chinese food?"</p>
+<p>For reference, Chinese food includes not only traditional Chinese food, but also American-style Chinese food like orange chicken and Korean-style Chinese food like Jajangmyeon, so I said Chinese food because I wanted Korean-style spicy Jjamppong today.</p>
+<p>"I have to control my diet because of the filming I'm doing right now... I'm thinking of eating a salad."</p>
+<p>"Try eating Bibimbap with a little rice and a lot of vegetables."</p>
+<p>Hanasaki Sayaka clapped her hands as if she liked my recommendation and said, "Then I'll do that!" And then she whispered to Arisu.</p>
+<p>"It might be hard to stay up all night, so Arisu, eat a lot."</p>
+<p>Arisu couldn't answer in front of her friend and her ears turned red.</p>
+<p>We got off on the 74th floor, which was the Chinese &amp; Asian food floor. The entire floor was a restaurant, but there weren't many people. We were guided and took a seat by the window. It was quite a high floor, so we could enjoy the night view of Tokyo while eating.</p>
+<p>"Bibimbap, but with less rice and more vegetables, please."</p>
+<p>"Korean-style Jjamppong, Sweet and Sour Pork, and Orange Chicken."</p>
+<p>"I'll have Pho (rice noodles) and Peking Duck."</p>
+<p>It's Chinese and Asian food, so there are a lot of different combinations. We ordered and were waiting for the food when a man who was eating in front of us got up and approached our table.</p>
+<p>"Sayaka-chan~! You ignored my dinner request, but you eat so easily with other people?"</p>
+<p>It was Murakata Keiji, an actor who has been gaining popularity recently. Murakata Keiji was coming on to Hanasaki Sayaka in a slimy manner.</p>
+<p>"I have no intention of eating with a lecher like you."</p>
+<p>If you say that, the lecher who's listening will be hurt. Well... I'm not saying I'm a lecher.</p>
+<p>"Why don't you just eat with me?"</p>
+<p>Murakata Keiji was suddenly grabbing and pulling Hanasaki Sayaka's thin wrist. By the way, he has company, but he's asking her to eat with him, is he going to kick out the woman who's sitting alone at the dining table? I couldn't stand it, so I grabbed Murakata Keiji's wrist that was holding Hanasaki Sayaka's wrist.</p>
+<p>"Are you not going to let go of this? Who are you? I'm Murakata Keiji!"</p>
+<p>Looking at the way his eyes are messed up, it looks like he took some light drugs from somewhere... I didn't think it was worth answering, so I lightly chopped Murakata Keiji's neck with my hand and knocked him out. I've been training Shinkai Yatsude often, so my skill has increased. So I was able to succeed in knocking him out by chopping his neck, which I failed in Korea.</p>
+<p>Murakata Keiji, who had fainted, was dragged away by the security guards who belatedly ran over. It was quite an unpleasant experience, but Hanasaki Sayaka seemed curious about the sight of someone actually being knocked out at once, and asked me this and that until the meal came out.</p>
+<p>The meal was enjoyable. The food was all delicious, and because we ordered so many, it gave me, a big eater, a sufficient sense of fullness. After the meal, Hanasaki Sayaka said she needed to get an autograph and got my Line address. And then she left TERT, saying she had a night shoot.</p>
+<p>As soon as Hanasaki Sayaka left, Arisu clung to my arm and said with a slightly shy expression.</p>
+<p>"Then, shall we go to the room?"</p>
+<p>Arisu is the niece of Taira Kokoro, the owner of TERT, and she receives considerable benefits, so she was able to use a high-rise luxury room that only S-class people can use.</p>
+<p>To use a room at TERT, you can tell a passing employee that you want to check in, and they will contact the front desk and tell you which rooms are available. Our room was room number 3 on the 102nd floor. As we got on the elevator, Arisu suddenly kissed me. I accepted it, and we kissed as we walked down the hallway on the 102nd floor and opened room number 3 until we entered.</p>
+<p>"Hehe, I wanted to try this once. Kissing from the elevator and opening the hotel room."</p>
+<p>"Ah, that kind of scene comes out a lot in movies and TV."</p>
+<p>She wants to imitate all the strange things. Arisu and I brushed our teeth side by side in the washroom, took off our clothes together, and started showering. We started foreplay while lathering each other's bodies. In the bathroom, the sound of bubbles and the sound of rubbing each other's bodies with shower towels, and small moans of haa haa echoed.</p>
+<p>__________</p>
+<p>Fujigasaki Rinka, the master who uses Line with the main character~!</p>

@@ -5,84 +5,93 @@ weight = 98
 chapter = 98
 +++
 
-<p>"Father, if you could just tell me what's going on..."</p>
-<p>It was late at night. Taira Jiro was kneeling in Taira Danjo's room at the Taira family's main house, sitting before Taira Danjo. Taira Danjo was looking at Taira Jiro with cold eyes.</p>
-<p>"Have I ever said anything about you brothers fighting?"</p>
-<p>"No, you haven't."</p>
-<p>Indeed, Taira Danjo had never said anything about the Taira family's succession disputes. He hadn't even said anything when Taira Saburo died.</p>
-<p>"Yes, you know I don't say anything about your childish squabbles. But this time, you've crossed the line. I can understand being greedy for the Talent Development Center, but to join hands with Minamoto?"</p>
-<p>"Huh? Mi, Minamoto, you say?"</p>
-<p>Taira and Minamoto had been fierce rivals for a long time, with countless old grudges piled up, making it difficult to even determine who was the victim, who was the perpetrator, or who was at fault first. It had become a tangled thread of malice. Unless someone stepped forward and cut all the threads of malice, the relationship of resentment would continue to lead to fighting.</p>
-<p>Taira Jiro knew this well, so his face turned pale when the name Minamoto was mentioned. The Minamoto family was the one family that the Taira family's successors should never get involved with.</p>
-<p>"The guy you scouted from the Talent Development Center was a Minamoto spy."</p>
-<p>"Ah, ah... I... I didn't know! Please believe me!"</p>
-<p>It was a situation where he couldn't move an inch. If he knew, he would be a traitor to the Taira Group, and if he didn't know, he would be an incompetent successor who couldn't identify a Minamoto spy, leaving him stuck in a bind.</p>
-<p>"It's true...! I really didn't know... Father, you know I'm not a traitor."</p>
-<p>Taira Jiro chose incompetence rather than being a traitor. Of course, Taira Danjo didn't think that Taira Jiro had deliberately joined hands with Minamoto. But he couldn't just let it pass. The more he treated him harshly, the less likely the other guys in the group would think about joining hands with Minamoto, so Taira Danjo's words were unwavering.</p>
-<p>"I'll be managing the steel business for the time being."</p>
-<p>"Fa, Father...!"</p>
-<p>"You still have a few affiliates under your management, so take good care of them! If you come to your senses, you'll be able to take over the steel business again without any problems."</p>
-<p>"I understand... Then I'll be going."</p>
-<p>It wasn't that he was taking away the steel business from him completely, but that if Taira Jiro managed the remaining affiliates well, he would return Taira Steel to him, so Taira Jiro nodded with a heavy expression. Taira Jiro then bowed and left Taira Danjo's room.</p>
-<p>"Genta."</p>
-<p>"Yes, Chairman-nim."</p>
-<p>"Who's in charge of the Talent Development Center line?"</p>
-<p>"That would be... Takashi."</p>
-<p>"Investigate that guy. From start to finish... Dust off every single speck."</p>
-<p>As Taira Jiro spoke quietly, Tateyama Genta, Taira Jiro's secretary, realized that the Talent Development Center line had caused problems, enraging Chairman Taira Danjo. Until now, he didn't know what had enraged the Chairman, so Tateyama Genta was very anxious, but he was relieved to know the truth. Moreover, he was even more relieved that the responsibility for the Talent Development Center wasn't his.</p>
-<p>"Was there a problem with the Talent Development Center?"</p>
-<p>"Yes. The informant on the Talent Development Center line was a Minamoto spy."</p>
-<p>"Mi, Minamoto, you say?"</p>
-<p>"So we need to find out if Takashi, who manages the Talent Development Center line, is also involved with Minamoto... If he is involved, extract as much information as possible and eliminate him, and if he isn't involved, send him to an insignificant position because he failed to filter out the Minamoto spy and made things this bad. If we just cut him off, he might go to Minamoto, so give him a strong warning. Yes... He has a family, so use his family to control him. Make sure he doesn't even think about betraying us."</p>
-<p>Taira Jiro continued to speak, not paying attention to the flustered Tateyama Genta. Tateyama Genta nodded at Taira Jiro's ruthless instructions. His lord, Taira Jiro, had the disadvantage of being overly fond of women, but he had the advantages of being ruthless and quick to assess situations.</p>
-<p>"Ah, Father will be managing the steel business for the time being. In the meantime, we need to defend well against Ichiro and Kokoro's attacks, so come up with a good plan."</p>
-<p>"I understand. I will make sure there are no setbacks."</p>
-<p>At Taira Jiro's next instruction, Tateyama Genta bowed his head and replied.</p>
-<p>###</p>
-<p>"Keudeuk...!"</p>
-<p>Even after Taira Jiro left, Taira Danjo's anger didn't subside. Taira Danjo also knew that Taira Jiro had only been caught up in Minamoto's scheme. Taira Jiro was simply paying the price for being caught up in that scheme. The remaining anger was purely directed at Minamoto.</p>
-<p>"So you're trying to mess with my children and grandchildren, huh?"</p>
-<p>Taira Danjo was furious at the fact that Minamoto dared to plot against his own flesh and blood. How much did they despise him to attack his own kin? Taira Danjo frowned for a while, then soon smiled.</p>
-<p>"Alright, Minamoto Ushin. You need to realize that if you can attack, so can I... Fumimoto!!"</p>
-<p>"Yes, Chairman-nim."</p>
-<p>At Taira Danjo's shout, Fumimoto Takayuki, who had been waiting outside, came in. Fumimoto Takayuki, who was known as the second-in-command of the Taira Group, had a very cautious expression because it was a matter related to Minamoto.</p>
-<p>"You have all the information on Ushin's bloodline, right?"</p>
-<p>"Yes, would you like to see it?"</p>
-<p>"Yes, I need to flesh out the plan I've come up with. Summon all the special task force!"</p>
-<p>"Understood!"</p>
-<p>Even after Fumimoto Takayuki left the room, Taira Danjo couldn't help but laugh.</p>
-<p>"Keukeuke... Old man Ushin will be hopping mad. To think his granddaughter would be like that... Hehehe."</p>
-<p>Taira Danjo's laughter was full of malice.</p>
-<p>###</p>
-<p>"Euhheung...! Not here... Haaheung...!"</p>
-<p>"How many times do I have to say it? Doing it in a place like this is more thrilling and exciting."</p>
-<p>We were overlapping bodies in the Director's office without even having dinner. Of course, I had already told Yukiko's secretary, Ikehara Koyuki, to go home. Yukiko wasn't the kind of bad boss who would have sex in the office and make her secretary wait outside without anything to do, so as soon as the atmosphere turned lewd, she immediately told Ikehara Koyuki to go home.</p>
-<p>She clearly wanted Ikehara Koyuki to go home, but she was subtly saying she didn't like this kind of place, fueling the fire in my heart.</p>
-<p>"Haaheueung...! But if we do it here, what if I think of you even when I'm working, haaheueung...!"</p>
-<p>"That's the idea, isn't it?"</p>
-<p>"Haaang! Then I can't work, haaheung."</p>
-<p>I had Yukiko prop her arms on the Director's desk, stick her butt out, and was having sex doggy style. Before my eyes, Yukiko's slender waist, overwhelming hips, and bouncy butt combined to create an amazing spectacle. Anyone who saw this would definitely get a hard-on, even if they were impotent. I grabbed Yukiko's hips with my hands, shook my waist, and repeatedly pulled and pushed Yukiko's body with my hands in rhythm.</p>
-<p>"Haaheung! Haaheueung! Too strong, Ryuta, too deep!"</p>
-<p>Every time I thrust my waist, my glans hit her cervix hard, and Yukiko twisted her body as if she wasn't used to the sensation. It's a bit much to say, but my dead father, Taira Saburo, didn't seem to be big enough to develop Yukiko's cervix.</p>
-<p>All the better. I'll develop it and make Yukiko's cervix my own pleasure button.</p>
-<p>"Just bear with it a little longer. It's going to feel amazing."</p>
-<p>"Heueeang...! I, I understand, I'll bear with it, if it's Ryuta's words... Haaang!"</p>
-<p>She's saying something admirable. I could see Yukiko arching her back and tilting her head back every time I kept stimulating her cervix. She's incredibly flexible? Did she do yoga or something? I should ask her later.</p>
-<p>"Heueeheung! I, I feel...! I feel strange♡ Haaheueueung!"</p>
-<p>I could see it developing in real time, so my excitement doubled. I didn't expect her to feel it this quickly, but as expected, she had a lewd sensitivity to go with her lewd body.</p>
-<p>Yukiko's pussy clenched my dick as if she had quickly reached her climax due to my active hip movements. I almost came from the momentary increase in vaginal pressure, but I continued to shake my waist to show Yukiko heaven.</p>
-<p>"Hiyaang!! I came, I came...! I feel too much, stop! Stop it! Haaang!"</p>
-<p>"Just a little more, just a little more...!"</p>
-<p>My perineum was tingling, and semen was rising up my urethra. I hit her cervix hard and ejaculated as much semen as possible while keeping my glans pressed against it. At that moment, Yukiko seemed to have another orgasm, arching her back to the maximum and rolling her eyes back.</p>
-<p>"Haaheuaang!!!"</p>
-<p>"Eueueuk...!"</p>
-<p>Gurgle gurgle gurgle!</p>
-<p>The semen filled her vagina and even leaked out between her pussy and my dick. When I pulled out my dick, the semen fell to the floor with a thud!</p>
-<p>I pulled out a wet wipe and wiped Yukiko's pussy. Yukiko moaned with pleasure even though I was just wiping her.</p>
-<p>"Haaang! Give it to me. I, I'll wipe it myself."</p>
-<p>"No, I'll do it for you."</p>
-<p>While I used several wet wipes to clean not only her pussy but also the semen that had fallen on the floor, Yukiko tidied up her clothes. Then she looked at me, smiled, and gave me a light kiss on the cheek.</p>
-<p>Smack.</p>
-<p>"I'm hungry."</p>
-<p>"Me too, shall we go eat gyudon?"</p>
-<p>Yukiko smiled brightly and nodded at my question.</p>
+<p>With the loud siren, the police arrived, and soon Nagumo Sian, the president of Taira Foods, the vice director of the Talent Development Institute Kitatohoku Support, and other executives from Taira Foods and the Talent Development Institute Kitatohoku Support gathered at the scene of the accident. Nagumo Sian, still wearing a Kimono, approached me.</p>
+<p>"Are you okay?"</p>
+<p>"Nagumo-keunnunim."</p>
+<p>Nagumo Sian didn't look surprised, as she had told me something would happen. I was a little confused because of the orange-haired assassin, but Matsuhira Ginichiro's death wasn't that shocking. Nagumo Sian had warned me in advance, and it's not like I haven't seen people die once or twice.</p>
+<p>"Why did Matsuhira-ssi die?"</p>
+<p>Still, I was curious. Why did he die? I've never heard of the Taira Group handling things so aggressively, when they usually just give disappearing punishments. Even Nadachi Tojo, the former head of human resources who was connected to Minamoto, received a disappearing punishment.</p>
+<p>"He was involved with Kurotsuki-doo (黑月堂), a Chinese Yakuza group. If we want to warn those Kurotsuki bastards, we need to make a bit of a commotion."</p>
+<p>Ah, Kurotsuki-doo that appeared in the game was also in Japan. Kurotsuki-doo, in Japanese, is a Chinese organized crime group, a huge corporation, and a secret society that grew by taking advantage of the chaotic situation in China after it was divided into three after the Third World War. It was a familiar name to me because Kurotsuki-doo often appeared as a villain in MegaCorp's youngest son or its predecessor, TMC.</p>
+<p>Kurotsuki-doo uses the method of taking control of the back alleys first and then establishing local corporations. Of course, the most mobilized things in the process of executing that method were violence, drugs, and black money.</p>
+<p>Matsuhira Ginichiro was also likely to be a guy who was bought off by Kurotsuki-doo's money. Or, judging by how abnormally talkative he was, he might have been addicted to drugs. To deal with such Kurotsuki-doo, it was better to show it directly like this than to give a disappearing punishment.</p>
+<p>"There will be retaliation in Akita soon."</p>
+<p>"There were rumors that Kurotsuki bastards were seen in rural areas where people's attention is low, so you can think of it as an opportunity to sweep them all away."</p>
+<p>"If there is a situation where you need my strength, please contact me. I will help you."</p>
+<p>"Hohoho! How admirable. You're going to help this keunnunim?"</p>
+<p>Nagumo Sian laughed heartily and hugged me. I felt a sense of relief as my face was softly buried in her motherly, large breasts.</p>
+<p>"You have to be able to solve this much to become the president of the Taira Group. But if it's really hard, I'll contact you."</p>
+<p>Nagumo Sian looked at me with admirable eyes after releasing the hug. Soon, a police officer who was trying to hear the case approached me. The police officer was a man with thick eyebrows. Suzuki Chisami was also giving a statement to another police officer about what the situation was.</p>
+<p>"Hey, police officer. This child is my guest, so there shouldn't be any rudeness."</p>
+<p>"Yes, Daemo-nim! I will be kind!"</p>
+<p>Daemo-nim... I understood why Nagumo Sian liked my keunnunim remark so much. If a mere police officer called her Daemo-nim, then everyone in the entire region would call Nagumo Sian Daemo-nim and treat her with respect. Even if I was called Daebu-nim in the area, I don't think I would like it very much.</p>
+<p>"Taira Ryuta-ssi? I'll just ask you a few simple questions."</p>
+<p>"Yes, I'll tell you everything I know."</p>
+<p>After all, this statement was just a formality. The Taira Group already controls this local community, so how could the police be any different? Rather, Matsuhira Ginichiro, who died to the Taira Group, was likely to be someone who was harmed by Kurotsuki-doo. Then the police would chase Kurotsuki-doo.</p>
+<p>"Did you see the murderer?"</p>
+<p>"I couldn't see well because it was far away, but he was wearing black techwear and had a gun."</p>
+<p>I saw the police officer writing 'black techwear...' in his notebook at my words. It's amazing that there are still people using such analog notebooks. Well, there are still many people carrying notebooks in Japan, but these days, more people write on their smartphones or record them.</p>
+<p>"Did you see this pattern on the black techwear?"</p>
+<p>The shape the police officer showed was a black circle. Of course, this pattern was Kurotsuki-doo's pattern, but even if you put that black circle pattern on black techwear, it wouldn't be very visible.</p>
+<p>"I don't know if that pattern was attached because it was black clothes. Maybe it was attached?"</p>
+<p>"Hmm... Is that so? I understand. Thank you for your cooperation."</p>
+<p>I shook hands with the police officer and finished the statement. Nagumo Sian's influence in Akita Prefecture is really great. It's just a reference in a shooting murder case, not just a murder, but it ended with just two questions.</p>
+<p>"I'm going to be busy now too. It's late today, so you should sleep at the hotel you booked today, and since there's no need to work tomorrow because the director died, go back to Chiba as soon as you wake up."</p>
+<p>"Yes, Keunnunim."</p>
+<p>"Hmm...! I really like the title of Keunnunim, but your uncle or aunt wouldn't like it if they heard it, so it's better not to do it. Just call me Daemo-nim too."</p>
+<p>Nagumo Sian pointed out the problem with the title, as if she was worried about me. The three successors were trying so hard to get Nagumo Sian's support, so if I used the friendly word Keunnunim, it meant that I could become the target of attack for all three of them.</p>
+<p>"I like Keunnunim better?"</p>
+<p>"It's not time to reveal yourself yet."</p>
+<p>Nagumo Sian said seriously, as if she had noticed the ambition hidden in my heart.</p>
+<p>"At least if you get the full support of the three core subsidiary presidents, you can reveal your ambitions then."</p>
+<p>"Three places...?"</p>
+<p>Three places... It was a lot if it was a lot, and a little if it was a little. Nagumo Sian looked at me like that and gave me an admirable smile. And she whispered softly in my ear.</p>
+<p>"If you get the support of two places, I will be the third."</p>
+<p>I didn't answer and bowed to Nagumo Sian. She must be helping me because she has a relationship with Taira Saburo, and I was grateful that she didn't forget the relationship of the previous generation and helped me.</p>
+<p>"Now take your boss and go rest. I'm busy now because I have to prepare to fight Kurotsuki."</p>
+<p>"Please take care, Daemo-nim. I will be able to call you Keunnunim next time."</p>
+<p>"Hehe, I hope so too."</p>
+<p>Nagumo Sian saw Suzuki Chisami, who had finished the investigation, and told her to go now, so I greeted her and went to Suzuki Chisami. Suzuki Chisami seemed very surprised, as it seemed to be the first time someone had died so close to her.</p>
+<p>"Let's go, Deputy Team Leader."</p>
+<p>"Yes, yes...! Let's get out of here first."</p>
+<p>The police took Matsuhira Ginichiro's body, but there were many things that reminded me of the situation at that time, such as bloodstains and the standing golf cart, so Suzuki Chisami wanted to get out quickly. I greeted Nagumo Sian and the public relations manager and was about to go to the Taira Foods headquarters where our car was, when another golf cart came and took us, as Nagumo Sian had said in advance.</p>
+<p>I arrived at the parking lot of Taira Foods headquarters, picked up Suzuki Chisami, and started driving silently. Come to think of it, I have to report this situation to Yukiko. If I don't report it and just skip it, I'll get scolded a lot, right?</p>
+<p>"Ah, I have to report the situation to Director-nim...."</p>
+<p>I called Yukiko.</p>
+<p>-Ryuta, what's wrong?</p>
+<p>"Mother, I'm calling to report something."</p>
+<p>It was a code between me and Yukiko that if I called her mother when calling, it meant that there was someone around or that I was calling for official business.</p>
+<p>"Matsuhira Ginichiro, the head of the Kitatohoku branch, is dead."</p>
+<p>-Huh? What are you talking about?</p>
+<p>At Yukiko's question, I told her what had happened until then. Of course, because Suzuki Chisami was listening next to me, I didn't say that this was actually done by the Taira Group, and I roughly said that it seemed to be related to Kurotsuki-doo. Yukiko also heard the name Kurotsuki-doo and answered that she understood, as if she knew.</p>
+<p>-Rest today and come back right away tomorrow without having to work. I'll book a plane ticket for you.</p>
+<p>"Thank you, Mother."</p>
+<p>-Change to Suzuki Deputy Team Leader.</p>
+<p>"Yes."</p>
+<p>I was driving, so I was on speakerphone, so Suzuki Chisami was listening to everything. As soon as Yukiko finished speaking, Suzuki Chisami immediately answered the phone and talked to Yukiko before hanging up. Judging from the length of the story, there didn't seem to be much content.</p>
+<p>"What did Mother say?"</p>
+<p>Because it was just the two of us, I spoke comfortably to Suzuki Chisami. Suzuki Chisami didn't seem to feel any particular rejection to me speaking comfortably.</p>
+<p>"She said I worked hard. And she said she would give me a three-day vacation after this business trip."</p>
+<p>Hmm, will she give it to me too? Then the vacation is almost a month.</p>
+<p>"Are you feeling a little better now?"</p>
+<p>"Yes, thank you for taking care of me, Ryuta-nim."</p>
+<p>I'm glad you're feeling better. Then I should ask you what I'm curious about.</p>
+<p>"By the way, what was your relationship with Mimata Chieri in the Taira Foundation? You didn't seem to get along very well...."</p>
+<p>"I had work-related conflicts with Mimata-ssi. She wasn't on Ichiro or Jiro's line, and I don't think she was on Kokoro's line either."</p>
+<p>"Did Mimata Chieri have any other peculiarities?"</p>
+<p>"Hmm.... Ah, there's one thing. She often took vacations for two or three days. Come to think of it, I remember scolding her for taking a vacation when there was an important schedule at the company. I think that's when things started to go wrong."</p>
+<p>Vacation...! Mimata Chieri was also absent on vacation the day before going on a business trip. Could she have come here during her vacation? Is it too much of a leap to think of Mimata Chieri as a killer just because of her hair color?</p>
+<p>"But why are you suddenly talking about Mimata-ssi?"</p>
+<p>"I was just curious while driving. What are you going to do if you get a vacation?"</p>
+<p>I changed the subject at Suzuki Chisami's question. While talking about the vacation, Suzuki Chisami said that if she got a vacation, she would just rest at home. When I asked if I could come to her house after work, she blushed her brown skin and nodded, which was quite cute.</p>
+<p>"We've arrived. I'm a little hungry, so I'm thinking of eating something before going in. What about Suzuki-ssi?"</p>
+<p>"I still can't digest what I ate in between while touring. I'll go into the hotel first."</p>
+<p>You did eat quite a bit in between while touring the factory. It's probably quite full for a normal woman. Of course, it wasn't enough for me, who needs a lot of calories, but Suzuki Chisami decided to go to the hotel first, and we parted ways in the parking lot.</p>
+<p>"Akita Prefecture's specialties...."</p>
+<p>Still, if you come to another region, it's polite to eat the food of that region once.</p>
+<p>The specialty of Akita Prefecture that I looked up and found was a food called Kiritanpo (きりたんぽ). It is said to be made by mashing rice onto a stick to form a cylindrical shape and then grilling it. It looks like something between a rice cake and scorched rice. Usually, it's grilled and eaten with soy sauce or in a hot pot, but since I was a bit hungry, I chose the hot pot version, found a restaurant, and tried it.</p>
+<p>There was shilgonnyak, burdock, green onions, chicken, etc. in the chicken broth, and of course, Kiritanpo, which Akita Prefecture boasts, was also cut and put in. Hmm...! It was delicious to eat Kiritanpo with hot soy sauce-based chicken broth. Kiritanpo is like grilled garaetteok in Korea, but the texture was softer.</p>
+<p>I enjoyed the Kiritanpo nabe to my heart's content, bought beer and snacks at the convenience store, and came into the hotel, and Suzuki Chisami was leaning on the bed in her underwear, looking at me.</p>
+<p>"How about some post-meal exercise, Ryuta-nim?"</p>
+<p>"Sounds good~!"</p>
+<p>I was already taking off my pants while saying 'Sounds good'. From today until tomorrow morning, I have to completely imprint myself on Suzuki Chisami's hateful body.</p>

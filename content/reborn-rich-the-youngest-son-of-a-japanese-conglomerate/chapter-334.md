@@ -5,86 +5,85 @@ weight = 334
 chapter = 334
 +++
 
-<p>The most important conditions Kasaoka Yuzuki considered while doing delivery health were, first, money, and then security. She had only told her husband that she was doing a part-time job, not that she was doing delivery health, which was prostitution, so security was absolutely crucial.</p>
-<p>Although the price was a bit lower, she chose a company that used masks, and the fact that the company was some distance from St. Francisco Girls' Academy was also a factor in her choice.</p>
-<p>Besides, since all the students were female, even if they went astray, they wouldn't call a woman like herself, and she knew the home addresses of the male teachers at St. Francisco Girls' Academy from the emergency contact information held by the head teacher, so if she saw an address she knew, she could cancel the call.</p>
-<p>Kasaoka Yuzuki thought her security was perfect. Until today, her first weekday working.</p>
-<p>It was close to the school, but because it wasn't an address she knew, receiving the call was the root of the problem. As expected of a house close to the school, it was quite luxurious, and the homeowner was none other than Yamashiro Ryuta, who had caused her financial pain. Because he was a new teacher, the emergency contact list hadn't been updated yet, so she didn't memorize the address.</p>
-<p>,This is a disaster....'</p>
-<p>,Oh my!'</p>
-<p>She couldn't help but make a surprised expression and sound. But luckily, Yamashiro Ryuta didn't seem to recognize her.</p>
-<p>,Please come in.'</p>
-<p>The house was big and nice. The location was good because it was close to the school, and the interior was spacious and neat. At this level.... Kasaoka Yuzuki unconsciously compared it to her own house, which still had a lot of debt to pay off. A house better than hers must be much more expensive....</p>
-<p>,Do you live alone?'</p>
-<p>,Yes. I said I didn't need a house this big, but my family bought it for me.'</p>
-<p>Hearing that his family had bought it for him, Kasaoka Yuzuki glared at Yamashiro Ryuta without realizing it. Some people were selling their bodies to pay off their housing loans, while others had their parents buy it for them; it was truly unfair.</p>
-<p>Yamashiro Ryuta, unaware of Kasaoka Yuzuki's feelings, calmly led her into the bedroom, which was also quite luxurious.</p>
-<p>,I'm a newbie, so do we start right away?'</p>
-<p>,Let's start right away.'</p>
-<p>Yamashiro Ryuta asked, seeing her standing there blankly, looking around the room. To prevent Yamashiro Ryuta from becoming suspicious, Kasaoka Yuzuki sat him on the bed and took off his pants.</p>
-<p>When she took off his underwear, a huge, stiff, branch-like dick appeared before her eyes. She thought it was thick even when she only took off his pants, but when she saw the real thing after taking off his underwear, she couldn't help but be surprised.</p>
-<p>What is this, an Onaganatsu (大長なす: a type of eggplant about 30-40 centimeters long)? That's way too big.</p>
-<p>Of course, it was smaller than an Onaganatsu variety that was the size of an arm, but it was incredibly intimidating when she saw it in front of her. So Kasaoka Yuzuki just said, "Uh...," and sat still again.</p>
-<p>Perhaps tired of waiting, Yamashiro Ryuta pushed his dick forward and opened his mouth.</p>
-<p>,Are you just going to look?'</p>
-<p>,Ah, no. I'll give you a blowjob first.'</p>
-<p>Kasaoka Yuzuki hurriedly put Yamashiro Ryuta's dick in her mouth. Her first impression was that it was big. She opened her mouth wide and started fellatio under her mask, and Yamashiro Ryuta began to show signs of pleasure, flinching.</p>
-<p>,He's sensitive? He said it was his first time, so does he not have much experience?'</p>
-<p>Yamashiro Ryuta was showing a sensitive reaction because it had been a long time since he had done it, but Kasaoka Yuzuki mistakenly thought that Yamashiro Ryuta had no experience compared to his appearance.</p>
-<p>Kasaoka Yuzuki liked innocent men like this who had no experience. Her husband was also a shy man when she first met him in France. She liked him aesthetically, but she was even more drawn to him because of his innocent appearance, which eventually led to marriage.</p>
-<p>Yamashiro Ryuta was handsome, but he looked like a macho golden boy who would devour women, which was not Kasaoka Yuzuki's taste. However, this attitude gave Kasaoka Yuzuki a reversal charm.</p>
-<p>As expected, he didn't have much experience (although it was a misunderstanding), and his dick started to swell even more, as if he was about to cum. It's getting even bigger here...! Kasaoka Yuzuki couldn't help but think about what it would be like if this huge dick entered her.</p>
-<p>,Ugh...! I think I'm going to cum.'</p>
-<p>Kasaoka Yuzuki smiled as if to say it was okay to cum in her mouth at Yamashiro Ryuta's words.</p>
-<p>,Kuh! I'm cumming!'</p>
-<p>It wasn't the amount that a normal man ejaculates. It was a completely different level of enormous amount. Kasaoka Yuzuki unconsciously swallowed the semen. Even then, it overflowed and completely soiled her mask.</p>
-<p>,Are you okay?'</p>
-<p>Yamashiro Ryuta asked, as if he was also embarrassed by the amount of his semen. Kasaoka Yuzuki waved her hand, saying she was okay, and swallowed the semen that was still full in her mouth.</p>
-<p>,I'll go change my mask.'</p>
-<p>Kasaoka Yuzuki couldn't keep wearing the mask that was already covered in semen, so she took her handbag with her spare mask and went outside. She went to the washroom, checked her appearance, and changed her mask. There was only a white mask in her bag, as if she had used up all the black masks she had worn at first.</p>
-<p>,I can't help it.'</p>
-<p>Kasaoka Yuzuki returned to the bedroom where Yamashiro Ryuta was waiting. Yamashiro Ryuta's penis, which had ejaculated so much semen, was still full of energy.</p>
-<p>,As expected.... It's huge!'</p>
-<p>Seeing the eggplant-like dick with bulging veins, she couldn't help but feel her lower body getting wet. Kasaoka Yuzuki shook her head slightly.</p>
-<p>,Next, we have pai-zuri and between-the-legs massage. Which one would you like to do first?'</p>
-<p>Mask delivery didn't allow for the real deal, so they mainly recruited busty women who could do pai-zuri instead. Anyone could do between-the-legs massage as long as they had a pussy, but pai-zuri was a privilege that only big-breasted women could do, so many people were satisfied even without the real deal.</p>
-<p>,Then pai-zuri....'</p>
-<p>,Okay. I'll take off my clothes.'</p>
-<p>Taking off clothes in front of a man was also a service. Kasaoka Yuzuki slowly took off her clothes with a sexy feeling, as if she was doing a strip show. Yamashiro Ryuta enjoyed Kasaoka Yuzuki's undressing, visually raping her naked body.</p>
-<p>She couldn't help but feel proud of herself at the sight of Yamashiro Ryuta's eyes widening in admiration. Kasaoka Yuzuki was confident in her body. Her husband hadn't touched her at all lately, but customers praised her figure.</p>
-<p>There were quite a few people who were so enamored with Kasaoka Yuzuki's body that they offered to pay more for the real deal, which involved insertion. Kasaoka Yuzuki refused all of those offers because she had decided not to sell her body for 10,000 or 20,000 yen like the delivery health girls in Tokyo.</p>
-<p>,Please spread your legs.'</p>
-<p>Kasaoka Yuzuki straddled the bed, spread her legs, and went between Yamashiro Ryuta's legs, who was sitting there, and applied the lubricant she had to Yamashiro Ryuta's dick. Then she applied plenty of lubricant between her breasts.</p>
-<p>,I'll start.'</p>
-<p>Kasaoka Yuzuki wrapped Yamashiro Ryuta's dick with her breasts. Because his dick was so big, the glans and the upper shaft of his dick were exposed even though they were surrounded by Kasaoka Yuzuki's large breasts.</p>
-<p>,Kuh...!'</p>
-<p>Yamashiro Ryuta let out a sound mixed with admiration and groans at the soft pressure he felt from Kasaoka Yuzuki's breasts. Kasaoka Yuzuki smiled at Yamashiro Ryuta's reaction to her breasts.</p>
-<p>,Cute...!'</p>
-<p>He was definitely a very annoying guy, but his reaction to her every move was very cute.</p>
-<p>,How is it?'</p>
-<p>,It's good, it's good...!'</p>
-<p>Yamashiro Ryuta replied that he felt good to Kasaoka Yuzuki's question. Kasaoka Yuzuki shook her breasts even harder at those words.</p>
-<p>Kasaoka Yuzuki also felt good at Yamashiro Ryuta's reaction, and her nipples became stiff and her lower body became wet.</p>
-<p>,I'll switch to between-the-legs massage now.'</p>
-<p>,Okay.'</p>
-<p>Yamashiro Ryuta's dick didn't seem to be cumming because he had already cum once, so she decided to switch to between-the-legs massage.</p>
-<p>,For between-the-legs massage, there's the course where you stand and shake it yourself, and the course where I ride on top and shake it. Which course would you like?'</p>
-<p>Yamashiro Ryuta couldn't make a choice easily at Kasaoka Yuzuki's words and hesitated. Kasaoka Yuzuki thought that he couldn't choose because he was a newbie. Yamashiro Ryuta became even cuter.</p>
-<p>,Since it's your first time.... It'll be easier for you if I move.'</p>
-<p>,Ah, then please do that.'</p>
-<p>Kasaoka Yuzuki laid Yamashiro Ryuta on the bed and put a condom on him. Then she sat on top of his dick and overlapped her pussy. She put her belly button on his dick and started shaking her waist on top of it.</p>
-<p>,I, it feels good...!'</p>
-<p>Of course, she didn't insert it, but it felt good to rub her pussy against his dick, so it felt good even when she did it with other customers. But Yamashiro Ryuta's dick felt strangely good. She felt so good that she shook her waist wildly without realizing it.</p>
-<p>,Heueuha...! Heungheut...! Euhot! Ooooohot...!'</p>
-<p>She made such clumsy moaning sounds and rubbed her pussy against his dick. Kasaoka Yuzuki, who was shaking her waist, suddenly had another thought.</p>
-<p>,It feels so good now, how good would it feel if I put this dick in...?'</p>
-<p>Kasaoka Yuzuki shook her head again at the thought she couldn't normally have and continued to shake her waist. If she put this dick in, she would become unfaithful. She could never do that.</p>
-<p>Even though her husband was having an unhealthy relationship with a student, she wanted to be dignified. She wanted to pay off her debt quickly and bring her husband back to where he was. If she paid off her debt, he would return to being a kind and affectionate husband. But if she put this hideous dick in, she would never be able to return to their past relationship.</p>
-<p>,Ohot...! Ooooh! Does it feel good?'</p>
-<p>,Yeees...! It feels good. I feel like I'm going to cum soon....'</p>
-<p>Yamashiro Ryuta said to Kasaoka Yuzuki's question, making a sound as if he was holding back. Ah.... What a cute man? Kasaoka Yuzuki climaxed just from the expression on his face as he held back his ejaculation. In response, Yamashiro Ryuta's dick jerked and began to ejaculate into the condom.</p>
-<p>The condom swelled and filled with an enormous amount of semen. She suddenly had the thought of wanting to hold that hot liquid in her womb, but Kasaoka Yuzuki decided not to think about it anymore.</p>
-<p>,Thank you for your hard work.'</p>
-<p>Kasaoka Yuzuki took out the condom, tied it up, took out a wet wipe from her bag, and carefully wiped Yamashiro Ryuta's dick.</p>
-<p>,Oh my...!'</p>
-<p>Yamashiro Ryuta's dick, which had been deflated after ejaculation, quickly regained its majesty at Kasaoka Yuzuki's touch. It had become a hard and hot eggplant, just like the first time.</p>
+<p>,"So you're saying you're going to make Saionji Diana-ssi do part-time work?"</p>
+<p>-Yes! With this, we can find out which part is responsible for the compatibility with superpowers, you know?</p>
+<p>After returning home, I talked to Eve about Saionji Diana's surgery. Fortunately, the cyber implant transplant surgery went well, and even more fortunately, it was compatible with superpowers even after being lightened and changed to a custom model.</p>
+<p>Eve saw that and became quite interested in the combination of superpowers and cyber implants, so she offered Saionji Diana-ssi a part-time job, and Saionji Diana-ssi accepted. And she even asked if it would be helpful to me, not because of the money... It seemed that the cyber implant had made a big impression on Saionji Diana-ssi. She's probably thinking of repaying my kindness.</p>
+<p>,"Okay. You'll provide AS if the cyber implant breaks down, right?"</p>
+<p>-Ei~! What do you take me for! Of course, I'll fix it up like new again!</p>
+<p>Well, I guess she'll take care of it. As long as she doesn't break everything and pretend she doesn't know.</p>
+<p>,"Okay. Then I'll stop by soon."</p>
+<p>I remembered that Eve said she had something to say about business, so I said I would stop by soon.</p>
+<p>-Yes! I'll be waiting!</p>
+<p>The call with Eve ended, and it was dinner time. It took longer than I thought because of an unexpected incident.</p>
+<p>To understand that incident, I had to go back to 10 minutes after I signed the club establishment application for Konoe Akina-ssi.</p>
+<p>###</p>
+<p>Ten minutes after signing for Konoe Akina-ssi, I was packing my bags to go home when I got a call from Konoe Akina-ssi. We often chatted on Line, but this is the first time she's called. What's wrong?</p>
+<p>,"Konoe-ssi, what's wrong?"</p>
+<p>-Ryuta-nim, the situation has become a bit strange... The student council Chairman is saying that if we want to start a club, we have to bring a faculty advisor.</p>
+<p>Taira Kanna? It seems like she's putting a damper on creating a club... I thought the Taira Family was helping me? Why is she interfering...?</p>
+<p>I finished the conversation and headed to the student council room with my bag to leave work immediately.</p>
+<p>At Saint Francisco Girls' Academy, the student council has quite a bit of power. The Disciplinary Committee, an organization under the student council, cracks down on students' daily school life, patrols Miyashi, and even controls outside life.</p>
+<p>And it has almost all the power over clubs, so it has the right to establish and inspect clubs. Since almost all students in the school belong to a club, the right to clubs was a considerable level of power.</p>
+<p>Most of the students are rich, so they can't put pressure on club operating expenses, but they have the powerful authority to audit and shut down clubs that don't follow the rules.</p>
+<p>The student council building was attached to the building with the faculty office, and it was a considerable site even though it was only used by the student council and its subordinate Disciplinary Committee.</p>
+<p>As I was about to go through the entrance, two female students wearing black armbands that said 'Discipline (風紀)' stood on either side of the door and blocked my way.</p>
+<p>,"What brings you here?"</p>
+<p>,"I'm Yamashiro Ryuta, the homeroom teacher of the 3rd grade special class. The student council Chairman called me."</p>
+<p>Taira Kanna is quite something. She's using the Saint Francisco Girls' Academy's heiresses almost like private soldiers. As expected of the Taira Family's heiress?</p>
+<p>At my words, the two checked something on a tablet for a moment and then nodded.</p>
+<p>,"Yamashiro-sensei, we apologize for the inconvenience. The Chairman is waiting for you, so please go in."</p>
+<p>Come to think of it, isn't this subtly expressing her ambition to aim for the Chairman of the Taira Group? She's not just called the student council Chairman, but just Chairman. If that's true, she's quite bold.</p>
+<p>,"Okay, good work."</p>
+<p>I said to the Disciplinary Committee students guarding and entered the student council building. Let's see... The Disciplinary Committee is on the 2nd floor, and the student council is on the 3rd floor. The elevator happened to be on the 1st floor, so I took the elevator to the 3rd floor where the student council is located.</p>
+<p>A ding sounded as I arrived on the 3rd floor and got off the elevator, and the student council room was immediately visible. I felt an ominous aura, and I had a bad feeling about going in.</p>
+<p>But I have to go in. I knocked twice and turned the doorknob of the student council room.</p>
+<p>In the student council room were Taira Kanna, Konoe Akina, and Minamoto Risa. Konoe Akina was fidgeting as if she didn't know what to do, and Taira Kanna and Minamoto Risa were having an eye fight. Minamoto Risa didn't even notice I had entered and was shouting.</p>
+<p>,"Explain to me why it's not allowed!"</p>
+<p>,"As I said a few seconds ago, I can't tell you until the club advisor comes."</p>
+<p>Hmm, now that I see it, I can understand why they're raising their voices (strictly speaking, it seems like only Minamoto Risa is shouting...).</p>
+<p>Taira Kanna postponed the club's establishment, and Minamoto Risa asked why, but Taira Kanna said she would only tell the club advisor. Of course, Minamoto Risa is angry because she doesn't know the reason, and Taira Kanna is just repeating the club advisor like a parrot, so a vicious cycle of discord was completed.</p>
+<p>,"What's going on?"</p>
+<p>I pretended to be calm to change the situation.</p>
+<p>,"No, listen. This woman is preventing the club from being established and won't even tell me the reason...!"</p>
+<p>,"Minamoto-sunbae, please speak to the teacher with a little more respect."</p>
+<p>When Minamoto Risa complained to me, Taira Kanna said with a serious face this time. Was Taira Kanna's aunt thinking of me like this? While I was tilting my head slightly, the two were bickering again.</p>
+<p>,"Hmph! It's my business how I treat you!"</p>
+<p>,"You...!"</p>
+<p>,"Let's solve the club issue first. Student council Chairman, what's the problem?"</p>
+<p>As if they were about to fight again, I intervened between the two. Taira Kanna relaxed her serious face and quickly smiled at me.</p>
+<p>,"I want to talk to Yamashiro-sensei alone in the student council Chairman's office."</p>
+<p>,"Okay."</p>
+<p>,"Why can't we hear it!?"</p>
+<p>Minamoto Risa got angry again at Taira Kanna's request for a private meeting, but Taira Kanna ignored Minamoto Risa's words and entered the student council Chairman's office beyond the heavy door.</p>
+<p>,"I'll tell you when I get back."</p>
+<p>,"Okay, hurry back."</p>
+<p>,"Please be careful, Ryuta-nim!"</p>
+<p>Hmm, Konoe Akina-ssi is telling me to be careful like an NPC in front of a boss room. I nodded roughly and entered the student council Chairman's office.</p>
+<p>The student council Chairman's office had a quite luxurious feel, centered around a high-end desk made of mahogany wood, and photos of past student council Chairmans were hung on the wall, allowing you to feel the history.</p>
+<p>,"The Date Club will be a problem for the Disciplinary Committee."</p>
+<p>,"The kids are just going to cafes, movie theaters, and trips, and packaging it as a date experience. And our school isn't co-ed anyway, right?"</p>
+<p>Taira Kanna said her business as soon as I entered. So I gave my own excuse for the Date Experience-Meditation Club. It's definitely not a dating agency or a club for dating guys, but it seemed problematic to prevent its establishment just by the name.</p>
+<p>But if it's this kind of content, shouldn't she be able to tell the kids outside? It doesn't seem like there's anything particularly problematic.</p>
+<p>,"That's a good excuse. But the problem is the teacher."</p>
+<p>,"I'm the problem?"</p>
+<p>,"Yes, because of the previous homeroom teacher of the special class, the special class is under surveillance. If it's a date club and the advisor is a man, it will be quite a problem."</p>
+<p>Ah, that damn former homeroom teacher... Because of that bastard, nothing goes smoothly. As I was cursing the former homeroom teacher in prison in my mind, Taira Kanna asked again.</p>
+<p>,"I understand that teachers seduce 'targets,' but you wouldn't be like a man without principles and touch multiple women, would you?"</p>
+<p>For a moment, Taira Kanna's expression became very scary. She was smiling, but I could feel the murderous intent and obsession... But I'm sorry, it would be difficult to find a man in this world who has fewer principles than me. But I couldn't just tell the truth, so I shook my head firmly and said.</p>
+<p>,"I don't see minors as the opposite sex, so it's okay."</p>
+<p>,"Is that so?"</p>
+<p>Taira Kanna nodded with a dissatisfied expression at my answer.</p>
+<p>,"How is school life?"</p>
+<p>,"Well, it's a little annoying because it's earlier than my usual work hours, but there's nothing difficult."</p>
+<p>Is she going to reveal the reason why she had a private meeting with me soon? Taira Kanna asked a question that had nothing to do with the club.</p>
+<p>,"You sleep a lot, how's the food?"</p>
+<p>,"It seems delicious. I eat a lot, so I eat two bowls every day."</p>
+<p>,"You eat a lot... You're a cute glutton, hehe!"</p>
+<p>What is she doing? Isn't she supposed to be delivering a mission or a message from the Taira main family? Why is she writing my profile in a notebook? I was asked strange and privacy-invading questions by Taira Kanna for a while. Fortunately, it only took about two or three minutes, so it didn't take long.</p>
+<p>Thinking that she had talked enough to be satisfied, Taira Kanna put the notebook in her pocket and came out with a refreshing expression, saying, "Let's go out now." When I followed her out, Minamoto Risa opened her mouth as if surprised.</p>
+<p>,"What, the story is over already?"</p>
+<p>,"Yes, the story went well. I will allow the establishment of the Date Experience-Meditation Club with three conditions."</p>
+<p>Seeing her set three conditions, it was clear that she was Taira Danjo's daughter. I am also infiltrating Saint Francisco Girls' Academy as one of the three conditions I agreed to in exchange for getting a PMC.</p>
+<p>---</p>
+<p>Yandere feeling Taira Kanna.</p>

@@ -5,81 +5,95 @@ weight = 41
 chapter = 41
 +++
 
-<p>I said I wouldn't let her sleep tonight, but I had to attend a written test class from tomorrow morning, so I did it one more time, hugged Hanako, and fell asleep on Hanako's bed.</p>
-<p>When I woke up, Hanako was looking at me, so I gave her a kiss and had a refreshing round of sex, then we went to the written class together.</p>
-<p>When I arrived at the classroom, Kagawa Umi and Kazuhiro were arm in arm, totally lovey-dovey. Judging by their condition, they must have gone all the way last night.</p>
-<p>"Hehe, Hyung-nim~!"</p>
-<p>"Hey, I slept outside because of you."</p>
-<p>"Hahaha, sorry, sorry! But thanks to Hyung-nim, I'm dating Umi-chan."</p>
-<p>Hmm, is he trying to two-time the girl he showed me a picture of a few days ago? Well, I don't need to interfere in other people's love lives.</p>
-<p>"Congratulations. You said you wanted a girlfriend so badly, and now you've got such a great girlfriend?"</p>
-<p>"Oh, thank you, Taira-san."</p>
-<p>Well, I can say that much. We followed Kagawa Umi and Hanako and sat in the front row. Like Edo University students, they sat in the front and focused intently on the instructor's words.</p>
-<p>Since we said we didn't know anything yesterday, I guess they're going to help us each one-on-one. After diligently listening to the written class and taking additional lessons from Hanako and Umi in between, I was able to learn quickly as if the difficulty of the first day was a lie.</p>
-<p>Lunch was different from yesterday, but it was another Japanese-style set meal. There was nowhere else to go to eat, so I ate roughly and separated from the women for a while to brush my teeth.</p>
-<p>"How many times did you do it yesterday?"</p>
-<p>Since they were already kissing and making a fuss when Hanako and I went out, I took it for granted that they did it and asked how many times they did it. Kazuhiro smiled and made a V with his hand. Twice? Same as me.</p>
-<p>"Did Hyung-nim do it with Gokado-san too?"</p>
-<p>"Hehe, maybe?"</p>
-<p>"Ah, really! I told you. Did you do it? You did, you did. Or not? Ah, I don't know."</p>
-<p>I didn't tell him to make Kazuhiro curious, and I finished brushing my teeth and went to the skills class. Kazuhiro kept bothering me, saying, "Did you do it? You did. Or not?" so I slapped the back of his head once with my palm.</p>
-<p>"Ow~! Shut up."</p>
-<p>"That hurts, Hyung-nim! But where did you sleep yesterday?"</p>
-<p>"I slept in Hanako-san's room."</p>
-<p>When I said that with a wink, Kazuhiro, who was rubbing the back of his head because it hurt, smiled brightly and said, "You did it~!" and asked me for a high five, so I gave him a high five.</p>
-<p>Clap!</p>
-<p>"Yeah~! Even if I don't get my driver's license this time, I'm getting something out of it. If I do it twice a day for five days, that's ten times, I'll make back all the money I spend on prostitutes, right?"</p>
-<p>"Don't think about weird things and start thinking about passing your driver's license."</p>
-<p>I said as I got into the car where Matoi Honami was waiting.</p>
+<p>-Ah, so Kazu-chan scored, you know? He was totally on fire that day, it was amazing.</p>
+<p>,I also watched Smith-ssi's goal highlights on YouTube. Congrats~!,</p>
+<p>Gokado Hanako was on a date with Honjo Tokiatsu, and while Honjo Tokiatsu was away for a moment, she was talking on the phone with her friend Kagawa Umi.</p>
+<p>-Oh, right. Taira Ryuta-gun got a girlfriend, you know?</p>
+<p>,Oh, really?,</p>
+<p>Gokado Hanako acted like she didn't care when Kagawa Umi told her this, saying "Oh, really?" but when Taira Ryuta's name came up, her heart ached a little. And just like Pavlov's dog salivating at the sound of a bell, hearing Taira Ryuta's name made her pussy tingle.</p>
+<p>-I think she's a model. She seems to be American, and she's super pretty. Did Ryuta-gun hook up with such a beauty because he's handsome too? Well, Kazu-chan is much more my type, hohoho!</p>
+<p>,Hanako-chan, I'm back.,</p>
+<p>,Ah, Toki-chan's here. Talk to you later~!,</p>
+<p>-Okay! Have a good date~!</p>
+<p>Honjo Tokiatsu, who had briefly left to submit something to the school before the date started, returned. The Gokado Hanako and Honjo Tokiatsu couple had been in a cold war after Gokado Hanako's Driver's license camp, because Honjo Tokiatsu had dinner and drinks with their childhood friend, Yamana Mikuni, without telling her.</p>
+<p>Gokado Hanako criticized Honjo Tokiatsu for having dinner and drinks without telling her, while he restricted her so much, and Honjo Tokiatsu admitted his double standards and said he wouldn't restrict her anymore.</p>
+<p>After that, the two got along again and started dating every few days again, and today was a date day. Because they matched their Thursday schedules similarly, the Gokado Hanako and Honjo Tokiatsu couple always dated on Thursdays and weekends. Of course, there were many times when they skipped it if they were busy, but they mainly met on Thursdays and weekends.</p>
+<p>,Did you get your business settled?,</p>
+<p>,Yeah, the teaching assistant made a wrong announcement, so they said they'd accept it.,</p>
+<p>,That's good? Let's have a simple dinner in front of the school.,</p>
+<p>Gokado Hanako's pussy was tingling because of the story about Taira Ryuta's girlfriend that Kagawa Umi had brought up earlier. Gokado Hanako led Honjo Tokiatsu into a gyudon restaurant, which was truly the epitome of Japanese fast food.</p>
+<p>,Is it okay to eat here?,</p>
+<p>,Yeah, I'm craving a donburi for the first time in a while.,</p>
+<p>Gokado Hanako, who was horny, ordered the gyudon, which would come out the fastest, and Honjo Takia ordered the butadon.</p>
+<p>,Thank you for the meal.,</p>
+<p>,You've already finished? Wait for me a little.,</p>
+<p>Gokado Hanako, who had finished a bowl of gyudon in 5 minutes after the food came out, stared at Honjo Tokiatsu with anxious eyes. Honjo Tokiatsu ate slowly, not knowing or caring about her feelings. And he smiles at Gokado Hanako, who is looking at him.</p>
+<p>Honjo Tokiatsu finished eating more than 10 minutes later, not knowing Gokado Hanako's busy mind. Gokado Hanako grabbed Honjo Tokiatsu's wrist and headed to a nearby love hotel. At first, Honjo Tokiatsu was like, "What, what?" but when he realized that the destination was a love hotel, he quickly calmed down, as if he didn't dislike it.</p>
+<p>,Hanako?,</p>
+<p>,Get undressed quickly, Toki-chan.,</p>
+<p>Honjo Tokiatsu was unable to adapt to Gokado Hanako, who had become sexier after attending the camp Driver's license academy recently. Before, she was a girlfriend who had gentle sex that seemed to warmly embrace him, but after attending the camp Driver's license academy, she became more animalistic.... She changed to pursue more pleasure. Of course, being this proactive wasn't bad, but the downside was that it was overwhelming to keep up with.</p>
+<p>,Haaang~! Hiaaang!!!,</p>
+<p>Gokado Hanako, who laid Honjo Tokiatsu down on the bed, put on a condom, and then rode him like a horse, shaking her hips excitedly in a cowgirl position. Honjo Tokiatsu was like, "Ugh... ugh..." and couldn't stand it for even 3 minutes before he ejaculated.</p>
+<p>,Ugh... I'm coming!,</p>
+<p>,Heua...? Already?,</p>
+<p>,S, sorry....,</p>
+<p>,No, I liked it too, Toki-chan.,</p>
+<p>Gokado Hanako laid on top of Honjo Tokiatsu as is, gently stroking Honjo Tokiatsu's chest. After that, Honjo Tokiatsu's dick didn't get hard again, and Gokado Hanako returned home with a depressed expression. It was only seven o'clock then. Gokado Hanako bit her lip and picked up her smartphone.</p>
 <p>###</p>
-<p>'What should I do? I messed up. I spent the night with another man. I have Toki-chan, and I still love Toki-chan, but I gave my body to Ryuta-gun.'</p>
-<p>Gokado Hanako blamed herself. It wasn't even like Taira Ryuta forced her. Even though it was just a story she told in a drunken fit, she was the one who asked Taira Ryuta for sex first. She even gave her body to him in the morning when she was completely sober.</p>
-<p>'But it felt so good. Completely different from Toki-chan....'</p>
-<p>"Hanako-chan! What are you thinking so hard about?"</p>
-<p>"No, Toki-chan had dinner and drinks with another woman yesterday. I'm worried about that...."</p>
-<p>"Really? Toki-chan is too much. You have such a pretty Hanako-chan."</p>
-<p>Kagawa Umi spoke to her, and Gokado Hanako, who couldn't tell her honestly, told Kagawa Umi what Honjo Tokiatsu had done yesterday.</p>
-<p>"Did you do it with Smith-san yesterday?"</p>
-<p>"Hehe, yeah! He's definitely different because he's mixed race. I almost fainted. But what did you do with Taira-san yesterday?"</p>
-<p>"I slept in Umi-chan's room, and Ryuta-gun slept in my room."</p>
-<p>"Hehe! Thank you. It would have been so awkward if Taira-san had come in while we were doing it."</p>
-<p>Seeing Kagawa Umi, who didn't suspect anything about her and Taira Ryuta, she felt a little guilty, but Toki was with another woman yesterday too.... Gokado Hanako was rationalizing herself.</p>
-<p>"Ah, there's the instructor. See you later at dinner, Hanako-chan!"</p>
-<p>Watching Kagawa Umi wave her hand and get into the taxi instructor's car, she found her instructor and got into the car. She was a little nervous during the lesson, but she was much better than yesterday, probably because she had been doing image training until she drank yesterday.</p>
-<p>"Like this...! That's right! You're much better than yesterday, Gokado-san. You turned much faster today than yesterday, so let's take a fifteen-minute break. Come to the starting point in fifteen minutes."</p>
-<p>The instructor dropped her off like yesterday and drove to the starting point himself. Gokado Hanako swallowed hard and headed to the secluded spot behind the building where Taira Ryuta and the female instructor had sex yesterday. And like yesterday, she began to peep at Taira Ryuta and the female instructor's car sex.</p>
-<p>"....Hngh....!"</p>
-<p>Unlike yesterday, she could hear the woman's moaning sounds, probably because the window was open. Today, they were facing each other and the woman was on top, and Gokado Hanako felt two emotions as she watched the female instructor's movements, which were moving up and down very lewdly. Jealousy and excitement coexisted.</p>
-<p>"Ah, I like this! It's so deep~!"</p>
-<p>"Do you like it that much?"</p>
-<p>"Yeah, much more than my husband! Haaah!! I like it so much, put it in more!"</p>
-<p>Is someone with a husband doing this? Gokado Hanako was shocked by the instructor's words, but she felt a sense of relief. She felt a strange sense of relief and superiority that the woman had betrayed her husband, but she was better than that. And she strongly wanted to take the dick that was piercing the female instructor's vulgar pussy and put it in her own precious hole.</p>
-<p>"Ugh...! I think I'm going to cum."</p>
-<p>"Inside, cum inside~!! I love the warm feeling so much."</p>
-<p>Taira Ryuta's semen was definitely warm, to the point where it felt slightly hot. When she had sex with Honjo Tokiatsu, she only twitched even when he said he was going to cum, and she didn't really feel the semen, but when something warm filled her inside, she felt so good that she automatically reached orgasm.</p>
-<p>'Ah, was yesterday a good day...?'</p>
-<p>Gokado Hanako folded her fingers and calculated her period date. It was a relief. It was a good day during the boot camp.</p>
-<p>'Why did I calculate the entire boot camp? I didn't plan on doing it anymore...?'</p>
-<p>Gokado Hanako hid her feelings and hurried back to the skills class, urging her feet, which were not easily detached. The two of them must have started again, because Gokado Hanako could hear the female instructor's moans in her ear.</p>
-<p>"Uh, uh! There, I like it there!"</p>
-<p>###</p>
-<p>Honjo Tokiatsu opened his eyes. He definitely remembered drinking with Yamana Mikuni at the bar yesterday.... He had memories of naked women in between. Could it be? Honjo Tokiatsu pulled back the blanket. Yamana Mikuni was sleeping naked with him.</p>
-<p>"Mikuni-chan...!"</p>
-<p>"Ugh.... Toki-chan."</p>
-<p>"Did we.... do it yesterday?"</p>
-<p>Yamana Mikuni gave a captivating smile to Honjo Tokiatsu's question. He had an erection because it was morning, and Yamana Mikuni's smile with her naked body made Honjo Tokiatsu's penis even harder. Yamana Mikuni's smile deepened as she saw that.</p>
-<p>###</p>
-<p>"Hyung-nim. There's something I want to ask you."</p>
-<p>Since it was dinner time after the skills class, there was no touch at the academy after that, so the four of them decided to eat out instead of eating at the academy. They had already made a reservation to prevent wasting time wondering where to eat.</p>
-<p>I had used too much protein yesterday and today, so I decided to eat meat to replenish my protein. So I went to a yakiniku restaurant. Everyone said okay when I said I would pay and followed me.</p>
-<p>"Five servings of ribs, two servings of beef tongue, two servings of loin, four bowls of rice, one sundubu jjigae, please. Ah! And one green grape Chamisul, please."</p>
-<p>"Yes~!"</p>
-<p>The yakiniku restaurant had a lot of Korean side dishes, so I ordered sundubu jjigae and saw green grape Chamisul on the menu, so I ordered one.</p>
-<p>"Order more if you want to eat something else."</p>
-<p>"I'm going to eat a lot of meat for the first time in a while? It feels like it's been a long time since I came to a yakiniku restaurant with Hyung-nim."</p>
-<p>When we were in school, Kazuhiro and I didn't have much money, so we often went to all-you-can-eat restaurants. Kazuhiro had a nostalgic look in his eyes as if he was filled with memories, then he said, "Ah~!" and opened his mouth with a slightly apologetic expression towards me.</p>
-<p>"Hyung-nim, I'm sorry, but can you switch rooms with Umi-chan?"</p>
-<p>As expected, a womanizer. He means he wants to have sex every day during the boot camp. I glanced at Kagawa Umi, who was blushing slightly, and nodded.</p>
-<p>"Okay. This Hyung-nim has to support your love life."</p>
-<p>"Kya~! Hyung-nim is the best!"</p>
-<p>It's more comfortable for me to be right next to Hanako's room anyway. Judging by the serious expression on her face as she talked on the phone outside the restaurant, it seemed like she would easily give in again today. I have to completely make her my onahole for the remaining four days. I have to widen Hanako's tight pussy to my size so that she won't feel anything even if her boyfriend puts his dick in it.</p>
+<p>Gokado Hanako: What are you doing now?</p>
+<p>Suddenly, a LINE message came from Gokado Hanako. What is it?</p>
+<p>Taira Ryuta: I just got off work and I'm eating and resting.</p>
+<p>Gokado Hanako: Can I... see your face?</p>
+<p>I also got a car, so should I go for a drive? It takes about 45 minutes from Yotsukaido City to downtown Tokyo, so it wouldn't be bad to go unless it's too far west of Tokyo.</p>
+<p>Taira Ryuta: Where are you? I bought a car this time, so I can go if it's not too far.</p>
+<p>Gokado Hanako: I'm here in Sumida Ward.</p>
+<p>Sumida Ward was right next to Edogawa Ward to the west. She was a friend from the next neighborhood? At that distance, I could arrive in about 40 minutes from here.</p>
+<p>Taira Ryuta: It'll take about 40 minutes.</p>
+<p>Gokado Hanako: Okay, I'll wait.</p>
+<p>I sent a LINE message to Taira Yukiko saying that I was going for a drive and got into my beloved car, Chryslis. I put the address that Gokado Hanako sent me into the navigation system and drove. I was able to arrive in 35 minutes, which was faster than the 40 minutes I had expected. But Gokado Hanako was already out. What's going on? I rolled down the window and waved at Gokado Hanako.</p>
+<p>,Here!,</p>
+<p>,Yeah, it's been a while. You bought a very manly car?,</p>
+<p>If I said that my mom bought it for me here, I would look pathetic for no reason, so I just said that I liked this kind of car and put Gokado Hanako in the passenger seat.</p>
+<p>,But... what's going on?,</p>
+<p>,It's something that happened because of you, so you have to take responsibility.,</p>
+<p>What is it? Could she be pregnant?</p>
+<p>,Can you explain it to me exactly?,</p>
+<p>,I'm not satisfied with my relationship with Toki-chan because of you. I love Toki-chan... but! Sex doesn't fulfill me.,</p>
+<p>Aha, so that's what it was. So does that mean she wants to have a relationship with just our bodies?</p>
+<p>So... you're saying you want to be sex friends? Because you love Toki-chan in your heart, you just want to satisfy your desires with your body?</p>
+<p>,Y, yeah.... That's exactly it.,</p>
+<p>Well, it wouldn't be bad for me to have more sources to gain experience. I nodded without hesitation.</p>
+<p>,Okay, then... let's do it there.,</p>
+<p>,E, eh? Really?,</p>
+<p>I drove and entered a nearby love hotel. I wasn't going to sleep there, so I rented a room for 2 hours and entered the room.</p>
+<p>Since the purpose of the visit was already clear, we didn't hesitate to take off our clothes as soon as we entered the room.</p>
+<p>,Ryu-chan....,</p>
+<p>,First, shall we see how much our skills have improved?,</p>
+<p>I started 69 with Gokado Hanako, and she had been fidgeting since inside the car, and she was flowing so much vaginal fluid that her panties were completely wet.</p>
+<p>I was curious to see how much each other's tongue skills had improved, so I did 69, but my skills, which I had been diligently having sex with, had improved dramatically. Gokado Hanako hadn't changed much. Rather, I felt like she was struggling with my dick because she was dealing with her boyfriend.</p>
+<p>,This should be enough foreplay. How do you want me to do it?,</p>
+<p>,Put it in like this.,</p>
+<p>Gokado Hanako was lying down, spreading her legs, and raising her waist. This position was the flexed position, commonly called the mating press.</p>
+<p>,Inside... pound inside.,</p>
+<p>,Okay.,</p>
+<p>I put Gokado Hanako's legs on my shoulders and started the mating press. It was a technique that directly hit the uterus, so people with sensitive cervixes could feel pain, but Gokado Hanako cried and liked it.</p>
+<p>,Haaang! This is it! Yes, this is it!,</p>
+<p>,Your boyfriend couldn't satisfy you?,</p>
+<p>,Heuaang! He couldn't get this far! My uterus was so itchy...! Haaht!,</p>
+<p>It seemed that the uterus was definitely an erogenous zone. Was it because I developed it during the camp academy? It was quite a rough mating press, but she screamed that she liked it so much that the room was shaking.</p>
+<p>,Haaang! Hiyang! Hihyang!,</p>
+<p>,You still love your boyfriend even in this state?,</p>
+<p>,My heart belongs to Toki! But now my body belongs to Ryu-chan! Haeuaaang!,</p>
+<p>She's saying admirable things. I didn't really need her heart either. It was enough to have a woman's body to use when my sex schedule was empty in between.</p>
+<p>,Even if you marry Toki-chan, I'll take care of your body.,</p>
+<p>,Heuaaaang! I like it, I like it!,</p>
+<p>She seemed to have lost her mind to lust and didn't know what was right or wrong. She kept begging for my dick, probably because she had been sexually frustrated for a long time.</p>
+<p>,Is today a safe day?,</p>
+<p>,Haaang! It's safe, please put the lava semen coming out of Ryuta-chan's thick dick into my pussy quickly!,</p>
+<p>Lava semen.... I almost spat it out. Maybe it's because she's a student at Edo University, but each of her word choices was unique. I sped up to ejaculate.</p>
+<p>,Ugh, I'm coming!,</p>
+<p>,Hiaaang!! Cum, cum Ryuta-chan's Semen!,</p>
+<p>Byureut! Byureut! Byureut!</p>
+<p>In three bursts, semen filled Gokado Hanako's pussy. Gokado Hanako smiled contentedly, panting as if she had sprinted at full speed. And then she opened her mouth again.</p>
+<p>,Ryu-chan, can we do it one more time?,</p>
+<p>Of course, I could easily do it two or three times, but it felt like I had awakened some kind of monster. The name of that sex monster was Gokado Hanako.</p>

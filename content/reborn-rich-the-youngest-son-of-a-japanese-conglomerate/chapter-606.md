@@ -5,86 +5,76 @@ weight = 606
 chapter = 606
 +++
 
-<p>"Where is the homeroom teacher of Class A?"</p>
-<p>The homeroom teacher of Class A was Matsunaga Yuzuki, formerly Kasaoka Yuzuki, with whom I had mixed bodies several times. Since Matsunaga Yuzuki was the head of the third-year students, she was in charge of Class A, the first class of the third grade, so I was worried that she might be hurt or dead, so I asked Taira Kanna.</p>
-<p>"She came to the parking lot with us. Is she okay?"</p>
-<p>That's a relief. Matsunaga Yuzuki must have had some sense, because she brought an emergency kit from the bus when she saw me asking Taira Kanna about her well-being. Seeing her bring the emergency kit, it seemed like there were injured students.</p>
-<p>"Yamashiro-sensei...!"</p>
-<p>Matsunaga Yuzuki ran towards me as if she was going to hug me, but she soon realized that she was in front of the students, and it was quite funny to see her pretending not to in front of me.</p>
-<p>"Are there any students who are injured or dead?"</p>
-<p>"There are injured students, but no dead students."</p>
-<p>That's a relief. Then, is Class B the only class whose whereabouts are still unknown?</p>
-<p>"Class C is also on our bus, and Kijimoto Jurie-sensei is also on board, so Kijimoto-sensei will take care of the injured students."</p>
-<p>"If we have the school nurse, there's nothing to worry about. Is the Disciplinary Committee Chairman safe?"</p>
-<p>"Yeah, she's a little tired, but she's not hurt. She's coming over there."</p>
-<p>Taira Kanna seemed very concerned about Nakanoin Rina, the Disciplinary Committee Chairman, because she was in her line. She'll probably be with Taira Kanna even after graduation, and she's quite a good talent. She has excellent leadership as the Disciplinary Committee Chairman, and she has some martial arts skills.</p>
-<p>"Are you hurt anywhere, Student Council Chairman?"</p>
-<p>"I'm not. First, have the Disciplinary Committee members of Class C put on the cyber suits that are loaded on the bus."</p>
-<p>"It's a shame we didn't bring weapons."</p>
-<p>"It can't be helped. It's not easy to bring weapons from another country across the border."</p>
-<p>Listening to them, it seemed that they brought the cyber suits but not the weapons. Then I have to step in. First, I need to turn off Uenozono Karen's GoPro.</p>
-<p>I don't think she'll upload this zombie situation in full version, but I couldn't show the students armed with guns to the person editing it. I could argue that the cyber suit is for defense, but there was no way to explain the gun. Why did a Japanese person bring a gun to South China? There was no good excuse.</p>
-<p>I opened the door of the safari bus that had arrived next to us and went inside.</p>
-<p>"Let's get off first. Class A is safe too."</p>
-<p>At my words, Class C, who was riding in the back, got off first. As the students in my class got off one after another, I grabbed the wrist of Uenozono Karen, who was holding the GoPro.</p>
-<p>"Karen. Can you turn off the GoPro for a moment?"</p>
-<p>"Yes...."</p>
-<p>Uenozono Karen turned off the GoPro obediently at my words, as if she didn't feel like a reporter who had to capture everything in the camera.</p>
-<p>"My class students, the Student Council Chairman, and the Disciplinary Committee Chairman, please come this way for a moment."</p>
-<p>I took the special class students, Taira Kanna, and Nakanoin Rina to the place where the special class bus was parked. There was no bus driver. It seemed that he had already been infected with the cyber zombie virus and left the bus.</p>
-<p>I opened the trunk door under the bus. It was full of black bags that I had moved from the hotel room right after lunch.</p>
-<p>"What is this?"</p>
-<p>At Minamoto Risa's question, I took out two bags. One bag contained three cyber suits each, and the other bag contained four unique-looking pistols each.</p>
-<p>"It's a weapon. Did you prepare it in advance, Onii-sama?"</p>
-<p>"Yeah, actually...."</p>
-<p>"I told you that my fortune-telling was bad."</p>
-<p>Naruse Shiyo answers Taira Kanna's question. The Naruse family, a family of exorcists, was famous for fortune-telling as well as shikigami, so Taira Kanna and Minamoto Risa nodded with a slightly bitter expression. In fact, Naruse Shiyo knew a little about shikigami, but she hadn't learned fortune-telling yet, but I made a deal with her to bring weapons.</p>
-<p>"Actually, it's superstition in a way, but I didn't say it because I thought you wouldn't enjoy the graduation trip if I said something that hadn't happened yet. I asked Amsang to prepare it. I thought it would be good if I didn't have to use it, but it finally happened."</p>
-<p>This was an excuse to Minamoto Risa and other special class students who I hadn't warned in advance. I told Taira Kanna in advance, but I explained it because special class students who didn't work under Minamoto Risa and me might feel sad or suspicious that I didn't warn them in advance.</p>
-<p>"Really? But please tell me if something like this is going to happen in the future. I'm the leader of the special class, so I feel like I have some responsibility for this class."</p>
-<p>Minamoto Risa had a considerable sense of responsibility, unlike her black gyaru appearance. She's the leader, but she doesn't have to take responsibility for this kind of situation.</p>
-<p>"Okay, I'll tell you in the future. And our class students, first take this bag and change into cyber suits in the bus. It will prevent you from getting hurt."</p>
-<p>"I can't choose the color, can I, Ryuta-cchi?"</p>
-<p>"Probably not?"</p>
-<p>"That's too bad."</p>
-<p>The cyber suit that the students received was a cyber suit that TG Tech was about to mass-produce. It wasn't intentional, but I could do a field test with this.</p>
-<p>"There are guns and other weapons, so take them appropriately."</p>
-<p>After the special class went up, I said to Taira Kanna and Nakanoin Rina.</p>
-<p>"The pistol is unique. TG Tech? It's a company I've never heard of...?"</p>
-<p>Nakanoin Rina said with an interesting expression, holding the pistol. This pistol was also an energy-based pistol that TG Tech was about to release, which was made by adding and improving various technologies to the energy-based rifle that I had obtained in the United States before.</p>
-<p>With just an energy pack, you can fire up to 150 shots, and since it's not a gunpowder-based firearm, it doesn't make noise, and its power is not inferior to ordinary firearms, so it has many advantages. Of course, there are some disadvantages, but they won't be very noticeable now.</p>
-<p>"It's a gun that will be released soon by a new company called TG Tech...."</p>
-<p>I briefly explained the gun. The two listened to my explanation with interest and stuck one gun each in their waist. They might become future customers, so I got excited and explained it in detail without realizing it.</p>
-<p>"Why do you know so much?"</p>
-<p>"I invested a little in that company."</p>
-<p>"Ah...! I understand, Onii-sama. I'll try it out and tell you my review."</p>
-<p>After finishing talking with Taira Kanna, I took out a long reinforced plastic box from the bus trunk. Inside, there were swords with a subtle dark blue light, and a couple of baseball bats. I took out one baseball bat and handed it to Nakanoin Rina.</p>
-<p>"It won't be as familiar as the jitte you used to use, but it'll be much better than the iron pipe you've been using so far."</p>
-<p>It wasn't a baseball bat made for playing baseball, but a blunt weapon made for killing, so it was heavy and coated with mithril, so it would be enough to dent the heads of cyber zombies.</p>
-<p>"I like it. Does TG Tech do custom orders? I want to order a new jitte."</p>
-<p>"Maybe? I'll ask when we get back to Japan safely."</p>
-<p>Probably by then, I'll be able to get complete knowledge of mithril alloys from the research lab I got from dismantling Yongcheol Faction during this graduation trip to Seoul, so I'll be able to make much stronger weapons or cyber armor than now.</p>
-<p>"Onii-sama, please give me a sword too."</p>
-<p>Come to think of it, Taira Kanna was definitely an excellent swordsman when I saw her fencing at the sports day. I handed her the box containing the swords, meaning she could take whatever weapon suited her.</p>
-<p>Taira Kanna took a long sword that wasn't as thin as a fencing sword, but still narrow. The two each took two bags containing pistols and were about to leave, but stopped for a moment. What are they trying to say?</p>
-<p>"Onii-sama, I don't know if I can ask you this favor, but.... Can you save the Class B friends who are left in the zoo?"</p>
-<p>"Please, Sensei."</p>
-<p>"Hmm.... Are they alive?"</p>
-<p>Taira Kanna and Nakanoin Rina seemed to be asking this because they knew my skills roughly. Of course, I'd like to save them if I could, but no matter how special St. Francisco Girls' Academy students are, they're just high school girls. I didn't think they could survive in this chaos.</p>
-<p>"Muko-yang is there, so they'll be alive."</p>
-<p>"Neika is there, so it'll be okay...."</p>
-<p>Muko Neika.... I got help from her when I was searching for the drug organization in St. Francisco Girls' Academy as the vice chairman of the Disciplinary Committee. Most of it was searching, so I didn't see her fighting, but both of them said that Muko Neika would be okay and believed in her, so it seemed that she was quite skilled.</p>
-<p>"Okay. I'll take the safari bus and go one more time."</p>
-<p>"Class B wasn't in the safari hall where the special class was, and Class C was the only one in the small animal hall, so Class B is probably in the aquarium hall."</p>
-<p>I nodded, and Nakanoin Rina told me where Class B might be. That's right. They weren't in the small animal hall, and we were the only ones in the safari hall, so the only place left was the aquarium hall.</p>
-<p>"I'll support you with a few people from Class A and Class C."</p>
-<p>"No, I'll take a few students from our class and come back quickly. Instead, please take care of the remaining students in our class."</p>
-<p>I refused the support because I could use my strength more fully if there were no other classes.</p>
-<p>"Okay."</p>
-<p>"I'll leave in 2 minutes."</p>
-<p>I finished speaking and got on the bus with the gun bag and the sword bag. I have to take care of not only the other class students but also our class students.</p>
-<p>"Take your weapons. Don't shoot your colleagues, shoot the zombies?"</p>
-<p>At the words to take weapons, everyone comes out and takes their weapons. Of course, Shimokawabe Airen, Alik, Otagi Yuka, and others who had learned martial arts took cold weapons, and the rest took firearms. Saionji Diana was the only one who took both a sword and a gun.</p>
-<p>-------------------------</p>
-<p>Muko Neika</p>
-<p>I'm uploading the illustration in case there are people who forgot because she appeared once, haha.</p>
+<p>Of course, there was a reason why the women of the group were feeding me so much stamina-boosting food. After the rather enjoyable get-together ended and we were about to part ways, I was grabbed by the women and dragged somewhere.</p>
+<p>However, Urabe Konoka, who I hadn't done it with yet, left me with the words that she wanted her first time to be one-on-one. But is this her trying to seduce me? Doesn't it mean she wants to do it with me alone?</p>
+<p>The place I was dragged to was the floor right above the one we rented for the get-together, a fairly large room with a double king-size bed, where several chairs were placed around the bed as if for someone to watch(?). But when did they rent this room too?</p>
+<p>,I rented this place together when I rented the get-together venue today."</p>
+<p>Sawayanagi Azuma said with a somewhat scary smile.</p>
+<p>,No one will come here until tomorrow morning...."</p>
+<p>Like zombies, the women were surrounding me and slowly approaching. I definitely escaped Shinamgyeong City, but when did I get surrounded by sexy zombies who were already undressed?</p>
+<p>The women, already horny and zombified(?), were all reaching out to me and taking off my clothes. As I mindlessly entrusted my body to the women's hands, I soon found myself naked.</p>
+<p>,Everyone yielded the first time to me because I'm the president."</p>
+<p>Sawayanagi Azuma said to me as she climbed onto the bed first. Sawayanagi Azuma, also with the help of the Seryu Military Company employees, was already not wearing any clothes. It seemed like they quickly took off her clothes to tell her to hurry up and pass on the next turn, but Sawayanagi Azuma didn't seem to mind.</p>
+<p>Rather than that, it seemed like she was in a hurry to cool down the heat of her horny body right now. Even though I hadn't done anything, she was dripping sticky liquid from her pussy.</p>
+<p>,I'll generously apply my natural lotion to Investor-nim's big, lewd cock♥"</p>
+<p>Sawayanagi Azuma, who climbed on top of me and seductively shook her waist on top of my cock, was coating my cock with her dripping vaginal fluid.</p>
+<p>My cock, coated in Sawayanagi Azuma's vaginal fluid, shone as if it had been oiled. Sawayanagi Azuma's pussy, already fully intending to have sex, gently sat on top of my cock, which had become sticky and slippery enough to insert into a woman who wasn't ready for sex.</p>
+<p>,Haaah...!"</p>
+<p>Sawayanagi Azuma made a sweet moan even though she only placed it on top without inserting it. She was moving her waist back and forth, stimulating her vaginal opening and Clitoris with my glans.</p>
+<p>,Hmph, haah! As expected! Eheung, it's different from fingers! Haah!"</p>
+<p>Sawayanagi Azuma said that just rubbing her glans at the entrance felt much better than her usual masturbation. It seemed like she usually masturbated by stimulating the outside instead of inserting it.</p>
+<p>,Hey! Azuma-chan, there's a line behind you, so hurry up."</p>
+<p>,Hehyaaaa!"</p>
+<p>Rihanna Holden grabbed Sawayanagi Azuma's shoulders, who was playing at the entrance, and pressed down hard. Naturally, my cock rapidly widened Sawayanagi Azuma's vagina, which had become narrow from not doing it for a while, and went all the way to the front of her cervix.</p>
+<p>Sawayanagi Azuma was trembling and showing the whites of her eyes from the sudden intense pleasure, so I had no choice but to proceed with the sex afterward. I grabbed Sawayanagi Azuma, who was impaled on my cock, and stood up on the bed.</p>
+<p>And as if showing it to the audience(?), I started piston movements on Sawayanagi Azuma in an ekiben position, lifting her up.</p>
+<p>,Heuht, eunghut! Haah...! Eueuheung!"</p>
+<p>,The junction is visible, so it's so lewd...!"</p>
+<p>,Was that big thing inside my body until now...?"</p>
+<p>,Sensei-nim...♥"</p>
+<p>Everyone had different reactions to my standing fuck performance(?). Some women were looking intently like scholars, while others were newly surprised by my size, and some women were excited by my and Sawayanagi Azuma's sex and were touching their own vulvas.</p>
+<p>,Haaheut...! What is this, heueuheung♡! Haah! The position, haah! Is embarrassing, eunghheut, Investor-nim...♥"</p>
+<p>Sawayanagi Azuma, who had fainted for a moment and regained consciousness, was surprised to find herself the main character of a sex performance and clung to me.</p>
+<p>,Azuma will be watching others do it later anyway."</p>
+<p>,Heueung...! That's, haah! But...!"</p>
+<p>,It's necessary for the president to provide such service to the employees."</p>
+<p>I still bounced and shook my waist as if showing it to those around me, and Sawayanagi Azuma moaned and buried her face in my chest. Then she started sucking on my neck, collarbone, and upper chest.</p>
+<p>Tsu-eup, tsu-eup! Jjoo-ok...!</p>
+<p>Sawayanagi Azuma was sucking so hard that an ordinary person would have a purple bruise, but for me, who has regeneration ability, it was a wound that would disappear in less than a second. But the feeling when she sucked was quite good.</p>
+<p>,Investor-nim...♥ Lay me down on the bed, haah....! It's embarrassing, heuaaht♥ I want to do it lying down.... Heueut, I want to do it lying down...!"</p>
+<p>I originally wanted to torment her more, but since it was our first time in a while, I decided to listen to her opinion. I stopped the piston movement and grabbed Sawayanagi Azuma's armpits and lifted her up.</p>
+<p>Sawayanagi Azuma's chewy pussy flesh came along as if trying not to let go of my cock, but soon it couldn't hold on and my cock came out, and Sawayanagi Azuma's pussy, perhaps because it had accepted my big cock, was gaping and not closing again.</p>
+<p>When I laid Sawayanagi Azuma on the bed, she smiled seductively and pulled my hand. She must be telling me to put it back in.</p>
+<p>I didn't refuse and spread Sawayanagi Azuma's legs and put my cock back into her pussy. I wanted to tease her a little more, but since there were many people waiting behind me, I decided not to waste time.</p>
+<p>Since I was already being thoroughly fucked by me, I enjoyed the sensation of her pussy, which had loosened up enough, and continued to shake my waist. Sawayanagi Azuma's skin was turning pink and she was rising towards climax again.</p>
+<p>,Haah...! I think I'm going to cum, Investor-nim...!"</p>
+<p>,Hold on a little longer. I think I'm about to come too."</p>
+<p>Because Sawayanagi Azuma's pussy, which had become narrow after a long time, felt good, I also felt like I was about to cum soon.</p>
+<p>Cheolpeok! Cheolpeok! Cheolpeok!</p>
+<p>The sound of hitting water with the palm of your hand continued to echo, and I felt Semen coming up from my balls, so I continued to shake my waist violently and pressed myself against Sawayanai Azuma's crotch at the moment of climax.</p>
+<p>,Keut, I'm cumming...!"</p>
+<p>,Heueut! Investor-nim's white milk♥ Eheung! Put it in my haah! Baby room! Haeueueut!!"</p>
+<p>Byuut! Byuut! Byuu...!</p>
+<p>While I was cumming, I suddenly remembered that Sawayanagi Azuma had coated my cock with vaginal fluid, so I pulled out my cock and poured white Semen on her lower abdomen.</p>
+<p>,Heueuheung...! It's warm♥"</p>
+<p>Sawayanagi Azuma smiled with eyes blurred by pleasure, rubbing her lower abdomen. Seeing that, my cock started to harden again.</p>
+<p>,Eh! Ryuta-nim's cock is big again♥"</p>
+<p>Sawayanagi Seari said with a smile. It seemed like the next one was Sawayanagi Seari. Before I knew it, Sawayanagi Azuma was cleared away by the women who were watching the sex, and Sawayanagi Seari knelt in front of me naked and grabbed my cock. And she licked the glans slightly with her tongue and tilted her head.</p>
+<p>,Hmm, is this Azuma-chan's taste...?"</p>
+<p>,Haa, haa, haa.... Seari, can you not say such things because it's embarrassing?"</p>
+<p>Sawayanagi Seari, who spoke innocently, said, "Ah! Sorry," to Sawayanagi Azuma, then smiled seductively and bit my cock hard. Even though it was a cock mixed with Sawayanagi Azuma's vaginal fluid and my Semen, Sawayanagi Seari didn't seem to mind and started sucking my cock as if cleaning it.</p>
+<p>The Semen remaining in my urethra was sucked into Sawayanagi Seari's mouth. My cock, which was already hard, became as hard as chert from the pleasure of being sucked on for Semen. I couldn't just be on the receiving end, so I flipped Sawayanagi Seari over from the position of sucking on my cock and started sucking on her pussy.</p>
+<p>It was a standing 69 or plus 69 position, a 69 position done standing up. It was a position that could not be attempted without tremendous strength, where the man holds the woman upside down, but since I had that tremendous strength, I tried it by lifting Sawayanagi Seari.</p>
+<p>Sawayanagi Seari was surprised by the sudden change in position and bit my cock slightly, but this was okay. My resistance stat had exceeded 20, so my defense had greatly increased, so it wouldn't matter even if an ordinary person kicked my cock hard. A slight bite from surprise is just ticklish.</p>
+<p>I tapped her Clitoris with my tongue as if greeting Sawayanagi Seari's pussy, which I hadn't seen in a while, and licked her pussy overall, and Sawayanagi Seari's erotic fragrance wafted out. Perhaps because she was an elf, it was a refreshing yet lewd contrasting scent, and it was quite addictive. So I buried my face in Sawayanagi Seari's pussy and started licking it greedily.</p>
+<p>,Tsu-eup, heueut! Jjoo-ok...! Haah! Tsup, tsu-beup, heuaahang♥"</p>
+<p>I was impressed that Sawayanagi Seari was constantly moaning from the pleasure of having her pussy licked, but she didn't let go of my cock until the end and kept sucking.</p>
+<p>Actually, I hadn't done it that much with Sawayanagi Seari, so I couldn't say she was good at sucking, but I could say I liked her effort. I should give such a good child a reward. A reward that allows her to do whatever position she wants right away.</p>
+<p>I put Sawayanagi Seari down again, smiled and looked at her, and opened my mouth.</p>
+<p>,Seari, is there a position you want to do when we do it?"</p>
+<p>At my question, Sawayanagi Seari thought for a moment, then clapped her hands as if she had remembered something.</p>
+<p>_________________________</p>
+<p>Azuma B-cut!</p>
+<p>I made it with a new model hehehe</p>
+<p>Seari kneeling in front of Yongtae!</p>
+<p>Kkiyot!</p>

@@ -5,74 +5,73 @@ weight = 478
 chapter = 478
 +++
 
-<p>I was just going to put the glans in, but I don't know if it's because I'd been stimulating it with an egg vibrator the whole way here, or if I was just horny from the start, but there was so much slippery vaginal fluid inside her pussy that my dick slid deep inside, as if gliding.</p>
-<p>"Hyaaahaaang~!! I'm gonna cum!"</p>
-<p>Kurayamada Kirie-ssi came as soon as I put it in. She was leaning on the tree with her arms, and I was holding her waist tightly, so even though Kurayamada Kirie-ssi's legs gave out from the orgasm, she was able to hold on without falling.</p>
-<p>Doing it outdoors has its own charm. Is it the air that's different? Feeling the cool early autumn breeze, listening to the woman's moans, and shoving my dick into her writhing pussy felt different than usual.</p>
-<p>"Hng, hng! Nooo... Haa! I just came♥"</p>
-<p>"You came as soon as I put it in, what do you mean 'no'?"</p>
-<p>Outdoor sex must really suit her, because Kurayamada Kirie-ssi was out of her mind with pleasure. Since I was doing it doggy style, it was perfect for spanking her ass, so every time Kurayamada Kirie-ssi said no, I slapped her ass, chaelssak chaelssak. Every time I slapped her ass, her moans got louder and her pussy tightened, so I thought, 'So she likes this too,' and I got even more excited and slapped her ass. Even though her ass turned bright red, Kurayamada Kirie-ssi just kept leaking more and more vaginal fluid.</p>
-<p>"Hng! It's getting weird...!"</p>
-<p>Kurayamada Kirie-ssi had already reached orgasm several times and was going crazy, and I was also shaking my hips, chasing after the pleasure.</p>
-<p>I was shaking my hips for a while when I heard the sound of jogging man running with the sounds of hoo! hoo! hoo! Then, he must have heard Kurayamada Kirie-ssi's moans, because the sound of his breathing and running stopped.</p>
-<p>"Haaaeuuut~! Hng! It's so big...♥"</p>
-<p>I kept shaking my hips and watched for the jogging man's presence. He could just pass by, but it's human instinct to want to check it out when you hear a woman's moans.</p>
-<p>Jeobeok... Jeobeok....</p>
-<p>As expected, unable to resist his curiosity, the jogging man was slowly walking towards us. But both Kurayamada Kirie-ssi and I were on the verge of orgasm, so even though we felt the approaching jogging man, we didn't stop shaking our hips and kept going.</p>
-<p>"Haaaeueuuhng! I, haa! I think I'm gonna cum again...!"</p>
-<p>"Just hold on a little longer! I think I'm gonna cum too...!"</p>
-<p>"Haa! Hurry...! Hurry, put your perverted milk in me, Sensei! Heueueueut!"</p>
-<p>Cheolssak! Cheolssak! Cheolssak!</p>
-<p>Because I was right in front of the finish line, I increased the pitch of my piston movements even faster, like a marathon runner who could see the finish line. I moved my hips so violently that Kurayamada Kirie-ssi's ass rippled.</p>
-<p>"Keueut...! I'm cumming!!"</p>
-<p>I shook my hips and pulled my dick out. And I started cumming on Kurayamada Kirie-ssi's ass and back.</p>
-<p>Byueut! Byueut! Byueut!</p>
-<p>I usually enjoy internal ejaculation, but I pulled my dick out to show off my power to the jogging man who was watching as an audience member. This is pretty good too. Covering Kurayama Kirie-ssi's ass and lower back, which were facing away from me, with my semen seemed to fill me with a sense of conquest.</p>
-<p>"Haaaeueuhang...! My back is warm♥"</p>
-<p>"...Heok!"</p>
-<p>After Kurayamada Kirie-ssi's moan, I heard a man's surprised voice, and when I looked over, it was the jogging man from before. The jogging man looked at me, rolled his eyes, and fainted. What? Why is he doing that?</p>
-<p>Hmm.... If I think about it, it makes sense. It was already strange that we were having sex without caring that there were students collapsed around us, but since I had been covering my face with Shadow Domination, he might have thought I was a ghost or monster when I turned around.</p>
-<p>Anyway, I've been practicing Shadow Domination so much that I can maintain it without paying much attention. I've improved quite a bit.</p>
-<p>I looked at the fallen jogging man, then turned back and wiped Kurayamada Kirie-ssi's back and ass with the towel I had brought. It was just a light touch to wipe off the semen, but Kurayamada Kirie-ssi flinched and felt a small orgasm. Whether it was the effect of applying the semen or not, her ass, which had been swollen red from me hitting it, quickly returned to its original color.</p>
-<p>"Haa.... Haa.... Haa.... Since we came all the way here, it would be a waste, so let's do it one more time."</p>
-<p>Kurayamada Kirie-ssi got up and leaned against the tree again. She clearly looked around as she got up and realized that there was one more person collapsed, but she didn't seem to care at all. She was just looking at me and leaning against the tree as if to seduce me.</p>
-<p>As expected, she's a tough woman. Okay, since we're doing it outdoors, I have to do it two or three times.</p>
+<p>"...."</p>
+<p>"...."</p>
+<p>Suddenly, Oofuchi Erika disappeared from our conversation, leaving Daigo Terue and I feeling a bit awkward as we sipped our lukewarm tea. It wasn't that we had an uncomfortable relationship, but Oofuchi Erika's blatant attempt to leave us alone together made things a little strange.</p>
+<p>"Ah, about the acting Chairman, Ishidera Kosuke-nim."</p>
+<p>Since our conversation had been interrupted anyway, I decided to tell Daigo Terue about the current acting Chairman Ishidera Kosuke's scheme. Daigo Terue genuinely seemed to dislike Ishidera Kosuke, as she frowned as soon as I mentioned his name.</p>
+<p>"What about Ishidera?"</p>
+<p>"It seems like he's trying to win over the teachers. He even asked me to join his faction."</p>
+<p>Even though Daigo Terue receives a lot of information about the academy, she seemed serious, as if she was hearing this for the first time. While the support of teachers without a stake in the Daigo Educational Foundation might not seem crucial, losing their support would inevitably weaken the academy's control. This would naturally lead to problems and give the Toyotaka faction an excuse to attack. I heard from Kurayamada Kirie that several teachers had already fallen into Ishidera Kosuke's clutches.</p>
+<p>"So, what was your answer, Yamashiro-sensei?"</p>
+<p>"I said I would."</p>
+<p>Daigo Terue looked very disappointed at my answer that I had joined Ishidera Kosuke's faction, so I quickly waved my hand and continued.</p>
+<p>"I only said I'd join to find out what kind of scheme he's plotting. There's a limit to how much information I can gather from the outside."</p>
+<p>"Ah, I thought you had abandoned me too, Yamashiro-sensei...."</p>
+<p>Daigo Terue spoke with a hint of tears in her eyes at my explanation. I didn't realize she cared that much; she must think of me quite highly. I thought that giving her the information quickly would be the best way to ease Daigo Terue's feelings, so I started telling her what I knew.</p>
+<p>"There are a few rumors going around. One is that Minamoto Ushin's fourth son, Minamoto Shigemune, is lending his strength to the Toyotaka faction. And another is that Ishidera Kosuke might use force before his term as acting Chairman ends."</p>
+<p>Of course, these weren't just rumors circulating around the school. I said they were rumors to tell Daigo Terue the information that the Taira information team had investigated.</p>
+<p>The current Minamoto Group Chairman, Minamoto Ushin, didn't restrict his children's ownership of PMCs as much as Taira Danjo, so Minamoto Ushin's children all owned several domestic and foreign PMCs and wouldn't hesitate to use force if necessary.</p>
+<p>So, if Minamoto had started to get involved in the Daigo Educational Foundation, the Taira information team conveyed that we should definitely keep in mind the possibility of Minamoto using force.</p>
+<p>Minamoto Ushin's fourth son, Minamoto Shigemune, was in charge of educational affairs that overlapped with the Daigo family, so he probably gladly accepted when the Toyotaka faction asked for help. Even though Minamoto is a giant in the Japanese business world, the Daigo family had a firm grip on women's education in Japan, so it seemed like they would try to create a crack in the Daigo family's vested interests with this opportunity.</p>
+<p>Of course, Minamoto wouldn't directly attack St. Francisco Girls' Academy like a terrorist group, but if that happened, I couldn't openly step in. Even if I stepped in and defeated Minamoto Shigemune's PMC, Minamoto would keep an eye on me afterward, and it wouldn't be long before they found out I was Taira Ryuta. Then my mission would be over.</p>
+<p>So, it was important to inform Daigo Terue of this fact in advance so she could prepare. If she heard the information from me, she would strengthen security or ally with the Taira, who are enemies of Minamoto, to prepare.</p>
+<p>"If that rumor is true, I should contact my father."</p>
+<p>"There's no time to find out if the rumor is true or not, so it's best to contact him now."</p>
+<p>"Then, as Yamashiro-sensei said, I'll contact my father and come back."</p>
+<p>Daigo Terue briefly left her seat to call her father, Daigo Tadanori. In her current state of suspension, all Daigo Terue could do was pass on the information to Daigo Tadanori. Daigo Terue's power comes from her title as the head of St. Francisco Girls' Academy.</p>
+<p>"My father said he would come up with a plan. Thank you, Yamashiro-sensei."</p>
+<p>"Is that all I get for thanks?"</p>
+<p>When Daigo Terue thanked me after finishing the call, I smiled and glanced at Daigo Terue's exposed thighs with a look that said, 'Isn't there any other reward?' Daigo Terue seemed to understand the meaning in my eyes, as she stroked her thighs and gave me a seductive smile.</p>
+<p>"Hehe.... You want to see the inside of these thighs?"</p>
+<p>Speaking informally meant that Daigo Terue had entered sex mode. Daigo Terue slightly lifted her skirt to the side, teasing me by showing just a glimpse.</p>
+<p>"Yes, I want to see the inside."</p>
+<p>"Hehehe, I'm actually not wearing panties♥"</p>
+<p>Daigo Terue said, looking at me with seductive eyes. I had been wondering a bit from the start. It was a dress with a slit almost up to her hip, but I couldn't see the end of her panties, so I just thought she was wearing special panties for this kind of dress, but she really wasn't wearing any.... My already large dick became even harder.</p>
 <p>###</p>
-<p>"Haa...."</p>
-<p>Urabe Konoka-ssi sighed without studying. She couldn't concentrate. She hadn't given Taira Ryuta-ssi, whose homeroom teacher is Shinkai Hime-nim, the gift that Shinkai Hime-nim told her to give him.</p>
-<p>Even though she received a gift from the teacher as a souvenir from his trip to America, she had negative thoughts that she wasn't doing her job properly as a shrine maiden of Shinkai Hime-nim because she hadn't properly delivered Shinkai Hime-nim's gift.</p>
-<p>"But...."</p>
-<p>Urabe Konoka-ssi held up a gray cylindrical object. On one side of the cylinder was something that anyone could see was a woman's genitals.</p>
-<p>"How can I give a fleshlight to the homeroom teacher as a gift, Hime-nim...."</p>
-<p>Because she was quite innocent, Urabe Konoka-ssi didn't know what it was at first. When she took a picture of it with her smartphone and did an image search, she found out that the gift that Shinkai Hime-nim told her to give to Taira Ryuta-ssi was a male masturbation tool.</p>
-<p>If she hadn't known, she would have wrapped it and given it as a gift, but now that she knew what it was, she couldn't give it as a gift.</p>
-<p>'But it's Shinkai Hime-nim's order....'</p>
-<p>The problem is that she has to do it.</p>
-<p>"If I say that it's Shinkai Hime-nim's gift, not mine, and write a note, he won't misunderstand."</p>
-<p>Urabe Konoka-ssi abandoned her studies and started writing a letter to Taira Ryuta-ssi. The first thing she wrote in the letter was, 'This gift is from Shinkai Hime-nim. I definitely didn't prepare it.' Urabe Konoka-ssi wrote the letter for a while, then folded it and sighed again.</p>
-<p>"Haa.... I've finished writing the letter, so now I have to wrap it...."</p>
-<p>Urabe Konoka-ssi put the fleshlight that Shinkai Hime-nim gave her in a box, wrapped it in wrapping paper, and then firmly attached the letter she had written. If she gives it to Taira Ryuta-ssi like this, he will never misunderstand.</p>
-<p>"Should I listen to the radio while I study?"</p>
-<p>Because she used to live on an island where TV signals weren't good, Urabe Konoka-ssi's hobby was listening to the radio. Among them, she preferred paranormal radio shows. She had liked them since before she became a shrine maiden, but she became even more interested in them as she learned more about them as a shrine maiden.</p>
-<p>It was the time when the radio show that Urabe Konoka-ssi liked was on, so Urabe Konoka-ssi turned on the radio. It was a little disappointing that it had already started while she was writing the letter and wrapping the gift, so she could only listen from the middle, but she couldn't help it. Her work as a shrine maiden was her priority.</p>
-<p>-The next story is from a jogger living in Miyashi, Yamanashi Prefecture.</p>
-<p>Miyashi? That's my town? When she said it was her town, Urabe Konoka-ssi perked up her ears even more excitedly. The radio DJ began to read the story sent by a person called a jogger in Miyashi.</p>
-<p>-It happened recently. There is a park called Minobu-jo Park in Miyashi, which is a secluded park. I am a student preparing for college again, and I enjoyed running in Minobu-jo Park and doing physical training for the sports college entrance exam.</p>
-<p>There was definitely a place called Minobu-jo Park. Urabe Konoka-ssi muttered, 'So he's really from Miyashi?' and listened to the radio.</p>
-<p>-That day, I was running in the park at night as usual, but the atmosphere was different than usual. It felt like I wasn't alone. How many laps had I run around the park? I heard a woman's moan from a place with dense trees.</p>
-<p>"Is this a scary story or an explicit story?"</p>
-<p>Urabe Konoka-ssi tackled the radio. Of course, that tackle wouldn't be transmitted to the radio station, so the story on the radio continued despite Urabe-ssi's tackle.</p>
-<p>-I was also a passionate man, so I thought I would watch and went to the place where the sound was coming from. There, as I heard, a man and a woman were overlapping each other. But instead of being excited by the sight, I was filled with fear. That's because there were five high school students from nearby collapsed around the man and woman who were having sex.</p>
-<p>"If it's a nearby high school, it must be Miyashi Municipal High School...."</p>
-<p>-What on earth is going on? The two men and women didn't care about the collapsed students at all. Before I knew it, the end was approaching, and the man pulled out his -beep- and -beep- on the woman's body, then looked at me. It was an attitude that he already knew that I was secretly watching. I couldn't help but be surprised when I saw the man's appearance.</p>
-<p>As the climax approached, the DJ, who had been reading the story for a while, paused the story for a moment to further encourage the listeners' interest. Urabe Konoka-ssi also listened with a more focused expression.</p>
-<p>-That man's face was black and hollow...! Moreover, the man's -beep- was so big that it didn't seem like it belonged to a human. I fainted when I saw that.</p>
-<p>I didn't know why the story submitter kept talking about -beep-, but it seemed like it was because it was really impressive.</p>
-<p>-Those who hear this story will say that you had a hallucination, but I was able to confirm that what I saw was real. That's because when I woke up the students, they also said that they had been attacked by a man and woman with black faces....</p>
-<p>"It's not that scary. It's closer to paranormal comedy?"</p>
-<p>Urabe Konoka-ssi smiled and turned off the radio. But unlike Urabe Konoka-ssi's reaction, this story, along with the -beep- that came out in the story, became a hot topic and was a hot topic for a while under the title of the faceless, huge-cock ghost story of Miyashi.</p>
-<p>-----</p>
-<p>Anticipated scene B-cut! Ai isn't listening to me today lol. I don't think it understands the words 'lean against a tree' very well haha.</p>
-<p>I said lean against the tree, not put your ass on it....</p>
-<p>Why did she set up a naked counter in the forest...?</p>
-<p>I was happy because I thought she was leaning against a tree, but it was rejected because it looked like an artificial tree trunk haha.</p>
+<p>In a small office in a commercial district near the school, a girl with turquoise hair was sitting and looking at a screen.</p>
+<p>-Hehe.... You want to see the inside of these thighs?</p>
+<p>"It's here, it's here...!"</p>
+<p>The name of the girl who was shouting and taking off her clothes was Oofuchi Erika. Oofuchi Erika had recently started an internet information research business with Shido Tsubaki, and the office she was in now was the headquarters of Search Eye, the company she ran with Shido Tsubaki.</p>
+<p>Oofuchi Erika was sitting naked, watching a screen in a space where she should be working. On that screen, her mother, Daigo Terue, and her homeroom teacher, Yamashiro Ryuta, were doing something indescribably lewd. There were cameras installed at various angles in the living room, so Oofuchi Erika could watch the video from multiple perspectives.</p>
+<p>While Yamashiro Ryuta was kissing for a while, then put his head between Daigo Terue's legs and sucked her pussy while making lewd noises, Oofuchi Erika was also sitting on a chair, spreading her legs, and stroking her own pussy with her fingers.</p>
+<p>"Huuuung...! Daddy, me too, huuung♥ Lick Erika's sexy pussy with Daddy's tongueee...!"</p>
+<p>Oofuchi Erika started masturbating intensely, calling Yamashiro Ryuta 'Daddy'. Because she kept calling him 'Daddy' while masturbating, there were one or two times when she almost called Yamashiro Ryuta 'Daddy' (Oofuchi Erika didn't know she had almost been caught calling him 'Daddy'), but she managed to gloss over it well.</p>
+<p>-Ryuta-ssi, your tongue feels so good...♥ Put it in now....!</p>
+<p>-Spread your pussy and show me your hole properly.</p>
+<p>"Huuuung, as Daddy said.... Huk Erika's pussy, s,spread...! Put it in me too, Daddy♥"</p>
+<p>-I'm going to put it in now.</p>
+<p>"Haaat! It's coming in...!"</p>
+<p>Oofuchi Erika was masturbating while talking to Yamashiro Ryuta in the video as if she was having sex with Yamashiro Ryuta directly. She wasn't masturbating so roughly that her hymen would break, but she was getting tremendous pleasure from watching the video and masturbating like this.</p>
+<p>-Haaat! I think I'm going to, huuung! Cumming♥</p>
+<p>"I'm going, I'm going, I'm going!"</p>
+<p>Oofuchi Erika climaxed at the same time as her mother, Daigo Terue. She climaxed, spraying her fluids on the office floor with a pyut pyut sound. Oofuchi Erika's thighs were trembling, her eyes were rolled back, and her tongue was sticking out, but then she started hearing sounds from the screen again.</p>
+<p>-Haaahung! I just came...! Noooo♥</p>
+<p>-What do you mean 'no'?</p>
+<p>-Uuuuhhaaat!</p>
+<p>"Again, again? Are they starting again already?"</p>
+<p>Oofuchi Erika was surprised and started moving her hand again, as it was the first time she had seen them having sex properly, even though she knew they were having sex. She was moving her hand in sync with Yamashiro Ryuta's movements, as if she wouldn't lose to her mother.</p>
+<p>Their sex lasted for almost several hours. At first, Oofuchi Erika kept rubbing her pussy as if she wouldn't lose, but she got tired in less than an hour and gave up, leaning back on the sofa and watching the video languidly.</p>
+<p>-Shall we eat now?</p>
+<p>-Okay. I'll make you something delicious, sensei♥</p>
+<p>At Yamashiro Ryuta's words, Daigo Terue kissed Yamashiro Ryuta on the cheek with a satisfied expression like a full cat. Daigo Terue showed her plump ass to Yamashiro Ryuta and headed to the kitchen naked, wearing an apron. Oofuchi Erika thought it was over now, got up from her seat, wiped her pussy with a wet wipe, and put on her clothes.</p>
+<p>Suddenly, she felt hungry. Looking at the time, it was already past dinner time. Oofuchi Erika turned off the screen and ordered a McDolria Large Mac set with a delivery app.</p>
+<p>Soon, she heard the sound of the office door opening. She thought it was the hamburger delivery, but the person who came into the office was Shido Tsubaki.</p>
+<p>"What's that smell?"</p>
+<p>"Ah...!"</p>
+<p>Shido Tsubaki frowned as she entered the office. The sour scent of a woman filled the office. Oofuchi Erika, who had forgotten to ventilate, opened the window with a flustered expression.</p>
+<p>"Ah.... I spilled something. Sorry."</p>
+<p>"It's okay. It'll be okay since I opened the window. Then.... Let's gather information again."</p>
+<p>It wasn't a lie that Oofuchi Erika had a promise with Shido Tsubaki, which she had told Yamashiro Ryuta and Daigo Terue. After finishing her date with Yamashiro Ryuta today, she was collecting information with VR Dive to help Shido Tsubaki's articles.</p>
+<p>----</p>
+<p>Masturbation Erika</p>

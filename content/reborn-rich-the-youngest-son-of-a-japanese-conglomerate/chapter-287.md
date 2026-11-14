@@ -5,83 +5,83 @@ weight = 287
 chapter = 287
 +++
 
-<p>After finishing our meal, we parked at the hotel we had reserved and went for a date, walking around downtown Tokyo.</p>
-<p>Tokyo was similar to Seoul in scenery, but it must have felt exotic to Han Yu-gyeong. First of all, the language on the signs was different, so the feeling must have been unique. Though, the densely packed skyscrapers were the same in Seoul and Tokyo.</p>
-<p>,Shall I get you a doll?</p>
-<p>,Yeah, I'll get you one too!</p>
-<p>We went to an arcade and played a claw machine game (but ultimately failed to win a doll), ate street food, and as we wandered around on our date, we ended up in a slightly shady area.</p>
-<p>Actually, even though I had been to Tokyo often, I was always busy meeting women and having sex in hotels, so I didn't know the geography well.</p>
-<p>It wasn't like we were trying to get intimate in a shady place; we just ended up in a shady place while wandering around on our date. Besides, even if I had such intentions, it wasn't just shady but also unhygienic, so I couldn't have outdoor sex here.</p>
-<p>,Hmm, I don't think this is the way.</p>
-<p>,Yeah, the smell is getting weird too.... Let's go back.</p>
-<p>As we turned around to head back towards the main street, we heard a rough voice from behind. The sound of clearing phlegm and snickering wasn't a good sign.</p>
-<p>,Hey~! Where do you think you're going?</p>
-<p>,If you came in, you have to pay the toll, huh?!</p>
-<p>I glanced back and saw two rough-looking thugs approaching us. One was a shaved-head guy with sunglasses, and the other had a red mohawk. Both had tattoos on their bare skin that wasn't covered by their clothes, so they looked like delinquents at a glance.</p>
-<p>Hmm, you have to be this level to be called a thug. Just bleaching your hair blonde and getting a tan doesn't make you a blonde-tanned thug. It just makes you a blonde-tanned guy. Since I'm a teacher, it's probably better than being considered a thug, right?</p>
-<p>Suddenly, I thought the current situation was similar to the day I first met Han Yu-gyeong, so I smiled at Han Yu-gyeong.</p>
-<p>That night, I first met her by saving Han Yu-gyeong from being harassed by two gangsters. Han Yu-gyeong seemed to have similar thoughts, as she looked at me and smiled.</p>
-<p>,This reminds me of the old days.</p>
-<p>,Yeah, it does.</p>
-<p>Back then, Han Yu-gyeong was powerless, but now she was a fine warrior who wasn't afraid of such situations. Moreover, she was a leader with quite a few warriors under her command. There was no reason to be intimidated by mere back-alley thugs like these.</p>
-<p>,Should I handle this one?</p>
-<p>I was about to teach them a lesson like last time, but Han Yu-gyeong stepped forward and asked. Curious about what she would do, I nodded.</p>
-<p>As Han Yu-gyeong took a step towards the thugs, they started drooling at her beauty.</p>
-<p>,Hehehe! Sometimes, even if we don't ask, there are girls who voluntarily offer themselves.</p>
-<p>,Hehehe, with such a pretty face, tonight won't be boring.</p>
-<p>As expected of third-rate thugs, they approached Han Yu-gyeong with cheap words. Han Yu-gyeong looked at them with a cold gaze.</p>
-<p>Memories are memories, but having to deal with these thugs was starting to annoy her. Han Yu-gyeong snapped her fingers as if she couldn't be bothered to touch them.</p>
-<p>-ᛢᚾᚣᚱ ᚳᛁᛩᚺᚾ ᚳᚣᛉ</p>
-<p>As she snapped her fingers, a few sparks flew out like striking a flint, shooting towards the two thugs. Seeing the sparks fly, it seemed like the 2-star magic, Starlight Beam.</p>
-<p>,Ke-eck!</p>
-<p>,Cough!</p>
-<p>The two were hit by the sparks and collapsed. Unexpected. I thought she would leave it to her summoned shadow panther, Nero, but she used magic to catch them....</p>
-<p>Moreover, she seemed quite skilled, adjusting the power to just knock them out without killing them. Starlight Beam was a powerful magic that could have roasted thugs like these, but if she could control it to this extent, she probably had mastered the 3-star magic as well.</p>
-<p>,You seem very skilled; have you been practicing?</p>
-<p>,Yeah! It's fun when I study, hehe.</p>
-<p>As expected of someone who entered Korea University at the top of her class. It's fun when I study.... I had a huge headache just studying Korean language education. Han Yu-gyeong had high intelligence, so she probably leveled up quickly.</p>
-<p>,Shall we go back to the hotel now?</p>
-<p>The two thugs who had already collapsed were no longer in our thoughts. At my words, Han Yu-gyeong answered cutely with a ,Yeah! and clung to my arm.</p>
-<p>We went back the way we came and returned to the hotel. Perhaps because of the event that reminded us of our first meeting, Han Yu-gyeong seemed quite excited. You could tell by the way she kissed me as soon as we arrived at the hotel room.</p>
-<p>As I accepted Han Yu-gyeong's tongue, I stroked her slender waist and massaged her soft, bouncy butt.</p>
-<p>It was a wonderful butt with an addictive texture that sometimes seemed to suck in my hand and sometimes bounce it back.</p>
-<p>,Heuung, heung...♥</p>
-<p>Just as I was touching Han Yu-gyeong's butt, Han Yu-gyeong lowered one hand and stroked my dick up and down over my clothes. It felt good because she stroked it with quite skillful movements.</p>
-<p>,Euhung...! Yong-tae-yaaaang♥</p>
-<p>Han Yu-gyeong, who had stopped kissing, clung to me while making a cute moaning sound. She seemed quite excited just by me touching her butt. I picked up Han Yu-gyeong and took her to the bed.</p>
-<p>Tuduck!</p>
-<p>I became impatient without realizing it and tore off one of Han Yu-gyeong's shirt buttons. It was because I was curious about her breasts, which she said had gotten bigger. Since one button was already torn, I spread Han Yu-gyeong's shirt open.</p>
-<p>Tutututuduck!</p>
-<p>Buttons flew in all directions, revealing Han Yu-gyeong's breasts in her bra. I was expecting her breasts to jiggle with a ,taeng~! sound, but because her bra was firmly supporting them, they didn't jiggle as I had hoped.</p>
-<p>,Kyaak♥</p>
-<p>She said ,Kyaak with her mouth, but Han Yu-gyeong liked it when I was a little rough. The bra had a front hook, so I easily disarmed it as well. Only then did her breasts, having found freedom, jiggle and show a lively appearance.</p>
-<p>Her white breasts and pink nipples were revealed, and they definitely seemed a little bigger than before.... Wouldn't I be able to tell properly if I massaged them a bit?</p>
-<p>I grabbed Han Yu-gyeong's breasts. Oh! They definitely seemed bigger. Before, they filled my hand a little, but now they seemed to have more volume (?).</p>
-<p>,Heueung~ They got bigger, didn't they...?</p>
-<p>,Yeah, they really seem bigger?</p>
-<p>I would have to take a look after completely undressing her to know for sure, but it was amazing that only her breasts got bigger without any change in her body shape. Is this some kind of protagonist buff?</p>
-<p>After sufficiently massaging, sucking, and licking her breasts, I undressed Han Yu-gyeong. Judging by the way Han Yu-gyeong was hastily undressing me, she must have become as horny as possible from my persistent breast caresses.</p>
-<p>With each other's hasty hands, we were naked in our natural state. We faced each other and admired each other's bodies. Han Yu-gyeong's figure, standing against the backdrop of the Tokyo night view, was very beautiful. With a feminine body line, large breasts, and pretty peach-colored nipples, there was nothing lacking.</p>
-<p>,It's better now, but I think it wouldn't be bad to tan brown.</p>
-<p>Han Yu-gyeong touched my chest muscles and spoke. The story about St. Francis Women's Academy that we talked about while eating seemed to bother her quite a bit.</p>
-<p>,Our Yong-tae is already in good shape, but if he tans brown, he'll look even better, right?</p>
-<p>It's true that if your skin gets darker, the definition of your muscles becomes more visible, so your body looks better.</p>
-<p>,If I tan, I'll take a certification shot right away and show you.</p>
-<p>,Yeah, hehe. You have to show me?</p>
-<p>After cuddling naked for a while, we pressed our bodies together, and I started caressing Han Yu-gyeong's pussy while Han Yu-gyeong sucked my dick in a 69 position.</p>
-<p>I always think this, but Han Yu-gyeong's pussy was pretty. Seeing her unpigmented, pink, adorable pussy made me feel my dick throbbing on its own.</p>
-<p>,Aish~! What is it?</p>
-<p>Han Yu-gyeong grumbled softly when my dick suddenly throbbed while she was licking it. And then she concentrated on sucking my dick again. To repay Han Yu-gyeong for working hard, I put my mouth on her pretty pussy and started licking it with my tongue.</p>
-<p>In an instant, the hotel room was filled with lewd sounds of sucking and licking something, like ,jjueup, jjueup and ,hururuk.</p>
-<p>Han Yu-gyeong's pussy secreted clear, sticky vaginal fluid as I licked and touched it.</p>
-<p>Han Yu-gyeong's vaginal fluid had a fairly light taste compared to its sticky consistency, and according to the feeling of my tongue, which is a vaginal fluid connoisseur, it had a highly addictive S-class taste.</p>
-<p>Han Yu-gyeong also licked my dick diligently, giving me considerable pleasure. We licked and sucked each other with all sorts of techniques to bring each other to climax.</p>
-<p>,Heueup...!</p>
-<p>,Keut...!</p>
-<p>We climaxed almost simultaneously.</p>
-<p>Han Yu-gyeong couldn't even let out a moan of pleasure because the semen that came out with a gush suddenly poured into her mouth, and I, while sucking, had no choice but to gulp down the vaginal fluid that poured out of Han Yu-gyeong's pussy like a drinking fountain.</p>
-<p>,Haa.... Haa.... Yong-tae-yaang, now, come now♥</p>
-<p>Han Yu-gyeong lay on the bed with hazy eyes, spreading her pussy and seducing me. I started pressing my glans against Han Yu-gyeong's moist pussy hole.</p>
-<p>----</p>
-<p>NG Cut</p>
-<p>One of the disadvantages of AI is that it is difficult to control the length of the hair. If you make it long hair, it is very long, and if you make it medium or short, only bobbed hair comes out... It's hard to make it a suitable length, dddd</p>
+<p>"Please take good care of Alik and Da-rim-i."</p>
+<p>I said to Mimata Chieri, entrusting Alik and Jeong Da-rim to her. Alik now had a grueling schedule of learning maid duties at the prestigious family while also being trained by Mimata Chieri, and Jeong Da-rim had to study basic subjects to get a donation-based admission to university next year, as well as knowledge to establish a research institute.</p>
+<p>Since it was a donation-based admission, a national university was out of the question, and she had to choose from universities under the Taira Group, but since they all had the Taira name, they were decent universities where Jeong Da-rim could learn a lot.</p>
+<p>"Ryuta, I... I'll work hard there too."</p>
+<p>"Yeah, I hope you become a great maid."</p>
+<p>"Okay."</p>
+<p>I stroked Alik's head, who was sad to part, and shook hands with Jeong Da-rim.</p>
+<p>"Thanks for investing in me, Oppa. But can I really do well?"</p>
+<p>"Now you're asking? You'll do great. You like trees and grass, right? If you learn what you like, you'll improve quickly, so do your best."</p>
+<p>Even Jeong Da-rim, who was only interested in plants, seemed a little anxious because she had to work alone, separated from her fellow prisoner.</p>
+<p>It can't be helped. Jeong Da-rim has no aptitude for combat and is all-in on growing plants, so she has to do what she's good at. She's also raising Juan properly. Juan alone was worth investing in Jeong Da-rim.</p>
+<p>The Seiryutai side was quite sad that Alik and Jeong Da-rim, who had been with them for a while, were leaving. They must have grown quite fond of them.</p>
+<p>Everyone was sad to say goodbye to Alik because she was so cute, and Jeong Da-rim was surprisingly close to Sawayanagi Seari, so Sawayanagi Seari was so sad that she almost teared up.</p>
+<p>Was it because Jeong Da-rim's specialty was plants and Sawayanagi Seari's was fairies that the two were close? I don't know if attributes apply to this kind of personality compatibility.</p>
+<p>"It's not like we're parting far away, Seari. Da-rim-i will be living in Tokyo too. You can meet in Tokyo."</p>
+<p>"Heueung.... Really?"</p>
+<p>Sawayanagi Seari stopped tearing up when I explained. How cute. Oh, by the way, the one-day date with Sawayanagi Seari was scheduled to be arranged before going to St. Francis Girls' School.</p>
+<p>Of course, since Sawayanagi Seari looked so young, I had no intention of touching her even if she was an adult. Unless she fully unlocked her fairy body and had an adult body, that is.</p>
+<p>Everyone said their goodbyes and parted ways, but the Kiyona Hori sisters' attitudes were so strange because of the hot night they had last night and this morning that they caught the attention of others.</p>
+<p>Since we started having sex while drunk yesterday, they seemed a little embarrassed when they sobered up in the morning.</p>
+<p>"See you next time, Ryuta-ssi...."</p>
+<p>"I, I was drunk, so that, that's why...! I, it's not like I liked it!"</p>
+<p>Kiyona Hori gave a very quiet greeting and got into the driver's seat, and Kiyona Mari made a tsundere statement and got into the passenger seat with her face as red as a tomato. Aren't you guys making it too obvious...? Later, they'll both be bombarded with questions from other people, right? I'm curious how they'll answer. I'll have to ask Sawayanagi Azuma later.</p>
+<p>"Azuma-ssi, please contact the Krascano slave traders. Try to bear with it even if it brings back old memories."</p>
+<p>The transaction with the Krascano slave traders was entrusted to Sawayanagi Azuma. I'm busy with studying right now, and I don't have time to go there, and even if I bring back ability users, they'll end up joining Seiryutai led by Sawayanagi Azuma anyway, so it would be better to entrust it to Sawayanagi Azuma. It's a bit of a cold statement, but it was already decided that we would exclude ambiguous ability users from recruitment.</p>
+<p>However, I was worried that she might not be able to control her anger when she saw the situation there and remembered her days as a test subject, and kill all the slave traders, but she'll do well.</p>
+<p>"Don't worry. They only capture them there, they don't experiment on them."</p>
+<p>"Yes, that's right. They're just people who catch and sell them. Rather, the ones who buy them, except for us, are probably the ones who do research."</p>
+<p>It seemed that the trigger for the Seiryutai people's anger was experimentation rather than capture. That's a relief.</p>
+<p>"I'll be going too, Investor-nim."</p>
+<p>"Yes, it's not like we're parting forever, so I'll stop by Tokyo if I'm bored."</p>
+<p>Come to think of it, everyone except me is going to Tokyo. I'm going to the Human Resources Development Center in Chiba, so the path is a little different.</p>
+<p>Everyone left the pension, and I also drove to the Human Resources Development Center where Yukiko was waiting.</p>
+<p>While I was driving, I received a call from someone, and when I checked, it was Nae Fitzgerald. I answered the phone on speaker.</p>
+<p>"Yes, Nae-ssi."</p>
+<p>-Nae-ssi, you say...! Don't call me by such a cold title, just call me Nae by my name♥</p>
+<p>"I'm afraid I'll keep calling you Nae and accidentally do it in front of Grandpa."</p>
+<p>-Okay....</p>
+<p>I smiled slightly as I watched Nae Fitzgerald, who quickly became sullen at my words. She was still an incredibly cute mama, not her age.</p>
+<p>"So, what's the matter, Nae?"</p>
+<p>-Huh? Hehe.... Ryuta said he's going to Japan with a knife now~</p>
+<p>Ah, Nae Fitzgerald said she would bring the bombshell to Alik.</p>
+<p>"Do you have a place to stay in Japan?"</p>
+<p>-I guess I'll just have to stay in a hotel. Ryuta is living at Yukiko's house right now, right?</p>
+<p>Judging by the fact that she called Yukiko by her first name, the two seemed to be quite close. Since she didn't follow the Taira surname from the beginning and didn't fight for succession with the only family member, Saburo, who died, Nae Fitzgerald said that she had a good relationship with all the successors.</p>
+<p>"It's not so much that I'm living there... Come to think of it, I am living there."</p>
+<p>Well, it was originally Yukiko's house, so I was living there. Of course, Yukiko wouldn't think that way at all.</p>
+<p>-I deliberately brought things to Japan, so you'll go on a date with me, right?</p>
+<p>"Do you even need to ask? I have to make time for Nae, even if I don't have it."</p>
+<p>Nae Fitzgerald's laughter could be heard, as if she was in a good mood at my smooth answer.</p>
+<p>-Hohoho! You're such a kid...!</p>
+<p>"Ah, but when exactly are you coming?"</p>
+<p>I had to ask this question because I needed to know Nae Fitzgerald's schedule so I could plan my schedule accurately. I've been quite busy studying these days.</p>
+<p>-I'll arrive around the day after tomorrow. I'm taking a late flight tomorrow, and the flight will take a long time...</p>
+<p>"The day after tomorrow? Okay. I'll clear my schedule."</p>
+<p>Hmm, the day after tomorrow... I'll just sit in the office and study and then pick her up at the airport.</p>
+<p>-I'm excited to be in Japan after a long time~! Then, see you the day after tomorrow!</p>
+<p>She was still My Pace, Nae Fitzgerald. In the end, it was about her bringing a knife and asking me to go on a date with her. You could say she had a bouncy feeling that didn't match her age.</p>
+<p>I kept driving, thinking about what I would do on a date with Nae Fitzgerald. After driving for several tens of minutes, I arrived at the Human Resources Development Center and Yukiko greeted me.</p>
+<p>"Ryuta, did you have fun?"</p>
+<p>"Yes, I had a lot of fun."</p>
+<p>Seeing Yukiko wearing a Dongtan-style dress that fit her body perfectly, I wanted to lift her skirt and fuck her right away, but it was impossible because the housekeeper was there. It's a bit of a shame.</p>
+<p>"I'll do it for you later at night~♥"</p>
+<p>I was annoyed that Yukiko was deliberately swaying her hips and seducing me, telling me to wait until night, but there was nothing I could do. I nodded and went up to my room.</p>
+<p>I had already showered at the pension, so I didn't have much to do, so I decided to do some of the studying that I hadn't been able to do over the weekend.</p>
+<p>No, I'm not even a student, but I have to study like this, so it's a little... no, it's very annoying, but since I've been given a mission, I have to do it properly. Of course, before that....</p>
+<p>"Before I study, I'll just watch one Mytube video...."</p>
+<p>I was about to sit at my desk and turn on Mytube on my phone when I saw that I had a text message. It probably came while I was driving. I have two text messages? To be exact, I had one KakaoTalk and one LINE message.</p>
+<p>I checked KakaoTalk first, thinking that Han Yu-gyeong might have sent a KakaoTalk message about business, but the person who sent the KakaoTalk message was Ha Ju-yoon. A KakaoTalk message came with a photo, and the photo was of a plane ticket to Tokyo.</p>
+<p>Ha Ju-yoon: Yong-tae, I'm sorry for the sudden notice, but I'm going to Japan, can we meet? The flight is the day after tomorrow.</p>
+<p>This is a disaster.... Her schedule overlaps with Nae Fitzgerald's. I was wondering how to answer when I decided to check the next LINE message first.</p>
+<p>It's Nagumo Sian? What's going on?</p>
+<p>Nagumo Sian: Ryuta, there will be a Taira Group executive meeting in Tokyo on Monday. Can I see you on Tuesday after the executive meeting?</p>
+<p>It was a big deal. All the mamas were gathering in Tokyo.</p>
+<p>All three were charming mamas that I liked, so I couldn't refuse to meet any of them. Besides, they all had their own reasons.</p>
+<p>Nae Fitzgerald was bringing a bombshell to Alik and it was a prior engagement, and Ha Ju-yoon was going through a hard time mentally due to her recent divorce issues, so it was hard to refuse.</p>
+<p>Lastly, Nagumo Sian was the head of my only friendly force within the Taira Group, excluding Yukiko, and she was very busy, so it was not easy to meet her. It meant that if I didn't meet her this time, I wouldn't know when I would meet her again.</p>
+<p>-------</p>
+<p>B-cuts left over from making Minamoto Lisa's cover!</p>
+<p>I like Gyaru girls~!!</p>

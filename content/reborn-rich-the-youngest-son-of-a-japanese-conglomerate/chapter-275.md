@@ -5,92 +5,86 @@ weight = 275
 chapter = 275
 +++
 
-<p>We talked for a while and then headed to the conference room as I had told Sawayanagi Tobe. It wasn't a huge conference room, but it was big enough for everyone to fit in. Since not all of Seryu Tai was there, we could sit comfortably.</p>
-<p>As I sat in the conference room, the trainees who had showered and changed into comfortable tracksuits, along with Sawayanagi Tobe, came in.</p>
-<p>,Good job, everyone."</p>
-<p>,Hey boys and girls! Good job training!"</p>
-<p>,Um...."</p>
-<p>Sawayanagi Azuma and Lianna Holden encouraged the trainees who had finished their training, and after the trainees and Sawayanagi Tobe took their seats, I opened my mouth.</p>
-<p>,First of all, you all know about the superpower terrorist attack in the United States, right?"</p>
-<p>Everyone nodded heavily at my words. I thought the trainees wouldn't know, but unlike the Korean training camp, they can freely watch TV or play with their smartphones during their free time.</p>
-<p>So, they must know about the Dignity Health Sports Park disaster from two days ago.</p>
-<p>In an article before my possession, there was news that "Mobile phones are now allowed in training camps!" but when I was in the military, I couldn't even watch TV in the training camp, let alone use a smartphone. Back then, my friends used to joke in letters that Son Heung-min had gone to Real Madrid. Those were all memories.</p>
-<p>,This incident will greatly increase the fear of superpowered people. Because of that, there will be attempts to create laws to sanction superpowered people."</p>
-<p>Everyone looked like they hadn't thought of that and started to worry. It's a natural reaction. Everyone here is a superpowered person. They're worried that they might be harmed too.</p>
-<p>,If you say there are 'attempts' to create a law... does that mean Investor-nim thinks a law won't be created?"</p>
-<p>Only Sawayanagi Azuma seemed to understand the intention of my words and asked me. I nodded at her question and opened my mouth to answer.</p>
-<p>,Most superpowered people hide themselves. Especially the dangerous ones go to the dark side of the back alleys or work for PMC like us. Among them, there will be radical and proactive superpowered people who can't stand being sanctioned. Do you think the congressmen who try to pass the law will be safe? Since it's such a high-profile case, the congressmen who pass the law won't be able to hide."</p>
-<p>,You mean there will be terrorism and assassinations."</p>
-<p>Sawayanagi Azuma quickly made a complicated expression and answered me. Terrorism and assassination are wrong, but the results would help Seryu Tai, so Sawayanagi Azuma's feelings seemed complicated.</p>
-<p>,So, what does handsome guy want to do that made you gather us?"</p>
-<p>,Well, I thought everyone would be gathered at the training camp, so I came to talk about how to act until this chaos subsides, but there are many people who are away...."</p>
-<p>At Lianna Holden's question, I answered with a slightly embarrassed expression. Originally, Seryu Tai only had Sawayanagi Azuma, Sawayanagi Tobe, and Lianna Holden, so even if we decided what to do from here, I was worried whether the others would follow.</p>
-<p>,You can decide that among the people here. In Seryu Tai, when there is an important situation and someone is away on a mission, there is a rule that you follow what the highest-ranking person decides."</p>
-<p>Ah, there was such a rule? Then it doesn't matter if there are few people.</p>
-<p>,Actually, what we talked about in this situation was to be a little more careful. From the beginning, we have been operating the PMC while hiding the fact that we have superpowers, and I thought we could just continue to do that."</p>
-<p>,Actually, that's not wrong. There's no need to be a nail that sticks out in a situation like this."</p>
-<p>They've already decided on a course of action, so did I come for nothing? Although that course of action was to do as usual, it wasn't a bad option. Given the personalities of the Seryu Tai people, they couldn't actively do things like assassinations, so doing as usual might be the best thing to do.</p>
-<p>,Then there was no need for me to come to the meeting."</p>
-<p>,No! It was helpful just to have Investor-nim come and tell us what the future will be like."</p>
-<p>Sawayanagi Azuma's ability is in the future prediction category, but it's the ability to see fragmentary scenes or situations, so knowing how the overall situation I told her about would proceed seemed quite helpful.</p>
-<p>,Then let's have a company dinner today. I'll pay."</p>
-<p>,Wow~! Chicken!"</p>
-<p>,Meat, meat!"</p>
-<p>,Alik wants to eat pizza...!"</p>
-<p>At my words, the trainees who had been silent until now shouted and called out the menus they wanted to eat. Sawayanagi Azuma's expression darkened slightly at the sudden company dinner announcement. Um? Is it not time for a company dinner?</p>
-<p>,Azuma-ssi, is a company dinner too much?"</p>
-<p>,It's not that.... Okutama Town is a rural area, so there are stores, but there aren't any really delicious places."</p>
-<p>Ah, that's why her expression wasn't good? She must have wanted to eat something delicious since it's been a long time since we had a company dinner.</p>
-<p>,But there will be chicken places, meat places, and pizza places, so let's eat everything. We can have another company dinner on the day the training ends."</p>
-<p>,Then that would be good. Everyone~! Get ready to go~!"</p>
-<p>Sawayanagi Azuma kindly told the trainees to prepare, like a kindergarten teacher. But the trainees prepared very quickly, as if they had received an order from a very scary superior.</p>
-<p>,They listen very well?"</p>
-<p>,Haha, that's because boss beats the kids up a lot during training!"</p>
-<p>,Lianna!"</p>
-<p>Sawayanagi Azuma shouted at Lianna Holden's words. Unlike her current kind attitude, she was strict during training. That's unexpected.</p>
-<p>,It's not that.... I was a little tougher during training on purpose because I was worried they would ignore me because I'm a woman."</p>
-<p>,Ah, is that so?"</p>
-<p>Hmm, the trainees are full of energy, so they might have ignored the seemingly delicate Sawayanagi Azuma or other female members of Seryu Tai.</p>
-<p>Looking at how quickly they're moving now, it seems that's not the case, fortunately.</p>
-<p>,Let's split up and go by car."</p>
-<p>We booked a large hotel room and split up to pack and buy food. Since there were Sawayanagi Azuma's and Sawayanagi Tobe's cars, we decided to split into three teams to buy the designated food.</p>
-<p>Since we were going to the town, the trainees came down wearing their own style of casual clothes instead of training clothes. I didn't care about the men, but looking at the fashion of the female trainees, Alik was wearing simple denim shorts and a white t-shirt, and Jung Da-rim was wearing a white t-shirt and green overalls, which both suited them quite well.</p>
-<p>Our team was Alik and Jung Da-rim. Sawayanagi Azuma looked like she wanted to ride in my car too, but she couldn't because she had to drive her own car.</p>
-<p>,Okay, our team will buy the pizza that Alik wanted to eat and alcohol and drinks from the convenience store."</p>
-<p>Alik ran up to the passenger seat as I pulled the car out of the parking lot, and Jung Da-rim leisurely got into the back seat.</p>
-<p>,How's the training going for both of you?"</p>
-<p>I asked as I started the car.</p>
-<p>,Training is fun...."</p>
-<p>,I like that there are many plants and trees in this area."</p>
-<p>Alik just said it was fun, and when I asked about the training, Jung Da-rim gave a nonsensical answer that she liked the area because there was a lot of nature. Well, she's always been a bit eccentric. I should just move on.</p>
-<p>,Alik will have to take advanced training after finishing the training... Da-rim, have you thought about what you're going to do?"</p>
-<p>Alik had been wanting to become my exclusive maid since going to the maid cafe, so after receiving Seryu Tai training, she was scheduled to take agent classes with Mimata Chieri and classes from a maid teacher that Mimata Chieri had found.</p>
-<p>Jung Da-rim has a talent for growing plants, so I asked because she had to choose between me setting up a small research lab for her after the training or working at Seryu Tai with the friends she knows.</p>
-<p>,Um, I think the research lab would be better, oppa. Training is fun, but growing plants is more fun."</p>
-<p>I see. She definitely seems to have talent, so I should make her grow a lot of rare medicinal herbs.</p>
-<p>,The seed you gave me grew quite big."</p>
-<p>If it's the seed I gave her, she must be talking about the Juangwa. Jung Da-rim handed me her phone from the back as if to show me. I glanced at the phone while driving and saw a Juangwa vine that had grown more than two spans. It really grew quite a bit?</p>
-<p>If we succeed in cultivating it, it's worth hundreds of millions per seed, so I should hope that it bears fruit well.</p>
-<p>,Great. Tell me if you need anything."</p>
-<p>,Okay, I'll think about it, oppa."</p>
-<p>Hmm, it's nice to hear the word oppa. Most of the women around me are older than me and Japanese, so I didn't have many opportunities to hear the word oppa.</p>
-<p>,Alik, tell me if you need anything too."</p>
-<p>,Alik needs... меч."</p>
-<p>Huh? How am I supposed to understand what you need if you say it in Russian, Alik?</p>
-<p>,That "miechi"? What is that?"</p>
-<p>,меч.... is um, a sword."</p>
-<p>When I asked back, Alik looked up the word on her phone and told me it was a sword. If it's a sword, I have one that I got from Nae Fitzgerald. Nae Fitzgerald will be bringing it to Japan soon.</p>
-<p>,Ah, a sword. If it's a sword, I have one prepared."</p>
-<p>At my words that I had prepared it in advance, Alik slightly opened her small mouth and made a happy expression. And she clung to my arm while I was driving.</p>
-<p>,Ryuta knew what Alik wanted in advance... Alik likes Ryuta."</p>
-<p>,It's good that you like me, but... I'm driving, Alik."</p>
-<p>At my words, she looked at me with innocent eyes, wondering why I was saying that while driving. Well, it doesn't seem like Alik clinging to me will interfere with my driving, so I should just keep driving. She's cute too.</p>
-<p>We arrived at Okutama Town's only pizza place and ordered seven pizzas of various kinds. I asked the other team to order quite a bit since I'm a big eater, so this should be enough, right?</p>
-<p>While the pizza was being made, we went to the convenience store and told Alik and Jung Da-rim to choose whatever they wanted, and they excitedly grabbed shopping baskets and were choosing various things. I put alcohol and drinks in the shopping basket. All the trainees are not adults yet, so I had to buy mainly drinks, so I put in a lot of drinks.</p>
-<p>,I've chosen everything."</p>
-<p>,Me too, oppa."</p>
-<p>They both chose mainly sweet things like jelly and ice cream. While the convenience store clerk was calculating, I picked up a few more snacks and put them on the counter.</p>
-<p>,It's 9,340 yen."</p>
-<p>,Here's my card."</p>
-<p>We bought quite a lot. We went back to the car, picked up the pizza, and headed to the hotel that we had booked in advance through the app.</p>
-<p>----Jung Da-rim. Many of you probably forgot about her ㅋㅋㅋ</p>
+<p>"...That's what happened."</p>
+<p>I told Fujigasaki Rinka about buying Alik and the trainees from the slave traders. Fujigasaki Rinka listened to the story with a serious expression, nodding, and then hugged Alik, who was clinging to my arm.</p>
+<p>"Kyaa, so cute~!"</p>
+<p>"Ugh..."</p>
+<p>Fujigasaki Rinka rubbed her cheek against Alik's and hugged him tightly. Alik frowned as if uncomfortable, but still didn't push Fujigasaki Rinka away and remained still.</p>
+<p>It seemed like he was staying still even though he was uncomfortable because he knew Fujigasaki Rinka was my acquaintance.</p>
+<p>"Ah! Investor-nim! Why did you come all the way to the training center when you could have waited at the pension?"</p>
+<p>Sawayanagi Azuma finished her speech and approached me. She had prepared to go to the pension in advance, as she was somewhat dressed up. However, she was wearing the same green field jacket that Alik was wearing, giving off the feeling that she belonged to the PMC.</p>
+<p>"I thought there might not be enough cars, so I came to help. This person here is my master, Fujigasaki-ssi."</p>
+<p>"Ah, could it be? *The* Fujigasaki-ssi?"</p>
+<p>When I introduced Fujigasaki Rinka, who was still rubbing her cheek against Alik's, Sawayanagi Azuma asked me in surprise. She looked far from dignified enough to be called the world's best fighter, but Sawayanagi Azuma seemed very surprised.</p>
+<p>"You can see for yourself, can't you?"</p>
+<p>"It's my first time seeing such a celebrity in person!"</p>
+<p>It was natural for Sawayanagi Azuma to be surprised. Before my possession, it would be like going to hang out with a friend, and that friend brings Lionel Messi, saying he's my soccer coach.</p>
+<p>However, Sawayanagi Azuma didn't seem to be a fan of Fujigasaki Rinka, so she didn't make a big fuss. She was just surprised to meet a celebrity? Just that much of a reaction.</p>
+<p>"Our disciple invested, I hear?"</p>
+<p>"Yes. It's practically a takeover, but Investor-nim doesn't have the qualifications, so I'm taking responsibility as the CEO instead."</p>
+<p>"I see. This guy is quite a pushover, so please take good care of him."</p>
+<p>Hmm, I don't think I'm a pushover, though. While Sawayanagi Azuma and Fujigasaki Rinka were talking, Alik escaped from Fujigasaki Rinka's arms and hid behind me.</p>
+<p>"Aww! The cutie ran away!"</p>
+<p>"Alik, you're not a cutie. Alik is Alik."</p>
+<p>Leaving Fujigasaki Rinka and Alik bickering behind, Sawayanagi Azuma and Sawayanagi Mikiyo went to get their cars, and in front of us, the trainees who had completed all the training were standing and looking at Fujigasaki Rinka.</p>
+<p>All the trainees had gone through harsh childhoods where things like TVs were luxuries, and they had been sold by their parents to slave traders, so they knew who Fujigasaki Rinka was, but they weren't fans.</p>
+<p>The two executives of Seryu Thai brought the cars, but Sawayanagi Azuma's car was a regular sedan, while Sawayanagi Mikiyo brought a small compact car, so it was clear that if I hadn't come, they would have had to squeeze in with a lot of people.</p>
+<p>It was the last day, so the trunks were full of luggage because they were taking their belongings out of the training center, and they had to put luggage in the passenger area as well, so it would have been even tighter.</p>
+<p>"I'll take Dalim and Alik in my car."</p>
+<p>"Okay, see you at the pension, Investor-nim!"</p>
+<p>Since I had to take responsibility for both of them after the training center life was over, I decided to take them in my car.</p>
+<p>I was planning to send Jung Dalim to university in the form of a donation admission after she finished training. Since she has related characteristics, if she has knowledge learned at university, she will definitely be able to produce good results.</p>
+<p>Alik will be entrusted to Mimata Chieri to take agent lessons. In addition, Mimata Chieri said that she would have him take lessons from a prestigious family that used to be servants of the historic Japanese imperial family, so Alik will be able to become the maid he wants to be.</p>
+<p>I put the three of them in the car and headed to the booked pension. Alik sat in the passenger seat next to me as if fleeing from Fujigasaki Rinka, and Jung Dalim and Fujigasaki Rinka sat in the back seat.</p>
+<p>Fujigasaki Rinka stretched Jung Dalim's cheek and said. Jung Dalim was still entrusting her cheek to Fujigasaki Rinka with a detached expression. As expected, it was a reaction typical of Jung Dalim, who loses interest in anything that isn't a plant.</p>
+<p>"She's cute too?"</p>
+<p>"Master, why do you suddenly like cute things so much?"</p>
+<p>I don't think she used to be like this. The Fujigasaki Rinka I remember was a passionate girl who only knew martial arts, so she's a bit different from now.</p>
+<p>"When you're in nature, you don't see cute things very well. Especially, the more you master Shinkai Yatsude, the more small animals run away from me."</p>
+<p>Certainly, mastering the abyss increases the sense of intimidation. The enemies you face are also terrified. Small animals would feel that dangerous feeling even more strongly. She said she was happy because it was the first time in a long time that she had seen vivid (?) cute things.</p>
+<p>"I think it's over there."</p>
+<p>I pointed to a building that looked like a fairly large Western-style mansion, typical of pensions. There was a path leading down to the valley, and there were several cars parked, so it didn't seem like we were the first to arrive.</p>
+<p>"Welcome, you must be the Seryu Military Company people?"</p>
+<p>When we got out of the car, an elderly couple who seemed to be the owners greeted us. Unlike Korean pensions, where you play and eat on your own, Japanese pensions have a Western-style exterior but feel like hot spring inns.</p>
+<p>I had heard in advance that this pension also had a hot spring bath.</p>
+<p>"Have the other people who made reservations arrived?"</p>
+<p>"Not everyone has arrived, but many have."</p>
+<p>I see. While we were getting out and asking the owners of the pension, the rest of the people who were at the training center also arrived and got out of the cars.</p>
+<p>"Those who arrived earlier are waiting in the common dining room."</p>
+<p>The time we promised to meet was 11 o'clock, so it was getting close to mealtime. We followed the owners to a place called the common dining room, which had several tables and could accommodate up to 30 people, but since the gathering for this outing was about 20 people, it would be quite spacious.</p>
+<p>It seemed that the people who hadn't arrived yet, as the owners had said earlier, were the people from the training center who hadn't arrived yet, because the number of people was just right when we arrived.</p>
+<p>Only one unexpected person had come: Konoe Akina, who was fighting with her uncle to become the head of the Konoe family.</p>
+<p>Since Konoe Akina had been rescued along with the Seryu Thai trainees, it wasn't like there was no connection at all.</p>
+<p>The trainees seemed happy to see Konoe Akina, and they each went up to greet her. Konoe Akina greeted the trainees, who could be called slave trader comrades(?), and also smiled at me. I also nodded slightly at Konoe Akina.</p>
+<p>I took Fujigasaki Rinka to the place where the Seryu Thai people were gathered. I had to introduce Fujigasaki Rinka since she was an uninvited guest. I had told them in advance that my master was coming, but it was polite to say hello.</p>
+<p>"This person who came with me is my master, Fujigasaki Rinka."</p>
+<p>"Kyahaha, nice to meet you."</p>
+<p>As expected, everyone who was introduced was momentarily silent. They seemed flustered because she was such a celebrity.</p>
+<p>"I, I'm a f, fan...!"</p>
+<p>Katayama Junichi, a martial arts enthusiast within Seryu Thai, stuttered and greeted Fujigasaki Rinka. Starting with Katayama Junichi's greeting, the Seryu Thai people rushed at Fujigasaki Rinka, making requests such as "I'm a fan" and "Can I take a picture with you?"</p>
+<p>Since she came without being invited, she had to do this much fan service. I left Fujigasaki Rinka, who was giving me a look that said "help me," and went to Mimata Chieri.</p>
+<p>"Sunbae-nim, you came early? I thought you might be late because of the East Weapon business."</p>
+<p>"Hehe. I'm the president, so I left it to my subordinate."</p>
+<p>While watching Mimata Chieri munch on the pre-meal bread that seemed to have come out in advance and speaking nonchalantly, I wondered if I could really trust this woman with East Weapon.</p>
+<p>But unlike her seemingly easygoing appearance, Mimata Chieri was meticulous, so I thought she must have taken care of everything she had to do and came, and I sat diagonally across from Mimata Chieri.</p>
+<p>"As Hubae-nim said, I've completed the arrangements for Jung Dalim's school. But to enter university with a donation admission, she needs a high school diploma, so I decided to enroll her as a 3rd year, 2nd semester student under a false identity."</p>
+<p>"That school isn't by any chance St. Francis Girls' School, is it?"</p>
+<p>I asked, just in case Jung Dalim would be entering as a 3rd year student that I would be in charge of, and Mimata Chieri shook her head.</p>
+<p>"Ahaha, it would be fun if that were the case, but only girls from truly prestigious families can go there. The minimum is the adopted child of a prestigious family. I couldn't find someone from a prestigious family to be her adoptive parent in this short amount of time."</p>
+<p>Well, if Mimata Chieri's capabilities were enough to get her admitted, it couldn't be the best prestigious girls' school in Japan.</p>
+<p>"I've already bought a small site for the research lab in Chiba. I'm going to ask Jung Dalim-yang what kind of building she wants and build it."</p>
+<p>Since the research lab had been taken care of, there was nothing in particular to worry about. Alik had already been discussed.</p>
+<p>"Benefactor!"</p>
+<p>"It's Konoe-ssi. How have you been?"</p>
+<p>It was Konoe Akina, still calling me her benefactor. It seemed like she had finished greeting the trainees after a long time and had come to greet me.</p>
+<p>"I've been doing well thanks to the people you introduced me to, Benefactor."</p>
+<p>"So...?"</p>
+<p>"Yes, I'm now the head of the Konoe family. My mother will be the acting head until I graduate from school, though."</p>
+<p>It seemed like Konoe Akina had won the battle for the head of the Konoe family. Amazing. To oust her uncle, who had been solidifying his position for a year.</p>
+<p>"Can I sit here?"</p>
+<p>When Konoe Akina pointed to the seat across from me and asked, I nodded. It was just a meal, so she could sit anywhere.</p>
+<p>"Sit wherever you want."</p>
+<p>"Alik is here..."</p>
+<p>When Konoe Akina sat in the seat across from me, Alik took a seat next to me. From afar, Sawayanagi Azuma and Lianna Holden were looking at the seats around me with regretful eyes.</p>
+<p>----</p>
+<p>Unreleased Konoe Akina illustration</p>

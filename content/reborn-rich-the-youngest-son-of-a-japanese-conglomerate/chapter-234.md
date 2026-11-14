@@ -5,86 +5,87 @@ weight = 234
 chapter = 234
 +++
 
-<p>-Alik, I miss Ryuta.</p>
-<p>,I just saw you yesterday. We can see each other again. I'll stop by Seryutai again after going to America.</p>
-<p>-Okay.... It's almost time. I'll hang up now."</p>
-<p>Alexandra received a whopping 3-minute phone call chance today for becoming an outstanding trainee. Is this really the military or something? Only a 3-minute call? Besides, when these kids get a chance to make a phone call, I'm the only person they know, so they only call me.</p>
-<p>Seryutai's planned basic military training was expected to be quite tough as it lasted for a whopping two months.</p>
-<p>After the basic training, the trainees would choose their own mentors and receive training in an apprenticeship style to hone their skills. After going through several actual battles, they would become full-fledged PMC employees.</p>
-<p>,Isn't that Alik kid sticking to Sunbae-nim too much?</p>
-<p>Mimata Chieri asked while sitting on my lap. No, who's the one sticking here? Even if it's an empty office, there are plenty of seats, but sitting on my lap like this is a typical action to express the word 'sticking'.</p>
-<p>,Sunbae-nim is sticking more right now?</p>
-<p>"No way~! I'm different."</p>
-<p>,Sunbae-nim should become Alexandra's mentor and give her some training.</p>
-<p>After the training, Alexandra was supposed to be mentored by Kiyona Mari, a pyrokinesis user with similar abilities using natural power, although not the same ability. However, she wanted to work directly under me instead of Seryutai, so she asked Mimata Chieri to give her more training.</p>
-<p>Although she usually seems a bit ditzy, if Alexandra receives training from Mimata Chieri, who successfully completed the Taira Group's agent training, she will become an excellent combat agent.</p>
-<p>From the beginning, Alexandra's future self, before she met me, is the Cheil Group's secret weapon. I need to keep giving her experience and letting her participate in actual battles to unleash her potential.</p>
-<p>,Haa.... Okay. I'll have to modify the curriculum a bit since she's an ability user.</p>
-<p>,Thank you, Sunbae. But when are you planning to get off my lap?</p>
-<p>,I'm planning to stay here until Arisu-yang comes. I want to teach her the feeling of being NTR'd [Netorare - cuckolded].</p>
-<p>What is she, some kind of NTR evangelist? Mimata Chieri was doing something that ordinary people like me couldn't understand. Speak of the devil, Arisu approached the office where we were sitting.</p>
-<p>She approached Mimata Chieri, who was sitting on my lap and hugging me, put her hands on her waist, and asked with a stern expression.</p>
-<p>,Chieri, what are you doing?!</p>
-<p>,Trying to provoke Arisu-yang's jealousy~.</p>
-<p>I don't know when they became so close, but at some point, they became comfortable talking to each other. Maybe it was because of the 3-on-1 sex they had with Arisu, Mimata Chieri, and Sawayanagi Azuma back then that they became close.</p>
-<p>,I feel sorry for Arisu-yang, who doesn't know the true taste of NTR....</p>
-<p>,I don't need to know that taste for the rest of my life, so get down!</p>
-<p>When Arisu spoke sternly, Mimata Chieri sat on the chair next to me with a sulky expression. Seeing that, Arisu quickly sat on my lap with swift movements.</p>
-<p>,Hehe, Ryuta♥</p>
-<p>,Ah, Aah...!</p>
-<p>Mimata Chieri, seeing Arisu sitting on my lap, made an expression that was hard to tell whether it was sad or happy, an expression that would be highly praised as great acting if an actor did it.</p>
-<p>,When did you two become so close?</p>
-<p>,We became friends by often using Line after Ryuta went to Korea. Recently, the three of us, including Sayaka, met up and hung out.</p>
-<p>Yeah, I thought it was strange. Mimata Chieri suddenly came and said she would go to America with me, and I wondered if Arisu would allow it, but she said she had already received permission. There was an untold story of the three of them, including Hanasaki Sayaka, becoming friends....</p>
-<p>For reference, Hanasaki Sayaka said that she would join us when we went to LA in America. When I said I was going to see my master, Fujigasaki Rinka, she begged me and Arisu to allow her to accompany us. Coming all the way to America, she really has amazing fan loyalty.</p>
-<p>,I have a schedule too, so Ryuta will be bored and won't be able to communicate while I'm gone. So, I decided to go with Chieri as an interpreter.</p>
-<p>Well, since I hardly know any English, I can use a translation app when Arisu is away due to her schedule, but it would be nice to have someone who can translate right away. But did Mimata Chieri speak English well?</p>
-<p>,But are you good at English, Sunbae-nim?</p>
-<p>,No, Hubae-nim! If you're going to enter the Talent Development Institute, you need to know at least one or two foreign languages. Unlike Hubae-nim, who came in through connections, like a parachute.</p>
-<p>No, Mimata Chieri also came to the Talent Development Institute to observe me with Chairman Taira Danjo's backing. I looked at Mimata Chieri with a dumbfounded expression and turned on the standby screen of my smartphone to check the time. It was almost time to leave.</p>
-<p>,Let's go to the airport now.</p>
-<p>,Yeah, let's go quickly!</p>
-<p>I and Mimata Chieri would go in one car, and Arisu had to go separately in the car of the manager assigned by her agency.</p>
-<p>After going to the airport from the East Weapon headquarters building, we spent some time in the first-class lounge and then boarded the plane. Thanks to technological advancements, the speed of passenger planes has increased significantly, reducing the time from Tokyo to New York to about 8 hours, but it was still a long time.</p>
-<p>There were many things to do during the 8 hours. I could eat in-flight meals, check the schedule in New York, and watch a movie if I was bored.</p>
-<p>,New York....</p>
-<p>New York is not the main stage for the youngest son of Megacorp. It was one of the main stages of TMC, which depicted the future era of the youngest son of Megacorp, the previous work.</p>
-<p>New York itself was not an old city compared to the ancient capitals around the world, but through the American Dream and several world wars, numerous people and races flowed in from Europe, Asia, and Africa, which had become the stages of war.</p>
-<p>The problem was that some of the people who flowed in were exiled magicians, mad scientists conducting human experiments, fanatics believing in strange gods, and cannibals addicted to human flesh. Furthermore, non-human beings were mixed in among the humans, forming the city of New York.</p>
-<p>In addition, with the gangs armed with guns supplied by the military-industrial complex and the police cracking down hard, it was a city that could be called a demon metropolis. New York was a city where hundreds of people went missing every day, and a significant number were found dead.</p>
-<p>Well, for me, TMC and the youngest son of Megacorp, most of them are chunks of experience and pieces of hidden pieces, so I should take good care of them while I'm in New York. I won't even go near dangerous guys at my current level, though.</p>
-<p>I ate in-flight meals, thought about the items and benefits I could get in New York, and with some time left, I took a picture of the sky through the window. Then I uploaded it to the group Line chat room of Kazuhiro and Kiyohira.</p>
-<p>Ryuta: Photo</p>
-<p>Ryuta: Going to America.</p>
-<p>Kiyohira: Oh, are you coming to America?</p>
-<p>Kazuhiro: Hyung-nim, are you going to New York? I saw on the news that there are gunfights between Chinese gangs these days, so be careful.</p>
-<p>Was there such news? If it's a Chinese gang, it couldn't be Kurotsuki, could it? Well, even if it is, it's just a power struggle among themselves, so it won't affect me.</p>
-<p>Ryuta: They're just having gunfights among themselves, so how could it be dangerous for me?</p>
-<p>Kiyohira: More than that, the slut is coming, so American women should be careful.</p>
-<p>Kazuhiro: Well, yeah. Hyung-nim is coming to bomb again.</p>
-<p>Ryuta: I'm coming with Arisu, so don't talk nonsense....</p>
-<p>Once I get a slut image, these guys extract the broth to the bone and make jokes. Arisu, who has the pinnacle of Western appearance, is next to me, so would I look at other women?</p>
-<p>.</p>
-<p>.</p>
-<p>.</p>
-<p>,Arisu~!</p>
-<p>,Mom~!</p>
-<p>Arisu's mother and my aunt, Nae Fitzgerald, was waiting for us at the airport. She was a Japanese-Western half, but she was a beautiful woman who resembled Arisu, who was closer to Western in appearance.</p>
-<p>The differences from Arisu were that she had bigger breasts, brighter platinum blonde hair than Arisu, and her eye color was a bit brighter than Arisu's deep green eyes.</p>
-<p>Anyway, the scene of the beautiful blonde mother and daughter hugging each other was quite picturesque, so people passing by at the airport glanced at the two of them at least once. After their greetings were over, Nae Fitzgerald noticed my presence and looked at me.</p>
-<p>,Oh my, Ryuta!</p>
-<p>,Hello, Aunt.</p>
-<p>,What 'Aunt'? Just call me Nae-ssi. And who is this?</p>
-<p>,Hello, I'm Mimata Chieri, Ryuta-nim's interpreter and Arisu's friend.</p>
-<p>,Oh my, Arisu's friend?</p>
-<p>Everyone introduced themselves, but there was one strange thing. Nae Fitzgerald also had a large carrier next to her. Wasn't she here to pick up Arisu? Where is she going?</p>
-<p>,Where are you going?</p>
-<p>,Ah, no. I just came to New York from France and was waiting for you guys~.</p>
-<p>Ah, she was in France. It seemed like she had adjusted her flight time to meet her daughter and waited to go home together.</p>
-<p>,Okay, let's go home and talk. The car will probably be there.</p>
-<p>We were guided by Nae Fitzgerald and went outside the airport, where a limousine was indeed waiting for us. A man who looked like a butler with gray hair was waiting for us in the limousine.</p>
-<p>,There was no need for the butler-nim to come in person.</p>
-<p>,You're both coming together, so I had to come. The young lady's friends are also here....</p>
-<p>Ah, he really was a butler. We loaded our luggage and then took the limousine to the Fitzgerald family's mansion.</p>
-<p>-----</p>
-<p>Arisu also gets a chapter for the first time in a while for comparison with Arisu!</p>
+<p>As the Nameless Ghoul and all traces related to it vanished due to the offering magic circle dedicated to the Daughter of the Abyss, everyone except Mimata Chieri, who knew my abilities to some extent, looked at me in surprise. But I didn't pay attention to their gazes and picked up something black that remained where the Nameless Ghoul had disappeared.</p>
+<p>It seemed that after offering tributes all this time, a gift had finally arrived from the Daughter of the Abyss. The offering I sent this time was quite rare. I sent the spiritual body of a necromancer who had lived for hundreds of years, the armor of a Death Knight, and a high-level weapon, a giant scythe, as a heaping bowl, so the Daughter of the Abyss must have been pleased.</p>
+<p>What I received was a black, glossy metal bracelet. But what's with the bracelet? When I focused my mind on the bracelet, an information window popped up.</p>
+<p>◆Battle Gear of the Abyss Consort [Legendary Armor]</p>
+<p>Equipment in the form of a bracelet made with love by the Daughter of the Abyss. When a certain amount of Abyss is infused, it transforms into black armor that covers the entire body. It was made by reforging the armor worn by a Death Knight with the pressure of the Abyss.</p>
+<p>It has powerful defense and additional performance related to the Abyss.</p>
+<p>Upon Armor Transformation</p>
+<p>●Base Defense + (Abyss + Resistance) X 75 percent additional defense.</p>
+<p>●The efficiency of Abyss stats is greatly increased, and the coefficient of Abyss-related skills is increased.</p>
+<p>●Abyss+5 Strength+3 Agility+3 Nerve+3</p>
+<p>●Immunity to Abyss stat side effects while wearing the armor.</p>
+<p>The bracelet that the Daughter of the Abyss sent as a reward for the offering was a legendary transformation armor! A legendary equipment that can transform... Amazing, Daughter of the Abyss?</p>
+<p>Reading the description, it seemed like it was made by reforging the Death Knight's armor from the offerings I sent.</p>
+<p>The options, such as the efficiency of Abyss stats or the increase in Abyss skill coefficients, weren't given in exact numbers, so I didn't know for sure, but the stats given were incredibly generous. A total of 14 stats combined. It was an amount that would require raising 7 levels.</p>
+<p>Since Abyss stat was attached with 5, I thought I wouldn't be able to use it because of the side effects, but looking at the next line, the meticulous Daughter of the Abyss had attached side effect immunity, so it seemed like I could use it well. Still, it seemed like offering tributes from time to time was being rewarded with such good items.</p>
+<p>I was very surprised by the bracelet's options, but I didn't show it and nonchalantly put on the bracelet. And I looked at Otagi Yuka.</p>
+<p>"Otagi-ssi, what are you going to do now?"</p>
+<p>Otagi Yuka, who had been thinking for a moment at my question, soon opened her mouth.</p>
+<p>"Now that the obstacle is gone, I guess I should go meet the Kurotsukido New York branch manager. I can finally avenge Mariko."</p>
+<p>Otagi Yuka seemed very moved that her year-long revenge was finally coming to an end. Mariko must be her friend's name. She put the golden sword on her shoulder and was about to leave the museum, passing by me, but she turned around and looked at me.</p>
+<p>"Oh, right! Thanks for the help. I'll help you anytime if you contact me."</p>
+<p>"Okay, finish the fight with the branch manager well."</p>
+<p>Actually, I participated to save the Fitzgerald mother and daughter, but as a result, I helped her. The help of Otagi Yuka, a vampire, will be useful someday. After watching Yuka, who greeted me and left the museum, I turned my head and looked at the Fitzgerald mother and daughter.</p>
+<p>"Did you steal everything you wanted to steal?"</p>
+<p>"Ah, no...!?"</p>
+<p>Arisu, in her thief version, who was flustered by my friendly question as if asking if she had eaten lunch, stuttered slightly as she answered.</p>
+<p>"Hurry up and go, I'll be waiting here."</p>
+<p>"Why are you waiting for us?"</p>
+<p>Nae Fitzgerald, in her thief version, asked with a puzzled voice. Isn't it too obvious? Or did she steal too many things and can't remember?</p>
+<p>"When I was doing my mission before, you stole something we had to protect. I'm going to punish you a bit for that."</p>
+<p>"Ah! I remember too, Hubae-nim! At that time, when we were fighting hard against the intruders in the lab, you sneakily stole the data!"</p>
+<p>When I said that, Mimata Chieri also seemed to remember, clapping her hands and shouting while pointing at the Fitzgerald mother and daughter.</p>
+<p>"No, they might run away, so let's just go together."</p>
+<p>I quickly canceled the waiting and approached the Fitzgerald mother and daughter. Since Mimata Chieri also approached with a gun pointed at them, the two sighed as if they couldn't help it and nodded.</p>
+<p>"First, the police will come again soon, so let's quickly pack our things and leave."</p>
+<p>It seemed that they chose to leave the museum quickly rather than arguing with me. The Fitzgerald mother and daughter stole a few things on the first floor and headed to the third floor with me and Mimata Chieri. On the third floor, there was a duffel bag containing things they had stolen from other floors in advance.</p>
+<p>I put the duffel bag on my back and held Arisu and Nae Fitzgerald on each side.</p>
+<p>"Kyaa!"</p>
+<p>"Ah, nooo♥"</p>
+<p>For reference, the person who said "ah, nooo♥" was Nae Fitzgerald. I'm catching her, so why is she making such a seductive sound? Looking at her face, she was even smiling.</p>
+<p>I ran to the open window and went down the wall with the two of them. The sound of sirens getting closer from afar meant the police were coming. So I had to escape as quickly as possible.</p>
+<p>###</p>
+<p>Even while being attacked by the Nameless Squad, Otagi Yuka was constantly asking Eve to find the location of the New York branch manager, Jackson Shaw. If she defeated the Nameless Squad, Jackson Shaw would know that fact and run away, so she had to go to Jackson Shaw before the news that the Nameless Squad had been neutralized was delivered.</p>
+<p>"Otagi-ssi, what are you going to do now?"</p>
+<p>The man who defeated the Nameless Ghoul with tremendous martial arts and even made its traces disappear with some kind of sorcery, Taira Ryuta, asked. Otagi Yuka answered immediately. She already knew where the New York branch manager, Jackson Shaw, was staying, so she couldn't waste any more time.</p>
+<p>"Now that the obstacle is gone, I guess I should go meet the Kurotsukido New York branch manager. I can finally avenge Mariko."</p>
+<p>It had been a year since she came to the United States alone to avenge her close friend, Takasugi Mariko. She was finally able to take revenge. Perhaps because of the past year she had lived for revenge, Otagi Yuka's heart had already become a Yaksha. The only thing that could relieve Otagi Yuka's anger was Kurotsukido New York branch manager, Jackson Shaw.</p>
+<p>As she was about to pass by Taira Ryuta and go outside, she suddenly smelled a good scent. The source of the scent was Taira Ryuta.</p>
+<p>'He smells good, what kind of perfume is he using?'</p>
+<p>She laughed at herself for thinking this even though she was about to take revenge, but Otagi Yuka suddenly realized that she hadn't thanked Taira Ryuta.</p>
+<p>If Taira Ryuta hadn't been there, Otagi Yuka herself would have been coldly cooling down in the museum like the corpses of the Nameless Squad. Or she would have been treated more miserably as a corpse by the Nameless Ghoul.</p>
+<p>"Oh, right! Thanks for the help. I'll help you anytime if you contact me."</p>
+<p>"Okay, finish the fight with the branch manager well."</p>
+<p>When she turned her body slightly and thanked him, Taira Ryuta smiled slightly and nodded. For a moment, her heart thumped loudly!</p>
+<p>Otagi Yuka didn't know what the feeling she felt was yet. She was embarrassed to show her somehow reddened face, so she just turned her body back and left the museum.</p>
+<p>Otagi Yuka, who came out of the museum, took the motorcycle parked nearby and headed to Jackson Shaw's hideout, which she had found out in advance. Jackson Shaw's hideout was a luxury villa in Manhattan.</p>
+<p>They must be living in such luxury villas with the wealth made from the sacrifices of victims like her friend Mariko. Otagi Yuka entered room 501 on the 5th floor according to the address she received from Eve. No matter how tightly the door was locked, it was useless to Otagi Yuka, who could turn into a red mist.</p>
+<p>Otagi Yuka seeped into the room and headed to the bedroom where she heard a soft snoring sound. Jackson Shaw was fast asleep on a king-size bed. It was late dawn, so she thought he would be asleep.</p>
+<p>Slap! Slap!</p>
+<p>Otagi Yuka slapped the sleeping Jackson Shaw hard on the cheek to wake him up. Jackson Shaw didn't get the position of New York branch manager for free, so as soon as he was slapped, he grabbed the gun placed on the bedside table next to the bed.</p>
+<p>Swaaack!</p>
+<p>However, he couldn't shoot Otagi Yuka because of the golden sword that was swung in an instant. He couldn't shoot because his wrist was cut off while holding the gun.</p>
+<p>"Kua...!"</p>
+<p>"Shh!"</p>
+<p>Otagi Yuka covered Jackson Shaw's mouth, who was about to scream, and put her index finger to her lips, telling him to be quiet.</p>
+<p>"I want to give you as much pain as possible before I end it... But the person next door will wake up because of your screams. I'll end it quickly."</p>
+<p>"Kueuk.... Why, why! Why are you doing this?"</p>
+<p>From Jackson Shaw's point of view, he wouldn't even know why Otagi Yuka was attacking him. Of course, he would guess, since he had caused pain to countless people.</p>
+<p>"You killed my friend. Even if you didn't kill her directly."</p>
+<p>"Just a friend...?"</p>
+<p>Just a friend! Otagi Yuka felt anger that made her see red at Jackson Shaw's words.</p>
+<p>"Yes, you can say just a friend. I guess it's okay for me to cut off just your arms and legs?"</p>
+<p>Otagi Yuka covered Jackson Shaw's mouth again and cut off the rest of his arms and legs with the golden sword, except for his right arm, which had his wrist cut off.</p>
+<p>"Kkeu...! Kkeueu...!"</p>
+<p>Jackson Shaw rolled his eyes and struggled in tremendous pain. Otagi Yuka continued to cover Jackson Shaw's mouth and watched Jackson Shaw feel the pain.</p>
+<p>And just before Jackson Shaw died from excessive bleeding, she cut off his neck to finish him off. Although it was excessive bleeding caused by herself, she wanted to finish it with her own hands.</p>
+<p>Otagi Yuka got up from her seat. And she took out all of Jackson Shaw's blood that was all over her body with the blood domination power unique to vampires. If someone saw her, they wouldn't believe that she was the one who murdered someone with a knife 30 seconds ago, as her clothes were spotless.</p>
+<p>"Let's go home now."</p>
+<p>As someone said somewhere, revenge was futile. But it was also something that had to be done. Otagi Yuka left Jackson Shaw's house to say goodbye to Eve. It was time to go back to Japan, where her parents were waiting.</p>
+<p>'Wouldn't I be able to meet Taira Ryuta again in Japan?'</p>
+<p>She suddenly had such a lewd thought, but Otagi Yuka shook her head and blew that thought away.</p>
+<p>----</p>
+<p>What Otagi Yuka will do in Japan.</p>
+<p>Becoming a 20-year-old student!</p>

@@ -5,104 +5,90 @@ weight = 301
 chapter = 301
 +++
 
-<p>I woke up to the sound of snoring. Lianna Holden was using my left arm as a pillow, snoring softly. On my right, Sawayanagi Azuma was sleeping soundly, and Mimata Chieri was curled up at my feet. What is she, a cat...?</p>
-<p>I found my phone and saw that it was already 11 o'clock. It was about time to gather for lunch. I guess I got a decent amount of sleep since I was fucking until sunrise today.</p>
-<p>Everyone seemed to be slowly waking up as I fidgeted to look at my phone.</p>
-<p>"Haaam...! Seeing honey's face from the morning makes me horny."</p>
-<p>I chuckled at Lianna Holden's old man-like comment. Sawayanagi Azuma also stood up and stretched her arms to the sky, and Mimata Chieri stretched in a cat-like pose. Did she hear me call her a cat earlier? That's amazing.</p>
-<p>"We'll go down first, so Investor-nim, please come down a little later."</p>
-<p>The three of them left the room, and I also got up and stretched. Then I went to the bathroom to wash up and went down to the dining hall.</p>
-<p>Everyone seemed to have drunk a lot yesterday and had a bad hangover, with messy hair and touching their heads because of headaches.</p>
-<p>"Ryuta, you're such a late sleeper."</p>
-<p>"Haha, sorry, I drank a lot yesterday."</p>
-<p>Alik, who hadn't drunk at all yesterday, scolded me for sleeping in, looking perfectly fine. I smiled and stroked Alik's head.</p>
-<p>Alik seemed to enjoy being petted, closing his eyes and enjoying my touch.</p>
-<p>"This little cat named Alik is quite agile. I gave him some pointers during morning training."</p>
-<p>Fujigasaki Rinka, wearing a tracksuit, came into the dining hall while talking to me. She seemed to have washed up after morning training, shaking her hair with a towel as she came in. She shook her head so vigorously that water droplets splashed on me.</p>
-<p>"Ah, you're splashing everywhere, Master! Dry off before you come!"</p>
-<p>"Kyahaha! Think of it as this Master's droplets of love!"</p>
-<p>"What the hell are droplets of love?"</p>
-<p>Anyway, Fujigasaki Rinka giving Alik training meant that Alik had some talent.</p>
-<p>While I was talking with Fujigasaki Rinka, everyone gathered in the dining hall, and for lunch, we had ochazuke, a dish eaten in Japan to cure hangovers. It was topped with luxurious toppings such as umeboshi, salmon, pollack roe, and katsuobushi.</p>
-<p>Of course, since I wasn't drunk, I quickly finished my ochazuke and got another bowl from the guesthouse owner. I had to replenish my calories since I had been moving my waist non-stop from last night until dawn.</p>
-<p>"After finishing your meal, rest for about thirty minutes, and then we'll play in the valley today. If you're going to play in the water, wear your swimsuits."</p>
-<p>Sawayanagi Azuma announces today's schedule and goes up to her room. She's probably going to change into her swimsuit. I'm going to get an eyeful today.</p>
-<p>I also went up to my room, put on the trunk-type swimsuit I wore on vacation with Yukiko, and came outside.</p>
-<p>When I went down to the valley, there were several people playing in the water because it was a summer Sunday.</p>
-<p>"Ryuta~!"</p>
-<p>Alik, wearing a one-piece swimsuit, ran to me. Alik was wearing a navy blue one-piece swimsuit with a design like a school swimsuit, and he had a surprisingly voluptuous figure. I could feel him slowly growing. I didn't raise him, but I felt proud to see him growing up.</p>
-<p>"Mari-chan chose it for me."</p>
-<p>"It's pretty, Alik."</p>
-<p>"...Ryuta is pretty too."</p>
-<p>Alik said, turning around in front of me. It was indeed a swimsuit that suited the cute Alik. He was very happy when I said it suited him well.</p>
-<p>Kiyona Mari seemed to be no exception, coming down with her sister Kiyona Hori when her story came up.</p>
-<p>The Kiyona Hori and Mari sisters, in their gothic lolita style with lace, were wearing white and black swimsuits, respectively.</p>
-<p>Well, they were wearing things that suited them, probably because they were interested in fashion. Kiyona Hori's chest size was overwhelming, but Kiyona Mari was also wearing a swimsuit that suited her.</p>
-<p>"I-It's not like I wore it for the investor...!"</p>
-<p>"How is it, Investor-nim?"</p>
-<p>"You both look great."</p>
-<p>I gave the two sisters a thumbs up and told them they looked great. They blushed and liked my compliment.</p>
-<p>Soon after, Mimata Chieri, in a red bikini that matched her orange hair, and Sawayanagi Azuma, in a green bikini, came down.</p>
-<p>Of course, men came down in between, but I didn't have enough time to describe the men's swimsuits, so I just skipped it.</p>
-<p>"Ehehe, Ryuta-nim...!"</p>
-<p>Konoe Akina came down wearing a white bikini, hooked her arm around mine, and pressed her chest against me. Is it okay for a virgin to provoke like this? Especially the head of a family who is responsible for a whole family.</p>
-<p>"Konoe-ssi, it suits you well?"</p>
-<p>"Ehehe...!"</p>
-<p>Konoe Akina put her hands on both cheeks and liked my compliment. Soon, Fujigasaki Rinka came down to the valley with a can of beer in one hand, making a "kyahaha" sound.</p>
-<p>She was wearing a black bikini top and short jeans, and the serious wound from yesterday was gone without a single bruise.</p>
-<p>"Master, you're all right?"</p>
-<p>"I was suppressing my recovery to instill a sense of alertness in you. Did you think I would be defeated by a mere disciple of Takakusaki Gengo? Not even Gengo himself."</p>
-<p>Suppressing recovery, what kind of realm is that? Even I, who has a trait, can't suppress regeneration even for a moment.</p>
-<p>"It suits you well, Master. A bikini is definitely better than bruises, definitely."</p>
-<p>"This guy, he says everything to his Master!"</p>
-<p>Fujigasaki Rinka punches my abdomen with a "pang!" Fujigasaki Rinka's fist strike contained tremendous power, shaking my internal organs, and even though I was hit in the stomach, my back strangely hurt.</p>
-<p>"Oh! Ryuta-nim! There's a fist mark on your back...!"</p>
-<p>"Ryuta, are you okay?"</p>
-<p>Of course, the fist mark will disappear quickly because of regeneration, but making a mark on my back when I was hit in the stomach seemed to be due to her almost divine skill.</p>
-<p>"Honey!"</p>
-<p>Lianna Holden, wearing a bikini in the style of the American flag, made a grand entrance, and Sawayanagi Seari, wearing a white one-piece swimsuit in contrast to Alik, came down to the valley, blushing shyly.</p>
-<p>Unfortunately, sniper Sawayanagi Mikiyo came wearing a rash guard, and Jung Da-rim, the last of the women, was wearing a swimsuit but seemed uninterested in playing in the water, wearing Seryutai's green field jacket.</p>
-<p>I think she'll probably look at the grass around the valley and play. I hope she finds some good medicinal herbs.</p>
-<p>"Those who want to play in the water, play in the water, and everyone have fun~!"</p>
-<p>"Yay~!"</p>
-<p>At Sawayanagi Azuma's words, everyone went into the water, or some of the men approached the female tourists who were already playing in the water and were flirting with them. Since they were all PMC agents, they had good bodies and seemed to be doing well with the women.</p>
-<p>"Kyahaha! Come at me!"</p>
-<p>Fujigasaki Rinka was playing in the water, splashing water without distinguishing between friend and foe, and the water that Fujigasaki Rinka splashed was so stinging that it seemed to contain energy.</p>
-<p>"Ouch!"</p>
-<p>"Please be gentle, Rinka-ssi!"</p>
-<p>"Kyahahaha!"</p>
-<p>It's good that you're excited to come and play, but isn't this too much? Now that it's come to this, I have to splash water too. I put the abyss into it and splashed it at Fujigasaki Rinka with a *chwaak*.</p>
-<p>Puhwaaaak!!!</p>
-<p>The water was splashed at Fujigasaki Rinka more strongly than I thought. It was powerful enough to make Fujigasaki Rinka stagger, who hadn't prepared for it.</p>
-<p>I was a little scared too, but fortunately, Fujigasaki Rinka still had a playful look on her face, so I breathed a sigh of relief.</p>
-<p>"Ryu-ta! You dare...!"</p>
-<p>"Master did it too!"</p>
-<p>After that, we splashed water like crazy. Fujigasaki Rinka also seemed to have come to her senses from my attack, and I could feel her adjusting her strength. Of course, she shot very strongly when she shot water at me.</p>
-<p>After playing in the water for a while, Alik was hit by Fujigasaki Rinka's water stream, which was aimed at me, and Alik was pushed back by the water stream and fell.</p>
-<p>"Alik~! Are you okay?"</p>
-<p>"Uung...! I'm okay, Ryuta."</p>
-<p>He said he was okay, but Alik was breathing heavily, as if he was a little upset. Alik didn't splash water at Fujigasaki Rinka, but ran at her and made a melee attack.</p>
-<p>"What, you little cat! You have to use water, not your body!"</p>
-<p>Visible sparks of electricity crackled from Alik's body, which was clinging to Fujigasaki Rinka's body.</p>
-<p>"Uaaa,aa,aa,aa,aa!"</p>
-<p>Fujigasaki Rinka was electrocuted and trembled as electricity flowed through her body from Alik's *pajik pajik*. The problem was that this was in the water of the valley, and we were gathered around it.</p>
-<p>Except for me, who had resistance to abnormal conditions, everyone was electrocuted and floated on the water.</p>
-<p>Fortunately or unfortunately, the tourists who came to the valley seemed to be far away, so they weren't electrocuted.</p>
-<p>"Ah...!"</p>
-<p>Alik seemed to be flustered when he looked around and saw everyone collapsed.</p>
-<p>"Let's get everyone out of here first."</p>
-<p>"Okay...."</p>
-<p>Fortunately, Alik didn't use his full power, so no one was seriously injured. They were just surprised by the sudden electric shock.</p>
-<p>After putting everyone on the rocks of the valley, they regained consciousness one by one. Of course, Fujigasaki Rinka was the first to regain consciousness and shouted at Alik.</p>
-<p>"You little cat! Do you want to be punished?"</p>
-<p>"I'm sorry...."</p>
-<p>When the rest of the people regained consciousness, Alik bowed his head and apologized to everyone. The Seryutai people had experienced this kind of thing since they were young, so they all understood.</p>
-<p>-----</p>
-<p>Swimsuit illustrations of the remaining members!</p>
-<p>Jung Da-rim</p>
-<p>Lianna Holden</p>
-<p>Sawayanagi Mikiyo</p>
-<p>Mimata Chieri</p>
-<p>Sawayanagi Seari</p>
-<p>Sawayanagi Azuma</p>
-<p>Alik</p>
+<p>"Eve!! Again! Again! Again! You're wearing something slutty, aren't you?"</p>
+<p>After the meeting, Han Yu-gyeong shouted at Eve. During the meeting, she felt Jin Yong-tae was subtly glancing at Eve's cleavage.</p>
+<p>"I'm an AI who doesn't know anything? What's a slutty outfit?"</p>
+<p>Eve asked Han Yu-gyeong, spinning around and pretending not to know. Hearing Eve's words, Han Yu-gyeong's face turned red, but she soon sighed.</p>
+<p>"Haa... I'll be patient. I have things to do right now."</p>
+<p>Han Yu-gyeong didn't have many friends. Her close friend was Son Na-ri, who also attended Korea University.</p>
+<p>But after meeting Eve in Tokyo, they had been meeting and talking about business, so Eve had become someone Han Yu-gyeong could call a friend.</p>
+<p>"Do you want me to help?"</p>
+<p>"No. It's something I can do alone."</p>
+<p>Han Yu-gyeong said as she got up from her seat. Of course, Han Yu-gyeong knew that if Eve helped, things would be much easier. Information power, endless technology, even merchants in the shadows... If she borrowed Eve's power, she could finish it quickly.</p>
+<p>But Han Yu-gyeong decided not to borrow Eve's power. This was about killing someone. She thought she had to bear this burden herself, so she decided not to borrow Eve's hand.</p>
+<p>Of course, if it was impossible for Han Yu-gyeong to do it alone, she might have asked for help, but this time it was something Han Yu-gyeong could do sufficiently with herself and her own power.</p>
+<p>"But if it's hard, tell me. I'll help you anytime."</p>
+<p>At Eve's words that she would help anytime, Han Yu-gyeong chuckled and nodded, leaving the dark market.</p>
+<p>Coming out of the dark market's Seoul branch, it was a secluded bathroom at the entrance of Korea University Station. Han Yu-gyeong left the subway and headed to where Dickson was waiting.</p>
+<p>"Have you returned?"</p>
+<p>"Yes, Dickson. Please go to this address."</p>
+<p>Han Yu-gyeong showed Dickson the address of a parking lot near Assemblyman Choi Seok-hoon's house, which she had searched in advance.</p>
+<p>"We'll arrive in 15 minutes."</p>
+<p>At Dickson's words, Han Yu-gyeong summoned White Bear to the passenger seat. Even though a white dog the size of a calf was summoned, Dickson drove without being surprised, as if it happened often.</p>
+<p>"Hek hek hek...!"</p>
+<p>"You're not hungry, are you?"</p>
+<p>"Woof!"</p>
+<p>Han Yu-gyeong stroked White Bear. First, she was going to pretend to walk White Bear and look at the surrounding situation.</p>
+<p>"We've arrived."</p>
+<p>"Yes, I'll be back."</p>
+<p>Han Yu-gyeong put a leash on White Bear and got out of the car. White Bear could increase and decrease its size to some extent, so White Bear reduced its body to a suitable size instead of the size of a calf.</p>
+<p>"Okay, let's go."</p>
+<p>Han Yu-gyeong grabbed White Bear's leash and started walking around the neighborhood. She saw the house of Assemblyman Choi Seok-hoon, who insisted on suppressing espers. As befitting a five-term assemblyman, it was a very large mansion. Moreover, there were CCTV cameras everywhere, so it seemed difficult to break in.</p>
+<p>"It's impossible for me to break in directly."</p>
+<p>The fence was also high, so it seemed a bit difficult to break in with Han Yu-gyeong's physical abilities. Han Yu-gyeong squatted down and pretended to give White Bear water.</p>
+<p>"Oh my, the puppy is cute."</p>
+<p>"Thank you."</p>
+<p>A middle-aged woman and a student who looked like her daughter approached White Bear while walking down the street. Han Yu-gyeong was not at all flustered. The two were so focused on looking at White Bear that they didn't notice Han Yu-gyeong's shadow growing.</p>
+<p>Han Yu-gyeong's elongated shadow crossed the fence and entered Choi Seok-hoon's house. Only Han Yu-gyeong knew that.</p>
+<p>'Please, Nero.'</p>
+<p>Han Yu-gyeong asked her summon, the shadow panther Nero, for a favor and talked with the women who were praising White Bear. They would prove her alibi.</p>
+<p>###</p>
+<p>-Assemblyman Choi Seok-hoon was found dead. The cause of death was a stab wound, as if he had been stabbed by something....</p>
+<p>I lay down and watched the news while fondling Ha Ju-yoon's breasts. I kissed Ha Ju-yoon.</p>
+<p>Ha Ju-yoon-ssi's daughter did a good job, so I was thinking of giving her some morning service.</p>
+<p>"Euum... Did you sleep well?"</p>
+<p>"Yes. I slept well because I slept in Nuna's arms."</p>
+<p>"You~"</p>
+<p>Chup chup, tsu-eup...!</p>
+<p>While I was kissing Ha Ju-yoon, the sound kept coming from the TV.</p>
+<p>-Assemblyman Choi Seok-hoon, a five-term assemblyman, recently proposed a law to limit the powers of espers after the Dignity Health Park disaster in the United States....</p>
+<p>Ha Ju-yoon must have heard the broadcast, because she widened her eyes while kissing. When I asked her why, Ha Ju-yoon opened her mouth with a slightly hesitant attitude.</p>
+<p>"That old man was the one who kept hitting on me, saying he would sponsor me. More like a grandpa than an old man... Don't misunderstand! I didn't do anything like sponsorship."</p>
+<p>Listening to the story, Choi Seok-hoon approached her when she was having a hard time after being disowned by the Shin-gang Group. Ha Ju-yoon refused, but he kept offering sponsorship. Hmm, there was one more reason to die. Good kill.</p>
+<p>If you think about it, the daughter, Han Yu-gyeong, killed the enemy who harassed her mother.</p>
+<p>"Good riddance. How dare he hit on my woman."</p>
+<p>"Haa-eung...♥ If you say things like that, I'll get excited from the morning...!"</p>
+<p>Ha Ju-yoon, excited by the words "my woman," hugged me, and just as we were about to mix our bodies together, someone knocked loudly on the door.</p>
+<p>"You know Ryuta is mine from this morning, right?"</p>
+<p>It was Nae Fitzgerald's voice. She must have approached stealthily and knocked on the door when she saw signs that we were going to have sex.</p>
+<p>"Unni, let's do it together."</p>
+<p>"Shall we~?"</p>
+<p>At Ha Ju-yoon's suggestion, Nae Fitzgerald opened the door and came in. She was smiling broadly, excited at the thought of having sex with me from the morning.</p>
+<p>I'm going to exercise from the morning. If I do it with these two, Yukiko will definitely join in.</p>
+<p>###</p>
+<p>"Keueuht! I'm going to cum inside...!"</p>
+<p>"Heuu-hang...! It's hot...♥"</p>
+<p>"Put it in me next, Yong-tae-yaa♡"</p>
+<p>This was a disabled toilet at the airport. Ha Ju-yoon and Nae Fitzgerald had come to the airport to take a plane to Korea to finalize the contract, but before getting on the plane, they seduced me and had sex in the bathroom.</p>
+<p>It was strange that they told me to go earlier than I had booked, but it seemed like it was to have sex at the airport. Nae Fitzgerald was trembling, semen dripping from her pussy, and Ha Ju-yoon was also showing her pussy with semen dripping, asking me to put my dick in.</p>
+<p>I wanted to put my dick in Ha Ju-yoon's pussy right away and refill it with semen, but I couldn't because of the flight time.</p>
+<p>"Ju-yoon Nuna. This is already the third time. And we'll be late if we don't leave now."</p>
+<p>"Oh, that's right. I have to catch the plane...!"</p>
+<p>Ha Ju-yoon clapped her hands as if she had just remembered.</p>
+<p>"I'll go out and see if there's anyone there first, so come out when I text you."</p>
+<p>"Okay. Please make sure our company model doesn't get into a difficult situation~."</p>
+<p>Nae Fitzgerald asked me to make sure Ha Ju-yoon didn't get into a scandal, and was pulling out a tissue to wipe the semen flowing down her thighs.</p>
+<p>I came out of the bathroom. It was quite a secluded place at the airport, so there weren't many people. It seemed a bit difficult for disabled people to come all the way here, so the disabled toilet would be safer.</p>
+<p>As expected, when I looked around, everyone was busy going their own way. I sent a text saying, "You can come out now," and Nae Fitzgerald, wearing a hat and mask, and Ha Ju-yoon, wearing a hat, mask, and sunglasses, came out of the bathroom.</p>
+<p>"It'll be difficult if a scandal breaks out, so let's say goodbye here."</p>
+<p>"Yeah, I feel sad to be separated from Ryuta."</p>
+<p>"Ryuta is like a drug."</p>
+<p>"Come to Japan anytime. I'll also go to Korea or where Nae-ssi is."</p>
+<p>We had a sad farewell and parted ways. I headed straight to the airport parking lot. Today was the day I was supposed to have a date with Sawayanagi Seari, so I had to go to the Seryu Military Company building.</p>
+<p>"Hmm, today's date course is...."</p>
+<p>There was actually a purpose to today's date. It was to awaken Sawayanagi Seari's Fairy Body. Because Sawayanagi Seari, who looked like a middle school student in 8th or 9th grade because of her Fairy Body, I felt guilty even though it was just a date, so I was thinking of awakening her Fairy Body and changing her into an adult form.</p>
+<p>But the problem was that I didn't know the awakening conditions for the Fairy Body. Of course, it wouldn't be yas like the Succubus Body.... In the game, I didn't know much because Sawayanagi Seari was already in a state of releasing her Fairy Body while raising her.</p>
+<p>These body-type characteristics had a very low probability of appearing, so there were almost no players who had the Fairy Body, so the strategy was not passed down.</p>
+<p>I only knew that the Fairy Body would awaken on its own at some point.... Still, I started to remember Sawayanagi Seari's lines in my memory as much as possible. What was the difference between before and after awakening...?</p>
+<p>"Ah! This is it!"</p>
+<p>It wasn't 100 percent certain, but I thought of something promising. I thought it was worth trying.</p>

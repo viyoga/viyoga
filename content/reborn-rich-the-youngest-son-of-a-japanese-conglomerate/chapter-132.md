@@ -5,87 +5,39 @@ weight = 132
 chapter = 132
 +++
 
-<p>,"Doesn't just breasts get you going?"</p>
-<p>With Mimata Chieri's question, this time the lower body parts fall off. Mimata Chieri, being quite the connoisseur of perversion, spreads her pussy wide open with her fingers, having only taken off one of her knee-high leg tights.</p>
-<p>,"*Hubae*-nim, please taste this *Sunbae*'s brand new pussy♥"</p>
-<p>A brand new pussy, huh.... A virgin? I thought she was a total slut, but she was a virgin.... She's a virgin making such a request, braving her embarrassment, so I couldn't keep refusing.</p>
-<p>I had already taken off my top while sparring, so I just needed to take off my pants and underwear. I took off my pants and underwear and approached Mimata Chieri.</p>
-<p>,"It might hurt since it's your first time, *Sunbae*."</p>
-<p>,"More than getting shot by a bullet?"</p>
-<p>Ah! She's the one who stood in front of me and got shot by a bullet a few days ago, so tearing her hymen is nothing.... Thinking back to that time, Mimata Chieri became even more lovable. Even though it was an order to protect me, blocking a bullet in a potentially fatal situation couldn't have been easy.</p>
-<p>,"It probably won't hurt as much as getting shot by a bullet. I wouldn't know since I'm not a woman."</p>
-<p>,"Then I can endure it. I have the skills to endure torture, too."</p>
-<p>Where the hell did she learn all this? I lifted Mimata Chieri's chin and kissed her. At first, she moved her tongue awkwardly, but soon she seemed to get the hang of it and skillfully responded to my kiss. She quickly followed Shinkai Yatsude's moves, so it seemed she had a knack for physical stuff.</p>
-<p>,"Eung.... This is, a kiss, huh. It tastes like *Hwagwaja*."</p>
-<p>Mimata Chieri, having tasted the *Hwagwaja* I had for dessert in the morning, said with a slightly flushed face.</p>
-<p>,"It's not that the kiss tastes like *Hwagwaja*, it's because I ate *Hwagwaja* last."</p>
-<p>,"Ah, that must be it! Then teach me other things, *Hubae*-nim...."</p>
-<p>Mimata Chieri was a student who wanted to move fast. As if responding to Mimata Chieri's expectations, I gently squeezed her moderately sized breasts, boasting pink nipples.</p>
-<p>,"Heuung...!"</p>
-<p>Sensitive, huh. Mimata Chieri's breasts were not so much soft as they were bouncy and firm. As I massaged her breasts with my whole hand, her nipples perked up and tickled my palm.</p>
-<p>,"Heung, heueum...! *Hubae*-nim, I'm getting weird, heuhaang...! Euhaang!"</p>
-<p>Mimata Chieri's reaction, making increasingly intense moaning sounds, was quite amusing. I took my palm off and gently rolled her nipples with my fingers.</p>
-<p>,"Eung, heut! Haeut! Heuheuung...! I can't take it anymore, *Hubae*-nim!"</p>
-<p>,"Pleasure isn't something to endure. Accept it all."</p>
-<p>,"Heueut...! Neehet! I'll take all the pleasure you give me♥ Haeut!! Give me more...♥"</p>
-<p>To feel this much just from her nipples, she's amazing? I kept touching her nipples with one hand, and with the other hand, I stroked her bare lower abdomen and moved towards her pussy.</p>
-<p>,"Heuaang! Th-there...!"</p>
-<p>,"*Sunbae* told me to taste her brand new pussy, so I need to check if it's really brand new first."</p>
-<p>,"Haeueung, brand new, it's brand new. *Hubae*-nim is the first to touch it...!"</p>
-<p>Sure enough, as I touched around her pussy and gently inserted my finger into the hole, there was something blocking it. This must be her hymen. Okay, it wasn't a used goods scam.</p>
-<p>,"I'm telling you in advance, I'm not brand new."</p>
-<p>,"I know, *Hubae*-nim, you're a manwhore."</p>
-<p>Ah, that's right. She must have heard everything Kazuhiro said while pretending to be a part-timer grilling meat at that restaurant...! I need to teach that Kazuhiro a lesson. Thinking about it again, it seems Mimata Chieri was the one who reported my activities to old man Taira Danjo, so she must have seen me meeting a lot of women. After we're done having sex, I need to ask her what she reported to Taira Danjo.</p>
-<p>,"Come here for a second."</p>
-<p>I sat Mimata Chieri on top of a large metal box and gently placed my dick at the entrance of her pussy.</p>
-<p>,"I'm going to put it in now. I can't allow anything else to be put in after I put it in. Understand?"</p>
-<p>,"I understand, *Hubae*-nim...."</p>
-<p>Smiling at Mimata Chieri's obedient answer, I generously coated my glans with the fluids constantly gushing from Mimata Chieri's pussy. Now that both her pussy and my dick were wet, I thrust my hips in with force.</p>
-<p>,"Eueup!"</p>
-<p>,"Does it hurt?"</p>
-<p>She certainly seemed to endure it better than other women. She shook her head at my question and smiled slightly, but there were tears in the corners of her eyes. She was good at enduring the pain, but it didn't mean it didn't hurt.</p>
-<p>I kissed Mimata Chieri and caressed her breasts, waiting for her to get used to it. As Mimata Chieri's breath gradually became hotter and I felt her pussy loosening up, I started to gently sway my hips.</p>
-<p>,"Haeheureuk!, It's weird, haeut...! It feels weird♥ *Hubae*-nim!"</p>
-<p>,"Instead of 'weird,' you should say 'good'."</p>
-<p>,"Haang! Good, it feels so good♥"</p>
-<p>As expected, it was exciting to gradually dye a virgin with my colors. Especially Mimata Chieri, who seemed ignorant about this kind of thing, listened to me better.</p>
-<p>Mimata Chieri's pussy felt great. Whether she was doing it intentionally or unconsciously, the way she tightened and loosened her pussy matched my rhythm perfectly. If I hadn't trained with so many women, I would have cum too quickly.</p>
-<p>,"Haa, haaeung! It's weird, no, it's good, haaeueung, I feel so good that it's weird."</p>
-<p>,"That's an orgasm. It means you're coming."</p>
-<p>,"Heueeung, *Hubae*-nim, I'm going, I'm going♥ Haeheureueut!! Heueut!"</p>
-<p>As Mimata Chieri reached orgasm, she rolled her eyes back and hugged me tightly. I could feel her body trembling all the way here. I didn't care that Mimata Chieri was already at her peak and couldn't control her body, and I shook my hips only for my own pleasure.</p>
-<p>,"Haang! No! I already, came, *Hubae*-nim♥ If this keeps up, I'll completely become yours! Haeheut, heueut, eunghheueut!"</p>
-<p>,"What did *Sunbae* tell me? You told me to make sure you can't betray me anymore. Quietly become mine."</p>
-<p>,"Haang! I won't, betray you♥ Haeueut! Haeut! I'm only.... *Hubae*'s secretary now♥ Haeueung!"</p>
-<p>To be your own secretary was quite a touching thing to hear. I quickly felt the urge to cum, so I pressed as close as possible to Mimata Chieri's pussy and ejaculated my semen into the deepest part. As the lava-like hot semen filled Mimata Chieri's uterus and pussy, Mimata Chieri reached her second climax.</p>
-<p>,"Haeueung! If I feel this kind of feeling, I can't escape...♥"</p>
-<p>Mimata Chieri's body trembled again as I pulled out my dick. Her pussy was washed away with semen and fluids, and there was no trace of blood from her torn hymen. I held my dick, covered in semen and fluids just like Mimata Chieri's pussy, right in front of Mimata Chieri's nose.</p>
-<p>,"After doing it once, you have to clean it with your mouth."</p>
-<p>,"Ah, I didn't know. Give it here, *Hubae*-nim."</p>
-<p>Watching Mimata Chieri diligently suck on my dick, I felt satisfied. It felt like my painting was being drawn on a white canvas.</p>
-<p>Mimata Chieri, who had cleaned my dick, smiled at me.</p>
-<p>,"Since we can't stay here, shall we go to the room?"</p>
-<p>,"Yes, I'll show you my bedroom."</p>
-<p>Seeing Mimata Chieri excited to go to the bedroom and do it again, as if she was bringing a friend home, I felt a slight pang of conscience. But I justified it by thinking we could do it after looking around the bedroom, and followed Mimata Chieri upstairs.</p>
-<p>###</p>
-<p>In the end, we had sex before looking around the bedroom. Mimata Chieri was exhausted and didn't have the strength to move, so she was clinging to me on the bed and chattering away. Though I was the one who asked her.</p>
-<p>When I asked Mimata Chieri what she had reported to Taira Danjo, she honestly told me that she had reported my relationships with Sinoe Misano, Arisu, a certain Korean beauty, and Group 74.</p>
-<p>So, Grandpa Taira Danjo was scolding me for being a womanizer. But it's a huge relief that Mimata Chieri didn't know about my relationship with Yukiko. Most of it happened at home, and Mimata Chieri didn't monitor the house separately except for the first few days. If she had known, she would have reported it immediately. I couldn't imagine what Taira Danjo would have done.</p>
-<p>He would have thought it was incest, even though we weren't blood-related, and would have taken some kind of action. I'm a bit uneasy that the incident with Arisu was also reported, but since cousin marriage is possible in Japan, he probably won't care too much, right?</p>
-<p>,"From now on, only report to me."</p>
-<p>,"Yes. I will. Now that I'm *Hubae*-nim's subordinate, I won't report to anyone but *Hubae*-nim."</p>
-<p>Suddenly, something I was curious about came to mind while we were talking. It was Mimata Chieri's behavior when we first started having sex.</p>
-<p>,"By the way, where did you learn things like 'Please taste my brand new pussy'?"</p>
-<p>,"I learned it from watching AVs I took from *Hubae*-nim's computer when I was monitoring the house in the beginning. The title was 'Cyber Girl and Battle Sex,' or something like that? That's why I insisted on sparring."</p>
-<p>Ah, no wonder the situation seemed familiar.... I strictly forbade Mimata Chieri from touching my computer. So Mimata Chieri requested sparring because she wanted to cling to me.</p>
-<p>Besides that, I had several conversations with Mimata Chieri, and she told me about her unfortunate childhood and the story of Fumimoto Takayuki, who had saved her.</p>
-<p>,"Don't people usually fall in love with the person who saved them? Mr. Fumimoto is a complete benefactor, isn't he?"</p>
-<p>,"I'm always grateful. But I've never thought of the Chief Secretary that way. Maybe...."</p>
-<p>,"Maybe?"</p>
-<p>I looked at Mimata Chieri, who had interrupted her words, and asked back. Mimata Chieri smiled cutely and answered.</p>
-<p>,"I guess I'm a woman who looks at faces. Hehe."</p>
-<p>,"Aha...!"</p>
-<p>As expected, my face did all the work again this time. Being handsome is the best. It's always thrilling!</p>
-<p>-----</p>
-<p>Mimata Chieri made into a live-action version!</p>
-<p>Live-action AI is too real, so it will probably be banned....</p>
+<p>After spending a sensual night with Shinoe Misano, I went to Haneda Airport early in the morning and took a plane to Hachijōjima. The distance from Tokyo to Hachijōjima was a little more than half the distance from Seoul to Jeju. So, a flight time of 20 minutes was enough.</p>
+<p>On the way to Hachijōjima, I had to do the work I'd been putting off. It was time to select a Trait due to the increased Level from the Sawayanagi Azuma Rescue Operation. Actually, it had been a few days since I leveled up, but because of the acquisition of Seiryu Military Company, a few days passed, and I momentarily forgot. This morning, "Ah, that's right!" the thought came to me, so I decided to choose a Trait on the plane. For reference, I invested one in Will to make it 17, and put one in Agility, the lowest of the Body Stats, to make it 8.</p>
+<p>Please select one Trait</p>
+<p>①Genital Modification [Protrusion] ②Shining Intellect ③Ice Affinity</p>
+<p>Hmm, they're all not great? Genital Modification was a Modification-type Trait that occasionally appeared, but the problem was that even if I modified with a Trait, I would be treated as having undergone Modification, so I couldn't acquire "Praise of Purity," a Trait exclusively for no Modification, which was one of the Traits I was aiming for. If I wanted to use Body Transformation-type, I had to choose a Trait from the Evolution-type. Because Evolution is not included in Modification. Shining Intellect is a good Trait that increases Intellect and efficiency, but given my growth Traits, Intellect wasn't such a necessary Stat. It would be a very good Trait if given to Han Yu-gyeong, but since it came from my Level Up, I couldn't give it to her. Since I was a Telekinetic Fist-user style focusing on Body Stats and Will Stats, Intellect wasn't greatly needed. Although Intellect is needed to learn new Languages, it'll work out somehow. Although dangerous, I also thought of investing a little in the Abyss. Having confirmed its overwhelming Power in the Sawayanagi Azuma Rescue Operation, if I raise Will sufficiently, I should also raise the Abyss. The conclusion was, although high Intellect would be good, it wasn't such an essential Stat for me, so I decided to pass. Lastly, Ice Affinity was an Attribute Affinity-type Trait, a fundamental Trait, but since I didn't have any Traits or Technology that could be applied to Ice-type or Ice Attribute in the first place, this was also not great. So, since all three Traits were not great, I naturally had to activate the Yeouiju's Ability.</p>
+<p>With the [Potential Enhancement] option of the Item [Yeouiju], the Traits that can be selected through Level Up can be changed to random Traits of a higher Grade. Would you like to change?</p>
+<p>Please select one Trait</p>
+<p>①Regeneration Trait Level Up ②Flawless Bomber ③Praise of Purity</p>
+<p>Ooh! Finally, Praise of Purity appeared. Did it appear because I was just thinking about Praise of Purity? Praise of Purity increases the Limit of all Body Stats and simultaneously was an incredibly beneficial Trait that raises the efficiency of all Body Stats. For reference, the efficiency of Stats, even for the same Stat, if there was an efficiency increase Trait, could exert about 1.15 times higher Ability. Moreover, because efficiency increases stack, the more efficiency increase Traits, the better. Number 1, Regeneration Trait Level Up, was steadily increasing its Level because I was continuously getting shot, and Number 2, Flawless Bomber, amplifies the speed of bomb installation and defusal and was a Trait that allowed the creation of bombs with higher Destructive Power when crafting them. It would be a really good Trait if Sawayanagi Sinya of Seiryu Military Company had it, I don't know why it appeared for me. Well, since there was a high probability of unexpected Traits appearing, it wasn't strange for it to appear, but the regret was unavoidable. As I selected Praise of Purity, I felt my Body growing stronger. I opened the detailed explanation for Praise of Purity in the Status Window.</p>
+<p>◆Praise of Purity [Legacy Trait]: A praise for a pure Body that has not undergone Modification. The Limit of all Body Stats increases by 1, and the efficiency of all Body Stats significantly increases. If Body Modification is performed, this Trait is Annihilated.</p>
+<p>Although the increase in Stat Limits wasn't felt separately, as the efficiency of Body Stats increased, muscle fibers became more elastic and tougher, the connection between nerves and the Brain was further strengthened, and I became stronger against disease or Pleasurable Ache. Of course, what I directly felt was the Power in my Muscles. As I unnecessarily tensed and relaxed my Forearms and breast, feeling the Performance of my Muscles, I heard a "Hoo-hoot" sound of Playful Laughter. Wondering what it was, I looked, and from a group of about five Men and Women who seemed to be University Students, one Woman was laughing at me. She was a pure-looking female college student with bright Brown Hair. Her Appearance was probably the prettiest in the department. It must have been funny. Because it would have looked like I was suddenly showing off my Muscles by myself. I gave an embarrassed smile and gave a slight Gaze greeting to the female college student who was laughing at me. As we exchanged Gazes, we had already arrived at Hachijōjima Airport. It was certainly fast. Of course, that might be because we came by Airplane, but if we had taken a boat, it would have taken at least 3 to 5 hours. For going even a little far, the Airplane was indeed the best. I received the folding small electric bike and unfolded it on the Road in front of the Airport. Since I had also packed my Bag, now I just needed to go to the port. I mounted my phone in front of the small bike, turned on the navigation, set it to the port, and started driving. Riding the bike while feeling the Morning Sunlight and Sea breeze simultaneously was a new Feeling. Since the distance to the port was only about 3.5 kilometers, I could arrive in less than 10 minutes. Rather than the Overwhelming Joy of arriving quickly, it was regrettable that I couldn't enjoy the Sea breeze a little longer. When I went to the port, there were others going to Chōtenjima besides me, and looking closely, it was the group of University Students I had seen on the Airplane earlier. A gray-haired Man who seemed to be a professor and five Men and Women were seen getting out of a van Taxi.</p>
+<p>"Hello. I am Taira Ryuta, who made a Reservation today." I got off the bike and greeted the Man who seemed to be the Captain of the boat I would be taking today. He was a middle-aged Man with a good Size, a beard, and seemed strong.</p>
+<p>"If you're going to load that bike onto the boat, you'll have to pay more." Even if it was a folding small bike, since it weighed 50 kilograms, paying more Money was not unfair. I nodded my Head and gave the Captain an additional 10,000 yen.</p>
+<p>"It seems everyone is here, so everyone get on. It might vary depending on the Sea conditions, but it will take at least an hour." At the Captain's Words, the University Students and the professor got on the boat first, and I folded the bike, held it in one Hand, and boarded the boat. Since the boat was a small passenger ship, it was enough for 8 people, including the Captain. Looking at the Chairs in the cabin, it seemed at least 25 people could ride. I was not in the cabin, but was looking at the Sea Outside.</p>
+<p>"Did you come for Travel?"</p>
+<p>"Ah, yes. I searched for a Travel destination that others don't often go to, and this Chōtenjima Island was said to be a hidden gem." The gray-haired Man who seemed to be a professor spoke to me. Actually, I didn't really know if Chōtenjima Island was a hidden gem or not, but since I couldn't say that an otherworldly divine Existence called Simyeonui ttal had given me an invitation to come, I answered blandly.</p>
+<p>Indeed, the scenery of Chōtenjima Island is superb. I am Honmura Kōga, a professor in the Folklore Department at Kanto University. Those kids are my students.</p>
+<p>"I am Taira Ryuta, a company employee." Professor Honmura Kōga and I made Introductions. If he majors in folklore, are there any strange customs on Chōtenjima Island? I'm curious.</p>
+<p>"Actually, Hachijōjima Island is a village formed by exiles, so it's an important place folklorically. Hachijō Dialect retains many traces of ancient Japanese, and there are many unique customs." It seemed I had gotten myself into something. This Professor Honmura Kōga was a "too-much talker" who would even give a Lecture to someone he had never met before. By the way, a village formed by exiles, is it similar to Australia?</p>
+<p>"What's different about Chōtenjima Island?"</p>
+<p>"Chōtenjima Island, on the contrary, has its own unique culture not found on the Japanese mainland, making it an attractive research Assignment different from Hachijōjima Island. For example, holding an annual ritual for the Sea goddess...." When I asked, hoping there might be something to find out about Chōtenjima Island, Honmura Kōga, as expected, answered excitedly. Hmm, a Sea goddess.... Could it be related to Simyeonui ttal? Or is it just a coincidence?</p>
+<p>"Coincidentally, they said that ritual is tomorrow, so I'm going today to capture it on Video. If possible, I might also be able to research by looking at the shrine's Records."</p>
+<p>"I didn't know, but I'm in luck. I get to see such a special event."</p>
+<p>"That's right, they say Human Sacrifice used to be performed in the past, but these days, they make Human Forms out of rice cakes for it, so that Change is also an Intriguing Matter. Since almost no one in Japan has seen this ritual, you could say you're a lucky Person." A ritual.... Things seemed to be getting more and more coincidental. I wonder if it's a coincidence that the ritual is happening on the same Date I'm visiting?</p>
+<p>"Are you doing research with your Disciples?"</p>
+<p>"That's right. Three are graduate Students and two are University Students. Wano, bring those two over here." Professor Honmura Kōga gestured to the Students and introduced them to me. The man with a gloomy expression who looked the oldest among the disciples was a PhD student named Wano Haruto (輪野 遥大), and the beautiful female college student who had exchanged glances with me on the airplane was Uchidate Kanimi (内舘 蟹海). Uchidate Kanimi had brought along a plain-looking friend who seemed like someone Kazuhiro would like, named Hijitani Saori (泥谷 紗生里). The other two went into the cabin and were not introduced. Of course, since both were dark-skinned men, it was obvious that I would quickly forget their names whether they were introduced or not.</p>
+<p>"Hoho, why were you doing that on the Airplane earlier?" Uchidate Kanimi seemed full of Curiosity and asked me about checking the Performance of my Muscles on the Airplane.</p>
+<p>"I just did it as a stretch because the Airplane was a bit boring."</p>
+<p>"Ooh! Looking again, your Body is quite well-trained! Have you learned any martial arts?" Professor Honmura Kōga was subtly dropping his respectful speech without me noticing. I smiled slightly and showed a slight straight punch.</p>
+<p>Huung~! I have had some training in Koryu martial arts (古流武術). When a Wind sound came from my punch, the People gathered around seemed slightly surprised. Uchidate Kanimi and Hijitani Saori exclaimed "Dae-da-ne~!" (Amazing!) and were intrigued, and Professor Honmura Kōga, saying that Koryu martial arts were also a theme covered in folklore, seemed about to ask various things. Only Wano Haruto, the graduate student, quickly turned his Head without much Interest and looked at the Sea. Following Wano Haruto's Gaze, I also looked towards the Sea, and Chōtenjima Island was appearing in the distance.</p>
+<p>"Prepare to disembark! We'll arrive at Chōtenjima Island soon!" At the Captain's booming Whispers of Pleasure, we began to pack the Luggage we had brought. As for me, I only needed to pack my Bag and bike, so there wasn't much to pack, but the professor's Party/Group was busy packing, as if they had a lot of Luggage. Chōtenjima Island, which was in the distance, gradually became clearer and closer. Chōtenjima Island was an Island with a not-so-high Mountain in its center. Soon, the boat reached the pier.</p>
+<p>"I'll come pick you up in Third Day, so rest comfortably!" As we unloaded all our Luggage, the Captain said he would come pick us up in Third Day and went into the Captain's cabin. It seemed he intended to rest a bit before going to Hachijōjima Island. Finally, I had arrived at Chōtenjima Island. I was thrilled, not knowing when I would meet Simyeonui ttal. It was a complex Feeling. A Feeling of excitement mixed with fear.</p>
+<p>I tried creating the youngest character from Iljae with a different model (art style) haha. Please think of it as a parallel world (Swimsuit warning).</p>
+<p>Madam Yukiko with animal ears. She looks incredibly young lol.</p>
+<p>Arisu, for some reason, tightly gripping a Ukrainian flag cushion.</p>
+<p>Han Yu-gyeong, whose Hand is inexplicably between her legs/crotch. It's fun creating with different art styles. I'll have to find another art style I like a bit more haha.</p>

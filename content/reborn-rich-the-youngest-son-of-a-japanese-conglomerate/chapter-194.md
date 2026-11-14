@@ -5,78 +5,64 @@ weight = 194
 chapter = 194
 +++
 
-<p>After making Ha Ju-yoon go ten times in a row until she begged me to stop, I was lying down, giving Ha Ju-yoon an arm pillow. Ha Ju-yoon, who was catching her breath, suddenly asked me as if she had just remembered something.</p>
-<p>,But isn't that Ju-an expensive? I heard that even if you buy it cheap, it costs 500 million won.... Of course, I don't really believe in that kind of thing, so I didn't buy it separately....</p>
-<p>"It's okay, *nuna*. I have enough money to do that much for you."</p>
-<p>"This guy.... What money does an office worker have to buy a fruit that costs over 500 million won per piece? Is he from a *chaebol* family like Yu-gyeong-ssi or something?"</p>
-<p>At Ha Ju-yoon's words, I smiled and nodded. I didn't really need to reveal it to Ha Ju-yoon, but since she seemed to be constantly worried about money, I decided to tell her the truth. It's not like Ha Ju-yoon would go around blabbing about it anyway.</p>
-<p>"Actually, my grandfather is the Chairman of the Tairaga Group."</p>
-<p>"Oh my! Really?!"</p>
-<p>Ha Ju-yoon was very surprised at my words. Then, as if she had realized something, she looked at me with a puzzled look.</p>
-<p>"Wasn't Yong-tae Korean? The Tairaga family is Japanese."</p>
-<p>"That's actually...."</p>
-<p>I continued to give Ha Ju-yoon an arm pillow and told her the story of how my last name became Tairaga. From being a Korean-Japanese resident to the death and funeral of my father, whom I didn't even know existed, to suddenly receiving the Tairaga name from my grandfather.... Ha Ju-yoon was listening to my story with great interest.</p>
-<p>"Ah.... So that's what happened. Our Yong-tae went through a lot, huh?"</p>
-<p>"Is there anything to go through? My mother raised me well without any inconvenience, what...."</p>
-<p>Ha Ju-yoon listened to my story and looked at me with a slightly pitiful gaze.</p>
-<p>Well, Jin Yong-tae was bullied as a child for being a Korean-Japanese resident and grew up without a father, but he made good friends like Kazuhiro and Kiyohira, and Jinmija Yeosa scolded him when he went astray and praised him when he did well, so he grew up without feeling much unhappiness. The bullying was also resolved after meeting Fujigasaki Rinka.</p>
-<p>"Good job~."</p>
-<p>Ha Ju-yoon said, hugging me with her ample breasts. Hmm.... The feeling is good. It was a pleasant chest full of maternal love. I felt Ha Ju-yoon's soft chest and gently massaged it.</p>
-<p>"Ah.... Not now♥ I have a meeting at lunchtime."</p>
-<p>I wasn't thinking about having sex, I just touched it because the feeling of her chest was good. Looking at the time, it was almost eleven forty. I should slowly go back too.</p>
-<p>"Anyway, don't worry because I have a lot of money. It's not family money, but money I earned from stocks."</p>
-<p>"Oh really? Our Yong-tae is capable, huh?"</p>
-<p>Ha Ju-yoon stroked my head, saying well done, well done. And then she got up, saying that she should start getting ready to go out.</p>
-<p>"I'm going to wash up. There's a bathroom over there besides the master bedroom, so Yong-tae should wash up too."</p>
-<p>As expected, it seemed like there were several bathrooms because it was a top-class penthouse. Since I was naked anyway, I went straight in, took a shower, and came out, and Ha Ju-yoon was drying her hair. I put on my clothes and approached Ha Ju-yoon.</p>
-<p>"I'll go out first. If we go out together and get caught by Paparazzi, things will get complicated."</p>
-<p>"Okay, I'll go to Japan to play next time."</p>
-<p>"Anytime."</p>
-<p>After a short kiss with Ha Ju-yoon, I went out of Ha Ju-yoon's house. It's been quite a while, I wonder if Han Yu-gyeong's work is over?</p>
-<p>Jin Yong-tae: Is the work not over yet? What should we do for lunch?</p>
-<p>Han Yu-gyeong: I'm sorryㅠㅠ It looks like the work will be over around 3 o'clock. Instead, let's eat something delicious for dinner!</p>
-<p>Jin Yong-tae: It's also because of me that you have a lot of work.... I'll take care of lunch myself, so don't worry.</p>
-<p>Han Yu-gyeong: Okay. I'll book a good place for dinner.</p>
-<p>Han Yu-gyeong was sorry for being away from her side because of work since she came to Korea. Well, it wasn't that bad for me because I could make time to meet Ha Ju-yoon. I should just grab something for lunch. Should I eat *bunsik* for the first time in a while?</p>
-<p>###</p>
-<p>Han Yu-gyeong, who returned around 3 o'clock, took a nap for about two hours and woke up. I kept bothering her all night and she went straight to work early in the morning, so she was tired and immediately passed out.</p>
-<p>"*Haaam*...! If I keep living with Yong-tae, I don't think I'll live long. Because he bothers me too much at night♥"</p>
-<p>"So you don't like it?"</p>
-<p>"Noo~ I like it♥"</p>
-<p>Han Yu-gyeong, who woke up from sleep, took out a suit from the closet and gave it to me, telling me to wear it. Since I had a custom suit made with Han Yu-gyeong when I first went to Korea, it seemed like Han Yu-gyeong remembered the size and had a new one made.</p>
-<p>It was a little tight because my body was a little bigger than before, but it fit me well. We each put on our clothes and went outside. I went outside and asked Han Yu-gyeong what I was curious about.</p>
-<p>"But why are you telling me to wear a suit?"</p>
-<p>"Yeah, the restaurant I booked has a dress code."</p>
-<p>A restaurant with a dress code, it seemed like Han Yu-gyeong had booked a really good place as she said earlier.</p>
-<p>"But...."</p>
-<p>"Yeah?"</p>
-<p>"You look really handsome in a suit, *hehe*."</p>
-<p>Han Yu-gyeong looked at me and had a melting expression as if she had fallen in love with me again. Of course, Han Yu-gyeong was also wearing a tight black dress according to the dress code, so she looked much prettier than usual. The chest was quite exposed, slightly revealing Han Yu-gyeong's pretty breasts, making it a sight that no one could help but look at.</p>
-<p>"Yu-gyeong-ssi also looks good and is pretty."</p>
-<p>As I spoke and wrapped my arm around her waist, Han Yu-gyeong laughed *hehehe* and leaned her head on me.</p>
-<p>Han Yu-gyeong and I took a taxi to the restaurant. I was a little annoyed that the taxi driver was glancing at Han Yu-gyeong through the rearview mirror, so I stared at him with a murderous look, and he flinched and only looked ahead and drove. Han Yu-gyeong smiled at the sight.</p>
-<p>We arrived at the restaurant and went inside. It certainly seemed like a high-end restaurant. We were guided to our seats and looked at the menu.</p>
-<p>"Yong-tae, order course A and I'll order course B and we'll switch and eat."</p>
-<p>"Okay."</p>
-<p>One course might be a little lacking to satisfy my big stomach, but if it's not enough, I can eat somewhere else.</p>
-<p>When we ordered, different courses came out and we compared the tastes while eating. Han Yu-gyeong seemed happy to be coming to a place like this with me, and she fed me food with a happy smile, and she also ate the food I gave her.</p>
-<p>It's hard for me to say this myself, but we were both handsome and beautiful, so I could feel the people around us glancing at us. I heard a man who was looking at Han Yu-gyeong get caught by his girlfriend and get scolded by my sharp senses. Han Yu-gyeong spoke to me as I was laughing while listening to the sound.</p>
-<p>"Ah, my friends want to see you with me tomorrow, what do you think?"</p>
-<p>"With your friends? That's good. I'm also curious about what kind of people Yu-gyeong-ssi's friends are...."</p>
-<p>Han Yu-gyeong's friends.... The only name I know is Son Nari, a classmate. I couldn't stand the curiosity and asked Han Yu-gyeong.</p>
-<p>"But who's coming tomorrow?"</p>
-<p>"There's Son Nari, my best friend in our department, Hong Su-yeon, a club friend, and Ji-soo, a student I tutor."</p>
-<p>Hmm, listening to the story, I had a few more questions. Surely the club isn't a tennis club.... Also, wouldn't it be awkward if a tutoring student came to meet friends? Han Yu-gyeong seemed to have noticed my curiosity and opened her mouth.</p>
-<p>"Ah, I didn't tell you about the club, did I? When I invested in Health Miracle at that time, I wanted to find out more about stocks, so I briefly participated in a stock club, and Hong Su-yeon is a friend I became close with at that time. I don't do club activities well now, and I only meet Su-yeon."</p>
-<p>Depending on which club you go to in the game, the information you get and the skills you get are different, but a stock club was not a bad choice.</p>
-<p>"I see. But wouldn't that tutoring student Ji-soo be awkward?"</p>
-<p>"Ah! Ji-soo is okay. Nari, Su-yeon and I were in charge of teaching different subjects. So we're all close."</p>
-<p>Ah, I see. Using three Korea University students as subject tutors, they must be a pretty well-off family. Hmm, which family is it? If it came out as the youngest son of Mega Corp, I would definitely know the family.</p>
-<p>Soon, the story of Han Yu-gyeong's friends was temporarily interrupted as the main dishes, steak and lobster, came out. We shared each other's food again and talked about my friends this time.</p>
-<p>"How are Yong-tae's friends these days?"</p>
-<p>"Kazuhiro transferred to the United States, so he's in the United States now, and Kiyohira was originally in the United States, so I don't have any friends in Japan."</p>
-<p>I don't have any friends, but I have a lot of women.... Han Yu-gyeong doesn't need to know that.</p>
-<p>"Then let's go to the United States together next time! I want to see that friend Kiyohira too."</p>
-<p>"He's quite a violent guy who likes to fight, but he's a funny guy, so Yu-gyeong-ssi will like him too."</p>
-<p>We had a great conversation while eating, drank coffee at a cafe, and went to the movie theater to watch a movie. The movie was an action movie that you could watch without any problems. In the last scene where the protagonist, who had gone through all sorts of messes, rescued the heroine and kissed her, I also matched my lips to Han Yu-gyeong's lips.</p>
-<p>It's the third day since I came to Korea this time, and it seemed like I was having a date-like date for the first time. Han Yu-gyeong also seemed to be having a lot of fun on the date, as the smile on her face didn't go away.</p>
+<p>"Hehehe, you're quite the flatterer. I mustered a lot of courage to come to this room, so I was ready to leave right away if you said it was awful."</p>
+<p>Nagumo Sian, seemingly gaining some confidence from my words, took a step closer to me. To give her the kiss I couldn't in the limousine, I also took a step towards Nagumo Sian and lifted her chin with one hand.</p>
+<p>Nagumo Sian looked at me without closing her eyes. I looked back at Nagumo Sian and moved closer and closer. Just before our lips touched, when our breaths tickled our cheeks, Nagumo Sian closed her eyes.</p>
+<p>Our lips met, and I stuck out my tongue to tease Nagumo Sian's still-closed teeth. Then, Nagumo Sian awkwardly opened her mouth and awkwardly accepted my tongue.</p>
+<p>Tongues intertwined, we embraced each other tightly. The feeling of Nagumo Sian's ample breasts pressing against my body was quite nice. You could say it felt incredibly cozy? As I enjoyed Nagumo Sian's tongue with my tongue and felt Nagumo Sian's breasts with my body, I naturally became hard as a rock.</p>
+<p>I was already semi-hard seeing Nagumo Sian's loose yukata, but now I was incredibly stiff, and my hot, hard pillar was probably pressing against Nagumo Sian's belly. Nagumo Sian was definitely feeling it, but she didn't show it and focused on the kiss.</p>
+<p>Nagumo Sian, like a retired professional athlete gradually getting used to their sport, transformed from awkward tongue movements to a passionate and hungry bitch, starting to explore my tongue and mouth.</p>
+<p>"Heueung... euheung...♥"</p>
+<p>Nagumo Sian, making a voice that melts men, hugged my neck tightly. We continued to kiss passionately and desperately, as if we were a couple who would never meet again if we parted now.</p>
+<p>Then, growing more and more desperate, we broke our kiss. Our desire to not only kiss but also touch each other's bodies and become one grew stronger and stronger. Nagumo Sian, also unable to be satisfied with just a kiss, looked at me with eyes full of desire.</p>
+<p>A silvery thread of saliva stretched and broke. Nagumo Sian seemed slightly surprised to see my huge cock, sticking out over the band of my panties.</p>
+<p>"This...!"</p>
+<p>"It's because Nuna-nim is too sexy."</p>
+<p>"If I do this.... will it get harder?"</p>
+<p>Nagumo Sian took off her yukata and stood before me in her underwear. She was wearing black lingerie that contrasted with her silver-white hair and skin, and it was sexy underwear made of a see-through material in some parts. Hoo, I want to lay her down and spread her panties right now, but since it's the first time, I should do it by the book.</p>
+<p>"Of course. Try touching it."</p>
+<p>I took Nagumo Sian's hand and placed it on my dick. Nagumo Sian stroked my dick, which was sticking its head out up to my belly button over the band of my panties, as if touching a precious object that would break if touched too hard.</p>
+<p>"It's hot.... And this might sound weird, but it's hard yet soft."</p>
+<p>Nagumo Sian's impression was like she was touching a man's dick for the first time. I'm pretty sure she had a husband, though she was widowed.... Hmm, could it be....</p>
+<p>I grabbed Nagumo Sian's breasts, which she was still touching my dick with curiosity. She seemed to have the biggest breasts of any woman I'd met so far. Maybe the breast ranking is Ha Ju-yoon &lt; Yukiko &lt; Nagumo Sian, but each woman's breasts have their own charm....</p>
+<p>I squeezed Nagumo Sian's breasts, which couldn't be held in one hand, as much as I wanted. They were soft, elastic, contradictory, and magical breasts. Maybe I'd never get tired of touching them in my life?</p>
+<p>"Heueeum.... The tips of my breasts are ticklish, aahang...!"</p>
+<p>Breast tips, she's saying nipples elegantly. Since the word "breast tips" came out, I pulled down one side of her bra and twisted Nagumo Sian's pink nipples with my fingertips.</p>
+<p>"Haaang! It's weird, it feels weird, hueung...!"</p>
+<p>She's twisting her body and moaning, but it's quite admirable that she's not letting go of my dick? This time, I lowered my head and sucked on her nipples with my mouth instead of my fingers. Her nipples were already hard, so I didn't need to make them bigger, and I started teasing them with my tongue while sucking on them with my lips.</p>
+<p>Nagumo Sian couldn't withstand the sudden great pleasure and staggered, letting go of my dick. I kept sucking on her breasts with my mouth and supported her body with my arms so she wouldn't fall.</p>
+<p>"Heueeung, like that, eungh, heut! Even if you suck them like that...! Milk, milk won't come out, haahang♥"</p>
+<p>Nagumo Sian, moaning loudly as if she was in a small climax. I took my mouth off Nagumo Sian's breasts and took off my gown and panties. One of Nagumo Sian's breasts was a mess. The nipple exposed in the bra that was pulled down on one side was covered in saliva and congested because I had sucked on it so hard.</p>
+<p>Since I took off my clothes, I took off Nagumo Sian's luxury lingerie as well. I threw away her bra and pulled down her panties. Hmm, I don't know if she waxed or if it doesn't grow originally, but her pussy was neatly shaved.</p>
+<p>No matter how I looked at it, it was a sexy body. She had melon-sized breasts, a slender waist, and wide hips that looked like they could give birth to ten children without a problem. I gently stroked Nagumo Sian's body with my palms, and it was fun to see her react with a flinch each time.</p>
+<p>I touched Nagumo Sian's body for a while and then lay down on the bed. And I opened my mouth to Nagumo Sian, who was still standing.</p>
+<p>"Put your ass towards my face and suck my dick."</p>
+<p>"Is, is this how you do it?"</p>
+<p>Nagumo Sian took a 69 position in an awkward posture. And she grabbed my dick, which was stiffly erect and looking at the sky, and put it in her mouth. Hmm, she's still awkward at sucking....</p>
+<p>I spread Nagumo Sian's pussy, which was tightly closed in a straight line. It was a pink and quite pretty pussy. A mature woman's scent was leaking from her pussy, seducing me. I used my fingers to spread it all the way to her vaginal opening. There was something I needed to check.</p>
+<p>She had a hymen! Hmm, it's a multi-perforated hymen with small holes. I know she had a husband, so why is she a virgin? I was curious, but I was even more excited at the thought that I could break Nagumo Sian's hymen with my dick.</p>
+<p>"Kyaak! It's, it's getting bigger!"</p>
+<p>"I got excited thinking about Nuna-nim sucking it."</p>
+<p>I made up an excuse to Nagumo Sian's words. My current interest was to loosen her pussy as much as possible so that it would be less difficult for the virgin Nagumo Sian to insert my huge cock. I licked her entire pussy with my tongue and gently stimulated the Clitoris over the hood with my fingers so that it wouldn't touch directly.</p>
+<p>"Eungeuheut, heueut! If you do that, I can't suck Ryuta's, Ryuta's dick...! So, heueut! Hueung, ah!!"</p>
+<p>She reacted like a virgin. She seemed exactly like a virgin, not knowing what to do with the unfamiliar pleasure she felt in her pussy for the first time. Besides, "dick".... I'll have to teach her to speak vulgarly according to my taste later.</p>
+<p>"Eunghaheut...! I think it's going to get weird, haaeuheut! Stop it! Haeung! It feels, hueung!"</p>
+<p>"It doesn't feel weird, it feels good. Just accept it, Nuna-nim!"</p>
+<p>Perhaps remembering my words that I said after briefly taking my mouth off, her moans grew louder and louder, and she was repeating that it felt good. As expected, she was a virgin, so I could paint her as I wanted.</p>
+<p>"It feels, it feels good! It's good, Ryuta, eueheueut! It feels good♥"</p>
+<p>Nagumo Sian was feeling so much pleasure that her thigh muscles were cramping. She had already climaxed about twice, so her pussy should be loose enough. I got out from under Nagumo Sian and laid her down.</p>
+<p>Nagumo Sian, knowing that the situation had finally come where she would become one with me, was looking at me with a strange expression mixed with excitement, fear, and thrill.</p>
+<p>"I'm going to put it in."</p>
+<p>"Eueung, be, be gentle.... It's been a while."</p>
+<p>Lying to someone who had already seen her hymen, I held back my laughter. I put on a gentle expression as if to tell her not to worry and brought my dick to Nagumo Sian's pussy.</p>
+<p>"Haa.... It's hot. It's hot down there...."</p>
+<p>Even though I had only put my glans on the entrance, fluid gushed out from Nagumo Sian's vaginal opening. I pushed my hips slightly to advance my dick. Nagumo Sian's pussy, which had been tightly closed in a straight line, began to accept my dick as it expanded greatly.</p>
+<p>However, the advance of my dick was soon blocked by her hymen. Nagumo Sian's body was slightly stiff, as if fearing the pain she would feel in the future. I only put my dick slightly into the entrance and hugged Nagumo Sian tightly while kissing her.</p>
+<p>As she hugged my big body and kissed me, her stiff body gradually relaxed. I suddenly pulled my hips back slightly and thrust my dick into Nagumo Sian's deepest part. As her hymen tore, Nagumo Sian's back arched like a bow.</p>
+<p>"Aaa!"</p>
+<p>I had already loosened her pussy enough beforehand, and she didn't seem to feel much pain due to the influence of my characteristics. Nagumo Sian looked at me with tears in her eyes. It was a look full of affection.</p>
+<p>"Ryuta, I'm yours from now on."</p>
+<p>"Is it okay if I do whatever I want with Nuna-nim's body?"</p>
+<p>"Whenever you want, I will spread myself for you."</p>
+<p>Hoo, those were vulgar words for a woman who was a virgin until just now, but if she was trying to excite me, it was a successful line. I grabbed Nagumo Sian's breasts with both hands and started piston movements.</p>
+<p>-----</p>

@@ -5,65 +5,91 @@ weight = 1004
 chapter = 1004
 +++
 
-<p>When Taira Danjo declared that he was entrusting Taira Food distribution to his youngest Grandson, the news was simultaneously delivered to Taira Food distribution. This was because he had become the Boss of Taira Food distribution at the moment of the declaration. The sudden Boss appointment caused a stir at Taira Food distribution. Various rumors about the new Boss were circulating.</p>
-<p>「I heard he's an illegitimate child.... No matter how minor our company is within the Taira Group, can they just send anyone if they have the Taira surname?」</p>
-<p>「I heard he didn't even graduate from University.... Would a high school graduate even understand our Reports?」</p>
-<p>Even though Taira Food distribution was a second-tier company with little Influence within the Taira Group, Taira was still Taira. Many of the employees, excluding the truck drivers, were capable individuals who were treated as Elite within Japan.</p>
-<p>There were quite a few employees from Edo University or who had studied overseas, and they couldn't help but feel Dissatisfaction that someone they had never heard of or seen was becoming Boss simply because their surname was Taira.</p>
-<p>「You guys don't know anything.」</p>
-<p>While most employees were dissatisfied with this Boss appointment, those at the Manager level or higher, who understood the inner workings of the Taira Group, thought differently about this appointment. One Manager spoke to the employees who were expressing their Dissatisfaction and discussing the new Boss.</p>
-<p>「What don't we know, Manager-nim?」</p>
-<p>「You don't know our Chairman-nim. Even Taira Ichiro's first Son, who is currently the most advanced among the Successors, is only a Branch Manager. But our new Boss is the Youngest among the Grandson Faction, yet he became a Boss. What does that mean?」</p>
-<p>The employee fell silent at the Manager's Question. Indeed, what did this Boss appointment mean? A few things came to mind, but the words wouldn't come easily.</p>
-<p>「There's been a rumor since ancient times that the Chairman-nim gives missions to his children or Grandchildren. Each of those missions was famous for being extremely difficult. It's a rumor, but there's talk that when Taira Ichiro-ssi became an Adult and received Taira Bussan, he went to the USA and stole one of the core Technologies of a major company. Our new Boss probably also achieved something for the Group through a mission and is receiving a company, so he won't be someone completely without Ability.」</p>
-<p>The Story that Taira Danjo gave missions to his children and Grandchildren was a bit too high-level Information for employees to know yet. However, with so much Dissatisfaction, work efficiency would also drop, so the Manager informed the employees about the new Information of 'missions.'</p>
-<p>「Did Taira Ichiro-nim really work as an industrial spy in the USA himself?」</p>
-<p>「It's a rumor, a rumor. How would we know for sure? If we knew, the USA wouldn't stay still. But it's almost certain that there are missions given by the Chairman.」</p>
-<p>「If so, that's Fortunate. It means that a capable person is coming, not just someone who was lucky enough to be born into the Taira Family.」</p>
-<p>In the end, the employees who were dissatisfied with the Boss appointment heard the Manager's Story and, upon hearing that the new Boss, Taira Ryuta, was at least not incompetent, their Dissatisfaction subsided.</p>
-<p>After that, the quite intriguing theme of Taira Danjo's missions circulated on the company's anonymous bulletin board, and the rumor that Taira Ryuta had passed that mission and was entrusted with Taira Food distribution began to spread almost as fact.</p>
-<p>「What's the Atmosphere like at Taira Food distribution?」</p>
-<p>On the way to Taira Food distribution, I received a Phone Call from Asada Ei, who was in charge of Jo Seodang. Since I had received the call anyway, I asked about Taira Food distribution.</p>
-<p>-It's not bad. At first, there seemed to be some Dissatisfaction, thinking he was just a parachute with the Taira surname, but persuading some middle managers seems to have worked well.</p>
-<p>Since I had heard about receiving Taira Food distribution as a Reward from the moment I heard about the St. Francis Girls' Academy mission, I was able to carry out preliminary manipulation of Taira Food distribution while creating Jo Seodang.</p>
-<p>Now that I knew in advance which company I would receive, I couldn't just sit still. It was both to preemptively take control of Taira Food distribution and to scout talented individuals within Taira Food distribution in advance. And to subtly shift negative public opinion, too.</p>
-<p>-I will organize a List of useful Talents at Taira Food distribution and submit it as a Report within ten minutes.</p>
-<p>「Keep up the good Work, Ei-ssi.」</p>
-<p>-This is nothing when it's for Ryuta-nim. I will contact you again if there's any further Information to inform Ryuta-nim.</p>
-<p>Asada Ei made a loyal Remark and hung up the Phone Call. As Asada Ei hung up, the headquarters Building of Taira Food distribution came into view. It was a 40-story Building, smaller than the Hatake Investment Company Building, but while Hatake Investment Company only used part of a Building, Taira Food distribution used an entire Building.</p>
-<p>Arriving at the Taira Food distribution Building, I immediately met the former Boss, Akeshita Kogo. Akeshita Kogo was an Elderly Person with White hair. He had originally planned to retire last year but had waited until early March, when I completed my mission.</p>
-<p>Of course, he didn't know that I would be his successor, but he knew that a successor would arrive in early March, so he had prepared in advance.</p>
-<p>「Hello, former Boss Akeshita-nim.」</p>
-<p>「 Hee-hee , you are the most Tall and Handsome among Danjo-ssi's Grandchildren, new Boss-nim.」</p>
-<p>Perhaps because he was on the verge of retirement, he had a somewhat relieved Expression.</p>
-<p>「Are there any matters for handover?」</p>
-<p>「All the Data is on the CEO's Office computer, and my secretary will work for about another week, so you don't particularly need to receive the handover from me.」</p>
-<p>Unlike Han Yu-gyeong's case, where the former Boss just left abruptly when the Boss changed, Akeshita Kogo left all the Data and even his secretary, so he seemed like a decent Person. Or perhaps he didn't want to be caught by the Taira side at the point of his retirement.</p>
-<p>「If there's any handover matter I need to specifically mention, it's that Taira Food distribution's profits have grown considerably since the construction of Neo Tokyo. I hear rumors that Taira Bussan is coveting this.」</p>
-<p>Neo Tokyo, even in its early stages, had numerous companies, with a high proportion of Taira or pro-Taira enterprises. Taira Food distribution's profits had increased as almost all of these companies received foodstuffs from Taira Food distribution, and it seemed Taira Bussan was eyeing that sector.</p>
-<p>I'll have to be a bit careful here. I should make long-term contracts, too. So that even if they want to switch business partners to Taira Bussan, they can't due to penalty fees.</p>
-<p>「Thank you for the advice.」</p>
-<p>「It's merely a handover matter.」</p>
-<p>It seemed like quite important Information, but he didn't even make a show of it; he was a grateful Grandfather, wasn't he? While Linxiang was checking the Data on the computer, I conversed with Akeshita Kogo and heard quite useful Stories. Things like the know-how he gained from operating Taira Food distribution.</p>
-<p>「There are no problems with the Data.」</p>
-<p>「Then I can go now, right?」</p>
-<p>Simultaneously with Linxiang's Report, Akeshita Kogo let out an kkeu-eung sound and rose from his Seat.</p>
-<p>「If you have any more Questions, ask my secretary.」</p>
-<p>Akeshita Kogo told Linxiang to ask his remaining secretary if she had any Questions, then left the company with a relieved Expression. He was a Person who should have retired last year but worked for another half year, so his relieved Expression was understandable.</p>
-<p>After Akeshita Kogo left the company, I sat down at the CEO's Office desk. The Mood was quite strange. Although I already owned several companies, I had never actually sat in a CEO's Office like this.</p>
-<p>At TG Tech, my Share was the largest, but Han Yu-gyeong and I split it almost fifty-fifty, with Eve and Lara Sinclair also holding Shares, and its headquarters were in Korea, so I hadn't been able to sit in the CEO's Office Chair. Hatake Investment Company was 100 percent owned by me, but Jinmija Yeosa was the CEO, and I had other Work, so I hadn't sat in the CEO's Office.</p>
-<p>The same went for other PMC companies; for various Stories, today was the first time I had sat in a CEO's Office like this.</p>
-<p>「Junior-nim, no.... Boss-nim, you're so cool!」</p>
-<p>「Ryuta-nim, the CEO's Office suits you.」</p>
-<p>The desk and Chair in the CEO's Office had a dignified Design tailored to an Elderly Person's Preference, but Mimata Chieri and Linxiang praised me, saying that the dignified Feeling suited me quite well.</p>
-<p>「Now, I've taken my first step in the Taira Group. Let's do well here at Taira Food distribution and take two, three more steps forward.」</p>
-<p>Yes, as I said, I've taken my first step now. Let's not be too arrogant and not let our guard down. I muttered to myself and looked at Mimata Chieri and Linxiang.</p>
-<p>「The official inauguration ceremony will be tomorrow, but for now, call the Talents we've already identified to the CEO's Office.」</p>
-<p>Still, since I came to Taira Food distribution today, I should do a few things before leaving. The very first thing was to check the Talents investigated by Jo Seodang. Since the Talent Report recommended by Jo Seodang was uploaded to my work email, I showed that Report to the two and told them to bring the Talents. No matter how good the Report was, I had to see their Faces directly. I couldn't appoint them to important positions without even seeing them.</p>
-<p>Surprised Taira Kisa and Taira Camilla, requested by Gojoy-nim.</p>
-<p>Kisa~!</p>
-<p>I worked on a white background because I made the background, so they're sitting at a desk, not a Chair~!</p>
-<p>Linxiang bikini 1, just 2, phone camera, requested by TheDreaming-nim.</p>
+<p>-Gensuke hyung-nim. I heard you handled the Work well in South America this Time, congratulations.</p>
+<p>That bastard cousin, who was only half-decent looking, with a sneering Expression, was praising his Achievement. In fact, Taira Ryuta had not made such an Expression at all when he heard this Praise, but to Taira Gensuke, who was filled with Inferiority Complex, it was engraved as mockery.</p>
+<p>-But I'm the Boss of an Affiliate Company. From now on, would you please call me Boss-nim? Gensuke Branch Manager-nim?</p>
+<p>"Keuaaaak! This fucking dog...!"</p>
+<p>With a shriek, Taira Gensuke woke from his Sleep. He was fuming, but realizing he was in his Bedroom, Gensuke realized he had a Dream. And breathing roughly, he raised his Palms and rubbed his Face, performing a dry Wash Face.</p>
+<p>"jenjang, Ryuta bastard...!"</p>
+<p>Taira Gensuke, having finished his dry Wash Face, let out a low Curse. Of course, the calm and intelligent Taira Gensuke knew that this Dream stemmed from his Inferiority Complex.</p>
+<p>From a young Age, Taira Gensuke had been compared to his older half-brother, Taira Tabenobu, who was a bit older, and during his school days, although he wasn't Bullying because he was a Taira, he had felt an invisible Contempt as a Mixed Blood with different skin Color, and thus grew up engulfed in an Inferiority Complex. Because of this, Taira Gensuke grew up with a significantly twisted Personality.</p>
+<p>Rather, thanks to that, with his reckless and rough Personality and drive, he was able to achieve great Achievements as the South America Branch Manager of Taira Bussan, but due to his rough Personality and victim mentality stemming from his Inferiority Complex, he didn't have many People around him.</p>
+<p>Taira Gensuke knew of his Personality flaws, but with his arrogant and selfish Tendency, he genuinely believed that the People who left him and those who made him feel inferior were more at fault.</p>
+<p>Taira Ryuta, who appeared in this Nightmare, was no different. Just a bastard child, his Appearance of making a fuss to catch his Grandfather's Eye was extremely annoying, which is why he appeared in his Dream. He thought he should give him a good scolding someday.</p>
+<p>"Tsk...!"</p>
+<p>Taira Gensuke clicked his Tongue and turned on his phone. The Time was five in the Dawn. Although it was earlier than his usual waking Time, he was already wide awake, so he had no Intention of lying back down on the bed.</p>
+<p>"Why Kitsumasa...?"</p>
+<p>Taira Gensuke muttered, looking at his phone. A Text Message from Taira Kitsumasa had arrived.</p>
+<p>Taira Kitsumasa was his Cousin, two years older than him, and the Son of Taira Jiro. Although he was older in Age, he himself was the Son of Taira Ichiro, the legitimate eldest Son of Taira, while Taira Kitsumasa was the Son of the second.</p>
+<p>Therefore, Taira Gensuke had never shown Etiquette to Taira Kitsumasa. Yet, in Taira Gensuke's Eyes, who didn't show any sign of being upset, he was a worthless bastard who seemed to be harboring hundreds of Snakes inside. So he thought he was a bastard who needed to be dealt with someday.</p>
+<p>For such an unpleasant bastard to suddenly send a Text Message, 'What Story does he want to tell me?' he thought, and Taira Gensuke looked at the content of the Text Message. The content of the Text Message was quite long. True to Taira Kitsumasa's style, it was filled with meaningless Stories and all sorts of modifiers. Taira Gensuke, annoyed, was about to turn off the Text Message screen, but looked at his phone again. This was because the core content Taira Kitsumasa wanted to convey was almost at the end of the Text Message.</p>
+<p>-Kitsumasa: Oh, right. Did you hear about our youngest bastard? He managed to secure a pretty big contract this Time.... At this rate, won't he get another Reward from Grandfather at the next competition? Saburo Uncle passed away, and I was worried about what would happen to the youngest bastard, but it's Fortunate he's adapting well.</p>
+<p>He sent the Text Message as if he were a good Person, but it was subtly Stimulating Taira Gensuke. Taira Gensuke, having read the Text Message, gnashed his Teeth.</p>
+<p>Rage surged at Taira Kitsumasa, who didn't even hide his Intention to provoke and use Taira Gensuke to Attack Taira Ryuta, and he was also angry that Taira Ryuta, who had only recently taken over the company, had achieved something, and he was even angry at himself for being angry as Taira Kitsumasa intended.</p>
+<p>"Kitsumasa...!"</p>
+<p>Taira Gensuke, who had been softly calling Taira Kitsumasa's name, rose from his Seat. Anger was anger, and it was Time for his morning routine of martial arts Training.</p>
+<p>"Good, I'll play along as you wish. But you'd better abandon the thought that you'll be Safety just because you're in distant Europe."</p>
+<p>As he went to the Underground Training ground, Taira Gensuke picked up his phone and made a Phone Call to someone.</p>
+<p>"Uh, yeah. I want to hire someone.... Anonymously, so that even if Taira or Minamoto search, they can't catch a Tail.... Ahaha! It's nothing. Just one employee from a financial company in London gone...."</p>
+<p>Taira Gensuke laughed as if he had never been angry, and headed to the basement while on the Phone Call.</p>
+<p>"You can sign here."</p>
+<p>As Eve said, I was signing the Document. This was the Last Document. Today was quite busy.</p>
+<p>I, who woke up early in the Morning, first met with several Public Officials from the Morning and had a Story.</p>
+<p>After the Third World War, countless People went missing or disappeared without even leaving a Corpse. And because it was common for People to set up companies under such Ghost identities and commit fraud, to properly conduct a large Business in the USA, the Boss truly had to confirm to the relevant Public Officials whether the name belonged to them.</p>
+<p>Naturally, my Status was perfect. Since it was a Status created by a US intelligence agency, it would be strange if a Public Official caught it.</p>
+<p>The Public Officials were kind, probably because I had promised to provide cyber implants at a discounted Price to the child of one of the Public Officials.</p>
+<p>Cyberware had recently become famous as a company that makes lifestyle cyber implants that are not significantly different from human Skin, so the Public Official in charge was very happy.</p>
+<p>"Here are the Documents."</p>
+<p>"Thank you, Ryuta-nim~!"</p>
+<p>Eve received the Documents I handed her. For reference, Eve was currently in the USA with her android Main body, not as a hologram.</p>
+<p>After I left St. Francis Girls' academy, there was no longer any Reason to be in Miyashi as an android body, so she immediately left Japan and came to the USA, she said. She said it was for Cyberware Work and also for personal Purpose.</p>
+<p>I asked Eve about that personal Purpose out of curiosity, but unlike the usual Eve who would answer anything I asked, she shook her Head with an embarrassed Expression, so I couldn't find out her Purpose.</p>
+<p>"Since Ryuta-nim is also a Shareholder with the Rights and Responsibility of this company, this Document Work is naturally something that must be done, so it can't be called a Price, but since you've come all the way to the USA, I'll give you the Information I've gathered."</p>
+<p>As Eve said, Cyberware could be considered my company, so this trip to the USA was naturally something I had to help with, but seeing my Sincerity in coming all the way to the USA, Eve seemed to have prepared a Gift of Information.</p>
+<p>"Thank you."</p>
+<p>After receiving the UCT that Eve handed me, I parted ways with Eve and returned to the Federal Superpower Management Department's Safe House. Since it was around lunch Time, I asked my Party what they wanted to eat, and then bought and packed what each of them wanted.</p>
+<p>"Haaam~! Disciple, you brought the Hamburger I requested, right?"</p>
+<p>"Yes. Is this burger really that delicious?"</p>
+<p>I asked Fujigasaki Rinka, who was yawning as if she had just woken up and immediately looked for a burger. What Fujigasaki Rinka had requested was a Hamburger, and it seemed to be quite a famous Place, as I had to queue up to get it packed.</p>
+<p>I heard it was the Hamburger franchise that was expanding the fastest since the Third World War. It was called Mars Burger, and now that I think about it, if Mars means the planet Mars, is this a Mother Mars company Product?</p>
+<p>"It suited my Taste. Lots of Meat too."</p>
+<p>"Let's all eat together first."</p>
+<p>When I arrived, everyone gathered except for a few who were Sleeping due to yesterday's Patrol. I placed the packed food on the long Dining table and handed Naruse Shiyo the UCT I received from Eve.</p>
+<p>"What is this, Teacher-nim?"</p>
+<p>"Information received from Eve. I think it might be Information about New York's Back Alley...."</p>
+<p>"Then, shall we see what Information there is while eating lunch?"</p>
+<p>"That's fine too."</p>
+<p>So we sat at the Dining table, looking at the Screen. Three Jo Seodang employees brought by Naruse Shiyo connected their laptops to a large Screen and displayed the Information Eve had provided.</p>
+<p>While the Information was being displayed, we ate Mars Burgers, and indeed, it was a Taste Fujigasaki Rinka would like. The thick patty was overflowing with Meat juice, and with fresh tomatoes and lettuce, rich cheese, and a high-quality bun full of butter scent.... Indeed, it was a Taste that explained why it was so popular even in the USA, the country of burgers.</p>
+<p>After taking a bite and searching, it was indeed a franchise created by Mother Mars. It seemed Mother Mars was slowly starting to show movements to become one of the future five MegaCorporations.</p>
+<p>While I'm in the USA, should I meet Vivian Taylor one more Time? Hmm, let's think about Vivian Taylor's side after I've resolved all the Work I came for.</p>
+<p>Having finished my Thoughts about Mother Mars, I looked at the Screen and saw a screen densely filled with various Information. Among them, something caught my Eye, and Seizawa Shii happened to be reading that part.</p>
+<p>"...A valuable ancient book, or a forbidden book called a grimoire, a fragment of omniscience (Omniscient shard), has flowed into New York's Back Alley, and sorcerers or Magicians are flocking to New York.... Is this a fact? A grimoire? Magicians? Do they really exist?"</p>
+<p>Seizawa Shii said, as if she couldn't believe it. Of course, even though Seizawa Shii had personally been subjected to Jusul, it was understandable that she couldn't believe it when it was written like that.</p>
+<p>"There are sorcerers and Yin-Yang masters, so there's no way there aren't Magicians. Shii, you've been subjected to Jusul before too."</p>
+<p>"Still.... It's strange, isn't it? If it were someone who didn't know anything about this kind of Matter, they would have thought it was a Novel, wouldn't they?"</p>
+<p>At Naruse Shiyo's Words, Seizawa Shii grumbled. Although Seizawa Shii spoke as if she couldn't believe it, I thought this must be a fact.</p>
+<p>As there was a Magician tree, there were grimoires in the game as well. However, a grimoire called the fragment of omniscience was new.</p>
+<p>Because of this Information, the Black Sage's Rhythmic Motion began to be understood.</p>
+<p>"Investor-nim, the Black Sage is also.... a sorcerer, right?"</p>
+<p>Sawayanagi Azuma asked. Sawayanagi Azuma also seemed to Guess roughly what was happening.</p>
+<p>"Yes, the Black Sage, like those mentioned in this Information, is probably one of the Magicians and sorcerers who have flocked here. Probably...."</p>
+<p>"The fake Black Knight stirring up New York's Back Alley must also be to find that grimoire."</p>
+<p>Following my Words, Fujigasaki Rinka spoke. Until now, I hadn't known why the Black Sage came to New York and was doing such an Act, but with Eve's Information, it was becoming clear.</p>
+<p>"And because of that fake Black Knight, Famine sent his Subordinates under his command, right? What the fuck...."</p>
+<p>This Time, Lianna Holden spoke. Surprised by this Information, she had ketchup on her Mouth and was staring blankly at the Screen.</p>
+<p>"...A Storm of Confusion will sweep over New York."</p>
+<p>Musashi Takuro, who knew the Black Sage's Strength, muttered. If the Black Sage was only a part of this Matter, then, as Musashi Takuro said, a Storm of Confusion would truly sweep over New York.</p>
+<p>Chomise-meonji-nim requested Liz's breast covering and underwear Attire~!</p>
+<p>Breast covering~!</p>
+<p>Underwear~!</p>
+<p>TheDreaming-nim requested Gokado Hanako 1. Rainy Park 2. Falling on the Road</p>
 <p>1.</p>
 <p>2.</p>
-<p>Kkiyot!</p>
+<p>When I tried with the requested loose panties, it came out like this, so from the next Image, I just put on normal panties hehe.</p>
+<p>As I mentioned a few days ago, due to an AI error, I'm currently organizing the LORA, so I couldn't apply the phone camera LORA ㅠㅠ. It seems it will be applicable from the next Request~!</p>
+<p>Hwanbuljeoldaebulga-nim requested Lisa, the lying Belly Dancer, and the Home Teacher-nim~!</p>
+<p>Lisa~!</p>
+<p>Home Teacher-nim~!</p>
+<p>Bonus~! Home Teacher-nim made with the Lisa model~!</p>
+<p>I didn't even realize I hadn't changed the model, and then I checked, wondering, 'Huh, why doesn't it feel like the original Home Teacher-nim?' and it turned out I had made it with the Lisa model hehe.</p>

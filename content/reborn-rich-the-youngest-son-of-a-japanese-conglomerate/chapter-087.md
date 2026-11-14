@@ -5,57 +5,83 @@ weight = 87
 chapter = 87
 +++
 
-<p>Today was Friday, the day the new recruits who had been training at the Human Resources Development Institute for a month were graduating. The trainees whined and begged to have a graduation party at the Human Resources Development Institute, but because Taira Yukiko-ssi asked me to drive, I had to be her driver for the day. The secretary, who also doubled as a driver, took a vacation, and suddenly there was a long-distance trip.</p>
-<p>Other groups were also having graduation parties, so I had no choice but to appease my group members and the other trainees I had built relationships with by promising to hang out from Saturday evening to Sunday lunch. Anyway, I'm going to be super busy this weekend. I have to deliver Sifu's autograph to Hanasaki Sayaka on Saturday afternoon, there will be a sex party from Saturday evening until who-knows-when on Sunday, and I have to meet Arisu-yang on Sunday night... I won't have a moment to rest. Should I invest in stamina for the next level up?</p>
-<p>,Here it is. I'll be out in less than two hours, so please wait for me."</p>
-<p>,Yes."</p>
-<p>Taira Yukiko-ssi was wearing a black dress with luxurious gold embellishments, which suited her sophisticated image. In particular, the contrast between her voluptuous breasts and slender waist showed off her seductive charm.</p>
-<p>I watched Taira Yukiko-ssi get out of the car and enter the mansion. Was it Hiramotoga...? It wasn't as grand as the Tairaga main family residence, but it was a considerably large and stately Japanese-style mansion. Judging by the mansion, it seemed to be a family with a long history, and seeing that the family name was Hiramoto, it seemed to be a branch family of the Taira. Taira Yukiko-ssi told me that they were having a garden party. She said there was someone she needed to make a deal with there, but deals are made in places like that?</p>
-<p>,Two hours... What should I do now?"</p>
-<p>I leaned the driver's seat back and muttered to myself. The secretary who doubles as a driver was on vacation today, so I was drafted, but Taira Yukiko-ssi said she would give me an allowance and immediately deposited the money into my account. 200,000 yen... 200,000 yen for only 4 hours of work, including an hour and twenty minutes of round-trip driving and 2 hours of waiting time, was a considerable allowance. That's 500,000 won per hour in Korean currency. As expected of a chaebol daughter-in-law, she's generous.</p>
-<p>Since Health Miracle stock hadn't reached its peak yet, I hadn't converted the stock into cash, so most of my funds were tied up in Health Miracle. So I was short on money for daily life, but receiving this allowance gave me a little breathing room. It was excessive for only 4 hours of work, but from the perspective of a chaebol daughter-in-law, she probably gave it to me as if she were giving her son about 10,000 yen for pocket money. Still, thanks to that, I was able to live until I sold my Health Miracle stock. Thank you, Yukiko-mama!</p>
-<p>Should I raise my psychokinesis proficiency for two hours? I floated my smartphone, which I shouldn't drop, in the air. That's because I can concentrate a little more, so my proficiency increases faster. The smartphone floated in the air as if it were in a zero-gravity space. I often do proficiency work in between, so now I don't care about floating it in the air.</p>
-<p>I tried rotating it 720 degrees in the air, and I also tried quickly moving it back and forth from the back seat to the front seat without hitting the glass, doing everything I could think of to do in the car. After about twenty minutes, I felt dizzy as if I were anemic.</p>
-<p>I opened the status window and checked my psychokinesis, and it was already level 4. I caught up with and surpassed Shinkai Yatsude, who is currently level 3. I don't know if it's because it's easier than martial arts training, so it's rising quickly, or if it's because Shinkai Yatsude's martial arts are mythical, so the proficiency is slow, but the increase in psychokinesis proficiency was smooth.</p>
-<p>,I should rest now... Huh?"</p>
-<p>I was just about to put my smartphone in my pocket to rest when Taira Yukiko-ssi opened the main gate of the Hiramotoga and came out. I thought she said it would take two hours, but she came out faster than I thought. But because her expression wasn't good, I opened the car door and got out. I don't know what's wrong, but I should comfort her.</p>
-<p>Taira Yukiko-ssi, who must have been distracted, stumbled and was about to fall. I rushed over and grabbed her as she was about to fall.</p>
-<p>,Yukiko-ssi, are you okay? You said it would take a long time..."</p>
-<p>,Huu..."</p>
-<p>Taira Yukiko-ssi's eyes turned red and she started to cry when she saw me.</p>
-<p>,Get in the car first."</p>
-<p>I put Taira Yukiko-ssi, who was still crying, in the passenger seat because I was aware of the people around us.</p>
-<p>,What on earth is going on, Yukiko-ssi?"</p>
-<p>,That's..."</p>
-<p>In response to my question, Taira Yukiko-ssi began to tell me everything. She told me that the three successors had been aiming for the position of director of the Human Resources Development Institute for a long time, and that she had been trying to collect shares of Taira Bio and Taira Robotics, which could exercise control over the Taira Group, in order to protect Taira Yukiko-ssi and me, but she was humiliated by the Hiramotoga.</p>
-<p>Hiramoto Masujiro... I decided to remember this name. How dare a branch family make such a filthy proposal...! My anger didn't subside, but I forcibly endured it and hugged Taira Yukiko-ssi and patted her on the back.</p>
-<p>,It's okay, Mother."</p>
-<p>Taira Yukiko-ssi, who looked at me with a strange expression that seemed slightly surprised, relieved, and disappointed, was seeing me after a long time of calling her Mother. Hmm... The expression of disappointment seemed a little bigger, which was a bit unexpected. Does she like it when I call her by her name? I should just call her by her name again.</p>
-<p>,Shall we go back first, Yukiko-ssi?"</p>
-<p>,...Okay."</p>
-<p>Even while driving, I occasionally looked at Taira Yukiko-ssi's profile. I don't know what she's thinking, but she had an expression that seemed to be thinking about something. I opened my mouth to reassure her.</p>
-<p>,And don't worry. As long as Grandpa is still healthy, Yukiko-ssi won't lose her position as director of the Human Resources Development Institute."</p>
-<p>,But..."</p>
-<p>,If you're really worried, I'll go to the main family and talk to Grandma."</p>
-<p>Taira Shizuku, the mistress of the Taira Group, was the biological mother of the deceased Taira Saburo-nim, and she treated me kindly from the first time she saw me and told me to tell her anything if I had a hard time. She was a grandson-obsessed grandmother.</p>
-<p>I often contacted her and sent her gifts with the calculating thought that I might be able to borrow Taira Shizuku's power someday and with the Confucian sense of respect for the elderly that was ingrained in my body before the possession. She was very happy every time, and I later learned that Taira Danjo-halbae giving me pocket money when he came to the Human Resources Development Institute was also because Taira Shizuku-halmeoni nagged Taira Danjo-halbae to give it to me. As expected, Grandma is the best than Grandpa.</p>
-<p>,So don't worry."</p>
-<p>Did she develop some kind of obsession with survival after Taira Saburo-nim died? I was going to talk about the head of the personnel department and Suzuki Chisami that Taira Jiro-ssi had planted in the Human Resources Development Institute, but I thought it would be counterproductive to talk about it now, so I decided to talk about it later.</p>
-<p>,I understand, I'm sorry. I'm only receiving comfort from you..."</p>
-<p>,You're forbidden to say sorry."</p>
-<p>Taira Yukiko-ssi, who I had seen as a confident career woman, was in pretty bad shape today.</p>
-<p>As I continued to comfort her gently while driving, I arrived at the Human Resources Development Institute before I knew it.</p>
-<p>,Wait a minute! Don't come in, just stay there."</p>
-<p>I quickly went into the house, turned on the lights in the garden, poured champagne into two champagne glasses, and came out. The housekeeper had already left work, so there was no one in the house.</p>
-<p>When I came out, Taira Yukiko-ssi was standing in the park in front of the house. Well, it wasn't as good as the Hiramotoga's garden, but the garden of the Human Resources Development Institute's annex was also a well-kept garden.</p>
-<p>,You came out early today, so you didn't get to enjoy the banquet properly, did you? Let's overwrite the bad memories of the Hiramotoga with happy memories with me."</p>
-<p>When I handed her a glass of champagne, Taira Yukiko-ssi smiled faintly and accepted it. I held out my glass and shouted, ,Cheers!", and Taira Yukiko-ssi clinked glasses with me. There was a clear sound of glass hitting each other.</p>
-<p>I took a sip of champagne and looked at Taira Yukiko-ssi, but she was just holding the champagne and not drinking it. She was just staring at me. It was as if she was yearning for something.</p>
-<p>,Yukiko-ssi."</p>
-<p>Taira Yukiko-ssi emptied her champagne glass in one gulp as I took a step closer. Perhaps because of the alcohol, her eyes became even more dazed. I took another step closer as the champagne glass fell on the soft grass. We were close enough that our breaths brushed against each other's noses and I could see her eyelashes.</p>
-<p>,No, we're mother and son."</p>
-<p>Taira Yukiko-ssi pushed me away, but there was no strength in her hand at all. I grabbed the hand that was pushing me away.</p>
-<p>,We're not even blood-related."</p>
-<p>,Still... Euung!"</p>
-<p>Before Taira Yukiko-ssi could say any more useless words, I blocked her lips with my lips. As I kissed her, she let go of the hand that was pushing me away, and that hand was already covering my face.</p>
-<p>The kiss continued for a long time.</p>
+<p>"I'm hungry?"</p>
+<p>After some intense sex, Han Yu-gyeong couldn't handle the pleasure and passed out. Left alone with nothing to do, I felt hungry, so I decided to go out and grab a bowl of gukbap (Korean soup with rice) and put on the clothes I had taken off. It was already 2 AM. I had dinner, walked around a bit, and had a highball at an izakaya before coming back at 9 PM, so excluding the time spent using Han Yu-gyeong's trait, I had been shaking my hips for four hours. Proud of my still-intact waist, I finished dressing and patted it. Good job, little guy.</p>
+<p>As I headed out, I searched for 24-hour gukbap restaurants near Korea University. Hmm...! There are a few places nearby. Since I'm lazy, I should go to the closest one.</p>
+<p>"Hey."</p>
+<p>I was excitedly heading to the gukbap place when someone called out to me from a bench in front of Han Yu-gyeong's apartment complex. I wondered if they were calling someone else, so I looked around, but since it was 2 AM, there was only the bench guy and me. As I approached the bench, the face of the bench guy, hidden in the shadows, came into view.</p>
+<p>The bench guy was none other than Park Sang-beom. Park Sang-beom's condition wasn't good. His eyes were like those of a goldfish that had died a week ago, and in just a few hours, stubble had sprouted thickly on his chin and below his nose like pencil lead. Was it such a big shock to him that Han Yu-gyeong had a boyfriend?</p>
+<p>"What's the matter?"</p>
+<p>"You, break up with Han Yu-gyeong."</p>
+<p>I had a feeling it would be something like that. I stared at Park Sang-beom with incredulous eyes. Should I just...! Give him as a tribute to Simyeonui ttal (Daughter of the Abyss)? Luckily for Park Sang-beom, the area was full of CCTVs. Otherwise, I would have beaten him to a pulp and then given him as a tribute.</p>
+<p>"No."</p>
+<p>So, my choice was to ignore him. Leaving the word "no," I turned around and started walking towards the sundae gukbap (Korean sausage soup with rice) place I had searched for. I heard a tatatatak sound from behind, and Park Sang-beom ran up and blocked my path. To ordinary people, he might seem intimidating because of his sturdy build, but since I was superior in both height and muscle, I didn't feel any pressure at all. With superiority in looks and wealth as well, there was nothing I would lose to Park Sang-beom. My personality is probably better too...?</p>
+<p>"Do, do you know who I am?!"</p>
+<p>"I don't care."</p>
+<p>As I passed Park Sang-beom again, he ran up and blocked my path once more. Hmm, getting a little annoying, isn't he? Feeling my patience running out, I looked at Park Sang-beom.</p>
+<p>"My father is Park Il-soo, the president of BS Planning."</p>
+<p>"So what?"</p>
+<p>Until now, I had been using respectful speech because he was Han Yu-gyeong's Sunbae (senior), but thinking about it, he's Han Yu-gyeong's Sunbae (senior), not mine. There's no need to use honorifics to a guy who's going to be a villain anyway. As a final act of mercy, I decided to show him my strength. I happened to have a 500-yen coin in my pocket, so I took it out.</p>
+<p>Kkuuuk!</p>
+<p>Right in front of Park Sang-beom's eyes, I folded the 500-yen coin in half using only the grip strength of my thumb and index finger. Then, I threw it at Park Sang-beom.</p>
+<p>"If you don't want your spine to be folded like this, get out of my way. I'm starving because I've been exercising in the room."</p>
+<p>"...!"</p>
+<p>I spoke with murderous intent, growling like a beast, and passed by Park Sang-beom, who was stunned after receiving the folded 500-yen coin. Then, I went to the sundae gukbap (Korean sausage soup with rice) place I had been eyeing. As expected, the show of force was effective, and Park Sang-beom didn't follow me.</p>
+<p>"Imo (Auntie)! One sundae guk (Korean sausage soup), extra large, please."</p>
+<p>As expected, gukbap (Korean soup with rice) was Korea's long-standing traditional fast food. Less than three minutes after ordering, a steaming hot earthenware pot of milky white soup was placed on the table. I added salted shrimp and spicy seasoning and started devouring the gukbap (Korean soup with rice). As expected, Japan didn't have food that gave this kind of hearty feeling. Well, anything is hearty if you eat a lot of it.... But still, nothing beats gukbap (Korean soup with rice)!</p>
+<p>While eating, I also ordered another gukbap (Korean soup with rice), extra large, to go. I was thinking of offering it to Simyeonui ttal (Daughter of the Abyss). Surely, she wouldn't get angry just because she received gukbap (Korean soup with rice), right?</p>
+<p>###</p>
+<p>A few hours earlier.</p>
+<p>Park Sang-beom had missed Han Yu-gyeong and Jin Yong-tae and returned to the bar where the end-of-term party was taking place. Since they hadn't left long ago, the conversation naturally revolved around Han Yu-gyeong and Jin Yong-tae.</p>
+<p>"Damn, I wondered who would actually date Han Yu-gyeong, but as expected, she's dating a hottie...."</p>
+<p>"Please, let his dick be small...."</p>
+<p>"Je-kko-sam!" (Please let his dick be small)</p>
+<p>The male students who had been secretly eyeing Han Yu-gyeong gave up after seeing Jin Yong-tae's appearance. There were even guys shouting "Je-kko-sam!" until the very end. But....</p>
+<p>"I was secretly looking at *that* area, and there was something like a snake in there?"</p>
+<p>"Maybe it's a phone?"</p>
+<p>"Looking at his face, it doesn't seem like it would be small...."</p>
+<p>The male students shouting "Je-kko-sam!" eventually collapsed due to the testimony of a female student who had been looking at Jin Yong-tae's crotch for some reason from the beginning and the appearance of face-reading experts.</p>
+<p>"Shit.... Let's just drink."</p>
+<p>"I loved you, Yu-gyeong-a...!"</p>
+<p>Perhaps because they heard that their crush had a boyfriend, the male students poured alcohol as if venting their anger. Park Sang-beom wasn't in a great mood either, but he wasn't too disappointed because he thought he could exclude Han Yu-gyeong's current boyfriend with his wealth and power.</p>
+<p>Park Sang-beom stayed for about an hour and a half, then gave the student body president the money for the second round of drinks and got up. Some female students clung to him, saying, "Oppa (Older brother), where are you going~? Let's play more," but he didn't feel like playing with women today. Park Sang-beom shook his head and got up from his seat.</p>
+<p>As he was leaving the bar, he received a call from the secretary his father had assigned to investigate Jin Yong-tae.</p>
+<p>"Secretary Kim, how is it going? Did you find out what that Jin Yong-tae guy does? Who are his parents?"</p>
+<p>-Judging from the lack of information in Korea, it seems likely that he is active in Japan, as you mentioned, Doryeonnim (Young master).</p>
+<p>"Does 'no information' mean you haven't found out anything? Do you get paid to say that? Do you want to get fired? Secretary Kim, you better find out more detailed information!"</p>
+<p>Didn't Secretary Kim's words ultimately mean that he hadn't found out anything? Park Sang-beom got angry at Secretary Kim and hung up the phone.</p>
+<p>Then, he headed towards the house where Han Yu-gyeong lived. It wasn't difficult for Park Sang-beom, who was involved in student council activities, to obtain the addresses of students, so Park Sang-beom knew Han Yu-gyeong's address.</p>
+<p>He sat blankly on a bench in front of the apartment complex.</p>
+<p>'I thought she was my woman....'</p>
+<p>It was purely Park Sang-beom's own thought, but until yesterday, Park Sang-beom had seriously thought that Han Yu-gyeong would become his woman.</p>
+<p>"Huh?"</p>
+<p>He saw a couple affectionately entering the entrance of Han Yu-gyeong's apartment with their arms linked. It was Han Yu-gyeong and Jin Yong-tae! Entering at this time could only mean one thing. A scene of the two of them rolling around naked automatically played in Park Sang-beom's head.</p>
+<p>"Wait!"</p>
+<p>He shouted, but it was already too late. The two had already entered the apartment, and the only person who heard Park Sang-beom's voice was Park Sang-beom himself.</p>
+<p>Park Sang-beom looked up at the window of the house where Han Yu-gyeong lived. Not long after the couple entered, the light in the window turned on. So, I wasn't wrong.... Park Sang-beom trembled as if he were possessed by a boyfriend betrayed by his lover. Even though Han Yu-gyeong and Park Sang-beom were nothing more than school seniors and juniors, he trembled with a sense of betrayal.</p>
+<p>The light in Han Yu-gyeong's window didn't turn off until 2 AM. And it was only at 2 AM that the light turned off. Park Sang-beom saw the light turn off and was about to get up. But then, Jin Yong-tae, whom he had seen earlier, came out of the apartment entrance?</p>
+<p>"Hey."</p>
+<p>Lowering his voice as much as possible, he called out to Han Yu-gyeong's boyfriend. He had intimidated and bullied smaller friends in high school a few times, so he thought it wouldn't be a problem to corner Han Yu-gyeong's boyfriend. But he was wrong. Jin Yong-tae almost completely ignored Park Sang-beom. He was also bigger than Park Sang-beom, and it seemed like he was looking down on him with his eyes.</p>
+<p>Even after he revealed that he was the third-generation heir of the BS Group, there was no reaction. He was just annoyed. When Park Sang-beom continued to block his path, Jin Yong-tae sighed and took out a coin from his pocket. Then, he folded the coin in half right in front of Park Sang-beom's eyes. It was a monstrous grip strength.</p>
+<p>"If you don't want your spine to be folded like this, get out of my way. I'm starving because I've been exercising in the room."</p>
+<p>Park Sang-beom felt what it was like to experience murderous intent for the first time. He was like a herbivore in front of a tiger, unable to do anything. Jin Yong-tae threw the folded coin at Park Sang-beom and disappeared while looking at his phone. Park Sang-beom, who received the coin, unfolded it. The folded coin, of course, could not be unfolded with Park Sang-beom's strength. Looking closely, it wasn't a Korean coin but a 500-yen coin.</p>
+<p>As Han Yu-gyeong said, he must really be in Japan. More than that, Han Yu-gyeong was no longer the issue. He couldn't forgive Jin Yong-tae for giving him this humiliation.</p>
+<p>"Gritting teeth! Just you wait.... How dare you threaten me?"</p>
+<p>Park Sang-beom's voice echoed emptily within the apartment complex without anyone to hear it.</p>
+<p>###</p>
+<p>I came out with a bag containing the packaged sundae gukbap (Korean sausage soup with rice), extra large. Thinking about it carefully, it seemed a bit impersonal to send only sundae gukbap (Korean sausage soup with rice) as a tribute. Wouldn't it be better to prepare drinks and dessert as well? I bought a cola and ice cream from the convenience store. And I borrowed paper from the convenience store and attached it to the ice cream.</p>
+<p>-This is dessert.</p>
+<p>Good. She'll eat it well on her own with this much. Having prepared everything, I entered the alleyway. I gathered the packaged gukbap (Korean soup with rice), cola can, and ice cream in the alleyway and activated the magic circle [Tribute to Simyeonui ttal (Daughter of the Abyss)].</p>
+<p>It was already a dark alleyway, but an even darker magic circle began to be engraved on the ground beneath the offerings I had prepared. And the abyss rose from the magic circle and devoured the offerings. And just like that, the sundae guk (Korean sausage soup), cola, and ice cream disappeared.</p>
+<p>"...."</p>
+<p>The trait description clearly stated that Simyeonui ttal (Daughter of the Abyss) would reward me if she liked the offerings, but there was no reaction. Oh well, I guess it failed this time, I thought, and was about to turn around when the ground cracked and something was spat out. Oh! Is this the reward?</p>
+<p>With a pounding heart, I picked up the object that the abyss had spat out. It was a pair of black gloves and a note. I read the note first.</p>
+<p>-Delicious. The dessert was good.</p>
+<p>It seemed that Simyeonui ttal (Daughter of the Abyss) liked sweets. Should I give her sweets next time too? Or should I give her a corpse as an experiment? Well, it's good enough if Simyeonui ttal (Daughter of the Abyss) was satisfied. I put the note in my pocket and examined the gloves this time. Since they were gloves received from the abyss, they seemed to be treated as an item, and when I focused on the gloves, a semi-transparent description window appeared.</p>
+<p>◆Gloves Woven with Abyss Thread [Epic Equipment]: Gloves woven with the hair of Simyeonui ttal (Daughter of the Abyss). Grants a 150 percent bonus when using abyss-type skills and increases the probability of special effects occurring.</p>
+<p>It was a pretty good item. Since almost all of my skills except for telekinesis were abyss-type, it was a considerable bonus addition, and it even had special effect activation. Until now, I hadn't had proper equipment because I was in Japan, where I didn't know the location of items, but to get epic-grade equipment with just one offering of gukbap (Korean soup with rice), it was a steal. The tribute to Simyeonui ttal (Daughter of the Abyss).... I thought it was a useless trait, but it was completely the best.</p>
+<p>"I'll give you more next time, Simyeonui ttal (Daughter of the Abyss)...!"</p>
+<p>I was able to return to Han Yu-gyeong's house in a good mood. Luckily for Park Sang-beom, he had already disappeared from in front of the bench when I returned. What a shame. I was going to give him as a gift (?) to Simyeonui ttal (Daughter of the Abyss).</p>
+<p>-------</p>
+<p>Simyeonui ttal (Daughter of the Abyss) enjoying ice cream</p>
+<p>Although the ice cream turned into a strange fluorescent cheese-like substance as it was sent to the abyss, Simyeonui ttal (Daughter of the Abyss) seems satisfied.</p>

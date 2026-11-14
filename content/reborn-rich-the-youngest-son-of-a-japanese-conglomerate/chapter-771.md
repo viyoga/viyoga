@@ -5,96 +5,88 @@ weight = 771
 chapter = 771
 +++
 
-<p>"Ryuta, is she a Princess...?"</p>
-<p>I couldn't say a word to Alik's innocent question. I couldn't tell her that I had been fucked by Taira Kanna, especially with Alik and Naruse Shiyo, both virgins, present.</p>
-<p>Of course, Princess Peach is a princess, so it's true that I was wearing a princess dress, but I couldn't say that I wore it because I wanted to.</p>
-<p>"No way...?"</p>
-<p>Everyone except Alik seemed to have guessed something, looking at the bed, handcuffs, and shackles in the middle of the room. Even Naruse Shiyo, a virgin, was blushing as she stared at me.</p>
-<p>"You didn't have any clothes, Sensei-ssi...!"</p>
-<p>"Kanna-cchi is too much! No matter how much you like our Ryuta-cchi, how could you do this?! T-t-to do that , there's a proper order besides kidnapping! Like a confession... or a yobai (night crawl)!"</p>
-<p>Otagi Yuka looked at me with a slightly pitiful gaze, her expression saying, 'you got fucked, didn't you?', while Seizawa Shii was seething with anger at Taira Kanna for assaulting me. By the way, Shii, are you really okay with yobai too?</p>
-<p>"These costumes...?"</p>
-<p>Sakagami Rena looked at me with empty eyes, staring at the pile of cosplay sets I had haphazardly thrown around while searching for clothes to wear. Her expression asked, 'What on earth happened here?'</p>
-<p>"No, don't misunderstand. I didn't want to go out naked, so I rummaged through them and just put on whatever fit my size."</p>
-<p>"Oh, really? You just rummaged through them here? Uh... but this, this outfit is too erotic, isn't it?"</p>
-<p>At my words, Seizawa Shii, who had less intimate experience, blushed deeply and picked up an erotic costume with her index finger and thumb. It was more like something made of netting than actual clothes, so even I thought it was quite lewd.</p>
-<p>...But why is she secretly putting that 'too erotic' outfit into her back pocket? Come to think of it, each of the rescue team students was picking up a costume.</p>
-<p>Even Naruse Shiyo and Alik were gathering clothes, but Alik, instead of an erotic cosplay, chose a Cinderella-style light blue princess dress, saying, "Alik wants to wear a princess dress with Ryuta too...!"</p>
-<p>"Shall we go out first?"</p>
-<p>"Liege-nim, please come up slowly. It's a bit difficult to go to where the car is in that attire..."</p>
-<p>Sakagami Rena, who had already picked out an outfit, said to me. Hmm, did they park the car far away...? I nodded, acknowledging her words for now.</p>
-<p>Sakagami Rena said something to the rest of my rescue team students, then began to leave the room, leaving only Otagi Yuka behind.</p>
-<p>"Hmph...! I'll let it slide this time!"</p>
-<p>Seizawa Shii huffed and left, and Alik also whined, "Alik, Alik wants to be with Ryuta...!" but Saionji Diana and Konoe Akina each took an arm and carried her out.</p>
-<p>"Sensei-ssi...!"</p>
-<p>Otagi Yuka's gaze was already deeply clouded. It seemed like the madness caused by her blood craving was about to activate, as her satiety was dropping. The students knew this and had cleared the room beforehand.</p>
-<p>"Are you okay?"</p>
-<p>Otagi Yuka didn't answer my question. She staggered towards me and burrowed her head beneath my skirt. Naturally, since I was naked and wearing the Princess Peach dress without underwear, Otagi Yuka beneath my skirt immediately buried her nose into my cock and, with a "Seuheup-ha~!", greedily inhaled the scent (?) of my cock.</p>
-<p>Since it was my first time wearing a skirt, the sensation of a person's head entering inside my skirt was quite peculiar. It's a bit hard to explain in words.</p>
-<p>After sniffing the scent of my cock inside my skirt for a long time, Otagi Yuka now began to lick my balls with her tongue.</p>
-<p>My fading reason was slowly disappearing, and it felt like she instinctively knew that the semen she needed to ingest was pooling in my balls.</p>
-<p>"You'll get semen if you lick the shaft, not just the balls."</p>
-<p>At my words, Otagi Yuka, who had been licking my balls for a while, began to lick the tendon at the back of my shaft. Otagi Yuka's tongue play after so long sent shivers of pleasure through me.</p>
-<p>"Eumpeuh-heup...!"</p>
-<p>Otagi Yuka, who had been licking my cock for a long time, now made strange sounds and bit my cock. The cock that had been nestled in Taira Kanna's pussy just tens of minutes ago was now being sucked deep inside Otagi Yuka's mouth.</p>
-<p>"Jjeubeup...! Jjeup, Jjueup! Chup, Chyueup...! Chyubeup♥"</p>
-<p>Otagi Yuka's bulging head, visible beneath my skirt, moved violently, urging my semen out. Naturally, the erotic sounds of saliva and pre-cum rubbing together inside her mouth spilled out from beneath my skirt, and those sounds further accelerated my ejaculation.</p>
-<p>"Yuka...!"</p>
-<p>Given Otagi Yuka's state, it wasn't the time to hold back my ejaculation, so I immediately called Otagi Yuka's name and began to ejaculate.</p>
-<p>Otagi Yuka, too, must have felt the signs of my ejaculation, as she took my cock deep into her throat, deep-throating it as she began to swallow the gushing semen directly down her throat.</p>
-<p>Byuut! Byuut! Byuut!</p>
-<p>"Keueueut...!"</p>
-<p>"Jjeup...! Jjeup...!"</p>
-<p>After taking all of my semen, Otagi Yuka, as if regretting any waste, inserted her tongue into my urethral opening, squeezing out every last drop of semen remaining in my urethra.</p>
-<p>"Haa, haa, haa.... Are you feeling a little better?"</p>
-<p>I asked, looking at Otagi Yuka as she emerged from beneath my skirt. In truth, Otagi Yuka's status effect, on the verge of falling into frenzy, wouldn't fully recover with just one round, but it seemed like the immediate crisis had been averted.</p>
-<p>"Sensei-ssi's semen is so yummyy♥ Just a little... can't I have just a little more?"</p>
-<p>Otagi Yuka's eyes were already glazed over. Before, her gaze had been deeply clouded as she fought off the surging madness, but now, it was simply the face of a woman craving semen.</p>
-<p>I couldn't let her go to the students in this state. If she clung to me in the car, whining for "just a little more," it would be bad for Otagi Yuka's reputation, so I felt I had to resolve it now.</p>
-<p>I checked the time. Since the fellatio had just ended quickly, even if we did it one more time, the rescue team students wouldn't have to wait too long.</p>
-<p>"Let's do it quickly."</p>
-<p>I helped Otagi Yuka up to ejaculate as quickly as possible. I pulled Otagi Yuka's jeans down only to her buttocks, then aligned my glans with Otagi Yuka's pussy, which was already gaping and dripping vaginal fluid like urine, desperate for my cock.</p>
-<p>Anyway, according to Otagi Yuka's traits, it didn't matter if she drank my semen from her upper mouth or her lower mouth, so I intended to move vigorously from behind to maximize my ejaculation. I also wanted to move myself, having been tied up and taken by Taira Kanna until now.</p>
-<p>"Haa-euh-haaang...! This is ittt!"</p>
-<p>The inside of Otagi Yuka's pussy began to greedily writhe, stimulating my cock. It was pleasure, yes, but more than that, it was her pussy's movement, solely for the purpose of sexually draining my semen.</p>
-<p>"Heueung, put it in, Sensei-ssi! Sensei-ssi's Haaang, fresh semen♥ A pervert Vampire's Haaheung♥ Fill my pussy to the brim, Heueut! Fill it up...!"</p>
-<p>Cheolsseok! Cheolsseok! Cheolsseok!</p>
-<p>"Haaang...! Sensei-ssiiit! It feels so gooddd...! Haaht! It's so Heueut...! Yummyyyy♥"</p>
-<p>My pubic bone and Otagi Yuka's buttocks collided, filling the room with wet, slapping sounds. Although we were moving vigorously solely for ejaculation, not for mutual sexual enjoyment, Otagi Yuka seemed to find even that pleasurable, as her intravaginal muscles writhed, bringing her to continuous orgasms.</p>
-<p>To provide even greater stimulation, I swayed my hips and spanked Otagi Yuka's large buttocks with a slapping sound. I was stimulating Otagi Yuka, leaving hand marks but not causing too much pain.</p>
-<p>"Haa-euh-heung...! Euh-heung!"</p>
-<p>Each time my hand struck her buttocks, Otagi Yuka shivered and let out moaning sounds. Her pussy also writhed, gripping my cock even more fiercely in rhythm with my hand's movements.</p>
-<p>The elasticity of Otagi Yuka's buttocks and the sight of my handprints being etched onto her seemingly pale, pure white buttocks greatly heightened my own excitement/arousal.</p>
-<p>"Does my cock taste good?"</p>
-<p>"Heueung, it's Haaht♥ incomparably deliciousss!"</p>
-<p>Incomparably delicious, she said. It was a gourmet cock that even I found myself fearing. With Otagi Yuka's moans, vigorous movements, and the sensation of spanking, even though I had just ejaculated, the feeling of ejaculation quickly rose again.</p>
-<p>"I'm going to cum...!"</p>
-<p>"Haaht, Haa-euh-heut! Deepest inside...! Haa-euh-heung! Sensei-ssi's Haaht! Put your delicious white sauce in meee♥"</p>
-<p>At her words to cum deep inside, I pressed my pubic bone against Otagi Yuka's buttocks as much as possible, buried my glans in her deepest part, and began to pour out my semen.</p>
-<p>Buuut! Buuuut! Ulkeok! Ulkeok!</p>
-<p>My cock expanded to its fullest, stretching and contracting Otagi Yuka's pussy as it began to pour semen into her uterus. Her normally still cervix was gaping, stimulating my glans as it accepted the semen.</p>
-<p>Perhaps because it had become half an ingestion organ while absorbing semen, Otagi Yuka's cervix occasionally displayed pleasurable movements.</p>
-<p>"Haa, haa, haa...!"</p>
-<p>After a round of vigorous hip thrusts, I leaned my upper body against Otagi Yuka's back and held her from behind until the ejaculation was completely finished.</p>
-<p>Jjeubeup.</p>
-<p>After the ejaculation was complete and I pulled my cock out of her pussy, Otagi Yuka naturally knelt before me, licking the semen coating the shaft of my penis and sucking out the remaining semen from my urethra, cleaning my cock.</p>
-<p>"Are you feeling better now?"</p>
-<p>"Yes.... I'm sorry."</p>
-<p>"No, it felt good."</p>
-<p>Otagi Yuka apologized with her head bowed, perhaps feeling sorry for losing her reason during my kidnapping, but for me, it was just two rounds of sex, so I told her it was fine and gave her a kiss.</p>
-<p>"Shall we go up now?"</p>
-<p>"...Yes."</p>
-<p>I pulled down my skirt, which had been hiked up to my waist, and told Otagi Yuka, who was pulling her jeans back up, that we should go. Holding Otagi Yuka's hand, we walked, and it wasn't long before we reached the ground level.</p>
-<p>In truth, I hadn't realized I was underground until then, so I was a little surprised to find myself on the second basement floor. Surely, they didn't build this secret building just to kidnap me, did they?</p>
-<p>"Sensei-ssi, you're barefoot, so if you walk like this, your feet will get dirty. I'll carry you."</p>
-<p>The ground outside the building was a dirt path, so Otagi Yuka lifted me up. Otagi Yuka, carrying me in a princess, no, a prince carry, ran at high speed towards where the car was parked.</p>
-<p>"Oh, seriously! Ryuta-cchi, are you Princess Peach being rescued by ○rio?"</p>
-<p>Seizawa Shii, who was waiting for me outside the car, commented when she saw me being carried, and hearing that, Alik asked, "Are you a Princess, Ryuta?" But when I showed my bare feet and explained it was to keep them from getting dirty, everyone agreed.</p>
-<p>"Let's go back. It was only one day of being kidnapped, but it feels like it's been an incredibly long time."</p>
-<p>"Indeed. It feels like almost 20 days have passed."</p>
-<p>Sakagami Rena smiled and replied to my words, then started the car. Although it had only been a day, the events were so bewildering that it felt much longer.</p>
-<p>Here's the illustration of Kkan-Yuka showing off her bikini armpits + breast support, requested by Hwanbuljeoldae-bulga-nim!</p>
-<p>Breast support</p>
-<p>While making these, I thought, 'Oh? Since it's a swimsuit anyway, what if I made her a bit wet?' So I added the WET prompt, hehe.</p>
-<p>Perhaps because she's wet, Kkan-Yuka isn't coming out well ㅠㅠ</p>
-<p>But if I keep making them until she appears, she eventually does, hehe Kkiyot~!</p>
+<p>A few days ago. A luxury mansion in Minato-ku, Tokyo.</p>
+<p>"Geueueueu, geueueu...!"</p>
+<p>Inside the dark room, the sound of wind leaking was heard from somewhere. A cold wind blew gently through the open window, and the curtains moved, slightly revealing the room in the moonlight that entered.</p>
+<p>The room, illuminated by moonlight, was stained with blood. A man, with a sword plunged into his neck, was gushing blood.</p>
+<p>Because the sword was stuck in his neck, no voice came out, only the sound of air escaping.</p>
+<p>"Geueueu, keu, keut!"</p>
+<p>The man, who had been making air-escaping sounds, left his final death throes and lost his life, and movement was seen in the room.</p>
+<p>Someone was standing in a position not illuminated by the moonlight, probably the Killer who had murdered the fallen man. The Killer who had murdered the man, unlike someone who had committed murder impulsively, calmly watched the man die.</p>
+<p>"...."</p>
+<p>After the man stabbed with the sword died, the Killer began to search the Surroundings. The Killer, who took a Wallet from the man's jacket hanging in the room, took Cash from the Wallet and pulled out an Identification Card along with a Resort membership card.</p>
+<p>"...."</p>
+<p>The Killer put the man's Resort membership card into a pocket to take it. Before putting the Resort membership card into the pocket, the moonlight briefly shone on it, and it read, 「Shiga Kogen VIP Villa Ski Resort Membership Ticket」.</p>
+<p>The Killer, who had taken the Money and the membership ticket, as if having no Regret, left only the Corpse and went Outside the House.</p>
+<p>After the Killer left, only the dead Corpse in the room was swaying to the Lighting of the moonlight Dancing with the movement of the curtain.</p>
+<p>Carrying the Luggage, when I went to St. Francis Girls' Academy's helipad, two helicopters were waiting.</p>
+<p>"They prepared two helicopters?"</p>
+<p>"Yes. There's Luggage, and we need personal parachutes, so we need to ride spaciously."</p>
+<p>When I asked, Minamoto Risa answered as if it were nothing. Indeed, if there's a helicopter accident, we'd need personal parachutes, so we can't carry too many people at once. On top of that, since it was a 3-night, 4-day Travel, each Student had quite a lot of Luggage, so it seemed they called two helicopters.</p>
+<p>"Alright, first, let's divide into two teams."</p>
+<p>"Ryuta-cchi, you ride first! The rest of us will divide by rock-paper-scissors and ride."</p>
+<p>It seemed the Students were going to play rock-paper-scissors to ride in the same helicopter as me. Even though it would only take an hour to the Resort.</p>
+<p>If they decided by rock-paper-scissors, all the Students with high Agility and high Combat power would come to our helicopter. It was a bit of a sneaky Method. Because it was a Match they were playing, knowing they would win.</p>
+<p>"Alright. Everyone's waiting, so decide quickly and get on."</p>
+<p>I told the Students and loaded my Luggage and the ice box onto the helicopter. A pilot and a safety agent were on board the helicopter. Even excluding the Luggage, it looked like eight to ten people could ride in one helicopter. It seemed they had made Preparations for ample space.</p>
+<p>"Ryuta-cchi~!"</p>
+<p>"Ryuta...!"</p>
+<p>"Ahaha, Sensei-ssi."</p>
+<p>As expected, the Students with high Combat power were in my helicopter, just as I had anticipated. Seizawa Shii, Alik, Otagi Yuka, Sakagami Rena, Saionji Diana, and Naruse Shiyo boarded, and the rest boarded the remaining helicopter.</p>
+<p>"When we return, Shiyo and Yuka, ride in that helicopter. You never know what might happen."</p>
+<p>"Shall we?"</p>
+<p>"Understood, Teacher-nim. But for now, we're riding together, right?"</p>
+<p>Of course, the Probability of something happening was almost zero, but in a World where even I could be kidnapped unexpectedly, I thought I should always prepare for the worst-case Scenario.</p>
+<p>Because Otagi Yuka and Naruse Shiyo both have Flight Ability, even if something happens in the helicopter, they would survive and could even take care of a few others.</p>
+<p>Since the others don't have Flight Ability, I would have to save them with my psychokinetic Ability, so dividing the helicopters was the right thing to do. It couldn't be helped now since we were departing immediately, but I told them to divide when returning.</p>
+<p>"We're departing~!"</p>
+<p>Once everyone had loaded their Luggage, the helicopter pilot informed us of the departure. Since there was nothing particular to do inside the helicopter, I briefly looked at the News on my phone.</p>
+<p>-Openweight transition, Kiyohira rapidly advances to the UMC Openweight throne! Will the second Japanese Openweight Champion after Fujigasaki Rinka be produced?</p>
+<p>The article about my friend Kiyohira was a sensation. In fact, with Kiyohira and Kazuhiro, who could be called Jin Yong-tae's only friends, I hadn't been able to contact them often since I went on a Mission.</p>
+<p>Of course, I had told them that I wouldn't be able to contact them for about six months because I was going on a secret Mission for the Taira Group. Since both Sumikazu and Genbaki could truly be called Best friends, they understood my Situation, so even if we couldn't contact each other for just a few months, our Friendship wouldn't fade.</p>
+<p>By the way, that Guy Genbaki. At some point, he moved from the welterweight class (under 77kg) where he was to the openweight class where Fujigasaki Rinka was, and had been continuously winning.</p>
+<p>With my advice, he had bought martial arts books indiscriminately from the black market, and it seemed he had probably found a martial art that suited him.</p>
+<p>After Fujigasaki Rinka stepped down from the UMC Openweight throne to chase Anya-ji and returned to Japan, the UMC Openweight class was an Era of chaos. No Champion had defended the throne more than twice.</p>
+<p>The UMC Openweight class was truly an inhuman Fighting arena that even allowed body Modification and Drugs, so when someone became Champion, there were many challengers who would identify their disadvantages and exploit their Weakness.</p>
+<p>That's why Fujigasaki Rinka was so amazing. With a pure female Body, without body Modification or Drugs (though she possessed the Abyss, which was more fraudulent than Modification and Drugs), she had defended the throne for a long period, which is why people unanimously called Fujigasaki Rinka the greatest fighter in the history of combat Events.</p>
+<p>So, with my friend Kiyohira challenging for the UMC Openweight Champion title, I felt both proud and worried. It was good that my friend was becoming Champion, but because the Openweight class was so brutal, I was also worried if he might get seriously hurt.</p>
+<p>"Oh? Teacher-nim also watches UMC?"</p>
+<p>Naruse Shiyo, who had subtly peeked at my phone from beside me, asked. Because Naruse Shiyo had admired Strength since her Body was weak, she had a tremendous Interest in professional wrestling and UMC. That Interest had continued even now that she had become stronger as a Half-Dragon, which is why she reacted immediately upon seeing my phone.</p>
+<p>"Ah, since a Japanese Person is challenging for the UMC Openweight throne again, it caught my Interest."</p>
+<p>Although I wanted to say that this Openweight Champion challenger was my friend, because Seizawa Shii, the helicopter pilot, and the helicopter safety agent were there, I didn't say that Kiyohira was my friend. I couldn't carelessly blurt out Information that could hint at my True Identity.</p>
+<p>"I didn't pay much attention to Genba-sensu either, but he's amazing, isn't he? When he was in the welterweight class, he was just a top-ranked fighter, but after transitioning to the even tougher openweight class, he's been on a winning streak, so he's become a Target of attention. Not as much as Teacher-nim, but because he has a good Body, people who like a macho Feeling mainly form his fan base, and it's clear that his Skill has increased much more than when he was in the welterweight class, so I wonder if he can truly sit on that difficult Openweight throne like Rinka-nim...."</p>
+<p>As expected of a UMC enthusiast, Naruse Shiyo knew more about that Guy Kiyohira than I did.</p>
+<p>I heard that when I was kidnapped, she transformed into a Dragon-person and swept away the disciplinary committee members with wrestling techniques, so I wondered if she would use techniques from UMC next time.</p>
+<p>"If Shiyo evaluates him that way, then this fighter named Genba might win."</p>
+<p>I pretended to gloss over it and scrolled past the article about that Guy Kiyohira. The next article was about a serial Killer rampaging in Tokyo recently.</p>
+<p>-Another corpse, seemingly the work of Kotowazuki (斷頭鬼: Decapitation Demon), has been found! The incident is still a labyrinth...</p>
+<p>It was a Killer called Kotowazuki, and it seemed they got that nickname because they always targeted the Victim's neck with a sword. With over a dozen Victims identified so far, this Kotowazuki was the Topic of all recent discussions in Japan.</p>
+<p>Because of this serial Killer, whose gender was unknown, the Japanese police were being heavily cursed for being incompetent, and rumors were circulating that a huge bounty had been placed on them in the solver Community.</p>
+<p>"I thought about chasing that Guy during vacation too, but there weren't many clues, so I just let it go. What a pity. If I had known it would rampage like this, I would have chased it to the end."</p>
+<p>This time, Seizawa Shii, sitting on the opposite side, muttered while looking at my phone. Because Seizawa Shii had actively worked as a solver in Tokyo during the winter vacation, it seemed she had briefly pursued this serial Killer called Kotowazuki.</p>
+<p>"Vacation was short, so it couldn't be helped. If it's still rampaging after Graduation, then Shii can catch it."</p>
+<p>"I don't need to catch it, I just wish someone would catch this Guy quickly."</p>
+<p>After talking about Kotowazuki for a while, Alik showed a photo of a ranch cafe she wanted to visit, and the Atmosphere changed. Naturally, the Story of a serial Killer and the Story of milk sweets couldn't have the same Atmosphere.</p>
+<p>"Ryuta, keep your promise with Alik."</p>
+<p>"Of course."</p>
+<p>It seemed she was referring to the promise to buy one plain-flavored ice cream and one chocolate-flavored ice cream and feed each other.</p>
+<p>When the troublemakers from the special class, who were listening nearby, asked what the Story was, and I told them, each of them complained, asking why they didn't get to eat the ice cream I fed them.</p>
+<p>"I'll eat whatever you give me, so stop it."</p>
+<p>"Then, so Ryuta-cchi doesn't get tired of it, we'll all choose different flavors, so you can't say you won't eat it, okay?"</p>
+<p>"Then I'll feed Teacher-nim melon flavor~!"</p>
+<p>"I'll have butter cream flavor!"</p>
+<p>As the Students were each talking about what flavor they would feed me, the safety agent riding with us looked at me with an envious Gaze. Since all the A-Rank Beautiful Woman Students from the special class were eager to do something for me, I understood his envy.</p>
+<p>"Since Ryuta-cchi is a big eater, we should order at least a half-gallon (1200g) Size, right?"</p>
+<p>"Isn't that obvious?"</p>
+<p>However, what this safety agent didn't know was that the troublemakers riding here weren't just trying to be nice to me, but also trying to Torture me with food. Trying to feed me several half-gallons was absolutely not normal.</p>
+<p>Lisa-ttang Home Economics Teacher-nim bikini + panties down + Belly button piercing requested by Hwanbuljeoldae-bulga-nim~!</p>
+<p>Starting with Lisa-ttang~!</p>
+<p>Actually, I made dozens of images, but only one image of panties pulled down came out ㅠㅠ The rest are B-cuts...!</p>
+<p>Home Economics Teacher-nim~!</p>
+<p>Home Economics Teacher-nim was relatively easier to generate haha.</p>
+<p>New model Mimata Chieri Suit underwear belly dancer naked body requested by Gojoy-nim~!</p>
+<p>Suit~!</p>
+<p>Underwear~!!</p>
+<p>Belly Dancer~~!</p>
+<p>Naked Body~!!!</p>
+<p>Chieri-jjaeung....!</p>

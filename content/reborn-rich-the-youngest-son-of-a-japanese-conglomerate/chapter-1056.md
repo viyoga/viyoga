@@ -5,89 +5,75 @@ weight = 1056
 chapter = 1056
 +++
 
-<p>As we gradually approached the Fragment of Omniscience acquisition battle, the surrounding Combat power was indeed greatly increasing.</p>
-<p>It wasn't just the Obsidian Syndicate, a New York Back Alley gang, or Vampires who only used Concealment (though I easily defeated them, it was actually a quite strong Concealment Ability that even I didn't easily notice); the real deal were fighting each other.</p>
-<p>Vampires exploding entire surrounding Buildings with Blood Sorcery, the SPF Branch Manager in giant Knight Armor confronting those Vampires, and the witch Golden Hat I saw earlier was now fighting a pack of silver-furred Werewolves.</p>
-<p>In addition, seeing special units seemingly sent by the government fighting groups of Magicians aiming for the Fragment of Omniscience, we ran.</p>
-<p>"Oh?!"</p>
-<p>As we were running, we discovered a welcome Face. It was my Sabu, Fujigasaki Rinka. Fujigasaki Rinka, who could be said to be the strongest among our Members, had decided to freely search for the Black Knight without any specific location, and it seemed she had met us while circling the Fragment of Omniscience acquisition battle area.</p>
-<p>"Sabu, couldn't you find the Black Knight?"</p>
-<p>"I thought you were the Black Knight."</p>
-<p>At my Question, Fujigasaki Rinka shook her Head and said. It seemed she was surprised to see me because of the Black Knight Attire. Well.... I am indeed the Black Knight, but I'm talking about Grandmaster Soda Haruto right now.</p>
-<p>"First, I've looked around the east and south from the center of the acquisition battle, but he wasn't there."</p>
-<p>The east and south from the center.... Since we came from the southwest, if we consider this side also empty, only the west and north remained.</p>
-<p>"Since we came from the southwest, the west, north, and central areas remain, so let's split up and go."</p>
-<p>At my Proposal, Fujigasaki Rinka nodded her Head. And after a moment of thought, she opened her Mouth.</p>
-<p>"I'll pass through the central area and go north. You two check the west."</p>
-<p>Fujigasaki Rinka, with the highest Combat power, seemed to intend to sweep through the dangerous central area and then check the north. It's a considerably dangerous Path, but Sabu would be able to do it.</p>
-<p>"Let's do that. If we check the west and he's not there, we'll regroup."</p>
-<p>If it's dangerous, we can quickly check the west and regroup, so I nodded my Head.</p>
-<p>"Good. The first one to find him reports to Command, and everyone regroups there, right?"</p>
-<p>"Yes, Sabu."</p>
-<p>After parting ways with Fujigasaki Rinka, we ran to check the west from the center of the acquisition battle. Then we had no choice but to stop at a Voice, because of the sound, "Black Knight?"</p>
-<p>Since the Black Knight is so famous, I thought there might be someone who recognized him, but it could also be that they were wondering about another Black Knight, so I stopped and headed towards where the Voice came from.</p>
-<p>There, wearing a Metal helmet, was a Woman in a peculiar cyber Suit with speaker-like Devices on both Shoulders. Oh?! This Woman, it's Whisper!</p>
-<p>I never imagined Whisper and Behemoth would participate in the Fragment of Omniscience acquisition battle, so meeting them here was quite surprising.</p>
-<p>Superior, to which Whisper and Behemoth belong, is a gathering of pure Superhumans, so they wouldn't have come to aim for the Fragment of Omniscience, an Item exclusively for Magicians, and it seemed they came to survey the acquisition battle, thinking the Black Knight might appear here.</p>
-<p>Just like Sabu and I parted ways, perhaps searching for the Black Knight separately, Behemoth was not visible in the Surroundings.</p>
-<p>"To actually find you in the Fragment of Omniscience acquisition battle.... I didn't expect it."</p>
-<p>Whisper said, looking at me. It felt like she wasn't usually using the speakers on her Shoulders, just having a normal Conversation.</p>
-<p>Seeing her say she didn't expect to meet the Black Knight, it seemed Behemoth must have suggested searching the Fragment of Omniscience acquisition battle.</p>
-<p>But somehow, I had a Feeling I had seen Whisper somewhere before. She looked strangely familiar. Especially her Figure....</p>
-<p>I definitely saw her somewhere. And recently, Ah...! I remembered. Her Attire was different, so I didn't recognize her for a moment, but it was the Blindfold Woman who bumped into me at the auction Cruise ship Banquet! Her Figure was quite good, so I had paid attention to her, and because of that, I could recognize her. Saying it like this makes me sound like I'm really into Women.</p>
-<p>"You, you were at the auction, weren't you?"</p>
-<p>"H-How did you know that!!"</p>
-<p>When I pretended to know, Whisper was very surprised. Actually, I was only about 60 percent sure, but seeing her Reaction, it seemed almost certain.</p>
-<p>"Who at the auction?"</p>
-<p>Kurayamada Kirie, as if she had no idea who it was, quietly asked me. Of course, I couldn't explain in the current Situation. If I said, "It's the Woman who bumped into me," Whisper would also learn my True Identity.</p>
-<p>"Hmm, I'd like to deal with you, but I don't have time...."</p>
-<p>It was quite an awkward Situation. I had to find Sabu's Sabu, and capturing Whisper was also my Mission.... Our Missions were conflicting.</p>
-<p>Of course, Whisper wouldn't consider my Situation, so should I deal with her first? However, if I dealt with Whisper, Behemoth would also appear, and the battle would likely become very long, which was a Worry.</p>
-<p>"You, search the west for Grandmaster. I'll deal with this Woman."</p>
-<p>While I was agonizing, Kurayamada Kirie said, drawing her characteristic long Ōdachi.</p>
-<p>"Are you sure?"</p>
-<p>"Yes."</p>
-<p>Even if Whisper was a Strong Person among Superior's Top 10, I couldn't imagine Kurayamada Kirie losing.</p>
-<p>And since our Combatants are also spread out in the vicinity, I can ask for Help anytime.</p>
-<p>"Good, I'll leave it to you."</p>
-<p>"It's a Repayment for the Bracelet."</p>
-<p>Saying it was a Repayment for the space-shaped Bracelet I bought at the auction, Kurayamada Kirie pointed her Sword at Whisper. Of course, a space-shaped Bracelet was an invaluable Treasure for a space Ability User, but seeing her bring it up, it seemed she was quite touched by my Bracelet gift.</p>
-<p>"Humph...! How funny. Who said I'd let you go?"</p>
-<p>As if she had heard our entire Conversation, Whisper scoffed and said. Indeed, she must have found it Absurd that I was saying "I'll deal with her" while she stood still. But I was also in a hurry to find Sabu's Sabu, so I didn't Answer and ran along my original Path.</p>
-<p>-Don't. Go.!!!</p>
-<p>Something between a Scream and a shout poured out from Whisper's Shoulder. No matter how fast I was, I couldn't be faster than the speed of sound. I rolled on the Floor from the sound wave that swept past me, then got up again, and the sound wave she had just unleashed was returning. The space was visibly rippling from how strong the sound wave was.</p>
-<p>Is she trying to stop me like this? It's quite an amazing Ability to control sound waves at will, but I still had to go. I simply thrust my Fist.</p>
-<p>-Creation Chaos Flow: Star Shatter.</p>
-<p>With Creation Chaos Flow: Star Shatter, after tearing through the wall of sound waves returning to me, I entrusted my Rear to Kurayamada Kirie and ran.</p>
-<p>"...!"</p>
-<p>Whisper, Maya Reed, seeing the Black Knight tear through the wall of sound waves she had unleashed with a punch and run off, was speechless. Even within the infamous Superior, there were only a few who could display such skill, including Behemoth.</p>
-<p>Of course, the Black Knight became famous by fighting Famine, the Head of Superior. But since then, Famine had also grown endlessly stronger. The fact that he was still alive, despite the US government's sincere Efforts to kill him, was proof of that.</p>
-<p>Therefore, she thought she could easily defeat the Black Knight now, but Whisper realized her thought was greatly mistaken. The Black Knight had also grown during that time.</p>
-<p>For the Mission received from Famine, she wanted to chase the Black Knight immediately, but she couldn't. Because the Woman in front of her, holding an unusually long longsword, was pointing that longsword at her.</p>
-<p>"Phew.... Black Knight found. I'll transmit the estimated Position."</p>
-<p>Whisper sent a communication to Behemoth. For some reason, the Woman in front of her was letting her communicate.</p>
-<p>"It's not like Bushido, so why did you wait for me?"</p>
-<p>Since the Language they spoke was Japanese, Whisper asked, using Bushido as an example.</p>
-<p>"We have a precognitive Ability User. They said that if I don't interfere with communication before the battle starts, I can avoid a 2-on-1 fight with that guy, Behemoth."</p>
-<p>At Whisper's Question, the longsword Woman shrugged her Shoulders and Answered. The Woman in front of her spoke as if it were nothing, but Whisper couldn't help but be very surprised.</p>
-<p>Because precognitive Ability Users were an extremely rare Ability even among rare Superhumans. Furthermore, beings who could specifically foresee the future like this were even rarer.</p>
-<p>A precognitive Ability User was also a being Famine was searching for, and Whisper thought that if she could gain merit by taking the Information about the precognitive Ability User this time, she could further raise her hierarchy within Superior.</p>
-<p>Whisper, who secretly desired Revenge against Famine, had a plan to raise her hierarchy within Superior, gradually approach Famine, and kill him when he let his guard down.</p>
-<p>"Since I need Information, I won't kill you."</p>
-<p>As Whisper said, pointing her Gun, the Woman in front of her, Kurayamada Kirie, laughed Absurdly.</p>
-<p>"You really say the exact same thing, don't you? I came knowing what the future holds. Then you know who should be afraid, right?"</p>
-<p>At Kurayamada Kirie's Words, Whisper felt a chill. Despite having a precognitive Ability User, the fact that the longsword Woman was standing in front of her meant that Woman would defeat her.</p>
-<p>"Shut up! There's no such thing as Destiny! I'll prove that the future is wrong!"</p>
-<p>Whisper screamed and pulled the trigger.</p>
-<p>Whisper Combat Uniform B-cut~!</p>
-<p>It's a bit inconsistent, but I quite like it haha.</p>
-<p>MidNightSKY-nim requested Linling, Linxiang Singing at Karaoke~!</p>
-<p>Linling~!</p>
-<p>Appearing like a hidden picture, little Linling is cute hehehehehe.</p>
-<p>Linxiang~!</p>
-<p>The last one is so excited she climbed onto the sofa haha.</p>
-<p>Gojoy-nim requested 1. Hanasaki Sayaka's Eyes sparkling upon realizing the protagonist's Sabu is Rinka~! 2. Rinka receiving Contact from the protagonist~!</p>
+<p>I, who woke up from the bed, took a shower, changed Clothes, and headed to the 2nd floor conference room of the Federal Superpower Management Department's Safe House.</p>
+<p>As I walked down the stairs, I saw that most were sitting with tired Expressions, having returned at dawn today and not having slept for a few hours.</p>
+<p>"Ryuta-ssi."</p>
+<p>Seeing me enter the conference room, Otagi Yuka waved her Hand with a relatively less tired Face. Unlike humans, she was a Vampire who quickly became lively if only supplied with Blood, so she didn't seem very tired.</p>
+<p>"I've made Contact with Japan, Teacher-nim. To choose what we need among Obsidian Pharmaceuticals' patents."</p>
+<p>As I sat down in my Seat, Naruse Shiyo spoke. Before sleeping, because I didn't know if my Proposal would be accepted or not, I had told Naruse Shiyo to make Contact with Japan if the Situation happened to flow in our desired direction, and it seemed she had done just that.</p>
+<p>"First, it would be good to have an interview with Whisper."</p>
+<p>"That's right. For now, let's resolve the Matter with Whisper first."</p>
+<p>At Kurayamada Kirie's Words, I nodded my Head. Yes, it would be good to resolve this side first. In a Situation where she had been persuaded to our side, if we ignored her like a borrowed sack of barley, she would feel offended, so I should talk to her first.</p>
+<p>"Here. These are the basic Information documents."</p>
+<p>Naruse Shiyo handed me a few documents. It seemed to be Whisper's personal details, and Whisper's real name, which even the Federal Superpower Management Department didn't know, was written.</p>
+<p>Maya Reed, 26 years old. Took a leave of absence after the first semester of her third year at Pepperdine Law School. All her family died in the Health Dignity Park Incident caused by Famine. After that, she took a leave of absence from law school and seemed to have devoted herself to Superior.</p>
+<p>I, who had roughly skimmed the documents, opened the door of the interview room. Sitting on a chair, I saw Whisper, Maya Reed, with brown and orange Hair and green pupils, sitting there.</p>
+<p>Seeing her Appearance in a black Dress at the auction house, and her Appearance wearing a cybersuit and helmet during the New Rochelle Incident, then seeing her in a comfortable white Shirt and Jeans, the Atmosphere seemed different. Not like a Superhuman, but more like a normal young female college student.</p>
+<p>Whisper, seeing me enter the room, her Eyes widened. Ah, now that I think about it, Whisper had only seen me with my helmet on, right? With a large, handsome East Asian man suddenly entering, she couldn't help but be surprised that it was different from what she expected.</p>
+<p>"You.... Black Knight?"</p>
+<p>"I am also called by that name. My name is Dante Astor. What should I call you?"</p>
+<p>Since I didn't know whether to fully trust Whisper yet, I revealed my American name, Dante, instead of Taira Ryuta.</p>
+<p>"Now, since I can no longer return to Superior, please call me Reed."</p>
+<p>From what she said, it seemed she intended to abandon the name Whisper now. But she can't return to Superior?</p>
+<p>Even if the News reported that two Superior ganbu had been killed, couldn't she still return, claiming the News was a lie? Why does she say she can't go?</p>
+<p>Of course, I wasn't telling Maya Reed to return to Superior, just, why can't she return? A question/doubt arose. Not leaving it as a question/doubt, I'll have to ask directly.</p>
+<p>"Why can't you return?"</p>
+<p>"Ah, you don't know. The Behemoth you killed.... can be called a type of Avatar. Shall we say it's a prosthetic Body created with a type of superpower? The prosthetic Body created by a man named Jacob Sterling is Behemoth."</p>
+<p>What is this now? So.... the large Behemoth I know is like a controlled game Avatar, and the true Body is alive inside Superior?</p>
+<p>Ah...! Now I understand. Why, even after catching big shots like Behemoth and the Black Sage (though I only landed the finishing blow on the Black Sage), I didn't Level up, and why there was no change whatsoever between Behemoth's Appearance in the future TMC timeline and his current Appearance, and why he could actively rampage in Superior.</p>
+<p>The reason there was no difference in Appearance was because it was a prosthetic Body, and the reason he could rampage most actively among Superior's ganbu was because it wasn't his true Body. He could probably create another prosthetic Body.</p>
+<p>The reason I didn't gain much Experience Points was because it was a prosthetic Body, not the true Body. Of course, in this Incident, my martial arts Proficiency had greatly increased, but it was a bit disappointing that my Level hadn't risen.</p>
+<p>If so.... I understood why Maya Reed couldn't return to Superior. Since I had won in the end due to a dibeopeu from Maya Reed's Voice, Maya Reed's Betrayal would have become known to Superior, because the true Body would know the Situation of the prosthetic Body.</p>
+<p>"They must know well that you betrayed them."</p>
+<p>"Yes...."</p>
+<p>"Anyway, I have no intention of telling you to return there, so rest assured."</p>
+<p>In fact, I did consider sending Maya Reed back to Superior to have her do some spy work, but dealing with Superior was the USA government's Work, not mine. Since I am a businessman, I should focus on making Money.</p>
+<p>"Since Behemoth's Story came up, could you tell me precisely about Jacob Sterling's Abilities? For example, like when Behemoth can be Resurrected again if he dies."</p>
+<p>"I don't know the details either, but Behemoth once died from a USA military bombardment, and I know it took almost one or two months to create another Avatar. It seems creating an Avatar itself is quite a burden. Also, Jacob Sterling's main Body has low Combat power. He can be described as a fat white man. That's all I know."</p>
+<p>I see. Although it's only two pieces of Information, it was quite important Information. The fact that Behemoth will revive again within a few months, I should inform Diana Lich. If the Behemoth I claimed to have killed revives, my Trust Level will drop.</p>
+<p>"I also am curious about what kind of Person you are. Since I am relying on your side, I'm curious about what kind of Place I'm relying on."</p>
+<p>Maya Reed's curiosity was valid. Having left Superior, she shouldn't go to a strange Place, so she would naturally be curious about what kind of group we are.</p>
+<p>"In fact, I am not a Person who engages in hero activities. I was forced to step forward in the Famine Incident.... The Black Knight who operated in New York this time was someone else, not me. I am a businessman. I do this kind of Work."</p>
+<p>At Maya Reed's Question, I, with Eve, handed over a business card for Cyberware, the company. On the business card, it was written, 'Cyberware Boss Dante L. Astor'.</p>
+<p>"So you were the Boss of that recently famous cyber implant company...! A wealthy Person, wearing black Clothes, and engaging in vigilante activities...! Isn't that almost Batman?"</p>
+<p>"I don't act as frequently as Batman, so I think it's a bit different. The reason I engage in Black Knight activities is only when there is a request from the Federal Superpower Management Department."</p>
+<p>Batman acts for a certain Belief, but I only act as Black Knight when there's a request, so apart from being wealthy and having similar Attire, there were no similarities.</p>
+<p>"Maya Reed-ssi. What do you desire?"</p>
+<p>First, I was curious about her Purpose, why she was persuaded to our side.</p>
+<p>"In the long run.... my Goal is to take Revenge on Famine. Famine is too strong, so I'll have to watch for an Opportunity for a long time. In the short run, instead of Superior's terrorist acts, I want to do something else. Something other than harming People."</p>
+<p>According to what Kurayamada Kirie told me about Maya Reed, Famine is so strong that she wonders if she can take Revenge. And thanks to the second Reason, it was easy to persuade her, so instead of terrorist Work, I should give her more rewarding Work.</p>
+<p>"Then, Maya Reed-ssi. I'd like to know your Abilities. Because only by knowing the Abilities you possess can we know what kind of Work you can do for us."</p>
+<p>Since I've done enough ice-breaking, it's time to get to the main point. I was curious about what Maya Reed could actually do for us.</p>
+<p>Since Maya Reed has superpowers, she could be used anywhere, but there would also be a direction she hoped for, and since she would know her own Abilities best, I thought asking her directly would be the fastest way.</p>
+<p>"First, as you know, I possess the superpower of sound. I can also cause destruction with sound, and produce various Effects on opponents, such as slowing them down or instilling Fear. I can also give Vitality to my comrades."</p>
+<p>I thought only dibeopeu were possible, but buffs are also possible, I didn't know that. It was a very useful Ability. According to what Kurayamada Kirie told me, she can destroy Buildings by screaming, so she seemed to possess tremendous Ability in dealing with multiple opponents.</p>
+<p>"Besides that, if I concentrate, with my Words, I can also find out if an opponent is lying or not."</p>
+<p>This side is also quite, no, rather, for Business, this side might be even more useful. Because it means I can discern lies when making a contract with an opponent. Surprisingly, not just in combat situations, it's an Ability that can be put to good use.</p>
+<p>"And.... you probably knew I attended law school. Also, in fact, as a Descendant of a witch, I can use magic. This is an Ability Superior doesn't even know about."</p>
+<p>Of course, I knew she had excellent legal Knowledge from attending law school, but to suddenly possess a witch's Abilities...! She's quite versatile, isn't she?</p>
+<p>For reference, both witches and Magicians used magic, but the Difference was that witches used magical Abilities through Bloodline and used magic more instinctively, while Magicians, regardless of Bloodline (though innate magical Talent was naturally required), approached and used magic academically.</p>
+<p>"Then, what about your magic Level...?"</p>
+<p>"Actually, this side isn't very high Level, because there weren't many opportunities to use it after joining Superior. Instead, because there was a Telepathy Ability User on Superior's side, to hide the fact that I entered Superior to take Revenge, I used Mental barrier magic a lot, so I can confidently say my Mental barrier magic is quite excellent."</p>
+<p>If Mental barrier magic is excellent, it means she can block an opponent's mental Attack, so this side wasn't bad either. In battles between such Ability Users, mental Attack is also a very important Element, so being able to block that would be quite advantageous.</p>
+<p>"First, I will pay your tuition and Living Expenses, so please return to law school."</p>
+<p>"Yes?"</p>
+<p>Suddenly, why law school? Maya Reed wore such an Expression. She must have thought I would assign her combat-related Work.</p>
+<p>"If you obtain a lawyer's license, please become the legal Team Leader of our Cyberware."</p>
+<p>A lawyer who can read an opponent's thoughts. With Maya Reed, Cyberware's legal disputes will be no Problem. After gaining Intimate Experience at Cyberware, I'll even entrust her with the legal Work of the company I'm in charge of. As for military power, I can secretly borrow it.</p>
+<p>"Ah.... Thank you, Dante-ssi."</p>
+<p>"After resting here for a bit, we can go to LA together. Because we also have things to do in LA."</p>
+<p>Thus, the interview ended, with both Maya Reed and I satisfied.</p>
+<p>Maya Reed B-cut~!</p>
+<p>Gojoy-nim requested 1. Gokado Hanako in Heat/Rut at the restaurant, 2. Gokado Hanako looking at her phone~!</p>
 <p>1.</p>
 <p>2.</p>
-<p>SkyFerry-nim requested the school nurse wearing a Doctor's Gown and a trench coat (like a pervert/flasher) Attire~!</p>
-<p>Kkippaet~!</p>

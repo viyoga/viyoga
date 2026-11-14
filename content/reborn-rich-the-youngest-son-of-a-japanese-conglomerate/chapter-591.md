@@ -5,70 +5,79 @@ weight = 591
 chapter = 591
 +++
 
-<p>We were endlessly entwined, bodies overlapping, until almost three in the morning. When the alarm rang, we hurriedly got ready. Even after hours of non-stop sex, Han Yu-gyeong didn't seem tired at all. In fact, her face was so radiant, I wondered if she'd gotten a facial.</p>
-<p>Of course, it's partly due to the Sacred Pillar trait, but the stress relief from sex probably helps too, which is why she has such a serene expression. Right now, Han Yu-gyeong is preparing to go out with an almost Buddha-like face.</p>
-<p>,I think I can forgive Jeon Yong-cheol right now."</p>
-<p>She said with a sparkling smile, which was the complete opposite of her action of inserting throwing knives into the large-capacity dagger sheath around her waist, but that just shows how refreshed she feels.</p>
-<p>,But you're not going to forgive him, are you."</p>
-<p>,No, I won't. Because he interfered with my date with Yong-tae. I can never forgive him. And it was Yong-tae who made me feel good, not Jeon Yong-cheol, right?"</p>
-<p>As expected, she's resolute. Han Yu-gyeong was right. What made Han Yu-gyeong feel happy was me, not the attacking Jeon Yong-cheol. Han Yu-gyeong finished preparing by putting on a long coat that looked like leather on the outside but was made of a bulletproof new material. As expected, because of her great proportions, the long coat suited her very well. As for me, all I needed was a helmet to hide my identity, and my equipment was taken care of.</p>
-<p>,Shall we go down?"</p>
-<p>,Yeah, let's take care of it quickly and get some sleep."</p>
-<p>Han Yu-gyeong and I left the apartment and immediately got into the car that Dickson drove up in. He said that because there was a high possibility of a gunfight, he brought a stolen car instead of the usual one. There's no need to get caught by the police for no reason.</p>
-<p>We drove through the dawn streets and arrived at one of the slum areas scattered throughout Seoul. Even South Korea, which used to boast considerable public safety, had seen its security deteriorate after the Third World War, and these slums began to appear everywhere.</p>
-<p>The alley where I first met Han Yu-gyeong was one of those slums. It felt like a long time ago, but it was only about 10 months ago. Time really flies when you think about it like that.</p>
-<p>,What are you thinking about?"</p>
-<p>,Ah, this place feels similar to the alley where we first met... I was thinking about our first meeting."</p>
-<p>,Yong-tae-yaa...♥"</p>
-<p>Just as we were about to enter love mode again, someone knocked on the car window. A beautiful girl with gray pigtails, Yang Seol-hui, was standing outside the car with a sniper rifle on her shoulder, looking at us.</p>
-<p>,...Shall we get out?"</p>
-<p>,U-uh, yeah."</p>
-<p>We got out of the car, feeling a bit awkward for a moment.</p>
-<p>,Long time no see, Ryuta-nim. President-nim, good morning?"</p>
-<p>,Yeah. Long time no see, Seol-hui."</p>
-<p>,Seol-hui-ssi, you came quickly, huh?"</p>
-<p>After exchanging greetings for a moment, we went inside an old shopping center and began discussing the operation with Vanguard Vice President I Yeon-ju, who was sitting there.</p>
-<p>,First of all, the club where Jeon Yong-cheol is located is one kilometer away from our current position. If we hit Jeon Yong-cheol's club, the Yong-cheol faction's bases all over Seoul will come to support this place."</p>
-<p>I Yeon-ju said, pointing to a map. From the window of the office we were in, we could see the neon-lit club. Certainly, if the main base is attacked, the branches will send troops to help. They know better than anyone that if the head is cut off, they will be defeated one by one.</p>
-<p>,The Yong-cheol faction is probably watching our troop movements too. That's why only a small number of elites came here without being detected. The troops trying to support the Yong-cheol faction's main base will be dealt with by our original troops in a series of ambushes."</p>
-<p>Ah, so we, as a small elite force, attack the Yong-cheol faction's main base, and our remaining troops ambush the enemy troops coming to support them, cutting them off one by one. Everyone nodded at I Yeon-ju's words, but I had one question.</p>
-<p>,Wouldn't it be a problem to have such a big fight in Seoul?"</p>
-<p>I asked, sounding a bit worried. I had also experienced a war-like fight with Kurotsuki-doo in Japan, but that happened in Akita Prefecture, which has a small population and is far from the attention of the media and the government. But the current situation is a gang war in the middle of Seoul, so I was worried it might be politically dangerous.</p>
-<p>,I've already discussed that with the Mayor of Seoul and the Chief of the Seoul Metropolitan Police Agency. If we succeed in catching the Yong-cheol faction, there will be an article about a large-scale crackdown on criminal organizations tomorrow. They can build up their achievements without any effort, and we can fight without interference from the public authorities, so there won't be any pressure from the police or political circles."</p>
-<p>I Yeon-ju said confidently. If it's been discussed in advance, there's no problem. Now that the discussion is over, all that's left is to take action. I put on the cyber suit and helmet that I Yeon-ju had prepared for me.</p>
-<p>I just need to hide my identity, so I didn't need any other equipment. That's why I didn't equip myself with a pistol or a knife.</p>
-<p>,I'll go to the sniping point first."</p>
-<p>Yang Seol-hui saluted me with her sniper rifle on her shoulder and went outside. Yang Seol-hui, who has the X-ray vision trait, would be able to snipe enemies no matter where they are, so she was very threatening.</p>
-<p>,First, I and the Vanguard Black Team will enter first. President-nim and Yong-tae-nim, please take a few members of the Black Team and hit them from behind."</p>
-<p>I Yeon-ju knows Han Yu-gyeong's and my abilities well, so she didn't say, ,It's dangerous, so just watch," but clearly assigned us our roles. It seemed that if Vanguard attacked from the front, the leaders of the Yong-cheol faction might escape through the back door, so she was having us infiltrate from behind.</p>
-<p>,Let's go."</p>
-<p>At I Yeon-ju's words, the Vanguard Black Team, wearing black techwear and carrying silenced rifles, set off first, and we followed behind them.</p>
-<p>,President-nim, please be careful not to get hurt."</p>
-<p>,Yeon-ju-ssi, you too."</p>
-<p>I Yeon-ju and Han Yu-gyeong wished each other well and entered the club building where Jeon Yong-cheol was. In the alley where the back door of the club was located, there were a few people who looked like homeless people sitting there, and the Vanguard Black Team shot and killed all the homeless people sitting there. But they're just homeless people, isn't killing them a bit too much?</p>
-<p>,They're not homeless people, they're human alarms that inform the Yong-cheol faction of attacks. They receive leftover food waste from the club and report any suspicious people who come."</p>
-<p>As if reading my thoughts, the man who seemed to be the leader of the Vanguard Black Team explained to us without me even asking. When I gently brushed back the fallen homeless man's head, I could see that there was a communication device with earphones and a microphone attached to his ear, hidden under his dirty, long hair.</p>
-<p>The back door wasn't locked. When I opened the door, I could see the kitchen right away. There weren't many kitchen staff. It was already late, and it was a weekday, so there probably weren't many customers.</p>
-<p>The Vanguard Black Team member standing at the front fires a taser at the kitchen staff. The kitchen staff, hit by the taser's electrodes, roll their eyes back, tremble, and soon collapse. They kill the homeless and stun the staff with tasers... I don't understand the criteria. Is it based on whether they immediately contact the enemy forces?</p>
-<p>Two Vanguard Black Team members stay behind to tie up the fallen kitchen staff and guard the kitchen, and we continue inside.</p>
-<p>As we left the kitchen, purple and red lights dazzled our vision, and gunshots could be heard between the loud music. We all have silencers on, so it must be the Yong-cheol faction. After passing through the hallway leading from the kitchen to the hall, everyone in the club was pointing guns at the Vanguard Black Team. Not only gangsters in suits, but also people who looked like ordinary customers were taking out guns and aiming.</p>
-<p>,I knew you guys would come, so I disguised them as customers in advance."</p>
-<p>A man with a scar on his face and slicked-back hair, Jeon Yong-cheol, was looking at I Yeon-ju with a triumphant expression. He didn't seem to know that we were behind him yet. He was meticulous in knowing that there would be an attack and disguising troops as club customers in advance, but he didn't properly block the back, only placing homeless people with communication devices, so I don't know if this is thorough or sloppy.</p>
-<p>,Did you plan this from before the attack?"</p>
-<p>,Yes. I knew the attack would fail. I knew you guys would retaliate soon, so I set a trap here."</p>
-<p>Jeon Yong-cheol confidently answered I Yeon-ju's question, but I Yeon-ju was relaxed. Surrounded by numerous Yong-cheol faction troops, she certainly didn't have the face of someone who had fallen into a trap.</p>
-<p>,I certainly didn't consider what you said. Because..."</p>
-<p>I Yeon-ju stopped talking for a moment.</p>
-<p>,...There was no future where we would lose in any situation."</p>
-<p>Kwaang!</p>
-<p>As soon as I Yeon-ju finished speaking, the wall burst open. Yang Seol-hui broke through the wall and began sniping. At the same time, the Vanguard Black Team members also scattered, hid behind cover, and began firing.</p>
-<p>,Let's go too."</p>
-<p>At Han Yu-gyeong's words, we fired and attacked the Yong-cheol faction from behind. Jeon Yong-cheol and the Yong-cheol faction's executives are startled by the sudden attack from behind.</p>
-<p>,I planted informants in the back...!"</p>
-<p>Seeing how surprised they were, I could tell that killing the homeless informants in the back alley as soon as we saw them was the right thing to do.</p>
-<p>I had some aversion to killing the homeless without hesitation, but I realized that I was too soft. This incident made me realize that I haven't yet equipped myself with the sensibilities of the megacorp era.</p>
-<p>That doesn't mean I have to become more cruel than I am now, but I need to act a little more thoroughly. I steeled my resolve and reached out my fist, smashing the head of the Yong-cheol faction thug standing closest to me.</p>
-<p>__________</p>
-<p>Taira Kanna's school uniform</p>
-<p>Disciplinary Committee Chairman's school uniform~!</p>
-<p>I made it a while ago, but I forgot to upload it, so I'm uploading it now hehe</p>
+<p>Leaving the fallen researcher zombies behind and passing through the hangar, we came to a laboratory where various parts were being tested. There were cyber-implanted zombie researchers there, and as soon as they saw us, Saionji Diana shot them all down.</p>
+<p>"Good job."</p>
+<p>Cyber zombies could have gone wild upon seeing us and damaged the computer containing important data, so I gave Saionji Diana a thumbs up and said that.</p>
+<p>I plugged the UCT into the computer as soon as I saw it and hacked the data, and while I was hacking the data, Saionji Diana went past the lab and cleared the outside.</p>
+<p>Saionji Diana could handle both guns and swords and even had psychic powers, so I wasn't too worried. It would be nice to level up while catching cyber zombies at this opportunity.</p>
+<p>Click.</p>
+<p>"!"</p>
+<p>I pulled out the UCT after the hacking was finished and came out of the lab, and there was Saionji Diana in front of a mountain of nearly a hundred cyber zombie corpses. The sword in one hand was dripping with blood and oil, and the gun in the other hand had its barrel heated from continuous firing. Even if Saionji Diana is skilled, it must have been quite difficult to handle this much.</p>
+<p>"Why didn't you call me with that many?"</p>
+<p>"This much is just a warm-up, seonsaengnim."</p>
+<p>It seemed that there were guard rest areas and researcher rest areas right in front of the lab, so many cyber zombies came out. Class B must be waiting, so we ignored the corpses and quickly looked around the building. The basement had electricity and water facilities, so we roughly looked around and passed, and when we went upstairs, there was a security headquarters where the guards sat and watched CCTV, which we were looking for.</p>
+<p>"I'll look around while seonsaengnim looks around the security headquarters."</p>
+<p>Looking at the CCTV screen, Alik and Otagi Yuka, who had entered another building, were performing Musou against numerous zombies. They're doing well. Looking at the background, that building didn't seem to be a research building.</p>
+<p>I used the computer to delete the CCTV files that had been filmed so far, and destroyed the main body with my abyss-filled foot to destroy the storage device as well. Just in case, I destroyed all the electronic devices in the security headquarters and came out, and as expected, Saionji Diana, holding a blood-flowing sword, greeted me, having dealt with the surrounding cyber zombies. I think she would have leveled up with this much, so I should check it out after the graduation trip.</p>
+<p>"The 3rd floor seemed to be a conference room, and if you pass the security headquarters on the 2nd floor, there seems to be a higher-level laboratory. The iron door is tightly locked."</p>
+<p>Saionji Diana didn't have enough sword skill to cut through the iron door yet, so it seemed there was no way to open it. Following her guidance, we soon came across a sturdy iron door at the end of the second floor.</p>
+<p>Bang! Bang! Bang!</p>
+<p>After hitting it a few times with my abyss-filled fist, the door warped and soon the part with the lock was destroyed and the door opened. I thought it would open in one or two hits, but it lasted quite a while, so it must be a very important place.</p>
+<p>Inside, there was a computer screen doing numerous calculations, and a researcher was sitting in an office chair with numerous machines.</p>
+<p>Judging from the fact that he was cyber-implanted, there was a high probability that he was a cyber zombie, but he was not attacking us even though we broke the door and came in.</p>
+<p>As I approached slowly, he was not breathing, as if he was already dead. Looking closely, there was a medicine bottle next to him, so it seemed he had committed suicide.</p>
+<p>"Who is it?"</p>
+<p>"This person seems to be the director of the research center."</p>
+<p>Saionji Diana read the name tag and answered. I thought there wouldn't be a name tag because it was a secret research center, but there was. There was some kind of paper next to it, and it seemed to be the will of this research center director.</p>
+<p>"It roughly says that he is afraid of things changing. He is afraid that he will harm his family, and there is a story asking the company to take good care of his family. It seems that he found out that the virus was already in place while checking the cyber implant."</p>
+<p>Saionji Diana read the will and gave me a summary explanation.</p>
+<p>"I see. Rather than suddenly becoming a zombie, knowing in advance that you will become a zombie would be a more desperate situation."</p>
+<p>I muttered like that and connected the UCT to the computer in this secret lab. I felt sorry for this research center director, but I had to acquire the data.</p>
+<p>"We've got all the data on our side, so let's go down."</p>
+<p>I pulled out the UCT, spoke to Saionji Diana, and came outside. The 3rd floor was said to be a conference room, so there was no need to look at it separately. When I came outside, I saw Otagi Yuka and Alik with slightly tired expressions.</p>
+<p>"Our side was the company's dormitory building, so there were no research materials, only zombies swarming."</p>
+<p>"Was it?"</p>
+<p>I thought they just commuted, but it seems they ate and slept here. Otagi Yuka ran and drove the safari bus to the front of the cafeteria, and the Class B students got off.</p>
+<p>"Were there many zombies?"</p>
+<p>"Quite a few. So it took some time."</p>
+<p>Answering Muko Neika's question, I opened the cafeteria door.</p>
+<p>"Fortunately for us, it seems that the zombie incident broke out after the cooking was finished. No one touched the food. Class B friends, please help set up the buffet."</p>
+<p>I asked the Class B students to do it, thinking that it would be okay for them to set up the food since they had taken care of the zombies. Seeing our appearance, which was covered in blood and looked tired, the Class B students diligently set up the food without complaining. Actually, I wasn't that tired, but I was thinking of resting since there were many other students who could do the work.</p>
+<p>"Now you can put it on a plate and eat."</p>
+<p>After the meal preparation was finished, we took the plates and lined up. They were considerate of us, so we stood at the very front and scooped up the food, and the menu was rice, soy sauce-braised pork belly like Dongpo pork, and several other menus. It was a secret research center, but it looked quite delicious because it was a large company cafeteria.</p>
+<p>"I wonder if the rest of the special class kids are okay?"</p>
+<p>"Shimokawabe seonsaengnim is there, and Sakagami is there, and Naruse is there, so they'll be fine."</p>
+<p>Otagi Yuka spoke with a worried expression, so I answered that they would be fine. Actually, I was a little worried too, but we were being chased by the cyber zombie robot, which could be said to be the boss of this New Nanking City.</p>
+<p>"We were safe, so they'll be safe too."</p>
+<p>I ignored the rising worries and muttered to Otagi Yuka.</p>
+<p>###</p>
+<p>"Is this a zombie movie or a mecha movie?! Just do one!"</p>
+<p>Minamoto Risa opened the bus window and fired a pistol. The cyber zombie that was clinging to the bus while making a *kieee* sound was shot and fell off.</p>
+<p>Fifteen minutes ago, while waiting for Yamashiro Ryuta, who had entered the zoo, a crudely built giant robot suddenly appeared.</p>
+<p>"Wh-what is that?"</p>
+<p>The suddenly appearing robot was moving like a cyber zombie. The abnormal movements and convulsion-like feeling made it look like a greatly enlarged cyber zombie. The zombie robot was slowly approaching, destroying everything it stepped on.</p>
+<p>"G-get on the bus quickly!"</p>
+<p>At Kijimoto Jurie's shout, all the students got on the bus, and some who could drive drove the bus and departed from the parking lot.</p>
+<p>-Kieeee!</p>
+<p>The zombie's voice was heard from the audio device installed in the robot. Most people noticed it at that time. They were thinking that the person inside had become a zombie.</p>
+<p>The zombie robot crushed the vehicles in the parking lot and then started running after the running St. Francisco Girls' Academy bus.</p>
+<p>At the speed of the bus, it could shake off a bipedal robot, but now New Nanking City was in a state of zombie apocalypse. The roads were lined with stopped vehicles, and were full of cyber-implanted zombies faster than marathon runners.</p>
+<p>Naturally, the bus had no choice but to slow down, so it was difficult to shake off the running zombie robot.</p>
+<p>"I'll be out for a bit."</p>
+<p>Shimokawabe Airen opened the bus window with a sword in hand. Shimokawabe Airen, who came out of the bus, swung her sword on top of the bus.</p>
+<p>Woo-oong! Bang!</p>
+<p>The space distorted and a huge slash diagonally cut the upper body of the zombie robot.</p>
+<p>It was an attack of tremendous power, but the robot was fine. The barrier in front of the robot blocked Shimokawabe Airen's sword strike.</p>
+<p>Hooong hoong hoong!</p>
+<p>At that moment, the robot's shoulder opened and missiles were fired. Missiles fired at the bus. Shimokawabe Airen swung her sword and cut and blocked the missiles.</p>
+<p>"It seems that students can get caught up if I just fight."</p>
+<p>Shimokawabe Airen muttered and went back inside through the window. If she fought any longer, the students would get hurt even if she was safe.</p>
+<p>"I can't do it. It doesn't use weapons proactively because it's a zombie, but it seems to have an automatic counterattack function programmatically."</p>
+<p>"In the end, running away is the best option."</p>
+<p>Minamoto Risa said to Shimokawabe Airen's words. Seizawa Shii, who was driving, turned on the radio and told the current situation.</p>
+<p>"It seems best to shake off that robot zombie rather than fight it. So, the Class A bus at the very front, please speed up a bit!"</p>
+<p>-The road is very blocked, so it's impossible, but I'll try harder.</p>
+<p>Taira Kanna's answer was heard on Seizawa Shii's radio. Even in the meantime, the zombie robot was still running fiercely.</p>
+<p>_______</p>
+<p>Minamoto Risa-ttang</p>
+<p>Risa-ttang is also good hehehe</p>

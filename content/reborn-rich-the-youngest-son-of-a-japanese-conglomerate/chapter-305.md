@@ -5,70 +5,89 @@ weight = 305
 chapter = 305
 +++
 
-<p>Kuuda Isanoshin was the representative martial artist of the ancient martial art school called Jinyoung Ryu. He was famous for the saying, "Jinyoung Ryu of intangible speed," meaning he was so fast that people struck by Jinyoung Ryu would fall without even realizing they had been hit.</p>
-<p>He was a well-known figure in the Japanese martial arts world, running a large dojo with over 100 students.</p>
-<p>But Kuuda Isanoshin's Jinyoung Ryu dojo was now soaked in blood.</p>
-<p>About half of the Jinyoung Ryu students were collapsed, vomiting blood with black handprints on their torsos, and the other half were lying in pools of blood with fist-sized dents in their bodies or heads.</p>
-<p>Only the head of the Jinyoung Ryu, Kuuda Isanoshin, was still standing. Two men stood opposite Kuuda Isanoshin.</p>
-<p>A pale-skinned, white-haired man with lips so pale they had no color, and a giant, brown-skinned, red-haired man well over 2 meters tall. Judging by the fact that they were both wearing ancient martial arts uniforms, they both seemed to be fighters.</p>
-<p>These two were the ones who had killed all the students of the Jinyoung Ryu dojo. With overwhelming force, they had wiped out fifty people in the Jinyoung Ryu dojo in an instant.</p>
-<p>"Anya Temple! How can you kill so many people without fear of the heavens?!"</p>
-<p>Kuuda Isanoshin shouted at the two men. These two were members of Anya Temple, led by Takakusaki Gengo, who had stolen and learned Shinkaiya Tsude. They weren't just disciples of Anya Temple, but high-ranking members called the Four Heavenly Kings, personally taught by Takakusaki Gengo.</p>
-<p>"We kill even the heavens, so what is there to fear? Master?"</p>
-<p>The pale, white-haired man said, looking at Kuuda Isanoshin. Judging by the fact that he called him "Master," he seemed to be a former student of Kuuda Isanoshin.</p>
-<p>"You bastard! Gokubo Shiratsu!! I took you in even though you had no talent, and you betray me, no... the school?"</p>
-<p>"Betrayal? Master, no, Kuuda, didn't you abandon me, saying I had no talent? If Takakusaki-nim, my true master, hadn't recognized my true talent and taken me as a disciple, I would have been begging in the streets as a cripple."</p>
-<p>The pale, white-haired man called Gokubo Shiratsu seemed to have deep hatred for Kuuda Isanoshin.</p>
-<p>"Enough talk, Gokubo. We have many places to take care of, so we need to hurry."</p>
-<p>The giant, red-haired man said, looking at Gokubo Shiratsu. Gokubo Shiratsu showed the giant man the palm of his hand as if to tell him to wait a moment, and continued speaking.</p>
-<p>"Yes, now that I serve my master, this man means nothing to me. Kuuda! You know that our Anya Temple's Four Heavenly Kings don't fight outnumbered, right? If you choose one of us and win, we will retreat. Moreover, I will give you the chance to choose your opponent."</p>
-<p>"You know very well who I will choose! Come out!"</p>
-<p>Of course, the one Kuuda Isanoshin chose as his opponent was Gokubo Shiratsu, the betrayer of the school. When Gokubo Shiratsu was chosen, the red-haired giant stepped back a few steps to create space for the two of them.</p>
-<p>They stood facing each other, and Gokubo Shiratsu certainly looked too frail to be a martial artist. He was of a certain height, but his body looked very thin. It seemed that he had not been treated properly when he was Kuuda Isanoshin's student because of his small physique.</p>
-<p>"Hap!"</p>
-<p>Kuuda Isanoshin used the intangible speed of Jinyoung Ryu to approach Gokubo Shiratsu at an incredible speed. The two passed each other in the blink of an eye. It was impossible to tell who had hit whom, or whether they had blocked or dodged the attack.</p>
-<p>"Keu...! My upper body, which was hit by Kamiken (God Fist), isn't healing well."</p>
-<p>Gokubo Shiratsu opened his mouth, bleeding from his nose, eyes, and mouth. This injury was not from Kuuda Isanoshin. It was a side effect of moving his body too much after being hit by Fujigasaki Rinka.</p>
-<p>He had confidently struck Fujigasaki Rinka, but he failed to kill her, and Gokubo Shiratsu was almost killed instead. If the ordinary disciples of Anya Temple hadn't thrown themselves to protect Gokubo Shiratsu, he wouldn't be standing here unscathed. He wasn't unscathed now either. Gokubo Shiratsu had forced himself to come out to avenge his enemy, even though he should have been resting. The red-haired giant had come with him because he was worried that Gokubo Shiratsu would fail.</p>
-<p>"Keuheok!!"</p>
-<p>Kuuda Isanoshin, who had been standing still, vomited a huge amount of blood as if spitting out water he had been drinking. A black palm-shaped bruise was imprinted on Kuuda Isanoshin's solar plexus, visible through his uniform. Kuuda Isanoshin, who collapsed with a thud, was already dead from a ruptured heart.</p>
-<p>Those who were hit by Gokubo Shiratsu would vomit blood and leave a black palm-shaped bruise, so he was called Chikurotenohira (Blood Black Palm) and reigned as an object of terror.</p>
-<p>"You did well, considering you're not feeling well."</p>
-<p>"It's a shame I wanted to give him a little more pain."</p>
-<p>The red-haired giant patted Gokubo Shiratsu on the shoulder, and Gokubo Shiratsu looked at Kuuda Isanoshin's corpse with a look of regret.</p>
-<p>"Personal feelings are the enemy of training."</p>
-<p>"This guy was my last personal feeling, so please let it slide."</p>
-<p>The two chatted as they stepped barefoot through the pool of blood made by the Jinyoung Ryu students, leaving the scene of the massacre that could no longer be called the Jinyoung Ryu dojo.</p>
-<p>###</p>
-<p>"I'm tired for the first time in a while."</p>
-<p>Last night and early this morning, Mimata Chieri and Lianna Holden eventually joined in, making it a 5-on-1 passionate yatsu, so I was a little tired.</p>
-<p>Of course, the five who faced me were beyond words, and among them, the Kiyona sisters, who were having their first experience, lasted quite a while, but they dropped out in the middle.</p>
-<p>Today is the last day of the Seryutai outing. I had been studying alone in the office, but going to the valley seemed to clear my head a bit. I got up from my seat and went outside the pension to take a walk before going home.</p>
-<p>Hmm, I hadn't thought about it during the outing, but the air was quite good since it was in the mountains, even in Tokyo. I enjoyed the refreshing mountain air and took a walk around the pension.</p>
-<p>There was a short suspension bridge connecting the two cliffs in the Hatonosu Valley where the pension was located, and I ended up walking up to it while taking a walk. It's quite a well-maintained place. The scenery is beautiful, and Master is standing in the middle.</p>
-<p>Fujigasaki Rinka was talking on the phone with a serious expression in the middle of the suspension bridge. Hmm, what's wrong? If someone like Fujigasaki Rinka is making a serious expression, something quite big must have happened.</p>
-<p>"Oh, Ryuta. You came at a good time."</p>
-<p>Fujigasaki Rinka, who had finished the call, greeted me. Hmm, what's wrong?</p>
-<p>"Master, what's wrong?"</p>
-<p>"Four dojos were destroyed last night. Almost one hundred and fifty people died."</p>
-<p>One hundred and fifty people died? Isn't this quite dangerous...? If so, it seemed to be the work of Takakusaki Gengo and a place called Anya Temple, who Fujigasaki Rinka had mentioned on the first day of the pension stay as our school's enemies.</p>
-<p>"The one Master mentioned...?"</p>
-<p>"Yes, Anya Temple. It means they've started hunting schools."</p>
-<p>Hmm, I see. I don't think it's that dangerous since I haven't revealed myself much.</p>
-<p>"For now, almost no one knows you're my disciple, so you can go about your usual life, but be careful just in case."</p>
-<p>"It's okay, I'll be disguised as someone else for the mission soon anyway."</p>
-<p>I had told Fujigasaki Rinka roughly about the mission, so she nodded silently at my words.</p>
-<p>"I have to go right away. The Fist Alliance (Gwonmaeng) said they would send a car, so I'll leave right away. Explain the rest to the chicks."</p>
-<p>The Fist Alliance was the name of the Ancient Martial Arts Federation. It was just a group for exchanging martial arts and sparring, but it had become a group to counter Takakusaki Gengo and Anya Temple because of their appearance.</p>
-<p>"And."</p>
-<p>"Yes?"</p>
-<p>"You rag disciple. You reek of women so much that I can't stand it. Go wash up."</p>
-<p>Well, I came out for a walk right after waking up, so my whole body must be covered in women's fluids, saliva, sweat, and so on, so I must be reeking of five women.</p>
-<p>"Ehh~. That's an invasion of privacy, Master!"</p>
-<p>"Keukeu, yes. Originally, if you have excellent physical abilities, you tend to develop in that area as well, so I won't say anything more. But the situation isn't good right now, so focus on training rather than that stuff!"</p>
-<p>Master doesn't know, but I'm a man who levels up when I have sex, so sex = training. Of course, I have to practice the techniques myself, though.</p>
-<p>"I'll go now."</p>
-<p>"Master, take care."</p>
-<p>"Kyahaha! Even Takakusaki Gengo can't beat me, so who would hurt me? Don't worry, disciple!"</p>
-<p>Fujigasaki Rinka laughed heartily and waved at me as she went down towards the pension. I saw a black car that I hadn't seen before parked near the pension. It seemed to be the car from the Fist Alliance.</p>
-<p>I'm a little worried, but Fujigasaki Rinka will do well on her own. I felt a little uneasy because Fujigasaki Rinka said I smelled. I should go down and wash up.</p>
+<p>In the end, I finished the enjoyable act with Seari around 10 PM. It didn't quite meet my expectations of possibly going until the next day, but the fact that she could do this much while being a virgin shows that Seari has a scary potential(?). Usually, people would be exhausted and drop out after one or two times.</p>
+<p>She also had a rich curiosity about sex, so we were able to share quite enjoyable eroticism while directly using things like fellatio that she couldn't quite do properly during 69, or the love chair in the love hotel. In the end, she was exhausted and fell out, but it was stamina that was hard to believe for a virgin.</p>
+<p>After lying down for a while, I suddenly became curious about the awakening of the fairy's body and the changes in her abilities, so I asked Seari, who was in my arms.</p>
+<p>"Do you feel like your abilities have gotten stronger?"</p>
+<p>"Yes! Look at this, Ryuta-nim!"</p>
+<p>At my question, Seari raised her hand into the air and scattered the still unfaded purple flowers into the air. It must be a very difficult technique because she has to control each flower, but it seemed that her abilities were greatly enhanced because the fairy's body had awakened.</p>
+<p>She'll become even stronger if she levels up in the future. Because Seari had the highest potential in Seryu-tai. Later, she could summon powerful tornadoes and even defeat an entire battalion by herself.</p>
+<p>"Let's go back now, everyone will be worried."</p>
+<p>"Aww~ I want to be with Ryuta-nim a little longer?"</p>
+<p>Seari was sulking, but seeing her get up from her seat, it seemed that she secretly wanted to show her changed appearance to her colleagues in Seryu-tai.</p>
+<p>"But... what about the ears?"</p>
+<p>"The ears... I wonder? What should we do?"</p>
+<p>Is she asking me? If there's no way to hide her pointed ears on her own, I have no choice but to do what I was thinking.</p>
+<p>"First, take a shower and wait. I have to buy clothes anyway, so I'll buy something that can cover your ears while I'm buying clothes."</p>
+<p>"Okay~!"</p>
+<p>Because Seari was naked as her fairy body awakened, I went out of the love hotel to buy clothes.</p>
+<p>It was already late at night, but because it was a downtown area in Tokyo, there was a 24-hour shopping mall that was open late at night.</p>
+<p>I bought some clothes that roughly fit Seari and bought over-ear headphones that completely cover the ears from a place that sells electronics.</p>
+<p>Later, I should ask TG Tech to make large headphones exclusively for Sawayanagi Seari. They don't have the technology for the sound side, but it was just about making something that looks like headphones and doesn't look awkward to cover the ears. It would be even better if it had many useful functions for combat.</p>
+<p>"Thank you, Ryuta-nim!"</p>
+<p>"It's nothing. I just chose clothes that are similar to what you wore today, and this is for your ears...."</p>
+<p>When I gave her the clothes and headphones, Seari was overjoyed. Just like with the seed gift, her reaction was so generous that it was fun to give her gifts.</p>
+<p>When she put on the clothes and headphones, Seari's ears weren't that noticeable. That's because I bought the largest over-ear type headphones from the electronics store.</p>
+<p>After Seari put on her clothes, we left the love hotel. Seari felt sorry for the flowers that had fallen on the bed and floor, so she took out the ones that had been crushed when we overlapped our bodies and put them in the shopping bag that contained the clothes. Of course, I also took the black shopping bag containing the seeds.</p>
+<p>"Eumheungheung~♪"</p>
+<p>Seari was humming and skipping. Her steps were strangely light, so when I walked at a jogging pace, it was so fast that I could barely keep up. She's probably unconsciously receiving help from the wind.</p>
+<p>"Seari, you're suspiciously fast, so let's go a little slower."</p>
+<p>It's not a problem for me to match Seari's speed, but this is still a crowded downtown area in Tokyo. If a pretty girl is bouncing around at an incredible speed, she'll get a lot of attention.</p>
+<p>"Ah! Sorry, I'm too excited."</p>
+<p>Seari slowed down her walking speed at my words. She's lived as a kid for over twenty years, so the world must look different. Also, because of the nature of the fairy's body, she won't age any faster than this.</p>
+<p>"Ah, I didn't show you this, did I? I was so surprised at this time!"</p>
+<p>I took out my phone and showed her the picture of Seari covered in flowers from earlier. Of course, I'm holding those flowers in a shopping bag now, but seeing the flowers piled up in the shape of a person lying down must feel different.</p>
+<p>"Wow, it's pretty~!"</p>
+<p>"Yeah, Seari, you were born in a flower garden."</p>
+<p>"Ehehehe♥"</p>
+<p>She really likes it when I give her a slightly cheesy comment. Seari is like a mascot who has received a lot of love within Seryu-tai, but it seems that she likes slightly cheesy comments because she has never received this kind of affection that a man can give.</p>
+<p>"Oh, we've arrived."</p>
+<p>"Seari-ttang~! I've been waiting... huh?"</p>
+<p>Kiyona Mari, who was waiting at the Seryu Military Company building, ran over but froze at Seari's changed appearance. It's natural to be surprised because she suddenly turned from a girl into a woman, but she's completely frozen like a hero who saw Medusa?</p>
+<p>After a while, Kiyona Mari, who was released from her petrification(?), pushed us both in the back and pushed us into the conference room of Seryu Military Company and called all the people who were there now.</p>
+<p>"Honey~! Uh...?"</p>
+<p>"Ryuta-ssi! Seari...?"</p>
+<p>As expected, everyone was surprised to see Seari, who had grown up, and came into the conference room.</p>
+<p>"Then, would you like to explain now?"</p>
+<p>Kiyona Mari asked me. I didn't have anything to hide, so I told them that I went to the black market and saw some seeds that I thought would suit Seari, so I gave them to her as a gift, and Seari ate them and became like this.</p>
+<p>"Suddenly, leaves sprouted from all over my body, so I was very embarrassed and went to the nearest hotel."</p>
+<p>"Leaves sprouted from all over your body?"</p>
+<p>"Such a thing...!"</p>
+<p>Everyone listened to my story with interest. After that, when I showed them the picture of the flowers blooming and explained it, they seemed very amazed.</p>
+<p>"So, the conclusion is that Seari ate the seeds that Ryuta-ssi gave her and got rid of the side effects of the bio experiment?"</p>
+<p>In fact, everyone in Seryu-tai thought that Seari was maintaining her young appearance due to the bio experiment she had experienced as a child, so that was the conclusion they came to.</p>
+<p>"Ehehe, but...."</p>
+<p>When Seari took off her headphones, elf ears popped out. Then everyone was shocked. No, aren't the Seryu-tai people's reactions too good? Maybe it's because it's about a member of the same Seryu-tai, but their reactions were so good every time I spoke.</p>
+<p>"Seari-ttang has become a busty elf.... I, I, I can't accept it!!"</p>
+<p>Kiyona Mari, who is flat-chested, said strange things and ran out of the conference room. It seemed that she was Seari's rival in terms of chest size, but Seari suddenly became busty overnight, so she felt relatively deprived.</p>
+<p>"Still, thank you, Ryuta-ssi. Seari didn't act like it, but she was actually having a hard time."</p>
+<p>Sawayanagi Azuma stepped forward and spoke as the leader of Seryu-tai. In fact, Sawayanagi Azuma would have known about this situation. She can foresee the future, so she would have seen Seari's changed appearance in any place.</p>
+<p>When I asked her before, she said that she only tells the future of the war situation when she goes on missions with the Seryu-tai members, and she doesn't tell the future of each member for the sake of their privacy.</p>
+<p>"I've said everything I need to say, and it's late, so I'll go back."</p>
+<p>"Ah...!"</p>
+<p>"Honey~! Since it's late anyway, stay over!"</p>
+<p>When I said I was leaving, Sawayanagi Seari and Lianna Holden grabbed me with regret. Kiyona Hori was also looking at me from behind with a regretful look.</p>
+<p>"I have something to do in Tokyo again tomorrow, so let's see each other then."</p>
+<p>"Okay. Be careful going back, Ryuta-nim!"</p>
+<p>"Good night, Honey!"</p>
+<p>I left the Seryu-tai building after being seen off by everyone except Kiyona Mari, and headed to the East Weapon building to find the car I had parked and to give the seeds I was carrying in the shopping bag to Jung Da-rim.</p>
+<p>Jung Da-rim was using an unused office in East Weapon as her home until she could find a lab and a house, so I could always meet her if I went to East Weapon.</p>
+<p>Mimata Chieri would have left work too, so I'll just give her the seeds and leave.</p>
+<p>I went to the office with the sign that said "6th floor, Jung Da-rim's room!" and knocked.</p>
+<p>"Who is it?"</p>
+<p>"It's Jin Yong-tae."</p>
+<p>"Oppa, come in."</p>
+<p>She was speaking calmly even though a man was coming into her room late at night. As expected, she was a plant otaku who was only interested in plants.</p>
+<p>"I stopped by to give you this."</p>
+<p>"What is it, oppa?"</p>
+<p>When I gave her the shopping bag, Jung Da-rim received it wondering what it was, but after realizing that it was a shopping bag full of seeds, her eyes widened greatly.</p>
+<p>"These are...."</p>
+<p>"They're probably the seeds that the researchers stole, mostly. A very small number are unique seeds like Jooan."</p>
+<p>I gave her a rough explanation of the seeds. There were so many kinds that it took quite a long time just to read what was on the information window. Jung Da-rim also took notes and listened to my explanation diligently, making it worthwhile for the person explaining.</p>
+<p>As expected of a plant otaku, Jung Da-rim had a very happy expression while taking notes.</p>
+<p>"Thank you, oppa. I'd even give you my first time right now if it was you, oppa."</p>
+<p>"A minor shouldn't say things like that."</p>
+<p>I ruffled Jung Da-rim's hair, who was thanking me with strange words, and got up from my seat. It was late and there was nothing else to do, so I should leave.</p>
+<p>"Do some good research. It's late, so I'll go."</p>
+<p>"Okay, bye oppa. I'll do my best."</p>
+<p>I said goodbye to Jung Da-rim, who was still looking at the seeds diligently, and left Jung Da-rim's room.</p>

@@ -5,73 +5,74 @@ weight = 1107
 chapter = 1107
 +++
 
-<p>"Boss-nim, it's Tateyama."</p>
-<p>"Come in."</p>
-<p>With Taira Jiro's permission, his secretary, Tateyama Genta, opened the door to Taira Steel's CEO's Office and entered. As Taira Jiro looked at him as if asking what was the matter, Tateyama Genta opened his mouth.</p>
-<p>"A messenger sent from Kanna Agassi's side has arrived."</p>
-<p>"Indeed, Kanna's side said they would give me information, didn't they? Call them in."</p>
-<p>Early in the morning, Kanna's side had contacted him, saying they had obtained a clue about the recent Mithril Attack Incident and would provide information. It was an unexpected visit, so he wondered if he could trust it, but when he remembered that Taira Kanna was the Boss of Taira Driving System, Taira Jiro thought this information would be quite valuable.</p>
-<p>"Understood, Boss-nim."</p>
-<p>Bowing his Head to Taira Jiro and leaving the office, Tateyama Genta soon brought in a person, who was a smiling man with narrow eyes. Despite wearing a suit, his Body appeared quite trained, and though he smiled with narrow eyes, his Gaze seemed to be assessing him, making Taira Jiro think this man was no ordinary Person.</p>
-<p>"Greetings. I am Fuma Kai, Kanna-nim's second secretary."</p>
-<p>"Fuma...."</p>
-<p>Taira Jiro gazed at the smiling man, Fuma Kai, and muttered. The Fuma (Wind Demon) clan is a ninja clan that continues its lineage even in the modern era, and they used to follow Taira Saburo, but after Taira Saburo's Death, they now seemed to be following Taira Kanna.</p>
-<p>"Indeed, Kai of the Fuma clan. What information do you have for me?"</p>
-<p>"It is information about where the vehicle that stole the Mithril was headed."</p>
-<p>At Fuma Kai's Words, Taira Jiro nodded his Head heavily. This was definite information.</p>
-<p>Knowing where those who stole the Mithril went would reveal the culprits of this Incident, so it could be said that Taira Kanna's side had shown considerable goodwill to Taira Jiro.</p>
-<p>"Certainly good information. Before I hear the information, I want to know what you desire first. What does Kanna want?"</p>
-<p>Taira Jiro knew the truth that nothing comes for free. He believed there must be a Reason why Taira Kanna, who wasn't even close to him, would go out of her way to show him goodwill, which was why he asked what she wanted before hearing the answer.</p>
-<p>"We desire two things. First, that you do not mention to the party responsible for this Incident that we leaked the information."</p>
-<p>"I promise that."</p>
-<p>At Fuma Kai's Words, Taira Jiro nodded his Head.</p>
-<p>In fact, the first Demand was obvious. Because in any matter, the identity of the information provider must be hidden to receive help again in the future, Taira Jiro had nodded his Head.</p>
-<p>Also, Fuma Kai's current Story revealed one more thing: it meant they didn't want to make an enemy of the party responsible for this Incident, so it could be guessed that the party responsible had more power than Taira Kanna's side.</p>
-<p>"Second, is a promise that you will grant our Request to an extent that does not cause Harm to Taira Jiro-nim's side in the future."</p>
-<p>"In a word, you want to put me in Debt, don't you?"</p>
-<p>"That is correct."</p>
-<p>Debt... Such a promise often became quite a burden later, so Taira Jiro would not normally make such a deal. Because with his Financial Power and power, he could obtain information without necessarily incurring Debt.</p>
-<p>"I accept that Proposal."</p>
-<p>However, currently, following the Mithril warehouse Attack Incident, his son had died by Assassination, so his chest was filled with accumulated anger. He had to unleash that anger somewhere, but the Assassin had vanished without a trace, making them difficult to find, and Taira Kanna's side had brought decisive evidence that could reveal the identity of the Mithril warehouse attackers, so he had no choice but to accept the deal.</p>
-<p>"Understood. I will tell you. The culprits who raided the Mithril warehouse continued south from Akita and transferred the Mithril to a Taira Bussan container ship bound for South America at Chiba Port. Here are the Traces and black box data."</p>
-<p>Fuma Kai handed a universal connector to Taira Jiro and told him the Traces of the culprits who stole the Mithril.</p>
-<p>"...If this information had been taken to Ichiro-hyungnim, you would have received a greater Reward, wouldn't you?"</p>
-<p>"Kanna-nim said that the Reason Jiro-nim would know well."</p>
-<p>At Taira Jiro's Question, as if he had already anticipated this question, Fuma Kai relayed Kanna-nim's Words. Taira Jiro nodded his Head at Fuma Kai's Words.</p>
-<p>Simply put, it could mean that Kanna wanted Taira Jiro and Taira Ichiro to fight, but ultimately, the Reason Kanna gave this information to Taira Jiro was because of the Taira Group's Successor Composition.</p>
-<p>Taira Ichiro and Taira Kokoro were full Siblings, sharing the same Mother, while all the others had different Mothers.</p>
-<p>Although Taira Ichiro and Kokoro were rivals for the Successor position, they often subtly joined forces when fighting other half-Siblings, which often resulted in Taira Ichiro and Taira Kokoro gaining advantages.</p>
-<p>Until Taira Saburo died and Taira Kanna emerged as the Head of a new Pabeol, Taira Jiro had always been fighting a disadvantageous 2-on-1 battle.</p>
-<p>Taira Kanna also sensed that fact, which was why she gave the information to Taira Jiro, not Taira Ichiro. Because Information was power, one of the main Reasons was probably that she didn't want to add more information to Taira Ichiro's already strong side.</p>
-<p>"Then, since I have completed my mission, I will take my leave now."</p>
-<p>Fuma Kai, having completed his mission of handing over the information to Taira Jiro, bowed respectfully.</p>
-<p>"Indeed, tell Kanna that I will not forget the Debt."</p>
-<p>"Yes, then, farewell...."</p>
-<p>After Fuma Kai left the office, Taira Jiro plugged the universal connector into his computer and checked the Data. It was clear. The black box video and CCTV footage obtained by Taira Kanna's side were neatly edited with a map, making it clear at a glance which Roads the Mithril thieves had taken to arrive at Chiba Port.</p>
-<p>"Genta."</p>
-<p>"Yes, Boss-nim."</p>
-<p>Having confirmed all the Data, Taira Jiro called his secretary, Tateyama Genta.</p>
-<p>"Prepare the car. I need to go to Chiba."</p>
-<p>"Aren't you going to Taira Bussan?"</p>
-<p>At Taira Jiro's Words, Tateyama Genta spoke with a puzzled Expression. He asked because Taira Bussan had also moved its headquarters to Neo Tokyo. At that, Taira Jiro said with a deep Smile.</p>
-<p>"If I go to Taira Bussan now and confront Ichiro, he will surely deny it, saying he knows nothing about it. He'll tell me to ask Gensuke in Brazil. But this time, that Guy Gensuke caused an accident in Neo Tokyo, so I'll have to link that accident and this Matter together and Report it to Father. I'll ask if Ichiro and Gensuke, attacking our Group consecutively, don't have other intentions."</p>
-<p>Of course, involving Taira Danjo, the length, in every matter was by no means a good thing for a Successor, but this Incident included Taira Gensuke causing a Commotion in Neo Tokyo, a Project the Group was focusing on, making it a sufficiently possible Attempt.</p>
-<p>Of course, Taira Danjo would likely only severely scold Gensuke, who directly caused the Incident, and dismiss his claim that Taira Ichiro and Taira Gensuke were anti-Taira forces.</p>
-<p>While Taira Ichiro and Taira Gensuke were being scolded by Taira Danjo, Taira Jiro would prepare another Attack that would hurt Taira Ichiro and Taira Gensuke the most.</p>
-<p>Taira Jiro also lacked time for now due to his deceased son Taira Kitsumasa's funeral and the Tracking of the Assassin, so he intended to pass the Ball to Taira Danjo first.</p>
-<p>"Ah, and Kitsumasa's Corpse...?"</p>
-<p>Taira Jiro, who was rising from his Seat, asked Tateyama Genta.</p>
-<p>"In two days, he will depart on an Airplane equipped with top-tier freezing Facility."</p>
-<p>Tateyama Genta replied, casting his Eyes down as if apologizing for not bringing Taira Kitsumasa immediately. However, Taira Jiro also knew well that this Incident had occurred because he, consumed by anger, had eliminated the London police department, so he nodded his Head.</p>
-<p>"Indeed. Arrange the funeral schedule to match that time. Because our Son's funeral must be one that no one can envy."</p>
-<p>"Understood. I will meticulously prepare the schedule."</p>
-<p>"Indeed, now, let's depart for the Chiba Main family."</p>
-<p>Thus, Taira Jiro and Tateyama Genta went down to the Parking Lot, got into the vehicle, and departed for the Taira Main family in Chiba.</p>
-<p>And blending into the Scenery around the Taira Steel Headquarters building, there was someone watching their Appearance. It was Fuma Kai, who had just been in Taira Jiro's office. As befitting someone with the Fuma surname, Fuma Kai, who was an excellent ninja, was observing the Parking Lot exit without being detected by anyone.</p>
-<p>"Yes, they have departed in the direction of Chiba. This would be Scenario 3, as we thought."</p>
-<p>**-Well done. You may return now, Fuma.**</p>
-<p>Taira Kanna's Voice was heard through the Earphones Fuma Kai had in his ear. Because he had to confirm how Taira Jiro would act after receiving his information, Fuma Kai had waited instead of leaving immediately.</p>
-<p>Requested by Gojoy-nim: Nae Fitzgerald and Taira Kokoro, met at the 49th-day memorial~!</p>
-<p>Nae~!</p>
-<p>Nae's Hairstyle changes when using the funeral attire LORA hehe.</p>
-<p>Kokoro~!</p>
+<p>and chapter check contains erotic please surroundings this your</p>
+<p>After finishing the conversation with Taira Danjo Grandfather, as I came out of the conference room, Taira Yukiko, Linxiang, Nagumo Sian, and the phantom thief mother and daughter were together with an unexpected guest.</p>
+<p>"Teacher-nim~!"</p>
+<p>Konoe Akina ran and hugged me as soon as she saw me. It seemed she was quite happy to see me after a long time. Ah, she was the Head of Family of the Konoe Family. It seemed she participated in Taira Kitsumasa's funeral in her capacity as Konoe Head of Family.</p>
+<p>"Long time no see, Konoe. I thought you weren't coming since there was no word."</p>
+<p>As it was a Tairaga funeral, many guests from various prestigious families came to offer condolences, so I thought she would send a representative, but I never imagined Konoe Akina herself, the Head of Family, would come.</p>
+<p>"I came because I missed Teacher-nim~!"</p>
+<p>From what I heard, she said she was spending very busy time with university classes and Head of Family classes, so seeing her appear in person at Taira Kitsumasa's funeral, with whom she had no particular acquaintance, it seemed she really made time to see me.</p>
+<p>"Alright. Everyone has exchanged greetings, right?"</p>
+<p>Since most were meeting Konoe Akina for the first time, I asked. Judging by the fact that they were together waiting for me, it seemed they had already made Introductions and had some conversation, and when I asked, everyone nodded their Heads.</p>
+<p>"Then, let's first have a conversation somewhere we can sit."</p>
+<p>First, to talk about what happened in the conference room, I caught a passing servant and was guided to a room. Probably other Successor Pabeols, like me, borrowed small conference rooms and are talking about what just happened.</p>
+<p>"First, let's talk about the repercussions of Yuuichi becoming the Boss of Taira Global Resource Development, Taira International Resource Development."</p>
+<p>"As Ryuta-nim also knows, primarily, it is an Offensive against Taira Ichiro, but secondarily, it can be seen as an Attack and Warning against our faction."</p>
+<p>At my words, Linxiang answered as if she had prepared in advance. As expected, Linxiang's thoughts seemed no different from mine. I also thought similarly, but Taira Jiro's Counterattack was so exquisite that even an ordinary person could understand its repercussions.</p>
+<p>"I thought about that too. What action should we take because of this Incident? Also, we need to examine what actions Taira Ichiro and other successors will take due to this Incident."</p>
+<p>"First, what we need to do is increase our business partners. To the extent that it wouldn't matter even if Taira Jiro's side suddenly refused to trade Mithril, if we create other business partners, even if Taira Jiro's side cuts off the deal, there won't be significant harm."</p>
+<p>At Linxiang's words, I nodded my Head. One-third of the Mithril being mined now was sent to Korea, one-third to Taira Jiro, and the rest was being stored for unforeseen circumstances.</p>
+<p>Sending to Korea meant TG Tech, which Han Yu-gyeong and I jointly owned, was paying for it, so it was merely moving Money from one pocket to another. Ultimately, the actual profit from the Mithril mine came from selling to Taira Jiro.</p>
+<p>Of course, since the other Business was doing well, there was no need to earn Money even from the Mithril mine supplying raw materials, nor did I intend to. Still, in case the Mithril deal with Taira Jiro, which generated Cash flow, was cut off, I thought we should at least have a Method to cope, so I asked Linxiang for a countermeasure.</p>
+<p>"And for the other successors, excluding Taira Ichiro, they won't show any particular action immediately. Taira Kokoro's Pabeol is an Affiliate Company related to department stores, Cosmetics, and entertainment, so they don't have a great need for Metal, and thus probably won't move. Taira Kanna's Pabeol has Affiliate Companies that use Metal, but since they were originally receiving metal from Taira Jiro's Taira Steel, nothing has greatly changed, so they probably won't take any particular action."</p>
+<p>Ultimately, Linxiang's judgment was that there would be no particular movement from anyone except Taira Ichiro. Then, as expected, what action Taira Ichiro would show due to this Incident was important.</p>
+<p>"What kind of movement will Ichiro's side show?"</p>
+<p>"Normally, he would Attack Taira Yuuichi's side, but since it hasn't been long since he was reprimanded by the Chairman-nim, he will probably seek other Methods. Perhaps he might establish a new company with a similar function to Taira International Resource Development and deal with them separately, or he might continue to deal with Taira International Resource Development. Of course, while making Efforts to reclaim Taira International Resource Development."</p>
+<p>For now, since he's in a Situation where he was scolded by Danjo Grandfather, he won't be able to do anything drastic and will try to find a way out in another direction, it means.</p>
+<p>Listening to Linxiang's story, ultimately, it seemed no particular conflicts would occur for a while. Then, let's first move past future matters and talk about other curious points.</p>
+<p>"But how did Yuuichi become the Boss of Taira International Resource Development? Grandfather only said it helped Taira Robotics, didn't he?"</p>
+<p>"Isn't that simple?"</p>
+<p>At my question, Nae Fitzgerald opened her mouth. Simple, you say? Does she know something?</p>
+<p>"Taira Robotics also produces, but its essence is a Technology Development company. Then what Yuuichi gave his father must be Technology."</p>
+<p>Certainly, the only thing that could help Taira Robotics was Technology. But Taira Yuuichi wouldn't have a research team or anything like that. Where did he get the Technology from? Nae Fitzgerald, seeing my puzzled Expression, smiled sweetly as if I was cute and continued speaking.</p>
+<p>"Where was Yuuichi? It was the Asakura-Taira Shipyard, wasn't it? If so, isn't it most likely that he stole Asakura's Technology?"</p>
+<p>As expected, as her main profession was a thief, she seemed to know a thief's mind well. Listening to Nae Fitzgerald's words, it seemed there was no other Path to obtain Technology apart from stealing Asakura's Technology. Seeing the others also nod their Heads, this Hypothesis seemed to fit the current Situation best.</p>
+<p>"Then why didn't Grandfather properly Answer Ichiro's question? When I became the Boss of Taira Food distribution, he explained in detail that I had prevented the alliance between the Minamoto and Sugawara families."</p>
+<p>"There are two reasons for that."</p>
+<p>This time, Taira Yukiko opened her mouth. Since she had continuously been involved with the Taira Group and Taira Yukiko had lived as Taira Danjo's daughter-in-law, it seemed she was guessing the Reason.</p>
+<p>"First, the Chairman-nim does not disclose detailed Information about Taira Robotics and Taira Bio."</p>
+<p>As Taira Yukiko said, although Taira Robotics and Taira Bio were the technological Foundation of Taira, not much was known about them. It was known only that they held a significant Share in all Affiliate Companies and that they were a company that provided numerous Technologies to Affiliate Companies and received Royalty for them.</p>
+<p>So, was it because of that Secret that he didn't explain? Certainly, I had the question, "Why didn't he explain in detail?" But I remember that as soon as the name Taira Robotics came up, the rest of the People in the conference room had an understanding Expression.</p>
+<p>"And the second?"</p>
+<p>"Second, while Ryuta was preventing the alliance between Minamoto and Sugawara, he killed Sugawara Chohei, the second son of the Sugawara Family, didn't he? If that Information leaked, it would be a bit awkward, but he revealed it in a Place where People gathered, with the Confidence that Taira, to that extent, could suppress Sugawara. Of course, he also issued a warning not to let that Information leak, you know."</p>
+<p>"If that's the case...."</p>
+<p>At Taira Yukiko's words, I could naturally infer the next content. That was....</p>
+<p>"Rather than a mere Sugawara Family, Asakura is a more formidable Opponent."</p>
+<p>This time, Nagumo Sian spoke. Ultimately, rather than killing the second son of the Sugawara Family, stealing Asakura's Technology is a more Sensitive Matter.</p>
+<p>"Of course, Taira is not inferior to Asakura, but since there's no need to make an enemy, they probably maintained security this time."</p>
+<p>It is true that Asakura is a large faction, enough to become one of the top 5 mega-corporations in the future USA, but that is a Matter of the future, and currently, it is not to that extent. In contrast, Taira is currently a faction vying for supremacy in Japan with Minamoto, so it was by no means inferior to Asakura.</p>
+<p>Still, rather than Sugawara, which is merely one Family in Japan, Asakura is a much more formidable Place, so Taira Danjo seemed to have maintained security.</p>
+<p>Probably, even if the Information that I killed Sugawara's second son leaked, it could be Handling. But if the story that Asakura's Technology was stolen leaked, Asakura might side with Minamoto, or, while Asakura and Taira are in dispute, Minamoto's side might engage in some maneuver, so it seemed he hid that fact.</p>
+<p>"But why did Grandfather call Ryuta separately?"</p>
+<p>Arisu asked, perhaps thinking the story about Taira Yuuichi becoming the Boss of Taira International Resource Development was over.</p>
+<p>"Ah, it seems he knew I went to New York this time. He asked if I was involved in the New Rochelle Incident, and if so, if I had done anything that would Harm the Taira Group."</p>
+<p>"Teacher-nim...! Are you, really, involved in the New Rochelle Incident?"</p>
+<p>At my words, Konoe Akina opened her Eyes wide and asked me. The others knew I was involved in the New Rochelle Incident, but Konoe Akina didn't know, so she seemed quite surprised.</p>
+<p>Because this Incident became quite a Topic, to the extent that it was called the New Rochelle Incident in Japan, when I said I was involved in the New Rochelle Incident, Konoe Akina looked at me with a very worried Expression. It was an Appearance as if she was checking if I was hurt anywhere.</p>
+<p>"I'm fine. You know my Skill."</p>
+<p>"Still.... The News was so big...."</p>
+<p>Because there were many stories like "the second 9/11" or "the second famine," it was natural for Konoe Akina to worry.</p>
+<p>"Anyway, I told Grandfather there would be no Problem. And there actually was no Problem...."</p>
+<p>With this, the story about today's sudden Meeting was over. Feeling a slight hunger and checking the time, it was already lunchtime.</p>
+<p>"Shall we have lunch here? Because if we eat at the restaurant, we'd have to mind our Surroundings...."</p>
+<p>"I like that!"</p>
+<p>"I like it too, Teacher-nim...!"</p>
+<p>"Certainly, if we eat a meal at the restaurant, the surrounding Gaze would be bothersome."</p>
+<p>Everyone agreed to my Proposal, so I called a servant and requested meal Preparation.</p>
+<p>Konoe Akina B-cut~!</p>
+<p>It was a funeral, but she wore unconventional fashion, so it was a bit difficult hehe.</p>
+<p>Chapter 58 Illustration Remake requested by Gojoy-nim~!</p>
+<p>1.</p>
+<p>2.</p>
+<p>Illustrations made with older models are not the concept that the models came out early or late, but rather a Feeling of different generations, so no matter how similar an Illustration you want, I cannot make it exactly the same~!</p>

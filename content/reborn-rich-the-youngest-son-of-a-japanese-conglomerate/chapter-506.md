@@ -5,70 +5,73 @@ weight = 506
 chapter = 506
 +++
 
-<p>This episode contains explicit scenes and illustrations! Please check your surroundings before viewing~!!</p>
-<p>The reason I allowed a relationship with Saionji Diana-ssi was because, although she was a high school student due to repeating a year because of an accident, she was now an adult. So, it didn't violate my vow not to be with a minor, and I also had my principle of not rejecting women who come to me, and I knew that rejecting her after she had courted me so much would cause her great emotional pain.</p>
-<p>When I allowed her my body (?), Eve seemed even happier than Saionji Diana-ssi, who was the one actually doing it with me.</p>
-<p>,Instead! Please do it in the love hotel upstairs!</p>
-<p>Ah, so that was the ulterior motive. Eve, who was researching human pleasure nerves, might have been waiting for Saionji Diana-ssi, who could be considered a half-cyborg with cyber implants in her limbs, to have sex. She needed to check if it applied to mechanical bodies as well.</p>
-<p>Eve gave me a card key. It was the key to a love hotel room labeled VIP501. The room with the scanning device that I used with Kasaoka Yuzuki before was room 501.</p>
-<p>I was already used to being spied on during sex. From Minama Chieri to Eve and Kurayamada Kirie. Maybe there's some voyeur I don't know about watching my sex. So, I nodded without much resistance and opened my mouth.</p>
-<p>,Are you going to check the sensation when I do it with Diana-ssi too?</p>
-<p>,If this goes well, we can make cyber implants that can feel pleasure! Then we'll make so much money we could rake it in!</p>
-<p>Eve exclaimed excitedly again at my question. Cyber implants certainly moved under the will of their owners, but they couldn't feel sensations. Especially not pleasure.</p>
-<p>If Eve succeeded, she could sell it to rich people who had cyber implants due to aging at a very high price.</p>
-<p>Being able to add human senses to the powerful steel body that they had given up, rich old people would buy our new cyber implants no matter the cost.</p>
-<p>I thought she was just researching out of curiosity, but she also had this kind of business plan. That's Eve for you.</p>
-<p>,I'll go up first.</p>
-<p>,T-thank you, Eve.</p>
-<p>Saionji Diana-ssi, who was following me up the stairs, thanked Eve with her face as red as a persimmon under her hair.</p>
-<p>The situation was turning out a bit strange, so I was a little embarrassed. I received a request to let my student have sex as a reward, and that student was probably plotting with Eve, who oversees everything in the world-class back alley called Amsang, and even made a plan for sex with me.</p>
-<p>,Let's go quickly.</p>
-<p>Saionji Diana-ssi, who was clearly blushing and embarrassed, grabbed my arm and came out of the basement first, as if she was determined to be proactive since things had turned out this way.</p>
-<p>,Huh?!</p>
-<p>That confidence was short-lived. As soon as we came out of the basement, we ran into an unexpected person. It was Otagi Yuka. Otagi Yuka was also close to Eve, wasn't she? I forgot about that.</p>
-<p>Otagi Yuka saw Saionji Diana-ssi holding my hand and pulling me along, and gave a deep smile. She seemed to have guessed what was going on.</p>
-<p>,Hehe, have a good time.</p>
-<p>Otagi Yuka smiled and went into the basement we had come out of. She's so cool.... Saionji Diana-ssi's face turned even redder and she didn't know what to do. She seemed to have lost the courage she had to pull me along just now, probably because she was flustered.</p>
-<p>,Kyaa!</p>
-<p>I couldn't just stand still at the entrance of the Amsang basement, so I picked up the flustered Saionji Diana-ssi in a princess carry. She was lighter than expected. Eve seemed to have done a good job of making the cyber implants lightweight. I was prepared for her to be very heavy, but I was surprised at how light she was.</p>
-<p>I carried Saionji Diana-ssi to the elevator and pressed the 5th floor. Saionji Diana-ssi was quietly held in my arms like a herbivore caught by a hunter, and my arms seemed to be quite cozy.</p>
-<p>Ding!</p>
-<p>I got off the elevator on the 5th floor. Befitting the name VIP room, there were only two rooms on the 5th floor, 501 and 502. Unfortunately, unlike the name VIP room, both were being broadcasted with the scan sensors that Eve had installed on the ceiling.</p>
-<p>The reason Eve installed scan sensors on the ceilings of both rooms was because of my specialness. Because of my sex-specific trait, I had a different level of pleasure-inducing ability than others, so she installed sensors in room 502 to create a pleasure map of ordinary people.</p>
-<p>For reference, Eve only lets me use room 501 for hygiene reasons, so I could use it with peace of mind without worrying about sexually transmitted diseases.</p>
-<p>,This is....</p>
-<p>Saionji Diana-ssi was impressed by the love hotel room, which was no different from any luxury hotel room, befitting the name VIP room. As the daughter of the Saionji family, she would have been to such luxury hotels enough, but Saionji Diana-ssi had become much more common(?) after the accident, so she looked at the room with admiration. Of course, while being held in my arms.</p>
-<p>,Ah...!</p>
-<p>I carried Saionji Diana-ssi to the bed and laid her down. Hmm.... I could have started something right away, but I couldn't stand lying on the bed with shoes on. I took off Saionji Diana-ssi's shoes and threw them into the shoe rack at the entrance, then looked at Saionji Diana-ssi.</p>
-<p>,Do you not regret it?</p>
-<p>,No, I'm even sad that my body is the only thing I can give to you, sensei-nim. But, since it's my first time, please.... Be gentle.</p>
-<p>The way she was looking at me with moist eyes through her hair excited me, so I put my lips on Saionji Diana-ssi's lips.</p>
-<p>Saionji Diana-ssi actively accepted my lips. She said it was her first time, but she was quite skilled. She probably had special training (?) somewhere. Eve must have provided the video materials.</p>
-<p>Tsuup...! Chok, chok...! Chup...♥</p>
-<p>,Sensei-nim, your kiss is delicious...♥</p>
-<p>When I stopped kissing and took my lips off, Saionji Diana-ssi smiled with a dazed expression. Saionji Diana-ssi raised her hand and touched my cheek. It was a natural touch that couldn't be called a cyber implant.</p>
-<p>,Can you feel the sensation in your hand?</p>
-<p>,Yes, Eve made it so I could feel sensations for today. It's still being tested, but I'm happy that I can feel sensei-nim's touch with my hands like this....</p>
-<p>Eve seemed to have systematically applied sensation to Saionji Diana-ssi's cyber implants for today. Saionji Diana-ssi was very satisfied that she could touch my face with her own hands and feel the sensation.</p>
-<p>I looked at Saionji Diana-ssi and took off her clothes. I took off her black Chinese collar shirt and her pleated skirt. She had prepared thoroughly in advance.</p>
-<p>Saionji Diana-ssi was wearing sexy lingerie and a garter belt as if she had expected to show me her underwear, and she was still looking at me with moist eyes. Excited by Saionji Diana-ssi's sexy underwear, I touched Saionji Diana-ssi's soft inner thigh.</p>
-<p>It was the part with the cyber implant, but Saionji Diana-ssi started to make subtle moans as if she felt pleasure from my touch. Judging by the moans, she had successfully created pleasure nerves as well.</p>
-<p>,Ah.... Sensei-niim, it feels strangeee♥</p>
-<p>She was the third student I had a relationship with, but Otagi Yuka knew my identity, and Sakagami Rena treated me as her lord. On the other hand, Saionji Diana-ssi was someone I met at this St. Francis Girls' Academy, so she always treated me as her teacher.</p>
-<p>Even in this situation, she kept calling me sensei-nim, sensei-nim, which was new and doubled my excitement. But as I kept hearing the word sensei-nim, it felt like I was giving Saionji Diana-ssi a sex lesson.</p>
-<p>,Haa, haa, sensei-nim, quickly...!</p>
-<p>Saionji Diana-ssi was already very heated up with just her thighs. But Saionji Diana-ssi seemed to still feel something was missing and started urging me. Because she was a virgin, she probably didn't know what that missing feeling was yet, but she probably felt like she was craving something that could fill her pussy.</p>
-<p>But I had no intention of stopping the foreplay yet. Saionji Diana-ssi's pussy wasn't a cyber implant, so I had to heat her up enough here so that she could accept my huge cock without difficulty.</p>
-<p>,Haeuh...!</p>
-<p>When I moved my hand past her thighs to her crotch, Saionji Diana-ssi closed her legs as if it was a virgin's instinct. But my hand had already dug in. I slowly touched around her pussy and gently touched her pussy.</p>
-<p>,Heueuh...! The feeling is different from my thighs, haat! Sensei-niim♥</p>
-<p>As expected, there was a difference in the area between her pussy and her thighs, but it seemed that the sensation hadn't been fully implemented yet. She was showing a different level of reaction even when I was touching around her pussy.</p>
-<p>Saionji Diana-ssi was a skilled swordswoman, so her senses were also sensitive. She was about to reach her climax just by touching the outside of her pussy over her panties. I didn't let go of the reins and gently flicked Saionji Diana-ssi's Clitoris.</p>
-<p>,Haeueueuheut!! Heuahhaang...! It feels heueut! Strangeeeee...♥</p>
-<p>Saionji Diana-ssi's back arched as she reached her climax from my touch. She didn't do shiofuki because she was wearing panties, but her underwear was wet with a lot of juices.</p>
-<p>,This is what climax is.</p>
-<p>,Haeuh... Hang, haeuheung....</p>
-<p>This was my first teaching. Saionji Diana-ssi smiled faintly at me even as she breathed heavily from the afterglow of her climax.</p>
-<p>,Sensei-nim, please proceed to the next lesson♥</p>
-<p>I think I know now why teachers cherish their top students. I didn't know how pretty she was because she understood the teacher's heart, which wanted to teach her even one more thing.</p>
-<p>----Underwear Diana B-cut!</p>
+<p>Daigo Terue's sudden return as Director was enough to unsettle the teachers. It was known that she was serving a month and a half of suspension, but Daigo Toyotaka died in a traffic accident, Ishidera Kosuke, who had been so confident, suddenly disappeared, and Daigo Terue returned, so it was natural to be confused.</p>
+<p>In particular, the teachers who had been fooled by Ishidera Kosuke's sweet talk and decided to join the Toyotaka faction were anxious about losing their jobs.</p>
+<p>Kasaoka Yuzuki's husband, Kasaoka Koki, was also flustered. He didn't know that this would happen just a few days after joining the Toyotaka faction and receiving a significant salary increase.</p>
+<p>Kasaoka Yuzuki had been called to the Director's office and had just come out, which made Kasaoka Koki's anxiety even greater. He was curious about what Daigo Terue had said to Kasaoka Yuzuki and what she had said in return.</p>
+<p>,What, what happened?</p>
+<p>,Of course, I was called in because of this. So I answered honestly. Ishidera Kosuke brought you into the Toyotaka faction first, and I was recommended by you.</p>
+<p>,How could you tell the Director-nim that!</p>
+<p>Kasaoka Koki shouted in great embarrassment, but Kasaoka Yuzuki was giving Kasaoka Koki an enigmatic smile.</p>
+<p>,Let's get divorced.</p>
+<p>Kasaoka Yuzuki's sudden words. Kasaoka Koki wondered if he had misheard and stared blankly at Kasaoka Yuzuki.</p>
+<p>,W-what are you talking about?</p>
+<p>,The Director-nim said that if I divorce you, I don't have to get fired. You took the initiative to recruit for the Toyotaka faction, so you're going to get fired no matter what.</p>
+<p>,That...!</p>
+<p>Kasaoka Koki was speechless. He had nothing to say since the faction he had joined had collapsed, but he couldn't help but feel wronged.</p>
+<p>,S-so, we're only getting divorced in name?</p>
+<p>,No. We're really getting divorced. I'm tired of watching you have relationships with students, so once we're divorced, you can go to that student. I've been having an affair like you, so I'll take the house and 75% of the debt.</p>
+<p>,You...! What are you saying?!</p>
+<p>Kasaoka Koki felt like his wife was a stranger. It was as if an emotionless doll was talking. Of course, he knew he had been careless, so he thought it couldn't be helped that his affair had been discovered, but to think that his wife, who he thought would never change, was also having an affair... Even though he was also having an affair, Kasaoka Koki was filled with anger.</p>
+<p>,Isn't this a good deal for you? You'll soon not be a teacher anymore, so you can meet the student you're currently seeing without shame, and I'm taking on more of the debt. 75% is most of the debt, right? Our mansion will be quite expensive to maintain for an unemployed person.</p>
+<p>What good would it do to take on most of the debt? Kasaoka Koki was about to be fired and would soon be out of a job... But Kasaoka Koki soon changed his mind.</p>
+<p>If he could get along well with the young lady from St. Francisco Girls' Academy he was currently dating, money wouldn't be a problem. That student had been asking him to divorce Kasaoka Yuzuki and marry her, so it would be a good opportunity to get a divorce this time...</p>
+<p>,Divorce is fine. But I should get the house.</p>
+<p>,Then you should take 75% of the debt.</p>
+<p>Kasaoka Yuzuki frowned at Kasaoka Koki's words. Half of the debt was due to fraud, but the other half was money used to buy the house. Kasaoka Yuzuki had suggested staying in a cheaper place, even if it was a bit far, but the vain Kasaoka Koki had insisted on choosing an expensive mansion near St. Francisco Girls' Academy.</p>
+<p>Yamashiro Ryuta had said he would take care of the debt, so she had agreed to take on a whopping 75% of the debt, but Kasaoka Koki continued to insist on owning the house.</p>
+<p>According to what she had heard from the Director-nim, it was certain that Kasaoka Koki would be fired. Then there was no need for a house in a mansion near St. Francisco Girls' Academy, but he was still being so greedy, and even the last bit of affection she had as his wife was disappearing.</p>
+<p>,T-that's too much! It was your fault that you got scammed in the first place! Why should I take on the debt?</p>
+<p>Kasaoka Yuzuki felt bitter at Kasaoka Koki's outburst. Although Kasaoka Yuzuki was the one who had been scammed, all investment decisions had been made after the couple had discussed them. The only thing Kasaoka Yuzuki had done alone was sign the contract. Even so, Kasaoka Yuzuki felt responsible and had started working part-time at a deli health.</p>
+<p>,Okay. I'll concede. Let's do 50/50.</p>
+<p>,Keueum...!</p>
+<p>It was clearly a reasonable, no, a favorable condition for Kasaoka Koki, but in fact, Kasaoka Koki had more debt. He had used private loans to buy luxury gifts for the student he was currently dating.</p>
+<p>Even if they split the debt 50/50, it would be a difficult debt to handle if he included his own debt. After thinking for a moment, Kasaoka Koki gave a sly smile.</p>
+<p>,You take 8, I take 2. If you don't accept these conditions, I won't grant you a divorce. If you don't get a divorce, you'll get fired too, so think carefully.</p>
+<p>In the end, the only way to get a divorce quickly was through mutual agreement. Otherwise, she would have to file a lawsuit, which would take a considerable amount of time. She didn't know if Daigo Terue would wait until the lawsuit was over.</p>
+<p>Kasaoka Koki used that point to threaten Kasaoka Yuzuki to take on the debt. Kasaoka Yuzuki was very disappointed in Kasaoka Koki's actions, but soon nodded as if to say she understood.</p>
+<p>,Okay. Let's do that. But I need to find a house too, so I'll be in the mansion until the end of the year. You probably won't get fired until the end of the year either.</p>
+<p>Since there were still student classes, she probably wouldn't be kicked out right away tomorrow. At least until the end of the year, there was a high possibility that he wouldn't be fired.</p>
+<p>,Good. Let's submit the divorce papers during lunch break right away.</p>
+<p>Kasaoka Koki smiled, excited that everything was going according to his plan. Even though she was his wife who he had lived with for several years, he had no hesitation in divorcing her in a single day. Kasaoka Yuzuki also realized that she had no regrets at all, and the Kasaoka couple had only been maintaining the form of a couple all this time.</p>
+<p>###</p>
+<p>Kurayamada Kirie left St. Francisco Girls' Academy before lunch time. She had lunch alone with Kijimoto Jurie for the first time in a while (until now, the three of them, including Kurayamada Kirie, had eaten together), and went to the small room used as a counseling room next to the club room on the second floor of the special class building for an interview at Urabe Konoka's request.</p>
+<p>Urabe Konoka... It must be because she offered a tribute to Simyeonui ttal in this incident? She offered the dead avatar of the Outer God as a tribute, so she must have received a considerable reward.</p>
+<p>,Ah! Teacher-nim, you're already here!</p>
+<p>Urabe Konoka, wearing a red ribbon, came into the counseling room and greeted me. Urabe Konoka smiled and sat across from me.</p>
+<p>,You wanted to see me because of Simyeonui ttal, right?</p>
+<p>,Yes~! Simyeonui ttal was very surprised to receive the tribute. She was wondering what you were doing.</p>
+<p>She must have been surprised to receive such a huge tribute suddenly. From Simyeonui ttal's point of view, it was such an unexpected tribute that she must have been wondering what I was doing.</p>
+<p>,Just a moment...!</p>
+<p>Urabe Konoka said to me and closed her eyes for a moment. And when she opened her eyes again, her usual brown eyes had changed to the purple abyss color of Simyeonui ttal.</p>
+<p>, Consort.</p>
+<p>The appearance was Urabe Konoka, but it was no longer Urabe Konoka. Simyeonui ttal had descended into Urabe Konoka.</p>
+<p>,Simyeonui ttal...</p>
+<p>, I was very surprised to receive this tribute. To offer the remains of the avatar of the Sunken One... What on earth have you been doing?</p>
+<p>,Ah, well...</p>
+<p>I told Simyeonui ttal about what had happened this time. Simyeonui ttal listened to my story with interest and nodded as if she understood.</p>
+<p>, I see... I will give you the choice of compensation for the tribute the consort has given me. The remains of the avatar contain considerable divinity, so if I absorb it, I will become stronger than I am now and be able to give you even greater compensation. However, it will take a considerable amount of time to absorb the divinity in the remains of the avatar. It will take a process of purification. If you don't want to waste time, you can choose to receive compensation right now.</p>
+<p>So I had to choose whether to receive compensation right away or wait a little longer and receive even greater compensation. Since I wasn't in a hurry, I decided to choose to wait.</p>
+<p>,I'll wait. It's more important for you to become stronger.</p>
+<p>Perhaps if she used her power to give me a gift, she wouldn't become much stronger even if she absorbed the remains of the avatar this time. I thought it would be better to wait, as I could receive a good reward and Simyeonui ttal could become stronger. When I said I would wait, Simyeonui ttal smiled with Urabe Konoka's face.</p>
+<p>, I knew I had a good eye for men. Did you happen to obtain the Seed of Earthquake? It's not really a reward, but the Root of Earthquake is a vicious thing that forcibly turns you into an avatar of the Sunken One if it's not purified, so I'll purify it for you.</p>
+<p>I was going to hire an alchemist or a corporate chemist to refine the Seed of Earthquake, but it would be great if Simyeonui ttal could do it. I took out the Seed of Earthquake. I had brought it with me today just in case, but I didn't know I would be able to purify it right away. When I took out the Seed of Earthquake, a translucent window soon appeared and informed me of the information once again.</p>
+<p>◆Seed of Earthquake [Legendary+ Elixir/Material/Consumable/Seed]</p>
+<p>A seed that can create an avatar of the Sunken One - Root King who resides in the underground. If refined well, it becomes an ingredient for an elixir.</p>
+<p>When I handed the fist-sized jewel that was flashing red to Simyeonui ttal, Simyeonui ttal grabbed the Seed of Earthquake with both hands and closed her eyes. At that moment, a light burst out, and soon the light disappeared.</p>
+<p>, This much doesn't consume much power, so I can do it as much as I want.</p>
+<p>It was a rough, fist-sized jewel earlier, but what Simyeonui ttal returned to me was a pink, half-fist-sized jewel.</p>
+<p>◆Essence of the Earth [Legendary+ Elixir/Material/Consumable]</p>
+<p>The essence of the earth, desired by everyone connected to the land. It's good to consume on its own, but even more effective when used to make an elixir through alchemy.</p>
+<p>Permanently increases physical stats by +1 upon consumption, and additionally increases Strength, Stamina, Resistance, and Recovery stats by 2. The limit of all physical stats also increases by 1.</p>
+<p>The name has changed. It seemed that the Sunken One had transformed this Essence of the Earth with his own authority to create the Seed of Earthquake or the Root of Earthquake. It was highly likely that Simyeonui ttal had removed only the power of the Sunken One, and the original form had been revealed. It was indeed an option worthy of being called Legendary Plus. Moreover, it was said that the effect would be stronger if I made it into an elixir, so I was curious about how much better it would get from here.</p>

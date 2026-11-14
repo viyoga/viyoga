@@ -5,65 +5,62 @@ weight = 48
 chapter = 48
 +++
 
-<p>There was a small pharmaceutical company listed on NASDAQ called Health Miracle. This Health Miracle was a stock that only those in the know knew about for making money early on for MegaCorp's youngest son. Until May, it fluctuated between $0.8 and $1.1 per share, but if you consistently bought it from the beginning, it would eventually rise to a whopping $1100.</p>
-<p>It was because of a drug that Health Miracle made, and the drug's name was Forest. Surprisingly, Forest was a hair loss treatment. Because a drug that reliably treated hair loss, something no country or company had succeeded in doing, came out, the stock price soared.</p>
-<p>I lay in bed and started buying shares of Health Miracle with my brokerage app. Since I was living in the detached building of the Human Resources Development Institute anyway, I saved on housing costs, and Taira Yukiko-ssi said she would buy me a car, so I had some spare cash. About... 10 million yen?</p>
-<p>Since the price would be flat until May anyway, I decided to buy it slowly in installments. If I dumped all 10 million yen today, the price would go up, and I wouldn't be able to buy as much as the price increased. Well, it wouldn't go up much with just 10 million yen, but I should still buy it while controlling it so it doesn't rise as much as possible. If I buy 200,000 or 300,000 yen worth each day, my holdings will steadily increase. Besides, I also have a salary, so I should dump all my salary into Health Miracle too.</p>
-<p>As it was the first day, I bought 500,000 yen worth of Health Miracle today.</p>
-<p>"Hmm... Should I tell Han Yu-gyeong-ssi about this?"</p>
-<p>MegaCorp's youngest son was very short on money in the beginning. The Shin-gang Group Chairman did throw him 600 million won for graduating at the top of Korea University, but that was for men; women get 200 million won. 600 million won looks like a lot of money, but after buying a car, a motorcycle, a gun, hiring a bodyguard, lobbying, and running ads, it was far from enough.</p>
-<p>But what about 200 million won, a third of that money? If you play as a woman, you had to play as a cheapskate, buying only the bare necessities. Even though she was a child of a chaebol family, she had to eat meals at the lowest possible cost.</p>
-<p>"Yeah, let's tell her. I know a lot of other honey tips too."</p>
-<p>As soon as I made up my mind, I called Han Yu-gyeong-ssi. As if she had been waiting for my call, she answered as soon as the first ringtone sounded.</p>
-<p>-Yong-tae-ya!</p>
-<p>Her voice was full of joy. Hmm, her voice is pretty too.</p>
-<p>"Yeah, Yu-gyeong-a. Is the OT preparation going well?"</p>
-<p>-Actually, there's not much to prepare, so I've been sitting and studying.</p>
-<p>Studying because she has nothing to do, she really is a woman who graduated at the top of Korea's best university. I couldn't check Han Yu-gyeong's stats, but her knowledge, which can't be raised by leveling up, seemed incredibly high.</p>
-<p>"Did I interrupt your studying?"</p>
-<p>-No~! I was just doing it because I had nothing to do. But what's up with the call?</p>
-<p>"I just wanted to hear your voice, and I called for that reason too."</p>
-<p>-Really? Hehet. I'm glad I heard your voice too.</p>
-<p>How sweet, I never imagined that a super pretty college girl would like me this much.</p>
-<p>"Ah, you said your grandfather gave you money for graduating at the top a few days ago, right? What are you going to use it for?"</p>
-<p>I asked Han Yu-gyeong-ssi as if I had suddenly thought of it. Han Yu-gyeong-ssi answered my question without suspicion.</p>
-<p>-Um, my grandfather gave me 200 million won, and I invested 100 million won in stocks and hired a bodyguard for three months with 10 million won as you said. I bought a house, a car, and other things with the remaining 90 million won, so I have about 30 million won left.</p>
-<p>Since an event where the bodyguard attached by the Shin-gang Group Chairman betrays her happens at the beginning of the semester, she had to hire a private bodyguard if her combat power was weak. I told Han Yu-gyeong-ssi to prepare for that by hiring a bodyguard separately for three months.</p>
-<p>"Then, would you like to invest about 10 million won of the remaining 30 million won in a stock I recommend? You'll be able to make quite a bit of money around summer vacation."</p>
-<p>-Really? I'll invest unconditionally if you recommend it.</p>
-<p>Isn't she trusting me too blindly? It was a bit burdensome, but it's good because I can save time persuading her to invest in stocks out of the blue.</p>
-<p>"Put about 10 million won into Health Miracle on NASDAQ. I'll let you know when to sell later."</p>
-<p>-Okay, just a moment.... Done!</p>
-<p>"Did you buy it?"</p>
-<p>-Yeah! I put in 30 million won!</p>
-<p>I clearly told her to put in only 10 million won, but Han Yu-gyeong-ssi, as if listening to me was proving her loyalty, put in all the money she had. It's such a penny stock that the stock graph fluctuates quite a bit even though she only bought 30 million won worth of shares.</p>
-<p>"I told you to put in only 10 million won. What are you going to do about living expenses?"</p>
-<p>-I can get it from my parents. They'll give me an allowance since I helped them return to the family anyway.</p>
-<p>How cool. Well, even in the game, if you really didn't have money, you could talk to your parents and get money. Now that the stock recommendation, which was the original goal, was over, I talked about this and that with Han Yu-gyeong-ssi. The OT was said to be in Chuncheon for three days, Friday, Saturday, and Sunday.</p>
-<p>-Yong-tae-ya, I miss you.</p>
-<p>"Then come visit me the week after next. Come on Friday's flight and play like the OT from Friday to Sunday."</p>
-<p>I wanted to see Han Yu-gyeong-ssi too. Anyway, this week is Han Yu-gyeong's college OT, and I had a company dinner on Friday and a date with Arisu from Saturday evening to Sunday. Looking at it like this, I'm a really busy guy?</p>
-<p>-Really? Will you meet me if I go to Japan?</p>
-<p>"Of course~! Why wouldn't I meet you."</p>
-<p>-Heu-heung, okay. Then see you the week after next Friday~!</p>
-<p>"Okay, let's hang up now. You go back to studying, and I'll review the work I learned today."</p>
-<p>Actually, there wasn't much work I learned today, but I just decided to hang up because I had to pee.</p>
-<p>-Okay, let's talk again next time!</p>
-<p>After hanging up and going to the bathroom, a KakaoTalk message from Han Yu-gyeong-ssi had arrived.</p>
-<p>Fighting! And she sent me a picture of herself lifting up the black t-shirt she was wearing and exposing her breasts. Oh shit, I really feel energized.</p>
-<p>###</p>
-<p>"Baka! Baka yarou!"</p>
-<p>Kurakake Kuma cursed. He couldn't forgive the impudent newbie. He must be acting up because he trusts the Taira name, but the Taira name is only meaningful when it's the direct line. Kurakake Kuma, who had memorized the family tree from Taira Danjo-sama, didn't see the name Taira Ryuta. Of course, he wasn't intimidated because he knew the newbie was from a collateral line.</p>
-<p>The Taira family is a place that only works for the Chairman, so even Ichiro, the eldest son of the direct line, hasn't properly established himself yet. But a collateral line? He might be able to get into the company through a parachute, but that's it. The Taira family is a place that treats collateral lines more carelessly than any other family. There are hardly any collateral lines left because they like purges so much. If he and a collateral line fight, everyone with a higher position than him will take his side.</p>
-<p>"You stupid bitch, wagging your tail because you're horny just because a slightly handsome guy came...!"</p>
-<p>Mimata Chieri-ssi and Shinoe Misano-ssi were just helping the newbie adapt, but in Kurakake Kuma's eyes, they just seemed to be wagging their tails at the newly arrived handsome Taira family collateral line.</p>
-<p>In fact, Kurakake Kuma was a section chief at Taira Trading, which was one or two levels higher than the Human Resources Development Institute. Kurakake Kuma, who had been good at studying since he was a child but was gloomy and ugly, suffered from women avoiding him. Kurakake Kuma, who had been good at studying from the beginning, entered a leading domestic university and joined the Taira Group, expecting to meet women if he entered a large company.</p>
-<p>But Kurakake Kuma's daily life didn't change. Despite Kurakake Kuma's efforts, women didn't look at him. But one day, Kurakake Kuma discovered a book. It was a manga about a company superior with similar conditions to himself threatening the wife of a subordinate to have a relationship.</p>
-<p>Kurakake Kuma, who saw that manga, gained enlightenment as if lightning had struck his crown. I can have a woman if I do this...! Kurakake Kuma was thirty-nine years old at that time.</p>
-<p>From the beginning, he raped his superior's wife and even took pictures to threaten to tell his superior, making his superior's wife his sex partner, and Kurakake Kuma, who felt that this method worked, continued to assign tasks that were easy to make mistakes to his juniors, causing damage to the company, and then raped his juniors' wives under the pretext of covering it up.</p>
-<p>But if the tail is long, it will be caught. When Kurakake Kuma became a section chief, the incident finally broke out. Fortunately, it wasn't his superior's wife that was caught, but his affair with his junior's wife was exposed. He had to pay about 10 million yen to his junior legally, and he couldn't meet the sex partners he had made up until now because he was worried that other company colleagues would notice.</p>
-<p>In Japanese society, which values face, this kind of thing would require him to submit his resignation immediately, but Kurakake Kuma was an animal who didn't know anything about face. Kurakake Kuma, who continued to endure in that position, was eventually demoted to the Human Resources Development Institute.</p>
-<p>When he was demoted, he was threatened by his superior, who knew that he had slept with his wife, that if he played with his dick recklessly there, he would hire a yakuza to kill him, and he was quiet for two months. But there was no way that Kurakake Kuma, who had a strong sexual desire, could endure with just threats. Just as he was about to start acting, Taira Ryuta, a newbie, joined the company.</p>
-<p>For two months, he had been intimidating his subordinates with his age and the position of deputy team leader, gradually creating a favorable atmosphere for himself, but the arrival of Taira Ryuta created a slight crack.</p>
-<p>"Heh heh.... Yeah, he's just a new employee. A new employee's influence can't stop me."</p>
-<p>Kurakake Kuma rather took the arrival of the newbie as an opportunity and decided to carry out a major event at this company dinner. The target is....</p>
+<p>Kuriyamada Kirie became the deputy person in charge of this operation. The person in charge was Okushiba Kyujiro, the number three man of Jinildang. In the underworld, he was a celebrity known as Kyuji of Hell.</p>
+<p>Kuriyamada Kirie realized that although she was called the number two of Jinildang, she was just a young woman with no achievements yet, seeing that Okushiba Kyujiro had become the person in charge, surpassing her.</p>
+<p>But she didn't despair because of it. This time she's the deputy, but if she does well in this case, maybe she can become the person in charge in the next or the one after that. Kuriyamada Kirie thought that all she lacked was experience.</p>
+<p>So, in order to successfully complete this operation, she had been scouting the area for several days. In particular, to prevent the tennis court warehouse where the bomb was hidden from being exposed, she hacked the phone of the tennis court manager and contacted the teams using the tennis court to inform them that tennis would be unavailable for a few days, and she was scouting the tennis court whenever she had time.</p>
+<p>"What is that?"</p>
+<p>Kuriyamada Kirie saw a glamorous glasses beauty and a man going to the tennis court. Seeing them opening the tennis court office with a key, they seemed to be related to the tennis court.</p>
+<p>Kuriyamada Kirie muffled her footsteps and slowly approached the window where the office was visible. And she listened to what the two men and women were saying.</p>
+<p>"Please wear your tennis clothes next time."</p>
+<p>"Hehe~ You want to see me in my tennis clothes?"</p>
+<p>'Wh-wh-what are they saying!'</p>
+<p>Although her father was a terrorist, Kuriyamada Kirie, who had lived like a maiden in the Kuriyamada family, which was a family with a long history, was shocked to see a man and woman having a secret meeting in the tennis office. She valued her own chastity because she was thinking of giving her first time to the Japanese imperial family.</p>
+<p>Since she was a child, she had never seen or heard such(?) negative things. But today, she saw that negative thing. Kuriyamada Kirie almost took out the 20-centimeter-long small sword she was wearing on her thigh without realizing it.</p>
+<p>'Keueut! I can't make a fuss yet.'</p>
+<p>With her skills, killing the two people inside would be easier than flipping her hand. But in this mentally shocked situation, there was a one in ten thousand chance that she could make a mistake. If she made a mistake and made a fuss, the operation she had prepared so hard for could fail in vain. Then she wouldn't be able to become the person in charge she had been thinking about next time.</p>
+<p>'My sword is crying... I have to endure it.'</p>
+<p>Kuriyamada Kirie bit her lip. Suddenly, the glasses woman leaves the office. Is it over with that? Feeling a little disappointed, she watched where the glasses woman was going, and she entered the tennis court shower room. And after a while, Kuriyamada Kirie couldn't help but be very surprised again.</p>
+<p>'Wh-wh-what is this! How lewd!!'</p>
+<p>The glasses woman was changing into tennis clothes and coming to the office. She was wearing a tight polo shirt, so her ridiculously large breasts were bouncing, and the barely short tennis skirt was revealing her plump thighs as they were.</p>
+<p>The woman who entered the office was showing the man her tennis posture. Her breasts bounce up and down, and the man nods along. As the glasses woman's tennis demonstration became rougher, the tennis skirt fluttered more and more, and there was no piece of cloth inside. This lewd glasses woman came without panties. Kuriyamada Kirie found the sight so obscene.</p>
+<p>"Ooh...!"</p>
+<p>"How is it, are you horny?"</p>
+<p>Even the way she spoke was lewd. Horny... Kuriyamada Kirie, who grew up as a maiden, heard such a lewd word for the first time in her life.</p>
+<p>"Don't even think about taking off your tennis clothes while we have sex today."</p>
+<p>The man took off his clothes as if he was frustrated. Although she didn't want to, Kuriyamada Kirie admired the man's body. Until now, she had seen many men's bare upper bodies while practicing swordsmanship, because their clothes were cut by the sword, but she had never seen an upper body as well-trained as that man's. And... it was a word that didn't suit the man, but he had a sexy body.</p>
+<p>However, while she was admiring him, she missed the moment when the man took off his pants. When she checked inside the office again, the man was showing off his angry... penis in front of the glasses woman's nose. Kuriyamada Kirie covered her mouth without realizing it. And that was fortunate. If she hadn't covered her mouth, she would have screamed.</p>
+<p>It was the first time she had seen an erect man's cock. Ah! So that's what it looks like. It was a shape that was somehow grotesque but attracted by a woman's instinct. An attractive shape! Kuriyamada Kirie shook her head to erase the obscene thoughts. If she wasn't worried about being caught by those two, she would have slapped her cheeks with both hands.</p>
+<p>The woman looked at the man's penis with a dazed look and began to lick it diligently with her tongue. It was like a child licking an ice cream after playing in the hot sun for a long time. Seeing that, Kuriyamada Kirie thought to herself, without realizing it, is it that delicious?</p>
+<p>"Ehm...."</p>
+<p>"Hureup, chureup...! Dyoa?"</p>
+<p>"Yes! It's so good!"</p>
+<p>At the man's words, the woman put his penis in her mouth and moved it back and forth quickly. How long had it been? The man, who had reached his climax, grabbed the woman's hair and put it all the way into her throat. Seeing the man's penis swelling and shrinking repeatedly, Kuriyamada Kirie's heart beat in time with the throbbing of that penis.</p>
+<p>'You can eat baby-ssi too?'</p>
+<p>Every scene that happened here was a culture shock to Kuriyamada Kirie.</p>
+<p>"Now do it for me too."</p>
+<p>The glasses woman lifted her tennis skirt and leaned against the office desk, raising her butt. The man put his nose on the woman's butt without hesitation and licked the woman's precious place. Chureureup! Chureureup!! Lewd sounds echoed in the office.</p>
+<p>"Haaak! Heuaaang!"</p>
+<p>The woman's moans were as lewd as the man's lewd sucking sounds. Kuriyamada Kirie thought to herself, bu, blasphemous! But she couldn't take her eyes off the two's love scene.</p>
+<p>The man, thinking that the woman was heated up enough, aimed his penis at the woman's back and pushed it into the woman's precious part.</p>
+<p>'How can they do it from behind like animals...! The s-sex I thought of isn't like this!'</p>
+<p>Kuriyamada Kirie would be the only college student in Japan, the paradise of porn, who would be making such a fuss about a simple doggy style.</p>
+<p>"Haaang, it's delicious even if I eat it every day!"</p>
+<p>"Is it more delicious than your husband?"</p>
+<p>"It's been so long that I don't even remember...! Haeueueuk!"</p>
+<p>'Oh my god! She was a married woman with a husband?'</p>
+<p>Kuriyamada Kirie was very surprised. That woman was a thousand miles away from the good wife and wise mother she wanted to be. A lewd body, a lewd expression, and even a lewd mind....</p>
+<p>"Haaang! Haaang! Ah!"</p>
+<p>Despite being so shocked, Kuriyamada Kirie couldn't take her eyes off the adulterous couple's lovemaking scene. That scene was like... like a vortex. A vortex that draws her gaze.</p>
+<p>Watching the man's hip movements, one of her hands unknowingly went between her legs. Before she knew it, she saw the man himself rather than the hip movements. If she had only seen him as a terrorist target until now, now she saw the man as a 'person' for the first time.</p>
+<p>He was a handsome man. So that big-breasted glasses woman must be clinging to him. If I were treated like that woman, would I be able to moan so pleasantly? This... is definitely not a lewd thought. It's a rehearsal for my future husband-nim, a rehearsal. Kuriyamada Kirie justified herself and continued to watch the two men and women's lovemaking scene.</p>
+<p>The two were already running towards the goal of climax as if they were racing. With an accelerating speed that no one could stop!</p>
+<p>"Heueok! Heok! Eueheoheok!"</p>
+<p>The glasses woman's moans soon became similar to those of a beast. The man also exhaled rough breaths in response. It gradually became faster, and before she knew it, she stuck her butt tightly to the woman's butt. The glasses woman arched her back like a bow and made a loud noise, Haaang!! and rolled her eyes. And she leaned her body against the office desk as if she had lost her strength.</p>
+<p>When the man pulled out his penis, a white liquid fell to the office floor with a thud.</p>
+<p>"Heueueu.... Strangely, yours is hot, so it feels good."</p>
+<p>"Is that so? I didn't know semen temperature was important."</p>
+<p>It seems to be over now. Kuriyamada Kirie was about to leave her seat. She felt strange. Her hands also felt somehow wet.</p>
+<p>"Now do it with my breasts."</p>
+<p>"Hehe.... Have you already recovered?"</p>
+<p>Huh? What are they going to do with breasts? Kuriyamada Kirie, who was about to leave her seat, stuck to the window again. Kuriyamada Kirie was able to leave her seat only after an hour had passed.</p>

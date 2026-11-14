@@ -5,71 +5,100 @@ weight = 704
 chapter = 704
 +++
 
-<p>"What about Kokoro-gomo's side?"</p>
-<p>"There haven't been any particular movements, but the department store that Taira Kokoro-ssi is in charge of is doing quite well this time. It is said that they achieved 1.5 times the sales of last year by November."</p>
-<p>Taira Kokoro was in charge of Taira Entertainment, Taira Department Store, and cosmetics, etc., and as Asada Ei's report shows, Taira Department Store was doing well, so her management skills were outstanding enough to be able to participate in the succession war. It meant that she was not someone to be ignored just because she was the president of an entertainment company.</p>
-<p>"The most important thing... What about Ichiro?"</p>
-<p>"Ichiro's side has such excellent security that it seems that our agents need more training. However, if we check external information, there is a story that Taira Technical Research Institute, which Ichiro is in charge of, has entered into the development of several new technologies."</p>
-<p>Technology... What kind of technology are they developing? For now, I nodded and moved on. However, as Asada Ei said, it seemed necessary to improve the skills of the agents further.</p>
-<p>I understand that there is a shortage of high-level agents because Joseodang has not been established for very long, but if I want to wage a succession war in the Taira Group, I need to know information about Ichiro's side, so I thought I should strengthen that side.</p>
-<p>"Joseodang has not been created for very long, but make sure to increase the training level of the agents."</p>
-<p>"I understand. Agents with aptitude are receiving shikigami training from the onmyoji dispatched from the Naruse family, so the quality of information will soon improve."</p>
-<p>It wasn't like pressing a skill transfer button like in a game and immediately acquiring the skill! It took some time to teach, learn, and master the skill, so it took a basic amount of time for all groups to increase their skills.</p>
-<p>Of course, if you needed to shorten the time, there were ways to invest more money or absorb existing forces, but it was difficult to obtain a good information team.</p>
-<p>If it was Korea, the main stage of the game, there were several candidates, so I recommended several information teams to Han Yu-gyeong, but there was not much information about Japan, so I had no choice but to continue to grow Joseodang under me. Joseodang itself has pretty good intelligence capabilities.</p>
-<p>"Okay. Let's move on from the Taira's trends, is there any other information to report?"</p>
-<p>"There are no other major peculiarities. Instead, I have compiled the Japanese political situation report and the world political situation report and sent them to Ryuta-nim's email."</p>
-<p>Political situation report... I have more to read. I can read this later, so the information report for today is over.</p>
-<p>To roughly reconfirm the information I obtained today, Takakusaki Gengo was from the Japanese government's assassination unit, he met Takakusaki Athena during that assassination mission, and Taira Jiro is likely to be connected to me as he takes over Taira Steel again.</p>
-<p>I had already talked to Taira Danjo, and Nagumo Sian, who can be said to be an elder of the Taira Group, owned some shares in Hatake Mining, so the possibility of choosing to attack was low. They will try to cooperate and receive mithril at a lower price.</p>
-<p>I can't negotiate this directly while working as a teacher, so I'll have to leave it to my mother, Jinmija Yeosa. Of course, if Taira Jiro meets Jinmija Yeosa, he will find out that I own Hatake Mining, but since Hatake Investment Company, the parent company of Hatake Mining, is located in Japan, I couldn't hide it forever, and I didn't intend to hide it, so I decided to accept it.</p>
-<p>"Ah, this time, the head of the Taira Miyashi information team died. Gocho Kikuhito... They say it was suicide, but I don't think so. Talk to Sakagami later and do a thorough investigation. Something keeps bothering me."</p>
-<p>"I understand, Ryuta-nim."</p>
-<p>When I was about to finish the information meeting, I suddenly remembered the suicide of Gocho Kikuhito, which made me feel uneasy, so I ordered Asada Ei to investigate.</p>
-<p>In fact, investigating Taira's information team directly under the Chairman of the Taira Group is more difficult than investigating Taira Ichiro, but Sakagami Rena is dispatched for this kind of detailed investigation, so she will be able to find out what is going on.</p>
-<p>"The Taira information team headquarters will probably be stirring up the suicide case, so it might be easier to obtain information if you secretly follow them."</p>
-<p>I had already reported to my first secretary, Fumimoto Takayuki, that it was suspicious, so the elite members of the information team will start investigating again. I told them in advance because it would be easier to collect information if I used that.</p>
-<p>Also, I was telling them not to get caught because they might run into the Taira information team if they went out and investigated unnecessarily.</p>
-<p>"I understand. Sakagami-ssi is there, so I'm sure we'll be able to investigate well this time."</p>
-<p>"And Asada Ei-ssi and Asada Fukushi-ssi, please recommend a few people who are trustworthy Self-Defense Force officer graduates."</p>
-<p>"Can I know what kind of personnel you will use them for? If you tell me, I will recommend someone who is suitable."</p>
-<p>"You know I created a new PMC, right? I think I should start filling the ranks soon, so I'm going to start recruiting from the executives."</p>
-<p>This time, I had to gradually build up the PMC Kōtetsubutai (鋼鉄部隊: Steel Corps) under my name, so I asked Asada Ei and Asada Fukushi, who had connections with the Self-Defense Forces, to introduce me to people who could serve as reliable executives.</p>
-<p>I could recruit as many combatants as I wanted, but the executives had to be good. Of course, it was a PMC under the name of Yamashiro Ryuta, not Taira Ryuta, so I didn't intend to make it the best PMC, but it had to be above a certain standard to be useful, so I didn't intend to make it a ragtag group.</p>
-<p>So, I was thinking of recruiting Self-Defense Force graduates as executives who could guarantee a certain level of reliability. And if it was a recommendation from Asada Ei, who owed me a great debt, or Asada Ei's father, Asada Fukushi, I could trust them even more.</p>
-<p>"I will discuss it with my father and recommend someone who is trustworthy and has high combat power."</p>
-<p>"Yes, please."</p>
-<p>At this point, it could be said that I had achieved all the purposes of meeting Asada Ei today. Then, shall we end the meeting soon...</p>
-<p>"Then let's end the information report here today. Thank you for your hard work, and I look forward to working with you in the future."</p>
-<p>"Um...."</p>
-<p>As I greeted her and showed signs of returning, Asada Ei opened her mouth and hesitated for a moment. Does she have something else to say to me?</p>
-<p>"Don't hesitate and tell me. Ei-ssi is qualified to do so."</p>
-<p>In fact, she is one of the three heads of Joseodang, but the other two are students, so Asada Ei is currently in charge of almost everything, so she is the most important figure among my staff. It would be good to listen to any suggestions she has.</p>
-<p>"Then I will speak. I would like to have a cup of tea with Ryuta-nim."</p>
-<p>"Yes? Why?"</p>
-<p>I was nervous and listening intently, thinking it was a suggestion about a mission, but she asked me to have a cup of tea... It was such an unexpected request that I couldn't help but ask a stupid question like, "Why?"</p>
-<p>"Ryuta-nim stopped my father from selling drugs and is also my benefactor who saved me. If Ryuta-nim doesn't dislike me, I would like to become closer to you."</p>
-<p>Asada Ei gave a straightforward answer that she wanted to become closer to me, like a soldier. Hmm... I certainly haven't done any special friendship activities with Asada Ei. I appointed her as an executive of Joseodang after meeting her twice, and I haven't met her separately since then.</p>
-<p>It could be said that she has a high level of loyalty because she owes me a debt, but her intimacy is not high. Then I should definitely fix it. Both intimacy and loyalty should be high.</p>
-<p>"Sure. Shall we go to a cafe right away?"</p>
-<p>"Oh...! Sensei~"</p>
-<p>"If Rena were here, she would have said, 'You are indeed a hero, my lord!'"</p>
-<p>When I said let's go to a cafe, Otagi Yuka and Saionji Diana next to me said to me with a feeling of, "Oh~ You're popular~?" Ei... There's no way she'd like me and want to get closer to me after only meeting me for a short time, right?</p>
-<p>I glanced at Asada Ei while listening to the teasing students, and she still had the same cold expression. As expected, she didn't show any signs of liking me at all.</p>
-<p>"Alik wants to go to the cafe too...! Alik wants to eat parfait."</p>
-<p>"Shiyo wants to go to the cafe with you too! It's definitely not because I don't want to leave Sensei alone with a girl one-on-one!"</p>
-<p>Alik, who had been listening quietly, said that she wanted to eat parfait and would go with us, and Naruse Shiyo, who had a slightly scary expression for some reason, asked me to take her with me.</p>
-<p>"Then shall we all go to the cafe together?"</p>
-<p>Because of Alik and Naruse Shiyo's words, we ended up going to the cafe together. Asada Ei also smiled slightly, showing a rare smile. As expected, even a snow woman with a cold concept is prettier when she smiles.</p>
-<p>"I also wanted to get to know the rest of you."</p>
-<p>Hearing this, it became clear that she purely wanted to get to know me. It seemed like Otagi Yuka and Saionji Diana were teasing me for no reason.</p>
-<p>"Then let's go out since the information report is over."</p>
-<p>"I will clean up the office first."</p>
-<p>At my words, Asada Ei ordered the Joseodang agents to release all the equipment and start erasing the traces. She was quite fast as she was used to this kind of work, and we were able to go to the cafe right away without waiting long.</p>
-<p>"I thought something like this might happen today, so I have a cafe in mind that I looked at in advance."</p>
-<p>When the Joseodang agents disappeared with their luggage, Asada Ei's cold attitude, which she had shown until now, was nowhere to be seen, and she showed a mix of tension and excitement, as if she were a student with few friends inviting a classmate.</p>
-<p>Perhaps because she was a snow woman, she couldn't go outside, so she missed the warmth of people. She even looked up places like this cafe in advance. You shouldn't easily sympathize with people, but I couldn't help but feel sorry for her.</p>
-<p>__________</p>
-<p>There were quite a few people who said they didn't know Vivian Taylor, so I remade it in the old illustration style~!</p>
-<p>The model was unstable, so I changed it to a new model to create the illustration, but it seems like you recognized it even less ㅠㅠ</p>
-<p>To explain, Vivian Taylor is the one who will become the owner of Mother Mars, one of the five major megacorps in the future United States. Vivian Taylor's main stage is Mars, as the name Mother Mars suggests.</p>
+<p>"By the way, how are we going to get the combat gear on the plane?"</p>
+<p>After finishing my meal, I asked Han Yu-gyeong while watching the Vanguard agents, who had arrived at TG Tech headquarters, put various pieces of equipment into large synthetic plastic boxes.</p>
+<p>"Am-sang has a paper company that imports TG Tech weapons, so we're going to ship them as airplane cargo. While Yong-tae-ssi was making a contract with Taron, Eve and I were preparing the import and export documents."</p>
+<p>When I gave her a look that seemed to say, 'Is that even possible?', Han Yu-gyeong smiled and continued.</p>
+<p>"It might be pretty difficult in places like the United States, Korea, or Japan, but in countries like China or South America, there's nothing you can't do with money. We've already sent money to China, so there shouldn't be any major problems."</p>
+<p>"Well, yeah, money solves everything...."</p>
+<p>Maybe it's because I'm a Possessor, but in some ways, I still haven't shaken off the sensibilities of the 2020s. Bringing in weapons was nothing in the 2050s. I was making things difficult by overthinking something that could be solved with money.</p>
+<p>"When Lara-ssi goes on business trips, she usually procures things locally instead of using documents, but if it's confirmed that the enemy is the Red Revolution Front, it's better to use our familiar weapons. There's also the issue of combat power."</p>
+<p>"I didn't really think about it since I don't have any equipment."</p>
+<p>The only equipment I had was the black bracelet that could turn me into Black Knight. So, I didn't really think much about the equipment used by other combatants. I need to be a little more meticulous in the future. Of course, even if I don't think about it, my secretary, Mimata Chieri, will do a good job, but there might be situations where I can't get Mimata Chieri's help, so I need to think more broadly.</p>
+<p>"Preparation is complete."</p>
+<p>While we were talking about equipment, I Yeon-ju approached and reported to Han Yu-gyeong.</p>
+<p>I Yeon-ju struggled quite a bit in the previous battle against Jeon Yong-cheol, the boss of the Yongcheol gang, but I heard that TG Tech's energy weapons have greatly increased her combat power, so I had high expectations for this battle. According to I Yeon-ju, she's now at a level where she wouldn't be pushed back even if she fought Jeon Yong-cheol one-on-one, and it seemed like I would be able to confirm that in this battle.</p>
+<p>"The vehicle is ready, so let's leave right away."</p>
+<p>"Yes."</p>
+<p>After hearing Han Yu-gyeong's response, I Yeon-ju gestured to the Vanguard combatants. The Vanguard combatants quickly picked up the synthetic plastic boxes containing the equipment and went down to the underground parking lot where the transport vehicle was parked.</p>
+<p>I, Han Yu-gyeong, and I Yeon-ju also went down to the underground and got into the transport vehicle carrying the troops heading to China.</p>
+<p>"Dickson, thanks for your hard work today too."</p>
+<p>"Of course. It's about rescuing a comrade."</p>
+<p>The driver was Dickson. It seemed like Dickson was behind the wheel because we needed someone to drive when Han Yu-gyeong returned to TG Tech after sending us off.</p>
+<p>Dickson is also affiliated with Vanguard, so he seemed to want the Vanguard agents to return safely.</p>
+<p>"Be careful, Yong-tae-ya."</p>
+<p>"Don't worry. Have I ever been hurt?"</p>
+<p>When we arrived at the airport, Han Yu-gyeong hugged me with a worried expression and said that, so I reassured her.</p>
+<p>In fact, I had been thinking about catching the leader of the Red Revolution Front and receiving the bounty, so now that things had turned out this way, I was planning to take care of the leader of the Red Revolution Front while rescuing Lara Sinclair.</p>
+<p>I've also become stronger now, so a mere terrorist group couldn't stop me. I left the worried Han Yu-gyeong behind and boarded the plane with I Yeon-ju and her troops.</p>
+<p>###</p>
+<p>One day before.</p>
+<p>Lara Sinclair's group, who had opened the door and entered the ruins of the Jeonrang Research Institute, flinched slightly at the explosion heard from afar.</p>
+<p>It seemed that the vehicle of Jang Wei, the guide who had taken them to the front of the research institute ruins, had been hit by something and exploded. They knew they would be attacked, but they were a little surprised that there would be such a loud explosion.</p>
+<p>"It seems like someone is definitely in this area."</p>
+<p>The head of the escort team said quietly, shouldering his rifle and surveying the surroundings.</p>
+<p>"S-shouldn't we not keep standing at the entrance?"</p>
+<p>One of the two researchers who came with Lara Sinclair asked, stuttering. He seemed quite nervous, thinking that an unexpected battle was waiting for them.</p>
+<p>Of course, they weren't ordinary researchers, but researchers from a defense company, so they knew the basics of how to use firearms, and both of them were carrying pistols to protect themselves.</p>
+<p>"If they attacked us here, we could all run back through the door we just came in, so they won't think about attacking here. They'll try to lure us in further."</p>
+<p>"Positive, so we need to eliminate as many threats as possible before we go in."</p>
+<p>Lara Sinclair answered and suddenly aimed her anti-materiel sniper rifle at one spot and fired immediately.</p>
+<p>Taang!</p>
+<p>With a tremendous noise, the head of the sniper who was aiming at Lara Sinclair's group from afar was blown to pieces.</p>
+<p>"Thermal imaging confirms that there are no people in that building. Run."</p>
+<p>An ordinary person wouldn't even dare to shoot while standing because of the tremendous recoil, but Lara Sinclair was an android.</p>
+<p>With a strong mithril alloy skeleton and artificial muscle fibers with tremendous density, she was able to withstand the recoil of the anti-materiel sniper rifle and calmly check the infiltration route.</p>
+<p>Everyone started running at Lara Sinclair's words. Perhaps because they were sure that they had eliminated the sniper, bullets started flying from the surrounding buildings.</p>
+<p>Lara Sinclair responded by firing back with her anti-materiel sniper rifle, blowing up the heads and torsos of the enemies firing from inside the buildings.</p>
+<p>Click...!</p>
+<p>Lara Sinclair's group, who had hurriedly opened the door and entered, were lucky enough that no one had died. One of the escort troops had been grazed by a bullet in the arm and injured, but it wasn't a serious injury.</p>
+<p>As Lara Sinclair said, the building was empty. Judging from the fact that it was next to the guard post, it seemed to be a place where the guards' weapons were stored, but there were no weapons there now. There were only weapon racks and empty cartridge cases rolling around.</p>
+<p>"This building is only safe for less than a minute. I'll explain quickly."</p>
+<p>Lara Sinclair said, unfolding a map of the Jeonrang Research Institute on the floor. Lara Sinclair, who had determined the infiltration route with the android's tremendous computing power, pointed to one spot on the map.</p>
+<p>"This is the entrance building of the research institute. And this is the building we're in. The distance isn't that far in a straight line, but there are several obstacles. I'll lead the way on the optimal route, so I hope you'll follow quickly."</p>
+<p>"I'll take responsibility for the rear."</p>
+<p>The deputy leader of the escort team said at Lara Sinclair's words. It was the most dangerous mission after Lara Sinclair, who was clearing the way, but he volunteered without hesitation. The team leader had to protect Lara Sinclair, who was the most important person, so he thought that the only person who could protect the rear was the deputy leader.</p>
+<p>"Okay. Let's go right away."</p>
+<p>Lara Sinclair nodded once, took the map, opened the door of the building again, and immediately fired her pistol with the hand that wasn't holding the anti-materiel sniper rifle.</p>
+<p>Tang! Tang! Tang!</p>
+<p>Lara Sinclair, who had instantly put holes in the foreheads of three enemies who were trying to enter the building, turned her body and entered between the buildings as she had said in advance, as if nothing had happened.</p>
+<p>Tang!</p>
+<p>Lara Sinclair fired again at one enemy who was coming out of the guard post and knocked him down, moving without any change in speed, as if she didn't even feel that she had fired. It was a natural shot as if she had planned it in advance.</p>
+<p>Damn it (他妈的: Shibal)!</p>
+<p>"Chūsī (去死: Go die)!"</p>
+<p>"Go die!"</p>
+<p>The enemies inside the research institute weren't just taking it either. Almost dozens of unidentified soldiers came out in droves and sprayed bullets with curses.</p>
+<p>Lara Sinclair calmly pointed to the cover, and the group ran along the path where the bullets were least exposed and hid behind the cover.</p>
+<p>"While I draw their attention, please snipe the person holding that RPG-7."</p>
+<p>Lara Sinclair said to the agent with the sniper rifle among the escort agents hiding behind the cover and ran first to draw their attention.</p>
+<p>Tang! Tang! Tang! Tang!</p>
+<p>Lara Sinclair skillfully ran and drew the enemies' attention, but she couldn't help but get hit by bullets. However, the enemies' bullets couldn't penetrate Lara Sinclair's artificial muscle fibers.</p>
+<p>While Lara Sinclair was stalling for time, the escort agents got up from behind the cover and sniped the enemy holding the RPG-7 that Lara Sinclair had requested, along with covering fire.</p>
+<p>"I'll provide cover, so come this way."</p>
+<p>When Lara Sinclair's shooting started, everyone started running. But no matter how great Lara Sinclair's combat power was, she couldn't stop all the enemies in a short amount of time. In the end, someone was hit by a stray bullet while running.</p>
+<p>"Don't worry about me, just go! Uwaaaa!"</p>
+<p>Tutatatata!</p>
+<p>The person who was hit by the bullet was one of the escort agents. The fallen escort agent told them not to worry about him and started firing his gun wildly with a scream.</p>
+<p>"Don't let his sacrifice be in vain, run."</p>
+<p>It sounded like a cold-hearted thing to say, but it was logical, so everyone ran following Lara Sinclair's words. As a result of running so hard, they were able to arrive at the entrance of the laboratory without any sacrifices.</p>
+<p>"It will take about 5 seconds to hack. Please shoot at the approaching enemies."</p>
+<p>Fortunately, the security device of the laboratory was digital rather than an analog key type, so Lara Sinclair was able to connect and hack it.</p>
+<p>5 seconds was a short time, but it was also a long time. It was enough time for bullets to fly and kill one or two people. The escort agents shot hard, but one person was shot and fell. At the same time as one person fell, scattering blood, the door opened.</p>
+<p>"Go in quickly."</p>
+<p>One person had fallen, but everyone quickly entered the laboratory building without looking back, perhaps because of their survival instincts. When the escort unit leader, who had decided to take responsibility for the rear, entered last, Lara Sinclair closed the door and manipulated the digital panel on the door.</p>
+<p>Tung! Tung! Tung!</p>
+<p>As befitting a laboratory that researches combat equipment, bullets hit the walls and doors, but they only made a heavy sound and didn't penetrate. Lara Sinclair completed the manipulation of the digital panel on the laboratory door and looked around, opening her mouth.</p>
+<p>"I've changed the password, so it will take them some time to follow. Let's go."</p>
+<p>Lara Sinclair still had her usual emotionless expression, but she was feeling a considerable threat.</p>
+<p>She had tried to make an emergency call via satellite communication, but the satellite communication was down, and although she didn't know it at the entrance, she could infer that a considerable number of troops were hiding in this abandoned research institute by entering the research institute site and grasping the surrounding traces.</p>
+<p>Moreover, she had already lost two troops just by entering the research institute, so it was not a good situation.</p>
+<p>'I should prioritize survival over obtaining data.'</p>
+<p>Because the situation had become unfavorable, Lara Sinclair changed her top priority from data collection to survival.</p>
+<p>"If we can avoid combat and just move... we can last for a few days. TG Tech's rescue team will come, so let's try to survive."</p>
+<p>Lara Sinclair's group, who had been thinking that they might die, were in a small despair.</p>
+<p>But everyone's eyes started to light up at Lara Sinclair's words, which gave them hope that they could survive.</p>
+<p>______</p>
+<p>Lara Sinclair!</p>
+<p>The old model for making Lara Sinclair was unstable, so I made a new model~!!</p>
+<p>For some reason, when I practice with the new model, I want to dress her in a swimsuit hehe.</p>
+<p>IF Story: Lara Sinclair infiltrates a casino to help TG Tech, which is in financial trouble hehehe.</p>

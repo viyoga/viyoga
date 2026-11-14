@@ -5,100 +5,82 @@ weight = 785
 chapter = 785
 +++
 
-<p>"Darling, you can cum inside me as much as you want today♥"</p>
-<p>Minamoto Risa's Words shook my Whispering Ear. Honestly, after getting out of the Taxi, we were going to go to our regular date spot, the PC cafe, but that wouldn't do. After hearing those Words, I couldn't possibly go to a PC cafe.</p>
-<p>Of course, we could have sex even at a PC cafe, but I couldn't possibly defile the Young Lady of the Minamoto family in a poorly soundproofed PC cafe. So, the only place left to go was a hotel.</p>
-<p>I immediately booked a hotel on my phone. It was a busy Weekend with many customers, and a same-day Reservation made it difficult to find a Hotel Room, but the highest-grade rooms always had availability. After reserving a rather appealing Hotel Suite Room, we soon arrived back in Miyashi.</p>
-<p>After getting out of the Taxi, we immediately entered the reserved hotel. Once inside the Hotel Suite Room, I leaned into Minamoto Risa's Whispering Ear and spoke, just as she had spoken to me.</p>
-<p>"I... actually bought two gifts."</p>
-<p>"Hm?"</p>
-<p>When I repeated exactly what Minamoto Risa had just said, Minamoto Risa made an Expression that seemed to say, 'Oh, you too?' I smiled faintly and pulled out the cat-shaped, hole-punched underwear set I had bought from the Bag.</p>
-<p>"Darling...!"</p>
-<p>Minamoto Risa saw the cat underwear, and her Face flushed red, as she was about to say something to me. I didn't want to hear any nagging, so I immediately continued speaking.</p>
-<p>"I haven't used my Wish ticket yet, have I?"</p>
-<p>"Then, were you talking about the Wish ticket earlier because of this Erotic underwear?"</p>
-<p>Sharp as ever, I see. To figure out my Intention so quickly.</p>
-<p>"About half? The other half was genuinely to grant Lisa's Request."</p>
-<p>"Hmph.... So, what exactly is your wish?"</p>
-<p>At my Answer, Minamoto Risa half-endured her rising anger and asked me what I wanted.</p>
-<p>"Wear the Clothes(?) I gave you, and add 'nyang' to the end of every sentence while acting cute."</p>
-<p>"...."</p>
-<p>At my Request, Minamoto Risa was silent for a moment. Then, she opened her mouth again.</p>
-<p>"...Pervert."</p>
-<p>I had heard 'Pervert' earlier, but this time, the 'Pervert' felt like half a teaspoon of Contempt had been added. ...Even better, actually?</p>
-<p>"Fine.... I understand. Since you granted my wish, I'll concede this time. Sit on the sofa here and wait. I'll go change in the Bedroom."</p>
-<p>In the end, it was Minamoto Risa who yielded. With a slight Sigh, Minamoto Risa told me to wait and entered the largest room, the Bedroom.</p>
-<p>I sat in the Hotel Suite Room's living room, waiting for Minamoto Risa to emerge. I considered watching TV, but thinking about Minamoto Risa changing Clothes with a Shameful Blush was more entertaining, so I just sat there, chuckling to myself.</p>
-<p>Kki-eek.</p>
-<p>Soon, the Bedroom door opened, and Minamoto Risa emerged.</p>
-<p>"Oh...!"</p>
-<p>Unconsciously, I rose from my Seat and approached Minamoto Risa. Her brown skin contrasted with the white underwear, which had a cat-shaped hole revealing her Cleavage-a captivating design that made me want to lavish Praise on myself for choosing it. In a word, her Appearance was incredibly fitting.</p>
-<p>"H-how is it?"</p>
-<p>Minamoto Risa, her Face deeply flushed and an embarrassed Expression, grabbed my sleeve and asked for my Impression.</p>
-<p>"...It's the best."</p>
-<p>"Then.... Follow me to the Bedroom."</p>
-<p>Her Face was still red with Shameful Blush, but when I said it was the best, she gave a slight Smile and, still holding my sleeve, pulled me into the Bedroom.</p>
-<p>But I didn't give in easily. My wish wasn't merely for Minamoto Risa to wear that underwear.</p>
-<p>"My wish isn't just for you to wear these Clothes; it's also for you to add 'nyang' to the end of every sentence and act cute, isn't it?"</p>
-<p>"Darling, you're usually so lax, but I really hate how strict you are about this kind of thing...!"</p>
-<p>Minamoto Risa, being intelligent, must have deliberately tried to Seduce me with her Appearance to get me to give in. But no chance. When I made a resolute expression, Minamoto Risa let out a 'Kkeueut...!' like a female knight caught by a Goblin, and her Face flushed even deeper.</p>
-<p>"C-come on, let's go to the bed... N-nyaang...."</p>
-<p>She stammered a bit, perhaps from Shameful Blush, but Minamoto Risa spoke to me in a cat-like posture.</p>
-<p>I went to the bed with Minamoto Risa, as she said. Of course, since she had met all my conditions, I had no dissatisfaction this time.</p>
-<p>"Come here, Kitty...!"</p>
-<p>After I sat on the bed, patting my knee, Minamoto Risa, with a humiliated expression, said, 'Nya, nyaang....' and sat on my thigh.</p>
-<p>"Alright, now act cute."</p>
-<p>"...."</p>
-<p>"Come on, come on."</p>
-<p>"Kkeueut...!! Nya, nyaa, nyaaang...!"</p>
-<p>Minamoto Risa, deeply embarrassed, meowed cutely at me. Like a Cat, she meowed and Licked my cheek. Her Appearance, trying so hard, was Cute.</p>
-<p>"Nyaa, nya...! Stroke me too, nya...!"</p>
-<p>Minamoto Risa seemed to have gotten into it, using cat-speech quite well. As she did, her Shameful Blush seemed to fade a little.</p>
-<p>I stroked Minamoto Risa's Head as she requested. Minamoto Risa, embraced on my knee, quietly received my strokes.</p>
-<p>"Cute."</p>
-<p>"I don't know... nyang."</p>
-<p>When I called her Cute, she acted cute, saying 'I don't know~', then belatedly added 'nyang' as if remembering. This Appearance was also Cute.</p>
-<p>"This time, keep the nyang-nyang pose and lie down."</p>
-<p>"Really~ how long are you going to keep this up...?"</p>
-<p>"Just this much."</p>
-<p>Honestly, I figured once sex began, the Pleasure would make her unable to keep adding 'nyang' or maintain the cat pose she was in, so I intended to enjoy this situation to the fullest before that.</p>
-<p>"Alright. C-can I lie down like this... nyang?"</p>
-<p>She lay on the bed, but her Legs were raised, so the Intimate Posture wasn't quite to my liking. So, I grabbed both of Minamoto Risa's knees and spread them, revealing the Posture of Submission I desired. Of course, baring one's belly in submission is a dog's posture, not a cat's, but I still wanted to see this posture.</p>
-<p>It was an Intimate Posture that fully exposed her panties, and the panties themselves seemed to be shaped like a Cat, with two ears sticking out. I had been so focused on her breasts that I hadn't noticed this.</p>
-<p>"Oh? I didn't realize your panties were also cat-shaped?"</p>
-<p>"You bought them without even looking at that?"</p>
-<p>"The hole in the breast was just too impressive...."</p>
-<p>At my Words, Minamoto Risa nodded her Head as if acknowledging it, saying, 'That's true... nyang.' Honestly, I hadn't really looked closely, thinking 'panties are panties,' but cat-shaped ones... it was a pretty Cute Design.</p>
-<p>"Shall we touch our Kitty's belly a bit?"</p>
-<p>"Nyaa, nyaa...♥"</p>
-<p>Now that I had made her do most of the embarrassing things, I intended to start pleasing Minamoto Risa, who had fulfilled my Demands. As I touched Minamoto Risa's firm Abdomen, which had no Belly Fat, my hand subtly moved up to her breasts.</p>
-<p>Naturally, my Goal was the Cleavage hole, shaped like a Cat. When I inserted my finger into it, a exquisite breast pressure squeezed my finger.</p>
-<p>Until now, I had just thought it was an Erotic Design.... But thinking about it, isn't this a Paizuri hole? I unconsciously had a silly thought, then subtly pulled my hand from her Cleavage and kneaded Minamoto Risa's breasts.</p>
-<p>"Nyaha-eung♥ Nyaaang...!"</p>
-<p>I didn't expect her to add 'nyang' even to her moaning sound. At that Appearance, I could no longer maintain my Fading Reason.</p>
-<p>"Lisa, I can't hold back anymore...!"</p>
-<p>Declaring I couldn't hold back, I pressed my Lips to Minamoto Risa's nyaang-ing Lips and began Mating with this Erotic female cat.</p>
-<p>Soon, the Hotel Suite Room in a certain hotel in Miyashi was filled with Lecherous nyaang-ing Whispers of Pleasure.</p>
-<p>A post appeared on a Japanese psychic experience submission bulletin board.</p>
-<p>Title: Witnessed at that famous psychic spot, Minobucho Park in Miyashi, Yamanashi Prefecture!</p>
-<p>This is a story from today, in that very park famous for the appearance of a face-holed, Large Penis, Outdoor Sex ghost a few months ago.</p>
-<p>Honestly, while I enjoy urban legends, I didn't believe in the Existence of ghosts.</p>
-<p>That's why I freely roamed Minobucho Park, which others feared and avoided as a scary place. Crossing the park allowed me to go Home faster.</p>
-<p>The incident happened yesterday, Saturday. I had been on an Outing for a while and entered the rumored park to return Home.</p>
-<p>However, that day, a different Atmosphere than usual was palpable. It was daytime, but there were no people.</p>
-<p>Even with the ominous rumor that ghosts appear in the park, there are always people like me who use the shortcut during the day, but that day, it felt like I was the only person there.</p>
-<p>Moreover, a slight fog had settled, making the Atmosphere even more frightening. I felt something strange but thought, 'It'll be fine,' and soon walked through the park.</p>
-<p>But I should not have thought 'It'll be fine' and should not have entered the park.</p>
-<p>As I walked through the park for a while, I felt something approaching from ahead. At first, I thought, 'The ominous feeling I got from the lack of people must have been my mistake,' and my unknown Sense of Dread diminished.</p>
-<p>But what was approaching was not human.</p>
-<p>What appeared was a blonde man and a blonde woman. Both had faces with black holes, and the woman was walking in empty space.</p>
-<p>I screamed and turned back, running away down the path I had come. I heard the sound of the man and woman's laughter brushing past my Whispering Ear.</p>
-<p>There really were face-holed ghosts in that park, just as the rumors said.</p>
-<p>After seeing those two ghosts, my Condition was poor, so I immediately went to the nearby Urabe Shrine and received an exorcism. After that, I felt a little better.</p>
-<p>Everyone, don't carelessly go to that park just because it's a psychic spot. They really do appear in the park. The face-holed ghosts.</p>
-<p>└Anonymous 1: That's truly terrifying. Before, they said a face-holed, blonde, tanned, naked body, Large Penis ghost was roaming around, but were the ghosts that appeared this time also naked body? └Author: The ghosts I saw were wearing Clothes.</p>
-<p>└Anonymous 2: You tell me not to go, and it just makes me want to go more WWWW It's not far, so maybe I'll go tonight? └Author: It's truly dangerous. I recommend not going. └Anonymous 3: Go and prove it gogogo</p>
-<p>└Anonymous 4: I also live in the Vicinity of the park, and the rumor about ghosts appearing is definitely circulating. There are also a few Witnesses. The urban legend of the face-holed ghosts, posted on the psychic experience submission bulletin board, became famous and began to take on more details through the Words of many people. The urban legend of the park's face-holed ghosts, which became a plausible urban legend through the mouths of countless people, became such a Topic among urban legend enthusiasts that it was made into a B-grade horror movie a few years later.</p>
-<p>"What? A face-holed ghost urban legend?"</p>
-<p>A man looking through Ratflix's movie list, Taira Ryuta, unaware that the true Identity of that ghost was himself, muttered, 'Trash....' and moved on to the next movie on the list.</p>
-<p>Cat Underwear Lisa-ttang B-cut~! I didn't realize the panties strap detail was also a Cat's Sole of the foot haha. White Gyaru VER!</p>
+<p>,First, everyone has no alibi. That Tanaka Norio was Murdered between 1 AM and 3 AM. We were all asleep, so we can't prove it.,</p>
+<p>It was Shido Tsubaki's Words, but in fact, I could prove the alibis of our special class, except for Takakusaki Athena.</p>
+<p>Because I kept waking up due to the semen thieves who secretly came to my room all night, I knew that no one had passed through the passage towards the elevator during the Time the Murder occurred.</p>
+<p>Still, I couldn't reveal that here, so I remained silent.</p>
+<p>,By the way, Shii, Kujo, and Diana, did you guys deliberately show off your strength? To keep the Killer away from us.,</p>
+<p>,Of course~! Do I look like a Woman who would get angry over something as trivial as not being able to go to a pizza place?,</p>
+<p>She looked genuinely angry to me. If Seizawa Shii's Words were true, she seemed to have surprisingly good Acting skills.</p>
+<p>The rest of Kujo Kina and Saionji Diana nodded as if that was right, and some Students seemed moved.</p>
+<p>,What do you think about the culprit?,</p>
+<p>,First, although the culprit left bloodstains at the Scene, that's not because the culprit was careless, but because it shows confidence that they can handle most of the people in the Resort. Because it's the famous Kotowazuki.,</p>
+<p>Minamoto Risa looked around at her special class Friends and asked, and Shido Tsubaki answered.</p>
+<p>,Since they definitely used a sword, they must have had blood on them too, but since I can't sense it, it seems they have excellent cleanup skills.,</p>
+<p>Otagi Yuka raised her Hand and said. Certainly, if Otagi Yuka, a Vampire, couldn't sense it, it wasn't a normal ability, but seemed to be a Trait of at least narrative-class or higher.</p>
+<p>All the Young Ladies of the special class knew that the Otagi Family was a Vampire Family, so they had serious Expressions at Otagi Yuka's Words.</p>
+<p>,Maybe I have a similar ability to them.,</p>
+<p>Everyone looked at Takakusaki Athena at Takakusaki Athena's Words. What ability was she talking about? In fact, we didn't know much about the abilities Takakusaki Athena possessed.</p>
+<p>She had the power of light, which was the opposite of the Abyss, and also the ability to obscure her presence...?</p>
+<p>Ah, Takakusaki Athena seemed to be talking about the ability to obscure her presence, which I had thought of second.</p>
+<p>,A few people gathered here, including me, will have very sharp Sensation. Well, in a normal vacation trip, you can relax and stay safe, but there's me in this Resort, and you guys are here, right? As long as we're here, we're not being careless. No matter how much it snows and a Murder occurs outside the building, the fact that we didn't notice means the other party has that kind of ability. A similar ability to suppress their presence.,</p>
+<p>That certainly made sense. The reason I was conscious of the presence outside while mingling with the Students who came to my room at Dawn was because I thought Takakusaki Athena might attack or call Anyaji.</p>
+<p>If I couldn't feel their presence even though I was so careful, it meant the Killer was that capable. Then I should be careful of ambushes rather than a head-on fight.</p>
+<p>,Now that we know that ability, we'll just have to be more careful. And can we narrow down the culprit with the photos and conversation we just investigated?,</p>
+<p>,I have one~!,</p>
+<p>Oofuchi Erika raised her Hand at my question. When I nodded as if to tell her to speak, Oofuchi Erika began to say what she had thought.</p>
+<p>,In fact, the only evidence revealed is the bloodstains, so we can't say who the culprit is. But there's only one person among the dead who has a different Affiliation.,</p>
+<p>A person with a different Affiliation...?</p>
+<p>,It's Tanaka Norio, one of the university students! The rest are all Resort employees, but only Tanaka Norio isn't affiliated with the Resort.,</p>
+<p>,That's right. When I think about it, it's strange. The culprit killed all the Resort employees, but why did they only kill Tanaka Norio among the guests?,</p>
+<p>Everyone else nodded at Oofuchi Erika's Words. It was certainly strange. Why did they only kill Tanaka Norio? If they were going to kill, they could have killed the other male Students in the same room, but it was strange that they only killed Tanaka Norio.</p>
+<p>,I thought about that 'why'. Why did they only kill Tanaka Norio? Couldn't we think that Tanaka Norio knew a clue about the culprit and was killed?,</p>
+<p>A clue about the culprit.... That's certainly true. Then what clues about the culprit could there be...?</p>
+<p>,So, do you know what that clue is? Erika-chan?,</p>
+<p>Oofuchi Erika nodded at Seizawa Shii's question.</p>
+<p>,The clues all came out in the conversation earlier. The Resort and the beer with sleeping pills are the clues.,</p>
+<p>,Tanaka Norio took care of all of that, didn't he?,</p>
+<p>Otagi Yuka asked at Oofuchi Erika's Words. Oofuchi Erika shook her Head at that question.</p>
+<p>,That's what the Club President said. What if someone gave Tanaka Norio the Resort accommodation and prepared the beer in advance? What if that someone is the culprit? If they only kill Tanaka Norio, they can hide all the clues about the Resort accommodation and the beer with sleeping pills.,</p>
+<p>Certainly, if Oofuchi Erika's assumption was correct, if they only killed Tanaka Norio, they could pass all the clues to the deceased Tanaka Norio.</p>
+<p>Amazing? I knew she was smart, but I didn't know Oofuchi Erika had such a talent for reasoning.</p>
+<p>,Erika-chan is amazing...!,</p>
+<p>,Ehehe, I've read a lot of mystery novels and played a lot of related games while living as a hikikomori.,</p>
+<p>When everyone looked at her with admiring Eyes, Oofuchi Erika scratched the back of her Head as if she was embarrassed.</p>
+<p>,Then the next step is....,</p>
+<p>,It's to secure the dead Tanaka Norio's phone. There will definitely be related conversations.,</p>
+<p>That's right. I don't know why, but the culprit gave all the resort accommodations and beer mixed with sleeping pills to Tanaka Norio and killed him. There should definitely be a call log or history of that on Tanaka Norio's phone.</p>
+<p>,The phone is probably on the Corpse. I'll go get it.,</p>
+<p>Sakagami Rena got up from her Seat and headed Outside. Since Sakagami Rena is the fastest among us, she'll be back soon.</p>
+<p>After waiting for about a minute, Sakagami Rena came back. But it seemed like the phone wasn't on the Corpse, judging by her shaking her Head.</p>
+<p>,When I think about it, he was stabbed in the neck while sleeping and thrown out the window, so he couldn't have had his phone.,</p>
+<p>,That's right. He would have been charging his phone or just throwing it on the bed while sleeping.,</p>
+<p>,You should have told me before I left.,</p>
+<p>Sakagami Rena grumbled, but thoughts don't just pop out as you want.</p>
+<p>,We're going to go up since we're done here, but let's reduce the number of rooms first. Since it's a 3-4 person room, four people can sleep in one room.,</p>
+<p>Having four people in one room would be more helpful than three when a Killer attacked, so we decided to reduce the number of rooms.</p>
+<p>,Let's empty room 301, which is the outermost room, and distribute the Students there.,</p>
+<p>We decided to put Oofuchi Erika, Shido Tsubaki, and Sakagami Rena in room 301 into the remaining rooms one by one, and I looked at Takakusaki Athena.</p>
+<p>,Athena-ssi, are you coming up to the 3rd floor too? There are many empty rooms in 305 where I am.,</p>
+<p>,Teacher!,</p>
+<p>,You...!,</p>
+<p>,Ryuta-cchi!,</p>
+<p>,Teacher-ssi!,</p>
+<p>When I told Takakusaki Athena to come into my room, all the Students glared at me and called me.</p>
+<p>No, I'm not trying to seduce Takakusaki Athena for Sexual reasons, but I'm just saying that because I'm the strongest, I'll keep Takakusaki Athena next to me and watch her. Of course, there were other reasons, but they were definitely not Sexual.</p>
+<p>,Okay.,</p>
+<p>Takakusaki Athena looked at the Students' reactions as if they were interesting, and rather smiled and said okay. Seeing her smile with a strange Expression, it seemed like she was doing it on purpose to piss off the special class troublemakers.</p>
+<p>,Then it's decided. Let's all go back to our rooms. Rest a little, and I'll make lunch. How about shrimp ramen?,</p>
+<p>If I boiled the leftover flower shrimp from yesterday with the Korean red soup ramen I brought separately, it would be very delicious. When I said I would cook myself, they seemed to feel a little better.</p>
+<p>We came out of the Auditorium and all took the elevator to the 3rd floor. Takakusaki Athena got off on the 2nd floor to pack her luggage.</p>
+<p>We arrived on the 3rd floor, and we all scattered to our rooms. The Students in room 301 packed their luggage in the room and came out, and entered the remaining rooms one by one.</p>
+<p>Soon, Takakusaki Athena, who would be using the same room as me, came into 305 with her luggage. Takakusaki Athena came inside, looked around, and opened her mouth.</p>
+<p>,It's definitely wider than the room I use because it's a 3-4 person room.,</p>
+<p>,Sit here. I have something to tell you.,</p>
+<p>In fact, I had more important business with Takakusaki Athena than the Murder case. I thought this was an opportunity to talk when we were alone, so I pointed to the dining table opposite where I was sitting and said.</p>
+<p>Eve Belly Dancer requested by Gojoy-nim~!</p>
+<p>St. Francis's Girls' Academy uniform</p>
+<p>Eve, is it a little scary to look at?</p>
+<p>Succubus Yukiko Amta + Double Peace Ahegao requested by MidNightSKY-nim~!</p>
+<p>After making it, I realized it was the 1.0 version model, not the 1.3 version model that I usually make ㅎㅎ Still, the quality was decent, so I'm uploading it ㅎㅎ</p>
+<p>The illustration requested by Hwanbuljeoldae-bulga-nim will be a little late, so I'll upload it in tomorrow's chapter ㅎㅎ</p>

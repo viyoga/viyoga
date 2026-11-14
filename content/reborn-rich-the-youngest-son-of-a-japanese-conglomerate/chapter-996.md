@@ -5,72 +5,80 @@ weight = 996
 chapter = 996
 +++
 
-<p>"Grandmother-nim~! Have you been well?"</p>
-<p>"My Grandson has arrived~?"</p>
-<p>As I greeted Grandmother Taira Shizuku and entered the Annex garden, Taira Shizuku welcomed me with a hug.</p>
-<p>"Perhaps because it's been several months since I last saw you, my Grandson seems even more Tall and Handsome."</p>
-<p>"Ahahaha, is that so? I apologize for visiting so late."</p>
-<p>She didn't particularly scold me for visiting late, but when I mentioned my tardiness, she slapped my Arm and said, 'So, you should have come to see this old woman right after your mission ended~!' It seemed Taira Shizuku was a little disappointed.</p>
-<p>"But it's almost Mealtime...."</p>
-<p>"During Mealtime, we only have stiff conversations, so I called you to talk with my Grandson."</p>
-<p>It didn't seem like she had called me just to talk.... No matter how much Grandmother-nim liked me, calling me specifically before the Family Meal on the day of the Competition clearly meant she had something to tell me.</p>
-<p>"So, what will you do if you receive the mission Reward this time?"</p>
-<p>As expected, she called me to ask this. Although I was promised an Affiliate Company for this mission, the mission changed from seducing Minamoto Risa to preventing the union of the Minamoto and Sugawara Families, so it was uncertain if the Reward would remain the same. What kind of Reward Taira Danjo-harabe will give me is up to him.</p>
-<p>Whatever Reward I received, I intended to hide myself and lie low, just as Taira Kanna had advised me before.</p>
-<p>"I'm just going to be satisfied with whatever Reward I receive and stay quiet."</p>
-<p>"Yes. Whatever your Sincerity may be, it is important to hide yourself as much as possible right now."</p>
-<p>Taira Shizuku also seemed to have guessed the hidden meaning in my Words, and nodded her Head with a satisfied Expression. She seemed satisfied that I was moving cautiously. She must think that she cannot lose her Grandson when it hasn't even been a year since her Son died.</p>
-<p>"Ah, Time...! Ryuta, you should go first. If you go to the Meal with this old woman, some People might Misunderstand."</p>
-<p>She seemed afraid that if I went to the Restaurant with Taira Shizuku, I might be perceived as having some ambition. I nodded my Head and followed Tairaga's third Butler, Yanagiba Morishige, who was still waiting.</p>
-<p>I had attended Tairaga's Meal before, so I was somewhat familiar with the layout. It was still 10 minutes before the scheduled Mealtime, so the Restaurant was a bit quiet, but I saw a familiar Woman.</p>
-<p>"Mother."</p>
-<p>"Ryuta, have you arrived...?"</p>
-<p>Taira Yukiko was already seated. Even though Taira Saburo had died, Taira Yukiko still maintained the Taira Family name, so it wasn't strange for her to be at the Family Meal. I called her Mother instead of Yukiko-ssi, which I usually used, and sat down.</p>
-<p>I sat next to Taira Yukiko. Since I was Taira Yukiko's step-Son, sitting next to her seemed appropriate. Indeed. A Nameplate with my Name written on Paper was placed there.</p>
-<p>"You arrived early?"</p>
-<p>"I thought Ryuta might come early, so I came to Help...."</p>
-<p>Did she come early because of me? That's a bit touching...? It seemed she came early to Help, fearing I might be alienated among Family members whose Faces I didn't even know. I knew all my Uncles and Aunts' Faces, and I had seen more than half of my Cousins at my Father Taira Saburo's funeral, so it wouldn't be that awkward, I thought.</p>
-<p>"Yo~! Ryuta. It's been a while since the funeral, hasn't it? And hello, Aunt-nim?"</p>
-<p>As soon as I thought about my Cousins, a Mixed Blood man of Latin descent acted like he knew me.</p>
-<p>This man, who looked like a generic 'Golden Sun' with his dull blonde hair, the reddish-brown skin typical of Latin people, and an arrogant expression, was Taira Gensuke (平 賢介), Ichiro's second son. It wasn't our first meeting; we had introduced ourselves at Taira Saburo's funeral, so we already knew each other.</p>
-<p>Especially since he clearly had a Mixed Blood vibe, I thought, 'There's someone similar to me, a third-generation Zainichi Korean?' and observed him a bit more closely than my other Cousins. Of course, I lost Interest after that when I started talking to the beautiful Arisu.</p>
-<p>Looking at him again now, he had a good physique and a sturdy feeling, even in a Suit, making it seem like he had trained in some Sport or martial art.</p>
-<p>"Gensuke-hyungnim. I heard you handled things well in South America this time, congratulations."</p>
-<p>Taira Gensuke was the South American Branch Manager of Taira Bussan, and according to Information collected by the Joseodang, he achieved the merit of significantly increasing Taira Bussan's market share by terrorizing a competitor and paralyzing their production. To terrorize a competitor, this seemingly light-hearted Latin Mixed Blood Cousin was not someone to be underestimated.</p>
-<p>"Hahaha! The Rumor spread that far? It's nothing much. First, I need to take my Seat, so let's talk more deeply later."</p>
-<p>Taira Gensuke patted my Shoulder, then sat in the Seat assigned to himself. Although he was of the same generation, I felt a slight sense of being ignored, but I didn't mind much. No matter how large Taira Bussan was within the Taira Group, and how big its South American Branch was, he was merely a Branch Manager. I was convinced that if I was given a little more Time, I could surpass him.</p>
-<p>"Oh my, isn't this Ryuta? It's been a while, kid!"</p>
-<p>The one who acted like she knew me this time was Taira Kisa (平 樹沙), the first daughter of Taira Kokoro. She had a style similar to mine, was not currently holding any position within the Taira Group, but ran her own clothing brand company. She was said to be at the forefront of trends and doing well. Taira Kisa was well-known as a Taira family celebrity, a young female CEO, and a fashionista.</p>
-<p>I also felt it was similar because I had no position in the Taira Group and owned my own companies. Of course, I owned several companies with much higher Value, but still.</p>
-<p>She seemed a bit boisterous, but resembling Taira Kokoro, her Beauty was quite outstanding.</p>
-<p>"Kisa-nunim, hello."</p>
-<p>"Yes, you could be a Model for our brand, couldn't you? Ryuta, do you want to sign a Contract with this Older Sister?"</p>
-<p>As if she were truly Taira Kokoro's Daughter, Taira Kisa looked at me and proposed that I become a Model for her company, just as Taira Kokoro would tell me to become an Actor for her agency.</p>
-<p>As I was worrying about how to refuse, Tairaga's Blood relatives rushed in on Time, and Taira Kisa winked at me, saying she'd talk later, and went to her Seat.</p>
-<p>"Are you going to be Kisa's Model?"</p>
-<p>"No, I'm too busy to be a Model."</p>
-<p>Taira Yukiko asked in a hushed Voice, and I smiled and shook my Head. While talking to Taira Yukiko, I greeted the incoming Taira Successor competitors.</p>
-<p>Taira Ichiro, Taira Jiro, and Taira Kokoro entered, laughing and talking, but even with their laughter, the Atmosphere was as cold as Winter. Everyone present, including me, knew well that despite their smiling Expressions, they harbended no friendly thoughts towards each other.</p>
-<p>Immediately after, Taira Kanna entered, saw me, smiled, and waved her Hand, so I also gave an awkward smile and bowed my Head in greeting. With other Family members watching, I couldn't casually greet Taira Kanna, who was my senior in terms of generational rank, so I bowed my Head respectfully.</p>
-<p>Besides the Taira Group's Successors, the spouses of the Successors and the children of the Successors, such as Taira Gensuke and Taira Kisa, also followed in. Taira Ichiro's Wife, the Brazilian Beautiful Woman Taira Camila, and Taira Kokoro's somewhat timid-looking Husband, Taira Kazuto, caught my Eye. Taira Jiro's Wife, Taira Moko, was reportedly in the Hospital, and it seemed she hadn't come today, perhaps because her Situation wasn't good.</p>
-<p>One might ask if there aren't other people using the Taira surname besides Taira Danjo's Direct Lineage, but when Taira Danjo became the Chairman of the Taira Group, he killed all his Siblings and their Blood relatives and deprived influential collateral Taira branches of their surnames. Therefore, no one other than Taira Danjo's Bloodline and those married into that Bloodline could enter this Restaurant.</p>
-<p>"The length-nim is entering!"</p>
-<p>As the Taira Family members filled all the Seats at the long rectangular Dining table, Taira Danjo and Taira Shizuku soon entered together. Everyone seated at the Dining table rose to their Feet at Taira Danjo's entrance.</p>
-<p>"Ahem...! Everyone, be seated."</p>
-<p>As Taira Danjo spoke while sitting down, the rest of the Taira clan also re-seated themselves. Then, the Maids brought in Food, and a rather splendid traditional Japanese Meal was being served on the Dining table. Soon after, the Dining table was full, and at Taira Danjo's Words, "Let the Meal begin," everyone started eating.</p>
-<p>Hmm...! It's delicious. The Meal was not a stiff Atmosphere, with people engaging in small conversations. I had heard from Minamoto Risa that the Minamoto Family did not allow private conversations during such Meals and focused only on eating, but Tairaga's Meal seemed to have a different Atmosphere from the Minamoto's.</p>
-<p>"Mother, this is delicious. Please try it."</p>
-<p>"Hmm, shall I try what Ryuta recommended?"</p>
-<p>I conversed with Taira Yukiko while eating, and when all the Meals were finished, the Food was cleared, and tea was served. Now, the real part begins. I heard from Mimata Chieri that during the tea ceremony, they would receive Taira Danjo's Evaluation of the past quarter. True to Taira Danjo's nasty Personality, he would unleash Sharp Tongue without mercy if something displeased him, so I'd have to see who gets a big earful today.</p>
-<p>"Before we begin, let us first congratulate Kanna on her Graduation."</p>
-<p>I thought Taira Ichiro, Taira Danjo's First Child, would be first, but the Story is starting with Taira Kanna, who graduated this year. Now that she has become an Adult, everyone will be keenly watching Taira Kanna's movements.</p>
-<p>They will be more focused on Taira Kanna's actions, who showed Talent from a young age and absorbed a significant portion of Taira Saburo's forces, rather than on me, an illegitimate child who has been in the Taira Family for less than a year.</p>
-<p>Hwanbuljeoldaebulga-nim requested Teacher Gajeong's Casual Clothes and Underwear~!</p>
-<p>Casual Clothes!</p>
-<p>Underwear~!</p>
-<p>Gojoy-nim requested Baek Lisa's Casual Clothes, Underwear~!</p>
-<p>Casual Clothes~!</p>
-<p>Underwear~!</p>
-<p>TheDreaming-nim requested Mimata Chieri 1. Remake of Chapter 221 2. Maid Katyusha Chieri</p>
+<p>a and before chapter check content erotic is please surroundings this with your</p>
+<p>"Did you put on your Clothes properly?"</p>
+<p>Yukiko asked me from outside the door. Normally, Yukiko wouldn't say anything about my attire, but today she was concerned about it.</p>
+<p>It was precisely the day we were going to visit my Father, Taira Saburo's Grave. Because I was on a mission, I couldn't visit Taira Saburo's grave on his death anniversary, so we were only going now that I had some leisure time.</p>
+<p>Honestly, I wouldn't care much even if I didn't visit the grave of my Father, whose face I didn't even know, but in Japanese society, which feels more conservative than Korea, and to a prestigious family, if I showed no concern for such matters at all, my evaluation might drop.</p>
+<p>So, when I had time, for justification and formality, it was better to go once. Besides, it wasn't even a distant place that would take several hours.</p>
+<p>"Yes. I just need to tie my necktie."</p>
+<p>For that reason, I was wearing a black suit and a black necktie today. Perhaps because my Size had grown a bit more, the suit I wore for ancestor worship a year ago didn't fit, so the suit I was wearing today was newly tailored.</p>
+<p>Perhaps because I had a custom suit made by the tailor Tosen Nobumichi called, it was quite comfortable to move in. Tosen Nobumichi, as befitting someone who had watched Taira Saburo since childhood, wore quite a complex Expression when I said I was going to visit Taira Saburo's grave. Based on sadness, mixed with Guilt and various Emotions, it was an Expression that could only be described as truly complex.</p>
+<p>Having finished tying my necktie, I went outside. Outside, as expected, Yukiko and Nagumo Sian, dressed in black-themed Clothes, were there.</p>
+<p>Nagumo Sian, who usually wore a Kimono, was wearing funeral Attire closer to Western dress, and Yukiko was wearing a black funeral Kimono. It felt as if their attire was reversed.</p>
+<p>Since both were beautiful Women, they looked good even in ancestor worship clothes, but I couldn't say that out loud.</p>
+<p>Yukiko, as Taira Saburo's widow, intended to visit the grave with me, and Nagumo Sian, while in Akita, had rarely been able to visit Taira Saburo's grave, so she intended to visit this time.</p>
+<p>Taira Saburo's grave was in the Taira Family grave behind the Taira Main family residence. So we decided to go together in the car Tsukiyo was driving.</p>
+<p>Like yesterday, I got into the passenger seat, and after Nagumo Sian and Yukiko got in the back, we drove towards the Taira Main family residence.</p>
+<p>Even though we were going to the Taira Main family residence for ancestor worship, the Atmosphere inside the car wasn't particularly tense.</p>
+<p>Because it had already been over a year since Taira Saburo died, there was no one to openly mourn, and in the first place, neither Tsukiyo nor I had ever seen Taira Saburo in person, so we couldn't mourn even if we wanted to.</p>
+<p>"Yukiko must be busy."</p>
+<p>"Hmm...? That's right. From the end of March, the first batch of new employees for the 54th year will be entering the Talent Development Center, you see."</p>
+<p>As Yukiko said, now was the Talent Development Center's busiest period in the first half of the year. Because the Taira Group's Newcomers were coming in and everyone was gathering at the Talent Development Center for Education, everyone at the Talent Development Center, with those Preparations, was incredibly busy.</p>
+<p>I was also quite busy during this Time while I was at the Talent Development Center. I had formed connections with the Newcomers then, and still exchanged messages occasionally. I should have a Meal with everyone sometime later. Since they were all talented Newcomers with excellent Abilities, they could also be utilized for Information gathering, so I should manage them.</p>
+<p>"Our Newcomers also decided to send personnel to the main branch of the Talent Development Center. And the Kitatohoku Branch was also closed."</p>
+<p>As Yukiko and I were talking about the Talent Development Center, Nagumo Sian interjected. Ah... I see. The head of the Talent Development Center's Kitatohoku Branch had been colluding with Kurotsukidoo and was assassinated by Mimata Chieri. It seemed that due to that incident, the Talent Development Center's Kitatohoku Branch was abolished.</p>
+<p>From the Talent Development Center's perspective, it was enough to educate Newcomers all at once, but operating a Branch would incur additional Labor Costs and management fees, so they probably abolished it under the pretext of the Assassination Accident.</p>
+<p>"Anyway, if nothing special happens, they're Children who will Work in Akita their whole lives, so at least during their new employee training, it would be good for them to receive Education in the metropolitan area."</p>
+<p>Taira Food's base was Akita Prefecture; unlike most of the Taira Group's Affiliate Companies, it did not relocate its Headquarters to Neo Tokyo. In Akita, Nagumo Sian was called the Grandmother and boasted power almost at the level of a Daimyo, so the Upper Layer probably judged that it was right to leave Taira Food in its place.</p>
+<p>Although Taira Food was an important Affiliate Company, it was not a Core industry of the Taira Group. Nevertheless, the Reason Nagumo Sian was highly evaluated was precisely because she had completely dominated one region.</p>
+<p>Like Nagumo Sian's Taira Food, there were several Affiliate Companies that held absolute Positions in each city or prefecture and thus did not relocate to Neo Tokyo; most of these were companies managed by non-faction Bosses who had built their Foundations over a long Time.</p>
+<p>As such, while talking about the Work of the Taira Talent Development Center, the Taira Main family residence came into view. Because we had contacted them in advance that we were going to visit Taira Saburo's grave, no one blocked our vehicle.</p>
+<p>"I'll be waiting~!"</p>
+<p>Tsukiyo said, waving her Hand. When I asked if she wouldn't be bored alone, she said she could practice the forms of Shinkaiyatsude while waiting.</p>
+<p>We, leaving Tsukiyo and the Parking Lot behind, headed towards the Taira Family grave behind the Main family Mansion. For reference, Taira Danjo and Taira Shizuku had external schedules.</p>
+<p>As we walked, in the distance, a Woman coming out of the Taira Family grave and descending was seen. Judging by her black Clothes and black veil, she too seemed to be coming from visiting someone's grave.</p>
+<p>Because of the veil, her Face wasn't clearly visible, but she didn't seem to be a Direct Lineage Taira I knew. The Taira Family grave also had Taira Ancestors buried there, so I had heard Stories that collateral Branches of Taira who had separated from the Direct Lineage, or People we didn't know well, would come to visit, so I figured she was probably one of them.</p>
+<p>The veiled Woman, seeing us heading towards the Taira Family grave, bowed her Head slightly to us, then passed us by.</p>
+<p>"She seems to be from a collateral Branch."</p>
+<p>"To wear a veil that completely obscures her Face, can she even see ahead?"</p>
+<p>Both Yukiko and Nagumo Sian seemed not to know her. Or, as Yukiko said, because of the thick veil, they might not have recognized her because they couldn't see her Face. However, I didn't Worry that she might be a Terrorist or a spy, because the Taira Family grave was close to the Main family residence, and I had heard that Status checks for visitors were thoroughly conducted.</p>
+<p>Of course, since she was just someone who passed us by, the Topic of the veiled Woman ended with that brief Conversation.</p>
+<p>Perhaps because it was a graveyard, it was a somewhat bleak Taira Family grave we entered. Having attended Taira Saburo's funeral and visited the grave once or twice, it wasn't an unfamiliar Place.</p>
+<p>Perhaps because the Taira Group had a separate grave caretaker, all the graves were well-maintained. Taira Saburo's grave was no exception.</p>
+<p>"Huh?!"</p>
+<p>In front of Taira Saburo's Tombstone, in the vase for Flowers, there were already Flowers. I thought it might have been the veiled Woman who had just passed by, but even though it was a bit late, it was a Date close to Taira Saburo's death anniversary, so I concluded that someone like us, who had missed the Timing, must have placed the Flowers.</p>
+<p>Normally, when visiting a grave in Japan, one cleans the soiled Tombstone and offers a joint Prayer, but perhaps because the grave caretakers managed it well, we formally poured clear Water over the Tombstone, concluding the Tombstone cleaning Procedure and offering a joint Prayer.</p>
+<p>In fact, I didn't have much to say to Taira Saburo. Looking at how he assigned Fujigasaki Rinka to me as a Sabu when I was young, or how he continuously sent me Money, it doesn't seem like he completely neglected me, but from the perspective of someone with a Blood connection, I knew that wasn't all, so I had nothing particular to say. Ultimately, only by directly giving Love and raising a Child does one truly feel like a Parent.</p>
+<p>「May you rest in peace. I will take Responsibility for Yukiko.」</p>
+<p>With slightly unfilial Thoughts, I finished the ancestor worship and unclasped my Hands. Yukiko and Nagumo Sian also seemed to have finished their ancestor worship, unclasped their Hands, and without a Word, looked at Taira Saburo's grave.</p>
+<p>"Let's go down now."</p>
+<p>"Let's do that."</p>
+<p>"Mm...."</p>
+<p>Having finished the ancestor worship, we left the Taira Family grave and headed back to the Parking Lot. Since Taira Danjo and Taira Shizuku were also absent, and there was nothing to do at the Taira Main family residence, we decided to return immediately. Both Nagumo Sian and Yukiko were in the Position of busy Bosses, so Time was gold.</p>
+<p>"Ryuta."</p>
+<p>"Yes?"</p>
+<p>On the way down after the ancestor worship, Yukiko called me. When I looked at Yukiko, she said to Nagumo Sian, "I'll just talk for a moment and then come down." Perhaps she had something she wanted to talk about with me alone.</p>
+<p>"I'll wait in the car."</p>
+<p>"Thank you, Nagumo-ssi."</p>
+<p>Nagumo Sian went down alone to the Parking Lot, and on the path to the Taira Family grave, only Yukiko and I remained.</p>
+<p>"At the general Meeting, I received this from your Grandmother."</p>
+<p>What Yukiko took out was a UCT. In the world before Possession, like a USB, it was a connector that connected to various Places, and there was probably some Data inside.</p>
+<p>"What is this?"</p>
+<p>"Just... some Information, and, shall I say, the recent Status of those who were part of the Saburo faction? Such Information is inside. And...."</p>
+<p>To my Question, Yukiko told me what she had found out. Especially, she told me about the People who had followed Taira Saburo.</p>
+<p>She told me about the 70 percent who went under Taira Kanna, the 20 percent who moved as unaffiliated, and among the 10 percent who left the Taira Family, she told me about the last 10 percent, who, according to Taira Saburo's last will, left the Taira Group, a shocking Story.</p>
+<p>"Perhaps your Grandmother, the Reason she handed this Information to me, is because she thought it might be good to persuade those who left Taira once."</p>
+<p>"Other Successors, you said they left because they couldn't be tolerated?"</p>
+<p>"Perhaps it's because she knows you have various forces outside of Taira?"</p>
+<p>Ultimately, it seemed she was telling me to create an external Taira Organization and accept the former Saburo faction. Well, the ones who left the Taira Family, to the extent that the other Successors couldn't tolerate them, must have caused them Harm, so their Abilities must be good. Attempting to recruit them once didn't seem like a bad idea.</p>
+<p>With that, having finished talking with Yukiko, we returned to the Vehicle where Tsukiyo and Nagumo Sian were waiting. And immediately, leaving the Taira Main family residence, we dropped Yukiko off at the Talent Development Center and Nagumo Sian at the Taira Food Neo Tokyo Branch.</p>
+<p>Just as Tsukiyo and I were alone, my Phone buzzed. Checking who it was, it was Eve.</p>
+<p>**-EVE: You need to come to New York as soon as possible.**</p>
+<p>Yukiko, Sian Ancestor Worship Attire</p>
+<p>Yukiko</p>
+<p>Sian~!</p>
+<p>Arisu at the beach, requested by TheDreaming-nim. 1. Surprised Expression 2. Running</p>
 <p>1.</p>
 <p>2.</p>
+<p>As expected of a phantom thief, she runs well hehe.</p>

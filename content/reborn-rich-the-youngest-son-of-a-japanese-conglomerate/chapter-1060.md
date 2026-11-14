@@ -5,76 +5,98 @@ weight = 1060
 chapter = 1060
 +++
 
-<p>As I ran towards the west, which I was in charge of, surprisingly, the fake Black Knight, that is, my Sajo, was here.</p>
-<p>The fake Black Knight was mechanically crushing approaching enemies with Shinkaiyatsude, and it was clear at a glance that he was a formidable Skill user. Especially to my eyes, having trained Shinkaiyatsude for several years, I could tell at a glance that Sajo's Realm was considerable.</p>
-<p>However, during Sajo's prime, Shinkaiyatsude was not the best in Japan.</p>
-<p>After Sajo left, Fujigasaki Rinka, who became an Adult, showed the dignity of Shinkaiyatsude and became the best in the World, so in terms of Talent itself, Fujigasaki Rinka could be said to be above Sajo Soda Haruto.</p>
-<p>And I, who had received numerous privileges and grown until now, was confident that I could overcome and rescue the poor Sajo, who had been Confinement by the Black Sage before my eyes and unable to properly Train for over a decade.</p>
-<p>"I've found the Target. Teams with Leisure, please support this way."</p>
-<p>I first reported finding Sajo to Command.</p>
-<p>Since so many people were involved in the Fragment of All-Knowledge scramble, I wasn't sure if our team guarding the Points would have Leisure, but if I received Help, I could quickly Kidnapping Sajo and escape, so reporting was the priority.</p>
-<p>-Chiik.... The field teams, excluding the sniper team, seem to be mostly in battle right now. Rescue support will come from the Transport team, and the sniper team has also begun to move.</p>
-<p>The Answer came from Command. As I expected, most seemed to be in battle. In the end, I'll have to rescue Sajo alone. The Transport team is for transporting Sajo, and the sniper team won't be of much Help in the rescue.</p>
-<p>"Okay, I'll try to attempt the rescue alone for now."</p>
-<p>After speaking to Command, I approached Soda Haruto, who was blocking a Heupyeolgui trying to turn into blood fog with the Abyss, and then splitting and killing it with his Hand Blade.</p>
-<p>Soda Haruto was probably under some mental restriction by the Black Sage.</p>
-<p>Because I saw two under the Black Sage die just by speaking a certain keyword when I caught them recently, the Black Sage must have placed several restrictions on my Sajo as well.</p>
-<p>Since the period of Confinement was so long, he might even be Brainwashing.</p>
-<p>So, although I used the word "rescue," I was thinking there was almost certainly over a 90 percent Probability that I would have to use force to Neutralization Soda Haruto and take him by Force.</p>
-<p>It's a pleasure to meet you for the first time. I am your grand-disciple.</p>
-<p>Approaching Soda Haruto, who was killing a Heupyeolgui, I first offered a polite greeting. Of course, since there were quite a few Sensitive Ears listening nearby, I didn't reveal my name.</p>
-<p>-Sa... son...?</p>
-<p>A phlegmy Voice was heard from between the black Helmet. Although he said "sason," it didn't feel like he understood the meaning within it. It was merely similar to an animalistic Feeling reacting to external Stimulation.</p>
-<p>As I expected, Soda Haruto was either Crazy, or his mind was Subjugation by the Black Sage, preventing him from making proper judgments. In times like these, I wish my predictions were wrong.</p>
-<p>"T-two Black Knights?!"</p>
-<p>The voices of the Heupyeolgui and underworld gangs nearby, shouting in surprise, were heard. Their surprise was natural. After all, Black Knight was a Celebrity in New York right now.</p>
-<p>He was already famous for stopping the famine, and he was the one who ushered in the current era of vigilantes in New York, so it would be a lie to say he wasn't famous.</p>
-<p>"Keo-eok!"</p>
-<p>Whether the words "Two Black Knights?" had Stimulated Soda Haruto, the neck of the gang member who spoke was grabbed by Soda Haruto.</p>
-<p>As the Fragment of All-Knowledge scramble was close, even though he was a Combatant wearing quite high-grade equipment, he couldn't react at all, his neck was grabbed, and it broke instantly. Hmm.... If I had been close, I would have been attacked immediately, wouldn't I?</p>
-<p>First, I decided to deal with the Guys around from a distance. It was a judgment that I should clear out any Guys who might interfere with the Sajo rescue (?) jakjeon in advance.</p>
-<p>"Haap!"</p>
-<p>To avoid stimulating Sajo and making him Attack me while I was close, I first began to Attack the Guys on the outskirts of this Street.</p>
-<p>Feeling the power enhanced by the Black Knight Armor, and infusing it with Genesis Chaos, I struck with my fist, whether it was a Heupyeolgui or a fully armed gang member, I could equally punch a hole in their breast, creating a donut ring.</p>
-<p>Whether he was Stimulated by my movements, or if he was Stimulated by those moving in surprise as the newly appeared Black Knight attacked indiscriminately, I didn't know, but Soda Haruto was also quickly clearing the Surroundings.</p>
-<p>-Krrr!</p>
-<p>Seeing Sajo send Killing Intent my way with Fading Reason eyes, it was certainly not that they were clearing the Surroundings by mutual unspoken Consent.</p>
-<p>I was doing it to rescue Sajo by force, and Sajo was clearing the Surroundings in anticipation of a battle with an Opponent who seemed to be the strongest Enemy.</p>
-<p>"Crazy Black Knight Bastards...! Retreat! Retreat!!"</p>
-<p>Heupyeolgui shouting "Retreat!" and turning into blood fog. In fact, while it was easy to catch fleeing gangs, it was difficult to catch Heupyeolgui once they turned into fog and fled, so I began to explode Genesis Chaos Energy, prioritizing attacks on the Heupyeolgui that had become fog, catching and killing them.</p>
-<p>One might ask why Attack fleeing enemies, but I couldn't release the Information that there was a fake Black Knight.</p>
-<p>Sajo was also a fake Black Knight, and the US government or the injured parties might demand Responsibility for the jit committed under the Black Sage, so I was completely blocking this Information from leaking out.</p>
-<p>And I didn't want to show these Heupyeolgui and gang members the sight of me beating my Sabu's Sabu (Master's Master).</p>
-<p>"Kuaaaak!"</p>
-<p>After punching a hole in the breast of the last remaining gang member, I stood before Soda Haruto.</p>
-<p>"I am Fujigasaki Rinka's Disciple, Taira Ryuta. Can you hear my Words?"</p>
-<p>Now that there was no one listening, I revealed my True Identity to Soda Haruto and asked.</p>
-<p>-Rin, ka...?</p>
-<p>As expected of a Disciple, there was a Reaction to Fujigasaki Rinka's name. But that Reaction was fleeting, and he still sent Killing Intent my way with hostile Gaze.</p>
-<p>"Huu...."</p>
-<p>I let out a slight Sigh. There's no Help for it. I ended up having to punch him without even proper Introductions with my Sabu.</p>
-<p>Still, to separate him from the Black Sage, this was the only Method, so I had to use force. He was quite a difficult Opponent for me.</p>
-<p>As he was the Sajo I had desperately searched for over the past few weeks, I couldn't Attack him strongly enough to kill him, and just by watching him fight for a moment, I saw what the Black Sage had done, his physical Ability seemed immense.</p>
-<p>Instead, perhaps because he had been confined for a long Time, it was good news that some parts of Shinkaiyatsude's movements seemed a little unstable. Knowing all of Shinkaiyatsude's Martial Arts Forms, I would be able to exploit those flaws.</p>
-<p>"Haat!"</p>
-<p>Since the Situation had come to this, rather than observing Etiquette, making him regain his senses faster would be what both Sabu and Sajo would wish for, so I launched a preemptive Attack.</p>
-<p>Since I didn't know the defense of the fake Black Knight Armor, rather than using destructive Genesis Chaos Martial Arts Forms, I used a basic straight punch with my fist wrapped in Genesis Chaos Energy.</p>
-<p>Huuung!</p>
-<p>Even a basic straight punch, was the very thing that the recently annihilated Heupyeolgui and gang members couldn't withstand even a single blow from.</p>
-<p>Soda Haruto naturally deflected my straight punch, aimed at his Solar Plexus, with the Back of his Hand. Even though he had been captured by Anyaji and the Black Sage for over a decade and lost his Freedom, the Method of responding to Fist Technique still seemed to remain in his Body.</p>
-<p>This is quite admirable, isn't it? However, admiration only has meaning if Sajo is in his right mind, so I continued the Offensive without holding back my hand.</p>
-<p>-Shinkaiyatsude (深海八手) Kuroyamamota (黑山靠: Black Mountain Lean)</p>
-<p>I opened the fist of the deflected straight punch, grabbed Sajo's Arm, which was pushing me away, and pulled. And then I used Shinkaiyatsude Kuroyamamota, a Technique that strikes with the Shoulder.</p>
-<p>Kung!</p>
-<p>Although the Abyss, which is the foundation of Shinkaiyatsude, was absent, the Destructive Power of a Technique used by my large Body, even wearing Armor, could not be absent.</p>
-<p>-Black, Mountain Lean...!? Kuaaaah!</p>
-<p>He seemed surprised when his Opponent suddenly used Shinkaiyatsude. But the Anger of being attacked rose, blowing away the Doubt that had just briefly surfaced.</p>
-<p>As if Sajo also intended to fight seriously, the Abyss bloomed between the gaps of Sajo's fake Black Knight Armor.</p>
-<p>-Shinkaiyatsude (Deep Sea Sea Urchin) Shokushujin (Tentacle Blade) -Shinkaiyatsude (Deep Sea Eight-Hand) Kakekushi (Shadow Skewer)</p>
-<p>Sabu's Counterattack was, as expected, a Shinkaiyatsude Martial Arts Form. Following Shokushujin, which attacked with a Hand Blade, he simultaneously used Kakekushi, which drew sharp Abyss Spears from his own Shadow.</p>
-<p>It was quite a difficult simultaneous attack, moving my body and the Abyss separately. I dodged the Shadow Skewer, and at the same time, blocked Sajo's hand blade attack with the Shinkaiyatsude martial arts form, Shoten'isshoku (昇天一触: Ascension One Touch), by kicking upwards. Then I immediately delivered a spinning back kick to Sajo's chest.</p>
-<p>No matter how difficult the Martial Arts Form combination the Opponent used, he was now merely an Opponent without Fading Reason, using techniques ingrained in his Body.</p>
-<p>It would be different if he used a Martial Art I didn't know at all, but the Opponent was using the same Martial Art as me, Shinkaiyatsude. It was unthinkable for me to be defeated when I knew all the Martial Arts Forms so well.</p>
-<p>"Now I roughly understand the Armor's defense, Sajo. Please wait a moment. I will rescue you from the Black Sage's demonic beast."</p>
-<p>Having finished all my judgments, I took the Opening Ceremony stance of Genesis Chaos Style and spoke towards the rising Sajo.</p>
-<p>Character with a symbol as background requested by Neosblue-nim~! Ryuta was selected~! I chose the butterfly, the symbol of the Tairaga family, but it was difficult to create because actual butterflies and decorations appeared in addition to the background haha. The Last one is a Tiger haha. I'm quite satisfied with the Result, but I won't accept similar requests in the future. The hit rate is too low due to issues with the background coming forward, so I have to keep checking the Illustrations while writing the Novel. Liz requested by Chomisaemeonji-nim, 1. Stuck in a wall, 2. Touching her breasts~! 1. The Last one looks somewhat like a breast mousepad haha. 2. Misano Shinoe requested by Gojoy-nim for Chapter 38, 1. Explaining. 2. Misano Shinoe happily watching Ryuta eat~! 1. 2. Illustration #2 came out with a similar Composition, so I added one failed image and uploaded 3 images haha. Hanakame breast Exposure Illustration requested by Chea Yun-nim~!</p>
+<p>-This is the New York Obsidian Pharmaceuticals Building. The Building is bustling with numerous gangs, police trying to arrest them, and bounty Hunters gathered for the bounty.</p>
+<p>Inside the car, watching the News, it seemed there were more than one or two people who thought like us, as numerous bounty Hunters were surrounding the Building. On the Screen, even riff-raff holding baseball bats or Taser Guns were seen, but Pro bounty Hunters holding expert equipment were also seen.</p>
+<p>"If this happens, I won't be able to beat Carmine Castello, right?"</p>
+<p>Fujigasaki Rinka was feeling anxious, worrying that she wouldn't be able to beat Carmine Castello, the sujang of the Obsidian Syndicate, rather than about the bounty. Perhaps she somehow wanted to carry out Revenge for the two sacrificed Gwonmaeng members.</p>
+<p>"It's alright. I'll make sure Sabu can hit Carmine Castello."</p>
+<p>-The gang organization Obsidian Syndicate is threatening that if bounty Hunters or police storm into the Obsidian Pharmaceuticals Building, where they claim a Bomb is installed, they will detonate it, while the Director-General of the NYPD...</p>
+<p>"They say they even installed a Bomb?"</p>
+<p>In fact, even if a Bomb was installed, it didn't matter. I didn't think Carmine Castello, the sujang of the Obsidian Syndicate, would be so ostentatiously in the Obsidian Pharmaceuticals Building. No matter how much they claimed to have installed a Bomb and caused a commotion, in a Situation where they were surrounded like that, they would inevitably be caught.</p>
+<p>Perhaps that Obsidian Building was Bait, and Carmine Castello was somewhere else or I thought he was on the run. So, I started gathering as much Information as I had, and Information came out from an unexpected Place.</p>
+<p>"Boss requested Information is here."</p>
+<p>What was given to me was Whisper, Maya Reed. They said there was a Superhuman in New York who could handle and communicate with Mice, and Maya Reed said she obtained Information by contacting him.</p>
+<p>"This Person is quite useful..."</p>
+<p>"Perhaps we won't be able to recruit him. He's an extremely friendly Person towards Superior..."</p>
+<p>The Ability to handle and communicate with Mice seemed quite useful, so I wanted to recruit him, but Maya Reed, understanding my Words, shook her Head. If he's a Superior person, I can't recruit him. Even if I could, I shouldn't recruit such an extremist, you know.</p>
+<p>"However, he's also doing Information broker work, so if needed, we can contact him separately and entrust him with a request. There's no need to necessarily recruit him."</p>
+<p>I see. It's a useful Ability, but since he's doing Information broker work and can be hired with Money, there's no need to necessarily keep him under us and use him.</p>
+<p>Of course, as he's affiliated with Superior, I wouldn't be able to order him to obtain Information from that side, but I felt I could sufficiently order him to do unrelated matters like now.</p>
+<p>I handed the universal connection terminal I received from Maya Reed to Kiyona Hori, who was driving. Kiyona Hori connected the universal connection terminal to the vehicle.</p>
+<p>"Ah. It's Position data. Looking at the distance, it seems we have to go for 20 minutes."</p>
+<p>As expected, according to my prediction, he wasn't in the Obsidian Pharmaceuticals Building. Checking the Position applied to the navigation, it was an Ordinary-looking house in Port Washington, but perhaps after being here, he seemed likely to escape by stowing away from the port side in Port Washington.</p>
+<p>Perhaps because People and vehicles were crowded towards Obsidian Pharmaceuticals, the direction we were going felt a little quiet. So, we could arrive a little earlier than the 20 minutes Kiyona Hori said.</p>
+<p>"Now, everyone, put on your helmets..."</p>
+<p>It was a task of dealing with Bad guys, but still, if our True Identity was revealed, it wouldn't be good, so all of us were hiding our True Identity with cyber Suits and helmets.</p>
+<p>"By the way, even if we catch him, can we receive the bounty?"</p>
+<p>Naruse Shiyo, wearing a helmet, asked curiously.</p>
+<p>"When I asked Deputy Director Diana Lich, they said they would receive it on our behalf."</p>
+<p>Even without that, if I received the bounty by revealing myself, troublesome matters seemed likely to arise, so when I asked Diana Lich's side, they said they would solve it themselves.</p>
+<p>While I was obtaining USA Status, the US government side guaranteed that taxes would be exempted for such mission rewards or profits from actions taken as Black Knight, so I could obtain a pure 30 million Dollars without deducting taxes.</p>
+<p>Of course, as a company, taxes would be deducted for profits obtained by Cyberware, but such mission rewards were by no means a small Amount, so it could be said to be a considerably good Condition.</p>
+<p>"Team B, go to the back of the house... Team C, just in case a Secret Passage might exist, watch from afar. Team A will storm in."</p>
+<p>Roughly, the Operation was set up. Team A was composed of Members who wanted to directly beat Carmine Castello and had Fate with the dead Gwonmaeng members, and the remaining Teams B and C were assigned the Role of blocking escape.</p>
+<p>Since I felt like a Team Leader, I decided to go together as Team A. Because Team A People might lose their Fading Reason and beat Carmine Castello to death, it could be said I had the Role of stopping that.</p>
+<p>Kwang!</p>
+<p>Kujo Kina kicked and broke the door, entering first. In the living room, men who anyone could see were gangs were sitting on the sofa watching TV, but seeing us who suddenly stormed in, they were taking out pistols from their waist.</p>
+<p>"This Gun is the Problem!"</p>
+<p>Kujo Kina kicked the arm of the closest man. The man was about to take out a Gun, but his arm broke just like that. The rest of the Gwonmaeng People also rushed into the house and started hitting the gangs who were trying to take out Guns.</p>
+<p>"This way...!"</p>
+<p>Fujigasaki Rinka pointed in one direction. The gang was already being suppressed by the Gwonmaeng martial artists, so we had to find Carmine Castello, the Goal.</p>
+<p>We headed to the Place Fujigasaki Rinka pointed. There was a Secret Passage leading to the Underground.</p>
+<p>"I will lead the way."</p>
+<p>Because it was a Secret Passage with a narrow Passage continuing, difficult to avoid even if there was an Attack, I, with the strongest defense, decided to lead the way.</p>
+<p>After turning on the Lighting attached to my helmet, I ran, but perhaps he couldn't escape that far, as Carmine Castello's Appearance fleeing was seen. No matter how much he fled as soon as we stormed in, because we chased almost without delay, there was no chance of missing him.</p>
+<p>The Secret Passage wasn't that long. Carmine Castello exited the Secret Passage, and we also exited almost immediately, and it was a small port where several boats were docked.</p>
+<p>"Kueuk! W-what is it!?"</p>
+<p>I used Telekinesis to make Carmine Castello unable to move. As Carmine Castello stood unable to move, Fujigasaki Rinka approached. And raising her fist, she started hitting Carmine Castello.</p>
+<p>Thud! Puk! Puk! Thud!</p>
+<p>I watched from the side if Sabu used the Abyss, but she didn't use the Abyss, yet as expected of Sabu, the GOAT of Martial Arts, each blow was heavy even without using the Abyss.</p>
+<p>"Stop, stop now, Sabu...!"</p>
+<p>"Haa, haa, haa...!"</p>
+<p>As expected, it was Fujigasaki Rinka, sweating profusely as if not in her Condition. I stopped her fearing Carmine Castello might die, but a bigger Reason was that I saw Sabu's Condition rapidly worsening.</p>
+<p>"Kueuk! If you l-let me go, I'll give you Money! How much do you want? Right now, in that Family/Household, there's about 3 million Dollars! Take that! And let me go!"</p>
+<p>I tied Carmine Castello with arrest Cable ties I had prepared in advance. He tried to persuade me with Money, but the bounty was 30 million, and he tried to tempt me with 3 million... Truly, he was a pathetic man. Of course, as much as I heard this Information, I also intended to take the 3 million Dollars hidden somewhere Inside the House.</p>
+<p>"I caught him. The Position here is..."</p>
+<p>-I'll send agents immediately.</p>
+<p>When I told Diana Lich that I caught him, a helicopter came in less than 5 minutes. After putting Carmine Castello and the gang who were Inside the House onto the helicopter, they went back, but Kujo Kina's Expression looked bad.</p>
+<p>"What's wrong?"</p>
+<p>"I also wanted to hit him..."</p>
+<p>She was regretting it because she couldn't hit Carmine Castello, I see.</p>
+<p>"Sabu already hit him too much, so if even you hit him, he would have died."</p>
+<p>"Can't be helped."</p>
+<p>After the Federal Superpower Management Department agents left. I, together with the People who came all the way here, started searching the house where Carmine Castello was.</p>
+<p>After searching for a long time, I discovered a space Inside the wall, and there, three large duffel bags and two document bags came out.</p>
+<p>Of course, as the Obsidian Syndicate mainly sold Drugs as an Organization, Drugs popped out everywhere, but I had no Interest in Drugs, so I gathered them in one Place and decided to burn them.</p>
+<p>"Since I took everything I needed, let's get in the car."</p>
+<p>At my Words, everyone, holding their Luggage, got in the car. I intended to check the Luggage Inside the car.</p>
+<p>"What is inside, Ryuta-ssi?"</p>
+<p>Otagi Yuka asked curiously. So, I untied and showed the duffel bag. As expected, the duffel bag was fully packed with wads of 100-Dollar bills rolled into cylindrical bundles, as seen in gang movies or USA dramas, and a million Dollars each seemed to be inside one duffel bag. Since there were three duffel bags, Carmine Castello's 3 million Dollars was correct.</p>
+<p>Along with the duffel bag, in the document bag I took, there was a ledger with the names of New York police, politicians, and businessmen who had dealt with Carmine Castello, and this seemed like it could be usefully utilized when doing the Cyberware Business. If I entrusted it to Eve, she would use it well on her own.</p>
+<p>Again, returned to the Safe House, I gathered everyone. First, because they participated in the arrest Operation, I had to talk about dividing the Money.</p>
+<p>"How will you divide the Money?"</p>
+<p>Seizawa Shii asked curiously.</p>
+<p>"First, I'll divide 100,000 Dollars per Person."</p>
+<p>At my Words, everyone made a slightly disappointed Expression. The total bounty was 30 million Dollars, but when I said I would give only 100,000 Dollars per Person, they looked at me with an Expression that said, 'aren't you taking too much for yourself?'</p>
+<p>Of course, 100,000 Dollars is not a small Amount of Money, but still, since the total bounty is 30 million, being compared couldn't be helped.</p>
+<p>"Don't make such an Expression, first listen to all of the Story. With the remaining Money, I want to create a Foundation in preparation for when People who Work for me get hurt or die, what do you think?"</p>
+<p>At my Words, everyone said "Ah...!" and made an Expression of Sorry that they had doubted me. With two People dying in this Incident, no matter how much I was tainted by megacorp sensitivity, I thought that at least I should take care of those who died or got hurt while Working for me.</p>
+<p>So, with this bounty, I intended to create a kind of Foundation to use for People who got hurt or died for me.</p>
+<p>Of course, if this Money was used indiscriminately, it would someday run out, but if I combined various Investments with the Knowledge I have, the speed of the Money increasing would be faster than spending Money for my People, so I didn't worry about funds.</p>
+<p>As if my mind was conveyed, everyone seemed quite moved. To think of us like this...! It was that kind of Feeling. When such a soft and fuzzy, strange Atmosphere was formed, an Anomaly occurred.</p>
+<p>"Kueuk...!"</p>
+<p>Fujigasaki Rinka's Face rapidly turned pale, and then she started vomiting Blood. It seemed that even without using the Abyss, moving itself was too much for her.</p>
+<p>"Sabu!"</p>
+<p>I hurriedly ran to Fujigasaki Rinka and picked Sabu up.</p>
+<p>Gojoy-nim requested Han Yu-gyeong having a Conversation Inside the car and Han Yu-gyeong opening the hotel door~!</p>
+<p>Inside the car~!</p>
+<p>When I put in a shoe prompt, she somehow puts her Feet on the Sheet to show the shoes lol.</p>
+<p>Opening the hotel door~!</p>
+<p>MidNightSKY-nim requested phantom thief Mother and daughter wearing erotically modified phantom thief costumes~!</p>
+<p>Arisu~!</p>
+<p>Nae</p>
+<p>When erotically modifying the cyber Suit, I couldn't think of anything other than Cleavage, so I only made Cleavage hehe.</p>
+<p>TheDreaming-nim requested Herta Vogel at the observatory 1. Arm tied state 2. With limbs tied, breasts shaking~!</p>
+<p>1.</p>
+<p>2.</p>
+<p>Why is the color of the rope tying her limbs like this haha.</p>

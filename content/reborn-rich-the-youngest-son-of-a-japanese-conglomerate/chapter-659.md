@@ -5,83 +5,86 @@ weight = 659
 chapter = 659
 +++
 
-<p>"But how did you two get here? Isn't it a bit dangerous?"</p>
-<p>It wasn't a question of, 'Why did you come here?' but rather, shouldn't the Director of the Tairaga Group's Human Resources Development Center and the President of Tairaga Foods not come to the house of the youngest son of the Tairaga family, who is on a secret infiltration mission?</p>
-<p>"We used various methods to get here, so don't worry. We weren't caught by anyone."</p>
-<p>"We came carefully too, so don't worry."</p>
-<p>Well, since Yukiko-nim is a master of illusion, I probably don't need to worry about them being caught by anyone. Since Yukiko-nim is a succubus who can deceive both human eyes and machine eyes, she probably wasn't caught on the way to my house. Besides, Nagumo Sian-ssi is also a master of the art of Hermit techniques, so she must have had some method.</p>
-<p>"You should have told me in advance. Then I would have bought something delicious on the way."</p>
-<p>"We bought the delicious stuff, so don't worry about food."</p>
-<p>"That's right, we came because we wanted to do something for you, Ryuta-gun, so don't be too disappointed."</p>
-<p>Hearing Yukiko-nim and Nagumo Sian-ssi's words, I looked towards the kitchen and saw a lot of stuff piled up. There were various ingredients along with something in a large styrofoam box, but I didn't know what it was. It seemed like they bought quite a lot, as if they really wanted to cook for me.</p>
-<p>"It's the first time you two are cooking together for me."</p>
-<p>"Hmm.... Is that so?"</p>
-<p>"When Nae-ssi and I were at the Human Resources Development Center, we took turns cooking, so you wouldn't have eaten a meal we made together."</p>
-<p>At my words, Yukiko-nim tilted her head, saying, 'Was it?' while Nagumo Sian-ssi nodded, saying, 'Ah, that's right.'</p>
-<p>It was a story from a short time when Ha Ju-yoon-ssi was having a hard time because of her divorce and Nae Fitzgerald-ssi was also at the Human Resources Development Center. When the mommies were together in the house within the Human Resources Development Center, they took turns cooking for me, but they never cooked together.</p>
-<p>Yukiko-nim was busy with her work as the Director of the Human Resources Development Center back then, and when one person was cooking, the other two were busy tasting my dick.</p>
-<p>For reference, I've tasted the cooking of all four mommies, including Ha Ju-yoon-ssi and Nae Fitzgerald-ssi, and Nagumo Sian-ssi was the best cook. As the president of Tairaga Foods, she had so much experience with 'food' that her sense of taste and cooking skills were outstanding. I heard that she ran a successful food company before being scouted by Taira Danjo-nim to take over Tairaga Foods.</p>
-<p>Next was Ha Ju-yoon-ssi. She raised Han Yu-gyeong-ssi without receiving support from the Shin-gang Group, so she had been cooking steadily, and her cooking skills were considerable. Moreover, she had extra points for being the only Korean food expert among the three.</p>
-<p>The remaining two were similar in skill, but neither Yukiko-nim nor Nae Fitzgerald-ssi were deeply knowledgeable about cooking. The slightly better one was Yukiko-nim, who came from a commoner background and had done a little more cooking.</p>
-<p>Nae Fitzgerald-ssi was born and raised in the Tairaga family and then married into a wealthy American family, so she didn't have many opportunities to cook, making her the worst cook among the four.</p>
-<p>Yukiko-nim had her special move, the pork ginger grill, which she had made for me, so I gave her a higher score.</p>
-<p>"But I already ate lunch."</p>
-<p>"Ah, that's for dinner. We ate lunch before coming."</p>
-<p>Ah, I see. Then the reason they came so early.... There's only one reason, right?</p>
-<p>As I expected, both of them got up and naturally started taking off their clothes, srrrk srrrk. It seemed like wanting to make dinner was just an excuse, and they came to replenish their yang energy.</p>
-<p>They were both wearing coats, so I thought they were just wearing them because they were cold, but inside the coats, they were wearing sexy costumes that would excite me. No, did they prepare this much even though it's not a special day?</p>
-<p>Yukiko-nim was wearing a sweater dress with a completely open back, a style that was once a popular meme for killing virgins, and Nagumo Sian-ssi was wearing a pink sexy nurse costume with a low-cut chest and a white bikini inside.</p>
-<p>"No, what am I supposed to do if you wear this from lunchtime?"</p>
-<p>Seeing the figures of the two lewd mommies, the front of my pants naturally bulged out. They saw my protruding crotch and giggled at each other. It seemed like they didn't expect the reaction to be so fast.</p>
-<p>"So, does it not suit me?"</p>
-<p>"No, it's a problem because it suits you both too well."</p>
-<p>At my answer, Yukiko-nim opened her mouth again with a bewitching expression. It suited them very well.</p>
-<p>Yukiko-nim, with an outfit that could kill any virgin and a body optimized for squeezing out a man's semen, and Nagumo Sian-ssi, a kind big-boobed nurse who seemed like she would take care of any lewd desire.... I couldn't say it didn't suit them even if it was a lie.</p>
-<p>"Should I wear this every day?"</p>
-<p>"I, I can't wear this every day."</p>
-<p>Unlike Yukiko-nim, who jokingly asked if she should wear it every day, Nagumo Sian-ssi was relatively shy, her face flushed red, and said that she couldn't wear it like this every day.</p>
-<p>"You both only wear this in front of me."</p>
-<p>I can't show this appearance to other guys. If another man sees this appearance by mistake, I will pluck out his eyes.</p>
-<p>"Hehe, do you want to monopolize us?"</p>
-<p>"I have no intention of showing this side of me.... to anyone else."</p>
-<p>"Yes. I want to monopolize everything. Your current appearance, your usual appearance, your disheveled appearance in bed, everything is mine."</p>
-<p>Both Yukiko-nim and Nagumo Sian-ssi seemed satisfied with my answer and approached me with seductive expressions.</p>
-<p>And they knelt down in front of me and started to unzip my pants.</p>
-<p>With a zzziiip sound, the appearance of my hard-on in my underwear, showing the curve of my dick, was revealed, and they tore off my underwear.</p>
-<p>"It hasn't been that long, but.... I still like Ryuta-gun's dick smell."</p>
-<p>"Even if I see it every day, I don't think I'll ever get tired of this sturdy and strong dick♥"</p>
-<p>They looked at my erect dick with ecstatic expressions, then slowly came up while licking both sides of the shaft with their tongues and started sucking my glans at the same time.</p>
-<p>"Keueut! It feels.... so good."</p>
-<p>The mommy duo's combined attack was incredibly powerful. Until now, it was mostly a rotation method of having sex with one person and then having sex with the next, but this time it was a simultaneous attack, so it felt different.</p>
-<p>They would suck my glans at the same time, or one would suck my glans while the other would lick the back tendon of my dick or my balls in a joint attack, and their teamwork was quite good. It was a joint fellatio that felt so good that my legs were trembling.</p>
-<p>"Eueut...! I think I'm going to cum."</p>
-<p>The feeling of ejaculation rushed up in an instant, and I groaned and said that I was going to cum. It was a much earlier feeling of ejaculation than usual. That meant their mouths felt that good. At my words, they opened their mouths as if telling me to cum quickly. I didn't hold back my ejaculation and shot semen on their faces as they were.</p>
-<p>Byu-ut~! Beut! Byu-ut!!</p>
-<p>Thick, cloudy liquid covered Yukiko-nim and Nagumo Sian-ssi's faces, painting their faces white. They both opened their mouths, but there was so much that while a lot went into their mouths, even more missed and was sprayed on their faces.</p>
-<p>"Heuheung...♥"</p>
-<p>"Such a waste...."</p>
-<p>They licked their faces covered in each other's semen and their necks and upper chests where the semen was dripping down, and started sucking my semen. Seeing that appearance, my dick couldn't help but skip the afterglow and become big again.</p>
-<p>"There must be baby juice left here too."</p>
-<p>Nagumo Sian-ssi looked at my erect dick and put her mouth to the urethral opening, starting to suck the semen remaining in my urethra as if sucking on a straw. Yukiko-nim, who was looking at my dick with regret for being late, raised her body and sucked on my nipples, then gradually went up to suck on my neck, and soon found my lips and started kissing.</p>
-<p>"Haeum~! Chwook, tsuup, chwup♥"</p>
-<p>I didn't know if it was the sound of kissing or the sound of sucking my dick, but the tsu-eup tsu-eup sound echoed through the room, and I started moving my hands too.</p>
-<p>I touched Yukiko-nim's back, which was completely bare, then lowered my hand to touch Yukiko-nim's magical butt, which was both soft and chewy, and touched Nagumo Sian-ssi's bikini breasts, which were exposed in the front, enjoying the softness.</p>
-<p>I felt incredibly good just from the touch of my hands. I didn't think there could be a more pleasant touch than this among the sensations I could feel with my hands.</p>
-<p>"Haeuh.... Haeut! It feels, haeut! strange, aahhang♥"</p>
-<p>"Tsu-eup, tsuup...! Haeut...! Not there♥"</p>
-<p>Whether my caresses felt as good as the sensations I was feeling, Nagumo Sian-ssi and Yukiko-nim's breathing became rougher, and their moans also started to get louder.</p>
-<p>After a long time of the three of us intertwining, licking, and sucking, we moved to the bedroom, which was perfect for sex.</p>
-<p>"First, leave your clothes on and just take off your panties."</p>
-<p>They went to the trouble of wearing sexy clothes, so I had to enjoy them enough. I was going to take off their clothes when they were completely soaked with fluids, semen, saliva, etc., and couldn't be used anymore.</p>
-<p>I wasn't such a rude man as to ignore their efforts in choosing clothes and immediately make them naked.</p>
-<p>"Hehehe.... Here."</p>
-<p>"It's embarrassing, but my panties are here too."</p>
-<p>They handed me their panties as if they had promised to. No, I only told them to take them off, not to give them to me. But since they're giving them to me, I have to accept them.</p>
-<p>I took their panties in each hand and smelled them one by one.</p>
-<p>Yukiko-nim, who is a succubus, had a sweet scent that was different from humans, and Nagumo Sian-ssi, who cleanses her body with Hermit techniques, had a refreshing scent. Of course, they both had very lewd smells, and they were spreading pheromones from their panties that made my dick even harder.</p>
-<p>"I can't stand it anymore, so both of you spread your legs."</p>
-<p>_______</p>
-<p>Yukiko in a virgin-killing sweater</p>
-<p>The back view is the best, hehe</p>
-<p>Nagumo Sian in a nurse costume.</p>
-<p>Strangely, her breasts get so much bigger when she wears this outfit, ddd</p>
+<p>Warning! An illustration featuring underwear appears~! Please check your surroundings and enjoy!</p>
+<p>Kukukukuku!</p>
+<p>The Helmeted Woman, Seizawa Shii, called Ogre, and Kinui Tachio's Momentum clashed, and the atmosphere trembled. Of the two who briefly faced off, Seizawa Shii was the first to move.</p>
+<p>Whooong!</p>
+<p>With a sound of roughly cutting through the Wind, Seizawa Shii's Fist grazed Kinui Tachio's Cheek. If Kinui Tachio hadn't twisted his Head to the Side in surprise, the Match would have ended with this one strike.</p>
+<p>'Strong and fast...!'</p>
+<p>Even though the Fist only grazed, the Leather of his Cheek tore and Blood splattered. Of course, Kinui Tachio didn't stay still either. Kinui Tachio kicked Seizawa Shii's outstretched Arm.</p>
+<p>Seizawa Shii also pulled back her outstretched Hand to avoid Kinui Tachio's kick, but it was still a little late and it grazed her.</p>
+<p>Paang!</p>
+<p>With a sound like a Leather Drum bursting, the Arm part of the sturdy rider Suit, which could protect the Body in a car accident, burst off.</p>
+<p>Dozens of exchanges went back and forth in an instant, but a clean hit never landed. This was because both knew that each other's strikes were fatal and focused on Evasion of the Opponent's Attack.</p>
+<p>"You're swift!"</p>
+<p>"You too...!"</p>
+<p>The two, who each uttered One Word while looking at each other, shifted up a Gear even further. Kinui Tachio unleashed a Killing Move using Pa-hyeong-ryu, a martial art he founded, and Seizawa Shii also began to use the inherited martial art of the Seizawa Family.</p>
+<p>**Pa-hyeong-ryu (破形流) Hachiku (破竹: Splitting Bamboo)**</p>
+<p>**Seizawa Yeongsin-ryu (清澤 影身流) Kagekire (影切: Shadow Cut)**</p>
+<p>Pa-hyeong-ryu Hachiku was a Technique that cut the Opponent's grain as if splitting Bamboo, and Seizawa Yeongsin-ryu Kagekire was, as its meaning 'splitting shadows' implied, a Swift Strike of immense speed.</p>
+<p>The two, who crossed paths at immense speed, stood in that Place for a Moment. The one who opened her Mouth first was Seizawa Shii.</p>
+<p>"Pervert.... Old man!"</p>
+<p>Paang!</p>
+<p>At Kinui Tachio's strike, the rider Suit burst into pieces, leaving only her Underwear. Of course, due to the Trait of Pa-hyeong-ryu, a Fist Technique focused on internal heavy hand techniques, not only were her Clothes torn, but her Internal Organs seemed to have been damaged in one strike, as Blood dripped from between her Helmet.</p>
+<p>"Kueeeuk...! Who are you calling a Pervert! There's nothing to see!"</p>
+<p>"What? Are your Eyes crooked, Grandfather?!"</p>
+<p>Kinui Tachio's Clothes hadn't all burst off like Seizawa Shii's, but he was bleeding from his Mouth. Seeing that his Complexion had turned slightly pale, it seemed he had suffered some Internal Injury. Of course, Kinui Tachio's injuries didn't end with just a slight Internal Injury.</p>
+<p>With decades of Battle experience, he succeeded in deflecting Seizawa Shii's Kagekire with his Shoulder, but due to Seizawa Shii's immense Super Strength, his Shoulder bone had cracked.</p>
+<p>In conclusion, the Result of the fight so far was close to a draw. Seizawa Shii had suffered Undressing and considerable Internal Injury, and Kinui Tachio had suffered a slight Internal Injury and a cracked Shoulder bone, effectively sealing off one Arm.</p>
+<p>"You'll pay the Price for seeing me in my Underwear, old man!"</p>
+<p>"Hmph! Why didn't you wear sturdier Clothes?"</p>
+<p>It was an Injury that would send a Layperson straight to the emergency room, but their Fighting spirit was not yet dead. They were preparing to leap back in to finish off their Opponent. But their Match ended here.</p>
+<p>Jjak! Jjak! Jjak! Jjak!</p>
+<p>This was because applause suddenly echoed. The Muscles that were Taut Tension as if about to rush at their Opponent at any Moment suddenly relaxed at the sound of the applause.</p>
+<p>"Remarkable, Ogre!"</p>
+<p>"You are...?"</p>
+<p>The one who appeared, clapping, was the Glasses-wearing, smiling Man, Funayama Seigo. Kinui Tachio naturally knew Funayama Seigo's Face. This was because the one who killed Kinui Tachio's first Disciple was Funayama Seigo. Kinui Tachio, extremely filled with Anger, shouted.</p>
+<p>"This thing! Funayama Seigo!!"</p>
+<p>"Hahahaha, old man, we'll see each other again in a Moment. I have something to say to my fixer."</p>
+<p>Seizawa Shii, watching Funayama Seigo and Kinui Tachio, who were acting strangely, realized that she had some Misunderstanding.</p>
+<p>The Person who should clearly be angry should have been Funayama Seigo, whose Orphan Children had been Kidnapping. But Kinui Tachio was erupting in Anger at Funayama Seigo as if seeing an irreconcilable Enemy.</p>
+<p>"Ogre-ssi, I didn't know you would do so well. I didn't know you would put up an even Match against old man Kinui Tachio. I only thought you'd tire him out a bit. It's a Reward to have hired you with such a large sum of Money."</p>
+<p>"Did you deceive me?"</p>
+<p>"Deceive you? I have never told a Lie. It's a Fact that I am the director of Senya Children's Welfare Facility, and it's a Fact that that old man kidnapped my Orphans. However...."</p>
+<p>However? Seizawa Shii waited for Funayama Seigo's next Words.</p>
+<p>"Only that we first kidnapped the Children from their Parents is what I didn't say."</p>
+<p>"...!"</p>
+<p>Seizawa Shii fell into Confusion. It was as if she had washed her Face with Ice Water, and her Mind suddenly cleared. Why had she believed all that Man's Words? Was it because of the introduction from an agent she trusted? Or because she had checked the Orphanage Business Card...? Seizawa Shii was confused as to why she had made such a Choice.</p>
+<p>"Ogre-ssi, your innate physical Ability seems immense. That's a considerable advantage. But because of that innate physical Ability, you seem not to have experienced the Worry a Martial artist should. Things like the Fear of Defeat, the Thrilling Fear of Failure, and intense Worry for Victory. A Fist Technique practitioner who hasn't worried about such things cannot train their Mind. It's very easy for me to bewitch a Person with such a weak Mind."</p>
+<p>As Funayama Seigo said, Seizawa Shii's innate physical Ability was so great that at the young Age of twenty, she could match Kinui Tachio, who was highly evaluated in the martial arts world.</p>
+<p>But because she became strong too easily, she couldn't experience the intense martial arts Worries that ordinary Fist Technique practitioners would experience as they grew, and she showed a Gap to Funayama Seigo, who was most skilled in Sorcery and Curse among the Four Heavenly Kings, and was momentarily bewitched.</p>
+<p>"You, you played with my Mind?"</p>
+<p>"Played with? Usually, Martial artist with weak Mental Power are disqualified in the martial arts world, but I quite like them. You will surely become an excellent member of An-yaji. Hahahaha...."</p>
+<p>Funayama Seigo, who had been laughing for a long Time, flew in like a ghost and kicked Seizawa Shii, who was in Confusion. Seizawa Shii crashed into the light truck she had destroyed and fell away with a Kung sound, and Funayama Seigo, not paying attention to the fallen Seizawa Shii, this Time, approached Kinui Tachio.</p>
+<p>"Your Disciple begged pitifully to be spared. I dislike pitiful People. My Hands became rough without me realizing it."</p>
+<p>"You, you...! Crazy Bastard!"</p>
+<p>The enraged Kinui Tachio spat Blood and threw a Fist. But his Opponent was one of An-yaji's Four Heavenly Kings, and Kinui Tachio, who was not in perfect condition, had suffered Internal Injury from the battle with Seizawa Shii, and one Arm was sealed, could not contend with him.</p>
+<p>Funayama Seigo lightly dodged Kinui Tachio's Fist, then raised his knife hand above his Head as if bringing down a Sword.</p>
+<p>"I'll send you to where your Disciple is, old man!"</p>
+<p>"Bullshit!"</p>
+<p>A strange Voice suddenly came from behind. Funayama Seigo, startled, swung the knife hand he had raised above his Head backwards. But the knife hand Funayama Seigo swung only cut through empty space in Emptiness.</p>
+<p>The one who appeared was the red-haired, golden-eyed Woman, Otagi Yuka. Otagi Yuka, whom Taira Ryuta had sent to check, after observing The Situation for a Moment, had intervened at the decisive Moment.</p>
+<p>"Shii! Get up!"</p>
+<p>Although Seizawa Shii was wearing a Helmet, she couldn't deceive Otagi Yuka, who possessed sharp Sensation. She immediately realized that the helmeted Woman was Seizawa Shii. Otagi Yuka shouted at the fallen Seizawa Shii. As she heard her familiar friend's Voice, Seizawa Shii stirred and grabbed the Remains of the light truck, getting up. Seeing Otagi Yuka, who had suddenly appeared, she expressed bewilderment, as if surprised, saying, "Yuka-chan?"</p>
+<p>"Who are you?"</p>
+<p>"The Person who will kill you."</p>
+<p>Otagi Yuka, simultaneously with her Answer, drew out long Blood Energy from her Claws and swung it at Funayama Seigo. Funayama Seigo, swiftly like a ghost, dodged Otagi Yuka's strike and moved to a distant Place.</p>
+<p>"A Vampire!"</p>
+<p>Funayama Seigo shouted, seeing Otagi Yuka's Blood Energy. And at the same Time, he surveyed the Battle Situation. Both Kinui Tachio and Ogre had Wounds they had inflicted on each other, but both were emitting Killing Intent towards him. If it were just the two of them, he could easily win, but with that Vampire Woman joining, he was bound to be at a Disadvantage.</p>
+<p>"Is it 3-on-1? Ogre-ssi, if it's like this, there will be no request fee?"</p>
+<p>"I don't need a request fee from you!"</p>
+<p>For Funayama Seigo, it was a Situation where he couldn't escape. If he ran away, these three would return to the Dojang and ruin An-yaji's Plan.</p>
+<p>The best Funayama Seigo could do was stall for Time. As Funayama Seigo gestured with his Hand, An-yaji's martial monks in black robes sprang out from the bushes.</p>
+<p>In preparation for Ogre and Kinui Tachio not fighting, these were the martial monks who had cast a wide-area Sorcery that produced an effect similar to Gwangpuk-in at this meeting Place. It was to make them aggressive and immediately start a fight, and since these martial monks had joined Funayama Seigo, it seemed he could stall for plenty of Time.</p>
+<p>"Time is on my Side. Once they Harm all the People in the Dojang, my comrades will rush here. Then you will be finished."</p>
+<p>As Funayama Seigo spoke, wearing an Expression of reassurance from the joined An-yaji martial monks, Otagi Yuka's Expression suddenly turned strange.</p>
+<p>"Hahahaha! Ahahahaha!"</p>
+<p>It was Otagi Yuka, laughing like Crazy after hearing Funayama Seigo's Words. Funayama Seigo frowned, watching Otagi Yuka laughing like Crazy.</p>
+<p>"Why are you laughing?"</p>
+<p>As Funayama Seigo asked with a displeased Attitude, Otagi Yuka, who had stopped laughing, opened her Mouth.</p>
+<p>"You don't know what kind of Monster is inside that Dojang. It means that if you stall for Time, you'll be at a Disadvantage."</p>
+<p>Otagi Yuka smiled, recalling a few People inside the Dojang. More than Funayama Seigo's conviction, Otagi Yuka trusted her comrades inside the Dojang. Above all....</p>
+<p>'Because Teacher-ssi is there.'</p>
+<p>______</p>
+<p>Seizawa Shii in Underwear and Helmet Attire.</p>
+<p>I thought it would come out well, but it surprisingly didn't. kkeuk kkeuk kkeuk</p>

@@ -5,85 +5,108 @@ weight = 694
 chapter = 694
 +++
 
-<p>Oofuchi Erika hurriedly got into the car and headed to the office SearchEye had rented.</p>
-<p>"Driver-nim, please wait in the security office at the entrance, as always."</p>
-<p>"Yes, Agassi."</p>
-<p>Oofuchi Erika, having asked her driver and bodyguard to wait in the security office, slowly climbed the stairs. At first, she climbed the stairs slowly, conscious of the bodyguard, but her pace gradually quickened. Eventually, she was practically running up.</p>
-<p>'They might have already started...!'</p>
-<p>She felt impatient. The time it took to travel from her house to the office by car wasn't long, but she was unnecessarily anxious that Daigo Terue and her homeroom teacher, Yamashiro Ryuta, might have already started something.</p>
-<p>Click!</p>
-<p>"Haa.... Haa...."</p>
-<p>Even though it was only the second floor, she was out of breath from rushing up. Oofuchi Erika passed the reception room where she greeted clients and guests and entered her office, which was filled with various computers and VR equipment. Oofuchi Erika's office contained a lot of sensitive information, so it could only be opened with a doorknob that was registered with Oofuchi Erika's entire palm print.</p>
-<p>With the sound of "Authenticated," the door opened, and Oofuchi Erika entered the office and began turning on her equipment.</p>
-<p>"Not yet. Thank goodness."</p>
-<p>Oofuchi Erika said, looking at the 16-split screen that was just turning on on one side of the monitor. The 16-split screen was showing the interior of the Daigo mansion where Oofuchi Erika lived, and in the corner of the screen, in the dining room, Daigo Terue and Yamashiro Ryuta were having a meal.</p>
-<p>"She's prepared quite a spread. It's all stamina-boosting food, Mom, really..."</p>
-<p>Oofuchi Erika smiled once as she watched the two of them, who hadn't yet started their full-fledged affair(?), and then leisurely turned on the rest of her equipment.</p>
-<p>She turned on the high-end VR diver equipment along with the top-spec computer that ran it, and took out an energy drink from the office refrigerator and drank it all at once.</p>
-<p>"Oh...! It's starting."</p>
-<p>Oofuchi Erika watched the screen where Daigo Terue grabbed Yamashiro Ryuta's sleeve and led him to the bedroom and put on her VR diver helmet.</p>
-<p>The moment she put on the helmet, the surroundings were filled with a black screen. It was the basic VR dive screen with only a few menus displayed.</p>
-<p>"CCTV, connect to sector 2."</p>
-<p>-Connecting to sector 2.</p>
-<p>At Oofuchi Erika's command, she was instantly transported to Daigo Terue's bedroom with an emotionless voice. A regular CCTV or hidden camera wouldn't allow for VR diving, but if state-of-the-art optical depth cameras were installed in multiple directions, it was possible to implement a VR dive environment.</p>
-<p>That's why she could now watch Yamashiro Ryuta and Daigo Terue's rendezvous as if she were watching from the side.</p>
-<p>-Haa, haa.... Come this way.</p>
-<p>Of course, she had also installed small audio equipment, so she could hear the sounds vividly. The only things she couldn't feel were touch, smell, and taste.</p>
-<p>She was satisfied enough with this level of realism, but she had recently heard that technology was being developed to absorb odor molecules and transmit sensations similar to them, so Oofuchi Erika was very much looking forward to it.</p>
-<p>The two of them took off their clothes in an instant, as if they were in a competition to see who could undress faster. It was already the second or third time she had seen it, but every time, it was a perfect body.</p>
-<p>A large frame filled with masculine muscles, and above all, a huge cock that looked like it could only be seen in American porn, it was a perfect body.</p>
-<p>"Haa.... Daddy...♥"</p>
-<p>Oofuchi Erika lowered her hand without realizing it as she looked at Yamashiro Ryuta. She felt a tingling sensation as she lightly touched her already moist and embarrassing spot.</p>
-<p>-It's been too long♥</p>
-<p>"That's right, it's been too long, Daddy."</p>
-<p>Oofuchi Erika said in agreement as Daigo Terue knelt in front of Yamashiro Ryuta and took a deep breath of his cock's scent.</p>
-<p>Right now, she was more envious of her mother, Daigo Terue, than anything else. She wanted to bury her nose in Yamashiro Ryuta's crotch and take a deep breath of his scent.</p>
-<p>Following that, Daigo Terue licked the back tendon of his cock with her tongue and moved upwards, and Oofuchi Erika stuck out her tongue inside the helmet.</p>
-<p>"Haa, haa...! Daddy's cock is so big...!"</p>
-<p>The sound of Daigo Terue's sloppy tongue licking his cock and Oofuchi Erika's desperate moans were heard together.</p>
-<p>-Tsuup, tsup.... Euhuk! Big...! Tsubeup...!</p>
-<p>Watching him sucking his cock in earnest and Yamashiro Ryuta closing his eyes and enjoying the pleasure made her lower region unbearably itchy.</p>
-<p>And she wondered if she could suck that huge cock herself, and she opened her mouth as wide as possible. She thought she might be able to.</p>
-<p>Oofuchi Erika had quite a knack for this kind of lewdness, as she had been a hikikomori until the first semester of her third year of high school.</p>
-<p>She had a lot of time to kill locked up in her room, and she had the computer skills to do VR dives, so she enjoyed quite a bit of lewd content. Of course, she had no real-world experience as a hikikomori.</p>
-<p>Oofuchi Erika was opening and closing her mouth wide in preparation for a possible real-world experience(?).</p>
-<p>"Ah, Daddy... Erika wants you to touch her breasts too...♥"</p>
-<p>At some point, the fellatio was over, and they were caressing each other's bodies, and the way he was kneading Daigo Terue's large breasts like rice cakes was impressive.</p>
-<p>Oofuchi Erika, being Daigo Terue's daughter, had considerably large breasts, so she was touching her own breasts in a similar way to how Yamashiro Ryuta was touching them, and the synchronization rate was quite high.</p>
-<p>But there were also things that Oofuchi Erika couldn't imitate. That was insertion. No matter how many porn movies she had watched, Oofuchi Erika, a timid hikikomori, couldn't bring herself to break her hymen, which she had heard was painful.</p>
-<p>-Huuung, Ryuta-ssi, put your big thing in me quickly♥</p>
-<p>She looked at her mother begging for his cock with a mixture of envy and fear. Every time she saw it, she wondered if it really didn't hurt, seeing how wide her pussy was getting.</p>
-<p>Of course, she could tell that it wasn't painful at all, seeing Daigo Terue begging like that and getting lost in pleasure.</p>
-<p>Puuk!</p>
-<p>-Huaaaaahat! Heoheong!</p>
-<p>"Haaang...!"</p>
-<p>She could compare the degree of pleasure by the moans at the moment of insertion. Daigo Terue, who was being inserted, rolled her eyes back and writhed as if she was about to faint, making a sound that was neither a moan nor a roar, and Oofuchi Erika, who was masturbating while watching this, only ended up making a small and cute haang♥, so it ended with a small moan.</p>
-<p>"Haa, haa, haa.... Daddy, I'll be an adult soon. So...."</p>
-<p>-Haaak! Hiit! It's too big!! Cock! It's so Heut! Big! Feels so good Haang...♥</p>
-<p>Oofuchi Erika muttered as she watched Yamashiro Ryuta and Daigo Terue overlapping each other, but her voice was drowned out by Daigo Terue's loud moans.</p>
-<p>###</p>
-<p>After spending the afternoon in bed with Daigo Terue, Daigo Terue even suggested dinner, but I shook my head.</p>
-<p>"If I'm there for dinner too, Oofuchi will think it's strange."</p>
-<p>Of course, seeing her call me "Daddy," she seemed to have guessed the relationship between me and Daigo Terue to some extent, but I also had some work to do ahead of the launch of TG Tech's new firearm, so I had to refuse dinner, using Oofuchi Erika as an excuse.</p>
-<p>"Is that so? That's a shame."</p>
-<p>"I'll stop by often. Actually, I've been incredibly busy since the graduation trip, right?"</p>
-<p>"That's right...."</p>
-<p>In fact, I hadn't been able to meet her because Daigo Terue had been busy, rather than because I had been busy. There was the aftermath of the graduation trip, followed by the festival, and in addition to St. Francis Girls' Academy, there was also work at the Daigo Educational Foundation, so there was no time to meet separately.</p>
-<p>"I'll be going."</p>
-<p>"Yes. I'll invite you again. You can return the lunchbox with Erika's help."</p>
-<p>Daigo Terue was determined to pack me a lunchbox instead of dinner, and she packed a huge one. She gives off a motherly vibe in these situations. I smiled and replied that I would enjoy it, and then headed home.</p>
-<p>I thought I would finish my work for the day by checking a few documents while eating the lunchbox and then checking the target information I had entrusted to Joseodang.</p>
-<p>As I walked slowly, thinking about what I had to do today, I was already in front of my house. But I couldn't go inside and had to stop.</p>
-<p>That's because a woman with scarlet eyes and a platinum-blonde Baekgyaru were standing on the road in front of my house.</p>
-<p>"Shii? Yuka?"</p>
-<p>Seizawa Shii and Otagi Yuka were standing in front of my house, facing each other, and they seemed to be unhappy about something, judging by the way they were glaring at each other.</p>
-<p>"What's going on?"</p>
-<p>"What about you, Ryuta-jji? Is it okay for a student to come and go from your house like this?"</p>
-<p>Otagi Yuka had the key to my house, and it seemed like Seizawa Shii was saying something about that. Is it like, "Why don't you give it to me when you've had sex with me too?"</p>
-<p>"Teacher-ssi, you reek of women? Who did you meet this time? And since when have you been in this kind of relationship with Seizawa Shii?"</p>
-<p>Hmm. They're both making it difficult for me. I knew that they were both aware of each other's power since the beginning of the semester and were paying attention, but I didn't expect this kind of atmosphere.</p>
-<p>"There are people passing by here, so let's go inside and talk."</p>
-<p>I didn't want a more difficult situation to arise here, so I went inside the house with both of them.</p>
-<p>____________</p>
-<p>Oofuchi Erika~!</p>
-<p>She should be wearing a VR helmet, but the helmet has been omitted hehe</p>
+<p>I felt Han Yu-gyeong's heartbeat with my hand as I rode the elevator up. With a *dding* sound indicating arrival, I got off at Han Yu-gyeong's place.</p>
+<p>I opened the door with fingerprint recognition and entered the house, feeling warmth unlike the cold outside. She must have cranked up the boiler because I was coming.</p>
+<p>"Myaa...."</p>
+<p>"Woof!"</p>
+<p>"Guheong...!"</p>
+<p>As I entered the house, Han Yu-gyeong's summons came out to the entrance to greet me. The shadow panther Nero, the sacred white dog White Bear, and the grizzly spirit Teddy all greeted me with their respective cries as if saying it had been a while. They're all cute even after a long time.</p>
+<p>"Hey guys, it's been a while."</p>
+<p>"Gyarureureung...!"</p>
+<p>"Woof woof!"</p>
+<p>"Uheong...!"</p>
+<p>I petted each of Han Yu-gyeong's summons once, took off my shoes, and entered the house.</p>
+<p>"Wait a minute...! I'll fix you breakfast."</p>
+<p>Han Yu-gyeong put on an apron and headed to the kitchen. With the sound of the lights turning on, a good smell soon began to waft out. Judging by how quickly the smell was coming, it seemed like she had already done some cooking before coming to meet me. It seemed like she was just heating up the pre-made dishes now.</p>
+<p>"Come over here and sit down~!"</p>
+<p>"Okay."</p>
+<p>I was playing with Han Yu-gyeong's summons when Han Yu-gyeong called me, saying she had finished cooking. When I went to the kitchen, a typical Korean home-style meal was set up. Warm miso stew, quite a few side dishes, stir-fried pork, and rolled omelet were set on the table.</p>
+<p>"Wow...! Looks delicious."</p>
+<p>Of course, I ate Korean food in Japan too, but I mostly ate single-item menus, and it had been quite a while since I had eaten such a home-style meal, so my mouth watered without me even realizing it.</p>
+<p>"Uhehehe.... Enjoy your meal."</p>
+<p>"Yeah, I'll eat well."</p>
+<p>I sat across from Han Yu-gyeong and started breakfast. Even though it was morning, I had burned a lot of calories because I had been naked wrestling with Minamoto Risa until dawn, so I ate well. Han Yu-gyeong's cooking was surprisingly delicious too. Still, it didn't seem like all of it was Han Yu-gyeong's cooking. As a busy college student and career woman, I figured she probably bought the side dishes from a side dish shop.</p>
+<p>"It's been a while since I've had such a hearty breakfast."</p>
+<p>"I'm glad you're enjoying it."</p>
+<p>Han Yu-gyeong barely ate and just propped her chin up with both hands, watching me eat. She looked so proud that I was eating well.</p>
+<p>"Yu-gyeong-ah, aren't you eating breakfast?"</p>
+<p>"I don't really eat breakfast.... Plus, I ate some while cooking earlier, and a few spoonfuls just now are enough."</p>
+<p>She didn't usually eat breakfast anyway, so it seemed like this was enough. After finishing our meal, we completed the dishwashing by putting the dishes in the dishwasher, and then we brushed our teeth together, looking at each other in the bathroom mirror. We brushed our teeth while looking at each other's faces in the mirror and laughing, and when we came out, Han Yu-gyeong seemed to have something prepared, so she stopped me in the living room.</p>
+<p>"Yong-tae-yah, wait here for a second...!"</p>
+<p>Han Yu-gyeong ran to the bedroom, *tatatak*, as if she had prepared something, and closed the door. What did she prepare? After waiting a bit, I heard Han Yu-gyeong's voice from the bedroom, saying, "Come in~!"</p>
+<p>Click.</p>
+<p>I opened the bedroom door and entered the room, and Han Yu-gyeong was waiting for me, wearing the uniform of St. Francis Girls' Academy. Han Yu-gyeong, looking at me wistfully against the background of the window, looked like a painting. But why is she wearing the St. Francis Girls' Academy uniform?</p>
+<p>Han Yu-gyeong, who had entered the bedroom, looked at me and then called me with a slightly embarrassed expression and a smile.</p>
+<p>"Ehehe, Yong-tae-ssi, teacher-niim~!"</p>
+<p>Yong-tae-ssi, teacher-nim.... I knew that Han Yu-gyeong liked role-playing because she resembled the actress Ha Ju-yoon, but I didn't know she would even prepare the St. Francis Girls' Academy uniform.</p>
+<p>"When did you prepare this? The uniform is exactly the same?"</p>
+<p>"What are you talking about? It's my uniform, you know?"</p>
+<p>Han Yu-gyeong, already completely immersed in the role, asked back in Japanese. She had been studying hard for the past few months, and it seemed like she had become completely fluent in Japanese.</p>
+<p>"Ah, I must have been mistaken. So, Yu-gyeong-yang, why did you request a consultation with me?"</p>
+<p>If Han Yu-gyeong was going to do method acting, I thought I should play along, so I decided to treat Han Yu-gyeong like a teacher too. I have acting skills too, so I should be able to have a situational comedy *tikki takka* with Han Yu-gyeong.</p>
+<p>"The reason I requested a consultation with the teacher is...."</p>
+<p>Han Yu-gyeong brought her index fingers together and twisted her body shyly, then looked at me as if she had made up her mind.</p>
+<p>...Her acting is amazing? Is she really Ha Ju-yoon's daughter?</p>
+<p>"Since no one will know the story we share here, tell only me, teacher."</p>
+<p>"Whenever I see the teacher, this place keeps getting weird and tight♥"</p>
+<p>At the same time as she spoke, Han Yu-gyeong raised her skirt with a lewd expression. She was showing off her white panties like a student, and her pussy area was wet.</p>
+<p>"Is that so...? It might be hurting somewhere, so this teacher should check it out."</p>
+<p>I said calmly and squatted down in front of Han Yu-gyeong. Then I put my face close to Han Yu-gyeong's panties. Han Yu-gyeong flinched at my breath, saying, "Teacher...♥."</p>
+<p>Swoosh...!</p>
+<p>I raised my finger and caressed Han Yu-gyeong's mound of pussy. I stimulated Han Yu-gyeong by touching her already wet panties, and she couldn't stand it, so she put her hand on my shoulder and leaned on me.</p>
+<p>"Heuh...! Teacher, haeuheung...! Yong-tae-ah ah...♥"</p>
+<p>Han Yu-gyeong immediately broke out of her immersion due to the pleasure she felt after a long time.</p>
+<p>"Ehehe, you have to call me teacher."</p>
+<p>"I... I don't know, Yong-tae-yah's hand feels so good♥"</p>
+<p>If it feels good, I should do more. I slyly moved the panties to the side and then put a finger into Han Yu-gyeong's pussy.</p>
+<p>"Haaang...! Yong-tae-yah hang♥ Your finger, heueut, is thick, euhee...! It feels so good haaang...."</p>
+<p>The pleasure my finger was giving was so great that she couldn't stand anymore and was almost clinging to me.</p>
+<p>"It's been a while, heueu, I can't calm down, haheut! Kiss, kiss, kissyu... Give me a kiss, Yong-tae-yah...!"</p>
+<p>"Yeah, come here."</p>
+<p>It seemed like she was accepting the pleasure more sensitively because it had been a while, so Han Yu-gyeong started looking for my tongue, which was a psychological stabilizer (?). I found that cute, so I pulled Han Yu-gyeong's face and started kissing her.</p>
+<p>Chuup, chup, jjeuup, jjeubib...!</p>
+<p>Jjilgeok, jjilgeok, jjilgeoeok...!</p>
+<p>The sound of tongues mixing and the sound of my finger teasing Han Yu-gyeong's narrow pussy were heard at the same time, making the atmosphere in the room even more lewd.</p>
+<p>Every time I touched her pussy, Han Yu-gyeong's tongue became more lewdly intertwined. After enjoying the sensation of Han Yu-gyeong's tongue and pussy for a while, I took my lips and fingers off and started undressing Han Yu-gyeong. Han Yu-gyeong also took off my clothes at the same time, so we were almost naked at the same time.</p>
+<p>"I don't need any more foreplay, so put it in now...!"</p>
+<p>Han Yu-gyeong, already excited as much as she could be, showed off her gaping pussy and begged me for my dick. I also grabbed my dick, which was throbbing with excitement, and pushed my glans into Han Yu-gyeong's pussy.</p>
+<p>"Heueueeung...!"</p>
+<p>Han Yu-gyeong grabbed between my waist and butt and pulled me towards her. Of course, my vaginal entrance and my glans were aligned, so when Han Yu-gyeong pulled, it was naturally inserted.</p>
+<p>Jjilgeoeok...!</p>
+<p>Han Yu-gyeong's pussy wriggled and squirmed violently as if welcoming my dick. As expected, it was a top-notch pussy that felt good no matter when I put it in.</p>
+<p>"Haeueueueheut...! Yong-tae-yah's dick♥ It's been a while ahaat...! Heueung...!"</p>
+<p>"Yu-gyeong-yang's pussy too, keueut...! It's been a while."</p>
+<p>Jjilgeok, jjilgeok, jjilgeok...!</p>
+<p>Han Yu-gyeong wasn't a virgin or anything, so I didn't need to put it in and wait for her to get used to it, and I immediately started piston movements. Of course, her vagina had become quite narrow because I hadn't done it with her for a while.</p>
+<p>"Heueu, haeu...! Heueut...! Haeueuheut...! Yong-tae-ah aahng...!"</p>
+<p>With the repeated piston movements, Han Yu-gyeong hugged my body and whispered lewd moans in my ear. I also hugged Han Yu-gyeong and moved my waist, violating Han Yu-gyeong's pussy with long and fast strokes.</p>
+<p>The feeling of being in close contact with each other's bodies was very good. The feeling of Han Yu-gyeong's big breasts being pressed and the feeling of sweaty skin being in close contact made us feel like we were becoming one.</p>
+<p>"Heueup, chup, chueuup...! Chup...! Jjook...♥"</p>
+<p>At the same time, we kissed without either of us being first, and since we were connected above and below, it really felt like we were mixing together and becoming one.</p>
+<p>I don't know why, but I felt so good today because it had been a while since I had done it with Han Yu-gyeong. I had done it with Minamoto Risa several times until dawn, so I would have to shake it for a while before I felt the urge to cum, but I felt the semen coming up before I had even shaken my waist for long.</p>
+<p>Han Yu-gyeong also seemed to be getting close to climax, as her white skin was gradually turning pink and she was getting hot. It felt good to hold her, as she was warm. Han Yu-gyeong before climax was like a living heater.</p>
+<p>I couldn't tell Han Yu-gyeong that I was going to cum because we were in the middle of a kiss. But Han Yu-gyeong, perhaps feeling my increasingly violent piston movements, spread her legs even wider and tried to accept my dick deeply.</p>
+<p>Thud thud thud!</p>
+<p>The sound of flesh hitting flesh was getting faster and faster, and Han Yu-gyeong's pussy was also wriggling more and more, greatly stimulating my dick. As the slippery and warm pussy brushed against my glans and stimulated it, I couldn't stand it anymore and started cumming in the deepest part of Han Yu-gyeong.</p>
+<p>Byuut! Byuut! Byuut!</p>
+<p>"...!"</p>
+<p>At my ejaculation, Han Yu-gyeong also pulled my waist with her hands and stiffened her whole body. Perhaps because we were in the middle of a kiss, she reached a silent climax without moaning. The pleasure was so great that she couldn't even move her tongue, and she was receiving my semen and all the pleasure my dick was giving her.</p>
+<p>"Haa, haa, haa...! Yong-tae-yah's dick felt so good that I couldn't breathe...."</p>
+<p>Han Yu-gyeong took her lips off and looked at me with loving eyes. She seemed to feel very good as she caressed my cheeks with her hands.</p>
+<p>"I felt really good too...!"</p>
+<p>"Kkyahang...! Inside Yong-tae-yah's, heueung...! I can feel it moving, throbbing, throbbing...♥"</p>
+<p>Han Yu-gyeong was saying that the movement of my dick, which was still spitting out semen little by little, felt good, and Han Yu-gyeong's pussy was wriggling as if she couldn't leave a single drop of semen behind, squeezing my dick, so I quickly became hard inside Han Yu-gyeong.</p>
+<p>"Haaahang...! As soon as it gets this big, then...♥"</p>
+<p>"Do you hate it when it gets big?"</p>
+<p>At my question, Han Yu-gyeong shook her head with a sexy expression that craved something.</p>
+<p>"No.... I like it♥"</p>
+<p>The expression on her face as she said she liked it was so seductive that the little bit of afterglow I had immediately disappeared. Before shaking my waist, I brought my mouth to Han Yu-gyeong's ear and whispered.</p>
+<p>"Merry Christmas."</p>
+<p>"I like Yong-tae-yah's gift♥"</p>
+<p>Is my gift sex? I chuckled at Han Yu-gyeong's words and started shaking my waist.</p>
+<p>______</p>
+<p>Han Yu-gyeong B-cut!</p>
+<p>St. Francis Girls' Academy student Han Yu-gyeong.</p>
+<p>Panty-showing Han Yu-gyeong</p>
+<p>Strangely, she didn't show her panties clearly, hehe. So it was hard to make them, hehe.</p>
+<p>Sex scene Han Yu-gyeong.</p>

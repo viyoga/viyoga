@@ -5,74 +5,73 @@ weight = 344
 chapter = 344
 +++
 
-<p>Yamashiro Ryuta: Head teacher-nim, I have a question, so I'm leaving a message on LINE.</p>
-<p>As soon as I left a fairly polite message on LINE, a reply came from Kasaoka Yuzuki. It felt like she had been waiting, replying in just one second; it seemed she had been well-trained over the weekend.</p>
-<p>Kasaoka Yuzu(ki): What's your question?</p>
-<p>Yamashiro Ryuta: I was wondering what to do about students who keep skipping school.</p>
-<p>In fact, from the perspective of just doing my mission, I wouldn't need to care about hikikomori students, but since I'm their homeroom teacher, I felt like I should at least pretend to do something, so I asked Kasaoka Yuzuki, the head of the grade.</p>
-<p>Later, if they say I didn't do anything, Kasaoka Yuzuki will be my witness.</p>
-<p>Kasaoka Yuzu(ki): There might be a lot of students in the special class who don't come to school. All the information on the 3rd-year students comes to me, so please wait. I'll check the special class's data.</p>
-<p>All the student information comes to Kasaoka Yuzuki. This is pretty big information. I need to call the delivery health service more often to capture Kasaoka Yuzuki. If I have a firm grip on the information, it will be useful for my mission.</p>
-<p>Kasaoka Yuzu(ki): Counting Egawa Alexandra, who transferred to the 3rd-year special class today, there are a total of 13 students. If we exclude the two who can't come due to suspension and one who informed me in advance, there's only one student who's absent without notice... Oofuchi Erika (大渕 絵理香).</p>
-<p>Ah, there were kids in our class who were suspended or told me in advance they wouldn't come? No, the previous homeroom teacher screwed things up, so I didn't get a proper handover, and I just thought there were four kids who weren't coming to school without notice.</p>
-<p>Then it seemed like I only needed to contact the parents of the student named Oofuchi Erika separately. Thankfully, the amount of work I have to do has been reduced to a quarter.</p>
-<p>Idol Uesonozo Karen, who often skips, and the sickly girl Naruse Shiyo, contact me in advance to say they can't come. The other four don't contact me at all, so I thought they were all absent without notice. Everyone except Oofuchi Erika had their own reasons.</p>
-<p>But there are two students suspended, so the special class is quite scary... I should check later what kind of trouble they caused.</p>
-<p>Yamashiro Ryuta: This is the first time I'm hearing about the suspension and the advance notice. That's why I was wondering why the attendance rate wasn't good.</p>
-<p>Kasaoka Yuzu(ki): Didn't you receive the 3rd-year special class student roster?</p>
-<p>Yamashiro Ryuta: I did, but that information wasn't there.</p>
-<p>Kasaoka Yuzu(ki): Ah, that was all written in the special notes on the last page, but it seems the administration side didn't print it out properly.</p>
-<p>As expected, even if I'm a newbie, it didn't seem like this was my fault. It seemed like there was an error or a paper shortage while printing the roster to give to me, and they didn't notice and just handed it over.</p>
-<p>Yamashiro Ryuta: Then I'll go pick it up now.</p>
-<p>Kasaoka Yuzu(ki): Yes, I'll have it printed out.</p>
-<p>I thought I would be visiting the faculty room building for the last time for a while after receiving the attendance book for the Korean class in the morning, but in the end, I'm going there again on the same day. Still, there was quite a bit of information I was curious about, so it wasn't too much of a hassle.</p>
-<p>Honestly, it's a bit of a pain, but the rules of Saint Francis Girls' Academy require that materials containing student information must be received in person, so I couldn't help it.</p>
-<p>I came out of the education preparation room and looked at the closed classroom door of the special class right next to it. Concentrating my senses and listening to the sound, it seemed like it was Japanese classics time.</p>
-<p>It's a field I don't know at all, so let's just go straight to the faculty room. I walked slowly along the path next to the sports field, watching the students doing physical education. The PE teacher was a muscular man with short-cropped hair and tanned skin, wearing a white short-sleeved shirt. His eyes were long and narrow, giving him a slightly snake-like impression.</p>
-<p>Our eyes met for a moment as I walked, but it wasn't a good feeling. He was a teacher who gave off the feeling of being a pervert at first glance. Judging by the color of the kids' gym uniforms, he seems to be the 3rd-year PE teacher... I should tell Alik, Konoe Akina, and Otagi Yuka in advance. I should tell them to tell me immediately if the PE teacher does anything weird.</p>
-<p>Before I knew it, I arrived at the faculty room and went to the 3rd-year head teacher's office. Kasaoka Yuzuki was waiting for me with a slightly anxious expression. Does she get nervous just by seeing my face? Even though she doesn't know that I know her true identity.</p>
-<p>,Yamashiro-sensei, here are the materials."</p>
-<p>,Thank you for preparing them."</p>
-<p>I received the paper with the special notes written on it from Kasaoka Yuzuki. I can read it later in the education preparation room, and I don't really have anything to say to Kasaoka Yuzuki, so I should go back right away. Kasaoka Yuzuki doesn't know that I'm aware of her true nature yet, so there's not much to say. We don't have much contact normally anyway.</p>
-<p>,I'll be going now."</p>
-<p>,Yes, go ahead."</p>
-<p>After a formal greeting, I walked back to the education preparation room, looking at the sports field again. I should install an ultra-small camera in a hidden place in the PE storage or the indoor sports field. I was enough of an existence to devour women in this school.</p>
-<p>Alik is here too, so I can't let a perverted teacher run rampant. If he gets caught doing something bad, I'll kill him with my own hands.</p>
-<p>I arrived at the education preparation room, resolving to commit murder. Quite a bit of time had passed, and it was almost time for lunch. Hmm, I should have lunch with the school nurse, Kijimoto Jurie, again today. I can check the special notes after lunch.</p>
-<p>###</p>
-<p>,First of all, it's important to gather even one student."</p>
-<p>,That's definitely true."</p>
-<p>Konoe Akina and Otagi Yuka were sitting in the classroom, eating bread they bought from the cafeteria, and talking about the dating experience club.</p>
-<p>Minamoto Risa and Seizawa Shii glanced at them as lunch break started and headed to the cafeteria. They probably want to talk in the cafeteria.</p>
-<p>,According to Ryuta-nim's words, we have to gather students who don't belong to any clubs, so it's going to be quite difficult."</p>
-<p>Otagi Yuka nodded at Konoe Akina's words. At Saint Francis Girls' Academy, where the principle was at least one club per person, creating a new club was quite difficult. Almost everyone is affiliated with a club, so it was hard to find students who weren't.</p>
-<p>,Listening to what the teacher-ssi said during morning assembly today, it seems like most of the students in our class haven't joined a club. How about we target the kids in our class who don't have a club first?"</p>
-<p>Konoe Akina also nodded at Otagi Yuka's words. First of all, if the closest classmates don't have a club, it would be easier to get them to join. It's easier to talk to someone you know than to talk to someone you don't know at all.</p>
-<p>,But we can't give up on the kids without clubs among all the students... How about we make a poster to recruit members and put it up on the school bulletin board?"</p>
-<p>,That's basic, so we definitely have to do it. But I don't have any talent for making posters..."</p>
-<p>Otagi Yuka, who usually leads an active life, had no talent for making something cute and detailed. But Konoe Akina smiled as if to say not to worry.</p>
-<p>,I like making those kinds of things, so leave the poster to me."</p>
-<p>,Then while Konoe is making the poster, I'll ask the kids in our class."</p>
-<p>The two decided to divide the work. While Konoe Akina was making the poster to put up on the school bulletin board, Otagi Yuka decided to promote the club to her classmates.</p>
-<p>###</p>
-<p>,Heeeh... Things have gotten bigger."</p>
-<p>Seizawa Shii muttered powerlessly, cutting the gyukatsu she received from the cafeteria.</p>
-<p>She just wanted to create a meditation club that would make school life easier, but now there's competition. For Seizawa Shii, who has a laid-back personality, it has become a troublesome matter.</p>
-<p>Minamoto Risa ignored Seizawa Shii's grumbling and elegantly twirled the pasta in front of her and brought it to her mouth. Then, she chewed the food exactly 30 times before swallowing and opening her mouth.</p>
-<p>,Don't worry. I have something in mind."</p>
-<p>,Huh? Can we win? Risa-tan~! Tell me quickly!"</p>
-<p>Seizawa Shii was curious about Minamoto Risa's calm attitude and begged her to tell her quickly. In Seizawa Shii's eyes, the dating experience club seemed much more fun than the boring meditation club.</p>
-<p>,The homeroom teacher told us to do it fairly, but there are no specific laws for creating a club."</p>
-<p>,Right? Five members and one advisor are all the rules, right?"</p>
-<p>As Seizawa Shii said, there were no specific rules for creating a club except for five members who don't belong to a club and one advisor. Minamoto Risa was planning to take full advantage of this loophole-filled rule.</p>
-<p>,First, I'm going to request the list of students who don't belong to a club from the Minamoto Group's information team."</p>
-<p>,You're so smart, Risa-tan! We can know our targets exactly."</p>
-<p>Minamoto Risa was planning to borrow the power of her family. Since there was no rule prohibiting borrowing the power of the family, Minamoto Risa boldly decided to use the power of the Minamoto Group.</p>
-<p>,And then we'll target each student with a customized strategy. If we have information from the information team, we can target them easily."</p>
-<p>,Then what should I do?"</p>
-<p>Seizawa Shii looked at Minamoto Risa with sparkling eyes. Minamoto Risa smiled at Seizawa Shii.</p>
-<p>,Shii just needs to trust me and follow me."</p>
-<p>Minamoto Risa was confident that she would win. If she could borrow the power of the Minamoto Group, that is.</p>
-<p>---</p>
-<p>Masked Girl Sakagami Rena</p>
-<p>She's a mysterious girl~!</p>
+<p>When I opened my eyes in the morning, Kijimoto Jurie was looking at me naked. The morning sunlight streaming in through the window cast shadows that accentuated Kijimoto Jurie's overwhelming figure, and before I knew it, my dick, already experiencing morning wood, was standing completely erect.</p>
+<p>Kijimoto Jurie smiled at my standing dick, which was looking up at the sky, and then spoke to me.</p>
+<p>"You're energetic from the morning, huh?"</p>
+<p>"Seeing you already awake, Kijimoto-sensei, it seems your stamina is amazing too?"</p>
+<p>I reached out and fondled Kijimoto Jurie's breasts while lying down. As expected, touching her soft breasts felt great. It was a touch that was incredibly good for mental health.</p>
+<p>By the way, yesterday was her first time, yet she was tormented by me all night and woke up earlier than me; isn't her stamina stat higher than mine? That can't be. First time or not, the sleeping place changed, so she probably woke up early.</p>
+<p>"I'm confident in my stamina because I've been steadily practicing family martial arts."</p>
+<p>As expected, Kijimoto Jurie was also from the prestigious St. Francisco Academy and had learned martial arts passed down through her family. I don't know because I'm surrounded by martial arts club members and Kijimoto Jurie, but I had a feeling that the average martial prowess of the members of St. Francisco Academy was high.</p>
+<p>In the first place, with the family teacher Shimokawabe Airen, one of the future Three Swordsmen, the average would inevitably be very high. Besides, I'm here too.</p>
+<p>Let's see, there's still plenty of time. After checking the time, I pulled Kijimoto Jurie's arm. As expected, Kijimoto Jurie, the nurse teacher who teaches health class, realized what my current actions meant and blushed.</p>
+<p>"Ah...! A-are you going to do it from the morning...?"</p>
+<p>"I can't resist when you show me such a sexy body from the morning."</p>
+<p>"Haa...! I'm not drunk, so I'm embarrassed."</p>
+<p>Ah, yesterday she was drunk, so she boldly seduced me. Now she's sober, and it's morning, not night, so she must be embarrassed. But I can't always rely on the power of alcohol to have relations with me, so she'll have to indulge me from the morning.</p>
+<p>"Nooo...! I'm getting weird from the morning, haaheung♥!"</p>
+<p>Kijimoto Jurie had no choice but to have sex with me until the last minute. If we went to work together (especially since one of us was still in yesterday's clothes), strange rumors would spread, so I sent Kijimoto Jurie ahead and went to work about 3 minutes later.</p>
+<p>"Yamashiro-sensei, good morning."</p>
+<p>"Yes, Hokumori-ssi."</p>
+<p>I greeted Hokumori Atara, one of the security guards at St. Francisco Academy, and entered the school. I was a little later than usual, so I hurried to the special class building.</p>
+<p>Several tasks had arrived on the fax machine. I took the documents out of the fax printer and read them. Ah, we're going on a picnic next week. When you look at it, the third-year high school students at St. Francisco Academy had a schedule so relaxed that they couldn't be called seniors.</p>
+<p>They seemed to do most events, such as picnics, school trips, sports days, festivals, and graduation trips. Is it because of the automatic university admission system? There was no intense feeling like Korean high school seniors.</p>
+<p>Of course, there was a class called the Special Advancement Class where only female students studied to enter prestigious universities like Edo University, but it was said that the Special Advancement Class was not actually a class but operated like a club. Is it a system where only the aces from each class gather to study?</p>
+<p>Of course, our special class had no members of the Special Advancement Class. Because there were only troublemakers.</p>
+<p>"Next page...."</p>
+<p>The next task is to appoint a class president and vice president. Except for three people, all the students belong to the Date Experience-Meditation Club, and there are a president and vice president, but the class president and vice president are different, so I have to tell the kids.</p>
+<p>The rest was just useless routine work. I sat down and worked for a while, and then it was time for the morning assembly, so I took the attendance book and entered the classroom.</p>
+<p>"Good morning."</p>
+<p>"Yes, sensei~!"</p>
+<p>"Ryuta-jji, you look a little tired today?"</p>
+<p>"Did you do something naughty?"</p>
+<p>When I greeted them, some of them looked at me with sly expressions. It seemed like they were doing it because I left with Kijimoto Jurie yesterday.</p>
+<p>"Don't talk nonsense. Attendance is.... Uenozono-yang came, so only one person is absent."</p>
+<p>Today, Uenozono Karen, who is an idol, was sitting in her seat. She didn't come all week, and she's attending after a long time. When I looked at Uenozono Karen, she smiled like an idol and greeted me with her eyes.</p>
+<p>"I was threatened that I would be held back if I missed just one day, but what about the kid who didn't come to school at all?"</p>
+<p>Minamoto Risa grumbled at my words. Yes, it was a little strange as Minamoto Risa said. Oofuchi Erika advanced directly to the special class without being held back even though she didn't have enough attendance days, so it seemed like she was receiving much more special treatment than Minamoto Risa of 'that' Minamoto family.</p>
+<p>Since I decided to visit her home at 10 o'clock, I'll know the truth when that time comes.</p>
+<p>"And what I'm announcing today is about the picnic next week and the class president and vice president."</p>
+<p>Both were interesting stories, so the students were buzzing. St. Francisco Academy goes on picnics determined by the school until middle school, but from high school, each class decides where they want to go, so it feels like a class social gathering.</p>
+<p>"Let's elect the class president and vice president first, and then decide on the picnic location under the leadership of the class president and vice president."</p>
+<p>Um, I decided, but it's a good idea. If I elect a class president and vice president and subcontract my work to them, that would be great. I can't give them full-fledged work, but I can definitely entrust them with things like deciding on a picnic location.</p>
+<p>"Is there anyone who wants to run for class president or vice president, or anyone you want to recommend?"</p>
+<p>The buzzing of the female students stopped for a moment at my question. According to what I heard from Kijimoto Jurie while eating lunch before, the class president and vice president were quite popular due to the circumstances of the prestigious families who didn't want to lose to each other, but this is a special class with only troublemakers. Of course, these rebels wouldn't want to take on troublesome tasks.</p>
+<p>"I'll be the class president."</p>
+<p>The one who raised her hand was Minamoto Risa. Yes, even if it's a special class, the young lady of the Minamoto family can't miss the class president position. She probably doesn't want to be the class president, but she doesn't want to serve another class president. From my perspective, where Minamoto Risa is the target, it would be great because there would be more contact if she were the class president.</p>
+<p>"I'll be the vice president."</p>
+<p>The female student who raised her hand to be the vice president was Shido Tsubaki. She was the former head of the newspaper club, and the look in her eyes behind her glasses was the kind that said, 'I know all your secrets,' so she was a bit uncomfortable. Of course, she doesn't know that I'm Taira Ryuta, but I can't help but feel uncomfortable with reporters.</p>
+<p>"Anyone opposed?"</p>
+<p>As expected, there was no one. I didn't know the class president and vice president would be decided so quickly.</p>
+<p>"Now that the class president and vice president have been decided, everyone clap~!"</p>
+<p>Everyone clapped at my words. Most of them were clapping insincerely and waiting for my next words because they were more interested in the picnic next week than the class president and vice president.</p>
+<p>"Then, you two come out and decide on the picnic location with the kids."</p>
+<p>At my words, both of them came forward and stood in front of the podium. I went to the side in advance and sat in an empty chair.</p>
+<p>Since it was still summer, the picnic was divided into a valley faction and a sea faction, and as a result of the show of hands vote, the sea faction won. Will I be able to see everyone's swimsuits then...? For reference, Alik voted for the valley because he enjoyed the previous Seryutai Valley outing.</p>
+<p>It took quite a while to argue and vote for the places they wanted to go, so after that, the bell for class preparation rang, and it was only decided that they would go to the sea, but it was not decided exactly where to go.</p>
+<p>"Then, talk about it every break time and decide exactly where to go and let me know. I won't be in the education preparation room in the morning because I have work, so let me know after lunch."</p>
+<p>"Okay, sensei."</p>
+<p>"We should be able to decide by then."</p>
+<p>Minamoto Risa and Shido Tsubaki nodded and answered at my words. It was right to entrust it to the class president and vice president. I didn't have to adjust it, and the opinions were decided on their own, so it was less tiring and good.</p>
+<p>Returning to the education preparation room, I reported the appointment of the class president and vice president to the faculty room by phone and prepared to leave.</p>
+<p>Since I have to visit Oofuchi Erika's house at 10 o'clock, it seems like the timing will be perfect if I leave now.</p>
+<p>From the data I collected, the Oofuchi (大渕) family is a family that ranks at the bottom among prestigious families and is not a very prestigious samurai family. In terms of family status, they barely managed to get into St. Francisco Academy.</p>
+<p>Then the family wouldn't be able to use their power to give her favors. My curiosity will be resolved soon.</p>
+<p>The Oofuchi family's mansion was surprisingly not that far away. About a 5-minute walk from St. Francisco Academy? For a family at the bottom of the prestigious families, it's quite close to the school...? Even around here, the house prices must be quite expensive....</p>
+<p>I rang the bell of the house with the nameplate that said Oofuchi.</p>
+<p>-Who is it?</p>
+<p>"I'm Yamashiro Ryuta, Oofuchi Erika-yang's homeroom teacher."</p>
+<p>-Ah, come in.</p>
+<p>With the words 'come in,' the door clicks open. I slowly opened the door, walked through the yard, and entered the house. When I opened the door, a woman who appeared to be the homeowner was standing in front of the entrance, waiting for me.</p>
+<p>"Huh?!"</p>
+<p>I couldn't help but make a dumbfounded sound when I saw the homeowner's face. This was because Oofuchi Erika's parent was someone I never expected.</p>

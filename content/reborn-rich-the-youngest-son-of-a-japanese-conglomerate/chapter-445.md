@@ -5,77 +5,55 @@ weight = 445
 chapter = 445
 +++
 
-<p>,I'm feeling better now. Please move, my lord."</p>
-<p>Sakagami Rena-ssi whispers in my ear, seeming to have recovered a bit from being held. It seems the wound from her hymen tearing healed quickly thanks to using the sacred pillar. I slowly pull my dick out almost all the way, then slowly part her pussy lips and thrust my dick back in.</p>
-<p>,Haaah, euheuheueuahng...♥"</p>
-<p>As I slowly start to piston, Sakagami Rena-ssi lets out a long moan and hugs me tightly, as if she can feel my dick even better inside. She crosses her legs behind my waist, putting me in a Leg Lock and clinging to me completely.</p>
-<p>At first, it's slow, but then it gradually speeds up, and Sakagami Rena-ssi's moans turn into high-pitched, short, broken cries. Perhaps due to the intense pleasure, the Leg Lock with her legs crossed quickly loosens, and the whites of her eyes gradually increase.</p>
-<p>,Haaahng, haaht! My lord, haaht! Hht! Ahng! Aht! Too, hheut! Much, seyooot♥"</p>
-<p>,But you like it, right?"</p>
-<p>Even though she said it was too much, it wasn't a negative reaction. So, I poked at the weak spot where Sakagami Rena-ssi was showing a good reaction and asked, and she couldn't come to her senses and answered.</p>
-<p>,Yeah, euheung, haaht! Too euheuheung♥ Gooood...!"</p>
-<p>If she likes it, I should do more. I continued to shake my waist until Sakagami Rena-ssi felt the ultimate climax. Sakagami Rena-ssi had a sensitive constitution, but her recovery was quite fast.</p>
-<p>,Haa, haa, haa.... My lord, I'll serve you now♥"</p>
-<p>She quickly recovered from the climax and said that she would serve me this time, offering to do a cowgirl position where she shakes on top. As she pulled out my dick, she went, Haaheut! and climaxed again for a moment, but even in that situation, she laid me down and climbed on top of me.</p>
-<p>,I'll start now, my lord.... Haaht!"</p>
-<p>Sakagami Rena-ssi, who swallowed my dick in an instant, moved her waist so flamboyantly that it didn't feel like it was her first time.</p>
-<p>It really seemed like she was learning something like bedroom arts in her family. Sakagami Rena-ssi was working hard to apply the bedroom arts she had learned theoretically in the practical experience she was having with me.</p>
-<p>,Haaht, this movement... Hheut♥ This feeeeling...! Hheut, I like it, Sensei-nim...! Hheuheung!"</p>
-<p>This.... It doesn't feel like service, but just like she's trying everything she learned in theory. It's not service, it feels like I'm a love doll and Sakagami Rena-ssi is masturbating. But that doesn't mean I don't feel good, I do feel good.... Okay, since it feels good, let's see how far she goes.</p>
-<p>,Haaheueung, haaht! Keep going, haaheueheuheung♥ Sensei-nim's is so big that the inside is pounding...!"</p>
-<p>It was a masturbatory movement with no interaction, but Sakagami Rena-ssi, perhaps aware that it was a service, continued to shake her waist to get my semen out, even as she climaxed several times. Sakagami Rena-ssi's efforts were not in vain, and I slowly began to feel the urge to ejaculate.</p>
-<p>,Keueut, the semen is slowly coming up!"</p>
-<p>,Euheuheueung, please cum inside as it is...! Please give me my lord's precious baby seed, haaheueheuheung♥ Give it to the deepest part of me...! Haaht!"</p>
-<p>Sakagami Rena-ssi sat completely on top of me to receive the semen in the deepest part, then rotated her waist as if rubbing. Feeling the glans rubbing against her cervix, I eventually had no choice but to ejaculate into the deepest part of Sakagami Rena-ssi.</p>
-<p>Beureureut! Beueut! Beureut!</p>
-<p>,Haaaaaht! It's hot, haaheung. Is a man's semen this euheuheung, hot...? Haaht♥"</p>
-<p>Sakagami Rena-ssi leaned her body on mine as if collapsing, trembling.</p>
-<p>,No, I'm special."</p>
-<p>I hugged Sakagami Rena-ssi from below and whispered in her ear. Sakagami Rena-ssi answered in a tired voice, saying, "I knew it."</p>
-<p>No matter how tired her voice was, I couldn't let her rest more. She might be mentally exhausted, but her physical condition would be excellent thanks to the sacred pillar. I can't keep making her do sex like masturbation with no interaction like just now.</p>
-<p>Still, I'm her teacher, so I have to teach her well. Who else would teach her this?</p>
-<p>###</p>
-<p>The morning was hectic. When I opened my eyes, Sakagami Rena-ssi was lying next to me sleeping, and when I checked the time, it was 8:30. It seemed that Sakagami Rena-ssi had turned off the alarm. Sakagami Rena-ssi, who was a student, wasn't late, but I, who was a teacher, was late. Teachers have to be there thirty minutes before the morning assembly, so now was the exact cutoff for being late.</p>
-<p>,Sakagami!"</p>
-<p>,Hheuheung, Juguuuun♥"</p>
-<p>Sakagami Rena-ssi smiles and hugs me as I shake her. I hugged Sakagami Rena-ssi as she was and went into the shower room to take a shower. If I had a little more time, it would have been shower sex right away, but I didn't have enough time, so I just took a shower and came out. I was a little disappointed, so I vowed to have shower sex later.</p>
-<p>,Do you want to eat breakfast?"</p>
-<p>,No, I'll take something from the club room refrigerator and eat it separately."</p>
-<p>Perhaps she was considerate of me, who was moving busily because I was late, she said she wouldn't eat breakfast, so I took out a packaged sandwich from the refrigerator. The club room refrigerator had a lot of snacks and convenience foods, so it wasn't bad to take something from there and eat it.</p>
-<p>,I'm going to stop by my house, Sensei-nim."</p>
-<p>Sakagami Rena-ssi had to stop by her house because she wasn't wearing her school uniform. She took a shower with me, so she just needs to change her clothes.</p>
-<p>,See you at school."</p>
-<p>,Yes~! See you later, my lord♥"</p>
-<p>I parted ways with Sakagami Rena-ssi at the entrance of my house and went to school at a fast pace. I was very close to the school and prepared quickly, so I was able to get past being 15 minutes late. Kasaoka Yuzuki-ssi contacted me, but I made the excuse that I was late because I overslept while preparing the exam questions, and she let it go.</p>
-<p>,Are you just coming now? You have to go in for the morning assembly now, Yamashiro-sensei."</p>
-<p>,Ah, I'm sorry."</p>
-<p>Kurayamada Kirie-ssi was preparing the morning assembly in advance, so as soon as I arrived at school, I threw my luggage in the education preparation room and headed straight to the classroom. Sakagami Rena-ssi was wearing her school uniform and came to the classroom without being late. She smiled at me, so I also gave her a nod.</p>
-<p>After finishing the morning assembly in such a hectic manner and returning to the education preparation room, Kurayamada Kirie-ssi gives a strange smile.</p>
-<p>,Yamashiro-sensei, you know, right? Follow me."</p>
-<p>After the morning assembly, Kurayamada Kirie-ssi was trying to drag me to the 5th warehouse again. Now she's just trying to use me as a dildo under the guise of blackmail. Kurayamada Kirie-ssi was trying to take me away as if this was a set routine. But now the situation has completely changed. I stood firmly in that spot and did not follow Kurayamada Kirie-ssi.</p>
-<p>,Yamashiro-sensei?"</p>
-<p>No matter how much she pulled, I didn't follow, so she called my name and looked at me as if she was strange, so I gave her the most vile smile I could.</p>
-<p>,I'm going to try blackmailing you now."</p>
-<p>,Yes?"</p>
-<p>I showed Kurayamada Kirie some of the data I received from Sakagami Rena yesterday. Kurayamada Kirie's expression stiffened as she read it. Then she pulled out a tanto (a dagger, a Japanese sword with a blade length of 1 shaku [30 cm] or less) from somewhere and swung it at me.</p>
-<p>It was a very quick strike, but not to the point where I couldn't avoid it. But I stood still with a confident smile without dodging.</p>
-<p>As I thought, Kurayamada Kirie-ssi couldn't attack me and only ended up aiming the blade right in front of my Adam's apple. There was no murderous intent from the beginning, and I was just standing still because I was confident in my regeneration ability even if she attacked, but as expected, my prediction was correct and it ended with just aiming the sword.</p>
-<p>,If you kill me, one of the people who investigated this data will spread all the data."</p>
-<p>,Keueut...."</p>
-<p>She had only shown a confident smile until now, but she was flustered and glared at me at the same time, which made me a little excited. I took a step forward with a shuffling sound. Kurayamada Kirie-ssi pulled the tanto back as much as the distance I approached.</p>
-<p>I approached and put my hand under Kurayamada Kirie-ssi's skirt. Perhaps she was already excited just by my touch, sticky liquid was creating a long silver line in her pussy.</p>
-<p>,I like your body too, so I'm not going to stop having sex. But from now on, I'll only do it when I want to. You know who will lose if we reveal each other's secret secrets, right?"</p>
-<p>If we reveal the facts we are hiding from each other, I can just go back to the Taira Group, but for Kurayamada Kirie-ssi, it would be at least prison and at most the annihilation of Jinildang. Of course, I would also be behind in the succession structure within the Taira Group because I didn't do my job properly, but my situation was much better than Kurayamada Kirie-ssi's.</p>
-<p>,Since there's nothing else to blackmail with, let's just go to school quietly and give each other our bodies when we want to."</p>
-<p>Where else can you find such a nice blackmail? I'm not asking for money, I'm not raping, I'm just saying let's have sex when we want to since we're going to have sex anyway, I'm not a blackmailer, I'm a gentleman.</p>
-<p>,We're going to do it here today. Lock the door and come."</p>
-<p>,Keueut...! You perverted Bastard...."</p>
-<p>Pervert.... Wasn't it perverted when she took me and ate me? That's harsh. Kurayamada Kirie-ssi didn't seem to understand having sex with students from the classroom right next door, but this special class building was quite soundproof. Of course, if you put your ear to the door and listened, you could hear moans, but you couldn't hear them just passing by.</p>
-<p>,Take off your clothes."</p>
-<p>As soon as Kurayamada Kirie-ssi locked the door and came, I made her undress. Kurayamada Kirie-ssi started to take off her clothes slowly with a glaring look (this time it must be a real glare).</p>
-<p>----</p>
-<p>The reason why Sakagami Rena-ssi's nude illustration yesterday didn't have fishnet stockings</p>
-<p>I'm sure when she was wearing the ninja outfit before, it was just fishnet stockings on bare legs, but when I made it nude, it changed to white stockings....</p>
-<p>Everyone! I'm not a pervert who doesn't know about this stuff!</p>
-<p>Kurayamada Kirie-ssi's ninja outfit!</p>
-<p>Kkieeeek!!</p>
+<p>an before but check erotic illustration is no panties please slight so surroundings there with your After finishing the physical comfort for Daigo Terue, I came out and walked the darkening night road. Oofuchi Erika was also having a study group with other Students until late at night, so fortunately, while having Sex with Daigo Terue, Oofuchi Erika didn't burst in saying, 'I'm back~!'</p>
+<p>After summer passed, as I was hit by the cool wind and slowly walked the night road, I suddenly saw my Home. As I slowly approached, between the dark shadows, I saw someone leaning against the wall, and upon closer inspection, it was Otagi Yuka. It seemed she was waiting for me... What's the matter?</p>
+<p>「Teacher-ssi.」</p>
+<p>Otagi Yuka also seemed to have found me, and called out to me. Since she was a Vampire with bright night vision, she immediately spotted me and was waving her Hand in greeting.</p>
+<p>「Let's go inside first.」</p>
+<p>As a Teacher, I couldn't have a Student in a School Uniform stand in front of my Home and talk, so I took Otagi Yuka Inside the House.</p>
+<p>「First, sit on the sofa. Do you want something to drink?」</p>
+<p>「Semen... no, give me a glass of water.」</p>
+<p>When I poured her a glass of water, Otagi Yuka took a one shot and then looked at me. Her Gaze was so complex that I couldn't suppress my bewilderment and opened my mouth.</p>
+<p>「By the way... what's the matter?」</p>
+<p>「Teacher-ssi, what exactly did you do to my Body?」</p>
+<p>「Huh?」</p>
+<p>What is she saying? Could it be that she's talking about her Body constantly itching because she had Sex with me? But in Otagi Yuka's facial expression, I couldn't find such Sexual Heat.</p>
+<p>「Can you explain what's going on?」</p>
+<p>「After doing it with Teacher-ssi, that... I'm not hungry, blood-wise.」</p>
+<p>Not being hungry blood-wise means that as a Vampire, she doesn't need to consume Blood. I've played as a Vampire in TMC, so I generally know that when the Blood Sucking Impulse, commonly expressed as hunger, arises, the Field of Vision turns red, allowing one to easily Blood Suck at any time, by seeing through the skin to the Veins of passing Humans and even their Hearts that supply Blood.</p>
+<p>Of course, since it's expressed in a game, it might be different from Reality, but Otagi Yuka said that after having Sex with me, the Blood Sucking Impulse doesn't occur, so it seemed she came because she was worried.</p>
+<p>「I don't know either....」</p>
+<p>Honestly, it wasn't that I had no Guess, but I said I didn't know because I wasn't sure.</p>
+<p>「Perhaps, Teacher-ssi's that... that white, liquid.」</p>
+<p>Otagi Yuka seemed to have a similar thought to mine. Because my Semen volume is so large, usually when I Ejaculate, Semen Refluxes and flows out in a stream, but when I was with Otagi Yuka, that phenomenon didn't occur, so does she absorb Semen...? I had thought, and it seemed that was the correct Answer.</p>
+<p>「Just a moment....」</p>
+<p>I went to the warehouse room where I kept my things, and came out holding the Ruins' Glasses with remaining uses.</p>
+<p>「That's....」</p>
+<p>In the warehouse before the Battle with SPF, I had shown Sakagami Rena and Alik's Stats, so Otagi Yuka also knew about the Ruins' Glasses.</p>
+<p>「If I look with these Glasses, I can also check Status effects and such, so I'm going to look, is that okay?」</p>
+<p>If it were someone who didn't know what the Ruins' Glasses showed, I would just look, but since Otagi Yuka knew, I should ask for her permission. The Status Window itself, seen through the Ruins' Glasses, was like a complete collection of Human Information, so it was right to ask for prior permission.</p>
+<p>「Understood. Please check.」</p>
+<p>Having obtained Otagi Yuka's permission, I comfortably put on the Ruins' Glasses and looked at Otagi Yuka.</p>
+<p>◆Name: Otagi Yuka (愛宕 夕香) Lv12 Stats Body Power:14 Agility:14 Stamina:14 Resistance:14 Recovery:14 Sensitive Nerves:14 Appearance:16 Mind Intelligence:8 Knowledge:6 Concentration:10 Will:8 Creativity:3 Charm/Allure:15 Judgment:7 Other Luck:6 Blood Energy:14 Satiety: 92/100 Skills ◆Akagamikiba Style (赤神牙式: Red God Fang Style) (Unique Swordsmanship Lv11) ◆Otagi-ryu Blood Energy Sorcery (Atago-ryu Ketsuki Jujutsu) (Unique Sorcery Lv7) ◆Investigation (General Skill Lv7) ◆Dish (General Skill Lv8) ◆Linguistics - English Language (General Skill Lv13) ◆Linguistics - Korean Language (General Skill Lv5) Traits ◇Vampire's Physical Body - Otagi (愛宕) [Legendary Bloodline]: All body stats except Appearance are tied to a special stat called Blood Energy. However, even if Blood Energy exceeds its limit, the body stats will only increase up to their individual limits unless those limits are unlocked. With the Vampire's Physical Body, the Limit of all Stats increases by 2, and the more frequently Blood Sucking occurs, the higher the Blood Energy Stat rises. The higher the Blood Energy Stat, the higher the regeneration power, and the Proficiency in Blood Energy Skills additionally increases. At night without the Sun, Blood Energy increases by 120 percent, and if the Blood Sucked Target does not completely die, they can be used as a vassal. If Blood Sucking does not occur, and Satiety decreases below 40, the Blood Energy Stat is only applied by the Satiety's multiplier, the Stats given upon Level Up become half, and are not invested in the Blood Energy Stat. Becomes very vulnerable to Silver and also weak to Light and Flame attributes. As a member of the Otagi (愛宕) family vampire, has an exceptional talent for swordsmanship. ◆Fog Transformation [Narrative Race Trait]: A Vampire Race Trait. Can transform into a blood-red fog. When transformed into fog, reduces physical Damage by 70 percent, and can deal continuous Damage to Enemies within the fog. ◆Blood Energy Affinity [Unique Trait]: Freely manipulates Blood Energy. Increases all Skills and Traits that use Blood Energy by 145 percent, the maximum of the Blood Energy Stat increases by 2, and the efficiency of the Blood Energy Stat increases. ◆Blood Energy Regeneration (血氣 再生) [Narrative Race Trait]: Significantly boosts regeneration based on the Blood Energy stat. Increases the maximum of Blood Energy and Recovery stats by 1, and raises the Blood Energy stat by 2. Can further enhance regeneration by using Satiety. ◆Noble of the Night [Narrative Race Trait]: Charm/Allure Stat increases by 2, and its maximum also increases by 1. The Probability of succeeding in Seduction against the opposite Sex increases. In the case of the same Sex, Seduction can also be performed proportional to Charm/Allure. If Seduction succeeds, the Opponent is afflicted with the Status effect . ◆Curtain of Darkness [Narrative Race Trait]: Damage from Light and Flame Attributes is reduced, and the Blood Energy multiplier that increases at night increases to 130. ◆Mutation - Semen Absorption [Rare+ Race Trait]: A Vampire race trait. When a male's semen, containing strong life energy, is absorbed through the vagina or mouth, it is treated like bloodsucking. The efficiency of Blood Energy increases.</p>
+<p>As expected, her Stats were incredibly high, perhaps because she was of a different Race, and on the Skills side, she was practicing Swordsmanship passed down from the Otagi Family and Sorcery using Blood Energy. Perhaps because she was in the USA for a year, her English language Level was considerable, and while in the USA, searching for the Enemy who caused her friend's Death, her Investigation Skill also seemed to have risen.</p>
+<p>Looking at her Traits, the Vampire's Physical Body, given as a Bloodline Trait, boasted incredible cheat-like power. Just by raising one Blood Energy Stat, it had the Crazy Effect of raising six Stats.</p>
+<p>Instead, if Satiety drops, the Blood Energy Stat is treated as low, and Level Up Stats are only half, but since the Blood Energy Stat automatically increases with continuous Blood Sucking, it wasn't a very big disadvantage.</p>
+<p>Because the Bloodline Traits given just by being born were so enormous, Humans had bound Vampires with agreements to prevent them from wielding power.</p>
+<p>Of course, as strong as these Bloodline Traits were, unlike Humans, Vampires not only vassals created by Blood Sucking, but producing children who inherit Bloodline Traits requires considerable Resources, so they couldn't just churn out baby Vampires like a Vampire Factory.</p>
+<p>And when Vampires Level Up, eight or nine times out of ten, they gain Race Traits, and these Race Traits, while stronger than their Grade fitting for a Vampire, were mostly Narrative Grade. There were few Unique Grade, Legacy Grade, or Unique Legacy Grade, there was only one Legendary Grade Trait, and Myth Grade Traits were virtually non-existent.</p>
+<p>Although Vampires are on average incredibly strong compared to Humans, because there weren't absolutely no Humans who obtained Legendary or Myth Grade Traits, Vampire factions couldn't easily rise up. Although he is a Villain, even Famine, one of the strongest people of the current Era, could Massacre the Otagi Family alone in a single day, so they couldn't easily expand their power.</p>
+<p>Also, because their Weaknesses are so clear, and SPF, which could be called their Delinquent, is still strong, one could rather think that they are continuing their lineage through agreements.</p>
+<p>In Japan, the Otagi Family has a history of being worshipped as a local god since ancient times, so they openly established their Family and lived in the light, but Vampire families or factions elsewhere quietly bowed down and lived without revealing their Vampire nature.</p>
+<p>The Traits after the Bloodline Trait were, as expected of Race Traits, generally good Traits. As a special note, there was the Unique Grade Blood Energy Affinity, and because this Blood Energy Affinity was a Trait also used by Magicians who use Blood, called Blood Mages, it was not a Race Trait.</p>
+<p>Oh, that's right! It was so fun looking at the Status Window that I couldn't explain Otagi Yuka's worry. As luck would have it, the Trait explaining Otagi Yuka's worry was at the very end, so I ended up spending time looking at everything.</p>
+<p>For some Reason, Vampires, being more unstable than Humans, also developed many Mutation Traits. For example, Traits like pale skin and weakness to sunlight, but becoming stronger in Darkness, or even Flesh Armor Mutations that could transform one into a monster, but Otagi Yuka, though it didn't show outwardly, seemed to have developed a Mutation that could absorb Semen.</p>
+<p>Although its Grade was low at Rare+, if this was combined with my Virility, it seemed like a ridiculously cheat-like Trait? Since it's treated as Blood Sucking, if we just keep having Sex, won't her Blood Energy also rise?</p>
+<p>I don't know how much we'd have to do for Blood Energy to rise, but if we have a lot of Sex, her Stats would skyrocket, so Otagi Yuka would become incredibly strong.... Of course, Otagi Yuka would have to have the Intention to have Sex with me.</p>
+<p>「Now, I'll explain.」</p>
+<p>Rather than just the Knowledge passed down in her Family or what she knew Instinctively, if she heard the Explanation with the content clearly displayed in the Status Window, she could use her Abilities more efficiently, so I explained everything to Otagi Yuka from the beginning, one by one.</p>
+<p>「Lastly, what you're worried about is that a Mutation has occurred....」</p>
+<p>「Th-that kind of Pervert-like Mutation has occurred?!」</p>
+<p>「Still, it's pretty good. Because absorbing Semen is treated as Blood Sucking....」</p>
+<p>To Otagi Yuka, who was flustered after hearing the Explanation, I told her about the cheat-like aspect of this Trait. Otagi Yuka listened to my Story in silence, then suddenly her Face turned red like a Persimmon.</p>
+<p>Otagi Yuka made an Expression as if she had made some Resolve, then looked up at me, slightly lifted her Skirt, and opened her mouth. 「P-please give me a Meal, Teacher-ssi....」</p>
+<p>-Skirt Lifting B-Cut! The time was night, but the Window was too bright, so Elimination kkeuk.</p>

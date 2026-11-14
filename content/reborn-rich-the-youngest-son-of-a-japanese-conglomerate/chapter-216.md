@@ -5,72 +5,73 @@ weight = 216
 chapter = 216
 +++
 
-<p>The dining table was a round table that could seat about 10 people, and it was laden with food. Japanese and Western dishes that made your mouth water just by looking at them were laid out together.</p>
-<p>"Everyone, enjoy your meal."</p>
-<p>As Nagumo Sian-ssi said, we each took our seats and started eating. Indeed, the chef's skills seemed considerable, just as Nagumo Sian-ssi had said. Almost on par with the housekeeper ajumma at the Talent Development Center, whom I had highly praised. The Beef Wellington was especially delicious. It seemed the chef was more skilled in Western cuisine than Japanese.</p>
-<p>"Mmm! Delicious!"</p>
-<p>"This is truly the best restaurant in Daisen, what do you think, Sunbae-nim?"</p>
-<p>"I think it's the best meal I've had so far too."</p>
-<p>"Hehe, as the restaurant owner, that's the most delightful compliment."</p>
-<p>Everyone's praise made Nagumo Sian-ssi happy, as if she had received the compliments herself. As delicious as the food was, the only sounds were the clinking of silverware. As the meal was nearing its end, Nagumo Sian-ssi opened her mouth.</p>
-<p>"Now that we're the only ones who can hear, tell me. That proposal you mentioned...."</p>
-<p>Indeed, now that I've honed my senses, I couldn't feel any presence around us. Does Nagumo Sian-ssi have some kind of detection ability? Or did she arrange for everyone to leave at this time?</p>
-<p>I felt a slight curiosity, but what's important now is the proposal.</p>
-<p>"As compensation for hiring East Weapon, could you hand over the site of Tairaga Foods' Daisen Factory No. 8? In return, I'll give you the opportunity to participate in our business, Nuna-nim."</p>
-<p>"So there's definitely something at the No. 8 site. Ichiro-gun also said that if he helped with the Kurotsukido extermination, he would either push me at the Tairaga Group's general executive meeting, or he asked for the site of Tairaga Foods' Daisen Factory No. 8."</p>
-<p>Ah, I see! Right, I received information from Eve in the dark web app chat, but this information must have leaked from somewhere. It seemed Eve got the information from Taira Ichiro-gun's side.</p>
-<p>But why didn't she get help from Ichiro-gun and contacted me instead? Nagumo Sian-ssi smiled slightly, as if reading my curiosity, and opened her mouth.</p>
-<p>"Just as I was about to get help from Ichiro-gun, Danjo-oji called and told me that you have a PMC. So I chose you instead of Ichiro-gun."</p>
-<p>Ah, so that's what happened behind the scenes. Tairaga Danjo-harabeoji is subtly helping me.</p>
-<p>"So, what's in the No. 8 area?"</p>
-<p>"The information I have is that there's a mithril mine in the No. 8 area."</p>
-<p>Nagumo Sian-ssi's eyes widened as if she hadn't expected a mithril mine. Well, mithril is a rare metal, so it's understandable that she's surprised.</p>
-<p>"Mithril... So, are you thinking of starting a mining company?"</p>
-<p>"Yes, I'm thinking of establishing a mining company as a subsidiary under my Hatake Investment Company. What I'll give you is shares in this mining company."</p>
-<p>"I understand."</p>
-<p>"Yes?"</p>
-<p>Nagumo Sian-ssi nodded as soon as she heard my words. I thought she would ask how many percent of the shares she would get, but she immediately said she understood, so it seemed she wasn't the type to pursue practical gains that much. More trust than practicality? There was a reason why she was called the godmother of a region.</p>
-<p>"And if possible, please have East Weapon guard the construction site in the No. 8 area."</p>
-<p>"Since it's going to be your land once we sell it, what does it matter who guards it? It'll just be as you want it, Ryuta-gun."</p>
-<p>Hmm, that's true.</p>
-<p>"Then I'll give Nuna-nim 20 percent of the shares. I'll give Sunbae-nim and Azuma-ssi five percent each."</p>
-<p>To make them my allies, I had to share the benefits with each other. Of course, I trust Sawayanagi Azuma-ssi and Mimata Chieri-ssi, but since they're in charge of my biggest military force, the PMC, I had to take care of them so they wouldn't feel left out.</p>
-<p>"Ah, are you taking care of us too?"</p>
-<p>"Really? As expected, Hubae-nim is the best!"</p>
-<p>Sawayanagi Azuma-ssi and Mimata Chieri-ssi, who had been sitting quietly at the table, were suddenly very happy at my statement that I would give them shares. They're not the type to pursue money that much, so they seemed happier that I was taking care of them rather than the benefits they would get from the shares.</p>
-<p>"But will the Tairaga Foods executives agree to give us the No. 8 factory site in exchange for giving us compensation?"</p>
-<p>Mimata Chieri-ssi raised a question that could naturally be asked. Nagumo Sian-ssi is the president and has a considerable stake in Tairaga Foods, but she was like a CEO appointed by Tairaga Danjo-ssi, so she couldn't control everyone.</p>
-<p>That's a shame. At first, I thought it would be done right away if I agreed with Nagumo Sian-ssi, but there were still many things to consider. I guess I was a bit naive. I didn't think the executives would buy land around it.</p>
-<p>"The employment cost of East Weapon in this war will be more expensive than the value of the site that hasn't even been touched yet. Everyone will try to get their own benefits, so if we give them time to sell the land they bought around the factory and make money by selecting a new site, no one will object."</p>
-<p>Ah, Nagumo Sian-ssi was saying that since the executives have land to build shopping malls or dormitories around the factory, the land price must have risen now, so if they sell it and make a profit, and then select a new site and make more profit, the executives who are blinded by profit will follow.</p>
-<p>Nagumo Sian-ssi was thinking of stimulating the executives' desires to get the desired results, rather than forcibly exerting dominance.</p>
-<p>"Instead of paying me a high employment fee, there's a justification that selling the factory site, which has risen to some extent, is for the benefit of the company, so it won't be easy to refuse."</p>
-<p>Now, the land around the factory is more expensive than the factory site, so we can argue that we should receive the No. 8 factory site as compensation for East Weapon. The price of hiring East Weapon's over a thousand troops was very high, and they had to make a huge contribution to deciding the victory in the fight against Kurotsukido, so when you add up the success fee and everything else, it became a huge price, so it was a great opportunity for Nagumo Sian-ssi to save money.</p>
-<p>"I'll contact you when things are settled. It'll take some time because the executives also need time to settle the land."</p>
-<p>"Yes, it's not urgent right now. I'll establish the company in the meantime."</p>
-<p>If she doesn't keep paying the money that East Weapon is supposed to receive, interest will continue to accrue, so the justification that Nagumo Sian-ssi's company wants to make a profit will gradually gain strength.</p>
-<p>"Then you'll be busy again for a while. You'll be quite busy with normalizing the company and doing this work."</p>
-<p>"I'm sorry, Nuna-nim. For making you busy."</p>
-<p>"What are you sorry for? This is my job. Just welcome me when I go to Chiba next time."</p>
-<p>Indeed, Nagumo Sian-ssi will often visit because the Tairaga Group meeting is often held at the Tairaga family's main house in Chiba. Then I'll be able to see her often even if I go back to the Talent Development Center.</p>
-<p>"Since I'm the president of East Weapon, I'll have to go back to Tairaga Foods headquarters and talk."</p>
-<p>Mimata Chieri-ssi said with a slightly dejected expression.</p>
-<p>From what I heard, the morning meeting only discussed compensation for other small and medium-sized PMCs and Seryu Military Company, so Mimata Chieri-ssi, who is the president of East Weapon, had to go to the afternoon meeting anyway. Originally, she was planning to receive the compensation as it was given and return with me, but because of the proposal I made to Nagumo Sian-ssi, she had to consult with Tairaga Foods, so there was a high possibility that she wouldn't be able to return within tomorrow. She seemed dejected because she couldn't take the plane with me.</p>
-<p>"Then are you going tomorrow?"</p>
-<p>"Yes, I made a reservation at Akita Airport in the morning, so I'm going to sleep here tonight and go tomorrow."</p>
-<p>"Then Sawayanagi-yang and Ryuta-gun can rest here, and Mimata-yang and I will go to the company."</p>
-<p>Leaving only Sawayanagi Azuma-ssi and me, Mimata Chieri-ssi and Nagumo Sian-ssi went straight to Tairaga Foods headquarters. I changed into comfortable clothes in my room and was lying down looking at my smartphone when the door to my room opened and Sawayanagi Azuma-ssi, who was also wearing light clothes, came in.</p>
-<p>"Hehe, Investor-niim~!"</p>
-<p>Sawayanagi Azuma-ssi came in smiling cutely and hugged me. I smiled slightly and stroked Sawayanagi Azuma-ssi's hair.</p>
-<p>"Were you waiting for us to be alone?"</p>
-<p>"Yes, hehe♥"</p>
-<p>Sawayanagi Azuma-ssi rubbed her head against my chest like a cat and kept laughing, hehe. Maybe it's because we did it so much in the precognitive situation, but she seemed to feel a lot of affection for me. To reciprocate that affection, I put my hand under Sawayanagi Azuma-ssi's arm, who was still rubbing her head against my chest, and pulled her up.</p>
-<p>When our faces met, Sawayanagi Azuma-ssi blushed and turned her head slightly. I don't know why she's only getting shy now after rubbing her head all this time, but I put my mouth to Sawayanagi Azuma-ssi's ear and opened my mouth.</p>
-<p>"Azuma-ssi, look at me."</p>
-<p>At my words, Sawayanagi Azuma-ssi turned her head and kissed me the moment she looked at me.</p>
-<p>"Haaap!"</p>
-<p>Sawayanagi Azuma-ssi accepted the suddenly entering tongue. With the sound of *chup chup*, Sawayanagi Azuma-ssi was kissing and moving her pelvis gently, rubbing her pussy against my thigh and feeling pleasure.</p>
-<p>Then, as if she suddenly remembered something, she took her mouth off and got up from her seat, saying Ah! She suddenly took out a stand and her phone and set up the phone so that the bed was visible.</p>
-<p>"What are you doing?"</p>
-<p>"Mimata-ssi asked me to film us making love with the camera."</p>
-<p>Ah, really... Mimata Chieri-ssi is amazing. It seemed like she was planning to masturbate while watching the video. Sawayanagi Azuma-ssi, who was answering innocently, was also ridiculous. Even though she was a test subject and grew up in a PMC, so she didn't receive proper sex education, isn't she taking sex videos too cheerfully? They were both strange women.</p>
+<p>The Fitzgeralds' main residence was located in a wealthy neighborhood on the outskirts of New York, filled with luxurious mansions. It was said to be a place where aristocratic families who immigrated during the early days of settlement gathered. Perhaps that's why all the buildings had an antique yet aristocratic sophistication.</p>
+<p>The Fitzgerald family's mansion was similar, a white stone building that definitely felt more luxurious than the other houses.</p>
+<p>,Please come this way."</p>
+<p>Arisu, excited to be back in her hometown after so long, dashed into the house with a wadada, while Mimata Chieri and I followed Nae Fitzgerald-nim and the butler inside.</p>
+<p>Nae Fitzgerald-nim introduced us to the statues in the front garden and the neatly trimmed trees.</p>
+<p>,That tree over there was planted when Arisu was born."</p>
+<p>,Ah, they've both grown well."</p>
+<p>Looking at the quite lush tree that Nae Fitzgerald-nim introduced, I associated Arisu with the tree. We slowly listened to the stories and entered the mansion.</p>
+<p>Whether it was because of Nae Fitzgerald-nim's Japanese background or just the way things were, we took off our shoes at the entrance of the mansion and put on indoor slippers. Thankfully, I wouldn't have to witness the atrocity of wearing shoes on the bed.</p>
+<p>The inside of the mansion wasn't overly extravagant, but it had an understated elegance. Looking around, I saw portraits of the Fitzgerald family's past heads hanging on one wall. Upon closer inspection, most of the Fitzgerald family heads were fair-skinned with light brown or blonde hair. Well, they were nobles from Ireland, so it would be strange if they were Black or Asian.</p>
+<p>,Butler-nim, please show these two gentlemen and ladies to their rooms."</p>
+<p>,Understood."</p>
+<p>Nae Fitzgerald-nim also took her carrier and went to her room, and we were led to the guest rooms by the butler. Naturally, Mimata Chieri and I, being male and female guests, were given rooms quite far apart. Mimata Chieri's room was close to Arisu's, while mine was quite isolated.</p>
+<p>Well, nothing I can do about it. I had no intention of doing anything to Arisu in this house. There's a butler and maids bustling around, so there are too many eyes. If I tried to do the nasty with Arisu, I might get kicked out immediately.</p>
+<p>I tossed my luggage in a corner of the room and flopped onto the bed for a moment. I turned on my smartphone and accessed the black market app. I remembered that auctions were occasionally held in New York, so I wanted to check if there were any scheduled.</p>
+<p>Let's see... I went to the Diamond tier menu... and there's the auction. To ensure security, the auction only showed the closest upcoming date, and coincidentally or inevitably, New York was on the closest auction schedule!</p>
+<p>The auction was on the dawn of the day we were leaving for LA. Hmm, I'll have to go to the auction and then take the plane to LA right away? I'll just sleep on the plane.</p>
+<p>As soon as I pressed the auction reservation button, an invitation in the form of a QR code was issued. It allows one companion, so I can take Mimata Chieri or Arisu with me.</p>
+<p>Mimata Chieri was also spending quite a bit on the black market under the guise of buying equipment with company money, so if she became a Diamond tier member, all three of us could go together.</p>
+<p>But the Diamond tier isn't something that just anyone can get, so Mimata Chieri is probably a Plus tier member at best. Then I'll have to choose one of the two after all.</p>
+<p>Knock knock!</p>
+<p>,Nae Fitzgerald-nim has prepared refreshments."</p>
+<p>I heard a knock and a young woman's voice from outside the door. She was probably a maid working at the Fitzgerald mansion.</p>
+<p>,I'll be right there."</p>
+<p>I got up from the bed and opened the door. A modestly dressed woman with light brown hair and freckles was wearing a maid uniform. Not an arranged maid uniform from a Japanese maid cafe, but a truly traditional maid uniform for working in a mansion.</p>
+<p>,You probably don't know the location of the drawing room, so I'll guide you."</p>
+<p>Guided by the maid, I headed to the drawing room where everyone was waiting. The drawing room, being a room for entertaining guests, had a slightly more extravagant interior than the other rooms.</p>
+<p>On the table in the drawing room, there was a three-tiered tier tray with sweet cakes and cookies, like the ones you see in movies, TV shows, and British dramas. Black tea was in a white porcelain teapot, and there was also a small bowl filled with cream for making milk tea.</p>
+<p>,Welcome~!"</p>
+<p>Nae Fitzgerald-nim, still cheerful, waved at me. Arisu and Mimata Chieri didn't seem to have arrived yet. I sat down in the chair opposite Nae Fitzgerald-nim.</p>
+<p>,Is this the first time since the funeral?"</p>
+<p>Nae Fitzgerald-nim opened her mouth as she poured me black tea. There seemed to be some meaning in the words,Is this the first time?" Because of those words, a slight suspicion arose in my mind. It was the question about Phantom Thief Francois. Phantom Thief Francois travels around the world stealing things, and it felt like the Fitzgerald mother and daughter were protecting each other's alibis. Also, when I saw Phantom Thief Francois in the secret lab, she felt quite familiar.</p>
+<p>,Maybe?"</p>
+<p>The word "maybe" was quite meaningful. The meaning of my "maybe" was that I saw someone, but I don't know if it was you. If what I thought was right, she would have shown some sign, but Nae Fitzgerald-nim showed no reaction at all. Since she showed no reaction at all, it didn't seem like it, but I'll have to check for sure later.</p>
+<p>,Since the only time I went to Japan recently was for the funeral, this must be the second time we've met."</p>
+<p>I looked at Nae Fitzgerald-nim with a calm expression and added cream to my black tea. As we smiled at each other and a strange atmosphere flowed, Arisu and Mimata Chieri entered the drawing room.</p>
+<p>,Sorry I'm late~! I was showing Chieri my room."</p>
+<p>Arisu sat down next to me, cutely sticking out her tongue slightly. Of course, the opposite side was Mimata Chieri's seat.</p>
+<p>,What were you talking about?"</p>
+<p>,Just talking about how it's the first time we've seen each other since the funeral."</p>
+<p>,Aww, Mom~! Why bring up the funeral on a good day like this?"</p>
+<p>,Ryuta looks so much like Saburo that it reminded me. I'm sorry."</p>
+<p>Arisu scolded Nae Fitzgerald-nim, but Arisu had no choice but to remain silent at the Talulah-level excuse that it was because she was reminded of her dead younger brother.</p>
+<p>,When is Uncle coming back?"</p>
+<p>,He's on a business trip, so he probably won't be back until tomorrow or the day after."</p>
+<p>I brought up the name of my uncle, Oliver Fitzgerald, to change the atmosphere. There was no need to keep talking about Saburo, whom I didn't even know well, so I thought it would be better to talk about something else.</p>
+<p>According to Nae Fitzgerald-nim, Talon Corporation, led by Oliver Fitzgerald, is mainly a company that makes precision engines and was building spacecraft engines in line with the recently actively progressing Mars colonization project.</p>
+<p>In TMC, the previous work of the youngest son of Megacorp and the future it depicted, Talon's status was quite high. It's currently a steadily growing company, but it will grow into one of America's mega-corporations. If I invest even a little now, it could be of considerable help in the future.</p>
+<p>My money was currently tied up in various investments, so I was thinking of talking to Oliver Fitzgerald about supplying Mithril, but since he's on a business trip, I'll have to talk to him later.</p>
+<p>,How many days will you be staying?"</p>
+<p>,I'm going to LA in about four days. I have modeling work and Ryuta's friends are in LA."</p>
+<p>,That's a shame. I was hoping to see my daughter for a little longer."</p>
+<p>I listened to their everyday conversations and picked up a piece of cake from the tier tray and put it in my mouth. Hmm, the cake from a family with a long history is definitely different. It was delicious. It also went well with the milk tea, so I felt like I could eat it endlessly if I alternated between the two.</p>
+<p>,Hoho, it's good to see Ryuta eating so heartily. But dinner will be in a little while, so eat moderately."</p>
+<p>Nae Fitzgerald-nim didn't seem to know that I was a big eater yet. Still, unlike the subtle atmosphere at the beginning, the tea party proceeded in a relatively friendly manner. Although my suspicions hadn't been resolved yet.</p>
+<p>###</p>
+<p>Back alley of New York's Chinatown.</p>
+<p>Jackson Sha, the New York branch manager of the Black Moon Society, stared at the person in front of him with fearful eyes. Mooyoung Gwi, the leader of the execution squad and a legendary figure in the Black Moon Society, stood there wielding a massive Daegyeom (大鎌: large sickle), reminiscent of the Grim Reaper’s scythe. Shrouded in black mist, they were even more terrifying, and it was impossible to tell whether they were male or female.</p>
+<p>The form of the black mist was an ominous sight that didn't seem human.</p>
+<p>To come here like this in the middle of the day without any restrictions... Jackson Sha felt sweat on his back.</p>
+<p>,I, I absolutely didn't betray you! There have been problems for the past few months...! I contacted headquarters several times, but I didn't receive a reply!"</p>
+<p>Mooyoung Gwi was the Black Moon Society's final judge and executioner. If Jackson Sha's words were true, he would be executed unfairly, so it was necessary to verify Jackson Sha's words once.</p>
+<p>,Wait..."</p>
+<p>Speaking in a heavily cracked voice, Mooyoung Gwi became silent for a moment. They seemed to be figuring out if Jackson Sha's words were true.</p>
+<p>,There are traces of attempted contact. Explain in detail."</p>
+<p>,The story begins six months ago when we started failing to pay our dues..."</p>
+<p>Jackson Sha opened his mouth with a terrified expression.</p>
+<p>------</p>
+<p>Fitzgerald mother and daughter.</p>
+<p>Nae Fitzgerald-nim also ate Juangwa.</p>

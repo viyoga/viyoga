@@ -5,88 +5,75 @@ weight = 790
 chapter = 790
 +++
 
-<p>A few days ago. A luxury mansion in Minato-ku, Tokyo.</p>
-<p>"Geueueueu, geueueu...!"</p>
-<p>Inside the dark room, the sound of wind leaking was heard from somewhere. A cold wind blew gently through the open window, and the curtains moved, slightly revealing the room in the moonlight that entered.</p>
-<p>The room, illuminated by moonlight, was stained with blood. A man, with a sword plunged into his neck, was gushing blood.</p>
-<p>Because the sword was stuck in his neck, no voice came out, only the sound of air escaping.</p>
-<p>"Geueueu, keu, keut!"</p>
-<p>The man, who had been making air-escaping sounds, left his final death throes and lost his life, and movement was seen in the room.</p>
-<p>Someone was standing in a position not illuminated by the moonlight, probably the Killer who had murdered the fallen man. The Killer who had murdered the man, unlike someone who had committed murder impulsively, calmly watched the man die.</p>
-<p>"...."</p>
-<p>After the man stabbed with the sword died, the Killer began to search the Surroundings. The Killer, who took a Wallet from the man's jacket hanging in the room, took Cash from the Wallet and pulled out an Identification Card along with a Resort membership card.</p>
-<p>"...."</p>
-<p>The Killer put the man's Resort membership card into a pocket to take it. Before putting the Resort membership card into the pocket, the moonlight briefly shone on it, and it read, 「Shiga Kogen VIP Villa Ski Resort Membership Ticket」.</p>
-<p>The Killer, who had taken the Money and the membership ticket, as if having no Regret, left only the Corpse and went Outside the House.</p>
-<p>After the Killer left, only the dead Corpse in the room was swaying to the Lighting of the moonlight Dancing with the movement of the curtain.</p>
-<p>Carrying the Luggage, when I went to St. Francis Girls' Academy's helipad, two helicopters were waiting.</p>
-<p>"They prepared two helicopters?"</p>
-<p>"Yes. There's Luggage, and we need personal parachutes, so we need to ride spaciously."</p>
-<p>When I asked, Minamoto Risa answered as if it were nothing. Indeed, if there's a helicopter accident, we'd need personal parachutes, so we can't carry too many people at once. On top of that, since it was a 3-night, 4-day Travel, each Student had quite a lot of Luggage, so it seemed they called two helicopters.</p>
-<p>"Alright, first, let's divide into two teams."</p>
-<p>"Ryuta-cchi, you ride first! The rest of us will divide by rock-paper-scissors and ride."</p>
-<p>It seemed the Students were going to play rock-paper-scissors to ride in the same helicopter as me. Even though it would only take an hour to the Resort.</p>
-<p>If they decided by rock-paper-scissors, all the Students with high Agility and high Combat power would come to our helicopter. It was a bit of a sneaky Method. Because it was a Match they were playing, knowing they would win.</p>
-<p>"Alright. Everyone's waiting, so decide quickly and get on."</p>
-<p>I told the Students and loaded my Luggage and the ice box onto the helicopter. A pilot and a safety agent were on board the helicopter. Even excluding the Luggage, it looked like eight to ten people could ride in one helicopter. It seemed they had made Preparations for ample space.</p>
-<p>"Ryuta-cchi~!"</p>
-<p>"Ryuta...!"</p>
-<p>"Ahaha, Sensei-ssi."</p>
-<p>As expected, the Students with high Combat power were in my helicopter, just as I had anticipated. Seizawa Shii, Alik, Otagi Yuka, Sakagami Rena, Saionji Diana, and Naruse Shiyo boarded, and the rest boarded the remaining helicopter.</p>
-<p>"When we return, Shiyo and Yuka, ride in that helicopter. You never know what might happen."</p>
-<p>"Shall we?"</p>
-<p>"Understood, Teacher-nim. But for now, we're riding together, right?"</p>
-<p>Of course, the Probability of something happening was almost zero, but in a World where even I could be kidnapped unexpectedly, I thought I should always prepare for the worst-case Scenario.</p>
-<p>Because Otagi Yuka and Naruse Shiyo both have Flight Ability, even if something happens in the helicopter, they would survive and could even take care of a few others.</p>
-<p>Since the others don't have Flight Ability, I would have to save them with my psychokinetic Ability, so dividing the helicopters was the right thing to do. It couldn't be helped now since we were departing immediately, but I told them to divide when returning.</p>
-<p>"We're departing~!"</p>
-<p>Once everyone had loaded their Luggage, the helicopter pilot informed us of the departure. Since there was nothing particular to do inside the helicopter, I briefly looked at the News on my phone.</p>
-<p>-Openweight transition, Kiyohira rapidly advances to the UMC Openweight throne! Will the second Japanese Openweight Champion after Fujigasaki Rinka be produced?</p>
-<p>The article about my friend Kiyohira was a sensation. In fact, with Kiyohira and Kazuhiro, who could be called Jin Yong-tae's only friends, I hadn't been able to contact them often since I went on a Mission.</p>
-<p>Of course, I had told them that I wouldn't be able to contact them for about six months because I was going on a secret Mission for the Taira Group. Since both Sumikazu and Genbaki could truly be called Best friends, they understood my Situation, so even if we couldn't contact each other for just a few months, our Friendship wouldn't fade.</p>
-<p>By the way, that Guy Genbaki. At some point, he moved from the welterweight class (under 77kg) where he was to the openweight class where Fujigasaki Rinka was, and had been continuously winning.</p>
-<p>With my advice, he had bought martial arts books indiscriminately from the black market, and it seemed he had probably found a martial art that suited him.</p>
-<p>After Fujigasaki Rinka stepped down from the UMC Openweight throne to chase Anya-ji and returned to Japan, the UMC Openweight class was an Era of chaos. No Champion had defended the throne more than twice.</p>
-<p>The UMC Openweight class was truly an inhuman Fighting arena that even allowed body Modification and Drugs, so when someone became Champion, there were many challengers who would identify their disadvantages and exploit their Weakness.</p>
-<p>That's why Fujigasaki Rinka was so amazing. With a pure female Body, without body Modification or Drugs (though she possessed the Abyss, which was more fraudulent than Modification and Drugs), she had defended the throne for a long period, which is why people unanimously called Fujigasaki Rinka the greatest fighter in the history of combat Events.</p>
-<p>So, with my friend Kiyohira challenging for the UMC Openweight Champion title, I felt both proud and worried. It was good that my friend was becoming Champion, but because the Openweight class was so brutal, I was also worried if he might get seriously hurt.</p>
-<p>"Oh? Teacher-nim also watches UMC?"</p>
-<p>Naruse Shiyo, who had subtly peeked at my phone from beside me, asked. Because Naruse Shiyo had admired Strength since her Body was weak, she had a tremendous Interest in professional wrestling and UMC. That Interest had continued even now that she had become stronger as a Half-Dragon, which is why she reacted immediately upon seeing my phone.</p>
-<p>"Ah, since a Japanese Person is challenging for the UMC Openweight throne again, it caught my Interest."</p>
-<p>Although I wanted to say that this Openweight Champion challenger was my friend, because Seizawa Shii, the helicopter pilot, and the helicopter safety agent were there, I didn't say that Kiyohira was my friend. I couldn't carelessly blurt out Information that could hint at my True Identity.</p>
-<p>"I didn't pay much attention to Genba-sensu either, but he's amazing, isn't he? When he was in the welterweight class, he was just a top-ranked fighter, but after transitioning to the even tougher openweight class, he's been on a winning streak, so he's become a Target of attention. Not as much as Teacher-nim, but because he has a good Body, people who like a macho Feeling mainly form his fan base, and it's clear that his Skill has increased much more than when he was in the welterweight class, so I wonder if he can truly sit on that difficult Openweight throne like Rinka-nim...."</p>
-<p>As expected of a UMC enthusiast, Naruse Shiyo knew more about that Guy Kiyohira than I did.</p>
-<p>I heard that when I was kidnapped, she transformed into a Dragon-person and swept away the disciplinary committee members with wrestling techniques, so I wondered if she would use techniques from UMC next time.</p>
-<p>"If Shiyo evaluates him that way, then this fighter named Genba might win."</p>
-<p>I pretended to gloss over it and scrolled past the article about that Guy Kiyohira. The next article was about a serial Killer rampaging in Tokyo recently.</p>
-<p>-Another corpse, seemingly the work of Kotowazuki (斷頭鬼: Decapitation Demon), has been found! The incident is still a labyrinth...</p>
-<p>It was a Killer called Kotowazuki, and it seemed they got that nickname because they always targeted the Victim's neck with a sword. With over a dozen Victims identified so far, this Kotowazuki was the Topic of all recent discussions in Japan.</p>
-<p>Because of this serial Killer, whose gender was unknown, the Japanese police were being heavily cursed for being incompetent, and rumors were circulating that a huge bounty had been placed on them in the solver Community.</p>
-<p>"I thought about chasing that Guy during vacation too, but there weren't many clues, so I just let it go. What a pity. If I had known it would rampage like this, I would have chased it to the end."</p>
-<p>This time, Seizawa Shii, sitting on the opposite side, muttered while looking at my phone. Because Seizawa Shii had actively worked as a solver in Tokyo during the winter vacation, it seemed she had briefly pursued this serial Killer called Kotowazuki.</p>
-<p>"Vacation was short, so it couldn't be helped. If it's still rampaging after Graduation, then Shii can catch it."</p>
-<p>"I don't need to catch it, I just wish someone would catch this Guy quickly."</p>
-<p>After talking about Kotowazuki for a while, Alik showed a photo of a ranch cafe she wanted to visit, and the Atmosphere changed. Naturally, the Story of a serial Killer and the Story of milk sweets couldn't have the same Atmosphere.</p>
-<p>"Ryuta, keep your promise with Alik."</p>
-<p>"Of course."</p>
-<p>It seemed she was referring to the promise to buy one plain-flavored ice cream and one chocolate-flavored ice cream and feed each other.</p>
-<p>When the troublemakers from the special class, who were listening nearby, asked what the Story was, and I told them, each of them complained, asking why they didn't get to eat the ice cream I fed them.</p>
-<p>"I'll eat whatever you give me, so stop it."</p>
-<p>"Then, so Ryuta-cchi doesn't get tired of it, we'll all choose different flavors, so you can't say you won't eat it, okay?"</p>
-<p>"Then I'll feed Teacher-nim melon flavor~!"</p>
-<p>"I'll have butter cream flavor!"</p>
-<p>As the Students were each talking about what flavor they would feed me, the safety agent riding with us looked at me with an envious Gaze. Since all the A-Rank Beautiful Woman Students from the special class were eager to do something for me, I understood his envy.</p>
-<p>"Since Ryuta-cchi is a big eater, we should order at least a half-gallon (1200g) Size, right?"</p>
-<p>"Isn't that obvious?"</p>
-<p>However, what this safety agent didn't know was that the troublemakers riding here weren't just trying to be nice to me, but also trying to Torture me with food. Trying to feed me several half-gallons was absolutely not normal.</p>
-<p>Lisa-ttang Home Economics Teacher-nim bikini + panties down + Belly button piercing requested by Hwanbuljeoldae-bulga-nim~!</p>
-<p>Starting with Lisa-ttang~!</p>
-<p>Actually, I made dozens of images, but only one image of panties pulled down came out ㅠㅠ The rest are B-cuts...!</p>
-<p>Home Economics Teacher-nim~!</p>
-<p>Home Economics Teacher-nim was relatively easier to generate haha.</p>
-<p>New model Mimata Chieri Suit underwear belly dancer naked body requested by Gojoy-nim~!</p>
-<p>Suit~!</p>
-<p>Underwear~!!</p>
-<p>Belly Dancer~~!</p>
-<p>Naked Body~!!!</p>
-<p>Chieri-jjaeung....!</p>
+<p>"!"</p>
+<p>"Shiojima!!"</p>
+<p>"Atsushi!"</p>
+<p>"Th-then... Tomohiko is really the culprit...?"</p>
+<p>Shiojima Atsushi's Corpse was brazenly discarded right in front of the elevator door on the 4th floor corridor. In fact, before the culprit was revealed through Line, I personally thought Shiojima Atsushi was the culprit.</p>
+<p>He had an ordinary appearance that didn't attract attention, and he also had a body that he had trained alone, so I thought he was suitable to be a serial killer.</p>
+<p>But contrary to my suspicions, Shiojima Atsushi had become a Corpse, proving his innocence.</p>
+<p>"Perhaps they left him here because there wasn't enough time?"</p>
+<p>Takakusaki Athena said, looking at the Corpse. The remaining university students were in a panic because another one of their friends had died, so the deliberation had to be between the two of us.</p>
+<p>Certainly, the time for the Murder was short. After attacking me in the sauna and fleeing, I went to the women's bath, took a quick Shower, and changed Clothes, so there would only have been about 5 to 10 minutes of leisure.</p>
+<p>"That's right. There would have been only 5, at most 10 minutes of time...."</p>
+<p>Once I checked the Corpse, it was indeed stabbed in the neck with a Sword, just like the Corpses attacked by Kotowazuki.</p>
+<p>"Now that I think about it, it seems there are other victims besides those stabbed in the neck with a Sword. Ms. Nakamura, who died today, was affected by Poison, wasn't she?"</p>
+<p>Takakusaki Athena made a rather sharp point. That's certainly true. If Nakamura Shunna wasn't Kotowazuki's first case of poisoning, then there would be even more victims affected by Kotowazuki.</p>
+<p>"That's for the police to investigate.... First, let's go around and check if there are any open guest rooms."</p>
+<p>We quickly went around, turning the door Handles of the guest rooms. Come to think of it, we formed the wrong Group. Saionji Diana's cyber implants have a hacking tool, so she can open doors like those in this resort, but we're investigating the 1st floor. I'll have to ask her to check separately later.</p>
+<p>We divided in half, centered around the elevator, to check if the doors were open, so the speed was quite fast. Indeed, all the doors were locked.</p>
+<p>And when we went up to the 5th floor, there were no open places there either. Suzuki Soki, now the only man left among the university students, seemed a little tense, perhaps fearing Kotowazuki who might appear.</p>
+<p>The remaining female students also had expressions mixed with sadness and fear. Especially Hiragami Noyu, Itsu Tomohiko's childhood friend, seemed to have been greatly shocked, her face pale.</p>
+<p>"Everything is locked here too."</p>
+<p>The 5th floor was also all locked. We took the elevator again and headed back to the 1st floor.</p>
+<p>Even though we were a Group with not much to investigate, we still had to search two floors, so everyone seemed to be in the restaurant. And we also wasted some time looking at Shiojima Atsushi's Corpse.</p>
+<p>"Is everyone here?"</p>
+<p>Everyone was sitting at the dining table that had been joined together, so I knew they were all here, but I just said it as a greeting, and we also sat down. For some reason, the middle part was empty, so we sat there.</p>
+<p>"Did you find anything?"</p>
+<p>"No. We didn't find anything."</p>
+<p>At my Question, Shido Tsubaki shook her Head. And the others also shook their Heads, as if they hadn't found anything on the other floors.</p>
+<p>"We found Shiojima Atsushi-ssi's Corpse. It was right there when we got off the elevator on the 4th floor."</p>
+<p>"What about Itsu Tomohiko-ssi?"</p>
+<p>Since no one else in our search party had a close relationship with Shiojima Atsushi, the reaction was, "Ah, I see." This was evident from them immediately asking about Itsu Tomohiko, the culprit.</p>
+<p>"All the guest rooms were locked, so I couldn't check them, and he wasn't visible in the corridor.... Saionji, I'm sorry, but could you check the locked guest rooms?"</p>
+<p>"No problem. Shall I go now?"</p>
+<p>At my Words, Saionji Diana rose from her Seat and asked, heading towards the restaurant's Entrance. I didn't mean for her to go immediately, though....</p>
+<p>Cheolkkeok.</p>
+<p>Saionji Diana didn't go Outside, but locked the restaurant door. Then, standing between the restaurant and the window, she pulled out a Gun.</p>
+<p>Not only Saionji Diana, but Otagi Yuka also rose from her Seat and stood at the door in front of the Kitchen, which could be called the restaurant's back door, as if to prevent anyone from escaping.</p>
+<p>Other Students with excellent Combat power were also sitting, but it was as if they were preparing for battle.</p>
+<p>Sakagami Rena was smiling faintly, but she was twirling a Surigeom, which she had pulled out at some unknown moment, between her fingers, and Seizawa Shii's hand, resting on the luxurious dining table, was causing it to crack with a ppajik ppajik sound.</p>
+<p>Konoe Akina's eyes were glowing as if she had activated her Maan, and Naruse Shiyo's pupils were splitting vertically, preparing for Dragon transformation.</p>
+<p>Kujo Kina was making udeudeuk sounds with her fist joints, and Urabe Konoka's pupils became cross-shaped like Lizhael's, as if she was drawing out Lizhael's power.</p>
+<p>Looking at them like this, their Combat power was immense. It sent shivers down my spine. Of course, this battle preparation wasn't for fighting me, but I needed to find out what was going on.</p>
+<p>"Could you explain what's going on?"</p>
+<p>Since they were all students I trusted, I asked what was happening.</p>
+<p>At my Question, Oofuchi Erika rose from her Seat.</p>
+<p>"The reason we're reacting so sensitively is because Itsu Tomohiko isn't the culprit. We blocked the escape routes in case he tried to flee. And we're preparing for battle in case he causes a disturbance."</p>
+<p>At Oofuchi Erika's Words, Itsu Tomohiko's childhood friend, Hiragami Noyu, her eyes lit up. "Tomohiko isn't the culprit after all, is he?" she mumbled.</p>
+<p>These kids.... They bickered when they were together, but if Itsu Tomohiko isn't the culprit as Oofuchi Erika said, or if he's alive, wouldn't it be good for them to date each other?</p>
+<p>"Then?"</p>
+<p>"As Teacher-nim would also know, we asked a lot about the personal details of the university students at the hot spring. So we know quite a bit about each individual. Itsu Tomohiko-ssi is someone who came up from the Countryside. I heard his Family is neither poor nor rich, but an ordinary middle-class. But if you look at this part of the chat...!"</p>
+<p>After Oofuchi Erika talked about Itsu Tomohiko being a man from a middle-class family in the Countryside, she showed an enlarged Line chat.</p>
+<p>Itsu Tomohiko: What's with that.... Alright, I'm in a good Mood! Since I've helped this far, I'll help you to the end. I'll even prepare all the Alcohol and Drinks, and I'll tell them you prepared it. How's that?</p>
+<p>Tanaka Norio: Are you sure? Won't it be a burden?</p>
+<p>Itsu Tomohiko: That much isn't a burden. You know me well, don't you?</p>
+<p>Indeed, speaking as if he were rich didn't suit Itsu Tomohiko, who was middle-class. We all looked at Suzuki Soki, the last man remaining among the university students. As I recalled, his Parents operated a Factory of a certain scale.</p>
+<p>Since only Itsu Tomohiko and Suzuki Soki were the remaining men, if Itsu Tomohiko wasn't the culprit, then Suzuki Soki had to be.</p>
+<p>"W-what...! You're saying I'm the culprit because of that? And the chat was with Itsu, not me!"</p>
+<p>"He must have killed Tanaka Norio-ssi and then changed his name in the chat room to Itsu Tomohiko and saved it, which is why it appears as Itsu Tomohiko-ssi. I inadvertently pressed the back button and checked the chat, and Suzuki Soki-ssi wasn't there. And there's a simple way to confirm it."</p>
+<p>Oofuchi Erika tapped on the profile of the ID labeled Itsu Tomohiko. The profile Photo was a default one, and she opened her mouth, showing it to the female college students.</p>
+<p>"Is this profile the same as Itsu Tomohiko-ssi's current profile?"</p>
+<p>"No. Tomohiko's current Photo is a mirror selfie...."</p>
+<p>At Oofuchi Erika's Question, Hiragami Noyu immediately replied without even checking the profile Photo. Seeing that she remembered without even checking, perhaps they really should date?</p>
+<p>Uzuka Hikari, the remaining female student who checked belatedly, also nodded her Head, saying, "Oh? That's right!" It certainly seemed that the man who chatted with the deceased Tanaka Norio was not Itsu Tomohiko.</p>
+<p>"And it was suspicious from the start! Clearly, everyone else took Sleeping pills and fell into a deep Sleep, so how did you wake up in the middle and realize Tanaka Norio-ssi had disappeared at Dawn? Didn't you kill Tanaka Norio-ssi at that time?"</p>
+<p>Oh, that's right. When I asked about his alibi, Suzuki Soki clearly said he woke up in the middle of his Sleep, didn't he? To remember even that.... Oofuchi Erika is amazing.</p>
+<p>"Keukkeukkeukkeu...!"</p>
+<p>"T-Tomohiko, where is he?! Answer me, Suzuki!"</p>
+<p>Perhaps because he could no longer hide it, Suzuki Soki began to laugh sinisterly, like a Villain, with an ominous feeling. The female college students had already recoiled with disgusted expressions, but Hiragami Noyu soon screamed, asking where he had put Tomohiko.</p>
+<p>"Huuu..... Alright, let's do this. Just let me go. Then I'll return that guy Itsu safely."</p>
+<p>Because Hiragami Noyu's shout confirmed that he had a Hostage, Suzuki Soki opened his mouth with a sly expression. His expression seemed to say, "If you kill or catch me, Itsu Tomohiko's life will also be gone." I couldn't tell if the words of this serial killer, Kotowazuki, were true or false. His gaze was filled with Madness, making it impossible to know what the Truth was. Whether Itsu Tomohiko was already dead or if he was keeping him alive.</p>
+<p>Oofuchi Erika had brilliantly exposed the culprit, but as a tender-hearted high school girl, she didn't know what to do in this Situation.</p>
+<p>Jjirit jjirit Fist-throwing Alik requested by MidNightSKY-nim~!</p>
+<p>Kkiyoooot!</p>

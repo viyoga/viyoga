@@ -5,88 +5,68 @@ weight = 347
 chapter = 347
 +++
 
-<p>Before leaving work, I grabbed the document detailing the student's special circumstances that I had tossed onto my desk earlier. I decided to check it out as soon as I got home. If I didn't take it home, there was a good chance I'd forget about it entirely, so I had to take it with me to make sure I looked at it.</p>
-<p>I returned home, grabbed the special circumstances document and the thick file investigated by the Taira Group's information team, and sat down.</p>
-<p>First, I should check out the two suspended members, right? Let's see... Here it is.</p>
-<p>Shido Tsubaki, the head of the newspaper club, is the heiress of Shido Newspaper, one of the top four newspaper companies in Japan, and she was active in the newspaper club, befitting a newspaper heiress.</p>
-<p>She was suspended for reckless reporting, but the specifics of that reckless reporting weren't detailed in the special circumstances.</p>
-<p>Curious about what that reporting was, I decided to check the student roster investigated by the Taira Group's information team.</p>
-<p>I found Shido Tsubaki in the third-year student roster and started reading the details. The daughter of the Shido family, the head of the newspaper club... There was the information I had just read, and below it was what I was looking for.</p>
-<p>Nomata Shigemichi, the homeroom teacher of the special class, filmed the sexual assault of Seiwa Rieko, a student in the same special class, and published the photos in the newspaper club's weekly paper....</p>
-<p>Certainly, an article alone might not have been a problem, but publishing the photos was too much. As a result, the victim, Seiwa Rieko, dropped out of school.</p>
-<p>It was also written that she was caught forcibly trespassing while investigating the state of hikikomori at St. Francisco Girls' Academy, which led to her suspension being confirmed. This hikikomori investigation was not published as an article, it seems.</p>
-<p>In short, she's a female student who can't distinguish herself when there's a story. When this girl's suspension is lifted, she'll be coming to our class. I need to be careful not to end up in her articles, huh? Or I should just make her one of my people.</p>
-<p>The next troublemaker is Kujo Kina, and this time it was violence, a common reason for suspension. It was a violent incident that occurred in The Fist, a martial arts club different from the Cheongsim Hall, and a whopping thirty people suffered serious or minor injuries.</p>
-<p>With as many as 30 victims, there was a high possibility of expulsion, but all the victims testified that it was a fair fight, so the suspension was confirmed.</p>
-<p>If the testimony is true, did she win against 30 people in the martial arts club? That's amazing, huh? She seems to be a formidable fighter. I should check her out with the glasses from the ruins too.</p>
-<p>One person who didn't get suspended but notified in advance of her absence is...? Urabe Konoka, the adopted daughter of the Urabe family, a family of Shinto priests. According to the Taira Group's information, her previous name was Hamahata Konoka.</p>
-<p>Hamahata Konoka, that's a name I've heard somewhere before.... The Taira Group's information didn't have any information before that. I think I'll remember if I think about it a little more.</p>
-<p>Ah! The girl from that inn on Chōten Island! I remember her becoming a shrine maiden apprentice at the shrine where I first met Simyeonui ttal directly, so she's been adopted into a family of Shinto priests.</p>
-<p>She knows my identity, so I need to have an interview with her before she opens her mouth.</p>
-<p>They're all troublemakers. All that's left is one hikikomori who didn't say anything in advance and doesn't come to school.</p>
-<p>I'll look at the hikikomori information later. Right now, I need to contact Mask Delivery and call  to hang out. I have to go to the black market branch with Saionji Diana tomorrow, so I need to unwind in advance.</p>
+<p>Oofuchi Erika, the last of the Oofuchi family's bloodline, had lived alone with her father since she was a child. The Oofuchi family barely made it into the prestigious families as a former samurai class family, but with few family members and a declining fortune, her father had no choice but to overexert himself to take care of Oofuchi Erika.</p>
+<p>To maintain the face of a prestigious family, her father had no choice but to overexert himself even more to send Oofuchi Erika to the expensive St. Francisco Girls' Academy. Her father was busy with work and not at home, and her grandparents, who used to take care of her, passed away when she was in the lower grades of elementary school, so Oofuchi Erika was often home alone.</p>
+<p>All Oofuchi Erika could do when she was left alone was to review what she had learned at school and explore the infinite world of the internet to accumulate knowledge.</p>
+<p>One day, she realized that she had a talent as a VR diver, and Oofuchi Erika used the money she earned from the internet to use a used VR machine to roam the net world more freely.</p>
+<p>The first hacking she did was hacking the obstetrics and gynecology clinic where she was born. She had been curious about her mother's name since she was a child, but she couldn't bring herself to ask because of her father's sad face.</p>
+<p>Most of the information in the obstetrics and gynecology clinic had been deleted, but Oofuchi Erika, who was an excellent VR diver from the beginning, was able to gather fragmented information and find out who her mother was.</p>
+<p>Daigo Terue.</p>
+<p>A woman who is the headmaster of St. Francisco Girls' Academy. After obtaining some more data, Oofuchi Erika found out why her father had no choice but to raise her alone and why Daigo Terue didn't look for her.</p>
+<p>To abandon her child because of the family. The first thing Oofuchi Erika felt when she realized everything was anger. But because she had a father who worked day and night for her, Oofuchi Erika decided to be a good daughter to her father instead of unleashing that anger on the world.</p>
+<p>She studied even more passionately than she had done just because she had nothing to do at home, and by the time she was in the third grade of middle school, she had already completed the high school curriculum and was studying university courses in biology, which she liked.</p>
+<p>Her father was also happy with Oofuchi Erika's achievements, and Oofuchi Erika also wanted to become independent quickly to reduce her father's burden and repay him for raising her until now.</p>
+<p>But Oofuchi Erika's small wish was not fulfilled. Her father, who had gone to work during the winter vacation of middle school, collapsed. He collapsed from overwork and never got up again.</p>
+<p>After that, Daigo Terue suddenly came and said that she was her godmother and took Oofuchi Erika to her house to live with her. Before that, she had lived in a monthly rental outside Miyashi, so she could no longer live in the house she had lived in. Oofuchi Erika, who had no money, had no choice but to live in Daigo Terue's house.</p>
+<p>Oofuchi Erika didn't want to go to St. Francisco Girls' Academy, where her mother Daigo Terue, who called herself her godmother, was the principal. Her father, who had cooled her anger, was no longer there, and she would rather take the high school graduation qualification exam and go to university quickly.</p>
+<p>But Daigo Terue's permission was not granted. Oofuchi Erika, who hated being restricted even though she hadn't cared until now, became a hikikomori who didn't go to school and only lived in the internet world.</p>
+<p>She continued to study biology, which she liked, on the internet, but to others, it was just a life of lying in bed wearing VR goggles.</p>
+<p>One day, after being holed up in her house for nearly three years, Daigo Terue opened the door and came in.</p>
+<p>,The homeroom teacher is visiting today, so dress neatly and wait."</p>
+<p>Daigo Terue pointed out Oofuchi Erika's attire, who was wearing only a large shirt over her underwear, and said that her homeroom teacher was visiting.</p>
+<p>,When have I ever seen him to call him my homeroom teacher? I'm not going to prepare anything, so please send him back, Godmother."</p>
+<p>Daigo Terue couldn't help but sigh at Oofuchi Erika's cold words.</p>
+<p>And after a while, the figure of a guy called a teacher was seen on the camera installed at the front gate. Blonde hair, brown skin, high-quality muscles filling the skin... He was a handsome man that was hard to believe was a teacher.</p>
+<p>,I'm sure he'll send him back."</p>
+<p>Oofuchi Erika tried to ignore the downstairs and put on her VR goggles. But the handsome teacher's face came to her mind, and she unknowingly carefully opened the door and decided to go down the stairs and take a peek.</p>
+<p>,...It depends on how you do it, right?"</p>
+<p>At the handsome teacher's words, Daigo Terue suddenly got up from her seat and started to approach the teacher and unzip his zipper. When the zipper was completely lowered, the teacher's dick sprang out as if bouncing.</p>
+<p>,!"</p>
+<p>Oofuchi Erika was surprised by the suddenness. Of course, as a born VR diver, she had seen pornographic materials and knew about men's bodies. But it was the first time she had seen such a realistic and vivid(?) raw dick. The teacher was a man with a size similar to a black man she had seen in Western porn and a steel-like hardness.</p>
+<p>The moment Daigo Terue put that big dick in her mouth as it was, she couldn't help but be surprised again. It was something that Daigo Terue, the dignified and intellectual headmaster of St. Francisco Girls' Academy, who was weak to her, would not do.</p>
+<p>After sucking on his dick for a while, Daigo Terue took her mouth off and stood up from her seat. The thick and long dick was glistening with Daigo Terue's saliva, and a thick liquid was flowing from Daigo Terue's crotch as well.</p>
+<p>Daigo Terue approached the teacher as if hugging him and sat down on the teacher's dick as it was. Oofuchi Erika clearly saw that big dick entering Daigo Terue's body.</p>
+<p>After that, a fierce sex continued. Oofuchi Erika kept watching without even closing her eyes as if she was falling into it.</p>
+<p>,Haaahng...! No more! Haaht! The inside of my uterus is Heueuheuheung...! It's weird...♥"</p>
+<p>,I'm cumming too...!"</p>
+<p>The two hugged each other tightly and began to climax at the same time. Because it was a bright morning, the light shone through the window, so Oofuchi Erika could clearly see the handsome teacher's dick expanding and contracting as he ejaculated. Oofuchi Erika unknowingly wondered how good it would feel.</p>
+<p>Even though one sex was over, the two didn't think of stopping. Daigo Terue's words urging the teacher's dick somehow made her chest feel stuffy. So she didn't keep watching the next sex and went back to her room.</p>
+<p>Oofuchi Erika went into her room and lay down on her bed. And she unknowingly moved her hand down. Her crotch was wet with pussy juice and slippery.</p>
+<p>,Heueung...!"</p>
+<p>It felt strange. It wasn't the first time she had masturbated, but it felt the best of all the times she had touched herself. It feels this good now, how good would it feel if that man touched her...?</p>
+<p>Oofuchi Erika started masturbating, leaving her mother and homeroom teacher having sex on the first floor.</p>
 <p>###</p>
-<p>,This is Egawa Alexandra, a third-year high school student who has newly joined our club. Alik, introduce yourself."</p>
-<p>Shimokawabe Airen grabbed Alik's shoulder and introduced Alik to the Cheongsim Hall club members. Alik nodded slightly and opened his mouth.</p>
-<p>,Please call me Alik."</p>
-<p>The Cheongsim Hall members all looked at Alik with sparkling eyes at the appearance of the new recruit. One of the people looking at Alik raised his hand and asked a question.</p>
-<p>,What school of martial arts are you learning?"</p>
-<p>,To be exact, Alik isn't learning any traditional Japanese martial arts. You could say it's his own style of martial arts."</p>
-<p>Shimokawabe Airen answered for Alik to the members' questions. The Cheongsim Hall members all looked at Alik with question marks on their faces. If he didn't learn traditional martial arts in the first place, why did he join the club? Everyone was thinking that.</p>
-<p>,Alik is also interested in traditional martial arts, so I'm going to give him the basics, so don't be too dismissive."</p>
-<p>,Yes! Master!"</p>
-<p>Because the club's name was Cheongsim Hall, everyone called Shimokawabe Airen "Master." But there was a certain heat in everyone's eyes.</p>
-<p>The Cheongsim Hall members wanted to know how strong a new member was when they joined. From the young middle school members to the third-year high school members who were the same age as Alik, everyone seemed to want to spar with Alik once.</p>
-<p>,Akemi. Do you want to spar?"</p>
-<p>,Yes, please give me the opportunity!"</p>
-<p>When Shimokawabe Airen asked Akemi, the first-year high school club leader, Akemi stood up from her seat and answered. She was a promising girl who became the leader with considerable skill among the first-year high school students.</p>
-<p>So Alik and Akemi decided to spar, and they held their bamboo swords and faced each other.</p>
-<p>,I'm Shimao Akemi, the first-year high school leader. My school is Gokuten Sangata-ryu."</p>
-<p>,Alik, I've learned a lot."</p>
-<p>The two introduced each other and pointed their swords at each other. The moment Shimao Akemi felt a flash of lightning in Alik's eyes, Alik rushed in. It was an incredible speed.</p>
-<p>Shimokawabe Airen, watching the scene, observed Alik's appearance in detail with shining eyes.</p>
-<p>Tak!</p>
-<p>In the blink of an eye, Alik's bamboo sword hit her head. Shimao Akemi was stunned. How could he be so fast...! Soon after, she realized that she had lost and bowed to Alik.</p>
-<p>,...Thank you for teaching me a lot."</p>
-<p>,Yeah, you're welcome."</p>
-<p>Alik also greeted her in return, and this time the second-year students stood up from their seats.</p>
-<p>,Please let us spar too!"</p>
-<p>,Me too!"</p>
-<p>That day, Alik sparred with a total of 12 second-year students and won all of them. Shimokawabe Airen's eyes sparkled as she watched Alik's skills.</p>
-<p>,We'll have the sparring with the third-year students the day after tomorrow."</p>
-<p>The third-year students looked disappointed at Shimokawabe Airen's words, but they thought it would be better to fight a fresh Alik after a day of rest than to fight a tired Alik after more than ten matches, so they soon agreed.</p>
-<p>,Now, today's club activities are...."</p>
-<p>After the sparring, the Cheongsim Hall club activities began with Shimokawabe Airen's words. Alik began to receive basic instruction from Shimokawabe Airen separately.</p>
-<p>###</p>
-<p>Tuesday morning. Konoe Akina and Otagi Yuka gathered an hour early to post the Dating Experience Club's posters on the school bulletin boards.</p>
-<p>,How's the poster?"</p>
-<p>,Y-You're going to put this on the school bulletin board?"</p>
-<p>Otagi Yuka asked, slightly embarrassed and angry at Konoe Akina's question. Yesterday, after school, Konoe Akina had dressed her in a suit and taken various photos.</p>
-<p>As a result, the poster featured Otagi Yuka, who even she thought looked handsome, saying in a speech bubble, "Won't you go on a date...?" and below it was written "Dating Experience Club Recruitment!"</p>
-<p>,No, it looks like I'm the main character...! It's not like a movie poster promoting the top method actor...."</p>
-<p>,Yeah, the competition is until tomorrow, so there's no time to make a new one."</p>
-<p>Konoe Akina smiled and posted the poster on the school bulletin board despite Otagi Yuka's complaints.</p>
-<p>The school bulletin boards were next to the main gate, on the first floor of each grade's building, and in the faculty office. So Konoe Akina had quite a few posters with her.</p>
-<p>,Did you get permission from the student council?"</p>
-<p>,Of course. While you were asking the other kids yesterday, I took the poster I made yesterday and went to the student council to get club approval."</p>
-<p>Sure enough, there was a student council approval stamp in the corner. The two went around recruiting club members every break.</p>
-<p>After taking photos after school, Otagi Yuka went around to franchise cafes around the school to recruit club members, and Konoe Akina took the finished poster back to school and got approval from the student council.</p>
-<p>,But there aren't any at the cafe, right?"</p>
-<p>,Yeah, they all said they were in a club.... Only a few people in our class aren't in a club."</p>
-<p>Otagi Yuka thought that students who didn't participate in club activities after school and were at the cafe might not be in a club, so she tried to recruit students, but that expectation completely failed.</p>
-<p>Most of them were already members of a club. Most of them were just students who put their names on the list and hung out, so they were unnecessary students for club recruitment.</p>
-<p>,But it's a relief that we succeeded in recruiting one person."</p>
-<p>,Yeah, we were able to add one person because Naruse-yang willingly joined."</p>
-<p>With the addition of the sickly Naruse Shiyo, the total number of members was now three. Sakagami Rena, who always wore a mask, had disappeared somewhere during breaks, and it was difficult to talk to Saionji Diana, the girl in the wheelchair, because she was always lying down during breaks.</p>
-<p>Other students included Minamoto Risa and Seizawa Shii, who were competing with them, and the rest were students who didn't come to school often.</p>
-<p>,Let's make sure to talk to Sakagami-yang and Saionji-yang today."</p>
-<p>,Yeah! We have to get them to join. If we get those two to join, won't we win?"</p>
-<p>The two chatted and put up posters at the school gate and stood up. It was now time to split up and put up posters on the bulletin boards of each grade.</p>
-<p>,But it's a bit much to accept middle school students, so we should just put them up for high school students."</p>
-<p>,Yeah, a dating club for middle school students is still a long way off, of course!"</p>
-<p>Both of them were heiresses of prestigious families, so they had a slightly old-fashioned mindset that middle school students shouldn't be dating.</p>
-<p>,I'll put them up on the 1st and 2nd grade bulletin boards, so Yuka, put them up on the 3rd grade and faculty office bulletin boards."</p>
-<p>,Okay. Let's meet in the classroom after we're done."</p>
-<p>Konoe Akina and Otagi Yuka divided the posters and parted ways amicably.</p>
-<p>----</p>
-<p>Poster B-cuts!</p>
+<p>After having sex and getting dressed, we had a cup of tea to replenish our lack of moisture. Maybe it was because I had ejaculated twice, but it tasted like honey even though it was warm tea. After drinking all the tea, Daigo Terue looked at me and started asking questions.</p>
+<p>,But why did you say you had to meet Erika by today?"</p>
+<p>,There was an official notice that all members of the special class who don't have a club should join a club by Friday. Oofuchi-yang is the only student who doesn't have a club right now. Ah, Uenozono Karen-yang said that she was allowed not to join a club because of work, so strictly speaking, there are two people."</p>
+<p>Daigo Terue made a face as if she had realized something at my words. She must have known this fact. I didn't know things would turn out like this, though.</p>
+<p>,Can I see Oofuchi-yang once? I'll try to persuade her to attend."</p>
+<p>,...Okay. Follow me, I'll ask Erika."</p>
+<p>I followed Daigo Terue to the second floor. In front of a room on the second floor, Daigo Terue knocks on the door.</p>
+<p>,Erika, the teacher says he wants to see your face at least once."</p>
+<p>,Haa...Kyaaak! Wait a minute, I'm changing my clothes, so come back in five minutes!!"</p>
+<p>I think I heard a slight moan, but did I hear it wrong? Anyway, I heard her say to come in, so should I go downstairs and wait for a while?</p>
+<p>,I'm going to use the bathroom for a while."</p>
+<p>,Go ahead."</p>
+<p>I thought I could go to the bathroom for 5 minutes, so I told Daigo Terue and went to the bathroom. I went to the bathroom, peed, washed my hands, and checked my face. Hmm, I'm handsome, you bastard.</p>
+<p>I came out of the bathroom and waited for a while, then went back up to the second floor and knocked, and I heard a voice from inside saying to come in.</p>
+<p>,Have a good talk, you two."</p>
+<p>,Yes."</p>
+<p>I opened the door and went inside. Oofuchi Erika was a beautiful girl with dark teal hair. She was sitting on the sofa wearing a large boxy T-shirt and short denim shorts.</p>
+<p>For some reason, the window in the room was open. Is she trying to ventilate the room because a guest is coming?</p>
+<p>,Hi?"</p>
+<p>,Ah, hello..."</p>
+<p>Judging from her reaction, she definitely saw the sex scene between me and Daigo Terue. I wondered if it was too violent a scene for a girl who wasn't an adult yet... Her face was red, so it seemed like she was shocked.</p>
+<p>-----</p>
+<p>Oofuchi Erika</p>
+<p>She's wearing a loose T-shirt, so it's not that noticeable, but she's got big boobs like her mom, hehe.</p>

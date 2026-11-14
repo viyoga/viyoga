@@ -5,81 +5,96 @@ weight = 654
 chapter = 654
 +++
 
-<p>"Haaeeuuheueung...."</p>
-<p>To give the virgin Urabe Konoka some time to adjust to my dick, I stayed still inside her, and Urabe Konoka's pussy began to wriggle on its own, gently biting my dick.</p>
-<p>Of course, I enjoyed the wriggling of her pussy, but I wondered if Urabe Konoka would feel good just having my dick inside her. But my worries were unfounded; even without any piston action, her pussy wriggled and rubbed against my dick on its own, and Urabe Konoka was moaning as if she felt good too.</p>
-<p>Soaking in the warm hot spring water with my dick inside a woman's body was paradise.</p>
-<p>"I'm going to move now."</p>
-<p>"...Yes."</p>
-<p>As I grabbed Urabe Konoka's waist and lifted her up and down, making piston movements with the sound of splashing water, Urabe Konoka tilted her head back and began to moan from the unfamiliar pleasure she was experiencing for the first time in her life.</p>
-<p>"Haaeeut, it's strangeooo...! Something, heeung! Strange...! Haaeeut, between my legs, heeut...! It's ticklish, and the inside is being pressed by Teacher-nim's, haaeeut! That... thing...♥"</p>
-<p>Urabe Konoka was telling me about the pleasure she was feeling, as if trying to explain her symptoms to a doctor. So, she's the type to get chatty during sex.</p>
-<p>"Does it feel good?"</p>
-<p>"Neheeet...! Hwaaat, Teacher-nim's eueung, hard and big thing...! Heueuheung♥ It's pressing down on the inside of me, so it feels gooood! Hyaaahang...!"</p>
-<p>She was definitely like a shy girl before we started, but once my dick went inside her pussy, she became incredibly expressive. Or maybe she had acknowledged her feelings for me and changed like this. The latter was probably more likely.</p>
-<p>As the movements became more intense, the sound of the waves changed from splashing to crashing, and Urabe Konoka's moans grew louder.</p>
-<p>"Stand up."</p>
-<p>Rather than sitting and moving while holding Urabe Konoka's waist, I wanted to move my body directly, so I had Urabe Konoka stand up, rest her arms on the rocks of the hot spring, and stick her butt out towards me.</p>
-<p>"Is this what you call doggy style?"</p>
-<p>"Yeah. Urabe, your backside is pretty too."</p>
-<p>In fact, some women hated it, saying it was beastly, but the innocent Urabe Konoka, who was a virgin until 10 minutes ago, tilted her head and looked at me with an expression that said, Is this that position? I'm curious! Moreover, she smiled at me, looking pleased that I had even complimented her backside.</p>
-<p>Of course, my compliment wasn't just lip service. Urabe Konoka was slender, but her waist was thin and her hips were wide, making her backside very seductive.</p>
-<p>Earlier, when Urabe Konoka was sitting on top of me, I couldn't see her pussy properly, but now that she was showing her butt to me, I could see her pussy. Originally, her pussy should have been swollen from her first experience, but thanks to the characteristics of the sacred pillar, it wasn't very swollen or congested. Of course, the hymen blood had already been washed away in the hot spring, so there was no trace of it.</p>
-<p>Urabe Konoka's pussy was a cute pussy with plump labia majora. Of course, it was tightly closed as it had just been a virgin, but the flesh around the closed pussy had volume, making me want to touch it for no reason.</p>
-<p>I touched Urabe Konoka's pussy mound before inserting my dick. The soft, chewy feeling was quite addictive.</p>
-<p>"Hang, haaeeut...! Teacher-nim, heeung, your touch, haaeeut...! It's naughtyooooo♥"</p>
-<p>Urabe Konoka was moaning hotly just from me touching her pussy mound. After touching her pussy mound for a while, I parted her pussy lips with my index finger and gently inserted it into her vagina, and Urabe Konoka's vagina, hotter than the hot spring, gently bit my index finger.</p>
-<p>"I'm going to put it in now."</p>
-<p>"Haaaa.... Please come in, Teacher-nim♥"</p>
-<p>After teasing Urabe Konoka's pussy for a while, I parted her plump pussy mound and pushed in my glans, and Urabe Konoka shook her butt and seduced me.</p>
-<p>"Haaaahng!"</p>
-<p>She had been tormented by my finger until just now, so she moaned loudly as she felt the relatively large difference when she was hit with a huge dick. And Urabe Konoka's pussy began to wriggle and greedily suck on my dick. It was a pleasant pussy that gave me the feeling of a vacuum fellatio.</p>
-<p>"Haaeeueeang! Teacher-nim, haaeeut! The position, eungheut...! Changed♥ so it feels like it's coming in deeper! I'm being pierced, heehit...! By Teacher-nim's haaeeut! Thing, heeung♥ I'm being pierced through♥"</p>
-<p>"Keueut, it's not that I'm piercing you, but Konoka's pussy is sucking on my dick."</p>
-<p>My pubic bone and Urabe Konoka's butt collided with a slap, and my balls also stimulated Urabe Konoka's Clitoris, so her voice gradually rose.</p>
-<p>"Haaeeut, haaeeuahang...! It's strange, it's strange...! Something's coming, Teacher-nim! Hwaaaahang♥ Eueheung! Something haaeeut! It feels haaaaang!!"</p>
-<p>As if announcing her climax, Urabe Konoka's pussy began to suck on my dick as she reached her climax, as if squeezing my semen. I didn't refuse Urabe Konoka's pussy's demands and increased the pitch of my piston movements.</p>
-<p>"Konoka, I'm going to cum inside...!"</p>
-<p>"Haaeeueeheung...! Inside, haaeeut! Please cum inside me, Teacher-nim...♥"</p>
-<p>Pulling on Urabe Konoka's thin waist, I began to ejaculate into the deepest part of Urabe Konoka.</p>
-<p>Byueeut! Beueut! Byueeuuut!</p>
-<p>"Haaaang! Something hot, heueut! Is coming inside meooo♥"</p>
-<p>It seemed that everything was new to Urabe Konoka, who was experiencing her first sex and first intravaginal ejaculation. She was quite cute as she was surprised and climaxed as my hot semen was injected into her body.</p>
-<p>After trembling for a while after ejaculating, I picked up Urabe Konoka, who was leaning against the rock she had been holding onto, and went back into the hot spring. I thought she would be cold because only her legs were in the hot spring.</p>
-<p>"Ah.... Teacher-nim's milk is coming out!"</p>
-<p>"I should ask them to change the water."</p>
-<p>I was holding Urabe from behind, and my semen was coming out cloudy, so we got up from our seats. Then, we scrubbed each other's backs in the washing area, splashed water, wiped ourselves off, and went back into the room.</p>
-<p>Urabe seemed a little tired and lay down on the bed naked. And she smiled and looked at me.</p>
-<p>"Hold me, Teacher-nim."</p>
-<p>As Urabe Konoka requested, I hugged Urabe Konoka tightly on the bed. Urabe Konoka, who was in my arms, wriggled for a moment and then went down.</p>
-<p>When I looked at her with a what's wrong? expression, Urabe Konoka smiled and said, Service♥, and put my dick in her mouth.</p>
-<p>Of course, it wasn't so good that I was going to faint, as it was the first fellatio from a virgin who had her first experience today. Still, I liked her hard-working and trying attitude, and I liked the warm and moist feeling of having it in a woman's mouth, so I stroked Urabe Konoka's head and enjoyed the feeling in her mouth.</p>
-<p>After sucking on my dick for a while, Urabe Konoka spat out my dick with a somewhat disappointed expression and opened her mouth.</p>
-<p>"It's not coming out, Teacher-nim."</p>
-<p>"It usually takes a long time to cum again after you've cum once."</p>
-<p>I couldn't tell her to her face that her skills were lacking, so I smiled and answered. At that, Urabe Konoka smiled with a naive expression, as if she had learned a new fact, saying, Is that so?</p>
-<p>"When we did it in the hot spring, it was from behind... so I was sad that I couldn't see Teacher-nim's face."</p>
-<p>"Was that so?"</p>
-<p>"So.... Please do it missionary style, Teacher-nim♥"</p>
-<p>Urabe Konoka was lying back on the bed, spreading her legs and seducing me. It was a seductive gesture that was hard to believe she was a virgin until just now. Where did she learn these seduction skills? Is there something passed down in her DNA?</p>
-<p>Of course, I didn't resist the seduction and immediately pounced on Urabe Konoka.</p>
-<p>###</p>
-<p>The food prepared by the inn was delicious. It was a neatly prepared dish of mountain vegetables and meat from near Mount Fuji, and according to the clerk's explanation, it contained quite a few herbs that were good for stamina. So, I ate it very deliciously, and it really felt like I was getting stronger.</p>
-<p>After dinner, I played table tennis for about 30 minutes at the table tennis table prepared at the inn, and then went back to the room and had sex round 2. In the night's sex, the virgin Urabe Konoka couldn't last until midnight and fainted from pleasure.</p>
-<p>After that, I soaked in the hot spring and slept soundly until morning, and it was the most refreshing feeling I'd had in a long time.</p>
-<p>Usually, I would either be sleep-deprived from having sex until dawn, or I would sleep alone and have too much yang energy left over, so I would feel somewhat frustrated, but now I felt perfectly balanced. It felt like I was taking a vacation on a date for the first time in a long time.</p>
-<p>When I woke up with a comfortable feeling, Urabe Konoka was holding my face with her breasts and stroking my hair.</p>
-<p>"Konoka, when did you wake up?"</p>
-<p>"I woke up a few days ago and have been watching you, my partner."</p>
-<p>Ah, it wasn't Urabe Konoka. It seemed that Simyeonui Ttal had finally returned after a long silence. Hmm.... Simyeonui Ttal knew that I had met many women so far, so I didn't think she would be angry about doing it with Urabe Konoka, so I buried my face in Simyeonui Ttal's chest (although it was Urabe Konoka's).</p>
-<p>"I missed you."</p>
-<p>"Hehe, did you miss me so much that you're acting like this?"</p>
-<p>"Of course. I don't get to see you often normally.... But I still feel like we're connected somehow, but recently that feeling has disappeared."</p>
-<p>That was true. Simyeonui Ttal and I were connected by the trait Simyeonui Ttal's Brand, but recently, Simyeonui Ttal had been blocking all external stimuli in order to digest the avatar of the Sunken One, so that connected feeling was almost gone.</p>
-<p>"Hehe.... I have a lot to say, but first, hold me."</p>
-<p>Before I knew it, the black yukata that Urabe Konoka had been wearing as pajamas was taken off and spread out on the bed. She looked a little different from Urabe Konoka; even though we were indoors, she had slightly reddish-brown hair like Urabe Konoka when the sunlight was shining on her, and she was looking at me with more seductive eyes.</p>
-<p>"I'll make you feel good for the first time in a while."</p>
-<p>"Hehe.... I'm looking forward to it, my partner♥"</p>
-<p>______________________</p>
-<p>Urabe Collection</p>
-<p>Simyeonui Ttal Descended Mode Konoka</p>
+<p>The third commercial was one with children in it. Two kids, each holding a regular gun and our TG Tech's energy gun, were playfully pointing them at each other, making 'Bang! Bang!' sounds with their mouths as if they were having a gunfight.</p>
+<p>Then, with tense music playing, they simultaneously pulled the triggers. The regular gunpowder gun fired with a 'Tang!' sound, the bullet whizzing past the child in front, while the TG Tech's energy gun's blue line, showing the remaining energy, turned orange and didn't fire.</p>
+<p>And with a black screen, the caption appeared: "All TG Tech firearms prevent accidental incidents with their security system." Then the commercial ended.</p>
+<p>This commercial was quite short. It seemed to be a rebuttal ad to the article I read before that attacked TG Tech's energy guns, asking what would happen if kids thought they were toys and shot them.</p>
+<p>I thought this one was short and wouldn't have any particular problems, so I immediately moved on to the last commercial.</p>
+<p>The last commercial seemed like a proper advertisement, showing off our products. From the Predator Destroyer sniper rifle to the Oni Killer line of rifles and submachine guns, and the Ghoul Slayer pistol, it announced the release date.</p>
+<p>The release date was December 15th, which I knew was not far away. About a week left now?</p>
+<p>After watching all the commercials, I wrote down my opinions and a note saying they were well-made, then replied to the email.</p>
+<p>As soon as I sent the email, I got a reply in 1 second. It was Eve.</p>
+<p>-EVE: What are you talking about? It's all thanks to everyone's hard work. I'll make sure to reflect what Ryuta-nim pointed out.</p>
+<p>Seeing how quickly I got a reply, it seemed like the PR team's email was probably connected to Eve. I finished up my company work roughly, made a few midterm exam questions in advance, and had lunch, and before I knew it, it was almost dismissal time.</p>
+<p>Deureureuk!</p>
+<p>"Everyone, good work today!"</p>
+<p>"Ryuta-jji, why are you so late?"</p>
+<p>As soon as I opened the door, Seizawa Shii was scolding me for being late. Seriously, I came less than 2 minutes after dismissal time? I don't know why, but unlike the gloomy atmosphere of the morning assembly, the atmosphere of the special class now was lively.</p>
+<p>"Why is everyone in such a good mood?"</p>
+<p>"Well, of course it's because of the vacation Ryuta-jji mentioned!"</p>
+<p>"We've been having meetings every break to decide where to go!"</p>
+<p>Ah, is it because of the one-day vacation pass I got from the sports day? They're having meetings every break, how much do they like to play?</p>
+<p>"So, where are you planning to go?"</p>
+<p>"Don't talk like we're going without you, Ryuta-jji! We're going together."</p>
+<p>"That's right~! We have to go together and have fun~."</p>
+<p>Of course, I understand that I'm going with them, but I don't know why they're so excited. When I kept looking at them with an expression that said, "Tell me more," Seizawa Shii stood up from her seat with a triumphant expression.</p>
+<p>"The vacation spot we're going to this time is a ski resort~!"</p>
+<p>Ah, since it's winter, a ski resort is perfect. I was watching to see if there was anything else, but it seemed like they had only decided where to go, and Seizawa Shii was sitting back down.</p>
+<p>"So, when are we going?"</p>
+<p>For reference, the second semester was until the third week of December. There were roughly two weeks of winter vacation, and the third semester started on the second Monday of January. If we were going during vacation, the vacation pass would be meaningless, so we had to decide whether to go during the remaining two weeks of December or as soon as the third semester started.</p>
+<p>"We haven't decided anything except that we're using the vacation pass on Friday and leaving on Thursday."</p>
+<p>Seizawa Shii answered cheerfully. Well... breaks are only 10 minutes long, so they probably didn't have enough time to decide where to go during every break.</p>
+<p>"Then, let's just deliver the announcements first... and then decide when to go next time."</p>
+<p>I read out the announcements I received by fax and put up the calendar screen on the screen in front of the classroom.</p>
+<p>"First, anyone who wants to go this Friday?"</p>
+<p>"This Friday is not long after the festival, so I don't think we need to go."</p>
+<p>"I think it would be nice to have a little break too!"</p>
+<p>Since the festival was just last week, most of the students were against going this week. I could understand that playing continuously could be tiring. I put an X on this Friday, and then put an X on next Friday as well.</p>
+<p>"Next Friday is the closing ceremony, so it's meaningless to use the vacation pass, so let's skip it... Then this is the only day left?"</p>
+<p>The remaining period in between was vacation, and there was only the second Friday of January left. Since the third week of January was the exam period, even if the last exam of the third year wasn't important, it would be too much to go play.</p>
+<p>"Then shall we do it on this day?"</p>
+<p>"It's definitely only the second Friday of January."</p>
+<p>"Then let's make the ski resort trip on the second Friday of January and have the Date Experience Club decide on the details. You can think of it as planning a ski resort date course. Let's finish dismissal for now and go up to the second floor."</p>
+<p>Since Uenozono Karen, who is an idol, probably won't be able to go due to her schedule, I thought I should let her go home first, so I finished dismissal. The special class students were excited to go up to the second floor to make plans, and Kujo Kina and Alik were left in the classroom. I asked the remaining two what was going on.</p>
+<p>"Huh? What's wrong?"</p>
+<p>"Oh, about inviting you to our dojo during the festival."</p>
+<p>"Ah, that's right. Wasn't it more of a... sparring request than an invitation?"</p>
+<p>I remember that a guy named Li Xin, who was Kujo Kina's disciple, had asked me for a match.</p>
+<p>"Sparring is an invitation~! I'm trying to set a date for it."</p>
+<p>Sparring is an invitation... Kujo Kina seemed to have been influenced a lot by Old Man Yoda. She already had a reckless side, but it felt like it had gotten worse since she became Old Man Yoda's disciple.</p>
+<p>"Alik?"</p>
+<p>"I told Alik to stay for a bit. Alik and Alik's master were going to come together, right?"</p>
+<p>I remembered that Shimokawabe Airen was going to come too. I asked Alik if he had anything to say to me separately because he was staying behind, but it didn't seem like it. I asked Alik if he had heard anything separately from Shimokawabe Airen.</p>
+<p>"Alik, did you hear anything from Shimokawabe seonsaengnim?"</p>
+<p>"Moka-sabu didn't say anything."</p>
+<p>"Then I'll have to go ask."</p>
+<p>"If we're going to set a date anyway, we should decide on a day that works for both of us, so let's go to Cheongsim Hall together~!"</p>
+<p>Ah, so that's why Kujo Kina left Alik behind. To go to Cheongsim Hall together. I nodded, took Alik's hand, and headed to Cheongsim Hall.</p>
+<p>"Old Man Yoda on your side must have days when he's available and days when he's not, right?"</p>
+<p>"Well, we live in the dojo all the time, so there are hardly any days when we're not available. The kids aren't going to school yet either, so they're always at the dojo..."</p>
+<p>I asked about the dojo on the way to Cheongsim Hall.</p>
+<p>Since Kujo Kina will be going to St. Francis Women's University in Tokyo in a few months anyway, the current dojo is temporarily made of container buildings on the outskirts of Miyashi. She's planning to send Kujo Kina's young disciples to school starting next year. Even if they went now, it's the end of the semester anyway, and she's moving to Tokyo soon, so she's just training them now.</p>
+<p>She's currently building a dojo within commuting distance of St. Francis Women's University in Tokyo, but the land is expensive because it's Tokyo, so it cost a bit of money.</p>
+<p>Fortunately, the land prices in Tokyo have decreased a bit because of Neo Tokyo, which Tairaga is leading, and Cyber Kyoto City, which Minamoto is leading.</p>
+<p>"So I had to act cute to my brother...! "</p>
+<p>"Ah, we're here."</p>
+<p>As I was chatting with Kujo Kina, I arrived at Cheongsim Hall before I knew it. As if the festival was a long time ago, the food stall buildings that Cheongsim Hall had were neatly removed.</p>
+<p>I heard that the taste of alcohol while watching the fireworks at Cheongsim Hall was excellent, and it recorded record sales on the second night. It seemed to be because Shimokawabe Airen, who is the home ec teacher, has good hands.</p>
+<p>Since I'm planning to recruit Shimokawabe Airen unconditionally when her teacher job ends this time, the sales of Cheongsim Hall's food stall will be slightly affected starting next year.</p>
+<p>When I went inside Cheongsim Hall, some Cheongsim Hall members approached us. No, they approached me.</p>
+<p>"Yamashiro seonsaengnim, I collected all 100 photo card sets!"</p>
+<p>"Me too~!"</p>
+<p>"I keep getting the same cards, so I couldn't collect them all..."</p>
+<p>Seriously, why are they showing me their photo card certifications so embarrassingly? In the end, the girls gathered to get autographs on the photo cards. To increase the rarity(?) even more? I was surrounded by Cheongsim Hall members for a while, signing autographs, before I could meet Shimokawabe Airen.</p>
+<p>"I heard that you're giving away seonsaengnim's photo card sets to acquaintances."</p>
+<p>At Shimokawabe Airen's words, I scratched my head and answered.</p>
+<p>"Ah, some people wanted them... Should I give you one?"</p>
+<p>"I asked Alik to buy a set. But usually, people get two or three sets. One for storage and one for viewing..."</p>
+<p>"I'll give you a set."</p>
+<p>I didn't know she had already bought a set through Alik. Alik opened his mouth next to me, saying, "Mama bought one too." Is Mama referring to Egawa Shiho, Alik's adoptive mother? I don't know how far my photo card set will go.</p>
+<p>"Ah, seonsaeng. Our junior sister also said she wanted a photo card because she thinks seonsaeng is handsome."</p>
+<p>Even Kujo Kina was talking about my photo cards, so I had no choice but to take them as a gift for this visit.</p>
+<p>"Shimokawabe seonsaengnim, the reason we came here is..."</p>
+<p>I explained to Shimokawabe Airen the reason for today's visit. Shimokawabe Airen nodded lightly after hearing the story.</p>
+<p>"I have work the day after tomorrow, so as long as it's not those two days, I'm fine with any day."</p>
+<p>I have classes on Tuesday and Wednesday too, so Thursday or Friday, when I don't have classes, would be perfect.</p>
+<p>"Then let's do it on Friday! The next day is Saturday, so you can drink or do whatever without burdening your schedule."</p>
+<p>Kujo Kina clapped her hands and decided.</p>
+<p>"Can I bring a few people from our class? There are quite a few people who do martial arts, so I can show them around."</p>
+<p>Naruse Shiyo hasn't been learning martial arts for long, so she might be able to feel something from my sparring, and Sakagami Rena and Saionji Diana have also learned martial arts, so it wouldn't be bad to build friendships with Yoda's disciples.</p>
+<p>"It's not a difficult request, so come as much as you want!"</p>
+<p>I nodded in satisfaction at Kujo Kina's cool answer.</p>
+<p>__________</p>
+<p>I didn't make an illustration today, so here's a different type of martial arts VER Home Ec Teacher image I made before hehe</p>
+<p>This version and</p>
+<p>I was comparing this version and uploaded the latter hehe</p>

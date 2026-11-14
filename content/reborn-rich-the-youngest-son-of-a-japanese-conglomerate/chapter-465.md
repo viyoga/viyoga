@@ -5,68 +5,71 @@ weight = 465
 chapter = 465
 +++
 
-<p>After agreeing to occasionally provide my semen to Otagi Yuka, who had experienced its taste and efficacy, my daily life proceeded much as usual.</p>
-<p>However, while Daigo Terue was suspended due to disciplinary action, I heard rumors that Ishidera Kosuke, the newly appointed temporary Chairman, was rummaging through all sorts of documents at St. Francis Girls' Academy, meticulously searching for any wrongdoing to extend Daigo Terue's month-and-a-half-long suspension.</p>
-<p>Daigo Terue wasn't careless enough to leave behind any weaknesses. And since Daigo Terue is the daughter of Daigo Tadanori, the head of the St. Francis Educational Foundation, which oversees the Daigo family's educational ventures, it would take a considerable offense to impose additional disciplinary action here, so I wasn't too worried.</p>
-<p>Rather than worrying about Daigo Terue, I met with Taira Kanna in the student council Chairman's office to discuss the more immediate problem of Taira Jiro's attack. Instead of Taira Kanna, who was just attending school, I, who was operating within St. Francis Girls' Academy, would represent our grievances and contacted Taira Danjo-halbae.</p>
-<p>-What is it?</p>
-<p>Despite it being a long-awaited call, I heard the same gruff voice of the old geezer. His personality hasn't changed a bit.</p>
-<p>"Are you aware of who's behind the recent attack on St. Francis Girls' Academy, Grandfather?"</p>
-<p>-Hmph, that Jiro fellow pulled off quite the cute stunt. Did you call just to talk about that?</p>
-<p>Of course, I figured Taira Danjo would know, but his attitude was as if he couldn't care less, without a hint of anger or embarrassment. 'Cute stunt,' my ass, what's with this old man? He must know his own daughter was attacked.</p>
-<p>"Even if Jiro-samchon doesn't know I'm here on a mission, I'm telling you because he's being a nuisance. And Kanna-gomo was attacked too."</p>
-<p>-That's hardly a nuisance, you brat. Did you think this mission would be easy? If I were you, I would have used this incident to gain that girl's favor. You're missing out on the opportunity by dallying around?</p>
-<p>It was a reprimand for not protecting Minamoto Risa and increasing her affection while knowing an attack was coming. Still, seeing that Taira Danjo-halbae even knew I fought with SPF, I was once again impressed by his intelligence network.</p>
-<p>-And are you aware that our Taira Group has greatly benefited from this attack? If Jiro intended to kill Kanna, she would be dead for real. That level of attack was to divert suspicion from us.</p>
-<p>Of course, Taira Jiro probably disguised the terror attack to target the children of his business rivals, expanding his business through the opportunity... So, in the grand scheme of things, the Taira Group ultimately benefited... As expected, this old man seems to only care about the glory of the Taira Group.</p>
-<p>"If it benefits the group, am I allowed to attack my samchon or gomo too?"</p>
-<p>-...As long as you don't kill them.</p>
-<p>To think there's a halbae who says 'just don't kill them' when his children and grandchildren are fighting... He really is a ruthless old man. After this conversation, we talked about trivial things, and he whined that Taira Shizuku-halmeoni was nagging him for giving me a long-term mission and preventing them from meeting.</p>
-<p>-Keep calling your halmeoni so I don't keep getting nagged.</p>
-<p>"Okay. I'll hang up now."</p>
-<p>After ending the call, I told Taira Kanna about it, and she nodded as if she expected it.</p>
-<p>"That's just how Father is. The Taira Group comes before anything else."</p>
-<p>Taira Kanna's tone, devoid of disappointment or anger, made me feel awkward. I felt a bit awkward about going straight back to the prep room in that state, so I had a cup of tea and chatted with Taira Kanna, who is, after all, my gomo, to build rapport.</p>
-<p>Taira Kanna asked me questions like what kind of food I like, what my favorite movie genre is, and what my hobbies are when I'm resting, questions that men and women ask when they first meet. When I answered, she wrote them down in a notebook with a strange passion.</p>
-<p>Feeling strange, I stared at her, and Taira Kanna awkwardly laughed and brushed it off, saying that recording information in a notebook was a habit.</p>
-<p>After that, my usual routine continued. The students took classes and went to study groups, and I prepared for my promised visit to the United States with Arisu.</p>
-<p>In the middle, there was an incident where the temporary Chairman, Ishidera Kosuke, called Kurayamada Kirie for several interviews, and Kurayamada Kirie told me everything about the conversations in those interviews.</p>
-<p>Already severely addicted to my dick, and having entered St. Francis Girls' Academy on the recommendation of the Toyotaka faction, but with her identity as a member of the terrorist group Jinildang, Kurayamada Kirie betrayed her loyalty to the Toyotaka faction and immediately snitched to me.</p>
-<p>The contents of the interviews that Kurayamada Kirie told me weren't anything special, but I used the interviews to my advantage, having her request that if Yamashiro Ryuta takes a vacation, it would be easier for her to take control of the special class, and to approve Yamashiro Ryuta's vacation immediately.</p>
-<p>The travel time to the United States alone is fourteen hours round trip, but if I take a vacation on Friday, I can leave for the United States starting after work on Thursday, so I had Kurayamada Kirie do the work.</p>
-<p>Of course, the temporary Chairman Ishidera Kosuke, who trusted Kurayamada Kirie implicitly, immediately approved my vacation as soon as I requested it.</p>
-<p>Unlike Daigo Terue, who I can talk to directly, it's a bit easier to go through Kurayamada Kirie with the temporary Chairman. In exchange for granting my request, Kurayamada Kirie asked me for another favor, and although that promise was a bit burdensome, what could it be? She'll probably ask me for another sex situation.</p>
-<p>Before I knew it, the Thursday dismissal time to leave for the United States arrived, and the students once again complained when I said I was taking a day off.</p>
-<p>,Uu~! We're in the middle of exams! Ryuta-jji is going to play!"</p>
-<p>"That's right! The homeroom teacher should be responsible for us!"</p>
-<p>"Ryutta, idiot...!"</p>
-<p>I could tolerate the jeers of the other students, but even Alik calling me an idiot was quite shocking to me.</p>
-<p>"Who said I'm going to play? I'm going to a Korean language education seminar."</p>
-<p>It was true that I was going to play, but I pretended to be wronged, using the Korean language seminar as an excuse again. This was the second time I was leaving on the pretext of a seminar, so the students didn't really believe it. Hmm.... I should think of another excuse next time.</p>
-<p>"Well, I'll buy you some souvenirs, so don't complain too much."</p>
-<p>"Something delicious!"</p>
-<p>"I'd like accessories!"</p>
-<p>"Alik too, something yummy...!"</p>
-<p>When I said I would buy souvenirs, the classroom became noisy again. Because the class was so noisy and everyone wanted different things, I told them to send me what they wanted on LINE and finished the dismissal.</p>
-<p>Since coming to St. Francis Girls' Academy, I had been using Tokyo International Airport, but the travel time was over two hours each way, so this time I looked into which airport was closer and found that Mount Fuji Shizuoka Airport is about an hour away.</p>
-<p>As someone who uses the airport more often than the average person, being able to reduce the round trip by 2 hours was quite significant. Unless I have business in Tokyo, I'll probably continue to use Shizuoka Airport in the future. I felt a bit foolish for continuing to use Tokyo International Airport without knowing this.</p>
-<p>After dismissal, I went straight home to pack my bags, drove to Shizuoka Airport, went through various procedures, and laid down in first class. After comfortably eating in-flight meals and sleeping repeatedly during the seven-hour flight, I arrived at Los Angeles International Airport before I knew it.</p>
-<p>After putting on a real-time translator that looked like earphones and going through immigration, Arisu was waiting. Perhaps because it was America, there were many blonde Caucasians, but there was no blonde beauty as beautiful and shapely as Arisu at the airport, so I was able to find her quickly. Arisu was wearing black jeans, a white shirt-style jacket, and a black t-shirt, and she looked good in them, perhaps because she was a model.</p>
-<p>"Ryuta~!"</p>
-<p>"Arisu!"</p>
-<p>Arisu ran towards me with a bright smile, her arms open, and I hugged her tightly. Perhaps because it had been a while, Arisu's scent, which I had missed, filled my nose.</p>
-<p>"How have you been?"</p>
-<p>"Good~! You must be tired from the flight? Let's go to the car first."</p>
-<p>Arisu linked her arm with mine and led me to her car parked at the airport. As we approached the car Arisu had parked, I felt something strange. Arisu, perhaps sensing something as Phantom Thief Francois, was looking around.</p>
-<p>"I feel like someone's watching us?"</p>
-<p>"Ryuta felt it too?"</p>
-<p>My heightened adult senses were working properly, and the gaze was coming from a black SUV parked right next to Arisu's car.</p>
-<p>I didn't sense any particular malice or murderous intent, so we didn't avoid it and arrived at Arisu's sports car. I figured they must have something to say.</p>
-<p>Click...!</p>
-<p>As we approached, the side door of the SUV opened, and a mixed-race woman with brown skin and of Asian and Black descent got out. Huh? This woman is...?</p>
-<p>"Long time no see, Taira Ryuta-ssi. Or should I call you Yamashiro Ryuta-ssi?"</p>
-<p>It was Diana Ricci, the Deputy Director of the United States Federal Superhuman Management Bureau, whom I had met at Tijuana Airport at the tail end of the famine. How did she know I was coming...? Hmm, she was probably monitoring Arisu and my LINE conversations. Since I'm quite famous in the United States as Black Knight, I'm probably under surveillance by the Federal Superhuman Management Bureau.</p>
-<p>From our meeting at Tijuana Airport, she knew that Fujigasaki Rinka and the Taira family were behind me, and since I helped prevent the famine, her approach wouldn't be hostile. She's probably going to ask me for something.</p>
-<p>"Call me whatever you're comfortable with."</p>
-<p>"Black Knight, I have a request for you."</p>
-<p>As expected, my uneasy premonition was right. To think I have to take on a request even when I'm here on vacation....</p>
+<p>"What is this?"</p>
+<p>The place I entered after opening the door was decorated like a prison. There was a bed in the middle of the room, but it was surrounded by sturdy iron bars, and chains and various sex toys were hanging on one wall. Because it was morning, sunlight came in through the window, making it look less scary, but it seemed like it would be a very scary room at night when it was dark without light.</p>
+<p>Moreover, both of them were wearing unique costumes. Dang So-hwa was wearing a tight-fitting military uniform made of latex, and Yang Seol-hui was wearing a leather jacket and garter belt. What's the theme...? It was a style of clothing that gave off a strong woman vibe. Strong woman, distorted sexual desire, or something?</p>
+<p>"Hehehe...! Since we had our first experience in prison, Ryuta, you have to experience it too."</p>
+<p>"That's right! Ryuta-nim has to experience it too since he tormented us back then!"</p>
+<p>Ah, that's right. I ruthlessly persuaded(?) the two who were trapped in prison with my body, causing them to betray Kurotsuki-do and help me.... Ah...! It seemed like they wore strong styles because of that. It seemed like they prepared costumes to match the atmosphere of this prison room. Thinking again and looking at them, Dang So-hwa is a perverted prison guard and Yang Seol-hui is... just a pervert.</p>
+<p>"Go inside!"</p>
+<p>Yang Seol-hui pushed me into the iron bars, and Dang So-hwa came in with me. Then, she took off my clothes and pushed me onto the bed. As if they decided to take turns, Yang So-hui sat on the sofa outside the iron bars and began to watch us.</p>
+<p>"Stay still...."</p>
+<p>Dang So-hwa's eyes went a little dangerously crazy? While I was worried that this might be dangerous, she put shackles on my wrists and ankles with chains attached to each corner of the bed. My arms and legs were spread wide in an X shape and tied up.</p>
+<p>If this wasn't a sex room, it would be a pretty dangerous situation, but since they're just trying to relieve their sexual desires on me as they were, I should just stay still. It's fun to be treated like this sometimes.</p>
+<p>"Are you getting excited even though you're tied up, and your dick is getting bigger?"</p>
+<p>"It's not because I'm tied up, but because So-hwa is sexy...."</p>
+<p>She asked me with a ridiculous expression, trying to give off the feeling of an SM queen, but Dang So-hwa's face turned red and she turned her head at my honest answer. She likes it a lot?</p>
+<p>"I, I have no choice but to eat the mouth that says such hateful things!"</p>
+<p>Dang So-hwa sat on top of me, who was tied up and lying down, and bent down to kiss me. She said it was hateful, but she was gently tasting and licking my lips. I've been thinking about it since earlier, but there are quite a few unexpected sides to her. Her domestic and gentle appearance when having sex was different from Dang So-hwa's usual self. Originally, she felt like the ruthless Empress of the Underworld.</p>
+<p>Ttchok, tteuep, tchup♥</p>
+<p>Dang So-hwa's kiss still tasted like the herbal medicine unique to a poison person. I had forgotten until now, but it definitely tasted like this the first time we kissed too.</p>
+<p>I thought that if I wasn't immune to poison, it would be difficult for Dang So-hwa to find a man to date. I don't know how toxic Dang So-hwa's saliva is because I'm immune to poison, but if she kisses someone other than me, they'll probably have a lot of trouble, right? If it's serious, they might even die.</p>
+<p>It would be a different story if she could master poison techniques to the extreme and control poison freely, but by then, wouldn't she be completely my prisoner?</p>
+<p>She was always the one being attacked in prison before, so she didn't kiss me much, so she was a little clumsy. But she was offsetting that awkwardness with gentleness. She sits naked on top of me, kissing me, and rubs her pussy on my erect dick. It seemed like this was a natural action, not an intentional one.</p>
+<p>The zipper on Dang So-hwa's clothes was exposed on the outside, so my dick was a little sore from being rubbed against it, but because of my resistance stats, my defense power was high, so the zipper couldn't hurt me. I was thinking of it as a novelty when having sex with Dang So-hwa, along with the bitter taste of the kiss.</p>
+<p>"Tteuep.... Haa♥ Now, suck it...!"</p>
+<p>Jiiiik!</p>
+<p>After leaving a silver line and finishing the kiss, she raised the zipper, exposed her pussy, and then stood up again and held her pussy over my lips. I stuck out my tongue and started sucking and licking Dang So-hwa's pussy as it was.</p>
+<p>Hmm...! Similar to the kiss, Dang So-hwa's vaginal fluid had a herbal medicine taste and a tangy taste. I licked greedily, trying to find Dang So-hwa's weakness.</p>
+<p>"Haeueueuhaang♥"</p>
+<p>But there was no need to find a weakness. As soon as I put my tongue on it, her vaginal fluid started gushing out like turning on a faucet, along with moans.</p>
+<p>I wanted to move my hands and caress other places, but I couldn't touch them as I pleased because I was tied up with chains. I could break them if I wanted to, but I thought I should just match her, so I just moved my tongue.</p>
+<p>"Haeueueuheung!! Feels so good, haaang♥"</p>
+<p>Dang So-hwa trembles her pelvis and squeezes my face with her thighs. Haa, haa, she takes a deep breath. It's a shame I'm tied up. If it were my usual style, I wouldn't have let her off even if she reached her climax and would have continued chasing her for sex.</p>
+<p>"Now, heueut! I'll suck you, heueung♥!"</p>
+<p>After a while, Dang So-hwa came to her senses and went down and started licking and sucking my dick pillar. The iron bars opened with a creak, and when I looked, Yang Seol-hui came in and started licking my dick, facing each other on both sides.</p>
+<p>It had been a while since I had a double fellatio. Unlike usual, having two tongues licking my dick made me feel so good that I became dizzy.</p>
+<p>"Does it feel good?"</p>
+<p>"Keueu...! It feels good to be sucked by two people."</p>
+<p>Yang Seol-hui licked me with her tongue and asked, so I answered honestly. Both of them smiled, as if they liked my answer, and when one of them sucked my dick, the other started sucking my balls or anus.</p>
+<p>As they took turns sucking my dick, the fellatio of the two was naturally compared. Dang So-hwa's tongue was longer than the average person's, so it felt like she used her tongue well, and Yang Seol-hui used a vacuum fellatio, making her cheeks hollow, so each had a different feeling.</p>
+<p>As they sucked my dick without any sense, my waist naturally lifted and the moment of ejaculation came.</p>
+<p>"Keueut...! I'm cumming!"</p>
+<p>Byuut! Byeut! Byuut!!</p>
+<p>Fortunately, it was the timing when one person wasn't monopolizing my dick and they were licking each other on both sides, so I spewed Semen like lava and dirtied the faces of the two with Semen.</p>
+<p>"Haeueueu...! I like Ryuta's hot soy milk...♥"</p>
+<p>"I'm going to eat all the condensed milk on Boss's face...!"</p>
+<p>Looking at them looking at each other and licking the large amount of Semen on their faces, my dick quickly regained its strength even though it was a time of reflection. Even though my dick had regained its strength, there was nothing I could do because I was tied up, but Dang So-hwa and Yang Seol-hui smiled when they saw the mushroom that had quickly grown in front of them.</p>
+<p>"It's already gotten bigger? I heard that men don't get hard easily after cumming once.... How perverted is this dick?"</p>
+<p>"The time when you don't get hard after cumming once is called a time of reflection. It seems like it's a perverted dick, just like Boss said."</p>
+<p>Both of them poked my dick with their fingers as if they were amazed that it regained its strength right away, and then Dang So-hwa got up from her seat and slowly started squatting down on top of my dick.</p>
+<p>"I'll go back to the audience seats~!"</p>
+<p>Yang Seol-hui goes out of the iron bars again, as if it's hard to watch from the side. Dang So-hwa didn't even pretend to hear that and started accepting my dick into her pussy.</p>
+<p>"Aheueueu...! It's been a while... Heueut! It hurts a little...! But still, it feels better than that...!"</p>
+<p>It was natural that it hurt because my dick size was so big. But because I had a mysterious sex-related trait, the pain that women received was not great. Unless I do it roughly on purpose, there aren't many injuries either.</p>
+<p>"Heueut! Heut! This is it, heueut! It's been a long time, heueut! My pussy, haheut! Feels so good, haaang...!"</p>
+<p>As expected, Dang So-hee's physical abilities were not ordinary, so her riding position was amazing. She didn't lean on me and squatted down, and her lower body was so strong that she continued to do high-speed piston movements without stopping. So, every time she spoke, her pussy and dick rubbed together, making her moan, but that was exciting in its own way.</p>
+<p>"Haeueut! Heuaat! It's weird, heueut! I'm going to cum~!"</p>
+<p>No matter how much her body was trained, her sensitivity was not trained, so the high-speed piston movement only hastened her climax rather than my ejaculation. Of course, I didn't stay still and raised my waist to torment Dang So-hwa's pussy in time with the timing.</p>
+<p>"It's amazing that you defeated Boss. Now, I will take over Boss's efforts."</p>
+<p>Yang Seol-hui, who had come in at some point, pushed Dang So-hwa away and said. She said, "I will take over Boss's efforts," but looking at her hazy eyes due to excitement and the stream of vaginal fluid that had flowed down to her thighs, it seemed like she just wanted to put my dick in her pussy.</p>
+<p>"Haaang♥"</p>
+<p>As Yang Seol-hui pushed, her dick was pulled out, scratching the inside of Dang So-hwa's pussy, and she trembled as she reached her climax, shooting out vaginal fluid again with a pyut pyut sound. Yang Seol-hui looked at the scene with expectant eyes at my shiny dick.</p>
+<p>"If this... comes in...!"</p>
+<p>She hesitated as if she was afraid to put it in after seeing my dick, but Dang So-hwa, who had soon come to her senses, grabbed Yang Seol-hui's pelvis and started forcing her down.</p>
+<p>"Boss, just a moment! Let me prepare myself! Bosss~! Haeueueuheung!!"</p>
+<p>My dick went in with a ssuuk sound because it was already wet enough and my dick was shiny with Dang So-hwa's vaginal fluid.</p>
+<p>But can she even touch Dang So-hwa's vaginal fluid? I'm a little worried....</p>
+<p>----</p>
+<p>Perverted Guard Dang So-hwa</p>
+<p>Just a Pervert Seol-hui</p>

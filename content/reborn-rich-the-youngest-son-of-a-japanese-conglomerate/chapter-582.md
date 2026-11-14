@@ -5,82 +5,72 @@ weight = 582
 chapter = 582
 +++
 
-<p>First, to figure out how much Asada Ei could withstand at normal temperatures, we left the freezer where Asada Ei resided and sat down in the lab in front to start talking. Asada Ei, with a slightly flushed expression, sat on the prepared chair and opened her mouth.</p>
-<p>,I have a slightly stuffy feeling, like I'm in a sauna... but I don't think I'll collapse like before.</p>
-<p>I was wondering what it would feel like, but it's like being in a sauna. How fascinating. I wondered how long it would take to use up the cold she had gathered over the past few days. Eve seemed to have similar questions as me, as she was attaching sensors to Asada Ei's body.</p>
-<p>The reason was that it could be dangerous if she was outside for too long, so they were checking in advance.</p>
-<p>Since Asada Ei's situation isn't ideal, have her prepare for work here for a while, where there are freezing facilities. Sakagami Rena and Naruse Shiyo are also in the same situation of unfair treatment as Asada Ei, so please discuss, work together, and report to me.</p>
-<p>,Yes. Leave it to me.</p>
-<p>,Understood, sensei.</p>
-<p>,My lord, I will do my best.</p>
-<p>Although she spent 7 years in the hospital, Asada Ei was a veteran who had experienced the Third World War as an intelligence officer, even if only at the very end. No matter how much Sakagami Rena and Naruse Shiyo were young ladies of 명가/myeongga or whatever, Asada Ei would probably see them as looking like kids. Saying 'Leave it to me' sounded like she was saying 'Leave them to me.' Come to think of it, she's in her 30s now, but she looks so young...? Could it be because of her Snow Woman traits?</p>
-<p>,The location is a bit... Please understand.</p>
-<p>,This location?</p>
-<p>Asada Ei didn't seem to know that this place was a love hotel district. It seemed like she didn't know the surrounding area well yet, probably because she had been brought here unconscious and hadn't left since.</p>
-<p>,Um....</p>
-<p>,The Miyashi branch of Am Sang is located in the basement of a lodging facility.</p>
-<p>When I was having trouble explaining, Eve stepped in and explained it to Asada Ei.</p>
-<p>,Lodging facility... you mean a hotel?</p>
-<p>,Yes! Just add Love♡ in front of it!</p>
-<p>,Ah....</p>
-<p>Asada Ei couldn't close her mouth at Eve's reckless cheerfulness. I told Sakagami Rena and Naruse Shiyo to focus on video conferences since it would be quite burdensome for them to keep coming here. We don't have to meet in person for a conference anyway.</p>
-<p>,Don't worry, the Miyashi branch of Am Sang is only temporary. I'm having a building built in Neo Tokyo, so I'll tell them to make a freezer on one floor there.</p>
-<p>,Neo... Tokyo?</p>
-<p>Ah, that's right, this person had been lying down for 7 years. The Neo Tokyo plan was established after Asada Ei collapsed, so she might not know about it.</p>
-<p>There are three leaders in the intelligence organization, but one doesn't know the recent situation, one has nothing but power, and Sakagami is the most decent one.</p>
-<p>,First, Asada Ei-ssi, please focus on grasping the recent situation and making the organization efficient. Naruse, learn about information and organization from Asada Ei-ssi... and teach her how to use shikigami magic in information warfare. Sakagami... will do well on her own.</p>
-<p>Even if I created an intelligence organization right away, it wouldn't be operational the next day, so for now, the three of them had no choice but to talk and lead it well. I thought it would probably take a few months for Torine-doo to normalize.</p>
-<p>,I don't know much about information, so I think interfering more than this would only be a hindrance. I'll be going now. Sakagami and Naruse, talk a little more and then come.</p>
-<p>With that, I ended the first meeting of the three Torine-doo leaders and left the room. It seemed like they would have a lot to talk about among themselves. And I also had to study for the PMC certification exam.</p>
+<p>I had Kijimoto Jurie-ssi bring the school uniform she wore on the first day to my room, fooled around with School Uniform Mode Kijimoto Jurie-ssi until dawn, got a little sleep, and then woke up in the morning. The flight to New Nanjing was at 9 a.m., so I had to spend the morning quite busily.</p>
+<p>As soon as I woke up, I quickly washed up, changed my clothes, checked one more time to see if I had forgotten anything, packed my bags, and went downstairs to wait in front of the bus. Students came down one or two at a time.</p>
+<p>Everyone looked exhausted, probably because they had been playing board games until late. I guess they pushed themselves a little too hard since they were going to sleep again on the plane. I put the half-asleep students on the bus, and we departed for Incheon Airport.</p>
+<p>Everyone was hungry because we planned to have breakfast with the in-flight meal. Most of the students who boarded the bus fell asleep, and only a few were reading books or looking at their phones.</p>
+<p>When we arrived at the airport, we boarded the plane right away. The reason we were able to board without delay was because South China had a luxury tour to New Nanjing ready and waiting for St. Francis Girls' Academy.</p>
+<p>Since South China, which had a fairly pro-Japanese leaning, had recaptured the southern part of mainland China in World War III, they were giving St. Francis Girls' Academy quite a bit of convenience.</p>
+<p>Of course, the reason they were giving us so much convenience wasn't just because of their pro-Japanese leanings. Just like Jeil Electronics provided the tour, they were secretly hoping that New Nanjing, a cyber city in South China like Pyongyang in Korea, could also form alliances with prestigious Japanese families.</p>
+<p>And since Uenozono Karen-ssi, who isn't sleeping right now and is filming with a GoPro next to me, can promote New Nanjing to Seriph fans around the world with her vlog, it wasn't a loss for New Nanjing to provide this much convenience. Rather, it's much more profitable than spending a huge amount on advertising.</p>
+<p>Of course, I hope that the incident I'm worried about doesn't happen in New Nanjing, but in several playthroughs, the accident always happened in New Nanjing, and only the timing of the accident changed, so I could only hope that the accident wouldn't happen during our graduation trip.</p>
+<p>For your information, New Nanjing, unlike its name, wasn't located in Nanjing, just like Neo Tokyo, which is currently being built in Japan.</p>
+<p>They combined Suzhou, Wuxi, and Changzhou, which are located between the northern part of Taihu Lake and the southern part of the lower reaches of the Yangtze River, to create the New Nanjing Special Economic Zone. Nanjing was a little further northwest than New Nanjing, so there wasn't much basis for calling it New Nanjing. Neo Tokyo is also being built in Chiba, not Tokyo, so it felt similar to New Nanjing.</p>
+<p>Another TMI is that, as it combines three cities in China, it's almost the size of Gyeonggi Province in Korea and holds the record for the largest technology city in the world.</p>
+<p>New Nanjing lost the record for the world's first technology city to Pyongyang, but instead increased its size to have its own record. Of course, it became famous because of this new record, but it also had the disadvantage of poor security and high costs due to its large size. I was thinking about New Nanjing for a moment when I heard a cheerful voice from the window seat next to me.</p>
+<p>"Next to my seat is... Sensei-nim sitting here~!"</p>
+<p>"Hello."</p>
+<p>Uenozono Karen-ssi, who was explaining this and that, turned the camera towards me this time and explained that the teacher was here. I smiled slightly at the camera and greeted her, and Uenozono Karen-ssi turned the camera to show her face and me together. Looking at the camera angle, it seemed like Kijimoto Jurie-ssi, who was dozing off next to me, was also being filmed, so I reached out and gently shook her shoulder.</p>
+<p>"Euhung? I can't do it anymore...♥"</p>
+<p>What kind of sleep talk is that? Anyone who hears it will misunderstand. Of course, that misunderstanding isn't a misunderstanding, it's something that actually happened last night, but I was planning to insist that it was a misunderstanding if anyone asked.</p>
+<p>"Nurse teacher, what kind of dream were you having?"</p>
+<p>"Ah, yeah... I had a dream about exercising, but they kept making me do it, so I said I couldn't."</p>
+<p>"Ah... Is that so? Say hello to the camera, Sensei-nim~!"</p>
+<p>"Hello~! I'm nurse teacher Kijimoto Jurie-ssi."</p>
+<p>As Kijimoto Jurie-ssi bowed her head and greeted, the in-flight meal soon came out. I always go for meat, so I ordered beef steak, and everyone else received their food as well, and we started eating. Uenozono Karen-ssi was filming a mukbang while showing the in-flight meal, and Kijimoto Jurie-ssi seemed tired, so she didn't eat much, returned her plate, and fell back asleep.</p>
+<p>I couldn't sleep either, so should I try to sleep...? I quickly stuffed the steak into my mouth and took out an eye mask from my pocket.</p>
+<p>"Shall I take your plate?"</p>
+<p>When I took out the eye mask, the stewardess smiled and asked, so I nodded. She asked in Japanese, but it seemed like she was Chinese because of the slight intonation in her accent. It's natural since it's a South China airline.</p>
+<p>After the plate was taken away, I put on the eye mask and lay down. The flight distance is about 2 hours, so I thought I could sleep a little.</p>
 <p>###</p>
-<p>After the three of them met, it seemed like things were being handled well without me having to say anything separately. While juggling studying for the PMC certification and teaching, I also looked at the literary magazine from the Date Experience Club from time to time, and I was also photographed with the camera I ordered with the ₩1,000,000 KRW (over $750 USD) prize money from the sports day (I later found out that Minamoto Risa had contributed money). About three days passed, and I already had over ten report emails.</p>
-<p>Of course, I wasn't completely neglecting my subordinates. For Naruse Shiyo, who lacked technique compared to her stats, I scheduled a consultation with Shimokawabe Airen, the home ec teacher and kendo master.</p>
-<p>Shimokawabe Airen was a teacher in her own right, an advisor to the Cheongsim Hall, and unofficially, a fixer who handled the dirty work of St. Francisco Girls' Academy, so she was living a busy life.</p>
-<p>Originally, I wanted to have the consultation right away on Monday, but Shimokawabe Airen was also busy, so the consultation was scheduled for Thursday, three days later. If she's this busy, Naruse Shiyo won't be able to receive separate instruction from Shimokawabe Airen.</p>
-<p>After school, after the closing ceremony, I took Naruse Shiyo and Alik to Cheongsim Hall. I was greeted by the students of Cheongsim Hall and entered the building. The students of Cheongsim Hall, except for the special class and the students taking Korean classes, were the students I saw most often, but they were especially welcoming to me today.</p>
-<p>When I asked why, many students said they had become fans after watching Uenozono Karen's vlog that filmed the sports day. They said it was cool how enthusiastically I cheered with my classmates. Since St. Francisco Girls' Academy was featured, most of the students at St. Francisco Girls' Academy had seen the vlog.</p>
-<p>Yeah, I thought it was strange that there were more students whispering when they saw me after the sports day. I was curious, but this was the reason. I'll have to be careful of the attention on the streets from now on.</p>
-<p>Alik went to change clothes for training, and I took Naruse Shiyo and sat in the consultation room in Cheongsim Hall. Then, Shimokawabe Airen came in.</p>
-<p>Today, Shimokawabe Airen was wearing a tracksuit that looked like a track top, unlike her usual Kimono. She was slightly sweaty, as if she had been exercising, and she had the zipper of her tracksuit jacket almost all the way down. Her chest looked a bit more prominent because the clothes were sticking to her due to the sweat.</p>
-<p>,I was a little late. I skipped my morning jog today. I just ran around the schoolyard for a bit.</p>
-<p>,Routines are important. And you're not that late.</p>
-<p>,Is that so?</p>
-<p>Shimokawabe Airen wiped her sweat with a handkerchief and sat across from us. When Shimokawabe Airen took her seat, I honestly told her about Naruse Shiyo's situation. I thought I could tell her this much since she was a friend of my master. After listening to everything I said, Shimokawabe Airen summarized it in one sentence.</p>
-<p>,You're worried because her physical abilities are very good, but she doesn't have much technique?</p>
-<p>,Yes. It seems like she learned some martial arts when she was young....</p>
-<p>,I learned the family's traditional naginata technique!</p>
-<p>Naruse Shiyo said confidently. The naginata is a Japanese glaive, a weapon with a blade attached to a long pole, characterized by a thin Japanese blade.</p>
-<p>,If this child is strong, as Yamashiro-sensei said, then a nagamaki would be a better fit than a light naginata. They're similar in shape, so if she's learned naginata techniques, she'll be able to learn nagamaki techniques quickly.</p>
-<p>The nagamaki looked similar to the naginata, but it was a completely different weapon in origin. It was a weapon with an extended handle to make it easier to handle the heavy ōdachi, and it was heavier than the naginata.</p>
-<p>Shimokawabe Airen seemed to have judged that the naginata was a long-handled weapon, but it was light because of the thin blade, so it was not suitable for Naruse Shiyo to learn.</p>
-<p>,Let's have her spar with the students first to see if the strength Yamashiro-sensei mentioned is real.</p>
-<p>Cheongsim Hall was a Japanese koryu martial arts club, so they also had wooden naginata-shaped sticks, so there was no problem with sparring.</p>
-<p>The sparring partner was the second-year club president of Cheongsim Hall. Just like when Alik came to Cheongsim Hall to spar before, all the Cheongsim Hall students gathered to watch the sparring.</p>
-<p>,Start.</p>
-<p>At Shimokawabe Airen's words, Naruse Shiyo used her excellent physical abilities to swing the wooden stick. With a threatening whoong! sound, the wooden stick was swung, but the opponent easily dodged it and struck her shoulder with a sword. Naruse Shiyo jumped up and dodged the sword.</p>
-<p>But since she couldn't move her body easily while in the air, she was hit by the opponent's second attack.</p>
-<p>,Ouch...!</p>
-<p>Even if it was a wooden sword, it still hurt. Naruse Shiyo glared at her opponent with slightly teary eyes, and then used a thrust this time. Perhaps because of her tremendous strength and agility physical stats, Naruse Shiyo's wooden stick was fired with a paang~! sound of air bursting.</p>
-<p>But what good is it if the attack is fast? Naruse Shiyo's preparation movements were too big, so the opponent was able to see through them all.</p>
-<p>In the end, Naruse Shiyo was thoroughly beaten by the second-year club president, and the sparring session ended. Of course, thanks to her Dragon Blood Regeneration trait, she didn't seem to feel any pain, but she kept huffing and puffing because she was upset about being beaten by a junior, and soon she became depressed.</p>
-<p>,I'm too weak to help you, sensei.... I was going to get rid of everyone who was bothering you....</p>
-<p>,I saw it well. It seems like her technique doesn't control her body because she has little technique compared to her body's functions. Has it not been long since your body got better?</p>
-<p>,...Yes.</p>
-<p>Shimokawabe Airen ignored Naruse Shiyo, who was muttering to herself, and started with her impressions of the sparring. It was indeed an accurate assessment. As expected of a master, she picked out only the essential points just by watching the sparring. I was impressed and listened quietly from the side.</p>
-<p>,It was like watching someone who had cyber implants and was sparring right away. There's a big disconnect between her physical abilities and her mind, you could say?</p>
-<p>,Then what should I do?</p>
-<p>,I think ordinary exercise would be better than technique training right now. You have to get used to your body first, and then learn techniques. If you train in forms now without getting used to it, you'll only pick up bad habits.</p>
-<p>In the end, Naruse Shiyo was recommended to do bodyweight exercises such as running and gymnastics rather than form training. She can do that kind of thing on her own, so she doesn't need to get help from Shimokawabe Airen.</p>
-<p>,And since she's definitely strong, it would be good to learn the nagamaki technique I mentioned rather than the naginata. I only know the basics, so I'll introduce you to someone who's good at it separately.</p>
-<p>,Thank you....</p>
-<p>The consultation, which I thought would take quite a while, ended in less than thirty minutes. Seeing her even introduce a teacher to teach her martial arts separately, the home ec teacher was the best after all. Naruse Shiyo, who had heard a solution from Shimokawabe Airen in her own way, clenched her fists tightly and was determined to win next time!</p>
-<p>In fact, the way for Naruse Shiyo to win was easy. She could transform, approach, and scratch with her claws. However, since this was a sparring session to make up for her lack of technique, she didn't use a sure-win tactic.</p>
-<p>,Um, I'm going to go exercise, would you like to join me, sensei?</p>
-<p>Naruse Shiyo said it with some courage, but I had things to do.</p>
-<p>,Sorry, let's exercise together next time. The PMC certification exam isn't far away, so I'm going to study a bit today.</p>
-<p>The PMC certification exam was next Monday, so there were only 3 days left excluding today. At first, I didn't have much expectation because I was taking it as an experience, but the more I studied, the more I thought I could pass, so I couldn't just do it half-heartedly.</p>
-<p>,Okay, sensei. You're busy, but you still made time for me.... Thank you!</p>
-<p>,Okay, let's definitely exercise together after the exam!</p>
-<p>I took Naruse Shiyo to the training ground behind the special class building and headed to the education preparation room to study.</p>
-<p>------</p>
-<p>Home ec teacher after a long time</p>
+<p>When Uenozono Karen-ssi boarded the plane, Uenozono Karen-ssi's graduation trip vlog was uploaded to Seriph's MiTube. If it was uploaded while she was in Korea, there was a possibility that fans would chase her around and tire out not only Uenozono Karen-ssi but also the young ladies of St. Francis Girls' Academy, so the video of her departing on her graduation trip was uploaded when she left Korea to prevent problems during the graduation trip.</p>
+<p>The title was Karen's Graduation Trip DAY-1 (1), and it was a video that divided the vlog of one day into two parts.</p>
+<p>"On the way to the airport~! Next to me is my friend Naruse Shiyo-ssi."</p>
+<p>"Hello~!"</p>
+<p>The vlog, which started with a scene of Uenozono Karen-ssi and Naruse Shiyo-ssi appearing on the same screen inside the bus, showed a calm video of the first day, and the scene of her being excited while showing the view outside the window on the plane made the fans laugh.</p>
+<p>"Everyone, can you see it? I'm going to Korea."</p>
+<p>As soon as the plane scene ended, the screen showed the hotel room where Uenozono Karen-ssi was staying, which was a triple room, so Uenozono Karen-ssi's introduction of her friends continued again. Her roommates were Konoe Akina-ssi and Naruse Shiyo-ssi, who was sitting next to her on the bus just now.</p>
+<p>After the accommodation introduction scene, the next scene was the meal scene. They had a meal at the hotel's Chinese restaurant, and there was a scene where their homeroom teacher, Yamashiro Ryuta-gun, briefly recommended Korean-style Chinese food and a mukbang scene.</p>
+<p>After that, there was a scene like a preview of the Lute World episode, where all the special class students were shown wearing Korean school uniforms once, and the first episode of the graduation trip vlog ended. KPOP was still enjoying worldwide popularity, so many comments were posted in an instant after the video was uploaded.</p>
+<p>-As expected, KAREN is so cute~!😍 I hope you have a fun trip~!</p>
+<p>-Why are all of Karen's classmates so pretty? Do you have to be pretty to be Karen's friend? ㅠㅠ I can't be friends😭😭</p>
+<p>-Japanese high school girls wearing Korean school uniforms... I enjoyed the meal lol</p>
+<p>-Mr. Kim Gu, are you watching? Korean school uniforms have won...!</p>
+<p>-It's not very fun, but I end up watching it without thinking because I see Karen and Karen's friends.</p>
+<p>└Honey jam🥰 They're all so pretty, I thought it was a graduation trip for idol trainees...</p>
+<p>-The male homeroom teacher eats so well in the mukbang scene. He has a talent for mukbang lol</p>
+<p>-Does the handsome homeroom teacher from before only come out once when eating? I want to keep seeing him!!</p>
+<p>└ He appears briefly at 2:34, 6:11, and 12:04!</p>
+<p>-Black Gyaru has appeared WWWWW</p>
+<p>-White Gyaru has also come aaaaaaaa</p>
+<p>-The friend next to her on the bus is also pretty? Okay, I'll make her my girlfriend lol</p>
+<p>└🤮What did that female student do wrong?</p>
+<p>-I like the nurse teacher who came out in the middle. Body ㅗㅜㅑ</p>
+<p>└ I like the slender female teacher more. Especially her languid eyes are crazy.</p>
+<p>As expected, the reaction to the vlog was good because she was the youngest member of a popular idol group. The reaction was especially good because she was wearing a Korean-style school uniform, which she doesn't usually wear, and all the special class friends were beautiful, and the two female teachers who came with them were also beautiful, so there were many comments about them as well.</p>
+<p>Judging from the comments from active female fans who often look for their homeroom teacher, Yamashiro Ryuta-gun, the last sports day vlog must have been quite a hot topic.</p>
+<p>A few hours after Uenozono Karen-ssi's vlog was updated, breaking news was reported around the world.</p>
+<p>People acting strangely are appearing in New Nanjing City, South China! Is it a new disease?</p>
+<p>Is it a recurrence of Corona? People acting strangely in New Nanjing!</p>
+<p>Human rabies? Rumors that a disease not reported in academia is spreading in New Nanjing!</p>
+<p>Ominous news suddenly started to be plastered everywhere, and the ominous news about New Nanjing City started to spread even more because of a post uploaded by an employee of Uenozono Karen-ssi's agency on the anonymous workplace community, Blaus.</p>
+<p>Title: I'm fucked. Karen's graduation trip's next destination is New Nanjing... She should have arrived by now and a few hours have passed.</p>
+<p>Hyper Entertainment ·IlliillliL</p>
+<p>I'm in a meeting right now... Everyone was in a good mood because the vlog was getting a good response today, but the atmosphere suddenly turned to shit.</p>
+<p>└Is it real? It's just bait.</p>
+<p>└Author: It's real... I wish it was fake too. Personally, I'm a fan of Karen.</p>
+<p>Eventually, a reporter took the post from Blaus and published it as an article, creating new breaking news and further increasing the confusion.</p>
+<p>Shock! Seriph member Karen is currently in New Nanjing...</p>
+<p>The article mentioning Karen started to spread around the world, making countless people pay attention to New Nanjing City.</p>
+<p>_______________________</p>
+<p>The reason why there is no illustration today</p>

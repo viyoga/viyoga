@@ -5,71 +5,60 @@ weight = 484
 chapter = 484
 +++
 
-<p>"What is this?"</p>
-<p>The place I entered after opening the door was decorated like a prison. There was a bed in the middle of the room, but it was surrounded by sturdy iron bars, and chains and various sex toys were hanging on one wall. Because it was morning, sunlight came in through the window, making it look less scary, but it seemed like it would be a very scary room at night when it was dark without light.</p>
-<p>Moreover, both of them were wearing unique costumes. Dang So-hwa was wearing a tight-fitting military uniform made of latex, and Yang Seol-hui was wearing a leather jacket and garter belt. What's the theme...? It was a style of clothing that gave off a strong woman vibe. Strong woman, distorted sexual desire, or something?</p>
-<p>"Hehehe...! Since we had our first experience in prison, Ryuta, you have to experience it too."</p>
-<p>"That's right! Ryuta-nim has to experience it too since he tormented us back then!"</p>
-<p>Ah, that's right. I ruthlessly persuaded(?) the two who were trapped in prison with my body, causing them to betray Kurotsuki-do and help me.... Ah...! It seemed like they wore strong styles because of that. It seemed like they prepared costumes to match the atmosphere of this prison room. Thinking again and looking at them, Dang So-hwa is a perverted prison guard and Yang Seol-hui is... just a pervert.</p>
-<p>"Go inside!"</p>
-<p>Yang Seol-hui pushed me into the iron bars, and Dang So-hwa came in with me. Then, she took off my clothes and pushed me onto the bed. As if they decided to take turns, Yang So-hui sat on the sofa outside the iron bars and began to watch us.</p>
-<p>"Stay still...."</p>
-<p>Dang So-hwa's eyes went a little dangerously crazy? While I was worried that this might be dangerous, she put shackles on my wrists and ankles with chains attached to each corner of the bed. My arms and legs were spread wide in an X shape and tied up.</p>
-<p>If this wasn't a sex room, it would be a pretty dangerous situation, but since they're just trying to relieve their sexual desires on me as they were, I should just stay still. It's fun to be treated like this sometimes.</p>
-<p>"Are you getting excited even though you're tied up, and your dick is getting bigger?"</p>
-<p>"It's not because I'm tied up, but because So-hwa is sexy...."</p>
-<p>She asked me with a ridiculous expression, trying to give off the feeling of an SM queen, but Dang So-hwa's face turned red and she turned her head at my honest answer. She likes it a lot?</p>
-<p>"I, I have no choice but to eat the mouth that says such hateful things!"</p>
-<p>Dang So-hwa sat on top of me, who was tied up and lying down, and bent down to kiss me. She said it was hateful, but she was gently tasting and licking my lips. I've been thinking about it since earlier, but there are quite a few unexpected sides to her. Her domestic and gentle appearance when having sex was different from Dang So-hwa's usual self. Originally, she felt like the ruthless Empress of the Underworld.</p>
-<p>Ttchok, tteuep, tchup♥</p>
-<p>Dang So-hwa's kiss still tasted like the herbal medicine unique to a poison person. I had forgotten until now, but it definitely tasted like this the first time we kissed too.</p>
-<p>I thought that if I wasn't immune to poison, it would be difficult for Dang So-hwa to find a man to date. I don't know how toxic Dang So-hwa's saliva is because I'm immune to poison, but if she kisses someone other than me, they'll probably have a lot of trouble, right? If it's serious, they might even die.</p>
-<p>It would be a different story if she could master poison techniques to the extreme and control poison freely, but by then, wouldn't she be completely my prisoner?</p>
-<p>She was always the one being attacked in prison before, so she didn't kiss me much, so she was a little clumsy. But she was offsetting that awkwardness with gentleness. She sits naked on top of me, kissing me, and rubs her pussy on my erect dick. It seemed like this was a natural action, not an intentional one.</p>
-<p>The zipper on Dang So-hwa's clothes was exposed on the outside, so my dick was a little sore from being rubbed against it, but because of my resistance stats, my defense power was high, so the zipper couldn't hurt me. I was thinking of it as a novelty when having sex with Dang So-hwa, along with the bitter taste of the kiss.</p>
-<p>"Tteuep.... Haa♥ Now, suck it...!"</p>
-<p>Jiiiik!</p>
-<p>After leaving a silver line and finishing the kiss, she raised the zipper, exposed her pussy, and then stood up again and held her pussy over my lips. I stuck out my tongue and started sucking and licking Dang So-hwa's pussy as it was.</p>
-<p>Hmm...! Similar to the kiss, Dang So-hwa's vaginal fluid had a herbal medicine taste and a tangy taste. I licked greedily, trying to find Dang So-hwa's weakness.</p>
-<p>"Haeueueuhaang♥"</p>
-<p>But there was no need to find a weakness. As soon as I put my tongue on it, her vaginal fluid started gushing out like turning on a faucet, along with moans.</p>
-<p>I wanted to move my hands and caress other places, but I couldn't touch them as I pleased because I was tied up with chains. I could break them if I wanted to, but I thought I should just match her, so I just moved my tongue.</p>
-<p>"Haeueueuheung!! Feels so good, haaang♥"</p>
-<p>Dang So-hwa trembles her pelvis and squeezes my face with her thighs. Haa, haa, she takes a deep breath. It's a shame I'm tied up. If it were my usual style, I wouldn't have let her off even if she reached her climax and would have continued chasing her for sex.</p>
-<p>"Now, heueut! I'll suck you, heueung♥!"</p>
-<p>After a while, Dang So-hwa came to her senses and went down and started licking and sucking my dick pillar. The iron bars opened with a creak, and when I looked, Yang Seol-hui came in and started licking my dick, facing each other on both sides.</p>
-<p>It had been a while since I had a double fellatio. Unlike usual, having two tongues licking my dick made me feel so good that I became dizzy.</p>
-<p>"Does it feel good?"</p>
-<p>"Keueu...! It feels good to be sucked by two people."</p>
-<p>Yang Seol-hui licked me with her tongue and asked, so I answered honestly. Both of them smiled, as if they liked my answer, and when one of them sucked my dick, the other started sucking my balls or anus.</p>
-<p>As they took turns sucking my dick, the fellatio of the two was naturally compared. Dang So-hwa's tongue was longer than the average person's, so it felt like she used her tongue well, and Yang Seol-hui used a vacuum fellatio, making her cheeks hollow, so each had a different feeling.</p>
-<p>As they sucked my dick without any sense, my waist naturally lifted and the moment of ejaculation came.</p>
-<p>"Keueut...! I'm cumming!"</p>
-<p>Byuut! Byeut! Byuut!!</p>
-<p>Fortunately, it was the timing when one person wasn't monopolizing my dick and they were licking each other on both sides, so I spewed Semen like lava and dirtied the faces of the two with Semen.</p>
-<p>"Haeueueu...! I like Ryuta's hot soy milk...♥"</p>
-<p>"I'm going to eat all the condensed milk on Boss's face...!"</p>
-<p>Looking at them looking at each other and licking the large amount of Semen on their faces, my dick quickly regained its strength even though it was a time of reflection. Even though my dick had regained its strength, there was nothing I could do because I was tied up, but Dang So-hwa and Yang Seol-hui smiled when they saw the mushroom that had quickly grown in front of them.</p>
-<p>"It's already gotten bigger? I heard that men don't get hard easily after cumming once.... How perverted is this dick?"</p>
-<p>"The time when you don't get hard after cumming once is called a time of reflection. It seems like it's a perverted dick, just like Boss said."</p>
-<p>Both of them poked my dick with their fingers as if they were amazed that it regained its strength right away, and then Dang So-hwa got up from her seat and slowly started squatting down on top of my dick.</p>
-<p>"I'll go back to the audience seats~!"</p>
-<p>Yang Seol-hui goes out of the iron bars again, as if it's hard to watch from the side. Dang So-hwa didn't even pretend to hear that and started accepting my dick into her pussy.</p>
-<p>"Aheueueu...! It's been a while... Heueut! It hurts a little...! But still, it feels better than that...!"</p>
-<p>It was natural that it hurt because my dick size was so big. But because I had a mysterious sex-related trait, the pain that women received was not great. Unless I do it roughly on purpose, there aren't many injuries either.</p>
-<p>"Heueut! Heut! This is it, heueut! It's been a long time, heueut! My pussy, haheut! Feels so good, haaang...!"</p>
-<p>As expected, Dang So-hee's physical abilities were not ordinary, so her riding position was amazing. She didn't lean on me and squatted down, and her lower body was so strong that she continued to do high-speed piston movements without stopping. So, every time she spoke, her pussy and dick rubbed together, making her moan, but that was exciting in its own way.</p>
-<p>"Haeueut! Heuaat! It's weird, heueut! I'm going to cum~!"</p>
-<p>No matter how much her body was trained, her sensitivity was not trained, so the high-speed piston movement only hastened her climax rather than my ejaculation. Of course, I didn't stay still and raised my waist to torment Dang So-hwa's pussy in time with the timing.</p>
-<p>"It's amazing that you defeated Boss. Now, I will take over Boss's efforts."</p>
-<p>Yang Seol-hui, who had come in at some point, pushed Dang So-hwa away and said. She said, "I will take over Boss's efforts," but looking at her hazy eyes due to excitement and the stream of vaginal fluid that had flowed down to her thighs, it seemed like she just wanted to put my dick in her pussy.</p>
-<p>"Haaang♥"</p>
-<p>As Yang Seol-hui pushed, her dick was pulled out, scratching the inside of Dang So-hwa's pussy, and she trembled as she reached her climax, shooting out vaginal fluid again with a pyut pyut sound. Yang Seol-hui looked at the scene with expectant eyes at my shiny dick.</p>
-<p>"If this... comes in...!"</p>
-<p>She hesitated as if she was afraid to put it in after seeing my dick, but Dang So-hwa, who had soon come to her senses, grabbed Yang Seol-hui's pelvis and started forcing her down.</p>
-<p>"Boss, just a moment! Let me prepare myself! Bosss~! Haeueueuheung!!"</p>
-<p>My dick went in with a ssuuk sound because it was already wet enough and my dick was shiny with Dang So-hwa's vaginal fluid.</p>
-<p>But can she even touch Dang So-hwa's vaginal fluid? I'm a little worried....</p>
-<p>----</p>
-<p>Perverted Guard Dang So-hwa</p>
-<p>Just a Pervert Seol-hui</p>
+<p>It didn't even take the full five hours I'd booked with Mask Delivery to completely win Kasaoka Yuzuki over to my side. Taking off the mask and having some intimate sex seemed to melt Kasaoka Yuzuki completely. Removing the masks that had been blocking each other's faces helped to open Kasaoka Yuzuki's heart.</p>
+<p>I asked her to help Alik with his extra test, and at first, she showed some resistance, saying, "That's a bit much..." but after persuading her diligently with my body, she was practically begging me to leave it to her before I sent her home. It's not complete cheating, though; she said she'd give him some practice questions to study, so I nodded. I figured I could leave this to Alik and the study group he was in.</p>
+<p>And I didn't just talk about myself; I listened to Kasaoka Yuzuki's story too, and I got some pretty good information. Kasaoka Koki, Kasaoka Yuzuki's husband, had already gone to work under the temporary headmaster, Ishidera Kosuke, without even telling her. This was solid proof that Ishidera Kosuke was gathering teachers.</p>
+<p>So, I told Kasaoka Yuzuki to go work under Ishidera Kosuke like Kasaoka Koki and give us information. I was asking her to play the role of a double agent. Even though she's the head of her grade, being a double agent seemed a bit much for Kasaoka Yuzuki, who's just a regular teacher, but she soon nodded and accepted my offer.</p>
+<p>In fact, if she kept the secret well, it wouldn't be harmful to Kasaoka Yuzuki at all. If the Toyotaka faction, led by Ishidera Kosuke, wins, she'll be under them and receive awards from the Toyotaka faction, and if Daigo Terue's Tadanori faction wins, Kasaoka Yuzuki will receive awards as a meritorious person who extracted information. Either way, it wasn't disadvantageous.</p>
+<p>So, I finished persuading Kasaoka Yuzuki well with my body, and now there wasn't much for me to do. Of course, I'd like the Tadanori faction, led by Daigo Terue, to win, but currently, I'm just a regular teacher, so I couldn't get too involved.</p>
+<p>From now on, I'll just have to watch the two major factions fight. It's already a fight involving the Minamoto, and it's highly likely that the Tairaga will get involved, so the repercussions will be huge, but I've done all I can, so I just have to watch.</p>
+<p>Still, I'll prepare for any unforeseen situations, but if those unforeseen situations don't arise, I won't have to step in. I told Daigo Terue that Kasaoka Yuzuki had gone to the other side as a double agent.</p>
+<p>Now, I was going to focus on the remaining three gift dates and the upcoming St. Francisco Girls' Academy Fall Sports Day. The Fall Sports Day was still a bit away, but it was a good event to carry out missions since homeroom teachers also participate in events with their students.</p>
+<p>"What are you thinking about?"</p>
+<p>Kuryamada Kirie asked me, looking at me as I sat still. It seemed like she asked because I was sitting there spacing out, thinking about the current situation when it was almost time for the after-school meeting.</p>
+<p>"Huh? Oh, I'm thinking about the upcoming schedule."</p>
+<p>"By upcoming schedule, do you mean the Fall Sports Day in two weeks?"</p>
+<p>"Yeah, I was just thinking about it for a moment. Shall we go now?"</p>
+<p>"Please finish your thinking before the after-school meeting starts. I have things to do after work too."</p>
+<p>Snapping out of it, I got up from my seat and headed to the classroom. When I slid open the classroom door, the students had already packed their bags and were waiting.</p>
+<p>"I'm a little late, sorry!"</p>
+<p>It was only about 3-4 minutes late, but I still had to respect their sense of time for going home and leaving work. I apologized and stood at the teacher's desk.</p>
+<p>"Woo~! Ryuta-cchi, didn't you get too relaxed after resting on the weekend?"</p>
+<p>"That's right! Thirteen pretty students are waiting for you, Sensei! That's a super happy situation for a man!"</p>
+<p>Seizawa Shii and Uenozono Karen, who came to school after a long time, said something to my apology. Seizawa Shii was the same as ever, and Uenozono Karen doesn't attend often, but she's friendly and cheerful. It didn't seem like she felt awkward seeing me after a long time.</p>
+<p>"There's nothing special to announce today. Ah! There's one thing. Since it's fall now, you can wear long sleeves, cardigans, or vests, so dress warmly. Don't catch a cold."</p>
+<p>The St. Francisco Girls' Academy uniform was just a white shirt, a dark blue skirt, and a blue ribbon lighter than the skirt. The only seasonal change was the difference between short and long sleeves for the white shirt, but in the fall and winter, they could freely wear cardigans or thick coats.</p>
+<p>Of course, outerwear that violated the school rules, such as being too flashy, was excluded, but the young ladies of prestigious families wouldn't wear leopard-print padding anyway; they usually wore plain coats to and from school, and they took off their coats and walked around the school because it was warm inside the building even in winter.</p>
+<p>"Finally, the season of free fashion has come~!"</p>
+<p>Seizawa Shii wore a Lolihime fashion that had nothing to do with the uniform at the beginning of the semester, so I was a little afraid of what she would wear, but I was curious, so I had to wait until she wore it. If it's too much, I can give her a warning.</p>
+<p>"Oh, and did you see the new small gymnasium behind the special class building?"</p>
+<p>I opened my mouth to tell the students that they could use it because the electricity and water were completely connected to the training room during the weekend, and the interior was finished.</p>
+<p>"Ah! Sensei, I saw it! I was going to ask when we could use it anyway, is it possible from today?"</p>
+<p>Kujo Kina, who likes exercise the most in the class, shouted excitedly. She built a super fancy gym at home, so why does she like it so much? It would be more efficient to do it at home.</p>
+<p>"Yeah, the construction just finished today, so anyone who wants to use it can use it anytime except during class time."</p>
+<p>"Kyahaha! I can use it when my body feels stiff during breaks."</p>
+<p>She exercises every break, she's so addicted to exercise. Except for Kujo Kina, most of the other students didn't seem to like the fact that the training room was built. It's not that they disliked it, but they didn't seem to be very interested. Except for Kujo Kina, Naruse Shiyo, a muscle appreciation maniac, was just asking me to invite her when I exercise. She's probably trying to see my bulging muscles when I exercise.</p>
+<p>"And who's getting a gift today?"</p>
+<p>As a teacher, I can't openly ask, "Who's the girl who's going on a date with me today?" so I softened it by asking about the gift. The story about the gift date didn't come out today, so I had no choice but to ask with my own mouth.</p>
+<p>"M-Me...!"</p>
+<p>Saionji Diana raised her hand and answered. Saionji Diana was 7th in the class, but the aftermath of the accident where her arms and legs were cut off made her previous grades very bad, so this grade improved a lot compared to that, so she became eligible for a gift.</p>
+<p>The meeting place with Saionji Diana was set in front of the Saionji family's mansion. The Saionji family is also rumored to be a wealthy banking and financial family, so it was in a pretty good location, but Saionji Diana was receiving a lot of indifference and oppression from her family, so there were almost no people except for one person who managed the mansion.</p>
+<p>The driver and vehicle that had been supporting her due to the attention of the surroundings due to the terrorist incident immediately stopped supporting her after the exam period, so I decided to pick her up by car, so I set the meeting place in front of the Saionji family's mansion.</p>
+<p>The reason why I'm going to pick her up by car is because of the gift Saionji Diana wants. It was Saionji Diana's cyber implant parts made at the Eve's underground branch.</p>
+<p>If I and Saionji Diana, who went on a date to the underground branch located in the love hotel district, walked together, strange rumors would spread, so I planned to move in a vehicle with some tinting and guaranteed security.</p>
+<p>###</p>
+<p>Ishidera Kosuke smiled pleasantly. Kasaoka Yuzuki, who had been holding her head high until last week, came in with her head bowed.</p>
+<p>'Kasaoka Koki must have persuaded her well.'</p>
+<p>Ishidera Kosuke thought that Kasaoka Koki, Kasaoka Yuzuki's husband, had persuaded her well, but it was a completely different man who persuaded Kasaoka Yuzuki. If Kasaoka Yuzuki, the head of the 3rd grade, turns to the Toyotaka faction, it will be a considerable force.</p>
+<p>"Since the head teacher of the grade has come, it's like having a thousand troops. So, what do you want?"</p>
+<p>"I hope you can raise my salary like my husband."</p>
+<p>If she doesn't want anything, he'll definitely suspect her, so Kasaoka Yuzuki asked for a raise in salary like Kasaoka Koki. Ishidera Kosuke nodded with a smile on his face, as if he was satisfied that Kasaoka Yuzuki had asked for a salary.</p>
+<p>"Of course, I can do that. Instead, what you have to do is gather as many teachers as possible into our forces and deliver rumors of the Tadanori faction to me. Can you do it enough?"</p>
+<p>"Of course."</p>
+<p>"Then go now, let's talk about the salary later."</p>
+<p>Kasaoka Yuzuki slightly bowed to Ishidera Kosuke and turned around and left the headmaster's office. Ishidera Kosuke licked his lips as he watched Kasaoka Yuzuki's explosive back.</p>
+<p>'Kuryamada Kirie too, there are many delicious teachers at school...! If I slowly trap them like this, they won't be able to refuse me. Especially since Kasaoka Yuzuki's husband seemed lackluster, she might come over quickly....'</p>
+<p>Ishidera Kosuke had also completed his own information investigation as he took office as the temporary headmaster, so he knew that the Kasaoka couple was struggling with debt. If he traps Kasaoka Yuzuki with money, he thought he could quickly make her his own.</p>
+<p>Daigo Terue hated Ishidera Kosuke because of his actions like now. There was also the fact that he was in a different faction to some extent, but there were always noises following any mission he did, and Daigo Terue thought that noise was very dirty.</p>
+<p>---</p>
+<p>Saionji Diana's Ero Cosplay</p>

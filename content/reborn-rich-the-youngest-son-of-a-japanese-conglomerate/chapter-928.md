@@ -5,81 +5,74 @@ weight = 928
 chapter = 928
 +++
 
-<p>Kwah-aaaaang!!</p>
-<p>Many techniques collided at once, causing a tremendous explosion in an instant. At this rate, Takakusaki Gengo wouldn't be unharmed, it seemed....</p>
-<p>In front of Takakusaki Gengo, Numagoori Kaneshige stood, reduced to a Rag. It seemed he had taken all the attacks meant for Takakusaki Gengo himself.</p>
-<p>-You've suffered well. Numagoori Kaneshige shall enjoy infinite Honor...!</p>
-<p>"Th-thank you...."</p>
-<p>Takakusaki Gengo, who had emerged from the amniotic sac-no, was it even right to call this by the human name Takakusaki Gengo?</p>
-<p>Even the sound it was making now was so ominously resonant, vibrating and stimulating something, that it was doubtful if it even came from Vocal Cords. Its Appearance, too, was that of its entire Body's muscle fibers exposed without skin, each muscle fiber writhing and moving like a thumb-thick snake, unable to stay still.</p>
-<p>Its appearance was so repulsive it made one want to vomit. I didn't know if it could be called an Outer God, but it clearly seemed to be something that transcended humanity.</p>
-<p>Takakusaki Gengo stretched out a hand towards Numagoori Kaneshige. Numagoori Kaneshige floated into empty space, flew before Takakusaki Gengo, and knelt.</p>
-<p>-The promised Price.... I shall provide you with eternal Life.</p>
-<p>What made Takakusaki Gengo turn Numagoori Kaneshige into his Fanatic was precisely the promise of eternal Life.</p>
-<p>Numagoori Kaneshige was already an old man, to the extent that his white beard had grown down to his Solar Plexus. Perhaps because he feared the approaching Death that came with Age, he might have become obsessed with Takakusaki Gengo's vain promise of Immortality.</p>
-<p>-You shall enjoy Immortality with me.</p>
-<p>As Takakusaki Gengo finished speaking, Numagoori Kaneshige's skin tore open, and his flesh, Internal Organs, and blood were absorbed directly by Takakusaki Gengo. Numagoori Kaneshige was absorbed just like that, unable to even let out a final death rattle. The Logic, I suppose, was 'You have now become me, so you shall live together eternally.'</p>
-<p>Somehow, it felt like that would happen. Even if Takakusaki Gengo had become something that transcended humanity, his essence was that of a Fist Technique practitioner. It was impossible for him to have gained Authority that would benefit an opponent.</p>
-<p>He would have gained Authority over breaking and destroying something, and ultimately, the Immortality he could give to his sole follower, Numagoori Kaneshige, would only be something like absorbing him into himself, just as he had done.</p>
-<p>Now that the enemy had become a monster, I couldn't just stand by. I looked around. All the Gwonmaeng Fist Technique Masters who hadn't received a Blessing from Urabe Konoka and Hanakame were Faint. Then I wouldn't have to worry about my True Identity being revealed. Because everyone else was my person.</p>
-<p>I began to infuse the Bracelet with Creation Chaos. The Bracelet, reacting to the Creation Chaos, gradually covered my Body, and soon transformed into Armor.</p>
-<p>"Y-you were Black Knight?"</p>
-<p>Athena Mannerheim, standing beside me, asked in surprise. Though he didn't speak, Musashi Takuro also seemed surprised.</p>
-<p>-...So that's it! I thought Black Knight's True Identity was Rinka because she used the Abyss, but it was her Disciple!</p>
-<p>Takakusaki Gengo also seemed quite surprised looking at me. Of course, since he had no face skin, I couldn't tell if he was surprised by the movement of his Muscles or if it was just his normal Expression.</p>
-<p>"Don't call my name so casually, Takakusaki Gengo!"</p>
-<p>Fujigasaki Rinka, perhaps annoyed at being called only by her given name and not her family name, screamed in utter Frustration.</p>
-<p>-Fufufu...! I, too, am no longer the name given to a human, Takakusaki Gengo. Being called that is rather unpleasant.</p>
-<p>Just as I had thought earlier, Takakusaki Gengo was no longer the being named Takakusaki Gengo. When he transcended humanity and shed his human skin himself, he discarded the name Takakusaki Gengo along with it.</p>
-<p>-My name is Endless Despair.</p>
-<p>Endless Despair.... It was a rather fitting name. As I had roughly known Takakusaki Gengo's Life story by collecting Information through various Paths, I had no choice but to admit that his Life suited Despair.</p>
-<p>His Mother who abandoned him in childhood, his Father who neglected him under the pretext of martial arts Training, losing his Father before his Eyes, and failing to become the successor of Shinkai Yatsude, all constituted Takakusaki Gengo's own Despair.</p>
-<p>After stealing Shinkai Yatsude and becoming an Adult, Takakusaki Gengo now became a being who spread Despair to others, not just himself.</p>
-<p>He killed countless people under the pretext of martial arts perfection, joined the Japanese Special Mission Unit and carried out Assassinations using the World War, and after the war, he created Anyaji and became a being who spread Despair to countless people through Kidnapping and Murder.</p>
-<p>Furthermore, the martial art he created himself was called Mumatsu Anya (無末暗夜). It meant 'Endless Dark Night,' but if 'Dark Night' were replaced with 'Despair,' it would resemble his current name, Endless Despair.</p>
-<p>Takakusaki Gengo had truly become a being befitting the name Endless Despair, but I had to sever that Despair here. Otherwise, those who felt Despair would be me and the people I cherished.</p>
-<p>"Can you do it?"</p>
-<p>Fujigasaki Rinka asked softly. What did she mean?</p>
-<p>"Yes?"</p>
-<p>"Having had my Abyss stolen, I am not in a normal state. I am in a state where I need the Help of my Disciple and my Disciple's Disciples."</p>
-<p>Though she pretended to be fine, it seemed she had suffered no small amount of harm. I nodded my Head as if it were obvious. I had donned this Armor to lead the charge when facing Endless Despair. Because I had realized that I couldn't just leave it to Sabu.</p>
-<p>"I will lead the way!"</p>
-<p>I shouted to everyone, then launched myself with Telekinetic Flight, and instantly approached Endless Despair. And without warning, I swung my Fist. Endless Despair also swung its Fist in return.</p>
-<p>-Creation Chaos Style: Star Shatter.</p>
-<p>-Mumatsu Anya: Tsuten (Pain Point).</p>
-<p>Kwah-aaaaang!</p>
-<p>The indigo Aura of Creation Chaos, flowing with the starlight of the galaxy, collided with the ominous-looking black Aura of Mumatsu Anya. I was almost sent flying back by the immense Pressure, but I fixed my Body with an Ability that applied Telekinetic Flight.</p>
-<p>The Armor's Ability was quite good. This was my first time using it in Actual combat since Lizhael had newly changed it for me, and though I felt considerable Pain, it was bearable. I didn't stop at a single strike and continued to swing my Fist.</p>
-<p>-Creation Chaos Style: Star Creation.</p>
-<p>It was a combo technique following Creation Chaos Style: Star Shatter. When Star Shatter was used, the Aura of Creation Chaos lingered in the surroundings, and if Creation Chaos Style: Star Creation was used consecutively, the lingering Aura would gather at my point of Attack and explode.</p>
-<p>"A new Outer God's Aura, is it? I will kill you and take everything!"</p>
-<p>Endless Despair shouted, seeing the indigo Aura approaching it. Endless Despair drew a Circle with both hands, creating a black Barrier to block Creation Chaos Style: Star Creation.</p>
-<p>Simultaneously, something was shot from behind. A sudden strike with no presence of Attack. It seemed Athena Mannerheim had used the power of White Light she possessed to erase its presence.</p>
-<p>The Attack came almost to within a finger's breadth, but I had a colleague to block that Attack.</p>
-<p>"How dare you, don't Attack Ryuta!"</p>
-<p>Alik brought his Sword down directly, severing the flesh tentacle that was trying to Attack me. It seemed it had intended to absorb my Creation Chaos by grabbing me with a tentacle, just as it had done to Fujigasaki Rinka. Can it only absorb power by grabbing with tentacles? If so, that would be Fortunate.</p>
-<p>Glancing around, my Party/Group was dealing with tentacles emerging from the piles of Corpses. It seemed the tentacles had attacked our side not long after I initiated combat.</p>
-<p>With the explosion of Creation Chaos Style: Star Creation, the black Barrier burst apart, and I once again approached Endless Despair. This Attack was not alone. Fujigasaki Rinka and Shimokawabe Airen were with me.</p>
-<p>Tss-tss-tss-tss! Kwah-aang!</p>
-<p>Shimokawabe Airen's unique strike, cleaving space, severed Endless Despair's Shoulder, and Fujigasaki Rinka's fist, imbued with the Abyss, exploded Endless Despair's Abdomen.</p>
-<p>My subsequent Creation Chaos Style: Star Shatter attacked Endless Despair's chest, but Endless Despair raised its unsevered hand and blocked my strike.</p>
-<p>Endless Despair's Arm, which I had expected to be severed and fall, had tentacle-like muscle fibers burst out from its Upper Body, then reattached, and its exploded Abdomen also regenerated.</p>
-<p>If it even had regeneration Ability, it seemed we would have to fight for a considerably long time. Since I didn't know the limit of Endless Despair's regeneration Ability, it was a somewhat awkward Situation.</p>
-<p>-Is this all? Disappointing.</p>
-<p>"Then why don't you change your name to Endless Disappointment?"</p>
-<p>When it said our Attack was weak and disappointing, I shouted again and continued my Attack. There were several Methods to deal with an enemy possessing regeneration Ability: either inflicting such massive Damage that its regeneration couldn't keep up, or fighting until its regeneration Ability was exhausted, and finally, eliminating its regeneration Ability with debuffs or similar effects.</p>
-<p>The first seemed impossible, and while the second seemed possible, we might get exhausted first.</p>
-<p>There were several approaches for the final method, and the main debuff that stopped regeneration was Mithril. Shimokawabe Airen's sword, Kamiwa (神和), was a Sword Ichi-monji Harugoro crafted by embedding Mithril. The investment made in preparation for today didn’t seem to have been wasted.</p>
-<p>"Mithril has the Ability to prevent regeneration, so please aim for direct Attacks!"</p>
-<p>In this fight, a basic Attack seemed more effective than Shimokawabe Airen's unique space-cleaving Aura.</p>
-<p>-Do you think such trivial Attacks can reach me? Until now, I merely allowed them to hit me to gauge your Capabilities and to give you Despair.</p>
-<p>It just let itself be hit until now? What a ridiculous thing to say. No matter that it had become an Outer God named Endless Despair, it wouldn't be able to evade all Attacks. We hadn't yet shown all our Capabilities. And seeing it say it wouldn't let itself be hit anymore, it seemed the Effect of Mithril was indeed certain.</p>
-<p>Gojoy-nim requested Nagumo Sian running in Tape attire and Nagumo Sian stretching~~!</p>
-<p>Starting with the treadmill~!</p>
-<p>Running looks a bit awkward haha.</p>
-<p>Stretching~!</p>
-<p>Neosblue-nim requested a ninja doing a somersault, but since somersaults didn't come out well, I made it feel like just doing acrobatics haha.</p>
-<p>MidNightSKY-nim requested an awkward Lisa in sexy lingerie trying to Seduce, and a skilled Liz~!</p>
-<p>Lisa-tang~!</p>
-<p>Awkward, shy haha.</p>
-<p>Liz~!</p>
+<p>are before breast check exposure please surroundings there your</p>
+<p>How Taira Kanna would deal with the Anyaji Musung was no longer a matter that concerned us much. Taira Kanna's side, being an Alliance, we thought she would handle it well on her own, and our side thought about what to do, and after several discussions, we decided to entrust this matter to Athena Mannerheim.</p>
+<p>It wasn't known to the Anyaji side that Takakusaki Gengo had been betrayed, and since she had the title of Anyaji Four Heavenly Kings, it would be easy to persuade the Anyaji Musung.</p>
+<p>Athena Mannerheim had flown straight to Finland by Airplane after Takakusaki Gengo's Death, so it would take a few days for her to return. The Worry about the Anyaji Musung could be dealt with again then.</p>
+<p>Now that the Story about the Anyaji Musung was over, it was Time to move on to the next item. Excluding Cash property, if the Anyaji Musung were the first, then there must be a second and third... It seemed they had gained quite a lot.</p>
+<p>"The second are Anyaji's martial arts books and Sorcery books. We haven't appraised them yet, so we are currently looking for Experts."</p>
+<p>Ah, there were martial arts books. At the Anyaji Headquarters, there were not only Takakusaki Gengo but also Guardians from the Guardian Hall and several invited Fist Technique Masters, so there must be many rare martial arts books. There would also be a considerable number of Sorcery books, as there were many evil sorcerers.</p>
+<p>Of course, the Josa-dang also had martial artists and people who had learned from the Onmyoji of the Naruse Family, but they needed a bit more Skill to appraise them. Or an appraisal Ability.</p>
+<p>"I'll check the martial arts books and Sorcery books."</p>
+<p>Martial arts books and Sorcery books were treated as Items. And in the case of Items, unlike people, they don't require Glasses from the Ruins to appraise, so I would be able to appraise them faster than hiring an Expert.</p>
+<p>"Understood, Ryuta-nim. Next is...."</p>
+<p>Asada Ei, no longer needing to search for Experts, scribbled something on her tablet and nodded her Head. And she moved to the next Screen, where a Photo appeared. The Photo showed Boxes covered with what looked like Seal formations.</p>
+<p>"The third are the Yogoe collected by Kamishirato Manzo, the Guardian of the Anyaji Guardian Hall."</p>
+<p>Are all those Boxes with Talismans attached Yogoe? That's quite a lot!</p>
+<p>That's right. I heard Kamishirato Manzo used a necromancy-type Fist Technique that possessed humans with Yogoe. I heard that Bernard, one of the Four Heavenly Kings whom Saionji Diana fought, had learned Fist Technique from Kamishirato Manzo, and even Saionji Diana, who produced overwhelming output with her Cyber Implants, struggled quite a bit.</p>
+<p>I heard the Yogoe that possessed Bernard at that time was a Manticore, and it was quite fresh to possess a Western Yogoe.</p>
+<p>"Shiyo-ssi, please check these and distribute them to the necessary personnel."</p>
+<p>Unlike Items, Summoned Beasts require Glasses from the Ruins to appraise, so I decided to entrust them to Naruse Shiyo, the Young Lady of the Naruse Family, who is an Expert on Yogoe.</p>
+<p>"Understood! I was quite curious anyway, as there are many Western Yogoe that are hard to see in Japan!"</p>
+<p>Naruse Shiyo smiled with a face full of enthusiasm and nodded her Head. It seemed that the Onmyoji Agents of the Josa-dang would also become quite powerful through this matter. Because Shikigami are important to Onmyoji.</p>
+<p>"The fourth are various miscellaneous Items, but these will be disposed of as second-hand goods."</p>
+<p>The fourth consisted of various miscellaneous Items such as daily supplies and equipment used for physical Training. Since we didn't particularly need them, it seemed they planned to dispose of them as second-hand goods and convert them into Money, even if just a little.</p>
+<p>Thus, the Report on what we consumed and what we gained in the fight with Anyaji was over, and next was the Report on various information after the battle.</p>
+<p>"Because we fought in Tokyo and near Miyashi, even though our side bribed the police and related parties, rumors are circulating. Influential Groups or Family intelligence organizations are probably aware that Anyaji and a hostile force fought a battle."</p>
+<p>That's right. If it was just a fight, maybe not, but they fought in the Middle of Tokyo, where the Anyaji Headquarters is located, and at the Cliff Shrine, they even used artillery shells to destroy the Barrier, so there's no way other intelligence organizations wouldn't know.</p>
+<p>However, since the forces led by me, Taira Ryuta, and the Young Ladies of the special class below me, and the Josa-dang, had not yet been revealed, various intelligence organizations were in a Situation where they had a Question about the True Identity of the force that massacred Anyaji.</p>
+<p>"Thinking that our True Identity should not be revealed yet, we are manipulating information to make it seem like this incident was merely a confrontation between the Fist Alliance and Anyaji. And that's not entirely false information either."</p>
+<p>This Time, Sakagami Rena spoke. As Sakagami Rena said, it was true that the Fist Alliance was part of this battle, so pushing the narrative in that direction didn't seem bad. In the first place, they were a hostile organization, and even if we widely publicized it, the Fist Alliance wouldn't deny it, so it was a good Choice.</p>
+<p>"I also think it's not bad to attribute this incident to their merit."</p>
+<p>"Ehehe, right?"</p>
+<p>As I nodded my Head in Consent to Sakagami Rena's Words, Sakagami Rena rejoiced as if she had received Praise.</p>
+<p>"The Report on the battle against Anyaji is concluded."</p>
+<p>Asada Ei said, turning off the Screen. Of course, there would be many other minor matters besides the Report just given, but I wouldn't need to worry about those.</p>
+<p>"Then today's Meeting is over, right?"</p>
+<p>"Yes, since the next step has already been decided, there are no separate Meeting topics to discuss."</p>
+<p>Asada Ei nodded her Head and Answered my Question. For reference, the next step was the expansion of the Josa-dang and aligning with my Work in the future.</p>
+<p>"Then... we can move on to checking Abilities, as I mentioned before the Meeting started."</p>
+<p>As I took out the Glasses from the Ruins, those who hadn't yet heard their Status Window looked at me with expectant Eyes.</p>
+<p>A completely white Room. Giant Capsules, large enough for one person, were lined up.</p>
+<p>The Capsules were entirely white like the Room, and various complex pipes and electric wires were connected to them.</p>
+<p>On top of the Capsules, the inside was visible through transparent reinforced Glass, and inside, men with trained Physical Bodies were submerged in Blue Liquid, with respirators attached to their noses and mouths, and brainwave measuring devices on their Temples, but what was unique was that they were lying down wearing VR Goggles.</p>
+<p>Jiiing...!</p>
+<p>A white Door, which had been like a Wall in one place, opened and someone entered. It was Taira Kanna, a Beauty with navy Hair and a side Ponytail.</p>
+<p>Behind Taira Kanna, Muko Neika, with a Gun on her Thigh, and several people who appeared to be researchers followed.</p>
+<p>Taira Kanna slowly walked through the white Room, looking at each Capsule.</p>
+<p>"Is the Brainwashing progressing well?"</p>
+<p>"Yes, soon they will become highly loyal Warriors who would die if the Agassi commands them to."</p>
+<p>One of the researchers bowed and Answered Taira Kanna's Question. The individuals inside the Capsules were the Anyaji Musung captured as Prisoners in this battle against Anyaji.</p>
+<p>What Taira Kanna, with her outstanding individual Abilities, needed was Manpower. And Manpower filled with Loyalty.</p>
+<p>The Anyaji Musung possessed several Abilities that matched the Combatants Taira Kanna envisioned, such as excellent Physical Body Abilities and a disposition that did not shy away from Murder, various virtues rarely seen in the modern era.</p>
+<p>That's why Taira Kanna demanded half of the Prisoners from Taira Ryuta's side as a Reward for participating in this battle against Anyaji. She judged that the clear disadvantage of the Anyaji Musung's limitation as Fist Technique practitioners could be resolved by Brainwashing them and then giving them Marksmanship Training.</p>
+<p>"Once the Brainwashing is complete, have them undergo simple enhancement procedures. Since their trained Physical Bodies are too precious to waste, please opt for bio-Modification. Of course, if anyone has lost their limbs, use Cyber Implants."</p>
+<p>Taira Kanna had no intention of stopping at just Brainwashing. Since they already possessed sufficiently trained Physical Bodies, incredibly efficient enhancement was possible with just simple bio-Modification.</p>
+<p>Everyone thought the Anyaji Musung were outdated individuals who only practiced Fist Technique, but with a little Modification, they could be transformed into A-Rank Soldiers capable of performing effectively on the Battlefield.</p>
+<p>"Understood."</p>
+<p>The researcher who had just Answered Taira Kanna wrote down Taira Kanna's Command in a Notebook and then replied that he understood.</p>
+<p>"Once the Brainwashing and Modification are complete, what about Training?"</p>
+<p>"I have something in mind for Training. The Time has come to use Saburo Orabeoni's Legacy."</p>
+<p>At the researcher's Words, Taira Kanna spoke with a gentle, yet slightly eerie Expression. Everyone fell silent when Taira Kanna brought up the name of the deceased Taira Saburo.</p>
+<p>This was because everyone knew how important Taira Saburo was to Taira Kanna, and how obsessively Taira Kanna fixated on Taira Saburo. Many had suffered for acting against Taira Kanna's wishes here, so they did nothing.</p>
+<p>"Don't be too Taut Tension. Saburo Orabeoni has already passed on...."</p>
+<p>Taira Kanna spoke wistfully, but she was already thinking of someone other than Taira Saburo. She was thinking about Taira Ryuta, the greatest Gift Saburo Orabeoni had left behind.</p>
+<p>Sakagami Shiine (Sakagami Rena's Mother) requested by TheDreaming-nim 1. Masturbation wearing only panties in a Movie Theater 2. Pressing breasts against a car window~!</p>
+<p>1.</p>
+<p>2.</p>
+<p>This is the only Illustration where the car window and phone are both on. I don't know if the Lora is conflicting or if Shiine is using Ninjutsu, but the phone Screen isn't showing up haha.</p>
+<p>The Last one is a Scene where she steals the phone altogether kkeuk kkeuk kkeuk.</p>
+<p>Ryuta and Lisa-ttang passionately Singing in a karaoke room requested by MidNightSKY-nim~!</p>
+<p>Ryuta~!</p>
+<p>Lisa-ttang~!</p>
+<p>"You! Sing with me~!!"</p>

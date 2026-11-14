@@ -5,81 +5,83 @@ weight = 592
 chapter = 592
 +++
 
-<p>"Hheu-hik...!"</p>
-<p>With a single headshot, the goons around who witnessed their comrade's head explode like a watermelon were startled. They desperately fired the pistols in their hands at me, but the pistol bullets bounced off the cyber suit I Yeon-ju-ssi had prepared, only sparks flying.</p>
-<p>I swept through the surroundings like a storm, and Han Yu-gyeong-yang also threw throwing daggers, summoning Nero, White Bear, and Teddy to unleash them among the enemies.</p>
-<p>The enemies' confusion grew irrecoverably when large beasts were suddenly summoned before their eyes. Nero was a shadow demon, and White Bear and Teddy were spirit-type summons, so they had considerable resistance to physical attacks and could withstand ordinary bullets.</p>
-<p>"What are these monsters!"</p>
-<p>"Kill them!!"</p>
-<p>Thanks to Han Yu-gyeong-yang's summons drawing attention, the Vanguard Black Team agents, led by I Yeon-ju-ssi who entered through the main gate, began to reorganize their ranks and perform.</p>
-<p>In particular, I Yeon-ju-ssi was wearing a cyberpunk-style, tight-fitting battle suit and running at high speed, firing specially made nail guns mounted on her wrists, melting enemies in an instant, which was quite impressive.</p>
-<p>In fact, I had acquired Vanguard several times even in MegaCorp's youngest son, so I knew I Yeon-ju-ssi's abilities well. Due to the nature of the nail gun, the firepower was not very high, but the evasion rate and critical hit rate were high, so she could perform tremendously well in small-scale skirmishes like this.</p>
-<p>The lacking firepower could be sufficiently supplemented by making a few grenades and nail gun-specific bullets for firepower alone, so she was a useful character that could be used until the end. Since some of the TG Tech development team were already developing I Yeon-ju-ssi-specific bullets, firepower replenishment seemed to be happening sooner than in the game.</p>
-<p>"You bastards!!!"</p>
-<p>Jeon Yong-cheol shouted in anger, watching the Yongcheol Faction's members being swept away despite being numerically superior. Kuaaa! Unable to control his anger, he tore off the suit jacket he was wearing, revealing his entire body made of shiny chrome-colored metal.</p>
-<p>In fact, Jeon Yong-cheol was supposed to be a boss role showing how strong cyber implants were in the early stages, but due to Han Yu-gyeong-yang getting entangled with the BS Group, he was being faced a little late. Perhaps that's why he seemed to have even more cyber equipment attached. He looked slightly different from what I remembered. Originally, he should have been wearing slightly gray metal armor, but it was shiny chrome-like armor... that's a bit ominous?</p>
-<p>Each piece of that equipment looked incredibly expensive, and it seemed he was investing all the money he earned into his body. He should upgrade his subordinates' equipment instead. No matter how many people there are, giving them only pistols or submachine guns and making them fight against the Vanguard's elite Black Team is why they're being massacred like this.</p>
-<p>"Die!"</p>
-<p>Jeon Yong-cheol shouted and began to fire small rocket missiles indiscriminately from his shoulders, as if he didn't care what happened to his subordinates.</p>
-<p>I instantly deployed two telekinetic reaction shields to protect Han Yu-gyeong-yang and I Yeon-ju-ssi. It was the first time deploying two at the same time, and I felt my mental strength rapidly depleting, so it seemed to require considerable skill.</p>
-<p>Kwakwakwakwang!</p>
-<p>With the explosion of the small rocket missiles, the club building itself shook. The club's dazzling lights shattered along with the large glass windows, and moonlight entered with the outside air.</p>
-<p>Although the lights went out, the scene inside was visible due to the moonlight. Most of the Yongcheol Faction's members were collapsed and writhing from the explosion, and the Vanguard Black Team quickly found cover and avoided the blast, so it seemed that no one was injured or killed except for a few.</p>
-<p>Of course, Han Yu-gyeong-yang and I Yeon-ju-ssi, whom I protected, were fine. I Yeon-ju-ssi was a given, and Han Yu-gyeong-yang also had a shield skill, so she looked perfectly fine, not even a speck of dust on her, thanks to the two layers of shields.</p>
-<p>"Are you alright?"</p>
-<p>I Yeon-ju-ssi, who noticed that I had put up a shield, asked. Hmm... The cyber suit on the upper body was blown off by the explosion of the rocket missile, but there were no injuries. Even if I was slightly injured by shrapnel, the wounds would be immediately healed by regeneration, so I looked fine. Still, the helmet was protected by the Abyss, so it was intact.</p>
-<p>"T, you look so sexy with just your upper body exposed."</p>
-<p>Han Yu-gyeong-yang looked at me, blushing slightly. She couldn't say my name in front of others, so she decided to call me by the code name T. It was simply taken from the T in TG Tech.</p>
-<p>It might look sexy in Han Yu-gyeong-yang's eyes, but in reality, I was wearing a helmet, shirtless, and wearing a cyber suit on the bottom, looking like a muscular pervert.</p>
-<p>"I'm fine, so let's take care of Jeon Yong-cheol quickly."</p>
-<p>Thanks to Jeon Yong-cheol killing his own subordinates, the troublesome work was reduced. Rather, it became an easy situation where we only had to catch one person.</p>
-<p>"I'll try using the prototype bullets from the lab."</p>
-<p>I Yeon-ju-ssi said, replacing the nail cartridges of the nail guns mounted on both wrists. Prototype bullets already came out? I didn't know that.</p>
-<p>"These bitches are talking as if I don't even exist!"</p>
-<p>Jeon Yong-cheol shouted in anger as we were talking among ourselves. He had a right to be pissed. One was saying I looked sexy, and the other was saying to take care of him quickly as if it was nothing, so it would have been strange if Jeon Yong-cheol wasn't angry.</p>
-<p>Enraged, Jeon Yong-cheol charged at I Yeon-ju-ssi, who was standing closest. He must have had cyber implants in the part hidden by his pants, as the floor he was standing on collapsed, and he approached I Yeon-ju-ssi at tremendous speed.</p>
-<p>I Yeon-ju-ssi calmly fired the nail gun at the oncoming Jeon Yong-cheol and kicked off the nearby club pillar, jumping up.</p>
-<p>Kwaaang!</p>
-<p>When Jeon Yong-cheol swung his fist, the club pillar where I Yeon-ju-ssi had been standing shattered. I Yeon-ju-ssi was safe because she had already kicked off the pillar and jumped over Jeon Yong-cheol. The nails fired by I Yeon-ju-ssi were embedded in Jeon Yong-cheol's body, but they quickly fell to the floor, as if they weren't deeply embedded.</p>
-<p>I don't know if it's because it's still a prototype, so the proper power isn't coming out, or if Jeon Yong-cheol's armor is tough. Still, the nail gun has basic damage, so if it's not even sticking, it seems he has armor that can ignore even the damage of rifle bullets.</p>
-<p>Perhaps gaining more confidence because I Yeon-ju-ssi's attack didn't work on him, he now aimed for the Vanguard agent and charged. As expected, he charged at tremendous speed, so the Vanguard agent was instantly caught in Jeon Yong-cheol's grasp.</p>
-<p>"Hehehe! I'll kill you one by one like this, painfully!"</p>
-<p>Jeon Yong-cheol began to slowly apply force to his hand like an industrial press. Hmm... I was deliberately staying still to give Han Yu-gyeong-yang or I Yeon-ju-ssi experience, but I have to save my comrade. Vanguard Black Team agents were elites, so it wasn't easy to train them. It would be better to save him than to stand by idly.</p>
-<p>I was about to run while exerting telekinesis to suppress his hand from tightening further, when Han Yu-gyeong-yang fired a starlight beam, hitting Jeon Yong-cheol's wrist.</p>
-<p>"Keueu! So you're one of the psychics who's been a hot topic these days."</p>
-<p>Jeon Yong-cheol, who dropped the Vanguard agent, must have targeted Han Yu-gyeong-yang this time, as he was fired like a cannonball again. Han Yu-gyeong-yang didn't avoid it and floated a blue orb, firing it at Jeon Yong-cheol.</p>
-<p>Kwangkwangkwang!</p>
-<p>He was hit by three orbs in a row, but Jeon Yong-cheol's steel skin was fine except for being slightly melted. Han Yu-gyeong-yang's star magic melts even people like butter, but he's this fine, how much money did he pour into cyber implants?</p>
-<p>"Khahaha! As expected, mithril alloy is the best!"</p>
-<p>Crazy! He covered his entire body in mithril? One mithril bullet costs tens of thousands of won, so I can't even calculate how much money he would need to cover his whole body. Could the reason Jeon Yong-cheol is trying to take over all of Seoul be to completely remodel his body with mithril or rare metals?</p>
-<p>Jeon Yong-cheol, who had become much stronger than I had anticipated, had become a considerably difficult enemy. Although the orb magic didn't work, Han Yu-gyeong-yang wasn't flustered.</p>
-<p>She continued to fire orbs, dodging and observing Jeon Yong-cheol's reactions. I Yeon-ju-ssi must have couldn't bear to see her boss being attacked, as she circled around Jeon Yong-cheol, firing the nail gun and interfering.</p>
-<p>"He's blocking his head."</p>
-<p>Han Yu-gyeong-yang muttered dryly. As Han Yu-gyeong-yang said, he almost ignored attacks coming at his body, but he crossed both hands to block all attacks coming at his head. With that level of modification, he must have had surgery to insert steel plates under the skin of his face, so he could block some damage, but it seemed he couldn't block Han Yu-gyeong-yang's orb magic.</p>
-<p>"Yeon-ju!"</p>
-<p>Han Yu-gyeong-yang suddenly called I Yeon-ju-ssi. The two acted simultaneously as if they were of one mind. Han Yu-gyeong-yang fired the orb she had floated in advance at Jeon Yong-cheol's face and chanted a new spell.</p>
-<p>Starlight permeated I Yeon-ju-ssi's nail cartridge. It was Starlight Tempering, the most basic magic of Han Yu-gyeong-yang's star magic. It had the effect of amplifying the damage of weapons and projectiles, and it seemed she was trying to bet on I Yeon-ju-ssi's prototype nails once again.</p>
-<p>Deureureuk!</p>
-<p>The engine of the nail gun mounted on her wrist spun, firing prototype nails like a waterfall. Unlike before, where they only stuck at the end and fell off, they began to stick into Jeon Yong-cheol's body with a thud.</p>
-<p>Dozens of nails were embedded in his body, and those embedded nails caused a chain explosion.</p>
-<p>Kwakwakwang!</p>
-<p>"Kuaaaa!"</p>
-<p>Jeon Yong-cheol, who had his entire body covered in cyber implants and shouldn't have felt pain, let out a scream amidst the explosions. Everyone was relieved at Jeon Yong-cheol's scream, but Jeon Yong-cheol broke through the black smoke and grabbed I Yeon-ju-ssi.</p>
-<p>"Hehehe, it was quite dangerous, but my head is still intact."</p>
-<p>Half of Jeon Yong-cheol's skin was melted, revealing his steel skeleton, as if he were in a Terminator movie. The nail gun was effective, as there were cracks in his head, but as Jeon Yong-cheol said, it seemed 'still' intact.</p>
-<p>"First, this dangerous toy..."</p>
-<p>Ppudeudeuk!</p>
-<p>Jeon Yong-cheol crushed the nail gun that I Yeon-ju-ssi was wearing on her wrist. Blood dripped as the nail gun broke and I Yeon-ju-ssi's wrist was injured, but I Yeon-ju-ssi bit her lip and didn't make a single groan.</p>
-<p>"Since your wrist is already injured, I'll just get rid of it altogether."</p>
-<p>It was when Jeon Yong-cheol was about to put more force into the hand holding her wrist, wearing a triumphant expression.</p>
-<p>Jeon Yong-cheol's head exploded.</p>
-<p>Tang!</p>
-<p>The gunshot was heard later than Jeon Yong-cheol's head exploding, so it seemed she used a supersonic bullet.</p>
-<p>-I ran around a lot because I thought if I shot as usual and penetrated the wall, the power would be reduced and I wouldn't be able to kill him.</p>
-<p>It was Yang Seol-hui-ssi. Everyone knew that Yang Seol-hui-ssi was aiming for the broken part of Jeon Yong-cheol's head, so they stayed still even though I Yeon-ju-ssi was caught. Yang Seol-hui-ssi quickly moved to find an angle to shoot, and as soon as she was ready, she shot immediately.</p>
-<p>-----</p>
-<p>I Yeon-ju</p>
-<p>It's not a lewd outfit. It's a combat uniform.</p>
-<p>Glasses VER.</p>
-<p>Extremely high defense style</p>
-<p>It's a combat uniform.</p>
+<p>After enjoying a fancy dinner at the SCSMC Secret Research Lab cafeteria, we slowly set off towards downtown New Nanjing City. I didn't know the geography of this neighborhood well, but there were quite a few students who could speak Chinese, and there was a female student in Class B who had been to New Nanjing City twice, so we were able to find our way. As time passed, it got darker and darker, but we couldn't turn on the car headlights.</p>
+<p>It was obvious that zombies would rush towards the headlights like crazy, just like bugs swarm to a fire in the mountains. So, I left the driving to Otagi Yuka, who has good night vision, and decided to think about the escape plan.</p>
+<p>Even if we went to the first gathering point, the hotel, we wouldn't be able to escape New Nanjing City, so we had to decide on the next route after gathering at the hotel.</p>
+<p>The best thing to do was to get out of New Nanjing City and move to another city, and then go to Japan from that city's airport. Or, there was a way to go to the airport in New Nanjing City and wait for rescue. Of course, to be rescued, we had to be connected with the side that was rescuing us, but communication was cut off now, so it was a bit of an unreasonable method.</p>
+<p>,In the end, do we have no choice but to go to the next city...?</p>
+<p>,Huh?</p>
+<p>The Class B homeroom teacher sitting next to me across the aisle asks at my muttering. I guess she thought I was talking to her.</p>
+<p>,I was thinking about the next step. What to do after arriving at the hotel....</p>
+<p>,Oh, I haven't thought about it....</p>
+<p>,I also think we should get out of the city like Yamashiro seonsaengnim thinks.</p>
+<p>The Class B homeroom teacher answered with an awkward expression as if she hadn't thought about it at all, and Muko Neika added a word after listening from the side. Actually, it would be better to get out of the city right away from the zoo on the outskirts of New Nanjing, but we had already decided to meet at the hotel, so there was nothing we could do.</p>
+<p>,It seems like the movement of cyber zombies decreases a bit at night.</p>
+<p>Perhaps because it was an electric vehicle-based safari bus, the noise was low. Besides, as it became a difficult-to-see night, the zombies were just slowly wandering around. Of course, there were cyber zombies who had replaced their eyes with cyber implants from time to time, but it was easy to recognize them because they emitted a red light from their eyes, so Saionji Diana sniped them down with a silent energy gun.</p>
+<p>,That gun looks good? What brand is it?</p>
+<p>,It's a new company called TG Tech.</p>
+<p>Muko Neika looked at the energy gun and asked curiously, so I answered as an advertisement.</p>
+<p>,Oh, I want to try using it once.</p>
+<p>,I'll have a few more in my hotel room, so I'll let you use them when we get back to the hotel.</p>
+<p>We talked quietly about the gun and drove tediously, and before we knew it, we were able to arrive at a hotel with a golden dragon carved splendidly.</p>
+<p>,It doesn't seem like anyone has arrived yet?</p>
+<p>There might be a bus in the underground parking lot, but I thought they would have parked on the ground instead of underground because of the height, but the St. Francisco Girls' Academy bus was not visible.</p>
+<p>,Aren't they still being chased?</p>
+<p>,Could they have been caught?</p>
+<p>Everyone was buzzing because they couldn't see the other class's bus. In this case, it would be better to contact them directly than to look for the bus. I picked up the radio.</p>
+<p>,We arrived at the hotel as promised. Where are you?</p>
+<p>As I was waiting for an answer, Taira Kanna's voice was heard after a while. Unlike before, there was no static noise because the distance was close. It seemed like they were coming.</p>
+<p>-We're on our way too. We're almost there, but the zombies....</p>
+<p>Those who don't have good night vision will turn on the lights and drive, so the zombies have no choice but to swarm. I have no choice but to prepare on this side too.</p>
+<p>,I know what the situation is. I'll be preparing on this side too.</p>
+<p>-Yes, we'll be there in 3 minutes.</p>
+<p>If they arrive in 3 minutes, there was no time to be doing this. I looked at Muko Neika, who was listening to the radio next to me, and opened my mouth.</p>
+<p>,Muko, how much ammo do you have?</p>
+<p>,There are seven guns, and each of us has about one or two magazines.</p>
+<p>Even if it's one or two magazines, it will be quickly exhausted if we face countless swarming zombies. Besides, the zombies in the hotel will rush in because of the noise of the battle, so it was quite a headache because we had to guard the rear as well. In addition, the guns that Class B had were gunpowder-based guns, so the noise was so loud that it was ambiguous to use them because they could stimulate the zombies.</p>
+<p>,First, the gun users come out, and the rest shouldn't get out of the bus because it's dangerous. Otagi, park the bus in a corner where it's not noticeable.</p>
+<p>,Okay, seonsaengnim.</p>
+<p>The students with guns got off, and Otagi Yuka parked the bus in one corner. Anyway, the bus will be safe if we make a fuss, so I didn't worry too much.</p>
+<p>,Class B's guns are gunpowder-based, so they're noisy, so don't shoot until it's an emergency.</p>
+<p>New Nanjing City had become a city with almost no noise, so if you shoot a gun wrong, you could gather all the zombies within that noise radius.</p>
+<p>,Saionji, zombies may come out from the hotel side because of the commotion of the battle, so watch the back.</p>
+<p>,Don't worry about the back, seonsaengnim.</p>
+<p>I entrusted the rear to Saionji Diana, who can be active in both long and short distances, and as Otagi Yuka, Alik, and I stood near the hotel entrance parking lot, the lights of the bus were visible in the distance.</p>
+<p>,Are there that many? Did they go around New Nanjing City and collect them, or what?</p>
+<p>Otagi Yuka, who can see through the night as well as the day, muttered as she looked at the zombies swarming behind the bus. There must be a lot, but I don't have good night vision like Otagi Yuka, so I didn't know how many were swarming.</p>
+<p>Soon the bus came in and lined up horizontally like a makeshift barricade, and the students got off in a rush. Several students wearing cyber suits and holding the guns I handed over, full of thoughts of fighting, and the special class students who set up the wall last got off. But.... A few are missing?</p>
+<p>,Where did Shimokawabe seonsaengnim and Naruse go?</p>
+<p>I asked Minamoto Risa, who got off last. Minamoto Risa opened her mouth with a slightly guilty face.</p>
+<p>,Shimokawabe seonsaengnim and Naruse said they would lure the giant robot zombies that were chasing us and got off. They went out the window before I could stop them, so I couldn't stop them. Thanks to that, we were able to shake off the robot zombies, but I don't know if they'll be safe....</p>
+<p>That's what happened. Shimokawabe Airen doesn't need to be said, and even Naruse Shiyo's defense increases considerably when she transforms, and she can even fly, so she won't be seriously injured.</p>
+<p>,They'll both be fine. Let's think about stopping the zombies that are running now first.</p>
+<p>The cyber zombies were already screaming and passing through the hotel's main gate and approaching, so I couldn't comfort them any further here.</p>
+<p>,Let's take care of everything here and rest!</p>
+<p>I shouted as I smashed the head of the zombie running at the very front. Certainly, as Otagi Yuka said, there were countless zombies running.</p>
+<p>Let's think simply. Unlike the zombies in movies or novels, you don't get infected even if you get bitten, and no matter how many there are, the only direction those guys can attack is the front.</p>
+<p>I grabbed the approaching zombie, threw it, and chopped its neck with a hand blade, reducing the number of zombies one by one.</p>
+<p>When I glanced around to grasp the zombies and the war situation, Otagi Yuka was actively using the dark state to secretly use blood to sweep away the zombies, and Alik was also fighting by frying the enemies with electricity.</p>
+<p>Sakagami Rena was also shooting a gun and often throwing shurikens that I didn't know where they came from, but a small creature was collecting the shurikens thrown by Sakagami Rena and returning them to Sakagami Rena. What, did Sakagami Rena also have a summoned beast? I couldn't see it exactly, but it looked like a weasel, so there was a reason why she said she liked weasels at the zoo earlier.</p>
+<p>The rest of the students were also blocking the zombies by shooting the guns I had prepared.</p>
+<p>We swung our fists and swords non-stop for almost three hours. The students who used guns ran out of bullets after about an hour and couldn't fight, so they moved to the rear, and after that, the students with melee weapons had no choice but to do their best for two hours.</p>
+<p>Everyone was exhausted, but after three hours, the end was in sight. There weren't many zombies left. But everyone was exhausted, so they had no choice but to fall into a very dangerous situation.</p>
+<p>,Damn it...!</p>
+<p>While Nakanoin Rina was pulling out the bat stuck in the zombie's skull, another cyber zombie suddenly rushed in front of her.</p>
+<p>,Rina-ssi!</p>
+<p>Taira Kanna's voice was heard, and Nakanoin Rina was about to be attacked.</p>
+<p>Chwaaaak!</p>
+<p>The cyber zombie was split in half. The remaining zombies also fell, spraying blood.</p>
+<p>,You came back at the right time.</p>
+<p>I said as I looked at Shimokawabe Airen elegantly sheathing her lead sword.</p>
+<p>,You've worked hard, Yamashiro seonsaengnim.</p>
+<p>,Did we come at the right time, seonsaengnim?</p>
+<p>,Yes, you came at the right time.</p>
+<p>I smiled and answered Naruse Shiyo's question. It would have been quite dangerous if these two hadn't come now. I would have been fine, but if Nakanoin Rina had been breached, there would have been unarmed students behind her, so it could have caused considerable damage.</p>
+<p>,Everyone worked hard. So.... Let's go to the hotel and rest.</p>
+<p>The cyber zombies that were already in the hotel had all rushed out due to the commotion of the battle in front of the hotel, so there would be almost no cyber zombies left in the hotel. Still, just in case, the Class B students with guns decided to search each floor.</p>
+<p>After a while, the search was over, and all the students and teachers of St. Francisco Girls' Academy went to their respective rooms after the report that the hotel was clean. They were already exhausted, so they just wanted to throw themselves on the bed.</p>
+<p>I also came into my room. When I lay down on the bed, the level-up window was flashing in front of my eyes. It's no wonder the level-up window popped up. It's like I fought non-stop for 3 hours in a hunting ground that regenerates infinitely.</p>
+<p>,Let's do it tomorrow.</p>
+<p>I was quite tired. The level-up points weren't going anywhere, so I thought I should do it when I wake up tomorrow, and I closed my eyes.</p>
+<p>________________</p>
+<p>Dongtan Dress! This time it's Shii~! Hehe</p>

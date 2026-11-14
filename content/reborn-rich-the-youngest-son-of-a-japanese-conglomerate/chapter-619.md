@@ -5,61 +5,80 @@ weight = 619
 chapter = 619
 +++
 
-<p>The week-long break that Daigo Terue-san promised wasn't going to start right away; first, there was a memorial service for the presumed-dead homeroom teacher of Class C.</p>
-<p>Since not everyone made it back safe and sound, and there was one presumed casualty, St. Francisco Girls' Academy probably felt obligated to hold a service out of respect for the bereaved family and the school staff.</p>
-<p>,Did everyone get some good rest yesterday?</p>
-<p>,I ate so much of what I wanted to eat, Ryuta-cchi~!</p>
-<p>,Alik, slept soundly....</p>
-<p>,Did you rest well, sensei?</p>
-<p>I asked, looking at the students gathered in the classroom, all dressed in black, before heading to the memorial service.</p>
-<p>Since everyone would either take a break after the memorial service, visit a psychiatrist for trauma treatment, or go on vacation, the third-year students were told they could wear dark-colored casual clothes instead of their uniforms, so everyone was dressed in dark colors.</p>
-<p>,By the way, who was the Class C homeroom teacher again?</p>
-<p>Seizawa Shii-ssi, dressed in a black gothic lolita outfit, asked. The Class C homeroom teacher was the art teacher, and since the third-year fine arts classes were electives and it was a special class isolated without other classes nearby, it wasn't entirely incomprehensible that she wouldn't know, but it was already November of the third year. I couldn't help but think that not knowing who the homeroom teacher of another class was after this much time had passed meant she was too uninterested in other people.</p>
-<p>It just seemed like only Seizawa Shii-ssi didn't know, as she doesn't pay any attention to things she's not interested in. I overheard Minamoto Lisa-ssi, who was sitting next to her, saying, ,Idiot, it's the art teacher, and Seizawa Shii-ssi asking back, ,Really?</p>
-<p>,So, what is everyone going to do during this break?</p>
-<p>I suddenly got curious and asked the students. It was practically a week-long vacation, so I was curious about what the students would be doing.</p>
-<p>,I'm going to Korea~!</p>
-<p>Uenozono Karen-ssi said, raising her hand. Recently, she couldn't go back and forth to Korea because she would fail if she missed any more classes, but it seemed like she was going to Korea during this week-long break, though I didn't know if she would be resting or doing entertainment activities.</p>
-<p>,Still, it's also a break, so don't work too much, okay?</p>
-<p>,I know! I'm going to hang out with the Serifs unnie-deul!</p>
-<p>The Serifs, to which Uenozono Karen-ssi belonged, must have been worried about their youngest member, Uenozono Karen-ssi, so it seemed like she was planning to spend time with her members.</p>
-<p>For reference, the South Nanjing video that Uenozono Karen-ssi filmed was decided not to be released. I briefly contacted Taira Kokoro-ssi about it yesterday, and even though it was an interesting video that everyone was looking forward to, the damage to Shin-Nankyo City was too great, so they decided not to upload it because it could backfire.</p>
-<p>Since TG Tech was already becoming famous and profiting from the leaked video, I didn't really care whether Uenozono Karen-ssi uploaded the video or not.</p>
-<p>Since we agreed not to film me fighting and I used a GoPro, my abilities weren't really shown, so even if the video was released, it wouldn't really affect me, and it would actually have the effect of advertising TG Tech's equipment. Come to think of it, wouldn't it be more beneficial for me to release it?</p>
-<p>,I'm going to do some part-time jobs and laze around at home!</p>
-<p>Seizawa Shii-ssi said that she would do the part-time job she had mentioned several times before. I was curious about what kind of part-time job she was doing, but since she was a determined girl who said she wouldn't accept support from her family, I wasn't too worried.</p>
-<p>,Alik is going on training with Moka-sensei.... I wanted to play with Ryuta.</p>
-<p>Alik said with a slightly gloomy expression. I had a brief conversation with Shimokawabe Airen-ssi about this, and she said that she was going to train Alik even harder because of this incident, so he would be going on a week-long training. Shimokawabe Airen-ssi, who is in charge of the fairly large club Cheongsim Hall, also received a week-long vacation as she participated in this Shin-Nankyo City graduation trip.</p>
-<p>And she said it would be okay to leave it to the Cheongsim Hall club president for about a week. The Cheongsim Hall side was also preparing for the festival in December, so it was a time when they didn't necessarily need a faculty advisor to teach martial arts.</p>
-<p>,I'm going with Alik too~!</p>
-<p>It was Naruse Shiyo-ssi. Perhaps because she lured the giant robot with Shimokawabe Airen-ssi when heading from the zoo to the hotel, it seemed like Shimokawabe Airen-ssi would also look after Naruse Shiyo-ssi's martial arts. Since Naruse Shiyo-ssi lacked technique compared to her excellent physical abilities, it would be good for both me and her if she grew a lot during this week.</p>
-<p>In addition, Minamoto Lisa-ssi said she would get counseling for a day and then rest, and Oofuchi Erika-ssi, who didn't have any particular trauma because she played so many zombie shooting games, said she would do what she wanted to do for a week, and Shido Tsubaki-ssi said she would write an article about the Shin-Nankyo City disaster for the newspaper.</p>
-<p>The other students also had things to do, so it seemed like they would make good use of the week-long vacation they received for consolation and rest.</p>
-<p>I thought I would be able to rest comfortably for a week, but I was actually going to be quite busy rather than working. TG Tech was suddenly soaring, so the amount of work I had to do increased, and I had appointments with several students, so I really didn't have time to rest.</p>
-<p>-The memorial service will begin soon, so students are asked to gather in the main stadium.</p>
-<p>While we were asking each other what we were going to do, the memorial service started, so we went outside. After the memorial service, the third-year students went straight home without stopping by the classroom, so I checked to see if the students had left any belongings and closed the door.</p>
-<p>When the students gathered, they proceeded with the ceremony, such as lighting incense at the altar where a photo of the Class C homeroom teacher's life was placed, offering flowers, and offering a silent tribute. As she was the Class C homeroom teacher, the third-year Class C students were shedding tears.</p>
-<p>-...This concludes the memorial service.</p>
-<p>With the end of the in-house broadcast, the memorial service ended, and all the students except for the third-year students went back to their classrooms, and the third-year students and the teachers who participated in this graduation trip went straight home because their week-long vacation had begun.</p>
+<p>The day before my vacation ended, I was on a helicopter sent by the Naruse family, heading to Kyoto.</p>
+<p>I wasn't alone; Otagi Yuka, Sakagami Rena, Saionji Diana, Konoe Akina, and Urabe Konoka, who had all worked hard to save Naruse Shiyo back then, were with me on the helicopter.</p>
+<p>It seemed the Naruse family was going to reward everyone for their help. Alik, who was with us at the time, was also in Kyoto with Naruse Shiyo, so it looked like that whole group would be gathering again.</p>
+<p>,It's been a while since I've been to Kyoto."</p>
+<p>Otagi Yuka muttered, looking out the window. Since Otagi Yuka had cut ties with the Otagi main family, she seemed to feel strange going to Kyoto, where the Otagi main family was located.</p>
+<p>,Our family is in Tokyo, so I don't have much reason to go to Kyoto either."</p>
+<p>Saionji Diana said, looking at Otagi Yuka. The Saionji family, who were in the banking business, had their main home near Tokyo, so they didn't have much connection to Kyoto.</p>
+<p>,Usually, you go to Kyoto for picnics or school trips, right? Doesn't St. Francis Girls' Academy go often?"</p>
+<p>Before I was possessed, Jin Yong-tae had memories of going to Kyoto on a school trip in high school, so I asked, but everyone shook their heads.</p>
+<p>,Most of us go abroad a lot, and since there are many kids whose main home is in Kyoto, we don't really go to Kyoto for events."</p>
+<p>Konoe Akina answered. I see. Now that I think about it, it wouldn't be exciting to come on a school trip to your own neighborhood. Besides, if you go to St. Francis Girls' Academy, you can afford to go abroad, so most of them probably go overseas.</p>
+<p>,By the way, Kina-chan's master is quite unique, isn't he?"</p>
+<p>,Right?"</p>
+<p>Urabe Konoka brought up Kujo Kina's master to me, so I nodded in agreement.</p>
+<p>,He looks like Yoda. And he knows exactly when I'm thinking of Yoda. I thought he was reading my mind."</p>
+<p>,Pahahaha! What's that?!"</p>
+<p>,What's a Yoda?"</p>
+<p>,Konoka, does he really look like Yoda?"</p>
+<p>Not believing my words that he looked like Yoda, everyone asked Urabe Konoka if it was true. Some people even asked what Yoda was, but to be sure, Star Wars is a pretty old content these days. It wasn't strange that they didn't know.</p>
+<p>,Yeah. I didn't even know what Yoda was, but Kina kept calling him Yoda Master, so I looked it up and he looked exactly the same... This is what he looks like."</p>
+<p>Urabe Konoka searched for Yoda on her smartphone and showed it to her friends. So Kujo Kina started calling him Yoda Master too. Surely it's not my fault, is it?</p>
+<p>,But you said he was unique, not just because he looks like Yoda, right?"</p>
+<p>,Ah, that too, but he started training us like crazy from the first day we met. He said he needed to know his disciples' limits."</p>
+<p>Surely he didn't get angry because I called him Yoda Master and started training us like that... He suddenly had several disciples, so he needed to know each of their limits. If he trained them all at once, some would drop out in the middle. If he knew each of their limits, he could deal with them appropriately. Maybe that's why he gave us hard training on the first day.</p>
+<p>,What are you guys getting as a reward?"</p>
+<p>I decided to receive a few things from the Naruse family's treasure vault, but I was curious because I didn't know what the other students would receive.</p>
+<p>,We decided to receive whatever Teacher-ssi chooses for us, right?"</p>
+<p>,Huh? I'm hearing about this choosing person for the first time?"</p>
+<p>To receive whatever I choose, how much do they trust me?</p>
+<p>,Teacher-ssi is someone who can see abilities like in a game. So I thought you'd be able to pick out equipment that suits us."</p>
+<p>,It's not hard to pick out... But besides the treasure, the Naruse family must have offered something else, right?"</p>
+<p>They probably offered money or rights, but to give that up, it was a choice worthy of a daughter of a prestigious family. They know that if they have abilities, they can earn money.</p>
+<p>,That's right. The Naruse family said we could choose one of three things: money, mid-grade Shikigami, or treasure."</p>
+<p>,We don't need money yet, and... it also has the meaning of a gift chosen by Teacher-ssi."</p>
+<p>They even offered to hand over mid-grade Shikigami? Then it's quite a dilemma... For some of the kids here, Shikigami would be better than treasure.</p>
+<p>,Konoe or Sakagami might find Shikigami a good choice."</p>
+<p>Konoe Akina, whose characteristics were focused on her eyes, and Sakagami Rena, who often carried out operations alone as a ninja, would benefit from having a summon-type Shikigami that could tank for them, so I recommended summon-types to them.</p>
+<p>Otagi Yuka was strong enough to get through things without the help of a summon, and Saionji Diana was also excellent at both ranged and melee combat, but she wasn't the type to take on missions alone, so she didn't really need a summon. Finally, Urabe Konoka was a shrine maiden, so she wasn't suited for combat missions, so she didn't need a summon.</p>
+<p>,Then please choose a Shikigami for me, Sensei."</p>
+<p>,I would also like you to choose for me, Master."</p>
+<p>,That's not difficult."</p>
+<p>Choosing a Shikigami that suits them wasn't that difficult. Then I had to choose treasure and Shikigami, so it looked like I would be busy again today.</p>
 <p>###</p>
-<p>I had to do some work today, so I quickly left the school and drove to Miyashi City Hall. The results of the PMC certification exam were announced during the graduation trip, so I had to get my PMC certification issued and register as a PMC, which I hadn't been able to do right away.</p>
-<p>In fact, it was possible to do it online, but even in 2053, it was faster to do it directly at a government office than online in Japan, so I visited City Hall in person.</p>
-<p>Even though it was faster to do it in person, it was based on Japanese standards. There were several registration procedures, so it took quite a long time, which was actually a bit annoying. If I wasn't disguised as a teacher at St. Francisco Girls' Academy, I could just have my secretary do it.</p>
-<p>With the thought that I would never do this kind of thing again, I continued the tedious paperwork. After struggling with documents and certificates for about thirty minutes, I was able to register the PMC that I was the president of, along with my PMC certification.</p>
-<p>In fact, Seryu Military Company, East Weapon, and the PMC that Kurayamata Kirie-ssi newly established were virtually owned by me, but they still had different names on paper, but now that I received a document with my name (though it's Yamashiro Ryuta...), I felt a new emotion.</p>
-<p>The name of the PMC company registered under my name this time was Kōtetsubutai (Steel Troops), named after a variety show I watched before I got possessed.</p>
-<p>Thinking about making it a reliable base defense unit that uses cyber armor and sturdy armor, befitting the name Steel Troops, I suddenly became curious about the name of the PMC that Kurayamata Kirie-ssi created. Surely she wouldn't use the name Jinildang as is.</p>
-<p>I immediately sent a text message to Kurayamata Kirie-ssi to satisfy my curiosity.</p>
-<p>-Taira Ryuta: I registered as a PMC today. I named it Kōtetsubutai.</p>
-<p>-Kurayamata Kirie: Is that so? I'm quite busy because there are many things to do in the early stages of establishment.</p>
-<p>She seems busy. But I have to resolve my curiosity.</p>
-<p>-Taira Ryuta: What did you name yours? You didn't name it Jinildang as is, did you?</p>
-<p>-Kurayamata Kirie: Are you stupid? How could I possibly use the name of a terrorist organization as it is? I named it Chūōōkamitai (忠狼隊).</p>
-<p>Chūōōkamitai.... It was a name with the character for loyalty attached to the front of the wolf, which is the symbol of the Kurayamata family. If you break it down, it's a name like Loyal Wolf Corps. If the loyalty in loyalty refers to loyalty to me, it was a pretty pleasing name.</p>
-<p>-Taira Ryuta: That's a good name. I'll have to bring a leash when I see you next time.</p>
-<p>Kurayamata Kirie-ssi didn't respond for a while to my words. I went back to the car and sat down, and then Kurayamata Kirie-ssi's reply came.</p>
-<p>-Kurayamata Kirie: I'll bring the leash.</p>
-<p>As expected, she was prickly but honest about her sexual desires, Kurayamata Kirie-ssi. I'm looking forward to the next time we meet? I'll have to torment her until she surrenders with the leash.</p>
-<p>I started the car to take care of the remaining work. The next place to go was the Amsang Miyashi branch.</p>
-<p>______________________</p>
-<p>Seizawa Shii-ssi wearing a gothic lolita dress</p>
+<p>South China, Taiwan Island. SCSMC Headquarters.</p>
+<p>Chairman Wang Chang of SCSMC was sitting in his office, waiting for a report. The SCSMC Group was pretending to help with the South China recapture operation while searching for data from their secret research lab.</p>
+<p>Thanks to SCSMC's efforts, the South China recapture operation was carried out faster than expected, and the South China government was being criticized for massacring its own people, but SCSMC didn't care. If the government was criticized, the regime would change. SCSMC didn't suffer much damage from that.</p>
+<p>,The report you've been waiting for has arrived, Chairman-nim."</p>
+<p>The reporter entered the chairman's office and said.</p>
+<p>,Tell me."</p>
+<p>,First of all, all the data from the secret research lab has disappeared. The files have all been deleted, and the CCTV has been physically destroyed so that it cannot be recovered."</p>
+<p>,As expected, North China must have done this, right?"</p>
+<p>,The information analysis team reports that there is an 87 percent chance that North China did it. The remaining 13 percent is attributed to the United States, Japan, and South Korea."</p>
+<p>Wang Chang frowned deeply at the reporter's words. In fact, there was a backup of the data at the headquarters before the incident occurred, so it wasn't a big loss, but he was angry that the data had been leaked. After taking a few breaths to calm his anger, Wang Chang opened his mouth again.</p>
+<p>,Okay, what about the Titans (巨神)?</p>
+<p>The robot project that SCSMC was conducting was secret, but the name used within the group was Titans. World War III was over, but the North and South Chinese governments still had a desire to unify China, so they continued to compete in military spending.</p>
+<p>Wang Chang thought that this Titan project would unify China and take SCSMC one step further, making it a global group, not just in South China, so he considered it very important.</p>
+<p>,Yes, one unit was destroyed on the road, but two units remained in the maintenance depot, so we were able to recover them."</p>
+<p>,One unit was destroyed? Can a cyber zombie destroy our Titan? Or is this also the work of North China?"</p>
+<p>Securing two units was good news, but the fact that one Titan was destroyed was quite unpleasant. It was the story of a Titan, thought to be invincible, being destroyed by an unknown enemy, not the military.</p>
+<p>,It doesn't seem to be cyber zombies or North China. According to the GPS records of the destroyed Titan, it was in the city of New Nanjing at the time of the North China data theft. It seems that a psychic in New Nanjing encountered a Titan that was wandering outside due to a cyber zombie-ized pilot and fought it."</p>
+<p>The reporter displayed a photo. The armor of the giant Titan was terribly crumpled, and there were countless traces of being cut with a knife. It was definitely not the traces of fighting with the military or agents sent by North China.</p>
+<p>,What is the identity of the psychic?"</p>
+<p>,The Titan's black box was destroyed, and the black boxes of the surrounding vehicles were also completely destroyed, so we couldn't find out their identity. The clue is..."</p>
+<p>Another photo was displayed. It was a fist mark on the Titan's armor.</p>
+<p>,With a fist... you took down a Titan?"</p>
+<p>,We can't know that. But we can know the size of the fist from that mark, and it is estimated that it is a sturdy man. And we tried to revive the destroyed black box as much as possible, and we were able to obtain a scene that is suspected of being the person who made the Titan like that from a small video file."</p>
+<p>Another photo was uploaded. This time, it was a slightly broken photo that was difficult to recognize, but it was a photo of a man's thigh with dark skin. It was impressive that a huge penis was dangling next to his thigh.</p>
+<p>,...Why is he naked?"</p>
+<p>,Judging from the burn marks on his skin, his clothes seem to have been burned by fire. After checking the Titan's equipment, it seems that the missile magazine is empty, so it is expected that he was hit by a missile."</p>
+<p>Wang Chang was speechless at the reporter's words. He was hit by a missile and he's still fine? It was a question that arose naturally, but since psychics who kill tens of thousands of people in an instant have already appeared in the United States, it was understandable that a guy who could withstand missiles would appear.</p>
+<p>,Can we identify him with these two photos?"</p>
+<p>,First of all, judging from the color of his thigh and the size of his... penis, he is a black mixed-race man, and judging from the fist marks and thighs, his physique is estimated to be a black mixed-race man with a height of 190 centimeters."</p>
+<p>,A black mixed-race... Well, that's not an Asian's."</p>
+<p>Wang Chang nodded, looking at the photo of the man's huge penis who destroyed the floating Titan. Thanks to his tanned skin, blurry screen, and huge genitals, it was Taira Ryuta who was excluded from SCSMC's list of suspects.</p>
+<p>______________</p>
+<p>I couldn't make an illustration today, so I'll upload a few Alik cuts that I made before ㅎㅎ</p>
+<p>A rare smiling Alik ㅎㅎ</p>

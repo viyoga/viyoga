@@ -5,40 +5,87 @@ weight = 172
 chapter = 172
 +++
 
-<p>"Ready?" A man with brown skin, wearing a Hawaiian shirt and sunglasses, shouted, looking around. He had a submachine gun slung over his shoulder, and around him were men in various attires, each holding a gun. Their inconsistency made them look like Kurotsukidoo's lower-ranking soldiers, but they were actually meant to resemble Kurotsukidoo. In fact, these were Taira Ichiro's secret armed subordinates, simply known as the First Unit (一番隊). "From now on, we only speak Chinese, understand? You scum!" "Shì de (Yes)!!" The First Unit vigorously answered the Hawaiian-shirted man's words and piled into the truck-type transport vehicle. It was clear they intended to disguise themselves as Kurotsukidoo, as the truck was an old model transport truck used only in the early 2000s. Seeing the First Unit board the transport truck in perfect order, the Hawaiian-shirted man bared his teeth and smiled. The destination is Mount Kokūzō! "Shì de!" "Kukuku, is that all you can say?" The Hawaiian-shirted man laughed loudly at his Subordinates then got into the passenger seat of the lead vehicle. Unusually, even though the man opened the door and got into the car, the driver's seat door closed by itself. Despite it being an old truck that shouldn't have an automatic door-closing function. Putting aside the strange question, two transport trucks departed for Mount Kokūzō.</p>
-<p>After dealing with the sewage treatment plant on the first day, they had subjugated two Red Points, and the next day, after subjugating three Red Points from morning until before dinner, they were taking a short Rest. It had been quite a forced march. On the first day, they had raided three Red Points in a short time, leveraging the advantage of Ambush, but from the next day, Kurotsukidoo had realized they had entered Yurihonjo City, and was preparing for it, so the battles took a little longer. That was why they had only managed to resolve three cases by evening.</p>
-<p>Dinner was Convenience Store Lunchboxes and Cup Noodles that Kiyona Hori and Mari had brought. Since they were covered in Dust and Blood from three consecutive battles, it was a bit difficult to go to a restaurant to eat, so they had been eating takeout since lunch.</p>
-<p>"Here, Investor-nim's!" Kiyona Hori handed me three Lunchboxes and one Cup Noodles. Yes, I needed to eat at least this much to fill my Belly. Since I had fought three battles, three Lunchboxes were necessary for nutritional replenishment. All the Lunchboxes were uniformly warm, and she said Kiyona Mari had warmed them with her Ability. I didn't know how she did it, but it was amazing.</p>
-<p>The first Lunchbox I opened was omurice with demi-glace sauce. I had asked for three different kinds, and they were all decent, so I was quite satisfied. While the Cup Noodles cooked, I devoured all the omurice and used the Cup Noodles broth to relieve a slight dryness in my throat.</p>
-<p>"Next is...." The second was mentaiko cream pasta. It was pleasantly delicious, so I ate it happily. Just as I finished the Cup Noodles and was about to open the third Lunchbox, Sawayanagi Azuma received a Phone Call.</p>
-<p>"It's Nagumo Sian-nim." Sawayanagi Azuma said, as if informing me, and answered the Phone Call.</p>
-<p>"Ah, a special request?" A special request? It seemed like something new was going to be ordered. Given that Nagumo Sian-nim called directly, it seemed we'd have to depart immediately, without even time to digest....</p>
-<p>Watching Sawayanagi Azuma on the Phone Call, I put the third Lunchbox, Beef Ribs layered sex, into my mouth. As it was a special request, it would surely be a difficult task, and I thought it would consume a lot of Energy, so I had to replenish my Energy well while I still had some Leisure.</p>
-<p>"Yes, I understand. Yes, yes. We will depart immediately." Sawayanagi Azuma ended the Phone Call and gathered everyone. The others had also heard the content of the Phone Call, so they already knew the next mission was set. They were just curious about what the mission was. Since I had finished all the remaining Lunchboxes, I enjoyed a pleasant feeling of Satisfaction and wondered what the mission could be, waiting for Sawayanagi Azuma to speak.</p>
-<p>"There's a Mountain called Mount Kokūzō, and apparently, there's a Taira Group secret Laboratory nearby. That Laboratory was attacked by Kurotsukidoo. We are the closest to that Laboratory, so they want us to deploy first. Since the Laboratory is affiliated with Taira Headquarters, they'll give us 50 million yen just for deploying. If we succeed in repelling the invaders, they'll give us 100 million won." The Reward for successfully Subjugating the Red Point sewage treatment plant was 3.5 million yen, and as expected of Compensation from Headquarters, it was incredibly generous. Upon hearing 50 million yen and 100 million won, the People threw away their Lunchboxes and were clamoring to depart immediately.</p>
-<p>Usually, from mission Compensation, 50% is deducted, including company money and repair costs, and the remainder is divided equally among the members, so the Seriyutai people profited more from expensive requests. The commotion over 50 million yen was also due to this.</p>
-<p>For reference, since my Share in Seriyu Military Company was 100%, all the money remaining after deducting repair and operating costs from the 50% cut was mine. Since this Nagumo Sian-nim mission was the first mission I undertook after the acquisition, it was still very much in the red.</p>
-<p>By the way, a Taira Group secret Laboratory... I became very curious too. What kind of research was being conducted there? And how did Kurotsukidoo find out about it? Many questions arose, but I would probably find out some of them upon arrival.</p>
-<p>"Understood. Hori-chan, Sian, we'll be departing in two minutes, so please prepare the vehicles." At Sawayanagi Azuma's words, Kiyona Hori, who drove the transport vehicle, and Sawayanagi Sian, who drove the SUV loaded with equipment, ran towards the vehicles, and we tidied up the Place we had stayed, checked our equipment, then got up and boarded the vehicles.</p>
-<p>"We'll arrive in about fifteen minutes. Since it's a Mountain, we'll have to walk a little further, but we'll get there quickly." It seemed true that they were the closest, as it was said to take fifteen minutes to get there. Searching for Mount Kokūzō on my smartphone, its Position was east of Yurihonjo City and west of Daisen City, where the Headquarters was located, but it was much closer to Yurihonjo City. As expected of a secret Laboratory, it seemed to have been built in a sparsely populated mountainous area.</p>
-<p>Perhaps because they were raiding a secret Laboratory, they were a bit more elite, attempting to lay vehicle mines and such on the mountain road before arrival. If it had been another unit, they would have suffered greatly, but Seriyutai was a unit led by Sawayanagi Azuma, who possessed precognitive Ability. Sawayanagi Azuma stopped the car in advance and had Sawayanagi Sian, an expert in Bombs, remove the mines.</p>
-<p>"That's unusual. These are vehicle mines not commonly used by Kurotsuki.... They are mainly used by Japanese PMCs." "Didn't they just buy them in Japan and lay them?" "Is that so?" In the Conversation between Sawayanagi Sian and Sawayanagi Azuma, I also felt that Something was strange. Kurotsukidoo was in the north of Akita Prefecture, in a position to move south, so their sudden appearance at the secret Laboratory in the rear had bothered me, but Sawayanagi Sian's Words made me realize Something. I began to think that it might be another faction disguised as Kurotsukidoo.</p>
-<p>A considerable amount of Time was wasted due to the mines, so we got out of the car after 20 minutes. As we went to the coordinates Nagumo Sian-nim had given, a large Building surrounded by barbed wire was visible.</p>
-<p>The barbed wire fence seemed to have been pushed down by a car, and two truck-type transport vehicles stood empty nearby. A battle seemed to be ongoing, as it was noisy with Gunshots and the loud noise of Something exploding.</p>
-<p>"It seems to be here." "Let's go." Everyone came out fully armed. Lianna Holden said she would be the operator and launched an AI drone into the Sky.</p>
-<p>"Hey! Handsome Honey! Come here." When Lianna Holden called me over, she took off my Helmet, then pressed her forehead against mine.</p>
-<p>-You hear me? We need to match our frequencies like this so we can send Telepathy even from afar. Try thinking strongly, as if you're speaking to me, Honey. Ah, so that's how it is. I thought strongly, imagining I was sending it to Lianna Holden.</p>
-<p>-Holden, you're beautiful. -Hehe, Honey, that Comment sounds incredibly familiar, are you a Casanova? As I chuckled and was about to put on my Helmet, Lianna Holden suddenly kissed me. Seeing that, Sawayanagi Azuma shouted, "Lianna!!" but Lianna Holden just laughed and stuck out her Tongue, letting it pass.</p>
-<p>"Investor-nim, don't just gape, hurry and depart!" "I wasn't gaping." At Sawayanagi Azuma's nagging, I grabbed my Pistol and ran towards the Gunshots. Sawayanagi Azuma also followed me, carrying a rifle.</p>
-<p>When we arrived, all the Robot Security Guards belonging to the Taira Group secret Laboratory had been destroyed, and they were blowing up a thick Iron Door with Bombs.</p>
-<p>Kwang!!! "Kukuku! You guys are late!" Perhaps seeing us looking at the exploded Entrance, a muscular man with brown skin, wearing sunglasses, a Hawaiian Shirt with a Floral Pattern, and Shorts, shouted with a laugh. Already, unknown troops disguised as Kurotsukidoo, carrying Guns, were rushing into the wide-open Entrance created by the explosion.</p>
-<p>Tangtangtangtang! To stop them from entering the Entrance, the Seriyutai people fired their Guns without being ordered. But it was useless.</p>
-<p>The Hawaiian-shirted man spread his Palm and raised his Hand towards where the Bullets were flying, and the Bullets stopped dead in empty space, as if blocked by Something.</p>
-<p>It was Telekinesis! Since I couldn't yet block Bullets in empty space like that, he seemed to be a Superhuman with much stronger telekinetic Ability than me.</p>
-<p>"Bang!" The Hawaiian-shirted man, with his open Hand, extended only his Index Finger and thumb to form the shape of a Pistol, then made a gesture of shooting at us. Simultaneously, the Bullets suspended in empty space flew towards Seriyutai. Their speed was fast, comparable to the speed of Bullets.</p>
-<p>"Gasp!!" Kiyona Mari deployed a flame barrier, and I also extended my hand, using my telekinesis to its fullest. Sawayanagi Tobe, after turning into steel, spread his body into a large '大' shape to protect everyone in front. Sawayanagi Seari also created a headwind to block the bullets' rhythm.</p>
-<p>Fortunate, the Bullets lost power after penetrating several layers of Barriers, and dropped with a 'hududuk' sound about one meter in front of us. It took the combined superpowers of four Superhumans to barely block the Hawaiian-shirted man's telekinetic Bullets.</p>
-<p>As Kiyona Mari's flame Barrier disappeared, the Hawaiian-shirted man was no longer visible, having apparently already entered the Entrance.</p>
-<p>This task might be quite difficult. He seemed to be the first Boss-level Strong Person I had encountered since coming to this World.</p>
-<p>Sawayanagi Mikiyo. I thought I had finished all the female Illustrations for Seriyutai, but it turns out I hadn't made Sawayanagi Mikiyo, the sniper who shares the top spot for cuteness with Sawayanagi Seari, haha.</p>
-<p>Mikiyo-tan! Kawaii!</p>
+<p>After doing a lot of shopping at the secret black market, I immediately returned to Han Yu-gyeong's house. Seeing that there was still no contact, it seemed that Han Yu-gyeong was still in a meeting. First, I put the Jwanggwa in the refrigerator. I had to put it in because the weather was getting hotter and the Jwanggwa could spoil.</p>
+<p>Since I had done a mission and visited the black market on this summer night, I was a little sweaty, so I took a shower first. The cool water washed away the sweat and cooled down my heated body. While showering, I was thinking about how this would go.</p>
+<p>Dickson shot wildly at the main gate of Base Technology, so the police must have flocked there, and I was curious if Park Sang-beom's body was found. He couldn't run far from the main gate and died from Nero's claws, so he must have been found. Even if the police are incompetent, they will search the area.</p>
+<p>Kureureung!!</p>
+<p>At that moment, I felt something exploding in the distance. It seemed to be within 1 or 2 kilometers... It was quite close.</p>
+<p>"Is it a bomb terror?"</p>
+<p>I roughly finished my shower, wiped off the water, and turned on the TV. With this level of explosion and vibration, the news would definitely broadcast it as breaking news.</p>
+<p>-We have news that a large explosion occurred in a building in S-dong, K-gu. We will provide you with more information as soon as it becomes available.</p>
+<p>I turned on the TV right after the explosion, so it seemed that the broadcasting station only knew the location and not the details. I was sure it was 1 or 2 kilometers away, but it was quite close.</p>
+<p>-... We have news that gunshots were heard on the outskirts of Hanam-si, Gyeonggi-do.</p>
+<p>Oh! This time, what we did came out. The TV screen showed the main gate of Base Technology, which was covered in blood. Looking at the screen, it seemed that the blood had not dried yet because more than twenty people were shot down by Dickson's gun in an instant.</p>
+<p>-The police rushed to the scene, but the only trace of the shooting was this bloodstain. An unidentified body that appeared to have been attacked by a wild animal was also found next to the bloodstain, and the police are investigating the connection.</p>
+<p>An unidentified body... It must be Park Sang-beom. We took all his phones and wallets, but his fingerprints remained, so they would have quickly found out who he was, but it seemed that they broadcasted it as unidentified because he was the son of a large company.</p>
+<p>"I wonder how Park Il-soo will act now that he has lost his son."</p>
+<p>I muttered to myself and turned off the TV. Park Sang-beom is an only child. Naturally, Park Il-soo thought of Park Sang-beom terribly, and if that son died, I was curious to whom he would vent his anger. I, Han Yu-gyeong, and Vanguard left no evidence, so there would be no one to vent his anger on. Is he going to die of anger?</p>
+<p>If I had manipulated a little evidence and left traces of Park Il-man, who was fighting for the BS Group's succession, it would have been a great alienation, but I was sorry that I thought of it now.</p>
+<p>Ttittittitti!</p>
+<p>While I was regretting it, I heard the sound of the password being entered at the front door, and Han Yu-gyeong came in. She looked quite tired, so I hugged Han Yu-gyeong, saying, "You've worked hard."</p>
+<p>"I didn't really have a hard time, but I'm tired."</p>
+<p>I sat the tired Han Yu-gyeong on the sofa, massaged her shoulders, and opened my mouth.</p>
+<p>"Ma'am, how is the massage?":</p>
+<p>"Ah, ah...! It's perfect."</p>
+<p>I temporarily possessed a masseuse and massaged Han Yu-gyeong's stiff shoulders, and Han Yu-gyeong closed her eyes and enjoyed my touch. As expected, Han Yu-gyeong liked role-playing, so the reception was good. As soon as I played the role of a masseuse, she immediately possessed the role of a guest.</p>
+<p>While massaging, I suddenly remembered something and asked Han Yu-gyeong.</p>
+<p>"Oh, that's right. But Vanguard wasn't harmed by the explosion earlier, right?"</p>
+<p>"Of course not. Why would we be harmed when we did it?"</p>
+<p>What? Han Yu-gyeong did the explosion in the news? I was stunned for a moment and asked Han Yu-gyeong because I was curious about what happened.</p>
+<p>"Can you explain?"</p>
+<p>"Come to think of it, the small bomb we got was a prototype made by BS Defender. So, I thought that if I exploded it at the address Park Sang-beom's secretary said, I could split the BS Group, so I did it. Hehe."</p>
+<p>As expected, Han Yu-gyeong was the protagonist. I saw a glimpse of that side that users called a psychopath. Thinking of such a plan with this pretty face somehow made her look even sexier.</p>
+<p>"If it succeeds, the BS Group will be split in half."</p>
+<p>"Yeah, it will."</p>
+<p>Han Yu-gyeong answered like a prophet. Does having an intelligence stat of 16 allow you to see the future? Or is she trying to make it happen by force?</p>
+<p>"Your shoulders are fine now. Is there anything else that is uncomfortable?"</p>
+<p>When I patted Han Yu-gyeong's shoulders and asked, Han Yu-gyeong blushed and opened her red lips.</p>
+<p>"A little... The lower part is stiff. I think it would be nice if the masseuse could loosen it up."</p>
+<p>"I understand. Here?"</p>
+<p>At Han Yu-gyeong's lewd request, I grabbed Han Yu-gyeong's chest and asked.</p>
+<p>"Kyaak♥ Nooo...! Further, further down."</p>
+<p>Further down... As my hand slowly went down, Han Yu-gyeong grabbed my wrist. She asked me to massage further down, but why is she grabbing it?</p>
+<p>"Ma'am?"</p>
+<p>"I don't think it will work with your hands. I think I'll feel refreshed if you massage me deeply with the long, thick massage stick that the masseuse has."</p>
+<p>Han Yu-gyeong answered as I asked with puzzled eyes. It seemed that Han Yu-gyeong wanted to get straight to the point.</p>
+<p>"That costs more, is that okay?"</p>
+<p>"I'll pay any amount, so hurry...!"</p>
+<p>At Han Yu-gyeong's cute and lewd urging, I took off the comfortable pants I wore after showering, followed by my underwear. I held up my dick, which was erect to the point where the blood vessels were visible, in one hand and brought it in front of Han Yu-gyeong's eyes and asked.</p>
+<p>"Is this the massage stick you were talking about?"</p>
+<p>"Yes, yes! That's it! Hurry, massage the inside with this♥"</p>
+<p>I thought I saw a heart mark in Han Yu-gyeong's eyes for a moment, but I must have been mistaken? Like a trainer training a dog, I pointed my index finger at Han Yu-gyeong, who was rushing at my dick, and said, "Sseup!"</p>
+<p>"I understand. But to get a massage, you have to take off your underwear and spread your legs."</p>
+<p>"Ah♥ I understand."</p>
+<p>At my words, Han Yu-gyeong slowly took off her clothes. It was a pity to take off the career woman outfit she had wanted since earlier, but I could ask her to wear it later.</p>
+<p>Han Yu-gyeong, who had already become naked, sat on the sofa with her legs spread. I spread my legs and lowered my waist, rubbing Han Yu-gyeong's pussy with my glans. Han Yu-gyeong's already wet vaginal fluid coated my glans, and my glans began to shine.</p>
+<p>"Heuaeung!"</p>
+<p>"I was wondering where the massage oil went, but you applied it here in advance, ma'am."</p>
+<p>"Yes, I applied a lot in advance... Euhheut! So please massage me to your heart's content♥"</p>
+<p>If this goes on, will we both develop acting skills? I chuckled to myself and put my thick, long massage stick into Han Yu-gyeong's pussy.</p>
+<p>"Kyaeungeuheut!!"</p>
+<p>As soon as I put in the massage stick, Han Yu-gyeong rolls her eyes and screams. Since the guest is so happy, I have to work harder as a masseuse. Because the night is still long.</p>
+<p>###</p>
+<p>While Jin Yong-tae was giving Han Yu-gyeong a massage(?), a man was wailing in the hospital. He was a middle-aged man with gray hair completely slicked back and a cold impression wearing glasses, but now he was just endlessly shedding tears.</p>
+<p>"Sang-beom-ah! Sang-beom-ah...!"</p>
+<p>The man's name was Park Il-soo. People envied him as the successor of the BS Group, but now he was just the father of a child holding the body of his son Park Sang-beom, who had been injured by the claws and teeth of a wild animal and returned as a corpse, and shedding tears.</p>
+<p>Park Il-soo was wailing, but he couldn't understand. The police were dispatched because they heard gunshots, but there were no other bodies and only his son's body was in the surrounding bushes, but there were no bullets or bullet marks on his son's body. And all there were were claw marks that looked like they were made by an animal....</p>
+<p>Is this situation possible in unified Korea in 2053? Park Il-soo was confused by his son's death, which he did not understand at all. Furthermore, he was even more confused because a bomb terror had occurred in the building he had prepared for his son.</p>
+<p>"President Park...!"</p>
+<p>A doctor came in and spoke to Park Il-soo. This doctor was an excellent surgeon and forensic scientist, and was a famous doctor often requested by the police. He came to Park Il-soo after investigating the traces on Park Sang-beom's body until then.</p>
+<p>"So, yes. Was my son Sang-beom killed by some animal?"</p>
+<p>"That's a little strange. There are many bacteria in the claws of wild animals, so if you investigate specific bacteria, you can find out what kind of wild animal it is, but there were no such specific bacteria. The shape of the claws is clearly a leopard, but the size of the wound is a very large leopard. It seems to be almost twice the size of a normal leopard."</p>
+<p>"So what's the conclusion!?"</p>
+<p>Park Il-soo shouted at the doctor's incomprehensible explanation. It was because he could not understand what the doctor was trying to say.</p>
+<p>"It's a kind of possibility, but these claws may have been made artificially. It's also strange that there are no tooth marks."</p>
+<p>The doctor stated his opinion, bowed his head, said, "May the deceased rest in peace," and went back outside. Park Il-soo pondered over the doctor's words and fell into thought. Not long after the doctor left, Park Il-soo's phone rang. When he checked who it was, it was his secretary who he had sent to investigate the explosion site.</p>
+<p>-President, the first inspection result of the explosion is out.</p>
+<p>"Yes, tell me."</p>
+<p>-Fragments of the bomb were found, and it was a small bomb that BS Defender recently made as a prototype....</p>
+<p>At the secretary's words, the current situation was assembled in Park Il-soo's head in an instant. A weapon in the shape of a leopard's claw, presumed to have been made artificially, and a prototype bomb from BS Defender that had not been released to the public at the explosion site....</p>
+<p>BS Defender was a company run by Park Young-beom, the son of his older brother Park Il-man. It was not only the manufacturer of prototype small bombs, but also a company that produced various weapons, so it also had the technology to make leopard claw-shaped weapons.</p>
+<p>"Are you starting a war like this, hyung-nim...!"</p>
+<p>Park Il-soo gritted his teeth so hard that they sounded like they would break.</p>
+<p>---------</p>
+<p>Unused cuts I made today</p>
+<p>Clothed versions</p>
+<p>I can only upload one picture of the naked cut because I have to put seaweed on it hehe</p>

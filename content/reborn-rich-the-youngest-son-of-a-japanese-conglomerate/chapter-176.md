@@ -5,71 +5,89 @@ weight = 176
 chapter = 176
 +++
 
-<p>,Yong-tae-yah~!!"</p>
-<p>As I got off the plane at the airport, Han Yu-gyeong was waiting for me with her bodyguard, Dickson. Han Yu-gyeong, jumping up and down and waving her hand, looked incredibly cute. She was wearing a black pleated skirt that matched her white collared shirt, and she looked great in it, exuding a fresh, college-student vibe.</p>
-<p>Come to think of it, Han Yu-gyeong is the youngest of the women I've dated? Since we're the same age. There's a reason she feels so fresh.</p>
-<p>,I missed you!"</p>
-<p>As I got closer, Han Yu-gyeong rushed over and hugged me tightly. I hugged her back just as tightly, telling her I missed her too, and she giggled, nuzzling her head into my chest.</p>
-<p>People around us were looking at Han Yu-gyeong and me, wondering who the guy this gorgeous woman was waiting for. Han Yu-gyeong didn't seem to care, already used to this kind of attention. I was a little awkward, but I've gotten somewhat used to the stares.</p>
-<p>,Are you hungry? Should we grab a bite?"</p>
-<p>,Yeah, let's eat. It's lunchtime, after all?"</p>
-<p>I had booked the flight to arrive right around lunchtime. My plan was to eat as soon as I got off the plane since I was really craving Korean food.</p>
-<p>Our group headed to Han Yu-gyeong's car, which was parked in the airport parking lot. She must have gotten a new car because it was much fancier than her old one. Han Yu-gyeong's new car felt like the kind of dignified car that CEOs ride in.</p>
-<p>,You got a new car?"</p>
-<p>,Yep! I didn't tell you so I could surprise you~."</p>
-<p>I asked Han Yu-gyeong as I loaded my suitcase into the trunk. Getting a new car isn't that surprising, though. I know that Han Yu-gyeong made a ton of money investing in Health Miracle based on my advice, so she could buy over a hundred of these cars.</p>
-<p>,Actually, the surprise isn't just the car... I bought a company."</p>
-<p>,Oh, really?"</p>
-<p>It's a bit early, but using the money earned from Health Miracle to buy a company from the start was one of the major routes. I wonder if there's a company worth buying right now?</p>
-<p>,What kind of company did you buy?"</p>
-<p>,I bought a security company. Security demand keeps increasing these days because public safety is unstable."</p>
-<p>As expected, she's so smart that she seems to have picked the right answer even without knowing the strategy. She must have done a lot of research before buying the security company. Since Korea wasn't a country where PMCs could openly operate like Japan, most of them were operating under the name of security companies.</p>
-<p>Security companies were one of the top places where numerous men conscripted during the war ended up after the war. The remaining top spots were the workplaces they had before the war, and a significant number ended up in criminal organizations. Some even became drug addicts due to the trauma of the war.</p>
-<p>Quite a few police officers were sacrificed during the war, and after North Korea collapsed and unification occurred during World War III, the already insufficient police force had to cover the North Korean region as well, causing the crime rate to skyrocket.</p>
-<p>The South Korean government was already burdened with enormous post-war reconstruction costs and didn't have the money to recruit more police officers, so they took police officers who were originally in South Korea and sent them to the North. As a result, public safety in North Korea remained poor, and the police density in the original South Korean region decreased, making public safety unstable throughout the country.</p>
-<p>Along with that, private security companies grew. Security companies that had strengthened their forces by bringing in combat experts who had gone through the war gained the public's trust. That has continued until now, eight years after the war, and security companies have become a lucrative industry. Plus, they can be used as manpower in case of emergency.</p>
-<p>But buying a security company is the right answer, but among those security companies, there are some that are huge hits. I wonder which one she bought?</p>
-<p>,By the way, which security company did you buy?"</p>
-<p>,You've probably never heard of it. It's called Vanguard..."</p>
-<p>Ooh! Vanguard! Is it because she's smart, or is it because her luck stat is high? Han Yu-gyeong was picking the right answer every time. Vanguard was the super hit choice I had in mind. In the community, Vanguard was the first place recommended when acquiring a security company in Korea. Plus, it was famous for being hard to acquire. You could only buy it early in the game when the company was struggling; if you missed that timing, you could only request services from them.</p>
-<p>All of its employees were from special forces, and they were an elite force with decent equipment, and the company was quite large. Compared to the security companies owned by chaebol groups, its fame was lower, but its substance was the best.</p>
-<p>,So, Yu-gyeong-i is the CEO now?"</p>
-<p>,Yeah, my secretary said I had to buy a car befitting the CEO position, so I bought it. I stretched myself a bit buying the security company, so I barely managed to buy the car too, you know?"</p>
-<p>Well, Vanguard itself is a top-tier company, so even if she made a lot of money from stocks, it would have been hard to buy. The fact that she bought it at all is a big deal. You need timing, luck, and money to buy it. The company will run itself now, but Han Yu-gyeong herself probably doesn't have much money, which makes me feel bad. Should I give her some allowance under the guise of investment?</p>
-<p>,Should I invest in you?"</p>
-<p>,No, the company is fine."</p>
-<p>,Then I'll buy a portion of the shares. About 10 percent?"</p>
-<p>She said the company was fine, so I suggested holding Vanguard's shares, but Han Yu-gyeong seemed hesitant to receive money from me and said she would think about it.</p>
-<p>The place we arrived at for lunch was a samgyetang restaurant. It was mid-July, getting hotter, so it seemed like she was trying to replenish my energy.</p>
-<p>,Please give us a Wild Ginseng Abalone Chicken Stew."</p>
-<p>I don't know what she's trying to get me to eat, ordering such an energy-boosting samgyetang. Wild Ginseng Abalone Chicken Stew... I can't even imagine what it tastes like. But since I've been in Japan, it's been a while since I've had samgyetang, so I'm looking forward to it.</p>
-<p>Soon, the meal came out, and I started eating the samgyetang deliciously after a long time. Hmm, I was a bit worried, but it just tastes like samgyetang. For reference, Dickson was eating at a table near the entrance. If a freak enters, he'll come in through the entrance, so he seemed to be sitting at a table near the entrance in preparation for that.</p>
-<p>,Ah, that's right. How's Nero?"</p>
-<p>,He's doing well~! Look."</p>
-<p>Looking at Dickson, I suddenly remembered Han Yu-gyeong's other bodyguard, the Shadow Panther Nero, and asked about him. The place Han Yu-gyeong was pointing to was my shadow, and Nero's tail came out from there, wrapped around my ankle once, and then went back into the shadow. He seemed to be following Han Yu-gyeong's instructions quite well. Well, since there's a related trait, the training must be over by now.</p>
-<p>If Han Yu-gyeong continues to follow the summoning tree, I should create a summoning scroll using the summon coordinates I remember. Of course, it depends on what traits come out in the level-up, but I should make one after raising her level to some extent.</p>
-<p>Of course, summoning scrolls aren't just made, so I needed considerable preparation as well. Most of it had to be obtained from the black market, so it cost a lot of money and time. If she only does summoning as a support and takes other trait trees, I was thinking of preparing something else instead of a summoning scroll accordingly.</p>
-<p>,Ah, I'm full. Yong-tae, did you enjoy the meal?"</p>
-<p>,Yeah, it's good to eat samgyetang after a long time."</p>
-<p>Maybe it's because it had a lot of wild ginseng and abalone in it, or maybe it's just because of my mood, but I felt like I was really getting energy.</p>
-<p>,Then, now that we've had something delicious... shall we go home?"</p>
-<p>Han Yu-gyeong's face was flushed as she asked, and she looked so lovely that I smiled and nodded. It was a little funny to see Dickson looking at us with a pleased expression from the table near the entrance.</p>
-<p>,Yeah, let's go! I need to put my luggage down, and I want to be alone with Yu-gyeong-i..."</p>
-<p>,Hehe... I want to be alone with Yong-tae too."</p>
-<p>We took the car to Han Yu-gyeong's place near Korea University. She didn't move, did she, even though she changed her car?</p>
-<p>,The house is still the same as before, right?"</p>
-<p>,Yeah, there's quite a bit of time left on the lease, and it's close to the university, so I don't really feel like going anywhere else yet, so I'm still there."</p>
-<p>Han Yu-gyeong had a lot of stories to tell after not seeing me for a long time, so she kept chattering away, telling me about her university classes, friends, professors, and the students she tutors. It was fun to listen to the little things.</p>
-<p>As we were talking, we arrived at the apartment complex where Han Yu-gyeong lives.</p>
-<p>,We're here."</p>
-<p>,Thank you for your hard work, Dickson. You can go home now."</p>
-<p>,Yes, have a good time."</p>
-<p>Dickson seemed very happy to be going home right after lunch. Dickson took my suitcase out of the trunk before leaving. Han Yu-gyeong and I took the somewhat familiar apartment and elevator up. Soon, we arrived at the house, and when she opened the door, Han Yu-gyeong made an ,Eh?" sound. What's wrong? Why is she so surprised and fidgety?</p>
-<p>,What's wrong?"</p>
-<p>,The shoes..."</p>
-<p>There were a few pairs of shoes in the hallway, and judging from Han Yu-gyeong's expression, one of them didn't seem to be hers. Oh, there's a guest. This is a little awkward...</p>
-<p>,Oh my~, is that my daughter?"</p>
-<p>Someone approached the hallway and spoke. Her voice was as soft as silk. Judging by the fact that she called her daughter, it seemed to be Han Yu-gyeong's mother. No way, I'm suddenly meeting my girlfriend's mom... I didn't even have time to prepare myself...</p>
-<p>Soon, a beautiful woman with ash blonde hair wearing a white t-shirt and jeans stood in front of the hallway, greeting Han Yu-gyeong, and then she was surprised to see me behind her. It was Ha Ju-yoon, Han Yu-gyeong's mother.</p>
-<p>Ha Ju-yoon had a lot of fans because of her considerable beauty, and the fans made crazy remarks, saying that the youngest son of Mega Corp was a shitty game without freedom because he couldn't target the mother.</p>
-<p>I was thinking, ,What are you talking about in a 15-year-old game?", but seeing Ha Ju-yoon's beautiful appearance in person like this, I understood their feelings a little bit.</p>
+<p>We enjoyed a date that felt like a real date for the first time in a while, and we spent a passionate night together. Han Yu-gyeong-nim must have been satisfied with the date, as she clung to me even more tightly that night. We did it until dawn and fell asleep, barely waking up when it was almost time to meet Han Yu-gyeong's friends and tutoring student.</p>
+<p>I'm pretty tired. I did it with Ha Ju-yoon in the morning and with Han Yu-gyeong until dawn. I got up, stretched roughly, and took a shower. Han Yu-gyeong also went to wash with sleepy eyes, but she woke up because of the cold water and came out wide awake.</p>
+<p>"Ah, how did the negotiation with Base Technology go?"</p>
+<p>"It went well. Just like Yong-tae said, blackmail worked well... Now, I need to slowly buy up the stock and gain a solid controlling stake."</p>
+<p>What Han Yu-gyeong said was the standard route to take over Base Technology. Because BS Group held shares under borrowed names like homeless people, Han Yu-gyeong and Vanguard had to find those homeless people and get the shares. On top of that, they also had to buy the shares floating in the stock market... Vanguard would have a lot to do.</p>
+<p>Since BS Group had started a succession war, they wouldn't have the manpower to pay attention to this, so they probably wouldn't face much interference.</p>
+<p>"I'm all ready. Shall we go now?"</p>
+<p>"Okay."</p>
+<p>Even though it was vacation, all the Korea University students we were meeting lived nearby, so we decided to meet at a popular restaurant around the university. If it weren't for Lee Ji-soo, Han Yu-gyeong's tutoring student, we could have met in the evening, had dinner, and drank, but Lee Ji-soo was still a minor, a high school senior, so we decided to meet for lunch.</p>
+<p>Speaking of minors, I'm reminded of some NPC's who are still minors. There were characters I could meet as heroines, and there were students who were excellent VR divers. I should organize the ones with decent abilities and pass the list to Han Yu-gyeong.</p>
+<p>Most minors don't have affiliations yet, so it would be easy to recruit them. Even if they were in their early twenties, if they had decent stats, it was hard to get them because they were affiliated. If they didn't have affiliations, their abilities were ambiguous or they had personality problems.</p>
+<p>It was mid-July, so the weather was incredibly hot. I walked with Han Yu-gyeong towards our destination, basking in the sunlight. We were supposed to meet at a recently famous Mexican restaurant today, and when we arrived, Son Na-ri and Hong Su-yeon had already taken their seats and were waving at us.</p>
+<p>"Hello, I'm Jin Yong-tae."</p>
+<p>"Hello. We've met before, right? I'm Son Na-ri, Yu-gyeong's best friend."</p>
+<p>"I'm Hong Su-yeon."</p>
+<p>After an awkward greeting, I sat down. Han Yu-gyeong found this awkward atmosphere funny and laughed before speaking.</p>
+<p>"Why are you using formal speech when we're the same age? Just speak casually."</p>
+<p>"Hehe. Should I? I was disappointed that you just showed your face and disappeared with Yu-gyeong back then."</p>
+<p>"I heard Yu-gyeong's boyfriend is celebrity-level, and it's true."</p>
+<p>"Hahaha, no way."</p>
+<p>Son Na-ri had an ordinary face, and Hong Su-yeon had what you'd call a 7 out of 10, a face in the top 20-30 percent. Of course, Han Yu-gyeong would be in the top 0.1 percent.</p>
+<p>We sat down and ordered food. We even ordered for Lee Ji-soo, who hadn't arrived yet, and after we ordered, we saw a pretty girl entering the restaurant. Han Yu-gyeong and everyone else saw her and raised their hands.</p>
+<p>"Ji-soo-yah, here! Here!"</p>
+<p>Lee Ji-soo was a beautiful girl with brown hair and a slightly cat-like face. She was already quite a beauty, but she had a freshness unique to students, making her a girl you could look at with a pleased expression.</p>
+<p>"Am I a bit late? The taxi kept getting caught at lights."</p>
+<p>In fact, she wasn't late for the appointment. It was just that the others who came first lived in this neighborhood, so they arrived early. Lee Ji-soo apologized for being late, then looked at me with sparkling eyes and greeted me.</p>
+<p>"You're Yu-gyeong-ssaem's boyfriend, right? Hello, I'm Lee Ji-soo."</p>
+<p>Lee Ji-soo extended her hand, and I unconsciously grabbed it and shook it. Hmm, is she from a political family? Her handshake posture gives off that kind of vibe.</p>
+<p>Once everyone was seated, the chatter hell of four women began. At first, they talked about when they met, who confessed first, and what they did on dates, but mostly Han Yu-gyeong talked and I added a few words.</p>
+<p>In particular, everyone seemed deeply impressed by the story of our first meeting, and when I said I saved her from thugs, everyone's eyes became dreamy. It's like they're imagining a knight saving a princess... Of course, I didn't mention that we had sex right away that day.</p>
+<p>Even after the food came out, the chatter didn't stop, but I briefly escaped from the chatter and touched my phone. It vibrated as if someone had contacted me. When I looked at my phone, the person who sent the KakaoTalk was Ha Ju-yoon.</p>
+<p>Ha Ju-yoon: I thought the music video would be released tomorrow, but it came out as a pre-release today? Check it out here .</p>
+<p>Jin Yong-tae: I'm embarrassed to watch it hehe</p>
+<p>I put my phone down for now. It definitely felt a bit cringe-worthy to see myself on screen.</p>
+<p>"What's wrong?"</p>
+<p>"That thing I filmed with your mother, it came out today."</p>
+<p>Han Yu-gyeong was talking to her friends, but she noticed my strange behavior and asked me. I used the title "mother" to refer to Ha Ju-yoon so as not to upset Han Yu-gyeong by calling her "older sister" again.</p>
+<p>"Oh, really? Let's see, let's see!"</p>
+<p>"What are you talking about?"</p>
+<p>"Ssaem, I'm curious too."</p>
+<p>"Judging by the talk of watching something, it seems like some kind of video or photo?"</p>
+<p>Everyone started to wonder what it was because of Han Yu-gyeong's fuss. I sighed and told them the whole story of the music video.</p>
+<p>When I told them that Joon of the boy group JBS had taken drugs and I had accidentally gotten the opportunity to film a music video, everyone went wild and said they wanted to see it right away.</p>
+<p>I had no choice but to click on the link Ha Ju-yoon sent me, and MiTube came up.</p>
+<p>Ahn Ha-yeon 87030 views 'Forbidden Love' MV - 1 hour ago.</p>
+<p>When I clicked on the title, a calm song came on, befitting a ballad.</p>
+<p>The music video showed an old school, with the teacher played by Ha Ju-yoon writing something on the blackboard, and I was glancing at her. Hmm, I look handsome even to myself. Then, when our eyes met, Ha Ju-yoon smiled, and I blushed and pretended to look at my textbook.</p>
+<p>"Oh my, oh my!"</p>
+<p>Son Na-ri exclaimed like an ahjumma and continued watching the music video. Han Yu-gyeong and the others were also quietly watching the music video.</p>
+<p>The song was about the pain of forbidden love. The vocals were good, so it matched the music video well and captured the poignant atmosphere well. The alley fight scene and some classroom scenes that were filmed at the filming location alternated, and the song ended with the last scene being me, as a college student, visiting Ha Ju-yoon's house and kissing her.</p>
+<p>"Wow~! The song was good. The music video was good too."</p>
+<p>"Are you originally majoring in acting? Your acting is pretty good?"</p>
+<p>"Huuuck...! It's touching."</p>
+<p>Son Na-ri and Hong Su-yeon exclaimed, and Lee Ji-soo even shed tears, not sure what was so touching. Han Yu-gyeong was silent, perhaps because of the kiss scene. After a moment of silence, Han Yu-gyeong opened her mouth.</p>
+<p>"Ugh! Yong-tae looks so cool...! I shouldn't have told you to film it. If you become famous, women will flock to you...!"</p>
+<p>Ah, that's why she was quiet. Everyone laughed awkwardly at Han Yu-gyeong's words. Well, I'm not going to become a superstar because of just one music video. Even if it becomes unexpectedly popular, I'm not going to be on TV or MiTube, so the interest will fade quickly.</p>
+<p>Because it's a chaotic world where new topics keep coming out every day. Even if I briefly come to mind, I'll quickly be swept away and disappear in the torrent of other information. That's why I wasn't particularly worried like Han Yu-gyeong.</p>
+<p>"What shall we do after eating?"</p>
+<p>"Let's go to a karaoke!"</p>
+<p>I asked about our next destination to ease the slightly awkward atmosphere caused by Han Yu-gyeong, and Lee Ji-soo raised her hand and suggested karaoke. It was a safe choice, so everyone nodded at Lee Ji-soo's suggestion.</p>
+<p>That's when it happened. A loud boom and a rumbling sound were heard, along with the sound of something collapsing. Shit, what is it?</p>
+<p>I ran out of the restaurant. A building visible in the distance was collapsing, emitting black smoke. Han Yu-gyeong and the other girls, who followed belatedly, were also surprised and watched the scene of the building collapsing with their mouths open.</p>
+<p>"But what building is that?"</p>
+<p>"It's a building with BS Defender and several BS Group affiliates..."</p>
+<p>Ah! Park Il-soo-ajeossi must be really going wild because he lost his son. Why is he attacking so recklessly? BS Group's stock is going to plummet completely.</p>
+<p>"BS Group hasn't been doing well lately, what with Sang-beom Sunbae's death and all..."</p>
+<p>Son Na-ri muttered. Hmm, I feel a bit guilty. We were the ones who killed Park Sang-beom and stirred up the discord, so we can't say that we have no responsibility for this incident, but still, Park Il-soo's side went too far. Blowing up a building in the middle of Seoul. He crossed the line way too much.</p>
+<p>Everyone was getting calls, probably because this situation was on the news. Ha Ju-yoon also called Han Yu-gyeong, and the rest, Lee Ji-soo, Son Na-ri, and Hong Su-yeon, seemed to be getting calls from their parents.</p>
+<p>"We'll have to go to karaoke next time."</p>
+<p>"Yeah, I think I should go home too, since they're worried."</p>
+<p>"I'm being told to go to my family's house altogether."</p>
+<p>Everyone seemed to be disappointed that they had just met, but there was no choice given the situation. Han Yu-gyeong also finished a long call with Ha Ju-yoon and told everyone to meet next time and part ways for now. After parting ways with the friends she met, Han Yu-gyeong opened her mouth with a look of helplessness on her face.</p>
+<p>"I'm being told to go to my family's house too. Yong-tae-yah, what should I do? I came from Japan after a long time... I couldn't be with you because of work, and if I go to my family's house because of this bombing, I won't be able to see you anymore this time..."</p>
+<p>Han Yu-gyeong still needed the umbrella of the Shin-gang Group, so she couldn't refuse the order to come to her family's house. But she couldn't take me to her family's house either.</p>
+<p>If it became known that I was dating her, it could cause problems for both of us.</p>
+<p>If Han Yu-gyeong, the youngest granddaughter of a giant Japanese corporation, were to marry me, she would be treated as an outsider of the Shin-gang Group and would not be able to exert any influence. Conversely, I would be seen as relying on a large Korean corporation to try to get involved in the succession structure, and I would be under intense scrutiny from my uncles and aunts. Therefore, we shouldn't reveal that we're dating until we both have a certain level of stability. Ha Ju-yoon knows, but she said she'd keep it a secret, so we'll move on.</p>
+<p>"Let's go home for now. Dickson will come to pick you up, right?"</p>
+<p>"Yeah..."</p>
+<p>If Han Yu-gyeong goes into the Shin-gang Group's main house, she'll be there for at least three days, and my trip to Korea will end during those three days. My trip to Korea itself doesn't end today, but I won't be able to be with Han Yu-gyeong anymore on this trip.</p>
+<p>"Next time..."</p>
+<p>"Yeah?"</p>
+<p>"Next time, I'll either become independent or solidify my position within the Shin-gang Group so that we don't have to part ways like this. And..."</p>
+<p>"And?"</p>
+<p>"I'm going to completely destroy the BS Group that created this situation."</p>
+<p>Han Yu-gyeong's eyes, as she made her resolution, seemed to be burning. It was indeed the look of a protagonist. It was a little funny that what was fueling that protagonist's gaze was being interrupted from a long-awaited date with her boyfriend, but since I occupy the largest share of Han Yu-gyeong's heart right now, it can't be helped.</p>
+<p>Besides, Han Yu-gyeong had no choice but to see the BS Group in a negative light, as they were responsible for everything from Park Sang-beom to the Base Technology incident and this bombing.</p>

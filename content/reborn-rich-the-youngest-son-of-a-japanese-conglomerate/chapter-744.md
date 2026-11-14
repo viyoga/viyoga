@@ -5,48 +5,77 @@ weight = 744
 chapter = 744
 +++
 
-<p>"Kids, I'm here~!" I said, as if to be heard by the Female Students inside, and as I stood at the front door, everyone in the Family/Household rushed out to see me. What, not even like dogs welcoming their Master home after a long time, why are they rushing out so quickly?</p>
-<p>"Sensei-ssi!" "Liege-nim!" ""Sensei-nim!"" Along with the Members I expected-Otagi Yuka, Saionji Diana, and Sakagami Rena-Urabe Konoka was there. Since Urabe Konoka is a Shrine Maiden, I thought she would be busy with New Year's prayers and such, but seeing her at our Home, it seemed she was a bit free.</p>
-<p>Everyone was wearing New Year's Furisode (振袖: the most formal kimono for unmarried women), and after always seeing them in school uniforms or casual clothes, seeing them in Furisode was a refreshing change.</p>
-<p>"Why is everyone wearing Furisode?" Of course, we were wearing them and waiting to go to Hatsumode (the first shrine visit of the New Year) with Sensei!</p>
-<p>Ah, they were going for New Year's prayers? Then it made sense that Urabe Konoka was waiting here. Urabe Konoka said Shinkai Hime, the Daughter of the Abyss, wanted to see me, and it seemed that was referring to the prayer visit.</p>
-<p>"Since we're already at the front door, let's go now." Anyway, since I was already dressed in a Suit and Coat, it seemed I could go now. Nowadays, men usually wear Suits rather than Kimonos for Hatsumode, so there was no need to change Clothes, and since I hadn't taken off my Shoes yet, I could just go straight out. The Students also came to the front door, so they just needed to put on their Shoes and go out.</p>
-<p>"Shall we?" "Wait! I'll get my Handbag, Liege-nim~!" "I'll go get mine too!" "I knew this would happen, so I brought my Handbag in advance!"</p>
-<p>I thought we could just go straight out, but they were busy getting their Handbags and Wallets. Saionji Diana cleverly said she had brought her Handbag in advance and linked her Arm in mine. She's quite quick-witted, isn't she?</p>
-<p>"Sensei-nim, it's been a long time." "Yes, it has. Have you been well?"</p>
-<p>To Saionji Diana, who greeted me with sparkling Eyes through her Bangs, I also greeted her and asked how she was. Saionji Diana nodded her Head with a shy Expression, and the Students who had gone to get their Bags or Wallets looked at Saionji Diana, who was linked Arm in arm with me, with Expressions of having been outmaneuvered.</p>
-<p>"Diana is so clever!" "We can just split it for going and coming back." Everyone quieted down at my Words. Since there were four Members, it was a judgment that there was no need to compete for my Arm in arm. Because two could link Arms going, and two could link Arms coming back.</p>
-<p>"But isn't linking Arms meaningless? We have to go by car to the shrine anyway, don't we?" "Ah...!" At Otagi Yuka's Words, everyone made an "Ah...!" sound and an Expression of realization. Anyway, since everyone was ready, I took out my car from the garage after a long time.</p>
-<p>"Everyone, get in." I put the Students in the car and drove to where Urabe Shrine was located. As expected of Miyashi, a Villa City, perhaps because many Students were on vacation, there didn't seem to be many visitors for prayers. Or perhaps the people who would have flocked there on January 1st or 2nd had already done so.</p>
-<p>"Please park the car in the parking lot behind, not the one for visitors. Because we have to go to a different shrine." As Urabe Konoka said, we parked the car in the employee parking lot, not the one where shrine visitors park, then climbed the stairs directly next to the parking lot. On both my Sides, Saionji Diana and Urabe Konoka were linked Arm in arm, climbing the stairs with me.</p>
-<p>Even for this short path up the stairs and to the shrine, they seemed to want to walk Arm in arm together. As for me, if Women linked Arms with me on both Sides, it was warm and nice, so I stayed still.</p>
-<p>"If you go up these stairs and turn right, it's Shinkai Hime-nim's shrine." Urabe Konoka, linked Arm in arm on my left, explained the way to me in a whisper. Before, I went through the entrance used by general visitors and took a complicated route through various Passages, but there was a direct path from the employee parking lot.</p>
-<p>After climbing all the stairs, instead of going straight to Shinkai Hime Shrine, we decided to take Photos to feel a bit like we were out for fun. Since everyone was wearing splendid Furisode to do Hatsumode with me, they seemed to want to capture it in Photos.</p>
-<p>"Then each of you stand in a Place you like. I'll take your Photo." "Sensei-ssi, take mine first~!"</p>
-<p>First, we decided to take individual Photos, and Otagi Yuka's Photo was taken first. Otagi Yuka was wearing a red Furisode that matched her Hair Color, and also had a red-dyed winter fur collar attached, so she stood out immensely.</p>
-<p>"How is it?" "It suits you well. It's incredibly vibrant." Looking at Otagi Yuka's Appearance, I gave her a thumbs-up. One might think it was a bit overly splendid, but because Otagi Yuka's Appearance was also splendid, it didn't feel excessive at all.</p>
-<p>"Next, I want to take one with Sensei-ssi~!" After taking individual Photos, I took a Photo with Otagi Yuka, and the next Turn was Urabe Konoka's.</p>
-<p>Urabe Konoka was wearing a white-based Furisode with a red pattern, and while not as much as Otagi Yuka with her red fur collar, she had a dark brown fur collar attached, creating a different Atmosphere.</p>
-<p>"D-Does it look strange?" "Not at all. Rather, you're so incredibly pretty that the background feels overshadowed." "Ehehe..." Urabe Konoka asked, seeming a little uneasy, but at my Answer, she put both Hands to her cheeks as if Embarrassed, and laughed, "Ehehe." Indeed, Praise was the Answer for Women. And it was an Appearance that couldn't help but be praised.</p>
-<p>I also took a Photo with Urabe Konoka, and the next Turn was Sakagami Rena's. Sakagami Rena was wearing a splendid dark purple Furisode that matched her Hair Color. However, to balance the splendid Furisode, she had a normal white fur collar.</p>
-<p>"Rena, you're pretty. It suits you incredibly well." "Liege-nim...! You are indeed a Hero who captivates Women's hearts♥" This time, I praised Sakagami Rena before she even asked, with good Sense, and she gave me the strange Evaluation of being a Hero who captivates Women's hearts. Still, seeing how delighted she was, it seemed there was no other meaning behind it.</p>
-<p>Last was Saionji Diana, and unlike the others, she was wearing a simple Furisode without a fur collar. It was a black Furisode contrasting with her white Skin, and perhaps because Saionji Diana was tall, it suited her quite well. She looked just like Diana, the goddess of the night and forest, and Virginity (though she wasn't a Virgin), just like her name.</p>
-<p>"It suits you well. Diana is like a goddess, just like her name." "Really? I'm happy, Sensei-nim..." When I gave the Evaluation exactly as I thought, Saionji Diana was extremely delighted. The Evaluation of being a goddess, just like her name, seemed to please her greatly. After taking all the Photos, and while we were debating whether to take a group Photo, Urabe Konoka opened her mouth.</p>
-<p>"Since there's no one around, let's first ask the Shrine Maiden at Shinkai Hime-nim's shrine for a group Photo. This way...." As Urabe Konoka instructed, we followed the Road, and the Daughter of the Abyss's shrine appeared. It wasn't as big as Susanoo's shrine, the main god of Urabe Shrine, but it had everything it needed.</p>
-<p>There was also a Chozuya (手水舎: a place to wash hands), a collection box for offerings, and a shrine maiden. Huh? Wasn't the Daughter of the Abyss's shrine maiden Urabe Konoka? Why was there another shrine maiden?</p>
-<p>"It's been a long time, Husband." The Shrine Maiden approached me and gave a greeting. She was a sexy Misi-style Shrine Maiden in her mid-thirties, and although her Face was unfamiliar, I felt a sense of familiarity. Seeing her call me Husband.... Could it be?!</p>
-<p>"Perhaps from Cho-oten Island...?" "Yes, I was indebted to you then. Fufu."</p>
-<p>The Reason her Face was unfamiliar was because she was the Hangari Muneo who had worn a jar on Cho-oten Island. The Reason I felt a sense of familiarity was because we had Sex, and I knew her entire Body except for her Face.</p>
-<p>"Did you move to the shrine in Miyashi?" "Yes, actually, I only go to Cho-oten Island for rituals, but since Shinkai Hime-nim sought out my Husband, they said the rituals would be simplified starting next year, so the overall management is handled by the head priest of that shrine, and I decided to go for only a day or two."</p>
-<p>I see. Since it's an Island after all, there must be many inconveniences for staying there. I greeted the Hangari Muneo, then went to the Chozuya with the Students to wash our Hands.</p>
-<p>"By the way, what kind of god is Shinkai Hime-nim?" Otagi Yuka asked, after being quiet for a while. Indeed, only I, Urabe Konoka, and a few others knew, and I hadn't really told the Students much about the Daughter of the Abyss.</p>
-<p>Shinkai Hime-nim is a deity that the Urabe Family claims to be a subordinate sea god under Susanoo. "Claims?"</p>
-<p>Sakagami Rena, sensing a subtlety in Urabe Konoka's Explanation, asked again. Then the Hangari Muneo, who had been listening to our Story nearby, stepped forward.</p>
-<p>"From here, it's a bit difficult for Konoka, who has the Urabe surname, to explain, so I will explain." Indeed, it wouldn't be a good look for Urabe Konoka to refute the Urabe Family's claims, so it seemed better for someone else to step forward and explain.</p>
-<p>"Actually, Shinkai Hime-nim is not a native Japanese god, but a god from outside. Although her history is old, if you look at how she is deified in areas bordering the Pacific, such as the Izu Islands, Ogasawara Islands, and Northern Mariana Islands, she is a god who came from the Pacific. Just by this, you can tell she has no Relation to Susanoo, a native Japanese god. My claim, as a Shrine Maiden serving Shinkai Hime-nim, is that Shinkai Hime-nim is not a subordinate god of Susanoo, but a separate god who rules the deep Sea." Everyone nodded their Heads at the Hangari Muneo's Explanation. Since Japan itself is a Country of gods, worshipping all sorts of gods, it was actually understandable no matter which god was worshipped.</p>
-<p>"Thank you for the Explanation." "You're welcome." When Urabe Konoka greeted us, Hangari Muneo smiled and spoke. After washing our hands and rinsing our mouths at the Chozuya, we went to the main hall's offering box.</p>
-<p>First, following the order of prayer, I rang the bell in the main hall and took out my wallet to make an offering.</p>
-<p>Still, since it was the Daughter of the Abyss's offering box, to whom I was indebted, I thought I'd offer a generous amount of Money, so I decided to empty all the Money in my Wallet. Upon checking, there were fifteen 10,000-yen bills in my Wallet.</p>
-<p>I took out all the money and put it into the offering box, and following the practice of two bows, two claps, and one bow, I bowed twice, clapped twice, and then bowed once more.</p>
-<p>When I bowed my Head for the last time and raised it, it was no longer the Daughter of the Abyss's shrine in Miyashi. I had somehow moved to the Place where the Daughter of the Abyss was.</p>
-<p>Furisode B-cuts! Otagi Yuka Urabe Konoka Sakagami Rena Saionji Diana</p>
+<p>Break time before the last class on Thursday, in the counseling room.</p>
+<p>"Why are they making the class so long when it's not even on the exam?"</p>
+<p>Otagi Yuka grumbled about the previous class as she sat down in the counseling room. Everyone was thinking similarly because the teacher from the previous period had passionately taught, using up some of the break time.</p>
+<p>These were the students of the homeroom teacher rescue squad, who had gathered various information during lunch and, due to lack of time, couldn't meet immediately and had to attend one class before gathering.</p>
+<p>"Rather than complaining, let's share what we've all investigated."</p>
+<p>At Konoe Akina's words, Urabe Konoka, who had gone out during lunch, wrote down the time Taira Ryuta had sent a text to Matsunaga Yuzuki on a note and showed it to the students.</p>
+<p>"This is the most recent time the teacher sent a text. Of course, it's most likely that it wasn't the teacher who sent this text... The text came around 8:30 AM. It would be best to trace the location of the text."</p>
+<p>"Yeah, that's good..."</p>
+<p>Konoe Akina, who had unknowingly taken on the role of leader of the homeroom teacher rescue squad, wrote down the information Konoka had said. And she began to tell the story of what had happened in the student council room.</p>
+<p>"...We had this conversation, but most of it was a lie."</p>
+<p>"Then there's a high probability that the student council Chairman is the culprit?"</p>
+<p>In fact, most of them were thinking that the student council Chairman Taira Kanna was the culprit, so it wasn't a very shocking statement.</p>
+<p>"And the last place they met the teacher was at a restaurant called Kiyoshikiyoshi."</p>
+<p>"Ah, that's a Japanese restaurant that mainly serves seafood, and it's super popular. It must have been hard to make a reservation, how did they manage to book it?"</p>
+<p>"It must have been possible because it's Taira. So, if we can't track the text from this morning, should we start tracking from that Kiyoshikiyoshi restaurant?"</p>
+<p>"That's right."</p>
+<p>The clues obtained so far were the restaurant named Kiyoshikiyoshi and the time of the text that Taira Ryuta supposedly sent last.</p>
+<p>There was one remaining investigation team. It was Sakagami Rena and Naruse Shiyo, both executives of the Investigation Club, and both had gone out during lunch.</p>
+<p>"I went to Eve, and the teacher's phone turned off around dinner time yesterday. And it hasn't been turned on again, she said?"</p>
+<p>Everyone tilted their heads at Naruse Shiyo's words. This is because the information that Urabe Konoka had obtained, the time the text was sent in the morning, became useless information. If the phone hadn't been turned on, someone must have impersonated Taira Ryuta and sent a text to Matsunaga Yuzuki, so even if they tracked that number, it was likely that nothing would come of it.</p>
+<p>"I went to the Investigation Club's Miyashi headquarters and investigated, and I found out the time and location where communication was cut off. The location matches the Kiyoshikiyoshi restaurant that Akina found out about."</p>
+<p>Sakagami Rena also found out the time and location where Taira Ryuta's communication was cut off. From there, the same time that Naruse Shiyo had found out and the restaurant name Kiyoshikiyoshi that Konoe Akina had obtained came up.</p>
+<p>"So, in the end, we have to chase after sensei-ssi from that Kiyoshikiyoshi restaurant?"</p>
+<p>"That's right. I've already ordered them to get CCTV footage from nearby while returning to school, so they're probably working hard right now."</p>
+<p>Now that they had roughly gathered the information, they needed to discuss how to act.</p>
+<p>"There's something we need to know first."</p>
+<p>Otagi Yuka, who had heard all the information, opened her mouth. As all the students looked at Otagi Yuka, Otagi Yuka continued to speak.</p>
+<p>"Even though the Abyss has disappeared and sensei-ssi has weakened, you all know that his strength is still enormous, right?"</p>
+<p>"Yeah, we know sensei's strength well because it's us."</p>
+<p>Everyone agreed.</p>
+<p>Even though the transcendental power of the Abyss had disappeared, Taira Ryuta was still Taira Ryuta.</p>
+<p>Physical abilities that transcended humans, incomprehensible regenerative abilities, the ability to create weapons from shadows, and finally, telekinesis... He was almost a combat weapon. There was no one who would disagree with Otagi Yuka's words, at least not among the people gathered here in the counseling room.</p>
+<p>"So, what are you trying to say?"</p>
+<p>"We have to face the person who kidnapped such a sensei-ssi without a trace. Even if we find out sensei-ssi's location, can we save him?"</p>
+<p>That's right. They had only thought about finding the disappeared Taira Ryuta, but they hadn't thought about the kidnapper's strength or how they would get him back from the kidnapper.</p>
+<p>"There's a high possibility that I won't be able to use my strength either..."</p>
+<p>In fact, Otagi Yuka, who said these words, had skills comparable to Taira Ryuta. She had physical abilities as a vampire and combat abilities that transcended humans.</p>
+<p>But Otagi Yuka had two weaknesses.</p>
+<p>The first was that she was currently under a debuff called thirst for blood. Otagi Yuka's important combat resource, satiety, was being consumed quickly, and if her satiety dropped, she would become mad and unable to distinguish between friend and foe, so she was in a situation where she couldn't actively participate in combat.</p>
+<p>The second was that Otagi Yuka was a vampire. The vampire's racial ability gave Otagi Yuka transcendental combat abilities, but vampires had clear weaknesses. Various anti-vampire spells, magic, silver, and mithril were among them.</p>
+<p>If the opponent knew in advance that Otagi Yuka was coming, they would thoroughly prepare for it, and Otagi Yuka was likely to be easily neutralized.</p>
+<p>"If the opponent is Taira Kanna, she would definitely know about the Otagi family, and then she could prepare for me."</p>
+<p>"In the end, we're short on manpower."</p>
+<p>Excluding Otagi Yuka, the only useful combat personnel were Naruse Shiyo, Alik, Saionji Diana, and Sakagami Rena.</p>
+<p>Konoe Akina had no combat power except for her Mystic Eyes, and Urabe Konoka had no special abilities other than archery now that the Daughter of the Abyss had temporarily disappeared.</p>
+<p>All four combatants felt like promising rookies who were still growing, so Otagi Yuka spoke about manpower because she doubted whether they could catch the culprit who kidnapped Taira Ryuta.</p>
+<p>"I'm going to save Ryuta. Alik got stronger..."</p>
+<p>"I'm different from the me before the vacation too."</p>
+<p>Alik and Naruse Shiyo, who had trained during the vacation, spoke confidently, but it was still uneasy. They couldn't just trust their words and carry out the mission to rescue their beloved homeroom teacher, so they needed to add some manpower.</p>
+<p>"Of course, I trust you both, but we don't know what will happen if we fail this time, so let's add manpower."</p>
+<p>"Yeah, I understand..."</p>
+<p>"Alik can do it..."</p>
+<p>Konoe Akina said soothingly, and the two became sullen, but it couldn't be helped. Adding manpower was never a bad thing.</p>
+<p>"First, let's exclude the Disciplinary Committee Chairman Nakanoin Rina and Vice-Chairman Muko Neika, who are student council connections we know. There's a high possibility that they're under Taira Kanna's orders..."</p>
+<p>The Disciplinary Committee was the force wielded by the student council, so it went without saying that they couldn't be added to the list of manpower. It could end up being a situation where they only passed on information about this side if they asked for help.</p>
+<p>"Alik, Shiyo. Is it possible for the home ec teacher to join?"</p>
+<p>"No. Moka-sabu went somewhere to do a mission. She said that she had to quickly fill the number of missions contracted in advance to retire from the academy."</p>
+<p>The students were disappointed for a moment that Shimokawabe Airen, who was presumed to be the strongest in the academy, couldn't join due to a mission, and they began to think of other people.</p>
+<p>"Kina-sabu's side is also out of the question. If Kina knows, the Kujo Group will also know... Then sensei's identity might be revealed."</p>
+<p>In fact, the biggest problem for the Taira Ryuta rescue squad was that they had to hide that Yamashiro Ryuta was Taira Ryuta.</p>
+<p>If there was no need to hide that he was Taira Ryuta, they could just hire a large number of PMC owned by Taira Ryuta and push down the suspected location, but that was impossible because he was on a secret mission where his identity couldn't be revealed.</p>
+<p>Several people came up like that, but no one was satisfied with the people who came up. Then Otagi Yuka raised her hand as if she had thought of something.</p>
+<p>"What about Shii? She's a skilled person who can be compared to Kina-sabu, and she likes sensei, so she'll keep the secret even if it's revealed during the mission."</p>
+<p>"That's right. Shii is a fixer, so let's make a request. Fixers also have a duty to maintain confidentiality, so it seems like it would be okay to do it as a request."</p>
+<p>Seizawa Shii was the perfect mercenary to add to the force for this mission, so much so that it was strange why they hadn't thought of her, a classmate, until late. She was a famous fixer called Ogre, and her skills were as great as her fame.</p>
+<p>It was also good that she was Minamoto Lisa's best friend and didn't have a close relationship with Taira Kanna. Of course, there was a sense of unease that the secret of homeroom teacher Taira Ryuta could flow to Minamoto Lisa, but it wasn't certain that Taira Ryuta's identity would be revealed during this mission, and everyone thought that Seizawa Shii, who had a slightly light personality, could be trusted in this area, so everyone agreed to hire Seizawa Shii.</p>
+<p>"Then let's make a request to Shii first..."</p>
+<p>While they were talking, the bell rang to signal the start of the last class. The students sighed as if they were disappointed by the lack of time.</p>
+<p>"Let's find out if there's anyone else we can entrust during class."</p>
+<p>"Yeah...!"</p>
+<p>"We have to go to class first."</p>
+<p>"Ryuta, will he be okay...?"</p>
+<p>"Don't worry too much, he's the teacher."</p>
+<p>Everyone said a word each and left the counseling room. Because it was the last class before the start of the homeroom teacher rescue operation, no one had any intention of concentrating on the class. They were only thinking about how to rescue Taira Ryuta.</p>

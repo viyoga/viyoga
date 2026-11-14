@@ -5,71 +5,73 @@ weight = 939
 chapter = 939
 +++
 
-<p>and chapter check contains erotic illustrations please surroundings this your</p>
-<p>"Chyu-eup...! Chyu-up♥ Jjeu-eup...! Jjyu-heup...!"</p>
-<p>Otagi Yuka, who had satisfied all my curiosity, began to suck my cock, making lewd sounds.</p>
-<p>Otagi Yuka, number one in fellatio frequency since her possession, who had frequently consumed my semen instead of blood, used her skilled tongue play and appropriate oral pressure to suck my cock. My semi-erect cock quickly filled with blood and became as hard as flint.</p>
-<p>Otagi Yuka, as if pleased with the hardened state of my cock, looked up at me and gave an Eye Smile. And as if urging me to give her semen quickly, she shook her head back and forth and began to suck my cock even more intensely.</p>
-<p>"Kheu-euh...."</p>
-<p>"Feewsh good?"</p>
-<p>Otagi Yuka's mouth felt so good that I let out a moan without realizing it. Otagi Yuka, with my cock still in her mouth, asked, "Feels good?", so I nodded my head. When I said it felt good, Otagi Yuka became even more excited.</p>
-<p>The sharp Fangs unique to vampires brushing lightly now and then, giving goosebump-inducing pleasure intermittently, was also a benefit of Otagi Yuka's special fellatio.</p>
-<p>"Kheu-eueut...! I'm cumming!"</p>
-<p>Unable to withstand Otagi Yuka's persistent mouth attack for over ten minutes, my cock ejaculated semen into Otagi Yuka's mouth. Gulping and gurgling, as my cock, which had continuously spurted semen, quieted down, Otagi Yuka, as if it were a waste, sucked and drank the remaining semen from my urethra. Perhaps because of the urethra cleaning, my cock, which was starting to go soft, hardened again.</p>
-<p>"Beh~♥"</p>
-<p>After spitting out my cock, Otagi Yuka opened her mouth and showed the semen remaining on her tongue. Because my ejaculate volume was so large, even though she had swallowed it down her throat with gulping sounds during ejaculation, there was still quite a lot of semen left in her mouth.</p>
-<p>"Haaah.... I feel like I can live now."</p>
-<p>As she consumed my semen, Otagi Yuka's slightly hasty and irritable attitude from moments ago disappeared. Because a lack of vital energy would make her lose her Fading Reason, Otagi Yuka had urgently sucked my cock, and I, too, had not held back and immediately ejaculated semen into her mouth.</p>
-<p>"Are you okay now?"</p>
-<p>"No, not yet~♥ Since you've filled my upper mouth, now fill my lower mouth too♥"</p>
-<p>Otagi Yuka, as if one serving of my semen wasn't enough, placed her hands on the Front Door, looked at me, swayed her buttocks enticingly, and seduced me. Perhaps because she had vigorously shaken her Head while performing Fellatio, her Bangs had fallen, which felt a bit new.</p>
-<p>At her seductive Appearance, I began to touch Otagi Yuka's panties, which were now full of Steamy Moisture. Because a lot of vaginal fluid had flowed out, Otagi Yuka's panties clung tightly with a sticky feeling and moisture, revealing the outline of her pussy.</p>
-<p>"Haa-euh-heung...! Teacher-ssi, your fingers feel good, haaang♥"</p>
-<p>She said she would call me Ryuta-ssi instead of Teacher-ssi, but when she got Aroused, Otagi Yuka called me by the familiar Address. For a while, I violated Otagi Yuka's pussy over her panties, then pulled down her panties.</p>
-<p>As I pulled down her panties, along with a strong Female Animal Smell, between her panties and pussy, the sight of a glistening Silken Strand of vaginal fluid stretching out and then breaking was extremely erotic.</p>
-<p>Otagi Yuka's Pink pussy, as if seducing me, was gaping open and profusely leaking vaginal fluid. Although I wanted to torment Otagi Yuka's pussy with my fingers a little longer, since her vassals were waiting at Home, I decided to insert my cock immediately.</p>
-<p>"Haaht!"</p>
-<p>As I gently inserted my glans into Otagi Yuka's Pussy Hole, the feeling of it biting down was so incredibly good that I shallowly thrust my hips, just enough for my glans to move slightly back and forth.</p>
-<p>"Heung, haang, Teacher-ssi...! Heueut! Inside too, Ryuta-ssi's, haaang♥, big cock, heueut! Thrust it in, paang-paang!"</p>
-<p>As I thrust shallowly, Otagi Yuka whined, as if wanting to feel pleasure in a deeper place. If she whined so desperately, I had no choice but to grant it. I grabbed Otagi Yuka's slender waist and thrust my cock into the deepest part of her Intravaginal.</p>
-<p>"Haa-aa-aaang!!!"</p>
-<p>Even though I had only pressed a little inside, Otagi Yuka writhed in pleasure. As if she had already reached Climax, she threw her Head back and rolled her Eyes upwards. Her Intravaginal also twitched in response, signaling that she had reached Climax.</p>
-<p>Still, I didn't go easy on her, grabbed Otagi Yuka's hair, and continued to thrust my hips.</p>
-<p>Cheol-sseok! Cheol-sseok!</p>
-<p>"Heu-euh-heung...! It feels, haaht! Strange, Ryuta-ssi...! Ryuta-ssi's cock...! It feels so, heung...! Good, haaang♥"</p>
-<p>Vaginal fluid splashed all over my Lower Abdomen, and along with the steamy slapping sound of flesh, Otagi Yuka's moans followed.</p>
-<p>Parting Otagi Yuka's delightfully twitching and tightening vaginal flesh, as I rhythmically thrust my hips, Otagi Yuka was moaning loud enough to shake the house.</p>
-<p>"Haa-euh-heung...! It feels good, haaang...! Ryuta-ssi, heueut! Cock! Haaht, keep, haa-euh-heung...! Putting it in! Inside, haaht, with Teacher-ssi's, haaht, rub it♥ Mix it all up♥"</p>
-<p>Otagi Yuka was completely lost in Sex after a long time. In fact, she had held back quite a bit. While preparing for the Anyaji attack, she had barely had Sex, only performing Fellatio mechanically to consume vital energy. Occasionally, she had given Handjobs to store it in bottles, but she hadn't had Sex. She was also very busy with preparations, and since the opponent was a formidable opponent, the Atmosphere wasn't right for it either.</p>
-<p>Of course, I was the same. My infinite Virility could not be released with just Fellatio or Handjobs. As I entered a Female Body after a long time, my cock swelled hard, as if it would burst at any moment.</p>
-<p>"Haaht! Heueut! Haaht...! Ryuta-ssi...! Now, haa-heung♥, cum inside...! If you keep going, I feel like I'll go crazy...!"</p>
-<p>Otagi Yuka said, looking back pitifully. Actually, I was curious what would happen if she went crazy, and wanted to thrust into Otagi Yuka's pussy more, but I, too, had reached my Limit. I could feel the semen rising.</p>
-<p>"Uh...! Alright. I'll cum inside."</p>
-<p>"Haa-euh-heung...! Ryuta-ssi's baby seed, haaht! Cum a lot inside...!"</p>
-<p>Cheol-sseok! Cheol-sseok! Cheol-sseok!</p>
-<p>I, taking Otagi Yuka's moans as Support, further increased the speed of my piston thrusts. Moving while scraping Otagi Yuka's rough vaginal opening with my glans, it doubled the pleasure we gave each other.</p>
-<p>Peo-eok! Peo-eok! Peo-eok!</p>
-<p>Beyond mere slapping sounds, now making sounds as if hitting with a Blunt Weapon, I thrust my hips.</p>
-<p>"Kheu-eueut! I'm cumming...!"</p>
-<p>"Heu-aa-aa-hang...! Inside, inside...! Cum insideee♥"</p>
-<p>I tightly gripped Otagi Yuka's buttocks, pressing my hips as close to her pussy as possible, and began to Ejaculate semen into the deepest place.</p>
-<p>Bhyu-ut! Bhyu-ut! Bhyu-u-ut!</p>
-<p>"Haa-aang, Ryuta-ssi's hot milk, euh-eut! It's coming, it's coming, I'm cumminggg...!"</p>
-<p>Otagi Yuka trembled her Legs and reached Climax. As her Legs gave out and she was about to collapse, my cock, still embedded in her pussy, supported her. When the Weight of a Woman was suddenly added, I felt a dull Pain in my cock, but the Pain disappeared as it seemed to Regenerate quickly. If it were a normal Person, they would probably have been rushed to the Hospital with a fractured corpus cavernosum.</p>
-<p>I, while enjoying the Afterplay, with my cock still inserted, hugged Otagi Yuka from behind, touched her soft breasts, and waited for Otagi Yuka to enjoy the Afterglow of Orgasm.</p>
-<p>Otagi Yuka, with Eyes blurred by pleasure, turned around and kissed me. Chyu-eup, Chyu-up, Jjeu-eup, the sounds of us sharing Saliva echoed lewdly throughout the Family. Although my cock had hardened again from the Kiss, Otagi Yuka smiled and gently pushed me away.</p>
-<p>"Today, it's not just me, there are other Women waiting, aren't there?"</p>
-<p>Ah, that's right. Now that I think about it, Otagi Yuka and I weren't the only ones who came Home. Saionji Diana and Sakagami Rena had also come with us. When I turned my Head to look, both of them were watching Otagi Yuka's and my Sex, while touching their own pussies.</p>
-<p>It's not like some augmented reality Porn or anything.... Actually, this is Otagi Yuka's fault for suddenly stripping my Pants and sucking my cock.</p>
-<p>As I pulled my cock out of Otagi Yuka's pussy, her pussy gaped open as if disappointed. If it were normal People, they would probably gush out my semen, but Otagi Yuka's pussy and uterus are specialized in absorbing my semen, so no matter how much semen I ejaculated, it didn't flow out.</p>
-<p>"I'll visit with my vassals tomorrow."</p>
-<p>Otagi Yuka threw her panties that had fallen on the floor, skillfully landing them in my distant Laundry Basket, and said. Her panties, discarded at the Front Door, were thoroughly soaked with vaginal fluid, so it would probably feel a bit uncomfortable to put them on again. And she put on her Pants with No Panties.</p>
-<p>"That, her name... Ah, Seiwa Rieko, are you going to make her work under me too?"</p>
-<p>"Of course. She's my vassal. Since I Work for you, she'll also offer her labor to you for me. She also has to earn her keep."</p>
-<p>Indeed.... Her keep isn't just any ordinary keep. Since a Vampire's vassal is also a Vampire, they will need Blood. I don't know if they have a Trait like Otagi Yuka's, treating semen as Blood, but if not, since they would need to consistently consume Blood, their Food Expenses would be much higher than normal People's.</p>
-<p>"Haaah.... It was so good after a long time. See you tomorrow, Ryuta-ssi."</p>
-<p>Otagi Yuka, with her characteristic cheerful Smile, after kissing my Cheek, went straight out through the Front Door. Having Sex at the Front Door, means you can leave immediately afterwards.... I, after seeing Otagi Yuka off, turned around and looked at the two Masturbating Monsters.</p>
-<p>"So.... Who's next?"</p>
-<p>At my Words, Saionji Diana and Sakagami Rena simultaneously raised their hands.</p>
-<p>Today's Sex Scene B-cuts!</p>
-<p>Kkiyot!</p>
+<p>'Is it delicious?'</p>
+<p>'Yes, it's delicious...♥'</p>
+<p>Urabe Konoka's Expression after eating the semen looked so ecstatic that I asked, and Urabe Konoka, with a dazed Expression, nodded and Answered.</p>
+<p>'Now.... I'll clean it for you...!'</p>
+<p>Urabe Konoka grabbed my cock again and put it in her mouth. And she cleaned it thoroughly by licking every part of my cock with her tongue, and finally, as if kissing, she put her lips on my urethra and sucked, sucking up the semen remaining in my urethra.</p>
+<p>It was such erotic cock cleaning that I didn't know if she was cleaning it or trying to re-Erect my cock, which was becoming soft after Ejaculation. Naturally, my cock, which reflexively Erects when Stimulated, had no choice but to look at the sky and stand stiffly at Urabe Konoka's cleaning.</p>
+<p>'Heuheung, it's gotten big again, Teacher-nim...♥'</p>
+<p>Unlike her shy Expression at the beginning, the gap between Urabe Konoka, who was looking at my cock with a vixen-like Expression, was also sexy to me.</p>
+<p>Urabe Konoka got up from below me, sat on the bed, spread her Legs, and then pushed her panties to the side. As her moist pussy, already excited and waiting for insertion, was revealed before my Eyes, I couldn't resist either.</p>
+<p>I approached Urabe Konoka and stroked Urabe Konoka's pussy with my Hand. Slippery and sticky vaginal fluid smeared on my fingertips, and I slid and rubbed around Urabe Konoka's pussy.</p>
+<p>Naturally, Urabe Konoka heaved her waist and moaned because of the Stimulation being applied to her pussy.</p>
+<p>'Heueuheung...! Teacher-nim...! You can do it right away, Heueu...♥'</p>
+<p>'I'll do it with my mouth like Konoka did for me.'</p>
+<p>Since Konoka had made a great contribution, I was thinking of putting in a little more effort and giving her foreplay rather than inserting it right away. I grabbed both of Urabe Konoka's thighs and buried my nose in Urabe Konoka's pussy, where her Jilgu was wriggling with Expectation.</p>
+<p>'Kkyahaeueung...! Teacher-nim! My mood is haaht!'</p>
+<p>Urabe Konoka was about to faint just from the Breath felt on her pussy without even licking it. Along with the scent of a lecherous Yeoche, I felt a strong sense of pheromones that Stimulated a man. I felt like sticking my cock into this small hole right away.</p>
+<p>But I endured the rising Lust and brought my tongue to Urabe Konoka's pussy.</p>
+<p>'Heuhiik...♥ The Feeling is heueut!'</p>
+<p>Urabe Konoka was trying to close her Legs as I brought my tongue to her pussy, but having learned a Lesson from Sex with Saionji Diana, I was holding Urabe Konoka's thighs tightly.</p>
+<p>This is because Urabe Konoka, who had been influenced as a Shrine Maiden of the Outer God since her Simyeonui ttal days, had gradually changed her body, so she was quite strong, unlike what she looked like. That's why she shoots high-end bows for Actual combat with tremendous tension. I felt considerable strength even when she closed her Legs just now.</p>
+<p>Thinking like this, I suddenly became quite curious about Urabe Konoka's Status Window. I'm curious about her Stats and what Traits she has. I should check her Stats with Hanakame later.</p>
+<p>'Haaaaaaeung! Teacher! I'm going crazy haaht! I'm coming!'</p>
+<p>'Ah, sorry.'</p>
+<p>Without realizing it, I was thinking about Stats and kept moving my tongue. Urabe Konoka was dripping saliva as if she had been caught by a machine masturbation machine and kept being abused. I gently wiped her mouth with my thumb and laid Urabe Konoka on the bed.</p>
+<p>'Teacher, now.... Please come inside♥'</p>
+<p>Still, Urabe Konoka, who quickly came to her senses, lay down, grabbed her knees, spread her Legs, and began to Seduce me. There were few men who could resist after coming this far, so I immediately raised my cock over Urabe Konoka's pussy.</p>
+<p>'Teacher's big cock.... It's heavy♥'</p>
+<p>I've heard various Evaluations of my cock, but this was the first time I heard it was heavy. When I thought about it, my cock is big, so when it Erects, there's a lot of blood that goes into it, so my cock must be heavy.</p>
+<p>'Okay, I'll put that heavy cock in.'</p>
+<p>'Hurry, Teacher-nim♥'</p>
+<p>I grabbed my cock, aimed at Urabe Konoka's small pussy, and pushed in from the glans. Urabe Konoka's pussy was very narrow because she wasn't very big.</p>
+<p>I could feel the glans widening the closed inner vaginal flesh as it went in, and Urabe Konoka also raised her pupils and couldn't come to her senses from the small Climax that came like a wave, as if she felt my huge cock entering her inside.</p>
+<p>'I feel good because Urabe's pussy is tight....'</p>
+<p>'Heueung,! The inside is haaht! Getting wider...! As it gets wider like this...! Haeueueut!! It becomes Teacher's exclusive pussy♥'</p>
+<p>My exclusive pussy.... She's saying admirable things.</p>
+<p>'Either way, you're only going to use it for me until you die, so it's okay if it becomes my exclusive pussy, right?'</p>
+<p>'Haaht...! That's right, not only my pussy but my whole body is Teacher's, so haaheung...! Please use it as you please! Haeueheung...!'</p>
+<p>I bounced my waist once and said in a way that meant, 'You're mine anyway,' and Urabe Konoka nodded with a dazed Expression. Along with that, her pussy was also wriggling intricately, making my cock feel good.</p>
+<p>As expected, Urabe Konoka's pussy felt quite good, perhaps because she was influenced by the Outer God.</p>
+<p>Inside Urabe Konoka's vagina, there were tremendous curves and protrusions, so it was an S-Rank pussy hidden inside a small body that could make an average man Ejaculate even if he only went back and forth once. Of course, no other man besides me will ever feel the pleasure of this pussy.</p>
+<p>'Haaht! Heueung...! Teacher's haaht! Cock♥ is so heueung, good!!!'</p>
+<p>'Urabe's pussy also feels great...!'</p>
+<p>Perhaps because her pussy felt so good, I began to piston violently to the point where it made a slapping sound. Urabe Konoka was receiving my rough Movements and couldn't come to her senses from the pouring pleasure.</p>
+<p>'Konoka, I'm cumming...!'</p>
+<p>'Yes, please come, Teacher-nim...! Please put Teacher's sweet honey inside me...!'</p>
+<p>Of course, if I moved this violently, it was natural that I would quickly feel the feeling of Ejaculation. But since I wasn't planning on ending Sex with Urabe Konoka with this Ejaculation, I didn't hold back my Ejaculation and pushed my cock in as much as possible and began to Ejaculate inside Urabe Konoka.</p>
+<p>Beueut! Beueut! Byeueut! Beueut!</p>
+<p>'Haeueeung! Warm heueung! Is filling the inside haaaaeung♥'</p>
+<p>As the hot semen hit Urabe Konoka's cervix, Urabe Konoka reached Climax. Her body trembled and I could feel her pussy squeezing tightly and demanding more of my semen. I pushed my cock in further and hugged Urabe Konoka tightly as I finished Ejaculating. Urabe Konoka also hugged me as she felt good as her body was in close contact with mine.</p>
+<p>After ending the long Ejaculation, I released the hug and pulled out my cock, and semen flowed out as if overflowing. Urabe Konoka was still unable to come to her senses from the Afterglow of orgasm, and was staring blankly at the empty space with her tongue sticking out.</p>
+<p>I took out the tissue paper on the desk, wiped off the semen, and slowly began to take off Urabe Konoka's bat lingerie. I was thinking that since we had Sex with our Clothes on just now, we should take off our Clothes and do it now.</p>
+<p>After completely undressing Urabe Konoka and making her naked, I turned Urabe Konoka over and made her lie face down. This time, I was planning to enjoy a prone position (a position where you lie completely face down, unlike the doggy style position where you crawl on all fours), which is a variation of the doggy style, in a position that was not the missionary position.</p>
+<p>As expected of Urabe Konoka, who trains in horseback archery, her body was well-toned, so even though she was lying face down, her butt was attractively protruding without sagging.</p>
+<p>This time, I put my cock into Urabe Konoka's pussy without foreplay. It was already after we had Sex once, and her pussy was still full of my semen, so the semen acted as a Lubricant and allowed my cock to enter her pussy smoothly.</p>
+<p>'Haeueeueung! Because the position is different, heueung, the Feeling is also different...! Teacher-nim...!'</p>
+<p>Perhaps because the angle of entry was different, both I and Urabe Konoka felt good with the newly felt pleasure.</p>
+<p>I covered Urabe Konoka with my body as if pressing her down, then shook my waist and stretched my Hand to Urabe Konoka's breast and fondled Urabe Konoka's breasts, which were of a moderate size that fit in one Hand.</p>
+<p>'Haeueeueut! The lower part and heueut! The breasts at the same time heueut! So, the Feeling is strange!'</p>
+<p>During the Sex just now, there was an armor(?) called Latex underwear, so she could protect her breasts, but this time there was no piece of cloth to block her breasts.</p>
+<p>It seemed unbearable to be attacked at the same time on the representative erogenous zones of a woman, the pussy and breasts, but since her position was already pressed down by me from behind and she couldn't move, all Urabe Konoka could do was make loud moaning sounds.</p>
+<p>After being tormented by me for nearly thirty minutes and reaching Climax dozens of times, Urabe Konoka was finally able to be released after receiving my semen once again.</p>
+<p>It was quite a sight to see semen flowing from her pussy between Urabe Konoka's Legs after pulling out my cock. I got up from my seat with a satisfied Expression, put on my underwear and Shirt roughly, and left the Room to drink water.</p>
+<p>Alik surprised in the mountain training ground, Alik reaching out his Hand towards the Camera in the mountain training ground, requested by TheDreaming-nim~!</p>
+<p>1.</p>
+<p>2.</p>
+<p>Young Linling dancing while singing in the Coin Karaoke and Taira Kanna dancing in sexy lingerie, requested by MidNightSKY-nim~!</p>
+<p>Linling first~!</p>
+<p>I definitely put in the dancing prom, but since she's holding the Microphone, she's not dancing hehe. Reaching out her Hand like the first Illustration was the limit~.</p>
+<p>Kanna~!</p>
+<p>Kkiyot~!</p>

@@ -5,84 +5,88 @@ weight = 664
 chapter = 664
 +++
 
-<p>"Hello."</p>
-<p>This guest was Takinogawa, Sakagami Rena's -nim teacher with pink hair. I thought that since she was a ninja teacher, she wouldn't be very interested in this kind of thing, but Takinogawa smiled brightly, as if mocking Minamoto Risa's -ssi expectations, and opened her mouth.</p>
-<p>"My hobby is collecting cards."</p>
-<p>"Ah, then how many...?"</p>
-<p>"Give me two thousand A's and one hundred B's."</p>
-<p>"Excuse me?"</p>
-<p>Minamoto Risa -ssi couldn't help but ask again. Even if collecting cards is a hobby, where on earth would she use 2,000 of them? 2,100 copies is 2.5 million yen. This was a not-so-small amount of money that some people had to earn in a year.</p>
-<p>Even though it was her own designed gacha club magazine sale, it was hard to understand why so many were being sold at once like this. She had expected that they would only sell about 40 copies to most customers, so she couldn't help but be flustered when it far exceeded her expectations.</p>
-<p>"Can I pay with a card?"</p>
-<p>Takinogawa handed over her card with an elegant gesture, whether Minamoto Risa -ssi was flustered or not. Minamoto Risa -ssi nodded and finished calculating in her head.</p>
-<p>"2,100 copies is 2.52 million yen. Is that okay?"</p>
-<p>"Fufu, swipe it away coolly."</p>
-<p>Minamoto Risa -ssi asked if it was okay after saying the price as if to confirm again, but Takinogawa nodded as if asking a question that was obvious.</p>
-<p>"Kujo -ssi and Naruse -ssi, please carry some of the books."</p>
-<p>"Okay. I was getting a little itchy because I didn't have training today anyway, so this is good."</p>
-<p>"I'll be right back!"</p>
-<p>Naruse Shiyo -ssi and Kujo Kina -ssi each took several hundred books and left. Takinogawa herself, who bought the books, and Sakagami Rena -ssi, who brought her to the club room, also took some books and went downstairs together.</p>
-<p>"We've already sold over 13,000 copies of club magazine A alone. Since acquaintances who visited the club room bought a lot at once, it seems like the people behind them are buying a little more because they're afraid it will be sold out."</p>
-<p>Shido Tsubaki -ssi also said with a flustered expression. Suddenly, people in front were buying 500 or 2,000 copies, so the people in line behind them were also flustered and bought more than they had planned to buy. But there were still over 6,000 copies left, so there was not much to worry about. The 3,000 photo card packs that were ordered would also arrive after lunch, so they would be able to sell them comfortably until tomorrow.</p>
-<p>However, Minamoto Risa's -ssi calculations were completely shattered when Nagumo Sian -ssi and Taira Kanna -ssi entered.</p>
-<p>"Since the sales item is a booklet, I think it would be good to put a few copies in the Taira Food Library."</p>
-<p>Minamoto Risa -ssi, who thought, "Why would you put a club magazine in the Taira Food Library?" froze for a moment at Nagumo Sian's -ssi next words.</p>
-<p>"A thousand copies."</p>
-<p>"Excuse me?"</p>
-<p>"A thousand copies would be good to donate to public libraries or school libraries in the surrounding Akita area."</p>
-<p>Minamoto Risa -ssi was embarrassed by Nagumo Sian's -ssi words. Of course, it was just a club magazine with simple virtual dating experiences and dating item recommendations, so it wasn't racy or bad content, but it wasn't something that would be kept in public libraries or school libraries.</p>
-<p>Rather, she felt an unknown embarrassment and her face turned red when she thought about elementary school students she didn't even know reading the dating experiences they had written.</p>
-<p>"There are A and B versions of the magazine, which one?"</p>
-<p>"A.... A has a good ring to it. Let's go with A."</p>
-<p>Isn't it wrong to decide something like that based on how it sounds?! Minamoto Risa -ssi shouted inwardly. Nagumo Sian -ssi was much older than she was, contrary to her appearance, so she couldn't argue and could only nod.</p>
-<p>"A thousand copies is 1.2 million yen."</p>
-<p>"Here's the card."</p>
-<p>Nagumo Sian -ssi handed over a black VIP card without even listening to the price properly. Of course, as the president of a part of the Taira Group, 1.2 million yen would be pocket change.</p>
-<p>According to rumors, she succeeded in investing in the Mithril mine and was earning a lot of money in addition to her salary, so she wouldn't mind the price of the books.</p>
-<p>"Is it my turn now?"</p>
-<p>Taira Kanna -ssi, the main culprit who brought Nagumo Sian -ssi to the dating experience club room, smiled and stood at the counter.</p>
-<p>"Hmm.... Since magazine B is for fans who come from far away.... I have no choice but to choose just one. Can I have all the remaining magazine A's?"</p>
-<p>"Hey...!"</p>
-<p>Minamoto Risa -ssi almost screamed at Taira Kanna's -ssi ruthless order.</p>
-<p>"If you order them all, the other people in line will go home empty-handed.... Buy a reasonable amount, okay?"</p>
-<p>Minamoto Risa -ssi said in a kind voice that was the opposite of the bulging vein on her forehead as she looked at Taira Kanna -ssi, who was smiling brightly.</p>
-<p>"Ah, there was such a difficulty? Then how many remaining A magazines are there?"</p>
-<p>"There are about 5,600 copies left."</p>
-<p>Shido Tsubaki -ssi said, looking at the inventory screen in response to Taira Kanna's -ssi question.</p>
-<p>"I saw that the general customers who bought them were buying about 40 copies at a time.... So if I buy about 4,000 copies, the remaining 1,600 copies will be enough for everyone in line now to buy. Give me 4,000 copies!"</p>
-<p>"Haa.... Please think about the customers who will come next time too, okay?"</p>
-<p>"That's something the seller should think about, right? I've already made a lot of concessions."</p>
-<p>If she said she wouldn't sell it here, she didn't know what kind of trouble the student council, which was in charge of the festival, would cause to the club. Minamoto Risa -ssi nodded as if she understood because selling them was not a loss, and started packing 4,000 copies.</p>
-<p>"Nagumo-ssi bought a thousand copies and you bought four thousand copies, it's going to be quite heavy to carry...."</p>
-<p>"Fufu, you don't have to carry the luggage for us."</p>
-<p>Taira Kanna -ssi entrusted the transportation of the club magazines to the disciplinary committee members who had already rushed into the club room.</p>
-<p>"So how much is it?"</p>
-<p>"It's 4.8 million yen...."</p>
-<p>When Minamoto Risa -ssi said tiredly, Taira Kanna -ssi looked at her and said, "Isn't it good that your business is doing well?" and paid with her smartphone.</p>
-<p>The atmosphere changed when Taira Kanna -ssi disappeared with the disciplinary committee members. The people in line were worried about what to do if it was sold out when it was their turn.</p>
-<p>"I'll go write that magazine A is sold out for a moment."</p>
-<p>Minamoto Risa -ssi took a piece of paper and a pen and went down to the entrance to write that club magazine A (Yamashiro-sensei VER.) was sold out and that it would be restocked after lunch, which caused quite a stir again.</p>
-<p>"I'm sorry. Those who want to buy magazine A, please enjoy the festival for a while and come back after lunch."</p>
-<p>When Minamoto Risa -ssi bowed and apologized, a considerable number of people in line grumbled and disappeared elsewhere. Because of that, the fans of Uenojo Karen -ssi, who suddenly moved forward, were happy with an "Oh, jackpot!" expression.</p>
+<p>I heard the sound of several people coming down the stairs to the basement. Seizawa Shii sighed as the anxiety she felt turned out to be true.</p>
+<p>,Haa.... K, why did you have to betray me? We were doing so well.</p>
+<p>,I was too tired of finding your picky requests.... Anyway, you're leaving Miyashi when you graduate, so I can't broadcast anymore, right? I was thinking of making some serious money before that.</p>
+<p>In the end, the reason for the betrayal seemed to be money. Seizawa Shii was an excellent fixer, but she had her own standards for accepting missions, so she couldn't handle many.</p>
+<p>Of course, K couldn't broker many jobs, so he couldn't make much brokerage fee, and to top it off, when Seizawa Shii graduated, she would be working somewhere other than Miyashi, so he wouldn't be able to collect even that brokerage fee, so he was trying to make a lot of money for the last time.</p>
+<p>Seizawa Shii glanced at the source of the footsteps. Anya Order monks in black robes were coming down one by one to K's brokerage office.</p>
+<p>,Hoo.... You know the price of betrayal, right?</p>
+<p>,Kekeke.... You mean the price of a 'failed' betrayal.</p>
+<p>K answered with a sneer at Seizawa Shii's words. A successful betrayal meant that the other party could not hold him accountable, so if the Anya Order monks gathered here won, he would not have to pay the price of betrayal to Seizawa Shii.</p>
+<p>,I just came to check the magic....</p>
+<p>The woman in the Oni mask said, looking embarrassed as she watched the Anya Order monks come down the stairs. Judging by the slight trembling in her voice, she didn't seem to have much combat experience.</p>
+<p>,Do you think those guys will let a witness live? Help me if you want to live too.</p>
+<p>,Hoo... Alright.</p>
+<p>Seizawa Shii's words were not wrong, so the woman in the Oni mask sighed and nodded.</p>
+<p>There were already about fifteen Anya Order monks who had come down to the basement. Seizawa Shii didn't let the opponent prepare any further and rushed at the monks as if she were bouncing off.</p>
+<p>The woman in the Oni mask reached out to Seizawa Shii and cast some kind of spell on her, which increased her defense and also increased her physical abilities.</p>
+<p>,Oh! Thank you!</p>
+<p>Seizawa Shii, feeling her body lighten in an instant, shouted and swung her fist at the Anya Order monk in the front.</p>
+<p>Kwadeudeuk!</p>
+<p>With a chilling sound, the Anya Order monk's skull shattered. Seizawa Shii was already excellent in physical abilities, but she was buffed with auxiliary magic, so each of her gestures had a deadly power, like a tiger with wings.</p>
+<p>,Surround her, everyone!</p>
+<p>,Kill her!</p>
+<p>In an instant, Seizawa Shii was swept away into the black robes. If it were an ordinary person, they would be quickly swept away if they fought so many people alone, but Seizawa Shii was no ordinary person, but the infamous fixer Ogre from the underworld.</p>
+<p>,Kkeuaaa!</p>
+<p>,Shit!!</p>
+<p>Peoeok, Kwadeuk! Along with the chilling sound of bones breaking, screams close to screams echoed in the basement. Blood splattered here and there, turning K's brokerage office, which was already dark and had a bad atmosphere, into a place where a chilling mass killing took place.</p>
+<p>,Kkeureureuk.... Keok!</p>
+<p>As the last Anya Order monk with a broken neck fell, Seizawa Shii turned around with a refreshing smile. Normally, Seizawa Shii's smile, as a beautiful girl, would be quite pleasing to the eye, but smiling with her whole body covered in blood made her look very chilling.</p>
+<p>,No matter how famous the Anya Order is, they can't stop me with just their mooks. Now, shall we receive the price of betrayal?</p>
+<p>,I, I'm sorry! O, Ogre...! I was actually threatened too!</p>
+<p>K, who was receiving Seizawa Shii's murderous aura, trembled and begged. Seizawa Shii didn't answer and slowly approached, maintaining her smile.</p>
+<p>,Jenzaaaaaang! Dieeeeee!</p>
+<p>As Seizawa Shii approached, K took out a hidden pistol and started firing wildly, tang tang tang tang!</p>
+<p>Seizawa Shii, who had experienced countless of these last struggles while doing various requests as Ogre, had already expected it. She dodged and approached K's wrist in an instant.</p>
+<p>Woodeudeuk!</p>
+<p>With the sound of bones breaking, the gun falls to the floor.</p>
+<p>,I didn't intend to break your hand, but this is your fault?</p>
+<p>Seizawa Shii said softly and covered K's face with her hand.</p>
+<p>Kwadeuk...! Kwadeuk!</p>
+<p>Along with the sound of something small breaking, Seizawa Shii's fingers were piercing and digging into the skull.</p>
+<p>K, who couldn't even scream because his face was covered, flailed his arms and legs, and died as Seizawa Shii's fingers dug in about one and a half joints.</p>
+<p>,I trusted you.... Goodbye, K.</p>
+<p>Seizawa Shii muttered softly and approached K's secret vault, which she knew about. If you remove the table on one side, there was a vault on the floor.</p>
+<p>Kwadeudeuk!</p>
+<p>As expected, Seizawa Shii tore open the vault door with her strength, took a bag from inside the brokerage office, and took the money, documents, and gold bars from inside the vault. Then she approached the woman in the Oni mask.</p>
+<p>,Here, I'll give you extra money because you helped me with something that wasn't originally discussed.</p>
+<p>Seizawa Shii takes out two bundles of 10,000 yen bills and hands them to the woman in the Oni mask. Because she grabbed the bundles of money with her hands covered in blood and brain fluid, the bundles of money were also covered in blood and brain fluid.</p>
+<p>,...Ah, thank you?</p>
+<p>The woman in the Oni mask received the bundles of money with slightly trembling hands. It was natural for her to tremble because she had seen a human weapon turning a dozen people into minced meat in an instant.</p>
+<p>,Now, let's go our separate ways. I'll contact you if I need support next time.</p>
+<p>,I understand.</p>
+<p>The woman in the Oni mask nodded, regaining her senses. In fact, giving two auxiliary spells and receiving two million yen was a very profitable mission. It was a bit scary, but she was thinking of not refusing if she received another request next time.</p>
+<p>Of course, it wasn't the original mission to figure out if the magic was cast, but she knew very well that it was an unavoidable situation because she was next to Seizawa Shii.</p>
+<p>As she walked up the stairs, she saw the moon and the night sky floating high. Was it already this late?</p>
+<p>Seizawa Shii got on her bike that she had parked in front of the fixer brokerage office.</p>
+<p>As soon as she sat on the bike, she was bothered by her blood-stained rider suit.</p>
+<p>,I need to wipe the handle and the chair.... Also, I need to wash the suit and wash Ryuta-ssi's clothes and return them, so I need to stop by the laundromat today.</p>
+<p>Seizawa Shii muttered, started the bike, and headed to her house. She met Yamashiro Ryuta with a high probability every time she stopped by the coin laundromat, and she was curious if she would be able to meet him this time as well.</p>
 <p>###</p>
-<p>"So, the orange-haired girl that Konoe Akina -ssi brought, the teacher that Sakagami Rena -ssi brought, Nagumo Sian -ssi, the president of Taira Food, and our school's student council president swept up the magazines that give my photo cards as a bonus, is that what you're saying?"</p>
-<p>After hearing Minamoto Risa's -ssi words, I asked back with a dumbfounded expression. The blue, red, and purple-haired people that Konoe Akina -ssi brought were probably from the Seiryu Military Company, and the orange-haired woman wearing sunglasses was probably Mimata Chieri -ssi.</p>
-<p>Sakagami Rena's -ssi teacher was obviously Yukiko -ssi, and Nagumo Sian -ssi and Taira Kanna -ssi didn't hide their identities, but I couldn't hide my doubts.</p>
-<p>"No. Why would they bother with the club magazine that gives my photo card...?"</p>
-<p>I was going to give it to them as a set as a gift anyway. Of course, I wasn't that close to Taira Kanna -ssi, so I hadn't brought up the photo card set story yet.</p>
-<p>More than anything, I wondered why she bought 4,000 copies. Did she want to see Minamoto Risa -ssi flustered? Or was she trying to help me pass the Minamoto Group's test? We only meet occasionally, so I couldn't know what she was thinking.</p>
-<p>By the way, if those Seiryu guys and Mimata Chieri -ssi were coming, they should have contacted me, why are they coming secretly?</p>
-<p>"Excuse me, I'll add a third batch separately. 4,000 packs of A photo cards. It'll be around 4 o'clock? I can't help it....."</p>
-<p>Minamoto Risa -ssi, who had explained it to me, was now calling the printing company to place an additional order. Hearing that, I had no choice but to know now, even if I didn't want to. I didn't know, but I was quite popular.</p>
-<p>Of course, I look in the mirror every day, so I knew I was handsome. But I didn't know that I was so popular in the academy that my photo cards would sell so much. I guess it's because I only stay in the special class building and the students of St. Francisco Girls' Academy are well-educated daughters of prestigious families, so they don't come on to me (I do get requests to take pictures with them often), so I didn't know that fact.</p>
-<p>But seeing my photo cards selling so well like this, I realized that I was quite popular at St. Francisco Girls' Academy. Is it natural for a handsome teacher to be popular in all-girls middle and high schools? I don't know because I didn't go to an all-girls middle and high school.</p>
-<p>"Your photo card version of the magazine is all sold out, so I'm a little more relaxed, so take another person and go have fun."</p>
-<p>I had just come back from enjoying a game with Oofuchi Erika -ssi, but of course I couldn't rest because the job I was assigned to at this festival was to maintain the morale of the students by dating them. I wondered who was next, and Seizawa Shii -ssi approached.</p>
-<p>"Ryuta-cchi! I'm a lucky girl, so I'm second~☆"</p>
-<p>I don't know what the relationship is between being second and being a lucky girl, but Seizawa Shii -ssi jumped up and down excitedly. Seizawa Shii -ssi grabbed my hand and quickly went down the stairs as if to get out of the workplace quickly.</p>
-<p>"So, where do you want to go?"</p>
-<p>"You know. The place I want to go is here."</p>
-<p>Seizawa Shii -ssi opened the St. Francisco Girls' Academy festival guide pamphlet and pointed to one place. Ah, if it's here, it's understandable that Seizawa Shii -ssi would want to go.</p>
-<p>___________</p>
-<p>Seizawa Shii -ssi.</p>
-<p>She is wearing a cardigan because the weather is a bit chilly hehe.</p>
+<p>After eating a delicious dinner at the Kujo family, we decided to go straight home. Everyone was tired from the sudden battle, so we decided to rest at home.</p>
+<p>I dropped off the rest of the students except for Urabe Konoka, who had brought her car, in front of their houses, and finally arrived at my house.</p>
+<p>,I'm a little tired.</p>
+<p>After parking the car, I came into the house and unconsciously muttered that I was tired. I took off the dobok I was wearing as I entered the shower room. The dobok was quite dirty because it was stained with my sweat, Kai Shu Kakan's blood, and the blood I coughed up.</p>
+<p>I just got this new one, but it got dirty right away, so it was true that you never know what will happen in the world. I need to take a shower and go do laundry. I'm tired, but if I don't wash blood stains quickly, they won't come off easily....</p>
+<p>I took a shower in hot water and came out. Still, washing my body in warm water made me feel like the fatigue was washing away with it. I came out of the bathroom, dried my hair and body, put on some simple clothes, picked up the laundry basket, and headed to the coin laundromat I usually go to.</p>
+<p>As I walked a little on the night streets, I saw the coin laundromat with the lights on. Seizawa Shii was sitting inside the laundromat as expected. I had a feeling she would be there....</p>
+<p>Seizawa Shii was eating potato chips, wajak wajak, with a slightly spaced-out expression.</p>
+<p>Deureureuk.</p>
+<p>,Seizawa.</p>
+<p>As I opened the sliding door of the coin laundromat and called out to Seizawa Shii, Seizawa Shii was startled and turned to look at me.</p>
+<p>,Ryuta-ssi?!</p>
+<p>,Yeah. I came to do laundry.</p>
+<p>When I answered, holding up the laundry basket, Seizawa Shii looked at me with a slightly suspicious expression.</p>
+<p>,Ryuta-ssi, did you install a hidden camera in this laundromat? How can you come to the laundromat every time I come?</p>
+<p>,A hidden camera.... It's just that the timing worked out well. It could be because our lifestyles are similar.</p>
+<p>I'm probably the most hidden camera victim in Japan. You shouldn't be talking to me about hidden cameras.</p>
+<p>,Hmm.... Is that so?</p>
+<p>,But why are you eating potato chips?</p>
+<p>,I didn't eat dinner. I'm hungry....</p>
+<p>I see. I put the laundry in the washing machine, sat next to Seizawa Shii, and took the potato chips that Seizawa Shii was eating and ate them.</p>
+<p>,Hey~! I told you I didn't eat dinner.</p>
+<p>,Potato chips aren't dinner. Let's do laundry and eat dinner somewhere together.</p>
+<p>Somehow Seizawa Shii's expression didn't look good, so I suggested that we eat dinner together, and Seizawa Shii started to sob and tear up as if my worried heart was conveyed.</p>
+<p>_______</p>
+<p>Bloody Shii!</p>

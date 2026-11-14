@@ -5,78 +5,62 @@ weight = 179
 chapter = 179
 +++
 
-<p>There are explicit contents and illustrations! Please check your surroundings.</p>
-<p>,I,I'll touch your boobs...."</p>
-<p>,Please touch them as much as you want, Teacher...!"</p>
-<p>Even in this exciting situation, I was doing a great job of acting like a virgin engineering student, trembling as I placed my hand on Han Yu-gyeong's chest.</p>
-<p>I savored the texture of the school uniform shirt, the feel of the bra underneath, and the soft, squishy, yet paradoxically firm feeling of her breasts. As expected, it always feels good to touch a woman's breasts. Han Yu-gyeong's breath grew hotter and hotter, as if she liked being touched.</p>
-<p>,Haa.... Teacher, it feels so good."</p>
-<p>,I love touching Yu-gyeong's boobs too."</p>
-<p>Both of us were breathing heavily, focusing only on her breasts. In that situation, our excitement grew more and more. Han Yu-gyeong's nipples were bulging out, pushing against her bra and shirt, and my dick was dripping with precum. Ah, I just changed my underwear.... I'll have to change again.</p>
-<p>,Heung-eueut...! Teacher, haa...! Teacher, there, touch me there♥"</p>
-<p>,There, there? Where are you talking about?"</p>
-<p>,Eueung~! Yu-gyeong's pussy♥"</p>
-<p>,Ah!! Ugh, okay."</p>
-<p>I lifted Han Yu-gyeong's school uniform skirt and looked at her pussy. Oh...! She wasn't wearing panties, but since the stockings were pantyhose, Han Yu-gyeong's pretty pussy was glistening with love juice, pressed against the pantyhose. The sight was incredibly erotic, and as soon as I lifted her skirt, the hot, womanly scent made my dick, which I thought couldn't get any harder, feel like it was about to explode.</p>
-<p>I stroked Han Yu-gyeong's pussy with my fingers. I liked the slightly rough feel of the stockings and the slippery feeling of the love juice. Han Yu-gyeong started moaning, twisting her body as if she felt good. Women's bodies are often compared to musical instruments, and I think that's true. Han Yu-gyeong's moans changed depending on how my fingers moved.</p>
-<p>,Heung, eueueung! Haa...!! Good, it feels different from before."</p>
-<p>Of course, it would feel different from when I clumsily touched her with my big toe. I couldn't stand it anymore, so I threw away the engineering nerd concept and boldly tore Han Yu-gyeong's pantyhose.</p>
-<p>Tututuk!</p>
-<p>With the sound of tearing, Han Yu-gyeong's pink pussy was revealed. It was only a single layer of pantyhose, but it felt good to see the real thing. I kissed Han Yu-gyeong's pussy as it was.</p>
-<p>,Haeuaaang!!! I love being sucked!"</p>
-<p>While sucking Han Yu-gyeong's pussy with my mouth, I quickly took off my pants. As soon as I took off my underwear, my freed dick bounced up with a tting! Han Yu-gyeong also spewed out even more love juice as she looked at my nodding dick. As I gulped down that love juice and continued to lick, Han Yu-gyeong opened her mouth with a desperate look, as if she was getting impatient.</p>
-<p>,Eueung...♥ Put it in now, Teacher...."</p>
-<p>Ah, are we still acting? I had stopped acting since I tore the stockings. I was doing foreplay boldly because I was uncomfortable playing the role of a virgin engineering student, which I clearly was. As Han Yu-gyeong requested, I put my dick against her pussy and slowly inserted it.</p>
-<p>,Haeueung! Teacher's dick is so big...."</p>
-<p>I slowly inserted my dick to fully feel Han Yu-gyeong's pussy after two months. As I slowly moved forward, feeling the inside of Han Yu-gyeong little by little, like a snail crawling, Han Yu-gyeong dug her nails into my back and moaned loudly. She seemed to be feeling tremendous pleasure from the feeling of her insides being widened by my dick after a long time.</p>
-<p>,Heua, euheu...eut! Eu, eueheung...! Yong-tae-ya, it's weird, heueung! It feels like it's gotten bigger♥"</p>
-<p>It's not that I've gotten bigger, but it seems like Han Yu-gyeong's insides have gotten tighter because she hasn't had sex in a while. Until we're completely settled down, we'll be having sex after a long time every time we meet, so I liked the fact that I could feel Han Yu-gyeong's tight, narrow pussy every time we met.</p>
-<p>,It seems like Yu-gyeong's pussy has gotten tighter because we haven't done it in a while?"</p>
-<p>,Haeung! That's right, I only rubbed the outside when I masturbated because I was worried that Yong-tae would feel it was loose next time we met! Only Yong-tae's thing can enter my insides...! Haa!"</p>
-<p>Oh shit, if you say such a sexy thing, I'll cum quickly...! Besides, we're having sex while still wearing our school uniforms, so the excitement is even greater. The excitement of satisfying both sight and hearing at the same time, that's what was raising my excitement even more.</p>
-<p>The glans, which had been slowly advancing, finally entered the end of Han Yu-gyeong's vagina, the cervix. As the cervix and glans kissed, Han Yu-gyeong tilted her head back.</p>
-<p>,Heueut! Hyaa! I'm going to cum!"</p>
-<p>Han Yu-gyeong lightly reached her climax after I had only inserted it all the way once. I started piston movements, moving my waist, without giving Han Yu-gyeong a chance to feel the afterglow of her climax.</p>
-<p>,Heuat, hat! Hang! Haeung! I, I just came, so, so♥ Haeheueung!"</p>
-<p>,I'm going to make you a mess today."</p>
-<p>Thrusting into Han Yu-gyeong's pussy, which was twitching inside from her climax, brought me tremendous pleasure as well. Han Yu-gyeong also noticed that I was feeling tremendous pleasure, and while enduring the pleasure, she made a sexy expression and whispered sexy words into my ear while hugging me.</p>
-<p>,Heueut...! Yong-tae-ya, high schooler, heueung♥ Fucking her...! Do you like it?"</p>
-<p>,Yeah, I like it. Yu-gyeong's pussy is so delicious."</p>
-<p>,Eueung♥ Keep.... Keep eating it, Yong-tae-ya, haa!"</p>
-<p>When I said it was delicious, she wrapped her legs around my waist, as if trying to feel my dick even deeper, and told me to keep eating. Come to think of it, I don't know when Han Yu-gyeong stopped acting, but she kept calling me Yong-tae.</p>
-<p>,Heueut, deep, good...! I think I'm going to cum again!</p>
-<p>,I think I'm going to cum soon too."</p>
-<p>Perhaps because of the continuous multi-orgasms, the inside of Han Yu-gyeong's pussy kept twitching, and I could feel the semen rising more and more due to the pleasure I was feeling throughout my dick.</p>
-<p>,Eueheung! Heueut! Put the hot thing inside, Yong-tae's hot seed♥"</p>
-<p>,Eueut! I'm cumming...!"</p>
-<p>,Haeueut!! Kkyahaaang!"</p>
-<p>Ulkkeok! Ulkkeok! Ulkkeok!</p>
-<p>I pressed my waist as far inside as possible and started ejaculating deep inside Han Yu-gyeong, and Han Yu-gyeong also tightened the legs that were wrapped around my waist even more to guide it all the way inside.</p>
-<p>,Heueue.... It's hot, haa! I like you, Yong-tae-ya. I love you... euheup!"</p>
-<p>I blocked Han Yu-gyeong's mouth, who kept saying she loved me, with my mouth and tormented her up and down at the same time. I gave her a kiss that mixed our tongues lewdly above, and injected hot semen below, causing her pupils to roll upwards and flip over.</p>
-<p>I thought she had completely gone, but it was a bit surprising that she was still tangling her tongue with mine. Well, I'm also feeling a tremendous climax from ejaculation while kissing, so is it the same?</p>
-<p>I kept my dick inside until the long ejaculation was over, then pulled it out. Perhaps because the glans scratched Han Yu-gyeong's vaginal flesh as it came out, she fluttered and trembled.</p>
-<p>I took a step back and looked at Han Yu-gyeong's appearance. She was wearing a disheveled school uniform shirt, her skirt was pulled up to her waist, and thick semen was constantly flowing from her pussy, which was revealed by her torn pantyhose.</p>
-<p>,Hoo...!"</p>
-<p>It was a sight I had created, but it was incredibly exciting. My dick, which had been in a semi-hard state, regained its strength at Han Yu-gyeong's sexy appearance. This time, I started tearing the stockings with my fingertips in between. As expected, the appearance and feel are different from when only the pussy part is torn. After tearing all the stockings, I put my dick against Han Yu-gyeong's pussy again.</p>
-<p>,I'm going to put it in."</p>
-<p>,Yong-tae-ya, wait! Haeueueut!!"</p>
-<p>Han Yu-gyeong seemed to want to rest for a while since she had cum so quickly, but I couldn't see that appearance in my already excited eyes.</p>
-<p>###</p>
-<p>,Haa...."</p>
-<p>Ha Ju-yoon was masturbating with her hand inside her jeans in the car parked in the parking lot of Han Yu-gyeong's apartment complex. Because the car was an entertainer-style vehicle that couldn't be seen from the outside at all, Ha Ju-yoon masturbated to her heart's content. No one would see her, and she was the only one in the car.</p>
-<p>,Eueheung.... It's the first time I've seen something so big."</p>
-<p>Her relationship with her husband, Han Seong-jae, had broken down since Han Yu-gyeong was in middle school, and they were only a couple in appearance, with no affection between them at all.</p>
-<p>Han Seong-jae, who was 10 years older than Ha Ju-yoon when they got married, kept the beautiful actress Ha Ju-yoon like a trophy wife, and Ha Ju-yoon was also image-making herself as the wife of a chaebol family, so neither of them divorced. They had a win-win relationship that only maintained its form.</p>
-<p>According to the information Ha Ju-yoon had, Han Seong-jae had been changing women almost every day since returning to the Shin-gang Group.</p>
-<p>In comparison, Ha Ju-yoon hadn't met any men separately because she didn't have that much natural sexual desire and there weren't many men who pleased her.</p>
-<p>But Jin Yong-tae, Han Yu-gyeong's boyfriend whom she met today, was perfect for Ha Ju-yoon. He was handsome, tall, and had a good physique. And unlike young people these days, he was polite. And he entered a large Japanese company at a young age, so he seemed different from the children of chaebol families who only occupy high positions with their bloodline.</p>
-<p>So, without realizing it, she recommended him for the male lead role in the music video that had been canceled due to the drug case. It seemed like she wanted to be with him more.</p>
-<p>When she first recommended the protagonist, the director showed an unpleasant expression, but fortunately, he gave permission after showing him the picture, so she was able to meet him again under the pretext of filming.</p>
-<p>And the most decisive thing was that when she saw Jin Yong-tae's thing, a big thing that couldn't be seen as Korean, Ha Ju-yoon's pussy got wet enough to show through her jeans. Of course, she didn't go out right away and get caught by Jin Yong-tae and Han Yu-gyeong, but it was a shocking event for Ha Ju-yoon, who didn't have much sexual desire.</p>
-<p>Ha Ju-yoon, who had returned to her car in the parking lot, put her hand inside her jeans and started masturbating. She thought it would be difficult to even drive if she couldn't cool down this hot heat.</p>
-<p>,Haaang! Yu-gyeong-a, I'm sorry! I guess Mom has similar tastes to her daughter! Ung, heueut!! Just today, just today I'll masturbate while thinking about Yong-tae, so please forgive me...!"</p>
-<p>Ha Ju-yoon continued to apologize to Han Yu-gyeong while rubbing her pussy.</p>
-<p>-------</p>
-<p>After school uniform sex, Han Yu-gyeong seduced Jin Yong-tae while wearing only pantyhose.</p>
-<p>Ha Ju-yoon in a denim-on-denim fashion, hehe.</p>
+<p>There weren’t any restaurants with a long-standing tradition in the Pyongyang Special Technology Zone. From the beginning, there was no way a city that had been completely bombed and rebuilt from a vacant field would have traditional 맛집 (mat-jip, meaning famous restaurant). Even if there were a tradition, it would only be about 8 years old.</p>
+<p>Chefs who had fled during the war did return to Pyongyang, but all the major corporations had already taken over Pyongyang, so they either became chefs hired at low wages or had no choice but to settle in the satellite cities of Pyongyang that were rebuilt along with Pyongyang.</p>
+<p>So, instead, Pyongyang gourmets would go to satellite cities like Nampo or Pyongsong to eat. But I didn't have time to go to the satellite cities. I had something to do at night, so I had to eat something delicious in Pyongyang.</p>
+<p>So, after searching by rating, the most delicious restaurant in the Pyongyang Special Technology Zone was an Italian restaurant. Pyongyang and an Italian restaurant... Doesn't that seem incredibly out of place?</p>
+<p>Hmm... If I, before the possession, said that the best restaurant in Pyongyang was a pasta place, no one would believe it...</p>
+<p>I headed to a restaurant with the highest rating, an Italian restaurant called Italiàno-paese di Pyongyang. The biggest advantage of this restaurant was that it was the closest to the hotel I was staying at among the top-rated restaurants.</p>
+<p>"benvenuto! Welcome!"</p>
+<p>After receiving a greeting from a fairly cute female employee, I sat down. As soon as I sat down, the menu popped up on my sunglasses screen automatically. Hmm, I'm not used to it, but it's convenient. I looked at the menu and ordered Vongole pasta, Carbonara pasta, and Bolognese pasta. That should fill me up to some extent.</p>
+<p>Then, I took out my smartphone and checked the surrounding geography. It was a dark map application useful for people in the back alleys, giving a significant amount of points from the Dark Trade app, a Pyongyang map application downloaded with information like the location of CCTVs and the patrol routes of the Pyongyang Autonomous Police. There were similar map applications for Tokyo or Chiba, but I hadn't purchased them yet because I didn't have any use for them.</p>
+<p>There weren't many CCTVs in Pyongyang. Since almost 90 percent of the people were connected to the Pyongyang cyber network and VR devices, there was little need to install CCTVs. Because wherever you go, it's recorded in the Pyongyang Central VR cyber system connected to the VR device, there's no need to install CCTVs.</p>
+<p>"Then, first, I need to go back to the hotel and take off the device..."</p>
+<p>As I was muttering, the employee brought out the food with a smile. As expected, as it was the highest-rated, the portions were large and the smell was good.</p>
+<p>"Enjoy your meal."</p>
+<p>"Yes, thank you."</p>
+<p>I continued to slurp the pasta while looking at my phone. Eating the three flavors alternately made it possible to enjoy the meal without getting tired of it.</p>
+<p>As I was about to wipe my mouth, I took out the napkin that was tucked under the plate, and there was something like a phone number written on it. Ah... Could this be something that female employee put there?</p>
+<p>And when I looked at the female employee, she smiled slightly. She's pretty and has a nice figure. I raised my hand and called the employee. The female employee, with a slightly flushed face, quickly ran to me.</p>
+<p>"When do you finish today?"</p>
+<p>"10 o'clock!"</p>
+<p>10 o'clock... That's late for a restaurant. But that was just right. If I took care of things right away and then met this cute female employee, it would be a pretty good alibi.</p>
+<p>"Then... let's meet around 10:30 at the Pyongyang Platinum Hotel bar."</p>
+<p>"Yes... ehehe, is there anything else you need?"</p>
+<p>"Is there a drink you like here?"</p>
+<p>"Ah! Our restaurant makes good granita."</p>
+<p>"Then I'll order two of those. You can have one."</p>
+<p>I didn't know what granita was, but while the female employee went to deliver the order to the kitchen, I searched it up and it said it was a traditional Italian drink like a slush made by grinding champagne, sugar, fruit, and ice. It'll probably taste good.</p>
+<p>After drinking all the granita that the female employee brought, I got up from my seat. When I waved to the female employee, she winked at me. It was a little past 6 o'clock now. It was July, so it was still bright.</p>
+<p>After finishing my meal, I took a walk around for a while and then returned to the hotel. It seemed like I could start working around 8 o'clock when the sun was setting.</p>
+<p>Before that, I need to disable the VR device. People who have cyber implants embedded with VR devices can't disable them, but tourists like me could easily disable them. Of course, the Pyongyang Autonomous Police also know this fact, but since CCTV installation costs are expensive, they are only installing CCTVs in important locations to defend against it.</p>
+<p>I spent two hours preparing for this job.</p>
+<p>"Now it's dark... It's not dark even though the sun has set."</p>
+<p>Even though the sun had set, the streets were not dark because of the dazzling lights of the neon signboards. I left the device at the hotel and slipped out through the window. Then, the VR device's records will show that I was still in the hotel room, so I can prove my alibi. I took turns kicking off the wall of the building in front and the wall of the hotel to come down and land.</p>
+<p>I had memorized the locations of the CCTVs, but I wore a mask just in case I got caught and went to the northern area of the Pyongyang Special Technology Zone. The northern area was where each major corporation's research complexes were concentrated, and of course, BS Group's research complex was also there.</p>
+<p>These days, when BS Group is divided in half due to the succession war, it was the perfect time to steal something easily.</p>
+<p>What's useful from BS Group is data on armor-type things like tech wear and cyber suits. Since BS Defender also creates new products using the research data that laid the foundation at this Pyongyang research complex, obtaining the data from here would be a considerable weapon.</p>
+<p>"That's the place."</p>
+<p>Walking at a pace between a fast walk and a run for about 30 minutes, I saw BS Group's research complex. Avoiding the CCTVs, it took me 30 minutes to walk a distance that would have taken 15 minutes at my fast pace. It was a fairly complex-looking research complex, but since I had been there several times in the game, I knew the terrain like the back of my hand.</p>
+<p>I climbed over the fence of the research complex, created a place to step on with Shadow Domination, and jumped up. The barbed wire on top of the fence had electricity flowing through it, so I had to jump over it without touching it.</p>
+<p>I ran stealthily to a research institute of medium size, not the largest building. Because I had Shadow Domination, I could hide my body in the shadows, so infiltration was easy.</p>
+<p>Perhaps because I had used it so often, my proficiency in Shadow Domination increased, and I was able to cover my entire body with shadows, so I could blend into the shadows and hide when guards came and went, so I couldn't get caught.</p>
+<p>The place I was going to was the 5th floor, the top floor of the research institute. It was where the secret data was, and the data I wanted would be there too.</p>
+<p>Since there were no windows on the 5th floor, I had to go to the 4th floor and use the regular passage to go up to the 5th floor. I went to the wall where people didn't pass by much and started climbing the wall. Climbing the wall was easy. Because I could create a place to step on with Shadow Domination, I just had to climb up like climbing a ladder.</p>
+<p>I quickly climbed up, stuck to the bottom of the 4th floor window, closed my eyes, and focused my mind to sense if there were any people with the senses of a master.</p>
+<p>Hmm...! It's quiet. Did they leave work? Or is it just that there's no one here? I quickly opened the window and went inside.</p>
+<p>The place I entered was like a warehouse where they kept unused documents. In this kind of place, it's understandable that there wouldn't be any signs of people.</p>
+<p>I carefully opened the warehouse door and came out. There was no one there. It seems like everyone left work? I quickly ran to find the stairs going up to the 5th floor.</p>
+<p>Ah, there are two people! They were guards. As expected, it was an important place, so it was guarded by guards who seemed quite elite. Their equipment looks pretty good?</p>
+<p>At that moment, an idea came to my mind. After finishing reviewing the idea, I raised a shadow blade on my fingertips. And then, I ran at full speed and rushed at the two guards. I clawed and slashed at the guards' vitals with both hands that had shadow blades.</p>
+<p>Due to the sudden surprise attack, the two guards collapsed, spraying blood from their necks and faces. No matter how good their equipment was and how elite they seemed, they were just guards, so I could easily take care of them.</p>
+<p>The guards' corpses looked like they had been attacked by the claws of a beast. This would confuse Park Il-soo and Park Il-man, who are currently in a BS Group succession battle. If the guards died with injuries similar to Park Sang-beom, anyone would suspect both of them. Those who suspect Park Il-soo will suspect that he killed them in the same way for revenge, and those who suspect Park Il-man will think that he used a similar method to Park Sang-beom again.</p>
+<p>I stepped over the guards' corpses and headed to the entrance of the 5th floor. The reason I prepared for two hours after dinner was because of this password. Because it was a variable password that changed every day, I struggled to calculate it, but in the end, I contacted Han Yu-gyeong, the smartest person I knew, and had her tell me the formula and solve the password. Han Yu-gyeong solved what I had been struggling with for an hour in just 20 seconds, which was absurd. I realized that the difference in intelligence was greater than I thought.</p>
+<p>The formula for obtaining this password was also one of the things I frantically recorded, thinking it might be necessary after the possession, and if I hadn't recorded it early on, I would have forgotten it by now.</p>
+<p>Looking at this, it seems like I need some intelligence... But since there are more stats I need, intelligence or other unnecessary stats were always a low priority.</p>
+<p>I slowly pressed the password on the password pad without making any mistakes. After a beep sound, the door opened with the sound of the lock being released. Inside the huge machinery, there was a computer operating in the center.</p>
+<p>The AI system was automatically organizing the data sent from the BS Group research building. I sat down at the computer and plugged in the hacking USB. And I manipulated the computer to sweep up the data I needed.</p>
+<p>First, I put in the most desired data, the next generation tech armor(12-11) file, and cut and pasted the rest of the good-looking data into the USB. The transfer speed was so fast that I could put the data I selected in less than 2 seconds.</p>
+<p>I had some time left, so I looked around to see if there was any useful data, but there was so much data that I couldn't tell right away. I'm not some kind of expert in this field, so I wouldn't know anything except for the data I already know.</p>
+<p>I just picked a few names that seemed interesting and put them in. Ai algorithm improvement - final - final's final 3 file... and so on, I put files like that into the USB. If I sell this to the Dark Trade, I think I'll get quite a few points...</p>
+<p>The Dark Trade was known for giving generous points if you brought data about AI, so I was thinking of stopping by the Pyongyang branch on my way back to the hotel.</p>

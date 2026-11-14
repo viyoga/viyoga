@@ -5,68 +5,57 @@ weight = 513
 chapter = 513
 +++
 
-<p>Shimokawabe Airen deflected the bullets before the attackers could even fire their guns. The space in front of Shimokawabe Airen was sliced, and the shimmering space, like an abyss, absorbed the bullets. The attackers, stunned by the surreal scene, didn't fire again, staring at Shimokawabe Airen with slightly dazed expressions.</p>
-<p>Shimokawabe Airen's swordsmanship, Kashima Kiichishindo-ryu, originated from the Kiichi-ryu school, a swordsmanship style that began as a shamanistic art of cutting space to connect the spirit realm and the mortal realm, returning spirits from the mortal realm to the spirit realm.</p>
-<p>Kiichi-ryu, which possessed slashes that could even cut space, was difficult to use compared to its power, but through exchanges with various practical swordsmanship styles, it evolved into the current Kashima Kiichishindo-ryu.</p>
-<p>Honed over a long period, Kashima Kiichishindo-ryu, which gained more practical and destructive power, began to shine brilliantly in Shimokawabe Airen's generation.</p>
-<p>Kashima Kiichishindo-ryu: Ichiji Buntei (Single Character Divides Heaven and Earth)</p>
-<p>Cutting down the Minamoto-affiliated PMC operatives disguised as mere one strike was nothing to her. Shimokawabe Airen, who simultaneously cut down five with a horizontal slash that isolated and severed space, flicked the blood off her blade and sheathed her sword.</p>
-<p>After dealing with the attackers, Shimokawabe Airen returned to Daigo Terue's house. Inside Daigo Terue's house, there were also several attackers, all of whom were collapsed.</p>
-<p>This was because Alik, a girl wearing St. Francisco Girls' Academy uniform and wielding a katana with lightning-infused blade, had defeated them all. Judging from the trail of blood, it seemed she couldn't leave the bodies outside, so she brought them into the house. Shimokawabe Airen briefly thought about the bodies lying haphazardly on the road in front of the mansion, but decided to ignore it, assuming Daigo Terue would take care of it.</p>
-<p>Shimokawabe Airen believed this practical experience would be helpful for Alik, so she had Alik guard the back door of Daigo Terue's mansion. As Shimokawabe Airen had predicted, this attack was a feint, and Alik had successfully fended off the enemies.</p>
-<p>"How was it?"</p>
-<p>"They were all weak...."</p>
-<p>Alik answered Shimokawabe Airen's question with slight disappointment. Because Alik possessed the ability to easily melt down the lead bullets fired at her with her charge shield, she had a disastrously advantageous match-up against enemies using basic firearms. Perhaps Alik was an existence that ordinary soldiers would find even more difficult to deal with than Shimokawabe Airen, who was a far more skilled fighter.</p>
-<p>"Ha, to think a student would have this much skill...."</p>
-<p>Daigo Terue, who had witnessed Alik's skills, muttered in surprise. She seemed quite shocked that Alik, wearing a school uniform, had dealt with three enemies with an indifferent expression. Of course, the battle had taken place outside the house, but it was easy to imagine Alik dragging the bodies in and Daigo Terue being surprised. Meanwhile, Shimokawabe Airen was analyzing the current situation.</p>
-<p>"If we combine the three here, there were only eight attackers in total. Isn't that too few people?"</p>
-<p>"That's right. They must know we're prepared on our end, but for it to be only this many...."</p>
-<p>Daigo Terue and Shimokawabe Airen pondered what the Toyotaka faction was thinking with such a small number of attackers, but they couldn't figure it out.</p>
-<p>Ring ring!</p>
-<p>As the two were contemplating the intentions of the Toyotaka faction, the phone suddenly started ringing. Daigo Terue had a bad feeling, but she had no choice but to answer the phone.</p>
-<p>###</p>
-<p>"Oh, please come to my house today...!"</p>
-<p>Konoe Akina finished telling me the starting location for our date with a trembling voice, and with that, my work at the academy ended for the day.</p>
-<p>Today was a slightly strange day. Kurayamada Kirie, though she had asked for my understanding in advance, was nowhere to be seen all day, and Alik took early leave at Shimokawabe Airen's request for the strange reason of giving Alik practical experience.</p>
-<p>When I asked, "I'm not in danger, am I?" Shimokawabe Airen nodded with a half-lidded, smiling gaze, as if telling me not to worry. Well, if Shimokawabe Airen guarantees her safety, I guess it's okay, so I allowed her to leave early.</p>
-<p>I figured that since she's Alik's teacher, she wouldn't make Alik do anything disadvantageous. It's a bit concerning that Shimokawabe Airen is a battle maniac, but surely she wouldn't put her disciple in danger, right?</p>
-<p>"Today is the last day of the dates."</p>
-<p>There were ten of them in total, including the top six students in terms of grades, Kujo Kina and Saionji Diana, who had greatly improved their grades, and Alik and Urabe Konoka, who would become my people after graduation, so it took quite a long time. Still, since they were all fun memories in their own way, I felt quite sad to think that today was the last day.</p>
-<p>Of course, as the advisor of the Date Experience Club, I could go on dates with various excuses. Still, it wouldn't have the same feeling as this student-approved (?) thing, so that's what I felt sad about. I kind of liked this atmosphere without jealousy or competition.</p>
-<p>But since it's not completely over yet and there's one person left, I should do my best today too.</p>
-<p>I've had a relatively long relationship with Konoe Akina, who is my date partner today. Our relationship started when she saved me from being imprisoned in the slave trader's prison, so we've known each other since before I became a teacher.</p>
-<p>I knew that Konoe Akina had some feelings for me. I don't know if it started out as gratitude toward the person who saved her or if she simply liked my appearance, but since Konoe Akina is the head of the Konoe family, the situation was a bit more complicated than with other ordinary young ladies.</p>
-<p>Since Konoe Akina had to inherit the family as the head, it wasn't easy to date her, and from my perspective, secretly aiming to be the next head of the Tairaga family, if I were to meet Konoe Akina, I would have to become a son-in-law, so it was only possible to meet secretly.</p>
-<p>All of this is my own thinking before properly hearing Konoe Akina's position, so it's possible that Konoe Akina liking me is just my delusion.</p>
-<p>Since it took a bit more preparation time than the other students, we were scheduled to meet at 4:30, so I leisurely finished preparing for the date.</p>
-<p>I left the house and slowly walked to the front of the Konoe family's mansion, where Konoe Akina, wearing a white dress, was waiting. It suited her quite well.</p>
-<p>"Where are we going today?"</p>
-<p>"Today.... We're going to have a home date at my house♥"</p>
-<p>Hmm? A home date? Konoe Akina, who seemed to have heart marks in her eyes for some reason, answered in a slightly sticky tone. Is there something to do at the Konoe family's mansion?</p>
-<p>So she wasn't standing outside to go out and play, but was waiting to greet me. I followed Konoe Akina's guidance and entered the mansion. As befitting a historic family, it was a mansion with a tiled roof and wooden building, but the interior was renovated in a modern style.</p>
-<p>"It's humble, but please come in."</p>
-<p>"Humble? The house looks nice."</p>
-<p>After entering the house, I was guided to a room. There was a yoga mat laid out, and in front of it was a large screen.</p>
-<p>"What is this...?"</p>
-<p>"The first course is a couple's yoga experience, Sensei♥"</p>
-<p>Ah, I see why the yoga mat is laid out. It seemed that Konoe Akina wanted to have a slightly active date while it being a home date. By the way, a couple's yoga experience.... It seemed she had made thorough plans to capture (?) me. Soon, the screen turned on and connected to a couple's yoga instructor.</p>
-<p>It wasn't a pre-recorded video, but a yoga lesson in the style of a video chat with an instructor who was watching us through a camera attached to the screen in real time.</p>
-<p>Konoe Akina was wearing a dress and I was wearing jeans and a simple shirt, so our outfits were not suitable for yoga, but we were both athletic, so we were able to follow along well. The yoga instructor didn't say anything about our outfits and taught us the poses with sincerity.</p>
-<p>"...."</p>
-<p>However, despite following along smoothly, it was quite burdensome because it was 'couple' yoga, so there were many times when we had to do poses together. Even though I had released some because of Kijimoto Jurie today, my body was constantly close to Konoe Akina, with her rich fragrance, so I was on the verge of getting an erection.</p>
-<p>After sticking together and taking various poses, I was completely erect. This was because that sly Konoe Akina was subtly stroking and touching me even while taking the yoga poses.</p>
-<p>Fortunately, I was wearing jeans, so it wasn't as noticeable as it would have been in yoga clothes, but given my size, both the yoga instructor who was watching from outside the screen and Konoe Akina must have noticed.</p>
-<p>"Then please use us again next time~!"</p>
-<p>After finishing nearly an hour of couple's yoga, the screen turned off with the instructor's greeting. Whether the screen was off or not, Konoe Akina and I were slightly out of breath as we looked at each other. As our faces got closer while looking into each other's eyes, the phone started ringing.</p>
-<p>~♪~♬</p>
-<p>We didn't stop at the sound of the phone ringing and kissed. Even while we were kissing passionately and deeply, the phone kept ringing, and Konoe Akina's phone also rang, so we had no choice but to stop kissing.</p>
-<p>"Did something happen?"</p>
-<p>"I wonder...."</p>
-<p>Konoe Akina had a dissatisfied expression because the kiss was interrupted, but she couldn't help but answer the phone. The person who called me was Sakagami Rena, and the person who called Konoe Akina was Shido Tsubaki.</p>
-<p>"Sakagami, what's wrong?"</p>
-<p>"E, Erika has been kidnapped...!"</p>
-<p>Sakagami Rena said in a hurried voice. Oofuchi Erika? What on earth happened?</p>
-<p>--------</p>
-<p>Konoe B-cut!</p>
-<p>Long time no see, Home Room Teacher!</p>
-<p>It's become a scary spirit photo...lol</p>
+<p>Actually, turning into a werewolf probably isn't a curse. This kind of trait was likely a bloodline trait passed down in the Kurayamada family. If I were to make a guess related to this, the Kurayamada family was probably a family that worshiped wolves from ancient times, and at some point, a union with werewolves occurred. The Kurayamada family became the ruler of that region with that powerful strength and became the prestigious family they are now based on that.</p>
+<p>But as time passed and civilization advanced, the werewolves disappeared and remained only in the Kurayamada family's bloodline. After the age of barbarism passed, the manifestation of the werewolf trait, losing reason on the full moon, became a problem, and it seems that from then on, it became a tradition to cast out from the family those in whom the werewolf trait in their blood manifested, saying they were cursed.</p>
+<p>,Wait a minute...,.</p>
+<p>Without even realizing it, I was stroking Kirie-yang's head. I didn't even know I had the urge to stroke...! To be honest, even though they were called wolf ears, they looked no different from puppy ears, so they felt good to stroke. The feeling of stroking them was also quite nice.</p>
+<p>,W-What are you doing~!,.</p>
+<p>,Ah, sorry. I just wanted to stroke them without realizing it...,.</p>
+<p>After apologizing with my hands together to Kirie-yang, who shouted, I went into the room to make sure and looked at Kirie-yang while wearing the glasses from the ruins.</p>
+<p>Name: Kirie Kurayamada Lv13</p>
+<p>Strength: 8 Agility: 14 Stamina: 10 Resistance: 4 Recovery: 8 Nerves: 14 Appearance: 15</p>
+<p>Intelligence: 10 Knowledge: 9 Concentration: 9 Willpower: 8 Creativity: 4 Charm: 14 Judgment: 10</p>
+<p>Luck: 9</p>
+<p>◆Learning Lv8 [Common Skill]: Increases the frequency of knowledge gain when learning. It also has a positive effect on increasing proficiency in other skills and acquiring new skills.</p>
+<p>◆Shinten Sword Style-Kirie Style Lv12 [Epic Skill]: Swordsmanship using a great katana. It has a wide attack range and strong power. Kirie Kurayamada changed it to her own style.</p>
+<p>◆Command Lv9 [Rare Skill]: Can command during battle. The movements of subordinates become faster.</p>
+<p>◆Espionage Lv8 [Rare+ Skill]: Can change oneself into a different identity and collect information.</p>
+<p>◆Management Lv7 [Special Skill]: Has a positive effect when leading a group of a certain size or more.</p>
+<p>◆Language-English Lv9 [Common Skill]: Converses in English.</p>
+<p>◆Disruption LV8 [Rare+ Skill]: Increases the chance of confusing the opponent during battle.</p>
+<p>◆Kurayamada Style Cooking LV5 [Rare Skill]: A cooking method passed down through the Kurayamada family. Their hearty meat dishes are exquisite.</p>
+<p>◆Education Lv3 [Common Skill]: Increases the learning ability of the subject when teaching knowledge.</p>
+<p>◆Wild Senses [Epic Trait]: Nerve and Luck stats increase by 2, and there is a chance to sense approaching danger. Additionally, evasion and hit rate increase, and one becomes skilled at using terrain during battle.</p>
+<p>◆Exceptional Intellect [Rare Trait]: Increases the efficiency of skill learning and speeds up the accumulation of knowledge.</p>
+<p>◆Master Swordsman [Epic Trait]: Becomes a master of swordsmanship combat.</p>
+<p>◆Subspace Linkage [Unique Trait]: Connects to a subspace that can store items. The size of the subspace is 5 cubic meters.</p>
+<p>◆Wild Physique [Epic Trait]: Strength and Agility stats increase by 1, and their limit also increases by 1. The efficiency of Strength and Agility increases, and minor wound regeneration is acquired.</p>
+<p>◆Animalistic Senses [Rare+ Trait]: Judgment increases by 1 in combat situations, and evasion and critical hit rates increase by 12 percent.</p>
+<p>◇Incomplete Werewolf Body-Kurayamada [Unique Bloodline]: Because of inheriting an incomplete bloodline, complete werewolf transformation does not occur, and [Full Moon Ferocity] is not granted upon transformation. Using body modification increases physical stats by 4, and the limit of physical stats increases by 2. Moderate regeneration ability is granted and becomes weak to silver.</p>
+<p>Looking at the status window, the first things that stood out were the large number of skills. As expected, she was an all-rounder character with a high intelligence and the Learning skill, so she had a ton of skills. As expected of a leader of a terrorist organization, she had Command and Management skills, and her level of Espionage skill was also considerable, probably because she infiltrated and collected a lot of information, like when she came to St. Francis Girls' Academy as an assistant teacher. She also had swordsmanship skills that could be used in combat, such as Shinten Sword Style and Disruption. And she gained the Education skill like me, but her level of Education was the same as mine, even though she came later than me.</p>
+<p>The next thing that stood out was the Subspace Linkage trait, which was one of the best traits among MegaCorp's youngest son and TMC. Everyone was using an item storage system that wasn't a bag, trunk, or warehouse, so the subspace trait was a trait that could provide tremendous convenience.</p>
+<p>I was wondering where she put that big great katana, but she puts it in the subspace.... I see now. This subspace trait is good for anyone, but it's especially useful for spies and terrorists. I'm a little jealous....</p>
+<p>And Kurayamada, who inherited the werewolf bloodline, had traits like Wild Senses, Wild Physique, and Animalistic Senses, proving that my prediction was correct, and more than anything, the Incomplete Werewolf Body-Kurayamada bloodline trait completely supported my thoughts.</p>
+<p>Still, it seemed that the kind of thing Kirie-yang was worried about, becoming a werewolf who loses reason on the night of the full moon like a curse, wouldn't happen.</p>
+<p>Reading the trait description, it said that because it was an ,incomplete, bloodline, complete transformation wouldn't occur and it wouldn't grant the ability called Full Moon Ferocity, which I don't know if it's a buff or a debuff, but it seemed that this Full Moon Ferocity had the effect of losing reason. Instead of losing reason, it would probably have a lot of stat increases attached to it.</p>
+<p>Rather, it seemed that Kirie-yang was better off being incomplete. If she doesn't completely turn into a wolf and only gets ears, it's not visually repulsive (in fact, there would probably be a lot of people who like it), and she doesn't lose reason, and since she's a swordsman, she doesn't relatively need the Strength stat that increases the most when she transforms into a werewolf, so it felt like she was taking only the most necessary things from werewolf transformation.</p>
+<p>,It's okay. You won't completely turn into a wolf,.</p>
+<p>,How do you know that?,.</p>
+<p>,Because I'm a psychic like you,.</p>
+<p>I revealed to Kirie-yang, who asked with suspicious eyes at my words, that I was a psychic. Of course, being able to see the other person's abilities wasn't my ability, but the ability of the glasses from the ruins, but there was no need to tell her that.</p>
+<p>,You can see the other person's abilities?,.</p>
+<p>,Yeah, I also know that you have the subspace ability,.</p>
+<p>,I see...,.</p>
+<p>Kirie-yang nodded as soon as I mentioned the subspace ability. Kirie-yang was smart, so she knew the danger of this subspace ability. That's why she said she hadn't revealed it to anyone except her father. Since I guessed it right, she had no choice but to agree.</p>
+<p>,And it's not accurate, but turning into a werewolf isn't a curse, but it's highly likely that a potential ability dormant in the bloodline has manifested. What's called atavism often happens in the Kurayamada bloodline,.</p>
+<p>I told Kirie-yang my prediction that the Kurayamada family received the werewolf bloodline in ancient times. Kirie-yang listened to my story and nodded as if she had some idea.</p>
+<p>,Our family crest is a wolf, and our family's territory has been a place with a huge forest since ancient times, so your prediction might not be wrong. Then, does that really mean my transformation will stop here? I won't completely become a werewolf, will I?,.</p>
+<p>,Yeah. As long as you don't force the transformation, you'll be in human form, so you won't get caught by the family. And you look just right as you are now,.</p>
+<p>I stroked Kirie-yang's head once again and tickled the wolf ears above her head.</p>
+<p>,Haaaeuuuheuung...! Stop it! If you touch that area, it feels good for no reason, so I feel bad instead!,.</p>
+<p>Feeling bad because it feels good.... Is she feeling like a dog? Well, the genetic difference between dogs and wolves is 0.04 percent, almost identical, so there might be individuals among werewolves who are dog-like (not an insult) and not violent.</p>
+<p>Kirie-yang's reaction made me want to touch her more. I ignored Kirie-yang's complaints and continued to stroke her head and wolf ears. Kirie-yang glared at me with that look in her eyes because I ignored her and kept stroking her, but she had already closed her eyes and was enjoying my touch.</p>
+<p>,Are you just going to stroke me and end it there?,.</p>
+<p>After being stroked for a while, Kirie-yang looked at me with moist eyes and opened her mouth. Is it because of the wolf blood that she's in heat so quickly? Of course, I can't miss the opportunity to do it with a wolf beast girl.</p>
+<p>===</p>
+<p>I also like the silver hair hehe</p>

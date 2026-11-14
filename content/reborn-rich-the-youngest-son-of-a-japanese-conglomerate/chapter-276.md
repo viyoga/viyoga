@@ -5,76 +5,79 @@ weight = 276
 chapter = 276
 +++
 
-<p>Okutama-machi, being a mountain village in Tokyo, surprisingly had tourist demand. It was mainly thought of by people who came to enjoy camping or who wanted to get away from the bustling city but couldn't afford to go far.</p>
-<p>So, there was a surprisingly large hotel, and coincidentally, there was a room like the largest party room, so I rented it, and since driving would be impossible after drinking, I additionally booked 2 rooms for the women and 3 rooms for the men.</p>
-<p>I was just planning to play in the big room and sleep there right away.</p>
-<p>,The room is big~. Oppa.</p>
-<p>,Alik and Darim are going to spread out the pizza.</p>
-<p>Alik took Jeong Darim, who was surprised by the hotel room, and started spreading out the pizza on the table. Seven pizzas were spread out, and I put the ice cream, drinks, and alcohol that Alik and Jeong Darim had chosen in the refrigerator. They'll eat the jelly and snacks on their own if I put them on one side.</p>
-<p>Soon after, the Sawayanagi Azuma team bought chicken, and the Sawayanagi Tobe team couldn't grill meat, so they bought a large amount of skewers.</p>
-<p>,If we don't have enough, we can order by phone and they'll deliver it.</p>
-<p>Choi Jin-ha, a petrification ability user, said as he placed the skewers on the table. It seemed like he was slightly looking at me, as he couldn't pack as much as I had ordered since they were grilling them one by one.</p>
-<p>,Yeah, we can just order more if we don't have enough.</p>
-<p>,They also deliver chicken.</p>
-<p>Sawayanagi Azuma bought a sufficient amount of chicken, but she said it with an expression of wondering if it might not be enough.</p>
-<p>,You guys aren't adults yet, so it's drinks for you.</p>
-<p>I said, handing the trainees bags of drinks. Choi Jin-ha, Lee Doo-young, and Kim Young-chan looked disappointed, but there's nothing they can do about it.</p>
-<p>,I'll have beer~!</p>
-<p>Rianna Holden happily took a can of beer, Sawayanagi Azuma chose a highball, and Sawayanagi Tobe chose Sake.</p>
-<p>I'm immune to poison because of my Abyss-Bound Body trait, but I'm also immune to intoxication, so I was thinking of just drinking a soft drink, but I chose a beer that goes well with chicken or pizza.</p>
-<p>,How's Doo-young doing? Has his regeneration ability gotten any better?</p>
-<p>Lee Doo-young was a regeneration ability user, and he used to complain that his regeneration ability was terrible in the beginning because he wasn't in good nutritional condition when he was rescued.</p>
-<p>So, I, who am also a regeneration ability user, advised him to eat a lot because regeneration ability requires nutrients, and today, his body looked quite good, so it seemed like his regeneration ability wasn't bad.</p>
-<p>,Investor-nim, as you said, my ability is getting stronger because I'm eating well.</p>
-<p>,Even if you have regeneration, you must wear a helmet when fighting. You can't regenerate if you hurt your head.</p>
-<p>I also used the tactic of covering my head with my arms and approaching when fighting enemies with guns, so I gave advice to Lee Doo-young, who clearly had a lower regeneration ability than me. Starting with this advice, Lee Doo-young and Kim Young-chan asked me what they were curious about.</p>
-<p>Choi Jin-ha was learning a lot as a disciple-like position of Sawayanagi Tobe, who has a similar steelification ability to himself, so it seemed like he didn't have anything he was curious about from me.</p>
-<p>Lee Doo-young was also learning with Katayama Junichi as his mentor, and Kim Young-chan was also learning with Sawayanagi Mikiyo as his mentor, but since both of their mentors were not ability users, it seemed like they were asking me what they were curious about since it had been a while since they had met me.</p>
-<p>In fact, I know a lot about traits, so I could give advice unless it was a really rare trait, but since it was a bit of a hassle, I decided to pass Kim Young-chan on to Yang Seol-hui, who is currently taking root in the Korean and Japanese underworld with Dang So-hwa. Lee Doo-young was the same regeneration ability user as me, so I had no excuse and had to give him advice.</p>
-<p>,I don't know much about clairvoyance, so I'll introduce you to a clairvoyance ability user I know.</p>
-<p>,There's another clairvoyance ability user besides me?</p>
-<p>Kim Young-chan was very surprised at my offer to introduce him. He probably thought he was the only ability user in the world.</p>
-<p>,Just like Doo-young is the same regeneration ability user as me, there's another clairvoyance ability user somewhere. The person I'm going to introduce is like that too.</p>
-<p>,I'm learning shooting from Mikiyo-ssi, but I have to develop my ability on my own, so I was frustrated, but thank you for introducing me.</p>
-<p>He must have been frustrated. Since there was no one in Seiryutai with a vision-type trait, he had to do it himself.</p>
-<p>,Alik learned a little from Seari.</p>
-<p>Alik seemed to have learned some tips from Sawayanagi Seari, a wind ability user who is the same nature force user. When I think about it, Sawayanagi Seari had the highest potential in Seiryutai, so it would be good to nurture her... I should give her some advice when I meet her next time.</p>
-<p>,Yeah, show me later. But didn't you learn from Kiyona Mari-ssi? She's the same nature-type ability user.</p>
-<p>Rather than Sawayanagi Seari, a wind ability user, Kiyona Mari, a pyrokinesis ability user, would have better compatibility with Alik's lightning ability.</p>
-<p>,Ah, Mari is additionally employed in the mission that Investor-nim introduced, so she hasn't been able to attend the trainee training yet.</p>
-<p>Hmm, what was the mission I introduced...? Ah! I remember introducing Wano Haruto and Sawayanagi Sinya to Alik and Konoe Akina, who was rescued with the current trainees.</p>
-<p>I remember hiring them to investigate the uncle who is suspected of killing Konoe Akina's father and to protect Konoe Akina.</p>
-<p>,Ah, then there's nothing we can do. But hasn't the Konoe mission ended yet?</p>
-<p>,I don't know the details, but they said they're going to reveal the whole story at a family clan meeting.</p>
-<p>Hmm, that sounds interesting... I should ask Konoe Akina if I have a chance to meet her later. If her plan succeeds, she'll become the head of the Konoe family, so it might be difficult to meet her because she'll be busy, but I'm in the position of Konoe Akina's benefactor, so I'll be able to meet her at least once.</p>
-<p>As the dinner time passed, it gradually became more and more lively. The one who led the atmosphere was Rianna Holden, who has a bright and cheerful personality.</p>
-<p>Rianna Holden told various stories while mixing in her unique English. She told the trainees interesting stories from the missions she had experienced or told them tips for the future.</p>
-<p>Speaking of future work, I became curious and asked Sawayanagi Azuma.</p>
-<p>,By the way, where do the kids stay after the training is over?</p>
-<p>,There are still rooms left in the accommodation that Investor-nim provided. We'll have them stay there, and if they want, they can live on their own. Of course, they have to pay for their own living expenses, so I think they'll stay in the accommodation for a while?</p>
-<p>I'm satisfied to see them living well in the building I provided. Some of the Seiryutai members are currently living independently, so there must be more rooms available.</p>
-<p>,But Investor-nim, how about contacting the Krascano human traffickers who rescued the kids again?</p>
-<p>,Huh?</p>
-<p>,The public opinion of ability users is so bad right now, so they might dispose of them.</p>
-<p>Ah...! Since the public opinion is so bad and they're ability user slaves who are difficult to handle, they might cut their losses and 'dispose' of them. Alik, the electric ability user, and Konoe Akina, who was difficult to handle because of her magic eyes, were also subject to disposal, so in the current situation, it's understandable that they would think similarly.</p>
-<p>,I'll contact them while I remember.</p>
-<p>I turned on the dark web app on my phone and went to the previous transaction list. When I looked at Krascano, I found the ID Krascano_GOODMAN that I had traded with at that time and sent a text.</p>
-<p>-I'm the person who bought the ability users at that time. Do you have any more ability users?</p>
-<p>Soon, the read mark appeared and I got a reply.</p>
-<p>-You haven't bought anything in a while, but do you need more? I've heard rumors that a certain Korean company has been buying up ability users like crazy recently, so the price has gone up a bit. We don't have any items on our side, so we have to look for vendors who have items, so the price will go up even more.</p>
-<p>Ah, it seemed that the Cheil Group, which was originally going to make Alik a middle boss, was buying up ability users like crazy because they thought ability users would be useful as a result of the ability user incident that happened this time. When I think about it, it's a relief. If I had been a little late, Alik would have been caught by the Cheil Group and become a human weapon.</p>
-<p>-I understand. I'll wait for your call.</p>
-<p>Fortunately, it seemed that the disposal that Sawayanagi Azuma and I were worried about wasn't happening thanks to the Cheil Group. Still, I thought it would be better for us to buy them than to go to the Cheil Group and be subjected to various human experiments as human weapons, so I left a positive text and turned off my phone.</p>
-<p>,It seems like there aren't any people being disposed of.</p>
-<p>,Ah... That's a relief.</p>
-<p>Sawayanagi Azuma smiled slightly with a relieved expression.</p>
-<p>The dinner time passed quickly, and as the food that everyone had bought started to run out one by one, the atmosphere of the dinner party gradually faded.</p>
-<p>,I've booked a few rooms, so take these keys.</p>
-<p>,Oh, Really? I thought we were all going to sleep in this room.</p>
-<p>Everyone who had the dinner party cleaned up the table and scattered to their respective rooms. The three male trainees who were going to use the same room took the remaining drinks and snacks and went to their room, thinking of playing a little more, and the others also left the room. Only Alik whined that he wanted to sleep with me, Ryuta, but Jeong Darim and Rianna Holden grabbed his arms and legs respectively and moved him to his room.</p>
-<p>I looked around the whole room to see if it was all cleaned up and took a shower. After taking a shower, it was still early to go to bed, so I was thinking of watching a movie when I heard someone knocking on the door.</p>
-<p>-----</p>
-<p>Wind attribute Sawayanagi Seari!</p>
-<p>Surprisingly, she's older than the main character!</p>
-<p>Gothic Lolita outfit coordinated by the Kiyona Hori Mari sisters!</p>
-<p>The illustration I had made before was deleted, so I made it again from the beginning ㄷㄷ I think it's cuter....</p>
+<p>Lunch was a simple brunch-style meal. It was a buffet, so we were free to serve ourselves. If it had been one bowl per person, it might have been a bit lacking.</p>
+<p>,Ryuta, aah~."</p>
+<p>Alik, who was sitting next to me and munching away, took a piece of Italian omelet frittata with his fork and held it out towards my mouth. Hmm, I didn't put any frittata on my plate because I was busy getting other things, but should I try some?</p>
+<p>I opened my mouth as Alik said and took the piece of frittata. Hmm, it's good. It has the scent of butter and bacon, and it also contains spinach, which is good for your health.</p>
+<p>Alik seemed pleased that I accepted the food he offered, and he smiled slightly before starting to eat the food on his own plate again.</p>
+<p>,I, I'll give you some too, Benefactor!"</p>
+<p>Konoe Akina, who had been watching from across the table, also brought a half-cut bagel sandwich to my mouth. I couldn't just accept Alik's and not Konoe Akina's, so I took Konoe Akina's bagel sandwich even though I still had frittata in my mouth.</p>
+<p>Hmm, the bagel sandwich is quite delicious too. The smoked salmon and cream cheese in the middle made it stable and tasty.</p>
+<p>When I smiled with my eyes and nodded as if to say it was delicious, Konoe Akina also smiled in satisfaction. I was planning to eat about two more plates anyway, so eating this much extra wasn't bad.</p>
+<p>But what came next was the problem. When I accepted Konoe Akina's food, Alik picked up his plate and ran over, bringing food for me and holding it to my lips. This time it was asparagus wrapped in bacon.</p>
+<p>,Ryuta, aah~."</p>
+<p>,Benefactor, I have some too~!"</p>
+<p>With food being delivered from both sides, I couldn't even eat what I had brought myself.</p>
+<p>Panicked, I gave Mimata Chieri a look asking for help, but Mimata Chieri was just looking at me, Alik, and Konoe Akina with a pleased expression. No, Sunbae-nim, this isn't a pleasing situation.</p>
+<p>,Investor-nim, try this too!"</p>
+<p>,Honey, this is delicious, try it~!"</p>
+<p>Since no one stopped them, I eventually gave up on eating with my own hands. Later, Sawayanagi Azuma and Lianna Holden even joined in, feeding me food, so I was able to finish lunch without lifting a finger.</p>
+<p>,I'm full now, so I'll stop eating."</p>
+<p>For me to say something like that, when I can easily eat as much as three normal men, you can imagine how much I ate. After lunch, we were shown to our respective rooms.</p>
+<p>Sawayanagi Azuma, who had booked this pension, roughly divided us into groups of 3-4 people per room, but I was allowed to use a room alone under the pretext of being an investor. Even Sabu was included in a group of three to sleep together, and I wondered if it was okay for me to do this, but there was no need to refuse since they were offering.</p>
+<p>The intention was obvious, but I remained silent. Well, it's convenient and nice to use a room alone. They're probably planning to come find me at night, but that's fine too, so I stayed still.</p>
+<p>After putting my luggage in the room, there was something like a sports day, as befitting a company outing. The men decided to play 4-on-4 futsal on the futsal field in front of the pension, and the women had to play 5-on-5 volleyball on the court next to it.</p>
+<p>For some reason, it was said that it would be cheating if I and Fujigasaki Rinka participated, so neither of us could participate in the sports day. I'm bad at soccer, you know.</p>
+<p>,The winning futsal team will... Seryu Military Company's advisor Mimata Chieri-nim, who is over there warming up, will arrange a meeting with the female employees of East Weapon~!"</p>
+<p>Instead, I had to hold the microphone and emcee. I've never emceed before, but I guess I can just say what kind of reward is prepared before starting. And a meeting with the female employees of East Weapon is a pretty good reward, right? Especially Lee Doo-young, Choi Jin-ha, and Kim Young-chan, who have just taken off their trainee badges, were so happy that they raised their hands while shouting, "Waa~!"</p>
+<p>Well, they had been held captive by slave traders and then only trained in Japan, so they probably hadn't met any proper women. They're young men with boiling blood, so it's natural that they're hungry for women.</p>
+<p>Alik, who had trained with them, seemed young and untouchable, Jung Da-rim was a plant otaku who was only interested in plants, and the other seniors must have been scary because they were tough on them during training, so it seemed good for them to meet different women.</p>
+<p>Among the men of Seryutai excluding the trainees, two had girlfriends, so they had slightly lukewarm expressions about the victory reward.</p>
+<p>,You can also choose a prize of 100,000 yen instead of a blind date."</p>
+<p>I released some money to raise the atmosphere. Even if all four members of the winning team chose the prize money, it would only be about 400,000 yen, so it wasn't that burdensome. Only then did Sawayanagi Shigeru and Kitayama Junichi, who had girlfriends, cheer.</p>
+<p>,Kyahaha! Work hard! If you do well, I'll give you a separate prize too~!"</p>
+<p>Fujigasaki Rinka was excited about the current situation and laughed cheerfully, offering a separate prize. I don't know how much it is, but everyone seemed to be looking forward to Fujigasaki Rinka's reward as a world martial arts champion.</p>
+<p>,I'll say the reward for the women. Now..."</p>
+<p>Fujigasaki Rinka snatched the card with the contents of the gift that I was holding and nodded after looking at it.</p>
+<p>,The winning women's volleyball team will receive a set of cosmetics as a prize~! And the MVP will receive a one-day date ticket with my disciple, Ryuta."</p>
+<p>No, Sabu. What are you saying? You can just give them a set of cosmetics. Why suddenly a date ticket with me?</p>
+<p>Contrary to my dumbfounded reaction, my date ticket was surprisingly popular. They didn't cheer like the men, but I could feel the women who had a relationship with me burning with fighting spirit.</p>
+<p>Even Alik and Konoe Akina, who didn't have a physical relationship with me, were clenching their fists and burning with determination, which made me feel pretty good as a man. It means my date ticket is that attractive.</p>
+<p>The futsal and volleyball games started, and I watched everyone playing passionately. Fujigasaki Rinka, who was cheering at first, seemed to get a little bored and opened her mouth to me.</p>
+<p>,Kiyohara said that your disciple's nickname is 'slutty man,' right?"</p>
+<p>,Kiyohira did?"</p>
+<p>Kiyohira, how much did that guy say? No matter how much Kiyohira is a big fan of Fujigasaki Rinka, did he have to say even this?</p>
+<p>,Kiyohira has been in the United States all this time, so how would he know about my private life."</p>
+<p>When I pretended not to know, Fujigasaki Rinka looked at me with a disapproving look.</p>
+<p>,Are you lying to Sabu? I can't have that. Follow me."</p>
+<p>,What about the emceeing?"</p>
+<p>,They're going to work hard whether we're there or not, so just follow me."</p>
+<p>Well, maybe it's because of the prize or the heat of the game, but everyone was working hard at both futsal and volleyball, so they weren't paying attention to us.</p>
+<p>I had no choice but to follow Fujigasaki Rinka to the back of the pension. There was a narrow walking path behind the pension, and Fujigasaki Rinka was standing in the middle of the path, waiting for me.</p>
+<p>,It's a sparring match, disciple."</p>
+<p>,A sparring match for lying as a joke?"</p>
+<p>,No, it's just a sparring match. We martial artists don't need grand reasons. It's natural to want to fight if there's someone to exchange blows with, isn't it?"</p>
+<p>I'm not a martial artist, so I don't know, Sabu-nim. Fujigasaki Rinka probably wanted to check her disciple's achievements after a long time.</p>
+<p>I did have a sparring-like fight in the United States, but that was closer to checking if I was possessed by the Abyss, while now she seemed to purely want to know my martial arts.</p>
+<p>,Let's agree not to use the Abyss."</p>
+<p>Fujigasaki Rinka spread her legs and took a natural fighting stance, waiting for me to come at her. If she's offering to let me go first, I have to accept. I jumped up and threw a punch at Fujigasaki Rinka.</p>
+<p>It was a speed coming from pure physical strength without the Abyss, but the punch was fired like a cannonball at tremendous speed.</p>
+<p>Swish!</p>
+<p>Fujigasaki Rinka easily blocked my punch, making the sound of the punch cutting through the air pale in comparison, and said.</p>
+<p>,Too honest! It might work against opponents who fight with speed and power, but it only provides an opportunity for a counterattack against opponents who use techniques!"</p>
+<p>Even as she spoke, Fujigasaki Rinka gracefully pulled the punch she had blocked, disrupting my center, and then struck my solar plexus with her shoulder using the Iron Mountain Lean technique.</p>
+<p>,Keuk!"</p>
+<p>I groaned, but I endured the pain and raised my fist in an uppercut to hit Fujigasaki Rinka in her bosom.</p>
+<p>,The reaction speed is good!"</p>
+<p>Fujigasaki Rinka dodged my punch by a hair's breadth and then rotated her body, striking my temple with a back knuckle. I felt like my vision flashed for a moment from the blow to the temple.</p>
+<p>There was definitely a difference in skill. I can't help it. In order to hit her even once, I had no choice but to grab her so that Fujigasaki Rinka couldn't dodge.</p>
+<p>I didn't care about being hit in the temple and grabbed Fujigasaki Rinka's wrist. But Fujigasaki Rinka slipped out of my grasp like an eel. Only the feeling of her clothes brushing against my hand remained.</p>
+<p>,Eek!"</p>
+<p>I was starting to get pissed off because I was only getting hit without being able to hit her even once. I rushed in like an angry bear and started pouring out the techniques of Shinkai Yatsude indiscriminately. She dodged all dozens of techniques, but one got caught.</p>
+<p>Shinkai Yatsude (Deep Sea Octopus) Shinen Kyūban (Abyss Suction Cup)</p>
+<p>Perhaps because of the suction power of the Abyss Suction Cup, Fujigasaki Rinka dodged with her body, but the fabric of her clothes on her body was caught in my hand.</p>
+<p>I finally caught her! I gripped the fabric in my hand tightly and pulled. I was going to pull the clothes to bring Fujigasaki Rinka along.</p>
+<p>Tear!</p>
+<p>But the situation didn't go as I expected. Perhaps because I grabbed the clothes too hard, the front part tore instead of Fujigasaki Rinka being pulled along.</p>
+<p>,S, Sabu!"</p>
+<p>I was flustered and couldn't even approach Fujigasaki Rinka, whose bra was exposed because the front of her clothes was torn, and just stood there awkwardly.</p>

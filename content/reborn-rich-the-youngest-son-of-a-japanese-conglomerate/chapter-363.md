@@ -5,73 +5,76 @@ weight = 363
 chapter = 363
 +++
 
-<p>When I opened my eyes in the morning, Kijimoto Jurie was looking at me naked. The morning sunlight streaming in through the window cast shadows that accentuated Kijimoto Jurie's overwhelming figure, and before I knew it, my dick, already experiencing morning wood, was standing completely erect.</p>
-<p>Kijimoto Jurie smiled at my standing dick, which was looking up at the sky, and then spoke to me.</p>
-<p>"You're energetic from the morning, huh?"</p>
-<p>"Seeing you already awake, Kijimoto-sensei, it seems your stamina is amazing too?"</p>
-<p>I reached out and fondled Kijimoto Jurie's breasts while lying down. As expected, touching her soft breasts felt great. It was a touch that was incredibly good for mental health.</p>
-<p>By the way, yesterday was her first time, yet she was tormented by me all night and woke up earlier than me; isn't her stamina stat higher than mine? That can't be. First time or not, the sleeping place changed, so she probably woke up early.</p>
-<p>"I'm confident in my stamina because I've been steadily practicing family martial arts."</p>
-<p>As expected, Kijimoto Jurie was also from the prestigious St. Francisco Academy and had learned martial arts passed down through her family. I don't know because I'm surrounded by martial arts club members and Kijimoto Jurie, but I had a feeling that the average martial prowess of the members of St. Francisco Academy was high.</p>
-<p>In the first place, with the family teacher Shimokawabe Airen, one of the future Three Swordsmen, the average would inevitably be very high. Besides, I'm here too.</p>
-<p>Let's see, there's still plenty of time. After checking the time, I pulled Kijimoto Jurie's arm. As expected, Kijimoto Jurie, the nurse teacher who teaches health class, realized what my current actions meant and blushed.</p>
-<p>"Ah...! A-are you going to do it from the morning...?"</p>
-<p>"I can't resist when you show me such a sexy body from the morning."</p>
-<p>"Haa...! I'm not drunk, so I'm embarrassed."</p>
-<p>Ah, yesterday she was drunk, so she boldly seduced me. Now she's sober, and it's morning, not night, so she must be embarrassed. But I can't always rely on the power of alcohol to have relations with me, so she'll have to indulge me from the morning.</p>
-<p>"Nooo...! I'm getting weird from the morning, haaheung♥!"</p>
-<p>Kijimoto Jurie had no choice but to have sex with me until the last minute. If we went to work together (especially since one of us was still in yesterday's clothes), strange rumors would spread, so I sent Kijimoto Jurie ahead and went to work about 3 minutes later.</p>
-<p>"Yamashiro-sensei, good morning."</p>
-<p>"Yes, Hokumori-ssi."</p>
-<p>I greeted Hokumori Atara, one of the security guards at St. Francisco Academy, and entered the school. I was a little later than usual, so I hurried to the special class building.</p>
-<p>Several tasks had arrived on the fax machine. I took the documents out of the fax printer and read them. Ah, we're going on a picnic next week. When you look at it, the third-year high school students at St. Francisco Academy had a schedule so relaxed that they couldn't be called seniors.</p>
-<p>They seemed to do most events, such as picnics, school trips, sports days, festivals, and graduation trips. Is it because of the automatic university admission system? There was no intense feeling like Korean high school seniors.</p>
-<p>Of course, there was a class called the Special Advancement Class where only female students studied to enter prestigious universities like Edo University, but it was said that the Special Advancement Class was not actually a class but operated like a club. Is it a system where only the aces from each class gather to study?</p>
-<p>Of course, our special class had no members of the Special Advancement Class. Because there were only troublemakers.</p>
-<p>"Next page...."</p>
-<p>The next task is to appoint a class president and vice president. Except for three people, all the students belong to the Date Experience-Meditation Club, and there are a president and vice president, but the class president and vice president are different, so I have to tell the kids.</p>
-<p>The rest was just useless routine work. I sat down and worked for a while, and then it was time for the morning assembly, so I took the attendance book and entered the classroom.</p>
-<p>"Good morning."</p>
-<p>"Yes, sensei~!"</p>
-<p>"Ryuta-jji, you look a little tired today?"</p>
-<p>"Did you do something naughty?"</p>
-<p>When I greeted them, some of them looked at me with sly expressions. It seemed like they were doing it because I left with Kijimoto Jurie yesterday.</p>
-<p>"Don't talk nonsense. Attendance is.... Uenozono-yang came, so only one person is absent."</p>
-<p>Today, Uenozono Karen, who is an idol, was sitting in her seat. She didn't come all week, and she's attending after a long time. When I looked at Uenozono Karen, she smiled like an idol and greeted me with her eyes.</p>
-<p>"I was threatened that I would be held back if I missed just one day, but what about the kid who didn't come to school at all?"</p>
-<p>Minamoto Risa grumbled at my words. Yes, it was a little strange as Minamoto Risa said. Oofuchi Erika advanced directly to the special class without being held back even though she didn't have enough attendance days, so it seemed like she was receiving much more special treatment than Minamoto Risa of 'that' Minamoto family.</p>
-<p>Since I decided to visit her home at 10 o'clock, I'll know the truth when that time comes.</p>
-<p>"And what I'm announcing today is about the picnic next week and the class president and vice president."</p>
-<p>Both were interesting stories, so the students were buzzing. St. Francisco Academy goes on picnics determined by the school until middle school, but from high school, each class decides where they want to go, so it feels like a class social gathering.</p>
-<p>"Let's elect the class president and vice president first, and then decide on the picnic location under the leadership of the class president and vice president."</p>
-<p>Um, I decided, but it's a good idea. If I elect a class president and vice president and subcontract my work to them, that would be great. I can't give them full-fledged work, but I can definitely entrust them with things like deciding on a picnic location.</p>
-<p>"Is there anyone who wants to run for class president or vice president, or anyone you want to recommend?"</p>
-<p>The buzzing of the female students stopped for a moment at my question. According to what I heard from Kijimoto Jurie while eating lunch before, the class president and vice president were quite popular due to the circumstances of the prestigious families who didn't want to lose to each other, but this is a special class with only troublemakers. Of course, these rebels wouldn't want to take on troublesome tasks.</p>
-<p>"I'll be the class president."</p>
-<p>The one who raised her hand was Minamoto Risa. Yes, even if it's a special class, the young lady of the Minamoto family can't miss the class president position. She probably doesn't want to be the class president, but she doesn't want to serve another class president. From my perspective, where Minamoto Risa is the target, it would be great because there would be more contact if she were the class president.</p>
-<p>"I'll be the vice president."</p>
-<p>The female student who raised her hand to be the vice president was Shido Tsubaki. She was the former head of the newspaper club, and the look in her eyes behind her glasses was the kind that said, 'I know all your secrets,' so she was a bit uncomfortable. Of course, she doesn't know that I'm Taira Ryuta, but I can't help but feel uncomfortable with reporters.</p>
-<p>"Anyone opposed?"</p>
-<p>As expected, there was no one. I didn't know the class president and vice president would be decided so quickly.</p>
-<p>"Now that the class president and vice president have been decided, everyone clap~!"</p>
-<p>Everyone clapped at my words. Most of them were clapping insincerely and waiting for my next words because they were more interested in the picnic next week than the class president and vice president.</p>
-<p>"Then, you two come out and decide on the picnic location with the kids."</p>
-<p>At my words, both of them came forward and stood in front of the podium. I went to the side in advance and sat in an empty chair.</p>
-<p>Since it was still summer, the picnic was divided into a valley faction and a sea faction, and as a result of the show of hands vote, the sea faction won. Will I be able to see everyone's swimsuits then...? For reference, Alik voted for the valley because he enjoyed the previous Seryutai Valley outing.</p>
-<p>It took quite a while to argue and vote for the places they wanted to go, so after that, the bell for class preparation rang, and it was only decided that they would go to the sea, but it was not decided exactly where to go.</p>
-<p>"Then, talk about it every break time and decide exactly where to go and let me know. I won't be in the education preparation room in the morning because I have work, so let me know after lunch."</p>
-<p>"Okay, sensei."</p>
-<p>"We should be able to decide by then."</p>
-<p>Minamoto Risa and Shido Tsubaki nodded and answered at my words. It was right to entrust it to the class president and vice president. I didn't have to adjust it, and the opinions were decided on their own, so it was less tiring and good.</p>
-<p>Returning to the education preparation room, I reported the appointment of the class president and vice president to the faculty room by phone and prepared to leave.</p>
-<p>Since I have to visit Oofuchi Erika's house at 10 o'clock, it seems like the timing will be perfect if I leave now.</p>
-<p>From the data I collected, the Oofuchi (大渕) family is a family that ranks at the bottom among prestigious families and is not a very prestigious samurai family. In terms of family status, they barely managed to get into St. Francisco Academy.</p>
-<p>Then the family wouldn't be able to use their power to give her favors. My curiosity will be resolved soon.</p>
-<p>The Oofuchi family's mansion was surprisingly not that far away. About a 5-minute walk from St. Francisco Academy? For a family at the bottom of the prestigious families, it's quite close to the school...? Even around here, the house prices must be quite expensive....</p>
-<p>I rang the bell of the house with the nameplate that said Oofuchi.</p>
-<p>-Who is it?</p>
-<p>"I'm Yamashiro Ryuta, Oofuchi Erika-yang's homeroom teacher."</p>
-<p>-Ah, come in.</p>
-<p>With the words 'come in,' the door clicks open. I slowly opened the door, walked through the yard, and entered the house. When I opened the door, a woman who appeared to be the homeowner was standing in front of the entrance, waiting for me.</p>
-<p>"Huh?!"</p>
-<p>I couldn't help but make a dumbfounded sound when I saw the homeowner's face. This was because Oofuchi Erika's parent was someone I never expected.</p>
+<p>"Shouldn't you stop?"</p>
+<p>As I approached threateningly and spoke, the guy holding the camera pointed it at me and said that. They weren't scared at all, even after seeing my size. I don't know what they're so confident about.</p>
+<p>"Hey! We're a 300,000 subscriber MiiTuber! You better watch out, your face is being filmed, kekeke."</p>
+<p>"Yeah, you want your face plastered on MiiTube?"</p>
+<p>They started rattling off how much influence they had. Since when was being a MiiTuber such a great job that they're so confident? People who don't know any better might be a little uncomfortable, but not me. I reached out and grabbed the camera that was filming my face.</p>
+<p>"Don't grab it, it's expensive?!"</p>
+<p>"Kekeke, your dirty hands touched it, so we'll have to get compensation, right?"</p>
+<p>First sexual harassment, and now extortion? It was clear they were outsiders who didn't really know what Miyashi was like. I had no choice, it was annoying, but I had to show them what's what.</p>
+<p>"If you're going to give compensation anyway, it might as well be for complete destruction."</p>
+<p>Pudeudeudeuk!</p>
+<p>I crushed the camera with my grip, as if pressing it with a press. The high-end camera, made quite sturdy, was unrecognizable, as if force had been applied to a cheap styrofoam model. With this, the memory card inside the camera would be destroyed too, right? My face and the faces of our students, like Minamoto Risa, wouldn't be shown.</p>
+<p>"What, what are you doing? How much does that cost!"</p>
+<p>"The content we filmed is gone too, so you'll have to give us at least 300,000 yen as compensation!"</p>
+<p>"If you like compensation so much, should I give you compensation for injury too?"</p>
+<p>I grabbed both of their faces in an Iron Claw style and lifted them up. They tried to scream from the pain caused by the immense grip, but because my palms were covering their faces, they couldn't scream and just struggled, wriggling their arms and legs while making 'eup eup' sounds. Just as I was about to apply a little more force, someone shouted at me.</p>
+<p>"Stop! What are you doing? Violent acts are not allowed inside the department store!"</p>
+<p>A security guard who had belatedly rushed over shouted at me as he hurried over. There were two security guards, and they seemed to be a two-man team consisting of a senior and junior officer. Why are you shouting at me? If you guys had come sooner, this wouldn't have happened.</p>
+<p>"I was just holding onto these guys who were harassing the female students."</p>
+<p>I released the Iron Claw and answered the security guards. The two thug MiiTubers, who had fallen to the floor with a thud, screamed and shouted.</p>
+<p>"Security! Are you just going to let the guys who used violence go?"</p>
+<p>"Damn it! If you guys stay still, I'll call the police!"</p>
+<p>Calling the police... These two guys really had no understanding of Miyashi. This city was tailored to St. Francisco Girls' Academy. The department store was like that, and the police wouldn't be any different. Rather, they would end up in jail with serious charges.</p>
+<p>"These two people harassed us."</p>
+<p>"You can tell by looking at our uniforms, right? Please handle it well."</p>
+<p>Naruse Shiyo and Minamoto Risa spoke to the security guards. The older one, who seemed to be the senior officer, nodded as if he understood, but the junior officer, who didn't seem to have much experience, opened his mouth with a puzzled expression.</p>
+<p>"Sunbae-nim, even though we have the female students' testimony, didn't we directly see this man using violence?"</p>
+<p>"Tss! Can't you be quiet?!"</p>
+<p>He should have stopped him before he opened his mouth. I could feel Minamoto Risa getting pissed off at the junior officer's words. I could see the veins popping out on her forehead.</p>
+<p>"I was going to let it slide that you came so late after the situation happened... You, wait there."</p>
+<p>Minamoto Risa took out her smartphone and called someone. Looking at the screen, it seemed to say "Department Store Manager"...</p>
+<p>"Sasabe-ssi. Come down to the underground food court right now."</p>
+<p>Hearing that, it seemed the department store manager's last name was Sasabe. The two security guards also looked startled and didn't know what to do after hearing the department store manager's name, and the senior security guard, who was about to get scolded together because of the junior officer's trolling, was glaring at the junior officer with murderous eyes. The junior officer must have felt what murderous intent was with such an intense gaze.</p>
+<p>Anyway, Minamoto Risa's appearance just now was really like a daughter from a chaebol family in a drama. A haughty and cold image? She's a bit similar normally, but the gyaru-like feeling of being a bit prickly was stronger, so the genre was a bit different from the appearance of a chaebol's daughter.</p>
+<p>In less than a minute, a fat, bald man came down sweating profusely. That person must be Sasabe, the president of this Miyashi Prime Mall.</p>
+<p>"Oh my...! Minamoto-yang! W-what's going on?"</p>
+<p>The security guards, who were already stiff, were even more surprised after hearing the name Minamoto, and the two thug MiiTubers were slowly realizing that the situation was getting very complicated. As expected, Minamoto's influence is scary.</p>
+<p>"Sasabe-ssi, do you want to get fired?"</p>
+<p>"Y-yes? No! But... what do you mean."</p>
+<p>She asked if he wanted to get fired as soon as he arrived, and the department store manager, who was already sweating profusely, was now almost pouring sweat like a waterfall.</p>
+<p>"I was harassed by these two guys inside the department store."</p>
+<p>"Harassed! We were just asking for cooperation for a MiiTube appearance...!"</p>
+<p>"We only grabbed her shoulder once...!"</p>
+<p>"I'm sorry!! I will take measures to ensure this never happens again."</p>
+<p>The two thugs and the department store manager spoke at the same time in response to Minamoto Risa's words, causing a huge commotion. Minamoto Risa calmly opened her mouth without paying attention to the noise.</p>
+<p>"These kinds of troublemakers can come to the department store. I can't stop customers from coming. But what's even more disappointing is the department store's attitude. None of the food court staff took any action even when we were being harassed, and the security guards were so slow to arrive that this customer couldn't stand it and helped us. And the security guard who arrived even treated the person who helped us like a criminal, even after hearing our victim's testimony. Are you going to just let this go?"</p>
+<p>"T-that's... I'm sorry!"</p>
+<p>Amazing. Minamoto Risa, who carefully pointed out the department store's flaws, was amazing, but the department store manager, who understood the situation and immediately performed a dogeza (prostrating oneself to apologize), was also amazing, as expected of someone who became a department store manager.</p>
+<p>"Retrain all the food court employees and audit the security team to find out if the late arrival was due to the security team's procedures or if those two were slow to act, and then issue a disciplinary action. Sasabe-ssi, I'll let it go this time. There won't be a next time."</p>
+<p>Minamoto Risa even came up with a reasonable solution. As expected of a woman who learned the art of kingship from the Minamoto family. Hearing those words, Sasabe, the department store manager, looked at the two thugs lying next to him while still in dogeza and opened his mouth.</p>
+<p>"T-then these guys..."</p>
+<p>"Handle them as you see fit. I don't want to see them, so I'd like you to get them out of my sight first."</p>
+<p>At Minamoto Risa's words, they were dragged away by the security guards. In particular, the junior security guard, who thought he was going to get fired, was enthusiastically tying up the two and dragging them away.</p>
+<p>"Wait, we only came because we received a tip...! Please forgive us just this once! We didn't know it was a place like this...!"</p>
+<p>A tip? What does that mean? I should hear what they have to say. I turned to the surprised students and opened my mouth.</p>
+<p>"Everyone was surprised, right? I'll go see if things are being resolved well, so eat the dessert I ordered for you over there."</p>
+<p>"Waa, Ryuta-chi is the best! Lisa-tan, Shiyo-ppi, Konoka-chan, let's go~!"</p>
+<p>As Seizawa Shii dragged the other three members away, I followed the security guards. Sasabe, the department store manager, who was walking with the security guards, noticed me following and asked me.</p>
+<p>"Why are you following...?"</p>
+<p>"I'm their homeroom teacher, so I'm going to check if things are being resolved well."</p>
+<p>"Ah! I see. You were their homeroom teacher?"</p>
+<p>"I-I'm sorry about earlier."</p>
+<p>The junior security guard bowed to me. In fact, if it were a normal department store, this person wouldn't have been at fault. After all, I was actually attacking the two thugs. But this is a department store built for the female students of St. Francisco Girls' Academy. Ignoring the testimony of the department store's most important customer on the spot, when it could have been investigated later, was a big mistake.</p>
+<p>"It's okay. Your Sunbae will educate you well."</p>
+<p>At my words, the senior security guard nodded silently. Looking at his eyes, it seemed like he would be chewed out a lot later.</p>
+<p>We went to a separate room next to the security office on the second floor, like an interrogation room. The two thugs were told to wait here until the police arrived. When I said I had something to ask, the security guards told me to ask whatever I wanted while the police were coming.</p>
+<p>When I asked what MiiTube channel it was, it was a MiiTube channel called Yama-Taro's Hunting Life, which traveled around Japan hunting for women. They said they were 300,000 MiiTubers earlier, but it's only about 170,000. Of course, 170,000 isn't a small number, but since it's almost twice as much as what they claimed, I naturally felt like it was just a small number.</p>
+<p>Thinking about it, it might be more shocking that 170,000 people watch these two guys...</p>
+<p>"Okay, let's hear who you got the tip from and what it was."</p>
+<p>"That's, actually..."</p>
+<p>The two guys' channel had an email address for receiving tips on good spots for hunting women, and one day they received information about Miyashi from a disposable email address. Showing the uniform of St. Francisco Girls' Academy, they said that all the female students who wear this uniform are daughters of wealthy families, and they instilled a strange hope that if they did well, they could marry into a wealthy family. Hearing that, these two thug guys excitedly ran to Miyashi.</p>
+<p>Hmm, listening to the content, it definitely seemed like someone was targeting St. Francisco Girls' Academy and planned this. If so, it seems like they didn't just tip off these guys, and there's a possibility they tipped off other thugs as well. Since it's a school-wide issue, I should let Daigo Terue know.</p>
+<p>----</p>
+<p>Sending off the Year of the Black Rabbit with Yu-gyeong's Bunny Look!</p>

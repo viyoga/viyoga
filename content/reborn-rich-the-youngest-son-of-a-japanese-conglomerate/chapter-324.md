@@ -5,89 +5,85 @@ weight = 324
 chapter = 324
 +++
 
-<p>In the end, I finished the enjoyable act with Seari around 10 PM. It didn't quite meet my expectations of possibly going until the next day, but the fact that she could do this much while being a virgin shows that Seari has a scary potential(?). Usually, people would be exhausted and drop out after one or two times.</p>
-<p>She also had a rich curiosity about sex, so we were able to share quite enjoyable eroticism while directly using things like fellatio that she couldn't quite do properly during 69, or the love chair in the love hotel. In the end, she was exhausted and fell out, but it was stamina that was hard to believe for a virgin.</p>
-<p>After lying down for a while, I suddenly became curious about the awakening of the fairy's body and the changes in her abilities, so I asked Seari, who was in my arms.</p>
-<p>"Do you feel like your abilities have gotten stronger?"</p>
-<p>"Yes! Look at this, Ryuta-nim!"</p>
-<p>At my question, Seari raised her hand into the air and scattered the still unfaded purple flowers into the air. It must be a very difficult technique because she has to control each flower, but it seemed that her abilities were greatly enhanced because the fairy's body had awakened.</p>
-<p>She'll become even stronger if she levels up in the future. Because Seari had the highest potential in Seryu-tai. Later, she could summon powerful tornadoes and even defeat an entire battalion by herself.</p>
-<p>"Let's go back now, everyone will be worried."</p>
-<p>"Aww~ I want to be with Ryuta-nim a little longer?"</p>
-<p>Seari was sulking, but seeing her get up from her seat, it seemed that she secretly wanted to show her changed appearance to her colleagues in Seryu-tai.</p>
-<p>"But... what about the ears?"</p>
-<p>"The ears... I wonder? What should we do?"</p>
-<p>Is she asking me? If there's no way to hide her pointed ears on her own, I have no choice but to do what I was thinking.</p>
-<p>"First, take a shower and wait. I have to buy clothes anyway, so I'll buy something that can cover your ears while I'm buying clothes."</p>
-<p>"Okay~!"</p>
-<p>Because Seari was naked as her fairy body awakened, I went out of the love hotel to buy clothes.</p>
-<p>It was already late at night, but because it was a downtown area in Tokyo, there was a 24-hour shopping mall that was open late at night.</p>
-<p>I bought some clothes that roughly fit Seari and bought over-ear headphones that completely cover the ears from a place that sells electronics.</p>
-<p>Later, I should ask TG Tech to make large headphones exclusively for Sawayanagi Seari. They don't have the technology for the sound side, but it was just about making something that looks like headphones and doesn't look awkward to cover the ears. It would be even better if it had many useful functions for combat.</p>
-<p>"Thank you, Ryuta-nim!"</p>
-<p>"It's nothing. I just chose clothes that are similar to what you wore today, and this is for your ears...."</p>
-<p>When I gave her the clothes and headphones, Seari was overjoyed. Just like with the seed gift, her reaction was so generous that it was fun to give her gifts.</p>
-<p>When she put on the clothes and headphones, Seari's ears weren't that noticeable. That's because I bought the largest over-ear type headphones from the electronics store.</p>
-<p>After Seari put on her clothes, we left the love hotel. Seari felt sorry for the flowers that had fallen on the bed and floor, so she took out the ones that had been crushed when we overlapped our bodies and put them in the shopping bag that contained the clothes. Of course, I also took the black shopping bag containing the seeds.</p>
-<p>"Eumheungheung~♪"</p>
-<p>Seari was humming and skipping. Her steps were strangely light, so when I walked at a jogging pace, it was so fast that I could barely keep up. She's probably unconsciously receiving help from the wind.</p>
-<p>"Seari, you're suspiciously fast, so let's go a little slower."</p>
-<p>It's not a problem for me to match Seari's speed, but this is still a crowded downtown area in Tokyo. If a pretty girl is bouncing around at an incredible speed, she'll get a lot of attention.</p>
-<p>"Ah! Sorry, I'm too excited."</p>
-<p>Seari slowed down her walking speed at my words. She's lived as a kid for over twenty years, so the world must look different. Also, because of the nature of the fairy's body, she won't age any faster than this.</p>
-<p>"Ah, I didn't show you this, did I? I was so surprised at this time!"</p>
-<p>I took out my phone and showed her the picture of Seari covered in flowers from earlier. Of course, I'm holding those flowers in a shopping bag now, but seeing the flowers piled up in the shape of a person lying down must feel different.</p>
-<p>"Wow, it's pretty~!"</p>
-<p>"Yeah, Seari, you were born in a flower garden."</p>
-<p>"Ehehehe♥"</p>
-<p>She really likes it when I give her a slightly cheesy comment. Seari is like a mascot who has received a lot of love within Seryu-tai, but it seems that she likes slightly cheesy comments because she has never received this kind of affection that a man can give.</p>
-<p>"Oh, we've arrived."</p>
-<p>"Seari-ttang~! I've been waiting... huh?"</p>
-<p>Kiyona Mari, who was waiting at the Seryu Military Company building, ran over but froze at Seari's changed appearance. It's natural to be surprised because she suddenly turned from a girl into a woman, but she's completely frozen like a hero who saw Medusa?</p>
-<p>After a while, Kiyona Mari, who was released from her petrification(?), pushed us both in the back and pushed us into the conference room of Seryu Military Company and called all the people who were there now.</p>
-<p>"Honey~! Uh...?"</p>
-<p>"Ryuta-ssi! Seari...?"</p>
-<p>As expected, everyone was surprised to see Seari, who had grown up, and came into the conference room.</p>
-<p>"Then, would you like to explain now?"</p>
-<p>Kiyona Mari asked me. I didn't have anything to hide, so I told them that I went to the black market and saw some seeds that I thought would suit Seari, so I gave them to her as a gift, and Seari ate them and became like this.</p>
-<p>"Suddenly, leaves sprouted from all over my body, so I was very embarrassed and went to the nearest hotel."</p>
-<p>"Leaves sprouted from all over your body?"</p>
-<p>"Such a thing...!"</p>
-<p>Everyone listened to my story with interest. After that, when I showed them the picture of the flowers blooming and explained it, they seemed very amazed.</p>
-<p>"So, the conclusion is that Seari ate the seeds that Ryuta-ssi gave her and got rid of the side effects of the bio experiment?"</p>
-<p>In fact, everyone in Seryu-tai thought that Seari was maintaining her young appearance due to the bio experiment she had experienced as a child, so that was the conclusion they came to.</p>
-<p>"Ehehe, but...."</p>
-<p>When Seari took off her headphones, elf ears popped out. Then everyone was shocked. No, aren't the Seryu-tai people's reactions too good? Maybe it's because it's about a member of the same Seryu-tai, but their reactions were so good every time I spoke.</p>
-<p>"Seari-ttang has become a busty elf.... I, I, I can't accept it!!"</p>
-<p>Kiyona Mari, who is flat-chested, said strange things and ran out of the conference room. It seemed that she was Seari's rival in terms of chest size, but Seari suddenly became busty overnight, so she felt relatively deprived.</p>
-<p>"Still, thank you, Ryuta-ssi. Seari didn't act like it, but she was actually having a hard time."</p>
-<p>Sawayanagi Azuma stepped forward and spoke as the leader of Seryu-tai. In fact, Sawayanagi Azuma would have known about this situation. She can foresee the future, so she would have seen Seari's changed appearance in any place.</p>
-<p>When I asked her before, she said that she only tells the future of the war situation when she goes on missions with the Seryu-tai members, and she doesn't tell the future of each member for the sake of their privacy.</p>
-<p>"I've said everything I need to say, and it's late, so I'll go back."</p>
-<p>"Ah...!"</p>
-<p>"Honey~! Since it's late anyway, stay over!"</p>
-<p>When I said I was leaving, Sawayanagi Seari and Lianna Holden grabbed me with regret. Kiyona Hori was also looking at me from behind with a regretful look.</p>
-<p>"I have something to do in Tokyo again tomorrow, so let's see each other then."</p>
-<p>"Okay. Be careful going back, Ryuta-nim!"</p>
-<p>"Good night, Honey!"</p>
-<p>I left the Seryu-tai building after being seen off by everyone except Kiyona Mari, and headed to the East Weapon building to find the car I had parked and to give the seeds I was carrying in the shopping bag to Jung Da-rim.</p>
-<p>Jung Da-rim was using an unused office in East Weapon as her home until she could find a lab and a house, so I could always meet her if I went to East Weapon.</p>
-<p>Mimata Chieri would have left work too, so I'll just give her the seeds and leave.</p>
-<p>I went to the office with the sign that said "6th floor, Jung Da-rim's room!" and knocked.</p>
-<p>"Who is it?"</p>
-<p>"It's Jin Yong-tae."</p>
-<p>"Oppa, come in."</p>
-<p>She was speaking calmly even though a man was coming into her room late at night. As expected, she was a plant otaku who was only interested in plants.</p>
-<p>"I stopped by to give you this."</p>
-<p>"What is it, oppa?"</p>
-<p>When I gave her the shopping bag, Jung Da-rim received it wondering what it was, but after realizing that it was a shopping bag full of seeds, her eyes widened greatly.</p>
-<p>"These are...."</p>
-<p>"They're probably the seeds that the researchers stole, mostly. A very small number are unique seeds like Jooan."</p>
-<p>I gave her a rough explanation of the seeds. There were so many kinds that it took quite a long time just to read what was on the information window. Jung Da-rim also took notes and listened to my explanation diligently, making it worthwhile for the person explaining.</p>
-<p>As expected of a plant otaku, Jung Da-rim had a very happy expression while taking notes.</p>
-<p>"Thank you, oppa. I'd even give you my first time right now if it was you, oppa."</p>
-<p>"A minor shouldn't say things like that."</p>
-<p>I ruffled Jung Da-rim's hair, who was thanking me with strange words, and got up from my seat. It was late and there was nothing else to do, so I should leave.</p>
-<p>"Do some good research. It's late, so I'll go."</p>
-<p>"Okay, bye oppa. I'll do my best."</p>
-<p>I said goodbye to Jung Da-rim, who was still looking at the seeds diligently, and left Jung Da-rim's room.</p>
+<p>"Wait! We're going to make a club too!"</p>
+<p>Another shout came from the entrance of the teachers' lounge, so I wondered who it was this time, and it turned out to be Konoe Akina and Otagi Yuka.</p>
+<p>Because of what I said during the morning assembly about joining a club, both Minamoto Risa and Seizawa Shii's team, and Konoe Akina and Otagi Yuka's team, decided, "Let's just make our own club!" and seemed to have made a plan to create their own club with me as their advisor.</p>
+<p>"First, everyone, sit down in front."</p>
+<p>At my words, all four of them sat down. There were quite a few folding chairs in one corner of the teachers' lounge, so we could seat up to ten guests.</p>
+<p>"Okay, Minamoto-yang's team, tell me what kind of club you're going to make."</p>
+<p>"We're going to make a meditation club."</p>
+<p>Minamoto Risa answered my question. A meditation club, huh.... It's probably just a name they picked to slack off and do nothing. Come to think of it, I'd only heard her answer during attendance, so this was the first time Minamoto Risa had spoken to me this lengthily.</p>
+<p>"Meditation club? Wouldn't a movie appreciation club or something like that be better? You could say you're going to the theater and go out as much as you want...."</p>
+<p>"Wow! I didn't think of that, Ryuta-cchi, you're a genius!!"</p>
+<p>Seizawa Shii clapped her hands at my words and praised me. Seeing Seizawa Shii's reaction, it seemed like my guess was right.</p>
+<p>"N-no, we're really going to meditate!"</p>
+<p>Minamoto Risa passionately insisted that she would seriously do the meditation club, but Seizawa Shii was already suggesting a movie appreciation club next to her, so the sincerity of her passion was questionable.</p>
+<p>"Then...."</p>
+<p>This time, I looked at Konoe Akina and Otagi Yuka with an expression that said, "You guys answer," and Konoe Akina spoke on their behalf.</p>
+<p>"W-we're going to make a dating experience club!"</p>
+<p>Dating experience club? That's quite a novel name, isn't it? It seemed like they both put a lot of thought into making the name.</p>
+<p>"Since the students of St. Francisco Girls' Academy are all daughters of prestigious families, most of them probably have restrictions on dating."</p>
+<p>That's true. It wasn't that there were no boys their age around. There were other schools besides St. Francisco Girls' Academy in Miyashi. There was Miyashi Municipal School, which the children of ordinary citizens living in Miyashi attended, but first of all, the physical distance from St. Francisco Girls' Academy was quite far.</p>
+<p>And since most of the parents of Miyashi Municipal School students worked in occupations directly or indirectly related to St. Francisco Girls' Academy, the parents were stepping in to prohibit dating with St. Francisco Girls' Academy. It was because their children could be fired from their jobs if they dated the daughters of prestigious families.</p>
+<p>And of course, the parents of St. Francisco Girls' Academy students were cracking down on their daughters, so the students of St. Francisco Girls' Academy couldn't even dream of dating.</p>
+<p>"So?"</p>
+<p>Seizawa Shii was also curious and asked Konoe Akina to tell her quickly. She seemed even more excited than when she was talking about the meditation club.</p>
+<p>"In order to not make mistakes during dates with the husbands they might meet after graduation, the female students of St. Francisco Girls' Academy experience dating in advance. They go to cafes, go to movies.... They also go to Dijuniland, and they can go on trips to good places as a club retreat."</p>
+<p>Ah...! This side is also just going to hang out, using the excuse of dating experience to create a club. Still, this side is definitely smarter than the meditation club.</p>
+<p>"Risa-chan! This side looks better, doesn't it?"</p>
+<p>"But we already said we'd do the meditation club, so we can't abandon it...!"</p>
+<p>Even at Seizawa Shii's words, Minamoto Risa asserted her pride and expressed her will not to give up on the meditation club.</p>
+<p>"Okay, temporary meditation club and temporary dating experience club. You both know that you need five more people who aren't in other clubs to create a club, right?"</p>
+<p>All four of them made expressions that said they were hearing it for the first time at my words. Were all four of them just trying to wing it? Seeing that they don't know these rules, that's what it seems like.</p>
+<p>"Then let's do this. The two teams will compete. Today is Monday, so gather people by Wednesday, and I'll be the advisor for the side that gathers more. And the losing team will be absorbed into the winning team's club. You have to join a club anyway."</p>
+<p>If it goes like this, I could be the advisor of the club that Minamoto Risa is in no matter what, so it could be said to be a good plan. The students might be a bit of a hassle, but that's none of my business. Besides, since I have to find people who aren't in other clubs, there's a high probability that I'll include other students in our class who aren't in clubs, so it could be said to be killing two birds with one stone.</p>
+<p>"Or, since you have to gather club members anyway, there's also a way for the four of you to join forces and gather just one or two more people."</p>
+<p>At my two suggestions, the four of them exchanged glances for a moment and said.</p>
+<p>"We'll compete. I'll show you the power of our meditation club."</p>
+<p>"W-we'll compete too!"</p>
+<p>At Minamoto Risa's words, who continued to stick to the meditation club, Konoe Akina also declared competition as if not to be outdone.</p>
+<p>"Okay, since you've decided to compete, you both have to do it fairly, okay?"</p>
+<p>"Hmph! Do you think we'd cheat or something?"</p>
+<p>I just said it as a matter of course, but Minamoto Risa reacted quite sharply. She felt like a wounded cat for some reason. Maybe it's because she usually goes around in a gyaru look, so teachers and family elders have prejudices against her, so she's acting paranoid about my words.</p>
+<p>"I just said it without any special meaning, so don't get angry and come to the teachers' lounge after school on Wednesday, both teams. We'll decide the winner based on the number of club members at that time."</p>
+<p>"I don't like the meditation club, but I can't lose the match! Ryuta-cchi, just you wait!"</p>
+<p>Seizawa Shii declared that she couldn't lose, put her arm around Minamoto Risa's shoulder, and went outside.</p>
+<p>I thought I heard Minamoto Risa say, 'Even if you say it without any special meaning...,' but they had both already left the teachers' lounge, so I couldn't be sure if I heard it correctly.</p>
+<p>"Sensei! You have to take our side~!"</p>
+<p>"That's right, Sensei. The dating experience club is better than the meditation club, right?"</p>
+<p>The remaining Konoe Akina and Otagi Yuka said to me as if complaining.</p>
+<p>"In the end, I decided this so that everyone would think about becoming a club member of the club that I'll be the advisor of. There's also a mission...."</p>
+<p>At my words about a mission, Konoe Akina and Otagi Yuka reluctantly nodded as if they understood.</p>
+<p>They both only knew that there was a mission, but they didn't know the details of the mission, but they probably guessed that it was related to Minamoto Risa. They know the relationship between Taira and Minamoto, so to speak.</p>
+<p>The break time was over, so I sent them both back to the classroom, and I sent a LINE message to Kasaoka Yuzuki. It was to ask what to do about the students who don't come to school.</p>
+<p>###</p>
+<p>Minamoto Risa inadvertently recalled the words of her homeroom teacher, Yamashiro Ryuta. Fair and square and without any special meaning.... Of course, Yamashiro Ryuta probably just said it without any special meaning as her homeroom teacher. But those words were hurtful to her.</p>
+<p>'I thought I wouldn't be hurt by things like this anymore....'</p>
+<p>On paper, she was registered as the daughter of Minamoto Toyomi, Minamoto Ushin's current wife, but in reality, Minamoto Risa was an illegitimate child. Minamoto Ushin's most beloved mistress, whom he could not marry, was Minamoto Risa's biological mother.</p>
+<p>Of course, she was not treated well within the Minamoto family because she was an illegitimate child. Because she was not an illegitimate child to the outside world, she grew up under Minamoto Toyomi's mental abuse, and she hardly ever met her biological mother.</p>
+<p>Whether it was because she was an illegitimate child or because of her sharp eyes, whenever something happened in the family, it was Minamoto Risa's fault. Even if something disappeared or something broke, it was all Minamoto Risa's fault.</p>
+<p>Her half-siblings also knew this well, so most of the accidents they caused became accidents that Minamoto Risa caused.</p>
+<p>Because of Minamoto Ushin, who showed infinite affection because she was the daughter of the person he loved, she was even more hated by her siblings. Moreover, as all the accidents were attributed to Minamoto Risa, Minamoto Ushin gradually withdrew his affection as well.</p>
+<p>As she attended St. Francisco Girls' Academy, she was separated from her siblings and family, so she was no longer harassed, but Minamoto Risa became a delinquent student from high school.</p>
+<p>She didn't do anything particularly delinquent, but she tanned her skin brown and dyed her hair a rare mix of pink and blonde, but in many ways, she was branded as a delinquent student because she had a demeanor that deviated from the behavior of a daughter of a prestigious family.</p>
+<p>Since it's come to this, she decided to show them what real delinquency is, and she took advantage of laissez-faire to live as she pleased, going on trips and drinking and wandering around with Seizawa Shii, who was also skipping school.</p>
+<p>In fact, drinking and skipping school weren't very serious delinquencies, but for the two of them, who had grown up preciously, this was the limit of their imagination. Of course, if they deviated beyond this, the family would intervene.</p>
+<p>She thought that her emotional wounds had been completely healed while being with Seizawa Shii, but today, after hearing a harmless story from Yamashiro Ryuta, she realized that she was still broken when she unknowingly got angry.</p>
+<p>"Are you okay, Risa-chan?"</p>
+<p>"Yeah, I was overreacting...."</p>
+<p>"Shall we skip class today and go eat something sweet?"</p>
+<p>Seizawa Shii said, watching Minamoto Risa's mood. She asked because she used to skip school and play outside like this if something unpleasant happened last year, but she shook her head because she couldn't repeat a grade again this year.</p>
+<p>And right now, there was something she wanted to do even more than going outside.</p>
+<p>"I have to recruit club members...!"</p>
+<p>"Yeah, that's right. We can't lose to them!"</p>
+<p>Of course, Minamoto Risa didn't seriously think about the meditation club and create it, but as a member of the Minamoto family, she couldn't compete and surrender to the opponent. Minamoto Risa was going to do her best to recruit club members.</p>
+<p>-----This is a mid-term summary of the characters appearing in St. Francisco Girls' Academy requested by Arnold-jjang-nim~!  Hehe</p>
+<p>The Transfer Student Alik of Gentle Breeze!</p>
+<p>Target Minamoto Risa</p>
+<p>Seizawa Shii</p>
+<p>Wheelchair Girl Saionji Diana</p>
+<p>Vampire Otagi Yuka</p>
+<p>Covered Yuka, Slicked-back Yuka</p>
+<p>Konoe Akina</p>
+<p>Aunt and Student Council Chairman Taira Kanna</p>
+<p>Special class students whose illustrations have not yet been released have been excluded~!</p>

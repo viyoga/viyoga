@@ -5,71 +5,79 @@ weight = 1108
 chapter = 1108
 +++
 
-<p>"This is the right place, isn't it?"</p>
-<p>Saionji Diana said, pointing to a house that looked almost like Ruins.</p>
-<p>"Yes, according to the data, it is."</p>
-<p>In response to Saionji Diana's Question, the Josedang agent accompanying her to guide her nodded his Head.</p>
-<p>Among the individuals under Taira Ryuta remaining in Japan, the busiest was Saionji Diana.</p>
-<p>As Taira Ryuta appointed Saionji Diana as the Team Leader of the newly formed PMC and ordered her to find and recruit Combatants with missing Limbs like herself, Saionji Diana was traveling all over Japan, gathering talented individuals with potential.</p>
-<p>Although a considerable amount of time, nine years, had passed since the end of the Third World War that swept the World, its wounds had not yet recovered. Numerous Casualties and Injured Persons occurred, and especially due to fierce battles, there were not a few Victims who had lost one or all of their Limbs.</p>
-<p>However, there was almost no welfare for them. The Japanese government mercilessly abandoned those who participated in the War for the Nation.</p>
-<p>Thinking about it, the Japanese army in the Third World War was not a regular army. Most of them were individuals belonging to PMCs hastily formed to circumvent the peace constitution, so after the Third World War ended, the Japanese government did not treat them as Soldiers and made the PMCs independent as private companies without any special Reward.</p>
-<p>As a result, numerous PMCs went bankrupt, only able-bodied Combatants were hired, and those who became disabled had their contracts terminated and had to live on the small Money provided by the government as War veteran support funds.</p>
-<p>Therefore, the Limbs-deficient veterans of the Third World War whom Saionji Diana sought out across the country were living in Ruins like these or had become homeless.</p>
-<p>"Is anyone home?"</p>
-<p>"Who is it...?"</p>
-<p>At Saionji Diana's words, a voice was heard from inside the house. Soon, a creaking sound was heard, and the door slowly opened.</p>
-<p>When the Door opened, there was a man in a wheelchair with no Legs. His Appearance was quite shabby, but his Eyes were still alive.</p>
-<p>"I am this kind of Person."</p>
-<p>Saionji Diana handed the man a Business Card. On the Business Card, it was written: Zenith Force Service Team Leader 1, Saionji Diana.</p>
-<p>"Zenith Force, huh.... I've never heard of it?"</p>
-<p>"You probably haven't heard of it because it's a new PMC."</p>
-<p>Although they had even named it Zenith Force and prepared the documents, the PMC license approval had not yet been announced, so it wasn't even a new company yet, but Saionji Diana was traveling nationwide, recruiting capable Combatants.</p>
-<p>Of course, once the approval is announced and they are officially recognized as a PMC, the company itself will recruit Talent through a large-scale new employee recruitment announcement.</p>
-<p>However, for now, Saionji Diana, as the Team Leader, was personally going to meet those who had lost or injured their Limbs and were unable to work, specifically those from special forces or with outstanding Skill or Specialty, gathering Information through the Josedang.</p>
-<p>"Alright. What business does a new PMC have with a disabled Person like me...?"</p>
-<p>"Disabled Person, huh.... I'm even worse. Actually, I have no Limbs."</p>
-<p>In response to the man's Question/Doubt, Saionji Diana took off her Glove and showed her mechanical Hand, saying. Originally, Saionji Diana wore sophisticated cybernetic implants indistinguishable from human skin, but recently, to persuade talented individuals, she was using cybernetic implants that clearly showed their mechanical nature.</p>
-<p>"So...?"</p>
-<p>"I want to give you the same opportunity as me. I will give you new Legs, so please dedicate yourself to our PMC, just as you dedicated yourself to the Nation."</p>
-<p>Saionji Diana said, extending a contract. The man, with trembling Eyes, looked at the contract Saionji Diana offered, then took it with both Hands. A Card was attached to the contract, and when the man looked at Saionji Diana as if asking what it was, Saionji Diana showed a Smile.</p>
-<p>"You don't have to make a Decision right away. If you make a Decision and Contact us, we will put transportation fees on the Card, so you can bring the signed contract to the company."</p>
-<p>Asking a Third World War veteran to join a PMC could trigger Trauma, so Saionji Diana was giving everyone time to think.</p>
-<p>Leaving the man sitting in a wheelchair with a bewildered Expression, holding the contract, Saionji Diana got into the vehicle to go to the next location and checked her vibrating phone.</p>
-<p>It happened to be the day of the PMC qualification announcement, so she had set an alarm for the announcement time.</p>
-<p>Saionji Diana checked the Result of the qualification on her phone and smiled.</p>
-<p>Inside the vehicle, I was checking the messages filling my phone. There were many congratulatory messages for passing the PMC qualification exam I took in February.</p>
-<p>In particular, Saionji Diana and Athena Mannerheim were the first to send Text Messages. It seemed they had checked the announcement as soon as the results were out and contacted me, as the newly named PMC, Zenith Force, would be under their Affiliation.</p>
-<p>Actually, I couldn't check these contacts immediately. Due to the time difference, I didn't know exactly when the results would be released, but upon proper checking, the results were announced around lunchtime Japan time, and yesterday evening LA time.</p>
-<p>Dealing with the Women who came to my Room to be with me in the Evening, I didn't even notice the Text Messages, and after having Sex, I only learned of my passing in the Morning.</p>
-<p>Since I passed, Lin Xiang will handle the Paperwork on my behalf. Once the document submission is complete, Zenith Force will truly become an existing PMC.</p>
-<p>If you ask why the new PMC was named Zenith Force, it was named Zenith Force by combining Zenith, meaning to become the pinnacle of the PMC world, and Force, which is often used to mean 'military power' or 'army'.</p>
-<p>After checking all the congratulatory Text Messages, I looked Outside the window, and the headquarters of Mother Mars could be seen in the distance.</p>
-<p>"That's probably the Mother Mars headquarters."</p>
-<p>"It feels more like a research complex than a company."</p>
-<p>As I pointed to the Mother Mars headquarters visible Outside the window and spoke, Naruse Shiyo shared her Impression. Indeed, since Mother Mars originated from a research team, its headquarters building did have that kind of feeling.</p>
-<p>Mother Mars's headquarters was in Pasadena. As a company founded by a research team from a NASA outsourced laboratory that studied Martian vegetation, it was located in Pasadena, where NASA's Jet Propulsion Laboratory (JPL) is.</p>
-<p>Last year, when they contracted with me, Mother Mars had to receive Investment by transferring a 7 percent Share to me due to a lack of funds, but now, as a latecomer, they have boarded the Mars development company Project, so the company's Value is endlessly rising.</p>
-<p>Thanks to having its headquarters in Pasadena, it could continuously recruit high-quality Talent from the California Institute of Technology, also in Pasadena, and currently, even excluding Martian vegetation research and the Foodstuff business, various talented individuals were active, conducting research in diverse Fields.</p>
-<p>When I contracted with Mother Mars last year, it was at a restaurant, not the headquarters, so this was my first actual visit to the headquarters.</p>
-<p>Of course, I saw it often in the game. If I formed an Alliance with Mother Mars, I came to receive requests or Rewards, and if we were enemies, I came to commit Terror or directly Attack.</p>
-<p>Of course, the current Mother Mars is not yet one of the top five megacorps in the USA, but rather a promising Enterprise for the future, so it didn't have the grand headquarters feeling from the game. The buildings, which felt like a research complex as Naruse Shiyo described, were clustered together, giving me a fresh Impression.</p>
-<p>After stating my purpose for the visit, parking the car, and getting out, I saw a Mother Mars employee waiting to guide us. It was an Indian-American wearing Glasses, who smiled at me and offered a Handshake.</p>
-<p>"Mr. Taira, it's a pleasure to meet you. I'm Anjali Patel, in charge of your guidance. The Vice President is waiting for you."</p>
-<p>Currently, Mother Mars's Vice President was Vivian Taylor. Just last year, she was the President's secretary, but perhaps because she's the President's Niece, she seemed to have been promoted at lightning speed. Of course, as a Person who will become the Chairman of one of the future top five megacorps, she must have proven her Ability, not just because she's the President's Niece.</p>
-<p>Mother Mars's President, Liam Taylor, was more of a Researcher than a businessman, so Vivian Taylor was handling external affairs.</p>
-<p>Of course, that doesn't mean Liam Taylor was an incompetent individual. It's because Liam Taylor developed many foundational Technologies for Mother Mars during his time as President.</p>
-<p>After Liam Taylor stepped down, Vivian Taylor, who became the second President, greatly expanded Mother Mars's scale and influence based on that Technology.</p>
-<p>Following the Guide Anjali Patel into Mother Mars's Interior reception room, Vivian Taylor was seen standing, looking Outside the window. It was warm California, so it didn't seem very cold, but Vivian Taylor was wearing a Coat.</p>
-<p>"Vice President-nim. The customer has arrived."</p>
-<p>At Anjali Patel's Words, Vivian Taylor turned her Body towards me. Beneath her Coat, Vivian Taylor's Appearance was visible: a white suit and long Legs clad in Stockings.</p>
-<p>Something felt a little different from last year. Her Appearance was still that of a beautiful Woman, but.... Was it because she became Vice President from secretary? She seemed to have gained a certain sense of dignity compared to when I saw her before.</p>
-<p>Vivian Taylor B-cut~!</p>
-<p>Remake of Chapter 51 Kimono Illustration requested by Gojoy-nim~!</p>
+<p>and chapter check contains erotic please surroundings this your</p>
+<p>"How have you been, Akina?"</p>
+<p>Picking up a side dish and eating it, I asked Konoe Akina, and Konoe Akina let out a Sigh.</p>
+<p>"I'm so busy these days that I miss being a Student."</p>
+<p>"That busy?"</p>
+<p>Of course, it must be busier than when she was at St. Francis Girls' Academy, where all she had to do was Study, but was it busy enough to miss it?</p>
+<p>"I have to attend University.... I have to take Head of Family classes.... I have to handle Head of Family Work.... There's just so much to do."</p>
+<p>Indeed.... Even in High School, she was the Head of Family of the Konoe Family, but Konoe Akina's mom was acting as the interim Head of Family, handling the family's affairs.</p>
+<p>Attending University, taking Head of Family classes, and handling Head of Family Work must be an incredibly busy life.</p>
+<p>In fact, St. Francis Women's University provided considerable convenience to Young Ladies of prestigious families, so even if they didn't Study that hard, there was no major obstacle to Graduation.</p>
+<p>That's why Seizawa Shii and Naruse Shiyo accompanied me on what could be called a rather long trip to the USA.</p>
+<p>But Konoe Akina was not just the next Head of Family of the Konoe Family; she was the Head of Family. As the Head of Family, a certain level of academic performance was required, so unlike the other female college students under my command, she had no choice but to diligently attend University.</p>
+<p>Moreover, she had to take Head of Family classes she hadn't received before, and handle her duties as Head of Family, so she seemed incredibly tired.</p>
+<p>Originally, it would have been a matter of slowly learning from her father, who was the Head of Family, but her father died suddenly, and after many twists and turns, she reclaimed the Family from her uncle, so she hadn't received proper Head of Family Education and was now struggling.</p>
+<p>"If you need anything, just say the Words. I'll help you anytime."</p>
+<p>Konoe Akina and the Konoe Family were one of the few allied families in Japan that supported me. Since they were a considerable prestigious family in Japan, the Konoe Family's support for me held the Value of several families supporting me.</p>
+<p>"But what was it like when you were Teacher-nim, Ryuta?"</p>
+<p>Arisu, who had been listening to the Story for a moment, asked. Konoe Akina looked at me as if asking if it was okay to speak, but since everyone here knew I had carried out a mission at St. Francis Girls' Academy, I nodded my Head.</p>
+<p>"Actually, I knew Teacher-nim's True Identity even before Teacher-nim became a Teacher...."</p>
+<p>Konoe Akina began her Story from when she was kidnapped and I rescued her from the Slave Trader. I thought she would just talk about my time as a Teacher, but it was quite serious.</p>
+<p>Perhaps because Konoe Akina was a good storyteller, everyone listened with quite intrigued Expressions. Konoe Akina's Story continued until after the meal and while drinking tea.</p>
+<p>"Older Brother-ya?"</p>
+<p>Taira Kokoro subtly approached Taira Ichiro and asked.</p>
+<p>If it had been someone unfamiliar, they wouldn't have known what Taira Kokoro was asking about, but currently, it was during the Tsuya, and everyone was in a Situation where the Chief Priest of Shinshoji Temple was reciting a sermon in front of Taira Kitsumasa's coffin, so it was a Question of whether Ichiro had dealt with Taira Kitsumasa.</p>
+<p>"I thought it might have been you."</p>
+<p>"Why me? It's true I dislike Jiro, but not enough to kill Kitsumasa."</p>
+<p>In truth, both were people who would kill even their rivals' children if they had the opportunity and wouldn't get caught, but here, they weren't revealing it.</p>
+<p>"Me too. Kitsumasa's Death was unexpected even for me."</p>
+<p>"No, Older Brother couldn't have been unaware of Gensuke's actions, and I thought you would seize this Situation as an Opportunity to 'snip' one of Jiro's limbs."</p>
+<p>At Taira Ichiro's Words, Taira Kokoro smiled faintly and spoke. Taira Ichiro subtly ground his teeth as he watched Taira Kokoro.</p>
+<p>Even though they were whispering, the Taira Main family was like a tiger's den, filled with numerous Ability Users, so the current conversation had absolutely no security.</p>
+<p>Taira Kokoro's Words that Taira Ichiro might have killed Taira Kitsumasa would soon spread to everyone.</p>
+<p>Of course, anyone making a proper judgment would quickly realize this was Taira Kokoro's Slander, but even within the Taira Family or Group, there were many people lacking judgment, so he realized that suspicion about him was bound to take root.</p>
+<p>'Jenjang....'</p>
+<p>Ichiro cursed inwardly, feeling the flames of Anger rise within him towards his son for the Mithril heist and the Attack on Taira Ryuta's mansion.</p>
+<p>Considering that he lost one of his core Affiliate Companies and his reputation within the Taira Group plummeted because of his son's reckless action, he once again painfully realized the fact that the most terrifying enemy is an incompetent ally.</p>
+<p>"Stop talking nonsense and return to your Seat, Kokoro."</p>
+<p>"Hmph, you mismanaged your son and gave Jiro wings.... I'm the one who should be angry, aren't I?"</p>
+<p>At Ichiro's Words to return, Taira Kokoro, instead, left her Seat in Anger.</p>
+<p>It was Words tinged with Frustration over Taira Jiro's increased Influence due to Taira Yuuichi's inauguration as the Boss of Taira International Resource Development.</p>
+<p>If Taira Gensuke hadn't caused trouble, or even if he had but hadn't been caught, Taira Ichiro's Pabeol's Affiliate Company wouldn't have been repossessed.</p>
+<p>In that case, even if Taira Yuuichi had achieved a great feat, they wouldn't have fired the existing Boss of Taira International Resource Development and put him in that position. So, Taira Kokoro's Words that this Situation ultimately arose because he couldn't manage his son were not wrong.</p>
+<p>"I should get going now. See you next time, Teacher-nim!"</p>
+<p>"Okay, go carefully."</p>
+<p>As the time for Tsuya was approaching, Konoe Akina decided to leave. The visit from the Head of Household of the Konoe Family was sufficient, and since she wasn't close enough to Taira Jiro or Taira Kitsumasa to participate in the Tsuya, she decided to return.</p>
+<p>The Words "see you next time" became a half-formed promise when Konoe Akina, in response to my request to introduce me to her University sometime, suggested a Campus Date.</p>
+<p>Since there were many female students from the St. Francis Girls' Academy special class attending St. Francis Women's University, if I went on a date with Konoe Akina, I would have to do it with everyone, but it seemed fun, so I accepted.</p>
+<p>After seeing Konoe Akina off, I entered the Room where Taira Kitsumasa's coffin was kept, and a monk with a closely shaven Head was reciting a sermon.</p>
+<p>I heard that Taira Jiro had spent a large sum to bring in a chief monk from a famous Temple, but I wasn't interested, so I didn't know where the monk was from.</p>
+<p>The Tsuya had already begun, so I was a little late, but everyone was looking at the monk, so no one said anything to me.</p>
+<p>While the monk was reciting the sermon, Taira Kokoro subtly moved her Seat and was seen whispering with Taira Ichiro. I sharpened my Senses and could hear their Story, and this was clearly Taira Kokoro's Trick.</p>
+<p>I don't know if she impulsively took out her Anger on Taira Ichiro out of Frustration over Taira Jiro's growing power, or if it was a precise plan to damage Taira Ichiro's reputation, but it was a surprisingly strong move for such a small action.</p>
+<p>Soon, the sermon wishing Taira Kitsumasa peace ended, and the monk withdrew, and the boring Tsuya began.</p>
+<p>Although it was quiet shortly after the Conversation between Taira Ichiro and Taira Kokoro ended, soon the sound of them chattering with each other could be heard.</p>
+<p>"Ryuta."</p>
+<p>This time, Taira Ichiro moved first. Since I was the Victim of Taira Gensuke's Attack, it felt a bit awkward to approach Taira Ichiro and speak to him, but Taira Ichiro seemed to have made the first move.</p>
+<p>He probably thought I might run to Grandfather like Taira Jiro did. Of course, since Taira Ichiro's side had already been Punished once, the probability of Taira Danjo old man giving a new Punishment was low, but seeing him approach first, it seemed he wanted to restore the Relationship with my side.</p>
+<p>"Uncle Ichiro."</p>
+<p>"What happened at your mansion recently is regrettable. I raised my son badly."</p>
+<p>While an apology to the extent of "regrettable" was a bit Frustrating, in fact, "regrettable" was an appropriate apology. As the Chief of a Pabeol within the Taira Group, Taira Ichiro could not offer a grand apology even if he was at fault, so "regrettable" could be said to be the best apology Taira Ichiro could offer me.</p>
+<p>"I have no intention of receiving an Apology from Uncle Ichiro. I want you to provide the Reward I requested, and I want to receive an Apology directly from Gensuke when he returns to Japan after committing the wrongdoing."</p>
+<p>If Linling gave the compensation, which was inflated almost tenfold, I had no intention of holding ill will towards Ichiro over this matter. Of course, I planned to repay Gensuke, who directly attacked, more than this Attack someday.</p>
+<p>"I see. I'll arrange for the Reward you requested to be settled immediately. However, you won't be able to receive a direct Apology from Gensuke for a while. As Punishment for the trouble he caused this time, he's been barred from entering Japan for some time."</p>
+<p>So, Gensuke, you finally received Punishment from your dad. I don't know if exile to Brazil is a big Punishment, but from the Taira Group's perspective, being overseas, excluding the USA Branch, was a considerable penalty, so in terms of status within the Taira Group, it could be called a significant Punishment.</p>
+<p>"An Apology shouldn't just be Words."</p>
+<p>Taira Ichiro continued speaking, as if the Apology wasn't over with just that.</p>
+<p>Han Yu-gyeong Hanbok Illustration Remake for Chapter 60, requested by Gojoy-nim~!</p>
 <p>1.</p>
+<p>I intended for sky blue like the original, but even if I input light blue, it comes out dark ㄷㄷ.</p>
 <p>2.</p>
-<p>Cheon Harin requested by TheDreaming-nim: 1. Bound Appearance 2. Interview</p>
+<p>Alik 1. Daytime Swimming Pool 2. Nighttime Swimming Pool Leze Pose, requested by TheDreaming-nim.</p>
 <p>1.</p>
+<p>The prompt for spreading arms doesn't work well ㄷㄷ.</p>
 <p>2.</p>
-<p>The Cheon Harin Interview Illustration was quite difficult to create....</p>
-<p>Scenes like this, where the Microphone was held like a cock, appeared about 90 percent of the time, so I had to do a lot of Gacha, which was quite something.</p>
+<p>Because of Lora, the Composition became identical, so I mixed in one daytime Illustration too ㅎㅎ I used a pose lora, and it quite influences the art style ㄷㄷ.</p>
+<p>Santa Girl Chieri requested by Inoega Doegopeun-nim~!</p>

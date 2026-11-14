@@ -1,0 +1,34 @@
++++
+title = "Chapter 1701 Suicidal Freak"
+weight = 1701
+[extra]
+chapter = 1701
++++
+
+<p>Quinlan's elements came alive with utmost aggression. Fire erupted in walls between exchanges to buy half-seconds of spacing. Earth surged in slabs that tilted Ragnar's footing mid-charge. The terrain stopped being subtle adjustments and became architecture: magma channels widened into barriers, stone funneled the ridge narrower with every pass, and the air itself thickened with wind pressure that slowed Ragnar's charges by a fraction the dwarf couldn't compensate for.</p>
+<p>And through all of it, the blood kept flowing. Wind curled around Quinlan's forearm in a constant thread that pulled crimson from the wound and fed it across the hilt in a cycle that never let [Soul Reaper]'s edge dry. Every strike deposited more agents inside the enemy, and the agents multiplied inside every wound the regeneration sealed over.</p>
+<p>Ragnar's second contamination site lit three exchanges in. A crimson vein spread beneath his right hip where a score had sealed over fresh blood, and the ritual surged to purge it just as it had the shoulder. But the shoulder's dormant contamination chose that moment to reignite, both sites pulling regeneration in opposite directions, and for two full heartbeats the dwarf king's body couldn't decide which fire to put out first.</p>
+<p>"You won't outlast me!" Ragnar roared, and the fist he threw at Quinlan's chest carried enough force to crater the stone behind the miss. The next exchange brought Ragnar's knuckles close enough to brush [Synchra]'s dead shard at the base of Quinlan's neck, and the shockwave alone sent the Villain sliding backward across stone with his vision swimming. Wind caught him, steadied him, and the blood from his forearm never stopped flowing because he never let it.</p>
+<p>Ragnar's left arm seized. The third contamination site had rooted while the ritual was busy fighting the first two, and the crimson network spreading through his left bicep locked the muscle in a spasm that pulled his swing wide. He powered through it with brute force, the arm answering his will through sheer hatred, but it answered slower than before.</p>
+<p>"Why won't you close it?!" The question tore out of Ragnar as his regeneration fought on three fronts simultaneously, his fused plate thinning visibly where reserves were being cannibalized from every surface to fuel the internal war. "Use your ice, Villain! Seal that fucking wound before you bleed out!"</p>
+<p>Quinlan's answer was to draw [Soul Reaper] across his own forearm a second time, refreshing the cut that had started to clot due to his high Vitality, and the surge of crimson that followed was bright enough to cast light across the stone between them. He recoated the blade in a single pass and came forward.</p>
+<p>Ragnar's eye changed.</p>
+<p>The fury was still there, burning as hot as it had since the ritual consumed his soul, but beneath it sat something the dwarf king hadn't felt in long centuries. He was looking at a man who was bleeding to death on purpose, whose aura burned brighter with every drop that left his body, who fought with the calm efficiency of someone who had already decided how this ended and was simply executing the steps. The wind that curled around Quinlan's frame carried his blood in visible threads, and the primordial energy radiating from his exposed skin had turned the air between them into a pressure thick and hostile that pressed against Ragnar's fused plate like a second atmosphere.</p>
+<p>The Primordial Villain was spending his own life as currency to expedite Ragnar's execution, and the exchange rate was tilting further against the dwarf king with every heartbeat.</p>
+<p>Fear.</p>
+<p>Ragnar hadn't felt it since before the ritual burned his capacity for self-preservation out of his soul, and the fact that it had found a way back in through the chemical certainty of the dark ritual's embrace told him something his rage refused to accept: the man in front of him was more committed to this kill than Ragnar was to his own survival.</p>
+<p>"Suicidal," Ragnar breathed between charges that grew less certain with each pass. "You're suicidal, Villain. You'll die on this ridge. I'll make sure of it!"</p>
+<p>Quinlan didn't answer. His elements answered for him: earth surged beneath Ragnar's leading foot and threw his balance sideways, magma pooled in the stumble's landing zone, and [Soul Reaper] found the gap in the recovery with three contaminated inches that sealed over a fourth site of primordial infection.</p>
+<p>The terrain was a corridor now. Every pass had narrowed the ridge further, funneled the dwarf toward the lines Quinlan wanted him on, and the magma glowing in the channels cast Ragnar's failing body in red-black light that matched the blood running down the Villain's arm.</p>
+<p>Ragnar's charges had less room with each exchange, the contamination spreading through his left side dragging that arm a fraction slower than his right, and the sounds rising from his chest had turned wet and labored as the ritual burned through the last of what it could spend.</p>
+<p>Quinlan then read the line the way Black Fang would have read it. When Ragnar's contamination-locked left arm dropped on the wind-up he put everything through the gap.</p>
+<p>His elements compressed into [Soul Reaper] alongside every thread of blood the wind had been feeding to the blade, and the saber bit into the widest seam of crimson instability on Ragnar's chest where accumulated contamination had turned fused armor-flesh into tissue that couldn't hold.</p>
+<p>The blade went through. Through plate, through flesh, through the body of the dwarf king who'd traded his future for power and met the one man willing to open his own veins to end him. The tip emerged from Ragnar's back, and the wound did not seal.</p>
+<p>Seven elements and a saber's edge had always been enough to defeat the dwarf king. Ragnar's ritual had just been refusing to let him die.</p>
+<p>Now... His knees hit the stone as the necrotic current failed outward from the chest, contamination reaching critical mass while fused armor-flesh lost cohesion and plates cracked apart without regenerating. The fortress he'd made from his own body was falling from the inside, losing to the riot happening inside while he was bombarded by Quinlan's strikes on the outside.</p>
+<p>His eye found the man, and the fury in it had lost its edge. "Is she really this important to you, Villain?"</p>
+<p>Quinlan didn't respond to his words even now and just pulled the blade free.</p>
+<p>The dwarf king fell forward onto the dirt of his kingdom as the Primordial Villain stood over him with crimson running from his forearm, bare-chested, swaying, his vision fading at the edges.</p>
+<p>But there was only one thing on his mind, and it wasn't connected to his injuries.</p>
+<p>'Black Fang... Wait for me.'</p>
+<p>"[Subjugation]."</p>

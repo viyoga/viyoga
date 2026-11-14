@@ -5,69 +5,73 @@ weight = 373
 chapter = 373
 +++
 
-<p>Since I asked if she could guess if I showed her, I slowly took off my clothes to show Yukiko my long, hard thing. Yukiko sat on the bed, watching me undress as if enjoying a male strip show. Her expression as she watched was very sexy and lewd, which was a bit funny, but it probably meant that my strip show (?) was satisfying to Yukiko.</p>
-<p>"Even though your skin is tan, you're still gorgeous, Ryuta♥"</p>
-<p>"Does it suit me?"</p>
-<p>"My preference is for pale skin, but any skin color suits Ryuta."</p>
-<p>Since I went straight to St. Francis Girls' Academy after tanning, it seemed like this was the first time Yukiko had seen this look in person, so she was examining it closely. I had sent her pictures a few times, but photos are different from the real thing, so Yukiko seemed to be looking closely.</p>
-<p>"Ah...! It seems like the color is a bit darker here too... And you can see the splits clearly on this side?"</p>
-<p>Yukiko, who had gotten off the bed at some point, was thoroughly examining my body. She seemed a bit like an ajumma, but that look was also cute, so I kept watching Yukiko admire my body.</p>
-<p>"But doesn't your skin look more muscular since it's darker?"</p>
-<p>"You'll feel that even more if you hug me tight like this?"</p>
-<p>I hugged Yukiko much tighter than usual. Since my stats were much higher than before, Yukiko didn't seem to be in any pain at all, and she snuggled even closer to me with a kyaak. Yukiko hugged me for a long time, as if she liked being held tight.</p>
-<p>"Ryuta... I missed you."</p>
-<p>"Me too, Yukiko."</p>
-<p>Since I was hugging her naked, my dick was still pressing against Yukiko's stomach. Of course, since I was naked, she would feel my dick even more vividly. Yukiko seemed to enjoy my dick pressing firmly against her stomach, and she wiggled her hips slightly before opening her mouth with a nonchalant expression.</p>
-<p>"Hmm... I still don't know. I guess I have to taste it directly with my mouth to judge?"</p>
-<p>Yukiko pushed my body away slightly and squatted down in front of me. Then, she licked from my balls to the tendon below my dick, and then my glans.</p>
-<p>It was just a lick, but it felt incredibly good. The moment Yukiko's tongue touched me, it felt like lightning struck in my head. Is this the power of a succubus's tongue? I was quite surprised that she gave me pleasure close to that of Simyeonui ttal.</p>
-<p>"I still can't tell just by licking♥"</p>
-<p>Yukiko smiled with hazy eyes, then opened her mouth wide and swallowed my dick.</p>
-<p>Ttsuep, ttsueb! Chup, chyuheup! Chup, ttsueup!</p>
-<p>Since Yukiko was the person I had been intimate with the most, she also knew my weaknesses the best. Since Yukiko, who had even equipped herself with the skills of a succubus (?), was sucking my dick, I felt an incredible pleasure that made my back arch involuntarily.</p>
-<p>"Keueut! It feels good, Yukiko-ssi...!"</p>
-<p>Yukiko looked up at me and asked with a look as if asking if it felt good, so I answered while holding back a moan. Yukiko seemed satisfied with my answer, and she made her eyes into crescent shapes and smiled. And she moved her head back and forth even more diligently. She's sucking while smiling, which makes me even hornier.</p>
-<p>As if determined to extract my semen, Yukiko grabbed my ass with both hands, which was trying to escape from the incredible pleasure, and moved her tongue and head to the end.</p>
-<p>I, who prided myself on being able to last quite a long time with my past sex experience, couldn't even last ten minutes and had no choice but to tell Yukiko that I was going to cum. That's how great the pleasure was.</p>
-<p>"I'm gonna cum, Yukiko-ssi...! I'm gonna cum!"</p>
-<p>Byueut! Beut! Byureureut!</p>
-<p>As the semen came out intensely, Yukiko's cheeks, which were holding my dick, swelled up with a huge amount of semen. Yukiko sucked out even the semen in my urethra, then rolled the semen in her mouth, tasted it thoroughly, and swallowed it. That act of tasting felt like a great sommelier tasting wine.</p>
-<p>"It's fresh semen that's only a day old?"</p>
-<p>It was true that it was only a day old. Because I had a lot of sex yesterday. How did she know that? Is it because she's a succubus? But when I looked at the content, it was a bit scary. It meant, "You had sex with another woman yesterday, didn't you?"</p>
-<p>"It's okay, Ryuta."</p>
-<p>When I made a slightly guilty expression, Yukiko gave me a benevolent smile and hugged me. And she continued to whisper in my ear.</p>
-<p>"I've come to understand that a guy like Ryuta will attract a lot of girls. And that's one of the reasons why I like Ryuta."</p>
-<p>I don't know why the fact that many women are attracted to me is a reason to like me. I decided not to dig any deeper and just think that good is good. Maybe it's because she's happy to be the woman of a man who is so popular.</p>
-<p>"Ah, we have to guess the thick, long thing from earlier, right?"</p>
-<p>"Yes, you tasted it with your mouth, so do you know what it is now?"</p>
-<p>I thought she would guess it by now, but Yukiko was still smiling playfully and took a step back, shaking her head slightly and answering innocently.</p>
-<p>"Hehet, I still don't know. I think I need to eat it with another mouth to know?"</p>
-<p>As she said that, she took off her clothes one by one, as if preparing to eat with another mouth. She took off her stockings with vertical stripes, which were quite sexy, and her tight-fitting pink dress, and her sexy lingerie that seemed to be matched, and became naked without wearing anything.</p>
-<p>The orange light of the sunset shining from the window behind Yukiko made her beautifully sculpted, near-perfect body shine even more, so my dick, which had just poured out a huge amount of semen, couldn't help but regain its strength quickly. That's how beautiful Yukiko was.</p>
-<p>"Yukiko, you're so pretty."</p>
-<p>"I'm happy... Hug me quickly."</p>
-<p>Yukiko's face turned red like a girl at my compliment that she was pretty, and she held out her hands to me. I didn't do as Yukiko expected and shook my head and answered.</p>
-<p>"Before eating with another mouth... I'm thirsty too."</p>
-<p>I approached Yukiko, made her stand with her legs apart, and brought my mouth to her pussy, which was closed in a straight line.</p>
-<p>"Heueungheut!"</p>
-<p>Yukiko made a sweet moaning sound as soon as I touched her tongue. Her attack power (?) had increased tremendously, but it seemed like her body had become more sensitive and her defense power had decreased because she hadn't done it for three weeks.</p>
-<p>I inserted my tongue into the slit that was split vertically and moved my tongue, and soon a sticky and sweet vaginal fluid like honey water gushed out like a spring. The taste was slightly different because she had become a fully awakened succubus, but as I said it was like honey water, it really seemed to have a slightly subtle sweet taste. This is quite delicious?</p>
-<p>"Heueuhang, euheut! It feels goodhang...! As expected, what Ryuta does is heueung♥ Better than doing it aloneahhat...! I like itahhang♥"</p>
-<p>I felt good because she praised my cunnilingus so much. Since it's a compliment from a succubus, it must be true that I've reached a certain level (?). In fact, I've done it with so many women so far, and it would be a problem if I couldn't reach a certain level with this experience.</p>
-<p>I continued to ravage Yukiko's pussy with my tongue. I licked around the mound of her pussy to tease her, then sucked her clitoris to give her extreme pleasure and drank the fiercely flowing vaginal fluid. Yukiko squirted several times and reached a grand climax.</p>
-<p>"Heueueung, stop...! Put it in now! Please put Ryuta's big thing in Yukiko's bottom nowoot...! Heueut!"</p>
-<p>I kept sucking until Yukiko begged. I want to put it in if she asks me to, but I wish she would ask me more lewdly....</p>
-<p>When I stopped sucking her pussy and looked at Yukiko, Yukiko seemed to have noticed my thoughts and opened her mouth with a seductive expression while lying on the bed with her legs apart.</p>
-<p>"Heueung, please put Ryuta's super thick dick in Yukiko's perverted pussyoot♥ Fill Yukiko's pussy with a lot of cum and fill Yukiko's baby room with white perverted juiceee♥"</p>
-<p>"Okay. I'll fill it up a lot."</p>
-<p>Yukiko is soon filled with joy at my answer that it's good. I brought my dick to her in the same position with her legs apart. And I moved my dick over her pussy. I could see the bottom part of my dick sparkling and being coated with vaginal fluid.</p>
-<p>"Heueu...! Heueut...! Don't be meanoo...♥ Put Ryuta's dick in quickly...!"</p>
-<p>"I'm just putting some of Yukiko's vaginal fluid on my dick. It won't go in well otherwise, will it?"</p>
-<p>"It's wet enough... Huh? Quickly♥"</p>
-<p>I couldn't bear to see Yukiko acting cute and asking me to put it in any longer, so I aligned my glans with her vaginal opening. And I opened my mouth while looking into Yukiko's eyes.</p>
-<p>"I'm going to put it in."</p>
-<p>"Yes, please put it in quickly, honey♥"</p>
-<p>I couldn't bear it any longer at Yukiko's sweet words of "honey," so I pushed my waist forward as it was. My dick reached the deepest part of her cervix as if being sucked in.</p>
-<p>"Heueuhat! It's here, it's here...! Ryuta's dickee♥ Heueut! It feels goodahang...! Haeut, heueung...!"</p>
-<p>Yukiko's vaginal walls, which had reached climax as soon as I put it in, were wriggling as if they were alive, and even her cervix was sucking my glans as if it had a will and was telling me to release semen. Of course, this was the first time I had felt such pleasure, so I almost ejaculated immediately.</p>
-<p>No way. My pride won't allow me to cum as soon as I put it in. I grabbed Yukiko's slender waist with both hands and slowly started to increase the pitch of my piston movement.</p>
+<p>After playing in the water with the female students, it was lunchtime before I knew it. There was no need to go all the way to the villa; the staff brought us a menu, and we could order and have it delivered to the beach where we were gathered.</p>
+<p>We were all sitting in a corner of a building that looked like a beach house, pondering the menu. From the outside, it seemed like a simple wooden structure, but the inside had that upscale Minamoto flair. The luxurious interior and the powerful air conditioning made it very comfortable.</p>
+<p>,Since it feels like a beach house, I'll order two servings each of yakisoba and grilled corn."</p>
+<p>I told Shido Tsubaki, who was walking around taking orders, the menu I had in mind. Since I was in a building that felt like a beach house, I decided to choose a menu that was mainly sold at beach houses. The menu even had yakisoba and grilled corn, as if they were aiming for that.</p>
+<p>,I understand. I knew you ate a lot, Sensei, but isn't two servings of yakisoba and two servings of grilled corn a total of four servings?"</p>
+<p>,Look at this body. I need to eat at least four servings to maintain it. I burned a lot of calories swimming all morning."</p>
+<p>I said to Shido Tsubaki while doing a side chest, a bodybuilding pose, while sitting down. Shido Tsubaki lifted her glasses with her finger, looked at my body, nodded, and opened her mouth as if to agree.</p>
+<p>,You certainly need a lot of food to maintain Sensei's body."</p>
+<p>The reaction was too calm, making me feel awkward... I shouted to Shido Tsubaki, who was going to listen to the other students' menus, to make the dessert shaved ice! Seizawa Shii, who was listening to the conversation at a nearby table, spoke to me. Seizawa Shii was wearing a white frilly bikini. Her casual clothes were also a frilly dress, so is she unifying the theme with frills?</p>
+<p>,Yakisoba and grilled corn? That's modest, Ryuta-chi?"</p>
+<p>,It's a beach house vibe. So I tried to pick a beach house menu."</p>
+<p>,Hee... I've never been to a beach house before~!"</p>
+<p>Well... Most of them here are daughters of prestigious families, so they probably haven't been to a beach house that sells cheap food.</p>
+<p>Only Urabe Konoka, who is not from a prestigious family as an adopted daughter of the Urabe family, or Oofuchi Erika, who is only from a prestigious family in name, would have experience with beach houses. Of course, Alik is also an adopted daughter of a prestigious family who was not originally from a prestigious family, but let's skip over Alik because Alik is Russian.</p>
+<p>,Tell me about beach houses, Ryuta-chi."</p>
+<p>,There's nothing special. There aren't many stores around the beach, so the perception is that they're expensive and tasteless. Sometimes, there's an event where guys trying to pick up girls flirt with the female employees..."</p>
+<p>Taira Ryuta didn't have much experience with beach houses (he only remembered buying yakisoba about twice.), so I told them a story about beach houses that I had seen somewhere.</p>
+<p>,Oh, really? There are no female employees or guys trying to pick them up here, so it'll be hard to see such interesting situations."</p>
+<p>,If it were a real beach house, wouldn't you be the one getting hit on rather than the female employees? You're much prettier than the employees..."</p>
+<p>I just said it nonchalantly, but when I thought about it again, it turned out to be a very flirtatious remark.</p>
+<p>,What are you saying? Ryuta-chi?! Since there are no guys trying to pick up girls, are you trying to pick me up, Ryuta-chi?"</p>
+<p>,Pick up? I'm just stating a fact."</p>
+<p>Seizawa Shii said something to me with a slightly flushed face, but she didn't seem to dislike it very much. Since I had already made a cheesy remark, I decided to just be brazen about it.</p>
+<p>While I was talking to Seizawa Shii, the staff brought the food. As expected, the quality was impossible for a beach house. The yakisoba was like it was made at a specialty restaurant, and the grilled corn wasn't just grilled, but had cheese powder and various seasonings sprinkled on it.</p>
+<p>Ei, the dessert didn't come out. Did Shido Tsubaki not hear my order? I'll think about the dessert later and eat what's out first.</p>
+<p>The other female students were also hungry and started gobbling up the food they ordered. They must have burned a lot of calories swimming all morning. Of course, they would be very hungry. Swimming especially burns a lot of calories.</p>
+<p>Because I heard the story about the beach house that I shared with Seizawa Shii, I shared some yakisoba with the female students who were curious, and I exchanged the menus that the female students gave me to eat a variety of foods. Eating the grilled corn on top of that satisfied my hunger.</p>
+<p>It would be perfect if I had a dessert here. I was about 85 percent satisfied, so I was even more eager for dessert.</p>
+<p>When everyone was done eating, the staff brought watermelons on a cart. There seemed to be about a dozen watermelons, roughly the number of students.</p>
+<p>,If you come to the beach, you have to break a watermelon!"</p>
+<p>Kujo Kina, who was already out in the shade of the beach, shouted with a stick in her hand while wearing a leopard-print bikini. It was quite a shocking bikini, but it suited her muscular body quite well.</p>
+<p>I thought it was strange that no one else ordered dessert besides me, but today's dessert was watermelon. The students must have planned the schedule among themselves, so they knew there would be watermelon breaking except for me.</p>
+<p>,After breaking the watermelon, Ryuta-chi is the Korean teacher, so we're going to make Korean dessert, watermelon hwachae."</p>
+<p>In addition to the game, it seemed like they chose the dessert with my subject as the homeroom teacher in mind. Certainly, when I looked again, cider and milk were also brought by the staff after the watermelon.</p>
+<p>They put the watermelon on a mat so that sand wouldn't get on it after it was broken.</p>
+<p>The very first hitter in the watermelon breaking was Konoe Akina. Konoe Akina was wearing a bikini with red flowers on a black background, which suited Konoe Akina's black hair and red eyes quite well.</p>
+<p>,Sensei, please cheer me on~♥"</p>
+<p>,Konoe, fighting! I'll buy you something delicious if you break the watermelon."</p>
+<p>Konoe Akina asked me to cheer her on and then covered her eyes with a long cloth. At that moment, a certain wave spread forward from Konoe Akina as the epicenter. She wouldn't be using her mystic eyes to get something delicious from me, would she?</p>
+<p>Konoe Akina quickly approached the watermelon and struck it with a stick. Everyone cheered and congratulated Konoe Akina on her success. Originally, you're supposed to cover your eyes and move in the direction that the people around you are calling out to break the watermelon. It's amazing that she broke it without listening. She must have used the power of her mystic eyes.</p>
+<p>After that, most of them failed. After Konoe Akina, the only people who succeeded were Otagi Yuka, Alik, Kujo Kina, and Saionji Diana.</p>
+<p>They were all people who were likely to succeed. The vampire Otagi Yuka, who has sharp senses, the martial arts practitioner Alik, Saionji Diana, and Kujo Kina easily broke the watermelon.</p>
+<p>Otagi Yuka found and smashed the watermelon with her sharp senses, and Alik found the watermelon by spreading microcurrents around her. Saionji Diana found the watermelon with her innate wind ability, and Kujo Kina smashed the watermelon with something like a wild sense. They all had their own unique characteristics, which made it fun to watch.</p>
+<p>When I think about it, five out of 12 people succeeded, so the success rate is quite high? Looking at this, I thought that our class might have the highest combat power in St. Francis Girls' Academy. Alik and Saionji Diana alone could probably beat all the students, though.</p>
+<p>,Okay! It's Sensei's turn last."</p>
+<p>Otagi Yuka, who was the last in line among the female students, handed me a long cloth. Otagi Yuka was wearing a red one-piece swimsuit that matched her hair color, which gave off a very seductive feeling. Except for the color, it was a one-piece swimsuit that didn't have any special features, but it seemed to give off that feeling because Otagi Yuka's body itself was firmly supporting it.</p>
+<p>,Shall I give it a try?"</p>
+<p>,Do your best, Sensei!"</p>
+<p>I decided to enjoy myself by moving as the students called out without using the abyss or other abilities. The staff was already cutting up the broken watermelon in the back to make hwachae, so it seemed like I could just enjoy the watermelon breaking and eat the hwachae.</p>
+<p>When I put on the eye patch, I could hear the students' voices guiding me.</p>
+<p>,It's on the right! Ryuta-chi!"</p>
+<p>,Go straight ahead~! Sensei!"</p>
+<p>Guided by the students, I struck the area where I thought the watermelon was with all my might, but it felt like I was striking the sand field.</p>
+<p>,Kyahahaha! How can you go to a completely different place, Sensei!"</p>
+<p>,Ahaha~! Ryuta-chi is so funny!"</p>
+<p>When I took off the eye patch, the watermelon was in a completely different place. It seemed like the students had guided me to a completely different place to play a prank. They were all mischievous.</p>
+<p>The next turn was Kijimoto Jurie's, but we decided to skip it to check on Naruse Shiyo, who was not feeling well for a while. As the homeroom teacher, I also asked about Naruse Shiyo's condition, and Kijimoto Jurie told me that she just needed to rest a little because she had overdone it playing today.</p>
+<p>The hwachae that the staff brought out was not much different from the one I used to eat before I possessed it, probably because they knew the recipe well and made it. It was a slightly nostalgic taste.</p>
+<p>,Um! This is delicious!"</p>
+<p>,It's sweet and cool."</p>
+<p>The watermelon hwachae was well received by everyone. Alik especially liked it, and she was eating it diligently without saying a word. I unknowingly looked at Alik and smiled like a dad. Even while eating the watermelon hwachae, the staff couldn't rest and were diligently making something like a sumo wrestling ring on the beach.</p>
+<p>That was probably the place where Kujo Kina and I would be sparring. When I looked to the side, Kujo Kina was wearing fighting trunks over her bikini and stretching. It was okay to fight right now, but I should at least pretend to stretch.</p>
+<p>It would be quite embarrassing if I beat Kujo Kina without even stretching.</p>
+<p>-------</p>
+<p>Swimsuits mentioned today~!</p>
+<p>Kujo Kina's leopard swimsuit</p>
+<p>It's hard to adjust the muscles ㄷㄷ But where did the leopard tail come from...?</p>
+<p>Konoe Akina's floral swimsuit</p>
+<p>Otagi Yuka's red one-piece swimsuit</p>
+<p>Nice, Otagi Yuka....</p>

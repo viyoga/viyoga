@@ -5,72 +5,77 @@ weight = 274
 chapter = 274
 +++
 
-<p>I returned to Japan from the United States a few days earlier than originally planned, so my vacation wasn't completely over yet, and I had a few days to spare before going to work.</p>
-<p>I decided to invest that free time in preparing for the future. Because the world will be increasingly filled with chaos.</p>
-<p>Since the Dignity Health Sports Park disaster caused by the famine, the talk about psychics has been noisy. It was such a big incident that not only the United States but the whole world was in an uproar.</p>
-<p>It's only natural. The psychic who appeared this time wasn't the kind of minor psychic who people commonly think of as levitating objects or bending spoons, but a monster who could kill as many as 26,000 people, so most people were terrified. Some people even panicked at the thought that famine could come at any time and kill them and their families.</p>
-<p>Some who didn't believe in this incident said it was just manipulation or a conspiracy theory, and the rest began to follow the psychics. The targets were Aitana, who stepped up to stop the famine first, and me, called the Black Knight. A few sucked up to the famine, but they were a very small minority.</p>
-<p>In fact, since there were only three psychics revealed to the public right now, it was natural that all eyes were on the three of us.</p>
-<p>But the Famine was a criminal whose whereabouts were unknown, and I also hid my identity with armor, so there was nothing, and only Aitana's identity was known, and she was appointed as the leader of the psychic unit as a propaganda project of the US government and became the face of the unit, so she is currently the most famous and popular psychic.</p>
-<p>Regardless of Aitana's popularity, so many people were shocked that they were demanding the creation of a psychic control bill that would register information about psychics and impose heavier penalties if they committed crimes.</p>
-<p>,Is this how it starts?"</p>
-<p>In ,MegaCorp's Youngest Son', it was simply stated that a psychic terrorist incident occurred in the United States, and the National Assembly was trying to pass a psychic bill.</p>
-<p>The player can decide the protagonist's position after hearing that information, and most players have acquired at least one trait that can be called a psychic by this time, so most players choose to prevent the passage of the bill and play the game.</p>
-<p>As this information spread, psychics who had been operating in the shadows assassinated congressmen who proposed the bill or issued statements that it would not be good for Korea if psychics were suppressed and forced to seek asylum in other countries, which was somewhat true, and similar incidents occurred not only in Korea but around the world, marking the beginning of a period of global chaos.</p>
-<p>Players who have already decided on their position have several options: they can passively support terrorist organizations in secret, or they can actively assassinate or terrorize politicians who suppress psychics themselves.</p>
-<p>As a result, the psychic bill is overturned, and after that, countries and corporations begin to compete for psychics. There were many abilities in the world, so even if you exclude the military side, there were quite a few ways to make huge profits if you did well, so a scouting war broke out.</p>
-<p>For reference, even if the player doesn't choose a trait that can be called a psychic and takes actions that support the bill that is unfavorable to psychics, the future is the same.</p>
-<p>Even if the player doesn't commit terrorism or assassination, other psychics will do it anyway, but rather, they will be branded as psychic discriminationists and will not be able to recruit psychics when playing the game. In other words, it was a choice that had no benefit and only increased the difficulty.</p>
-<p>I looked into what was happening in Japan, and a bill unfavorable to psychics was being created there as well.</p>
-<p>,I should sponsor some psychics too."</p>
-<p>I can think of a few Japanese psychic terrorist groups, and if I sponsor them even a little, they'll do well on their own. Even if I don't get my hands dirty.</p>
-<p>There were many people I needed to talk to about this. I needed to consult with Han Yu-gyeong in Korea, and I also needed to talk to the people at Seryu Military Company, who are my biggest force along with East Weapon.</p>
-<p>I couldn't go to Korea right away, and Han Yu-gyeong was scheduled to come to Tokyo soon for business due to her collaboration with Amsang, so I decided to go to the training ground where the Seryu Military Company people were training the children I had rescued and meet them first.</p>
-<p>The training ground was located in Okutama-machi, the westernmost town in Tokyo.</p>
-<p>Okutama-machi was included in Tokyo, but it had the largest administrative area and the second-lowest population, in other words, it was a rural area. Mount Kumotori, the highest mountain in Tokyo, is located there, and there are many mountains around it, so it was a place where PMC training grounds near Tokyo were located.</p>
-<p>Seryu Military Company was small and didn't have its own training ground, so it was currently borrowing East Weapon's training ground.</p>
-<p>Following the navigation, I drove up the mountainside on a rough road that was just enough to drive a car on, and I saw a building that looked like a training ground at first glance.</p>
-<p>There was a large, crude concrete building made in a two-story rectangular shape with no regard for design, as well as several container buildings and a building with a guard post that looked like an armory in front.</p>
-<p>I parked my car in the parking lot on one side, and the children who were training came down from the mountain and entered the training center building. They had rolled around quite a bit, as their digital training uniforms were all covered in dirt and their faces were full of dust. They were also carrying heavy-looking packs on their backs.</p>
-<p>The leader was Sawayanagi Tobe. Tobe looked a little surprised when he saw me.</p>
-<p>,Ryuta-gong...!, I didn't hear you were coming...."</p>
-<p>,I contacted Azuma yesterday, didn't you hear?"</p>
-<p>,Ah, I guess I didn't hear because I was on a 2-night, 3-day camping training exercise."</p>
-<p>His way of speaking was unique no matter how many times I heard it. Sawayanagi Tobe was usually a gentle man, but when he fought, he was a brave man with a fierce face.</p>
-<p>Anyway, a 2-night, 3-day camping training exercise, everyone must have suffered in this weather? There must have been a lot of mosquitoes too.</p>
-<p>,What's the training schedule for today?"</p>
-<p>,Everyone has worked hard for 2 nights and 3 days, so we plan to rest after maintenance today."</p>
-<p>It's not just rest, it's rest ,after maintenance'. Maintenance is also quite annoying, but it's not like I'm suffering....</p>
-<p>,Then shall we have a company dinner for the entire Seryu unit tonight? I'll pay."</p>
-<p>,If the president allows it...."</p>
-<p>Sawayanagi Tobe nodded at my dinner proposal, and the trainees cheered as if they had heard it. Then, someone ran out from among the trainees and stood in front of me. It was Alexandra Smirnova. She seems to have grown a bit since I last saw her? Her thin body had gained a little weight, and her chest seemed to be fuller than the last time I saw her.</p>
-<p>Is she growing now because she didn't get enough nutrition before? Or is it because of her trait? It's amazing.</p>
-<p>,Ryuta...."</p>
-<p>,How was the training, Alexandra?"</p>
-<p>,Call me Alik, Alik."</p>
-<p>Alexandra Smirnova, Alik, was asking me for a nickname, her eyes sparkling as if being called Alik was a huge reward for me. Well, she calls me Ryuta, so calling her Alik is nothing....</p>
-<p>,Okay, Alik. How was the training?"</p>
-<p>,Alik, training was easy. I used to just lie down and sleep in the meadows or alleys."</p>
-<p>She seemed to be talking about when she was wandering around before being captured by the slave traders. Even from Alik's point of view, having a tent would have been much better than before.</p>
-<p>,And Alik was praised for catching bugs well as Alik Pajikpajik."</p>
-<p>Using Alexandra, the infamous mid-boss, as an electric fly swatter.... I was a little dumbfounded, but I patted her head and said she did a good job.</p>
-<p>,Is there a conference room here?"</p>
-<p>,Um..."</p>
-<p>Sawayanagi Tobe nodded at my question. Now that I think about it, all the Kraskano children I brought are psychics, so these children also have the right to share the story.</p>
-<p>,It's a story about psychics, so please wash up and gather in the conference room. Including the new kids."</p>
-<p>,I understand, Ryuta-gong. Then...."</p>
-<p>Sawayanagi Tobe led the trainees into the dormitory building. Alik grabbed my pants and fidgeted as if she didn't want to go, but after hearing Sawayanagi Tobe's roar, she ran back to join the group of trainees.</p>
-<p>I also went into the building as I had heard from Sawayanagi Azuma in advance and went to the training staff room on the second floor. In the training staff room, Sawayanagi Azuma and Lianna Holden, the operator of the Seryu unit, were working on something with a computer.</p>
-<p>,Investor-nim~!"</p>
-<p>,Oh, handsome guy, hello!"</p>
-<p>The two of them greeted me very happily. I greeted them too and looked around, but there was no one else in the training staff room.</p>
-<p>,Where are the others?"</p>
-<p>,They went on a mission. We take turns teaching each of our assigned fields, so the rest have to earn money!"</p>
-<p>Ah, I see. It was a different system from the army training camp before I was possessed. There are only five new recruits and trainees, so there's no need for all the Seryu unit members to be tied up in the training camp.</p>
-<p>Still, I'm a little embarrassed. I was going to have a meeting with everyone at Seryu Military Company to discuss what to do in the future. There are only three people left if you exclude the trainees.... But there's nothing I can do. I should still talk about it since I came all the way here.</p>
-<p>,Do you know about the incident that happened in the United States this time?"</p>
-<p>,Yes. 26,000 people died.... I'm worried about the future."</p>
-<p>,Famine? I hate him!"</p>
-<p>Both Sawayanagi Azuma and Lianna Holden didn't look good. Since they are both psychics, they seemed very worried about what kind of oppression they would face because of this incident.</p>
-<p>---</p>
-<p>Alexandra, who would normally be a senior in high school.</p>
+<p>The Seryu Military Company outing happened to fall on the day the Seryu Group trainees finished their training camp drills. From this day forward, they would gain experience in real combat and be reborn as true members of the Seryu Group.</p>
+<p>I didn't know, but Mimata Chieri-ssi was also participating in this outing. Apparently, she was attending as a Seryu Group advisor? Following Fujigasaki Rinka, another strange person was joining. I was getting more and more anxious about how the outing would go, but it was only a two-night, three-day trip, so nothing major would happen, right?</p>
+<p>The valley we were staying at was located in Okutama Town, where East Weapon's training camp was. Since Okutama Town itself was mountainous, there seemed to be quite a few valleys. It seemed they chose it so the trainees could go straight to the valley after finishing their final training.</p>
+<p>The valley was called Hatonosu Valley, and it was said to have waterfalls and beautiful scenery. Sawayanagi Azuma-ssi had booked a nearby pension, so there wasn't much to prepare.</p>
+<p>Still, since we were having a barbecue party, I had to buy meat. I had to pick up Fujigasaki Rinka this morning, so I bought it in advance yesterday.</p>
+<p>I got a recommendation from the housekeeper for a place that sells high-quality beef and bought about 20 kilograms of Wagyu. Other people would bring sausages and pork, so this should be more than enough.</p>
+<p>I put the beef I bought in an icebox and packed a change of clothes and swimwear in my bag, then put it in the trunk.</p>
+<p>Fortunately, the airport where I had to pick up Fujigasaki Rinka was on the way to Okutama Town, so it wasn't too much of a hassle. If I didn't pick her up, I don't know what Fujigasaki Rinka would do to me, so I had to.</p>
+<p>It was still early Friday morning, so the traffic wasn't bad. I arrived at the airport much earlier than usual and waited for Fujigasaki Rinka to arrive while drinking coffee at a nearby cafe.</p>
+<p>It wasn't a secret that Fujigasaki Rinka was coming, so there would be a lot of reporters waiting. It must be similar to Son Heung-min before my possession, who had to face a lot of reporters when he returned to Korea.</p>
+<p>Since I still couldn't reveal my face, I didn't wait at the airport arrival gate and waited at a nearby cafe. If Fujigasaki Rinka shook off the reporters and came here, I could put her in the car and leave.</p>
+<p>I was drinking coffee and watching Fujigasaki Rinka's arrival live on my phone. As expected, since it was her first time entering Japan in a while, a huge number of reporters had gathered.</p>
+<p>As the door of the arrival gate opened, Fujigasaki Rinka entered with a barrage of camera flashes. It was still quite hot, but she didn't seem to mind wearing a black turtleneck and jeans.</p>
+<p>As expected, Fujigasaki Rinka, the best sports star in Japan, wasn't afraid of the cameras at all and started an interview as soon as she entered the arrival gate. She seemed used to it, as if this happened often.</p>
+<p>,Fujigasaki-ssi, what is the purpose of your return to Japan?</p>
+<p>,I came to rest in my hometown for a while. I also want to check if the Japanese martial arts world is doing well.</p>
+<p>Checking if the Japanese martial arts world is doing well? It wasn't something a 20-year-old woman would normally say, but Fujigasaki Rinka was one of the strongest in Japan, so it wasn't unreasonable at all.</p>
+<p>,Do you have any plans to be active while you are in Japan?</p>
+<p>,I don't have any specific plans, but if you have any suggestions, please contact my agency. Then peace!</p>
+<p>,Fujigasiki-ssi! Fujigasaki-ssi!</p>
+<p>Fujigasaki Rinka showed her unique peace sign with her thumb, index finger, and middle finger extended and tried to pass by.</p>
+<p>The reporters, not satisfied with just a few words, blocked Fujigasaki Rinka's path, but Fujigasaki Rinka passed through the numerous reporters like a ghost.</p>
+<p>The reporters won't be able to follow anymore, so she'll be here soon. I started drinking the half-finished coffee a little faster than before.</p>
+<p>Fujigasaki Rinka: I'm in the car. Please take out my coffee too. Iced~!</p>
+<p>As expected, she's fast. After finishing my coffee, I went to the counter and packed an iced coffee to go and went to my car. When I got in the car, Fujigasaki Rinka was sitting in the back seat.</p>
+<p>,Annoying, those reporters.... Should I kill one of the guys who wrote a weird article after reading the article? Oh, thanks for the coffee.</p>
+<p>Fujigasaki Rinka said something chilling that I didn't know if it was a joke or not and took the coffee I gave her. After taking a sip of coffee, she seemed to come to her senses and shouted, ,Kya!, like she was drinking alcohol.</p>
+<p>,Kya! I feel alive when I get some caffeine~!! Hey, disciple. Let's grab a bite to eat since it's morning.</p>
+<p>,What would you like to eat?</p>
+<p>Considering my position where I have to hide my identity as much as possible, it was a bit awkward to go to a restaurant with Fujigasaki Rinka, but she said it in advance, so she must have something in mind.</p>
+<p>,Pack a large-sized Gyudon from Yoshinoya.</p>
+<p>,Isn't Matsuya better?</p>
+<p>,You can eat at Matsuya. I'm going with Yoshinoya no matter what.</p>
+<p>Still, it seems she's thinking of eating in the car since she told me to pack it. By the way, she's a master who doesn't know good taste since she doesn't like Matsuya. I went to Yoshinoya near the airport and packed two large-sized Gyudon and one large-sized Butadon.</p>
+<p>,Kyaa! It tastes much better in Japan than in America!</p>
+<p>Fujigasaki Rinka ate the Gyudon as if it was very delicious, and I watched her and took out the Butadon to eat. I didn't eat breakfast either, so even though I didn't really like Yoshinoya, I ate it quite deliciously.</p>
+<p>,Ugh~! That was good. By the way, what is that company you're going to for the outing today?</p>
+<p>,You said you were participating in the outing too, Sabe-nim, so why are you asking now?</p>
+<p>When I looked at her with a dumbfounded expression, Fujigasaki Rinka laughed heartily again, ,Kyahaha!</p>
+<p>,I'm joining because I want to have fun too. Our youngest son of Japan's richest family must be busy, so I'm saving you time to meet me separately.</p>
+<p>Hmm, she says she's joining the outing to save my time, so I have nothing to say. Still, she's a master who cares about her disciple in her own way.</p>
+<p>,I have a commercial shoot from Monday.</p>
+<p>,So you came because of the commercial?</p>
+<p>,Kyahahat! It's a combination of things! If you saw my interview, you would have heard that I also have something to check in the Japanese martial arts world....</p>
+<p>Is there something in the Japanese martial arts world? The moment Fujigasaki Rinka's eyes became serious, I couldn't help but wonder if something had happened.</p>
+<p>I don't really care about the Japanese martial arts world, so I don't know how it's going, but if Fujigasaki Rinka is coming to Japan in person like this, something big might happen. I should ask her later.</p>
+<p>,More than that, answer what I asked, disciple. What company outing is it?</p>
+<p>,It's Seryu Military Company, a company I invested in. We're gathering to spend the weekend in the valley with those people.</p>
+<p>,Oh, you have a PMC? That's amazing?</p>
+<p>Of course, since it's Seryu 'Military' Company, Fujigasaki Rinka must have immediately recognized it as a PMC. After eating all the takeout food, I collected the trash and threw it in the nearby trash can, then entered the Hatonosu Valley pension into the navigation system and started the car.</p>
+<p>,Hatonosu Valley? Let's search it up....</p>
+<p>After asking me for the destination, Fujigasaki Rinka started searching for Hatonosu Valley. Fujigasaki Rinka nodded as if she had found something she liked.</p>
+<p>,Since there's a waterfall, I can train here!</p>
+<p>She's usually a frivolous older sister, but she's really serious about martial arts, even more than Kiyohira. She must have become the UMC openweight champion as a woman because of this desire to improve.</p>
+<p>Looking at the arrival time, it took more than two hours from Haneda Airport to Hatonosu Valley. The meeting time was around 11 o'clock, so I could arrive much earlier. Then I should go to the training camp and pick up some trainees.</p>
+<p>There are only two cars at the training camp, so they'll have to squeeze in, so it would be good for me as an investor to help them out.</p>
+<p>,We have plenty of time, so I'll stop by the training camp before going to the valley.</p>
+<p>,Do as you please. I'm going to sleep for 2 hours while we're going. I'm a bit tired because of the time difference.</p>
+<p>The time difference between LA and Japan is a whopping 16 hours, so even Fujigasaki Rinka, who is a superhuman, must be tired.</p>
+<p>I glanced at Fujigasaki Rinka, who was closing her eyes, in the rearview mirror and turned on the music I listen to while driving.</p>
+<p>~♬ ~♪</p>
+<p>While listening to music and humming along, I was able to arrive at the training camp where the Seryu Group trainees were training. Fujigasaki Rinka really meant it when she said she would only sleep for 2 hours, as she opened her eyes almost perfectly on time. Fujigasaki Rinka stretched her arms out and smiled. She had an expression that said she was in top condition.</p>
+<p>,Hmm, I'm getting used to it now.</p>
+<p>She overcame the 16-hour time difference with just 2 hours of sleep, what an amazing Sabe-nim.</p>
+<p>I parked the car in the training camp parking lot and came out with Fujigasaki Rinka. I saw them when I came in, the trainees were lined up on the training camp's front yard listening to Sawayanagi Azuma-ssi's speech. It seemed like they were decorating the end of the training with a speech.</p>
+<p>,Everyone, you've worked hard for several weeks. Now you are true members of the Seryu Group.</p>
+<p>,Waaaaah!</p>
+<p>The speech ended just as we arrived, and the trainees were cheering. They all seemed quite happy that the training in the mountains was over.</p>
+<p>,Ryuta~!</p>
+<p>As soon as Sawayanagi Azuma-ssi's speech ended, Alik ran to me with an otododo and hugged me tightly. I stroked Alik's head. Alik was looking up at me with his hands clasped together. Alik was wearing a green field jacket with the Seryu Military Company logo on it, as if it was given to the trainees who finished the training. It looked quite big on Alik, but there's still room for growth, so it'll fit perfectly later.</p>
+<p>,You worked hard, Alik.</p>
+<p>,Alik had fun.</p>
+<p>Fujigasaki Rinka silently looked at Alik and then opened her mouth to me.</p>
+<p>,Disciple, what is this cute creature?</p>

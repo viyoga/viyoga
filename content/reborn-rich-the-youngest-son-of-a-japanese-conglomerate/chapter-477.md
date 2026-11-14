@@ -5,74 +5,92 @@ weight = 477
 chapter = 477
 +++
 
-<p>The trembling from the chain could have been pleasure or the anxiety of being caught, but Kurayamada Kirie began to walk, her white naked body reflecting the moonlight and the scattered streetlights.</p>
-<p>"Just how much of a pervert do you have to be for a girl who was a virgin until recently to ask to be fucked outside? You're so horny right now you can barely walk, huh?"</p>
-<p>"Hngh...!"</p>
-<p>She moans at my verbal abuse, dripping wet onto the ground. Since the park isn't well-maintained, she's wearing shoes, so hopefully she won't slip on her own juices.</p>
-<p>The park had a paved pedestrian path in an oval shape. Outside the path, trees were planted, and inside the path was a lawn. Streetlights between the path and the trees shone towards the lawn, making the areas with many trees relatively dark.</p>
-<p>Perhaps that's why, even though Kurayamada Kirie was walking on the path, she was instinctively moving towards the trees.</p>
-<p>"Don't go too close to the trees, walk in the middle of the path. Are you shy even though there's no one around?"</p>
-<p>I pulled the chain to keep Kurayamada Kirie from deviating from the route I had in mind.</p>
-<p>"Eheheung...! Isn't it natural to be embarrassed? I never said I wanted to take a nude stroll...! Hngh♥"</p>
-<p>Ah, that's right? Come to think of it, Kurayamada Kirie asked to be fucked outside, but she never mentioned wanting to take a nude stroll. I was so focused on the 'outdoor' part of outdoor sex that I ended up making her take a nude outdoor stroll, so Kurayamada Kirie might feel wronged.</p>
-<p>But we're already doing it, so there's no helping it. Judging by how wet she is, she seems to be enjoying it somewhat.</p>
-<p>"For someone who's embarrassed, you're awfully wet, aren't you?"</p>
-<p>I casually touched her ass and then moved my hand down to check her pussy, my fingers glistening with her juices. Kurayamada Kirie couldn't handle the pleasure from my slight touch and momentarily lost her balance, staggering.</p>
-<p>"Heeuuhng...! How can you touch me so suddenly?!"</p>
-<p>"Stop complaining and let's go. I looked it up beforehand, and the restrooms smell bad, so there's a forest-like area with lots of trees over there. We can do the real thing there."</p>
-<p>The place I pointed to was quite far away. It was on the opposite side of the park from where we were, so walking at this pace would probably take another ten minutes.</p>
-<p>As we slowly walked towards our destination, I heard regular footsteps in the distance. I could feel Kurayamada Kirie flinch as she heard the sound too.</p>
-<p>"Hngh!"</p>
-<p>"Don't get excited, come over here."</p>
-<p>I pulled Kurayamada Kirie's leash, who had hesitated, and dragged her under the shade of a tree. Kurayamada Kirie limply followed and leaned against me. I used Shadow Domination to darken the surroundings a bit more.</p>
-<p>The source of the footsteps was a man jogging. Even though it was deserted, it was still a park, so it seemed there were people exercising.</p>
-<p>"Hoo...! Hoo...! Hoo...!"</p>
-<p>The jogging man passed by us with regular breaths, and I looked at Kurayamada Kirie, who was leaning against me. Kurayamada Kirie was trembling and looking up at me.</p>
-<p>"Is he gone?"</p>
-<p>"Yeah, he's gone."</p>
-<p>She was curious and wanted to try outdoor play, but she seemed quite afraid of getting caught. It was refreshing to hear her speak informally, without the usual honorifics, showing she didn't even have the composure for that. I was initially indifferent to outdoor play, but seeing Kurayamada Kirie scared stimulated my sadistic side, making me want to torment her more.</p>
-<p>"Now, let's put this in and go."</p>
-<p>I handed Kurayamada Kirie a vibrating sex toy called an egg that could be inserted into her pussy. Kurayamada Kirie received the egg with a look that said, 'You even prepared something like this?' Then she nodded and lowered her hand to insert the sex toy into her pussy.</p>
-<p>Kurayamada Kirie's strength was that she would quickly agree to things like this, driven by her strong sexual curiosity and desire.</p>
-<p>"Heeuhheeung...!"</p>
-<p>As soon as she turned on the vibrating sex toy, she lost her strength and briefly sat down, but she got up again and walked steadily, moaning.</p>
-<p>It was fun to hear her moan with every step, so I kept changing the intensity of the vibrations as we walked. I would lower the vibrations to reassure her, then suddenly increase them again, and we would hide in the shade of the trees whenever the jogging man passed by. Eventually, we arrived at our destination, a dense forest of trees.</p>
-<p>But it seemed I wasn't the only one who thought this was a good place to fool around. As we got closer, I sensed a presence. This time, instead of hiding, I confidently walked in as if I were walking a dog. I saw several students in Miyashi Municipal High School uniforms, another school in Miyashi, smoking cigarettes.</p>
-<p>Miyashi Municipal High School wasn't a school for young ladies like St. Francis Girls' Academy, but a typical co-ed school. It was far from St. Francis Girls' Academy, so we didn't have many chances to run into them, but it seemed we met now because this park was close to Miyashi Municipal High School.</p>
-<p>They were probably trying to escape the eyes of adults and engage in delinquency in this dense area. I glanced over and counted five of them, squatting or leaning against trees, puffing away.</p>
-<p>"Heeuh, heeuhheeung♥ As promised, haaht! We came all the way here, haaheeuhheung...! Put it in quickly♥"</p>
-<p>Kurayamada Kirie was terrified of getting caught when the jogging man first passed by, but after having the egg vibrating inside her for so long, she didn't seem to care that some students were watching her. Or rather, she couldn't even feel their presence because of the tantalizing pleasure.</p>
-<p>Still, for the sake of minimal privacy, I used Shadow Domination to darken Kurayamada Kirie's and my faces with shadows, making them unseeable.</p>
-<p>"Heh...! What's this? Did you come to show us porn?"</p>
-<p>"Her boobs are a bit small, but the rest of her body is amazing, though?"</p>
-<p>"Hey mister, why don't you let us join in?"</p>
-<p>Of course, the kids smoking in a place like this couldn't be normal students, and they were obviously delinquent thugs. And when I looked closely at what they were holding, it wasn't even cigarettes. It looked like marijuana or some other kind of drug. Their eyes were definitely gone.</p>
-<p>The five of them were slowly approaching us, trying to intimidate us. They all had a knowing smirk, as if they were used to this kind of situation.</p>
-<p>"Looks like we can't put it in with these interrupters around?"</p>
-<p>I ignored the students and spoke to Kurayamada Kirie, who was still writhing seductively and begging me to put it in.</p>
-<p>"If I kill them, will you let me do it?"</p>
-<p>"Don't kill them."</p>
-<p>At my words, Kurayamada Kirie's eyes changed as she asked me. I smiled and told her not to kill them. The Miyashi police were already having a hard time because of the St. Francis Girls' Academy terror attack, so it would be even more chaotic if multiple student corpses were found in the park. I had to be considerate.</p>
-<p>"Okay. I'll be back before the toy gets cold."</p>
-<p>Kurayamada Kirie pulled the egg out of her pussy, said it like Guan Yu, and ran towards the students, naked except for her high heels.</p>
-<p>When I thought about it calmly, wasn't this a slightly scary scene? A woman with an unseen face being dragged by a leash, running towards you with murderous intent. Of course, the students didn't know exactly what was going on, but they were smoking something with narcotic leaves, so they weren't feeling any fear and were muttering nonsense like, 'Are you running to give yourself to us?'</p>
-<p>I was curious to see how the swordswoman Kurayamada Kirie would fight without a weapon, so I allowed her to fight without intervening myself.</p>
-<p>"Hap!"</p>
-<p>Kurayamada Kirie swung her foot and kicked the Adam's apple of the student in the lead with her toe. That was unexpected. I thought she would use kung fu, but it seemed she mainly used kicks when she didn't have a sword. Then again, her thighs were quite developed, so her kicking skills probably weren't bad.</p>
-<p>After knocking one person down with a single blow to the Adam's apple, Kurayamada Kirie lifted her body into the air, spread her legs, and struck two people simultaneously. Instead of hitting vital points like the Adam's apple, she punched the chins of the two staggering figures with pinpoint accuracy to knock them unconscious. Meanwhile, one of the remaining two grabbed Kurayamada Kirie from behind.</p>
-<p>"I got her! I'll hold her, so beat her up!"</p>
-<p>"You bitch...! Die!"</p>
-<p>Being grabbed from behind was dangerous, but Kurayamada Kirie wasn't someone who would be easily defeated by mere high school delinquents. Kurayamada Kirie kicked backwards, striking the guy grabbing her from behind in the crotch with the heel of her high heel. Then, she wrapped the chain around the wrist of the guy reaching out to punch her, pulled him in, and used the momentum to punch him in the philtrum, knocking him unconscious.</p>
-<p>"Kuaaaaah!"</p>
-<p>Kurayamada Kirie approached the guy who was rolling around grabbing his crotch and began to mercilessly stomp on him. Several teeth flew out as his mouth was hit by the high heel, and even though he fainted from the pain, she hit him several more times.</p>
-<p>Why is she only hitting that guy so relentlessly? When I thought about it, he was the one who told Kurayamada Kirie that her boobs were small. Hmm, I should be careful when talking about a woman's body too.</p>
-<p>"Haa, haa, haa.... Now there are no interrupters, right? Put it in quickly♥"</p>
-<p>Kurayamada Kirie leaned her arms against a tree and swayed her hips, seducing me. She seemed to want me to put it in even more, perhaps because she was feeling the excitement of battle in addition to her existing arousal.</p>
-<p>The atmosphere wasn't exactly conducive to sex with the delinquent students from Miyashi Municipal High School lying around like corpses, but I had promised, so there was no helping it. The vibrating egg she had been holding in her hand before the fight was still warm.</p>
-<p>"Good job. You're a good girl for keeping your promise."</p>
-<p>I placed the still-warm vibrating egg between Kurayamada Kirie's spinal erectors on both sides of her back and grabbed her slender waist. Then, I slowly pushed my dick into Kurayamada Kirie's hot, wet pussy.</p>
-<p>"Haaheahaaahang♥ Th, this is it, haaahng!"</p>
-<p>-----</p>
-<p>Cover B-cut!</p>
-<p>I realized that Simyeonui ttal hasn't been on the cover before, so I decided to make her the cover!</p>
-<p>After considering various factors, I decided on the current cover!</p>
+<p>After successfully completing the milk(?) gift date with Sakagami Rena, the next two were with Kujo Kina and Otagi Yuka. As Kujo Kina had said on the day the exam results were revealed, I bought exercise equipment with her and then installed it in the large private gym in her house, where we spent time working out together.</p>
+<p>The Kujo family's servants seemed to be whispering about me, a male guest who had suddenly appeared, but they didn't do anything particularly bad(?), and since I only worked out hard with Kujo Kina in the gym, they seemed to think I was just a visiting trainer and didn't pay much attention.</p>
+<p>The next day, I had a normal date with Otagi Yuka, but since Otagi Yuka also wanted to receive my Semen as a gift like Sakagami Rena, we had a normal date, and at night, she received Semen in both her Pussy and a glass bottle at my house, returning with a satisfied expression.</p>
+<p>Everyone decided to give me time off on the weekends, so today, Friday, was the last gift date of the week. The person I was supposed to have a date with today was Oofuchi Erika. Oofuchi Erika looked at me during the closing bell and opened her mouth.</p>
+<p>,Please have a home date at my house!</p>
+<p>A home date... Then how do I give the gift? Oofuchi Erika seemed to have completely forgotten that it was originally an event to give gifts, not a date.</p>
+<p>,How are you going to give the gift?</p>
+<p>,Please choose it together on the computer at home.</p>
+<p>Ah, she meant buying a gift online at home. As soon as it was decided that I would have a home date with Oofuchi Erika, the class became quite noisy.</p>
+<p>,Ooh~! Ryuta-cchi, just because you're alone with Oofuchi-ching, don't do anything weird to her~!!</p>
+<p>,That's right, no perverted stuff!</p>
+<p>,No perverted stuff, but if it's Oofuchi, wouldn't you play VR games together?</p>
+<p>The special class students were making a fuss because the decision for a home date was made due to the lewd feeling of being alone at home.</p>
+<p>,No! My mother is at home!!</p>
+<p>Oofuchi Erika shouted back at the students' fuss. The whole class went silent at the mention of her mother. There was only one person Oofuchi Erika called mother.</p>
+<p>,If it's her mother... Does that mean the Director-nim is there?!</p>
+<p>,Ryuta-cchi, uh... have fun...!</p>
+<p>,Shall we go to the club room now?</p>
+<p>Everyone seemed uncomfortable with the Director, Daigo Terue, and the level of interest in the date with Oofuchi Erika was dropping drastically in real time.</p>
+<p>It seemed that most people thought that even if it was a home date, it wouldn't be just the two of us, and there wouldn't be much to it with the Director, Daigo Terue, there. I had similar thoughts. Even though I have a relationship with Daigo Terue, I wouldn't be able to have sex there with her goddaughter, Oofuchi Erika, present, and I thought we would probably just have a very dry conversation.</p>
+<p>,I'll go home first and get ready.</p>
+<p>,I, I need to get ready too, so please come at your leisure, Sensei!</p>
+<p>Since she was showing me her house, she probably needed to tidy up and such. As Oofuchi said, I decided to prepare slowly and go to the Daigo family's mansion.</p>
+<p>###</p>
+<p>,Mother! Mother!</p>
+<p>Oofuchi Erika, who had returned from school, took off her shoes as if throwing them and hurriedly called for Daigo Terue.</p>
+<p>,What's wrong?</p>
+<p>Daigo Terue, with the experience of a Director-nim, was not surprised by Oofuchi Erika's attitude and calmly asked what was wrong.</p>
+<p>,Fath..., no, Yamashiro-sensei will be visiting our house today.</p>
+<p>,For what reason...?</p>
+<p>Daigo Terue asked, slightly flustered, at Oofuchi Erika's words. She had often met Yamashiro Ryuta and had physical relations, but they had never met like this when her daughter was present.</p>
+<p>,Sensei decided to give gifts to the students with good grades in the class this time. So I told him to come to my house to buy them online.</p>
+<p>Daigo Terue nodded at Oofuchi Erika's explanation. Although she was currently suspended, news from the academy was still coming in.</p>
+<p>Daigo Terue had also heard that the special class currently had the best grades among the third-year students and was slightly questioning it. Even looking at the special class's first semester grades, they weren't that good. She had never even imagined that they would achieve the highest grades among the third-year average, not just a moderate increase in grades.</p>
+<p>However, after hearing Oofuchi Erika's words this time, she had no choice but to agree. All the girls in the special class had done their best to receive gifts from their handsome homeroom teacher. It was still the girls' puppy love, but love must have allowed them to overcome many things.</p>
+<p>Above all, Oofuchi Erika was very smart, but she was a hikikomori who didn't attend school and only studied the subjects she liked, so her average score wasn't that high, but this time she ranked second in the entire school, making Daigo Terue very happy.</p>
+<p>Thinking that all of this was thanks to Yamashiro Ryuta, she thought she had done well in choosing Yamashiro Ryuta as the homeroom teacher for the special class.</p>
+<p>,I'm going to change my clothes... Mother, please change into pretty clothes too.</p>
+<p>,M-Me too, you want me to change clothes?</p>
+<p>,Yes! I'll choose them for you.</p>
+<p>Oofuchi Erika said "Yes!" in a solemn and serious tone when told to change her clothes too. I couldn't figure out what she was thinking.</p>
+<p>###</p>
+<p>Although it was a home date, I couldn't discriminate against the other students, so instead of comfortable clothes, I dressed up to some extent and headed to the Daigo family's mansion. I couldn't wear overly comfortable clothes since Daigo Terue was there too.</p>
+<p>Ding-dong!</p>
+<p>,Ah! Sensei, I'll open it right away!</p>
+<p>When I rang the bell, I heard Oofuchi Erika's voice, sounding quite excited. Soon, the door opened, and Oofuchi Erika, dressed in casual clothes, greeted me as I entered the house.</p>
+<p>Oofuchi Erika was wearing a casual yet slightly provocative outfit, with a cropped top hoodie over jeans, revealing her slender waistline. I didn't know, but Oofuchi Erika's waistline was quite pretty.</p>
+<p>,Welcome, Sensei! Come in.</p>
+<p>As I passed through the entrance and into the living room, Daigo Terue was there, wearing a dress with a flushed face. She was wearing a full-fledged dress as if she were attending an evening party, which was probably Oofuchi Erika's doing. No one would wear a dress that revealed one leg so much inside the house.</p>
+<p>I had met Daigo Terue privately several times, so I knew that Daigo Terue didn't usually wear this style of clothing. Naturally, I couldn't help but think it was Oofuchi Erika's scheme.</p>
+<p>She often called me "Dad," so it seemed like she was trying to connect me with her godmother, Daigo Terue. In fact, my body and Daigo Terue's were already connected enough, so Oofuchi Erika's scheme(?) had already succeeded.</p>
+<p>,Hello, Director-nim. Excuse me.</p>
+<p>,Y-Yes... Welcome.</p>
+<p>,That dress looks great on you.</p>
+<p>Daigo Terue's face flushed at my words that the dress looked good on her. She probably knew that such an outfit was not suitable for wearing inside the house.</p>
+<p>Sitting on the sofa in the living room, I decided to take care of the gift, which was the purpose of my visit here.</p>
+<p>,So, have you chosen a gift?</p>
+<p>,Yes! This one...</p>
+<p>Oofuchi Erika showed me her phone at my question, and it was a part for VR equipment. It seemed that she was interested in this field, so she chose something related to VR.</p>
+<p>,Just a moment...</p>
+<p>Looking at Oofuchi Erika's screen, I bought the part that Oofuchi Erika had chosen with my phone. Of course, I didn't forget to change the shipping address to here.</p>
+<p>,Thank you~!</p>
+<p>,It's nothing, Oofuchi, you worked hard, so I'm giving you a gift... If you're grateful, get good grades next time too.</p>
+<p>Actually, I couldn't do anything similar to a date with Oofuchi while her mother was watching, and I could say that my mission was complete if I gave her the gift, but seeing Daigo Terue dressed so splendidly, I couldn't bring myself to say that I was leaving right away. It seems that Oofuchi Erika's scheme has succeeded.</p>
+<p>,Sensei, since you've come all this way, have a cup of tea and stay for dinner!</p>
+<p>,Yes, that's right. You've led Oofuchi well, so please let us treat you to a meal.</p>
+<p>Because Oofuchi Erika and even Daigo Terue kept telling me to stay, I had no choice but to keep sitting there.</p>
+<p>Soon, black tea and a slice of cake came out, and we enjoyed refreshments while talking. Most of the conversation was about Oofuchi Erika's school life or the students in the special class, and Daigo Terue seemed to enjoy listening to the stories, perhaps because they were about her goddaughter and her friends.</p>
+<p>While we were talking for a while, Oofuchi Erika clapped her hands as if awkwardly realizing something and stood up from her seat.</p>
+<p>,Ah! I forgot about this...!</p>
+<p>What is it? It was quite awkward acting. Daigo Terue didn't seem to think that Oofuchi Erika's awkward appearance was acting and asked what was wrong.</p>
+<p>,I was supposed to stay overnight at Tsubaki-chan's house on Friday and Saturday, but I forgot. Mother, can't you entertain Sensei?</p>
+<p>Tsubaki-chan must be referring to Shido Tsubaki. Is it just my imagination that the word "entertain" sounds a bit lewd? Daigo Terue opened her mouth with a slightly stern expression.</p>
+<p>,Oofuchi, Sensei is a guest you invited. This is not polite.</p>
+<p>,But I promised my friend... It's been almost years since I went to a friend's house...</p>
+<p>Daigo Terue spoke sternly, but Oofuchi Erika had been a hikikomori for so long, so it must have been a long time since she went to a friend's house. That's why I could see Daigo Terue's eyes trembling. According to etiquette, Oofuchi should stay with me until I go home, but I could feel her worrying that she might be ostracized by her friends if she didn't go to this gathering.</p>
+<p>,I'm fine. I have something to talk to Director-nim about separately anyway... And it would be good for Oofuchi to get along with her friends.</p>
+<p>Actually, I was horny from seeing Daigo Terue in her dress, so I wanted to send Oofuchi Erika away. I said that it was okay for Oofuchi Erika to leave, though I was a little disappointed. Oofuchi Erika laughed "ufu-fu" at my words that it was okay.</p>
+<p>,Sensei, I'm sorry. Our child is immature...</p>
+<p>,It's okay.</p>
+<p>,Then I can go, right?!</p>
+<p>Having received permission, Oofuchi Erika immediately went to her room on the second floor, packed her bags, and came down.</p>
+<p>,Sensei, I'm sorry, I'll be going! Please have fun!</p>
+<p>Oofuchi Erika bowed to me and went to the entrance. Soon, I heard her loud voice from the entrance, "Mother, I'm off!" and the sound of the door closing.</p>
+<p>----</p>
+<p>Daigo Terue Dress B-cut</p>
+<p>I made several dresses ㅎㅎ</p>
+<p>Oofuchi Crop Hoodie B-cut!</p>
+<p>I like the waistline ♥</p>

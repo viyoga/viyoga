@@ -5,72 +5,87 @@ weight = 330
 chapter = 330
 +++
 
-<p>,Why are you just standing there? You saw it too. He was definitely looking at your chest!</p>
-<p>,There's no proof in his eyes. If he pretends he didn't see it, there's nothing we can do.</p>
-<p>Ah, so they're fighting because I looked at their chests. It wasn't like I was trying to flirt on purpose, it's just a natural male instinct. Naturally, if there are bouncy, fleshy hills in front of my eyes, I can't help but look. Looking at the time, it was already past the time to go to work, so I left them to fight and headed to the building where the Special Class, my workplace, was.</p>
-<p>,Teacher.</p>
-<p>,Oh, Taira-yang?</p>
-<p>Someone called my name, so I looked and it was Taira Kanna. She comes to school pretty early. Next to her was a short-haired girl with glasses looking at me.</p>
-<p>,I told you to call me by my name.</p>
-<p>,Ah, right. Sorry, Kanna-yang.</p>
-<p>Taira Kanna was puffing up her cheeks and correcting me, as she didn't like being called Taira-yang. I did tell her to call me by my name yesterday. I forgot.</p>
-<p>,But who is this?</p>
-<p>,Ah, this is Sakazuma Aasa, the secretary of the student council. Aasa, this is Yamashiro Ryuta-ssi, the teacher who was recently appointed. We knew each other briefly when we were young.</p>
-<p>,Hello.</p>
-<p>,Oh, yeah. Hello?</p>
-<p>She was a member of the student council. Being in the student council must be a little tough. They have to come to school earlier than other students. They must be busy because they have student council work in addition to the basic things that students have to do.</p>
-<p>,But what brings you to the faculty office building?</p>
-<p>,I came to get the list of added students because the number of students taking Korean classes has increased.</p>
-<p>,You've gone through trouble to come. St. Francisco Girls' Academy is strict about this kind of student information. They adhere to the principle of distributing documents directly rather than emails that are at risk of hacking.</p>
-<p>Ah, I see. The students at St. Francisco Girls' Academy are all daughters of prestigious families. In other words, they are sensitive to privacy. It seemed that they were sticking to the policy that it was better for the teacher to go and receive the documents directly rather than sending them by email and having the students' information leaked.</p>
-<p>I thought they were just being stubbornly Japanese. Like sticking to seals or using old floppy disks.</p>
-<p>,That's what it was.</p>
-<p>,Chairman-nim, if we don't leave now, we'll be late for the meeting.</p>
-<p>,Really? Thanks for letting me know, Aasa. Ryuta-sensei, I'll be going now.</p>
-<p>At Sakazuma Aasa's words that it was time for the meeting, Taira Kanna greeted me with a graceful attitude and went to do that meeting. I also hurried on my way to the education preparation room.</p>
-<p>Let's see... Nothing special came in on the fax. It said that physical education classes would be replaced with indoor classes because of the heat wave warning during the day. Our class doesn't have physical education today though....</p>
-<p>Come to think of it, I hadn't checked the list of students taking Korean classes that I just received. After calling attendance yesterday and asking the kids in our class, none of them were taking it, so I wouldn't know any of the names, but...?</p>
-<p>Why are all four of the new students in our class? Konoe Akina, Otagi Yuka, Minamoto Risa, and Seizawa Shii were added to the list of students taking Korean classes.</p>
-<p>I can understand Konoe Akina and Otagi Yuka since they know my identity, but I don't know why Minamoto Risa and Seizawa Shii changed to Korean classes.</p>
-<p>There's class today, so I should think about the scope of the class... But shouldn't the new students learn from the beginning? Who should I ask about this?</p>
-<p>After thinking for a while, I decided to ask Taira Kanna, who was the most likely person to ask. I couldn't ask the principal or the Kasaoka couple I met in the 3rd grade head teacher's office. I only knew the other teachers by face and didn't know their contact information, so I ended up choosing Taira Kanna.</p>
-<p>Taira Ryuta: Sorry, but can I ask you something?</p>
-<p>Taira Kanna: Of course.</p>
-<p>Taira Ryuta: It's about the new students who came to the Korean class. They wouldn't have taken Korean classes in the first place, so I don't know how to proceed with the curriculum.</p>
-<p>Taira Kanna: That's definitely a problem. But the teacher only prepared for this semester's classes, right?</p>
-<p>That's right. In fact, the only part I could teach as a teacher was the current second semester of the third grade. Of course, I could easily teach very basic Korean, but...</p>
-<p>Taira Ryuta: Yeah, I only prepared for this semester.</p>
-<p>Taira Kanna: Then we have no choice but to teach according to the original curriculum. That's the principle in the first place. I'll suggest to the student council that the students who are newly entering the class watch the basic Korean class filmed by the original Korean teacher.</p>
-<p>Ah, there's a way like that. I guess there's something like an online lecture. For reference, the original Korean teacher was on leave for a while. That's how I was able to come to St. Francisco Girls' Academy as a Korean teacher and homeroom teacher of the 3rd grade special class.</p>
-<p>Of course, the former Korean teacher was receiving a huge amount of money from the Taira Group and even going on vacation.</p>
-<p>It was too late to start learning Korean from scratch now, so it was fortunate that Taira Kanna came up with a solution.</p>
-<p>Taira Ryuta: Thanks. You got rid of one of my worries.</p>
-<p>Taira Kanna: You're welcome. One of my jobs is to help the teacher's duties.</p>
-<p>I turned off Line and checked the 3rd grade special class's classes for today. Hmm, as expected, there's no physical education class today that they told me to do indoors. I didn't know what kind of person the physical education teacher was because there wasn't a physical education teacher among the teachers I met before the semester started. For the sake of our students, I hope he's not a bald, brown-skinned, huge-cocked teacher....</p>
-<p>I was just having random delusions when it was time for the morning assembly, so I took the attendance book and went into the classroom. I counted the number of students and there was one more than yesterday. She had voluminous sky-blue twin tails and a flashy and delicate appearance. She was Uenozono Karen, a member of the idol group I saw in the attendance book yesterday.</p>
-<p>,Number 10, Uenozono Karen. Nice to meet you. I'm Yamashiro Ryuta, your homeroom teacher.</p>
-<p>,Hello~! As the teacher knows, I'm SERIF's KAREN!</p>
-<p>I called attendance and greeted Uenozono Karen like yesterday. I don't really know the group Serif, but I pretended to know so that Uenozono Karen wouldn't be embarrassed. Serif... I should search it up later.</p>
-<p>,There's a heat wave warning today, so don't do outdoor activities. Let's try to stay indoors as much as possible. I'll finish the morning assembly now. If you have any suggestions or anything to say, come to the education preparation room next door anytime. I'll be there most of the time.</p>
-<p>After the morning assembly, I went back to the education preparation room. Unlike the other common required subject teachers who go into classes by class, I only had classes twice a week, so there wasn't much to do. So, it would be less boring if I had homeroom teacher duties instead.</p>
-<p>I decided to use the remaining time for the business I started, and time went by quite well as I looked at the documents I received from Mimata Chieri and Jin Mija-ssi. It's already lunchtime. During the vacation, the school cafeteria was also closed, so I just ate lunch outside, so today was my first time using the cafeteria.</p>
-<p>I left the education preparation room and knocked on the door of the nurse's office across the hall.</p>
-<p>,I'm Yamashiro Ryuta, the homeroom teacher of the special class.</p>
-<p>,Yes, come in, teacher.</p>
-<p>I opened the door and saw several beds with curtains drawn and shelves with bottles of various medicines. The school nurse, Kijimoto Jurie, was sitting at her desk.</p>
-<p>,It's my first time using the school cafeteria. Would it be okay if I learned how to use it and had lunch together?</p>
-<p>,Ah, of course. I'll teach you how to use it.</p>
-<p>I need a lunch mate. I went to the cafeteria with Kijimoto Jurie. The cafeteria between the high school and middle school was quite large. According to Kijimoto Jurie, about 30 percent of the students bring their own lunch boxes, and the rest use the cafeteria or the store.</p>
-<p>The cafeteria sells about three kinds of set meals that change every day, and today there was lobster pasta stir-fried with bisque sauce, a sushi set, and steak. As expected, it was a prestigious girls' school, so the menu was luxurious.</p>
-<p>,You can buy meal tickets here and give them to the place you want to get your food.</p>
-<p>,Ah, I see. Since you taught me, I'll buy the meal tickets today.</p>
-<p>I bought three meal tickets and handed one to Kijimoto Jurie. In fact, the price of the meal tickets was not cheap as the menu was luxurious, but faculty members could buy them at a 30 percent discount. Still, it was expensive, so many teachers brought their own lunch boxes.</p>
-<p>,I'll enjoy the meal.</p>
-<p>,Let's get our food and meet there.</p>
-<p>I pointed to an empty spot and went to get my food. The menu I chose with two meal tickets was steak and lobster pasta stir-fried with bisque sauce.</p>
-<p>When I sat down, it seemed that Kijimoto Jurie had chosen the sushi set. I asked Kijimoto Jurie about things I was curious about while eating. Of course, Kijimoto Jurie was the school nurse, so she wouldn't know much about classes, so I just asked her about the school.</p>
-<p>Kijimoto Jurie seemed to know a lot about the school and answered my questions in quite detail. The food was good, and Kijimoto Jurie, who was facing me, had a good body and a pretty face, so it was a pretty great lunch time.</p>
-<p>... I think I'm becoming more and more of a womanizer because of my dissatisfaction, so I should call a deli health before my desires build up any more.</p>
-<p>-----</p>
-<p>Uenozono Karen</p>
-<p>It's refreshing, it's refreshing!</p>
+<p>Minamoto Risa and Seizawa Shii ultimately failed to get any juniors to join their newly formed Meditation Club. The first two they met said they were going abroad to study, and the other two had already left their original clubs to start new ones, just like them. Moreover, three more people quit today to start a club right away.</p>
+<p>Seizawa Shii asked, "Wouldn't it be better to just have them join us?" but the club itself was a manga research club, which was too far from Minamoto Risa and Seizawa Shii's interests, so they had no choice but to give up.</p>
+<p>In the end, the only ones left were friends from the special class. However, while Minamoto Risa and Seizawa Shii were in the other grades' classrooms, Konoe Akina and Otagi Yuka had already won over their classmates.</p>
+<p>They had managed to secure three classmates as club members: the sickly girl Naruse Shiyo, who still attended school, the wheelchair girl Saionji Diana, and the masked girl Sakagami Rena. The remaining students didn't even attend school, so the game was over.</p>
+<p>,It's a shame, we should have targeted our classmates first!"</p>
+<p>,I know. It's over."</p>
+<p>Minamoto Risa nodded at Seizawa Shii's sighing words. She felt inexplicably annoyed. Was I this competitive? She felt so drained and annoyed that her mood sank.</p>
+<p>,I'm in a bad mood, should we go somewhere today?"</p>
+<p>Seizawa Shii asked Minamoto Risa after class, but Minamoto Risa shook her head.</p>
+<p>,No, I'm going straight home today."</p>
+<p>,Okay! Don't be too upset~ See you tomorrow, Risa-ttang!"</p>
+<p>At Minamoto Risa's words, Seizawa Shii said okay and went home. Minamoto Risa was also about to go straight home, but the closer she got to home, the less she wanted to go.</p>
+<p>After all, there was only her secretary, Mekaru Tatsuko, and a housekeeper at home. She wanted to be alone today, but even if she went home, she wouldn't be alone. So, Minamoto Risa decided to walk aimlessly alone.</p>
+<p>She walked for a long time without thinking, and before she knew it, she had come to a street full of love hotels. It was still daytime, so there were hardly any people around, but Minamoto Risa was worried about who might see her, so she tried to leave the love hotel street.</p>
+<p>,Ah, I've come to a strange place. I need to get out of here quickly."</p>
+<p>She was about to turn around to the opposite side of the love hotel street when she saw two familiar figures. A woman in a wheelchair and a man with tanned skin. Although they were wearing different clothes than today, it was definitely Saionji Diana and her homeroom teacher, Yamashiro Ryuta.</p>
+<p>,Huh?"</p>
+<p>Minamoto Risa made a sound without realizing it. Yamashiro Ryuta heard the sound and looked towards Minamoto Risa.</p>
+<p>Minamoto Risa recalled the nightmare from a few months ago. She remembered witnessing her former homeroom teacher, Nomata Shigemi, raping a timid classmate.</p>
+<p>She remembered the image of a man with a half-bald head and plump flesh tormenting a friend underneath him.</p>
+<p>Minamoto Risa turned around to leave without realizing it. But....</p>
+<p>Tuk!</p>
+<p>Yamashiro Ryuta, who had closed the considerable distance in the blink of an eye, grabbed Minamoto Risa's wrist.</p>
+<p>,I don't know what misunderstanding you have, but you should give me a chance to talk."</p>
+<p>,I bet you know that a teacher is a criminal if caught in the act, right? Even if it's an excuse, do you think you can change my mind? You'll be fired tomorrow."</p>
+<p>###</p>
+<p>,I bet you know that a teacher is a criminal if caught in the act, right? Even if it's an excuse, do you think you can change my mind? You'll be fired tomorrow."</p>
+<p>Minamoto Risa spoke in a very firm tone. Her eyes were full of contempt, and she didn't seem willing to listen to me.</p>
+<p>,Hoo.... It'll only take two minutes. If you're not convinced after two minutes, then I'll turn myself in. Okay?"</p>
+<p>When I said this much, Minamoto Risa still looked unconvinced, but she nodded anyway.</p>
+<p>I first took Minamoto Risa to Saionji Diana. When there's a misunderstanding like this, Saionji Diana's testimony (?), who seems like the victim, will be more helpful than my explanation.</p>
+<p>,Saionji. I'm sorry, but can you explain to Minamoto why we came here? She misunderstood and said she's going to report me."</p>
+<p>,Yes. Um, Minamoto-ssi...."</p>
+<p>Fortunately, Saionji Diana explained the situation to Minamoto Risa. She told her that I had agreed to sponsor her and that we were here today to measure her body.</p>
+<p>However, whether it was because she was measuring her body at a love hotel, the misunderstanding amplified, and she got angry at Saionji Diana.</p>
+<p>,No! You're saying it's not strange to come to a love hotel to measure your body? Saionji! You shouldn't be fooled by this!"</p>
+<p>,Saionji, why are you skipping the middle part!"</p>
+<p>Both Minamoto Risa and I said something to Saionji Diana. Of course, we were saying different things.</p>
+<p>,I'm saying this because you might misunderstand, but we didn't come to a love hotel. You're from the Minamoto family, so you know about the Dark Market, right?"</p>
+<p>,Dark Market?"</p>
+<p>Minamoto Risa didn't seem to know about the Dark Market. Well, if she did, she would have thought of it as a Dark Market rather than a love hotel in this location.</p>
+<p>Seeing that she didn't know at all, I realized that the family hadn't taught Minamoto Risa about it? I realized once again that Minamoto Risa's position within the Minamoto Group wasn't good.</p>
+<p>,You don't seem to know, but if I explain it, it's a place where you can get any item from the merchants of darkness, just like the name suggests. The reason I brought Saionji here is to get a cyber implant as soon as possible. The reason it's in this location is because the location is usually secret."</p>
+<p>,Ah...! Such a place!"</p>
+<p>She seemed to understand now. That's a relief, I cleared up the misunderstanding. I don't have to confess to something I didn't do.</p>
+<p>,Then we'll go in now."</p>
+<p>,Wait! I'll only believe it if I see it with my own eyes!"</p>
+<p>Even though she agreed with my words, she said she would see it herself, which meant she thought my story might be a lie.</p>
+<p>,An offline Dark Market.... I can't help it. I'll send you an invitation code, so install the app."</p>
+<p>Rather than saying, "You're not qualified to go to an offline Dark Market!" I thought it would be better for me to invite her, so I sent Minamoto Risa an invitation code. I was a Diamond-ranked member, so I could recommend her as a member who could go to the Dark Market branch right away.</p>
+<p>Minamoto Risa used the invitation code I sent her to install the Dark Market app and sign up.</p>
+<p>,Then press the nearest branch button on the top right. And click visit."</p>
+<p>,...I did it."</p>
+<p>,Okay, shall we go together then?"</p>
+<p>I pushed Saionji Diana's wheelchair and led the way, and Minamoto Risa followed behind. The love hotel we entered was an unmanned hotel. I went to one corner and scanned the code, and a door to the basement opened.</p>
+<p>I heard Minamoto Risa muttering, "It was real...," when she saw that. Hmm, there were steep stairs that weren't at all wheelchair-friendly, so I had no choice but to use my strength to lift the wheelchair.</p>
+<p>,Kyaa...!"</p>
+<p>Saionji Diana let out a small scream when the wheelchair was suddenly lifted.</p>
+<p>,It's because of the stairs, so I have to carry you. Please bear with it for a moment."</p>
+<p>I soothed Saionji Diana and carried the wheelchair down the stairs. As expected, Eve was waiting for us in the basement.</p>
+<p>,Ryuta-nim! Long time no see! One of you is here to measure your body today, and the other is a new member who joined today?"</p>
+<p>Perhaps because she was Miyashi, Eve was wearing the uniform of St. Francis Girls' Academy. Her face is pretty and her body is good, so it suits her quite well.</p>
+<p>,You look pretty in that uniform?"</p>
+<p>,Hehe, thank you, Ryuta-nim!"</p>
+<p>Eve twisted her body and rejoiced at my compliment. I've been thinking about it for a while, but her reaction was really realistic.</p>
+<p>,And you are...?"</p>
+<p>,I'm Eve! Oh my, we both have pink hair?"</p>
+<p>Minamoto Risa had pink blonde hair, and Eve had white hair mixed with pink hair here and there, but Eve smiled and said it as if she had found a commonality.</p>
+<p>,Don't chat and take care of Saionji first."</p>
+<p>,Yes~!"</p>
+<p>At my words, Eve pushed Saionji Diana's wheelchair to one side. Huh? It's not a hologram today? I thought only the Tokyo branch was an android, but is the entire branch becoming androidized, or did the android Eve in Tokyo come to Miyashi?</p>
+<p>While I was thinking, Minamoto Risa approached me. When I turned around, she was blushing and had an apologetic expression on her face.</p>
+<p>,I'm sorry. I misunderstood without looking into it more."</p>
+<p>,Well, it was a situation where you couldn't help but misunderstand. It's okay."</p>
+<p>,But why are you helping Saionji? You're just a teacher."</p>
+<p>Hmm, what should I answer? I can't say it's because Saionji Diana's stats are good and to raise Shimokawabe Airen's favorability, so I didn't have anything to say.</p>
+<p>,Just, because I'm her teacher. I'm not doing it for free. I'll get this debt of support back someday."</p>
+<p>,Is that so...?"</p>
+<p>,I had the ability to help Saionji, and from Saionji's point of view, she had no choice but to solve what her family couldn't do outside. Even if it meant getting help."</p>
+<p>At my words, Minamoto Risa nodded with an "Ah!" expression as if she had realized something.</p>
+<p>,What can't be solved inside can be solved outside...!"</p>
+<p>Did she get some inspiration? She suddenly muttered what I had said and grabbed my hand.</p>
+<p>,Thank you! I thought of something!"</p>
+<p>What did she think of? Minamoto Risa shook my hand and went up the stairs and out. Be careful going out. I can see your panties from below.... Minamoto Risa's panties today were sky blue with white stripes.</p>

@@ -5,80 +5,93 @@ weight = 155
 chapter = 155
 +++
 
-<p>,Welcome."</p>
-<p>When I returned to the inn, Hamahata Konoka-ssi greeted me with a bow. I also slightly bowed my head and opened my mouth.</p>
-<p>,Can I use the private open-air bath right away?"</p>
-<p>,Yes. It's connected to the underground hot spring, so the water is always warm."</p>
-<p>Hmm, before my possession, there was an article about a Japanese hot spring where they only changed the water twice a year, resulting in over 3000 times the amount of E. coli. It seemed better to open and close the pipes connected to the hot spring instead. Before coming, I looked into hot springs a bit more and saw information that the same thing had happened in this world, leading to strengthened quarantine standards. That's a relief. I wouldn't want to soak in E. coli soup.</p>
-<p>,Ah, and."</p>
-<p>,Yes?"</p>
-<p>,I'll pay more, so please bring about three servings of food. I'm a big eater."</p>
-<p>,Ah, I understand. Then... the meal cost for three days..."</p>
-<p>Hamahata Konoka-ssi was folding her fingers and calculating the additional meal costs for three days, as if she had never encountered a situation like mine before. Kinda cute, isn't she? Calculating by hand instead of using a smartphone, she seemed innocent and cute. But cute is cute, and I wanted to soak in a hot bath as soon as possible.</p>
-<p>,I'll just pay for two extra people's accommodation."</p>
-<p>,Huh? Ah, no. I can't do that..."</p>
-<p>,Then, we will add a special dish for three people, customer."</p>
-<p>Hamahata Konoka-ssi's attempt to refuse the additional accommodation fee for two people was thwarted when the owner grandma appeared and added a special dish as a condition. I smiled slyly and took out money from my wallet. The owner grandma bowed at a right angle and said, Thank you, customer~! She was a grandma who was good at business.</p>
-<p>,Of course, I have to pay for additional services. Can you show me how to use the private open-air bath?"</p>
-<p>,Ah! Please follow me, customer!"</p>
-<p>,Konoka, teach the customer well. And if they want, rub their back too."</p>
-<p>I went to my room and immediately opened the outer sliding door to go to the open-air bath. The stone-built bath had water pooled from the continuous rain. When Hamahata Konoka-ssi pressed a button, the water began to drain out. When all the pooled rainwater was drained, the floor constructed with stone and cement was visible.</p>
-<p>,"I cleaned it thoroughly before the customer arrived. It's been pooling because it rained on the day you arrived, but it should be clean."</p>
-<p>,"It's an open-air bath, so rain can't be helped."</p>
-<p>When I said it was okay, Hamahata Konoka-ssi, who slightly bowed her head, turned the faucet on the right side of the tub, and hot spring water gushed out from a fairly wide pipe.</p>
-<p>,"If you open it here, water will come out. If it's too hot, you can use the cold water from the faucet on the opposite side."</p>
-<p>,"Thank you. I'm going to wash now, so you can go."</p>
-<p>,"Ah, ah... Then, I'll see you later."</p>
-<p>Even though I was wearing a raincoat, the rain kept seeping in, and the heat and humidity from my body were trapped inside the raincoat, making it sticky. I wanted to wash quickly. Hamahata Konoka-ssi greeted me and left the room, and I took off my clothes while the hot spring water was filling the open-air bath. My underwear was fine, but the short sleeves and the bottom of my pants were completely wet. It couldn't be helped since it was raining quite a bit.</p>
-<p>I hung up my clothes and went into the hot spring. The hot spring water had filled up to some extent while I was taking off and hanging up my clothes.</p>
-<p>,Euheo~!"</p>
-<p>The temperature was just right, nice and warm. It smelled slightly of sulfur, so it seemed to be a hot spring containing sulfur. I can't remember what sulfur hot springs are good for.</p>
-<p>While it was raining, the rain was wetting me above my chest, and the warm hot spring water was preventing my body from getting cold below. As I was enjoying the hot spring bath while listening to the sound of rain and looking at the sea, the sliding door to my room opened and someone came in.</p>
-<p>,Excuse me."</p>
-<p>Judging from the voice, it was Hamahata Konoka-ssi. What's going on? When I turned around, Hamahata Konoka-ssi, who was wearing something like a shower towel, was standing there fidgeting with a flushed face. She was holding something like a washbasin in her hand.</p>
-<p>,"I, I'll rub your back."</p>
-<p>,"Ah, ah..."</p>
-<p>It seemed that what the inn owner grandma said earlier wasn't just a passing remark. Well, I was thinking of getting out soon anyway, so it would be nice to have my back rubbed.</p>
-<p>,"Then, please take care of me."</p>
-<p>,"Y-yes..."</p>
-<p>Hamahata Konoka-ssi was making bubbles by putting body wash on a shower towel soaked in warm hot spring water and gently rubbing my back. Hmm... She wasn't very strong, so it wasn't that refreshing, but I could feel that she was working hard, so I quietly accepted her rubbing my back.</p>
-<p>I had clearly just had a romp with Hangari Muneo, but hearing Hamahata Konoka-ssi's breath, which was getting rough from rubbing my back weakly like foreplay, my big dick started to raise its head without any sense. Fortunately, I was covering it with a towel, but it was sticking up almost like an Indian tent.</p>
-<p>,"I'm done. Ah!"</p>
-<p>,"Ah, I'm sorry. It felt so good to have you rub my back that I..."</p>
-<p>,"Ah, I, I've rubbed it all, so I'll, I'll go now!"</p>
-<p>Hamahata Konoka-ssi, whose face turned bright red like a ripe persimmon, ran away in a flurry. I had only seen women drooling over my dick lately, so seeing such an innocent reaction was new. I washed the rest of my body except for my back, rinsed it with water, and came into the room.</p>
-<p>As I was lying on the tatami mat and looking at the internet on my smartphone, Hamahata Konoka-ssi, whose face was still red, brought in the food, as it was already dinner time. As expected, she said she would add a special menu for three people, and as she said, a steamed large snow crab and a dish with snow crab came out as special dishes. All of them were quite plentiful and mostly delicious-looking food.</p>
-<p>Hamahata Konoka-ssi was sitting demurely next to me, as if she was going to serve me dinner like she did at lunchtime.</p>
-<p>,"The food looks really delicious."</p>
-<p>,"Yes, my grandma is a good cook."</p>
-<p>She smiles shyly only when I praise the food. I also smiled and picked up my chopsticks. As it was an island, all the seafood was fresh. I was already hungry, so I ate dinner deliciously. The sashimi was fresh and delicious, and the snow crab also had its unique sweet and salty taste.</p>
-<p>,"You're really eating well."</p>
-<p>,"I eat quite a bit. This body consumes a lot of calories."</p>
-<p>I smiled and answered Hamahata Konoka-ssi, who was looking at me in amazement, impressed by how well I was eating. As I was eating, I suddenly thought of the Kantou University people who were diligently investigating at the shrine. It's dinner time, so I wonder if they've returned by now?</p>
-<p>,"By the way, have the Kantou University people returned to the inn?"</p>
-<p>,"Yes. Everyone has returned and is having dinner."</p>
-<p>Hmm, so they came down to eat. As I was eating, something I was curious about came to mind. Professor Honmura Kouga said earlier that women on this island return to their original surname when their husbands die, but it was a bit strange that Hamahata Konoka-ssi and her grandma had the same surname.</p>
-<p>,"Earlier, the professor from Kantou University said that Choohten Island has a custom of women changing their surname when their husbands die, but why do the inn owner grandma and Hamahata-ssi have the same surname?"</p>
-<p>,"Ah, that's... there's another custom on this island. Children whose parents have died are supposed to take the surname of their guardian. My parents passed away when I was young, so I've been using my grandma's surname since I was little."</p>
-<p>Ah, I shouldn't have asked. The atmosphere suddenly became chilly. A quick apology was the solution in this case. I politely apologized to Hamahata Konoka-ssi.</p>
-<p>,"I'm sorry for asking unnecessary questions."</p>
-<p>,"No~! They passed away when I was so young that I don't even remember them well."</p>
-<p>Then that's a relief. I didn't say anything more and finished the remaining rice. Hamahata Konoka-ssi kindly smiled and placed a cup of tea in front of me.</p>
-<p>,"Thank you. By the way, I'm planning to take a walk after dinner, so can I borrow an umbrella?"</p>
-<p>,"Ah, if you're having tea, I'll bring it to you right away!"</p>
-<p>Watching Hamahata Konoka-ssi running out of the room, I took a sip of tea. Just as I had almost finished the tea, Hamahata Konoka-ssi brought an umbrella and I received it. It was a cute polka dot umbrella.</p>
-<p>,"I'm going to take a walk for a while."</p>
-<p>,"Yes, I'll clean up the table in the meantime. Have a good trip."</p>
-<p>I left the room with Hamahata Konoka-ssi seeing me off. When I put on my shoes in the shoe rack and left the guest room building, Kimura Atsuhiro was dragging the wrist of the shrine maiden Hijitani Saori, trying to go somewhere.</p>
-<p>Listening to the previous lines, it seemed that Kimura Atsuhiro said, Let's go over there, and Hijitani Saori seemed to hesitate, saying, But... What, are they trying to have a secret rendezvous? The two stopped slightly and looked embarrassed when they saw me coming out.</p>
-<p>,"Have you had dinner?"</p>
-<p>,"Ah, no..."</p>
-<p>,"Yes..."</p>
-<p>I asked about dinner as casually as possible and said, Then, goodbye... and passed by them. Kimura Atsuhiro hadn't eaten dinner yet, and Hijitani Saori had. There was no need to get involved in other people's love affairs. Actually, the bigger reason was that I didn't care what they did.</p>
-<p>I wasn't planning to go far for a walk. I just wanted to take a walk around the inn. If you leave the guest room building, there are two buildings right in front of you: the restaurant building where cooking is done and the building next to it where the Hamahata family stays.</p>
-<p>I went straight to the left. I suddenly wondered if it was possible to invade the public bath from the outside. I was too flustered at the murder scene to look around properly. I immediately moved the body to the basement, and after that, we gathered outside the women's bath to talk, so I didn't remember well.</p>
-<p>It definitely felt like a hot spring from a certain point. It was surrounded by a high bamboo fence. The side closer to the entrance must be the women's bath. The women's bath was quiet, as if no one was using it. The bamboo wall was definitely raised tightly enough to be impossible to invade.</p>
-<p>,"It would be difficult to invade from the outside."</p>
-<p>I muttered while looking at the bamboo wall. Soon, I passed by a place where I could hear the sound of water, which was probably the men's bath. It seemed like someone was in the men's bath. You'll get a stomach ache if you take a bath right after dinner, but whoever it is, they'll probably have diarrhea later.</p>
-<p>Before I knew it, I reached a place where the road curved and turned to the right. Now, only the sound of rain could be heard, and the sound of water had disappeared. As I walked a little further, I saw a tombstone and someone standing blankly.</p>
-<p>Inn blueprint... I made it roughly with Paint haha</p>
+<p>After the sunglasses guy fell after taking my Sipjiman Gaehwa, I dealt with the remaining attackers. The sunglasses guy didn't die even after taking my Sipjiman Gaehwa, probably because that resistance that blocked Kiyona Mari's flames and Sawayanagi Seari's wind blades activated back then. I should have brought the ancient glasses that can see the status window. I'm curious about what kind of traits he has.</p>
+<p>"Shall I kill him?"</p>
+<p>"It doesn't seem like Kurotsuki, so we need to find out what force is behind him. The guns aren't the Chinese-made guns that Kurotsuki uses, but the guns that Japanese PMCs use a lot."</p>
+<p>Sawayanagi Azuma answered when I asked. Certainly, the firearms were Japanese-made. The attackers were all armed with Type 37 rifles and Type 29 M-5 submachine guns, which were mass-produced around World War III.</p>
+<p>An enormous number of guns were produced after the war and flooded into Japan, which is still a continuing social problem, but let's talk about that later. Looking at the guns, it certainly didn't seem like Kurotsuki-doo. Kurotsuki-doo used Chinese-made guns, which were a thousand times more common than Japanese-made guns.</p>
+<p>The reason why people are afraid of the Taira Group is because they always retaliate when attacked. So, in this mission, there was an order to capture a few people, so they are trying to keep this sunglasses guy, who has the most information, alive.</p>
+<p>"Thank you, Investor-nim! You saved me."</p>
+<p>"I really thought I was going to be strangled to death."</p>
+<p>Sawayanagi Seari and Kiyona Mari, who were choking and just recovered, came to me and said. Looking at their necks, there were red marks similar to fingerprints. This will probably bruise later?</p>
+<p>"Are you okay? Don't you need to get treatment?"</p>
+<p>"Yes, hehe. I'll be fine soon with this much."</p>
+<p>"This much injury is nothing."</p>
+<p>When I asked if they were okay, they both said they were fine. It didn't seem like they needed to go to the hospital. While Sawayanagi Seari, Kiyona Mari, and I were talking, Sawayanagi Azuma made a phone call somewhere and came to me.</p>
+<p>"I contacted the Taira Foods headquarters, so people will come soon to escort these attackers."</p>
+<p>"Still, it's coming from Daisen City, so it will take quite a while, right?"</p>
+<p>"Yes, they said it would take about 25 to 30 minutes."</p>
+<p>It took 15 minutes from Yurihonjo City to Kokuuzoo Mountain, where this research center is located, but it took about an hour from Daisen City, where Taira Foods is located. Adding the 15 minutes to get to the research center and the 20 minutes we fought at the research center, it's about 35 minutes, so subtracting 35 minutes from an hour, they will arrive in 25 minutes.</p>
+<p>"Um...."</p>
+<p>"Huh? Seari, what's wrong?"</p>
+<p>While Sawayanagi Azuma was talking to me, Sawayanagi Seari said to Sawayanagi Azuma with a slightly nervous expression.</p>
+<p>"There's someone on the 5th floor."</p>
+<p>"Aren't they researchers?"</p>
+<p>At Sawayanagi Seari's words, Sawayanagi Azuma said that the 5th floor must be a laboratory, so aren't they researchers, but Sawayanagi Seari shook her head.</p>
+<p>"There was no one there before the battle. But now there is."</p>
+<p>"Then let's go quickly. We need to check."</p>
+<p>"I'll tie up that sunglasses guy."</p>
+<p>Sawayanagi Seari, Sawayanagi Azuma, and I decided to check the 5th floor, and Kiyona Mari decided to tie up the sunglasses guy. In fact, since his insides would be completely ruptured from being hit by Sipjiman Gaehwa, such severe restraint wouldn't be necessary. However, I should give some advice since we need to be careful of his psychokinesis.</p>
+<p>"Since the field of vision is also one of the activation conditions for psychokinetics, cover his eyes too."</p>
+<p>"Okay."</p>
+<p>Leaving Kiyona Mari, who was nodding at my advice and preparing ropes, I went up the stairs to the 5th floor. It was a pretty sturdy iron door, but it wasn't locked. Or maybe the attackers opened it before we came.</p>
+<p>Click!</p>
+<p>When I went up all the stairs and opened the door, I saw a huge computer. Is this that supercomputer? In front of the computer, a blonde woman wearing a black cyber suit and goggles that looked like VR devices was standing. Her figure was visible because of the tight cyber suit, and she had a long, slender figure like a model.</p>
+<p>"Thank you for holding the bad guys back."</p>
+<p>The cyber suit blonde woman smiled and opened her mouth. Her voice was slightly awkward, whether it was a modified voice or not. It seems a little familiar, is she someone I've seen before? It's ambiguous, but I've definitely seen her before.</p>
+<p>"Here, take this."</p>
+<p>The cyber suit blonde woman threw a note at me. What is it? I caught the flying note and looked at it.</p>
+<p>𝓙𝓮 𝓿𝓪𝓲𝓼 𝓫𝓲𝓮𝓷 𝓵'𝓾𝓽𝓲𝓵𝓲𝓼𝓮𝓻 - 𝓥𝓸𝓽𝓻𝓮 𝓕𝓻𝓪𝓷̧𝓸𝓲𝓼</p>
+<p>Ah, this woman must be that phantom thief François. I was able to recognize her because I had seen this memo on the game screen. She was a phantom thief who occasionally appeared in the MegaCorp youngest son era and even in TMC, which is set in a later era.</p>
+<p>She was a vicious NPC who occasionally appeared when the protagonist didn't use a valuable item and left it in the warehouse, and she would steal that item if you couldn't stop her.</p>
+<p>"What exactly are you and these attackers stealing from this research center?"</p>
+<p>"I don't know what the bad guys are after, but I just stole the most valuable thing in this room."</p>
+<p>Saying that, she took out a small storage device from her chest and showed it to me. It was a 9th generation USB. She probably stole the research results from the computer. The data in the computer is probably all deleted. All black card-like screens were displayed on the computer, so it seemed like the data had been deleted.</p>
+<p>"If you give that back, I won't catch you."</p>
+<p>"I don't want to? Close your eyes for a moment."</p>
+<p>When I reached out my hand, Phantom Thief François stuck out her tongue and dropped a round metal bead. The round bead rolled towards us and then the top opened, and it started spewing out smoke with a tremendous force, shiiiiik. It was a smoke grenade.</p>
+<p>The laboratory was instantly filled with smoke. How can so much smoke come out of that small bead?</p>
+<p>"À plus tard!"</p>
+<p>Phantom Thief François was saying something and her presence was gradually fading away. Of course, I could have caught her at any time before she threw the smoke grenade, but I had a feeling that she was someone I knew, so I only asked her to return the item.</p>
+<p>If I realize who she is, I can quickly get the item back, so I didn't push it. And if I get the item back next time, I can have it all to myself, so I didn't try to catch her now. If I know who she is, I can make the items that Phantom Thief François has stolen so far and that data mine, so I should just let her go this time. Keep stealing lots of treasures, François.</p>
+<p>Phantom Thief François seemed to have noticed my not-so-aggressive attitude and was leisurely running away.</p>
+<p>The smoke cleared and Phantom Thief François had disappeared. Looking at the hole in the ceiling that was big enough for one person to pass through, it seemed like she had gone up to the roof. She was indeed worthy of being called a phantom thief. Rianna Holden said that it was impossible to infiltrate the roof, but she seemed to have done that impossible task easily.</p>
+<p>"It can't be helped that she already took the data. Let's go down and rest while waiting for the main force."</p>
+<p>"Yes, Investor-nim."</p>
+<p>I stopped Sawayanagi Seari, who was trying to chase her to the end, and returned to the stairs connecting the 4th and 5th floors. If this is the case, did I succeed in the mission because I stopped the attack? Or did I fail because Phantom Thief François ended up stealing the data? It's ambiguous.</p>
+<p>###</p>
+<p>"Don't dawdle and get in the car!"</p>
+<p>A soldier from the Taira Foods Security Force, a PMC sent by Taira Foods, was putting the attackers into the escort vehicle. The Taira Foods Security Force is the second unit of the PMC that Taira Foods has, and because they didn't have the spare manpower to pull out due to the fierce battle with Kurotsuki, the second unit, the Taira Foods Security Force, came. Even then, only a small part of them came to the research center. Still, it would be enough to just escort them.</p>
+<p>About two-thirds of the attackers died in the fight with the Seryu Military Company, but the remaining one-third was enough to get information.</p>
+<p>"I've told the higher-ups about the current situation, so they'll contact you about what to do."</p>
+<p>Kido Hayata, the support unit leader of the Taira Foods Security Force, said to Sawayanagi Azuma, the president of Seryu Military Company. Sawayanagi Azuma nodded and said she understood.</p>
+<p>"Well, I'll be going now. Let's go!"</p>
+<p>The building was quite damaged, but no researchers died, so there was nothing more for the Seryu Military Company and the Taira Foods Security Force to do, so Kido Hayata got into the car with his subordinates and the tied-up attackers and set off.</p>
+<p>After going some distance, they entered a road with a wide reed field spreading out to the right. Kido Hayata was looking at the reed field swaying in the wind. In Kido Hayata's eyes, he could see the reeds moving in one direction, as if there were wild animals.</p>
+<p>"Unit Leader-nim, those Seryu Military Company women are all okay, right?"</p>
+<p>"What are you going to do if they're okay, you bastard."</p>
+<p>When the driver broke the silence and opened his mouth, Kido Hayata smiled and asked. In fact, Kido Hayata also liked the blue-haired president of Seryu Military Company. The purple-haired Westerner in the unconventional operator outfit was also okay.</p>
+<p>"What do you mean, what am I going to do? I should ask them. How about having a meal together after this is over? Or how about having a company dinner when this is over? I'll try to do well then."</p>
+<p>"You've already thought that far?"</p>
+<p>"That far? I've already had three kids, keukeukeu."</p>
+<p>"Hehehe, you crazy bastard."</p>
+<p>Kido Hayata, who was looking at the reeds outside the window, smiled and looked at the driver. What is it? There was a red laser light on the driver's forehead. It's a sniper! But he was too late to notice.</p>
+<p>Tang!!!</p>
+<p>At the same time as the gunshot, the driver was shot in the forehead and fell, and the vehicle swerved and went out of control before hitting the guardrail and stopping.</p>
+<p>"Everyone, wake up! It's an attack!!"</p>
+<p>At Kido Hayata's shout, the Taira Foods Security Force staggered out of the car. But the Taira Foods Security Force that got out were all shot down by bullets flying from the reed field next to the road. About ten soldiers walked out of the reed field.</p>
+<p>"Who are you guys?"</p>
+<p>"You wouldn't know even if I told you...? Well, I'll satisfy your curiosity before you die."</p>
+<p>A black man wearing a yellow military uniform that matched the color of the reed field opened his mouth as if he was the leader.</p>
+<p>"We are the Second Unit."</p>
+<p>"There's no such name in the world..."</p>
+<p>Tang!</p>
+<p>Kido Hayata was shot and killed before he could finish his sentence. The black leader glanced at the stopped car with inorganic eyes.</p>
+<p>"Take care of the First Unit. There are houses nearby, so the gunshot must have been reported. We need to take them before that."</p>
+<p>At the black leader's words, the Second Unit ran to search the vehicle and took out the First Unit. The sunglasses guy was also being supported by one person.</p>
+<p>"You stupid bastard."</p>
+<p>"Keuheuheuh, but it's still half a success. We didn't get the data, but Phantom Thief François stole it. The second best option, if stealing is impossible, is to destroy the data, so that's been achieved."</p>
+<p>The sunglasses guy untied the ropes he was tied with and stretched here and there as he spoke. But he soon became discouraged and opened his mouth again.</p>
+<p>".... I'm going to get scolded by the boss, right?"</p>
+<p>"You're going to get scolded a lot."</p>
+<p>The sunglasses guy cursed and then walked back to the reed field where the Second Unit had appeared. The others followed and entered the reed field. Before they knew it, the figures of the First Unit and the Second Unit had disappeared into the reeds.</p>

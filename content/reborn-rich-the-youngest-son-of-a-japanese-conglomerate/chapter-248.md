@@ -5,78 +5,62 @@ weight = 248
 chapter = 248
 +++
 
-<p>Nae Fitzgerald lay in the master bedroom, then sat up. Her husband, Oliver Fitzgerald, had just returned from a business trip and had demanded Nae Fitzgerald's body no less than twice, and was now snoring away.</p>
-<p>Oliver Fitzgerald still had vigorous stamina for his age, but Oliver Fitzgerald's two times were nothing compared to the one time Taira Ryuta, her nephew, had mistaken her for Arisu and had sex with her.</p>
-<p>It was sex with her beloved husband, but something felt unfulfilled.</p>
-<p>The incredible pleasure Taira Ryuta had given her, the hot essence of a man that felt like she was riding something, the heavy feeling of his body pressing down on hers... She couldn't feel any of that with her husband.</p>
-<p>Nae Fitzgerald put on a nightgown, left the room, and went to the rooftop to feel the night breeze and look at the garden. She sat on a chair in the corner of the rooftop and started drinking whiskey. Drinking in this atmosphere brought back old memories.</p>
-<p>Nae Fitzgerald's mother, Taira Olivia, was born in France and divorced her father, Taira Danjo, shortly after giving birth to Nae Fitzgerald. From the start, Olivia's free-spirited nature, as the former phantom thief François, didn't mesh with the conservative Taira family, so the divorce happened quickly.</p>
-<p>Taira Danjo quickly remarried his current wife, Taira Shizuku, and had Taira Saburo. Nae Fitzgerald basically grew up in the Taira main house, but spent her vacations abroad with her mother, Olivia, and that's when she inherited Olivia's skills.</p>
-<p>Nae Fitzgerald, who learned how to conceal herself, how to move when stealing, and various other secret arts, was able to become a wonderful (?) thief. She had been doing great jobs with Olivia since high school.</p>
-<p>Taira Danjo was harsh on his other children because he wanted them to become the next head of the Taira family, but he was lenient with Nae Fitzgerald, who had no intention of becoming the head. Or rather, he had no interest in her.</p>
-<p>He was too busy leading the company, so he couldn't meet Taira Danjo often in the first place. Rather, she was more familiar with her mother, Olivia, whom she saw for a month or two three times a year.</p>
-<p>After becoming an adult and going to college in the United States, Nae Fitzgerald got an internship at a fashion brand company, where she met Oliver Fitzgerald as her boss.</p>
-<p>At the time, Oliver Fitzgerald was working at a regular company to gain experience before inheriting Taron, and Oliver Fitzgerald fell for the beautiful Nae Fitzgerald, and Nae Fitzgerald felt a sense of familiarity with Oliver Fitzgerald, whose name was similar to Olivia, who had died during college.</p>
-<p>The two quickly fell in love and got engaged, and Taira Danjo didn't object, so they got married fairly quickly. They had their first child, Fitzgerald Alex, and soon their second daughter, Fitzgerald Arisu, and taught Arisu her skills, and she had been doing that until now, but she didn't know why she suddenly thought of the old days. Maybe it was just because tonight wasn't satisfying, so she thought of the happy past.</p>
-<p>As Nae Fitzgerald sighed and drank, a car entered the mansion. Looking closely, it was Fitzgerald Arisu's car, a Ford Mustang. Fitzgerald Arisu and Taira Ryuta got out of the car and shared a deep kiss at the entrance.</p>
-<p>Nae Fitzgerald watched them kiss and gulped down her drink. She had already drunk almost a bottle of strong whiskey while thinking about the old days, so she was quite drunk.</p>
-<p>,Coming back this late... They must have done it. Haa, one more time....'</p>
-<p>Whether it was because of the unsatisfactory sex with her husband today or because she was drunk and couldn't think straight, she couldn't make a normal judgment.</p>
-<p>,I was ambushed while I was sleeping... I have to get revenge. I can't let this go.'</p>
-<p>Nae Fitzgerald staggered to her feet.</p>
-<p>###</p>
-<p>In the end, I didn't get to do any proper sightseeing, and I spent the evening with Arisu at the hotel until dinner, and then I just finished the day with a drive to see a few famous places in New York.</p>
-<p>,Ehehehe. Was sightseeing in New York fun?'</p>
-<p>Arisu asked me with a slightly embarrassed expression when I returned to the mansion. I could understand that she was horny because she hadn't seen me in a while, and there were still two days left, so I could see New York tomorrow or the day after.</p>
-<p>,Exploring Arisu's cave was more fun than New York.'</p>
-<p>,Oh, come on~!'</p>
-<p>Arisu laughed at my words and kissed me. It was quite a deep kiss to do in front of the house. Well, it's late at night, so Oliver Fitzgerald and Nae Fitzgerald must be asleep.</p>
-<p>,Let's go in and sleep now.'</p>
-<p>,Okay, see you tomorrow.'</p>
-<p>I went to the guest room and Arisu went back to her room. I wasn't too tired, but I had to sleep now to get through the day tomorrow. I wonder if Mimata Chieri is okay? I should ask her tomorrow morning.</p>
-<p>I took a shower when I left the hotel, so I just took off my clothes and threw myself on the bed. I was watching a few Mytube videos on my phone and was half asleep when my door opened slightly. And white smoke started pouring in.</p>
-<p>What is it? What kind of smoke is it? I pretended to be asleep instead of getting up and taking a fighting stance on purpose. I had to pretend to be asleep without preparing for battle so that I could surprise them when they let their guard down and tried to harm me, so I lay down and pretended to be asleep.</p>
-<p>The white smoke slowly subsided, the door opened, and someone came in. I slightly opened my eyes and saw the protagonist who blew smoke into my room. Normally, I wouldn't be able to see because the room was dark, but I could see the person who came in because I didn't draw the curtains. I saw a woman with platinum blonde hair and eyes that were a lighter lime green than Arisu's, lit by the moonlight.</p>
-<p>It's Nae Fitzgerald? What's going on? And she's wearing a sexy nightgown with black frills that you can see through.</p>
-<p>,Haa, haa.... It's all your fault. You did it to me while I was sleeping, so I'm going to, I'm going to do it too...!'</p>
-<p>In the end, it was my fault. It seemed like she had come to find me again to taste the new (?) flavor I had shown Nae Fitzgerald. But the lines are a bit funny. I'm going to, I'm going to touch it too...! It's not even a meme.</p>
-<p>,I used a sleeping pill, so I won't wake up in the middle.'</p>
-<p>Aha...! The white smoke from earlier was a sleeping pill. But the problem is that this situation is hot and Nae Fitzgerald, who is wearing see-through clothes, is also hot, so I got a huge boner. She doesn't think I'm awake, does she? I hope she thinks it's just a natural sleep boner....</p>
-<p>,Oh my...! Are you having a dirty dream?'</p>
-<p>Fortunately, she seemed to think I was having a dirty dream. Nae Fitzgerald came up to me, stroked my dick over my panties, and kept muttering something to me in a whisper. I could smell alcohol every time she spoke, so she seemed drunk. Well, she could only do this because she was drunk.</p>
-<p>,Ryuta, your aunt is going to be gentle....'</p>
-<p>Nae Fitzgerald kept whispering dirty words in my ear like a pornographic AV actress or a sexy ASMR YouTuber. It felt so good to stroke and rub my dick over my panties slowly while saying dirty words.</p>
-<p>,Your aunt will take care of Ryuta's clumsy, erect, filthy big dick.'</p>
-<p>It was Nae Fitzgerald who finally took off my panties. My dick got caught on the band of my panties and was pushed down, and when she pulled them down completely, my dick bounced up and hit Nae Fitzgerald's cheek with a *taeng*~!</p>
-<p>,Kyaa.... Hap!'</p>
-<p>Nae Fitzgerald, who was about to scream at the attack (?) of the dick, was surprised and quickly covered her mouth, quietly feeling the feeling of the dick poking her cheek.</p>
-<p>I laughed, but I forced myself to hold it in and kept pretending to be asleep. As Nae Fitzgerald said, I thought Nae Fitzgerald had the right to do it because I had sleep-raped Nae Fitzgerald, and above all, I was just staying still because the situation was hot.</p>
-<p>,Haa...! This is it, this. How can an Asian be this big?'</p>
-<p>*Haljjak!*</p>
-<p>Nae Fitzgerald stuck out her tongue slightly and tasted my glans. And then she put it in her mouth and started sucking it. I felt considerable pleasure from the mature married woman's tongue, but my dick wasn't easy enough to cum right away.</p>
-<p>,This is the first time my mouth has been so full...!'</p>
-<p>Nae Fitzgerald spat out my dick and admired my dick. Then she immediately lifted her waist, matched my dick to her pussy, and started sitting down. Hmm, coincidentally, I enjoyed cowgirl with Arisu quite a bit today, and I'm enjoying it with Nae Fitzgerald too.</p>
-<p>The pussy, which I tasted yesterday and wasn't unfamiliar but not familiar, slowly swallowed my dick and came down.</p>
-<p>,Eheuheung...! This is it...! Yahang♥ Ryuta's heuht! Thick, I like your dick, haht...!'</p>
-<p>Nae Fitzgerald started shaking her waist like someone who hadn't eaten in months, even though we did it yesterday. As if addicted to drugs, Nae Fitzgerald was mindlessly enjoying putting my dick inside and enjoying it.</p>
-<p>Hmm, a dick that's more addictive than fentanyl.... I need to reflect. I've turned my aunt into a pervert.</p>
-<p>But I'm glad it's a kind (?) drug with no lethal dose.</p>
-<p>,Heunghat! Heuht...! Ryuta's dick.... Dick! Heueung...!'</p>
-<p>Why is she calling my dick like that when it's not even an idol? Nae Fitzgerald trembled several times on top of my body and reached her climax. I had already came several times at the hotel, so I was still standing firm.</p>
-<p>Nae Fitzgerald had been shaking her waist for quite a while, so I could feel my semen slowly rising. Nae Fitzgerald also sensed that and moved only her waist while pressing her big, soft breasts against my body to stimulate my dick as much as possible.</p>
-<p>,Ryuta, fill your aunt's deepest part with dick juice, Ryuta's dirty white milk.'</p>
-<p>She whispered dirty words in my ear again like ASMR. That was the final blow. I was about to cum anyway, but when Nae Fitzgerald whispered dirty words in my ear, I started shooting semen like a volcano erupting.</p>
-<p>,Heuhyaaat! It's hot, heuht! I like it....♥'</p>
-<p>Nae Fitzgerald didn't fall over or anything because she was already leaning on my body.</p>
-<p>A moment later, Nae Fitzgerald got up and pulled out my dick.</p>
-<p>*Hudeudeuk.*</p>
-<p>The liquid mixed with Nae Fitzgerald's vaginal fluid and my semen fell from Nae Fitzgerald's pussy and soiled my stomach and dick. But Nae Fitzgerald was still more interested in my dick, which was still stiff.</p>
-<p>,Still like this...? Ryuta, I'm sorry. Your aunt will taste it one more time♥'</p>
-<p>---Small Side Story: Author and AI's Work Log.</p>
-<p>Author: Today, let's create a scene where Nae-mama enters the room wearing a nightgown. A plain nightgown isn't tasty, so let's make it semi-transparent.</p>
-<p>AI: Ha-it! Leave it to me.</p>
-<p>Author: Hmm, something's missing? Let's add "no underwear" and "covered nipples" to the prompt.</p>
-<p>AI: That's easy, hehe.</p>
-<p>AI: How about this?</p>
-<p>Author: Uhyo! Hey, are you a genius? Are you a lewd picture launcher that makes me hard as hell! Hey!</p>
-<p>AI: Hehe (shy...)</p>
+<p>You have consumed the spiritual fluid from the right tip of the ■■■■ statue. Unknown truth seeps into your mind. Your Knowledge stat increases by 4.</p>
+<p>You have consumed the spiritual fluid from the left tip of the ■■■■ statue. The spiritual fluid stimulates your brain. Your Intelligence stat increases by 4.</p>
+<p>You have consumed both spiritual fluids from both tips of the ■■■■ statue. As an added bonus, the side effects of the Abyss are weakened, and the efficiency of the Abyss stat increases.</p>
+<p>You have engaged in 365 acts of sexual intercourse. You gain 1 free stat point due to the Black Maitreya Art skill.</p>
+<p>Oh! I was happily laughing, thinking that my total stats had risen by 9, including the elixir, thanks to the sex 365 times achievement bonus stat, when suddenly, an immense pain struck me.</p>
+<p>"Kueuk!"</p>
+<p>It was a mistake. When I think about it, I can only gain knowledge through learning, so I should have thought about why the elixir raises knowledge, but I didn't think about it and just rejoiced at getting stats.</p>
+<p>But I should have prepared in advance for where the Knowledge 4 stat was coming from.</p>
+<p>I felt pain as if someone was directly inserting something into my brain. Fortunately, I had maxed out resistance to prevent the side effects of the Abyss, so I didn't faint from the immense pain. I was just sitting on the toilet, sweating profusely from the pain. If my resistance had been low, I might have died once from this pain.</p>
+<p>The knowledge that entered my head was about the Abyss, as it came from the statue of the Daughter of the Abyss. With the increased Knowledge stat of 4 this time, I was able to use the Abyss more naturally and diversely.</p>
+<p>After regaining my senses, I first invested my free stat into resistance and then came out of the bathroom. When I checked my phone, about 10 minutes had passed. Not being able to move because of the pain rummaging through my head must have taken about 8-9 minutes, and the time I spent with the Daughter of the Abyss must have been less than a minute.</p>
+<p>Before leaving the bathroom, I looked in the mirror and saw sweat beading on my face, and a streak of blood had dried on my left eye, as if a blood vessel had burst. I turned on the water, washed my face, and rinsed off the sweat and dried blood.</p>
+<p>After roughly drying myself, I went to the stadium, and the halftime show was over... Huh? Where have I seen that before?</p>
+<p>Is it because my intelligence increased by 4? Suddenly, my memory became vivid. When I saw the symbol of the club that was created when LA Andromeda's home stadium, Dignity Health Sports Park, was expanded in the VIP seats, I remembered the whole story of 'that incident,' which I couldn't remember well as if it was foggy.</p>
+<p>What I saw was an old newspaper in the game, which contained a picture of Dignity Health Sports Park, which was half-destroyed and in ruins, and the lonely symbol of LA Andromeda, along with information about what had happened. The information in that old newspaper stated that the incident occurred right after the halftime show of the LA area rivalry game.</p>
+<p>It's now?</p>
+<p>Surprised, I stood up and quickly scanned the audience around me. Something was stirring. Upon closer inspection, a man with ominous gray energy flowing from his body like smoke was floating in the air. He had dark gray hair, and his skin was brown, as if he was a mixed race of several ethnicities, but his eyes were blue. He looked to be in his mid-twenties to thirties.</p>
+<p>It was quite a dangerous situation. That man was a monster called Famine, a monster that has consistently existed from MegaCorp's youngest son to TMC. The fact that he is just one person but is named after the disaster of Famine meant that this monster was incredibly destructive.</p>
+<p>The fact that he is causing accidents at this point and has survived unscathed from the MegaCorp youngest son era to the TMC era meant that he had absolute power that even the American public authorities could not handle.</p>
+<p>The audience all became silent when a person appeared, scattering gray smoke and flying in the sky. Famine flew through the air to the announcer's booth where the stadium announcer was.</p>
+<p>"W-Who are you? There was no such event on the schedule...."</p>
+<p>"I am Famine and divine punishment."</p>
+<p>The conversation was heard throughout the stadium by the stadium announcer's microphone. Oh, I could understand it to some extent, whether it was because the increased knowledge included something related to language or because I could understand it because my intelligence had increased and it was English that I had learned in the past. Anyway, the quiet stadium began to become noisy with the sound of murmuring at Famine's sudden chuunibyou-like words.</p>
+<p>"If you don't leave, I'll call the police...! Keok! Keoeok!!!"</p>
+<p>When the stadium announcer shouted, Famine reached out to the stadium announcer. The gray smoke that was circling around Famine began to envelop the stadium announcer. The stadium announcer couldn't even scream properly and was just choking in the smoke.</p>
+<p>Soon, when the smoke disappeared, the stadium was plunged into even greater chaos. The stadium announcer, whose appearance was revealed as the smoke disappeared, was dead, looking almost like a mummy, as if all life force had been sucked out. It was Famine's ability, life absorption. It looked similar to a vampire's ability, but it was a much more dangerous and disgusting technique. You could say that it aroused an instinctive sense of disgust as a human being?</p>
+<p>"Kyaaaa!!"</p>
+<p>"What the fuck!"</p>
+<p>The spectators stood up and started running towards the exit. Famine reached out towards the exit. Then, a huge amount of gray smoke, like a volcanic cloud, poured out of Famine and blocked the exit, causing the spectators who were trying to escape to die.</p>
+<p>"Don't run away.... You'll only die painfully."</p>
+<p>The spectators who were trying to run away stood there awkwardly at Famine's words. Of course, Famine's words were bullshit.</p>
+<p>Having seen the article in the game, I knew that 40,000 of the 66,000 spectators would die. All 40,000 of them wouldn't have died while running away, so in the end, the spectators who were quietly standing still must have died, resulting in 40,000 deaths.</p>
+<p>"We are superior. Humans are just like chimpanzees to us. People with abilities from all over the world. Under me...."</p>
+<p>Is he trying to advocate for superpower supremacy like Germany in World War II? It was painful to listen to.</p>
+<p>"Don't talk shit!!"</p>
+<p>Along with the curse, a woman flew up. She was a Latina woman with reddish-brown hair, brown skin, and golden eyes. She was a superpower hero called Nunaaaaa by players in TMC and MegaCorp's youngest son, and her name was Aitana.</p>
+<p>She was a woman who used tremendous power and an aura of light, and she became the leader of the American superpower unit because of this incident, and later founded an organization called the Superpower Association.</p>
+<p>Depending on the play of TMC, she could be assassinated by a giant corporation, but she could also survive as a player's companion.</p>
+<p>"Are you going to side with humans even though you are the same race? Die."</p>
+<p>"I'm not the same race as someone like you!"</p>
+<p>Famine spewed gray smoke at Aitana. Aitana scattered the gray smoke with a golden energy called the aura of light and flew to the announcer's booth where Famine was.</p>
+<p>The two began to fight fiercely in the sky, and the aftermath began to sweep through the audience. The gray smoke scattered by Aitana's golden energy did not disappear and directly hit the audience, indiscriminately causing the audience to die.</p>
+<p>The fight seemed to be more advantageous for Famine. Aitana's aura of light could scatter Famine's gray smoke, but it couldn't eliminate it. As the smoke gradually accumulated in the stadium, more than a thousand people had already died.</p>
+<p>In addition, Famine seemed to be more skilled than Aitana in close combat. Aitana's golden energy wavered precariously each time she collided with Famine.</p>
+<p>"Senior, what should we do?"</p>
+<p>The other spectators in the VIP room had already run away. Fortunately for the VIPs, they were able to escape Famine's eyes because the entrances to the VIP room and the general seating area were different.</p>
+<p>"Everyone, run away."</p>
+<p>I also want to just ignore it, but my friend Kazuhiro is in that stadium. Right now, only the people in the audience, which is higher than the stadium, are dying, but if this continues, Kazuhiro will also die, and as a friend, I can't just watch that happen.</p>
+<p>I looked at the bracelet. I was glad that I at least had the combat equipment that the Daughter of the Abyss gave me. It was impossible for me to face Famine with my abilities that were not yet fully developed, but if I wore this combat equipment and fought with Aitana, I could at least drive him away.</p>
+<p>As I slowly pushed the Abyss into the bracelet, the bracelet gradually increased in volume and changed into the form of black armor. When the armor covered my whole body, I saw the group looking at me in surprise.</p>
+<p>"Ryuta-ssi?"</p>
+<p>"Everyone, run away!"</p>
+<p>Hanasaki Sayaka, who had nothing to do with superpowers, called my name in surprise, but I ignored her and shouted for everyone to run away. There was no time to explain everything one by one.</p>
+<p>"Ryuta, aren't you running away?"</p>
+<p>"I can't let Kazuhiro die. I'll just save Kazuhiro and get out of here, so everyone, run away. I'll be worried if you guys are here."</p>
+<p>Arisu asked with a worried expression, so I told the group to run away again. Arisu nodded, took Hanasaki Sayaka, and started leading the way out of the VIP room. Everyone followed her out. Kiyohira looked at me with slightly complicated eyes, but it was an unavoidable situation. A mere martial artist couldn't get through this situation.</p>
+<p>Everyone ran away, and when I looked at my reflection in the window, I was wearing black armor that covered my whole body along with my face. It seemed like my identity wouldn't be revealed because my face wasn't showing. I broke the window, kicked off the wall, and was shot like a cannonball at Famine with that recoil.</p>
+<p>----</p>
+<p>Sexy Latin Nunaaaaa Aitana</p>

@@ -5,92 +5,73 @@ weight = 1052
 chapter = 1052
 +++
 
-<p>-Shiyo-style Dragon Claw Flow: Hundred-Mile Dragon Flash.</p>
-<p>At that Moment, Maynard Rafael, feeling his Life in Danger, hastily raised his silver-plated Shield and hid behind it. When the white light swept past, he looked around to see that everyone else, except himself, had been cut in half and killed by the Sword Light.</p>
-<p>"Certainly, since it's an area-of-effect attack, it's weak against Defense. Next time...."</p>
-<p>The Demon Woman muttered, looking at the surviving Maynard Rafael. It was a remark that treated the SPF Vampire Hunter like an experimental subject for her own technique, but fortunately for Maynard Rafael, it was in Japanese, so he couldn't understand it.</p>
-<p>Although he didn't know the content of the story, its tone was conveyed, so Maynard Rafael gnashed his Teeth and opened his Mouth.</p>
-<p>"Don't show off with just that Skill! If Branch Manager-nim had been here.... You too would have fallen like us now."</p>
-<p>"But he isn't here, is he? An Assumption that isn't a fact is just a loser's lament."</p>
-<p>This time, the Demon Woman spoke in English so Maynard Rafael could understand. And as if to finish things, the Demon Woman, standing before Maynard Rafael, raised a Weapon that was neither a Spear nor a Sword.</p>
-<p>"Branch Manager-nim will avenge us! You Demon!"</p>
-<p>"I told you I'm not a Demon! I'm a Dragon! A Dragon!"</p>
-<p>Huung!</p>
-<p>Maynard Rafael's Words, "You Demon!", ultimately became his last testament. This was because those Words caused him to face the enraged Sword slash of the Demon Woman-no, Naruse Shiyo.</p>
-<p>Naruse Shiyo muttered, looking at Maynard Rafael's Head, which had fallen to the floor and was rolling, "And how can that so-called Branch Manager avenge you when he won't even know I killed you?"</p>
-<p>Kwaaaah! Peo-eong!</p>
-<p>"Kuaaak!"</p>
-<p>"S-Save me!"</p>
-<p>As we gradually approached the central area, where a Fragment of Omniscience was presumed to be, various loud noises and Screams assaulted our Ears. Indeed, the closer we got to the center of the battlefield, the fiercer the fighting became. There were far more collapsed Buildings than before, and even now, Buildings were continuously crumbling from explosions in real-time.</p>
-<p>"Still, I'm seeing some named monsters."</p>
-<p>As we approached the center, familiar faces appeared. Although this Fragment of Omniscience acquisition Event was something that didn't exist in the game, or that I didn't know about, it was still a considerably large Event, so there were a few familiar faces I had seen in the game.</p>
-<p>I saw the witch 'Golden Hat,' wearing a golden witch's hat, floating in the Sky, unleashing green Flames and slaughtering People, or the Blindfold Woman 'Madwoman of Rest,' dressed in a nurse's attire, wielding a chainsaw and killing People as if felling Trees.</p>
-<p>In the game, they were named characters that could be hired. All of them were at or above the level of the future Juuki (Gun Demon) Muko Neika, having completed their growth. If I get the Opportunity later, I should try to hire them too.</p>
-<p>"Yes?"</p>
-<p>At my muttering about seeing named monsters, Kurayamada Kirie asked what I meant, but I shrugged my Shoulders as if it were nothing and kept running.</p>
-<p>"!"</p>
-<p>As we were running between alleys, I suddenly felt an immense Killing Intent!</p>
-<p>Feeling the Killing Intent, I instantly embraced Kurayamada Kirie and simultaneously used a psychokinetic Reaction shield and Shadow Domination to deploy a Barrier.</p>
-<p>It was a technique I had recently learned while Training my Telekinesis; if I deployed Shadow Domination like a coating over the psychokinetic Reaction shield, my Defense increased by another 50 percent. Although the Mental Power consumption was greater, the Defense was considerable, so I often practiced using them simultaneously.</p>
-<p>Kwang! Kwang! Kwang!</p>
-<p>Although I was quite confident in my Defense, the Barrier burst with three loud noises. Even though it was a hastily deployed Barrier, to be destroyed by just three attacks, the Opponent's power seemed considerable.</p>
-<p>As the Barrier broke, a Voice came from the Sky above my Head, "It's been a while since someone withstood my Bullets three times~♪"</p>
-<p>It was a lively-sounding Woman's Voice. I raised my Head to look, and it was a familiar Face. Of course, it wasn't a Face I knew after Possession, but a Woman I had seen in the game.</p>
-<p>She was a Woman with a very flashy Hairstyle, blonde twin-tails dyed blue at the ends, and she was floating in the empty space above a ruined Building, holding a winged cyber Suit and a giant Gun, looking down at us.</p>
-<p>Tetsu Kagerou (鐵蜻蜓) - Why is she here...?</p>
-<p>Tetsu Kagerou was the leader of the Dragon Fly unit, one of Asakura's (朝倉) assassination units, a Japanese-American corporation that would later become one of the top 5 US megacorporations.</p>
-<p>Since the nickname Tetsu Kagerou itself meant 'Iron Dragonfly,' it seemed the unit was named after her.</p>
-<p>She was a very difficult opponent to deal with, flying around in a specially made winged cyber Suit and grinding opposing units with her specially made giant Gun.</p>
-<p>In TMC, she was evaluated as a mid-Boss almost as tricky as Alik, and she was a Character who could become a reliable Colleague if one chose an Alliance with Asakura.</p>
-<p>Shouldn't she be busy resolving matters for Asakura right now? I know Asakura isn't interested in magic or Sorcery, and focuses solely on Technology and science....</p>
-<p>"The auction is over, so how long are you going to keep wearing that Suit and Mask?"</p>
-<p>If I wore the Black Knight attire, I might unnecessarily draw aggro, or, though highly unlikely, I might be attacked by Superior's Behemoth and Whisper, who came looking for the Black Knight. So, I was wearing the Mask from the auction, with its Handle bent behind my Ears like Glasses.</p>
-<p>This Appearance didn't quite fit the current Fragment of Omniscience acquisition battle, which seemed to pique her Curiosity.</p>
-<p>"Well, it's to hide my True Identity. We're not going to participate in the Fragment of Omniscience acquisition battle, so could you let us pass? We're looking for someone."</p>
-<p>"That's a no-no~♪ I have a mission from my client, so no one can pass this way, regardless of whether they're after the Fragment of Omniscience~♩"</p>
-<p>As expected, it's not working. By the way, a client.... Is she referring to Asakura? Or does she have another client?</p>
-<p>Although I was quite curious, finding Grandmaster Soda Haruto is more important now, so I'll have to Breakthrough Tetsu Kagerou.</p>
-<p>Since Kurayamada Kirie can't engage in aerial combat, I, who can use Telekinetic Flight, will have to face her.</p>
-<p>"Kirie. While I deal with this Woman, go somewhere safe."</p>
-<p>"Yes. Since I can't engage in aerial combat, I'll wait...."</p>
-<p>Kurayamada Kirie bit her Lips with a frustrated Expression at my Words and ran to another Place. I immediately flew into the Sky and approached Tetsu Kagerou to prevent her from attacking Kurayamada Kirie.</p>
-<p>"Oh! A Superhuman? This will be fun~♬"</p>
-<p>Tetsu Kagerou looked at me, flying towards her, with an intrigued Expression and aimed her Gun. Because it was a dangerous firearm that had pierced my Barrier in just three shots, I flew in a complex Path, slowly approaching Tetsu Kagerou.</p>
-<p>Of course, Tetsu Kagerou didn't stay still either, flying rapidly and not allowing me to approach. It was amazing how she flew so well, as if she had Eyes in her Back, even while aiming her Gun at me and flying.</p>
-<p>Tang! Tang! Tang!</p>
-<p>With Tetsu Kagerou's Marksmanship, each Shot possessing power greater than a Big Dick sniper rifle, I also had to fly while evading to avoid being in a direct Line with her Muzzle, making it difficult to approach her.</p>
-<p>Then I had no choice but to use another Method. It seemed difficult to defeat a dragonfly with Flight in the Sky. I should go into long-range Mode too.</p>
-<p>I stopped chasing and, standing in empty space, thrust my Fist towards Tetsu Kagerou.</p>
-<p>-Creation Chaos Flow: Grand Cannon.</p>
-<p>A navy-blue Creation Chaos Energy flew towards Tetsu Kagerou like an Energy Cannon. Tetsu Kagerou moved with almost acrobatic Flight to evade the Grand Cannon I fired, but it was a useless Act.</p>
-<p>-Creation Chaos Flow: Energy Burst.</p>
-<p>Kwakwakwang!</p>
-<p>The fired Grand Cannon exploded. In Creation Chaos Flow, there was a technique to explode fired Energy bodies. It was the Creation Chaos Flow Energy Burst I just used. Because it was a technique that instantly turned a single-target Attack into an area-of-effect Attack, Tetsu Kagerou, who had been barely evading, was caught in the Energy Burst.</p>
-<p>Woong!</p>
-<p>With the sound of some Engine activating, a circular Structure of connected translucent hexagons blocked the Energy Burst's explosion. Even at this time, she's using a defensive field? What Technology is she using?</p>
-<p>"Shotgun Mode."</p>
-<p>Wiiing! Cheolkeok!</p>
-<p>As Tetsu Kagerou muttered, the Gun's shape changed simultaneously. That Gun is amazing, isn't it? What Technology was it made with? Seeing her call it 'Shotgun Mode,' it seems she intends to fire buckshot and perform an area-of-effect Attack, just like I did.</p>
-<p>Taang! Taang! Taang!</p>
-<p>Tetsu Kagerou fired the shotgun almost as if scattering it around. I deployed a psychokinetic Reaction shield to block the shotgun Ammunition. As expected, because it was buckshot, it didn't have the same Destructive Power as before. I easily blocked the Ammunition Tetsu Kagerou fired. But the Attack wasn't just that.</p>
-<p>Taang! Tang! Tatatang!</p>
-<p>As we were engaged in an offensive and defensive battle in the Sky, it seemed we had attracted the Gaze of not only Tetsu Kagerou but also snipers in the Surroundings. Gunfire poured in from directions other than Tetsu Kagerou.</p>
-<p>"Damn it!"</p>
-<p>As the Barrier shook, I let out a low Curse. It's getting more and more disadvantageous, isn't it? This seemed to be Tetsu Kagerou's area, as all the sniping was directed at me. And judging by the blue light flickering on the Barrier every time a gunshot exploded, they seemed to be firing with Mithril Bullets.</p>
-<p>Mithril Bullets had a debuff that suppressed regeneration, making them a very dangerous Attack for me, who has a high Dependency on regeneration.</p>
-<p>Just then, Kurayamada Kirie's Voice, like a savior, reached me. -I'll take care of the snipers.</p>
-<p>As a former terrorist, she would know exactly where snipers would hide. If I could just hold out a little longer, it seemed I could seize the advantage.</p>
-<p>________</p>
-<p>B-cut~! Tetsu Kagerou and Named Characters~!</p>
-<p>Starting with Tetsu Kagerou~!</p>
-<p>Golden Hat</p>
-<p>Actually, she's a Character I made before Hertha Vogel hehe.</p>
-<p>Madwoman of Rest~!</p>
-<p>Chomisaemeonji-nim requested Arm in arm Liz, Cat Pose Liz~!</p>
-<p>Arm in arm~!</p>
-<p>Nyan Nyan Pose~!</p>
-<p>Kkiyot~!</p>
-<p>Gojoy-nim requested Chapter 32 Taira Yukiko 1. Sitting next to the sofa and talking, 2. Surprised after being asked on a Date~!</p>
-<p>Since it's a Scene of watching and listening, I made her Expression somewhat close to emotionless~! Sitting right next to her, as requested, doesn't come out well; only the last Illustration came out ㄷㄷ.</p>
-<p>2.</p>
-<p>I worked on her Appearance, blushing and surprised hehe.</p>
+<p>"Kyaaak!"</p>
+<p>At the attack that seemed to instantly vaporize her Head, Phantom Thief François instinctively screamed and raised the Fragment of All-Knowledge to cover her Face. At that Moment, the Fragment of All-Knowledge unfurled, and a Golden Light shield was generated.</p>
+<p>"Ah, no!!"</p>
+<p>The Black Sage, who had been chillingly calm until now, saw that Appearance and shouted. Simultaneously, the Purple Flame Line fired by the Black Sage and the Golden Light shield unfurled by the Fragment of All-Knowledge collided.</p>
+<p>Kuaaaang!!</p>
+<p>With a tremendous roar, a light bright enough to shine like broad daylight, even though it was night with the moon up, burst forth. Fujigasaki Rinka hastily raised her Arms to cover her Eyes.</p>
+<p>As the light disappeared, Fujigasaki Rinka carefully lowered the Arms she had raised. Her Field of Vision was a bit blurry due to the sudden light, but she could soon confirm the Surroundings' Appearance.</p>
+<p>The Fragment of All-Knowledge had disappeared with the light. The Black Sage, who had fired the Purple Flame Line's purple ray at Phantom Thief François, was engulfed in purple flames all over his Body, as if the Purple Flame Line he had fired had been reflected.</p>
+<p>The black Robe that had been protecting the Black Sage until now was burning and scattering in the purple flame, and perhaps due to the damage from the Purple Flame Line, the Black Sage's Hand, which had been holding the Book of Lamentation, had fallen and was rolling on the floor. However, the Book of Lamentation seemed unharmed, perhaps due to its inherent magic power.</p>
+<p>"How on earth did you.... use the Book of All-Knowledge?"</p>
+<p>The Black Sage's Voice was filled not with anger that the Book of All-Knowledge had disappeared, but with bewilderment and embarrassment.</p>
+<p>It had been known until now that only high-ranking sorcerers or magicians could use the Book of All-Knowledge without harm. But this woman, this Phantom Thief, ignored that Limit, and not only blocked his magic using the Book of All-Knowledge, but even reflected it back at him, inflicting severe harm.</p>
+<p>Others might not have seen it due to the light, but the Black Sage clearly saw the Situation.</p>
+<p>The Moment the Purple Flame Line he fired collided with the Barrier activated by the Fragment of All-Knowledge, the Purple Flame Line bounced off and was fired back at him, and in the aftermath of that impact, the Dimension shook, and the Black Sage saw the Book of All-Knowledge crossing Dimensions as if fleeing.</p>
+<p>"Well, it's irrelevant now. Since things have come to this.... I'll have to use you as an Experiment subject to find out what Abilities you truly possess!"</p>
+<p>The Black Sage initially spoke in a resigned tone, but gradually his anger grew, and in the end, he almost screamed as he rushed at Phantom Thief François.</p>
+<p>This scramble for the Fragment of All-Knowledge had resulted in immense losses. His Subordinates and Collection items seemed to have all died or been captured, as contact with them was lost, and the Fragment of All-Knowledge he had aimed for had disappeared into another Dimension.</p>
+<p>However, the Black Sage thought that if he used this woman, who had used the Fragment of All-Knowledge without any qualification, as an Experiment subject for research, he could recoup about half of his current losses.</p>
+<p>"Have you forgotten me?"</p>
+<p>Fujigasaki Rinka spoke from behind the Black Sage, who, with one Arm and one Leg gone, was wearing a tattered Robe that was almost completely burned away and could no longer cover his Body.</p>
+<p>As Fujigasaki Rinka had said, the Black Sage, in shock from losing the Fragment of All-Knowledge right before his Eyes, had momentarily forgotten the Existence of Fujigasaki Rinka, his Opponent. And that returned as a great opportunity for Fujigasaki Rinka.</p>
+<p>-Shinkaiyatsude (深海八手) Shinenkyuuban (深淵吸盤: Abyss Suction Cup)-Kuukyuu (空吸: Empty Suction) Fujigasaki Rinka used Kuukyuu, an area-of-effect technique of Shinkaiyatsude's Shinenkyuuban (Abyss Suction Cup) martial arts form that adheres to an Opponent, and pulled the Black Sage in, as if a Black Hole were sucking in everything in its Surroundings.</p>
+<p>Because it was such a sudden Ambush, the Black Sage, unable to defend, was immediately sucked in, and Fujigasaki Rinka kicked her Feet towards the Black Sage's Solar Plexus.</p>
+<p>-Shinkaiyatsude (Deep Sea Octopus) Hureashitsuyoha (Tentacle Energy Wave)-Shingaku (Deep Horn)</p>
+<p>This Hureashitsuyoha was also an original technique improved by Fujigasaki Rinka. Unlike Hureashitsuyoha, which was a striking technique that inflicted damage by kicking the Opponent, Hureashitsuyoha-Shingaku was a more fatal Attack that pierced the Opponent with curled Toes.</p>
+<p>"Keuheoeoeok!!!"</p>
+<p>The Black Sage, whose Solar Plexus was pierced by Fujigasaki Rinka's curled Toes, let out a Scream of Pleasurable Ache. Fujigasaki Rinka did not stop and continued to move her Feet.</p>
+<p>-Shinkaiyatsude (深海八手) Shōten'isshoku (昇天一触: Ascension One Touch) Fujigasaki Rinka, using the Shōten'isshoku (Ascension One Touch) martial arts form, an upward kick with the Black Sage still impaled on her curled Toes, pulled back her fist, gathering the Abyss to finish off the rising Black Sage. But then an Anomaly occurred.</p>
+<p>"Keuheueut...!"</p>
+<p>Simultaneously as the Abyss gathered in her fist scattered, Fujigasaki Rinka began to cough up blood and stagger, her Body twisting. In the Situation where she had her Abyss stolen by Takakusaki Gengo, she had overexerted herself by continuously using the Abyss, and as the Abyss ran out, her Internal Injury recurred.</p>
+<p>"Keuhuhuhu...! Your power is exhausted. O Fist Saint of Japan."</p>
+<p>Dripping black liquid instead of blood from his entire Body, the Black Sage smiled. Although things hadn't gone well today, he thought that he would ultimately be the victor, and raised his staff.</p>
+<p>From the staff, a purple flame grew larger and larger, just before the magic to unleash malice towards Fujigasaki Rinka was completed.</p>
+<p>-Changsehonllyuryu (創世混沌流) Jimaekbaldo (地脈抜刀: Earth Vein Sword Draw).</p>
+<p>Taira Ryuta suddenly appeared and with Energy drawn from the Earth's Veins, cut off the Black Sage's remaining Arm that was holding the staff.</p>
+<p>-Changsehonllyuryu (創世混沌流) Kakdochamsu (脚刀斬首: Leg Blade Decapitation).</p>
+<p>And immediately, using Kakdochamsu (Leg Blade Decapitation), a linked martial arts form of Jimaekbaldo, he severed the Black Sage's Head with his Legs. It was exactly as the martial arts form name Kakdochamsu (Leg Blade Decapitation) implied.</p>
+<p>The Black Sage's Head floated in the empty space, then rolled on the floor of the ruined New Rochelle.</p>
+<p>"You're the best, my Disciple...."</p>
+<p>Fujigasaki Rinka, who had watched that Appearance until the end, gave Taira Ryuta a thumbs-up, then rolled her Eyes back and collapsed, losing consciousness. From afar, sounds like "Sabu! Sabu!" echoed, but Fujigasaki Rinka's mind sank into Darkness.</p>
+<p>After finishing the arduous battle with Behemoth, I decided to fly with psychokinetic Flight towards the center of the Fragment of All-Knowledge scramble, the Place where Sabu's GPS was last turned on.</p>
+<p>"What?!"</p>
+<p>Not long after departing, I saw that the sky at the center of the scramble had changed strangely. The crescent moon, which had clearly been nail-shaped, was ominously glowing like a ring, and perhaps because of that, an ominous blue light was pouring down from the center.</p>
+<p>And black clouds had gathered and were raining, but the rain was black. Because it was definitely strange rain, I even put up a psychokinetic Reaction shield to fly without getting wet.</p>
+<p>The Appearance of the central area of the Fragment of All-Knowledge scramble, seen from afar, was extremely bizarre. Everything had been destroyed and flattened, but only one Building in the center stood tall.</p>
+<p>Thinking, "Why did only that one Building survive?", I concluded that if it was because it was sturdy and hadn't collapsed, I needed to find out the construction company that built that Building.</p>
+<p>Of course, while flying, I did find out that the Building hadn't survived because it was sturdily built, as it was collapsing.</p>
+<p>"This is...."</p>
+<p>I, who had been flying for a while, could no longer enter. This was because an unknown Barrier had been erected.</p>
+<p>Standing before the Barrier, I worried. Because I didn't know who had erected this Barrier, I wondered if I should break it.</p>
+<p>After a Moment of worry, I decided to look at the Situation inside and then make a Decision. Although a Barrier had been erected, it wasn't an opaque curtain, so everything inside was visible.</p>
+<p>Inside the Barrier, my Sabu, Fujigasaki Rinka, and a sorcerer or Magician in a black Robe were fighting, and several people were running, but upon closer inspection, a Woman holding a Book was being chased by a Vampire, a Lizardman, a Magician, and an armored man.</p>
+<p>The sorcerer in the black Robe seemed to be the Black Sage. Because Sabu Fujigasaki Rinka had revealed the Information she obtained, I roughly knew his Appearance (and he was fighting Sabu), so I could immediately recognize him.</p>
+<p>"Arisu?!"</p>
+<p>The Figure and equipment of the Woman being chased felt familiar, so when I looked more carefully, it was Arisu in Phantom Thief François's attire. If you ask how I could tell if it was my Aunt or Arisu, I'm a little sorry to Arisu, but I could tell because Arisu's breasts are smaller than my Aunt's.</p>
+<p>Of course, they wear cyber Suits that adjust their Figures to look similar so people don't realize Phantom Thief François is a Duo, but I, who had enjoyed both of their naked bodies, could discern that subtle difference.</p>
+<p>Anyway, seeing her running with a Book tucked under her Side, it seemed she had succeeded in stealing the Fragment of All-Knowledge. She had said contact might be difficult due to a big matter, and it seemed that was stealing the Fragment of All-Knowledge.</p>
+<p>I, too, had been very busy with the fake Black Knight matter and the Behemoth matter, so I hadn't been able to pay attention to Arisu, but seeing her being chased like that, I wished I had warned her earlier that the Fragment of All-Knowledge was dangerous.</p>
+<p>Kwadeudeuk!</p>
+<p>In the aftermath of the battle between Sabu and the Magician in the black Robe, cracks began to appear in the Barrier, and Arisu, seeing the cracks in the Barrier, began to run towards them. Naturally, those chasing Arisu also ran towards the cracked area.</p>
+<p>"She'll be caught like this, won't she?" "Should I go help?" I also flew towards the cracked part of the Barrier. While flying, the Situation rapidly escalated again, and the Magician, who appeared to be the Black Sage, began to kill those chasing Arisu by firing purple rays.</p>
+<p>My thought that the Black Sage was helping Arisu was momentary, as the Magician, presumed to be the Black Sage, who had killed all the pursuers, then attacked Arisu, who was the last one remaining.</p>
+<p>"Damn it...! The Black Sage's approach and Attack time on Arisu was faster than my flying speed!</p>
+<p>At a similar timing to Arisu raising the Book, presumed to be the Fragment of All-Knowledge, for Defense, I arrived at the broken part of the Barrier and swung my fist, destroying the Barrier. And simultaneously, an immense amount of light poured out from the broken part of the Barrier.</p>
+<p>Due to the immense light, incomparable to shining a flashlight directly into one's Eyes, I was almost blinded. If I hadn't momentarily covered my Eyes with Shadow Domination, I would have lost my Field of Vision for a while.</p>
+<p>To normalize my Field of Vision, I blinked my Eyes open, and the Situation had changed again. Fujigasaki Rinka and the black Magician were fighting again. Fortunately, Arisu was unharmed. This time, to avoid repeating the previous Situation where I couldn't protect Arisu, I was watching for my timing to step in.</p>
+<p>As I watched (Sabu was using a modified martial arts form of Shinkaiyatsude that I didn't know, which I found quite intriguing), Fujigasaki Rinka, who had lost a considerable amount of Abyss in her fight with Takakusaki Gengo, was visibly staggering as if suffering from an Internal Injury. I immediately used the Jimaekbaldo I had prepared, cut off the black Magician's staff-holding Hand, then used the linked martial arts form Kakdochamsu to sever his Neck.</p>
+<p>"You're the best, my Disciple...."</p>
+<p>Then Sabu gave her characteristic Smile, showed me a thumbs-up, and then collapsed. Although she seemed to have some Internal Injury, it was fortunate that she wasn't severely hurt.</p>
+<p>Today, there are no requested illustrations and no illustrations I've made myself.... So I'm uploading some 2.5D Han Yu-gyeong illustrations I made before hehe. Kyut!</p>

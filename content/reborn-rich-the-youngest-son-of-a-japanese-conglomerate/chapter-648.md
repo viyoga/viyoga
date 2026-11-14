@@ -5,103 +5,84 @@ weight = 648
 chapter = 648
 +++
 
-<p>The second floor of the special class building had not only club rooms but also storage rooms and counseling rooms. After lunch, I went up to the second floor and waited for Urabe Konoka in the counseling room.</p>
-<p>Come to think of it, I met Urabe Konoka here in this counseling room before. However, that time it wasn't about Urabe Konoka's business, but to talk with Simyeonui ttal, but I don't know what she wants to talk about today that she requested counseling with me.</p>
-<p>I don't know if it's because of Simyeonui ttal like before, or if it's to discuss her personal matters, but it must be important since she called me to the counseling room. If not, she would have just talked to me on Line.</p>
-<p>,I'm sorry I'm late, sensei-nim."</p>
-<p>,No, I just got here after lunch too."</p>
-<p>With a click, the door opened and Urabe Konoka entered. The counseling room wasn't a sliding door like a classroom, but a hinged door that was easier to lock. Since sensitive topics might be discussed, it was made easy to lock so that others couldn't suddenly enter.</p>
-<p>,Sit down in front."</p>
-<p>,Yes."</p>
-<p>I quietly stared at Urabe Konoka sitting in front of me. She was in her usual appearance, wearing her trademark red hairband. When I looked at her, she shyly averted her gaze and blushed.</p>
-<p>,So, Urabe. What's the reason for requesting counseling?"</p>
-<p>,Sensei-nim knows my situation well, right? Serving Shinkai Hime-nim."</p>
-<p>,Well, yeah?"</p>
-<p>Shinkai Hime-nim.... Is it about Simyeonui ttal again?</p>
-<p>,Very rarely, Shinkai Hime-nim descends into my body."</p>
-<p>,Yeah, she descended when we met in the counseling room last time too."</p>
-<p>,Yes. Like that time."</p>
-<p>Urabe Konoka didn't open her mouth anymore, for whatever reason. I didn't know much about counseling, but I knew enough not to push her in this situation, so I sat still and waited for Urabe Konoka to speak.</p>
-<p>After being quiet for a while, Urabe Konoka sighed briefly and then opened her mouth again.</p>
-<p>,Actually.... It's the time when she descends that's the problem."</p>
-<p>,When she descends? Can you tell me more?"</p>
-<p>,Shinkai Hime-nim's love for sensei-nim is so great that it seems to be greatly affecting me. I don't know if I really like sensei-nim or if I'm becoming assimilated with Shinkai Hime-nim. Not just my feelings for sensei-nim, but...."</p>
-<p>,A problem of ego, huh."</p>
-<p>,Yes. I'm afraid I'll disappear.... I'm scared."</p>
-<p>Urabe Konoka started to cry, saying she was scared. So, this was the problem. Simyeonui ttal probably didn't descend to deliberately erase Urabe Konoka's self-awareness. It's just that a mere human consciousness can't withstand the infinite spirit of Simyeonui ttal.</p>
-<p>,Maybe the necklace I picked out for you from the Naruse family warehouse will help."</p>
-<p>,Really?"</p>
-<p>The jade necklace I picked out from the Naruse family warehouse has a bonus to the Willpower stat, so it won't solve Urabe Konoka's worries, but it will be a temporary measure.</p>
-<p>,I've been wearing it ever since sensei-nim picked it out."</p>
-<p>Urabe Konoka showed me the necklace she was wearing around her neck and smiled slightly. Perhaps because the necklace was slightly visible, an information window popped up in front of my eyes.</p>
-<p>◆Shamaness's Jade Necklace [Unique Equipment/Accessory]: A jade necklace worn by a shamaness called a Shamaness in the past. It protects the mind and facilitates communication with the gods.</p>
-<p>Strong resistance to mental attacks.</p>
-<p>Willpower +5</p>
-<p>Easier communication with the gods for shamanesses.</p>
-<p>I actually chose this necklace because of the last option, but I'm glad it's also helping with Urabe Konoka's worries.</p>
-<p>,It'll be okay for a while if you wear the necklace. And meditation and various experiences will also be of great help in strengthening your mind."</p>
-<p>,Then that's good. Thank you, sensei-nim."</p>
-<p>Urabe Konoka nodded with a smile only after I presented a solution.</p>
-<p>,And."</p>
-<p>,Yes?"</p>
-<p>Urabe Konoka looked like she was wondering if the counseling wasn't over yet. It's not over yet. There's something I need to confirm.</p>
-<p>,You said you weren't sure if your feelings for me were your own or Simyeonui ttal's, so shall we go on a date this weekend to be sure?"</p>
-<p>,Ah.... S-sure, sensei-nim...."</p>
-<p>,Since Simyeonui ttal hasn't returned yet, you'll be able to know your heart accurately if we go on a date."</p>
-<p>Rather, it was good that Simyeonui ttal wasn't back in a situation like this. If she can be sure of her own heart, she'll be able to hold onto her wavering heart well.</p>
-<p>,We've been on a date before, but it wasn't really a date."</p>
-<p>,That's right...."</p>
-<p>Before, when I went on dates with the top 6 students in the second semester midterm exam, Urabe Konoka's grades weren't good, so she wasn't a date target. But she went on a date in the Simyeonui ttal category(?), which was a 2-on-1 date with Alik. It just felt like friends hanging out. We never had time alone together.</p>
-<p>If Urabe Konoka knows her heart accurately while going on a 1-on-1 date this weekend, she will be able to treat me more comfortably.</p>
-<p>,Do you have any other concerns?"</p>
-<p>,No, I don't. What I talked about just now was my biggest concern these days."</p>
-<p>,Okay. Let's go out together."</p>
-<p>There was no need to use the counseling room after this, so Urabe Konoka and I left the counseling room together. As we left the counseling room, we ran into Minamoto Risa and Konoe Akina, who were just coming up to the second floor.</p>
-<p>,Huh? What's going on with you and Urabe alone?"</p>
-<p>,Did you have a delicious lunch, sensei-nim?"</p>
-<p>Their reactions are completely different. Minamoto Risa had a look on her face that said, "Don't tell me you did something lewd?" and Konoe Akina was looking at me with her usual kind expression.</p>
-<p>,The answer to Konoe's question is yes, I went to the school cafeteria for lunch again today. To answer Minamoto's question, if I came out of the counseling room, I obviously came out after counseling. What else would I be doing?"</p>
-<p>,I ate a packed lunch, sensei-nim~!"</p>
-<p>,Ah.... That's right."</p>
-<p>I answered their questions in turn. Konoe Akina's reaction passed, and Minamoto Risa had a look on her face that said, "Oh, I see."</p>
-<p>,Did you guys come up here because of club activities?"</p>
-<p>In fact, Konoe Akina and Minamoto Risa weren't on bad terms, but they weren't members who hung out often. So, I asked about club activities that they were both involved in. Konoe Akina was the president of the Date Experience Club, and Minamoto Risa was the vice president.</p>
-<p>,Yes. We have some things to do today."</p>
-<p>,We have to report our club activities to the student council every month. There's that in November, so the report was a bit late, and we're trying to take care of it during lunch today."</p>
-<p>Ah, I see. I didn't know I had to report to the student council every month.</p>
-<p>,Okay, good luck. Are you picking out photos again today?"</p>
-<p>,Yeah. If we're a little strict, we'll probably finish picking out photos today."</p>
-<p>,Sensei-nim, you have to participate like yesterday~!"</p>
-<p>It was fortunate that the annoying photo picking was ending today, but it was annoying that I had to participate again today. I nodded and told them to have a good time, then went down to the first floor with Urabe Konoka.</p>
-<p>,Are you going straight to the classroom?"</p>
-<p>,No, I'm going to stop by the bathroom first."</p>
-<p>,Ah.... Okay? Then I'll see you at the end-of-day assembly."</p>
-<p>,Thank you for the counseling, sensei-nim."</p>
-<p>Urabe Konoka bowed to me and ran to the bathroom, as if she had been holding it in. I was glad that I didn't completely ruin the counseling.</p>
-<p>###</p>
-<p>Three men were sitting at a square table. A brown-skinned, red-haired giant, a pale-skinned, white-haired man, and a bespectacled man with squinting eyes and a smiling expression were looking at the empty seat at the square table.</p>
-<p>,That bitch didn't come today either?"</p>
-<p>Kokubo Shiratsu, one of the Four Heavenly Kings of Anya-ji, the white-haired man, opened his mouth with a sneer as he looked at the empty seat.</p>
-<p>,That bitch.... You shouldn't say such bad things to each other as fellow Four Heavenly Kings. Aren't we classmates who received martial arts from the master?"</p>
-<p>Funayama Seigo, who was in charge of disciple education within Anya-ji, frowned slightly at Kokubo Shiratsu's harsh words.</p>
-<p>,Hmph...!"</p>
-<p>,First of all, thank you for responding to the Four Heavenly Kings meeting. The agenda I called for is that our disciples were kidnapped by the Fist Alliance. Especially this time, they broke through the Berserker, so the damage is quite severe."</p>
-<p>The Berserker was a curse that turned people into violent madmen. It was a curse that borrowed the form of fist techniques, but since its essence was still a curse, it couldn't be used recklessly and had to be used carefully because it consumed various cursed objects.</p>
-<p>,So, we're going to break in and get back the little brats who aren't even useful yet?"</p>
-<p>,Even if we can't get them all back, we need to give them a warning. Getting rid of Kinui Tachio, the new master of our disciples, might be one way to warn them."</p>
-<p>Funayama Seigo nodded at Kokubo Shiratsu's words and suggested a method. The brown-skinned, red-haired man, who had been silent until then, opened his mouth.</p>
-<p>,You shouldn't underestimate Kinui Tachio. He's a skilled person, even if he's not at the level of Kamiken (God Fist)."</p>
-<p>,Wouldn't it be okay if you, Kaishu, stepped up?"</p>
-<p>The red-haired giant's name was Kaishu Kakan. He was a large and taciturn man, but he had quite a sharp knowledge of combat, so all the Four Heavenly Kings tended to agree with Kaishu Kakan's words.</p>
-<p>,Accepting a disciple who was hit by the Berserker means that we also have to deal with the background that the disciple had. Moreover, there's news that Kinui Tachio recently moved to a dojo in Miyashi, and as you all know, Miyashi is a Level 1 danger zone. Still, if you insist on retrieving the disciples and getting rid of Kinui Tachio, at least 3 of the Four Heavenly Kings must step up, and a significant number of disciples must also be involved."</p>
-<p>,At least?"</p>
-<p>,Yes, the force I mentioned is the minimum."</p>
-<p>,I'll have to think about it for a while."</p>
-<p>Funayama Seigo stepped back for a moment at Kaishu Kakan's words. But looking at his eyes, it didn't seem like he had given up. The other Four Heavenly Kings gathered here knew it too. They all knew Funayama Seigo's obsession with his disciples well. He was clearly planning to persuade the remaining Four Heavenly Kings somehow.</p>
-<p>,I'll be going to Miyashi soon....'</p>
-<p>Kokubo Shiratsu muttered inwardly. And he glanced at the empty seat. Kokubo Shiratsu felt nauseous.</p>
-<p>,We're about to go through hardships, but she's wandering around comfortably, that crazy bitch....'</p>
-<p>______</p>
-<p>Seizawa Shii Bunny Girl Renewal.</p>
-<p>Slightly different model.</p>
-<p>Shii's 2.5D reaction wasn't good, so I went back to the original Shii haha</p>
+<p>The first day of the festival has passed. Fortunately, since yesterday afternoon, the printing shop kept supplying my photo cards, so we were able to sell the club's anthology well without any customers turning back.</p>
+<p>Of course, I had to go on festival dates with the students one by one for their welfare(?), but due to time constraints, I haven't been able to date all of them yet. Even though I had planned the order in advance, students' guests came, they had to leave their posts to do business, and other things happened, so it was common for the order to change or be skipped.</p>
+<p>In particular, I couldn't go on the festival date with Kujo Kina that I was supposed to have yesterday because Kujo Kina's-ssi master and disciples who were supposed to come yesterday had something happen, so they said they would come today. I was worried it might be related to Anya-ji, but when I asked, they said it was nothing serious.</p>
+<p>This morning, I started selling the club's anthology again, but unlike yesterday, no one rushed over as soon as the festival started.</p>
+<p>After all, my photo cards were domestic products sold to the female students of St. Francisco Girls' Academy, so once the academy's female students bought them all, there would be no more momentum for sales.</p>
+<p>Of course, Uenozono Karen's photo cards are for fans coming to Miyashi from Japan, so they will continue to sell steadily.</p>
+<p>,I guess my photo cards won't sell much today?"</p>
+<p>,Still, your photo cards will sell a bit today. Not as much as yesterday, though."</p>
+<p>Of course, yesterday, several people swept up a thousand, two thousand, or four thousand copies at once, so it was impossible to sell as much as yesterday.</p>
+<p>,Ah...! I'm tired! Ryuta-cchi, I'm tired."</p>
+<p>,If you're tired... should I give you a Red Bull or something?"</p>
+<p>Seizawa Shii, bored because there were no customers, whined to me that she was tired for no reason. Actually, she had reason to be tired. Yesterday, the strong students in the special class did all the hard work, mainly moving luggage.</p>
+<p>,Just hang in there a little longer. Today, if we sell everything, I won't place an additional order and we'll end the business, so you can enjoy the festival from then on."</p>
+<p>Minamoto Lisa said apologetically, and Seizawa Shii waved her hand with a flustered expression, saying, ,It's okay, Lisa-tan~!"</p>
+<p>,The business might end sooner than you think today."</p>
+<p>,Huh? What do you mean."</p>
+<p>,Hehe, look at that."</p>
+<p>The line, which was emptier than yesterday, was already packed again. Huh? When did the line get so packed? I tilted my head and looked at Minamoto Lisa.</p>
+<p>,There are two reasons. First, Miyashi City Middle School and High School are closed today. When I checked, you're quite popular with the students there. So, they're coming to buy your photo cards that they couldn't buy yesterday. And enjoy our academy's festival at the same time."</p>
+<p>I'm popular at that high school too? I didn't know that at all. And Minamoto Lisa's premise seemed to have changed. They're buying the club's anthology with my photo cards while they're here to see the festival. It didn't make sense to think that they came to get my photo cards and enjoy the festival at the same time.</p>
+<p>,What's the second reason?"</p>
+<p>,The second reason is that I posted on SNS that the quantity might not be large on the second day, so it might sell out quickly. So, they're lining up in advance before it sells out. Especially Karen's fans came from far away, so it would be a shame if it sold out."</p>
+<p>I see. Looking at Minamoto Lisa's confident expression, it seemed like she was confident that she could sell quite a lot of copies today as well.</p>
+<p>,So, you should grab someone and go on a date."</p>
+<p>,When you say it like that, I feel like I'm doing a boyfriend-for-hire part-time job."</p>
+<p>,I'll give you a part-time fee, so go."</p>
+<p>Minamoto Lisa was telling me to quickly grab someone and go on a date, like a boss running a boyfriend-for-hire business. Just then, Kujo Kina came and said that her master and disciples had arrived, so I decided to go with her. Minamoto Lisa said that since I had guests with me, I should have fun and not be as strict as yesterday with the 30-minute limit.</p>
+<p>,Master~! I got permission from the club president, so you can go and have fun now."</p>
+<p>,Greetings."</p>
+<p>In front of the special class building, there was Yoda Grandpa, a young boy, two girls, and a man about our age. Yoda Grandpa Kinui Tachio is much older than me, so I showed respect and greeted him first.</p>
+<p>,Hoo...! That guy's disciple is a teacher. I'm afraid of what will become of Japan's future!"</p>
+<p>,Hey, do you have to start with a harsh remark as soon as you see my face?"</p>
+<p>,You also thought of me as Yoda as soon as you saw me, didn't you."</p>
+<p>Oh, right. This old geezer was a strange old man who could hear even thoughts in my head, like a telekinesis user, so he could hear the word Yoda.</p>
+<p>,But you've become a bit softer, haven't you? Before, you would kick me in the shin as soon as I thought something..."</p>
+<p>,Hehe, I have six disciples now. You can't solve everything with violence."</p>
+<p>So, instead of violence, you use harsh remarks? It doesn't seem like there's been much progress...</p>
+<p>,This is my third disciple, Nakasone Rishin."</p>
+<p>Yoda Grandpa introduced me to a man who looked to be in his late teens or early twenties. His name sounded like he should have a queue ponytail and cover his eyes, but he was quite handsome, somewhere between a good-looking guy and a pretty boy, if he were an ordinary person. But he had a gloomy expression, so he wasn't likable.</p>
+<p>,So, you're that person's disciple."</p>
+<p>This guy seemed to know who I was. Well, Fujigasaki Rinka said she rescued Nakasone Rishin here, so even if he doesn't know the details about me, he probably knows that I'm Fujigasaki Rinka's disciple.</p>
+<p>,I'm sorry for the sudden request, but may I ask you for a sparring match?"</p>
+<p>,Nakasone!"</p>
+<p>It was really sudden. When I glanced at Yoda Grandpa and Kujo Kina, they seemed to be flustered, as if it hadn't been discussed in advance.</p>
+<p>In particular, Kujo Kina seemed to dislike that he was asking her homeroom teacher to fight as soon as they met, without any respect, so she shouted his name.</p>
+<p>,Today is the festival, so let's set a date for sparring next time."</p>
+<p>St. Francisco Girls' Academy has a sports field, an indoor stadium, and a martial arts club like Cheongsim Hall where sparring can be done, but today they were all unavailable because of the festival.</p>
+<p>,Hehe, okay. Come visit my disciple's dojo after the festival is over! Then we can have a sparring match or give guidance, right?"</p>
+<p>Yoda Grandpa said, trying to ease the slightly chilled atmosphere, and I nodded.</p>
+<p>,What are your names?"</p>
+<p>This time, I approached the boy and girls, who looked to be around 12 years old, and asked their names first.</p>
+<p>All three had different personalities. The boy was Sato Haruto, and he had a playful personality like most boys his age. One of the two girls was Suzuki Kaho, a very shy girl who kept peeking out from behind Yoda Grandpa.</p>
+<p>The last girl was Ageba Tsurumi, who was very friendly. She asked me, whom she was meeting for the first time, ,What's your name, oppa? How old are you, oppa?" and asked me about myself.</p>
+<p>,Have you decided where to go?"</p>
+<p>,I decided in advance while looking at the pamphlet with the kids yesterday!"</p>
+<p>It was better to decide in advance than to just stand here and worry about where to go. First, we decided to go to the hearty meat barbecue restaurant run by The Fist, Kujo Kina's old club, which Yoda Grandpa strongly wanted to go to, and eat from the morning.</p>
+<p>I remember him crying while saying that the Wagyu was delicious before. How much does he like meat?</p>
+<p>,Ah! Sunbae-nim!"</p>
+<p>A club member of The Fist, who discovered Kujo Kina, welcomed us. Even though she had to leave the club due to an unfortunate accident, they welcomed her, so it seemed that Kujo Kina's reputation wasn't bad.</p>
+<p>,I'm from The Fist, so I came to help you sell a bit today."</p>
+<p>,Thank you, Sunbae-nim~!"</p>
+<p>They seemed to be doing American-style barbecue, constantly grilling something in a sealed grill that looked like a drum can placed horizontally.</p>
+<p>It might be okay since they just have to take out the meat and cut it.</p>
+<p>,Seven barbecue platters! Enjoy!"</p>
+<p>As expected of a mixed martial arts club, they were very energetic. It was a menu with well-cooked meat such as beef, pork, and chicken, and a pile of french fries, which would be enough for two meals for an ordinary person.</p>
+<p>But my group was all fighters, so they ate it all without leaving any. In particular, Yoda Grandpa was trying to hold back his tears in front of his disciples, saying, ,It's delicious. It's delicious..." and hiccuping.</p>
+<p>After the meal, we went to the game club that the boy Sato Haruto wanted to go to and enjoyed playing games, and Suzuki Kaho and Ageba Tsurumi shopped for accessories sold by the crafts club that they had chosen.</p>
+<p>Suzuki Kaho and Ageba Tsurumi were quite cute as they carefully chose what to buy, so I gave them each an accessory as a gift, and Kujo Kina looked at me with a ,What about me?" expression, so I bought her a hair tie.</p>
+<p>Next, after hearing that Nakasone Rishin wanted to eat Japanese-style desserts, we headed to Cheongsim Hall. Yoda Grandpa also knew Shimokawabe Airen, so he seemed to be quite looking forward to seeing her after a long time.</p>
+<p>,?!"</p>
+<p>Huh? I felt a strange presence as I was passing through the main stadium to go to Cheongsim Hall. Something familiar but unfamiliar. I stopped for a moment and turned my head to look at the place where I felt the presence.</p>
+<p>The owner of that presence also felt my gaze, and stopped and looked at me as well.</p>
+<p>The owner of the strange presence was a woman with pale hair that looked like silver or white, or even transparent. She was an incredible beauty who was not inferior to the beauties I knew, but it was strange that no one was paying attention to that woman.</p>
+<p>Smile!</p>
+<p>The woman, who had been looking at me for a moment, smiled and turned her body again and disappeared into the crowd of the festival.</p>
+<p>,Teacher, what are you looking at?"</p>
+<p>,It's nothing. Let's go."</p>
+<p>I didn't know what was bothering me. I just thought I felt it wrong and shook my head at Kujo Kina's question.</p>
+<p>_________________</p>
+<p>A new character whose name is still unknown~!</p>
+<p>I wanted to create a transparent-like pale hair texture, but I don't know if it turned out well ㅎㅎ</p>

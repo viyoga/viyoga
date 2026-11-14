@@ -5,75 +5,81 @@ weight = 126
 chapter = 126
 +++
 
-<p>After finishing my visit to Mimata Chieri-ssi at the hospital and returning home, I started reading the file on a person named Tochimura Kaminojo, which Taira Danjo-halbae had given me.</p>
-<p>Hmm... Tochimura Kaminojo, age 32, Deputy General Manager of the Planning and Coordination Department at Minamoto Trading. Born in Tokyo, he graduated from Tokyo Toa University, one of the private universities owned by the Minamoto family, and immediately joined Minamoto Trading, the headquarters of the Minamoto Group, before graduation, and became a rising star. From his early days as a young employee, he accomplished many things with bold methods, and sometimes used radical methods.... So, is that why he sent those two gunmen this time...?</p>
-<p>According to the Taira Group, he has commissioned at least four assassinations, excluding the ones that failed, but because he is a Minamoto person, the police are just watching.</p>
-<p>As much as he rose through the ranks at Minamoto to become a Deputy General Manager in his early 30s, his family was also quite something. His father was a lawyer at a large law firm, and his mother was a professor at Toa University. Hmm.... I don't have any intention of using tricks on his family, so there's nothing to exploit here.</p>
-<p>He lives in a tower mansion in Minato Ward, Tokyo.... It's such a wealthy neighborhood, so there are many CCTV cameras and security is tight, so I would have to be very careful if I were to deal with him at his home.</p>
-<p>The headquarters is also in downtown Tokyo, so he's quite a difficult guy to eliminate. Moreover, if I use force while he's at the Minamoto Trading's Tokyo headquarters, it would immediately trigger the Minamoto and Taira clans to restart the Genpei War, so attacking him while he's at the headquarters is out of the question.</p>
-<p>"Let's look at the special notes...."</p>
-<p>Special notes.... He's having an affair despite being married. Well, that's a common story.... His mistress is a celebrity. Her name is Sawasu Amika. Since I don't remember her, she doesn't seem to be a famous celebrity. Tochimura Kaminojo bought a villa for his mistress, and it's located in Nikko City, Tochigi Prefecture. It seems he bought the villa because it's a famous shrine and a place that can be called a resort.</p>
-<p>Funnily enough, Sawasu Amika, Tochimura Kaminojo's mistress, belongs to Hirashita Planning, a planning agency under Taira Entertainment, which Taira Kokoro operates. At this point, it seems like I could find out Sawasu Amika's schedule from Taira Entertainment and set a trap.</p>
-<p>The problem is that I would have to incur a debt to Taira Entertainment to find out Sawasu Amika's schedule. To be exact, I would be indebted to Taira Kokoro. If I play it right with Taira Danjo's name, I might be able to handle the matter without incurring too much debt....</p>
-<p>I entered the number I had received in advance. When I pressed the number, the name Mori Sota, Taira Kokoro's secretary, appeared on the phone screen.</p>
-<p>-This is Mori Sota, Chief of the Secretariat at Taira Entertainment.</p>
-<p>"This is Taira Ryuta. I have a mission I received from my grandfather, and I need the help of Taira Entertainment."</p>
-<p>-.... I don't think this is something I can decide. I will speak to Taira Kokoro-nim.</p>
-<p>Indeed, with Taira Danjo's name on the line, it wasn't something a mere secretary could handle. Mori Sota seemed to be asking Taira Kokoro, and silence filled the phone for a moment.</p>
-<p>-Yes, what is the mission?</p>
-<p>Taira Kokoro immediately took the call. It was natural for her to be curious about a mission from her grandfather. I had to score points even in places like this to gain even a slight advantage in the succession race.</p>
-<p>"Hello, Aunt."</p>
-<p>-Instead of using the stiff term 'Aunt,' just call me Kokoro-ssi. No one in the entertainment industry likes being called 'ajumma.'</p>
-<p>"Yes, Kokoro-ssi."</p>
-<p>-Hohoho! Just as I heard, your personality is quite something. So, what is the mission? It's probably because of the recent shooting incident, right? Something related to the Minamoto side?</p>
-<p>Taira Kokoro laughed heartily as soon as I called her Kokoro-ssi. And indeed, Taira Kokoro, one of the three successors of the Taira Group, was well aware of the situation.</p>
-<p>"Yes, my grandfather has given me a chance to take revenge. I thought it would be easy to resolve if I received help from Taira Entertainment, so I contacted you."</p>
-<p>-So, you'll be indebted to me. Are you okay with that?</p>
-<p>Taira Kokoro immediately mentioned the debt, as if she thought she had caught a big fish. I knew it.</p>
-<p>"But since it's about taking down the Minamoto, Kokoro-ssi's name will be on the report. Shouldn't Kokoro 'Aunt' be indebted to me? Actually, I can handle the matter even without the power of Taira Entertainment. I'm just asking for cooperation to make it a little easier."</p>
-<p>In fact, if I were to assassinate Tochimura Kaminojo, I could just lie low and wait for an opportunity to eliminate him. Even though Tochimura Kaminojo is a rising star in the Minamoto Group, he's just a Deputy General Manager. He wouldn't have close protection or special security. It's just annoying that it's a bit inconvenient and I don't know when the stakeout will end. But if I have the help of Taira Entertainment, I can plan according to the schedule I've found out in advance, so it's easier.</p>
-<p>-Okay. I'll concede. Let's say we have no debts to each other. But you have to make sure my name is on the report?</p>
-<p>Taira Kokoro seemed to have no intention of playing tug-of-war with her nephew, who wasn't even a rival for the succession, and immediately gave up on making me indebted to her. She seemed to think it was more beneficial for her to have no debts to each other. It's beneficial for a successor to be seen by the head of the Taira Group even once more.</p>
-<p>"I will definitely include it."</p>
-<p>-Good. What do you need?</p>
-<p>"The target's mistress is Sawasu Amika. She belongs to Hirashita Planning."</p>
-<p>-A mistress? Really! Even though I keep telling her not to lower her own value like that. She never listens~! Amika is pretty, so why is she meeting a married man! I've repeatedly told her not to meet adulterous men or old men.</p>
-<p>When I searched for Sawasu Amika after Taira Kokoro said she was pretty, I found that she was quite a beauty. She was a beauty who seemed like she would appear in a historical drama. She was pretty, but it meant that she wasn't a trendy style these days. That's probably why she's in that subsidiary agency rather than Taira Entertainment itself.</p>
-<p>"When you fall in love, you don't see the other person's conditions."</p>
-<p>-Hahaha. Cute, nephew? Have you been in love a lot?</p>
-<p>I guess I looked cute because I was only twenty years old and talking about love. In fact, even if I were Taira Kokoro, I would find it funny if my young nephew was talking about love.</p>
-<p>"Hmm, I need Sawasu Amika's schedule or the help of her manager."</p>
-<p>-Okay. I can easily do that much. If you're being entrusted with this task, it must be at the Deputy General Manager or General Manager level. Do your best. It's not easy to earn your father's trust.</p>
-<p>Taira Kokoro didn't seem to think of me as her rival at all, and encouraged me to do my best before hanging up.</p>
-<p>Now that I've obtained the cooperation of Taira Entertainment, it seemed like I could handle the matter easily. I had decided to kill the guy who planned this shooting incident, and it seemed like that would happen quite quickly.</p>
-<p>###</p>
-<p>"Hyaaang♥"</p>
-<p>With a high-pitched moan, I pulled out my dick, and sticky, milky-white semen flowed from Shinoe Misano's pussy. As we had done before, we took some time out and had instant sex in an empty office.</p>
-<p>"Heeum...♥ So, what did you want to say?"</p>
-<p>Shinoe Misano asked, moaning, as I wiped her pussy with a wet wipe. I hadn't intended to have sex in the first place, but Shinoe Misano must have been starving over the weekend, because when I requested a meeting, Shinoe Misano grabbed my wrist first and went to an empty office. What happened after that was obvious. She immediately took off her panties and clung to me, moaning and groaning.</p>
-<p>"I probably won't be able to come in for a few days starting tomorrow. Four days at most?"</p>
-<p>"Huh? What's going on? If you want to use your vacation days, you can just use them. You don't need to tell me, do you?"</p>
-<p>"It's not a vacation. I have a mission from headquarters."</p>
-<p>People with the Taira surname who work at the Taira Group often receive separate missions, so Shinoe Misano nodded, saying, "Ah~!" People at the Taira Group were usually very considerate when someone said they had a mission from headquarters. For reference, Mimata Chieri took a few days of sick leave under the guise of Yukiko's car accident.</p>
-<p>"It's a headquarters matter. Then I'll process it as a business trip."</p>
-<p>"Thank you."</p>
-<p>"If you're grateful, one more time?"</p>
-<p>Shinoe Misano, who had been facing me just now, now turned her ass back and spread her pussy. Hmm...! Shaking her ass at a strange man so casually! I guess I'll have to punish her with my rod.</p>
-<p>###</p>
-<p>"Sunbae-nim~! Ah, should I call you Team Leader-nim now?"</p>
-<p>Even though I had discovered her identity, Mimata Chieri's bright appearance remained unchanged. Mimata Chieri had completely recovered from her injuries in just three days. It wasn't something I, who possessed regeneration, should say, but it was an amazing recovery. She brought four operatives with her to handle this matter, and they were all wearing strange cyberpunk-esque masks or helmets, so I couldn't tell who was who.</p>
-<p>These guys were probably the Mumentai (Faceless Squad), the execution squad of the Taira Group that was rumored like an urban legend.</p>
-<p>"Call me whatever you're comfortable with. This is the last mission we'll be doing together anyway, right?"</p>
-<p>"I heard you're receiving three more missions from the Chairman-nim? I can be included in those, right?"</p>
-<p>Oh, right. I have three more quests left, don't I? Taira Danjo definitely said he would attach a woman who could be a figurehead for the PMC as a prepayment, but it seemed like he was still looking. Or maybe...</p>
-<p>"Sunbae-nim."</p>
-<p>"Yes, Hubae-nim!"</p>
-<p>In the end, Mimata Chieri seemed to have decided to use the title Hubae-nim that she had been using until now.</p>
-<p>"Do you happen to have a military supply procurement engineer qualification?"</p>
-<p>"Yes, I do. How did you know?"</p>
-<p>"Then do you have an advanced private military company manager qualification?"</p>
-<p>"Yes~!"</p>
-<p>Hmm.... There were a few more qualifications, but I didn't ask any further. The qualifications I had just asked about were only necessary for someone who would become the owner of a PMC. It seemed like Mimata Chieri would become my secretary. It might not be the case, but I just had a feeling.</p>
-<p>"Then I'll explain what we're going to do."</p>
-<p>"..."</p>
-<p>The Mumentai operatives wearing cyber helmets took a step closer without saying a word when I said I would explain. Are they unable to speak? How fascinating. I soon gave an overall explanation to the assembled personnel.</p>
+<p>Kiyohira-nim's GPS signal was quite far away. Looking at the GPS signal on my smartphone, Kiyohira-nim seemed to be almost in the deepest part of the forest, about halfway through. I don't know why he went all the way there. He should know we have plans today.</p>
+<p>,Here it is."</p>
+<p>,We have to go all the way there?"</p>
+<p>When I showed him my smartphone, Kazuhiro-kun spoke with a slightly annoyed expression. But before I knew it, he changed his expression and was excitedly taking pictures of the forest scenery. The narrow forest path, which was not maintained at all, and the trees that soared high into the sky, blocking the sunlight, gave off an eerie and mysterious feeling. More than anything, after living in the city and only breathing polluted air, breathing the clear air of the forest felt refreshing.</p>
+<p>,I have to post this too~!"</p>
+<p>I chuckled at Kazuhiro-kun and followed the forest path, looking at the GPS signal. Following the forest path, a fork in the road appeared.</p>
+<p>,Hyung-nim, which way should we go? Ah, should I ask on the 7channel bulletin board?"</p>
+<p>,Why ask the bulletin board? Just look at the GPS."</p>
+<p>I scolded Kazuhiro-kun and looked at the GPS signal, but it was right in the middle of the fork, making it ambiguous which way to go. Kazuhiro-kun, standing next to me, looked at the GPS signal on his smartphone with an annoyed smile and started writing about the situation on 7channel. There might be someone who knows the way among the people commenting on the bulletin board, so posting it wouldn't be bad.</p>
+<p>115 KZHRSMITH: Photo</p>
+<p>116 KZHRSMITH: I'm following the GPS, but the fork in the road is ambiguous. Which way is better to go? Right? Left?</p>
+<p>117 Anonymous: It's not as scary as I thought? It's just a dense forest. By the way, the air must be really good.</p>
+<p>118 Psychic Hunter: 117 must have no spiritual sense at all. It's been a while since I've seen a photo with such malice emanating from it... In my opinion, there is no safe path. The only way to survive is to turn back.</p>
+<p>119 Verdi Fan: My head has been hurting a lot since the parking lot photo. Is there something wrong with this?</p>
+<p>120 Anonymous: The right side has more sunlight, so it's better to go that way. The left side is too dark and scary.</p>
+<p>121 Shot-jjang: Me too, the right! The left feels bad.</p>
+<p>122 Anonymous: I think the left might be better?</p>
+<p>123 Kenji-ssi: 122, that bastard is the worst!</p>
+<p>124 Anonymous: How about trying both paths a little bit and going where the GPS gets closer?</p>
+<p>Reading the comments under Kazuhiro-kun's post, Anonymous number 124's suggestion seemed reasonable and valid.</p>
+<p>,Let's do what this number 124 says."</p>
+<p>,That's definitely right. Rather than just picking a random path, it's better to try both a little bit and go the way that gets closer."</p>
+<p>First, we went to the right path, which the other people preferred. The right path seemed to be a path out of the forest, as it was gradually moving away from the GPS signal. We walked a little, stopped, and went back.</p>
+<p>,Let's go back."</p>
+<p>Fortunately, going to the darker left path got us closer and closer to the GPS signal where Kiyohira-nim was. At this rate, it seemed like we would arrive in about thirty minutes at a normal walking pace. We went deeper and deeper.</p>
+<p>,Hyung-nim, it's getting darker and darker?"</p>
+<p>,It's not even 3 o'clock yet. Maybe it's because the trees are getting denser."</p>
+<p>,Is that so?"</p>
+<p>It was definitely getting darker as we went deeper into the forest. As we went a little further inside, crows flew around cawing, making the atmosphere even more eerie. If I didn't have any abilities, it was a path I would never want to go on.</p>
+<p>,Hyung-nim, that, there!!"</p>
+<p>Suddenly, Kazuhiro-kun widened his eyes and pointed at one place. What is it? When I looked at where Kazuhiro-kun was pointing, a faint white figure was staring at us through the dense trees. It was a pale, naked female ghost. By the way, she seems to have a good figure? For a moment, my hair stood on end and I felt an eerie sensation.</p>
+<p>I drew up the Abyss. The power of the unidentified ghost was repelled by the power of the Abyss, and the eerie feeling disappeared. Along with that, the ghost's appearance also disappeared. I slapped Kazuhiro-kun, who was trembling, to bring him back to his senses.</p>
+<p>Smack!!</p>
+<p>,Uh, uh? It disappeared!"</p>
+<p>,First, let's not look around and just follow the path."</p>
+<p>We hurried and kept walking, only looking at the GPS signal and the path. Because we walked at a considerable speed, what was predicted to be a 30-minute distance became almost close to the GPS signal in about fifteen minutes.</p>
+<p>When we went to the place where Kiyohira-nim's GPS signal was, there was a huge tree. A rope was hanging from the large branch of the tree, and a white-haired man was hanging and swaying below the rope.</p>
+<p>,Genbaki!!"</p>
+<p>Kazuhiro-kun shouted Kiyohira-nim's nickname and ran towards the corpse hanging from the large tree branch. I was also surprised and ran over, and the corpse seemed to have been dead for some time, as it was being eaten by bugs here and there, and it smelled terrible.</p>
+<p>Looking closely, only the hair was white like Kiyohira-nim's; it wasn't Kiyohira-nim at all. Looking closely, although it was badly damaged, it was a middle-aged white-haired man.</p>
+<p>Kazuhiro-kun was wailing, ,Genbaki-iii!!" without looking closely. You idiot. I slapped Kazuhiro-kun's cheek again.</p>
+<p>,Uh, uh? What's wrong?"</p>
+<p>,Look closely. It's not Kiyohira-nim."</p>
+<p>,Uh, uh? It's really not?"</p>
+<p>Kazuhiro-kun hadn't fully regained his senses since seeing the ghost earlier. But why is Kiyohira-nim's GPS signal here?</p>
+<p>I looked around the corpse. There was a Buddhist rosary hanging on a branch near the corpse. Since Kiyohira-nim is a Buddhist, it seemed like he hung the rosary to pray for the repose of the dead corpse. Next to it, on the branch, was the GPS watch I had given him as a gift. Checking it, there was a note along with the watch.</p>
+<p>There's a suspicious shrine 4KM north. I think it's a cult. See you there.</p>
+<p>It seemed like he hung it with the GPS watch to make us see this note. This idiot, putting the GPS next to the corpse to surprise us, I'm going to have to beat him up a bit when I meet him, just like Kazuhiro-kun said. And why did he hang it next to the corpse instead of just wearing the watch so we could find him without leaving a note? Does he want us to take care of the corpse?</p>
+<p>I showed the note to Kazuhiro-kun, and we both prayed for the repose of the corpse and contacted the police to tell them we found a corpse in the forest. But the police just said they understood and hung up. Without even asking for the location of the corpse.</p>
+<p>We cursed at the police for a while and set off for the shrine to the north that Kiyohira-nim mentioned. Kazuhiro-kun was skillfully posting his experience of seeing the corpse on 7channel while walking on the bumpy road. Then he said, ,Hyung-nim, there's some information here," and handed me his phone.</p>
+<p>198 KZHRSMITH: I just saw a corpse. It seemed like he committed suicide by hanging himself on a huge tree. I cried my eyes out thinking it was my friend. But it wasn't.</p>
+<p>199 Anonymous: Prove it.</p>
+<p>200 KZHRSMITH: I won't prove that. I have to go to where my friend is.</p>
+<p>201 Psychic Hunter: I have a strange feeling. Has there been anything strange before?</p>
+<p>202 KZHRSMITH: I saw something like a ghost, but the friend I came with slapped me and I came to my senses. I might have gone crazy if it weren't for this guy...</p>
+<p>203 Psychic Hunter: Your friend seems to have strong yang energy. Rely on that friend.</p>
+<p>204 Anonymous: Then where is your friend?</p>
+<p>205 Anonymous: He's a martial arts fighter, right? Isn't he fighting with the ghost? WWWW</p>
+<p>206 Verdi Fan: Hey hey! This is not a laughing matter! If you found a corpse, shouldn't you report it to the police?</p>
+<p>207 Anonymous: It's been 5 years since the police gave up on Aokigahara. There are at least 1000 corpses?? I've seen articles every year saying they ignore reports.</p>
+<p>208 KZHRSMITH: As 207 said, I contacted the police, but they hung up without even asking for the location. We're going to the shrine in the north because our friend left a note.</p>
+<p>209 Psychic Hunter: I haven't heard of a shrine in such a place?</p>
+<p>210 Anonymous: A shrine deep in Jukai... I only have bad feelings.</p>
+<p>211 Verdi Fan: It's better not to go. It's really dangerous.</p>
+<p>212 Anonymous: If that's the case, there's probably a cult shrine called Shirashira (白白). It's a famous cult on mystery channels.</p>
+<p>,Shirashira? Hmm...! That's a strange name."</p>
+<p>,It seems like there really is a cult, just like Kiyohira-nim's note said."</p>
+<p>The distance of 4 kilometers would take about 1 hour if you walked slowly, but you could go in 15 minutes if you ran quickly.</p>
+<p>As Kiyohira-nim taught us, we went north and saw quite a few footprints, as if people were going back and forth, and the road was gradually being tidied up. After about 3 kilometers, we saw a torii gate. A torii gate in the middle of the forest looked ominous.</p>
+<p>,There really is a shrine?"</p>
+<p>,People are scarier than ghosts, so we have to be careful now."</p>
+<p>I said, putting on the gloves made from the Simyeonui ttal's hair from my pocket. People who are blinded by cults wouldn't hesitate to kill, and if Kiyohira-nim hung the rosary on that corpse, the cult and the corpse might be related.</p>
+<p>At my words, Kazuhiro-kun picked up a fallen tree branch and started looking around. Is he worried about being attacked?</p>
+<p>Just as we were about to cross the torii gate, we heard Kiyohira-nim's voice.</p>
+<p>,Wait!"</p>
+<p>------Ghost Caution------</p>
+<p>I tried to make a faint ghost, but the ghost picture failed because it was too close....</p>
+<p>The prettiest ghost among the pictures that came out....</p>

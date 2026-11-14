@@ -5,88 +5,76 @@ weight = 560
 chapter = 560
 +++
 
-<p>There are explicit contents and illustrations, so please check your surroundings before viewing~!!</p>
-<p>After taking the students and Shimokawabe Airen-ssi home, I came into my house with Kijimoto Jurie. Before I knew it, we had thrown off our clothes, and Kijimoto Jurie knelt in front of me without hesitation and took off my panties.</p>
-<p>"Haaheueung...♥ Ryuta-nim's dick, it's been so long...!"</p>
-<p>Kijimoto Jurie, wearing the cat ear headband I gave her as a gift, started licking my dick. I hadn't been able to give Kijimoto Jurie much attention for the past week because of the athletic meet practice, so she must have been quite pent up, as she greedily sucked on my dick. It was like a person who hadn't eaten for three days eating a banana.</p>
-<p>"Is it good?"</p>
-<p>"Yes... It's always delicious...♥"</p>
-<p>Kijimoto Jurie licked the back tendon of my dick with a languid expression. Her seductive expression, as if she were eating the ultimate delicacy, made my already hard dick even harder.</p>
-<p>I couldn't just stand still, so I put my foot between Kijimoto Jurie's legs, who was kneeling in front of me, and rubbed her damp panties with my toes.</p>
-<p>"Haaheup...! Eunghheueut...♥ If you tease me like that... I can't suck it...! Haaht! Stay still!"</p>
-<p>To refuse foreplay because it interferes with sucking my dick, she has quite a thorough spirit of service. Kijimoto Jurie even refused my foreplay and accepted my dick all the way into her throat, begging for semen. The sight of cat-eared Kijimoto Jurie was quite arousing, so I decided to pour semen into Kijimoto Jurie's neck. I grabbed Kijimoto Jurie's head and shook it back and forth like an onahole.</p>
-<p>"Kueok, tteubeup! Keoeheok, tteubeup, tcheup, kehek♥"</p>
-<p>Kijimoto Jurie endured her nausea and accepted my dick, opening her throat as much as possible. After shaking Kijimoto Jurie's face for a while, the feeling of ejaculation rose.</p>
-<p>Byuut! Beut! Beut!</p>
-<p>I pulled Kijimoto Jurie's face all the way to the base of my dick and started ejaculating. Kijimoto Jurie's eyes widened, and I could hear the gulping sound of her swallowing the semen.</p>
-<p>Jjoop...! Jjoop...!</p>
-<p>Kijimoto Jurie, who had sucked out even the remaining semen in my urethra, spat out my dick with a "buha~!" sound.</p>
-<p>"Master-nim came so much in my neck, I came too...♥"</p>
-<p>It seemed that Kijimoto Jurie's masochistic instincts were revived after tasting the semen. Kijimoto Jurie went up to the bed, lay down, spread her legs, and showed me her gaping pussy with her hands, as if seducing me.</p>
-<p>At that sight, my dick regained its strength, so much so that it was hard to believe it had just ejaculated. I grabbed Kijimoto Jurie's spread legs and inserted my erect dick.</p>
-<p>"Haaheueueeut! Keueeot...! Ryuta-nim, heueut! Your dick is so big♥"</p>
-<p>Saying it's big, she pressed between my butt and waist, trying to accept it further inside, which was quite arousing.</p>
-<p>"You'll be tired tomorrow, but don't even think about sleeping tonight."</p>
-<p>"Neheehee...! Please torment me all night, Master-nim...♥"</p>
-<p>Of course, since there is the Holy Pillar effect, I won't be tired tomorrow even if I do it all day. I shook my dick vigorously to fill Kijimoto Jurie's womb to the brim.</p>
+<p>Now that I had confirmed Naruse Shiyo's abilities, it seemed like I could have her participate in the meeting. Of course, Naruse Shiyo's level was high and her raw stats and traits were good, but she wasn't quite at the level to easily beat her classmates. In fact, there was a good chance she would lose, because she didn't have many skills and her skill proficiency level was low, which limited her. At least her Shikigami Art level was a bit high, but without a contracted Shikigami, it was useless.</p>
+<p>Hmm.... Should I leave Naruse Shiyo to Shimokawabe Airen like Alik? Or should I tell her to keep practicing the naginatajutsu she's learning? Or....</p>
+<p>,Sensei?</p>
+<p>,Ah, sorry....</p>
+<p>Naruse Shiyo glares at me, looking slightly sulky because I kept spacing out. I decided to plan Naruse Shiyo's development later, and first talk about today's meeting, and before that, I should reveal my background.</p>
+<p>,Are you confident that what you said this morning won't change?</p>
+<p>,That I'll serve you, Sensei? Of course!</p>
+<p>Naruse Shiyo clenches her fists tightly at my words, making a pledge. Her appearance was quite trustworthy, so I decided to trust Naruse Shiyo.</p>
+<p>,Actually, my surname isn't Yamashiro....</p>
+<p>,Huh?!</p>
+<p>As expected, Naruse Shiyo was shocked when I said that I wasn't Yamashiro Ryuta. I would be surprised too if the name of the teacher I had known until just now wasn't their real name.</p>
+<p>,First, this way....</p>
+<p>Even though it was an empty cafe, there was still an owner, so I whispered my real name in Naruse Shiyo's ear.</p>
+<p>,Actually, my name is Taira Ryuta.</p>
+<p>,Nani?!</p>
+<p>Naruse Shiyo was surprised once again. Her face was slightly red, perhaps because I had whispered in her ear.</p>
+<p>,I didn't know there was a Ryuta in the Taira family.</p>
+<p>Most of the children of prestigious families memorized the members of famous families in order to avoid making mistakes at high-society parties or gatherings, so Naruse Shiyo tilted her head at the unfamiliar name of Taira Ryuta.</p>
+<p>,Actually....</p>
+<p>When I told her that I was an illegitimate child of the Taira family and that I had come to the academy as a teacher on a mission from my grandfather, Naruse Shiyo was very interested.</p>
+<p>,Wow~! I thought things like this only happened in movies! No wonder I thought you were strong for a teacher, you came from th-... no, that place?</p>
+<p>,That's not it. It hasn't even been a year since I found out about my surname. Actually, the reason I'm strong is because my master is Fujigasaki Rinka.</p>
+<p>,Eeeeeh?!</p>
+<p>Naruse Shiyo was even more surprised than when I revealed my real name. Naruse Shiyo, who had been weak but loved strong genres like martial arts and heavy metal, was naturally unable to come to her senses when the name of Fujigasaki Rinka, who could be said to be the pinnacle of strength, came up.</p>
+<p>,A-are you really Rinka-sama's, disciple?</p>
+<p>,Yeah. That's why I caught the Black Dragon with my bare hands.</p>
+<p>,Hee, amazing...!</p>
+<p>Naruse Shiyo, who had dead eyes like a yandere when we talked in the morning, was now showing sparkling eyes.</p>
+<p>,Let's put aside the master stuff for now. I just wanted to see you briefly today to explain things to you, Naruse, before the meeting with the friends who follow me and my original forces.</p>
+<p>,Then am I attending the meeting too?</p>
+<p>Naruse Shiyo asked with a slightly nervous expression at my words. I don't know if this tension is because she's nervous about attending the meeting or if it's because she's worried about what to do if she can't participate in the meeting.</p>
+<p>,Of course. You said you'd serve me, right? Then you have to attend the meeting and talk. I have to introduce you to the others as someone who's joining us.</p>
+<p>,Ah! Really? That's a relief...!</p>
+<p>Seeing how excited she was, it seemed like she was nervous about not being able to participate in the meeting. I chuckled at Naruse Shiyo and got up from my seat.</p>
+<p>,Then let's go to the meeting.</p>
 <p>###</p>
-<p>'It's refreshing....'</p>
-<p>This was the first time she had felt this way since collapsing. It was Asada Ei, who had endured eight years of hellish life after collapsing with a feeling as if her whole body was burning. When she came to her senses from time to time, her parents were looking at Asada Ei with worried eyes, and the feeling of her whole body burning was still there.</p>
-<p>But now she no longer felt any pain. How did I get better? She opened her eyes and got up from her seat, and she could recognize the surroundings. Asada Ei was in a metal freezer.</p>
-<p>It was definitely a different place from the hospital she had regained consciousness in before. Come to think of it, her clothes were also different. She was wearing a large white jacket that looked quite thick, different from the hospital patient gown.</p>
-<p>'Where is this...?'</p>
-<p>Asada Ei, who was from an intelligence officer background, calmly looked around. Perhaps her father moved her hospital room with a new treatment method, but since it might not be, she was trying to check.</p>
-<p>Asada Ei originally had skinny leg muscles that were nothing but bones because she had been lying in bed for seven years. But now, instead of her previous skinny appearance, she had changed to a slightly more lively appearance. Still, it was quite difficult to walk step by step, as if she hadn't fully recovered.</p>
-<p>Asada Ei turned the door handle of the freezer. With the sound of pressure escaping, "chii...!", the door opened.</p>
-<p>When the door opened, a beautiful woman with white and pink hair mixed in a bridge style, wearing a white doctor's gown, was standing there. She was a very seductive female doctor, wearing a tight black mini dress inside her gown.</p>
-<p>"You're awake, Asada-ssi. How is your body?"</p>
-<p>"Yes, yes? I think I'm a little better. But are you a doctor?"</p>
-<p>"Hmm... You can call me a doctor, but just call me Eve~!"</p>
-<p>Eve... She wasn't interested in the doctor in front of her. She was just curious if her body was healed.</p>
-<p>"Is my body... healed?"</p>
-<p>"First of all, to tell you the conclusion, it's not healed yet."</p>
-<p>"Ah...."</p>
-<p>"Your father is coming to give you a detailed explanation, so he will tell you. First, wait in the room you just came out of."</p>
-<p>"Yes, I'll wait."</p>
-<p>At Eve's words, Asada Ei went back into the room like a freezer. After waiting a little, the door burst open and Asada Ei's father, Asada Fukushi, came in. However, what surprised Asada Ei was that he came in wearing extremely thick clothes and a hat covering his ears, as if he were going to the Arctic.</p>
-<p>"Ei! You've come to your senses!"</p>
-<p>Asada Fukushi sobbed and hugged Asada Ei tightly. Asada Ei's nose tingled as her father sobbed, but she watched her father cry for a while to ask what happened.</p>
-<p>"Father, what's with that outfit...? Is it winter now?"</p>
-<p>"Winter hasn't come yet. But... look there."</p>
-<p>Asada Fukushi pointed to one side of the wall in response to Asada Ei's question. There was a thermometer on the wall, and it indicated that the temperature in this freezer-like place was minus thirty degrees.</p>
-<p>It was a cold temperature that felt like Asada Fukushi's ears would fall off, but it was just a slightly cool and pleasant temperature for Asada Ei. It was definitely a strange thing, so Asada Ei stammered and asked her father what was going on.</p>
-<p>"W-what's going on?"</p>
-<p>"Well, that is...."</p>
-<p>In response to Asada Ei's question, Asada Fukushi told her the story from the moment Asada Ei collapsed. From the fact that Asada Ei collapsed and hospital bills amounting to tens of millions of yen per year were incurred, to the fact that he sold drugs to solve those hospital bills, to the fact that he was caught by a man named Yamashiro Ryuta, and that that person told him about Asada Ei's treatment method, he told her about what had happened in the past seven years.</p>
-<p>The reason why Asada Fukushi didn't hide the fact that he sold drugs was because Asada Ei was also from the intelligence unit, so she could find out about Asada Fukushi's misdeeds at any time. He thought it would be better to tell the truth rather than hide it now.</p>
-<p>"You're saying Father sold drugs?"</p>
-<p>"I'm not trying to justify it... but at the time, that was the only way I could raise your treatment costs."</p>
-<p>The father Asada Ei knew was a rigid soldier. He was not someone who would ever think of becoming a drug dealer. But because she collapsed, her rigid father turned to crime. Asada Ei felt sorry, grateful, and a little resentful.</p>
-<p>"And oh, temperature allergy?"</p>
-<p>As if shaking off her complicated feelings, Asada Ei asked about her illness, wondering if she had misheard. She had never heard of a temperature allergy before.</p>
-<p>Of course, she could tell that the temperature allergy she had heard existed because she felt a burning pain and felt only a slightly cool feeling even at a temperature of minus thirty degrees.</p>
-<p>"I heard it's not an exact diagnosis... but they said that normal temperatures are dangerous for you. They said that the jacket you're wearing now is something that can preserve the cold."</p>
-<p>Asada Ei despaired at Asada Fukushi's words. Of course, it was better than lying in the hospital room feeling a burning pain, but having to be in a cold place for the rest of her life was not a good result at all.</p>
-<p>"It'll be okay. They said that if you collect enough cold, you can be at normal temperatures for a few hours. But they said it will take some time now because you haven't received cold for seven years."</p>
-<p>Collect cold...? Asada Ei muttered to herself. Did humans have such a function...? Asada Ei thought that she was becoming a little distant from humans at her father's words. As she thought that, Asada Ei looked at her father's hands, whose fingertips were red from the cold in the room.</p>
-<p>"I'm okay, so go home and rest now, Father. It's too cold here."</p>
-<p>"Okay... I'll come with your mother tomorrow."</p>
-<p>He wanted to be with his daughter a little longer, but his daughter had just woken up. If she gets a little better, they can be together longer. Asada Fukushi left the freezer with heavy steps.</p>
-<p>"It's time for cryotherapy~!"</p>
-<p>Eve came in shortly after Asada Fukushi left. Eve wasn't cold, and she was just wearing the same casual clothes and a thin doctor's gown as before. Asada Ei followed Eve's instructions to follow her. All she had to do was follow her to the room next door, which had a capsule-like thing taller than a person standing in it. When Eve operated the capsule, the capsule opened.</p>
-<p>"Go in here. It's a cryogenic cooling device, so you don't have to worry about anything!"</p>
-<p>"Yes."</p>
-<p>Asada Ei went into the capsule. Soon the capsule closed and white cold air began to fill the inside.</p>
-<p>'It's comfortable....'</p>
-<p>Asada Ei closed her eyes without realizing it. And she felt the cold air surrounding her. She felt the cold air entering her body more and more. She felt the cold air accumulating in her body as if water was being poured into an empty plate.</p>
-<p>'Father's words weren't wrong.'</p>
-<p>Suddenly, Asada Ei became curious about the man named Yamashiro Ryuta that her father, Asada Fukushi, had mentioned. He accurately matched her illness and its treatment method, which even the most famous doctors in Tokyo didn't know, and it was also that man who made her father quit his drug business.</p>
-<p>'I've received a favor that I have to repay for the rest of my life.'</p>
-<p>He was a man she didn't even know the face of, but Asada Ei decided to repay the favor she had received from that man.</p>
-<p>_______</p>
-<p>Kijimoto Jurie B-cut!</p>
-<p>Knee socks version.</p>
-<p>The cat started going crazy again when I put on the cat ears, lol.</p>
-<p>Eve B-cut!</p>
-<p>Eve's tits are so big today, haha.</p>
-<p>Asada Ei</p>
+<p>The conference room where we were all supposed to meet was on a floor of a secluded shopping district in Miyashi's back alley, where I had previously gone on a date with Minamoto Risa. I decided to rent the entire floor because if I only rented a part of it, other people would be walking around and security wouldn't be good.</p>
+<p>I started thinking about this meeting when I decided to receive support from Naruse Koyou, the new head of the Naruse family, for a Shikigami Art instructor.</p>
+<p>In fact, I had enough materials to create an information team, with Sakagami Rena, a ninja, Asada Fukushi, a former manager from the Self-Defense Forces' information unit, Sawayanagi Sinya, a VR diver, Ryuto Construction's Tang So-hwa, who was well-versed in back alley information, and Eve, the dark merchant, so I was thinking of holding a meeting to properly cook with those materials.</p>
+<p>So, I had reserved the meeting place in advance and asked Eve to set up various equipment.</p>
+<p>When I entered the conference room, the students from St. Francisco Girls' Academy who had arrived early were sitting down, and Eve stood up to greet me.</p>
+<p>,Ah, Ryuta-nim! Hello~!</p>
+<p>Eve was wearing a formal outfit, a black skirt and a white shirt, because of the word "meeting," and the students were wearing casual clothes, trying not to attract attention on their way here.</p>
+<p>,I'm a little late.</p>
+<p>,No. There are still... 1 minute and 23 seconds left until the meeting is scheduled to start!</p>
+<p>As expected of an AI android, she's accurate. I sat Naruse Shiyo in the seat labeled Naruse Shiyo and opened my mouth.</p>
+<p>,Naruse is joining us from today, so let's teach her well if she doesn't know anything.</p>
+<p>,Yes~!</p>
+<p>I informed everyone that Naruse Shiyo was joining us and sat down in my seat, the head seat. It was a long rectangular table with quite a few empty seats, but all the empty seats were taken.</p>
+<p>,Then let's start the meeting~!</p>
+<p>As Eve sat down in the seat to my left and spoke, a subtle woong sound was heard, and people attending the remote conference via hologram began to appear in the empty seats. This hologram equipment was what I had asked Eve for. I thought it would be quite useful for meetings, so I asked her to prepare it, and she did a great job in a short amount of time.</p>
+<p>Starting with Mimata Chieri, my secretary and the president of East Weapon, Sawayanagi Azuma and Sawayanagi Sinya of Seiryu Military Company, Jinmija Yeosa of Hatake Investment Company, Tang So-hwa of Ryuto Construction, Kurayamda Kirie, who would be creating a new PMC, and Asada Fukushi appeared as holograms.</p>
+<p>Han Yu-gyeong, Yukiko, and Nagumo Sian, who could be said to be my women and business partners, were unable to attend the meeting because this agenda was about creating an information team in Japan, so it was not related to Han Yu-gyeong, and the other two were affiliated with the Taira Group, so they did not attend the meeting because they had the Taira Group's information team or their own information team if they needed information.</p>
+<p>Looking at these members, my chest swelled up involuntarily. Not a single member of the meeting was an ordinary person. Even Sawayanagi Sinya, who seemed the most ordinary, was a great guy who specialized in VR diving and bombs, and Asada Fukushi was a former Self-Defense Forces non-commissioned officer and former boss of a drug organization, so not a single person was ordinary.</p>
+<p>,First of all, there are people who are seeing each other for the first time, so everyone, please introduce yourselves.</p>
+<p>At my words, the oldest person, Jinmija Yeosa, stood up and greeted everyone. Hatake Investment Company owned several companies, including Hatake Mining and Tang So-hwa's Ryuto Construction, so I often contacted Jinmija Yeosa for business, so it wasn't the first time in a while.</p>
+<p>,Thank you all for working for my son. I'm Jinmija, who is in charge of Hatake Investment Company.</p>
+<p>,Hatake Investment Company is the parent company of Hatake Mining, which recently discovered a large-scale mithril mine. Is that company's president your mother, Sensei?</p>
+<p>After Jinmija Yeosa's greeting, Saionji Diana, who was very interested in this area, muttered in surprise. Even though she was abandoned by her family, she was the daughter of Saionji Bank, so she was usually interested in the economy and knew Hatake Investment Company well. What surprised the students other than Saionji Diana was that Jinmija Yeosa was my mother. She was originally youthful, but after eating Juaan-gwa, she looked like she was in her mid-thirties even if you were generous, so it was surprising.</p>
+<p>Next was Mimata Chieri, and of course, she was the president of East Weapon, Japan's largest PMC, so some interested students and Kurayamda Kirie and Asada Fukushi looked at her with surprised eyes.</p>
+<p>Seiryu Military Company and Ryuto Construction were not famous, so they were skipped, and when it was Kurayamda Kirie's turn, everyone started buzzing. It was natural for the students to be surprised that the former vice-teacher, who had suddenly disappeared, was appearing here. However, since it was a conference room, there was no child who shouted loudly, but if Seizawa Shii was there, she would have made a fuss, saying, Ryuta-cchi! Kirikiri is here~☆.</p>
+<p>The students also stood up one by one and introduced themselves, and since they were refreshing female students, everyone watched the introductions with a pleased look.</p>
+<p>,Shall we start the meeting? The main agenda of this meeting is to create our own information team. Our business is slowly growing, so if we don't have information, we'll have no choice but to be passively attacked, so I thought we needed an information team, so I summoned everyone like this.</p>
+<p>Hatake Investment Company, East Weapon, and Ryuto Construction were all growing in size, so forces that were subtly probing us began to appear. If we knew about those movements in advance, we could prepare for them, so the need for an information team was growing.</p>
+<p>And since I'm stuck at St. Francisco Girls' Academy, it takes quite a bit of time to find out what's going on here, so the creation of an information team is quite urgent.</p>
+<p>,Name, name is important!</p>
+<p>Eve, who was sitting down, raised her hand and said. I wondered if the name of the information team was that important, but I had a name that I had been thinking about for a long time.</p>
+<p>There's a saying in Korea that birds listen to daytime words and mice listen to nighttime words. I was thinking of naming it Torinezumi-dō (鳥鼠堂: Josedang) after that—what do you think?</p>
+<p>Eve seemed to want a name with some force, but no other dissenting opinions came out, perhaps because the name Torinezumi-dō wasn't bad. In fact, it was important for the information team to be hidden, so the less the name was revealed, the better, so there were places that were simply called the information team and had no name.</p>
+<p>,If there are no objections, we'll move on to the next topic.</p>
+<p>In this way, the name of my newly created information team was confirmed as Torinezumi-dō.</p>
+<p>___________________________________________________________</p>
+<p>Jinmija Yeosa appeared after a long time</p>

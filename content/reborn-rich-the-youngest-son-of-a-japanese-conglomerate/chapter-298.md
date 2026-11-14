@@ -5,98 +5,89 @@ weight = 298
 chapter = 298
 +++
 
-<p>Women's Room 203.</p>
-<p>In this women's room, 203, arbitrarily divided by Sawayanagi Azuma, who booked the pension, Kiyona Hori, Mari, Sawayanagi Seari, and Sawayanagi Mikiyo were sharing the room. The women were chatting and gossiping, sprawled on the beds after enjoying a friendly hot spring bath after the volleyball game.</p>
-<p>,Rianna has been a little strange lately.</p>
-<p>,Yeah, yeah.</p>
-<p>,Something about her feels different.</p>
-<p>,Could she have become a 'woman'?</p>
-<p>Kiyona Hori, the older of the Kiyona sisters, opened her mouth. Her younger sister, Kiyona Mari, Sawayanagi Seari, and Sawayanagi Mikiyo, who had the sharp eyes of a sniper, nodded in agreement, each adding their own observations.</p>
-<p>Certainly, everyone could see that Rianna Holden had been acting strange lately. Rianna Holden had always been lively and exuded a sexy vibe, but recently, it felt like she had shed a layer. She had become a bit more alluring, and it felt like she was longing for someone.</p>
-<p>,Could she have gotten a boyfriend?</p>
-<p>,But she hasn't had time for that recently.</p>
-<p>Kiyona Mari retorted to Sawayanagi Seari's words. Rianna Holden was one of the busiest people at Seryu-tai. As an operator who oversaw the entire battlefield situation and a telepathic ability user, she was so useful that she barely had her own schedule.</p>
-<p>,Recently, she's been teaching an operator to one of the trainees, so she's only been at the training center....</p>
-<p>As Sawayanagi Mikiyo said, she had been gradually teaching the operator role to Kim Young-chan, who had clairvoyance, so unless there was a mission, she was always at the training center.</p>
-<p>Sawayanagi Mikiyo also knew this well because she was teaching Kim Young-chan how to snipe.</p>
-<p>,Then....</p>
-<p>,Could it be....</p>
-<p>,A forbidden...?</p>
-<p>The women looked at each other, their faces blushing. Could it be a forbidden relationship between a student and a teacher...? The 203 women looked at each other and laughed with a ,Kyaaak!, even though the truth was completely different.</p>
-<p>,No, let's not jump to conclusions. It could be someone else....</p>
-<p>Kiyona Mari, who had been ,Kyaaak!-ing for a while, regained her composure and spoke again. In that moment, the faces of the men in the training center flashed through her mind. All the Seryu-tai men except for the trainees and Sawayanagi Sinya.... And even Taira Ryuta, the investor who was the de facto owner of Seryu-tai.</p>
-<p>,Could it be the investor-nim?</p>
-<p>,I heard he was only here for a day....</p>
-<p>,It couldn't be, right?</p>
-<p>Taira Ryuta's name came up, but everyone reacted with an ,Ehh~, it couldn't be, right?</p>
-<p>,Since everyone is gathered at this outing, Rianna will definitely have a secret rendezvous.</p>
-<p>Sawayanagi Mikiyo opened her mouth. As a sniper, she had to predict the target's movement path, so she inferred Rianna Holden's actions as a sniper's habit. The word "rendezvous" brought silence to the room for a moment. Everyone felt the hidden meaning within it.</p>
-<p>,Since we're next door, I'll ask the wind for help~!</p>
-<p>Sawayanagi Seari said. Everyone nodded at her words. This method was actually a considerable invasion of privacy, but they had already forgotten about that.</p>
-<p>Curiosity about who the man Rianna Holden was involved with made them forget everything.</p>
-<p>Sawayanagi Seari first asked the wind spirits to tell her when Rianna Holden, who was next door, moved.</p>
-<p>,More than that, Seari-chan.</p>
-<p>,Huh?</p>
-<p>Sawayanagi Seari saw Kiyona Mari, who had a slightly mischievous expression, talking to her and answered, ,Huh??</p>
-<p>,Are you happy? Hmm?</p>
-<p>,Huh? About what?</p>
-<p>,You're going on a date with the investor-nim!</p>
-<p>It seemed like she was talking about the one-day date ticket with Taira Ryuta that she had won as the volleyball MVP today. Sawayanagi Seari blushed and shyly replied, ,No way!</p>
-<p>Sawayanagi Seari also liked Taira Ryuta, who was handsome and had solved Seryu-tai's crisis.</p>
-<p>However, she had a complex about her youthful appearance, so she was hiding her shy feelings.</p>
-<p>As if her appearance was cute, everyone shouted, ,Kyaaak, cute!, and rushed at Sawayanagi Seari. Everyone tickled each other and played around for a while, but when Sawayanagi Seari raised her hand and said, ,Wait a minute!, everyone stopped.</p>
-<p>,Huh? What's wrong?</p>
-<p>,Rianna got up from her seat.</p>
-<p>As soon as Sawayanagi Seari said that, they heard the sound of the door opening in the next room with a click.</p>
-<p>,Let's go after her...!</p>
-<p>Everyone made eye contact and nodded at Kiyona Hori's suggestion. Sawayanagi Seari used her ability to prevent the sound of the door opening and closing, and then all four of them quietly left the room.</p>
-<p>There was no trace of Rianna Holden, but they had attached a wind spirit, so they could follow her at any time. Naturally, Sawayanagi Seari, who could track the traces of the wind spirit, took the lead, and the others quietly followed behind.</p>
-<p>Rianna Holden did not go to the men's room where Kim Young-chan was, but headed to the third floor.</p>
-<p>,Whose room is on the third floor...?</p>
-<p>,Isn't it the investor-nim's room?</p>
-<p>In the end, the four of them found Rianna Holden's tail. She was standing in front of Taira Ryuta's room, wearing a large gown or shirt, and judging from her bare white legs showing below, she seemed to be wearing short pants.</p>
-<p>,Could it be.... that she's not wearing pants?</p>
-<p>At Kiyona Mari's words, everyone swallowed hard. Rianna knocked on the door, and Taira Ryuta's deep, attractive voice was heard.</p>
-<p>,Who is it?</p>
-<p>,Pumpkin, it's me. Rianna.</p>
-<p>,Ah, come in.</p>
-<p>Rianna Holden enters, wiggling her butt as if she's happy to be entering the room. After the door closes, four pairs of eyes look at each other. Someone could be heard swallowing hard.</p>
-<p>,S, since we've confirmed it, shall we go down?</p>
-<p>,But.... if we're next door, we might be able to hear the sounds...?</p>
-<p>At Kiyona Hori's words, Sawayanagi Mikiyo pointed to the next room with a very interested face. The four looked at each other and nodded, then headed to the room next to Taira Ryuta's. Sawayanagi Seari sent a wind spirit into the room where Taira Ryuta and Rianna Holden were.</p>
-<p>,Now, the sounds from that room will be vividly transmitted.</p>
-<p>At Sawayanagi Seari's words, everyone gathered in the next room nodded with excited faces. But soon, the four of them couldn't help but have shocked expressions.</p>
-<p>This was because Taira Ryuta's door opened once more, and Mimata Chieri entered, and then, not even a few minutes later, Sawayanagi Azuma entered the room.</p>
-<p>,I, is this what dating is like these days?</p>
-<p>Sawayanagi Mikiyo said with a dazed expression.</p>
-<p>###</p>
-<p>,Ah, come in.</p>
-<p>At my words, Rianna Holden came in. Rianna Holden was wearing something like a white gown.</p>
-<p>I just thought she was wearing it after the hot spring bath, but when Rianna Holden took off her gown, I realized that she was fully prepared for sex.</p>
-<p>Inside, she was wearing black sexy lingerie that contrasted with the white gown.</p>
-<p>,Hehet, Honey. How is it?</p>
-<p>Rianna Holden took various sensual poses and slowly moved her body as if she was doing a strip show in front of me.</p>
-<p>I was sitting on the bed, and Rianna Holden naturally shook her body and approached me.</p>
-<p>Rianna Holden, who was close enough for our breaths to touch, lifted my chin and started kissing me.</p>
-<p>Perhaps because it was our second tryst, Rianna Holden began to suck on my tongue like a starving person. It seemed like she was burning with passion because it was the first time in a while since we had sex.</p>
-<p>Jjuup! Chup! Jjuwap!</p>
-<p>With the lewd sounds, my dick began to harden more and more. But there was an interruption in the middle. The door opened with a click without a knock.</p>
-<p>,Sunbae-niim~! Uh??</p>
-<p>Mimata Chieri came in excitedly, but froze for a moment at the sight of the room. But of course, she gave a bashful smile and began to undress herself.</p>
-<p>,Sunbae?</p>
-<p>,In this situation, I would have liked to watch if possible, but there's not much time until dinner. So let's do it together.</p>
-<p>Ah, it seemed like she thought that there wasn't much time until dinner, so Mimata Chieri thought that watching, which she liked, would be impossible, so she was trying to have 2-on-1 sex.</p>
-<p>,Heheung, our Honey. You were a playboy?</p>
-<p>Rianna Holden was cool because her first experience was 2-on-1 sex with Sawayanagi Azuma in the first place. It seemed like she didn't care so much even if a woman she didn't know came.</p>
-<p>,First, both of you come over here.</p>
-<p>I sat them both on my thighs and kissed them alternately, wrapping my arms around their thin waists. When the lewd sounds filled the room, the door opened again.</p>
-<p>,Investor-ni...im?</p>
-<p>It was Sawayanagi Azuma. Of course, Sawayanagi Azuma would have come to the room aiming for my body. As expected, Sawayanagi Azuma took off her clothes without saying anything.</p>
-<p>Sawayanagi Azuma came between Mimata Chieri and Rianna Holden, who were sitting on my thighs, and kissed me.</p>
-<p>Kissing a total of three people at the same time, I thought, ,Is this what it feels like to be licked by the legendary dog Cerberus?, but the pleasure of being licked all over by three people made me forget that absurd thought.</p>
-<p>,3-on-1 is a first for me.</p>
-<p>,I've done it in America.</p>
-<p>At Sawayanagi Azuma's words, Mimata Chieri said as if boasting. Ah, now that I think about it, I had 3-on-1 sex with the Fitzgerald mother and daughter and Mimata Chieri.</p>
-<p>,Rianna and I are doing it for the first time, so you have to make us feel good?</p>
-<p>,Of course, I'll make it the best pre-dinner sex for you.</p>
-<p>I have to burn a lot of calories with pleasure to make the dinner taste like honey.</p>
+<p>Even after spending a day full of sex with Nagumo Sian, Ha Ju-yoon and Nae Fitzgerald continued to stay at the Talent Development Institute's house.</p>
+<p>The housekeeper was delighted with the sudden paid vacation she received, and we were all mostly naked after work. We spent a stimulating life having sex whenever our eyes met while naked.</p>
+<p>While Yukiko and I were working in the morning and afternoon, Nae Fitzgerald, who had become skilled at sneaking around with her phantom thief activities, took Ha Ju-yoon around for Tokyo sightseeing. Also, Ha Ju-yoon signed a contract with Nae Fitzgerald's company, Légion, and decided to become an ambassador for advertising and Légion in Asia.</p>
+<p>Ha Ju-yoon was a well-known actress in Korea and had recently appeared in a supporting role in an American drama, so she was starting to become quite known, making it a decent deal for Légion as well.</p>
+<p>In the meantime, I had finished most of my studies and was at a level where I could teach students for about a semester. Of course, whether that was really true would be revealed in the practical experience of teaching students directly, but I was confident now.</p>
+<p>There were about two weeks left until the start of the semester, and I had to move my residence to St. Francis Girls' School a week before that, so I had about a week of time given to me.</p>
+<p>As promised with Nae Fitzgerald, I exchanged the Blue Sky Thunderbolt and the necklace I had prepared.</p>
+<p>The necklace was quite expensive, but the Blue Sky Thunderbolt was a legendary weapon, so it was incomparable in value. Nae Fitzgerald was very happy with my gift. She said she was happy that I had taken the time to give her a gift.</p>
+<p>I had to get all my work done in advance. First, I took the Japanese sword Blue Sky Thunderbolt that I received from Nae Fitzgerald, along with the swordsmanship books I bought from the Black Market branches, Gokusan Swordsmanship and Kunst des Fechten (Art of Combat), and headed to East Weapon.</p>
+<p>I was planning to give the sword to Alik and the swordsmanship books to Mimata Chieri-nim. I had already given her several martial arts books I bought from the Black Market before, so she probably had learned quite a bit. The swordsmanship books were meant for Mimata Chieri-nim to learn and then teach to Alik.</p>
+<p>Yukiko was able to take a break under the pretext of a pre-dispatch vacation because I had finished my studies and there was no work at the Talent Development Institute, so I was free to move around as I pleased from the morning.</p>
+<p>"Good morning, Director-nim?"</p>
+<p>Since I also held the position of director at East Weapon, it wasn't strange to go to East Weapon from the morning. Some employees recognized me and greeted me.</p>
+<p>I even had an office under my name next to the president's office of Mimata Chieri-nim, who was the president. I don't know why, but it boasted amazing soundproofing and had a large waterbed.</p>
+<p>I haven't been able to use that waterbed yet. I've only shown my face at East Weapon and then went to other schedules.</p>
+<p>I had contacted Mimata Chieri-nim in advance, so I headed to the underground training room 2 as I was told.</p>
+<p>The underground training room 2 that I went to was a place where elite agents were trained, so ordinary East Weapon troops rarely came there.</p>
+<p>It was a place for Mimata Chieri-nim to create a small number of elite agents by combining the know-how she learned from the Taira Group's agent training institution and the experience she gained in actual combat.</p>
+<p>Mimata Chieri-nim said that she was currently training a few promising people from East Weapon mixed with Alik.</p>
+<p>When I went to the underground training room, Mimata Chieri-nim was watching several East Weapon soldiers training through the glass wall. The underground training room 2 was quite large and divided into several parts, allowing for several types of training to be received at once.</p>
+<p>"Sunbae-nim."</p>
+<p>"Ah, Hubae-nim. You're here? First, take a look over there."</p>
+<p>Mimata Chieri-nim greeted me happily and pointed to the glass wall. Below the glass wall, there were agents wearing VR devices and standing on what looked like treadmills. And on the wall, there was a virtual combat simulator that they were doing.</p>
+<p>"Number 3 is Alik."</p>
+<p>Alik was moving quickly, dodging bullets and accurately hitting the opponent's forehead with bullets, moving as agilely and quickly as a squirrel.</p>
+<p>"He's good?"</p>
+<p>"Right? He has some kind of electrical ability that accelerates his nerves? That's why he can move so fast."</p>
+<p>Ah, right. When Alik was the mid-boss, he dodged hellish ranged lightning attacks and sliced up the approaching enemies at an incredible speed. So that's starting now.</p>
+<p>"Ah, Sunbae-nim, this..."</p>
+<p>After watching the training for a while, I handed the book I had brought to Mimata Chieri-nim.</p>
+<p>"Oh my! Is it a gift?"</p>
+<p>"It's kind of a gift. It's a swordsmanship book, and I'd like Sunbae-nim to learn it and teach the basics to Alik."</p>
+<p>Mimata Chieri-nim, who received the book, flips through it. Gokusan Swordsmanship was a Goryeo Dynasty book written in Chinese characters, and the Art of Combat was written in German, so she couldn't understand it.</p>
+<p>There were illustrations to teach the stances, but the text was still important to know the essence.</p>
+<p>"Hmm... The translation work will be quite difficult. Could Alik know this English-like thing?"</p>
+<p>"Wouldn't he not know since it's German?"</p>
+<p>Alik is Russian, so he probably doesn't know German. But I could ask him once.</p>
+<p>"But Alik seems a little bigger?"</p>
+<p>"Yes, he's growing so fast, he's in full growth spurt right now."</p>
+<p>Maybe it's because he's finally getting enough nutrients after being deficient for so long, or maybe it's because of his characteristics, but he was growing quickly. He used to be cute, but now he's becoming cute and sexy?</p>
+<p>The VR combat training ended quickly. Alik did quite well, but he didn't get the highest score yet because he lacked experience. VR combat training isn't a panacea, and it doesn't properly implement superpowers, so Alik's combat power should be considered higher than his score.</p>
+<p>Later, when Alik's characteristic development is somewhat complete, he will be able to fight in larger battles instead of combat training.</p>
+<p>"Alik, come up here, and the rest of you, take a break."</p>
+<p>Mimata Chieri-nim said into the microphone. The others who were receiving elite training left, and only Alik came up here. Alik saw me and ran over to me and hugged me tightly.</p>
+<p>"Ryuta, did you come to see Alik...?"</p>
+<p>"Yeah, I came to see Alik. I also have a gift to give you."</p>
+<p>Others might say he has a blank expression, but as an expert on Alik's expressions, I could tell that Alik was very excited.</p>
+<p>"Gift?"</p>
+<p>"Yeah. Take this."</p>
+<p>I gave Alik the Blue Sky Thunderbolt, which I had wrapped up nicely. Alik excitedly tore open the wrapping paper. When the wrapping was removed, the antique Japanese sword, Blue Sky Thunderbolt, appeared. Alik slightly pulled the sword halfway out of its scabbard.</p>
+<p>"меч...."</p>
+<p>Was that word sword? Alik seemed very satisfied. I should make him even more ecstatic here.</p>
+<p>"Make the sword crackle."</p>
+<p>"Crackle?"</p>
+<p>Alik asked me back, then completely drew the sword and pursed his lips, pretending to give some strength.</p>
+<p>Until now, he only knew how to discharge it. He hadn't learned how to concentrate it in one place, so I thought it would take some time, but soon the steel blade of the Blue Sky Thunderbolt began to turn into lightning.</p>
+<p>It was definitely a legendary-grade weapon from another dimension. I don't know how this phenomenon occurs, but it has to be this level to be called a legendary weapon.</p>
+<p>"Thank you, Ryuta..."</p>
+<p>"Do you like it?"</p>
+<p>"Yeah...!"</p>
+<p>Alik thanked me and hugged my arm tightly again. I'm glad he likes it.</p>
+<p>"Sunbae-nim will teach you swordsmanship."</p>
+<p>"Chieri, is a Sabu?"</p>
+<p>Hmm, Mimata Chieri-nim's Alik-style nickname seems to be Cherry. I was wondering why it wasn't Jjerry, but it must be Alik's preference.</p>
+<p>"Alik, try calling her Sabu-nim. Hehe."</p>
+<p>"Cherry... Sabu-nim?"</p>
+<p>It seemed like he was saying it reluctantly, and it seemed like Alik didn't want to add -nim to it.</p>
+<p>"Alik, are you doing well with the other training?"</p>
+<p>To change the subject, I suddenly asked how Alik's maid training was going, and Mimata Chieri-nim had a slightly troubled expression.</p>
+<p>"Ah, that side is... They like Alik too much, it's a problem. They want to adopt him."</p>
+<p>Already after meeting him for a short time? Alik is cute, but still. Isn't adoption too hasty? It's not like Alik is young either.</p>
+<p>"I'll leave that matter to Alik's free will."</p>
+<p>"That would be the best. For Alik personally, it's like gaining another sponsor."</p>
+<p>I know that the person teaching Alik is also a member of a prestigious family, so it's not like they're trying to continue the family line with Alik, but that's how much they like Alik.</p>
+<p>"And Sawayanagi Seari-ssi was too embarrassed to contact you directly, so she told me to tell you. She wants to use the date voucher she received from the injury this week."</p>
+<p>Ah, right. When we went to the Seryutai picnic, we said we would give a date voucher to the women's volleyball MVP, and Sawayanagi Seari received the MVP at that time. I have to take another day out of the remaining week.</p>
+<p>Still, Sawayanagi Seari is the most promising person in Seryutai, so I couldn't cancel it. I'll have to make time as much as possible.</p>
+<p>"Then, I'm sorry, but please tell her again, Sunbae-nim. Let's meet on Thursday. Tell her to say in advance if there's anything she wants to do before then."</p>
+<p>"Okay."</p>
+<p>"Ryuta..."</p>
+<p>While I was talking with Mimata Chieri-nim about the date with Sawayanagi Seari, Alik spoke to me.</p>
+<p>"I want to go on a date too."</p>
+<p>"Then, since you said it, should we go today?"</p>
+<p>Today, I should think of it as a rehearsal for the date with Sawayanagi Seari and play with Alik.</p>
+<p>-----</p>
+<p>Alik in a maid outfit after a long time!</p>

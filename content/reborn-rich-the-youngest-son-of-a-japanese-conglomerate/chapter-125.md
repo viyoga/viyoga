@@ -5,64 +5,81 @@ weight = 125
 chapter = 125
 +++
 
-<p>The childhood Mimata Chieri remembered was bland. Mimata Chieri's parents weren't good parents; while it wasn't abuse, they often neglected young Mimata Chieri.</p>
-<p>The only thing Mimata Chieri ate every day as a child was the cheapest sliced bread and jam from the supermarket.</p>
-<p>When she entered elementary school and ate school lunch for the first time, Mimata Chieri, who had only eaten sliced bread every day, didn't even know how to use chopsticks. But Mimata Chieri, who was quick-witted and had a good sense of touch, learned how to use chopsticks that day without getting caught by anyone.</p>
-<p>More amazing than using chopsticks was the taste of the school lunch. Mimata Chieri, who only knew sliced bread and jam, discovered that such flavors existed in the world. That's why she enjoyed going to school every day. Because she could eat new food every time.</p>
-<p>After going to school for a few days, Mimata Chieri realized that things she had taken for granted were not so. She realized that most ordinary children were raised with parental care, or that eating sliced bread every day was strange. But Chieri, who was still young, didn't have the power to change the situation.</p>
-<p>Mimata Chieri's life changed from the third year of middle school. She almost had a big accident. A car was speeding down the crosswalk where Mimata Chieri was walking at a speed that was impossible on a normal road. But Mimata Chieri calmly ran and avoided the car.</p>
-<p>,Are you okay? Weren't you scared?</p>
-<p>The speeding car had already disappeared elsewhere, and the driver of the car that was following behind got out of the car and asked Mimata Chieri if she was okay.</p>
-<p>,Yes, I'm fine because I wasn't hurt.</p>
-<p>The driver, momentarily speechless at Mimata Chieri's nonchalant appearance, stared at Mimata Chieri for a moment before giving her his business card. After telling her to contact him if she needed anything, she looked at the business card after seeing the luxury car disappear.</p>
-<p>The business card read Fumimoto Takayuki (文本 考行), Head of the Planning Secretary Office at Taira Bio, with his contact information written below.</p>
-<p>,Taira....</p>
-<p>Mimata Chieri knew the name Taira well. That's because the jam she had been eating since she was a child was made by Taira Foods. In addition, they produced various other items, ran a telecommunications company, and the name Taira was everywhere around her. Mimata Chieri unknowingly kept the business card given to her by a man she only knew by face and name.</p>
-<p>Originally, she only intended to keep it and had no intention of contacting him. But everything changed because of Mimata Chieri's parents.</p>
-<p>From the beginning, those who neglected their children to the point of abuse could not have been normal people. The two, who had been involved in the entertainment industry without any particular job, suddenly incurred a large debt. Of course, they had no ability to repay the debt.</p>
-<p>So, Mimata Chieri's parents came up with a terrible idea when they saw Mimata Chieri returning home. They decided to sell Mimata Chieri to the Yakuza. They contacted the Yakuza without any guilt, saying that they were finally paying for the value of feeding and housing her.</p>
-<p>Fortunately, as I said before, Mimata Chieri was quick-witted. Mimata Chieri pretended not to notice anything, and before the Yakuza barged into the house, she stole her parents' cell phone and called the contact number on the business card.</p>
-<p>Since there wasn't much time, Mimata Chieri didn't give much explanation. She only said one word, ,Help me, in a short sentence. The answer that came back wasn't long either. ,I understand. That was all.</p>
-<p>Was Mimata Chieri a little late? Less than five minutes after the call, two Yakuza members barged in. The Yakuza frowned when they saw Mimata Chieri, who was still a middle school student, but nodded after seeing Mimata Chieri's appearance a moment later. The two said to each other that even though she was young, she seemed sellable.</p>
-<p>,Hehe... the debt...?</p>
-<p>,We'll make it like it never happened. You trash.</p>
-<p>Even the Yakuza frowned at the sight of her parents being gleeful even as their daughter was being sold off. But Mimata Chieri didn't care. She had no reason to feel betrayed since she had no expectations in the first place. She only thought, ,I should have contacted them a little earlier....</p>
-<p>It didn't take long to be dragged down from the shabby apartment to the Yakuza's car. Three men were standing in front of the Yakuza's black car. It was Fumimoto Takayuki and two men who appeared to be his subordinates. Fumimoto Takayuki was later than the Yakuza, but not completely late. The Yakuza, who initially asked threateningly who they were, tucked their tail when Fumimoto Takayuki revealed his identity.</p>
-<p>Fumimoto Takayuki, who had been talking with the Yakuza for a while, took Mimata Chieri. The Yakuza huffed and went back to the house where Mimata Chieri's parents lived, and Mimata Chieri bowed to Fumimoto Takayuki.</p>
-<p>,Thank you.</p>
-<p>,What are you going to do now?</p>
-<p>,I have to go back home....</p>
-<p>,You can't go back. Now that those Yakuza have returned to your house, your parents or your house won't be okay.</p>
-<p>,Ah....</p>
-<p>Fumimoto Takayuki opened his mouth after seeing Mimata Chieri not saying anything more.</p>
-<p>,Will you follow me? Your life isn't good now, but this life isn't good either.</p>
-<p>,But I'll have a place to sleep, right?</p>
-<p>,Yes.</p>
-<p>,Then I'll follow you.</p>
-<p>Mimata Chieri's thoughts were simple. Even if what Fumimoto Takayuki said was true, if she didn't follow Fumimoto Takayuki, she would have to worry about where to sleep tonight. Even if both were bad lives, if she couldn't find a place to sleep in her current life, it was the right choice to choose a life following Fumimoto Takayuki, where she could at least sleep.</p>
-<p>After that, Mimata Chieri transferred to another school in Tokyo. It looked like an ordinary boarding school, but in fact, it was a school that trained assassins and agents to work for the Taira Group. There, Mimata Chieri was re-educated in everything.</p>
-<p>How to deal with people, how to converse, how not to reveal her identity, people's weaknesses, marksmanship, dagger combat skills, etc.... She learned countless things. She studied as the school told her to, learned foreign languages, and acquired various certifications.</p>
-<p>She even received body modification procedures, which are very expensive if done individually. Instead of mechanical procedures that could be detected by metal detectors, she received procedures that made her muscle fibers stronger and more elastic and increased her eyesight. As a side effect, her hair color turned orange, but this was enough to not raise suspicion if she said it was dyed.</p>
-<p>After graduating from school, she worked at the Taira Foundation, which handles the Taira Group's slush funds, and mainly handled tasks that came down from above. Kill if they said to kill, get information if they said to get it, destroy facilities, Mimata Chieri was an excellent agent.</p>
-<p>As time passed, Mimata Chieri could confidently say. That her current life was much better than the life before she followed Fumimoto Takayuki. From boarding school, she no longer had to eat sliced bread, and her sleeping quarters were cleaner than her original home.</p>
-<p>And if she had lived like that, would she have been able to enter the Taira Group, the best group in Japan, like she is now? Mimata Chieri couldn't be sure. Even if her head was bright, entering such a top group required some family support.</p>
-<p>,Starting next week, go to work at the Human Resources Development Center.</p>
-<p>,Is there a target there?</p>
-<p>One day, Fumimoto Takayuki called her and gave her a new mission. Originally, the main mission at the Taira Foundation was to track the slush fund flows of the Chairman's children, and other than that, she would often solve single missions that came down.</p>
-<p>,The Chairman's grandson will join there in six months.</p>
-<p>,Grandson.... Are you talking about Taira Kitsumasa-nim? Or Taira Akio-nim?</p>
-<p>The only grandsons who were old enough to come to the Human Resources Development Center were Taira Kitsumasa and Taira Akio. Although the Human Resources Development Center was quite high in the group's ranking and was an important place, it was like Taira Saburo's front yard, the third son of Taira Danjo. That's because Taira Saburo's wife, Taira Yukiko, was the director.</p>
-<p>Kitsumasa or Akio, who were still in their 20s, were the only ones who could join. Just to gain some experience. When they turned 30, they would transfer to a subsidiary where they could establish themselves. Or they would start their own business without belonging to the Taira Group.</p>
-<p>,It's Taira Ryuta.</p>
-<p>,I've never heard of him.</p>
-<p>,He's Saburo-nim's illegitimate child. The Chairman has already decided to appoint him to the Human Resources Development Center. You go to the Human Resources Development Center first, report all of Taira Ryuta's actions, and protect him if anything dangerous happens.</p>
-<p>,I understand.</p>
-<p>Mimata Chieri nodded. Surveillance and protection, Taira Ryuta was just a being that could be summarized in those two words for Mimata Chieri.</p>
-<p>That's what it should have been.... She didn't know when, but Taira Ryuta had become a special being to her. Was it because they had become lunch buddies who ate lunch together every day? Or was it because she had been secretly watching his every move? She didn't know the reason. All she knew was that the existence of Taira Ryuta had penetrated deep into her, like water seeping into a sponge.</p>
-<p>That's why she may have unknowingly stood in front of Taira Ryuta. Even though she had been given a mission to protect him, she had no intention of sacrificing herself.</p>
-<p>She was afraid of dying. Afraid that she would never see Taira Ryuta again, that she would never be able to have lunch with him again. Mimata Chieri lost consciousness like that.</p>
-<p>,....</p>
-<p>Her eyes felt stiff as she tried to open them. She could feel her senses. Mimata Chieri checked her body one by one with her eyes closed. Her fingers moved, and her toes moved as well. She could feel strength in each part of her muscles when she gave them strength. Judging from the state of her muscles, it seemed like a day or two had passed. If she had been unconscious for a long time, she wouldn't have been able to feel strength in her muscles.</p>
-<p>Mimata Chieri forcibly opened her stiff eyes. She saw a white ceiling. There was nothing wrong with her eyes either. It was the ceiling of Taira General Hospital, where she had been a few times when she was a high school student.</p>
-<p>,Sunbae, isn't this the first time we're having dinner together?</p>
-<p>Mimata Chieri heard a voice in her ear. She turned her head and saw Taira Ryuta standing there with a smile, holding porridge that he had packed.</p>
+<p>Mimata Chieri-ssi began the acquisition of East Weapon, and I started preparing for the trip I had promised my friends. I packed a tent and some cooking utensils, just in case we camped out. There was no camping time on the schedule, but those two guys were so unpredictable that I prepared just in case.</p>
+<p>"You have to be careful, okay?"</p>
+<p>"Of course, Yukiko-ssi. You haven't forgotten about our trip the week after next, have you? I'll make you incredibly happy."</p>
+<p>Yukiko-ssi was very worried when I told her I was going to the infamous Jukai Forest to pick up Kiyohira. I reassured Yukiko-ssi, raising her expectations for our trip.</p>
+<p>"Of course...! I'm really looking forward to it...! It's my first trip alone with a man since our honeymoon."</p>
+<p>He was a good father, but Saburo-ssi was too much. Not taking a single trip during their married life. Feeling a little sorry for Yukiko-ssi, I kissed her forehead and got into the car.</p>
+<p>Since I had to pass through Tokyo anyway to get to Shizuoka where Mount Fuji is, I picked up Kazuhiro-ssi on the way. Kazuhiro-ssi came out of his rented room near Tokyo FC and waved at me, saying, "Hyung-nim!"</p>
+<p>Training in Aokigahara (青木ヶ原)... Kiyohira, is he really that old-school?</p>
+<p>Kazuhiro muttered as he got into the car. Jukai, or Aokigahara, northwest of Mount Fuji, was one of Japan's infamous places. It had long been rumored as a famous suicide spot, but in reality, there were fewer suicides and missing people than people believed because there were many CCTVs and the area was monitored by the police.</p>
+<p>However, during World War III, police forces were focused elsewhere, and it became completely demonized during that time. Most of the CCTVs were damaged, and the nearby police substation was in ruins and not managed. The Jukai Forest had now become Japan's representative demon realm, where countless suicide hopefuls, cult officials, and occult enthusiasts gathered.</p>
+<p>"These days, there's almost no one who goes there because it's scary."</p>
+<p>"So... should we prove we're going?"</p>
+<p>At my words, Kazuhiro-ssi, who was a natural attention-seeker, smiled and picked up his smartphone. Kazuhiro-ssi was going to post on Japan's representative community, 7channel. Since Kazuhiro-ssi was transferring to the United States soon, I told him to do whatever he wanted to do in Japan as much as possible.</p>
+<p>"Now that you're going to the United States, do whatever you want. So, are you going to post our travelogue on the internet?"</p>
+<p>"Going to Aokigahara is interesting, so."</p>
+<p>"Do whatever you want."</p>
+<p>Was he starved for attention because he wasn't selected for the national team due to a racist national team coach? Kazuhiro-ssi was gleefully taking pictures of the scenery outside the window, thinking about posting them on the internet. Now that it was the transfer period with no games, he wouldn't be able to receive public attention until his transfer destination was decided, so he seemed to feel good because he was satisfying his attention-seeking desires even like this.</p>
+<p>It was almost four hours from the Talent Development Center to the Jukai Forest of Mount Fuji. I drove for about two hours and then stopped at a rest area.</p>
+<p>"Let's eat something and start again. It's already past 12 o'clock."</p>
+<p>Since we left a little after 10, it was lunchtime. I ordered some food at the rest area with Kazuhiro-ssi and started eating lunch. Japan also had well-equipped rest areas like Korea, so there were many foods. I ordered Kitsune Udon, Katsudon, and meat skewers, and Kazuhiro-ssi ordered curry. When the food came out, Kazuhiro-ssi excitedly took pictures.</p>
+<p>"Look at this. I got a lot of comments."</p>
+<p>During the meal, Kazuhiro-ssi showed me his smartphone. When I received the smartphone, the bulletin board that Kazuhiro-ssi created had quite a few comments. Surprisingly, going to the Jukai Forest seemed to have attracted attention.</p>
+<p>001 KZHRSMITH: Going to Aokigahara to catch my friend today.</p>
+<p>002 Anonymous: Don't lie.</p>
+<p>003 KZHRSMITH: It's true. My friend is a martial arts athlete and he went to Aokigahara to train.</p>
+<p>004 Anonymous: That sounds even more like a lie?</p>
+<p>005 KZHRSMITH: I'm on my way. Photo</p>
+<p>006 Kenji-ssi: The direction you're going is right.</p>
+<p>007 KZHRSMITH: Arrived at the rest area! Photo</p>
+<p>008 Anonymous: Looking at this guy's ID, he's from Tokyo. Seems to be a Smith Kazuhiro fan... Looking at the road and the rest area, it's a rest area a little past Tokyo. If you go that way, it seems like you're on the way to Jukai?</p>
+<p>009 Verdifan: Smith Kazuhiro, I hope you disappear to the United States soon...</p>
+<p>010 Anonymous: Smith Kazuhiro? Is he famous?</p>
+<p>011 Verdifan: He's the best Japanese national in the J-League. That's why I hate him more.</p>
+<p>Perhaps because of Kazuhiro-ssi, who conspicuously used his name as his ID, the bulletin board lost its story about the Jukai Forest and became noisy with stories about Kazuhiro-ssi. Kazuhiro-ssi seemed a little happy because his story became the main topic. He seemed even more excited because he saw the contents of the praise from the fans of Verdi Tokyo, his rival team.</p>
+<p>"Give it back. I have to upload the lunch picture I took earlier."</p>
+<p>Kazuhiro-ssi took the phone back from me and wrote, "The food at this rest area is delicious. My friend who's going with me is a big eater, so he ate 3 servings by himself," and uploaded the food picture. Then he sent the same picture to his girlfriend, Kagawa Umi-yang. The contents of their Line were so lovey-dovey that I felt like the lunch I had just eaten would come back up, so I took my eyes off Kazuhiro-ssi's phone and asked Kazuhiro-ssi.</p>
+<p>"You've been dating for quite a while? You broke up really quickly when you dated girls in high school."</p>
+<p>"Maybe it's because she's smart, or maybe it's because she has something I don't have, but I feel like we match well."</p>
+<p>He had been dating Kagawa Umi-yang for over 4 months, so it seemed like the longest relationship he's had. The longest he dated in high school was a little over 100 days. Every day he dated Kagawa Umi-yang was breaking a record. From what I heard, Kagawa Umi-yang also seemed to like Kazuhiro-ssi, so they must be a good match for each other.</p>
+<p>"Let's call Genbaki."</p>
+<p>"Yeah, we need to decide where to meet in advance."</p>
+<p>At Kazuhiro-ssi's words, I agreed and picked up my phone to call Kiyohira. But Kiyohira didn't answer the phone. Only the ringing tone went on.</p>
+<p>"He's not answering. Is he still training?"</p>
+<p>"If that's the case, I'm going to beat him up. Hyung-nims are driving and making a direct visit, so he needs to answer the phone quickly."</p>
+<p>"Let's buy some coffee and leave. We need to go quickly and beat him up."</p>
+<p>"I'll have a Zero Coke."</p>
+<p>Kazuhiro-ssi said he would drink Zero Coke, perhaps because he was a soccer player and trying to manage his weight. I bought coffee and Zero Coke at the small convenience store in the rest area. I got in the car, handed the Coke to Kazuhiro-ssi, and started driving again.</p>
+<p>Leaving the rest area, I passed the highway and headed to the Jukai Forest on National Route 139. Kazuhiro-ssi took a picture of the sign for National Route 139 passing by the window. He was probably going to post it on 7channel again. I'm doing the annoying driving, and this attention-seeking bastard...!</p>
+<p>"It's starting to feel like a forest."</p>
+<p>National Route 139 was a road that passed through the Jukai Forest, so the forest gradually became denser. Kazuhiro-ssi excitedly took pictures of that scene again.</p>
+<p>I drove the car and parked it in the parking lot. It was originally a parking lot for the Aokigahara hiking trail, but since the war, it hadn't been managed at all, and there were several cars parked with a lot of dust on them. These cars were probably cars that people who had no intention of ever leaving the forest again had driven. Anyone could see that there were ownerless cars parked, so the atmosphere was a bit eerie.</p>
+<p>"Ew...! It's a bit scary."</p>
+<p>Kazuhiro-ssi was taking pictures of the parking lot like crazy while saying it was scary. He said that the reaction was explosive because he hadn't uploaded the pictures long ago. It seemed like even on the internet, they didn't think we would really go.</p>
+<p>"Give it to me."</p>
+<p>I became a little curious and received the phone from Kazuhiro-ssi. It was in the 10s of comments earlier, but it had already changed to the 80s.</p>
+<p>067 KZHRSMITH: Arrived at the Aokigahara hiking trail parking lot! Photo</p>
+<p>068 KZHRSMITH: Photo</p>
+<p>069 Kenji-ssi: This is dangerous! Stop it right now.</p>
+<p>070 Anonymous: You really went and certified it, but isn't something strange about the black car over there?</p>
+<p>071 Anonymous: That's right. It looks like something is visible in the back seat window...</p>
+<p>072 Spiritual Hunter: As an expert, I can say that it's unconditionally dangerous.</p>
+<p>.</p>
+<p>.</p>
+<p>.</p>
+<p>083 Verdifan: Is this really okay? I feel dizzy when I look at this picture...</p>
+<p>The back seat window of the black car? I looked at the picture Kazuhiro-ssi uploaded. Something whitish was captured, but there was no evidence that this was a ghost. It was probably just a bad picture.</p>
+<p>"Oh, I took a spiritual photo like this, isn't it awesome?"</p>
+<p>"Isn't it just a bad picture?"</p>
+<p>"No, look closely, this is the eye, this is the mouth, and this is the hand."</p>
+<p>Kazuhiro-ssi said with passion when I said it wasn't a big deal. When I looked at it as Kazuhiro-ssi said, it definitely looked like a person's face. Even if it was really a ghost, it wasn't that scary.</p>
+<p>I was a man who was receiving the attention of the Daughter of the Abyss, who was hundreds of times more dangerous than a ghost. A mere evil spirit couldn't give me fear.</p>
+<p>"Stop looking at your phone and let's find Kiyohira."</p>
+<p>"I'm glad Hyung-nim gave me a wristwatch with GPS function. Otherwise, I would have had to search the forest all day."</p>
+<p>When Kiyohira said he was going to the Jukai Forest to train, I gave him a wristwatch with GPS. If this guy went missing, we, who were the closest to him, had to find him, so I gave him a wristwatch with GPS function.</p>
+<p>"I thought you would use it like this."</p>
+<p>"Hyung-nim's prediction is amazing."</p>
+<p>"Kiyohira is insensitive, so."</p>
+<p>I turned on the app connected to Kiyohira's watch on my smartphone and started searching for Kiyohira's signal.</p>

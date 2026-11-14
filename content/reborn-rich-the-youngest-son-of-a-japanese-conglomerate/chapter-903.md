@@ -5,66 +5,69 @@ weight = 903
 chapter = 903
 +++
 
-<p>Otagi Yuka lured Kamishirato Manzo's attack by drinking Taira Ryuta's semen.</p>
-<p>Although Kamishirato Manzo possessed a sturdy Physique unlike an Elderly Person, he was far short of Otagi Yuka's reach with her Western-style longsword, so he couldn't help but be flustered by Otagi Yuka's sudden stab.</p>
-<p>But Kamishirato Manzo, a Master among the top Five in Anyaji, changed the trajectory of the Fist Technique he had swung towards Otagi Yuka, struck the blade surface of Otagi Yuka's golden Sword, and was able to dodge to the side with the Recoil.</p>
-<p>To not lose the reins of her Offensive, Otagi Yuka approached the dodging Kamishirato Manzo again, stabbing with her Sword.</p>
-<p>- Akagamikiba Style (Red God Fang Style) Kahari (Mosquito Needle).</p>
-<p>Otagi Yuka's red Blood Aura formed a shape like a needle and was shot towards Kamishirato Manzo, who quickly dodged and raised his Hand. It was an action as if giving a signal.</p>
-<p>Tung. Sswae-eek!</p>
-<p>The moment Kamishirato Manzo raised his Hand, with the sound of a string snapping, Something was shot towards Otagi Yuka, cutting through the Wind. Otagi Yuka, while dodging the Something being shot at her, stretched out her Arm and snatched it.</p>
-<p>"This is...!"</p>
-<p>What Otagi Yuka snatched was an Arrow made of silver with a gleaming tip. Looking at where the Arrow came from, Anyaji monks holding Guns and Crossbows were aiming at Otagi Yuka. Perhaps because of the noise, most of them held Crossbows, but there were also a few monks holding hunting shotguns.</p>
-<p>"Weren't you just here to watch for the experience?" "Hehehe, let's call it watching and Support. It's unfair because of the Race difference, so this much can be overlooked, right?"</p>
-<p>Kamishirato Manzo said, smiling wryly as if without shame. In fact, as Kamishirato Manzo's Story went, if a Vampire and a human fought, unless it was a specialized Vampire Hunter like the Silver Stake Alliance, usually the Vampire's Probability of winning was much higher.</p>
-<p>This was because even a slight Scratch could cause fatal harm due to the Vampire's unique Blood Aura Domination. So, Kamishirato Manzo, an individual of outstanding Skill, also couldn't help but be desperate to dodge Otagi Yuka's attacks.</p>
-<p>"Weren't Anyaji Martial artists supposed to Hatred Weapons like Guns or Crossbows that require no training?" "Hehehe, even though their Heads are shaved clean like that, they're not actually monks. They are my Experiments. Although they are all failures, since they can hold Guns or Crossbows, I brought them to use against you."</p>
-<p>Kamishirato Manzo, as if having forgotten his talk of watching or Support, openly declared he would deal with her. Because he considered a Martial artist's Pride to be useless Recklessness, he felt no shame.</p>
-<p>"Still, it's not like I'm saying I'll run away entirely. Let's see...."</p>
-<p>Kamishirato Manzo suddenly began to search his Embrace, then took out a pocket. And he began to chant an incomprehensible incantation.</p>
-<p>Every little thing is connected, and the various regions are linked together. Every action, every event, affects the whole, and all people are part of this interconnected world.</p>
-<p>Naturally, Otagi Yuka wasn't one to just watch him chant the incantation. But every time Otagi Yuka tried to rush in, silver Arrows flew in as if to interfere, allowing Kamishirato Manzo to successfully complete the incantation.</p>
-<p>-Sasul (邪術: Evil Art) Hakumakozukoo (百魔骨甲: Hundred Demon Bone Armor).</p>
-<p>As soon as Kamishirato Manzo finished the incantation, the white Powder contained in his pocket floated up into the empty space and began to attach to Kamishirato Manzo's Body. And it grew like bone or like a Ppul, beginning to envelop Kamishirato Manzo's Body.</p>
-<p>"Khahahahaha! I'll see if you can pierce Armor made from the bones of a hundred monsters!"</p>
-<p>Kamishirato Manzo, after laughing like Crazy, Charged at Otagi Yuka with a furious Momentum, like a football player making a Tackle. While Otagi Yuka could have accepted a normal person's Torso charge even with a laugh, she couldn't help but dodge Kamishirato Manzo's Charge, which had all sorts of grotesque Ppul growing between the bone Armor.</p>
-<p>Kukung!</p>
-<p>A Dust cloud rose, and a large Stone at the end of Kamishirato Manzo's Path shattered into pieces.</p>
-<p>'If I get hit, it won't do.'</p>
-<p>Seeing the Stone shatter, Otagi Yuka muttered inside. But there was no Leisure for thought. Because Kamishirato Manzo was soon Charging towards Otagi Yuka again.</p>
-<p>Tang! Tung! Tung! Tung!</p>
-<p>This time, dodging was not easier. Because along with Kamishirato Manzo's Charge, Bullets and Arrows were being shot at Positions suitable for dodging that Charge.</p>
-<p>Puk.</p>
-<p>"Keueut!"</p>
-<p>In the end, one Arrow was stuck in her Shoulder. Although it wasn't stuck very deeply because she was wearing a Cyber Suit, the arrowhead was half-way stuck into her flesh.</p>
-<p>'It's bearable.'</p>
-<p>At least, the Fortunate thing was that, according to what she heard from Taira Ryuta, who knew the equipment's options, one of the options of the Golden Blood she was holding was a greatly increased resistance to silver, so the wound didn't instantly spread.</p>
-<p>"Keuhuhuhu!"</p>
-<p>Kamishirato Manzo, laughing as he saw Otagi Yuka get hit by an Arrow, rushed in quickly. He spreads his Hand and stabs with immense speed, almost making a sound similar to an Arrow being shot. At his Fingertips, sharp bone was growing like a Sword, so if she were hit properly, it seemed like her Torso would be split in half.</p>
-<p>Because of that, Otagi Yuka couldn't even pull out the Arrow and quickly ducked her Body.</p>
-<p>Kwaang!</p>
-<p>Whether he had calculated Otagi Yuka's ducking, Kamishirato Manzo kicked Otagi Yuka's Neck with his Feet on the side she was ducking.</p>
-<p>Kamishirato Manzo grabbed Otagi Yuka's Ankle as she flew in the direction he kicked, and lifted her up to smash her to the Ground. And with immense Momentum, he smashed Otagi Yuka to the Ground.</p>
-<p>"!"</p>
-<p>The roar of her hitting the Ground that Kamishirato Manzo had expected was not heard. This was because Otagi Yuka instantly deployed her mist form and escaped from Kamishirato Manzo's Hand.</p>
-<p>-Akagamikiba Style (赤神牙式: Red God Fang Style) Ketsutoozangatsu (血刀斬月: Blood Sword Severing Moon)</p>
-<p>Releasing her mist form, Otagi Yuka instantly appeared from the empty space and unleashed a downward slash as if splitting the moon in half.</p>
-<p>Kakakakaka!</p>
-<p>Sparks flew, and Kamishirato Manzo's resisting bone Armor could no longer hold, beginning to shatter and fall apart. Kamishirato Manzo threw off his bone Armor and sprang out as if fighter pilots escaping.</p>
-<p>"I knew it!"</p>
-<p>Otagi Yuka threw the Arrow stuck in her Shoulder at Kamishirato Manzo, who had thrown off his bone Armor. And after retracting her Sword, she kicked the bone Armor below, then swung her Sword at Kamishirato Manzo again.</p>
-<p>"Hone-yari (骨槍: Bone Spear)."</p>
-<p>Kamishirato Manzo was not to be underestimated. He chanted an incantation, disassembled the bone Armor, and made it into a bone Spear, shooting it towards Otagi Yuka. Otagi Yuka quickly twisted her Body and couldn't help but deflect the bone Spear.</p>
-<p>Because it was an incantation Kamishirato Manzo had quickly deployed before being attacked, its Power was not that strong, so Otagi Yuka was able to deflect the bone Spear without difficulty.</p>
-<p>But after deflecting the bone Spear, when she tried to continue her attack again, a Crossbow's Arrow flew once more.</p>
-<p>"Damn it!"</p>
-<p>Otagi Yuka gave up attacking Kamishirato Manzo and couldn't help but deflect the Arrow flying at her. No matter how much Golden Blood greatly increased her resistance to silver, she couldn't keep getting hit by the silver Arrows and silver Bullets shot by those dozens of Kamishirato Manzo's Experiments.</p>
-<p>If she tried to attack Kamishirato Manzo's Experiments, she didn't know what Act Kamishirato Manzo would do from behind, and when fighting Kamishirato Manzo, they tormented Otagi Yuka at every decisive Moment, so it could be said she was in a dilemma. Otagi Yuka realized that if it continued into a Long Game like this, she would be at a disadvantage. This was because the Blood Aura, the Energy source Otagi Yuka used, was not infinite. If she fought like this, her Blood Aura would deplete, and eventually, this fight could only lead to Defeat.</p>
-<p>"Hehehe! You realized it too, didn't you? You're destined to be Defeated."</p>
-<p>Before she knew it, Kamishirato Manzo, wearing his bone Armor again, said with a wry smile. Kamishirato Manzo also knew that fighting a Vampire as a human was very disadvantageous, which was why he had devised such an Operation.</p>
-<p>Kamishirato Manzo's Ulterior Motive was that if his Experiments helped even a little while he endured, Otagi Yuka could eventually be captured by completely depleting her Blood Aura, the Vampire's Energy source, and it worked out well.</p>
-<p>'If it comes to this, is there no Method other than Diana winning quickly and helping me....'</p>
-<p>"Yuka, don't give up."</p>
-<p>Just as Otagi Yuka was about to give up Victory by her own power, a Voice was heard from inside the Forest.</p>
-<p>"Teacher-nim will take care of these riff-raff." The Place the Voice came from was on top of a Tree where Kamishirato Manzo's Experiments were gathered. Kamishirato Manzo's Experiments looked up with tense Expressions.</p>
-<p>Requested by TheDreaming-nim, Hot spring Sawayanagi Mikiyo 1. Interview 2. Rear View 1. When I put in the requested 'people', a lot of men with black Tape on their Juji came out, so it was too unpleasant to see, so I removed the 'people' prompt haha. 2. Phone Filming should be done with LORA, not a prompt, but sometimes it's not compatible. I wonder if it's not compatible with Sawayanagi Mikiyo's Drawing style, it's not coming out ㄷㄷ. Requested by Gojoy-nim, Taira Yukiko's usual Attire and underwear attire~! Usual Attire Since she's the Director of the Talent Development Center, her usual Attire is naturally a Suit haha. Underwear~! Kkiyot~!</p>
+<p>After Takakusaki Gengo disappeared with Genba Kiyohira, Asada Ei, who had gone to the General Situation Room to grasp the overall information, returned after I waited for a moment in the ruined pension.</p>
+<p>"First, Fujigasaki-nim's requested location is currently on Road 140, coming by vehicle. It will take about twenty minutes."</p>
+<p>Since Fujigasaki Rinka had been fighting on her way from Tokyo to here, it seemed to be taking a bit longer for her to arrive.</p>
+<p>Still, seeing that she was coming, it seemed she had dealt with all the White Light Fist Masters and Guardians. I had worried she might be overwhelmed by enemies using Compatibility/Affinity, but since she won, that's Fortunate. No matter that she was a legendary Fist Technique Master named Fujigasaki Rinka, to deal with three Anyaji Guardians and White Light Fist Masters who overwhelmed with Compatibility/Affinity, I could only say it was amazing.</p>
+<p>"Are all the other groups alright?"</p>
+<p>"Yes. Everyone seems to have overcome it well without serious injury. But Saionji-ssi's cyber implant is broken, so she won't be able to continue fighting."</p>
+<p>Even if she couldn't participate in battle immediately, cyber implants could be replaced at any time, so it wasn't a big loss. I had expected at least three or four people to be injured, but surprisingly, apart from the repairable cyber implant damage, everyone was unharmed, so it could be called an unexpectedly great Achievement. As I was grasping the status of Asada Ei and the personnel who participated in this battle, Athena Mannerheim and Musashi Takuro approached.</p>
+<p>Both of them were on the Phone Call, trying to figure out where Takakusaki Gengo had gone, and it seemed they had found his Position and come.</p>
+<p>"He said he went to a Place called Genashi Mountain (Hairless Mountain), and he'll send the exact Position by Text Message."</p>
+<p>Athena Mannerheim and Musashi Takuro, who were not Miyashi natives, while explaining to me, wore Expressions wondering where Genashi Mountain was, but Genashi Mountain was a Mountain between Miyashi and Mount Fuji.</p>
+<p>It was a Mountain that was a local attraction where one could see Mount Fuji from the summit, but Takakusaki Gengo probably took Genba Kiyohira to a Place other than the official hiking trail. By the way, how did Takakusaki Gengo know about Genashi Mountain? Even Athena Mannerheim and Musashi Takuro, who were also affiliated with Anyaji, didn't know.</p>
+<p>"We should depart immediately once Sabu joins us. Please let me know when the exact Position is ascertained."</p>
+<p>As I spoke, Shimokawabe Airen, Alik, and Naruse Shiyo arrived. Alik called me, "Ryuta!" and ran to me, hugging me. I stroked Alik's Head and told Shimokawabe Airen and Naruse Shiyo that they had worked hard.</p>
+<p>And soon after, all the groups that had fought today were arriving one after another. Except for Saionji Diana, whose cyber implant Arm had been torn off, everyone was safe, but they all looked quite exhausted, as if they had fought a fierce battle.</p>
+<p>"Ugh, Ryuta-jji...! I'm sooooo tired~!"</p>
+<p>Seizawa Shii swayed, came to the opposite side where Alik was holding my Arm, and leaned her Body against me. Then the old man Yoda approached Seizawa Shii.</p>
+<p>"Did you Handle Funayama Seigo well...?"</p>
+<p>"Of course, instead of old man Yoda-nim, I pulled out his tongue and killed him. I did well, didn't I?"</p>
+<p>To pull out his tongue and kill him.... It was quite cruel, but since the deceased Target was Funayama Seigo, the one Responsible for kidnapping and Brainwashing boys and girls, I didn't feel sorry for him.</p>
+<p>The old man Yoda, hearing that Story from Seizawa Shii, wore a complex Expression of slight sadness and relief. The relief of finally completing his Disciple's boksu and the sadness of still not being able to see his Disciple, must have coexisted.</p>
+<p>"What should we do now?"</p>
+<p>This time, it was the old man Yoda asking me a Question. The old man Yoda's Party/Group included not only Kujo Kina but also Fist Technique Masters from Gwonmaeng, so he had Demanded an Explanation from me.</p>
+<p>"The Last battle still remains. That is, dealing with Takakusaki Gengo, the ringleader of Anyaji."</p>
+<p>Although I was answering the old man Yoda's Question, I spoke a little louder so everyone could hear. After all, everyone had the curiosity of 'What's next?'</p>
+<p>"We will soon be able to ascertain Takakusaki Gengo's exact Position, so please Rest for a moment."</p>
+<p>I glanced at Athena Mannerheim, who had been speaking as if she would receive the detailed Position by Text Message any moment, and indeed, she was nervously biting her nails and staring only at her phone Screen. I didn't know what Takakusaki Gengo had said, but it seemed she couldn't receive the Information immediately.</p>
+<p>In fact, I was also anxious. It was a Situation where I didn't know how long Genba Kiyohira could hold out. Although Takakusaki Gengo had wrapped the severed Arm's cross-section with a strange black Aura, he had already bled a lot before that, so it must be quite Dangerous. Since the life of a close friend from childhood was at stake, I felt considerable anxiety.</p>
+<p>As I waited for a moment with an anxious Expression, I saw a car approaching the pension. Soon the car stopped, and a welcome Face emerged from the Driver's Seat.</p>
+<p>"Yo!"</p>
+<p>Fujigasaki Rinka, too, seemed to have spotted me and waved her Arm with a welcoming Expression. Everyone's Gaze focused on the appearance of the world's number one martial artist. The Gwonmaeng people, including the old man Yoda, looked as if to say, 'Oh, she's here,' since they had been together all this time, and the special class Students looked at Fujigasaki Rinka with an Expression of wonder, exclaiming, 'Wow, a Celebrity!'</p>
+<p>Of course, there were those who showed a different Reaction than the two types just mentioned. They were Kujo Kina and Naruse Shiyo, long-time fans of Fujigasaki Rinka.</p>
+<p>"Kyaaaaaaaak! I'm a fan!"</p>
+<p>Naruse Shiyo appealed to be a fan, letting out a Scream almost like a jeolgyu, and Kujo Kina was shedding Tears, smiling with an Expression as if she had achieved enlightenment.</p>
+<p>"Are they also.... your Disciples?"</p>
+<p>Fujigasaki Rinka, who had gotten out of the car, approached, looked at Naruse Shiyo and Kujo Kina, and cautiously asked me.</p>
+<p>"Yes, they're Sabu's fans, so please understand."</p>
+<p>"Well, it's a familiar thing, but anyway...."</p>
+<p>Ttak!</p>
+<p>After saying 'anyway,' Fujigasaki Rinka immediately gave me a knuckle rap. I felt a Pleasurable Ache so intense that Stars flashed before my Eyes. It hurt far more than the one or two blows I had just taken while sparring with Musashi Takuro; Sabu's knuckle rap was much more painful.</p>
+<p>"That hurts!"</p>
+<p>"I hit you so it would hurt! You abandon your school without even telling Sabu?"</p>
+<p>Ah, so that's why she hit me. If it was about Shinkai Yatsude, honestly, I had nothing to say. As I just rubbed my Head and said nothing, Fujigasaki Rinka approached her friend, Shimokawabe Airen.</p>
+<p>"Airen~! You're not hurt, are you?"</p>
+<p>"No, I'm not hurt. You haven't changed, Rinka."</p>
+<p>Perhaps because they were friends, the two were having a natural Conversation without awkwardness. Although I was curious what they were talking about, I had no choice but to turn my attention to Athena Mannerheim, who had approached at just the right time, to talk with her.</p>
+<p>"I just received Contact."</p>
+<p>"Takakusaki Gengo's exact Position, right?"</p>
+<p>"Yes, it was almost simultaneous with her arrival, as if he knew Fujigasaki Rinka-ssi was coming."</p>
+<p>He wouldn't have known Sabu was coming.... I looked at the phone Screen Athena Mannerheim showed me. Since the Coordinates were written in latitude and longitude on the phone Screen, I called Asada Ei to ascertain the Position.</p>
+<p>"As we predicted, the Coordinates are marked in a Place other than the hiking trail."</p>
+<p>Asada Ei showed me the map on her tablet Screen and gave an Explanation. Honestly, I wouldn't know by looking at the map, never having been to Genashi Mountain, but I roughly grasped the Position and nodded my Head.</p>
+<p>"It would take more than 2 hours on Foot, but if it's Takakusaki Gengo, he probably used some other Ability to arrive quickly. Since he knows Fujigasaki Rinka-nim is coming, there's a high Possibility he's even set up traps."</p>
+<p>"For normal traps, we can trust Joseodang.... Urabe will be able to Handle the Jusul traps. There are also agents sent by the Naruse Family."</p>
+<p>No matter how many traps Takakusaki Gengo prepared, since everyone was a talented Person, they would be able to break through sufficiently.</p>
+<p>"Excluding personnel unable to fight, everyone will move out!"</p>
+<p>Since all personnel unable to fight had already been checked during the Rest, they could depart quickly. Saionji Diana, whose cyber implant Arm had been torn off and who couldn't participate in the next battle, was standing, looking at me with a sorry Expression, so I gently pinched her cheek and opened my mouth.</p>
+<p>"Don't be sorry, I'm grateful you fought to that extent."</p>
+<p>"Yes.... Please don't get hurt, Teacher-nim...!"</p>
+<p>I smiled at Saionji Diana and boarded the vehicle heading to Genashi Mountain. Even though Takakusaki Gengo's Position was off the hiking trail, going by car was faster to the vicinity of Genashi Mountain, which is why I boarded the vehicle.</p>
+<p>Saionji Diana, who was judged combat-incapable, and some of Gwonmaeng, withdrew to the rear, and most people, excluding the auxiliary personnel of the General Situation Room, participated in the battle.</p>
+<p>I tried to send Nakasone Rishin and Kujo Kina to the rear as well, but since both held a grudge against Anyaji and insisted on participating, even if just to Support, I let them participate in a role like a communications soldier, receiving Contact in the General Situation Room. If there was any important Information, Kujo Kina or Nakasone Rishin would hear it from the General Situation Room and inform us.</p>
+<p>MidNightSKY-nim requested: Liz-tang, blushing while thinking of Linling and Ryuta-jji smiling brightly for Children's Day!</p>
+<p>Linling first!</p>
+<p>I couldn't think of a way to express Children's Day, so I just dressed them in kindergarten uniforms haha</p>
+<p>Liz-tang~!</p>
+<p>Kkiyot!</p>

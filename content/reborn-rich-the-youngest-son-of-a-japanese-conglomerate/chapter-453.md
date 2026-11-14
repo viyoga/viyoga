@@ -5,68 +5,57 @@ weight = 453
 chapter = 453
 +++
 
-<p>It felt like a long time since I had a dream. Yukiko appeared in the dream, and we talked about this and that, and then our eyes met, and we had passionate Sex. I had such an Erotic dream.</p>
-<p>「Hh-eok!」</p>
-<p>Feeling like I was about to Ejaculate, I quickly woke up. Fortunately, I had an Erection in the morning, but I hadn't soiled my Panties. Since the Possession, I haven't been without a Woman, and even yesterday, I Ejaculated into Kirie Kurayamada's Body several times, so a Wet dream makes no sense.... A Wet dream (Dream Semen)? Could it be that Yukiko really came and went?</p>
-<p>After waking up, while I was still dazed, the Phone I had placed by my Head vibrated and a LINE message arrived.</p>
-<p>「-Yukiko: It was good because it's been a long time♥」</p>
-<p>Ahh.... It wasn't a normal, dictionary-definition Wet dream, but truly a Wet dream where I released Vital Energy to a Succubus in a dream. I replied to Yukiko, saying, 'I enjoyed it too,' and got up from my Seat. Even though it was a dream, it felt truly good.</p>
-<p>I took a Shower with cold Water to awaken my hazy Mind and thought about today's schedule. Alik and Shimokawabe Airen would gather, and once the final check was done, it would be over. I didn't know how long that final check would take, but it wouldn't take too long. As it was the day before the Battle, the idea was to give them ample Rest.</p>
-<p>Since there was no need to travel in multiple cars, I picked up Alik, Shimokawabe Airen, and Saionji Diana, whom I had arranged to meet, and decided to go to the Warehouse.</p>
-<p>Out of Consideration for Shimokawa Airen, who lived in Cheongsim-gwan within St. Francisco Girls' Academy, everyone said they would wait at the School entrance, so I drove my Car to the School entrance. I arrived a little early, and Saionji Diana and Shimokawabe Airen were standing in front of the School. Alik didn't seem to have arrived yet.</p>
-<p>「Get in.」</p>
-<p>When I lowered the Window and spoke, Shimokawabe Airen got in the back seat and Saionji Diana got in the Passenger seat.</p>
-<p>「Good morning.」</p>
-<p>「It's been a long time, Ryuta-gun.」</p>
-<p>「Hello, Teacher-nim.」</p>
-<p>As everyone was Greeting, from the Road, as if not fully awake, Alik was seen walking with half-closed Eyes. When I lightly honked the horn, Alik came running, odo-do, and got in the Car. He ran with half-closed Eyes, so I worried he might fall, but such a thing didn't happen.</p>
-<p>「Sabubu, Ryutta, Aena, hello....」</p>
-<p>Still half-asleep, Alik's Appearance, rubbing his Eyes and Greeting, was incredibly Cute. Shimokawabe Airen, who was called Sabubu, as if Alik was Cute, was stroking his Head.</p>
-<p>「Everyone's in, so I'll depart now.」</p>
-<p>It took about 30 minutes from the School entrance to the Warehouse. Perhaps because it was a Weekend morning, the traffic wasn't bad, so it was faster than expected. Driving while listening to music, I parked the Car in the Warehouse Parking Lot and everyone got out. Inside the Warehouse, Otagi Yuka, the Party Concerned in the matter, and Eve, who must not have left the Warehouse since yesterday, were there. Sakagami Rena and Konoe Akina didn't seem to have arrived yet.</p>
-<p>「Konoe-ssi will be here soon, and Sakagami-ssi went last night to disarm the landmines that SPF had set up at the Shrine. Still, since she went at Dawn, she'll be back soon.」</p>
-<p>Eve, even before I asked, told me about the two who weren't there. To be moving since Dawn, Sakagami Rena must be suffering the most.</p>
-<p>「Then let's wait until everyone arrives.」</p>
-<p>Konoe Akina seemed like she would arrive soon, and since Sakagami Rena also went towards the Shrine at Dawn, she would be back soon.</p>
-<p>「Thank you for your Help, Teacher-nim.」</p>
-<p>As I sat there, Otagi Yuka politely Greeted Shimokawabe Airen. In fact, I and the other Students had a Justification to help because I was their Class Teacher or they were Friends, but Shimokawabe Airen, apart from Home Economics class, had no significant contact, so it was unexpected Help for Otagi Yuka.</p>
-<p>Of course, a big Reason was that I understood Shimokawabe Airen's desire for Actual combat and asked her for Help, but Otagi Yuka wouldn't know that, so she would think it was sudden Help.</p>
-<p>「No, when a Student is in Danger, it's natural for a Teacher to help.」</p>
-<p>In reality, she just wanted to cut people; it's quite hypocritical. As I listened to Shimokawabe Airen's Words and evaluated her internally, Konoe Akina and Sakagami Rena arrived at the Warehouse.</p>
-<p>「Sorry for being late~!」</p>
-<p>「I have completed my Mission and returned, Liege.」</p>
-<p>Since it was still early Morning, they weren't that late. After exchanging Greetings and saying 'good Work,' everyone's Gaze now turned to Eve. Eve had been continuously collecting Information online since yesterday, and they were curious if there was any new Information.</p>
-<p>「Overnight, I obtained one piece of Information. It's not precise, but the Troops seem considerable. They don't seem to have entered Miyashi yet, but if I make a Conjecture based on a few Calls I hijacked, it seems to be over a hundred people.」</p>
-<p>At the mention of 'over a hundred people,' everyone fell silent. Surely, SPF wouldn't all be 100 people, and some would be other Troops commanded by Taira Jiro, but the Number 'one hundred' carried a certain Pressure.</p>
-<p>As for us, with Konoe Akina excluded from here, there are 6 to 7 people here. To face a hundred people, each person would have to kill 15.</p>
-<p>But the Pressure of the Numbers was just Pressure, and looking at the individuals among us, even if the Opponent numbered over 100, there was I, and Shimokawabe Airen, one of the future Three Swordsmen, Alik, the infamous mid-Boss from the Megacorp Youngest Son, Otagi Yuka, who fought me equally in New York, was also there, and Saionji Diana and Eve, who were no less capable, were present.</p>
-<p>What remained was Sakagami Rena, and I would decide whether or not to include her in the Battle today after checking her Stats, so even excluding Sakagami Rena for now, our Members were formidable.</p>
-<p>「Even a hundred people, no, even two hundred people, I think we'll win?」</p>
-<p>「It's true that we'll win, but we should aim to minimize our Harm as much as possible.」</p>
-<p>When I spoke with Confidence, Otagi Yuka, as if burdened by the thought of her Friends getting hurt or dying while helping her, spoke in a way that suggested minimizing Harm.</p>
-<p>「What should I do, Liege?」</p>
-<p>「Just a moment....」</p>
-<p>Sakagami Rena looked at me with a Gaze that wanted to help, so I fumbled in my Pocket and took out the Ruins' Glasses. In fact, if Sakagami Rena was a Ninja specialized only in Cheopbo or Information, participating in Battle would be close to suicide, so to avoid Harm, I absolutely had to check her Information.</p>
-<p>「What is that?」</p>
-<p>「Ah, this is Ryuta-nim's Ruins' Glasses that he's sweeping up from the black market, isn't it?」</p>
-<p>「Ruins' Glasses? That's unique.」</p>
-<p>When I suddenly took out Glasses of a unique Appearance, everyone's Gaze was focused.</p>
-<p>「This is a Relic that can tell you the Opponent's Ability in Numbers.」</p>
-<p>Everyone's Gaze was focused, so I had no choice but to Answer. Naturally, they wouldn't have thought such a Game-like Item existed, so they looked at me with distrustful Gazes. I ignored those Gazes, put on the Ruins' Glasses, and looked at Sakagami Rena.</p>
-<p>◆Name: Sakagami Rena (坂上 令梛) Lv10</p>
-<p>Power:4 Agility:15 Stamina:8 Resistance:4 Recovery:4 Sensitive Nerves:15 Appearance:15</p>
-<p>Intelligence:7 Knowledge:6 Concentration:8 Will:9 Creativity:2 Charm/Allure:12 Judgment:14</p>
-<p>Luck:8 Magic Power:12</p>
-<p>◆Sakagami-ryu Ninjutsu (坂上流 忍術) (Narrative+ Ninjutsu Lv14) ◆Koppō Koto-ryu (Bone Method Tiger Defeat Style) (Narrative + Fist Technique Lv9) ◆Sakagami-ryu Bedroom Arts (坂上流 房中術) (Narrative Bedroom Arts Lv5) ◆Linguistics (General Skill Lv11) ◆Marksmanship (General Skill Lv8) ◆Investigation (General Skill Lv15)</p>
-<p>◇Bloodline - Sakagami (血統-坂上) [Unique Bloodline]: According to the Sakagami Ninja bloodline passed down through generations, the skill coefficient inherited from the Sakagami Family (坂上家) is increased by 1.3 times. Grants the special stat, Magic Power.</p>
-<p>◆Owl's Eye[Rare+ Trait]: Can see through Darkness and can see far distances when concentrating the Mind.</p>
-<p>◆Ninjutsu Genius[Growth-type Narrative Trait]: Can easily learn Ninjutsu. Depending on Effort, the Trait can change to Master of Ninjutsu/Adult/Superhuman.</p>
-<p>◆Night Stalker[Narrative Trait]: Can conceal one's presence. Reduces the Probability of being detected when concealed. Critical hit Probability significantly increases during Ambush.</p>
-<p>◆Detective's Eye[Rare+ Trait]: Concentration, Judgment, and Luck increase when investigating something. The Probability of discovering new facts during investigation increases.</p>
-<p>◆Talent for Dunjutsu (遁術) [Unique+ Trait]: A talent for learning Dunjutsu, which is a part of Ninjutsu. Increases the efficiency of Dunjutsu and reduces Magic Power consumption. Increases Magic Power by 3 and maximum Magic Power by 2.</p>
-<p>「...Quite good, isn't it?」 Her Body Stats gave the impression of an Assassin-type, with high Agility and Sensitive Nerves, and surprisingly, her Mental Stats showed high Judgment, making her a Style that wouldn't make Mistakes during Battle or Cheopbo Missions.</p>
-<p>Her Skills, especially Ninjutsu, which could be called an all-purpose Skill, were quite high, and it seemed she hadn't neglected her Training, as almost all her Skill Levels were high. The absence of Skills like Cheopbo or Concealment was because all of them were included in Ninjutsu. That's why it was difficult to raise Ninjutsu Skill Levels, but perhaps because of her Ninjutsu Genius Trait and having gone on so many Missions that she was Held Back a Year, her Ninjutsu Level was high.</p>
-<p>As for her Traits, she had Traits that were a proper mix of Cheopbo and Battle. She had Owl's Eye, which Mimata Chieri possessed, and Ninjutsu Genius, the Ninjutsu version of Swordsmanship Genius that Saionji Diana possessed.</p>
-<p>Above all, the Talent for Dunjutsu was an essential Trait for raising a Ninja to a high-ranking Ninja, and this Talent for Dunjutsu was necessary to use Ninjutsu-related Magic. Depending on whether one had the Talent for Dunjutsu or not, it determined whether a late-game Ninja Character was used merely as an Intelligence agent or mobilized for Battle.</p>
-<p>Lastly, a Bloodline is something attached to the Descendants of Families who have continuously pursued a single path, like Ninja Families or Samurai Families, and this acts as a Trait +1, so if you recruit a Character with a Bloodline, you could see the Effect of having one more Trait even at the same Level. That means the Sakagami Family is a historically distinguished Ninja Family.</p>
-<p>Sleepy Alik</p>
+<p>The scene became even more hectic after the battle. Diana Richie, who had been looking at the crater, picked up her phone and disappeared, saying she had to report to her superiors, while Manuel Murdock and the combat operatives were checking equipment and injuries of the personnel. Thanks to the enchantment with protective magic, their eyeballs didn't explode, but the blood vessels in their eyes had all burst, leaving dried traces of bloody tears, making them look somewhat eerie.</p>
+<p>Although one person was caught and killed by the Thousand Mouths, it was a successful operation because we were able to catch the serial killer. If I hadn't been there, they probably would have been annihilated...</p>
+<p>Come to think of it, something was a little strange. If I hadn't been there, this Thousand Mouths would have annihilated them and made a bigger name for itself, eventually showing up at the MegaCorp's youngest son or TMC, but I don't remember seeing the Thousand Mouths in the game.</p>
+<p>If it had continued to grow, it would have become as much of a headache for the United States as the famine. Could it be that reality is changing because of my actions? Or maybe if I hadn't come to the United States, they might have borrowed the power of another psychic to defeat the Thousand Mouths.</p>
+<p>I stopped thinking about this Thousand Mouths subjugation. Now that the job was done, there was no point in worrying about it. It was inevitable that the future would change because of my existence, so there was no need to worry about it. I was worried that it would change so much that the information I knew would be of no help at all, but it would still be useful to some extent.</p>
+<p>,Collect every single piece of flesh!</p>
+<p>As the barrier was lifted, several people who looked like researchers were collecting the remains (?) of the Thousand Mouths with their assistants. The remaining flesh and blood didn't have that strange energy, so it would be okay for the researchers to take it. There were pieces of flesh that looked like maggots or leeches, but the authority had disappeared, so they were just shaped like leeches or maggots, and when you looked closely, they were just ordinary human flesh.</p>
+<p>From the perspective of the Federal Psychic Management Department, it wasn't a perfect operation because they couldn't get the Thousand Mouths' corpse, but from my perspective, I sent the body imbued with the power of the Outer God to Simyeonui ttal, so I thought I would receive a large reward later, making it an operation that gave me considerable profit along with the reward I would receive from the Federal Psychic Management Department.</p>
+<p>,The reward is in this card. As we discussed before, you failed to capture it alive, so it's four million dollars. All the taxes and stuff are taken care of, so you can use it as much as you want.</p>
+<p>Diana Richie finished reporting to her superior on the phone and came to me, handing me a black card. 5.3 billion won for one battle... Not bad. I took the card that Diana Richie handed me.</p>
+<p>,Is there anything else to do?</p>
+<p>,Yes. All the CCTVs and filming equipment are damaged, so no one but us knows about the battle situation, so all the combat operatives have to testify, but Ryuta-ssi isn't one of our operatives, so you can just leave.</p>
+<p>I felt like she was trying to make things easier for me because I had been helping her since the famine. Since they had all seen me fighting anyway, there was no need for me to talk. I said goodbye to Diana Richie and the female driver and Manuel Murdock, whom I knew at least a little.</p>
+<p>The two of them, except for Diana Richie, looked at me strangely for some reason, but I thought they were surprised by my skills and left the scene. Before going out into the street, I went to an alley where there were no people, deactivated my armor, and walked away.</p>
+<p>The problem was that the clothes I was wearing inside the armor were a swimsuit. The problem was that I had only grabbed my bracelet in a hurry because I was wearing a swimsuit. It wasn't just a normal swimsuit, but a flashy swimsuit with a tiger drawn on it that Arisu had given me as a gift, so I ran as fast as I could. I heard one or two women on the street scream in surprise, but I pretended not to hear them and ran to the photo studio.</p>
+<p>###</p>
+<p>Urabe Konoka, who was worshiping Shinkai Hime at a shrine before weekend lunch, felt a sudden change. The spiritual connection with Shinkai Hime, Simyeonui ttal, was becoming stronger.</p>
+<p>,It's getting stronger...!</p>
+<p>Because Urabe Konoka and Simyeonui ttal were connected, Urabe Konoka could easily feel Simyeonui ttal becoming stronger. Since the spiritual connection had become even stronger, Simyeonui ttal felt closer than ever.</p>
+<p>Emotions such as affection and gratitude for Taira Ryuta were pouring into Urabe Konoka like a flood from the spiritual connection with Simyeonui ttal. Judging from the emotions flowing in, it seemed that the reason why Simyeonui ttal had become stronger was thanks to Taira Ryuta.</p>
+<p>,I don't know if these feelings are Shinkai Hime-nim's or mine anymore....</p>
+<p>The emotions flowing in from Simyeonui ttal were so strong that her feelings for Taira Ryuta, who was just a guest at the inn and her homeroom teacher, were gradually changing positively without her knowing it. He was a very handsome homeroom teacher, but that alone wouldn't be enough to have the feelings she was feeling now.</p>
+<p>As Simyeonui ttal became stronger and the connection with Simyeonui ttal became stronger, the energy of Simyeonui naturally flowed into Urabe Konoka as well, strengthening Urabe Konoka's physical and mental abilities.</p>
+<p>It was a very powerful energy that would drive ordinary people crazy or deform their bodies, but for Urabe Konoka, the priestess of Simyeonui ttal, it was just a sacred energy without such side effects.</p>
+<p>When she was first chosen by Shinkai Hime to become a priestess, something similar happened, but after that, she never became stronger because of Simyeonui ttal, so becoming this strong made her feel omnipotent, like she could do anything.</p>
+<p>-My priestess.</p>
+<p>While Urabe Konoka was feeling omnipotent, she suddenly heard the voice of Simyeonui ttal in one side of her head.</p>
+<p>,Shinkai Hime-nim...!</p>
+<p>It was rare for Simyeonui ttal to speak directly. Among the gods worshiped by the Urabe family, the gods who had lost their divinity and were only worshiped traditionally, except for the gods who had divine power left and could show their authority, were very interested in the present world, but Simyeonui ttal was not very interested in the present world.</p>
+<p>She only borrowed Urabe Konoka's eyes to briefly see Taira Ryuta and felt the senses with Urabe Konoka when eating dessert. It was rare for her to speak like this.</p>
+<p>-Deliver this gift to my partner, Ryuta.</p>
+<p>Uuung...!</p>
+<p>With Simyeonui ttal's words, the space in front of Urabe Konoka distorted and something popped out and fell at Urabe Konoka's feet.</p>
+<p>,This is....</p>
+<p>Urabe Konoka picked up the object bestowed by Simyeonui ttal.</p>
+<p>###</p>
+<p>After the battle with the Thousand Mouths, I spent time with Arisu again. At night, I was invited to a Hollywood party hosted by Dion Hoffman, where I took pictures and drank with various celebrities, and spent a night of madness with three models and actors brought by Arisu and Arisu herself.</p>
+<p>Arisu had become close with Mimata Chieri, so she had become generous in this area, or perhaps it was because she was the daughter of Nae Fitzgerald, who encouraged her to meet other women, so last night she left, saying she would bring some nice women.</p>
+<p>And after a while, she brought a fairly famous actress and two unknown but beautiful models and enjoyed the night together. Of course, combined with my huge dick that was no less than a Westerner's, plus the experience and characteristics of having embraced countless women, the women went back and forth between reality and heaven several times during the night.</p>
+<p>The women who had spent a night of madness with me were quite clingy to me from the morning because of my sex skills and characteristics, but Arisu, in her position as a girlfriend, fought off the women who had spent the night and went on a date in downtown Los Angeles with me alone.</p>
+<p>What was a little strange was that she allowed sex but not dating. Usually, she wouldn't allow both, but if she had to allow one, wouldn't sex and dating be the opposite? But I thought Arisu, who allowed even one, was a bodhisattva and just enjoyed her body gratefully.</p>
+<p>Anyway, while dating Arisu, I spent time buying the wish lists that the students had sent me on Line. Since there were 13 students, the list of gifts to buy was quite long. Arisu tilted her head as she looked at the list.</p>
+<p>,Do you have to buy all of this?</p>
+<p>,The kids are pissed because I left during the exam period.</p>
+<p>Arisu was a little puzzled at first, but she seemed to reluctantly accept it when I said that I had left during the exam period to see her. Still, if I bought gifts for other women and didn't have anything for Arisu, she would be upset, so I chose the students' gifts together and secretly bought Arisu's necklace and gave it to her as a gift, and she was very happy.</p>
+<p>The necklace of smoke I gave Arisu a few months ago was a one-time item, so I gave her a necklace that she could continue to use as an accessory as a gift. It was a necklace with only decorative effects and no separate options, but it had several sparkling diamonds attached to it, so it was quite expensive. But it wasn't much compared to the money I made this weekend, so I could splurge.</p>
+<p>Giving her the necklace seemed to have pressed Arisu's arousal button again, and Arisu dragged me to a hotel in downtown Los Angeles with rough breaths and violated me. We had sex until the plane time was almost up and went to the airport.</p>
+<p>,Do the rest of the filming well.</p>
+<p>,Yeah, I'll finish quickly and go to Japan.</p>
+<p>I stroked Arisu's cheeks, who was slightly teary-eyed as if she was sad to say goodbye, and promised our next meeting. She said that there was about a month left of filming, so I would probably meet Arisu in Japan next time.</p>
+<p>I left Arisu behind and boarded the plane to Japan. Tomorrow was the exam period at St. Francis Girls' Academy.</p>
+<p>------</p>
+<p>Urabe Konoka</p>
+<p>Urabe Konoka can also use tentacles~! As the priestess of Simyeonui ttal, she has top-tier combat power among the students of St. Francis Girls' Academy.</p>

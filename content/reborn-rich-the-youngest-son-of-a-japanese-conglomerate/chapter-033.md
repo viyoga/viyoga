@@ -5,84 +5,68 @@ weight = 33
 chapter = 33
 +++
 
-<p>Despite her proactive attitude, Arisu's kiss was awkward. I was happy that Arisu didn't have much experience, but I wondered if it was possible for a 21-year-old, sexually open American beauty. Usually, when you see beauties like that in American dramas or movies, they're sex machines, but I didn't expect her to be this awkward. Or maybe I'll just turn her into a sex machine.</p>
-<p>,Eung... Heut, tschup, tschureup....Kiss, kiss feels gooood♡"</p>
-<p>Arisu's face was ecstatic from just a kiss. Her sensitivity was fine. If I touched other places, she'd like it even more, right?</p>
-<p>I touched Arisu's breasts, watching her reaction, and massaged her, finding the optimal spot for caresses. I didn't know that the senses of my Master of Traits would be helpful in sex too. Every time I touched her breasts, Arisu trembled as if electrocuted, making pleasure-filled noises.</p>
-<p>"Heuaaht! It feels so weird-eet!"</p>
-<p>"It feels weird? Not good?"</p>
-<p>"It's good, Ryuta, it's so good!"</p>
-<p>Is she saying she likes me? Or is she saying she likes me touching her breasts? To get a clear answer from Arisu, who was giving ambiguous answers, I unhooked her bra.</p>
-<p>They were beautiful breasts. About a full B-cup, slightly smaller than Han Yu-gyeong's C-cup. The shape was also beautifully teardrop-shaped, and the color of her nipples was pink. Without realizing it, I brought my lips to her nipples and sucked.</p>
-<p>Jju-eup jju-eup....</p>
-<p>With the lewd sound of sucking on her nipples, Arisu's eyes rolled back, and her toes danced wildly. It seemed she had reached her peak just from having her nipples sucked. When I glanced at her panties, they were soaked as if someone had turned on a shower.</p>
-<p>"Do you like me? Or do you like the foreplay?"</p>
-<p>"Haa... haa... Both, I like both."</p>
-<p>"Now, Arisu, touch mine."</p>
-<p>I pulled down my pants and presented my huge, fully erect Johnson in front of Arisu. Arisu looked at my Johnson with an ecstatic expression and immediately took the glans into her mouth. Her kisses were awkward, but she had no hesitation when it came to sucking with her mouth.</p>
-<p>"Tschu-up tschu-heup...!"</p>
-<p>But she still wasn't that skilled. Still, the fact that a beauty like Arisu was holding my Johnson in her mouth and moving back and forth filled me with a sense of conquest and excitement. I decided to give Arisu some advice.</p>
-<p>"Use your tongue a little more and put it in all the way to the back of your throat."</p>
-<p>Arisu's skills quickly improved with my advice. Even while coughing, she swallowed the glans to the back of her throat. I felt incredibly good too. The sensation of being squeezed in her throat and stimulated with her tongue sent pleasure all the way to the top of my head.</p>
-<p>"I think I'm going to cum."</p>
-<p>At my words, Arisu urged me with her eyes as if telling me to hurry up and cum. Not content with just urging me with her eyes, Arisu swallowed my Johnson as far into her throat as possible. I wondered if she was a sex genius. Was she really just taught by me? She was doing so well proactively.</p>
-<p>"Kueo-eok, keo-eok."</p>
-<p>"I'm cumming!"</p>
-<p>Throb throb!</p>
-<p>My Johnson repeatedly expanded and contracted, spewing semen. Arisu, wanting to taste the semen with her tongue, pulled my Johnson out of her throat and took the glans into her mouth. Arisu's cheeks bulged thanks to the gushing semen. It was clear that my stamina had increased significantly due to the Golden Pillar trait, and the amount of semen had also increased dramatically. What man would ejaculate enough semen to make someone's cheeks bulge? It's all thanks to the trait.</p>
-<p>When I pulled my Johnson out of her mouth, Arisu opened her mouth, showing my semen with a "hee~" sound. Then, she rolled her tongue around in her mouth to taste it before swallowing it down. And she opened her mouth with an ecstatic expression.</p>
-<p>"Hehe. It's delicious."</p>
-<p>It shouldn't be delicious, right? Did it become edible because of the Golden Pillar trait? Still, Arisu's actions themselves were arousing, reducing my post-cum clarity.</p>
-<p>I had touched her breasts and received oral service, so now there was only one place left. I picked up Arisu and threw her onto the bed.</p>
-<p>"Kyaaak~!"</p>
-<p>Arisu screamed, but she was smiling slightly. I lay down next to Arisu and caressed the space between the small mounds rising above her panties, moving my index finger back and forth.</p>
-<p>"Euheung.... Euheut.... This, feels good."</p>
-<p>"Which do you like the most, the kiss, the breasts, or here?"</p>
-<p>"I like them all, all.... Ah-heut~!"</p>
-<p>When I flicked her Clitoris slightly, Arisu's hips lifted into the air while lying down, and she twitched. Since her hips were already lifted, I pulled down her panties. Arisu's clean pussy was visible, whether it was because she had shaved or because she originally had no hair.</p>
-<p>When I gently rolled my tongue over Arisu's reddish-pink pussy, she narrowed her thighs while saying, "Heuaaaang!!" But because my face was in the middle, I only felt the soft sensation of her thigh flesh pressing against both of my cheeks.</p>
-<p>Of course, the feeling of her thighs was so good that I wanted to keep feeling it, but I had to move forward, so I grabbed Arisu's ankles with both hands and spread them apart.</p>
-<p>As her naturally closed pussy opened slightly, it showed off its shy appearance. I let go of her ankles and gently inserted my finger into her pussy with my right index finger, and it was already soaked and sticky from the flood. After one finger went in, I felt something like a barrier preventing me from going in further. It was her hymen.</p>
-<p>Her kiss was a bit awkward, but I didn't know she was a virgin. Well, it's good for me. My Johnson, which was about 80 percent erect, became 120 percent fully erect.</p>
-<p>"Is this okay?"</p>
-<p>"Yes, make me Ryuta's."</p>
-<p>Is it okay for a virgin to be this seductive? Still, since she's a virgin, I should tease her a little more. It's already sticky, but if I put it in right away, it'll hurt, so I need to loosen her up a bit more. I bit her breasts with my mouth and brought my hand down to widen the entrance.</p>
-<p>"Heuheung...! Haa-eung... It feels so good-aaang!"</p>
-<p>Arisu, already devastated by the Golden Pillar and the senses of my Master of Traits. She seemed to be on the verge of reaching her peak after ten minutes of continuous breast and pussy assault. Now is the right time. I took my mouth off her breasts, raised my waist, and aligned the tip of my glans with her pussy hole.</p>
-<p>"Are you coming in now?"</p>
+<p>◆Spray-Type Rapid Sleeping Potion [Common Item 4/10]</p>
+<p>A sleeping potion that can instantly put the target to sleep. The success rate varies depending on the average value of the target's resistance and will.</p>
+<p>Sleeping time is around 1 hour.</p>
+<p>After eating the breakfast that Shinoe Misano-ssi prepared and returning home, I looked at Kurakake Kuma's spray. Seeing the explanation window pop up, it's definitely an item that exists in the game. I know where to get this. It was an item sold by the Shadow Merchant, a back-alley merchant union in the world.</p>
+<p>In Korea, I know where to interact with the Shadow Merchant, but I didn't know about Japan. Moreover, the Shadow Merchant has a system where you get a recommendation from a recommender to enter, so even if you interact with the Shadow Merchant, it was difficult to get a recommendation. But luckily, there was one person who could recommend me.</p>
+<p>It was the original owner of this spray. I immediately called Kurakake Kuma.</p>
+<p>-Hello.</p>
+<p>"Deputy Team Leader-nim, I'm calling because I have a favor to ask. I'm trying to access the Shadow Merchant site. I'd like you to give me the recommender code."</p>
+<p>-....Do you know how much that code is worth?</p>
+<p>Kurakake Kuma asked me back in disbelief at my confident request. Of course, I know it's of considerable value, but Kurakake Kuma's financial situation was none of my business.</p>
+<p>"If the spray you used for rape ends up in the hands of the police and the Shadow Merchant gets investigated, you know that code will be gone, right? You should also be careful of the assassins sent by the Shadow Merchant."</p>
+<p>-Are you really not going to contact the police?</p>
+<p>Since I decided to leave everything to Shinoe Misano-ssi, I won't be reporting to the police. So I can make promises as much as I want.</p>
+<p>"It's already been 12 hours, can't you tell by the fact that the police haven't come? I'm a busy person. Hurry up and send the code."</p>
+<p>I notified him as I pleased and hung up the phone. Kurakake Kuma, who has an authoritarian personality, must be pissed off, but it was a situation he couldn't do anything about. Soon, the recommender code came via LINE. Once you sign up, you can give the code to the recommender according to the amount used in the Shadow Merchant, but I think Kurakake Kuma could only give the recommender code to about one person. If he sells it for money, it would be worth at least 5 million yen, so he must be very sad.</p>
+<p>I turned on the computer and went through several procedures to enter the Shadow Merchant site. When I went to the sign-up window, a screen appeared to enter the recommender code. You had to pass this recommender code window to sign up. I entered the code that Kurakake Kuma sent me. A screen appeared saying, 'Valid code.' and the sign-up window appeared.</p>
+<p>You can write the personal information falsely, but to receive the item, you had to write the address correctly. So I also wrote the personal information roughly and only wrote the address correctly. I can change the address anytime, so I have to change it again when I become independent.</p>
+<p>There were definitely a lot of items I saw in the game. I don't really need a gun... I wish I could catch only the elixirs that come out occasionally, but I don't have much money yet, so I had to wait until Health Miracle hits the jackpot.</p>
+<p>You can not only buy items, but also auctions are held periodically, so you had to check the site well. Hmm... There are no auctions this March. It was rather fortunate. If a good item came out, I would have had to just suck my fingers. I have to make money quickly and participate in the auction. I was thinking about making money when I heard a sound from outside the door.</p>
+<p>"Ryuta, come out."</p>
 <p>"Yes."</p>
-<p>"Ryuta, it's my first time. Be gentle. You can be rough next time...."</p>
-<p>How can she be so arousing even when she's talking? I put strength in my waist and moved forward slightly. I could see Arisu's small, closed pussy hole widening to fit my size. That's right, I was now taking my first steps on a white snowfield.</p>
-<p>"Uheut...! Big...! Euheu-eut!"</p>
-<p>Arisu let out a slightly suppressed moan, as if feeling the pressure. I pushed my waist in again. I felt a barrier preventing me from going in further. I pulled my glans back slightly and pushed in hard. With the feeling of her hymen tearing, I went inside with a "ssuu-euk" sound.</p>
-<p>"Aah...!"</p>
-<p>Looking at Arisu's face, which had a few tears in her eyes, she was smiling slightly.</p>
-<p>"Am I Ryuta's now?"</p>
-<p>"If you say things like that, I might get rough without realizing it."</p>
-<p>To reward Arisu for saying such endearing words, I slowly moved my waist back and forth as if painting with a brush. At first, she seemed to feel a slight pain, but soon her moans became louder as the pleasure seemed to increase. The more pleasure Arisu felt, the more watery she became, making it easier to move back and forth.</p>
-<p>Of course, I felt good too. She tightly wrapped around me, and the bumps inside her pussy continuously stimulated my glans. As expected, it was a different feeling from Han Yu-gyeong. Both were the best pussies, but if I had to compare, Han Yu-gyeong's tightness was better, and Arisu's had bumps in exquisite locations, making it more stimulating.</p>
-<p>"Haa, aah...! Good, Ryuta, so good. Eungh-heut! Thrust deeper."</p>
-<p>As Arisu said, I took long strokes and pushed my Johnson as far inside as possible. I felt the cervix preventing me from going in further. I knocked on the cervix as if knocking on the castle gate.</p>
-<p>"Ah!! Good, good! More!"</p>
-<p>A woman who feels it in her cervix from her first experience. Han Yu-gyeong barely felt the pleasure of her cervix near the end. She had a very sensitive body.</p>
-<p>I slowly felt the sensation of cumming from the continuous piston movements. Arisu must have felt my Johnson swelling, as she wrapped her long legs around my waist.</p>
-<p>"Today is a safe day."</p>
-<p>Arisu whispered in my ear. This seductive bitch is dead. I started piston movements for ejaculation more roughly.</p>
-<p>"Aahng! Ahahng! Eungh-heut! Aahng!"</p>
-<p>Naturally, Arisu's moans also changed from "aheung..." to a broken feeling like "ahng! ahng!"</p>
-<p>"I'm going to cum too!!"</p>
-<p>"Where should I cum?"</p>
-<p>"Inside, cum inside! Ah-heu-eung!"</p>
-<p>I pressed my waist as close as possible to Arisu's pussy and began to ejaculate.</p>
-<p>Byureut byureut! As my hot semen hit Arisu's uterus, Arisu also reached her peak. Her pussy spasmed wildly, squeezing the semen inside my urethra.</p>
-<p>"Aahng! Aahk! I'm cumming! Heu-heung...!"</p>
-<p>Having gone, Arisu stroked her lower abdomen with a languid, pleasant expression.</p>
-<p>"Aah! Aheung...! It's warm.... Feels gooood...."</p>
-<p>When I pulled my Johnson out, milky semen and red virgin blood mixed in the middle flowed out of her pussy hole. Hmm.... It's the epitome of strawberry cream pie, to the point where I want to take a picture. I pulled out a few tissues and wiped away the flowing semen and virgin blood. Arisu twitched as if feeling pleasure from that as well.</p>
-<p>As I lay there, giving her a pillow arm, Arisu's hand reached for my Johnson. When I looked at Arisu, she smiled with a "hee-hit."</p>
-<p>"Don't even think about sleeping tonight."</p>
-<p>"Isn't that what a man says?"</p>
-<p>"Hehe... It got hard."</p>
-<p>She's definitely a virgin, but how did she maintain her virginity until now with this much sexual desire? Arisu, aiming my Johnson, which had grown again, climbed on top of me.</p>
-<p>"Since it's a memorable first experience day, go wild."</p>
-<p>Soon, I would regret these words. Because Arisu made me ejaculate a whopping six times after hearing those words.</p>
+<p>Shinoe Misano-ssi must have contacted Taira Yukiko. I matched the story before returning home in the morning, saying that I stopped Kurakake Kuma's plot, took Shinoe Misano-ssi home, and slept on the sofa in Shinoe Misano-ssi's living room because Shinoe Misano-ssi was scared.</p>
+<p>When I went outside the door, Taira Yukiko was sitting on the sofa in the small living room on the second floor (it was called a small living room because it was smaller than the living room on the first floor, but it was twice the size of a normal house's living room). I also sat on the sofa. Did I sit too close? I could feel Taira Yukiko flinching slightly because of me.</p>
+<p>"You stopped a big thing yesterday."</p>
+<p>"No. I just stopped it because it happened in front of me."</p>
+<p>"Still, a big thing is a big thing. But why didn't you contact me immediately after the incident happened?"</p>
+<p>Hmm, she might be curious about that. She must have asked because I am the quantum that is directly connected to Taira Yukiko.</p>
+<p>"First of all, I didn't think well about stopping the incident. Also, I thought it was Shinoe Team Leader's job to call the police, so I didn't. Lastly, I had a drinking party, so it was a bit late, so I thought it would be rude to contact you...."</p>
+<p>"I don't sleep until after 1 a.m., so don't worry and contact me if anything happens in the future, okay?"</p>
+<p>I nodded at Taira Yukiko's words. I was curious about Kurakake Kuma's disposition, so I asked Taira Yukiko.</p>
+<p>"What did Shinoe Team Leader say she wanted to do?"</p>
+<p>"She said she wanted to do the company's own disciplinary action. She must be burdened to report to the police because she has a husband."</p>
+<p>Ah, come to think of it, Shinoe Misano-ssi said that company disciplinary action was very scary, so I should ask about that too.</p>
+<p>"Yesterday, Shinoe Team Leader said that company disciplinary action is scarier than the police, is that true?"</p>
+<p>Taira Yukiko smiled slightly at my question. It was the smile of a mother looking at a reckless son asking questions out of curiosity. Is it because I resemble the dead Taira Saburo? I could often feel motherhood and affection in Taira Yukiko's eyes.</p>
+<p>"You should see it as half right and half wrong. Usually, disciplinary action is no different from a normal company. From writing a letter of apology to suspension. But if a big thing happens like this time that the police can get involved in, the Chairman-nim's direct disciplinary team takes them away. In fact, both the victim and the person being disciplined can choose. Whether to go to the police or receive disciplinary action. But no one has seen the person who chose to receive disciplinary action since then. So it's more terrifying. Should I call it the fear of the unknown?"</p>
+<p>It's like an urban legend. Disciplinary action that makes people disappear. It's a bit creepy.</p>
+<p>"Maybe the disciplinary team is meeting Kurakake Kuma right now?"</p>
+<p>"That's fast."</p>
+<p>"I don't know the details either. Ah! And the car I said I would buy you as an entrance gift."</p>
+<p>Ah, that's right. Taira Yukiko said she would buy me a car. I thought she forgot because she didn't say anything for a week.</p>
+<p>"They said it will be delivered here around Tuesday."</p>
+<p>"Already?"</p>
+<p>Does a car come this quickly? When I bought a car before possession, it took several months to ship.</p>
+<p>"Of course, I skipped the order a bit because it's the car you're going to ride. I made the color black for safety."</p>
+<p>As expected, it was coming out quickly thanks to the privilege of the Chairman's grandson. In fact, I didn't pay much attention to the car even before possession, so it was okay as long as the color wasn't too flashy. A car is just something that rolls. In the 2050s, electric cars are 70 percent, and among the remaining 30 percent, internal combustion engine cars and hydrogen cars competed for the ratio within 20 percent, and the demand for hybrid cars was 10 percent.</p>
+<p>This 10 percent of hybrid cars was slightly different from the hybrid I used to drive before possession. EMP attacks became active during the Third World War, so electric cars often broke down due to EMP attacks. Therefore, a lot of hybrid cars were developed to allow electric cars to operate in emergency when they are attacked by EMP. In other words, current hybrid cars are mainly electric cars, but internal combustion engines are slightly included for emergency operation.</p>
+<p>"Thank you, Mother."</p>
+<p>"One thank you is enough."</p>
+<p>She's cool. Then, should I poke her a little without being cool?</p>
+<p>"Let's go on a date when the car comes, Mother."</p>
+<p>"Da,date?"</p>
+<p>"Yes. We can watch a movie we wanted to see together or eat out."</p>
+<p>She asked me back with a flushed face, but what I was talking about was just a platonic date between mother and son, so she nodded, saying she understood. Of course, no one knew whether that date would end platonically or erotically.</p>
+<p>"Okay. I'll make time."</p>
+<p>"Yes, I'll go in now, Mother."</p>
+<p>"Okay. Go in."</p>
+<p>The phone rang as I was opening the door after the story was over. I went into the room and turned on the phone, and an alarm came from the Shadow Merchant app.</p>
+<p>-Since KURA KUMA can no longer use the Shadow Merchant as a recommender, all points have been transferred to KURA KUMA's recommended 竜太-nim.</p>
+<p>Oh, by the way, Ryuta was my ID. Kurakake Kuma must have been caught by the disciplinary team. I heard that the Shadow Merchant is connected to major companies in each country, and it seems true that Kurakake Kuma's points were transferred to me as soon as he was caught.</p>
+<p>For reference, points are the currency unit used in the Shadow Merchant, a global secret app, and it converts the currency of each country into points when you charge it. When doing auctions, it's confusing to say $100 here! and then ₩122,000 next to it! So they integrated it into points. Should I call it the most successful virtual currency?</p>
+<p>The value of the points was linked to the dollar. In other words, 1 dollar was 1 point. Let's see, how many points did that bastard Kurakake Kuma collect?</p>
+<p>Ryuta-nim's points: 74,306P</p>
+<p>Is he crazy? He's not putting all the money he earns here, he's put in almost 10 million yen? Well, Taira Group is a large company and pays quite a salary, so if you save little by little for a few years, you could collect that many points.</p>
+<p>I didn't have any points earlier, so I couldn't buy anything even if I wanted to, so I tried not to pay attention to it, but with this many points, there are quite a few things I can buy. I should take a look around the Shadow Merchant.</p>

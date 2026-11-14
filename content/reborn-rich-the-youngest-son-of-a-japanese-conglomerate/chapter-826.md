@@ -5,85 +5,86 @@ weight = 826
 chapter = 826
 +++
 
-<p>"Today?"</p>
-<p>Yamada Kaita, Vice President and Unit Leader of the newly established PMC Kōtetsubutai, looked out the window and asked Osaji Morinojo, the Tactics and Strategy Team Leader.</p>
-<p>"Yes, according to the Story, the visit is after lunch."</p>
-<p>The visitor they spoke of was their superior, whom they had not yet actually seen. A mysterious figure who had founded Kōtetsubutai, they had seen his Face in a video interview, but knew nothing about him except that he was a young, handsome man. According to Osaji Morinojo's Story, that mysterious Boss would arrive soon.</p>
-<p>Yamada Kaita, Osaji Morinojo, and several ganbu were elites from the Self-Defense Forces, officers or busagwan, who had joined Kōtetsubutai after being introduced by Asada Ei and Asada Fukushi.</p>
-<p>At first, they had not intended to get involved in the PMC business, which had become a red ocean among red oceans, springing up like mushrooms in Japan, but after hearing Asada Fukushi, who came to persuade them, they changed their minds.</p>
-<p>-If you join the PMC I introduce, you will never regret it.</p>
-<p>Seeing the expression full of conviction of Asada Fukushi, who was rumored to be more thorough than anyone, Yamada Kaita and other former Self-Defense Force members joined this suspicious PMC, and as Asada Fukushi had said, the treatment was better than other PMCs.</p>
-<p>Naturally, since it couldn't be called a PMC with only ganbu, they selected newcomers and formed six teams, which could be considered the full complement of a typical newly established PMC.</p>
-<p>"First, I'm curious what kind of person he is."</p>
-<p>In Yamada Kaita's view, Japan was currently like a pot about to boil over.</p>
-<p>Despite being a victor in World War III, all it had gained was the Kuril Islands and Sakhalin, ceded by Russia.</p>
-<p>Of course, Sakhalin had many natural resources, and Japan had benefited from several treaties as a victor, but it was not enough to replenish the funds and supplies consumed in the war, nor the countless Japanese People who had died in World War III.</p>
-<p>So the Japanese government decided to reduce consumption as much as possible. The numerous PMCs created by the Japanese government instead of the army, under the pretext of post-war reconstruction investment, had their military support reduced and either returned to being private enterprises or were disbanded, and the same was true for the Self-Defense Forces.</p>
-<p>Soldiers with excellent Actual combat experience became civilians and poured into society, and PMCs, no longer receiving state Money, were getting involved in post-war World conflicts and earning blood-stained Money.</p>
-<p>For the first Time since World War II, the private sector's military power was growing larger than the government's.</p>
-<p>Several large enterprises like Taira and Minamoto commanded numerous PMCs, and in the provinces, some enterprises or families were gathering private soldiers under the name of PMC, like warlords.</p>
-<p>If things continued this way, a war within Japan could break out, like in the old Sengoku period. He thought that the PMC industry was that dangerous.</p>
-<p>Yamada Kaita also did not want to enter this dangerous industry after leaving the Self-Defense Forces. But to support his family, he had to do what he was good at.</p>
-<p>After failing at various jobs, he received contact from Asada Fukushi and, thinking it was destiny, joined Kōtetsubutai.</p>
-<p>He had been satisfied so far, but for survival, he thought the Boss was more important than himself or the PMC members. Of course, once in the PMC industry, death could come at any Time, but a meaningless death was out of the question.</p>
-<p>So he felt Taut Tension. What kind of person would the Boss he was meeting today be.... He couldn't know if he was the right person to lead them well in Japan before this Confusion.</p>
-<p>Tutu-tu-tu!</p>
-<p>"He's coming."</p>
-<p>Osaji Morinojo opened his Mouth with an excited Expression at the sound of the helicopter from outside the window. Like Yamada Kaita, Osaji Morinojo also seemed curious about what kind of person their superior was.</p>
-<p>I got off the helicopter borrowed from the Konoe Family. Although East Weapon also had helicopters, I had been hiding my Relationship with Yamashiro Ryuta until now, and couldn't reveal the connection here, so I spoke to Konoe Akina and borrowed a helicopter.</p>
-<p>If I borrowed East Weapon's helicopter in Tokyo, the travel route would be incredibly long, and it would consume quite a lot of fuel.</p>
-<p>Today, after being quite harassed while proctoring the exams of St. Francis Girls' academy Students, as soon as I finished, I immediately took the Konoe Family's helicopter, prepared at St. Francis Girls' academy's helipad, and came to the training center in Okutamachi, eastern Tokyo, where Kōtetsubutai was located.</p>
-<p>The place I landed was a recruit training center that Kōtetsubutai had borrowed from another large PMC. Because they had just finished recruiting all the newcomers recently, Kōtetsubutai had not been at this training center for long. I heard today was the ninth day of training.</p>
-<p>Newcomers, as PMC members, had to be immediately deployed to Actual combat, so they had to undergo a training process of at least one month, or up to three months.</p>
-<p>"Boss-nim."</p>
-<p>As I got off the helicopter, a man in a digital camouflage field jacket and another man who appeared to be his adjutant approached me.</p>
-<p>I had seen both men once during the video interview. They were Yamada Kaita, whom I had chosen as Kōtetsubutai's Vice President, and Osaji Morinojo, whom I had chosen as a ganbu.</p>
-<p>Both of them had short hair and a sturdy build, looking like men who would say, 'I'm a Soldier~!'</p>
-<p>Osaji Morinojo, who was in charge of tactics ganbu, wore glasses and looked more intellectual, but Vice President Yamada Kaita's gaze was deeply sunken, exuding the Atmosphere of a seasoned veteran.</p>
-<p>"This is the first Time we've met in person, isn't it? I'm Yamashiro Ryuta, the Boss."</p>
-<p>"It's a pleasure to meet you, Boss-nim. I'm Yamada Kaita."</p>
-<p>"I'm Osaji Morinojo."</p>
-<p>I shook Hands with Yamada Kaita and Osaji Morinojo and headed to the training center office. Entering the office, I briefly listened to an Explanation about Kōtetsubutai. Actually, since it was a PMC just starting out, there wasn't much to hear in terms of Explanation.</p>
-<p>"When you procured the TG Tech Guns for us, we were very surprised."</p>
-<p>"Well.... I have a bit of a connection with them. Since we can receive supplies stably, please get used to TG Tech products."</p>
-<p>From the beginning, I had intended Kōtetsubutai to be a unit that used TG Tech's energy Guns and TG Tech's products. I operate a military industry company, and I can't stand to see my own PMC using another company's weapons.</p>
-<p>"TG Tech weapons are good, but their lethality is excessively strong.... They seem inappropriate for other missions."</p>
-<p>Osaji Morinojo said cautiously. He was right. Indeed, PMCs were not only deployed for military missions where they killed each other, but also received a considerable number of security-like missions, such as security/guard or responding to burglaries, so using TG Tech's highly lethal weapons was a bit problematic.</p>
-<p>All the products currently available were for military or hunt use, so their lethality was excellent, and since their power could not be freely adjusted, there was definitely a Problem using them for non-military missions. But I had a plan for that too.</p>
-<p>"It's fine. Before the newcomers' training is over, suppression pistols will be released. I'll supply those first."</p>
-<p>The development of a pistol that could change the power of energy projectiles to the level of a taser or a regular pistol had already been completed for sale to police stations worldwide.</p>
-<p>It was about to be released, so if some of the supplies were provided to Kōtetsubutai, they would be able to receive them before the training of the current recruits was over.</p>
-<p>"I see. That eases my worry."</p>
-<p>At my Answer, both nodded their Heads. They seemed to have been worried that I would only assign military missions.</p>
-<p>As we talked about various other supplies and business matters, it became noisy outside. Looking out the window, newcomers who had finished training were returning, covered in Dust. Once they all washed up and came out, I thought we could take out the special grade Wagyu I had loaded onto the helicopter and eat it together.</p>
-<p>"I've brought some things. Let's eat something delicious with the newcomers."</p>
-<p>"Before that, I have something to ask Boss-nim."</p>
-<p>As I smiled and suggested eating something delicious, then got up from my Seat, Yamada Kaita opened his Mouth with a much more serious Expression than before. What was he trying to say?</p>
-<p>"Seeing you provide us with such support, Boss-nim, you seem to have a lot of Money. And if you can get a PMC certification, you must be smart. If so, you could live comfortably with your Money and brains, so why are you entering this dangerous industry, Boss-nim?"</p>
-<p>It was a sudden Question. Indeed, the PMC industry was dangerous, and it was a red ocean with few profitable places currently.</p>
-<p>"Although we haven't known each other for long, eventually, working for this company, we will have to risk our lives, so please answer honestly."</p>
-<p>When I didn't Answer, thinking for a moment, Yamada Kaita opened his Mouth again. Certainly, it wouldn't be for me, but they were indeed people who would risk their lives for the missions I assigned. PMC Work was either dying or surviving and receiving a Reward, one of the two, so in the end, it was risking one's life.</p>
-<p>"That's right. If you put it that way, I suppose I should Answer out of Etiquette. It won't be immediate, but eventually, Kōtetsubutai's Work will be more dangerous than Yamada-ssi imagines. However, if you hear this Reason, you must continue to follow me. Otherwise, I'll give you the opportunity to leave without hearing the Story now."</p>
-<p>I paused my Words for a moment and looked at the two sitting there. They looked at each other, then nodded their Heads and looked at me.</p>
-<p>"We'll listen."</p>
-<p>"I hope you don't regret it. My name isn't Yamashiro Ryuta, it's Taira Ryuta."</p>
-<p>"...!"</p>
-<p>Hearing my name, Yamada Kaita's and Osaji Morinojo's Eyes widened immensely. Just by revealing the name, the two understood the Situation.</p>
-<p>There was only one Situation for a young man with the Taira surname to become the Boss of a PMC. It was to step into the upcoming Taira Successor Jeonjaeng. That war would clearly be more difficult than any PMC mission.</p>
-<p>But if this side were to win, the Fruit would certainly not be small. Yamada Kaita's and Osaji Morinojo's Heads, hearing my name, would be spinning rapidly right now.</p>
-<p>Wondering if it was an advantage or a disadvantage for them. Of course, now that I had revealed my name, I wouldn't allow them to back out.</p>
-<p>"I see, I understand."</p>
-<p>Yamada Kaita nodded his Head with a calm Face. I was rather flustered that he didn't worry too much.</p>
-<p>"I didn't expect you to make a Decision so quickly."</p>
-<p>"Actually, what I've been worried about until now was being swept away by a rich young man's army Play in the current situation of Japan before it explodes. But if Boss-nim is on the Taira side, then we're on a large ship that won't be caught in the great torrent of Confusion. Anyway, if you do PMC business, you're bound to die if you're unlucky. Please take good care of us, Boss-nim."</p>
-<p>Yamada Kaita saluted me, saying to take good care of them. Yamada Kaita seemed to have been worried about being meaninglessly swept away in the upcoming Confusion. Osaji Morinojo also, after hearing Yamada Kaita's Story, saluted me.</p>
-<p>It seemed neither of them would leave. I subtly withdrew the Genesis Chaos gathered at my Fingertips and accepted their salute.</p>
-<p>"Welcome. Both of you."</p>
-<p>seungj050-nim requested Kanna Spanking</p>
-<p>Yandere Mode~!</p>
-<p>MidNightSKY-nim requested Otagi Yuka's Storm of Blood~!</p>
-<p>No matter what I do, it doesn't feel like Blood Mage's Blood Stream hehe</p>
-<p>Gojoy-nim requested Konoe Akina's usual attire and underwear attire~!</p>
-<p>Her usual attire is, of course, her School Uniform ㅎㅎ</p>
-<p>Underwear~!</p>
-<p>Kkiyoot~!</p>
+<p>-Bbibibibi! Bbibibibi!</p>
+<p>The next morning, Kasaoka Koki woke up before Matsunaga Yuzuki left for Going to Work.</p>
+<p>It was an early Morning for Kasaoka Koki, who no longer had a St. Francis Girls' Academy schedule, but he set his alarm and woke up early to see his ex-Wife's Going to Work attire.</p>
+<p>Kasaoka Koki thought that since she clearly had a date, she would be wearing different attire.</p>
+<p>"...."</p>
+<p>Even as Kasaoka Koki came out of the Anbang, Matsunaga Yuzuki, without any greeting, went to the front door and put on her Shoes.</p>
+<p>A neat Teacher's Suit. It was the same attire as usual. 'Did I think wrong?' Kasaoka Koki wondered, but what he had heard by pressing his ear to his ex-Wife's door yesterday was definitely not an Auditory Hallucination.</p>
+<p>Kkii-iik, Kung.</p>
+<p>The door opened, Matsunaga Yuzuki left, and it closed. Kasaoka Koki felt a momentary pang of sadness for his ex-Wife who had left for Going to Work without a greeting, but since he had nothing to say to his already divorced ex-Wife, he simply stared at the closed door.</p>
+<p>'This is no time for that.' Kasaoka Koki rose from his Seat. He, too, began his preparation to secretly follow his ex-Wife on her date.</p>
+<p>First, to avoid looking suspicious, he shaved, which he hadn't done in a while, took a Shower, and changed into the most Ordinary Style of Clothes he owned. Then he prepared a hat.</p>
+<p>He would put on the hat before leaving later, and it was Time to check something else. It was the GPS and eavesdropping Device that Kasaoka Koki had secretly placed in Matsunaga Yuzuki's Bag.</p>
+<p>Kasaoka Koki had bought the item in the past, thinking it might be useful someday while dating various Young Ladies from prestigious families, but he never imagined he would use it for something like this.</p>
+<p>-Jeobeok jeobeok.</p>
+<p>He turned on the App on his phone to check, and Matsunaga Yuzuki's Footsteps and the sound of the street were clearly audible, and the GPS was working well.</p>
+<p>"Now I can prepare slowly."</p>
+<p>Matsunaga Yuzuki had about four hours left until she left for Going to Work, so he had Leisure. Kasaoka Koki turned on the TV, watched a Movie on Ratflix, had a late Morning/early lunch, put on his hat, and went Outside.</p>
+<p>His plan was to go to St. Francis Girls' Academy beforehand and tail her from there. Conveniently, his usual French Classroom was in a place where the way home from work was clearly visible from the window, so he would be able to see how Matsunaga Yuzuki left for Going to Work.</p>
+<p>"Ah, Kasaoka-sensei.... What brings you...?"</p>
+<p>When Kasaoka Koki arrived at St. Francis Girls' Academy, the Security Guard at the Entrance asked with a puzzled Expression. A rumor had already spread that Kasaoka Koki would be retiring after this academic year, so the guard asked with an Expression that wondered why someone with no classes was here.</p>
+<p>"I left some data in the Classroom."</p>
+<p>"Is that so? Please come in."</p>
+<p>In fact, since he was still a Teacher at St. Francis Girls' Academy, he could enter without any particular hindrance.</p>
+<p>Kasaoka Koki diligently moved his Feet and headed to the French Classroom, the only place where his Seat remained. Then, he placed a Chair by the window and turned on the App to check Matsunaga Yuzuki's GPS Position.</p>
+<p>Matsunaga Yuzuki was still at school. It was natural since it wasn't yet Time to leave for Going to Work. But since he had arrived on Time, the Bell would ring.</p>
+<p>Ding-dong-daeng-dong~♪</p>
+<p>The bell sound announcing the end of today's schedule rang, and Students came Outside. Not all Students came out. Since they were Students who had finished their Test and were awaiting Graduation or Promotion, there were no classes, only Club activities.</p>
+<p>Many Students stayed late because they had to prepare for recruiting club members for the next semester. Kasaoka Koki, as an advisor for the French Culture Club, knew this well.</p>
+<p>Of course, after choosing the wrong side in the Daigo Successor War, another Teacher took over as advisor.</p>
+<p>Kasaoka Koki, lost in thought, wishing he could still be surrounded by Female Students as an advisor for the French Culture Club and enjoy his academy life if he had just chosen the right side, was roused by his phone.</p>
+<p>He had set his phone to send a signal when Matsunaga Yuzuki moved, and it had just rung.</p>
+<p>The GPS Device hidden in Matsunaga Yuzuki's Handbag was moving. She was moving to go on a date. Matsunaga Yuzuki's Appearance was visible Outside the window. Since there were few people not wearing School Uniforms, she immediately caught his eye.</p>
+<p>"Oh...?! Why?"</p>
+<p>Matsunaga Yuzuki's attire when she left for Going to Work was clearly an unremarkable Teacher's Suit, but now she was wearing a tracksuit. Kasaoka Koki, her ex-Husband, knew that attire well. It was the tracksuit Matsunaga Yuzuki wore when she was on duty.</p>
+<p>He had given it to her as a gift so she could be comfortable while on duty. They had been on good terms back then....</p>
+<p>'Did she spill something on her Clothes...?'</p>
+<p>She couldn't go on a date in a Suit, but she also couldn't go on a date in that tracksuit. Still, before Matsunaga Yuzuki moved too far, Kasaoka Koki rose from his Seat and headed Outside the building.</p>
+<p>He quickly descended the stairs, greeting Students who recognized him, and as he left the building, he saw Matsunaga Yuzuki in a shabby tracksuit in the distance.</p>
+<p>'This distance should be appropriate.'</p>
+<p>Kasaoka Koki maintained a distance that was quite far but still within his Field of Vision, following Kasaoka Yuzuki.</p>
+<p>"Huh?! That's not the way Home?"</p>
+<p>Kasaoka Koki, who was slowly following Matsunaga Yuzuki, tilted his Head. He had thought that since she couldn't go on a date in a tracksuit, she would stop by Home to change Clothes, but she was going in a different direction than Home.</p>
+<p>"Where is she going...? Oh, the park?"</p>
+<p>Matsunaga Yuzuki turned off the Road and headed towards the park. Kasaoka Koki, wondering 'Why the park?', also entered the park.</p>
+<p>Suddenly, Matsunaga Yuzuki looked around, confirmed that no one was nearby, and entered the Restroom.</p>
+<p>It was strange. If she wasn't feeling well, she could have used the academy Restroom, but to use a park Restroom that was some distance away....</p>
+<p>While Kasaoka Koki was filled with question, Matsunaga Yuzuki came Outside. Matsunaga Yuzuki, who came Outside, was in different attire.</p>
+<p>"...."</p>
+<p>Matsunaga Yuzuki was no longer in the tracksuit she had been wearing; she was now wearing a blazer Dress that reached mid-thigh. And as if waiting for someone, she stood with her Behind the Back to Kasaoka Koki, looking around.</p>
+<p>Then, as if she had spotted someone, she waved her hand and happily called out. It must be her date partner.</p>
+<p>"Yamashiro-sensei!"</p>
+<p>Yamashiro? Ryuta-ssi?! Kasaoka Koki couldn't understand. Hadn't they fought at the beginning of the second semester because he was poaching Students from her class? He remembered Matsunaga Yuzuki being quite sharp in that fight because she was very sensitive about her Debt Problem....</p>
+<p>So, when Matsunaga Yuzuki said "Teacher" on the phone yesterday, Kasaoka Koki had never imagined that the protagonist would be Yamashiro Ryuta.</p>
+<p>Soon, Yamashiro Ryuta, a well-built, blond, Tanning Thug, appeared. Yamashiro Ryuta also smiled and waved his hand as he approached Matsunaga Yuzuki, and Kasaoka Koki hated that sight.</p>
+<p>"I didn't think I'd see you here..."</p>
+<p>Because he was far away, Yamashiro Ryuta's Voice was not clearly audible. Kasaoka Koki put his Earphones in his ear and activated the eavesdropping function.</p>
+<p>Strangely, the appointment place with Matsunaga Yuzuki was in front of the park Restroom. We decided to meet to talk about Alik's re-test and also to have a date with Matsunaga Yuzuki, which we hadn't done in a while.</p>
+<p>In fact, Matsunaga Yuzuki and I had often met at school and had a Relationship, but we had almost never been on a date.</p>
+<p>Recently, she had been a Married woman, so we couldn't openly go around together, and after Matsunaga Yuzuki's divorce, there was vacation, and after vacation, the resort mountain lodge Incident, and then the test period, so we didn't have Time to meet each other.</p>
+<p>Today would probably be my first date with Matsunaga Yuzuki. After all, when we met, we mostly just had sex instead of dates.</p>
+<p>I parked my car in the park Parking Lot and entered the park. Looking at the park map in front of the Parking Lot, the Restroom wasn't far. It was lunchtime, so there were quite a few people, but the Restroom Matsunaga Yuzuki mentioned was quite in a Corner.</p>
+<p>As I walked, I saw Matsunaga Yuzuki in the distance. Matsunaga Yuzuki also seemed to have spotted me, calling out, "Yamashiro-sensei~!" and waving her hand to greet me.</p>
+<p>I also waved my hand and approached Matsunaga Yuzuki. Today, for our date, her attire was different from her usual Suit; it was a coat-like Dress that reached mid-thigh. Moreover, she boldly revealed her Cleavage, making her Appearance incredibly Erotic.</p>
+<p>"I didn't think I'd see you here."</p>
+<p>"This place is good for changing Clothes."</p>
+<p>She seemed to have changed Clothes in the Restroom. But she was only carrying a Handbag, so where were the Clothes she changed out of?</p>
+<p>"What about the Clothes you changed out of?"</p>
+<p>"Oh, I threw them in the Trash Can. My ex-Husband bought them for me to be comfortable while on duty, but they're old and useless now."</p>
+<p>The Clothes she had been wearing until just now must have been given to her by her ex-Husband, Kasaoka Koki. Now that they were divorced, there was no need to keep them, so she seemed to have changed Clothes and thrown them in the Restroom Trash Can.</p>
+<p>"...."</p>
+<p>Suddenly, Matsunaga Yuzuki began to look around. It was as if she was checking if anyone was around. Just as I was about to ask what was wrong, Matsunaga Yuzuki, having looked around, saw me and lifted her skirt.</p>
+<p>Naturally, there were panties under her skirt, and perhaps because it was a date, a rather Erotic black pair of panties was visible down there.</p>
+<p>"It took me quite a while to choose. Do you like them...?"</p>
+<p>Matsunaga Yuzuki asked me with a sensual Smile. Of course, no man would dislike them. I smiled and nodded my Head.</p>
+<p>Yuzuki Date Attire B-cut~!</p>
+<p>Requested by I세이브I-nim: Jinmija Yeosa and Alik in dinosaur pajamas~!</p>
+<p>Starting with Jinmija Yeosa~!!</p>
+<p>Alik~!</p>
+<p>Alik Kawaii~!</p>
+<p>Requested by Gojoy-nim: Hangari Muneo and Matsunaga Yuzuki with their hair down in date attire~!</p>
+<p>Starting with Hangari Muneo~!</p>
+<p>Matsunaga Yuzuki~!</p>
+<p>Kkiyot~!!</p>

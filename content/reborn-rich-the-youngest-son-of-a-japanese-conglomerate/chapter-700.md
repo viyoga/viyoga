@@ -5,88 +5,82 @@ weight = 700
 chapter = 700
 +++
 
-<p>The atmosphere on the last day of school before vacation was somehow different. Actually, compared to other schools, St. Francis Girls' Academy didn't have a particularly competitive or studious atmosphere, and there weren't a lot of events to just hang out and play, so I thought there wouldn't be much anticipation for the vacation ceremony, but that wasn't the case.</p>
-<p>Since there was no morning duty, I went to work a little late, and the expressions of the students I met on their way to school were all incredibly good. I thought that even at a laid-back school like this, the students must be welcoming the vacation.</p>
-<p>,Korean teacher~! Good morning!</p>
-<p>,Yamashiro seonsaengnim, good morning~!</p>
-<p>,Yeah, good morning.</p>
-<p>I greeted the students who recognized me and headed to the special class building. Before entering the education preparation room, I glanced around the classroom and saw that about half of the students had arrived.</p>
-<p>When I entered the education preparation room, today's schedule was printed out on the fax machine. The schedule was nothing special, just watching the vacation ceremony on video and then going home. Since the teachers also had vacation from tomorrow, they could go home right away if they didn't have anything to do.</p>
-<p>,Today is pretty chill.</p>
-<p>While all the students were arriving at school, I made about two exam questions. If I made about three more questions, and did a few paperwork tasks that I had to do as a teacher for the third semester, there wouldn't be much work left as a teacher.</p>
-<p>When it was about time, I went to the classroom and all the students were there.</p>
-<p>,Good morning.</p>
-<p>,Hello, seonsaengnim~!</p>
-<p>,Ryuta-tachi, good morning~!!</p>
-<p>Maybe because it was the vacation ceremony, all the special class students were excited. There was still some time before the vacation ceremony started, so I was planning to spend the time chatting.</p>
-<p>,What are you all going to do during the vacation?</p>
-<p>,Alik and I are going on ascetic training with Shimokawabe seonsaengnim....</p>
-<p>Naruse Shiyo sighed deeply and answered my question. I thought she looked unhappy compared to the other students, and it seemed like it was because she had tough ascetic training ahead of her.</p>
-<p>Of course, Alik, who was going on the ascetic training with her, was just sitting there with the same expressionless face as usual. No, as an Alik expression expert, if I look at his face being slightly flushed, it seems like he's looking forward to the ascetic training.</p>
-<p>,I'm going to play in the big waters of Tokyo during the vacation!</p>
-<p>It seemed like Seizawa Shii was going to Tokyo to do fixer work rather than staying with Miyashi, who didn't have many requests that met her standards.</p>
-<p>,I have a shoot in Korea during the vacation!</p>
-<p>It seemed like Uenozono Karen was planning to do a lot of entertainment activities that she couldn't do while attending school.</p>
-<p>,I have to prepare for college.</p>
-<p>It seemed like Minamoto Risa was preparing to go to a prestigious university. Her grades are good, so if she borrows the power of the Minamoto Group on top of that, she should be able to go to Edo University, the best university in Japan.</p>
-<p>Besides that, Oofuchi Erika and Shido Tsubaki said they were going to Tokyo to find a new SearchEye office to work at while attending university after graduation, Konoe Akina said she was going to do housework that she hadn't been able to pay attention to as the head of the Konoe family, and Kujo Kina said she was going to receive full-fledged training from Yoda-jii.</p>
-<p>The rest were students who decided to be with me, so I was planning to give them a taste of what kind of work they would do after graduation by assigning them various missions.</p>
-<p>,Ah, the vacation ceremony broadcast is starting now.</p>
-<p>When it was time for the vacation ceremony, I turned on the screen and student council Chairman Taira Kanna was on the screen. Seeing that, Minamoto Risa clicked her tongue with a ,tch, but Seizawa Shii said,Kanna-chan?, and seemed to welcome her a little.</p>
-<p>-To all the students of St. Francis Girls' Academy. The second semester, which started not long ago, has ended. After the even shorter third semester, everyone will move up a grade. Of course, the third-year high school students will become adults after graduation...</p>
-<p>For some reason, when the word adult came out, I felt something eerie. I must have been mistaken, right?</p>
-<p>After Taira Kanna's vacation speech ended, the next turn, Academy Director Daigo Terue's speech, began, and Daigo Terue gave a speech that wasn't very long as usual and ended the vacation ceremony. As expected, she's the best Academy Director if you only look at the short speeches.</p>
-<p>,Okay, the vacation ceremony is over, so go home now.</p>
-<p>,Eii~! We can't see you for two weeks, don't be so cold, Ryuta-tachi?</p>
-<p>Seizawa Shii said, sounding disappointed, because I told them to go without any special greetings.</p>
-<p>,Then?</p>
-<p>,It's almost lunchtime, so shall we all have lunch together? What do you all think?</p>
-<p>,I'm having lunch with my parents today....</p>
-<p>,I also have something today....</p>
-<p>,I have to go to Korea right away because of the shoot.</p>
-<p>Some people decline Seizawa Shii's lunch offer. Almost all the students at St. Francis Girls' Academy were separated from their parents during the semester.</p>
-<p>So, on days with events like the vacation ceremony, most of them had appointments with family members they hadn't seen in a while, so I was trying to send them home early on purpose, but it seemed like the free-spirited Seizawa Shii hadn't thought of that.</p>
-<p>,But there are still some kids who have time, so let's eat with them.</p>
-<p>,I guess so. My dad said he's busy with the National Assembly schedule and told me to eat next time.</p>
-<p>Seizawa Shii's dad is a member of the National Assembly, so is there something he's busy with now...? I was about to think about what was going on, but the students who had appointments were just looking at me, so I chuckled.</p>
-<p>,Okay, everyone worked hard in the second semester, and let's see each other in two weeks~! Only those who don't have appointments and want to have lunch with me stay, and everyone else go home.</p>
-<p>,I wanted to go too, but it's a shame, seonsaengnim.</p>
-<p>Konoe Akina looked at me with a very disappointed expression, hugged me tightly, and then went out of the classroom. And like Konoe Akina did, as if it was allowed, all the special class troublemakers hugged me one by one and went out.</p>
-<p>,I have to go back to my main family today. I have a meal with my father....</p>
-<p>,Okay. Talk it over well.</p>
-<p>Minamoto Risa had a very nervous expression because she was going back to her main family to declare that she would not get married until she graduated from college.</p>
-<p>,Yeah. I'll contact you. Shii, I'm sorry I can't have lunch with you today.</p>
-<p>,No! Tell Ushin-ojjeossi! I won't let it go if you bully our Risa-tan.</p>
-<p>,Hehe, I understand.</p>
-<p>Minamoto Risa waved her hand at me and Seizawa Shii and then went out of the classroom. The remaining students were Seizawa Shii and the six who decided to follow me.</p>
-<p>Otagi Yuka and Saionji Diana had bad relationships with their families, so there was no reason to go see them, Alik and Naruse Shiyo were usually with their families, and they said the ascetic training was tomorrow, so they had time today. Urabe Konoka and Sakagami Rena said they were going to see their families in the evening, so they could have lunch together as well.</p>
-<p>,Okay then.... There's still some time before lunch, so shall we play in the club room for a while before we go?</p>
-<p>,Good! There are a lot of fun things in the club room, so we can play~!</p>
-<p>,Let's go up quickly!</p>
-<p>At the students' urging, I walked down the hallway and up the stairs. When I looked at the window on the side where the stairs turned, I saw Minamoto Risa carrying her bag and going somewhere. That's not the main gate side? Where is she going?</p>
-<p>,Risa-tan is going to her main family by helicopter.</p>
-<p>,Ah, there was a helipad.</p>
-<p>It seemed like she was going to take a helicopter because it would take a lot of time to go to her main family by car.</p>
-<p>,If she goes by car, she definitely won't be able to make it in time for lunch.</p>
-<p>,It's tiring that the main family is far away. Our house is also far away, so it's very tiring every time I go.</p>
-<p>,That's a difficulty that most St. Francis Girls' Academy students experience.</p>
-<p>Seizawa Shii agreed with my muttering, and Otagi also nodded in agreement.</p>
+<p>It was past lunchtime when Lara Sinclair's group arrived in China. The airport they landed at was Datong Yungang International Airport in Datong City, Shanxi Province.</p>
+<p>Datong City wasn't a very large city by Chinese standards, so the facilities weren't great, but Lara Sinclair and her group didn't really care. They weren't there for fun anyway.</p>
+<p>Their goal was to investigate the research facility of the now-bankrupt military company Jeonlang and retrieve data, so there was no need to think about the airport facilities.</p>
+<p>"Ah~! Over here! Over here!"</p>
+<p>The Chinese guide, who spotted Lara Sinclair's group, waved his hand wildly. Seeing the guide speaking fluent Korean, Lara Sinclair's group approached him.</p>
+<p>"You're the ones who purchased the package from Geumseong Travel Agency, right?"</p>
+<p>Lara Sinclair nodded at the guide's words. In fact, there was no such place as Geumseong Travel Agency that the guide mentioned. The guide was also a pathfinder belonging to Amsang, so he was just speaking in a pre-arranged code.</p>
+<p>"I've prepared the vehicle and accommodation, so let's leave right away."</p>
+<p>Following the guide's instructions, they went outside, where a multi-seater SUV was parked. It was an old-looking vehicle, and judging by the gas exhaust, it seemed to be a gasoline car, which is rare these days.</p>
+<p>"Haha. It's an old car, but it's well-maintained, so there won't be any discomfort."</p>
+<p>The guide said with a sly smile, seeing the bodyguards looking at it with curiosity. As Lara Sinclair's group got into the vehicle, the guide's expression, which had been sly until now, turned serious.</p>
+<p>Hello. I'm Jang Wei (張偉), a pathfinder from Amsang. Firearms and equipment are stored under the seats.</p>
+<p>"Please call me Alice."</p>
+<p>Lara Sinclair didn't want her real name to be revealed, even if the other party belonged to Amsang, so she gave a different name.</p>
+<p>If things went wrong and pathfinder Jang Wei was caught by the Public Security Bureau or other forces, he might reveal Lara Sinclair's or someone else's name, so they had agreed in advance to use aliases.</p>
+<p>"First, please explain about the Jeonlang Equipment Research Institute."</p>
+<p>Jeonlang's headquarters were in Beijing, the capital of North China, but it had already gone bankrupt eight years ago, so Jeonlang's building had changed owners several times and was now being used by a food company.</p>
+<p>That's why Lara Sinclair decided to find Jeonlang's Equipment Research Institute. She received information that research institutes that develop combat equipment like this are built in remote locations away from the city due to noise and security issues, so they haven't found an owner and are now in ruins.</p>
+<p>"The research institute itself was built secretly by a company that went bankrupt eight years ago, so it was difficult to find information, but it was built in the wilderness east of Datong City. It will take about an hour and a half by car to get there."</p>
+<p>Since China is so vast, Datong City was about the size of a Korean province, so even within the same Datong City, it took quite a while to travel. Moreover, if it was in a remote location like the Jeonlang Equipment Research Institute, you had to drive for a long time.</p>
+<p>"Are there any facilities or groups nearby that we should be particularly aware of?"</p>
+<p>"I don't know about that. In fact, except for the ruins of the Jeonlang Equipment Research Institute, it's just wilderness and canyons. There probably won't be anything."</p>
+<p>Lara Sinclair was asking the pathfinder questions and obtaining information about the ruins of the Jeonlang Equipment Research Institute.</p>
+<p>"The site of the research institute is quite large, so it won't be easy to find what you're looking for."</p>
+<p>These weapons research institutes had prototype production facilities, combat equipment testing facilities, research labs, and accommodations for researchers and staff, so they needed a large site.</p>
+<p>"Will there be any problems with the Public Security Bureau?"</p>
+<p>"The Jeonlang Equipment Research Institute is literally in ruins. It's far from the city, so there's no place for homeless people or beggars, and since there are no people, there's nothing for the Public Security Bureau to crack down on. According to what I've found out from the Public Security Bureau, they patrol about twice a year, but most of those patrols are just for show. It takes five hours, including three hours round trip and one or two hours of patrol time, so they just hide somewhere and rest during that time."</p>
+<p>As they asked and answered questions, they drove along, and before they knew it, the ruins of the Jeonlang Equipment Research Institute began to appear in the distance.</p>
+<p>As pathfinder Jang Wei said, it was a ruin that had been battered by the sandstorms of the wilderness.</p>
+<p>'But....'</p>
+<p>It looked like ruins on the outside, but as Lara Sinclair got closer, she saw something completely different. Tire tracks and a completely dust-free doorknob on the main gate of the research institute.... All of these were evidence that there were people there.</p>
+<p>"Be careful. There are people inside the research institute."</p>
+<p>"Huh? That can't be...."</p>
+<p>Jang Wei muttered in surprise at Lara Sinclair's words, but the Vanguard bodyguards quickly took out firearms from under the seats, loaded them, and put on bulletproof vests and helmets in response to Lara Sinclair's words.</p>
+<p>"There are recent tire tracks on the road and no dust on the doorknob of the main gate. There are a few other pieces of evidence, but this should be enough."</p>
+<p>"I don't know who's inside the research institute, but if necessary, we'll subdue them, and if they're hostile, we'll kill them."</p>
+<p>"Yes, do that. The people inside the research institute probably know we're approaching. We're the only ones on the road connected to the research institute."</p>
+<p>Lara Sinclair nodded at the bodyguard team leader's words, as if telling him to be careful.</p>
+<p>"They probably won't attack right away."</p>
+<p>"May I ask why?"</p>
+<p>Jang Wei asked in confusion at the bodyguard team leader's words. He thought that usually, if someone was trying to approach, they would attack in advance, but the bodyguard team leader seemed to think differently.</p>
+<p>"Judging by the fact that it's secretly located in such a remote place, it's one of two things. It's either become a secret government facility or a den of criminals."</p>
+<p>"But why aren't they attacking us now?"</p>
+<p>"If they attack now, we can escape. They'd rather lure us inside and catch everyone."</p>
+<p>"Th, then shouldn't we go inside the research institute?"</p>
+<p>Jang Wei looked like he wanted to slam on the brakes at the bodyguard team leader's explanation.</p>
+<p>"Don't worry. You can just drop us off at the entrance of the research institute and go back."</p>
+<p>"B, but the contract was to help with the return trip...?"</p>
+<p>"We've confirmed that there's a vehicle by the tire tracks, so we can just steal that vehicle."</p>
+<p>Lara Sinclair spoke about stealing a vehicle as easily as buying candy at a store. Since it was advantageous to her, Jang Wei nodded and accepted Lara Sinclair's contract change.</p>
+<p>Squeak...!</p>
+<p>The vehicle stopped, and while the bodyguards got out and secured the perimeter, the terrified researchers and Lara Sinclair got out.</p>
+<p>"P, please be safe...!"</p>
+<p>"You be careful too."</p>
+<p>Jang Wei didn't hear Lara Sinclair's greeting. After saying "Please be safe," he immediately turned the car around and left.</p>
+<p>"That guy's going to die."</p>
+<p>"Yes. They can't just let someone who found out about their base go."</p>
+<p>Lara Sinclair replied to the bodyguard team leader's words. There was a high possibility that there were troops hiding in the canyon on the way here, ready to ambush. They definitely wouldn't let Jang Wei's vehicle go.</p>
+<p>Not telling Jang Wei about this fact was a very cold-hearted act, but she couldn't bring Jang Wei, who was clearly mentally shaken, inside with them.</p>
+<p>"Let's go in."</p>
+<p>At Lara Sinclair's words, the bodyguard team leader approached the main gate. He carefully turned the doorknob, and the door opened with a creak.</p>
+<p>With a clunk, the iron door opened, and the appearance of the research institute began to be revealed.</p>
 <p>###</p>
-<p>Minamoto Risa arrived at the helipad inside St. Francis Girls' Academy. There, a helicopter driver and a bodyguard in black suits were standing politely and waiting.</p>
-<p>,Have you arrived, young lady.</p>
-<p>,Please depart immediately.</p>
-<p>Minamoto Risa boarded the helicopter with the help of the bodyguard. Soon, the helicopter's propellers started spinning and it began to rise into the sky. Minamoto Risa was thinking about her homeroom teacher, Yamashiro Ryuta.</p>
-<p>,I wanted to have lunch together too....</p>
-<p>She envied the friends who had time. While Minamoto Risa was envying her friends, the helicopter quickly flew and arrived at the Minamoto main family in Nara Autonomous City.</p>
-<p>,Have you arrived, young lady? I'll carry your bag.</p>
-<p>When she got off the helicopter, a maid of the Minamoto family greeted her. Minamoto Risa naturally handed over her bag and headed to the main family building after passing the helipad.</p>
-<p>It was a tradition for the two Minamoto father and daughter to have lunch or dinner with her father, Minamoto Ushin, on the day of the vacation ceremony every year.</p>
-<p>Unless there were special events, it was not easy for Minamoto Risa, who was at St. Francis Girls' Academy, and Minamoto Ushin, the head of the Minamoto Group, to meet, so it became an unspoken promise between the two father and daughter to meet on the day of the vacation ceremony when Minamoto Risa came to the main family, even if it was on other days.</p>
-<p>,I have to say it.</p>
-<p>Minamoto Risa headed to the dining room where Minamoto Ushin was waiting in a slightly nervous state.</p>
-<p>,Is my father here?</p>
-<p>,Yes, he is waiting for you.</p>
-<p>When she asked the maid who was following her with her bag, the maid bowed her head and answered. It was the maid who slowly opened the door when she stood in front of the door. Minamoto Risa had no choice but to frown at the sight that was revealed when the door opened.</p>
+<p>-Nae's Aunt: The contract negotiations will take place at Ju-yoon-ssi's house, so come to Ju-yoon-ssi's house♥</p>
+<p>It was a message I received from Nae Fitzgerald around the time I was about to leave. As expected, she didn't really care about the contract and seemed to be full of thoughts of tasting my dick.</p>
+<p>Han Yu-gyeong had already left early in the morning for Vanguard business, so I left Han Yu-gyeong's apartment alone.</p>
+<p>And I caught a taxi and headed straight to the apartment where Ha Ju-yoon lived. Han Yu-gyeong said I could use the car, but there was no need to drive.</p>
+<p>If I drove the car for no reason, I might have to explain why I stopped by Ha Ju-yoon's house instead of the agreed negotiation location, so it was better to take a comfortable taxi.</p>
+<p>"We've arrived."</p>
+<p>"Okay, thanks for your trouble."</p>
+<p>I got out of the taxi and naturally went to Ha Ju-yoon's house. I remembered the password because I had been there several times, so it was as natural as if it were my own house.</p>
+<p>"Nuna, Nae's aunt~! I'm here."</p>
+<p>I took off my shoes and announced that I had arrived. Then, from the bedroom, I heard Ha Ju-yoon's voice saying, "Yongtae-ni? Come in~!"</p>
+<p>Isn't Nae Fitzgerald here? I tilted my head slightly and passed through the entrance, heading towards the bedroom where I heard Ha Ju-yoon's voice. The door was closed.</p>
+<p>Clank!</p>
+<p>When I opened the door, Ha Ju-yoon was standing in front of the bed with a smile. And she was wearing the uniform of St. Francis Girls' High School.</p>
+<p>No.... How can a mother and daughter think the same thing? Han Yu-gyeong also told me to wait and showed me the uniform of St. Francis Girls' High School.</p>
 <p>_____</p>
-<p>B-cut of Cheon Ha-rin from the cover!</p>
-<p>Kkiyot!</p>
+<p>Ha Ju-yoon St. Francis Girls' High School Uniform B-cut~!</p>

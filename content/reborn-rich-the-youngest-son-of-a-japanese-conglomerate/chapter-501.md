@@ -5,54 +5,74 @@ weight = 501
 chapter = 501
 +++
 
-<p>Taira Ryuta didn't know because he was in a separate building with the Special Class, but there was considerable commotion when Ishidera Kosuke became the temporary principal of St. Francisco Girls' Academy.</p>
-<p>The Toyotaka faction thought that Daigo Terue's suspension was a golden opportunity for them. St. Francisco Girls' Academy was a more core resource for the Daigo family than anything else. This was because it was a school attended by most of Japan's prestigious daughters, and it created numerous personal networks there, giving the Daigo family enormous tangible and intangible benefits.</p>
-<p>Of course, St. Francisco Women's University in Tokyo was also important, but after graduating from high school, the young ladies either got married right away, studied abroad, or went on to other prestigious universities in Korea other than St. Francisco Women's University, so the daughters of many prestigious families from St. Francisco Girls' Academy were quite scattered, so the most important thing was still St. Francisco Girls' Academy, a middle and high school.</p>
-<p>That's why the Toyotaka faction set up their own plan with Minamoto Shigemune, who approached them in time, and pushed the Ishidera Kosuke card as the temporary principal.</p>
-<p>As soon as Ishidera Kosuke became the temporary principal, he outwardly made a fuss about conducting an audit to dig into the loose management of the past, drawing people's attention, and behind the scenes, he was working to win over the teachers.</p>
-<p>Winning over teachers who don't have any stake in the foundation seems like an inefficient task, but the Daigo Educational Foundation was formed by gathering the shares of various factions of the Daigo family's direct and collateral lines. One of the things that those factions take into account is the public opinion of the teachers.</p>
-<p>If they win over the teachers in this way, they could receive support from the collateral line shares that have shares in the educational foundation but are not very interested. They were a force that was satisfied with just receiving dividends because the academy was doing well, so they took the teachers' opinions into account a lot. After all, they thought that the support of educators was important for the educational foundation to move smoothly.</p>
-<p>In addition, if they calculate the collateral line shares that do business with Minamoto, the shares that the Toyotaka faction originally had, and their friendly shares, the Toyotaka faction thought that they could sufficiently fight against the Tadanori faction, which currently holds the hegemony of the Daigo family.</p>
-<p>Of course, they weren't just thinking of fighting with shares. If the share battle became difficult, they were thinking of using force at any time with the PMC hired by the Toyotaka faction and the PMC forces that Minamoto Shigemune had.</p>
-<p>Still, because they thought that shares were more important than force, Ishidera Kosuke also called Kasaoka Yuzuki, the head teacher of the 3rd grade, who had the most influence among the 3rd grade teachers.</p>
-<p>,Kasaoka-sensei, head of the grade, come in."</p>
-<p>When Kasaoka Yuzuki entered the principal's office, Ishidera Kosuke, a middle-aged man wearing neat horn-rimmed glasses sitting at the principal's heavy desk, greeted her. Unlike his neat appearance, Ishidera Kosuke's eyes were sharp, and he was a dangerous-looking man with occasional eerie glints.</p>
-<p>,Kasaoka-sensei, head of the grade, you may or may not know, but you are in a pretty important position. So, I'll get straight to the point. There will be a Daigo Educational Foundation general meeting in the near future. Please give our Toyotaka faction strength there."</p>
-<p>,I'm sorry, but... I'm not interested in school politics."</p>
-<p>Kasaoka Yuzuki, the head of the 3rd grade, knew the situation of the Daigo family well. She knew that the Toyotaka faction was much smaller than the Tadanori faction, which currently held power. She knew that if she listened to Ishidera Kosuke, she might lose her job in the future. She was already paying off her debts, so she couldn't lose her job because of the immediate benefits.</p>
-<p>Kasaoka Yuzuki felt a headache as the heavy workload during the exam period and the lack of calls from Yamashiro Ryuta for several weeks, combined with this school politics, were holding her back. Ishidera Kosuke smiled with one corner of his mouth raised as he looked at Kasaoka Yuzuki, who was slightly frowning.</p>
-<p>,Haha, it seems that you have different thoughts from your husband, Kasaoka Koki-nim? Kasaoka Koki-nim said that he would persuade Kasaoka-sensei, head of the grade, because I told him that I would increase his salary significantly...."</p>
-<p>It was the first time she had heard of it. It seemed that he had brought in her husband, Kagaoka Koki, to persuade Kasaoka Yuzuki. She had recently found out that her husband was having an affair with a student, so their relationship was not good, but she felt even more disgusted with her husband when this happened without even talking to her.</p>
-<p>,My husband is my husband, and I am me. We may have different opinions. I'll talk to my husband more and tell you again."</p>
-<p>,Let's do that. But please keep in mind that there are not many seats left, Kasaoka-sensei, head of the grade. The later you come in, the less you will get."</p>
-<p>Ishidera Kosuke had a very confident face. He looked like he was sure of their victory in this Daigo family faction fight. Kasaoka Yuzuki, who knew the current situation of the Daigo family, was puzzled, but she bowed her head slightly and left the principal's office.</p>
-<p>Kasaoka Yuzuki, who came out of the principal's office, went home to talk to her husband, Kasaoka Koki.</p>
-<p>,That's what I'm saying...! Now that my salary has gone up a lot, I can buy you whatever you want and play more often."</p>
-<p>When she opened the door of the house, she heard her husband talking on the phone. It seemed like he was talking to the female student he was having an affair with. Kasaoka Yuzuki was filled with anger, but she took a moment to calm down and slowly opened the door.</p>
-<p>,I'm home."</p>
-<p>,Yeah, I'll hang up. I'll contact you again... Oh, you're here?"</p>
-<p>Kasaoka Koki's voice was bright. He seemed to be in a pretty good mood because his salary was going to be raised since he had been living a very tight life due to his recent debts. The anger that she had just calmed down resurfaced when she saw her husband's carefree appearance. Kasaoka Yuzuki, who couldn't hold back her anger, shouted at Kasaoka Koki.</p>
-<p>,What's going on?! You could lose your job if you get involved in a faction fight for no reason!!"</p>
-<p>Kagaoka Yuzuki shouted, but Kasaoka Koki had a nonchalant expression. Kasaoka Yuzuki was frustrated by his lack of concern.</p>
-<p>,Explain what's going on. You said you heard something from Ishidera-ssi. You didn't really explain it to me."</p>
-<p>,There's nothing really to explain. It's just that the Toyotaka faction has a pretty high chance of winning. I didn't miss that opportunity... You shouldn't miss that opportunity either. I have somewhere to go, so eat dinner alone."</p>
-<p>Kasaoka Koki got up from his seat without explaining, as if he was annoyed by Kasaoka Yuzuki, who kept asking questions. He must be going to meet that woman he was just talking to. She wanted to say something, but Kasaoka Yuzuki herself was not a confident woman who worked as a call girl, so she couldn't say anything to her husband.</p>
-<p>Squeak, bang!</p>
-<p>The door opened and closed roughly, and the house became quiet. Kasaoka Yuzuki was just sitting quietly.</p>
-<p>###</p>
-<p>It was an uneventful Saturday, except that Sakagami Rena and Otagi Yuka suddenly broke into my house in the middle of the night after a date with Alik and Urabe Konoka and ganged up on me (?).</p>
-<p>I woke up on Sunday, yawning as I looked at the place where the two people who had left early in the morning had been, and headed to the kitchen. I had a separate plan for today. I was going to completely tame Kasaoka Yuzuki, who was in charge of the math subject that Alik was taking an additional exam in.</p>
-<p>Now that the problem at St. Francisco Girls' Academy was progressing rapidly, I couldn't get information quickly and in detail because I was still in the Special Class building. Kijimoto Jurie and Kurayamada Kirie, who I can say are close to me, are also in the Special Class building, so I was completely in the dark about what was happening in the faculty room building. Daigo Terue is also not in her position due to disciplinary action.</p>
-<p>So, I needed to plant one ally. The target was Kasaoka Yuzuki. I hadn't seen her since I told her to quit the call girl job and become mine exclusively, so she must be extremely frustrated. I was going to persuade her with my body from lunch until late at night to make her my ally.</p>
-<p>If she doesn't fall for it that much, I was going to persistently harass her until she goes to work on Monday. I thought she would become my ally if I did that much.</p>
-<p>I designated and called Yuzu, Kasaoka Yuzuki's pseudonym, through the app. I spent a considerable amount of money by booking the maximum time, but it was not a burden to me at all. In fact, I was still using the corporate card that Taira Danjo grandpa gave me.</p>
-<p>I ate a few bananas for breakfast and lunch and brushed my teeth, and then the doorbell rang as if Kasaoka Yuzuki had arrived. I went to the front door and opened it, and Kasaoka Yuzuki naturally entered the house. It was natural because she had been to my house several times.</p>
-<p>Kasaoka Yuzuki was wearing a gorgeous mini dress in the style of a tight-fitting cheongsam, and because she had such a great figure, it was an outfit that would excite any man who saw it.</p>
-<p>,Come in."</p>
-<p>,It's been a while since you designated me?"</p>
-<p>Kasaoka Yuzuki was saying that it had been a while in a slightly coy way. Flames of lust were burning in her eyes, and she was full of resentment for why I hadn't called her sooner. It was natural for her to resent me since I hadn't called her for several weeks. But I had a good excuse.</p>
-<p>,It's because it was the school exam period."</p>
-<p>,...I see."</p>
-<p>She seemed to reluctantly understand my answer because she was also a teacher. In fact, it wasn't a major subject, and my intelligence stats had increased, so it wasn't very difficult to create the exam, but Kasaoka Yuzuki, who was in charge of math, a major subject, must have been very busy.</p>
-<p>----</p>
-<p>The last Kasaoka Yuzuki wearing a mask!</p>
+<p>"Ryuta-nim...."</p>
+<p>With my skillful touch, Konoe Akina is now naked, not even her underwear remains. Perhaps because she can't see, she's looking at me with a slightly fearful expression mixed with a faint smile, making it difficult to decipher.</p>
+<p>Konoe Akina's nude body was beautiful. Her skin, with little melanin, shone with a pale white light, and only her nipples, slightly raised towards the sky, and her hairless pussy area added a peach-colored, light pink hue, perhaps due to her excitement in the atmosphere.</p>
+<p>"Haaah~!"</p>
+<p>As I grasped her soft-looking, perky breasts, Konoe Akina closed her unseen eyes and moaned. I hadn't even teased her nipples, just held them, but her reaction was quite intense. Perhaps because she couldn't see, her other senses seemed to have become more sensitive.</p>
+<p>Konoe Akina's breasts were more on the soft side than the firm side. It felt like carefully touching a large dollop of whipped cream, and the way my fingers sank into her breast flesh and the sensation of it greatly excited me. Of course, unlike real whipped cream, they didn't collapse when touched but maintained their shape.</p>
+<p>Konoe Akina's nipples, which had been hard since I first touched them, became as hard as they could be, revealing their presence in my palm, as if excited by my caressing her breasts. I rolled my palm to stimulate her nipples along with her breasts.</p>
+<p>"Hng, haahng...! It feels good♥ Haaang...! Teacher, Ryuta-niim...!"</p>
+<p>At first, they're all confused by the pleasure and say it feels strange. But Konoe Akina was readily accepting the pleasure she felt from my hands. It seemed like it was because she trusted me and entrusted her body entirely to my hands.</p>
+<p>As if determined not to be outdone and to give me pleasure as well, Konoe Akina raised her hand and groped my body, then put her hand inside my pants.</p>
+<p>"Haa, I'll do it too, hng...!"</p>
+<p>Konoe Akina's hand, which hurriedly entered my pants, tightly gripped my throbbing cock. And slowly moved it up and down. She must have done some studying in preparation for fucking me on our date today.</p>
+<p>Feeling Konoe Akina's touch, I removed my hand from her breasts, stroked her belly, and began to move downwards.</p>
+<p>When I took my hand off her breasts, Konoe Akina let out a slightly disappointed moan, "Ah...!" but as my hand slowly moved down, her breathing gradually became rougher with anticipation. Passing her slightly protruding lower abdomen, I caressed her smooth, hairless pussy mound.</p>
+<p>"Haaaah!"</p>
+<p>Konoe Akina, letting out a moan that couldn't be compared to when I touched her breasts, flailed her body. Her pussy seemed to be as sensitive as her breasts.</p>
+<p>Actually, I wanted to leisurely savor Konoe Akina, but since the situation was what it was, I wanted to prioritize treatment over pleasure. But with this level of sensitivity, it seemed like I could catch both rabbits: pleasure and treatment.</p>
+<p>With one hand, I touched around Konoe Akina's pussy, and with the other, I took off my own clothes. It seemed a bit uncomfortable for Konoe Akina to have her hand inside my pants.</p>
+<p>Now naked, we began to caress each other's genitals. Before long, Konoe Akina was completely aroused, and my cock quickly became hard and hot like an iron rod.</p>
+<p>"It'll hurt a little."</p>
+<p>Normally, I would have loosened her pussy completely before inserting, but since treatment was the priority now, I planned to insert right away. At my words, Konoe Akina smiled and nodded.</p>
+<p>"If it's Ryuta-nim's.... It's okay even if it hurts."</p>
+<p>Hearing Konoe Akina's resolve, I brought my cock to her pussy. Just bringing my glans to her vaginal opening, it was already wriggling and biting the front of my glans, so it seemed like she would be quite the 명기 (myeonggi - legendary pussy). Oh, just going back and forth on the front would feel good.</p>
+<p>"Haaah...! Come in, hng! It feels like the inside is widening, haaang♥"</p>
+<p>Of course, my huge cock entering the virgin's vagina for the first time would feel like it was being forcibly widened. I tore through the hymen blocking the way in an instant and thrust my glans into the deepest part.</p>
+<p>"Kyaahng! It, it came all the way inside, Ryuta-niim...!"</p>
+<p>Konoe Akina let out a scream-like moan from the pain of her hymen being torn. Still, perhaps because of the influence of the bedroom arts, she didn't seem to be in great pain, only slightly frowning. But since there was still pain, it was up to me to turn the current pain into pleasure.</p>
+<p>I slowly began to heat up Konoe Akina's body. I stimulated Konoe Akina's erogenous zones by touching her nipples and licking her neck and ears, and diligently moved my waist to make her accustomed to my cock's movements.</p>
+<p>"Haa...! Hng...! Teacher, teacher...! Kiss, kiss me♥"</p>
+<p>We kissed after yoga class, so this is our second kiss. Konoe Akina, remembering that time fondly, was begging me for a kiss. There was no reason to refuse, so I started kissing Konoe Akina, gently biting her lower lip.</p>
+<p>Even though it was only her second time, Konoe Akina skillfully accepted my kiss. Since her lower lip and upper pussy were connected at the same time, the closeness was no joke. We began a sticky mating session, feeling as if we had become one. We continued our lewd sex, entangled like snakes.</p>
+<p>Each time I thrust my cock deep into her pussy, thick vaginal fluids flowed back and soiled my lower abdomen, and each time, Konoe Akina rolled her empty eyes and reached a small climax.</p>
+<p>"Haaht, Teacher...! My lower part feels strange, hng! Every time Ryuta-nim's big cock pierces the inside, haaht♥ it tingles...!"</p>
+<p>As I shook my waist so much that the sheets were all wet, Konoe Akina couldn't bear the continuous climaxes and screamed. Konoe Akina's pussy, which chewed so well, tightened around my cock each time she reached a climax, urging me to ejaculate.</p>
+<p>"I'm gonna cum...!"</p>
+<p>"Yes, cum deep inside Akina's pussy, hng...!"</p>
+<p>I grabbed the base of my cock with my hand and ejaculated into Konoe Akina's deepest part, then grabbed my urethra with my hand and pulled out my cock. And I sprayed my semen into Konoe Akina's eyes. I've done anmyeonsajeong (facial ejaculation) before, but angusajeong (eyeball ejaculation) is a first.</p>
+<p>Pwahhh!</p>
+<p>"Kyaa~!"</p>
+<p>Having blocked my urethra for a moment, a huge amount of semen gushed out and covered Konoe Akina's face. Konoe Akina seemed quite surprised when a hot, sticky, and strangely smelling liquid suddenly poured onto her face.</p>
+<p>"Haa, haa.... Is what's on my face now semen?"</p>
+<p>"Yeah. My semen has recovery properties, so they say spraying it directly into the eyes works, but I ended up spraying it all over your face."</p>
+<p>As I said awkwardly, Konoe Akina giggled and laughed. And she stuck out her tongue and licked the semen around her mouth.</p>
+<p>"It's not that tasty? I thought it would taste like condensed milk from what I saw in videos.... But it's still kind of addictive."</p>
+<p>Konoe Akina was coming out to me about watching porn. Konoe Akina gathered the semen spread on her face with her hands and put it all in her mouth. She said it was addictive, so is it really that tasty...?</p>
+<p>"There wasn't this much in the videos, but you released so much that it covered my whole face even after cumming inside me.... You're really amazing."</p>
+<p>"Well, I'm just a bit of a heavy loader."</p>
+<p>Wondering if it was a compliment, I shrugged and said. Konoe Akina groped for my half-erect cock and pulled her face towards it, putting it in her mouth.</p>
+<p>"Yn the videosh, after shajulating, they cleean up with their moufs...."</p>
+<p>"Huh?"</p>
+<p>She was saying something with it in her mouth, but of course, since she was talking with a huge sausage in her mouth, I couldn't understand and asked her again, so she spits out my cock.</p>
+<p>"In the videos, they clean up with their mouths after ejaculating."</p>
+<p>"Ah...! That's what it was? It would be nice if you did."</p>
+<p>Konoe Akina went, "Hmm...!" and smelled my cock, then put it back in her mouth. And she started sucking the semen from my urethra, making sucking noises.</p>
+<p>"Keuh...!"</p>
+<p>Konoe Akina's urethra cleaning felt pretty good, and my cock quickly regained its strength. Konoe Akina wore a satisfied smile, pleased that she had made my cock erect again.</p>
+<p>"Ehehe, it's big again, Ryuta-nim."</p>
+<p>"But how are your eyes?"</p>
+<p>Konoe Akina had been keeping her eyes closed since I said I sprayed her eyes with semen, which is medicine, but at my question, she slightly opened her eyes. She widened her eyes as if she could see something and smiled slightly.</p>
+<p>"I think I can see a little faintly.... It feels better than before."</p>
+<p>Ooh...! It seemed like there was some improvement, even if only a little. But Konoe Akina's eyes were still blurry. Still, she was smiling at me, looking in my direction, as if she could see me faintly.</p>
+<p>"Then, will you give me intensive treatment until I get better, Doctor Teacher?"</p>
+<p>Now I've become a Doctor Teacher instead of just a Teacher. Well, since I have a versatile recovery tool, it wasn't wrong to call me a doctor.</p>
+<p>Okay, I'll have to sacrifice myself a bit until Konoe Akina fully regains her sight today. It's a bit tough to push my physical strength, mental strength, and even my depths to the limit, but Konoe Akina deserves this much of a reward since she was the MVP of today's battle.</p>
+<p>-----</p>
+<p>Konoe Akina B-cut!</p>
+<p>The eyes were too bright for someone who's blind, so I personally edited the illustration in the main text to have empty eyes ㅎㅎ</p>
+<p>Yesterday was Teacher's Day, so here's the home teacher illustration requested by JungChucky-nim!!</p>
+<p>Theory Class</p>
+<p>Practice</p>
+<p>Since she's a home teacher, she's wearing an apron during practice~!! ㅎㅎ</p>

@@ -5,73 +5,84 @@ weight = 437
 chapter = 437
 +++
 
-<p>After the first order I gave to Sakagami Rena-ssi, which was to take off her mask, we had a conversation. We suddenly became master and subordinate, so we had to get to know each other. First, I asked what I was most curious about: how she knew my identity.</p>
-<p>"But how did you even find out my name? The Taira Group's information team should have blocked the information...."</p>
-<p>I asked Sakagami Rena-ssi because I needed to know how she found out my information so I could defend against that method.</p>
-<p>"Actually, it all started with Eve-gong's story...."</p>
-<p>Sakagami Rena's story was surprising. It started with Eve encouraging her to investigate me, then going to the Yamashiro family and realizing that the person named Yamashiro Ryuta was a fictional character, learning that I was related to Taira, and then accidentally searching for the name Taira Ryuta and finding Taira Ryuta in the family's information.</p>
-<p>I had a slight feeling about it when I first received the name Yamashiro Ryuta, but it seemed like Taira Danjo-halbae prepared the name a bit carelessly, considering it was only a few-month operation. I should tell him that if we plant a few more pieces of evidence in the Yamashiro side that I'm not a fictional character, they won't be able to find the Taira Group.</p>
-<p>"And then?"</p>
-<p>"I went to the Human Resources Development Center and met an amazing illusionist there...."</p>
-<p>An illusionist? I wondered what that was about, but it turned out that Sakagami Rena-ssi had met Yukiko in a dream.</p>
-<p>Seeing Yukiko, who had awakened as a succubus and gained terrifying traits, now becoming the ruler of dreams, I didn't think I needed to worry about Yukiko anymore. Seeing her grow to the point where I wouldn't have to worry about her safety unless it was a mid-boss level or higher, I felt like I had lifted a bit of a burden. I think she could beat not only a mid-boss but also a chapter boss if the situation is in her favor. Rather, Yukiko should be worried about me.</p>
-<p>"I see. That pink-haired illusionist is my adoptive mother. She's Taira Yukiko, the director of the Taira Group's Human Resources Development Center."</p>
-<p>"Ah, I see. The power of the Taira Group is frightening once again."</p>
-<p>Actually, Yukiko didn't become the director of the Human Resources Development Center because of her special abilities. I think she developed a sense of fear about the Taira Group because of this experience. I'll tell her about Yukiko's abilities later.... Now that I have a ninja girl as my subordinate, I should have her conduct additional investigations into Kurayamda Kirie.</p>
-<p>"I have new information here too."</p>
-<p>"You mean the assistant teacher who came as a student teacher? The kids told me on LINE."</p>
-<p>"You wouldn't have heard this story."</p>
-<p>Sakagami Rena-ssi spoke as if she already knew about Kurayamda Kirie, so I showed her the letter that Kurayamda Kirie had left for me. Sakagami Rena-ssi frowned as she read the letter.</p>
-<p>"How dare she...! Blackmailing the master.... Master, shall I take care of her?"</p>
-<p>Clearly, the meaning of "take care of her" that Sakagami Rena-ssi was talking about was assassination. I don't know Sakagami Rena-ssi's skills exactly, but Kurayamda Kirie is a master of swordsmanship, so it would be difficult for Sakagami Rena-ssi to kill her. Of course, as a ninja, Sakagami Rena-ssi could eliminate her with a surprise attack if she was caught off guard, but I wasn't thinking about killing her.</p>
-<p>"It's not to the point of killing her. Just collect information. This is information I received from the Taira Group's information team today."</p>
-<p>I received Kurayamda Kirie's information this morning, but there wasn't anything special. It was just that the Kurayamda family was a family in Kyoto, and there was an explanation of its history, and there was a little information about Kurayamda Kirie's junior high school life, high school life, and college life. Now, based on this information, Sakagami Rena-ssi will investigate on her own.</p>
-<p>"Understood, Master."</p>
-<p>"Just call me teacher. The other kids will think it's weird.... Call me whatever you want after you graduate."</p>
-<p>If Sakagami Rena-ssi suddenly started calling me master when I came to school after the weekend, there would be a huge commotion. So I told her to call me teacher as usual.</p>
-<p>"Understood, Teacher. The investigation will start on Monday and should be done in a day or two."</p>
-<p>"Still, don't skip school. You're not getting any requests right away, so don't skip school like this time."</p>
-<p>Sakagami Rena-ssi spoke as if she was going to skip school again, so I unconsciously went into teacher mode and said that. Still, Sakagami Rena-ssi smiles as if she likes that I care about her.</p>
-<p>"Okay. I can do this quickly after school."</p>
-<p>After entrusting her with the investigation into Kurayamda Kirie, Rena-ssi and I talked about each other. I briefly told her the story of when I entered the Taira family, and Sakagami Rena-ssi told me about the Sakagami family and ninjas.</p>
-<p>I thought there would be ninja groups since it's Japan, but I was quite interested to hear the story from a student I was teaching.</p>
-<p>As we were talking, it became late at night, and Sakagami Rena-ssi got up from her seat. And as she left, she said something in passing.</p>
-<p>"Let's do the Kunoichi ritual after this investigation report. Goodbye, Teacher."</p>
-<p>Sakagami Rena-ssi bowed her head and went outside. But what is the Kunoichi ritual...?</p>
+<p>Otagi Yuka took out the golden sword she stole from the New York Museum and pointed it at Malik Lieberman. Seeing Malik Lieberman, the image of her nanny collapsing flashed through her mind. Her anger grew, and Otagi Yuka's pupils inside the helmet split vertically, beginning to glow dangerously.</p>
+<p>"Eum...!"</p>
+<p>Malik Lieberman also quietly drew the claymore he had been carrying on his back. The claymore, made by reforging silver and mithril together, reflected a dangerous light. It was a famous sword that had beheaded countless vampires.</p>
+<p>"Did you use that sword to kill my nanny...!"</p>
+<p>"Nanny? I don't know about that. I only killed a few parasites who betrayed humans by siding with vampires."</p>
+<p>Otagi Yuka's anger exploded at Malik Lieberman's words calling her dead nanny a parasite. As her blood boiled, the blade of the golden sword was dyed blood-red and turned crimson. And she disappeared as if teleporting, appearing diagonally behind Malik Lieberman.</p>
+<p>Kwaang!!</p>
+<p>Malik Lieberman, who blocked the sword swung by Otagi Yuka with his claymore, couldn't withstand the tremendous force and was thrown into the Shinto shrine building, smashing through the shrine's doors and furnishings.</p>
+<p>'That's a tremendous power. It seems like taking care of her now is the right choice after all.'</p>
+<p>Malik Lieberman didn't go outside but instead entered the Shinto shrine building. When Otagi Yuka entered the shrine to chase Malik Lieberman, the silver bomb that Malik Lieberman had set up at the entrance exploded.</p>
+<p>"Kyaaak!"</p>
+<p>Fortunately for Otagi Yuka, the cyber suit and helmet she was wearing prevented the silver fragments from piercing her body. However, the suit sustained considerable damage from being caught in the explosion.</p>
+<p>Shyuk shyuk shyuk shyuk!</p>
+<p>Malik Lieberman, holding a crossbow at the end of the long corridor, shot crossbow bolts at Otagi Yuka. Naturally, the tips of the crossbow bolts were silver. Using some kind of technique, the crossbow bolts were as fast as bullets, making them difficult to dodge.</p>
+<p>Otagi Yuka raised her golden sword, covering her body as much as possible, and advanced towards Malik Lieberman. While advancing, a crossbow bolt hit her shoulder armor, damaging it, but she was able to get closer.</p>
+<p>"Die!"</p>
+<p>Swinging the sword with one hand and using the other hand to attack by scratching with blood-infused fingernails, Malik Lieberman also began to feel dizzy.</p>
+<p>"Keuek!"</p>
+<p>Otagi Yuka's blood energy grazed Malik Lieberman's shoulder, and blood flowed. When fighting vampires with the power to control blood, one had to be extremely careful about bleeding. This was because one could be defeated by their own blood.</p>
+<p>However, the SPF's vampire hunters had magically treated mercury elixirs, so they had contaminated blood that vampires couldn't use. Rather, if vampires used the blood of vampire hunters, the contaminated blood would mix with the vampire's blood energy, causing fatal damage to the vampire. Therefore, after the mercury elixir appeared, vampire hunters could escape the fear of bleeding.</p>
+<p>"I never intended to use your dirty blood in the first place!"</p>
+<p>"I don't know who's calling who dirty. You're nothing more than a trivial creature, no different from mosquitoes or bats!"</p>
+<p>The two cursed at each other and swung their swords.</p>
+<p>Kwaaaang!!</p>
+<p>The shockwave exploded as sword and sword collided. The hanging scrolls in the shrine's corridor were torn, and the old pottery and sculptures that were decorated were broken and smashed, but Otagi Yuka and Malik Lieberman continued to clash their swords as if comparing each other's strength.</p>
+<p>One would think that Otagi Yuka, as a vampire, would be physically stronger, but Malik Lieberman had also undergone several biological modifications, so there wasn't a big difference.</p>
+<p>Rather, since Malik Lieberman had a silver and mithril alloy claymore that devoured blood energy, Otagi Yuka would be at a disadvantage in a prolonged battle because her blood energy would be burned away. Of course, unlike vampires who have regenerative abilities, Malik Lieberman had no regenerative abilities, so he was not in a very advantageous situation, as cuts and bruises appeared every time they clashed swords.</p>
+<p>"Dieee!"</p>
+<p>"You're the one who's going to die!"</p>
+<p>Continuing to clash swords as if showing off their strength was Malik Lieberman's trap. When Otagi Yuka swung her sword, Malik Lieberman jumped back at an incredible speed. And he took out two Micro Uzis from his pocket and began to shower Otagi Yuka with silver bullets. But Otagi Yuka swung her golden sword as if she had expected it.</p>
+<p>Akagamikiba Style (赤神牙式: Red God Fang Style) Chiyahankyō (千矢反鏡: Thousand Arrow Reflecting Mirror)</p>
+<p>Otagi Yuka swung the golden sword so fast that it looked like a disc. As the name Chiyahankyō, a mirror that reflects a thousand arrows, suggests, the golden mirror-like swordsmanship deflected the silver bullets back at Malik Lieberman.</p>
+<p>Seeing Otagi Yuka deflect the silver bullets, Malik Lieberman hid behind the claymore, which had a wide blade surface. The sound of ting ting ting was heard as the silver bullets bounced off the claymore, and silver bullets were embedded in the parts that he couldn't hide behind the sword. Malik Lieberman groaned and endured the reflected silver bullets.</p>
+<p>"Haaap!"</p>
+<p>Otagi Yuka thought that now, while Malik Lieberman was defending against the bullets, was her chance to defeat Malik Lieberman. So she jumped in and raised her sword to the sky to swing the golden sword. As she brought the sword down, something invisible caught on the golden sword with a thud. At that moment, Malik Lieberman, hiding behind the claymore, had a triumphant smile on his face.</p>
+<p>'Was all of this planned...?'</p>
+<p>Looking closely at the golden sword, she saw that the blade was caught on a mithril wire. She cut the mithril wire with her vampire strength, but Malik Lieberman was already aiming a shotgun at Otagi Yuka. This meant that he had prepared a wire trap in advance to induce the current situation.</p>
+<p>Taang!! Taang!! Taang!! Taang!!</p>
+<p>Malik Lieberman fired a Browning Auto-5 semi-automatic shotgun, which could be loaded with up to four rounds, in rapid succession. It was an old model made a little after World War II, a relic-like weapon, but the weapon, which had been blessed by priests and imbued with magic by the SPF headquarters' magicians, became a ferocious weapon that could grind vampires to dust, unlike its old appearance.</p>
+<p>"She was a difficult opponent...."</p>
+<p>Perhaps because there was no air movement indoors, the gun smoke was still thick. Malik Lieberman put the gun in his pocket and put the claymore in the scabbard on his back. And he went forward, cutting through the gun smoke. It was a very relaxed attitude, but no matter how powerful a vampire was, no one had ever survived being hit by four shots from a shotgun nicknamed Bat Killer. As Malik Lieberman went forward, he saw a figure collapsed in his eyes. But the figure looked strange. It was as if someone had taken off their clothes....</p>
+<p>"I would have been in big trouble if Eve-ssi hadn't included the emergency escape function...."</p>
+<p>The sound was heard almost whispering in her ear. When Malik Lieberman turned his head to look, Otagi Yuka, covered in blood in her school uniform, was standing there, having taken off her helmet and cyber suit.</p>
+<p>Otagi Yuka used the emergency escape function, which was created in case the cyber suit caught fire that was difficult to extinguish or toxic substances flowed in, to avoid the silver buckshot fired by Malik Lieberman. Of course, she couldn't avoid all the buckshot, so she was covered in blood, but she was able to save her life.</p>
+<p>"Let's end this now."</p>
+<p>Otagi Yuka, risking injury so that Malik Lieberman couldn't counterattack, began to manipulate Malik Lieberman's contaminated blood to open his wounds.</p>
+<p>"Kuaaaa!! If, if you do this, you'll die too! Is that okay with you?!"</p>
+<p>"I don't care...!"</p>
+<p>As if Malik Lieberman's words were not a lie, Otagi Yuka's blood energy was burning silver due to Malik Lieberman's blood contaminated with mercury elixir. But Otagi Yuka attacked Malik Lieberman with his own blood, as if she didn't care as long as she could get revenge.</p>
+<p>"Keueok...! Keok!"</p>
+<p>Malik Lieberman died on the spot, unable to withstand the massive bleeding. Otagi Yuka stared at Malik Lieberman's corpse with cold eyes for a while, then collapsed herself.</p>
 <p>###</p>
-<p>Kurayamda Kirie returned to the Kurayamda family's mansion near St. Francis Girls' School, where she had stayed during her school days.</p>
-<p>"Have you arrived, young lady?"</p>
-<p>"Yes, if you prepare dinner, I'll eat it myself."</p>
-<p>Kurayamda Kirie entered the room, perfunctorily accepting the greetings of the servants. She would normally give a slightly kinder answer, but this was not the situation now.</p>
-<p>'She must have read my letter by now, right?'</p>
-<p>The content itself was mild, but it was actually a blackmail letter. However, Kurayamda Kirie smiled as if she had sent a love letter and lay down on the bed. Then she covered her face with a pillow and kicked her feet. She looked like a girl in love.</p>
-<p>Kurayamda Kirie started taking off her clothes while lying down. She was wearing a suit to visit Yamashiro Ryuta's house on the weekend, so it was uncomfortable. She threw her clothes into the laundry basket with a whoosh, whoosh, whoosh while lying down.</p>
-<p>Perhaps because she was an excellent swordsman, she had good athletic ability, so when she threw her clothes, they went right into the laundry basket. When all the suits were in the laundry basket, the next thing was her underwear. All the underwear also went into the laundry basket, and Kurayamda Kirie was lying naked on the bed.</p>
-<p>Kurayamda Kirie imagined the scene of Yamashiro Ryuta being flustered after seeing her letter. And as she imagined him being embarrassed because he didn't know what she would ask for, she felt her lower abdomen getting hotter and hotter for some reason. The pink fruits of her breasts also began to stand erect.</p>
-<p>"Haaah...."</p>
-<p>While lying down, Kurayamda Kirie grabbed her soft breasts that were rising gracefully with her left hand. They weren't big breasts, but they had a beautiful shape and felt very nice. Surely.... Yamashiro Ryuta would like them too.</p>
-<p>"Haa...!"</p>
-<p>As she thought about Yamashiro Ryuta, she unconsciously let out a loud moan. Her right hand, which wasn't holding her breasts, was stroking her lower abdomen and slowly moving down.</p>
-<p>Kurayamda Kirie's right hand passed her lower abdomen and stroked her soft pubic hair for a while before going down to her wet below.</p>
-<p>Jjilkkeok...!</p>
-<p>"Heuht!!"</p>
-<p>Only one joint of her index finger went into her pussy, but it was enough stimulation for Kurayamda Kirie's sensitive virgin bitch body. As soon as her index finger went in, her waist lifted and she climaxed slightly.</p>
-<p>"Heueung...! Now that I know this, haaht...! One joint of my finger is, haaheung, not enough....♥"</p>
-<p>Until now, Kurayamda Kirie had only been enjoying herself with one joint of her index finger to avoid damaging her hymen, but unlike her rational side that was careful with her fingers, she was a sex monster who masturbated three or four times a day.</p>
-<p>"Heuht, Yamashiro-ssi...! Like in the tennis office back then, roughly...! Heuht! Do it to meee~!"</p>
-<p>Kurayamda Kirie was looking at the ceiling with her mouth open, but the shocking sex scene that Yamashiro Ryuta had shown her was already playing in her head.</p>
-<p>It had already been several months since then, so the memory had been distorted and distorted, and Yamashiro Ryuta's sex partner was already Kurayamda Kirie.</p>
-<p>Jjilkkeok, jjilkkeok, jjilkkeok!</p>
-<p>"Heueung, haaht! Hang, ahahaheung♥"</p>
-<p>Kurayamda Kirie spread her legs wide as if accepting an actual dick and moved her hand in time with the hip movements that the imaginary Yamashiro Ryuta was shaking.</p>
-<p>"Haaahangeuht!!"</p>
-<p>Pyooteu! Pyooteu! Pyooteu!</p>
-<p>Soon, she climaxed and her waist lifted on its own, and she began to spray her juices into the air. She felt the climax for a long time while making a pyooteu pyooteu sound, and then she lay on the bed and enjoyed the languid feeling after the climax.</p>
-<p>"Haa, haa, haa.... Tomorrow...I'll be able to actually try it."</p>
-<p>Kurayamda Kirie smiled happily as she breathed heavily. Kurayamda Kirie, who was starting to get excited again at the thought of abandoning her tiresome virginity, put her finger on her pussy again.</p>
-<p>"Haaheung, aheueuht...! Heueueuht♥"</p>
-<p>Kurayamda Kirie's room began to be filled with moans and jjilkkeok sounds again.</p>
-<p>----</p>
-<p>Kurayamda Kirie masturbation scene B-cut</p>
-<p>Kurayamda Kirie masturbating without taking off her clothes.</p>
-<p>Heart speech bubble Kirie.</p>
+<p>St. Francisco Academy for Girls.</p>
+<p>Disciplinary Committee Chairman Nakanoin Rina received a call from Taira Kanna in the morning. In the student council president's office, Nakanoin Rina heard an unbelievable story.</p>
+<p>St. Francisco Academy for Girls had been bombed a few times during the World War, but otherwise, it had rarely been attacked by other forces. But now, information had come in that St. Francisco Academy for Girls was going to be attacked.</p>
+<p>"What is the source of that information?"</p>
+<p>"I can't tell you that. First, inform the disciplinary committee members and have them take a defensive posture."</p>
+<p>At Taira Kanna's words, Nakanoin Rina ordered a defensive posture in the contact network that the disciplinary committee members were watching. Taira Kanna spoke as if she was sure, but nothing special happened until lunchtime. But at some point, gunshots began to be heard in the distance.</p>
+<p>"It seems like Chairman-nim's words are correct."</p>
+<p>"I guess so.... There's no way Jiro-oraboni would pass up this opportunity."</p>
+<p>After "I guess so," the words were too quiet for Nakanoin Rina to hear. The door to the student council president's office, where only the two of them were, burst open. But there was no one behind the door.</p>
+<p>'I can't see them, but someone's there...!'</p>
+<p>Nakanoin Rina pulled a jitte from her waist. Her sharp senses detected something, even though she couldn't see it.</p>
+<p>"Hide behind the pillar, Chairman!"</p>
+<p>Nakanoin Rina shouted at Taira Kanna. At that moment, flames erupted in the empty air.</p>
+<p>'A gun!'</p>
+<p>Nakanoin Rina rolled to avoid the gunfire and then threw a smoke grenade from her pocket. The smoke grenade exploded with a bang, filling the student council president's office with smoke.</p>
+<p>Nakanoin Rina stood still, holding the jitte and blending into the smoke. Nakanoin Rina could see the smoke flowing. It was definitely a human figure. Perhaps panicked by the sudden smoke grenade, they were turning their heads this way and that. Nakanoin Rina, like a ghost, cut through the smoke and approached the human figure, striking them with the jitte.</p>
+<p>Kwadeuk!</p>
+<p>Because it was a jitte with considerable weight, she heard the sound of a head breaking and blood splattering. After that, she heard the sound of someone collapsing. Nakanoin Rina struck the fallen person once more with the jitte as a confirmation kill, then looked at Taira Kanna.</p>
+<p>"It seems like they used some kind of spell. I can't see the enemies."</p>
+<p>"There should be thermal vision goggles in the disciplinary committee equipment warehouse. With those, you should be able to identify and deal with the attackers."</p>
+<p>At Taira Kanna's words, Nakanoin Rina replied. It was just a high school disciplinary committee, but the St. Francisco Academy for Girls' disciplinary committee equipment warehouse had equipment comparable to military supplies. The disciplinary committee members usually carried batons, but in an emergency, they became a terrifying mercenary unit equipped with formidable equipment.</p>
+<p>"Gather all the disciplinary committee members to the warehouse and eliminate all the attackers."</p>
+<p>"Understood. I will eliminate them all as you say, Chairman-nim."</p>
+<p>Nakanoin Rina summoned all the disciplinary committee members to eliminate the attackers.</p>
+<p>-----</p>
+<p>Bloody Yuka B-cut!</p>
+<p>Failed because it doesn't feel like a shrine at all lol</p>
+<p>Failed because it doesn't feel like a shrine and the background outside the window doesn't match either haha</p>
+<p>Yuka, not bloody!</p>

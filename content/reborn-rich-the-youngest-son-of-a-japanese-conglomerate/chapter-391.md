@@ -5,73 +5,65 @@ weight = 391
 chapter = 391
 +++
 
-<p>After finishing breakfast and returning to my cabin, I took a clean shower and changed into my swimsuit. The swimsuit was a trunk type with palm trees drawn on it, coming down to above the knee.</p>
-<p>According to what I heard from Kijimoto Jurie yesterday, there was talk in the girls' talk that the outline of my dick was visible when I wore jeans, so if I had worn a triangle or something clingy, it would have been a huge controversy. It was fortunate that I brought trunk-type swimwear.</p>
-<p>After finishing all the preparations and looking in the mirror, a blonde tanned delinquent who hunts on the beach and wanders around, like I've seen in erotic manga, was looking at me from the opposite side of the mirror.</p>
-<p>Of course, that blonde tanned delinquent had a great body and a face that was no joke, so I wasn't making a living out of stealing other people's women like in erotic manga.</p>
-<p>When I came out of the cabin, it was only twenty minutes instead of the promised thirty minutes, but it was already docked at the island's pier. Every time I came, I came on a large ship, so the pier was quite large compared to the size of the island.</p>
-<p>When I got off with my luggage, people who seemed to be servants of the villa were waiting. They were wearing black suits like butler uniforms, and when I got off, they took my luggage.</p>
-<p>"I will put your luggage in your room. Yamashiro-nim."</p>
-<p>To think they already know my face and name, the preparation is amazing? It seemed that Minamoto Risa had passed on the list and photos in advance and had them memorized.</p>
-<p>As I stood still at the entrance of the pier, the female students began to get off the cruise one by one. Still, since I'm a teacher, I have to wait and stand until the kids gather.</p>
-<p>Yesterday's casual clothes were also somewhat new, but the swimsuits were even newer. Is it because there's a more sexual feeling?</p>
-<p>The first female student to get off was Shido Tsubaki, who was wearing a denim bikini that matched her blue hair color. To be exact, the bottom was denim, and the top was not denim but a blue swimsuit.</p>
-<p>"Does it look good on me, sensei?"</p>
-<p>"Yeah, it matches your hair color well, so it looks good."</p>
-<p>I heard somewhere that when complimenting a woman, it's good to talk a little more specifically, so when I complimented her hair color, she seemed quite satisfied.</p>
-<p>Next was Oofuchi Erika, who still couldn't shake off her hikikomori tendencies, and got off with a slightly intimidated expression, wearing a fairly daring high-leg competitive swimsuit. It was a one-piece swimsuit, but the high-leg cut emphasized sexiness.</p>
-<p>"It's just a plain one-piece swimsuit, so I bought it without trying it on...."</p>
-<p>Oofuchi Erika is trying to make excuses to me for no reason. Her legs are pretty and she looks good in it, so there's no need to be intimidated or make excuses.</p>
-<p>"It's a relief that it looks good on you, though."</p>
-<p>"T-thank you, Da... No, sensei!"</p>
-<p>Oofuchi Erika was about to answer me as "Dad" because I said it looked good on her, but then corrected herself to "sensei." There was a guy in my school days who accidentally called a female teacher "Mom," is it something similar to that...? I'm not old enough to be called "Dad" yet.</p>
-<p>While I was talking to Oofuchi Erika, most of the other students got off, and I heard a murmuring sound, and it turned out that the murmuring was because of the swimsuit(?) of the masked girl Sakagami Rena.</p>
-<p>What Sakagami Rena was wearing was a full-body cyber suit with underwater combat capabilities. Well, strictly speaking, that's also something you wear in the sea, so you could call it a swimsuit.</p>
-<p>Of course, it wasn't just the cyber suit that was the problem, but she was also wearing something like a tech mask, which looked like a gas mask, but when I looked closely, it was an oxygen mask that allowed her to breathe underwater. It had a compressed charged oxygen capsule inside, so there was no need to carry an oxygen tank on her back. It suited her well, but it created a considerable sense of incongruity.</p>
-<p>"Sakagami, can you come over here for a second?"</p>
-<p>I called Sakagami Rena to the corner. I hadn't been able to talk to Sakagami Rena much. I usually couldn't see her face well because she was wearing a mask, and even when she occasionally wore a mask that revealed her eyes, she didn't talk, so she couldn't get close to the other kids.</p>
-<p>I thought it was amazing that Konoe Akina had brought her into the club.</p>
-<p>"Do you not have a swimsuit?"</p>
-<p>Dori dori. She shakes her head. So she has a swimsuit.... Then that means she came wearing the cyber suit instead of a regular swimsuit, so it seemed like she was wearing this cyber suit for style.</p>
-<p>Then I can't tell her to take it off because it stands out too much in front of her.... She probably didn't bring a spare swimsuit either, so if I told her to take it off, it might mean that I'm telling her not to play in the water, so I can't say anything about what she's wearing now.</p>
-<p>"I want to ask you about the mask.... Are you going to keep wearing it?"</p>
-<p>If I can't talk about the cyber suit, I should talk about the mask issue that I've been thinking about for a while. Since I called her, I should talk about at least one thing.</p>
-<p>"....Yes."</p>
-<p>She's talking so quietly. It's not ASMR, but.... So she's going to keep wearing it after all.... Should I try to persuade her a little more?</p>
-<p>"Still, from the teachers' point of view, they want to see the faces of the students they're teaching. And I sometimes get complaints that you wear masks that are too scary...."</p>
-<p>In fact, there were days when Sakagami Rena wore a very realistic bleeding hooked-nose witch mask or a Frankenstein mask that looked like something she would wear on Halloween, and some of the female teachers were so surprised that they complained to me.</p>
-<p>"...Sensei, ...do you want to see my face too?"</p>
-<p>"Of course. You have such a pretty face just by looking at your eyes, so it's good to take off the mask with confidence."</p>
-<p>Did I say it too seductively? Sakagami Rena nodded slightly at my words. And she said in a voice that could barely be heard, "I'll think about it." Yeah, this is enough for now.</p>
-<p>After sending Sakagami Rena back to her seat, I came back to my seat and all the students were there. Kijimoto Jurie was also wearing a plain one-piece swimsuit, but because she had such a good body, the plain swimsuit became like she was wearing a very lewd and obscene cosplay.</p>
-<p>"...."</p>
-<p>"Ooh~! Ryuta-cchi! Nice body?"</p>
-<p>When I returned to my seat, the female students' attention was focused on me, and most of them were blushing while looking at my body, and only Seizawa Shii was looking over my body while saying lines like a perverted old man doing sexual harassment.</p>
-<p>She ignored me all day during the love potion sheet incident, but look at her pretending to be strong in front of her classmates. If you look closely, Seizawa Shii was also blushing.</p>
-<p>It's my fault that my body is too sexy. But I can't help it. I came to the beach, so I can't be all covered up.</p>
-<p>The students kept looking at my body without saying anything, and I didn't decide on a schedule either, so I didn't know what to do next, so I was just standing there blankly. Minamoto Risa sighed and came forward, looking at the students and opening her mouth.</p>
-<p>"Okay, the staff will move our luggage, and we can just play in the sea. But don't go to the deep areas because there are buoys with ribbons around them."</p>
-<p>At Minamoto Risa's words, who was wearing a luxurious-looking gold-black bikini, everyone shouted "Wah!" and ran to the beach.</p>
-<p>"Then I'll see you later at the villa."</p>
-<p>The staff greeted us, carried the luggage, and disappeared towards the villa, and I slowly walked to the beach. Kijimoto Jurie was standing next to the sickly girl Naruse Shiyo and walking while talking. Naruse Shiyo didn't like getting sunlight on her bare skin, so she was wearing a rash guard.</p>
-<p>"Ryuta, let's have a swimming competition."</p>
-<p>Suddenly, Alik appeared next to me and grabbed my pinky finger. Alik wore a navy blue school swimsuit at the Seryu Military Company picnic before, but today she was wearing a white school swimsuit-style one-piece swimsuit. She's still cute as ever.</p>
-<p>"Shall we?"</p>
-<p>I'm not very good at swimming, but Alik is also from eastern Russia, so she probably doesn't have many opportunities to swim. Then I can have a pretty good match with her.</p>
-<p>We arrived at the beach, did some warm-up exercises for a while, and then shouted "One, two, three" at the same time and started. I was swimming with the amateur swimming method I learned before possession, but my muscle density was too high, so no matter how much I swam, I kept sinking into the sea.</p>
-<p>Looking to the side, Alik was blankly looking at the sky and floating around with something similar to a backstroke. I don't know how she did it, but she seemed to be floating, but she was automatically drifting towards the reef that we had set as our goal.</p>
-<p>I can't lose like this. Now that it's come to this, I decided to swim with strength.</p>
-<p>Chwachwachwachwa!!</p>
-<p>When I vigorously waved my hands and legs, a huge spray of water was created and started pushing me forward at an incredible speed. After all, there's nothing you can't do with strength.</p>
-<p>Because I was moving forward at an incredible speed, the distance that had gradually widened from Alik was narrowing. But the distance that had widened because I was sinking into the water at the beginning was quite large, so there wasn't much left to the reef that we had set as the finish line.</p>
-<p>"Haa.... I lost, Alik is so fast?"</p>
-<p>In the end, Alik was the winner. It was a mystery how she could lie on the sea like a sea otter, look at the sky, and float quickly, but I cleanly conceded.</p>
-<p>"Ryuta. Alik had fun."</p>
-<p>Alik's face was quite flushed, as if she had fun too. Because of the huge spray of water I had just created, the female students gathered, and in the end, I was caught and had no choice but to have swimming competitions all morning.</p>
-<p>------------</p>
-<p>Swimsuits mentioned today (You can see the illustrations of Shido Tsubaki and Oofuchi Erika's swimsuits in the illustrations uploaded in the previous episode, hehe)</p>
-<p>Sakagami Rena - Underwater Specification Cyber Suit</p>
-<p>Naruse Shiyo - Rash Guard</p>
-<p>Minamoto Risa Black-Gold Bikini</p>
-<p>Alik - White School Swimsuit</p>
-<p>I like the second illustration so much that I'm thinking of using it as the cover, hehe.</p>
+<p>Sohn Na-ri, who suggested having a gift presentation first, was the first to offer a gift. The gift was quite large, and when Han Yu-gyeong received it and unwrapped it, it turned out to be a thick plastic board shaped like a person. It looked familiar... What is it?</p>
+<p>"This is...?"</p>
+<p>"Yu-gyeong-i talked about knife throwing recently, right? So, I made a target~!"</p>
+<p>It was a target board in the shape of a person. Am I weird? I Yeon-ju prepared throwing knives as a birthday present, and her close friend Sohn Na-ri prepared a target to use them on... If I were to think of a reason, it seemed like Han Yu-gyeong is the daughter of a chaebol family, so they prepared something special rather than some expensive accessories. After all, Han Yu-gyeong could buy anything that can be bought with money.</p>
+<p>"Thank you! I've been doing it as a hobby these days, so I can do it at home too!"</p>
+<p>How many female college students in Korea throw knives as a hobby? Probably only Han Yu-gyeong. It seemed like she found it quite fun because she became good at it due to her trait. Following Sohn Na-ri's target, I Yeon-ju immediately gave her throwing knives, and Han Yu-gyeong was excited that she received them as a set.</p>
+<p>The rest of the gifts were not as unique as Sohn Na-ri's or I Yeon-ju's, but accessories and miscellaneous goods that female college students would like. Um, so I wasn't the weird one after all. Sohn Na-ri and I Yeon-ju were the weird ones. Han Yu-gyeong had repeatedly told the Vanguard employees not to prepare gifts, so everyone replaced the gifts with applause, and it was my turn as her boyfriend.</p>
+<p>"First, this is from Eve. I don't know what it is."</p>
+<p>I first gave the gift that Eve had entrusted to me. It was a light box, so I was curious about what was inside, but Han Yu-gyeong's expression changed slightly embarrassedly when she opened the box.</p>
+<p>"What is it?"</p>
+<p>At Sohn Na-ri's question, Han Yu-gyeong lifted the object in the box, and Eve's gift was sexy lingerie with almost no function as underwear, optimized for seducing men. Everyone who saw the lingerie that Han Yu-gyeong lifted up was surprised or laughed. Since it was something to be used when I was with her anyway, I thanked Eve in my heart.</p>
+<p>"Eve-gaa.... Her pranks are too much, aren't they?"</p>
+<p>If it were just the two of us, Han Yu-gyeong would have made a seductive expression and asked if she should wear it now, but she was embarrassed because there were too many people around. Han Yu-gyeong quickly put the sexy lingerie back in the box and threw it where the gifts were gathered.</p>
+<p>"My gift is this."</p>
+<p>I handed over the packaged gift containing the Starry Bracelet. Han Yu-gyeong unwrapped the package and opened the box with an expectant expression.</p>
+<p>"Ah...!"</p>
+<p>The Starry Bracelet was beautiful. A large, blue gemstone was embedded in it, and inside, particles of light that shone like the Milky Way flowed. The gemstone was fixed with an alloy chain of mithril and platinum, which emitted a subtle, beautiful blue light. Even the options were incredibly fraudulent, so it was a bracelet with excellent appearance and abilities.</p>
+<p>"Yong-tae-ya, I really like it...!"</p>
+<p>Han Yu-gyeong seemed very pleased and hugged me with a touched expression. I felt it as she hugged me, but her breasts had grown again, probably because her magic power had recovered. It's so nice and fluffy.</p>
+<p>"Han Yu-gyeong-ssi, you're under arrest."</p>
+<p>I took the bracelet and playfully said that as I put it on Han Yu-gyeong's wrist. Everyone laughed at my words, and Han Yu-gyeong's birthday party started in a good atmosphere. Even if it was a party, it wasn't anything special, just playing music, drinking, and talking.</p>
+<p>In the middle, Han Yu-gyeong, who was drunk, said she would demonstrate knife throwing with the gifts from I Yeon-ju and Sohn Na-ri, so everyone gathered as if it were a performance and watched Han Yu-gyeong's throwing skills. Even though she threw from a considerable distance, all 15 of the throwing knife sets that I Yeon-ju gave as a gift were stuck in the head of the target. *Tak! Tak!* The dull sound of the knives hitting the head of the target felt quite gruesome.</p>
+<p>"Wow.... I shouldn't mess with Yu-gyeong-i."</p>
+<p>"You're amazing, President-nim!"</p>
+<p>One of Han Yu-gyeong's friends muttered, and the rest were amazed and applauded as if they were enjoying a circus. The Vanguard employees, being former special forces members, guessed Han Yu-gyeong's skills and all gave her a standing ovation.</p>
+<p>The drinking continued after that, and Han Yu-gyeong, who was the host of today's birthday party, had no choice but to keep drinking. Everyone who gathered at the party took turns pouring her drinks as a congratulatory toast, and since she couldn't accept some and refuse others, she kept receiving and drinking, so even Han Yu-gyeong, who had high mental stats, couldn't help but get very drunk.</p>
+<p>"Vanguard employees, please stop giving her alcohol now."</p>
+<p>When I Yeon-ju said that to the employees below, the employees became sullen and had no choice but to start drinking among themselves. That's a relief. I was going to be her black knight from now on.</p>
+<p>I don't know if it's a good thing or a bad thing, but because of my trait, I became someone who doesn't get drunk even if I drink alcohol, so alcohol was just a bitter liquid to me.</p>
+<p>"I'm okay.... I can drink more-sseo-uh...!"</p>
+<p>Han Yu-gyeong, who was already staggering, was showing off that she could drink more. That appearance was also cute.</p>
+<p>"She usually doesn't drink much even when she goes to drinking parties, but I guess she's relieved because she has a boyfriend."</p>
+<p>"Oh, is that so?"</p>
+<p>Sohn Na-ri said, looking at the drunk Han Yu-gyeong as if she was amazed. Seeing her amazed expression, it seemed like Sohn Na-ri, who was a close friend, was also seeing Han Yu-gyeong drunk for the first time. She's my girlfriend after all. She even controls things like alcohol on her own.</p>
+<p>Eventually, Han Yu-gyeong, who was completely drunk, fell asleep in one corner, so I picked her up, took her to the bedroom, laid her down, and drank with the guests in place of the party host.</p>
+<p>Maybe it was because the host of the party was gone, but the party ended in less than an hour after I sent Han Yu-gyeong to the bedroom. I Yeon-ju took the employees, greeted me, and left, and Han Yu-gyeong's friends came into the bedroom, took pictures of Han Yu-gyeong sleeping drunk to tease her later, and left.</p>
+<p>I'm not drunk, but being among drunk people is a bit mentally exhausting. I sat on the bed where Han Yu-gyeong was lying face down. Han Yu-gyeong was lying face down, wearing a black T-shirt and jeans.</p>
+<p>"Should I try taking a trait?"</p>
+<p>Because my level went up with this Mutant Stray Dog event, I could take one trait. I hope a good trait comes out... I summoned the trait selection window and floated a semi-transparent window in front of me.</p>
+<p>Please select a trait.</p>
+<p>①Scout Fly Summon ②Master of Smelting ③Nimble Fingers</p>
+<p>Scout Fly wasn't a bad trait. Flies are not easily noticeable, so it's good for scouting, but it wasn't a trait I could use. If flies flew around me, the favorability of women would drop, so it was an even worse choice.</p>
+<p>Master of Smelting was a skill that blacksmiths could use, but in this modern mass production society, a blacksmith trait wasn't really necessary. If I mainly used cold weapons like swords, it was a trait worth getting to make custom weapons, but since I'm a fist fighting build, it was a trait I didn't need.</p>
+<p>Nimble Fingers wasn't bad, but it wasn't a particularly good ambiguous trait either. It does give a bonus to agility and nerves, but it wasn't a trait worth choosing over rerolling the Philosopher's Stone trait.</p>
+<p>The [Potential Enhancement] option of the item [Philosopher's Stone] can change the trait that can be selected by leveling up to a random trait of a higher grade. Would you like to change it?</p>
+<p>I rerolled the trait selection with the ability of the Philosopher's Stone. Then, the original trait list disappeared and a new trait appeared.</p>
+<p>Please select a trait.</p>
+<p>①Lightning Affinity ②Firearms-Shotgun Expert ③Sacred Pillar</p>
+<p>Um, Lightning Affinity would be perfect for Alik. It's a bit of a waste that it came out for me.</p>
+<p>Firearms-Shotgun Expert is a trait like Firearms Master, but it narrowly increases proficiency only with shotguns among firearms. It can be stacked with Master-Expert-Saint series traits, so it's a good trait if you get both, but I don't use guns often, so I passed it, and in the end, only the last one was left.</p>
+<p>Sacred Pillar... It's a trait I've never seen before, but it seemed to be related to the Golden Pillar. I chose a fist fighting trait last level up, so it was time to get a sex trait.</p>
+<p>I chose Sacred Pillar without much hesitation. I felt like my dick became a bit heavier. I immediately opened the status window and checked the trait.</p>
+<p>◆Sacred Pillar [Unique Trait]: A sacred aura of recovery dwells in the genitals. It invigorates, heals, and restores status abnormalities to the partner during intercourse.</p>
+<p>If healing is successful or recovery from a status abnormality is achieved, the partner's favorability increases.</p>
+<p>My dick has now become a healer dick. Does that mean that if there is someone who is seriously injured, I can just fuck them...? I can only use it on someone I'm somewhat close to. Also, I need to check how much the recovery ability is. It's a unique trait, so the recovery ability will probably be quite high.</p>
+<p>"Eueueung...!"</p>
+<p>I was thinking about the new trait when Han Yu-gyeong frowned and tossed and turned. Wait... Isn't being drunk a 'status abnormality'? Just like I don't get drunk because of the Abyss-Wrapped Body trait that rejects status abnormalities.</p>
+<p>Then, if Han Yu-gyeong being drunk is also a status abnormality, then I can 'cure' it with my dick... I'm really curious if it works?</p>
+<p>To solve my curiosity, I took off Han Yu-gyeong's pants, who was lying face down. Because she was wearing tight jeans, it wasn't easy to take them off. When I took off her pants, Han Yu-gyeong's big hips and butt in panties were revealed. The panties matched the black T-shirt and were also black.</p>
+<p>I admired Han Yu-gyeong's backside for a while, then pulled down her panties and gently put my finger in Han Yu-gyeong's pussy. Even if it's for treatment, I can't just stick it in right away, so I need to caress her to make it easier to insert my dick.</p>
+<p>*Jjeolkeok...!*</p>
+<p>A humid sound echoed in the hotel room. Han Yu-gyeong's pussy bit my finger tightly.</p>

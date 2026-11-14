@@ -5,100 +5,81 @@ weight = 316
 chapter = 316
 +++
 
-<p>Everywhere I turned, it was skin. Soft, squishy breasts pressed against my face, and multiple hands caressed my erogenous zones.</p>
-<p>Lying down, I took turns tasting lips I couldn't identify, and my dick was swallowed by pussies I couldn't identify, spilling white fluid deep inside.</p>
-<p>Moans echoed in my ears as if in chorus, accompanied by the sound of flesh slapping against flesh, responding in kind-cheolssak cheolssak.</p>
-<p>It was a frenzy different from the one I had with the succubus Yukiko, and I enjoyed the four bodies to my heart's content.</p>
-<p>At first, it felt like I was just lying there, lending out my lips and dick, but in the mid and late stages, I moved my body as much as I wanted.</p>
-<p>"Haaah! Ryuta, does your aunt's pussy taste good? Eheung, I love Ryuta's bulging dick, aheung...! It's so delicious♥"</p>
-<p>I spent plenty of time with Nae Fitzgerald, hearing plenty of dirty talk too.</p>
-<p>"Ryutaa! Hold me, hold me tight♥"</p>
-<p>I held Ha Ju-yoon tight, who was having a hard time because of the divorce and the Shin Gang Group's machinations, and we had lovey-dovey sex too.</p>
-<p>"T-This position is new to me, but please be gentle..."</p>
-<p>I did ekiben (standing sex) with the mysterious woman Nagumo Sian, who didn't have much experience yet, and I deliberately made her say a lot of lewd things.</p>
-<p>"It was a little strange, but I'm glad I gave Ryuta his second first time..."</p>
-<p>"You'll be even happier from now on."</p>
-<p>"Nooo! If I do any more, I'll become strange...!"</p>
-<p>I tormented Yukiko, who suddenly turned into a succubus and surprised me. What was fascinating was that every time I ejaculated inside her, the womb tattoo glowed faintly, showing how much energy was charged. It's not like an in-vitro fertilization is a battery charge. Funny.</p>
-<p>I did one-on-one sessions separately, or sandwiched two bodies together like a pussy sandwich, did seuma-ta with three of them, and had a luxurious paizuri close to an emperor, with one person licking my ass, and enjoyed an amazing 5P.</p>
-<p>In the end, we skipped dinner and shook our hips until almost nine o'clock before we could all lie down on the bed and rest. I was also exhausted and collapsed on the bed, and the other women were lying down, tired. However, perhaps because they all received my yang energy, their skin was all smooth and firm.</p>
-<p>"I'm hungry, I exercised so much."</p>
-<p>"Me too. What should we eat?"</p>
-<p>Ha Ju-yoon also seemed hungry and said to me while stroking her stomach. Um, stroking her stomach after sex feels a little strange...!</p>
-<p>But it's nine o'clock, so there probably aren't any regular restaurants open....</p>
-<p>"First, let's compensate the hotel for breaking the lock and go eat at a suitable store on the way home."</p>
-<p>"I'm sorry.... I'll pay for it."</p>
-<p>When the story about the lock came up, Yukiko spoke in a slightly dejected voice. I stroked Yukiko's back as if to say it was okay, and got up from my seat, dangling my dick.</p>
-<p>"First of all, everyone smells like they just had sex! Let's wash up roughly and meet up."</p>
-<p>It was a penthouse with two showers, so I said as I entered one of the showers. Since everyone couldn't wash up, some of them stayed lying down, and I watched Yukiko, who seemed the most energetic, enter the other shower before I entered the shower.</p>
-<p>"Ehehe...!"</p>
-<p>I was just getting hit by the warm water when Ha Ju-yoon laughed and came into the shower to get hit by the water with me.</p>
-<p>"We can wash up faster if we wash together, right?"</p>
-<p>"Okay. Let's wash together."</p>
-<p>As we washed each other's bodies with soap, I became erect without realizing it, but I was also hungry and everyone was waiting, so I finished showering without having sex and returned to the room with my dick standing tall and proud.</p>
-<p>"What's wrong? Why is it standing up again?"</p>
-<p>"I'm just full of energy."</p>
-<p>Nae Fitzgerald asked with a smile, so I answered vaguely and put on my clothes. Everyone showered, and Nae Fitzgerald and Ha Ju-yoon, who were famous, put on hats and masks and left the hotel room.</p>
-<p>I told the counter about breaking the lock and settled it with money, then put everyone in the car and had dinner at a 24-hour family restaurant with few customers, and arrived at the Institute for Talent Development's house.</p>
-<p>It was already late, so the housekeeper ahjumma had left work.</p>
-<p>"I'll guide you."</p>
-<p>"Yukiko-ssi, your house is nice."</p>
-<p>"Did you sell the house you lived in before?"</p>
-<p>"Hmm, it's nice, this is my first time here...."</p>
-<p>There was a guest room on the third floor, so the three women followed Yukiko's guidance, chatting with each other as they went to the guest room, and I lay down on my bed and raised the translucent window that had appeared in front of my eyes after having sex with the succubus Yukiko earlier.</p>
-<p>Great Achievement! You have destroyed the hymen of the succubus, a being of darkness and dreams. You have acquired 3 free stats.</p>
-<p>Great Achievement! You have become the master of the succubus, a being of darkness and dreams. Damage received from beings of darkness and dreams below the succubus's level is halved.</p>
-<p>Oh! You get an achievement even if you do it with a succubus? After reading it carefully, it seemed that you only get recognized for the achievement if you destroy the succubus's hymen and become its master, rather than just doing it.</p>
-<p>Then it seems like a pretty difficult achievement.... Frankly, finding a virgin succubus didn't seem easy at all. The words virgin and succubus don't match at all.</p>
-<p>But since it's not the first reward, it seems that someone has taken the virginity of a succubus during human history. Amazing, I don't know who it is.</p>
-<p>Maybe Yukiko got an achievement too? As a woman who lost her virginity twice....</p>
-<p>I should put the 3 free stats I got from destroying the succubus's hymen into strength, agility, and stamina one by one. I've been investing stats in will and resistance to prevent the side effects of the abyss, so I've been thinking that my physical abilities are lacking, so I should invest a little now.</p>
-<p>When I raised my strength, agility, and stamina stats, I felt my muscles twitch and get a little bigger. It would be nice if they got bigger to a moderate extent, because it's burdensome if they get too big.</p>
-<p>There was a story in the game community that increasing strength efficiency reduces the size of the muscles. I've also taken care of my physical efficiency quite a bit, so I don't think it'll get bigger than a certain level.</p>
-<p>Strength is a bit noticeable in terms of bulk, but agility and stamina can only be known by moving the body directly, so I was a little disappointed from the perspective of someone who invested stats. It's night, so I can't go work out right now.</p>
-<p>I was feeling disappointed when I heard a knock and my door opened. I looked to see who it was, and the person who opened the door was Nagumo Sian.</p>
-<p>"Nuna?"</p>
-<p>"It seems that I'm leaving this house the fastest, so they gave me tonight."</p>
-<p>Ah, Nagumo Sian has to return to Akita because of Taira Foods, so she'll be leaving tomorrow or the day after, and Nae Fitzgerald and Ha Ju-yoon seem to be staying a little longer.</p>
-<p>"Come here."</p>
-<p>I smiled and patted the bed next to me where I was lying. Nagumo Sian also said excuse me and lay down, resting her head on my arm and lying on her side, looking at me. She took a deep breath, hmm, and smiled.</p>
-<p>"As expected, Ryuta's scent is all over the blanket?"</p>
-<p>"Eh, do I smell?"</p>
-<p>Since it's my bedding, it's bound to smell like me. Nagumo Sian shook her head at my question.</p>
-<p>"It's a good scent. It excites women...."</p>
-<p>In short, it means that my pheromones are exuding. I'm glad it's not a bad smell.</p>
-<p>"Wouldn't it be better to smell me directly than the blanket?"</p>
-<p>"You're naughty. If you say that, I can't stand it."</p>
-<p>"You came to my room because you didn't want to hold back, right?"</p>
-<p>"Hehe. That's right."</p>
-<p>Before I knew it, the atmosphere became strange and we lightly touched our lips.</p>
-<p>"I'm not going to let you sleep tonight."</p>
-<p>"I have to go back to Akita tomorrow, so please be considerate."</p>
-<p>As expected, she's a busy career woman. She has to go back tomorrow. Then I can't let her sleep even more.</p>
-<p>"Then I'm not going to let you sleep even more."</p>
-<p>"Hehe, is that how it's going to be?"</p>
-<p>Another kiss, and a kiss. Gradually our actions became more intense. Nagumo Sian looked at me and opened her mouth.</p>
-<p>"I love you, Ryuta."</p>
-<p>"Me too."</p>
+<p>Kasaoka Yuzuki, as if possessed, looked at Taira Ryuta's stiffly erect dick again, reached out her hand, and opened her mouth.</p>
+<p>"I'll finish you off with my hand."</p>
+<p>After fellatio, paizuri, and somata, it was common to give a handjob if there was any stamina left, so Kasaoka Yuzuki said she would do it with her hand. At Kasaoka Yuzuki's words, Taira Ryuta hesitated slightly and opened his mouth.</p>
+<p>"Um... I'll pay extra, can't we do the real thing?"</p>
+<p>"Our establishment doesn't do the real thing. But..."</p>
+<p>Kasaoka Yuzuki was surprised by her own words. Why did she say "but"? She had vowed never to do insertion sex...</p>
+<p>Taira Ryuta sensed Kasaoka Yuzuki's wavering and was about to open his mouth to say something when the 90-minute alarm rang.</p>
+<p>BEEP BEEP BEEP BEEP!</p>
+<p>"Ah, 90 minutes have passed. I'll be going back...!"</p>
+<p>Kasaoka Yuzuki, relieved and yet a little disappointed by the alarm, wiped her pussy with a wet wipe and put on her clothes. Then, as if making an excuse, she opened her mouth.</p>
+<p>"I'm not the kind of woman who allows the real thing for 10,000 or 20,000 yen... You can't force me to do it."</p>
+<p>She packed her bag and stood up, and Taira Ryuta, who was wearing his underwear and a T-shirt, also got up and escorted her to the entrance.</p>
+<p>"By the way..."</p>
+<p>"Yes?"</p>
+<p>"What's your name? I'd like to know your name if I want to request you next time."</p>
+<p>Ah, so he's going to request me again... Does he like me? Kasaoka Yuzuki unconsciously wore an expression that seemed to look forward to this time next time.</p>
+<p>"My name is Yuzu."</p>
+<p>Kasaoka Yuzuki told Taira Ryuta the pseudonym she used at the shop and left the room. For some reason, her steps felt lighter on the way back.</p>
 <p>###</p>
-<p>20 minutes ago.</p>
-<p>"This is the guest room."</p>
-<p>The guest room that Yukiko introduced was quite excellent. It wasn't as good as the hotel's penthouse earlier, but there were four rooms on the third floor that were guest rooms, so there was a room where everyone could sleep.</p>
-<p>"First, let's talk for a while while Ryuta isn't here."</p>
-<p>"Ha Ju-yoon-ssi and I have something to talk about."</p>
-<p>Ha Ju-yoon and Nae Fitzgerald grabbed the women who were about to scatter to their respective rooms and opened their mouths.</p>
-<p>"We were talking about forming a joint front since Ryuta will have a lot of women around him."</p>
-<p>"That makes sense."</p>
-<p>"If it's these three, I don't have any major objections either."</p>
-<p>Nagumo Sian and Yukiko nodded at Nae Fitzgerald's words. The intention to maintain a joint front was good, as they could be defeated individually by other women if they were alone.</p>
-<p>"We don't have much time, so let's talk about it in a group chat and decide on a name first?"</p>
-<p>"How about Mankai Karen Rengo (満開花連合: Full Bloom Flower Alliance)? Everyone is like a lady in full bloom..."</p>
-<p>Full Bloom Flower Alliance. Everyone nodded as if it wasn't bad. Now, the Full Bloom Flower Alliance will maintain a joint front and keep other women who approach Taira Ryuta in check.</p>
-<p>"First of all, let's talk about it later and decide on the order of who will sleep in Ryuta's room first."</p>
-<p>Only 1 minute after forming the alliance. The four women all glared at each other. They were all sending the look that I have to sleep with Ryuta today!</p>
-<p>"I'm from Korea...."</p>
-<p>"I'm from Europe to meet Ryuta...."</p>
-<p>"I'm the homeowner...."</p>
-<p>"I'm tomorrow...."</p>
-<p>They said the reasons why they had to sleep in Taira Ryuta's room and didn't give an inch. After a dozen minutes of discussion, Nagumo Sian, who was returning to Akita tomorrow, ended up sleeping in Taira Ryuta's room, but everyone had a common thought in their heads.</p>
-<p>'Full Bloom Flower Alliance.... Will it really work?'</p>
+<p>"Hmm, it felt like it was going to happen..."</p>
+<p>I muttered, watching Kasaoka Yuzuki's back as she wiggled her big ass and left. I thought I was going to be swept away by the atmosphere, but it seemed like the sudden alarm woke her up. I activated the Black Maitreya Palm with all my might, so I thought she would be swept away by pleasure, but surprisingly, her mental strength seemed considerable.</p>
+<p>But this is unexpected. If she's doing this for money, the real thing would be quite profitable. She wouldn't have to share that money with the delivery health company.</p>
+<p>Maybe she's not doing it because of loyalty to her husband. If that's the case, it's a bit of a funny thought. She's already rubbed her naked body against me, there shouldn't be a big difference between inserting and not inserting.</p>
+<p>Well, it wouldn't be fun if she gave in right away. Still, I feel like some of the pent-up stuff has been released because a woman touched me, so I think I can wait a little longer.</p>
+<p>By the way, her pseudonym is Yuzu (柚子: Citron). She came up with it so casually that I almost laughed when she told me her name.</p>
+<p>I sat at my desk and opened the materials I received when I entered St. Francisco Girls' Academy, a book of academy faculty information that investigated the teachers. I hadn't looked at it before because I wondered why they gave me this along with the class studies to teach the students, but it was quite useful.</p>
+<p>Kasaoka Yuzuki.... Found her. Skipping the place of origin and high school, the latest trends section said that she was working at a brothel because of debt from buying a house and debt from being scammed. Let's see.... Her debt is considerable. Of course, it's not a lot of money for me, but it was quite difficult for ordinary people.</p>
+<p>"The Taira Group's information is incredibly accurate.... Amazing."</p>
+<p>I was so surprised that I said it out loud. This academy faculty information book.... You could call it a ledger. With this alone, you could have absolute power at St. Francisco Girls' Academy.</p>
+<p>Well, my goal isn't to have power at St. Francisco Girls' Academy... But it would be a useful resource if I had trouble with other teachers.</p>
+<p>Trouble because of a teacher... Ah, I wonder if there's information about Kasaoka Kouki who picked a fight with me?</p>
+<p>I reopened the folded academy faculty information book. I don't want to have power in the school, but I want to know the dirt on the guy who picked a fight with me. I hate being bothered.</p>
+<p>Since Kasaoka Yuzuki and him are a married couple, Kasaoka Kouki was right on the next page after Kasaoka Yuzuki.</p>
+<p>Kasaoka Kouki, a graduate of a French university.... Recent trends include messing with several of the female students he's teaching, and he has gambling debts. Geez, his wife is selling her body to pay off debts, and he's increasing his debts with gambling, what a terrible guy.</p>
+<p>If I subtly mention that he's messing with students, he won't bother me. I'm in a position where I have to mess with a student too, so I won't say anything more, but I don't know what to do if he bothers me more than that. He might disappear at some point.</p>
+<p>"Kkeueueuk...!"</p>
+<p>I stretched. No matter how many times I've shot my load, it was incomplete combustion unless I had sex. My body felt stiff.</p>
+<p>I want to work out a bit, but the downside of this house is that there's no place to work out inside. Then I should go to the gym, work out, buy dinner, and eat. It's a hassle to prepare meals every time, but it's fortunate that there are many restaurants around. Most of them are franchises though.</p>
+<p>I searched on my phone and found a gym nearby. It was a bit far, but the facilities looked good, as expected of a gym in Miyashi, where there are many rich people. I went outside in light clothes and went to the gym.</p>
+<p>###</p>
+<p>When I entered the gym, several female students from St. Francisco Girls' Academy who had just finished work and classes were working out quite hard.</p>
+<p>Several people glanced at me, but I took a seat at an empty machine and started working out. Everyone was surprised by the weight I was lifting, so attention was focused on me. Of course, I was used to this level of attention, so I continued to silently lift the weights.</p>
+<p>When I was doing the last set, someone approached me. I properly positioned myself and lifted the machine one last time, then got off the machine.</p>
+<p>The person who approached me was a woman with black hair and a pretty face. I couldn't see her eyes properly because she was lowering them almost to the point of squinting, but her beauty couldn't be hidden. The squinting woman was wearing leggings and a workout T-shirt, and even at a glance, she had a body that was not trained for health but trained for real combat, a body that could fight even now.</p>
+<p>"Are you going to use this machine?"</p>
+<p>"I came to see you."</p>
+<p>The squinting woman asked if I was going to use the machine and then said she came to see me. She seems to know who I am, but it's a bit much to talk while soaked in sweat, so...</p>
+<p>"I'll go wash up, so let's meet at the entrance of the gym building. Let's talk while having a meal or a drink at a family restaurant."</p>
+<p>The woman nods at my words. She's quite a taciturn woman... I went to the shower room, washed my body, changed my clothes, and then came out of the gym and went to the building entrance. The squinting woman was wearing a neat Kimono, where did the leggings she was wearing earlier go? Because she was wearing a Kimono that covered her whole body, the trained body I saw earlier was all covered up, so she looked like a very pitiful woman.</p>
+<p>The squinting woman widened her eyes a little more and looked at me when I came out of the building. She's prettier when she opens her eyes wide.</p>
+<p>"I worked out, so let's have a meal to replenish protein while we talk."</p>
+<p>"Yes."</p>
+<p>I went to a chicken sandwich franchise called Mom's Punch, a brand that came over from Korea, among the nearby franchises. The squinting woman followed me without saying a word. We ordered at the kiosk and then sat in a corner seat.</p>
+<p>"What brings you to me?"</p>
+<p>"I feel something familiar."</p>
+<p>Is this some kind of Zen riddle? Or is it some kind of hunting technique from a carnivorous woman?</p>
+<p>"I'm curious about a little more detail."</p>
+<p>"Ah, you... give off a similar feeling to Rinka."</p>
+<p>Oh, does she know my master? Her trained body and everything else made her look like she was working in the martial arts industry. Still, I need to confirm it accurately one more time.</p>
+<p>"Are you talking about Fujigasaki Rinka?"</p>
+<p>"Yes, I am Rinka's friend."</p>
+<p>My master's friend... I'm currently infiltrating the academy, should I tell her the truth...? I hesitated a bit, but decided to explain the situation and reveal my identity. If she's my master's friend, she must have considerable power, so I might be able to get help from her someday.</p>
+<p>"You were right about what you felt earlier, I am Fujigasaki Rinka's disciple."</p>
+<p>"Ah, I see..."</p>
+<p>Seeing her nod right away, it seemed like the masters felt a similar feeling to Fujigasaki Rinka because of the Shinkaiya Tsude that was ingrained in my body.</p>
+<p>"My original name is Taira Ryuta, but I'm currently carrying out a mission under the name Yamashiro Ryuta."</p>
+<p>"Ah, is that so? My name is Shimokawabe Airen."</p>
+<p>Shimokawabe Airen? I was so surprised to hear the squinting woman's words that I almost got up from my seat. One of the three people called the Three Swordsmen of Japan was Shimokawabe Airen. Of course, that was in TMC, which depicted a slightly more distant future.</p>
+<p>Along with Cyber Samurai Reito, and Dougo Asakura of the Asakura Group, one of the top 5 PMCs in the United States, Airen, the squinting woman, was one of the three Japanese people who were the best at swordsmanship in TMC.</p>
+<p>I should have recognized it right away when I saw her squinting eyes and trained body, I must have lost a lot of my senses for not noticing that.</p>
+<p>"But if you're on a mission in Miyashi... is it a mission at St. Francisco Girls' Academy?"</p>
+<p>Do I have to answer this too...? I decided to answer honestly for the sake of friendship with Shimokawabe Airen. After all, St. Francisco Girls' Academy is the only place to do a mission in Miyashi.</p>
+<p>"Yes, I am currently working as a Korean teacher at St. Francisco Girls' Academy with a certain mission."</p>
+<p>"Ah, I'm a home tutor, nice to meet you."</p>
+<p>One of the Three Swordsmen is a home tutor? The image in the game was so strong that I couldn't help but be surprised. A person who can cut a tank in half with one sword is a home tutor... She must be the strongest home tutor in Japan.</p>
+<p>-----</p>
+<p>Shimokawabe Airen</p>
+<p>She usually squints her eyes almost to the point of closing them ㅎㅎ</p>

@@ -5,70 +5,59 @@ weight = 230
 chapter = 230
 +++
 
-<p>"Kuh-euh, hng! I will never give in, euuung♥! If I get the chance... haaht! I'll kill you anytime, hng♥!"</p>
-<p>While saying that she would kill me and resisting with all her might, Dang So-hwa experienced two or three orgasms, and her reaction changed a bit.</p>
-<p>"Haa-euuht♥ Now, now, hyaaht! No more...! Hng, eungh-euuht♥"</p>
-<p>After giving her about three more orgasms here, her eyes rolled back, and she became completely dazed.</p>
-<p>"Hng♥ Dick, dick...! Joah♥"</p>
-<p>Now she had completely become a dick-parrot, only chanting "Dick joah♥." Seeing her standing there with trembling legs, dripping a mixture of white semen and vaginal fluids onto the floor, looking at me with glazed eyes, I felt somewhat proud. It was proof that I could turn the murderous glares from the beginning into this.</p>
-<p>It seems like the complete taming will be done by tomorrow or the day after, but to make good use of Dang So-hwa and Yang Seol-hui, I need to control them well so they don't become sex addicts. It seems to be working too well for my liking.</p>
-<p>...Looking at her now, it seems a bit late, but it will work out somehow.</p>
-<p>"Okay, this time, I'll feed it to you directly."</p>
-<p>Because I had ejaculated so much inside her pussy today, I was worried about pregnancy, so I put a birth control pill directly into her mouth, and I transferred the water from my mouth to hers.</p>
-<p>Dang So-hwa swallowed the birth control pill and then clung to me, desperately begging for a kiss, her tongue intertwined with mine. Because it was a kiss with mineral water in my mouth, the wetter, stickier, and more lewd sounds stimulated my ears.</p>
-<p>Chwaap, chyap, chuuup, chup, chup♥</p>
-<p>As we exchanged saliva and intertwined our tongues, my limp snake, which had been deflated by so much ejaculation, stiffened again, raising its head proudly and looking around for prey.</p>
-<p>But no matter how pitifully she clung to me, it was impossible to do more with Dang So-hwa. Even though her pussy was well-lubricated with her vaginal fluids and my semen, the mound of her pussy was flushed red, so doing more now would cause injury. Then there's only one person left here.</p>
-<p>I finished the kiss with Dang So-hwa, left some bread in Dang So-hwa's cage, locked it, and then entered Yang Seol-hui's cage.</p>
-<p>Yang Seol-hui, who had fainted from the excessively intense experience for a first time, had already woken up and was watching me and Dang So-hwa having sex, squirming and masturbating.</p>
-<p>"Did you loosen up your pussy well?"</p>
-<p>"Nehee♥"</p>
-<p>It seemed that Yang Seol-hui had also become submissive, watching Dang So-hwa being conquered in real time. Or maybe she was just unable to think properly due to continuous masturbation.</p>
-<p>"Please put it in my pussy like Daejang-nim♥"</p>
-<p>Unbelievably, Yang Seol-hui, who was a virgin until a few hours ago, started to seduce me, spreading her pussy wide open. As a gentleman, I couldn't refuse a lady's seduction. I grabbed my fully erect dick in one hand and slowly approached Yang Seol-hwa. As I approached, Yang Seol-hwa's face was filled with joy.</p>
+<p>Nae Fitzgerald-ssi squeezed me dry not just once, but three more times after the first go. Her body, honed by thievery, was so resilient that she could shake her hips without tiring while receiving my Semen inside her a total of four times.</p>
+<p>After shaking her hips for almost three or four hours, Nae Fitzgerald-ssi left with a satisfied expression on her glossy, radiant face. But even if the sleeping pill is strong, can it really last for three or four hours, especially with a total of four ejaculations?</p>
+<p>I may have been somewhat drained by a yang energy-starved married woman, but it wasn't a complete loss. Aside from filling up my experience bar with sex, Nae Fitzgerald-ssi was a veritable fountain of 음어 (eum-eo: lewd words) during sex.</p>
+<p>Of course, she only said arousing things, but if you piece together the various fragments hidden within those words, a certain narrative emerges. For example....</p>
+<p>,Auntie has work tomorrow night, so make sure to recharge with Ryuta's Semen filling your uterus♥,</p>
+<p>Or....</p>
+<p>,Huuuung.... Ryuta's dick, it's like that huge club I saw at the Metropolitan Museum...!,</p>
+<p>I wonder how someone so talkative during sex could pretend to be asleep when I was doing it. In a way, it's amazing how she held back all those things she wanted to say while pretending to be asleep, wouldn't you say?</p>
+<p>Anyway, piecing together the various fragments of information that Nae Fitzgerald-ssi revealed, it seems that the Phantom Thief François is planning to rob the Metropolitan Museum tomorrow night-or rather, in the wee hours of tomorrow morning.</p>
+<p>Then I should prepare a little too. I'll catch them both and give them a surprise. And if there are any good items, I might be able to snag them. I need to think about a plan.</p>
 <p>###</p>
-<p>The morning schedule on the third day at the villa was the same as usual, swimming, but it changed to visiting the shooting range because Yukiko got interested in shooting. Making her enjoy shooting was my intention from the start, so it was something to welcome. The gun I ordered in the middle will arrive around the day after tomorrow, so I couldn't help but smile like a dad when I thought about how much Yukiko would like receiving a surprise gift.</p>
-<p>"It seems to be getting more and more fun!"</p>
-<p>"I feel so proud that I introduced it to you if you enjoy it that much."</p>
-<p>She seemed to be enjoying it because she definitely had talent. I didn't find it that fun. I didn't show it much, so Yukiko didn't notice.</p>
-<p>After shooting, we returned to the villa and ate lunch prepared by the villa staff. Today, a clear seafood hot pot was served, so even though I didn't drink yesterday, I ate it refreshingly as if I were curing a hangover. After eating all the seafood, I added udon noodles and ate it, and I was quite full.</p>
-<p>When we finished lunch, Elder Fukami approached and asked.</p>
-<p>"What would you like for dinner tonight?"</p>
-<p>It seemed like he was asking because we had been eating dinner separately almost every time since we came to this villa.</p>
-<p>"We're going to eat out for dinner, so you don't need to come separately and prepare it."</p>
-<p>"Ah, I see. Is there anything about the meals we prepared that you didn't like...?"</p>
-<p>Elder Fukami asked with a worried expression at the words that we were going to eat out again. It seemed that the villa staff couldn't help but worry since we kept eating dinner separately, having cereal for breakfast, and only eating lunch.</p>
-<p>If we, the royal family of the Taira Group, were not satisfied, there was no need to use the current villa staff, so it was directly related to the issue of stable employment.</p>
-<p>"No. I'm very satisfied, but I came to the villa not only for vacation but also for sightseeing, so I can't eat dinner because I'm traveling around. I also eat simply for breakfast."</p>
-<p>Elder Fukami had a relieved expression at my answer. He must have been even more anxious because he was in a position to take responsibility for two more people, not just himself.</p>
-<p>From our perspective, we couldn't openly date, so we had to eat one meal outside because we scheduled a date every day during the vacation.</p>
-<p>"I'll eat dinner at the villa tomorrow, so please make it really delicious."</p>
-<p>"I understand. I will do my best to ensure you have a satisfying meal."</p>
-<p>Elder Fukami and Hashima Ajumma, satisfied with my answer, started to clear the table, so we got up from our seats. The schedule planned after yesterday's shooting was to go to a ranch 40 minutes away by car.</p>
-<p>It was a schedule planned by Yukiko, saying that as a member of the Taira family, she should know how to ride a horse as a cultural refinement. It was a time when the world was past World War III, but riding a horse was an essential refinement... It was a deplorable thing.</p>
-<p>After finishing lunch and taking a short break, we took the car to the ranch. After traveling for 40 minutes and getting out, the sweltering summer weather greeted me, compared to the air-conditioned car.</p>
-<p>From next year, I should spend the summer in Hokkaido or a cool place abroad. The summer weather in Japan seemed harder than in Korea. Of course, I was mostly indoors with strong air conditioning, but when there was an outdoor schedule like today, sweat dripped down.</p>
-<p>I registered for the beginner course and learned basic horsemanship, starting from getting on the horse, and Yukiko was good enough to ride a horse and run around, so she was riding a horse and running.</p>
-<p>Because this body's hardware is so good, I got the hang of it after learning for more than an hour or two, and I was able to ride a horse to some extent. After I learned to ride a horse to some extent, we had the experience of feeding cows, alpacas, sheep, and goats at the ranch in a date-like atmosphere.</p>
-<p>After petting and playing with the animals for a while, we ordered cream pasta and cream stew made with cheese and milk from the ranch at the store and restaurant in the ranch. Hmm, it felt more delicious because I met the cows and sheep that directly produce the cheese and cream raw materials.</p>
-<p>And then we stopped by a small souvenir shop next to it and bought things to commemorate each of us.</p>
-<p>The souvenir shop had dolls of the animals on the ranch and things like cheese and cream sauce made here. And for some reason, among the souvenirs, there was a set of a swimsuit with a cow pattern and a headband with cow horns being sold in one corner, so I bought it as if possessed. It seemed to suit Yukiko, who has big breasts, quite well.</p>
-<p>Yukiko bought a piece of cheese and an alpaca doll because she liked the cheese, and I didn't buy anything except for the cow set. Of course, Yukiko saw the cow set I bought and said, "Aicham!" blushing and slapping my arm, but I didn't regret it. Yukiko will definitely wear the cow swimsuit set.</p>
-<p>"Shall we go back now?"</p>
-<p>"Yes. It was fun today."</p>
-<p>"Hehe, me too♥"</p>
-<p>She looked very happy to have something similar to a date like this, after only having secret meetings at the Human Resources Development Center house every day. Because it was summer, the sun was setting late, so it was still bright even though we had dinner. It was only when we arrived at the villa that the sun was slowly setting into the sea.</p>
-<p>"We couldn't swim today, so shall we swim for a bit?"</p>
-<p>I nodded at Yukiko's words. We couldn't swim if it got too dark, but it was bright enough to swim for about thirty minutes now.</p>
-<p>Yukiko, excited at my nod, went up to the second floor to change into her swimsuit. She probably wanted to show me her swimsuits in the many luggage more than swimming.</p>
-<p>This time, it was a white gold bikini, the opposite of yesterday's gold black bikini. There was a cloth that slightly covered one thigh, so it looked a bit more modest than yesterday, but Yukiko's body itself was an explosive body far from modest, so it just looked sexy.</p>
-<p>I quickly threw off my clothes and put on my trunk swimsuit and walked along the beach with Yukiko holding hands. The sun was setting faster than we thought, so it seemed like we couldn't swim in the sea.</p>
-<p>"Let's just take a walk on the beach and swim in the pool in front of the villa."</p>
-<p>"I guess so. The sunset is already setting, so it will be dark soon if we wait a little longer."</p>
-<p>I looked at Yukiko while talking, and it was quite a picture. She was beautiful when she was wearing her swimsuit for the first time, but seeing Yukiko's appearance against the backdrop of the sunset sea made her look even prettier.</p>
-<p>Not to mention her appearance in a swimsuit, the gold decoration on her head also gave off a dazzling light as it collided with the sunset, further amplifying Yukiko's charm. I, who had been admiring Yukiko's appearance for a while, opened my mouth.</p>
-<p>"Yukiko-ssi, you look even prettier today."</p>
-<p>"Really?"</p>
-<p>"Yeah, pretty."</p>
-<p>Yukiko, who was happy, covering both cheeks with her hands, looked very attractive with her face blushing, whether it was because of the sunset or because she was embarrassed.</p>
-<p>We walked along the beach in silence until the sun had completely set. We didn't say anything with our mouths, but we exchanged many feelings in our tightly held hands.</p>
+<p>,You can fight them, but you can't win because of the large scythe the leader of the Shadowless Squad is carrying?,</p>
+<p>Otagi Yuka-ssi nodded at Eve's question. Her sensitive vampire instincts were fiercely warning her not to touch that greatsword, so she couldn't properly fight using her specialty, close combat.</p>
+<p>Having just one restriction was already difficult, but it became even more burdensome when the Shadowless Squad provided support from behind. Moreover, they even avoided fighting during the night when her power increased, so from Otagi Yuka-ssi's perspective, their actions were so infuriating that she was about to burst with frustration.</p>
+<p>,Then there's only one way! Yuka-ssi needs to use a weapon of the same caliber as the one the leader of the Shadowless Squad is carrying.,</p>
+<p>Otagi Yuka-ssi knew that too. But she couldn't bring her family heirloom, the 3 shaku 8 sun (114 centimeters) sword called Akagamikiba (Red God Fang), from Japan, and she didn't have any weapons she could use right now.</p>
+<p>,Where can I get such a weapon now? At this rate, I'll have to give up on revenge....,</p>
+<p>As Otagi Yuka-ssi sighed and spoke in a dejected voice, Eve patted Otagi Yuka-ssi's shoulder as if telling her not to worry. Of course, Eve was a hologram, so she couldn't actually touch Otagi Yuka-ssi, but Otagi Yuka-ssi smiled slightly at Eve's attempt to comfort her.</p>
+<p>,Don't underestimate me, Yuka-ssi. I'm the Dark World's AI, remember? I'll find a useful weapon for Yuka-ssi. Just wait a moment....,</p>
+<p>Otagi Yuka-ssi nodded at Eve's words. Otagi Yuka-ssi had unwavering faith in Eve, so if Eve said she would look into it, she would quietly wait.</p>
+<p>In fact, when Otagi Yuka-ssi came to New York without any particular plan after her friend went missing, she didn't gain anything. The friend's whereabouts, who kidnapped her, where she disappeared from.... She found out nothing while busily running around for a week.</p>
+<p>It was then that Eve of the Dark World contacted her. If a beautiful woman roams around various places in New York, trouble is bound to happen naturally, and the few fights that Otagi Yuka-ssi got involved in were caught in Eve's information network.</p>
+<p>Eve, who was looking for someone with strength to stop Kurotsuki-doo, who was trying to expand his power near the Dark World's New York branch, invited Otagi Yuka-ssi, who was wandering around without any clues, and had a conversation.</p>
+<p>If Otagi Yuka-ssi protected the area near the New York branch, Eve would find the whereabouts of Otagi Yuka-ssi's friend, or if the friend was no longer in this world, she would find the location of the body and the person who killed her.</p>
+<p>The two made a contract, and Eve found the friend in less than a second. She hacked into the photos taken before cremation at the New York unclaimed body repository.</p>
+<p>While Otagi Yuka-ssi went to collect her friend's ashes just before they were discarded, Eve found out that the person who kidnapped and killed her friend was Kurotsuki-doo. Coincidentally, Otagi Yuka-ssi and Eve had the same enemy.</p>
+<p>Since then, Eve and Otagi Yuka-ssi have been a great team, with Eve finding information and Otagi Yuka-ssi taking direct action. Eve's information was mostly accurate, so Otagi Yuka-ssi believed that Eve would be able to find a weapon suitable for her this time as well.</p>
+<p>,Oh! I found it! The Metropolitan Museum of Art is exhibiting pre-modern weapons from the East and West, and there....,</p>
+<p>Eve displayed another hologram, showing Otagi Yuka-ssi a sword. The hologram showed a large golden greatsword.</p>
+<p>,It's a sword found in an unknown ruin, and there's a story that comes with it. It's the story of a vampire with immense power who fought against the Knights of the Pama Temple (Demon Subjugation Temple Knight Order). Looking at the related content.... There are many passages in the Knights of the Pama Temple's records that say the vampire killed 15 knights by wielding a golden sword....,</p>
+<p>,Ah...!,</p>
+<p>,An ordinary person would think this record is just an unofficial history or a novel, but as a vampire, you would know the meaning of the Knights of the Pama Temple's records, right?,</p>
+<p>As Eve said, Otagi Yuka-ssi, being a vampire, knew that the Knights of the Pama Temple were a historic group of demon hunters who only hunted monsters, excluding humans. The fact that it was mentioned in their records meant that the golden sword was indeed a high-level weapon exclusively for vampires.</p>
+<p>,Okay, I'll go get this golden sword. Should I go right now?,</p>
+<p>,No, not now.,</p>
+<p>Eve stopped Otagi Yuka-ssi, who was eager to leave right away. Of course, Eve was in the form of a hologram without physical power, but Otagi Yuka-ssi didn't pass by Eve and stood in her place.</p>
+<p>,Even if you go out now, you'll have to fight Kurotsuki-doo's Shadowless Squad. It's daytime, which is advantageous for them. Since they said they wouldn't attack at night anyway, you can quietly go get it in the early morning after midnight. There are a lot of people and guards during the day, so even if you succeed, you'll be chased by the police instead of Kurotsuki-doo, you know?,</p>
+<p>,Early morning after midnight...! I understand. I won't go out today and focus on managing my condition inside.,</p>
+<p>Otagi Yuka-ssi, who readily nodded at Eve's words, decided to focus on conditioning herself for the theft that would take place early this morning. She went to her room prepared in the Dark World's New York branch to rest during the day.</p>
+<p>Eve looked at Otagi Yuka-ssi's retreating figure and opened her mouth.</p>
+<p>,I heard a large box arrived at the airport from China today, I hope this doesn't interfere with our work?,</p>
+<p>The data Eve was looking at was a steel coffin about 2.2 meters long and 90 centimeters wide, large enough for one person to fit comfortably. It arrived in New York this morning and was moved by a company related to Kurotsuki-doo, according to the information.</p>
+<p>###</p>
+<p>,With this, there's no need to retreat even at night.,</p>
+<p>The Shadowless Oni, shrouded in black mist, whose gender was unknown, stroked the steel coffin that had just arrived.</p>
+<p>The steel coffin was carved with intricate patterns, beautiful patterns carved by a master craftsman, but they felt very ominous to the average person. It was a beautiful but unsettling coffin.</p>
+<p>And who makes a coffin out of steel? Usually, coffins are made of wooden coffins that rot away, but the corpse that goes into this steel coffin will never rot and will not be able to find rest even in death.</p>
+<p>Naturally, these thoughts combined to create a tremendous sense of unease in this steel coffin, even for the average person.</p>
+<p>,Has Otagi Yuka-ssi not come out yet?,</p>
+<p>The Shadowless Oni asked while stroking the steel coffin. The aide standing behind him received a report on the radio and shook his head, opening his mouth.</p>
+<p>,She usually starts moving around from now on, but she hasn't been seen yet.,</p>
+<p>,We keep running away at night, so she's probably trying to be active at night. According to the story, the person Otagi Yuka-ssi is trying to kill is the head of our Black Moon Gang's New York branch, after all.,</p>
+<p>The aide nodded at the Shadowless Oni's words, as if he agreed that it made sense. The reality was completely different, but from the Black Moon Gang's perspective, they could only think this way.</p>
+<p>,It seems like that's the case, as the leader-nim said. Since we don't deal with her at night anyway, she might use that to attack the New York branch head.,</p>
+<p>,Then we should show them now. That we no longer need to run away at night.,</p>
+<p>The Shadowless Oni continued to stroke the steel coffin, discussing nighttime operations with the aide. The Shadowless Oni's eyes gleamed through the black mist surrounding him, and the gleam was an eerie blue light.</p>

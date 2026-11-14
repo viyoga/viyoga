@@ -5,80 +5,64 @@ weight = 916
 chapter = 916
 +++
 
-<p>At a similar time, the Reserve Unit 2 Team Office.</p>
-<p>Reserve Unit 2 Team Leader Izawa Atsumu (伊沢 厚六) was not very interested in fame, unlike Reserve Unit 1 Team Leader Saimura Tatsushi.</p>
-<p>Of course, Izawa Atsumu also knew that the Attack team would never ask for Help, and being a martial artist who disliked troublesome things, he thought this mission suited him perfectly.</p>
-<p>Anyway, there was no need to go out for support, and it was just a matter of waiting, so it was perfect for Izawa Atsumu, who hated troublesome things.</p>
-<p>So, after telling his team members to wake him if they received Contact, Izawa Atsumu unfolded a cot and had been lying asleep in a corner of the office since Morning.</p>
-<p>Whoosh!</p>
-<p>"W-What is this?!"</p>
-<p>Izawa Atsumu, who had been deeply immersed in sweet Sleep for a long time, was suddenly drenched in water, and had no choice but to wake up with a start.</p>
-<p>"What the hell is going on?!"</p>
-<p>"The sprinkler suddenly burst!"</p>
-<p>At Izawa Atsumu's Question, one of the Reserve Unit team members, also thoroughly soaked, spoke with a flustered Expression. At first, he thought his team members were playing a Prank on him, but seeing everyone in the office looking like drowned Mice, it seemed it was no Prank.</p>
-<p>"Did someone smoke a Cigarette under the sprinkler or something?"</p>
-<p>"No, sir...!"</p>
-<p>At Izawa Atsumu's Words, a Reserve Unit team member, also with a flustered Expression, replied. Water continued to pour from the sprinkler, and the administrative employees were in a frenzy trying to keep the computers from getting wet. In fact, as most of Anyaji were martial artists, there was no one smoking a Cigarette as Izawa Atsumu had suggested.</p>
-<p>Then, as white smoke entered through the Gap at the bottom of the office Entrance door, thinking the building was on Fire, Izawa Atsumu shouted.</p>
-<p>"One person go out and check if there's a Fire, then go to the Management Room or Facility Room!"</p>
-<p>"There's no Fire, so there's no need for that."</p>
-<p>Kki-ik.</p>
-<p>At Izawa Atsumu's shout, someone outside the door replied, opened the office door, and entered. A woman with white hair and pale Skin, wearing a unique Cyber Suit, entered the office along with the white smoke.</p>
-<p>"W-Who are you?!"</p>
-<p>Seeing the suddenly malfunctioning sprinkler and the white smoke that clearly wasn't a natural phenomenon, it seemed this white-haired woman who had just entered had caused something. Her Attire, not ordinary clothing, but a Cyber Suit with various Devices, was extremely suspicious.</p>
-<p>"You won't know even if I tell you, but since you asked a Question, I'll tell you. I am Asada Ei, Team Leader of Investigation Bureau Team 1."</p>
-<p>Asada Ei, who had left the Investigation Bureau General Situation Room to achieve merit, arriving at Reserve Unit 2, was all part of the Plan.</p>
-<p>For Asada Ei, the only Executive in the General Situation Room, to leave her post was a bit risky, but because Taira Ryuta, whom Asada Ei served, strongly desired to completely eradicate Anyaji as of today, Asada Ei had to take Responsibility for at least Reserve Unit 1.</p>
-<p>Due to the special Place called Miyashi, other forces like PMCs could not be deployed, so it was even Information Team Leader Asada Ei's Turn.</p>
-<p>Until the Last, they weighed Kijimoto Jurie against Reserve Unit 1 and 2, but unlike Reserve Unit 1, the office building had sprinklers installed, and because Reserve Unit 2 Team Leader Izawa Atsumu, who found everything troublesome, was asleep, there was a prediction that he might not even consume the Poison Kijimoto Jurie had prepared. Due to this, it was decided that Kijimoto Jurie would handle Team 1 and Asada Ei would handle Team 2.</p>
-<p>"Investigation Bureau? What's that?"</p>
-<p>As Asada Ei had said, Izawa Atsumu didn't know even after hearing it. In fact, not only Izawa Atsumu but the entire Anyaji didn't know the name 'Investigation Bureau'. Because they relied on external forces without proper Information power, it was a Situation where they had made a complacent Attack Plan.</p>
-<p>"You don't need to know. I have no intention of letting anyone here live anyway."</p>
-<p>"To say you can kill all of us alone, you must be a Crazy bitch!"</p>
-<p>Suddenly, Izawa Atsumu noticed that the white smoke that had been rising since earlier was around him. And he realized this white smoke was not smoke from a Fire.</p>
-<p>It was a fog like the white vapor from dry Ice. Izawa Atsumu felt his Body, drenched by the sprinkler, rapidly freezing.</p>
-<p>Wondering what was happening, even when he looked behind the door Asada Ei had opened and entered through, he saw no Machine emitting Cold energy anywhere. Then he realized something.</p>
-<p>This terrible Cold energy was coming from Asada Ei, who was from an unheard-of organization called the Investigation Bureau.</p>
-<p>"Everyone, kill this Woman! This bitch is emitting Cold energy!"</p>
-<p>Izawa Atsumu shouted and thrust out his fist. But Izawa Atsumu's fist, famous for being quite powerful within Anyaji, became incredibly slow, perhaps due to the Cold energy. Asada Ei, as if on a walk, dodged Izawa Atsumu's fist, then stretched her Hand towards the door.</p>
-<p>-Ei-ryu (氷流) Ice Flow Art (氷結術) Snowflake Diagram (雪花表).</p>
-<p>From Asada Ei's Hand, a palm-sized snowflake crystal formed, then shot out like a shuriken. And it embedded itself in the Body of an administrative employee fleeing the Cold energy. The administrative employee let out a Kueuk moaning sound, then soon collapsed, bleeding.</p>
-<p>"No one can leave."</p>
-<p>Asada Ei, at the same time as finishing her Words that no one could leave, stretched out her Hand again towards the Anyaji martial monks attempting to Attack her.</p>
-<p>-Ei-ryu (氷流) Ice Flow Art (氷結術) Ice Freezing Technique (氷柱生) Ice Pillar Creation.</p>
-<p>From the bodies of the soaked Anyaji martial monks, sharp icicles instantly formed, then pierced their comrades next to them.</p>
-<p>"Kuaaak!"</p>
-<p>The Anyaji martial monks, whose bodies were pierced by the sharp icicles, screamed in sharp, cold Pleasurable Ache, but Asada Ei didn't care. This was because she had to block other attacks aimed at her.</p>
-<p>-Ei-ryu (氷流) Ice Flow Art (氷結術) Ice Wall (氷壁).</p>
-<p>Instantly, the Moisture in the Cold energy fog condensed, becoming a thin Ice Wall that blocked the attacks against Asada Ei. And as the Ice Wall burst, the Anyaji martial monks who had attacked turned completely white as if covered in frost.</p>
-<p>"This bitch!"</p>
-<p>"Isn't it getting harder to move now?"</p>
-<p>Watching his Subordinates fall one by one, Izawa Atsumu, extremely enraged, disregarded his freezing Body and lunged forward.</p>
-<p>-Ei-ryu (氷流) Ice Flow Technique (氷結術) Silver Plate Journey (銀盤行路).</p>
-<p>Izawa Atsumu's Attack this time was a powerful Attack made with his best effort, so Asada Ei chose Evasion instead of Defense. Instantly freezing the Floor, she moved with immense speed, dodging as if sliding, Asada Ei created an Ice blade at her fingertips and, as she passed, severed the necks of the increasingly freezing Anyaji martial monks.</p>
-<p>"Th-This!"</p>
-<p>Izawa Atsumu, having lost his Fading Reason in anger, began to charge wildly. He threw office desks and fixtures that blocked his path as he charged, but his Feet were pierced by the Ice spikes Asada Ei had laid on the Floor.</p>
-<p>Even during that time, Asada Ei, like a figure skater on a silver rink, freely moved around the office, throwing Snow Flower Tables or cutting Enemies with Ice blades, slaughtering the Anyaji martial monks.</p>
-<p>In a short Time, Asada Ei, who had slaughtered everyone in the office except Izawa Atsumu, slid forward again towards Izawa Atsumu. As if his recent rampage was a lie, Izawa Atsumu's Gaze was completely clouded.</p>
-<p>"There's a lot to improve on in the future. Even with the Help of the sprinklers, it still takes Time to Neutralize a high-Level Opponent."</p>
-<p>Asada Ei, after hearing from Taira Ryuta that she was of the Seolnyeo Bloodline, searched her Mother's Family, who had given her that Bloodline, obtained an Ice Freezing Sorcery Scroll, and underwent Training. Asada Ei, who had combined original sorcery with modern Knowledge in her own way, created a new Ice Freezing Sorcery style called Ei-ryu Ice Freezing Art.</p>
-<p>However, because she hadn't experienced proper Actual combat, she had ventured out alone for this Anyaji Reserve Unit Attack.</p>
-<p>Of course, because the Investigation Bureau combat unit had come along nearby, if the battle didn't unfold as Asada Ei expected, she had intended to deploy them immediately, but with the Help of the pre-set sprinklers, she was able to grasp the advantages and disadvantages of Ei-ryu Ice Freezing Art in her own way, while simultaneously eliminating the Enemies.</p>
-<p>"Thank you for providing various Data. Information is always important, you see."</p>
-<p>Speaking like a Team Leader of an Information unit, Asada Ei threw a Snow Flower Table at Izawa Atsumu's Furrowed Brow. Izawa Atsumu, whose body temperature had already dropped and whose Mind was hazy, lost his Life to Asada Ei's single blow.</p>
-<p>"Haa...."</p>
-<p>Asada Ei began to absorb the surrounding Cold energy again. Then, the Appearance of the office, which had been obscured by the Cold energy fog, was revealed. As if that was the Signal, the waiting Investigation Bureau combat unit members entered.</p>
-<p>"Please take care of the aftermath."</p>
-<p>Asada Ei spoke to the entire unit and left the office. No matter that they were a combat unit, since they were affiliated with the Investigation Bureau, they could handle the aftermath skillfully.</p>
-<p>Asada Ei immediately picked up the phone and made Contact with the General Situation Room. Even though she was a Team Leader, since she was out in the Scene, she had to make a Report.</p>
-<p>"Reserve Unit 2 Attack completed."</p>
-<p>At Asada Ei's Words, someone on the other end of the Phone Call said something. No one but Asada Ei could hear the content clearly, but the tone heard from the phone seemed very urgent.</p>
-<p>"Team A? Understood. I'll return as quickly as possible."</p>
-<p>Asada Ei, who hastily hung up the phone, shouted to the combat unit, who were still tidying up, "I'll go first!" and began to descend the stairs in a hurry. Asada Ei, who had remained almost expressionless even in battle, now wore a very urgent and anxious Expression. This was because the member of Team A was none other than her superior and savior, Taira Ryuta.</p>
-<p>Asada Ei B-cut!</p>
-<p>Requested by TheDreaming-nim, Kirie participating in a naked body Fighting competition~!</p>
-<p>Kick~!</p>
-<p>Phone camera version~!</p>
-<p>Since it's a wrestling ring prompt, she automatically wears shoes and knee pads haha.</p>
-<p>Requested by MidNightSKY-nim, Liz researching Attire to Seduce Ryuta~! The bikini with an open bottom needed seaweed attached, so I just made it a regular bikini haha.</p>
-<p>Kkiyot haha</p>
+<p>and are breast check exposure please surroundings there your</p>
+<p>At Haneda Airport, a man with dull blonde hair and brown skin disembarked from a chartered Airplane. He was a rather large-Physique, quite handsome Latin American Mixed Blood man with features uncharacteristic of a Japanese Person, and a confident Expression that exuded arrogance suited him well.</p>
+<p>The Mixed Blood man who disembarked from the Airplane naturally boarded a limousine directly, without even going through the immigration Registration Process. His Appearance was so natural that he showed no hesitation in using the Privilege granted to him.</p>
+<p>"Was your Flight comfortable, Young Master?"</p>
+<p>"I have Age now, so how long will you keep calling me Young Master? I'm the Taira Corporation South America Branch Manager, so please call me Branch Manager."</p>
+<p>The Mixed Blood man grumbled and complained when the driver called him Young Master. The driver, slightly flustered, apologized, saying, "I apologize, Branch Manager-nim." If it were his original Personality, the Mixed Blood man would have immediately fired or harmed the driver, but this driver was his Father's Person and someone he had known since childhood, so he let it slide.</p>
+<p>"It's fine. You've seen me for a long time, so it can't be helped. Please drive."</p>
+<p>"Understood, Branch Manager-nim."</p>
+<p>As the car departed, the Mixed Blood man picked up his phone. He immediately pressed the Call button, and the screen displayed 'Father'.</p>
+<p>-Have you arrived?</p>
+<p>The Voice of the one who gave a nonchalant greeting in three Words to his Son who had returned to Japan was none other than Taira Ichiro's, the first of the three Taira Successors.</p>
+<p>"Yes, Father."</p>
+<p>The Latin American mixed-race man named Taira Ichiro was actually Taira Gensuke (平 賢介), Taira Ichiro's second son. After Taira Sayo, Taira Ichiro's first wife, passed away, Taira Ichiro married a woman from a family involved in various businesses in Brazil. This woman, Taira Camila, is Taira Ichiro's current wife. Taira Gensuke was the son born to Taira Ichiro and Taira Camila, and he served as the South American Branch Manager of Taira Corporation, thanks to his mother's Brazilian connections.</p>
+<p>Taira Gensuke felt a sense of rivalry toward Taira Tabenobu, the first son of Taira Ichiro and the son of the late Taira Sayo. Since his older brother, Taira Tabenobu, was active in North America, Taira Gensuke worked even harder in South America to surpass him. This time as well, he had completed several tasks in Brazil, and since those tasks had gone very well, he could confidently call his father, Taira Ichiro.</p>
+<p>"Father, the matters in Brazil have all been resolved well. An Analysis has shown that our market share can increase by an additional minimum of 5 percent to a maximum of 12.5 percent because of this Work."</p>
+<p>-Well done.</p>
+<p>Even though Taira Ichiro's Words conveyed almost no Emotion, Taira Gensuke felt good about his Father's brief Praise. As Taira Ichiro usually had a calm Personality, it was very rare for him to give Praise.</p>
+<p>-But what brings you to Japan? I thought you would be in Brazil for a while.</p>
+<p>Taira Gensuke smiled at Taira Ichiro's Question.</p>
+<p>"My Sabu-nim suddenly passed away. I had some people I needed to take Responsibility for, so I ended up coming to Japan."</p>
+<p>Even while saying that his Sabu had died, Taira Gensuke did not wipe the Smile from his Face. Taira Gensuke's Sabu was none other than Takakusaki Gengo of Anyaji. Eight years ago, not long after World War III began, Taira Ichiro paid a large sum of Money to Takakusaki Gengo, who needed funds to create Anyaji, and made him his Son's martial arts teacher. Taira Gensuke, possessing outstanding Talent, was able to admirably inherit Takakusaki Gengo's martial arts.</p>
+<p>Because Taira Gensuke had the prestige of being of the Taira Group's Direct Lineage, he rarely interfered in the affairs of Anyaji, a Fist Technique practitioner group, but he gave his Sabu several tasks, contributing significantly to Anyaji's growth. Taira Gensuke received Takakusaki Gengo's Help for this Brazil Work. And after a brief Story, he realized that Takakusaki Gengo was about to make a do-or-die Match. So, he took measures to have his forces in Japan watch the Anyaji headquarters and, the moment it was attacked, extract the Branch people. After extracting the forces from the Anyaji Branches, he tried to Contact his Sabu, Takakusaki Gengo, but the Phone Call was not answered. And after making Contact through various sources, he heard the news that his Sabu had been killed by unknown Enemies.</p>
+<p>Although the core forces at the headquarters, which his Sabu possessed, had disappeared, this measure allowed him to absorb the Manpower from the nationwide Branches under his command. Takakusaki Gengo was already dead, and with the Justification of being Takakusaki Gengo's Disciple, he would be able to easily absorb the personnel from Anyaji's Branches. Fist Technique practitioners, unless they were incredible Masters, were useless, but since they were already sufficiently trained, if they were simply given Guns, they could be used as a considerable Strength. He already didn't have much influence in Japan, where it mattered, due to his activities in South America, so this absorption of Anyaji's nationwide Branch Manpower felt like a welcome rain after a drought.</p>
+<p>-...Is that about Gengo, that bastard? Understood. While you're here, clean things up well and attend the March competition before you leave.</p>
+<p>Ichiro hung up the Phone Call, leaving only the Words to attend the competition. Normally, attending a competition where his scary Grandfather was present would be an unpleasant task, but this time, since he had achieved considerable Achievements in the South America Branch, he would likely receive Praise for doing well.</p>
+<p>In a dark space, like a prison, someone was bound by chains.</p>
+<p>Kkii-iik.</p>
+<p>With the sound of a door opening, someone entered. The one who entered was an unidentified man wearing a hooded Robe; his Physique indicated he was a man, but his True Identity was unknown as the hood was pulled down deep.</p>
+<p>Behind the unidentified hooded man, several skinny people grunted and carried a box. They were naked men, looking like slaves who existed before the modern era.</p>
+<p>"Dress him."</p>
+<p>At the hooded man's Words, the skinny slaves opened the box they had brought. Inside the box was Armor with a black sheen. The skinny slaves picked up each piece of Armor one by one, approached the man bound by chains, and began to dress him in the Armor.</p>
+<p>Clink, Clink went the sounds as each piece was put on, and when the Helmet that completely covered his Face was finally placed, the bound man's Appearance had become that of the Black Knight, one of the most famous Heroes in the World today.</p>
+<p>Woong...!</p>
+<p>If it were just Armor, one might think it was a cosplayer, but the dark navy Aura, which could be called the Black Knight's trademark, began to emanate from between the Armor pieces.</p>
+<p>"Hmm.... Good."</p>
+<p>The hooded man watched the man in Black Knight Armor for a while, then nodded his Head with a good Mood and spoke. Listening to his Voice, it was that of a quite elderly Elderly Person.</p>
+<p>Ttak!</p>
+<p>The hooded Elderly Person snapped his finger. At the same Moment, the chains restraining the man in Black Knight Armor were released and fell to the Ground. The man in Black Knight Armor, having gained Freedom, immediately rushed at the hooded Elderly Person, but when the hooded Elderly Person snapped his finger again, he could no longer move, as if blocked by an invisible wall, and knelt on the spot as if a giant hand was pressing him down.</p>
+<p>"Heh heh, you'd best give up any thought of defiance."</p>
+<p>The hooded Elderly Person said, looking at the man in Black Knight Armor who was kneeling. The hooded Elderly Person, who had been cackling unpleasantly for a long time, snapped his finger again, freeing the man in Black Knight Armor. This time, the man in Black Knight Armor stood silently, watching the hooded Elderly Person. However, the Killing Intent that flared up was even fiercer than when he had just rushed forward.</p>
+<p>"Heul heul heul...! As I promised, if you obey my Order for just three years, I will set you free. Soda, no..... New Black Knight-yeo."</p>
+<p>The hooded Elderly Person gestured with his Hand as if telling the man he called the New Black Knight to follow, then opened the prison door and went Outside. The skinny slaves who had entered with the Elderly Person also rolled their Eyes, showing Awareness, then quickly went Outside.</p>
+<p>"...."</p>
+<p>The New Black Knight hesitated for a Moment. The Freedom to walk freely was a very minor thing, but even such a minor Freedom was so long overdue that moving itself felt awkward. But soon, he slowly walked out of the prison.</p>
+<p>"Hurry up! There are many things to do starting today."</p>
+<p>The hooded Elderly Person urged the New Black Knight. And he displayed a large hologram screen on the desk where he was sitting. A map of a certain City was displayed on the hologram screen.</p>
+<p>"Today, kill all living things in this Place, this Place, and this Place."</p>
+<p>The hooded Elderly Person pointed to several Places and spoke, but the New Black Knight did not move. The hooded Elderly Person was a ruthless bastard who had no Interest in human life, but the New Black Knight was not. Killing all the People in those Places was something impossible for him.</p>
+<p>"Hehehe, don't worry. They're all bastards who deserve to die...! Two are Drug Organizations, and the other is a bunch of guys who kidnap people and Brainwash them, so you can take them out without any Guilt."</p>
+<p>The hooded Elderly Person said with a Smile.</p>
+<p>"Since you're a Hero, you should do heroic Work...! Of course, I'll gain profit behind the scenes, though."</p>
+<p>At the hooded Elderly Person's cackling, the New Black Knight stared at the hologram map for a Moment, then went Outside.</p>
+<p>"You'll have to do it quickly! If you don't return within the Limit, the Armor will explode!!"</p>
+<p>The hooded Elderly Person shouted, watching the New Black Knight leave the Home. And after cackling for a long time again, he sent the skinny slaves after the New Black Knight. This was so that when the Black Knight dealt with the gang and human trafficking Organization, they could retrieve the items from that Place. Several hours later, news reports began to pour in that the Black Knight, who had disappeared since last year, had appeared in New York.</p>
+<p>TheDreaming-nim requested 1. Seari running on a forest path 2. Seari dancing Zero Two in the forest~!</p>
+<p>1.</p>
+<p>When I included 'people from', shirtless hikers came running after her, so I just deleted them haha.</p>
+<p>2.</p>
+<p>Gojoy-nim requested Nagumo Sian in a breast-emphasizing pose and a bra-removing pose in the kitchen~!</p>
+<p>Breast emphasis~!</p>
+<p>Bra removal~!</p>

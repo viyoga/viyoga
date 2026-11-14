@@ -5,62 +5,75 @@ weight = 218
 chapter = 218
 +++
 
-<p>We split into two cars and headed to Akita Airport.</p>
-<p>Akita Airport was on the outskirts of Akita City, so it was quite close to Daisen City. The hotel where the children rescued from Kraskino were staying was a 10-minute drive from the airport, so we had to go a little out of our way. But since we had left with plenty of time to spare, going 10 minutes out of our way wouldn't make us late or anything.</p>
-<p>,Ah! They're all standing there!"</p>
-<p>Sawayanagi Seari shouted as she looked out the window. She seemed quite happy at the thought of making new friends. She had been looking out the window the whole way to the hotel.</p>
-<p>The car stopped, and we all got out. Konoe Akina and everyone else were standing there with slightly nervous expressions. I got out first and spoke with a smile.</p>
-<p>,What are you all so nervous about?"</p>
-<p>,Ryuta-nim!"</p>
-<p>,Yongtae-hyung!"</p>
-<p>,Ryutta...!"</p>
-<p>Still, they seemed to relax when they saw my face, the one who had rescued them from the slave traders. I first stroked Alexandra Smirnova's beige hair, who had come up to me, and introduced the children rescued from Kraskino and the Seryutai people.</p>
-<p>,Okay, this is the president of Seryu Military Company...."</p>
-<p>First, I introduced the Seryutai people, and then the children. It was a little stifling to see them greeting each other awkwardly, but since they had all been trapped underground with Konoe Akina, they could all speak Japanese, albeit clumsily, so there were no major communication problems.</p>
-<p>,Jinha, Sawayanagi Tobe here has a similar steel-hardening ability to you. It will be good for you to learn."</p>
-<p>I paired Choi Jinha, who had the petrification ability, with Sawayanagi Tobe, and Kim Youngchan, who had the clairvoyance ability, with the sniper Sawayanagi Mikiyo. If we successfully recruit Yang Xueshi, we can pair him with Kim Youngchan later.</p>
-<p>,Dooyoung-ah. Katayama Junichi, who will be your mentor, is loading the luggage and moving in a vehicle, so you can meet him in Tokyo."</p>
-<p>Lee Dooyoung, who had regeneration ability, was going to be entrusted to Katayama Junichi, who didn't have an ability but worked the hardest on physical training, but he wasn't here right now. Kiyona Hori, Kiyona Mari sisters, Katayama Junichi, and Sawayanagi Shigeru were on their way to Tokyo by car, so we couldn't see them now.</p>
-<p>Konoe Akina was going home, so there was no need to assign her a mentor, and Jung Dalim had a slightly different category of ability, so there was no one to assign as a mentor.</p>
-<p>Alexandra Smirnova had a similar nature-based ability to Sawayanagi Seari, but while Sawayanagi Seari's ability was to communicate with the surrounding wind, Alexandra Smirnova's current ability was to emit electricity from her body, so it was a little different. It would be better for me to advise them both.</p>
-<p>The children all got into the car with their respective mentors, and the remaining children without mentors got into the vehicles they wanted. Choi Jinha and Kim Youngchan, whose mentors were in the back car, got into the back car, and Lee Dooyoung, who had a mentor assigned but hadn't come, followed two close guys into the back car.</p>
-<p>Of course, Konoe Akina, whom I wouldn't see much after today, got into the front car I was in, and Alexandra Smirnova, who somehow followed me well, sat next to me in the front car and stared at me intently.</p>
-<p>Jung Dalim just seemed to be spacing out, looking at the pot containing the seeds of the Juangwa I had given her. She must have bought the pot during the Akita City outing yesterday.</p>
-<p>,Ah... I'll ride in the front car too."</p>
-<p>Once everyone, including Jung Dalim, who said she would ride in the front car where there were more familiar people, got in, we were able to depart for the airport.</p>
-<p>,Ryuta-nim, here."</p>
-<p>Konoe Akina politely returned the cash card I had given her. I took the card and asked.</p>
-<p>,What did you do yesterday?"</p>
-<p>,We ate delicious food, bought clothes, and then stopped by each place we wanted to go."</p>
-<p>Each place they wanted to go? They must have been quite busy yesterday. According to Konoe Akina's story, Lee Doomyung, whose stomach had grown due to his regeneration ability, went around snacking a lot, and Choi Jinha and Kim Youngchan both went to the game center, where Choi Jinha did things like punch machines to relieve stress, and Kim Youngchan played FPS games.</p>
-<p>Jung Dalim went to a large mart and bought a pot, then mixed various soils and planted the Juangwa seeds she was carrying. My guess was right after all.</p>
-<p>Alexandra Smirnova and Konoe Akina didn't really have any place they wanted to go, so they stopped by a cafe, which happened to be a maid cafe. Konoe Akina had been there for the first time, but she knew that such a place existed, but Alexandra Smirnova went to the maid cafe and was shocked by something, and after coming out of the cafe, she said that she wanted to become a maid herself.</p>
-<p>,Alik wants to be a maid."</p>
-<p>Alexandra Smirnova looked at me intently and said when the maid story came up in the middle of Konoe Akina's story. Looking at those innocent eyes, I couldn't say that the maids in the maid cafe weren't real maids.</p>
-<p>Thinking about it, Kiyona Hori Mari sisters said that they still go to maid cafes these days, so I can ask them to get me a maid outfit.</p>
-<p>,But why does Alik want to be a maid?"</p>
-<p>I was curious as to why she wanted to become a maid, so I asked, and Alexandra Smirnova kept looking at me. Could it be that she wants to become a maid because of me?</p>
-<p>,Ryutta, Alik saved. Alik wants to make delicious things for Ryutta."</p>
-<p>That's so cute. I couldn't believe that this cute child was the mid-boss who had caused so much pain to countless users.</p>
-<p>I succumbed to Alexandra Smirnova's cuteness and nodded without realizing it. Well, I'll get clothes from the Kiyona Hori Mari sisters and have her try them on, and if she wants more, I'll send her to a school or invite a chef to teach her how to cook.</p>
-<p>Still, she thinks quite highly of the fact that I saved her. Following Alexandra Smirnova, Dang Sohwa can also be on my side, so two mid-bosses can already be on my side.</p>
-<p>,Thank you. I'll be waiting for the day Alik makes me something delicious."</p>
-<p>I stroked Alexandra Smirnova's hair once more. Alexandra Smirnova closed her eyes and enjoyed my touch, like a cat being petted by its owner.</p>
-<p>,I, I took good care of the kids too, so please pet me!"</p>
-<p>As I was stroking Alexandra Smirnova's hair, Konoe Akina pushed her head towards me. Oh, I'm sure something like this has happened before. I had no choice but to stroke Konoe Akina with my remaining hand.</p>
-<p>,Investor-nim!"</p>
-<p>,Seari also likes being petted...."</p>
-<p>Sawayanagi Azuma and Sawayanagi Seari also looked at me and the two being petted with jealous faces and opened their mouths.</p>
-<p>I admit that I'm a little neglectful of Sawayanagi Seari, but I gave Sawayanagi Azuma a much more intimate pussy stroking(?), so it was a little funny that she was feeling jealous about just a head pat.</p>
-<p>,I'll do it for both of you later."</p>
-<p>They both had slightly dissatisfied expressions at my words, but they nodded. Then they stared intently at Konoe Akina and Alexandra Smirnova, who were now being petted. Konoe Akina didn't give in to their gazes and sent them a villainous young lady's gaze, as if saying, "Oh ho ho! What's going on?" And Alexandra Smirnova didn't know about Sawayanagi Azuma and Sawayanagi Seari's gazes because she had her eyes closed and was enjoying my touch from the start.</p>
-<p>Fortunately, the discomfort was only temporary. It was because we soon arrived at the airport. After getting out of the car, Sawayanagi Sinya contacted Mimata Chieri to load the boxes containing Dang Sohwa and Yang Xueshi into the cargo hold as she had prepared in advance, and soon workers appeared, carried the boxes away, and loaded them onto the plane.</p>
-<p>And since everyone had purchased first class tickets, we went to the airport's first class lounge for a quick bite. In the end, I had no choice but to stroke Sawayanagi Azuma and Sawayanagi Seari's heads at this time. Fortunately, they were quickly satisfied with just a little stroking and went to get food in the first class lounge.</p>
-<p>Seeing how much they like being stroked on the head, I should pay a little more attention to them. Sawayanagi Azuma is naturally the leader of Seryutai, so I have to pay attention to her, and Sawayanagi Seari has the highest potential in Seryutai, so it's better to pay attention to her than to leave her alone.</p>
-<p>After eating and talking in the first class lounge for a while, it was time to board the plane. Konoe Akina was sitting next to me, and she had a complex and subtle expression as she looked out the window at the plane taking off.</p>
-<p>,You'll be going home soon."</p>
-<p>,Yes, I miss my parents."</p>
-<p>,It won't be long, so just bear with it a little longer."</p>
-<p>Looking at Konoe Akina's red eyes, which were slightly teary, my nose also tingled slightly. Hmm, I should stop by Jinmija-ssi for a while when I return to the Talent Development Center. I had Juangwa delivered from Seoul to the Talent Development Center to give to Jinmija Yeosa, so I'll give it to her.</p>
-<p>----</p>
-<p>Alexandra got younger</p>
+<p>I don't know what system allows the hologram to move so freely, but Eve-ssi came all the way to the entrance to greet me. I have no idea why, but Eve-ssi was welcoming me. I don't even have any AI data this time, so she's not expecting to get more AI data again, is she?</p>
+<p>"Ryuta-nim, please come this way, and Chieri-nim, please come this way!"</p>
+<p>Eve-ssi guided each of us to a counter seat. At the counter seat where Chieri, no, Mimata Chieri went, a new hologram of Eve-ssi appeared and was introducing herself to Mimata Chieri, who was visiting for the first time. It seemed that Mimata Chieri's Dark Trade app ID was Chieri.</p>
+<p>"But why are you welcoming me so much?"</p>
+<p>"Ahaha, hardly anyone comes to the New York branch these days. There are ominous rumors going around this area...."</p>
+<p>This area has a port and the Dark Trade, so the security shouldn't be bad. What's going on? If Eve-ssi, who is the Dark Trade itself, says it's ominous, it must be really ominous.</p>
+<p>"Can you tell me what the rumors are?"</p>
+<p>"Well, I'd normally have to charge points, but since you're a customer who frequents this place, I have a duty to provide basic security information, so I'll tell you for free."</p>
+<p>Well, the grade to come to the Dark Trade branch is from Plus grade members, so they have to notify the excellent members who come here so they aren't in danger.</p>
+<p>"An unknown... like a vampire, is attacking the Kurotsuki-doo New York branch. Ryuta-nim is Asian, so you might be mistaken for Kurotsuki-doo by that vampire-like being, so be extra careful."</p>
+<p>A vampire.... A historic monster that has been with humanity since the beginning, a terrifying ghost that sucks blood, just like the name says. Well, strictly speaking, it's not a ghost, though.</p>
+<p>As a monster, it was quite strong and had a lot of annoying characteristics, so fighting it was annoying, so it was better not to deal with it.</p>
+<p>I almost got tangled up with a weird guy. I have to be careful. It would be nice if Kurotsuki-doo fought that vampire bastard. Dang So-hwa will try to eliminate the new organization, but since they have to focus their efforts here, it will be easier to buy time.</p>
+<p>Dang So-hwa needs to settle down well while Kurotsuki-doo is in trouble. I should tell her this news after I leave the Dark Trade.</p>
+<p>"Okay. I'll be careful."</p>
+<p>"Yes, please be careful not to get hurt. Then I'll open the catalog for you now!"</p>
+<p>With Eve-ssi's words, a hologram window opened and a list of numerous items appeared. Hmm, there are so many items that I need to narrow it down a bit?</p>
+<p>"Show me old books, relics, unusual materials, and weapons. Oh, and elixirs too."</p>
+<p>"Yes! Please wait a moment."</p>
+<p>As expected, a moment for Eve-ssi, the world's top AI, was an instant. As soon as she finished saying "Please wait," new categorized lists reappeared. It was still long, but it was manageable to look through.</p>
+<p>"Hmm."</p>
+<p>Is it because there are so many people in New York that there are so many eyes looking? The list was long, but I didn't see any good items that I knew of. Or maybe the auction is not far away, so people are putting items up for auction, and the seeds of good items have dried up.</p>
+<p>Still, after flipping through a few pages, I found a few things worth buying, so I chose about three items.</p>
+<p>The first was a relic called the Allying Music Box. It was a relic for alarms, and when someone with evil intentions came nearby, the music box would move and make a sound.</p>
+<p>And the next was a book called The Art of Combat (Kunst des Fechten), which contained the secret swordsmanship of Johannes Liechtenauer, a German sword master. I remember it being about the same grade as Gok San-pa's Gale Sword Technique, so it's more profitable to buy it.</p>
+<p>However, Liechtenauer was more famous worldwide than Cheok Jun-gyeong, so it was more expensive than Gok San-pa's Gale Sword Technique.</p>
+<p>Finally, there was a liquor made in the Middle Ages called the Elixir of Power. It was said to have been made in some monastery, but I just bought it because the name was Elixir of Power. If it's an elixir that permanently increases strength, that's great, and even if it's a buff-type potion, it's quite useful. Even if it's neither, it's a very old liquor, so it should be worth something.</p>
+<p>"Give me the music box and the Elixir of Power right away, and ship the book to the registered address."</p>
+<p>"I'll get the music box and the Elixir of Power ready for you before you leave. Before that, I have a proposal for Ryuta-nim."</p>
+<p>A sudden proposal? What's going on? I don't remember this kind of event in the Dark Trade in the game....</p>
+<p>"What proposal?"</p>
+<p>"We'd like to receive mithril from the mithril mine that Ryuta-nim recently acquired."</p>
+<p>I was curious how they knew I had acquired a mithril mine, but since I was going to develop the mine anyway, it was important to find a supplier, and the Dark Trade would be a great customer.</p>
+<p>"I haven't developed the mine yet, so I don't know how much is buried there?"</p>
+<p>The amount of reserves in the mine itself is expected to be quite large, as it is treated as a specialty of Akita Prefecture in the game, but I didn't know the exact amount of reserves.</p>
+<p>"Don't worry about the reserves. Kurotsuki-doo obtained documents calculating the reserves secretly from Taira Foods."</p>
+<p>Where did they get that? I knew the Dark Trade's information network was amazing, but this is a bit creepy. Still, some of the mithril mined from the mine will be used by the company I and Han Yu-gyeong established in Korea, so I couldn't provide it all to the Dark Trade, so I decided not to give a complete answer for now. I'll have to hand it over to Jinmija Yeosa, who is in charge of the mine.</p>
+<p>I'll draw up a contract for now, but please get in touch with Hata Yoshiko, the CEO of Hatake Investment Company, for the contract details.</p>
+<p>"You mean Ryuta-nim's mother?"</p>
+<p>What, did they investigate everyone around me? For reference, Hata Yoshiko is the Japanese reading of Jinmija Yeosa's name.</p>
+<p>"Yes, let's finish the contract like this for now, and where did you get the information that I got the mine?"</p>
+<p>"Rather than getting it from somewhere, if Hatake Investment Company is practically Taira Ryuta-nim's company, and its subsidiary, Hatake Mining Company, bought the Taira Foods 8th factory site in Daisen City from East Weapon, then logically, it's a natural result that Ryuta-nim got the mithril mine, right?"</p>
+<p>It would be easy to infer the owner of the land from officially available registry copies. Hatake Investment Company also has Jinmija Yeosa as its CEO, so it would be easy to track my name.</p>
+<p>I'm not thinking that I won't get caught at all. I just thought it would be okay to cover my eyes and make Hatake Investment Company. I'll just create a company under a different name later to hide the real information.</p>
+<p>"And...."</p>
+<p>"And?"</p>
+<p>Does she have other business besides the mithril mine? Eve-ssi opened her mouth with a slightly hesitant expression.</p>
+<p>"Please stop by the Tokyo branch too! I've been waiting to surprise Ryuta-nim!"</p>
+<p>I don't know what she's talking about. I don't understand even if she acts like a tsundere while humming and glancing.</p>
+<p>"....Okay. I'll stop by the Tokyo branch when I go back to Japan this time."</p>
+<p>"Really?!"</p>
+<p>"Yes, really!"</p>
+<p>I don't know what she's trying to show me, but I'm getting really curious now, so I really need to stop by the Tokyo branch.</p>
+<p>"Here you go."</p>
+<p>Eve-ssi sticks out her pinky finger. I looked at it for a moment, wondering what it was, and then I realized that it meant to make a pinky promise, so I reached out my hand containing the abyss and hooked my pinky with Eve-ssi's.</p>
+<p>"Heuhyat~!"</p>
+<p>"See you next time, Eve-ssi."</p>
+<p>As expected, the unfamiliar sensation made Eve-ssi surprised and make a strange noise, "Heuhyat." I smiled slightly at the sight and got up from my seat. And when I looked at where Mimata Chieri was sitting, Mimata Chieri was muttering to herself with a glazed look in her eyes. When I listened closely, she kept muttering incomprehensible words like, "Should I buy this? But I can't give up the bed screen."</p>
+<p>What is it? What's making her like that? I looked at Eve-ssi, who was sitting in front of Mimata Chieri.</p>
+<p>She's been like that because she's been worrying about what to buy. I think she doesn't have enough money to buy both.</p>
+<p>After hearing Eve-ssi's words, I looked at the screen that Mimata Chieri was looking at. It was a shopping cart window, and one was a silent, ultra-small reconnaissance drone, and the other was an ultra-small spy camera that didn't need a power supply for two months on a single charge.</p>
+<p>Just by looking at the products, I could guess what Mimata Chieri was going to do, so I sat down and listened to Mimata Chieri muttering. I'm probably going to be the victim of this reconnaissance drone and spycam, so I can't let her buy them.</p>
+<p>"Eve-ssi, please cancel what's in the shopping cart."</p>
+<p>"Yes~☆"</p>
+<p>"Nooooo!"</p>
+<p>Ignoring Mimata Chieri's scream, I slung her over my shoulder and left the Dark Trade's New York branch. Mimata Chieri kept wriggling like a hateful 4-year-old girl, crying, "No, I have to buy it!" but I ignored her and went to where I had parked my motorcycle.</p>
+<p>Then suddenly, a murderous voice came from behind. It was a murderous voice, but it was a pretty soprano female voice. It was a beautiful, mesmerizing voice that you could tell was a beauty just by hearing it.</p>
+<p>"Black Moon Company bastards, I thought I eliminated the human trafficking ring, but did they make another one? Die!"</p>
+<p>Black Moon Company was the American name for Kurotsuki-doo. Then the bastard attacking me now is...!</p>
+<p>-----</p>
+<p>Eve-ssi's advantages! Her bust size can be adjusted because she's a hologram! (Small → Medium → Large)</p>
+<p>Disadvantage: Can't do it because she's a hologram ㅠㅠ</p>

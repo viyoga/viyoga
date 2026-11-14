@@ -5,95 +5,73 @@ weight = 226
 chapter = 226
 +++
 
-<p>"Shall we get started now?"</p>
-<p>"You're saying this wasn't even the beginning?"</p>
-<p>Dang So-hwa asks, looking dumbfounded at my words. I chuckled at the sight.</p>
-<p>"Of course not. What did I even do? I just kissed you a little."</p>
-<p>"Go ahead, do more! There's absolutely no way I'll ever yield to you!"</p>
-<p>You shouldn't use the word 'absolutely.' Who knows what the future holds? Of course, I knew what Dang So-hwa's future held. In a few days, Dang So-hwa would be a cooing female to me. And of course, Yang Seol-hui-ssi watching from behind as well.</p>
-<p>I even took off the last piece of cloth Dang So-hwa was wearing, her panties. Then I stepped back to admire Dang So-hwa's naked figure.</p>
-<p>Aside from her green pigtails and the murderous glare she was giving me, Dang So-hwa's trained body was quite beautiful. Moderately large breasts, a slender waist, and hips so wide you'd wonder if she was even Asian... A body any man would want to embrace. And her face is stunningly beautiful, if she didn't scowl like that.</p>
-<p>"Keuh! What are you staring at like that?"</p>
-<p>Dang So-hwa yells, overwhelmed by my persistent gaze. Ignoring her shout, I slowly approached, grabbing both of Dang So-hwa's wrists with one hand to immobilize her, and with the other, I stroked down her chest and abdomen, caressing Dang So-hwa's tightly closed pussy.</p>
-<p>The area around her pussy was slightly wet, probably from me sucking her whole body earlier. This slight wetness wasn't enough. My goal was to make it completely soaked and sticky, so that only my cock could extinguish the flames of lust within her.</p>
-<p>"Keuek! W-where are you touching! Just kill me!"</p>
-<p>That damn 'kill me' again. I should just ignore it as a verbal tic. I didn't immediately insert my finger into her pussy, but instead caressed the inside of her thighs and the mound of her pussy, teasing Dang So-hwa.</p>
-<p>"Heu...euk...!"</p>
-<p>"You can make noise. There's no one here to tell you off, right?"</p>
-<p>"Shu...shut, heueung...!"</p>
-<p>Telling someone who's making you feel this good to shut up... that's harsh. I slightly parted her tightly closed pussy and rubbed it up and down with my index and middle fingers. The fluid seeping out of her vulva made the caress even more erotic. Dang So-hwa tilted her head back, suppressing her moans, indicating that her sensitivity was quite high.</p>
-<p>"That's almost love gel level of sticky and slippery fluid. Just how horny is your body?"</p>
-<p>"Keuheueung...! Shut, heueung♥ up!"</p>
-<p>When I showed her the clear fluid stretching between my thumb and index finger, Dang So-hwa blushed with humiliation and told me to shut up. Does she only know 'kill' and 'shut up'?</p>
-<p>Up until now, I had been gently and slowly building up her pleasure, but now I needed to let her enjoy a rapidly increasing ecstasy. I stopped caressing the area around her pussy and instead rubbed the clitoris, which was still shyly hidden within its hood. Dang So-hwa's reaction was immediate. She trembled, seemingly reaching a weak orgasm.</p>
-<p>"Heung, hyahat! Heueuhat! What, I hate it! Ha'eut!"</p>
-<p>"Now you're showing a more womanly reaction!"</p>
-<p>I continued to caress the area around her pussy, teasing her, and then suddenly touched her clitoris, overwhelming her with pleasure so she couldn't collect herself.</p>
-<p>By the time my hand was completely wet, Dang So-hwa was trembling so much that she could barely stand.</p>
-<p>I pushed Dang So-hwa onto the mattress and took off my pants. My cock was throbbing, probably from constantly smelling her feminine scent. I spread Dang So-hwa's thighs, who was panting heavily, knelt in the middle, and aimed my cock, rubbing the head against Dang So-hwa's glistening vulva.</p>
-<p>"Heung, keueut! Ki...kill me! Haeueung♥"</p>
-<p>Impressive. She's still glaring and telling me to kill her. I nodded at Dang So-hwa.</p>
-<p>"Alright, I'll kill you."</p>
-<p>Of course, the 'kill' that Dang So-hwa was saying and the 'kill' that I was saying had different meanings.</p>
-<p>"Stop it! Stop!"</p>
-<p>Just as I was about to thrust my fully erect, massive cock into Dang So-hwa's pussy, Yang Seol-hui's shout came from behind. It seemed she had unconsciously screamed as her esteemed captain's virginity (probably?) was on the verge of being lost.</p>
-<p>"Why? Do you want to take her place?"</p>
-<p>"Yes! I'll take her place, so don't... don't touch the captain!"</p>
-<p>"Should I?"</p>
-<p>When I gave a sinister smile at Yang Seol-hui's offer to take her place and tried to get up, Dang So-hwa wrapped her legs around my waist. And pulled me in.</p>
-<p>"Don't talk nonsense and shove it in my pussy...! I can't let you touch my subordinate."</p>
-<p>Their friendship is admirable. Deeply moved by Dang So-hwa's cool demeanor, I pushed my cock into Dang So-hwa's pussy as she said. With a 'thuduk!' sound, I felt her hymen tear, and at the same time, Dang So-hwa let out a moan that was close to a scream. Looking down, there was a bit of blood. As expected, Dang So-hwa was a virgin, probably because men were too afraid to approach her because of her poison.</p>
-<p>"Keuheueut!"</p>
-<p>"No wayyy!"</p>
-<p>"I, I'm okay...!"</p>
-<p>What a melodrama. She was completely lost in pleasure until just now, but it seemed she had regained some composure after bringing Yang Seol-hui-ssi into the mix.</p>
-<p>Regaining her senses, she seemed to be using her poison skill, giving me the sensation of soaking my cock in slightly strong carbonated water. When I looked at her, Dang So-hwa smiled and opened her mouth.</p>
-<p>"I'll melt your pathetic cock in my pussy without a trace."</p>
-<p>"If mine is pathetic, then a decent cock would have to be at least a horse cock, right?"</p>
-<p>"Keukeu! To me, all cocks are just pathetic, ha'eung!"</p>
-<p>She shook her hips in the middle of her sentence, making me moan, and then laughed. I'll make her cling to that 'pathetic' cock and cry.</p>
-<p>"Shall we bet again? Whether my pathetic cock melts in your poisonous pussy or not?"</p>
-<p>"Heueut...! I have nothing to bet."</p>
-<p>"Let's do this. I'll fuck you for an hour, and if I stop because I'm in pain or my cock melts before then, you win, and I won't touch your subordinate Yang Seol-hui-ssi in the future. But if my cock is still intact after an hour and you lose, then the kiss from earlier will be nullified, so you'll give me your first kiss as if you're giving it to someone you truly love. How about it?"</p>
-<p>The terms of the bet weren't particularly disadvantageous to Dang So-hwa, so she nodded at my words. But if she knew that my poison resistance was immense, she would know that this was a match she could never win. Moreover, since I had regeneration, even if Dang So-hwa's poisonous fluid melted my cock, it would regenerate, ensuring my victory.</p>
-<p>"Alright, shall we start?"</p>
-<p>"Keu...heut! Stop talking nonsense and just shake your hips."</p>
-<p>I showed Dang So-hwa the screen of my smartphone with the one-hour timer set. Dang So-hwa provoked me with slightly vulgar words, telling me to shake my hips. I pressed the start button on the timer and started moving my hips.</p>
-<p>First, I moved long and slowly, using long strokes to allow Dang So-hwa's pussy to get used to the foreign object that had suddenly invaded, my cock. Dang So-hwa's vagina pushed back against the suddenly inserted cock, giving me a unique pleasure with a carbonated water-like sensation from the poison. It was a pleasure that felt slightly addictive.</p>
-<p>"Heueut... Keuheueung! Eut, not...not a big deal, heueung!"</p>
-<p>Hey now. Your moans are getting sweeter, aren't they? Moving my hips long and slowly served not only to familiarize Dang So-hwa with my cock but also to find out Dang So-hwa's weaknesses. I shook my hips for about five minutes from the start and found Dang So-hwa's weakness. There was a spot near her vulva, and shaking shallowly was the best way to give Dang So-hwa's pussy the greatest pleasure.</p>
-<p>I changed my method and shook my hips shallowly and quickly, so that Dang So-hwa's weak spot was rubbed by the glans of my cock.</p>
-<p>"Heuhat! Heueung! Heuaaang! Heuat! Heung♥"</p>
-<p>Dang So-hwa, who was only letting out sweet moans at my suddenly changed tactics. She had already forgotten the pain of her torn hymen and was lost in a wave of pleasure, clenching her toes tightly. I put my mouth to Dang So-hwa's ear and opened my mouth.</p>
-<p>"Feels good?"</p>
-<p>"Heuheung...! Not at all, ha'eut! Not good, keueut! Aaaahng♥"</p>
-<p>What's with pressing my butt with your hands while saying it doesn't feel good? Is it like your body has yielded but your mind hasn't? Since I wasn't planning on completely making her submit today anyway, I should be satisfied with just soaking her in pleasure today.</p>
-<p>"Heueut! Heung! Ha'eut! Eueung...!"</p>
-<p>Using Dang So-hwa's moans as background music, I shook my hips, employing various techniques. I couldn't just keep targeting the weak spot near the entrance, so it was a process of imprinting pleasure so that her entire pussy would become a weak spot.</p>
-<p>"Open your mouth."</p>
-<p>"Heueh...! Eueung..! Heuheup!"</p>
-<p>I overlapped my lips with Dang So-hwa's lips, who was unable to collect herself due to the constantly escalating pleasure. Whether she had forgotten that she had tried to bite my tongue earlier because of the pleasure, Dang So-hwa's tongue actively intertwined with mine.</p>
-<p>Jjuup! Jjueup! Jjeup! Jjueop!</p>
-<p>Watching Dang So-hwa suck my tongue and saliva with tremendous suction, I continued to move my hips. We kissed and shook our hips, both lost in ecstasy. In the meantime, Dang So-hwa had reached her climax three times, and now it was my turn. I felt the semen rising from inside my balls, so I asked Dang So-hwa.</p>
-<p>"Where should I cum?"</p>
-<p>"Keueut...! If you cum inside, I'll kill you, ha'eung...! Heueueung♥"</p>
-<p>Of course, asking wasn't to follow Dang So-hwa's opinion. I forcefully pressed my hips against Dang So-hwa's pelvis and released the semen I had been holding back.</p>
-<p>Gush! Gush! Gush!</p>
-<p>"Aandaee~! Heueut, heuhyaaah!! I'm going, I'm going, I'm going, aaaahng♥"</p>
-<p>As my cock repeatedly widened and contracted Dang So-hwa's pussy, spewing hot semen, Dang So-hwa reached her climax once again. Shortly after Dang So-hwa reached her climax, the stopwatch I had set for an hour beeped, indicating that the time was up.</p>
-<p>I pulled my cock out of Dang So-hwa's pussy and showed her that it was still intact.</p>
-<p>"It's not hurt at all, right? You lost the bet?"</p>
-<p>"Haa, haa, haa.... Keueut....! Bastard!"</p>
-<p>"You lost, so you have to do it now, right?"</p>
-<p>Dang So-hwa bit her lip, approached me, hugged my neck, and pulled my face. And then she kissed me. She seemed to have forgotten the intense kiss from just now during sex, and it was an awkward and somewhat innocent kiss. But she kept her promise well, so I should reciprocate Dang So-hwa's kiss.</p>
-<p>Chu-yup, chu-eup, jjo-ok, jjo-ok♥</p>
-<p>The sensual and affectionate kissing sounds filled the iron bars. As I skillfully guided her with my tongue, Dang So-hwa quickly learned to play with her tongue and enjoyed the kiss. She seemed to enjoy the kiss, as she didn't pull away from me and continued to kiss me.</p>
-<p>After kissing for nearly twenty minutes and leaving a long trail of saliva, Dang So-hwa looked very regretful but quickly regained her senses and opened her mouth.</p>
-<p>"Pervert."</p>
-<p>"No way, how did you know?"</p>
-<p>I feigned surprise and flipped Dang So-hwa over into a doggy style position. As I tried to put my cock, which had fully regained its strength during the kiss, back into her pussy, Dang So-hwa opened her mouth in surprise.</p>
-<p>"I, isn't it over?"</p>
-<p>"I decide when it's over. You just stay still and spread."</p>
-<p>I spoke with dignity and thrust my cock straight into Dang So-hwa's poisonous pussy from behind.</p>
-<p>"Heuhyaang!!"</p>
-<p>The night in this prison building was still long.</p>
+<p>This time, I was able to acquire the items without being attacked like at the Energy-Link Industrial Company factory yesterday. I'm currently checking the items before heading back to the mansion.</p>
+<p>First, I checked the item I obtained from the lab of the defunct defense company, Fob Corp.</p>
+<p>◆Prototype Mithril Warhead Bullet Pack [Rare Consumable]</p>
+<p>Mithril rifle bullets manufactured by Fob Corp. It was not commercialized due to its high price. Fob Corp went bankrupt due to poor financial conditions after lobbying excessively to have the U.S. military adopt the mithril warhead.</p>
+<p>Since the discovery of mithril and its excellent performance, there have always been attempts to replace the lead warheads used until now. However, the attempts quickly disappeared because it was much more expensive than lead bullets and more difficult to manufacture. It was better to create protective armor that could stop lead bullets instead.</p>
+<p>Along with the mithril warhead, what I obtained from the Fob Corp lab was data researching the physical properties of mithril. In *MegaCorp's Youngest Son*, researching this research data and the prototype mithril warhead together resulted in mithril-coated bullets, but I don't know what will happen in this world.</p>
+<p>It was like an official formula in the game, but now that it's reality, it won't be the same. Besides, I don't have a lab yet, so I can't even try it yet.</p>
+<p>I'll take it since it's an item, but it'll only be useful if I get a decent lab when I return to Japan. Or I could outsource it to Base Technology, but BS Group's control is still strong, so there were still issues with trusting them with work. I should cheer for Han Yu-gyeong-ssi to take over Base Technology completely.</p>
+<p>Next was a circuit chip that was stuck in the warehouse of a lab at a company called Odin Technology. It was a prototype body modification control circuit chip. Odin Technology is still a thriving company, so it was difficult to infiltrate easily, but the item I wanted was in the most remote warehouse where defective products were stored, so it was relatively easy to infiltrate. This warehouse didn't have any resident security, making it even easier.</p>
+<p>Odin Technology considered this circuit chip, which didn't show the desired efficiency, to be a defective product and left it in the warehouse, but in reality, it was a chip that greatly increased the power of superpowers when used with the appropriate Centipede Spine.</p>
+<p>Actually, it was defective. Odin Technology wanted a general body modification control circuit chip. This defective prototype control circuit chip was created by a combination of several coincidences.</p>
+<p>◆Odin Technology 0001 Prototype Control Circuit Chip [Epic Modification Part]</p>
+<p>Although born by mistake, Odin Technology accidentally completed a part that amplifies the abilities of espers. But no one knows that fact, so it's been abandoned.</p>
+<p>The good thing about this circuit is that Odin Technology made it, but they thought it was defective, so they didn't even apply for a patent. There was a USB with data in the compartment where the circuit chip was in the warehouse, so there were blueprints and such, so it would be easier to absorb it into our technology.</p>
+<p>Soon, an event will be held where espers will be revealed to the public, so doing business with these espers will emerge as a new blue ocean.</p>
+<p>In *MegaCorp's Youngest Son*, when the event was being held in Korea, it passed by as news or information, but espers were revealed because of an incident in the United States. I don't know the details, but since I'm in the United States, I need to be careful not to get caught up in it.</p>
+<p>I got a few more items while going around the factories in this area, but they were all prototype guns or discontinued rare guns, so they weren't that useful. I'll just give them to the Seryu-tai members. Still, they're PMC soldiers, so they have some military otaku sensibilities, so they'll like it.</p>
+<p>I stopped by the black market New York branch again, entrusted all the items I had obtained this time, asked them to send them to Japan, and returned to the mansion. When I arrived, it seemed like it was just the right time to eat lunch.</p>
+<p>"I'm back."</p>
+<p>"Oh~! Ryuta, you're still handsome as ever."</p>
+<p>Oliver Fitzgerald, who had been on a business trip, must have returned, as he patted me on the shoulder heartily and greeted me.</p>
+<p>"Hello, Uncle."</p>
+<p>"Yes, it's lunchtime, so we can eat together."</p>
+<p>When Oliver Fitzgerald and I went to the dining room, everyone was already sitting at the table. It seems like they were waiting for me since the food wasn't set out yet?</p>
+<p>"I'm a little late, I'm sorry."</p>
+<p>"No, Ryuta. You came at just the right time."</p>
+<p>When I apologized for being late, Arisu said it was okay instead. I guess I arrived at just the right time. Mimata Chieri-ssi was still groaning and holding her temples, as if she still had a headache. If it was normal alcohol, she should have recovered by now, but she's probably paying the price for the +2 to power.</p>
+<p>Nae Fitzgerald looked at me with strange eyes, but she was sitting next to her husband, Oliver Fitzgerald, whom she hadn't seen in a long time, and was talking with a smile. Hmm, they're a lovely couple.</p>
+<p>"Well then, here is New York's best steak."</p>
+<p>The butler smiled and placed a steak in front of each of us. It was a fairly thick and well-cooked steak. I cut the steak with a knife and put a piece of steak in my mouth.</p>
+<p>Indeed.... It's delicious! The outside was well-browned with a good Maillard reaction, and the inside, cooked to medium, boasted a tender texture that would fall apart at the touch of the tongue.</p>
+<p>Indeed, they had reason to be upset when I said I ate at one of New York's top 3 steak houses. It was much more delicious than what I ate at the restaurant. They must have been thinking, 'Dare they call that steak house one of New York's top 3?'</p>
+<p>"This is the best steak I've ever eaten."</p>
+<p>"Hehehe! Isn't it?"</p>
+<p>The butler was very proud of my compliment. Of course, Oliver Fitzgerald and Nae Fitzgerald, the owners of the mansion, were also in a good mood and shrugged their shoulders. They were the owners of a mansion with a chef who made the best steak, so they had reason to be happy.</p>
+<p>"So, what are you going to do after lunch?"</p>
+<p>"I'm going to show Ryuta around New York."</p>
+<p>When Oliver Fitzgerald asked Arisu, Arisu answered while cutting her steak. I hadn't been anywhere in New York except for the slum-like black market branch and the Brooklyn Navy Yard, so it seemed like it would be fun. Most of all, I was glad that I didn't have to do anything. Since she said she would show me around, Arisu must have planned a date course.</p>
+<p>"Don't go to dangerous places. Chinese gangs are causing a ruckus these days, so be careful."</p>
+<p>"I understand, Dad. Don't worry, I won't have any reason to go to dangerous places."</p>
+<p>Indeed, New York citizens seemed sensitive because of the war between Kurotsuki-doo and Otagi Yuka. Even though she's a vampire, it's amazing that she's fighting against an entire branch of Kurotsuki-doo alone.</p>
+<p>"Thank you for the meal!"</p>
+<p>After finishing the meal, I, Mimata Chieri-ssi, and Arisu sat at a tea table set up in front of the garden and enjoyed after-meal tea and small cakes.</p>
+<p>"Sunbae-nim, judging by your expression, you should rest in the afternoon too, right?"</p>
+<p>"Ugh, how strong was that alcohol yesterday that my head still hurts?"</p>
+<p>Mimata Chieri-ssi nodded slightly in response to my suggestion. Arisu, who was leisurely drinking black tea at the mention of alcohol, looked at me and Mimata Chieri-ssi and opened her mouth.</p>
+<p>"Did you two drink yesterday?"</p>
+<p>"Not us two, just Sunbae. I didn't drink."</p>
+<p>Well, we did have sex after drinking, but she didn't ask about that, so I don't have to answer.</p>
+<p>"Chieri, I'll take care of Ryuta today, so you rest at home."</p>
+<p>"Ugh.... It's the netorare situation I like, but I'm not happy because my head hurts...."</p>
+<p>Ignoring Mimata Chieri-ssi, who made a nonchalant and strange remark in response to Arisu's statement that she would monopolize me today, we got up from our seats. Arisu shouted, "Just a moment!" and ran to the garage to bring the car. The car Arisu brought was a 9th generation Ford Mustang.</p>
+<p>It's an excessively frugal car for the granddaughter of a chaebol and the daughter of an aristocrat. Of course, I don't drive a very expensive car either.</p>
+<p>"My dad is so overprotective that he bought me this car and told me to add various safety devices to it and drive it."</p>
+<p>Ah, it seems like it's a vehicle that looks like a Ford Mustang on the outside, but has various modifications on the inside. She said that if she drove an expensive car, she could be targeted for kidnapping, so she drives a normal car.</p>
+<p>Talon, the Fitzgerald family's company, was a company with considerable technology, so modifying a car wouldn't be a big deal.</p>
+<p>Arisu took the wheel, and I sat next to her. It reminds me of the old days. Arisu took the wheel and I sat next to her on our first date too.</p>
+<p>"It's like our first date."</p>
+<p>"Ryuta, you were thinking that too? Are we telepathic?"</p>
+<p>Arisu seemed to be thinking the same thing, as she had a slightly touched expression.</p>
+<p>"Is there anywhere you want to go?"</p>
+<p>"I don't really have anywhere I want to go, but I want to stop by an antique shop to buy souvenirs."</p>
+<p>In response to Arisu's question, I said that I wanted to stop by an antique shop. When I showed her the location of the antique shop with the hidden item, Arisu entered it into the navigation system and set off immediately.</p>
+<p>"Then let's go to the antique shop and then look around New York. I'll introduce you to it!"</p>
+<p>"Okay."</p>
+<p>We drove against the backdrop of New York's skyscrapers and soon arrived at our destination. It was a store with a somewhat Cthulhu-esque name, Old One, and it was located in a somewhat gloomy building made of black bricks.</p>
+<p>Naturally, Arisu, whom I suspect of being Phantom Thief François, quickly entered the antique shop with her eyes sparkling to see the antiques, and I followed behind, not hiding my suspicious gaze.</p>
+<p>-----------</p>
+<p>Today, I'm not in good condition due to an ingrown toenail, so I couldn't create a new illustration. So, I'll share a practice illustration of Han Yu-gyeong-ssi 2.5D (semi-realistic model) that I made before, hehe.</p>
+<p>I made it with several 2.5D models I received, what do you think?</p>

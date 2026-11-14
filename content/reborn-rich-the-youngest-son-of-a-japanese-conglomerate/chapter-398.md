@@ -5,74 +5,78 @@ weight = 398
 chapter = 398
 +++
 
-<p>"You can come out now."</p>
-<p>After Taira Ryuta left, Eve said, looking to one side. The place Eve looked at was where junk was piled up, and suddenly the wall rippled and slowly changed into the shape of a person. And what appeared was Sakagami Rena.</p>
-<p>"Sakagami-ssi, what brings you here?"</p>
-<p>Sakagami Rena had used the Am-sang several times for ninja missions, so Eve and Sakagami Rena were acquaintances.</p>
-<p>"Is it because of a mission? Or... did you come because of Ryuta-nim?"</p>
-<p>"It's because of sensei..."</p>
-<p>Sakagami Rena answered quietly to Eve's question. If it were a human, there would be difficulties in communication, but knowing that Eve is an artificial intelligence, the conversation went relatively well, and Eve was the most communicative person other than her family.</p>
-<p>"Perhaps that sensei isn't Sakagami-ssi's target, is he?"</p>
-<p>Sakagami Rena felt a murderous aura from Eve's words, something an AI shouldn't be able to feel. Eve's black pupils turned red, and with a click, gun barrels from several Am-sang branches were pointed at Sakagami Rena.</p>
-<p>"No, I'm not talking about that target... I'm watching to see if sensei would be a good lord candidate."</p>
-<p>"Ah~! You're talking about that target."</p>
-<p>Eve quickly erased her murderous intent and smiled brightly at Sakagami Rena's explanation. Eve, who knows a lot of information, could understand the meaning of a lord in a ninja family.</p>
-<p>For a ninja family, finding a lord meant independence in a word.</p>
-<p>Since ancient times, ninja groups whose main business was espionage and assassination have often had their families destroyed or their groups disappear by powerful people. However, there were quite a few cases where the lineage was maintained by ninjas who wandered outside the group under the pretext of finding a lord, and this became a tradition.</p>
-<p>"Sakagami-ssi probably doesn't know much about Ryuta-nim yet, right?"</p>
-<p>"Yeah. I only thought about making sensei my lord yesterday..."</p>
-<p>"Making someone your lord isn't a small decision. You should find out more~!"</p>
-<p>Sakagami Rena seemed to feel something at Eve's words to find out more. Eve gave Sakagami Rena a hint. It seemed that Yamashiro Ryuta was not a typical teacher.</p>
-<p>"It's okay to make him your lord, but I can't forgive anyone who harms Ryuta-nim. Ryuta-nim is my business partner."</p>
-<p>"Why would I harm sensei?"</p>
-<p>Sakagami Rena said not to worry at Eve's threatening words. Sakagami Rena also gained new information from this conversation. Yamashiro Ryuta is a close business partner that Eve of Am-sang, who has an exclusive position in the world of the underworld, would warn about.</p>
-<p>"I'll find out more as Eve-ssi advised."</p>
-<p>"Yes, deciding on a lord is an important decision!"</p>
-<p>At Eve's words, Sakagami Rena decided to find out more about Yamashiro Ryuta.</p>
+<p>"I know you trust the Chairman-nim's childhood friend, but the special class students have a lot of scars. Don't hurt them."</p>
+<p>After finishing her banana milk, Nakanoin Rina took out a jitte, shaped like a three-section staff, from behind her waist and pointed it at me as she spoke.</p>
+<p>Gooooooo!</p>
+<p>It was an intimidating presence that would scare any ordinary person. I just thought she was a normal girl in charge of the disciplinary committee, but seeing this energy, she seemed to be quite skilled. I didn't know exactly how skilled she was, but it seemed worth looking into separately.</p>
+<p>"I'm their homeroom teacher, so that won't happen."</p>
+<p>"I'll trust your words, sensei."</p>
+<p>Nakanoin Rina smiled slightly at my answer and put the jitte back into the holder behind her waist. My words weren't a lie. I wouldn't force them or sexually harass them like the previous homeroom teacher did.</p>
+<p>"By the way, do you have any close friends in the special class?"</p>
+<p>"A child who was harmed and dropped out was my close friend."</p>
+<p>"Ah, I see. Don't worry, the same thing won't happen again."</p>
+<p>Reassuring Nakanoin Rina once more, I asked Taira Kanna and Nakanoin Rina something I was curious about.</p>
+<p>"But why aren't you two in class and instead in the student council room?"</p>
+<p>Come to think of it, even if they're the student council president and the head of the disciplinary committee, they're still students at heart. Shouldn't they be in class right now? Why are they both so casually chatting in the student council room?</p>
+<p>"I finished the high school courses for some subjects in advance."</p>
+<p>"A student not attending class is something that disrupts the discipline, but it's allowed by the school rules."</p>
+<p>They both answered that it was okay to my question. Ah, right, this school also acknowledges advanced learning. Listening to their explanation, the advancement class, which hopes to advance to schools other than St. Francisco Women's University, which advances in an escalator format from St. Francisco Girls' School, can complete the curriculum in advance and prepare for the university entrance exam.</p>
+<p>Taira Kanna and Nakanoin Rina also said they would go to other universities instead of St. Francisco Women's University. As a daughter of the Taira family, Taira Kanna had to go to a better university than St. Francisco Women's University to be involved in the group's work. There are certain standards to be met in order to work in the Taira Group. Especially for women, there are more disadvantages, so they had to make sure to take care of everything they needed to, like university.</p>
+<p>I'm just a high school graduate, but I'm a man who can inherit Taira as is, and I'm just an ordinary employee of the Human Resources Development Center, not a director or board member of an affiliate, so I'm just getting by. If I become the president of an affiliate later, there might be some backlash. Well, that's a problem to think about later....</p>
+<p>"You didn't finish the Korean classes in advance, so you're coming to them?"</p>
+<p>"Yes, I didn't study the second foreign language in advance."</p>
+<p>Taira Kanna was diligently attending my Korean class, so I asked, and she said she didn't prepare for the second foreign language in advance. Is that true? I heard from her grandmother, Taira Shizuku, that she had already finished preparing for university.</p>
+<p>But I didn't really want to argue. She probably got an order from her grandfather, Taira Danjo, to increase her contact with me so that he could naturally help her.</p>
+<p>"Then I've delivered the gift, so I'll go. It was nice meeting you too, Nakanoin-ssi."</p>
+<p>After chatting for a while, I said goodbye and left the student council room. I should rest for a bit, have lunch, and then prepare for the Korean class.</p>
 <p>###</p>
-<p>EVE: I'm sure you're happy to have a girl calling you lord~!</p>
-<p>Ryuta: Huh?</p>
-<p>EVE: Never mind~! Hehet.</p>
-<p>I felt puzzled looking at the unidentified message Eve sent from the airport, but I couldn't think deeply about Eve's message because it was almost time to board the plane.</p>
-<p>Sitting in my seat, I thought about what I would do in Seoul. Seoul was probably in a chaotic state by now. The BS Group's fierce succession war had not ended and was continuing, and politicians of the hard-line faction, including Choi Seok-hoon, were being assassinated by superhumans, and rumors were circulating about monsters that had suddenly begun to appear.</p>
-<p>I was planning to resolve this monster situation from today, Thursday, until Monday night when I would return. Of course, I would also celebrate Han Yu-gyeong's birthday.</p>
-<p>In fact, Han Yu-gyeong didn't know I was coming today. She knew that I couldn't come during the week because of my teacher duties and that I would come on Saturday, but she wouldn't know that I was coming right after the picnic on Thursday.</p>
-<p>I had contacted Dickson in advance to find out the schedule. He said that I had school lessons today and nothing else in particular, so I would be able to surprise her enough.</p>
-<p>In-flight meals came out, so I turned on the screen attached to the seat and decided to eat lunch while watching Ratflix's new movie.</p>
-<p>Oh? This is out...? There was a movie in which Arisu briefly appeared as a model. These days, there were many simultaneous releases in theaters and OTT, and this movie seemed to be one of them.</p>
-<p>Arisu got a role as a supporting actor in the next movie thanks to this work, and she was currently filming it. Because of that, she couldn't do the Phantom Thief François activities, so she was very frustrated.</p>
-<p>In fact, I wasn't completely worried about Arisu, as Hollywood is so notorious, but I wasn't too worried.</p>
-<p>In the game, the women who were hit by the characteristic Golden Pillar did not betray me, and I had the characteristic , which evolved from the Golden Pillar. This characteristic had a stronger coercive force than the Golden Pillar, so I wasn't worried.</p>
-<p>In addition, I had faith in Arisu that she wouldn't give other men a chance just because I couldn't see her for a few months.</p>
-<p>The movie was quite fun. Arisu appeared as one of the many models in the movie, and she was indeed a crane among chickens. Arisu had a striking and gorgeous beauty even among many famous models.</p>
-<p>She had a gentle impression that Easterners liked, so her popularity might be divided in the United States, where they like strong impressions, but Arisu was the best for me. In fact, I can't evaluate her acting skills because she was a minor role.</p>
-<p>I arrived in Korea not long after the movie ended. I sent Arisu a Line message before getting off the plane.</p>
-<p>Ryuta: I saw the movie Arisu was in. You were the prettiest there.</p>
-<p>Arisu: I was embarrassed, so I didn't tell Ryuta about the movie on purpose ૮꒰ ྀི〃´꒳`〃꒱ა hehe, thank you (⋆ˆ ³ ˆ)♥</p>
-<p>Ah, she was embarrassed, so she didn't tell me on purpose. From Arisu's point of view, it seemed that she might be embarrassed because it was a minor role and there weren't that many scenes she was in.</p>
-<p>After finishing the Line conversation, I got off the plane, packed my luggage, and was about to leave when someone tapped me on the shoulder. When I turned around, Han Yu-gyeong was standing there. She was wearing simple casual clothes, jeans and a white polo shirt, but her beauty that men glanced at was still the same. If she were an ordinary person, she would receive a lot of hunting, but most people just passed by because Dickson, a bodyguard, was standing firmly next to her.</p>
-<p>"Huh?"</p>
-<p>"Ehehe~! Yong-tae-yaa♥"</p>
-<p>How did she know I was coming and was waiting? When I glanced at Dickson, Dickson was scratching the back of his head as if he was in trouble. Surely Dickson didn't tell Han Yu-gyeong everything, did he?</p>
-<p>"Don't say anything to Dickson. Our company won the airport security bid this time. So, I was trying to check Yong-tae's plane coming on Saturday because I could access the airport's information, but Yong-tae's name was on Thursday, right? Dickson, who was watching next to me, asked me about it, so Dickson had no choice but to answer."</p>
-<p>Ah, I see. The company Han Yu-gyeong mentioned, "our company," seemed to refer to the security company Vanguard, which Han Yu-gyeong acquired first. Well, if Han Yu-gyeong had already seen my list, Dickson wouldn't have been able to deceive his employer, Han Yu-gyeong.</p>
-<p>"Aww, I wanted to surprise you..."</p>
-<p>"Ehehe. If you want to surprise me, you'll have to try a little harder!"</p>
-<p>I bought a plane ticket under the name Jin Yong-tae to make it easier to come to Korea, but next time I should use the name Yamashiro Ryuta. Then Han Yu-gyeong wouldn't know.</p>
-<p>"But how were you going to surprise me?"</p>
-<p>"Huh? I was just going to surprise you at school because it's time for school."</p>
-<p>In fact, I didn't have any big plans. I just had a plan to suddenly appear in front of Han Yu-gyeong at school and surprise her.</p>
-<p>"Let's go by car first."</p>
-<p>Dickson, who was listening to our story, looked around and said. He's quite wary, is something wrong? First, Han Yu-gyeong and I moved to the car as Dickson said, put our luggage in the trunk, and got in.</p>
-<p>"What's wrong?"</p>
-<p>"Ah, there's a bit of friction with BS Group over the Base Technology issue."</p>
-<p>Base Technology was like a secret technology research lab of BS Group. Han Yu-gyeong and Vanguard were involved in security work, but during the BS Group's succession war, they were taking Base Technology's technology to TG Tech, and it seemed they had been caught.</p>
-<p>"Base Technology, as Yong-tae, you know, is owned by Park Il-soo, but we were going to receive some business from Base Technology while supporting Park Il-man, who is Park Il-soo's opponent in the succession war."</p>
-<p>Park Il-soo was the father of Park Sang-beom, who harassed Han Yu-gyeong and died. Park Il-soo misunderstood Park Sang-beom's death as Park Il-man's doing, and the succession war broke out. While BS Group was in a succession war, its stock completely plummeted, and I was able to secure quite a lot of stock without missing the opportunity.</p>
-<p>"But as Park Il-man gains the upper hand, he's not trying to recognize our rights. Of course, we protested, and Park Il-man began attacking Park Il-soo and our Vanguard at the same time."</p>
-<p>Park Il-man seemed quite arrogant to increase the front line to two when one war was not over. If he looked down on us as just a security company, it couldn't be helped, but the opponent was Han Yu-gyeong and I. Park Il-man, who ignored Vanguard, would pay a heavy price.</p>
-<p>"It's even better."</p>
-<p>"Right?"</p>
-<p>Rather than saving even half of BS Group, if we get rid of it altogether, we'll have more to eat. Even if there are many hyenas approaching, aiming for the corpse, if we eat only the most delicious parts, the hyenas will eat the remaining flesh and won't bother us.</p>
-<p>---</p>
-<p>Sakagami Rena B-cut</p>
+<p>After finishing the Korean class, I chatted with the special class students as I took them to the special class classroom since all the special class students take the Korean class.</p>
+<p>"It's annoying to do it separately in the classroom, so let's do the closing remarks while we walk. Um, there's nothing to report today, and the midterm exams start in mid-October, so prepare well from now on. Surely our class isn't the worst in the third grade, right?"</p>
+<p>"Ah! It's already exam time even though it hasn't been long since the semester started?! I really hate school~!"</p>
+<p>Seizawa Shii grumbled. It didn't seem like something a student who was held back and is attending for another year should say. Or is it? Maybe she hates school because she's been going for too long?</p>
+<p>In fact, our class's grades weren't that bad. Seizawa Shii, who was grumbling, had average grades, and Oofuchi Erika, Konoe Akina, and Shido Tsubaki were in the top tier. The rest were average, and surprisingly, Minamoto Risa, the representative delinquent of the school, had top grades. Besides, the students who were held back are learning for the second time, so they might get better grades.</p>
+<p>"Ah! Sensei asked me to tell you again, but you have to come to the Date Experience Club's first task today, okay?"</p>
+<p>Konoe Akina tells me again as I requested. Ah, right. They said they were doing something at the club today. I nodded to Konoe Akina and answered.</p>
+<p>"I'll finish my work in the education preparation room as quickly as possible and go, so everyone go to the club room."</p>
+<p>As I was talking to the students, someone tugged at my sleeve. I turned to see Alik.</p>
+<p>"I want to do it too...."</p>
+<p>Does Alik know what they're doing at the club? Alik seemed disappointed that she couldn't attend because she was in a different club alone.</p>
+<p>"Then.... I'll call Shimokawabe Airen-sensei, so how about you just try it out for a bit and leave?"</p>
+<p>"Okay...! Thank you, Ryuta...!"</p>
+<p>Alik hugged me tightly, really grateful. We were on our way to the special class building, so I could feel not only our class but also other students glancing at us.</p>
+<p>"Alik! Everyone's watching, so don't hug sensei. It's outside, so other people might misunderstand."</p>
+<p>Minamoto Risa started scolding Alik, pulling her away. But the scolding didn't last long because Seizawa Shii ran up, saying, "I want to hug Ryuta-chi too," and Kujo Kina tried to hug me, saying, "If you hug me, will you spar with me one more time?" and then the other students joined in, turning it into a mess.</p>
+<p>I picked up all the students who were clinging to me, rather than hugging me now, and ran to the special class building.</p>
+<p>When I entered the building and put them down, the ones who had been clinging to me were the instigators, Seizawa Shii and Kujo Kina, and Konoe Akina, who seemed quiet and I didn't think would cling, and Oofuji Erika, who was making strange noises, saying, "Daddy?", and the unexpected masked girl, Sakagami Rena.</p>
+<p>Even though they were all light female students, they all seemed a little surprised by my strength, since I had carried five of them.</p>
+<p>"Heh, Ryuta-chi is super strong?"</p>
+<p>"Kyahaha! As expected of a martial artist who beat me, he's a monster!"</p>
+<p>"A perverted teacher with monstrous strength who can lift five women.... That would be a great headline for an article."</p>
+<p>"Don't say weird things. Shido!"</p>
+<p>Seizawa Shii and Kujo Kina were just surprised, but Shido Tsubaki, the former head of the newspaper club, made a headline full of malice.</p>
+<p>I am a pervert, but I haven't revealed my true self to the students yet, so I wasn't at the level of being called a perverted teacher by the students. So I said something to Shido Tsubaki. Of course, it was just a headline she made to tease me, not out of sincerity....</p>
+<p>"Okay, then pack your things and go up to the club room. I'll finish the remaining work in the education preparation room quickly and go up."</p>
+<p>I spoke to the students and stopped by the education preparation room. It's convenient because I don't have to stop by the classroom separately for closing remarks. From now on, I should do the closing remarks on the way to the special class building on Tuesdays and Wednesdays when I have Korean class.</p>
+<p>"Ah, right. I have to call the Home Economics teacher."</p>
+<p>I picked up my phone and called Shimokawabe Airen. Shimokawabe Airen must have been holding her phone because she answered right away.</p>
+<p>-Yes, Ryuta-gun.</p>
+<p>"There's a class event, so Alik will be a little late going to the Cheongsim Hall."</p>
+<p>Actually, it's not a class event, but a club event, but since all the students in the class are participating, it can be called a class event.</p>
+<p>-I understand. If she's going to be very late, please contact me.</p>
+<p>"Okay~!"</p>
+<p>Shimokawabe Airen coolly gave her permission. Then that's one thing taken care of.... Next, I checked the fax. There's nothing in particular.... There's not much to do?</p>
+<p>I finished my daily tasks, such as attendance records, reports of absentees from Korean class, and checking the exam scope, in fifteen minutes and got up from my seat.</p>
+<p>The students now stock up on their favorite foods in the refrigerator in the club room, so they don't come to the education preparation room often to find something to eat. They occasionally come here to get ice cream when they're too lazy to go up to the second floor, but the frequency has decreased a lot.</p>
+<p>I don't know what the task is for today, but I don't think I need to prepare anything, right? I can just go up without bringing anything.</p>
+<p>I left the education preparation room. But I ran into someone I didn't expect. It was Ootawa Masato, the history teacher who is Kijimoto Jurie's stalker. I subtly focused my senses and it seemed like no one was in the infirmary. Kijimoto Jurie seemed to be away.</p>
+<p>But since I ran into him, I should say something.</p>
+<p>"Ootawa-sensei, what's the matter...?"</p>
+<p>"I have something to discuss with Kijimoto-sensei."</p>
+<p>"Ah, is that so?"</p>
+<p>I nodded as if I understood and passed Ootawa Masato, going up to the second floor. At the same time, I sent a text message to Kijimoto Jurie. I told her that Ootawa Masato was in front of the infirmary, so don't come here and go straight home or be somewhere else.</p>
+<p>Kijimoto Jurie: Okay. Thank you, Yamashiro-sensei.</p>
+<p>Relieved after seeing Kijimoto Jurie's reply, I headed straight to the club room.</p>
+<p>----</p>
+<p>Ninja Girl Sakagami Rena SD!</p>
+<p>Kawai~!</p>
+<p>Lightning Alik</p>

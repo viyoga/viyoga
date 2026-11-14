@@ -5,86 +5,63 @@ weight = 149
 chapter = 149
 +++
 
-<p>#Warning! This episode contains explicit content and illustrations, so please be mindful of your surroundings and whether there are people around before viewing!</p>
-<p>-------</p>
-<p>-It's unfair...!</p>
-<p>,What's unfair about it?</p>
-<p>-It's unfair...!</p>
-<p>Even when I asked, it just repeated that it was unfair with a gloomy expression, and we couldn't communicate at all. Well, if we could communicate, it wouldn't have latched onto me, who did nothing wrong, and refused to leave the forest.</p>
-<p>It's probably a soul who committed suicide in the Jukai Forest or a victim of the Shirashira Shrine, and judging by the fact that it says it's unfair, it seems like the latter. If it had put the rope around its own neck, there would be no reason to say it's unfair.</p>
-<p>Of course, I wasn't scared or anything. I learned from the Shirashira arc that the Abyss affects even these formless beings, so I thought I could get rid of this vengeful spirit. If that didn't work, there were other methods.</p>
-<p>,Hey.</p>
-<p>-You killed, you...!</p>
-<p>,What are you talking about?</p>
-<p>-I should have killed...!</p>
-<p>Ah, so the ghost is saying that I got rid of the Shirashira Shrine cult leader it was trying to kill, so it's attached to me now.</p>
-<p>,Did you come to thank me?</p>
-<p>-I'll curse you...!</p>
-<p>Ah, so it doesn't recognize me as someone who avenged it, but as a support who stole the ADC's last hit. No, you should be thankful. You get experience for catching the bad guy, but you don't get CS! I put on a deliberately scary face and spoke to the ghost.</p>
-<p>,Go back to the forest before you see something you shouldn't. Or go to your family. I'd appreciate it if you could leave without whispering weird things next to me?</p>
-<p>-I'll curse youuuuu!!!!</p>
-<p>Ugh... My ears hurt. It doesn't understand me at all. Since I think it's a victim of the Shirashira Shrine, I feel a little sorry for it, so I can't just get rid of it. I guess I should help it find peace.</p>
-<p>I sighed, took off my clothes, and neatly folded them. I'm not doing this because I want to. My actions are to exorcise the evil spirit and help it ascend to heaven. I'm definitely not curious about what the ghost's breasts or pussy feel like.</p>
-<p>-Curse... Huh?</p>
-<p>It kept saying it would curse me, but when it faced me naked, it seemed to sense something strange. But it was already too late. The ghost, sensing something was wrong, tried to disappear from in front of me, but it was already caught in my hand.</p>
-<p>-Kyaaaaaaaa!!!</p>
-<p>,Ugh, shut up. Let's lie down first. I'll send you to heaven.</p>
-<p>I groped the breasts of the screaming female ghost. I felt something soft along with a chilly sensation. They were such big breasts that it was hard to cover them all with one hand.</p>
-<p>-I curse you I curse you I curse you I curse you I curse you I curse you I curse you I curse you I curse you I curse you I curse you I curse you I curse you I curse you I curse you...!</p>
-<p>Yeah, I'll see how long you can curse. The ghost struggled, but couldn't escape. The Abyss, weakly formed in my hand, prevented the ghost from moving. I randomly touched its breasts and flicked its nipples with my fingers.</p>
-<p>-I curse you I curse you I curse you I curse you I curse you I curse you I curse you I curse you I cur... Hnghyat!!</p>
-<p>Hmm, this proves that ghosts can feel pleasure. Or is it because the Golden Pillar was upgraded to work on heterogeneous beings when I first met Simyeonui ttal? By the way, that moan is cute.</p>
-<p>Now that the first experiment, whether ghosts feel pleasure, has been proven, I decided to experiment on whether ghosts produce vaginal fluids.</p>
-<p>-Nooooo!!!!</p>
-<p>The ghost screamed so loudly that my ears went numb, but despite that scream, my merciless hand stroked the ghost's pussy once.</p>
-<p>Hmm.... It's dry. It's too early to be disappointed. I should try some more foreplay.</p>
-<p>-I'll kill you I'll kill you I'll kill you I'll kill you I'll kill you I'll kill you I'll kill you I'll kill you I'll kill you I'll kill you I'll kill you I'll kill you I'll kill you I'll kill you I'll kill you I'll kill you I'll kill you I'll kill you I'll kill you I'll kill you I'll kill you I'll kill you I'll kill you I'll kill you I'll kill you I'll kill you I'll kill you I'll kill you I'll kill you I'll kill you I'll kill you I'll kill you I'll kill you I'll kill you I'll kill you I'll kill you I'll kill you I'll kill you I'll kill you I'll kill you I'll kill you</p>
-<p>,You're already dead.</p>
-<p>I gently rubbed its nipples with one hand and its Clitoris with the other, watching the ghost's reaction. After about fifteen minutes of foreplay, the ghost began to wriggle its body, unlike when it was struggling to escape from me. The sight was similar to a woman moving her body because she couldn't handle the pleasure.</p>
-<p>,Shall we check again now?</p>
-<p>I touched the area around the vulva again with the hand that was touching the Clitoris. Then I felt something moist and sticky. I couldn't smell or taste it, but it was definitely vaginal fluid.</p>
-<p>,Oh!</p>
-<p>Excited by the great discovery that ghosts also produce vaginal fluids, I put a finger into the vulva this time.</p>
-<p>-Hngh! I'll kill you, euheut!! I'll kiheung...!</p>
-<p>When my finger was about a knuckle deep, there was something blocking it. I smiled at the ghost's face.</p>
-<p>,A virgin ghost?</p>
-<p>Even better. I celebrated the success of the second experiment and prepared for the third experiment. It was an experiment on whether a human's dick could break a virgin ghost's hymen.</p>
-<p>I aimed my dick at the ghost's pussy and slowly pushed it in. First of all, the entrance was a tight feeling with moderate pressure, a good pussy that passed the test for insertion. When I put about two-thirds of my glans in, I felt something blocking it. It was the virgin ghost's hymen.</p>
-<p>-I'll curse you I'll curse you ahngh!!!</p>
-<p>I impulsively reacted to the word "curse" without realizing it. I was going to put it in gently while caressing it, but I just shoved it in. Surprisingly, the third experiment was easily successful. Humans could simply turn virgin ghosts into regular ghosts. As expected of a ghost, it didn't hurt even when its hymen was broken. When I glanced at it, it didn't seem like it was bleeding either.</p>
-<p>,Shall we do the fourth experiment then?</p>
-<p>The fourth experiment was to see if my Semen would fall to the floor if I ejaculated inside the ghost, or if it would stay inside the ghost's body. I thought it would probably fall to the floor, but since I saw the hymen being broken by a human's dick this time, it might keep my Semen inside its body.</p>
-<p>I moved my hips rhythmically. When a foreign object called a dick entered the ghost's virgin pussy, it moved tightly to push the dick out, and that movement inside the pussy excited me.</p>
-<p>-I'll kill you hng! I'll kill you ahng...! Ahheut! I'll kill you ahang.... Ahheut!</p>
-<p>Now the ghost couldn't even say "I'll kill you" properly and was hugging me. Hmm, it's a bit awkward, but should I try kissing it?</p>
-<p>When the ghost says "I'll kill you, I'll kill you," the way it pronounces "kill" is similar to the shape of its mouth when it says "chu~," so what can I do if I want to kiss it? Then I have to do it.</p>
-<p>I moaned and observed the ghost's lips as it struggled to say "I'll kill you, I'll kill you," and then I kissed it when it said "kill."</p>
-<p>-Kill...! Euheuheum!!</p>
-<p>The virgin ghost turned its face from side to side as if resisting, but when I strongly shook my hips back and forth, it opened its mouth while saying "Aah♥." In the gap where the ghost opened its mouth, my tongue quickly penetrated and began to ravage the virgin ghost's mouth.</p>
-<p>The virgin ghost couldn't come to its senses as its lower and upper lips were attacked at the same time. The virgin ghost's kiss was awkward, befitting a virgin, but its absorption was as fast as a sponge, and it quickly accepted my lewd tongue movements. If it wasn't a ghost, it would have been a quick learner who could have made a name for itself as a sex genius.</p>
-<p>If you ask how it would make a name for itself as a sex genius, I have nothing to say, but there's AV and stuff like that, right? It could have become a famous actress in that field. Or it could have become a virtuous wife who only pleases her husband. For some reason, I felt sorry for this ghost because it didn't even have such a future.</p>
-<p>,One shot!</p>
-<p>As I watched the ghost become more and more consumed by the pleasure I was giving it, my excitement also increased, and I quickly reached orgasm. Hot Semen filled the ghost's uterus.</p>
-<p>-Euheuheut! Heut! Geueut! Haaang!!!</p>
-<p>I glanced at the floor. Oh! The Semen didn't fall to the floor and stayed inside the ghost's body. It couldn't be helped that some of it splattered from the entrance of the pussy, but the rest stayed inside the ghost.</p>
-<p>Oh, that's amazing.</p>
-<p>,The last experiment is to see if it can ascend to heaven if it keeps receiving my Semen full of yang energy.</p>
-<p>-Noooo!!</p>
-<p>It shouted "no" with its mouth, but the ghost's lewd body, which had already tasted my dick once, seemed to want something more. I could feel the ghost's pussy twitching and grabbing my dick tightly. The signals from the rest of its body also felt like it was welcoming my body rather than rejecting me.</p>
-<p>,Your mouth says no, but your body is honest!</p>
-<p>I forcefully thrust my still hard dick in. The virgin ghost, caught off guard by my sudden attack, let out a moan that was not at all like a virgin's: "Heunghyat!"</p>
-<p>After that, the virgin ghost mostly took the positions I asked for, probably because it didn't know much since it was a virgin. I made it experience quite a few positions, such as doggy style, cowgirl, pine needle insertion, and ekiben. Perhaps because of the Golden Pillar's effect, the ghost now said "I'll kill you♥ I'll kill you♥" with affection instead of "I'll kill you, I'll kill you" filled with resentment.</p>
-<p>I guess it means something like "Let's die and be together forever," but that couldn't happen. I still have a lot to do.</p>
-<p>I have to help her ascend to heaven soon. Fortunately, my yang energy was effective, and her gray skin gradually became brighter and more transparent each time I ejaculated inside her.</p>
-<p>When I ejaculated inside her for the seventh time, the ghost smiled at me and opened her mouth. Her face was that of a beautiful young woman with no ghostly aura at all.</p>
-<p>-Thank you, and I love you...!</p>
-<p>Thud!</p>
-<p>As soon as the ghost finished speaking, the Semen fell to the floor. Before I knew it, there was no one in front of me. I guess it ascended to heaven? When I looked out the window, it was dawn. Only the sunlight coming through the window comforted me, who was alone.</p>
-<p>,I hope you'll be happy in your next life.... I loved you too, even if it was only for a short time.</p>
-<p>I put my hands together and prayed for her soul. Only the Semen I had just released filled the hotel room with the scent of chestnut blossoms.</p>
-<p>-------</p>
-<p>Ghost illustrations that didn't make it into the illustrations. (Ghost warning! Lewdness warning!)</p>
-<p>Prototype. I made it with the feeling of the hair covering the face, but it lacked something cute, so it was rejected.</p>
-<p>Realistic feeling. It was rejected because it was scary.</p>
-<p>It was rejected because it didn't feel like a ghost. I decided to apply it to another character model because it's pretty.</p>
-<p>I made it through roughly this kind of feeling ㅎㅎ</p>
+<p>"N-Nice to meet you! I'm Sawayanagi Azuma, the president of Seryu Military Company!"</p>
+<p>It felt like just a few minutes ago I was rubbing my tired eyes from the flight, but here was Sawayanagi Azuma speaking with a clear and energetic voice. Is it because she's the biggest employer I've met so far? I could feel her nervousness all the way over here. In contrast, Mimata Chieri looked completely relaxed.</p>
+<p>"I'm Mimata Chieri from East Weapon. Chairman-nim, you're so pretty~!"</p>
+<p>I told her to introduce herself, and she's just spouting nonsense. Nagumo Sian smiled gently, looking at the contrasting expressions of Sawayanagi Azuma and Mimata Chieri.</p>
+<p>"It's nice to meet you both. Let's talk on the way."</p>
+<p>We followed Nagumo Sian's lead and boarded a sturdy-looking luxury vehicle. As soon as we got in, Nagumo Sian handed contracts to Mimata Chieri and Sawayanagi Azuma.</p>
+<p>"The working-level staff have already sorted out the contracts, so just take a look and sign them."</p>
+<p>The only sound in the car was the rustling of paper as they flipped through the documents. While they reviewed the contracts, Nagumo Sian turned to me with a smile.</p>
+<p>"Already getting your hands on a PMC, huh? You're doing great."</p>
+<p>"I made some money in the stock market. And I got a favor ticket from Grandpa, which I used to get his permission."</p>
+<p>"Oh? A favor ticket? Danjo-oraboni isn't usually one to grant those easily."</p>
+<p>She definitely called him Chairman before, but she calls him Danjo-oraboni in private. Since Nagumo Sian was curious, I told her about the Minamoto spy infiltration incident at the Human Resources Development Center that led to me getting the favor ticket.</p>
+<p>"Huh! So you actually infiltrated the spy's house yourself?"</p>
+<p>"At the time, I didn't think of him as a spy, but as someone from my second great-uncle's line. But when I actually infiltrated, it turned out he was a spy from Minamoto."</p>
+<p>"Danjo-oraboni hates Minamoto with a passion, so it makes sense he'd give you a favor ticket. Jiro must have gotten a serious scolding, tsk tsk tsk."</p>
+<p>Nagumo Sian seemed to enjoy my story, so I got excited and kept talking. Sawayanagi Azuma and Mimata Chieri were also listening to my story, stuck on the same page of the contract. As I was talking, I suddenly got curious and asked Nagumo Sian.</p>
+<p>"By the way, why does Grandpa hate the Minamoto Group so much?"</p>
+<p>"Hmm...."</p>
+<p>Nagumo Sian made a humming sound in response to my question. She glanced at the two of them, who were casually looking at the contracts, and then spoke again.</p>
+<p>"I'll tell you when it's just the two of us."</p>
+<p>"Ah, okay."</p>
+<p>It seems like it's a story that others shouldn't hear. She said she'd tell me later, so I definitely have to listen. Of course, the companies were rivals, but from what Danjo-halbae said, it seemed like he had a particularly strong hatred for them, so I was always curious as to why he disliked them so much.</p>
+<p>"Signed."</p>
+<p>"Me too."</p>
+<p>They both read the documents, signed them, and handed them to Nagumo Sian. Nagumo Sian nodded and signed her own signature line.</p>
+<p>"Now that the contracts are complete, we can talk about work. First, East Weapon will be in charge of defending the Akita City area. It's an important place in Akita Prefecture, along with Daisen City, so I hope you do well."</p>
+<p>Akita City in Akita Prefecture is the largest core city in Akita Prefecture, but from the perspective of Taira Foods, Daisen City, where Taira Foods' factories are concentrated, was much more important, so it seemed that they were entrusting Akita City to East Weapon, an external PMC.</p>
+<p>"Seryu Military Company has a small number of people, so I'm thinking of assigning them the task of striking small bases. I've written down the rewards for each point in the city here, so if there are no other requests, you can report the attack and attack freely."</p>
+<p>Nagumo Sian handed Sawayanagi Azuma a tablet with a map application showing points all over Akita Prefecture. Unlike East Weapon, which receives money for each contract period, Seryu Military Company had a contract in the form of receiving payment for each mission in addition to the contract fee, so attacking many points on the map was the way to earn a lot of money.</p>
+<p>"The red points are quite difficult and dangerous, so you don't have to do them. We can handle them on our end."</p>
+<p>Looking at the tablet, the red points definitely had higher rewards. Sawayanagi Azuma didn't seem to hear that they were dangerous, and was only looking at the rewards for the red points. Hmm.... I'm sure she'll challenge those red points....</p>
+<p>"By the way, what are the police doing while Taira Foods is fighting Kurotsukido?"</p>
+<p>"The opponents are thugs with guns, so how can the police be their match? So, nominally, the police are hiring our Taira Foods, and we're fighting a proxy war. We also need to resolve the situation because it's not good for us if Kurotsukido takes root in Akita Prefecture, and the police don't have enough power, so it's a win-win for both of us. Of course, the police aren't just standing by, they're doing various activities."</p>
+<p>Listening to the story, it seems like it's unilaterally beneficial to Taira Foods.... Either way, Taira Foods has to get rid of Kurotsukido, but if they're being hired by the police, they'll definitely charge the police a huge amount.</p>
+<p>Also, in the end, the citizens will have the perception that the police are incompetent, and Taira Foods' image will be enhanced, so as long as they don't lose to Kurotsukido, the only losses would be the personnel losses of Taira Foods' own PMC and the fact that the factory wouldn't be running smoothly during this fight. It would be a huge loss for individuals, but for a company, this is not a big loss. You could say it's just the burden you have to bear if you're going to war?</p>
+<p>Of course, in order for the situation to not be a big loss for Taira Foods, they had to defeat Kurotsukido. If they lost, there would be huge losses.</p>
+<p>"When will East Weapon and the main force arrive?"</p>
+<p>"It's about a 7-hour drive to Akita City.... I think they'll arrive around 2 or 3 p.m."</p>
+<p>"The Seryutai side has decided to set up camp in Daisen City, so they'll arrive about 30 minutes earlier than East Weapon."</p>
+<p>It seemed to take quite a long time to drive from Kawaguchi City, where the headquarters of East Weapon and Seryu Military Company are located, to Akita Prefecture. It's 7 hours to Akita City and about 6 and a half hours to Daisen City.</p>
+<p>"I'm sorry, but I need you to start the operation as soon as you arrive. The Kurotsuki guys are crazy, they're putting in a huge amount of resources...."</p>
+<p>I don't know what's so useful in Akita Prefecture that they're putting in so much effort, let alone Tokyo or its vicinity. Do they have some kind of hidden mine....</p>
+<p>Ah!! That's right, speaking of mines, I'm sure it was possible to trade special minerals in Akita in the game? If the Kurotsukido side knew about the existence of that mine first, it would make sense for them to be using their power in Akita.</p>
+<p>In the game setting, there was a metal that was suddenly discovered around the time of World War III, and the discoverer was a fan of Lord of the Rings, so he named the metal Mythril. It was a very excellent metal. It was light, highly conductive, hard, tough, and didn't rust easily, and it was a metal that emitted a faint blue light. Mythril, which was said to be as expensive as the price of silver of the same weight, definitely came from Akita Prefecture.</p>
+<p>I need to talk to Nagumo Sian about this later and take it for myself. If I didn't know, I would have just passed it by, but now that I know, I have to take it. Even if I can't eat it, I have to try to eat it.</p>
+<p>"We've arrived, President-nim."</p>
+<p>While I was thinking about the Mythril mine, the car seemed to have arrived at its destination. When I got out of the car, it was a restaurant parking lot.</p>
+<p>"You haven't had breakfast yet, have you?"</p>
+<p>I couldn't eat properly because I came on the first flight. Looking at the time, it was 7 o'clock. I got off at Akita Airport around 6:30, so it seemed like I had been in the car for about 30 minutes.</p>
+<p>"This place has good porridge made with Kiritanpo."</p>
+<p>"Wow! I love Kiritanpo!"</p>
+<p>As expected of a gourmet maniac, Mimata Chieri responded excitedly to Nagumo Sian's words. We entered the restaurant under the protection of the bodyguards. Since it was a restaurant, the surroundings were exposed, so bodyguards were needed. Someone could snipe from a long distance, and if the information was leaked, they could be waiting in the restaurant.</p>
+<p>Moreover, the opponent was Kurotsukido, whose specialty was assassination. If I wasn't careful, it would be like asking them to kill me.</p>
+<p>I was also nervous for no reason, so I was activating my Master's Sense as sharply as possible. Sawayanagi Azuma also looked around.</p>
+<p>Sawayanagi Azuma, who had a premonition this morning, said that there would be no big deal, but premonitions are not omnipotent, and things could happen at a time that Sawayanagi Azuma didn't foresee, so Sawayanagi Azuma must be looking around as well.</p>
+<p>"It seems fine."</p>
+<p>When the bodyguard who had looked around the restaurant said that, we went inside. Our meal was already set up, probably because we had made a reservation in advance. We sat down and started eating. Even while eating, I was keeping my nerves sharp, so I didn't know if it was delicious or not, I was just putting it in my mouth.</p>
+<p>Suddenly, I felt something. Mimata Chieri, a skilled assassin, lowered her head and ate porridge, then raised her head with cold eyes, and Sawayanagi Azuma, the leader of Seryutai, also felt something and looked at me.</p>
+<p>I also felt something with my Master's Sense and high nerve stats. It was a thread of killing intent. That thread was connected to Nagumo Sian's chest, who was facing me and eating.</p>
+<p>Without even thinking, I pounced on Nagumo Sian. The sound of the bullet, which had far exceeded the speed of sound, was only heard after it pierced my back.</p>

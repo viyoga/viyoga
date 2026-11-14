@@ -5,92 +5,79 @@ weight = 984
 chapter = 984
 +++
 
-<p>before breast chapter check contains exposure please surroundings this your</p>
-<p>"Shii, come out quickly!"</p>
-<p>Parking the van I had ridden yesterday in front of the main building, Otagi Yuka shouted with a slightly Frustrating expression as she loaded the Luggage.</p>
-<p>"Ah~☆ Sorry, sorry~!"</p>
-<p>She had said she wouldn't pack Luggage, claiming she could buy it in the USA, but it was Seizawa Shii who came out with two Suitcases. Both Seizawa Shii and Otagi Yuka clearly looked tired, and it seemed to be because they were short on Sleep after being with me in bed until Dawn today.</p>
-<p>With the People going to the Airport together, and even Seizawa Shii, who was a little late because she was packing, all boarded, I took the steering wheel and departed.</p>
-<p>Fujigasaki Rinka, Otagi Yuka, Seizawa Shii, and others were planning to depart for the USA via Tokyo International Airport, not Narita Airport.</p>
-<p>Tokyo International Airport is right after passing the Tokyo Bay Aqualine, which is connected to Neo Tokyo, so as a resident of Neo Tokyo, I could go there relatively comfortably.</p>
-<p>To see off Seizawa Shii, Otagi Yuka, and Seiwa Rieko, who were going to the USA, everyone followed, except for Naruse Shiyo and Sakagami Rena, who had Joseodang Work, Shimokawabe Airen, whose Body had not yet fully recovered, Kijimoto Jurie, who was holed up in the laboratory mansion specially built for her research, and the two Shrine Maidens of Lizhael who had to guard the shrine.</p>
-<p>For reference, Tsukiyo had no particular acquaintance with the three going to the USA, but she rode in the car with me, saying she wanted to be with me.</p>
-<p>Sabu Fujigasaki Rinka had departed from Tokyo with Kujo Kina's Party/Group, so it seemed I could meet her directly at the Airport.</p>
-<p>"Rieko, what's wrong? Your Dark Circles are usually bad, but they're even worse today? Are you tired?"</p>
-<p>When Otagi Yuka looked at Seiwa Rieko and asked with a worried Expression, Seiwa Rieko was startled. Why was she so surprised? I looked at Seiwa Rieko in the Rearview mirror, whose Dark Circles had descended to her Chin, and wondered, but at Otagi Yuka's Words, perhaps because everyone in the car was giving her attention, she blushed with embarrassment.</p>
-<p>"Ah, actually, I haven't been to the USA. So I guess I couldn't Sleep because I was excited, Sunbae."</p>
-<p>Was not having been to the USA something to be embarrassed about? Among the Young Ladies of prestigious families from St. Francisco Girls' Academy, it was indeed very rare for someone not to have been to the USA, so it seemed that was the source of her embarrassment. Seiwa Rieko seemed unable to go to the USA because she lived in a rather poor Family/Household that only had the name of a prestigious family.</p>
-<p>"Well, if you couldn't Sleep, you can just Sleep on the Airplane to New York...."</p>
-<p>Seiwa Rieko's Answer was not content that Otagi Yuka needed to worry about, so she offered a Solution with a relieved Expression. Perhaps because she was the first Blood Clan Member with whom she shared blood, she seemed to care considerably for Seiwa Rieko.</p>
-<p>"It hasn't been long since we met again, so it's a shame you're going to the USA, Rieko."</p>
-<p>"I'll be back soon after the mission is over. We can see each other again then."</p>
-<p>Saionji Diana had an Acquaintance with Seiwa Rieko, so she spoke with a somewhat regretful Expression. Since she became Otagi Yuka's vassal on the morning of the Anyaji war and was introduced the next day, she had truly only known Seiwa Rieko for a short time.</p>
-<p>As we talked about Seiwa Rieko in the car, the theme changed to buying souvenirs for the three of them, and finally led to Chatter about recently trending fashion. As I, a man, listened to the Chatter that was difficult to follow, we eventually arrived at the Airport Parking Lot.</p>
-<p>Phew, we finally arrived.</p>
-<p>"Yo~!"</p>
-<p>Perhaps we arrived at a similar Time by chance, Fujigasaki Rinka, who had arrived in a limousine, rolled down the Window and waved her Hand at us as we got out of the car. By the way, a limousine.... That Kujo Kina Guy really treats Sabu Fujigasaki Rinka incredibly well, calling her her idol. Not only the limousine, but Fujigasaki Rinka's Skin was glowing smoothly, as if she had been fed all sorts of good things.</p>
-<p>"Sensei~!"</p>
-<p>"Humph...!"</p>
-<p>Kujo Kina and the somehow grumpy old man Yoda got out of the car, and from the mini Bus that followed the limousine, several familiar-faced Gwonmaeng Members got out.</p>
-<p>Fujigasaki Rinka was also affiliated with Gwonmaeng, and the missing Sajo Soda Haruto was also affiliated with Gwonmaeng, so it seemed quite a few People had come forward to help as Gwonmaeng. Seeing their familiar Faces, they seemed to be Gwonmaeng People who had participated in the Great Anyaji War.</p>
-<p>"How do you do?"</p>
-<p>Towards the Gwonmaeng People, the old man Yoda, and Fujigasaki Rinka, I gave a slight bow of my Head as a greeting.</p>
-<p>"Instead of doing this in the Parking Lot, let's go into the Airport first. We also need to do the Registration Process."</p>
-<p>Everyone who came with me, not just me, was trying to greet them, so Fujigasaki Rinka waved her Hand and said.</p>
-<p>"Rinka-nim, you can relax. I'll take care of all the Registration Process and other troublesome matters."</p>
-<p>Kujo Kina said with a smiling Expression I had never seen before. Of course, trivial matters like the Registration Process would be handled not by Kujo Kina but by employees of the Kujo Group, but for the Young Lady of the Kujo Group, who knew no bounds, to show such an Attitude, Fujigasaki Rinka seemed quite touched, looking at Kujo Kina with a rather gentle Expression.</p>
-<p>"Humph! She should be like that to her own Sabu...!"</p>
-<p>As Kujo Kina orbited around Fujigasaki Rinka like a satellite, the old man Yoda snorted and said. Aha...! It seemed the Reason the old man Yoda was grumpy was because of Kujo Kina's Attitude. Since she cared more for Fujigasaki Rinka than for him, her Sabu, it was a situation where the narrow-minded old man Yoda couldn't help but feel spiteful. The old man Yoda grumbled, and perhaps sensing that I kept thinking of him as the old man Yoda, he glared at me with a sharp look for no Reason. It seemed he was restraining himself because it was a busy Airport. I approached Fujigasaki Rinka, fearing I might be attacked by the old man Yoda if I stayed nearby.</p>
-<p>"Sabu, do you have any new Information?"</p>
-<p>"There is, and there isn't.... There's only the increasing number of Black Knight Witness accounts in New York on the Internet."</p>
-<p>Because the fake Black Knight Sabu mentioned was the person suspected to be Soda Haruto, there were only Witness accounts as clues for now. If I went to the USA, I would receive Information from the American police, but since I couldn't do that yet, there seemed to be no major clues for the time being.</p>
-<p>"...!"</p>
-<p>Fujigasaki Rinka was talking with me, when she glanced at Alik and Tsukiyo, who were clinging to my side and growling at each other. And her pupils widened slightly; she probably saw Tsukiyo. Naturally, she must have felt the Abyss-like Aura writhing within Tsukiyo. I felt it too, so my Sabu Fujigasaki Rinka couldn't possibly not feel it.</p>
-<p>"I Request you handle the Registration Process~!"</p>
-<p>"Leave it to me~!!"</p>
-<p>Fujigasaki Rinka, who had arrived at the Airport, asked Kujo Kina to handle the Registration Process, then pulled me to a Place away from the Party/Group. And she pointed with her Eyes at Tsukiyo, who was still having an eye-fight with Alik, and asked me.</p>
-<p>"Ryuta, what in the World... is she?"</p>
-<p>"Ah, Tsukiyo? It's a bit of a long Story...."</p>
-<p>I roughly explained Tsukiyo to Fujigasaki Rinka. Saying she was an Outer God wearing a girl's flesh would make her seem too evil, so I simply explained her as a girl who received the power Lizhael left behind when she ascended, and she nodded her Head.</p>
-<p>As she nodded her Head, she seemed to have a good thought, smiling and clapping her Hands, and the sound was quite loud, so People walking around the Airport looked at me and Fujigasaki Rinka.</p>
-<p>It would have been strange for People not to recognize Fujigasaki Rinka, Japan's top Sports Star, so People gathered, and we had to spend some Time giving autographs. Nevertheless, People kept gathering, so we had no choice but to follow the Kujo Group's bodyguards and take refuge in the Airport lounge's VIP room.</p>
-<p>"...Sorry."</p>
-<p>Because I had to struggle pointlessly, blocking the Crowd like a Maenijeo, Fujigasaki Rinka offered an Apology.</p>
-<p>"It's the Fate of a Disciple with a Superstar Sabu."</p>
-<p>"Are you teasing me?"</p>
-<p>I spoke in a teasing tone for no Reason, and got a light tap on the Head. Still, perhaps because she felt sorry, she didn't hit me hard.</p>
-<p>"Anyway, to return to what I said earlier... That Tsukiyo? How about taking her as your Disciple? If you're only going to use that Creation-whatever, I thought it would be good for you to take a Disciple before you forget Shinkaiyatsude."</p>
-<p>"What?"</p>
-<p>She wants me to teach that half Outer God? She pretended not to care much, but seeing her tell me to take Tsukiyo, who was full of Abyss-like Aura, as a Disciple as soon as she saw her, it seemed she was a bit bothered that I couldn't properly use Shinkaiyatsude because I had abandoned the Abyss.</p>
-<p>As I looked at Tsukiyo with a flustered Expression, Tsukiyo, noticing my Gaze, pointed to herself and mouthed, "Me?" then trotted towards me and Sabu.</p>
-<p>"Hello, this is your first Time with me, isn't it?"</p>
-<p>"I know. It's Rinka-nim~!"</p>
-<p>Because Tsukiyo had absorbed all the Memory of Sato Tsukiyo, the original owner of the Body, she seemed to know Fujigasaki Rinka's Face.</p>
-<p>"How about you become my Disciple's Disciple?"</p>
-<p>"No, Sabu...!"</p>
-<p>At Fujigasaki Rinka's Words, which went straight to the point, I called out to Sabu to stop her, but Tsukiyo seemed to think it was a good idea. Judging by her immediately smiling and nodding her Head.</p>
-<p>"Good!"</p>
-<p>Just as Sabu had taken me aside at the Airport earlier, this Time, I took Tsukiyo by the sleeve and led her to a Corner.</p>
-<p>"Are you really okay with this?"</p>
-<p>"What, Oppa?"</p>
-<p>Tsukiyo asked back, as if she didn't understand my Question at all. Ah, did I speak too abruptly?</p>
-<p>"No, something.... My teaching you martial arts is a meaningless action, isn't it? You also have stronger Authority.... Honestly, don't you not need martial arts?"</p>
-<p>"No~! Rather, I prefer learning from Oppa. You said Authority can't be used well in this World, right? Oppa's martial arts are ultimately considered power accumulated in this World, so I think I can use them freely without any particular restrictions. Of course, I'd have to set a Limit on the Energy I use...."</p>
-<p>Ah, I learned one fact I didn't know. Even if it's a mighty Outer God, there are Limits to using power in this World, but the power that Outer God accumulated in this World seemed to be fine. Then things like Guns would also be okay? After all, Guns were also made here.</p>
-<p>As Tsukiyo said, it would be better if she learned Fist Technique. Because I could utilize Tsukiyo more actively instead of just using her as a security system to guard the mansion and shrine.</p>
-<p>"Do you really want to be my Disciple?"</p>
-<p>"Yes...! I want to be Oppa's Disciple!"</p>
-<p>When I asked one more Time, Tsukiyo smiled and nodded her Head vigorously. Her Appearance was so cute that when I stroked her Head, Tsukiyo pushed her Head against my Hand as if asking for more strokes, like a dog.</p>
-<p>As I smiled, watching Tsukiyo's Appearance, and nodded my Head at Sabu, Fujigasaki Rinka also smiled and gave a thumbs-up.</p>
-<p>TheDreaming-nim requested Han Yu-gyeong's Swimming Pool scene~! 1. Upper Body with exposed breasts 2. Upper Body slightly bent, emphasizing breasts~!</p>
-<p>1.</p>
-<p>Because the Composition is similar, I'll only upload two images hehe.</p>
-<p>2.</p>
-<p>Why a buttocks photo? hehe</p>
-<p>This is almost the first Illustration held horizontally on a phone hehe.</p>
-<p>Bonus~!</p>
-<p>Made while testing prompts, Han Yu-gyeong in the Water~!</p>
-<p>Gojoy-nim requested Arisu's Casual Clothes and underwear~!</p>
-<p>Underwear first~!</p>
-<p>Casual Clothes</p>
-<p>Arisu usually wears comfortable Jeans + white T-shirts hehe.</p>
+<p>The next person I had a meeting with was Taira Kanna. Perhaps because I hadn't seen her since graduating from St. Francis Women's Academy (though it hadn't even been a fortnight), Taira Kanna said she was somewhat lacking in Taira Ryuta's essence and wanted to see me today.</p>
+<p>Since Taira Kanna was a yandere who might explode at any moment if I didn't meet her frequently, I granted her request. Taira Kanna had to talk with the people in her faction after the competition, so I met Grandmother Taira Shizuku in the meantime.</p>
+<p>「This way,」</p>
+<p>Guided by the maid, I entered the interview room, where Taira Kanna was seated. Behind her stood Muko Neika and a burly man with dreadlocks, whom I was meeting for the first time. On closer inspection, although hidden by his suit, I could see that a significant portion of his body was made up of cyborg implants, judging by his mechanical eyes, steel-colored neck, and exposed mechanical hand.</p>
+<p>Muko Neika was a skilled individual called Juuki (Gun Demon) in the original work, so the man standing next to her was also likely to be quite skilled. Cyborgs were all somewhat similar, but I was curious about what abilities he possessed.</p>
+<p>「Orabeoni, have you arrived?」</p>
+<p>「Teacher, have you come?」</p>
+<p>As I entered the interview room, Taira Kanna and Muko Neika greeted me, and the dreadlocked man bowed his head without a word.</p>
+<p>「Aunt-nim, hello.」</p>
+<p>Since there were people I was meeting for the first time, I addressed Taira Kanna as Aunt-nim and sat down. Mimata Chieri cheerfully greeted me with, 「Hello~!」, while Linxiang simply bowed her head like the dreadlocked man.</p>
+<p>「Aunt-nim? Please treat me as usual, Orabeoni~!」</p>
+<p>Perhaps she thought I was keeping my distance by calling her Aunt-nim, she puffed out her cheeks and looked disappointed. I couldn't help it since she said it like that. I'd treat her comfortably, just like when we were at St. Francis Academy.</p>
+<p>「Alright. I'll be comfortable when it's just us. Congratulations on being entrusted with the Taira Driving System.」</p>
+<p>「It's nothing. Does that mean we'll be seeing each other occasionally?」</p>
+<p>「Huh?」</p>
+<p>What is she talking about? As I stared at her, Taira Kanna opened her mouth with a 'didn't you know?' Expression.</p>
+<p>「Taira Food distribution also uses the software provided by the Taira Driving System. So, the Presidents have to meet occasionally.」</p>
+<p>Ah, I see. I didn't know that. To manage the numerous delivery drivers of Taira Food distribution, they would need some kind of management software, so it seemed they were using things provided by the Taira Driving System.</p>
+<p>「Let's do that. But if we meet too often, the other successors might get suspicious, right?」</p>
+<p>「Of course, we can't meet that often now. We're both Presidents now, so we're busy. But you still have to meet me occasionally, okay?」</p>
+<p>If I didn't meet her, she might go crazy again and kidnap me, so I nodded my head.</p>
+<p>「But apart from providing software, there's not really any synergy between Taira Driving System and us.」</p>
+<p>「That's right. We're a cutting-edge industry, and Orabeoni's is a traditional Yutong business.」</p>
+<p>Taira Kanna was right. Taira Driving System was a considerably important company from the Taira Group's perspective, and Taira Food distribution was a company spun off from Taira Food, so it wasn't very large in scale and wasn't a company with high importance within the group.</p>
+<p>Even if Taira Food distribution disappeared right away, Taira Bussan could take over the work.</p>
+<p>Because it was such a clearly limited company, I wasn't planning on greatly expanding Taira Food distribution, but rather maintaining the status quo. It would be better to put my energy into TG Tech or other companies than to put it into Taira Food distribution.</p>
+<p>Of course, I couldn't do nothing, so I had a few things in mind, but for now, I was planning on enduring for a while and aiming for an opportunity to successfully complete the missions Taira Danjo gave me and receive another affiliate company.</p>
+<p>At first, I thought the missions were just annoying, but the Rewards were quite substantial. Because it was a quest with a big Reward where I could receive an affiliate company if I did well, looking back now, it seemed like the missions I promised to get PMC were the opportunities Taira Danjo was giving me.</p>
+<p>Of course, he probably didn't have high expectations that I, who had no power and whose abilities were unknown, would succeed in the mission.</p>
+<p>「Even if there's no synergy on the company side, call me if there's anything I can cooperate with.」</p>
+<p>「I'm the one who should be saying that. Contact me if you need anything, Orabeoni. But, what happened with Jiro Orabeoni? He seemed to be pushing you a bit today.」</p>
+<p>Ah, she seemed to have been wondering about Taira Jiro praising me at the family meal today. She must have been thinking, 'He's not usually like that?'</p>
+<p>「I'm supplying Mithril to them, and recently, guys presumed to be from Taira Jiro's side attacked Hatake Investment Company. After I eliminated them without a trace, they must have lost the desire to antagonize me.」</p>
+<p>「Hmm, I see.... It's a barbaric era where it's natural to be eaten if you're weak these days. You have to prove your skill to even be a conversation partner. I understand, Orabeoni.」</p>
+<p>Taira Kanna nodded her head at my Words. Having been raised as a Taira family's Young Lady, she must have seen these things happen frequently. Because more than anything, the Taira family is a family that overpowers the Opponent with force and takes everything away.</p>
+<p>「That's right. In this family, having at least minimal Power is a virtue.」</p>
+<p>「Of course, it's because it's such a family that I can aim for the next generation.」</p>
+<p>Taira Kanna's eyes burned as she said she was aiming for the next generation. Various Emotions, such as ambition, anger, and boksu, were burning in Taira Kanna's eyes.</p>
+<p>In fact, if it were a normal family, Taira Kanna, who was the youngest of the siblings and a Woman, wouldn't even dare to challenge for the position of the next family head.</p>
+<p>It was possible because the Taira family was a family where Power took precedence over tradition. Even the current Chairman, Taira Danjo, wasn't the eldest son, and he sat on the throne of the Taira family with a body stained with blood after dealing with all his siblings.</p>
+<p>「Let's stop talking about Business for now.... It's my first time meeting Orabeoni's secretaries~!」</p>
+<p>There wasn't really anything to talk about in terms of Business, but since we were both in a position where we had been appointed by Taira Danjo old man today, there wasn't anything to talk about regarding Business. You can't talk about it unless you know about it. It was natural that there was nothing to say since we hadn't had our inauguration ceremony yet.</p>
+<p>「I'm Mimata Chieri, the secretary.」</p>
+<p>「I'm Linxiang, the secretary.」</p>
+<p>Mimata Chieri and Linxiang introduced themselves again, stating their names. As the two introduced themselves, Taira Kanna also gestured to the dreadlocked man, and the dreadlocked man also greeted me.</p>
+<p>「I'm Hosen Jinto, the head of Kanna-nim's security team, Young Master.」</p>
+<p>He was the head of the security team. Looking at it this way, both of the people I brought were secretaries, and both of the people Taira Kanna brought were Gyeonghowon. Of course, that didn't mean that Mimata Chieri or Linxiang had low combat abilities.</p>
+<p>This difference was quite interesting. It was because the two were in different situations. I, who still lacked practical skills and was confident in my strength, brought secretaries, and Taira Kanna, who was confident in her own practical skills and had stepped into the brutal succession war and had to be more careful, brought Gyeonghowon.</p>
+<p>「Well, since you've stepped into the successor structure, you have to be careful. Make safety the most important thing above all else.」</p>
+<p>Whether she liked my worrying Words, Taira Kanna's face flushed, and she said, 「If Orabeoni worries about me like that, it's hard to bear,」 and she was slightly Aroused. No, you're getting Aroused by this?</p>
+<p>「This is the main family residence, so don't get any strange ideas.」</p>
+<p>「...That's right.」</p>
+<p>Just now, Taira Kanna's eyes started to shine slightly dangerously, so I made her come to her senses by saying that this was the Taira main family residence. No matter how reckless Taira Kanna was, she knew that causing trouble in the main family residence was insane, so she nodded her head.</p>
+<p>「Let's meet somewhere other than the main family residence next time.」</p>
+<p>「...Okay, see you next time.」</p>
+<p>After chatting with Taira Kanna for a while, we got up from our seats. Since everyone was in a situation where they had newly received a company, we couldn't stay in the Taira main family residence any longer. We had to quickly take control of the companies we received.</p>
+<p>After finishing all our plans at the Taira main family residence, we went to the vehicle that Saionji Diana was guarding. She was looking at her phone, seeming a little bored, but smiled and greeted us when we got there.</p>
+<p>「You've arrived, Teacher...!」</p>
+<p>「Yeah, did you wait long?」</p>
+<p>「It was a bit boring just staying still. As you said, Teacher, I should do something other than being a driver.」</p>
+<p>When I told Saionji Diana on the way to the main family residence this morning that I was only entrusting her with being a driver today, she was quite disappointed, but now it seemed like she had changed her mind. It seemed like it was quite boring waiting alone in the car.</p>
+<p>「Still, you have to drive well until today.」</p>
+<p>「Of course. Where shall we go?」</p>
+<p>「Take us to Taira Food distribution.」</p>
+<p>I hadn't decided whether to hold an inauguration ceremony right away, but I had to receive a handover from the previous Boss, so I decided to go today. I knew how Han Yu-gyeong had acted at Xinjiang Life Insurance, so I had done my homework from my perspective, but I wasn't planning on being as rough as Han Yu-gyeong.</p>
+<p>According to our investigation, the former Taira Food distribution Boss was a professional CEO with no particular faction, so it seemed like there was no need to treat him harshly. Of course, I would do an audit once, but I was planning on letting it go unless he had done anything too egregious.</p>
+<p>「It'll take about 30 minutes.」</p>
+<p>Saionji Diana said, looking at the navigation system. Taira Food distribution was originally located in Akita, but with this Neo Tokyo project, the headquarters were moved to Neo Tokyo, so for me, who had a house in Neo Tokyo, commuting became quite easy.</p>
+<p>「Junior-nim, what should we do about the inauguration ceremony? I've already told Jo Seodang about it.」</p>
+<p>Since I didn't have a staff group yet, it seemed like she had informed Jo Seodang about the inauguration ceremony. Mimata Chieri was also busy with her work as the President of East Weapon, so she couldn't continue to help me as a secretary, and currently, only Linxiang was helping me with administrative work as my secretary, so I needed to expand the staff a bit more. I hoped there would be good talent at Taira Food distribution.</p>
+<p>「Let's not make it too flashy and just do it simply on the company's broadcast. Maybe tomorrow or the day after?」</p>
+<p>「I'll pass it on, Ryuta-nim.」</p>
+<p>Linxiang said at my Words. Linling was at the mansion, so she would prepare well. We talked about Taira Food distribution like that and headed to the Taira Food distribution headquarters.</p>
+<p>Gojoy-nim requested Camilla and Kisa's belly dancers~!</p>
+<p>Starting with Camilla~!</p>
+<p>Kisa~!</p>

@@ -5,49 +5,77 @@ weight = 34
 chapter = 34
 +++
 
-<p>Han Yu-gyeong</p>
-<p>As far as Han Yu-gyeong remembered, her childhood was definitely a harmonious one. Han Yu-gyeong had a good memory. So whenever things got tough, she always reminisced about those memories. She licked and re-licked those happy childhood memories like a drug.</p>
-<p>Her mother was a rising rookie actress, and her father was the son of a chaebol family. Her father fell in love with her mother, not the family's chosen woman, and married her after getting Han Yu-gyeong pregnant.</p>
-<p>Of course, the price for not marrying the family's chosen bride was not small. Her father was expelled from the family, and her mother's acting career ended.</p>
-<p>Still, she was happy in her childhood. Even without much, it was a harmonious family. But at some point, she didn't know when, her parents began to obsess over and regret what they had lost because of each other.</p>
-<p>-If it weren't for you, I wouldn't have to live in this miserable house...</p>
-<p>-If your family hadn't blocked my path, I would have become a top star!</p>
-<p>In that kind of environment, all Han Yu-gyeong could do was study. It was because she believed that if she succeeded, she could return to a harmonious family. She wanted to repay her parents for what they had lost by having her.</p>
-<p>She had a good memory and was smart, so she always took first place in the entire school, and although she was poor, she was able to get by with part-time jobs and scholarships. And when Han Yu-gyeong was admitted to Korea University, the best university in Korea, as the top student in the Department of Business Administration, she received a call from her father's family, the Shin-gang Group.</p>
-<p>-You have raised the family's name by entering Korea University as the top student, so we will take you back!</p>
-<p>From that day on, her parents never fought. It was because they had regained what they had lost because of their marriage. They were no longer a loving couple, just a contractual relationship bound by the name of a couple, but there was no reason to fight. Her father was able to return to the family and gain wealth, and her mother was cast in a drama produced by the broadcasting company owned by Shin-gang Group. Her mother was older, but she was still beautiful, so she was able to return to broadcasting.</p>
-<p>Han Yu-gyeong thought it was fortunate. She just thought that she had become like this because she was good at studying. But her thoughts changed when she overheard her father's phone call a few days before re-entering Shin-gang Group.</p>
-<p>"My father is trying to form a marriage alliance with the Jeil Group this time, and if she's the top graduate of Korea University, wouldn't we be able to send her to the Jeil Group, which is higher than us?"</p>
-<p>The Jeil Group was one of the top three chaebols in the country. Han Yu-gyeong's family, the Shin-gang Group, was barely in the top 10. The Shin-gang Group didn't need her because she was good at studying, but just needed the label of being the top graduate of Korea University to send her as a daughter-in-law to the Jeil Group.</p>
-<p>Han Yu-gyeong was shocked. Other people in the family could think of her as an object of arranged marriage. But it was a very big shock for Han Yu-gyeong, who had vivid memories of her harmonious childhood, to see her father smiling and having such a conversation. She was very sad that her father now thought of her as just an object to be sent to another family.</p>
-<p>So, she said she was going on a trip before going to college and left home without a plan. Han Yu-gyeong, who only knew school, home, and part-time jobs, didn't know the fear of the world. She was just walking down a dark street in Seoul when a hand popped out of an alley and pulled Han Yu-gyeong in.</p>
-<p>"Kyaa!"</p>
-<p>Han Yu-gyeong screamed, but no one helped her. The criminals were two men. They seemed very familiar with doing this kind of thing, as if they had done it more than once or twice, and their eyes were eerie.</p>
-<p>"Wow! You're right, she's a damn hot bitch, isn't she? We can strip her naked and there won't be any fishy smell."</p>
-<p>"My eyes are golden eyes that never miss a great woman."</p>
-<p>Both men were holding knives with blades about 23 centimeters long. They were making obscene remarks as if they were about to tear Han Yu-gyeong's clothes off, but Han Yu-gyeong bit her lip and endured the fear.</p>
-<p>"If you find out who I am, you will definitely regret it. Please let me go."</p>
-<p>"Hehehe! You crazy bitch, do you think you're the president's daughter or something?"</p>
-<p>"She could be the daughter of a chaebol! But even if the president or a chaebol comes, they can't stop us from fucking her here. If we fuck you, can we become the son-in-law of a chaebol?"</p>
-<p>That's wrong. They were guys who couldn't communicate. At that time, she saw a man with a sturdy physique passing by between the alleys.</p>
-<p>"Help me!"</p>
-<p>"Hehehe, there's no one to help you."</p>
-<p>"We'll help you. We'll put my sausage in your hungry lower mouth!"</p>
-<p>The man with the sturdy physique was passing by indifferently when he met her eyes. What kind of expression is that? It was as if he knew Han Yu-gyeong herself. The man walked behind the two thugs and struck one of them in the neck with his hand.</p>
-<p>After that, it was like a storm was raging. Only a very short time had passed, but one person ran away and one person fell and couldn't get up. The man who helped Han Yu-gyeong was also not unscathed from dealing with the knife-wielding person, and his arm was cut. Looking closely, he was a very handsome man.</p>
-<p>At that moment, Han Yu-gyeong made a plan. First, she would go to a motel under the guise of bandaging him up. And then, whether she talked to him or treated him, she would hold out until the subway stopped running. And then she would throw herself at this man. It was a simple plan. Han Yu-gyeong knew her own appearance, so she knew that even Jin Yong-tae in front of her wouldn't be able to reject her.</p>
-<p>If she was going to have an arranged marriage anyway, she didn't want to give her virginity to the son of a chaebol she didn't even know. She thought it would be better to give her first time to this handsome man who helped her. If it weren't for this man, she would have been brutally gang-raped by two thugs, so she had no qualms about giving herself to this man.</p>
-<p>It was an impulsive thought, but as she talked to the man, she fell more and more in love with him. The man's name was Jin Yong-tae, and he was a third-generation Korean-Japanese who had come to Korea for a trip.</p>
-<p>He was a man with an even worse story than her. He was an illegitimate child of a chaebol family, and he didn't even know his father's existence until recently, when his father died and he was allowed into the family. Moreover, he was bullied as a Korean-Japanese during his school days. Han Yu-gyeong also knew that bullying in Japan was more severe than in Korea after watching a few documentaries and videos, so she felt a maternal instinct-like feeling towards this handsome Jin Yong-tae.</p>
-<p>And above all, Jin Yong-tae had a very good body. He had a more violent body than any man she had seen on TV or YouTube. Contrary to the maternal instinct she felt depending on Jin Yong-tae's situation, her female instincts began to awaken when she saw Jin Yong-tae's body.</p>
-<p>'I want to be under this man!'</p>
-<p>While they were talking, as she had planned, when Jin Yong-tae asked if she shouldn't go because it was time for the subway to stop running, she was embarrassed but asked him to let her sleep over. The smile that flashed across Jin Yong-tae's face at that moment made Han Yu-gyeong's lower abdomen throb.</p>
-<p>Ah, this man wants me too! That's what she thought. After that, everything went smoothly. They drank alcohol, spoke informally, and kissed....</p>
-<p>It was her first kiss. It felt like walking through the clouds. It wasn't that she had intentionally saved her first kiss or first relationship. It was just that she was too busy juggling studying and part-time jobs to date. The moment she kissed him, she felt that it was fortunate that she had given her first time to this man. It was that good of a kiss.</p>
-<p>And then the following relationship. The first time was painful, but it felt good. Jin Yong-tae's hot thing warmed her stomach and made her body hot. That was also very good, but from the second time on, she couldn't come to her senses. The pleasure that Han Yu-gyeong had never felt before swallowed her mind like a wave. If the first time was just about making her body hot, the second time on, it was like lava. It was a pleasure that made her feel like she was going to disappear.</p>
-<p>She shamelessly let out moans, tears, and vaginal fluids. Jin Yong-tae hugged her tightly with his sturdy and strong body.</p>
-<p>The more she had sex, the more she liked this man. She spent that time with Jin Yong-tae while she was away from home on a trip. Jin Yong-tae gave her hidden items, as if it wasn't his first time in Seoul, and gave her some pills, calling them elixirs. She received everything Jin Yong-tae gave her without any suspicion. At night, they had sex as promised and fell asleep satisfied. She spent two days with Jin Yong-tae like that.</p>
-<p>The last thing Jin Yong-tae gave her was a necklace with a subtly shining jewel. The moment Jin Yong-tae put the necklace on Han Yu-gyeong himself, Han Yu-gyeong realized it. She had fallen in love with Jin Yong-tae.</p>
-<p>Before leaving, Jin Yong-tae told her how she could be with him. That was to become the owner of the Shin-gang Group. Han Yu-gyeong vowed. She would eliminate those who interfered with her, even if they were her parents.</p>
-<p>Han Yu-gyeong returned home with a new determination.</p>
-<p>The drug that she had to lick now was not the memory of a harmonious family, but the memory of Jin Yong-tae.</p>
+<p>I browsed the shadow market app, but it seemed like it was too early in the game, so there weren't any particularly good items. Should I look a little more...? Ah, I found one!</p>
+<p>Permanent Perfume: Drinkable Perfume. Permanently gives off a good scent. Price 12000P</p>
+<p>Since I was looking at it on the app, I couldn't see the item description. I could only see the item information with a translucent window when I actually saw it. But it was an item I knew. It was an elixir item that increased charm proportional to appearance stats, but the charm stat only increased if the minimum appearance was 10 or higher. Since my appearance stat is 15, it was an item worth buying.</p>
+<p>The price was very cheap compared to the options, and customers were reluctant to buy it because the scent was permanent. If it was a permanent perfume but smelled like fart gas, it would be the end. So, they said they discounted the price by more than 80 percent. The game description said it smells very good! So, it would be good to buy it.</p>
+<p>I used my points to buy the permanent perfume. The delivery time was determined by the country and region where the item was sold, and it seemed that this permanent perfume was being stored in a warehouse in Japan, in a nearby area, so it was written that it would arrive after lunch today.</p>
+<p>I wrote "Please put it in the delivery box and text me" in the delivery message and decided to take a break. In the old days, Japan had a cumbersome delivery system where the person receiving the package had to receive it in person, but now it has improved to the point where you don't have to receive it yourself if you install an unmanned delivery box in front of your house. The unmanned delivery box itself has a camera, so it's a bit of a burden in terms of cost, but the population installing them is increasing.</p>
+<p>I was lying down trying to sleep until lunchtime when an alarm went off saying I had a message on LINE. When I checked, it was Kazuhiro. For reference, Kazuhiro was registered as Sumikatsu, his nickname from high school.</p>
+<p>Sumikatsu: Hyung-nim, you didn't forget my debut match tomorrow, did you? Come and watch this body score a goal.</p>
+<p>Ah, that's right. Kazuhiro sent me two tickets for his debut match. It was a Sunday match, so I decided to go with Arisu. Thanks to Kazuhiro, I had one less date course to think about, so it was a bit easier.</p>
+<p>Taira Ryuta: I know. I'm going with a girl, so don't talk about Hanako.</p>
+<p>Sumikatsu: Ooh~! A different girl?</p>
+<p>Taira Ryuta: A different girl? I never even dated Hanako. What about you and Kagawa Umi-ssi?</p>
+<p>Sumikatsu: Good! She's smart, so she's charming. Sex is good too!</p>
+<p>Wow... They're still dating? They've been dating for quite a while. Kazuhiro is a horndog and gets bored easily, so he doesn't date girls for long. The longest he dated was when he was a virgin in his first year of high school, about half a year. After he lost his virginity, he was known as the "Ugly Woman Bomber of Edogawa High" because he dated and dumped so many girls.</p>
+<p>When he broke up with them, the girls who had tasted Kazuhiro's black dick would cling to him, but Kazuhiro was a piece of trash who would tell them to choose between never seeing him again VS being a sex buddy. According to Kazuhiro, the percentage of girls who said they would be sex buddies was about 40 percent. If he did that to pretty girls, I would have gladly ended his life for the sake of the world, but his taste saved his life.</p>
+<p>Taira Ryuta: Anyway, thanks for the tickets. What are you doing after the match?</p>
+<p>Sumikatsu: Dinner with your hyung-nim and then sex with Umi.</p>
+<p>Such a sex parrot. When I went to the driver's license training camp, I saw Kagawa Umi and she seemed to like sex too, so they're a good match.</p>
+<p>Taira Ryuta: Okay. I'll come and cheer you on Sunday.</p>
+<p>Sumikatsu: Otsu!</p>
+<p>As soon as I finished LINE with Kazuhiro, it was lunchtime. Taira Yukiko must have gone out for work because she wasn't around. I ate the hamburger set that the housekeeper made for me. It was so delicious because it had wagyu in it. The beef flavor was amazing.</p>
+<p>After eating lunch, I brushed my teeth and took a shower, and then I got a text saying the delivery was complete. Hmm, that was fast.</p>
+<p>I opened the delivery box in front of my house and took out my package. But there was another package with Taira Yukiko written on it. Hmm, I guess I'll put it in front of Taira Yukiko's room? It was a long box about 30 centimeters long and 9 centimeters wide, and I wondered what it was, so I looked at the invoice and it said stationery. Is it a fountain pen or something? I put the package on the small side table with the flower pot in front of Taira Yukiko's room.</p>
+<p>Then I went to my room and opened my package. It was wrapped well in bubble wrap because it was in a glass bottle. I took off all the bubble wrap and focused on the bottle, and a translucent window appeared in front of my eyes.</p>
+<p>◆Permanent Perfume [Epic Elixir]</p>
+<p>A unique perfume that emits a good scent in proportion to appearance. You need to have a certain level of appearance to get even the minimum effect.</p>
+<p>The scent is very good!</p>
+<p>Charm +1 at appearance 10, then charm +0.8 for every appearance 1 after that.</p>
+<p>Since my appearance is 15, I get 1 as a base and an additional 4, for a total of 5 charm. I opened the bottle and drank the permanent perfume without hesitation.</p>
+<p>Guwaaak! The taste was the worst. It was like drinking real perfume. Or like drinking shampoo? I haven't eaten that many elixirs so far, but this was the worst-tasting elixir I've ever eaten.</p>
+<p>But I was curious about the effect, so I put the back of my hand to my nose and smelled it, and it smelled kind of good because it was my own scent, but it also didn't smell like anything, so it was a bit ambiguous.</p>
+<p>Hmm... I wonder if my stats have definitely increased with the elixir, so should I open the status window for the first time in a while? I even opened my room door to make sure no one was around and quietly shouted "Status Window."</p>
+<p>Name: Jin Yongtae/Taira Ryuta/■■■ Lv05</p>
+<p>Stats</p>
+<p>Physical</p>
+<p>Strength: 8 Agility: 6 Stamina: 10 Resistance: 6 Recovery: 8 Nerves: 10 Appearance: 15</p>
+<p>Mental</p>
+<p>Intelligence: 2 Knowledge: 2 Concentration: 3 Willpower: 14 Creativity: 2 Charm: 10 Judgment: 3</p>
+<p>Other</p>
+<p>Luck: 5 Abyss: 4</p>
+<p>Skills</p>
+<p>Shinkaiya Tsude</p>
+<p>Golden Pillar Bangjung Technique</p>
+<p>Traits</p>
+<p>Regeneration</p>
+<p>Golden Pillar</p>
+<p>Master's Sense</p>
+<p>Limit Break: Willpower</p>
+<p>Abyss Affinity</p>
+<p>My charm, which was 5, had increased by 5 due to the permanent perfume, making it 10. Good, with this much charm, I won't be lacking anywhere. Charm was an important stat, just like all the other stats. It wasn't just necessary for seducing women, but it was also a kind of charisma, and the higher you went, the higher your charm had to be.</p>
+<p>If your charm is low, your subordinates won't listen to you properly or they'll subtly ignore you, so if you want to take the route of becoming the chairman through internal promotion from the youngest son of a megacorp, charm is the stat you need to prioritize when leveling up.</p>
+<p>"Should I start getting ready to go out now?"</p>
+<p>It was already 3 o'clock. Since I don't have a car, Arisu said she would pick me up in front of the Human Resources Development Center at 4 o'clock, so I should start changing my clothes. After changing my clothes, setting my hair, and applying BB cream to my face, it felt like my appearance stat had increased by about 1 more.</p>
+<p>I'm going to hang out today, sleep at a hotel, and watch Kazuhiro's soccer game tomorrow, so today is definitely an overnight stay. I opened LINE and sent a message to Taira Yukiko.</p>
+<p>Taira Ryuta: Mother, I'm staying out tonight. And I put your package in front of your room.</p>
+<p>Taira Yukiko: Okay, you didn't open my package, did you?</p>
+<p>Taira Ryuta: I may be a high school graduate, but I know my manners. I just put it on the side table with the flower pot next to the door so it would be easy for you to take it.</p>
+<p>Taira Yukiko: Thank you. You're hanging out with a friend, right? Have fun.</p>
+<p>Taira Yukiko has sent you ¥100,000.</p>
+<p>Wow, as expected of a chaebol daughter-in-law, she gives me a million won for allowance. I sent "Thank you, I'll use it well, Mother" and closed LINE.</p>
+<p>I closed LINE, put on my shoes, and went outside. The time was 3:45, so I had plenty of time. No matter how big the Human Resources Development Center is, it only takes 5 minutes to get to the main gate from here. That's partly because I walk a little fast. I slowly looked around the Human Resources Development Center, greeted the security team ajusshi-deul, and went outside the main gate, where Arisu's red Porsche 911 was parked.</p>
+<p>"Yaho! Ryuta!"</p>
+<p>Arisu waved happily as I got into the car.</p>
+<p>"How have you been?"</p>
+<p>"I'm good, I recently got a lingerie modeling job, so I took some pictures, even though I'm embarrassed. Do you want to see them?"</p>
+<p>"Show me the lingerie photos later. In a place where it's just the two of us."</p>
+<p>Arisu was still cheerful. I sat in the passenger seat of the Porsche and gave Arisu a light peck on the lips. I giggled as I watched Arisu's face turn red as she chattered away.</p>
+<p>"Today, we're going to meet my friend Sayaka."</p>
+<p>"Tomorrow, we're going to meet my friend Kazuhiro."</p>
+<p>"Yeah, yeah~! We're going to meet each other's friends, alternating every day~."</p>
+<p>I brought my face closer to the excited Arisu and blew air into her ear. It was quite cute to see her flinch.</p>
+<p>"Tonight and tomorrow morning... you know?"</p>
+<p>"....Yeah."</p>
+<p>Arisu started driving with a flushed face. It was fun to tease her. I was really looking forward to today's date.</p>

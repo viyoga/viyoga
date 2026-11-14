@@ -5,81 +5,79 @@ weight = 1042
 chapter = 1042
 +++
 
-<p>The Woman with brown and orange hair mixed, wearing a Lace Blindfold, Whisper, saw the fragment of the Grimoire of Omniscience bound in Chains, which appeared on the Screen. Perhaps the fragment of Omniscience would be the Last auction Item.</p>
-<p>Being a regular room, she couldn't see it directly like in a special room, but even on the Screen, the strange magic power emanating from the fragment of Omniscience was enough to reach Whisper's skin. Even with a screen not directly connected, it was this much, so in a special room where one could see the real thing directly through a window, the influence would likely be even greater.</p>
-<p>"At this rate, an accident could happen...."</p>
-<p>Whisper muttered softly. She had heard the legends about the fragment of Omniscience, but she hadn't known it would be this intense. Because Whisper dealt with sound, she could feel the entire massive Cruise ship buzzing and stirring.</p>
-<p>"In this Situation, it seems impossible for me to obtain it...."</p>
-<p>Whisper, as if stifled, muttered as she removed the Lace Blindfold covering her Eyes. Beneath the Lace, green pupils filled with complex Emotions were revealed.</p>
-<p>Whisper, Maya Reed, was both a Superhuman and a witch. But despite having two such special Abilities, until a few months ago, Maya Reed herself thought she was an Ordinary student attending law school.</p>
-<p>The future she desired was in a completely different place from using her innate Abilities. Maya Reed, who wanted to become a Judge, had as her primary Goal to graduate from law school and join a famous law firm.</p>
-<p>But that Goal was shattered by an Incident. It was because of the disaster caused by Famine at LA Dignity Health Sports Park.</p>
-<p>In that Incident, where tens of thousands died simultaneously with Famine's appearance, Maya Reed's entire family died. Maya Reed, whose Goal was to be a Judge, couldn't help but vividly feel the powerlessness of the law in this Incident.</p>
-<p>Arrest warrants or Binding warrants were useless against Famine. Even if Famine were tried and sentenced to life imprisonment in prison, Famine had the power to escape from prison before noon.</p>
-<p>Ultimately, Maya Reed, who thought there was no other way to get revenge for her family than to personally execute Famine, joined Superior, a Superhuman Organization founded by Famine.</p>
-<p>Maya Reed, who possessed the Ability to manipulate sound waves, was given the name Whisper, and developed her superpowers while listening to the advice of various Superhumans.</p>
-<p>As she developed her Abilities, she was eventually recognized by Famine, and became one of Superior's top ten Executives.</p>
-<p>But even after becoming an Executive of Superior, Maya Reed could not get revenge. It was just like how the law couldn't bind Famine. It was simply because Famine was too strong.</p>
-<p>Around the time she wondered if she could ever defeat Famine, no matter how much she grew, she was assigned the mission to deal with Black Knight and came to New York with Behemoth. In New York, Maya Reed heard a piece of Information.</p>
-<p>That Information was that a fragment of Omniscience was up for auction. The fragment of Omniscience.... It was a legendary grimoire that her Grandmother, who had left Maya Reed her witch Bloodline in childhood, had told her about like an old Story.</p>
-<p>Maya Reed thought, 'If superpowers don't work, perhaps magic will?' and forcibly fabricated a story that Black Knight might appear at the auction, attending it.</p>
-<p>The foolish Behemoth followed her opinion, which made no sense even with a little thought, but if Black Knight didn't appear at this auction, he was the kind of guy who would explode with anger and attack Maya Reed.</p>
-<p>While Maya Reed was thinking about what excuse she would make, the price of the fragment of Omniscience had already exceeded fifty million Points. Since 1 Point was 1 Dollar, it was an enormous sum of fifty million Dollars.</p>
-<p>"Who would invest so much money...?"</p>
-<p>Maya Reed muttered, watching the auction Situation on the Screen.</p>
-<p>Through the deeds performed in New York with the fake Black Knight, the Black Sage had acquired immense Wealth. The vast property of numerous New York underworld figures, dealt with by the fake Black Knight's actions, flowed to the Black Sage, and with enormous amounts of Cash, cryptocurrency Assets, and even a massive quantity of Drugs coming under the Black Sage's control, the Black Sage became a magnate.</p>
-<p>The Black Sage already had a lot of money from various illegal activities around the World, but the deeds performed in New York increased his original property by more than tenfold, and he was participating in the auction for the fragment of Omniscience.</p>
-<p>"How much is left?"</p>
-<p>"If we hand over even the Drugs to AmSang.... Fifty-seven million is the Limit."</p>
-<p>He participated in the auction, thinking he could simply receive the winning Items from AmSang without needing to forcibly seize them, but the bid price had already risen to fifty-five million. Although the speed at which the price rose significantly slowed once it reached fifty million Points, still, more than five individuals were bidding on the fragment of Omniscience.</p>
-<p>**-Fifty-seven million! Fifty-seven million! Any more? Fifty-eight million! Fifty-eight million Points!**</p>
-<p>"Damn it...!"</p>
-<p>As the bid price exceeded fifty-seven million Points, which his Subordinate had stated as the Limit, the Black Sage softly uttered a Curse.</p>
-<p>"Ultimately, there's no choice but to seize the Items as planned. Rather, it's good. Because I can get the fragment of Omniscience without spending any money...."</p>
-<p>The Black Sage was repeating the words 'rather, it's good,' but his Expression was distorted.</p>
-<p>"Tell everyone to start preparing."</p>
-<p>"Understood."</p>
-<p>As the auction for the fragment of Omniscience, the Last auction Item, was nearing its end, he had to prepare his Subordinates, who were waiting around the port, to seize the Items.</p>
-<p>**-Yes! It's successfully bid for ninety-eight million Points! Congratulations!!**</p>
-<p>The fragment of Omniscience was successfully bid for a staggering ninety-eight million Points. It was a price that Laypersons could never understand. After all, it was just a book bound in Chains, yet it was bid for an Amount close to 100 million Dollars.</p>
-<p>In fact, Magicians might even react with, 'Is that all it costs?' to this winning bid. If you think about it, with this Amount, it could be bought with the Red Revolution Front's bounty, and a somewhat large Enterprise could afford it with a little stretch.</p>
-<p>Although Magicians would say the price was low compared to its Value, because most Magicians and Sorcerers were individuals or small groups, the scale of money they possessed wasn't that large, so it was unavoidable.</p>
-<p>"Oh my gosh...! Ninety-eight million? That's almost 100 million Dollars, isn't it? Is this price correct?"</p>
-<p>Lianna Holden, who was not a Magician, was dumbfounded upon hearing the winning bid for the fragment of Omniscience. The others were no different; Sawayanagi Azuma and Kurayamada Kirie also wore Expressions of 'Is this right?'.</p>
-<p>"We're not buying it anyway, so the price is meaningless. Wouldn't it be better to prepare for what's to come?"</p>
-<p>At my Words, everyone snapped to attention with an 'Ah, right!' Expression. We didn't participate in the auction to target the fragment of Omniscience anyway.</p>
-<p>Our true purpose was to track the Black Sage, who was almost certainly after the fragment of Omniscience, and rescue my Grandmaster Sajo Soda Haruto. Since there was a high probability of battle ahead, we had to prepare for battle starting now.</p>
-<p>Ttok-ttok!</p>
-<p>The sound of someone knocking on the cabin door was heard. When I told them to come in, AmSang employees carrying the Items I had purchased at the auction entered.</p>
-<p>"These are the winning Items."</p>
-<p>"Thank you for bringing them."</p>
-<p>"Not at all. We will arrive at the port soon, so please enjoy your comfortable time until the Last moment."</p>
-<p>Since there was no remaining schedule, it seemed we were heading straight to the port. Because we hadn't gone far out to Sea, we would arrive at the port quickly.</p>
-<p>The AmSang employees left after placing the Items, and I put a necklace containing time around Sawayanagi Azuma's neck, and placed a Bracelet symbolizing space on Kurayamada Kirie's wrist.</p>
-<p>Lianna Holden was looking at the scene with a slightly envious Expression, but she soon saw the mental amplifier and grinned.</p>
-<p>"Kirie. Would you put the Items I bought into Subspace?"</p>
-<p>"Of course."</p>
-<p>Normally, she would have grumbled a bit, but Kurayamada Kirie, who was touching the Bracelet, put all the Items I had bought into her Subspace without a word.</p>
-<p>"Does it feel like there's been some Change in Subspace?"</p>
-<p>"Hmm.... It feels a bit wider."</p>
-<p>Because the Bracelet had a 'space attribute grade increase' attached to it, when I asked out of curiosity, Kurayamada Kirie answered that the size of the Subspace had increased.</p>
-<p>Other options could have been attached, but since a larger Subspace was indeed the best, the option gained from the grade increase via the Bracelet could be called a Success.</p>
-<p>"That's good."</p>
-<p>"Wait a moment...!"</p>
-<p>As I nodded my Head, satisfied with the increase in Kurayamada Kirie's Subspace Size, Sawayanagi Azuma exclaimed.</p>
-<p>Huh? Is something wrong? Something must have been caught in her premonition.</p>
-<p>"What's happening...."</p>
-<p>"Hold on tight!"</p>
-<p>Sawayanagi Azuma's Words meant one thing. It was a Story that an accident would happen inside the ship.</p>
-<p>At Sawayanagi Azuma's Words, I grabbed the fixed Table, then embraced Lianna Holden, who was physically the weakest.</p>
+<p>The defense of the Armor the Black Sage had put on Sajo seemed considerable. Even if I no longer possessed the Abyss, Shinkaiyatsude is a mythical-grade Martial Art. Moreover, seeing that it didn't suffer significant harm from my attacks, which possessed considerable physical Ability, it seemed to be not ordinary Armor, but something imbued with Jusul.</p>
+<p>Ppeo-eo-eong...!</p>
+<p>As I took the stance of the Genesis Chaos Style and gazed at Sajo, a loud noise was heard from quite a distance.</p>
+<p>Roughly estimating the direction from which the loud noise came, it was the center of the Fragment of All-Knowledge scramble. They must be engaged in a fierce battle over there too. Perhaps the reason Fujigasaki Rinka didn't come immediately upon hearing that her Sabu had been found was that Fujigasaki Rinka herself was also caught up in a Situation.</p>
+<p>**-....**</p>
+<p>Sajo, too, when I, who had been fighting him with the Shinkaiyatsude he was familiar with, took an Opening Ceremony he had never seen before, seemed slightly vigilant, glaring at me without moving.</p>
+<p>Kwaaaang...!</p>
+<p>At that moment, when a loud noise was heard once again from the center of the scramble, Sajo moved. Spreading the Abyss in glistening trails, he stretched his Index Finger straight out towards me.</p>
+<p>**-Shinkai Yatsude (Deep Sea Octopus) Isshitenkan (One Finger Pierces Heaven).**</p>
+<p>It was Sajo, using the Murderous Martial Arts Form Isshitenkan, which pierces a hole with a finger and destroys the opponent's interior from that point. Since I was wearing Armor, it seemed he was using this Technique to concentrate power on one point and pierce through the Armor.</p>
+<p>In fact, the Genesis Chaos Style was a very aggressive Martial Art, so it had few defensive techniques. Because Liz had created the Martial Art with the feeling of countering an opponent's attack with an attack, the resulting Genesis Chaos Style became a very aggressive Martial Art.</p>
+<p>Fighting with it, it was good for defeating opponents, but in a Situation like the present, where I had to subdue an opponent without inflicting significant harm, the usable techniques were limited. Perhaps because it was a Martial Art created from the perspective of an Outer God, it seemed to lack the perspective of capturing weak humans.</p>
+<p>Still, it wasn't as if there were no Martial Arts Forms at all to use. I lightly clenched my fist as if holding a fragile egg, extended it, then opened my fist.</p>
+<p>**-Genesis Chaos Style (創世混沌流) Honwa (混渦).**</p>
+<p>Honwa was a technique that created a vortex (渦流) made of Genesis Chaos Gi, redirecting the opponent's attacks outward while landing your own.</p>
+<p>Isshitenkan, deflected by the vortex I created, split the empty space, and my Honwa hit Sajo's chest. As my half-palm struck, the armor cracked with a Kwadeuk sound.</p>
+<p>If I applied more power here, I could completely burst the Armor and crush his breast, but I had come to rescue Sajo, not to invert his breastbone.</p>
+<p>So, I withdrew my attack, and when Isshitenkan failed, I chose to parry Sajo's attack, which was using a different Technique.</p>
+<p>Seeing him use Chokgakgyeongpa, a kicking Technique with no synergy whatsoever with Isshitenkan, it seemed his mind had not yet returned, and he was merely using techniques ingrained in his body in a seizure-like manner.</p>
+<p>Even if it was a Martial Arts Form used without any combination, it was still a Shinkaiyatsude form. Even though I parried it without resisting the flow, its power was so tremendous that my hand tingled with a pleasurable ache. If not for the Armor, my hand would have been completely shattered.</p>
+<p>But I couldn't exaggerate my pain during combat. Before Sajo could use his next Martial Arts Form, I adjusted the output of my Genesis Chaos Gi and threw a fist.</p>
+<p>Having just struck his breast, I felt I had a rough idea of the precise intensity needed, so I was confident in this attack.</p>
+<p>**-Genesis Chaos Style (創世混沌流) Paseong (Breaking Star).**</p>
+<p>Using Paseong, the basic and fundamental Martial Arts Form of the Genesis Chaos Style, which unleashes energy by throwing a fist, I struck his shoulder this time.</p>
+<p>Kwaang!</p>
+<p>The shoulder Armor burst open by Paseong, revealing Sajo's gaunt, bare shoulder. Of course, it was unlikely that the Black Sage had treated the kidnapped Sajo well, but seeing the evidence with my own eyes-his emaciated shoulder-made me feel even more bitter.</p>
+<p>Although he wasn't someone I knew well, seeing that the Sabu of my Sabu, a Martial artist whose body was everything, had become so thin that the word "gaunt" suited him, I couldn't help but feel anger.</p>
+<p>Even if I rescued Sajo here, I swore to kill the Black Sage or inflict pain almost equivalent to death as boksu, and with that thought, I used Changseong, a linked technique of Paseong.</p>
+<p>The aura of the galaxy, flowing with starlight scattered by Paseong, gathered on his opposite shoulder, my point of attack, according to my will.</p>
+<p>Kwang!</p>
+<p>As I swung my fist, once again, the shoulder Armor burst open with an explosion, revealing both of Sajo's emaciated shoulders.</p>
+<p>**-Kuaaaah!**</p>
+<p>Perhaps because he kept allowing my attacks, Sajo roared in anger. And spewing out an immense Abyss, he charged at me like a wild boar struck by fire.</p>
+<p>Perhaps because he had completely lost his Fading Reason, it felt more like he was simply charging at me rather than using Shinkaiyatsude Martial Arts Forms.</p>
+<p>In fact, this was better. No matter how blurry Sajo's Fading Reason was when he used it, Shinkaiyatsude was still Shinkaiyatsude, a mythical-grade Martial Art.</p>
+<p>If attacked by Shinkaiyatsude, I would have to respond with considerable care, but attacking haphazardly, abandoning himself to anger as he was now, was much easier for me to deal with.</p>
+<p>I parried Sajo's incoming attacks to the side, and began to destroy Sajo's Armor piece by piece.</p>
+<p>It wasn't that I intended to torment Sajo by watching his nude show in the Outdoor Sex, but rather, I was destroying all the Armor because I thought it would be easier to Chiryo Sajo later if I completely destroyed the Armor imbued with the Black Sage's Jusul.</p>
+<p>In reality, the more I destroyed the Armor, the slower Sajo's movements became.</p>
+<p>No matter how much Shinkaiyatsude was a Martial Art that used the incomprehensible energy of the Abyss, the body had to support it. This meant it was impossible to use with Sajo's current emaciated body, so thin that his ribs were exposed.</p>
+<p>It seemed there was an Effect hidden in the Armor that made Sajo use his HP. My judgment that I had to completely destroy the Armor seemed to have been correct after all.</p>
+<p>Sajo's Appearance at present was wretched. Only his tattered, almost ragged old Pants, his bare, emaciated Upper Body, and the last part of his Armor, his Helmet, remained.</p>
+<p>Although striking Sajo's face felt a bit wrong, since I was already in the position of making him perform an Outdoor Sex nude show, I decided it would be better to destroy the Armor as quickly as possible, so I charged at Sajo.</p>
+<p>While destroying Sajo's Armor until now, I had realized a certain knack. Although it wasn't enough to be included in the Martial Arts Forms of the Genesis Chaos Style, I was able to gather the knack I had realized this time and create a new Martial Arts Form.</p>
+<p>**-Ryuta-aryu (Ryuta Style) Gappa (Armor Break).**</p>
+<p>Unlike the Genesis Chaos Style, which destroys the opponent's entirety using Energy, or Shinkaiyatsude, which infiltrates and destroys the opponent's interior, this was a Martial Arts Form that destroyed only the opponent's outer shell.</p>
+<p>Although it wasn't a completely perfected Martial Arts Form yet, I created it as a new Martial Arts Form to remember the knack I had realized during the non-battle with Sajo.</p>
+<p>As the energy gathered in my outstretched Palm touched Sajo's Helmet, the Helmet immediately began to burst apart. As the Metal exploded, a wound appeared on Sajo's cheek. Hmm.... Next time, I'll have to control it a bit better.</p>
+<p>Sajo's Appearance, revealed as the Helmet shattered, was completely different from the Photo Fujigasaki Rinka had shown me. Of course, I knew it was him, but due to over a decade of agonizing kidnapping and the passage of time, the only thing proving this man, who looked like an Elderly Person, was Soda Haruto, was the Shinkaiyatsude he had unconsciously displayed until now.</p>
+<p>As the Helmet shattered, it seemed the Black Sage's Jusul, which had been forcing Sajo to move, was broken, as his Gaze gradually blurred, and he began to collapse, so I quickly grabbed Sajo's shoulder.</p>
+<p>It was then.</p>
 <p>Kwaaaang!</p>
-<p>And with a tremendous roar, the ship began to shake.</p>
-<p>Requested by Chomisaemeonji-nim: Pilates Liz, Nun Liz~!</p>
-<p>Nun~!</p>
-<p>Requested by chea yun-nim: Shy Ha Ju-yoon~!</p>
-<p>Requested by Titan-nim: Slender Eve~!</p>
-<p>Requested by Gojoy-nim: Chapter 26 Shinoe Misano's first meeting, and Mimata Chieri's first meeting~!</p>
-<p>Shinoe Misano</p>
-<p>Chieri~!</p>
-<p>Requested by JungChucky-nim: Teacher Gajeong's Thunderclap Flash</p>
-<p>Since Thunderclap Flash was not learned, I added a little Lightning to the sword drawing technique haha.</p>
+<p>Someone jumped with such immense power that a building exploded, and someone was approaching me, almost like a projectile.</p>
+<p>Looking closely, it was a gigantic white man with short, swept-up blonde hair. He looked incredibly fierce without eyebrows, and this gigantic white man was Behemoth, the Reason I had come to the USA.</p>
+<p>It seemed he had been watching my fight with Sajo from inside a building quite a distance away until now. As soon as the Match was decided, he seemed to be leaping towards me with such power that the building crumbled.</p>
+<p>"Good, I've rescued Sajo, and I can also catch Behemoth, the purpose of my coming to the USA, here, so it's hitting two birds with one stone."</p>
+<p>Of course, Behemoth, my Opponent, was a strong Enemy who could never be ignored. He was the number two of Superior, cherished by Famine, one of the strongest in the future, and, like Alik in the game, he was an infamous mid-Boss.</p>
+<p>But Behemoth becoming an infamous mid-Boss is a matter of the future. I don't know what his Skill level is now, but it certainly won't be his future Skill.</p>
+<p>If so, I was confident I could win even with my current self. Of course, even if he was the future Behemoth, I wasn't weak now, so it was a Match worth trying.</p>
+<p>But there was one Problem. The fact that I had to fight while protecting the unconscious Sajo.</p>
+<p>I wish the Transport team I called earlier would arrive quickly.... If things continued like this, Sajo's Safety would be in Danger, and my Safety would also be in Danger.</p>
+<p>Requested by Gojoy-nim, Chapter 38, Shinoe Misano taking off her outer Clothes in the moonlight-drenched Bedroom, Shinoe Misano taking off her Shirt~!</p>
+<p>Taking off outer Clothes~!</p>
+<p>Shirt~!</p>
+<p>This is the Bra version and No Bra version haha.</p>
+<p>Requested by Chomisaemeonji-nim, Liz wearing only a garter belt, Liz wrapped only in a towel after a Shower~!</p>
+<p>Garter belt~!</p>
+<p>Towel~!</p>
+<p>Requested by MidNightSKY-nim, a surprised Fujigasaki Rinka, Alik Training~!</p>
+<p>Rinka Sabu~!</p>
+<p>Alik~!</p>
+<p>I forgot to input Pants, so Alik appeared wearing only the Martial Arts Uniform top haha. I like this Appearance too, so I'm uploading it hehehehe.</p>
+<p>Requested by TheDreaming-nim, Alik on Stage 1. breast-gathering pose 2. Jumping and making a peace sign~!</p>
+<p>1.</p>
+<p>2.</p>
+<p>I had quite a lot of fun making #2 because Alik is so cute haha.</p>

@@ -5,69 +5,89 @@ weight = 1035
 chapter = 1035
 +++
 
-<p>Because I hadn't come to the USA expecting an AmSang auction, the women, excluding me, did not have Clothes prepared that fit the dress code for attending the auction.</p>
-<p>I had brought several Suits for work and could wear one, but since there was a dress code for women requiring dress attire, the female members attending the auction, with Kujo Kina as their representative, headed to the department store.</p>
-<p>For reference, the auction members Kurayamada Kirie and Sawayanagi Azuma, as the sujang of the Chungnang Unit and Seryu Military Company respectively, had no time to go to the department store because they had to use their Intimate Experience to formulate an Operation. So, the remaining members who went to the department store decided to choose and bring back Kurayamada Kirie's and Sawayanagi Azuma's Dresses.</p>
-<p>Meanwhile, I and the others decided to deploy personnel at the port. The Cruise ship's departure and return point was New Rochelle, which, strictly speaking, was not New York City. It was a city in New York State, attached to the northeast of New York City, and it seemed to have been chosen because it had a port that could go straight out into the Long Island Sound.</p>
-<p>"The sniper team should aim for this Point."</p>
-<p>"Rather, a sniper Point that's too good might have other People besides us."</p>
-<p>Because so many People gather, the sniper Point side will also be a Problem. If it's a sniper Point we've chosen, others can also choose it, you see. Still, our side has Kim Young-chan, who possesses X-Ray Ability, so he will be able to Marksmanship from a place no one could even Imagine. Seryu-tai's other sniper, Sawayanagi Mikiyo, doesn't have superpower, but she's such a veteran that she'll handle it well on her own.</p>
-<p>"Then, talk among the sniper team and tell me the Point."</p>
-<p>Formulating the strategy in preparation for today's battle was Naruse Shiyo, Kurayamada Kirie, and Sawayanagi Azuma.</p>
-<p>Naruse Shiyo is one of Jo Seodang's three ganbu, and both Kurayamada Kirie and Sawayanagi Azuma were individually responsible for their own PMC, so they were skilled at formulating Operations.</p>
-<p>Fujigasaki Rinka and I were taking overall Responsibility for now, so we were watching the three formulate the Operation from the Side.</p>
-<p>"And some, including Kiyona Hori, need to be part of the Transport team. The Transport team is absolutely necessary in preparation for either escaping or joining at one Place."</p>
-<p>"Among the Gwonmaeng ajussi, there are People who drive well, so it seems we can take them from that side."</p>
-<p>I hadn't even thought about the Transport team, but this side needs preparation too, I see. Perhaps because Kiyona Hori has a driving Trait, Seryu-tai's side seemed to consider the Transport team quite important.</p>
-<p>And seeing Kurayamada Kirie, the leader of the Chungnang Unit, who came from a Terror organization background and prioritized escape after Jamip, agree to that, indeed, the driving team seemed quite important.</p>
-<p>"The Transport team will be five for now.... No, let's make it six teams."</p>
-<p>"There should be more. We need to mix vehicle and bike teams. If there are alleys where vehicles can't go, we might have to rescue them there or something."</p>
-<p>"Anyway, our Goal isn't the Shard of Omniscience. When the fake Black Knight, my Sabu, appears, we need to go to that side and quickly extract them. So, even if we're scattered holding Points, we need to gather quickly, so it seems okay to increase the 'Transport team' a lot."</p>
-<p>The last opinion was added by Fujigasaki Rinka. Her Words seemed right. Anyway, our Goal is my Sajo, Soda Haruto. Without needing to clash with other Factions, if we find him while scattered, we can gather and quickly take the Black Knight, and we don't need to care what happens next, so it seemed okay for the Transport team to increase further.</p>
-<p>"Then, for the Transport team, five vehicles, and since bike teams can only carry one Person each, let's make it ten People. It seems we can tie two bike teams into one Group per vehicle."</p>
-<p>For now, the Transport team reached that conclusion. The remaining Transport team, excluding Kiyona Hori, became Gwonmaeng members, because it was thought that no matter how much of a Master of Fist Technique, it would be difficult to overcome in this battle where Guns, magic, and superpower will run rampant.</p>
-<p>Of course, Masters of a certain level or higher, such as Yoda old man, participated in the combat team.</p>
-<p>"Then we need to divide the Groups by Point, but first, the combat members...."</p>
-<p>Naruse Shiyo scanned the list on her laptop.</p>
-<p>I also could check the Members from Naruse Shiyo's Side seat.</p>
-<p>Let's see, excluding the auction team and Transport team, there were Sabu Fujigasaki Rinka and Class Teacher Shimokawabe Airen, Otagi Yuka and Seizawa Shii, Naruse Shiyo and Sawayanagi Azuma, and Seryu Military Company Members excluding Lianna Holden, and Gwonmaeng People participating in the battle.</p>
-<p>Ah, now that I think about it, I need to exclude two sniper team members too, because they aren't directly participating in combat.</p>
-<p>Then.... The combat team that will directly fight consists of 15 People, so it seemed they could take five Points with three People each.</p>
-<p>"Make it five teams of three People each.... If something happens, it seems we can decide to join at the closest Point?"</p>
-<p>At my Words, everyone nodded their Head. New Rochelle, where The Situation will unfold, isn't that wide a Place, and I thought five Points would be enough.</p>
-<p>For reference, the auction team decided to Tracking the Person who obtained the Shard of Omniscience after the auction ends. Perhaps the Person who obtained it is the Black Sage, or the Black Sage will be targeting that Person, you see.</p>
-<p>Like that, after deciding on five teams and important Points, as we were formulating the detailed plan, before we knew it, the auction participating Members who had gone to the department store returned.</p>
-<p>"How was the department store?"</p>
-<p>"There seemed to be quite a few People like us. It felt like there were quite a few People who seemed to have come to buy Clothes to match the dress code."</p>
-<p>To my question, Kujo Kina Answered. Hmm.... Certainly, if they came after suddenly hearing the rumor that the Shard of Omniscience was in New York, they might not have been able to prepare Clothes. It wasn't strange to see them at the department store to purchase Clothes like us.</p>
-<p>"Were there any recognizable People?"</p>
-<p>"Ei~ Teacher-nim. How would I know? Instead, I took Photos, pretending to take pictures of us trying on Clothes. We can just entrust those Photos to Teacher-nim's Information team, right?"</p>
-<p>Kujo Kina, surprisingly competent...? We received the Photos Kujo Kina had taken and began to check if they were indeed recognizable People.</p>
-<p>"By the way, what about the Clothes?"</p>
-<p>"I left them for alteration. They'll arrive before Evening meal."</p>
-<p>While checking the Photos, when I asked about the Clothes, they said they had left them for alteration, presumably to fit them perfectly to the Body.</p>
-<p>"Oh, right, Azuma-ssi and Class Teacher-nim, come this way~! Because we need to measure your Body Size and send it!"</p>
-<p>Sawayanagi Azuma and Kurayamada Kirie couldn't go to the department store because they were formulating the Operation, so it seemed they had to measure their dimensions here and send them to the alteration place.</p>
-<p>"I don't know if all the People photographed here are auction attendees, as Kina suspected. Most who attend the auction belong to secret Factions, so I don't know their Faces. However, there are some known Characters, and this Middle East man here is the Chairman of the Arab Alchemist Association Alliance. His name is grand, but it's an insignificant organization. However, they have a lot of Money."</p>
-<p>Naruse Shiyo said, pointing to the Photo of the Middle East man wearing a Keffiyeh. No matter how much they operate in the shadows, even if they are Sorcerers or Magicians belonging to a secret society, if they are about a Chairman of an alliance, their Face becomes known, I see.</p>
-<p>According to Naruse Shiyo's Words, even though it's an insignificant organization, you see.</p>
-<p>"This one is the Chairman of a Europe Magician organization. And this one...."</p>
-<p>This time, she said, pointing to a middle-aged white woman. And additionally pointed to a few others, and Naruse Shiyo said that most of them were fakes appearing in media like TV or MeTube. The secret society side, if they appear in various media and make their name known, are rather considered a Cult.</p>
-<p>In the behind the scenes of the World, because there are countless dangerous Mysteries, and because they know well the Danger of revealing their Face and name, the real ones absolutely do not do anything that would reveal their personal identity.</p>
-<p>Then rather, the Person from whom no Information comes out in the Photos Kujo Kina took is the Target of caution, isn't it? Anyway, it's not something we need to be cautious about, so we sent the Photos taken to the Federal Superpower Management Department's Diana Lich.</p>
-<p>Diana Lich also happened to have something to convey to us, and we received it; it was a communication Line. The USA government side was also watching this auction, and several special units and secret Information organizations were dispatched to prevent any unforeseen unrest.</p>
-<p>Because we might be Attacked by them, we were given a communication Code in advance and even received a password for friend-or-foe identification, so we didn't have to worry about being Attacked by the USA government.</p>
-<p>Like that, while formulating the Operation, after having a simple lunch and simulating various situations, before we knew it, it was Evening mealtime.</p>
-<p>After eating their desired food, to equip the equipment for their respective Operations, they scattered to their rooms or where the equipment was gathered.</p>
-<p>Since I'm part of the auction team, I only needed to wear a Suit. If a battle breaks out, I can just transformation into Black Knight with my Bracelet, so unlike others, I didn't have much to prepare.</p>
-<p>Ttok-ttok!</p>
-<p>As I was putting on Clothes, someone knocked on the door. When I Answered "Yes," the door opened a little, and Kujo Kina poked only her Face out.</p>
-<p>"Teacher-nim~! Look at our Clothes~! I'll send them one by one, so I'd like you to Evaluation how they are."</p>
-<p>Ah, are they going to have a Fashion show or something? Even without that, I was curious what Clothes they bought at the department store. I looked at the door with Eyes full of Expectation.</p>
-<p>Requested by Hwanbuljeoldaebulga-nim: The original Illustration of Lisa Class Teacher-nim, drunk on Alcohol, lying down and sensually gazing~!</p>
+<p>-Kuaaaah! Uwaaah! Please!!</p>
+<p>"Ung? What is that sound?"</p>
+<p>While Seizawa Shii was heading to the point she was assigned to, she heard screams from a nearby location and cautiously approached.</p>
+<p>Peeking her face out into the bending alleyway, she saw the situation: dozens of armed troops seemed to be attacking one person.</p>
+<p>It was a very bizarre scene. A giant man, dressed in Mexican luchador attire, alone facing dozens of enemies armed with firearms, gave the feeling that it wasn't reality.</p>
+<p>"Cha-ah!"</p>
+<p>With a luchador mask and wearing only wrestling panties on his Maenmom, ignoring the gunfire pouring down on him, the sight of him fracturing an opponent's Neck with a clothesline was exactly to Seizawa Shii's Taste, as she also enjoyed unarmed combat.</p>
+<p>But Seizawa Shii also had a point she needed to cover, so she couldn't just keep watching that Mexican pro wrestler's fight. Seizawa Shii passed the alley where the Mexican pro wrestler was fighting and headed to the point she had been assigned.</p>
+<p>"There are a lot of people here too...."</p>
+<p>The alley Seizawa Shii was assigned to also had many people. Similar to the armed troops fighting that pro wrestler just now, their equipment and Attire were all different, and they seemed to be Subordinates of the Obsidian Syndicate, the largest force in New York's underworld, as the command post had just informed her.</p>
+<p>It seemed those gang members hadn't discovered Seizawa Shii yet, so she could just wait nearby and ignore them, but if Fujigasaki Rinka's Sabu appeared here, those underworld criminals would clearly be a hindrance.</p>
+<p>"Even though it's annoying, I'll have to deal with them first."</p>
+<p>Seizawa Shii, muttering as if annoyed, ran straight and picked up an Obsidian Syndicate gang member in the alley.</p>
+<p>"Eugh! W-What?!"</p>
+<p>The Person Seizawa Shii grabbed was a giant Black Person who looked almost 2 meters tall, but Seizawa Shii lifted him as lightly as if lifting a human-shaped balloon. And then she threw him straight at the Obsidian Syndicate gang members holding guns.</p>
+<p>Huuung!</p>
+<p>As Seizawa Shii threw him with immense Power, the human missile(?) flew, making a sound of cutting through the Wind.</p>
+<p>Kwaaaang!</p>
+<p>"Kuaaaah!"</p>
+<p>Several People were caught in the human missile and slammed into the Wall. Seizawa Shii threw him so hard that the Wall hit by the human missile was even cracked.</p>
+<p>The human missile thrown by Seizawa Shii had its Internal Organs (filled with semen) burst from the immense Shock, resulting in Instant Death, and those caught with him also had their Bones broken from the Impact of hitting the Wall, becoming incapacitated for Battle.</p>
+<p>"Shoot, shoot!!!"</p>
+<p>"Heung! I'm not scared of the Pistols and submachine guns you guys use!"</p>
+<p>Seizawa Shii, seeing the Obsidian Syndicate gang shooting at her, shouted, and just as she had done before, leaped towards a nearby Enemy, grabbed him, and used him as a Shield to cover her Body. Simultaneously with covering her Body, gunfire poured down.</p>
+<p>Tududududu!</p>
+<p>"Kuaaaah!"</p>
+<p>As expected of bottom-tier underworld gang members, they didn't care that their Colleague was being shot. The gang member used as a Shield by Seizawa Shii screamed every time he was hit by a Bullet, then slumped down as if dead.</p>
+<p>At the sight of him tattered by hundreds of Bullets, Seizawa Shii, frowning, threw the gang member's Corpse she had been holding as a Shield.</p>
+<p>The Obsidian Syndicate gang members, who had already been hit by the human missile Attack from the beginning, as if determined not to be hit this time, quickly dodged their Colleague's Corpse.</p>
+<p>"Gotcha!"</p>
+<p>Seizawa Shii grabbed a gang member who had neglected his own Movements to dodge the Corpse. This time, instead of throwing him, she grabbed the gang member's Ankle and began to swing him like a Club.</p>
+<p>Hwiiing~! Puk! Puk! Peok!</p>
+<p>"Kkeuaaaah! Please! Kuaaak!!!"</p>
+<p>"Uwaaah!"</p>
+<p>The Person being hit and the hitting Tool(?) both screamed, making the alley noisy with Commotion. As she wildly swung the human Club, it hit not only People but also the alley Walls, so now, when she swung it, there was no Effect(?).</p>
+<p>"Is it broken...?"</p>
+<p>Seeing the silent human Club, as if it had already become a Corpse, Seizawa Shii muttered, then casually released its Ankle.</p>
+<p>But Seizawa Shii didn't stop. Approaching the gang member who was shooting at her with Fear-filled Eyes, she twisted his Arm and snatched his Gun. Seizawa Shii twisted his Arm lightly, but a Bone protruded from the Back of his Hand, and the disarmed gang member screamed in Pleasurable Ache.</p>
+<p>"Kuaaaah!"</p>
+<p>"This isn't a Toy, you know? It stings quite a bit if you get hit."</p>
+<p>Wearing a high-quality cyber Suit, it provided some Defense against gunfire, but due to the Shock, it still hurt to be hit by Bullets. "You guys try getting hit too!" Seizawa Shii said, then wildly fired the snatched submachine gun.</p>
+<p>The gang member who had his Gun snatched fell, hit by his Colleague's Gun. Due to Seizawa Shii's brutal gunfire, the other gang members also lay bleeding.</p>
+<p>At first, there were dozens of People in the alley, but after Seizawa Shii appeared, now, only about Four living Obsidian Syndicate gang members remained.</p>
+<p>"M-Monster...!"</p>
+<p>"It's a Demon...!"</p>
+<p>They, with Fear-filled Eyes, looked at Seizawa Shii and each called her a monster or a Demon.</p>
+<p>"Monster, Demon...! My nickname "Ogre" is already enough to handle, you know?!"</p>
+<p>Seizawa Shii, enraged by the Obsidian Syndicate gang member's Words, immediately delivered a powerful middle Kick to the gang member who had called her a monster.</p>
+<p>The gang member's Body bent into a 'ㄱ' shape and he collapsed. Seeing him cough and spit Blood from his Mouth, it seemed all his Internal Organs (filled with semen) had burst from a single Kick.</p>
+<p>Seizawa Shii didn't stop even after incapacitating one Person. She walked straight to the gang member who had called her a Demon and struck his Forehead with the edge of her Hand.</p>
+<p>As if striking a lump of clay with the edge of her Hand, his Forehead caved in, and the attacked gang member rolled his Eyes upwards and fell backward. Seeing no Movement from him, it seemed he had died instantly.</p>
+<p>"W-We didn't say anything!!"</p>
+<p>"Th-That's right...! We'll just leave here, so.... Can't you let us go?"</p>
+<p>To somehow survive, the Obsidian Syndicate gang members began to beg Seizawa Shii, but Seizawa Shii snorted.</p>
+<p>"Your main business is Drugs, and if People can't pay back their Debt from Drugs, you kill them and sell their Internal Organs (filled with semen), or sell Women as Sex Slaves, right? Did you let those People go?"</p>
+<p>"...."</p>
+<p>At Seizawa Shii's Question, the gang members couldn't say anything. Because Seizawa Shii was someone who, when committing Murder, considered whether the Opponent was truly evil, after hearing that the Obsidian Syndicate was participating in the Fragment of Omniscience Battle, she had requested Information from the command post and thus learned of their evil deeds.</p>
+<p>Seizawa Shii, looking at the gang members who couldn't Answer, muttered, "Just as I thought," and with an Iron Claw in each Hand, grabbed the Faces of the two remaining People and lifted them.</p>
+<p>Kwadeuk! Kwadeuk!</p>
+<p>The gang member, who had been flailing his Legs, as Seizawa Shii's Fingers dug into and crushed his Skull, soon stopped moving his Legs. Seizawa Shii casually threw the gang member to the Floor, then looked at her Hand, stained with Brain matter.</p>
+<p>"... My left Hand seems a bit weak, so next time I Train, I should focus on exercising my left Hand."</p>
+<p>Jjak! Jjak! Jjak! Jjak!</p>
+<p>As Seizawa Shii's muttering ended, loud clapping was heard from the alley Entrance. Seizawa Shii turned her Head to look and saw the man in Mexican pro wrestler Attire who had been fighting the gang members earlier, clapping with Eyes full of Admiration.</p>
+<p>Although his Expression couldn't be seen due to the Mask, judging by his Attitude, the Face beneath the Mask must also be filled with great Admiration.</p>
+<p>"Khahaha! I came because of the Commotion, but I didn't expect to see such a good Scene."</p>
+<p>Just as Seizawa Shii had peered into the Battle where the Mexican pro wrestler was fighting due to the Commotion, this Mexican pro wrestler also seemed to have come because of the Commotion Seizawa Shii was causing nearby.</p>
+<p>Seizawa Shii, with vigilant Eyes, looked at the Mexican pro wrestler. After seeing the Mexican pro wrestler's Fight earlier, she had thought his fighting style was exhilarating and straightforward, but that didn't mean he wouldn't Attack Seizawa Shii.</p>
+<p>And the Gaze hidden by the Mexican wrestler's Mask was strange. Because of that Gaze, as if he saw her not as a fellow Human but as Prey, she couldn't let down her Taut Tension.</p>
+<p>"I heard by chance that your nickname is Ogre? My nickname is Ogre too. It's very nice to meet a fellow Ogre...."</p>
+<p>That Mexican wrestler is an Ogre too? Certainly, that wrestler suited the nickname Ogre more than Seizawa Shii.</p>
+<p>With a muscular Body and the Appearance of a giant coated in Fat, he seemed much more suited to the nickname Ogre than the seemingly slender Seizawa Shii.</p>
+<p>"But there's that Story, you know, that if similar People meet, one of them dies.... So what happens if Ogres meet each other?"</p>
+<p>"Don't talk nonsense, Get lost. Before you get punished."</p>
+<p>"Khahahahaha!!!"</p>
+<p>The Appearance of Seizawa Shii, who wouldn't yield to him, seemed to greatly Satisfy him, and the Ogre began to laugh loudly enough to make the alley echo. Then, he suddenly became serious and opened his Mouth.</p>
+<p>"Yes, this is how it should be, good to eat. It's been a long time since I've had Prey like this...!"</p>
+<p>Seizawa Shii realized the True Identity of the unpleasant Feeling she had when facing this Mexican wrestler. The Ogre wasn't seeing her as a Battle Opponent, but as Prey.</p>
+<p>Gojoy-nim requested Hanasaki Sayaka 1. Running to greet Arisu 2. Greeting Ryuta-ssi.</p>
+<p>1.</p>
+<p>2.</p>
+<p>RefundNeverPossible-nim requested Tank Top + Hair Tied + Garter Belt + Black Stockings Lisa Teacher Gajeong~!</p>
 <p>Lisa-ttang~!</p>
-<p>Class Teacher-nim~!</p>
-<p>Requested by Gojoy-nim: Chapter 18 Gokado Hanako image, surprised by seeing the protagonist's Sex, and Chapter 19 Gokado Hanako in a Seduction Appearance on the bed~!</p>
-<p>Chapter 18~!</p>
-<p>Chapter 19~!</p>
-<p>In fact, in the novel's narration, she was sitting like the last one, but lying down is Sex-y, so I mainly made images of her lying down haha.</p>
+<p>Strangely, if you only put panties or pantyhose on Lisa-ttang, she automatically wears Shorts ㄷㄷ</p>
+<p>I used the same Model, but since Teacher Gajeong's panties come out well, it seems Lisa-ttang's lora has a Problem ㄷㄷ</p>
+<p>Last time's Mummy Costume Liz B-cut~!</p>
+<p>When I first just made it, it came out with black Bandages like this, so I had to add a white prompt hehe.</p>

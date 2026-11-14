@@ -5,70 +5,73 @@ weight = 372
 chapter = 372
 +++
 
-<p>Cheolkeok!</p>
-<p>I heard the sound of the hotel front door opening, and I felt footsteps approaching the bedroom where I was. The door opened slightly, and a woman with brown hair and a perfect figure entered. She jumped straight onto the bed and hugged me. The voluptuous feeling and the longed-for sweet scent filled my nose.</p>
-<p>"Ryuta-aaa...! I missed you."</p>
-<p>"Me too, Yukiko-ssi."</p>
-<p>Yukiko was wearing a face full of longing and affection. Thankfully, she didn't have that sex-crazed, horny look on her face like last time, which I had been worried about before coming here.</p>
-<p>"Um, are you... okay?"</p>
-<p>"Huh? About what?"</p>
-<p>"Like, transforming and stuff like last time."</p>
-<p>"Ah...! I'm fine. I've gotten a little better at controlling that power, you could say?"</p>
-<p>Ah, she's getting used to her succubus abilities. That's a relief. It would be a little troublesome if she went into heat all the time. Especially since I can't exactly relieve her when I'm overseas. And I can't just leave it to another guy.</p>
-<p>"It was hard at first. My feelings for Ryuta just kept boiling over... and my body was heating up too. But I ate people's dreams using this power, and it calmed me down a bit, you know?"</p>
-<p>Eating dreams...? Could it be that she can eat dreams because she's a dream-eating succubus? I said, 'Just a moment,' and got up from the bed, taking out the glasses from the ruins from my luggage.</p>
-<p>Then, wearing the glasses from the ruins, I looked at Yukiko. Immediately, a translucent window popped up, displaying Yukiko's status window.</p>
-<p>"W-what is it?"</p>
-<p>I was very surprised when I saw Yukiko's status window. The reason being, Yukiko's status window had changed almost drastically.</p>
-<p>Name: Taira Yukiko Lv17</p>
-<p>Strength: 8 Agility: 8 Stamina: 12 Resistance: 8 Recovery: 7 Nerves: 16 Appearance: 20</p>
-<p>Intelligence: 10 Knowledge: 14 Concentration: 18 Willpower: 15 Creativity: 8 Charm: 19 Judgment: 16</p>
-<p>Luck: 6 Dream: 15</p>
-<p>◆Domination Lv13 [Epic Skill]: Gains a bonus when commanding a group of a certain size or larger. The probability of betrayal decreases, and the surrender rate of hostile males increases.</p>
-<p>◆Projectile Manipulation Lv16 [Unique Skill]: Possesses the ability to control all projectiles fired.</p>
-<p>◆Cooking Lv2 [Common Skill]: Gains a bonus in making food.</p>
-<p>◆Barrier Art Lv5 [Unique Skill]: Increases the efficiency of barrier art and barrier abilities. Gains 10 percent efficiency per level.</p>
-<p>◆Mindscape Entry LV5 [Unique Skill]: Enters the mindscape within oneself through meditation. Duration varies depending on Concentration and Willpower stats.</p>
-<p>◆Dream Combat Lv2 [Legacy Skill]: Materializes techniques stolen by eating the opponent's dreams.</p>
-<p>◆Alluring Destruction [Legacy Trait]: Appearance and Charm stats and their limits increase by 4, and efficiency also increases. Increases the probability of seducing the opposite sex and also increases sexual appeal. Those who are charmed show blind obedience.</p>
-<p>◆Darkborn [Unique Trait]: Becomes stronger in places without light. All stats increase by 2 in dark places, restrictions in the dark disappear, and bonuses are gained instead. When it gets dark, sub-traits of  are acquired.</p>
-<p>◆Awakened Succubus Flesh [Legendary++ Trait]: A trait that can only be obtained if sexual skills or traits and dark traits or skills exist simultaneously. All physical stats and limits increase by 2 each, Charm stat increases by 4, and the player's level limit also increases by 2. Absorbs essence when having sex with humans. When having sex with Cambions or Incubuses, essence is not absorbed, and experience increases for both.</p>
-<p>Impregnation with human seed becomes impossible. Only impregnation with the seed of a higher-ranking Incubus is possible.</p>
-<p>Can manipulate dreams and gains the special stat 'Dream'.</p>
-<p>All stats increase by 2 when transformed into succubus form. Charm, Appearance, and Dream stats increase by an additional 1.</p>
-<p>◆King of Projectiles [Epic Trait]: The ability for all projectile skills and weapon skills is greatly increased. Gains a bonus to accuracy, and if hit, gains a bonus to critical hit chance.</p>
-<p>◆Sense Manipulation [Unique Trait]: The efficiency of the Nerve and Concentration stats increases, and the stats increase by 2. Senses become very sensitive. Can find the opponent's weaknesses. Can manipulate the senses of those under one's control.</p>
-<p>◆Succubus Eyes [Unique Trait]: Eyesight improves. Can see the dreams of sleeping opponents. Can discern the opponent through dreams.</p>
-<p>◆Dream Eater [Unique Legacy Trait]: The maximum Dream stat increases by 2, and the succubus instinct can be suppressed by eating the dreams of sleeping humans within a certain range, increasing experience and the special stat Dream. Can eat dreams within 1KM per 1 Dream stat. Can heal wounds by eating dreams.</p>
-<p>◆Dream Library [Legacy Trait]: Creates a dream library in the mindscape. Stores information obtained by eating dreams in the dream library. Can always retreat into the mindscape to obtain information and skills from the dream library.</p>
-<p>◆Succubus Queen's Palace [Unique Legacy Trait]: The maximum special stat Dream increases by 1, and a dream barrier is created by consuming the special stat Dream. All physical stats increase by 4 within the dream barrier. A barrier of 15M and 15 minutes can be created per 1 Dream. Everyone within the dream barrier is treated as if they are dreaming, even when awake.</p>
-<p>What is this? Where did Yukiko go, and why is the Demon King here? As the succubus's flesh fully awakened, the most crucial trait, the succubus's flesh, also changed from Legendary+ to Legendary++, and most of the other traits and skills changed. (The only skill that remained the same was cooking.) I've seen some traits change quite a bit, but this is the first time I've seen almost all of them change.</p>
-<p>Also, she built a shooting range next to her house before I left, and she must have been shooting a lot because the level of the skill that changed from gun shooting to projectile manipulation was a whopping 16. At this rate, I think her shooting skills are better than most PMC snipers.</p>
-<p>And just 3 weeks ago, her level was 12 or 13, but now it's 17... She must have leveled up like crazy because of the Dream Eater trait. Is there even such a broken trait...? I'm at this level even after doing piston exercises until my back breaks... Should I go around doing things like Yakusa exterminations on the weekends...?</p>
-<p>Still, it's subtly fortunate that, looking at her traits, Yukiko seems to have stronger dream-eating traits than lust-demon traits, even though she's a succubus. If she had evolved into a lust demon, she might have been fucking any man like Reverse Ryuta, so it's fortunate that she went the dream-eating route. It's not something I should say, given that I sleep around with any woman, but I still wanted my woman to only look at me.</p>
-<p>"How is it? Have I changed a lot?"</p>
-<p>Yukiko, who roughly knows about the abilities of the glasses from the ruins, asked me with a subtly expectant face.</p>
-<p>"Yes, you've changed a lot. Do you know that you've become incredibly strong, Yukiko-ssi?"</p>
-<p>"Hoho! Strong? I'm just the director of the Human Resources Development Center? I do have a hobby of shooting, though..."</p>
-<p>It's even scarier that she's not aware that she's strong. Well, given her personality and lack of combat experience, it seems better for her to just stick to her main job like now rather than relying on her abilities to fight. I didn't want her to get hurt fighting for no reason.</p>
-<p>"Even if you get stronger, don't think about fighting. I'll protect you, Yukiko-ssi."</p>
-<p>"Okay, you have to come save me like a prince whenever I'm in danger?"</p>
-<p>Yukiko, who was sitting on the bed, smiles brightly at my words. I've seen all her stats, and now that the shock of seeing Yukiko's shocking status window is fading, Yukiko's outfit comes into view.</p>
-<p>Today, she was wearing stockings that emphasized vertical lines and a light pink, form-fitting dress with straps on the shoulders. Of course, it was incredibly sexy, as much as Yukiko was wearing it.</p>
-<p>"Of course. If Yukiko is in danger, I'll go save you anywhere."</p>
-<p>"Ehehe... Come here♥"</p>
-<p>Yukiko, pleased with my answer, spreads her arms out to me. I threw down the glasses from the ruins and went to Yukiko, hugging her as she was. Yukiko's breasts, which seemed to have the most perfect feeling somewhere between fluffy and bouncy, were very pleasing.</p>
-<p>A hug that feels so good that I get hard right away... Is it because she's a succubus? Or is it because my body is reacting on its own after smelling Yukiko's scent, which I've been mixing with for so long?</p>
-<p>"Hehehe... What's this hard thing touching my stomach?"</p>
-<p>"Guess."</p>
-<p>When Yukiko asked about my dick, which was erect and pressing against her stomach, I pretended not to know and told her to guess what it was. Yukiko smiled like a little devil and opened her mouth again.</p>
-<p>"Hmm...♥ Wait, I'll definitely guess it."</p>
-<p>With a smile that contained both playfulness and sexiness, Yukiko moved her pelvis slightly while hugging me. Then, my erect dick rubbed against Yukiko's abdomen, bringing a considerable amount of pleasure.</p>
-<p>"Eueuheung, what is this long, thick, and hard thing...?"</p>
-<p>As expected of a succubus, I felt an incredible amount of pleasure just from hugging and rubbing my body. I thought I might cum in my clothes like this, so I pushed Yukiko away slightly and opened my mouth.</p>
-<p>"Can you guess what it is if I show you?"</p>
-<p>"If I can't tell even after seeing it, I'll have to taste it♥"</p>
-<p>Yukiko looked at me with lustful eyes, licking her lips.</p>
-<p>----</p>
-<p>Stripe Stocking B-cut</p>
-<p>I was worried about two drawing styles, but I went with the one above, kekeke</p>
+<p>After finishing breakfast and returning to my cabin, I took a clean shower and changed into my swimsuit. The swimsuit was a trunk type with palm trees drawn on it, coming down to above the knee.</p>
+<p>According to what I heard from Kijimoto Jurie yesterday, there was talk in the girls' talk that the outline of my dick was visible when I wore jeans, so if I had worn a triangle or something clingy, it would have been a huge controversy. It was fortunate that I brought trunk-type swimwear.</p>
+<p>After finishing all the preparations and looking in the mirror, a blonde tanned delinquent who hunts on the beach and wanders around, like I've seen in erotic manga, was looking at me from the opposite side of the mirror.</p>
+<p>Of course, that blonde tanned delinquent had a great body and a face that was no joke, so I wasn't making a living out of stealing other people's women like in erotic manga.</p>
+<p>When I came out of the cabin, it was only twenty minutes instead of the promised thirty minutes, but it was already docked at the island's pier. Every time I came, I came on a large ship, so the pier was quite large compared to the size of the island.</p>
+<p>When I got off with my luggage, people who seemed to be servants of the villa were waiting. They were wearing black suits like butler uniforms, and when I got off, they took my luggage.</p>
+<p>"I will put your luggage in your room. Yamashiro-nim."</p>
+<p>To think they already know my face and name, the preparation is amazing? It seemed that Minamoto Risa had passed on the list and photos in advance and had them memorized.</p>
+<p>As I stood still at the entrance of the pier, the female students began to get off the cruise one by one. Still, since I'm a teacher, I have to wait and stand until the kids gather.</p>
+<p>Yesterday's casual clothes were also somewhat new, but the swimsuits were even newer. Is it because there's a more sexual feeling?</p>
+<p>The first female student to get off was Shido Tsubaki, who was wearing a denim bikini that matched her blue hair color. To be exact, the bottom was denim, and the top was not denim but a blue swimsuit.</p>
+<p>"Does it look good on me, sensei?"</p>
+<p>"Yeah, it matches your hair color well, so it looks good."</p>
+<p>I heard somewhere that when complimenting a woman, it's good to talk a little more specifically, so when I complimented her hair color, she seemed quite satisfied.</p>
+<p>Next was Oofuchi Erika, who still couldn't shake off her hikikomori tendencies, and got off with a slightly intimidated expression, wearing a fairly daring high-leg competitive swimsuit. It was a one-piece swimsuit, but the high-leg cut emphasized sexiness.</p>
+<p>"It's just a plain one-piece swimsuit, so I bought it without trying it on...."</p>
+<p>Oofuchi Erika is trying to make excuses to me for no reason. Her legs are pretty and she looks good in it, so there's no need to be intimidated or make excuses.</p>
+<p>"It's a relief that it looks good on you, though."</p>
+<p>"T-thank you, Da... No, sensei!"</p>
+<p>Oofuchi Erika was about to answer me as "Dad" because I said it looked good on her, but then corrected herself to "sensei." There was a guy in my school days who accidentally called a female teacher "Mom," is it something similar to that...? I'm not old enough to be called "Dad" yet.</p>
+<p>While I was talking to Oofuchi Erika, most of the other students got off, and I heard a murmuring sound, and it turned out that the murmuring was because of the swimsuit(?) of the masked girl Sakagami Rena.</p>
+<p>What Sakagami Rena was wearing was a full-body cyber suit with underwater combat capabilities. Well, strictly speaking, that's also something you wear in the sea, so you could call it a swimsuit.</p>
+<p>Of course, it wasn't just the cyber suit that was the problem, but she was also wearing something like a tech mask, which looked like a gas mask, but when I looked closely, it was an oxygen mask that allowed her to breathe underwater. It had a compressed charged oxygen capsule inside, so there was no need to carry an oxygen tank on her back. It suited her well, but it created a considerable sense of incongruity.</p>
+<p>"Sakagami, can you come over here for a second?"</p>
+<p>I called Sakagami Rena to the corner. I hadn't been able to talk to Sakagami Rena much. I usually couldn't see her face well because she was wearing a mask, and even when she occasionally wore a mask that revealed her eyes, she didn't talk, so she couldn't get close to the other kids.</p>
+<p>I thought it was amazing that Konoe Akina had brought her into the club.</p>
+<p>"Do you not have a swimsuit?"</p>
+<p>Dori dori. She shakes her head. So she has a swimsuit.... Then that means she came wearing the cyber suit instead of a regular swimsuit, so it seemed like she was wearing this cyber suit for style.</p>
+<p>Then I can't tell her to take it off because it stands out too much in front of her.... She probably didn't bring a spare swimsuit either, so if I told her to take it off, it might mean that I'm telling her not to play in the water, so I can't say anything about what she's wearing now.</p>
+<p>"I want to ask you about the mask.... Are you going to keep wearing it?"</p>
+<p>If I can't talk about the cyber suit, I should talk about the mask issue that I've been thinking about for a while. Since I called her, I should talk about at least one thing.</p>
+<p>"....Yes."</p>
+<p>She's talking so quietly. It's not ASMR, but.... So she's going to keep wearing it after all.... Should I try to persuade her a little more?</p>
+<p>"Still, from the teachers' point of view, they want to see the faces of the students they're teaching. And I sometimes get complaints that you wear masks that are too scary...."</p>
+<p>In fact, there were days when Sakagami Rena wore a very realistic bleeding hooked-nose witch mask or a Frankenstein mask that looked like something she would wear on Halloween, and some of the female teachers were so surprised that they complained to me.</p>
+<p>"...Sensei, ...do you want to see my face too?"</p>
+<p>"Of course. You have such a pretty face just by looking at your eyes, so it's good to take off the mask with confidence."</p>
+<p>Did I say it too seductively? Sakagami Rena nodded slightly at my words. And she said in a voice that could barely be heard, "I'll think about it." Yeah, this is enough for now.</p>
+<p>After sending Sakagami Rena back to her seat, I came back to my seat and all the students were there. Kijimoto Jurie was also wearing a plain one-piece swimsuit, but because she had such a good body, the plain swimsuit became like she was wearing a very lewd and obscene cosplay.</p>
+<p>"...."</p>
+<p>"Ooh~! Ryuta-cchi! Nice body?"</p>
+<p>When I returned to my seat, the female students' attention was focused on me, and most of them were blushing while looking at my body, and only Seizawa Shii was looking over my body while saying lines like a perverted old man doing sexual harassment.</p>
+<p>She ignored me all day during the love potion sheet incident, but look at her pretending to be strong in front of her classmates. If you look closely, Seizawa Shii was also blushing.</p>
+<p>It's my fault that my body is too sexy. But I can't help it. I came to the beach, so I can't be all covered up.</p>
+<p>The students kept looking at my body without saying anything, and I didn't decide on a schedule either, so I didn't know what to do next, so I was just standing there blankly. Minamoto Risa sighed and came forward, looking at the students and opening her mouth.</p>
+<p>"Okay, the staff will move our luggage, and we can just play in the sea. But don't go to the deep areas because there are buoys with ribbons around them."</p>
+<p>At Minamoto Risa's words, who was wearing a luxurious-looking gold-black bikini, everyone shouted "Wah!" and ran to the beach.</p>
+<p>"Then I'll see you later at the villa."</p>
+<p>The staff greeted us, carried the luggage, and disappeared towards the villa, and I slowly walked to the beach. Kijimoto Jurie was standing next to the sickly girl Naruse Shiyo and walking while talking. Naruse Shiyo didn't like getting sunlight on her bare skin, so she was wearing a rash guard.</p>
+<p>"Ryuta, let's have a swimming competition."</p>
+<p>Suddenly, Alik appeared next to me and grabbed my pinky finger. Alik wore a navy blue school swimsuit at the Seryu Military Company picnic before, but today she was wearing a white school swimsuit-style one-piece swimsuit. She's still cute as ever.</p>
+<p>"Shall we?"</p>
+<p>I'm not very good at swimming, but Alik is also from eastern Russia, so she probably doesn't have many opportunities to swim. Then I can have a pretty good match with her.</p>
+<p>We arrived at the beach, did some warm-up exercises for a while, and then shouted "One, two, three" at the same time and started. I was swimming with the amateur swimming method I learned before possession, but my muscle density was too high, so no matter how much I swam, I kept sinking into the sea.</p>
+<p>Looking to the side, Alik was blankly looking at the sky and floating around with something similar to a backstroke. I don't know how she did it, but she seemed to be floating, but she was automatically drifting towards the reef that we had set as our goal.</p>
+<p>I can't lose like this. Now that it's come to this, I decided to swim with strength.</p>
+<p>Chwachwachwachwa!!</p>
+<p>When I vigorously waved my hands and legs, a huge spray of water was created and started pushing me forward at an incredible speed. After all, there's nothing you can't do with strength.</p>
+<p>Because I was moving forward at an incredible speed, the distance that had gradually widened from Alik was narrowing. But the distance that had widened because I was sinking into the water at the beginning was quite large, so there wasn't much left to the reef that we had set as the finish line.</p>
+<p>"Haa.... I lost, Alik is so fast?"</p>
+<p>In the end, Alik was the winner. It was a mystery how she could lie on the sea like a sea otter, look at the sky, and float quickly, but I cleanly conceded.</p>
+<p>"Ryuta. Alik had fun."</p>
+<p>Alik's face was quite flushed, as if she had fun too. Because of the huge spray of water I had just created, the female students gathered, and in the end, I was caught and had no choice but to have swimming competitions all morning.</p>
+<p>------------</p>
+<p>Swimsuits mentioned today (You can see the illustrations of Shido Tsubaki and Oofuchi Erika's swimsuits in the illustrations uploaded in the previous episode, hehe)</p>
+<p>Sakagami Rena - Underwater Specification Cyber Suit</p>
+<p>Naruse Shiyo - Rash Guard</p>
+<p>Minamoto Risa Black-Gold Bikini</p>
+<p>Alik - White School Swimsuit</p>
+<p>I like the second illustration so much that I'm thinking of using it as the cover, hehe.</p>

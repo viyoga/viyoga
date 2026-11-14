@@ -5,100 +5,76 @@ weight = 1100
 chapter = 1100
 +++
 
-<p>"Haa-eueu-eung...!"</p>
-<p>Although Kiyona Mari's breasts weren't large, the touch in my hands felt good, and perhaps because her reaction was immediate, they were fun to touch. As I touched her breasts, and at the same time gently rotated my hips, rubbing my cock against her pussy, my cock was gradually getting coated with Kiyona Mari's vaginal fluid.</p>
-<p>"D-don't just touch my breasts, heueut...♥ The lower part, haaang♥ too, euh-eung...! Put it, heueut! Innnn♥"</p>
-<p>As I only rubbed it without inserting it inside, she seemed desperate, Kiyona Mari pleaded with me, moving her pelvis to try and align the tip of my cock with her vaginal entrance.</p>
-<p>Normally, I would have teased her a little more, but because Kiyona Hori was anxiously waiting for her turn, I let Kiyona Mari insert my cock directly.</p>
-<p>"Heueu-eung♥"</p>
-<p>Kiyona Mari, skillfully moving her pelvis to align my glans with her vaginal opening, looked at me with a face slightly teary from pleasure and said,</p>
-<p>"Y-you...! My inside♥ Your cock... Haaang! Please put it innnn♥"</p>
-<p>As Kiyona Mari, who usually acted tsundere, pleaded with aegyo, my heart thumped, and I smiled, nodding my head. Grabbing Kiyona Mari's soft, silken tofu-like thighs, I began to push my cock inside.</p>
-<p>"Heueu-eung, ooooh...! It's scooping out, heueut! My insides♥ Euh-heung, come innn, haaang...!"</p>
-<p>Because Kiyona Mari had a small physique, the inside of her pussy was indeed narrow. While this narrowness was partly due to her physique, a major reason was likely that her pussy had tightened up from not having sex for a while. As my glans pushed through her narrow pussy, burrowing deeper inside, Kiyona Mari let out a loud moan and reached her climax.</p>
-<p>Kiyona Mari was continuously climaxing, and because there was someone waiting, I began to thrust my hips solely for the purpose of ejaculation.</p>
-<p>Perhaps because of Kiyona Mari's handjob fellatio and the continuous rubbing of my cock against her pussy while touching her breasts, a certain feeling of ejaculation had already built up.</p>
-<p>Moreover, unlike others, Kiyona Mari's hot body temperature made the sensation even more unique and pleasurable.</p>
-<p>To move roughly, I grabbed both of Kiyona Mari's hands and began to thrust my hips rapidly.</p>
-<p>Puk! Puk! Puk! Puk! Puk!</p>
-<p>"Haaht! Too much, ooh-hoot...! Eung-hiit...! So strong, heueut! Ryuta's cock, heueut! All the way inside! Heung! Pressing, heung! Down...! Haa-euh-hoot! It's thereee♥"</p>
-<p>Even while moaning in rhythm with my rough hip movements, Kiyona Mari frankly described the pleasure she felt.</p>
-<p>"Mari's pussy is hot, it feels good...!"</p>
-<p>"Heung! My pussy, aah-haang♥ Is it hot? Heueu-eung! Heueut! Does it feel good? Hi-ya-eut...!"</p>
-<p>As I said it felt good, Kiyona Mari's pussy responded by clenching even tighter. Naturally, such a pussy's reaction further hastened my ejaculation, and I could feel semen gradually rising from my balls.</p>
-<p>"Soon...! I'm about to cum!"</p>
-<p>"Heung...! Cum...?! Haaht! Mari's haa-euh-heung♥ Inside, heueut! Deeply, euh-heung...! Please invest, hiit! Plenty of Master-nim's white baby fluid♥"</p>
-<p>Asking me to invest baby fluid inside her pussy... Kiyona Mari certainly knew how to say incredibly horny things. Was she saying that if I invested baby fluid, she would respond with a baby? Because of Kiyona Mari's exciting words, I couldn't hold back and began to ejaculate inside her pussy.</p>
-<p>"Kkeu-eut...! Semen, I'm cumming!"</p>
-<p>Byuut! Byuut! Byuuuut!!</p>
-<p>"Haa-eueu-eut!! Inside, haaht! Something hot♥ Euh-heu-heu-heung! Sooo much!!!"</p>
-<p>As I ejaculated a thick, hot load of semen deep inside her, Kiyona Mari reached an even greater climax than any she had experienced so far. Her eyes rolled back, her tongue lolled out sloppily, and her body trembled, as if she was on the verge of losing consciousness from pleasure.</p>
-<p>"Huu...."</p>
-<p>"It's my turn now."</p>
-<p>As soon as I pulled my cock out of Kiyona Mari, Kiyona Hori's voice was heard, as if she had been waiting. I turned my head to look, and saw her, naked, climbing onto the bed while wearing a Maid Cap, the white, ruffled ornament maids wear on their heads.</p>
-<p>As expected, the older sister is different...! I didn't know she would use a tool.</p>
-<p>"You must be tired from doing it with Mari just now, so please lie down. I'll do everything for you, Master-nim♥"</p>
-<p>It seems she's calling me Master-nim because she's wearing a maid headband. Actually, unlike when I was with Fujigasaki Rinka, I wasn't particularly physically exhausted, but since she said she would do something for me, I lay down on the bed as Kiyona Hori suggested.</p>
-<p>"Master-nim, I will now begin my service♥"</p>
-<p>Kiyona Hori climbed on top of me, then looked down at me and spoke. As expected, unlike her younger sister, her breasts were large. Especially lying down and looking up, the massive weight of Kiyona Hori's proud Big Tits felt real. Her firm, perky breasts, completely unaffected by gravity, filled my vision.</p>
-<p>Only now did I understand why Kiyona Hori had yielded the first turn to her younger sister. It was to more dramatically showcase her own breasts in comparison to her sister's. This was quite a cunning older sister, indeed.</p>
-<p>"Haa-eum...!"</p>
-<p>Kiyona Hori pressed her body against mine and began to lick my nipple. Because of the feeling of her breasts pressing down softly and the movement of her tongue on my nipple, my cock, which had just ejaculated, hardened without losing any power.</p>
-<p>"Haeup.... Chyu-eup, Tzeup...! How is it, Master-nim...?"</p>
-<p>Watching her lick my nipple while observing my reaction, it truly felt like a maid's service.</p>
-<p>"It feels good. I didn't know Hori was such an erotic maid."</p>
-<p>I said, stroking Kiyona Hori's head. At my words, Kiyona Hori giggled, gave an eye smile, and licked my other nipple. A ticklish, hair-raising pleasure spread through me, and though my body twitched, I lay still and received Kiyona Hori's service.</p>
-<p>"Next.... I will service Master-nim's large.... Cock♥."</p>
-<p>Kiyona Hori's soft, gentle voice tickled my sensitive ear. Curious about what service would come next, I raised my head and looked at Kiyona Hori.</p>
-<p>Since her younger sister Kiyona Mari had given a handjob fellatio, I didn't think it would be fellatio, and my prediction was correct.</p>
-<p>Kiyona Hori had placed my cock between her breasts, then embraced her own breasts with both arms, performing a modified Paizuri. It was a Paizuri that satisfied both visual and tactile senses, quite arousing just to watch.</p>
-<p>"Kkeu-eut...!"</p>
-<p>As the soft breast pressure of Kiyona Hori was felt on every part of my cock, I couldn't help but let out a moan.</p>
-<p>Because my cock, enveloped by her breasts, was thoroughly coated with my semen and Kiyona Mari's vaginal fluid, Kiyona Hori was able to perform Paizuri smoothly.</p>
-<p>"Heueut...! Master-nim, how is my haa...♥ Hugging Paizuri?"</p>
-<p>Ah, so it's called Hugging Paizuri. At Kiyona Hori's question, I nodded my head, indicating my pleasure. It truly felt incredibly good. It was almost as if my cock was enveloped by clouds.</p>
-<p>Of course, since it was a cock that had just ejaculated, I didn't feel like I would cum during Paizuri, but this soft and languid pleasure was by no means small.</p>
-<p>After providing such pleasant Paizuri service for a while, Kiyona Hori released the Paizuri. Suddenly, my cock, having been nestled between soft breasts, felt a little regretful to be alone, but I was curious about Kiyona Hori's next service, so I watched her with expectation.</p>
-<p>This time, Kiyona Hori climbed on top of me, taking the cowgirl position, pressing the back tendon part of my cock tightly against her pussy.</p>
-<p>"Before we start the main game with Master-nim...! Haa-euh-heung♥ I'll apply, heueut! Love Lotion for youuuu...!"</p>
-<p>Naturally, rubbing her pussy against my cock couldn't feel bad. Kiyona Hori began to rub the back tendon part of my cock with her pussy, as if applying slippery seaweed.</p>
-<p>"Haa-euh-heueu-eung! Master-nim's cock...! It's hottt♥ Haaht! Heung! Heueut!"</p>
-<p>Even while moaning, she maintained her posture and continued her service, truly like a maid. Of course, she wasn't a real maid, but a PMC mercenary, yet she possessed incredible Mental Power, enough to endure even intense pleasure.</p>
-<p>"Haaang...! Heueut! I've applied all of my aah-haang♥ Love Lotion...♥ Master-nim, heung, may I haa.... Embrace your cock inside, euh-heung! Me?"</p>
-<p>Normally, she would have given in to pleasure and inserted it immediately, but to even ask if she could put it in, Kiyona Hori's evaluation in my mind was rising considerably with this sex.</p>
-<p>Since it's customary to reward a good maid, I nodded my head. And I also wanted to insert it into Kiyona Hori's pussy. With my permission, Kiyona Hori smiled and slowly began the insertion.</p>
-<p>"I'll enjoy... Haa-eueu-eut!!! Master-nim's euh-heung♥ Cock...! Is, heueut! Spreading my insides wide, haaht! Opennnn♥"</p>
-<p>Although it wasn't a narrow and hot pussy like Kiyona Mari's, Kiyona Hori's pussy was a top-grade pussy, its insides squirming and gripping my cock in places.</p>
-<p>This part was curious. Except for their breasts, both sisters looked similar, yet the sensation of their pussies was completely different.</p>
-<p>"Heung...! Master-niiim♥ I'll continue, haaht! My pussy serviceee!"</p>
-<p>Perhaps because Kiyona Hori knew my stamina well, she placed her feet on my pelvis and began to thrust her hips. For an ordinary man, the spot where she placed her feet would be incredibly painful, but because I had ample body stats and even defensive traits, there was no way it would hurt with just one woman on top.</p>
-<p>"Haaang! Haa-aang! Haaht! This, it feels good...! Heung! Master-nim's magnificenttt! Cock...!"</p>
-<p>Kiyona Hori was thrusting her hips quickly and violently, enough to make her breasts bounce wildly. Naturally, the sensual friction between my cock and her pussy grew stronger and stronger, to the point where my hips moved involuntarily.</p>
-<p>Moreover, the more aroused she became, the better her clench, to the extent that my cock was sucked up along with her hips when she lifted them. At this point, her pussy wasn't narrower than Kiyona Mari's, but the clench felt equally intense. It was a vacuum pussy, with a sensation as if it were sucking.</p>
-<p>"Kkeu-eut...! It feels good, Hori...!"</p>
-<p>"Haaht! Me too, heueut! It feels, heung! Gooddddd!!"</p>
-<p>Naturally, the feeling of ejaculation, which had been dormant until the Paizuri, began to surge strongly. Kiyona Hori, who was tightly clenching my cock, also seemed to feel it, and her hip movements began to accelerate even more.</p>
-<p>"Kkeu-eut! I'm cumming, Hori...!"</p>
-<p>"Haa-eueu-heung...! I'm coming too, heueut! I'm cumminggg!"</p>
-<p>Byuurut! Byuurut! Byuuuuurut!!</p>
-<p>Even after ejaculation began and she reached climax, Kiyona Hori continued to thrust her hips. It was as if she intended to sweep up all the semen inside by scraping my cock with her pussy. This is quite amazing, isn't it? Usually, when one climaxes, they just tremble, but she kept thrusting her hips.</p>
-<p>"Eut... Heueu-eueu-eung...♥"</p>
-<p>After my ejaculation finished, Kiyona Hori kept her pussy and my cock completely pressed together, and with her head thrown back, she was only letting out "heueu-eung" moans. She was so completely lost in climax that even my slightest movement would cause her to flinch, triggering small, continuous orgasms.</p>
-<p>Suddenly, I sensed a presence and looked to my side, to see Kiyona Mari standing with her arms crossed, watching her older sister Kiyona Hori, who was in climax.</p>
-<p>"You said we shouldn't wear maid outfits together because they'd get dirty if we had sex in them...! That's unfair! Eonni!"</p>
-<p>Ah, it seemed Kiyona Mari was a little sulky after seeing Kiyona Hori have sex while wearing a maid cap. Kiyona Mari, who had been looking at her older sister with a sulky expression, began to put on a maid outfit.</p>
-<p>"I-I'm not, not doing this service because I like, like Master-nim...!"</p>
-<p>It was Maid Kiyona Mari, approaching me with her tsundere attitude again. She probably meant for me to have sex with her while she was wearing the maid outfit, right?</p>
-<p>Hori Mari B-cut~!</p>
-<p>Ryuta came out too delicate, so it was eliminated hehe.</p>
-<p>Exhilarating Rider Hori~!</p>
-<p>Gojoy-nim requested Chieri eating a chocolate banana, and Shinoe Misano eating yakisoba~!</p>
-<p>Chieri-chan~!</p>
-<p>I couldn't make her hold out a chocolate banana, so I just created it hehe.</p>
-<p>Shinoe Misano~!</p>
-<p>When I typed "yakisoba prompt," yakisoba bread came out, so it was a bit difficult hehe.</p>
-<p>TheDreaming-nim requested Maya Reed in an apartment: 1. Upper body naked 2. Interview in an apartment corridor~!</p>
-<p>1.</p>
-<p>When I typed "yoga pose," it didn't work hehe. Today was a day with many sex scenes requiring illustrations, so I ran out of time and couldn't try other attempts~!</p>
-<p>2.</p>
-<p>Why a microphone for a pussy...?</p>
+<p>"Next up are these items. These are the items I obtained during the New Rochelle Incident."</p>
+<p>Next was the turn for the items I looted from the corpses of the Vampire Grand Duke and the SPF New York Branch Manager. First, I should check the Sword I obtained from the SPF New York Branch Manager.</p>
+<p>The Sword had a simple, ordinary cross-shaped Design, but it sparkled with a silvery light even with the slightest Rhythmic Motion, looking incredibly splendid. Actually, I wanted to take even the unusual Armor the New York Branch Manager was wearing, but that Armor had half-melted from the Black Sage's attack, so I only took the Sword, I recall.</p>
+<p>◆The Indelible Sin[Legacy+ Weapon/Two-handed Sword]</p>
+<p>A weapon of execution against demi-humans, forged from Mount Sinai's ancient cross, the bones of a saint, consecrated silver, and Holy Water. Vampires, werewolves, and other demons in human form, if cut by this Sword, are said to suffer wounds that cannot be healed.</p>
+<p>●Grants 200% additional damage to demi-humans (demonic beasts in human form) and reduces their regeneration.</p>
+<p>●When striking a demi-human, applies the [Indelible Sin] stigma curse.</p>
+<p>●When striking a Vampire, freezes the Vampire's blood; when striking a Werewolf, adds piercing damage; when striking a Mongma, applies a [Silence] debuff.</p>
+<p>●When equipped, , , , buff spells are applied.</p>
+<p>●Prayer can be used.</p>
+<p>Since it was an Item that appeared several times in games, I knew its options, but for demi-humans like Vampires or Werewolves in human form, it was an option that would make them break out in Cold Sweat from fear.</p>
+<p>With increased base damage, regeneration nullification, stigma application on hit, additional custom debuffs for each Race, four buffs applied immediately upon equipping, and even the ability to use a Prayer, it could be called a decisive Weapon for battles against Vampires and Werewolves.</p>
+<p>"Ugh.... That's really scary."</p>
+<p>The danger of this Sword was evident as soon as I explained the options, as Otagi Yuka muttered that it was scary and moved to the back of the conference table, trying to get a little further away. For reference, the last option, Prayer, is also a type of spell, and it can be said to compensate for the shortcomings of existing spells that require various hand seals or concentration, making them impossible to combine with combat techniques.</p>
+<p>Since one can fight while muttering with their mouth, if one fights while reciting a Prayer, the magical Effect of the Prayer would be activated. Instead, because it doesn't use hand seals or mental concentration, its power is lowered, and the Prayer itself, which can be called a spell, has the disadvantage of becoming longer, but the advantage of being able to use a spell during physical combat was considerable.</p>
+<p>Of course, due to the nature of Prayers needing continuous recitation, instead of immediate magic like shooting Flames or causing explosions, they are mainly used for effects that show persistence, such as Aura, buffs, or debuffs.</p>
+<p>The Prayer , included in The Indelible Sin, gives the buff to oneself and nearby comrades, making the material of equipped Weapons treated as silver, and for Enemies who take great damage from silver, it gives the debuff, which deals greater damage when struck by a silver Weapon. It was a Prayer that generated an Aura containing both a buff and a debuff simultaneously.</p>
+<p>Honestly, I don't know where Destiny changed from, but the SPF New York Branch Manager and the Vampire Grand Duke were not individuals destined to die in this New Rochelle Incident. Perhaps my actions, in many ways, caused a Butterfly Effect, leading to the deaths of the New York Branch Manager and the Vampire Grand Duke in this Incident. I'll have to keep watching how The Situation changes.</p>
+<p>Anyway, this Sword would be an incredibly overpowered Item if I were a Vampire Hunter, but since I'm not, it seemed like a Weapon I wouldn't have much use for. If the Opponent isn't a demi-human, only the buff spell application upon equipping is useful; the rest are useless options, so there was no one to give it to, despite Otagi Yuka's fuss. And no one wanted to take it. Shimokawabe Airen, who collects Swords, might covet it, but Shimokawabe Airen did not participate in the Meeting.</p>
+<p>In Japan, there are only well-known vampire groups like the Otagi Family and the Hiren-gumi (緋蓮組) vampire organization in the underworld, so it wouldn’t be very useful. Although there are quite a few vampire forces overseas, there’s no need or reason to provoke them, so it seemed unlikely to be used much. I’ll either store it, put it up for a black market auction, or negotiate with the SPF to exchange it for an item they have in storage. After all, it’s an item with limited usefulness compared to its grade.</p>
+<p>Next were the Items left by the Vampire Grand Duke. The Vampire Grand Duke left several accessories, so I gained more from him than from the SPF New York Branch Manager. He dropped three Items: a Bracelet, a Ring, and an Earring, to the point where I actually felt a liking for the Vampire side.</p>
+<p>"Shall we look at the Bracelet first?"</p>
+<p>The Bracelet was an Item made of black Leather, with rose gold decorations mixed with gold and red colors. As it was the Vampire Grand Duke's possession, it looked quite splendid.</p>
+<p>◆Benedetto Human Skin Ornamental Bracelet[Unique+ Accessory/Bracelet]</p>
+<p>A Bracelet made by capturing, Torturing, cursing, and skinning Father Benedetto, one of the founders of the Silver Stake Alliance. It is said that the Vampires' Torture was so severe that they only obtained enough skin to make one pair of Bracelets. Vampires consider this Bracelet a Symbol of Victory.</p>
+<p>●For 10 minutes after Blood Sucking, Blood Domination increases by 25%.</p>
+<p>●Blood spells' power and range increase by 20%.</p>
+<p>●Blood Energy consumed for regeneration is reduced, and regeneration speed increases.</p>
+<p>●Prayer can be used.</p>
+<p>It's a black Leather Bracelet.... Is it made of human skin? The options themselves were perfect for a Vampire, so I passed the Bracelet to Otagi Yuka. Unlike The Indelible Sin, the SPF New York Branch Manager's Sword, which was selective about its target, this was an Item that enhanced the wearer's own Specs, so Otagi Yuka or Seiwa Rieko could use it.</p>
+<p>"Ugh.... Made of human skin? I'll have to give this to Rieko."</p>
+<p>Otagi Yuka said, 'Ugh...,' as she lightly held the Bracelet with her fingertips. Of course, she was probably giving it to Seiwa Rieko to compensate for her weaker Ability, but everyone laughed at Otagi Yuka's Words. Of course, if Seiwa Rieko had been present, she would have felt a Sense of Betrayal towards Otagi Yuka.</p>
+<p>"Next is the Earring...."</p>
+<p>After passing on the Benedetto Human Skin Ornamental Bracelet, I moved on to the next Item, the Earring. Seeing the translucent Item Description Window that appeared for the Earring, which had a very splendid red Gem attached, I couldn't help but frown.</p>
+<p>◆Isabella de Borja's Bloodstone Earring[Legacy Accessory/Earring][Damaged]</p>
+<p>The blood-red Earring of Isabella de Borja, a Saintess who fell to Corruption as a Vampire in medieval Vatican. Currently, it is Damaged and its Ability cannot be used.</p>
+<p>●Damaged and cannot be used.</p>
+<p>●Damaged and cannot be used.</p>
+<p>●Damaged and cannot be used.</p>
+<p>●Damaged and cannot be used.</p>
+<p>●Damaged and cannot be used.</p>
+<p>Oh, it was Damaged.... I don't know if the Vampire Grand Duke wore it despite it being Damaged because it was an Item of historical Value, or if it was Damaged during this New Rochelle Incident, but the Earring was a dud. Of course, it could be repaired, but Ability Users who could repair Legacy-Grade accessories were extremely rare. A few renowned individuals came to mind, but they were people who couldn't be hired with Money, so for now, I'll just store this and move on.</p>
+<p>"This is Damaged, so it has no options. I'll move on to the next one immediately."</p>
+<p>I immediately moved on to the last Item, the golden Ring. Even just by the amount of Gold, it seemed like it would be worth a considerable amount. It was an incredibly thick golden Ring, and it looked like a type of Signet Ring with a complex Pattern on its upper surface.</p>
+<p>◆Golden Blood Signet Ring[Legacy Accessory/Ring]</p>
+<p>The Signet Ring of the legendary Strigoi King, Dancescu Blaga. Documents sealed with this Signet Ring were said to carry the same authority as words spoken by Dancescu Blaga himself.</p>
+<p>○When equipped with Golden Blood, Blood Energy consumption is reduced by 40%.</p>
+<p>○When possessing the Golden Blood Trait, Blood Energy increases by 2, ignoring the maximum Blood Energy limit.</p>
+<p>○When possessing the Golden Authority Trait, if a Document is sealed with this Seal, only the designated Person can release the Seal.</p>
+<p>○Seal- Only the rightful Successor can release the Seal and uncover the secret of this Signet Ring.</p>
+<p>●Blood Sorcery and can be used without Blood Energy consumption.</p>
+<p>Oh...! It was an Item of Dancescu Blaga, the former Master of Otagi Yuka's Sword, Golden Blood. There were set Item options that Golden Blood Users could obtain, and options that could be obtained if one possessed the Trait. Otagi Yuka, as the leader of the Golden Blood Clan, could meet all the Conditions. Since she had Golden Blood and all the Traits the Ring required, she would be able to use it well.</p>
+<p>However, I don't know what the third option is. It seems there's some Secret to this Ring, and seeing that only the rightful Owner can obtain it, it seems Dancescu Blaga's Descendant or Otagi Yuka, who currently inherits the Trait, might be able to obtain something.</p>
+<p>The last option was a Crazy option that allowed two Blood Sorcery spells to be used without consumption. As Vampires always had to manage their Blood Energy, skills that consumed Blood Energy were powerful but carried a corresponding Risk. If Blood Arrow and Blood Spear could be used without Blood Energy consumption, it meant that at least somewhat weaker Enemies could be easily swept away. The Vampire Grand Duke must have worn this Signet Ring because of the last option, even though he knew the other options didn't apply to him.</p>
+<p>"Here."</p>
+<p>I held out the Ring to Otagi Yuka. This was Otagi Yuka's exclusive Item, no matter what anyone said, so I gave it to Otagi Yuka without asking anyone else's opinion.</p>
+<p>"This isn't that kind of Ring, so I won't put it on your Finger, okay?"</p>
+<p>When I said I was giving the Ring to Otagi Yuka, most of the Women present glared with Glaring Eyes, as if to say, 'Let's see how he gives it to her,' so I couldn't bring myself to put it on her Finger.</p>
+<p>"Ahahaha, what kind of Ring is that ? I get it, just give it to me."</p>
+<p>At my Words, Otagi Yuka chuckled, and held out her Hand as if asking me to place the Ring on her Palm. I placed the Ring on Otagi Yuka's Palm, as everyone (expected?).</p>
+<p>"Well then, the Item check is finished.... The Reward received as Money hasn't come in yet, so let's talk about that when it does."</p>
+<p>Currently, the Federal Superpower Management Bureau is very busy, and perhaps due to Settlement and tax issues, they said they would give the Money around next week, so the Meeting regarding what was obtained in the USA was concluded.</p>
+<p>"Then, everyone but Linling, you are dismissed."</p>
+<p>"I'll have the Meal ready, so finish quickly and come, Older Brother~!"</p>
+<p>"Ryuta-ssi, thank you for the Ring! Next time, put it on my Finger!"</p>
+<p>"Teacher-nim, I'll prepare a Ring that suits my mechanical Hand too!!"</p>
+<p>At the Words to leave, with only Linling remaining, the Subordinates left noisily, each saying One Word. I waved my Hand as if telling them to hurry and leave, and soon, only Linling and I remained in the conference room.</p>
+<p>After confirming everyone had left, I took out a universal connector from my pocket. It was the universal connector containing the data that Phantom Thief François had stolen from Taira's secret Laboratory, which I had received from Arisu.</p>
+<p>Otagi Yuka B-cut~!</p>
+<p>I didn't input a clothes prompt, just wanted to check the Intimate Posture, so she came out in this Attire kkeuk kkeuk kkeuk</p>
+<p>Requested by Gojoy-nim: Yukiko giving a speech on the podium~! Chapter 56 Remake Chieri~!</p>
+<p>Yukiko~!</p>
+<p>Chieri~!</p>

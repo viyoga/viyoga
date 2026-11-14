@@ -5,87 +5,67 @@ weight = 932
 chapter = 932
 +++
 
-<p>and are breast check exposure please surroundings there your</p>
-<p>Endless Despair, having completely lost its human form, appeared as if countless grotesque monsters had been synthesized. Its teeth had all become Fangs, growing sharp and pointed, and its fingernails and toenails had also grown long like blades.</p>
-<p>-Kwah-aaaaah!</p>
-<p>Its Appearance was that of having lost Fading Reason, as if it had already forgotten human Words. Endless Despair rushed at Naruse Shiyo, who had muttered, 'Is this Phase 2?' It seemed that saying Something had Stimulated Endless Despair.</p>
-<p>Chaeng!</p>
-<p>Naruse Shiyo blocked Endless Despair's Claw with her nagamaki, but she was inevitably sent flying back by the immense power. However, because Naruse Shiyo had wings, she was able to regain her Balance in empty space after being flung back, preventing her from crashing into the wall.</p>
-<p>"Haap!"</p>
-<p>Otagi Yuka didn't miss that Gap and slashed Endless Despair's Shoulder. Normally, it would have been a strike that severed an Arm, but each muscle fiber, of immense Thickness, was as tough as wire and considerably thick, so it only managed to inflict a wound to some extent. But for Otagi Yuka, that alone was enough. She continuously detonated the flowing Blood, turning Endless Despair's Arm into a Rag. Of course, it regenerated immediately, but if she used Blood explosions every time a wound was inflicted, she could deal significantly meaningful harm.</p>
-<p>Of course, I didn't stand by idly either. Whenever Endless Despair tried to Attack my Disciples, I Counterattacked or blocked with my Body, and even Yoda old man, Musashi Takuro, and Athena Mannerheim were attacking with Killing Intent blazing in their Eyes, so the period of Endless Despair taking Damage began to shorten.</p>
-<p>-Kwah-aaaaah!</p>
-<p>Endless Despair shrieked, soaring with its one remaining tentacle wing. With a roar, it unleashed black Aura like a Wave.</p>
-<p>The black Aura began to shatter Lizhael's Blessing, which had endured well until now. It was admirable that it had endured until now with a single Blessing, but for it to shatter at this critical Moment was a bit dangerous....</p>
-<p>However, Lizhael's Blessing on me did not shatter. This was because the Blessing was linked to my Creation Chaos Gi, so even if the Blessing suffered a little Damage, it quickly recovered.</p>
-<p>"Mom, Dad...! Mom.... Daaad...!"</p>
-<p>"Kakan, that Appearance...!? In such an Appearance, please, please don't leave this Sabu...!"</p>
-<p>"Disciple...! Please! Breathe!!"</p>
-<p>"Did you... abandon me? Why did you leave me to be killed by the SPF...?"</p>
-<p>Endless Despair's black Aura seemed to even have a Jusul Effect, Stimulating the opponent's Trauma.</p>
-<p>Athena Mannerheim seemed to be seeing the Appearance of her Parents, killed by Takakusaki Gengo, and was shedding Tears, while Musashi Takuro seemed to be seeing his deceased Disciple Kaishu Kakan transformed into a tentacle.</p>
-<p>Yoda old man also seemed to be seeing the Appearance of his deceased Disciple, and Otagi Yuka seemed to be seeing the Appearance of her Family, with whom she had severed ties. While others might have thought nothing of it, Otagi Yuka had pretended to be fine until now, but it seemed that severing ties with her Family had indeed left a considerable wound on her mind. Since it was virtually the same as being abandoned by her Family, she couldn't help but be in shock. I should give her some Comfort later.</p>
-<p>The fortunate thing was that the rest didn't seem to have mental Trauma severe enough to render them completely combat-incapable; they were all grabbing and pulling down the surrounding people who had become combat-incapable.</p>
-<p>"Everyone, step back...! I'll face him alone."</p>
-<p>Now that everyone's Blessing had shattered, I was the only one who could properly face Endless Despair. Even if there were people who were fine now, they would inevitably continue to take mental Damage, so I had no choice but to fight alone. I walked alone towards Endless Despair.</p>
-<p>One might ask how I could face him alone when we couldn't win fighting as a group until now, but I was confident.</p>
-<p>While my Proficiency in Creation Chaos Style had increased from fighting Endless Despair with it, the most crucial factor was my increased understanding of the Aura 'Creation Chaos' itself, which originated from Lizhael.</p>
-<p>Specifically, my Sensation for the Ability to wield opposing powers, which I hadn't properly grasped until now, had risen. This was the Cause of me not considering Defeat.</p>
-<p>Endless Despair was one who had gathered the Aura of countless Outer Gods, shed his human skin himself, and ascended to the position of an Outer God. That Aura was utterly turbid.</p>
-<p>Countless Auras were intertwined, piercing through any Defense the opponent put up and inflicting considerable Damage, but I, possessing Creation Chaos which allowed me to wield opposing powers, could unravel the turbid Aura that Endless Despair possessed.</p>
-<p>Lizhael might not have known this future and become an Outer God wielding Creation Chaos, but now I had become an existence that was completely the antithesis of Endless Despair.</p>
-<p>"Haap!"</p>
-<p>-Creation Chaos Style: Earth Vein Draw.</p>
-<p>From a considerable distance, I swung my Foot towards Endless Despair. At that Moment, the Ground burst open, and a massive energy Shaft made of indigo Creation Chaos Gi shot forth.</p>
-<p>-Mumatsu Anya: Assatsu (Crushing Pressure).</p>
-<p>Seeing the energy Shaft shot at it, Endless Despair also slammed both hands down, firing a crescent-shaped black Aura, but it scattered and vanished into the Creation Chaos Style: Earth Vein Draw's energy Shaft as if salt dissolving in water.</p>
-<p>-Damn it!</p>
-<p>Endless Despair hastily evaded the energy Shaft, but I had already prepared a combo Martial Arts Form.</p>
-<p>It was the Creation Chaos Style: Earth Vein Draw's combo technique, Leg Blade Decapitation. If Earth Vein Draw was an upward kick, Leg Blade Decapitation was a combo technique that brought the raised Leg straight down to sever the opponent's Neck.</p>
-<p>I used Creation Chaos Style: Earth Vein Draw and simultaneously soared with Telekinetic Flight. And I received the Earth Vein Draw's Creation Chaos Gi directly into my Leg.</p>
-<p>Woong!</p>
-<p>Compressed Energy began to emanate a blade-like sharp Aura along my Foot and Shin line.</p>
-<p>-Creation Chaos Style: Leg Blade Decapitation.</p>
-<p>Seugeok!</p>
-<p>The Foot, swung like a Sword, directly severed Endless Despair's tentacle wings and Shoulder. Originally, I had intended to strike its Neck, true to the name Leg Blade Decapitation, but Endless Despair didn't seem to intend to die easily. Even at that Moment, it twisted its Body's angle to protect its Neck.</p>
-<p>The severed lower Shoulder and tentacle wings quickly reattached, but due to the remaining Creation Chaos Gi, its Body was Collapsing around the wound. The Creation Chaos Gi thoroughly Disassembled Endless Despair's black Aura, Neutralizing its regeneration Ability itself, while simultaneously exacerbating the wound.</p>
-<p>-Geu-aaaaah!</p>
-<p>Ppudeudeuk!</p>
-<p>Sensing that its entire Body would Collapse if things continued like this, Endless Despair screamed and tore off its reattached Arm and tentacle wings itself. With a Cheolpeok sound, the tentacle wings and the arm below the Shoulder fell miserably to the Ground.</p>
-<p>Even if it had become an Outer God, Endless Despair descended to the Floor, perhaps unable to fly without wings. The Beast-like Appearance, which had lost Fading Reason until now, vanished, and Fading Reason returned to its Eyes. Its Physical Body's form had also changed to be a little closer to human than its monstrous Appearance from just now.</p>
-<p>-Is that it.... To completely shed the human guise, must one transcend not only the Physical Body but even the Mind...? I haven't reached it yet.</p>
-<p>It was a Story that sounded somewhat like Enlightenment, but Desire still swirled in Endless Despair's pupils. By the way, Endless Despair-no, Takakusaki Gengo-didn't seem to be a complete Outer God. Indeed, if he had achieved true transcendence, he wouldn't have been pushed into such a Situation.</p>
-<p>-Having taken a step forward with Physical Body mutation, now just one more step will allow me to achieve true transcendence. To do that, I must first overcome you.</p>
-<p>Judging by its Words, it seemed it still hadn't let go of its Desire to become an Outer God. Whether it still clung to Desire or abandoned it and everything else, it didn't Matter. After all, no Matter what Endless Despair did, I intended to kill Endless Despair.</p>
-<p>-Let's bring this to an end now.</p>
-<p>Endless Despair clenched a Fist with its one remaining Arm and took a stance for a straight punch. What I saw now was not Endless Despair, but Takakusaki Gengo, who had long been called the Demonic Fist and reigned as the Fear of the Fist Technique world. In fact, it looked stronger now than when it had been rampaging, unable to control its overflowing Physical Body power just moments ago.</p>
-<p>I also prepared a straight punch, matching Takakusaki Gengo's Opening Ceremony. And without knowing who started first, we rushed at each other almost simultaneously.</p>
-<p>-Creation Chaos Style: Star Shatter.</p>
-<p>This was a different Martial Arts Form, sharing only the name Star Shatter with the one I had previously unleashed by infusing Creation Chaos Gi. True to its name, Star Shatter (破星: to shatter a star), a chaotic Aura capable of disassembling everything and destroying stars on a large enough scale, was swirling.</p>
-<p>Takakusaki Gengo also unleashed a lifelong straight punch filled with black Aura, but its Root was already that of Shinkai Yatsude, which I knew. Because I thoroughly understood that Martial Arts Form, I easily Neutralized it and struck Takakusaki Gengo's chest, where his Heart was, with Star Shatter.</p>
-<p>As if Disassembled, the chest Muscles covered in thick muscle fibers vanished, and the hard breast bone also disappeared as if a sugar craft dissolved in water. The enormous Heart, which could not be called human, also could not withstand the Aura of Star Shatter and was Disassembled and vanished.</p>
-<p>-Keo-eoh-eoh...!</p>
-<p>Teolsseok...!</p>
-<p>Takakusaki Gengo knelt before me. I looked down at the dying Takakusaki Gengo with a blank Expression, then reached out my Hand and brought the tentacle wings and Arm of Endless Despair, which were far away, with Telekinesis.</p>
-<p>I watched Takakusaki Gengo's Life end until the very last Moment. I showed the dying Appearance of Takakusaki Gengo to those who held grudges against him, such as Athena Mannerheim, Yoda old man Kinui Tachio, and Musashi Takuro, who were receiving Chiryo in the rear.</p>
-<p>Everyone silently watched Takakusaki Gengo die, and when Takakusaki Gengo's Breath completely stopped, I reached out my Hand and created a Magic Circle connected to Lizhael.</p>
-<p>"I hope she likes it."</p>
-<p>I thought it would be better to give the Outer God's Physical Body to Lizhael as a Gift and get rid of it, as I didn't know what kind of influence it would have on this World.</p>
-<p>Gojoy-nim requested Nagumo Sian in date attire gain~!</p>
-<p>It was a bit difficult to make it exactly the same, so I changed it from long Hair to her original Meoriseutail haha.</p>
-<p>MidNightSKY-nim requested a phantom Mother and daughter Seducing with match underwear~!</p>
-<p>Nae~!</p>
-<p>Nae with a 'Should I untie the Strap?' Feeling haha.</p>
-<p>Arisu~!</p>
-<p>Since it's her first Appearance in a long time, I gave her a more Seductive pose than her mom haha.</p>
-<p>Neosblue-nim requested a super-fusing evil-Tendency Ryuta.... but since super-fusion wasn't Learning and there was no LORA, I just tried creating a Ryuta who took an evil-Tendency Route haha.</p>
-<p>Looking at it this way, he looks incredibly Threatening haha.</p>
-<p>Hwanbuljeoldaebulga-nim requested See-Through Shirt Leather Pants Sensitive Ear Piercing Lisa Home Economics Teacher~!</p>
-<p>Lisa-tang first~!</p>
-<p>Home Economics Teacher~!</p>
-<p>ISaveI-nim requested Jinmija Yeosa and Hanakame drinking Kola in the kitchen wearing only panties~!</p>
-<p>Jinmija Yeosa~!</p>
-<p>It turned out really well with a great Atmosphere haha.</p>
-<p>Hanakame</p>
-<p>Why the straw...?</p>
-<p>Ryuta-nim, would you like some too?</p>
+<p>"...She has these Traits. So..."</p>
+<p>As I explained Seizawa Shii's Stats, Skills, and Traits, everyone's mouths hung open. It seemed those listening were surprised, probably because she was so heavily invested in Strength. Otagi Yuka, who heard my Story, looked at Seizawa Shii with an incredulous Expression.</p>
+<p>"What kind of Platinum Blonde Hair female animal gorilla is she? No wonder she's so stupidly strong..."</p>
+<p>"What? A female animal gorilla? Yukacchi! Your Words are too harsh~!"</p>
+<p>At Otagi Yuka's Words, Seizawa Shii, as if provoked, hit the desk with a pang and stood up from her Seat. Still, seeing that the desk she hit with her Palm didn't shatter, it seemed she wasn't truly angry.</p>
+<p>The two had a staring contest for a while, then soon sat back down. Seizawa Shii and Otagi Yuka bickered like this, but they didn't seem to genuinely dislike each other. Of course, if I had said that, they would probably have been disgusted with each other.</p>
+<p>In fact, the word 'gorilla' wasn't entirely appropriate. This was because Seizawa Shii, with her Strength Stat already exceeding 19, had reached a Level where she could easily crush a gorilla's Hand if she shook it. It seemed the nickname 'Ogre' fit her perfectly.</p>
+<p>"So... my Strength and Body are sufficient, so you're saying I should train my Mind?"</p>
+<p>Seizawa Shii, as if she had properly understood my Explanation, spoke of the need for mental Training. In fact, an easier way to become stronger would be to raise her Level by 1 as quickly as possible to make her Strength Stat Breakthrough its Limit, but looking a little into the future, it seemed better to start mental Training to supplement her much lower mental Stats.</p>
+<p>As she undertook various missions, her Level would rise anyway, so it was better to start mental Training now to at least somewhat Balance the imbalance between her Body and Mind. This was because, like Body Stats, mental Stats below 10 could be somewhat increased through Training.</p>
+<p>My thought was that it's better to prepare in advance, as one never knows when they might encounter an Enemy who uses mental Attacks, like Funayama Seigo, during missions.</p>
+<p>"Yes. It seems better to do mental Training first."</p>
+<p>As I nodded my Head and spoke, Seizawa Shii rested her Chin in her Hand and Worried for a moment.</p>
+<p>"But how should I do mental Training? Before, after being attacked by Funayama Seigo, I gathered some so-called 'masters' and trained, but I didn't really understand it..."</p>
+<p>It seemed Seizawa Shii had also trained in her own way after being attacked by Funayama Seigo. Though she didn't seem to feel much of a difference.</p>
+<p>"Ah! How about learning from our Sabu? She also gave me mental Training, saying my Body was sufficiently prepared. I definitely felt the difference."</p>
+<p>Naruse Shiyo, hearing the Story, raised her Hand brightly and spoke. Since Naruse Shiyo had sufficient physical Abilities due to her Dragon transformation, Shimokawabe Airen seemed to have recognized that and focused her on mental Training.</p>
+<p>"Teacher Gajeong? Shall we? Then, Shiyoppi, could you ask together?"</p>
+<p>"Good~! Sabu-nim will like it too."</p>
+<p>Seeing her say that Sabu-nim would like it, it seemed Shimokawabe Airen enjoyed teaching. I didn't know that.</p>
+<p>"Now that the Status Window explanations are all done... what should we do?"</p>
+<p>In fact, today's plan at the Joseodang Safe House was just the meeting and Status Window explanations. The next schedule was visiting those still in the Hospital and going to Urabe Shrine to see Urabe Konoka and Hanakame, who had helped with this incident, but I asked in case there was anything else.</p>
+<p>"...It seems there's nothing more for Ryuta-nim to do here."</p>
+<p>Asada Ei, after a moment of thought, Answered my Question. At her Words, I nodded my Head and stood up from my Seat.</p>
+<p>"Then, let's all have a delicious lunch together, and those who can, let's go for a hospital visit."</p>
+<p>"Can I go to the Hospital too? Teacher Gajeong is in the Hospital, so I want to ask her today!"</p>
+<p>Seizawa Shii requested to join to get permission from Shimokawabe Airen for mental Training. Since there was no reason not to, I nodded my Head.</p>
+<p>Finland, Lapland (Finland Lapin maakunta), Ivalo Airport.</p>
+<p>Athena Mannerheim set Foot in the airport of Lapland, a northern region of Finland.</p>
+<p>'This is Finland...'</p>
+<p>Athena Mannerheim muttered to herself at the somewhat familiar Scene. It was the first Time in 14 years she had stepped on Finnish Ground since leaving Finland as a Child, led by Takakusaki Gengo.</p>
+<p>When she left Finland, she had lost her Memory due to Sorcery, so after a long period, she didn't remember well, but the sealed Memories that returned after the Sorcery was broken were as vivid as if they had happened yesterday, making the air of Finland feel somehow familiar.</p>
+<p>Athena Mannerheim, after the battle, only took care of the necessary aftermath and almost immediately booked and boarded an Airplane to Finland. Because she had to book the Airplane in a hurry, only First Class was available, and she was short on Cash, but Taira Ryuta solved that for her.</p>
+<p>-I've made a Reservation for your Flight to Finland. And... how about working with us? I'd like you to lead the Anyaji martial monks taken as Prisoners.</p>
+<p>It was a Proposal Taira Ryuta made while getting her Airplane ticket. Athena Mannerheim nodded her Head. The martial monks remaining at the Anyaji Headquarters were those who had just graduated from Training and hadn't gotten involved in major wrongdoings, so she felt it was a pity they were taken as Prisoners, and thus, she had no Choice but to accept the Proposal.</p>
+<p>-What should I do leading those Anyaji martial monks?</p>
+<p>-Perhaps... a PMC? I took the PMC certification Test today. I'll probably pass, so you can just work directly under me.</p>
+<p>The Words "I'll probably pass" were a little unsettling, but since she had heard that Yamashiro Ryuta was actually Taira Ryuta, a Direct Lineage member of the Taira Family, she thought it would work out somehow.</p>
+<p>Although it was a bit unsettling to have to take the Anyaji Prisoners from the Fist Technique world to the even more dangerous PMC industry, now that Anyaji had fallen, there would be no Place for Anyaji-origin individuals in the Fist Technique world anymore.</p>
+<p>She thought it might even be better to join a PMC directly under the Taira Direct Lineage. Because they would pay a generous Salary. Thus, after swearing to take Responsibility for the Anyaji Prisoners, Athena Mannerheim boarded the Airplane Taira Ryuta had reserved for her and headed to Finland.</p>
+<p>The Reason she came to the Lapland region in northern Finland, not Helsinki, the Capital of Finland, was to go to a certain Place in this region.</p>
+<p>From the Finnish Airport, Athena Mannerheim rented a car, stopped at a flower shop to buy Flowers, and headed to a certain Place.</p>
+<p>By the Time Athena Mannerheim arrived at the Lapland Public Cemetery after driving for several hours, it was already Evening. However, due to the phenomenon of the midnight sun, it was still bright, so she thought she would easily find the Grave she was looking for.</p>
+<p>Athena Mannerheim, who had been walking around looking at the Tombstones for a while, stopped her Footsteps at the names written on two Tombstones standing side by side.</p>
+<p>Elias Mannerheim, Sophia Mannerheim.</p>
+<p>The names of Athena Mannerheim's Father and Mother were written on the two Tombstones. Athena Mannerheim placed the Flowers she had bought from the flower shop in front of the Grave.</p>
+<p>"Mom, Dad... I'm a little late, aren't I?"</p>
+<p>Athena Mannerheim stroked the Tombstone and muttered in Finnish, which now felt awkward to her.</p>
+<p>"I'm sorry. Like a fool... I had forgotten Mom and Dad."</p>
+<p>Whether it was due to Sorcery or the Guilt she unconsciously felt, even though she knew her Parents were dead, Athena Mannerheim never once went to Finland during her Time with Anyaji.</p>
+<p>"But, I took Revenge for Mom and Dad. Don't Worry too much."</p>
+<p>After Takakusaki Gengo's Sorcery was broken, Athena Mannerheim had Nightmares every single day of her Parents dying at Takakusaki Gengo's Hands. At the incredibly vivid Scene, Athena Mannerheim had to Scream several times and get out of bed.</p>
+<p>It was probably a Side Effect of her long-sealed Memories returning, but Athena Mannerheim thought these Nightmares were her deceased Parents continuously reminding her not to forget their Death.</p>
+<p>"Now that I've taken Revenge, please rest in peace...!"</p>
+<p>Athena Mannerheim, who had been stroking the Tombstone, looked at the names on the Tombstone with lonely Eyes for a while, then stood up from her Seat.</p>
+<p>"It's far, but I'll visit occasionally now."</p>
+<p>Although she was Finnish, Athena Mannerheim, who had spent two-thirds of her Lifetime in Japan, was more comfortable in Japan than in Finland. And because she had 60 People to take Responsibility for, she had to return to Japan immediately.</p>
+<p>Athena Mannerheim left Words promising to visit her Parents' Grave again and headed back to Ivalo Airport.</p>
+<p>Falling asleep on the Airplane back to Japan, Athena Mannerheim was able to get a good night's Sleep without Nightmares for the first Time in a long Time.</p>
+<p>Ryuta performing Dragon-Tiger Dance and a proud Alik, requested by MidNightSKY-nim~!</p>
+<p>Ryuta performing Dragon-Tiger Dance!</p>
+<p>I've gathered some flashy Attacks haha.</p>
+<p>A proud Alik~!</p>
+<p>Alik showing his pride with a peace sign haha.</p>

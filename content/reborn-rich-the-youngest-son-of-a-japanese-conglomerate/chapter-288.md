@@ -5,99 +5,92 @@ weight = 288
 chapter = 288
 +++
 
-<p>,Haa.... Haa.... Yong-tae-yaang, now, come now♥,</p>
-<p>Han Yu-gyeong was lying on the bed, her pussy wide open with hazy eyes, tempting me. I started pressing my glans against Han Yu-gyeong's wet pussy hole.</p>
-<p>Ssuuuk~!</p>
-<p>Han Yu-gyeong's pussy was already soaked with vaginal fluids and had already reached its peak once, so there was nothing to stop my dick.</p>
-<p>My dick went all the way into Han Yu-gyeong's deepest spot at once, tapping her cervix.</p>
-<p>,Haaang! Yong-tae-yaaang♥,</p>
-<p>Han Yu-gyeong scratched my back as if she had lightly gone just by inserting it. Well, anything Han Yu-gyeong scratched would regenerate in less than a second, but the slight pain I felt on my back added a new flavor to the pleasure.</p>
-<p>Maybe it was because of the orgasm, but the inside of her pussy wriggled and bit down on my dick tightly. I wasn't satisfied with just inserting it, and I kept shaking my waist.</p>
-<p>,Haaht, aaeung...! Heuheung...! Yong-tae's dick, heuuht! Joa-hang!,</p>
-<p>Han Yu-gyeong was accepting my dick, letting out sweet moans in time with my waist movements.</p>
-<p>She wrapped her legs, which showed off her beautiful figure, around my waist in an X shape, locking me in place so I couldn't pull my dick out, and she was enjoying my piston movements to her heart's content.</p>
-<p>,Heuheung, deeper...! Yong-tae-ya, haat! I love you...! Heuheung♥ Haeum...!,</p>
-<p>,I love you too.,</p>
-<p>Having sex while confessing our love to each other was the best. We shared our love by shaking our waists in the missionary position for a while, then we changed positions, and Han Yu-gyeong inserted while I was sitting, changing to a rear-entry position where she sat facing forward.</p>
-<p>In a typical rear-entry position, only Han Yu-gyeong's back could be seen, but this hotel had a large mirror, so we could have a visually more stimulating sex while looking at each other's front.</p>
-<p>I bounced my waist slightly and stimulated Han Yu-gyeong's breasts and Clitoris, looking in the mirror and reaching my arms forward.</p>
-<p>It was a more relaxed piston movement than when we were in the missionary position, but perhaps because of the three-point caress of her Clitoris and breasts, Han Yu-gyeong's face reflected in the mirror was gradually becoming the face of a woman melting in pleasure.</p>
-<p>,Haeuheuk...! Heuheoeok.... Stop, heuuht... it's going to get weird, heuhyaat! I think, Yong-tae-yaaang♥,</p>
-<p>,Just get weird then.,</p>
-<p>,Haaaaaang!!! Get weird, just get weird...! I'm going to become a pervert who only thinks about Yong-tae's dick, eot!!,</p>
-<p>The reaction was pretty good. The sensitivity was good and the reaction was good, so it was a slutty body that made sex fun. Of course, my dick that's being inserted is also giving me tremendous pleasure.</p>
-<p>Han Yu-gyeong, who had been moaning for a while, wasn't satisfied with my slight waist movements, so she started moving her waist on her own.</p>
-<p>Jjilkeok jjilkeok jjilkeok</p>
-<p>Along with the lewd, wet sound of *jjilkeok*, Han Yu-gyeong moaned and moved her waist up and down, then started turning her waist from side to side.</p>
-<p>She was stimulating her erogenous zones by slamming my glans into the place where she felt the most and turning her waist.</p>
-<p>,Heuaang! Heuat! Heuhaaahang!,</p>
-<p>Han Yu-gyeong moved her waist with a flashy waist movement. If it were an average man, his dick would have broken from such flashy movements, but my dick wasn't a dick that could be hurt that easily.</p>
-<p>I also started to feel sperm rising from my balls, so I grabbed Han Yu-gyeong's slender waist and fixed it in place, and started pushing my dick up from below.</p>
-<p>,Haaht...! Heuang... Heung, Yong-tae-ya, too haang♥ hard...! I think I'm going to get weird, haang♥,</p>
-<p>It seemed that Han Yu-gyeong's resistance to pleasure had decreased a lot since she was alone in Korea. I'll have to raise it again this time. Despite Han Yu-gyeong's words that it was too hard, I shook my waist roughly, but with movements that combined the *Heukmireukgong's* bedroom arts.</p>
-<p>,Heuuht...! Eung, haaht! Pussy is weird, heuuht...! Haaht! Pussy... Joa-hang♥,</p>
-<p>,I'm gonna cum...!,</p>
-<p>Water shot out of Han Yu-gyeong's pussy *pwyut pwyut*, and hot semen like lava poured out of my dick, filling Han Yu-gyeong's uterus.</p>
-<p>,Haeueu.... It's hot♥ Haa.... Haa...,</p>
-<p>,Huu....,</p>
-<p>I hugged Han Yu-gyeong from behind and lay down on the bed as is. As I hugged her, I could feel Han Yu-gyeong's heart beating non-stop and her breathing heavily.</p>
-<p>Because I hadn't pulled out my dick yet, I could still feel her pussy, which was experiencing an orgasm. I was just inserting it and not giving it any stimulation, but it kept wriggling.</p>
-<p>,Yu-gyeong-a.,</p>
-<p>,Huh?,</p>
-<p>When I called out while fondling Han Yu-gyeong's breasts, Han Yu-gyeong turned her head and looked at me with a why? expression.</p>
-<p>,I think you've gotten too weak because I haven't done it for a while. I'll have to retrain you.,</p>
-<p>,Huh?,</p>
-<p>This time, it was a different huh? than before. It was a tone as if to say, what are you talking about?</p>
-<p>,J-just a minute....,</p>
-<p>,I'll train you to be okay even after taking out my semen three times in a row at least.,</p>
-<p>I shook my dick, which had regained its strength inside Han Yu-gyeong, and whispered in Han Yu-gyeong's ear.</p>
-<p>,Heueu-heung...! Noooo♡,</p>
+<p>I kept pondering alone for ages, but couldn't reach a conclusion. Eventually, I contacted Mimata Chieri-Sunbae, an expert at luring women into my bed, for advice. It's obvious what Mimata Chieri wants, but I still need to seek her advice.</p>
+<p>-Ryuta-Gun, what's the matter? Are you calling about Alik or Jeong Da-rim? I've already scheduled them for tomorrow, so don't worry. Alik is in contact with your family...</p>
+<p>I wasn't calling for Alik or Jeong Da-rim, but Mimata Chieri was quick with her work as always. She's really competent.</p>
+<p>"Good job, Sunbae-nim. But that's not why I called..."</p>
+<p>I explained the current situation to Mimata Chieri. Mimata Chieri listened to my explanation for a while and chuckled slightly at my story.</p>
+<p>-Ahahaha...! That was your concern?</p>
+<p>I was a little annoyed by her tone, as if that was all I was worried about, but I shouldn't get angry at Mimata Chieri.</p>
+<p>"Of course. It's hard to cancel any of those meetings."</p>
+<p>-It's not a big deal, so, well.... There is a way.</p>
+<p>Mimata Chieri paused for a moment before speaking. That must mean she wants something. Unable to bear the pause, I asked Mimata Chieri again.</p>
+<p>"Please tell me what that way is, Sunbae-nim."</p>
+<p>-What's in it for me?</p>
+<p>I knew she'd want something.</p>
+<p>"What do you want?"</p>
+<p>-Could you not close the curtains when you have sex in the hotel?</p>
+<p>In short, it was a bold declaration that she would film a porno of me and the Mamas through the window with a drone. I reluctantly nodded, saying, "Okay." Then I immediately heard a response from the phone.</p>
+<p>-First, choose a woman who already knows about your womanizing tendencies and will accept it. Probably Nae Fitzgerald-Nim, right? You've already had a 3-on-1 in New York....</p>
+<p>Come to think of it, Nae Fitzgerald had done a 3-on-1 before. And she didn't get mad at me.</p>
+<p>"So?"</p>
+<p>-And then you recruit one more woman who is likely to accept it. It would be good if it was someone coming from Korea.</p>
+<p>"Huh? Why?"</p>
+<p>-Didn't you say that the person coming is divorced and mentally struggling, so she can't refuse? Then, since she's already committed adultery with you, shouldn't she be able to tolerate having sex with multiple women?</p>
+<p>Hmm, that's true. Ha Ju-yoon had already slept with me, her daughter's boyfriend, while she was married, so she probably wouldn't get angry over just another woman.</p>
+<p>I didn't tell Mimata Chieri that she was Han Yu-gyeong's mom, so she probably meant it in the sense that a married woman had committed adultery.</p>
+<p>-Then it's easy. The two of you seduce one person. Since the people coming are a bit older, you can form an alliance to win Taira Ryuta, something like that....</p>
+<p>Hmm, I don't know if it will work out as she says, but I decided to accept Mimata Chieri's opinion. Even with an Intelligence stat of 8, I couldn't think of anything else. This matter probably required more of a Creativity stat than an Intelligence stat.</p>
+<p>"Okay, I'll talk to Nae-ssi."</p>
+<p>-Yes, you have to tell me what hotel room it is♥</p>
+<p>Hmm, I really can't stop that voyeuristic NTR maniac's perversion. But since I received her advice, I have to tell her.</p>
+<p>Now that it's come to this, I immediately contacted Nae Fitzgerald. First, I need to persuade Nae Fitzgerald to proceed with this plan. If I say something wrong or fail to understand Nae Fitzgerald from the start, I would have to come up with another strategy.</p>
+<p>-What's wrong, Ryuta?</p>
+<p>"Nae, actually...."</p>
+<p>Following Mimata Chieri's advice, I honestly told Nae Fitzgerald about the current situation. It was quite difficult to tell the person involved, but Nae Fitzgerald listened to me until the end.</p>
+<p>-Hmm, I thought I would be alone with Ryuta, so I'm not feeling so good about the current situation, but.... It's a bit interesting that there are similar women my age?</p>
+<p>Fortunately, Nae Fitzgerald seemed to understand.</p>
+<p>-Then, first....</p>
+<p>Nae Fitzgerald was a master of planning ahead before starting a job as the Phantom Thief Françoise. I listened to the plan that Nae Fitzgerald came up with on the spot and nodded.</p>
 <p>###</p>
-<p>After a few passionate nights with Han Yu-gyeong, I got hungry and ordered room service. Han Yu-gyeong also consumed a lot of calories, so I ordered plenty.</p>
-<p>Soon after, the room service food came in, and Han Yu-gyeong, who had been showering, sat down at the table where I had set the food. As expected, Han Yu-gyeong was also hungry, and she smiled brightly when she saw the food that had been prepared quite a bit.</p>
-<p>,Actually, the Japanese food earlier was delicious, but I got hungry quickly because I was playing with Yong-tae. Hehe....,</p>
-<p>,Eat a lot. I'm hungry too.,</p>
-<p>We ate the food we ordered with wine and had a pleasant conversation.</p>
-<p>Most of it was about Han Yu-gyeong's university stories, business stories, and my travel stories, but as I was talking about my travel stories, the story about the Dignity Health Sports Park disaster naturally came up.</p>
-<p>,Ah, that's right! Yong-tae, you should be scolded a bit! Who told you to go to such a dangerous place?,</p>
-<p>,But actually, I don't have many injuries....,</p>
-<p>,What? No, how can you do such a dangerous thing? You don't have any injuries? I saw you getting hit by that Famine or whatever!,</p>
-<p>I had been scolded by Han Yu-gyeong once during a video call before, but she seemed angry again when she saw me in person, and she was looking at my body here and there, checking for injuries.</p>
-<p>It had been almost a week since the incident, so there was no way there would be any scars left. No matter how big the injury, it would heal without a scar in a week thanks to my regeneration trait.</p>
-<p>Rather, there were traces of the scars Han Yu-gyeong had left on my back. The injured areas had healed immediately, but there were some bloodstains on my back.</p>
-<p>,You saw the accident video, so you know I don't have any major injuries. Even if I get hurt, it heals right away....,</p>
-<p>,But it still hurts....,</p>
-<p>Han Yu-gyeong, who was looking at me with teary eyes, was quite cute, so I gently pinched her cheek.</p>
-<p>In fact, if your resistance stat is high, your ability to resist pain increases, so it didn't hurt that much.</p>
-<p>,It's okay. More than that, let's talk about the other things that are happening as a ripple effect because of this incident.,</p>
-<p>,Are you talking about the demonstrations that are happening right now or the movement to create laws that restrict the rights of superhumans?,</p>
-<p>I nodded heavily at Han Yu-gyeong's words.</p>
-<p>,Do you know how it will proceed in the future?,</p>
-<p>,The power I got is like that, and if someone with this much power doesn't have a good personality, they'll probably kill the congressmen who are trying to pass the bill. I think there will be terrorism too.,</p>
-<p>Han Yu-gyeong was definitely smart, so she was predicting the future quite accurately.</p>
-<p>I nodded and agreed with Han Yu-gyeong's prediction.</p>
-<p>,As you think, there will be terrorism and assassinations in Korea too.,</p>
-<p>Of course, as Korea is the central background of the youngest son of MegaCorp, various incidents occur.</p>
-<p>There are superhuman terrorists, toxic substance leaks from research institutes, and even zombie-like incidents, and Han Yu-gyeong had to use this chaos to eat up the Shin-gang Group and go even further to eat up Korea.</p>
-<p>,There's one congressman who you should definitely get rid of.,</p>
-<p>I pointed out one person who appears as a villain in the youngest son of MegaCorp.</p>
-<p>He was a five-term congressman named Choi Seok-hun, a politician who was trying to use the current atmosphere of fear to challenge the presidency.</p>
-<p>Of course, he wasn't a decent person as he was on my kill list, and he was doing a machine modification business that was completely opposite to the superhuman side.</p>
-<p>He was illegally kidnapping and modifying homeless people and had a lot of data, and of course, as he had this much data, there were countless people who had been sacrificed.</p>
-<p>,I have to do it, right?,</p>
-<p>Of course, even if the main character Han Yu-gyeong doesn't kill him, Choi Seok-hun will die someday, but it was better to kill him because he would actively work and make the situation worse until he died.</p>
-<p>Of course, not only that, but it was possible to obtain the data that Choi Seok-hun had collected, so it was possible to maximize profits by quickly processing it and receiving the collected data and research materials. It's also good material to use at TG Tech, which we established.</p>
-<p>,Yeah, you can do it easily using Nero.,</p>
-<p>Because it was Nero that could be drawn from the shadows, it was perfect for this kind of ambush.</p>
-<p>Because he could move into the opponent's shadow when the opponent's shadow overlapped with his, he could easily eliminate ordinary people if he just got close enough.</p>
-<p>Choi Seok-hun is a politician, but he doesn't have any special abilities, so Nero will be able to perform well.</p>
-<p>In addition, I told her about the ambush points for Choi Seok-hun, and I told her a few more pieces of information that I remembered.</p>
-<p>I gave her plenty of information in advance in case I couldn't go to Korea because of the St. Francis Women's Academy.</p>
-<p>If it's Han Yu-gyeong, she'll be able to get the best results with the few pieces of information I give her.</p>
-<p>,Thank you for the information, Yong-tae-ya.,</p>
-<p>,I don't regret giving information to my woman at all.,</p>
-<p>The calories consumed by sex were more than enough replenished, and a pink current was overflowing between Han Yu-gyeong and me again.</p>
-<p>,Still.... I want to repay you because I'm grateful♥,</p>
-<p>,Then shall I receive a reward?,</p>
-<p>I was wondering what kind of reward she would give me, but Han Yu-gyeong went under the table and was taking off my pants from below.</p>
-<p>I closed my eyes and enjoyed the blowjob that Han Yu-gyeong was voluntarily giving me.</p>
+<p>"I'll be going now."</p>
+<p>"Thank you for your hard work on a Sunday."</p>
+<p>"I said I was doing overtime, so, whatever."</p>
+<p>The housekeeper prepared lunch, made dinner, put it in the refrigerator, and then left work. It seemed like she took a day off during the week and came today, Sunday, instead.</p>
+<p>Lunch was udon and croquettes as a side dish. The chewy noodles in the rich katsuobushi broth were pleasantly chewy. The potato-filled croquettes were also savory and delicious.</p>
+<p>"It's delicious."</p>
+<p>"Yeah, is it not enough?"</p>
+<p>Yukiko asked, but my udon bowl was about twice the size of Yukiko's. She also fried five fist-sized croquettes. The housekeeper had known my appetite for a long time and always gave me a generous amount.</p>
+<p>"It's perfect. I got enough calories to work out today...."</p>
+<p>"Not here, but in the roo...."</p>
+<p>Even while eating lunch, seeing Yukiko's Dongtan MILF look made it hard for me to hold back my hard-on, but Yukiko was just being coy. I picked up Yukiko in a princess carry and headed to the master bedroom.</p>
+<p>I sat Yukiko down on the bed. Yukiko immediately got up again.</p>
+<p>"I'll just go brush my teeth...."</p>
+<p>She seemed to be uncomfortable doing it right after eating. Should I brush my teeth too? Of course, there was my toothbrush in the bathroom in the master bedroom. It had been several months since Yukiko and I had been living in the same house, so naturally, we had sex in the master bedroom often, and I had to wash up here often, so at some point, my toothbrush was hanging in Yukiko's bathroom.</p>
+<p>I followed her into the bathroom, and Yukiko was brushing her teeth. I grabbed Yukiko's ass, which was sticking out because of her tight-fitting Dongtan MILF-style clothes, and took out my toothbrush and brushed my teeth with her while looking in the mirror.</p>
+<p>She glared at me with a look that wasn't unpleasant when I touched her butt, which made me want to violate her right away, but Yukiko finished brushing her teeth first and went outside, so the bathroom sex didn't happen.</p>
+<p>When I finished brushing my teeth and went out, Yukiko was standing by the window next to the bed. The tight-fitting gray dress, as well as her hair tied up to reveal her neckline, made her look very sexy.</p>
+<p>"Yukiko, you're so hot."</p>
+<p>"Heehee.... How about this?"</p>
+<p>I took a step closer to Yukiko, who was teasing me by wiggling her butt slightly as she turned around. I reached out and grabbed Yukiko's thin waist, which was only a handful, with one hand.</p>
+<p>"Kyaa!"</p>
+<p>"I can't stand it if you provoke me like this."</p>
+<p>"How? How can't you stand it?"</p>
+<p>Why is she being so seductive today? I grabbed the bottom of her skirt and pulled it up. Yukiko's thin calves and firm white thighs, which had been hidden in the gray fabric, were revealed.</p>
+<p>I stroked Yukiko's smooth legs, stroking them from her calves to her thighs.</p>
+<p>"Hng.... Ryutaa...♥"</p>
+<p>Yukiko let out a hot breath and lay down, slowly spreading her legs. Today, she was wearing black panties that were semi-transparent except for the important parts. Seeing these sexy underwear, it seemed like she had prepared in advance.</p>
+<p>I didn't touch the panty part, but touched Yukiko's crotch and teased her for a while. I could see her Pussy getting wetter and wetter, and Yukiko squirmed as if she was desperate, showing a gesture of wanting something and urging me on.</p>
+<p>"Ryuta, not there, hng! But...! Touch the middle, touch the middle. Haa!"</p>
+<p>"The middle? Here?"</p>
+<p>I pretended not to understand and poked a completely different spot. It was the fleshy part in the middle of her thigh.</p>
+<p>"Noo.... Not there...!"</p>
+<p>"Here?"</p>
+<p>Of course, this wasn't where Yukiko wanted either. Because it was her knee.</p>
+<p>"P...ussy, touch my pussy.... Don't tease me too much♥"</p>
+<p>She's finally saying what she wants. As if I did a good job, I immediately rubbed the crack that could be seen over her panties with my index finger.</p>
+<p>"Heeuht! Haaht! Eunghht!"</p>
+<p>She seemed to have come a little from the sudden pleasure, probably because she had been teased for so long. After that, I continued to rub Yukiko's pussy with one hand and massaged her firm, protruding breasts with the other.</p>
+<p>When I touched them, she wasn't wearing a bra, but she was wearing nipple patches so that they wouldn't show through her tight-fitting dress.</p>
+<p>As expected, they were the best breasts, with both firmness and softness. I kept massaging her SSS-class breasts, which I wanted to touch forever if I could, and then kissed Yukiko.</p>
+<p>Yukiko actively stuck out her tongue and welcomed my lips.</p>
+<p>Tchup, chuup, tchup...! Chup chup!</p>
+<p>Yukiko's tongue was intertwined so fiercely that it made a lewd sound. I put my hand under her clothes and took off the nipple patches.</p>
+<p>"Hhyaat!"</p>
+<p>When I took off the nipple patches, I could clearly see her nipples sticking out over her clothes. Seeing her nipples, which were standing straight up because she was so excited, made my already hard dick harden once again.</p>
+<p>"Your nipples look even sexier when they show through your clothes."</p>
+<p>"I can't wear them like that because the housekeeper is here. But I'll only show them to Ryuta."</p>
+<p>"Yeah, don't show them to anyone else."</p>
+<p>I expressed my possessiveness over Yukiko and kissed her again.</p>
+<p>------</p>
+<p>Long time no see, Yukiko</p>

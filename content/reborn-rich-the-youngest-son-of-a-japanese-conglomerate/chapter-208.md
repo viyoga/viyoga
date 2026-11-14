@@ -5,64 +5,80 @@ weight = 208
 chapter = 208
 +++
 
-<p>-The boss says we have to do it now. If we delay, the only future is all of us dying!</p>
-<p>Listening to Lianna Holden, it seemed Sawayanagi Azuma had foreseen several futures. Probably, 'doing something now' meant I had to choose a trait? Because the telepathy came right after I leveled up and thought about choosing a trait later. It seemed like in the future where I didn't choose a trait now, everyone would be wiped out. Hmm, pretty scary, huh?</p>
-<p>,I understand. I'll do as Azuma-ssi says."</p>
-<p>I spoke into the radio and went to a corner for a moment. Then, I recalled the level-up window to choose a trait. Sawayanagi Tobe decided to watch over me while I chose a trait.</p>
-<p>Please choose a trait</p>
-<p>①Pillar of Recovery ②Incantation of the Flame Tower ③Machine Maintenance</p>
-<p>Pillar of Recovery seemed to be related to holy magic, probably a skill that heals when I have sex, and Incantation of the Flame Tower was a fire magic spell that often appeared, but magic was useless to me with my low intelligence, so pass. Machine Maintenance was just a normal trait for maintaining machines, as the name suggests. Of course, I couldn't choose the lowest-grade normal trait.</p>
-<p>Certainly, it didn't seem like any of these traits could save us from the imminent annihilation. Before using the Wish-Fulfilling Orb to reroll the traits, I thought about what danger was actually looming before us.</p>
-<p>First, the standard is that the current enemy we are fighting is Kurotsukido, so it was possible that we were annihilated by a high-ranking executive-level enemy of Kurotsukido. In my memory, there were about five Kurotsukido figures who could annihilate a group of espers like Seryu-tai.</p>
-<p>Besides the five I thought of, there were other strong individuals comparable to them, but I excluded them because they were specialized in 1-on-1 combat and couldn't annihilate Seryu-tai.</p>
-<p>Those capable of mass slaughter were the head of Kurotsukido, Black Moon, and the vice-head, Nikolai Yang, the execution squad leader, Silent Wraith, the leader of Kurotsukido's central elite unit, Moonless Squad Leader Moonless, and the Northeast Asia branch leader, Poisonous Ogre Tang Xiaohua.</p>
-<p>First, Black Moon, the head, and Nikolai Yang, the vice-head, are excluded. Those guys are heavy-assed and would never come to Japan. And the execution squad's role is to deal with traitors within Kurotsukido, so it wasn't Silent Wraith either.</p>
-<p>What remains are Moonless and Poisonous Ogre Tang Xiaohua, but I don't think it's Moonless. No one who appeared to be from the Moonless Squad was seen, and there were no reports of seeing the Moonless Squad in the combat reports so far. And it didn't make sense for Tang Xiaohua, the Northeast Asia branch leader, to come to Japan; it didn't make sense for the Moonless Squad, the elite unit guarding the center, to come all the way to Japan.</p>
-<p>Tang Xiaohua, or Tang Xiao Hua, she was a considerably difficult opponent. Even the youngest son of a megacorp could encounter her as a mid-boss if they became hostile to the Black Moon Gang. She was specialized in mass slaughter using poison, and it wasn't like she was weak in 1-on-1 combat, making her an incredibly annoying character to deal with.</p>
-<p>If your resistance stat was high, ordinary poison wasn't a problem, but the poison Tang Xiaohua used couldn't be covered by resistance stats alone, so you had to use several other methods.</p>
-<p>To face Tang Xiaohua, you had to maximize your poison resistance to make the poison useless or kill her in one shot with long-range sniping. Ah! There was also a method of hunting with summons that were immune to poison, like the Shadow Panther.</p>
-<p>Speaking of the Shadow Panther, you could also block the poison by covering your whole body with the Abyss, but the duration was currently about 1 minute, so it was still too difficult to use. Not using it in normal times was also a problem with the duration, and the drain on mental power was quite severe.</p>
-<p>It seemed like that was because Shadow Domination was a legendary skill, so proficiency didn't increase quickly. As proficiency increased, mental power consumption would decrease and duration would increase, so eventually, it would be possible to use it in actual combat without difficulty.</p>
-<p>Of course, since it wasn't a method I could use right now, I had no choice but to rely on a new trait.</p>
-<p>The [Potential Enhancement] option of the item [Wish-Fulfilling Orb] can change the traits that can be selected by leveling up into random traits of a higher grade. Would you like to change it?</p>
-<p>Please choose a trait</p>
-<p>①Master of Fist Fighting ②Willpower Shield ③Body Wrapped in the Abyss</p>
-<p>,Ah!"</p>
-<p>Why does Master of Fist Fighting have to appear at a time like this...? It's a trait I desperately need and wanted to keep appearing, but I couldn't choose it because of the situation. I have to hope it appears next time.</p>
-<p>The second, Willpower Shield, seemed similar to the mental shield ability Han Yu-gyeong had, and I didn't know what the last one, Body Wrapped in the Abyss, was. I was worried about choosing an ability to face Tang Xiaohua, and I chose one trait.</p>
+<p>"Hng...! No more...♥"</p>
+<p>Thud.</p>
+<p>Dang So-hwa couldn't take it anymore and fainted. Three times in a row would have been too much for a virgin. Still, Dang So-hwa kept telling me to just kill her at first and held out quite a bit, but in the end, she kept saying "I like it♥ I like it♥" as she was driven mad by the repeated climaxes, clinging to me.</p>
+<p>However, it was difficult to say that Dang So-hwa had been won over in just one day. She would act hostile again when she came to her senses. But I think if I repeat this a few times, she will eventually surrender.</p>
+<p>"I'll leave the birth control pills here, so let me know when your leader wakes up. Oh, and I'll leave a few breads since you've been through quite a bit."</p>
+<p>I showed Yang Seol-hui the pills and bread and put them on a corner of the mattress as I spoke. Since Dang So-hwa had fainted, I had no choice but to talk to Yang Seol-hui. Yang Seol-hui just nodded without saying anything to my words, her eyes empty like a boyfriend who was tied up and watched his girlfriend being constantly raped by a rapist.</p>
+<p>Could it be.... Is she a lesbian? Does she like Dang So-hwa? Judging from her reaction, it really seemed like it. Then the situation would flow quite interestingly...?</p>
+<p>I came out of Dang So-hwa's room, locked the iron bars, and opened the door to Yang Seol-hui's iron bars. Yang Seol-hui didn't rush at me like Dang So-hwa. In the first place, Yang Seol-hui was a sniper who was weak in close combat, so she probably thought that attacking me, whom Dang So-hwa couldn't beat, would just waste her energy.</p>
+<p>However, unlike her eyes that were empty just now, Yang Seol-hui was glaring at me as if I were her parents' enemy. I grinned and squatted down to meet Yang Seol-hui's eyes.</p>
+<p>"Are you thinking of violating me?"</p>
+<p>"I will someday, but not now. It's almost morning. I have to go back too."</p>
+<p>"Then you can get the hell out of here right now."</p>
+<p>Get the hell out, that's harsh. Still, it wasn't as bad as I expected. Still, seeing Yang Seol-hui's reaction, which was similar to what I expected, I smiled bitterly and opened my mouth.</p>
+<p>"Get the hell out? Still, there's still time to talk. How's your impression? Your esteemed leader was so happy, wasn't she?"</p>
+<p>"Th, that's not happiness! The leader's reaction is just a physical reaction, you raped a defenseless woman!"</p>
+<p>"Then.... If you help, you can reduce the amount of time the leader is being raped?"</p>
+<p>I was demanding that Yang Seol-hui voluntarily allow me her body. It was an absurd logic, but of course, if Yang Seol-hui and I did it, Dang So-hwa could rest during that time, so Yang Seol-hui would have no choice but to worry.</p>
+<p>"Okay. I'd rather take all your filth, so don't touch the leader-nim."</p>
+<p>"That depends on how long you can last. Come here."</p>
+<p>I said come here, but I approached and sat behind Yang Seol-hui, wrapping my body around her as if giving her a back hug. Yang Seol-hui didn't even want me to touch her, and she screamed, startled when I hugged her from behind.</p>
+<p>"Wh, what are you doing?!"</p>
+<p>"Aren't you a virgin? If you're a virgin, it'll hurt, so I'm teaching you how to prepare."</p>
+<p>From behind Yang Seol-hui, I grabbed Yang Seol-hui's chest with one hand and put the other hand on top of her panties. And I slowly started to caress her.</p>
+<p>"Heung, keueut! Wh, hng!"</p>
+<p>Yang Seol-hui had a more sensitive body than Dang So-hwa. It was quite fun because the reaction came immediately with just a little touching. Her pussy juice was coming out through her panties, my hand was already wet, and the inside of her thighs were trembling.</p>
+<p>"Ahng...! Aaaah...!"</p>
+<p>"Feels good, doesn't it?"</p>
+<p>"Heuaang, I don't know...!"</p>
+<p>If she doesn't know, I have to let her know. I pinched her nipples, which were erect as if they would pierce through her clothes, and rubbed her pussy, and she soon reached climax, gushing out pussy juice. Because I was hugging her from behind, I could feel Yang Seol-hui's warm body temperature and trembling.</p>
+<p>"This is climax."</p>
+<p>"Ah.... Ah...."</p>
+<p>It doesn't seem like she's in a situation to answer. I got up from my seat and washed my hands in the sink. And like Dang So-hwa, I put a few bags of bread on one side of the bed.</p>
+<p>"I'll come again tonight, so prepare in advance as I told you."</p>
+<p>"Heue.... Heueung...."</p>
+<p>I chuckled at Yang Seol-hui, who was only breathing heavily without answering, and came out of the iron bars, locked the door, and came out of the building where I had imprisoned them. I checked the time and it was five o'clock. I can sleep for about three hours.</p>
+<p>I returned to the villa, washed my body, and lay down next to Yukiko. And I fell asleep right away.</p>
 <p>###</p>
-<p>After choosing a trait, Sawayanagi Tobe and I went around defeating the Kurotsukido group, and East Weapon and Taira Foods' main force, Daisen-Taira Military Service (DTMS), which came in as reinforcements, dealt with the remaining remnants of Kurotsukido. Taira Foods' security team, a second-tier PMC, was said to be protecting Nagumo Sian at the base instead of DTMS.</p>
-<p>After the battle was completely over, we defeated almost a thousand Kurotsukido soldiers in Kakunodate, but our side's casualties were less than a hundred.</p>
-<p>,According to the report, I thought they would concentrate almost all their forces on the Kakunodate side, but that's not the case."</p>
-<p>Mimata Chieri said at the combat meeting of East Weapon and DTMS, which joined in Kakunodate. Since Daisen City was much closer to Kakunodate than Akita City, it was a subtle jab at DTMS, which had been scouting all along.</p>
-<p>,It seems they retreated into Senboku City because East Weapon charged in so noisily."</p>
-<p>DTMS's leader, Iwatate Motohito, rather turned the blame for their failed scouting onto East Weapon with a nonchalant attitude.</p>
-<p>DTMS was originally in charge of Senboku, but despite losing Senboku, they were said to be strutting around blaming East Weapon and Taira Foods' security team, who had nothing to do with it. It seemed DTMS had considerable backing because they were a PMC sent from the center of the Taira Group.</p>
-<p>,Since we specialize in annihilation battles, we will take the lead this time."</p>
-<p>Perhaps because the number of Kurotsukido soldiers had decreased considerably by a thousand, he volunteered to take the lead, wanting to determine the victory of the anti-Kurotsukido war himself. Mimata Chieri glared in disbelief and opened her mouth to say something, but then I whispered in Mimata Chieri's ear to let him do it, so she closed her mouth.</p>
-<p>It's a bit cold-blooded, but I was planning to annihilate most of DTMS. Nagumo Sian, whose power would be weakened by the annihilation of DTMS after the war, would outsource the task of protecting Taira Foods to East Weapon for a while. That's why I told DTMS to yield the vanguard, because I calculated that I could develop the mithril mine with Nagumo Sian without DTMS, who could be the eyes of the Taira Group's center.</p>
-<p>Rather, we were going to yield the vanguard, but I was so grateful that they volunteered to take the lead to gain the credit for ending the war.</p>
-<p>,Hoo.... I understand. I'll watch how well DTMS does."</p>
-<p>,Hehehe, I'll show you an advance that's on a different level from East Weapon! We'll leave right away, so East Weapon can either sleep or follow as you please."</p>
-<p>It was around 2:30 AM when Kakunodate was completely suppressed, and since it's 2:50 now, it seemed like they were calculating that if they left right away and attacked Senboku City, which is 20 minutes away, around 3:10, the enemies wouldn't be able to prepare in time.</p>
-<p>They had been fighting Kurotsukido until now, and despite losing Senboku City, they seemed to be thinking too simply and naively. I don't know about ordinary ragtag Kurotsukido, but the opponent was the Northeast Asia branch leader of Kurotsukido. He was a person who had risen from a low-ranking soldier to the position of branch leader by crossing countless battle lines, but Iwatate Motohito alone couldn't handle him.</p>
-<p>Of course, Iwatate Motohito didn't know that the opponent waiting for him was Poisonous Ogre Tang Xiaohua.</p>
-<p>,Ugh...! I hate that kind of style so much."</p>
-<p>,Me too. He hit on our Seryu-tai female members so much!?"</p>
-<p>Mimata Chieri shuddered as she glared at Iwatate Motohito's back, and Sawayanagi Azuma chimed in next to her. How dare he flirt with the Seryu-tai women...! Once again, I thought it was a good thing I chose the strategy of killing with a borrowed knife by sending him to Tang Xiaohua to be eliminated.</p>
-<p>,Let's follow slowly."</p>
-<p>,Investor-nim, you want that DTMS leader to die?"</p>
-<p>Sawayanagi Azuma, who had already foreseen the future, asked me.</p>
-<p>,I want not only that leader but most of DTMS to be sacrificed."</p>
-<p>,What are you talking about, junior?"</p>
-<p>Mimata Chieri, who didn't know the whole story yet, asked. I explained to Sawayanagi Azuma and Mimata Chieri the situation I wanted.</p>
-<p>I told them that the enemy waiting in Senboku that I was expecting was Tang Xiaohua and that DTMS was an obstacle to the situation I wanted to unfold in the future, so I yielded the vanguard.</p>
-<p>,As expected, junior-nim is also thinking about future requests for East Weapon."</p>
-<p>,Investor-nim! Is there nothing for us to do?"</p>
-<p>Mimata Chieri seemed touched that I was even thinking about East Weapon's requests, and Sawayanagi Azuma looked at me with a 'Why not me?' expression.</p>
-<p>,East Weapon has a lot of people, so they have leeway, and Seryu-tai has been quite tired during this, so you should rest for a while."</p>
-<p>,Well.... Everyone is asking for a vacation. I'll adjust to Investor-nim's schedule, so how about we go on a trip together?"</p>
-<p>My schedule is already packed.... I'm going on a trip with Yukiko in 3 days, and then I'm going to America with Arisu the following week and returning from vacation.... But wouldn't it be okay to hang out around the weekend?</p>
-<p>,How about the weekend in 3 weeks? We'll go on a trip from Friday to Sunday."</p>
-<p>,I want to go too!"</p>
-<p>That's how a new schedule was added to my already packed schedule. It was a 2-night, 3-day trip with the people of Seryu-tai and Mimata Chieri. Ah, it would be good to bring the rescued boys and girls along so they can get to know each other.</p>
+<p>"Ryuta! Wake up, it's morning!"</p>
+<p>I opened my eyes to Yukiko's voice. Yukiko opened the window with a view of the sea where the sun was rising and was looking at me in a swimsuit. It was a gold and black bikini that matched Yukiko's explosive figure.</p>
+<p>Oh, what a reward from the morning? My Johnson, which was naturally stiff with morning wood, became even stiffer after seeing Yukiko in her swimsuit. I opened my eyes and slightly lifted my waist, showing my erect dick, and opened my mouth.</p>
+<p>"Mother, take responsibility. It's all because of you."</p>
+<p>"Oh, you!"</p>
+<p>"How can you show me something so sexy from the morning?"</p>
+<p>Yukiko chuckled at my compliment and took off my pants, grabbed my erect dick, and put it in her mouth. A super beauty giving me fellatio in a swimsuit from the morning. There was no greater luxury than this. I closed my eyes and enjoyed Yukiko's oral sex.</p>
+<p>Yukiko's morning fellatio felt so good that the feeling of ejaculation came quickly. As I shot into her mouth with a "bueok bueok" sound, Yukiko, who swallowed the fresh semen produced in the morning, smiled and opened her mouth to show that she had swallowed it all, grabbed both of my hands, and stood me up.</p>
+<p>"Can you get up now?"</p>
+<p>"Yes."</p>
+<p>I got out of bed and put on the swimsuit I had prepared. The swimsuit I brought was a trunk-type swimsuit. Men's triangle swimsuits or tight swimsuits were uncomfortable around the crotch, so I prepared a trunk-type swimsuit.</p>
+<p>"Are we going to the swimming pool or the sea?"</p>
+<p>"We can go to the swimming pool anytime, so let's go to the sea!"</p>
+<p>"Okay."</p>
+<p>I linked arms with Yukiko and left the villa towards the beach. It was morning, but the summer sun was showing its power, so the day was hot. We put up a parasol and a mat, applied sunblock all over Yukiko's body, and Yukiko also applied it to my body.</p>
+<p>And we went into the water right away and played in the water. Yukiko was quite good at swimming, and I could swim to some extent, so we splashed each other and had a good time.</p>
+<p>I didn't eat breakfast and swam, so I got hungry, so Yukiko and I came out of the sea and went up to the beach, enjoyed a walk on the beach for a while, and returned to the villa.</p>
+<p>The villa managers were making lunch, so there was a delicious smell. A male worker among the villa managers was fixing something like a hinge at the entrance of the villa, and when we came in, he stared intently at Yukiko's swimsuit.</p>
+<p>As a man, I understand that it's impossible to take my eyes off Yukiko's body, but I was uncomfortable with him staring like this, so I glared at the man with murderous intent. The man was startled by my gaze, lowered his head, and focused on his work again.</p>
+<p>"I'll go put on a jacket."</p>
+<p>Yukiko also noticed the male worker's gaze and went up to the second floor. I was hungry, so I followed the smell to the dining room.</p>
+<p>In the dining room, old man Fukami and an ajumma called Hashima-ssi were setting the table. Looking at the menu, today's lunch was a neat Japanese meal.</p>
+<p>Soon after, Yukiko came down wearing a thin summer windbreaker and had lunch together. Whether it was because I was hungry or because the villa keepers' cooking skills were excellent, I ate four bowls of rice.</p>
+<p>"You don't have to prepare dinner today either. We're going out for dinner. We'll eat cereal or bread for breakfast like today, so please prepare lunch from tomorrow like today."</p>
+<p>"I understand."</p>
+<p>It would be very convenient for the villa keepers. They only have to prepare one meal a day, and they don't do things like ordering errands, so to speak.</p>
+<p>We finished our meal, changed our clothes, got into my car, and came outside. There was a shooting range built in Katsuurashi, which has a small population, to attract tourists in any way possible, and that's where we were going.</p>
+<p>As the succession war of the Taira Group intensifies in the future, Yukiko also needed to have military power, so I was trying to have Yukiko, who has many shooting characteristics, do live shooting once.</p>
+<p>I had already made a reservation a few days before the trip, so we entered the shooting range smoothly. It was a weekday afternoon, so we were the only ones using it.</p>
+<p>"Are both of you using it?"</p>
+<p>"Yes. I'll just do a little, and this woman will try shooting various types of firearms."</p>
+<p>The clerk came up and asked, so I answered. Yukiko has characteristics that are good for shooting, such as a master of shooting, eagle eyes, sensitive senses, and dark vision, but there will be some guns that she is good at and some that she is not, so I am having her try out various guns.</p>
+<p>"I've only done clay shooting, so will I be able to do well?"</p>
+<p>The gun that Yukiko mainly used for clay shooting was a shotgun, so she seemed to have some unknown fear of using pistols or rifles. But as she has the characteristic of being a master of shooting, Yukiko will be able to do well.</p>
+<p>"Yukiko-ssi will be able to do well."</p>
+<p>"Okay, I'll give it a try!"</p>
+<p>Yukiko lightly accepted the gun that the clerk handed her, as if she had shaken off her fear with my encouragement. It was quite cool to see her eyes change sharply as soon as she received the gun.</p>
+<p>The first gun the clerk handed to Yukiko was the Japanese standard rifle, Type 40 rifle. Yukiko shouldered the gun as if she had shot it before and showed a flawless posture. Her skillful posture seemed to be due to her characteristic of being a master of shooting.</p>
+<p>Yukiko took a breath for a moment and then aimed at the target with sharp eyes and started shooting.</p>
+<p>-------A time to swim with Yukiko</p>

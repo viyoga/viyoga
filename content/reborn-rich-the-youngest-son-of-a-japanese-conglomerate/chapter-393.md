@@ -5,63 +5,73 @@ weight = 393
 chapter = 393
 +++
 
-<p>Kujo Kina. She was the third daughter of the Kujo family, who were vying for third and fourth place after the Taira and Minamoto, the two leading business conglomerates in Japan. The Kujo family, with their strengths in biotechnology, pharmaceuticals, and medicine, had a cold and intellectual aura, but Kujo Kina was, on the contrary, an active and passionate person. Moreover, unlike the eldest son who would inherit the family and the second son who would assist with the work, she was free from obligations as the youngest third daughter, so she grew up doing whatever she wanted.</p>
-<p>Perhaps because of her activeness and freedom to do what she wanted, Kujo Kina learned various martial arts from a young age and became engrossed in mixed martial arts. When she entered St. Francisco Girls' Academy, she joined the mixed martial arts club called The Fist.</p>
-<p>However, The Fist's club activities did not satisfy Kujo Kina. Except for the faculty advisor whose strength was impossible to gauge, there was no one in the club who could fight Kujo Kina for more than one round. Then one day, Kujo Kina's reason snapped while sparring with several people at once.</p>
-<p>When she came to her senses, about thirty club members were injured and lying on the ground. She received a suspension for that incident and was transferred to a special class, where she saw Yamashiro Ryuta.</p>
-<p>As soon as she saw him, Kujo Kina knew, 'This is the man!' It wasn't the romantic feeling that others talked about. Kujo Kina's sharp senses were telling her that she could go all out with this man.</p>
-<p>So, she forced a sparring appointment with Yamashiro Ryuta. It was to clash with him at full power and to find out why she had lost her reason during the suspension incident.</p>
-<p>###</p>
-<p>After stretching, Kujo Kina and I went up to the sand ring that the Minamoto employees had created, which felt like a sumo wrestling ring. Then, the employees put finger gloves on me and a mouthpiece in my mouth. They're doing this quite seriously. It seemed like they had hired employees with some experience.</p>
-<p>Kujo Kina also received the same preparations, and we looked at each other. The school nurse, Kijimoto Jurie, was sitting on a chair next to the arena, preparing for any dangerous situations.</p>
-<p>"Thank you for indulging my stubbornness, sensei."</p>
-<p>"I've also learned some martial arts, so sparring is fine."</p>
-<p>Kujo Kina must know that her request was a bit of a stretch. One might have thought that she requested sparring because she wanted to legally beat up the teacher, but it seemed like she had other intentions. Looking at Kujo Kina's excited expression, it seemed that she had requested a match with me simply because of the unique ambition of a martial artist.</p>
-<p>So, since we were going to spar anyway, I didn't say anything and gave Kujo Kina an answer that would put her at ease.</p>
-<p>We lightly bumped fists and started sparring.</p>
-<p>First, to find out what level Kujo Kina was at, I didn't attack and took a stance, then slowly circled around Kujo Kina. Even if Kujo Kina was much stronger than I thought, I could endure it because I had regeneration, and I needed to know her level so I could adjust accordingly.</p>
-<p>Kujo Kina looked at me in a kickboxing stance and instantly aimed for my head with a high kick. It was quite a fierce attack, and Kujo Kina's foot came at me in an instant with a whoosh! sound.</p>
-<p>I dodged the high kick by slightly bending my body, but Kujo Kina fluidly changed from a high kick to a heel drop, attacking me as if chopping with an axe. She's pretty good? It seemed like the story that she beat up thirty members of the martial arts club and got suspended wasn't a lie.</p>
-<p>I blocked Kujo Kina's heel drop with my forearm. My forearm felt a little numb, so it was quite strong. But to my eyes, which had the Saint of Fist skill, it was a clearly visible technique, so I was able to prepare for the impact.</p>
-<p>Since one of Kujo Kina's legs was on my arm, I threw a low kick at her remaining supporting leg.</p>
-<p>Kujo Kina, rather, used my arm as a stepping stone and avoided the low kick by doing a backflip. She really had the quick movements that suited her leopard bikini. It was an incredibly animalistic movement.</p>
-<p>"Wow~! Amazing."</p>
-<p>"Ryuta-cchi, don't lose~!!"</p>
-<p>Cheers erupted when Kujo Kina did a backflip. Certainly, to the female students, Kujo Kina's movements seemed light, and they seemed to think I was at a disadvantage. Some who knew my skills well didn't think that at all, but since all I had shown was blocking and a low kick, it was natural for them to think that way.</p>
-<p>"Hap!"</p>
-<p>Kujo Kina shouted and kicked again. Since there was a difference in physique between us, Kujo Kina seemed to be using kicks more than punches. It seemed like she was planning to play the match focusing on kicking techniques because the reach difference was too great to fight with punching techniques.</p>
-<p>This time it was a middle kick. Again, a heavy and fast kick. I raised my knee to block the middle kick with my thigh and rushed at Kujo Kina. As I got close, several punches instantly cut through the air.</p>
-<p>After exchanging kicks and punches a few times like this, I roughly understood Kujo Kina's skills. Surprisingly, this girl was at a level comparable to my friend, Genba Kiyohira, who is a UMC welterweight ranker. Certainly, with this level of skill as a woman, she could beat not just thirty, but even a hundred girls her age, no matter how much they trained in martial arts.</p>
-<p>Now that I roughly knew her skills, I should deal with her appropriately and give her some guidance. Kujo Kina was too aggressive, as if she hadn't met any significant opponents until now. Should I say she lacked a defensive mindset? If she didn't have regeneration or other defensive traits like me, she would inevitably suffer a major injury someday.</p>
-<p>As I started attacking, Kujo Kina's hands became increasingly frantic. She clearly didn't have much experience being on the defensive, so her movements weren't as smooth as when she was attacking. Moreover, Kujo Kina, who had been trying to compete with kicks, seemed even more flustered when I didn't play the reach game and stuck close, fighting with punches in close combat.</p>
-<p>In addition to being flustered, I strangely saw the whites of Kujo Kina's eyes gradually turning red. Surely she wasn't about to burst into tears because the situation wasn't going her way, was she getting angry?</p>
-<p>"Keeeueueue!"</p>
-<p>It didn't seem like she was getting angry, but by the way, the whites of her eyes had exceeded the limit of how red they could naturally become... It was just like a status ailment in a game.</p>
-<p>Whooong!</p>
-<p>As her eyes turned red, she showed a speed and power that was on a different level than before. Her techniques, on the other hand, decreased compared to before, and her movements became simpler. This was exactly like going berserk....</p>
-<p>Why on earth did she go berserk? Berserk was a status ailment. Except for the rare Berserker-type traits or items, it was a debuff that was inflicted on others. It greatly increased strength and speed, but it was difficult to control and greatly reduced skill proficiency.</p>
-<p>Some people might say, "Isn't it good if strength and speed increase significantly?" But if you have to reload because you killed a precious companion or heroine with your own hands because you were affected by berserk, you'll take those words right back.</p>
-<p>She probably doesn't have a Berserker trait, so she must have been targeted by someone who had a grudge against the Kujo family or someone who had a personal grudge against Kujo Kina.</p>
-<p>Thwack!</p>
-<p>I blocked the kick with my arm like before, but unlike before, I felt a tingling pain. If I felt a considerable amount of pain, it was a very dangerous attack for an ordinary female student to take. I had to knock Kujo Kina out before she completely lost her mind due to berserk. She might go crazy while fighting me and attack Kijimoto Jurie next to her, or she might rush into the middle of the female students who are cheering and cause a commotion, which would be a disaster.</p>
-<p>Kujo Kina also sensed that my momentum had changed even in the midst of her berserk state, and she began to struggle. She instantly unleashed various martial arts techniques that she had learned on me. She was using this level of technique even in a berserk state, which meant she had trained quite a bit.</p>
-<p>But she couldn't beat me, who had gone through all sorts of hell. I dodged or blocked all of Kujo Kina's attacks to neutralize them. And while dodging Kujo Kina's punch, I grazed Kujo Kina's chin with a counter punch.</p>
-<p>It wasn't a very powerful blow, but Kujo Kina staggered and fell straight down. Her brain was momentarily shaken by the hit to her chin, causing her to faint.</p>
-<p>"Waa!"</p>
-<p>"Ryuta-cchi~! Amazing!"</p>
-<p>"Is Kina okay?"</p>
-<p>To the female students, Kujo Kina, who had been constantly attacking, fell with just one of my counters, so it must have been a very exciting match to watch.</p>
-<p>Kijimoto Jurie, who had been sitting next to the ring, rushed over to check on the fallen Kujo Kina. She wasn't knocked out from being hit by me a lot, but rather fainted because her brain was shaken, so she probably didn't suffer any major injuries.</p>
-<p>Kijimoto Jurie looked at me and nodded. That probably meant that Kujo Kina wasn't seriously injured.</p>
-<p>"Kina just fainted for a moment, so don't worry."</p>
-<p>Kijimoto Jurie reassured the female students, who were cheering for my victory but also worried that something might have happened to Kujo Kina. Kujo Kina had the image of a tyrant who had beaten up thirty people alone and gotten suspended, so it was surprising that she fainted.</p>
-<p>At the news that Kujo Kina was okay, all the female students flocked to me. Some of the bolder ones, like Saionji Diana, who was wearing a daring bikini made of netting, gave me a towel, and Alik stuck next to me, praising me, saying, "Ryuta, strong." The other students were also excited, having been impressed by the match with Kujo Kina. Except for just one person.</p>
-<p>"Um, sensei...."</p>
-<p>Urabe Konoka, dressed in a white and red bikini reminiscent of a shrine maiden, as befitting the adopted daughter of a shrine, called out to me with a slightly serious expression.</p>
-<p>Could it be...? Urabe Konoka is a priestess of Simyeonui ttal, so she must have noticed Kujo Kina's abnormality, as befitting a priestess.</p>
-<p>-----</p>
-<p>Saionji Diana</p>
-<p>The daring bikini made of netting that appeared in the novel.</p>
-<p>Diana's sub swimsuit.</p>
-<p>Urabe Konoka's red/white bikini</p>
-<p>Lastly, the sub swimsuit as expected hehe</p>
+<p>Han Yu-gyeong LV11</p>
+<p>Strength: 5, Agility: 5, Stamina: 9, Resistance: 5, Recovery: 2, Nerves: 6, Appearance: 18 (+1)</p>
+<p>Mental</p>
+<p>Intelligence: 17 (+1), Knowledge: 11 (+1), Concentration: 13 (+1), Willpower: 14 (+1), Creativity: 12 (+1), Charm: 17 (+2), Judgment: 14 (+1), Charisma: 17 (+2)</p>
+<p>Other</p>
+<p>Luck: 18</p>
+<p>◆Learning Lv15 [General Skill]: Increases the frequency of knowledge gain when learning. Positively affects the skill proficiency increase of other skills.</p>
+<p>◆Management Lv11 [Special Skill]: Has a positive effect when leading a group of a certain size or more.</p>
+<p>◆Throwing Lv12 [General Skill]: The skill of throwing something, affected by Agility, Nerves, and Concentration stats. Increases projectile damage.</p>
+<p>◆Linguistics - English Lv14 [General Skill]: Converses in English.</p>
+<p>◆Linguistics - Japanese Lv8 [General Skill]: Converses in Japanese.</p>
+<p>◆Star Magic Lv9 [Unique Legacy + Skill]: A vision magic from a distant star that twists the laws to create phenomena.</p>
+<p>◆Command Lv3 [Rare Skill]: Can command in battle. Speeds up the movements of subordinates.</p>
+<p>◆Star Intellect [Unique Legacy Trait]: Increases initial Intelligence by 6 and the effect of Intelligence is increased. The Intelligence limit increases by 2. If the trait  is present, the Intelligence limit additionally increases by 2 and the efficiency of Intelligence is also further increased.</p>
+<p>◆Mental Shield [Epic Trait]: When concentrating, creates a shield with a defense power of 120 percent of the average of mental stats (18.75). The duration is the average of mental stats in minutes (15.625 minutes).</p>
+<p>◆Summoning Contract [Coordinates: 335%7#**56]: Coordinates to contract with a Shadow Panther.</p>
+<p>◆Master of Throwing [Epic Trait]: Becomes a master at throwing things.</p>
+<p>◆Majesty of the Monarch [Unique Trait]: A Charisma stat proportional to Charm is generated. Reduces the betrayal of subordinates and increases loyalty in proportion to the stat. Subordinates follow instructions better.</p>
+<p>◆Cold Reason [Rare Trait]: Can always maintain reason. Has strong resistance to mental attacks.</p>
+<p>◆Star Knowledge [Unique Legacy Trait]: Can twist the laws with knowledge from a distant star.  is registered as a skill. If the trait  is present, the power of Star Magic increases and the consumption of mental power decreases.</p>
+<p>◆Healthy Body [Rare Trait]: Becomes resistant to diseases, and Stamina and Resistance stats each increase by 2 and efficiency increases.</p>
+<p>◆Star Energy Storage [Legacy Trait]: A trait manifested when the skill Star Magic reaches the basic level. Stores star energy in the body. In women, it is stored in the breasts, and in men, it is stored in the muscles of the whole body. When star energy is stored, the power of magic is increased by 30 percent and the consumption of mental power is reduced by 40 percent when casting magic. Different abilities are additionally increased for each part where star energy is stored.</p>
+<p>◆Star Coordinates [ᚱᚣ-ᛢᚾᛊᚳᚳᚣ ##1124ᛢᛊᛉᛩ-8789 ᚺᚣᚳᛜ7] Summon: Summons Seong Baek-gyeon (Star White Dog).</p>
+<p>Oh! As I expected, Han Yu-gyeong's level went up by 2, not 1. Looking at the stats, Strength went up by one on the physical side, and Intelligence, Knowledge, Concentration, and Creativity went up on the mental side, excluding the parentheses. Considering the stats, it's more than just leveling up, but I guess the Knowledge increase isn't from leveling up but from studying hard while I was away. Knowledge can usually only be increased through learning.</p>
+<p>The plus part in the parentheses was that all mental stats increased by 1 due to the Star Cluster Necklace, and Appearance, Charm, and Charisma each increased by one because Han Yu-gyeong's chest got bigger due to Star Energy Storage.</p>
+<p>In the skill section, the levels went up evenly, and a skill called Command was newly created. I guess because my Intelligence stat is high, skill acquisition and leveling up are quite fast.</p>
+<p>"Congratulations! You leveled up twice."</p>
+<p>"Really? Then can I get two abilities?"</p>
+<p>Han Yu-gyeong is super happy when I tell her she leveled up twice. She expected to level up once with this event, but she didn't seem to expect to level up twice.</p>
+<p>"Yeah. You caught so many Mutant Wild Dogs this time, so you leveled up a lot. Should we roll for a trait now?"</p>
+<p>"Yeah, I'm nervous... I hope I don't get something bad."</p>
+<p>In Han Yu-gyeong's case, she didn't have a Yeouiju like me that allowed her to choose twice, so there was a chance of failing in trait selection. However, her Luck stat was a whopping 18, so she got a lot of good traits during trait selection and hasn't failed yet, but she might fail this time. Of course, Luck could work its magic again this time and give her a good trait. Actually, until I possessed her, her Luck stat wasn't very high, so I didn't really know how powerful Luck 18 was.</p>
+<p>Please select a trait.</p>
+<p>①Vampiric Factor ②Summoning - Master of Taming ③Trait Selection X Acquire Random Item</p>
+<p>The first Vampiric Factor was a trait that changed the race like the [XX's Flesh Trait] traits. It's a trait that turns you into a vampire like Otagi Yuka. Except for being weakened under the sun and having to periodically suck blood, all stats are greatly increased and race skills are added, so it's a pretty good trait, but it didn't suit Han Yu-gyeong. The vampire side has magical restrictions, so you can't get anything other than blood magic, and if you become a vampire, you probably won't be able to use Star Magic, which is the foundation of Han Yu-gyeong's abilities. There were far more abilities to give up to get one race ability, so it was better not to choose it.</p>
+<p>The second was Summoning - Master of Taming. Compared to the first trait, it was a trait that suited her current abilities much better. Han Yu-gyeong already had two summons, so this one trait would greatly strengthen her combat power.</p>
+<p>The third was Acquire Random Item without trait selection, which wasn't great when it appeared for me, but it was a decent trait if a character with a high Luck stat like Han Yu-gyeong chose it.</p>
+<p>There were players who covered themselves in all sorts of luck items and kept getting this trait to create an item gacha character. I remember them going around destroying everything while decked out in legendary or mythical items in every slot using save-load skills. I've never done it because I don't like styles where abilities are only strengthened with items.</p>
+<p>Of course, now it's reality, so save-load skills don't exist, so it was a trait I didn't recommend. If you threw away the opportunity to gain the tremendous power of a trait and got a low-level item, there would be no greater loss. Of course, you might get lucky and get a mythical item, but that's like winning the lottery.</p>
+<p>In the end, the only one worth choosing this time was the second, but since Han Yu-gyeong was the one choosing, I explained each one to her one by one.</p>
+<p>"It's kind of interesting to get an item without choosing a trait? Does an item fall from the sky? Hmm... I guess the only one worth choosing is the second one?"</p>
+<p>"Right? Becoming a vampire is a bit much, and in the case of items, we can get them separately."</p>
+<p>Han Yu-gyeong had the same thought as me this time. For reference, if you choose a random item, a cube made of light appears in front of you, and it shines according to the item's grade, and when the light disappears, the item appears as if it had been there from the beginning. Han Yu-gyeong's choice was Summoning - Master of Taming. When I chose the second one, Summoning - Master of Taming was added to Han Yu-gyeong's status window.</p>
+<p>◆Summoning - Master of Taming [Epic Trait]: Increases the probability of taming summoned summons. The tamed summons follow the owner better, all stats of the summons increase by 2, and the efficiency of all stats increases.</p>
+<p>It was a fraudulent trait that increased the probability of taming summoned summons and even increased all stats of the summons by 2, but it was an underrated trait among players because it didn't strengthen the user.</p>
+<p>"Nero, White Bear! Move quickly~!"</p>
+<p>Han Yu-gyeong summoned Nero and White Bear and made them move. It seemed like both summons were flustered because all their stats suddenly increased by 2. They seemed to be light on their feet but couldn't handle their strengthened abilities.</p>
+<p>"It looks like they haven't adapted to their strengthened abilities yet."</p>
+<p>"Then let's let them adapt and choose the next trait."</p>
+<p>"Should we?"</p>
+<p>At my words, Han Yu-gyeong's eyes sparkled as if she was curious about the next trait. I let Nero and White Bear play on their own and opened the next trait selection window.</p>
+<p>Please select a trait.</p>
+<p>①Golden Idol ②Super Strength ③Star's Blessing</p>
+<p>The first Golden Idol was a trait that allowed you to choose a random item gacha in the leveling up trait I just mentioned. In addition, another ability was the ability to enjoy the abilities of equipped items at 150 percent, which was a great ability. It's a fraudulent ability because all equipped items are multiplied by 1.5.</p>
+<p>However, it was a useless ability without items, and there was a big disadvantage that one slot out of the three trait selections would be forced to acquire a random item without trait selection every time you leveled up in the future. It was a very good trait to get at the last level 20. By that time, you would have collected most of the items, so it would be perfect to just take the ability to multiply item abilities by 1.5 at the end.</p>
+<p>The second was Super Strength, which was a trait that simply increased Strength stat, efficiency, and Strength limit, and was only related to Strength. It would be a pretty useful trait for me, who is focused on physical abilities, but it was not very useful for Han Yu-gyeong, who doesn't have to use Strength directly.</p>
+<p>The third was Star's Blessing, which increased the power of all Star Magic and some stats on nights when stars appeared. There was a restriction of night, but the increase was significant, so it was a perfect trait for Han Yu-gyeong, a Star Magician, to choose.</p>
+<p>I feel it again, but the power of Luck was amazing. Both trait selections came out quite well. My Luck stat was only 5, so I was envious of her stat.</p>
+<p>"I guess there's only Star's Blessing, right?"</p>
+<p>"Then I'll choose Star's Blessing."</p>
+<p>After listening to my explanation, Han Yu-gyeong chose Star's Blessing as expected. When she chose Star's Blessing, a mysterious light briefly sparkled around Han Yu-gyeong and seemed to be absorbed.</p>
+<p>◆Star's Blessing [Unique Trait]: A trait that only Star Magic users can obtain. The power of Star Magic is increased by 50 percent and mental power consumption is reduced by 30 percent on nights when stars appear. Concentration, Willpower, Judgment, and Luck stats are increased by 2.</p>
+<p>As expected, it was very good as it was a unique grade, had a restriction as a Star Magic user, and had a time limit. The 50 percent increase in Star Magic power was obviously great, so I'll skip it, and if the mental power consumption reduction was applied together with the 40 percent consumption reduction of the Star Energy Storage trait I originally had, the mental power consumption of Star Magic would be reduced by a whopping 70 percent, greatly increasing combat sustainability.</p>
+<p>The stat increase was that Concentration, Willpower, and Judgment, which are mainly used in combat on the mental side, increased by 2, and Luck, which does not usually increase, also increased by 2. Then I'll have to take traits at night from now on. If Luck goes up by 2, it will be 20, so if I'm lucky, a legendary trait might come out. It might even be possible to get a mythical grade, which doesn't usually come out.</p>
+<p>"Then...!"</p>
+<p>Han Yu-gyeong reached out to me and cast the buff skill, Starlight Tempering. When she reached out, I thought she was going to attack me, but it wasn't, she was giving me a buff. Star's Blessing was a trait that increased the power of Star Magic, not the damage of Star Magic, so the ability of the buff skill, Starlight Tempering, also increased.</p>
+<p>As a result of several movements, the buff ability of Starlight Tempering increased, and even the duration of the buff increased. The duration even increased, so it seemed like Starlight Tempering, the lowest level magic of Star Magic, was the magic that benefited the most.</p>
+<p>----</p>
+<p>I didn't make an illustration today, so I'll just upload one Minamoto Risa SD illustration that I made before, hehe.</p>
+<p>Kawaiineyo hehe</p>

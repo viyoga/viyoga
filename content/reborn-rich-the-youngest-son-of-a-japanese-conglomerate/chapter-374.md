@@ -5,86 +5,63 @@ weight = 374
 chapter = 374
 +++
 
-<p>"Heeuung♥ Hheut! Ryuta's cock...! Feels so gooood♥"</p>
-<p>"Yukiko's pussy also feels amazing...!"</p>
-<p>Yukiko wasn't just passively receiving my piston action. She sucked on my neck and nipples, whispering lewd words in my ear, doing everything she could to suck my semen into her womb as quickly as possible.</p>
-<p>The succubus's instincts and the crimson pillars of murderous intent swimming in my Black Maitreya semen and vaginal fluids were attacking each other to reach their peak first. As a result, their pleasure was soaring higher and higher.</p>
-<p>"Heok, heok...! Heok...! Yukiko...!"</p>
-<p>"Haeuuheut, heeung! Ryutaaaa♥ I love you, hheut! Feels so gooood! Heuaaaaaaang~!!"</p>
-<p>Like a train rushing towards its final destination, we shook our waists relentlessly, kissed, and whispered dirty talk, finally reaching our climax together.</p>
-<p>Chwaaaak! Chwak! Chwaaaak!</p>
-<p>Byuuuut! Byeut! Byuuuut!</p>
-<p>Along with Yukiko's grand squirt, a tremendous amount of semen was spewed from my cock, filling her womb to the brim. Yukiko's womb seemed to suck the semen in, kissing my glans and sucking up even the semen remaining in my urethra with a vacuum-like fellatio.</p>
-<p>Perhaps because she had ejaculated semen, a shining vulva appeared on the skin of Yukiko's lower abdomen where her womb was located. Yukiko's eyes shone pink, and her brown hair was gradually turning pink. Is she succubus-ifying because she accepted the semen?</p>
-<p>I pulled out my cock and watched Yukiko transform. Even though I had shot a ton of semen inside her pussy, no semen flowed out. It seemed that all the semen was contained in her womb and not coming out.</p>
-<p>Not only her hair color, but also horns and wings had appeared, transforming her into the succubus that most people imagine.</p>
-<p>"Ryuta...♥ Do I look pretty in this form too?"</p>
-<p>Yukiko, lying on the bed with a sensual expression and asking me that, was of course pretty. Her appearance stats were stats, and her charm stats were incredibly high, so it was natural that she was pretty. Becoming a succubus seemed to make her personality a little more cheerful, which was also kind of nice.</p>
-<p>"Yeah, you're pretty. That's why it's like this again."</p>
-<p>I grabbed my re-erected cock and showed it to Yukiko, saying that. Yukiko's eyes gleamed seductively when she saw my hard cock.</p>
-<p>"Then you can hug me again? Ryuta, put it in right away~☆"</p>
-<p>Seeing the clear, lewd vaginal fluids already flowing in streams, it was clear that the succubus's pussy was fully prepared to accept my cock again.</p>
-<p>"Okay. How about Yukiko does it on top this time?"</p>
-<p>"Ah, I like that! I'll do it on top♥"</p>
-<p>Yukiko excitedly accepted my suggestion, so I immediately lay down on the bed. Yukiko's succubus pussy slowly descended onto my stiff cock pointing towards the sky.</p>
-<p>Jjeugeok...!</p>
-<p>With the sound of my cock splitting through her moist pussy, it entered inside in an instant. It was definitely the same pussy as before, but the inside had a slightly more complex structure, and it was filled with thick vaginal fluids, making it a top-class, super-premium pussy that felt incredibly good.</p>
-<p>"I'll shake it... Ryuta can cum whenever he wants♥"</p>
-<p>At first, Yukiko gently caressed my cock with her vaginal walls, shaking her waist slowly, but soon she picked up the pace and began to move her waist up and down vigorously. An ordinary woman would quickly get tired and fall off, but Yukiko is a sex machine succubus. She didn't get tired after just a few minutes of cowgirl.</p>
-<p>After extracting semen from my cock five times and experiencing over ten orgasms herself, she finally stopped with a satisfied expression. I also saw the long-awaited translucent level-up window during my last, fifth ejaculation.</p>
-<p>LEVEL UP!</p>
-<p>Please select a trait.</p>
-<p>It's been a while since I leveled up. I was quite tired, so I decided to choose the trait later and lay down, hugging Yukiko, who had already returned to her human form.</p>
-<p>"Was I too excited? It seems like my personality changes a bit when my appearance changes."</p>
-<p>"I like that form too, because both are Yukiko-ssi."</p>
-<p>I kissed Yukiko's cheek as she blushed and spoke, embarrassed by her cheerful appearance as a succubus. Yukiko smiled happily at my answer and snuggled deeper into my arms.</p>
-<p>As expected of a succubus, her face was incredibly smooth after accepting my semen into her body. You could say her face was glowing? Not only her face, but her entire skin felt radiant.</p>
-<p>Ggrrr!</p>
-<p>It was already long past dinner time, so a loud noise came from my stomach, which had skipped dinner. Yukiko chuckled and looked at me.</p>
-<p>"You didn't even feed me and made me do hard labor? What do you want to eat?"</p>
-<p>"Yukiko-ssi, don't you want anything to eat?"</p>
-<p>At my question, Yukiko smiled seductively and rubbed her lower abdomen.</p>
-<p>"I'm already full♥"</p>
-<p>I see. Then shall we eat what I want to eat?</p>
-<p>"I want to eat gyudon with Yukiko-ssi for the first time in a while."</p>
-<p>It's a food that holds memories with Yukiko, so I wanted to eat it because I saw Yukiko for the first time in a while. I had intentionally not eaten it while I was at St. Francis Girls' Academy. Because there was no Matsuya, the gyudon franchise that Yukiko and I preferred, around St. Francis Girls' Academy.</p>
-<p>"Shall we?"</p>
-<p>"Yes, let's go out for a bit."</p>
-<p>Yukiko smiled when I said I wanted to eat gyudon because it was a food that held memories with me.</p>
-<p>"Hmm, but if I go around with you, there might be a problem with the mission...."</p>
-<p>Yukiko muttered to herself for a moment and changed her appearance. It seemed that she could do a half-succubus transformation, changing her hair color to pink without taking out her horns, wings, and tail. This is also refreshing.</p>
-<p>"This way, I can go outside as much as I want♥"</p>
-<p>Her face was still Yukiko's, but her hair was pink and her atmosphere was quite different, so strangers wouldn't recognize her as Yukiko.</p>
-<p>"Then let's get dressed and go out."</p>
-<p>"Okay~!"</p>
-<p>Wearing different clothes than when she came to the hotel, we enjoyed a Tokyo date for the first time in a while.</p>
+<p>Kujo Kina. She was the third daughter of the Kujo family, who were vying for third and fourth place after the Taira and Minamoto, the two leading business conglomerates in Japan. The Kujo family, with their strengths in biotechnology, pharmaceuticals, and medicine, had a cold and intellectual aura, but Kujo Kina was, on the contrary, an active and passionate person. Moreover, unlike the eldest son who would inherit the family and the second son who would assist with the work, she was free from obligations as the youngest third daughter, so she grew up doing whatever she wanted.</p>
+<p>Perhaps because of her activeness and freedom to do what she wanted, Kujo Kina learned various martial arts from a young age and became engrossed in mixed martial arts. When she entered St. Francisco Girls' Academy, she joined the mixed martial arts club called The Fist.</p>
+<p>However, The Fist's club activities did not satisfy Kujo Kina. Except for the faculty advisor whose strength was impossible to gauge, there was no one in the club who could fight Kujo Kina for more than one round. Then one day, Kujo Kina's reason snapped while sparring with several people at once.</p>
+<p>When she came to her senses, about thirty club members were injured and lying on the ground. She received a suspension for that incident and was transferred to a special class, where she saw Yamashiro Ryuta.</p>
+<p>As soon as she saw him, Kujo Kina knew, 'This is the man!' It wasn't the romantic feeling that others talked about. Kujo Kina's sharp senses were telling her that she could go all out with this man.</p>
+<p>So, she forced a sparring appointment with Yamashiro Ryuta. It was to clash with him at full power and to find out why she had lost her reason during the suspension incident.</p>
 <p>###</p>
-<p>"That's too bad, I thought you'd be here all weekend...."</p>
-<p>"Ryuta doesn't like clingy women, right? And the Human Resources Development Center is busy right now, and Ryuta has a lot to do since he came to Tokyo for the first time in a while, right?"</p>
-<p>I thought she would be with me all weekend, but Yukiko said she would return to the Human Resources Development Center after lunch on Saturday. Well, the new recruits for the second half of the year would be receiving training at the Human Resources Development Center right now, so Yukiko wouldn't be able to stay with me all Friday, Saturday, and Sunday as the head of the Human Resources Development Center.</p>
-<p>And I also had to check on companies like Hatake Investment Company, Seryu Military Company, and East Weapon while I was in Tokyo. Yukiko could now control her desires, so she knew I had work to do and made concessions.</p>
-<p>"If you miss me, I can now come to Ryuta's dreams...♥"</p>
-<p>I was curious if she could really come even though the distance was quite far, since she had marked my dreams. First of all, I have to say goodbye to Yukiko. Because I won't be able to see her for a while.</p>
-<p>"I don't think I can come next weekend because I have plans."</p>
-<p>"Okay, I can wait, Ryuta. Just don't do anything too reckless. I'll be really angry if you get hurt! Got it?"</p>
-<p>"Yes, Yukiko-ssi, please always be careful too."</p>
-<p>Yukiko tiptoed and kissed my lips lightly and left the hotel room. I tormented Yukiko all night yesterday, so the room is full of Yukiko's scent. I feel a little empty.</p>
-<p>"It would be good to do the things I've been putting off in times like this."</p>
-<p>I got up from my seat and muttered to myself. I left everything to everyone, but it's the owner's role to check these things, so it would be good to do it now that I have unexpected time.</p>
-<p>The first place to go is... where my secretary is.</p>
-<p>###</p>
-<p>"Whoa! What's a Sunbae who was playing around with JK (referring to Joshi Kōsei, high school girls) doing here?"</p>
-<p>"Be quiet, Sunbae."</p>
-<p>Mimata Chieri, who was in the East Weapon CEO's office, said that while making a fuss loud enough for the secretary outside to hear, so I raised my index finger to my lips and said that.</p>
-<p>I didn't know if Mimata Chieri would be at the company on the weekend, so I contacted her in advance, but she's still making a fuss like this, it was really a Mimata Chieri-like attitude.</p>
-<p>"I just came to see Sunbae and look around other places while I was in Tokyo."</p>
-<p>"Heeheung.... I'm Sunbae's secretary, so I'll hang out with you. But tell me the story of how the perverted Sunbae fucked a lot of girls at St. Francis Girls' Academy."</p>
-<p>I didn't fuck a lot. It's only about three people, but Mimata Chieri tends to overestimate me too much....</p>
-<p>"First, I'll get a report from East Weapon. I'm leaving everything to Sunbae-nim, so you can just tell me roughly."</p>
-<p>"There's nothing particularly new. There are always requests, the requests are being resolved well, and the market share has increased a little more, that's about it?"</p>
-<p>Mimata Chieri is from an agent background, but she has a talent for management, so she was handling East Weapon, which is one of the largest in Japan in terms of size, without difficulty.</p>
-<p>"Darim-jjang, who we had, is now already learning the third year of university. The professor in charge was also very surprised."</p>
-<p>Jeong Darim was also doing well as reported. She also had an aptitude and talent for it, so she was showing a genius-like talent. If this continues, she'll be able to do well in our plant research institute that we'll build someday.</p>
-<p>"You're doing well, Sunbae."</p>
-<p>"Ehehe! If I get my hands on it, this much is natural!"</p>
-<p>Mimata Chieri, who was elated and proud of my praise. She's actually doing well, so I should give her a bonus later.</p>
+<p>After stretching, Kujo Kina and I went up to the sand ring that the Minamoto employees had created, which felt like a sumo wrestling ring. Then, the employees put finger gloves on me and a mouthpiece in my mouth. They're doing this quite seriously. It seemed like they had hired employees with some experience.</p>
+<p>Kujo Kina also received the same preparations, and we looked at each other. The school nurse, Kijimoto Jurie, was sitting on a chair next to the arena, preparing for any dangerous situations.</p>
+<p>"Thank you for indulging my stubbornness, sensei."</p>
+<p>"I've also learned some martial arts, so sparring is fine."</p>
+<p>Kujo Kina must know that her request was a bit of a stretch. One might have thought that she requested sparring because she wanted to legally beat up the teacher, but it seemed like she had other intentions. Looking at Kujo Kina's excited expression, it seemed that she had requested a match with me simply because of the unique ambition of a martial artist.</p>
+<p>So, since we were going to spar anyway, I didn't say anything and gave Kujo Kina an answer that would put her at ease.</p>
+<p>We lightly bumped fists and started sparring.</p>
+<p>First, to find out what level Kujo Kina was at, I didn't attack and took a stance, then slowly circled around Kujo Kina. Even if Kujo Kina was much stronger than I thought, I could endure it because I had regeneration, and I needed to know her level so I could adjust accordingly.</p>
+<p>Kujo Kina looked at me in a kickboxing stance and instantly aimed for my head with a high kick. It was quite a fierce attack, and Kujo Kina's foot came at me in an instant with a whoosh! sound.</p>
+<p>I dodged the high kick by slightly bending my body, but Kujo Kina fluidly changed from a high kick to a heel drop, attacking me as if chopping with an axe. She's pretty good? It seemed like the story that she beat up thirty members of the martial arts club and got suspended wasn't a lie.</p>
+<p>I blocked Kujo Kina's heel drop with my forearm. My forearm felt a little numb, so it was quite strong. But to my eyes, which had the Saint of Fist skill, it was a clearly visible technique, so I was able to prepare for the impact.</p>
+<p>Since one of Kujo Kina's legs was on my arm, I threw a low kick at her remaining supporting leg.</p>
+<p>Kujo Kina, rather, used my arm as a stepping stone and avoided the low kick by doing a backflip. She really had the quick movements that suited her leopard bikini. It was an incredibly animalistic movement.</p>
+<p>"Wow~! Amazing."</p>
+<p>"Ryuta-cchi, don't lose~!!"</p>
+<p>Cheers erupted when Kujo Kina did a backflip. Certainly, to the female students, Kujo Kina's movements seemed light, and they seemed to think I was at a disadvantage. Some who knew my skills well didn't think that at all, but since all I had shown was blocking and a low kick, it was natural for them to think that way.</p>
+<p>"Hap!"</p>
+<p>Kujo Kina shouted and kicked again. Since there was a difference in physique between us, Kujo Kina seemed to be using kicks more than punches. It seemed like she was planning to play the match focusing on kicking techniques because the reach difference was too great to fight with punching techniques.</p>
+<p>This time it was a middle kick. Again, a heavy and fast kick. I raised my knee to block the middle kick with my thigh and rushed at Kujo Kina. As I got close, several punches instantly cut through the air.</p>
+<p>After exchanging kicks and punches a few times like this, I roughly understood Kujo Kina's skills. Surprisingly, this girl was at a level comparable to my friend, Genba Kiyohira, who is a UMC welterweight ranker. Certainly, with this level of skill as a woman, she could beat not just thirty, but even a hundred girls her age, no matter how much they trained in martial arts.</p>
+<p>Now that I roughly knew her skills, I should deal with her appropriately and give her some guidance. Kujo Kina was too aggressive, as if she hadn't met any significant opponents until now. Should I say she lacked a defensive mindset? If she didn't have regeneration or other defensive traits like me, she would inevitably suffer a major injury someday.</p>
+<p>As I started attacking, Kujo Kina's hands became increasingly frantic. She clearly didn't have much experience being on the defensive, so her movements weren't as smooth as when she was attacking. Moreover, Kujo Kina, who had been trying to compete with kicks, seemed even more flustered when I didn't play the reach game and stuck close, fighting with punches in close combat.</p>
+<p>In addition to being flustered, I strangely saw the whites of Kujo Kina's eyes gradually turning red. Surely she wasn't about to burst into tears because the situation wasn't going her way, was she getting angry?</p>
+<p>"Keeeueueue!"</p>
+<p>It didn't seem like she was getting angry, but by the way, the whites of her eyes had exceeded the limit of how red they could naturally become... It was just like a status ailment in a game.</p>
+<p>Whooong!</p>
+<p>As her eyes turned red, she showed a speed and power that was on a different level than before. Her techniques, on the other hand, decreased compared to before, and her movements became simpler. This was exactly like going berserk....</p>
+<p>Why on earth did she go berserk? Berserk was a status ailment. Except for the rare Berserker-type traits or items, it was a debuff that was inflicted on others. It greatly increased strength and speed, but it was difficult to control and greatly reduced skill proficiency.</p>
+<p>Some people might say, "Isn't it good if strength and speed increase significantly?" But if you have to reload because you killed a precious companion or heroine with your own hands because you were affected by berserk, you'll take those words right back.</p>
+<p>She probably doesn't have a Berserker trait, so she must have been targeted by someone who had a grudge against the Kujo family or someone who had a personal grudge against Kujo Kina.</p>
+<p>Thwack!</p>
+<p>I blocked the kick with my arm like before, but unlike before, I felt a tingling pain. If I felt a considerable amount of pain, it was a very dangerous attack for an ordinary female student to take. I had to knock Kujo Kina out before she completely lost her mind due to berserk. She might go crazy while fighting me and attack Kijimoto Jurie next to her, or she might rush into the middle of the female students who are cheering and cause a commotion, which would be a disaster.</p>
+<p>Kujo Kina also sensed that my momentum had changed even in the midst of her berserk state, and she began to struggle. She instantly unleashed various martial arts techniques that she had learned on me. She was using this level of technique even in a berserk state, which meant she had trained quite a bit.</p>
+<p>But she couldn't beat me, who had gone through all sorts of hell. I dodged or blocked all of Kujo Kina's attacks to neutralize them. And while dodging Kujo Kina's punch, I grazed Kujo Kina's chin with a counter punch.</p>
+<p>It wasn't a very powerful blow, but Kujo Kina staggered and fell straight down. Her brain was momentarily shaken by the hit to her chin, causing her to faint.</p>
+<p>"Waa!"</p>
+<p>"Ryuta-cchi~! Amazing!"</p>
+<p>"Is Kina okay?"</p>
+<p>To the female students, Kujo Kina, who had been constantly attacking, fell with just one of my counters, so it must have been a very exciting match to watch.</p>
+<p>Kijimoto Jurie, who had been sitting next to the ring, rushed over to check on the fallen Kujo Kina. She wasn't knocked out from being hit by me a lot, but rather fainted because her brain was shaken, so she probably didn't suffer any major injuries.</p>
+<p>Kijimoto Jurie looked at me and nodded. That probably meant that Kujo Kina wasn't seriously injured.</p>
+<p>"Kina just fainted for a moment, so don't worry."</p>
+<p>Kijimoto Jurie reassured the female students, who were cheering for my victory but also worried that something might have happened to Kujo Kina. Kujo Kina had the image of a tyrant who had beaten up thirty people alone and gotten suspended, so it was surprising that she fainted.</p>
+<p>At the news that Kujo Kina was okay, all the female students flocked to me. Some of the bolder ones, like Saionji Diana, who was wearing a daring bikini made of netting, gave me a towel, and Alik stuck next to me, praising me, saying, "Ryuta, strong." The other students were also excited, having been impressed by the match with Kujo Kina. Except for just one person.</p>
+<p>"Um, sensei...."</p>
+<p>Urabe Konoka, dressed in a white and red bikini reminiscent of a shrine maiden, as befitting the adopted daughter of a shrine, called out to me with a slightly serious expression.</p>
+<p>Could it be...? Urabe Konoka is a priestess of Simyeonui ttal, so she must have noticed Kujo Kina's abnormality, as befitting a priestess.</p>
+<p>-----</p>
+<p>Saionji Diana</p>
+<p>The daring bikini made of netting that appeared in the novel.</p>
+<p>Diana's sub swimsuit.</p>
+<p>Urabe Konoka's red/white bikini</p>
+<p>Lastly, the sub swimsuit as expected hehe</p>

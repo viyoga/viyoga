@@ -5,91 +5,87 @@ weight = 303
 chapter = 303
 +++
 
-<p>"Um, could you at least put on some underwear...."</p>
-<p>Kiyona Hori, perhaps burdened by my dick standing stiff as a snake and glaring at her(?), said with a slightly intimidated expression.</p>
-<p>"Ah, I was about to enjoy some quality time alone, but you suddenly opened the door without knocking, so I couldn't help it."</p>
-<p>"Ah, I'm sorry about that. I think I wasn't thinking clearly because I was drunk...."</p>
-<p>Since it was Sawayanagi Azuma who had opened the door, Sawayanagi Azuma apologized. I waved my hand and put on my underwear.</p>
-<p>Of course, my bulge was still sticking out, straining the fabric of my briefs, so there wasn't much difference from being naked, but Kiyona Hori and Mari seemed to feel more at ease just by not seeing the real thing.</p>
-<p>Sawayanagi Azuma, however, wore a disappointed expression as my dick disappeared under my underwear.</p>
-<p>"So, what brings you here?"</p>
-<p>"Ah, well.... The Kiyona sisters accidentally overheard what we were doing yesterday."</p>
-<p>How did they hear it from the 3rd floor? Kiyona Mari opened her mouth at my questioning expression.</p>
-<p>"It's not like we wanted to listen...! We heard Lianna's moaning telepathy and found you while searching for the source."</p>
-<p>Hmm, Lianna Holden does moan telepathically when she gets excited, so they heard that? It seems the reception range is wider than I thought.</p>
-<p>"Could it be that everyone else heard it too?"</p>
-<p>I asked, worried about Lianna Holden's privacy, and Sawayanagi Azuma answered for her.</p>
-<p>"No, they said they heard it faintly near the passage leading to the 3rd floor and looked for the source. They said only a few people heard it."</p>
-<p>Ah, that's a relief.</p>
-<p>"Could it be that Lianna isn't here because...?"</p>
-<p>"Yes, because she's embarrassed."</p>
-<p>Well, Lianna Holden pretends to be fatal, but she's practically a virgin with only a few experiences with one man, so she can't help but be embarrassed if she knows she moaned telepathically.</p>
-<p>"Ah, let's skip the Lianna story for now, why are you two here?"</p>
-<p>Even if we had 2-on-1 or 3-on-1 sex, it was our business, and the Kiyona Hori Mari sisters shouldn't care, so I asked with an expression that meant, 'Why did you come?'</p>
-<p>"They want to watch us."</p>
+<p>"Shall we grab lunch first?"</p>
+<p>Because I had to stop by the Am Sang branch, my meeting with Sawayanagi Seari was a bit delayed, so the timing was awkward. So, I figured we could go to a cafe or eat street food between dates, so it would be okay to have lunch a little early.</p>
+<p>"Sounds good."</p>
+<p>"Is there anywhere you've wanted to go on a date?"</p>
+<p>I had a place in mind, but I asked just in case Sawayanagi Seari had somewhere she was thinking of.</p>
+<p>"Hmm...."</p>
+<p>Sawayanagi Seari seemed to be thinking hard, rolling her big eyes, but she couldn't seem to come up with anything.</p>
+<p>"If you don't have any ideas, let's go where I was thinking."</p>
+<p>"Okay...!"</p>
+<p>The place I had in mind was a handmade burger joint that many couples in Tokyo have been going to recently, and even though it was a little early, not lunchtime yet, there were quite a few people lined up. Popular places are different, after all.</p>
+<p>"Looks like we'll have to wait a bit."</p>
+<p>"By the way, what are you holding in your hand?"</p>
+<p>Sawayanagi Seari pointed to the black Am Sang shopping bag I was holding and asked. I smiled and opened the shopping bag to show Sawayanagi Seari. Inside the shopping bag were seeds, each packaged separately by type.</p>
+<p>"One of these seeds is a present for you, Seari-ssi."</p>
+<p>"Really?"</p>
+<p>Usually, if you gave a girl seeds as a gift, she would tilt her head in confusion, but Sawayanagi Seari seemed happy just to be receiving a gift, and she started jumping up and down excitedly.</p>
+<p>"Looks like a spot opened up, so let's go in."</p>
+<p>"Okay!"</p>
+<p>Soon, whether it was because the tension of receiving a gift had eased, she was much more cheerful than when we first met today. She was so awkward and hesitant when we first started the date.</p>
+<p>We went into the restaurant and ordered our food. Sawayanagi Seari ordered a double cheeseburger set, and I ordered a steak burger set with a patty made of steak and a double patty burger set each.</p>
+<p>"It's huge!"</p>
+<p>As expected of a trendy place these days, it had its own unique features. Sawayanagi Seari's double cheeseburger set, which had a patty of normal size, had a patty that was almost 1.5 times wider than my palm, and the bread came separately, as if we were supposed to assemble it ourselves.</p>
+<p>A plate of salad also came out, so I guess we're supposed to assemble it into a hamburger or eat it separately as a salad.</p>
+<p>The steak burger also came with a large porterhouse steak and bread separately, and the double patty burger had two of those big patties.</p>
+<p>"Isn't this just steak or a big hamburger steak with hamburger bread and salad?"</p>
+<p>"I guess so, hehe."</p>
+<p>It was a bit absurd, but I guess this is marketing. I cut the steak and gave a piece to Sawayanagi Seari. Sawayanagi Seari smiled again, hehe, as if she liked that I was sharing my food.</p>
+<p>"Try the steak too."</p>
+<p>"Would you like to try some of the cheese patty?"</p>
+<p>We shared our food and talked. We talked about recent events at Seryu Military Company and people we both knew. While talking, I became curious about the meeting with the slave traders in Krascano, so I asked Sawayanagi Seari.</p>
+<p>"Ah, what happened to the trip to Krascano?"</p>
+<p>"Ah, Azuma, Shinya, and Tobe went together. But... before we got there, some unknown people took all the esper boys and girls, so we couldn't bring them back."</p>
+<p>That's a bit of a shame. A PMC with more than half of its members being espers like Seryu Tai is rare. I was going to supply more espers, but I got beaten to the punch by some unknown hoarders.</p>
+<p>Sawayanagi Seari and I put the remaining meat and salad in the hamburger bread and ate it as a hamburger. Oh, it's pretty good. I guess you could call this a hamburger place.</p>
+<p>"Hoo...! I'm full, Ryuta-ssi!"</p>
+<p>"Shall we go to the next course then? Is there anything you want to do?"</p>
+<p>"I, I also...! I want to take sticker pictures!"</p>
+<p>Seeing that she said "I also," Sawayanagi Seari probably saw the sticker pictures that Alik and I took together.</p>
+<p>"Shall we?"</p>
+<p>We searched for a sticker picture shop nearby and took sticker pictures together. Unlike Alik's pictures, which had an apocalyptic atmosphere, we took pictures with a forest background and a fantasy theme. Sawayanagi Seari took pictures with an elf feel, as we could even make elf ears.</p>
+<p>"Ehehe! I like it!"</p>
+<p>Sawayanagi Seari smiled as she looked at the pictures. She seems to like them a lot.</p>
+<p>Next was a movie. Sawayanagi Seari chose the movie, and she picked a calm romance movie.</p>
+<p>It was a movie about a man and a woman who broke up and met again after a long time and cultivated a new love, and Sawayanagi Seari watched it with tears in her eyes. There were some touching scenes, but I don't think it was enough to make you cry....</p>
+<p>"Sniff...! It was a good story."</p>
+<p>"I enjoyed it quite a bit too."</p>
+<p>Sawayanagi Seari said, sniffling, as we came out of the movie theater. She looked quite cute, so I unconsciously smiled like a dad. Now that we've seen a movie, it was time to confirm my thoughts.</p>
+<p>"Shall we go to a cafe to look at the seeds I prepared?"</p>
+<p>"Okay!"</p>
+<p>After leaving the movie theater, we went to a cafe together and sat down. I thought about going to Kiyona Hori and Mari's cafe again, but I felt like they would get in the way of choosing seeds, so I found a cafe with rooms where people couldn't disturb us.</p>
+<p>"I'm sure there's a seed here that Seari-ssi wants."</p>
+<p>After the drinks we ordered came out, I took out the seeds one by one from the shopping bag and said to Sawayanagi Seari.</p>
+<p>"A seed that I want?"</p>
+<p>Sawayanagi Seari looked a bit puzzled and looked at the seeds I took out one by one. I also focused on the seed packets to see if there was anything useful.</p>
+<p>The seeds were byproducts of research done at the lab, so most of them were new varieties of fruit. If I leave this to Jung Da-rim, she'll take care of it.</p>
+<p>Since the seeds were packed in the shopping bag, Sawayanagi Seari passed them over, and I put the seeds that came out of the lab on the chair next to the shopping bag and took out a new seed packet from the shopping bag.</p>
 <p>"Huh?"</p>
-<p>Is she the kind of woman who likes spectator play like Mimata Chieri? Or.... Did they only hear it yesterday and want to see it because they're frustrated?</p>
-<p>"And.... If they like what they see, they want to participate too...."</p>
-<p>Hearing this story, I seriously started to worry about the sexual values of the women of Seryutai. Still, I'm the type who doesn't stop women who come, so there was no particular reason to refuse if they wanted to try.</p>
-<p>"Okay."</p>
-<p>"Then...."</p>
-<p>"It's been a while since it's just the two of us, Azuma."</p>
-<p>I tapped the bed next to me where I was sitting and called Sawayanagi Azuma. Sawayanagi Azuma blushed and came to sit next to me.</p>
-<p>I wrapped my hand around the back of Sawayanagi Azuma's head and started kissing her.</p>
-<p>###</p>
-<p>Chup, jjuup...! Chup chup.</p>
-<p>It was a very lewd sound. The Kiyona sisters brought chairs from the table in the room and watched Taira Ryuta and Sawayanagi Azuma begin to kiss.</p>
-<p>After kissing for a while, the two of them became naked almost simultaneously, as if they had made a promise, and soon began to lick each other's most private parts.</p>
-<p>Seeing that, the Kiyona sisters also felt their bodies heat up and their insides tingle.</p>
-<p>Of course, they had seen AVs as much as their age, but it was definitely not as good as watching real sex with this kind of presence.</p>
-<p>It was a combination of a man with a handsome face, overwhelming physique, and dick, and a woman more beautiful than an AV actress. It was a very vulgar, beautiful, and exciting sight.</p>
-<p>The two, who had been licking each other's genitals, were soon facing each other. Taira Ryuta's earthworm-like blood vessels wriggled and the steel-like massive cock that popped out was widening Sawayanagi Azuma's cute pussy to the end as it went inside.</p>
-<p>Sawayanagi Azuma's pussy was covered in shiny love juice, so Taira Ryuta's massive cock could fit inside without difficulty.</p>
-<p>"Ah ah...!"</p>
-<p>Sawayanagi Azuma's first moan burst out, and the man began to shake his hips violently.</p>
-<p>The scene of love juice splattering from Sawayanagi Azuma's fully dilated pussy, the sticky moaning sounds, and the sweat droplets pooling and flowing on Taira Ryuta's back was a more explicit and beautiful scene than anything they had ever seen.</p>
-<p>"Heuh...."</p>
-<p>Kiyona Mari made a moaning sound without realizing it and was startled, covering her mouth. And when she glanced to the side, Kiyona Hori seemed not to have even heard her moan, and was focused on Sawayanagi Azuma and Taira Ryuta's sex as if she was being sucked into it.</p>
-<p>The sisters' faces were hot and red, and their breaths became hot as well.</p>
-<p>"Ah, ah! Euheut! Haeueut! Investor-nim♥"</p>
-<p>As the rhythm of the moans grew faster, the Kiyona sisters' breathing became rougher. As Taira Ryuta, who had been shaking his hips for a while, thrust his ass as close as possible to Sawayanagi Azuma and ejaculated, the Kiyona sisters' toes curled up and they lightly climaxed.</p>
-<p>They both climaxed just by watching, even though they didn't have sex.</p>
-<p>###</p>
-<p>"Heuaeee.... I love it, Investor-nim♥"</p>
-<p>As I pulled my dick out of Sawayanagi Azuma's pussy, which was rolling her eyes and trembling, white semen flowed out. I wiped the semen with a towel placed next to me and turned my head to look at the Kiyona Hori Mari sisters.</p>
-<p>"What are you going to do?"</p>
-<p>I asked, but looking at their facial expressions, I predicted the answer. Their faces were already melting. Did they masturbate while watching? Looking at their expressions, it seemed like they had lightly climaxed.</p>
-<p>I slowly stood up and placed my dick on Sawayanagi Azuma's face, as if to show them what to do.</p>
-<p>Sawayanagi Azuma sucked my dick, which was covered in her love juice and my semen. She sucked out even the semen in my urethra and opened her mouth to me.</p>
-<p>"Heueung, Investor-nim. Please teach this good feeling to the Kiyona sisters♥"</p>
-<p>I nodded at Sawayanagi Azuma's words and approached the Kiyona Hori and Mari sisters.</p>
-<p>When I approached them, they blushed like ripe apples and avoided my gaze. I took their hands in both of mine. They were avoiding my gaze, but of course, they didn't shake off my hands.</p>
-<p>When I pulled them, they got up and came to the bed as if they couldn't win.</p>
-<p>"Who wants to go first?"</p>
-<p>At my question, they looked at each other.</p>
-<p>"Mari...."</p>
-<p>"N-not that I'm doing it for Onee-chan! Let Hori Onee-chan go first!"</p>
-<p>Seeing them both yielding to each other, it was heartwarming. I didn't listen to their opinions and started undressing them. If it's like this, I have no choice but to do it to them at the same time.</p>
-<p>"Kyaa! Pervert, what are you doing?! I told you to do it to Onee-chan first?"</p>
-<p>"Aah! Suddenly taking off our clothes...!"</p>
-<p>Regardless of what they said, I made them both naked. They become quiet when they are both lying naked. They looked so much alike that they could be mistaken for twins, but their breast sizes were different. It's more obvious when they're lying side by side like this.</p>
-<p>Both of them were excited by my and Sawayanagi Azuma's play, so the area around their pussies was shiny. Ah, this side is also slightly different. Kiyona Hori, who doesn't have pyrokinesis ability, dyed her hair similar to Kiyona Mari's hair color, so her pussy hair color was different. Of course, a normal person wouldn't even think of dyeing their pussy hair.</p>
-<p>The red one was Mari and the black one was Hori. Interesting.</p>
-<p>First, I sucked on Kiyona Mari's breasts, which had pointy nipples.</p>
-<p>"Heuhyat! It's not that I felt good, I was just surprised, euheut! I said that! Heuheung...!"</p>
-<p>As expected, they say that if your breasts are small, they are sensitive. She moaned, twisting her body just by being sucked without using any special technique. After sucking on Kiyona Mari's breasts for a while, this time I grabbed Kiyona Hori's voluptuous breasts.</p>
-<p>Hmm, they're soft...!</p>
-<p>"Heueut...! Ryuta-ssi, it feels, hiit, strange♥"</p>
-<p>Unlike her tsundere younger sister, Kiyona Hori was honest. Her sensitivity was no less than that of Kiyona Mari, who had small breasts, and she made sweet moans just by being touched.</p>
-<p>I flicked the tip of Kiyona Hori's nipple with the tip of my tongue, sucked it, and sucked even the areola in one big bite, while rubbing her nipple wildly with my tongue. Kiyona Hori made a kyaa sound at the tremendous pleasure she was feeling for the first time and screamed.</p>
-<p>As I took my mouth off her nipple, Kiyona Hori grabbed my head with both hands and pulled it up, starting to kiss me. It was an awkward kiss, but that was good. Because I can dye this woman with my color.</p>
-<p>Even while kissing, my hands didn't rest. One hand touched Kiyona Hori's soft breasts and the other hand stimulated Kiyona Mari's nipples.</p>
-<p>When I finished kissing Kiyona Hori and took my mouth off, a silver thread made of saliva stretched out long. Kiyona Hori quietly whispered in my ear.</p>
-<p>"Please do it to Mari too."</p>
-<p>She must be talking about kissing, right? As my face gradually approached Kiyona Mari, Kiyona Mari, whose eyes were shining with anticipation while blushing, opened her mouth.</p>
-<p>"K-kisses are not allowed! Not to you, who I don't even like.... Uup!"</p>
-<p>No matter what she said, Kiyona Mari actively accepted my lips and tongue, which rushed in head-on, contrary to her words.</p>
-<p>Jjoop! Jjok! Chup! Jjuup!</p>
-<p>It's an excessively explicit kiss. Seeing Kiyona Mari, who even put her hand around my neck and kissed me so that I couldn't take my lips off, I found it quite interesting that her words and actions were different.</p>
-<p>---</p>
-<p>Kiyona Hori Mari Sisters</p>
+<p>"Huh!"</p>
+<p>We both exclaimed at the same time. What we reacted to was a leaf-shaped seed the size of a thumb. Sawayanagi Seari must have felt something, and I exclaimed because of the information that appeared on the translucent screen in front of me.</p>
+<p>◆Seed of the Spirit Tree (Spirit Tree) [Unique Legacy / Consumable / Miscellaneous]</p>
+<p>Seed of the Spirit Tree. When planted, it grows into a Spirit Tree and can produce Spirit Fruit (精靈果). Rumor has it that if a young fairy eats it, they will become an adult.</p>
+<p>This was it. If a young fairy eats it, it becomes an adult. It seemed that Sawayanagi Seari became an adult in the game because of this option. I don't know how Sawayanagi Seari got it, though.</p>
+<p>I was expecting a name like World Tree, but it seemed that the World Tree was a larger-scale tree than I thought.</p>
+<p>"This is it!"</p>
+<p>"This one, right?"</p>
+<p>Sawayanagi Seari and I pointed to the seed of the Spirit Tree almost at the same time. It seemed almost certain. I looked at the leaf-shaped seed in a small transparent bag. Fortunately, there were two of these Spirit Tree seeds, not just one.</p>
+<p>I could give one to Sawayanagi Seari and have Jung Da-rim grow the other one. I was curious about the Spirit Fruit in the description window. Will it be delicious? Or will the options be good? Jung Da-rim will grow it and tell me the answer later.</p>
+<p>"Here, this is the gift I prepared."</p>
+<p>I took out one of the Spirit Tree seeds and gave it to Sawayanagi Seari. Sawayanagi Seari smiled very brightly after receiving the seed from me. It was the biggest smile I had seen so far.</p>
+<p>"I don't know what this seed is, but I can feel that it's something I really need."</p>
+<p>Sawayanagi Seari stared at the seed in her hand for a while and then put it in her mouth. It was like an action engraved in her instincts, even though no one taught her.</p>
+<p>Ododok ododok!</p>
+<p>It sounds so delicious. Sawayanagi Seari chewed the seed a few times, looked at me, and smiled.</p>
+<p>"Thank you. I will definitely repay this kindness."</p>
+<p>After saying these words, Sawayanagi Seari immediately collapsed. Huh? What went wrong? And leaves started to come out of Sawayanagi Seari's body.</p>
+<p>First, I picked up Sawayanagi Seari, took the shopping bag with the seeds, and left the cafe. I needed to go somewhere to rest first. I couldn't show this to other people.</p>
+<p>There was no time to go to the Seryu Tai building. I went to the nearest hotel where I could rest. It was a love hotel, but I didn't have time to go anywhere else with a woman sprouting leaves all over her body.</p>
+<p>Fortunately, it was an unmanned hotel. I grabbed the closest room possible, opened the door, and laid Sawayanagi Seari on the bed.</p>
+<p>Sawayanagi Seari was like a cocoon made of leaves. If anyone saw her, they wouldn't think she was a person and would just think she was a pile of grass.</p>
+<p>"I hope nothing went wrong?"</p>
+<p>I felt a bit of a crisis, but Sawayanagi Seari didn't stay a pile of grass. Flower buds started to rise one by one from the pile of grass, and then the flowers started to bloom.</p>
+<p>At the same time, an incredibly fragrant scent filled the room of the love hotel. It was a sweet and fragrant scent.</p>
+<p>----</p>
+<p>Sawayanagi Seari</p>

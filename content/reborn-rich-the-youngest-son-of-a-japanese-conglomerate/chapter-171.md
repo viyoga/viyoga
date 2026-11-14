@@ -5,58 +5,88 @@ weight = 171
 chapter = 171
 +++
 
-<p>We successfully evaded Kurotsuki's ambush and counterattacked, arriving near the sewage treatment plant in Yurihonjo City, our destination. We approached the sewage treatment plant, focusing on areas where CCTV screens were visible. Given Kurotsuki's ability to disable CCTVs, we figured that if we saw CCTVs, Kurotsuki would likely be absent. As expected, there was no one, allowing us to approach easily.</p>
-<p>,Ugh! I feel like I'm going to throw up."</p>
-<p>,Don't overreact, it's not like we're going inside the sewer water."</p>
-<p>Kiyona Mari walked along the path beside the sewer, covering her nose and gagging. Sawayanagi Azuma responded to her. Of course, Sawayanagi Azuma's expression wasn't great either. It's a sewage treatment plant, so it's not going to smell good.</p>
-<p>The Kurotsuki's lower-level forces were essentially just Chinese thugs given guns, so there was no discipline. Therefore, even though they were stationed near the sewage treatment plant, there were no troops near the smelly sewer, so we were infiltrating through the sewer area.</p>
-<p>In fact, most of us, including me, were wearing multi-purpose combat helmets that covered our entire heads, allowing only purified air to enter, so we couldn't smell anything. However, Rianna Holden, Kiyona Mari, and Sawayanagi Azuma, who had supernatural abilities that relied on their senses, were wearing headgear-like equipment instead of helmets, so they would be smelling the bad odors.</p>
-<p>From the start, she seemed to be planning to ask for my help, as she had prepared a combat suit and helmet that fit my size. I grabbed a pistol with a silencer and, along with Sawayanagi Tobe, led the way, infiltrating the sewage treatment plant building.</p>
-<p>Peesh! Peesh!</p>
-<p>Once we were far enough away that the smell wasn't as strong, there were two guys guarding the rear, dozing off. Sawayanagi Tobe and I each took one out. If they hadn't been dozing off, they could have alerted the others to our presence, but again, there was no discipline at all. Thanks to the silenced gunshots, we were able to infiltrate undetected.</p>
-<p>,There are three people over here."</p>
-<p>Following Sawayanagi Seari's guidance, aided by the wind, was incredibly convenient. Of course, I had the Sensei's Intuition, but it was a bit inconvenient because I had to consciously focus on it continuously.</p>
-<p>Of course, I was activating the Sensei's Intuition now that we were in a combat situation. Still, being able to focus solely on the combat situation, rather than having to concentrate on finding people, was a significant advantage.</p>
-<p>We started by taking out the smaller groups first. It was the so-called "peeling the apple" tactic, gradually reducing the enemy's strength. If they didn't notice our attacks, they would be taken down without even realizing they were being targeted.</p>
-<p>No matter how disorganized they were, they would eventually notice when their numbers dwindled beyond a certain point. But by the time the Kurotsuki side realized what was happening, they had already lost about 50 percent of their forces. At this point, we could engage in a safe battle without any fatalities, even in a head-on fight.</p>
-<p>,Cao Ni Ma (肏你妈: Fucking your mother)!! Come out here, you Leebun Guieitz (日本鬼子: Jap) Bastards!"</p>
-<p>About forty troops were shouting at us from behind a corner, using Chinese curse words. I don't know why they're telling us to come out when they're obviously going to shoot us if we do. They were yelling for us to come out, but their morale was extremely low since more than half of them were already dead. That's why they couldn't charge at us immediately.</p>
-<p>,I'll go out first and draw their attention, so the rest of you do your thing."</p>
-<p>Sawayanagi Tobe said, using his ability to become steel-like. His exposed skin turned metallic, providing immense defense against physical attacks. Plus, he was wearing a combat suit and helmet with some bulletproof capabilities, so he wouldn't be killed by gunfire.</p>
-<p>,Euryah!!!!"</p>
-<p>,Gou Ri De (狗日的: Damn it)!!"</p>
-<p>Bang! Bang! Bang! Bang!</p>
-<p>I peeked around the corner and saw Sawayanagi Tobe being hit by dozens of bullets, with sparks flying from his body. He didn't seem to be affected at all by the barrage of bullets. Sawayanagi Tobe let out a strange shout of ,Euryah!" and knocked one of them down with a steel fist. Being hit by a fist made of steel was almost always fatal or resulted in a knockout.</p>
-<p>While the gunfire was focused on Sawayanagi Tobe, the Seryutai members turned the corner and charged, firing their guns. The attention that had been focused on Sawayanagi Tobe was suddenly diverted to the Seryutai members, who had suddenly appeared. The Kurotsuki members couldn't even fire their guns before being shot down by the Seryutai.</p>
-<p>,Keu-at!"</p>
-<p>Kiyona Mari's performance was the most impressive. Without needing to create hot flames with her pyrokinesis ability, she simply conjured small flames in front of the eyes of those aiming at us, canceling their attacks and allowing us to riddle them with bullets while they were surprised. The reason they couldn't shoot was because of Kiyona Mari.</p>
-<p>Since small flames didn't require much concentration, she was able to create flames in front of all forty of them, causing confusion and giving us an easy victory.</p>
-<p>,That's a different approach this time?"</p>
-<p>,Yeah, going for pure destructive power is good, but I was thinking about how to use my power more efficiently, so I tried it out."</p>
-<p>Kiyona Mari said, puffing out her small chest in response to Sawayanagi Azuma's words. I thought she was only interested in fashion, but it seems she puts some effort into her job as well. It seems she thinks about combat techniques.</p>
-<p>After the battle, we were searching the remaining areas for any remaining enemies when we received a call from Sawayanagi Mikiyo, who was outside. Sawayanagi Mikiyo, the sniper, was sniping Kurotsuki members outside from the rooftops of nearby high-rise buildings.</p>
-<p>-I've taken care of all the guys outside. About ten of them? I checked with my binoculars, and unlike what we expected, there doesn't seem to be anyone at the softball field.</p>
-<p>,Okay. Then let's meet at our transport vehicle."</p>
-<p>We had Sawayanagi Seari do a final sweep to make sure no one was left, and after receiving confirmation that the area was clear, we returned to the transport vehicle we had arrived in. Sawayanagi Mikiyo was disassembling her sniper rifle in front of the transport vehicle.</p>
-<p>,Good work!"</p>
-<p>,Mikiyo-ya, you're the one who worked hard all alone."</p>
-<p>Sawayanagi Azuma called Taira Foods headquarters on the way back to report that the Red Point extermination was complete. After arriving at the transport vehicle, Sawayanagi Azuma turned on a map app on her tablet and opened her mouth.</p>
-<p>,It seems like if the enemy has more than about a hundred people, it's a Red Point?"</p>
-<p>,Well, we're so strong that we can easily beat about a hundred of those disorganized thugs."</p>
-<p>Kiyona Hori put her hands on her hips and puffed out her chest in response to Sawayanagi Azuma's muttering. Unlike Kiyona Mari, who has small breasts, Kiyona Hori has large breasts, and when she puffed them out, her presence was no joke. I almost reached out without realizing it, but I was able to resist with superhuman patience.</p>
-<p>The Seryutai only had ten members, but they were all elite, and six of them had supernatural abilities, so they should be able to defeat a lower-level Kurotsuki force of about 100 people.</p>
-<p>,At this rate, we should be able to hit the Red Points as quickly as possible today and tomorrow."</p>
-<p>,I'll do my best to help until tomorrow."</p>
-<p>Sawayanagi Azuma gave me a very satisfied smile at my words. I'm going to be worked like a dog today and tomorrow, aren't I? I need to prepare myself.</p>
+<p>As Jin Yong-tae got out of the car, Han Yu-gyeong's worried expression suddenly turned cold. Even in death, Park Sang-beom was being a nuisance. Han Yu-gyeong immediately made a secure call to I Yeon-ju. It was a call using a specific app to prevent hacking groups from intercepting the signal or eavesdropping on the communications company.</p>
+<p>-Yes, Chairman-nim.</p>
+<p>"You know that bomb we got from BS Defender?"</p>
+<p>-Yes.</p>
+<p>"I need you to detonate that bomb at the address I'm about to give you."</p>
+<p>At Han Yu-gyeong's instruction, I Yeon-ju was silent for a moment. Detonating a bomb in a building... Wasn't this no different than a bomb terror attack?</p>
+<p>-...Could you explain in more detail?</p>
+<p>"Remember the bloodstains near the main gate of Base Tech earlier? Those bloodstains belong to Park Sang-beom."</p>
+<p>-Oh my god...! Isn't Park Sang-beom the grandson of the BS Group Chairman?</p>
+<p>"We were attacked, so we had no choice. We couldn't just let ourselves die, we had to retaliate. The body is taken care of, so don't worry... Our data should be on a computer at the address I'm giving you. Erase it and blow up the building. If a BS Defender bomb is found at the explosion site, it could have a big impact."</p>
+<p>BS Defender was a company run by Park Young-beom, the son of Park Il-man, who was in a rivalrous relationship with Park Il-soo, Park Sang-beom's father, for the position of BS Group Chairman. So, if a BS Defender bomb was found at the explosion site, they could sow discord.</p>
+<p>Of course, if Park Il-soo was calm, he might think something was strange, but Park Il-soo, having lost his son, wouldn't be able to make a calm judgment.</p>
+<p>Whether it would succeed or fail, if it succeeded, they could throw the attention away from themselves and cause infighting within the BS Group. Even if it failed, Han Yu-gyeong thought that the traces were completely erased anyway, so Vanguard's involvement would be undetectable.</p>
+<p>"Since there won't be anyone there, there won't be any casualties anyway."</p>
+<p>-...Understood, Chairman-nim. We don't need to pick a fight with BS Group, so we'll handle it cleanly without a trace.</p>
+<p>"We need to secure our alibi, so have the Black Team do it, and we'll have a meeting at that time."</p>
+<p>The Black Team was a group of unregistered Vanguard members, mostly handling operations that Vanguard couldn't publicly disclose. In Korea, Vanguard's public image was that of a security company, so the Black Team was doing quite a few missions behind the scenes.</p>
+<p>-Yes, I'll head to the conference room now.</p>
+<p>Han Yu-gyeong said, "See you soon," and hung up. Dickson, who had been listening to the call, looked at Han Yu-gyeong in the rearview mirror and opened his mouth.</p>
+<p>"Boss, you seem to have become more meticulous than when I first met you."</p>
+<p>"It's a matter of survival. Now, it's not just my life on the line, but the lives of Vanguard, Dickson, and Yong-tae too, so I have to do even better."</p>
+<p>Dickson recalled Han Yu-gyeong when they first met. Back then, Han Yu-gyeong was the very image of a fragile girl, but she was gradually showing a ruthless attitude towards the enemy.</p>
+<p>Dickson didn't know whether this growth of Han Yu-gyeong was a good thing or if it was bad because Han Yu-gyeong's original goodness was diminishing.</p>
+<p>"Please hurry to headquarters. We need to start the meeting before the bomb goes off."</p>
+<p>"Yes, Boss. I'll pick up the pace a bit."</p>
+<p>Dickson took his eyes off the rearview mirror and focused on driving. In the end, Han Yu-gyeong had become ruthless not because of himself, but for the sake of those around her. Dickson thought that Han Yu-gyeong's goodness hadn't disappeared, but had temporarily changed its form, and continued driving. Han Yu-gyeong's cheerful voice was heard from behind.</p>
+<p>"Ah! A KakaoTalk from Yong-tae came?"</p>
 <p>###</p>
-<p>A large room displaying various rare works of art. A room filled with various sculptures and framed masterpieces. It was more like a huge museum than a room. But it was definitely not a museum. It was a space for only one person, like a collector's room where they gathered rare items just for themselves.</p>
-<p>Most of the items in the room were things that could cause a stir even if only a few of them were to appear in the world.</p>
-<p>The sculptures included Rembrandt Bugatti's Babouin Sacré Hamadryas sculpture and Evelina Kūs's crystal elephant (éléphant de cristal), the best sculptor of the Third World War. Similarly, the paintings included works by world-renowned and historically famous artists such as Van Gogh and Monet.</p>
-<p>In addition to the artwork, other floors of the building also displayed one-of-a-kind vehicles and the latest unpublished samples from famous research institutes. It was as if the entire building was a collection of everything known to be precious.</p>
-<p>In the middle of the room, a woman with a model-like figure, who was no less impressive than any of the artworks in the room, was standing and looking at something. That something was a map of Japan placed on a standing desk.</p>
-<p>,So there's a treasure in Akita?"</p>
-<p>A blonde woman wearing a black biker suit and a fancy black mask that covered her eyes muttered as she looked at the map of Japan. The black-suited woman slightly raised the corners of her lips, which were visible below her nose, and opened her mouth.</p>
-<p>,I might run into him by chance♥"</p>
-<p>Her identity was that of a famous phantom thief who had become well-known two years ago. She was called Phantom Thief François, and she was called by that name because she always left a note in French that said ,Je vais bien l'utiliser- Votre François (I'll put it to good use - Yours François)," after stealing something. It seemed that she was named after Eugène François Vidocq, a French phantom thief and detective who actually existed in the past.</p>
-<p>Phantom Thief François had never been caught by the police, but she had been caught on camera a few times. Because of her outstanding figure, which was captured at that time, she became a phantom thief with many fans all over the world.</p>
-<p>It was known that there were no outstanding works of art or precious artifacts in Akita Prefecture. However, the fact that Phantom Thief François was going to Akita Prefecture meant that there was definitely an outstanding treasure in Akita Prefecture.</p>
+<p>After finishing the assassination at Club Z, I pondered for a moment. Where should I go? I had no intention of attending Vanguard's boring meeting. And going to Han Yu-gyeong's empty house was also boring. I came all the way to Korea, it's a bit much to just stay at Han Yu-gyeong's house. Today is the second day I've been in Korea, though... Ah, it's past midnight, so it's the third day now.</p>
+<p>I took out my phone and sent a KakaoTalk to Han Yu-gyeong.</p>
+<p>Jin Yong-tae: I've completely taken care of the club stuff. When do you think the meeting will end?</p>
+<p>Han Yu-gyeong: You worked hard, was it tough? ㅠㅠ Hmm, the meeting will probably take an hour or two.</p>
+<p>Jin Yong-tae: Okay. I'll wander around near the house for a bit and go in on time.</p>
+<p>Han Yu-gyeong: Okay, and I'm sorry I'm so busy with work after you came to Korea 😭</p>
+<p>Jin Yong-tae: It's okay. I was involved too, anyway.</p>
+<p>Han Yu-gyeong: Okay...! It might be late, so don't wait up and just play and sleep~!</p>
+<p>Jin Yong-tae: Contact me if any unexpected situations arise.</p>
+<p>Han Yu-gyeong: Okay ❤️ Have fun~</p>
+<p>I hadn't really decided what to do. It was awkward to meet Ha Ju-yoon in just an hour or two... And Ha Ju-yoon would probably be asleep early for management purposes. She's so strict with her diet, her sleep management must be considerable too.</p>
+<p>Hmm... Well, since I came all the way to Korea, should I go take a look at the MegaCorp youngest son's appearance NPC? If I meet a major NPC, the story might change, so with a suitable character....</p>
+<p>Okay, I've decided! I decided to go see an NPC who is close to Han Yu-gyeong's house and doesn't affect the story. I caught a taxi.</p>
+<p>"Please go to Korea University Station Entrance."</p>
+<p>"Yes, we'll be there soon."</p>
+<p>I told him my destination and got in the taxi. Hmm, it's 2053, but it's still a mileage meter with a running horse...! But why is the horse's leg movement so fast? If a horse actually ran that fast, we wouldn't need a car, would we?</p>
+<p>Even though I had a lot of money, I was mesmerized by the horse screen moving on the meter. As I was watching it in a daze, I arrived at my destination before I knew it.</p>
+<p>"It's 38,000 won."</p>
+<p>I paid by putting my card on the card reader near the door I was getting out of and opened the door. Korea University Station Entrance was right there.</p>
+<p>Getting out of the taxi, I went straight down to the Korea University Station Entrance underground. And I found a restroom in the corner. I went into the disabled restroom, not the men's or women's restroom, and pressed one side of the wall as I remembered, and a scanning device appeared. I took out my phone, turned on the Dark Merchant app, displayed the authentication screen, and held it up to the scanning device.</p>
+<p>Whether the authentication was successful or not, the wall opened smoothly with a swoosh sound. This was the Dark Merchant's Seoul branch. Entering the entrance, there weren't many people walking around. Most of them were people buying goods at the counter and going to pick them up.</p>
+<p>To be able to do offline transactions like this, you had to be invited and raise your rank by using a certain amount of points in the Dark Merchant app. The reason for using such a complicated method was, of course, because it was a Dark Merchant, that is, a black market. It was a place that sold things that were not allowed to be bought and sold without paying taxes.</p>
+<p>Recently, I had been hoarding glasses from the ruins, so I had used a lot of points and was promoted from a regular member to a plus member who could do offline transactions. After that, I came to Korea almost immediately, so this was my first offline transaction.</p>
+<p>The next step was to become a Diamond member who could attend Dark Merchant auctions, and rare items often came out at auctions, so it was good to become a Diamond member quickly. If there's anything good in today's offline transaction, I should buy it quickly and raise my rank.</p>
+<p>Of course, I wouldn't buy things I don't need just to raise my rank... There are so many amazing things that I end up buying them without realizing it.</p>
+<p>I went to a counter. At the counter sat a beautiful woman with pink and white mixed hair with an angel ring on her head. Her name was Eve. She was an artificial intelligence Ai, the NPC I was going to see. Because it was a single artificial intelligence Ai connected to the whole world, she would recognize me even if I met her here and went back to Tokyo.</p>
+<p>"Hello, Ryuta-nim. Is this your first time visiting for an offline transaction?"</p>
+<p>She must have scanned me at the entrance, so she said my name right away. It was a natural voice that you couldn't think of as artificial intelligence, a cheerful and cute girl's voice. In fact, she looked very real, but Eve's appearance right now was a hologram. So, of course, Eve was not a target for capture, and users who liked Eve said that the MegaCorp youngest son who couldn't capture Eve was a shitty game.</p>
+<p>Of course, there were many people who criticized the minority who desperately shouted, "Please let Eve be captured!" as machine-fucks.</p>
+<p>"Yes, I would like to see the Seoul branch's catalog."</p>
+<p>"Okay! I'll show you the catalog, Ryuta-nim."</p>
+<p>The catalog screen that Eve unfolded appeared before my eyes. Oh, the Seoul branch had quite a few items. Let's see... What's good to buy? If I spend all my time turning pages because there are too many...</p>
+<p>"Is it hard to choose?"</p>
+<p>"Um, could you narrow it down to elixirs, weapons, and valuable books?"</p>
+<p>"Okay! Please wait a moment!"</p>
+<p>As expected of a high-performance Ai, a moment was about 0.01 seconds. After saying, "Please wait a moment!" the catalog screen that Eve had narrowed down immediately appeared.</p>
+<p>"Um...!"</p>
+<p>First, I put the Juangwa that I saw right away in my shopping cart. There were so many people who wanted to buy it that it was sold as soon as it came out, so it was lucky that it was here. There were two, so I put both in my shopping cart.</p>
+<p>In Dark Merchant offline transactions, it was important to put things in your shopping cart as quickly as possible because once I put them in my shopping cart, other people couldn't buy them.</p>
+<p>"You're lucky. Those two Juangwas are the last Juangwas left in Korea."</p>
+<p>"It's really lucky that there are two left."</p>
+<p>"Recently, a herbalist discovered a Juangwa tree colony, and it was a complete jackpot. So the Korean branch was hot for a while. Rich women from all over the world came to Korea."</p>
+<p>Until then, I hadn't been able to get this kind of information because I was a regular member of the Dark Merchant, but now that I was a plus member, I could get good information while talking to Eve. Eve was famous for giving quite high-level information, although there was a prerequisite that I had to meet Eve often.</p>
+<p>The next thing I chose after Juangwa was a swordsmanship book called Goksan Wave Wind Sword Technique. In my memory, it was a fairly high-level swordsmanship book, so I put it in my shopping cart to give to a colleague or subordinate who uses swordsmanship later.</p>
+<p>There weren't any special weapons. Korea had strict legal regulations, so the market itself was small, so it seemed difficult to get good weapons. Of course, there were general firearms as much as there were Dark Merchants, but they weren't something I would buy.</p>
+<p>"Oh!"</p>
+<p>There was a fist technique book! I wanted to give a martial arts book to Kiyohira or Mimata Chieri, but there was a fist technique book... I was lucky today.</p>
+<p>Eight Extremities Immortal Form Fist... The name itself sounded strong. Of course, I would have to check the item window directly after receiving it, but it seemed to be a fairly high-level martial arts book.</p>
+<p>I put the Eight Extremities Immortal Form Fist in my shopping cart last.</p>
+<p>"Please calculate now."</p>
+<p>"How would you like your items? Should I ship them to your registered address? Or would you like to take them with you?"</p>
+<p>Hmm, if I take the old books on the plane, it could be a problem with cultural property smuggling if I get caught, so I should just ship them through the Dark Merchant route.</p>
+<p>"Please give me just one Juangwa directly, and deliver the rest to my registered address."</p>
+<p>"Yes! It's a total of 1,507,237 points!"</p>
+<p>I'm glad I charged it when I was hoarding glasses from the ruins. Otherwise, I would have been short a lot. Since 1 point is 1 dollar, it was roughly a little less than 2 billion won. Looking at the receipt, Juangwa accounted for the largest portion of the price.</p>
+<p>"Then please pick up your items at counter number 3~! Thank you for using our service!"</p>
+<p>Eve smiled brightly and waved at me. Somehow, seeing that, I could sympathize with the machine-fucks a little.</p>

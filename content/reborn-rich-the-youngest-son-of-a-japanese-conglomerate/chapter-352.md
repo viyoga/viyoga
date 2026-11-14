@@ -5,98 +5,76 @@ weight = 352
 chapter = 352
 +++
 
-<p>Saionji Diana opened her eyes. The ceiling of a dark basement came into view. She seemed to be lying on her back, looking at the ceiling.</p>
-<p>'Did it go well?'</p>
-<p>Saionji Diana thought about raising her hand. But her hand didn't move. Could the surgery have gone wrong?</p>
-<p>"I tied up your hands because you're still recovering. You shouldn't try to move~!"</p>
-<p>Before Saionji Diana could panic, a lively girl with mixed pink and white hair, called Eve, came and put her hands on her hips, speaking as if scolding her.</p>
-<p>'I was trying to move, so did the surgery succeed...?'</p>
-<p>"Did the surgery succeed?"</p>
-<p>"Yes, it was a success. Your head isn't fixed, so turn your head and take a look."</p>
-<p>Saionji Diana turned her head and looked at her arm. It was strange. She definitely thought it would be a mechanical arm because it was a cyber implant, but it looked like a human's arm to anyone. That human arm was tightly bound with leather straps.</p>
-<p>"It looks real, right?"</p>
-<p>"Yes, it really looks like a cyber implant...."</p>
-<p>"You're asking if it is? Yes, it's a cyber implant using human skin that Ryuta-nim ordered directly this time. It's been lightened to attach the skin, so the performance is a bit lower, but it's detachable, so you can replace it with a high-performance cyber implant later when you need it."</p>
-<p>Saionji Diana understood that she had received a cyber implant procedure with new technology and nodded.</p>
-<p>"Are you... in a business relationship with the teacher?"</p>
-<p>"It's a business relationship and a transaction. Saionji-ssi, aren't you in a transaction relationship with Ryuta-nim too?"</p>
-<p>She was supposed to work for him for several years in exchange for the cyber implants in her arms and legs, so was she in a transaction relationship with Yamashiro Ryuta? No, Saionji Diana didn't think so, though she didn't know what Yamashiro Ryuta thought.</p>
-<p>Saionji Diana wasn't so shameless as to think of it as just a transaction. Without Yamashiro Ryuta's help, she would have been abandoned after graduation with only a low-grade cyber implant on one arm.</p>
-<p>She had been saved, so she couldn't just wrap it up as a transaction. Life could only be repaid with life.</p>
-<p>"It's not a transaction. Ryuta-ssi is my benefactor."</p>
-<p>"Hmm, that's not a lie. It's genuine."</p>
-<p>Eve said with a pleased expression. Saionji Diana didn't know how she could tell the truth from a lie, but she felt relieved that Eve understood her feelings.</p>
-<p>"First of all, to repay Ryuta-nim's kindness, the first thing to do is recover your body~♪"</p>
-<p>Eve smiled as she approached, holding four large-capacity syringes in each hand, which she had taken out from somewhere.</p>
-<p>"It's still in clinical trials, but it's a high-speed recovery agent!"</p>
-<p>"Clinical trials?"</p>
-<p>"Come on, come on. Be good, okay? It's a painless injection!"</p>
-<p>Eve quickly and accurately inserted the syringes into Saionji Diana's body. It was said to be a painless injection, but she felt a rather sharp pain.</p>
-<p>"Ah, it hurts!"</p>
-<p>"If it hurts, it's a sign that you're recovering~!"</p>
-<p>Indeed, she seemed to be feeling more active after the injection. She was feeling the sensation of her 'fingertips,' which she hadn't felt when she woke up.</p>
-<p>The sensation that she couldn't feel from the low-grade cyber implant was transmitted to her fingertips and toes.</p>
-<p>"You're definitely recovering. Is the medicine working well...? It's data worth watching. Then I'll scan you again."</p>
-<p>As soon as Eve finished speaking, Saionji Diana's body was being scanned by a machine installed in the ceiling, with a wiiing sound.</p>
-<p>Saionji Diana felt a sense of unease at the fact that the machine was moving as Eve thought, even though Eve wasn't operating it.</p>
-<p>She was feeling that way because she didn't know that Eve was an AI android yet.</p>
-<p>While Saionji Diana was feeling slightly confused, Eve released the leather straps that had been restraining Saionji Diana's limbs.</p>
-<p>"Now, try walking. Try running, waving your hands, and moving as much as you want."</p>
-<p>At Eve's words, Saionji Diana carefully got up. It was the first time she had walked in a year. But Saionji Diana's brain hadn't forgotten how to walk.</p>
-<p>Without any difficulty, Saionji Diana's feet stepped on the ground. Saionji Diana ran, waved her hands, and made various movements. Unlike human limbs, the limbs made of cyber implants allowed for sudden movements without stretching.</p>
-<p>'Is this what they mean by downgraded?'</p>
-<p>Eve said that she was preparing a detachable, much more powerful combat-type cyber implant, but she didn't feel any discomfort even now. Instead, she felt a slight emptiness, which was, of course....</p>
-<p>"I guess you need this, right?"</p>
-<p>Eve threw something as if she had read Saionji Diana's mind.</p>
-<p>"Let's just say this is my gift. Think of it as a favor for Ryuta-nim's employee."</p>
-<p>What Eve threw was a Japanese sword-shaped weapon. It was a tool made of steel, without the breath of a craftsman, with a steel scabbard and steel handle decorations completely excluded, solely for slaughter. The reason why she thought of it as a weapon rather than a katana was precisely because of this.</p>
-<p>But, she liked it.</p>
-<p>Saionji Diana drew the sword from its scabbard. The hard, sharp blade, lacking even the hamon unique to Japanese swords, and the silver blade that shone brightly enough to reflect her face, even seemed deadly.</p>
-<p>"Try swinging it once."</p>
-<p>As if Eve's words were a revelation, Saionji Diana immediately swung the sword. She heard a dull whoosh! sound. It was different from walking.</p>
-<p>This wasn't the sound. It was because she didn't have the memory of the muscles that had resided in her hands and legs, which had swung the sword tens of thousands of times. She couldn't yet unleash the same sharp sword strikes with the swordsmanship of her new limbs.</p>
-<p>"Show me that too. The cyber implant installed in Saionji-ssi now is a model that is also compatible with psychic powers, you know? We need to check it out because it might not work well since we did a lightweight custom."</p>
-<p>For a moment, Saionji Diana thought, how do they know about my ability? But she realized that Eve was affiliated with the Dark Business and misunderstood that someone in her family had sold Saionji Diana's ability as information.</p>
-<p>The power of wind that she had been able to control from some point on. She drew out the power of the Kamaitachi's dance and put it into the sword.</p>
-<p>"Hap!"</p>
-<p>When Saionji Diana swung her sword, an invisible wind blade flew forward as if shot out, cutting a rather expensive-looking machine in half.</p>
-<p>"Ah...!"</p>
-<p>"It's okay, I told you to use your ability, and it's not a big deal since we can collect data."</p>
-<p>Saionji Diana looked at Eve in surprise, but Eve smiled and said as if she was really okay.</p>
-<p>"Then, shall we talk about the results of swinging the sword? Tell me if something doesn't fit, like the arm length, or what's lacking, or if the output is different from usual when using your ability. It's faster to adjust it now."</p>
-<p>"Ah, then can I move around a few more times?"</p>
-<p>"Yes!"</p>
-<p>Since different sensations and movements were a big problem that could determine life or death in battle, Saionji Diana swung the sword carefully. This time, when she swung the sword with the wind blade ability, she used it on the dummy that Eve had brought.</p>
-<p>The dummy was sturdy, so it wasn't easily cut. It was only after several sword strikes that she was able to cut it in half.</p>
-<p>"Hmm, I feel a slightly long and uncomfortable feeling on my left arm. The right arm is...."</p>
-<p>This time, she moved her body while feeling the sensations of her whole body, so she felt the subtle, heterogeneous sensations that she hadn't felt at first and conveyed them to Eve as they were. Fortunately, there wasn't much difference in her ability to use the wind attribute.</p>
-<p>"The psychic power side has nothing to do with the part that is being lightened...! Good data! Saionji-ssi, would you like to do a part-time job?"</p>
-<p>"A part-time job?"</p>
-<p>Saionji Diana was surprised and asked back at Eve's sudden part-time job offer.</p>
-<p>"'We' couldn't figure out exactly which part of the product was related to psychic powers."</p>
-<p>'We'.... Is she talking about ordinary people who aren't psychics? Saionji Diana thought that and opened her mouth to Eve.</p>
-<p>"If I do this part-time job, will I be helping the teacher?"</p>
-<p>"Of course~! It's for testing products made by a company that Ryuta-nim is collaborating with~!"</p>
-<p>"Then I'll do it."</p>
-<p>"Let's adjust the schedule to fit Saionji-nim's situation. I sent the payment to your account for giving me information about the lightening today."</p>
-<p>As Eve spoke, Saionji Diana's phone, which was placed in a corner, rang. When she looked at the alarm screen, it said that 500,000 yen had been transferred to her account.</p>
-<p>'She just sent money with words. And yet she's not a psychic?'</p>
-<p>The misunderstanding was growing, but Eve wasn't aware of it. Eve approached Saionji Diana and was correcting the subtle sense of incongruity she had just heard.</p>
-<p>"Does it feel right?"</p>
-<p>"Just a moment."</p>
-<p>Saionji Diana moved her body again at Eve's words. It was much better than before. Saionji Diana smiled and nodded.</p>
-<p>"You have to tell me if you have any discomfort next time, okay? And you've been naked until now, so please put on some clothes."</p>
-<p>"Kyaa!"</p>
-<p>She was so excited that she could move her body properly that she was dancing with a sword without even putting on clothes. Saionji Diana screamed and quickly started changing her clothes.</p>
-<p>Saionji Diana, who had put on all her clothes, bowed to Eve.</p>
-<p>"Thank you, Eve-ssi. I'll be going now."</p>
-<p>"Shall I throw away the wheelchair for you?"</p>
-<p>"...Yes."</p>
-<p>At the words to throw away the wheelchair, Saionji Diana was able to recognize once again that she could walk. It felt strange. She felt like she was going to cry, but she also felt happy.</p>
-<p>Saionji Diana felt the solid ground with her feet instead of the wheelchair and resolved once again to repay Yamashiro Ryuta's kindness.</p>
+<p>"Ah, hellooo.... I'm Oofuchi Erika. Nice to meet you."</p>
+<p>Oofuchi Erika was wearing a school uniform, not the oversized shirt I saw her in at home, and was greeting her classmates. Her slightly curly hair was still the same, but it seemed she had tried to tidy it up a bit for her first day back, so it was more neat than when I first saw her. Oofuchi Erika's face was slightly flushed as she introduced herself, seemingly a bit shy.</p>
+<p>"Oofuchi-ssi wasn't feeling well and has only recently recovered, so please be nice to her."</p>
+<p>Instead of saying she'd been holed up doing the hikikomori thing for three years, saying she hadn't been feeling well until recently seemed better, so I discussed it with Director Daigo Terue and we decided to say it like this.</p>
+<p>"Here, sit here..."</p>
+<p>"Okay, thank you."</p>
+<p>Urabe Konoka, former daughter of an innkeeper, now daughter of a shrine, pointed to the empty seat next to her. After all, even though our class is a special class full of problem children, this is an all-girls school. There weren't any completely hopeless guys like in regular high schools or delinquent schools.</p>
+<p>"What do you think of her? Should I ask her to fight?"</p>
+<p>"Can't you tell just by looking? She's an indoor type. And she's been sick recently, so you'll probably fold her in half, right?"</p>
+<p>Of course, there were Kujo Kina, who loves martial arts too much, and Otagi Yuka, who gets along well with her, but even though they're rough, they're not bad kids... Right?</p>
+<p>"Study hard today too... See you at the end-of-day assembly."</p>
+<p>After successfully introducing Oofuchi Erika to the kids at the morning assembly, I returned to the teachers' lounge. I put the attendance book on the desk and headed to the nurse's office. Since we've become sex friends of sorts, I should tell Kijimoto Jurie-ssi that I'll be away from today until the weekend. That I can't lend her my dick for the weekend.</p>
+<p>"Jurie-ssi."</p>
+<p>"Oh my, Ryuta-ssi. Are you eating lunch at school today?"</p>
+<p>I answered Kijimoto Jurie-ssi's question and reached out to touch her butt. But Kijimoto Jurie-ssi slapped my hand away from her butt and gestured to one side with her eyes. Naruse Shiyo was lying down where Kijimoto Jurie-ssi gestured, looking over here.</p>
+<p>"Naruse, are you not feeling well again today?"</p>
+<p>"Yes, sensei. I'm not feeling well today."</p>
+<p>Naruse Shiyo, who has the nickname "sickly girl" that I gave her, frequents the nurse's office and is absent twice a week.</p>
+<p>"Let's have a meeting later when you feel a little better."</p>
+<p>"Yesss..."</p>
+<p>If Naruse Shiyo suddenly collapses and can't get up again, it wouldn't be pleasant for me either, so I should talk to her and have her undergo some bio-modification. I thought I could ask Mimata Chieri about bio-modification.</p>
+<p>"Kijimoto-sensei. I came to the nurse's office to tell you that I'll be away for the weekend, so you won't be able to reach me if you need to contact me about work."</p>
+<p>"I see. That's too bad..."</p>
+<p>Because Naruse Shiyo was there, I couldn't say, "Even if you get horny over the weekend, I won't be here to help you," so I just said it appropriately. Kijimoto Jurie-ssi nodded with a disappointed expression, understanding. I left the nurse's office and headed straight to the Director's office this time.</p>
+<p>Even though I had sex with Daigo Terue because of her misunderstanding, I enjoyed Daigo Terue's body, so I should tell her that Oofuchi Erika came to school and about my weekend schedule. I went to the faculty building and stood in front of the Director's office on the top floor. And knocked.</p>
+<p>Knock knock knock!</p>
+<p>"Who is it?"</p>
+<p>"It's Yamashiro Ryuta."</p>
+<p>"....Come in."</p>
+<p>When I opened the door and went inside, Daigo Terue was sitting in a suit, handling 업무. It was still a tight, uncomfortable-looking suit, but maybe because I cleaned the pussy she had spiderwebs in yesterday, she had a subtle sexiness flowing around her.</p>
+<p>To think she's still single with that body, it didn't suit the prestigious Daigo family, but maybe she was able to become the Director of St. Francisco Girls' Academy because she was single.</p>
+<p>"First of all, Oofuchi-yang came to school well. The kids in the class are nice, so they won't bully her."</p>
+<p>"That's.... a relief."</p>
+<p>Daigo Terue's expression seemed to say, "The kids in the special class are nice?" but if that logic were true, Oofuchi Erika would also be a bad girl, so she didn't seem to say it out loud.</p>
+<p>"And it might be a story that's not really relevant, but I won't be in Miyashi over the weekend."</p>
+<p>"Why are you telling me that? ...But why are you leaving?"</p>
+<p>She said, "Why are you telling me that?" but then she asked me why, as if she was curious. She looked like she was wondering if I was meeting a woman, which made her even cuter.</p>
+<p>"My younger sister got a job at the Taira Group, so I'm going to the Taira Group's Human Resources Development Center to see her."</p>
+<p>"Congratulations on getting into the Taira Group."</p>
+<p>"So I'm a little sad that I won't be able to see Director-nim over the weekend..."</p>
+<p>Knock knock knock!</p>
+<p>When I was about to stroke Daigo Terue's shoulder, there was a knock. Daigo Terue looked at me with a mixture of regret and relief, and then opened her mouth to the person on the other side of the door.</p>
+<p>"Who is it?"</p>
+<p>"It's Yamamoto."</p>
+<p>"Come in."</p>
+<p>The man who came in was an ordinary-looking middle-aged man. Yamamoto... I think there's an administrative staff member with the last name Yamamoto...</p>
+<p>I didn't have anything else to say, so I took the hint, said hello, and came out. It seemed like the Director's position was too busy for secret meetings.</p>
+<p>That's too bad. I failed to have sex in the nurse's office and sex in the Director's office, which were both romances in school stories. Well, if I look at this situation positively, it means I can focus more on Yukiko, who must be starving.</p>
+<p>I decided to aim for the next opportunity and returned to the teachers' lounge, spending the day as usual. I had lunch with Kijimoto Jurie during lunchtime, and after lunch, I chatted with the students who came to the teachers' lounge, took care of basic tasks, and before I knew it, the end-of-day assembly time was approaching.</p>
+<p>"I did well today, right?"</p>
+<p>"Yesss~!"</p>
+<p>Seizawa Shii, who would normally have said something, was quiet, perhaps because of what happened at the laundromat yesterday. After all, even though she's dressed as a gyaru, she seems to be a pure young lady inside.</p>
+<p>"I won't be in this town over the weekend, sensei, so don't cause any trouble."</p>
+<p>"Kyahaha! Are you going to train for a sparring match with me?"</p>
+<p>Kujo Kina laughed and said that to my words, but if she rolls around on the white sand in front of her friends on a picnic, she'll come to her senses.</p>
+<p>"Konoe, as the club president, please explain well to Oofuchi."</p>
+<p>"Don't worry, sensei."</p>
+<p>I asked Konoe Akina, the president of the Date Experience-Meditation Club, to take care of Oofuchi Erika, and then finished the end-of-day assembly and left the classroom.</p>
+<p>It's a two-hour drive to Tokyo, so I had to hurry and leave before I got caught in the even worse rush hour. I didn't even stop by the teachers' lounge and left the building right away. I had prepared in advance, so I didn't need to stop by the preparation room.</p>
+<p>I was worried that the kids would come and go to the teachers' lounge to eat ice cream and not close the door, so I posted a message in the group Line chat room to make sure they closed the door.</p>
+<p>Immediately, a lot of signals came and replies lined up. They're really energetic.</p>
+<p>I replied to the Line messages, arrived home, threw my bag down, and immediately got in the car. I could take a shower there, and I hadn't sweated much because I had been inside with the air conditioner on all the time.</p>
+<p>I put on a song that suited the late summer and drove the car. It's the end of the second week of September, so autumn will start soon. Hmm, so is that why they're going on a picnic at this time? In a way, it feels like an autumn picnic.</p>
+<p>Miyashi was a city west of Mount Fuji, so I had to go around to the north or south, but going north was a little closer. It was about 3:15 PM now, so there was no traffic.</p>
+<p>The car sped along quickly. Before I knew it, I could see the downtown area of Tokyo, and I went to the underground parking lot of a small commercial building in the downtown area of Tokyo that I had decided on when I was going to do this. Because there were eyes around, I couldn't go straight to the Human Resources Development Center, so I decided to use this building as an intermediate stop.</p>
+<p>For reference, this commercial building was in Yamashiro Ryuta's name. Since this can be said to be in my name, I will be able to use it often even after the mission at St. Francisco Girls' Academy is over.</p>
+<p>I came out of the parking lot and headed to the hotel where I had promised to meet Yukiko. Since I won't be able to see her at the Human Resources Development Center for a few months, I'll have to keep meeting her at the hotel.</p>
+<p>The hotel was, of course, a hotel famous for its security. It was a hotel with American capital that even Minamoto and Taira's informants couldn't easily come to.</p>
+<p>"I'm Yamashiro Ryuta, who made a reservation from today until Sunday."</p>
+<p>"Confirmed. You can go to room 1203."</p>
+<p>I took the key and went up to the 12th floor. The room was quite large, probably because I had reserved a suite room. I lay down on the bed and spent some time. 5:00...20 minutes. I arrived quite early. Yukiko will be here in a little while. It's only been three weeks, but it feels like it's been a really long time since I've seen her.</p>
 <p>----</p>
-<p>Leggings home teacher requested by Altenia-nim!</p>
-<p>Running!</p>
-<p>Showing off my butt!</p>
-<p>The front is good too~!</p>
-<p>I changed the home teacher model, and personally, I like it more, hehe.</p>
+<p>Succubus Yukiko after a long time!</p>

@@ -5,63 +5,85 @@ weight = 441
 chapter = 441
 +++
 
-<p>Tokyo International Airport.</p>
-<p>A man got off a plane from New York to Tokyo. A white man with his blonde hair slicked back with pomade and wearing sunglasses, he was dressed in a stiff suit and had tattoos with magical meanings on the backs of his hands and knuckles.</p>
-<p>"How can it be this hot at the end of September?"</p>
-<p>The sunglasses-wearing man pulled at his tie nervously as he walked. When he saw the smoking area, he took out a cigarette from his pocket and put it in his mouth.</p>
-<p>Even in humid Japan, the heat usually subsides by the end of September, making for pleasant weather, but this year was particularly hot. It was perhaps natural that the man, who had come to Tokyo from New York where it was just starting to cool down, was getting on edge.</p>
-<p>As the sunglasses-wearing man was smoking, a huge bald black man and a Latino-looking man in suits rushed over. Seeing them dragging large bags, it seemed they were a bit late because they were taking care of the luggage.</p>
-<p>"Again! You came without packing your luggage because you wanted to smoke?"</p>
-<p>"We wasted time taking care of the team leader's luggage."</p>
-<p>The black man spoke in agreement to the Latino man's words. The blonde sunglasses-wearing man frowned, his eyebrows showing above his sunglasses, and blew out cigarette smoke. Then, he threw the cigarette into the public ashtray, came out of the smoking area, and opened his mouth.</p>
-<p>"You know very well it's not just a cigarette."</p>
-<p>"Who would believe that a human drinks fire?"</p>
-<p>"Then you believe in vampires?"</p>
-<p>The blonde sunglasses-wearing man was a famous pyromancer and vampire hunter in the American underworld. His trademark was his pomade-slicked hair, sunglasses, and the cigarette in his mouth, which he used as an excuse that he needed to drink fire to use his abilities, which is why the Latino man was scolding him. Only the blonde sunglasses-wearing man would know if that story was an excuse or the truth.</p>
-<p>"I've seen vampires directly. I've even killed them... I've seen the team leader use fire even when he's not smoking, so that's why I said something."</p>
-<p>"Ángel, stop it. The team leader has probably understood by now."</p>
-<p>The Latino man, called Ángel, was about to say a few more words but stopped at the black man's dissuasion. The blonde sunglasses-wearing man, called team leader, smirked at the sight and moved his feet.</p>
-<p>"Let's go. Someone who came to pick us up will be there."</p>
-<p>"The person who knows we're waiting is smoking as soon as he gets off?"</p>
-<p>"Ah, I have to drink fire. This place is no different from enemy territory, so I have to prepare in advance."</p>
-<p>"We couldn't bring weapons because of the plane, so let's hurry up and get ready."</p>
-<p>Talking about something ominous like enemy territory and weapons, they walked and soon went to a corner of the Tokyo International Airport parking lot. In the parking lot, there was a Japanese man leaning against a heavy vehicle, a Hummer H1. He was a tall, thin man, also wearing a black suit. With a smiling face, he had an unremarkable impression that you wouldn't be able to distinguish him if he was mixed in with the crowd.</p>
-<p>"Are you from the New York branch?"</p>
-<p>"That's right. I'm team leader Jack Henderson."</p>
-<p>The blonde sunglasses-wearing man, Jack Henderson, held out his hand. The Japanese man who was waiting also held out his hand and they shook hands. The others also shook hands and greeted each other.</p>
-<p>"I'm Ángel Ramírez."</p>
-<p>"I'm Malik Lieberman."</p>
-<p>"I'm Ankoji Satoi."</p>
-<p>After everyone greeted each other, they got into the Hummer that Ankoji Satoi was leaning against. There was a duffel bag in the car, and when the black man, Malik Lieberman, turned the duffel bag upside down and poured it onto the floor, pistols and submachine guns poured out.</p>
-<p>"Are there no sniper rifles?"</p>
-<p>"The sniper rifle is in the trunk."</p>
-<p>Ankoji Satoi started the engine while talking about the sniper rifle as if there was more to eat in the back seat.</p>
-<p>Keolkeok, keolkeok!</p>
-<p>While Ankoji Satoi was starting the engine, Ángel Ramírez and Malik Lieberman inspected the guns, aiming and loading them. Jack Henderson sat comfortably in the passenger seat, looking ahead.</p>
-<p>"Are there bullets prepared too?"</p>
-<p>"They're under the seat. Most are silver-plated bullets, and each cartridge contains about thirty mithril-coated bullets. As you know, please use the mithril-coated bullets sparingly. They're 2,200 yen per bullet. I'll get scolded if you use them all for something trivial."</p>
-<p>"We don't even get mithril-coated bullets. I wonder where they use all that money..."</p>
-<p>When Ankoji Satoi said that, Ángel Ramírez and Malik Lieberman looked under the seat and saw khaki-colored cartridges. When they opened the cartridges, they were full of magazines filled with silver-plated 5.56mm bullets, which had silver-plated warheads that were effective against transformed humans like vampires and werewolves, and one magazine was filled with silver-blue mithril-coated bullets that Ankoji Satoi told them to use sparingly.</p>
-<p>"By the way, I only heard that I had to pick you up, so I don't know exactly why you're here... Ah, of course, it's because of vampires. But I don't know why even the New York branch people came. Can you tell me?"</p>
-<p>"Ángel, you like to talk, so you tell him."</p>
-<p>At Ankoji Satoi's words, Jack Henderson, who was sitting in the passenger seat, glanced at Ángel Ramírez and said.</p>
-<p>"Team leader Jack! Ankoji-ssi will think I'm a chatterbox if he hears that. But since Ankoji-ssi is curious, if I tell you the story briefly, it started a year ago, last summer."</p>
-<p>Ángel Ramírez clearly denied being a chatterbox, but he seemed to like talking. The story that came out of Ángel Dayardo's mouth was about a young vampire who had been at war with the Black Moon Company in New York since a year ago. He told the story of how the Black Moon Company's New York branch was recently annihilated and the vampire had won.</p>
-<p>"Although there was some help, that vampire girl eventually got her revenge. Well, ordinary people would say it's good that the gang collapsed, but Ankoji-ssi knows very well, right?"</p>
-<p>"That's right. In the end, she broke the agreement that ordinary people don't know about."</p>
-<p>When Ángel Ramírez talked about ordinary people, Ankoji Satoi, who was driving, also nodded. They were all affiliated with the same organization, so they were talking while sympathizing with each other.</p>
-<p>Jack Henderson, Ángel Ramírez, Malik Lieberman, and Ankoji Satoi were vampire hunters belonging to the SPF (Silver Pail Federation). It was a vampire hunter federation to which vampire hunters from all over the world belonged, and its main mission was to protect humans from vampires and werewolves.</p>
-<p>The SPF had agreements with several vampire organizations, one of which was the Japanese Otagi family. The agreement was that the SPF would not attack the Otagi family in exchange for the Otagi family not harming ordinary people.</p>
-<p>Several old European vampire families were also members of this agreement, and SPF agents were either dealing with naturally occurring vampires and werewolves, or executing vampire forces that refused the agreement and vampires that broke the agreement.</p>
-<p>This time, Otagi Yuka causing a big accident in New York was also a violation of the agreement. Annihilating the Black Moon Company alone was also a violation of the agreement.</p>
-<p>The Kurotsukido branch in New York, which Otagi Yuka annihilated, was a company in Japan, but on the other side, they were villains no different from gangs, but from the SPF's point of view, they were ordinary people. Some minority of vampire hunters argued that gangs and ordinary people were not the same, but the faction that was currently in control of the SPF was the faction that claimed that even gangs of fundamentalists were ordinary people, so that opinion was ignored.</p>
-<p>In conclusion, since the origin of the incident caused by Otagi Yuka was New York, three agents were dispatched from the New York branch. As dispatched agents, all three boasted excellent skills.</p>
-<p>"I've heard rumors about you, but with only three people, you won't be able to eliminate the Otagi family, and you're only thinking of dealing with Otagi Yuka, who started the work."</p>
-<p>"That's right. To erase the Otagi family, which has established power in Japan, half of the SPF agents from all over the world would have to come. It's impossible with just the three of us."</p>
-<p>"That's right. Other forces wouldn't like the SPF doing work in Japan, so there would be invisible pressure."</p>
-<p>Ankoji Satoi nodded at Jack Henderson's words.</p>
-<p>In Japan, which has worshiped many gods since ancient times, vampires have also become objects of faith as a form of god, and the Otagi family was no different. Their mysterious appearance, powerful strength, and the act of drinking blood, the source of life, became objects of faith, and the Otagi family gathered strength based on that.</p>
-<p>Unlike other vampire families or forces, the moderate Otagi family, which has never committed massacres, has successfully become part of the vested interests in modern times. If the Otagi family were to be attacked on a large scale, other vested interests in Japan would likely perceive it as foreign forces attacking a Japanese family.</p>
-<p>"That can't be helped. First, we have to warn the Otagi family. If they interfere with dealing with Otagi Yuka, they will also become a target of the SPF."</p>
-<p>"We should warn the Otagi family in advance. Ah, we've arrived!"</p>
-<p>Ankoji Satoi pointed to one side with his hand. It was a shabby building on the outskirts of Tokyo. It was a shabby building on the outside, but it was a tiger's den where hundreds of vampire hunters were waiting.</p>
+<p>Since it was Otagi Yuka's first insertion while conscious, she showed a dramatic reaction.</p>
+<p>It was her first experience having a thick meat stick enter her body, and the feeling was so good that she writhed, enduring the pleasure. Her pussy also chewed on my dick more eagerly than before when she was unconscious.</p>
+<p>"Ah...! What is this, Sensei-ssiii...! It feels good, it's weird...! Ahht♥"</p>
+<p>Having underestimated the pleasure of sex, Otagi Yuka, experiencing unexpected ecstasy, began to moan as if she hadn't expected this. To show her a little more of the taste(?), I decided to use my Black Mireuk Ball to the fullest to please Otagi Yuka. Since I'm in a slightly misunderstood situation, I should raise her favorability now so she won't say anything later.</p>
+<p>"Aht! Ah, a-ahng, it's weird, stop, hht! It's weird so stooop...♥"</p>
+<p>As I worked harder, Otagi Yuka, unable to withstand the onrushing pleasure, started pushing my body away with her hands, saying stop, stop. But there was no strength in her pushing. Does this mean she wants more?</p>
+<p>"Haaahng...! Stooop, I'm getting, hht! I'm gonna get weird...!"</p>
+<p>"Don't resist, just accept it. It'll definitely feel better."</p>
+<p>"Hheung, here♥ Feel even more... Haaahng! Better...? Hheuunghht! I seeee... I'll accept it, haht!"</p>
+<p>When I told her not to think it's weird since it's her first time experiencing this pleasure and to just accept it, Otagi Yuka said she understood and hugged my body. The feeling of her breasts being pressed against me and the close contact of skin against skin felt pretty good.</p>
+<p>Otagi Yuka, having declared that she would accept the pleasure, changed surprisingly actively, changing positions as I directed and accepting my dick.</p>
+<p>Otagi Yuka's active attitude added to my excitement, and even though it hadn't been long since I came, I quickly started to feel like I was going to cum again. Otagi Yuka, being a vampire with excellent senses, seemed to sense my coming and clung to me even more.</p>
+<p>"Hheuunng! It's getting bigger and bigger inside...♥"</p>
+<p>"I'm cumming...!"</p>
+<p>"Haht! Sensei-ssi's euheung, put your recovery fluid inside me...!"</p>
+<p>I pressed my waist as close as possible, just like before, so that Otagi Yuka could recover as much as possible, and started injecting semen into Otagi Yuka's womb.</p>
+<p>Byuut! Beut! Beut!</p>
+<p>"Sensei-ssi's recovery semen, hht! It's hot...! It feels so goooood♥"</p>
+<p>This time, I ejaculated even more than before when I was doing it alone with an onahole. As expected, sex isn't something you do alone, but something you do with two people, and if you match each other, the excitement increases.</p>
+<p>After finishing one round of sex, we hugged each other for a while. When Otagi Yuka, who was breathing heavily due to the pleasure after sex, calmed down a bit, I raised my body and pulled out my dick.</p>
+<p>Again, no semen flowed out. Does she store all the fluids that enter her body because she's a vampire? How fascinating....</p>
+<p>I raised my body and looked at Otagi Yuka, who was still feeling the afterglow of pleasure with her legs spread.</p>
+<p>Her pale skin was completely radiant, and the ends of her hair, which had been contaminated by the mercury elixir and were turning into a dull silver-gray, had returned to their glossy red color as if nothing had happened.</p>
+<p>"You've recovered, right? Look at your hair too. It's back to its original color from silver-gray."</p>
+<p>"Not yet...."</p>
+<p>"Huh?"</p>
+<p>Otagi Yuka muttered quietly at my words. I couldn't hear her properly, so I asked back, "Huh?"</p>
+<p>"I don't know if I've recovered yet, so heal me one more time."</p>
+<p>Ah.... I see. She seems to want to do it one more time because she feels good, even though she's recovered. Judging from her attitude earlier, she would have definitely said something to me if she hadn't recovered, so the recovery effect was definitely proven.</p>
+<p>"I'd appreciate it if you asked a little more politely?"</p>
+<p>"Eek...!"</p>
+<p>Otagi Yuka, realizing that her thoughts had been exposed by my teasing expression, bit her lip and then opened her mouth with a flushed face.</p>
+<p>"Please put the medicine into my wet insides with Sensei-nim's thick syringe♥"</p>
+<p>Otagi Yuka, a cool woman who usually calls me Sensei-ssi, is acting so cute.... Sex is amazing after all. As a teacher, I decided to grant my student's request.</p>
+<p>###</p>
+<p>SPF New York Branch Branch Manager's Office.</p>
+<p>Allen Matthews, the head of the SPF New York branch, was sitting at a frugal desk, which was unbecoming of his position as the head of the New York branch in the large city of New York, and was working. Due to the nature of New York, which is called a Demon Realm, there were many monsters in the back alleys and night streets, including vampires and werewolves, who were enemies of the SPF, so the workload of the New York branch manager was enormous.</p>
+<p>Dealing with such supernatural enemies inevitably involved numerous damages, and one of the SPF branch's missions was to repair and prevent them. There were endless things to do, such as erasing the memories of swept-away civilians, apologizing to or putting pressure on related organizations, and advocating the necessity of the SPF to social leaders and receiving support.</p>
+<p>Recently, a werebeast called a Ratman appeared in the middle of New York and attacked passersby indiscriminately, so they had a very hard time dealing with it.</p>
+<p>Knock knock!</p>
+<p>"This is Jensen."</p>
+<p>"Come in."</p>
+<p>Branch Manager's secretary Jensen knocked and came in. Judging from Jensen's bad expression as he entered the branch manager's office, he didn't seem to be bringing good news.</p>
+<p>"What's going on?"</p>
+<p>"I have two pieces of news. The first is a message from the Tokyo SPF branch. Since no one had contacted them even after the battle time was over, they dispatched agents and found the bodies of 200 people who had been dispatched from the Tokyo branch, including the extermination team 1 that was dispatched this time."</p>
+<p>"What? Does that mean Jack is dead too?"</p>
+<p>"Yes. The leader of extermination team 1 has also been found dead."</p>
+<p>Allen Matthews frowned at the unwelcome news. Jack Henderson, the leader of extermination team 1, was an outstanding talent he was considering as his successor. Countless vampires and werebeasts had their heads cut off in front of Jack Henderson, and Allen Matthews also liked his strong stance against monsters like vampires, so he was quite disappointed that he was found dead on this mission.</p>
+<p>"Was our target so great that he killed 200 people, including extermination team 1?"</p>
+<p>"Analyzing the traces of the bodies, it seems that he didn't do it alone, but had several companions."</p>
+<p>The fact that he said several companions meant that there were less than ten of them, and the fact that that number annihilated over 200 SPF teams was a big deal for Allen Matthews. It meant that a great demon that would become a great threat to humanity in the future was growing in power in the island nation of the Far East.</p>
+<p>"Dispatch an additional extermination team."</p>
+<p>"That's.... It would be fine if it was just once like now, but if we continue to dispatch agents like this, the Tokyo branch will think we are interfering. There is also the promise of a war with the Otagi family, and...."</p>
+<p>"And?"</p>
+<p>Allen Matthews frowned at his secretary Jensen's dissenting opinion, but he couldn't say anything because it was a convincing opinion, and urged him to continue with the next content of "and."</p>
+<p>"The second piece of news is.... Headquarters has contacted us to stop the attack on Otagi Yuka."</p>
+<p>"What the hell are you talking about!"</p>
+<p>Bang!!</p>
+<p>Allen Matthews shouted and hit the desk, splitting it in half and causing the computer, books, and writing utensils on the desk to fall to the floor. Allen Matthews was also a vampire hunter who had defeated numerous monsters, so his physical abilities were also enormous.</p>
+<p>It was nothing for Allen Matthews' strength to break a desk, and he often broke desks when he was angry, so he was using cheap products instead of expensive desks.</p>
+<p>"I got excited again...! I'm sorry. Can you explain in detail?"</p>
+<p>"Yes. First, if you look at this screen...."</p>
+<p>Jensen played a video on a screen attached to the wall. It showed a red-haired girl in a museum fighting a knight in black armor and a strange man with a black scythe.</p>
+<p>"The red hair must be our target, Otagi Yuka, and who are the one in armor and the one with the scythe?"</p>
+<p>"I don't know who they are, but the armor is a Death Knight. And the one with the scythe is said to be a Necromancer."</p>
+<p>At Jensen's words, Allen Matthews immediately understood what this video meant. The two fighting Otagi Yuka were also enemies of the SPF, like vampires, undead and necromancers who controlled the undead.</p>
+<p>"Those two must belong to the Black Moon Company?"</p>
+<p>"That's right. This video is a direct rebuttal of our New York SPF branch's claim that she killed a civilian."</p>
+<p>From the beginning, the New York branch's claim was wrong, and Otagi Yuka belonged to the Otagi family, which was subject to the agreement, so she should not be attacked. It wasn't Otagi Yuka who was claiming this, but the headquarters, so Allen Matthews couldn't ignore the headquarters' orders.</p>
+<p>"Damn it...! Then there will be no additional dispatch, and in that case, should we rather compensate the Otagi family?"</p>
+<p>"I don't think so. The Otagi family also agreed to end this matter with a war in our story, so if we push that promise, we don't have to compensate."</p>
+<p>"Contact the legal team and have them come up with a flawless story. If our resources go to the vampire side, we will become weaker and they will become stronger, so that should never happen."</p>
+<p>"I understand. However, we may have to compensate the civilians who were harmed by us."</p>
+<p>Allen Matthews waved his hand at Jensen as if to say, "Do it yourself," as if he was annoyed. Jensen bowed to Allen Matthews and said, "I will send a cleaner," and then left the branch manager's office.</p>
+<p>"I'll let it go for now, but there will be another opportunity...."</p>
+<p>Allen Matthews muttered quietly to himself. He thought that Otagi Yuka was a dangerous vampire who would threaten humanity someday, so he was not going to give up on killing Otagi Yuka.</p>
+<p>While Allen Matthews was looking forward to the next time, at the same time, Otagi Yuka in Japan was clinging to her homeroom teacher with a joyful expression.</p>
+<p>"Sensei-niim!! Semen is delicious...! More delicious than blood♥"</p>
+<p>------</p>
+<p>Otagi B-cut!</p>
+<p>Cut because the breasts came out bigger than the setting!</p>
+<p>Cut because the steam was strangely big in the illustration of being impaled by a dick!</p>

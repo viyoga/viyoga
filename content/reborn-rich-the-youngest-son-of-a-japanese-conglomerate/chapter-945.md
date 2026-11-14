@@ -5,64 +5,85 @@ weight = 945
 chapter = 945
 +++
 
-<p>""Rock, Paper, Scissors~!""</p>
-<p>The two's choice to gain priority in checking the Status Window was Rock, Paper, Scissors. In Alik's eyes, as she prepared for Rock, Paper, Scissors, lightning flowed, and Konoe Akina's eyes also emitted a red glow, suggesting Alik was using Acceleration on her Nerves, and Konoe Akina was using the Petrification Demonic Eye to stop Alik.</p>
-<p>""Paper!""</p>
-<p>The result was Konoe Akina's victory, as she threw a fist (Rock). Alik seemed shocked when her Nerve Acceleration was blocked by Konoe Akina's Demonic Eye. It was a sight that showed just how much of a cheat it was to be able to exert an Ability just by keeping someone in her Field of Vision.</p>
-<p>"Alik, you lost...."</p>
-<p>Alik muttered with a dejected Expression, looking at the Scissors she had thrown. Of course, if it had been a real battle, Alik would have started by frying her with electricity in such close proximity, so Konoe Akina wouldn't even have been able to unleash the Authority of her Demonic Eye, but this Match was a game of Rock, Paper, Scissors where no harm could be inflicted on the Opponent.</p>
-<p>Konoe Akina, who could keep her Opponent in her Field of Vision without worrying about being attacked, had the advantage.</p>
-<p>"I'll go first!"</p>
-<p>Konoe Akina said with a bright Smile. I nodded my Head at Konoe Akina and put on the Ruins' Glasses.</p>
-<p>"Ohhh...!"</p>
-<p>I was surprised to see Konoe Akina's Status Window. Her Level had risen by a whopping three points. It seemed she had gained many Levels, probably due to her usual Effort and her significant contributions in the recent Takakusaki Gengo battle. Since her original Level was low, it must have risen quickly.</p>
-<p>Name: Akina Konoe (近衛 亜貴名) Lv10</p>
-<p>Stats</p>
-<p>Physical Body Strength:4 Agility:5 Stamina:7 Resistance:4 Recovery:4 Sensitive Nerves:5 Appearance:16</p>
-<p>Mind Intelligence:12 Knowledge:9 Focus:7 Will:8 Creativity:7 Charm/Allure:15 Judgment:7</p>
-<p>Other Luck:6 Eye Power:11</p>
-<p>Skills ◆Management (Special Technology Lv12) ◆Linguistics (General Technology Lv10) ◆Konoe Family Traditional Cooking Skill (Special Technology Lv8) ◆Accounting (General Technology Lv7) ◆Learning (General Technology Lv10) ◆Marksmanship (General Technology Lv8) ◆Konoe Family Guard Combat Skill (Special Technology Lv6)</p>
-<p>Traits ◇Bloodline - God's Eye (Kaminome) [Unique Bloodline] ◆Owl's Eye [Rare+ Trait] ◆Demonic Eye (魔眼) - Basilisk's Eye (Right Eye) [Legacy Trait] ◆Eye Power Efficiency [Narrative+ Trait] ◆Unfailing Eye [Narrative+ Trait] ◆Marksmanship Correction [Narrative Trait]</p>
-<p>Looking at her Stats first, more Stats had risen than the 6 Stats gained from three Level Ups. Roughly 8 points? It seemed her lower Physical Body Stats like Strength, Agility, and Stamina had risen from diligent Training. Since Stats could be increased through Training up to 10 points, she seemed to have diligently trained, taking my advice.</p>
-<p>Even now, though she wasn't a Physical Class Character, her Stamina had increased, so she likely wouldn't collapse and become a burden during battle.</p>
-<p>"You seem to have trained hard?" "Yes! I worked hard just as Ryuta-nim advised me!"</p>
-<p>Konoe Akina Smiled, seemingly very happy and also a little shy that I, whom she liked, recognized her Effort. Next, shall I look at her Skills? All her Skills, except for the newly acquired Konoe Family Guard Combat Skill, had increased in Level. She probably learned combat skills from the Konoe Family Guard along with physical training. With her Learning Skill, it hadn't been a long time, but it was already Level 6.</p>
-<p>Finally, one new Trait had appeared: Marksmanship Correction.</p>
-<p>◆Marksmanship Correction [Narrative Trait]: Greatly corrects the hit Probability of Marksmanship and increases Focus Stat by 2 when shooting.</p>
-<p>It was a good Trait for Konoe Akina, whose main Ability was her Demonic Eye and whose Gun was a sub-weapon. Although she had handed over the family length duties to her Mother, the temporary length, using University as an excuse, Konoe Akina still had many busy tasks as the Konoe Family length, so a Trait that provided Marksmanship accuracy correction was quite good, as she couldn't undergo sufficient combat skill Training.</p>
-<p>The Unfailing Eye Trait, located just above, also increased accuracy, so if she were raised as a combat class, a mid-range sniper would be a perfect fit. A long-range sniper would be impossible, as it would be difficult to use her Demonic Eye.</p>
-<p>"Your Level has risen quite a bit. You worked hard, Akina." "Neehehe...! Please pet me more, Ryuta-nim~♥"</p>
-<p>I stroked Konoe Akina's Head and Praised her for doing well. Konoe Akina, like the other Female Students in the special class at St. Francis Girls' Academy, had very high potential.</p>
-<p>Especially since her Demonic Eye Ability had only bloomed in her right Eye, if a usable Demonic Eye were to appear in her left Eye, Konoe Akina could become significantly stronger, as if she had climbed several steps at once, much like Otagi Yuka became dramatically stronger after gaining her Blood Clan Ability.</p>
-<p>"Ryuta, now Alik...!"</p>
-<p>As I was Praising Konoe Akina, Alik shook my Arm and spoke. She seemed quite curious about her own Status.</p>
-<p>Come to think of it, it felt like a very long time since I last checked Alik's Status Window. It seemed that because she was constantly called away by Shimokawabe Airen for Training, she often missed out on getting information about her Status Window when her Friends did.</p>
-<p>"Alright. I'll check it now."</p>
-<p>I was also curious how much Alik had grown, so I immediately looked at Alik while wearing the Ruins' Glasses.</p>
-<p>◆Name: Egawa Alexandra Smirnova (衛川 アレクサンドラ Смирнова) Lv14</p>
-<p>Stats</p>
-<p>Physical Body Strength:9 Agility:17 Stamina:12 Resistance:7 Recovery:7 Sensitive Nerves:20 Appearance:17</p>
-<p>Mind Intelligence:9 Knowledge:6 Focus:13 Will:13 Creativity:3 Charm/Allure:18 Judgment:9</p>
-<p>Other Luck:13 Electricity:14</p>
-<p>Skills</p>
-<p>◆Alexandra's Self-Taught Swordsmanship (Alexandra's Own Style Swordsmanship) (Legacy Swordsmanship Lv9) ◆Nerve Acceleration (Legacy Technology Lv14) ◆Lightning Application (Narrative Technology Lv13) ◆Linguistics (General Technology Lv11) ◆Egawa-ryu Reception Skill (Rare Technology Lv10) ◆Training (Special+ Technology Lv7) ◆Special Driving - Bike (Special+ Technology Lv8)</p>
-<p>Traits</p>
-<p>◇Mutation - Electricity Generating Cells [Legacy Mutation] ◆Lightning Affinity [Unique Trait] ◆Charge Shield (Electrostatic Protective Film) [Narrative+ Trait] ◆Saint of Swordsmanship [Unique Trait] ◆Electrical Movement [Unique Trait] ◆Limit Break: Sensitive Nerves [Unique Trait] ◆Electrical Sensation [Unique Trait] ◆Charge-Regeneration [Legacy Trait]</p>
-<p>Perhaps because it had been so long since I last checked Alik's Stats, her Level had risen by a whopping 6 points. Her Stats had risen so much that I couldn't even tell what had changed, and as expected, her Luck had increased from witnessing Takakusaki Gengo's transcendence.</p>
-<p>Looking at Alik's Stats, I thought that the potential of Alik beside me might be even greater than Alexandra, who was considered the most vicious among the mid-bosses.</p>
-<p>Alexandra had undergone various Modifications, so she didn't have Limit Break Stats, and her Luck would certainly be low. Alik also didn't have a Limit Break Stat, but her Sensitive Nerves Stat was right at the Limit of 20. I thought she would probably break through the Limit when it became 21 at the next Level Up.</p>
-<p>All her Skills had also risen considerably in Level, and Alexandra's Self-Taught Swordsmanship, being a Swordsmanship she created herself, had also increased in Grade, unlike before. It seemed to be because she had trained under Shimokawabe Airen and learned a little of the Swordsmanship hidden within Thunderclap.</p>
-<p>The remaining Skills had also risen in Level, and the newly acquired Skills were Training and Special Driving - Bike. Training was a Skill that appeared after grueling Training, and it was a Trait that quickly increased the Proficiency of Skills whose Proficiency Level rose by moving the Body. Like Learning on the Intelligence side, its Grade wasn't very high, but it was a very useful type of Skill.</p>
-<p>I thought I had been working hard too, but seeing that I hadn't acquired Training, there was a part I needed to reflect on. Because it meant I hadn't worked as hard as Alik, who had acquired Training.</p>
-<p>The next Skill, Special Driving - Bike, seemed to be a Skill she acquired by riding a mountain bike and traveling through deep mountains to train with Shimokawabe Airen.</p>
-<p>As her Level had risen significantly, three Traits had appeared, and among those acquired, I looked at Limit Break: Sensitive Nerves, which was at the top.</p>
-<p>◆Limit Break: Sensitive Nerves [Unique Trait]: The Efficiency of the Physical Body Stat Sensitive Nerves increases, and the maximum value of Sensitive Nerves becomes 22.</p>
-<p>It was a simple Trait, but it increased the maximum value by a whopping 2. Should I say it was a Trait that greatly unlocked potential? I thought that because she had acquired this Trait, her Sensitive Nerves Stat would soon undergo a Limit Break. Looking at the next Trait, Electrical Sensation....</p>
-<p>◆Electrical Sensation [Unique Trait]: Can detect the Opponent's electrical signals to lead the battle advantageously. Sensitive Nerves Stat increases by 1 and Judgment Stat increases by 1.</p>
-<p>It was also a considerably good Trait. Although not written in the description, it was a very useful Trait in battle that could almost predict the Opponent's movements, increasing accuracy, Evasion, and even critical hit Probability. The last one.... I didn't expect this to appear.</p>
-<p>◆Charge-Regeneration [Legacy Trait]: Can absorb external electricity. Heals wounds using the electricity flowing through the body. Recovery stat increases by 2, and the maximum electricity stat increases by 1.</p>
-<p>This Trait could either exist or not depending on the research status of the First Group, and at what point one fought Alexandra, and this single Trait changed the Difficulty immensely.</p>
-<p>Especially since battles with Alexandra often took place in a City or Laboratory, if Charge-Regeneration was present, even if she barely took Harm, she would absorb surrounding Electricity to recover, making the battle incredibly prolonged and being the Instigator of such.</p>
-<p>Additionally, it came with a Recovery Stat +2 and an Electricity Stat maximum value increase, making it a desired Trait for Players who followed an electric-type tree, but almost no one acquired it because it required a Mutation - Electricity Generating Cells Trait, like Alik's.</p>
-<p>From the start, the Probability of acquiring a Mutation Trait was extremely low, and since it could only be obtained with the Mutation - Electricity Generating Cells Trait, it was a Trait that required breaking through a double Probability. I didn't have good feelings about the Charge-Regeneration Trait because I had suffered so much from it, but knowing that our Alik had acquired it made me feel very reassured. Now, even if she gets hurt, she'll recover quickly as long as there's Electricity. Should I get her a portable Battery as a Potion substitute?</p>
-<p>Requested by MidNightSKY-nim, Ryuta attacking with Creation Chaos and Sabu striking down the Capital with Creation Chaos~! First, Ryuta! Rinka Sabu~! The striking down pose isn't shown haha ㄷㄷ Requested by ISaveI-nim, Wonder Woman Cosplay Lianna Holden, Cowgirl Cosplay Lara Sinclair~! Lianna Holden Cowgirl Lara Sinclair~! The bootcut Jeans aren't shown haha</p>
+<p>'Are you sure you're okay, Sabu?'</p>
+<p>I asked Fujigasaki Rinka, who was wearing her own Clothes instead of the Hospital gown she had been preparing to leave in. After various tests, there were no problems with her Body other than a few bruises, but I couldn't help but worry since the Abyss sucked out by Takakusaki Gengo was still a problem. She could get seriously hurt if she met an unexpected Strong Person in the USA.</p>
+<p>'Don't worry too much. I'm not going to the USA right away, and I'll go after preparing thoroughly.'</p>
+<p>Fujigasaki Rinka chuckled at my worried Words, slung her Bag over her Shoulder, and said. Then, she looked at Shimokawabe Airen, who was lying next to her.</p>
+<p>'Airen, I'm going now. Get well soon.'</p>
+<p>'Yeah, Ryuta-ssi supported my Chiryo here, so I'll get better soon. Don't worry about me, Rinka, you be careful.'</p>
+<p>Shimokawabe Airen also seemed worried about Fujigasaki Rinka. Even though her Body wasn't in good condition, she was worried about Fujigasaki Rinka.</p>
+<p>I heard that Kijimoto Jurie came yesterday to give her Chiryo and today gave her an unknown Injection, so I hope it helped.</p>
+<p>'I told you not to worry. You're both just full of worry...!'</p>
+<p>She was being testy, but she didn't seem to dislike being worried about, as she slightly raised the Corner of the Mouth and headed out of the Hospital Room. Fujigasaki Rinka and Shimokawabe Airen looked at each other and exchanged a look that only Friends could, then went outside.</p>
+<p>'I'll visit often, Shimokawabe seonsaengnim.'</p>
+<p>'Yes. Please take care of Rinka until she leaves the country.'</p>
+<p>I greeted Shimokawabe Airen and followed Fujigasaki Rinka out of the Hospital Room. There were a few more People outside the Hospital Room besides Fujigasaki Rinka: Yoda old man, Kujo Kina, Genbaki guy, and Genbaki guy's Sabu, Musashi Takuro.</p>
+<p>Yoda old man and Musashi Takuro were glaring at each other and growling, but well, it seemed unavoidable since Musashi Takuro was from Anyaji.</p>
+<p>'What are you looking at, Yoda?'</p>
+<p>'Yoda?! A big guy like you is growling so well...!'</p>
+<p>'What? Should we stop growling and just take action? Huh!?'</p>
+<p>'That's good~! I can beat you up since you're a Michinkae!'</p>
+<p>The two looked like they were about to fight at any moment, but their Disciples, Genbaki and Kujo Kina, seemed to have already given up since this had happened a few times. Since the two of them didn't care much, I, who could be said to be an outsider, couldn't step in, so I took a step closer to Genbaki and opened my mouth.</p>
+<p>'Genbaki, are you leaving with your Sabu too?'</p>
+<p>I asked because Genbaki Kiyohira was also wearing his own Clothes and carrying a Bag like Fujigasaki Rinka.</p>
+<p>'Yeah, the Chiryo for my injured Arm is over anyway, and the only thing left is the cyber implant transplant, but I'm getting that in the USA, so there's no need to be cooped up in the Hospital.'</p>
+<p>He was a sturdy Guy, and thanks to the advancement of medical Technology, his recovery was quite fast. Or maybe Genbaki guy was forcing it even though he hadn't fully recovered. Fortunately, it didn't seem to be the latter, as Genbaki guy's Sabu, Musashi Takuro, was just arguing with Yoda old man and didn't seem too worried.</p>
+<p>For reference, Eve had been working at an incredible speed on Sunday and had already completed the establishment of Adam Cyberware, a cyber implant company. Of course, since cyber implants weren't common items, a few more qualifications were needed for the procedure and sale, so it would take more time, but it would probably be well taken care of by the time Genbaki guy went to the USA.</p>
+<p>I hope it goes well. If the procedure goes well, it'll be good for Genbaki guy, and I've invested quite a bit and have a lot of Share, so I'll be able to make a lot of Money if the company does well.</p>
+<p>'By the way, Kujo, are you sure you're okay? I can take care of Sabu....'</p>
+<p>Kujo Kina, who had decided to go to the USA with Fujigasaki Rinka this time, had stepped up to take care of her, so I had agreed. Since we were going to the USA together anyway, we could make plans together while being together, so I thought it wouldn't be bad for Kujo Kina and Sabu to be together.</p>
+<p>'I, I, I'm okay, seonsaeng...! I, I, I'm fine...!'</p>
+<p>Kujo Kina was a huge fan of Fujigasaki Rinka, so when she said she was taking her to her House, she was trembling all over with Tension and Expectation. She was almost out of her Mind, so I wondered if she would be okay.</p>
+<p>'First, I'll take her to, to our Mansion... and I'm going to move to Tokyo around tomorrow, but before that, I'm going to get all the autographs on Rinka-ttang's stuff....'</p>
+<p>All she was thinking about was getting autographs on Fujigasaki Rinka's Goods besides the Soda Haruto rescue jakjeon, who was my Sajo.... I couldn't help it. She was such a fan that she wouldn't be able to come to her senses until she got the autographs.</p>
+<p>'Okay, take care of the autographs yourself.... Please take good care of our Sabu.'</p>
+<p>'Leave it to me, seonsaeng~!'</p>
+<p>Still, she seemed to have calmed down a bit now, as she made her usual cheerful Expression and patted her chest, saying to trust her. Kina-yang.... Could you please stop hitting your chest like that? It's making them jiggle, so I can't help but look.</p>
+<p>'It's a Nuisance to talk in the Hospital corridor, so let's stop and go down. You two old men, stop it too and let's go.'</p>
+<p>At Fujigasaki Rinka's Words, Musashi Takuro old man and Yoda old man, who were almost nose-to-nose and growling, stopped their staring contest with a 'Heung~!'. As expected, if you have the authority of a Sabu, you can halt a fight between those two Old Monsters with just a single word.</p>
+<p>We took the elevator down to the underground Parking Lot. There was a limousine prepared by Kujo Kina. According to Kujo Kina, this was nothing for her Hero, Fujigasaki Rinka.</p>
+<p>'Sabu, be careful and I'll see you when you leave.'</p>
+<p>'Okay. You said your seonsaeng Work is over? What are you going to do now?'</p>
+<p>Oh~! As I greeted Fujigasaki Rinka, who was getting into the limousine, Fujigasaki Rinka asked what I was going to do.</p>
+<p>'I have a lot of things to do. I have company Work right away, so I'm as busy as Sabu.'</p>
+<p>'Yeah, you're coming to see me off at the Airport, right?'</p>
+<p>'That's why I said I'll see you when you leave.'</p>
+<p>'I see. Then I'll see you then, Disciple.'</p>
+<p>Fujigasaki Rinka waved her hand out the window and left. I watched her go and took out my phone. It was true that I had company work that I had told Fujigasaki Rinka about. First, I need to take care of the Hatake Investment company work. There’s quite an urgent matter. I immediately called Jinmija Yeosa, who was in charge of Hatake Investment Company.</p>
+<p>'Mom, is Work going well?'</p>
+<p>Black cybersuit troops infiltrated the middle of Tokyo's streets in the Evening. It was a street in Tokyo with a lot of foot traffic, but the People in black cybersuits relied on the Darkness and entered a building without being noticed by anyone.</p>
+<p>-CCTV on the Entrance side.</p>
+<p>-Confirmed.</p>
+<p>The People in black cybersuits, who were talking through the communication devices attached to their cybersuit helmets, neutralized the CCTV at the building Entrance with hacking from the VR diver.</p>
+<p>The VR diver, who had been standing in place for a moment with his Hand on his Temple, made a Circle with his fingers and gave an okay Sign, then entered the building with swift and quick Movements.</p>
+<p>-It's strange. There's no one in the Entrance security office.</p>
+<p>-I'll inform the situation room and find out.</p>
+<p>There was no Security Guard who should have been in the security office on the 1st floor Entrance of the building. The leader of the black cybersuit group, who thought it was strange, informed the situation room to find out, while the rest were aiming their Guns at each Passage and waiting.</p>
+<p>-The situation room also couldn't figure out anything about the Security Guard. D-First, hack the security office CCTV data and figure out the situation.</p>
+<p>Whether the VR diver's code name was D-First, the leader of the cybersuit group said, and the VR diver who had just neutralized the CCTV entered the security office. D-First, who checked the CCTV data in the security office, tilted his Head. It was because there was no CCTV data left anywhere.</p>
+<p>-There's no data. It seems like they deleted all the CCTV footage data.</p>
+<p>At D-First's Words, the leader nodded and pointed to the stairs with a gesture. It was a Signal to start. After all, the security office in this building wasn't the main Target. It was just a preemptive Subjugation point to deal with the original Target.</p>
+<p>The black cybersuit group, who climbed the stairs without a single Footsteps, entered the office located on the 2nd floor. The name Hatake Investment company was written on the Door of the office.</p>
+<p>Clink!</p>
+<p>The leading black cybersuit agent, who opened the Door, looked around the inside of the office as if he was flustered. There was nothing there. Hatake Yoshiko, the CEO of Hatake Investment company, who Cheopbo had said would be here, wasn't there, and all the office furniture had disappeared except for one desk in the middle of the empty office.</p>
+<p>It was a situation that the black cybersuit invaders, who had checked the office Photos in advance, couldn't help but be flustered by.</p>
+<p>-There's nothing in the office...!</p>
+<p>-Isn't the Target there either?</p>
+<p>-There's no Target, no furniture, and no one except for one desk.</p>
+<p>The leader asked again at the Report of the black cybersuit agent who had entered first, but the leading agent said that there was nothing except for the desk.</p>
+<p>-Enter for now.</p>
+<p>In preparation for a possible Counterattack, only the leading agent was sent in first, but since they received a Report that there was nothing, the black cybersuit invaders had to check the Scene, so they entered Hatake Investment company's office.</p>
+<p>As the leading agent had said, there was nothing in the office except for the desk in the middle.</p>
+<p>-D-First, transmit the current situation.</p>
+<p>-Yes.</p>
+<p>VR diver D-First started filming the inside of the office with the Camera attached to his helmet to transmit the current situation to the situation room.</p>
+<p>-There's something on the desk!</p>
+<p>Since the first thing they checked was the desk, which was the only item in the office, it was a file folder placed on the desk.</p>
+<p>At the Report of the black cybersuit agent, the leader slowly walked over and checked the file folder. Nothing was written on the outside of the file folder, so he slowly opened the file folder.</p>
+<p>-...!</p>
+<p>On the very first page of the file folder was a Photo of themselves in black cybersuits climbing the stairs. The leader of the black cybersuit agent couldn't help but be surprised when he saw that Photo.</p>
+<p>TheDreaming-nim requested 1. Oofuchi Erika leaning against a vending machine 2. Oofuchi Erika crawling on all fours~!</p>
+<p>1.</p>
+<p>2.</p>
+<p>Neosblue-nim requested Full Armor Full Weapon Alik~!</p>
+<p>Actually, I haven't seen the Gundam you mentioned, so ㅎㅎ I don't know if this is the right feeling ㅎㅎ</p>

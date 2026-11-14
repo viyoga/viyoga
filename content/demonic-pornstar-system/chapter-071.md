@@ -1,0 +1,32 @@
++++
+title = "Chapter 71: Reaction of the Chairman"
+weight = 71
+[extra]
+chapter = 71
++++
+
+<p>"The son of Vespera... There's no doubt about that," the chairman of the Awakened Association murmured after he finished watching the recording of the duel that took place between the two newly awakened youths.</p>
+<p>"Yes. The Ashborn household was a cautious family who kept their children's names hidden until they awakened, presumably to allow them a normal upbringing in public. Kaiden Ashborn was never registered in any government database, even before the apocalypse struck. However, our team managed to uncover a few photographs of him being escorted by the family's butler to school. Our analytics department reconstructed what Kaiden would have looked like as a child, and the face they derived perfectly matched the one we see in the photos."</p>
+<p>Grace, the chairman's secretary, informed before she continued.</p>
+<p>"We managed to discover the most likely reasoning behind Kaiden's disowning. An adult entertainment studio had just released three videos in which he starred as the male lead, and the three women who were called compromising names by the A-tier awakened David Bennett were the female leads. Vespera likely got wind of the situation and swooped in before Kaiden could carelessly use his name as an adult actor, bringing shame to the family and the entire New Dawn guild."</p>
+<p>"Haaah... That woman will be the end of me, I swear. Why is everything so difficult when it comes to her?" the chairman grumbled right after sighing tiredly. "Didn't the little sister assault a group of awakened just yesterday?"</p>
+<p>"Yes, according to Alice Ashborn's recounting of the events, they were speaking in an ill-mannered way about Kaiden Grey. We are waiting for them to regain consciousness—if they do at all—to hear their part of the story."</p>
+<p>"Haaah..." The chairman sighed once again while massaging his temples. He was a mighty existence on the level of the strongest tier of awakened, but he had the sworn duty of maintaining peace through more diplomatic methods, forcing him to have a lot of headaches while dealing with the awakened people, and none gave him stronger migraines than Vespera Ashborn.</p>
+<p>Usually, it was because she had a body count of murdered awakened in the thousands that kept increasing nearly every day she stepped out of her home, forcing the association to sweep things under the rug instead of bringing her to court as that would be a beyond futile effort. But now it was for an even more annoying issue.</p>
+<p>They'd been studying the mana apocalypse religiously ever since it occurred, and Kaiden and his three women were truly interesting cases. They each awakened together, all three females had Valkyrie-named classes and were even recognized to have the same potential output by the artifact as Kaiden's Paragon of Sin class, as if their strength level was connected to his.</p>
+<p>Each awakened tier was categorized by the strength of the signal the artifact emitted upon their reading, but within the same class, disparities happened all the time. No two separate classes had the same reading. Yet, somehow, all four of them had the exact same output.</p>
+<p>Vespera's threats forced the association to decide between losing one of their strongest awakened and having her join China, the country who were the most threatening to the continued peace of global dominance of the USA due to its large populace of awakened people and the iron grip the CCP held over them, or giving up on studying such a rare and curious phenomenon.</p>
+<p>The chairman was undecided about which route to take until he received a call from the president himself and was ordered to stand down, no questions asked.</p>
+<p>"Grace... Tell me more about this boy and his harem."</p>
+<p>"Yes, sir," the secretary nodded in acknowledgment.</p>
+<p>"According to our information, Aria Levander was a trainer in the gym Kaiden Grey began frequenting a month ago. The two of them might've met there. What we know for certain is the four of them signed with the same casting agency, and according to the casting agent who we questioned, they hit it off immediately once Kaiden earned the right to be filmed with all three women instead of only with one of them as was originally intended. Zadie is the casting agent's name, and she said that besides being incredibly promising young actors, she noticed no irregularities save for the extreme care Kaiden showered each of them with and that the women were too calm for actresses who were there for their first-ever filming, but she accredited the latter to be the result of the former."</p>
+<p>Grace took a deep breath before continuing, "Kaiden and the three women refused to sign a contract with Zadie for a reason she didn't know, but since then, we'd discovered it was due to them wanting to be independent. They likely awakened during the filming or sometime around that time frame because they are now uploading adult content to the awakened platform. There's only one thing that's strange about their content, and it's the camera with which they record. Our guess for now is that Vespera gave Kaiden a never-before-seen artifact which allowed him to record from a first-person point of view."</p>
+<p>"I see... that organization must be mad about this artifact. Weren't they developing a mana camera with the same proposed functions?"</p>
+<p>"Yes, but unless Vespera can—and has the intention to—mass produce, it won't affect their sales."</p>
+<p>The chairman nodded, "Alright. Let's wrap this up for now. Thanks for your hard work."</p>
+<p>"It's my duty, sir," Grace bowed her head.</p>
+<p>"That reminds me, please continue surveilling them. Including the content they upload."</p>
+<p>"I'll assemble a team immediately-"</p>
+<p>She was cut off. "I don't trust others. These four are not only a truly special case study, but we must monitor what they do to estimate Vespera's next moves. Thus, I want you to do it."</p>
+<p>Grace couldn't help but grimace strongly upon hearing her new orders. She understood the reasoning, but she was a highly accomplished woman who was high-up in the government's pecking order even before the apocalypse hit Earth. Hence, the heavy frowning on her delicate face was more than understandable. After all, she was ordered to watch porn just now. She never expected such an order to be issued, but she was loyal and dutiful. Thus, she bowed once again and muttered, "... Yes, sir."</p>
+<p>...</p>

@@ -5,83 +5,69 @@ weight = 420
 chapter = 420
 +++
 
-<p>Going home with Daigo Terue-ssi would attract too much attention, so I sent her a text and went straight home. I left the milk pudding I had packed for Daigo Terue-ssi on the table and waited a bit. Soon, the door opened and Daigo Terue-ssi came in.</p>
-<p>"Welcome home."</p>
-<p>"The house is... the same as ever."</p>
-<p>Daigo Terue-ssi, who had been to my house once before, looked around and said that. Well, it hasn't been that long since she came to my house, and even if it has, it's only been about two weeks, so it's not likely to have changed much.</p>
-<p>"First, sit at the table and try this pudding. I made it during club activities."</p>
-<p>"Oh, really? I'll enjoy it."</p>
-<p>Daigo Terue-ssi looked at the pudding with an expression that said, 'Was this guy in the cooking club?' Then she picked up a spoon, scooped up some pudding, and put it in her mouth. It will taste different from before. The previous one was freshly made, so it was soft and warm, but this pudding has been in the refrigerator, so it will have a firmer and colder feel.</p>
-<p>"Hmm, it's delicious. It's a simple flavor, but the sweetness of the caramel adds a nice touch, making it an exquisite milk pudding. Well done, Yamashiro-sensei."</p>
-<p>Is she a food critic or something? Daigo Terue-ssi, who had quite accurately critiqued my milk pudding, got up from her seat and naturally went into my bedroom.</p>
-<p>"We both want the same thing, right? Time is limited, so doing it quickly will save time and be better."</p>
-<p>Daigo Terue-ssi said to me, taking off her tightly fitted suit. Her face was already flushed, as if she was slightly excited. Unlike Kijimoto Jurie, who becomes a masochist when she gets excited, Daigo Terue-ssi's tone changed from polite to casual, giving a slightly more intimate feeling.</p>
-<p>"Ryuta-gun, take off your clothes too."</p>
-<p>"Sure."</p>
-<p>At Daigo Terue-ssi's words, I also took off my clothes. We threw off our clothes as if competing with each other, and we stuck together like magnets and started kissing.</p>
-<p>Daigo Terue-ssi, who had been greedily sucking on my tongue for a while, went down my body, passing through my uvula, collarbone, nipples, and abs, leaving kiss marks as she sucked strongly, and was slowly going down to my dick. Of course, the kiss marks disappeared in less than a second due to my regeneration ability, but Daigo Terue-ssi didn't notice and reached my dick.</p>
-<p>"Still a big dick...♥"</p>
-<p>Daigo Terue-ssi had a vulgar and ecstatic expression as she looked at my dick. She usually always has a stern appearance, but perhaps as a reaction to that, seeing my dick seemed to explode the desires she had been suppressing.</p>
-<p>Ttsuep...! Tsyup! Tsyureureup!!</p>
-<p>I had felt it before, but Daigo Terue-ssi's fellatio was superb. I had felt so good before that my back almost broke. I felt so good now that I couldn't help but moan.</p>
-<p>"Keueu...eut! Terue-ssi's mouth-pussy feels so good...!"</p>
-<p>Daigo Terue-ssi seemed to like the term "mouth-pussy" and started doing a vacuum fellatio even more intensely, hollowing out her cheeks.</p>
-<p>Tsyuep! Ttsubeup...! Ttseup! Ttseup! Ttseup!!</p>
-<p>"Keut! Terue-ssi, I'm cumming!"</p>
-<p>Bueut! Bueut! Bueut!</p>
-<p>In the end, I couldn't help but ejaculate semen into Daigo Terue-ssi's mouth. Daigo Terue-ssi swallowed my large amount of semen with an ecstatic expression, gulping it down.</p>
-<p>"Ttsueup....! Peuha!"</p>
-<p>Daigo Terue-ssi sucked up the semen in my urethra and spat out my dick with a "Peuha." My dick was clean, probably because she had eaten all the semen so cleanly.</p>
-<p>"Ryuta-gun, suck me too."</p>
-<p>Daigo Terue-ssi lay down and spread her legs wide. As she spread her legs, Daigo Terue-ssi's pussy petals opened. She was already very excited from sucking my dick, and her thighs were glistening and wet.</p>
-<p>I licked the fluids on her thighs as if cleaning them, and slowly headed towards Daigo Terue-ssi's pussy.</p>
-<p>"Haeueueung♥ It feels so good...! Ryuta-gun's tongue is like a living creature...!"</p>
-<p>Daigo Terue-ssi was beside herself with pleasure as I skillfully moved my tongue, licking from her Clitoris to her vaginal opening. Unable to withstand the pleasure, she tried to close her widely spread legs, so I grabbed her thighs with both hands and held them in place.</p>
-<p>"Eueueheung! It's too, strange...! I'm, becoming strangeee!!"</p>
-<p>Daigo Terue-ssi, overwhelmed by the excessive pleasure, spurted fluids and reached her climax. Regardless of whether Daigo Terue-ssi climaxed or not, I continued my offensive. I immediately grabbed my dick and put it in Daigo Terue-ssi's pussy.</p>
-<p>"Heunghaaaat!"</p>
-<p>Daigo Terue-ssi rolled her eyes again and climaxed due to the sudden insertion. Again, I didn't go easy on her and started shaking my hips. Judging by her fellatio skills, it seems like she's played around a lot, but seeing her tight pussy and such a sensitive reaction, she's definitely not a woman with a lot of experience. It's amazing. Is it a natural mouth technique?</p>
-<p>"Haeueut, heueueheung...! Ung, heueut! Ryuta-gun's dick...! I love it...♥ More, haeuut! Put it in deeper!"</p>
-<p>I'm already knocking on her cervix with my glans, but she's asking for it deeper? Isn't that too much of a demand? Still, since Daigo Terue-ssi is asking, I shook my hips strongly enough to crush her cervix.</p>
-<p>"Haeue... Haeue...! This is it, heot! Heueut! Haeue...! Ryuta's is too deep, heot!"</p>
-<p>Daigo Terue-ssi scratched my back and did her best to accept my dick while trembling all over. Her appearance, with her legs wide open so that my dick could be deeply accepted, was vulgar and arousing, so I shook my hips even more vigorously.</p>
-<p>Even if I hurt her vagina or cervix by doing it too strongly, I had the calculation that it would recover quickly because I had obtained the Holy Pillar trait.</p>
-<p>"Haeut! Aheueut! Fill my womb with Ryuta-gun's baby juice...! I want to get pregnant with a baby again...!"</p>
-<p>I have no intention of getting her pregnant, but hearing her pregnancy talk made me even more excited. I could feel the semen in my balls rising at Daigo Terue-ssi's pregnancy declaration.</p>
-<p>"I'm cumming, Terue!"</p>
-<p>"Heueut! Fill me up with Ryuta's baby juiceee♥"</p>
-<p>Byueut! Beut! Byueueut!</p>
-<p>My dick throbbed and began to fill Daigo Terue-ssi's womb. Of course, her womb and vagina couldn't hold all of my enormous amount of semen, and it began to overflow with throbbing.</p>
-<p>"Haeueueue! It's so warmmm...♥"</p>
-<p>Daigo Terue-ssi, who had reached an enormous climax at the same time as ejaculation, trembled for a long time and then began to rub her stomach with a languid expression. Is she really trying to get pregnant? I need to feed her dinner quickly and give her a morning-after pill.</p>
-<p>###</p>
-<p>Oofuchi Erika, who was packing her things in the classroom, looked at her phone. Her recent school life had been quite fun. It was so enjoyable that she couldn't understand why she hadn't gone to school before. There were a lot of oddballs, but her friends didn't bully her and were kind.</p>
-<p>Yamashiro Ryuta: Director, there are eyes around, so let's go home separately. I'll be home first.</p>
-<p>Daigo Terue: Okay. See you later, Yamashiro-sensei.</p>
-<p>Oofuchi Erika had been contacting Sawayanagi Sinya recently and learning about VR dives and hacking. Oofuchi Erika's first prey was her godmother and biological mother, Daigo Terue-ssi's phone.</p>
-<p>It wasn't for any other reason, but just to see if the hacking skills she had learned worked. She obtained information that surprised even herself.</p>
-<p>'So, Mom and Dadd-, no, Sensei are meeting today. Will they do th-that, s-sex, like last time?'</p>
-<p>Oofuchi Erika couldn't suppress her pounding heart. She had already investigated and knew her homeroom teacher's address through various routes, so she decided to go in advance and lie in wait.</p>
-<p>"Oofuchi! How about Jetria today?"</p>
-<p>"Ah, I have other things to do... Let's eat next time!"</p>
-<p>"Okay! The VR game was fun today!"</p>
-<p>Oofuchi Erika refused Otagi Yuka's offer, which was rare, and looked around, awkwardly checking her surroundings, and headed to Yamashiro Ryuta's house.</p>
-<p>"Sensei, you live in a nice place."</p>
-<p>Oofuchi Erika also knew that the closer you got to Saint Francisco Girls' Academy in Miyashi, the more expensive the house prices became, so she could tell that Yamashiro Ryuta, who lived a 3-minute walk away, lived in a fairly good house.</p>
-<p>She knew the location, but when she actually walked there and arrived quickly, she realized anew that the house Yamashiro Ryuta lived in was nice.</p>
-<p>It was definitely a fairly large house, even though it was a house where a man lived alone, and the design was stylish. Oofuchi Erika looked at Yamashiro Ryuta's house for a while, then came to her senses at the sound of clicking heels in the distance and hid in the alley.</p>
-<p>The owner of the clicking sound was indeed Daigo Terue-ssi. Daigo Terue-ssi looked around for a moment and then immediately went into Yamashiro Ryuta's house. Judging by the fact that the door was open, Yamashiro Ryuta was already inside.</p>
-<p>Oofuchi Erika took out a small gun from her bag. It did shoot something out, but it wasn't actually a gun. It was something that shot out sticky jelly balls containing a bug. When it stuck to a window or something, the jelly ball would stick to the window, and the bug would also adhere to the window and eavesdrop on the sound.</p>
-<p>Toong!</p>
-<p>With a "Toong" sound, the jelly ball that Oofuchi Erika shot out stuck to the window with a "Chaltssak." Oofuchi Erika put earphones in her ears and listened carefully.</p>
-<p>-Keueu...eut! Terue-ssi's mouth-pussy feels so good...!</p>
-<p>As soon as she put the earphones in her ears, she heard Yamashiro Ryuta's lewd voice. Mouth-pussy! She didn't know that Sensei would say such obscene words.</p>
-<p>-Haeueueung♥ It feels so good...! Ryuta-gun's tongue is like a living creature...!</p>
-<p>This time, she heard her mother, Daigo Terue-ssi's lewd voice. Hearing the sound of heavy breathing, the sound of sucking on something wet, and moans, Oofuchi Erika's crotch tingled again. She wanted to put her hand under her skirt right away and rub this tingling sensation, but this was outside where people were walking around. There was no way that the timid Oofuchi Erika could do outdoor self-pleasure.</p>
-<p>"I, I need to go home."</p>
-<p>Oofuchi Erika switched to recording mode and headed home with a pee-like gait to listen to this lewd sound and masturbate at home.</p>
-<p>Some time after Oofuchi Erika left, the wall where Oofuchi Erika had been standing rippled and someone's figure appeared.</p>
-<p>"...."</p>
-<p>It was Sakagami Rena, with light purple hair and a mask.</p>
-<p>-----</p>
-<p>Daigo Terue-ssi B-cut</p>
+<p>"Yamashiro-sensei. Do you know why I brought you to this place?"</p>
+<p>Kurayamada Kirie is asking me quietly. Hmm.... If it were me, if I called a woman to such a remote place where people don't come, I would have called her for sex, but since I met Kurayamada Kirie for the first time on Friday, it wouldn't be sex. Probably.... I think she called me because she had something to say in secret.</p>
+<p>"Well, I have no idea...."</p>
+<p>"If you don't know, I'll make it easy for you. Take off your clothes."</p>
+<p>Could it be.... No way? She's not doing her job through blackmail, is she trying to fuck me? Is she thinking of dominating me with her body? I didn't have it in my stat window, but I had tremendous sex experience that could be compared to a saint of martial arts. Based on that sex experience, Kurayamada Kirie was a virgin.</p>
+<p>But why is she trying to rape me? Actually, I didn't need to worry. This was the perfect situation for the saying, 'A newborn puppy doesn't know how scary a tiger is.' To try to offer her body to me, who is armed with sex scam traits.... If this situation happens, she will eventually become my sex slave. It was a comfortable situation for me.</p>
+<p>"Could it be.... Are you trying to rape me?"</p>
+<p>I asked Kurayamada Kirie with a hint of contempt in my eyes. Of course, it was acting. There have been a few acting situations like this recently, so an acting skill has finally appeared in the stat window. Maybe that's why my lies have become so natural.</p>
+<p>"I've been waiting for this day for so long.... Hurry up and take off your clothes. Or I'll expose everything about you."</p>
+<p>"Keueut...!"</p>
+<p>I slowly took off my clothes, pretending to be unable to overcome the blackmail, with a reaction similar to a knight captured by an orc. But what does she mean by waiting so long for this day? Does that mean she's known me before? I don't remember seeing Kurayamada Kirie before.</p>
+<p>Drip.... Drip....</p>
+<p>I was slowly taking off my clothes when I heard the sound of water dripping, and I saw Kurayamada Kirie dripping vaginal fluid one drop at a time under her skirt. How horny is she?</p>
+<p>It's the first time I've seen a virgin get so excited that she drips vaginal fluid through her panties and onto the floor. Even though there was no foreplay or sexual touch, she was definitely a born sex maniac.</p>
+<p>"Why are you stopping?"</p>
+<p>When I stopped with only my panties left and stared at her, Kurayamada Kirie asked me with an anxious attitude.</p>
+<p>"If you want to see my dick, why don't you take it off yourself?"</p>
+<p>"D-Do you think I can't?"</p>
+<p>Normally, someone would ask back, 'Who said they wanted to see your dick?' but Kurayamada Kirie came to me, squatted down, and grabbed the pelvic area of my briefs with both hands. I felt a slight chill, maybe because her hands were cold.</p>
+<p>Kurayamada Kirie's breath tickled my lower abdomen, and after a moment of deciding something, she made a heup! sound and pulled my panties down to the middle of my thighs.</p>
+<p>Taeng! My huge dick bounced up and hit Kurayamada Kirie's face. Kurayamada Kirie, who would have considerable reflexes as an excellent swordsman, didn't expect her dick to hit her face because she had no sex experience, so she was surprised and got hit.</p>
+<p>"Hyaat!"</p>
+<p>Kurayamada Kirie, who was frozen for a moment, making a strange surprised sound, was already smelling her nose as she saw the hot flesh stick stuck to her cheek.</p>
+<p>"Heueueuheuup...! This is the smell of a d...ick...!"</p>
+<p>Kurayamada Kirie, who had been smelling it for a while, started stroking my dick this time. It was a very awkward hand movement, but it seemed like she had seen a lot of video material, and the hand movement gradually became rhythmic. She's learning pretty fast.</p>
+<p>"This is.... the feel of a dick...!"</p>
+<p>Kurayamada Kirie, who stopped stroking her dick, started licking from her balls to her dick with her tongue this time.</p>
+<p>Her tongue always felt good. Even a virgin's awkward movements were a very pleasurable tool, so I was able to enjoy this foreplay (?) quite a bit.</p>
+<p>"This is, the... taste of a dick!"</p>
+<p>After tasting, touching, and licking it, Kurayamada Kirie thought she had practically felt her dick, and stood up with a confident expression. Since I was still standing, Kurayamada Kirie, who was shorter than me, had no choice but to look up at me.</p>
+<p>"Now, spread out the mattress over there and lie down."</p>
+<p>Well, I can't lie on the bare floor, so it's right to spread out the mattress, but isn't the virgin too confident? At this rate, my snake will get the best of her.</p>
+<p>I laid down the mattress as Kurayamada Kirie told me to do. Still, maybe because I was quite excited about this situation, my dick was dripping with precum and standing stiffly, looking at the ceiling.</p>
+<p>Until now, I had been taken advantage of (?) a few times, but I had never been blackmailed by someone with such a difference in experience (?). That was fresh, so I was surprisingly quite excited. I was also looking forward to seeing how Kurayamada Kirie would change later.</p>
+<p>"Um, how is it?"</p>
+<p>Kurayamada Kirie seems to have been taking off her clothes while I was spreading out the mattress and lying down. She's a virgin, but she knows her stuff, so she took off her bra and panties, but she didn't take off her stockings and kept them on.</p>
+<p>Her body was also quite good, with fair skin, a slender body that wasn't chubby, and breasts that weren't too big or too small, maintaining a beautiful shape above all else, and her thighs wrapped in stockings were truly the epitome of elastic health.</p>
+<p>"You're pretty. Your body."</p>
+<p>Praise was the right answer in this situation. Even though I'm being blackmailed. Kurayamada Kirie was very happy with these three words, 'You're pretty,' and she dripped a few more drops of vaginal fluid.</p>
+<p>"You might not believe it in this situation, but I'm a virgin."</p>
+<p>"I believe you."</p>
+<p>The words 'You're a virgin, but you're a virgin bitch' came up to my throat, but I forced myself to hold back. Breaking the mood was not a good option if I wanted to give her a good education with my dick.</p>
+<p>"I heard that the first time hurts. Yamashiro-sensei, you have to loosen me up so it doesn't hurt."</p>
+<p>Kurayamada Kirie, dripping vaginal fluid on her dick, belly, chest, and chin, came up and sat on my face. Kurayamada Kirie's pussy was already soaking wet. The racy smell of vaginal fluid and the feeling of elastic thighs on both sides of my face felt pretty good.</p>
+<p>I stuck my tongue out slightly and briefly dipped it into Kurayamada Kirie's vulva. Vaginal fluid poured out with a gulp, and Kurayamada Kirie arched her back like a bow and reached her climax.</p>
+<p>"Heu...hyaaaat! Haaheut!!"</p>
+<p>She reached her climax this much just by touching it slightly with her tongue? The muscles in Kurayamada Kirie's thighs trembled on both cheeks, and vaginal fluid poured out of her mouth with a gulp. The thirst I felt slightly was quenched just by drinking the vaginal fluid I drank now.</p>
+<p>I put my tongue in a little deeper and started stimulating the area around her pussy with my lips.</p>
+<p>"Heueueuhyat! What I do alone, hyaaheut! The dimension is, euheung, different haaaat♥"</p>
+<p>Kurayamada Kirie is arching her back so much that you might think her spine is breaking. Her last words are good.</p>
+<p>"Haa.... Haa...! Okay, that's enough. I think I'm ready now. I don't think it'll hurt this much."</p>
+<p>Kurayamada Kirie, who had been catching her breath for a while, got up from her seat. Then she took a step or two back and stood on my dick. It seemed like she wasn't telling me to put it in, but she was trying to put it in herself in a woman-on-top position.</p>
+<p>It was a pretty bold choice for a virgin, but I decided to watch what she did first. Kurayamada Kirie's reddened face and bloodshot eyes were already full of the passion of desire, but I could see a glimpse of the fear unique to virgins.</p>
+<p>"Are you just going to keep standing there like that?"</p>
+<p>I couldn't stand it and opened my mouth when she hesitated slightly and stood on my dick for a while.</p>
+<p>"Why don't you put it in before the pussy I loosened up gets hard again?"</p>
+<p>"I, I, I'm going to put it in!"</p>
+<p>Kurayamada Kirie shouted loudly at my sarcasm and slowly started lowering her waist. When Kurayamada Kirie's pussy and the tip of my dick touched, she was surprised and lifted her waist, saying hyaat!</p>
+<p>As expected, this is where the difference between a true master (?) and the virgin Kurayamada Kirie was. If it were Yukiko or Nae Fitzgerald, they would have teased me by slightly taking their pussy off when they touched it slightly, saying, 'Heuheung, do you want to put it in?'</p>
+<p>Kurayamada Kirie bit her lip slightly, feeling my pathetic gaze, and lowered her waist again. The moment my dick touched her pussy again, I quickly raised my body, grabbed Kurayamada Kirie's waist, and put strength into her butt, pushing my dick all the way to the end of Kurayamada Kirie's pussy. Before I knew it, the position had been reversed from woman-on-top to missionary.</p>
+<p>"Aaaack!"</p>
+<p>I felt the feeling of her hymen breaking with a tututuk! sound, and I felt my glans hitting her cervix. Of course, it couldn't not hurt. Kurayamada Kirie let out a suppressed scream as if trying to hold back. I looked down at Kurayamada Kirie from above with my dick in her.</p>
+<p>"You thought you were going to rape me, but it's the exact opposite. I'm the one who rapes, not the one who gets raped."</p>
+<p>----</p>
+<p>Gym B-cut!</p>
+<p>I definitely put in the nude tag, but maybe because the place is a gym warehouse, it was trying to make her wear clothes that look like sportswear, hehe. The AI didn't listen to me today, so it took a little longer, kekeke.</p>

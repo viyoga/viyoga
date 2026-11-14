@@ -5,78 +5,92 @@ weight = 776
 chapter = 776
 +++
 
-<p>The still nameless one felt their body dissolving within the cocoon. As their physical body vanished, they felt themselves floating aimlessly, devoid of anything.</p>
-<p>All the power the still nameless one possessed, and the various precious divinities of other Oeisin granted by their Partner, melted within the cocoon, becoming pure energy.</p>
-<p>Without the Abyss or the divinity of the sunken one, but solely amidst the purely swirling energy, the still nameless one began to forge their own power.</p>
-<p>From a Longing for light and the Destructive Power of the Abyss, to the Charm to Seduction their Partner at any time, and the Intimidating Aura to plunge their enemies into Fear....</p>
-<p>What the still nameless one desired were contradictory things, diametrically opposed. To create a power encompassing all of that was nearly impossible, even for the still nameless one, mighty Oeisin though they were. But the still nameless one did not want to give up on any of it.</p>
-<p>'Yes, I... will become contradictory Chaos, the Greed that never lets go of what it holds...!'</p>
-<p>At the still nameless one's Declaration, the energy within the cocoon began to swirl.</p>
-<p>As the still nameless one set their Will, their dissolved Divine Body began to reform. The skeleton was forming first, and flesh was filling it out.</p>
-<p>All of this was taking place within the still nameless one's cocoon, unseen by anyone.</p>
-<p>Having spent the entire morning from second class until before lunch having Sex with Kijimoto Jurie, I was busy with today's Work and today's PMC certification Study, and before I knew it, homeroom time was approaching.</p>
-<p>Since today was Friday, if I finished homeroom and planned the ski resort Travel schedule for next week, I could Rest during the Weekend. Of course, it wasn't that I had a lot of Work, so whether I rested or not didn't affect my Condition, but still, resting was always a good thing.</p>
-<p>Of course, since I hadn't finished homeroom and the meeting to plan the ski resort schedule yet, it was a bit early to already be thinking about resting.</p>
-<p>Deureureuk!</p>
-<p>"Did you work hard in school today?"</p>
-<p>Opening the door and entering the special class Classroom, the Students were sitting quietly. They seemed eager to finish homeroom quickly and go up to the club room to plan next week's ski resort Travel.</p>
-<p>"Today's announcements are to Study hard because there's a Test the week after next.... Other than that, there's nothing special. So, Karen can leave right away, and shall the rest of us go up to the club room?"</p>
-<p>Everyone except Uenozono Karen, who couldn't go to the ski resort due to her Entertainment Industry schedule, went up to the club room with a "Wa~!", and I bid a "See you next week" to a slightly regretful Uenozono Karen and left the Classroom.</p>
-<p>"You. What are you doing this Weekend?"</p>
-<p>Not all the Students went up with a "Wa~!"; Minamoto Lisa was slowly packing her Bag and waiting for me, and as we went up to the second floor together, she asked me about my Weekend schedule.</p>
-<p>"Hmm.... Nothing special? Just some certification Study?"</p>
-<p>"Then, spend one day of the Weekend on a Date with me."</p>
-<p>To say 'Date with me'-it was a Date application befitting a Young Lady of the Minamoto family. I nodded my Head at Minamoto Lisa's Words.</p>
-<p>"Good, but aren't you busy with Study?"</p>
-<p>"There's a lot to prepare, but I need to relieve Stress about one day a week...."</p>
-<p>Minamoto Lisa had to prepare not only for the school test two weeks from now but also for the University Entrance Common Test, which can be considered Japan's college entrance exam. Since she was aiming for Edo University, Japan's top university, she needed to achieve quite high grades.</p>
-<p>Still, as a smart Gyaru who was ranked second in the prestigious St. Francisco Girls' Academy, I thought Edo University would be a safe bet, but Minamoto Lisa didn't let her guard down and continued to Study diligently.</p>
-<p>"Am I Lisa's Stress reliever?"</p>
-<p>"Yes, so, Saturday? Sunday? Just pick one day."</p>
-<p>"Since it's already been brought up, let's meet tomorrow."</p>
-<p>Since I had no particular appointment, I thought it would be better to meet right away instead of postponing it for a day, so I made an appointment for tomorrow, Saturday.</p>
-<p>At my Answer, Minamoto Lisa came in front of me, clasped her hands behind her back, and slightly bent her Waist to look at my Face and Smile. My Answer seemed quite satisfying to her.</p>
-<p>"It seems you want to Date me as soon as possible?"</p>
-<p>"Huh? I guess so."</p>
-<p>Minamoto Lisa, who seemed to have misunderstood something in my Answer, wore a deeply satisfied Smile, her Face slightly flushed, and quickened her steps, entering the club room before me.</p>
-<p>"Why are you so late, Ryuta-jji~?!"</p>
-<p>No, I think I was about a minute late, is that late? When I made a bewildered Expression, Seizawa Shii laughed, "Peuheuh." It seemed she just asked if I was late to tease me.</p>
-<p>"Yes, Sorry for being late. But is there really a schedule to decide? We already decided where to go."</p>
-<p>Originally, Seizawa Shii had recommended an overseas location like Jungfraujoch in Switzerland, but when the ski resort was decided, it was right after the Cyber Zombie incident, a time when Trauma about overseas Travel was severe, so we chose a ski resort within Japan. And as a Result, the ski resort in Shiga Kogen, Nagano, was chosen. Honestly, wasn't that enough?</p>
-<p>"If we only ski, it'll be boring, so there are Hot Springs nearby, and we need to visit good restaurants, so we have to plan the schedule well~!"</p>
-<p>Seizawa Shii said, as if stifled. Indeed.... It's practically a 3-night, 4-day schedule, and if we only ski that whole time, it'll quickly get boring. It seemed she was suggesting we include Hot Springs or other activities in between.</p>
-<p>"Alright, first, let's all investigate what's in the vicinity."</p>
-<p>"Now you're acting like a proper Advisor Teacher~! You're cool, Ryuta-jji!"</p>
-<p>When I sat down and stated the things to do, Seizawa Shii said with a satisfied Smile. In truth, I only had the title of Advisor Teacher, and since I mostly let the Students do what they wanted, I rarely took an active role. Konoe Akina, the Club President, Minamoto Lisa, the Vice President, and Shido Tsubaki, the Secretary, were the ones leading the club, and since the three of them led the Students so well, there was no need for me to step in.</p>
-<p>"Anyway, after investigating what's there, you'll list them in your preferred order and then decide where to go, so my involvement ends here."</p>
-<p>"Indeed.... It would be more satisfying for us to choose ourselves rather than going to a Place Ryuta-jji recommends...."</p>
-<p>The Students of the Date Experience Club, including Seizawa Shii, were diligently searching on their phones, agreeing with my Words. I looked at Alik, who was sitting to my left.</p>
-<p>Alik was searching for "Shiga Kogen sweet things." I thought the search term was strange and wouldn't yield results, but a place selling ice cream made from fresh Milk from a nearby ranch around the ski resort appeared. Looks pretty good, doesn't it?</p>
-<p>"Ryuta, Alik will eat milk ice cream with you."</p>
-<p>"Shall we? What flavor will Alik eat?"</p>
-<p>"Alik will have strawberry, Ryuta will have chocolate, it's delicious if we share...!"</p>
-<p>She even picked my menu. I didn't particularly love chocolate flavor, but I didn't dislike it either, so I nodded my Head.</p>
-<p>"Okay, let's share."</p>
-<p>"Yes. When Alik says 'Ah~', Ryuta eats. Ryuta also says 'Ah~' and feeds Alik."</p>
-<p>It seemed she meant for us to feed each other. Alik offering me ice cream and Alik taking a bite of the ice cream I offered, both would be cute....</p>
-<p>"By the way, do we not have to go to the Cheongsim Hall today?"</p>
-<p>It suddenly occurred to me that Alik and Naruse Shiyo visited the Cheongsim Hall every day, so I wondered if they didn't have to go today and asked.</p>
-<p>"Moka Sabu, she went on a Business Trip...."</p>
-<p>"Ah, really?"</p>
-<p>The home economics Teacher wouldn't have much reason to go on a Business Trip, so it seemed she went to do a Mission assigned by St. Francisco Girls' Academy. Since Shimokawabe Airen wasn't in my rescue team yesterday either, it must be quite a long Business Trip.</p>
-<p>Talking with Alik, who was sitting on my left, and Minamoto Lisa, who was sitting on my right, and occasionally with Seizawa Shii and Kujo Kina, who would Tackle in, the day was already growing dark.</p>
-<p>"Today, let's discuss the List we made on Line and vote. It's late, so if we try to make a Decision here, it will take a long Time."</p>
-<p>At Konoe Akina's Words, everyone nodded their Head and stood up from their Seats. Indeed, finding decent Tourist Spots and Stores in the vicinity and making a List took quite a long Time. If we were to have a Discussion about where to go with this, we wouldn't be able to go Home until late at night, so it was right to go back now.</p>
-<p>It seemed they thought there was no need to rush, as they could discuss and decide on Line during the Weekend. Everyone was packing their tablets or laptops, getting ready to go Home, when Sakagami Rena looked at her phone and her Expression changed.</p>
-<p>"What is it?" I wondered, watching her send some Message on her phone and then look at me. Immediately, a "Jiing" sound, and a Text Message arrived. It seemed Sakagami Rena had sent the Text Message.</p>
-<p>-Sakagami Rena: Liege/Master, Information about Takakusaki Gengo and Takakusaki Athena has arrived. Where shall we meet?</p>
-<p>It seemed more Information about Takakusaki Gengo and Athena, whom I had ordered to investigate further a few days ago, had come in.</p>
-<p>-Yamashiro Ryuta: Then let's meet at my Home. It's dismissal Time now, so if several people suddenly say they're staying, it'll seem strange.</p>
-<p>-Sakagami Rena: Understood, Liege/Master. Then I'll just change Clothes and go to your Home.</p>
-<p>Seeing Sakagami Rena's Message, I nodded my Head, then left the club room and headed towards the education preparation room.</p>
-<p>The Information about the unknown power Takakusaki Athena used and Takakusaki Gengo's Secret Mission was quite intriguing. I don't know what the newly arrived Information is yet, but I hope it can satisfy my curiosity.</p>
-<p>MidNightSKY-nim requested Taira Kanna, who was corrupted/darkened~!</p>
-<p>Hwanbuljeoldae-bulga-nim requested Leopard Bikini Home Economics Teacher, Kkan-Yuka~!</p>
-<p>Starting with the Home Economics Teacher~!</p>
-<p>Kkan-Yuka~!</p>
-<p>Kkiyoo-oot~!</p>
+<p>""....""</p>
+<p>While Takakusaki Athena and I were having a staring contest, the Students who had come out of the restaurant approached.</p>
+<p>"It seems we both came here to have fun, so how about a temporary truce instead of fighting?"</p>
+<p>"...Alright."</p>
+<p>Naturally, if it came to a fight, Takakusaki Athena, who would be surrounded by the Female Students of St. Francis Girls' Academy's special class, would be at a disadvantage. That's why she quickly responded positively to my request for a truce.</p>
+<p>"Ah...!"</p>
+<p>"That Woman?!"</p>
+<p>"Ryuta, it's that white Woman...!"</p>
+<p>Kujo Kina, Naruse Shiyo, and Alik, who saw Takakusaki Athena, opened their mouths. Of course, Sakagami Rena and Saionji Diana, who also knew Takakusaki Athena, didn't open their mouths, but they were glaring at Takakusaki Athena as if they would attack her at any moment.</p>
+<p>"Who is this Woman?"</p>
+<p>Minamoto Risa, who didn't quite understand the Situation, approached me and asked. I waved my Hand as if it were nothing.</p>
+<p>"She's one of the members of a group called Anyaji, which had Trouble with Kujo Kina's Dojang before. But we came here to have fun, didn't we? So we decided on a temporary truce. Because we can't fight in the Middle of the village."</p>
+<p>The village we were currently in was small, but there were many tourists, so it was inappropriate to fight in the Middle of the village.</p>
+<p>"Don't worry. I also came here to have fun alone, so I wasn't moving with the intention of targeting you all."</p>
+<p>It was Takakusaki Athena, speaking with a composed Expression. Even though I had proposed a truce, I hadn't expected her to be so composed in a Situation where skilled individuals hostile to her were glaring.</p>
+<p>She seemed to have an incredibly bold Style. Or perhaps she was confident in her Skill....</p>
+<p>During the Anyaji Attack, she had a good Match with Home Economics Teacher Shimokawabe Airen (though Airen used a mop handle instead of a Sword at the time), and if you listen to the Story of Anyaji Four Heavenly Kings Kaishu Kakan, who fought me, lost, and died, it seems her Skill among the Four Heavenly Kings is the best, so she seemed to be this bold due to her own Confidence.</p>
+<p>"Since you agreed to a truce, you won't inform Anyaji of our current Position, will you?"</p>
+<p>"Of course. I've had a lot of Work recently, and I don't want to make more Work by contacting them again. This is a very precious Rest time for me right now."</p>
+<p>At my Words, Takakusaki Athena nodded her Head and replied. Judging by her Expression, her intention not to make Contact seemed Sincere.</p>
+<p>By the way, she said she'd had a lot of Work recently? Through the recent Conversation, Takakusaki Athena unconsciously gave us a Hint. I'll have to find out more about it later.</p>
+<p>"Even without that, I have something to tell you...."</p>
+<p>I took out a Business Card from my Embrace and offered it to Takakusaki Athena. I had no intention of persuading Takakusaki Athena right in front of the Students. And since I hadn't expected to meet Takakusaki Athena on this ski resort Travel, I hadn't brought any data for persuasion.</p>
+<p>The Business Card had a small Tracking Device attached, so if she simply took the Business Card, I could Track Takakusaki Athena anytime.</p>
+<p>"Give me Contact."</p>
+<p>"Are you trying to seduce me right now?"</p>
+<p>If persuasion was seduction, then it could be called seduction, but if she said that in front of the Students, I would be Misunderstood. I subtly glanced at the Students and saw Seizawa Shii, Minamoto Risa, and other Students who didn't understand the Situation, staring at me with Glaring Eyes.</p>
+<p>"What nonsense...! I just have something to ask. I also have a Proposal, and it will absolutely not be a bad Proposal for you...."</p>
+<p>At my Answer, Takakusaki Athena nodded her Head and took the Business Card. Perhaps because she possessed an Aura that was antithetical to me during my Abyss-wielding days, she didn't seem to be particularly vigilant of me.</p>
+<p>Naturally, she was acting that Way because she didn't know the fact that I had abandoned the Abyss and gained the Chaos of Creation. The more the Opponent was off guard, the better, so I had no intention of revealing the truth.</p>
+<p>"Since it's a truce, I can line up at this slice cake Store, right? It seems there's nothing more to talk about...."</p>
+<p>I couldn't tell if she was truly bold or simply oblivious to the Atmosphere. When I nodded my Head, Takakusaki Athena began Humming and lined up at the slice cake Store we had intended to go to.</p>
+<p>"Let's line up too."</p>
+<p>Naturally, since it was the slice cake Store we had intended to go to, we also lined up, which made the Atmosphere a little awkward. After all, we had agreed to a truce and parted ways, only to line up at the same Store.</p>
+<p>"...You were also planning to come here?"</p>
+<p>"Yes."</p>
+<p>Takakusaki Athena also seemed not to have anticipated a Situation like this, and asked me with an awkward Expression.</p>
+<p>"Now that I think about it, I also have a Condition for Contacting you."</p>
+<p>"A Condition?"</p>
+<p>She's putting a Condition on Contacting me? What does she want? Is there anything she would specifically want from me...?</p>
+<p>"You know those club literary magazine photo Cards from the St. Francis Girls' Academy festival before?"</p>
+<p>Come to think of it, the first time I met Takakusaki Athena was when she signed my photo Card at the festival. At that time, I didn't know she was affiliated with Anyaji and just signed it.</p>
+<p>"It was crowded then, so I couldn't get Uenozono Karen-yang's photo Card signed. Please get me a photo Card with Uenozono Karen-yang's signature."</p>
+<p>"That's not difficult."</p>
+<p>It wasn't a more difficult Request than I had worried about. I just needed to ask Uenozono Karen for her signature, and since I had the Data for the photo Card, I could print it again. I nodded my Head at Takakusaki Athena's Condition, and Takakusaki Athena, whose Turn it was, excitedly began choosing her slice cake.</p>
+<p>"Well then~!"</p>
+<p>Takakusaki Athena, who had packaged strawberry cream Cheese flavor, rich chocolate flavor, and honey and Shiga Kogen Milk flavor slice cakes, waved her Hand at me and the Students and entered the Sanzokuyaki Store we had just come out of.</p>
+<p>By the way, our routes subtly overlap.... Did she see the same recommended Travel route on the internet?</p>
+<p>"Teacher! What are you doing? You should catch her and Torture her right now...!"</p>
+<p>As Takakusaki Athena disappeared, Kujo Kina spoke with a slightly flushed Expression. Because Kujo Kina and Kujo Kina's Sabu, Old Man Yoda, had suffered the greatest harm during the Anyaji Attack Incident, her Emotion still seemed to be negative.</p>
+<p>"We could catch her, but her Skill is not ordinary. It would cause a Commotion here, wouldn't it? And she escaped well when she was left alone before. We might just cause a Commotion and not even catch her. And we have Friends who haven't even learned martial arts. If we fight unnecessarily, our Friends might get hurt, so as a Teacher, it's best if a fight doesn't happen."</p>
+<p>To appease the very dissatisfied Kujo Kina, I told her the Reason why we shouldn't fight here now. Especially the last Reason, that Friends who hadn't learned martial arts might get hurt, was the biggest Reason.</p>
+<p>Not all Students in the special class were outstanding in Combat.</p>
+<p>Kujo Kina, who was grumbling at me right now, was probably at the Level of a Layperson who was good at fighting (though her Skill might have improved more if Old Man Yoda had taught her well after the Anyaji Attack). Minamoto Risa, Oofuchi Erika, and Shido Tsubaki had no Combat power at all, so if they were caught up in it, they could be seriously hurt.</p>
+<p>"I understand. I guess I got a little Aroused. Sorry, Teacher."</p>
+<p>"No, you've already held back a lot by not attacking immediately."</p>
+<p>Kujo Kina, who understood my Words, apologized. When I said it was alright, Otagi Yuka and Seizawa Shii approached me this time.</p>
+<p>"Is she one of those Anyaji Four Heavenly Kings?"</p>
+<p>Otagi Yuka asked me, looking at the restaurant Takakusaki Athena had entered. During the Anyaji Attack, Seizawa Shii had fought Old Man Yoda outside at Anyaji's Request, and Otagi Yuka had gone to see that Situation, so she had just seen Takakusaki Athena for the first time.</p>
+<p>"Yes. She's probably much stronger than she looks."</p>
+<p>"I also have something to repay Anyaji for.... Can I fight them later?"</p>
+<p>Seizawa Shii had suffered considerable Failure by being used by Anyaji, and there was an Incident where a broker she had worked with for several years betrayed Seizawa Shii and she had to kill him herself, so in some ways, her grudge against Anyaji was greater than Kujo Kina's.</p>
+<p>"Not her, but if we end up fighting Anyaji directly, I'll call you, so you can rampage to your heart's content then."</p>
+<p>"Really?! That's fine. I'll definitely get my Revenge...!"</p>
+<p>Seizawa Shii, who heard my Story, excitedly went to choose a slice cake, and Otagi Yuka also looked at the restaurant for a while before turning around and going to choose a slice cake.</p>
+<p>"Teacher-nim, can you tell me what happened with that Anyaji group just now? As the Class Vice President, I'd like to hear about it...."</p>
+<p>"I'd also like to hear about this Incident as the Class President?"</p>
+<p>Shido Tsubaki and Minamoto Risa, who had chosen their slice cakes, asked me. It seemed they were curious as reporters rather than needing to know as Class Vice President.... Moreover, Minamoto Risa had heard this Story from me before. But she was looking at me with a smirk, as if she wanted to hear it again. I thought for a moment, then opened my Mouth. I had to omit any Story that could reveal my True Identity to Shido Tsubaki while talking, so I intended to distort the Story a little.</p>
+<p>"There's a group called Anyaji. To put it simply, you can think of it as a gathering of dark Fist Technique practitioners...."</p>
+<p>I explained that Anyaji was a group that kidnapped Children and raised them as human Weapons, and informed them that Kujo Kina's Sabu, Old Man Yoda, or Kinui Tachio, had rescued some of them and was raising them as Disciples.</p>
+<p>"So Anyaji attacked to reclaim the Children they had kidnapped. And it just so happened that I was visiting at the time."</p>
+<p>"Is that so?"</p>
+<p>At my Explanation, Shido Tsubaki nodded her Head, and Minamoto Risa listened with considerable Intrigue, even though she had heard the content once before. As a Manga enthusiast, she seemed very intrigued that such a battle-style development had actually occurred.</p>
+<p>Her Eyes sparkling as if eating Popcorn, she was quite cute as she munched on the matcha slice cake she had chosen.</p>
+<p>"...So there was quite a big fight, and that Woman just now was one of the skilled individuals called the Anyaji Four Heavenly Kings."</p>
+<p>"She doesn't look very strong for her Appearance?"</p>
+<p>Because Takakusaki Athena looked slender, she didn't seem very strong, so Minamoto Risa tilted her Head and asked. Even if she liked battle-style developments, it seemed she was puzzled because a slender person didn't realistically give off the impression of a Fist Technique practitioner.</p>
+<p>"She's quite strong. Anyway, in Conclusion, we won that fight, but Anyaji can still Attack. That's why I mentioned a truce earlier and set the Condition not to make Contact."</p>
+<p>"Really? I didn't know such a thing happened.... That was interesting, you."</p>
+<p>"Unfortunately, it's not content suitable for a reporter."</p>
+<p>As expected, both of them had asked out of Intrigue, not as Class President or Vice President.</p>
+<p>Still, I had the Goal of finding Takakusaki Athena, and since I had fortunately achieved that, today was a rather lucky day.</p>
+<p>Requested by Gojoy-nim~! Of Daigo Terue (Headmaster of St. Francis Girls' Academy) Suit, Underwear, Belly Dancer, and Naked Body Illustrations~!</p>
+<p>Suit~!!</p>
+<p>Because the Stockings' texture was good, I mainly created illustrations of her sitting, hehe.</p>
+<p>Underwear~!</p>
+<p>Belly Dancer~!</p>
+<p>Naked Body~!</p>
+<p>Kkiyoooot~!</p>

@@ -5,83 +5,68 @@ weight = 495
 chapter = 495
 +++
 
-<p>Based on the information I got from Kurayamada Kirie, I briefly investigated and contacted Gocho Kikuhito, the 8th secretary in charge of St. Francisco Girls' Academy, around lunchtime.</p>
-<p>If the Minamoto side exerted influence on St. Francisco Girls' Academy, my mission would likely become more difficult. After all, the Minamoto Group's interest in Minamoto Lisa would deepen. Naturally, they might investigate me more thoroughly, so I wanted to get more information for sure.</p>
-<p>-I see. Judging from the fact that the Minamoto side isn't moving much, it's not certain, but perhaps... as Ryuta-dono said, it's highly likely that some factions are moving independently.</p>
-<p>That's right. If the core departments of the Minamoto Group had moved, the Tairaga would have definitely noticed. Then they would have told me in advance. There's no way they wouldn't know until I contacted them.</p>
-<p>"Is that so? It's not certain if it's the Minamoto, but judging from their reaction, it's definitely a force comparable to the Tairaga or Minamoto. Of course, I didn't think it was the Tairaga, so I thought it was the Minamoto."</p>
-<p>-First, I will use the information team to find out as much as possible and contact you.</p>
-<p>"Instead of digging into the Minamoto side, it might be better to dig into the Toyotaka faction of the Daigo family."</p>
-<p>-Understood. I will contact you soon, Doryeon-nim.</p>
-<p>After ending the call with Gocho Kikuhito, I looked at the fairly large container building in front of me. Like a faculty office nameplate, there was a nameplate on the entrance that read "Special Class Physical Training Room."</p>
-<p>It was quite large for a personal physical training room and quite small for a class physical training room, but surely all 13 of us in the class wouldn't be exercising here at the same time. Maybe two or three people, including me, would be using it at most.</p>
-<p>The container gym building that temporary Headmaster Ishidera Kosuke promised was built behind the special class building. The groundwork started yesterday, and the building was erected before lunchtime today, so it could be said to be an incredible speed. They used a new type of fast-curing cement to do the groundwork yesterday and put up the container building today.</p>
-<p>After looking into it a bit, it seemed that container buildings these days are pre-built, so all you have to do is connect the electricity and water. The water and electrical wiring hadn't been connected yet, so the rest of the construction would be done from this afternoon and completed by tomorrow.</p>
-<p>I didn't expect them to keep their promise so quickly. Since he was dispatched as a temporary Headmaster, he probably has a short time here, so he's quickly granting favors to win over the teachers as quickly as possible.</p>
-<p>It's not like I asked for money, and it's not like I asked for a gym to be built in my house, so I won't be caught for embezzlement or breach of trust. I just wanted to exercise near the special class.</p>
-<p>As a confirmation, I opened the door of the special class physical training room and went inside, and there were several pieces of exercise equipment that had been in Warehouse 5. It was surprisingly well-made. One wall was made of mirrors, so it was easy to see my posture when exercising, and the floor was finished with a thick rubber-like material so that dumbbells or plates wouldn't make noise when placed on the ground.</p>
-<p>The only slight disappointment was that there was no shower room, but since I could use the special class building right in front of me, it wasn't a big drawback. There was a water purifier, a toilet, and air conditioning, so there was nothing lacking.</p>
-<p>I've been feeling a bit lacking in physical training lately, but it seems like I can do enough with this. Once the construction is completed tomorrow, I should start exercising right away.</p>
+<p>Saint Francisco Girls' Academy had its own hired security force. And on top of that, there was also a student-council-run armed group called the Disciplinary Committee, so why was Oofuchi Erika kidnapped? I decided to ask Sakagami Rena about the exact situation.</p>
+<p>"What happened?"</p>
+<p>-After club activities, we were the only ones left because of Search-Eye activities, but the school security guards barged in and took Erika-ssi...!</p>
+<p>Ah.... The security company was replaced because of the previous terrorist incident, and it seemed that the acting headmaster, Ishidera Kosuke, hired a security company that suited his taste at that time. Or it could be one of the PMCs under Minamoto, which is famous for its large number of organizations....</p>
+<p>In the end, since the security guarding the school had fallen into the hands of the Toyotaka faction, it could be said that they had seized the academy fairly easily. And after kidnapping Oofuchi Erika, they're planning to threaten Daigo Terue, right?</p>
+<p>-Originally, they were going to kidnap us too, but Tsubaki and I managed to escape. But I couldn't save Erika-ssi. They shot a gun, saying they wouldn't let go of Erika-ssi no matter what.</p>
+<p>The ninja Sakagami Rena would have been able to escape easily, and Shido Tsubaki seemed to have succeeded in escaping because she was quick-witted in her own way. Oofuchi Erika was a hikikomori who had only been in her room, so it seemed that she couldn't avoid the security guards' grasp because her body was sluggish.</p>
+<p>Anyway, they even shot a gun.... They're really going wild.</p>
+<p>"So, did you figure out where the security guards took Oofuchi-ssi?"</p>
+<p>-Looking at their movements, it seems like they received some training, but they couldn't fool my eyes. As a result of checking the traces, the traces lead to the north of the school, so they must have taken her to the north forest. There are many CCTVs in the school building, so it seems like they are trying to escape through the north forest.</p>
+<p>The north forest of the school.... I had only gone there to familiarize myself with the geography in the early days of my assignment, entering slightly for about five minutes near the entrance, and when I went to the 5th gym storage at the entrance of the forest to have sex with Kurayamada Kirie. According to the map, there doesn't seem to be anything there, so did they just use it as an escape route?</p>
+<p>Since the north forest is a place that most of the school doesn't pay much attention to, it seemed like they chose a good escape route in its own way.</p>
+<p>"I understand. First of all...."</p>
+<p>I said, glancing at Konoe Akina. Konoe Akina was also listening to the story next to me, so she nodded with some regret. She must have realized that she couldn't continue the date any longer.</p>
+<p>"Are you guys in a safe place?"</p>
+<p>-Yes, we pretended to run away and are hiding in the newly built fitness room behind the special class building.</p>
+<p>Oofuchi Erika was captured, but fortunately, the two of them seemed to be safe. The fitness room was built by the Toyotaka faction, but I didn't know it would be helpful in this way.</p>
+<p>"I'll go to the school right away, so stay there."</p>
+<p>-Yes. P... Please be careful too, Teacher-nim.</p>
+<p>Shido Tsubaki was next to her, so she was about to say 'My Lord', but she said 'Teacher'. After hanging up the phone, I quickly got up from my seat.</p>
+<p>"I'll follow you too."</p>
+<p>Konoe Akina, who seemed very angry at the attackers for some reason, said to me. Does she know what I'm going to do and is following me? When it didn't seem like I would listen, Konoe Akina opened her mouth again, her red eyes shining.</p>
+<p>"After returning to the family, I trained a lot so that I wouldn't be kidnapped again. And my eyes will definitely be helpful."</p>
+<p>She said she trained in her own way, but I don't think she can beat professional PMC agents.... But should I take her? If she seems even a little clumsy, I can ask Sakagami Rena to go back with Shido Tsubaki.</p>
+<p>"Okay. Get ready quickly."</p>
+<p>When I nodded, Konoe Akina smiled brightly and ran somewhere. I came out of the yoga room and decided to wait for Konoe Akina to come out at the entrance of the mansion.</p>
+<p>A student in my class has been kidnapped, so I have to participate in the battle to save her, but the problem is that my identity will be revealed....</p>
+<p>Well, there's no choice. This time, I had no choice but to cover up my identity with an even bigger topic. Let's make that topic the Black Knight's landing in Japan.</p>
+<p>If the Black Knight, one of the most famous psychics right now, appears in Japan, it will be a huge topic. Or I could kill all the opponents so that even the appearance of the Black Knight doesn't become a topic.... Of course, I'll have to see the situation.</p>
+<p>"I'm all ready!"</p>
+<p>Konoe Akina reappeared wearing the Saint Francisco Girls' Academy uniform again. She was carrying a bag on one shoulder, and I was curious about what was inside. There must be combat items inside, but I hope there aren't any firearms?</p>
+<p>"Wearing a uniform at school won't be noticeable, right? Let's go save Erika-ssi quickly!"</p>
+<p>Let's go save her! Konoe Akina, who muttered behind me, almost audibly, that she would kill all the bastards who interfered with my great work, was a little scary.</p>
+<p>Following Konoe Akina, who was wearing sturdy black work boots, a Konoe family limousine was waiting, as if she had told them in advance. It's only about a 3-minute run, but the car is faster, so we took the car to Saint Francisco Girls' Academy.</p>
 <p>###</p>
-<p>"It's my turn today."</p>
-<p>The second of the exam score gift dates was Shido Tsubaki. There hasn't been any reaction from the students about the date I had with Seizawa Shii yet, but it seems like they're planning to talk about it during club activities today. Seizawa Shii said she would keep the kiss a secret, but I was a little uneasy. Still, I had no choice but to trust Seizawa Shii.</p>
-<p>"Let's meet at the cafe in front of the school at 4 o'clock."</p>
-<p>Unlike yesterday, we decided to meet near the school, not downtown. The time was tighter than yesterday, but there were no meetings like yesterday, so I had more time to spare. After school, I went straight home to get ready.</p>
-<p>To be honest, Shido Tsubaki was a bit of a difficult student for me. Maybe because she was the head of the newspaper club, she was always trying to probe me and trying to interview me at every opportunity.</p>
-<p>Before the exam, the home date (?) in the form of an interview that I had with Shido Tsubaki at the Date Experience Club was submitted to the newspaper club and recorded one of the highest sales figures in the history of St. Francisco Girls' Academy.</p>
-<p>I don't know why the newspaper sells so well when I'm not even a celebrity, but since then, the students' eyes have become even more unusual.</p>
-<p>I don't know what kind of gift she'll want for today's date, but I have to be careful....</p>
-<p>After getting ready, I went to the meeting place and Shido Tsubaki was waiting, wearing a denim skirt and a collared shirt. Maybe because it was a date, she wasn't wearing glasses and was wearing lenses, which made her look very different. When she wore glasses, she had the image of a strict reporter, but when she took them off, she felt more mature.</p>
-<p>"Shido, you're wearing lenses? They suit you too."</p>
-<p>"R-really? My friends recommended them, so I tried them on."</p>
-<p>Shido Tsubaki stuttered slightly as if she felt awkward without her glasses. Still, she wasn't embarrassed and was as confident as usual, and she immediately told me to go into the cafe where she had been waiting. I guess she wanted to go to this cafe, so she asked to meet here.</p>
-<p>When I went inside, the cafe had well-partitioned seats, giving it a cozy and private feel. A clerk came to take our order, and Shido Tsubaki sat across from me and immediately got to the point.</p>
-<p>"The gift I want is a scoop that Sensei will tell me."</p>
-<p>"What? You've interviewed me before, haven't you?"</p>
-<p>A scoop? Isn't the interview I did before enough? I was a little afraid of how much I would have to talk about myself this time.</p>
-<p>"Before, it was like learning information from each other as members of the Date Experience Club, but this time, I'd like you to talk about the terrorist incident anonymously."</p>
-<p>Since Shido Tsubaki had some information, it seemed like she had obtained information that I was involved in it. It would be less burdensome if it was anonymous. That's a relief. Still, there were casualties in this terrorist incident, and there were people who would be harmed if it was reported, so I wish it wouldn't be.</p>
-<p>"Um.... I don't want it to be reported, because there might be students in my class who will be harmed."</p>
-<p>The student who was likely to be harmed was Otagi Yuka. The high-ranking Myongga families might know that the Otagi family is a vampire family, but ordinary Myongga families don't know that fact, so if it becomes known that Otagi Yuka is a vampire, she might be shunned at school or people might say that the terrorist incident was because of Otagi Yuka. If things go wrong, she might be bullied. Of course, Otagi Yuka wouldn't give in to bullying.</p>
-<p>Besides Otagi Yuka being harmed, the culprit behind this incident was Taira Jiro, so in the big picture, the Tairaga's name could be tarnished. In the end, I, who am also a Tairaga, would definitely suffer the loss, so I didn't want to tell Shido Tsubaki everything.</p>
-<p>"It's Otagi-ssi, isn't it?"</p>
-<p>As the heiress of the Shido family, which runs a newspaper company and has considerable information, Shido Tsubaki seemed to already know Otagi Yuka's identity. I sighed as if I couldn't help it and opened my mouth.</p>
-<p>"Otagi took revenge for her friend in the United States, and that led to this incident. But it's not Otagi's fault that St. Francisco Academy was attacked. Someone intervened and attacked the academy to gain an advantage in addition to the attack on Otagi."</p>
-<p>"Ah, is that so? Who is it?"</p>
-<p>Of course, I couldn't say it was the Tairaga. In an instant, it felt like lightning struck in my head. I didn't have to tell the truth. It would be enough if it sounded plausible to Shido Tsubaki and sounded like the truth. I immediately thought of someone to pass this on to. It was someone who could sufficiently divert suspicion to someone other than the Tairaga.</p>
-<p>"Who benefited the most from this incident?"</p>
-<p>"Well...? Several guards died.... The Headmaster was suspended as a disciplinary action.... Ah! Could it be?"</p>
-<p>Shido Tsubaki looked at me with wide eyes as if she had realized something. The person Shido Tsubaki was thinking of was probably Ishidera Kosuke, who is the temporary Headmaster in place of the suspended Headmaster Daigo Terue. Of course, I subtly guided Shido Tsubaki to think of Ishidera Kosuke, but it was a seemingly reasonable opinion. Anyone would think that the person who benefited the most from the terror was Ishidera Kosuke.</p>
-<p>Shido Tsubaki couldn't have imagined that Taira Jiro attacked St. Francisco Girls' Academy to gain business advantages, so the only person who could have benefited the most from this incident was Ishidera Kosuke, who became the Headmaster, albeit temporarily.</p>
-<p>"I don't know exactly. But maybe the person you're thinking of is right."</p>
-<p>"I'll ask to be sure. The person Sensei is thinking of is Ishidera Kosuke, right?"</p>
-<p>When Shido Tsubaki asked as if she wanted me to confirm, I nodded with a serious expression. With this much acting, Shido Tsubaki would be convinced.</p>
-<p>"To give you one more source, I also heard a rumor among the teachers that the Toyotaka faction to which Ishidera Kosuke belongs has a large force behind it? I don't know if this is just a rumor, but I hope it helps."</p>
-<p>"That seems like a good source."</p>
-<p>Shido Tsubaki was very excited about my story and wrote something in her notebook. It seemed that Otagi Yuka's affairs had already disappeared far away in Shido Tsubaki's head.</p>
-<p>"Thank you for the gift, Sensei. It was a good date!"</p>
-<p>What date? The drinks I ordered haven't even come out yet...? Shido Tsubaki greeted me, grabbed her notebook, and hurried out. It seemed that she was only thinking about writing an article in her head.</p>
-<p>I'd be a little disappointed if it ended like this...? I've cleared my schedule because of this date event, so it's ambiguous to do anything else.... Even if I try to meet another woman, Kurayamada Kirie said she had something to do, Daigo Terue is busy responding to Ishidera Kosuke, and Kijimoto Jurie also has a school nurse seminar or something and is in Tokyo, so there was no one to meet.</p>
-<p>I had no choice but to contact Konoe Akina, the head of the Date Experience Club. I had plenty of time, so it seemed like I could go on a date with one more person.</p>
-<p>"I'm done dating Shido, is there anyone who wants to receive a gift right now?"</p>
-<p>-Already? It's only 4:05... ?</p>
-<p>"I know. She just took the gift and left."</p>
-<p>-Just a moment.... Ah, Sakagami is going!</p>
-<p>Sakagami Rena was a little more comfortable than the other students because she followed me as her lord. She also knew my identity and had mixed bodies with me several times.</p>
-<p>"Okay, tell her to come to ○○ Cafe."</p>
-<p>-Yes~!</p>
-<p>I decided to sit down and rest until the drink I ordered and Sakagami Rena arrived. The drink came out after about a minute, and Sakagami Rena arrived after about three more minutes. That's an incredible speed? Is it because she's a ninja...? Sakagami Rena changed her clothes and arrived at the cafe from the school in 4 minutes.</p>
-<p>"Oh, you're so fast?"</p>
-<p>"Because my lord is waiting. As a subordinate, I cannot delay my lord's time."</p>
-<p>What a commendable answer. I should give this commendable Sakagami Rena twice the gift she wants.</p>
-<p>"Is there a gift you want to receive?"</p>
-<p>"That's.... Um...."</p>
-<p>Sakagami Rena hesitated and couldn't answer my question. What does she want to receive that she's hesitating?</p>
-<p>"Can I have your ear for a moment...."</p>
-<p>As Sakagami Rena said, I put my ear close to her, and she whispered softly so that others couldn't hear.</p>
-<p>"Please fill my milk storage bag with Sensei's sticky, white milk♥"</p>
-<p>I never expected Sakagami Rena to say something like this to me, so I was instantly excited and got an erection.</p>
-<p>"Okay. Let's finish this drink and go out."</p>
-<p>I couldn't walk around the school with an erection, so I decided to buy time by making an excuse about the drink.</p>
-<p>-----</p>
-<p>Shido Tsubaki No Glasses Version</p>
+<p>"I've brought her."</p>
+<p>The Saint Francisco Girls' Academy security guards covered Oofuchi Erika's mouth with their hands so she couldn't scream, held her on both sides, and brought her in front of Ishidera Kosuke and Nitta Heijuro.</p>
+<p>"Put her in that shrine building."</p>
+<p>Ishidera Kosuke pointed to the shrine building as if Oofuchi Erika was a cumbersome object. Ishidera Kosuke, as a member of the Daigo family, knew that there was an unused shrine in the north forest of Saint Francisco Girls' Academy, so he was planning to kidnap Oofuchi Erika and keep her there.</p>
+<p>And he intended to threaten Daigo Terue with Oofuchi Erika's life to completely give up the position of headmaster of Saint Francisco Girls' Academy. Of course, that wasn't the only plan in progress, but an attack on Daigo Tadanori, the head of the Tadanori faction, who had joined hands with Kujo, was also in progress. He had completely entrusted that to the Minamoto PMC, so he didn't know how the situation was going yet.</p>
+<p>"She's just a goddaughter, but will you give up the position of headmaster for her life?"</p>
+<p>"Hehe, she's not just a goddaughter."</p>
+<p>Ishidera Kosuke smiled and shook his head at Nitta Heijuro's words. Ishidera Kosuke already knew that Oofuchi Erika was Daigo Terue's biological daughter. So he kidnapped Oofuchi Erika while pretending to attack Daigo Terue.</p>
+<p>"Oofuchi Erika is Daigo Terue's biological daughter, so Daigo Terue will not continue to hold the position of headmaster, so don't worry."</p>
+<p>"Hoo, I didn't know such a secret was hidden."</p>
+<p>Nitta Heijuro nodded at Ishidera Kosuke's words. There were occasionally people from prestigious families who valued the family more, but even so, they couldn't ignore the affection for their blood relatives, so he was convinced by the threat of blackmailing them with Oofuchi Erika.</p>
+<p>In fact, as a vassal of Minamoto, who was famous for having many internal wars within the family, Nitta Heijuro was worried that Daigo Terue would abandon Oofuchi Erika, but his worries were put to shame as Ishidera Kosuke's phone rang immediately. He had already informed her of the kidnapping, so it must be a phone call for negotiation.</p>
+<p>"Hehe, Terue-nim, how are you?"</p>
+<p>Daigo Terue's voice, full of anger, could be heard, as if she was furious at Ishidera Kosuke, who was greeting her with a sly expression and voice.</p>
+<p>-If my daughter has even one scratch, I won't let you get away with it.</p>
+<p>"If Terue-nim only accepts my request, Oofuchi-ssi will not be harmed in the slightest. Convene the board of directors as soon as possible, step down from the position of headmaster, and appoint me as the official headmaster. Of course, Terue-nim will have to persuade some of the Tadanori faction. Our Toyotaka faction is a minority faction, so I need their help to become the official headmaster."</p>
+<p>-Okay. But let me confirm that Erika-ssi is safe. Right now.</p>
+<p>Contrary to Nitta Heijuro's worries, it seemed that Daigo Terue was willing to give up the position of headmaster for her daughter. Nitta Heijuro, who was listening next to her, nodded in satisfaction at her saying okay without a moment's hesitation.</p>
+<p>"I'll take a picture and send it to you. But you'll have to convene the board of directors right away."</p>
+<p>After ending the call, Ishidera Kosuke entered the shrine. Inside the shrine building was Oofuchi Erika, who was tied up.</p>
+<p>"Hehehe, you have a good mother, Erika-yang. Now, smile for the picture. Cheese~!"</p>
+<p>Click!</p>
+<p>Of course, Oofuchi Erika didn't smile just because he said cheese. She was just glaring at Ishidera Kosuke. Ishidera Kosuke transmitted the photo to Daigo Terue as if he didn't care about Oofuchi Erika's expression at all.</p>
+<p>"I'll send you back safe and sound when I become the official headmaster soon, so wait comfortably here."</p>
+<p>Ishidera Kosuke smiled and said to Oofuchi Erika, then came out of the shrine.</p>
+<p>"Huh?"</p>
+<p>It hadn't even been a minute since he entered the shrine to take the picture, but suddenly the atmosphere had changed. Ishidera Kosuke was able to recognize the reason immediately, because a group of people who had suddenly appeared were approaching. They were all armed with guns and their outfits were not uniform, but they still gave off a feeling of being elite.</p>
+<p>The group stopped approaching and stood ten meters in front of the security guards that Ishidera Kosuke and Nitta Heijuro were with. And the man who was standing at the very front opened his mouth.</p>
+<p>"I don't know who you are, but would you mind vacating the premises? There's something I'm looking for on that shrine site."</p>
+<p>The man who was speaking with a crazy expression, his whites of his eyes turned red, was none other than Kurayama Kazuma, the head of Jinildang.</p>

@@ -6,81 +6,77 @@ chapter = 1114
 +++
 
 <p>and chapter check contains erotic please surroundings this your</p>
-<p>A few days ago.</p>
-<p>"Surely you don't really think Ichiro and Gensuke are anti-Taira members, do you?"</p>
-<p>Taira Danjo, who had heard Taira Jiro's accusation against Taira Ichiro and his son Taira Gensuke, looked at Taira Jiro with a Sharp gaze and spoke.</p>
-<p>Normally, Taira Jiro would subtly avoid his father's gaze, but this time, he met Taira Danjo's eyes head-on.</p>
-<p>"No matter what I think, it is a fact that they caused trouble in Neo Tokyo, where the Group and Father are most dedicated."</p>
-<p>"And you're subtly slipping in your Mithril incident there too?"</p>
-<p>Of course, Taira Jiro's words were not wrong. Causing trouble in Neo Tokyo, where the Group was concentrating its Capability, was an action showing they had no Awareness of being part of the Taira Group. But adding to that the matter of him losing Mithril was no different from revealing that he lacked the Capability for Revenge.</p>
-<p>"Of course, I know that speaking to Father like this is not right. But in my current state of mind, if I were to take Revenge for the lost Mithril, I fear I would become too brutal. My child has not been dead for long, and I do not wish for Ichiro-hyungnim to also experience the sorrow of losing a child."</p>
-<p>"You insolent bastard! Are you Threatening your own father?!"</p>
-<p>At Taira Jiro's words, Taira Danjo shouted. It was a Threat, or something similar, implying whether it was alright for him to kill Taira Gensuke, who had carried out the Mithril attack as Revenge. Taira Danjo, who had been angry for a while, let out a small Sigh and then opened his mouth again.</p>
-<p>"Since Kitsumasa's situation is like that, I will overlook that insolent behavior just this once. Although I will not accept your excessive claim that Ichiro and Gensuke are anti-Taira members, it is also true that that bastard Gensuke caused trouble in Neo Tokyo, so this time, I will scold him instead. So now, get the hell out and prepare for your son's funeral!"</p>
-<p>"Thank you, Father."</p>
-<p>Despite Taira Danjo's harsh words to get out, Taira Jiro bowed his Head respectfully, then rose from his Seat. Of course, Taira Jiro also knew well that his asserted anti-Taira member theory would not be accepted.</p>
-<p>That Taira Danjo took charge of this matter was important, as it meant he no longer had to worry about the Mithril attack. Only then could he concentrate on uncovering the True Identity of the Assassin who killed his son, and their Mastermind.</p>
-<p>Deureureuk.</p>
-<p>As Taira Jiro closed the Door and left, Taira Danjo, as if troubled, closed his Eyes and pressed his Temples.</p>
-<p>"Fumimoto."</p>
-<p>"Yes, Chairman-nim."</p>
-<p>After organizing his thoughts for a moment, Taira Danjo opened his Eyes and called his first secretary, Fumimoto Takayuki. At Taira Danjo's call, Fumimoto Takayuki immediately opened the Door and entered.</p>
-<p>"That Guy Gensuke returned to Brazil, didn't he?"</p>
-<p>"That is correct."</p>
-<p>At Taira Danjo's question, Fumimoto Takayuki nodded his Head. Taira Danjo also knew well that he could not call Taira Gensuke to the Chiba Taira Main family right now, because he had already received a Report a few days ago that Taira Gensuke had headed to Brazil.</p>
-<p>"In that case, the Father must pay the Price for his son's Mistake. Fumimoto, call Ichiro."</p>
-<p>Eating the in-flight meals that appeared intermittently and continuing to Sleep soundly, I was able to arrive in Japan before I knew it. Although I slept on the Airplane, I was able to fully compensate for the Sleep I lacked due to Sex, so I felt quite refreshed.</p>
-<p>After completing the entry procedure, as I entered the arrival hall, familiar Faces were waiting for me.</p>
-<p>"Ryuta...!"</p>
-<p>"Older Brother, I missed you!"</p>
-<p>Alik, who came running, flew into my Embrace like a flying squirrel, and Tsukiyo also ran over and clung to one of my Arms. Alik clung to me and wouldn't let go, and Tsukiyo, with her adorable Hands, made a Fist and playfully tapped my Forearm, whining that she missed me.</p>
-<p>Looking at the two with a Smile, Sakagami Rena, who approached me, smiled and bowed her Head to me.</p>
-<p>"You've worked hard in the USA, Liege."</p>
-<p>Being greeted by Alik, Tsukiyo, and Sakagami Rena, I finally felt the Realism of being back in Japan. I stroked Alik's and Tsukiyo's Heads and opened my mouth to Sakagami Rena.</p>
-<p>"I'm back. Let's go Home now."</p>
-<p>Returning to the mansion in Neo Tokyo, I intended to organize what I had gained from this trip to the USA and receive a Report on the situation in Japan.</p>
-<p>Taira Jiro, taking only his secretary Tateyama Genta, headed to the morgue in the Underground of Taira Hospital. Because the Corpse should not decompose before the funeral, the temperature was low starting from the corridor of the morgue.</p>
-<p>Cheolkkeok.</p>
-<p>As Tateyama Genta opened the morgue Door, Taira Jiro tidied his Appearance and entered the morgue.</p>
-<p>In the Middle of the morgue, there was an Iron coffin made of special Metal. It was a coffin that continuously supplied Cold energy and contained the Corpse of Taira Jiro's son, Taira Kitsumasa.</p>
-<p>"Oh, you've arrived...?"</p>
-<p>The morgue manager spoke, observing Taira Jiro's Awareness with his Face hardened. Taira Jiro nodded his Head without an Answer and approached the coffin. And he began to stroke the cold Iron coffin.</p>
-<p>"...."</p>
-<p>Taira Jiro's Gaze was deeply sunken, so it was impossible to know what he was thinking. The morgue manager and Tateyama Genta could only observe Taira Jiro's Awareness.</p>
-<p>Cheolkkeok!</p>
-<p>Thus, enveloped in Silence, the morgue Door was roughly opened. And a middle-aged woman entered, almost embracing the coffin, and began to wail.</p>
-<p>"Kitsumasaa!! My Son...!"</p>
-<p>It was Urata Rie, Taira Jiro's ex-wife and Taira Kitsumasa's biological mother. Urata Rie, after embracing the coffin and crying for a long Time, glared at Taira Jiro.</p>
-<p>"You! Because you unnecessarily sent my son overseas, this Child ended up like this... This is what he became!"</p>
-<p>"I only wanted to give my son an Opportunity."</p>
-<p>Even at Urata Rie's blaming Words, Taira Jiro answered coldly. Although his Mind was not undisturbed before his son's coffin, he didn't want to show weakness to his divorced ex-wife, so he spoke even more coldly.</p>
-<p>"Can I see my son's Face...?"</p>
-<p>Well... because the Shinigesho (funeral makeup) hasn’t been done yet...</p>
-<p>Shinigesho means makeup for the deceased, but more broadly, it also meant things like restoring the Acquaintance of someone who died in an Accident.</p>
-<p>Taira Kitsumasa's current state, having been hit by the Assassin's Bullet in his Forehead and Heart, was clearly a mess, so even the morgue manager, despite it being a Request from Taira Jiro, one of the Taira Group's Successors, gave a reluctant Answer.</p>
-<p>"That is why I want to see him. What kind of Wound my son suffered.... Only by knowing that can I take Revenge."</p>
-<p>"Understood...."</p>
-<p>At Taira Jiro's Words, the morgue manager began to open the coffin. As it was a specially made coffin, it only opened when a Password was pressed, and as the top of the coffin split open on both sides, white Cold energy like Fog surged up.</p>
-<p>Taira Jiro and Urata Rie were looking inside the white Cold energy Fog. As the manager pressed the Button to cut off the Cold energy supply, the white Fog disappeared, and Taira Kitsumasa's Appearance was revealed.</p>
-<p>"...."</p>
-<p>"Ki, Kitsumasa?!"</p>
-<p>The revealed Corpse of Kitsumasa was a mess. His Forehead was caved in as if pressed by a hydraulic Press, and his breast was also caved in, with all the ribs protecting his Heart crushed.</p>
-<p>"Kitsumasaaa!!!"</p>
-<p>Urata Rie fainted while calling her son's Name, but Taira Jiro didn't even glance that way. He was merely observing how his son had died with a cold Gaze.</p>
-<p>"It's the Skill of an Expert. Isn't it?"</p>
-<p>"That is correct. Not one, but both shots were fired at fatal Positions; it seems to be the work of a very high-level Assassin."</p>
-<p>"Time is needed to Handle my son's Face, so the funeral cannot be held immediately. Let's hold the funeral tomorrow."</p>
-<p>"Understood. You heard that, didn't you? You will have to complete the Shinigesho by tomorrow."</p>
-<p>At Taira Jiro's Words, Tateyama Genta spoke, looking at the morgue manager, who was looking at the fainted Urata Rie with a bewildered Expression; the morgue manager, startled, nodded his Head.</p>
-<p>"O-of course! I will prioritize it above all else...!"</p>
-<p>"I'll leave it to you."</p>
-<p>Taira Jiro took out a dozen 10,000-yen bills from his Wallet and handed them to the morgue manager, then came Outside the morgue.</p>
-<p>"I don't know who it is yet, but I will make them feel the same pain as I felt, no, even greater pain. Tateyama, Tracking them as quickly as possible."</p>
-<p>"Understood! I will definitely find the Assassin who made the Young Master like that."</p>
-<p>At Taira Jiro's Words, Tateyama Genta, with a firm Expression, nodded his Head and answered. His Expression showed a Determination to make the one who committed this Incident taste pain without fail.</p>
-<p>Requested by Gojoy-nim: Shinoe Misano seen from the passenger seat, Suzuki Chisami talking about Work~!</p>
-<p>Shinoe Misano~!</p>
-<p>Suzuki Chisami~!</p>
-<p>Requested by TheDreaming-nim: Eve in prison 1. Zero Two 2. Sitting and covering her groin~!</p>
-<p>1.</p>
-<p>2.</p>
+<p>ai an illustrations produced using were</p>
+<p>'S-Scary....'</p>
+<p>Aurelia Beaumont, a researcher at Obsidian Pharmaceuticals, secretly wiped away her tears.</p>
+<p>Even when she was young, Aurelia Beaumont was the Young Lady of the historic French alchemy Family, Beaumont. The Beaumont Family was an outstanding alchemy Prestigious Family, sought out by influential figures in France, and Aurelia Beaumont, as the Young Lady of such a family, lived happily, receiving much affection.</p>
+<p>But during World War III, all the people of the Beaumont Family, except for Aurelia Beaumont, died, and the Beaumont Family's vast property also burned down in the Bombardment.</p>
+<p>In those flames, countless precious and expensive alchemy ingredients were lost. Among them were ingredients for which potions had already been contracted to be made, or ingredients that had been received in advance and were to be repaid with potion sales proceeds.</p>
+<p>Due to this, the contract could not be fulfilled, and the Beaumont Family lost even all its financial assets in repaying this Debt.</p>
+<p>The surviving Aurelia Beaumont was still young, so she grew up in an orphanage.</p>
+<p>Becoming an Adult and leaving the orphanage, Aurelia Beaumont became a researcher at Obsidian Pharmaceuticals in the USA, introduced by a broker who had traded with her Family.</p>
+<p>Having heard stories that Obsidian Pharmaceuticals' Upper Layer consisted of outstanding alchemists, Aurelia Beaumont thought Obsidian Pharmaceuticals would be a company that understood her and where she could be with them like family, but that was a big mistake.</p>
+<p>At Obsidian Pharmaceuticals, an Enterprise created by the Obsidian Syndicate which started in the underworld during the colonial era, there was no special treatment for being an alchemist like them.</p>
+<p>Rather, they suspected Aurelia Beaumont, who came from a Foreign Country, of being a spy, persecuted her, and kept her distant to the extent of not including her in their main Work of Drug manufacturing.</p>
+<p>Thanks to that, Aurelia Beaumont was able to increase her Skill by conducting various alchemy Experiments alone for Obsidian Pharmaceuticals, but suddenly the New Rochelle incident broke out, and everything became a mess.</p>
+<p>In the enormous Incident where Casualties alone reached hundreds and an entire City disappeared, the Obsidian Syndicate, which could be called the Root of Obsidian Pharmaceuticals, was pointed out as the Mastermind.</p>
+<p>As a result, all of Obsidian Pharmaceuticals' employees, from the Information Desk employee to the Boss, Carmine Castello, were arrested and in a state of Confinement by the police.</p>
+<p>Naturally, Aurelia Beaumont, who was a researcher at Obsidian Pharmaceuticals, was also confined in the detention center.</p>
+<p>Thanks to the suspicion of other alchemists at Obsidian Pharmaceuticals, Aurelia Beaumont's non-participation in Drug manufacturing turned out to be a blessing in disguise, but with continuous Confinement and high-intensity investigation, Aurelia Beaumont was quite exhausted.</p>
+<p>Furthermore, Aurelia Beaumont was an illegal immigrant who had come in on a stowaway ship, so even if this matter was revealed as innocent, the result of deportation awaited her, leaving her in a very depressed state.</p>
+<p>With the fear of no longer having a place to go, and the anxiety of 'What if I take the blame for Obsidian Pharmaceuticals' mistake?', shedding Tears in a corner of the detention center was a daily routine for Aurelia Beaumont.</p>
+<p>Today too, as she was wiping away the Tears flowing in fear, the door of the detention center opened with a creaking sound.</p>
+<p>Thinking it must be investigators, she tried not to pay attention, but this time, the Atmosphere was different.</p>
+<p>"These in front are the researchers who, as a result of the investigation, are not related to Drug manufacturing."</p>
+<p>Those who came this time seemed to be visiting the detention center for the first time, and were explaining about themselves. Aurelia Beaumont heard that introducing Voice and softly let out a Sigh of Relief. Judging by the introduction that they were not related to Drug manufacturing, it seemed she had not taken the blame for another researcher's Drug work.</p>
+<p>'Asian?'</p>
+<p>Behind the Iron Cage, three people appeared: two men and one Woman.</p>
+<p>All three were Asians, and all were wearing Suits. Of course, the investigators investigating Obsidian Pharmaceuticals were also wearing Suits, but these people's Atmosphere was different.</p>
+<p>'It's like they're not from the investigation side.... It seems like the Enterprise side....'</p>
+<p>Aurelia Beaumont looked at the three and thought they weren't investigators, and that was quite an accurate Premonition.</p>
+<p>Among the visitors, the Woman looked at the researchers inside the Iron Cage one by one, muttering softly, and the men next to her began to write something on documents.</p>
+<p>Naturally, Aurelia Beaumont also made eye contact with the Woman, and the Woman smiled at Aurelia Beaumont. And when she said something to the men, the men pointed at Aurelia Beaumont.</p>
+<p>"You there with braided hair, come here."</p>
+<p>"M-Me?"</p>
+<p>"Yes. It won't be a disadvantageous Story for you, so come here."</p>
+<p>At the man's Words, Aurelia Beaumont approached the Iron Cage. Then the men held out something, and receiving it and checking it, it was an ear-worn translator.</p>
+<p>Aurelia Beaumont, having received the translator and put it on her ear, looked at the Woman. The Woman smiled and then opened her mouth.</p>
+<p>"Hello, I'm Miyazaki Kirara. And you...?"</p>
+<p>"I'm Aurelia Beaumont."</p>
+<p>When Aurelia Beaumont revealed her name, the men muttered her name, "Aurelia Beaumont...." and checked something on the tablet they were holding. And they conveyed what they saw on the tablet to Miyazaki Kirara in a whisper.</p>
+<p>"We are people who came to recruit Aurelia Beaumont-ssi. By any chance, do you have any thoughts about working in Japan?"</p>
+<p>'Japan? Ah.... These people were Japanese....'</p>
+<p>She didn't know how Japanese people came here, but hearing the Story just now, it seemed they had probably come to scout her.</p>
+<p>'Why me...?'</p>
+<p>Perhaps thinking Aurelia Beaumont's silence, as she wondered "Why?", was a refusal, Miyazaki Kirara opened her mouth.</p>
+<p>"Beaumont-ssi, even if you are released without suspicion, do you have a place to go? If you have no place to go, I'll recommend our side. The conditions are good, and we don't intend to make you do anything illegal."</p>
+<p>Seeing that she asked if she had a place to go, it seemed Aurelia Beaumont was probably recorded as an illegal immigrant on the tablet.</p>
+<p>Certainly, for Aurelia Beaumont, the USA and Japan were not much different. Because for Aurelia Beaumont, who was from France, both countries were Foreign Countries.</p>
+<p>"I want to hear the conditions."</p>
+<p>At Aurelia Beaumont's Words, the men showed her the tablet. On the tablet screen, a Proposal was written: the annual salary was double that of Obsidian Pharmaceuticals, housing and even a vehicle would be provided, and if desired, even interpretation would be provided.</p>
+<p>In addition, the condition was that even a special lawyer would be provided to help her get out of this Incident as quickly as possible.</p>
+<p>"Good...!"</p>
+<p>Refusing such conditions was something only a fool would do. Although a penalty condition was attached, if this condition was thought of in reverse, it was no different from a Guarantee that employment would be secured for at least 7 years.</p>
+<p>"First, sign the provisional contract, and for the rest, let's write a formal contract once you're out of the Iron Cage."</p>
+<p>"Yes."</p>
+<p>Aurelia Beaumont signed. It was like the feeling of boarding a stowaway ship to go to Obsidian Pharmaceuticals for the first time. Unlike Obsidian Pharmaceuticals, Aurelia Beaumont wished this place would be like family.</p>
+<p>"Next, that gray-haired man."</p>
+<p>As Aurelia Beaumont sat in her Seat, the next person was called. Aurelia Beaumont felt a little regret that she wasn't anything special, but she also felt Relief.</p>
+<p>Although they weren't so close, her anxiety subsided a little when her colleagues, who had worked with her at Obsidian Pharmaceuticals, said they would come along.</p>
+<p>The Woman pointed out about six people; three refused the Woman's Proposal, and Aurelia Beaumont, a middle-aged man who was a senior researcher, and a female alchemist who, like herself, had come from Europe, agreed to the contract and signed.</p>
+<p>The three who did not sign the contract seemed not to want to leave because all their Foundation was in the USA, and the three who signed the contract either had little Foundation in the USA or were outsiders at the company.</p>
+<p>'But by what criteria did she call us?'</p>
+<p>Curious like an alchemist, Aurelia Beaumont was curious how she had picked out six people from the quite numerous people inside the detention center.</p>
+<p>But the three Japanese people who had received signatures on the contract had by now disappeared, so she could not ask the Reason.</p>
+<p>Thus, the three who signed the contract were quickly released thanks to the lawyer's efforts, and when the contracted Japanese people said they would buy Obsidian Syndicate's patents, the three released individuals even gave recommendations on which patents were good and provided advice.</p>
+<p>So, when all Preparation was finished and she boarded the Airplane departing for Japan, just then, the Japanese Woman, Miyazaki Kirara, who had called her, sat in the Seat next to Aurelia Beaumont.</p>
+<p>"Excuse me...."</p>
+<p>Aurelia Beaumont called Miyazaki Kirara. Miyazaki Kirara smiled gently and, saying "Yes?", looked at Aurelia Beaumont.</p>
+<p>"Then in the detention center.... there were many people, but by what criteria did you pick six?"</p>
+<p>Thinking she could finally satisfy the Curiosity she had in the detention center, Aurelia Beaumont asked Miyazaki Kirara.</p>
+<p>"I have extraordinary eyes. I can see people's potential. Even in the detention center, I called people in order of their potential. Beaumont-ssi seemed to have the highest potential inside that detention center."</p>
+<p>"She picked them because their potential seemed high." Aurelia Beaumont felt good that she was highly evaluated, but she also began to wonder if she could truly trust a company where a Woman spoke such absurd Words.</p>
+<p>TheDreaming-nim requested 1. Nasian dropped onto a modern Street and being interviewed~! 2. Ha Ju-yoon in the Forest</p>
+<p>1. It's a little funny that the female passersby on the street are wearing something similar to Fairy clothes hehehe</p>
+<p>2. The POV perspective with a Sword didn't work, so I made it without a perspective hehe</p>
+<p>chea yun-nim requested Bikini Ha Ju-yoon Maman~!</p>

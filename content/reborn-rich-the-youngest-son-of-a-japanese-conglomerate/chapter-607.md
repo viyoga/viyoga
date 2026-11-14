@@ -5,93 +5,80 @@ weight = 607
 chapter = 607
 +++
 
-<p>"I'm going back to the zoo for a bit, so wait for me. I'll go with Saionji-ssi and Otagi-ssi."</p>
-<p>After choosing Saionji Diana, who can cover both long and short ranges, and Otagi Yuka, who can drive large vehicles and has excellent combat abilities as a vampire, Alik suddenly came running and stuck to my arm.</p>
-<p>"Alik wants to go too."</p>
-<p>"Alik, I'll be back soon. So...."</p>
-<p>"Alik wants to go too."</p>
-<p>"I'm telling you, it won't take long?"</p>
-<p>"Alik wants to go too."</p>
-<p>"Alik...."</p>
-<p>"Alik wants to go too."</p>
-<p>It wasn't Kim Doo-han shouting Sadalla, but Alik repeating that he wanted to go with me. Due to Alik's insistence, I had no choice but to nod. Alik wasn't bad in terms of combat power either, so there wouldn't be any major problems if I took him along.</p>
-<p>"I'll be back soon, so if anything happens, contact me by radio."</p>
-<p>I said to Minamoto Risa, the class president, while grabbing the radio in the bus. Minamoto Risa pouted her lips as if she was dissatisfied with something.</p>
-<p>"Why are you going?"</p>
-<p>"It seems like Class B is in the Aqua Zone, so I'm just going for a bit."</p>
-<p>"Why do you have to get involved in other classes' business?"</p>
-<p>"Well...."</p>
-<p>Actually, one of the reasons I was stepping in was because of Minamoto Risa. I hadn't even properly seduced my target, Minamoto Risa, yet, and if an incident occurred where an entire class died, the school atmosphere would be fucked up, and a chaotic situation would unfold for a while, which would inevitably cause problems in my romance(?) front.</p>
-<p>Another reason was because of Taira Kanna's request, who could become my ally within the family in the future. Since I was a bastard with no foundation, I needed someone who could help me within the family, and Taira Kanna was someone who could help me.</p>
-<p>Of course, seeing what Taira Kanna was doing, it seemed like she was subtly aiming for the throne of the Taira Group, so we might clash someday, but since our relationship was good now, I didn't think there was a need to refuse her request and create animosity from now on.</p>
-<p>"Come back safely. You're more precious to me than school friends I only know by face."</p>
-<p>Minamoto Risa repeated a year, so she didn't really have any close relationships with students from other classes besides the special class, so she seemed to be thinking, 'Why bother saving them?' Still, it felt good to hear that I was precious to her.</p>
-<p>"Okay. I'll come back without getting hurt, so don't worry."</p>
-<p>I smiled slightly, stroked Minamoto Risa's head, and looked at Shimokawabe Airen.</p>
-<p>"Please take good care of the special class students."</p>
-<p>"Don't worry."</p>
-<p>Shimokawabe Airen raised the sword I had just given her and nodded reliably, as if telling me not to worry.</p>
-<p>I took the safari bus I had come on with Otagi Yuka, Saionji Diana, and Alik. Going back into the zoo I had come out of was a bit much, but I had to save the students, so I couldn't help it.</p>
-<p>As soon as we passed the entrance of the zoo, the cyber zombies ran towards us again, seeing us moving. Saionji Diana widened the wire mesh attached to the window so that the gun barrel could go out, and then shot at the approaching guys, and Alik and I opened the bus door and guarded the bus while dealing with the rushing cyber zombies.</p>
-<p>Otagi Yuka was driving comfortably thanks to us clearing the path by dealing with the zombies.</p>
-<p>The safari bus passed the moving walkway and the outdoor performance hall where the dolphin show was held, and in the outdoor performance hall, cyber zombies were jumping into the water to attack the dolphins.</p>
-<p>"Kyaaaa!"</p>
-<p>Fortunately, zombies with no reason couldn't swim, so they just floundered in the water and weren't a threat to the dolphins.</p>
-<p>However, due to the constant screams and splashing sounds of the cyber zombies, numerous cyber zombies in the vicinity were gathering. At this rate, the dolphins seemed to be in danger of being surrounded by a swarm of splashing zombies.</p>
-<p>"...Dolphin-ssi?"</p>
-<p>Alik muttered, seeing the dolphins slowly falling into crisis. The current situation was unbearable for Alik, who was a dolphin lover.</p>
-<p>Alik ran to the outdoor performance hall with his sword. Alik, who ran while sparks of electricity crackled from his sword, swung his sword and released lightning.</p>
-<p>Flash! The surroundings brightened up and then returned to normal, but on the water of the outdoor performance hall, the dolphin was floating upside down along with the corpses of the cyber zombies.</p>
-<p>"Dolphin-ssi!"</p>
-<p>It seemed that Alik didn't know that water was weak against electricity because he didn't play Pokemon. Or maybe he just attacked in anger without thinking when he saw the dolphin being attacked. Anyway, even though it was in the water, Alik's growth rate was scary, as he annihilated the cyber zombies that were heavily crowded.</p>
-<p>"Alik, come here."</p>
-<p>I called Alik, who was blankly looking at the floating dolphin, to comfort him. Alik, with tears welling up in his eyes, hugged me tightly and sobbed.</p>
-<p>"I failed to control it, Ryuta."</p>
-<p>He failed to control it. Still, it seemed he basically knew about the attribute. The lightning attribute itself is destructive, but it seemed that he failed to control this attack because it was difficult to control, and the dolphin was electrocuted.</p>
-<p>"It's better for the dolphin to go in an instant than to have its whole body torn apart by those zombies."</p>
-<p>I comforted Alik with strange logic and entered the aquarium.</p>
-<p>"I'll guard the entrance, Teacher-ssi!"</p>
-<p>"Okay. I'm counting on you."</p>
-<p>There were other entrances, but since I didn't know the situation there, if the entrance was blocked, a very difficult situation could unfold where we would be trapped in the aquarium. So, we left Otagi Yuka to guard the entrance and went inside.</p>
-<p>When I entered the aquarium, I saw several people wearing VR devices like us lying scattered on the floor, torn to pieces. The blue light of the aquarium and the dried dark red bloodstains on the floor contrasted, creating a slightly eerie sight.</p>
-<p>We passed the floor that stuck to us due to the drying blood and continued walking. In the middle, I saw cyber zombies collapsed, all with holes in the middle of their foreheads. These are bullet marks, who is using them? Could it be Muko Neika using them?</p>
-<p>"It seems like someone has a gun, Teacher."</p>
-<p>"Yeah, who brought a gun to the zoo?"</p>
-<p>I nodded at Saionji Diana's words and raised a question. Saionji Diana shook her head as if she didn't know either. We walked past the increasing number of cyber zombie corpses. Gradually, the unique screams of cyber zombies, Kyaaak! Kieek!, began to be heard.</p>
-<p>We sped up and ran towards the sound, and there were Class B students from the 3rd grade armed with guns. They were shooting at the rushing cyber zombies in the passage near the aquarium's staff room, where there was no fear of the aquarium breaking even if they were hit by bullets.</p>
-<p>"They're surviving well?"</p>
-<p>"...I guess so."</p>
-<p>I was surprised at where they got the guns and how they could handle it so calmly.</p>
-<p>"Don't shoot. I'm Teacher Yamashiro."</p>
-<p>"Ah, you've come?"</p>
-<p>Muko Neika greeted me calmly as if she had met me while taking a walk. At the same time, she accurately pierced the forehead of the rushing cyber zombie with her gun. Her composure is amazing.</p>
-<p>Our group also helped Class B by attacking the cyber zombies rushing at them from behind to help annihilate them as quickly as possible.</p>
-<p>"Let's go. If we just get Class B, everyone will be gathered."</p>
-<p>"Are the others safe?"</p>
-<p>"Yeah, the whereabouts of the Class C homeroom teacher are unclear, but... the others are safe."</p>
-<p>Seeing the Class B homeroom teacher holding a gun, it seemed like he was safe too. So, is there only one victim so far? It was a miraculous event. In this kind of disaster situation, having only one victim could only be described as a miracle.</p>
-<p>"I've parked the bus at the entrance of the aquarium, so let's leave right away."</p>
-<p>"Thank you for coming to save us!"</p>
-<p>The Class B teacher was a female physics teacher who didn't have much contact with me, but she kept bowing to me. I waved my hand as if it was okay and took the lead. Muko Neika was also walking next to me, aiming her gun and matching my pace, so I decided to ask her what I was curious about.</p>
-<p>"But where did you get the gun?"</p>
-<p>"Before coming on the trip, I collected information and found out that in New Nanjing, where there are many cyber implant users, businesses of a certain size or larger have guns in their security offices in preparation for possible riots. So, when the situation turned strange, I raided the zoo's security office."</p>
-<p>It's like she's filming an action movie by herself.... There was a reason why Taira Kanna and Nakanoin Rina said that Muko Neika would be okay.</p>
-<p>"It was fortunate that I had friends in the disciplinary committee and friends who had done some shooting. If not, I would have had to stop the zombies by myself."</p>
-<p>There were quite a few disciplinary committee members in Class B, and several of them were fighting together. It's quite impressive.</p>
-<p>"But why did you choose the aquarium? If you got a gun, you could have gone somewhere else."</p>
-<p>"I thought it would be better to deal with zombies in the narrow aquarium than in the middle of the wide-open zoo. If the situation wasn't good, I was going to escape through the back door connected to the staff room."</p>
-<p>She deliberately chose the aquarium. As we were talking, we arrived at the entrance of the aquarium. Otagi Yuka also seemed to have fought with cyber zombies while waiting for us, and the corpses of cyber zombies were lying around the bus.</p>
-<p>"Teacher-ssi, let's get out of here quickly."</p>
-<p>"Okay. All of Class B, get on this bus. It's a safari bus, so it's sturdy, don't worry."</p>
-<p>I took the Class B students and sat in the back seat of the driver's seat so that I could jump out immediately if a sudden situation occurred.</p>
-<p>We were going back the way we came, and I felt Alik flinch while looking out the window. We were passing the outdoor performance hall of the Aqua Zone, and it seemed like he was remembering the memory of accidentally electrocuting the dolphin. But what is that fin sticking out of the water? It looks like a dolphin?</p>
-<p>"Huh? Alik, look over there."</p>
-<p>"Huh?"</p>
-<p>The dolphin that I thought had been electrocuted to death was alive. It seemed that Alik's power control had been successful. It was quite nice to see it swimming through the water.</p>
-<p>"Dolphin-ssi, it's alive...."</p>
-<p>"Yeah, that's a relief."</p>
-<p>It was a relief that the dolphin was alive. If it had kept floating upside down after dying, it would have left Alik with trauma. But, as life is full of ups and downs, ominous news followed the good news.</p>
-<p>"Teacher-ssi! The parking lot is a mess and the bus our school came on is gone!"</p>
-<p>The cars in the parking lot were overturned or flattened as if giants had fought, and fortunately or unfortunately, the bus we came on didn't seem to have left. Of course, the students who were supposed to be on it were not visible either.</p>
-<p>_________________</p>
-<p>Dressing up the Home Ec Teacher Hehe</p>
+<p>"Seari, do you have a preferred position when we do it?"</p>
+<p>At my question, Sawayanagi Seari pondered for a moment, then clapped her hands as if something had occurred to her.</p>
+<p>"Ryuta-nim, please do it from behind~!"</p>
+<p>Sawayanagi Seari took a position on all fours and wiggled her butt. As expected of an Ero Elf, her butt-wiggling seductiveness was extraordinary. Though slender, she had wide hips and long legs, giving her a Western-style, well-proportioned figure, and lying on all fours accentuated her feminine lines even more.</p>
+<p>"I'll do as you wish."</p>
+<p>I grabbed Sawayanagi Seari's slender waist. Seeing her like this, it was clear she had a thin waist and wide hips, the kind of Coke bottle figure guys go crazy for. Instead of inserting my hard-on right away, I rubbed her pussy all over, almost like a smegma, stimulating Sawayanagi Seari.</p>
+<p>"Hyaaang~! Ryuta-niim, it feels so good!"</p>
+<p>Sawayanagi Seari let out a seductive moan, unabashedly expressing her pleasure.</p>
+<p>Perhaps because I rubbed her pussy, juices dripped down and covered my dick. Compared to Sawayanagi Azuma, with whom I'd just had sex, her juices felt a bit thinner.</p>
+<p>I brought my juice-soaked dick to her opening, and Sawayanagi Seari herself twisted her waist, slowly swallowing my dick into her pussy.</p>
+<p>"Haeueuheung...!"</p>
+<p>As my dick slowly entered, expanding her pussy and scraping the inside of her vagina, Sawaanagi Seari moaned and arched her back like a bow. Before I knew it, my dick reached her cervix, pressing and stimulating it, causing her vagina to twitch once more, reaching a light climax.</p>
+<p>"I'll start moving slowly."</p>
+<p>I gripped Sawayanagi Seari's thin waist and slowly pulled my dick out, then thrust it in rapidly.</p>
+<p>"Hats! Ryuta-niim~! Heueung~!"</p>
+<p>With each thrust, I watched Sawayanagi Seari's breasts move, barely concealed by her slender frame, and my excitement gradually intensified.</p>
+<p>"Hahheueung, Ryuta-niim! Heuaahang♥ Ryuta-nim's dick feels so good, haeueheung, so full...! Ung, heueut!"</p>
+<p>As I gently rubbed her cervix, stimulating the inside of Sawayanagi Seari's vagina with my dick, I suddenly felt a sensation on my anus.</p>
+<p>"!"</p>
+<p>Surprised, I turned around to see Kiyona Mari licking my anus. Her older sister, Kiyona Hori, opened her mouth while rubbing her huge breasts against my back.</p>
+<p>"If Ryuta-ssi cums quickly, our turn will come sooner, right?"</p>
+<p>Ah, it seemed they were trying to stimulate me to cum quickly so they could have sex with me next. Of course, it felt good to have Kiyona Hori rubbing her breasts against my back, but especially having Kiyona Mari, who was usually so tsundere, licking my anus was quite arousing.</p>
+<p>"Haa...! More, heueheung! Inside me, hyaeut! It's getting harder~!! Haeueheung! I love it♥"</p>
+<p>Of course my dick would get harder with the added stimulation of two women's foreplay. Sawayanagi Seari's sensitive pussy felt the difference and moaned even more.</p>
+<p>"Heueut, I think I'm gonna cum! Ryuta-nim, Ryuta-niim♥"</p>
+<p>"Seari, hold on a little longer. We'll make sure you and Ryuta-ssi cum together."</p>
+<p>Kiyona Hori replied to Sawayanagi Seari's words, rubbing her breasts against my back and playing with my nipples with her hands. Naturally, Kiyona Mari was licking my rear even more enthusiastically.</p>
+<p>As pleasure came from multiple places at once-my dick, back, breasts, and butt-I quickly felt the urge to cum as well.</p>
+<p>"Quickly, hats! Ryuta-nim's baby batter, heueueheung...! Fill Seari's horny and sticky pussy, euheut♥ fill it up!"</p>
+<p>With Sawayanagi Seari's lewd urging, her pussy tightened, delivering the final blow to my dick, which was on the verge of cumming. I couldn't even say I was cumming before I unloaded completely inside Sawayanagi Seari.</p>
+<p>Bwoot! Bweet! Bwoot!</p>
+<p>"Keueueut!"</p>
+<p>"It's hot, hats! I can feel it filling me up♥, heueueung!"</p>
+<p>Thanks to the Kiyona sisters' help, I was able to inject a tremendous amount of Semen into Sawayanagi Seari. My vision turned white, and my thighs trembled with pleasure. A languid, pleasant sensation of all my strength draining away.</p>
+<p>When I pulled out my dick, I saw Semen dripping down. Unable to resist the sight of the Semen, Otagi Yuka approached and began to suck Sawayanagi Seari's pussy.</p>
+<p>"Haaaeue, andwaee~! My baby batter, heueung, don't take it away~!"</p>
+<p>Sawayanagi Seari whined, but Otagi Yuka had already sucked up all the Semen and licked her lips with her bright red tongue. Then, she winked at me.</p>
+<p>Feeling slightly drained, I lay down, and as expected, Sawayanagi Seari was carried away by the others who had been watching the sex.</p>
+<p>Kiyona Mari, who had been licking my anus, went out for a moment to brush her teeth, and Kiyona Hori approached me, spread her large breasts, placed my shrunken dick between them, and began to handjob me.</p>
+<p>The soft and pleasant hydraulic pressure of Kiyona Hori's breasts quickly enlarged my shrunken dick, and since my dick was already covered in Sawayanagi Seari's juices and my Semen, it acted as a lubricant, making it slippery and even more pleasurable inside Kiyona Hori's breasts.</p>
+<p>"Hey, I didn't brush my teeth just for a kiss with you!"</p>
+<p>Kiyona Mari, sitting next to my head, acted tsundere again and lowered her head to kiss me. Perhaps because she had just brushed her teeth, the kiss with Kiyona Mari had a strong minty flavor.</p>
+<p>She said it wasn't because of me, but she probably brushed her teeth to kiss me. Feeling somewhat touched, I stroked her head, and Kiyona Mari flinched and blushed.</p>
+<p>As I received Kiyona Hori's handjob and kissed Kiyona Mari, I was keenly aware that I was enjoying a sister sandwich, which was quite arousing.</p>
+<p>"M-make me feel good too...!"</p>
+<p>Kiyona Mari stood above my head, squatted down, and brought her glistening, straight pussy to my mouth.</p>
+<p>I took in the full scent of the lewd pheromones emanating from her pussy and began to lick Kiyona Mari's pussy with my tongue. Perhaps because she was a pyrokinetic, her juices felt warmer than usual.</p>
+<p>"Heue...eut! Hats! Your tongue doesn't feel good, heueut♥ not at all, hahats!"</p>
+<p>As I listened to Kiyona Mari's tsundere moans while receiving a handjob from her older sister, Kiyona Hori, I felt strange. It was like giving each other massages to the student in front of you back in school. Of course, it felt much better than that, though.</p>
+<p>After a while of mutual foreplay, I stood up and had the two sisters hug each other. For reference, Kiyona Mari, being lighter due to her smaller breasts, was on top. The sight of Kiyona Hori's large breasts and Kiyona Mari's small breasts pressing against each other, and their pussies touching each other, was visually very arousing.</p>
+<p>I didn't insert, but instead pushed my dick between their pussies and started thrusting. Is this what they call a pussy sandwich?</p>
+<p>"Hats, this is... the first time, haahang♥"</p>
+<p>"Not inserting isn't sex, so.... Heueung! I can't accept it...♥ Hyaahang!"</p>
+<p>With the two women's moans, both of their juices simultaneously coated my dick, making it incredibly slippery. The warm juices of Kiyona Mari and the normal juices of Kiyona Hori mixed together, creating a perfectly balanced oil that allowed me to thrust, stimulating both of their pussies and Clitoriss with a slippery, sticky sensation.</p>
+<p>"Heueut! The Clitoris, hats! The Clitoris is being rubbed by Ryuta-ssi's, eueueheung! glans♥, it feels so good, haahang!"</p>
+<p>"Absolutely, eunghheueut! It's not because of your dick, hats! That I feel good, hyaeueheung! not at all...!"</p>
+<p>As I was satisfying both of them at the same time, the students from St. Francis Girls' Academy clung to me.</p>
+<p>"We learned from the Sunbae(?). We realized that stimulating the teacher is faster than waiting for our turn."</p>
+<p>It seemed they were doing exactly what Kiyona Hori and Kiyona Mari had just done. Konoe Akina looked at me with heart-filled eyes and sucked on my nipples, while Saionji Diana, Sakagami Rena, and Otagi Yuka each took charge of a part and gave me foreplay.</p>
+<p>Naturally, my cumming was hastened by the added stimulation. Feeling my dick getting hotter and harder, the two of them looked excited but also disappointed as they opened their mouths.</p>
+<p>"No way...! I want to do it more. Heueut, not just rubbing, inside, haheung♥ put it inside~♥"</p>
+<p>"Hats, there are two of us, hats! So naturally, there will be two shots, right? Ung heueut...!"</p>
+<p>I pulled my dick out from between the pussy sandwich and inserted it into Kiyona Hori's pussy below. Since she had made me feel good with a handjob, I was planning to give her the gift of an orgasm before her younger sister.</p>
+<p>Peoeok! Peoeok! Peoeok!</p>
+<p>Her pussy was already heated up, so it could handle my rough thrusting. Kiyona Hori quickly climaxed from the sudden insertion and rough piston action.</p>
+<p>Her toes spread out, and with a moan of haaaahang!, her pussy twitched intensely, urging me to release my Semen. But I hadn't cum yet. I immediately pulled my dick out again and inserted it into her younger sister, Kiyona Mari.</p>
+<p>"Hats! Suddenly...! Keueot...♥ Heueut! It's not because of your dick, hats! That I'm moaning, haahang♥"</p>
+<p>I don't know how long she'll maintain her tsundere act, but it's quite a turn-on, so I hope she keeps it up. I quite liked the feeling of her body being honest while saying she didn't like it.</p>
+<p>"Heueeahaang! I'm gonna cum, hats I'm gonna cum...! Eunghheueeut! I'm gonna cum...! Haaaaang♥"</p>
+<p>Still, she's honest about cumming. I was starting to feel the urge to cum from the multiple attacks, so I cummed about half of my load inside Kiyona Mari's pussy, then unloaded the rest inside Kiyona Hori's pussy.</p>
+<p>"Haaang! I already came, hats! But putting this hot, rich milk in me like this, heueut! Makes me cum again!"</p>
+<p>It was quite a sight when I pulled out my dick. The sisters' pussies were coated in my white Semen, which felt very erotic. As I stood there silently, admiring the work of art I had created, I heard Konoe Akina's voice from behind.</p>
+<p>"It's our turn now, right?"</p>
+<p>Ah, the St. Francis girls are still left. Looks like I'm in for a tough fight today.</p>
+<p>_________</p>
+<p>Since there are no solo shots of Kiyona Mari, I'll upload a few ㅎㅎ</p>
+<p>Even though she's flat-chested, she's not completely flat ㅎㅎㅎ</p>

@@ -5,72 +5,114 @@ weight = 981
 chapter = 981
 +++
 
-<p>The story of Athena Mannerheim and the PMC was over, so next it was Joseodang's turn to talk. In fact, since I had talked with Asada Ei's side almost immediately before coming to Neo Tokyo, there would not be much new information. Rather, I had information to tell them.</p>
-<p>"Rena, Ei-ssi. There's no new information, is there?"</p>
-<p>"Yes, there is no information to report."</p>
-<p>"None, Liege!"</p>
-<p>At my question, Asada Ei and Sakagami Rena nodded their Heads and answered.</p>
-<p>"Then I will give you some new information."</p>
-<p>I told them the story about the Japan Paranormal Phenomenon Management Bureau investigation team that I had heard from Hanakame and Urabe Konoka. Although I didn't know the details, since I had learned that there was an investigation team within the Paranormal Phenomenon Management Bureau and knew a few members of that team, Joseodang would be able to find more new information based on this.</p>
-<p>"Ah...! So that's what happened. Thank you for the good information, Ryuta-nim."</p>
-<p>Asada Ei nodded her Head and answered that she understood my story. Asada Ei and Sakagami Rena, having heard information about Tsukiyo, glanced at Tsukiyo.</p>
-<p>In fact, if that delicate-looking beautiful girl was said to be the culprit behind a Murder case where 18 people were killed at once, no one would be able to resist staring. Even though there was the Reason of boksu.</p>
-<p>Since the story about the Japanese government's secret organization was quite important information, Asada Ei and Sakagami Rena listened to my story quite seriously and were discussing how they would investigate it.</p>
-<p>Naruse Shiyo, an Executive of the same Joseodang, wondering what she was doing, was having an eye-fight with Tsukiyo alongside Alik. Alik, as a peer with the same Sabu, was looking at Tsukiyo like a Cat hissing next to Alik, but to me, knowing Tsukiyo's True Identity, it seemed Tsukiyo was just playing with the two of them.</p>
-<p>"Ehyu...! Alik."</p>
-<p>I sighed and called Alik. At my call, Alik stopped her eye-fight with Tsukiyo and approached me.</p>
-<p>"Ung, Ryutta."</p>
-<p>"Now that you've graduated and settled down, Alik should do what you want to do."</p>
-<p>Now that she had graduated and a base of operations had been established, it seemed I could have Alik do what she wanted.</p>
-<p>"Alik will be Ryutta's maid. And Alik will punish anyone who bothers Ryutta."</p>
-<p>Although she had wanted to be a maid for a long time, I couldn't really waste a high-level force like Alik as just a maid. So, I had planned to create my direct combat unit, dressing Alik in a maid uniform normally to satisfy her, and having her perform Guard or Assassination missions, and it was Fortunate that what Alik wanted was roughly similar.</p>
-<p>"Alright. Let's do that."</p>
-<p>"I want to be Ryuta Oppa's maid too!"</p>
-<p>As I stroked Alik's Head and nodded, Tsukiyo, who had been watching, raised her Hand and clamored that she wanted to be a maid too.</p>
-<p>However, Tsukiyo had some problems being used for Guard or Assassination missions like Alik. I had talked a little on the way from the shrine to the mansion for a Meal earlier, and Tsukiyo, true to being a half Outer God, possessed considerable power, but there was a Condition that she could only use her power if she received some Price. Of course, she could ignore that Condition and use her power, but if she used her power without Limit, it would entail considerable disadvantages for Tsukiyo.</p>
-<p>Nevertheless, the Reason she could kill people indiscriminately in the A-village Murder Incident was because Tsukiyo had received the Price of a Body from Sato Tsukiyo, the original owner of the Body, which allowed her to use her power.</p>
-<p>Instead, if someone invaded her divine domain with malice or launched a preemptive Attack, there were no particular Limits on her Counterattack, so I had intended to keep Tsukiyo in the mansion as a defensive totem. But suddenly, a maid...?</p>
-<p>"Tsukiyo, shouldn't you be a Shrine Maiden? If characters overlap, the impact tends to be weaker."</p>
-<p>I tried to persuade Tsukiyo with the feeling that duplicate characters weren't good, but Tsukiyo didn't seem particularly persuaded. Instead, she tilted her Head and pointed out something strange to me.</p>
-<p>"Is that so? But if you include me, there are three Shrine Maidens.... Isn't that more of a duplicate?"</p>
-<p>Ah, there were Urabe Konoka and Hanakame. I made a Mistake.</p>
-<p>"There are many maids in the mansion, much more common than Shrine Maidens. Tsukiyo. And we are Shrine Maidens serving Gingahime-nim, and Tsukiyo isn't a true Shrine Maiden, so you can do whatever you want anytime."</p>
-<p>Urabe Konoka, perhaps trying to help me, told her that maids were more common than Shrine Maidens and that she could take on other Roles.</p>
-<p>"Alright. Then I'll think about something else."</p>
-<p>Tsukiyo, who had wanted to be a maid, also gave up quickly, as if she hadn't thought deeply about it.</p>
-<p>Anyway, returning to the story of my direct combat unit that Alik would lead, I planned to keep elites like Otagi Yuka and Shimokawabe Airen under me, using them for tasks that required military force.</p>
-<p>Of course, Otagi Yuka was going to the USA tomorrow, and Shimokawabe Airen had not yet fully recovered, but since there were no major battles immediately, I thought it would be fine to create the direct combat unit at my Leisure.</p>
-<p>Since there were other military units, if anything happened for a while, I would have to use them.</p>
-<p>"Shii, if you're going to be active in Neo Tokyo, I'll lend you an office in another Building. Having a problem-solver's office makes you seem a bit more credible."</p>
-<p>Originally, Seizawa Shii was supposed to be active in Tokyo, but since she had asked if she could live with us in our mansion earlier, I made the Proposal to lend her an office.</p>
-<p>"Hmm.... I'll think about it. Living at Ryuta-cchi's house feels like too much of an Obligation...."</p>
-<p>Earlier, she had asked bluntly if she could live with me, but after some Time passed, she seemed to be thinking of the various Problems with that Proposal.</p>
-<p>"Don't think of it as an Obligation. Anyway, you're going to the USA tomorrow, so there's no need to make a Decision right away. Think about it carefully while you're in the USA."</p>
-<p>As I said, there was plenty of Time to think. This was because finding Fujigasaki Rinka's Sabu, Soda Haruto, was expected to take several weeks.</p>
-<p>For reference, Kiyohira and his Sabu, Musashi Takuro, who were scheduled to operate in the USA with Fujigasaki Rinka's Party/Group, had departed for the USA a day earlier today due to a cyber implant surgery schedule. From Kiyohira's perspective, he needed to undergo the cyber implant surgery as soon as possible for quicker Adaptation and to better perform in the UMC Open-Weight Throne Defensive Battle or assist Fujigasaki Rinka, so the surgery date was set as early as possible. Since he had already completed various examination procedures while in Japan, a quick surgery was possible. I had received a Report from Eve that if there were no particular Problems, the surgery would commence within two or three days, and I hoped it would go well.</p>
-<p>"Rena and Ei-ssi, do you want to go to our mansion too?"</p>
-<p>Since we had pretty much finished talking in the office, I made the Proposal to Sakagami Rena and Asada Ei. In fact, Sakagami Rena had decided to live with us in our mansion, but Asada Ei had decided to live in one of Joseodang's Safe Houses in Neo Tokyo.</p>
-<p>This was because a Safe House equipped with various cooling facilities had been prepared in advance, and mansion life was not suitable for Asada Ei, who was a Snow woman.</p>
-<p>"Excellent, Liege...!"</p>
-<p>"I will be under your Obligation for a moment, Ryuta-nim."</p>
-<p>"Just a moment. Before we leave, I'll make a Phone Call to Jinmija Yeosa."</p>
-<p>Still, I've come to a new Home, so I should invite my mom too. It felt a bit Embarrassed, like a male lion in a pack of only lionesses, but I had to invite her if I didn't want to be called an unfilial son. For reference, Jinmija Yeosa had rented a room in a luxury mansion close to the Hatake Investment Company Building and was commuting from there.</p>
-<p>"I asked the Butler to specially prepare tonight's Evening meal, so please come and enjoy some delicious food before you leave."</p>
-<p>-Alright. I'll finish my current Work/task and then depart. Son, you go ahead with your Party/Group.</p>
-<p>Having invited Jinmija Yeosa, I went down to the Underground Parking Lot again, took the Women I had brought, and departed for the mansion again. Additionally, Sakagami Rena, Asada Ei, Athena Mannerheim, and others invited from this Building decided to come in separate cars due to seating issues.</p>
-<p>The Evening meal was boisterous and enjoyable. A few people acted a bit awkwardly to make a good impression on Jinmija Yeosa, but that was brief, and everyone enjoyed a wonderful Evening meal and Conversation before parting ways. I saw off those leaving the mansion, took a Shower, and lay down on the gigantic bed.</p>
-<p>The entire wall visible from the bed was a large Screen. I immediately turned on the TV and switched to a News channel, and coincidentally, there was a News report showing Kiyohira's departure scene.</p>
-<p>-Genba-ssi! What happened to your severed Arm?</p>
-<p>At the reporter's Question, Kiyohira opened his Mouth, pretending to be so cool that I burst into laughter.</p>
-<p>-This Arm, you ask...? I left it in the new Era.</p>
-<p>"Puhahaha...!"</p>
-<p>At Kiyohira's Words, I couldn't help but actually burst into Playful Laughter. When he was hospitalized, he said he was bored, so I recommended ○ Piece, and he was spouting lines from it. And he was doing it while striking all sorts of poop poses.</p>
-<p>As I was watching the News, laughing with Tears streaming down my Face, the door to my room creaked open. Who was it? I looked, and Seizawa Shii and Otagi Yuka were entering my room.</p>
-<p>"We.... are going to the USA tomorrow...."</p>
-<p>Otagi Yuka, blushing, spoke about going to the USA tomorrow, and seeing her Appearance, Seizawa Shii, perhaps feeling impatient, opened her Mouth.</p>
-<p>"So, since we won't be able to do it with Ryuta-cchi for a while, we want you to fully charge us with Ryuta-cchi's essence tonight~☆"</p>
-<p>Aha...! That's right. Since the two of them would be going to the USA tomorrow and I wouldn't see them for a while, I would have to charge those two Women with my milk.</p>
-<p>Gojoy-nim requested Han Yu-gyeong's Breast Covering~!</p>
-<p>I Save I-nim requested Jinmija Yeosa's Micro Bikini, Reverse Bunny Girl~!</p>
-<p>Micro Bikini~!</p>
-<p>Reverse Bunny Girl~!</p>
+<p>Another route - Juuki (Gun Demon) Training.</p>
+<p>After a major fight, I captured one person as a Prisoner. The one I captured was an excellent gunslinger nicknamed Juuki (Gun Demon) in the original work. Just like in the game, they handled all firearms well, so our side suffered quite heavy losses, but somehow, we were fortunate enough to capture them as a Prisoner.</p>
+<p>I entered the warehouse alone, where Juuki (Gun Demon) was held. Juuki (Gun Demon) was suspended by chains, wearing a thick-gloved power suit of unknown Gender. Naturally, since the battery pack had been removed, they couldn't use the power suit's characteristic powerful Muscle strength assistance, so they were merely hanging there.</p>
+<p>I approached Juuki (Gun Demon) and began removing the power suit's Gloves one by one. Kung Kung, the sound of the Gloves falling and echoing on the warehouse floor, was heard.</p>
+<p>As I completely disengaged the power suit, there was a Woman with short hair. Inside the power suit, a feminine Figure, wearing a sports bra and panties, was hidden. Seeing that Appearance, I was quite surprised. Juuki (Gun Demon) was a Woman? Even in the game, they only appeared in the power suit, so I didn't know they were a Woman; it was unexpected that a Woman was inside.</p>
+<p>"So, the famous Juuki (Gun Demon) was a Woman?"</p>
+<p>"...."</p>
+<p>Juuki (Gun Demon) didn't answer my question. I poked the nipple slightly protruding above the sports bra Juuki (Gun Demon) was wearing.</p>
+<p>"Heung, Keut...!"</p>
+<p>Precisely as my finger touched the nipple, Juuki (Gun Demon)'s body Trembled. As expected of someone with excellent physical Sensation, their nipple sensitivity seemed quite good.</p>
+<p>"Keueut, kill me. Why don't you kill me?"</p>
+<p>"I prefer to persuade rather than kill. No matter how much harm you've inflicted upon us."</p>
+<p>Since Juuki (Gun Demon) was a named character even in the original work, I thought I could use them quite well if I persuaded them. By the way, 'Keut, kill me'... Hearing such Words, like a female knight captured by Enemy Forces, would make anyone want to torment them.</p>
+<p>"Then, I'll begin the persuasion."</p>
+<p>I, like a gentleman (?), informed Juuki (Gun Demon) that I was beginning the persuasion, then grabbed Juuki (Gun Demon)'s breast. It wasn't a very large breast, but perhaps because they were a former Combatant, it was quite elastic and pleasurable to touch.</p>
+<p>"Heueu...! Keueut! I-is this persuasion?!"</p>
+<p>"In a little while, you'll want to be on my side."</p>
+<p>"Don't be ridiculous!! That won't happen!"</p>
+<p>Even as they said that wouldn't happen, their nipples hardened. It's always so amusing to see a body react honestly, even when the Words say 'that won't happen' or 'I don't like it'.</p>
+<p>Juuki (Gun Demon) rattled the chains and writhed their body, and the pleasure felt in their breasts seemed to be gradually growing stronger.</p>
+<p>Seeing that, I drew forth the Abyss with my Fingertips. Then, I slowly cut off the front strap of the Bra. The Bra fell to the floor with a Thud, and Juuki (Gun Demon)'s breasts were revealed. Breasts of a moderate size, neither small nor large, were reflected before my eyes.</p>
+<p>The Pink nipples Trembled under my Gaze. I chuckled at the sight, then grabbed Juuki (Gun Demon)'s Chin, lifted it, and said,</p>
+<p>"Your breasts are pretty."</p>
+<p>"Tsk, abandon the thought that I'll follow you just because you praise me...!"</p>
+<p>I just praised them, that's all.... I ignored Juuki (Gun Demon)'s Words, grabbed their breast, and lightly bit their nipple. Then, in that state, I began to Stimulate the nipple by Licking it with my tongue.</p>
+<p>"Keuheungeut...!"</p>
+<p>Juuki (Gun Demon) gradually began to make a more feminine Voice. Their rebellious movements steadily decreased. As expected, it's always the most interesting part, subduing a Prisoner after a battle, precisely because of these Reactions.</p>
+<p>After Molesting Juuki (Gun Demon)'s nipples for a while, I removed my Lips and grabbed the only piece of cloth Juuki (Gun Demon) was wearing: their panties.</p>
+<p>"It's damp in the middle? Are you wet? Or did you piss yourself?"</p>
+<p>"I'm not wet...!"</p>
+<p>"Then you pissed yourself?"</p>
+<p>"Keueut...! Shut up!"</p>
+<p>Wordplay isn't working, I see. Then, there's no choice but to just take off their panties. Unlike when I cut off the Bra, I took off the panties directly with my own hands, but it took some time because Juuki (Gun Demon) moved their Legs wildly. I needlessly teased them and made them irritated.</p>
+<p>Still, since I did take them off, it's time to gradually begin. I Bound both of Juuki (Gun Demon)'s thighs with Telekinesis, then began to freely touch their pussy. Perhaps because their Arousal had subsided from struggling and moving their Legs just now, their pussy was dry, but I wasn't worried, as my Skill could make it Flood at any time.</p>
+<p>Zveup...!</p>
+<p>I inserted one finger into their Vaginal opening while beginning to caress the outside of their pussy with my other hand. Juuki (Gun Demon) moved their Torso, resisting intensely, but since both their Legs were already tightly held by Telekinesis, they couldn't move as violently as when I took off their panties.</p>
+<p>"Keuheung, Heueu...!"</p>
+<p>Faint moaning sounds, like a soft Breath from Nose, flowed out. Their pussy was getting wet, and vaginal fluid was emerging, but I couldn't move my finger more intensely. This was because the finger I had inserted into their Pussy hole was blocked, unable to go in even a single joint. The Hymen was blocking my finger's advance.</p>
+<p>"You're a virgin, yet you're getting this Aroused? How Lustful."</p>
+<p>I whispered into their Whispering Ear, degrading them. Hearing my degradation, Juuki (Gun Demon)'s Face reddened, and they said nothing. Hmm, unexpectedly, degradation seemed to work on their Personality. They felt shy and shame, but their pussy squirmed, and vaginal fluid gushed out.</p>
+<p>By the way, usually, at times like this, they'd just say it's merely a physiological reaction, so why is this one staying silent? Do they have no tolerance for men? Did they go through all-girls middle school, high school, and university?</p>
+<p>First, I need to touch them more. I need to engrave upon them that the pleasure they're feeling isn't a lie, but a real, tangible thing.</p>
+<p>Squish, squish, squish.</p>
+<p>"You know what? It feels like it would be incredibly good with you. This is the first time I've seen a virgin release so much Lustful pussy fluid, gripping my finger so tightly. If I put it all the way inside, you'd clench incredibly tight, wouldn't you...!"</p>
+<p>I continued to whisper Lewd talk into their Whispering Ear while touching Juuki (Gun Demon)'s pussy. No matter how much Juuki (Gun Demon) denied it, their nipples were noticeably erect, pointing towards the sky, and vaginal fluid was continuously dripping from their pussy like a half-submerged faucet.</p>
+<p>"For now, this much seems enough."</p>
+<p>"Heueu, Uh? W-what do you mean by that?!"</p>
+<p>Juuki (Gun Demon), who had been hazily enjoying the pleasure, asked what I meant by my Words. They seemed quite innocent, as if they didn't precisely understand what I meant.</p>
+<p>Since a virgin might panic if they saw my Large Penis, I grabbed Juuki (Gun Demon)'s Chin with one hand and Kissed them. Juuki (Gun Demon) tried to bite my tongue during the sudden Kiss, but I was holding their Chin firmly, so they couldn't bite my tongue.</p>
+<p>As my tongue wrapped around Juuki (Gun Demon)'s tongue, tickling and continuously injecting pleasure, Juuki (Gun Demon) was soon absorbed in sucking and receiving my Lips. In the meantime, I took off my Pants and underwear. My cock was exposed, but Juuki (Gun Demon) had already closed their eyes and was engrossed in our kiss, so they couldn't see my cock.</p>
+<p>Their Legs remained spread open, held by Telekinesis, and with my free hand, I grabbed my cock and rubbed it against their pussy. Juuki (Gun Demon) seemed slightly surprised but soon thought it was the same Foreplay as before and continued to enjoy my kiss. Perhaps because touching their pussy felt good, they were making nasal moans, Heuheung Heuheung, even during the kiss.</p>
+<p>I smiled at the sight of the innocent virgin, deceiving themselves, and immediately pushed my cock in deeply. My cock immediately tore through Juuki (Gun Demon)'s Hymen and entered Intravaginal.</p>
+<p>"Uh...! Heueu...!"</p>
+<p>Because we were kissing, Juuki (Gun Demon) couldn't properly moan (whether it was a moan of Pleasure or pain, I didn't know) and opened their eyes wide. But she was a Prisoner, and I didn't soothe Juuki (Gun Demon), who was surprised by the sudden insertion; instead, I immediately began to thrust my hips.</p>
+<p>Tzeueup...!</p>
+<p>As I pulled my mouth away from the kiss, a silver-colored Silken Strand made of saliva stretched out, then broke with a Thud. As the tongue that had been teasing inside their mouth disappeared, Juuki (Gun Demon) Screamed loudly.</p>
+<p>"What are you doing! Pull it out! I said pull it out...!"</p>
+<p>"Now that I've taken your Hymen, I'm your first man. That's an irreversible fact. And even if I pull my cock out now, it's not like your Virginity will return, is it? So...."</p>
+<p>At the Words that it was already irreversible, Juuki (Gun Demon) seemed to fall into Despair. I opened my mouth, speaking close to Juuki (Gun Demon)'s Sensitive Ear.</p>
+<p>"Since it's irreversible, wouldn't it be better to just enjoy it?"</p>
+<p>I spoke as if seducing Juuki (Gun Demon) with a demon-like Voice, but Juuki (Gun Demon) shook their Head, refusing to be Subjugated by me. Naturally, since I had merely inserted it, there was no way a named character like Juuki (Gun Demon) would be Subjugated. The real thing starts now.</p>
+<p>"Heung, Keueut...! Do you think I'll be Subjugated by merely this, Keueut?!"</p>
+<p>"We'll see about that."</p>
+<p>I began to thrust my hips, kneading Juuki (Gun Demon)'s breasts with both hands. Juuki (Gun Demon) tried to resist, making Keuheung! Keueut! sounds, but they couldn't stop the pleasure spreading from their groin throughout their entire body.</p>
+<p>"Keuheung...! Haaht...! Heueu...!"</p>
+<p>I didn't say anything that would break the Atmosphere, like 'doesn't it feel good?', but instead kept gazing into Juuki (Gun Demon)'s eyes as I thrust my hips.</p>
+<p>The wet squishing sounds and the sound of flesh colliding disoriented Juuki (Gun Demon)'s Sensitive Ear, amplifying the pleasure given by my cock, which was gradually digging deeper inside them.</p>
+<p>"Heungaat! No more, Heueut! No, nooo mooore, Heuhyat! I can't take it anymoreee~!!"</p>
+<p>Juuki (Gun Demon) couldn't endure it, letting out moans like Screams, then, as if fainting from a powerful Orgasm, their Head dropped with a Thud. As expected, a virgin's pussy was weak. My feeling of ejaculation hadn't even risen, yet they were trembling and reaching Climax.</p>
+<p>You're not dead, are you? I lifted Juuki (Gun Demon)'s Chin to check. Hmm, they're breathing well. I looked at Juuki (Gun Demon), nodded my Head, and pulled out my cock. As my glans scraped against the Intravaginal as it pulled out, Juuki (Gun Demon) flailed again, opening their eyes as if regaining consciousness. Then, they looked at me and asked,</p>
+<p>"Haaang...! Is it, Heueut, is it over now?"</p>
+<p>"What are you talking about? I'm not done yet. You're the only one who felt good."</p>
+<p>At my Words, Juuki (Gun Demon)'s Expression turned despairing, but behind that despairing Expression, they couldn't hide the Expectation of being able to feel the same Pleasure again.</p>
+<p>This time, I went behind Juuki (Gun Demon). I should do it in Doggy style. Since I couldn't keep using Telekinesis to hold their thighs, I'd have to Thrust them from behind so they couldn't show defiance.</p>
+<p>"Whyyy.... are you going behind me? It's over now, isn't it? It's over, isn't it?"</p>
+<p>"I just told you. I'm not finished yet. Remember it well. This is a position called Doggy style."</p>
+<p>I grabbed Juuki (Gun Demon)'s hips from behind and slowly pushed my cock in.</p>
+<p>"Uh, Keueut...!"</p>
+<p>As soon as I inserted my cock, Juuki (Gun Demon) curled their Toes, halfway reaching Climax. Since I was holding their hips, they felt like they were slightly dangling.</p>
+<p>"Expect it. Because I'll make you feel even better."</p>
+<p>"Even... better...?!"</p>
+<p>As I whispered into their Whispering Ear, Juuki (Gun Demon) asked back in a hazy Voice. Since they seemed curious, it was time to gradually begin.</p>
+<p>"Euryat!"</p>
+<p>"Heuhyaat...! Wait...! Heueu, the angle has changed, Eungeuheut...! The Feeling is, Haaht! Diffeerentt...!"</p>
+<p>Juuki (Gun Demon)'s pupils rolled upwards at the different Feeling compared to what we had just done while standing and gazing at each other. But I was in a Situation where I had to show my Sex Skill to persuade Juuki (Gun Demon). I couldn't stop here.</p>
+<p>"Heueu! Haaht! Haaang! I'll become your Subordinate, Heueut! I'll become it, Haaang! Stop, Heueu! Stooop ittt!!"</p>
+<p>I shouldn't believe these Words. Humans were beings who could lie at any time. Only after completely soaking Juuki (Gun Demon) in Semen, making them 'semen-pickled' so they couldn't Betray me, could I truly believe that Juuki (Gun Demon) had become mine.</p>
+<p>"Haaeueuheung! Stop, stooop...!"</p>
+<p>I decided to perceive Juuki (Gun Demon)'s 'stop' as a 'do more' Feeling and continued to thrust my hips. As I thrust my hips, I slapped their buttocks, Chalsak Chalsak, making them red, but Juuki (Gun Demon) seemed to feel no pain at all, due to the pleasure emanating from their pussy.</p>
+<p>Gradually, my own feeling of ejaculation began to rise. I grabbed Juuki (Gun Demon)'s hair and thrust my hips even stronger.</p>
+<p>"Haaht! Heueu, it feels so gooood, Haaang...! Heueu, youuurs...! Haaht! I'll become yours, Haaang♥ Heueu...! Stop, stooop ittt!!"</p>
+<p>"I'm going to cum inside, so you have to take it all with your pussy. Understood?"</p>
+<p>"Heueu, w-what...? Haaht! You're cumming, hit...! Heueu!"</p>
+<p>Since they seemed unable to properly understand the word 'cumming,' I decided to just give Juuki (Gun Demon) a direct demonstration.</p>
+<p>Cheolsseok! Cheolsseok! Cheolsseok!</p>
+<p>Gazing at their heaving buttocks, I tightly embraced Juuki (Gun Demon) from behind and began to Ejaculate.</p>
+<p>Buut! Byuut! Buuuut!!</p>
+<p>"Heua...! Heueu! Th-this, Heueut! What is this hot thing, Haaang...! My insidee!! Haaht! I'm coming, I'm coming, I'm comingg♥"</p>
+<p>Simultaneously with my Ejaculation, Juuki (Gun Demon) also reached Climax. Their entire body reddened and Trembled, as if a tremendous Orgasm had struck Juuki (Gun Demon).</p>
+<p>"Haa, haa, haa.... Y-you...! Is it over now?"</p>
+<p>Juuki (Gun Demon), who couldn't regain consciousness for a while, asked me, panting for breath.</p>
+<p>"Usually, men do need to rest a little after Ejaculating once."</p>
+<p>Juuki (Gun Demon) brightened up at my Words, but then couldn't help but fall into Despair at the Words that followed.</p>
+<p>"But I'm not a usual man, so even if I Ejaculate, I can do it about five more times immediately."</p>
+<p>"S-stooop ittt!!"</p>
+<p>That day, the warehouse was filled with Juuki (Gun Demon)'s moans and Screams. As the Date changed and the next day dawned, Juuki (Gun Demon) became my Loyal Subordinate and, at the same time, a Meat Toilet addicted to my cock.</p>
+<p>B-cut!</p>
+<p>I can't maintain background consistency, and images are created faster without backgrounds, so I usually don't use them haha.</p>
+<p>TheDreaming-nim requested Lianna Holden 1. Wet Shirt on the bed 2. Breast Exposure on the bed</p>
+<p>1.</p>
+<p>2.</p>

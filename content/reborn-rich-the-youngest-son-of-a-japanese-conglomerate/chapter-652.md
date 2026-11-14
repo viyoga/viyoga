@@ -5,81 +5,65 @@ weight = 652
 chapter = 652
 +++
 
-<p>We continued to hold hands as we strolled through the beautiful villa district, enjoying the scenery before stopping at a cafe. We figured our legs were getting tired from all the walking, and it was cold, so we wanted to rest and warm up while we talked.</p>
-<p>After sitting down and checking out the cafe's atmosphere and menu, it seemed to be a specialty herbal tea cafe. Coffee is common, so this kind of place isn't bad either.</p>
-<p>"This place seems to specialize in herbal teas. What do you want to drink?"</p>
-<p>"I'll have... lavender tea."</p>
-<p>"Then I'll go with today's herbal blend...."</p>
-<p>Since we could order from a kiosk at our seats, we each ordered our drinks and waited for a bit before a woman in a waitress outfit brought our tea.</p>
-<p>We received our warm teas and took a sip, warming our slightly chilled bodies. The complex scent of the blended herbs was quite pleasant.</p>
-<p>"Come to think of it, Urabe-ssi and I don't seem to know much about each other, surprisingly."</p>
-<p>Especially me, I didn't know much about Urabe Konoka. Actually, Urabe Konoka probably knows more about me than other students. She knows that I am Taira, and she also knows that I am related to Simyeonui ttal.</p>
-<p>In the case of other students, I know a lot because of the information investigated by the Taira Group's information team, but Urabe Konoka is a recently</p>
-<p>adopted daughter and suddenly entered St. Francisco Girls' Academy for the first time this time, so the information team didn't have time to investigate, so there was nothing special in the information I received.</p>
-<p>All I know about Urabe Konoka is that she is a shrine maiden of Simyeonui ttal and used to work as an employee at an inn run by her grandmother, so I was curious.</p>
-<p>"How old are you?"</p>
-<p>I knew that Urabe Konoka was an adult, but I didn't know her exact age, so I asked.</p>
-<p>"My father passed away during the first semester of my senior year of high school, and about a year has passed since I dropped out for revenge... I'm the same age as the students who repeated a year in our class."</p>
-<p>Ah, so she's the same age as me. By the way, she dropped out of high school as a mere frail girl to take revenge... Urabe Konoka seems to have a bit of a chivalrous spirit. In a way, it's amazing that she even succeeded in her revenge.</p>
-<p>"It's not something an educator should say, but I think it's amazing that you actually got your revenge."</p>
-<p>"Actually, I was scared too. But after reading my father's will, I couldn't stand doing nothing, so I decided to take revenge with my grandmother."</p>
-<p>Urabe Konoka's father, Ueshima Kosaku, was a man who committed suicide after a fellow teacher stole all of his research.</p>
-<p>Some might think, 'Why would he kill himself over something like that?' but Urabe Konoka's father seemed to feel considerable frustration because he had his life's work stolen before his very eyes.</p>
-<p>"I've told you my story, so please tell me about yourself, Sensei."</p>
-<p>"Hmm... Okay, I guess I can start with this."</p>
-<p>I told Urabe Konoka that I was an illegitimate child. I told her that I didn't know I had a father when I was growing up and that I was suddenly dragged to Taira Saburo's funeral, and she listened to my story with a very interested expression.</p>
-<p>"Ah... it's like something out of a drama. 'The person who thought they were a commoner is actually a member of the Taira Group?!' That kind of feeling."</p>
-<p>"Hahaha, I guess it does feel a bit like that."</p>
-<p>The story of an illegitimate child of a chaebol family is a common trope in melodramatic dramas, so I understood why Urabe Konoka said it seemed like something she saw in a drama.</p>
-<p>"I'm kind of similar to you. I'm an adopted daughter, and you're an illegitimate child, but our status, or something like that, suddenly got higher."</p>
-<p>"Well, yeah."</p>
-<p>It wasn't strange that Urabe Konoka was talking about status since it was a world where capitalism was at its extreme.</p>
-<p>"It must have been hard for you to adapt."</p>
-<p>"Well... my uncles are always looking at me with suspicion. How's the Urabe family?"</p>
-<p>"Well, since it's a family of shamans where divine power is passed down through bloodlines, there are many people in the family who disapprove of me."</p>
-<p>From what I heard, the Urabe family seemed to reject Urabe Konoka even more than the Taira family, where my uncles and aunts didn't even consider me a competitor. I decided to change the subject to lighten the slightly heavy atmosphere.</p>
-<p>"Did your grandmother get out? You said she was going to be released on parole before."</p>
-<p>"Ah, yes. She's selling the inn and will be coming to the mainland soon. As you know, Sensei, the distance from the island is too far, so it's hard to see each other when we want to."</p>
-<p>"Really? Well, since you're here now, it must be hard for her to run the inn alone. If she still has lingering feelings about the inn business, I'll set up an inn for her. If the work is hard, she can just hire employees."</p>
-<p>When I asked, with an exaggerated expression, if I should set up an inn for her, Urabe Konoka smiled, thinking I was joking.</p>
-<p>"I'm not kidding, so think about it. The food I ate at the inn back then was really delicious. The service... it was really nice when a kid named Hamahaka Konoka scrubbed my back while I was bathing."</p>
-<p>"Ah~! What are you talking about?!"</p>
-<p>When I talked about Urabe Konoka attending to me when I was at the inn back then, Urabe Konoka blushed and playfully hit my arm.</p>
-<p>We chatted while talking about each other and the upcoming festival before leaving the cafe when it was lunchtime.</p>
-<p>"What do you want to eat?"</p>
-<p>"Since we were talking about our inn earlier, I want to eat something seafood-related."</p>
-<p>"Then let's walk around and see if there's a restaurant like that."</p>
-<p>I took Urabe Konoka's hand again and walked down the street. We weren't as stiff as when we first held hands, probably because we talked about each other a bit more.</p>
-<p>While walking around the villa district shopping street, we found a restaurant specializing in snow crab course meals. As befitting a wealthy neighborhood, there was a store selling snow crab even though it was far inland. Of course, the price wasn't cheap, but with the wealth I had, I could eat this every day without any problems.</p>
-<p>We ordered the most expensive course meal for three people and ate the snow crab dishes that came out one by one. We ate snow crab in every possible way, including grilled snow crab, steamed snow crab, snow crab sushi, fried snow crab, and snow crab shabu-shabu, and then we ate the meal menu, which included udon noodles boiled in snow crab shabu-shabu broth and snow crab gratin.</p>
-<p>Feeling satisfied, we came out of the restaurant and talked about the food.</p>
-<p>"It was definitely delicious... but since this is inland, the one I ate at the inn back then was fresher and tastier."</p>
-<p>"Right? I was thinking the same thing while I was eating."</p>
-<p>It was definitely a high-end restaurant, so it was delicious, but there was still a difference from eating it in the production area. It was a difference in freshness, so there was nothing the restaurant could do about it.</p>
-<p>"We've had lunch, so let's go somewhere else now."</p>
-<p>We had been walking around the villa district since morning, so I thought we had seen enough, and we returned to the parking lot where we had parked the car.</p>
-<p>"Where do you want to go?"</p>
-<p>I actually had a date plan set up, so I was just asking out of courtesy. If we played statically in the villa district, this time I had reserved a bowling alley or a table tennis hall to play a little more dynamically than in the morning.</p>
-<p>"...."</p>
-<p>Urabe Konoka suddenly went silent at my question. What's wrong...? I thought, and when I looked at her, Urabe Konoka, whose face was completely red, looked at me.</p>
-<p>"Are you sick? Do you have a fever...?"</p>
-<p>Her face was so red that I put my hand on Urabe Konoka's forehead, and it was definitely a little hot.</p>
-<p>"You really have a fever? Is it because we were outside for too long today?"</p>
-<p>"It's not a fever from being sick."</p>
-<p>At my fuss, Urabe Konoka smiled slightly and grabbed the hand that was on her forehead and pulled it down.</p>
-<p>"I'm blushing because I'm embarrassed about what I'm about to say."</p>
-<p>"What you're about to say?"</p>
-<p>What is she so embarrassed about that she's blushing this much? I waited for Urabe Konoka to open her mouth.</p>
-<p>"What you asked, Sensei."</p>
-<p>"You mean where I asked where you wanted to go?"</p>
-<p>Urabe Konoka nods when I ask back. Hmm... Where does she want to go that she's stalling like this?</p>
-<p>"Where I want to go is...."</p>
-<p>Urabe Konoka stops talking again. Seriously, she's not Kim Seong-ju, but why is she being so frustrating? I really wanted to tackle her, but I waited again, looking at Urabe Konoka's face, which was as red as a carrot.</p>
-<p>"I, I, I want to go somewhere where it can just be the two of us, Sensei...!"</p>
-<p>If it's a place where it can just be the two of us, is she talking about a place where a man and a woman take off their clothes and combine their genitals in a reproductive act? I'm not misunderstanding, am I?</p>
-<p>"Really?"</p>
-<p>"Yes...."</p>
-<p>At Urabe Konoka's shy but firm answer, I immediately started the car. If the woman has mustered up this much courage, I can't just stand still. I quickly started the car to find a nearby lodging.</p>
-<p>_________________________________</p>
-<p>Next episode preview...!</p>
-<p>See you in the next episode without underwear, hehe.</p>
+<p>"Hoho, so you said you wanted to meet with me alone?"</p>
+<p>Minamoto Ushin opened his mouth as he sat across from Minamoto Risa. Minamoto Risa, who had a calm expression as if the unpleasant incident with his mother, Minamoto Toyomi, had never happened, stood up from her seat, politely greeted her father, and then sat back down.</p>
+<p>"Yes. I wanted to show you this."</p>
+<p>Minamoto Risa handed a rather thick stack of documents to Minamoto Ushin.</p>
+<p>"Shall we see what our daughter has given me?"</p>
+<p>Minamoto Ushin smiled and read through the documents that Minamoto Risa had given him, turning each page one by one. Minamoto Ushin's smiling expression gradually hardened, eventually turning into a blank stare, and the last page of the documents was closed.</p>
+<p>The documents that Minamoto Risa had handed to Minamoto Ushin were the club sales from the St. Francis Girls' Academy festival, which Minamoto Risa had led. It detailed what they sold as merchandise, who the target of the business was, what preparations and plans were made before the business, what differed from the plan while actually doing business, and what they would do with the profits.</p>
+<p>In order for a member of the Minamoto family to work at the Minamoto Group, an exam was required, where they had to earn more than ten million yen with an investment of less than one million yen. Minamoto Risa had achieved this at a mere school festival. Moreover, it wasn't just ten million yen, but several times that amount.</p>
+<p>"I didn't know you wanted to participate in our group's work."</p>
+<p>Minamoto Ushin had thought that Minamoto Risa had no interest in the Minamoto Group because she suddenly became delinquent after entering St. Francis Girls' Academy High School, tanning and skipping school.</p>
+<p>Most people seemed to think similarly to Minamoto Ushin, and after that, there were fewer people who kept her in check. Minamoto Ushin felt a slight chill thinking that her delinquent behavior so far might have been a smokescreen. He thought it was very meticulous of her to avoid the suspicious gazes of her siblings while even repeating a grade.</p>
+<p>Of course, since he hadn't asked Minamoto Risa directly, Minamoto Ushin didn't know if what he thought was true or if he was just overestimating his daughter.</p>
+<p>"An investment of 920,000 yen with a net profit of 64.4 million yen... A very outstanding result."</p>
+<p>Minamoto Ushin said with admiration. Since the Minamoto family's group entrance exam was created, there haven't been many people in the history of the Minamoto Group who have achieved such results.</p>
+<p>Many people with the Minamoto surname took this exam and entered the Minamoto Group, but most of them easily passed the exam with the help of their parents or those around them.</p>
+<p>Even Minamoto Ushin, who is now called a giant in the Japanese business world, easily entered the Minamoto Group with the help of his father when he was young.</p>
+<p>Of course, he didn't have the thought of becoming the best in the Minamoto Group at the time of joining the company, so he wasn't desperate. That's because there were several brothers above Minamoto Ushin at that time.</p>
+<p>"Is it a pass?"</p>
+<p>"Do you really want to join the group?"</p>
+<p>Minamoto Ushin asked back at Minamoto Risa's question. He had a very worried expression, because if Minamoto Risa joined the Minamoto Group, his sons and daughters would not leave their half-sibling, who would become a competitor, alone, and that was very worrying.</p>
+<p>Although he could prevent physical harm with the Chairman's command, it was difficult for even Minamoto Ushin, the Chairman, to protect her in the ruthless political strife within the Minamoto Group.</p>
+<p>"Yes."</p>
+<p>"Keueung...!"</p>
+<p>Minamoto Ushin groaned as he looked at Minamoto Risa's unwavering, straight eyes.</p>
+<p>"I understand. But you have to be careful. Understand?"</p>
+<p>"Thank you, Father."</p>
+<p>Minamoto Risa finally smiled. She knew better than anyone what Minamoto Ushin was worried about, but if she stayed still like this, it would be no different from withering away.</p>
+<p>Only with power could she shake off the absurd conditions that Minamoto Toyomi had presented today. And the easiest way for Minamoto Ushin's daughter, Minamoto Risa, to gain power was to jump into the work of the Minamoto Group and form a faction.</p>
+<p>Minamoto Ushin was worried about Minamoto Risa's survival and was concerned about her joining the Minamoto Group, but Minamoto Risa had decided to join the Minamoto Group for her own survival.</p>
+<p>###</p>
+<p>I was quite busy after the festival ended.</p>
+<p>First, I had to do experience work naked with the women of Seiryutai and the students in the special class who had decided to follow me until Saturday (Naruse Shiyo and Alik, who are still minors, were naturally excluded), and from Sunday, I spent time sorting out the people to send my photo cards to.</p>
+<p>Of course, instead of regular delivery, I used dark delivery, which delivered at an incredible speed if you paid the right amount of money, so I, who had plenty of money, spent some money to send my photo cards to various people overseas.</p>
+<p>To be honest, I was a bit embarrassed because of the phrase written under the photo, but I couldn't give it to some and not to others, so I sent it to everyone who would want to receive it.</p>
+<p>And because TG Tech was about to release firearms, I was so busy with work that I didn't even know how time was passing. I was so busy checking the documents sent by tablet one by one.</p>
+<p>For reference, Arisu was cast in our gun CF this time and had almost finished filming. Arisu was very happy and contacted me after hearing that I had recommended her.</p>
+<p>I was nervous about what would happen if Arisu and Han Yu-gyeong met, but Arisu is in the United States and Han Yu-gyeong is currently too busy to meet each other.</p>
+<p>The production and release of our firearms went smoothly, but there was a document reporting that several firearm companies that are currently producing gunpowder firearms were subtly dissing our TG Tech, and when I read it, there was a considerable level of criticism.</p>
+<p>There were several links, and when I clicked on the one at the front, it was an advertisement video. In the advertisement, a handsome man in a macho cowboy outfit was smoking a cigar, creating gun smoke, and dealing with enemies with a revolver.</p>
+<p>And next to him, a man who looked like a loser to anyone was firing energy bullets with a colorful gun in a ridiculous outfit, but he was pathetically unable to deal with even one enemy, ppiyong ppiyong.</p>
+<p>"Very bad."</p>
+<p>The macho man muttered like that and dealt with the enemy that the loser man couldn't kill in one shot. And the gun company's logo came out and the advertisement ended. H&amp;P? It's a pretty well-known company, but isn't this too one-dimensional of a diss?</p>
+<p>In short, it was an advertisement that put in the message that if you use TG Tech's energy gun, you become a loser who uses childish guns.</p>
+<p>"This is too much. They made our gun look like a colorful water gun."</p>
+<p>I knew that it didn't look like that because I had seen the design before the release and it was very futuristic and simply well-designed, but I couldn't help but feel frustrated when I saw the advertisement.</p>
+<p>When I clicked on the next link, it was an article, not an advertisement this time. It was an article saying that if children play with energy guns that look like toy guns, which they had advertised as not being able to kill enemies until just now, a big accident could happen.</p>
+<p>Guns are the same. Shouldn't you keep both regular guns and energy guns out of the hands of children in the first place? And it's too much to say that it looks like a toy without even seeing the released product.</p>
+<p>I turned off the news article and clicked on the next link. This was also an article, but this time it was about whether the new weapon called an energy gun really had practicality. Still, this was a convincing article.</p>
+<p>Energy firearms didn't exist in the market yet, and since they didn't exist in the market, they didn't know their combat power, so they could think, "Will it be practical?"</p>
+<p>Of course, I could understand all of this criticism. It's not that I agree with the content, but the most talked about thing in the recent cyber zombie situation was, of course, the cyber zombies and the strange response of the South Chinese government, but the next was our TG Tech's prototype energy gun.</p>
+<p>The leaked video had already spread around the world, and gun enthusiasts were cheering for the new gun instead of the existing gunpowder guns, so they must have thought that checks were necessary.</p>
+<p>In addition, there were already many gun companies dividing a limited pie among themselves, and they couldn't help but think that the size of the pie would shrink if energy guns came out, so they couldn't help but feel a considerable sense of crisis.</p>
+<p>Dissing with articles or advertisements was considered gentlemanly... No, it wasn't. The next content was about industrial espionage and financially and politically pressuring us.</p>
+<p>Of course, there was no chance that the laboratory protected by Eve and Lara Sinclair would be robbed, so industrial espionage was rather data that could be used to counterattack the opponent, and political pressure was being appropriately blocked because of Han Yu-gyeong, the youngest daughter of the Shin-gang Group.</p>
+<p>Finally, financial pressure was an attack that didn't matter much. It's not like we started the business with debt, and we had a lot of money. Rather, there were so many people approaching us for investment that it was tiring, so financial problems would be the last thing to worry about.</p>
+<p>The last content of the document was a response plan to this criticism, and it was written quite rationally. Han Yu-gyeong and several advisors at TG Tech must have put their heads together to think about it.</p>
+<p>Suddenly, I became worried after reading this document. Would they be happy with just a photo card set when everyone is suffering like this? That was my worry.</p>
+<p>"I should send an additional gift set."</p>
+<p>I muttered and turned the tablet over to start reading the next document.</p>
+<p>_________</p>
+<p>Minamoto Risa before tanning.</p>
+<p>Kkiyot!</p>

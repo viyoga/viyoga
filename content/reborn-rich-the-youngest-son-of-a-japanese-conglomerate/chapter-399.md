@@ -5,81 +5,108 @@ weight = 399
 chapter = 399
 +++
 
-<p>"Hek hek! Woof! Woof!"</p>
-<p>Inside the car was White Bear, one of Han Yu-gyeong's two summons, the puppy of light. Shadow Panther Nero must be providing close protection within Han Yu-gyeong's shadow. White Bear seemed happy to see me after a long time, licking my face all over with its tongue. *Chwap chwap chwap*, it sounded like it was eating me rather than licking, but since it was wagging its tail, it must be happy to see me.</p>
-<p>"White Bear must be happy to see Yong-tae after so long~!"</p>
-<p>At Han Yu-gyeong's words, I stroked White Bear's fur. The texture of the fur was soft, smooth, and very nice. It didn't mean the fur didn't shed, but the shed fur didn't stick to clothes and disappeared into light. In fact, White Bear was in the form of a dog, but it was a spirit, so even though it licked my face a lot, it didn't smell like saliva.</p>
-<p>A Samoyed the size of a calf that doesn't smell and whose fur doesn't shed... White Bear was like a dream dog for large dog lovers.</p>
-<p>"By the way, is BS Group's check so severe that we can't stay in one place?"</p>
-<p>I asked Han Yu-gyeong, continuing to stroke White Bear, who was leaning on my lap.</p>
-<p>"Well, I'm being attacked simultaneously by Park Il-soo, who I originally opposed, and Park Il-man, who is trying to discard him. Maybe it's because they easily cross the line while fighting a succession war, but they're also sending assassins to me."</p>
-<p>They're the guys who already collapsed a building in the middle of Seoul. The first time is difficult, but the second and third times will be easy. Moreover, sending assassins, which isn't even collapsing a building, they wouldn't even hesitate.</p>
-<p>"But where are we going?"</p>
-<p>"Yong-tae said he'd surprise me at school, so I thought we'd have a campus date, hehe."</p>
-<p>Since I definitely said I'd surprise her at school, a campus date seemed okay. But what about the assassin problem? If it was dangerous at the airport, so she told me to get in the car right away, isn't school also dangerous?</p>
-<p>"Is the BS Group problem okay at school?"</p>
-<p>"They haven't attacked within a few kilometers radius of Korea University, tacitly. They must know what it means to attack Korea University students inside Korea University."</p>
-<p>I asked because I wondered if I didn't have to worry about assassins at school, but after listening to Han Yu-gyeong's explanation that followed, it seemed that they weren't attacking within the school's range because it was Korea University, where so many elites in Korea attend.</p>
-<p>Is it the same principle as not attacking St. Francis Girls' High School in Japan if possible? There was an incident targeting female students recently, but Daigo Terue-ssi said she would take care of it, so she might have already handled it.</p>
-<p>"Ah! We're here. Yong-tae, let's go~"</p>
-<p>Han Yu-gyeong pulled my arm and got off at the entrance of Korea University. She linked arms with me, her chest touching mine, as if showing off that I was her man, and entered the school.</p>
-<p>"Is there another guy like Park Sang-beom bothering you?"</p>
-<p>"Yeah, the Sunbae-nim who returned to school in the second semester keep bothering me even though I say I have a boyfriend... I wanted to show off my man."</p>
-<p>To my question, Han Yu-gyeong answered with a slightly annoyed expression. Was that it? If Park Sang-beom bothered her in the first semester, it would be quite troublesome, but now that Han Yu-gyeong, who has gained some power, wouldn't be troubled even if a returning student said something. Her desire to show me off must be greater.</p>
-<p>"But dyeing your hair and tanning isn't bad either..."</p>
-<p>Han Yu-gyeong said, touching my arm and blushing at the same time. I was wearing a hat when I got out of the car in case, but she seemed to be talking while looking at it because some of my hair was visible even with the hat on.</p>
-<p>"Well, it's a disguise of sorts... It'll go back to normal in a few months."</p>
-<p>"Hehe. I like your original appearance too... But I'll enjoy this limited edition version of Jin Yong-tae right now! I can't pick you up if it's not now!"</p>
-<p>Han Yu-gyeong was talking about the current me as if I were a Gold-tan Jin Yong-tae (Yamashiro Ryuta) character, a different version of the regular Jin Yong-tae (Taira Ryuta) that came out for a limited time in a gacha game.</p>
-<p>As we were talking about this and that, I could hear the students passing by in the school whispering.</p>
-<p>After gaining the characteristics of a Saint of Fist Fighting, the original characteristic, Master's Sense, evolved into Saint's Sense as the characteristic became familiar to my body. Unlike Master's Sense, which could only sense signs by concentrating, Saint's Sense conveyed information about the surroundings to me without much attention.</p>
-<p>Most of it was about how it was true that Han Yu-gyeong had a boyfriend. Of course, the story that I was handsome also took up a considerable part. You have to be this much to be next to Han Yu-gyeong.</p>
-<p>"I'm thirsty from walking around. Do you want to drink something?"</p>
-<p>After walking around the school for a while as if showing people, we went to the school cafe, ordered drinks and desserts, and started talking while eating them. The first thing to talk about was Han Yu-gyeong's family, the Shin-gang Group.</p>
-<p>In the game, there were two main routes. One was to build up a major within the Shin-gang Group and become the top of the Shin-gang Group, and the other was to create a force outside and swallow the Shin-gang Group. Han Yu-gyeong was taking the latter route.</p>
-<p>Because Han Yu-gyeong is a woman, she wouldn't be properly evaluated by Han Mun-gang, the Chairman of the Shin-gang Group who prefers men, so I suggested that I start a new company outside. Thinking about it, since this world is not a game but another world, I thought there was no need to be obsessed with the Shin-gang Group. That's why I created TG Tech. First, I was following the second route, and if it became difficult to take over the Shin-gang Group for realistic reasons, I was thinking of establishing a new chaebol family with TG Tech and the various corporate groups I had gathered.</p>
-<p>Still, it was good to eat the Shin-gang Group if I could, so I was secretly building up strength without openly building up power. Here, Jin Yong-tae's identity, which is hardly used in Japan, was quite useful. This is because I acquired several businesses under my name instead of Han Yu-gyeong's name, which would be immediately caught by the Shin-gang Group's radar.</p>
-<p>Because of that, it became easier for me to move around in Korea. I could use the name of a promising young businessman wherever I went. While talking about business, Han Yu-gyeong told me about the event.</p>
-<p>"There are a few events while Yong-tae is here, so you have to attend as my partner."</p>
-<p>"Of course. Is it like a party?"</p>
-<p>"It's some kind of charity dinner show, and they say a lot of rich people and powerful people gather there."</p>
-<p>Ah, I've grown to the point where I have to show my face in such places. Good job, Han Yu-gyeong. Then I have to prepare too.</p>
-<p>"Then let's stop by the hair salon before we go there."</p>
-<p>"Huh? Why?"</p>
-<p>Han Yu-gyeong asked as if she didn't know the reason for my words.</p>
-<p>"This is also a disguise of sorts, so I can't go around saying I'm Jin Yong-tae in this form. Should I dye it brown or dark?"</p>
-<p>"Ah, good! Can I pick the color?"</p>
-<p>Han Yu-gyeong was very excited when I said I was going to the hair salon. Han Yu-gyeong was excitedly looking at what color to dye my hair on her phone when someone approached.</p>
-<p>"Hello, Yu-gyeong-a."</p>
-<p>"Ah, Sunbae-nim."</p>
-<p>He was a man with short hair, so he seemed to be one of the returning Sunbae-nim that Han Yu-gyeong mentioned who bothered her. He looked ordinary, and his body looked quite solid, perhaps because he hadn't been discharged from the military for long.</p>
-<p>"Th, who is that?"</p>
-<p>"Ah, he's my boyfriend."</p>
-<p>"Hello, I'm Jin Yong-tae, Yu-gyeong's boyfriend."</p>
-<p>When Han Yu-gyeong linked arms with me and introduced me as her boyfriend, the returning Sunbae-nim seemed very embarrassed. Did he think the story that she had a boyfriend was a lie, like Park Sang-beom? He's too embarrassed.</p>
-<p>"Ah, you're on a date...!"</p>
-<p>He said we were on a date, but the Sunbae-nim kept standing in front of us without any tact. Come to think of it, he's not my Sunbae-nim, so there's no need to call him Sunbae-nim. I'm annoyed that a guy who's not even capable is aiming for Han Yu-gyeong, so I should just call him an annoying guy from now on.</p>
-<p>"Yes, Sunbae-nim. It's a date after a long time, so..."</p>
-<p>In the end, Han Yu-gyeong frowned and said it as a way to tell him to get lost, but the annoying guy didn't answer and remained motionless.</p>
-<p>"Do you have any business?"</p>
-<p>I have to step in in this kind of situation. I understand why Han Yu-gyeong showed an annoyed expression when she told me. This person had no tact. If not, he was a guy who only thought about his own thoughts without caring about Han Yu-gyeong's will or thoughts.</p>
-<p>"I don't have any business, but there are no seats in the cafe..."</p>
-<p>There are many students using it, so it's hard to see empty seats, but when I looked around, I could see that there were seats in between, so I knew it was a hastily made excuse. He's treating people like fools.</p>
-<p>"Then take our seats. We have somewhere to go."</p>
-<p>I had to change my hair color anyway, and I didn't want to be in this awkward place, so I got up from my seat.</p>
-<p>"I'll return the cups and trays~!"</p>
-<p>When I gave him a look, Han Yu-gyeong took the tray with the cups and dishes we had eaten and went to the counter. I, who was standing, sat down across from the annoying guy with a thud.</p>
-<p>"I'll call you Sunbae-nim because you're Yu-gyeong's Sunbae-nim. Sunbae-nim, if you don't leave and stand there or do something you don't like after Yu-gyeong tells you to leave like just now..."</p>
-<p>*Ppudeudeuk*.</p>
-<p>A hole was being drilled in the wooden table by my finger. At the same time, I pressured the annoying guy with tremendous murderous intent.</p>
-<p>"I'll drill a hole in Sunbae-nim's skull like this, so keep that in mind."</p>
-<p>"Hieuk...!"</p>
-<p>It must be the first time he's felt such murderous intent. Still, I was controlling it so that he wouldn't completely lose his mind. He might lose his mind and think, "Ah, it was a dream," so I have to make him realize it's reality.</p>
-<p>"Let's go quickly, Yong-tae!"</p>
-<p>Han Yu-gyeong came and linked arms with me again. I kissed Han Yu-gyeong lightly on the cheek as if to show off, and left the cafe with Han Yu-gyeong.</p>
-<p>"Is there a good hair salon around here?"</p>
-<p>"Yeah, let's go to the place I often go to!"</p>
-<p>I didn't know at this time. That it would take Han Yu-gyeong two and a half hours to choose my hair color... If I had known this would happen, I would have dyed it in advance... I was regretting it so much.</p>
-<p>---- Han Yu-gyeong airport B-cut.</p>
-<p>Adidas Han Yu-gyeong</p>
-<p>Sleeveless Han Yu-gyeong</p>
+<p>,Ryuta-cchi~☆ You're here?</p>
+<p>Welcome, Sensei~!</p>
+<p>As I opened the door, Seizawa Shii and Konoe Akina were the first to greet me. I sat down in the empty seat at the rectangular table where the students were sitting.</p>
+<p>So, what's the Date Experience Club's task?</p>
+<p>I asked about the thing I was most curious about first. Originally, there wasn't a task like this. Something must have happened while I was in Korea.</p>
+<p>It was yesterday. We were talking in the clubroom when the student council came for an inspection.</p>
+<p>Yeah, some kid who's the student council secretary was watching what we were doing and writing stuff down.</p>
+<p>Minamoto Risa supplemented Konoe Akina's story.</p>
+<p>Apparently, because of the Date Experience Club's suggestive(?) name, they made it a condition when we created the club that the student council would conduct surprise inspections from time to time, and that happened yesterday when I wasn't there.</p>
+<p>So?</p>
+<p>And then we heard something new: all clubs have to submit related works or hold events at the festival!?</p>
+<p>Ah, really? That sounds pretty annoying.</p>
+<p>Ah, if you're in a club, you have to produce something. What should the Date Experience Club do? It would be weird to have female students dating each other during an event at the festival....</p>
+<p>So we talked among ourselves and agreed to publish a booklet with evaluations and opinions about the dates we experience from now on.</p>
+<p>Ah, I see. If we write down the dating methods and each club member writes just a line or two, we can make a small booklet after just a few date experience activities.</p>
+<p>That's a good idea. We don't have to do a special event, so we can enjoy the festival to the fullest during the festival.</p>
+<p>Right? I worried a lot about it yesterday.</p>
+<p>Yeah, you did well.</p>
+<p>Then, please pat my head, Sensei!</p>
+<p>Konoe Akina asked me with a face that was begging for praise, so I patted Konoe Akina's head. Konoe Akina enjoyed my touch comfortably, like a puppy receiving a pat from its owner.</p>
+<p>Ehehe...♥</p>
+<p>Hey, what's that! Ryuta-cchi!! I worked hard too!</p>
+<p>You're not the club president.</p>
+<p>Eii...!</p>
+<p>Fortunately, because Konoe Akina directly asked me to pat her head, Seizawa Shii was the only female student who said anything to me. I lightly patted Seizawa Shii's head as well and then got up from my seat.</p>
+<p>So, what's the Date Experience Club's experience for today?</p>
+<p>Today, we're planning to learn about home dates, as we discussed before.</p>
+<p>Ah, home dates.... If it's that, we can do it in the clubroom, so it's not bad.</p>
+<p>So, what did you decide to do for the home date?</p>
+<p>We spent so long discussing what theme to use for the festival that we couldn't decide. We're going to decide what to do today.</p>
+<p>Minamoto Risa answered my question. Ah, you haven't decided that far yet. Hmm....</p>
+<p>How about we search the internet and decide what each of us wants to do?</p>
+<p>That sounds good! Ryuta-cchi, do you know anything well?</p>
+<p>Well, I only know the general stuff. When I meet a girl at home, I'm too busy having sex.</p>
+<p>For now, the first things that come to mind are s-, no.... Cooking, games, watching Ratflix, maybe?</p>
+<p>Hmm, since Alik is going to do it first, should we ask Alik what she wants to do?</p>
+<p>After hearing my words, Seizawa Shii stretched Alik's soft cheeks and asked for Alik's opinion. Since Alik has to do the experience first and then go to the Cheongsim Hall, it would be good to start with Alik.</p>
+<p>Cooking sounds good....</p>
+<p>There are many kinds of cooking. Making food together, or having your boyfriend make food for you, or making food for your boyfriend. Or, instead of cooking, finding good restaurants nearby for delivery....</p>
+<p>Analytical Shido Tsubaki explained about the topic of cooking that Alik chose. That's right. We can't just lump it all together as cooking.</p>
+<p>I'll treat Ryuta to it....</p>
+<p>Alik chose to treat me to a meal. It was predictable that Alik, who aspires to be a maid, would choose to treat me to a meal. But does Alik know how to cook...?</p>
+<p>Alik's adoptive mother, Egawa Shiho, is an expert in this kind of education, and Shimokawabe Airen, whom she considers her master, is a home tutor, so she should be good at cooking as well as swordsmanship, so Alik's skills probably aren't bad.</p>
+<p>Alik put on an apron and then opened the refrigerator. There was all sorts of stuff in the refrigerator. It was mostly sweets that female students like, but there were also eggs and various other ingredients. When did you stock up on these?</p>
+<p>Alik took out instant rice, eggs, peppers, and ham. Judging by the ingredients, she's probably going to make fried rice?</p>
+<p>Alik moved the kitchen knife flamboyantly using her wrist, and with a tatatak sound, she made the peppers and ham into small pieces at an incredible speed. Everyone was amazed by her dazzling knife skills.</p>
+<p>Wow~! Alik is really good with a knife, like a chef!</p>
+<p>Is she good at it because she belongs to the Cheongsim Hall?</p>
+<p>Alik, who had already cut all the ingredients, poured oil into the frying pan and started frying the rice and ingredients. The sound of the rice being fried, chi-iik, could be heard, and before I knew it, a wonderful fried rice was placed in front of me.</p>
+<p>Enjoy your meal, Ryuta...!</p>
+<p>Alik sat across from me, seemingly wanting to watch me eat. With a face that was half anticipation and half nervousness, Alik seemed to be trying to watch me eat quietly. I picked up a spoon and took a bite of the fried rice.</p>
+<p>Is it good?</p>
+<p>As soon as I put it in my mouth, Alik asked with a nervous expression. Let me chew a bit, swallow, and then answer.</p>
+<p>Hmm, it was quite delicious. The ingredients were well-fried, and the seasoning was just right. It was a simple dish, but the balance was right, so it was quite a high score by my personal standards. Above all, it was made by the cute Alik, so I felt like I could give it even more points.</p>
+<p>It's really delicious, Alik. Thank you.</p>
+<p>Yeah...!</p>
+<p>Alik clenched her fist tightly, as if she had accomplished something. That look was incredibly cute.</p>
+<p>Alik, how is it? You've experienced a part of a home date.</p>
+<p>Ryuta ate the food Alik made deliciously.... Alik is happy...!</p>
+<p>Alik answered Minamoto Risa's question with a flushed expression. Alik, who had finished treating me to a meal, went to the Cheongsim Hall with a happy feeling.</p>
+<p>Since we started with cooking, let's keep going. Are there any of you who want to participate in the cooking part?</p>
+<p>When Minamoto Risa looked around at the students and asked, several people raised their hands. When I looked to see who it was, Konoe Akina, Urabe Konoka, and Kujo Kina raised their hands.</p>
+<p>Urabe Konoka used to be the daughter of an innkeeper, so she should be good at cooking, but I don't know about the other two, Konoe Akina and Kujo Kina.</p>
+<p>I want Sensei to treat me to a meal.</p>
+<p>Konoe Akina said to me, seemingly wanting to feel what it's like to be treated to a meal by her boyfriend. Then Urabe Konoka raised her hand.</p>
+<p>I want to cook with Sensei, so I think we should cook together and then treat Konoe-ssi!</p>
+<p>That would be good since we can handle two experiences at once. When I looked at the remaining Kujo Kina, she had a confident expression and opened her mouth.</p>
+<p>Kyahaha! I'll make my special dish for Sensei!</p>
+<p>Honestly, I don't think Kujo Kina can cook, but she's incredibly confident? Kujo Kina decided to cook last and sat down at the table with an attitude that seemed to say, "Do your best."</p>
+<p>Sensei, could you tie my apron?</p>
+<p>Urabe Konoka had already put on an apron and was turned around. Is she trying to create a date atmosphere from now on? I approached Urabe Konoka and tied her apron.</p>
+<p>Hehe.... Thank you, Sensei.</p>
+<p>Urabe Konoka turned around to show me her apron and smiled. It was different from her old inn days, but it was quite a fitting look.</p>
+<p>Since you just had the meal that Alik made, I've decided to make dessert.</p>
+<p>I eat so much that I could have a meal instead of dessert, but I should just eat whatever she makes.</p>
+<p>What Urabe Konoka decided to make with me was milk pudding.</p>
+<p>The recipe was quite simple: put sugar and water in and boil it to make caramel, then pour it into a container to harden, mix sugar, eggs, and milk, pour it on top of the hardened caramel, and then steam it in a steamer for about 15 minutes to complete.</p>
+<p>It was simple, but it took quite a while to prepare because we decided to make a lot to let everyone taste it.</p>
+<p>Since it's the Date Experience Club and not the cooking club, we didn't just cook, but also joked around and had fun while cooking. Urabe Konoka seemed to be having quite a bit of fun too.</p>
+<p>As we made it, the amount increased, and there were over twenty bowls. Even if we put aside some for Alik, Uesonozo Karen, and Naruse Shiyo, who aren't here right now, there would still be quite a bit left over.</p>
+<p>Sensei eats a lot, so I think you can take the leftovers, Sensei.</p>
+<p>Ahaha~☆ Ryuta-cchi is a glutton.</p>
+<p>When Urabe Konoka said to take all the leftovers, Seizawa Shii called me a glutton, and everyone laughed. I do eat quite a bit.</p>
+<p>Sensei, Hime-sama said that she wanted to receive one of the dishes that Sensei made yourself as an offering, so we made a lot.</p>
+<p>While everyone was laughing, Urabe Konoka came up to me and whispered in my ear.</p>
+<p>If Urabe Konoka is talking about Hime, it must be Simyeonui ttal.</p>
+<p>Simyeonui ttal is seeing this world through Urabe Konoka's eyes, so of course she knows what's going on right now. Simyeonui ttal likes desserts and me, so of course she would want to receive a dessert that I made myself as an offering.</p>
+<p>I nodded to Urabe Konoka as if to say I understood. Now that cooking together was over, Urabe Konoka left a comment saying that she had a lot of fun.</p>
+<p>When the cooking was over, I put the best-made milk pudding on a plate and took it to Konoe Akina.</p>
+<p>Urabe Konoka wanted to cook together, and Konoe Akina wanted the experience of eating food made by her boyfriend, so it was right to give the best-made one to Konoe Akina.</p>
+<p>For reference, I set aside the second-best-made pudding to send as an offering to Simyeonui ttal.</p>
+<p>Konoe and I will eat together, and Urabe will distribute the rest.</p>
+<p>I sat next to Konoe Akina and put down the plate. Konoe Akina looked at the pudding with an impressed expression and then took out her phone and started taking pictures.</p>
+<p>Say "ah~."</p>
+<p>When Konoe Akina finished taking pictures, I took a spoonful of pudding with a teaspoon and held it out to Konoe Akina. If it's a date experience, I have to feed her.</p>
+<p>As I possessed the role of a boyfriend and held out the spoon with a gentle smile, Konoe Akina's face turned so red that it couldn't get any redder. She stared at the pudding on the spoon for a while and then took it with an "ah."</p>
+<p>It's delicious...!</p>
+<p>It's just pudding, but is she enjoying it too much? Since Konoe Akina was enjoying it so much, I ate my share of the pudding too.</p>
+<p>I didn't expect you to feed me directly, I think I would have been very happy if I were your girlfriend♥</p>
+<p>That was Konoe Akina's review of being treated to a meal by her boyfriend. Perhaps because Konoe Akina has a high level of personal affection for me, her evaluation was very good.</p>
+<p>After Konoe Akina's experience was over, the other female students also ate the milk pudding that Urabe Konoka and I made together and made a fuss about how delicious it was. In particular, Kujo Kina drank the milk pudding as if she were drinking it and slammed the bowl down.</p>
+<p>Keuha! Delicious! Now, I'll treat you to the secret dish that I was going to make when I got a boyfriend!</p>
+<p>A secret dish.... Rather, I'm a little afraid because Kujo Kina is too confident.</p>
+<p>-----</p>
+<p>SD Awakened Yukiko</p>

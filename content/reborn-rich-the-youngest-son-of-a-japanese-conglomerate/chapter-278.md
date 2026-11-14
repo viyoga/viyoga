@@ -5,86 +5,70 @@ weight = 278
 chapter = 278
 +++
 
-<p>Rihanna Holden was kneeling before us on the bed. It was because as soon as Rihanna Holden entered the hotel room, Sawayanagi Azuma, with a scary expression, ordered her to kneel.</p>
-<p>The moment Sawayanagi Azuma told her to come to this room on camera, Rihanna Holden arrived, so I was only wearing my underwear, and Sawayanagi Azuma was only wearing my loose t-shirt on her.</p>
-<p>"I, I was just worried that Azuma-ssi wasn't coming, so I sent a reconnaissance drone!"</p>
-<p>"Don't lie! As soon as you got into the hotel room, you didn't even wash up and just laid down saying you were sleepy. And when I came out after washing up, you were asleep!"</p>
-<p>The excuse Rihanna Holden came up with was refuted by Sawayanagi Azuma in a second. Rihanna Holden made a face as if she had been caught, then opened her mouth again.</p>
-<p>"I woke up in the middle and you weren't there... so I sent the reconnaissance drone..."</p>
-<p>"Sseup? Again, again! Are you going to lie again?"</p>
-<p>At Sawayanagi Azuma's 'Sseup!' sound, Rihanna Holden whimpered and began to confess the truth.</p>
-<p>"T-to be honest... I've thought for a while that the investor and Azuma-ssi had something going on. So I thought today was the chance! And pretended to be drunk and asleep..."</p>
-<p>"Pretended to be asleep?"</p>
-<p>Hmm, she pretended to be asleep... Was she that curious...? Sawayanagi Azuma wouldn't have hidden it, and I think she would have answered if she had asked.</p>
-<p>"Hoo... Okay, if you saw us two meeting, you could have just retrieved the drone. Why did you keep filming?"</p>
-<p>Sawayanagi Azuma took a deep breath as if trying to hold back her anger and asked Rihanna Holden quietly.</p>
-<p>"Actually...! I was curious...! I was curious about Sex! I'm a virgin, so I don't know..."</p>
-<p>Rihanna Holden closed her eyes tightly and shouted. She was curious about sex... Judging from her usual behavior, I didn't think she was a virgin. She dressed a bit slutty and her behavior seemed open, but she was a virgin, that's unexpected.</p>
-<p>Even now, Rihanna Holden is wearing a crop top with the American flag on it, exposing her stomach, and short pants, so no one would think Rihanna Holden is a virgin. They would have thought she was an open-minded older sister.</p>
-<p>"You look like you're having so much fun, and only Azuma-ssi gets to have fun! Can't I even watch?"</p>
-<p>Rather, Rihanna Holden seemed angry as she spoke, and she spoke to Sawayanagi Azuma as if she was complaining. Are the women of Seryutai in this state because they didn't receive proper sex education?</p>
-<p>Normal people would definitely find it a bit difficult to watch. There are perverted couples who accept watching men or watching women, but...</p>
-<p>"I also... I also wanted to try it! I want to taste a handsome guy's big dick too!"</p>
-<p>"Rihanna..."</p>
-<p>Sawayanagi Azuma looked at Rihanna Holden with a troubled expression. That expression was like she was contemplating whether to give a bite of the food she was enjoying to a friend. Soon, she made a determined expression, and Sawayanagi Azuma looked at me and opened her mouth.</p>
-<p>"Investor-nim."</p>
-<p>"Yes? Don't tell me..."</p>
-<p>"Please. Let Rihanna also taste it."</p>
-<p>What kind of taste is she asking me to show? Seeing the two of them, I definitely felt the importance of childhood. They became test subjects before learning proper sexual values, so they become adults like this. Of course, it's a thank you for me, but...</p>
-<p>"Rihanna, are you really not going to regret it?"</p>
-<p>"Of course! I've been constantly thinking about handsome guy. If it's handsome guy, no, if it's Ryuta, I want to give him my virginity."</p>
-<p>It would be a lie if I said I wasn't interested in a Western beauty with exotic purple hair. I approached Rihanna Holden and took off the crop top she was wearing. As expected, she was a virgin, and she stiffened as if nervous when I took off her clothes.</p>
-<p>Usually, she had an energetic and open feeling, but seeing her look like a herbivore caught by a hunter, I couldn't help but get excited and my dick got hard.</p>
-<p>"That's Ryuta's dick...!"</p>
-<p>After taking off her crop top, Rihanna Holden looked at my dick, which was getting bigger and lifting up my underwear, with a curious expression.</p>
-<p>"Touch it once."</p>
-<p>"Okay..."</p>
-<p>"Investor-nim..."</p>
-<p>While Rihanna Holden was touching my dick, Sawayanagi Azuma turned my head and kissed me. Rihanna Holden didn't care whether I and Sawayanagi Azuma were kissing or not, and she took off my underwear and was touching the real thing.</p>
-<p>"Like this... was it like this?"</p>
-<p>Rihanna Holden grabbed my dick with clumsy skill and started shaking it up and down. But maybe it was because it was a different technique from a new woman, it was clumsy, but it felt pretty good.</p>
-<p>"Ahat!! It twitched...!"</p>
-<p>I never thought until yesterday that I would be in a situation where Sawayanagi Azuma was taking care of me with her lips and Rihanna Holden was giving me a handjob below, but it was strange to see it become a reality like this.</p>
-<p>Since I took off her crop top, it was time to take off her short pants this time. When I grabbed her short pants, Rihanna Holden lifted her butt to make it easier to take them off.</p>
-<p>The black underwear above and below went well with Rihanna Holden's snow-white skin. Rihanna Holden was still touching my dick, and Sawayanagi Azuma came down a little from my lips and was sucking on my neck.</p>
-<p>I reached out and touched Rihanna Holden's chest over her bra. I didn't want to compare, but maybe it was because Rihanna Holden's chest was bigger, but it was softer than Sawayanagi Azuma's chest. Instead, Sawayanagi Azuma's chest felt more elastic than Rihanna Holden's.</p>
-<p>"Haaht!! Is this foreplay?"</p>
-<p>I chuckled because Rihanna Holden, who was surprised by my touching her chest and asked with wide eyes, was quite cute.</p>
-<p>"Yeah, you were touching my dick too, so we were giving each other foreplay."</p>
-<p>"Touch me a little more, it felt good...!"</p>
-<p>As expected, she's straightforward because she's a Western older sister. I massaged Rihanna Holden's milk bags, which changed shape here and there according to my hand. Rihanna Holden flinched, but continued to shake my dick up and down.</p>
-<p>I kept touching her chest with one hand and rubbed Rihanna Holden's pussy area over her underwear with the other hand. It seemed like she was getting so excited that moisture was seeping through her underwear.</p>
-<p>"Heuyat! Ah! Euht...!"</p>
-<p>As expected, her reaction was greater than her chest because it was her pussy. I didn't miss it and put my hand inside her underwear and touched Rihanna Holden's wet pussy.</p>
-<p>"Ah! Pussy is strange, Ryuta...! oh, MY...! Heu-heung...!"</p>
-<p>Rihanna Holden continued to moan, mixing in English. I took off Rihanna Holden's underwear and also took off her bra, making her naked.</p>
-<p>As expected, her nipples were a pretty light pink color, and her pussy had a light-colored, beautiful, and lewd shape.</p>
-<p>"Investor-nim, please put it in right away."</p>
-<p>Sawayanagi Azuma said in my ear as if she was controlling me. I slowly pushed my dick into the center of Rihanna Holden. Rihanna Holden lowered her head and was watching my dick go into her pussy.</p>
-<p>"Euh, euht...! Something's stuffy...! Euht!"</p>
-<p>My dick forced its way forward, widening Rihanna Holden's virgin vagina, which had never had anything inside it until now. I felt something caught on my advancing dick. It was her hymen.</p>
-<p>"Haaht...! It hurts..."</p>
-<p>The pain hasn't even started yet. It won't hurt much right now either. I used the abilities of the Black Maitreya Skill, a technique in the bedroom arts, to the best of my ability to move so that Rihanna Holden wouldn't feel pain and tore her hymen.</p>
-<p>-Aah! It's strange, it hurts...! It feels good♥</p>
-<p>Rihanna Holden's moans were heard through telepathy. It seemed that her ability was activated without her knowing due to the shock and pleasure of her hymen being torn. Rihanna Holden grabbed my neck with blurred eyes and started pulling me in for a kiss.</p>
-<p>-Heuaht! Heu-heung! It feels good...! I like Ryuta's Dick♥</p>
-<p>This is a new world. To be able to hear moans while kissing. I kept widening Rihanna Holden's pussy and kept shaking my waist. Rihanna Holden's pussy was wet and felt good wrapping around my dick. A cozy feeling pussy that kept wrapping around my dick without resisting it.</p>
-<p>-Ah, ahat...! It feels strange! My lower body feels strange...!</p>
-<p>I was kissing Rihanna Holden and shaking my waist, and Sawayanagi Azuma was caressing my erogenous zones from the side, so I was slowly feeling like I was about to cum.</p>
-<p>"Cum quickly and put it in me this time, Investor-nim♥"</p>
-<p>Sawayanagi Azuma, who was urging me to cum, started licking between my butt hole and dick while whispering in my ear. I felt pleasure in the front, back, and mouth at the same time. I wanted to moan, but I couldn't moan because I was in the middle of a sticky kiss with Rihanna Holden.</p>
-<p>-Ah, it's strange...! I feel like my body is floating, haaht! Euheuheung♥</p>
-<p>It seemed like Rihanna Holden was also reaching orgasm. I had been holding back my ejaculation because Rihanna Holden hadn't reached her climax until now, but it would be okay if it was at the same time as Rihanna Holden's orgasm.</p>
-<p>"Where should I cum?"</p>
-<p>I stopped kissing Rihanna Holden, took my lips off hers, and asked. When I do it with women, they take birth control pills in advance, so I cum inside them as much as I want, but I didn't plan on doing it with Rihanna Holden, so I asked, thinking of pulling out if necessary.</p>
-<p>"Euheung...! Euht! Heung!"</p>
-<p>But Rihanna Holden was already at her climax, rolling her eyes and only repeating moans. Then there's no choice. I pulled out my dick and sprayed semen on Rihanna Holden's body.</p>
-<p>Byuut! Beut! Byuut!!</p>
-<p>A huge amount of semen was fired from Rihanna Holden's face to her chest and stomach. As I pulled out my dick, the glans brushed against Rihanna Holden's vagina, so Rihanna Holden fluttered and reached orgasm once again.</p>
-<p>"Hureup...! Hureup!"</p>
-<p>Sawayanagi Azuma started licking my semen, which was covering Rihanna Holden's body as if coating it, as if it was a waste. When I put my dick on Sawayanagi Azuma's cheek, who was licking Rihanna Holden's body, Sawayanagi Azuma carefully sucked my dick and sucked out the semen remaining in my urethra.</p>
-<p>Rihanna Holden was watching that scene. She was watching our actions one by one as if she was an apprentice learning the technique with an expression like, 'Ah, this is how you have to do it!'</p>
-<p>"Rihanna, I'll show you this time."</p>
-<p>Sawayanagi Azuma showed her butt to me, opened it to both sides, and tempted me as she opened her mouth to Rihanna Holden. Is it like Azuma's sex class? And I'm like a teaching material?</p>
-<p>Education was important, so I decided to cooperate with Sawayanagi Azuma even though I was treated like a teaching material.</p>
-<p>-----Rihanna Holden's virginity loss commemorative picture!</p>
+<p>After hearing the secret history of our school from Fujigasaki Rinka, I returned to the emcee's seat. It seemed to be a break time in the middle of the games, as everyone was sitting on benches set up next to the field, sweating and breathing heavily.</p>
+<p>,Ryuta-hubae-nim! Where have you been?</p>
+<p>,Ah, my master said she was bored and dragged me off for a sparring match.</p>
+<p>Mimata Chieri must have worked pretty hard too, as she wiped sweat with a towel and approached me to ask. Alik followed behind her, looking at me.</p>
+<p>,Ah, you went sparring. Did you win?</p>
+<p>,Ryuta, didn't you watch Alik's match...?</p>
+<p>Alik asked me with slightly teary eyes, as if he had heard that I had been sparring. Don't look at me with those eyes, Alik, it makes me weak.</p>
+<p>,Of course I lost. Alik, I won't look away in the second half, so don't be disappointed.</p>
+<p>,Okay....</p>
+<p>,Alik was incredibly active this time. He's very skilled at using his body.</p>
+<p>Hmm, he seemed disappointed that I was away when he was doing so well. Still, except for Jung Da-rim, everyone else is a veteran when it comes to using their bodies, and for Alik to be so active, he really is like Alexandra, the toughest mid-boss of the mega-corp's youngest son.</p>
+<p>I knew that Alik, as an electric ability user, had considerable physical abilities due to his ability to manipulate the body's electrical signals, but I didn't know he could already use that ability. I should wear the glasses from the ruins sometime and properly check Alik's abilities.</p>
+<p>Mimata Chieri and Alik returned to the volleyball court, and when I asked the futsal players what the score was, they told me it was tied 2-2. Seeing that it was tied, it seemed they had divided the teams fairly evenly.</p>
+<p>Both games were scheduled to have a thirty-minute first half, a ten-minute break, and a thirty-minute second half, so the second half started right away.</p>
+<p>Of course, it wasn't a national team soccer game, and there was no need to watch men sweating profusely, so I watched the women's volleyball game.</p>
+<p>The teams were Alik, Mimata Chieri, Konoe Akina, Jung Da-rim, and Lianna Holden's team versus the rest, and except for Lianna Holden, everyone on the former team was not affiliated with Seryu-tai, so the rest of the team was the Seryu-tai team.</p>
+<p>Everyone was capable, so the rallies continued. The volleyball game was quite interesting because there were diverse ability users.</p>
+<p>Alik, who could accelerate her nerves, Sawayanagi Seari, who could control the atmosphere, Sawayanagi Azuma, who could read the future, and Mimata Chieri, whose every movement was agile, stood out.</p>
+<p>The underperforming members were plant maniac Jung Da-rim, Lianna Holden, an operator who didn't have many opportunities to use her body, and Kiyona Mari, a fire ability user who was completely useless in volleyball. The rest were doing their part?</p>
+<p>Surprisingly, Konoe Akina, a lady of the manor, also did her part. I thought she was only good with her mystic eyes, but it seemed she had the physical abilities of a regular Seryu-tai agent.</p>
+<p>Since the friend's team had more underperforming members, they gradually started to be pushed back by the Seryu-tai team. It looked like Mimata Chieri and Alik were working hard to clean up Jung Da-rim and Lianna Holden's messes, but since the other side only had to cover Kiyona Mari's mistakes, the Seryu-tai team naturally became more dominant.</p>
+<p>No matter how hard Alik and Mimata Chieri fought, Sawayanagi Azuma's precognitive abilities and Sawayanagi Seari's wind abilities were too OP in volleyball. Thinking about it, even if we played futsal with 6v6 with the women's team and the men's team, the women's team would probably win....</p>
+<p>Before I knew it, thirty minutes had passed and the game was over. The winning team was the Seryu-tai team, and the futsal game ended 5-4. The winning teams were all excited, and the losing teams weren't too upset, except for a few who were genuinely aiming for injuries.</p>
+<p>Those guys who were aiming for injuries were the problem, though.</p>
+<p>,Ugh.... Meeting.... Meeting....</p>
+<p>Choi Jin-ha, who was on the losing team on the men's side, was lying down and continuously chanting the word "meeting," while Kim Young-chan and Lee Doo-young, who were on the winning team, were teasing Choi Jin-ha next to him.</p>
+<p>On the women's team, Alik was just staring blankly at the sky. The prize was just a cosmetics set, so why was she looking at the sky like that? Could it be because of the one-day date with me that Fujigasaki Rinka mentioned?</p>
+<p>The MVP who would get my one-day date ticket was to be decided by a vote within the winning team, so no matter how active Alik was, she would never be the MVP.</p>
+<p>Mimata Chieri approached the dazed Alik and whispered something in her ear, and she soon came to her senses and applauded the winning team.</p>
+<p>,The futsal winning team can choose between a meeting or 100,000 yen as promised and tell me... The volleyball winning team can take this cosmetics set. I'll check the MVP votes now and announce it.</p>
+<p>I grabbed the microphone and told them to take their rewards, and then I read the votes that the winning team had written on the slips of paper one by one. Most were divided between Sawayanagi Azuma and Sawayanagi Seari, but Sawayanagi Seari became the MVP by one vote.</p>
+<p>,The volleyball MVP is Sawayanagi Seari~!</p>
+<p>,Eh, eh... Me?</p>
+<p>Sawayanagi Seari approached me with a slightly embarrassed expression. She had a cute appearance like Alik, but their vibes were different.</p>
+<p>Alik felt like a cat silently rubbing its head against its owner's leg, while Sawayanagi Seari felt a bit more cheerful. A curious but slightly shy puppy feeling? Even though she was older than me....</p>
+<p>,The prize is a date with me, so if you want to, let's set a date, Seari-ssi.</p>
+<p>,Yes, hehe! I'll set it up.</p>
+<p>Since there was no actual prize for the MVP that Fujigasaki Rinka had spontaneously created, I shook hands with Sawayanagi Seari.</p>
+<p>,Okay, you've warmed up your bodies enough with exercise, so it's free time until dinner after you shower in the hot springs.</p>
+<p>After shouting "free time," I put down the microphone. Should I go to the hot springs too? It was a short sparring match, but I worked hard to get one over on Fujigasaki Rinka, so I sweated a little.</p>
+<p>I went to my room to get a change of clothes and then headed to the hot springs. I went into the entrance marked "Men's Bath," took off my clothes, put them in a basket, and then entered the hot springs. There were already a few people inside. When I checked their faces, I saw Sawayanagi Tobe, Lee Doo-young, and Kim Young-chan were inside.</p>
+<p>,Yongtae-hyung~! Oh, you're huge....</p>
+<p>,Are you a black guy with that size?</p>
+<p>,Hmm, Ryuta-gong.... Impressive.</p>
+<p>Everyone said something after looking at my Johnson, so I smiled slightly and took a shower before entering the hot springs.</p>
+<p>,Where's Young-chan?</p>
+<p>,He said he's showering in his room when other people aren't using the hot springs because of his X-ray vision.</p>
+<p>Ah, that's right. It might be a bit awkward if Kim Young-chan, who has X-ray vision, was there when the women were also showering in the hot springs. He's avoiding getting cursed at by himself, what a wise and pitiful guy. If I had X-ray vision, I would never say that I had that ability.</p>
+<p>Lee Doo-young, who also has regeneration abilities like me, asked me various things when I was next to him, mostly about exercise. He became a health maniac after his nutrition became sufficient and his regeneration abilities found their potential, and he seemed to have many questions about exercise methods.</p>
+<p>,Regenerators are naturally different from ordinary people. You have to increase the intensity and shorten the rest periods, but you have to eat more.</p>
+<p>I taught Lee Doo-young my own tips. Regenerators could raise their strength stat to 10 without investing stats, so they could save stats. From 10 onwards, it was so difficult that I thought it was almost impossible to raise stats through exercise, but with extreme training, it sometimes went up by 1.</p>
+<p>My strength stat rose rapidly due to elixirs and traits, so I didn't see the effects of exercise, but I didn't regret it.</p>
+<p>It would take a very long time to raise stats through exercise, so activity would slow down, and if it slowed down, leveling up would also slow down, and various problems would arise like dominoes, so I just used the fast method.</p>
+<p>,Ugh.... I'm going to go out now.</p>
+<p>,Yongtae-hyung, you're coming out early?</p>
+<p>,I didn't sweat much. I'm going to lie down and rest in my room rather than rest here.</p>
+<p>,Ah, I see. See you at dinner, hyung.</p>
+<p>,Farewell, Ryuta-gong.</p>
+<p>,See you later.</p>
+<p>I received everyone's greetings, rinsed my body with cold water, wiped my body with a towel, changed into comfortable clothes, and headed to my room. It was free time, so I was going to lie down in bed. I had been studying continuously, and I went to pick up Fujigasaki Rinka early this morning, so I was a little tired.</p>
+<p>,Hmm, is there anything new...?</p>
+<p>I picked up my phone and scrolled through Mitube. Then I saw a familiar face. Kazuhiro's face was on the thumbnail, so I clicked on it and saw that Kazuhiro had been selected for the US national team. Kazuhiro was giving an interview saying that he would comfort the Americans who were struggling with the LA disaster with his performance. It became even more of a hot topic because the next game with the US was a friendly match with Japan.</p>
+<p>,No, you should have told me in advance, why am I seeing it on Mitube News....</p>
+<p>I was writing a bunch of curses on Kazuhiro's Line when I heard someone knocking on the door.</p>
+<p>,Who is it?</p>
+<p>,Hey Pumpkin, it's me. Lianna.</p>
+<p>It was the first time since I had a relationship with Lianna Holden last time, so there must be a purpose for her coming to my room. That purpose is probably my body. I told Lianna Holden to come in.</p>

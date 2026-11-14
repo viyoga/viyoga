@@ -5,80 +5,72 @@ weight = 1102
 chapter = 1102
 +++
 
-<p>and chapter check contains erotic please surroundings this your</p>
-<p>Just after finishing 2-on-1 Sex with Kiyona Hori and Mari, and while considering whether to do it again, the sound of a vehicle was heard from outside, so I sent the two dazed Women to the first-floor Shower Room, and I also showered in the Shower Room in my room.</p>
-<p>After a quick Shower, I came down to the first floor, and the surfing Members, who had returned after tidying up their surfing equipment, were noisily entering Inside the House.</p>
-<p>"Wow~! Ryuta-cchi! Surfing was fun, let's do it together next Time!"</p>
-<p>Seizawa Shii, who had returned after finishing surfing, kept saying surfing was fun and was excited. The others also seemed to agree, all with joyful, flushed Expressions. At her Words to do it together next Time, I nodded my Head and welcomed everyone.</p>
-<p>Even Maya Reed, who had initially been awkward and hesitant among people she wasn't close with, was smiling quite genuinely, seemingly having enjoyed herself. Seeing her happily conversing with Lianna Holden and Sawayanagi Seari, it seemed Superhumans had some kind of connection among themselves. Still, it's Fortunate that she made some friends.</p>
-<p>"We'll rest a bit, then have Dinner. Since the Administrator-ssi said he's been preparing barbecue since earlier, we don't need to prepare anything separately."</p>
-<p>Since the caretaker, from the moment we arrived, had placed meat seasoned with rub into the barbecue Machine, it would have been slowly cooking over charcoal for several hours.</p>
-<p>Since I had also come to this Mansion last year, the caretaker knew my meal portions well and said he had prepared a lot, so it seemed I could sufficiently replenish the protein I had consumed while having Sex with the Kiyona Sisters today.</p>
-<p>"Barbecue? That sounds delicious...! Then I can Shower, rest a bit, and eat."</p>
-<p>Clink.</p>
-<p>As Naruse Shiyo's Eyes sparkled, saying it sounded delicious upon hearing about the barbecue, the first-floor Front Door opened, and Shimokawabe Airen, dripping Sweat, entered.</p>
-<p>I thought she was Training in the Underground, but seeing her leggings attire and the Sweat she was dripping, it seemed she had come back from a run outside.</p>
-<p>"Did you go outside?"</p>
-<p>"Ah, yes...! I just ran a bit."</p>
-<p>At my Question, Shimokawabe Airen subtly averted her Gaze and answered. Hmm...? Why is she avoiding my Eyes?</p>
-<p>Thinking perhaps her pants zipper was open, I looked down there, but it wasn't at all. They were just training shorts, so there was no zipper. It seemed she was probably a bit embarrassed because she had sweated quite a lot from running.</p>
-<p>"Sabu, is the running course here good?"</p>
-<p>"Yes, it goes up a Hill, so you can see the Sea well, and it has an open, refreshing Feeling, so it was quite good."</p>
-<p>At Naruse Shiyo's Question, Shimokawabe Airen nodded her Head. If it's that good, I should try running there tomorrow Morning too.</p>
-<p>"Everyone, please try the beverage we developed~!"</p>
-<p>The Kiyona Sisters, who seemed to have finished their Shower and were now perfectly fine (though a slight Blush from Sex still remained), came carrying Bottles and cups full of Kiyona Special and said.</p>
-<p>Shimokawabe Airen, who suddenly blushed upon seeing the Kiyona Sisters, and Seiwa Rieko, who was coming down from the second floor, perhaps having just heard everyone arrive, also had a red Face.</p>
-<p>What is it? Is having a red Face a trend or something? Seiwa Rieko, who had only been Inside the House, had damp Hair as if she had just showered. Why did she Shower at such an ambiguous Time? Everyone seemed uninterested in the Question I was feeling, only showing Interest in the Kiyona Sisters' Kiyona Special.</p>
-<p>"I was thirsty anyway, so this is perfect~!"</p>
-<p>"Hori-cchi, Mari-cchi developed it? Give it here. I'm good at evaluating these kinds of things, you know~!"</p>
-<p>"It's refreshing~!"</p>
-<p>Everyone, having surfed for several hours, was making a fuss, drinking Kiyona Special and saying it was delicious. Given the good Evaluation, it seemed likely they would release it as a new Menu item when they returned to Japan. Surely they wouldn't put cobra Blood in it, or serve it like that in a Japanese Maid Cafe, right?</p>
-<p>When I looked with a slightly worried Expression, Kiyona Hori chuckled 'fufut' and shook her Head.</p>
-<p>As a result of my tasting, it was a Potency drug so effective that it made my Face feel hot, so I thought I might have to deal with the Women who drank Kiyona Special tonight, but it seemed the Kiyona Sisters also had some thought, as they didn't put cobra Blood in it.</p>
-<p>Of course, some of the Women here, even without drinking a Potency drug, would probably come to my Bedroom tonight.</p>
-<p>"Damn it!"</p>
-<p>Taira Gensuke, who had returned to Brazil from Japan, slammed his Desk. The Situation was growing bigger than he had thought.</p>
-<p>Of course, he didn't Regret extorting the Mithril from that idiotic Taira Ryuta Guy, but the Problem was that Taira Kitsumasa had actually died.</p>
-<p>Of course, when he hired the Assassin, he had wished that Kitsumasa Guy would die, but he thought one Assassin wouldn't be able to kill Taira Kitsumasa, who was under Taira's Protection.</p>
-<p>He would have been satisfied if he was just slightly injured or terrified that Taira Kitsumasa Guy, but when Taira Kitsumasa Guy really died, Taira Gensuke became Fearful of the current Situation.</p>
-<p>Taira Jiro, Taira Kitsumasa's Father, or Taira Danjo, who had lost a Blood relative this year as well as last year, he wondered if they might discover his Traces.</p>
-<p>Of course, he had been careful not to leave any Traces, but there were many Ability Users in the World whom even Taira Gensuke didn't know, so he wondered what he would do if they found him.</p>
-<p>While he was worrying like that, Contact came from his Father. Taira Gensuke hesitated for a moment, but then answered the Phone Call.</p>
-<p>"Yes, Father."</p>
-<p>-Did you do it?</p>
-<p>Taira Ichiro asked bluntly. Taira Gensuke was Silent for a moment. He was worrying whether to be honest with his Father or to say he didn't do it, but then Taira Ichiro's Voice was heard again immediately.</p>
-<p>-No, don't Answer. Let's talk about the Mithril you stole first, rather than the Kitsumasa Matter.</p>
-<p>Taira Ichiro seemed to have no Interest in Taira Kitsumasa's Death. Or perhaps he had the conviction that it was Taira Gensuke's deed.</p>
-<p>It seemed Taira Gensuke's theft of the Mithril had already been caught by Taira Ichiro's Information network. Taira Gensuke also guessed this. Since he used Taira Bussan's ship to bring the Mithril to Brazil, he couldn't help but be caught by Taira Ichiro, the Owner of Taira Bussan.</p>
-<p>"That Ryuta Guy was a bit arrogant, so I took the Mithril. That's not a bad thing, is it?"</p>
-<p>Taira Gensuke spoke to his Father in a Way of Speaking that sought Praise. He spoke boldly because it wasn't something he had done to Taira's Successor Group, like Taira Jiro or Taira Kokoro.</p>
-<p>-Huh...! That's not Ryuta's Mithril.</p>
-<p>"What?!"</p>
-<p>Taira Gensuke unconsciously asked his Father again. Not Taira Ryuta's Mithril? Then where did that hundred-plus tons of Mithril come from?</p>
-<p>-You stole the Mithril that Jiro purchased from Ryuta. That warehouse seemed to be Jiro Guy's temporary Secret warehouse. Of course, it was a good deed, but given the current Situation, it has become a dangerous state. Don't come to Japan for a while. Because he might take out his Anger over Kitsumasa's Death on you.</p>
-<p>No matter how much Money he earned overseas, the Taira Group's stronghold was Japan. Even if it was temporary and dangerous, being told not to come to Japan meant moving away from the center of the Taira Group.</p>
-<p>He had recently come to Japan to be recognized for his Achievements by Taira Danjo. If he didn't come to Japan, it meant he wouldn't receive the Reward, no matter how many Achievements he made.</p>
-<p>"Th-then, for Kitsumasa's funeral...?"</p>
-<p>-You'll have to make an Excuse for not being able to come to Japan. You should be able to handle that much yourself.</p>
-<p>As Taira Ichiro said, since Taira Gensuke was in Brazil, far from Japan, he would be able to make sufficient Excuses. He could intentionally cause friction with another company, or get a false medical certificate from a Hospital and claim to be sick.</p>
-<p>"Understood...."</p>
-<p>-What I've said so far was as a Father, and from now on, I will speak as the Chief of the Taira Successor Pabeol.</p>
-<p>The Appearance of worrying about his child's Safety just moments ago was gone without a trace, and it was Taira Ichiro speaking in a cold Voice.</p>
-<p>-Even though I clearly told you not to provoke Taira Ryuta, you disobeyed that Command. Disobeying my Words is a greater Mistake than the accident you caused. Your Mother (archaic/animalistic) cried and begged me to spare you, which is why I'm leaving you in Brazil; otherwise, I would have stripped you of your position as Taira Bussan's South American Branch Manager and demoted you to a cleaner, cleaning Taira Bussan's buildings.</p>
-<p>"Ah, Father...!"</p>
-<p>-If you weren't my Son, I would have killed you or thrown you to that Jiro Guy. Be Fortunate that you're even a cleaner.</p>
-<p>At Taira Ichiro's abusive Words, Taira Gensuke bit his Lips. Taira Ichiro was a Person who valued his Commands above all else. He had a Personality like a cold-blooded animal, capable of abandoning even his own Son if he didn't follow his Commands.</p>
-<p>When he even brought up his Mother, Taira Camila, and spoke of potentially taking away his current Seat, a chill ran down Taira Gensuke's Spine.</p>
-<p>Of course, in Brazil, many followed Taira Gensuke himself, and his maternal Family was also a Family with considerable Power, but if his Business Card as Taira Bussan's South American Branch Manager was taken away, he would have to give up a significant portion of what he currently enjoyed. Even his maternal Family would treat him differently than now.</p>
-<p>-This is the last opportunity I'm giving you. Think carefully while you can't return to Japan.</p>
-<p>Clink.</p>
-<p>Taira Ichiro hung up the Phone Call without even waiting for Taira Gensuke's Answer. Taira Gensuke, who had been holding and staring at the empty phone with no one to converse with for a while, put the phone in his pocket.</p>
-<p>"Hmph.... I can't live like this forever. What's important is Power. I'll gather as much influence as possible in Brazil. So Father can't ignore me.... So Father can never treat me like this again...."</p>
-<p>Taira Gensuke quietly muttered. But the content of his Words was completely different from the Reaction Taira Ichiro desired.</p>
-<p>Requested by Gojoy-nim: 1. Yukiko running to the accident Scene and worrying, and 2. Yukiko eating Breakfast~!</p>
+<p>and are be careful chapter check contains erotic many please so surroundings there this with your</p>
+<p>From a certain moment, Shinonome Mio felt a sense of powerlessness. While under Taira Saburo, she had a great influence on Taira Saburo's expansion of power as a strategist, but it was from the moment she was pushed back.</p>
+<p>From some point, Taira Saburo discussed important matters with the newly recruited chief of staff, and only discussed less important matters with Shinonome Mio. And not long after, Taira Saburo died in a car accident.</p>
+<p>In an instant, the forces built by Taira Saburo and Shinonome Mio scattered into pieces. Some, as if they had been waiting, went under Taira Ichiro, Taira Jiro, or Taira Kokoro; some declared neutrality and claimed to be non-affiliated; and some left the Taira Group itself.</p>
+<p>Only a few unlucky people met their death after Taira Saburo died. Those like Uta Koshi, the newly appointed chief of staff under Taira Saburo, all died under mysterious circumstances.</p>
+<p>Shinonome Mio did not choose any of them, but had somehow become a member of the non-affiliated faction. It was because Shinonome Zen, Shinonome Mio's Grandfather and President of Taira Electronics, had intervened to prevent his Granddaughter from dying.</p>
+<p>After her respected Liege died, Shinonome Mio became extremely debilitated. She thought that her Liege pushing her to the second line was due to her own inadequacy, and that this Situation, where she didn't know why her Liege died, also happened because she was inadequate.</p>
+<p>After Taira Saburo died, Shinonome Mio became a Cripple, as the rumor circulating among people claimed. Every time something happened, she only blamed herself, so there was no way she could live a proper life.</p>
+<p>Around the time Shinonome Mio was living as a Cripple, a letter arrived for Shinonome Mio. It was the will of her deceased Liege, Taira Saburo.</p>
+<p>It stated that Taira Saburo, who worried about Shinonome Mio's Safety, had pushed her back. It was a letter, written in Taira Saburo's uniquely calm style, stating that he was sorry things turned out this way and telling her to live her own life from now on.</p>
+<p>Shinonome Mio was more shocked by this letter than by Taira Saburo's Death. Her Liege kept her away out of worry for her....</p>
+<p>Such a dangerous Incident occurred, yet Shinonome Mio, who prided herself as the first chief of staff, was unaware of it.</p>
+<p>She was disqualified as a chief of staff. Her Liege did not trust her, and she, as a chief of staff, failed to earn her Liege's trust. She, who should have been her Liege's reliance, became an object of worry.... Due to the great shock, Shinonome Mio's hair turned completely white, silver hair, in a single day.</p>
+<p>After that, Shinonome Mio put an end to her Cripple life. It was to live her own life according to her Liege's will and to become strong enough not to be worried about by anyone in the future.</p>
+<p>Of course, because she didn't know the exact Situation of Taira Saburo's Death, for her own Safety, she decided to maintain the rumor that Shinonome Zen's famous Granddaughter had become a Cripple.</p>
+<p>With the Ability of Shinonome Mio, an excellent schemer, this level of information manipulation was easy to do. She didn't even tell Shinonome Zen that she had escaped her Cripple life.</p>
+<p>"Are you ready?"</p>
+<p>While briefly reading Taira Saburo's will on the desk and thinking about that time, Shinonome Zen's Voice was heard from outside the door.</p>
+<p>"Yes, I'm ready."</p>
+<p>Shinonome Mio answered and opened the door. Shinonome Zen saw his Granddaughter's Appearance and frowned slightly, but said nothing.</p>
+<p>Since Shinonome Zen's children had all died, only his Granddaughter remained, and he probably didn't want to say anything to his Granddaughter, who had become extremely weak after her Liege's Death.</p>
+<p>Having devised countless cruel schemes, even Shinonome Zen, the cold-blooded chief of staff who made Taira Danjo-nim Chairman, was merely a soft-hearted Grandfather in front of his own flesh and blood.</p>
+<p>"Ryuta-nim, are you all ready?"</p>
+<p>As I was wearing a dark Suit for the funeral and tying my necktie, Linxiang's Voice was heard from outside. Those accompanying me to the funeral today were my secretary Linxiang and my driver Tsukiyo.</p>
+<p>In fact, most of my core Subordinates were not affiliated with the Taira Group, so there was no particular Reason for them to attend today's funeral. Those with Work would do their own Work, and those who returned from the USA, because I gave them a few days of Vacation, would either rest or attend to personal matters.</p>
+<p>"Yeah, I'm done~!"</p>
+<p>I, having finished tying my necktie, answered Linxiang and opened the door to leave. As expected, for attending the funeral, Linxiang was also wearing a black Dress, and even though it was a black Dress that didn't reveal her Figure and had no particular Exposure, it suited her quite well.</p>
+<p>"Let's go down for now."</p>
+<p>"Yes."</p>
+<p>Although there was plenty of time, the car traffic was quite heavy during the last Taira competition, so we decided to leave a little early. There was no need to arrive late and attract attention.</p>
+<p>"Older Brother~!"</p>
+<p>Discovering me from afar in the Parking Lot, Tsukiyo was seen excitedly waving her Hand. Originally, Tsukiyo's driver attire was a dark Suit, so there was no need to prepare separate Clothes.</p>
+<p>Fujigasaki Rinka contacted me yesterday, and Fujigasaki Rinka decided to depart for Japan with Sajo-nim in a few days, so Tsukiyo would soon be able to meet her Sabu and Grandmaster.</p>
+<p>"As you know, today's schedule is Taira Kitsumasa's funeral. Taira Jiro's forces are expected to fully gather...."</p>
+<p>As I got into the vehicle, Linxiang took out her tablet and spoke as if giving a Report. As Linxiang said, many predicted that Taira Jiro would gather all those who followed him at this funeral to display his power.</p>
+<p>Of course, Taira Kitsumasa was not only Taira Jiro's Son but also Taira Danjo-nim's Grandson, so not only Taira Jiro's forces but also many customers would come. There would be those who, like us, weren't on Taira Jiro's side but came because they were Family, and various types of attendees, such as those who simply came to make a good Impression because it was a Taira Family funeral.</p>
+<p>For factions contemplating whether to side with Taira Jiro, today would be the day to make their choice clear. Even if they supported Taira Jiro after today, they would inevitably be treated differently from those who supported him in front of the many people at the funeral.</p>
+<p>"The Situation for Taira Jiro and Ichiro will be a bit complicated."</p>
+<p>"That's right. First, Taira Jiro's side had their Mithril warehouse attacked domestically and his Son assassinated overseas, so they must be worried about developing a weak Image of being unable to suppress attacks; and Taira Ichiro's side received severe reprimands from the Chairman due to his Son's Mistake, along with various disadvantages. It's no exaggeration to say that both only suffered losses."</p>
+<p>It was no exaggeration to say there was almost no winner in this Incident.</p>
+<p>Taira Jiro, whose Son died, lost Mithril, and even gained an Image of being attacked, must find the Assassin who killed his Son and their Mastermind as quickly as possible and exact cruel Revenge to recover from this Incident; and Taira Ichiro must achieve more to reclaim the affiliate companies that Grandfather Taira Danjo-nim took back while reprimanding him for this Incident, so it must be seen that almost no one gained profit from this Incident.</p>
+<p>Our side also suffered no particular harm, and although we demanded a huge Reward from Taira Ichiro's side compared to the damage, the problem was that an Image of being attacked was created.</p>
+<p>That said, to take Revenge, we couldn't immediately Attack that Guy, Taira Gensuke, in Brazil. If I had my way, I wanted to Attack and eliminate him immediately, but it wasn't time yet. Since I now clearly knew what Style that Guy, Taira Gensuke, had, I was thinking of instigating him to create discord once again.</p>
+<p>Anyway, like this, there was almost no winner in this Incident. If I had to say, since the Taira were fighting among themselves and eroding their power, it should be seen that the Minamoto side, who are rivals with Taira, were gaining indirect benefits.</p>
+<p>Of course, according to what I heard from Minamoto Risa, the Minamoto side was also not in a position to comfortably watch the Taira's succession competition. With a Woman named Minamoto Katsue, who possessed excellent Skill, entering Japan, predictions were continuing that the Minamoto side would also begin a succession competition. The fact that the deceased Taira Katsumasa did not achieve any particular results in Europe was also because of this Woman named Minamoto Katsue, so her Skill must be considerable.</p>
+<p>"There will be almost no one focusing on us at the funeral, so let's just observe how The Situation unfolds and act in a way that benefits us."</p>
+<p>"Understood. Still, since Yongtae-nim is so Tall and Handsome, there's no way he won't attract attention."</p>
+<p>"That's right~! Older Brother is handsome, so everyone will stare."</p>
+<p>The two doting fools were saying the terrible Words that Yongtae-nim/Older Brother is handsome, so he will receive everyone's attention. Today, the war of nerves between Taira Jiro and the other succession competitors would be no joke, and if I received everyone's Gaze, that would also be a considerably big Problem.</p>
+<p>Only Taira Kanna would say, "Orabeoni, the funeral Suit suits you well too~!" but the other Taira Successors would definitely not think well of it. In fact, today's funeral had a slightly unsettling Reason. It was because Taira Kanna kept sending Text Messages like, "Orabeoni, I'll see you after a long time. I'm looking forward to it♥."</p>
+<p>Even when she was the Student Council President of St. Francis Girls' Academy, Taira Kanna had kidnapped me without hesitation, so there was a Possibility she would cause some Incident, regardless of whether the current Place was a funeral. Of course, it was highly possible it was just a Text Message saying she was looking forward to seeing me after a long time, but the Crazy Taira Kanna, who had a screw loose somewhere, always had to be watched carefully. Still, at this funeral, only Taira Kanna was someone to worry about, which was Fortunate. Surely there wouldn't be another Crazy Person, right?</p>
+<p>Christmas Special Illustration~!</p>
+<p>Requested by TheDreaming-nim: 1. Alik in a Santa Hat 2. Taira Kisa as Rudolph</p>
 <p>1.</p>
 <p>2.</p>
-<p>The meal was decided to be a Sandwich hehe.</p>
-<p>Requested by TheDreaming-nim: Herta Vogel 1. Being licked in the Armpit 2. Breast Milk Ejaculation</p>
+<p>Requested by JeongChucky-nim: 1. Home Economics Teacher as Santa Girl holding a Candy Sword~! 2. Simyeonui ttal, "I'm the Gift"~!</p>
+<p>1.</p>
+<p>Simyeonui ttal in Gift Wrapping</p>
+<p>You requested "Abyss Princess," so I made it Simyeonui ttal, who is the closest~!</p>
+<p>Requested by Hwanbuljeoldaebulga-nim: Lisa in a Santa Bikini with armpit Exposure, Home Economics Teacher~!</p>
+<p>Home Economics Teacher~!</p>
+<p>Requested by Meokguja-nim: Ryuta in Rudolph makeup~!</p>
+<p>Requested by Gojoy-nim: Taira Camilla's Ordinary Santa Attire, Sexy Santa Attire~!</p>
+<p>Ordinary?</p>
+<p>Her Figure itself is Erotic, so it doesn't feel Ordinary hehehe</p>
+<p>Sexy Santa~!</p>
+<p>Requested by Gojoy-nim: Chapter 58 Illustration Remake~!</p>
 <p>1.</p>
 <p>2.</p>

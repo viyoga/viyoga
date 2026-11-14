@@ -5,86 +5,93 @@ weight = 488
 chapter = 488
 +++
 
-<p>"To, to lie like that!"</p>
-<p>"Hiiiik! I don't want to die...!"</p>
-<p>"Hey, wasn't there a promise?!"</p>
-<p>At the mention of Dang So-hwa's poison, the Toyo Construction executives each screamed. Dang So-hwa gave a cold smile as she watched them.</p>
-<p>"Don't worry, it's a poison that doesn't work right away. Instead, you'll have to take an antidote from me every month, and if you don't take the antidote, you'll die in terrible pain."</p>
-<p>No one doubted Dang So-hwa's words. They had watched the massacre Dang So-hwa committed as she came up on the monitor installed on the 13th floor, so they had no choice but to believe it. Fortunately or not, the executives of Toyo Construction breathed a sigh of relief at the news that they would not die from the poison immediately.</p>
-<p>"Still, you guys made one of our executives die... I guess I should show you what kind of pain one of you will suffer, right?"</p>
-<p>Ttak!</p>
-<p>When Dang So-hwa snapped her fingers, one of the executives arched his back like a bow and collapsed on the spot, screaming. He screamed terribly and reached out to Dang So-hwa.</p>
-<p>"Kuaaaa!! Ple, please! Kuaaa! Rather, kueu! Just kill me!!"</p>
-<p>The remaining executives trembled in terror as they watched him writhe in agony, foaming at the mouth with blood, and die, alternating between looking at Dang So-hwa and the dead executive's corpse.</p>
-<p>Dang So-hwa's appearance was terror itself. Even though a person was dying in terrible pain right in front of her, she only wore a cold smile. It was a fitting image for her recently acquired nickname, the Empress of the Underworld.</p>
-<p>"If I take the antidote only once a month, ca, can I live?"</p>
-<p>"Yes, but I'll only give you the antidote once a month if you listen to me well, right?"</p>
-<p>It wasn't because Dang So-hwa was merciful that she was letting the executives live. It was an act to devour everything Toyo Construction had. She was planning to put a leash of poison on the executives of Toyo Construction and slowly eat away at the foundation of Toyo Construction one by one.</p>
-<p>Of course, the Toyo Construction executives, who were seasoned Yakuza, knew what Dang So-hwa was thinking. Even though they were terrified by Dang So-hwa's words, they thought that if they could just get through this time, they could somehow detoxify themselves. They thought that once they were detoxified, they could take revenge at any time.</p>
-<p>However, Dang So-hwa was confident that no one could easily detoxify her poison, so even though she somewhat guessed the executives of Toyo Construction's inner thoughts, she didn't care. The time when she had taken everything from Toyo Construction would be when these executives died.</p>
-<p>"I'll send the working-level staff with the details, so don't do anything stupid like running away and just wait. Anyway, the elevator is broken and there's still poison on the lower floors, so you have no choice but to stay here."</p>
-<p>Dang So-hwa dusted off her hands and took her foot off the broken Chairman's nameplate. Then, she patted the cheek of the middle-aged man who appeared to be the dead Chairman's son twice, as if caressing him, and went outside.</p>
+<p>To further the progress with Saionji Diana-ssi, I took off the underwear she was wearing. Saionji Diana-ssi must have also wanted to be with me soon, as she lifted her waist and legs to help me take off her underwear.</p>
+<p>Even when she was wearing underwear, I felt that she had a great figure. It wasn't the voluptuous kind like Kasaoka Yuzuki or Daigo Terue, but more of a slender figure with large breasts. Saionji Diana-ssi seemed embarrassed by my gaze and covered her pussy with her hands.</p>
+<p>I spent a long time visually raping Saionji Diana-ssi's body before grabbing her large, well-shaped breasts that were standing erect without any protection from underwear. Saionji Diana-ssi's breasts felt more elastic than soft, with a lively texture.</p>
+<p>"Huuheung, Teacher-niim...♥"</p>
+<p>As expected, touching her bare skin directly was different from touching her through a bra. There was no cloth obstructing between my chest and hand, and perhaps because of the sweat from excitement, there was something more clingy and adhesive about it.</p>
+<p>Saionji Diana-ssi was also feeling a man's touch on her bare skin for the first time, calling out to me while writhing and squirming in pleasure. Along with her plaintive moans, her nipples, already as hard as they could be, were tickling the center of my palm.</p>
+<p>At the same time as touching her breasts, I pushed my waist between Saionji Diana-ssi's legs. However, I didn't immediately put my dick inside Saionji Diana-ssi. I was moving from below to above, rubbing my glans against Saionji Diana-ssi's pussy with just the movement of my waist, caressing her.</p>
+<p>"Aheueung, something hot.... Heueung, on my bottom, haat! It's being rubbed, isseoyo♥"</p>
+<p>"This will soon go inside Diana-ssi."</p>
+<p>At my words, Saionji Diana-ssi trembled with half anticipation of pleasure and half fear of the unknown feeling.</p>
+<p>"Heueung, it's too big, Teacher. I don't think it will fit, haat!"</p>
+<p>"Don't worry."</p>
+<p>No matter how big my dick is, there hasn't been a woman who couldn't take it so far. This is the mystical power of my trait. Feeling that she was sufficiently wet from the continued foreplay, I aligned my glans with Saionji Diana-ssi's vaginal entrance and pushed my waist in.</p>
+<p>"Haat, it's entered...! Heueueueut! It's strange, heut! It's strange, Teacher-niim...!"</p>
+<p>As my dick gradually widened her vaginal opening and entered, it met her hymen at the entrance and stopped advancing. Saionji Diana-ssi kept repeating that it felt strange to me because of the sensation she was feeling for the first time.</p>
+<p>To tear Saionji Diana-ssi's hymen, I took my hands off her breasts and grabbed between her waist and pelvis with both hands. Then, while pulling Saionji Diana-ssi's waist towards me and pushing my waist forward, I began to tear the hymen that was pressing against my glans.</p>
+<p>With a tearing sensation, her hymen tore, and my dick quickly widened Saionji Diana-ssi's vagina and entered deeply inside.</p>
+<p>"Ah...! Ah...! It hurts, Teacher-niim!"</p>
+<p>"It will feel good soon."</p>
+<p>I made the most of the Heukmireukgong's bedroom techniques to make Saionji Diana-ssi feel pleasure instead of pain. Then, she initially let out groans of pain, but soon Saionji Diana-ssi's mouth began to emit moans of pleasure.</p>
+<p>"Te, Teacher-niim...! Is this, heueung, what it means to be connected? Haat! It's hot...!"</p>
+<p>My dick is a bit hot, indeed. There are several factors, but it seemed to be due to the crimson killing intent pillar trait that started from the golden pillar and has now evolved, swimming in her vaginal fluids. The temperature of my semen is also extremely hot compared to others, so I once asked Eve for a semen test because I wondered if I was a seedless watermelon, but it was indeed not ordinary human sperm.</p>
+<p>Eve, who examined my sperm, said that it was far from human due to the crimson killing intent pillar trait swimming in vaginal fluids and the Cambion's flesh trait. Ordinary human sperm could not survive at the temperature of my semen. Eve was very interested, but she didn't mention the traits or race. As a result, it is difficult to get pregnant, just like Yukiko, who had the body of a succubus in the past, did not have children with my father, Taira Saburo-ssi.</p>
+<p>However, unlike Yukiko, who had the body of a completely different race, a succubus, the Cambion's flesh trait that I have is the flesh of a half-human, half-demon, so I was half human. There was a possibility that an unexpected pregnancy could occur because of the half of human genes that I have, so I was always giving women birth control pills when I had sex. Of course, Eve said that the probability of that unexpected pregnancy was extremely low. Still, it's not zero, so I have to be careful.</p>
+<p>In fact, it would be a problem that could be solved by not ejaculating inside or using a condom, but I liked ejaculating inside. It felt like I had completely conquered the woman.</p>
+<p>"Heueung, haat! It feels good, Teacher-niim...!"</p>
+<p>It was Saionji Diana-ssi's moans that woke me up from my momentary reverie. It seemed that my waist had been busily shaking even while I was thinking about my attachment to inner ejaculation.</p>
+<p>Saionji Diana-ssi's pussy was a pleasant pussy that felt like it was clinging to me. Perhaps because it was a virgin pussy, the inner vaginal flesh stretched out as I pulled my waist back, so the adhesion was excellent.</p>
+<p>"Haat, heueung...! Teacher-niim, I think I'm going to cum...! Haat!"</p>
+<p>"Hold on a little longer, let's go together."</p>
+<p>Perhaps because of the chewy tightness of her pussy, or because Saionji Diana-ssi kept calling me Teacher, adding to the excitement stemming from the sense of depravity, I also started to feel semen rising. As I got closer to climax, Saionji Diana-ssi's pussy clung even more, and the pleasure I felt in my dick grew even more.</p>
+<p>"Keueut, I'm cumming...!"</p>
+<p>"Haeueueeut! Please cum...! Teacher's hot milk, haat! Please put it inside me♥"</p>
+<p>Byu-ut! Beut! Byureut!!</p>
+<p>I hugged Saionji Diana-ssi tightly and ejaculated deep inside her. Saionji Diana-ssi's vaginal flesh squeezed my dick tightly, as if gripping it with her hand. The reaction to the climax was quite amazing. Her pussy was grabbing my dick tightly as if it were alive, squeezing out the semen remaining in my urethra.</p>
+<p>"It's hot, Teacher-niim...! Heuhaaaaang!"</p>
+<p>Saionji Diana-ssi and I were breathing heavily and hugging each other for a while. Then, we made eye contact and enjoyed the afterglow with kisses.</p>
+<p>Tzup, ttzup...! Jjok, tzyup♥</p>
+<p>As we were kissing, making lewd sounds, the dick that had been inserted inside Saionji Diana-ssi regained its strength. Saionji Diana-ssi, surprised by my dick that quickly hardened, widened her eyes even while kissing.</p>
+<p>"Haa, haa.... From the lessons I've received, I know that men usually don't get hard this quickly."</p>
+<p>St. Francis Girls' Academy conducted quite in-depth sex education to prevent the heiresses, who could be said to be the family's assets, from accidentally creating children elsewhere. Perhaps that's where they learn about a man's refractory period.</p>
+<p>"I'm not an ordinary man."</p>
+<p>"Is that so?"</p>
+<p>Saionji Diana-ssi seemed to believe everything I said. It's troublesome if she believes too much. As we were looking into each other's eyes and talking, Saionji Diana-ssi seemed to have something she wanted to say to me. Perhaps because our bodies were connected with my dick inside her, I felt her feelings more clearly.</p>
+<p>"Is there something you want to say?"</p>
+<p>"I.... That...."</p>
+<p>Saionji Diana-ssi was hesitating a lot, as if it was a difficult thing to say even with my question. When I repeatedly told her to speak, Saionji Diana-ssi opened her mouth while hesitating.</p>
+<p>"After the accident, I thought I wouldn't have any connection with men. I had prosthetic arms and legs, but my true self is without arms and legs, so I thought there would be no man who would like my appearance."</p>
+<p>Saionji Diana-ssi seemed to have a lot of worries about her life and appearance, which had completely changed after the accident.</p>
+<p>"Now there are cyber implants, and even if there aren't, Diana-ssi is a beautiful woman, so don't worry."</p>
+<p>"Really?"</p>
+<p>"Of course."</p>
+<p>Saionji Diana-ssi smiled happily at my encouragement.</p>
+<p>"Then, can you grant my request?"</p>
+<p>"Tell me anything. Today is the day I give gifts."</p>
+<p>"Then...."</p>
+<p>Saionji Diana-ssi seemed to have made up her mind and began to open her mouth. The content of that request was quite shocking.</p>
 <p>###</p>
-<p>Dang So-hwa left the building in less than thirty minutes after going up. It would take this much time for an ordinary person to just go up to the 13th floor and come down, but seeing that she had even fought, I could see how formidable Dang So-hwa's poison skills were. She was waving at us and coming towards us. On the way, she grabbed someone who appeared to be an executive of Ryuto Construction nearby and started talking about something, and seeing them all running towards the building, it seemed like she had ordered them to clean up the mess.</p>
-<p>"Did you wait long? I broke the elevator so you couldn't run away, but it's so annoying to go up and down the stairs."</p>
-<p>Dang So-hwa took off her mask and equipment and grumbled as she approached. Soon, Yang Seol-hui, who had gone up to another building to provide cover, also came out and came to where Mimata Chieri was waiting.</p>
-<p>"I guess there was nothing for me to do after all."</p>
-<p>"One martial artist on the 12th floor was a bit tricky, but it wasn't to the point where Shueishi needed to help."</p>
-<p>In fact, Dang So-hwa was not a person who was suitable for team play in combat due to the nature of her combat method that used poison. No matter how precisely she used the poison, there was a high possibility that her allies would be harmed. And that damage was far more fatal than being cut by a knife or grazed by a bullet.</p>
-<p>That's why she worked well with Yang Seol-hui, who sniped enemies from a distance. With long-range sniping, there would be no chance of being hit by Dang So-hwa's poison, and she could help when Dang So-hwa hadn't noticed or needed to create an opening while fighting. That's why I heard that Yang Seol-hui has been quite busy going back and forth between Korea and Japan, training a sniper unit recently.</p>
-<p>"Ah! That's right. I was going to ask you about the enemy on the 12th floor too..."</p>
-<p>I opened my mouth to ask Dang So-hwa about the familiar and unpleasant presence she felt on the 12th floor. Seeing that Dang So-hee also felt it was tricky, he seemed to be quite skilled.</p>
-<p>"That's right! The one I met on the 12th floor too... I can't remember his name. I felt an aura similar to Ryuta-gun's from that martial artist guy. I don't remember his name, but I remember the name of the group that martial artist guy belonged to because it was unique. It was a temple name. Was it Anya-ji...?"</p>
-<p>"Anya-ji?!"</p>
-<p>If it's Anya-ji... It was the martial arts group founded by Takakusaki Gengo, who stole Shinkai Yatsude from our school and learned it. When I showed interest in the story, Dang So-hwa thought for a moment, then clapped her hands as if she had remembered something!</p>
-<p>"He said he was protecting them because he was commissioned by Toyo Construction. There must be a request channel, so should I find out for you?"</p>
-<p>Fujigasaki Rinka was chasing Anya-ji, and if there was a request channel, she could call them out under the guise of a request and fight them, so it was a great help. I immediately nodded to Dang So-hwa and replied.</p>
-<p>"Yeah, thank you then. Anya-ji is actually a group created by a guy who stole our school's martial arts. So he's an enemy of mine."</p>
-<p>"Stole the school's martial arts? Those are some really rotten bastards!"</p>
-<p>Dang So-hwa was furious at my story and started cursing Anya-ji. Since she had learned a secret martial art that she didn't easily pass on to others and only passed on to her blood relatives, she seemed quite angry that he had stolen the martial art.</p>
-<p>"Should we go back home without worrying about those Anya-ji guys?"</p>
-<p>"I don't think it's been cleaned up yet?"</p>
-<p>Dang So-hwa told me to go back to the mansion, but Yang Seol-hui told me that it probably hadn't been cleaned up yet. Since Dang So-hwa had finished the battle quite quickly, we had to wait a long time for Dang So-hwa's mansion to be cleaned up.</p>
-<p>"Then... let's get a hotel room. It'll be cleaned up if we sleep at the hotel and it's morning."</p>
-<p>I couldn't keep standing on the street, so I told them to go to a hotel first. Everyone nodded in agreement, so we got back in the car and booked a hotel room.</p>
-<p>Of course, we booked a large room that all four of us could use together. Everyone was naked while I was distracted for a moment. Actually, we were having sex earlier, but we were attacked while taking a break to eat a late-night snack, so it felt like the sex was interrupted. We all naturally took off our clothes as if we were continuing from the saved part.</p>
-<p>"Alright! Please choose two or one person and have sex...! I'll sit on the chair and watch! Hurry, hurry!"</p>
-<p>Mimata Chieri brought a chair to the bed with a look full of anticipation and sat down naked. It seemed like she was trying to start with a netorare voyeur play again.</p>
-<p>"I didn't do much in the battle just now, so please start with the leader."</p>
-<p>It was Yang Seol-hui who was trying to give way to Dang So-hwa, even though it wasn't a battle reward. It's convenient for me because I don't have to decide if you tell me that. Dang So-hwa quickly lay down on the bed and looked at me with a seductive expression when she was given way by the two of them.</p>
-<p>"Ryuta, you've got some useful information, so you'll reward me, right?"</p>
-<p>"Of course. You're all not going to be able to sleep tonight."</p>
-<p>I started caressing Dang So-hwa's pussy, which was already glistening with anticipation.</p>
-<p>###</p>
-<p>I told everyone that I wouldn't let them sleep at night, but all three of them were so tired that they fell asleep late at night, so I couldn't keep my promise. I wasn't such a villain that I would wake them up when they were tired and sleeping and do piston exercises.</p>
-<p>After waking up, Dang So-hwa and Yang Seol-hui received reports from various places to clean up what happened yesterday, and then Dang So-hwa gave me the story about Anya-ji's request channel that she had told me yesterday with a slightly embarrassed expression.</p>
-<p>"The executives know Anya-ji, but they don't know about the request channel. Maybe the person in charge knows how to contact them, but I think he died from my poison."</p>
-<p>As expected, the company's executives wouldn't know such detailed information. Since the person in charge is dead, I'll have to find out about the Anya-ji request channel separately.</p>
-<p>"Ah...! It's a shame, but it's okay because I can find out separately with this information that there is a request channel."</p>
-<p>"I'll try to find out in the back alleys too."</p>
-<p>Dang So-hwa still seemed sorry that she couldn't find out the information because the person in charge died from her poison, so she offered to help. It would be good to know quickly, so I nodded.</p>
-<p>"What are you going to do on Sunday?"</p>
-<p>"I was originally going to hang out with So-hwa and Seol-hui, but I think I'll have to go to Seiryutai because I'll be busy cleaning up this incident. It's been a while since I've been there, so I should see their faces."</p>
-<p>In order to absorb Toyo Construction, which was attacked yesterday, Dang So-hwa, the president, and Yang Seol-hui, the executive, couldn't rest, so they couldn't hang out together on Sunday. The two of them looked very sorry, but it was okay. We can hang out next time.</p>
-<p>"I'm sorry. This happened so suddenly..."</p>
-<p>"No, we can hang out again next time."</p>
-<p>"I have to go to Korea, so I can't see you often..."</p>
-<p>Dang So-hwa nodded at the words to hang out next time, but Yang Seol-hui seemed quite disappointed because she wasn't often in Japan as the head of the Korean branch of Ryuto Construction.</p>
-<p>"I go to Korea often too, so we can meet then."</p>
-<p>"Please contact me, Ryuta-nim!"</p>
-<p>We hugged each other once and parted ways. Dang So-hwa and Yang Seol-hui went to the Ryuto Construction headquarters, and Mimata Chieri and I returned to Dang So-hwa's mansion.</p>
-<p>The mansion was clean, as if a professional company had cleaned it up all night. I packed my luggage, put it in the car I had come in, and headed to Tokyo's Seiryu Military Company with Mimata Chieri.</p>
-<p>Because the Seiryutai members, who always receive requests, rarely have a chance to gather as a whole, only Sawayanagi Azuma, Sawayanagi Seari, Kiyona Hori, and Kiyona Mari sisters were at the Seiryu Military Company building.</p>
-<p>"Ah! Investor-nim!"</p>
-<p>"Ryuta-niim!!"</p>
-<p>Sawayanagi Azuma and Sawayanagi Seari smiled brightly and welcomed me when they saw me. Soon, the Kiyona Hori and Kiyona Mari sisters came down and welcomed me, and soon took my hand and took me to the dormitory room of the Seiryu Military Company building.</p>
-<p>Of course, the four of them took me to violate me (?). The four members of Seiryutai and Mimata Chieri, who newly joined in sex, had a fierce 5-on-1 sex battle.</p>
-<p>It seemed like I spent this weekend just having sex, except for a short time. As a result, I achieved the goal of getting 1 free stat every time I had sex 365 times attached to the Black Maitreya Art, and I got 1 free stat and put it into Willpower. The Abyss stat and the Willpower stat became similar to each other, so I put the Willpower stat to prevent side effects.</p>
-<p>I had sex with the Seiryutai members and Mimata Chieri again until dawn, and headed to Miyashiro, where St. Francisco Girls' Academy is located, on Monday morning.</p>
-<p>I was very busy having sex non-stop, but it was a pretty rewarding weekend because I got information about Anya-ji and stats.</p>
-<p>-------</p>
-<p>I'm attaching the illustrations below because I thought it would be weird if they came out one after another ㅎㅎ</p>
-<p>"I didn't do much in the battle just now, so please start with the leader."</p>
-<p>"Ryuta, you've got some useful information, so you'll reward me, right?"</p>
-<p>+Chieri-jjang after a long time</p>
-<p>Chieri made with Seol-hui's art style</p>
+<p>"Eve, you should have told me if there was an event like this~!"</p>
+<p>Otagi Yuka shouted to Eve as she went down to the basement. Eve wiggled her index finger from side to side at Otagi Yuka's shout and opened her mouth.</p>
+<p>"Even if Yuka is my friend, I can't tell you in advance because it's Diana-ssi's privacy~!"</p>
+<p>"But since I came, can I watch too?"</p>
+<p>Otagi Yuka had been friends with Eve since she was in the United States, so she knew about the existence of the hidden cameras in the Miyashi branch. Installing hidden cameras was a very unethical act for a love hotel owner to do, but it was a cute level for Otagi Yuka, who had been rolling around in the back alleys of the United States for more than a year.</p>
+<p>Besides, she didn't care even more because the purpose of distributing the hidden camera footage was for research, not for distribution. That's because she had a lot of things to worry about in the meantime.</p>
+<p>"No! I didn't get Diana-ssi's permission."</p>
+<p>"Hey, I can show Diana-ssi what I'm watching too."</p>
+<p>Otagi Yuka nonchalantly opened her mouth at Eve's words that she couldn't. The vampire clan had fewer men and more women, so they were polygamous, and because of their pleasure-seeking nature, Otagi Yuka didn't dislike Saionji Diana-ssi doing it with Taira Ryuta very much.</p>
+<p>Recently, she had experienced 2-on-1 sex with Sakagami Rena, so she became even more generous about Taira Ryuta's sex. Eve nodded as if she thought Otagi Yuka's words made sense.</p>
+<p>"Then you have to show it to Diana-ssi for sure?"</p>
+<p>"Of course~!"</p>
+<p>When Otagi Yuka answered, Eve snapped her fingers, and a hologram screen appeared, turning on the live sex screen of Taira Ryuta and Saionji Diana-ssi. Saionji Diana-ssi was already lying on the bed wearing only her underwear.</p>
+<p>The two became silent in an instant and began to focus on the hologram screen.</p>
+<p>-Heueuheung, Teacher-niim...♥</p>
+<p>-Haat, it's entered...! Heueueueut! It's strange, heut! It's strange, Teacher-niim...!</p>
+<p>-Te, Teacher-niim...! Is this, heueung, what it means to be connected? Haat! It's hot...!</p>
+<p>-Haeueueeut! Please cum...! Teacher's hot milk, haat! Please put it inside me♥</p>
+<p>Saionji Diana-ssi's moans filled the basement as if the sound system was amazing. The video didn't stop after the sex, and their conversation was heard, and Saionji Diana-ssi was talking about her scars.</p>
+<p>"Stop it now..."</p>
+<p>Otagi Yuka also thought it wasn't polite to listen to her friend's deep worries like this, so she was going to stop the playback here. However, she couldn't help but pause at the request that came out of Saionji Diana-ssi's mouth.</p>
+<p>-Even if I don't have cyber implants, can Teacher have se, sex with me...?</p>
+<p>Then are they going to have sex with only her torso left? What is she talking about? Otagi Yuka shouted inwardly and sat back down. Taira Ryuta pondered for a moment and then nodded.</p>
+<p>Then, after the two talked, Saionji Diana-ssi's cyber implants fell under the bed with a clanging sound.</p>
+<p>-Haeung, heueung...! Now I can't resist, so please do as you please, Teacher-niieeeem...!!</p>
+<p>-Haaaang! Please use me as an onaholeeeoot♥</p>
+<p>Otagi Yuka was speechless for a moment after seeing the next scene, and then spat out her final impression.</p>
+<p>"Ugh, this is too hardcore...!"</p>
+<p>"There's a world like this too!"</p>
+<p>Only Eve, without any prejudice, was smiling as she watched the two's onahole play.</p>
+<p>----------</p>
+<p>Nude Diana B-cut!</p>

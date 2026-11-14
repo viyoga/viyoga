@@ -5,80 +5,80 @@ weight = 1015
 chapter = 1015
 +++
 
-<p>a and before chapter check content erotic is please surroundings this with your</p>
-<p>"Did you put on your Clothes properly?"</p>
-<p>Yukiko asked me from outside the door. Normally, Yukiko wouldn't say anything about my attire, but today she was concerned about it.</p>
-<p>It was precisely the day we were going to visit my Father, Taira Saburo's Grave. Because I was on a mission, I couldn't visit Taira Saburo's grave on his death anniversary, so we were only going now that I had some leisure time.</p>
-<p>Honestly, I wouldn't care much even if I didn't visit the grave of my Father, whose face I didn't even know, but in Japanese society, which feels more conservative than Korea, and to a prestigious family, if I showed no concern for such matters at all, my evaluation might drop.</p>
-<p>So, when I had time, for justification and formality, it was better to go once. Besides, it wasn't even a distant place that would take several hours.</p>
-<p>"Yes. I just need to tie my necktie."</p>
-<p>For that reason, I was wearing a black suit and a black necktie today. Perhaps because my Size had grown a bit more, the suit I wore for ancestor worship a year ago didn't fit, so the suit I was wearing today was newly tailored.</p>
-<p>Perhaps because I had a custom suit made by the tailor Tosen Nobumichi called, it was quite comfortable to move in. Tosen Nobumichi, as befitting someone who had watched Taira Saburo since childhood, wore quite a complex Expression when I said I was going to visit Taira Saburo's grave. Based on sadness, mixed with Guilt and various Emotions, it was an Expression that could only be described as truly complex.</p>
-<p>Having finished tying my necktie, I went outside. Outside, as expected, Yukiko and Nagumo Sian, dressed in black-themed Clothes, were there.</p>
-<p>Nagumo Sian, who usually wore a Kimono, was wearing funeral Attire closer to Western dress, and Yukiko was wearing a black funeral Kimono. It felt as if their attire was reversed.</p>
-<p>Since both were beautiful Women, they looked good even in ancestor worship clothes, but I couldn't say that out loud.</p>
-<p>Yukiko, as Taira Saburo's widow, intended to visit the grave with me, and Nagumo Sian, while in Akita, had rarely been able to visit Taira Saburo's grave, so she intended to visit this time.</p>
-<p>Taira Saburo's grave was in the Taira Family grave behind the Taira Main family residence. So we decided to go together in the car Tsukiyo was driving.</p>
-<p>Like yesterday, I got into the passenger seat, and after Nagumo Sian and Yukiko got in the back, we drove towards the Taira Main family residence.</p>
-<p>Even though we were going to the Taira Main family residence for ancestor worship, the Atmosphere inside the car wasn't particularly tense.</p>
-<p>Because it had already been over a year since Taira Saburo died, there was no one to openly mourn, and in the first place, neither Tsukiyo nor I had ever seen Taira Saburo in person, so we couldn't mourn even if we wanted to.</p>
-<p>"Yukiko must be busy."</p>
-<p>"Hmm...? That's right. From the end of March, the first batch of new employees for the 54th year will be entering the Talent Development Center, you see."</p>
-<p>As Yukiko said, now was the Talent Development Center's busiest period in the first half of the year. Because the Taira Group's Newcomers were coming in and everyone was gathering at the Talent Development Center for Education, everyone at the Talent Development Center, with those Preparations, was incredibly busy.</p>
-<p>I was also quite busy during this Time while I was at the Talent Development Center. I had formed connections with the Newcomers then, and still exchanged messages occasionally. I should have a Meal with everyone sometime later. Since they were all talented Newcomers with excellent Abilities, they could also be utilized for Information gathering, so I should manage them.</p>
-<p>"Our Newcomers also decided to send personnel to the main branch of the Talent Development Center. And the Kitatohoku Branch was also closed."</p>
-<p>As Yukiko and I were talking about the Talent Development Center, Nagumo Sian interjected. Ah... I see. The head of the Talent Development Center's Kitatohoku Branch had been colluding with Kurotsukidoo and was assassinated by Mimata Chieri. It seemed that due to that incident, the Talent Development Center's Kitatohoku Branch was abolished.</p>
-<p>From the Talent Development Center's perspective, it was enough to educate Newcomers all at once, but operating a Branch would incur additional Labor Costs and management fees, so they probably abolished it under the pretext of the Assassination Accident.</p>
-<p>"Anyway, if nothing special happens, they're Children who will Work in Akita their whole lives, so at least during their new employee training, it would be good for them to receive Education in the metropolitan area."</p>
-<p>Taira Food's base was Akita Prefecture; unlike most of the Taira Group's Affiliate Companies, it did not relocate its Headquarters to Neo Tokyo. In Akita, Nagumo Sian was called the Grandmother and boasted power almost at the level of a Daimyo, so the Upper Layer probably judged that it was right to leave Taira Food in its place.</p>
-<p>Although Taira Food was an important Affiliate Company, it was not a Core industry of the Taira Group. Nevertheless, the Reason Nagumo Sian was highly evaluated was precisely because she had completely dominated one region.</p>
-<p>Like Nagumo Sian's Taira Food, there were several Affiliate Companies that held absolute Positions in each city or prefecture and thus did not relocate to Neo Tokyo; most of these were companies managed by non-faction Bosses who had built their Foundations over a long Time.</p>
-<p>As such, while talking about the Work of the Taira Talent Development Center, the Taira Main family residence came into view. Because we had contacted them in advance that we were going to visit Taira Saburo's grave, no one blocked our vehicle.</p>
-<p>"I'll be waiting~!"</p>
-<p>Tsukiyo said, waving her Hand. When I asked if she wouldn't be bored alone, she said she could practice the forms of Shinkaiyatsude while waiting.</p>
-<p>We, leaving Tsukiyo and the Parking Lot behind, headed towards the Taira Family grave behind the Main family Mansion. For reference, Taira Danjo and Taira Shizuku had external schedules.</p>
-<p>As we walked, in the distance, a Woman coming out of the Taira Family grave and descending was seen. Judging by her black Clothes and black veil, she too seemed to be coming from visiting someone's grave.</p>
-<p>Because of the veil, her Face wasn't clearly visible, but she didn't seem to be a Direct Lineage Taira I knew. The Taira Family grave also had Taira Ancestors buried there, so I had heard Stories that collateral Branches of Taira who had separated from the Direct Lineage, or People we didn't know well, would come to visit, so I figured she was probably one of them.</p>
-<p>The veiled Woman, seeing us heading towards the Taira Family grave, bowed her Head slightly to us, then passed us by.</p>
-<p>"She seems to be from a collateral Branch."</p>
-<p>"To wear a veil that completely obscures her Face, can she even see ahead?"</p>
-<p>Both Yukiko and Nagumo Sian seemed not to know her. Or, as Yukiko said, because of the thick veil, they might not have recognized her because they couldn't see her Face. However, I didn't Worry that she might be a Terrorist or a spy, because the Taira Family grave was close to the Main family residence, and I had heard that Status checks for visitors were thoroughly conducted.</p>
-<p>Of course, since she was just someone who passed us by, the Topic of the veiled Woman ended with that brief Conversation.</p>
-<p>Perhaps because it was a graveyard, it was a somewhat bleak Taira Family grave we entered. Having attended Taira Saburo's funeral and visited the grave once or twice, it wasn't an unfamiliar Place.</p>
-<p>Perhaps because the Taira Group had a separate grave caretaker, all the graves were well-maintained. Taira Saburo's grave was no exception.</p>
-<p>"Huh?!"</p>
-<p>In front of Taira Saburo's Tombstone, in the vase for Flowers, there were already Flowers. I thought it might have been the veiled Woman who had just passed by, but even though it was a bit late, it was a Date close to Taira Saburo's death anniversary, so I concluded that someone like us, who had missed the Timing, must have placed the Flowers.</p>
-<p>Normally, when visiting a grave in Japan, one cleans the soiled Tombstone and offers a joint Prayer, but perhaps because the grave caretakers managed it well, we formally poured clear Water over the Tombstone, concluding the Tombstone cleaning Procedure and offering a joint Prayer.</p>
-<p>In fact, I didn't have much to say to Taira Saburo. Looking at how he assigned Fujigasaki Rinka to me as a Sabu when I was young, or how he continuously sent me Money, it doesn't seem like he completely neglected me, but from the perspective of someone with a Blood connection, I knew that wasn't all, so I had nothing particular to say. Ultimately, only by directly giving Love and raising a Child does one truly feel like a Parent.</p>
-<p>「May you rest in peace. I will take Responsibility for Yukiko.」</p>
-<p>With slightly unfilial Thoughts, I finished the ancestor worship and unclasped my Hands. Yukiko and Nagumo Sian also seemed to have finished their ancestor worship, unclasped their Hands, and without a Word, looked at Taira Saburo's grave.</p>
-<p>"Let's go down now."</p>
-<p>"Let's do that."</p>
-<p>"Mm...."</p>
-<p>Having finished the ancestor worship, we left the Taira Family grave and headed back to the Parking Lot. Since Taira Danjo and Taira Shizuku were also absent, and there was nothing to do at the Taira Main family residence, we decided to return immediately. Both Nagumo Sian and Yukiko were in the Position of busy Bosses, so Time was gold.</p>
-<p>"Ryuta."</p>
-<p>"Yes?"</p>
-<p>On the way down after the ancestor worship, Yukiko called me. When I looked at Yukiko, she said to Nagumo Sian, "I'll just talk for a moment and then come down." Perhaps she had something she wanted to talk about with me alone.</p>
-<p>"I'll wait in the car."</p>
-<p>"Thank you, Nagumo-ssi."</p>
-<p>Nagumo Sian went down alone to the Parking Lot, and on the path to the Taira Family grave, only Yukiko and I remained.</p>
-<p>"At the general Meeting, I received this from your Grandmother."</p>
-<p>What Yukiko took out was a UCT. In the world before Possession, like a USB, it was a connector that connected to various Places, and there was probably some Data inside.</p>
-<p>"What is this?"</p>
-<p>"Just... some Information, and, shall I say, the recent Status of those who were part of the Saburo faction? Such Information is inside. And...."</p>
-<p>To my Question, Yukiko told me what she had found out. Especially, she told me about the People who had followed Taira Saburo.</p>
-<p>She told me about the 70 percent who went under Taira Kanna, the 20 percent who moved as unaffiliated, and among the 10 percent who left the Taira Family, she told me about the last 10 percent, who, according to Taira Saburo's last will, left the Taira Group, a shocking Story.</p>
-<p>"Perhaps your Grandmother, the Reason she handed this Information to me, is because she thought it might be good to persuade those who left Taira once."</p>
-<p>"Other Successors, you said they left because they couldn't be tolerated?"</p>
-<p>"Perhaps it's because she knows you have various forces outside of Taira?"</p>
-<p>Ultimately, it seemed she was telling me to create an external Taira Organization and accept the former Saburo faction. Well, the ones who left the Taira Family, to the extent that the other Successors couldn't tolerate them, must have caused them Harm, so their Abilities must be good. Attempting to recruit them once didn't seem like a bad idea.</p>
-<p>With that, having finished talking with Yukiko, we returned to the Vehicle where Tsukiyo and Nagumo Sian were waiting. And immediately, leaving the Taira Main family residence, we dropped Yukiko off at the Talent Development Center and Nagumo Sian at the Taira Food Neo Tokyo Branch.</p>
-<p>Just as Tsukiyo and I were alone, my Phone buzzed. Checking who it was, it was Eve.</p>
-<p>**-EVE: You need to come to New York as soon as possible.**</p>
-<p>Yukiko, Sian Ancestor Worship Attire</p>
-<p>Yukiko</p>
-<p>Sian~!</p>
-<p>Arisu at the beach, requested by TheDreaming-nim. 1. Surprised Expression 2. Running</p>
-<p>1.</p>
-<p>2.</p>
-<p>As expected of a phantom thief, she runs well hehe.</p>
+<p>One day before the auction, Contact came from Diana Lich.</p>
+<p>-Perhaps Dante-ssi isn't trying to participate in that auction, are you?</p>
+<p>As expected, she seemed to know about the auction. Indeed, given the Federal Superpower Management Department's intelligence capabilities, and the fact that the employees in this Safe House would hear everything we discuss in our meetings, it would be difficult for them not to know about the Shard of Omniscience auction. She's probably asking for confirmation, even though she already knows I'm participating.</p>
+<p>"I am participating. You know the Reason the Black Sage came to New York. To save the fake Black Knight, that is, my Master's Master, there's no other way."</p>
+<p>-Haa.... It might even be for the best. So many targets of caution are gathering in New York, so it's reassuring to have the real Black Knight there, isn't it? You're not planning to cause any trouble, are you?</p>
+<p>At my Words, Diana Lich, who had been sighing, seemed to be forcing herself to think positively, saying it was Fortunate that I was there. By the way, so many targets of caution.... I should ask her to make a list of who's coming to New York later.</p>
+<p>"Of course, I have no intention of causing any major trouble."</p>
+<p>-And small trouble?</p>
+<p>"There's no other way, you know. Clashing with the Black Sage...."</p>
+<p>-That's true, but...</p>
+<p>Diana Lich also seemed a little worried, perhaps because she was convinced that a battle would occur within her own country.</p>
+<p>"More than that, there's no trace of Behemoth and Whisper, the Reason the Superpower Management Department called me, is there? Did they even come to New York?"</p>
+<p>While I was at it, having received Contact from Diana Lich, I asked about the original request Goal. In fact, if they hadn't called me to the USA because of Behemoth and Whisper, I wouldn't have had any reason to participate in this auction.</p>
+<p>Since I was already in the USA, I was just lending my strength to the Sajo Rescue Team; if I had heard about the Shard of Omniscience while in Japan, I would likely have just shrugged it off, thinking, 'What's that?'</p>
+<p>-I apologize for that. But since they haven't returned to Famine's side, they might have already infiltrated New York, or perhaps they were deployed to another Operation because the Black Knight didn't appear. Still, since it's not certain, I'll continue to provide Information.</p>
+<p>Famine's Organization, Superior, had Superhumans with unimaginable Abilities, former Soldiers, and informants, so their Ability and know-how to evade government Gaze were considerable, making it difficult even for the Federal Superpower Management Department to find them.</p>
+<p>"First of all, if any Information about Behemoth or Whisper comes out, please tell me immediately. I also need to handle it quickly and do my Work."</p>
+<p>-I will. Enjoy the auction, Dante.</p>
+<p>After finishing the Conversation with Diana Lich like that, I began Preparation for tomorrow's auction.</p>
+<p>As I ran around to find Behemoth and Whisper, who were not showing any Rhythmic Motion, and to execute the Operation to Attack the Black Sage at this Shard of Omniscience auction, and prepared for Gensuke's Attack in Japan, the auction day approached before I knew it.</p>
+<p>In the end, even by this Morning, the day of the auction, no Traces of Behemoth and Whisper were found. I had a thought: 'Did they come to catch the Black Knight, then heard the Black Knight disappeared, and are now slowly making their way here while exploring good restaurants?'</p>
+<p>I received Contact that the auction Place was not the same one where I had been with Arisu and her Mother and daughter when I came to New York before, but a different one.</p>
+<p>Before, I didn't remember the exact Position, but if they had rented out a building, today's auction would be held on a ship. They said they had secured a very huge Cruise ship.</p>
+<p>When I heard the Reason for holding it on a ship from Eve, she said that Pressure had come from the USA government. Apparently, since something seemed likely to happen because of the Shard of Omniscience, they judged that holding the auction in the middle of the Sea would be better than holding it in downtown New York, and decided to do so, she explained.</p>
+<p>By the way, the USA government isn't even thinking of banning it. Is AmSang's notoriety that high? Or are they planning to use this incident as an opportunity to identify or arrest the Magicians and Sorcerers who are entering the USA as targets of caution?</p>
+<p>Of course, they wouldn't hold it in a very distant Sea, but decided to float the ship in the Long Island Sound, which is between Long Island, New York, and the State of Connecticut.</p>
+<p>To this extent, it was almost like holding the auction in New York itself, just with a ship floated there. Although there were no private houses or buildings in the Surroundings, as per the USA government's request.</p>
+<p>On the Morning of the auction day, approximately 18 hours before the auction, everyone except me was glaring at each other around the conference room's round table.</p>
+<p>"I want to go to that auction~!" "I was curious about the auction." "I want to go to the auction house with Ryuta-jji too~!!" "Teacher-nim! I can do well!"</p>
+<p>Inevitably, the Members guarding the auction house and its Surroundings were divided, and as the auction was held on a ship, the number of people who could enter the auction house was Limited, so they were fighting, saying they wanted to go to the auction house. For reference, the Gwonmaeng People, who had no particular Interest in the auction and were simply following our Operation, were resting now.</p>
+<p>First, we had to decide on the personnel entering the auction so that we could form a team to wait around the port. Since only a few hours remained, we had to decide quickly to prepare.</p>
+<p>"Everyone, calm down.... Those who can't go today, I'll take you to the auction in Japan, so you don't have to fight so much."</p>
+<p>When I stepped forward and suggested we go to the future auction in Japan together, they calmed down a little.</p>
+<p>"And since we're going on a mission today, if you were thinking of a date, it would be better to go later." "I can wait a little." "I can't be with Investor-nim often, so I want to go today...."</p>
+<p>At my Words, the Members were divided into those who felt they could pass this time and participate later, and those who felt they had to go this time since they couldn't be with me normally.</p>
+<p>"Osu~! I got a separate spot!"</p>
+<p>Just then, Kujo Kina, who had gone to make a Phone Call somewhere in the Morning, entered the place where we were meeting, excitedly. As expected, perhaps because she was the Young Lady of the Kujo Family, she seemed to have secured a spot.</p>
+<p>Here, "one spot" felt like an admission ticket for 4 people including the Party/Group, and since I had only gotten one spot from Eve, it seemed the Kujo Group had exerted some power.</p>
+<p>Of course, I could get more spots if I wanted, but what was important to us was not the Shard of Omniscience auction itself, but finding the Black Knight, so waiting at the Points of each port was more important than participating in the auction.</p>
+<p>Still, now that Kujo Kina also has a spot, there's some flexibility, so if anyone wants to participate in the auction, going with Kujo Kina might be a good idea.</p>
+<p>Come to think of it, Kujo Kina's side also only had one spot, including her Master/teacher, the Yoda old man, and the Bodyguard assigned by the Kujo Family.</p>
+<p>"Ah, rather than us fighting amongst ourselves, Ryuta-jji, you choose!" "Yes, it would be better if Teacher-nim chose."</p>
+<p>In the end, perhaps they thought it would be better if I chose rather than them talking amongst themselves, so everyone deferred the Choice to me. They seemed tired from bickering with each other.</p>
+<p>"A battle probably won't break out on the auction ship, so I'll choose regardless of Combat power."</p>
+<p>Everyone was thinking that the expected time of battle would be after the auction ended and the ship docked at the port, so they decided to choose auction Participants based on their Ability to grasp The Situation, rather than their Combat power.</p>
+<p>If I think that way, it might be better for those with strong Combat power to be on the waiting team, so perhaps those with lower Combat power would be better?</p>
+<p>"First, I'll choose Sawayanagi Azuma-ssi."</p>
+<p>The first person I picked was Sawayanagi Azuma. After all, Sawayanagi Azuma has the superpower of precognition, so I chose her because I thought I could get helpful advice if some unexpected situation occurred inside the ship.</p>
+<p>Of course, Sawayanagi Azuma isn't a high-level precognition Ability User who gets precognition whenever she wants, but still, in The Situation with many turning points like this, she gets precognition with a quite high Probability, so it seemed like I could receive Help this time.</p>
+<p>"Thank you, Investor-nim~! I've never been to an auction before!"</p>
+<p>Watching Sawayanagi Azuma's excited Appearance, I decided to choose the next Member to participate in the auction.</p>
+<p>"Next is... Lianna Holden." "Yeah! As expected, it's Honey~!"</p>
+<p>Lianna Holden was a Telepathy Ability User, so she could have a Conversation even without speaking, and she could also read the thoughts of close People, so it seemed like she could be used usefully in the auction.</p>
+<p>Perhaps she knew through her Ability that I would choose her, as Lianna Holden immediately rejoiced and hugged me as soon as I spoke.</p>
+<p>While enjoying Lianna Holden's soft, pressed breast and fragrant shampoo Smell as she hugged me, I chose the next Member.</p>
+<p>"The next Member will be Kurayamada-ssi."</p>
+<p>Kurayamada Kirie pointed to Oneself with her finger, as if she hadn't expected to be chosen. As soon as I nodded my Head, she smiled, seemingly in a good Mood, but as soon as everyone else looked at her, she returned to her usual Cold Beauty Expression.</p>
+<p>Kurayamada Kirie was chosen because if anything happened, she could provide Help in the Usage of force, and also because she could give weapons stored in Agonggan to Sawayanagi Azuma and Lianna Holden, whose Combat power was lowered because they couldn't carry weapons.</p>
+<p>"If you're asking what standard I used to choose everyone, first, rather than Combat power...."</p>
+<p>Because there were some Members who seemed to have Dissatisfaction, I explained the Reasons I had thought of, one by one. Perhaps my thoughts made sense in their own way, as everyone nodded their Heads and understood.</p>
+<p>"Instead, when we return to Japan, you have to take all of us to the auction! You understand, Ryuta-jji?" "I understand."</p>
+<p>Of course, everyone had a schedule, so I wouldn't be able to take them all at once, but still, taking them on a date as well didn't seem like a bad idea.</p>
+<p>"Can I take Rieko?"</p>
+<p>Kujo Kina, who had seen all my Choices, spoke. After all, it seemed to be Seiwa Rieko's Turn for the Last spot. Were they close? It didn't seem like they had any special contact points, though.</p>
+<p>"Yeah, but were you two close?"</p>
+<p>"Ah, actually...."</p>
+<p>When I asked Kujo Kina directly, she said that the three who came on this USA Travel for Training as well were Kujo Kina, Seiwa Rieko, and Genbaki, and among them, the two Women, Kujo Kina and Seiwa Rieko, became quite close while struggling together.</p>
+<p>As expected, it seemed they became close by struggling together. Although Seiwa Rieko's Combat power had risen in her own way, this New York battle seemed like it would be quite bloody, so it might be better for her to be on the auction team instead.</p>
+<p>Because if I took a newbie to the battle Scene for no reason, she might return as a Corpse.</p>
+<p>"That would be good too. Rieko, go enjoy yourself."</p>
+<p>I also consented, and Otagi Yuka, who could be called Rieko's mom(?) as the Clan Lord, nodded her Head, so Seiwa Rieko's participation in the auction was also confirmed.</p>
+<p>"Then, shall we deploy our team to the port-side Points now?"</p>
+<p>In the end, what was important was not the auction itself, but the struggle for the Shard of Omniscience that would occur after the auction ended. Although we would be aiming for something other than the Shard of Omniscience, we couldn't help but get caught up in this struggle for the Shard of Omniscience.</p>
+<p>Therefore, how to deploy the remaining Combatants was more important than selecting the personnel for auction participation.</p>
+<p>Requested by Gojoy-nim: Gokago Hanako receiving a Phone Call Illustration and a recent status Illustration~! Phone Call~! Recent Status~! Currently, Gokago Hanako, a third-year student at Edo University, is aiming to advance to law school to become a legal professional~! For reference, she is still dating her boyfriend dd.</p>
+<p>Requested by MidNightSKY-nim: Lisa and Shii deliciously eating Steak bought by Ryuta-jji~! Lisa~! Shii~!</p>
+<p>Requested by TheDreaming-nim: Shirtless Alik on the beach~! Drunk Appearance, stretching Appearance~! Drunken Alik~! Stretching Alik~!</p>

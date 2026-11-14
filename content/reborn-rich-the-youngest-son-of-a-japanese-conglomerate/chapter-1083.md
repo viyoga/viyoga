@@ -5,70 +5,80 @@ weight = 1083
 chapter = 1083
 +++
 
-<p>The moment Taira Ryuta ejaculated, Fujigasaki Rinka's Field of Vision went white, as if she were looking directly at the Sun. It was due to the overwhelming pleasure. Fujigasaki Rinka felt a thrill at the pleasure that made her feel like she was turning into an idiot.</p>
-<p>But at the same time, she felt Taira Ryuta's Yang Energy pouring into her, repairing her broken vessel. She even felt some of the parts torn away by Takakusaki Gengo being restored.</p>
-<p>Of course, it wasn't a small wound that could be healed with a single Ejaculation, but the fact that it was being restored at all was important.</p>
-<p>Restoring the broken vessel was difficult enough, but she had thought it was almost impossible to restore the maximum capacity of the vessel that had been taken away by Takakusaki Gengo, but to have it restored by her Disciple's cock.... It was simply amazing.</p>
-<p>'If that's the case, wouldn't it be even more restored if we keep going...?'</p>
-<p>If she could repair her broken vessel while doing this pleasurable thing, it would be killing two birds with one stone. Fujigasaki Rinka's desire for sex increased even more.</p>
-<p>I had thought that Fujigasaki Rinka, after I ejaculated, would be dazed and unable to recover from the Climax for a while, but she regained her senses much faster than I had expected.</p>
-<p>Unlike ordinary women, she seemed to reach Climax quickly due to her incredibly Sensitive Body, but she quickly recovered from the Aftermath of Climax due to her trained Body and Flesh. That means....</p>
-<p>「Disciple...! I was scared before we started, but it feels good, and it seems like my Internal Injury is really recovering! Let's do it again!」</p>
-<p>The Appearance of being embarrassed and resisting just a moment ago was gone, and she had returned to her usual Sabu self. She seemed quite happy that her Internal Injury was really being healed by having sex, just as I had said.</p>
-<p>Besides, she had been grumbling about not wanting to go to the hospital. It seemed she was still worried about her Body.</p>
-<p>After that, Sabu completely changed to being proactive. Sabu, who even threw off her panties and rushed at me, asked me about sexual positions as if learning martial arts moves. Naturally, Sabu, a genius of martial arts, also had an incredible Talent for sex.</p>
-<p>「Haaht! Haaht! Haa-hang! This♥, Heueuung! Is this right, Haaang?」</p>
-<p>It was Sabu, shaking her waist flamboyantly above me, asking if what she was doing was right. I had just told her to put her cock in and move it on top of me. She was making my cock feel good with her incredible waist and Buttocks Movements.</p>
-<p>「Kheu, good...」</p>
-<p>「How about this?」</p>
-<p>Even though she had asked me a Question, she didn't even listen to my Answer, and after putting her arms, which had been supporting her on my chest, behind her Head, she began to shake her waist lightly above me as if dancing the Zero Two dance.</p>
-<p>Of course, since her hands weren't on my chest, the range of motion of her waist was widened, so she would pull her cock out long enough to almost rest on the glans, then insert it all the way to the end, or she would put her cock Inside and then shake her waist wildly so that my cock would rub every corner of her Pussy inside.</p>
-<p>「Haaht, this...! Heueut! Feels good, Haaang...! Heueut! Disciple's cock♥ Heueut!!」</p>
-<p>「I also, Sabu's Pussy, kheueut...! Feels good!」</p>
-<p>Of course, it was only natural that the pleasure would be immense if she moved her waist so flamboyantly. Of course, if I did it too violently, the corpus cavernosum of my cock could break, but my Resistance Stats had broken through the Limit, so there was no way my cock would break no matter how rough the sex was. It might be a bit of a Problem for other men, though.</p>
-<p>「Hwaaa-haang...! I'm going, I'm going, I'm cumming♥」</p>
-<p>Fujigasaki Rinka, who had been shaking her waist for a while, put her cock all the way to the end of her Pussy, then trembled and reached Climax. But she soon woke up from the Afterglow of Climax and looked at me.</p>
-<p>「Haa...! Haa.... Aren't you cumming?」</p>
-<p>「It's not like I'm linked to Sabu's Climax, and reaching Climax together is also a Skill in its own way, you know? And men can last a little longer after cumming once.」</p>
-<p>「Aha...!」</p>
-<p>Fujigasaki Rinka, listening to my Words like an enthusiastic Student, nodded her Head with an Expression that said, 'I see.' A woman who is a genius at Body Movement and has passion will have her sex skills (?) increasing at an incredible speed.</p>
-<p>「Then this time, let's try the position we did earlier. I think I'll be able to move while doing it?」</p>
-<p>The position we did earlier was probably the missionary position, but she was saying she could move in that position? I was curious about Sabu's Words, so I nodded my Head as if to say I understood.</p>
-<p>By the way, whether it's the cowgirl position or her saying she'll try moving in the missionary position, does she prefer to move herself rather than just being fucked?</p>
-<p>「Unlike before, I'm going to raise the height a little like this....」</p>
-<p>Fujigasaki Rinka was teaching me the position, as if she had thought of something on her own. I raised my thighs slightly as Sabu told me to, raising the position of my cock. Then, Fujigasaki Rinka raised her waist and inserted it into my cock.</p>
-<p>Ah, it seemed she was trying to move by raising her waist because it was difficult to move in the missionary position while lying down completely. It was a position that ordinary women would fail after moving their waist a few times, but it was a technique that Sabu could do sufficiently with her incredible core Strength and muscular Endurance.</p>
-<p>「Heueuung♥ It's full inside...! Ah, I'll try it now.」</p>
-<p>「Yes.」</p>
-<p>Fujigasaki Rinka, who had a happy Expression just from inserting her cock, began to move her waist at the same time as saying, 'I'll try it now.'</p>
-<p>Ooh...! It works! I wasn't showing any Movement, but Sabu was moving her waist and starting the piston Movement. Of course, it wasn't the flamboyant Feeling of the cowgirl position, but it was amazing that a woman was moving this much in the missionary position.</p>
-<p>Of course, it felt good, and Sabu shaking her waist and struggling under me filled me with some kind of mental Satisfaction.</p>
-<p>「Haaht...! Heueung! Euh-heung...! Does it feel good...? Heueung♥」</p>
-<p>Fujigasaki Rinka was moving her waist while keeping almost only her Shoulder Part on the bed, and she was asking if I felt good.</p>
-<p>Perhaps Fujigasaki Rinka also realized that her Internal Injury was healing much better when I ejaculated, so she seemed to be paying attention to my Mood in order to make me ejaculate.</p>
-<p>Or maybe she just knew that the pleasure the other Person feels during sex is also important because of my Answer earlier.</p>
-<p>「Yes...! Sabu's Pussy...!」</p>
-<p>「Heueung...! Don't say♥ such strange Words...! Haaht! Please don't say it...! Haaht!」</p>
-<p>It seemed like she was a little bothered by the Words 'Sabu's Pussy,' but since her waist was moving faster and her moaning sound was getting sweeter when she heard those Words, it seemed like she wanted me to say more.</p>
-<p>「How can I not say that Sabu's Pussy feels good? Then please tell me other Words that are Sabu-like.」</p>
-<p>「Haaht! Heueung! Where did you learn♥ such heueung...! Erotic Words...! Heueut! Heueut! Haa-hang♥」</p>
-<p>I don't think it's something you should say while shaking your Pelvis and waist. But with these Erotic Conversations and Sabu's increasingly skilled Movements, I was getting a Feeling of Ejaculation.</p>
-<p>I wanted to grab Sabu's waist and shake her wildly, but I decided to stay still this time because this sex was entrusted to Sabu. Staying still was also quite enjoyable, though.</p>
-<p>「Sabu, I think I'm about to cum.」</p>
-<p>「Really? Euh-heut...! Just wait a little, heueu-hang♥」</p>
-<p>It seemed like Sabu was also about to reach Climax, as she was telling me to wait a little.</p>
-<p>Cheolssuck! Cheolssuck! Cheolssuck!! Sabu's Movements became faster, and Sabu's moaning sound also became louder and louder. When her moaning sound became almost like a scream, Sabu raised her waist as much as possible and pressed her Pussy against my Lower Abdomen. I also grabbed Sabu's Buttocks and pulled her, attaching my cock as much as possible.</p>
-<p>At the same time, my glans pressed down on Sabu's cervix, and Fujigasaki Rinka and I reached Climax almost simultaneously.</p>
-<p>「Kheueut!! I'm going to cum inside again, Sabu!」</p>
-<p>「Haaa-haang!! Ryuta's white, heueut! treatment fluid, heueut! Fill♥ me up, haaht! Prescribe it to meee!!!」</p>
-<p>Byu-ut! Byu-ut! Byuu-uut!!</p>
-<p>As Sabu wanted, my hot Semen, full of treatment effects, began to fill Sabu's Uterus.</p>
-<p>Fujigasaki Rinka was still holding up her waist as if she wouldn't waste a single drop of Semen even though she had reached Climax. It was because the Semen would flow out due to the angle if she lowered her waist.</p>
-<p>「Let's do it one more time!」</p>
-<p>Those were the Words Sabu said as soon as her Eyes, which had been rolling back and lost in the Aftermath of Climax for a while, returned to normal and she looked at me. No matter how much it was me, it was a little difficult to have three consecutive rounds of sex without going through Post-Nut Clarity.</p>
-<p>Of course, it would be fine if it was just ordinary sex, but the Sacred Pillar Trait consumed a lot of Stamina in addition to the basic Stamina Consumption, and the Consumption of Stamina and Virility varied depending on the condition of the Person being treated. In particular, Sabu's Internal Injury was so severe that I could feel my Stamina dropping drastically every time I ejaculated.</p>
-<p>「Let's eat something first. Ordinary sex is fine even ten times, but treatment sex consumes a lot of my Stamina and Virility.」</p>
-<p>「Ah, is that so? Then let's order some room service. I'm hungry too because I kept moving.」</p>
-<p>Sabu wasn't saying let's just have sex, as if treatment was more important than sex. Or maybe she was taking care of me because I said I had consumed Stamina.</p>
-<p>That's how we ended up ordering a lot of room service and spending our time repeating sex and meals for Stamina replenishment until morning.</p>
-<p>Rinka B-cut~!</p>
+<p>and chapter check contains erotic please surroundings this your</p>
+<p>Just after finishing 2-on-1 Sex with Kiyona Hori and Mari, and while considering whether to do it again, the sound of a vehicle was heard from outside, so I sent the two dazed Women to the first-floor Shower Room, and I also showered in the Shower Room in my room.</p>
+<p>After a quick Shower, I came down to the first floor, and the surfing Members, who had returned after tidying up their surfing equipment, were noisily entering Inside the House.</p>
+<p>"Wow~! Ryuta-cchi! Surfing was fun, let's do it together next Time!"</p>
+<p>Seizawa Shii, who had returned after finishing surfing, kept saying surfing was fun and was excited. The others also seemed to agree, all with joyful, flushed Expressions. At her Words to do it together next Time, I nodded my Head and welcomed everyone.</p>
+<p>Even Maya Reed, who had initially been awkward and hesitant among people she wasn't close with, was smiling quite genuinely, seemingly having enjoyed herself. Seeing her happily conversing with Lianna Holden and Sawayanagi Seari, it seemed Superhumans had some kind of connection among themselves. Still, it's Fortunate that she made some friends.</p>
+<p>"We'll rest a bit, then have Dinner. Since the Administrator-ssi said he's been preparing barbecue since earlier, we don't need to prepare anything separately."</p>
+<p>Since the caretaker, from the moment we arrived, had placed meat seasoned with rub into the barbecue Machine, it would have been slowly cooking over charcoal for several hours.</p>
+<p>Since I had also come to this Mansion last year, the caretaker knew my meal portions well and said he had prepared a lot, so it seemed I could sufficiently replenish the protein I had consumed while having Sex with the Kiyona Sisters today.</p>
+<p>"Barbecue? That sounds delicious...! Then I can Shower, rest a bit, and eat."</p>
+<p>Clink.</p>
+<p>As Naruse Shiyo's Eyes sparkled, saying it sounded delicious upon hearing about the barbecue, the first-floor Front Door opened, and Shimokawabe Airen, dripping Sweat, entered.</p>
+<p>I thought she was Training in the Underground, but seeing her leggings attire and the Sweat she was dripping, it seemed she had come back from a run outside.</p>
+<p>"Did you go outside?"</p>
+<p>"Ah, yes...! I just ran a bit."</p>
+<p>At my Question, Shimokawabe Airen subtly averted her Gaze and answered. Hmm...? Why is she avoiding my Eyes?</p>
+<p>Thinking perhaps her pants zipper was open, I looked down there, but it wasn't at all. They were just training shorts, so there was no zipper. It seemed she was probably a bit embarrassed because she had sweated quite a lot from running.</p>
+<p>"Sabu, is the running course here good?"</p>
+<p>"Yes, it goes up a Hill, so you can see the Sea well, and it has an open, refreshing Feeling, so it was quite good."</p>
+<p>At Naruse Shiyo's Question, Shimokawabe Airen nodded her Head. If it's that good, I should try running there tomorrow Morning too.</p>
+<p>"Everyone, please try the beverage we developed~!"</p>
+<p>The Kiyona Sisters, who seemed to have finished their Shower and were now perfectly fine (though a slight Blush from Sex still remained), came carrying Bottles and cups full of Kiyona Special and said.</p>
+<p>Shimokawabe Airen, who suddenly blushed upon seeing the Kiyona Sisters, and Seiwa Rieko, who was coming down from the second floor, perhaps having just heard everyone arrive, also had a red Face.</p>
+<p>What is it? Is having a red Face a trend or something? Seiwa Rieko, who had only been Inside the House, had damp Hair as if she had just showered. Why did she Shower at such an ambiguous Time? Everyone seemed uninterested in the Question I was feeling, only showing Interest in the Kiyona Sisters' Kiyona Special.</p>
+<p>"I was thirsty anyway, so this is perfect~!"</p>
+<p>"Hori-cchi, Mari-cchi developed it? Give it here. I'm good at evaluating these kinds of things, you know~!"</p>
+<p>"It's refreshing~!"</p>
+<p>Everyone, having surfed for several hours, was making a fuss, drinking Kiyona Special and saying it was delicious. Given the good Evaluation, it seemed likely they would release it as a new Menu item when they returned to Japan. Surely they wouldn't put cobra Blood in it, or serve it like that in a Japanese Maid Cafe, right?</p>
+<p>When I looked with a slightly worried Expression, Kiyona Hori chuckled 'fufut' and shook her Head.</p>
+<p>As a result of my tasting, it was a Potency drug so effective that it made my Face feel hot, so I thought I might have to deal with the Women who drank Kiyona Special tonight, but it seemed the Kiyona Sisters also had some thought, as they didn't put cobra Blood in it.</p>
+<p>Of course, some of the Women here, even without drinking a Potency drug, would probably come to my Bedroom tonight.</p>
+<p>"Damn it!"</p>
+<p>Taira Gensuke, who had returned to Brazil from Japan, slammed his Desk. The Situation was growing bigger than he had thought.</p>
+<p>Of course, he didn't Regret extorting the Mithril from that idiotic Taira Ryuta Guy, but the Problem was that Taira Kitsumasa had actually died.</p>
+<p>Of course, when he hired the Assassin, he had wished that Kitsumasa Guy would die, but he thought one Assassin wouldn't be able to kill Taira Kitsumasa, who was under Taira's Protection.</p>
+<p>He would have been satisfied if he was just slightly injured or terrified that Taira Kitsumasa Guy, but when Taira Kitsumasa Guy really died, Taira Gensuke became Fearful of the current Situation.</p>
+<p>Taira Jiro, Taira Kitsumasa's Father, or Taira Danjo, who had lost a Blood relative this year as well as last year, he wondered if they might discover his Traces.</p>
+<p>Of course, he had been careful not to leave any Traces, but there were many Ability Users in the World whom even Taira Gensuke didn't know, so he wondered what he would do if they found him.</p>
+<p>While he was worrying like that, Contact came from his Father. Taira Gensuke hesitated for a moment, but then answered the Phone Call.</p>
+<p>"Yes, Father."</p>
+<p>-Did you do it?</p>
+<p>Taira Ichiro asked bluntly. Taira Gensuke was Silent for a moment. He was worrying whether to be honest with his Father or to say he didn't do it, but then Taira Ichiro's Voice was heard again immediately.</p>
+<p>-No, don't Answer. Let's talk about the Mithril you stole first, rather than the Kitsumasa Matter.</p>
+<p>Taira Ichiro seemed to have no Interest in Taira Kitsumasa's Death. Or perhaps he had the conviction that it was Taira Gensuke's deed.</p>
+<p>It seemed Taira Gensuke's theft of the Mithril had already been caught by Taira Ichiro's Information network. Taira Gensuke also guessed this. Since he used Taira Bussan's ship to bring the Mithril to Brazil, he couldn't help but be caught by Taira Ichiro, the Owner of Taira Bussan.</p>
+<p>"That Ryuta Guy was a bit arrogant, so I took the Mithril. That's not a bad thing, is it?"</p>
+<p>Taira Gensuke spoke to his Father in a Way of Speaking that sought Praise. He spoke boldly because it wasn't something he had done to Taira's Successor Group, like Taira Jiro or Taira Kokoro.</p>
+<p>-Huh...! That's not Ryuta's Mithril.</p>
+<p>"What?!"</p>
+<p>Taira Gensuke unconsciously asked his Father again. Not Taira Ryuta's Mithril? Then where did that hundred-plus tons of Mithril come from?</p>
+<p>-You stole the Mithril that Jiro purchased from Ryuta. That warehouse seemed to be Jiro Guy's temporary Secret warehouse. Of course, it was a good deed, but given the current Situation, it has become a dangerous state. Don't come to Japan for a while. Because he might take out his Anger over Kitsumasa's Death on you.</p>
+<p>No matter how much Money he earned overseas, the Taira Group's stronghold was Japan. Even if it was temporary and dangerous, being told not to come to Japan meant moving away from the center of the Taira Group.</p>
+<p>He had recently come to Japan to be recognized for his Achievements by Taira Danjo. If he didn't come to Japan, it meant he wouldn't receive the Reward, no matter how many Achievements he made.</p>
+<p>"Th-then, for Kitsumasa's funeral...?"</p>
+<p>-You'll have to make an Excuse for not being able to come to Japan. You should be able to handle that much yourself.</p>
+<p>As Taira Ichiro said, since Taira Gensuke was in Brazil, far from Japan, he would be able to make sufficient Excuses. He could intentionally cause friction with another company, or get a false medical certificate from a Hospital and claim to be sick.</p>
+<p>"Understood...."</p>
+<p>-What I've said so far was as a Father, and from now on, I will speak as the Chief of the Taira Successor Pabeol.</p>
+<p>The Appearance of worrying about his child's Safety just moments ago was gone without a trace, and it was Taira Ichiro speaking in a cold Voice.</p>
+<p>-Even though I clearly told you not to provoke Taira Ryuta, you disobeyed that Command. Disobeying my Words is a greater Mistake than the accident you caused. Your Mother (archaic/animalistic) cried and begged me to spare you, which is why I'm leaving you in Brazil; otherwise, I would have stripped you of your position as Taira Bussan's South American Branch Manager and demoted you to a cleaner, cleaning Taira Bussan's buildings.</p>
+<p>"Ah, Father...!"</p>
+<p>-If you weren't my Son, I would have killed you or thrown you to that Jiro Guy. Be Fortunate that you're even a cleaner.</p>
+<p>At Taira Ichiro's abusive Words, Taira Gensuke bit his Lips. Taira Ichiro was a Person who valued his Commands above all else. He had a Personality like a cold-blooded animal, capable of abandoning even his own Son if he didn't follow his Commands.</p>
+<p>When he even brought up his Mother, Taira Camila, and spoke of potentially taking away his current Seat, a chill ran down Taira Gensuke's Spine.</p>
+<p>Of course, in Brazil, many followed Taira Gensuke himself, and his maternal Family was also a Family with considerable Power, but if his Business Card as Taira Bussan's South American Branch Manager was taken away, he would have to give up a significant portion of what he currently enjoyed. Even his maternal Family would treat him differently than now.</p>
+<p>-This is the last opportunity I'm giving you. Think carefully while you can't return to Japan.</p>
+<p>Clink.</p>
+<p>Taira Ichiro hung up the Phone Call without even waiting for Taira Gensuke's Answer. Taira Gensuke, who had been holding and staring at the empty phone with no one to converse with for a while, put the phone in his pocket.</p>
+<p>"Hmph.... I can't live like this forever. What's important is Power. I'll gather as much influence as possible in Brazil. So Father can't ignore me.... So Father can never treat me like this again...."</p>
+<p>Taira Gensuke quietly muttered. But the content of his Words was completely different from the Reaction Taira Ichiro desired.</p>
+<p>Requested by Gojoy-nim: 1. Yukiko running to the accident Scene and worrying, and 2. Yukiko eating Breakfast~!</p>
+<p>1.</p>
+<p>2.</p>
+<p>The meal was decided to be a Sandwich hehe.</p>
+<p>Requested by TheDreaming-nim: Herta Vogel 1. Being licked in the Armpit 2. Breast Milk Ejaculation</p>
+<p>1.</p>
+<p>2.</p>

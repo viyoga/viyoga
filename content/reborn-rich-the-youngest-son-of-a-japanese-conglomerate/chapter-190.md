@@ -5,88 +5,76 @@ weight = 190
 chapter = 190
 +++
 
-<p>As Jin Yong-tae got out of the car, Han Yu-gyeong's worried expression suddenly turned cold. Even in death, Park Sang-beom was being a nuisance. Han Yu-gyeong immediately made a secure call to I Yeon-ju. It was a call using a specific app to prevent hacking groups from intercepting the signal or eavesdropping on the communications company.</p>
-<p>-Yes, Chairman-nim.</p>
-<p>"You know that bomb we got from BS Defender?"</p>
-<p>-Yes.</p>
-<p>"I need you to detonate that bomb at the address I'm about to give you."</p>
-<p>At Han Yu-gyeong's instruction, I Yeon-ju was silent for a moment. Detonating a bomb in a building... Wasn't this no different than a bomb terror attack?</p>
-<p>-...Could you explain in more detail?</p>
-<p>"Remember the bloodstains near the main gate of Base Tech earlier? Those bloodstains belong to Park Sang-beom."</p>
-<p>-Oh my god...! Isn't Park Sang-beom the grandson of the BS Group Chairman?</p>
-<p>"We were attacked, so we had no choice. We couldn't just let ourselves die, we had to retaliate. The body is taken care of, so don't worry... Our data should be on a computer at the address I'm giving you. Erase it and blow up the building. If a BS Defender bomb is found at the explosion site, it could have a big impact."</p>
-<p>BS Defender was a company run by Park Young-beom, the son of Park Il-man, who was in a rivalrous relationship with Park Il-soo, Park Sang-beom's father, for the position of BS Group Chairman. So, if a BS Defender bomb was found at the explosion site, they could sow discord.</p>
-<p>Of course, if Park Il-soo was calm, he might think something was strange, but Park Il-soo, having lost his son, wouldn't be able to make a calm judgment.</p>
-<p>Whether it would succeed or fail, if it succeeded, they could throw the attention away from themselves and cause infighting within the BS Group. Even if it failed, Han Yu-gyeong thought that the traces were completely erased anyway, so Vanguard's involvement would be undetectable.</p>
-<p>"Since there won't be anyone there, there won't be any casualties anyway."</p>
-<p>-...Understood, Chairman-nim. We don't need to pick a fight with BS Group, so we'll handle it cleanly without a trace.</p>
-<p>"We need to secure our alibi, so have the Black Team do it, and we'll have a meeting at that time."</p>
-<p>The Black Team was a group of unregistered Vanguard members, mostly handling operations that Vanguard couldn't publicly disclose. In Korea, Vanguard's public image was that of a security company, so the Black Team was doing quite a few missions behind the scenes.</p>
-<p>-Yes, I'll head to the conference room now.</p>
-<p>Han Yu-gyeong said, "See you soon," and hung up. Dickson, who had been listening to the call, looked at Han Yu-gyeong in the rearview mirror and opened his mouth.</p>
-<p>"Boss, you seem to have become more meticulous than when I first met you."</p>
-<p>"It's a matter of survival. Now, it's not just my life on the line, but the lives of Vanguard, Dickson, and Yong-tae too, so I have to do even better."</p>
-<p>Dickson recalled Han Yu-gyeong when they first met. Back then, Han Yu-gyeong was the very image of a fragile girl, but she was gradually showing a ruthless attitude towards the enemy.</p>
-<p>Dickson didn't know whether this growth of Han Yu-gyeong was a good thing or if it was bad because Han Yu-gyeong's original goodness was diminishing.</p>
-<p>"Please hurry to headquarters. We need to start the meeting before the bomb goes off."</p>
-<p>"Yes, Boss. I'll pick up the pace a bit."</p>
-<p>Dickson took his eyes off the rearview mirror and focused on driving. In the end, Han Yu-gyeong had become ruthless not because of himself, but for the sake of those around her. Dickson thought that Han Yu-gyeong's goodness hadn't disappeared, but had temporarily changed its form, and continued driving. Han Yu-gyeong's cheerful voice was heard from behind.</p>
-<p>"Ah! A KakaoTalk from Yong-tae came?"</p>
+<p>We followed the DTMS forces at a leisurely pace, launching drones to observe the battlefield situation.</p>
+<p>Certainly, the distance from Kakunodate area to Senboku city was very short. Iwatate Motohito said he would show what a blitzkrieg was, and he covered the 20-minute distance in 15 minutes. Focusing only on speed like that, they were ambushed by Kurotsukido thugs hiding on both sides of the road, suffering considerable damage.</p>
+<p>,If we were just going to run fast, we could have done that too. What kind of blitzkrieg is that? They could have at least flown a drone in advance to scout.,</p>
+<p>Kiyona Hori grumbled while driving. She seemed annoyed that Iwatate Motohito had bragged about showing a true blitzkrieg. Kiyona Mari, who was enviously watching her older sister's breasts boing-boinging every time she got angry, saw me looking and exclaimed, "Hyat!" crossing her arms to cover her small chest.</p>
+<p>,D, Don't look!</p>
+<p>,I wasn't looking...?</p>
+<p>,A, Are you not looking because my chest is small?!</p>
+<p>,I'm not looking whether it's small or big~!</p>
+<p>Actually, if they were big, my eyes would go there without me realizing it.... Kiyona Hori saw Kiyona Mari and I bickering slightly and opened her mouth with a slight smile.</p>
+<p>,Mari, you mustn't become a woman with a small heart just because your chest is small. If you have a kind heart like your older sister, your chest will grow bigger.,</p>
+<p>,What on earth are you talking about? What does having a good heart have to do with chest size!!</p>
+<p>While we were having a friendly(?) chat, DTMS arrived in Senboku city. As expected of Senboku city, where most of Kurotsukido's forces were gathered, many troops welcomed DTMS.</p>
+<p>East Weapon installed L-16 81mm mortars to provide rear support, firing shells from the rear at the areas where Kurotsukido's groups were gathered. Before the Third Great War, operating mortars required observers and calculators, but after the Third Great War, drones could identify targets and Ai could handle the calculations, making it easier to operate mortars.</p>
+<p>Especially in urban warfare, extremely precise calculations were needed due to buildings, but Ai did this, making it possible to use mortars even in urban warfare. Of course, that didn't mean there was no damage to buildings at all, but winning the war was important, so they were willing to use them even if it meant damaging buildings.</p>
+<p>Of course, they couldn't just leave the mortars in the back and keep using them. The enemy would quickly figure out the firing position, so they had to fire two or three shots and move. Also, they couldn't use them when they were engaged in firefights and couldn't distinguish between friend and foe, so mortars weren't an all-purpose support weapon.</p>
+<p>In particular, Kurotsukido had a sniper with clairvoyant abilities, so they had to fold quickly after firing only one shot. Already, news was coming in over the shared communication channel that the mortar gunner had been taken down by the sniper. Thinking about it, Tang Xiaohua seemed to take good care of her subordinates. Seeing her bring a sniper with clairvoyant abilities to block her weakness, long-range attacks, it seemed she clearly understood her strengths and weaknesses.</p>
+<p>,First, we need to kill or capture the clairvoyant sniper before we're annihilated. Lianna-ssi, can you find the sniper with the drone?</p>
+<p>,absolutly! I've installed a thermal imaging camera on the drone, so I can find them. What will you give me if I find them, handsome gentleman?</p>
+<p>Lianna Holden, wearing a bikini cyber armor that looked extremely powerful, asked me with a suggestive smile for no reason. There's no need to get caught up with Lianna like this.</p>
+<p>,What should I give you?</p>
+<p>When I approached her and asked in a cheesy way, Lianna Holden's face turned red and she became flustered, then started operating the drone without saying anything.</p>
+<p>,J, Just kidding.... You don't have to do it.,</p>
+<p>What is it, a chaste virgin pretending to be a bitch? Lianna Holden was using the thermal imaging mode of the drone to find the sniper, her ears red.</p>
+<p>The thermal imaging camera is a camera that captures the infrared rays that people basically emit, and it has a fairly good effect in open fields such as forests and fields, but it was ambiguous to use in such urban areas. It was useless if the enemy hid among civilians, and they couldn't be found inside buildings, and because of the nature of infrared rays that can't pass through glass, people standing in glass windows couldn't be found either, so it could only be used in a very limited way in urban warfare.</p>
+<p>The clairvoyant sniper knows this well, so they'll be hiding inside a building or preparing for it, so will it be easy to find them?</p>
+<p>Contrary to my worries, Lianna Holden was also an excellent operator and drone pilot. She moved slowly, and when she heard the sniper's gunshot, she moved the drone busily here and there and showed me the screen. A small red dot could be seen in a window of a building.</p>
+<p>,Gotcha! I can't capture the heat of a person if they're inside a building, but there's bound to be heat left after firing a gun. If I quickly control the drone after hearing the gunshot, I can find the sniper's location. How about it, am I cool?</p>
+<p>Ah, she's not finding people, but finding snipers by finding the location heated up by shooting. Looking at the location, it seemed to be a building quite close to our vehicle.</p>
+<p>,This time, I'll show you my skills, investor-nim.,</p>
+<p>Sawayanagi Shigeru said slowly as he stood up. Sawayanagi Shigeru, who had been eating something to replenish his energy, seemed to think it was time to unleash the energy he had gathered, so he stood up from his seat.</p>
+<p>,Should I kill them? Or capture them?</p>
+<p>,Well, since they're fellow espers, shouldn't we capture them first and then eliminate them if persuasion doesn't work?</p>
+<p>Even in the MegaCorp youngest son game, there was a system to capture and persuade enemy executives like in a certain game company's Romance of the Three Kingdoms, so later on, the protagonist's unit would be a gathering of the heads of criminal organizations from around the world. So, just in case we could persuade the captured(?) sniper, I suggested capturing them first.</p>
+<p>,Capturing them is easy...,</p>
+<p>Sawayanagi Shigeru, who was speaking slowly, opened the door and got out, taking advantage of a brief pause in the vehicle's movement. And then he disappeared. It was an incredible speed that I could barely sense.</p>
+<p>About a minute after Sawayanagi Shigeru disappeared, I heard a knock on the car door, and when I opened it, Sawayanagi Shigeru, who seemed to have lost about ten kilos of his plump flesh, was holding the neck of a passed-out sniper wearing various cyber tech equipment.</p>
+<p>As expected, it was an amazing ability, but it was a premature ejaculation ability that only lasted about a minute. It was a character for advanced players in the game. I remember it being difficult to use because you would become temporarily unable to fight if you used up all the speed gauge.</p>
+<p>Sawayanagi Shigeru dragged his trembling legs back to his seat and started drinking an energy drink. Still, capturing the clairvoyant sniper, who had been giving us trouble all this time, in just one minute was an incredible feat.</p>
+<p>,Let's tie them up before they wake up.,</p>
+<p>At Sawayanagi Azuma's words, everyone grabbed the sniper and started to remove their tech wear first. It was important to separate the tech wear from its owner first, as we didn't know what functions were built into it.</p>
+<p>Hmm...! It was a woman. She was a slender-looking woman with bright gray twin tails. The Seryutai people quickly tied up the sniper as if they were packing a parcel. They even gagged her to prevent her from biting her tongue and threw her to one side. I'll have to avenge the bullets she fed me after the war is over.</p>
+<p>,Huh?</p>
+<p>,What's wrong, Lianna?</p>
+<p>Sawayanagi Azuma asked when Lianna Holden let out an exclamation-like sound as if she had seen something with the drone.</p>
+<p>,I'll put it on the big screen.,</p>
+<p>Lianna Holden tapped on the laptop keyboard, and a video appeared on the large screen attached to the back of the driver's seat. Kiyona Mari, who was in the passenger seat, complained that she wanted to see it too, but we all ignored her as if we had promised and focused on the screen.</p>
 <p>###</p>
-<p>After finishing the assassination at Club Z, I pondered for a moment. Where should I go? I had no intention of attending Vanguard's boring meeting. And going to Han Yu-gyeong's empty house was also boring. I came all the way to Korea, it's a bit much to just stay at Han Yu-gyeong's house. Today is the second day I've been in Korea, though... Ah, it's past midnight, so it's the third day now.</p>
-<p>I took out my phone and sent a KakaoTalk to Han Yu-gyeong.</p>
-<p>Jin Yong-tae: I've completely taken care of the club stuff. When do you think the meeting will end?</p>
-<p>Han Yu-gyeong: You worked hard, was it tough? ㅠㅠ Hmm, the meeting will probably take an hour or two.</p>
-<p>Jin Yong-tae: Okay. I'll wander around near the house for a bit and go in on time.</p>
-<p>Han Yu-gyeong: Okay, and I'm sorry I'm so busy with work after you came to Korea 😭</p>
-<p>Jin Yong-tae: It's okay. I was involved too, anyway.</p>
-<p>Han Yu-gyeong: Okay...! It might be late, so don't wait up and just play and sleep~!</p>
-<p>Jin Yong-tae: Contact me if any unexpected situations arise.</p>
-<p>Han Yu-gyeong: Okay ❤️ Have fun~</p>
-<p>I hadn't really decided what to do. It was awkward to meet Ha Ju-yoon in just an hour or two... And Ha Ju-yoon would probably be asleep early for management purposes. She's so strict with her diet, her sleep management must be considerable too.</p>
-<p>Hmm... Well, since I came all the way to Korea, should I go take a look at the MegaCorp youngest son's appearance NPC? If I meet a major NPC, the story might change, so with a suitable character....</p>
-<p>Okay, I've decided! I decided to go see an NPC who is close to Han Yu-gyeong's house and doesn't affect the story. I caught a taxi.</p>
-<p>"Please go to Korea University Station Entrance."</p>
-<p>"Yes, we'll be there soon."</p>
-<p>I told him my destination and got in the taxi. Hmm, it's 2053, but it's still a mileage meter with a running horse...! But why is the horse's leg movement so fast? If a horse actually ran that fast, we wouldn't need a car, would we?</p>
-<p>Even though I had a lot of money, I was mesmerized by the horse screen moving on the meter. As I was watching it in a daze, I arrived at my destination before I knew it.</p>
-<p>"It's 38,000 won."</p>
-<p>I paid by putting my card on the card reader near the door I was getting out of and opened the door. Korea University Station Entrance was right there.</p>
-<p>Getting out of the taxi, I went straight down to the Korea University Station Entrance underground. And I found a restroom in the corner. I went into the disabled restroom, not the men's or women's restroom, and pressed one side of the wall as I remembered, and a scanning device appeared. I took out my phone, turned on the Dark Merchant app, displayed the authentication screen, and held it up to the scanning device.</p>
-<p>Whether the authentication was successful or not, the wall opened smoothly with a swoosh sound. This was the Dark Merchant's Seoul branch. Entering the entrance, there weren't many people walking around. Most of them were people buying goods at the counter and going to pick them up.</p>
-<p>To be able to do offline transactions like this, you had to be invited and raise your rank by using a certain amount of points in the Dark Merchant app. The reason for using such a complicated method was, of course, because it was a Dark Merchant, that is, a black market. It was a place that sold things that were not allowed to be bought and sold without paying taxes.</p>
-<p>Recently, I had been hoarding glasses from the ruins, so I had used a lot of points and was promoted from a regular member to a plus member who could do offline transactions. After that, I came to Korea almost immediately, so this was my first offline transaction.</p>
-<p>The next step was to become a Diamond member who could attend Dark Merchant auctions, and rare items often came out at auctions, so it was good to become a Diamond member quickly. If there's anything good in today's offline transaction, I should buy it quickly and raise my rank.</p>
-<p>Of course, I wouldn't buy things I don't need just to raise my rank... There are so many amazing things that I end up buying them without realizing it.</p>
-<p>I went to a counter. At the counter sat a beautiful woman with pink and white mixed hair with an angel ring on her head. Her name was Eve. She was an artificial intelligence Ai, the NPC I was going to see. Because it was a single artificial intelligence Ai connected to the whole world, she would recognize me even if I met her here and went back to Tokyo.</p>
-<p>"Hello, Ryuta-nim. Is this your first time visiting for an offline transaction?"</p>
-<p>She must have scanned me at the entrance, so she said my name right away. It was a natural voice that you couldn't think of as artificial intelligence, a cheerful and cute girl's voice. In fact, she looked very real, but Eve's appearance right now was a hologram. So, of course, Eve was not a target for capture, and users who liked Eve said that the MegaCorp youngest son who couldn't capture Eve was a shitty game.</p>
-<p>Of course, there were many people who criticized the minority who desperately shouted, "Please let Eve be captured!" as machine-fucks.</p>
-<p>"Yes, I would like to see the Seoul branch's catalog."</p>
-<p>"Okay! I'll show you the catalog, Ryuta-nim."</p>
-<p>The catalog screen that Eve unfolded appeared before my eyes. Oh, the Seoul branch had quite a few items. Let's see... What's good to buy? If I spend all my time turning pages because there are too many...</p>
-<p>"Is it hard to choose?"</p>
-<p>"Um, could you narrow it down to elixirs, weapons, and valuable books?"</p>
-<p>"Okay! Please wait a moment!"</p>
-<p>As expected of a high-performance Ai, a moment was about 0.01 seconds. After saying, "Please wait a moment!" the catalog screen that Eve had narrowed down immediately appeared.</p>
-<p>"Um...!"</p>
-<p>First, I put the Juangwa that I saw right away in my shopping cart. There were so many people who wanted to buy it that it was sold as soon as it came out, so it was lucky that it was here. There were two, so I put both in my shopping cart.</p>
-<p>In Dark Merchant offline transactions, it was important to put things in your shopping cart as quickly as possible because once I put them in my shopping cart, other people couldn't buy them.</p>
-<p>"You're lucky. Those two Juangwas are the last Juangwas left in Korea."</p>
-<p>"It's really lucky that there are two left."</p>
-<p>"Recently, a herbalist discovered a Juangwa tree colony, and it was a complete jackpot. So the Korean branch was hot for a while. Rich women from all over the world came to Korea."</p>
-<p>Until then, I hadn't been able to get this kind of information because I was a regular member of the Dark Merchant, but now that I was a plus member, I could get good information while talking to Eve. Eve was famous for giving quite high-level information, although there was a prerequisite that I had to meet Eve often.</p>
-<p>The next thing I chose after Juangwa was a swordsmanship book called Goksan Wave Wind Sword Technique. In my memory, it was a fairly high-level swordsmanship book, so I put it in my shopping cart to give to a colleague or subordinate who uses swordsmanship later.</p>
-<p>There weren't any special weapons. Korea had strict legal regulations, so the market itself was small, so it seemed difficult to get good weapons. Of course, there were general firearms as much as there were Dark Merchants, but they weren't something I would buy.</p>
-<p>"Oh!"</p>
-<p>There was a fist technique book! I wanted to give a martial arts book to Kiyohira or Mimata Chieri, but there was a fist technique book... I was lucky today.</p>
-<p>Eight Extremities Immortal Form Fist... The name itself sounded strong. Of course, I would have to check the item window directly after receiving it, but it seemed to be a fairly high-level martial arts book.</p>
-<p>I put the Eight Extremities Immortal Form Fist in my shopping cart last.</p>
-<p>"Please calculate now."</p>
-<p>"How would you like your items? Should I ship them to your registered address? Or would you like to take them with you?"</p>
-<p>Hmm, if I take the old books on the plane, it could be a problem with cultural property smuggling if I get caught, so I should just ship them through the Dark Merchant route.</p>
-<p>"Please give me just one Juangwa directly, and deliver the rest to my registered address."</p>
-<p>"Yes! It's a total of 1,507,237 points!"</p>
-<p>I'm glad I charged it when I was hoarding glasses from the ruins. Otherwise, I would have been short a lot. Since 1 point is 1 dollar, it was roughly a little less than 2 billion won. Looking at the receipt, Juangwa accounted for the largest portion of the price.</p>
-<p>"Then please pick up your items at counter number 3~! Thank you for using our service!"</p>
-<p>Eve smiled brightly and waved at me. Somehow, seeing that, I could sympathize with the machine-fucks a little.</p>
+<p>Iwatate Motohito smiled to himself. This was a true blitzkrieg. They had lost some troops in the ambush, but they had stormed the Kurotsukido, who were in chaos due to the support fire from East Weapon, and were able to annihilate almost 70 percent of the remaining Kurotsukido.</p>
+<p>,The remaining remnants of Kurotsukido are gathering at Senboku Municipal Middle School.,</p>
+<p>,I wanted to decorate the finale, but it's annoying, so order the East Weapon mortar unit to fire.,</p>
+<p>Iwatate Motohito also didn't want to hand over the disposal of the remaining thirty percent of Kurotsukido to East Weapon. However, DTMS had also lost some soldiers in this blitzkrieg, so he was trying to have East Weapon deal with the remaining thirty percent with artillery fire. He couldn't afford to lose any more troops, as he could be questioned by his superiors.</p>
+<p>,The troops operating the mortars were annihilated by the sniper, so support fire is impossible.,</p>
+<p>,Damn it! You stupid bastards...! To be taken down by just a sniper! There's no choice. Since you can't seize the opportunity even when I give it to you, we'll take care of the remnants!</p>
+<p>Iwatate Motohito cursed East Weapon to his heart's content, then put on his top-of-the-line combat helmet and walked out of the command post with his troops towards Senboku Municipal Middle School, where the remnants of Kurotsukido were remaining. He wasn't really worried. He was wearing a bulletproof vest on top of his top-of-the-line cyber suit that could stop bullets, so he wasn't worried about getting hurt, and he thought his DTMS could handle the remaining remnants even without the support of East Weapon.</p>
+<p>,If you throw away your guns and surrender, I'll spare you!</p>
+<p>Iwatate Motohito shouted imposingly at the Kurotsukido standing in the crowded schoolyard, turning on the voice amplification function of his helmet.</p>
+<p>Iwatate Motohito smiled inside his helmet at the sight of the Kurotsukido buzzing. As expected, everyone is succumbing to my majesty, he thought self-indulgently.</p>
+<p>But thirty seconds passed, and a minute passed, and no Kurotsukido threw away their guns. The buzzing was actually to clear the way so that someone could walk forward without being disturbed.</p>
+<p>Like the miracle of Moses, the remnants of Kurotsukido parted, and a woman with light green hair came forward. She was a slender woman, but an immense pressure seemed to suppress the surroundings. In particular, the skull-jaw-shaped mask added a bit of fear to the pressure.</p>
+<p>The green-haired woman with the skull-jaw mask, looking around the crowd, looked directly at Iwatate Motohito and began to speak softly. It didn't seem like she had turned on a voice amplification function like Iwatate Motohito, but the woman's words were clearly audible to everyone.</p>
+<p>,I'll make a counter-proposal. You don't have to throw away your guns. If you run away, you will live, and if you fight, you will die.,</p>
+<p>It was fluent Japanese, although there was a slight Sichuan accent. Iwatate Motohito heard the woman's appearance and tone and realized who she was.</p>
+<p>Poisonous Devil Tang Xiaohua!</p>
+<p>She was the notorious Northeast Asia branch manager of Kurotsukido. But now DTMS was in an extremely advantageous situation. It was a situation where they could capture Tang Xiaohua sufficiently.</p>
+<p>If he captured the famous Tang Xiaohua, his promotion would be guaranteed even if he lost all his troops. Even if Tang Xiaohua was famous for her poison, he would be able to neutralize Tang Xiaohua's poison with the gas mask function installed in his latest and top-of-the-line combat helmet.</p>
+<p>,Heh heh heh! Did you think you could beat our DTMS elites with just that force?</p>
+<p>,I don't trust my troops.,</p>
+<p>Tang Xiaohua, answering Iwatate Motohito's words, took another step forward.</p>
+<p>,I'll take on everyone alone.,</p>
+<p>Tang Xiaohua's skull-jaw-shaped mask, making the reckless statement that she would take on everyone alone, went down, and Tang Xiaohua's face, showing her teeth and smiling broadly, appeared.</p>
+<p>Iwatate Motohito felt a slight chill at Tang Xiaohua's smile, but he was already riding a running tiger.</p>
+<p>,Everyone charge! Kill that crazy bitch!!</p>
+<p>At Iwatate Motohito's words, all the DTMS soldiers charged at Tang Xiaohua. Tang Xiaohua was still wearing a manic smile as she watched the soldiers running towards her.</p>

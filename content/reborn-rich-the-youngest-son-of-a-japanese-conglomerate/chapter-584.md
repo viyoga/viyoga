@@ -5,93 +5,89 @@ weight = 584
 chapter = 584
 +++
 
-<p>I did get a bit of a chill during the exam, but I figured it was because the exam room had the AC blasting even in mid-November. Maybe it was because I studied so hard, but the PMC certification exam wasn't too difficult.</p>
-<p>The PMC certification exam wasn't just one subject, but several, so it ended at 3 PM, including a one-hour lunch break in the middle. Even after the exam, Kurayamata Kirie and I didn't leave the exam hall right away and checked our answers.</p>
-<p>,The answer to the last question is... number 3, so I got an average of 94.5 points. You got around 86 points. The passing cut-off for the last term was 75 points, so we both passed. The difficulty was similar to the last term too."</p>
-<p>The PMC certification issued by the Japanese government only produces a certain total number of certificates per year, and those qualifications are distributed one by one according to the exam rankings, so it was an area where you couldn't relax no matter how high your score was. If a lot of good students happened to be in this exam term, the probability of not getting it would increase if your ranking dropped.</p>
-<p>Of course, Kurayamata Kirie, who got 94.5 points, and I, who scored about 10 points higher than the last term's cut-off, could rest easy. The practice questions that Kurayamata Kirie sent me by email a few times were quite helpful. A whopping seven questions were similar, so I could proceed easily.</p>
-<p>,Then, we've gone over all the solutions, so let's go."</p>
-<p>,Okay."</p>
-<p>We put the exam papers and materials in the bags we had brought and left the exam hall, heading towards the city hall entrance.</p>
-<p>,What are you going to do now?"</p>
-<p>Since I had promised to hang out with Kurayamata Kirie today because it had been a while since we met, I asked Kurayamata Kirie what she wanted to do.</p>
-<p>,I've booked a hotel. We'll have sex until dinner, then have dinner with room service and have sex."</p>
-<p>Ah, I see. I wondered how she had endured it until now; Kurayamata Kirie was quite a horny woman. When I first did it with her, Kurayamata Kirie threatened me and violated me. It was almost amazing that she was a virgin until then.</p>
-<p>,Shall we go to the place I booked? Huh?"</p>
-<p>,Hey, miss. How about we go somewhere together...?"</p>
-<p>As we passed the city hall entrance, the middle-aged man who had hit on Kurayamata Kirie in the morning was standing there. He was so clueless that he didn't even see me standing next to her and was trying to get her to go somewhere. But even that cluelessness couldn't stop Kurayamata Kirie, who was already horny and out of her mind. In an instant, Kurayamata Kirie took out a hand axe from her subspace and aimed it at the man's neck.</p>
-<p>,Heok...!"</p>
-<p>,Mister, do you want to die?"</p>
-<p>The bodyguards standing next to him were surprised by Kurayamata Kirie's sudden threat and tried to rush at her, but in her other hand, the one not holding the hand axe, she was already holding a Micro Uzi. The bodyguards, who were just burly guys with weapons, were helpless against the suddenly appearing gun and raised their hands.</p>
-<p>A Micro Uzi, she uses quite an old-fashioned gun. Recently, it's been a gun that terrorist groups use quite often... Ah, she was the leader of a terrorist group.</p>
-<p>,Mister, state your name."</p>
-<p>, Itsu Sadao (衣都 定雄)... P-please, spare me.</p>
-<p>,You're from the Itsu family. A protest will be sent in the name of the Kurayamata family, so be aware of that."</p>
-<p>,Y, you're from the Kurayamata family...? I, I'm sorry...!"</p>
-<p>Tang! Tang! Pat!</p>
-<p>,Kuaaaa!!"</p>
-<p>Kurayamata Kirie instantly smashed the surrounding CCTV cameras with the Micro Uzi and cut off the ear of the man named Itsu Sadao. Whoa.... She's really going all out?</p>
-<p>,If you want to save the severed ear, you need to get it reattached quickly, so take him away."</p>
-<p>Kurayamata Kirie smiled and pointed to the man's ear rolling on the ground, telling the bodyguard.</p>
-<p>,Of course, you know that if you report this, the next thing to be cut off will be your neck, right?"</p>
-<p>,Y, yes, I understand...!"</p>
-<p>The man was bleeding profusely but didn't dare to resist. It was because he was bound by her murderous aura, unable to move. He was sweating profusely and watching Kurayamata Kirie's every move.</p>
-<p>,Let's go, Ryuta-ssi."</p>
-<p>Kurayamata Kirie, as if she had never wielded a knife, smiled brightly and linked her arm with mine. I nodded and took out a handkerchief to wipe the blood splatters on Kurayamata Kirie's cheek.</p>
-<p>,Oh, did it get on me? Give me the handkerchief. I'll wash it and give it back to you."</p>
-<p>,We can see it as evidence, so we should get rid of it."</p>
-<p>,Now that I've revealed my family name, they won't dare to report it. It's just absurd that the Itsu family thinks it's okay to not know their place and hit on women like that."</p>
-<p>As expected of a former terrorist, Kurayamata Kirie wasn't afraid of public authority at all. I also learned about Japan's prestigious families from Yukiko when I was at the Talent Development Center, but since I hadn't heard of the Itsu family, they must be a very small prestigious family or a newly rich one.</p>
-<p>,More importantly, let's move quickly. Time is precious."</p>
-<p>I was led by Kurayamata Kirie's hand to a hotel in Kofu city.</p>
-<p>###</p>
-<p>,We have news that Ryuta-dono successfully completed the PMC exam."</p>
-<p>Taira Danjo's chief secretary, Fumimoto Takayuki, reported to Taira Danjo. Taira Danjo wore a strange expression, as if he was both pleased and uncomfortable, and nodded with a ,ahem...!"</p>
-<p>,So, will that guy pass?"</p>
-<p>,After checking with the PMC certification company, his average score is 86 points, which is within the passing range."</p>
-<p>,Hmph! Nasty guy...!"</p>
-<p>When he first heard the news that Taira Ryuta had taken the PMC exam under the name Yamashiro Ryuta, which he had given him, he was dumbfounded. He had never even imagined that he would take the PMC exam with a fake identity.</p>
-<p>Of course, since it was a fake identity created by the Taira Group, it was no different from a real identity that no one could find out, but the very idea of using it to obtain a PMC certification was surprising.</p>
-<p>,He's an audacious guy."</p>
-<p>,Still, he's amazing. The PMC certification exam itself is difficult. He seems to be smart like Chairman-nim."</p>
-<p>Fumimoto Takayuki smiled at Taira Danjo's mutterings. Taira Danjo glared at Fumimoto Takayuki slightly after hearing those words.</p>
-<p>,Hmph, are you flattering me because you want to receive something more?"</p>
-<p>,Is there anything I would want to receive? I'm just saying that Ryuta-dono is amazing."</p>
-<p>Fumimoto Takayuki's words were true. Compared to the little support he received from the family, his achievements were dazzling. The only support that Taira Ryuta received from the Taira Group was his position as an employee at the Talent Development Center and the allowance that Taira Danjo gave him a few times.</p>
-<p>With that, he was successfully running the Hatake Investment Company, which has recently become quite a hot topic in Japan, and he owned two PMCs, breaking through the gazes of his uncles and aunts who could kill his nephew if they thought he was an obstacle to sitting on the Taira family throne.</p>
-<p>It was a path that ordinary people could never take. Moreover, he was not satisfied with that and successfully passed the PMC certification exam, so his ambition was also great.</p>
-<p>,Is Ryuta also aiming for the Taira throne?"</p>
-<p>,I don't know about that, Chairman-nim. Ryuta-dono is acting as if... he's creating another group called the Hatake Group. Doesn't he have any power within the company?"</p>
-<p>Fumimoto Takayuki answered Taira Danjo's question, which sounded like a soliloquy.</p>
-<p>,That's right. Ryuta doesn't have any power within the group yet. So it's fortunate for him that Ichiro and Jiro aren't paying attention to him."</p>
-<p>,That's true. But if he successfully completes this mission, won't Ryuta-dono receive an affiliate?"</p>
-<p>,They won't care about just one affiliate. It's not an important place in our group anyway."</p>
-<p>Taira Danjo spoke optimistically, but Fumimoto Takayuki didn't think so. All three people currently aiming for the Taira Group's throne were greedy. They all thought that the Taira Group was theirs and wouldn't concede even a small thing to their nephew.</p>
-<p>,You think it's dangerous, don't you."</p>
-<p>,That's right... Chairman-nim, you see your three children lightly, but all three of them inherited your blood. Trampling on a newly growing sprout is Chairman-nim's teaching, so they will follow it."</p>
-<p>,If they get trampled on, it's all Ryuta's fault for being incompetent. But that won't happen."</p>
-<p>Taira Danjo said playfully to Fumimoto Takayuki's words.</p>
-<p>,That guy owes me missions. He won't die or break down until he completes all those missions."</p>
-<p>,That's right. Chairman-nim, you hardly have any uncollected debts."</p>
-<p>,Haha! That's right. Let's stop talking about that audacious guy... How is Kanna doing these days?"</p>
-<p>,She's preparing for graduation and taking university classes online. She might graduate next year or the year after if she skips a grade."</p>
-<p>,I see... If she's too outstanding, it could be dangerous like her older brother."</p>
-<p>Taira Kanna was growing up so well that he thought she would have been better if she were a man. After Taira Saburo died, she secretly absorbed all of Taira Saburo's faction, and at the same time, she was recruiting talent from St. Francisco Women's Academy while studying at university.</p>
-<p>,You haven't found the guy who killed Saburo, have you?"</p>
-<p>,That's right. But... it doesn't seem to be from the Minamoto side."</p>
-<p>Fumimoto Takayuki's answer implied that the person who killed Taira Saburo was someone within the Taira Group. Taira Danjo nodded heavily at those words.</p>
-<p>,I guess so..."</p>
-<p>Taira Danjo muttered with a bitter expression.</p>
-<p>###</p>
-<p>Inside a dark room. The quite large room had dozens of monitors turned on, and data screens were rapidly scrolling on all the monitors.</p>
-<p>,How is the research going?"</p>
-<p>Someone approached a researcher who was looking at the data screens on the monitors that were passing by mindlessly and asked. It was a man whose identity was not revealed because he was wearing a black mask, and the researcher nodded at the man's question and opened his mouth.</p>
-<p>,It should be done in a few days. We've almost completed the work of breaking through the firewall, and the method of controlling and stimulating the human central nervous system has already been completed."</p>
-<p>The masked man nodded at the researcher's answer and patted the researcher's shoulder as if to say he was doing well.</p>
-<p>,If the ,'thing' is completed, we need to test it..."</p>
-<p>The man looked at a map on one wall of the dark room. The map was of Northeast Asia, with Korea, China, and Japan drawn on it.</p>
-<p>,Hehehe... Yes, that place would be good."</p>
-<p>The man muttered with an ominous laugh.</p>
-<p>------------</p>
-<p>Minamoto Lisa new model practice.</p>
-<p>I think the usual model is better, haha.</p>
+<p>I checked the news again before entering the zoo, but there were still no special articles. Just in case, I asked Eve, but Eve couldn't give me any special information either.</p>
+<p>EVE: Originally, cyborgs equipped with the Centipede Spine have trouble controlling their emotions, so dozens of violent incidents happen every day in New Nanjing. Don't worry too much, Ryuta-nim. I'll contact you if any problems arise.</p>
+<p>The problem was actually the emotional control issue that Eve mentioned. The Centipede Spine was a centipede-shaped cyber implant that ran from the neck down to the spine, allowing for neural acceleration and a huge increase in combat power, but it often caused mental problems for users because it directly affected the central nervous system.</p>
+<p>From the perspective of the youngest son of a megacorp, in TMC decades later, the side effects were somewhat mitigated, but even then, it was still a notorious side effect. The berserker phenomenon called Centipede Rage caused them to suddenly attack their comrades or cause various accidents even when not in combat.</p>
+<p>Considering these incidents involving the Centipede Spine, you can see how much of a cheat character Alik is, being able to use neural acceleration without it. It's his own ability, so there are no side effects, making him even better.</p>
+<p>,Ryuta-jji, aren't you going in? Let's go see the lions quickly."</p>
+<p>,How much do you like lions?"</p>
+<p>While I was standing still looking at my phone, chatting with Eve, Seizawa Shii linked her arm with mine and pulled me. Alik had already grabbed my other sleeve, and when I looked at Alik, Alik looked up at me and opened his mouth.</p>
+<p>,Ryutta, let's go see Dolphin-ssi."</p>
+<p>Dolphin-ssi, how cute. But looking at the map at the entrance, the Aqua Hall with the dolphins and the Safari Hall with the lions were in opposite directions. Where should we go first?</p>
+<p>,No, I think the flying squirrels would be better."</p>
+<p>Next to Alik, Minamoto Risa said to me with a determined expression, as if she was going to show me the good points of the flying squirrels. The rest of the students were also watching me without entering the zoo. No, since when did they want to hang out with me... Oh, they've been hanging out with me throughout this graduation trip. Then I have no choice but to offer a solution.</p>
+<p>,Then let's all play rock-paper-scissors or a game, and starting with the winner, we'll go see the animals that are closest."</p>
+<p>,Alright! Those who like the animals in the Safari Hall, gather here!"</p>
+<p>,Alik, you go to the Aqua Hall side."</p>
+<p>,The small animal hall is this way."</p>
+<p>As soon as I finished speaking, the students gathered with their friends who liked the animals in each nearby hall. We would see the animals of the student who won first, and then see the animals in the closest location, so even if you didn't win first place, if a student who liked the same type of animal won, you could see them quickly, so they naturally gathered together.</p>
+<p>I don't know why they're strategizing so much for just rock-paper-scissors, but after whispering to each other for a while, the students gathered for the rock-paper-scissors match. And the winner of the rock-paper-scissors was...</p>
+<p>,Ryutta, Alik won...!"</p>
+<p>Of course, it was Alik, who could use neural acceleration. Alik grabbed my sleeve, hopping slightly as if he was in a good mood. Since the Aqua Hall with the dolphin show and the Safari Hall with the lions were in opposite directions, Seizawa Shii was naturally last in line and was dejected.</p>
+<p>,Haa... The lions are last."</p>
+<p>,Don't think of it as last, think of it as decorating the highlight."</p>
+<p>,Really? Ryuta-jji is so positive."</p>
+<p>Seizawa Shii smiled and cheered up again at my words. Seizawa Shii looked better with a bright expression.</p>
+<p>,I haven't been able to go to the zoo often because I'm doing Serif activities. So I'm happy to come here on this graduation trip!"</p>
+<p>Uenozono Karen was still filming the zoo with her GoPro and talking as if she was having a conversation. She also talked with the special class friends in between and captured them on the GoPro's screen. Everyone thought it was a memory from the graduation trip, so they readily agreed to appear on the Serif channel's vlog.</p>
+<p>After walking for a while, there was a moving walkway to the Aqua Hall, so we could go comfortably. Since Alik won, we went to the outdoor stage where the dolphin show was held first and sat down to watch the dolphin show.</p>
+<p>,Wow..."</p>
+<p>Alik's eyes sparkled like a starry night sky as he watched the dolphins' tricks. Was he that amazed? If I had known he liked it this much, I should have taken him to an aquarium in Japan.</p>
+<p>,Ryuta-jji, look at that! The dolphin jumped while rotating its body~☆"</p>
+<p>Seeing Seizawa Shii, who had been gloomy because she couldn't see the lions, tapping my arm and making a fuss, it seemed like everyone was enjoying the show.</p>
+<p>,That was fun...!"</p>
+<p>After the show, Alik smiled slightly as if satisfied, and we went inside the aquarium to see the fish. Shido Tsubaki, who liked tropical fish, and Urabe Konoka, who liked octopuses, had chosen this place.</p>
+<p>Does Urabe Konoka like octopuses because she is a priestess of the Daughter of the Abyss? Personally, I think jellyfish are a more symbolic sea animal for the Daughter of the Abyss. They say that when corpses were offered as sacrifices, they were given as jellyfish food.</p>
+<p>As we walked, looking at the tropical fish and various sea creatures moving leisurely in the blue aquarium, we could see the exit. It wasn't as enjoyable as the dolphin show we just saw, but it felt like it was relaxing. In particular, Shido Tsubaki was mesmerized, watching the tropical fish moving in the aquarium as if they were dancing in formation.</p>
+<p>For reference, Urabe Konoka was sticking close to the octopus, nodding or smiling as if she was talking to it. If someone who didn't know her saw her, it would look scary. Even the special class students were a little scared.</p>
+<p>Of course, the special class students knew that Urabe Konoka was a genuine priestess, so they just thought of her as an oddball.</p>
+<p>,Were you talking to the octopus?"</p>
+<p>,No. Not exactly talking. Octopuses are intelligent, so you can have some small communication with them."</p>
+<p>I was curious about what they were talking about, so I asked, and Urabe Konoka smiled slightly and answered. If you looked at her with the glasses from the ruins, Urabe Konoka probably had traits like aquatic creature affinity.</p>
+<p>Next was the panda special hall, located between the Aqua Hall and the small animal hall. In fact, after China split into three after World War III, they all claimed ownership of the panda species, but no conclusion was reached. They have just been claiming it as their own ever since.</p>
+<p>,Pandas are so cute..."</p>
+<p>Otagi Yuka, who had chosen pandas as the first animals to see, was throwing the food she bought at the entrance of the panda special hall while making *heuheung* noises. Otagi Yuka bought 50,000 yen worth of food and threw it, so the pandas were excitedly gobbling it up.</p>
+<p>,Is it okay for a salaried worker to blow 50,000 yen here?"</p>
+<p>I asked because Otagi Yuka was cut off from her family and was now in my service, receiving a salary from me.</p>
+<p>,I'll just ask Sensei to raise my salary a bit."</p>
+<p>Otagi Yuka said as if it was nothing. She was currently a student and hadn't been assigned any special missions yet, so I was giving her a reasonable amount. But it would be tight for Otagi Yuka, who was the daughter of a prestigious family, so she occasionally did part-time jobs that Eve assigned.</p>
+<p>,I'll raise your salary when you graduate."</p>
+<p>,Don't forget that?"</p>
+<p>Honestly, I was responsible for all of Otagi Yuka's meals (semen), and considering that price, the salary Otagi Yuka received was by no means small. Still, I didn't want to be stingy with my people, so I was planning to give her a much higher salary when she graduated and was assigned full-fledged missions.</p>
+<p>After Otagi Yuka used up all 50,000 yen worth of food, we passed the panda special hall and arrived at the small animal hall that Minamoto Risa and a few others wanted to see.</p>
+<p>,Look over there~!"</p>
+<p>Minamoto Risa was usually cool, but now she couldn't contain her excitement. She was making a very happy expression as she watched the flying squirrels gliding through the trees.</p>
+<p>,Do you like it that much?"</p>
+<p>,It's a mammal, but it flies like that. It's also cute..."</p>
+<p>Minamoto Risa answered with a slightly shy expression to my question. It was definitely cute.</p>
+<p>,And... you can fly too."</p>
+<p>Is she talking about my telekinesis? Actually, I can't fly. Just floating a little is the limit. I needed a few more traits to be able to fly freely with telekinesis.</p>
+<p>,I can't really fly, I can only float a little, but if I practice a little more and can fly, I'll let you experience it."</p>
+<p>,Really?"</p>
+<p>Even though I said I couldn't fly yet, Minamoto Risa said to me as if she was excited. She seemed to think that I would definitely be able to fly.</p>
+<p>,Red pandas are so cute!"</p>
+<p>,Alpacas are the best~!"</p>
+<p>The other students who liked small animals were healing while looking at their favorite animals. Seizawa Shii, Kujo Kina, and Naruse Shiyo, who were fans of fierce animals, were now shining with anticipation because it was their turn.</p>
+<p>,Okay, let's move on to the next course."</p>
+<p>I could see the time on the VR device screen, so I could allocate the time appropriately. Next was the safari hall, where you could ride a small bus and see and experience fierce animals such as lions and tigers up close.</p>
+<p>,Welcome~!"</p>
+<p>A guide and bus driver, who had his whole body covered in cyber implants, as befitting New Nanjing City, greeted us. He spoke in Chinese, but it was translated on the VR device screen and appeared like subtitles.</p>
+<p>Because the VR device translates in real time, guides don't have to learn other languages these days, which is convenient. Of course, it's more convenient if you can speak the language, so you get paid more if you can.</p>
+<p>,It takes a little while to go around once~! And even though they're fixed, don't try to open the windows by force, okay?"</p>
+<p>,Yes~!"</p>
+<p>We got on the bus and departed, and the safari zone was quite large, so it took a little while to go around once. Everyone answered the guide's warning well.</p>
+<p>The safari hall was divided into sections so that the fierce animals wouldn't collide with each other, and the first section was wolves.</p>
+<p>,Wow~! Wolves, Sensei!"</p>
+<p>Naruse Shiyo liked strong things, so she seemed to like all fierce animals in general. Naruse Shiyo made a fuss and shouted at me as if telling me to look. I actually thought that Naruse Shiyo might be the strongest when she transforms, but I haven't seen Naruse Shiyo transform properly yet.</p>
+<p>The guide skillfully threw live chickens through a small gap to attract the wolves, and we were watching the wolves' mukbang up close.</p>
+<p>Next to the wolves were bears, and the bears waved at us. It was quite cute to see them wiggling their butts and waving their hands. Is it because they're smaller than Han Yu-gyeong's familiar, Teddy?</p>
+<p>The guide threw salmon this time. After watching the bears do a salmon mukbang, we headed to the sector with the tigers.</p>
+<p>,Kyaa!"</p>
+<p>Suddenly, someone who was looking out the opposite window screamed, and we all rushed over to see two tigers doing it on top of a large rock as if showing off. Are they exhibitionist tigers...?</p>
+<p>,Um... We can't disturb them while they're doing the deed, so we'll give the tigers their food when we come back."</p>
+<p>The guide flexibly passed through the tiger zone quickly. Finally, it was the lion zone that Seizawa Shii had been waiting for.</p>
+<p>,Ryuta-jji, I'm so excited..."</p>
+<p>Why does she like lions so much? As Seizawa Shii called me and said she was excited, an emergency message was sent from the VR device.</p>
+<p>Warning! An unknown epidemic is occurring, please wait indoors. - New Nanjing Disease Control Department</p>
+<p>Damn it! It's starting... At that moment. The guide, who had been driving and guiding us well until now, suddenly shouted *keueok* and began to twist his body grotesquely, vomiting out the contents of his stomach.</p>

@@ -5,81 +5,110 @@ weight = 779
 chapter = 779
 +++
 
-<p>Oh, a second virgin...! That was a phrase befitting Lizhael's epithet, the conflicting boundary of chaos. When you think about it, 'second' and 'virgin' shouldn't be in the same sentence. Virgin means 'first,' and 'second' implies not being a virgin anymore.</p>
-<p>Of course, hearing Lizhael's logic, it wasn't entirely nonsensical. She made a new body, so naturally, if it's a new, unused body, it would have a hymen. And since it's her second body, it would be her second virginity. I'd actually be a little disappointed if she said her new body didn't have a hymen.</p>
-<p>Of course, hearing about the hymen didn't immediately make me want to spread Lizhael's legs and stick my dick in. Sex has its order, after all.</p>
-<p>"Rather than the hymen, I want to take Liz's first kiss first."</p>
-<p>"Uhehehe♥ As my partner, you can take any of my firsts."</p>
-<p>At my words, Lizhael stretched out her arms towards me, giving me a motherly smile as if telling me to hug her. Naturally, I didn't refuse, throwing myself onto the bed and embracing Lizhael.</p>
-<p>Just a light hug, and I already felt amazing with our bare skin touching. That's because Lizhael's skin was incredibly soft. Like soft, white rice cake, it had an extreme softness that sank in as you touched it, giving a cozy feeling when embraced.</p>
-<p>If just the feeling of her arms and legs was this good, I shuddered to think how her breasts would feel. Wouldn't I lose track of time just holding her breasts?</p>
-<p>"I missed you, Liz."</p>
-<p>"Partner, I missed you terribly while I was changing...♥"</p>
-<p>It hadn't been a long time since we were apart, but we told each other we missed each other and hugged tightly once more.</p>
-<p>Hugging tightly naturally brought our faces closer, and we naturally kissed.</p>
-<p>Chup.</p>
-<p>We gave each other a light kiss, what you might call a bird kiss, and then, with flushed faces, we looked at each other again before starting a deep kiss.</p>
-<p>Chubub, chup, chu-eup, chu-heup, chu-oop♥</p>
-<p>Of course, Lizhael, whose hardware was virgin but had kissed me countless times, gave me a kiss so lewd that we couldn't call it a first kiss. Just intertwining our tongues felt amazing.</p>
-<p>"Haa, haa.... Haa♥"</p>
-<p>We separated our tongues after a long time, seemingly reluctantly. A silvery line of saliva stretched and broke, and this time, I decided to touch Lizhael's breasts.</p>
-<p>As I held Lizhael's breasts, which were perfect in size and shape, I could see my fingers sinking in. Like a bottomless swamp, my fingers sank into her breasts. But it didn't feel limp or saggy at all; it was a bewitching breast with a chewy elasticity that stuck to my hand. Again, like her epithet, it was a transcendent breast with the conflicting sensations of softness and elasticity.</p>
-<p>Her nipples and areolas were a bit large, but it was appropriate considering the size of her breasts. If they were average size, it would have looked unbalanced.</p>
-<p>Just the sensation on my hands felt so good that my precum was flowing. Of course, Lizhael also seemed to enjoy my touch, her face flushed as she moaned.</p>
-<p>"Heueueung...! Your touch, partner, haaht! Feels so good, haaahng♥"</p>
-<p>Normally, I would have touched her for a bit and moved on to the next step, but the sensation of her breasts was so good that I kept touching them like I was playing with textures. Lizhael couldn't hold back and reached her climax, performing shiofuki.</p>
-<p>"Haaang! Partner...! Haaht, my breasts, heueung♥ Do you like them that much, haaahng...?!"</p>
-<p>I snapped out of it at Lizhael's words, who was asking me while squirting her fluids, pyut pyut. I seemed to have gotten so absorbed that I brought her to climax with just her breasts.</p>
-<p>"Haa, haa.... Now it's my turn, partner...♥"</p>
-<p>Perhaps because she was an Outer God, she recovered quickly from the aftereffects of her climax, laying me down and kneeling between my legs. Lizhael stared in awe at my massive hard-on, standing tall and dripping with precum, before starting to lick the shaft of my dick, coated in precum, as if licking sweet syrup.</p>
-<p>"Heueup...!"</p>
-<p>It felt so good I was going numb. It was just her tongue touching me, but whether it was because her tongue had barbs or suction cups, I got goosebumps every time her tongue grazed me.</p>
-<p>"I'll enjoy this, partner♥"</p>
-<p>Lizhael, who had licked all the precum coating my dick, opened her mouth and took my dick into it.</p>
-<p>Tzubeup...!</p>
-<p>"Keueu...! Feels good, Liz...."</p>
-<p>Lizhael took my dick all the way to the back of her throat from the start. Again, it felt amazing. I couldn't help but arch my back.</p>
-<p>At my words of pleasure, Lizhael smiled with crescent-moon eyes and shook her head more vigorously, shifting her fellatio into high gear.</p>
-<p>Tzubeup, tzeup, tzubeup, tzubeueup, tzeup...!</p>
-<p>It felt like my soul was being sucked out of my dick. Even while sucking, she didn't forget to stimulate my dick with her tongue, moving her throat, mouth, and tongue in diverse ways as if they were different creatures, starting to carve pleasure into me.</p>
-<p>"Keueut, I'm gonna cum, Liz...!"</p>
-<p>Tzeup, tzubeup, tzeup, tzubeup, tzeup, tzubeup, tzeup, tzubeup, tzubeup...♥</p>
-<p>Lizhael sped up her fellatio even more at my words that I was going to cum. With those movements urging on my ejaculation, I couldn't hold back and had no choice but to give Lizhael my semen.</p>
-<p>Byueut! Beut! Byueut! Beut!!</p>
-<p>It was a massive ejaculation that felt like my soul was leaving my body. Lizhael's cheeks puffed out for a moment, but she didn't spill a single drop of semen, swallowing it all as I shot.</p>
-<p>"Tzeueup...! Behe...♥"</p>
-<p>Lizhael spat out my dick and opened her mouth to show me my semen. My semen volume was so large that there was still semen left in her mouth besides what she had swallowed.</p>
-<p>After showing me my semen like that, Lizhael closed her mouth again and swallowed the semen inside. Naturally, my dick, which had almost lost its strength after ejaculating, regained its power and became stiff again at Lizhael's lewd actions.</p>
-<p>"Partner's essence is always delicious♥"</p>
-<p>Hmm, I didn't know my semen had a taste. She was licking her lips with a truly satisfied expression, making it feel like she had eaten a true delicacy.</p>
-<p>"I'll return the favor. Lie down again, Liz."</p>
-<p>To be honest, I wanted to insert it right away, but I thought I should stimulate her pussy directly and loosen her up a bit so it wouldn't hurt.</p>
-<p>Of course, the pain of her hymen tearing might be nothing to Lizhael, an Outer God, but as her first experience partner, I wanted to make Lizhael feel the best I could.</p>
-<p>I approached Lizhael, who was lying down as I told her and spreading her legs while looking at me. I was seeing Lizhael's virgin pussy for the first time because she had been keeping her legs together until now, and it was an incredibly pretty and lewd pussy.</p>
-<p>Lizhael's pussy, moist and wet, was tightly closed in a line, but when I spread it slightly, I could see the small, spread-out, pink labia minora and her gaping vulva. Because her skin was so white, her pink pussy looked incredibly stimulating.</p>
-<p>After watching Lizhael's moist virgin pussy for a while, I licked it with my tongue, sweeping across the entire pussy.</p>
-<p>Haljjak...!</p>
-<p>"Haeueuheuh! Partner-euh-euh...!"</p>
-<p>Just one lick with my tongue and her reaction was this intense, so her sensitivity was top-notch, and the taste was also top-notch. It had a refreshing taste without the slight fishiness that women should have. And it didn't feel strange at all; it felt like it had an aphrodisiac or tonic effect, my dick throbbing every time I licked.</p>
-<p>After licking her pussy for a while, I slowly pushed my finger into her vulva this time. From the entrance of her pussy, I could clearly feel an enormous number of bumpy protrusions, and even though it was my finger and not my dick, it was definitely the best pussy I had ever seen, gripping me tightly.</p>
-<p>I wanted to put my dick in right away, but I had decided to loosen her pussy up, so I pulled my finger out again. I felt like I might accidentally pierce Lizhael's hymen with my finger if I stayed any longer.</p>
-<p>Of course, I wanted to conquer Lizhael's hymen with my dick, so I pulled my finger out.</p>
-<p>This time, I found her hidden clitoris and licked it with my tongue. It was such a sensitive area that I licked around it before gently stimulating it, and Lizhael's reaction was unusual.</p>
-<p>"Heuaaaang...! Partner, not there...! I'm gonna cum, haaahng♥"</p>
-<p>She writhed her pelvis back and forth, feeling pleasure as if she was in pain, and as soon as I licked her clitoris, she started spraying her fluids all over my face. Her sensitivity is incredible. She was practically a premature ejaculator. Of course, her recovery was fast, so it wouldn't be a problem for enjoying sex.</p>
-<p>Pyut pyut! Pyut!</p>
-<p>My whole face was wet with Lizhael's fluids, but I didn't feel unpleasant at all. I just felt good that I had pleased this Outer God.</p>
-<p>"N-now that's enough, please come quickly, partner...♥"</p>
-<p>"I want to tease you a little more."</p>
-<p>When I told Lizhael, who was begging me to come, that I wanted to tease her with a playful expression, I heard Lizhael puff out her cheeks slightly and tell me not to joke around. I chuckled at her cute appearance and nodded.</p>
-<p>"I'm kidding. I'll put it in, Liz."</p>
-<p>"Please come inside me quickly, my beloved partner♥"</p>
-<p>Lizhael was spreading her legs and urging me on. I raised my body, grabbed the shaft of my dick, and aligned the head with Lizhael's vulva.</p>
-<p>___________</p>
-<p>I made a Kimono, requested by Mirmar2-nim, instead of a Shrine Maiden outfit or Kimono, because I've made Shrine Maiden outfits before, hehe.</p>
-<p>Zero Two Slingshot Bikini Lizhael and Belly Dancer Lizhael, requested by MidNightSKY-nim!</p>
-<p>Starting with the Slingshot Bikini~!</p>
-<p>Belly Dancer Lizhael</p>
-<p>Kkiyot!</p>
-<p>The Round Girl requested by Hwanbuljeoldaebulga-nim.... The AI didn't seem to have learned it, so it didn't come out well, ㅠㅠ</p>
-<p>No matter how much I tried, this was the best I could get, so I couldn't proceed any further, dㄷ</p>
+<p>Having returned from the hot spring, I roughly dried my Head with a hairdryer, then sent the slice cakes packaged from the village below the ski resort to Lizhael, and came Outside with an ice Box and grilling cheese bought from the farm.</p>
+<p>"Ryuta-cchi~! Why are you so late?!"</p>
+<p>Because I had unknowingly stayed in the hot spring for a long time, what with drying my Hair and sending the gift to Lizhael, I was a little late for the promise to meet the Students at 6:50 PM.</p>
+<p>Of course, since I wasn't thirty minutes or several hours late, but merely a few minutes late, the only Student with her Hands on her Waist, pouting, was Seizawa Shii.</p>
+<p>"Sorry, I unknowingly stayed in the hot spring for too long. But it's only 6:54, so just this once, please."</p>
+<p>"Just this once~?!"</p>
+<p>Since the kind Gyaru, Seizawa Shii, forgave my lateness, we immediately took the elevator, exited the main building of the Resort, and went to the barbecue area.</p>
+<p>From the Sky, snow was falling a little more heavily than two hours ago. From the sleet-like snow earlier, it was now falling with a slight Heavy snowfall feeling.</p>
+<p>The barbecue area, due to the characteristic heavy snowfall in this region, was an indoor barbecue area rather than an outdoor one, and it had three large chimneys with exhaust fans installed, so the Smell seemed like it would be less.</p>
+<p>At the barbecue area, the University Students we had seen yesterday were there, and it seemed they intended to grill their own Meat because the Price of the Resort restaurant they ate at yesterday was expensive.</p>
+<p>Takakusaki Athena was surrounded by the University Students, having a Conversation, and it seemed she had met the group of University Students while waiting for us.</p>
+<p>"Ah, my Party/Group has arrived~!"</p>
+<p>Takakusaki Athena, who had been conversing with the University Students, saw us entering the barbecue area, waved her Hand, and approached us. As Takakusaki Athena approached us, the men among the group of University Students made very regretful Expressions.</p>
+<p>"A little late, sorry."</p>
+<p>When I apologized for being late, seeing the clock showed 7:01 PM, Takakusaki Athena waved her Hand as if one minute was nothing.</p>
+<p>"Just one minute.... The elevator might have been late, or the schedule might have gotten tangled."</p>
+<p>Nodding my Head at Takakusaki Athena's Words that it was alright, I poured charcoal onto the grill and lit the Fire.</p>
+<p>Because we had reserved a long, large grill for families, the grill was wide enough to cook a sufficient amount for 14 people, including Takakusaki Athena.</p>
+<p>While the charcoal was heating up and the Fire was being lit, the Students took out raw pork belly from the Dining table, cut it into appropriately thick pieces, and took out wagyu and shrimp. It was Preparation before grilling.</p>
+<p>"Athena-ssi, which Country are you from?"</p>
+<p>"My nationality is Japanese Person, but ethnically I am Finnish."</p>
+<p>"Adoption? Or naturalization?"</p>
+<p>"Adoption."</p>
+<p>Shido Tsubaki, with her reporter Instinct activated, stuck to Takakusaki Athena and began asking various Questions. As if it wasn't something to hide, Takakusaki Athena answered Shido Tsubaki's Questions smoothly.</p>
+<p>Of course, it was largely because Shido Tsubaki didn't ask Questions she felt were Sensitive, but it was still surprising that she answered the Questions so well.</p>
+<p>"Alright, let's put the Meat on."</p>
+<p>Once the Fire had stabilized appropriately, I told the Students, who had been preparing to put the Meat on. As soon as my Words fell, the special class troublemakers put their own Meat and shrimp on the grill.</p>
+<p>"You too, pick what you want to eat and put it on the grill."</p>
+<p>"Shall I?"</p>
+<p>At my Words, Takakusaki Athena picked up wagyu sirloin and put it on the grill. I put on pork belly and wagyu sirloin.</p>
+<p>As the Smell of grilling Meat was infused with the scent of charcoal, a delicious scent, no less than any other dish, wafted.</p>
+<p>"Ryuta, ah...!"</p>
+<p>As expected, in a Place like this, Alik's 'ah~!' comes first. Alik pushed a well-grilled piece of Meat into my mouth. Naturally, I didn't refuse and ate it, and as expected of the Home Economics Teacher's disciple, it was very well-grilled and delicious.</p>
+<p>"Ryuta, is the Meat Alik grilled delicious...?"</p>
+<p>"Yes.... It's delicious, Alik. Alik, you say 'ah~' too."</p>
+<p>I, too, put the Meat I was grilling into Alik's mouth. Because it had been cut into small, bite-sized pieces in advance, Alik, with her small mouth, could eat it well.</p>
+<p>"It's delicious, Ryuta...!"</p>
+<p>Alik, munching on the Meat, said with a slight smile, as if it were truly delicious.</p>
+<p>"Eat a lot, Alik."</p>
+<p>"Mm...!"</p>
+<p>After Alik returned, I, as expected, had to eat a bite of Meat or shrimp given by the other Students. Because they put it into my mouth with the feeling of 'You're not just going to eat what Alik gives you and not ours, are you?', I couldn't refuse.</p>
+<p>"...."</p>
+<p>"...."</p>
+<p>Takakusaki Athena, too, somehow swept up in the Atmosphere, was holding out a shrimp to me.</p>
+<p>"Ah, you gave me chocolate ice cream earlier, so this is Repayment...!"</p>
+<p>Ah, I see. I also fed chocolate ice cream to Takakusaki Athena at the farm, so it was given as Repayment.</p>
+<p>I, roughly understanding the Reason, ate the grilled shrimp Takakusaki Athena offered. The shrimp was also delicious. Since it was a rock lobster the size of a Woman's Forearm, it would have been a Problem if it wasn't delicious.</p>
+<p>"It's delicious. Shall I put some in your mouth too?"</p>
+<p>"N-no, it's fine. Because I put it in your mouth as Repayment for the ice cream earlier.... And I'm grilling my own too."</p>
+<p>If she says it's fine, then.... Since I had already given all the Meat I was grilling as Repayment to the Students who had put food in my mouth, I had to go get new Meat. This time, I should get shrimp, pork belly, wagyu, and even grilling cheese.</p>
+<p>Of course, there were Vegetable skewers with paprika, green onions, and onions for the Students who liked Vegetables, but I didn't touch them.</p>
+<p>"The Drinks are here.... And for Alcohol, I've prepared about Beer, so drink moderately. If you drink too much and get drunk, I'll record it on Video and tease you for Life."</p>
+<p>Because Liquids were heavy and not loaded onto the helicopter, Drinks and Alcohol were prepared in advance by contacting the Resort.</p>
+<p>Because a small amount of Alcohol was prepared to prevent Students from drinking too much, there would be no Students getting drunk and throwing a Drunken Fit.</p>
+<p>Since they are all Seongin now, I thought it would be better to let them drink moderately rather than forcibly stopping them with 'Don't drink Alcohol'. And because the Education of noble Families also included alcohol etiquette Education, I also trusted that.</p>
+<p>"Ryuta-cchi~! Since we've brought Alcohol anyway, let's toast~!"</p>
+<p>At Seizawa Shii's Proposal, holding a Beer Bottle, everyone raised their Beer Bottles. And they looked at me as if telling me to make a toast, so I chuckled and opened my Mouth.</p>
+<p>"May our troublemakers successfully Graduate...!"</p>
+<p>"Cheers~!"</p>
+<p>Clinking 330mL Nagano local Beer Bottles, we toasted. And we Swallowing Sounded down the Beer.</p>
+<p>Perhaps because it was Beer from a ski resort region, it felt very refreshing. Eating grilled shrimp as an anju made it perfect.</p>
+<p>"Um...."</p>
+<p>As we were drinking Beer, the University Students approached. It was the man and two Women who had greeted us at the restaurant yesterday. Seeing them bring Sausages on a Plate, it seemed they wanted to exchange something.</p>
+<p>"Shall we exchange?"</p>
+<p>"Yes, yes...! Thank you."</p>
+<p>As I asked first, they bowed their Heads in greeting, as if grateful. Since we didn't have Sausages among the things we brought, exchanging didn't seem like a bad idea.</p>
+<p>Having received the Sausages, we evenly dished out rock lobster, wagyu, and pork belly and handed them over. We handed over more than we received, and because we had brought plenty in case it wasn't enough, we didn't lack anything to eat.</p>
+<p>"Anyone who wants Sausages, take them from here~!"</p>
+<p>""Yes~!""</p>
+<p>Because Sausages were better as Beer anju than the Meat or shrimp we brought, the Sausages were quickly consumed. It was good we exchanged.</p>
+<p>Although it was a small amount of Alcohol, the Atmosphere, which had been slightly stiff due to Takakusaki Athena's presence, softened a little. Takakusaki Athena's Skin, which was pale to the point of being white, also flushed slightly, which was pleasant to see.</p>
+<p>Of course, I didn't know if it was because she was Finnish and had a high Alcohol tolerance, or if Takakusaki Athena herself just had a high Alcohol tolerance, but she didn't seem to get drunk easily from Beer, and her mind seemed clear when I conversed with her.</p>
+<p>So we happily finished our Meal and tidied up roughly. We had eaten all the wagyu and pork belly, but quite a lot of rock lobster was left, so we put it back in the ice Box. I was thinking of making spicy Instant Noodles with rock lobster tomorrow.</p>
+<p>For reference, the University Students, unlike us, didn't seem to intend to moderate their Alcohol intake, and were drinking piles of Alcohol. Not only Beer, but they were also drinking fruit-flavored soju from Korea, which was popular even in the 2050s.</p>
+<p>"It seems like more snow is falling...?"</p>
+<p>I muttered as I came out of the barbecue area. The snowflakes definitely seemed to have gotten thicker. It also seemed like the Wind was blowing more strongly than when we arrived earlier.</p>
+<p>"It's cold, so let's go Inside quickly."</p>
+<p>Since the Resort was right next door anyway, we could re-enter the building in less than a minute.</p>
+<p>"Which Floor are you on?"</p>
+<p>Takakusaki Athena asked, as she didn't know where her room was.</p>
+<p>"The 2nd Floor."</p>
+<p>The 2nd Floor was the Floor where two-person rooms were gathered. Even though rooms were gathered, it seemed it would be quiet because there were no other customers besides Takakusaki Athena.</p>
+<p>"Let's play the Game of Life today~!"</p>
+<p>Naturally, since we wouldn't go to Sleep immediately after eating, we decided to play the board games we had brought. While thinking about what board game to play, at Seizawa Shii's Words, the others also stated the board games they wanted to play.</p>
+<p>"Um...."</p>
+<p>"Yes?"</p>
+<p>"May I play with you too?"</p>
+<p>It was Takakusaki Athena's unexpected Proposal. Her Face was slightly flushed, as if the Words 'May I play with you too?' were quite embarrassing. Or was it because of the Alcohol?</p>
+<p>"Well, as you wish...."</p>
+<p>Anyway, if it was to make her listen to our Proposal, it was better to become a little more intimate, so I nodded my Head.</p>
+<p>Dark Night.</p>
+<p>The serial killer Kotowazuki (斷頭鬼) drew a dagger.</p>
+<p>"Fufufu...."</p>
+<p>Kotowazuki chuckled softly, and plunged the Dagger into the Neck of the man who was sleeping and snoring. The sleeping man opened his Eyes, but with the Dagger already plunged into his Neck, he could do nothing. The man gurgled, then his Body went limp.</p>
+<p>Click.</p>
+<p>Kotowazuki unlocked the window and opened it. A whistling snow-wind blew into the Room, but without caring, she lifted the man with the Sword in his Neck and threw him Outside the window.</p>
+<p>Perhaps because of the continuously accumulating snow, even though one Person fell, there was no loud Noise.</p>
+<p>'I can kill a few more people at this Resort.... Goal achievement is just around the corner.'</p>
+<p>Kotowazuki closed the window again and muttered to herself. Because Kotowazuki was feeling Pleasure from the Murder, she wore a very strange Expression. But she couldn't remain intoxicated by that Pleasure. She had to move diligently for the next Murder.</p>
+<p>Today, I had a severe Headache, so I couldn't create illustrations ㅠㅠ So I will give you the cute Alik I made in advance ㅎㅎ</p>
+<p>Default Alik</p>
+<p>Teuinteil Alik</p>
+<p>Low Teuinteil Alik</p>
+<p>Ponytail Alik</p>
+<p>Long Hair Alik</p>
+<p>They all have Charm ㅎㅎ By the way, I don't know why the Clothes are See-Through and her Underwear is visible ㅎㅎ</p>
+<p>The illustrations I promised to upload today will be uploaded tomorrow ㅠㅠ</p>

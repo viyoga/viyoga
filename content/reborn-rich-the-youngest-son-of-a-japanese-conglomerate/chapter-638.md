@@ -5,80 +5,111 @@ weight = 638
 chapter = 638
 +++
 
-<p>The day before my vacation ended, I was on a helicopter sent by the Naruse family, heading to Kyoto.</p>
-<p>I wasn't alone; Otagi Yuka, Sakagami Rena, Saionji Diana, Konoe Akina, and Urabe Konoka, who had all worked hard to save Naruse Shiyo back then, were with me on the helicopter.</p>
-<p>It seemed the Naruse family was going to reward everyone for their help. Alik, who was with us at the time, was also in Kyoto with Naruse Shiyo, so it looked like that whole group would be gathering again.</p>
-<p>,It's been a while since I've been to Kyoto."</p>
-<p>Otagi Yuka muttered, looking out the window. Since Otagi Yuka had cut ties with the Otagi main family, she seemed to feel strange going to Kyoto, where the Otagi main family was located.</p>
-<p>,Our family is in Tokyo, so I don't have much reason to go to Kyoto either."</p>
-<p>Saionji Diana said, looking at Otagi Yuka. The Saionji family, who were in the banking business, had their main home near Tokyo, so they didn't have much connection to Kyoto.</p>
-<p>,Usually, you go to Kyoto for picnics or school trips, right? Doesn't St. Francis Girls' Academy go often?"</p>
-<p>Before I was possessed, Jin Yong-tae had memories of going to Kyoto on a school trip in high school, so I asked, but everyone shook their heads.</p>
-<p>,Most of us go abroad a lot, and since there are many kids whose main home is in Kyoto, we don't really go to Kyoto for events."</p>
-<p>Konoe Akina answered. I see. Now that I think about it, it wouldn't be exciting to come on a school trip to your own neighborhood. Besides, if you go to St. Francis Girls' Academy, you can afford to go abroad, so most of them probably go overseas.</p>
-<p>,By the way, Kina-chan's master is quite unique, isn't he?"</p>
-<p>,Right?"</p>
-<p>Urabe Konoka brought up Kujo Kina's master to me, so I nodded in agreement.</p>
-<p>,He looks like Yoda. And he knows exactly when I'm thinking of Yoda. I thought he was reading my mind."</p>
-<p>,Pahahaha! What's that?!"</p>
-<p>,What's a Yoda?"</p>
-<p>,Konoka, does he really look like Yoda?"</p>
-<p>Not believing my words that he looked like Yoda, everyone asked Urabe Konoka if it was true. Some people even asked what Yoda was, but to be sure, Star Wars is a pretty old content these days. It wasn't strange that they didn't know.</p>
-<p>,Yeah. I didn't even know what Yoda was, but Kina kept calling him Yoda Master, so I looked it up and he looked exactly the same... This is what he looks like."</p>
-<p>Urabe Konoka searched for Yoda on her smartphone and showed it to her friends. So Kujo Kina started calling him Yoda Master too. Surely it's not my fault, is it?</p>
-<p>,But you said he was unique, not just because he looks like Yoda, right?"</p>
-<p>,Ah, that too, but he started training us like crazy from the first day we met. He said he needed to know his disciples' limits."</p>
-<p>Surely he didn't get angry because I called him Yoda Master and started training us like that... He suddenly had several disciples, so he needed to know each of their limits. If he trained them all at once, some would drop out in the middle. If he knew each of their limits, he could deal with them appropriately. Maybe that's why he gave us hard training on the first day.</p>
-<p>,What are you guys getting as a reward?"</p>
-<p>I decided to receive a few things from the Naruse family's treasure vault, but I was curious because I didn't know what the other students would receive.</p>
-<p>,We decided to receive whatever Teacher-ssi chooses for us, right?"</p>
-<p>,Huh? I'm hearing about this choosing person for the first time?"</p>
-<p>To receive whatever I choose, how much do they trust me?</p>
-<p>,Teacher-ssi is someone who can see abilities like in a game. So I thought you'd be able to pick out equipment that suits us."</p>
-<p>,It's not hard to pick out... But besides the treasure, the Naruse family must have offered something else, right?"</p>
-<p>They probably offered money or rights, but to give that up, it was a choice worthy of a daughter of a prestigious family. They know that if they have abilities, they can earn money.</p>
-<p>,That's right. The Naruse family said we could choose one of three things: money, mid-grade Shikigami, or treasure."</p>
-<p>,We don't need money yet, and... it also has the meaning of a gift chosen by Teacher-ssi."</p>
-<p>They even offered to hand over mid-grade Shikigami? Then it's quite a dilemma... For some of the kids here, Shikigami would be better than treasure.</p>
-<p>,Konoe or Sakagami might find Shikigami a good choice."</p>
-<p>Konoe Akina, whose characteristics were focused on her eyes, and Sakagami Rena, who often carried out operations alone as a ninja, would benefit from having a summon-type Shikigami that could tank for them, so I recommended summon-types to them.</p>
-<p>Otagi Yuka was strong enough to get through things without the help of a summon, and Saionji Diana was also excellent at both ranged and melee combat, but she wasn't the type to take on missions alone, so she didn't really need a summon. Finally, Urabe Konoka was a shrine maiden, so she wasn't suited for combat missions, so she didn't need a summon.</p>
-<p>,Then please choose a Shikigami for me, Sensei."</p>
-<p>,I would also like you to choose for me, Master."</p>
-<p>,That's not difficult."</p>
-<p>Choosing a Shikigami that suits them wasn't that difficult. Then I had to choose treasure and Shikigami, so it looked like I would be busy again today.</p>
+<p>Before I knew it, it was the end of class, and the special class was turned upside down by my statement. It was because I asked for 100 sets of the photo cards I was in.</p>
+<p>,Hey.... Minamoto Risa, I'll buy my photo card sets with money, so could you prepare about... 100 sets?</p>
+<p>I figured I needed at least 60 sets when calculating 2-3 sets per person to give photo card gifts to, so when I said 100 sets to be generous, it caused an uproar.</p>
+<p>,Ahahahaha! Seriously, Ryuta-cchi! Are you a narcissist? You're thinking of collecting 100 sets of your own photo cards? So funny~☆</p>
+<p>,Teacher, even so, 100 sets seems a bit much.</p>
+<p>,Sensei, what the hell do you need 100 sets for? You're not gonna use it once and throw it away, are you?</p>
+<p>As expected, 100 sets seemed a bit too much. But I couldn't become a narcissistic pervert who's satisfied looking at his own pictures, so I had to make excuses.</p>
+<p>,No, since I'm putting out my photo cards, my family and friends asked me to send them about 3 sets each.... They said they need 3 sets for appreciation, storage, and evangelism.... I roughly need about 70 sets, but I ordered generously in case I don't have enough.</p>
+<p>I brought up the story of my family and friends to prevent a preemptive "Talulah," and only then did the troublemakers of the special class shut their mouths.</p>
+<p>,Good, that's a good idea. For appreciation, storage, and evangelism.... Then we can add more production of cards and books.</p>
+<p>Minamoto Risa nodded as if she realized something after hearing my story. She had a very satisfied expression, but I couldn't figure out why she was trying to produce more.</p>
+<p>,You said you needed 100 sets, right? For 100 sets.... I'll give you an album for 200,000 yen.</p>
+<p>I don't know how much the cost is, so I don't know if 200,000 yen is cheap or expensive. When I think about it, if it's 100 cards per set, then 200,000 yen is appropriate for 100 sets? And she's giving me 100 albums, so it doesn't seem bad.</p>
+<p>Since it's for gifts, I can't just give a bunch of cards without an album, so it seemed like Minamoto Risa presented it well.</p>
+<p>,Okay. I'll pay 200,000 yen.</p>
+<p>I nodded. The students kept giggling because they thought it was funny that I was buying 100 sets of my own photo cards.</p>
+<p>,What are we doing for club activities today?</p>
+<p>,I have to discuss with the Serifu agency, and the other kids have work they received in advance, and you and Konoe Akina have to stop by the student council.</p>
+<p>,The student council?</p>
+<p>Why do I have to stop by the student council? Is it related to the festival? Minamoto Risa chuckled at my confused expression and started explaining.</p>
+<p>,The student council oversees the clubs. Our school festival feels like a year-end settlement for the clubs, so the student council is very concerned about it. Especially for clubs like ours that publish a collection of works, the student council has to check the contents. We can't have content in that collection that high school students shouldn't see.</p>
+<p>Ah, she means we need some kind of censorship. When I nodded as if I understood, Minamoto Risa handed me the green-covered club collection she showed me this morning.</p>
+<p>,You seem to be close to Taira Kanna, so I'm sending you instead of me. I don't know what kind of fault she'll find if I go.</p>
+<p>Certainly, Taira Kanna could unnecessarily harass Minamoto Risa. Minamoto Risa is a Minamoto, and Taira Kanna is a Taira, after all.</p>
+<p>,Okay. I haven't read the contents, but.... There's nothing lewd or gruesome, right?</p>
+<p>,No. If you're worried, you can read it before you go.</p>
+<p>,Sensei, I also have something to print, so let's go to the education preparation room together. While you're reading the collection, I'll use the printer for a bit.</p>
+<p>At Konoe Akina's words, who decided to go with me, I went to the education preparation room with Konoe Akina.</p>
 <p>###</p>
-<p>South China, Taiwan Island. SCSMC Headquarters.</p>
-<p>Chairman Wang Chang of SCSMC was sitting in his office, waiting for a report. The SCSMC Group was pretending to help with the South China recapture operation while searching for data from their secret research lab.</p>
-<p>Thanks to SCSMC's efforts, the South China recapture operation was carried out faster than expected, and the South China government was being criticized for massacring its own people, but SCSMC didn't care. If the government was criticized, the regime would change. SCSMC didn't suffer much damage from that.</p>
-<p>,The report you've been waiting for has arrived, Chairman-nim."</p>
-<p>The reporter entered the chairman's office and said.</p>
-<p>,Tell me."</p>
-<p>,First of all, all the data from the secret research lab has disappeared. The files have all been deleted, and the CCTV has been physically destroyed so that it cannot be recovered."</p>
-<p>,As expected, North China must have done this, right?"</p>
-<p>,The information analysis team reports that there is an 87 percent chance that North China did it. The remaining 13 percent is attributed to the United States, Japan, and South Korea."</p>
-<p>Wang Chang frowned deeply at the reporter's words. In fact, there was a backup of the data at the headquarters before the incident occurred, so it wasn't a big loss, but he was angry that the data had been leaked. After taking a few breaths to calm his anger, Wang Chang opened his mouth again.</p>
-<p>,Okay, what about the Titans (巨神)?</p>
-<p>The robot project that SCSMC was conducting was secret, but the name used within the group was Titans. World War III was over, but the North and South Chinese governments still had a desire to unify China, so they continued to compete in military spending.</p>
-<p>Wang Chang thought that this Titan project would unify China and take SCSMC one step further, making it a global group, not just in South China, so he considered it very important.</p>
-<p>,Yes, one unit was destroyed on the road, but two units remained in the maintenance depot, so we were able to recover them."</p>
-<p>,One unit was destroyed? Can a cyber zombie destroy our Titan? Or is this also the work of North China?"</p>
-<p>Securing two units was good news, but the fact that one Titan was destroyed was quite unpleasant. It was the story of a Titan, thought to be invincible, being destroyed by an unknown enemy, not the military.</p>
-<p>,It doesn't seem to be cyber zombies or North China. According to the GPS records of the destroyed Titan, it was in the city of New Nanjing at the time of the North China data theft. It seems that a psychic in New Nanjing encountered a Titan that was wandering outside due to a cyber zombie-ized pilot and fought it."</p>
-<p>The reporter displayed a photo. The armor of the giant Titan was terribly crumpled, and there were countless traces of being cut with a knife. It was definitely not the traces of fighting with the military or agents sent by North China.</p>
-<p>,What is the identity of the psychic?"</p>
-<p>,The Titan's black box was destroyed, and the black boxes of the surrounding vehicles were also completely destroyed, so we couldn't find out their identity. The clue is..."</p>
-<p>Another photo was displayed. It was a fist mark on the Titan's armor.</p>
-<p>,With a fist... you took down a Titan?"</p>
-<p>,We can't know that. But we can know the size of the fist from that mark, and it is estimated that it is a sturdy man. And we tried to revive the destroyed black box as much as possible, and we were able to obtain a scene that is suspected of being the person who made the Titan like that from a small video file."</p>
-<p>Another photo was uploaded. This time, it was a slightly broken photo that was difficult to recognize, but it was a photo of a man's thigh with dark skin. It was impressive that a huge penis was dangling next to his thigh.</p>
-<p>,...Why is he naked?"</p>
-<p>,Judging from the burn marks on his skin, his clothes seem to have been burned by fire. After checking the Titan's equipment, it seems that the missile magazine is empty, so it is expected that he was hit by a missile."</p>
-<p>Wang Chang was speechless at the reporter's words. He was hit by a missile and he's still fine? It was a question that arose naturally, but since psychics who kill tens of thousands of people in an instant have already appeared in the United States, it was understandable that a guy who could withstand missiles would appear.</p>
-<p>,Can we identify him with these two photos?"</p>
-<p>,First of all, judging from the color of his thigh and the size of his... penis, he is a black mixed-race man, and judging from the fist marks and thighs, his physique is estimated to be a black mixed-race man with a height of 190 centimeters."</p>
-<p>,A black mixed-race... Well, that's not an Asian's."</p>
-<p>Wang Chang nodded, looking at the photo of the man's huge penis who destroyed the floating Titan. Thanks to his tanned skin, blurry screen, and huge genitals, it was Taira Ryuta who was excluded from SCSMC's list of suspects.</p>
-<p>______________</p>
-<p>I couldn't make an illustration today, so I'll upload a few Alik cuts that I made before ㅎㅎ</p>
-<p>A rare smiling Alik ㅎㅎ</p>
+<p>,Let's go up to the club room.</p>
+<p>Minamoto Risa opened her mouth, looking at the back of Yamashiro Ryuta, who was going to the education preparation room. Everyone except Alik and Uenozono Karen, who were not club members, went up to the second-floor club room.</p>
+<p>,Let's create public opinion to match 2 sets in the style of "for appreciation" and "for storage" that the homeroom teacher just said. I don't know what "for evangelism" means, so let's just skip it.</p>
+<p>Minamoto Risa, who went up to the club room, said while looking at the students. It seemed like she was subtly trying to create public opinion in Yamashiro Ryuta's fan club again.</p>
+<p>,Then we have two things to do today? Creating public opinion that it's good to collect 2 sets and releasing information on the Serifu fan cafe that you can get Karen's photo cards at our school festival.</p>
+<p>,Yeah, please work hard for a bit.</p>
+<p>Minamoto Risa said with an apologetic expression at Oofuchi Erika's question. She seemed sorry because the work suddenly doubled.</p>
+<p>,We're club members too, so we have to work hard.</p>
+<p>,Yeah! Lisa-tan is working the hardest.</p>
+<p>Rather, Minamoto Risa felt a little guilty because of her friends who were worried about her. She was working so hard to create results to work within the Minamoto Group as soon as she graduated.</p>
+<p>,First, I'll go discuss Karen's photo cards with the Serifu agency. Everyone, please work hard just until today.</p>
+<p>,Okay, good luck!</p>
+<p>Minamoto Risa left the club room with the support of her friends. She was leaving with the support of her friends, but she didn't feel comfortable.</p>
+<p>,Thank you and sorry, everyone.</p>
+<p>###</p>
+<p>,Hoo.... Is this the end of club commitments for today?</p>
+<p>Taira Kanna sighed and asked the vice president, Takatsukasa Yume, who was a second-year student. Takatsukasa Yume shook her head and began to speak.</p>
+<p>,We still have to check the contents of the Date Experience Club's club collection, Chairman.</p>
+<p>,Is that so? I can check that alone, so Yume, please check other things.</p>
+<p>As the festival approached, the amount of work that Taira Kanna, the student council president of St. Francisco Girls' Academy, had to do exploded. Even Taira Kanna, who had superhuman work abilities, was tired enough to sigh.</p>
+<p>,Then I'll go inspect the construction site.</p>
+<p>,Please work hard for a bit, Yume. This experience will be very useful when you become the student council president next year.</p>
+<p>When the vice president Takatsukasa Yume went out, Taira Kanna picked up her phone.</p>
+<p>,It's okay to look at my phone before the Date Experience Club students come.</p>
+<p>Taira Kanna muttered to herself and accessed the Yamashiro Ryuta-nim appreciation society site. As the St. Francisco Girls' Academy festival, Seongsan Festival, approached, the site became very active due to rumors that photo cards would be released from the Date Experience Club, so there was a lot to see.</p>
+<p>●Post number 234990. ●Author: Bloodborne</p>
+<p>●Title: How many sets of our teacher's photo cards are you going to collect?</p>
+<p>My friend is collecting two sets, one for appreciation and one for storage. Can I collect two sets?</p>
+<p>●Tsuba-tan: I think I'll collect 2 sets like that friend? You need a spare in case it gets dirty while you're appreciating it^^</p>
+<p>●Kkyuri Kkyung: I was only going to collect one set, but after seeing this post today, I'm going to collect 2 sets!</p>
+<p>●Goddess of the Moon Diana: I heard from the neighborhood that there's a cafe in the special class building where you can exchange cards. If you exchange there, you'll be able to match the sets quickly.</p>
+<p>●Ryuko-tan: What if they don't release enough club collections to match 2 sets? That's the biggest problem.</p>
+<p>●Cherry-chan: I'm going to match 3 sets, including the evangelism one~♥</p>
+<p>,Certainly.... That makes sense.</p>
+<p>Taira Kanna nodded as if she made sense after reading the post. Taira Kanna hadn't thought of dividing it into appreciation and storage until now, and she thought she only needed to collect one set.</p>
+<p>,I'm going to match two sets, no.... three sets.</p>
+<p>Taira Kanna was thinking not only about a spare for storage but also a spare for the spare. Just as Taira Kanna was making a resolution to collect three sets of her older brother's photo cards, she heard a knock on the student council door.</p>
+<p>Knock knock!</p>
+<p>,Yes, come in.</p>
+<p>Taira Kanna turned off the screen of her smartphone and answered the knock. Soon the door opened, and Taira Ryuta and Konoe Akina came in.</p>
+<p>,Welcome. How have you been, Older Brother?</p>
+<p>,How have I been.... Nothing much, right?</p>
+<p>,Am I not visible, Student Council President?</p>
+<p>When Taira Kanna looked at Taira Ryuta and greeted him very happily, Konoe Akina, who was next to her, waved her hand as if asking her to look at her too.</p>
+<p>,Of course I can see you. It's been so long since I've seen Older Brother. I was so happy that I was rude. First of all, would you both like to sit here?</p>
+<p>Taira Kanna naturally guided them to the seats opposite her.</p>
+<p>,You must have come because of the collection of works to be exhibited at the festival, right?</p>
+<p>,Yes. Here's the application form and the collection of works to be exhibited.</p>
+<p>At Taira Kanna's question, Konoe Akina handed over the green-covered Date Experience Club collection and confirmation documents.</p>
+<p>Taira Kanna put the documents down on the desk and looked at the collection, and the title of the collection was First Step.</p>
+<p>,Is there a reason why you named it First Step?</p>
+<p>,Most of our school students haven't been on a date, so I named it that to help them take their first steps in dating.</p>
+<p>Konoe Akina answers Taira Kanna's question without hesitation. Taira Ryuta, who was sitting next to her, nodded with an "ah, I see" expression. Even that slightly foolish appearance felt cute. How cute, Older Brother. Taira Kanna muttered inwardly and opened the collection.</p>
+<p>The first part was about dating types, and it contained episodes about experiencing various dates such as home dates, street dates, and drive dates.</p>
+<p>The thought that she did all these dates with her older brother, who was the club advisor, made her grip her hand without realizing it, but she quickly regained her composure and turned the page.</p>
+<p>The next content was about recommended dating outfits and items needed for dates. This was content that could be commonly seen in magazines, so she moved on to the next.</p>
+<p>The next was an in-depth interview with the advisor teacher Yamashiro Ryuta by Shido Tsubaki, the former head of the newspaper club. It contained questions about Yamashiro Ryuta, such as his preferred dates, desired female image, what he eats on dates, and what he usually does, and Yamashiro Ryuta's answers.</p>
+<p>,This is a treasure. To have so much information about Older Brother.</p>
+<p>It was Shido Tsubaki after all. Seeing her unravel what readers want with such in-depth coverage showed the qualities of a great reporter.</p>
+<p>The last content was the recipe for the food that Yamashiro Ryuta, who played the role of the other person during the home date experience, ate deliciously. It contained not only the recipe made by the students but also the recipe for the food that Yamashiro Ryuta made himself.</p>
+<p>It was a simple milk pudding, but Taira Kanna was very envious of the Date Experience Club students who ate it. Taira Kanna thought that she would definitely follow Older Brother's recipe and make it, and she closed the book.</p>
+<p>,Fortunately, there's nothing particularly problematic. But I heard that there's a bonus provided when you buy the club collection? That's also subject to confirmation.</p>
+<p>,Ah...! There's a prototype here too.</p>
+<p>At Taira Kanna's question, Konoe Akina takes out a bunch of photo cards and hologram chips from the small bag she was carrying on her shoulder.</p>
+<p>,Hah, I'll check it once.</p>
+<p>Taira Kanna started checking the photos with her voice trembling without realizing it. It was regrettable but she had to admit it. It was like a photo that was taken countless times and selected from among them. Minamoto Risa made the photo cards wonderfully. All the photos suited Older Brother, and each photo had a matching comment.</p>
+<p>A particularly favorite photo was the one taken in Korea wearing a Hanbok, which felt like a historical drama of a Korean Wave actor.</p>
+<p>-I want to be with you until the moon sets.</p>
+<p>She smiled without realizing it because there was even a matching phrase. The next was a hologram photo, and when she pressed the button, she could see Older Brother's appearance in a hologram. The surrounding background was also vividly hologramized, making it look like she could touch it. Hologram photos are good too, after all.</p>
+<p>,I'll keep the submitted club collection and bonus as student council materials. The documents are.... Here, sales are approved.</p>
+<p>Taira Kanna organized the club collection and bonus photo cards and signed the documents submitted by Konoe Akina.</p>
+<p>,Yes. Please stop by our club's collection sales point on the day of the festival, Chairman.</p>
+<p>,As the chairman, I plan to attend all club events, so don't worry.</p>
+<p>The two left the student council room like that. As soon as the two left, Taira Kanna spread the photo cards on her desk again.</p>
+<p>,Ah, ah.... Older Brother....!</p>
+<p>Taira Kanna smiled slightly eerily while looking at the photo.</p>
+<p>___________</p>
+<p>Taira Kanna.</p>
+<p>Kiyoong!</p>

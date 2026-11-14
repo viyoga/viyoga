@@ -5,44 +5,86 @@ weight = 158
 chapter = 158
 +++
 
-<p>Erotic Illustration appears! When the time came, I purified myself with a hot spring bath and headed to the shrine for the ritual. A strange mix of excitement/arousal, anticipation, and thrilling fear was leading me with a peculiar feeling.</p>
-<p>After lunch, everyone at the Inn except me had gone to the shrine, so I was the only one heading to the shrine now. The village people must have also gone to the shrine in advance, as I was truly alone on the mountain road.</p>
-<p>Although it was still raining, the path to the shrine was made of stone, so it wasn't muddy. Passing through the torii gate and entering the shrine's entrance, the Shiba Inu Mongrel was still tied to a leash. At first, it didn't even acknowledge me, but seeing me again today, it barked "Woof~!" once. It seemed like a quite intelligent guy. I gently petted the dog.</p>
-<p>"You've arrived." The Shrine Maiden, still wearing her jar, seemed to have been waiting for me, as she greeted me from the entrance.</p>
-<p>"Please come this way." Following the Hangari Muneo, I saw Professor Homura Koga in the distance. It seemed he had asked the shrine for something he had pestered me about earlier, but had been completely rejected, as his expression was very poor. Hmph, serves him right.</p>
-<p>Feeling a slight sense of satisfaction, I continued to follow the Hangari Muneo, and we arrived at a dressing room. As soon as I entered the room, about five women stripped me of my clothes and even dressed me in a fundoshi (At this moment, seeing my python, they all paused slightly.) then dressed me in a haori and hakama.</p>
-<p>But isn't this formal attire worn at Japanese weddings? You said it was an offering, Simyeonui ttal? I'm not ready for marriage yet!</p>
-<p>"The ritual begins at 7 PM, so please appease your hunger by eating some rice cakes until then." The Hangari Muneo brought rice cakes and chopsticks and fed me the rice cakes one by one. Hmm, Japanese rice cakes were usually too sweet for my mouth, but these rice cakes were just right. Like a baby bird receiving food from its Mother Bird, I gulped down the rice cakes as they were given to me.</p>
-<p>After eating a meal of rice cakes to some extent, and as if the time had come, it was past 7 PM, and a little later, she took me away. The Hangari Muneo led the way, and I was carried in something resembling a palanquin through the crowd. Except for the Kanto University people who stood blankly, everyone else pressed their palms together and bowed their heads, seemingly chanting an unknown order.</p>
-<p>Although it had grown dark, torches were set up everywhere, and the fire flickered, making the surrounding scene clearly visible. Thus, I could clearly perceive Professor Homura Koga's expression as he looked at me. The torches danced and blazed despite the pouring rain, and the professor's face, visible in the flickering light of the torches, was distorted like a ghost's.</p>
-<p>If I could use Telepathy like in Martial Arts novels, what would you do? What can you do besides frown? I would tease him, but it was a pity. Similarly, among my traits, I do have Telepathy, but it hadn't appeared yet, so I couldn't use it. I could only be satisfied with showing the most sneering smile I could.</p>
-<p>The palanquin carrying me slowly parted the people and passed through. Listening to the similar chants each person muttered, we arrived at a place where a sacred rope was strung. From here, the village people and customers could not enter. It was a place where only I, the Hangari Muneo, and the palanquin bearers could come.</p>
-<p>Passing the sacred rope and going a little further, a place like a cave appeared. Torches seemed to have been prepared in advance and were hung inside the cave.</p>
-<p>Going a little further inside, the palanquin bearers set the palanquin down on the ground and went outside. Only the Hangari Muneo and I remained inside the cave.</p>
-<p>"Now, you must walk down." At the Hangari Muneo's words, I nodded my head and descended into the cave. The cave was conveniently arranged for descent like stairs, so I could go down easily. Since the Hangari Muneo was holding something like a lantern, we could descend without difficulty even if the torches were interrupted midway.</p>
-<p>After descending to some extent, there was a flat ground and a place where water had collected, like an underground lake. On the flat ground, a simple ritual table had been prepared in advance, and in front of it, a red cushion that seemed to be my seat was placed.</p>
-<p>"You can stay here 'a little' and then come." "A little?" The Hangari Muneo did not answer my question, but placed a lantern beside me. 'A little' is too abstract, isn't it?</p>
-<p>"When you come up, you can carry this lantern." And then she suddenly ascended out of the cave. Since she had been wearing the jar from the start, it seemed she could easily climb out of the cave even without a lantern. With movements that made me wonder if she had mastered 'Mind's Eye', I watched the Hangari Muneo ascend like a ghost, then turned my head.</p>
-<p>"I guess I'll stay for about an hour and then leave." I muttered to myself and collapsed onto the cushion. I checked my phone, but there was no internet connection. Nowadays, there's no place without internet, but it doesn't work here. Since there was nothing to do without internet, I sat quietly, when suddenly, a "Bogeul...!" sound came from somewhere. It sounded like bubbles bursting, and it was the underground lake. As I approached, something was bubbling up.</p>
-<p>What is it? Is it a fish? As I moved a little closer to examine the bubbles, something suddenly shot out. That something was a giant octopus tentacle. Its length seemed to be almost 10 meters. The octopus's tentacle instantly wrapped tightly around me, and dragged me into the water.</p>
-<p>Fuck, what the hell?! Since it happened in an instant, I tightly shut my eyes in preparation for colliding with the water's surface.</p>
-<p>But there was no shock. When I opened my tightly shut eyes, the octopus tentacle and the water were gone, and I was in a place like the interior of a palace. I stood before a giant door inside that palace. As I stood still, a sound echoed in my head. As soon as I heard the sound, I knew. I didn't know what method was used, but I immediately thought, "I've come to where Simyeonui ttal lives."</p>
-<p>-Come here. Excuse me, I can't hear you very well.</p>
-<p>-Is this much sufficient? "Yes. I can hear you now."</p>
-<p>-Then come inside. As Simyeonui ttal said, I stood before the giant door and pushed it. The door was incredibly massive, but it opened as easily as opening a restaurant door.</p>
-<p>Inside the door was water. It was dark like the deep sea, but luminous jellyfish swam around, so it wasn't dark. Strangely, I didn't feel suffocated. As I continued forward, she was sitting in a place where countless jellyfish had gathered, shining like the midday sun.</p>
-<p>From her gray skin and purple eyes to her tentacle-like hair, not a single thing I had depicted was possessed by a human, and it all felt like something humans would not prefer, yet Simyeonui ttal's appearance, possessing all of it, was incredibly beautiful.</p>
-<p>I continued walking blankly until I was directly in front of Simyeonui ttal.</p>
-<p>-My Partner. I have waited for a very long time. "Well, we met when I almost died at the hotel, so it's been... a few months, hasn't it?"</p>
-<p>-I was not speaking of that time. Since humans came into being, I have waited countless hours for a man to my liking. The ritual you came for was also to offer me a man. But none of them pleased me, so I fed them to my pets... Hmm, that's a bit creepy, isn't it? Doesn't that mean if I hadn't pleased her, I would have become food for the jellyfish flying around Simyeonui ttal?</p>
-<p>-Do not worry about that. No man has ever given me a god as a gift. Even including the rare souls who have lived several lives. "It's nothing special. I just wanted to give it to you, so I did. I just thought of you."</p>
-<p>At my words, Simyeonui ttal gave a very satisfied smile. Then she rose from her seat. She approached me closely and suddenly embraced me. Her incredibly large and soft breasts enveloped my entire face. It wasn't that Simyeonui ttal's height was greater than mine, but she was floating in the water, so when she hugged me, her breasts came to rest before my face.</p>
-<p>Simyeonui ttal's breasts were soft and elastic, possessing all the virtues a breast could have.</p>
-<p>Simyeonui ttal gently stroked the back of my head with her hand, hugged me fully, then released the hug and stood close, meeting my eyes. Simyeonui ttal's beautiful purple eyes seemed to draw me in.</p>
-<p>-Humans usually kiss first before mingling bodies, don't they? "Not necessarily, but that's usually the order."</p>
-<p>-If you wish to kiss my mouth, then try it. As if she had seen it somewhere, Simyeonui ttal closed her eyes and offered her lips. I did not suppress my instincts and kissed Simyeonui ttal. Come to think of it, I had done something when I almost died at the hotel, so this might be the second kiss, or was it the third?</p>
-<p>My stray thoughts were swept away and vanished by the immense pleasure that immediately followed. Simyeonui ttal's kiss was sweet, and so delightful that pre-cum naturally flowed from my cock. Simyeonui ttal also seemed to be enjoying it, making nasal sounds like "Heueung! Heueut!" while kissing.</p>
-<p>Jjop, Jjyuup! Chuhup! Jjok! We kissed, making lewd sounds that would arouse anyone who heard them. After a kiss that felt as long as eternity yet as short as an instant, we gasped for breath and looked at each other. Simyeonui ttal was looking at me with a deep smile. I probably had a similar expression.</p>
-<p>-So this is what it felt like. Back then, I was merely conveying knowledge, so I couldn't properly feel it. "I also felt very good."</p>
-<p>-This isn't the end, is it? Simyeonui ttal's face was full of expectation. I grinned and answered confidently.</p>
-<p>"Of course."</p>
+<p>,Oh my? Who is this handsome boy?</p>
+<p>,He's my boyfriend.</p>
+<p>,Hello, Mother. I'm Jin Yong-tae.</p>
+<p>Ha Ju-yoon's voice was gentle. Unlike that gentle voice, the eyes looking at me were very calculating. She scanned me from head to toe and then smiled. Seeing her smile, does that mean I passed the test?</p>
+<p>,You're really handsome? Come inside first.</p>
+<p>,Mom, don't talk like the landlord. This is my house, you know?</p>
+<p>,Excuse me.</p>
+<p>Han Yu-gyeong clicked her tongue at Ha Ju-yoon's words and took off her shoes, and I politely said excuse me and entered the house. First, I put my carrier in the empty room and headed to the kitchen where Han Yu-gyeong and Ha Ju-yoon were.</p>
+<p>The two were sitting at the dining table, boiling water in the kettle, thinking of drinking coffee.</p>
+<p>,So, you two are dating?</p>
+<p>,Yeah....</p>
+<p>,Yes, we are dating.</p>
+<p>,Hmph....</p>
+<p>Ha Ju-yoon narrowed her eyes and looked back and forth between me and Han Yu-gyeong, then burst into laughter, *hu hut*! And she makes coffee for Han Yu-gyeong and me. It was instant coffee, but it was quite delicious because it was my first time drinking it in a while.</p>
+<p>,Hohoho! Don't worry. Why would I interfere with my daughter's love life?</p>
+<p>,Really? You're not going to nag?</p>
+<p>Han Yu-gyeong asked, her face brightening at Ha Ju-yoon's words. In fact, in the game, Ha Ju-yoon wasn't very interested in the protagonist. She was constantly busy because of her acting career, and because she didn't have a good relationship with her husband, Han Seong-jae, she naturally didn't share much with her child, so they were a bit awkward.</p>
+<p>But still, this world wasn't exactly the same as the game, so the relationship between Ha Ju-yoon and Han Yu-gyeong didn't seem too bad.</p>
+<p>,Well, if your father finds out, he'll go crazy.... That man only thinks about handing his daughter over to another family.</p>
+<p>,Anyway, Mom, you don't talk to Dad much, so just let this go.</p>
+<p>,Hehehe.... We'll see?</p>
+<p>Looking at Ha Ju-yoon smiling at me, making her eyes like crescent moons, I felt a little fluttery. How could she be the mother of a college-aged daughter?</p>
+<p>According to the setting, she was a child actor who was a star from a young age, and she met Han Yu-gyeong's father, Han Seong-jae, at the age of 19 and became pregnant, which means she's 39 years old now. No matter how good the times are and how advanced anti-aging technology is, Ha Ju-yoon was naturally blessed.</p>
+<p>,So, how did you two meet?</p>
+<p>Ha Ju-yoon asked Han Yu-gyeong and me with a face like a girl who loves to hear love stories, as if she were listening to a friend's love story. Han Yu-gyeong looked at Ha Ju-yoon's eyes, sighed, and opened her mouth.</p>
+<p>,So, when I passed the college entrance exam and went to Seoul to play....</p>
+<p>Han Yu-gyeong told Ha Ju-yoon about what happened, quite distorted. She couldn't tell her mother that they fell in love at first sight and had *yasseu* on the day they met, so she embellished it appropriately.</p>
+<p>,Oh my, oh my, it's like a movie, honey. Meeting a man who saved you from thugs....</p>
+<p>Ha Ju-yoon seemed impressed because it wasn't a typical meeting where they developed from a blind date or college friends into lovers.</p>
+<p>,Yong-tae, are you good at fighting?</p>
+<p>,I'm just good enough to not get beat up anywhere.</p>
+<p>When I answered with a smile, Ha Ju-yoon looked at me with a *heuheung* and a smiling eye. Hey, lady, why are you looking at me with smiling eyes like that? If you look at me like that, most guys will get the wrong idea.</p>
+<p>,What did you say Yong-tae does for a living now?</p>
+<p>Hmm, what should I say? Should I say Human Resources Development Center or PMC President? Well, legally, my PMC isn't mine, so I should just say I work at the Human Resources Development Center.</p>
+<p>,I work at the Taira Group Human Resources Development Center.</p>
+<p>,Oh my, you look young, how did you get into a major Japanese company?</p>
+<p>It was natural for Ha Yu-gyeong's peer to wonder how I got into a major company in Japan. Ha Ju-yoon still doesn't know that I'm a *Jaeil* Korean and that I'm the grandson of the Taira Group Chairman.</p>
+<p>,Mom, by the way, what brings you here?</p>
+<p>,Ah! That's right. There's something.... Look at this.</p>
+<p>At Han Yu-gyeong's question, Ha Ju-yoon turned on her smartphone and showed her an article. The title of the article was JBS's Jun, Arrested and Investigated on Drug Charges! And in the photo, there was a photo of a man who looked like JBS's Jun, who had a moderately handsome face.</p>
+<p>JBS seems to be the name of an idol group, and Jun seems to be an idol belonging to that JBS, but what does this Jun guy being arrested for drugs have to do with Ha Ju-yoon? When Han Yu-gyeong and I sent her looks asking for more explanation, Ha Ju-yoon clapped her hands, saying, Ah, that's right!</p>
+<p>,Ah! I didn't explain the whole story. I had a music video shoot with him today, but it was canceled because of this. So, I had some time left over. And since I was nearby, I came to see my daughter's face~!</p>
+<p>Ah, I see.... Certainly, the drug problem was getting more and more serious. It was said that drugs were becoming more prevalent because security was deteriorating worldwide.</p>
+<p>,But what kind of story is it that Mom and JBS's Jun are filming together?</p>
+<p>,Ah, they said they were filming a story about the forbidden love between a boy and a teacher, and Jun was recently trying to challenge himself in acting, so the director decided to take advantage of his fame and paired him with me, who is still good at acting.</p>
+<p>I don't know why she's emphasizing forbidden while looking at me, but anyway, it seemed that the other actor was being investigated for drugs, so today was canceled. Ha Ju-yoon was telling that story and staring at me intently. And she smiled subtly and looked at Han Yu-gyeong.</p>
+<p>,Okay. Let's do this! I won't tell your dad, so I'll borrow Yong-tae for a while. With this kind of face and this kind of body, this music video will be a huge hit.</p>
+<p>,Wh-what are you talking about, Mom? Yong-tae doesn't know anything about acting.</p>
+<p>Han Yu-gyeong said, very flustered, but I was also flustered. Suddenly telling me to film with her. No matter how good my looks are, I don't know anything about acting, so can someone like me do it?</p>
+<p>,Why are you flustered? This role doesn't require that much acting. That's why that Jun guy was going to do it. Just lend him to me for a day or so. Or should I tell your dad everything?</p>
+<p>,No, don't tell Dad.... And! Is it okay for Mom to decide such an important thing for filming? The director or production side decides that.</p>
+<p>,Then I'll get permission from the director? Yong-tae, turn your face this way for a moment? That's right. Good, good.</p>
+<p>What are you doing? Ha Ju-yoon took pictures of me, changing the angles here and there. And she immediately turned on KakaoTalk and sent my picture somewhere. She's probably sending it to the director. Ha Ju-yoon, who handled everything like a storm without giving me and Han Yu-gyeong a chance to come to our senses, was amazing.</p>
+<p>,Yong-tae, it's good for you to gain new experiences and earn money, right?</p>
+<p>I have a lot of money, Mother? I held back from saying that until the end of my lips and just said, Haha, I'm a little embarrassed.</p>
+<p>,Oh, I got a call right away. Hello? Director, how is it? The mask is good, right?</p>
+<p>Seeing Ha Ju-yoon receiving a call directly from the director, I looked at Han Yu-gyeong as if to ask her to do something.</p>
+<p>,I'm sorry. Mom has been a bit headstrong since a long time ago. And I didn't know she would threaten me like this, using Dad as an excuse. If she goes all the way up to the director or producer.... I think I'll have to help Mom for a day in the end.</p>
+<p>Han Yu-gyeong apologized to me, saying she was very sorry. The director likes me, but if I say I won't do it, Ha Ju-yoon will be in trouble. I can't help it.... As a future son-in-law, I have to help my future mother-in-law a little.</p>
+<p>,Great! The director likes it a lot? He said that if it's someone as handsome as Yong-tae, it will be a huge topic!</p>
+<p>,I understand. I'll help you for a day or so.</p>
+<p>,Instead! I'm going to the filming set too.</p>
+<p>I hesitated a little when Han Yu-gyeong said she was going to the filming set too, but I quickly smiled and nodded.</p>
+<p>,If our daughter goes, people in the entertainment industry won't leave her alone.... Yu-gyeong, you must never become a celebrity, okay?</p>
+<p>,Mom, you know I'm not interested in that.</p>
+<p>Ha Ju-yoon, satisfied with Han Yu-gyeong's words that she wasn't interested, laughed *hohoho* and got up from her seat. It seemed like she was about to leave.</p>
+<p>,I'll contact you by phone when I'll see you, and Mom will go now. Mom is so clueless, right? You two must want to be together.</p>
+<p>,No, just leave quietly. Don't say weird things.</p>
+<p>,Okay, honey. Yong-tae, I'll see you later too.</p>
+<p>Ha Ju-yoon winked at me and went out of the house. As soon as Ha Ju-yoon left, Han Yu-gyeong looked at me and opened her mouth.</p>
+<p>,I'm sorry, Yong-tae. Instead, tell me anything you want. I'll listen....</p>
+<p>Her mouth was saying sorry, but her eyes were very horny. I smiled and got up from my seat. And I lowered my zipper. My *jaji* was already hard, seeing Han Yu-gyeong's horny appearance.</p>
+<p>,Then you know what to do when you see this, right?</p>
+<p>,Eung♥ Our Yong-tae is very angry, so I have to calm him down, right?</p>
+<p>Han Yu-gyeong knelt down in front of me and slowly began to observe my *jaji* for the first time in a long time, without immediately putting it in her mouth. And she started licking my balls first.</p>
+<p>*Tti! Tti! Tti! Tti!*</p>
+<p>Suddenly, I heard the sound of the door lock password being entered, and the door opened and Ha Ju-yoon came back in. It was such a sudden thing that we couldn't do anything and just froze.</p>
+<p>,I thought I should definitely tell you this, so I came back. Make sure to use condoms....! Oh my!!</p>
+<p>While saying oh my, Ha Ju-yoon's gaze remained on my *jaji* until the end. Her eyes widened a lot, as if my size was quite impressive.</p>
+<p>,Ah! Mom!!</p>
+<p>,I'm sorry~! I'm really going now.</p>
+<p>,Ah, really~! Why are you doing this?</p>
+<p>Han Yu-gyeong seemed a little annoyed, watching Ha Ju-yoon disappear while looking at my *jaji* until the end while closing the door. But I can't help it. It was natural to be surprised when you saw my thing for the first time. Besides, since Ha Ju-yoon is a married woman who knows everything, she seemed to have seen my *jaji* impressively.</p>

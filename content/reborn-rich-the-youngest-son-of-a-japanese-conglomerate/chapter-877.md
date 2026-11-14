@@ -5,85 +5,76 @@ weight = 877
 chapter = 877
 +++
 
-<p>"That is Minamoto Media-Computer Technology."</p>
-<p>The Minamoto Media-Computer Technology I mentioned was an Affiliate Company of the Minamoto Group that produced VR machines, computers, console games, and animation.</p>
-<p>As an Affiliate Company of the Minamoto Group, it was quite large in scale, but within the Minamoto Group, which was composed of members from prestigious Families, there was an atmosphere of slight disdain for it, as it produced content and products enjoyed by ordinary citizens, who were considered inferior to themselves. That's why the company name was stiffly chosen, so as not to be perceived as a Game Company.</p>
-<p>Because the Minamoto Group held such an elitist attitude, Minamoto Media-Computer Technology and Minamoto Entertainment were definitely lagging behind Taira Games and Taira Entertainment.</p>
-<p>However, with the rise of cyber implants, and as cyber cities like Neo Tokyo, developed by the Taira Family, and Nara Technology Autonomous City, developed by the Minamoto Family, came into being, VR technology was gaining more and more importance. I believed that Minamoto Media-Computer Technology, which held the most VR technology within the Minamoto Group, would become prominent.</p>
-<p>Furthermore, in the world of the Megacorp's Youngest Son, there were mini-games within games, allowing one to play popular games in this world. So, I also thought that Minamoto Lisa could simply join a team that creates trending games and reap the benefits. If there wasn't a promising team within the Minamoto Group, they could just acquire a suitable company that makes popular games.</p>
-<p>"...Therefore, I think going to Minamoto Media-Computer Technology, which has VR Technology, wouldn't be a bad idea in the future."</p>
-<p>I didn't force Minamoto Media-Computer Technology, which I had recommended. Although I had made the recommendation, the final Decision was Minamoto Lisa's.</p>
-<p>Since it was a matter concerning Minamoto Lisa's own future, I couldn't force her. And thinking about it again, there might be even better Affiliate Companies, so it would be good to leave Minamoto Media-Computer Technology as one Choice and look for other candidates together.</p>
-<p>"That certainly makes sense. I'll add what you said to the list of candidates. Thank you, darling."</p>
-<p>As expected, Minamoto Lisa wasn't hasty. Even if I only spoke of the advantages of Minamoto Media-Computer Technology, there would likely be disadvantages unknown to outsiders. She was probably trying to find those out as well.</p>
-<p>Minamoto Lisa, perhaps intending to express her sincere gratitude, stood up from her Seat, approached me, and embraced me. The feeling of Minamoto Lisa's large breasts pressing against my Body was incredibly pleasant.</p>
-<p>Minamoto Lisa, who had held me for a while, finally gave me a Kiss, then took a step back with a demure Expression.</p>
-<p>"I want to go further, but we're too close to the club room, aren't we?"</p>
-<p>"Yeah. A lot of People are moving around these days, too...."</p>
-<p>Minamoto Lisa's sweet Breath tickled my Neck, but I forced myself to endure it and nodded my Head. Not only Students, but also cleaning teams and many personnel checking if the Facilities were intact before the new semester began were moving around, so it was right to be careful about Sex within the School.</p>
-<p>"Instead, how about we go on a Date after today, for the first time in a while?"</p>
-<p>Minamoto Lisa was busy with Interview Preparation and Worry about the Work she would undertake at the Minamoto Group, but I thought one day might be alright, so I asked.</p>
-<p>"Sorry, but I'm too busy to make Time for a Date."</p>
-<p>"As expected, you're busy, so it can't be helped...."</p>
-<p>Minamoto Lisa said with a resolute Expression. She would indeed be busy, having to prepare for two things at once.</p>
-<p>"So, I'll drop by your Home around 3 or 4 o'clock. I can spare an hour or two. Shower and wait for me, darling."</p>
-<p>Ah...! So, she meant she didn't have Time for a Date, but she could spare some Time for Sex. Minamoto Lisa smiled sweetly at me, then took my cheeks in both Hands, pulled me closer, and gave me a light Kiss.</p>
-<p>"See you later, darling♥"</p>
-<p>Then she turned her Body, waved at me, and left the Counseling Room. This concluded the counseling, but thanks to Minamoto Lisa, my cock was fully erect, and I couldn't leave the Counseling Room. I waited for my Erection to subside for a while, then exited the Counseling Room and headed to the club room.</p>
-<p>"I have to go somewhere else for Work today, so if you have Time, you can leave on your own, okay?"</p>
-<p>I told the Students I couldn't hold the closing assembly today and left the club room. In the club room, they were gathered among themselves, whispering something, and seemed to have little Interest even after I came and went.</p>
-<p>"I'll tell the Kids again."</p>
-<p>Konoe Akina smiled gently and replied, so I nodded my Head and closed the club room Door. Then I went down to the 1st floor and headed to the Infirmary.</p>
-<p>Knock.</p>
-<p>"Come in."</p>
-<p>When I knocked, Kijimoto Jurie's Voice was heard. I opened the Door and entered the Infirmary.</p>
-<p>"Ah, Yamashiro-sensei!"</p>
-<p>Kijimoto Jurie greeted me, stood up from her Seat, and looked at me. Seeing her sitting in front of the computer, it seemed she was writing a Paper/Thesis.</p>
-<p>Kijimoto Jurie, a Doctor, Infirmary Teacher, and PhD in Clinical Microbiology, would write papers when she had no Infirmary Teacher duties. Since this was the most leisurely time for an Infirmary Teacher, I assumed she was writing a Paper/Thesis.</p>
-<p>"Oh, what brings you here, sensei?"</p>
-<p>Kijimoto Jurie's pupils were filled with a complex mix of slight disappointment, sadness, and even loneliness. This was because Kijimoto Jurie had only recently learned that I would be quitting my teaching job after this semester.</p>
-<p>She probably had some Guess about my Relationship with the Students, and with me suddenly leaving the School, I wondered if she felt abandoned.</p>
-<p>But I hadn't abandoned Kijimoto Jurie. Having attended St. Francis Girls' Academy, I owed Kijimoto Jurie a considerable Obligation (especially physically), so I was preparing a place for her.</p>
-<p>"Ah, I'm going to make a Proposal."</p>
-<p>"What is it?"</p>
-<p>Kijimoto Jurie was curious about what kind of Proposal I would make, seeming puzzled by my sudden announcement.</p>
-<p>"Do you have any thoughts of quitting St. Francis Girls' Academy?"</p>
-<p>"What?"</p>
-<p>Kijimoto Jurie asked again in response to my Question. Anyone would ask again if suddenly asked if they intended to quit their Work. It was my Mistake to speak so hastily. I should explain in more detail.</p>
-<p>"I'm thinking of quitting teaching and starting a company. I was wondering if Jurie-sensei could take charge of the Infirmary for that company...."</p>
-<p>"I'll do it!"</p>
-<p>Kijimoto Jurie answered before I even finished speaking. She was so happy that she stood up from her Seat and hugged me tightly.</p>
-<p>"I'll do it! I'll do it!"</p>
-<p>"First, you should hear the Conditions...."</p>
-<p>"No, I'll just do it."</p>
-<p>I told her to hear the Conditions, but Kijimoto Jurie, with a resolute Attitude, just said she would do it. Isn't it usually the opposite?</p>
-<p>"Just listen for now. The Work won't be very different. You'll just take care of occasional Patients, like your current Work, and write papers."</p>
-<p>"But what kind of company is it?"</p>
-<p>Still, she seemed curious, asking with sparkling Eyes. In fact, the company I planned to create was an Assassin team, including Alik, some Students from St. Francis Girls' Academy, and Shimokawabe Airen.</p>
-<p>Of course, Assassination is illegal, so I wouldn't establish it as a PMC. I would package it as a small company disguised as my personal secretary team or accounting team, but its main activities would be the Removal of my Enemies and, when PMC battles occurred, infiltrating to perform the Role of a beheading unit.</p>
-<p>Naturally, it was Work that required medical support, so I planned to create an Infirmary or a small Hospital, which is why I decided to scout Kijimoto Jurie.</p>
-<p>However, it was a bit awkward to tell Kijimoto Jurie about this Assassin unit. I didn't know if Kijimoto Jurie, who had lived peacefully as a Doctor, Infirmary Teacher, and Scholar until now, would accept my Story.</p>
-<p>"...."</p>
-<p>"Yamashiro-sensei, please tell me honestly. Even if you're setting up a Drugs Factory, I'm on your side...!"</p>
-<p>As I couldn't answer easily, Kijimoto Jurie adopted an Attitude as if she would accept anything I said. Since she's saying this much, should I tell her honestly?</p>
-<p>"Before I talk about the company, I should reveal my True Identity. I'm actually not Yamashiro Ryuta."</p>
-<p>Since things had come to this, I decided to reveal my True Identity, as I needed to tell the full Story.</p>
-<p>"I am Taira Ryuta."</p>
-<p>"Really? I also have something I haven't told you."</p>
-<p>Kijimoto Jurie wasn't particularly surprised by my Words. Instead, she beamed, as if it was a good thing I had hidden my True Identity, and said she also had something she hadn't told me. Was there something else besides being an Infirmary Teacher, Doctor, and Scholar?</p>
-<p>"Actually, besides my work as an Infirmary Teacher, I'm also an Assassin employed by the St. Francis Education Foundation."</p>
-<p>"What?!"</p>
-<p>What the hell is this now? Kijimoto Jurie was an Assassin employed by the Daigo Family's St. Francis Education Foundation, like Home Ec Teacher Shimokawabe Airen or Seizawa Shii?</p>
-<p>"My Specialty is Assassination by poisoning targets using my Major in Clinical Microbiology."</p>
-<p>"Then the papers Jurie-sensei writes...?"</p>
-<p>"That's right, I'm creating theories about new addictive substances, Heh...!"</p>
-<p>Seeing her laugh somewhat dangerously, I doubted if she was truly the kind Infirmary Teacher I had shared lunch with at St. Francis Girls' Academy until now.</p>
-<p>"If sensei had abandoned me, I was going to poison you and have you taxidermied, so I could look at only sensei for the rest of my life.... But this is even better. You can meet other Women, just don't abandon me. Sensei, I love you...♥"</p>
-<p>What? Taxidermy me...?! Kijimoto Jurie's Words sent shivers down my spine, giving me Goosebumps. Why are so many of the Women I meet not normal? Could it be that I'm the strange one?</p>
-<p>Requested by TheDreaming-nim: Lisa-ttang fitting room, department store Exposure Filming~!</p>
-<p>Fitting room~!</p>
-<p>Department store~!</p>
-<p>The department store image shows her getting very angry at the phone Photo hehehe.</p>
-<p>There were too many People in the background, to the point of ruining the drawing's Atmosphere, so I mainly uploaded images without People hehe. The last image was the minimum number of People hehe.</p>
-<p>Yukiko Practice~!</p>
-<p>I'm trying to create them while changing the art style hehe.</p>
+<p>and breast chapter check contains exposure please surroundings this your</p>
+<p>Shimokawabe Airen looked at the white bag in her hand. On the outside of the bag, 『決鬪狀』 (Letter of Challenge) was written.</p>
+<p>Seugeok.</p>
+<p>Shimokawabe Airen cut off the top part of the Bag with her katana, then took out the Paper inside and unfolded it to read.</p>
+<p>-To Swordsman Shimokawabe Airen, Personal.</p>
+<p>With the Swords of Kyoken (Mad Dog) and Kenju (Sword Beast), we wish to evaluate your Skill, so if you have the Will to duel, come here.</p>
+<p>Also, we have heard rumors about your excellent Disciples, and to find out if that rumor is true, we wish to proceed with a Match between the Disciples as well.</p>
+<p>If you are not a Coward, we believe you will engage in a sword discussion, clashing Swords with us.</p>
+<p>-Sent by the Twin Absolutes of the Japanese Sword World, Kyoken and Kenju.</p>
+<p>"How rude...."</p>
+<p>Having finished reading the letter, Shimokawabe Airen frowned, revealing an unpleasant Expression. She already knew such Contact would come, but the content Provoking in a Forced way was too childish. Even in Japan, where there were once many Swordsmen, there weren't many Actual combat Swordsmen, so Shimokawabe Airen knew Nobuchi Tamehito and Senno Yoridake, who called themselves Kyoken and Kenju, well.</p>
+<p>The two were legendary Swordsmen, famous for participating in the Third Great War solely to cut down people. They were said to have massacred over a thousand People in China and established the Theory of Killing Sword, so when she heard these two were Affiliated with Anyaji, she found it surprising. She didn't know if it meant Takakusaki Gengo was that strong, or if Anyaji's Philosophy suited the two.</p>
+<p>"I heard they would use various Methods to Attack us simultaneously, but I didn't think they would even put our names in the Letter of Challenge. Are they trying to Root us out that much?"</p>
+<p>Naruse Shiyo, who read the Letter of Challenge with her next to her, said with a slightly dumbfounded Expression. Even if one were to accept the childish Provocation about evaluating Skill or calling them Cowards, she didn't expect them to specifically pick out the Disciples and tell them to come together. Of course, even if the Letter of Challenge had said not to come, Naruse Shiyo and Alik would have followed anyway.</p>
+<p>"It's Provoking the Pride of a martial artist. They probably sent a Letter of Challenge to Kinui Tachio-ssi as well. Kinui Tachio-ssi, in particular, holds a strong grudge against Anyaji, so they must have thought they could easily draw him in."</p>
+<p>Shimokawabe Airen thought a Letter of Challenge would have gone to Kinui Tachio's side as well, whom Taira Ryuta called 'Yoda old man'. Even without that, because of the Information provided by Taira Ryuta's side, they would have prepared and responded to that Letter of Challenge, but even if he hadn't known in advance, Kinui Tachio has a grudge for losing a Disciple to Anyaji, so if a Letter of Challenge had come, he would have responded to that challenge without hesitation.</p>
+<p>According to Information heard through Kyoshiro and Athena, the Spies placed in Anyaji, today, the day after Graduation, they would divide their forces into several branches and Attack Kinui Tachio and the special class that was present during Anyaji's Attack on Kinui Tachio's Dojang.</p>
+<p>Of course, it was a scheme by Taira Ryuta's side to provoke an Attack, but Anyaji's side didn't know that.</p>
+<p>"Everyone finished cleaning their Swords, right?"</p>
+<p>"Yeah~!"</p>
+<p>"Alik, finished cleaning."</p>
+<p>Today's battle was the day the Swords received from Ichimonji Harugoro would make their Actual combat Debut. So, everyone had swung their Swords for several days, gotten used to them, and kept them cleaned so they could cut down Enemies at any time.</p>
+<p>"Since we've received the Letter of Challenge, let's depart now."</p>
+<p>The Place written in the Letter of Challenge was a sparsely populated Park in the north of Miyashi. Because rumors spread that Naked ghosts appeared, there were almost no People, making it the perfect Place for a Duel.</p>
+<p>The Means of transport was an electric off-road bike that Shimokawabe Airen often made Alik and Naruse Shiyo Practice with during Training. What Shimokawabe Airen felt while carrying out her missions as a secret Assassin for St. Francis Girls' Academy was that with vehicles or regular bikes, she couldn't go quickly to the Enemy's hidden stronghold in rough terrain.</p>
+<p>In Shimokawabe Airen's view, an electric off-road bike that could even go on rough mountain roads was perfect. Because it uses an electric motor, the noise is also relatively low. Seeing that Alik and Naruse Shiyo would also undertake missions in the future, she taught them how to drive bikes during Training.</p>
+<p>Everyone wore cyber Suits that didn't look much different from bike Suits, and when they inserted their Swords into the separately attached Sword hangers next to the black bike, the Preparation for departure was complete. Just in case, they even inserted a spare Sword on the opposite side, and the three departed towards the Park in the north.</p>
+<p>Seizawa Shii wore a cyber Suit for the first time. Until now, while on missions, she would wear a bike Suit or, due to the special nature of Infiltration missions, a Gothic Lolita Dress, but before this battle, Taira Ryuta had given her a cyber Suit as a Gift.</p>
+<p>"It suits you well."</p>
+<p>Sakagami Rena, who helped Seizawa Shii put on the cyber Suit, said, looking at Seizawa Shii. The cyber Suit, with a white background and black Points interspersed, definitely suited Seizawa Shii well. Because Seizawa Shii had such good Style, such tight-fitting Clothes also suited her well.</p>
+<p>"Thanks, Renappi. It's the first time moving together like this, so I'm a little nervous?"</p>
+<p>Seizawa Shii, as a fixer, always moved alone. Of course, there were intermediaries, but the intermediaries, as their name implies, only mediated requests; at the Scene, Seizawa Shii was alone. Perhaps because of that, when she thought of doing a mission with a Friend, she seemed a little nervous.</p>
+<p>"Anyaji's side saw us as the same Faction...."</p>
+<p>Anyaji's side, while organizing the Information received from Kyoshiro, divided the hostile personnel towards them at St. Francis Girls' Academy into a total of Four Factions.</p>
+<p>First, Fujigasaki Rinka's Disciple, Yamashiro Ryuta's Faction, where Saionji Diana and Otagi Yuka were considered to belong; next was Yoda old man, Kinui Tachio, and Kujo Kina's Faction; and the fixer Faction to which Seizawa Shii and Sakagami Rena belonged; and finally, Shimokawabe Airen, Alik, and Naruse Shiyo's Swordsman Faction, divided into 4.</p>
+<p>That's why Seizawa Shii and Sakagami Rena are together today. Still, their compatibility wasn't bad.</p>
+<p>Seizawa Shii possessed immense Physical Body Ability and melee combat Ability, but her mind's Defense was weak. Compared to Seizawa Shii, Sakagami Rena's melee combat Ability wasn't very high, but she possessed various Illusion Magic, Jusul, and Ninjutsu, so they could be said to have a mutually complementary Relationship.</p>
+<p>If Seizawa Shii were to suffer a mental Attack, Sakagami Rena could release her, and if Sakagami Rena were directly Attacked, Seizawa Shii could block for her.</p>
+<p>"By the way, Funayama Seigo, this Guy, isn't he truly absurd? When was it that he tricked me and cast Jusul on me, and now he's Contacting me saying he wants to apologize. Anyone would think it's suspicious.... Isn't he an idiot?"</p>
+<p>"On the contrary, by making you think it's suspicious, he must have thought you'd call him. Because he knows you hold a grudge against Funayama Seigo, he must be trying to lure you in."</p>
+<p>This Morning, Funayama Seigo sent a Text Message to Seizawa Shii. It was a Contact that anyone would find awkward, saying he wanted to meet and apologize for what happened then.</p>
+<p>Seizawa Shii also, having heard the Story about the Spies placed in Anyaji, roughly knew how things would proceed, but when he came out so brazenly, Anger surged. "How much does he take me for granted?" With that thought, she felt like smashing Funayama Seigo's Head immediately.</p>
+<p>"Don't get too angry. We are few in number, and the Opponent will bring many. If it's Funayama Seigo, he will definitely bring a crowd of People and Pressure us. There's nothing good about getting agitated."</p>
+<p>Sakagami Rena once again, soothing the angry Seizawa Shii, said that the Situation was numerically disadvantageous. In a numerically disadvantageous Situation, if she even got agitated, the Win Rate would drop endlessly, so it was important for Seizawa Shii to maintain her composure. And if she was in an agitated state, mental Jusul would work even better.</p>
+<p>Seizawa Shii, at Sakagami Rena's Words, took a deep Breath and calmed her agitation. In fact, although she was feeling Anger, her anxiety wasn't very great in the upcoming battle.</p>
+<p>Because there was something she believed in.</p>
+<p>Compared to Anyaji, the relatively few in number St. Francis Girls' Academy's special class side could believe in, along with individual Ability, the fact that they knew the Opponent's Information, and by seizing control of the Information, they could make moves the Opponent couldn't predict.</p>
+<p>Even in the battle against Funayama Seigo, there would be reinforcements to support Seizawa Shii and Sakagami Rena. Those reinforcements would be waiting at the Place where they would meet Funayama Seigo.</p>
+<p>"Hooo.... Understood. I won't get angry. Renappi, did you pack your Weapon?"</p>
+<p>"I have a lot to pack."</p>
+<p>The versatile Sakagami Rena had a lot to pack. The Ninjato Murasakiichi received from Ichimonji Harugoro was packed as a basic item, along with throwing stars and shuriken, and talismans and cursed objects used in various Jusul, smoke bombs, etc.... Because there were many things to pack, she was much busier with Preparation than Seizawa Shii, who only needed to put on her cyber Suit.</p>
+<p>"Here."</p>
+<p>"Huh?"</p>
+<p>Sakagami Rena held out a Talisman to Seizawa Shii. Inside a small pouch, with the Talisman placed inside, it was in the shape of an Ordinary Japanese-style Talisman, but the Strap was long enough to hang around her Neck.</p>
+<p>"It's a Talisman?"</p>
+<p>"Yes, it's a type of protective charm. Basically, it will increase your mental Defense."</p>
+<p>"Oh, is that so? Thank you."</p>
+<p>Seizawa Shii, after hanging the Talisman around her Neck, put it inside her cyber Suit. "It'll be safe if I put it in my Cleavage," she muttered, and tucked the Talisman between her Cleavage.</p>
+<p>"Since we're all prepared, let's go."</p>
+<p>"Yeah~☆ Let's go smash Funayama Seigo's Head!"</p>
+<p>The two, having finished their Preparation, departed towards the Place Funayama Seigo had mentioned.</p>
+<p>Gojoy-nim requested adult version Linling breast-covering, belly dancer~!</p>
+<p>Starting with belly dance~!</p>
+<p>breast-covering~!</p>
+<p>MidNightSKY-nim requested adult Linling breast-lifting, child Linling Aegyo~!</p>
+<p>Adult Linling breast-lifting~!</p>
+<p>Child Linling Aegyo~!</p>
+<p>Is this not it, Master-nim? Ah, you want me to smile?</p>
+<p>Kkyung~!</p>
+<p>TheDreaming-nim requested in a night Park 1. Taira Kanna covering her groin and Attacking with a rapier 2. Taira Kanna kicking while tied up.</p>
+<p>1.</p>
+<p>2.</p>
+<p>The requested Ecstasy Rhythm of Passion doesn't work, hehe.</p>

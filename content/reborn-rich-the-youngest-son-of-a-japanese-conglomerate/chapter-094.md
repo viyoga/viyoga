@@ -5,80 +5,53 @@ weight = 94
 chapter = 94
 +++
 
-<p>Arisu took photos while posing as an elf sage, reading a book or holding a staff. Then, she found me among the staff and smiled, waving her hand slightly. Of course, when the model who was filming waved her hand, I, the target, received attention. Seeing me with an awkward expression, a man who seemed to be related to Taira Entertainment approached me.</p>
-<p>"Who are you?"</p>
-<p>"I'm Taira Ryuta."</p>
-<p>"Taira...? By any chance, what is your relationship with the president-nim?"</p>
-<p>Seeing him react to the Taira surname, it became clear that he was indeed related to Taira Entertainment. Until just now, he had a slightly annoyed expression because someone he didn't know had entered the set, but when I said the name Taira, that annoyance disappeared as if it had never been, and an awkward smile greeted me.</p>
-<p>"The president-nim of Taira Entertainment is my aunt."</p>
-<p>"Ah, is that so? But what brings you to this set...?"</p>
-<p>"I was originally planning to meet my cousin Arisu briefly at night after the shoot, but I heard it was delayed because of the filming, so I came to see her face for a moment."</p>
-<p>"I see. There was a delay because one of the filming equipment suddenly broke down. I apologize that the appointment was like this due to our fault."</p>
-<p>The man bowed to me, and I said it was okay and helped him stand up.</p>
-<p>"But who are you? Come to think of it, I only introduced myself and didn't get an introduction?"</p>
-<p>"I'm so sorry for this mistake.... I'm Shimizu Hideki, the general manager of the external cooperation team."</p>
-<p>Shimizu Hideki politely gave me his business card with both hands. I didn't bring a business card, so I just received it. The business card read exactly as Shimizu Hideki introduced himself: Shimizu Hideki, General Manager of External Cooperation at Taira Entertainment.</p>
-<p>External cooperation team.... It was an advertisement shoot for a mobile game, so there must be things to cooperate with the advertiser.</p>
-<p>"Would you like something to drink?"</p>
-<p>"It's okay. I'm just going to watch Arisu's filming a little and leave, so you don't have to worry about me."</p>
-<p>"I understand. Then, I'll be going...."</p>
-<p>Shimizu Hideki bowed and returned to his original position. While I was talking to Shimizu Hideki, Arisu had already changed into different clothes and was filming, this time in the form of an elf knight in armor.</p>
-<p>Arisu surprisingly looked good in armor too. She really looked like an elf knight. She changed poses while filming, and each time, she created admiration from those around her with exquisite poses that suited the situation. I just thought she was pretty, but she also had outstanding talent.</p>
-<p>"I'll take a break for a while~!"</p>
-<p>After filming for about thirty more minutes, Arisu ran straight to me as soon as the word "break" was over. She was like a golden retriever running to see its owner, so I couldn't help but laugh.</p>
-<p>"Ryuta, how was it? Did I do well?"</p>
-<p>"Yeah, you did really well?"</p>
-<p>I stroked Arisu's blonde hair. She didn't express it, but her hair was slightly damp with sweat, probably because the armor was quite heavy.</p>
-<p>"Wait for me for a moment~. I'll go change my clothes."</p>
-<p>Arisu said to me and disappeared somewhere. After waiting a little, Arisu returned wearing simple casual clothes.</p>
-<p>"They said it takes time to change the props and set here to create the atmosphere, so the filming time takes so long."</p>
-<p>"Ah, the person in charge said earlier that some equipment broke down?"</p>
-<p>"That's also true, but it took longer to redo the set."</p>
-<p>These days, they mostly use CG, but this shoot seems to be pursuing realism to some extent. After listening to Arisu's explanation, I learned that even if they use a set like this, they still do CG post-correction later.</p>
-<p>"So, was it hard?"</p>
-<p>"It wasn't hard because of this, but because I can't go on a date with Ryuta...."</p>
-<p>"Hahaha."</p>
-<p>Arisu, who was fidgeting with her index fingers facing each other, was so cute that I laughed without realizing it. Arisu pouted slightly, saying, "Tch~!" when I laughed.</p>
-<p>"How long is the break?"</p>
-<p>"Hmm.... About twenty-five minutes from now?"</p>
-<p>Arisu looked at the time by picking up her phone when I asked. I brought my lips to Arisu's ear and opened my mouth.</p>
-<p>"Then.... Shall we go to my car and rest for a bit?"</p>
-<p>Arisu blushed at my subtle question and nodded shyly. I took Arisu to my car. I was grateful that Yukiko bought me a big car for times like this.</p>
-<p>Worried about possible paparazzi or fans, I mobilized even the senses of a master to secretly bring Arisu to my car. The car had a privacy mode that prevented the inside from being seen, so once we got in the car, there was no need to worry about being seen by others.</p>
-<p>Arisu has recently become somewhat famous in Milan, but that was because her stock had risen among designers, so Arisu was not yet publicly famous. And because she was a model without extreme fans, I didn't have to worry about the eyes of fans or paparazzi yet. Of course, I don't know if she becomes more famous from here.</p>
-<p>As soon as we got in the car, we kissed each other as if we had promised. It felt like we were finally greeting each other. It was as if our tongues were hugging and asking, "Hello, how have you been?" After the kiss, we smiled at each other and took off only our bottoms as if we had promised again.</p>
-<p>Since there wasn't much time left, we replaced foreplay by touching her breasts over her clothes. Nevertheless, Arisu twisted her body with pleasure and moaned at my small touch, showing off her sensitive eroticism.</p>
-<p>"Ahaaa, Ryuta's touch, it's been a while. I missed it so much. Hmmm...."</p>
-<p>"I missed Arisu's breasts too."</p>
-<p>I touched her breasts with one hand and went down her firm belly with the other, splitting through the golden soft field and entering the pink swamp. Arisu's pussy was very wet even without any special foreplay.</p>
-<p>"Why is it so wet?"</p>
-<p>"I don't know, it came out as soon as I saw Ryuta.... Haaaeung...!"</p>
-<p>Is it similar to how men automatically get erect when they go on a date? My dick was already hard too. I thought I wouldn't get an erection after the series of sex with 14 people from 74 groups, but I automatically got an erection when I was alone with Arisu.</p>
-<p>I went into Arisu without hesitation. Arisu's pussy was still warm, slippery, and felt good.</p>
-<p>"Ahht, haaeung....! Ryuta, I love you, aaaaahng!"</p>
-<p>"Me too, I love you."</p>
-<p>Arisu's pussy convulsed and climaxed at the sound of "I love you." Is it because it's been a while? She's going so fast. But I was still far away, so I continued to strike Arisu's uterus.</p>
-<p>"Eunghht, woo...heung....! Aheung, haaheum...!"</p>
-<p>Watching Arisu moan in rhythm with the way I shook my waist, I became even more excited and shook my waist even faster. Arisu was running towards the summit of the mountain called orgasm again, as if she had already reached her climax.</p>
-<p>"Haaang! I like this.... I like doing it in the car so much, haaahng!"</p>
-<p>Seeing how much she likes it, isn't she going to become addicted to car sex later? My semen was slowly rising too.</p>
-<p>"I think I'm going to cum...! Where should I cum?"</p>
-<p>"Cum in my mouth! I want to eat Ryuta's semen!"</p>
-<p>At Arisu's words, I pistoned to the limit and pulled out my dick. Arisu's firm pussy flesh almost didn't let go of my dick, so I almost cum inside, but I was able to safely put my dick in Arisu's mouth.</p>
-<p>Throb! Throb!</p>
-<p>My dick pulsates and pours semen into Arisu's mouth. Her pussy gushes out fluids, probably because she went again while eating my semen. Arisu opened her mouth to show me the semen even in the midst of her climax and swallowed it.</p>
-<p>"Hooheung...! That was so good, Ryuta."</p>
-<p>"Me too. It's my first time doing it in the car, but it's not bad."</p>
-<p>Of course, I had car sex at the driver's license training camp, but I can't confidently say to Arisu, "I've done it a few times, and you were the best." So I said it was my first time. Certainly, car sex was uncomfortable in terms of posture and was in a confined space, but it had a different feel from doing it comfortably in bed. When I looked at the time, about 20 minutes had passed. I turned on the air conditioner to dry Arisu's sweaty hair.</p>
-<p>I dried her hair for about 3 minutes, tidied up, and came out of the car. I went back to the set, watched Arisu's filming a little more, said goodbye with my eyes, left a message on Line that I was going home, and went home.</p>
-<p>Since it's roughly 12:30 AM, I should be able to get home a little after 1 AM. The car wasn't congested either, so I hummed along to the song while driving, and before I knew it, I arrived at the Human Resources Development Center.</p>
-<p>"I'm home."</p>
-<p>I muttered to myself and returned home. I hung up my clothes, changed into comfortable clothes, and took a shower. After washing my body refreshingly and coming out, I heard a strange sound from somewhere. It was the sound of a woman's moans that I had been hearing from the day before yesterday and today. Hmm.... Can I do it one more time today?</p>
-<p>Come to think of it, today was Monday. Since it's a new day, I'll be able to use my strength again. I finished drying my hair and stood in front of Yukiko's door.</p>
-<p>".... Haaang.... Ah, aheung...."</p>
-<p>As expected, the main character of the moaning was Yukiko. My stepmother is spending her time so lonely, and I, who claims to be a filial son, can't just stand still like this.</p>
-<p>"Yukiko-ssi."</p>
-<p>"Ryu, Ryuta? What's wrong?"</p>
-<p>I opened the door and went into Yukiko's room. Soon after, an even louder moan filled Yukiko's room.</p>
-<p>-----------------------------------------</p>
-<p>Bonus! Arisu Elf Knight</p>
+<p>"Excuse me."</p>
+<p>Suzuki Chisami greeted me and got into my car. It was a two-night, three-day business trip, so I didn't have that much luggage.</p>
+<p>"Is the travel time okay?"</p>
+<p>"The flight leaves at 10, so we have plenty of time, Deputy Team Leader-nim."</p>
+<p>There were two airports near Tokyo: Tokyo International Airport, called Haneda Airport, and Narita International Airport. Haneda Airport had more domestic flights, making it easier to catch a plane, but Narita International Airport was closer to Chiba Prefecture, where the Human Resources Development Institute was located, so I booked a ticket to Narita International Airport.</p>
+<p>"Did you prepare all the necessary documents?"</p>
+<p>"Yes, I put them in my bag this morning."</p>
+<p>The conversation in the car was almost entirely work-related. It wasn't much of a conversation, as the two of us didn't even say ten sentences combined, so silence lingered for the 30 minutes to the airport.</p>
+<p>After getting out of the car, we took our luggage and went to the airport. Our destination was Akita Prefecture. It was a prefecture in the Kita-Tohoku region of Tohoku, and it was a famous granary in Japan. Perhaps because of that, the headquarters of Taira Foods was located there.</p>
+<p>For reference, Minami-Tohoku in Tohoku had Fukushima, famous for the nuclear accident. The headquarters of Minamoto Foods was located there.</p>
+<p>As a granary, rice production was high, and naturally, the sake made from that rice was also famous. I should buy some sake as a gift this time.</p>
+<p>Also, Akita is said to be a place with many beautiful women, so I should take a look with some expectations. But I wasn't really expecting much. Because it was a rural area with many granaries, the population was aging. How many young women could there be? Even if there were young women, they would have gone to cities like Tokyo or Chiba to find jobs.</p>
+<p>I don't know if Suzuki Chisami intended it or not, but our plane seats were separated. Well, that's good for me. I can go comfortably without paying attention to Suzuki Chisami.</p>
+<p>Since the flight time was about an hour, the total travel time one way, including the time to go to the Kita-Tohoku branch of the Human Resources Development Institute, was about two hours.</p>
+<p>I'm glad we were flying, because as I found out separately, it would take a whopping 7 hours to drive from the Human Resources Development Institute to the Kita-Tohoku branch. If I hadn't gone by plane, I would have had to drive for seven hours with Suzuki Chisami's hellish silence.</p>
+<p>During the flight, I read the materials I had brought. Today, I had to look around the Kita-Tohoku branch, and the next day, I had to look around Taira Foods, where they mainly receive training. Finally, I had to wrap up at the Kita-Tohoku branch again in the morning and take the afternoon flight back. Well, Suzuki Chisami will do all the work, and I just have to watch and assist, so there's nothing particularly difficult.</p>
+<p>After getting off at Akita Airport, I took a rental car that I had booked online and went to the Taira Human Resources Development Institute Kita-Tohoku branch, located north of Akita City in Akita Prefecture.</p>
+<p>The Kita-Tohoku branch was much smaller than the main Human Resources Development Institute, which had a slightly larger building and an auditorium about the size of a basketball court. Well, it didn't need to be that big, since only Taira Foods and its subcontractors in the Tohoku region came to receive training.</p>
+<p>"Oh my~! You've worked hard to come here!"</p>
+<p>"No, it's nothing. Thanks to you, I came comfortably."</p>
+<p>The person who greeted us was the head of the Kita-Tohoku branch, Matsuhira Ginichiro, a balding man in his mid-50s with a short beard and a big nose. Matsuhira Ginichiro was quite jovial, bowing to Suzuki Chisami, who was only about half his age.</p>
+<p>Even though the branch manager is much higher in position than Suzuki Chisami, who is a deputy team leader. Something smelled fishy. Maybe he wants more support or something.</p>
+<p>"I'm Suzuki Chisami, Deputy Team Leader of Education Support Team 2, and this is Taira Ryuta, an employee."</p>
+<p>"...Taira?"</p>
+<p>Suzuki Chisami and Matsuhira Ginichiro exchanged business cards, and after I gave Matsuhira Ginichiro my business card, I received a business card from Matsuhira Ginichiro.</p>
+<p>In the early days of joining the company, I was also educated on business card etiquette by my mentor, Mimata Chieri, who said that it was polite for the junior to hand over the business card first, and then the senior to give the business card. I also learned that you should always stand up when giving and receiving business cards, and give them in a way that is easy for the other person to read.</p>
+<p>And while going on outside work with Shinoe Misano, I often exchanged business cards with people from other companies, so I was able to practice, and now I have become a working person who can skillfully exchange business cards.</p>
+<p>"Let's go for lunch first!"</p>
+<p>Since the arrival time was close to 12 o'clock, we followed Matsuhira Ginichiro to the restaurant. The restaurant that Matsuhira Ginichiro took us to was a high-end sushi restaurant.</p>
+<p>As expected, the rice was delicious because it was a granary. Akita City faces the sea to the west, so the fish was also not bad.</p>
+<p>"By any chance, is Taira Ryuta-gun... from the main family?"</p>
+<p>"Yes, my mother is the Director-nim of the Human Resources Development Institute."</p>
+<p>"Ah~! I asked because the surname was Taira, but you're the Director-nim's son!"</p>
+<p>Mitsuhira Ginichiro clapped his hands and rejoiced at my answer. Did he interpret the arrival of the son of the Director of the Human Resources Development Institute as meaning that he would pay more attention to the branch? I just came for experience.</p>
+<p>"Please tell your mother. The Kita-Tohoku branch needs a little more budget. There were many applicants from Taira Foods and related companies this time. So naturally, many people flocked to our Kita-Tohoku branch, and what I did at that time was..."</p>
+<p>Mitsuhira Ginichiro was a talkative man. He started talking to me about what he had achieved while being in this branch, and he didn't shut his mouth for almost thirty minutes. Ah, so this is what it feels like to have blood coming out of your ears...</p>
+<p>And Suzuki Chisami was getting more and more angry because he was talking to me for thirty minutes without even looking at her. I know Suzuki Chisami's personality, but Matsuhira Ginichiro didn't know, so he'll pay the price later when Suzuki Chisami shakes up the branch.</p>
+<p>After the long lunch, we started auditing the branch's education team and education support team, following Matsuhira Ginichiro's lead. Suzuki Chisami found that the branch's education team was not following the revised education content we sent, as if possessed, and Matsuhira Ginichiro's face next to her also rotted.</p>
+<p>Now that he realized that he had been rude to Suzuki Chisami at lunch, Matsuhira Ginichiro didn't know what to do, but he couldn't stop Suzuki Chisami, who was even picking fights with me, who is directly related to the Chairman. I didn't have much to do. I was just doing simple things like checking if they were following the checklist I had made in advance, and putting an X if they weren't. Of course, there were far more X's than checks.</p>
+<p>Watching Suzuki Chisami work without hesitation, I kept suspecting. There must be something backing Suzuki Chisami up to be able to act so confidently. In the jungle of the company, politics was as important as skill. Korean companies are like that, but Japanese companies value politics even more, and the future is determined by whose line you are on.</p>
+<p>The fact that Suzuki Chisami came to the position of Deputy Team Leader while acting so arrogantly meant that someone was backing her up. Suzuki Chisami must have believed that and picked a fight with me openly. Recently, the head of the personnel department, Nadachi Tojo, was eliminated, and Jiro's line was transferred to other places in large numbers, so Suzuki Chisami was a little quieter, but I didn't know when she would go wild again.</p>
+<p>But seeing someone else being treated the way I was being treated was somehow fun, especially Matsuhira Ginichiro's expression rotting every time Suzuki Chisami pointed something out, which was a little funny.</p>
+<p>After Suzuki Chisami shook up each education team and education support team in the branch, almost 5 hours had passed, and it was close to 7 o'clock. Matsuhira Ginichiro showed off his smiling skills with a distorted face and patted Suzuki Chisami on the shoulder.</p>
+<p>"Haha, you're really working hard. Today, there's a dinner with the president of Taira Foods, so let's go quickly."</p>
+<p>Nagumo Sian, the president of Taira Foods, was one of the many subsidiary presidents of the Taira Group and was famous as one of the few female presidents. Originally, she was the president of a company that produced small retort foods, but she was scouted by Taira Danjo and became the president of Taira Foods. Since then, she has raised Taira Foods' market share, which had been far behind Minamoto, to almost the same level over the past ten years.</p>
+<p>As Nagumo Sian was a president directly scouted by Taira Danjo, she did not side with Ichiro, Jiro, or Kokoro, but only pledged allegiance to Chairman Taira Danjo, so the three successors were also trying to make her a person who was friendly to them as much as possible without antagonizing her.</p>
+<p>Suzuki Chisami couldn't get angry in front of such a great Nagumo Sian, so she nodded at Matsuhira Ginichiro's words.</p>
+<p>"We can't make the president wait. Isn't it too late?"</p>
+<p>"Don't worry. The appointment time is 7:30, so..."</p>
+<p>Matsuhira Ginichiro's expression wasn't good at the sudden change in attitude, but Suzuki Chisami didn't seem to care.</p>

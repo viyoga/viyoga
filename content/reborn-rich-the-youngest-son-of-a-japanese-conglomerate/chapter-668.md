@@ -5,120 +5,123 @@ weight = 668
 chapter = 668
 +++
 
-<p>,Ryuta, are you a regular at the Clear Mind Hall?</p>
-<p>It was Alik's third visit to the Clear Mind Hall during the festival, so Alik looked at me, tilting his head and asking. The first time I visited, he ran up to me, shouting, "Ryuta~!" But now, he was looking at me with eyes that seemed to say, "Why does he keep coming here?"</p>
-<p>,No, some guests wanted to see it.</p>
-<p>,This student...? His skills seem extraordinary.</p>
-<p>Yoda-halbeom's eyes lit up when he saw Alik. As expected of a master, he seemed to recognize Alik's skills right away.</p>
-<p>,He's one of the students taught by Shimokawabe seonsaengnim. He's also a student in my class.</p>
-<p>,Hoo...! Is that so?</p>
-<p>,Chokkomi (Tiny) Grandpa?</p>
-<p>When I introduced Alik, Alik called Yoda-halbae "Chokkomi" with an innocent expression. He probably didn't know Yoda, so he didn't call him Yoda Grandpa.</p>
-<p>,Hehehe, yes, I'm Chokkomi Grandpa~.</p>
-<p>When I called him Yoda-halbae, he tried to joint-lock me, but when Alik called him Chokkomi, he smiled contentedly, hehehe.</p>
-<p>,I'll guide you.... Oh? Aren't you Kinu-i-nim?</p>
-<p>Nishiike Neiko, the head of the Clear Mind Hall, looked at Yoda-halbeom with a surprised expression. As expected of the head of the Clear Mind Hall, who practices Koryu martial arts, she seemed to know Yoda-halbae, who was famous in the martial arts world.</p>
-<p>,Hehe... Yes, I am Kinu-i Tatsuo.</p>
-<p>Yoda-halbeom's nose grew even higher. In fact, I only learned Gwonbeop from Fujigasaki Rinka, and I didn't know much about the martial arts world, so I didn't know that this Kinu-i Tatsuo-halbae was famous.</p>
-<p>He wasn't a character I saw in the game, so I looked down on him a bit, but he seemed to be quite a celebrity.</p>
-<p>,I'll show you to your seats and call the teacher.</p>
-<p>We were guided to our seats by Nishiike Neiko, and the young three disciples were excited, saying, "Wow~! Our master is famous!" as if they were happy that their master was famous.</p>
-<p>Kujo Kina, who knew a bit about the Gwonbeop world, seemed to take it for granted, and Nakasone Rishin, a gloomy guy, seemed surprised by his master's fame.</p>
-<p>,Was master famous?</p>
-<p>,Well, master went around the country breaking dojangs (dojo challenges), so he couldn't help but become famous.</p>
-<p>Kujo Kina answered Nakasone Rishin's question. Next to her, Kujo Kina's young disciples listened to Kujo Kina's story and asked what "dojang breaking" was, so I was about to answer that it was going into someone else's dojang and causing trouble, but I held back after seeing Yoda-halbae's fierce eyes.</p>
-<p>,Here are your ordered Japanese sweets and tea set.</p>
-<p>Shimokawabe Airen came with tea and Japanese sweets. Nakasone Rishin wanted Japanese desserts, so I was watching to see if he would eat well, and he ate very well. The price was quite high, so he was gulping down Japanese sweets that cost several hundred yen apiece.</p>
-<p>,It's delicious. It tastes like what I used to eat at home.</p>
-<p>,Eat a lot.</p>
-<p>Nakasone Rishin closed his eyes and savored the taste as if reminiscing about memories. He was from a wealthy family of politicians, so he seemed to have eaten high-end Japanese sweets often. Now that he was almost abandoned by his family, he probably wouldn't be able to eat them often. Thinking about that made me feel a little sorry for him.</p>
-<p>,Kinu-i seonsaengnim, it's been a while.</p>
-<p>,Shimokawabe.... Your progress is truly amazing.</p>
-<p>Listening to their conversation, it seemed like they hadn't seen each other in a long time. In that long time, Shimokawabe Airen seemed to have grown considerably, and Yoda-halbae recognized her skills and was amazed.</p>
-<p>,When did you two meet?</p>
-<p>,Hmm.... When I was busy breaking dojangs, I had a match with Shimokawabe's master.</p>
-<p>Ah, so that's how they knew each other. I was so interested in Yoda-halbeom's story that I leaned my body slightly towards them to hear the story better.</p>
-<p>,So, what was the result of the match?</p>
-<p>Kujo Kina asked with an excited expression, as if I wasn't the only one curious.</p>
-<p>,That's....</p>
-<p>Yoda-halbae glanced at Shimokawabe Airen. Did Yoda-halbae win and was looking at her, or did he lose and was too embarrassed to say?</p>
-<p>,You could say it was a draw. I broke a bone after being hit by Haruka's bokken (wooden sword), and Haruka's internal organs were damaged by my attack....</p>
-<p>Listening to the story, Haruka seemed to be the name of Shimokawabe Airen's master.</p>
-<p>,My master suffered for almost a year and a half from the internal injuries he sustained at that time. Every time he was in pain, my master would say that he should have just used a real sword and cut off his arm.</p>
-<p>,Hehe, if he had, your master would have won. I hadn't yet perfected my Gwonbeop at that time.</p>
-<p>Yoda-halbae smoothly brushed off Shimokawabe Airen's slightly sharp words.</p>
-<p>Combining their stories, they both suffered injuries and it was a draw, but Shimokawabe Airen's master, called Haruka, seemed to have suffered more from the aftereffects.</p>
-<p>Shimokawabe Airen saved her master's face by saying that he would have won if he had used a real sword, but Yoda-halbae was like, "Yeah~ I wasn't even done perfecting my Gwonbeop at that time~," and was tea-bagging him.</p>
-<p>In my opinion, Yoda-yeonggam was in the process of perfecting his Gwonbeop, so Shimokawabe Airen's master seemed to have been considerate enough not to use a real sword.</p>
-<p>After that, the match became fierce and they injured each other, and although they said it was a draw, seeing that Shimokawabe Airen's master suffered more from internal injuries, it seemed like Yoda-yeonggam won by about 55 to 45.</p>
-<p>,Ah, that friend is going to have a match with my disciple next time, so come and hang out with us then.</p>
-<p>Yoda-halbae pointed at me with a feeling of reconciliation and told me to come and watch this guy fight his disciple. Shimokawabe Airen also knew that there was no point in being hostile to Yoda-halbeom anymore and nodded.</p>
-<p>,Okay. I will also visit seonsaengnim's dojang with my disciple, Alik, that day.</p>
-<p>,A visit? Heul-heul....</p>
-<p>,But.... Do you have any disciples who can fight Ryuta-gun among your disciples, seonsaengnim? I know that all of your disciples have been recently accepted.</p>
-<p>In fact, Yoda-halbeom did have a top disciple who could be called Kujo Kina's senior, but he lost his life in a fight with Anya-ji. Shimokawabe Airen seemed to know that fact, so she carefully asked Yoda-yeonggam.</p>
-<p>,Well, if that Ikunori (Raising Constitution) guy was here, he would have been a great opponent for that guy.... It's not a martial artist's attitude to hesitate to fight just because the opponent is strong, so don't worry about my disciple. Surely that guy won't seriously injure my disciple in front of my eyes?</p>
-<p>As expected of a man who perfected martial arts by breaking dojangs. Don't hesitate to fight just because the opponent is strong.... That's a pretty cool thing to say. Of course, it wasn't cool at all that he threatened me by saying that he would be watching during the match, like he was keeping an eye on me.</p>
-<p>,Don't worry, I won't injure him like Yoda-halbeoji did to Shimokawabe seonsaengnim's master, even if you don't threaten me like that.</p>
-<p>,What did you say~!?</p>
-<p>No, why is this halbae only angry at me? Alik, who was sitting next to me, said, "Chokkomi Grandpa, don't be angry," and the atmosphere became one of just letting it go. As expected, Alik is the only one who takes my side. Alik is the best.</p>
-<p>###</p>
-<p>Kujo Kina, Yoda-sabu, and their group left to enjoy the festival again, and as time passed, I was heading to the special class building alone when I ran into that woman from before.</p>
-<p>The beauty with hair between silver and white was holding a pamphlet and heading towards the special class building. At first, I was just going to pass by, but the woman recognized me first.</p>
-<p>,Oh~! Right? The golden-haired teacher who appears on Karen MiTube!</p>
-<p>,I have blonde hair and a tan, but I'm not a delinquent.</p>
-<p>She's talking about Karen MiTube, so she must be a Karen fan. Then, the reason she smiled at me earlier was because she recognized me from Karen MiTube?</p>
-<p>,Did you come to the festival because of the Karen photo cards?</p>
-<p>,I didn't originally want to come to this neighborhood. Um.... I had some kind of meeting scheduled around here, so I stopped by because they said there was a festival.</p>
-<p>Ah, so she stopped by as a side trip. By the way, she's got the looks and her skin is super white and her eye color doesn't look like an Asian's, but she speaks Japanese really well?</p>
-<p>,If you don't mind, can I ask you a question?</p>
-<p>,It's not rude, so ask as much as you want.</p>
-<p>,Are you from which country?</p>
-<p>,Ah, I'm Japanese. I was adopted from Europe, though.</p>
-<p>Ah, so she's a European white person by race, but she was adopted and became Japanese. I bowed slightly, thinking that it might have been rude.</p>
-<p>,I asked because your Japanese is excessively fluent. I'm sorry if it was rude.</p>
-<p>,It's okay. I get that question all the time.</p>
-<p>Well, it's inevitable to be curious if a super-beautiful white woman speaks Japanese very fluently. I soon arrived at the special class building, and the silver-white-haired woman lined up, and I headed to the cafe. If I went straight up to the second floor, Minamoto Risa would probably give me a dating mission right away, so I took refuge in the cafe first. I wanted to rest a little too.</p>
-<p>,Teacher, aren't you tired?</p>
-<p>,No. Rather, I was bored because I was always alone in the infirmary, but now it's fun.</p>
-<p>I went to the cafe and asked Kijimoto Jurie, who had been working as the cafe manager since yesterday, if she wasn't tired, and Kijimoto Jurie raised her arm as if to show off her biceps and said with a smile that she was fine. Surprisingly, she seems to be suited for cafes.</p>
-<p>,The seats.... are full.</p>
-<p>,Yes. There are a lot of people waiting to exchange cards, and there are also people waiting in case Karen comes.</p>
-<p>For reference, Uenozono Karen was almost never in the special class. There were already a lot of people, but if Uenozono Karen was there, there would be even more people and there could be a safety accident, so I told her to keep walking around and enjoy the festival.</p>
-<p>So, Uenozono Karen was filming a St. Francisco Girls' Academy vlog for the second day, escorted by bodyguards.</p>
-<p>I was sitting at the counter seat for a while, drinking the sweet iced chocolate that Urabe Konoka had made for me, and resting while talking. I should rest for about fifteen minutes and then go up to the second floor and receive a mission from Minamoto Risa.</p>
-<p>,Excuse me.</p>
-<p>I was resting for a bit when someone poked my shoulder and called me, so I turned around and it was that silver-white-haired woman from before. What's going on?</p>
-<p>,Yes? What's wrong?</p>
-<p>,As a reward for the question you asked earlier, can I ask you for a favor?</p>
-<p>,Ah, sure.</p>
-<p>I had accepted a question that could be considered a bit rude earlier, so I was willing to grant her any favor as long as it wasn't difficult.</p>
-<p>,Here....</p>
-<p>The silver-white-haired woman handed me a photo card with a slightly shy expression. It had a picture of me getting hit by cherry blossom rain, along with a cheesy line that said, "I'll approach you like falling cherry blossoms." Ah, I shouldn't have written that line. I'm going to be embarrassed every time I look at this card.</p>
-<p>,Can you sign the back?</p>
-<p>,If it's that....</p>
-<p>I took out a pen and signed it. I felt like something was missing if I just signed it, so I decided to ask her name.</p>
-<p>,Who should I write it to?</p>
-<p>,Write it to Takakusaki Athena.</p>
-<p>Ah, Takakusaki Athena.... Like Alik, her last name is Japanese and her first name is Western. I wrote "To Takakusaki Athena-ssi" and handed the photo card back to her.</p>
-<p>By the way, I felt like I had heard that last name somewhere before. Do I know someone with the same last name? But there were many people with similar last names in Japan, so I just thought I had heard it somewhere and moved on.</p>
-<p>,Thank you~! Karen isn't here, is she?</p>
-<p>,Yes. There are too many people.</p>
-<p>As expected, she seemed to be a bigger fan of Karen than me. Takakusaki Athena, who seemed a little disappointed, bowed slightly to me and ordered a drink. Hmm.... I should go up to the second floor soon.</p>
-<p>,Then....</p>
-<p>I said goodbye to Takakusaki Athena and went up to the second floor. As soon as I went up to the second floor, Minamoto Risa assigned Sakagami Rena, who couldn't go on a festival date with me yesterday because I was walking around with Yukiko.</p>
-<p>I was going down to the first floor with Sakagami Rena when I saw Kujo Kina, who seemed to have finished looking around the festival with her master and disciples.</p>
-<p>,Ah...!</p>
-<p>Seeing Kujo Kina reminded me of Gwangpok-in (Berserker), and thinking of Gwangpok-in reminded me of Anya-ji, who gave Gwangpok-in to Kujo Kina. And thinking of Anya-ji reminded me of Takakusaki Gengo, the enemy of our school and the owner of Anya-ji.</p>
-<p>,I thought the last name was familiar, but it was the same last name as Takakusaki Gengo.</p>
-<p>,My lord, what's wrong?</p>
-<p>Ignoring Sakagami Rena's question, I headed to the first floor special class classroom, which was acting as a cafe, at an incredible speed.</p>
-<p>She wasn't there. She was just here....</p>
-<p>,Do you know where that silver-white-haired girl who was talking to me just now went?</p>
-<p>,She ordered a drink to take out and left right away.</p>
-<p>After hearing Urabe Konoka's answer, I ran out of the special class building again. But outside, there was only a line of people buying club magazines, and the silver-white hair was not visible.</p>
-<p>,What's wrong, my lord?</p>
-<p>,No, there's just someone who has the same last name as someone I know....</p>
-<p>I shook my head at Sakagami Rena's question and muttered. Surely it's just the same last name. I seemed to be taking it too sensitively.</p>
-<p>_______________</p>
-<p>Athena enjoying the festival.</p>
+<p>Seizawa Shii, following my words, placed her arms on the washing machine, bent her waist, and looked at me. The look in her eyes was quite complex, a mix of expectation and fear, excitement, and affection for me.</p>
+<p>I approached Seizawa Shii, who was bent over. Then, I grabbed Seizawa Shii's peach-like buttocks and spread them apart. Naturally, spreading her buttocks also spread her pussy, revealing pink inner flesh and a dripping stream of vaginal fluid, which was incredibly erotic.</p>
+<p>"I'm going in."</p>
+<p>"Okay, Ryuta-cchi...."</p>
+<p>Seizawa Shii answered with a tense voice to my words. I slowly brought my dick to Seizawa Shii's spread pussy. And slowly, I pushed my waist, starting to enter inside.</p>
+<p>"Haaah...! It's weird. It hurts, Ryuta-cchi!"</p>
+<p>The vaginal opening widened to its limit, and I heard Seizawa Shii's painful voice. But I didn't have the luxury to listen to Seizawa Shii's words either, because Seizawa Shii's insides boasted an incredible tightness.</p>
+<p>It felt like being squeezed tightly by a hand. Even though Seizawa Shii was a wielder of superhuman strength called an Ogre, I thought her pussy would just be a normal woman's pussy, but I was wrong.</p>
+<p>Only about two-thirds of my glans had entered, but it was already squeezing so much from the entrance of her vagina that it hurt a little. It shouldn't normally be this much, she seemed to be too tense and putting in a lot of strength.</p>
+<p>"Shii, your pussy is too tight, it hurts."</p>
+<p>"Hiss...! Is it good that it's tight? Ugh.... Something feels stuffy inside."</p>
+<p>"Of course it's good, it feels good, Shii."</p>
+<p>To ease Seizawa Shii's tension, I praised her while grabbing and caressing Seizawa Shii's breasts with both hands, stimulating her nipples to give her pleasure.</p>
+<p>"Haa, while doing that, haa...! Why are you touching my breasts?!"</p>
+<p>"Originally, you don't just put your dick in your pussy, you also give foreplay while having sex."</p>
+<p>With praise and breast caresses added, a sweetness that seemed to feel pleasure little by little was mixed in with the voice that seemed to endure the pain.</p>
+<p>Accordingly, her pussy loosened up a bit, but it was still incredibly tight. It seemed she was just born with a strong pussy tightness. With this level of tightness, a normal man's dick would have broken, right?</p>
+<p>"Is that so...?"</p>
+<p>"Yeah, listen carefully since it's your teacher's words."</p>
+<p>"Hiss...! Okay, sex education teacher-nim...♥"</p>
+<p>Seizawa Shii might have said it as a joke, but hearing Seizawa Shii call me teacher for the first time made me excited without realizing it, and my dick became even harder.</p>
+<p>"Hyaaah! Ryuta-cchi, hiss! Your dick, is it alive? Inside, hiss! It's moving so much...!"</p>
+<p>When my excited dick hardened and twitched inside Seizawa Shii, Seizawa Shii was surprised and asked if it was alive.</p>
+<p>"It's because Shii is so pretty, and Shii's pussy feels so good."</p>
+<p>I praised Seizawa Shii and pushed my waist forward again, which I had stopped for a moment.</p>
+<p>"Hiss...!"</p>
+<p>Something felt like it caught with a thud at the end of my dick. It seemed to be Seizawa Shii's hymen. After figuring out the location of her hymen, I pulled my waist back for a moment and then quickly pushed my waist again.</p>
+<p>Tu, tutuk!</p>
+<p>At the same time as the feeling of her hymen tearing, Seizawa Shii let out a high scream. She seemed surprised because she suddenly felt pain after feeling good.</p>
+<p>"Kyaaak! It hurts, it hurts...! Ryuta-cchi, it hurts...."</p>
+<p>"It's because your hymen tore."</p>
+<p>She said it hurt, but she didn't show tears or anything because she had a lot of painful things while doing missions. It was just a slight grumble.</p>
+<p>"Am I bleeding?"</p>
+<p>At Seizawa Shii's question, I chuckled. I slightly pulled my dick out and showed Seizawa Shii the hymenal blood smeared with vaginal fluid with my finger.</p>
+<p>"A little."</p>
+<p>"Aha.... Then I've become a woman? Ehehe.... Ryuta-cchi's woman."</p>
+<p>I couldn't stand it anymore when she said such a commendable thing. I took my hands off Seizawa Shii's breasts and grabbed her thin but firm waist.</p>
+<p>"Ryuta-cchi?"</p>
+<p>"If you bear with it for a little bit, you'll feel good, Shii."</p>
+<p>I pulled Seizawa Shii's waist and pushed my dick in as much as possible. Seizawa Shii's virgin insides, which had never been touched by a foreign object, were widened by my violent thick dick, and the inside was violated.</p>
+<p>"Hieuu...! It hurts, Ryuta-cchi...! Hiss! Hieuheuheung...! It's weird, hiss!"</p>
+<p>At first, Seizawa Shii said it hurt, but as the parts that were being rubbed or torn were healed by the Holy Pillar effect (I don't know what the principle is, but the hymen was not regenerated), she gradually began to make excited sounds.</p>
+<p>"Does it feel good?"</p>
+<p>"Hiss...! Definitely...! Heung, it hurt...! Heung, inside, euheung, it feels good, Ryuta-cchi...♥"</p>
+<p>Now, Seizawa Shii was completely entrusting her body to pleasure. Of course, in the meantime, I was feeling tremendous pleasure from Seizawa Shii's pussy, which was tightly squeezing my dick.</p>
+<p>Thud! Thud! Thud!</p>
+<p>"Hiss, hiss! Hyaeuheung...! Ryuta-cchi, hiss! Ryuta-cchi, heuaahang...! I, hiheut...! It's weird....! Heung, hyaeuheung...♥"</p>
+<p>Now that Seizawa Shii was feeling good, I also stopped considering Seizawa Shii's virginity and moved violently for my own release, and Seizawa Shii began to writhe in pleasure she had never tasted before.</p>
+<p>I was holding her waist and pressing down, but it wasn't easy to suppress Seizawa Shii, who was thrashing in pleasure because she was so strong. Is this what it feels like to ride an untamed wild horse?</p>
+<p>"Hieuheung!"</p>
+<p>Seizawa Shii, who was holding my waist, stood up her waist and pulled my head. Without caring that I was resisting, she forcibly pulled my head and started kissing me.</p>
+<p>Originally, it was a normal doggy style, but as Seizawa Shii stood up, the position changed to standing doggy style. Naturally, the angle at which my dick was stabbing changed, and I felt a new pleasure.</p>
+<p>Of course, Seizawa Shii also trembled with new pleasure and kissed me roughly.</p>
+<p>Tsuup, chubuep...! Tsup, chueup...!</p>
+<p>It wasn't a kiss, it was almost like eating something ravenously. A crude oral sex to fill only something craving, a filthy oral sex that couldn't be called a kiss, and shaking her waist made Seizawa Shii lose her mind.</p>
+<p>"Haaang!"</p>
+<p>With Seizawa Shii's big moan, the inside of her vagina wriggled. It was already a tight pussy, but when it wriggled with even more intensity, I started to ejaculate without realizing it.</p>
+<p>"Keueu...! I'm cumming, Shii...!"</p>
+<p>"Hiss, I don't know...! Ryuta-cchi, hiss! Ryuta-cchi...♥"</p>
+<p>With a cracking sound, the washing machine in front of me was crushed, Seizawa Shii reached orgasm, and I began to pour out semen inside Seizawa Shii's tightly narrowed pussy.</p>
+<p>Byuut! Byuut! Bueut...!</p>
+<p>Literally, my dick was squeezed in her pussy, and semen came out with tremendous force. Normally, the semen would flow back and fall to the ground, but because her pussy was so tight, the entrance was completely blocked, so it was holding all that amount of my semen in her uterus.</p>
+<p>"Hieuheueueu...! It's hot, Ryuta-cchi...♥"</p>
+<p>"Haa... haa.... Did it feel good?"</p>
+<p>Seizawa Shii didn't answer, but she nodded and pushed me. My dick slowly came out, and Seizawa Shii's pussy came out as if she didn't want to let go, and then it came out with a ppong feeling.</p>
+<p>Of course, since it was a standing sex position, standing doggy style, semen fell to the floor due to gravity. I came a lot.</p>
+<p>"Ryuta-cchi.... I'm curious about other positions too."</p>
+<p>The flames of lust were still burning in Seizawa Shii's eyes. Amazing, isn't it? If it's your first time, your stamina and mental strength usually can't handle it, so you fall out. Even though I'm turning on the Holy Pillar, it was the first time I've seen someone so energetic.</p>
+<p>Seizawa Shii, who slowly approached me, took out a few towels from her laundry that had just finished drying in the washing machine and laid them on the floor. And she said to me with slightly scary eyes.</p>
+<p>"Lie down, Ryuta-cchi. This time, I'll make you feel good♥"</p>
+<p>"U, uh...."</p>
+<p>As if she didn't even think about my dick, which was limp and dangling from the tremendous ejaculation just now, she knelt between my legs and grabbed my dick as I lay down.</p>
+<p>"You have to clean it after you shoot like this, right?"</p>
+<p>"Well, yeah?"</p>
+<p>At my answer, Seizawa Shii bit my dick with her mouth as it was. Seizawa Shii, who cleaned my urethra with almost vacuum cleaner-like pressure, smiled contentedly as she looked at my dick, which had been re-erected by the cleaning fellatio.</p>
+<p>Seizawa Shii, who stood up again and matched the position of her pussy and my dick, slowly began to lower her waist. It seemed like she was trying to find out a new pleasure with the cowgirl position.</p>
+<p>"Haaaang...! It feels good, Ryuta-cchi♥"</p>
+<p>This time, my semen still remaining in her vagina acted as a lubricant, so my dick went in much easier than the first time. Seizawa Shii, who reached her peak as soon as I put it in, began to shake her waist.</p>
+<p>"Hiss, haeuheung...!"</p>
+<p>As her waist movements became more intense, Seizawa Shii's pounding became more and more painful. It would have been okay if it was a bed, but it was quite painful because the bottom was a hard floor.</p>
+<p>When I looked at Seizawa Shii, she seemed to be on the verge of losing her mind, so I didn't think it would work with words, so I grabbed Seizawa Shii's pelvis, lifted it into the air, and started piston movements by moving my waist.</p>
+<p>"Aaa...! Haa, it feels good!"</p>
+<p>Seizawa Shii, who pushed away my arm because she wanted to move herself (as she pushed, the chair next to her bounced off and smashed into the wall), moved her waist again.</p>
+<p>I quickly used a submission technique to grab Seizawa Shii and rotate her to change the position from cowgirl to missionary. My pelvic bones won't break in the missionary position, right?</p>
+<p>"Haeueung, hiss! It hurts, it hurts but, hiss! It feels good!"</p>
+<p>I also shook my waist much more violently than before, feeling like, "Now you try it too," but Seizawa Shii liked it even more.</p>
+<p>Then she wrapped her legs around my waist and squeezed tightly, and I clearly heard a cracking sound from the 11th and 12th ribs at the very bottom. Of course, it was regenerated immediately, but this was the first time I had such intense sex.</p>
+<p>"Haeueung! Hiss!"</p>
+<p>"Heoeok...heoeok... keuek!"</p>
+<p>With the sound of crashing and cracking, Seizawa Shii and I overlapped each other's bodies in a trance. When I came to my senses, Seizawa Shii was collapsed, constantly dripping semen from her pussy, and the surroundings were devastated.</p>
+<p>Let's see.... Five washing machines were damaged, and all the chairs around were smashed.</p>
+<p>But I won after all.... To be honest, having sex with Seizawa Shii was harder than Kaihsu Kakan, one of the Four Heavenly Kings of Anya Territory, earlier.</p>
+<p>"It's not sex, it's a battle...."</p>
+<p>There would have been a chair, I would have sat down, but I leaned against the half-crushed washing machine and muttered. Seizawa Shii, who seemed to have come to her senses at that voice, groaned and raised her body. Her recovery power is also amazing, isn't it?</p>
+<p>"Kyaak.... W, what is this?"</p>
+<p>"You did all this."</p>
+<p>"R, really? Ah, I have to buy a new washing machine...."</p>
+<p>She seemed to remember what she had done, as if she hadn't completely lost her mind. I smiled slightly as I looked at Seizawa Shii, who was feeling depressed while looking at the washing machine.</p>
+<p>"It wasn't just you who had sex, so I'll buy you a washing machine."</p>
+<p>It's a commercial washing machine, so it'll be a bit expensive, but I could do this much for Seizawa Shii, who bought a store to be with me.</p>
+<p>"Really? It's going to be a bit expensive...."</p>
+<p>"It's okay. Instead...."</p>
+<p>"Instead?"</p>
+<p>"Next time, let's just do it on the bed in the room. My whole body aches from doing it on the bare floor."</p>
+<p>Seizawa Shii laughed, "Ahaha," as I tapped her shoulder and said that.</p>
+<p>"Ahaha~☆ Ryuta-cchi, are you weak?"</p>
+<p>"It's not that I'm weak, it's that you're too strong."</p>
+<p>After finishing the conversation, we started cleaning up the laundromat for a while. We gathered the chair fragments in one place and started checking the broken washing machines one by one.</p>
+<p>"I can't use the towels. I have to throw them away."</p>
+<p>Seizawa Shii, who threw the towels that had been laid out for sex in the place where the chair fragments were, muttered and started putting on her clothes.</p>
+<p>The underwear that was caught up in our intense sex was also dirty, so she just wore shorts and a hoodie on her bare body, and when I was looking at her, she slightly revealed one side of her chest and laughed playfully.</p>
+<p>"Ufufu.... Should we do it one more time?"</p>
+<p>"No, if we do it again this time, we'll break a few more washing machines."</p>
+<p>"Ahahaha! Sorry, I lost my mind because it was my first time, Ryuta-cchi."</p>
+<p>Usually, if it's your first time, you don't know what to do, and you quickly fall out from the pleasure you taste for the first time. It seemed like it was a problem that her body was too energetic.</p>
+<p>____________</p>
+<p>Seizawa Shii B-cut!</p>
+<p>I liked it quite a bit, but it suddenly had a ponytail, so it became a B-cut hehe</p>
+<p>I also liked this illustration, but it didn't feel like she was leaning on the washing machine enough, so it also became a B-cut hehe</p>
+<p>Just a back view feeling hehe</p>

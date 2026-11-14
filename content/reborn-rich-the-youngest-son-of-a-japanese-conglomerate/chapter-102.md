@@ -5,88 +5,71 @@ weight = 102
 chapter = 102
 +++
 
-<p>"Yong-tae-ya~!"</p>
-<p>As I got off the plane and entered the airport, Han Yu-gyeong was there, waiting, waving her hand at me. Since it was past mid-June, Han Yu-gyeong was dressed lightly. She was wearing a light white dress that showed her shoulders, and it suited her very well. She's pretty no matter when I see her.</p>
-<p>"I didn't expect you to be at the airport."</p>
-<p>"Heehee, I was waiting to surprise you♥"</p>
-<p>I was originally planning to meet near Korea University, but I was surprised to suddenly see Han Yu-gyeong. We hugged as a celebration of our reunion after a long time, sharing our body heat and catching up. Han Yu-gyeong is so pretty, and I'm more than just average-looking, so everyone around us was staring. It's a bit much. I should get in the car soon.</p>
-<p>"Shall we go?"</p>
-<p>"Yeah! We can take the car I drove here."</p>
-<p>Following Han Yu-gyeong's lead, we went to the airport parking lot, where Han Yu-gyeong's bodyguard, Dickson, was waiting in the driver's seat. Dickson is a huge white man, and he was the bodyguard I recommended to Han Yu-gyeong.</p>
-<p>In the game MegaCorp, the youngest son had an event where the bodyguard assigned by the family at the beginning would betray you, so if you didn't succeed in getting a really useful trait gacha early on, you had to hire another bodyguard. In my memory, there was a list of recommended bodyguards who were cheap enough to hire early on and had decent abilities for the price.</p>
-<p>Dickson was one of those guys on the list. Dickson's biggest advantage in guarding Han Yu-gyeong is that he's gay. That's why I could entrust Han Yu-gyeong to him without worry. The only bodyguards who wouldn't hit on Han Yu-gyeong were Dickson or a female bodyguard, but due to the physical characteristics that men and women are born with, all the female bodyguards who were guaranteed to be capable were expensive to hire. That's because useful female bodyguards were either psychics or had undergone body modification. Psychics were rare and strong, so they were expensive, and body modification had initial investment costs, so they tried to charge as much as possible.</p>
-<p>"I heard you recommended me to my boss? Thank you."</p>
-<p>"Don't mention it. I just heard that you're a promising bodyguard."</p>
-<p>I shook hands with Dickson, and we got into the back seat of the car. It's around 4 o'clock, so the traffic shouldn't be too bad yet. I'll arrive a bit early.</p>
-<p>"Ah! Right, Health Miracle is already at $850, huh?"</p>
-<p>"You did well to listen to me, right? I'll give you information from time to time in the future."</p>
-<p>Han Yu-gyeong brought up the topic of Health Miracle. It was $800 just the day before yesterday, and it's gone up another $50. Han Yu-gyeong also invested 30 million won when I told her, and she said she's been steadily putting in money since then, for a total of 50 million won... She must have made a lot of money, right?</p>
-<p>"Sell when it goes over $1000. The highest point will be around $1100."</p>
-<p>Health Miracle's hair loss treatment, Forest, definitely had excellent effects that were incomparable to other hair loss treatments. However, it also had the side effects of existing hair loss drugs, with the main side effects being erectile dysfunction, decreased sexual function, decreased ejaculate volume, and gynecomastia. Those side effects were more severe than those of regular hair loss drugs, so it became a target of attack by other pharmaceutical companies that were jealous of Health Miracle's dramatic rise.</p>
-<p>Health Miracle argued that only a small percentage of people experienced side effects, like with regular hair loss drugs, but they were pushed back by the alliance of existing giant pharmaceutical companies and the media that received advertisements from those giant pharmaceutical companies, and Health Miracle's stock plummeted. The stock, which had been at $1150, fell below $300. Nevertheless, it was still 300 times more expensive than when it was initially $1, so it couldn't be denied that it had become a considerably large company. It was all thanks to the men who chose hair over their dicks.</p>
-<p>Later on, it was revealed that a slightly higher percentage of users, around 3-4 percent, experienced side effects compared to the 2-3 percent of regular hair loss drugs, so it rebounded a bit, but that was much later.</p>
-<p>"By the way, what's the plan for today?"</p>
-<p>"We're going to stop by a bar called Lime Tree to let everyone know about Yong-tae's existence, and then we'll go out and have fun just the two of us. Is that okay?"</p>
-<p>"I'm good with that."</p>
-<p>I heard that she made a bet with Park Sang-beom about whether I exist or not, but I have a feeling that even if Park Sang-beom loses the bet, he won't just accept it. If he keeps bothering Han Yu-gyeong, I'll get rid of him and then... Ah! I can offer the corpse as a tribute to Simyeonui ttal. Could this be a corpse disposal technique?</p>
-<p>I was happy about the magic circle [Tribute to Simyeonui ttal] whose use had increased. Until now, I didn't know what to offer, but now, if I ever kill someone, I'll use it to get rid of the corpse. Still, I don't know what Simyeonui ttal likes, so I should wrap up some sundae soup, which I like, and offer it later. She wouldn't hate it, right? It's super delicious, after all.</p>
-<p>While chatting with Han Yu-gyeong about this and that, we arrived near Korea University before I knew it.</p>
-<p>###</p>
-<p>Park Sang-beom smiled as he watched the '53 freshmen come in one after another. He would finally be able to expose Han Yu-gyeong's lies. If he thought about it coldly, even if Park Sang-beom exposed Han Yu-gyeong's lies, he wouldn't get anything out of it. But Park Sang-beom, who was becoming increasingly obsessed with Han Yu-gyeong, lacked that kind of cold judgment.</p>
-<p>"Oppa, I'm going to eat well today~!"</p>
-<p>"Hyung, you've worked hard to gather people."</p>
-<p>"Yeah, eat a lot today."</p>
-<p>Park Sang-beom, who greeted the juniors with a smile, had an increasingly deep smile as time passed. It was because Han Yu-gyeong wasn't showing up. Park Sang-beom thought that Han Yu-gyeong was afraid to reveal the truth, so she couldn't come.</p>
-<p>'She must not be coming because it's a lie.'</p>
-<p>It was already past 6 o'clock, the time they had promised to meet. In the end, Han Yu-gyeong and her imaginary boyfriend didn't come. He felt like he could drink happily today even if Han Yu-gyeong didn't come. He could meet her tomorrow or the day after and get her to admit it.</p>
-<p>He could feel that the juniors who had gathered here were looking for Han Yu-gyeong, probably because he had announced it in the group chat. He smirked as he heard them whispering to each other, saying, "It must be a lie, right?"</p>
-<p>It was then that Han Yu-gyeong's voice reached Park Sang-beom's ear.</p>
-<p>"I'm a bit late."</p>
-<p>Han Yu-gyeong was standing side by side with a man that Park Sang-beom had never seen before. He was a handsome man with a height that looked to be at least in the mid-180s and a solid, muscular build. His face was so handsome that it could put celebrities to shame. The moment Park Sang-beom saw the man, he could feel it. The man was a male that couldn't even be compared to him. He felt a sense of defeat the moment he saw Jin Yong-tae, but he quickly shook his head to shake off that sense of defeat.</p>
-<p>"This is my boyfriend, Jin Yong-tae."</p>
-<p>"Hello. I'm Jin Yong-tae."</p>
-<p>The noisy bar suddenly became quiet. They were a couple of handsome men and beautiful women who looked so good together. The man was incredibly handsome, but Han Yu-gyeong had only worn her school jacket, jeans, or training clothes until now, but today, probably because she was in front of her boyfriend, she was wearing a white dress from a luxury brand. He always thought she was pretty, but she looked even more beautiful than usual with her changed clothes and makeup. Park Sang-beom felt an indescribable jealousy when he saw Han Yu-gyeong's clothes. 'She was wearing simple training clothes when I met her yesterday...' he thought to himself.</p>
-<p>"Yu-gyeong-a~! Sit here! There's a seat here."</p>
-<p>Son Na-ri, who was close to Han Yu-gyeong, pointed to the seat next to her and the seat across from her and raised her hand.</p>
-<p>"I'm just here to say hello. It's been a while since I met my boyfriend, so I have to go on a date."</p>
-<p>"You definitely said you'd attend the drinking party, right?"</p>
-<p>Park Sang-beom tried to hold onto Han Yu-gyeong, saying something that even he thought was strange. Han Yu-gyeong looked at Park Sang-beom with cold eyes.</p>
-<p>"You definitely told everyone in the '53 class group chat to say if they were going to attend, right, Sunbae-nim? I never said I would attend, Sunbae-nim."</p>
-<p>At Han Yu-gyeong's words, Park Sang-beom opened his KakaoTalk. Among the numerous '53 class juniors who were replying that they would attend, only Han Yu-gyeong's message was missing.</p>
-<p>"And I won the bet, so you must keep your promise."</p>
-<p>Han Yu-gyeong and Jin Yong-tae went outside. Before leaving, Jin Yong-tae wrapped his arm around Han Yu-gyeong's waist and pulled her towards him, looking at Park Sang-beom with a smile.</p>
-<p>'That Bastard?'</p>
-<p>Unaware of Park Sang-beom's feelings, the bar became noisy again as the Han Yu-gyeong couple left. But Park Sang-beom couldn't hear such noise.</p>
-<p>'What did I say I would do if I lost...?'</p>
-<p>He was so sure that he would win that he had forgotten what he had said to Han Yu-gyeong.</p>
-<p>"Ah!"</p>
-<p>The promise that Park Sang-beom had made was that he would not approach Han Yu-gyeong or even talk to her. But, of course, Park Sang-beom had no intention of keeping his promise. To him, the son of a businessman, a verbal promise was just an empty thing that could be overturned at any time.</p>
-<p>"I'll be out for a while, so you guys eat. I've already paid, so don't worry and have fun and drink as much as you want."</p>
-<p>Park Sang-beom spoke to his juniors and went outside without even hearing their replies. It was to chase after Han Yu-gyeong and Jin Yong-tae. But perhaps because he had spent some time thinking about what the promise was, he couldn't find Han Yu-gyeong's figure.</p>
-<p>###</p>
-<p>An hour ago.</p>
-<p>We stopped by Han Yu-gyeong's place near Korea University to drop off my luggage. Han Yu-gyeong's place was an apartment nearby, and it was excessively large for a woman living alone, but it felt modest for a daughter of a chaebol family. Like Han Yu-gyeong, who is usually neat, the house was also clean and tidy. Before dropping off my luggage, I told Dickson in the parking lot that he was on vacation until Monday afternoon, and he was very happy.</p>
-<p>"There's still a lot of time left, huh?"</p>
-<p>The traffic wasn't too bad, so we arrived quite early, leaving us with over forty minutes until the appointment time. Han Yu-gyeong was sitting quietly, her face subtly blushing. As a gentleman, I couldn't just sit still while a lady was waiting. I approached Han Yu-gyeong and kissed her.</p>
-<p>"Euum..."</p>
-<p>Han Yu-gyeong was moaning from time to time, as if she liked just the kiss. I continued to kiss her and ran my hand down her back, touching her butt over her clothes. The firm and soft texture of her butt felt very good.</p>
-<p>"Haaang...♡ Don't just tease my butt..."</p>
-<p>"Then where should I touch?"</p>
-<p>"P...ussy..."</p>
-<p>"Huh? What did you say?"</p>
-<p>When I asked again, Han Yu-gyeong blushed and said it a little more clearly.</p>
-<p>"P...ussy..."</p>
-<p>"I won't touch you if you don't say it properly?"</p>
-<p>"Pussy, touch my pussy. I missed Yong-tae so much. Fill what's empty...!"</p>
-<p>As Han Yu-gyeong said, I started using my body to fill Han Yu-gyeong's emptiness. And forty minutes later, Han Yu-gyeong was trembling in climax, spitting out fluids, and I was lying next to Han Yu-gyeong, who was trembling, a little tired from working hard. I looked at the clock hanging so I could see it right from the bed, and it was 6:05.</p>
-<p>"Yu-gyeong-a."</p>
-<p>"Aheueung... Why?"</p>
-<p>"We're late."</p>
-<p>Han Yu-gyeong got up with her trembling body and started fixing her appearance at an amazing speed. Don't women usually take a long time? Han Yu-gyeong fixed her hair and reapplied her makeup in almost ten minutes.</p>
-<p>"Don't women usually take a long time to get ready?"</p>
-<p>"It's because I don't want to lose the bet that much. Let's just show our faces and go eat dinner, I'm hungry!"</p>
-<p>I guess I was hungry too, since I just ate something quickly to make it to the flight on time. The bar where Han Yu-gyeong's classmates were gathered wasn't far away. I arrived around 6:20. When I entered the bar, I saw Park Sang-beom, who looked similar to what I saw in the game. A handsome but repulsive face, muscles that he had trained to some extent, and a confident face. But that confident face disappeared as soon as he saw me.</p>
-<p>While Han Yu-gyeong and Park Sang-beom were talking, I was thinking about what the weaknesses of the BS Group were and what benefits I could get from this.</p>
-<p>"Yong-tae-ya, the story's over. Let's go now."</p>
-<p>"Ah, really?"</p>
-<p>Then I should set fire to Park Sang-beom's heart one last time before leaving. I wrapped my arm around Han Yu-gyeong's waist, turned around, and looked at Park Sang-beom. And I gave him the brightest smile I could.</p>
+<p>Jinmija Yeosa-nim used a portion of Taira Saburo's inheritance and the money she had saved to move from an apartment to a mansion.</p>
+<p>Unlike Korea, in Japan, apartments give off a slightly run-down vibe as residences. In fact, what is called an apartment in Korea is a mansion in Japan, and an apartment in Japan refers to a multi-dwelling house made of lightweight steel frame or wood, not reinforced concrete, with a height of about two to three stories. The two-story house with several people living in it that appears in Japanese anime or dramas is exactly what an apartment is in Japan.</p>
+<p>Until now, I had lived in an apartment because Jinmija Yeosa-nim didn't invest the money Taira Saburo sent her every month and the money she earned herself in a place to live, but diligently saved it in her bank account in order to send me to college and save up for my future marriage fund. Before my possession, not knowing this, I naturally assumed that our house, living in a shabby place, was poor, so I didn't study in the first place. My mom said that when she found out about this, it was when I had just entered my senior year of high school, and she regretted it immensely then.</p>
+<p>After I joined the Taira Group Human Resources Development Institute, the money saved for my tuition became useless, and after Taira Saburo died and I received the inheritance, she used that money to move from an apartment to a mansion. So, perhaps because of that, it didn't really feel like home to me. Because it wasn't the house I had lived in since I was born. Since my mom moved when I was living in the Human Resources Development Institute, she had only come about twice.</p>
+<p>,Ool~! You moved to a good place?"</p>
+<p>,It seems like this is the best neighborhood in Edogawa Ward?"</p>
+<p>Kazuhiro and Kiyohira said a word each as they got out. These guys were also coming to a newly moved house for the first time while living their social lives, so they looked around with wonder. Saying that there was such a neighborhood in Edogawa Ward.</p>
+<p>Edogawa Ward, along with Adachi Ward and Katsushika Ward, is called the ,Shomin 3-ku (Downtown Three Wards)' and is a representative neighborhood where the common people of Tokyo live, but it still had its own wealthy area, and the mansion Jinmija Yeosa-nim moved to was right in that neighborhood.</p>
+<p>We each carried our gifts and went up to the house. Jinmija Yeosa-nim's house was on the 8th floor. Since I had received the key from my mom in advance, I opened the door with the key without ringing the bell, and Jinmija Yeosa-nim was dressed up and sitting on the sofa watching TV. It seemed like she was dressed in advance because our appointment time was approaching.</p>
+<p>,Mom~!"</p>
+<p>,Mother!"</p>
+<p>,It's been a while, Ryuta's mother."</p>
+<p>,Oh, you're here?"</p>
+<p>As we came in all together, Jinmija Yeosa-nim greeted us with a smile. She hugged Kiyohira and Kazuhiro each, and patted and hugged me too.</p>
+<p>,Happy birthday, Mom."</p>
+<p>,Here's a gift, Ryuta's mother!"</p>
+<p>,I chose it with my girlfriend."</p>
+<p>As I handed over my gift, the two friends gave their gifts as well. Kiyohira, wanting to go on a gift offensive, said he had swept up clothes that would suit Jinmija Yeosa-nim at an outlet in the United States. He said he just grabbed all the clothes that seemed suitable, so there were 20 pieces.</p>
+<p>Kazuhiro asked Kagawa Umi to help him choose a gift together, and what the two of them chose was a luxury wallet. The color was similar to the luxury bag I chose, so it felt like a matching set, which I personally liked.</p>
+<p>,Thank you so much. You've all grown up. My sons."</p>
+<p>It was a simple statement, but she seemed very touched that the son she had raised and the son's friends she had taken care of since middle school had grown up well and were giving her gifts on her birthday. Kazuhiro and Kiyohira also seemed touched by Jinmija-ssi's words, ,My sons.' After that, we chatted for a while, evaluating each other's gifts, and then went outside as the dinner reservation time approached.</p>
+<p>The restaurant I reserved was a Korean BBQ place called Haga (河家), pronounced Kawaka in Japanese, which was quite luxurious. We were guided to the reserved room and took our seats. Jinmija Yeosa-nim sat at the innermost seat, Kazuhiro and Kiyohira on either side, and I sat closest to the door.</p>
+<p>We each ordered our favorite cuts of meat. Mom ordered sirloin, Kazuhiro ordered beef tongue, and Kiyohira said he had eaten a lot of beef in the United States, so he ordered pork belly. Finally, I ordered ribs.</p>
+<p>Soon the meats came out, and we watched the staff grill them. The staff member grilling the meat was a female employee, and for some reason, she felt familiar. Someone I'm seeing for the first time, but feels familiar... Is this what they call déjà vu?</p>
+<p>We enjoyed the meat grilled by the female employee. Since there were three big guys, we added meat several times. We had a meal while having pleasant conversations. Kazuhiro tactlessly told Mom about my player story, but Mom coolly just said to take responsibility if I get someone pregnant. Taira Saburo also took responsibility by sending living expenses, so I guess that's what she meant.</p>
+<p>,Shall we have doenjang jjigae (soybean paste stew) for the meal after a long time?"</p>
+<p>,I'll have sundubu jjigae (soft tofu stew)! I wanted to eat it so much while I was in the United States."</p>
+<p>,I'll have naengmyeon (cold noodles)."</p>
+<p>,I'm just following what you guys are eating, and I feel like I'm going to explode, so I'll stop eating."</p>
+<p>Jinmija Yeosa-nim rubbed her stomach and said she would stop eating, and we, who were not yet full, ordered our respective dishes. After ordering and waiting for a moment, the door opened and an employee came in.</p>
+<p>However, the employee who came in now was not the employee who had been bringing the food until now. Both were burly men, and while pretending to carry food, they suddenly took something out of their apron pockets and pointed it at us.</p>
+<p>What the fuck, it was a gun!</p>
+<p>,Duck!"</p>
+<p>My body reacted faster than I thought, blocking the front of the table and spreading my arms to make a ,big character' with my body. When an urgent situation came, I felt like the speed of the world was flowing slowly, and I saw another person standing in front of me.</p>
+<p>The one who blocked me was the female employee who had been grilling our meat until now. That female employee also took out a pistol from somewhere and started firing back.</p>
+<p>Tang! Tang! Tang! Tang! Tang!</p>
+<p>Even while staggering from being shot, the female employee continued to fire until the end, and the feeling of bullets that didn't hit the female employee piercing my body, combined with the flames of the shooting and the tremendous noise of the gunfire, made it impossible to come to my senses. More than anything, what made it impossible for me to come to my senses was the worry for my mom and two friends behind me. No matter how much someone is blocking in front, you could still get shot if you're unlucky.</p>
+<p>The gunshots subsided, and the two burly men fell, and the female employee in front of me also fell. I had also been hit by a few bullets, but regeneration had already started, so I wasn't too worried. I turned around.</p>
+<p>It was a relief. All three of them were hiding under the table, so they survived without being shot. I was unknowingly moved by the sight of Kazuhiro and Kiyohira hugging and protecting Mom on both sides. When the gunshots stopped, Jinmija Yeosa-nim shook off Kazuhiro and Kiyohira and came to me crying like crazy.</p>
+<p>,Son! Are you okay? Oh my god, look at all this blood...!"</p>
+<p>,I'm okay. They're all just grazes. Look, it's clean."</p>
+<p>I lifted my clothes to show her the wounds. The wounds were faint, so there was a lot of blood, but it looked okay.</p>
+<p>,More than that...!"</p>
+<p>After confirming that Mom and my friends were safe, I approached the female employee who was lying in front of me. Surprisingly, the female employee was alive.</p>
+<p>When I touched her body, she was wearing a bulletproof vest. So, she wasn't shot in any fatal vital spots. However, she was shot in the shoulder and arm and was bleeding a lot.</p>
+<p>,Call 119 quickly!!"</p>
+<p>I shouted to Kazuhiro and pressed down hard on the shoulder and arm that had been shot. The female employee looked at me and smiled faintly.</p>
+<p>,I'm not going to die, Sunbae-nim..."</p>
+<p>,Huh?"</p>
+<p>Sunbae-nim? At the female employee's words, I gently pulled on the female employee's black hair, and Mimata Chieri's orange hair came out from under the wig. Looking closely, her face seemed to be made up, and she had changed her height with high-heeled shoes so that I wouldn't recognize her.</p>
+<p>,Sunbae-nim, why...?"</p>
+<p>,It was Chairman-nim's order. To watch over Hubae-nim and step in immediately if you're in danger..."</p>
+<p>As I expected, Mimata Chieri must have been like a direct agent of Chairman Taira Danjo. I kept talking to Mimata Chieri so she wouldn't lose consciousness, and then an ambulance came and took Mimata Chieri away. She won't die, right? Still, she's a direct agent of the Chairman, so they won't let her die.</p>
+<p>After the ambulance took Mimata Chieri away, the police soon came, but a lawyer from the Taira Group who came with them exchanged a few words, and then they left without even opening their mouths to me, only dealing with the bodies. The power of the Taira Group was indeed great. They left without even investigating.</p>
+<p>,The Chairman-nim will tell you the story tomorrow at the main house. You must be shocked, so please rest today."</p>
+<p>,Yes. Thank you for your help."</p>
+<p>I greeted the lawyer and took Mom and my friends home. Even while going home, I sharpened my senses as much as possible to see if anyone was following, but no one was following.</p>
+<p>,What's going on?"</p>
+<p>Kazuhiro asked in a heavy atmosphere.</p>
+<p>,I don't know either. What happened..."</p>
+<p>I had no idea what was going on, so I had no choice but to answer like this. Mom seemed to be okay on the outside, perhaps because her mentality was strong. Kiyohira also seemed calm, perhaps because he had some experience in martial arts, and only Kazuhiro seemed a little anxious.</p>
+<p>,First, find out what's going on..."</p>
+<p>Whether I ask Taira Danjo grandpa or find out personally, I will definitely find out who the culprit is this time.</p>
+<p>,I'll make sure this never happens again, so don't worry."</p>
+<p>Yeah. I'm going to kill the person who caused this so that this never happens again.</p>
+<p>-----</p>
+<p>Japanese apartments feel like this.</p>
+<p>Mansions are apartments in Korea.</p>

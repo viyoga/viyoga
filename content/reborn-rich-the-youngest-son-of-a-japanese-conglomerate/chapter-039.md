@@ -5,70 +5,86 @@ weight = 39
 chapter = 39
 +++
 
-<p>After lunch, Gokado Hanako parted ways with Taira Ryuta's group and got a little angry at Kagawa Umi. She was annoyed that Umi had made a drinking appointment without consulting her, forcing her to agree in order not to spoil the mood.</p>
-<p>"Umi-chan! You should have asked me before making a drinking appointment~!"</p>
-<p>"Hehe, sorry, Hanako-chan. But I like that Kazuhiro-chan, okay? Can you help me out?"</p>
-<p>No matter what she said, Umi was asking her to help her meet a guy, so as a friend, Hanako couldn't stay angry any longer and agreed. Then, she called her boyfriend, Honjo Tokiatsu. Gokado Hanako, who prided herself on being reasonably chaste, couldn't possibly drink with another man without telling her boyfriend.</p>
-<p>-Hanako, what's wrong?</p>
-<p>"Eung, I just had lunch and wanted to hear your voice, so I called. Did you have lunch, Tokiatsu?"</p>
-<p>-Yeah! I ate something simple. How was your morning class? Your eyes looked red in the picture earlier, what happened?</p>
-<p>Indeed, having dated for a long time, Honjo Tokiatsu knew even the smallest things about Gokado Hanako. She didn't think it was noticeable at all, but Honjo Tokiatsu's keen eye caught it, making her heart flutter. That made her feel even more sorry about going to the drinking party.</p>
-<p>"No, nothing happened. Something just got in my eye."</p>
-<p>She didn't want to worry him by mentioning that she had been sexually harassed. And when she thought about that time, Taira Ryuta's reliable face came to mind, but Gokado Hanako shook her head and forcibly erased Taira Ryuta's face.</p>
-<p>-Ah, that's a relief! I was worried for nothing.</p>
-<p>"But Umi says there's a guy she likes, and we're going to have a simple drink tonight, is that okay?"</p>
-<p>-.... Are there other guys there too?</p>
-<p>Honjo Tokiatsu's voice suddenly became very low. This was the only flaw that Gokado Hanako thought Honjo Tokiatsu had. Could it be that he didn't trust her? He really hated her going to places where there were other men.</p>
-<p>"Yes, but I already told them I have a boyfriend. Nothing you're worried about will happen, Toki-chan."</p>
-<p>-Hoo.... Okay, I always trust Hanako.</p>
-<p>Only when she called him by his childhood nickname, Toki-chan, did Honjo Tokiatsu's mood improve a little. Hanako felt frustrated having to explain everything like this. Would he tell her to just live as a housewife if they got married?</p>
-<p>Marrying Tokiatsu, whom she had liked since kindergarten, was one of Gokado Hanako's dreams, but she didn't want to waste her smart brain, which was good enough to get into Edo University. She dreamed of becoming a confident career woman or a lawyer or prosecutor, befitting her academic background. Being a housewife was not Gokado Hanako's dream.</p>
-<p>"Thanks! I have an afternoon class now, so I'll hang up~"</p>
-<p>-Okay! Do your best. Fighting!</p>
-<p>Gokado Hanako hung up the phone and moved to the practice area. And during a break in practice, she witnessed Taira Ryuta's lewd scene. The sight was so explicit that Gokado Hanako was a little reluctant to look at Taira Ryuta's face.</p>
-<p>'I can't drink with Ryuta-gun with this feeling. I feel sorry for Umi, but should I send her alone?'</p>
-<p>Toki-chan would be very happy if I said I wasn't going to the drinking party, right? Gokado Hanako thought about how happy her boyfriend would be and called Honjo Tokiatsu, but it was not Honjo Tokiatsu who answered the phone, but a woman.</p>
-<p>-Oh my~! Hanako-chan! What's wrong?</p>
-<p>The voice belonged to Yamana Mikuni, a childhood friend just like Honjo Tokiatsu. In high school, they had fought over Honjo Tokiatsu, and Gokado Hanako had ultimately won Honjo Tokiatsu's heart, but Yamana Mikuni hovered around Honjo Tokiatsu, constantly seeking an opportunity to surpass Gokado Hanako and become his girlfriend.</p>
-<p>"Why are you answering Toki-chan's phone?"</p>
-<p>-Toki-chan went to the bathroom. We're having dinner together tonight. I got a restaurant voucher~♪</p>
-<p>Gokado Hanako calmed her bubbling heart. He complained about her drinking with another man, but he's having dinner with Yamani Mikuni, who still loves him, without saying a word? Gokado Hanako said goodbye to hang up the phone before her reason was cut off by anger.</p>
-<p>"Okay, you two have a good meal. I'll hang up."</p>
-<p>Gokado Hanako's expression was complicated. It was a very complicated expression, filled with betrayal towards her boyfriend, anger and wariness towards her childhood friend and rival.</p>
-<p>###</p>
-<p>"But if you two are friends, why does Kazuhiro-chan call Taira-san 'hyung-nim'?"</p>
-<p>It was Kagawa Umi's question. She would be curious if she heard our story. Hearing the question, Kazuhiro began to tell the story. It was the perfect material to raise his favorability. He would stimulate her maternal instincts by talking about being bullied, give off a bad boy vibe by saying he became a delinquent as his body grew, and finally, tell the story of how he was scolded by me and came to his senses and became a righteous young man. According to Jin Yongtae's memory, he seemed to have used this story on women at least three times.</p>
-<p>This bastard isn't calling me 'hyung-nim' because of this on purpose, is he?</p>
-<p>"...That's why I call hyung-nim 'hyung-nim'. If hyung-nim hadn't set me straight, I would have become a hangure (semi-gangster) and kept doing bad things."</p>
-<p>There it is. Those tearful eyes. In my opinion, that guy will make more money acting in America than playing soccer.</p>
-<p>"Oh my, what a great story."</p>
-<p>Kagawa Umi looked at Kazuhiro as if she was moved, and Gokado Hanako looked at me, who had reformed Kazuhiro, with an expression that said, "What a commendable guy."</p>
-<p>After the story of Kazuhiro's reformation, the atmosphere became increasingly sticky as they drank more, and at some point, the two of them started making out right in front of me and Gokado Hanako. Even while kissing, Kazuhiro gestured to me to leave. He was absolutely determined to consummate the relationship in this room.</p>
-<p>I grabbed Gokado Hanako, who was swaying in her seat from being drunk, by the shoulders and stood her up.</p>
-<p>"I'll take you to your room. Kagawa-sang will be taken care of by Kazuhiro."</p>
-<p>"Liar."</p>
-<p>Of course, it's a lie. Kazuhiro's already lost his mind and his hand is on Kagawa Umi's chest.</p>
-<p>"Let's go out first."</p>
-<p>Actually, I had already done it three times during practice, and Gokado Hanako also said she had a boyfriend, so I didn't really want to do it with Gokado Hanako right now. Well, I'd eat it if she offered.</p>
-<p>I was just more focused on helping my friend Kazuhiro consummate the relationship. Gokado Hanako, who was swaying, said "just a moment" to me and forcibly straightened her body before starting to make a phone call. It must be her boyfriend, right?</p>
-<p>"Yoboseyo?"</p>
-<p>Her voice was very slurred. Moreover, because she was drunk, she accidentally pressed the wrong button on the screen and turned on the speakerphone, so I could hear her boyfriend's voice clearly.</p>
-<p>-Yeah, Hanako-chan. Are you still drinking?</p>
-<p>"I'm going to go in now. Did you have a good dinner with Mikuni-chan?"</p>
-<p>It seems her boyfriend had dinner with a woman. Her voice was slurred and cute, but it was a voice that suppressed a slight anger.</p>
-<p>-I just came to drink with Mikuni-chan. Mikuni-chan treated me to a very fancy restaurant, and I felt bad, so I said I wanted to repay her, and she said she wanted me to buy her a drink. So we came to a nearby bar.</p>
-<p>Hmm... Judging from the fact that her boyfriend's voice also sounded a little drunk, it seemed that the woman named Mikuni was definitely trying to get with Gokado Hanako's boyfriend.</p>
-<p>"Okay. Don't drink too much~ I'm going to sleep at the dorm."</p>
-<p>-Okay....</p>
-<p>Gokado Hanako hung up without even hearing the answer. And she looked at me with dazed, drunken eyes, and her gaze was subtly seductive, causing Johnson to react without me even realizing it.</p>
-<p>"Toki-chan betrayed me, so I'm going to do the same."</p>
-<p>It didn't seem like her boyfriend had betrayed her yet, but from the sound of his voice, he didn't seem to know the woman named Mikuni's ulterior motives, and it seemed that the woman named Mikuni was going to get Gokado Hanako's boyfriend, Toki-chan, drunk and then get with him, waking up naked in the morning.</p>
-<p>I don't know your face, but thank you, Mikuni-sang.</p>
-<p>Gokado Hanako took my hand and headed to her dorm with staggering steps. Hmm, it's a girl's room, so it's a little more cute and definitely a single room is a little smaller than a double room.</p>
-<p>"Sit here."</p>
-<p>As I was looking around the room, Gokado Hanako sat on the bed and tapped the spot next to her, saying. Well, even if I went back now, I would only see Kagawa Umi and Kazuhiro copulating, so I followed Gokado Hanako's words and sat next to her.</p>
-<p>"Make me feel good like that female instructor who was in charge of you."</p>
-<p>She saw that? Ah, that's why her expression was strange when we met after practice. Hmm, it would be foolish to just give in right away. I have to play hard to get at least once, while stimulating her a little.</p>
-<p>"Even if that woman named Mikuni and your boyfriend end up doing that tonight, you'll regret doing it with me just to vent your anger."</p>
-<p>Gokado Hanako looked into my straight eyes and suddenly kissed me. Gokado Hanako's kiss tasted like a little alcohol and the cherry flavor of the snacks she had just eaten.</p>
-<p>I'll say it again, Mikuni-sang, good assist!</p>
+<p>After the match, the Kazuhiro and Umi couple and Arisu and I had dinner. Dinner was at a luxurious Steakhouse. Kazuhiro-nyeoseok scored a goal and became MVP, so he deserved at least this much.</p>
+<p>Even when watching Soccer, Umi and Arisu were together, but perhaps because they couldn't talk much due to watching Soccer, I asked Arisu many questions.</p>
+<p>"As I said earlier, Arisu-ssi is so pretty~. What kind of Work do you do?"</p>
+<p>"I work as a model."</p>
+<p>"Wow! A model! This is my first time seeing a model in real life."</p>
+<p>Leaving the Women to talk, I started to tease Kazuhiro.</p>
+<p>"You couldn't even get the Ball for 37 minutes in the second half. You should go to a good Place to receive the Ball."</p>
+<p>"Aoh~! What do you know about Soccer, Hyung-nim? I scored a goal, isn't that enough?"</p>
+<p>As if getting angry at my unsolicited advice, Kazuhiro kept grumbling, "Aoh!" I looked at Kazuhiro, chuckled, and opened my mouth.</p>
+<p>"Congratulations on your Debut, you bastard."</p>
+<p>"This is all thanks to Hyung-nim."</p>
+<p>It was a slightly embarrassing Scene. Kazuhiro seemed truly grateful to me for hitting him and setting him straight when he was lost. Mealtime passed, and it was time to say goodbye.</p>
+<p>Kazuhiro-nyeoseok, saying he would completely burn up tonight, wrapped his arm around Kagawa Umi's Waist and disappeared. Seeing Kagawa Umi also lean into him with an "Aing~" sound, it seemed she was also quite looking forward to night work with Kazuhiro. They're quite a well-matched Couple, aren't they?</p>
+<p>I rode in the car Arisu drove, and returned to the Talent Development Center. Arisu, seemingly quite Regrettable, couldn't leave, and kept caressing my Cheek.</p>
+<p>"We won't be able to see each other for a month now, will we?"</p>
+<p>"Indeed.... Come here."</p>
+<p>I hugged Arisu tightly once. Arisu said she was going to Milan, Italy for her modeling Work, and wouldn't be in Japan for a month. It was a bit Regrettable not seeing her for a month, but if I focused on Work for about a month, it would pass quickly.</p>
+<p>"I'll buy you a gift, so look forward to it~!"</p>
+<p>"Okay, take care of yourself, and since Public Order in Italy is worse than in Japan, always take your Manager or bodyguard with you."</p>
+<p>"Okay!"</p>
+<p>After Arisu left, I returned to the Talent Development Center. Tomorrow, another week will begin.</p>
+<p>The next day, when I went to Work, Kurakake Kuma's Seat was, naturally, empty. Even his computer had completely disappeared, which was somewhat chilling.</p>
+<p>"Deputy Team Leader Kurakake Kuma received 'Discipline' due to an unsavory incident at his previous posting, Taira Bussan, and thus lost his position as Deputy Team Leader of our team, so please be aware of that."</p>
+<p>At Shinoe Misano's Words, everyone became quiet as if on cue. Everyone must have thought, 'This is that famous disappearing Discipline of the Taira Group.'</p>
+<p>"It's not a busy time yet, so there won't be a replacement Deputy Team Leader. A Deputy Team Leader is scheduled to arrive around April, so until then, let's share and cover the Deputy Team Leader's Work little by little."</p>
+<p>Shinoe Misano pushed up her Glasses once, and spoke with that languid Expression. Because I had enjoyed myself with Shinoe Misano a few days ago with her Glasses off, if there was an opportunity next time, I wanted to try it with her Glasses on.</p>
+<p>Even if people on communities call them 'Dickglasses, Dickglasses,' if worn by someone they suit, Glasses are incredibly sexy... no, they were just Glasses. Shinoe Misano was a Beauty who suited Glasses very well. As I kept staring, and my Eyes met Shinoe Misano's, Shinoe Misano smiled sweetly. I slightly bowed my Head and sat down. If we exchanged Lust-filled Gazes here, all the team members would notice our Relationship, so I sat down and prepared for Work.</p>
+<p>"I heard from a peer at Bussan that the Deputy Team Leader-nim's rumors were bad. There were rumors that he had promiscuous relationships with the Wives of his Superior and Subordinates."</p>
+<p>Mimata Chieri whispered into my Sensitive Ear. Ah, he was a vulgar bastard after all. To actually commit acts worthy of Manga or AV...</p>
+<p>"During the Company Dinner, didn't the Deputy Team Leader hit on Sunbae?"</p>
+<p>"No, he was dazed as if his Mind had left him, so the Company Dinner ended quickly."</p>
+<p>Ah, so that's what happened. Indeed, no matter how Crazy Bastard he was, since he had already been caught by me, he couldn't possibly target another Woman again.</p>
+<p>"By the way, it's a Company Dinner, Hubae-gun, it's a shame. The Team Leader-nim suddenly collapsed."</p>
+<p>A shame, indeed. I had Sex after a long time and felt incredibly good.</p>
+<p>"Then, Sunbae-nim, buy me a drink next time."</p>
+<p>At my Words, "Shall I?" Mimata Chieri brightly nodded her Head.</p>
+<p>Mimata Chieri was a Sunbae, and an older mentor, but seeing her bright Attitude, like a juicy Idol, she felt like a super popular classmate from High School.</p>
+<p>"First, I'll tell you about the Work you'll be doing today."</p>
+<p>As Mimata Chieri instructed, I did several tasks, and before I knew it, it was lunchtime.</p>
+<p>"Taira Ryuta-gun will go on an Outing with me today. Let's eat lunch together Outside."</p>
+<p>Shinoe Misano said. Mimata Chieri made a Tearful face, saying, "Ah, both lunches today are delicious ㅠㅠ," but what could she do? When the Team Leader orders, you have no choice but to obey.</p>
+<p>By the way, isn't Team Leader Ajumma too blatant? For me, it's a win-win, raising Experience Points and feeling good. I got into Shinoe Misano's car.</p>
+<p>The Place we went to was a nearby furniture Factory. For this year's Newcomer training, they said they decided to replace old Chairs.</p>
+<p>Our Education Support Team was in charge, and naturally, the furniture Factory Boss came out to us in a very submissive posture, knowing that a deal with the Taira Group would be a significant Performance.</p>
+<p>Shinoe Misano looked around the Factory, contracted to exchange three thousand Chairs, and came out of the Factory. The furniture Factory Boss greeted us so politely that his Head almost touched the Ground.</p>
+<p>"Let's eat eel layered sex for lunch."</p>
+<p>What is she trying to make me do with eel layered sex? Moreover, instead of eating at the Store, we ordered takeout on the way to the Store. And the Place we arrived at was Shinoe Misano's Home.</p>
+<p>"Eat comfortably."</p>
+<p>When I said I ate a lot, my eel layered dish was ordered in Tokumori (特盛: extra-extra large, a regular large is called Oomori (大盛)) size.</p>
+<p>There was Hitsumabushi (ひつまぶし), the Nagoya style of eel dish where crispy eel is grilled and served over rice in a round bowl, and Unaju (うな重), commonly known as eel served over rice in a rectangular box with the eel laid out without gaps, eaten in Kanto and Kansai. Since Chiba is part of Kanto (関東), what we packed this time was also Unaju.</p>
+<p>Being Tokumori Size, it was twice as large as Shinoe Misano's vessel. As I looked at this enormous amount of eel layered sex, I could feel Shinoe Misano's dark Intention, hoping I would use my Power somewhere, but I first ate to appease my Hunger. This was because the Meal was a little late due to contracting with the furniture company.</p>
+<p>I don't know if it was because I was hungry or if it was a famous restaurant, but it was incredibly delicious. I found myself gobbling it down without realizing it.</p>
+<p>Shinoe Misano, who was halfway through her Meal, looked at me with a satisfied Appearance. It was an Expression like watching a Son eat well.</p>
+<p>"Don't leave any, eat it all. If you're going to use your Power soon, you need to eat properly."</p>
+<p>"Oh my♡ What a bold young Man, aren't you?"</p>
+<p>Shinoe Misano, who understood my Words, stopped looking at me and started eating again. Soon, both of us finished our Meals, and brushed our teeth.</p>
+<p>But if I leave the Toothbrush here, won't her Nampyeon, who returns from his overseas Business Trip later, find it? When I asked, Shinoe Misano gave a seductive Smile, and whispered, "Are you scared?"</p>
+<p>After Brushing teeth, we went to the Couple's Bedroom, and as if showing off her Figure, we faced each other and slowly took off our Clothes. Shinoe Misano smiled and tried to take off her Glasses.</p>
+<p>"Don't take off your Glasses."</p>
+<p>"Why?"</p>
+<p>"Because you look sexy with Glasses on."</p>
+<p>"Hehehe, Pervert."</p>
+<p>Leaving her Glasses on, I looked at the naked body of Shinoe Misano. Although it was the same Place as last time, because the time of day was different, the Feeling was also different from then. Then, I had seen Shinoe Misano's naked body illuminated by the dark moonlight, but today, seeing it illuminated by the warm sunlight, the Feeling was different. Receiving the sunlight streaming through the window, seeing her naked body sitting on the bed, my cock involuntarily throbbed.</p>
+<p>While other team members were busy working, with us doing this, I felt a considerable sense of Forbidden Pleasure.</p>
+<p>Still, so that others wouldn't suspect, we had to go to the company on time, so we kissed each other, engaged in Foreplay by lightly touching her breast and pussy, and then immediately proceeded with insertion. Even though there wasn't much Foreplay, Shinoe Misano's Donggul was wet and slippery.</p>
+<p>"Haaang! This is it! I kept thinking about it!!"</p>
+<p>"Did you think about it more than your Nampyeon's?"</p>
+<p>"I don't even think about my Nampyeon's, you've completely layered sex over it. Haheut!"</p>
+<p>She was a Woman who knew how to say arousing Words. As she said such things herself, seemingly enjoying the Forbidden Pleasure, her pussy tightened and fluid dripped. But now that I think about it, I didn't use a Condom, is that okay...?</p>
+<p>"But I didn't use a Condom, is that okay?"</p>
+<p>"Yes, I took Medicine before going on the Outing earlier, so it's fine."</p>
+<p>"You Lewd bitch!"</p>
+<p>Thud! Thud! Thud!</p>
+<p>Thinking of Shinoe Misano, who had taken Medicine beforehand because she wanted to do it raw, I became even more aroused and thrust hard.</p>
+<p>"Haaang! I love the Feeling of this pussy widening...! Heueut!"</p>
+<p>"By the time your Nampyeon returns, I'll make you into a complete Slutty Pussy."</p>
+<p>"Nooo, my Nampyeon will notice~!"</p>
+<p>Saying "no," Shinoe Misano hugged me. Crossing her Legs in an X-shape and wrapping them around my Waist, she urged for semen.</p>
+<p>"Hwaaang! I'm going to come! Together, let's go together! Feed my long-starved pussy your semen!"</p>
+<p>"Just a little more, endure it if we're going to come together!"</p>
+<p>As I was already getting signals little by little, I quickly thrust my buttocks. Shinoe Misano, who had endured a little as I said, finally couldn't hold back, rolled her Eyes, and reached Orgasm, and I released my semen into the deepest part of her pussy.</p>
+<p>As if it had been a very long time since an Intravaginal Ejaculation, my semen, which was even hot, filled her Bojian. "This is it, this Feeling!" Shinoe Misano said, falling into an even stronger Orgasm.</p>
+<p>After Sex, we lay down and rested for about fifteen minutes, then returned to the company in Shinoe Misano's car. When we returned, it was already 4 o'clock. It would be time to leave work soon. I guess this is what they call "salary-lupin."</p>

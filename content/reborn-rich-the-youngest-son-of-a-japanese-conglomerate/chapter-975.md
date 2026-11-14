@@ -5,57 +5,57 @@ weight = 975
 chapter = 975
 +++
 
-<p>"I've been waiting. Come in quickly."</p>
-<p>Seido Omina, who heard Tsukiyo's Words, was flustered. She thought, 'How did she know we were coming?' but like a skilled Investigator, she didn't show it and entered Inside the House.</p>
-<p>However, Kahei Jingoro, having synthesized various situations, inwardly believed there was an eighty percent chance the Target was aware of them, so he wasn't particularly surprised by Tsukiyo's Words.</p>
-<p>"Did you know we were coming?" "Yes, I didn't exactly think you would come, but didn't you come here after seeing some 'traces' I left behind? Ordinary police wouldn't be able to find me, and I thought there would be an Organization in Japan that handles such Incidents. Or a special team within the police."</p>
-<p>At Kahei Jingoro's Words, Tsukiyo gave a surprisingly detailed Explanation. Tsukiyo thought there would be an Organization in Japan that manages Paranormal Phenomenon, not the police, and had left clues that the police wouldn't be able to see.</p>
-<p>The Aura left on the Corpse, or even the Memory remaining on the object that was excessively clear for a psychometrist to see, all were deliberately left by Tsukiyo.</p>
-<p>The clues left by Tsukiyo were confirmed by the Paranormal Phenomenon Management Bureau investigation team, and they eventually came this far; Tsukiyo had led the investigation team through all of this with meticulous Calculation.</p>
-<p>"If it were you, you might have found me quickly with the clues I left, but the police, who only thought it was a Murder case, bought me Time well. During that Time, I was able to carry out this 'body's' boksu without interruption."</p>
-<p>Calculating even the Time wasted by the police investigation, Tsukiyo had completed 'Sato Tsukiyo's' boksu without interruption.</p>
-<p>"That body.... Did you take it?"</p>
-<p>Kahei Jingoro, since the topic of the body came up, asked about the body. It was a Question that had to be asked, now that he knew there was another Existence inside that body. If it was a spiritual Entity that could freely take bodies? Kahei Jingoro was thinking of pressing the highest-grade emergency button and committing suicide.</p>
-<p>"It's more accurate to say I saved her rather than took her. This kid tried to commit suicide by falling into the Sea. I also have a Purpose, so I helped her with her boksu and in return, used her Body for a while."</p>
-<p>They felt Relief at the Words that she saved her, not took her, but at Tsukiyo's last Words that she used it as a Price, Kahei Jingoro and Seido Omina swallowed their saliva and felt Taut Tension.</p>
-<p>What exactly could be the Purpose of such a cunning divine Existence, capable of calculating all these situations? They couldn't Guess what that Purpose was at all, but if that Purpose was something bad for humans, could they really stop this god? Because that thought came to mind.</p>
-<p>"Ahahaha. Don't worry. The Purpose is nothing special."</p>
-<p>Tsukiyo laughed loudly, looking at the two who were tense. And she waved her Hand, telling them not to worry, but still, the two couldn't relax their Taut Tension. Because she might say, "Don't worry, my Purpose is just to be offered about 100,000 lives~!" From the start, the standards of that Existence and human standards could not be the same.</p>
-<p>"Even if I say it's nothing special, you’re not relaxing your taut tension. You there, if you’re a Shrine Maiden, you’d understand well, right? You know well about the 'Divinity’s Division (神格の分化)', don’t you?"</p>
-<p>Tsukiyo pointed at Seido Omina and spoke. Seido Omina nodded her Head at Tsukiyo's Words.</p>
-<p>"As generations pass, the role of a god changes, or when a god ascends to a higher rank, isn't it when one 'Divinity' (位: a unit for counting gods) becomes two Divinities?" "You can roughly say something similar happened to me. The Kids who originally served me are now serving another god, so I came to meet them."</p>
-<p>Seido Omina immediately understood what was happening from Tsukiyo's Explanation. The Solution to this Matter was simple. However, as an Investigator, Seido Omina couldn't make a Decision on what to do, so consultation was needed.</p>
-<p>"Can the two of us talk for a moment?" "Anytime."</p>
-<p>Seido Omina and Kahei Jingoro came Outside the House for a moment. Kahei Jingoro was listening, but because he hadn't fully understood The Situation, he looked at Seido Omina as if telling her to explain.</p>
-<p>"So, you roughly understand the story of Divinity's Division I just told you, right?" "Roughly, as you said...." "To simply explain the Solution, that god is currently without a Home. So, if we call the relevant priests and build a shrine for them, the Matter will be over. However, I can't make that Choice, can I? We are Investigators, not decision-makers."</p>
-<p>For an Incident where as many as twenty-one people died, the Solution seemed easy. However, since the Paranormal Phenomenon Management Bureau might want something else instead of this Solution, Kahei Jingoro nodded his Head and immediately Contacted Kuroda Ouji, the person in charge.</p>
-<p>"...Understood."</p>
-<p>Kahei Jingoro, who had been making a Report for a while, nodded his Head and then ended the Call.</p>
-<p>"What did he say?" "Club President Kuroda also said he would ask the Director-General. He seemed rather disheartened because the Solution was simple."</p>
-<p>Seido Omina asked with a slightly anxious Expression. If the Solution she proposed were to be rejected, she didn't want to Imagine what would happen next. She would have to face that powerful and even intelligent god-of course, it would be the subjugation team, not the investigation team-but there was a high Possibility that even she, who didn't grant the god's Request, would suffer harm.</p>
-<p>However, contrary to Seido Omina's Expectation, even Club President Kuroda Ouji of the investigation department couldn't make an immediate Decision, so he decided to ask the Director-General of the Japan Paranormal Phenomenon Management Bureau about the Solution to this Incident.</p>
-<p>"...."</p>
-<p>After waiting a little like that, the Phone Call rang, but it was a Phone Call from Director-General Iwanu Sadakake, not Kuroda Ouji.</p>
-<p>-Can we control that individual?</p>
-<p>"No. It is a divine Existence and its intelligence is superior to anything else. It planned all these situations. Even our meeting. If we try to control it unnecessarily, great harm is expected in Japan."</p>
-<p>Kahei Jingoro also felt Tsukiyo's danger like Seido Omina, so he flatly said no to the Director-General's Question. A strong Existence could be controlled, but a cunning Existence could not. If that cunning Existence possessed power, merely trying to control it could become dangerous.</p>
-<p>-Yes. As soon as I asked if it could be controlled, an enormous sense of unease swept over me. Use the Solution the investigation team found to send that Existence back to their World.</p>
-<p>Because Director-General Iwanu Sadakake's precognitive superpower was a famous Story even within the Paranormal Phenomenon Management Bureau, Kahei Jingoro nodded his Head, thinking his thoughts were correct. And after answering, "Understood," he hung up the Phone.</p>
-<p>"I got permission. Let's go with your Solution." "Good."</p>
-<p>The two, having received permission from above, went Inside the House again. Inside the House was still full of Blood Scent, but because they had already received permission for the Solution, there wasn't the same level of Tension as when they first entered.</p>
-<p>"Th-then, who should I call?" "If you call one person who is with Konoka of the Urabe Family to me, the Matter will be resolved well."</p>
-<p>Ah, it's the Urabe Family. Seido Omina heard the name Urabe and inwardly let out a Sigh of Relief. If they brought Shrine Maidens or priests and said they had no Money to build a shrine, they would have to endure the anger of this unknown god named Tsukiyo, but if it was the Urabe Family, they would have the Money to build a new shrine.</p>
-<p>For reference, Seido Omina, unlike the Urabe faction that serves Susanoo, was a shrine maiden who served Tsukuyomi (月読).</p>
-<p>'By the way, if the name were Tsukiyo (月夜), it would suit us well.'</p>
-<p>Of course, it was the name of the Body possessed by this unknown god, but Seido Omina felt a bit regretful. She thought that if it had the same 'Moon' (月) character, it would be more fitting for the Tsukuyomi side. At the same time, she found the contact information of a high-ranking person from the Urabe side on her phone and made a call.</p>
-<p>"Hello? Yes, I apologize for the late hour, but...."</p>
-<p>Seido Omina roughly informed them of what had happened so far. Due to the nature of the Work that required solving various Paranormal Phenomenon, the Paranormal Phenomenon Management Bureau maintained a quite strong Relationship with the shrine side, so she was able to explain this Incident well without hiding anything.</p>
-<p>"Oh, is that so? Thank you...!"</p>
-<p>Seido Omina thanked them and hung up the Call with the Urabe person. And looking at Tsukiyo, she smiled and opened her Mouth.</p>
-<p>"They said they would send them as quickly as possible." "Really? That's good. Oh, and...."</p>
-<p>She smiled, saying it was good that the Shrine Maidens who had served her in the past were coming, then Tsukiyo soon became serious. And she pointed at herself, but not knowing what she meant, Seido Omina and Kahei Jingoro stared blankly at Tsukiyo.</p>
-<p>"I quite liked the owner of this Body. So I'm going to make her my Shrine Maiden. So, will you make sure she doesn't get sent to prison for killing people?"</p>
-<p>Kahei Jingoro and Seido Omina looked at each other at Tsukiyo's Words. Anyway, a fake culprit had already been decided to be the culprit of this mass Murder Incident, so it seemed there would be no Problem in granting this Request. All the deceased were also extremely vicious. The two, having reached a conclusion with just a Gaze, nodded their Heads at Tsukiyo as if they understood.</p>
-<p>"That's good. Then, while we wait, shall we order something to eat?"</p>
-<p>Even while in the blood-stained living room, she seemed to have an Appetite. Since the two had no intention of eating a Meal here, they said the Shrine Maidens would arrive soon and postponed Tsukiyo's meal.</p>
-<p>Requested by Gojoy-nim, Yang Seol-hui belly dancer, Tape~! Belly dancer~! Tape~! Requested by MidNightSKY-nim, Ryuta wielding Genesis Chaos as a Sword, and Shii who broke the Wall with her finger~! Ryuta first~! The entire thing, including the Handle, changing into Energy, has a huge randomness, so it doesn't appear much hehe. Shii~! Bonus~! Shii who breaks the Wall with her breast and says you'll get scolded if you point with your finger and speak hehe. Mid-Boss Alik in a frill dress making a V-sign next to her eye~! I used a frill dress prompt, but the frills didn't appear as much as I thought hehe. Ppyu</p>
+<p>-Ryuta: Photo WWWWWWWWWWW</p>
+<p>After Genbaki's match ended, the next day, as soon as I woke up, I downloaded a GIF of Genbaki flinching during the match and sent it to Genbaki's LINE.</p>
+<p>I sent it with a bunch of WWs, giving it a feeling of explosive laughter, but as a friend, I sent it to Genbaki with the feeling that this incident was nothing and that he should quickly return to his normal Condition. Since about a day had passed, he probably wouldn't take it that seriously.</p>
+<p>Genbaki's match became a hot Topic among the public due to the unique Event of the cyber implant destruction, but of course, Martial Arts Masters and People with high City Hall Naegong were criticizing Genbaki's poor performance.</p>
+<p>In particular, thanks to Fujigasaki Rinka, who rose to the top of the World with a Woman's Body without cyber implants, the Japanese fans, whose standards had been raised as high as they could go, showed a slightly negative Reaction just because Genba Kiyohira suddenly got cyber implants.</p>
+<p>Other Martial Arts fans, claiming to be Experts, said that Genba Kiyohira won because of the cyber implant and that if his Opponent Martinez had used the same implant as Genbaki, the match might have turned out differently.</p>
+<p>Of course, this painful Situation for Genba Kiyohira considerably increased my property. First, Cyberware, the cyber implant company in which I have a considerable Share, enjoyed a huge Advertisement Effect due to Genbaki's Champion Defensive Battle, laying the groundwork for considerable profits in the future.</p>
+<p>Second, thanks to Genbaki's Victory, I succeeded in betting and made three times the profit, and last but not least, I was able to make a considerable profit by shorting Guadalajara Mecha-Tech Company, the company of the cyber implant worn by his Opponent Martinez.</p>
+<p>Of course, the CEO of Guadalajara Mecha-Tech Company made a slightly lame Excuse, saying that Martinez's cyber implant was an old model and that Guadalajara Mecha-Tech Company could win in a battle between new models, but because so many People vividly saw the scene of Guadalajara Mecha-Tech Company's cyber implant being smashed on the Screen or at the Scene, they could not prevent the stock price from plummeting.</p>
+<p>So, it was just a Martial Arts match, but this incident succeeded in successfully making Cyberware's name known in the USA, a company in Mexico faltered, and I personally made a lot of Money, so it could be said to be a meaningful match in its own way.</p>
+<p>Genbaki is being ridiculed by the Media and UMC fans, and the UMC openweight players who watched the match are each issuing challenges to Genbaki, so he is being greatly looked down upon, but I am sure he will be able to overcome it.</p>
+<p>In particular, seeing Musashi Takuro, the Old Man, get pissed off at the Victory in the match that day and his Face turn tomato-colored, he must be doing intense Spartan-style Training with Musashi Takuro, the Old Man, or starting other Actual Combat-type Training by now. Judging by the fact that there is no Reply on LINE, he is probably in Training.</p>
+<p>After sending the LINE to Genbaki, I turned on the TV straight from the Bed. Of course, Mimata Chieri and Sawayanagi Azuma, who visited the Mansion yesterday, were lying on either side of me, asleep. I had spent a hot night with the two of them, whom I had met after a long time.</p>
+<p>Like Genbaki, both of them enjoyed a Physical Class Battle with me until Dawn, but the difference from Genbaki's match is that the match is held naked and it doesn't hurt.</p>
+<p>Perhaps because they were both quite tired from the match (?) that lasted until Dawn, they didn't React at all even when I turned on the TV. Thinking about the two of them, I could have stayed quiet, but there was something to check on TV. This time, Genbaki has a Role to play.</p>
+<p>-Genba Kiyohira-ssi, who successfully completed his Champion Defensive Battle yesterday, has become a hot Topic once again. Cyber implants received attention as in the match. Kaneda-ssi, our New York correspondent, is at the Scene....</p>
+<p>This time, a Scene came out of Genbaki wearing a cyber implant made of a material similar to human Skin for everyday life, not a combat cyber implant. He was caught walking around the streets of New York wearing a sleeveless T-shirt, whether he wore it on purpose or not, and all the New York citizens were surprised.</p>
+<p>-He is wearing a different cyber implant than the one he used in the match. It seems that he is using a natural Product that makes you not feel like you are wearing a cyber implant. Let's take a look at the Interview between the American Media Company reporter and Genba Kiyohira-ssi.</p>
+<p>The next Screen was an Interview Scene between the reporter and Genbaki, and when asked if it was a Product from the same company as the cyber implant he used in yesterday's match, Genbaki nodded firmly and answered Cyberware.</p>
+<p>Even though he was being cursed at for his poor performance yesterday, he is doing a great job of Advertising even the cyber implant for everyday life, so I should tell Eve to give Genbaki a bonus.</p>
+<p>Thanks to this, the SNS and Internet Reactions are quite explosive, and several chat messages had come from Eve on the Am-Sang App while I was sleeping.</p>
+<p>-EVE: Ryuta-nim~! Inquiries about cyber implants have increased tremendously since yesterday's match!! The Internet Reactions are also very good!</p>
+<p>-EVE: Ryuta-nim! Did you see Genbaki-ssi's Interview? There are definitely a lot more inquiries about the model for everyday life! The Site became unstable, so I had to increase the traffic...!</p>
+<p>-EVE: Ah, it's time for you to Sleep~! Please Contact me when you wake up!</p>
+<p>Eve seemed quite excited that the Business she started ambitiously was doing well from the start. The cyber implant Business was definitely a big Market. The World War III ended 8 years ago, but the number of People without Limbs has greatly increased due to the local wars and various Terror attacks that have continued to occur from time to time, and as a result, cyber implant companies have sprung up like mushrooms after the rain.</p>
+<p>Of course, only a few companies survived due to technical problems, Costs, and A/S. Cyberware will have to overcome several crises to become one of the few surviving companies, but judging from the current Situation, the start seems good.</p>
+<p>- Ryuta: I just woke up. I saw the news, and it seems like the ad campaign is working well?</p>
+<p>-EVE: Right? I've received about 2,000 Reservations so far...! We still lack facilities, so it's difficult to make Reservations in the western USA, but we plan to increase them soon.</p>
+<p>2,000 Reservations.... Some might say that's not that many, but considering that the company Cyberware was only known to the World yesterday, it was a considerable Performance. In addition, the cyber implant itself is a high value-added commodity, so each one is expensive and generates considerable profits, so 2,000 units would mean a considerable profit.</p>
+<p>-Ryuta: Is there anything I need to do?</p>
+<p>Eve was the one with the largest Share, but I was also nominally registered as the CEO of Cyberware, and if Cyberware does well, I will also make Money, so I asked Eve if there was anything I could do to help.</p>
+<p>-EVE: There's nothing in particular right now. But there are a few documents to process, so I'll send them to you by email~!</p>
+<p>- Ryuta: Okay. I'll take care of the documents quickly!</p>
+<p>It seemed that there wasn't much I could do to help yet. I opened my inbox and started checking the documents I had to process. After checking all the documents, I got out of Bed and put on a Gown. I was planning to ask Linling to do this Paperwork.</p>
+<p>She explained even the clauses I didn't know and worked hard as if it were her own Work, so I had received a lot of Help from Linling over the past few days.</p>
+<p>For reference, Linling in her child Appearance was wearing a maid outfit with Alik and walking around the Mansion, taking care of the work in the Mansion, and Linxiang in her adult Appearance was helping me a lot with my Work, but since the Mansion work was also Work for me, it could be said that both of them were giving me quite a lot of Help.</p>
+<p>-Ryuta: Photo WWWWWWWWWWW</p>
+<p>Genba Kiyohira smiled bitterly without realizing it after seeing the GIF sent by Taira Ryuta. Genba Kiyohira, who knew Taira Ryuta well as a friend, knew that Taira Ryuta did not send it with the Intention of mocking him. It was half to cheer him up and half to make fun of him. Even he thought it was such a poor performance that he wanted to make fun of him. Thanks to a decent finish in its own way, he didn't get as much Cursing from the public as he expected, but he got all the Cursing he lacked from his Sabu.</p>
+<p>Genba Kiyohira's Sabu, Musashi Takuro, was worried about what Training could heal Genba Kiyohira's Trauma, and decided to put Genba Kiyohira in the vigilante activities that Fujigasaki Rinka and her Party were doing.</p>
+<p>Musashi Takuro judged that if he continued to do Actual Combat where he could be shot by a Gun, he would be able to overcome his Trauma.</p>
+<p>There was a Rule that for Safety, they had to work in pairs of at least two People, so Genba Kiyohira naturally teamed up with Musashi Takuro, but Musashi Takuro said that he would only be in the same team and would not help him, and that he would only step in in very urgent Situations where Genba Kiyohira was shot by a Gun, showing a strict Attitude like a Mother Lion throwing her cub off a Cliff.</p>
+<p>'Are you all dressed?'</p>
+<p>Musashi Takuro, wearing a cyber suit, spoke as Genba Kiyohira stood holding his phone. Because he was such a strong elderly man, the cyber suit looked like it was about to burst, but when he put on a specially prepared helmet, he looked like a physical class hero, so it suited him quite well.</p>
+<p>Genba Kiyohira nodded his Head. He was already wearing a cyber Suit, and if he wore a Helmet that could hide his True Identity, no one on the streets of New York would know that he was Genba Kiyohira, the UMC openweight Champion.</p>
+<p>'Let's go! You have to suffer on the streets to come to your senses, you Bastard!'</p>
+<p>Musashi Takuro, wearing a Helmet, urged Genba Kiyohira. Genba Kiyohira sighed softly, then put on his Helmet and stepped out into the night streets of New York.</p>
+<p>Gojoy-nim requested Minamoto Lisa in casual Clothes and Underwear~!</p>
+<p>Casual Clothes</p>
+<p>This is Lisa, who has been wearing cashmere polo shirts and tennis Skirts often recently hehe.</p>
+<p>Underwear~!</p>
+<p>TheDreaming-nim requested a Remake of Yang Seol-hui's prison in Chapter 209 1. Remake of the Main Story Illustration 2. Remake of the Bonus Illustration~!</p>
+<p>1.</p>
+<p>2.</p>
+<p>Yang Seol-hui's atmosphere has changed a lot from the old Illustration, so I don't get the old Feeling hehe.</p>

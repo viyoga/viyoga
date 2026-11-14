@@ -5,78 +5,104 @@ weight = 1024
 chapter = 1024
 +++
 
-<p>Among the Information Eve passed on, besides the grimoire Information, there were quite ominous things, such as a sharp increase in the number of missing persons in New York recently, or the updates on the SNS account that promoted vigilante activities had stopped.</p>
-<p>I decided to skip the rest because they were either Information that would only be useful with various combinations from Jo Seodang or Information that would only be useful for Business, and first, I decided to hear about the situation so far from the American team who had come to the USA to find the fake Black Knight.</p>
-<p>'I heard the general Story yesterday, but I want to hear the current situation in detail.'</p>
-<p>'First, you know that we disguised ourselves as vigilantes and searched for the fake Black Knight since you were in Japan.... We're still patrolling at night, but it seems our Operation has failed.'</p>
-<p>Fujigasaki Rinka replied with a tired Expression. The Operation failed? What does that mean?</p>
-<p>'I didn't know it had failed until just now either. But after seeing the Information from that grimoire or whatever, I realized it had failed.'</p>
-<p>Fujigasaki Rinka was saying things I couldn't understand. What did she realize?</p>
-<p>'What did you realize?'</p>
-<p>'The Black Sage's Method.'</p>
-<p>Fujigasaki Rinka told the Story of what she had realized. As everyone here now knows, the Black Sage came to the USA to obtain the grimoire called the Shard of Omniscience.</p>
-<p>Rumor had it that the Shard of Omniscience had flowed into the New York Back Alley underworld. The Black Sage pondered how to obtain the Shard of Omniscience and soon found a Method. It was to use my Sabu's Sabu, Soda Haruto.</p>
-<p>He would dress Soda Haruto, who uses black Aura similar to the Black Knight, in the Black Knight Armor and fuck up the New York underworld organizations. And then find out where the Shard of Omniscience is.</p>
-<p>But there was something the Black Sage hadn't even predicted. It was that those inspired by the fake Black Knight's activities would step forward and start vigilante activities. Not just a few, but so many vigilantes began attacking the underworld that it became a trend.</p>
-<p>In the end, the vigilantes were taking care of the New York Back Alley underworld organizations that the Black Knight had to deal with, so the Black Sage's plan went awry.</p>
-<p>'I was wondering why the Black Knight suddenly stopped his activities, but it seems the Black Sage's plan went wrong, so he stopped the initial Operation. Or maybe he just stopped temporarily.'</p>
-<p>Fujigasaki Rinka said that he might have stopped temporarily and pointed to the Information that the vigilante SNS's updates had stopped.</p>
-<p>'He might eliminate the vigilantes who are interfering with his Work first and then the Black Knight might appear again.'</p>
-<p>'Then.... I don't think we need to chase the Black Knight.'</p>
-<p>Naruse Shiyo, who was looking at the data and listening to the Story, said.</p>
-<p>'If there really is an Existence that is killing vigilantes, then that Existence will eventually be connected to the Black Sage.... We can chase that side, right?'</p>
-<p>'Ah, that's right. If we go to the side where the Black Sage is, we'll eventually meet the fake Black Knight!'</p>
-<p>'In the end, it means we have to continue our patrol activities.'</p>
-<p>Kujo Kina said with a Sigh. The conclusion was that we had to continue doing what we had been doing. Everyone looked tired from going on patrol every night, so she seemed a little Frustrating that she had to continue doing it.</p>
-<p>'Since we have nothing to do except wait for Behemoth to appear, I'll help with the Sajo rescue day.'</p>
-<p>I don't know when Behemoth will appear, but he will arrive within two days at the latest. I couldn't just stay still during that Time, so I decided to help with my Sabu's Sabu rescue Operation.</p>
-<p>If I'm lucky, Famine might hear that the Black Knight has disappeared and call Behemoth and Whisper back again. Of course, that Possibility was very low.</p>
-<p>Given the personalities of Famine and Behemoth, if there is no Black Knight in New York, they will cause Terror to call out the Black Knight.</p>
-<p>Of course, my mission is to stop that Terror before it happens.... After completing the mission, I have to rip off the US government for a lot of Money.</p>
-<p>'Then let's do this. It seems meaningless to have more People patrolling anyway.... If there really are Guys attacking the vigilantes, let's create a standby team so we can help quickly.'</p>
-<p>It seems Fujigasaki Rinka is thinking of putting us in the standby team. She probably already has an optimized patrol route, so even if the number suddenly increases, it won't be helpful, so it seemed better to play a role in adding power when needed.</p>
-<p>'Okay. I'll help you from tonight.'</p>
-<p>I nodded my Head and decided to follow my Sabu's Proposal.</p>
-<p>A while ago.</p>
-<p>It is by no means easy to be called the best in the underworld in New York, which is called the Demonic mirror. New York, where numerous interests are intertwined and there are bizarre races, was a Place where even the famous Black Moon Group of China could not exert its Power and withdrew.</p>
-<p>Even in such a New York underworld, there was a Place that maintained the largest Power, namely the Obsidian Syndicate.</p>
-<p>The Obsidian Syndicate was an old Organization that was created not long after New York changed from New Amsterdam to New York.</p>
-<p>It was an Organization created by alchemists and those who had escaped the Salem witch hunts, and in the beginning, it was a kind of secret group of Magicians who dealt with various Mysteries that was the beginning of the Organization.</p>
-<p>Those who came to New York to escape the witch hunts hid in the shadows, thinking that there might be another witch hunt, and from then on, an Organization called the Obsidian Syndicate was created in the New York underworld.</p>
-<p>The Obsidian Syndicate steadily supplied Drugs and moonshine to New York with the Knowledge of the alchemists and grew its Power, and now, hundreds of years later, it had become the largest Power in the New York underworld.</p>
-<p>Now, the Obsidian Syndicate was exerting its Power to the extent that it had established a pharmaceutical company and was aiming for Business in the sun.</p>
-<p>As the Obsidian Syndicate reached out to various Businesses and pondered how to increase the productivity of Drugs, a Book wrapped in Chains arrived on the desk of Carmine Castello, the Master of the Syndicate Obsidian.</p>
-<p>'So, you received this Book as Drug Money?'</p>
-<p>Carmine Castello pointed to the Book bound in Chains and asked his buha. He said it was a Book he received from a Drug Addict from a Noble Family in Europe instead of Drug Money, and according to the Drug Addict, it was the most expensive item in the Family.</p>
-<p>'I felt something unusual from the Book. I brought it to you first to have it appraised.'</p>
-<p>The Obsidian Syndicate has almost lost its Mysteries except for alchemical Knowledge, but even an Executive had the Ability to feel the Value of the Book bound in those Chains. Carmine Castello also felt that the Book was unusual, so he did not scold him for receiving the item instead of Money.</p>
-<p>'First, we need to know what kind of item it is. Call Salvatore. Let's have him appraise it first.'</p>
-<p>'I understand, Boss.'</p>
-<p>Salvatore, whom Carmine Castello mentioned, was an appraiser. He was an appraiser who appraised items with Mysteries, not a general appraiser.</p>
-<p>All underworld organizations had affiliated appraisers because, given the nature of organizations with pickpockets, thieves, and robbers, they needed to know the Value of the items they stole or robbed in order to sell them properly.</p>
-<p>Salvatore was a White hair Elderly Person with half his Head shaved and wearing a monocle. Salvatore, who entered Carmine Castello's room, widened his Eyes when he saw the Book on the desk.</p>
-<p>'W, where did you get this?'</p>
-<p>'Do you know what it is?'</p>
-<p>'This is a grimoire...!'</p>
-<p>'A grimoire?'</p>
-<p>Carmine Castello smiled greatly at Salvatore's Words. As the root of the Obsidian Syndicate was a union of alchemists and Magicians, he knew what a grimoire was. And the Obsidian Syndicate had several grimoires.</p>
-<p>The reason why he says that there were grimoires in the past tense is because the Obsidian Syndicate sold off the grimoires whenever it was financially difficult. They all received high prices, which played a major role in helping the Obsidian Syndicate overcome the crisis each Time.</p>
-<p>And now another Magic Tome has fallen into the hands of the Obsidian Syndicate...! Carmine Castello thought that the heavens were helping the Obsidian Syndicate.</p>
-<p>'Moreover, this grimoire is one of the most valuable Magic Tomes. Named the Shard of Omniscience....'</p>
-<p>'The Shard of Omniscience? So how much is it worth?'</p>
-<p>'I can't put a Value on it. To those who really want it, it might be more expensive than the Mona Lisa.'</p>
-<p>More expensive than the Mona Lisa...! Carmine Castello, who heard Salvatore's opinion, wanted to kiss the buha who brought the grimoire instead of the Drug Money.</p>
-<p>'Good. Let's do this. Spread the rumor secretly. That the, what was it called? Yes, the Shard of Omniscience has appeared in New York. Don't talk about what we have, just spread the rumor that it has appeared in New York. That way, People who want this Book will come to New York. If they know we have it, they might attack us instead, so we must keep it a Secret, understand?'</p>
-<p>As Carmine Castello said, it was important to hide that this Shard of Omniscience was in the hands of the Obsidian Syndicate. All Magicians are Guys who are crazy somewhere, so they prioritize taking it away rather than paying properly.</p>
-<p>'I understand. But when enough People who want the Book gather...?'</p>
-<p>When the buha nodded as if he understood and asked about the next action, Carmine Castello opened his mouth with a deep Smile.</p>
-<p>'When I think enough Guys who want it have gathered, then we'll hold an auction...! We'll sell this Book and sweep up the Money.'</p>
-<p>Gojoy-nim requested Taira Kokoro and Kisa's Reaction when they first met Ryuta at the funeral.</p>
-<p>Taira Kisa</p>
-<p>Kisa is welcoming him with a feeling of, "Oh my, are you Ryuta?" hehe</p>
-<p>Taira Kokoro</p>
-<p>Kokoro is managing her Expression as one of the Taira Successors hehe</p>
-<p>Chomisaemeonji-nim requested Liz Mukbang Hamburger, wearing a transparent raincoat~!</p>
-<p>Hamburger Mukbang~!</p>
-<p>Wow, look at that size...! Of course, I'm talking about the burger, not the breast~!</p>
-<p>Transparent raincoat~!</p>
+<p>Sloane Graves was a promising young Magician from the wealthy European Magician Family, the Graves Family. At the Story that the Fragment of Omniscience had appeared in New York, the elders of the Graves Family immediately took an Airplane and headed for New York.</p>
+<p>Originally, Sloane Graves was not supposed to join, but because Sloane Graves wanted to participate in the auction for the sake of Intimate Experience, he joined the flight to New York.</p>
+<p>Sloane Graves, who participated in the auction that way, the moment he saw the Fragment of Omniscience at the end of the auction, was seized by the thought that that forbidden book must be his.</p>
+<p>However, the Graves Family could not afford to purchase the Fragment of Omniscience, which was close to eighty-five million Euros. In the end, Sloane Graves could only watch the Fragment of Omniscience being successfully bid on by someone whose Face he didn't even know.</p>
+<p>"Must we watch the Fragment of Omniscience fall into Someone Else's Hand like this?"</p>
+<p>"Since we cannot make an Enemy of AmSang, we can only watch inside this ship. But...."</p>
+<p>What the Adults of the Family were saying no longer reached Sloane Graves's Sensitive Ear. Sloane Graves, seizing a Gap while the elders were speaking with serious Expressions, came out of the cabin.</p>
+<p>And, fending off AmSang's Security Guards who blocked his way with magic, he headed towards the lower part of the ship. Sloane Graves, thinking he had descended to the part where it met the Sea, placed his Hand on the wall and began to chant a spell.</p>
+<p>"Ҽԍϝ coʁʁodԍd...! Ҽԍϝ coʁʁodԍd...!"</p>
+<p>Sloane Graves, having successfully chanted the spell, began to ascend again. The spell Sloane Graves chanted was a spell of corrosion, intended to create Confusion by making a Hole in the ship, and in that Confusion, to steal the Fragment of Omniscience, an Ulterior Motive.</p>
+<p>But what Sloane Graves didn't know was that there were quite a few Magicians and Jusul-users, like himself, who were enchanted by the Fragment of Omniscience.</p>
+<p>If only Sloane Graves alone had caused an Accident, AmSang could have quickly resolved it, but with Accidents occurring simultaneously in various places, the Cruise ship began Sinking with a roar.</p>
+<p>A Confusion far more severe than the one Sloane Graves desired had engulfed the Cruise ship.</p>
+<p>"Customers-nim! Please quickly take a life jacket!"</p>
+<p>An AmSang employee, who had hastily opened the door and entered, handed us life jackets. As if to distribute life jackets to each room, they were pulling a Cart filled with many life jackets. Despite the Confusion, they seemed to have received good Safety Education, calmly distributing the life jackets.</p>
+<p>"There are lifeboats on the Side of the Deck, so if you have put on a life jacket, please go up...!"</p>
+<p>The AmSang employee, after informing us of the lifeboat's Position, moved to the next cabin. They probably weren't alone, but still seemed to be moving busily to distribute life jackets to everyone.</p>
+<p>"Should we also go to the lifeboat?"</p>
+<p>"No. I will take you with Telekinesis. Still, let's first put on life jackets and go up to the Deck."</p>
+<p>Shaking my Head at Kurayamada Kirie's Question, I decided to take everyone up to the Deck first. After all, one cannot fly with Telekinetic Flight indoors.</p>
+<p>"Contact Kujo Kina."</p>
+<p>Thinking I should also take care of Kujo Kina's Party/Group, who could be called companions, I spoke, no, Lianna Holden immediately took out her phone and made a Phone Call to Kujo Kina.</p>
+<p>"Yeah, come up to the Deck! Hurry, hurry!"</p>
+<p>Listening to Lianna Holden urge Kujo Kina's side on the Call, we went up to the Deck.</p>
+<p>What was Fortunate was that because the Cruise ship was heading straight to the port after the auction ended, land was visible nearby, as it was not long until arrival at the port. At this distance, it seemed I could sufficiently take eight people and fly with Telekinetic Flight.</p>
+<p>"Get out of the way! I was in Line first!"</p>
+<p>"Shut up! Do you want to die?!"</p>
+<p>"Everyone, please maintain Order and get on the lifeboat! Everyone can get on!"</p>
+<p>The Surroundings were full of Confusion. By the way, would the Person who successfully bid on the Fragment of Omniscience be able to get on the lifeboat, feeling anxious...?</p>
+<p>"Teacher!"</p>
+<p>Hearing Kujo Kina's Voice, I turned around and saw Kujo Kina, the old man Yoda, Sei and Rieko, and Kujo Kina's Bodyguard approaching me with uneasy Expressions.</p>
+<p>"Did you call us to get on the lifeboat together?"</p>
+<p>"No. We're going to fly."</p>
+<p>"Huh?"</p>
+<p>At my Words, Kujo Kina looked at me with an Expression that said, 'What are you talking about?' Because I had only shown Kujo Kina my Fist Technique Ability, she didn't know I possessed Telekinesis.</p>
+<p>"Everything shown here must be kept a Secret. Understood?"</p>
+<p>I said, looking at Kujo Kina, the old man Yoda, and Kujo Kina's Bodyguard, who still didn't know my Abilities. Kujo Kina and the old man Yoda seemed like they would keep the Secret that I was a Superhuman, but Kujo Kina's Bodyguard made me a little uneasy.</p>
+<p>Understood, Teacher. You're saving our lives, so of course we wouldn't go around talking about what we saw here, right? Kishio, even if our dad asks, you must never tell him. Got it?</p>
+<p>"Of course, Agassi."</p>
+<p>So the Bodyguard's name is Kishio. Kujo Kina, perhaps noticing that I was worried about her Bodyguard's mouth, confirmed it with the Bodyguard again. The Bodyguard spoke reassuringly, as if to say 'trust me'. Since he was Kujo Kina's exclusive Bodyguard, it seemed I could trust him.</p>
+<p>"So what's the Method?"</p>
+<p>"I just told you. I said we're flying, didn't I?"</p>
+<p>"Huh?"</p>
+<p>Kujo Kina, who was making an Expression of 'What are you talking about?', I gently lifted with Telekinesis. As her Body suddenly floated in empty space, Kujo Kina let out a squeal, but because the Surroundings were so noisy, no one looked our way.</p>
+<p>"Teacher, you were a Superhuman?"</p>
+<p>"Yeah."</p>
+<p>"Hoo...! That's amazing. To have Fist Technique at a high Level and even superpowers!"</p>
+<p>Kujo Kina and the old man Yoda seemed quite surprised. After all, they wouldn't have thought at all that I was a Superhuman.</p>
+<p>"But if you can fly, why are you just standing still now?"</p>
+<p>Kujo Kina, having heard that I was a Superhuman, seemed curious and asked me why I was standing still.</p>
+<p>"You know that this auction was attended by various Ability Users, including Magicians and Jusul-users, right?"</p>
+<p>At my Question, Kujo Kina nodded her Head.</p>
+<p>"Yeah, isn't it because of that Item called the Fragment of Omniscience that appeared at the end?"</p>
+<p>"Indeed, even beyond the Screen, it was a book with strange magic power. It looked dangerous."</p>
+<p>The old man Yoda said, taking Kujo Kina's Words. Even just looking at it through a Screen, not directly through a window, one could feel its Aura? There was a Reason why Magicians went crazy.</p>
+<p>"Excluding the People who are frantically trying to get on the lifeboats right now, everyone else is watching each other as if under Surveillance. They are all Ability Users who possess the Technology to survive even on a Sinking ship. Right now, they are looking for the Person who successfully bid on the Fragment of Omniscience. If we were to fly first for no Reason, we could be Misunderstood and chased and Attacked by everyone, so we are waiting for a moment now."</p>
+<p>"Ah.... So that's what it was?"</p>
+<p>If I were alone, I was confident I could be safe, but seeing the crazed Gaze of those who had come up onto the Deck, from the Position of having to take care of the other comrades, I judged that I should observe The Situation for a while.</p>
+<p>"Did you buy anything at the auction?"</p>
+<p>"Perhaps because of that book called the Fragment of Omniscience, the auction wasn't as fierce as expected, so I managed to snag a few things~!"</p>
+<p>Thinking we might as well talk while waiting, I asked Kujo Kina if she had bought anything, and Kujo Kina showed me a V-sign and said.</p>
+<p>"What did you buy?"</p>
+<p>"Rieko and I got matching Friendship rings~!"</p>
+<p>Kujo Kina said, holding Sei and Rieko's Hands and showing them. Golden rings were worn on Kujo Kina's, Sei's, and Rieko's Fingers. Even if they bought them cheaply, as AmSang auction items, they would be at least 100,000 Dollars, so I wondered if they were really Friendship rings.</p>
+<p>Sei and Rieko also wore quite expensive auction items as Friendship rings, so they made slightly burdened Expressions.</p>
+<p>It was then. With a Kwaaaang roar, the wall of the special room where we were burst open, and several People began to fly away on something. Looking closely, they were men wearing turbans, flying towards the land on carpets.</p>
+<p>Indeed, the strange Aura felt from the Fragment of Omniscience began to be felt from the Middle East men. I wondered who had successfully bid on the Fragment of Omniscience, and it turned out to be oil-rich Magicians who bought it.</p>
+<p>Because everyone knew they were being targeted, it seemed they hadn't come up to the Deck from the start. I wondered where I had seen them, and it was the Chairman of the Arab Alchemist Alliance Association, who was in the Main Character Photo Naruse Shiyo had shown. I heard from Naruse Shiyo that their Skill wasn't great, but perhaps because they had a lot of Money, they were flying towards the north of the port at an incredible speed, having applied expensive Magic tools.</p>
+<p>"There they are!!"</p>
+<p>"To cunningly escape directly from the cabin!"</p>
+<p>"Follow them!"</p>
+<p>"Don't let them get away!!"</p>
+<p>Magicians, whose Eyes were gleaming as they looked around, began to chase the group/pack of turbaned Magicians, activating their Abilities.</p>
+<p>Relying on Magic tools or summoned beasts to fly, or flying with their Maenmom, or else diving into the Sea and cutting through it at immense speed, each chased the Fragment of Omniscience.</p>
+<p>Instantly, the Deck, which had been full of People, became spacious. The Layperson auction participants, who had been squawking that they would get on the lifeboat first, made dumbfounded Expressions as the space suddenly became ample.</p>
+<p>"Now, let's go to land too."</p>
+<p>I began to lift everyone with Telekinesis and fly. Because my Will Stats had already broken through their Limit, and I had several Telekinesis-related Traits, even with eight of us flying through the sky, it wasn't particularly difficult. And the speed was quite fast.</p>
+<p>"Teacher! I'm flying in the sky!!"</p>
+<p>Kujo Kina was very excited, and the others also seemed quite delighted to be flying through the sky with their Maenmom. We passed over the black-looking Sea and arrived on land. The Place we landed was the large Parking Lot where we had parked before boarding the Cruise ship.</p>
+<p>"Phew...! That was fun! What will you do now, Teacher?"</p>
+<p>"I'll also chase the Fragment of Omniscience, just like those crazy Magicians."</p>
+<p>Of course, I wasn't chasing the Fragment of Omniscience, but rather chasing the Black Sage's Party/Group who were chasing the Fragment of Omniscience.... Still, in the end, there wasn't much difference from the other group/pack chasing the Fragment of Omniscience.</p>
+<p>"Old man Yoda-nim. Please take Kina and her Party/Group back to the accommodation. New Rochelle is now no different from a Demonic mirror."</p>
+<p>"I told you not to call me Yoda, you Guy! And.... It's already too late!"</p>
+<p>Simultaneously with the old man Yoda's Words, black Shadows began to appear from the alley. They were probably troops that some group/pack had stationed at the port to seize the Fragment of Omniscience.</p>
+<p>TheDreaming-nim requested Taira Kokoro at the Casino 1. Taking off Skirt 2. handstand</p>
+<p>1.</p>
+<p>2.</p>
+<p>The handstand is a bit awkward, but it's tolerable, so I'm uploading it haha.</p>
+<p>Chomisaemeonji-nim requested Liz showering, Liz tying her Hair in a Ponytail~!</p>
+<p>Shower~!</p>
+<p>Hair tying~!</p>
+<p>The Ponytail suits Liz quite well haha.</p>
+<p>MidNightSKY-nim requested Alik Liz breast Size up~!</p>
+<p>The breast Size I've made so far was HUGE at maximum, but actually, there was still a prompt called 'Gigantic Breast'.</p>
+<p>Alik</p>
+<p>One Size up -&gt; HUGE</p>
+<p>Gigantic....</p>
+<p>Liz~!</p>
+<p>Liz was originally HUGE, so I tried making them all with 'Gigantic Breast'. The writer is also more of a Big Tits fan than a Flat-chested fan, but this big, it's a bit grotesque ㄷㄷㄷ.</p>
+<p>Reflecting the writer's personal Preference, I will not accept requests to increase breast Size to 'Gigantic Breast' from now on haha.</p>

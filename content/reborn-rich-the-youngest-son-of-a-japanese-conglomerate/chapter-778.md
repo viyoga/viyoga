@@ -5,53 +5,99 @@ weight = 778
 chapter = 778
 +++
 
-<p>a chapter erotic is please this view with I quickly hid myself with Shadow Domination, flying through the night sky with psychokinetic flight, and descended to Shinkai Hime Shrine, an affiliated shrine of Urabe Shrine.</p>
-<p>"Ah, you've arrived. Teacher-nim!" "Husband...!" As I descended from the sky, Urabe Konoka and Hangari Muneo, who were in the shrine's yard, welcomed me.</p>
-<p>"I received the contact and came right away. The Daughter of the Abyss is returning?" "Probably. I feel the connection between Shinkai Hime-nim and me slowly returning." To my question, Urabe Konoka answered. Hangari Muneo also nodded her Head with a slightly tense Expression. The Daughter of the Abyss had severed the connection to become a different being herself, so they didn't know what kind of being she would return as, and seemed a little tense.</p>
-<p>I too was equally tense. I had a good relationship with the Daughter of the Abyss, to the extent that she called me Partner, but with her changing, I didn't know what would happen to that relationship, and was a little uneasy.</p>
-<p>Of course, I believed in the Daughter of the Abyss and knew that her essence would not change, so I wasn't particularly tense.</p>
-<p>"Where should we wait?" "This way...." Following Urabe Konoka and Hangari Muneo, we entered the Daughter of the Abyss's shrine hall. Along with the Appearance of the Daughter of the Abyss, drawn in a traditional Japanese style, the Daughter of the Abyss's Divine object, an eerily jet-black black pearl, was placed. Befitting the name Daughter of the Abyss, it was a black pearl that seemed to contain the Abyss itself.</p>
-<p>The black pearl was the size of my fist, and its Size and perfectly circular shape seemed to be of immense value as a gem. Of course, it was eerily jet-black, and unlike other gems, it didn't reflect light, which made it a bit ambiguous, but it was a black pearl that would be valuable just for its Size.</p>
-<p>Woong...! As I watched the Drawing and the black pearl for a moment, the Atmosphere around us changed. Suddenly, the black pearl's Appearance changed. From an Appearance like a jet-black Abyss, as if seeing the Milky Way, it began to glow as if gems were embedded inside. It looked as if space had been captured and placed inside a Glass ball.</p>
-<p>"The Divine object!" "It changed...!" What began to change next was the Drawing of the Daughter of the Abyss. It was clearly a Drawing by an artist, but its Appearance was changing.</p>
-<p>A woman with bluish Skin was depicted sitting cross-legged on the beach, but now it was a silver-haired woman with pale white Skin floating in a dark sky. Of course, the art style remained the same, making this phenomenon seem very bizarre. Is it Reality manipulation or something like that...? How mysterious.</p>
-<p>"Ah...!" "What!" Everyone, seeing the current phenomenon, couldn't help but be surprised. Especially Urabe Konoka, the Daughter of the Abyss's Shrine Maiden, seemed to feel something more than us, making a slightly possessed Expression. Hmm, since she's a Shrine Maiden, maybe she really is possessed...?</p>
-<p>Paaa! After the bizarre phenomenon ended, the Daughter of the Abyss-no, if it's the Appearance in that Drawing, she can no longer be called the Daughter of the Abyss. The former Daughter of the Abyss's Divine object, the black pearl, began to emit light.</p>
-<p>The black pearl's light grew stronger and stronger. So strong that we couldn't even look at it, after the light intensified, when that light ceased again, we were in a completely different Place.</p>
-<p>Like a space that was dark yet had light visible from afar, we were floating in empty space, and there she was.</p>
-<p>As if not human, with skin so white it seemed to glow, and as if to also indicate she wasn't human, with cross-shaped pupils where pink and navy blue were mixed, mysterious eyes. Hair that seemed like the Appearance of the universe and yet not, silver hair that emitted light, a woman with contradictory hair was smiling at us.</p>
-<p>Certainly now, it seemed she could no longer be called the Daughter of the Abyss. Although her beautiful features seemed somewhat similar, apart from that, her Appearance itself had completely changed.</p>
-<p>Of course, what could be called the Daughter of the Abyss's trademark, the glowing jellyfish, were still glowing and swimming through space. As expected, even if she abandoned everything, she wasn't a bad Quality Owner who would abandon her pets (?).</p>
-<p>Perhaps because it was our first meeting (?), she seemed to have paid some attention to her Clothes, wearing a ballet style dress with a widely spread silver skirt, and a black laurel wreath, and her Appearance looked quite splendid.</p>
-<p>"Huhu...!" The former Daughter of the Abyss, who had been watching us for a while, smiled at us. That Smile was similar to the Daughter of the Abyss I knew, which made me feel a little Sweet Relief.</p>
-<p>"Although my Appearance has changed, the Emotions I have for my Partner and my Shrine Maiden remain unchanged."</p>
-<p>"Um, Shinkai Hime-nim, no.... What should I call you?" Urabe Konoka hesitated slightly and opened her mouth. In fact, the former Daughter of the Abyss disliked the name "Daughter of someone" rather than "herself," and had chosen change, so even calling her Shinkai Hime, meaning "Princess of the Deep Sea," felt a little Rudeness.</p>
-<p>Urabe Konoka also seemed to have similar thoughts to me, and asked the former Daughter of the Abyss what she should be called.</p>
-<p>"I am.... a being who wields contradictory powers like Fear and benevolence, Greed and temperance, the Outer God, Boundary of Opposing Chaos."</p>
-<p>Boundary of Opposing Chaos.... As expected, it was a difficult name to call, unlike Daughter of the Abyss. Most Outer Gods had strange, Indian-style names like "The Drowned One" or "Unquenchable Light."</p>
-<p>So the Daughter of the Abyss... no, the Boundary of Opposing Chaos also must have named herself according to that Rule.</p>
-<p>"Huhu, I also have an easy-to-call name, my Partner-nim." While I was deeply thinking about the name Boundary of Opposing Chaos, the Boundary of Opposing Chaos smiled at me and spoke. It seemed she had read my thoughts and answered.</p>
-<p>"Before, I was merely the 'Daughter' of the Abyss, but now that I stand alone, I can also have another name. From now on, call me Lizhael."</p>
-<p>So, is the full name Boundary of Opposing Chaos Lizhael?</p>
-<p>"I will use a nickname and call you Liz." In fact, until now, I had addressed the Daughter of the Abyss with respectful speech, but now I decided to speak casually. Lizhael was already calling me Partner, and I too was thinking deeply of Lizhael, so it meant I would treat her with even more familiarity.</p>
-<p>"Huhu, good. That name, only my Partner shall be able to call me." Lizhael also seemed to understand my intention, and laughed with a very satisfied Expression.</p>
-<p>"First, before we talk, I must repay what I borrowed from my Partner." From Lizhael's Body, on a black background, with brightly flickering lights sparkling, an Aura like the Appearance of the universe rose up.</p>
-<p>"The Abyss I received from my Partner, I will return it as my new power, the Chaos of Creation (創世 混沌)."</p>
-<p>Like that night sky, the sparkling yet dark Aura seemed to be the Chaos of Creation. In fact, the 17 points of Abyss I had given to the Daughter of the Abyss was by no means a small amount.</p>
-<p>20 was the Limit Stat, and if one exceeded that, they could exert transcendent power, so even a small number like 17 was by no means a small power. It must have certainly helped Lizhael to some extent.</p>
-<p>The sparkling night sky-like Aura that bloomed from Lizhael began to permeate me. I felt as if water was filling a dry rice paddy.</p>
-<p>Although it had only been a few days, the Abyss had disappeared, and I had felt quite empty (I also couldn't escape the kidnapping without the Abyss). Though different in nature, as an Aura of similar Size permeated me, I felt a sense of fullness as what was empty became filled.</p>
-<p>When I checked my stats, in my special stats, a new stat called Chaos of Creation (創世混沌) had 18 points. The Abyss I had given to Lizhael was 17… Perhaps as interest for lending the Abyss, she had increased it by 1 more.</p>
-<p>"To my Shrine Maidens also, I will return the power I took." To Urabe Konoka and Hangari Muneo also, as much as was taken, she seemed to bestow the Chaos of Creation.</p>
-<p>Perhaps everyone felt a similar Mood to me, both Urabe Konoka and Hangari Muneo made Expressions full of fullness.</p>
-<p>"Now, the Abyss-related Traits need to be changed, right?" The replacement of Traits seemed to be done for Urabe Konoka and Hangari Muneo first, before me. Since I had a high Level and many Traits, she probably postponed mine. This was because both of them were looking at Lizhael with Expressions that something had changed. Since I had so many Abyss-related Traits, it would take a little longer, so I seemed to have been pushed to a lower priority.</p>
-<p>"Then, you two may go now. Since your Wills are connected, you will be able to converse anytime." As Lizhael snapped her Fingers, Urabe Konoka and Hangari Muneo disappeared. They probably returned to the shrine.</p>
-<p>"Now it's my Turn, Liz?" To my question, Lizhael shook her Head. Huh? Why? Aren't you changing my Traits? With the Abyss gone, I have quite a few unusable Traits....</p>
-<p>"Uhuhuhu, now it's my Turn, my Partner-nim." With a slightly playful Smile, Lizhael snapped her Fingers once more. In that Moment, from a place like space, we moved into a Pink space.</p>
-<p>"While I was alone in the Cocoon, I missed my Partner very much♥" As expected, on a Pink bed, lying down and licking her Lips, it was Lizhael, looking at me seductively. Without knowing when she had shed her splendid Clothes, she was already a naked body. Her explosive Mommae was still the same. No, her breasts seemed to have gotten bigger...?</p>
-<p>Naturally, I, who saw Lizhael's naked body, at her overwhelming seductiveness, felt my cock harden into an Erection. Jellyfish flew around, casting a soft, Erotic Lighting, deepening the Atmosphere.</p>
-<p>"My Body, which grew cold from being alone, quickly warm it with your Body, my Partner...♥" "If Liz is cold, I should warm her." At Lizhael's Words asking to be embraced, I also took off my Clothes one by one, and became Nasin. As I slowly approached, step by step, Lizhael suddenly showed her Palm, stopping me. What is it? Asking to be embraced, then suddenly "No~!"? Is that it?</p>
-<p>"Because I have newly created this Physical Body, this Physical Body is a "Pure White Body" (靑白之身)."</p>
-<p>If it's a "Pure White Body".... That means Virginity, doesn't it? As I, surprised by Lizhael's Words, stood still, Lizhael, who smiled seductively again, opened her mouth.</p>
-<p>"My second Virginity also, please take it, my lovely Partner♥"</p>
-<p>Liz B-cuts! I was going to make her first Appearance naked, but since two Shrine Maidens were watching, I thought she should maintain her dignity, so I dressed her up hehe. Between a black skirt and a silver skirt, after Worry, I chose the silver skirt~! Lying down B-cut! Requested by Hwanbuljeoldaebulga-nim, the original model Diana, Home Economics Teacher-nim, Nurse Uniform~! Diana! Home Economics Teacher-nim~! Kkiyot~!</p>
+<p>When the bus we were on returned to the Resort, snow was lightly falling from the sky. Uh, I clearly remember checking the weather forecast before the trip, and there was no mention of snow during this trip's period, was there?</p>
+<p>"Wow~! Ryuta-cchi, it's snow!"</p>
+<p>"Kyahaha! We can have a snowball fight while getting hit by snow~!"</p>
+<p>"Ryuta, Alik hates snow...!"</p>
+<p>Some of the Students who got off the bus were as excited as a dog seeing snow, and Alik, who had bad Memories of snow from childhood, whined to me as if disgusted.</p>
+<p>"Ah, it's snow...."</p>
+<p>Takakusaki Athena also seemed to dislike the snow; her Expression turned sour upon seeing it.</p>
+<p>"I'll check in. Dinner is at 7, right?"</p>
+<p>"Yes."</p>
+<p>"Then, see you then."</p>
+<p>Seeing me observe her Expression, Takakusaki Athena, as if changing the Story, asked about the barbecue Time we had agreed to share. When I nodded my Head, confirming it, Takakusaki Athena, as if fleeing, entered the Resort.</p>
+<p>The ski resort and the village were entirely covered in snow, so the Snowfield seemed fine, but she seemed to have some bad Memories associated with the Situation of snow falling. It would be worth investigating this.</p>
+<p>"The weather forecast clearly said it wouldn't snow.... What if it keeps snowing?"</p>
+<p>Minamoto Risa also approached me, looking at her phone with a sour Expression. Glancing at her phone Screen, she was looking at a weather forecast article. The article said it would snow and then stop, but it wasn't really trustworthy.</p>
+<p>"Well, when has the weather forecast ever been right?"</p>
+<p>Even though it was 2054, the weather forecast was still often wrong. Although weather prediction models had advanced, due to large-scale carbon dioxide reduction policies and newly developed carbon capture Technology, changes in the atmospheric environment had become rapid, making weather forecasts even less accurate than in the past.</p>
+<p>"If it keeps snowing, we can warm our Bodies in the hot spring and play the board games the Kids brought, right?"</p>
+<p>"Still, we came to a ski resort...."</p>
+<p>"It will stop soon. Don't worry."</p>
+<p>I comforted an anxious Minamoto Risa, who worried that the last trip before Graduation might be ruined by snow, and called the Students, deciding to go inside the Resort.</p>
+<p>"Stop playing in the snow and let's go inside, it's cold."</p>
+<p>"Ei~! Ryuta-cchi, aren't you too lacking in childlike innocence?"</p>
+<p>"That's right, Teacher~! How about a snowball fight?"</p>
+<p>At my Words to go inside, Seizawa Shii and Kujo Kina said they wanted to play a little longer before going in, but I shook my Head.</p>
+<p>"I'm going in, so you guys can play in front of the Resort and then come in."</p>
+<p>"Ei, what's the fun without Ryuta-cchi? I'll just go in."</p>
+<p>"That's right. I was going to hit Teacher-ssi a little, but it's a bit of a shame~!"</p>
+<p>When I told them to play without me and then come, those two troublemakers said they didn't want that. Still, after that, they followed without much complaint. I, who had come to the 3rd floor by elevator, looked around at the Students and opened my Mouth.</p>
+<p>"Everyone rest a bit and come out at 6:50~!"</p>
+<p>Since lunch Time, we had eaten so much, so we decided to have dinner a little later. Since it was 4:40 now, there was quite a lot of Leisure. Shall I go to the hot spring once more? Yesterday, because of the university students, I couldn't really enjoy it properly.... Now, I could enjoy it leisurely by myself.</p>
+<p>Having nothing particular to do, I, who decided to go to the hot spring, along with a yukata to change into and toiletries, headed to the hot spring.</p>
+<p>I didn't explain it in detail yesterday, but the hot spring at this VIP Resort was an open-air hot spring. Behind the Resort, a winter Forest with accumulated snow stretched out, so there was also the pleasure of enjoying the Scenery.</p>
+<p>Deureureuk.</p>
+<p>I, who had taken off all my Clothes, opened the hot spring Door and entered the hot spring. Between the rising Steam, I saw a Person's Shadow, so it seemed someone else was there.</p>
+<p>Cheombeong.</p>
+<p>Soaking my Body in the hot spring, I looked at where the Shadow was, and it was a Man I hadn't seen in the hot spring yesterday. He was probably the remaining Student who wasn't there yesterday. His name was... Shiojima, wasn't it? They said he couldn't come to the hot spring because he was writing a seasonal Report. To confirm if my deduction (?) was correct, I spoke to the Man.</p>
+<p>"Hello."</p>
+<p>"Ah, yes."</p>
+<p>"Are you Shiojima-ssi, by any chance?"</p>
+<p>"Yes.... But how?"</p>
+<p>"Yesterday, your Friends said you were writing a Report and couldn't come to the hot spring, so I heard the Story."</p>
+<p>"Ah... I see."</p>
+<p>My thought was correct. This Man named Shiojima seemed to have exercised, and though slender, he had a quite well-trained Body. His Face, though, was so Ordinary that you'd easily forget it.</p>
+<p>"...."</p>
+<p>Since neither of us had much to say, we quietly enjoyed the hot spring. I looked at the snow-covered Forest and relaxed my entire Body. The warm hot spring water and the cold weather blended exquisitely, making me feel good.</p>
+<p>Since it was even snowing, enjoying the hot spring bath while being hit by snow, the Atmosphere was incredibly good. A snow-covered hot spring enjoyed in the middle of a snow forest.... It was incredibly romantic.</p>
+<p>"Then...."</p>
+<p>Since Shiojima had been there first, he also got up first. He slightly bowed his Head to me, left the hot spring, washed his Body, and with a deureureuk sound, entered the Changing Room. Now that I was alone, I could be even more comfortable.</p>
+<p>I was floating in the water, almost lying down.</p>
+<p>Naturally, since I was lying down, what I saw was the sky. Because of the snow clouds, the sky, which had been gray, gradually grew darker. I should probably go in soon too. Looking at the Time, it was six forty. It seemed I had enjoyed the hot spring without realizing the Time passing. Did I fall asleep in the middle...?</p>
+<p>With my wrinkled Fingers, I pushed my Hair back and got up from my Seat. Roughly soaping myself, I took a Shower, and as I got up, I saw a wooden building nearby.</p>
+<p>Ah, is that the Nordic-style sauna said to be in the VIP Resort? I was going to try it today, but I'll have to go after dinner. I, promising myself for next Time, entered the Changing Room.</p>
+<p>It snowed that day too. In the faint light of the white night, I remembered seeing snowflakes drifting down.</p>
+<p>"äiti (mom)?"</p>
+<p>I called mom, but there was no reply.</p>
+<p>"isä (dad)?"</p>
+<p>I called dad, but there was no reply.</p>
+<p>What the young Child found was the cold Corpse of her Parents. And....</p>
+<p>"Aaaah...!"</p>
+<p>Takakusaki Athena screamed and got up from the bed.</p>
+<p>"Did I fall asleep...?"</p>
+<p>Without realizing it, she seemed to have fallen asleep. In fact, it was a Situation where she deserved to be tired.</p>
+<p>Fujigasaki Rinka's Disciple, who was an Opponent, and some Female Students from St. Francis's special class who held a grudge against Anyaji, to which she belonged.... She had met them alone several times today, and ended up sharing the same accommodation.</p>
+<p>Of course, on the surface, Takakusaki Athena appeared composed, but Takakusaki Athena was a born martial artist.</p>
+<p>No matter how composed she appeared on the outside, being alone among Enemies, there was no way she would relax. Naturally, upon entering her room, as the Taut Tension eased, she seemed to have collapsed into Sleep without realizing it.</p>
+<p>"What's the Time...?"</p>
+<p>Looking at the Time, it was still six o'clock. I wouldn't be late for the dinner invitation. Takakusaki Athena looked Outside the window where snow was falling.</p>
+<p>Although it was already a Memory that had faded considerably, on days when it snowed, she didn't feel good. Because with the snow fluttering through the dim white night, the Appearance of her deceased Parents came to mind.</p>
+<p>No matter how much her Memories scattered and disappeared, the sight of the snow fluttering and the cold, deceased Appearance of her Parents remained as if branded, never fading from Takakusaki Athena's Memory.</p>
+<p>Why do good Memories disappear so easily, and only sad and unpleasant Memories remain in a corner of the Mind, tormenting a Person so much? Takakusaki Athena forced herself to scatter the thoughts about the unresolved Memories.</p>
+<p>"Hmph.... It's already in the past."</p>
+<p>Takakusaki Athena sighed and got up from her Seat. Although there was still some Time left, since she was invited, she couldn't go to dinner with her Hair disheveled from just waking up.</p>
+<p>Since she had been in a cold place all day, even if a hot spring was out of the question due to Time, she had to at least take a Shower with warm water. Since she had also Sweat while sleeping, if she didn't warm her Body, she would catch a Cold.</p>
+<p>Seureuk, Seureuk.</p>
+<p>Making the sound of Clothes rubbing against flesh, she threw off her Clothes. Takakusaki Athena, who was now naked, entered the Shower Room and turned on the hot water.</p>
+<p>Swaaaah...!</p>
+<p>As she soaked her Body in the warm water, the Words she had just heard from Yamashiro Ryuta suddenly came to mind.</p>
+<p>****</p>
+<p>**-What are we eating for dinner tonight?**</p>
+<p>****</p>
+<p>**-No matter if we're Opponents, meeting like this is Fate, and it's also a Truce, so since we're having a barbecue Party today, eat with us.**</p>
+<p>"Fate, huh...."</p>
+<p>Takakusaki Athena chuckled and muttered Yamashiro Ryuta's Words. The suddenly proposed Truce and dinner invitation. What Yamashiro Ryuta was thinking to show her such goodwill, she didn't know.</p>
+<p>If the Situation had been reversed, Yamashiro Ryuta would have died. Takakusaki Athena, who had already spent more than half of her Life in Anyaji, could not easily understand the current Situation.</p>
+<p>Of course, Takakusaki Athena was a bit different from ordinary people affiliated with Anyaji. She liked Travel and enjoyed eating food at those travel destinations.</p>
+<p>No, Takakusaki Athena also felt that she was fundamentally different from herself and the Anyaji people, so instead of staying in Anyaji, she wandered around.</p>
+<p>Tak.</p>
+<p>Takakusaki Athena, who had turned off the Sensual Showerhead, wiped the Dewy Moisture from her Hair with a towel and began drying her Hair with a hairdryer. Takakusaki Athena, who had blown away all the Dewy Moisture with warm air, changed her Clothes and to go to the barbecue area, opened the Door.</p>
+<p>"Let's pull myself together, Athena."</p>
+<p>No matter how kindly he treated her, he was still an Enemy. Takakusaki Athena repeated the Words "Let's pull myself together" and went Outside.</p>
+<p>Requested by Gojoy-nim~! Former Kasaoka Yuzuki, now Matsunaga Yuzuki. Because the old model's art style was so unstable, I intentionally changed the art style a bit~!</p>
+<p>Suit~!</p>
+<p>Underwear~!</p>
+<p>Belly Dancer~!</p>
+<p>Nude~!</p>
+<p>Kkiyoooot~!</p>

@@ -5,89 +5,84 @@ weight = 224
 chapter = 224
 +++
 
-<p>Chup, chuuup... Chup, chuuup.</p>
-<p>With the sound of our tongues tangling, Yukiko-ssi lifted one leg as if trying to feel my body more, hooking it over my pelvis and pulling me closer.</p>
-<p>Naturally, my dick, bulging over my pants, pressed firmly against Yukiko-ssi's panties inside her dress. Just that seemed to excite her, as her breath grew hotter during the kiss.</p>
-<p>As I shared my tongue with Yukiko-ssi, I gently moved my hips, rubbing my dick over her panties. As I pressed and moved with my thick dick, she wrapped her remaining leg around my ass, clinging to me even more. We overlapped our bodies almost like we were having sex, only without inserting my dick into her pussy. Passionately kissing and holding me tight, Yukiko-ssi clung to me even more.</p>
-<p>"Euh-heueung.... Ryuta, Ryutaa...! It feels so gooood♥"</p>
-<p>As soon as she broke the kiss, she moaned. Her eyes were tinged with pink, as if she was already as horny as could be.</p>
-<p>"Haa.... Haa.... Take my clothes off, Ryuta. I wanna feel Ryuta with my bare skin♥"</p>
-<p>Breathing heavily, Yukiko-ssi begged me to take off her clothes, so I undressed her. The way she begged with aegyo was incredibly cute.</p>
-<p>The dress Yukiko-ssi was wearing was easy to take off. I was already excited, so I didn't even think about putting the dress aside properly and just threw it next to the bed. Her underwear, like her white dress, was a simple white color.</p>
-<p>We had already rubbed our genitals together a lot while still clothed, so her white panties were soaked with moisture. Anyone could tell she was excited, so I chuckled and touched her panties with my hand.</p>
-<p>"Hyaang♥ Hurryy~ Heueung! Take off my panties tooo~♥"</p>
-<p>"Your panties are wet, though? Is that why you want me to take them off?"</p>
-<p>"Noo~♥, Ryuta rubbed me with his dick earlier....eueung, Ryuta's precum got on them♥ It's not my juices, heueung!"</p>
-<p>To tease Yukiko-ssi, who denied that it was her juices, I put my hand inside her panties and poked her pussy slightly. Then I immediately pulled it out and showed it to her. My finger was covered in juices that sparkled in the sunlight shining through the window.</p>
-<p>"Then what's this?"</p>
-<p>"Heueung♥ It's actually my juices. Don't tease me.... Take them off quickly♥"</p>
-<p>At this rate, her panties would be completely soaked, so I should take them off before that happens. I took off her bra and briefly fondled Yukiko-ssi's big, beautiful breasts before finally taking off her panties.</p>
-<p>After taking off all of Yukiko-ssi's underwear, I hurriedly took off my clothes, except for my boxers. When I took off all my clothes and looked at the bed, Yukiko-ssi was sitting in a seductive pose, leaning slightly and propping herself up with one arm. She was looking at me with a strange smile, a smile that seemed to suck me in.</p>
-<p>I went onto the bed and stood in front of Yukiko-ssi without saying a word. Yukiko-ssi buried her face in my boxers and took a deep breath. As expected of Yukiko-ssi, who has a smell fetish, her reaction was very good. Yukiko-ssi smelled my dick and slowly rubbed her pussy with one hand.</p>
-<p>After enjoying my scent enough, Yukiko-ssi pulled down my boxers with both hands. My dick, which had been suppressed by my boxers, bounced up and stood erect, and Yukiko-ssi looked at my dick with the eyes of a fanatic worshiping an idol.</p>
-<p>Chuuuup, chyuuulup!</p>
-<p>"Keuek, euueut...!"</p>
-<p>Yukiko-ssi immediately grabbed my dick shaft with both hands and started sucking my glans without being told. She sucked so greedily, like a candy, that I couldn't help but moan from the sudden pleasure.</p>
-<p>She must have practiced hard while we couldn't meet, because her fellatio skills had improved considerably. She shook it up and down with both hands, attacking only the glans with her mouth, and then this time she let go of her hands and swallowed my dick all the way to the root. She even used a deep throat, swallowing it deep into her throat, stimulating my dick, and I quickly felt like I was going to cum.</p>
-<p>"Yukiko-ssi, I'm gonna cum!"</p>
-<p>At my words, Yukiko-ssi sucked my dick even more fiercely, as if telling me to cum quickly. Her throat contracted and bit down on my glans, and I jerked and poured a lot of semen into Yukiko-ssi's body.</p>
-<p>"Was it good?"</p>
-<p>Yukiko-ssi smiled with tears in her eyes as I pulled out my dick. That look was so lovely and arousing that my dick, which had lost some of its strength, naturally regained its vigor.</p>
-<p>"Yes, it was very good. What do you want to do now?"</p>
-<p>"I'm already, completely wet. Put it in...! Ryuta♥"</p>
-<p>Unable to resist Yukiko-ssi's request, who was lying down and begging for my dick while showing me her moist, juicy pussy, I skipped the foreplay and immediately shoved my dick in.</p>
-<p>"Aha-eung!!"</p>
-<p>Yukiko-ssi let out a moan close to a scream as my huge dick suddenly expanded her vagina and thrust inside. I looked at her, wondering if it hurt, but fortunately, it didn't seem like she was screaming because of the pain. It was just a moan she let out because of the sudden pleasure.</p>
-<p>"I'll just leave it in like this for a while."</p>
-<p>I held Yukiko-ssi with my dick all the way in for a while so she could adjust, but Yukiko-ssi couldn't stand it and slowly moved her pelvis while lying down, feeling the movement of my dick inside.</p>
-<p>"Heueu.... Heueut, haa-eung...!"</p>
-<p>She turned her pelvis in a circle, stimulating her cervix and using my dick as a dildo to masturbate, which made my dick harder and harder.</p>
-<p>But I can't just let her masturbate while we're having sex. I straightened up my waist and began to move my hips, admiring Yukiko-ssi's bewitching body.</p>
-<p>"Moving your hips by yourself, are you a pervert, mother?"</p>
-<p>"Heueeut! I'm not a pervert, heueung...! Ryuta's dick, heueung...! Is it bad that it feels good...!"</p>
-<p>She's blaming me for this?</p>
-<p>"It's because of me?"</p>
-<p>"Hyaaht, no, heueung...! Ryuta, I like you so much♥ Ryuta! Haa-heueung!"</p>
-<p>Yukiko-ssi quickly denied it again and confessed that she liked me so much. As expected, it feels better to have someone else do it than to do it yourself. Yukiko-ssi couldn't come to her senses as my flesh-colored banana filled her vagina and moved roughly.</p>
-<p>Regardless of whether Yukiko-ssi was able to come to her senses, Yukiko-ssi's pussy felt very good. It hasn't fully bloomed yet, but perhaps because of her succubus nature, Yukiko-ssi's pussy had a unique, pleasant feeling. Should I say it felt like something was sucking me in?</p>
-<p>Well, I have the characteristics of a cambion's body, so my stamina doesn't get drained, and we both gain experience, so it's beneficial for me to have sex with Yukiko-ssi. Unlike other women, I get double the experience.</p>
-<p>I fondled Yukiko-ssi's breasts while continuing to move my hips.</p>
-<p>"Hyaa, hyaaht! Euheut I'm, heueung I'm going, going, going, going, going! Haa-eung Ryutaaa♥"</p>
-<p>Yukiko-ssi reached her climax, shedding tears and trembling. But I didn't pay attention to Yukiko-ssi, who had reached her climax, and continued to shake my hips strongly, preventing her from coming to her senses. Yukiko-ssi flipped her eyes and flapped like a fish out of water every time I pressed her cervix.</p>
-<p>"No way, haa-eung! Heung! Stop, I went, I went♥"</p>
-<p>Yukiko-ssi couldn't come to her senses when I stimulated her cervix, perhaps because she wanted to get pregnant. Perhaps because she has the body of a succubus, her cervix is located very deep inside, so unless it's a huge dick that's not my dick size, it won't be able to stimulate Yukiko-ssi's pleasure point, the cervix.</p>
-<p>"Heueung! No more♥ I think I'm gonna go crazy, hyaang♥"</p>
-<p>Climax after climax. Her pussy twitched with continuous pleasure and orgasm, biting my dick tightly like a living creature. Yukiko-ssi's cervix also completely adhered to my glans, biting me gently as if sucking with her mouth.</p>
-<p>"Euueut! I think I'm gonna cum!"</p>
-<p>"Hyaaang♥ Inside...! Ryuta's baby seed! Heueung! Cum inside me!"</p>
-<p>I was already feeling like I was going to cum because of the movement of her pussy, but when Yukiko-ssi begged for my semen in a seductive voice, the semen started to come out as if I had turned on a faucet. I pressed my body as close to Yukiko-ssi's body as possible to inject the semen into the deepest part and started cumming.</p>
-<p>Buuut! Buuut! Buuut! Buuut!</p>
-<p>It was my second time cumming today, but I poured semen into Yukiko-ssi's womb with tremendous force and volume, as if I had been holding it in for a week. Yukiko-ssi flipped her eyes and reached another climax as the hot semen entered her womb.</p>
-<p>When I pulled out my dick, thick semen gushed out of Yukiko-ssi's pussy and flowed down her butt. I brought my dick close to Yukiko-ssi's face. Yukiko-ssi immediately put my dick in her mouth and cleaned my dick, which was covered in juices and semen. She made her cheeks hollow and sucked, sucking out even the semen in my urethra.</p>
-<p>Yukiko-ssi's eyes shone pink for a moment. Well, that must be my imagination?</p>
+<p>I was searching the Fitzgerald mansion, opening my senses as much as possible to find Arisu's room. Of course, my dick, still retaining the heat of Mimata Chieri's pussy, hadn't died down yet.</p>
+<p>"Hum~♬ Hum~♪ I shall conquer the enemy general's pussy before my dick cools down."</p>
+<p>I was humming a tune, thinking about being able to do it with Arisu after a long time, and muttering Guan Yu's famous lines as I pleased, wandering around to feel Arisu's presence. Of course, it would be much easier to find her room if I called her, but for some reason, today I was in the mood for a sneaky night visit.</p>
+<p>Hmm, the guest rooms were on the first floor, and the maids and butlers were sleeping in the staff quarters next to the mansion... Let's go up to the second floor first. Yes! It seemed like the second floor was the right answer. As soon as I came up to the second floor, I could feel a presence in the corner room.</p>
+<p>Then, does Nae Fitzgerald sleep on the third floor? Or maybe she came to New York after a long time and might be doing other work. Rather than wondering about Nae Fitzgerald, it was a priority to release the white liquid that was pooling in my balls.</p>
+<p>I quietly opened the door. As soon as I opened the door, the scent of a mature woman wafted out. Well, it's been a while since I did it with Arisu, so she'd be pumping out a lot of pheromones.</p>
+<p>Arisu was lying face down, burying her face in the pillow, wearing a thong that revealed her bouncy ass.</p>
+<p>I climbed onto the bed and massaged Arisu's ass. As expected, the texture of the firm, bouncy, and large ass that Orientals can't beat was addictive the more I touched it. She seemed to be asleep, judging by how she was letting me touch her ass.</p>
+<p>Arisu was slowly spreading her legs, perhaps because of the ass massage while sleeping. With space to go down, I slowly went down from her ass and stroked her pussy.</p>
+<p>"Huuu...."</p>
+<p>She didn't seem to have woken up. She seemed to be moaning unconsciously. Her dry pussy gradually became moist, and before I knew it, it was wet and sticky.</p>
+<p>I pulled down her thong and pushed my dick, which had been erect since earlier, into her pussy. It seemed like I could insert it enough since Arisu wasn't a virgin and she was wet enough.</p>
+<p>"Huuung...!"</p>
+<p>Arisu moaned even while sleeping as my dick entered. Her voice was a little hoarse, probably because she was quite tired today.</p>
+<p>"Keueut, Arisu...!"</p>
+<p>Her pussy was tighter than usual today. She's not a virgin, but it's as if... her pussy, used to the smaller dicks of other men than mine, was surprised by the different, huge dick and was pushing it away... Could it be?</p>
+<p>I pretended not to know anything and naturally shook my waist while touching her breasts. I could tell without even rubbing them a few times. This woman wasn't Arisu! Her breasts were bigger than Arisu's. Then, this woman was... Nae Fitzgerald. No, how could I not have noticed this, even though they look so alike.</p>
+<p>Now that it's come to this, I have to keep going with the stance that I thought it was Arisu. If I stop now, or if I reveal that I noticed it wasn't Arisu and continue, I'll become a bastard who intentionally raped his aunt, but if I keep saying Arisu's name, it'll just feel like I made a mistake.</p>
+<p>"Arisu, keut, Arisu's pussy feels so good."</p>
+<p>I kept whispering "Arisu, it feels so good" into Nae Fitzgerald's ear while shaking my waist.</p>
+<p>"Heuuut...! Eueung♥ Heuuheung♥"</p>
+<p>"Arisu...!"</p>
+<p>I kept calling Arisu's name, even though it sounded awkward to me, and did my best to make Nae Fitzgerald feel good. Still, since I have the effects of my special traits, if I make her feel good, she won't punish me, right? There was a high probability that she would just let it go.</p>
+<p>Nae Fitzgerald's pussy seemed to be pushing away my dick, an unfamiliar intruder, but before I knew it, it had gotten used to my dick and was sucking my dick deep inside.</p>
+<p>"Haaht, Haeuuheung...! Heuuht! Eueung...!"</p>
+<p>Nae Fitzgerald's ass rippled with my hip movements. At first, I was flustered, but the situation itself was so hot that I felt the urge to cum faster than usual.</p>
+<p>"Keueut...! I'm cumming, Arisu!!"</p>
+<p>I pulled my dick out of her pussy, which was clinging to me as if not wanting to let me go, and sprayed my semen on Nae Fitzgerald's back.</p>
+<p>Byureut! Byureut! Beut!</p>
+<p>Perhaps because it was a very depraved and exciting situation, even more semen than usual came out and dirtied Nae Fitzgerald's back. The milky white liquid pooling between Nae Fitzgerald's two spinal erector muscles was somehow a very erotic scene, so I was very turned on, but I couldn't do it again here.</p>
+<p>It was a waste to only do it twice, but now was the time to retreat, not advance. I watched Nae Fitzgerald's back, which was moving up and down as she breathed heavily, and leaned in slightly to kiss her neck.</p>
+<p>"Good night, Arisu."</p>
+<p>I called Nae Fitzgerald "Arisu" until the end, and closed the door and left. Hmm, I hope it didn't seem awkward?</p>
 <p>###</p>
-<p>After repeating rest and sex, it was dinner time, so Yukiko-ssi and I went to the yard to have a barbecue. We lit the charcoal, waited for the grill to heat up, and then put the meat on.</p>
-<p>The meat was high-quality Wagyu beef. We grilled expensive sirloin with fine marbling, potatoes, asparagus, and other vegetables and put them on a plate.</p>
-<p>"Please taste it to see if it's cooked well."</p>
-<p>I cut off a small piece and put it in Yukiko-ssi's mouth. Yukiko-ssi chewed on it, as if it was delicious, and smiled brightly.</p>
-<p>"Yeah! It's cooked well! Let's eat together."</p>
-<p>"Yes, just a moment."</p>
-<p>I put a few pieces of meat away from the charcoal so they wouldn't cook too quickly and burn, and sat down. While I was preparing the meat, Yukiko-ssi prepared the wine and salad. She probably chose the wine from the wine refrigerator, but still, Yukiko-ssi chose it.</p>
-<p>Clink!</p>
-<p>We clinked our wine glasses, toasted, and drank the wine. I don't really know the taste of wine, but Yukiko-ssi probably chose well.</p>
-<p>We smiled and talked to each other while eating. When we finished eating the meat, we brought the remaining meat on the grill and ate it, and we continued to drink wine until we finished the bottle.</p>
-<p>It was completely dark, but there was a soft light so we could see each other's faces. After we finished eating, I gave Yukiko-ssi the gift I had prepared.</p>
-<p>"It's a trip gift."</p>
-<p>"A trip gift? You didn't have to...."</p>
-<p>The gift was a small box. Actually, I called it a trip gift, but it was a ring I bought when I went to Tokyo after returning.</p>
-<p>Yukiko-ssi said I didn't have to, but she accepted it happily. Yukiko-ssi opened the box and paused for a moment. Inside the box was a ring with the same design as the one Yukiko-ssi was wearing from Tairaga Saburo-nim. However, the ring that Tairaga Saburo-nim had given her had a clear diamond, but the ring I had prepared had a pink diamond that matched Yukiko-ssi's pink eyes.</p>
-<p>"This is...."</p>
-<p>"Even though it was given to you by your father, I didn't like that my woman was wearing a ring given to her by another man."</p>
-<p>"The design is the same?"</p>
-<p>"I still have to worry about the eyes of others, though."</p>
-<p>If Yukiko-ssi, the daughter-in-law of the Tairaga family, suddenly took off the wedding ring given to her by the deceased Tairaga Saburo-nim and wore a ring with a different design, a scandal would naturally arise, so I chose the same design. Of course, the jewel attached is different....</p>
-<p>"Ryuta...."</p>
-<p>Yukiko-ssi's expression was complicated. It was a mixture of joy and guilt. Yukiko-ssi didn't need to feel guilty. I can take all the responsibility. I hugged Yukiko-ssi tightly.</p>
-<p>"Yukiko-ssi is my woman. So from now on, you're going to wear the ring I gave you, got it?"</p>
-<p>"Nehee.... Shujin (Master)...."</p>
-<p>Yukiko-ssi's eyes were glazed over. She called me Shujin, which means husband in Japanese, and looked at me while hugging me.</p>
+<p>Two hours ago.</p>
+<p>"Mom, I'm going to the Relic Tower."</p>
+<p>After making plans for a while, Arisu Fitzgerald told Nae Fitzgerald that she would go to the Relic Tower before going home. The Relic Tower was a space that Nae Fitzgerald had built in New York to store stolen goods. Arisu also built a Relic Tower in Japan following her, but of course, she hadn't caught up with her mother's collection yet, as there was a difference in the years of work they had done.</p>
+<p>"I'm going to give it all to you when I die anyway, so why do you keep looking at it?"</p>
+<p>"I just like looking at treasures...."</p>
+<p>Nae Fitzgerald sighed as if she couldn't help it, because Arisu Fitzgerald had liked looking at treasures since she was a child, and opened her mouth.</p>
+<p>"But you have to come home early, okay? You have to sleep if you want to play with Ryuta, whom you like, tomorrow."</p>
+<p>"Okayyy. Don't nag me, and you go in quickly, Mom."</p>
+<p>The two mothers parted ways there, Arisu Fitzgerald went to the Relic Tower, and Nae Fitzgerald headed to the Fitzgerald mansion.</p>
+<p>"Have you arrived? Where is Arisu-nim?"</p>
+<p>"She said she's going to play a little more, so you can rest, Butler-nim."</p>
+<p>Nae Fitzgerald answered the butler, who asked about Arisu Fitzgerald's whereabouts, and went up to the room on the second floor. Originally, the Fitzgeralds' master bedroom was the largest room on the third floor, but when her husband, Oliver Fitzgerald, was away, she used the room on the second floor.</p>
+<p>The room on the third floor was too big to use alone, and she felt her husband's absence, so she used the room prepared for her alone on the second floor when she was alone.</p>
+<p>Nae Fitzgerald took a shower and lay down as she was, wearing only panties. She was confident in her stamina, but she was exhausted from constantly flying and meticulously planning operations so that the reputation of the Phantom Thief François would not be tarnished.</p>
+<p>Did she fall asleep for a moment? Nae Fitzgerald woke up halfway to the sound of the door opening. Feeling it with the sharp senses of a phantom thief, it was a large man. Was it her husband? Did his business trip end earlier than expected?</p>
+<p>Her husband had sometimes come in and enjoyed passionate sex when she was sleeping alone, so Nae Fitzgerald smiled slightly and pretended to be asleep.</p>
+<p>As expected, he started touching her ass from the beginning. Nae Fitzgerald was also confident in her ass. Her husband also liked her ass the most out of Nae Fitzgerald's body, so she thought he would touch her ass right away.</p>
+<p>Perhaps because it was sex after a long time, the inside of her stomach became ticklish and she slowly spread her legs without realizing it. Her husband didn't miss the gap between her spread legs and touched her pussy.</p>
+<p>"!"</p>
+<p>It was different than usual. Just touching the outside of her panties gave her tremendous pleasure. Was it because it had been too long? Nae Fitzgerald still wanted to pretend to be asleep, so she buried her face in the pillow and suppressed her moans.</p>
+<p>"Huuu...."</p>
+<p>Even though she suppressed her moans, the sound came out without her knowing, as if it was leaking from somewhere. So much fluid came out of her pussy that it was embarrassing for her.</p>
+<p>Her husband must have felt that it was time and pulled down her panties and inserted his dick.</p>
+<p>'It's not Oliver!'</p>
+<p>She realized it the moment he inserted it. It wasn't her husband, Oliver Fitzgerald. The dick of an unknown man was bigger, harder, and hotter than her husband's dick, and above all... it felt good.</p>
+<p>"Keueut, Arisu...!"</p>
+<p>The voice that came out of the man's mouth was the voice of her nephew, Taira Ryuta, whom she hadn't seen much. What was even more surprising than his voice was that Taira Ryuta thought she was Arisu Fitzgerald and was fucking her now.</p>
+<p>She knew that Arisu Fitzgerald liked Taira Ryuta, but she thought she just liked him as a cousin, but to think they were in this kind of relationship...! Moreover, she was a married woman, so she should pull out this dick right away and give him a lecture as an aunt. It was just a mistake, so she wouldn't make the situation bigger, but....</p>
+<p>However, Nae Fitzgerald couldn't think properly anymore. Tremendous pleasure came right away. It was a pleasure she had never felt even during her long married life. It was a tremendous pleasure, as if she was becoming a small dot in a vast universe.</p>
+<p>"Arisu, keut, Arisu's pussy feels so good."</p>
+<p>Taira Ryuta whispered Arisu Fitzgerald's name into Nae Fitzgerald's ear and shook his waist. Even though it wasn't her name, the voice felt sweet. Whatever the name, it meant that her pussy felt good.</p>
+<p>"Heuuht...! Eueung♥ Heuuheung♥"</p>
+<p>"Arisu...!"</p>
+<p>Taira Ryuta kept calling Arisu Fitzgerald's name and shook his waist violently. For some reason, Nae Fitzgerald was upset that Taira Ryuta wasn't calling her name, but she couldn't reveal herself in this situation.</p>
+<p>"Haaht, Haeuuheung...! Heuuht! Eueung...!"</p>
+<p>She was shamelessly making vulgar moans that she hadn't even made during sex with her husband, experiencing several orgasms, when she heard Taira Ryuta's urgent voice.</p>
+<p>"Keueut...! I'm cumming, Arisu!!"</p>
+<p>'No, don't cum inside♥'</p>
+<p>Nae Fitzgerald couldn't bring herself to say that he shouldn't cum inside. Surely, if the hot semen coming out of this young man's dick came inside her, it would feel incredibly good. But as a wife of a man, receiving semen from another man was something she shouldn't do.</p>
+<p>Nae Fitzgerald couldn't do anything because she felt both emotions at the same time.</p>
+<p>Fortunately or unfortunately, Taira Ryuta pulled his dick out of Nae Fitzgerald's pussy and started cumming on her back.</p>
+<p>It was a tremendous amount. If she were to hold this hot and abundant semen in her womb, it would surely feel incredibly good.</p>
+<p>"Good night, Arisu."</p>
+<p>Taira Ryuta finished cumming, kissed Nae Fitzgerald's neck, and left the room. The kiss was as hot as a brand. It was so hot that it was still burning even after Taira Ryuta left.</p>
+<p>Nae Fitzgerald lay face down and took off her panties, which were soaked with fluid. Then, she supported herself with her arms and lifted only her upper body. She could feel the semen pooling on her back flowing down. She looked at the door that Taira Ryuta had left through for the last time.</p>
+<p>"I want to feel it one more time...."</p>
+<p>Nae Fitzgerald was surprised by the words she had said without realizing it! Today was a mistake and it was something that would never happen again. There's absolutely no way, but she wants to feel it one more time...! Nae Fitzgerald shook her head violently to come to her senses.</p>

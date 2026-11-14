@@ -5,71 +5,87 @@ weight = 377
 chapter = 377
 +++
 
-<p>"Ehehehehe!"</p>
-<p>"Ah! That felt so good! I feel refreshed, Ryuta-nim~♥"</p>
-<p>Late Sunday morning. Mimata Chieri was watching the videos she, I, and Sawayanagi Seari had taken together since Saturday, grinning like an old man and going "ehehehe," while Sawayanagi Seari was making a fuss about how she felt refreshed even though it wasn't a hot spring. Did she feel refreshed because she released the desires that had been building up for weeks?</p>
-<p>"Seari, can you stand over here for a moment?"</p>
-<p>I was curious about the stats of the awakened Sawayanagi Seari, so I put on the glasses from the ruins that I had brought to see Yukiko's abilities and looked at Sawayanagi Seari. Of course, there were still uses left, so Sawayanagi Seari's stat window popped up.</p>
-<p>Name: Sawayanagi Seari Lv13</p>
-<p>Strength: 7 Agility: 14 Stamina: 12 Resistance: 9 Recovery: 8 Nerve: 14 Appearance: 17</p>
-<p>Intelligence: 3 Knowledge: 3 Concentration: 12 Willpower: 13 Creativity: 5 Charm: 17 Judgment: 10</p>
-<p>Luck: 8 Spirit Power</p>
-<p>◆Wind Scouting Lv9 [Epic Skill]: Senses the wind to perform excellent scouting. Difficult to use underwater.</p>
-<p>◆Gun Shooting+ Lv14 [Rare+ Skill]: Gains a bonus to shooting skills using firearms. Uses wind to increase accuracy and damage.</p>
-<p>◆Wind Spirit Command Lv11 [Unique Skill]: Can sense and command wind spirits.</p>
-<p>◆Aerokinesis Lv6 [Epic Skill]: Can control surrounding wind with mental power.</p>
-<p>◆Confectionery Lv4 [Common Skill]: Ability to make sweets.</p>
-<p>◆Sensitivity - Wind [Epic Trait]: Acquires Spirit Power stat for wind and its limit increases by 2. Increases the ability to learn wind-related abilities.</p>
-<p>◆Wind Sight [Epic Trait]: Senses the area where wind sensitivity reaches, even without seeing it directly.</p>
-<p>◆Awakened High Mountain Elf Body [Legendary Trait]: An elf's body that lives in the high mountains, sensing the wind and trees. Each of them was a priestess, hunter, and warrior of the wind god. Agility, Stamina, Resistance, and Recovery stats increase by 2, and their limits also increase by 1 each. The limit of the Spirit Power  stat increases by 2, and stats increase as communion with the wind increases. Acquires sub-traits .</p>
-<p>◆Wind Spirit Manipulation [Unique Trait]: Controls wind spirits. Has power proportional to Spirit Power, and can give complex instructions proportional to Spirit Power.</p>
-<p>◆Atmosphere Control [Epic Trait]: Ability to control the surrounding atmosphere. Called Aerokinesis. Acquires the Epic Skill Aerokinesis. Freely controls the surrounding atmosphere using mental power.</p>
-<p>◆Danger Detection [Rare Trait]: Instinctively senses danger. Judgment increases by 2 and movement speed increases by 20 percent in dangerous situations.</p>
-<p>◆Wind Bullet [Epic Trait]: Can manipulate the situation advantageously by using wind when shooting. Increases the accuracy and damage of bullets using wind.</p>
-<p>As expected, she was the character with the highest potential in Seryutai that I thought of, so it was quite a flashy stat window. If Yukiko is the Demon King, is Sawayanagi Seari a mid-game hero companion who has grown to some extent...?</p>
-<p>She's completely specialized in wind, so she'll be incredibly useful in the field. There's air indoors, so she'll be able to fight well enough, but it'll be a bit difficult underwater. But there's almost no fighting underwater, so it wasn't a disadvantage.</p>
-<p>Her stats were a well-balanced type, with everything high except for Intelligence, Knowledge, and Creativity. She can be used in any situation, as long as it's not studying or strategy. She's being used for scouting because of her wind attribute, but her direct combat power will also be enormous.</p>
-<p>After checking Sawayanagi Seari's stat window, I opened the box I bought at the black market yesterday and took out the Fairy's Secret Earring.</p>
-<p>◆Fairy's Secret [Epic Equipment/Earring]: If a fairy race character wears it, it changes the notation to human.</p>
-<p>Luck +1</p>
-<p>I don't know if this will work... I held out the Fairy's Secret to Sawayanagi Seari.</p>
-<p>"It's a present."</p>
-<p>"Wow! Really? Ryuta-nim is the best!"</p>
-<p>Sawayanagi Seari, who received the Fairy's Secret I gave her, jumped up and down and rejoiced. It wasn't accurate, but it felt like hearing my daughter say "Daddy's the best~!" after receiving a gift.</p>
-<p>"Put it on now."</p>
-<p>"Ryuta-nim, you have to put things like this on for me~!"</p>
-<p>I said it with the feeling of "try equipping this equipment item," not as a gift. I took the Fairy's Secret back from Sawayanagi Seari and touched her long ears directly, putting the Fairy's Secret on her ear. Sawayanagi Seari made a moaning sound, "Ahng♥," when I touched her ears. Isn't she too sensitive?</p>
-<p>"Oh! Senpai, Seari-chan's appearance is...?!"</p>
-<p>"Huh? What are you talking about?"</p>
-<p>As expected, her ears changed to the appearance of ordinary human ears. Mimata Chieri said in surprise, and Sawayanagi Seari runs to the mirror. I glance at Sawayanagi Seari's status window, which I haven't turned off yet.</p>
-<p>◆Awakened High Mountain Elf Body [Legendary Trait]: An elf's body that lives in the high mountains, sensing the wind and trees. Each of them was a priestess, hunter, and warrior of the wind god. Agility, Stamina, Resistance, and Recovery stats increase by 2, and their limits also increase by 1 each. The limit of the Spirit Power  stat increases by 2, and stats increase as communion with the wind increases. Acquires sub-traits .</p>
-<p>-The appearance of the High Mountain Elf Body is changed to human due to the effect of the currently equipped Fairy's Secret item.</p>
-<p>Hmm, perfect. If it's properly stated in the status window, it doesn't seem like it will suddenly transform back.</p>
-<p>"Ryuta-nim~! Thank you! Now I can wander around as I please!"</p>
-<p>Sawayanagi Seari ran to me and jumped into my arms. It was a sudden body slam, so I naturally fell back onto the bed, and Sawayanagi Seari was on top of me.</p>
-<p>"Haa, haa...! It's Ryuta-nim's fault. Because you gave me such a gift♥"</p>
-<p>She's already in heat with hearts in her eyes. She's getting horny from a gift, isn't that too easy...?</p>
-<p>Of course, I don't refuse sex that comes my way, but it's almost lunchtime, so I wish we could eat lunch first... As I thought that and looked to the side, Mimata Chieri also had a spaced-out expression and was wriggling with her hand inside her panties.</p>
-<p>"Heuuh, sex without giving me a present... Heuung, I'm jealous and excited♥"</p>
-<p>It seemed like the gift-giving ceremony just now completely sniped Mimata Chieri's netorare tastes. Getting excited is one thing, but she might sulk later, so I should give Mimata Chieri a separate gift.</p>
-<p>"Ryuta-nim, just lie still. I'll do everything♥"</p>
-<p>I'm hungry... I can't help it. I have no choice but to satisfy both of them quickly.</p>
+<p>,Sakagami-ssi is out, and Naruse-ssi is in the infirmary with Kijimoto-sensei, so no one will bother us for a while."</p>
+<p>,Really? But I'm a little embarrassed since I'm the only one undressed?"</p>
+<p>At Urabe Konoka's words, Kujo Kina covered her chest with her arms and joked. Urabe Konoka chuckled at the sight and changed her clothes as well.</p>
+<p>I don't know why she brought a white and red shrine maiden outfit to a picnic, but Urabe Konoka changed into the outfit and stood in front of the naked Kujo Kina.</p>
+<p>,As expected of the Urabe family, the shrine maiden outfit suits you well."</p>
+<p>,Thanks. I need to dress properly to do this properly... And it's a bit weird to do it here, so let's go to the shower room."</p>
+<p>,If someone overhears, they'll think we're doing something naughty, you know?"</p>
+<p>Urabe Konoka pushed Kujo Kina, who seemed nervous and kept making silly jokes, into the bathroom and scanned Kujo Kina's body. There was a black flame-shaped tattoo between her left buttock and waist.</p>
+<p>,Kujo-ssi. Have you ever gotten a tattoo?"</p>
+<p>,Kyahaha! As free as I live, tattoos are a bit much. My family would never allow it, you know?"</p>
+<p>If Kujo Kina's answer was correct, this tattoo seemed to be a mark from the martial art that Yamashiro Ryuta mentioned.</p>
+<p>,There's a tattoo-like thing on your left buttock. This is probably the mark of the curse that sensei mentioned."</p>
+<p>,Huh? A tattoo? I've never gotten a tattoo...?"</p>
+<p>At Urabe Konoka's words, Kujo Kina looked at her butt doubtfully. And she was startled to see the flame-shaped black tattoo imprinted like a stamp.</p>
+<p>,W-What is this?!"</p>
+<p>,This is the proof of the curse. I'll get rid of it soon, so don't make a fuss."</p>
+<p>Urabe Konoka said this, holding a gohei—a ritual tool used by shrine maidens in Shinto with paper attached to a stick. She closed her eyes and waved the gohei over Kujo Kina's head.</p>
+<p>As black energy slowly began to emanate from Urabe Konoka's body, a dark red energy began to rise from the brand on Kujo Kina's butt as if to resist the black energy.</p>
+<p>,Just like sensei said, it's a power related to Shinkai Hime. But it seems to be severely corrupted..."</p>
+<p>As a shrine maiden who served Shinkai Hime, Urabe Konoka was immediately able to identify the nature of Kujo Kina's dark red energy.</p>
+<p>Corrupted abyss energy. She didn't know the exact name, but Urabe Konoka was a shrine maiden who could control the origin of the abyss before it was corrupted. It wouldn't be difficult to exorcise the curse left by that person, as she wasn't directly facing the person with this energy.</p>
+<p>She swung the gohei more and more vigorously, and the black energy of the abyss that Urabe Konoka summoned grew larger and enveloped Kujo Kina's entire body.</p>
+<p>When the black energy that had been surrounding Kujo Kina for a while was reabsorbed into Urabe Konoka, the brand on Kujo Kina's butt had disappeared.</p>
+<p>,H-Huh? Huh...? What?"</p>
+<p>Was it because she was enveloped in the energy of the abyss? Kujo Kina was not in her right mind. Urabe Konoka used a technique to clear her mind, and only then was she able to come to her senses.</p>
+<p>,The tattoo is gone? Does that mean the curse is gone now?"</p>
+<p>As if she had forgotten what had just happened, Kujo Kina was just excited to see her butt.</p>
+<p>,Yeah, I exorcised it, but be careful because danger may come again if you don't know when or who cursed you, Kujo-yang."</p>
+<p>,Well, I'll investigate how it happened, so there won't be another curse."</p>
+<p>Kujo Kina, who was confident that it wouldn't happen again, looked somehow uneasy, so Urabe Konoka took out a talisman from her pocket. It was a talisman made at the Choten Shrine where she used to be. This talisman would be enough to block the curse of the corrupted abyss energy.</p>
+<p>,Still, take this with you just in case."</p>
+<p>,Kyahaha! Still, the only ones who worry about me are my classmates. Thanks, I'll repay this favor someday."</p>
+<p>Whether she was touched by the talisman Urabe Konoka gave her, Kujo Kina put her arm around Urabe Konoka's shoulder while naked and said.</p>
+<p>,Can't you put on some clothes and talk to me? Someone might misunderstand."</p>
+<p>,Kyahaha! If someone else sees us, they'll definitely think Urabe is cosplaying and I'm naked, so they might misunderstand."</p>
+<p>Kujo Kina laughed heartily, came out of the shower room, and began to put on her clothes again.</p>
 <p>###</p>
-<p>After satisfying Sawayanagi Seari and Mimata Chieri, I went to downtown Tokyo for lunch and a date, then sent them both off. Then, I headed to the underground parking lot of the building where I had parked my car.</p>
-<p>Hmm, it was quite a fulfilling weekend. I roughly checked the work of my own company, met Yukiko, met Mimata Chieri and Sawayanagi Seari, and leveled up.</p>
-<p>"Hmm, shall I allocate my stats and choose a trait now?"</p>
-<p>I leveled up while doing it with Yukiko and was tired, so I put it aside for a while, but now I should allocate my stats and choose a trait. First, I should put one point each into Agility and Nerve. Agility and Nerve have some overlapping aspects, so if you allocate them together, there was a synergistic effect. I've allocated my stats, so now it's time for a trait. I hope a good trait comes out...</p>
-<p>Please select a trait.</p>
-<p>①Brand  ②Hawk Eye ③Modified Glans Tentacle</p>
-<p>The first Brand that came out was an ability exclusively for debuffs. It was a very useful ability that lowered various resistances or dealt DoT damage when a brand was applied. The Brand of Decomposition was a brand that dealt DoT damage and lowered physical resistance.</p>
-<p>The second, Hawk Eye, was a good ability for people with sniper or scout abilities, and the third, Modification, was obviously a useless trait for me, who has the Pure's Praise trait, which means I shouldn't do modifications. I was curious about what a glans tentacle was, but I shouldn't choose it.</p>
-<p>The first and second were quite useful, but as someone aiming for a jackpot, I wasn't satisfied with these traits. Then I had no choice but to reroll.</p>
-<p>The [Potential Enhancement] option of the item [Wish-Fulfilling Orb] can change the trait that can be selected by leveling up to a random trait of a higher grade. Would you like to change it?</p>
-<p>I rerolled the trait selection with the Wish-Fulfilling Orb's ability. The original trait list disappeared and a new trait appeared.</p>
-<p>Please select a trait.</p>
-<p>①Modified Chitin Armor ②Storm Affinity ③Saint of Fist</p>
-<p>Chitin Armor is a modification, so I'll skip it, and Storm Affinity and Saint of Fist came out. Affinity traits are quite good, but they didn't catch my eye. That's because the Fist trait that I wanted so much but kept not appearing came out.</p>
-<p>◆Saint of Fist [Unique]: Talent to receive the title of Fist Saint. The movement of fist techniques is compensated, and the understanding of fist techniques becomes extremely high. It is a trait that can grow if you gain enlightenment.</p>
-<p>I chose Saint of Fist without hesitation. I took a stance and swung my fist while keeping the car next to me, and it was definitely different than before. I just extended my fist, but I felt like the wind was splitting.</p>
-<p>"At this rate..."</p>
-<p>I can beat the mid-bosses without items? I smiled slightly as I looked at my fist.</p>
+<p>,Keuk...!"</p>
+<p>Funayama Seigo, one of the Four Heavenly Kings of Anya-ji, suddenly vomited blood. Funayama Seigo's disciples, who were next to Funayama Seigo, supported him, but Funayama Seigo waved his hand as if he was okay.</p>
+<p>,What's wrong? Master?"</p>
+<p>,Are you okay?"</p>
+<p>,I'm okay...!"</p>
+<p>Funayama Seigo was in charge of training the successors of Anya-ji, so there were always many disciples around him.</p>
+<p>He traveled around East Asia, including Japan, bringing and teaching talented boys and girls. Of course, as befitting Anya-ji, he didn't bring disciples in an ordinary way.</p>
+<p>The main method he used was to kill their parents and then bring them in, saying he would help them, and if that was too much trouble, he used kidnapping.</p>
+<p>If they were talented but their parents or surroundings had strong power, making it difficult to kill or exclude them rashly, he chose to engrave the Berserker Seal on their bodies.</p>
+<p>He used the Berserker Seal of Mumatsu Anya to slowly drive them crazy, making their parents or family give up on their disciples on their own.</p>
+<p>,The Berserker Seal is broken."</p>
+<p>The Berserker Seal had the form of a martial art, but its actual form was a curse. If the curse was broken, it was natural for the caster to suffer a backlash. That's why Funayama Seigo suffered internal injuries and bled from his mouth. He suffered internal injuries that would require at least a month of recuperation.</p>
+<p>If he used the sorcery of Mumatsu Anya, he could reduce that month of recuperation by half, but it was still a major injury.</p>
+<p>,Are you saying someone rejected master's grace?"</p>
+<p>,I can't allow it! Please send me!"</p>
+<p>,If they rejected master's grace, they'll eventually become our enemy."</p>
+<p>Funayama Keigo smiled and sat upright at the reaction of his disciples, who had already been strongly brainwashed by Funayama Seigo and were blindly loyal to him. Then he closed his eyes and checked the curse of another Berserker Seal connected to him.</p>
+<p>After confirming who had lost the Berserker Seal, Funayama Seigo opened his eyes and frowned.</p>
+<p>,I'll have to convene a meeting of the Four Heavenly Kings."</p>
+<p>###</p>
+<p>Ryuta: Genbaki, hang in there...!</p>
+<p>Kiyohira: What are you talking about?</p>
+<p>After looking at my phone and sending a line of encouragement to Kiyohira, the sun had already set.</p>
+<p>Kiyohira didn't know what I was suddenly talking about, but I just sent the line because I felt sorry for him for some reason. Should I say that I feel a bit sorry that his skills are similar to those of a high school girl like Kujo Kina...? I felt complicated. I hope Genbaki gets lucky and gets a good trait, but it'll be difficult.</p>
+<p>I heard we're having a barbecue in front of the villa for dinner. The staff will grill everything, so I can just go down and eat like at a buffet.</p>
+<p>,Sensei~! I was just about to call you, but you came at the right time."</p>
+<p>,I was lying in bed and lost track of time."</p>
+<p>Konoe Akina greeted me as she saw me coming down. Looking around, I saw that they had already piled up a mountain of meat, and the staff were grilling the meat non-stop. Next to them, there was an ice box filled with alcohol and drinks, and next to that, there was a swimming pool where some students were already floating around in their swimsuits.</p>
+<p>I've thought about this several times, but is this really a picnic? It just feels like a vacation for rich students. Well, maybe I'm too stuck in my stereotypes about picnics. This is probably what a picnic is like for St. Francis students.</p>
+<p>When all the students came down in front of the villa, Minamoto Risa opened her mouth.</p>
+<p>,After dinner, we'll have a campfire over there and then enjoy free time before going to bed. Tomorrow, we'll have breakfast and then take a helicopter straight back to school from here."</p>
+<p>If we can go straight back by helicopter from here, it'll save a lot of time.</p>
+<p>Soon, the meat was all grilled, and everyone ate the meat while watching the sunset over the sea. Perhaps because of the exorcism, Kujo Kina and Urabe Konoka seemed to have become quite close. They were talking and having a good time while eating.</p>
+<p>Kujo Kina saw me noticing and gave me a thumbs up. Urabe Konoka saw that and nodded at me as if to say it went well. Seeing that their expressions weren't bad, it seemed that the exorcism went well.</p>
+<p>After everyone ate dinner (everyone was surprised at my meat consumption), we watched the campfire that the staff had set up and sang songs for those who wanted to.</p>
+<p>As the homeroom teacher, I had no choice. I had to sing a song in front of the kids because the students forced me to. I sang a Korean song because I'm a Korean teacher. I sang the latest popular ballad, and everyone applauded. It's a bit embarrassing.</p>
+<p>,You sing well, Yamashiro-sensei."</p>
+<p>,Kijimoto-sensei was good too."</p>
+<p>Kijimoto Jurie also sang a song before me at the urging of the students, so we complimented each other and sat down to roast marshmallows over the campfire.</p>
+<p>,Ah, I liked the swimsuit you wore today too. The simple style seemed to accentuate Kijimoto-sensei's figure even more."</p>
+<p>Kijimoto Jurie lowered her head as if she was embarrassed by my words. The sight of her face dyed in the orange campfire light looked quite pretty.</p>
+<p>,Come to my room in your swimsuit again tonight."</p>
+<p>,Y-Yes..."</p>
+<p>Kijimoto Jurie nodded slightly and answered at my words. She didn't say she didn't want to.</p>
+<p>----</p>
+<p>Naked Kujo Kina during the exorcism</p>
+<p>Kijimoto Jurie wearing a plain swimsuit</p>

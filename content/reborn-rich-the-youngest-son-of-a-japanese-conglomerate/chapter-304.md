@@ -5,106 +5,91 @@ weight = 304
 chapter = 304
 +++
 
-<p>After a deep kiss with Kiyona Mari, I looked at both of their faces.</p>
-<p>Kiyona Mari, who I had just been kissing, was completely melted and had a dazed expression, while Kiyona Hori looked like she was craving something fiercely.</p>
-<p>Since I'm a fair person, I should give Kiyona Hori some pleasure this time. I licked Kiyona Hori's pussy, which had black pubic hair.</p>
-<p>It was already soaking wet from being so excited, so Kiyona Hori's pussy was coated with vaginal fluid.</p>
-<p>, "Haaheueung! It feels soo! Strange...!"</p>
-<p>Kiyona Hori was writhing in pleasure from just a light lick. The taste was the very essence of a sexy woman. I buried my nose in her pussy and frantically moved my tongue, sending Kiyona Hori to heaven.</p>
-<p>As expected, being a virgin, she had no tolerance for pleasure. She quickly reached her climax and squirted water everywhere. Next up was Kiyona Mari, of course. As I brought my face close to Kiyona Mari, she hurriedly opened her mouth.</p>
-<p>, "Wait, wai, wait a minute! Licking there is a bi, no...! It's a bit... Kyaaheueung!!"</p>
-<p>She was talking for too long, so I just sucked on her Clitoris in the middle of her sentence. As expected, being a woman's greatest pleasure spot, she couldn't speak and stretched out her toes, reaching a light climax. I didn't miss this opportunity and stimulated her vaginal opening with my tongue, drinking her vaginal fluid, just like I did with Kiyona Hori.</p>
-<p>"!"</p>
-<p>Oh, as expected of a pyrokinesis user, her pussy was very hot. Is this the first time I've been with such a hot woman? The taste was similar to Kiyona Hori's, probably because they're sisters. Maybe it's because her body is hot, but Kiyona Mari's felt a bit more intense?</p>
-<p>, "Heueut, I like... it heup! I'm not making, haang...! Sounds heueut! On purpose aahhang...♥"</p>
-<p>I don't know how long she'll maintain her tsundere concept, but since it gives me a different kind of pleasure, I decided to just leave it as it is.</p>
-<p>Soon after, Kiyona Mari also reached a grand climax, so it was time to teach them how to give service.</p>
-<p>, "I served you, so now it's your turn."</p>
-<p>As I said this while climbing onto the bed and lying down, the Kiyona sisters approached me awkwardly, as if they didn't know what to do. I guess this won't work without some help?</p>
-<p>, "Azuma, come and teach them."</p>
-<p>, "Ehehe, should I, Investor-nim?"</p>
-<p>Sawayanagi Azuma slipped between the Kiyona sisters and grabbed my dick between my legs.</p>
-<p>, "Jaji-nim is sensitive, so you shouldn't grab it too hard. You grab it like this..."</p>
-<p>In terms of experience, she couldn't be called a skilled expert, but Sawayanagi Azuma's night skills, honed through endless studying with her precognitive abilities, were quite outstanding.</p>
-<p>Even when she was a virgin, she displayed skills that couldn't be compared to the Kiyona sisters now, so that says it all.</p>
-<p>"And when you suck with your mouth, don't use your teeth, do it like this..."</p>
-<p>Chuu...! Chup! Chuuup...!</p>
-<p>I could feel a warm sensation as Sawayanagi Azuma took my dick into her mouth.</p>
-<p>The Kiyona Hori Mari sisters were seriously observing Sawayanagi Azuma's fellatio like eager students.</p>
-<p>Chup chup chup chup!</p>
-<p>Sawayanagi Azuma, who had been doing it slowly, got excited and sucked my dick more vigorously, then made an "Ah!" expression and spat out my dick with a regretful look.</p>
-<p>, "Okay, now try it yourselves~!"</p>
-<p>Kiyona Mari, who had been glaring slightly at Sawayanagi Azuma for speaking in a kindergarten teacher-like tone, surprisingly stepped forward first.</p>
-<p>, "It's not like I want to suck a man's thing...! I'm just doing it because I want to prove that I learned well...!"</p>
-<p>She said she didn't want to suck it, but she sucked surprisingly well. Kiyona Mari, who had a good eye, was performing fellatio with a quality quite similar to what Sawayanagi Azuma was doing.</p>
-<p>, "Keueut, it feels good..."</p>
-<p>I stroked Kiyona Mari's head as she said it felt good while sucking my dick, and Kiyona Mari glared at me, but she sucked even more vigorously.</p>
-<p>When I gave Sawayanagi Azuma a look, Sawayanagi Azuma stopped Kiyona Mari. Of course, I could have let her keep sucking because it felt good, but Kiyona Hori also had to learn.</p>
-<p>, "Okay, now we have to give Hori a chance, right?"</p>
-<p>, "Tch, I thought I could milk it out quickly..."</p>
-<p>She had an incredibly frightening ambition to aim for ejaculation from her first fellatio. Kiyona Hori slowly swallowed my dick, which was covered in Kiyona Mari's saliva and my Cowper's fluid, with a slightly nervous expression.</p>
-<p>Oh! Kiyona Hori also felt as good as Kiyona Mari. If Kiyona Mari felt like she was watching Sawayanagi Azuma and copying her with a "chup chup" feeling, Kiyona Hori's was a more intimate fellatio that felt like "jjueup jjueup."</p>
-<p>, "Okay, stop now...! Since you're sisters, it would be better to finish together."</p>
-<p>This time, Sawayanagi Azuma cleverly separated Kiyona Hori without me even giving her a look. Sawayanagi Azuma suggested that the Kiyona Hori Mari sisters suck my glans like they were kissing, with my dick in between them, and they both nodded without much resistance.</p>
-<p>, "Haeum, chup! Chuuup!"</p>
-<p>, "Jjueup, Jjueueup! Jjup jjup!"</p>
-<p>As expected, the mental pleasure of being serviced by sisters at the same time, and the contrasting sensations of the two sisters licking, made me unable to hold back and ejaculate.</p>
-<p>Buut! Buueuk! Bueut!!</p>
-<p>The white semen that burst out like a fountain floated in the air and fell onto the Kiyona sisters' faces. They let out small screams as the thick white liquid fell on their faces.</p>
-<p>, "It's warm..."</p>
-<p>, "It smells weird..."</p>
-<p>I couldn't bring myself to tell the two virgins to suck the semen off each other's faces, so I was about to pull out a tissue. But Kiyona Hori lightly licked Kiyona Mari's cheek.</p>
-<p>, "The taste is a bit weird? But it feels kind of addictive?"</p>
-<p>, "Ah, what is it, Hori Onee-chan!"</p>
-<p>Kiyona Mari, not wanting to be outdone by Kiyona Hori's actions, sucked the semen off Kiyona Hori's lips. That action made them look like they were kissing, which was quite arousing.</p>
-<p>They joked around and licked all the semen off each other's faces. Seeing that, my dick hardened, so I laid them both down on the bed.</p>
-<p>, "I'll do Onee-chan first."</p>
-<p>, "Yes, please come. Ryuta-ssi."</p>
-<p>I put my dick on top of Kiyona Hori's pussy and said that, and Kiyona Hori nodded and said that. I put strength in my hips and slowly entered Kiyona Hori's pussy.</p>
-<p>, "Eueut...!"</p>
-<p>Kiyona Hori looked like she was having a hard time. It couldn't be helped that she felt uncomfortable inside as my huge dick widened her pussy and entered. But I had the characteristics of a crimson pillar of murderous intent swimming in vaginal fluid, and the unique inheritance-level bedroom skill, Black Maitreya Gong.</p>
-<p>, "Heuaahang, it feels strange, Ryuta-ssi...!"</p>
-<p>Even though I tore her hymen with a "ttutuk!" sound, Kiyona Hori only flinched slightly and didn't seem to be in much pain.</p>
-<p>, "Haeut, is this...! Heueung♥ the feeling of a man? Heueut, haeut!"</p>
-<p>, "It's not so much the feeling of a man, but my feeling."</p>
-<p>, "Ryuta-ssi's feeling..."</p>
-<p>When I answered Kiyona Hori's question, she hugged me tightly. She hugged me as if trying to feel my whole body, and started sucking my neck. I moved my hips to the rhythm of Kiyona Hori sucking my neck.</p>
-<p>Ah! Now that I think about it, Kiyona Hori's characteristic was driving, so wouldn't she be good at riding position?</p>
-<p>Feeling curious, I turned my body from the missionary position and changed Kiyona Hori to the top position.</p>
-<p>, "Ryuta-ssi?"</p>
-<p>, "Hori, try shaking your hips from above."</p>
-<p>Kiyona Hori awkwardly started moving her hips at my words, but soon she moved her hips very skillfully. Kiyona Hori's appearance of freely shaking her hips left, right, front, and back added credibility to my hypothesis that if you have a driving characteristic, you're good at riding position.</p>
-<p>Of course, it was possible that Kiyona Hori herself was just a genius at riding position regardless of her characteristics, so I didn't jump to conclusions.</p>
-<p>, "Haeut! Heung...! Ah, I like it♥ Ryuta-ssi, Ryuta-ssiii...!"</p>
-<p>Kiyona Hori, who was shaking her hips, bent down and kissed me, sucking my tongue. Kiyona Hori continued to move her hips and piston even while kissing.</p>
-<p>, "Haeueahang! Heueut! I'm going, I'm going, I'm going aahhang♥"</p>
-<p>Kkuuuk!</p>
-<p>Suddenly, Kiyona Hori screamed that she was going, and her pussy squeezed my dick, and she trembled as she reached her climax.</p>
-<p>I held Kiyona Hori for a while, then pulled out my dick and approached Kiyona Mari this time.</p>
-<p>, "Wa, wait, can we do it next time instead of today...?"</p>
-<p>Kiyona Mari, who was slightly scared as I approached her with my dick, which was covered in Kiyona Hori's vaginal fluid, said we should do it next time, but I ignored her words and aimed my glans at Kiyona Mari's hot pussy.</p>
-<p>, "Wait, wait, wait, waaaaait!"</p>
-<p>Unlike Kiyona Hori, I pierced Kiyona Mari's pussy in one go. Oh! As expected, Kiyona Mari's pussy was hot and felt good.</p>
-<p>"Mari's pussy feels good."</p>
-<p>"Do, don't say weird things, idiot!"</p>
-<p>When I whispered in Kiyona Mari's ear, Kiyona Mari's face turned red and she screamed, but Kiyona Mari's pussy seemed to be happy with my compliment and wriggled slightly in response.</p>
-<p>It might sound like a villain in an NTR manga to say this, but unlike the mouth above, the mouth below is honest, Mari.</p>
-<p>I waited until Kiyona Mari got used to my dick and started shaking my hips.</p>
-<p>, "Heueut! Eueung... Idiot♥ Heueung, it's strangeee...!"</p>
-<p>As expected, Kiyona Mari melted quickly. I felt good with her hot pussy, and I felt the semen slowly rising due to Kiyona Hori's god-like riding position from earlier, and I moved my hips vigorously.</p>
-<p>, "Heueung, haeut♥ Haaang! I'm becoming an idiot, idiot! Heueung! It's strange...!"</p>
-<p>It was a rough hip movement only for my ejaculation, but Kiyona Mari reacted very well. It was an excellent pussy that was hot and had good sensitivity.</p>
-<p>, "Keueut, where should I cum?"</p>
-<p>, "Heueung, I don't know...! Haeut, heung...! Haaang♥"</p>
-<p>, "I've given them both medicine, so you can cum inside as much as you want, Investor-nim♥"</p>
-<p>As expected of Sawayanagi Azuma. I listened to Sawayanagi Azuma's whisper and increased my pitch even more.</p>
-<p>, "Keueut! I'm cumming!"</p>
-<p>, "Heuaaaang!"</p>
-<p>I poured my semen into Kiyona Mari's increasingly hot pussy. Usually, my semen was so hot that women liked it, but it probably felt lukewarm to Kiyona Mari.</p>
-<p>I kissed Kiyona Mari and pulled out my dick, and pink semen mixed with virgin blood flowed out of her pussy. That's also a bit arousing.</p>
-<p>But I couldn't leave my dick with blood on it, so I pulled out a wet wipe and wiped my dick.</p>
-<p>, "You're not going to treat the sisters differently, so you'll put it inside me too, right?"</p>
-<p>, "Of course. I'll put so much in both of you that you won't be able to count it, so don't worry."</p>
-<p>Kiyona Hori provoked me a little, but it was just cute to me. I declared that I wouldn't let them sleep tonight and approached Kiyona Hori.</p>
-<p>-----</p>
-<p>Kiyona sisters following yesterday</p>
+<p>The flowers bloomed slowly, one or two at a time, and then suddenly, as if spring had arrived, dozens of them bloomed quickly, filling the pile of grass.</p>
+<p>It looked as if some guy had filled a hotel with flowers for a proposal. Of course, no one would propose at a love hotel....</p>
+<p>The flowers were a mysterious purple color, like Sawayanagi Seari's eye color. At first, I was surprised when leaves sprouted all over her body, but now I somehow felt that things wouldn't go wrong, so I took a picture of the flower pile with my phone.</p>
+<p>Since there were so many flowers, it was quite beautiful, so I wanted to show it to Sawayanagi Seari when she woke up. Sawayanagi Seari would be amazed, right?</p>
+<p>At some point, the purple flowers began to glow, and a hand rose from the flower pile. The hand brushed aside the flowers that were covering it.</p>
+<p>The revealed appearance was a slightly older version of Sawayanagi Seari's face. Her hair was light brown, her eyes were purple, and her beautiful face was the same, but it was enhanced with a womanly charm befitting her age.</p>
+<p>Moreover, perhaps due to the awakening, her ears were pointed like an elf's. I'll have to cover that up later. Whether it was a coincidence or not, a few flowers were fixed in her hair like hairpins, and they suited her very well.</p>
+<p>Sawayanagi Seari raised her upper body. Then, something that had never been seen before appeared in the world. Whether the pile of grass and flowers had some effect, Sawayanagi Seari's body was naked, and as she raised herself, her breasts were naturally revealed.</p>
+<p>Huge tits and beautiful breasts. Before eating the Spirit Tree seed, she definitely had small A-cup breasts that weren't noticeable under her clothes.</p>
+<p>,Thank you. Ryuta-nim. The seed you gave me completely awakened me."</p>
+<p>,I didn't know this would be the result either. I don't know why, but I bought it because I felt that Seari-ssi and the seeds would go well together."</p>
+<p>I vaguely answered, glossing over the seeds. I couldn't exactly say, 'I bought it because I heard your line in the game and thought about it.'</p>
+<p>,But...."</p>
+<p>,Yes?"</p>
+<p>Sawayanagi Seari looked at me with innocent eyes, as if she still hadn't noticed.</p>
+<p>,Your breasts.... are showing."</p>
+<p>,Ah, I know. I can show them to Ryuta-nim, my benefactor, as much as you want."</p>
+<p>Ah, she already knew she was flashing her breasts.... As with Yukiko, her personality definitely changed a bit after awakening. This was a far cry from the nervous Sawayanagi Seari who was so tense about our first date today.</p>
+<p>,Perhaps.... Would you like to touch them?"</p>
+<p>,Huh?"</p>
+<p>Of course, if someone had such big and pretty breasts, any man would want to touch them, but no one would say it out loud. However, Sawayanagi Seari seemed to know everything from my gaze, and with a benevolent smile, she led my hand and placed it on her breast.</p>
+<p>It was soft. Just placing my hand on her breast, my fingers sank deep into the soft flesh and disappeared. It was an exquisitely golden ratio, God-tier breast that was soft yet maintained its shape without spreading.</p>
+<p>,Ah-ha♥ It tickles, Ryuta-niim~!"</p>
+<p>Sawayanagi Seari giggled and felt me fondling her breasts. It was a pure sight, innocently enjoying the pleasant new sensation.</p>
+<p>Sawayanagi Seari laughed, saying it tickled, but gradually her breath grew hotter and she began to squirm.</p>
+<p>,Heeung, me too...."</p>
+<p>,Yes?"</p>
+<p>,Please do to me what you did to Azuma at the pension, toooo♥"</p>
+<p>At the pension? Was she talking about having sex with Sawayanagi Azuma at the Seryutai outing back then? How did she know? Kiyona Hori and her sister also secretly listened and came to me asking to do it with them. At that time, I was obviously focused on the sex and didn't notice my surroundings, so I wouldn't have noticed even if they were secretly watching.</p>
+<p>,Did you perhaps hear it with the Kiyona sisters?"</p>
+<p>,Yeeehee...! Until now, I've only envied and imagined such things with my loli body, but now I can do it directly with my own body...."</p>
+<p>Well, if you're an adult but still have the body of a middle schooler, you can't date, and the only men who approach you are lolicons.</p>
+<p>,Won't you regret doing it with me?"</p>
+<p>,Yeee...♥ I want to do something fun with Ryuta-nim!"</p>
+<p>Hmm, seeing Sawayanagi Seari's appearance, I was definitely turned on. She was the spitting image of a busty elf.</p>
+<p>Moreover, I became even more excited seeing her surrounded by countless flowers, looking at me and smiling defenselessly with her legs open.</p>
+<p>,I understand."</p>
+<p>I nodded and took off my clothes. Sawayanagi Seari was also naked, so I took off my clothes so she wouldn't be embarrassed alone. Sawayanagi Seari saw my stiff cock touching my navel and shrieked, covering her eyes with both hands. Of course, she was pretending to cover her eyes while looking closely at my cock through her fingers.</p>
+<p>,I've never actually seen an adult man's co...ck before...."</p>
+<p>If she's never actually seen it before, does that mean she's seen it in videos?</p>
+<p>,What do you think, now that you've seen it for the first time?"</p>
+<p>,It's really, really.... big♥ The shape is grotesque too.... But strangely, I want to keep looking at it. I've never felt this way before."</p>
+<p>Sawayanagi Seari answered my question honestly. Of course, it could be grotesque if you see it for the first time in real life. Because the blood vessels are popping out.</p>
+<p>,There will be many firsts today."</p>
+<p>I climbed onto the bed and matched eyes with Sawayanagi Seari as I went between her legs.</p>
+<p>,Kiss me, kiss me."</p>
+<p>,Is kissing also your first time?"</p>
+<p>,...Yeees♥"</p>
+<p>Sawayanagi Seari pouted her lips. At first, I pecked her lips with a bird kiss, then gently put my tongue in and tickled her teeth.</p>
+<p>,Ahaha, it tickles♥"</p>
+<p>Sawayanagi Seari laughed, saying it tickled at first, but as the kiss deepened, like when I touched her breasts, she gradually twisted her body and made a nasal sound full of excitement.</p>
+<p>,Heueu, heueung♥"</p>
+<p>Sawayanagi Seari breathed out and hugged me affectionately. It felt so good to have her breasts pressed against me as she hugged me.</p>
+<p>While kissing Sawayanagi Seari as she hugged me, I subtly moved my waist and stimulated Sawayanagi Seari's pussy with my cock. I didn't put it in, but moved it on the outside and caressed her.</p>
+<p>This time, she didn't say it tickled. Of course, it's a pussy, so she's feeling the pleasure of excitement from the beginning.</p>
+<p>,Tsuup, tsuup, tschup...! Heueung, Ryuta-niim...!"</p>
+<p>Sawayanagi Seari moaned, breaking the kiss. It seemed like she took her lips off because she was frustrated that she couldn't moan while kissing.</p>
+<p>,I, I want to do that...! That thing where we lick each other."</p>
+<p>Sawayanagi Seari boldly suggested to me, as if she had many questions even though it was her first time. If we're licking each other, she's talking about 69, right?</p>
+<p>,I understand. I'll turn my body around, so keep lying down."</p>
+<p>I told Sawayanagi Seari and turned my body upside down. Sawayanagi Seari's pussy was tightly closed in an adorable way. A pussy that was so tightly closed that no fluids flowed out looked like it would feel good just to look at.</p>
+<p>I spread her pussy with my fingers and licked it with my tongue, and a slightly citrusy and refreshing fluid gushed into my mouth. As expected, she's a fairy, so she has this refreshing taste. How fascinating.</p>
+<p>,Hyaaang! It feels good, Ryuta-nim!"</p>
+<p>Sawayanagi Seari held my cock with her hand, but couldn't suck it because of the pleasure. However, she soon came to her senses and began to lick the glans, hyaljjak hyaljjak. And as if testing the technique (?) from the video she had seen, she licked and sucked the back tendon of my cock, diligently practicing her lessons with practical application.</p>
+<p>I kept licking and sucking Sawayanagi Seari's refreshing fluids, and Sawayanagi Seari stopped the fellatio in between.</p>
+<p>,Eueum...! Heueueum...!"</p>
+<p>Sawayanagi Seari couldn't make a proper moan because her mouth was full of my cock.</p>
+<p>,Eueueueheum♥"</p>
+<p>As I persistently licked her pussy, Sawayanagi Seari lifted her waist into the air and sprayed water. If she's reacting this much, she must have reached her climax. At this point, her pussy seemed loose enough.</p>
+<p>I pulled out the cock that Sawayanagi Seari was holding. Then I turned my body and matched my cock with her pussy.</p>
+<p>,I'm going to put it in."</p>
+<p>,Yeeehee.... Put Ryuta-nim's thing in~♥"</p>
+<p>Puwook!</p>
+<p>I tore her hymen as it was and instantly put my cock into her pussy. Sawayanagi Seari's eyes rolled upwards and she climaxed once more the moment I put my cock inside, as if the pleasure was greater than the pain.</p>
+<p>Sawayanagi Seari's pussy felt incredibly tight, just like when I first saw it. Like it was tightly gripping with her hand? Still, there was a lot of fluid, so it didn't feel uncomfortable, but rather a very pleasant pussy.</p>
+<p>,It feels goodhaang...! I'm getting weird♥"</p>
+<p>,Seari-ssi's pussy feels good too."</p>
+<p>,Not Seari-ssi, haeuheut! Just call me Seari, Ryuta-niim...♥"</p>
+<p>,Okay, Seari, does it feel good?"</p>
+<p>Since I'm calling her Seari, I might as well speak casually. Sawayanagi Seari, or just Seari, reached another climax when I called her name. Her already narrow pussy became even narrower and squeezed my cock.</p>
+<p>It felt like she was urging me to ejaculate quickly.</p>
+<p>,Haeueung, it feels gooodhaang! Eunghheut!"</p>
+<p>Seari came a whopping five more times before I ejaculated. And when I poured plenty of semen inside, she trembled all over as she reached another climax.</p>
+<p>,Tschuup, tschup...! Tschup!"</p>
+<p>Since it was her first time, I didn't want to push her too hard, so I was about to slowly finish the sex while kissing her, but Seari hugged me tightly and intertwined her legs, wrapping them around my waist.</p>
+<p>,Let's do it one more time, Ryuta-nim♥"</p>
+<p>I had the illusion that there were heart marks on Seari's eyes. This is that, right? Is it Erofu instead of Elf?</p>
+<p>Looking at Seari's hazy eyes, I had a feeling that I wouldn't be able to go home today and would be squeezed dry by the Erofu.</p>

@@ -5,89 +5,100 @@ weight = 1081
 chapter = 1081
 +++
 
-<p>"Kkeut! Hurry and do it...!"</p>
-<p>Sabu said, turning her Head and looking to the Side while lying down. She spoke like a captured gisa, but the current Situation, where Sabu was giving sex as a Reward, didn't match her Way of Speaking at all.</p>
-<p>"Uh.... Sabu."</p>
-<p>"Uh?"</p>
-<p>"I can't do it if you cross your Legs...?"</p>
-<p>She had said 'Hurry and do it' as if Determined, but she had crossed her Legs as if to Defend, so I told Sabu to uncross them. It felt like her Words said 'do it,' but her Body said 'don't.'</p>
-<p>I could have first targeted her breasts or other parts and let her naturally relax, but Sabu's Taut Tension Appearance was amusing, so I deliberately spoke to tease her a little more.</p>
-<p>"J-just do it! You're a Slut-man, so even if I, I Defend, you can do it yourself...!"</p>
-<p>Sabu was screaming out of unnecessary embarrassment. In truth, if Sabu set her mind to Defending, I wouldn't be able to touch even a single finger, but I nodded my Head as if I understood and reached out my Hand to cup Sabu's breasts.</p>
-<p>Her breasts, neither too big nor too small, a perfect Size, filled my Hand.</p>
-<p>As expected of a Fighting Class GOAT, her breasts were trembling yet elastic, possessing a top-tier Touch. Of course, as Sabu was of the Physical Class, her breasts had a higher proportion of elasticity, but the Touch of them pushing against my Hand was so good that I felt I wouldn't tire of touching them.</p>
-<p>"Haaht...!"</p>
-<p>It was as expected, her sensitivity was excellent. Just by cupping her breasts, moaning sounds were naturally escaping her lips.</p>
-<p>"Heueut, Heueuung...! Is touching my breasts a Chiryo, Heueuung... is that it, Haaang...?"</p>
-<p>"You said it wasn't Chiryo, but a Reward for winning, right?"</p>
-<p>When I asked about Chiryo, saying 'This isn't Chiryo sex, is it?', Fujigasaki Rinka said 'Ah, right' and closed her mouth again.</p>
-<p>"Foreplay is needed for sex. And this Act of touching breasts can also be said to be included in sex."</p>
-<p>"Heueu-heung...♥ Is that, Heueut...! Erotic, Haaang...?"</p>
-<p>"Yes. So, please fully enjoy my Touch."</p>
-<p>As I touched her breasts, Fujigasaki Rinka's nipples gradually stiffened, and I felt them pushing against my Palm. I gathered my fingers and lightly pinched Fujigasaki Rinka's nipples over her Bra.</p>
-<p>"Haa-haang!!! That's the spot...!"</p>
-<p>The moment I touched her nipples, Fujigasaki Rinka thrashed as if an electric current had passed through her. Glancing down below, I saw her crossed Legs had already uncrossed and were spread defenselessly, and the pink part of her Pussy in her panties was wet, staining it a darker gray.</p>
-<p>I, too, was considerably Aroused by this Situation. Seeing Sabu, who had taught me since childhood, so disheveled before me, the Forbidden Pleasure was immense.</p>
-<p>My cock was so Erection that it seemed to pierce the front of my Pants, truly bulging out like a Tent.</p>
-<p>For a while, I touched Fujigasaki Rinka's breasts, enjoying their Touch and Sabu's Reaction, then slowly began to take off my Clothes.</p>
-<p>In truth, I wanted to torment Sabu a little more, but my cock, pushing against my Pants, was suffering more, so I decided to take off my Clothes first and proceed.</p>
-<p>"Haa.... Haa.... Haa...!"</p>
-<p>Sabu was watching me take off my Clothes with hazy, dazed Eyes. With the sound of a zipper unzipping, my cock, hidden by my panties, sprang out.</p>
-<p>Earlier, I thought I was Aroused by seeing Sabu's Pussy wet, but it was the same for me. It was even worse; the glans part of the boxer briefs I was wearing was also soaked with pre-cum, a complete Eongmangjinchang.</p>
-<p>I had intended to keep my panties on, but it wouldn't work. I took off all my panties and became Naked. Naked, I grinned at Sabu.</p>
-<p>"Did you enjoy your Disciple's strip show?"</p>
-<p>"Idiot, how is just taking off Clothes a strip show?"</p>
-<p>Sabu also laughed and Answered my playful Question. You're telling me a Person's Pussy gets that wet just from watching someone take off their Clothes?</p>
-<p>Earlier, only the interlocked part of her Pussy was wet, but now almost the entire thing was soaked, completely revealing the outline of her Pussy; seeing this, it seemed I couldn't say she didn't enjoy my strip show.</p>
-<p>Still, since it was our first sex, I didn't intend to tease her unnecessarily and make the Atmosphere strange. I reached my Hand under Fujigasaki Rinka's lying back and unfastened her Bra Hook. Then, I took off her Bra.</p>
-<p>Sabu's breasts, with cute pink nipples standing erect, were revealed before my Eyes. Seeing the beautiful pink nipples, tempting as if asking to be licked, I couldn't resist and bit her nipple.</p>
-<p>"Euh-heung...! Ryuta-aat...! W-what are you, Haaht! doing, Haaang...♥"</p>
-<p>Fujigasaki Rinka asked what I was doing when I suddenly bit her nipple. To ask what I was doing by sucking her nipple, she clearly lacked Intimate Experience.</p>
-<p>"Heueuung! Even if you, Haaht! suck it like that...! No milk will, Heueut! come from my breast...♡ Haaang...♥"</p>
-<p>Jjeup...!</p>
-<p>Listening to Sabu's moans, I pulled my mouth away from her nipple. Both nipples were standing stiffly, pointing towards the sky in pleasure, but one was glistening with my saliva, looking incredibly Erotic.</p>
-<p>I touched Sabu's breasts again. I was about to take off her panties immediately, but I changed my mind, thinking I should experience the Sonmat of her Bare Breasts again, as I had only sucked them and not touched them.</p>
-<p>Indeed, no matter how advanced Bras became, touching Bare Breasts felt much better. Not only was the Touch better than touching over a Bra, but the Feeling of flesh against flesh was also superior. It was a pleasantly clinging Feeling, perhaps?</p>
-<p>"Haa-heung...! How long will you, Heueuung...♥ just touch my breasts, Haaang...?"</p>
-<p>As I began touching her breasts again, Fujigasaki Rinka looked into my Eyes and asked, unlike when I touched her over her Bra.</p>
-<p>"Is it wrong that Sabu's breasts feel so good?"</p>
-<p>"My, Heueuung, breasts, Heueuk! Feel good, Haaang...?"</p>
-<p>She likes it when I say they feel good. Everyone is susceptible to Praise, but Sabu seemed even more so.</p>
-<p>"Of course. They're incredibly addictive, Erotic breasts. They feel so good I can't let go."</p>
-<p>As I whispered softly, Fujigasaki Rinka reached a small Climax, exclaiming Haaht...! Thinking it was about time, I slowly lowered my Hand. Passing below her breasts, I touched her firm Abdominal Muscles as if giving a Massage.</p>
-<p>Passing over her slightly protruding Lower Cauldron, I began to touch Fujigasaki Rinka's Pussy over her panties, which were too wet to do their job. This, Sabu's Pussy...!</p>
-<p>"Heueuung...! Not there, Heueut! Nooo...."</p>
-<p>Just moments ago, she asked how long I would only touch her breasts, but now that I touched her Pussy, she said no. She tried to close her Legs due to the Thrilling Fear unique to Virginity, but I held one leg with my leg and fixed the other thigh with the Hand not touching her Pussy, forcing her Legs open.</p>
-<p>"Heueuung...! Haaht!"</p>
-<p>As I touched her Pussy over her wet panties, I could feel the outline of her Pussy almost as if touching her bare flesh. In truth, since it was a tightly closed, straight-line Pussy, there wasn't much of an outline, but just touching the slightly plump Pussy brought immense mental Satisfaction.</p>
-<p>Perhaps due to the Forbidden Pleasure of being on the verge of violating Sabu, pre-cum was dripping from my urethral opening.</p>
-<p>"Haaang! Haaht! That place, Heueuung! It's strangeee...!"</p>
-<p>Fujigasaki Rinka's Pussy had a different kind of softness than her breasts, and her Appearance, feeling even more sensitive than her nipples, held a magic power that made me want to keep tormenting her.</p>
-<p>"Sabu, I'm going to start."</p>
-<p>Normally, I would have tormented her more, but right now, treating Sabu's Internal Injury was the priority, and above all, I needed to calm my continuously Erection cock, so I pulled aside Sabu's panties and pushed my cock forward.</p>
-<p>But I didn't insert it immediately. I rubbed my cock up and down over her Pussy as if performing Sumata.</p>
-<p>"Haa-heueuung...! If you, Heueut! rub it like that...!"</p>
-<p>"It feels good, doesn't it?"</p>
-<p>"Heueut.... Uh, it feels.... good. Haaht! Down there...! It feels good...!"</p>
-<p>Sabu Answered my Question honestly. Touching her Pussy seemed to make her feel good, putting her in a state where she was half in Climax and speaking honestly as I asked.</p>
-<p>"Now I'm going to put it in, Sabu...!"</p>
-<p>"I'm Determined...! So, Haaht♥ come inside me."</p>
-<p>Hearing Sabu's Determination, I held my cock and aligned it with Sabu's Jilgu. Her Pussy was sufficiently loosened from being touched over her panties and rubbed with my cock.</p>
-<p>"Keueut...!"</p>
-<p>I only inserted the tip of my glans, but the Pressure was considerable. Because Sabu's entire Body was trained, her Vaginal Pressure was no joke.</p>
-<p>"Haa-heueuung...!"</p>
-<p>This time, I pulled my waist back slightly, then almost fully inserted my glans. Then, I felt something like a membrane blocking the Entry of my cock.</p>
-<p>As I thought, her Hymen was blocking the Invasion of my cock. I pulled my waist back again, and this time, I pushed hard.</p>
-<p>"Hwaaa-aat...!"</p>
-<p>With a tearing, ripping Feeling, my cock tore through Fujigasaki Rinka's Hymen and entered inside. Sabu let out a moan that seemed to express both pleasure and pain simultaneously.</p>
-<p>Having fought countless battles, Sabu was accustomed to pain, so she didn't show any signs of hurting.</p>
-<p>"Inside, Heueut...! Ryuta's, that cock.... Heueuung♥ Is it all the way in?"</p>
-<p>Sabu looked at me and asked. In truth, due to the Size of my cock, it wasn't all the way in, but I nodded my Head.</p>
-<p>"Now I'll start moving, Sabu."</p>
-<p>I looked down at Sabu and began to thrust my waist.</p>
-<p>Rinka-tan B-cut~!</p>
-<p>chea yun-nim requested Sabu in a Bikini~!</p>
-<p>TheDreaming-nim requested Tsukiyo at an amusement park 1. Carousel 2. Interview</p>
+<p>"Haa-eueu-eung...!"</p>
+<p>Although Kiyona Mari's breasts weren't large, the touch in my hands felt good, and perhaps because her reaction was immediate, they were fun to touch. As I touched her breasts, and at the same time gently rotated my hips, rubbing my cock against her pussy, my cock was gradually getting coated with Kiyona Mari's vaginal fluid.</p>
+<p>"D-don't just touch my breasts, heueut...♥ The lower part, haaang♥ too, euh-eung...! Put it, heueut! Innnn♥"</p>
+<p>As I only rubbed it without inserting it inside, she seemed desperate, Kiyona Mari pleaded with me, moving her pelvis to try and align the tip of my cock with her vaginal entrance.</p>
+<p>Normally, I would have teased her a little more, but because Kiyona Hori was anxiously waiting for her turn, I let Kiyona Mari insert my cock directly.</p>
+<p>"Heueu-eung♥"</p>
+<p>Kiyona Mari, skillfully moving her pelvis to align my glans with her vaginal opening, looked at me with a face slightly teary from pleasure and said,</p>
+<p>"Y-you...! My inside♥ Your cock... Haaang! Please put it innnn♥"</p>
+<p>As Kiyona Mari, who usually acted tsundere, pleaded with aegyo, my heart thumped, and I smiled, nodding my head. Grabbing Kiyona Mari's soft, silken tofu-like thighs, I began to push my cock inside.</p>
+<p>"Heueu-eung, ooooh...! It's scooping out, heueut! My insides♥ Euh-heung, come innn, haaang...!"</p>
+<p>Because Kiyona Mari had a small physique, the inside of her pussy was indeed narrow. While this narrowness was partly due to her physique, a major reason was likely that her pussy had tightened up from not having sex for a while. As my glans pushed through her narrow pussy, burrowing deeper inside, Kiyona Mari let out a loud moan and reached her climax.</p>
+<p>Kiyona Mari was continuously climaxing, and because there was someone waiting, I began to thrust my hips solely for the purpose of ejaculation.</p>
+<p>Perhaps because of Kiyona Mari's handjob fellatio and the continuous rubbing of my cock against her pussy while touching her breasts, a certain feeling of ejaculation had already built up.</p>
+<p>Moreover, unlike others, Kiyona Mari's hot body temperature made the sensation even more unique and pleasurable.</p>
+<p>To move roughly, I grabbed both of Kiyona Mari's hands and began to thrust my hips rapidly.</p>
+<p>Puk! Puk! Puk! Puk! Puk!</p>
+<p>"Haaht! Too much, ooh-hoot...! Eung-hiit...! So strong, heueut! Ryuta's cock, heueut! All the way inside! Heung! Pressing, heung! Down...! Haa-euh-hoot! It's thereee♥"</p>
+<p>Even while moaning in rhythm with my rough hip movements, Kiyona Mari frankly described the pleasure she felt.</p>
+<p>"Mari's pussy is hot, it feels good...!"</p>
+<p>"Heung! My pussy, aah-haang♥ Is it hot? Heueu-eung! Heueut! Does it feel good? Hi-ya-eut...!"</p>
+<p>As I said it felt good, Kiyona Mari's pussy responded by clenching even tighter. Naturally, such a pussy's reaction further hastened my ejaculation, and I could feel semen gradually rising from my balls.</p>
+<p>"Soon...! I'm about to cum!"</p>
+<p>"Heung...! Cum...?! Haaht! Mari's haa-euh-heung♥ Inside, heueut! Deeply, euh-heung...! Please invest, hiit! Plenty of Master-nim's white baby fluid♥"</p>
+<p>Asking me to invest baby fluid inside her pussy... Kiyona Mari certainly knew how to say incredibly horny things. Was she saying that if I invested baby fluid, she would respond with a baby? Because of Kiyona Mari's exciting words, I couldn't hold back and began to ejaculate inside her pussy.</p>
+<p>"Kkeu-eut...! Semen, I'm cumming!"</p>
+<p>Byuut! Byuut! Byuuuut!!</p>
+<p>"Haa-eueu-eut!! Inside, haaht! Something hot♥ Euh-heu-heu-heung! Sooo much!!!"</p>
+<p>As I ejaculated a thick, hot load of semen deep inside her, Kiyona Mari reached an even greater climax than any she had experienced so far. Her eyes rolled back, her tongue lolled out sloppily, and her body trembled, as if she was on the verge of losing consciousness from pleasure.</p>
+<p>"Huu...."</p>
+<p>"It's my turn now."</p>
+<p>As soon as I pulled my cock out of Kiyona Mari, Kiyona Hori's voice was heard, as if she had been waiting. I turned my head to look, and saw her, naked, climbing onto the bed while wearing a Maid Cap, the white, ruffled ornament maids wear on their heads.</p>
+<p>As expected, the older sister is different...! I didn't know she would use a tool.</p>
+<p>"You must be tired from doing it with Mari just now, so please lie down. I'll do everything for you, Master-nim♥"</p>
+<p>It seems she's calling me Master-nim because she's wearing a maid headband. Actually, unlike when I was with Fujigasaki Rinka, I wasn't particularly physically exhausted, but since she said she would do something for me, I lay down on the bed as Kiyona Hori suggested.</p>
+<p>"Master-nim, I will now begin my service♥"</p>
+<p>Kiyona Hori climbed on top of me, then looked down at me and spoke. As expected, unlike her younger sister, her breasts were large. Especially lying down and looking up, the massive weight of Kiyona Hori's proud Big Tits felt real. Her firm, perky breasts, completely unaffected by gravity, filled my vision.</p>
+<p>Only now did I understand why Kiyona Hori had yielded the first turn to her younger sister. It was to more dramatically showcase her own breasts in comparison to her sister's. This was quite a cunning older sister, indeed.</p>
+<p>"Haa-eum...!"</p>
+<p>Kiyona Hori pressed her body against mine and began to lick my nipple. Because of the feeling of her breasts pressing down softly and the movement of her tongue on my nipple, my cock, which had just ejaculated, hardened without losing any power.</p>
+<p>"Haeup.... Chyu-eup, Tzeup...! How is it, Master-nim...?"</p>
+<p>Watching her lick my nipple while observing my reaction, it truly felt like a maid's service.</p>
+<p>"It feels good. I didn't know Hori was such an erotic maid."</p>
+<p>I said, stroking Kiyona Hori's head. At my words, Kiyona Hori giggled, gave an eye smile, and licked my other nipple. A ticklish, hair-raising pleasure spread through me, and though my body twitched, I lay still and received Kiyona Hori's service.</p>
+<p>"Next.... I will service Master-nim's large.... Cock♥."</p>
+<p>Kiyona Hori's soft, gentle voice tickled my sensitive ear. Curious about what service would come next, I raised my head and looked at Kiyona Hori.</p>
+<p>Since her younger sister Kiyona Mari had given a handjob fellatio, I didn't think it would be fellatio, and my prediction was correct.</p>
+<p>Kiyona Hori had placed my cock between her breasts, then embraced her own breasts with both arms, performing a modified Paizuri. It was a Paizuri that satisfied both visual and tactile senses, quite arousing just to watch.</p>
+<p>"Kkeu-eut...!"</p>
+<p>As the soft breast pressure of Kiyona Hori was felt on every part of my cock, I couldn't help but let out a moan.</p>
+<p>Because my cock, enveloped by her breasts, was thoroughly coated with my semen and Kiyona Mari's vaginal fluid, Kiyona Hori was able to perform Paizuri smoothly.</p>
+<p>"Heueut...! Master-nim, how is my haa...♥ Hugging Paizuri?"</p>
+<p>Ah, so it's called Hugging Paizuri. At Kiyona Hori's question, I nodded my head, indicating my pleasure. It truly felt incredibly good. It was almost as if my cock was enveloped by clouds.</p>
+<p>Of course, since it was a cock that had just ejaculated, I didn't feel like I would cum during Paizuri, but this soft and languid pleasure was by no means small.</p>
+<p>After providing such pleasant Paizuri service for a while, Kiyona Hori released the Paizuri. Suddenly, my cock, having been nestled between soft breasts, felt a little regretful to be alone, but I was curious about Kiyona Hori's next service, so I watched her with expectation.</p>
+<p>This time, Kiyona Hori climbed on top of me, taking the cowgirl position, pressing the back tendon part of my cock tightly against her pussy.</p>
+<p>"Before we start the main game with Master-nim...! Haa-euh-heung♥ I'll apply, heueut! Love Lotion for youuuu...!"</p>
+<p>Naturally, rubbing her pussy against my cock couldn't feel bad. Kiyona Hori began to rub the back tendon part of my cock with her pussy, as if applying slippery seaweed.</p>
+<p>"Haa-euh-heueu-eung! Master-nim's cock...! It's hottt♥ Haaht! Heung! Heueut!"</p>
+<p>Even while moaning, she maintained her posture and continued her service, truly like a maid. Of course, she wasn't a real maid, but a PMC mercenary, yet she possessed incredible Mental Power, enough to endure even intense pleasure.</p>
+<p>"Haaang...! Heueut! I've applied all of my aah-haang♥ Love Lotion...♥ Master-nim, heung, may I haa.... Embrace your cock inside, euh-heung! Me?"</p>
+<p>Normally, she would have given in to pleasure and inserted it immediately, but to even ask if she could put it in, Kiyona Hori's evaluation in my mind was rising considerably with this sex.</p>
+<p>Since it's customary to reward a good maid, I nodded my head. And I also wanted to insert it into Kiyona Hori's pussy. With my permission, Kiyona Hori smiled and slowly began the insertion.</p>
+<p>"I'll enjoy... Haa-eueu-eut!!! Master-nim's euh-heung♥ Cock...! Is, heueut! Spreading my insides wide, haaht! Opennnn♥"</p>
+<p>Although it wasn't a narrow and hot pussy like Kiyona Mari's, Kiyona Hori's pussy was a top-grade pussy, its insides squirming and gripping my cock in places.</p>
+<p>This part was curious. Except for their breasts, both sisters looked similar, yet the sensation of their pussies was completely different.</p>
+<p>"Heung...! Master-niiim♥ I'll continue, haaht! My pussy serviceee!"</p>
+<p>Perhaps because Kiyona Hori knew my stamina well, she placed her feet on my pelvis and began to thrust her hips. For an ordinary man, the spot where she placed her feet would be incredibly painful, but because I had ample body stats and even defensive traits, there was no way it would hurt with just one woman on top.</p>
+<p>"Haaang! Haa-aang! Haaht! This, it feels good...! Heung! Master-nim's magnificenttt! Cock...!"</p>
+<p>Kiyona Hori was thrusting her hips quickly and violently, enough to make her breasts bounce wildly. Naturally, the sensual friction between my cock and her pussy grew stronger and stronger, to the point where my hips moved involuntarily.</p>
+<p>Moreover, the more aroused she became, the better her clench, to the extent that my cock was sucked up along with her hips when she lifted them. At this point, her pussy wasn't narrower than Kiyona Mari's, but the clench felt equally intense. It was a vacuum pussy, with a sensation as if it were sucking.</p>
+<p>"Kkeu-eut...! It feels good, Hori...!"</p>
+<p>"Haaht! Me too, heueut! It feels, heung! Gooddddd!!"</p>
+<p>Naturally, the feeling of ejaculation, which had been dormant until the Paizuri, began to surge strongly. Kiyona Hori, who was tightly clenching my cock, also seemed to feel it, and her hip movements began to accelerate even more.</p>
+<p>"Kkeu-eut! I'm cumming, Hori...!"</p>
+<p>"Haa-eueu-heung...! I'm coming too, heueut! I'm cumminggg!"</p>
+<p>Byuurut! Byuurut! Byuuuuurut!!</p>
+<p>Even after ejaculation began and she reached climax, Kiyona Hori continued to thrust her hips. It was as if she intended to sweep up all the semen inside by scraping my cock with her pussy. This is quite amazing, isn't it? Usually, when one climaxes, they just tremble, but she kept thrusting her hips.</p>
+<p>"Eut... Heueu-eueu-eung...♥"</p>
+<p>After my ejaculation finished, Kiyona Hori kept her pussy and my cock completely pressed together, and with her head thrown back, she was only letting out "heueu-eung" moans. She was so completely lost in climax that even my slightest movement would cause her to flinch, triggering small, continuous orgasms.</p>
+<p>Suddenly, I sensed a presence and looked to my side, to see Kiyona Mari standing with her arms crossed, watching her older sister Kiyona Hori, who was in climax.</p>
+<p>"You said we shouldn't wear maid outfits together because they'd get dirty if we had sex in them...! That's unfair! Eonni!"</p>
+<p>Ah, it seemed Kiyona Mari was a little sulky after seeing Kiyona Hori have sex while wearing a maid cap. Kiyona Mari, who had been looking at her older sister with a sulky expression, began to put on a maid outfit.</p>
+<p>"I-I'm not, not doing this service because I like, like Master-nim...!"</p>
+<p>It was Maid Kiyona Mari, approaching me with her tsundere attitude again. She probably meant for me to have sex with her while she was wearing the maid outfit, right?</p>
+<p>Hori Mari B-cut~!</p>
+<p>Ryuta came out too delicate, so it was eliminated hehe.</p>
+<p>Exhilarating Rider Hori~!</p>
+<p>Gojoy-nim requested Chieri eating a chocolate banana, and Shinoe Misano eating yakisoba~!</p>
+<p>Chieri-chan~!</p>
+<p>I couldn't make her hold out a chocolate banana, so I just created it hehe.</p>
+<p>Shinoe Misano~!</p>
+<p>When I typed "yakisoba prompt," yakisoba bread came out, so it was a bit difficult hehe.</p>
+<p>TheDreaming-nim requested Maya Reed in an apartment: 1. Upper body naked 2. Interview in an apartment corridor~!</p>
 <p>1.</p>
-<p>Surprisingly, the carousel roller or carousel didn't appear immediately, so I had to do some prompt farming, hehe.</p>
+<p>When I typed "yoga pose," it didn't work hehe. Today was a day with many sex scenes requiring illustrations, so I ran out of time and couldn't try other attempts~!</p>
 <p>2.</p>
+<p>Why a microphone for a pussy...?</p>

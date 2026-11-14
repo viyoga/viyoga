@@ -5,79 +5,93 @@ weight = 1032
 chapter = 1032
 +++
 
-<p>"Huh? What's this?"</p>
-<p>Leaving Kurayamada Kirie sleeping on my bed, I went Outside to drink water. Then I stepped on Something and slipped slightly. Checking it, I found Dewy Moisture on the floor.</p>
-<p>"Does this building have a cleaning aunt/middle-aged woman? It seems it wasn't wiped properly."</p>
-<p>I muttered and went down to the second floor. This building was good in every way, but having to go down to the second floor to drink food or water was annoying. It was only for a few days, so it wasn't a big Problem, but still.</p>
-<p>I went down the stairs and arrived on the second floor, where I got water from the water purifier right at the Entrance and drank it. Perhaps because I had consumed so much Moisture having sex with Kurayamada Kirie last night, I had to drink about three cups before my Craving was slightly quenched.</p>
-<p>"Huh? Shiyo? You didn't sleep?"</p>
-<p>After drinking water, I went to the desk on the second floor and saw Naruse Shiyo sitting there, looking at her laptop. I had clearly talked with Naruse Shiyo yesterday and gone up to the fourth floor. When I came down after sleeping, if she was still in the same spot, I could only assume she hadn't slept.</p>
-<p>"No. I slept a little. Face down..."</p>
-<p>Slept face down? Still, looking at Naruse Shiyo's Complexion, she didn't show any sign of fatigue. Perhaps because she became a Dragon Person and her Body Stats increased significantly, she didn't seem very tired even after sleeping a little uncomfortably for a day.</p>
-<p>"More importantly, I have an important Report, Teacher-nim."</p>
-<p>"An important Report?"</p>
-<p>"Yes. Contact came from Japan at Dawn..."</p>
-<p>Naruse Shiyo told me about the Contact from Japan. The content was that Taira Gensuke's movements were strange. She said there was a quite high Probability that he would Attack our side.</p>
-<p>"I knew it would come to this, but..."</p>
-<p>After hearing the Explanation from Naruse Shiyo, I shook my Head. I knew someone would try to test me soon after I was appointed to Taira Food distribution, but I didn't think the Opponent would be Taira Gensuke.</p>
-<p>Of course, it wasn't that I hadn't thought of it at all; I considered that he might Attack out of anger because he was a Branch Manager and I became an Affiliate Company Boss, but since he was Ichiro's Son with a meticulous Personality, I thought he would restrain himself, so I evaluated the Possibility as low.</p>
-<p>Seeing his impatient Personality, it seemed he had inherited Taira Camilla's passionate Brazilian Blood more strongly.</p>
-<p>Of course, a more surprising fact than the Attack was that Taira Gensuke was Takakusaki Gengo's Disciple. Did Taira Saburo assign Fujigasaki Rinka to me, just as Taira Ichiro introduced Takakusaki Gengo to Taira Gensuke?</p>
-<p>According to what I heard from Athena Mannerheim, she, who was one of Anyaji's Four Heavenly Kings and an adopted Daughter, didn't know this fact either. As expected, even though they called her an adopted Daughter, they didn't trust Athena Mannerheim at all.</p>
-<p>From the start, she wasn't raised as a real Daughter, but rather for research on Outer Gods and to be absorbed later...</p>
-<p>Next, when I asked Musashi Takuro, who was next to Genbaki, who had finished a simple surgery, Musashi Takuro also said that Takakusaki Gengo had vaguely mentioned having a Disciple, but hadn't specified who it was.</p>
-<p>Anyway, because of this Information, the truth behind the mysterious disappearance of Anyaji Branch personnel was revealed. He had gathered everyone under the qualification of Takakusaki Gengo's Disciple.</p>
-<p>Now that the Possibility of Taira Gensuke Attacking our side has become very high, it was important to find out where Taira Gensuke would actually Attack.</p>
-<p>First, since it's happening in Japan, it won't interfere with the New York side of things. It's closer to being unable to interfere rather than not interfering.</p>
-<p>The fact that I have US Status is also a Secret, and I only revealed my trip to the USA to those I was convinced were on my side, so Taira Gensuke wouldn't know I was in the USA. Since he wouldn't know I was in New York, he would likely carry out his Operation in Japan.</p>
-<p>"Where will Gensuke's side Attack?"</p>
-<p>"Jo Seodang and the Secretary team have narrowed down the Attack Targets to about three places."</p>
-<p>"Three places?"</p>
-<p>Naruse Shiyo Answered my Question. Three places... To narrow it down to three places, my influence is quite considerable.</p>
-<p>"First, we excluded Taira Food distribution and Hatake Investment Company in Neo Tokyo. We also excluded the reserve PMC that Jo Seodang or Athena are in charge of, as it's not known."</p>
-<p>This statement was not wrong. Neo Tokyo was a representative Business that the Taira Group had recently been promoting. It hadn't been long since the new City was opened, and a person affiliated with the Taira Family would stage an armed demonstration in that City? That was absolutely impossible.</p>
-<p>Of course, if they hoped for suicide, they could do it, but there was no such person in the Taira Family, so there seemed no need to worry about being Attacked.</p>
-<p>"And I don't think there's any Probability of the Steel Unit, Chungnang Unit, or Teacher-nim's forces in Foreign Countries being Attacked, as they are not known to the Taira side."</p>
-<p>"Hmm, that's right."</p>
-<p>This statement was also correct. Because if they don't know, they can't Attack.</p>
-<p>"Therefore, the places Taira Gensuke is likely to Attack are Taira Mining's Mithril Mine, East Weapon, and Teacher-nim's Mansion, which are expected to be the Targets."</p>
-<p>"Even the Mansion in Neo Tokyo?"</p>
-<p>Didn't you just say that places located in Neo Tokyo wouldn't be Attack Targets? My Mansion is also in Neo Tokyo, so does that mean it will be an Attack Target?</p>
-<p>"Well, there are no other companies or anything around Teacher-nim's Mansion, so he can Attack without anyone knowing. In Gensuke's mind, it's probably like, 'If I just go in and kill everyone, no one will know I did it, right?'"</p>
-<p>Indeed... Because I built the Mansion on a haunted spot where ghosts are said to appear, there were no other buildings or anything around it. Also, I bought all the surrounding land, so no one could build Anything there.</p>
-<p>"You understand the other two, right?"</p>
-<p>"Mm."</p>
-<p>Mimata Chieri served as my temporary Secretary during the competition for East Weapon, so he would have thought that my forces were connected to it, and Hatake Mining's Mithril Mine is not in Neo Tokyo but in the Akita Countryside, so he would think it's worth Attacking at any time.</p>
-<p>"Among the three, couldn't East Weapon be excluded?"</p>
-<p>"That's right. Among the three places the staff considered, East Weapon has the lowest Probability of being Attacked. Since Taira Gensuke's power Foundation is in South America, his forces in Japan would find it difficult to inflict significant harm on us even if they Attacked East Weapon."</p>
-<p>As expected, the staff also considered what I had thought. So, with two places remaining, how should we defend to be considered to have defended well?</p>
-<p>"So, where do you expect the real Attack Target to be?"</p>
-<p>"There are several Probabilities, but the number of Anyaji remnants is quite large, and although small, Taira Gensuke's forces in Japan will also be present, so I think they will Attack two places simultaneously."</p>
-<p>Since he took all the Fist Technique practitioners from Anyaji's national branches, even if the quality is unknown, the number will be quite large. There would also be forces that originally followed Taira Gensuke, so the Possibility of Attacking two places simultaneously was also understandable.</p>
-<p>"You've set up all the Defense plans, right?"</p>
-<p>"Of course. In fact, the Mansion may seem like a Vulnerability, but it's an impregnable Fortress, so there's no need to reinforce its defensive power much, and we only need to focus our Defense on the Mithril Mine, so the Defense plan was easy to formulate. There are several plans here."</p>
-<p>Naruse Shiyo said, displaying several plans on the wall with a hologram projector.</p>
-<p>Indeed, my mansion was the place with the strongest defense among my forces during peacetime, as it had a system that allowed Linling to directly and actively control various defense structures, combined with Lizhael's Sanctuary, and even Tsukiyo was there.</p>
-<p>And if we are convinced that the Enemy is coming, the Effect of an Ambush will also disappear, so we will be able to respond properly.</p>
-<p>Then, ultimately, the Defense only needed to be focused on the Mithril Mine... Looking at the plans Naruse Shiyo showed, there was one that looked quite Intriguing.</p>
-<p>"Plan number 6 looks good."</p>
-<p>"Right? I also thought Teacher-nim would like Plan number 6. Although the Difficulty is higher compared to other plans that only involve Defense, if successful, it can achieve significant Effects."</p>
-<p>Plan number 6 was an Operation that could be carried out thanks to the Administration employee from the Anyaji Branch who had escaped from Taira Gensuke.</p>
-<p>Because we learned about Taira Gensuke's building from the Administration employee, it was an Operation to infiltrate that building, hack the Opponent's System, and change their strategy.</p>
-<p>This was more to my liking than passively waiting for an Attack. Since we could change the Opponent's strategy and lead The Situation more favorably for our side, I decided to choose this Plan number 6.</p>
-<p>"Tell them we've decided on Plan number 6."</p>
-<p>"Yes. I'll connect right away."</p>
-<p>At my Words, Naruse Shiyo nodded her Head and began to touch her phone. She was probably going to inform Jo Seodang that we had chosen the Operation.</p>
-<p>When I first heard about the Attack from Japan, it was quite a headache, but now, I was actually looking forward to Taira Gensuke's Attack.</p>
-<p>Gojoy-nim requested Arisu looking drunk in a Hotel Room and sensually gazing at Ryuta's Muscular Figure~!</p>
-<p>Drunk Arisu~!</p>
-<p>The request was for a drunk Arisu leading to a Hotel, but since leading to a Hotel didn't work well and adding 'drunk' kept her holding a cup of Alcohol, I changed it to an indoor scene haha.</p>
-<p>Sensual Gaze~!</p>
-<p>I tried to create the feeling of Licking at Ryuta's Muscles haha.</p>
-<p>TheDreaming-nim requested Matsunaga Yuzuki with Upper Body Exposure + Pantyhose, Breast gathering, and Zero Two~!</p>
-<p>Breast gathering~!</p>
-<p>Zero Two~!</p>
-<p>Chomisaemeonji-nim requested Liz enjoying Teatime and Liz doing Athletics~!</p>
-<p>Teatime~!</p>
-<p>Athleticism~!</p>
-<p>Kkiyot~!</p>
+<p>"All the Vampires in this vicinity have been exterminated!"</p>
+<p>Allen Matthews, the New York Branch Manager of the SPF, a man in thick Knight Armor, raised his massive War Hammer and shouted.</p>
+<p>"Waaaaaah!!"</p>
+<p>Despite his old Age, Allen Matthews' New York Branch subordinates, who saw him leading the Vanguard, crushing Vampires with physical Abilities surpassing humans after undergoing various Body Modification procedures by the SPF, gazed at Allen Matthews with respectful Eyes and let out a Shout.</p>
+<p>Especially Squire Maynard Rafael, who had recently risen to prominence in the New York SPF, was a Vampire Hunter who revered Allen Matthews almost more than a Father. Maynard Rafael, who had lost his family to Vampires in childhood and was taken in by the SPF to walk the path of a Vampire Hunter, deeply admired Allen Matthews, who insisted that no Vampire should be left alive.</p>
+<p>Perhaps because of this, he had the nickname Squire, meaning Allen Matthews' retainer, as he fought in Knight attire.</p>
+<p>Last year, the Vampire Hunter unit, Jack Henderson's Party/Group, dispatched to Japan, went missing (presumed dead by the New York SPF), and the New York SPF's strength was significantly reduced, but with the rise of the prospect Maynard Rafael, he was now filling the void left by Jack Henderson's team quite well.</p>
+<p>"Are you going to look for the Fragment of Omniscience now, Branch Manager-nim?"</p>
+<p>"...."</p>
+<p>To Maynard Rafael's Question, Allen Matthews did not Answer, but raised his Hand. Then, he lifted his War Hammer and pointed to one side.</p>
+<p>"There's something over there. A non-human Existence is watching us."</p>
+<p>Allen Matthews, who hated Vampires and other non-human Existences more than anyone, had undergone magical Modification to his Eyes to discern non-human beings, so he knew at a glance that the one watching them now was not human.</p>
+<p>"I want to deal with it myself, but if I do, time will be delayed, and there's a Possibility of losing the Fragment of Omniscience. That non-human, Rafael, I'll leave to you."</p>
+<p>The Fragment of Omniscience was quite an important item for the SPF. To prevent Vampires, who called it the Book of Completion, from obtaining it, they believed it was best for the SPF to manage the Fragment of Omniscience. Also, since the SPF had Magicians, all Vampire Hunters operating in and around New York had gathered in New York. Besides the Vampires just dealt with, others would be Tracking the Fragment of Omniscience elsewhere, so there was no time to delay here.</p>
+<p>"Understood. I will deal with it and follow immediately."</p>
+<p>Maynard Rafael nodded his Head with a trustworthy Appearance, as if to say, 'Just leave it to me.' Allen Matthews, as if reassured, patted Maynard Rafael's Shoulder, then moved with his elite unit towards the direction the Fragment of Omniscience was heading, to join the battle for its acquisition.</p>
+<p>"Attention! The Goal is everything living Inside the House over there. Understood?"</p>
+<p>"Understood!"</p>
+<p>Maynard Rafael pointed to the House Allen Matthews had mentioned and shouted to the remaining SPF Vampire Hunters. Even if there was only one non-human and the rest were humans, they all had to be eliminated.</p>
+<p>Because infection might occur. From a Vampire's perspective, even if they appeared human, they could have become Vampires or Spawns controlled by Vampires, so the SPF usually made it a basic Rule to thoroughly examine humans close to Vampires.</p>
+<p>However, this was the New York Branch, controlled by hardliners. Ignoring the Rule to examine, the Branch's basic Action was to eliminate all humans in the same space as Vampires.</p>
+<p>The Vampire Hunters ran towards the front and Backdoor of the House, giving Hand Signals to each other.</p>
+<p>Their plan was to encircle and Attack from front and back, but that Method failed. The Vampire Hunters who were passing the Side of the House to go to the Backdoor were attacked as the Wall burst open.</p>
+<p>Kwaaaah!</p>
+<p>Perhaps not expecting a Hand to suddenly burst from the Wall, the Vampire Hunter was grabbed by the Neck like Prey caught by a Predator.</p>
+<p>"Sweep team! Fire at the spot where the Wall burst open!"</p>
+<p>At Maynard Rafael's Command, the sweep team showed a slightly flustered Expression.</p>
+<p>"But then Billy...!"</p>
+<p>The sweep team's Role was to deal with the large number of Spawns created by Vampires with concentrated machine gun fire, so if they fired, their captured fellow Vampire Hunter would also be riddled with Bullets.</p>
+<p>Even the hardline New York SPF knew the value of their colleagues, so they hesitated.</p>
+<p>"Do it if I tell you to!"</p>
+<p>When Maynard Rafael shouted, the sweep team squeezed their Eyes shut and began firing.</p>
+<p>Tututututung!!</p>
+<p>Flame erupted from the machine gun Muzzle, grinding the House itself to pieces. Naturally, the captured fellow Vampire Hunter became minced meat, dripping Blood, and it was thought that the non-human Existence who had grabbed the colleague was also either dead or close to a dying state.</p>
+<p>"I'm curious what it is. Bring it out!"</p>
+<p>All the Vampires had been dealt with, so it wouldn't be a Vampire. If it were a werewolf, it would have rushed out, unable to control its temper when the SPF unit approached. So Maynard Rafael was curious about what kind of Existence was hidden in this ruined House.</p>
+<p>"You bastards! I almost died! At least introduce yourselves before fighting!!"</p>
+<p>As the Vampire Hunters approached the House on Maynard Rafael's Command, someone burst out from within, along with a Shout and the Remains of the House exploding.</p>
+<p>"Japanese?!"</p>
+<p>Since the unknown Existence shouted in Japanese, not English, Maynard Rafael tilted his Head in puzzlement, then soon understood, assuming it was a Japanese faction dispatched to obtain a fragment of Omniscience.</p>
+<p>The unknown Existence, who burst out like a Bullet, swung a peculiar Weapon that was neither a Spear nor a Sword at the nearest Vampire Hunter.</p>
+<p>"Kwaaaah!"</p>
+<p>"Wings?!"</p>
+<p>Maynard Rafael wasn't particularly concerned about the Vampire Hunter, who was cut horizontally, spilling Internal Organs, and Screaming in Pleasurable Ache; he was more concerned about the unknown Existence flapping its Wings.</p>
+<p>The Existence hovering in the night Sky, flapping its Wings, was a humanoid Woman with Horns and Wings. Because of the Wings and Horns, she didn't initially catch the Eye, but she possessed a remarkably beautiful Appearance. However, her Gaze was shining intensely, as if enraged by the sudden machine gun Attack.</p>
+<p>"A Demon?"</p>
+<p>To Maynard Rafael, the Existence with both Horns and Wings similar to Bat Wings could only be a Demon at this moment.</p>
+<p>"A Demon?! How rude!"</p>
+<p>As if hearing Maynard Rafael's Words, the enraged Demon Woman shouted. Then, flying at incredible speed, she swept past the Vampire Hunter aiming a machine gun and severed his Neck.</p>
+<p>The severed Neck rolled away, and the Expression on it held no Emotion of surprise, as if he hadn't even realized he had died.</p>
+<p>"D-Damn it! Attack! Everyone, Attack!"</p>
+<p>At Maynard Rafael's Words, everyone fired at the Demon Woman, but it was difficult to hit her as she traversed the empty space at incredible speed.</p>
+<p>"Use the Sure-Hit Sorcery and silver bombs!"</p>
+<p>Maynard Rafael shouted, and he too, as he had commanded his subordinates, chanted the Sure-Hit spell with his Mouth while throwing a silver bomb into the empty space from his Embrace.</p>
+<p>Peong! Peong! Peong!</p>
+<p>The silver bombs thrown by Maynard Rafael and his subordinates exploded, scattering silver powder across the Sky. The glittering silver powder, reflected by the crescent moon, was as beautiful as the Milky Way.</p>
+<p>A silver bomb was a bomb that turned silver, a Panacea effective against unholy beings, into powder and spread it over a wide area with an explosion.</p>
+<p>"What?! Are you creating smoke for me to hide in?"</p>
+<p>However, the Demon Woman, speaking incomprehensible Japanese, instead hid her Body in the explosion's smoke at the center of where the silver bomb had burst. Then, she suddenly dived, grabbed one person, and soared into the Sky.</p>
+<p>"Kwaaaah!"</p>
+<p>The Vampire Hunter who soared into the Sky with the Demon Woman fell onto his comrade, becoming a bloody pulp. Naturally, the comrade crushed beneath him also died from compression. The one crushed by the fallen Vampire Hunter was from the sweep team, holding a machine gun.</p>
+<p>"Fire!"</p>
+<p>Maynard Rafael, having finished chanting all the Sure-Hit Sorcery, shouted, then he too aimed his Gun at the Sky and began firing.</p>
+<p>Tatatatang!</p>
+<p>When Vampires transformed into Blood fog or were difficult to hit with movement techniques, what Vampire Hunters used was precisely the Sure-Hit Sorcery.</p>
+<p>It was also the Sorcery most commonly learned by intermediate Vampire Hunters who could use basic Sorcery.</p>
+<p>Of course, despite its name 'Sure-Hit,' it wasn't a spell that guaranteed a hit in any Situation, but it significantly increased accuracy and even granted a slight Tracking Ability, so he thought it would be effective this time too.</p>
+<p>As the Vampire Hunters created a barrage of fire, Bullets began to hit the Demon Woman flying in the Sky. Of course, her speed made the accuracy terrible, but it was encouraging that she was still being hit a few times.</p>
+<p>Judging by her freely moving through the silver bomb's smoke, she didn't seem to suffer significant harm from silver, but she couldn't ignore the physical force of silver Bullets.</p>
+<p>"It stings!"</p>
+<p>The Demon Woman, who shouted in Japanese once more, fiercely swung a Weapon that was neither a Sword nor a Spear.</p>
+<p>-Shiyo-style Dragon Claw Flow: Hundred-Mile Dragon Flash.</p>
+<p>At that Moment, a white light erupted from the Weapon the Demon Woman wielded.</p>
+<p>Naruse Shiyo B-cut~!</p>
+<p>Honestly, to someone who doesn't know she's a Dragon-human, she really does look like a Demon hehehe.</p>
+<p>MidNightSKY-nim requested Waterbomb attire Shii Lisa~!</p>
+<p>Shii~!</p>
+<p>Lisa-ttang~!</p>
+<p>RefundNeverPossible-nim requested Crop Top + Pantyhose Lisa, Teacher Gajeong (Lisa's model) made from the original illustration.</p>
+<p>Lisa~!</p>
+<p>Teacher Gajeong~!</p>
+<p>Strangely, illustrations with only Pantyhose don't seem to come out ㄷㄷㄷ</p>
+<p>TheDreaming-nim requested Herta Vogel 1. Appearance stuck in the Wall 2. Breast being touched~!</p>
+<p>1.</p>
+<p>Since the Background is an Art Museum (prompted as Art Museum), her Hair Dyeing and paint appear on the Wall hehe.</p>
+<p>2.</p>
+<p>Chomisaemeonji-nim requested 1. Liz taking off her Top 2. Liz taking off her Bottoms~!</p>
+<p>1.</p>
+<p>2.</p>
+<p>Due to a Pantyhose Pussy error, I'm only uploading two images each~!</p>

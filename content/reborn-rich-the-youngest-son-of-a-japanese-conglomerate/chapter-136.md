@@ -5,72 +5,80 @@ weight = 136
 chapter = 136
 +++
 
-<p>"So, what's the reason for summoning us like this?"</p>
-<p>Sawayanagi Tobe, built like a sumo wrestler and with a menacing face, asked with a slightly disgruntled tone. Of the ten kids Ryuta Sawayanagi had taken in, six were gathered, excluding the four who couldn't make it. All six were on break after their recent missions, so they were a bit annoyed by this gathering.</p>
-<p>There was a rule that they shouldn't be summoned carelessly during their rest, so everyone had been relaxing comfortably, but they had all rushed here at Azuma Sawayanagi's sudden call.</p>
-<p>"We earned quite a bit this time! Azuma-chan! What are you going to do with it?"</p>
-<p>The Kiyona Hori and Kiyona Mari sisters, who remembered their names before becoming test subjects and didn't use the Sawayanagi surname, asked with puffed-up cheeks.</p>
-<p>The sisters both wore gothic lolita-style dresses and looked similar, so they were often mistaken for twins, but the one with the bigger chest was the older sister, Hori, and the one with the smaller chest was Mari. After missions, they both worked part-time at a gothic lolita cafe in Tokyo to earn money, and they had taken a day off today because of Azuma's call.</p>
-<p>The still-youthful and cute Seari, and the vice president Sawayanagi Sinya, who looked ordinary like other men his age, were also holding their positions in the office, and the other four on missions naturally couldn't respond to the summons. In such cases, the four who couldn't attend had to accept the decisions of the remaining six.</p>
-<p>"This summons is related to 'Black Tech'."</p>
-<p>At Azuma Sawayanagi's calm words, everyone's face hardened. Ever since Gomisawa Renya tried to forcibly take the test subject children four years ago, it had been decided that as many people as possible should attend meetings related to Black Tech.</p>
-<p>"Sato Tojima-ssi passed the debt to Gomisawa Renya."</p>
-<p>"...."</p>
-<p>Everyone was silent. It was because of the memory of being abused as test subjects in their childhood and Gomisawa Renya's attempted kidnapping four years ago that had brought back that trauma.</p>
-<p>"How much is the total debt?"</p>
-<p>"130 million yen...."</p>
-<p>At Sawayanagi Tobe's question, Sawayanagi Sinya answered. Sawayanagi Tobe nodded at Sawayanagi Azuma's answer.</p>
-<p>"The original debt was 250 million yen, so we've paid off quite a bit...."</p>
-<p>Ryuta Sawayanagi had died, and they had paid off about 120 million yen in six years, but now it was impossible. Yesterday, they received a notice that the debt had been transferred to Gomisawa Renya and that they had to pay it off within three days, so now they only had two days left.</p>
-<p>"We received a notice to pay off the debt within two days. Otherwise, they'll seize the office, the warehouse, and everything in the warehouse."</p>
-<p>"Isn't Gomisawa Renya going too far? We were once colleagues, how can he treat us like this?"</p>
-<p>Kiyona Hori said angrily. Most of the people gathered here knew that Gomisawa Renya had never considered the remaining Seryu members as colleagues in the first place. But there was no way out. How could they gather 130 million in just two days?</p>
-<p>"Were you still expecting that? Gomisawa Renya became our enemy when he tried to turn us back into test subjects four years ago."</p>
-<p>"M-my bad."</p>
-<p>Unlike her younger sister Kiyona Mari, Kiyona Hori wasn't a psychic even though she was a test subject, so she apologized to those gathered after hearing Sawayanagi Azuma's answer. It was because she might have been perceived as saying something easy because she wasn't a psychic.</p>
-<p>"I know what you meant, so you don't have to apologize."</p>
-<p>The office became silent. There was no way to pay off the debt right away, and if they couldn't come up with a solution, they would lose both the office and the warehouse, so it was truly a dilemma.</p>
-<p>"There's a way to hand over the office and warehouse to Gomisawa Renya and just have everyone work as individual agents."</p>
-<p>"Is that the only way...?"</p>
-<p>Sawayanagi Tobe answered in a heavy voice to Sawayanagi Sinya's suggestion. If Sawayanagi Azuma hadn't had a strange precognitive dream, they would have handed over the office and warehouse to Gomisawa Renya as Sawayanagi Sinya suggested, bankrupted Seryu Military Company, and everyone would have worked as individual agents, gathering again a few years later to start a company.</p>
-<p>But the future had changed because of the bizarre precognitive dream Sawayanagi Azuma had. Everyone was only looking at Sawayanagi Azuma's mouth, but Sawayanagi Azuma couldn't say anything for a while.</p>
-<p>"Actually.... I had a precognitive dream. That this situation will be resolved...."</p>
-<p>"Ah, really?"</p>
-<p>"Then we don't have to worry."</p>
-<p>Everyone's mood lightened at Sawayanagi Azuma's words. Among the Seryu, Sawayanagi Azuma's precognition was absolute. Everyone had been saved by Sawayanagi Azuma's precognition at least once or twice, so they all trusted Sawayanagi Azuma's precognition.</p>
-<p>Knock knock knock!</p>
-<p>Just when everyone was relieved, they heard a knock on the office door. Gomisawa Renya, a sturdy man with slicked-back hair and a mustache, opened the door and entered.</p>
-<p>"Long time no see...! I was really sick of this shabby office. Seeing it after so long, it's quite nostalgic."</p>
-<p>"There are still two days left to pay off the debt, aren't there? What brings you here?"</p>
-<p>As Gomisawa Renya entered and sat down in an empty seat as he pleased, Sawayanagi Azuma asked in a cold voice. There was even a murderous intent in Sawayanagi Azuma's voice, but Gomisawa Renya simply shrugged his shoulders, not caring about the murderous intent.</p>
-<p>"What could that mean? It seems the public officials made a mistake. It's not three days from now, but three days including yesterday, so if you can't pay by tomorrow, the warehouse and this dirty office will be mine."</p>
-<p>Gomisawa Renya wore a sly expression even though everyone in the office was giving him cold stares.</p>
-<p>"Who are the people outside the office? There seem to be at least thirty of them?"</p>
-<p>Sawayanagi Seari, who had been closing her eyes, asked Gomisawa Renya. As it was Sawayanagi Seari who was specialized in sensing presences, it would be accurate that there were a large number of people outside.</p>
-<p>"Seari is still cute as ever. You're right. About thirty-three of our guys came. We came to protect our assets too. I thought you guys, who can't possibly pay off the debt, might run away in the night with the items in the warehouse, right? We're standing guard to prevent that."</p>
-<p>"That's insulting."</p>
-<p>"Insulting? I just know the psychology of desperate people well."</p>
-<p>In fact, Sawayanagi Sinya's earlier suggestion to work as individual agents was similar to what Gomisawa Renya had just said. Gomisawa Renya smiled faintly at Sawayanagi Azuma's appearance of only refuting with the word "insulting." And he took out a document from his bag.</p>
-<p>"Let's not make it complicated and go simple. If you just sign here, the hard work will be over."</p>
-<p>The document Gomisawa Renya presented was about Black Tech acquiring Seryu Military Company.</p>
-<p>"The acquisition amount is exactly the amount of the debt, 130 million yen. Seryu Military Company personnel cannot resign for 5 years after the acquisition, and must participate in joint operations with Black Tech agents three times a year...."</p>
-<p>Sawayanagi Azuma read out the contents of the document so that all Seryu members could hear.</p>
-<p>"Don't just read that, there's something most important, right? Like the 34th line...."</p>
-<p>"Black Tech cannot perform medical or experimental procedures on Seryu Military Company personnel, except for minimal health checkups...?"</p>
-<p>"Isn't the reason you guys hate us because of the experiments? I'll even include a ban on experiments, so let's go comfortably."</p>
-<p>The Seryu members were dumbfounded when Black Tech said it as if they were making a big concession by not doing human experiments. They were so dumbfounded that they couldn't even speak because they were saying they wouldn't do something that was obvious.</p>
-<p>"Please leave for now. I'll discuss it with my colleagues."</p>
-<p>"I can't do that. Just talk about it here and sign the documents. If I go out empty-handed, my friends outside might get excited?"</p>
-<p>"Are you threatening us?"</p>
-<p>"Maybe...."</p>
-<p>"You shouldn't forget that you're alone in our office."</p>
-<p>"Try to do something if you want."</p>
-<p>Gomisawa Renya smiled, showing his teeth, at Sawayanagi Azuma's threatening remarks. Gomisawa Renya wasn't a psychic, but he was a body modifier who had applied the research results of the laboratory as much as possible.</p>
-<p>After several elaborate modifications, his body itself became something that could be called a psychic power.</p>
-<p>Gomisawa Renya was confident that he could win even if everyone in the Seryu office attacked him at once.</p>
-<p>The Seryu members also fell into a slight state of tension when Gomisawa Renya revealed his murderous intent and smiled, remembering that only five members without missions had barely won during the attempted kidnapping of Seryu four years ago.</p>
-<p>It was at that moment. Noise began to be heard from outside.</p>
-<p>The sounds of fighting, like *ppak! peok! euagh!*, began to be heard. Everyone in the office was bewildered. They were embarrassed to hear the sounds of fighting because there was no one who would dare to pick a fight with Black Tech in this area.</p>
-<p>Just as Gomisawa Renya stood up to check what was going on, the noise outside stopped. And then, the sound of footsteps *ttubeok ttubeok* was heard, and the door opened. A handsome man with a sturdy build and a height of around 180, opened the door and entered. Behind him followed a beautiful woman with orange hair.</p>
-<p>"I came to acquire Seryu Military Company."</p>
-<p>The man said with a refreshing expression amidst everyone's gaze.</p>
+<p>,Welcome."</p>
+<p>When I returned to the inn, Hamahata Konoka-ssi greeted me with a bow. I also slightly bowed my head and opened my mouth.</p>
+<p>,Can I use the private open-air bath right away?"</p>
+<p>,Yes. It's connected to the underground hot spring, so the water is always warm."</p>
+<p>Hmm, before my possession, there was an article about a Japanese hot spring where they only changed the water twice a year, resulting in over 3000 times the amount of E. coli. It seemed better to open and close the pipes connected to the hot spring instead. Before coming, I looked into hot springs a bit more and saw information that the same thing had happened in this world, leading to strengthened quarantine standards. That's a relief. I wouldn't want to soak in E. coli soup.</p>
+<p>,Ah, and."</p>
+<p>,Yes?"</p>
+<p>,I'll pay more, so please bring about three servings of food. I'm a big eater."</p>
+<p>,Ah, I understand. Then... the meal cost for three days..."</p>
+<p>Hamahata Konoka-ssi was folding her fingers and calculating the additional meal costs for three days, as if she had never encountered a situation like mine before. Kinda cute, isn't she? Calculating by hand instead of using a smartphone, she seemed innocent and cute. But cute is cute, and I wanted to soak in a hot bath as soon as possible.</p>
+<p>,I'll just pay for two extra people's accommodation."</p>
+<p>,Huh? Ah, no. I can't do that..."</p>
+<p>,Then, we will add a special dish for three people, customer."</p>
+<p>Hamahata Konoka-ssi's attempt to refuse the additional accommodation fee for two people was thwarted when the owner grandma appeared and added a special dish as a condition. I smiled slyly and took out money from my wallet. The owner grandma bowed at a right angle and said, Thank you, customer~! She was a grandma who was good at business.</p>
+<p>,Of course, I have to pay for additional services. Can you show me how to use the private open-air bath?"</p>
+<p>,Ah! Please follow me, customer!"</p>
+<p>,Konoka, teach the customer well. And if they want, rub their back too."</p>
+<p>I went to my room and immediately opened the outer sliding door to go to the open-air bath. The stone-built bath had water pooled from the continuous rain. When Hamahata Konoka-ssi pressed a button, the water began to drain out. When all the pooled rainwater was drained, the floor constructed with stone and cement was visible.</p>
+<p>,"I cleaned it thoroughly before the customer arrived. It's been pooling because it rained on the day you arrived, but it should be clean."</p>
+<p>,"It's an open-air bath, so rain can't be helped."</p>
+<p>When I said it was okay, Hamahata Konoka-ssi, who slightly bowed her head, turned the faucet on the right side of the tub, and hot spring water gushed out from a fairly wide pipe.</p>
+<p>,"If you open it here, water will come out. If it's too hot, you can use the cold water from the faucet on the opposite side."</p>
+<p>,"Thank you. I'm going to wash now, so you can go."</p>
+<p>,"Ah, ah... Then, I'll see you later."</p>
+<p>Even though I was wearing a raincoat, the rain kept seeping in, and the heat and humidity from my body were trapped inside the raincoat, making it sticky. I wanted to wash quickly. Hamahata Konoka-ssi greeted me and left the room, and I took off my clothes while the hot spring water was filling the open-air bath. My underwear was fine, but the short sleeves and the bottom of my pants were completely wet. It couldn't be helped since it was raining quite a bit.</p>
+<p>I hung up my clothes and went into the hot spring. The hot spring water had filled up to some extent while I was taking off and hanging up my clothes.</p>
+<p>,Euheo~!"</p>
+<p>The temperature was just right, nice and warm. It smelled slightly of sulfur, so it seemed to be a hot spring containing sulfur. I can't remember what sulfur hot springs are good for.</p>
+<p>While it was raining, the rain was wetting me above my chest, and the warm hot spring water was preventing my body from getting cold below. As I was enjoying the hot spring bath while listening to the sound of rain and looking at the sea, the sliding door to my room opened and someone came in.</p>
+<p>,Excuse me."</p>
+<p>Judging from the voice, it was Hamahata Konoka-ssi. What's going on? When I turned around, Hamahata Konoka-ssi, who was wearing something like a shower towel, was standing there fidgeting with a flushed face. She was holding something like a washbasin in her hand.</p>
+<p>,"I, I'll rub your back."</p>
+<p>,"Ah, ah..."</p>
+<p>It seemed that what the inn owner grandma said earlier wasn't just a passing remark. Well, I was thinking of getting out soon anyway, so it would be nice to have my back rubbed.</p>
+<p>,"Then, please take care of me."</p>
+<p>,"Y-yes..."</p>
+<p>Hamahata Konoka-ssi was making bubbles by putting body wash on a shower towel soaked in warm hot spring water and gently rubbing my back. Hmm... She wasn't very strong, so it wasn't that refreshing, but I could feel that she was working hard, so I quietly accepted her rubbing my back.</p>
+<p>I had clearly just had a romp with Hangari Muneo, but hearing Hamahata Konoka-ssi's breath, which was getting rough from rubbing my back weakly like foreplay, my big dick started to raise its head without any sense. Fortunately, I was covering it with a towel, but it was sticking up almost like an Indian tent.</p>
+<p>,"I'm done. Ah!"</p>
+<p>,"Ah, I'm sorry. It felt so good to have you rub my back that I..."</p>
+<p>,"Ah, I, I've rubbed it all, so I'll, I'll go now!"</p>
+<p>Hamahata Konoka-ssi, whose face turned bright red like a ripe persimmon, ran away in a flurry. I had only seen women drooling over my dick lately, so seeing such an innocent reaction was new. I washed the rest of my body except for my back, rinsed it with water, and came into the room.</p>
+<p>As I was lying on the tatami mat and looking at the internet on my smartphone, Hamahata Konoka-ssi, whose face was still red, brought in the food, as it was already dinner time. As expected, she said she would add a special menu for three people, and as she said, a steamed large snow crab and a dish with snow crab came out as special dishes. All of them were quite plentiful and mostly delicious-looking food.</p>
+<p>Hamahata Konoka-ssi was sitting demurely next to me, as if she was going to serve me dinner like she did at lunchtime.</p>
+<p>,"The food looks really delicious."</p>
+<p>,"Yes, my grandma is a good cook."</p>
+<p>She smiles shyly only when I praise the food. I also smiled and picked up my chopsticks. As it was an island, all the seafood was fresh. I was already hungry, so I ate dinner deliciously. The sashimi was fresh and delicious, and the snow crab also had its unique sweet and salty taste.</p>
+<p>,"You're really eating well."</p>
+<p>,"I eat quite a bit. This body consumes a lot of calories."</p>
+<p>I smiled and answered Hamahata Konoka-ssi, who was looking at me in amazement, impressed by how well I was eating. As I was eating, I suddenly thought of the Kantou University people who were diligently investigating at the shrine. It's dinner time, so I wonder if they've returned by now?</p>
+<p>,"By the way, have the Kantou University people returned to the inn?"</p>
+<p>,"Yes. Everyone has returned and is having dinner."</p>
+<p>Hmm, so they came down to eat. As I was eating, something I was curious about came to mind. Professor Honmura Kouga said earlier that women on this island return to their original surname when their husbands die, but it was a bit strange that Hamahata Konoka-ssi and her grandma had the same surname.</p>
+<p>,"Earlier, the professor from Kantou University said that Choohten Island has a custom of women changing their surname when their husbands die, but why do the inn owner grandma and Hamahata-ssi have the same surname?"</p>
+<p>,"Ah, that's... there's another custom on this island. Children whose parents have died are supposed to take the surname of their guardian. My parents passed away when I was young, so I've been using my grandma's surname since I was little."</p>
+<p>Ah, I shouldn't have asked. The atmosphere suddenly became chilly. A quick apology was the solution in this case. I politely apologized to Hamahata Konoka-ssi.</p>
+<p>,"I'm sorry for asking unnecessary questions."</p>
+<p>,"No~! They passed away when I was so young that I don't even remember them well."</p>
+<p>Then that's a relief. I didn't say anything more and finished the remaining rice. Hamahata Konoka-ssi kindly smiled and placed a cup of tea in front of me.</p>
+<p>,"Thank you. By the way, I'm planning to take a walk after dinner, so can I borrow an umbrella?"</p>
+<p>,"Ah, if you're having tea, I'll bring it to you right away!"</p>
+<p>Watching Hamahata Konoka-ssi running out of the room, I took a sip of tea. Just as I had almost finished the tea, Hamahata Konoka-ssi brought an umbrella and I received it. It was a cute polka dot umbrella.</p>
+<p>,"I'm going to take a walk for a while."</p>
+<p>,"Yes, I'll clean up the table in the meantime. Have a good trip."</p>
+<p>I left the room with Hamahata Konoka-ssi seeing me off. When I put on my shoes in the shoe rack and left the guest room building, Kimura Atsuhiro was dragging the wrist of the shrine maiden Hijitani Saori, trying to go somewhere.</p>
+<p>Listening to the previous lines, it seemed that Kimura Atsuhiro said, Let's go over there, and Hijitani Saori seemed to hesitate, saying, But... What, are they trying to have a secret rendezvous? The two stopped slightly and looked embarrassed when they saw me coming out.</p>
+<p>,"Have you had dinner?"</p>
+<p>,"Ah, no..."</p>
+<p>,"Yes..."</p>
+<p>I asked about dinner as casually as possible and said, Then, goodbye... and passed by them. Kimura Atsuhiro hadn't eaten dinner yet, and Hijitani Saori had. There was no need to get involved in other people's love affairs. Actually, the bigger reason was that I didn't care what they did.</p>
+<p>I wasn't planning to go far for a walk. I just wanted to take a walk around the inn. If you leave the guest room building, there are two buildings right in front of you: the restaurant building where cooking is done and the building next to it where the Hamahata family stays.</p>
+<p>I went straight to the left. I suddenly wondered if it was possible to invade the public bath from the outside. I was too flustered at the murder scene to look around properly. I immediately moved the body to the basement, and after that, we gathered outside the women's bath to talk, so I didn't remember well.</p>
+<p>It definitely felt like a hot spring from a certain point. It was surrounded by a high bamboo fence. The side closer to the entrance must be the women's bath. The women's bath was quiet, as if no one was using it. The bamboo wall was definitely raised tightly enough to be impossible to invade.</p>
+<p>,"It would be difficult to invade from the outside."</p>
+<p>I muttered while looking at the bamboo wall. Soon, I passed by a place where I could hear the sound of water, which was probably the men's bath. It seemed like someone was in the men's bath. You'll get a stomach ache if you take a bath right after dinner, but whoever it is, they'll probably have diarrhea later.</p>
+<p>Before I knew it, I reached a place where the road curved and turned to the right. Now, only the sound of rain could be heard, and the sound of water had disappeared. As I walked a little further, I saw a tombstone and someone standing blankly.</p>
+<p>Inn blueprint... I made it roughly with Paint haha</p>

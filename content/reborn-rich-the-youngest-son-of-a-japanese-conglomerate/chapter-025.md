@@ -5,68 +5,47 @@ weight = 25
 chapter = 25
 +++
 
-<p>Name: Jin Yong-tae/Taira Ryuta/■■■ Lv01</p>
-<p>Strength: 2, Agility: 3, Stamina: 2, Resistance: 2, Recovery: 2, Nerves: 3, Appearance: 10</p>
-<p>Mental</p>
-<p>Intelligence: 2, Knowledge: 2, Focus: 2, Willpower: 4, Creativity: 2, Charm: 4, Judgment: 3</p>
-<p>Other</p>
-<p>Luck: 5</p>
-<p>Shinkai Yatsude (Deep Sea Eight Hands) (Martial Arts Lv2)</p>
-<p>-</p>
-<p>The stats were based on level 1, with the average person being between 1 and 2. Still, it's a relief that I don't have any 1s. Not bad initial stats.</p>
-<p>With an appearance stat of 10, that's incredibly high. Considering that a stat of 10 is the maximum limit an ordinary person with no inherent talent can reach, I've become the ultimate hottie among ordinary people. Well, there might be some top celebrities who exceed 10, though.</p>
-<p>However, it's a shame that my charm is low compared to my appearance. Usually, appearance and charm are proportional, but it seems my charm can't keep up with my looks.</p>
-<p>For reference, appearance in the physical category and knowledge in the mental category couldn't be raised with level-up points. Appearance had to be improved with elixirs or surgery, and knowledge could only be increased through learning. In the case of knowledge, if you had cyberware installed, you could easily increase it through downloads.</p>
-<p>And what's this Shinkai Yatsude in the skills section? When I focused on Shinkai Yatsude, a semi-transparent explanation window popped up about Shinkai Yatsude.</p>
-<p>◆Shinkai Yatsude (Deep Sea Eight Hands) [Mythic Martial Art]</p>
-<p>Sato Gen , a fisherman from Tateyama, boarded a deep-sea fishing vessel and, while intoxicated on drugs, had a dream in the middle of the Pacific Ocean.</p>
-<p>He saw an octopus god sitting on a throne in a city made of stone in the deep sea, too deep for anyone to reach. Startled, Sato Gen asked, "Who is the Great One?" The octopus god simply said, "Amazing," and pierced Sato Gen's forehead with its tentacle. At that moment, Sato Gen realized several truths.</p>
-<p>Awakening from his dream, Sato Gen caused an uncontrollable ruckus, claiming he had learned martial arts from the deep-sea octopus god and declaring he was no longer a fisherman and would not work.</p>
-<p>Dozens of fellow fishermen could not tolerate Sato Gen's sudden declaration in the middle of the ocean that he would not work and attempted to lynch him.</p>
-<p>However, the dozens of fishermen were instead brutally defeated by one man. Because his fighting appearance was like a demon, Sato Gen was called "Oni (Demon)," and upon reaching land, he opened a martial arts hall and completely established the martial art he learned from the octopus god as Shinkai Yatsude.</p>
-<p>Shinkai Yatsude has been passed down only through direct lineage. Sato Gen transmitted the martial art to Soda Haruto, Soda Haruto to Fujigasaki Rinka, and Fujigasaki Rinka to Taira Ryuta.</p>
-<p>.... Isn't this completely Lovecraftian? Come to think of it, Jin Yong-tae was bullied for being a Zainichi Korean, and he learned martial arts to overcome that. But what kind of scary martial art did he learn? But if he had just learned normal-grade karate, I would have cursed him.</p>
-<p>Still, at this level, I don't need to worry about close combat. If it's mythic-grade, the performance is guaranteed. Jin Yong-tae was a lucky pull. If you get this in a random mode in a megacorp's youngest son game, you're completely blessed.</p>
-<p>More importantly, I need to take the Cheonhwang Pill now. After shouting "Status," when I focused on the item I was holding, a semi-transparent window appeared.</p>
-<p>◆Cheonhwang Pill [Legendary Elixir]</p>
-<p>An elixir containing the power of Guardian King Dhritarashtra. Randomly increases physical stats by 1-7. Grants the Regeneration trait. Breaks the limits of physical stats. +1</p>
-<p>Definitely. I put the Cheonhwang Pill in my mouth. And I lost consciousness.</p>
-<p>###</p>
-<p>I opened my eyes and it was 10 AM. I must have been unconscious for almost a dozen hours. I'm hungry, and I should get up soon.</p>
-<p>But when I stood up, something felt strange. My field of vision felt much higher? Did I get taller because of the elixir? The game only changes stats, but here, it seems the stats also change my external appearance. I slept in a gown yesterday, but now when I try to put on clothes to go out, they don't fit?</p>
-<p>Fortunately, the waist fit, but the thighs of the jeans felt like they were about to burst, and they came up way above my ankles. The sweatshirt had become a complete muscle tee. Am I going to have my clothes explode like in a manga if I put a little force? That would be fun, though.</p>
-<p>How much did my stats increase to make this happen?</p>
-<p>Physical</p>
-<p>Strength: 8, Agility: 6, Stamina: 9, Resistance: 6, Recovery: 8, Nerves: 10, Appearance: 15</p>
-<p>.</p>
-<p>.</p>
-<p>.</p>
-<p>Trait</p>
-<p>Regeneration</p>
-<p>Strength increased by 6, Agility by 3, Stamina by 7, Resistance by 4, Recovery by 5, Nerves by 7, and Appearance by 5. It increases from 1 to 7, so this is lucky. The smallest increase is 3, after all. I feel good. Plus, I even got the Regeneration I was originally hoping for.</p>
-<p>◆Regeneration [Growth Trait]</p>
-<p>The ability to repair injuries. Given enough time, it can repair even missing body parts.</p>
-<p>It's a short description, but I still felt good. It also applies when training my body, so it's the perfect trait for physical stats.</p>
-<p>Let's go out and buy some clothes. I was already in the late 170s cm, which isn't short in Japan, but now I seem to be at least in the mid-to-late 180s cm. What should I tell my mom? Should I say the samgyetang was effective? Speaking of samgyetang, I want some again.</p>
-<p>I searched for a nearby clothing store on my phone and bought a tracksuit set from a casual sports brand. Nike clothes, of course. So comfortable. When I paid and asked them to throw away the clothes I was wearing, the part-timer blushed while looking at my face.</p>
-<p>Is this what an Appearance stat of 15 feels like? I never felt this before the possession. I was just average back then. I felt good, but if I keep getting this much attention, it'll be difficult to acquire items, so I bought and wore a hat and mask. I'll enjoy it next time. This Korean trip isn't for enjoyment.</p>
-<p>I have to go quite far this time. The place I need to go is Hwacheon, Gangwon Province. I had to take the subway to Yongsan Station, then the ITX to Chuncheon Station, and then a bus to Hwacheon. There's a secret research facility of a certain company in Hwacheon, and someone hid an artificial elixir made as a prototype from the research facility around there. I arrived safely in the vicinity. After wandering around the mountain for a while, I dug under a tree that grew in an X shape, as I remembered, and saw a box.</p>
-<p>Good. Now, if I'm careful of the patrols that come around occasionally....</p>
-<p>"Who's there?"</p>
-<p>I'm caught! Still, it's a relief that I grabbed the box with the elixir. I hear a gunshot and get hit in the side. Keuk! The pain isn't that bad, probably because the Yeouiju's damage reduction is working. The two guards were surprised to see me running away energetically even after being shot, and they paused for a moment before running after me. There were many places to hide in the mountains.</p>
-<p>But I chose something other than hiding. If I keep running away, my back will become a beehive.</p>
-<p>Shinkai Yatsude (Deep Sea Eight Hands) Shokushu Jin (Tentacle Blade)</p>
-<p>I make a hand blade with a gathered, extended fingertip and hide behind a tree, then strike the neck of the guard passing by. The guard couldn't withstand the strength enhanced by the Cheonhwang Pill, and his Adam's apple caves in, killing him instantly. I grab his neck and charge towards the remaining guard.</p>
-<p>"Don't come closer!"</p>
-<p>Bang! Bang! Bang!</p>
-<p>I block the bullets with the dead guard's body and stab the other guard's forehead again with Shokushu Jin. It felt like I was naturally using martial arts I had practiced for years, my hands moving on their own without me consciously thinking.</p>
-<p>I break the bones of his forehead with my fingertips and shock his brain. The guard foams at the mouth and collapses. I catch the falling guard and strip off his clothes. I had to change clothes because I was shot in the side. I can't walk around wearing bloody clothes.</p>
-<p>While I was taking off my clothes, I couldn't help but vomit next to me.</p>
-<p>I killed someone. Two people, in fact. After a bout of vomiting, I changed into the guard's shirt and pants.</p>
-<p>"It was self-defense."</p>
-<p>I just exercised my right to self-defense against a gun. I hypnotized myself. I tore the clothes I was wearing into shreds with my enhanced strength. And I scattered them little by little as I came down the mountain. The bullet gradually came out of the wound and fell onto the snowy field as the gunshot wound slowly healed due to the Regeneration trait.</p>
-<p>I immediately took a bus to Seoul and opened the wooden box. It was a green liquid in a small glass bottle.</p>
-<p>◆Mental Enhancer Prototype [Artificial Elixir]</p>
-<p>Increases Willpower by 2-4 and Focus by 1-3.</p>
-<p>The increase was insignificant compared to the Cheonhwang Pill, but elixirs that increase mental stats were rare, so it was a valuable item. I opened the lid and drank it straight away. It wasn't made with taste in mind because it was a prototype, so it didn't taste good. Will increasing my willpower help me overcome this guilt of killing someone?</p>
-<p>I felt the elixir's energy boiling in my stomach and forced myself to sleep, feeling the bus's regular vibrations at the same time.</p>
+<p>The Taira Group Human Resources Development Institute, where I would be going, was Taira Group's training center. Usually, it was a place where they conducted training for new employees, newly appointed managers and general managers, and new executives, as well as various educational programs and overseas training programs.</p>
+<p>The Taira Group Human Resources Development Institute's main building was located in Yotsukaido City, Chiba Prefecture, between Yotsukaido Golf Club and Yotsukaido General Park, with huge buildings equipped with a thousand guest rooms, 3 restaurants, 2 auditoriums, and over 50 conference rooms.</p>
+<p>There were small branch institutes of the Human Resources Development Institute in the provinces, but most employee training was done at the main institute. The branch institutes were used for training on local businesses when employees were transferred from the central office to the provinces or went on long-term business trips to the provinces.</p>
+<p>In other words, the branch institutes were where they taught you about the local company if you got demoted or had to go on a long-term business trip.</p>
+<p>Since I naturally had the surname Taira, I ended up working at the main Human Resources Development Institute in Yotsukaido City. One welcome thing was that before I started looking for a house, I asked Taira Yukiko, the director of the Human Resources Development Institute and my new stepmother, and she said that a room was prepared for me in the Human Resources Development Institute, so I didn't have to look for a house.</p>
+<p>I packed only simple luggage such as clothes to wear and toiletries and headed to the train station. Yotsukaido City, which has been called a transportation hub since ancient times and whose name itself means "four-way street," was about 45 minutes from Tokyo, so it could be considered part of the Tokyo metropolitan area.</p>
+<p>But I didn't have the confidence to commute back and forth for an hour and a half every day, so I was going to look for a house. Taira Yukiko said that a room was prepared for me in the company's dormitory, which was a 0-minute commute, so I thought, "Sweet!~" and decided to buy a car with the money I would have used to find a house.</p>
+<p>The Edogawa Ward where I lived was on the eastern outskirts of Tokyo, so it was closer to Yotsukaido City than downtown Tokyo. It would take about 35 minutes by train to reach the station. I took the train and sent a LINE message.</p>
+<p>Taira Ryuta: Mother, I just got on the train.</p>
+<p>Taira Yukiko: Okay. I'll send someone to meet you on time.</p>
+<p>Even after getting off at Yotsukaido Station, the distance to the Human Resources Development Institute was quite far, so I had to take a bus or something. Taira Yukiko knew this and contacted me to tell me to contact her when I got on the train. She said she would send a car, so I didn't refuse and immediately sent a LINE message.</p>
+<p>Today wasn't my first day of work, it was tomorrow, so I dressed comfortably, but I hope I don't get scolded for this?</p>
+<p>I decided to solve the problem I had been worrying about during the 35-minute commute. It was about choosing the characteristic I got with the levels I raised with Matoi Honami and Hanako at the driving school. For reference, I distributed 1 point to stamina and 1 point to charm. I distributed stamina simply to bring the current stat to 10 since it was 9, and I put points into charm to make seduction easier, even if only a little, since I level up anyway when I have sex.</p>
+<p>This was an excellent stat for level 5. If I had swept all the hidden pieces while in Korea, or if I hadn't given up Seoul's hidden pieces to Han Yu-gyeong, it would have been higher, but Han Yu-gyeong is my woman now, so I gave it to her so she wouldn't retire with a bad ending, so I didn't regret it that much. And the hidden pieces in Korea aren't going anywhere, so I'll just go on vacation later and get them.</p>
+<p>Please select a characteristic.</p>
+<p>①Elbow Tattoo [Explosion] ②Kung Fu Master ③Acquire Random Item (Characteristic Selection X)</p>
+<p>This is what came up. For reference, I hadn't used the Yeouiju's ability yet. Number 1, Elbow Tattoo [Explosion], was a great characteristic that increased the speed of all actions performed with the arms and hands by 1.2 times during combat, which was very good for me as a martial artist. Number 2, Kung Fu Master, was also a great characteristic for me, who uses kung fu. Number 3 was too random, so I passed. Sometimes, people uploaded screenshots of getting mythical items by choosing that option, but there were thousands of times more people who got garbage items after being tempted by that, so it was an option I shouldn't even look at in the first place.</p>
+<p>My dilemma was that two characteristics that were perfect for me came up, and I had to decide whether to use the Yeouiju's ability to reroll one more time. The Yeouiju's reroll would upgrade the three selected grades, but there was also a high probability that it would change them to useless characteristics like Pastry Chef.</p>
+<p>Okay, gotta go for it even if I fail! I have to take advantage of the given opportunity.</p>
+<p>The [Potential Enhancement] option of the item [Yeouiju] can change the characteristic that can be selected by leveling up to a random characteristic of a higher grade. Would you like to change it?</p>
+<p>When I said I would change it, the options from Elbow Tattoo to Kung Fu Master and Item Acquisition disappeared, and new options began to appear.</p>
+<p>Please select a characteristic.</p>
+<p>①Master of Dance ②Praise of Modification ③Abyssal Affinity</p>
+<p>Hmm... Master of Dance was the highest grade of Master in the skill correction characteristics of Novice -&gt; Expert -&gt; Master -&gt; Saint, but the useless Master of Dance came out.</p>
+<p>In the past, there was a trend of getting both Master of Dance and Master of Swordsmanship to maximize the efficiency of Sword Dance martial arts, but the two Master abilities only applied to Sword Dance, so it became a very minor build when the trend ended. Sword Dance itself also had its drawbacks.</p>
+<p>The second, Praise of Modification, was one of the best characteristics for body modification. It increased the efficiency of both biological and mechanical modifications, and its versatility boosted the efficiency by 20-30 percent, so it was one of the essential characteristics of MegaCorp's youngest son or its predecessor, TMC.</p>
+<p>But modification was great in the game, but this was reality. I had no intention of replacing my body with machines or changing it with strange surgeries. And if I chose Praise of Modification, I couldn't choose Praise of Purity, which had the ability to increase all physical limits by +1 and increase the efficiency of physical stats. It was a characteristic that you had to get when playing without modification.</p>
+<p>The last one, Abyssal Affinity, was a characteristic I was seeing for the first time, so it seemed like it was a characteristic that could be chosen because the abyss was created in the special stats. There were quite a few characteristics that appeared in this way, linked to stats or requiring certain characteristics. Or there were characteristics that didn't appear if you took certain characteristics, so you had to know well and take the characteristics.</p>
+<p>Should I check what it is?</p>
+<p>◆Abyssal Affinity [Legacy Characteristic]</p>
+<p>If you take one step closer to the abyss, the abyss also takes one step closer.</p>
+<p>The efficiency of the special stat abyss is increased, and the maximum value of the abyss becomes 25. The debuff effect of the abyss is strengthened.</p>
+<p>Usually, affinity characteristics are Epic-grade, but Abyssal Affinity was a Legacy-grade characteristic, two grades higher. In addition, it increased the limit of the abyss stat by plus 5 and increased efficiency. The disadvantage was that the debuff you get when the abyss stat is higher than willpower is stronger... but willpower is much higher than the abyss right now, so the disadvantage didn't matter.</p>
+<p>I don't know much about the abyss stat yet, so I don't know how much value a maximum increase of 5 has. If it was a maximum increase of 5 for physical or mental stats, it would be really OP, but what's the point of the abyss maximum being 25 when the willpower maximum is only 22? You can only raise it to 21 if you don't want to get a debuff.</p>
+<p>Still, Abyssal Affinity is the only one worth taking after all. The Kung Fu Master or Elbow Tattoo from before the reroll would have been better, but I already rerolled, so there's nothing I can do. I chose Abyssal Affinity.</p>
+<p>The moment I chose Abyssal Affinity, the surroundings were shrouded in darkness, and I felt something indescribable staring at me from within that darkness, but soon the darkness disappeared as if washed away. The time I was immersed in that darkness was less than a second, but it was definitely not a delusion, it was something that happened to me. I'm getting more and more uneasy...? If just choosing a characteristic like this gives me such a warning, I must make sure that the abyss is never higher than willpower.</p>
+<p>I soon arrived at Yotsukaido Station, picked up my bag, and got off. When I went out of the station and looked around, a woman standing in front of a luxury sedan on the road waved her hand at me.</p>
+<p>When I got closer, it was Taira Yukiko. I thought she was calling a subordinate, but she came herself...? Does she not have work because she's the director of the Human Resources Development Institute? Anyway, I felt it when she was wearing the funeral Kimono, but she had a great figure. She was wearing a typical career woman's outfit now, and her tight H-line skirt and her bursting chest made me not know where to look.</p>
+<p>"Hello, Mother."</p>
+<p>Since she was the head of the company I would be working for, I bowed politely. Taira Yukiko smiled at me, as if she liked my polite appearance.</p>
+<p>"Yes, did you have any inconveniences coming here?"</p>
+<p>"It's just taking the train."</p>
+<p>"Get in next to me."</p>
+<p>Taira Yukiko was sitting in the driver's seat, as if she had come alone without a driver. I put my bag in the trunk and sat in the passenger seat. I subtly glanced at Taira Yukiko's plump thighs. It felt like they would sink in softly if I touched them with my hand. Hmm... let's restrain myself. I unknowingly raised my hand and pretended to fix my hair. Of course, it wasn't my problem, it was Taira Yukiko's excessively sexy thighs that were the problem.</p>

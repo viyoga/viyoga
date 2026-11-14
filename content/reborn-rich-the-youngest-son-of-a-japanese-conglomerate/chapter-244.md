@@ -5,98 +5,75 @@ weight = 244
 chapter = 244
 +++
 
-<p>"Ugh...! My head is killing me, what the hell was in that booze?"</p>
-<p>Mimata Chieri-sunbae, who was sleeping next to me, woke up, rubbing her temples, and asked me. It seemed like she was surprised that just one small bottle could do this to her...!</p>
-<p>"An elixir."</p>
-<p>I answered, putting on the glasses from the ruins. Yesterday, Mimata Chieri's strength stat was 5(+5), but now it's 7(+5). Oh...! She still got the maximum elixir effect. Good thing.</p>
-<p>"Huh? An elixir?"</p>
-<p>"Your strength probably increased. Check it out once your hangover wears off."</p>
-<p>Since Mimata Chieri knew about the existence of elixirs, she seemed surprised when I said the alcohol she drank yesterday was an elixir. The value of an elixir isn't small by any means, so she seemed surprised and touched that I gave it to her so casually.</p>
-<p>"Why did you give it to me instead of drinking it yourself, Ryuta-kun?"</p>
-<p>"It's just a souvenir from this trip. Like I said yesterday, it's good alcohol for women."</p>
-<p>Well, to be exact, it's not just good for women, but for anyone with strength below a certain level, but I didn't want to bother explaining that it has no effect if your strength is above a certain number, so I just said it was good alcohol for women.</p>
-<p>"Ah, I see.... Thank you, Ryuta-kun!"</p>
-<p>"I already showered, so Sunbae-nim should go back to your room, shower, and come to the dining hall."</p>
-<p>The butler of the mansion had announced yesterday that breakfast was at 7:30, so all I had to do was go out on time.</p>
-<p>It was still before 7 AM, so if Mimata Chieri went back to her room and showered, she would probably make it to breakfast just in time. I woke up much earlier, showered, and was looking at the news online.</p>
-<p>I only did it twice yesterday (?), so I was full of energy. That's why I woke up with a start at the crack of dawn.</p>
-<p>There wasn't anything special in the Japanese news, but in the Korean news, an article about the culprit of the BS Group building terror incident being caught caught my eye.</p>
-<p>The BS Group heirs were fighting and bickering, and it turned into an accident, but they're calling it a terror incident? They're definitely cutting off the tail.</p>
-<p>If they really wanted to find the culprit, the eldest or second son of the BS Group Chairman would have to be arrested, so they probably just blamed it on a terrorist group or paid someone desperate for money to be the culprit.</p>
-<p>Still, nominally, the culprit of the BS Group building terror incident has been caught, so Han Yu-gyeong-ssi can go back to her university dorm. She's been so frustrated being at the main house except when she has to go out for work, I can practically see her being super excited right now.</p>
-<p>I'm also working with Amsang, so should I send her a KakaoTalk message?</p>
-<p>Jin Yong-tae: I saw in the news that the culprit of the BS Group building terror incident was caught, are you going back to your university dorm now?</p>
-<p>Han Yu-gyeong: Yeah! I was so annoyed by the excessive interference, so it's a good thing. The article came out yesterday, so I'm going home now haha</p>
-<p>Jin Yong-tae: That's good. There's that business we agreed to do together. Amsang wants to participate, what do you want to do?</p>
-<p>Han Yu-gyeong: You got all the data and stuff, Ryuta-gun. All I can do is give you money, but if we only need to give up 50 percent of the shares between the two of us.... Do whatever you want, Ryuta-gun.</p>
-<p>I was planning to use the various data I stole from the BS Group Pyongyang Research Lab and the technology I obtained from Energy-Link Industrial Company as business items, so most of the data I obtained was correct.</p>
-<p>However, Han Yu-gyeong also had Park Mun-seok, the president of Base Technology, BS Group's secret research lab, under her control this time, so she could use the technology coming from that side.</p>
-<p>Moreover, there will be several events where Han Yu-gyeong can obtain technology in the future, so collaborating with Han Yu-gyeong was by no means a loss for me.</p>
-<p>Han Yu-gyeong could also receive massive funding from me, so it wasn't a loss for her either, and it was a good win-win relationship for each other.</p>
-<p>Jin Yong-tae: I ended up acquiring a company called Energy-Link Industrial Company this time. Our company has to acquire it, so please hurry up with the preparations.</p>
-<p>Han Yu-gyeong: Okay, I understand! But I feel good when I hear the words 'our' company 😍</p>
-<p>Jin Yong-tae: Hehe, you like the word 'our' that much, our Yu-gyeong-ah?</p>
-<p>Han Yu-gyeong: Yeah! I like it so much ❤️</p>
-<p>After finishing the business talk, I spent some time being lovey-dovey with Han Yu-gyeong, and then it was time for breakfast, so I went down to the dining hall.</p>
-<p>Mimata Chieri-sunbae, who had finished showering and getting ready, was already sitting there, and when I sat across from Mimata Chieri, Arisu, wearing a light green pajama, came down with half-open eyes, yawning, and sat next to me with her hair disheveled.</p>
-<p>She was holding a small teddy bear in her hand for some reason, and her indoor slippers were cute bunny slippers. Arisu is super cute for the first time in a while. She usually has a sophisticated and chic feel because she's a model.</p>
-<p>"Did you sleep well, Ryuta?"</p>
-<p>"Yeah, what about you, Arisu?"</p>
-<p>"I came home late yesterday.... I'm going to eat breakfast and sleep a little more."</p>
-<p>Ah, she came home really late yesterday. That's why I only felt Nae Fitzgerald's presence.</p>
-<p>"Nae-ssi, aren't you having breakfast?"</p>
-<p>"She said she skips breakfast."</p>
-<p>The butler answered my question. Nae Fitzgerald, she must be too embarrassed to face me because of what happened last night, so she's not eating breakfast at all.</p>
-<p>Breakfast was simple pancakes, crispy fried bacon, and salad. Since I said I was a big eater yesterday, my plate had more pancakes and bacon than others.</p>
-<p>I cut the pancake and put it in my mouth, and it was quite delicious. I think it was the most delicious pancake I've ever eaten? As expected, it's different because it's not made with commercially available pancake mix from the supermarket, but with a recipe from a historic noble family.</p>
-<p>The bacon was just bacon. It's crispy and delicious.</p>
-<p>When I finished eating and got up, Arisu hugged me tightly with an apologetic expression and kissed me on the cheek.</p>
-<p>"I'm sorry, Ryuta. I'm too tired.... Let's hang out together in the afternoon."</p>
-<p>"No, you seemed busy yesterday, so you should rest if you're tired."</p>
-<p>Arisu kept apologizing to me and went back to her room upstairs, and Mimata Chieri was still suffering from a hangover, frowning and rubbing her temples.</p>
-<p>"Sunbae-nim, are you okay?"</p>
-<p>"Ugh.... I have a bad hangover. My head hurts a lot."</p>
-<p>I can't take Mimata Chieri-sunbae with me like this? Her condition looked too bad because of the hangover.</p>
-<p>"Sunbae-nim, please rest in the morning too."</p>
-<p>"I can't, I have a lot to do for Ryuta-kun, who can't speak English...."</p>
-<p>Even though she said she couldn't, she was saying, "Keueut!" while enduring the headache, so I don't know if she'll be able to recover in the afternoon. It seems like the side effects are also very strong because it's an elixir.</p>
-<p>"I'm going to visit Amsang like yesterday, so I don't need an interpreter, so please rest now."</p>
-<p>"Ugh.... Okay."</p>
-<p>After sending Mimata Chieri back to her room and getting ready to go out, the butler approached me.</p>
-<p>"As I said yesterday, I will prepare the best steak for lunch, so please return by lunchtime."</p>
-<p>"Of course. I want to eat the best steak too."</p>
-<p>After finishing the conversation with the butler, I rode my motorcycle and headed to Amsang. The best steak, I'm quite looking forward to it?</p>
-<p>###</p>
-<p>"Ryuta-nim! You're here?"</p>
-<p>Eve greeted me with her usual bright smile. I said hello and went into the Amsang New York branch and sat in the seat Eve guided me to. As soon as I sat down, I got straight to the point.</p>
-<p>"Did you contact Energy-Link Industrial Company about buying the company?"</p>
-<p>"Yes, they said they understand for now, but they want to have an interview with you to talk about what purpose you're buying the company for."</p>
-<p>Do they have a deep affection for the company? It's too inactive to be that.... I wonder why they're doing this kind of interview. Usually, people would be more interested in how much money they're going to get.</p>
-<p>"Then we have to go find them?"</p>
-<p>"They said they would come to us. They said they can't give us the address."</p>
-<p>Hmm, even stranger. Of course, it's not the person who made the Iron Wolf, but it was quite eerie to hear that the president of the company that made the Iron Wolf that killed people is coming.</p>
-<p>"So we decided to meet in Tokyo in two weeks!"</p>
-<p>I can't stay in the US forever, so if it doesn't fit my travel schedule, I'll have to meet them in Tokyo.</p>
-<p>"We have no choice but to talk it out there."</p>
-<p>"I'll help you too!"</p>
-<p>If Eve is going to help me, do I have to meet her inside the Amsang Tokyo branch? Eve is a hologram, so I can't see her outside.</p>
-<p>"And what are you going to do with the shares of the company we agreed to co-own?"</p>
-<p>"I'm actually just interested in the AI of the Iron Puppy I brought yesterday, so you don't have to give me a lot of shares. I'll just take about.... 10 percent."</p>
-<p>I was thinking about 30 percent, but 10 percent was less than I thought. Well, if Amsang has a lot of shares, I can get more investment, but I have enough money, so it's better for Amsang to have fewer shares. If I want to run the company freely.</p>
-<p>"Then the story is over.... Ah, I want to buy one piece of information."</p>
-<p>"Yes, if I can give it to you, I'll give it to you for free. As a celebration of becoming business partners ♥"</p>
-<p>"Did Kurotsukido's combat unit that came to catch Otagi-ssi come in? And what unit is it?"</p>
-<p>Eve was silent for a moment at my question.</p>
-<p>"It's not accurate, but I know that Kurotsukido's execution unit, the Muyeongdae, came."</p>
-<p>They were quite formidable. Can Otagi Yuka really beat the Muyeongdae? If she uses all of her vampire abilities, she might be able to put up a fight, but the Muyeongdae probably has a manual for dealing with vampires too.</p>
-<p>It's not a bad thing for me. It means that Dang So-hwa and Yang Seol-hui are that much safer.</p>
-<p>"Okay. I'll be going now."</p>
-<p>"Yes, please stop by the city branch on your next schedule~!"</p>
-<p>Eve smiled and waved her hand as if she knew I was going to LA. I went through the secret passage and left the Amsang building. Not much time has passed yet.</p>
-<p>Then.... I should go back to the Brooklyn Navy Yard to get items.</p>
-<p>----</p>
-<p>Unused pajamas</p>
-<p>Barefoot Arisu.</p>
-<p>Pajama Arisu who looks like she's about to go out right now because her eyes are so bright</p>
-<p>Arisu who is starting to get sleepy now</p>
-<p>Arisu who liked it but a fucking kitten ruined everything.</p>
+<p>"It was a good deal. Now you can focus on the research you want."</p>
+<p>I shook hands with Liam Taylor and also with his niece, Vivian Taylor, the future Chairman of Mother Mass. Hmm, as expected of a woman, her hand is soft. As I was shaking her hand, Vivian Taylor looked at me and spoke.</p>
+<p>"Taira-ssi, are you in charge of something at the Taira Group?"</p>
+<p>"I'm just a regular employee. I made my money through stock investments."</p>
+<p>I continued to shake hands with Vivian Taylor, enjoying the soft touch of her hand as we talked. Vivian Taylor seemed a bit surprised that a mere employee had made so much money through stock investments, but she soon wore an understanding expression. It was probably the expression that said, 'Since he's a Taira-ssi, he must have received a lot of capital from his parents or Taira Danjo, the Chairman.'</p>
+<p>Well, that's not entirely wrong. I did receive 50 million yen several times as allowance or mission completion money.</p>
+<p>"Now that I'm a partner with equity, I'll contact you often."</p>
+<p>"That sounds great. Please do contact me."</p>
+<p>I gave my final greetings and left the cafe room with Mimata Chieri. When I contacted Arisu, she said she was just sitting in the regular seating area of the hotel cafe, drinking tea.</p>
+<p>"Ryuta~! Did the deal go well?"</p>
+<p>Arisu asked, waving her hand. I smiled and nodded. It wasn't completely satisfactory, but I exchanged money and equity under reasonable conditions.</p>
+<p>"Let's go to Fujigasaki Rinka-nim's mansion quickly!"</p>
+<p>Hanasaki Sayaka finished her black coffee in the cup without it even being hot, and then stood up. Since it was Fujigasaki Rinka's house, which had hardly ever been revealed in the media, she seemed very excited.</p>
+<p>Arisu, who had been leisurely drinking her coffee, seemed a bit displeased with her friend's haste, but when she saw Hanasaki Sayaka's sparkling eyes, she couldn't resist and chuckled, placing her coffee on the table and getting up.</p>
+<p>"Alright, let's go!"</p>
+<p>When the two of them stood up, Kiyohira, who had been drinking tropical juice, had no choice but to stand up as well. We got back into the car Kiyohira had rented and headed to the upscale residential area on Malibu Beach.</p>
+<p>Before I knew it, we had arrived at Fujigasaki Rinka's mansion. There were several armed guards and domestic workers at the mansion. The mansion was a high-altitude house on a cliff overlooking Malibu Beach, where the horizon was visible. The interior and exterior also had the feeling of a mansion where a Hollywood actor would live.</p>
+<p>When we were in middle and high school, she was just a gym instructor-like older sister, but now she's being called the GOAT of the fighting world and has a mansion with a Malibu ocean view, so it felt a bit unfamiliar. I've changed a lot too, having been possessed and now having the surname Taira and owning several businesses. It seemed like everything changes over time.</p>
+<p>Hanasaki Sayaka was looking around Fujigasaki Rinka's house with an almost tearful, moved expression.</p>
+<p>The manager seemed used to this kind of reaction and left Hanasaki Sayaka behind to guide us to our room. Still, because I was Fujigasaki Rinka's only disciple, they gave me a room with a direct view of the blue sea of Malibu.</p>
+<p>I took out the statue of the Daughter of the Abyss from the bag I was carrying. I need to check from time to time in case the elixir has formed on her chest.</p>
+<p>(99.9968/100)</p>
+<p>Hmm.... The number has gone up a bit. Looking at it, I think I can roughly calculate it.... Since it's a 100-year cooldown, 1 is 1 year, and if I divide 1 by 365.... It seemed like the elixir would come out of the statue's chest roughly before dinner tomorrow.</p>
+<p>This is a bit troublesome.... After checking, it turned out that the time the elixir would come out was around the time Kazuhiro's soccer game, to which we were invited, would be in full swing.</p>
+<p>I have to suck on the nipple of a goddess statue in the middle of watching a soccer game.... There will be a lot of spectators, won't I be seen as a pervert?</p>
+<p>I thought about how I could suck on the statue's nipple without being misunderstood, but I couldn't come up with any ideas at all. Should I just pretend to have a sudden stomachache and take it to the bathroom and then suck on the nipple?</p>
+<p>It just came to me while I was thinking, but it was a surprisingly good method. I wouldn't be disturbed by the surrounding spectators or the situation, and I could comfortably suck on the statue's nipple without anyone around. It's a bit unsettling that the place is on top of a toilet in the bathroom, though.</p>
+<p>It was funny how I was worrying about how to suck on the statue's nipple, but with a whopping stat of 8, I could put up with this much worry. In terms of leveling up, it's a stat that requires leveling up four times.</p>
+<p>I roughly decided to pretend to have a stomachache and suck on the nipple of the statue in the bathroom, and then I lay down on the soft bed. Come to think of it, that incident happened in the United States around this time.</p>
+<p>That incident that I often thought about, where a psychic was revealed to the public, causing quite a bit of damage to civilians, but I couldn't remember exactly what the incident was.</p>
+<p>When I was writing down the list of people to recruit, such as the youngest son of Megacorp or the hidden piece of TMC, in the early stages of possession, I didn't remember that incident well, so I didn't record it, but I remembered that it was around this time.</p>
+<p>While I was racking my brain trying to figure out when 'that incident' would happen, I heard a sound and a voice from outside the door.</p>
+<p>"Hey, Ryuta! Come out for lunch."</p>
+<p>I heard Kiyohira's voice from outside the door, so I stopped worrying about the memory that wouldn't come to me no matter how hard I racked my brain and got up from my seat. If I just stay still, I'll remember it someday.</p>
+<p>"What's for lunch today?"</p>
+<p>I opened the door and asked Kiyohira.</p>
+<p>"How would I know that? The manager here just told me to come, so I'm just telling you."</p>
+<p>Kiyohira scolded me and walked ahead. I didn't even eat the in-flight meal because I was sleeping on the plane, so I'm hungry. I also ambled along, following Kiyohira. I wanted to run quickly, but I didn't know the location of the dining room, so I had no choice but to follow Kiyohira.</p>
+<p>"How's your training these days?"</p>
+<p>"I'm feeling some limitations. I'm sure that with ordinary martial arts schools, this is just the limit, and even if I ask Rinka-nim to teach me, she says that Shinkaiyatsude is a one-person transmission, so it's not possible...."</p>
+<p>Kiyohira seemed to be feeling a limit. Kiyohira always wanted to fight in the openweight class like Fujigasaki Rinka, but he probably thought that he couldn't challenge the openweight class, which is full of monsters beyond humans, because he wasn't even a champion in his current weight class.</p>
+<p>"Do you know about Amsang?"</p>
+<p>"Amsang?"</p>
+<p>Looking at the guy's appearance as he asked me back, it seemed like Kiyohira didn't know about Amsang.</p>
+<p>What can I say, it's just like the name, Amsang (暗商), dark merchants. If you check this app, they sometimes sell martial arts books. I'll recommend it so you can sign up, and keep an eye on the app from time to time. Good martial arts books might appear.</p>
+<p>I thought a lot about whether to give Kiyohira the Bagua Zhang I got in Korea, but in the end, I decided to give it to Mimata Chieri, who is my hands and feet, so I told Kiyohira about the Amsang app so he could choose the martial arts book he wanted himself.</p>
+<p>"There was such an app?"</p>
+<p>"Yeah, martial arts books don't come up often, but they do come up from time to time, so check it out. If it's a martial arts book that comes up on Amsang, it means it has a basic level of quality."</p>
+<p>I manipulated the Amsang app and sent a recommendation code to Kiyohira. If you're a regular member or a plus member, there are quite a few restrictions on recommendations, but as a diamond-level member, I could still make recommendations relatively freely. But that doesn't mean I could make recommendations indiscriminately.</p>
+<p>"Thanks, Ryuta. You're the only one for me."</p>
+<p>Kiyohira said, looking at me with a moved expression as he installed the Amsang app.</p>
+<p>"Promise me you won't buy drugs or anything weird with the Amsang app."</p>
+<p>"Of course. You know I hate that kind of thing."</p>
+<p>The Amsang app also sold drugs and poisons, so I warned Kiyohira. We talked about Amsang as we walked, and before I knew it, we had arrived at the dining room.</p>
+<p>Since it's a mansion, I had to walk quite a bit from my room to get here. This is going to be a bit annoying?</p>
+<p>A fairly lavish meal was set on the large marble table. There was lobster butter grill almost the size of my calf, and the meal was mainly seafood such as shellfish and grilled white fish.</p>
+<p>"Enjoy your meal."</p>
+<p>As the manager bowed slightly and left the dining room, we began to eat.</p>
+<p>Arisu, who could be called a noble young lady, was enjoying her meal moderately, saying "Eum~," and Mimata Chieri, who had a hobby of gourmet tours since she was an assassin, was enjoying her meal with a happy expression, and Hanasaki Sayaka seemed to be feeling a different kind of emotion than taste, saying, "This is the food from Rinka-nim's dining room!"</p>
+<p>Kiyohira was just looking at his phone, barely eating his food, because of the Amsang I had taught him. I stopped paying attention to others and picked up a large lobster claw and dipped it in garlic butter sauce.</p>
+<p>As expected, it was very delicious because it was big. Whether they hired a pretty expensive chef or not, the other food besides the lobster was also quite delicious.</p>
+<p>I don't know if Fujigasaki Rinka heard about my appetite or if they just always serve a lot, but the amount was quite large enough to satisfy me.</p>
+<p>After the meal, the table was cleared and dessert was served. It was a refreshing lemon sherbet, and it had a taste that neatly cleansed my mouth.</p>
+<p>"We've finished lunch, what should we do now?"</p>
+<p>"Ryuta."</p>
+<p>Kiyohira spoke to me with a serious expression in response to my question to everyone. His expression was so serious that everyone in the room looked at him with curious faces, wondering what was going on.</p>
+<p>"Yeah, Kiyohira. Is there something you want to do?"</p>
+<p>"Can you spar with me?"</p>
+<p>Hmm, suddenly asking to fight. Kiyohira and I often competed when Kiyohira had a dream of becoming a fighter and was in the early stages of his fighting training, but after Kiyohira reached a certain level, he didn't spar with me.</p>
+<p>From Kiyohira's point of view, he probably thought that he, who was aiming to become a pro, shouldn't fight with an amateur like me. At the time, Taira Ryuta before the possession also neglected training because he was worried about the future, so he wasn't helpful to Kiyohira.</p>
+<p>But since I destroyed the barrier set up by the pseudo-religion with my fist in Aokigahara, where I met Aoki after a long time, Kiyohira has felt a sense of rivalry towards me.</p>
+<p>Of course, I knew that Kiyohira was feeling that emotion, but it seemed like he finally made up his mind today.</p>

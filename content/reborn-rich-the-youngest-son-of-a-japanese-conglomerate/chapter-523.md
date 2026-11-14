@@ -5,63 +5,73 @@ weight = 523
 chapter = 523
 +++
 
-<p>-Daigo Toyotaka-ssi, a director of the Daigo Educational Foundation, was found dead in a traffic accident. Police say a long time had passed since the accident....</p>
-<p>I had the news on while getting ready for work, and Daigo Toyotaka's news came on. They must have killed him off because they thought he'd cause trouble again if they left him alive. Power is ruthless, indeed.</p>
-<p>Still, Daigo Toyotaka was Daigo Tadanori's younger brother, and they just killed him... I expected them to just take away all his power and shares and kick him out of the family, but they actually killed him. That must mean they were that pissed about this whole thing.</p>
-<p>For the record, the Saint Francisco battle incident from yesterday was concluded as noise from an earthquake, probably because they shut everyone involved up. From Saint Francisco Girls' Academy's perspective, if word got out that another incident like this happened so soon after the terrorist attack, the academy's credibility would plummet, so they'd have to do everything they can to stop it.</p>
-<p>They probably offered the students in the Disciplinary Committee who participated in the battle and their families a considerable amount of money or benefits.</p>
-<p>The remaining Jinildang terrorists who might talk were eaten by their boss after he turned into a monster, and the guards who listened to Toyotaka's faction's orders are all captured now, so they're in no position to talk.</p>
-<p>As for Minamoto, who's behind the guards, if word gets out that there was a gun battle, they'll be criticized by the other prestigious families, so they'll definitely keep a tight lid on it. If that happens, there won't be any talk from the guards or Minamoto's PMC either.</p>
-<p>Sakagami Rena, Saionji Diana, and Otagi Yuka, who spent last night with me, yawned and went home in the early morning to prepare for school, so I was home alone. I turned off the TV, packed my briefcase, and headed to school.</p>
-<p>"Long time no see~! Yamashiro-ssi!"</p>
-<p>As I was about to enter the academy, a familiar guard greeted me. It was Kozaki Koji, a guard from the security company whose contract was terminated due to the terrorist attack. He was one of the guards I had persuaded to make it easier for me to cause trouble at the school.</p>
-<p>They couldn't keep using the PMC under the Minamoto Group as security right away, so they must have hurriedly re-signed a contract with the security company they had a contract with until recently.</p>
-<p>From my perspective, it's a good decision. I had bribed some of the guards, but the contract was canceled due to the terrorist attack, so it was meaningless. Fortunately, they're back because of this, so it's a great benefit.</p>
-<p>"Is your company taking over security again?"</p>
-<p>"I don't know the details of the contract, but I think we've signed a contract until this semester. I don't know about next semester."</p>
-<p>I won't be here next semester, so I didn't care what happened to the guards after that. I told Kozaki Koji congratulations on his return and entered the academy.</p>
-<p>As usual, I went to the special class preparation room and found a fax that said that the temporary headmaster, Ishidera Kosuke, was stepping down due to 'health' problems and that Daigo Terue, who was being disciplined, was returning as headmaster.</p>
-<p>I wonder if it's really a health problem? Daigo Tadanori even got rid of his younger brother by disguising it as a traffic accident, so it was obvious what happened to Ishidera Kosuke. He must have been tortured to get him to reveal the various schemes he pulled at Saint Francisco Girls' Academy and the list of teachers who joined the Toyotaka faction. Or maybe he's still being tortured.</p>
-<p>It's strange that Daigo Toyotaka had a traffic accident and his subordinate Ishidera Kosuke also had an accident, so they're glossing over it with the excuse of health problems.</p>
-<p>I haven't contacted Daigo Terue yet. She must be very busy right now. She has to hire new guards, cover up the shooting incident that happened yesterday, deal with the shrine in the north forest collapsing due to the roots of the earthquake, and interrogate Ishidera Kosuke. She must have a mountain of work to do. She probably hasn't even slept because of the overwhelming amount of work.</p>
-<p>"Good morning."</p>
-<p>Kurayamda Kirie came to work later than usual. I thought she wouldn't come to work because her father died.</p>
-<p>"I thought you wouldn't come to work, but you did?"</p>
-<p>I'm going back soon. I came to write a resignation letter because I'm quitting today.</p>
-<p>Huh? A resignation letter? Is she quitting this undercover job altogether? I was surprised by Kurayamda Kirie's words, but after thinking about it for a moment, I understood.</p>
-<p>Kurayamda Kirie's appointment as the special class vice-homeroom teacher was a scheme by the Toyotaka faction. She probably promised something and was appointed as the vice-homeroom teacher, but the Toyotaka faction has already collapsed due to Daigo Toyotaka's death, so they can't give her anything anymore.</p>
-<p>And Ishidera Kosuke has already confessed that he's in the Toyotaka faction, so she doesn't know what kind of disadvantages she'll face in the future. And Nakanoin Rina heard her call the monster her father in yesterday's battle, and the Jinildang fighters called that monster their boss, so it must have been reported that she's related to the unidentified fighters. It would be strange if she didn't submit a resignation letter.</p>
-<p>"You know, if you're the Black Knight who was there with me...."</p>
-<p>"I don't know what you're talking about."</p>
-<p>I smiled and pretended not to know to Kurayamda Kirie. There's no need for me to say that I'm the Black Knight.</p>
-<p>"What are you going to do in the future?"</p>
-<p>I was curious about what she would do if she quit this job, even though it's not a regular job but a trainee internship, so I asked her directly. I had some ideas of my own.</p>
-<p>"I don't know. I did that job following my father, but now that my father is gone, I feel empty...."</p>
-<p>"Instead of continuing to do illegal things, why don't you just start a PMC?"</p>
-<p>There was no reason for Kurayamda Kirie to keep her feet in the muddy waters of a terrorist organization. Her father, Kurayama Kazuma, probably manifested the werewolf trait and left the family, but there's no need for Kurayamda Kirie to continue the family business (?) of terrorism.</p>
-<p>The Kurayamda family is a prestigious family with a long history, and Kurayama Kirie is also expected to graduate from a prestigious university, so she can have a more promising and better job than a terrorist.</p>
-<p>Still, the reason I specifically recommended a PMC is because I thought the combat power of Jinildang, which is a terrorist organization with a certain amount of power in Japan, was a waste. It would be good for Kurayamda Kirie to take care of her subordinates, whom she's grown fond of.</p>
-<p>"If a PMC could be established that easily, I'd do it too."</p>
-<p>"It's not easy, but it's not that difficult either? With your brains, you can get a license before you graduate, and you can get money from your family."</p>
-<p>"I can do something about the license, but without my father, my family will probably see me as a tool for arranged marriages. I can't expect any support for establishing a PMC."</p>
-<p>Hmm, that overlaps a bit with what I talked about with Seizawa Shii yesterday. Arranged marriages are the same for the upper class no matter which country you go to. If she can't get support from her family, I might be able to support her.</p>
-<p>It's a good thing for me to have another PMC under me. Due to Taira Danjo-halbae's policy of preventing his children from establishing and owning PMCs, the successors of the Taira family couldn't own many PMCs. Instead, like Taira Jiro, who has the title of SPF Tokyo branch manager, they had organizations with real military power, although not PMCs.</p>
-<p>However, having a PMC that can be officially operated gave them a considerable advantage, so if Kurayamda Kirie receives my support, it would be beneficial to me as well. Almost 100 percent of the shares would be mine, so the PMC would be as good as mine.</p>
-<p>"Then I'll support you. If you don't get support from your family, you don't have to take orders from your family, right?"</p>
-<p>Of course, turning Jinildang into a PMC is much more difficult than a regular PMC. The identities of some of Jinildang's members are exposed to the Japanese anti-terrorism special forces, so almost all of them will have to be laundered. The cost of that will be considerable.</p>
-<p>Still, creating a PMC without any human resources was not a good idea. Since so many PMCs have already established themselves in the red ocean world, it's difficult to find experienced personnel like Jinildang.</p>
-<p>In the case of former soldiers with a lot of experience, they often go to famous PMCs, so the biggest problem for new PMCs is replenishing their personnel. Accepting Jinildang can solve the problem of such manpower, so even if there are disadvantages, the advantages are so great that they have to take the risk.</p>
-<p>"You'll support me?"</p>
-<p>"Yeah, but you have to completely get rid of Jinildang's water. Once you become a PMC, you have to represent the interests of the employer. You can't have thoughts like the Emperor's rule over Japan."</p>
-<p>At first, she was happy to hear me say that I would support her, but she fell silent when I told her to completely abandon Jinildang's identity.</p>
-<p>"...I'll think about it."</p>
-<p>Kurayamda Kirie answers quietly after a moment of silence. Still, she's changed a lot. At first, she showed her displeasure just because I was in charge of Korean class. The results of my hard work in correcting Kurayamda Kirie's mind with my body are slowly showing.</p>
-<p>"I'm going to submit my resignation to the headmaster's office."</p>
-<p>"Hurry back. Even if you're quitting, you have to do the last morning assembly for the kids. I'll give you some time to say goodbye, so think about what to say."</p>
-<p>The students in the class liked Kurayamda Kirie, so I had to give them some time to say goodbye. Kurayamda Kirie put the envelope with the resignation letter in her arms and left the education preparation room.</p>
-<p>In fact, it's polite to inform them at least two weeks before resigning, but since the situation is what it is, it will be processed immediately. She's not a regular teacher, but a trainee, so there's no grand contract or anything, so it seems like it will be decided today.</p>
-<p>---</p>
-<p>I couldn't make an illustration today, so I'll upload the character introduction illustration I made for the 500th episode anniversary and a few of the remaining ones ㅎㅎ</p>
-<p>Taira Kokoro-imo....</p>
-<p>Sabu made too muscular...</p>
-<p>Joint doll style Saionji Diana.</p>
+<p>"This isn't a joke. It involves drugs, so it could be incredibly dangerous."</p>
+<p>-Aren't you in danger, sensei?</p>
+<p>"I'm... good at fighting, so."</p>
+<p>I didn't really have anything to say to Shido Tsubaki's question, so I mumbled something strange. Telling her that I'm a master of kenpo wouldn't work on Shido Tsubaki in a situation where we're going to a place with drug dealers who might have guns. But I can't exactly reveal that I'm a psychic either...</p>
+<p>-Is it because you're the Black... Knight?</p>
+<p>...I figured she must have seen something during the Oofuchi Erika rescue incident. There's no way she wouldn't have looked into it, leaving Shido Tsubaki behind like that. Shido Tsubaki, who's hobby is gathering information, probably got information from a camera she installed somewhere or from a disciplinary committee member who participated in the battle. I should have been more careful.</p>
+<p>"... It was just cosplay."</p>
+<p>Shido Tsubaki was silent for a moment at my ridiculous words that no one would believe. After a moment, I heard Shido Tsubaki's serious voice from the phone.</p>
+<p>-Don't joke around, sensei.</p>
+<p>Damn it. She doesn't believe me after all. Oh well. In this case, the best strategy was to just brazen it out with an iron face.</p>
+<p>"Still, I can't. As a teacher and a hero, I can't do anything that could harm my student."</p>
+<p>It was embarrassing to call myself a hero, but I couldn't help it. The image of the Black Knight was already a hero in the world. Ma-vel and GC were also creating hero characters with armor similar to mine and serializing them to great acclaim, so the image of me as a hero was already too ingrained.</p>
+<p>I heard that Aitana, who became famous as the face of the battle with the Famine and the American psychic special forces, was already raking in money from image rights everywhere, which I was a little jealous of. Of course, no matter how much money they gave me, I had no intention of selling my face as the Black Knight.</p>
+<p>I'm going to be the chairman of a chaebol later, so hero activities? It's not like I'm Batman or Iron Man. I was going to be satisfied as the mastermind sitting in the back, not a hero. This world isn't a world of hero stories, but a world of mega-corporations without blood or tears.</p>
+<p>-You can protect me, sensei. If you're the Black Knight who fought the Famine...</p>
+<p>Hmm, now that I think about it, I recently got a telekinetic barrier. If I put it on Shido Tsubaki, her safety would be guaranteed...</p>
+<p>"Just this once. And I hope you'll keep my work a secret from now on."</p>
+<p>I decided to take Shido Tsubaki with me on the condition that she keep my identity a secret. I ended the call with Shido Tsubaki, who excitedly said she understood, and contacted Sakagami Rena and Otagi Yuka, whom I had thought of in advance, and told them to meet me in front of the school gate.</p>
+<p>I threw on some clothes and left the house. Summer was completely over now, and the cool air tickled my cheeks. Miyashi surprisingly had good air for a city. It's a city with a small population, but the refreshing air created by Mount Fuji and the Sea of Trees flows in.</p>
+<p>I understood why rich people built villas in this city. The air is good, there aren't many ordinary people, but there are many rich people who can communicate, and it's moderately bustling, so you can buy what you need at any time. Should I build a villa in this area later?</p>
+<p>"Ah! Sensei-ssi!"</p>
+<p>I was thinking about villas and heading to school when Otagi Yuka with red hair saw me at the main gate and waved her hand. Sakagami Rena, wearing a ninja mask, was standing next to her. She's wearing a mask because there might be a battle after all.</p>
+<p>"Yeah, but..."</p>
+<p>Just as I was about to say that Shido Tsubaki might come, I saw Shido Tsubaki. She must have left around the same time as me, because she arrived around the same time too.</p>
+<p>"Huh? Why is Shido here?"</p>
+<p>"Won't it be dangerous?"</p>
+<p>Otagi Yuka and Sakagami Rena were tilting their heads with question marks, with expressions that said, 'Why is she here?'</p>
+<p>"She seems to have seen me wearing the Black Knight armor when Oofuchi was kidnapped..."</p>
+<p>"I see."</p>
+<p>"That's right."</p>
+<p>They nodded without needing any further explanation after hearing my short words. Soon, Shido Tsubaki arrived and we entered the academy.</p>
+<p>"So, did you find out where to look?"</p>
+<p>"Ah, can't we just wander around the forest and search any suspicious-looking houses?"</p>
+<p>Otagi Yuka answered Shido Tsubaki's question with an expression that said, 'Is that difficult?' Shido Tsubaki sighed and flipped through the printed papers one by one.</p>
+<p>"The reason I insisted on coming along is because I thought we'd waste time like this. It's a map showing the location of the management team's temporary buildings that I investigated in advance, so you can go while looking at it."</p>
+<p>I see. It seemed that Shido Tsubaki had anticipated that we would act so recklessly and insisted on coming along.</p>
+<p>I checked the paper I received. It's written in quite detail. The academy grounds were quite large, so there were quite a few management team rest areas and warehouses. Looking at the map, I pointed to two of them. The old warehouse deep in the forest that I saw from the helicopter, and the warehouse near the back gate where food and various supplies came in, not the main gate.</p>
+<p>"The manufacturing will probably be done in a secluded place, and the finished drugs will be stored in a place where vehicles can easily come and go to take them out, so these two places are suspicious."</p>
+<p>"It's definitely more efficient to look at suspicious places first than to look at all the places."</p>
+<p>Everyone nodded at my words, and in addition, we decided to split into teams of two and look at the two places at the same time. The plan was to check the two places and if there was nothing, we would each look at the nearest place. Of course, Shido Tsubaki was on my team because I brought her, and Sakagami Rena and Otagi Yuka were on one team.</p>
+<p>"The request given to us is not to defeat the drug dealers, but to find out information, so don't overdo it and don't try to fight."</p>
+<p>Except for Shido Tsubaki, the rest are skilled enough to win even if a bunch of drug dealers come, so I can't really say it's unreasonable, but since it's not like I'm getting paid, there's no need to use my strength.</p>
+<p>"Okay. I'll report the situation and deal with it, so don't worry, sensei-ssi."</p>
+<p>"My lord, please don't worry."</p>
+<p>The two left those words and headed to the warehouse deep in the forest. It seemed that they gave way to a place that was easy for us to go to, taking into account that Shido Tsubaki was there. They're both so considerate.</p>
+<p>"We've been taken care of."</p>
+<p>"Don't worry about those two, they're strong."</p>
+<p>"I know those two are strong."</p>
+<p>Shido Tsubaki probably knows that the Otagi family is a vampire family and the Sakagami family is a ninja family. We walked slowly towards the back gate. We met guards on the way to the back gate, but they had already eaten enough money from me, so they passed me without saying anything.</p>
+<p>"The guards aren't saying anything?"</p>
+<p>"I usually grease their palms a little."</p>
+<p>"...I see."</p>
+<p>I didn't know what she was imagining and saying 'I see', but we soon saw the warehouse and shut our mouths. There were two warehouse buildings, the warehouse where goods from outside the academy came in first, and the garbage dump where the academy's goods (such as garbage) were taken out.</p>
+<p>I put a weak telekinetic shield on Shido Tsubaki and gestured for her to follow me. Shido Tsubaki seemed a little surprised by the translucent barrier in front of her, but she followed my instructions and headed to the warehouse.</p>
+<p>The things in the warehouse are mostly food ingredients or cleaning supplies requested by the management team, so there are no guards stationed there. It's easy to track if you steal it and it's not very convertible to cash, so there's no need to protect it with guards. There was a lock, but locks were like twigs in front of me.</p>
+<p>We easily entered the warehouse and slowly looked around inside to find drugs. After searching for about fifteen minutes, we couldn't find even the 'd' in drugs.</p>
+<p>"There's nothing?"</p>
+<p>"Since this is where things come in, wouldn't it be more natural for things to be in the garbage dump? Because they won't rummage through the garbage."</p>
+<p>That makes sense. Since this warehouse is where things come in from the outside, it seemed strange to have drugs here. Rather, the garbage dump would be a place where you can take things without being suspected.</p>
+<p>We immediately left the warehouse and went to the garbage dump. There wasn't any food waste, so there was less of an unpleasant smell, but there was still a unique smell of the garbage dump. There were a huge number of general waste, paper boxes, and plastic waste in large bags.</p>
+<p>The Earth rapists were living in St. Francis Girls' Academy...</p>
+<p>I looked around the garbage dump with an eco-friendly thought. Hmm, where would I hide the drugs if I were me? First of all, general waste is out. It's in black bags that are hard to distinguish, and general waste is dirtier than other waste here, so it's out from the worker's point of view.</p>
+<p>Most of the plastics are transparent, so there doesn't seem to be any space to hide drugs, and it seems like they would be between the unfolded and stacked paper boxes. It would be easy to find if you marked the paper boxes.</p>
+<p>"It seems like it's between the paper boxes."</p>
+<p>"It definitely seems like it."</p>
+<p>Shido Tsubaki must have thought the same thing as me, because she said that as she approached the pile of paper boxes. I didn't want to touch the dirty boxes that I didn't know what was in them, so I pulled Shido Tsubaki back and looked at the pile of paper boxes. Looking closely at the pile of boxes, there were a few piles of boxes that were checked with something like a red pen, although it wasn't very noticeable.</p>
+<p>Seogeok!</p>
+<p>I used Shadow Domination to remove the rope tying the pile of boxes, and then I was about to use telekinesis to lift the unfolded boxes when I heard a voice from behind.</p>
+<p>"Hehe... What brings you to this garbage dump, sensei?"</p>
+<p>It was the voice of the management team leader. It wasn't the usual kind-hearted old man's voice, but a chilling voice full of murderous intent.</p>

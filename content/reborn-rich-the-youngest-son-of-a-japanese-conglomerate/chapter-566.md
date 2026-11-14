@@ -5,71 +5,76 @@ weight = 566
 chapter = 566
 +++
 
-<p>"So... seeing as it only likes girls, is the sealed dragon male?"</p>
-<p>Hearing that it only liked girls, I became curious and asked Naruse Koyou. Naruse Koyou made an absurd expression at my question, but still opened his mouth to satisfy my curiosity.</p>
-<p>"It's female. She says human males smell musty and she hates them."</p>
-<p>Ah... so her taste was like food preferences? Come to think of it, even if it's a dragon, it's a reptile, so it would be strange for it to have such a taste for humans.</p>
-<p>"How did Shiyo-yang become a sacrifice and get sealed? I don't think your father would have allowed it."</p>
-<p>"That's... At first, the family pretended to adopt me without any ulterior motives. I didn't even know about the magic circle in this Miyashi that helps seal the dragon. But after my daughter, Shiyo, was born and it was time for her to enter middle school, they sent me on a business trip. After that..."</p>
-<p>Naruse Koyou paused for a moment, seemingly overwhelmed with emotion. After hearing the story, it was obvious how it would proceed next.</p>
-<p>"They made Shiyo-yang a sacrifice and sealed her while you were on a business trip."</p>
-<p>"Yes, I rebelled against my father for the first time then, but he started threatening me, saying that if the seal was broken now, Shiyo's life would be in danger. He said that there are many girls in the Naruse family anyway, and if I didn't help with the family's dirty work, he would release Shiyo's seal instead."</p>
-<p>Wow... the Naruse family is amazing. They're threatening to release the seal instead? Their creativity is amazing. It seemed that Naruse Koyou, as a father, chose to extend his daughter's life even for a limited time, rather than her immediate death. I looked at Naruse Koyou's dark expression and asked a question.</p>
-<p>"So, what do you want to do with Shiyo-yang?"</p>
-<p>"That's..."</p>
-<p>Naruse Koyou couldn't answer my question this time either. He had the expression of a father who wanted to prevent his daughter's sacrifice, but didn't know what to do because the situation wasn't favorable.</p>
-<p>In fact, I didn't know how to deal with seals or sacrifices either. When I was causing a ruckus, I thought about taking Naruse Shiyo with me, but Naruse Koyou said that he was stabilizing the unstable seal in the Naruse family, so I decided to postpone it for the next time in case it would worsen the situation.</p>
-<p>"I'll think of a way too, so please don't ignore my calls and answer them."</p>
-<p>"I understand. Please go back safely."</p>
-<p>Before I knew it, we arrived at the main gate, and Sakagami Rena and I, who had arrived with Naruse Koyou, headed to the place where I had hidden the folding bike.</p>
-<p>"What happened?"</p>
-<p>Sakagami Rena hadn't said much while Naruse Koyou was with us, so she asked about the situation after we parted ways.</p>
-<p>"Actually, the infiltration of the Naruse family was successful. I even went to the place where they were performing some kind of magic on Shiyo... Naruse Hirohide, the head of the Naruse family, was waiting for me there."</p>
-<p>After that, Sakagami Rena said that she used all sorts of ninja secret techniques and ran away for almost four hours before being caught. Naruse Hirohide, who had other things to do, returned to the main house soon after, probably because it took so much time to escape.</p>
-<p>That's amazing. She ran away for four hours against the head of the Naruse family, who is a considerable powerhouse? She would have been caught quickly if she was hunted down by dozens of summoned beasts, but it seemed that Sakagami Rena's escape skills had reached a considerable level. But Sakagami Rena seemed to feel ashamed of being caught.</p>
-<p>"I felt my inadequacy in this matter. Even if the opponent is that Naruse head, to only be able to escape for 4 hours... Next time, I'll try to escape for at least 6 hours."</p>
-<p>"No, next time, try to escape completely. Do you know how worried I was?"</p>
-<p>"You were worried, my lord?"</p>
-<p>"Of course. That's why I came all the way here to find you."</p>
-<p>In fact, I came to the Naruse family's mansion to save Sakagami Rena rather than Naruse Shiyo. Of course, it's not that I didn't think about Naruse Shiyo at all, but Sakagami Rena, who had already joined my ranks, was more precious.</p>
-<p>"But you'll still help Shiyo, right?"</p>
-<p>"Hmm... Let's gather the kids first and talk about it."</p>
-<p>In fact, I was almost ignorant of magic, so I would have to listen to advice and think about the next step. We arrived at the place where I had hidden the bike, and I put Sakagami Rena on the back and headed towards the school.</p>
-<p>"While my lord is driving, I'll contact the kids."</p>
-<p>For reference, the kids that Sakagami and I were talking about were friendly students who had either decided to work under me after graduation or knew my identity. It was Sakagami Rena, Alik, Otagi Yuka, Saionji Diana, Urabe Konoka, and Konoe Akina.</p>
-<p>"They said they'll be waiting in the club room."</p>
-<p>"Then we can go straight to school."</p>
-<p>Fortunately, it seemed that everyone was still in the club room, so I didn't have to call the kids who were at home again. We arrived at the school quickly, and I greeted the guards at the school gate.</p>
-<p>"Good work~!"</p>
-<p>"Yes, take care, teacher."</p>
-<p>The guards didn't say anything to me even though I was taking a student on the back of the bike. It seems that the lubrication I've been doing has been successful. We took the bike to the special class building and went straight up to the second floor.</p>
-<p>"Teacher-ssi! What's going on?"</p>
-<p>"Is it because of Shiyo?"</p>
-<p>"Ryutta, eat some ice cream."</p>
-<p>When I entered the club room, there were students asking what was going on, and Alik, who had ice cream around his mouth, was trying to give me a bite.</p>
-<p>I took a bite of the ice cream that Alik put to my mouth and sat down. Hmm, I felt like I had consumed a lot of energy from causing a ruckus at the Naruse mansion, and I felt the ice cream spreading throughout my body after taking a bite.</p>
-<p>"What happened is..."</p>
-<p>I told the students the secret story related to Naruse Shiyo. I thought everyone would be angry at the Naruse family's cruel deeds, but most of them had a 'ah, I see' attitude.</p>
-<p>"Teacher-ssi is naive. If it's a prestigious family, they all have one or two stinky things like that. Of course, we won't just let it go because it's related to our friend."</p>
-<p>Otagi Yuka explained when I looked at her with eyes that said, 'Why would I stay still?' Come to think of it... The Otagi family alone is a vampire family that continues its life with the blood of non-humans, so how many more dirty things are hidden? Konoe Akina also had an incident where her uncle killed her father and tried to usurp the head of the family, and there were many other things.</p>
-<p>"Hmm... Urabe and I can take care of these magical things."</p>
-<p>After hearing my story, Otagi Yuka recommended herself and Urabe Konoka for the seal-related work. Otagi Yuka had excellent knowledge of blood magic that utilizes blood, and Urabe Konoka is a priestess of the Daughter of the Abyss, so it would be helpful if they put their heads together.</p>
-<p>"I'll help too."</p>
-<p>Sakagami Rena raised her hand. Come to think of it, Sakagami Rena also knew how to use stealth and illusion techniques, so she had considerable knowledge.</p>
-<p>"It's important to save Shiyo, but the justification for us to intervene is important. Of course, we can hide our identities, but we might get caught if we're unlucky."</p>
-<p>It was Konoe Akina's words. Indeed, if even one person's identity is revealed during a fierce battle, it was clear that quite a difficult situation would occur. Everyone was a young lady from a prestigious family, so a dispute between prestigious families could arise. In particular, Konoe Akina is the head of the Konoe family, so a huge problem would occur if her identity was revealed.</p>
-<p>"Isn't that a simple matter? We can just say that Shiyo's father borrowed our strength to fight in the succession war."</p>
-<p>Saionji Diana said as if it was a simple matter. She was saying that we should reduce this matter to a power struggle within the family rather than an external matter, which made quite a bit of sense. But that was the same as telling Naruse Koyou to betray his family.</p>
-<p>"Will he listen?"</p>
-<p>"His daughter's life is at stake, so if he doesn't help, we can't help it either. Even if she's our friend, there's a limit to what we can do."</p>
-<p>Otagi Yuka said in a slightly sarcastic tone to my words. The target of Otagi Yuka's sarcasm was not me, but Naruse Koyou, the father of Naruse Shiyo. Even though he was being threatened, he was still doing what people who could be called enemies wanted, so he seemed a bit pathetic.</p>
-<p>"Okay. Let's ask Naruse Koyou about that and figure out exactly what we need to do."</p>
-<p>"It's important to release Shiyo's seal first, but it's important to get rid of the next head of the family. Isn't it enough if Shiyo's dad is the only man left to inherit the family? If only Shiyo's dad is left, the Naruse head will have no choice but to acknowledge it, even if he cries and eats mustard?"</p>
-<p>Konoe Akina's words sounded plausible, but I had a feeling that it wouldn't go that way. From what I heard earlier, the head of an Onmyoji family like the Naruse family was ultimately the essence of the family. The head of the family also had many powerful shikigami, so the head of the family also controlled most of the family's power. If the head of the family thought that Naruse Koyou, who caused the coup, was hateful, there was a possibility that he would adopt another person from a collateral line and hand over the next head of the family.</p>
-<p>"That method is unlikely to work. Maybe we'll end up in a situation where we have to compete with the Naruse head."</p>
-<p>"Then..."</p>
-<p>Konoe Akina suggested another method after hearing my words. As expected of the head of the Konoe family, she's well-versed in family matters. Of course, all of these plans were plans that could only proceed if Naruse Koyou decided to stage a coup.</p>
-<p>Otagi Yuka, Urabe Konoka, and Sakagami Rena were still putting their heads together and thinking about how to safely release the seal. It seemed easy to just release it, but that was a dangerous thing for Naruse Shiyo, just like the Naruse family threatening Naruse Koyou to release the seal.</p>
-<p>----------------------------</p>
-<p>SD Alik!</p>
-<p>Kkawaiing~!</p>
+<p>After a steamy sex session with Kurayamada Kirie, I picked up my phone and couldn't help but pause. I had a lot of messages from the Special Class kids, telling me that the graduation trip was going to be 5 nights and 6 days instead of 4 nights and 5 days, because it was a graduation trip. And the destination was...</p>
+<p>Sakagami Rena: My lord, the destination for the school trip has been decided: Seoul in Korea and Xin Nanjing in Southern China.</p>
+<p>Sakagami Rena, who provides me with information via LINE whenever something happens, sent me a message so I could find out the destination.</p>
+<p>"Ah...!"</p>
+<p>I had a bad feeling about this... Neither Seoul nor Nanjing were good choices. Seoul, the main stage for the youngest son of MegaCorp, was a trap destination because I didn't know what could happen, and a huge incident was about to happen around this time in Xin Nanjing... It was almost on the scale of the LA famine, so I was a bit worried.</p>
+<p>The period was roughly set, but the exact occurrence of the incident had some randomness depending on the protagonist's actions, so I couldn't know whether the incident would happen during this school trip or not. I could only hope it wouldn't happen. As just a teacher, I couldn't stop this trip.</p>
+<p>Hmm... Maybe I should tell Daigo Terue? No, even if it was right after it was decided, I couldn't change it now that the departure is on Thursday. It's already Monday night.</p>
+<p>"Why are you looking so serious with that shit-eating grin on your face?"</p>
+<p>It was almost time to leave, so Kurayamada Kirie washed up, came out, and asked me after seeing my expression. While Kurayamada Kirie was writhing and sticking her tongue out in pleasure, I had already washed up, so as soon as Kurayamada Kirie was ready, we could leave right away.</p>
+<p>"Shit-eating grin...? It's nothing."</p>
+<p>I said it was nothing and turned off the LINE app. All I could do was prepare anyway. I couldn't bring weapons from Japan, so I had to prepare them in Korea or China in advance.</p>
+<p>Korea has Han Yu-gyeong and TG Tech's stuff, so preparation will be easy, but Xin Nanjing in China is the problem. I should ask Eve about this in advance.</p>
+<p>While Kurayamada Kirie was drying her hair, I turned on the dark web app and started talking to Eve.</p>
+<p>Ryuta: Eve, I'm going on a graduation trip to Seoul and Xin Nanjing in China this time. Can you prepare some equipment there in advance?</p>
+<p>EVE: What kind of equipment do you need?</p>
+<p>Ryuta: Hmm... A few guns and swords, and a power suit that can protect the entire Special Class?</p>
+<p>EVE: What? What the hell is going on in Xin Nanjing?</p>
+<p>Ryuta: Actually, I don't know if it will happen or not...</p>
+<p>I told Eve about what might happen in the future.</p>
+<p>EVE: Really? Then this might be a golden opportunity to invest. If the stock prices of related stocks fall due to this incident, we should sweep them up. Because it's a stock that will eventually go up.</p>
+<p>Ryuta: No, investment is good, but how about preparation...?</p>
+<p>EVE: That's not a difficult request. You can think of it as an opportunity to test TG Tech's mass-produced products.</p>
+<p>Ryuta: That's good too.</p>
+<p>Because of Eve's "the more the merrier" attitude, I even came to the point of wondering if this was okay, but I told Eve to prepare, so if something happens, we can deal with it as it happens, and if not, we can enjoy the graduation trip.</p>
+<p>"Let's go now."</p>
+<p>Kurayamada Kirie, who had finished preparing to go out, said. I nodded and got up from my seat.</p>
+<p>"How are you going to establish the PMC?"</p>
+<p>"I've already done the rest of the preliminary registration, and as soon as my PMC license comes out, I can do it right away. The PMC license results come out quickly, so I should be able to do it within this week."</p>
+<p>The PMC license was a license that many high-ranking Japanese officials took or needed, so the announcement of successful applicants was quite fast. If there are no major problems, I think the announcement will be made within 3 days. The list will probably be posted before or after the graduation trip.</p>
+<p>"Are the PMC preliminary members doing well?"</p>
+<p>"Yes, they're using the money you invested to pay the employees' salaries and rent a decent office in Tokyo."</p>
+<p>According to what I heard from Kurayamada Kirie, when she first abandoned Jinildang and said she was going to do a PMC business, some extremists made a fuss saying that she had abandoned the purity of Jinildang. But when they were able to show their families that they were going to work in Tokyo with the monthly salary deposited into their accounts, the complaints disappeared as if they had never happened.</p>
+<p>The complaints of some Jinildang members were cured by your beliefs, capitalism. This became a happening that could be passed over with a single word.</p>
+<p>"Mimata Chieri-ssi and Sawayanagi Azuma-ssi are both Sunbae in the industry, so ask them if you have any questions. I don't really know much about the PMC industry."</p>
+<p>"I'm already contacting them often. They're both kind enough to tell me."</p>
+<p>After leaving the hotel and talking about the future PMC business, I arrived at the parking lot before I knew it.</p>
+<p>"I'm leaving now."</p>
+<p>"Okay, let's see each other often."</p>
+<p>"It's the company you invested in anyway, so you'll see me often even if you don't want to."</p>
+<p>Kurayamada Kirie naturally took out a helmet from the subspace, put it on, and said while riding her bike.</p>
+<p>Well, the money I supported wasn't a small amount, so if I calculated the ratio of the original Jinildang's assets, I had invested almost 65 percent. In other words, the PMC that Kurayamada Kirie will build is also mine. Unless there is no relationship at all, it is practically my PMC, so I had no choice but to meet often.</p>
+<p>Watching Kurayamada Kirie disappear on her bike, I got into my car. I should tell Han Yu-gyeong and Ha Ju-yoon that I'm going to Korea. They'll both be very happy to hear that.</p>
+<p>###</p>
+<p>Because everyone knew that I was studying for the license, the Special Class kids, who had been careful until I took the test, were unsealed from the day I went to work on Tuesday, the day after the test.</p>
+<p>They came to me every break to ask me to play with them or eat snacks together, and after school, it became like we were naturally doing date experience club activities, so we went to various places and took pictures.</p>
+<p>"Okay, take this pose... Smile naturally~!"</p>
+<p>Minamoto Risa was looking at me and taking pictures, and that camera was quite unique. Six cameras made like a big hula hoop were surrounding me, and there were two cameras above and below. It was a hologram camera that cost a whopping 1,500 yen to print one, and she was taking pictures with it while changing the background.</p>
+<p>"Will this sell?"</p>
+<p>"I'll take responsibility for whether it sells or not, so don't worry about anything."</p>
+<p>Minamoto Risa smiled confidently. It seemed that the club anthology that our date experience club would sell at the festival wouldn't sell well, so Minamoto Risa suggested including my photo card as a bonus. And everyone agreed to that opinion, so this happened. Actually, it's a hologram photo, so it doesn't feel like a photo 'card', but more like a photo token.</p>
+<p>So the price of the anthology, which was originally thought to be 500 yen, was set at 5,000 yen, which is ten times higher. I was wondering who would buy a club anthology for 50,000 won, but Minamoto Risa said she would take responsibility for everything, so I was just being dragged around and taking pictures.</p>
+<p>Beyond taking solo photos, I also took hologram photos with the Special Class students for their personal collections, so I didn't have time to do anything after school.</p>
+<p>In addition, the disappointing thing was that I had taken pictures of all the other students (even Alik and Uenozono Karen, who were not club members), but Minamoto Risa, the target, was so focused on taking pictures that she had no intention of taking pictures with me.</p>
+<p>If I took pictures of things that would remain as memories like this, my favorability would increase while looking at the pictures, but Seizawa Shii stepped in as if she knew I was feeling sorry at that time.</p>
+<p>"Everyone else has taken pictures, so Risa-ttan should take a picture with Ryuta-zzi too. The scenery here is good, so it'll look good together!"</p>
+<p>Seizawa Shii was the best as expected. Minamoto Risa stood next to me as if she couldn't beat Seizawa Shii's words.</p>
+<p>"Aww~! Get a little more lovey-dovey~☆"</p>
+<p>Minamoto Risa, who was awkwardly standing a little apart, stuck to me a little as if she couldn't help it at Seizawa Shii's words. When Minamoto Risa got close, I smelled Minamoto Risa's unique scent like cherry blossoms.</p>
+<p>"Are you taking it? One, two, three!"</p>
+<p>With Seizawa Shii's words, the sound of click, click, click was heard and the picture was taken. As soon as the picture was taken, Minamoto Risa quickly got away from me, but her cheeks were slightly red, so it seemed like she was embarrassed.</p>
+<p>"Let's just take pictures up to here because tomorrow is the day we leave for the graduation trip."</p>
+<p>I also took a picture with Minamoto Risa. I decided to end the photo shoot here today. I have to go buy things because there are things to buy before the trip.</p>
+<p>"And I'll pay the price, so Minamoto, give me a separate copy of the pictures I took with me and the students. It's a picture I took with the students, so I'll keep it too."</p>
+<p>I said that because I thought it would be a meaningful picture. At my words, Seizawa Shii clapped her hands and opened her mouth.</p>
+<p>"Ah! Let's take a group photo of us too, then! What do you think, Ryuta-zzi?"</p>
+<p>"We can take a lot of those on the school trip. There are some students who didn't come to the club today."</p>
+<p>It was the day before the graduation trip, so there were many kids who skipped club activities because they had things to buy. So it was impossible to take a class photo.</p>
+<p>"Still, let's take it today and finish it~! I'm going to take a picture with me, Risa-ttan, and Ryuta-zzi, so you can gather a few more people and take pictures."</p>
+<p>Seizawa Shii seemed to want to take a picture with Minamoto Risa and me. I nodded as if I couldn't help it. Otagi Yuka, Sakagami Rena, and Saionji Diana, who participated in the club activities today, also seemed to want to take pictures with me separately. For reference, these three don't have family support, so they decided to shop with me for the graduation trip, so they were waiting until the club was over.</p>
+<p>In the end, I became like a life-size standee for taking pictures with a few students and had to spend some time.</p>
+<p>________</p>
+<p>Seizawa Shii new model practice.</p>
+<p>Heuheung...! I like white gyaru~!!</p>

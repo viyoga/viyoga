@@ -5,74 +5,97 @@ weight = 702
 chapter = 702
 +++
 
-<p>MONA-RISA: It's all sorted out. From now on, there won't be any more trash attached to me using my marriage as an excuse.</p>
-<p>After a boisterous meal with the remaining students, my phone rang as I was heading somewhere, and it turned out to be Minamoto Risa. She's gotten hooked on chatting with this encrypted app. At this point, I wonder if we could just use LINE.</p>
-<p>Ryuta: That's good. Did anything come up about Sugawara Chohei being murdered?</p>
-<p>Just in case, I asked Minamoto if they knew the truth about Sugawara Chohei's death.</p>
-<p>MONA-RISA: Nope. Everyone thinks it was an accident. You haven't forgotten our date on the 24th, have you?</p>
-<p>As expected, unless you suspect murder using psychic powers from the start, it's just an unfortunate accident, so even the Minamoto Group wouldn't be able to tell it was murder using telekinesis.</p>
-<p>Ryuta: Of course not. If we're going to hang out on Christmas Eve, we should probably make reservations in advance. Where do you want to go?</p>
-<p>MONA-RISA: We've hung out a lot in Miyashi, so how about Tokyo?</p>
-<p>I had to go to Korea right after hanging out with Minamoto Risa anyway, so going to Tokyo and heading straight to the airport would be pretty good.</p>
-<p>Ryuta: Sounds good. Let's hang out in Tokyo.</p>
-<p>MONA-RISA: Okay~. You have a good vacation too. I think I'll be busy preparing for college.</p>
-<p>Minamoto Risa was studying hard to get into Edo University, the best university in Japan. She was ranked second in the entire school in the last exam, the second semester exam, so she was skilled enough to go to Edo University.</p>
-<p>Being ranked second in the entire school at St. Francisco Girls' Academy, which could be considered a prestigious school, was a pretty good score.</p>
-<p>In fact, St. Francisco Girls' Academy, where you could naturally advance to St. Francisco Women's University, didn't really have an atmosphere where people studied that hard.</p>
-<p>However, there were many daughters of prestigious families who valued education, so the top students aimed for studying abroad or prestigious universities in Japan, so the level was by no means low. No, rather, the prestigious college prep class had intensive classes with excellent teachers prepared through enormous capital, so the level could be considered the top in the country.</p>
-<p>Ryuta: You have good grades, so you can definitely do it. Don't forget that I'm always cheering you on, and let's hang in there a little longer.</p>
-<p>MONA-RISA: Okay, thank you.</p>
-<p>I finished chatting with Minamoto Risa on the encrypted app and put my phone away. I was walking while chatting, and I've almost arrived. Today was the Jeseodang's information report.</p>
-<p>I had requested some information, so I was heading to a temporarily prepared conference room with Naruse Shiyo, Alik, Otagi Yuka, and Saionji Diana to hear the report on the first investigation.</p>
-<p>For reference, Sakagami Rena couldn't make it because she had a family gathering in the evening. Sakagami Rena was one of the executives of the Jeseodang, but she said she was going to see her family after a long time, and since Asada Ei would give the overall report anyway, I sent her to her family.</p>
-<p>"Sensei~! That's the building!"</p>
-<p>Naruse Shiyo pointed to a slightly old three-story commercial building. We rented the office for just one day for the information meeting. I gave the building owner three days' rent for renting it for one day, and he readily agreed.</p>
-<p>The office we rented was an empty office on the third floor. When I went inside, Asada Ei, the information agent of the Jeseodang and the one who was practically leading the Jeseodang, was waiting for us.</p>
-<p>Asada Ei, with her very light bluish-ice-colored hair, pale skin, and expressionless face, bowed her head to me.</p>
-<p>"Ryuta-nim, have you arrived? I checked in advance to see if there were any bugs, and it's clean."</p>
-<p>As winter came and the temperature dropped, Asada Ei, a snow woman, was able to be more active, so we had a face-to-face meeting instead of a hologram meeting.</p>
-<p>There was no way there would be any bugs, but I still had to check. Security was important because sensitive information could come out during information meetings.</p>
-<p>"Ei-ssi, have you eaten?"</p>
-<p>I sat in the seat of honor and asked Asada Ei. Asada Ei nodded with a slightly cold expression, as befitting a snow woman.</p>
-<p>"I'll give you the report first."</p>
-<p>"Yes."</p>
-<p>"I'll start with the investigation into Takakusaki Athena that you ordered first."</p>
-<p>Takakusaki Athena suddenly appeared in Anyaji, and I was curious about the origin of Takakusaki Athena's ability to suppress the Abyss, so I used the Jeseodang to investigate.</p>
-<p>"First of all, we couldn't track down Takakusaki Athena. The Jeseodang judges that she has a psychic power to hide her presence."</p>
-<p>"I also got the impression that she had a vague presence when I saw her at the dojo that time. Is that a psychic power?"</p>
-<p>Otagi Yuka agreed with Asada Ei and added to the story. Personally, I didn't feel like I couldn't feel her presence or that she had a vague presence. Is it because of the Abyss I have?</p>
-<p>When I nodded as if to tell her to continue, Asada Ei opened her mouth again.</p>
-<p>"So, instead of chasing Takakusaki Athena, we decided to find out about Takakusaki Athena herself first. If you look here...."</p>
-<p>The screen that Asada Ei displayed was Takakusaki Gengo's family register. The name of Takakusaki Athena, which was written as adopted below Takakusaki Gengo, was written there.</p>
-<p>"The registration date is 2040, during the Third World War. It says that Takakusaki Athena, who was 8 years old at the time, was adopted."</p>
-<p>2040 is 13 years ago.... Then her actual age is 21? She's one year older than me.</p>
-<p>"And if a foreign girl was adopted, I thought there would be a record of her going abroad, so I checked the flight records at the time, but it didn't come out."</p>
-<p>"Then was she adopted by a Japanese organization?"</p>
-<p>"That's not it. As a result of comparing the data of adoption organizations in Japan at the time with the data from when Takakusaki Gengo adopted Takakusaki Athena, no data was found."</p>
-<p>According to Asada Ei, Takakusaki Athena is an adopted child who fell from the sky, but does that make sense?</p>
-<p>"That's strange."</p>
-<p>"We thought so too, so we investigated from a different angle. When I checked Takakusaki Gengo's data, this data came out."</p>
-<p>Asada Ei said she thought the same when I said it was strange, and she showed another piece of data on the screen. It was a document with a red stamp that read Level 2 Secret, and the document had a picture of Takakusaki Gengo, stating Takakusaki Gengo, Deputy Commander of the Special Task Force (特殊任務団).</p>
-<p>"Takakusaki Gengo seems to have been working for the government doing assassination missions during the World War. He has a martial arts skill that can be called psychic power, and he doesn't need a gun to kill people, so the Japanese government seems to have killed those who expressed opinions against the Japanese government in enemy or allied countries."</p>
-<p>I didn't know that Takakusaki Gengo was from the government. I thought he stole Senkaiyatsude and locked himself in a mountain to practice martial arts, but it seemed that he had been traveling around the world, killing people with martial arts and honing his skills.</p>
-<p>As expected, it was a move worthy of the leader of Anyaji. Honing his martial arts by killing people.</p>
-<p>"Since his activity period is until 2041, it seems that he left the Special Task Force not long after adopting Takakusaki Athena. This is all the data we have investigated so far."</p>
-<p>"You've investigated quite a bit in a short amount of time. Thank you for your hard work."</p>
-<p>I didn't get the information I asked you to find out, but it was pretty amazing to gather this much information in just a week.</p>
-<p>"We haven't collected all the information Ryuta-nim ordered yet, so we will continue to track the information."</p>
-<p>"Yes, please continue to track it. Then what's the next information...?"</p>
-<p>"Then I will explain the trends of the Taira successors that you requested second."</p>
-<p>The second semester ended today, and the third semester was even shorter, so the time for me to leave St. Francisco Girls' Academy was approaching. So now I needed to know how the succession structure within the Taira family was going.</p>
-<p>That's why I asked the Jeseodang to investigate. Investigating the Taira Group itself could be a bit dangerous, but figuring out the trends of the successors was easy enough, so I decided to dig into that.</p>
-<p>"First of all, Taira Jiro, who unknowingly joined hands with Minamoto Group's Kanzawa at the last Human Resources Development Center, has been lying low for a while and has started working again. He has been confirmed to have regained his position as president of Taira Steel, which had been temporarily taken away, by consolidating his power and successfully completing several missions for Taira Danjo-nim."</p>
-<p>Taira Jiro, who was about to be completely eliminated from the succession structure because he was initially deceived by the Minamoto spy, showed his skills and seemed to have returned to the axis of the succession war.</p>
-<p>"Since he is Taira Jiro who owns steel, he may reach out to Ryuta-nim, who owns Hatake Mining, and ask for cooperation. Or...."</p>
-<p>"If I'm easy, he'll try to swallow the entire Mithril mine."</p>
-<p>Taira Jiro had no choice but to approach me because he had a steel company. As I own the largest Mithril mine in Japan, he had no choice but to covet it. Of course, whether we cooperate or fight will depend on what Taira Jiro does, but I was thinking of cooperating first.</p>
-<p>Because Taira Ichiro's power was so great, I thought it would be better to oppose Taira Ichiro rather than fight unnecessarily.</p>
-<p>"That's right. Hiding your power is a good way, but you need to show enough power that the other person can't ignore you."</p>
-<p>"Let's think about that later at the general meeting."</p>
-<p>Of course, I was thinking of revealing some things. But I hadn't decided how much of my power to reveal, so I decided to decide on this topic later after a meeting with all my close aides.</p>
-<p>____</p>
-<p>Asada Ei</p>
-<p>Kkigyok!</p>
+<p>"First... I'll compare the tastes and then decide."</p>
+<p>I said, looking at the two pussies in front of me. Ha Ju-yoon-ssi's pussy, waxed smooth as an actress, and Nae Fitzgerald-ssi's naturally hairless pussy were both dripping with wetness, anticipating the stimulation I would give them.</p>
+<p>I decided to start by tasting Ha Ju-yoon-ssi's pussy, since she had sucked my dick first.</p>
+<p>Nalrum...!</p>
+<p>"Haaheueu...! Yong-tae-yaaaahng♥"</p>
+<p>As I licked her clit and labia, stimulating her, Ha Ju-yoon-ssi couldn't help but let out a seductive sound. Ha Ju-yoon-ssi's slippery, sticky juices had such a sexy taste that it made me hard just by touching them with my tongue.</p>
+<p>It was a taste concentrated with female pheromones. It wasn't an unpleasant smell, even though it was concentrated. Rather, it was an intoxicating fragrance. It was like there was a subtle floral scent.</p>
+<p>The words "rich and deep" were perfect to describe the taste and scent.</p>
+<p>"Nice, Noona."</p>
+<p>"Heueuheung...! Me too, jyeoaahang...♥"</p>
+<p>Next was Nae Fitzgerald-ssi. As Arisu's mother and the very active phantom thief, François, her body was slightly firmer than Ha Ju-yoon-ssi, who only exercised for beauty purposes. Her pussy mound also felt a little smoother.</p>
+<p>Nalrum...!</p>
+<p>"Hiaaaahng! Ryuta's tongue, heueut...! Jyoaahang♥"</p>
+<p>Nae Fitzgerald-ssi's juices were slightly thinner than Ha Ju-yoon-ssi's. Maybe it was because she stole and ate a lot of good stuff as a phantom thief, but it had a citrusy scent.</p>
+<p>"Heueueu...! How does it heueut, tasteee? Haaheut!"</p>
+<p>"They both taste different, but I can't pick a winner."</p>
+<p>I wiped my mouth with the back of my hand in response to Nae Fitzgerald-ssi's question. In that case, I'd have to pick someone to go first in another way.</p>
+<p>"I'll start with my aunt Nae, who came all the way from America."</p>
+<p>I chose Nae Fitzgerald-ssi as the first person to go with me. She had come a long way on a plane from America, and she had a deal with me today, so I needed to give her some hospitality.</p>
+<p>"Kyaa~! That's Ryuta for you!"</p>
+<p>"Yong-tae, whatyaa...!"</p>
+<p>Of course, Nae Fitzgerald-ssi was as excited as if she had won the lottery at my words, and Ha Ju-yoon-ssi was slightly disappointed. I opened my mouth to appease Ha Ju-yoon-ssi.</p>
+<p>"We're not Swedish, we have to treat our guests. She came all the way from America."</p>
+<p>It was strange to have sex first as a form of hospitality, but Ha Ju-yoon-ssi nodded in agreement after hearing my words.</p>
+<p>"Okay. We have to treat our guests."</p>
+<p>While Ha Ju-yoon-ssi and I were talking, Nae Fitzgerald-ssi climbed onto the bed and lay down, looking at me. Her eyes were full of anticipation for sex with me after a long time.</p>
+<p>"Haa.... I was ready while Ryuta was licking, so hurry... put it in♥"</p>
+<p>The way she was swaying her hips as she spoke was quite seductive. I hadn't been licking her pussy for very long, but she was already dripping with juices like drool, wanting my dick, so it seemed like foreplay wouldn't be necessary.</p>
+<p>I grabbed my dick and aimed it at Nae Fitzgerald-ssi's pussy. Nae Fitzgerald-ssi's pussy, which had been narrowed from not being with me for a long time, widened and accepted my glans.</p>
+<p>"Haaheueueut! This is it, haaahng♥"</p>
+<p>She was so happy just with my glans inside.... Nae Fitzgerald-ssi was already reaching her climax, probably because she was already aroused enough from having her pussy stimulated with my tongue just now.</p>
+<p>"Do you like it after a long time?"</p>
+<p>"Yeah, heueut! I like it so much, haaaahng...!"</p>
+<p>As I slowly pushed my dick in, asking if she liked it, Nae Fitzgerald-ssi answered, fully feeling the dick digging into her insides.</p>
+<p>"Heueu, heueung, do you like eating auntie's pussyaahang♥?"</p>
+<p>Nae Fitzgerald-ssi hugged me and started whispering lewd words in my ear. My dick reacted strongly inside Nae Fitzgerald-ssi at her dirty talk, making her react with a kyaahang, but it was nothing compared to the excitement I was feeling.</p>
+<p>"Yes, auntie's pussy is delicious...."</p>
+<p>"Heueut, Bon appétit♥ Haaheut...!"</p>
+<p>Bon appétit.... It seemed like she mixed in some French because my late aunt's mother, my third grandmother, was of French descent.</p>
+<p>She told me to enjoy it, so I should indulge to my heart's content. I started shaking my hips more and more vigorously, which I had been doing slowly until now. As I shook my hips vigorously, Ha Ju-yoon-ssi, unable to hold back any longer, started sucking my neck and licking my nipples.</p>
+<p>My nipples weren't really an erogenous zone, but it felt pretty good when Ha Ju-yoon-ssi licked them lewdly, playing with her tongue, when all my senses were heightened by the sex.</p>
+<p>"Haaheue, haaheut! Heueut! Nephew's hyaat...! Big sexy dick...! So heueut! Full, haaaat♥"</p>
+<p>"I like how auntie's pussy also euueut, bites down tight...!"</p>
+<p>Cheolssuk! Cheolssuk! Cheolssuk!</p>
+<p>The sound of flesh hitting flesh and lewd words that shouldn't be heard fill Ha Ju-yoon-ssi's bedroom. Nevertheless, I didn't hold back and continued to shake my hips vigorously.</p>
+<p>"Hyaheut! Heueu...! Too heueung, hard...! My heueung♥ pussy inside is changing...! Haaheuheung...! It's changing to be exclusively for nephew's heueut, perverted dick♥"</p>
+<p>"Perverted dick.... It's a little big, but my dick isn't a pervert. I'm the pervert."</p>
+<p>"Haaheueueheung...! It is a perverted dick...! It corrupts women, heueueeut! Perverted dick! Haaheut♥ I'm going with a perverted dick, aaaaahng...!"</p>
+<p>Nae Fitzgerald-ssi rolled her eyes and reached a huge climax while calling it a perverted dick. It was such a huge orgasm that she went limp and collapsed.</p>
+<p>"Looks like our guest had her fill. I think it's Noona's turn now."</p>
+<p>"Heueung, I was already heueut.... Having a hard time holding back♥"</p>
+<p>I picked up Nae Fitzgerald-ssi, who had fainted for a moment from excessive pleasure, and moved her to one corner of the bed. Ha Ju-yoon-ssi quickly lay down in the spot where Nae Fitzgerald-ssi had been and looked at me with a seductive expression.</p>
+<p>"Yong-tae-aaa...! Right, come right here...♥"</p>
+<p>I immediately pushed my dick into Ha Ju-yoon-ssi's hot pussy, which was already ripe from watching my sex with Nae Fitzgerald-ssi.</p>
+<p>Ha Ju-yoon-ssi had asked me to put it in right away, but it was also to continue the flow since Nae Fitzgerald-ssi had fainted while I was shaking my hips.</p>
+<p>"Eueueheung, Yong-tae-yaaahng...! Yong-tae's dick heueut...! So big♥"</p>
+<p>"Is it too big?"</p>
+<p>"Heueu...! No, haaheung, haaheut...! I like it because it's big, haahng♥"</p>
+<p>It seemed like she was feeling a bit of pressure from the presence of my dick that had entered after a long time, but rather, Ha Ju-yoon-ssi seemed to be enjoying that full feeling.</p>
+<p>Cheolssuk! Cheolssuk! Cheolssuk!</p>
+<p>Along with the sound of flesh hitting flesh, I could see Ha Ju-yoon-ssi's huge breasts shaking. The sight of her beautiful breasts shaking gave men a sense of fulfillment, or rather, there was something about it that made it impossible to take your eyes off it.</p>
+<p>I shook my hips at a constant speed to keep watching Ha Ju-yoon-ssi's breasts shake.</p>
+<p>I definitely felt a difference when I put it in Ha Ju-yoon-ssi right after Nae Fitzgerald-ssi. Nae Fitzgerald-ssi felt like she was squeezing my dick evenly, while Ha Ju-yoon-ssi felt like she was squeezing in certain spots amidst the softness.</p>
+<p>Of course, they were both top-notch pussies that were impossible to rank. That's why I'm enjoying myself so happily right now.</p>
+<p>Unable to resist the breasts shaking and seducing me in front of my eyes, I grabbed her breasts with both hands. The soft feeling filled my hands, and I could see her flesh spilling out between my fingers.</p>
+<p>"Haaahng! Doing my breasts and heueut...! Down there at the same time...! I think I'm going to go crazy♥"</p>
+<p>"Down there?"</p>
+<p>"Heueung, my pussy! Haaheut! Yong-tae is tormenting my breasts and pussy at the same time! Haaheut! I'm only going to know Yong-tae's dick, heueung...! Trying to make me a fool, heueut!"</p>
+<p>I don't know why this former married woman and current married woman are saying so many dirty things today. Are they trying to excite me?</p>
+<p>Of course, I was excited by Nae Fitzgerald-ssi and Ha Ju-yoon-ssi's words, and despite having already cummed twice in a row from paizuri and fellatio, I started to feel like I was going to cum again.</p>
+<p>Chyuup...!</p>
+<p>"...!"</p>
+<p>Nae Fitzgerald-ssi, who had come to her senses at some point, started licking my ass as if to tell me to hurry up and cum and put it in her next.</p>
+<p>"Heueu...! It got bigger! Haaheut, I'm going to cum, haaheut! Yong-tae's dick, haaheut! Heueung, so heueung...! Jyoaahang, jyeoaahng♥"</p>
+<p>Ha Ju-yoon-ssi's pussy was wriggling, starting to prepare for her climax, and the pleasure of Ha Ju-yoon-ssi's pussy tightening and Nae Fitzgerald-ssi licking my ass overlapped, and the feeling of cumming that had been slowly rising reached the top of my head.</p>
+<p>"I'm going, I'm going, I'm going to cum...!"</p>
+<p>"Keueueuk...! I'm going to cum, Noona...!"</p>
+<p>We climaxed almost at the same time. Ha Ju-yoon-ssi's pussy wriggled violently as if welcoming my semen, and I also poured my semen violently into Ha Ju-yoon-ssi's insides with buueuk buueuk!</p>
+<p>"Haaheueheueu...! It's hot inside...♥ I love the warm, full feeling when I'm with Yong-tae...."</p>
+<p>Ha Ju-yoon-ssi, who was accepting my semen, said with eyes blurred by pleasure. Nae Fitzgerald-ssi, who had stopped caressing my butt at the same time as I cummed, was also standing next to me, nodding in agreement.</p>
+<p>"It's true that our Ryuta's semen is warm and nice. I also want to quickly receive Ryuta's warm semen inside...♥"</p>
+<p>She said she wanted to receive it inside quickly, which was subtly, no, openly dirty talk. It was so dirty that my dick, which was slowly losing strength from cumming for the third time, started to regain its strength.</p>
+<p>"Haaheut...! Nae's dirty talk made Yong-tae's dick bigger inside...!"</p>
+<p>"Oh, really? Ehehe, I'll be able to receive it right away. This time, please do it doggy style~!"</p>
+<p>This time, Nae Fitzgerald-ssi was tempting me by getting on all fours in a doggy position. It's true that you have to change positions every time to not get bored.</p>
+<p>I pulled my dick out of Ha Ju-yoon-ssi's pussy to answer Nae Fitzgerald-ssi's request.</p>
+<p>Jureureuk...!</p>
+<p>When I pulled my dick out, white milky liquid flowed out of Ha Ju-yoon-ssi's pussy. The sight of the semen I had cummed flowing out of her pink hole was very sexy. It was the perfect cream pie that I wanted to capture in a photo.</p>
+<p>"I'll do both of you until you're sick of it today."</p>
+<p>""♥""</p>
+<p>Ha Ju-yoon-ssi and Nae Fitzgerald-ssi blushed and smiled brightly at my declaration. I grabbed Nae Fitzgerald-ssi's hips and pushed my dick in to fulfill their expectations.</p>
+<p>_____</p>
+<p>Nae Fitzgerald-ssi B-cut!</p>
+<p>Ha Ju-yoon-ssi B-cut!</p>

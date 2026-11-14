@@ -5,63 +5,81 @@ weight = 872
 chapter = 872
 +++
 
-<p>are before check erotic illustrations in included please surroundings this your</p>
-<p>Today, during counseling, since I told Urabe Konoka I would give her a good Bow, I also thought I should get equipment for Konoe Akina, who overlaps as both a Combatant and a non-Combatant. This was because other Students had their own Combat equipment, but Konoe Akina didn't have such a thing.</p>
-<p>After a long time, I turned on the Am-sang App. Actually, for armor, I could just get a Cyber Suit or Power Armor made by some military contractor, but since I decided to search for Weapons a bit more carefully, I first turned on the Am-sang App to check.</p>
-<p>First, I searched for Bows and scrolled up, checking if any good Items had been uploaded. Hmm.... As expected, there aren't many good ones. Actually, even in Games, the Bow was a very minor Weapon.</p>
-<p>Unlike other Fantasy-genre Games where Bows are treated quite well, this World was a Cyberpunk Worldview, so there were many superior alternative Weapons to the Bow. Even its sole advantage, low Noise, faded with the advent of Energy Weapons, so it couldn't be boasted as an advantage. Therefore, going for a Bow build was no different from going for a self-imposed hell Difficulty.</p>
-<p>"Here it is."</p>
-<p>Of course, the Bow from the company called Bow &amp; Cross that I just found was different. Bow &amp; Cross was a company solely dedicated to Bows and Crossbows, and could be called the sole Light for Bow and Crossbow build Users. Along with excellent Performance, it also sold special Arrows that could produce various Effects, allowing for utility.</p>
-<p>Of course, one could directly purchase Bows from Bow &amp; Cross without going through Am-sang, but since Bow &amp; Cross used a custom-order system, if I ordered now, I wouldn't know when it would arrive. On the Am-sang App, existing Products are uploaded, so I could receive them immediately after waiting for the delivery period. That's why I checked the Am-sang App before ordering from Bow &amp; Cross.</p>
-<p>Moreover, what was currently uploaded was the highest-tier Line available, and perhaps someone from the company had embezzled it, or Bow &amp; Cross had handed over a few for their Relationship with Am-sang.</p>
-<p>I immediately paid an additional fee to change standard shipping to the fastest shipping, then pressed the purchase Button. An estimated two days for delivery.... The seller was in the USA, and two days was an incredibly fast delivery speed. It was worth paying an extra 500 Points.</p>
-<p>Next was an Item that Konoe Akina could use.... Actually, for Konoe Akina, I just needed to Spam her with TG Tech's Products for Defense, so there wasn't much worth buying from Am-sang. However, from my Memory before Possession, a few Items that Maan Characters almost necessarily used often appeared on Am-sang, so I was checking the Am-sang App just in case.</p>
-<p>"Oh?!"</p>
-<p>Indeed, a similar Item to what I had thought of was uploaded. It was a pair of round-rimmed Glasses, and even the Explanation that it was a grave good found in a European Grave was identical.</p>
-<p>Since round-rimmed Glasses were such a common Style, even High-level players could make a Mistake, but this Time, I had a Premonition that these Glasses were indeed what I was looking for. Again, like with the Bow just now, I paid additional shipping and clicked purchase for the fastest delivery. This way, the shipping cost was more expensive than the 350-Point Glasses, but if my thought was correct, this Item was an Artifact of immeasurable Value to a Maan Ability User, so the Am-sang Points were not a waste.</p>
-<p>Next was ordering Cyber Suits for several Students for the upcoming Battle. Actually, there were quite a few Students who had Cyber Suits, but for the Students who followed me, it was an Investment that had to be made anyway, so I planned to produce Cyber Suits made of Mithril alloy for them.</p>
-<p>"I'll have to ask the Kids about their desired Design or functions."</p>
-<p>Since most of the Students had different Combat Styles, I posted a Text in the Line Room I had separately created for the Battle with Anyaji.</p>
-<p>-Ryuta: To prepare for this Battle, I'm thinking of making Cyber Suits for the Friends in this Room. If you each have a desired Design or function, let's hear it.</p>
-<p>As soon as I posted the Text on Line, the Chat started to appear.</p>
-<p>-Seizawa Shii: I want a flashy Style, like the one I'm wearing today!</p>
-<p>-Saionji Diana: I'd like it to be compatible with my Cyber Implants~!</p>
-<p>-Sakagami Rena: It would be great if there were many storage spaces!!</p>
-<p>-Alik: Alik likes pretty things.</p>
-<p>They were the special class Students, each stating their desired Design or functions. Since there were quite good Ideas among the conditions desired by the actual Users, I conveyed all the Demands to TG Tech.</p>
-<p>For reference, I didn't mention this support to Taira Kanna's side, who had agreed to Help. This was because if Taira Kanna's subordinate Combatants wore TG Tech's Products, it could be perceived with a different Meaning. And since the Cyber Suits of the Disciplinary Committee, equipped by Nakanoin Rina and Muko Neika, were already such high-spec, cutting-edge Equipment, there was no need for us to specifically give them any.</p>
-<p>Thursday was Uenozono Karen and Alik's career counseling, and nothing special happened. Uenozono Karen, whose Graduation had been decided and who rarely came to School due to her Entertainment Industry Schedule, literally only did career counseling and then left for her Schedule.</p>
-<p>The counseling with Alik turned into 'Alik Cuddling Time' as Alik sat on my Knee during the counseling, so I couldn't really do proper counseling, just stroking her or stretching her Cheeks. However, for me, it was a very healing Time.</p>
-<p>The next day, Friday, counseling with Konoe Akina and Saionji Diana was scheduled.</p>
-<p>"Hello, Teacher-nim."</p>
-<p>Konoe Akina, who entered first, greeted me with her usual bright Expression and sat down in a neat posture.</p>
-<p>Actually, Konoe Akina was different from other Students. Unlike other special class Students with the Status of a Young Lady of the ○○ Family, Konoe Akina was the Family Head of the Konoe Family. Actually, this Status was unique at St. Francis Girls' Academy. Even Minamoto Lisa or Taira Kanna couldn't compare to Konoe Akina, the Master of a Family. Even Daigo Terue, the Headmaster, was officially lower than Konoe Akina.</p>
-<p>Therefore, establishing the Relationship with Konoe Akina after Graduation was important. Because Konoe Akina's support was the same as the Konoe Family's support, if the Konoe Family openly supported me for no reason, they could suffer great Harm. Therefore, I thought subtle support would be good, and I had already sufficiently exchanged this thought with Konoe Akina.</p>
-<p>"Is it alright for you to participate in this Battle?"</p>
-<p>"Actually, although my Combat power isn't much, I want to be of Help to Teacher-nim and my Friends. And as Konoe Family Head, if I'm helping the Young Ladies of other noble Families and Teacher-nim, I think it's not a bad Choice, considering the Future."</p>
-<p>To my Question, Konoe Akina answered that she would participate in the Battle without a moment's Worry. Although Konoe Akina's direct Combat power was weak, she boasted tremendous Power as a supporter.</p>
-<p>In fact, when Jinildang's former Boss, Kurayama Kazuma, who was stronger than me, transformed into the Avatar of the Outer God, the Sunken One, we were able to win thanks to Konoe Akina's support with her Maan. That's how strong the Maan's support Ability is.</p>
-<p>"I'd be grateful if you think that way. Still, you should be careful with your Body. I'll Request your rear support."</p>
-<p>"I'm also practicing Marksmanship, so I'm sure I'll be of Help!"</p>
-<p>Konoe Akina had mentioned that she had been practicing Marksmanship with TG Tech's Energy Gun since last Time. Actually, Maan and Marksmanship couldn't have bad Compatibility. This was because Maan Ability Users have good basic eyesight and Eye Specs, which is very helpful for Marksmanship.</p>
-<p>Although she was currently a Maan one-trick since she hadn't started Marksmanship long ago, Konoe Akina could achieve considerable Performance in Marksmanship if she acquired a few Skills and Traits. Since she had the Qualities to become at least an A-Rank Combatant, her Future was anticipated.</p>
-<p>"Still, Safety is paramount, so Akina's Cyber Suit will be the Cyber Suit with the most Investment in Defense."</p>
-<p>As it happened, TG Tech was developing a defensive Cyber Suit for VIPs, so one of those prototypes would be provided to Konoe Akina. For TG Tech too, this Battle with Anyaji was a golden Opportunity to collect Data. Of course, since Anyaji didn't use Guns, they couldn't obtain Gun-related Data, but because it was a Fight with Anyaji's martial artists, who could be called Superhumans, they could obtain Superpower Defense Data. TG Tech providing expensive Cyber Suits to special class Students was not a Loss.</p>
-<p>"You have Time today, don't you?"</p>
-<p>"Today? I have Time. What's the Matter?"</p>
-<p>Today was the day Urabe Konoka's Bow from Bow &amp; Cross and the Glasses for Konoe Akina were arriving, so I asked with the thought of giving them as Gifts immediately to both of them.</p>
-<p>"Ah, there's a Battle-related Gift.... Come to my Home later with Urabe."</p>
-<p>"A Gift?"</p>
-<p>Konoe Akina seemed not to have heard the part about 'Battle-related' and was extremely happy at the mention of a Gift. Urabe Konoka was also very happy, so I guess I should give the Kids Gifts occasionally.</p>
-<p>I briefly reflected, wondering if the Kids were so happy because I didn't give Gifts often enough. I should give them more often in the future, and with that small self-reflection, I ended the counseling with Konoe Akina.</p>
-<p>Requested by Hwanbuljeoldae-bulga-nim: Rina and Home Ec Teacher's Tank Top Belly button + Dolphin Shorts + armpit image~!</p>
-<p>Starting with Lisa-ttang~!</p>
-<p>Home Ec Teacher</p>
-<p>I chose ones with as consistent a Size as possible hehe.</p>
-<p>Requested by Hogamyudonggolbaengi-nim: Urabe Konoka's oriental-patterned Swimsuit images. Since four were requested, I arbitrarily chose two: a Management Swimsuit and a bikini hehe.</p>
-<p>Management Swimsuit~!</p>
-<p>Bikini~!</p>
-<p>Requested by TheDreaming-nim: Seizawa Shii captured, with an IF Story feel, and an illustration of Alik, the IF Story mid-Boss, trapped~!</p>
-<p>Starting with Seizawa Shii~!</p>
-<p>Mid-Boss Alik~!</p>
-<p>Alik became too Dark while being made hehe.</p>
+<p>"As I told you before, please take good care of my Daughter, Teacher-nim."</p>
+<p>"Please take good care of her."</p>
+<p>Sakagami Ginshiro and Sakagami Shiine, Sakagami Rena's Parents, approached me, asking me to take good care of their Daughter, and gave me a luxury specialty gift set from the Sakagami Family's main family in northern Kyoto, then left with Sakagami Rena. Sakagami Rena mouthed 'See you soon, Liege/Master' to me, then went to have lunch with her Parents.</p>
+<p>"It's a pleasure to meet you, Teacher-nim."</p>
+<p>"Hello, Father-nim."</p>
+<p>Next, I met and greeted Shido Atashi, Shido Tsubaki's father, who serves as the Political Department Editing Director-General of Shido Newspaper Company, and also received a gift set. For reference, the gift set was fruit.</p>
+<p>Having met the heads of various families until now, Shido Atashi, who wasn't a company representative or a family head, felt a little humble, but Shido Newspaper Company was the third-largest newspaper company after Minamoto and Taira, and even owned a terrestrial national broadcasting company, so the Political Department Editing Director-General of Shido Newspaper Company was by no means an opponent to be ignored.</p>
+<p>After exchanging greetings with Shido Atashi, the next person was Kujo Kazuo, who could be called Kujo Kina's Older Brother. In fact, by order, he should have come to me around the same time as Seizawa Eiji, but he had been busy taking Photos of his younger sibling and only just arrived.</p>
+<p>"You introduced my younger sibling to her Sabu, didn't you? Thank you for all the conveniences you've provided."</p>
+<p>Kujo Kazuo greeted me with a relaxed attitude, unlike the other parents I had met so far. Among Japan's top five chaebol groups, Kujo Kazuo was the only designated Successor, while the others had not yet decided theirs.</p>
+<p>Because his position was stable, he didn't have that peculiar distorted feeling characteristic of chaebol successors engaged in succession battles. He was more like a generous and good-natured neighborhood Older Brother.</p>
+<p>"Not at all. It's naturally my job as a Class Teacher."</p>
+<p>"Is that so? Here, take my Business Card. Contact me if you ever have a hard time. Can I take my younger sibling now?"</p>
+<p>In a way, Kujo Kazuo had given the most valuable gift. A Business Card officially given by the legitimate Successor of the Kujo Group was by no means inferior to a mere gift set. Of course, in addition to the Business Card, his secretary separately provided a gift set. For reference, the gift was a luxury cookie set.</p>
+<p>"Teacher~! You worked hard! See you next time!"</p>
+<p>Kujo Kina, leaving with Kujo Kazuo, waved her Hand at me and shouted. I also waved back at Kujo Kina.</p>
+<p>Next to arrive was Urabe Konoka's nominal adoptive father, and after him, Naruse Shiyo's father, Naruse Koyou. Naruse Koyou, like Sakagami Rena's father Sakagami Ginshiro, greeted me, asking me to take good care of his Daughter, and left with Naruse Shiyo, while I only exchanged perfunctory greetings with Urabe Konoka's adoptive father.</p>
+<p>The next person to arrive was Alik's adoptive mother, Egawa Shiho.</p>
+<p>"Thank you for introducing me to such a cute Daughter, Teacher-nim."</p>
+<p>"Thank you for cherishing Alik, I truly appreciate it."</p>
+<p>Egawa Shiho cherished Alik as if she were her own biological Daughter, so I also thanked her respectfully. After exchanging greetings, Egawa Shiho took Alik to eat. I felt a little sorry that I wouldn't see Alik often if she followed me now. For reference, she said she would send the gift later through Alik.</p>
+<p>"Teacher-nim, thank you once again...!"</p>
+<p>Konoe Minako, Konoe Akina's Mother, held my Hand and repeatedly thanked me. Konoe Akina's Mother had every Reason to be grateful to me. I had saved Konoe Akina from being sold as a slave, and thanks to several people I introduced, Konoe Akina had become the head of the Konoe Family.</p>
+<p>Next, Uenozono Karen's Parents came to greet me, and they looked quite tired, perhaps because many people had come to ask for their Daughter's autograph due to her popularity.</p>
+<p>After receiving greetings from the parents, Daigo Terue, who arrived the latest, also thanked me for saving her Daughter, who had been a hikikomori.</p>
+<p>"Teacher-nim~! I'll see you again with Mom!"</p>
+<p>"Alright, have a delicious lunch."</p>
+<p>After greeting Oofuchi Erika, I approached Otagi Yuka, who was standing alone.</p>
+<p>"Today, I'll be your dad."</p>
+<p>The Otagi Family was the only one whose parents did not participate in St. Francis Girls' Academy's Graduation ceremony and thus did not greet me. So, I playfully offered to be Otagi Yuka's dad.</p>
+<p>"Ugh, Teacher-ssi as my dad? Disgusting. I'm fine, so go take Photos with the fans waiting over there."</p>
+<p>Otagi Yuka pretended to vomit, as if saying it was disgusting, then pointed to one side. On that side, the Female Students who had taken my Korean language class and the graduating students who had belatedly become my fans (?) were waiting for me with sparkling gazes.</p>
+<p>Well, broadly speaking, they could also be called my Students, so taking Photos should be fine. Otagi Yuka would be with Saionji Diana, so she wouldn't be lonely, and I thought I might as well go for a moment.</p>
+<p>"Kyaaah, Teacher-nim~!"</p>
+<p>"Please take a Photo with us!"</p>
+<p>After taking Photos with the Students, who were practically screaming because it was the last day, I returned to where Otagi Yuka and Saionji Diana were waiting.</p>
+<p>"Let's eat something delicious too."</p>
+<p>"Today, the graduating families must have reserved all the good restaurants near Miyashi. Where are we going to eat? Are we ordering in?"</p>
+<p>At my words, Otagi Yuka replied with a slightly grumbling voice. Her attitude showed she was pretending to be fine, but she still seemed a little disappointed that her parents hadn't come.</p>
+<p>"No, I anticipated this and made a Reservation in advance."</p>
+<p>"Oh, really?"</p>
+<p>I had expected that Otagi Yuka and a few other students' parents wouldn't come, so I also reserved a restaurant for the Students. However, the place I reserved was a place with a bad history with me.</p>
+<p>"Here."</p>
+<p>When I showed the location on my phone, Otagi Yuka and Saionji Diana looked at me dumbfounded.</p>
+<p>"Teacher-ssi, don't you remember getting kidnapped after going here?"</p>
+<p>"That's right, why are we coming here?"</p>
+<p>The place I chose was that very Japanese restaurant where I had gone with Taira Kanna, been given an Anesthetic, and kidnapped. Seeing that Taira Kanna had used it as the location for my kidnapping, it seemed to be connected to the Taira side, so I thought there was no need to worry anymore. Besides, the taste was good when I ate there before.</p>
+<p>"It was so delicious I fainted."</p>
+<p>"You really fainted from the drug!!"</p>
+<p>Seeing her immediately tackle my playful jest, she's full of energy. No need to comfort her further.</p>
+<p>"It has delicious food, and I'm meeting old man Danjo there.... So we have to go."</p>
+<p>"Ah.... Is that how it is?"</p>
+<p>"If that's the case, it can't be helped."</p>
+<p>Of course, I didn't make the Reservation without any thought. I was meeting Taira Danjo to finalize the details of my Mission. Since it was a restaurant similar to a Taira safe house, I could meet him in secret, so I decided to have a meal while I was there anyway and made the Reservation.</p>
+<p>"Then, let's go to the Parking Lot."</p>
+<p>"Okay. Thank you, Teacher-ssi."</p>
+<p>"Let's go quickly, Teacher-nim~!"</p>
+<p>To prevent other Students or anyone from recognizing my vehicle, the car Taira Kanna had prepared was in the staff Parking Lot. The Mission was practically over, but I still had to consider security until the very end.</p>
+<p>Since most of the Students and faculty had already left school by the time I finished taking Photos and talking with the Students, we carefully went to the staff Parking Lot, got into the vehicle Taira Kanna had prepared, and headed to that restaurant from before.</p>
+<p>Seiwa Rieko entered St. Francis Girls' Academy wearing her School Uniform, which she hadn't yet discarded. Even if security was tightened due to the high-ranking Japanese parents attending the Graduation ceremony, no one could stop Seiwa Rieko, a former St. Francis Girls' Academy student with a genuine Student ID.</p>
+<p>Seiwa Rieko entered a building with a good view of the main athletic field and sat by the window. And she looked at only one place. It was the spot where the special class, which she had been a part of a few months ago, was lined up. Seiwa Rieko herself didn't know why she had come here. She just seemed curious about what kind of expressions her former Friends would make at the Graduation ceremony.</p>
+<p>"That person is the new Class Teacher...."</p>
+<p>Even from a distance, he was a Teacher with such outstanding appearance that she thought he was handsome. He was a man with an appearance that couldn't be compared to the former Class Teacher, who was like a pig, and he even seemed to have a good personality.</p>
+<p>Minamoto Lisa, seemingly the class president, stood at the very front, and Shido Tsubaki, whom Seiwa Rieko was scheduled to meet tomorrow, stood right behind her, seemingly the vice class president.</p>
+<p>The new Class Teacher, Minamoto Lisa, and Shido Tsubaki chatted and laughed even during the Graduation ceremony. After the Graduation ceremony, they were also seen happily conversing with each other and gathering together to take a group photo to commemorate their Graduation.</p>
+<p>They looked incredibly happy. And her own miserable appearance was reflected in the window glass.</p>
+<p>Miserable Seiwa Rieko, hiding and only able to watch her Friends' Graduation, a defiled existence who had bad things done to her by a dirty man, no longer easily valued by a prestigious family.</p>
+<p>As her own reflection, contrasting with the clear weather, appeared in the window glass, she no longer wanted to be there. Suddenly, resentment towards Shido Tsubaki, whom she was scheduled to meet tomorrow, began to overflow.</p>
+<p>"Why are you the only one happy? While I'm so miserable...."</p>
+<p>Mumbling softly, Seiwa Rieko stood up from her seat. Then she left the building and mixed with the students leaving school, exiting St. Francis Girls' Academy.</p>
+<p>Graduation commemorative peace sign photo~!</p>
+<p>While writing, I only managed to make Yuka, Alik, and Shiyo hehe. By the way, Alik is cute hehe.</p>
+<p>Seiwa Rieko B-cut</p>
+<p>I wanted to make her a somewhat decadent character hehe.</p>
+<p>TheDreaming-nim requested: 1. Seiwa Rieko covering her groin at the Airport. 2. Seiwa Rieko in a similar situation, with her eyes closed, feeling resigned.</p>
+<p>1.</p>
+<p>2.</p>
+<p>Actually, I had already made the requested illustrations but waited until Seiwa Rieko's appearance hehe.</p>

@@ -5,67 +5,64 @@ weight = 586
 chapter = 586
 +++
 
-<p>As expected, money talks, because even though we decided on our graduation trip destination on Monday, just three days before our Thursday departure, we had no trouble securing flights or accommodations. It was partly because mid-November isn't peak season, but if you're working with the connections and money of a prestigious Japanese family, getting flights and accommodations is probably a piece of cake.</p>
-<p>Especially since Southern China is now called South China (officially the Republic of China) because pro-Japanese Taiwan won World War III and took over southern China. So, when they heard that daughters of prestigious Japanese families were coming for a graduation trip, they were quite cooperative, and we were able to quickly secure accommodations and flights.</p>
-<p>,Did everyone get their itineraries?</p>
-<p>,Yes~!</p>
-<p>Everyone answered my question excitedly. They all had two large suitcases each, and their faces were flushed, so they seemed to be feeling the excitement of the trip. It seemed like the Korean Wave was becoming popular again recently, which made it even more so.</p>
-<p>,Load your luggage... Everyone, get on the bus.</p>
-<p>We were meeting at school early in the morning and then taking a bus to Fujikawa Airport in Yamanashi Prefecture, where Miyashi is located. Fujikawa Airport is a relatively new airport, and it had a more private feel than other airports, mainly serving private planes, business jets, and private jets.</p>
-<p>While I was working as a teacher in Miyashi, I often used Shizuoka Airport, which was further away, because I was worried that using Fujikawa Airport, which thoroughly checked IDs, might trigger Minamoto's radar.</p>
-<p>Now, as the homeroom teacher of the special class, I was officially using the airport, so there were no problems.</p>
-<p>,Is everyone on board?</p>
-<p>The bus was large, but it was a limousine bus with very wide seat spacing, so with our 13 students, plus the school nurse Kijimoto Jurie, who was accompanying us again this time, and Shimokawabe Airen, the home economics teacher who was secretly going as a bodyguard, and me, the homeroom teacher, there weren't many seats left. I heard it was a large 49-seater bus, but they reduced it to 23 seats so you could lie down without any problems.</p>
-<p>,On the way to the airport~! My seatmate is my close friend....</p>
-<p>I was sitting in the driver's seat, which could be called the homeroom teacher's designated seat, and I could hear Uenozono Karen filming a vlog with a GoPro. Her attendance was precarious, so she couldn't do her idol activities, so it seemed like she was trying to create content by filming a vlog during the graduation trip. I guess her agency told her to do it again since her sports day vlog was quite a hit.</p>
-<p>,We're departing.</p>
-<p>With the driver's words, the bus moved smoothly. Another bus with a different class was moving ahead, and the special class was the last to depart. As I watched the school get further and further away, I took out my phone. I felt a vibration.</p>
-<p>-Han Yu-gyeong: The bus must have left by now?</p>
-<p>I sent Han Yu-gyeong the itinerary for the school trip, so she sent me a KakaoTalk message as if she was watching the situation.</p>
-<p>-Jin Yong-tae: Yeah, we just left. Are you waiting for me?</p>
-<p>-Han Yu-gyeong: Yeah~! Of course😍</p>
-<p>Even if I went to Seoul, I couldn't meet Han Yu-gyeong as I pleased because I had a fixed itinerary. I guess I could only meet her at night after finishing all the day's schedule, but I felt a little sorry that she was waiting for me from the morning and I couldn't meet her properly.</p>
-<p>Han Yu-gyeong was also having a busy time with TG Tech and her own business, and she said that she was building an information network like I had been doing. I knew the talent in Korea well, so I organized and sent her information on talent, so I'm sure Han Yu-gyeong would do well on her own.</p>
-<p>Of course, talent isn't everything, but Han Yu-gyeong has money, wisdom, and knowledge, so she'll do well.</p>
-<p>-Ha Ju-yoon: Yong-tae~! You're bringing back souvenirs, right?</p>
-<p>Since I was going to Korea, Ha Ju-yoon asked me to bring back some of the things she enjoyed eating while she was in Japan as a gift. It wasn't a difficult request, so I bought a few things as gifts yesterday while shopping with the students. Of course, I didn't forget to buy something for Han Yu-gyeong either.</p>
-<p>-Jin Yong-tae: Yes, Ju-yoon-nuna. Of course, I bought them.</p>
-<p>-Ha Ju-yoon: I have something prepared for Yong-tae too, so look forward to it♥</p>
-<p>If Ha Ju-yoon tells me to look forward to it, I have no choice but to look forward to it. I don't know what she's prepared, but she must be preparing something amazing.</p>
-<p>,We've arrived...!</p>
-<p>I was chatting with Han Yu-gyeong and Ha Ju-yoon alternately, and before I knew it, we had arrived at Fujikawa Airport. It seemed like we arrived quickly because it was close.</p>
-<p>,Get off slowly so you don't get hurt.</p>
-<p>Most of the special class students were athletic, so it was a meaningless piece of advice, but I told them to be careful because they might get too excited and fall.</p>
-<p>As expected, the procedures were simple. We only had to show our mobile IDs and could board right away. Since the St. Francis Girls' Academy chartered the plane, the special class was the last to board, and we departed immediately without any waiting.</p>
-<p>,Everyone, can you see? We're going to Korea. I always get excited when I take a plane.</p>
-<p>Uenozono Karen was still filming a vlog with a GoPro. She's speaking in Korean now instead of Japanese. Uenozono Karen's Korean is quite fluent. Uenozono Karen debuted as an idol quite early, so she learned Korean quickly and is quite fluent.</p>
-<p>For reference, Uenozono Karen was filming her vlog in agreement with the school not to upload it in real time. If she had uploaded it live, embarrassing moments of the students could have been captured, and if the idol's location had been revealed in real time, extreme fans might have rushed to her. For safety reasons, they agreed to upload the edited video to Mytube with a 3-4 day delay.</p>
-<p>,Shimokawabe-seonsaengnim, have you ever been to Korea?</p>
-<p>,No, so I'm quite excited.</p>
-<p>Shimokawa Airen was sitting next to me, and I suddenly became curious and asked her. Shimokawa Airen shook her head and answered me. That's unexpected. Shimokawa Airen is also a daughter of a prestigious family from St. Francis Girls' Academy, but she's never been to the neighboring country.</p>
-<p>,I don't know any Korean, so I'm a little scared.</p>
-<p>,There are good translation apps these days, and I'll help you if you have any difficulties.</p>
-<p>Shimokawa Airen isn't going to be wandering around alone, and she'll be moving with the students, so she shouldn't have much difficulty. I'll be with her too, so there shouldn't be any Korean language problems.</p>
-<p>,Then I can enjoy ,this, trip.</p>
-<p>This trip...? Couldn't she enjoy other trips? It was quite a questionable statement, but Shimokawa Airen changed the subject and started asking me other questions.</p>
-<p>,What's Rinka doing these days?</p>
-<p>,She says she's still chasing Anya-ji. The master is alone, and Anya-ji has become a large force in the Japanese martial arts world, so it's a bit difficult.</p>
-<p>Anya-ji, which provides things like demonic arts in martial arts novels that can make you stronger quickly just by learning them, was gradually eating away at the Japanese martial arts world. The root of that demonic art was our one-person transmission, Shinkaiyatsude, so Anya-ji was the target of our school's extermination. Fujigasaki Rinka also came to Japan after stepping down from the UMC champion position to chase Anya-ji.</p>
-<p>She came at the end of August, and now it's mid-November, so it's been two and a half months, but there hasn't been much progress. However, Fujigasaki Rinka is continuing to chase Anya-ji without asking me for help. She's caught a few underlings, but Anya-ji itself knows Fujigasaki Rinka's movements and avoids her in advance, so she hasn't been able to catch any high-ranking officials who can provide proper information.</p>
-<p>,Anya-ji... Is she strong?</p>
-<p>,She's quite strong. She left a pretty big bruise on the master's body.</p>
-<p>,On Rinka? She's strong....</p>
-<p>Shimokawa Airen showed a seductive look in her eyes at my words and licked her upper lip with her tongue. As expected... Shimokawa Airen is definitely a battle maniac, just as I thought. Hmm... Should I poke her a little now?</p>
-<p>,Shimokawabe-seonsaengnim, will you be at St. Francis Girls' Academy next semester too?</p>
-<p>,Well, I haven't thought about it yet?</p>
-<p>Hmm, it seems like she doesn't have any special plans. That's even better.</p>
-<p>,Then how about helping me from next year? It seems like there will be a lot of dangerous things to do.</p>
-<p>I subtly appealed that it would be dangerous and there would be a lot of fighting, but Shimokawa Airen narrowed her eyes even more and smiled.</p>
-<p>,Let's talk about that after this semester is over, hehe.</p>
-<p>Hmm... Is she accepting? Or not? Shimokawa Airen's ambiguous words were frustrating, but this is just the first offer, so if I keep trying, I might be able to recruit Shimokawa Airen, who will be one of the Three Swordsmen in the future.</p>
-<p>Besides, looking at the situation, it seems like only me and the Daigo family know Shimokawa Airen's value yet. I was confident that I could win against the Daigo family, so I was optimistic about the situation.</p>
-<p>,Oh, I think we've arrived!</p>
-<p>After talking for a while, Shimokawa Airen looked out the window and said that we had arrived in Korea. She seemed quite excited because it was really her first time in Korea. This body is half Korean, and the spirit is 100 percent Korean, so when I saw a Japanese woman excited about traveling to Korea, I felt a strange sense of satisfaction.</p>
-<p>____________</p>
-<p>Ha Ju-yoon after a long time~!</p>
-<p>Which of the two models do you like?</p>
+<p>I don't know exactly how the virus works, but it seems to affect the human brain, increasing aggression, yet making those infected recognize each other as comrades, not fighting each other but only attacking ordinary people.</p>
+<p>Of course, our bus was a target too, but the outside was utter chaos. Even though New Nanjing is a VR technology special zone, not all citizens have cyber implants.</p>
+<p>There were quite a few people like us who just used VR devices, and it seemed like all of them were seen as prey by the cyber zombies, becoming targets of attack.</p>
+<p>Klunk! Klunk!</p>
+<p>I slowly moved forward, crushing the cyber zombies blocking the way with the wheels. While moving, I kept checking the surroundings, and I saw a group of St. Francisco Girls' Academy students gathered on one side. The students were inside the small animal enclosure with the meerkats, and Nakanoin Rina, the Disciplinary Committee Chairman, was blocking the entrance, smashing the cyber zombies' heads with a steel pipe she had somehow obtained.</p>
+<p>"We should save them, right?"</p>
+<p>I got up from my seat and pulled out the long handrail from the bus entrance. I flattened the round bar, leaving only the handle, making it look like a sword. Except for the students who knew my skills and Shimokawabe Airen, everyone seemed quite surprised by my superhuman strength.</p>
+<p>"Otagi's driving and going. Shimokawabe seonsaengnim and I will go get them."</p>
+<p>"Okay. Be careful, seonsaeng-ssi."</p>
+<p>Since Otagi Yuka knew how to drive motorcycles and regular cars from when she was in America, when Otagi Yuka decided to follow me, I demanded she learn how to drive large vehicles, and she quickly learned it. It seemed like driving was just an easy skill to learn with her excellent vampire senses.</p>
+<p>"Shall we go, Shimokawabe seonsaengnim?"</p>
+<p>"Okay."</p>
+<p>I handed the makeshift sword I made to Shimokawabe Airen and then opened the bus door. Shimokawabe Airen readily accepted the sword and got up from her seat without any warning. After all, even if we stayed on the bus, we would inevitably be isolated if the cyber zombies kept swarming. It was a better choice to deal with the cyber zombies outside. And since you don't get infected by being bitten like in zombie movies, we could fight a little more comfortably.</p>
+<p>Wondering where I wanted to go, I pushed through the zombies swarming the bus entrance and made space for Shimokawabe Airen to get off.</p>
+<p>Shimokawabe Airen, who got off the bus, grabbed the sword that I had only shaped and not even sharpened, and swung it horizontally.</p>
+<p>Whoosh! The sword strike, making a sound of cutting through the wind, passed by me and directly hit the surrounding cyber zombies. I heard a cracking sound, and I could see the cyber implants of the zombies splitting.</p>
+<p>She attacked the zombies without damaging me, even though I was among them. It was an amazing feat. Moreover, the cyber implant equipment must have been made of very hard metal, but she cut through it with a makeshift sword made from the bus's handrail. As expected, she had the skills of a future Three Swordsman.</p>
+<p>"It's useful."</p>
+<p>Shimokawabe Airen smiled and held up the sword. It was obviously a crude sword that wasn't as good as a regular wooden sword, but looking at her expression, she seemed to be enjoying the situation where she could fight.</p>
+<p>"Shimokawabe seonsaengnim, please clear the area around the bus as it moves!"</p>
+<p>"That's easy."</p>
+<p>I left the area around the bus to Shimokawabe Airen and ran to the small animal enclosure that Nakanoin Rina was guarding. Nakanoin Rina's main weapon is a giant jitte, a metal rod similar to the steel pipe she was holding now, so she was fighting quite well. At this rate, she could put up a pretty good fight against Saionji Diana.</p>
+<p>"Yamashiro seonsaengnim!"</p>
+<p>Nakanoin Rina found me and called my name with a look of relief. I smashed the zombies' heads or threw them far away, clearing the area around the small animal enclosure that Nakanoin Rina was guarding.</p>
+<p>Because there were many eyes watching, I deliberately didn't use the Abyss and subtly blocked the zombies' movements with Shadow Domination, neutralizing the cyber zombies with pure physical abilities and martial arts techniques. I must have gotten quite good, as I could easily defeat cyber zombies covered in cyber implants without using the Abyss.</p>
+<p>When I suddenly appeared and started attacking from behind, the cyber zombies rushed towards me like crazy, which seemed to ease the burden on Nakanoin Rina, who was blocking the entrance to the meerkat enclosure.</p>
+<p>"Thank you, Yamashiro seonsaengnim. Thanks to you, it's become easier to stop these... zombie-like things that are disrupting public morals!"</p>
+<p>There were a few zombies whose clothes were torn and exposing their chests or underwear as they moved frantically, and it seemed like Nakanoin Rina was saying they were disrupting public morals because of that.</p>
+<p>In fact, Nakanoin Rina, who was saying that, was also disrupting public morals because her clothes were torn by the cyber zombies, but since it's like a law of the universe that the Disciplinary Committee Chairman disrupts public morals, I didn't say anything.</p>
+<p>I neutralized the cyber zombies as quickly as possible and arrived at the small animal enclosure. Without delay, I pointed to the slowly moving bus and shouted.</p>
+<p>"Everyone, run and get on that safari bus! I'll block the zombies that rush at you!"</p>
+<p>At my words, the door of the meerkat enclosure opened, and the students rushed out. The meerkat family, who had their territory(?) temporarily taken away by the St. Francisco Girls' Academy students until just now, stood up, wondering what was going on, and watched the backs of the running female students.</p>
+<p>All the cyber zombies around the meerkat enclosure had been cleared, and Shimokawabe Airen was mercilessly cutting down the cyber zombies rushing towards the bus, so the number of cyber zombies in the area had drastically decreased, making it easy to escort the running students. So, I asked Nakanoin Rina, who was running with me and watching the surroundings, what I was curious about.</p>
+<p>"What class are you guys in?"</p>
+<p>"We're in Class C."</p>
+<p>"No students hurt or killed, right?"</p>
+<p>"Yes, we all quickly went into the meerkat enclosure when the situation happened, so we weren't hurt."</p>
+<p>Fortunately, they reacted quickly, so there were no casualties. I looked at the students and asked about one missing member of Class C.</p>
+<p>"Where's the Class C homeroom teacher?"</p>
+<p>"I don't know. We were told it was free time at the zoo, so we were walking around with our classmates."</p>
+<p>For now, the whereabouts of the Class C homeroom teacher seemed unclear. If we don't find them later, we can assume they're dead.</p>
+<p>"Do you know anything about the other classes?"</p>
+<p>"The communication is down, so I don't know! There should be a radio in the bus we took to the zoo... I should have brought it in."</p>
+<p>I asked about the other classes, but Nakanoin Rina shook her head, saying she didn't know. That's not good. I especially hope that Taira Kanna from Class A is safe. If Taira Kanna died or got hurt, I don't know how much Taira Danjo would scold me. Taira Kanna had to be alive no matter what.</p>
+<p>"But the seonsaengnim warned us that something might happen, so we weren't too panicked. Thank you."</p>
+<p>I had told Taira Kanna and Nakanoin Rina to bring their Disciplinary Committee-exclusive cyber suits in case an unexpected accident happened on this South Nanjing trip.</p>
+<p>Taira Kanna nodded, saying she understood my warning, but she probably didn't expect something like this to happen in the middle of the zoo where she couldn't wear her cyber suit.</p>
+<p>Otagi Yuka must have seen the students running, as she stopped the bus and waited for us, so we were able to get on quickly. Our class almost filled the bus, but with the addition of the Class C students, it felt like a packed can of sardines. At this rate, we won't be able to pick up any other classes even if we find them.</p>
+<p>The bus drove quite fast, passing through the zoo entrance and arriving at the parking lot where our bus was. Fortunately or unfortunately, we didn't find any other students from other classes while coming to the parking lot.</p>
+<p>"We'll scout first, so don't get off yet."</p>
+<p>Shimokawabe Airen, Nakanoin Rina, and I got off the bus first and looked around the parking lot. Cyber zombie corpses were lying everywhere, and at the end of those corpses were Taira Kanna and Taira Kanna's Class A friends wearing cyber suits. Fortunately, Taira Kanna didn't seem to be hurt.</p>
+<p>"You're not hurt? That's a relief."</p>
+<p>"Are you okay, oraboni?"</p>
+<p>It was Taira Kanna, who didn't even try to hide calling me oraboni anymore. She looked at me and carefully checked if I was hurt anywhere. All the Class A students were staring at us with wide eyes, as if it was the first time they had seen the Student Council Chairman, Taira Kanna, acting like this.</p>
+<p>"We were on the safari side, so it was rather safe. There are only wild animals there, no people. How did you guys get here?"</p>
+<p>"Our Class A was looking around and got hungry, so we were eating something at a restaurant near the zoo entrance. The atmosphere suddenly became strange, so we came straight to the parking lot. It was close to the parking lot, so we were able to get here quickly."</p>
+<p>Ah, they must have felt something was wrong while eating snacks at a store selling simple snacks near the entrance that we found on the way here today, and immediately came to the parking lot and put on their equipment.</p>
+<p>After talking to Taira Kanna and confirming that there was no danger here, I signaled to the slowly approaching safari bus that it was okay. Ah, now that I think about it, there's no teacher here either. The Class A homeroom teacher... Ah, it was that person, wasn't it?</p>
+<p>_______</p>
+<p>I was going to make an illustration of Nakanoin Rina fighting zombies....</p>
+<p>Nakanoin Rina kept turning into a zombie, lol. So I gave up and just put various clothes on Nakanoin Rina, haha.</p>

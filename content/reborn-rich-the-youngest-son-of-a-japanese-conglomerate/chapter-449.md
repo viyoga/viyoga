@@ -5,70 +5,80 @@ weight = 449
 chapter = 449
 +++
 
-<p>Outside Miyashi, a black van stops in front of an abandoned concrete building left unfinished. Several men get out. They're all pretty rough-looking guys, armed with military vests and guns. After everyone's out, a bald black man with a large sword strapped to his back and sunglasses speaks to a blond white man with slicked-back hair, who seems to be in charge.</p>
-<p>"Isn't giving them until Monday too much time for the target to prepare, Team Leader?"</p>
-<p>"The Tokyo branch threw a fit, saying it would be a pain in the ass to deal with if Saint Francisco Academy students got hurt, so they insisted it had to be on a weekday. Apparently, female students wandering around on weekends might get caught up in our fight and get hurt? But they did pull some strings to stop the Otagi family from getting involved, right? And we gave Otagi Yuka time to prepare on the condition that the Otagi family wouldn't interfere."</p>
-<p>Jack Henderson, the team leader, answered Malick Lieberman's question as if it couldn't be helped. No matter how much hatred vampire hunters have for vampires, veterans like Malick Lieberman and Jack Henderson knew their own capabilities well.</p>
-<p>If they, dispatched from the SPF Tokyo and New York branches, combined their strength, they could put up a good fight against the Otagi family, but the damage would be significant. As for the current dispatched personnel, it was impossible to antagonize the Otagi family.</p>
-<p>That's why Taira Jiro stepped in, threatening the Otagi family to choose between maintaining their family's status and Otagi Yuka's life, leading to the current situation.</p>
-<p>If they continue to reduce the number of vampires one by one like this, they will eventually be able to reduce the overall size of the vampire forces.</p>
-<p>In particular, Otagi Yuka was a young talent who single-handedly dismantled a large gang in New York City, so it was right to cut her off now. If left unchecked, she would eventually become an unmanageable disaster. There was a good chance she could become like Famine, the esper that the United States most wanted to capture right now.</p>
-<p>That's why Allen Matthews, the New York branch manager representing the hardliners of the American SPF, dispatched Jack Henderson's team, the most skilled in the New York branch.</p>
-<p>"But the assassination the Tokyo branch manager mentioned... Isn't that a bit dangerous?"</p>
-<p>Angel Ramirez, who had been listening to Malick Lieberman and Jack Henderson's conversation, chimed in. The assassination target designated by Taira Jiro, the Tokyo branch manager of the SPF, was a young lady from a family that even Jack Henderson, who had excellent skills in the SPF, hesitated about.</p>
-<p>"All we need you to do is use your ability once, Angel, so you don't need to worry too much."</p>
-<p>"If I get caught, it'll be a disaster, Team Leader. I'm the one using the ability, not you."</p>
-<p>Angel Ramirez grumbled at Jack Henderson's irresponsible words. Angel Ramirez was an esper who could cast wide-area concealment, and what Taira Jiro requested was precisely Angel Ramirez's wide-area concealment.</p>
-<p>"It could make hunting Otagi Yuka more difficult. You know you can't use that ability for two hours after using wide-area concealment once."</p>
-<p>"We don't need your ability to deal with one person. Hey! Did you prepare enough silver bullets?"</p>
-<p>Jack Henderson shouted at a soldier who was moving a wooden box, as if he didn't want to talk to Angel Ramirez anymore. The soldier nodded at Jack Henderson's words and replied.</p>
-<p>"We have enough silver bullets. However, the mithril bullets are only one magazine per person, with thirty rounds each, which is what we initially supplied."</p>
-<p>"How many Silver Grenades did you prepare?"</p>
-<p>Silver Grenades referred to grenades filled with silver fragments. When fired from a grenade launcher, the silver fragments swept a large area, making Silver Grenades, which could perform area attacks, more useful than silver bullets when dealing with agile and fast vampires.</p>
-<p>"We have enough."</p>
-<p>"That's a relief..."</p>
-<p>The most useful things when dealing with vampires were silver and mithril. However, mithril was expensive, so it was not being actively used. The next most useful thing was sunlight, but it couldn't burn vampires like in legends; sunlight only limited the vampires' original vast powers and weakened their overall abilities.</p>
-<p>For reference, things like garlic, crosses, and holy water, as seen in other legends and folktales, had no effect at all.</p>
-<p>Among the SPF's research teams, the ancient literature interpretation and experimentation team's job was to experiment with any substance that appeared in various ancient documents as being able to harm vampires or werewolves.</p>
-<p>Garlic, holy water, and crosses were experimented with in the early days of the SPF's founding, and the experimental results showed that they were not very effective. After nearly two hundred years of experimentation, only two substances were found to be effective against beings like vampires and werewolves.</p>
-<p>These were silver and mithril. Mithril was a recently discovered mineral, so the symbol of the SPF was silver. Even the organization's name was the Silver Stake Federation, so silver's status in the SPF was extraordinary.</p>
-<p>Every SPF member receives a silver knife upon joining the SPF. It meant to fight with the silver knife until the very end. Also, they received silver pendants each time they rose in rank.</p>
-<p>"When is the Tokyo branch supposed to send troops?"</p>
-<p>Jack Henderson, having checked all the equipment, grabbed Ankoji Satoi, the person in charge from the Tokyo branch, who was passing by.</p>
-<p>"They are scheduled to join us on Sunday evening. A total of one hundred and fifty, including twenty assassination personnel."</p>
-<p>"The Tokyo branch manager seems to like doing things thoroughly. One hundred and fifty seems like too many...."</p>
-<p>Jack Henderson judged that one hundred and thirty, excluding the assassination personnel, was excessive for dealing with Otagi Yuka alone. It wasn't just one hundred and thirty; his team, the ace of the New York branch, was also there, and the seven who came as the advance team were also quite skilled, so he judged that they had dispatched too many troops.</p>
-<p>No matter how much Otagi Yuka was a vampire with frightening potential for the future, Jack Henderson currently thought that the three people dispatched from New York were enough for her current skill level.</p>
-<p>"You never know what might happen. Otagi Yuka annihilated the Kurotsukido and the New York branch. Even one hundred and fifty might not be enough."</p>
-<p>"We're vampire hunters. I mean, we'll take the help, but I'd be offended if you treated us as equal to the Kurotsukido. Even you think one hundred and fifty is too many, don't you?"</p>
-<p>Jack Henderson was seeking agreement, but Ankoji Satoi shook his head as if he couldn't agree.</p>
-<p>"We've blocked the Otagi family's intervention, but if Otagi Yuka personally tries to gather troops or comrades to fight with her, she can get as many as she wants, so the more troops, the better."</p>
-<p>"If that's what you think, then there's nothing I can do."</p>
-<p>Jack Henderson raised both hands and stepped back, as if he didn't want to argue anymore. In his mind, he was thinking that giving them two days was making things difficult, just like Malick Lieberman had said earlier.</p>
-<p>"Let's go inside and discuss how to strategize. We don't know much about Onuta Shrine, so we need an explanation."</p>
-<p>"Yes, we will explain it in detail."</p>
-<p>Ankoji Satoi and the APF New York trio entered the concrete building to properly plan.</p>
-<p>###</p>
-<p>In the morning, as the sun began to rise, Shimokawabe Airen was running through the streets. Although she lived within the grounds of Saint Francisco Academy, Shimokawabe Airen ran through the streets of Miyashi every morning instead of the school's track. Wearing comfortable tops and leggings, she felt very refreshed as she ran, bathed in the morning sunlight that was just beginning to rise.</p>
-<p>She always made sure to exercise to maintain her skills as a prosecutor, and morning running was one of Shimokawabe Airen's morning routines.</p>
-<p>It would take ordinary people at least an hour and a half to run, but Shimokawabe Airen completed her chosen running course in just thirty minutes, a mere third of the time. The fact that she wasn't even breathing heavily despite running so fast showed how amazing her stamina was.</p>
-<p>Shimokawabe Airen stopped by a convenience store to buy a drink and paid with her phone. She saw that she had received a LINE message from Taira Ryuta.</p>
-<p>Taira Ryuta. He was a mysterious man who was the disciple of her friend Fujisaki Rinka, the patron of Alik, whom she considered her disciple, and was living as a teacher at Saint Francisco Academy, perfectly concealing his identity.</p>
-<p>Yamashiro Ryuta: Shimokawabe seonsaengnim, I'm sorry to send you a LINE so early in the morning. I would appreciate it if you could call me whenever you have time.</p>
-<p>Shimokawabe Airen smiled slightly at the polite LINE message and called Taira Ryuta. Taira Ryuta answered the phone before it rang twice.</p>
-<p>-Ah! Seonsaengnim!</p>
-<p>"You left a LINE message asking me to call. So I did right away."</p>
-<p>-I'm sorry to bother you on the weekend. There's something I'd like to ask you for.</p>
-<p>"A favor?"</p>
-<p>-Actually....</p>
-<p>Taira Ryuta's story was interesting. Shimokawabe Airen, who only occasionally dealt with thugs targeting Saint Francisco Academy at Daigo Terue's request, was now facing the SPF, a well-known vampire hunter group in the underworld, which made her very concerned.</p>
-<p>-We're supposed to fight at noon on Monday, and I wanted to borrow Shimokawabe seonsaengnim and Alik's help. Do you have class at that time?</p>
-<p>"I only have morning classes on Monday. Alik also needs to experience real combat soon.... Okay. I'll lend a hand."</p>
-<p>She made the excuse of giving Alik practical experience, but Shimokawabe Airen's hands were already itching. The thought of being able to engage in a different kind of intense battle made her smile without realizing it.</p>
-<p>-Thank you! I'll tell you the plan when we meet on Sunday. And I'll talk to Alik.</p>
-<p>"Okay, I understand. Then I'll see you tomorrow."</p>
-<p>Shimokawabe Airen hung up the phone. She thought about going back to the Cheongsim Hall to take care of her sword and headed towards Saint Francisco Academy, where the Cheongsim Hall was located.</p>
+<p>"Who is this person?"</p>
+<p>"This is my boyfriend, Yamashiro Ryuta. Ryuta, this is Deon Hoffman."</p>
+<p>Ah, right. Deon Hoffman. I remembered when Arisu told me his name directly. Deon Hoffman was a young actor whose stock was rising recently. I heard that Ha Ju-yoon-ssi's American drama also featured him as a main supporting actor, and his popularity exploded at that time.</p>
+<p>Deon Hoffman, with his soulful appearance, brown hair, and gray eyes, gazed at me deeply before offering a handshake. He's handsome, as expected of a movie actor. I felt a little jealous thinking that Arisu would continue acting with this man. Arisu said that there were no kissing or bed scenes, but I'm a man too, so I couldn't help but feel instinctive jealousy.</p>
+<p>"Arisu boasted so much about her boyfriend, and seeing you in person, I understand why. I'm Deon Hoffman."</p>
+<p>"Nice to meet you. I'm Yamashiro Ryuta."</p>
+<p>We shook hands, but Arisu strangely seemed to dislike us talking. Shouldn't I, as her boyfriend, be the one who dislikes it? Why is she doing this? Her attitude is a bit strange.</p>
+<p>Deon Hoffman greeted us and went to get food, and I asked Arisu why she was acting like that.</p>
+<p>"Are you in a bad mood?"</p>
+<p>"No, be careful, Ryuta. Deon is gay...."</p>
+<p>The reason she showed a disliking attitude was because she was afraid of losing her boyfriend? Well.... It was a strange attitude for someone who dislikes talking to colleagues. Now that I hear it, it's a bit creepy. Why was that man looking at me with such soulful eyes?</p>
+<p>"Arisu knows, but I'm heterosexual, so there's no need to worry. By the way, you didn't say anything about me being with other women, but you're jealous of a man?"</p>
+<p>"Still, women are women.... I can accept women to some extent, but I can't yield Ryuta even to a man."</p>
+<p>If Arisu's words spread in the PC paradise that is America, she would be criticized, but I was the only one around to hear Arisu's story, so there was no one to call her out. It seemed that Arisu only allowed women. From my point of view, there was no way I would ever meet a man, and the fact that she allowed me to meet other women was so open-minded that I was newly grateful to Arisu.</p>
+<p>"Don't worry. I was jealous because I didn't know Hoffman was gay and thought I was going to be with Arisu all the time."</p>
+<p>"Ah...! Really?! You were jealous? Ehehe...♥"</p>
+<p>Arisu was rather delighted that I was jealous. Before we knew it, our eyes met, and the speed of our meal began to increase. It was because we wanted to eat quickly and be alone together.</p>
+<p>By the time Deon Hoffman brought his meal, Arisu and I had already finished eating and were about to get up from our seats. Deon Hoffman took his time making coffee, and in the meantime, we had finished our meal. Deon Hoffman opened his mouth to Arisu with a regretful expression as we stood up.</p>
+<p>"Ah.... Arisu, are you leaving?"</p>
+<p>"Yeah, I finished eating, so I have to go on a date with Ryuta. See you later~!!"</p>
+<p>It's a bit creepy that he looks at me with regret, but I tried to think that he just wanted to talk to his friend's boyfriend. I just gave a slight nod and left the restaurant with Arisu.</p>
+<p>Hollywood studios sometimes have accommodations next to or within the studio itself, and the studio where Arisu was filming this time had VR filming studios and production-related facilities from the 1st to 3rd floors, and accommodation rooms comparable to hotel suites from the 4th to 5th floors.</p>
+<p>Of course, many Hollywood actors had mansions nearby, so many people didn't stay in the accommodations, but Arisu was renting Fujigasaki Rinka's mansion in Malibu, but she said that she was staying here because the accommodations were comfortable.</p>
+<p>There was a reason why Diana Ricci asked us to help if something happened. She must have checked Arisu's accommodation when I bought the plane ticket.</p>
+<p>She must have thought that she could ask for help quickly because she was staying in the studio, which was the target of the serial killer. Of course, the studio wasn't the studio we were staying in, so some movement might be necessary.</p>
+<p>"This is my room."</p>
+<p>The room was definitely spacious and nice. It was a luxurious and good room that would suit the picky tastes of Hollywood actors. According to Arisu, each room had a different design, so actors could choose a room that suited their taste. Arisu was still a newbie in this industry and didn't have enough recognition, so she just received the room that was given to her.</p>
+<p>"But the room is good enough, isn't it?"</p>
+<p>"Hehe, right?"</p>
+<p>We looked around the room for a while and talked, then fell silent for a moment. Naturally, Arisu, who had been horny because I hadn't been with her for a long time, and I, who was excited to be in a room full of Arisu's good scent, looked at each other and kissed on the spot.</p>
+<p>Chup, chuheup, jjeuup...!</p>
+<p>I held Arisu's slender body tightly, tasted each other's tongues, and enjoyed the kiss while pressing my erect dick against her belly.</p>
+<p>"Heueung.... Ryutaaaang, I wuv kisshing...♥"</p>
+<p>Arisu kissed for a long time and then looked at me with dazed eyes. Then, she pushed me away slightly and began to undress as if to show off.</p>
+<p>Arisu's white skin was gradually revealed through the sunlight shining through the large window, and Arisu looked at me with a shy expression while wearing only her underwear. The underwear was a deep green color that matched her eye color, and it suited Arisu quite well.</p>
+<p>"I bought it new to show it to Ryuta. How is it?"</p>
+<p>"It's pretty.... You look like a model."</p>
+<p>At my words that she looked like a model, Arisu said that she was a model and laughed kkaluk. Her appearance was so girlish that the thought of defiling her filled my head. I went closer to Arisu, lifted her in a princess carry, and threw her onto the bed.</p>
+<p>"Ryuta...!"</p>
+<p>I unhooked the front hook bra, revealing her breasts, which were not large but of a moderate size, to the world. Her light pink nipples were erect, telling me how excited Arisu was now.</p>
+<p>I licked Arisu's nipples as if tasting them. Arisu trembled, unable to withstand the long-awaited sexual stimulation.</p>
+<p>"Heueung...! Ryuta's tongue feels good...♥"</p>
+<p>I alternately sucked on both breasts, enjoying the soft texture, and licked her not-too-excessive vertical abdominal muscles as I went down. When I felt her panties past her navel and lower abdomen, I started to pull them down with my teeth.</p>
+<p>"Heuahahang! The stimulation is too strong...!"</p>
+<p>As I pulled down her panties with my mouth, my nose naturally brushed against her pussy, stimulating Arisu's sensitivity. As I went down past her clitoris, urethra, and vaginal opening, Arisu tightened her thighs and fixed my head.</p>
+<p>I spat out the panties in my mouth and then licked Arisu's pussy with my tongue. Arisu said that the stimulation was strong even when I just touched her nose, but when I licked her with my tongue, she reacted as if she was going crazy.</p>
+<p>"Heueeung, haeuheut! It's strangeee...! Haeut! Ryutaaa♥"</p>
+<p>I licked Arisu's vaginal fluid with my tongue and pulled down her panties with my hands. I stroked Arisu's body, which had been stripped completely naked, and touched Arisu's soft and supple breasts and firm buttocks.</p>
+<p>Both her breasts and buttocks felt so good that they were incredibly addictive. As I licked her pussy with my mouth and caressed her sensitive areas such as her buttocks, thighs, and breasts with my hands, Arisu seemed to have reached her climax, tightening her thighs even more strongly around my head.</p>
+<p>"Heuaahang! Ryuta, Ryutaaang♥ I'm, heueut! Cumming!"</p>
+<p>Arisu climaxed, spewing out vaginal fluid with a pyut pyut sound. I received all of Arisu's vaginal fluid and then raised my body and sat on the bed.</p>
+<p>I waited next to her until Arisu recovered from her climax and touched her breasts, and she trembled and reached a small climax. Arisu, who had regained her senses, got up from her seat and sat between my legs without me even saying anything.</p>
+<p>"I wanted to see Ryuta's dick. It's been a while."</p>
+<p>"You wanted to see my dick more than me, didn't you?"</p>
+<p>"Hey, why are you saying the obvious? I saw Ryuta often in video calls and photos. I haven't seen your dick~!"</p>
+<p>Arisu was very happy to see my dick, perhaps because she had seen my face often in video calls. Arisu kissed both sides of my glans again, like a baiser.</p>
+<p>Arisu, who had paid her respects(?) to my dick, soon opened her mouth wide and bit down on my glans.</p>
+<p>"Keueut...!"</p>
+<p>Perhaps because it was her first fellatio in a long time, her tongue movements were quite intense, so I couldn't help but groan.</p>
+<p>"Ibun oah (feeling good)?"</p>
+<p>Arisu, who heard my groan, smiled and asked with my dick in her mouth. I nodded and answered.</p>
+<p>"Arisu's oral sex feels so good after a long time."</p>
+<p>Arisu smiled at my answer and started sucking my dick again. I stroked Arisu's head as she sucked my dick so hard that her cheeks became hollow, and I enjoyed the pleasure rising from my dick.</p>
+<p>Arisu grabbed my buttocks with both hands and pulled me in, pushing my dick all the way into her throat and starting a deepthroat. My dick violated Arisu's throat, and I heard gagging sounds like keoheok kueop, but rather, this slightly broken appearance stimulated my excitement even more.</p>
+<p>I was worried that Arisu's esophagus would be damaged because she was stabbing her throat too much (of course, it would recover even if it was damaged because there was a sacred pillar), but I felt so good that I received Arisu's deep fellatio until I ejaculated.</p>
+<p>"Keueut...! I'm cumming!"</p>
+<p>Arisu, who heard me say I was cumming, took my dick out of her throat and started sucking my glans frantically as if sucking a Chupa Chups. Naturally, the stimulation was so intense that semen filled Arisu's mouth as if lava was erupting.</p>
+<p>Buut! Buut! Byuuut!!</p>
+<p>My dick repeatedly swelled and shrank, shooting out semen. The enormous amount of semen made Arisu's cheeks, which had become hollow from sucking my dick, swell up.</p>
+<p>When the physical space inside her mouth became insufficient, Arisu spat out my dick, and my still ejaculating dick spat out milky white fluid on Arisu's face and head, defiling Arisu.</p>
+<p>Arisu swallowed the semen that filled her mouth, then licked around her lips with her tongue with a blissful expression, and opened her mouth.</p>
+<p>"Aww~♥ I have to wash now...! Ryuta, shall we shower together?"</p>
+<p>It's been a while since shower sex, so that's good. I smiled and nodded at Arisu's suggestion.</p>
 <p>----</p>
-<p>Home Ec Teacher Running B-Cut!</p>
-<p>Home Ec Teacher in an Ad Vibe</p>
-<p>Home Ec Teacher Speed-Walking</p>
+<p>Arisu's underwear B-cut!</p>
+<p>I was contemplating between a composition that showed the panties slightly and a composition that showed the whole body in the text, but I uploaded the full body shot hehehe</p>
+<p>The underwear + sandals feel from the main text was better than the underwear + high heels, so the high heel version became a B-cut hehehe</p>

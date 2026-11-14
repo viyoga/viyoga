@@ -5,83 +5,81 @@ weight = 247
 chapter = 247
 +++
 
-<p>I pulled down her panties and slid my dick into Arisu's glistening pussy crack. My glans stretched Arisu's pussy wide as it went in. It had been a while, so Arisu seemed to find my dick a bit much to handle.</p>
-<p>,"Hng...! More, Ryuta♥, hng! It feels bigger, haaang~!!"</p>
-<p>Along with her suggestive moans, Arisu's pussy throbbed, welcoming me.</p>
-<p>Hmm, comparing her to Nae Fitzgerald, Nae Fitzgerald felt like a pussy that was surprised by a dick that was different from the dicks she'd always had, so she kept pushing it out, giving me a feeling of violating her, while Arisu, it had been a while, so she was a bit tight, but since I was the only dick she'd ever had, it felt like a perfect fit for me, giving me a cozier feeling.</p>
-<p>Not that Arisu's pussy was any less stimulating, but rather, it was a tight, grade-S pussy that was perfect for me.</p>
-<p>"Heeuuhng...! Don't, haaang...! Think about other, haaahng♥... girls!"</p>
-<p>I don't know why, but when our dicks and pussies are connected like this, women always seem to know when I'm thinking about other women. It's so fascinating.</p>
-<p>Further comparisons would be rude, and I should now focus on Arisu, who won the bet.</p>
-<p>I already knew Arisu's weaknesses from having done it dozens of times, so I scratched them one by one with my glans and poked them with the front of my dick, plunging Arisu into a swamp of pleasure so she couldn't come to her senses.</p>
-<p>"Heuaheueung...! Uuh, haheueung...! Ryuta, haeuht, I feel weird, heueu, I think I'm gonna cum, haaang♥!"</p>
-<p>Arisu was moaning like crazy since it had been a while. When her pussy twitched as she was about to cum in a small way, I deliberately pulled my dick out and scratched her vaginal walls with my glans in a deureureuk feeling. Of course, the result was an orgasm.</p>
-<p>"Haaaaaang!!"</p>
-<p>I lifted Arisu, who was leaning her head back and trembling, and this time I went underneath. She's a model now, but Arisu sings well, so she could become a singer someday, so I should have her practice dancing on top of me.</p>
-<p>"Shake it on top."</p>
-<p>"Okay♥"</p>
-<p>Her eyes are a bit glazed over since she already came once, but Arisu smiles bashfully, places her pussy on my dick, and slowly lowers her waist. She lowered it all the way to the end of her uterus in one go, then moaned loudly, "Ahaang!" and started shaking her waist gently as if rubbing the inside.</p>
-<p>I put my hands behind my head and leisurely watched Arisu shake her waist on top of me. In a room filled with the sunlight of New York, which was still in the middle of the day, a stunning blonde beauty dancing on my waist was an extraordinary event that I couldn't have imagined before the possession, but now I was used to it.</p>
-<p>"Heueuht...! Ah, it feels, so good...! Ryuta♥"</p>
-<p>The advantage of the cowgirl position is that the woman can control her own pleasure. Arisu was also diligently turning her waist, controlling the pleasure of her flimsy pussy that would cum quickly.</p>
-<p>The cowgirl position was a completely different angle from the missionary position, so we could both enjoy different pleasures. Arisu was already heading towards her third climax, and I was starting to feel it too, so I unlocked my hands from behind my head, grabbed Arisu's waist with both hands, and thrust my dick upwards at high speed.</p>
-<p>With the sound of flesh smacking, peok peok peok, Arisu's eyes rolled back.</p>
-<p>"Eueuhng, ooht! Haaht! Too strong, Ryutaaaaang♥ I think I'm gonna cum, haaang!"</p>
-<p>"I think I'm gonna cum too, so hold on a little longer."</p>
-<p>Arisu couldn't come to her senses as an overwhelming pleasure rushed in with the sudden high-speed piston movement with her waist grabbed. Since I was fixing Arisu's waist in the air like a vise, there wasn't much Arisu could do. She was just enduring the waves of pleasure.</p>
-<p>"Keueuk! I'm cumming!"</p>
-<p>"Me too, I'm gonna! I'm gonna cum...!"</p>
-<p>I lowered Arisu's waist and raised my waist, sticking our dicks and pussies together without a single gap, and started cumming inside Arisu's deepest part.</p>
-<p>Bueuk! Bueuk! Bueuk!</p>
-<p>Like a heart that had been running for a long time was throbbing roughly, my dick was repeating expansion and contraction, releasing the hot liquid inside me to Arisu.</p>
-<p>"Heueueeu...heung, Ryutaaaa♥ Kiss, kiss me...!"</p>
-<p>Arisu felt an incredible orgasm while I was cumming, then leaned her upper body against mine and looked for my lips. Afterplay is also important in sex, so I kissed Arisu gently and stroked her back.</p>
-<p>I kissed Arisu for a while and gave her one arm to lie down next to me. Arisu was looking at me with honey dripping from her eyes, resting on my arm, and smiling bashfully.</p>
-<p>"You didn't really plan to show me around New York, did you?"</p>
-<p>"Noo~. I just couldn't resist when I saw Ryuta...."</p>
-<p>Arisu twisted her body and answered my question. She seemed a little embarrassed that she couldn't keep her word. She confidently took me out in a car, saying she would show me around New York, but all she ended up doing was touring her pussy cave, so she had a reason to be a little embarrassed.</p>
-<p>"Was it that good? Should we do it again?"</p>
-<p>"Aih... I don't know♥"</p>
-<p>"Then should we go out of the hotel right now to go sightseeing again?"</p>
-<p>Arisu pretended to be coy, saying she didn't know to my question, so I asked her what it would be like to go sightseeing right away, thinking of teasing her a little. Arisu shook her head at my suggestion to go out right away.</p>
-<p>"T...two...."</p>
-<p>"Huh?"</p>
-<p>"Let's do it two more times instead of once and then go sightseeing in New York. Hehe."</p>
-<p>Arisu, trying to offset her embarrassment with cuteness, hugged me tightly and acted cute, saying let's do it just two more times. I don't think it'll end with just two times.... I guess I won't be able to go sightseeing in New York today either.</p>
-<p>###</p>
-<p>Peesh!</p>
-<p>Otagi Yuka dodged the silver bullet by tilting her head back with superhuman reflexes. Generally, vampires regenerate quickly from physical damage, but damage from weapons made of silver or consecrated weapons is not easily recovered and causes more damage than usual.</p>
-<p>Kurotsuki-doo's Shadow Squad knew how to deal with vampires well from numerous combat experiences. They armed themselves with bullets made with silver warheads and never fought at midnight, when the vampire's combat power was at its peak.</p>
-<p>Since it was a long summer day, Otagi Yuka had no choice but to engage in fierce battles after Kurotsuki-doo's Shadow Squad came. Fortunately, she was more familiar with the terrain than the Shadow Squad and was fighting a tight battle with the help of the black market from time to time.</p>
-<p>Otagi Yuka, who had temporarily taken refuge in the corner of a building from the hail of bullets, luckily saw a rat there. Otagi Yuka's eyes turned red as she looked at the rat, and she began to dominate the rat. It was one of the vampire's abilities, small animal domination.</p>
-<p>Otagi Yuka attached a remote-detonated bomb to the rat and sent it towards the Shadow Squad. Otagi Yuka, sharing the rat's vision, made the rat she was dominating get close to the Shadow Squad and then detonated the bomb.</p>
-<p>Kwaang!!!</p>
-<p>The bomb was miniaturized so that it could be attached to a rat, but because it exploded so close, it was able to explode two people to death this time. Otagi Yuka accelerated her blood flow in an instant and rushed towards the remaining Shadow Squad at an incredible speed.</p>
-<p>Earlier, she could attack them so they couldn't avoid her with the silver bullet fire net, but now, with two people gone and the explosion causing temporary confusion, it was an opportunity to eliminate some of the Shadow Squad.</p>
-<p>Peesh! Peesh! Peesh!</p>
-<p>Otagi Yuka approached one person, avoiding the silencer-equipped muzzles of the Shadow Squad as much as possible so that they were not in a straight line, and slashed their neck with her blood energy and passed by.</p>
-<p>"Keureureuk...!"</p>
-<p>One of the Shadow Squad members fell, making a gurgling sound, and blood energy came out of the body of the Shadow Squad member who died and was absorbed into Otagi Yuka.</p>
-<p>Otagi Yuka rushed at the remaining four like a whirlwind and swung her blood energy-filled fingernails.</p>
-<p>Even though they were on the defensive and their lives were in danger, the Shadow Squad didn't make a sound and mechanically fired silver bullets at Otagi Yuka. The Shadow Squad was different in quality from the goons of Kurotsuki-doo's New York branch that they had fought until now.</p>
-<p>Unlike the ragtag goons of Kurotsuki-doo's New York branch, who would quickly scatter when a few of them fell, the Shadow Squad endured and fought to the end until their comrades arrived, and there were quite a few times when Otagi Yuka faced a crisis because a follow-up unit came while they were fighting.</p>
-<p>It was similar this time as well. When Otagi Yuka beheaded and killed two of the four, dozens of bullets poured down. And a human figure wrapped in black mist approached and slashed Otagi Yuka with a large black scythe.</p>
-<p>Otagi Yuka jumped back and barely dodged the scythe. That big black scythe wasn't even a silver or consecrated weapon, but Otagi Yuka's instincts were fiercely warning her that it would be dangerous if she got hit by it.</p>
-<p>"Hmph! You're quick...."</p>
-<p>The person wrapped in mist muttered in a distorted voice that was hard to tell whether it was male or female. Otagi Yuka instinctively realized that the mist human was the leader of the Shadow Squad, the Shadow Demon, who had been attacking her recently.</p>
-<p>"Hap!"</p>
-<p>The Shadow Demon swung his scythe again, so Otagi Yuka dodged backwards once more. Otagi Yuka wasn't just taking it either. She created blood energy like a greatsword and confronted the Shadow Demon's greatsword.</p>
-<p>Chang!</p>
-<p>When the two's weapons collided, the building vibrated and the air trembled. It meant that both had tremendous power.</p>
-<p>Peesh!</p>
-<p>While she was fighting the Shadow Demon, the Shadow Squad, who were taking a shooting stance from behind, provided support fire whenever the Shadow Demon was at a disadvantage. The situation was already tight or slightly disadvantageous, but with the support of the Shadow Squad like this, Otagi Yuka had no choice but to keep getting pushed back.</p>
-<p>However, Otagi Yuka continued to endure with the tenacious vitality unique to vampires. As she endured and endured, and the sun set and the moonlight began to give Otagi Yuka strength, the Shadow Demon opened his mouth coldly.</p>
-<p>"That's it for today. Retreat!"</p>
-<p>At the Shadow Demon's words, the Shadow Squad retreated like a receding tide. It seemed like they were trying to avoid fighting in situations where Otagi Yuka was at an advantage as much as possible. Or maybe they were aiming for something.</p>
-<p>"...Damn it!"</p>
-<p>Otagi Yuka looked in the direction where the Shadow Squad had disappeared with a very resentful expression. She bit her lip as if she was angry that she had been constantly hunted like prey, even though the Shadow Squad had retreated.</p>
-<p>"This won't do.... I need to ask Eve."</p>
-<p>Otagi Yuka muttered with a serious expression and hurried to the black market's New York branch.</p>
-<p>-----Arisu Unused Illustrations</p>
-<p>Illustrations I made yesterday.</p>
-<p>I felt like making super mini jeans today, so I made them hehe.</p>
+<p>The statue of Simyeonui ttal (Daughter of the Abyss) had become Simyeonui ttal (Daughter of the Abyss) before I knew it. Instead of a hard statue, soft breasts were before my eyes. As I sucked on a nipple and looked up at Simyeonui ttal (Daughter of the Abyss)'s face with a bewildered expression, unsure of how this happened, Simyeonui ttal (Daughter of the Abyss) smiled at me with a benevolent expression. Slightly startled by the sudden situation, I took a step back.</p>
+<p>-Huhu.... Only a fleeting moment.</p>
+<p>"Yes, but it's still nice to see you."</p>
+<p>I stared into Simyeonui ttal (Daughter of the Abyss)'s eyes for a long time. Then, suddenly curious, I asked.</p>
+<p>"How did I get here?"</p>
+<p>Certainly, this wasn't the bathroom where I was sucking on the statue. It was the deep sea where I had met Simyeonui ttal (Daughter of the Abyss) before, where those glowing jellyfish roamed. The difference was that before, Simyeonui ttal (Daughter of the Abyss) had been sitting on something like a throne, but now she stood up to greet me, seemingly happy to see me.</p>
+<p>-I briefly moved you using the connection to me linked to my statue that my partner obtained.</p>
+<p>Hmm, I don't understand? Simyeonui ttal (Daughter of the Abyss) chuckled softly at my puzzled expression after her explanation.</p>
+<p>-You're cute. My lover and partner.</p>
+<p>"You're still beautiful."</p>
+<p>-Huhu, come here.</p>
+<p>Simyeonui ttal (Daughter of the Abyss) stretched out her arms towards me with a benevolent expression like the sea, the mother of life. As if possessed, I approached Simyeonui ttal (Daughter of the Abyss), embraced her, and kissed her at the same time.</p>
+<p>I felt Simyeonui ttal (Daughter of the Abyss)'s perfect breasts being gently pressed together by the embrace, and I intertwined my tongue with Simyeonui ttal (Daughter of the Abyss)'s.</p>
+<p>The kiss with Simyeonui ttal (Daughter of the Abyss) was passionate, lewd, and clingy. It had been a while since I had met Simyeonui ttal (Daughter of the Abyss), so I passionately kissed her while touching her soft, squishy ass.</p>
+<p>Just touching her ass, which sank in and bounced back at the same time with a perfect texture, made my dick so hard that it couldn't get any bigger.</p>
+<p>-Huhu, your tentacle has become hard.</p>
+<p>"It's not a tentacle, it's a dick."</p>
+<p>Simyeonui ttal (Daughter of the Abyss) probably knows the word "dick," but she probably said "tentacle" because she wanted to tease me. Well, it's usually limp and tries to get into holes, so maybe the word "tentacle" isn't wrong?</p>
+<p>-Do you want to ravage my excited, sticky pussy with your dick? You wanted to hear such lewd stories, didn't you?</p>
+<p>"....Yes."</p>
+<p>When I answered obediently, Simyeonui ttal (Daughter of the Abyss) chuckled again, released the hug, lifted my body, and put my dick in her mouth. When I realized it, it seemed only my body had come over here, as I was naked. No, not completely naked. The Abyss Lord's combat gear, the bracelet-cum-armor I received from Simyeonui ttal (Daughter of the Abyss), was still on my wrist.</p>
+<p>"Keuheueut!"</p>
+<p>Simyeonui ttal (Daughter of the Abyss)'s mouth gave me pleasure like a drug. The inside of her mouth felt like hundreds of suckers were sucking on my dick, giving me so much pleasure that my back naturally arched.</p>
+<p>But Simyeonui ttal (Daughter of the Abyss) was holding my ass tightly, so I couldn't even run away, and I was having my dick eaten by Simyeonui ttal (Daughter of the Abyss) like a herbivore caught by a beast.</p>
+<p>I had my semen stolen by Simyeonui ttal (Daughter of the Abyss)'s mouth as if she was extracting it directly from my balls. Semen came out as if I was pissing, and I felt so much pleasure that my head turned white.</p>
+<p>-I practiced a little while you were gone. How do you feel?</p>
+<p>"Heoeok.... Heoeok.... If you practice any more, I might go crazy from too much pleasure?"</p>
+<p>-Huhu. Then this time, you'll make me go crazy, won't you?</p>
+<p>I felt so much pleasure that I was filled with the desire to repay Simyeonui ttal (Daughter of the Abyss). I spread Simyeonui ttal (Daughter of the Abyss)'s legs and brought my face to her pussy. As Simyeonui ttal (Daughter of the Abyss) said earlier, Simyeonui ttal (Daughter of the Abyss)'s pussy was indeed full of very sticky liquid.</p>
+<p>Like a butterfly seeking honey, I put my tongue to the flower and sucked and licked it wildly. The fluid that came out from the deepest part of Simyeonui ttal (Daughter of the Abyss) was truly sweet and addictive like honey. I forgot that I was even caressing her and continued to seek Simyeonui ttal (Daughter of the Abyss)'s honey.</p>
+<p>-Heueuht! It feels good, my partner...♥</p>
+<p>Simyeonui ttal (Daughter of the Abyss) moaned sweetly, seemingly enjoying it just from being sucked. Hearing that moan, I came to my senses and used all the bedroom techniques I had to ravage Simyeonui ttal (Daughter of the Abyss)'s pussy with my tongue and fingers.</p>
+<p>-Heuaht...! Ahheung♥ My partner...! It feels...♥ Haeueut!</p>
+<p>Simyeonui ttal (Daughter of the Abyss) wiggled her thighs and began to squeeze my head in the middle. It was quite pleasant to have my face squeezed by Simyeonui ttal (Daughter of the Abyss)'s soft thighs.</p>
+<p>As I continued to use the caressing techniques listed in the Heukmireuk Gong (Black Mireuk Manual) flamboyantly, Simyeonui ttal (Daughter of the Abyss)'s toes spread out and trembled. Judging from this reaction, it seemed she had reached orgasm. As she reached her climax, the strength in her thighs loosened, so I pulled my head out and inserted my tentacle.... no, my dick, into Simyeonui ttal (Daughter of the Abyss)'s sufficiently loosened pussy.</p>
+<p>"Keueut!"</p>
+<p>Simyeonui ttal (Daughter of the Abyss)'s pussy still felt good enough to make me groan involuntarily. Simyeonui ttal (Daughter of the Abyss)'s pussy, which wriggled inside and sucked, brought me pleasure that made my brain melt.</p>
+<p>-Heuheung♥ Your di.ck♥ still feels good, haaang...!</p>
+<p>"Your pussy is the same. It feels very good."</p>
+<p>-Only, heueut! A pussy just for you, aahang♥ Enjoy it to your heart's content, my partner...!</p>
+<p>"I don't think I can enjoy it to my heart's content because it feels so good?"</p>
+<p>Even though I had come so hard from what Simyeonui ttal (Daughter of the Abyss) had done with her mouth earlier that it felt like all the moisture in my body had been sucked out, the point of ejaculation quickly rose again. But Simyeonui ttal (Daughter of the Abyss) also seemed to enjoy my dick very much, and she was slowly reaching her climax even though she hadn't shaken her hips a few times.</p>
+<p>"Keueut...! Keut!"</p>
+<p>-Heueuheung...! My partner, I adore you♥ Heueut...! Plant your hot, white seed in my deeeep, heueut! place, ooooht♥</p>
+<p>Along with Simyeonui ttal (Daughter of the Abyss)'s declaration of love, I ejaculated intensely inside Simyeonui ttal (Daughter of the Abyss). Semen filled the inside of Simyeonui ttal (Daughter of the Abyss) like a volcano. Simyeonui ttal (Daughter of the Abyss)'s pussy was tightly closed as if not to miss my semen, not letting a single drop of semen flow out in this place full of water.</p>
+<p>Even after I pulled out my dick, the cloudy semen didn't come out. Maybe some external force was keeping my semen inside. As if noticing my gaze, Simyeonui ttal (Daughter of the Abyss) smiled slightly and opened her mouth.</p>
+<p>-Huhu, I can't let your precious seed out.</p>
+<p>"I can give you as much semen as you want."</p>
+<p>-Even if your essence is infinite, what is precious is precious. Especially to me.</p>
+<p>"Can I give you that precious thing again?"</p>
+<p>At my question, Simyeonui ttal (Daughter of the Abyss) spread her legs and opened her petals with both hands.</p>
+<p>-You can ejaculate into my pussy as much as you want. I can accept it until your world is destroyed.</p>
+<p>Because my dick was already erect again due to the irresistible pheromones emanating from Simyeonui ttal (Daughter of the Abyss), I parted Simyeonui ttal (Daughter of the Abyss)'s open pussy with my glans and dug inside.</p>
+<p>-Haeueuheung♥</p>
+<p>To feel pleasure and infinite love, we overlapped our bodies as if time was infinite. How much time had passed? Simyeonui ttal (Daughter of the Abyss) stroked my cheek and said.</p>
+<p>-Now is the time. No matter how much I lengthen the time, this is the limit for you now.</p>
+<p>Simyeonui ttal (Daughter of the Abyss)'s words seemed to be referring to slowing down my real-world time, just like when we first overlapped our bodies on the island last time. Even though we had been doing it for a long time, I still wanted to crave Simyeonui ttal (Daughter of the Abyss)'s body, but I could feel it too. It was time to go back. I wasn't an immortal being, so I could feel my body getting slightly strained.</p>
+<p>"I'll see you again, right?"</p>
+<p>-My brand is stamped on your soul, so even if you run away, you will never be able to escape me.</p>
+<p>Saying I can never escape, an ordinary person would be scared if you said it like that. Of course, I'm not an ordinary person, so I don't feel fear to this extent.</p>
+<p>-Ah, I will retrieve the statue you found. It's embarrassing that such a thing was circulating.</p>
+<p>"I was going to offer it as a tribute anyway."</p>
+<p>-I can't accept an object filled with my father's ulterior motives as a tribute. Think of it as retrieving what was originally mine.</p>
+<p>Judging from the way Simyeonui ttal (Daughter of the Abyss) spoke, it seemed that the very fact that the statue was out in the world was a bit embarrassing.</p>
+<p>Come to think of it, what kind of father makes a nude statue of his daughter just because she was born? Moreover, a statue that produces milk once every 100 years.... Even if it's the Abyss, which is difficult to understand by human standards, it was a bit strange.</p>
+<p>-Ah, lastly, the gloves woven from my hair and the armor I gave you this time are made to have synergy when worn together. In game terms, you could say it's a set of equipment exclusively for you. And as a reward for finding my statue this time and making me feel good....</p>
+<p>Simyeonui ttal (Daughter of the Abyss) took out the brooch that Arisu-ssi had bought at the antique store in New York and held it out to me.</p>
+<p>◆Grace of the Deep Sea [Unique Accessory]</p>
+<p>A brooch containing the energy of the deep sea. Abyss stat increases by 1, and luck greatly increases in the sea.</p>
+<p>When worn with the Abyss Lord's Combat Gear item made by Simyeonui ttal (Daughter of the Abyss), the Abyss stat additionally increases by 2, and all places where the item wearer is located are treated as 'sea'.</p>
+<p>When did she take the item from me and modify it? Amazing. I didn't even bring it out today....</p>
+<p>The Grace of the Deep Sea didn't change much in terms of general options, and the part about luck increasing changed to greatly increasing, but a set option was created. With the additional increase in Abyss and treating all places as the sea, it seemed she had created an option to constantly maintain the luck increase I originally had.</p>
+<p>"Thank you. I'll use it well."</p>
+<p>-When you go back, send me tributes mainly of sweet things.</p>
+<p>What, is this how we're parting ways, like asking for Melona ice cream when coming over? Simyeonui ttal (Daughter of the Abyss) smiled as if it was nothing in response to my thanks and asked for sweet things.</p>
+<p>Is Simyeonui ttal (Daughter of the Abyss) asking me to do this because the moment of parting with me feels like a fleeting moment to her? The image of Simyeonui ttal (Daughter of the Abyss) and the sea where jellyfish were swimming became blurred, and it began to overlap with the image of the bathroom where I was originally sitting.</p>
+<p>And before I knew it, I was back in my world. Instead of the statue I was originally holding, the Grace of the Deep Sea brooch that I had put in my carrier was in my hand.</p>
+<p>When I attached the brooch to the collar of the Hawaiian shirt I was wearing and got up from my seat, a semi-transparent window appeared in front of my eyes.</p>

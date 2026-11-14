@@ -5,71 +5,98 @@ weight = 1007
 chapter = 1007
 +++
 
-<p>"Today's morning schedule is the new Boss-nim's inauguration ceremony."</p>
-<p>At the words of the Head of the Transport Business Department of Taira Food distribution company, all the employees nodded their Heads as if they had expected it. The new Boss had visited the company yesterday, and it seemed the inauguration ceremony was today.</p>
-<p>"How annoying...."</p>
-<p>"Did they rent an auditorium again? The Boss before last rented such a place and did it."</p>
-<p>At the Head of Department's declaration, the employees whispered among themselves. The former Boss was an Elderly Person nearing retirement, so he didn't hold ceremonial acts like an inauguration, but the Boss before last was an ambitious Person, so there was a memory of him renting a large auditorium and gathering all employees for his inauguration ceremony.</p>
-<p>Due to the nature of the Food distribution industry, employees, who had a fixed amount of paperwork for daily Food distribution, were not pleased with the inauguration ceremony. Because it meant leaving work would be delayed by the amount of time wasted on the inauguration ceremony.</p>
-<p>"I know what everyone is worrying about, but this inauguration ceremony will be simple, done via internal broadcast, so it will end quickly."</p>
-<p>At the words of the Head of the Transport Business Department, everyone let out a Sigh of Relief. This was because they expected it would end quicker than thought, as there would be no need to move anywhere.</p>
-<p>Preparation for the inauguration ceremony didn't take long. If the hologram projector used for meetings was projected onto a wall painted with special paint, all employees of the Transport Business Department could see it on a large screen, and that was it.</p>
-<p>Uuung...!</p>
-<p>With a small whirring sound, the hologram projector turned on. And on the screen was a handsome young Man standing at a podium.</p>
-<p>"Ah...!"</p>
-<p>"Oh my...!"</p>
-<p>Several female employees unconsciously let out Admiration. It wasn't a Boss, but someone who should be a model or an Actor standing at the podium.</p>
-<p>-Hello, employees of Taira Food distribution. I am Taira Ryuta, who was appointed as the Boss of Taira Food distribution as of yesterday.</p>
-<p>They couldn't believe it, but that handsome Man was indeed Taira Ryuta, the Youngest of the Taira Family. Rumors said he was an illegitimate child, and perhaps because of that, a tragic Story was automatically playing in the minds of the female employees.</p>
-<p>"But what's with his Body? Is something being adjusted in real-time...?"</p>
-<p>The men also whispered about his Size, which was impossible to think of as a Japanese Person. Of course, it might have looked that way because it was on screen, but quite a few people had seen the current Boss visit the company yesterday, so they knew he was quite Tall. Even those who hadn't seen him directly had heard that Taira Ryuta was a tall, handsome Man, but the Man on screen was far more than what they had heard.... He gave off a different Feeling. So, some couldn't accept the Appearance on screen and spoke of 'adjustment'.</p>
-<p>However, the men who couldn't accept it as an adjustment soon fell silent, for though he was a delicately handsome Man, a dangerous Atmosphere emanated from him.</p>
-<p>-...Inheriting the three Spirits of the Taira Group, I will make Taira Food distribution a company that moves forward. That is all.</p>
-<p>The inauguration ceremony ended quickly. However, Boss Taira Ryuta was able to leave a deep Impression on all employees.</p>
-<p>Having officially started my work as Boss today, after the inauguration ceremony, I called the Heads of each Department and received their Reports.</p>
-<p>Next to me, Linxiang stood, receiving the Reports with me and learning the company's Work. Actually, I wanted to immediately use the Strategic Planning Team to run Auto-Hunting, but doing so on the first day felt a bit much, so I received the Reports first.</p>
-<p>After the inauguration ceremony and receiving Reports, it was already lunch time.</p>
-<p>"Let's have lunch outside."</p>
-<p>"Understood, Ryuta-nim."</p>
-<p>"Linxiang, at the company, organize today's Reports and talk with the Strategic Planning Team Kids. If there's anything that can be made more efficient, do it, or if you think a Department needs reinforcement, let me know."</p>
-<p>Since Linxiang didn't eat anyway, I entrusted the company's Work to Linxiang and headed to the Parking Lot. Today, my driver was Tsukiyo.</p>
-<p>Today, I recruited a driver at the mansion, and Tsukiyo enthusiastically raised her Hand, so I decided to entrust it to Tsukiyo. She was just a High School graduate, so I wondered if she didn't have a license, but surprisingly, Tsukiyo had obtained her license before graduating High School, and Linxiang had uploaded an automatic driving System to my vehicle, so it didn't really matter who sat as the driver.</p>
-<p>I heard from the two Shrine Maidens who visited me yesterday that Tsukiyo was a remarkably intelligent Character. They said that the recent mass Murder Incident in Village A was all meticulously planned by Tsukiyo. She had meticulously devised a scheme to take Revenge without becoming a criminal, allowing her to come to me. Although the martial arts she was learning from me were improving very quickly, it was still difficult to use them in Actual combat, but since using intelligence wasn't an Authority, I thought it wouldn't be much of a Problem, so I decided to appoint Tsukiyo as my Executive Secretary. Even if Linxiang was a strategist, she was on the Administration side, handling numerous tasks with artificial intelligence, and Tsukiyo felt like a tactician who used schemes, so I thought I could use them both in different ways.</p>
-<p>"Ehehe, Older Brother's martial arts lessons are fun, but it was too boring to just Train Inside the House for days."</p>
-<p>Tsukiyo said as she started the car.</p>
-<p>"Sorry, I couldn't pay attention because of the big competition and the Boss's inauguration."</p>
-<p>I've been quite busy lately, so I haven't been able to pay attention to the Kids at the mansion. Everyone except Jo Seodang had been given a Vacation until mid-March. The Jo Seodang Kids commute to and from Jo Seodang on their own, so that's fine, Shimokawabe Airen was gradually recovering her Condition and swinging her Sword with Alik, Saionji Diana was my driver until yesterday (she said she was going to Eve for Maintenance today), Kijimoto Jurie was holed up in the laboratory, but only Tsukiyo had nothing particular to do and was just focusing on Training. The Kids who went to the USA and the two at the shrine were also doing their own Work, so Tsukiyo seemed to have been bored all this time. That's why she raised her Hand most enthusiastically today.</p>
-<p>Come to think of it, it seems Tsukiyo was also the one who manipulated the two Shrine Maidens who visited me yesterday from behind. She was trying to appeal her intelligence to get other Work from me.</p>
-<p>"First, let's have lunch. I have a specific place to eat today, is that alright?"</p>
-<p>"I was already thinking of eating whatever Ryuta Older Brother wanted today~!"</p>
-<p>Since Tsukiyo ate everything well, I thought it would be good to eat what I liked together. Today, I wanted Korean-style Chinese food, so I headed to a nearby Korean-style Chinese restaurant with Tsukiyo. I had made a Reservation in advance because I had someone to meet.</p>
-<p>I thought Neo Tokyo, being a new City, wouldn't have much, but with numerous companies flocking in, many restaurants seemed to have opened. Of course, many companies had their own cafeterias, but sometimes you want to eat something different, so you could see restaurant streets everywhere.</p>
-<p>"Junior-nim~!"</p>
-<p>We parked in the shopping complex where the restaurant street was gathered and went to the restaurant I had scouted in advance, and Mimata Chieri greeted me with a smile. The person I was meeting today was not Secretary Mimata Chieri, but Mimata Chieri, the Boss of East Weapon.</p>
-<p>Since we met for Work, today we ordered a Chinese course dish. Tsukiyo, Mimata Chieri, and I all ate quite deliciously. Mimata Chieri, who had a hobby of visiting good restaurants, seemed quite satisfied, saying that she could add this place to her list of good restaurants today, and patted her Belly with a smile.</p>
-<p>Now, it's time to start Work. Before that, I decided to apologize to Mimata Chieri.</p>
-<p>"Sorry. It would have been better if I had done it yesterday...."</p>
-<p>"It's alright, Junior-nim. I am originally your secretary, after all. I understand everything that happened."</p>
-<p>When I apologized to Mimata Chieri, Mimata Chieri waved her Hand as if to say it was alright. The reason I met Mimata Chieri today was precisely to sign a contract for Taira Food distribution to supply foodstuffs to East Weapon. The reason I couldn't sign the contract yesterday was to avoid letting other Taira Successors know that I had known in advance that I would receive Taira Food distribution. Because I didn't want to be misunderstood as receiving Favor from Taira Danjo when I wasn't particularly favored. If I signed a contract with East Weapon immediately after receiving the company from Taira Danjo, I could easily be suspected, so I was a bit careful.</p>
-<p>Because of that reason, Mimata Chieri had to bother coming and going to Neo Tokyo twice, which is why I apologized. Mimata Chieri was also the Boss of a company, so her Time would be a great Asset, and I had made her expend it, so I had to apologize. Mimata Chieri said it was alright, but if I get the chance next time, I'll have to apologize with my Body once more.</p>
-<p>East Weapon was the largest PMC, excluding those affiliated with Large Corporations. As such, it had many employees, and their meal consumption was high, so it would be a contract of considerable Scale. At this level, Taira Food distribution's sales would also increase considerably. East Weapon also received various ingredients separately and cooked them in their cafeteria, but if Food distribution was unified through our Taira Food distribution, they would receive stable and slightly cheaper distribution.</p>
-<p>"First, sign these documents...."</p>
-<p>"Junior-nim, you too, here...."</p>
-<p>We each signed the documents. With this, Taira Food distribution would now supply East Weapon. East Weapon would have had existing supply contracts, but because I had spoken to them in advance, they had made Adjustments for their contracts with other suppliers to end in a week. Our side also couldn't increase the amount of goods distributed in a single day, so we needed about a week, which was just the right amount of Time.</p>
-<p>I took a Photo of the signed documents with my phone camera. And sent it to Linxiang.</p>
-<p>-Ryuta: Photo.</p>
-<p>-Ryuta: I've finished the contract with East Weapon, so inform the Strategic Planning Team and distribute the Work to each Department.</p>
-<p>-Linxiang: Understood, Ryuta-nim!</p>
-<p>From now on, I should gradually start Auto-Hunting. Even so, no one would criticize me. Because I had the Achievement of signing a contract with East Weapon, the largest independent PMC.</p>
-<p>Shii delivering an uppercut, Ryuta slapping a cheek, requested by MidNightSKY-nim~!</p>
-<p>Starting with Shii~!</p>
-<p>Ryuta slapping a cheek~!</p>
-<p>Something wasn't expressed well like this, so I applied LORA, but</p>
-<p>The art style changed too much, so it won't work ㅎㅎ</p>
-<p>Lisa, and the Home Economics Teacher lying on a bed in a bikini, requested by Hwanbuljeoldaebulga-nim~!</p>
-<p>Starting with Lisa-tang~!</p>
-<p>Home Economics Teacher~!</p>
-<p>Sexy Ninja Nagumo Sian, Sexy Armor Nae, requested by ISaveI-nim~!</p>
-<p>Starting with Sian~!</p>
-<p>Nae~!</p>
-<p>I was surprised while making them; surprisingly, the bikini Armor prompt didn't work ㄷㄷ So I added bikini + individual body part Armor prompts to create them ㅎㅎ</p>
+<p>a before chapter check erotic is please surroundings this with your</p>
+<p>「A Gun?」</p>
+<p>In front of the abandoned factory, several people were bleeding and collapsed. Genba Kiyohira muttered and turned a Body over, finding a Bullet hole. All of them looked menacing, and seeing their Tattoos, it seemed they were Human Trafficking gang members.</p>
+<p>「Did they spray Bullets...?」</p>
+<p>The Corpses had countless Bullet holes like a honeycomb, so Musashi Takuro frowned and muttered.</p>
+<p>They had prepared for Guns because they were wearing high-performance Cyber Suits with bulletproof capabilities, but if they sprayed Bullets like this, even a Cyber Suit wouldn't be able to withstand it.</p>
+<p>「We need to be careful. We should go in while protecting our Bodies with as much cover as possible.」</p>
+<p>Genba Kiyohira nodded his Head at Musashi Takuro's Words and leaned his Body against the abandoned factory's wall. Musashi Takuro also opened the abandoned factory's door while leaning against the wall.</p>
+<p>Kkii-iik...!</p>
+<p>With a chilling sound, Genba Kiyohira and Musashi Takuro entered the abandoned factory through its opened door.</p>
+<p>「!」</p>
+<p>Inside the abandoned factory, Corpses were also scattered everywhere. All of them were Human Trafficking gang members armed with Guns, but all of them couldn't even resist and lay collapsed with wide-open Eyes.</p>
+<p>「Another moth has fallen into my Spiderweb!」</p>
+<p>From around the abandoned factory's ceiling, a Voice was heard. Genba Kiyohira and Musashi Takuro looked at the ceiling, and there was a man floating in empty space. The man was wearing a dark blue Cyber Suit so he could blend into dark Places, and was not holding any particular Weapon.</p>
+<p>「Is he a Flight Ability User...?」</p>
+<p>「No. Look closely, Kiyohira.」</p>
+<p>As Musashi Takuro said, when they looked closely, the man was standing on a tightly stretched transparent Glistening Trail. Of course, standing on a Glistening Trail was amazing, but Genba Kiyohira, for now, felt Relief that the Opponent was not a Superhuman. Superhumans were very annoying Opponents.</p>
+<p>「Seeing that he has no Weapon....」</p>
+<p>「Yes, that Guy must be the one who cast the Barrier. He's a sorcerer. And the Guy who fired the Gun is somewhere else.」</p>
+<p>「Heh heh, this moth is a bit different, isn't it? He even knows about Barriers. But no matter how Intriguing, I can't just let him go.」</p>
+<p>As if he heard what Genba Kiyohira and Musashi Takuro were saying, the dark blue Cyber Suit man, who seemed quite Intrigued, snapped his Fingers.</p>
+<p>Tang!</p>
+<p>Because of the blatant Killing Intent before the Marksmanship, Genba Kiyohira and Musashi Takuro rolled on the floor and were able to avoid the Gunfire. The two hurriedly hid their Bodies behind the abandoned equipment in the abandoned factory.</p>
+<p>「Heh heh heh! I am Geomi! Once you're caught in my Spiderweb, no matter where you run, you're in my Hand!」</p>
+<p>Tang tang!</p>
+<p>As the man who revealed himself as Geomi said, this Time, Gunfire continued from the opposite side where Genba Kiyohira and Musashi Takuro had hidden their Bodies. Marksmanship was done from a Place completely different from where the Gun was fired earlier.</p>
+<p>「What...?! Is it not just one Person?」</p>
+<p>「No, it's one Person's Killing Intent...! How did he do it?」</p>
+<p>The two Sabu and Disciple again dodged and had an urgent Conversation. While they were dodging like that, the Gunfire continued, and no matter where Genba Kiyohira and Musashi Takuro hid, Marksmanship continued towards where their Bodies were exposed.</p>
+<p>Tang!</p>
+<p>「Keueut!」</p>
+<p>Genba Kiyohira, who was shot in the Shoulder, let out a painful moan. Even if the Cyber Suit blocked it, it couldn't block all of the Impact, so there was no choice but to feel Pain.</p>
+<p>「Watching you run is fun, but I have to receive the next customer, so shall I end this soon?」</p>
+<p>As soon as Geomi said he would end it, Musashi Takuro and Genba Kiyohira tripped and fell. The Spiderweb Geomi was standing on was laid out all over the abandoned factory, and Geomi pulled it taut again, creating an invisible trap.</p>
+<p>「jenjang! If he were in front of my Eyes, I could beat him to death!」</p>
+<p>「Hahaha! Of course, as you said, everyone has their own hunt method, but my hunt method seems superior!」</p>
+<p>As Genba Kiyohira burst out in anger, Geomi scoffed and said. Musashi Takuro looked at the laughing Geomi and smiled. And in a low Voice, audible only to Genba Kiyohira, he muttered.</p>
+<p>「It's according to the jakjeon.」</p>
+<p>「Huh? Didn't we just run wherever our Feet took us?」</p>
+<p>「We did run, but not just wherever our Feet took us. In the end, that Geomi Guy has a limited number of Pillars to tie his Spiderweb to. I checked while running and found that the Spiderweb was tied to that Pillar and that Pillar.」</p>
+<p>Musashi Takuro subtly pointed to two Pillars with his Eyes and said. One of the Pillars Musashi Takuro pointed to had become quite close while they were running.</p>
+<p>Musashi Takuro, who had fought countless battles, even while running, seemed to have used his Intimate Experience and thought of a Method to overcome the current Situation.</p>
+<p>「I'll collapse the Pillar, so you catch that Geomi Guy when he falls. That Geomi Guy is probably one of the Black Sage's vigilante sanyangkkun.」</p>
+<p>「Understood, Sabu!」</p>
+<p>The two finished their Conversation and ran through the pouring Bullets. Genba Kiyohira raised his Cyberware Arm and ran, blocking the Bullets fired at himself and Musashi Takuro. Having safely arrived at the target Pillar, Musashi Takuro clenched his Fist.</p>
+<p>-Ever-Victorious Mountain-Breaking Style: Iron Pillar Collapse Strike.</p>
+<p>A Fist fired like a Cannonball. And with a tremendous roar, Musashi Takuro struck the Iron Pillar. The part Musashi Takuro struck was destroyed, and the Iron Pillar collapsed.</p>
+<p>「Keuheok!」</p>
+<p>In an instant, as the Spiderweb supporting his Body loosened, Geomi fell to the abandoned factory's floor. Even though he fell from a considerable Height, Geomi landed lightly.</p>
+<p>「Oh, oh! Amazing! You're the first ones to push me this far here!」</p>
+<p>Even though he had fallen to the floor, Geomi showed no Expression of Taut Tension at all. Undeterred by Geomi's confident Appearance, Genba Kiyohira Charged at Geomi.</p>
+<p>Huung!</p>
+<p>The Spiderweb caught on the wildly swung Fist. The Spiderweb was incredibly sharp, tearing the Cyber Suit and digging into Genba Kiyohira's Muscles. If this continued, with the thought that his remaining intact Arm might also be severed, Genba Kiyohira had no choice but to retract his Fist.</p>
+<p>「Just because I'm above doesn't mean you can hit me. Understand?」</p>
+<p>Geomi, with arrogant Confidence that he could never be defeated, approached Genba Kiyohira. Spiderwebs fluttered around Geomi's Body, so as Geomi came closer, the Spiderwebs tied around Genba Kiyohira's Body, making it increasingly difficult to move.</p>
+<p>「Beat me to death, just like you said earlier. Huh?」</p>
+<p>Chalsseok! Chalsseok!</p>
+<p>Geomi slapped Genba Kiyohira's Cheek and mocked him. Even though he was slapped on the Cheek, Genba Kiyohira was smiling.</p>
+<p>「I can really beat you to death, right?」</p>
+<p>Wii-i-i-ing!</p>
+<p>Simultaneously with Genba Kiyohira's Question, from the forearm of Genba Kiyohira's Cyber Implant, a small saw popped out and began cutting the Spiderweb. Because it was a prototype Cyber Implant made with many scenarios in mind, a saw was installed on Genba Kiyohira's Arm in case he was tied up.</p>
+<p>「jenjang!」</p>
+<p>As Genba Kiyohira's Cyber Implant showed unusual activity, Geomi tried to retreat, but Genba Kiyohira raised his Arm, which was not equipped with a Cyber Implant, and grabbed Geomi's Wrist. The Spiderweb tied around his Arm tore through the Leather and dug into his Muscles, making it bloody, but Genba Kiyohira didn't care. With the thought that he had to punch this Annoying Guy's Face right now, he didn't even feel the Pain.</p>
+<p>「As you said, I'll beat you to death.」</p>
+<p>Kuung!</p>
+<p>The Iron Fist, gaejo with a Cyber Implant, slammed into Geomi's Face. Genba Kiyohira's Fist broke Geomi's Helmet and struck Geomi's Face.</p>
+<p>「Keuheo-eok!」</p>
+<p>Although he hit him with a Cyber Implant Fist that was no different from a lump of Iron, Genba Kiyohira did not beat him to death as he had promised. This was because he had to extract Information from this Guy.</p>
+<p>「Did he kill him? No, he's alive....」</p>
+<p>Musashi Takuro, looking at Geomi, who was convulsing and trembling all over his Body, opened his mouth.</p>
+<p>「While you were fighting this Guy, I tried to find the one who was firing the Gun, but I couldn't see him.」</p>
+<p>Genba Kiyohira had wondered what his Sabu was doing in the middle of the fight, but Musashi Takuro seemed to have anticipated Genba Kiyohira would defeat Geomi and tried to find the other Enemy who was firing the Gun. Did he run away? Genba Kiyohira also, when fighting Geomi, thought it was strange that there was no covering fire from the Enemy.</p>
+<p>「We dealt with the Enemy who was firing the Gun.」</p>
+<p>The one who appeared was Sawayanagi Azuma, the Boss of Seryu Military Company. She was with Sawayanagi Sinya, the Vice President, and in Sawayanagi Sinya's Hand, a thin man wearing VR gear was dangling. That dangling man was probably the Guy who was firing the Gun.</p>
+<p>「He didn't fire the Gun directly, but after installing numerous Guns and Cameras in the factory, he connected via VR Dive and fired the Guns. He was in the warehouse room attached to the back of the factory.」</p>
+<p>「Ah, so that's why he could Attack us no matter how much we hid.」</p>
+<p>At Sawayanagi Sinya's Words, Genba Kiyohira spoke as if he had realized. After arriving at the abandoned factory, the two Seryutai members quickly came, and thanks to them taking care of the VR Diver, they were able to win easily.</p>
+<p>「But how did you know we were under Attack and found us?」</p>
+<p>「The Signal suddenly cut off. We thought something was up.」</p>
+<p>「Ah....」</p>
+<p>Even without a Report, because it was a Two-Way communication, if the Signal suddenly cut off, it was natural for the support team to deploy to check what was happening. Genba Kiyohira and Musashi Takuro, who thought they couldn't receive support because they couldn't leave Contact, looked at each other with an Expression that said, "Ah, that makes sense."</p>
+<p>「For now, let's all return. We've captured the Enemy as planned, and Genba-ssi's Wound also looks serious.」</p>
+<p>Sawayanagi Azuma, looking at Genba Kiyohira's Hand, which was dripping Blood, said. Even though he was bleeding quite a lot, Genba Kiyohira was still holding Geomi's Wrist. Genba Kiyohira, looking at his bleeding Arm, smiled weakly.</p>
+<p>「I need to go back and get Chiryo quickly.」</p>
+<p>「Yes, let's get Chiryo quickly, you Guy. You didn't overdo it because you wanted another Cyber Implant, did you?」</p>
+<p>「What are you talking about? One Cyber Implant Arm is enough, Sabu.」</p>
+<p>Thus, Genba Kiyohira and Musashi Takuro, who had willingly entered Geomi's Nest, along with Sawayanagi Azuma and Sawayanagi Sinya, returned to the Safe House, taking the Prisoner with them.</p>
+<p>Gojoy-nim requested Han Yu-gyeong and Ryuta's first meeting. 1. Ryuta catching her when she falls, 2. Yu-gyeong and Ryuta going to the motel together.</p>
+<p>1.</p>
+<p>2.</p>
+<p>It's harder to point to go to a motel than to hold Hands, haha. If I use a 'pointing' prompt, it points towards the protagonist, haha. So I changed it to a scene where they enter the motel looking a bit shy, haha.</p>
+<p>Chomisaemeonji-nim requested Liz wearing a shirt harness and Liz in Tortoise Shell Bondage~!</p>
+<p>Harness~!</p>
+<p>Tortoise Shell Bondage</p>
+<p>Kkippaet!</p>

@@ -5,75 +5,73 @@ weight = 406
 chapter = 406
 +++
 
-<p>Leaving the sniper's corpse as is, I went down from the rooftop, crossed the road, and headed to the parking lot, where Han Yu-gyeong and Dickson were surrounded by over a dozen assassins dressed in black, lying on the ground. Nero and White Bear were standing guard as if to protect Dickson and Han Yu-gyeong, and Dickson, holding a pistol, aimed it at me as I suddenly appeared, but he recognized me and lowered the pistol again.</p>
-<p>To openly attempt assassination at a restaurant and even set up an ambush in the parking lot... It seemed that BS Group had made up their minds to attack, perhaps because I, from TG Investment, known to be collaborating with Han Yu-gyeong, had suddenly appeared.</p>
-<p>,I heard a radio message requesting reinforcements earlier, so this probably isn't the end. Let's get in the car and move first."</p>
-<p>At Dickson's words, we nodded and got into the car. The car ran over the bodies of the fallen assassins and headed into the underground parking lot of the building.</p>
-<p>,But how did they know our location?"</p>
-<p>,Since they know my house and my car, they probably followed Dickson coming towards the TG Tech research-factory site."</p>
-<p>In response to my question, Han Yu-gyeong answered with her own speculation. It was certainly easy to follow since her house location and car were exposed. It wasn't really Dickson's fault that they came with such determination.</p>
-<p>,I should have been more careful... I'm sorry."</p>
-<p>,It's okay. If BS Group was determined, there's nothing Dickson could do."</p>
-<p>When Dickson, who was driving, apologized, Han Yu-gyeong said it was okay and comforted Dickson. Even so, she seemed to be lost in thought, resting her chin on her hand as if thinking about what to do next. The car was momentarily filled with silence.</p>
-<p>I was also thinking about what to do, and a few methods I used in the game flashed through my mind, but they weren't very satisfactory.</p>
-<p>,Let's do this."</p>
-<p>Han Yu-gyeong thought for a moment and then opened her mouth. Perhaps because her intelligence stat was high, she seemed to have come up with an idea quickly.</p>
-<p>,Now that things have come to this, they'll send a considerable number of troops to us to make sure we're killed. We'll lure the assassins to the place where those mutated stray dogs Yong-tae-gun mentioned yesterday are swarming. And then..."</p>
+<p>The Ratflix viewing party ended, and the first assignment that the Dating Experience Club had been working on for several days was over. The rest was for all the students to write down their experiences and make it a part of the booklet that would be created for the festival later, but that wasn't my job. It was the club members' job, so I had nothing more to do.</p>
+<p>Seizawa Shii and Konoe Akina, who had been creating a strange atmosphere in the faculty advisor's office until just now, were pretending nothing had happened, acting all innocent and aloof. I was standing there awkwardly with a semi because of these two, but they were acting so nonchalant, which was a little annoying, but it would be weird to make a fuss about what happened, so I quietly said goodbye to the kids and went outside.</p>
+<p>"Work hard. I'm heading out."</p>
+<p>"Bye~! Ryuta-cchi!"</p>
+<p>"Goodbye, teacher~!"</p>
+<p>I received the students' greetings and went down to the first floor. I was still horny, so I was going to go to the nurse's office where Kijimoto Jurie is before going to the Education Preparation Room, but history teacher Ootawa Masato was loitering in front of the nurse's office. Hmm, seeing Ootawa Masato in the hallway, Kijimoto Jurie probably isn't in the nurse's office.</p>
+<p>"Ah, Kiji... no, Yamashiro-sensei. What brings you down from the second floor?"</p>
+<p>"I have a club on the second floor that I'm advising. I just came to check on them."</p>
+<p>Ootawa Masato looked towards me with a bright expression, thinking it was Kijimoto Jurie when he heard footsteps, but his face fell when he realized it was me.</p>
+<p>"Ah... I see."</p>
+<p>"By the way, what brings you here? There's only the special class here, so did you come to see me or a student from the special class?"</p>
+<p>I deliberately left out the nurse's office. The special class was truly special. It was a class for delinquents and students with health problems, so you should usually communicate directly with the student or through the special class teacher.</p>
+<p>Especially considering the recent sexual harassment incident involving the former homeroom teacher and the fact that the daughter of the Minamoto family is in that class, I had to be even more careful. I remember hearing about these rules for the special class at the meeting at the beginning of the semester. Ootawa Masato is loitering in the hallway of the building where the special class is without thinking about that.</p>
+<p>"Ah, no, I was waiting to meet Kijimoto-sensei."</p>
+<p>"It's after school, why don't you make an appointment and meet outside..."</p>
+<p>Of course, Kijimoto Jurie wouldn't make an appointment, so he's waiting here, but that's none of my business.</p>
+<p>"But what is your relationship with Kijimoto-sensei, Yamashiro-sensei...?"</p>
+<p>That's right, Ootawa Masato was listening at the door when I was having sex with Kijimoto Jurie in the nurse's office. He's probably asking because of the moaning he heard back then.</p>
+<p>"Kijimoto-sensei and I have a 'good' colleague relationship. The Education Preparation Room where I mainly work is close to the nurse's office."</p>
+<p>I emphasized "good" with a strange smile, and Ootawa Masato's face turned red and blue. Then he took a deep breath as if trying to hold back his anger, which was quite funny. There was nothing scary about him getting angry.</p>
+<p>I should be the one getting angry. Kijimoto Jurie told me that Ootawa Masato keeps coming to the nurse's office even though she shows that she's uncomfortable, so he seemed likely to become a stalker. He's eyeing Kijimoto Jurie, who I've slept with. I was planning to make him pay someday.</p>
+<p>Yamashiro Ryuta: Kijimoto-sensei, did you leave work? Ootawa-sensei is in front of the nurse's office.</p>
+<p>Kijimoto Jurie: Ah, yes! I left work. Why is he waiting in front of the nurse's office after school? It's kind of creepy (ఠ ̥̆ ఠ)</p>
+<p>"Kijimoto-sensei said she left work. Then..."</p>
+<p>I was about to enter the Education Preparation Room after texting Kijimoto Jurie when Ootawa Masato grabbed my arm. He seemed to be emotionally shaken by the fact that I was texting Kijimoto Jurie right in front of him and even told him the result.</p>
+<p>"D-Did she really leave work?"</p>
+<p>"Kijimoto-sensei wouldn't lie in a text, so she probably left work, right? And let go of my arm..."</p>
+<p>I was already annoyed that he kept clinging to her when Kijimoto Jurie said she was uncomfortable, but I was starting to get really annoyed because he didn't seem to want to let go of my arm, and he was slowly putting strength into it.</p>
+<p>Ootawa Masato was big, but he was shorter than me, and he wasn't trained muscle like me, but a guy who just looked bulky because of fat. It was ridiculous that such a guy was trying to beat me with his size.</p>
+<p>"Please let go of my arm. Unless you want to be referred to the disciplinary committee for violent behavior."</p>
+<p>Still, this is my workplace, and I'm not just a regular worker, but I'm here undercover for Taira Danjo's mission, so I held back and said it one more time.</p>
+<p>"Ah, I'm sorry."</p>
+<p>Ootawa Masato finally let go of my hand when I mentioned the disciplinary committee. I didn't need to use my strength to deal with a guy like him. I had already expanded my influence within the school enough to make things difficult for Ootawa Masato without force. I need to show him the bitter taste of society.</p>
+<p>"I'm going in now, so Ootawa-sensei, please leave the hallway."</p>
+<p>I went into the Education Preparation Room and sent texts to two people. Hmm, if I push him this far, Ootawa Masato might corner himself and harm Kijimoto Jurie or me...?</p>
+<p>It's okay if he does something to me, but I'm worried about Kijimoto Jurie, so I should ask Eve to make some personal protective equipment or buy some items from the underworld, even if I don't ask Eve to make them.</p>
+<p>I'm already planning to hang out with Eve this week, so it wouldn't be bad to stop by. I also need to thank Han Yu-gyeong for the lingerie gift I gave her. It was a gift for Han Yu-gyeong, but I was the one who enjoyed it the most.</p>
 <p>###</p>
-<p>A slightly thin man with slicked-back hair was on the phone. The man was Park Young-beom, the president of BS Defender, whom Jin Yong-tae and Han Yu-gyeong had met at the charity dinner show the day before. Park Young-beom had been working with Han Yu-gyeong and Vanguard in the BS Group succession war, using force against their opponent, Park Il-soo, but as Park Il-soo's forces nearly disappeared and Vanguard became increasingly burdensome, he was now in charge of dealing with Vanguard.</p>
-<p>-The agents sent as the advance team have been completely annihilated. We are currently pursuing Han Yu-gyeong's vehicle with three times the manpower.</p>
-<p>It was the result report Park Young-beom had been waiting for, but he frowned because he didn't like the result. He had sent as many as fifteen people, but they couldn't kill even three people and were annihilated. He didn't like it.</p>
-<p>,Are you saying that fifteen people couldn't defeat just three people? Besides, the only one with a gun should be Han Yu-gyeong's bodyguard, Dickson, right?"</p>
-<p>Park Young-beom's rebuke was quiet, but the person on the phone seemed very afraid. Those who received Park Young-beom's rebuke and failed to come up with a proper solution were frequently demoted or disappeared altogether.</p>
-<p>-I'm sorry...! Uh, well, I saw what the surveillance agent filmed, and a new man jumped between buildings with his bare body. Perhaps he's one of those recently talked about superhumans...</p>
-<p>,A superhuman? I can jump between buildings too, you know? Just because of that..."</p>
-<p>Instantly, Park Young-beom's face was filled with annoyance. How wide could the gap between buildings be that jumping over it made someone a superhuman? He was thinking of cutting him off right away, but an answer came quickly as if making an excuse.</p>
-<p>-Ah, I'm sorry. I didn't explain it properly. He didn't just jump between buildings, but jumped over buildings with a four-lane road in between at once and took care of the sniper with his fist.</p>
-<p>If so, it meant that the new man, Jin Yong-tae of TG Investment, whom the reporter was talking about, was indeed a superhuman. Due to the LA incident caused by the recent famine, the government and large corporations were conducting research on superpowers, but the BS Group was late to start the research due to the succession war.</p>
-<p>For Park Young-beom, it felt like winning the lottery as a new sample walked in on its own. If he could capture only Jin Yong-tae, he could conduct the numerous studies that the researchers wanted to do.</p>
-<p>,First of all, don't tell this fact to anyone but me, send me the video taken by the surveillance agent, and destroy it. If other companies or the government notice, we might lose Jin Yong-tae. Do you understand?"</p>
-<p>-Yes. Then... should we capture that man named Jin Yong-tae?</p>
-<p>The person on the phone tactfully asked about capturing Jin Yong-tae. Park Young-beom smiled and nodded.</p>
-<p>,We need to do research, so package him well and send him here alive. If you succeed in this, you'll receive a big incentive."</p>
-<p>-What about the others...? Do we kill Han Yu-gyeong, the CEO of Vanguard, too?</p>
-<p>Han Yu-gyeong was still the daughter of a chaebol family in the top ten, so he was asking one more time just in case. It could cause problems later, so he had already received orders to kill her from before, but it felt like he was confirming one more time.</p>
-<p>,Get rid of everyone except Jin Yong-tae. Even if you kill Han Yu-gyeong, the Shin-gang side won't have any complaints about us. Now that we know there's a superhuman on the other side, prepare plenty of troops."</p>
-<p>-Understood. I will definitely bring good results.</p>
-<p>After hanging up the phone, Park Young-beom put both hands behind his head, leaned back in his chair, and buried himself in it.</p>
-<p>,To say that even if she's a cousin I hate, it's okay to have someone else kill her... those Shin-gang bastards are really something..."</p>
-<p>Park Young-beom chuckled, remembering the story he had heard from Han Yu-yeon, Han Yu-gyeong's cousin, at the dinner show party yesterday.</p>
-<p>-I heard they're sending gunmen to Yu-gyeong these days...</p>
-<p>-Even if Yu-gyeong dies, no one in Shin-gang will protest.</p>
-<p>-If Yu-gyeong dies, won't Vanguard, which Yu-gyeong owns, become ours?</p>
-<p>Of course, he felt quite good when his cousin Park Sang-beom died, but he didn't think of entrusting the matter to another chaebol family. Rather, he would have sent troops to immediately stop another chaebol family from touching Park Sang-beom. Since what they could do to Park Sang-beom, they could also do to him, he had to nip such attempts in the bud from the beginning.</p>
-<p>,How can a family like this ever succeed?"</p>
-<p>It wasn't something that a person from the BS Group, which was having a succession war so tumultuous that it was causing a stir in Korea, should say, but Park Young-beom comfortably leaned back in his chair and waited for good results to come out.</p>
-<p>Soon, a sound rang out, and a video that the surveillance agent had taken arrived on Park Young-beom's phone. Park Young-beom watched the video. The quality wasn't very good because it was taken from quite a distance to avoid being caught. However, someone presumed to be Jin Yong-tae was seen jumping an incredible distance to the rooftop where the sniper was. Jin Yong-tae brutally blew the sniper's head off with one blow, but Park Young-beom smiled broadly at the brutal scene.</p>
-<p>,Today is my lucky day."</p>
-<p>###</p>
-<p>,Several black vehicles are following us. It seems like quite a number."</p>
-<p>Dickson glanced at the side mirror and told us. Han Yu-gyeong clenched her fist with a look that said, "It's a success!" A large SUV that could seat twelve people was chasing us, so it seemed that there were at least several dozen enemies.</p>
-<p>,At this rate, BS Defender's forces must have decreased too. I'll contact Vanguard."</p>
-<p>Han Yu-gyeong had devised a plan to lure the troops chasing us and then have Vanguard attack BS Defender. It was a simple plan, but if it succeeded, it was a plan that could inflict a great blow on the opponent.</p>
-<p>We pretended to be running away frantically and drove towards Bukhansan National Park. We were moving as if to let the enemy think they were conducting a drive hunt, pretending to be driven just enough. On top of that, we had created a little more distance. The driver, Dickson, played a significant role, and perhaps he had a driving specialty.</p>
-<p>,You're a good driver, Dickson."</p>
-<p>,My skills suddenly improved a lot after I started driving for the president-nim."</p>
-<p>At my words, Dickson answered as if it were nothing. Listening to the story, it seemed that he had gained a driving-related specialty through level-up after joining Han Yu-gyeong.</p>
-<p>Squeak!</p>
-<p>Before we knew it, we had arrived, and the car stopped. Looking out the window, it was the parking lot of Bukhansan National Park, which looked quite desolate. There were warnings written on a large sign: "Beware of Landmines! Do Not Stray from the Hiking Trail! Beware of Stray Dogs!"</p>
-<p>No wonder there were no people. Even though it was a little past lunchtime on Friday, there were no parked cars. Of course, no one approached due to the recent rumors of monsters appearing.</p>
-<p>,Dickson, what kind of gun do you have?"</p>
-<p>,It's a pistol, but..."</p>
-<p>Since it had been proven in the early morning that a pistol couldn't damage the mutated stray dogs through Lara Sinclair's experiment, it was unreasonable for Dickson to climb the mountain with us. If Dickson came along, it would be like having an extra burden, so it seemed better to give Dickson a different mission.</p>
-<p>,A pistol can't damage the experimental subjects that come out of the mountain. Hide over there and join Vanguard when the enemies follow us up the mountain."</p>
-<p>,But..."</p>
-<p>,That's an order, Dickson."</p>
-<p>Han Yu-gyeong seemed to have the same thought as me and told Dickson to move separately. If Han Yu-gyeong's buff magic, Starlight Tempering, was available, Dickson's pistol might be able to deal damage, but since we hadn't experimented with a pistol yesterday, we couldn't have Dickson climb the mountain for something uncertain.</p>
-<p>,...Understood."</p>
-<p>Since it was an order, Dickson reluctantly nodded and hid in a well-hidden spot behind the abandoned Bukhansan management office near the entrance, where no one was around.</p>
-<p>,Let's go up."</p>
-<p>We had to show that we were climbing the mountain for Dickson's safety, as the sound of cars was heard in the distance.</p>
-<p>We quickly ran and climbed the hiking trail. Han Yu-gyeong had deployed a shield, and I created a shadow in the shape of a person to make it seem like Dickson was with us as we climbed the mountain. As we climbed the hiking trail a little, we heard a voice from below saying, "They're climbing the mountain!" Judging from the fact that there were no gunshots, it seemed that Dickson hadn't been caught by the enemy.</p>
-<p>-----</p>
-<p>White Bear and Yu-gyeong</p>
-<p>The puppy works well hehehe</p>
+<p>Kwaang!</p>
+<p>Ootawa Masato was looking at the Education Preparation Room door that had closed in front of him.</p>
+<p>'That young punk...!'</p>
+<p>He threatened me with the disciplinary committee and stuff, so I let go for now, but the fact that a guy who didn't seem like much threatened me made me angry.</p>
+<p>More than anything, I wanted to ask Yamashiro Ryuta, who was clinging to Kijimoto Jurie, my future lover, about the truth of that strange sound in the nurse's office a few days ago, but it was canceled, which was a shame.</p>
+<p>"Should I have just kept holding his arm and asked?"</p>
+<p>Ootawa Masato muttered and walked down the hallway. Kijimoto Jurie is shy, so she hasn't exchanged Line IDs with me yet. Still, I knew that Kijimoto Jurie wasn't in the nurse's office through Yamashiro Ryuta (when I thought about it, I was even more angry at Yamashiro Ryuta for daring to contact Kijimoto Jurie), so I decided to go home.</p>
+<p>Just as he was about to leave the special class building, Ootawa Masato's phone rang. Looking at the name, it was Kasaoka Yuzuki, the head of the third-year students.</p>
+<p>"Yes, this is Ootawa Masato."</p>
+<p>"Ootawa-sensei. We just received a complaint. You were wandering around the special class hallway and showed a coercive attitude towards Yamashiro-sensei."</p>
+<p>Ootawa Masato frowned at Kasaoka Yuzuki's words. That Yamashiro guy! He immediately snitched to Kasaoka Yuzuki...!</p>
+<p>"T-That's not true. Kasaoka-sensei...!"</p>
+<p>"What's not true? That you were wandering around the special class hallway? Or that you showed a coercive attitude towards Yamashiro-sensei?"</p>
+<p>"Well... I was in the special class hallway because I had something to do with Kijimoto Jurie-sensei, and I took a coercive attitude towards Yamashiro-sensei... When Yamashiro-sensei was about to enter the Education Preparation Room, I just grabbed his arm tightly without realizing it to ask where Kijimoto-sensei was. Yamashiro-sensei must have thought it was coercive. I need to apologize to Yamashiro-sensei for this."</p>
+<p>That's a great explanation, Ootawa Masato thought. No matter what anyone else says, I can just brush it off by saying that Yamashiro Ryuta misunderstood, like I'm doing now.</p>
+<p>"Is that so? In the future, even if you have something to do with Kijimoto-sensei, don't be in the special class hallway. I'll be watching you, Ootawa-sensei!"</p>
+<p>"Yes...! I understand. I'll be careful..."</p>
+<p>Phew, thankfully it just passed with a reprimand. Ootawa Masato wiped the sweat that was flowing as he hung up the phone. He was going to the parking lot to leave work when the phone rang again. This time it was the Director, Daigo Terue.</p>
+<p>That Yamashiro Ryuta guy, did he even snitch to the Director? Ootawa Masato's hands trembled. Daigo Terue was different from Kasaoka Yuzuki. She was a very meticulous person, so she would definitely ask much more detailed questions than Kasaoka Yuzuki.</p>
+<p>"Ootawa-sensei. I set a few rules when the second semester started. It was definitely at the meeting where all the teachers gathered. I definitely remember Ootawa-sensei being there too."</p>
+<p>"Y-Yes! That's right, Director-nim."</p>
+<p>Ootawa Masato was wondering why she was talking about the meeting where all the teachers gathered at the beginning of the semester when he thought she would scold him right away.</p>
+<p>"One of those rules was not to enter the special class building unless you have a class or a special reason, right? But why did Ootawa-sensei, who is an educator who should abide by the rules more than anyone else, break the rules?"</p>
+<p>In the end, Daigo Terue's words were asking why he broke the rules. Even if he made excuses like he did to Kasaoka Yuzuki, it wouldn't be an excuse for breaking the rules. Wanting to see Kijimoto Jurie couldn't be seen as a 'special reason' in the rules set at the beginning of the semester.</p>
+<p>"We also set a penalty for violating the rules at that time. It's a warning, Ootawa-sensei. If Kijimoto Jurie-nim, whom you mentioned as an excuse to the head of the grade, complains about Ootawa-sensei, it's another warning. Do you understand?"</p>
+<p>"Yes...! I understand. I'll be careful."</p>
+<p>Among the measures taken by St. Francis Girls' Academy, a warning was by no means a small penalty. Like in soccer, if you get more than two warnings, you'll be mercilessly fired. Since St. Francis Girls' Academy was the best prestigious girls' school in Japan anyway, there were many applicants who wanted to become teachers, so there was almost no mercy for teachers who caused trouble.</p>
+<p>Kijimoto Jurie wouldn't complain about him, her future boyfriend, but the warning he received this time was painful. If he receives a warning, the contents of the warning will be delivered to all the teachers, so Kijimoto Jurie will see it too, which would be a very embarrassing thing as her future boyfriend.</p>
+<p>"Kuh-heuk! Damn it...! Everyone only believes that Yamashiro guy.... That's it! They're both under Yamashiro Ryuta's spell and only listen to him!"</p>
+<p>Ootawa Masato muttered in anger. He's just saying it out of anger, but Ootawa Masato will never know that he luckily said the right answer.</p>
+<p>------</p>
+<p>Lunar New Year Special Hanbok Series Konoe Akina!!</p>

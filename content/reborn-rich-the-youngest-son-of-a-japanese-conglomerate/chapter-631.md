@@ -5,60 +5,70 @@ weight = 631
 chapter = 631
 +++
 
-<p>「Wow.... What's Sword and Gun Stance? Isn't it super broken?」 Otagi Yuka, who was listening beside me, said in surprise. While the Sword and Gun Stance Trait is indeed broken if its conditions are perfectly met, those conditions are difficult to achieve, requiring other Traits to manifest as desired, making it a very challenging Trait to fulfill.</p>
-<p>「I.... I'm satisfied that the Limbs Loss debuff attached to my Status Window is gone.」 Saionji Diana smiled, seemingly satisfied. In fact, when her Stats were checked before, it was prior to equipping cyber implants, so her Stats were extremely low due to the Limbs Loss debuff. Thus, Saionji Diana seemed content with the debuff being gone. Still, since her Level had risen significantly and she had even gained good Traits, she could be called an excellent combat agent.</p>
-<p>「Then it's my Turn! I'm curious too.」 Was it Otagi Yuka's Turn? To be honest, I was curious about Otagi Yuka's Stats as well. Due to the Vampire Race Trait, raising Blood Energy Stats through Blood Sucking is more important than Leveling up, and since she had absorbed an enormous amount of Blood in New Nanjing City, I was curious how much it had increased.</p>
-<p>I looked at Otagi Yuka while wearing the Ruins' Glasses. ◆Name: Otagi Yuka (愛宕 夕香) Lv14</p>
-<p>Strength:16 Agility:16 Stamina:16 Resistance:16 Recovery:16 Sensitive Nerves:16 Appearance:16</p>
-<p>Intelligence:8 Knowledge:7 Focus:10 Will:9 Creativity:3 Charm:15 Judgment:8</p>
-<p>Luck:6 Blood Energy:16 Satiety: 98/100</p>
-<p>◆Akagamikiba Style (赤神牙式: Red God Fang Style) (Unique Swordsmanship Lv12) ◆Otagi Style Blood Energy Sorcery (Atago-ryu Kekki Jujutsu) (Unique Sorcery Lv9) ◆Investigation (Normal Skill Lv8) ◆Cooking (Normal Skill Lv8) ◆Linguistics (Normal Skill Lv10) ◆Special Driving (Special+ Skill Lv8) ◆Fog Flight (Epic Skill Lv6)</p>
-<p>◇Vampire's Physical Body - Otagi (愛宕) [Legendary Bloodline]: All physical body stats, except for Appearance, are tied to the special stat called Blood Energy. However, even if the Blood Energy stat exceeds its limit, the physical body stat will only increase up to its own limit if that limit is not unlocked.</p>
-<p>With the Vampire's Physical Body, the Limit of all Stats increases by 2, and the more frequently Blood Sucking is performed, the more the Blood Energy Stat rises. The higher the Blood Energy Stat, the higher the regeneration and the additional Proficiency in Blood Energy Skills.</p>
-<p>At Night without the Sun, Blood Energy increases by 120 percent, and if the target of Blood Sucking does not completely die, they can be controlled as a Vassal.</p>
-<p>If Blood Sucking is not performed and Satiety drops below 40, the Blood Energy Ability is only applied by the Satiety's multiplier, and Stats given upon Level Up are halved and not invested in the Blood Energy Stat.</p>
-<p>Becomes very vulnerable to Silver and is also weakened by Light and Flame attributes.</p>
-<p>As a member of the Otagi (愛宕) family vampire, has an exceptional talent for swordsmanship.</p>
-<p>◆Fog Transformation [Epic Race Trait]: Vampire Race Trait. Can transform into a blood-red Fog. When in Fog Transformation, physical Damage is reduced by 70 percent, and continuous Damage can be dealt to enemies within the Fog.</p>
-<p>◆Blood Energy Affinity [Unique Trait]: Freely manipulates Blood Energy. The Power of all Skills and Traits using Blood Energy increases by 145 percent, the maximum value of the Blood Energy Stat increases by 2, and the efficiency of the Blood Energy Stat increases.</p>
-<p>◆Blood Energy Regeneration (血氣再生) [Epic Race Trait]: Significantly boosts regeneration power based on Blood Energy. Increases the maximum Blood Energy and Recovery values by 1, and raises Blood Energy by 2. Regeneration can be further enhanced by consuming Satiety.</p>
-<p>◆Noble of the Night [Epic Race Trait]: Charm Stat increases by 2, and its maximum value also increases by 1. The probability of successfully Seducing the opposite sex increases. In the case of the same sex, Seduction is also possible in proportion to Charm. If Seduction is successful, the Opponent is afflicted with the Status effect .</p>
-<p>◆Curtain of Darkness [Epic Race Trait]: Damage from Light and Flame Attributes is reduced, and the Blood Energy multiplier that increases at Night increases to 130.</p>
-<p>◆Mutation - Absorption (Semen Absorption) [Rare+ Race Trait]: Vampire Race Trait. When a male's semen, containing strong life force, is absorbed through the uterus or orally, it is treated the same as blood-sucking. The efficiency of Blood Energy increases.</p>
-<p>◆Blood Physical Body [Legacy Race Trait]: Vampire Race Trait. The maximum value of Physical Body Stats is linked to the maximum value of Blood Energy Stats. The maximum value of the Blood Energy Stat increases by 1. Oh, her Level went up by 2, and her Blood Energy Stat also increased by 2. As expected, the broken nature of the Vampire Race was revealed here. Because the Blood Energy Stat and Physical Body Stats are linked, even if she diligently sucks Blood, her Physical Body Stats rise on their own without Leveling up.</p>
-<p>Of course, as the game progresses, the amount of Blood Sucking required to raise 1 Blood Energy increases exponentially, but since Vampires live long, they can grow stronger just by consistently "eating" (?), so it wasn't a significant demerit. Seeing this, the Silver Stake Alliance, which is hostile to Vampires, seemed impressive once again. Although they weren't on good terms with us, the Silver Stake Alliance kept the Vampires in check, preventing their power from growing in this World.</p>
-<p>And though it wasn't important, she seemed to be maintaining her Satiety well by consistently stealing and consuming my Semen.</p>
-<p>The Skills, which were divided into Linguistics-English and Linguistics-Korean language, merged as her Korean language Skill improved, and perhaps because she had many occasions to drive large vehicles recently, Special Driving appeared. And a Skill called Fog Flight appeared, which seemed to naturally follow if she frequently trained her Fog Transformation Trait.</p>
-<p>Vampires are truly broken. While I, with two Traits, had only just barely managed to fly.</p>
-<p>However, despite Otagi Yuka's various advancements, the most significant point of attention was the new Trait, Blood Physical Body.</p>
-<p>The biggest reason Vampire characters couldn't perform well in the late game was that even if their Blood Energy was high, if their Physical Body Stats' maximum value was low, they couldn't break through their Limits. Blood Physical Body was a broken Trait that matched the maximum value of Blood Energy Stats with the maximum value of Physical Body Stats.</p>
-<p>No matter how good a Trait a Vampire got, if that Blood Physical Body Trait didn't appear, they would eventually be treated as a failed character because they couldn't perform in the late game. So, Otagi Yuka was very Lucky that this Trait had appeared for her now. Of course, she still had to raise her Blood Energy Stat a lot, so she wouldn't feel stronger right away.</p>
-<p>「Yuka's Level went up by 2, and....」 When I explained her Stats to Otagi Yuka, she seemed a little unenthusiastic. Perhaps because Saionji Diana had gained 4 Levels earlier, she felt her own growth was stagnant. To make such an unenthusiastic Expression despite gaining a broken Trait....</p>
-<p>「Listen carefully. So, this Blood Physical Body, you see. It might seem useless because it doesn't make you stronger right away, but in the late game, it will....」 As I passionately explained the new Trait Otagi Yuka had gained, she finally nodded her Head, realizing, 「Ah, it's a good thing.」</p>
-<p>「Sensei-ssi, I understand enough now, so please look at Sakagami-yang.」 「Liege-nim, I'm nervous.」 As if my passionate explanation was enough, Otagi Yuka had Sakagami Rena sit in front of me. Sakagami Rena was worried that her growth might have slowed down. Sakagami Rena had also taken on various tasks under me, so her Level must have risen quite a bit. Didn't she gain at least 3 Levels?</p>
-<p>◆Name: Rena Sakagami (坂上 令梛) Lv13</p>
-<p>Strength:6 Agility:16 Stamina:8 Resistance:4 Recovery:4 Sensitive Nerves:16 Appearance:15</p>
-<p>Intelligence:7 Knowledge:7 Focus:8 Will:9 Creativity:3 Charm:12 Judgment:14</p>
-<p>Luck:8 Magic Power:16</p>
-<p>◆Sakagami Style Ninjutsu (坂上流 忍術) (Epic+ Ninjutsu Lv16) ◆Bone Law Tiger Fall Style (骨法 虎倒流) (Epic+ Fist Technique Lv10) ◆Sakagami Style Bedroom Arts (坂上流 房中術) (Epic Bedroom Arts Lv8) ◆Linguistics (Normal Skill Lv13) ◆Marksmanship (Normal Skill Lv10) ◆Investigation (Normal Skill Lv17) ◆Information Analysis (Special Skill Lv8) ◆Nagumo Style Illusion Magic (Unique Skill Lv6) ◆Onmyoji Magic - Shikigami Magic (Epic Skill Lv4) ◆Eye Technique (瞳術) (Unique Skill Lv1)</p>
-<p>◇Bloodline - Sakagami (血統-坂上) [Unique Bloodline]: According to the Sakagami Ninja Bloodline passed down through generations, the skill coefficient inherited from the Sakagami Family (坂上家) increases by 1.3 times. Grants the special stat, Magic Power.</p>
-<p>◆Owl's Eye [Rare+ Trait]: Can see through Darkness and, with mental Focus, can see far distances.</p>
-<p>◆Ninjutsu Genius [Growth-type Epic Trait]: Can easily learn Ninjutsu. Depending on Effort, the Trait can change to one of Ninjutsu Master/Seongin/Superhuman.</p>
-<p>◆Night Stalker [Epic Trait]: Can conceal one's presence. Reduces the chance of being detected when in Concealment. Critical hit probability greatly increases when performing an Ambush.</p>
-<p>◆Detective's Eye [Rare+ Trait]: Focus, Judgment, and Luck increase when investigating something. The probability of discovering new facts during investigation increases.</p>
-<p>◆Talent for Escape Arts (遁術) [Unique+ Trait]: Ability to learn Escape Arts, which are part of Ninjutsu. Increases the effectiveness of Escape Arts and reduces Magic Power consumption. Magic Power increases by 3, and the maximum value increases by 2.</p>
-<p>◆Magic Circuit [Epic Trait]: Magic Power Stat and its maximum value increase by 1, and efficiency increases. When using Magic, Magic Power consumption decreases by 35 percent, and Magic activation speed increases.</p>
-<p>◆Eye Technique (瞳術) - Weakness Insight [Unique Trait]: Can identify an opponent's weak points in battle. Increases the chance of landing a critical hit.</p>
-<p>Outside of Battle, can discern an Opponent's Lies, and when investigating an Opponent, it becomes easier to identify non-combat Weaknesses. As expected, her Level went up by 3. Impressive.</p>
-<p>The Stats were unremarkable, so I moved on, but she had gained no less than four Skills. Unlike Traits gained immediately upon Level Up, these were Skills that required time and effort to learn, showing how diligently Sakagami Rena had worked.</p>
-<p>Information Analysis seemed to have developed from her diligent efforts as the Investigation Hall was established, and Nagumo Style Illusion Magic seemed to have come from learning Illusion Magic from Yukiko. Since Yukiko also learned from Nagumo Sian, it would naturally be called Nagumo Style Illusion Magic.</p>
-<p>Shikigami Magic seemed to have been learned after I requested the Naruse Family to send an Instructor to teach basic Shikigami Magic, and Eye Technique is a Skill that can only be learned with an Eye Technique Trait, so she must have gained an Eye Technique-related Trait.</p>
-<p>As her Level had risen by 3, she gained 2 Traits, and Magic Circuit, though Epic-grade, was quite good. While the reduction in Magic Power consumption and increased Magic activation speed felt somewhat modest, it was an extremely useful Trait for Sakagami Rena, who uses various Magic, including Escape Arts, Illusion Magic, Shikigami Magic, and Eye Technique. Now, both her Combat power and combat Stamina would increase.</p>
-<p>Finally, the Eye Technique - Weakness Insight that appeared was very good. To explain the Eye Technique first, it was a skill researched to gain a Demonic Eye (魔眼) through the power of magic, but this too could only be learned by those who had Talent as a trait.</p>
-<p>Eye Technique - Weakness Insight is simply described as being able to identify an Opponent's Weakness, but knowing an Opponent's Weakness in Battle was extremely useful, and especially outside of Battle, discerning an Opponent's Lies and identifying non-combat Weaknesses was an incredibly good Skill for an information agent.</p>
-<p>「By the way, what does 'non-combat Weakness' mean?」 Otagi Yuka, who was listening beside me, asked. In truth, "non-combat Weakness" was a somewhat ambiguous phrase.</p>
-<p>「So, for example, when investigating a Person named A, you can more easily find things like A's corruption, or know that A's granddaughter is a Weakness because A cherishes her granddaughter.」</p>
-<p>「What? Is that possible with a Trait?」 「Since Eye Technique itself was created to imitate the Authority of a Demonic Eye, it must be touching the Domain of Authority.」 At my Explanation, Otagi Yuka and everyone else seemed surprised. Sakagami Rena, unlike Otagi Yuka, seemed satisfied with her growth.</p>
-<p>「Seeing that you've gained many Skills, you've worked hard.」 I stroked Sakagami Rena's Head. Sakagami Rena smiled pleasantly, as if pleased to receive Praise from her Liege-nim.</p>
-<p>「Sensei-ssi, no favoritism! Stroke me too~!」 「Me too, Teacher-nim.」 「Please look at my Status Window quickly and praise me too♥」 It was as if they were jealous Large Dogs; as soon as I stroked one, they all rushed at me, asking for Praise. In the end, I had no choice but to stroke each of their Heads one by one to calm them down.</p>
-<p>Sakagami Rena made with Otagi Yuka's B-cut art style! This art style suits her quite well, hehehe.</p>
+<p>There was a professional printing shop in Miyashi that produced photo prints, prints, book prints, and even photo cards. It had a simple name, Miya General Printing, and although it was smaller than companies in Tokyo, it was a company with good quality.</p>
+<p>It was a Friday night when they would normally be waiting to leave work, but the employees were not preparing to leave. It was time for a guest to come to Miya General Printing with a large order.</p>
+<p>,You haven't forgotten that the buyer is visiting today, right? They said they've already done the design, so Mr. Nakahata, the printing team leader, will take responsibility and treat them well. If you ignore them because they're high school students, our company is finished, finished! Got it?</p>
+<p>,I know. How many times have you said that, Mr. President.</p>
+<p>Nakahata Miwako, the printing team leader, was a little annoyed at the president, who kept telling her to be careful almost like brainwashing. Nakahata Miwako, as a citizen of Miyashi, knew the position that St. Francisco Girls' Academy held in Miyashi and Japan.</p>
+<p>Even though the St. Francisco Girls' Academy festival was approaching and there were many requests for club anthologies and poster production, the president was particularly excited today for some reason. It must be because the order volume is huge.</p>
+<p>,But why photo cards as a supplement to the club anthology? It's not like there's a celebrity in the class.</p>
+<p>,I don't know. Sometimes, when there's a handsome male teacher, students secretly take pictures and request photo cards... .</p>
+<p>,Ah, there's one celebrity at St. Francisco Girls' Academy. I think there's one idol, is it her picture? If you're going to do that with a celebrity, the agency will take care of it... .</p>
+<p>,Well, we get paid if they ask us to do it, no matter what the picture is, so don't make a suspicious face and do well.</p>
+<p>,Yes... .</p>
+<p>The president had to go on a business trip for another matter, so Nakahata Miwako was in charge of entertaining the students of St. Francisco Girls' Academy today.</p>
+<p>,Is this Miya General Printing?</p>
+<p>Not long after the president left, a guest came in. It was a pretty blonde girl with tanned skin wearing a white shirt and blue skirt from St. Francisco Girls' Academy. She had a gyaru's flashy makeup and her eyes were slightly raised, so she looked a bit fierce, but she was a rare beauty.</p>
+<p>,She's a gyaru? By the way, she's so pretty.</p>
+<p>,Yes. Welcome.</p>
+<p>Nakahata Miwako greeted the guest with a different story than she had expected. The gyaru student, after hearing that she had found the right place, said to someone outside the door, 'This is the right place. Let's go in.' and entered the office. After that, St. Francisco female students started coming in one after another.</p>
+<p>,I'm sorry. The club members said they wanted to see how it was made... .</p>
+<p>The gyaru student apologized, but Nakahata Miwako couldn't say anything to her. Each and every one of them is a daughter of a prestigious family, so if she grumbled, the company could go bankrupt.</p>
+<p>,It's okay. You might be curious if this is your first time requesting something like this. Ah...!</p>
+<p>Nakahata Miwako, who was watching the students coming in, was very surprised. The man who came in last was very handsome.</p>
+<p>He had a rare large physique for a Japanese person, tanned brown skin, and a very handsome face... . He was a man with a charm that made any woman want to lean on him.</p>
+<p>,I'm sure the photo card was made with that person's picture... .</p>
+<p>Nakahata Miwako, who had been ignoring the photo cards for the club event until just now, suddenly felt that she wanted to have this man's photo card.</p>
+<p>When she stared at the man, he smiled slightly and approached Nakahata Miwako and held out his hand.</p>
+<p>,Hello. I'm Yamashiro Ryuta, the teacher of these troublemakers.</p>
+<p>,Ah, yes... . I'll, I'll make the photo cards well.</p>
+<p>Nakahata Miwako blamed herself. What a stupid greeting... . But what she said was sincere. If this man was the main character of the photo card, she wanted to do her best to create a masterpiece.</p>
+<p>###</p>
+<p>,Hmm... .</p>
+<p>I was lying on the bed looking at the prototype photo card in my hand. I had made a decision about this photo card at a printing company with a strangely passionate employee.</p>
+<p>We decided to use a prism-coated paper for the general photo cards, and since the few hologram photos we took were not related to the coated paper, we also visited a company that produces hologram chips and requested production separately.</p>
+<p>Production started right away today, but I was a little worried about making photo cards like this.</p>
+<p>It's my picture, but whether it goes well or not, it's not my business. But Minamoto Risa ordered 1,000 copies each of 85 types of photos, excluding hologram photos. So that's a total of 85,000 copies... . Since there are four in a pack, you have to sell 21,250 copies to sell them all.</p>
+<p>Of course, Minamoto Risa said that she applied for it considering that all the special class students would receive a set of 100 cards and a set for her acquaintances, but I wondered if they would all be sold. And I didn't think the special class students' acquaintances would need my picture.</p>
+<p>-Jin Yong-tae: Picture.</p>
+<p>-Jin Yong-tae: I'm getting a photo card at this school festival 🤨</p>
+<p>-Han Yu-gyeong: Ahㅋㅋㅋㅋㅋ🤣 What? Our Yong-tae became a celebrity?</p>
+<p>Han Yu-gyeong bursts out laughing when I show her the prototype of the photo card. The picture is okay, but the cheesy comment underneath must have made Han Yu-gyeong laugh.</p>
+<p>-Jin Yong-tae: I'm publishing a club anthology and it's going to be included as a supplement. My photo card is a bait productㅋㅋㅋ</p>
+<p>-Han Yu-gyeong: But the quality is so good that I want it too? I want to go to the festival and buy our Yong-tae's photo card... . I'm too busy to goㅠㅠㅠ How many types are there in total?</p>
+<p>Han Yu-gyeong was very busy moving to launch TG Tech's new gun, so she couldn't come to the St. Francisco Girls' Academy festival. The gun to be released right now is more important than the festival, so it can't be helped.</p>
+<p>-Jin Yong-tae: Fifteen types of hologram photos, and 85 types of general photo cards... . Quite a lot, right?</p>
+<p>-Han Yu-gyeong: The kid who came up with this idea is really meanㅋㅋㅋ A total of 100 types. How many club anthologies do I have to buy to collect them all?</p>
+<p>-Jin Yong-tae: She's a bit mean. The students and teachers in the class can buy a full set of 100 types separately for acquaintances instead of random packs, should I buy Yu-gyeong one too?</p>
+<p>-Han Yu-gyeong: There's such a thing? I'll buy it! Two sets... . No, four sets...!</p>
+<p>-Jin Yong-tae: Noㅋㅋㅋㅋ You only need to buy one set, why are you buying four sets?</p>
+<p>-Han Yu-gyeong: One is for me to look at, one is for storage. I'll give one set to my mom and one set to Seol-hui... .</p>
+<p>-Jin Yong-tae: Is my photo card a gift set? I'll send a separate gift to your mother and Yang Seol-hui, so I'll only send 2 sets.</p>
+<p>-Han Yu-gyeong: Then send me 3 sets...! I'll use the last set for evangelism 😍</p>
+<p>I don't know what evangelism is, but I said okay and ended the KakaoTalk with Han Yu-gyeong. 2 sets to send to Ha Ju-yoon and Yang Seol-hui... . If Yang Seol-hui receives it, Dang So-hwa will know too, so I'll order 1 set for Dang So-hwa and my friends at Seryu Military Company... . This acquaintance set will sell a lot because of me?</p>
+<p>While I was checking who to give a gift to, my smartphone vibrated again. When I checked, it was a line sent by Yukiko.</p>
+<p>-Yukiko: I heard that Ryuta started producing the photo cards you mentioned before? I heard you can give a set as a gift to an acquaintance... .</p>
+<p>When I thought about how Yukiko knew, it seemed like Sakagami Rena, Yukiko's disciple, had told her. I knew that photo cards were coming out because I had said it before, but the only way she would know that production had started was Sakagami Rena.</p>
+<p>-Taira Ryuta: Yes, that's right. Should I send Yukiko-ssi a full set of photos too?</p>
+<p>-Yukiko: Just send me one set. I'll keep the set Ryuta sent me for storage and I'll have to go and match a set with the lottery cards myself.</p>
+<p>When I saw that Yukiko was going to get one set from me and come to the festival to draw lots, it seemed like Yukiko was going to match at least two sets like Han Yu-gyeong. She said she was coming with Nagumo Sian, so I should ask Nagumo Sian too. Then should I give two sets to other people too? I'll have to ask them one by one later.</p>
+<p>I finished the line with Yukiko, promising to see her at the festival, and was wondering how many sets I should give to whom when my phone vibrated again. This time it wasn't just one person who sent it, it kept vibrating, and when I checked the people who sent the messages, it was Kurayamata Kirie, Eve, and Nae Fitzgerald. They all knew about the release of my photo card and sent me a line asking me to send it to them.</p>
+<p>,Hmm... . I'll sell 100 sets by myself?</p>
+<p>I hope Minamoto Risa doesn't get excited and order more when she sees me buying it. I contacted everyone and told them I would send them two sets each, and finally the phone vibrated again, so I checked and it was a text from Taira Danjo grandpa.</p>
+<p>-Grandpa Danjo: I heard you're doing something strange again this time. Your grandma wants to see you, so send two sets to Kanna.</p>
+<p>Ah, I forgot about my grandmother. My grandmother, Taira Shizuku, loved me, the only son of my father, who was the only son of my father, terribly, but after the St. Francisco Girls' Academy mission, I only talked to her occasionally and didn't see her. Yeah, I should send her a photo card so she can see her grandson's face as much as she wants this time.</p>
+<p>I suddenly checked the prototype photo card I had thrown aside. What I saw was not my picture, but the cheesy comment underneath.</p>
+<p>-"Do you smell something burning? My heart is burning for you."</p>
+<p>I have to send this to my grandmother...? I was momentarily horrified and hesitated whether to send it to my grandmother after seeing the cheesy comment, but I couldn't help it. Grandpa Taira Danjo ordered it directly, so I couldn't help it. I had to send it.</p>
+<p>,Hoo... . Let's go to bed early.</p>
+<p>I sent a reply to Grandpa Danjo saying okay and threw my phone. I had to go to bed early because tomorrow was my date with Urabe Konoka. We decided to meet early.</p>

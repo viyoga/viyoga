@@ -5,62 +5,73 @@ weight = 1067
 chapter = 1067
 +++
 
-<p>and chapter check contains exposure please surroundings this your Fujigasaki Rinka chased the Black Sage, running through empty space, and headed to the rooftop of the Building where the fragment of omniscience was. The Lizardman Warlord also climbed the exterior wall of the Building at immense speed, carrying a Spear on his back, like a Lizard climbing walls well.</p>
-<p>But he could not catch up to the Black Sage, who teleported 20 meters at a time. When Fujigasaki Rinka and the Lizardman Warlord arrived at the rooftop of the Building, the Black Sage and the remaining fragment of omniscience contenders were already in battle.</p>
-<p>"This evil power...!? A human more hideous than a Vampire~!!"</p>
-<p>The SPF New York Branch Manager swung a greatsword made of silver and mithril and shouted. Abandoning the Vampire Grand Duke they had been fighting until now, seeing them prioritize attacking the Black Sage, it seemed the Black Sage was extremely threatening.</p>
-<p>Most of those gathered on the Building rooftop all made the Black Sage, who had shown an unusual appearance, their top priority Target for Attack.</p>
-<p>The Magicians, summoning destruction rays and firestorms, attacked the Black Sage, and the Vampire Grand Duke created and shot dozens of Blood Spears at the Black Sage.</p>
-<p>The Lizardman Warlord, who had climbed up late, also spewing poison liquid from his mouth, concentrated his Attack on the Black Sage.</p>
-<p>"It's useless."</p>
-<p>Simultaneously with the Black Sage's Words, five eyeball-shaped demonic beasts called Psy-Gore, circling around the Black Sage like satellites, each protected the Black Sage with an Energy Barrier.</p>
-<p>Kwakwakwakwa!</p>
-<p>All those gathered here possessed martial power that had reached a certain Realm, so a single Psy-Gore's Barrier could not block the attacks of the fragment of omniscience contenders.</p>
-<p>But if it was a Barrier used simultaneously by five of them, it could be sufficiently blocked.</p>
-<p>"To even use Psy-Gore! He is clearly an evil Black Wizard~!"</p>
-<p>Psy-Gore was a monster that inhabited the Dimensional Gap. Sometimes, when the Dimensional Gap thinned, it would tear through Dimensions and appear in this World, and each time it appeared, it was a monster that inflicted immense harm on humanity. Destroying a single City was commonplace, and in ancient times not recorded in history, entire countries would disappear.</p>
-<p>While shooting powerful rays from its pupils and destroying its surroundings, it was a monster that would suddenly leave, and it was especially strong against Magicians. This was because Psy-Gore's Field of Vision weakened magic, and its Barrier could block weakened magic.</p>
-<p>Occasionally, Magicians or Sorcerers who tamed and brought along such Psy-Gore would appear, and all of them were uniformly evil individuals, which is why the SPF New York Branch Manager shouted that upon seeing the Black Sage.</p>
-<p>"When taming monsters from another world, disposition isn't important."</p>
-<p>The Black Sage muttered, and as he pointed his staff at the SPF New York Branch Manager, the pupils of the Psy-Gores turned red, and they shot rays at him.</p>
-<p>While the SPF New York Branch Manager hastily dodged, covering his Body with his greatsword, and blocking Psy-Gore's rays, the rest began to Attack Psy-Gore. Since they weren't colleagues anyway, they didn't care if the SPF New York Branch Manager died or was harmed. Killing the Black Sage's Psy-Gore, which was stationary while shooting rays, was the priority.</p>
-<p>"If you want to touch someone else's pet, it's Etiquette to ask for permission first."</p>
-<p>This time, it was the Black Sage who moved. The Black Sage conjured ominous purple Flames from his staff, and shot Fireballs at the attackers, and to avoid the clearly ominous purple Fireballs, the fragment of omniscience contenders who had been about to Attack Psy-Gore hastily stopped their Attack on Psy-Gore and evaded.</p>
-<p>Kwakwakwakwang!!!</p>
-<p>Their Survival Instinct and combat Intuition were remarkable. As the fragment of omniscience contenders dodged, the purple Fireball fell into the surrounding Ruins of the Building, and an explosion occurred with a tremendous roar. With an explosion of this magnitude, no matter how skilled they were, they would inevitably suffer considerable harm.</p>
-<p>In that brief Moment when everyone's attention was focused on the explosion, Fujigasaki Rinka, who had been quietly watching the battle, stepped forward.</p>
-<p>-Shinkai Yatsude (Deep Sea Eight Hands) Kakekushi (Shadow Skewer) -Senyari (Thousand Spears).</p>
-<p>Fujigasaki Rinka used Senyari, an advanced Martial Arts Form of Kakekushi, which makes Abyss skewers pop out from the opponent's Shadow. Senyari was an area Attack of Kakekushi, a technique that pulled up Kakekushi from multiple Shadows simultaneously.</p>
-<p>When Psy-Gore fired its rays, because it was fixed in the air, aiming was easy, so she used Senyari simultaneously towards Psy-Gore and the Black Sage.</p>
-<p>The Black Sage evaded Fujigasaki Rinka's sudden Attack with short-range teleportation, but the Black Sage's monster, Psy-Gore, was inevitably pierced by the Abyss Spear.</p>
-<p>No matter how powerful Psy-Gore's magical defense was, it could not weaken the Abyss Attack. This Attack was aimed at Psy-Gore anyway. As long as the five Psy-Gores continued to protect the Black Sage, Fujigasaki Rinka, judging that this battle would turn very unfavorably, first tried to remove Psy-Gore.</p>
-<p>Fujigasaki Rinka, having stepped forward, had no intention of stopping with just this Attack. Since she had dealt with Psy-Gore as per her initial purpose, now her Goal was the Black Sage. She moved the Abyss as it was and used a new Martial Arts Form.</p>
-<p>-Shinkai Yatsude (Deep Sea Eight Hands) Isshokugaichimanshi (One Touch Transforms into Ten Thousand Branches) -Shinenrin (Abyss Forest).</p>
-<p>The Abyss skewer that had pierced Psy-Gore instantly transformed into the shape of a branch, and shot upwards towards the Black Sage as if a forest were growing.</p>
-<p>Each and every Abyss-formed branch and Leaf was shot at the Black Sage with malice at immense speed, so the Black Sage had no time to teleport. The Black Sage swung his staff, creating a Barrier of purple Flames, and barely managed to block Fujigasaki Rinka's Attack.</p>
-<p>This Attack by Fujigasaki Rinka was already a technique close to Authority that transcended martial arts. Fujigasaki Rinka had felt the Limits of martial arts in her previous fight with the Outer God-ified Takakusaki Gengo.</p>
-<p>So, during that time, she had worried about transcending the system of martial arts, and as she cast off the Limits of martial arts, Fujigasaki Rinka realized that a much wider Road lay before her.</p>
-<p>Until now, because there was no proper opponent, she hadn't been able to utilize it well, but today, meeting a formidable opponent like the Black Sage, and as a Result of using her techniques, Fujigasaki Rinka felt considerable Satisfaction. She realized that the path she had chosen was not wrong.</p>
-<p>As Fujigasaki Rinka pierced and killed Psy-Gore and attacked the Black Sage, the remaining fragment of omniscience contenders also, as if not to be outdone, began to Attack the Black Sage.</p>
-<p>The Black Sage, who had dominated the Situation until now, began to be pushed onto the defensive for the first time. Rather, kidnapping Fujigasaki Rinka's Master/teacher Soda Haruto, and thoroughly learning his Abilities was actually the root of the problem.</p>
-<p>No matter how much Fujigasaki Rinka had surpassed her Master/teacher Soda Haruto, he had thought that as a martial artist, she would have Limits. That's why he was helplessly defeated by Fujigasaki Rinka, who had shed the Limits of martial arts.</p>
-<p>"You damn gnats~!!"</p>
-<p>The Black Sage, who had been fighting calmly until now, erupted in anger, and flew even higher into the sky. His thought was to use a powerful technique to erase the Building itself from the map, but he soon had no choice but to erase that thought.</p>
-<p>Before he knew it, Fujigasaki Rinka was holding the fragment of omniscience, wrapped in chains, as if blocking with a Shield.</p>
-<p>Fujigasaki Rinka's mocking Gaze seemed to say, "If you Attack, not only the Building and us, but also this book you so desire will be destroyed, won't it?"</p>
-<p>"Indeed...! Soda Haruto's Disciple. Collecting you was my arrogance. I will give up on collecting you and kill everyone here."</p>
-<p>More than killing the opponent, subjugating them was more than twice as difficult, so the Black Sage admitted his misjudgment.</p>
-<p>More than making Fujigasaki Rinka a collectible, the fragment of omniscience was a hundred times more important, so he decided to kill everyone here and only take the fragment of omniscience.</p>
-<p>"First, I need to change the environment a bit more."</p>
-<p>The Black Sage, with the Hand not holding his staff, took out a Book from his embrace. It was The Wailing Tome, a human-skin book made by painfully killing countless humans.</p>
-<p>-Uweoeueu.... Owooouuu....</p>
-<p>As the Black Sage opened The Wailing Tome, strange Crying sounds began to fill the surroundings. The Wailing Tome, which emitted Crying sounds that attacked the mind just by opening it, did not greatly influence most of the fragment of omniscience contenders gathered on the Building rooftop, but it gave a great shock to the Werewolf Chief, who was uniquely consumed by wildness.</p>
-<p>"Kyaoooooh~!"</p>
-<p>The Werewolf Chief, with a monstrous scream, began to Attack Fujigasaki Rinka, who was holding the fragment of omniscience. Fujigasaki Rinka, with a flustered Expression, looked at the Werewolf Chief and shouted.</p>
-<p>"Wh-what are you doing?! I clearly just said I had no Interest in this book~!!"</p>
-<p>Just now, to the fragment of omniscience contenders, Fujigasaki Rinka had revealed her True Identity, stating that a martial artist like herself did not need the fragment of omniscience, and also informed them that the Black Sage was her Master/teacher's enemy, then used the fragment of omniscience as a Shield under everyone's tacit Consent.</p>
-<p>Because everyone was in agreement that they should defeat the Black Sage first, they had consented to Fujigasaki Rinka using the fragment of omniscience as a Shield.</p>
-<p>But with his Fading Reason already gone, and only greed for the fragment of omniscience and wildness remaining in the Werewolf Chief, those Words seemed to have no effect.</p>
-<p>"Rain of Wailing."</p>
-<p>While the Werewolf Chief rampaged on the Building rooftop, the Black Sage chanted a spell. So as not to obscure the ring-shaped moon summoned by the Black Sage, dark clouds quickly gathered in the sky, and began to pour rain. It was not ordinary rain, but black rain that felt like tar.</p>
-<p>Gojoy-nim requested Shinoe Misano taking off panties and covering her Pussy front/back Front Back As expected, taking off panties and covering her Pussy can't be done simultaneously ㄷㄷ. Because I struggled quite a lot doing many Gacha attempts, please refrain from contradictory requests from next time ㅠㅠ. Chomisaemeonji-nim requested Liz lying face down, Liz parodying Reze's swimming pool scene~! Lying face down~! Pool Liz~! I used it because there was a lora, but perhaps because the original work didn't show nipples, Liz's nipples also disappeared ㅎㅎ. I lowered the intensity of the lora and created Liz's nipples ㅎㅎ. However, perhaps because I used lora, the Composition and Appearance are identical, so I'm only uploading 2 images ㅎㅎ.</p>
+<p>"Ryuta~! Aunt Nae is here~?!"</p>
+<p>At the sound of someone calling me, I opened my eyes. Perhaps because I was tired from treating (sexing) Fujigasaki Rinka yesterday, I seemed to have fallen asleep while lying down and playing with my phone. Aunt Nae entered the room and spoke to me, waking me up, I rubbed my eyes and sat up.</p>
+<p>"You're here?" "Yeah. I was a little late because I was doing 'work' with Arisu, you see? Did you fall asleep waiting?"</p>
+<p>Given the emphasis on 'work', it seemed she had come from doing Phantom Thief Francois-related work. Perhaps she was organizing the items obtained from this Fragment of Omniscience scramble, or reviewing this incident, checking for mistakes or successes.</p>
+<p>"What about Arisu?" "Arisu is changing clothes. She was wearing work clothes, but it seems she doesn't want to show Ryuta her work clothes appearance."</p>
+<p>Since she says she doesn't want to show it, I'm curious what kind of work clothes they are. For now, I'll have to ask her to show me later.</p>
+<p>"Have you had dinner?"</p>
+<p>Glancing at the time, it was a slightly late 7:30 PM for dinner, so I asked Nae Fitzgerald. She probably hadn't eaten dinner, having just come from work.</p>
+<p>"No, we should eat together~! Seeing that Ryuta was also sleeping, you haven't eaten dinner, have you?" "Yes, I was waiting to eat with Aunt-nim~!" "Oh my, you wanted to eat Aunt-nim?"</p>
+<p>Nae Fitzgerald made a mischievous expression and then changed 'with Aunt-nim' to 'Aunt-nim' and asked. I grinned and nodded my Head.</p>
+<p>"Of course. You're delicious, after all." "Oh my♥ Let's go eat dinner quickly. Since Ryuta was coming today, I asked the chef to show off their skill a bit." "Yes, shall we go?"</p>
+<p>At my words, 'Shall we go?', Nae Fitzgerald linked her Arm in arm with mine.</p>
+<p>"Escort me, Ryuta♥" "Yes, I'll safely escort you to the dining table."</p>
+<p>If we walk Arm in arm, Uncle might get a little Jealous, but I thought he'd understand since we're Aunt-nim and Nephew/Niece, I enjoyed Nae Fitzgerald deliberately rubbing her breast against my Forearm as we headed to the restaurant.</p>
+<p>Akita Prefecture. Across from the Mithril Warehouse, a dry reed field,</p>
+<p>Taira Gensuke's Action Leader, Álvaro Ramos, lay prone among the reeds, inspecting his firearm.</p>
+<p>Álvaro Ramos looked at his Surroundings. The Brazilian Sicario team who came to Japan with him, and the unregistered Mercenary team hired by Taira Gensuke, were seen preparing for battle.</p>
+<p>"Speed is the priority for this mission. Deal with the Security Guards as quickly as possible and seize the Mithril. All of this must be accomplished within 20 minutes, understood?"</p>
+<p>All the Combatants who heard Álvaro Ramos's words nodded their Heads. And at Álvaro Ramos's Hand Signals, they slowly began to move.</p>
+<p>If it were daytime, the reeds moving would be visible, but it was night now. Even if the reeds reflected in the vigilance Lighting moved a little, the Security Guards would think it was caused by the Wind.</p>
+<p>Almost at the end of the reed field, they could reach the Mithril Warehouse just by crossing the Road. However, if they left the reed field, they would quickly be caught by the sentry at the Mithril Warehouse Entrance Outpost, and would lose a considerable number of troops while crossing the Road, so Álvaro Ramos waited for a Moment.</p>
+<p>Peu-shoot! Peu-shoot!</p>
+<p>With suppressed firing sounds, minimized by silencers, two Security Guards inside the Outpost fell. Snipers who had been waiting in advance had taken the shots.</p>
+<p>As the Security Guards fell, Álvaro Ramos immediately sent Hand Signals. In response, the Sicario team and the unregistered Mercenary team quickly crossed the Road and placed ladders against the warehouse wall. Since there were also Security Guards inside the warehouse, there was no time to open the locked door.</p>
+<p>Rather, they had planned an Operation to quickly enter by climbing ladders, exploiting the vigilance gap left by the fallen Security Guards at the Entrance Outpost.</p>
+<p>The Sicario team, who were quite elite troops, and the unregistered PMC team, who had undergone modification while performing all sorts of illegal missions, instantly climbed the ladders and secured the Entrance area.</p>
+<p>Álvaro Ramos also quickly climbed over the ladder and hid his Body behind a structure near the Entrance.</p>
+<p>"Our trucks will arrive within 15 minutes. Before that, we must secure the warehouse. Everyone, scatter according to the plan and deal with all the Security Guards!"</p>
+<p>At Álvaro Ramos's words, everyone formed teams of four and began to move stealthily. Álvaro Ramos also moved, leading three who followed him. The place Álvaro Ramos had to secure was the Security Command Center. Because it was full of CCTV screens and a place where warnings could be broadcast to Security Guards, it was the top priority Attack Target.</p>
+<p>Peu-shoot! Peu-shoot!</p>
+<p>"Keo...heup!"</p>
+<p>Álvaro Ramos put bullet holes in the Bodies of two Security Guards he encountered in the Passage and quickly approached to cover their mouths. Even such small noises had to be controlled now. Despite Álvaro Ramos's efforts, noise began to be heard from outside.</p>
+<p>Wiiiiiing~!</p>
+<p>Caught on CCTV somewhere, perhaps, a siren signaling an emergency began to wail. This was unavoidable.</p>
+<p>As the Mithril Warehouse was a major facility, CCTVs were installed everywhere, so no matter how careful they were, they were bound to be caught eventually.</p>
+<p>Tang! Tang! Tang!</p>
+<p>Gunshots were heard from afar. Since those led by Álvaro Ramos were all equipped with silencers, all the gunshots heard now belonged to the Mithril Warehouse Security Guards.</p>
+<p>"The Opponent's skill seems quite good."</p>
+<p>If it were a typical warehouse Security Guard level, Álvaro Ramos had thought they would win without a single counterattack, but seeing the Opponent counterattacking, he thought they were superior to typical Security Guards.</p>
+<p>Taira Gensuke, who had given him the mission, had said the bastard's Security Guards would be pathetic, but it didn't seem to be the case.</p>
+<p>"It's that way."</p>
+<p>In a Corner pointed to by a subordinate, the Security Command Center, their Target, was visible. Through the glass wall and glass door, a command team was seen directing while watching CCTV, and it seemed the glass wall and door were bulletproof military items.</p>
+<p>'Entry will be difficult...?'</p>
+<p>As Álvaro Ramos was worrying, a radio transmission was heard.</p>
+<p>-We're being pushed back! Is the Command Center not secured yet?</p>
+<p>"Wait a Moment."</p>
+<p>Since they were commanding while watching CCTV, it was natural that their side would be pushed back. Álvaro Ramos checked the ventilation in the Security Command Center ceiling and spoke.</p>
+<p>"Open the ventilation ceiling."</p>
+<p>Álvaro Ramos said, activating the gas mask mode on his helmet. As his subordinates opened the ventilation lid in the corridor ceiling, Álvaro Ramos himself climbed into the ventilation passage. And he slowly crawled, making no sound.</p>
+<p>"North! There are three more! Flank and Attack!" "Team B, provide cover at 11 o'clock!"</p>
+<p>The closer he got to the ventilation shaft, the closer the sound of communication from the Security Command Center became. It meant his team was taking damage, but Álvaro Ramos didn't care and slowly crawled until he reached a Position where he could open the ventilation ceiling door.</p>
+<p>And he slowly took out a gas bomb from his waist. It was a bomb that sprayed rapidly spreading nerve poison in gas form, so the Security Command Center would be neutralized as soon as it exploded.</p>
+<p>Kkiiik...! Tung!</p>
+<p>Álvaro Ramos slightly opened the ventilation door and then dropped the gas bomb.</p>
+<p>"Wh-what the hell!?" "Kyaaaah! Save me!"</p>
+<p>Screams were heard, and a few seconds later, Álvaro Ramos dropped down from the ceiling ventilation passage. Everyone in the Security Command Center was clutching their necks and wide-eyed, seemingly in pain. Álvaro Ramos paid no attention to the corpses and immediately looked at the CCTV, beginning to give Commands to his subordinates.</p>
+<p>Under Álvaro Ramos's Command, the unfavorable situation instantly reversed, turning advantageous for the intruders.</p>
+<p>Although the Opponent's skill was better than expected, since they couldn't receive support from the Security Command Center, they could be quickly annihilated.</p>
+<p>"The vehicles have arrived too."</p>
+<p>Seeing several trucks arrive at the main gate they had opened, Álvaro Ramos smiled. Seeing the laborers who would move the Mithril pour out of the trucks, Álvaro Ramos looked around at the subordinates who had entered the Security Command Center.</p>
+<p>"Let's destroy the Command Center and leave this Place."</p>
+<p>At Álvaro Ramos's words, his subordinates installed bombs in the Command Center. And they ran towards Álvaro Ramos, who was heading towards the trucks after leaving the Command Center.</p>
+<p>"I'll detonate the bomb." "Alright."</p>
+<p>As Álvaro Ramos's permission was given, the Sicario subordinate pressed the bomb's button. A kwa-kwa-kwang! loud noise was heard from behind them. With an explosion of this magnitude, it would be difficult to find any traces.</p>
+<p>"How long will it take to finish?"</p>
+<p>Álvaro Ramos, who had arrived at the place where the trucks were lined up, asked the transport manager, and the transport manager answered with a reassuring smile.</p>
+<p>"We are experts, so preparation will be finished in 10 minutes."</p>
+<p>10 minutes? That'll be cutting it close. Álvaro Ramos muttered and issued a return Command to all Combatants. Now it was time for the transport team to act, so there was nothing for the Combatants to do.</p>
+<p>"This side was a success, but I wonder if Liege/Master is doing well." Álvaro Ramos watched the transport team quickly move the Mithril, and wondered about the situation on Taira Gensuke's side, who was in charge of the Attack group on Taira Ryuta's mansion. Because the Opponent was unexpectedly stronger than typical Security Guards, he thought there might be an unforeseen Threat on Taira Gensuke's side as well. Although he worried, Taira Gensuke's skill was extraordinary, so he believed he would overcome any difficulty.</p>
+<p>Gojoy-nim requested Han Yu-gyeong Chapter 43 1. Smiling at the protagonist's Words, 2. Being introduced to a friend~! 1. 2.</p>

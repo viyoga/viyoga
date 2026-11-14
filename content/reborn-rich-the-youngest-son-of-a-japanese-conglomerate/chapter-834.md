@@ -5,82 +5,76 @@ weight = 834
 chapter = 834
 +++
 
-<p>-Haaang... Daddy♥ Thaaat...! It feels Heuaht! Gooood...!</p>
-<p>Daigo Terue regained her senses at the moaning sound tickling her ears. Why was I sleeping? Her mind was hazy, dizzy, and a complete mess. Daigo Terue felt that the current Situation was strange.</p>
-<p>'No, I definitely wasn't sleeping.... I had an appointment with Yamashiro Ryuta-ssi.... I drank the coffee Erika gave me, the coffee.... That's right! It was because of the coffee that I lost consciousness...!'</p>
-<p>Daigo Terue's eyes snapped open. And in her field of vision, as her eyes opened, a tablet monitor was fixed, perfectly positioned for her to see.</p>
-<p>On that screen, an AV video was playing. At first, she thought it was just a staged adult video, but it wasn't. Looking closely at the screen, the ones engaging in sticky, erotic sex were people she knew.</p>
-<p>Yamashiro Ryuta, the muscular, blonde man with brown skin, and her own daughter.... Oofuchi Erika, naked, were having sex on her bed.</p>
-<p>-Haaang♥ Daddy...! Yes, Erika's pussy inside feels good, haaang♥</p>
-<p>Especially Oofuchi Erika was showing a side of herself she had never revealed to her mother before. The sight of her being pinned by a man, moaning 'aang-aang' and calling Yamashiro Ryuta 'Daddy,' was difficult for her to witness as a mother.</p>
-<p>So she tried to get up and stop them immediately, but then she noticed something like handcuffs and shackles on her hands and feet. No matter how hard a flustered Daigo Terue pulled, they wouldn't come loose.</p>
-<p>'Erika, what on earth are you thinking...?'</p>
-<p>Daigo Terue's mind was complicated. Who could have orchestrated this? Was it Teacher Yamashiro? Or was it her daughter, Oofuchi Erika? Or did both of them plan this?</p>
-<p>And why on earth did they do such a thing? Unanswered questions coiled endlessly in Daigo Terue's mind.</p>
-<p>-There, Haaht! That spot feels so gooddd!!</p>
-<p>Daigo Terue turned her head, trying not to watch the indecent video. But unable to move her hands, she couldn't cover her ears, forced to keep listening to her daughter's indecent moaning sounds.</p>
-<p>At first, there was only surprise, anger, and a slight disgust, but as she continued to listen to her daughter's moans and Yamashiro Ryuta's rough, panting breathing sounds, something changed.</p>
-<p>"No...!"</p>
-<p>Her Body was gradually growing hotter. Daigo Terue denied it, but her body, which had begun to burn, betrayed her words, proving her 'no' was a lie. Her turned head slowly rotated back, making her glance repeatedly at the tablet monitor screen before her eyes.</p>
-<p>The first thing she saw was Yamashiro Ryuta's broad back. He was holding Oofuchi Erika as if crushing her, thrusting his hips, and each time he pulled his hips back, his enormous Large Penis was seen explicitly widening her daughter's pussy.</p>
-<p>"Haa...♥"</p>
-<p>If only that huge cock would enter her own body...! Because Daigo Terue already knew what it felt like for Yamashiro Ryuta to spread her pussy and enter, the area between her groin grew hotter and hotter.</p>
-<p>-Haaang! Haaang!</p>
-<p>"Haa, haa...!"</p>
-<p>Unconsciously, her daughter's moans and Daigo Terue's moans were synchronizing. If not for the handcuffs and shackles, she could have at least masturbated, but now her limbs were all tied. Daigo Terue felt an unbearable itchiness deep inside her pussy.</p>
-<p>"Haa, haa, haa...! Quickly, Haaht, at least the handcuffs...!"</p>
-<p>As if someone had heard Daigo Terue's voice, the handcuffs and shackles clinked open. Daigo Terue hastily moved her hands towards her pussy.</p>
-<p>"Haaang...! Nooo!"</p>
-<p>She inserted three fingers and roughly rubbed the inside of her pussy, but this wasn't the feeling. She wanted to scratch deeper inside, where her fingers couldn't reach. Yamashiro Ryuta's Large Penis, reflected before Daigo Terue's eyes, was visible.</p>
-<p>Yes, that's it. I need that long, thick thing.</p>
-<p>Daigo Terue, her body trembling, pulled herself up from the bed.</p>
-<p>"Haaang... Daddy♥ Thaaat...! It feels Heuaht! Gooood...!"</p>
-<p>Oofuchi Erika, unusually, had a cervix that was developed for sensitivity from the very beginning. When I pressed and tapped the deepest part of her pussy, she let out a shriek-like moaning sound and trembled violently. Her reaction was amusing, so naturally, I tormented her even more persistently, and each time I pressed her cervix, her pussy tightened, which felt good to me too.</p>
-<p>Oofuchi Erika's pussy, being a virgin's, was tight enough to be painful. Especially deep inside, protrusions and vaginal folds were intricately intertwined, making it a pussy that felt better the deeper I thrust. As the sensitivity around her cervix developed, her pussy felt as if it was made to pleasurably receive the cock thrusting deep inside.</p>
-<p>"Erika, does it feel good?"</p>
-<p>I thrust deep into Oofuchi Erika's pussy, then quickly stimulated her inside with short hip movements as I asked.</p>
-<p>"Haaang♥ Daddy...! Yes, Erika's pussy inside feels good, haaang♥"</p>
-<p>In response to my question, Oofuchi Erika loudly answered that it felt good. If Daigo Terue had been inside the house, it would have been strange not to hear such a loud sound.</p>
-<p>Early in our sex, I asked Oofuchi Erika about the whereabouts of Daigo Terue, whom I was originally supposed to meet, and Oofuchi Erika said that Daigo Terue had an emergency and wouldn't be home until late. She said she had hacked Daigo Terue's entire phone to prevent her contact message from reaching me, and sent me a text message herself, which was a bit scary. Seeing this action, it seemed she also had a bit of a yandere streak.</p>
-<p>"Lying like that, Erika, you're a bad child, aren't you?"</p>
-<p>"I'm sorryyy! Teacher-nim, Erika, Hyaeueut! Wanted to do something erotic with Daddy...♥ so Heueut...! I did a lot of bad thingsss!"</p>
-<p>When I pressed her cervix firmly and asked sternly, to tame Oofuchi Erika beforehand, she begged for my forgiveness. Anyway, is it Teacher or Daddy? She's using both.</p>
-<p>"There, Haaht! That spot feels so gooddd!!"</p>
-<p>Hmm.... My pussy discipline seemed to have no particular effect on Oofuchi Erika. It was only the thought of pleasure, rather than the thought of having done wrong. Instead of stimulating her, should I try a 'No More Dick' operation, Tsk?! Like, 'I won't put my cock inside'? As I idly thought about educational sex(?) and thrust my hips, the sound of footsteps came from the entrance of Daigo Terue's Bedroom.</p>
-<p>What? I subtly turned my head to look at the room entrance, without stopping my hip movements. There stood Daigo Terue, whom Oofuchi Erika had said wouldn't be home until late evening, in her underwear.</p>
-<p>"Oh, oh? Terue-ssi!?"</p>
-<p>As I, flustered, called out to Daigo Terue, Oofuchi Erika, who had been moaning 'aang-aang' for a while, turned her head towards the bedroom entrance, looked at her godmother, and smiled brightly.</p>
-<p>"Mom, you're here? Mom, come over here too♥"</p>
-<p>Oofuchi Erika reached out her hand towards Daigo Terue, beckoning her. It was an inappropriate appearance for the situation, as if welcoming a mother who was late for a meal. Unable to grasp the situation, I decided it wasn't proper etiquette to be fucking her daughter in front of her mother (even if she was her godmother), so I pulled my deeply embedded cock out of Oofuchi Erika.</p>
-<p>"Kyaaahaaang...! Daddy...! Heueut! If you pull it out so, so roughly, Erika, Aheueung♥ will cummm♥"</p>
-<p>As my cock was pulled out, its glans scraping her intravaginal walls, Oofuchi Erika climaxed grandly, gushing vaginal fluid.</p>
-<p>I pulled my cock out thinking it was improper, but instead, I ended up giving her mother a cum-soaked show of her daughter....</p>
-<p>Wondering if she was angry, I looked at Daigo Terue, but her expression wasn't angry. No, rather, she looked incredibly in Heat....</p>
-<p>"Headmaster-nim...!"</p>
-<p>Daigo Terue quickly approached me, grabbed my shoulder, and turned my body. And then, she took my glistening cock, coated with Oofuchi Erika's vaginal fluid, into her mouth.</p>
-<p>Chyuup...! Chyup! Chyup!</p>
-<p>She suddenly began to fiercely suck my cock, cleaning off Oofuchi Erika's vaginal fluid that had made it so glistening. As soon as Oofuchi Erika's vaginal fluid was cleaned off, Daigo Terue climbed on top of me and immediately inserted my cock into her pussy.</p>
-<p>"Heueueut! This is ittt...♥ My pussyyy...! The deepest part, Haaht! Kept! Itching...!"</p>
-<p>Daigo Terue began to rub my glans as if a bug had bitten deep inside her pussy. She frantically thrust her hips with such dazzling hip movement that in less than two minutes, she threw her head back and reached Climax.</p>
-<p>"Haaahaaang...!"</p>
-<p>Thinking I needed to talk to both of them to figure out what had happened, I pulled my cock out of Daigo Terue.</p>
-<p>"Haaahaang...! If you scrape the inside like thattt...♥ I came, I'm coming again, coming, coming, cominggg...!"</p>
-<p>Again, as I pulled my cock out, scraping her inside intensely, she experienced a multi-orgasm, her eyes already glazed over, so I laid Daigo Terue down. Anyway, for both of them to cum when I pull my cock out, like mother, like daughter, indeed.</p>
-<p>Being such a wealthy house, the bed wasn't cramped even with me, Daigo Terue, and Oofuchi Erika. Since both of them were still disoriented in the afterglow of orgasm, I decided to go get some water.</p>
-<p>I left the bedroom and stepped outside, where I saw drops of what appeared to be Daigo Terue's vaginal fluid on the floor. Following the vaginal fluid, it led to Oofuchi Erika's room on the second floor.</p>
-<p>"!"</p>
-<p>In Oofuchi Erika's room, there were unlocked handcuffs and shackles, and a screen set up broadcasting Daigo Terue's bedroom situation live, and I couldn't understand what kind of situation this was.</p>
-<p>Returning to the first floor, I organized my thoughts; it seemed Oofuchi Erika was behind this. I generally understood, but I didn't know the exact method. I took a sip of water, my original purpose for leaving, and re-entered the bedroom.</p>
-<p>Tak!</p>
-<p>As I entered and turned on the bedroom light, it became much brighter than before. Daigo Terue and Oofuchi Erika were still lying on the bed, but with the room now bright, it was an incredibly stimulating scene.</p>
-<p>Although Daigo Terue was Oofuchi Erika's godmother, since they were like mother and daughter, I wondered if this could be called a mother-daughter layered sex.</p>
-<p>Today's B-cuts!</p>
-<p>Daigo Terue trying to enter the room.</p>
-<p>Eliminated due to being too bright, strange composition, different from description, etc. hehe</p>
-<p>Daigo Terue lying down~!</p>
-<p>Erika lying down~!</p>
-<p>End of B-cuts~!</p>
-<p>Gojoy-nim requested Erika's underwear, breast covering~!</p>
-<p>Starting with underwear</p>
-<p>Breast covering~!</p>
-<p>Bonus naked body shot~!</p>
+<p>This is a story between Chapter 821 and 822.</p>
+<p>After getting the bracelet from Lizhael again and sending her a gift of sweets from the convenience store, there was nothing special to do. Urabe Konoka had been called by the chief priest of Miyashi Urabe Shrine, and it was just me and Hangari Muneo left.</p>
+<p>No matter how sparsely populated Lizhael's shrine was, there weren't absolutely no people coming and going, so transforming into Black Knight here was out of the question.... Just receiving a gift and going home feels a bit... off?</p>
+<p>As I hesitated for a moment, Hangari Muneo gave me an Eye Smile, looking at me, and then approached me a little closer.</p>
+<p>「After a long time, may I offer my Service to my Husband-nim?」</p>
+<p>Service, huh.... It probably means a Sexual Act. Before, I didn't know because she was wearing a jar, but Hangari Muneo was quite a beautiful Woman. She looked to be in her late twenties to early thirties and had a very sensual Appearance.</p>
+<p>「Let's do it.」</p>
+<p>It felt awkward to just stand still, and having Sex with Hangari Muneo wouldn't be bad. I followed Hangari Muneo's lead and headed to a Room inside the shrine.</p>
+<p>Hangari Muneo's Room, unexpectedly, instead of a cozy tatami room, was a Western-style room with a bed. Whether she had already predicted the current Situation or if she just had a Clean Personality, the Room was well-organized.</p>
+<p>「Uhuhuhu.... I will offer my Service to my Husband-nim's large cock-nim.」</p>
+<p>Kneeling before me, Hangari Muneo slowly took off my Pants. As my erect cock was revealed, she began to look up at my cock with an Expression full of ecstasy, as if a Cleric had seen a holy relic.</p>
+<p>And holding the Base of my penis, she began to Lick it with her Tongue. On Cho-oten Island, even when I first had Sex with Hangari Muneo, because of her incredible Fellatio Skill, I couldn't last long and my Semen was helplessly drained orally.</p>
+<p>But since then, a lot of Time has passed. I, too, through countless 'color fights' (sexual battles), my Sex Level had risen considerably, so I wouldn't be helplessly drained like last Time.</p>
+<p>Chu-eup, Jjeup, Jjeu-beup, Jjyu-beup...! Chup, Chup, Chup!</p>
+<p>With lewd sucking sounds, while vigorously shaking her Head and flicking her Tongue, Hangari Muneo was, but my cock did not ejaculate Semen and maintained a firm Erection.</p>
+<p>With a 'jjeup' sound, stretching a long Silken Strand of liquid mixed with saliva and pre-cum, Hangari Muneo pulled her mouth away. She looked at me with a Gaze mixed with a feeling of pride, as if looking at a well-grown Son.</p>
+<p>「Uhuhuhu, you've become even more manly than before♥. Such a magnificent and sturdy cock, I shouldn't enjoy it with just my mouth, should I?」</p>
+<p>With an erotic Smile, Hangari Muneo slowly took off her Miko clothing. By the way, if it's not just with her mouth, is she going to go straight for Insertion...? First, I also followed suit and decided to take off my Clothes. After being sucked for a while and not having anything else done, my cock was starting to itch. In the meantime, I thought it would be better to at least take off my Clothes.</p>
+<p>As if answering my Question, Hangari Muneo laid me down, and my cock, which was pointing to the sky, she began to wrap it with her breasts. Oh... it was Paizuri. Hangari Muneo had Huge Breasts, so she could fully envelop my Large Penis.</p>
+<p>「Now...♥ Husband-nim, I'll move now.」</p>
+<p>Sueuk, Sueuk...!</p>
+<p>「Uh-heuk!」</p>
+<p>As she wrapped and rubbed my cock with her soft breast flesh, a moan escaped me unconsciously. Hangari Muneo's breasts were soft and incredibly pleasurable tit-pussy.</p>
+<p>Of course, since it was only rubbing with soft breasts, there wasn't an intensely stimulating pleasure. But the very comfortable Feeling and the gradually rising Mood felt quite good.</p>
+<p>That wasn't the end of it. The glans part that wasn't covered by her breasts, she began to suck with her mouth. What Hangari Muneo had just said, 「I shouldn't enjoy it with just my mouth, should I?」 didn't mean she wouldn't use her mouth, but rather that she would use her mouth along with her breasts.</p>
+<p>Churu-rup, Chup, Chyu-beu-beup! Jjeu-beup♥ Chup-chup-chup, Hureup...!</p>
+<p>As if sucking a Chupa Chups, Hangari Muneo vigorously sucked my glans. What was amazing was that while sucking my glans so intensely, she was also moving her breasts with her Hands to do Paizuri simultaneously.</p>
+<p>It was a pleasure so intense that my buttocks naturally pulled back, but because I was lying down, there was no way to avoid Hangari Muneo's Attack.</p>
+<p>「Kueuk...!」</p>
+<p>Under Hangari Muneo's relentless Attack, I was almost at Ejaculation. Just as I felt the Semen increasingly filling my Balls, Hangari Muneo stopped the movements of her breasts and mouth. Stopping right before I came, it felt like I was going crazy.</p>
+<p>「Uhuhuhu...♥ Your cock twitching and flinching looks cute. Do you just want to come in my mouth? Or....」</p>
+<p>Hangari Muneo, who was right before Ejaculation, removed her mouth and breasts from my cock, which was twitching and trembling. She lay down in front of me, Spreading Her Legs, and with her Hands, her pussy, from which vaginal fluid was dripping, she spread open with her fingers. Then, the pink Flesh Walls became visible, and Hangari Muneo's Pussy hole was gaping, Seducing me.</p>
+<p>「Do you want to come in my pussy?」</p>
+<p>If she did this, there would be no Man who could resist. I grabbed Hangari Muneo's Thighs and thrust my cock in at once.</p>
+<p>「Haaht! I missed it so much! My Husband-nim's cock...! The haaang cock that took my Virginity...! It's haaang♥ back inside meee...!」</p>
+<p>Ah, I had taken Hangari Muneo's Virginity. I had forgotten that. Perhaps because I saw her Face for the first Time in Miyashi, or because she was such a sensual Woman, I hadn't thought of her as a Woman who hadn't experienced losing her Virginity.</p>
+<p>Hangari Muneo's pussy, as if welcoming a Husband who had returned after a long absence, embraced my cock.</p>
+<p>「Haaht, Haaang! After a long time, heueut! My pussy, haaang♥ does it feel good?!」</p>
+<p>「Yes, it feels incredibly good...!」</p>
+<p>As I answered, Hangari Muneo's pussy, as if it had suction cups inside, the Feeling of sucking in my cock flesh felt good.</p>
+<p>My cock was already on the verge of Ejaculation, so I began Piston Motion at a rapid speed, and with my cock on the verge of Ejaculation, I began to Violate Hangari Muneo's pussy.</p>
+<p>「Haaang! Haaht...! The inside, haaht...! You filled it completely...! It feels so good, haaang!!」</p>
+<p>「Heok...! Heok...! Heoeok...!」</p>
+<p>Cheol-sseok Cheol-sseok Cheol-sseok!</p>
+<p>Along with the sound of flesh slapping against flesh, Hangari Muneo's moans grew louder and louder, and my cock began to swell as if it would burst.</p>
+<p>「Kueu...! I'm coming...!」</p>
+<p>「Inside, from my Husband-nim's large cock, haaht! The milk that's coming out! Please cum a lot...!♥ Haaang!」</p>
+<p>I pressed my Pubic Bone almost against Hangari Muneo's groin, pushing my cock in, and pressing against her Cervix, I began to Ejaculate.</p>
+<p>Byuut! Buut! Byuuut!!</p>
+<p>Semen, with tremendous Momentum, poured out. Already, from Fellatio and Paizuri, to Insertion, my cock had been stimulated to its limit, so the amount of Semen coming out was considerable.</p>
+<p>Until the Semen completely filled her uterus, I continued to hold Hangari Muneo tightly. Every Time Hangari Muneo took a short Breath, Hangari Muneo's Big Tits pressing against my chest felt good.</p>
+<p>「What's your Real name?」</p>
+<p>I asked Hangari Muneo her Real name. It's not like I'm just seeing her now and will never again, so I couldn't keep calling her 'Hangari Muneo' instead of a name.</p>
+<p>「I've forgotten my original name. From the moment I decided to devote myself to Lizhael-nim, I was Hangari Muneo.」</p>
+<p>「Back then, she wasn't Liz, but Simyeonui ttal (Daughter of the Abyss), wasn't she? Now that Lizhael also has her own name, rather than the Address 'Hangari Muneo', how about getting a new name?」</p>
+<p>At my Words, Hangari Muneo became quiet, as if thinking for a moment. She seemed to be thinking about what I had said.</p>
+<p>「Indeed, Hangari Muneo meant a jar for catching octopuses. Since octopus is a representative Animal related to the Abyss. Now that Lizhael-nim has escaped the Abyss, it would be a bit strange for me to keep the Address 'Hangari Muneo'.」</p>
+<p>Hangari Muneo's jar was that jar for catching octopuses? I thought there might be some Meaning, but I didn't know it was that jar.</p>
+<p>Thinking about it, from the Time she was given the name Hangari Muneo, Lizhael seemed to have a Defiance towards the Abyss. An octopus, one of the Animals that Symbolize the Abyss, because it's a jar that 'catches' it.</p>
+<p>「Haaaeu...! I'll ask Ginga Hime-nim about my name later. For now, my Husband-nim's cock, which is hardening inside me, I think I need to clean it and offer my Service once more.」</p>
+<p>Right. For now, rather than a name, having Sex one more Time is more important. Unable to resist the Intravaginal Stimulation of Hangari Muneo's wriggling Vagina, as my cock grew larger and larger, Hangari Muneo's excitement/arousal was also growing. I pulled out my cock and brought it to Hangari Muneo's mouth.</p>
+<p>Jjeu-beup, Jjeu-eup...! Jjeup...!</p>
+<p>Hangari Muneo carefully sucked my cock. She sucked out all the Semen remaining in my urethra, and cleaned all the vaginal fluid and Semen from my cock.</p>
+<p>In that Intimate Posture, perhaps because her arms gathered her breasts, Hangari Muneo's Big Tits became even more prominent.</p>
+<p>「Please put it back in....」</p>
+<p>At Hangari Muneo's Request, as I approached Hangari Muneo again, the Door opened with a 'deureureuk' sound. The protagonist who opened the Door was Urabe Konoka.</p>
+<p>「Teacher-nim...!」</p>
+<p>Hangari Muneo seemed flustered by Urabe Konoka's sudden Appearance, but Urabe Konoka puffed out her cheeks slightly and entered the Room. And she slowly began to take off her Miko clothing.</p>
+<p>「How can you enjoy yourselves without me?」</p>
+<p>Because she had already enjoyed Sex with her Friends at my Home several times, even for Sex beyond a Threesome, Urabe Konoka had no particular Repulsion. Perhaps because it wasn't the Reaction she had worried about, Hangari Muneo looked at Urabe Konoka and let out a Sigh of Relief.</p>
+<p>「From now on, it's a Threesome!」</p>
+<p>At Urabe Konoka's bold Words, I let out a hearty laugh and could only nod my Head.</p>
+<p>B-cut a little~!</p>

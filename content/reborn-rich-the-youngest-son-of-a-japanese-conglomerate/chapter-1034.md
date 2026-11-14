@@ -5,80 +5,93 @@ weight = 1034
 chapter = 1034
 +++
 
-<p>One day before the auction, Contact came from Diana Lich.</p>
-<p>-Perhaps Dante-ssi isn't trying to participate in that auction, are you?</p>
-<p>As expected, she seemed to know about the auction. Indeed, given the Federal Superpower Management Department's intelligence capabilities, and the fact that the employees in this Safe House would hear everything we discuss in our meetings, it would be difficult for them not to know about the Shard of Omniscience auction. She's probably asking for confirmation, even though she already knows I'm participating.</p>
-<p>"I am participating. You know the Reason the Black Sage came to New York. To save the fake Black Knight, that is, my Master's Master, there's no other way."</p>
-<p>-Haa.... It might even be for the best. So many targets of caution are gathering in New York, so it's reassuring to have the real Black Knight there, isn't it? You're not planning to cause any trouble, are you?</p>
-<p>At my Words, Diana Lich, who had been sighing, seemed to be forcing herself to think positively, saying it was Fortunate that I was there. By the way, so many targets of caution.... I should ask her to make a list of who's coming to New York later.</p>
-<p>"Of course, I have no intention of causing any major trouble."</p>
-<p>-And small trouble?</p>
-<p>"There's no other way, you know. Clashing with the Black Sage...."</p>
-<p>-That's true, but...</p>
-<p>Diana Lich also seemed a little worried, perhaps because she was convinced that a battle would occur within her own country.</p>
-<p>"More than that, there's no trace of Behemoth and Whisper, the Reason the Superpower Management Department called me, is there? Did they even come to New York?"</p>
-<p>While I was at it, having received Contact from Diana Lich, I asked about the original request Goal. In fact, if they hadn't called me to the USA because of Behemoth and Whisper, I wouldn't have had any reason to participate in this auction.</p>
-<p>Since I was already in the USA, I was just lending my strength to the Sajo Rescue Team; if I had heard about the Shard of Omniscience while in Japan, I would likely have just shrugged it off, thinking, 'What's that?'</p>
-<p>-I apologize for that. But since they haven't returned to Famine's side, they might have already infiltrated New York, or perhaps they were deployed to another Operation because the Black Knight didn't appear. Still, since it's not certain, I'll continue to provide Information.</p>
-<p>Famine's Organization, Superior, had Superhumans with unimaginable Abilities, former Soldiers, and informants, so their Ability and know-how to evade government Gaze were considerable, making it difficult even for the Federal Superpower Management Department to find them.</p>
-<p>"First of all, if any Information about Behemoth or Whisper comes out, please tell me immediately. I also need to handle it quickly and do my Work."</p>
-<p>-I will. Enjoy the auction, Dante.</p>
-<p>After finishing the Conversation with Diana Lich like that, I began Preparation for tomorrow's auction.</p>
-<p>As I ran around to find Behemoth and Whisper, who were not showing any Rhythmic Motion, and to execute the Operation to Attack the Black Sage at this Shard of Omniscience auction, and prepared for Gensuke's Attack in Japan, the auction day approached before I knew it.</p>
-<p>In the end, even by this Morning, the day of the auction, no Traces of Behemoth and Whisper were found. I had a thought: 'Did they come to catch the Black Knight, then heard the Black Knight disappeared, and are now slowly making their way here while exploring good restaurants?'</p>
-<p>I received Contact that the auction Place was not the same one where I had been with Arisu and her Mother and daughter when I came to New York before, but a different one.</p>
-<p>Before, I didn't remember the exact Position, but if they had rented out a building, today's auction would be held on a ship. They said they had secured a very huge Cruise ship.</p>
-<p>When I heard the Reason for holding it on a ship from Eve, she said that Pressure had come from the USA government. Apparently, since something seemed likely to happen because of the Shard of Omniscience, they judged that holding the auction in the middle of the Sea would be better than holding it in downtown New York, and decided to do so, she explained.</p>
-<p>By the way, the USA government isn't even thinking of banning it. Is AmSang's notoriety that high? Or are they planning to use this incident as an opportunity to identify or arrest the Magicians and Sorcerers who are entering the USA as targets of caution?</p>
-<p>Of course, they wouldn't hold it in a very distant Sea, but decided to float the ship in the Long Island Sound, which is between Long Island, New York, and the State of Connecticut.</p>
-<p>To this extent, it was almost like holding the auction in New York itself, just with a ship floated there. Although there were no private houses or buildings in the Surroundings, as per the USA government's request.</p>
-<p>On the Morning of the auction day, approximately 18 hours before the auction, everyone except me was glaring at each other around the conference room's round table.</p>
-<p>"I want to go to that auction~!" "I was curious about the auction." "I want to go to the auction house with Ryuta-jji too~!!" "Teacher-nim! I can do well!"</p>
-<p>Inevitably, the Members guarding the auction house and its Surroundings were divided, and as the auction was held on a ship, the number of people who could enter the auction house was Limited, so they were fighting, saying they wanted to go to the auction house. For reference, the Gwonmaeng People, who had no particular Interest in the auction and were simply following our Operation, were resting now.</p>
-<p>First, we had to decide on the personnel entering the auction so that we could form a team to wait around the port. Since only a few hours remained, we had to decide quickly to prepare.</p>
-<p>"Everyone, calm down.... Those who can't go today, I'll take you to the auction in Japan, so you don't have to fight so much."</p>
-<p>When I stepped forward and suggested we go to the future auction in Japan together, they calmed down a little.</p>
-<p>"And since we're going on a mission today, if you were thinking of a date, it would be better to go later." "I can wait a little." "I can't be with Investor-nim often, so I want to go today...."</p>
-<p>At my Words, the Members were divided into those who felt they could pass this time and participate later, and those who felt they had to go this time since they couldn't be with me normally.</p>
-<p>"Osu~! I got a separate spot!"</p>
-<p>Just then, Kujo Kina, who had gone to make a Phone Call somewhere in the Morning, entered the place where we were meeting, excitedly. As expected, perhaps because she was the Young Lady of the Kujo Family, she seemed to have secured a spot.</p>
-<p>Here, "one spot" felt like an admission ticket for 4 people including the Party/Group, and since I had only gotten one spot from Eve, it seemed the Kujo Group had exerted some power.</p>
-<p>Of course, I could get more spots if I wanted, but what was important to us was not the Shard of Omniscience auction itself, but finding the Black Knight, so waiting at the Points of each port was more important than participating in the auction.</p>
-<p>Still, now that Kujo Kina also has a spot, there's some flexibility, so if anyone wants to participate in the auction, going with Kujo Kina might be a good idea.</p>
-<p>Come to think of it, Kujo Kina's side also only had one spot, including her Master/teacher, the Yoda old man, and the Bodyguard assigned by the Kujo Family.</p>
-<p>"Ah, rather than us fighting amongst ourselves, Ryuta-jji, you choose!" "Yes, it would be better if Teacher-nim chose."</p>
-<p>In the end, perhaps they thought it would be better if I chose rather than them talking amongst themselves, so everyone deferred the Choice to me. They seemed tired from bickering with each other.</p>
-<p>"A battle probably won't break out on the auction ship, so I'll choose regardless of Combat power."</p>
-<p>Everyone was thinking that the expected time of battle would be after the auction ended and the ship docked at the port, so they decided to choose auction Participants based on their Ability to grasp The Situation, rather than their Combat power.</p>
-<p>If I think that way, it might be better for those with strong Combat power to be on the waiting team, so perhaps those with lower Combat power would be better?</p>
-<p>"First, I'll choose Sawayanagi Azuma-ssi."</p>
-<p>The first person I picked was Sawayanagi Azuma. After all, Sawayanagi Azuma has the superpower of precognition, so I chose her because I thought I could get helpful advice if some unexpected situation occurred inside the ship.</p>
-<p>Of course, Sawayanagi Azuma isn't a high-level precognition Ability User who gets precognition whenever she wants, but still, in The Situation with many turning points like this, she gets precognition with a quite high Probability, so it seemed like I could receive Help this time.</p>
-<p>"Thank you, Investor-nim~! I've never been to an auction before!"</p>
-<p>Watching Sawayanagi Azuma's excited Appearance, I decided to choose the next Member to participate in the auction.</p>
-<p>"Next is... Lianna Holden." "Yeah! As expected, it's Honey~!"</p>
-<p>Lianna Holden was a Telepathy Ability User, so she could have a Conversation even without speaking, and she could also read the thoughts of close People, so it seemed like she could be used usefully in the auction.</p>
-<p>Perhaps she knew through her Ability that I would choose her, as Lianna Holden immediately rejoiced and hugged me as soon as I spoke.</p>
-<p>While enjoying Lianna Holden's soft, pressed breast and fragrant shampoo Smell as she hugged me, I chose the next Member.</p>
-<p>"The next Member will be Kurayamada-ssi."</p>
-<p>Kurayamada Kirie pointed to Oneself with her finger, as if she hadn't expected to be chosen. As soon as I nodded my Head, she smiled, seemingly in a good Mood, but as soon as everyone else looked at her, she returned to her usual Cold Beauty Expression.</p>
-<p>Kurayamada Kirie was chosen because if anything happened, she could provide Help in the Usage of force, and also because she could give weapons stored in Agonggan to Sawayanagi Azuma and Lianna Holden, whose Combat power was lowered because they couldn't carry weapons.</p>
-<p>"If you're asking what standard I used to choose everyone, first, rather than Combat power...."</p>
-<p>Because there were some Members who seemed to have Dissatisfaction, I explained the Reasons I had thought of, one by one. Perhaps my thoughts made sense in their own way, as everyone nodded their Heads and understood.</p>
-<p>"Instead, when we return to Japan, you have to take all of us to the auction! You understand, Ryuta-jji?" "I understand."</p>
-<p>Of course, everyone had a schedule, so I wouldn't be able to take them all at once, but still, taking them on a date as well didn't seem like a bad idea.</p>
-<p>"Can I take Rieko?"</p>
-<p>Kujo Kina, who had seen all my Choices, spoke. After all, it seemed to be Seiwa Rieko's Turn for the Last spot. Were they close? It didn't seem like they had any special contact points, though.</p>
-<p>"Yeah, but were you two close?"</p>
-<p>"Ah, actually...."</p>
-<p>When I asked Kujo Kina directly, she said that the three who came on this USA Travel for Training as well were Kujo Kina, Seiwa Rieko, and Genbaki, and among them, the two Women, Kujo Kina and Seiwa Rieko, became quite close while struggling together.</p>
-<p>As expected, it seemed they became close by struggling together. Although Seiwa Rieko's Combat power had risen in her own way, this New York battle seemed like it would be quite bloody, so it might be better for her to be on the auction team instead.</p>
-<p>Because if I took a newbie to the battle Scene for no reason, she might return as a Corpse.</p>
-<p>"That would be good too. Rieko, go enjoy yourself."</p>
-<p>I also consented, and Otagi Yuka, who could be called Rieko's mom(?) as the Clan Lord, nodded her Head, so Seiwa Rieko's participation in the auction was also confirmed.</p>
-<p>"Then, shall we deploy our team to the port-side Points now?"</p>
-<p>In the end, what was important was not the auction itself, but the struggle for the Shard of Omniscience that would occur after the auction ended. Although we would be aiming for something other than the Shard of Omniscience, we couldn't help but get caught up in this struggle for the Shard of Omniscience.</p>
-<p>Therefore, how to deploy the remaining Combatants was more important than selecting the personnel for auction participation.</p>
-<p>Requested by Gojoy-nim: Gokago Hanako receiving a Phone Call Illustration and a recent status Illustration~! Phone Call~! Recent Status~! Currently, Gokago Hanako, a third-year student at Edo University, is aiming to advance to law school to become a legal professional~! For reference, she is still dating her boyfriend dd.</p>
-<p>Requested by MidNightSKY-nim: Lisa and Shii deliciously eating Steak bought by Ryuta-jji~! Lisa~! Shii~!</p>
-<p>Requested by TheDreaming-nim: Shirtless Alik on the beach~! Drunk Appearance, stretching Appearance~! Drunken Alik~! Stretching Alik~!</p>
+<p>and breast chapter check contains exposure please surroundings this your Not long after Kurayamada Kirie's words ended, the sniper's sniping began to decrease. It was tough because they were firing Mithril bullets indiscriminately, as if they belonged to someone rich or didn't care about the cost, but it got a bit easier.</p>
+<p>"Seeing the snipers decrease without even being able to resist, it seems the Skill of that person who was with you earlier is formidable?"</p>
+<p>Tetsu Kagerou, as if he sensed it was Kurayamada Kirie's doing, slightly admiring, shot a Gun at me and simultaneously fired a Missile from his Shoulder.</p>
+<p>Kwang!</p>
+<p>The Missile collided with my psychokinetic reaction shield and exploded, simultaneously shattering the shield. I raised my Arms in an X-shape, taking a Defense posture to block the Ammunition, but perhaps because it was buckshot, I couldn't block all of them.</p>
+<p>"A-tteu-tteu!"</p>
+<p>My ear grew hot as the feather on my Mask caught Fire, and I quickly threw off the Mask. Still, my Resistance Stats exceeded 20, and due to several defensive Traits, I didn't suffer significant harm from the shotgun. Of course, the Suit I was wearing became a Rag, though.</p>
+<p>"...."</p>
+<p>Since he was a named monster, I had been fighting him moderately, thinking I might not kill him and perhaps hire him later, but that won't do. I can't keep wasting Time here, so I need to go all out and deal with him quickly.</p>
+<p>Woong!</p>
+<p>I gathered a lot of Genesis Chaos Energy in my fist and glared at Tetsu Kagerou, but Tetsu Kagerou's Feeling was strange. He seemed very surprised after seeing my Face. Surely, he wasn't surprised because I'm too handsome, was he?</p>
+<p>"Sa, Saburo? Is that Saburo-ssi?"</p>
+<p>"Huh?"</p>
+<p>If he means Saburo, is he talking about my deceased Father, Taira Saburo? If it's Taira Saburo, why is Taira Saburo's name coming out of Tetsu Kagerou's mouth?</p>
+<p>"If the Saburo you're talking about is indeed Taira Saburo, then I am his Son."</p>
+<p>"Son? Saburo-ssi had a Son?"</p>
+<p>Seeing that he didn't deny it when I said Taira Saburo, it seems he really is talking about Taira Saburo, but what is the Relationship between Tetsu Kagerou and my Father?</p>
+<p>"Let's go down and talk first."</p>
+<p>Since both of us were floating in the air, I couldn't concentrate at all, so I decided to go down first. Tetsu Kagerou nodded his Head at my Words, then came down to the Ground with me.</p>
+<p>"Saburo-ssi definitely didn't have a Son, who are you?"</p>
+<p>"Because I'm an illegitimate child.... I didn't even know who my Father was until last year. How do you know my Father, Taira Saburo?"</p>
+<p>Actually, Tetsu Kagerou asked as if curious, but I was just as curious. At my Question, Tetsu Kagerou muttered, "An illegitimate child...?", then looked at me.</p>
+<p>"You certainly resemble Saburo-ssi...."</p>
+<p>Well, other Relatives also said I resembled Taira Saburo, and the Tetsu Kagerou in front of me mistook me for Saburo-ssi as soon as his Mask was removed, so it was an undeniable fact that my Appearance resembled Taira Saburo.</p>
+<p>"Can you answer what I asked first?"</p>
+<p>"Ah...! I, no, we...."</p>
+<p>We? Tetsu Kagerou said that both he and the group he belonged to were forces that served Taira Saburo.</p>
+<p>Ah, could it be that faction among the Taira Saburo-aligned forces that left the Taira Group, which Taira Yukiko received from Grandmother and passed on to me in the Information? Tetsu Kagerou wasn't on that list.... Ah, he might not have acquired the nickname Tetsu Kagerou yet. His Real name would be written in the data.</p>
+<p>"I was already planning to meet them after this incident, having received their list from Grandmother.... I didn't expect to see you here."</p>
+<p>As far as I knew, the Taira Saburo-aligned forces that left the Taira Group were in the USA, but I heard they were in San Diego, not New York. I didn't expect to see one of them in New York.</p>
+<p>And it's also surprising that Tetsu Kagerou wasn't originally affiliated with Asakura. Perhaps all the Taira Saburo-aligned forces that left the Taira Group might have joined Asakura in the future.</p>
+<p>-You're not visible in the sky, are you alright?</p>
+<p>While I was talking with Tetsu Kagerou, Kurayamada Kirie's communication was heard. Ah...! That's right. Kurayamada Kirie was here.</p>
+<p>"I'm fine, please stop attacking the snipers for a moment."</p>
+<p>I answered Kurayamada Kirie's Question, then looked at Tetsu Kagerou.</p>
+<p>"I don't really know the snipers, so it wouldn't matter if you killed them, but I'd prefer if you left some of them. After all, I'm the Team Leader for this current Mission."</p>
+<p>At Tetsu Kagerou's Words, I nodded my Head, told Kurayamada Kirie my Coordinates, and told her to come this way. I looked at Tetsu Kagerou with an Expression demanding an Explanation again.</p>
+<p>"We created a PMC called Moth Tactical~♬ This request is one I came to New York for, having been designated alone."</p>
+<p>Moth Tactical, huh.... The Taira Group's Symbol is a butterfly, so it was quite meaningful that the PMC company founded by the Taira-aligned people who broke away was a moth. What could it mean? Does it mean they haven't forgotten Taira? Or does it mean that Taira and they now walk different Roads?</p>
+<p>"I see. Then.... Could you let me pass?"</p>
+<p>Since Tetsu Kagerou was someone who served Taira Saburo, I was even more reluctant to fight. So I asked him again to just let me pass. If he refused, since we were on the Ground, I planned to immediately rush in and Faint him with a triangle choke.</p>
+<p>"Are you really not aiming for the Book of Omniscience?"</p>
+<p>At my Request, Tetsu Kagerou hesitated for a moment, then asked again as if to confirm.</p>
+<p>"Yes, among those aiming for the Book of Omniscience, there's someone holding my Sabu's Sabu captive. I'm chasing that person."</p>
+<p>"Oh, really? Then I can let you go."</p>
+<p>Tetsu Kagerou said, "Oh, really?" and agreed to let me go after my Explanation. Although it took a little Time, I was Fortunate that I didn't have to fight anymore.</p>
+<p>"Your client isn't someone called the Black Sage, is he?"</p>
+<p>If Tetsu Kagerou's client was the Black Sage, I might have to fight again, so I asked before leaving.</p>
+<p>"No, our client is some kind of, Arab Alchemy Association Chairman? ...that kind of person."</p>
+<p>Ah, it seemed the person who successfully bid for this piece of Omniscience had hired Tetsu Kagerou. To have Tetsu Kagerou deployed in advance, he must have been convinced he would win the bid. Hearing Tetsu Kagerou's Answer, I pointed to a carpet falling from one side of the sky, engulfed in Fire, and spoke.</p>
+<p>"Isn't that person him?"</p>
+<p>"Ah! You're right. Oh, no! I haven't received the remaining balance yet...! Sorry, but see you later!"</p>
+<p>Tetsu Kagerou promised me a next Time and flew up again. And he headed towards where the carpet was falling. Seeing that no other factions were following the falling carpet, it seemed the piece of Omniscience had already been taken.</p>
+<p>"Did you take care of him?"</p>
+<p>After waiting about 30 more seconds, Kurayamada Kirie came and asked. She must have asked if I had already taken care of him because Tetsu Kagerou was gone. I shook my Head.</p>
+<p>"No, it turns out he knew my Father. So I asked him to let me pass."</p>
+<p>"Such a coincidence exists?"</p>
+<p>"Exactly. Let's depart first."</p>
+<p>"Yes...!"</p>
+<p>If the Chairman of the Arab Alchemist Federation, who successfully bid for the Book of Omniscience, had the piece of Omniscience taken from him, it meant the Black Sage might have taken it. If the Black Sage had obtained the piece of Omniscience, there was a high Possibility he would try to escape quickly rather than fight everyone aiming for the piece of Omniscience, so I had to head even more urgently to where the struggle was unfolding.</p>
+<p>"I guess I have no choice but to wear the Black Knight Armor."</p>
+<p>Until now, I hadn't worn it for fear of drawing aggro, but since my Mask was gone and my Suit was a Rag, I decided to wear the Black Knight attire. Before departing, I infused Genesis Chaos Energy into my Bracelet, and Armor generated from the Bracelet, soon covering my entire Body. Having transformed into the Black Knight, I began to run with Kurayamada Kirie.</p>
+<p>Around the same Time, New Rochelle Alley.</p>
+<p>Kiona Mari, the Flame Ability User of Seryu Military Company, and Choi Jinha, the Petrification Ability User, began a Battle with a strange Ability User.</p>
+<p>"I am the Swarmkeeper! You who have entered my Hive will become Prey for my swarm!"</p>
+<p>A fat white man, who identified himself as the Swarmkeeper, attacked, and he was an Insect Mage who controlled millions of insects with sharp teeth.</p>
+<p>Although it wasn't explained to Kiona Mari and Choi Jinha, the Swarmkeeper was one of the Black Sage's Collection.</p>
+<p>Kiona Mari and Choi Jinha looked at each other. He was an Insect Mage whom ordinary humans would greatly fear, but Kiona Mari, who wielded Fire, and Choi Jinha, whose entire Body was petrified so that insect teeth or stings had no effect, were Opponents with a complete Compatibility/Affinity advantage.</p>
+<p>"What did we say about coming this way? Swarmkeeper? It's unfortunate for you."</p>
+<p>"Indeed. Still, if it were someone else, he would have been a considerably difficult Opponent, but it seems rather that our coming to this area was Luck."</p>
+<p>"Is that so?"</p>
+<p>"Th-these Guys!"</p>
+<p>The Swarmkeeper grew angry, seeing them talk about misfortune and Luck without fearing him. Simultaneously, insects began to burst out from the Swarmkeeper's Body. The Swarmkeeper wasn't fat. He only appeared that way because he was cultivating insects inside his Body.</p>
+<p>"Ugh...! Disgusting!"</p>
+<p>As Kiona Mari gagged, seeing the insects swarm together to form a black mass, her junior, Choi Jinha, devised a jakjeon and told her. When Kiona Mari nodded her Head, Choi Jinha unleashed Petrification and began to run.</p>
+<p>"Disgusting things should be eliminated quickly. Dieeeeee!"</p>
+<p>Kiona Mari extended her Hand and fired Flame at the swarm of insects, and Choi Jinha ignored the countless clinging insects and came before the Swarmkeeper.</p>
+<p>"A Flame Ability User...!"</p>
+<p>The Swarmkeeper was in a state of shock, watching the insects he had painstakingly raised being engulfed in Flame. Choi Jinha saw the Swarmkeeper, who was only looking at the insects and not even caring that he was in front of him, and laughed with a dumbfounded Expression. Then he threw a fist.</p>
+<p>Choi Jinha was wearing shockwave Gauntlets specially manufactured by TG Tech, so he could Neutralize the Swarmkeeper with a single blow.</p>
+<p>"Did you take him down?"</p>
+<p>Kiona Mari, who had covered the entire Alley in Flame to deal with the insects, approached Choi Jinha and asked.</p>
+<p>"I only Fainted him."</p>
+<p>"I guess I should kill him."</p>
+<p>At Choi Jinha's Words that he only Fainted him, Kiona Mari muttered, looking at the Corpses around them, gnawed to bones by insects. He was a Guy from whom there was nothing to gain by keeping him alive.</p>
+<p>"Step back."</p>
+<p>Kiona Mari, who told Choi Jinha to step back, extended her Hand towards the fallen Swarmkeeper. Soon, the Alley was brightly illuminated. The Swarmkeeper and the insects still remaining inside him burned, illuminating the Alley for a moment.</p>
+<p>"This is Mari's team. We've captured the Points, so be aware of that."</p>
+<p>Kiona Mari stared expressionlessly at the brightly lit Alley, and reported to Command.</p>
+<p>Requested by TheDreaming-nim, Lisa in white gloves and white boots 1. Jump 2. Masturbation over Clothes 1. Perhaps because 'convention' also means 'assembly', a lot of people are appearing. It was hard to choose ㄷㄷ 2. Even though I removed 'people from' this Time, this many people appeared ㄷㄷ Requested by Gojoy-nim, Arisu 1. Greeting in the car, 2. Underwear Model 1. 2. Requested by Chomisaemeonji-nim, Liz 1. Tetsu Kagerou Costume and 2. Madwoman of Rest Costume~! 1. I like the wing Design of the Liz model more hehe 2.</p>

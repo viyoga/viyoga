@@ -5,80 +5,75 @@ weight = 608
 chapter = 608
 +++
 
-<p>Seoul, Gangnam-gu, Mo Building.</p>
-<p>Mimata Chieri, who had urgently entered Korea from Japan to negotiate with Cheon Ha-rin of Jeil Electronics, headed to the building owned by Cheon Ha-rin. As Mimata Chieri got out of the taxi, Han Yu-gyeong was waiting near the entrance of the building. Mimata Chieri smiled brightly at Han Yu-gyeong.</p>
-<p>,Ah, Han Yu-gyeong-ssi.</p>
-<p>,You've arrived.</p>
-<p>Mimata Chieri, who met Han Yu-gyeong at the entrance of the building, entered the building and headed to the meeting room, which was the meeting place.</p>
-<p>,Welcome.</p>
-<p>Cheon Ha-rin, who tied her shiny silver hair in a ponytail and wore a business suit, greeted Han Yu-gyeong and Mimata Chieri. The three took seats on one side of a triangular table with a unique design.</p>
-<p>,Shall we talk? Please explain about TG Tech. That way, we can find areas to cooperate with Jeil Electronics.</p>
-<p>,TG Tech has defense technology. The fields we are trying to enter are cyber suits, firearms, and other technology fields. Recently, we developed mithril alloy technology.</p>
-<p>Han Yu-gyeong answered Cheon Ha-rin's question without hesitation. The technologies that Jin Yong-tae obtained and the technologies that Lara Sinclair and Eve are developing would be enough to advance into other fields, but they were currently focusing on military equipment, which was highly related.</p>
-<p>The field that Han Yu-gyeong mentioned was not very relevant to Jeil Electronics, but when the story about the mithril alloy came out, Cheon Ha-rin showed interest.</p>
-<p>,Mithril alloy technology? Is the strength, hardness, and durability okay?</p>
-<p>,It's very good.</p>
-<p>In fact, it was inaccurate to say that TG Tech developed mithril alloy technology. After winning the struggle with Yongcheol Group and forcibly taking over the research institute owned by Yongcheol Group, they absorbed the technologies of Yongcheol Group, but there were not many useful technologies. However, the mithril alloy technology used in Jeon Yong-cheol's armor, which Han Yu-gyeong and I Yeon-ju struggled with, was an incredibly valuable technology.</p>
-<p>Mithril alloy technology was quite useful to TG Tech, which owned Jin Yong-tae's mithril mine and did not have to worry about mithril supply, so Lara Sinclair, who was in charge of TG Tech's technology, quickly learned and advanced the alloy technology and was producing much better efficiency than before.</p>
-<p>,The data for hardness, strength, durability, and corrosion resistance is about this level.</p>
-<p>Han Yu-gyeong proudly showed the paper she had brought. Cheon Ha-rin looked at the data shown by Han Yu-gyeong for a while and then nodded. The results of the data were quite impressive.</p>
-<p>,At this level, it seems suitable for the exterior of the military smartphone that Jeil Electronics is making. Of course, we will have to test other aspects such as cooling and heat resistance.</p>
-<p>Jeil Electronics, which supplies sturdy military smartphones to those who prefer sturdy mobile phones and to the militaries of many countries, has been steadily making military-spec smartphones every year, and Cheon Ha-rin was currently in charge of this military line.</p>
-<p>,Even if it's not 100 percent mithril, the price won't be cheap because it's a mithril alloy, are you okay with that?</p>
-<p>,Don't worry about the price. We're only going to use it for the top-of-the-line flagship model in the military line.</p>
-<p>She was going to use it only for the top-of-the-line model, which she would charge a lot for anyway, so she didn't care if it was a little expensive. Han Yu-gyeong, who was worried about price negotiations but not about the performance of the mithril alloy, felt dazed when Cheon Ha-rin passed without any special negotiations.</p>
-<p>,Then shall we check how much quantity we can supply?</p>
-<p>,Ah, I'll tell you about that.</p>
-<p>Mimata Chieri smiled brightly and unfolded the documents. Although the alloy technology was owned by TG Tech, the actual steel was made by Hatake Steel under Hatake Investment Company, so this case was the responsibility of Mimata Chieri, Jin Yong-tae's secretary.</p>
-<p>,About this much per month... is possible.</p>
-<p>,That seems a little short? Even if it's the top-of-the-line line, we're releasing it worldwide.</p>
-<p>,Then....</p>
-<p>The two argued for a while and eventually found a compromise. Of course, all of this would not lead to a contract unless the prototype being made on a trial basis met the specifications required by Jeil Electronics, but Cheon Ha-rin knew it would work out well.</p>
-<p>,Now that we've roughly agreed, shall we have a cup of coffee?</p>
-<p>,Okay. I'll send a message to CEO Jin Yong-tae that the story went well in a positive direction.</p>
-<p>,Go ahead.</p>
-<p>Cheon Ha-rin ordered coffee from an employee, and Han Yu-gyeong sent a KakaoTalk message to Jin Yong-tae.</p>
-<p>Han Yu-gyeong: Yong-tae, the story with Jeil Electronics went well. There are still many hurdles left, but I think it will work out.</p>
-<p>-Message transmission failed.</p>
-<p>Huh? What's wrong? Han Yu-gyeong frowned at the first failure message she had ever seen.</p>
-<p>,Chieri-ssi, can you contact Yong-tae? The message is not being sent on KakaoTalk....</p>
-<p>,Yes, I'll try.</p>
-<p>Mimata Chieri also tapped on her phone and tilted her head. Like Han Yu-gyeong, the message was displayed as failed to send.</p>
-<p>,What's wrong?</p>
-<p>,The communication situation in South China is not good. KakaoTalk is not being sent.</p>
-<p>Han Yu-gyeong answered Cheon Ha-rin's question with a slightly embarrassed expression. Jin Yong-tae is a teacher on a graduation trip, so he may not be able to see KakaoTalk messages for a while, but the fact that he is not connected at all is because the communication in New Nanjing, where Jin Yong-tae went, is not good.</p>
-<p>,Just a moment. I'll turn on the TV.</p>
-<p>While Cheon Ha-rin and Han Yu-gyeong were talking, Mimata Chieri, who was seriously looking at her phone, turned on the TV attached to the wall with the remote control placed in one corner of the table.</p>
-<p>,The news channel....</p>
-<p>,If it's news, try turning on number 9.</p>
-<p>As Cheon Ha-rin said, when she turned on number 9, an article with the sensational headline of an unidentified virus in New Nanjing City, South China, and the outbreak of riots was being broadcast.</p>
-<p>Han Yu-gyeong and Mimata Chieri looked very worried after watching the news.</p>
-<p>,New Nanjing City... isn't that where Yong-tae went on a graduation trip with St. Francis Girls' Academy?</p>
-<p>,Yes, that's what I know.</p>
-<p>-While an unidentified virus has occurred in New Nanjing City, countries are blocking flights to and from New Nanjing City, as well as flights in South China. North China and the Tibet-Uyghur Free Federation, which border South China, have closed their borders....</p>
-<p>As the announcer's story was heard, Han Yu-gyeong and Mimata Chieri's expressions grew darker and darker. They were hearing about an unusual virus.</p>
-<p>-The symptom of this virus is increased aggression. It is very important to be careful because it shows symptoms of attacking people around you, just like zombies in mass media. There have been no reports of it spreading around New Nanjing City yet, and South China authorities have also blocked New Nanjing City.</p>
-<p>As the announcer's explanation continued, footage that appeared to have been filmed from a helicopter was shown, showing smoke rising in various parts of the technology city of New Nanjing, people running away, and scenes of people running away being chased madly. It was really like a scene from a zombie movie.</p>
-<p>,Zo, zombies?</p>
-<p>,Aren't zombies only in movies?</p>
-<p>Han Yu-gyeong and Mimata Chieri were confused by the unexpected word zombie. Of course, it's not strange for zombies to appear in a world where there are also superhumans that you only see in movies and cartoons, but it was still unrealistic.</p>
-<p>,Don't worry too much. Yong-tae-ssi will be safe.</p>
-<p>Cheon Ha-rin said definitively, as if she was sure that Jin Yong-tae would be safe. One of Han Yu-gyeong's eyebrows rose slightly at Cheon Ha-rin's words.</p>
-<p>,How many times have you seen him to call him Yong-tae-ssi?</p>
-<p>She grumbled inwardly at Cheon Ha-rin, but on the other hand, she wondered if she didn't trust Jin Yong-tae as much as Cheon Ha-rin did.</p>
-<p>,That's right. We have to believe that Yong-tae will be safe. As Ha-rin-ssi said, Yong-tae will be safe.</p>
-<p>,Our junior is tough. If zombies are real, maybe the zombies should be careful instead?</p>
-<p>Mimata Chieri agreed with Han Yu-gyeong's words. In fact, at first, she was worried because the announcer was talking about zombies, but Han Yu-gyeong and Mimata Chieri knew Jin Yong-tae's true skills, so their worries disappeared. Just when their anxiety had subsided a little, the announcer began to talk about breaking news on the news.</p>
-<p>-Breaking news! Uenozono Karen, a member of the popular girl group Serif, is reportedly in New Nanjing City on a school graduation trip. Hyper Entertainment, her agency, is....</p>
-<p>,This incident will definitely attract worldwide attention.</p>
-<p>Cheon Ha-rin muttered as she looked at the announcer reporting the breaking news.</p>
+<p>Sawayanagi Azuma satisfied everyone until late into the night in the sex room she rented, which had a plus king size bed. Watching everyone, their desires fulfilled and sleeping with happy expressions like sated cats, I got up from my seat feeling proud.</p>
+<p>Sitting naked on the spectator chair(?) next to the bed, I looked at my phone. Han Yu-gyeong-nim had sent me an article link via KakaoTalk, so I checked it.</p>
+<p>-TG Tech in the Spotlight, Accelerates Gun Release Date. TG Tech CEO Han Yu-gyeong: "Aiming for US release within the year, gun company registration already completed a month ago."</p>
+<p>TG Tech, known to have benefited the most from the New Namgyeong zombie crisis, is seizing the opportunity like the Korean proverb, bringing forward the release date of its gun products, which had been scheduled for early next year, to within this year.</p>
+<p>Han Yu-gyeong, the co-CEO of TG Tech, said, "Actually, the gun development was already completed. We were planning to release it with other products, but due to strong market demand, we decided to separate the gun part and release it first," stating that the gun development was already finished.</p>
+<p>In fact, there were suspicions that TG Tech was a fraudulent company that deceptively faked non-existent technology, as it had done in the past, but these suspicions were dispelled by the leaked videos from this zombie crisis, the purchase of patents from an American company, and the announcement of collaboration with Jeil Electronics.</p>
+<p>Furthermore, TG Tech's guns will be unveiled and demonstrated at the gun show in early December....</p>
+<p>It was an article announcing the accelerated release of the guns I had talked about before. It was an interview with Korean media, but it was immediately translated and posted on American gun communities, and as soon as the word "release within the year" spread, gun enthusiasts were excitedly leaving comments.</p>
+<p>A few comments gave me some ideas: why isn't there a pre-order option, and there will definitely be dissing of the energy guns from other gun companies.</p>
+<p>Hmm, I need to discuss pre-orders with Han Yu-gyeong and Eve, and of course, existing gun companies that manufacture gunpowder-based guns will try to check our energy guns, so we need to prepare countermeasures for that as well. Of course, while I'm at St. Francisco Girls' Academy, Han Yu-gyeong-nim is in charge of everything at TG Tech, so she might already be preparing for it.</p>
+<p>I sent the ideas I got from the comments to Han Yu-gyeong. Soon, I got a reply.</p>
+<p>Han Yu-gyeong: I was thinking about the other gun companies' checks in advance. I'm thinking about a few plans, but we need to see how they come out and respond. Pre-orders seem like a pretty good idea. We can roughly figure out how much stuff we need to produce. But are you thinking about work even while resting, Ryuta? You're awesome?😍👄👄👄👄</p>
+<p>Jin Ryuta: Our Yu-gyeong-nim is suffering alone, so I have to come up with ideas, at least.</p>
+<p>While I was flirting with Han Yu-gyeong on KakaoTalk like that, I was watching MiTube on my phone, and one by one, they started waking up from their sleep.</p>
+<p>"Shall we all go for breakfast?"</p>
+<p>When I said that, looking around at everyone, a few people chuckled. They had that "you're such an incorrigible glutton" look on their faces. But I had used so much energy from last night until this morning that I needed to replenish it. I eat a lot to replenish energy, I'm not a glutton.</p>
 <p>###</p>
-<p>I got off the safari bus and looked around the parking lot. There was a bus that seemed to belong to Class B, but it was crushed as if someone had stepped on it, and the rest of the buses had disappeared. I looked around the empty parking lot and turned on the radio.</p>
-<p>,This is Class B rescue team. Where did everyone go?</p>
-<p>-Jijik. Chi.... Oraboni, we are Chiik...! We're being chased.</p>
-<p>It was Taira Kanna who answered my radio. There was a lot of static on the radio, as if the distance had increased. Who the hell are they being chased by?</p>
-<p>I can't believe they're being chased even though Shimokawabe Airen is there. Unless it's a boss-level enemy.... Ah! There was a boss in New Nanjing City. A pretty troublesome guy at that.</p>
-<p>_________</p>
-<p>RefundAbsolutelyImpossible-nim requested stockings-wearing home teacher milf look hehe</p>
-<p>Other dress.</p>
-<p>Kkiyot...!</p>
+<p>After finishing breakfast, I handed my card over to Otagi Yuka, Saionji Diana, Sakagami Rena, Konoe Akina, and Urabe Konoka, who had returned from staying at a nearby shrine yesterday, and told them to go have fun with free Tokyo sightseeing today. They said they would hang out with the Seiryutai members, as they had become friends in just one day.</p>
+<p>Saionji Diana seemed like she would be talking about wind attribute abilities with Sawayanagi Seari, and the others seemed to be sharing advice and opinions while talking about their superpowers.</p>
+<p>I had a separate appointment, so I went outside.</p>
+<p>Since I was in the vicinity of Tokyo, I decided to meet Yukiko, but Yukiko said that she was hanging out with Nagumo Sian, who had come to Tokyo for a Taira Group meeting, so I decided to join them there.</p>
+<p>Of course, since the president of Taira Foods and the director of the Human Resources Development Institute were there, there was a high possibility that many eyes were watching, so we couldn't meet outside and decided to meet at a safe house prepared by Yukiko.</p>
+<p>You might say that even a safe house is dangerous, but there were no major safety issues because it was double-secured with Yukiko's succubus-awakened illusion magic.</p>
+<p>"Welcome, Ryuta-nim."</p>
+<p>Guided by a maid with empty eyes, as if she had been hypnotized, I entered the building and found Yukiko and Nagumo Sian elegantly having tea time.</p>
+<p>I didn't know that the four of them were meeting separately like this, but it seemed that Ha Ju-yoon and Nae Fitzgerald had come to Yukiko's house in the Human Resources Development Institute and stayed together for a while, and the four of them had become quite close.</p>
+<p>"Hello, Onee-sama, Yukiko-ssi."</p>
+<p>"Ryuta, you've come?"</p>
+<p>"It's been a while. I missed you."</p>
+<p>After exchanging greetings and sitting down, there was a cup of tea placed in front of my seat, as if they knew I was coming. Judging by the rising steam, it seemed like they had just poured the tea. If they poured the tea knowing I was coming, it seemed like Yukiko had completely taken control of this area.</p>
+<p>"I was keeping an eye on what was happening in China from here as well. I was very worried, but I'm relieved to see that you've returned safely like this."</p>
+<p>Nagumo Sian checked my face as soon as she saw me to see if I was hurt anywhere, but Yukiko was still elegantly taking a sip of her tea.</p>
+<p>"I wasn't too worried. I knew that Ryuta would come back unharmed. I was just a little worried about Ryuta's classmates. I saw them before, and they were all cute friends, so I was worried that they might get hurt or die."</p>
+<p>Yukiko knew my skills, so it seemed like she didn't think I would get hurt or die. Actually, I almost died after getting hit by a few missiles while fighting a giant robot, but I shouldn't tell that story. She might worry.</p>
+<p>"A lot happened there."</p>
+<p>"Will you tell us the story?"</p>
+<p>Nagumo Sian seemed quite interested. Yukiko also put down her teacup with an interested expression. I guess that means she wants me to tell the story. In fact, it's only been three days since we returned, so the New Namgyeong city was still in the middle of a zombie crisis. People's interest was still high.</p>
+<p>We were interesting survivors, so we attracted a lot of attention, but reporters dared not contact the daughters of the prestigious families of St. Francisco Girls' Academy. Of course, the attention was focused on the teachers who went with them.</p>
+<p>Shimokawabe Airen, who was only interested in combat and not interested in telling her story to reporters, and Kijimoto Jurie, who was a teacher but also a woman from a prestigious family, also didn't receive any contact, and the Yamashiro family was also a prestigious family in its own right, so I didn't receive any special contact either.</p>
+<p>So, A class and B class teachers, excluding the deceased C class teacher, were contacted, but Matsunaga Yuzuki, the A class teacher and grade leader, refused, and I heard that the B class teacher, the physics teacher, did a few interviews.</p>
+<p>Of course, Shido Tsubaki was writing a special article herself, but it hasn't been released yet.</p>
+<p>"It's definitely more realistic to hear from someone who experienced this event directly than to hear and see it on the news."</p>
+<p>I told Yukiko and Nagumo Sian everything from the beginning of the school trip to the zombie incident in New Namgyeong City, and the process of us escaping from there. Perhaps because it was a zombie outbreak that happened in reality, they both listened to the story with great interest.</p>
+<p>"...After ditching the giant robot like that, we drove in an abandoned car and found soldiers waiting at the Shanghai border. So we stayed there for a few days and then returned to Japan."</p>
+<p>When my story ended, Nagumo Sian, who had been listening for a while, hugged me with her ample breasts. It felt pretty good to have my face pressed against her chest. It felt like she was hugging me with maternal love?</p>
+<p>"Ryuta, you've suffered a lot."</p>
+<p>"I didn't know you had suffered so much."</p>
+<p>As Nagumo Sian hugged me, Yukiko stroked my hair from the side.</p>
+<p>"No. I didn't suffer much. I got out in one day. It was a bit boring waiting in the shelter made by the South Chinese army, though."</p>
+<p>"I see. But what's this about Minamoto filming Ryuta while you were talking about what happened in Korea?"</p>
+<p>Ah, it seemed like she was asking about Minamoto Lisa taking pictures of me during the graduation trip in Korea for the club festival preparations. Nagumo Sian also looked at me with curiosity, along with Yukiko, who asked the question.</p>
+<p>"That's because St. Francisco Girls' Academy is having a festival. The club I'm an advisor for is publishing a collection of writings, but it doesn't seem like the collection will sell well, so they're going to put my photo cards in it. Of course, I'm not a celebrity, and I don't know how much more the collection will sell just because they put my picture in it, but anyway, that's why they take pictures whenever they get a chance."</p>
+<p>""Photo cards?""</p>
+<p>They both asked at the same time to my explanation, so I nodded. I feel like their eyes are twinkling?</p>
+<p>"You said they're selling it with the collection at the festival?"</p>
+<p>"Yes."</p>
+<p>"Was it Minamoto's idea?"</p>
+<p>"Yes."</p>
+<p>"That kid is quite talented."</p>
+<p>I don't know what she means by talented, but Yukiko and Nagumo Sian looked at each other and started nodding.</p>
+<p>"We'll definitely go to the festival too."</p>
+<p>"Yes? What excuse are you going to use to come?"</p>
+<p>Suddenly, if the director of the Taira Human Resources Development Institute and the president of Taira Foods, who have no connection, come to the festival, it will be a huge topic.</p>
+<p>"If I say I came to see Kanna, no one will doubt it. I took care of her often when she was young."</p>
+<p>Nagumo Sian replied. Actually, for some reason, Taira Kanna didn't seem to like Yukiko very much, but she seemed to like Nagumo Sian, who she had met since she was young.</p>
+<p>"I can transform into Rena's teacher like before~!"</p>
+<p>Ah, that's right. Yukiko was Sakagami Rena's illusion magic teacher. I received quite a bit of help from Yukiko during the Naruse Shiyo rescue as well.</p>
+<p>"But Yukiko-ssi, how did you learn illusion magic so well that you can teach others in such a short time?"</p>
+<p>No matter how much of a succubus she is, skills require proficiency, so I was always curious about how she uses illusion magic so skillfully. Besides, I was quite surprised that she was proficient in other spells besides illusion magic during the Naruse Shiyo rescue. Since the story of being Sakagami Rena's teacher came up, I decided to ask.</p>
+<p>At my question, Yukiko smiled and looked at Nagumo Sian. Why is she looking at Nagumo Sian? Could it be....</p>
+<p>"I learned from someone too. I got good at it by learning from Nagumo-ssi here."</p>
+<p>If Yukiko learned illusion magic and spells from Nagumo Sian, then that meant that Nagumo Sian was also a sorcerer. I didn't know that. That was a completely unexpected answer.</p>

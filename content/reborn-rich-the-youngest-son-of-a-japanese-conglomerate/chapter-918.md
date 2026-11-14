@@ -5,86 +5,86 @@ weight = 918
 chapter = 918
 +++
 
-<p>Chwaak!</p>
-<p>Musashi Takuro, who had pulled out the hand that was stuck in Kakishima Dekuro's Chest, calmly shook his hand and looked at me.</p>
-<p>"Yes, tell me about the Situation at that time."</p>
-<p>"Ah, at the time of that attack incident...."</p>
-<p>What Musashi Takuro asked about was the transformation of his disciple, Kaishu Kakan, when Anyaji attacked Old Man Yoda's Dojang. I began to explain the events of that time to Musashi Takuro.</p>
-<p>At that time, we fought, inflicting destructive blows on each other without sparing our Bodies. I could use such a fighting method because I had regenerative power, but I wondered why Kaishu Kakan fought that way. What was ultimately revealed in the latter half of the battle was Kaishu Kakan's appearance, transformed into a tentacle monster. When he became a monster, he gained regenerative abilities, which was quite perplexing.</p>
-<p>At that time, I thought it was because he had learned something wrong from Takakusaki Gengo. According to the information obtained from Athena Mannerheim and Joseodang's own investigation, Sabu Musashi Takuro, though a bit aggressive, had no relation to such sorcery at all and was a person who maintained purity regarding martial arts to the point of being stubborn. However, because he was quite aggressive, he was ostracized by the traditional Japanese martial arts community and joined Anyaji.</p>
-<p>Therefore, realizing that Kaishu Kakan's transformation had not been discussed with Musashi Takuro, I secretly contacted him using Joseodang while preparing for battle with Anyaji. It was because I thought he would harbor resentment towards Takakusaki Gengo if he saw his disciple's transformation into a tentacle monster. It could be called a stratagem to sow discord.</p>
-<p>Naturally, Musashi Takuro didn't believe it at first, but when we showed him the photos we had taken, he had no choice but to somewhat accept it. The fight I just had with him was a test to see if I could indeed bring out Kaishu Kakan's transformation. That's why I played along with Musashi Takuro, matching the skill I had during my match with Kaishu Kakan.</p>
-<p>And what finally drove a wedge into Musashi Takuro's doubt was the resolute answer of Athena Mannerheim, one of Anyaji's Four Heavenly Kings, who was present during the attack.</p>
-<p>Musashi Takuro killing Kakishima Dekuro was not merely because he insulted Kaishu Kakan, but to exact revenge on Anyaji-specifically, on Takakusaki Gengo, who had corrupted his disciple and turned him into an abomination.</p>
-<p>Of course, I was the one who killed Kaishu Kakan, but it was a fair match. And in a way, I could be called a benefactor who comfortably (?) sent off his grotesquely transformed disciple, so it seemed he was letting it slide. Also, since I'm now the friend of his disciple, Genba Kiyohira, he must be holding back.</p>
-<p>"...That's how it happened."</p>
-<p>"...Hmm, is that so...."</p>
-<p>Musashi Takuro, lost in thought for a moment after my explanation, had already killed the Guardian Kakishima Dekuro with his own hands, so he wouldn't suddenly attack me. While Musashi Takuro was lost in thought, I approached Athena Mannerheim and Genba Kiyohira.</p>
-<p>"Thanks for the Help, Athena."</p>
-<p>"It's for my revenge."</p>
-<p>I greeted Athena Mannerheim and looked at Genba Kiyohira. Genba Kiyohira was looking at me with a slightly awkward Expression.</p>
-<p>"I didn't expect it to turn out like this...."</p>
-<p>"Then how did you expect it to turn out?"</p>
-<p>Genba Kiyohira stammered at my Question. When I looked at him as if telling him to say more, he pointed to a spot. It was a place in the forest surrounding the pension.</p>
-<p>"I hid a mountain bike over there. I was going to wait for the right moment, carry you, and escape. I didn't know the Situation would change so rapidly."</p>
-<p>In fact, since cameras were installed all around this place, I already knew that Genba Kiyohira had secretly hidden a bike from Anyaji. Seeing that, I was convinced that Genba Kiyohira had not betrayed me.</p>
-<p>"Why didn't you contact me beforehand?"</p>
-<p>"That... I had my phone confiscated since I told Sabu I was learning martial arts."</p>
-<p>Genba Kiyohira spoke quietly, as if embarrassed that he, a 21-year-old, had his phone taken away by someone else, but from Anyaji's perspective, it was a natural thing.</p>
-<p>He was an acquaintance of Fujigasaki Rinka, who hadn't even been brainwashed yet, and the best friend of Fujigasaki Rinka's disciple. So, they must have confiscated his phone, thinking he could leak information about Anyaji to us at any time.</p>
-<p>"And... I'm sorry for joining Anyaji. But... I wanted to rise higher too. Actually, I was planning to just extract the secret techniques and escape, but it didn't work out, you know."</p>
-<p>I had known for a long time that Genba Kiyohira harbored a desire for power. While it's true I didn't pay enough attention, I didn't expect him to impulsively join Anyaji.</p>
-<p>"Honestly, if you hadn't come to your senses, I was thinking of breaking your limbs. But after this is over, I'll let it slide with just one sparring match."</p>
-<p>"A sparring match sounds good to me."</p>
-<p>Genba Kiyohira, not realizing I meant sparring to beat him to a pulp, happily agreed. I looked at Genba Kiyohira with a momentarily pathetic gaze, then approached Athena.</p>
-<p>"Things went well on this side, according to plan."</p>
-<p>If, unlike now, things hadn't gone well with Musashi Takuro and Genba Kiyohira, I had planned to extract Athena Mannerheim no matter what.</p>
-<p>If Anyaji's cleanup failed today, and Anyaji reviewed the battle, they would realize there was an internal spy. That's why Athena Mannerheim would likely be in danger.</p>
-<p>"Yes, I can get my revenge today, right?"</p>
-<p>"Probably."</p>
-<p>Athena Mannerheim was smiling, but the flames of revenge burning in her Eyes still hadn't extinguished. She had volunteered for spy work that would cost her life if caught, all for that revenge, so I could vividly feel her desire for revenge.</p>
-<p>Suddenly, I looked at the cyber Suit Athena Mannerheim was wearing. It was a flagship model made by Taira Cybernetics, a top-quality commodity. It was obvious, but the price increased exponentially for top-quality goods with just a 1-2 percent difference. Did Anyaji have the financial power to purchase a cyber Suit of this caliber?</p>
-<p>"Did you buy that cyber Suit yourself?"</p>
-<p>"Pardon?"</p>
-<p>When I suddenly brought up the unexpected topic of the cyber Suit, Athena Mannerheim tilted her Head, but soon gave me the information I wanted.</p>
-<p>"I didn't buy it. I understand it was received from somewhere."</p>
-<p>I was curious where it came from, but I couldn't delve deeper here. I thought I could ask later, after everything was over.</p>
-<p>"Good. We'll work together until Takakusaki Gengo is dealt with. But I haven't acknowledged you yet. Once everything is over, we'll have a proper match."</p>
-<p>Musashi Takuro, seemingly having finished his thoughts, approached me and opened his mouth. A condition to fight again was attached, but I nodded my Head. Earlier, I had only displayed the skill level I had during the battle with Kaishu Kakan, but now I was even stronger. My level hadn't risen, but my combat proficiency and various other Abilities had increased. I didn't think I would lose even if I fought Musashi Takuro.</p>
-<p>-♪ ♬♪~!</p>
-<p>As soon as all the discussions were over, my phone rang as if it had been waiting. I took it out of my pocket and checked. It was a Contact from Asada Ei, who was coordinating and synthesizing all the day's situations.</p>
-<p>"Yes, Ei-ssi. This side has been resolved well, according to Plan A."</p>
-<p>As soon as I answered the phone, I told Asada Ei the current Situation. Plan A was to draw Musashi Takuro and Genba Kiyohira to our side. The other plans assumed a Situation where Musashi Takuro wouldn't come to our side. I was telling her that it had fortunately been resolved well, but Asada Ei's Voice in return was strange. It felt like she was incredibly urgent.</p>
-<p>-I see. More importantly...!</p>
-<p>Before Asada Ei could finish her Words, the Atmosphere around the pension changed. Suddenly, the Wind stopped, and it felt as if the sounds of nature from the surroundings had vanished.</p>
-<p>Kuuung!</p>
-<p>Suddenly, a burly man in a black karate Martial Arts Uniform dropped from the pension roof. The place where the man in the black karate Martial Arts Uniform landed was behind Genba Kiyohira. When on earth had he been on the pension roof?</p>
-<p>The man in the black karate Martial Arts Uniform grabbed Genba Kiyohira's Forearm with one hand, and with the other hand, he grabbed the Shoulder of the seized Forearm. Genba Kiyohira, a martial artist who had trained for several years and had been Musashi Takuro's disciple for quite some time, couldn't even offer defiance to the movements of this man in the black karate Martial Arts Uniform.</p>
-<p>"Gen-go!"</p>
-<p>Musashi Takuro shouted. The man in the black karate Martial Arts Uniform was Takakusaki Gengo. And then, belatedly, Asada Ei's Words came through the phone: 'Takakusaki Gengo is heading your way!'</p>
-<p>"I kept having a strange Feeling, you see."</p>
-<p>Takakusaki Gengo spoke in an indifferent Way of Speaking, as if he hadn't heard Musashi Takuro's shout.</p>
-<p>"I kept having that Feeling that things were going wrong."</p>
-<p>Could it be that he sensed information was leaking just by Feeling?</p>
-<p>"Knowing that things had failed on Fujigasaki Rinka's side, I followed my Intuition and came this way. As expected, my uneasy Feeling was not wrong."</p>
-<p>Takakusaki Gengo still held Genba Kiyohira's Arm and continued to speak. Then he turned his Head and looked at Athena Mannerheim.</p>
-<p>"Did you betray me, my Daughter?"</p>
-<p>"Betrayal?! You're the one who betrayed me! You killed my Parents!!"</p>
-<p>At Takakusaki Gengo's Words, Athena Mannerheim spoke as if dumbfounded. What Athena Mannerheim was doing was not betrayal, but revenge. But Takakusaki Gengo, as if not hearing her Words, now looked at Musashi Takuro.</p>
-<p>"Did you betray me, Musashi Guardian?"</p>
-<p>"You, you...! Crazy Bastard!!"</p>
-<p>As expected, Musashi Takuro erupted in anger at Takakusaki Gengo's Words. He probably wanted to rush out immediately, but it felt like he was suppressing his anger as much as possible because his disciple was captured. As expected, Takakusaki Gengo ignored Musashi Takuro's Answer and now looked at me.</p>
-<p>"Fujigasaki Rinka's disciple, excellent. You could have a good match with my disciple."</p>
-<p>"Disciple? Are you talking about the Four Heavenly Kings?"</p>
-<p>As expected, Takakusaki Gengo didn't Answer my Question. From what I had just observed, it felt less like communication between people. Instead, an instinctive Fear and Aversion, like one might feel towards an insect, emanated from Takakusaki Gengo.</p>
-<p>Takakusaki Gengo looked at Genba Kiyohira one last time.</p>
-<p>"I told you there would be a Price if you betrayed Anyaji, didn't I?"</p>
-<p>Genba Kiyohira, terrified like a mouse before a Cat, couldn't even Answer Takakusaki Gengo's Question.</p>
-<p>Kwaddeuk. Kkwaddeuk.</p>
-<p>"Kuaaaak!"</p>
-<p>A strange sound, accompanied by a Scream, began to emanate from Genba Kiyohira's Arm. Clearly, Takakusaki Gengo must have been inflicting pain, yet he wore a serene Expression as if nothing was happening.</p>
-<p>Kwaddeuk, Kwadeuk.... Pwahaak!</p>
-<p>"!"</p>
-<p>"...!"</p>
-<p>"Ki, Kiyohiraa!!!"</p>
-<p>Takakusaki Gengo tore off Genba Kiyohira's Arm. He didn't just dislocate the joint; he separated Genba Kiyohira's Arm from his Torso, as if children were disassembling a doll as a prank.</p>
+<p>The Anyaji attack ended, and by the time all the work was roughly sorted out, it was already past Evening Mealtime. So, first, everyone decided to rest until tomorrow Morning and return Home.</p>
+<p>Waking up early in the Morning, taking the PMC license Test, and even the battle with Anyaji and its aftermath.... I was quite tired, Mentally as well as Physically.</p>
+<p>Woong.</p>
+<p>Inside the Hospital elevator, my phone vibrated, so when I checked, it was Contact from Taira Kanna.</p>
+<p>-Kanna♥: Orabeoni, you said Work is over now? You've worked hard! Then I guess I'll see you at the next competition. What should I do if I miss Orabeoni until then?</p>
+<p>Oh, right! Now that you're no longer Yamashiro Ryuta, it's natural for an Aunt and Nephew/Niece to meet, isn't it?</p>
+<p>Then, Orabeoni, please Contact me after you return! Otherwise, I might not be able to hold back...!</p>
+<p>For a Text Message, she sent quite a long one. That's right. I was no longer Yamashiro Ryuta. Of course, on Monday, as Yamashiro Ryuta, there was the last Work at St. Francis Girls' Academy, but that was no longer important.... By the way, when did she change my name to Kanna♥?!</p>
+<p>I sent Taira Kanna a reply saying 'Let's meet when I get back' and put my phone in my pocket. Otagi Yuka, who was standing next to me, glanced at my phone and asked, 「Is that Taira Kanna?」 so I nodded my Head.</p>
+<p>「It seems she also completed her Work well.」</p>
+<p>In fact, it was Contact to meet, but I just said it was a Work-related Text Message. Inside the elevator, there was also an agent from the Jooseodang and a nurse who got on midway, so I couldn't tell the truth.</p>
+<p>Dding!</p>
+<p>The elevator that went down to the Underground Parking Lot opened its door, and we got off the elevator.</p>
+<p>「Sensei-ssi.... No, now that you've Graduated, I'll call you Ryuta-ssi, like I used to.」</p>
+<p>After calling me Sensei-ssi, and now that I wasn't a teacher anymore, Otagi Yuka seemed to be changing her Address to Ryuta-ssi, which she used in New York. Right, she used to call me Ryuta-ssi. That time feels like ages ago.</p>
+<p>「Ryuta-ssi, I've decided to drive you Home. Since you're tired, Ryuta-ssi, it's more comfortable to go by car than to drive the electric bike you came on yourself.」</p>
+<p>「If you're giving me a ride, I'd be happy to.」</p>
+<p>Anyway, it was a bit bothersome to ride the electric bike back, so I'd be grateful for a ride. At my Answer, Otagi Yuka, who smiled sweetly, pressed the car key. Bbeep, and the lights of the parked off-road SUV came on.</p>
+<p>As Otagi Yuka got into the Driver's Seat and I got into the passenger seat, as if they had made an appointment, Saionji Diana and Sakagami Rena got into the back seat. Once the two got into the car, Otagi Yuka immediately departed, checking if anyone else was getting in.</p>
+<p>「Diana, is your Arm okay?」</p>
+<p>During the battle, I had heard that one of her Arms was damaged, so I turned around and asked. Although it was a cyber implant, if her Arm had been torn off, not only her Arm but also her Shoulder or Upper Body would have been damaged, so I asked.</p>
+<p>「The combat cyber implant is being repaired. Eve rather liked it. She said combat Data had accumulated. I'm currently using an everyday cyber implant.」</p>
+<p>Saionji Diana answered, raising her Arm, which was no different from a normal Arm. She seemed to have understood my Question not as asking about herself, but literally as asking what happened to the broken cyber implant.</p>
+<p>「No, not the cyber implant, I'm asking if you're okay. When an Arm is torn off, not only the Arm but also the Shoulder or other parts could have been injured, couldn't they?」</p>
+<p>At my Words, Saionji Diana wore quite an impressed Expression. It was natural to worry, but I wondered if it was something to be so impressed by, but I waited for Saionji Diana's Answer.</p>
+<p>「That's okay. I deliberately made the cyber implant on my Shoulder stronger than my Arm. It was also designed to reduce the shock to my Shoulder when it broke. Of course, it wasn't completely fine, but I also received Treatment at the Hospital. I'm fine now.」</p>
+<p>If she says she's okay, that's Fortunate. This time, I looked at Sakagami Rena.</p>
+<p>「Rena, you're not hurt, are you?」</p>
+<p>「No. Fortunate.」</p>
+<p>I heard that Sakagami Rena also fought against a formidable opponent, and her opponent used Outer God-like power, making it quite a struggle. Although she overcame it with Urabe Konoka's Help, she didn't seem to be injured. Or perhaps her Injury wasn't severe, so like Saionji Diana, she received Treatment at the Hospital.</p>
+<p>As we talked, we arrived at my Home before I knew it, and Otagi Yuka parked in my Home's Parking Lot and got out.</p>
+<p>I was tired, so I thought they would just leave today, but everyone got out together. Although I was a little tired, they were Kids who had worked incredibly hard today, so I couldn't tell them to leave, so for now, we all came into the Home together.</p>
+<p>「Ryuta-ssi, I'm busy, so hurry and take it off.」</p>
+<p>As soon as we entered the front door, Otagi Yuka said, taking off her top. Although it was a bit late, it was already past Evening Mealtime, so I wondered why she was in such a hurry. Saionji Diana and Sakagami Rena also must have come to my Home for such (?) purposes, but they seemed curious about Otagi Yuka's hasty Attitude.</p>
+<p>「Yuka, what's wrong? Why are you in such a hurry?」</p>
+<p>As I asked with a puzzled Expression, Otagi Yuka, already In Underwear, knelt before me and unzipped my Pants with a Jii-iik and opened her mouth.</p>
+<p>「There are three Reasons.」</p>
+<p>There are three Reasons for such a hurry?</p>
+<p>「Three?」</p>
+<p>「Yes, first, in today's battle, I almost completely used up my Hyeol-Gi. If I don't replenish my Hyeol-Gi quickly, I'll lose my Fading Reason and attack everyone I see indiscriminately.」</p>
+<p>Otagi Yuka pulled down my Pants as she gave the first Reason. But if she's losing her Fading Reason due to lack of Hyeol-Gi, wasn't her driving just now incredibly dangerous? If she had lost her Fading Reason while driving, an accident would have been 100% certain.</p>
+<p>「The second is, perhaps because of the battle.... Now that you, Ryuta-ssi, are close, I'm incredibly Aroused....」</p>
+<p>Making me lift my Legs, and completely stripping off my Pants, Otagi Yuka stated the second Reason. Well, Arousal couldn't be helped. When engaging in such life-or-death battles, is it a Reproductive instinct? The rise of lust was, in a way, a natural thing.</p>
+<p>「The third Reason is that there's someone waiting at Home. So I have to finish quickly and go back Home.」</p>
+<p>I thought I had seen that hurried Appearance somewhere, but Otagi Yuka was hurrying like a mom with a Child waiting at Home.</p>
+<p>「Wait, wait.」</p>
+<p>Otagi Yuka was stating the third Reason and trying to pull off my panties, so I stopped Otagi Yuka first. Because I was curious who on earth was waiting at Home. Even if we were going to have Sex, I wanted to satisfy my curiosity first.</p>
+<p>「Today I made a vassal. I told them to wait patiently at Home, but I'm worried they might suddenly go somewhere.」</p>
+<p>Ah, that was the content I saw when I turned on my phone after the Test. A Report had come in that Otagi Yuka had made a vassal, so I had been worried that her Combat power might have decreased.</p>
+<p>「But who is this vassal you've taken in this time?」</p>
+<p>「The Story gets a bit long....」</p>
+<p>At my Question, Otagi Yuka frowned slightly. Still, I was curious, so I had to hear the Story.</p>
+<p>「Still, tell me. Telling that Story won't take thirty minutes or an hour. I don't want to keep wondering during Sex.」</p>
+<p>Otagi Yuka sighed at my Words, then lowered the Hand that was holding my panties and Answered, 「Alright.」</p>
+<p>「So, the Work started today when I was preparing for combat, and Shido Tsubaki suddenly called.」</p>
+<p>Shido Tsubaki? Why is her name suddenly coming up?</p>
+<p>「You made Shido a vassal?」</p>
+<p>Sakagami Rena, who was listening nearby, with a surprised Expression, asked Otagi Yuka.</p>
+<p>「Nooo~! Can you please listen to the whole Story first?」</p>
+<p>「Sorry....」</p>
+<p>Perhaps due to the lack of Hyeol-Gi, Otagi Yuka's Attitude became a little sharp. In fact, I also thought to myself, 'Did she make Shido Tsubaki a vassal?' but it was a good thing I didn't say anything.</p>
+<p>「Tsubaki called, and then what?」</p>
+<p>Saionji Diana, as if curious, urged her to continue the Story.</p>
+<p>「Suddenly, I got Contact asking for Help. As you know well, Sensei-ssi, Shido Tsubaki was a classmate, but we weren't that close. Since she asked for Help, I went to Help her, but the Question of why she called me kept coming to mind.」</p>
+<p>Indeed, Shido Tsubaki and Otagi Yuka didn't quite get along. In fact, Shido Tsubaki herself didn't have many classmates she hung out with often, besides Oofuchi Erika and Sakagami Rena. Compared to Otagi Yuka, Shido Tsubaki could be said to have a narrower circle of friends.</p>
+<p>「So I went to the Address Shido Tsubaki gave me, and inside, there was a Woman who had hanged herself.」</p>
+<p>Otagi Yuka's Story took an Impulsive Action. A Woman who had suddenly hanged herself...? Everyone seemed to be thinking similarly to me, their Eyes wide, and looked at Otagi Yuka.</p>
+<p>「That Woman's name is Seiwa Rieko.」</p>
+<p>Seiwa Rieko? I'm sure I've heard that name somewhere.... Sakagami Rena and Saionji Diana also seemed to know the name, making an 「Ah...!」 Expression. As I made an Expression as if I almost knew, Otagi Yuka gave an additional Explanation.</p>
+<p>「Seiwa Rieko is a Victim of the former Class Teacher.」</p>
+<p>Ah! Right, the biggest Victim of that former Class Teacher was indeed that name. But why was she hanging herself and with Shido Tsubaki?</p>
+<p>「Seiwa held a grudge against Shido Tsubaki.」</p>
+<p>Ah! Shido Tsubaki had written about the former Class Teacher's deeds as a gisa, and had described the content too explicitly, receiving a suspension and coming to our special class. Then....</p>
+<p>「Perhaps....」</p>
+<p>「That's right. Seiwa Rieko intended to take Revenge by dying in front of Shido Tsubaki.」</p>
+<p>To show oneself dying as Revenge.... From the perspective of the one suffering it, it was a terrible thing.</p>
+<p>「Anyway, Shido Tsubaki was holding her, so she didn't die, but she was almost on the verge of Death. That's when I came to Shido Tsubaki's Head. Knowing that the Otagi Family was a Vampire Family, she wondered if this dying Seiwa Rieko could be saved as a Vampire, so she made Contact, and although I didn't know much, a poor Child was dying, so I saved her as a vassal.」</p>
+<p>Ah, so that was the Story.</p>
+<p>「For now, I brought her to my Home, and since she'll be waiting alone, I'm hurriedly stripping off your Clothes, Ryuta-ssi.」</p>
+<p>Simultaneously with the Word 'hurriedly', Otagi Yuka grabbed my panties, then Ssu-uk and pulled them down. And she took my half-Erect cock into her mouth.</p>
+<p>「You don't have any more Questions, do you?」</p>
+<p>「You don't have any more Questions, do you?」 said Otagi Yuka, with my thick banana in her mouth. She asked if I had any more Questions, but if I asked another Question, she seemed poised to bite off my precious banana.</p>
+<p>Otagi Yuka B-cut!</p>

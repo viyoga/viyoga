@@ -5,78 +5,98 @@ weight = 225
 chapter = 225
 +++
 
-<p>After I gave Yukiko the ring, she completely turned into a dere-dere character and stuck to me like glue. Smiling brightly while sitting on my lap was the default.</p>
-<p>"Hehe...!"</p>
-<p>Tch!</p>
-<p>She looked at the ring with an inscrutable smile, then hugged me and kissed me on the cheek.</p>
-<p>"I smell like meat, so I'm going to wash up."</p>
-<p>"Then let's wash together. I'll scrub you♥"</p>
-<p>I couldn't keep holding Yukiko outside, so I got up to wash and said we should wash together even when washing. We went into the bathroom together, and she kept hugging me in the tub, not wanting to let go.</p>
-<p>And while scrubbing her, she grabbed my dick from behind with her soapy hands and gave me a handjob. The soft feeling of Yukiko's big breasts pressing against my back, combined with her slippery, foamy hands stroking my dick up and down, was truly paradise.</p>
-<p>Because the situation was so pleasant, I couldn't resist and soon shot my semen forward like a water gun. Seeing me shoot, Yukiko gave me a motherly smile and said, "You feel refreshed, don't you? Good job. Good job," while patting my head (nadenade: stroking).</p>
-<p>"Now that I'm all clean, hug me in bed♥"</p>
-<p>Of course, after washing up, we went to the bedroom and had sex led by Yukiko. Yukiko, having received the ring and awakened(?), craved me with tremendous passion and love. I poured my semen into Yukiko's vagina and uterus until it overflowed, and even though I marked her face and body with my semen to show that she was mine, she still wanted my dick.</p>
-<p>"Haaah! No more...!"</p>
-<p>"I'm gonna cum, Yukiko-ssi!"</p>
-<p>"Hyaaah! Haaang!"</p>
-<p>But no matter how much we tried to continue, stamina is finite. Yukiko eventually fainted from the continuous orgasms. I checked on Yukiko, worried that something might be wrong, but she was breathing evenly and sound asleep.</p>
-<p>I straightened Yukiko's position, covered her with a blanket, and quietly got out of bed to wash myself. My whole body was covered in vaginal fluids and semen, so I took a shower, got dressed, packed the necessary items, and went outside. I started having sex at 9 PM, and it was already 2 AM. The moon was in the night sky, and only the sound of waves crashing on the quiet sandy beach could be heard.</p>
-<p>I walked towards my destination, feeling the lukewarm breeze of the summer dawn sea. My destination was the seemingly very solid concrete building at the end of the beach that I had seen during a walk with Yukiko before lunch. I slowly walked and stood at the entrance of the concrete building.</p>
-<p>"Let's see...."</p>
-<p>The door opened with a password. As the coast was owned by the Taira family, this place was also owned by the Taira family. It was a building created for doing various secret things while on vacation, and the inside was structured similarly to a prison.</p>
-<p>Mimata Chieri told me about this place and lent it to me to use during this trip with Yukiko.</p>
-<p>BEEP BEEP BEEP!</p>
-<p>I entered the password, opened the unlocked steel door, and entered the building. The inside of the building was dark. I pressed the button next to the door to turn on the lights and went down the stairs.</p>
-<p>Going down, there was a room for interrogation, and leaving the interrogation room, there were four rooms made of iron bars. Dang Sohwa and Yang Seol-hui were in two of those rooms, respectively. What I had ordered Ryuta to do was to bring Dang Sohwa and Yang Seol-hui to this building. He did a great job. It seemed that the steel box that contained Dang Sohwa had been recovered. Mimata Chieri probably asked for it back.</p>
-<p>Perhaps because the lights were on, the two of them were looking at me. Yang Seol-hui was looking at me with a blank expression, not knowing what she was thinking, and Dang Sohwa was glaring at me with an expression that showed she wasn't intimidated at all.</p>
-<p>"You! You're the guy who defeated me!"</p>
-<p>"Yeah."</p>
-<p>"If you won, why are you imprisoning me instead of killing me? I won't be swayed by persuasion, so just kill me!"</p>
-<p>Is she some kind of knight captured by orcs? 'Kuh, kill me!' and all that. I ignored Dang Sohwa's words and put a loaf of bread in each of Yang Seol-hui and Dang Sohwa's cells. I hadn't been providing them with much food, so I brought bread in case they starved to death. There was a sink with a faucet on the wall, so they could drink enough water, so bread should be enough.</p>
-<p>"Let's talk after you eat first. You're both hungry, right?"</p>
-<p>Dang Sohwa held the bread and glared at me, but when she noticed Yang Seol-hui looking at her before eating the bread, she said, "Tch!" and tore open the bread bag and put it in her mouth.</p>
-<p>"Since we're going to die anyway, it's better to eat before we die. Seol-hui, you eat too!"</p>
-<p>"Yes, Captain...."</p>
-<p>At Dang Sohwa's words, Yang Seol-hui kept tearing small pieces of bread and eating them with a vacant expression. It was a somewhat contrasting scene compared to Dang Sohwa, who was eating large chunks at a time. I waited for both of them to finish eating before speaking.</p>
-<p>"You don't need to be loyal to Kurotsuki, do you? Why don't you just come under me instead of throwing your lives away in vain?"</p>
-<p>I don't know how loyal Dang Sohwa is to the Black Moon Society, but that loyalty probably isn't high enough to risk her life.</p>
-<p>"I have no loyalty to the Black Moon Society (黑月堂). I just wanted to take the Black Moon Society into my own hands.... Now that I've been defeated by you like this, my dream is over. So kill me."</p>
-<p>Ah, it seemed that Dang Sohwa wanted to overthrow the Black Moon Society, which was ruled by the Ha and Yang families, and become the new boss. Even if I let her go, Dang Sohwa, who doesn't have the backing of the Ha and Yang families, would never be able to become the head of the Black Moon Society with such a big label of defeat.</p>
-<p>Thinking about it, even in the game, Dang Sohwa would disappear from the Black Moon Society after a certain point, or she would become the head of the Black Moon Society with a very slim chance. So that's what it was. If Dang Sohwa's coup failed, Dang Sohwa would die and disappear, and if it succeeded, she would become the boss of the Black Moon Society.</p>
-<p>Dang Sohwa's success in the coup is only about once in 100 times, but it was quite impressive that she succeeded even with such a low probability without any foundation.</p>
-<p>"So you're saying kill you?"</p>
-<p>"Yeah."</p>
-<p>"I don't want to."</p>
-<p>"Even if you forcibly make me your subordinate, I will poison and kill everyone around you! Can you still just let me go without killing me?"</p>
-<p>Dang Sohwa frowned like a demon and shouted at my refusal. It's quite a scary threat....</p>
-<p>I guess I have to make her completely obey me. I silently approached Dang Sohwa and opened the iron bars.</p>
-<p>As expected, a kick flew at me immediately. Dang Sohwa's kick was weak because I had barely fed her for a few days to weaken her. There was an aura of poison energy at the tip of her foot, but poison was meaningless to me, and the kick was so weak that I just had to dodge it.</p>
-<p>I ducked my head and dug deeper inside to avoid Dang Sohwa's kick, and Dang Sohwa, as if she had been waiting for it, gathered green energy on her index finger and stabbed towards my face. As expected of Dang Sohwa, who took the position of head of the Northeast Asia branch of the Black Moon Society by force, she seemed to have anticipated that I would dodge and used this combination technique.</p>
-<p>Dang Sohwa's finger technique was aimed at the most vulnerable part, the eyes, but I had already closed my eyes at that moment, filling my eyelids with the abyss, so I was able to deflect Dang Sohwa's finger.</p>
-<p>"As expected of the man who beat me! You're pretty good!"</p>
-<p>Dang Sohwa hadn't healed her internal injuries well and hadn't eaten much, so she was weak, but she was very excited that I had blocked her trick well. It was a reaction worthy of a battle maniac.</p>
-<p>I had no intention of assaulting Dang Sohwa. I just wanted to make her my loyal subordinate. I reached out and tore off Dang Sohwa's clothes, which were almost like a bikini.</p>
-<p>"Y-you! What are you doing?"</p>
-<p>"I'm going to make you listen to me."</p>
-<p>"What kind of woman listens just because you take off her clothes!!"</p>
-<p>That's true. But water (vaginal fluids) always knows the answer. I approached Dang Sohwa, pinned her down by force, and started fondling her breasts. Dang Sohwa screamed loudly, probably feeling quite humiliated by being subdued and having her breasts fondled.</p>
-<p>"Kuh! Just kill me!"</p>
-<p>"Kill you? I'll make you feel good."</p>
-<p>I replied like a villain to Dang Sohwa, who was saying the same thing as a captured knight again, and this time I grabbed Dang Sohwa's protruding nipples.</p>
-<p>"Stop it! Don't touch the Captain!"</p>
-<p>Yang Seol-hui, who was diagonally across to the right, shouted at me for harassing Dang Sohwa, but I wasn't going to stop just because I heard that.</p>
-<p>Rather, I grabbed Dang Sohwa's jaw and pulled it, as if to show Yang Seol-hui, and kissed Dang Sohwa. Dang Sohwa struggled and tried to bite my tongue, but she couldn't achieve her goal because I was holding her jaw tightly, and her mouth was violated by my tongue.</p>
-<p>"Is this your first kiss? Your reaction is a bit stiff?"</p>
-<p>"Kuh! You were holding my jaw! I was going to show you my skills if you weren't holding it."</p>
-<p>She was going to cut off my tongue if I wasn't holding her jaw, but she's good at talking. I continued to fondle Dang Sohwa's breasts, and this time I sucked on them, ttsup ttsup.</p>
-<p>Perhaps because she had mastered poison techniques, Dang Sohwa's sweat tasted slightly different. A faint herbal smell? Or maybe she's deliberately using poison techniques to kill me and is giving off poisonous sweat.</p>
-<p>"Your sweat tastes different? Are you using poison?"</p>
-<p>"Yeah, if you keep sucking on my body, your stomach will melt! You better stop?"</p>
-<p>Nope, no way. It's just sweat with a unique taste to me. Since it tastes like herbal medicine, maybe it's good for my body because of the placebo effect?</p>
-<p>"Then let's see if I die first or if you feel pleasure first."</p>
-<p>I continued to lick and suck on sensitive parts such as her breasts, nipples, earlobes, and neck to stimulate Dang Sohwa, and Dang Sohwa concentrated and used poison techniques to produce poisonous sweat. But as her body gradually warmed up and it became difficult to concentrate, her sweat gradually began to taste normal.</p>
-<p>"Heuht...!"</p>
-<p>I gave a bitter smile as I saw Dang Sohwa widening her eyes and biting her lip, surprised by her own moan.</p>
-<p>"It seems like I won?"</p>
-<p>"Kuh! I didn't bet anything anyway, so I have nothing to give you!"</p>
-<p>Dang Sohwa shouted with a flushed face at my words. Well, it doesn't matter if she doesn't bet anything. She will dedicate everything to me during this trip.</p>
+<p>"Ugh...! My head is killing me, what the hell was in that booze?"</p>
+<p>Mimata Chieri-sunbae, who was sleeping next to me, woke up, rubbing her temples, and asked me. It seemed like she was surprised that just one small bottle could do this to her...!</p>
+<p>"An elixir."</p>
+<p>I answered, putting on the glasses from the ruins. Yesterday, Mimata Chieri's strength stat was 5(+5), but now it's 7(+5). Oh...! She still got the maximum elixir effect. Good thing.</p>
+<p>"Huh? An elixir?"</p>
+<p>"Your strength probably increased. Check it out once your hangover wears off."</p>
+<p>Since Mimata Chieri knew about the existence of elixirs, she seemed surprised when I said the alcohol she drank yesterday was an elixir. The value of an elixir isn't small by any means, so she seemed surprised and touched that I gave it to her so casually.</p>
+<p>"Why did you give it to me instead of drinking it yourself, Ryuta-kun?"</p>
+<p>"It's just a souvenir from this trip. Like I said yesterday, it's good alcohol for women."</p>
+<p>Well, to be exact, it's not just good for women, but for anyone with strength below a certain level, but I didn't want to bother explaining that it has no effect if your strength is above a certain number, so I just said it was good alcohol for women.</p>
+<p>"Ah, I see.... Thank you, Ryuta-kun!"</p>
+<p>"I already showered, so Sunbae-nim should go back to your room, shower, and come to the dining hall."</p>
+<p>The butler of the mansion had announced yesterday that breakfast was at 7:30, so all I had to do was go out on time.</p>
+<p>It was still before 7 AM, so if Mimata Chieri went back to her room and showered, she would probably make it to breakfast just in time. I woke up much earlier, showered, and was looking at the news online.</p>
+<p>I only did it twice yesterday (?), so I was full of energy. That's why I woke up with a start at the crack of dawn.</p>
+<p>There wasn't anything special in the Japanese news, but in the Korean news, an article about the culprit of the BS Group building terror incident being caught caught my eye.</p>
+<p>The BS Group heirs were fighting and bickering, and it turned into an accident, but they're calling it a terror incident? They're definitely cutting off the tail.</p>
+<p>If they really wanted to find the culprit, the eldest or second son of the BS Group Chairman would have to be arrested, so they probably just blamed it on a terrorist group or paid someone desperate for money to be the culprit.</p>
+<p>Still, nominally, the culprit of the BS Group building terror incident has been caught, so Han Yu-gyeong-ssi can go back to her university dorm. She's been so frustrated being at the main house except when she has to go out for work, I can practically see her being super excited right now.</p>
+<p>I'm also working with Amsang, so should I send her a KakaoTalk message?</p>
+<p>Jin Yong-tae: I saw in the news that the culprit of the BS Group building terror incident was caught, are you going back to your university dorm now?</p>
+<p>Han Yu-gyeong: Yeah! I was so annoyed by the excessive interference, so it's a good thing. The article came out yesterday, so I'm going home now haha</p>
+<p>Jin Yong-tae: That's good. There's that business we agreed to do together. Amsang wants to participate, what do you want to do?</p>
+<p>Han Yu-gyeong: You got all the data and stuff, Ryuta-gun. All I can do is give you money, but if we only need to give up 50 percent of the shares between the two of us.... Do whatever you want, Ryuta-gun.</p>
+<p>I was planning to use the various data I stole from the BS Group Pyongyang Research Lab and the technology I obtained from Energy-Link Industrial Company as business items, so most of the data I obtained was correct.</p>
+<p>However, Han Yu-gyeong also had Park Mun-seok, the president of Base Technology, BS Group's secret research lab, under her control this time, so she could use the technology coming from that side.</p>
+<p>Moreover, there will be several events where Han Yu-gyeong can obtain technology in the future, so collaborating with Han Yu-gyeong was by no means a loss for me.</p>
+<p>Han Yu-gyeong could also receive massive funding from me, so it wasn't a loss for her either, and it was a good win-win relationship for each other.</p>
+<p>Jin Yong-tae: I ended up acquiring a company called Energy-Link Industrial Company this time. Our company has to acquire it, so please hurry up with the preparations.</p>
+<p>Han Yu-gyeong: Okay, I understand! But I feel good when I hear the words 'our' company 😍</p>
+<p>Jin Yong-tae: Hehe, you like the word 'our' that much, our Yu-gyeong-ah?</p>
+<p>Han Yu-gyeong: Yeah! I like it so much ❤️</p>
+<p>After finishing the business talk, I spent some time being lovey-dovey with Han Yu-gyeong, and then it was time for breakfast, so I went down to the dining hall.</p>
+<p>Mimata Chieri-sunbae, who had finished showering and getting ready, was already sitting there, and when I sat across from Mimata Chieri, Arisu, wearing a light green pajama, came down with half-open eyes, yawning, and sat next to me with her hair disheveled.</p>
+<p>She was holding a small teddy bear in her hand for some reason, and her indoor slippers were cute bunny slippers. Arisu is super cute for the first time in a while. She usually has a sophisticated and chic feel because she's a model.</p>
+<p>"Did you sleep well, Ryuta?"</p>
+<p>"Yeah, what about you, Arisu?"</p>
+<p>"I came home late yesterday.... I'm going to eat breakfast and sleep a little more."</p>
+<p>Ah, she came home really late yesterday. That's why I only felt Nae Fitzgerald's presence.</p>
+<p>"Nae-ssi, aren't you having breakfast?"</p>
+<p>"She said she skips breakfast."</p>
+<p>The butler answered my question. Nae Fitzgerald, she must be too embarrassed to face me because of what happened last night, so she's not eating breakfast at all.</p>
+<p>Breakfast was simple pancakes, crispy fried bacon, and salad. Since I said I was a big eater yesterday, my plate had more pancakes and bacon than others.</p>
+<p>I cut the pancake and put it in my mouth, and it was quite delicious. I think it was the most delicious pancake I've ever eaten? As expected, it's different because it's not made with commercially available pancake mix from the supermarket, but with a recipe from a historic noble family.</p>
+<p>The bacon was just bacon. It's crispy and delicious.</p>
+<p>When I finished eating and got up, Arisu hugged me tightly with an apologetic expression and kissed me on the cheek.</p>
+<p>"I'm sorry, Ryuta. I'm too tired.... Let's hang out together in the afternoon."</p>
+<p>"No, you seemed busy yesterday, so you should rest if you're tired."</p>
+<p>Arisu kept apologizing to me and went back to her room upstairs, and Mimata Chieri was still suffering from a hangover, frowning and rubbing her temples.</p>
+<p>"Sunbae-nim, are you okay?"</p>
+<p>"Ugh.... I have a bad hangover. My head hurts a lot."</p>
+<p>I can't take Mimata Chieri-sunbae with me like this? Her condition looked too bad because of the hangover.</p>
+<p>"Sunbae-nim, please rest in the morning too."</p>
+<p>"I can't, I have a lot to do for Ryuta-kun, who can't speak English...."</p>
+<p>Even though she said she couldn't, she was saying, "Keueut!" while enduring the headache, so I don't know if she'll be able to recover in the afternoon. It seems like the side effects are also very strong because it's an elixir.</p>
+<p>"I'm going to visit Amsang like yesterday, so I don't need an interpreter, so please rest now."</p>
+<p>"Ugh.... Okay."</p>
+<p>After sending Mimata Chieri back to her room and getting ready to go out, the butler approached me.</p>
+<p>"As I said yesterday, I will prepare the best steak for lunch, so please return by lunchtime."</p>
+<p>"Of course. I want to eat the best steak too."</p>
+<p>After finishing the conversation with the butler, I rode my motorcycle and headed to Amsang. The best steak, I'm quite looking forward to it?</p>
+<p>###</p>
+<p>"Ryuta-nim! You're here?"</p>
+<p>Eve greeted me with her usual bright smile. I said hello and went into the Amsang New York branch and sat in the seat Eve guided me to. As soon as I sat down, I got straight to the point.</p>
+<p>"Did you contact Energy-Link Industrial Company about buying the company?"</p>
+<p>"Yes, they said they understand for now, but they want to have an interview with you to talk about what purpose you're buying the company for."</p>
+<p>Do they have a deep affection for the company? It's too inactive to be that.... I wonder why they're doing this kind of interview. Usually, people would be more interested in how much money they're going to get.</p>
+<p>"Then we have to go find them?"</p>
+<p>"They said they would come to us. They said they can't give us the address."</p>
+<p>Hmm, even stranger. Of course, it's not the person who made the Iron Wolf, but it was quite eerie to hear that the president of the company that made the Iron Wolf that killed people is coming.</p>
+<p>"So we decided to meet in Tokyo in two weeks!"</p>
+<p>I can't stay in the US forever, so if it doesn't fit my travel schedule, I'll have to meet them in Tokyo.</p>
+<p>"We have no choice but to talk it out there."</p>
+<p>"I'll help you too!"</p>
+<p>If Eve is going to help me, do I have to meet her inside the Amsang Tokyo branch? Eve is a hologram, so I can't see her outside.</p>
+<p>"And what are you going to do with the shares of the company we agreed to co-own?"</p>
+<p>"I'm actually just interested in the AI of the Iron Puppy I brought yesterday, so you don't have to give me a lot of shares. I'll just take about.... 10 percent."</p>
+<p>I was thinking about 30 percent, but 10 percent was less than I thought. Well, if Amsang has a lot of shares, I can get more investment, but I have enough money, so it's better for Amsang to have fewer shares. If I want to run the company freely.</p>
+<p>"Then the story is over.... Ah, I want to buy one piece of information."</p>
+<p>"Yes, if I can give it to you, I'll give it to you for free. As a celebration of becoming business partners ♥"</p>
+<p>"Did Kurotsukido's combat unit that came to catch Otagi-ssi come in? And what unit is it?"</p>
+<p>Eve was silent for a moment at my question.</p>
+<p>"It's not accurate, but I know that Kurotsukido's execution unit, the Muyeongdae, came."</p>
+<p>They were quite formidable. Can Otagi Yuka really beat the Muyeongdae? If she uses all of her vampire abilities, she might be able to put up a fight, but the Muyeongdae probably has a manual for dealing with vampires too.</p>
+<p>It's not a bad thing for me. It means that Dang So-hwa and Yang Seol-hui are that much safer.</p>
+<p>"Okay. I'll be going now."</p>
+<p>"Yes, please stop by the city branch on your next schedule~!"</p>
+<p>Eve smiled and waved her hand as if she knew I was going to LA. I went through the secret passage and left the Amsang building. Not much time has passed yet.</p>
+<p>Then.... I should go back to the Brooklyn Navy Yard to get items.</p>
+<p>----</p>
+<p>Unused pajamas</p>
+<p>Barefoot Arisu.</p>
+<p>Pajama Arisu who looks like she's about to go out right now because her eyes are so bright</p>
+<p>Arisu who is starting to get sleepy now</p>
+<p>Arisu who liked it but a fucking kitten ruined everything.</p>

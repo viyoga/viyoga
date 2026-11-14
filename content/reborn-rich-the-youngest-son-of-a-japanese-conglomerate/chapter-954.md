@@ -5,93 +5,87 @@ weight = 954
 chapter = 954
 +++
 
-<p>and breast chapter check contains exposure please surroundings this your</p>
-<p>I, who came out of Genbaki's Hospital Room, looked around at the hospitalized Joseodang agents and encouraged them, and since I had come for a hospital visit, I also stopped by the Hospital Room where the Gwonmaeng people were hospitalized.</p>
-<p>"Yo, Teacher~!"</p>
-<p>As I opened the Hospital Room door where the Gwonmaeng people were hospitalized, Kujo Kina also happened to be visiting, and waved her Hand at me. Kujo Kina was looking around at the Gwonmaeng people with the Yoda old man.</p>
-<p>"Did you come for a hospital visit?"</p>
-<p>"Of course~! They are all Sabu's friends. They are all comrades who fought with Anyaji...!"</p>
-<p>Listening to Kujo Kina's Words, I greeted the Gwonmaeng martial artists who were lying down. The place that suffered the most harm in this battle with Takakusaki Gengo was Gwonmaeng. They took on Hojo Otoji, Anyaji's second-in-command, and several people were seriously injured, and although they were a bit of a hindrance, they also stood in the Vanguard in the battle with Takakusaki Gengo, so they had the most injured people.</p>
-<p>Fortunately, perhaps because there were no casualties, the Atmosphere in the Hospital Room wasn't too bad.</p>
-<p>"I don't know if you heard, but those who were stabbed by tentacles...."</p>
-<p>"I heard. They said some unknown Poison was found? The Doctor came and explained it."</p>
-<p>Because they were Gwonmaeng martial artists who fought in the front, there were quite a few people stabbed by Takakusaki Gengo's tentacles, so when I told him what I had heard from Shimokawabe Airen earlier, the Yoda old man said he had already heard it.</p>
-<p>"Don't worry about the Treatment fees."</p>
-<p>Since there's no harm in maintaining a good Relationship with Gwonmaeng, I decided to take Responsibility for the Gwonmaeng martial artists' Treatment fees. Fujigasaski Rinka is also affiliated with Gwonmaeng, so she's not a stranger; I can do at least this much.</p>
-<p>"Ah~! I was going to pay...!"</p>
-<p>Kujo Kina was also a Young Lady from a wealthy Family, so when I said I would pay the Treatment fees, she made a regretful Expression.</p>
-<p>"You can just come often and buy them delicious things."</p>
-<p>"Ah...! There was such a Method. Teacher, are you a Genius?"</p>
-<p>Why call me a Genius for something like this.... I looked at Kujo Kina, who was staring at me as if I were amazing, chuckled, and then opened my mouth.</p>
-<p>"What will you do before the University Entrance Ceremony?"</p>
-<p>Since the University Entrance Ceremony in Japan is in April, I became a little curious and asked Kujo Kina. Because there was still more than a month of leisure time, I thought there would be quite a lot to do during that time.</p>
-<p>"I told you before that I was going to create a national GYM chain, didn't I? Since the USA is an advanced country in that regard, I'm going to the USA to look around. I'm going to see if there's anything I can refer to."</p>
-<p>"Ah, are you going to the USA?"</p>
-<p>Coincidentally, in every Hospital Room I visited today, everyone had decided to go to the USA. That was the case for Sabu Fujigasaski Rinka, and for Genbaki's cyber implant surgery, and now Kujo Kina in front of me also said she was going to the USA, so it could be called a great coincidence.</p>
-<p>"That's amazing."</p>
-<p>"What's amazing?"</p>
-<p>"Sabu also said she was going to the USA."</p>
-<p>I told Kujo Kina about Sabu. In this Hospital Room full of Gwonmaeng, it was a bit awkward to talk about Musashi Takuro, a former Anyaji Guardian, and Genbaki, so I only talked about Fujigasaski Rinka, who is also affiliated with Gwonmaeng.</p>
-<p>"Ri, Ri, Rinka-ssi?!"</p>
-<p>Because Kujo Kina was a huge fan of Fujigasaski Rinka, when I said that Fujigasaski Rinka had the same destination as Kujo Kina, Kujo Kina stammered as if she were broken.</p>
-<p>"Why did Fujigasaski say she was going to the USA?"</p>
-<p>Hearing Fujigasaski Rinka's name, instead of the broken Kujo Kina, the Yoda old man looked at me and asked. The Yoda old man also had a friendship with Fujigasaski Rinka, so he had a quite curious Expression.</p>
-<p>"I heard that traces of Sabu's Sabu were found."</p>
-<p>"You mean Haruto?"</p>
-<p>"Yes."</p>
-<p>The Yoda old man seemed to have a friendship with my Grandmaster, Soda Haruto. The Yoda old man, who had a serious Expression for a moment at my Story, looked at Kujo Kina.</p>
-<p>"Kina, please reserve a Seat for me on the Airplane to the USA."</p>
-<p>"Yes? Yes. I understand, Sabu."</p>
-<p>"Are you going to help her?"</p>
-<p>Seeing that he said he was going to the USA after hearing my Story, it seemed he intended to help Fujigasaski Rinka.</p>
-<p>"Haruto was like a sworn younger sibling to me. We were quite close. After he went missing, I searched for him for a while, and then as time passed, I was giving up.... If traces like this appear, I can't just stand by."</p>
-<p>It's the first Time I'm hearing that the Yoda old man is close to my Grandmaster. Still, it's quite a grateful thing for him to roll up his sleeves and help like this. I was already planning to assign more people to Fujigasaski Rinka, and the Yoda old man would be quite a significant force. It seemed perfect to add someone who could prepare for Sorcery and someone who could help locally in the USA.</p>
-<p>"For now, discuss the details with Sabu."</p>
-<p>"I will."</p>
-<p>After talking with the Yoda old man, I stroked the Head of the still broken Kujo Kina, then greeted the hospitalized Gwonmaeng martial artists and left the Hospital Room.</p>
-<p>"You brought up the USA Story on purpose, didn't you? To assign people to your Sabu."</p>
-<p>As I came Outside, Otagi Yuka, who was Outside the Hospital Room, spoke. It seemed she had heard everything.</p>
-<p>"Yes. I'm worried. Sabu isn't in a normal state yet, you know."</p>
-<p>Although she had no Physical Wounds, Fujigasaski Rinka had not yet recovered the Abyss taken by Takakusaki Gengo, so it was natural for me, as her Disciple, to worry.</p>
-<p>"Then, send me and Seiwa to the USA."</p>
-<p>Otagi Yuka and Seiwa Rieko? Come to think of it, Otagi Yuka was someone who somewhat fit the additional personnel I had in mind. Although limited to New York, she had Intimate Experience fighting gangs while staying in the USA for a year, and she was skilled in Blood Sorcery, so she could somewhat counter Opponent Sorcery.</p>
-<p>"But why Rieko-ssi?"</p>
-<p>"She also needs to grow, doesn't she? She can't always live by drinking the Blood I bring her."</p>
-<p>Aha...! Since there probably won't be any battles here for a while, Otagi Yuka is taking Seiwa Rieko to the USA, where there will be battles. She must be planning to give Seiwa Rieko Vampire Education and combat Education together.</p>
-<p>"I understand. Please take good care of Sabu."</p>
-<p>"Leave it to me."</p>
-<p>At my Request, Otagi Yuka struck a pose showing her Arm muscles, and spoke in a tone that told me not to worry. This level of force was enough not to worry.</p>
-<p>With Fujigasaski Rinka, the Yoda old man, Seizawa Shii, and Otagi Yuka, I thought they could probably crush a small PMC in an hour. Plus, there were Kujo Kina and Seiwa Rieko.... If what I was thinking worked out well, two more Combatants would be added, so I felt I wouldn't have to worry anymore.</p>
-<p>So, I went back to Sabu's Hospital Room, briefly explained the Situation and said my greetings, then headed alone to the Dark Merchant's Hall. Alik and Naruse Shiyo decided to stay with their Sabu, Seizawa Shii, Otagi Yuka, and Seiwa Rieko decided to coordinate their schedule with Fujigasaski Rinka, and Konoe Akina headed to her Family mansion because of Family matters.</p>
-<p>As I took a Taxi alone to the Dark Merchant Branch, Eve, wearing a China Dress, greeted me. By the way, did she meet the Musashi Takuro old man in that outfit?</p>
-<p>"Ryuta-nim~!"</p>
-<p>"Eve."</p>
-<p>I gave a slight bow to Eve, who was greeting me, and looking around, Saionji Diana wasn't there. Where did she go?</p>
-<p>"Where's Diana?"</p>
-<p>"She adjusted her cyber implants, and then went to sleep in the empty motel room right above. She said she couldn't sleep last night."</p>
-<p>Eve, with a slightly mischievous Expression, Answered my Question. Ah.... Indeed, Saionji Diana didn't get much sleep yesterday. She was awake until Dawn dealing with me, so she must be quite tired.</p>
-<p>"If she's tired, there's nothing to be done. By the way... what's this Story about Kiyohira's cyber implants?"</p>
-<p>Because I didn't particularly want to continue the Sex Story with Saionji Diana, I immediately got to the point.</p>
-<p>"Regarding cyber implants, the USA is stricter than Japan. Genba-ssi eventually operates in the USA, doesn't he? He's also a Celebrity, and if he were to have surgery in Japan and then be sent, it seemed like there would be quite a lot of problems."</p>
-<p>It was similar to the Reason I had thought of. Although it varies by state, the USA had slightly stricter laws regarding cyber implants.</p>
-<p>"So, I'm trying to create a company in the USA, and since this Technology isn't just mine, and a lot of TG Tech's Technology is involved, I contacted you to ask you to come because Ryuta-nim's permission is needed to establish the company."</p>
-<p>"What did Yu-gyeong say?"</p>
-<p>Since TG Tech isn't just my company, and Han Yu-gyeong is also one of the owners, Han Yu-gyeong's opinion was also important.</p>
-<p>"Yu-gyeong-ssi said it's fine if Ryuta-nim permits it. And I have another Request...."</p>
-<p>"Yes?"</p>
-<p>Is something else needed to establish the company besides my permission?</p>
-<p>"I'd like to register the Boss's name under Ryuta-nim's USA Status. Rather than specifically looking for someone else, I thought creating the company under Ryuta-nim's USA Status would be better for security and other reasons."</p>
-<p>Aha, it seemed my USA Status, Dante Lee Astor, was needed to establish the company. Eve's Proposal was a good thing for me. If the name Dante Lee Astor, which I would use in the USA someday, also had the title of company Boss attached to it, it would look more legitimate.</p>
-<p>"Alright. Then, what about shares or Investment?"</p>
-<p>Of course, I didn't intend to receive shares just by becoming the Boss. Even if TG Tech's Technology was used, royalties could be paid for it, so it seemed I would only receive shares if I proceeded with an Investment.</p>
-<p>"Uhuhuhu, then.... Shall we start the Negotiation?"</p>
-<p>Eve looked at me, smiling slightly ominously. Seeing Eve's smiling Appearance, the share Negotiation didn't seem like it would be easy.</p>
-<p>Requested by MidNightSKY-nim: Seizawa Shii surprised by seeing her own Strength measurement, and Linling happy to receive a gift~!</p>
-<p>Shii first~!</p>
-<p>Linling happy to receive a gift~!</p>
-<p>The last one is even tiny Linling haha.</p>
-<p>Requested by TheDreaming-nim: 1. Lianna Holden pressing her breasts inside a Phone Call Box, and 2. Lianna Holden running on the Street~!</p>
-<p>1.</p>
-<p>2.</p>
-<p>There are many characters who can't run well (when creating with AI), but Lianna Holden runs well hehehe.</p>
-<p>Requested by Yourigo-nim: Diaper Alik has been replaced with Cute Panties Alik~!</p>
+<p>Uuung!</p>
+<p>The loud Vibration made Kuroda Ouji, the Head of the Superhuman Crime Investigation Department, pick up his phone. The Contact was from Kahei Jingoro, who was in charge of the investigation team for this A-village Murder Incident.</p>
+<p>Kahei Jingoro, a former Detective, unlike the other team members, had no Special Ability, but because of his excellent investigation skills and keen judgment, he was one of the Investigators Kuroda Ouji trusted. That's why Kahei Jingoro was assigned to this Incident. He was the Team Leader who could provide Balance for the other three light-hearted members.</p>
+<p>"Kahei, is there any progress in the investigation?"</p>
+<p>Kuroda Ouji immediately asked about the investigation Situation as he answered the phone. This was because Kuroda Ouji was also paying attention, as it was a Matter personally handled by the Director-General of the Japan Paranormal Phenomenon Management Bureau.</p>
+<p>-We have completed both the Corpse investigation and the Scene investigation. As you said, bujang-nim, the Target seems to possess a very dangerous power.</p>
+<p>"Has anything come up?"</p>
+<p>-According to the police investigation, Sato Tsukiyo seems to be the culprit, but.... Seeing that Seido calls it a divine being and Motomachi says Sato Tsukiyo is not Sato Tsukiyo, there is a Probability of Possession or Body Snatching. Perhaps.... it is close to a God-like Existence.</p>
+<p>As an experienced Investigator who had investigated various mystery Phenomena besides Incidents involving Superhumans, Kahei Jingoro synthesized his colleagues' stories and made a judgment very close to the Truth.</p>
+<p>"Is that so.... It is dangerous indeed. The Director-General-nim's Words were not wrong."</p>
+<p>Kuroda Ouji also understood the Meaning of Kahei Jingoro's Words, so he nodded his Head, recalling Iwanoh Sadakake's statement that it could be a Famine-level Danger.</p>
+<p>-So, we are heading to Tokyo, which is almost certainly the Target's next Destination, by Helicopter. We need to confirm its Appearance ourselves.</p>
+<p>"So you're going to stop the Murder yourself...? Didn't I clearly tell you and your team members! Not to make Contact...!"</p>
+<p>Kuroda Ouji pressed his forehead as he listened to Kahei Jingoro's Report. He had told them not to make direct Contact and to first assess the Situation, but they were going to Tokyo by Helicopter? Risking the Danger of all Japan to stop one Death?</p>
+<p>Of course, Kuroda Ouji was not trying to engage in the stale debate of the Safety of the many achieved through the Sacrifice of the few.</p>
+<p>But this Situation was Reality. A Reality where Superhumans existed, and Monsters that caused tens of thousands of Casualties at once existed, and an unidentified Woman with such Danger was infiltrating Tokyo was also Reality. Twenty million people in Tokyo could not suffer Harm to save one person.</p>
+<p>-Bujang-nim, it seems you have misunderstood. We are not going to stop this Target's Murder.</p>
+<p>Kahei Jingoro calmly Answered Kuroda Ouji's scolding.</p>
+<p>Kahei Jingoro was not a police officer. As an Investigator for the Japan Paranormal Phenomenon Management Bureau, his Work was similar, but ultimately different from that of the police.</p>
+<p>Unlike the police, whose Purpose was crime prevention or Subjugation, Paranormal Phenomenon Management Bureau Investigators ultimately had to act in a way that caused less Harm to Japan, so they didn't care about a few Sacrifices.</p>
+<p>"Then why are you going to Tokyo in such a hurry?"</p>
+<p>-According to the investigation so far, this Target.... seems to be a being with whom Words can be exchanged.</p>
+<p>Kahei Jingoro's Answer was unexpected by Kuroda Ouji. A suddenly reasonable Opponent.... This investigation Target was an individual who had killed nearly twenty people in just one village. Having a Conversation with such a Target could be said to be a very dangerous Matter.</p>
+<p>"What do you mean...."</p>
+<p>-Bujang-nim, think carefully. Sato Tsukiyo is committing the Murders now, but what is inside her is a completely different Existence. However, the Targets of the Murders are those Sato Tsukiyo would hold a grudge against. That means that Existence made some kind of deal with Sato Tsukiyo. Something like resolving her grudges on the Condition of using her Body. If so, this means that a Conversation is possible.</p>
+<p>It was a plausible Argument. If the outward Appearance was Sato Tsukiyo, but the Existence inside was not Sato Tsukiyo, there would be no Reason to resolve Sato Tsukiyo's grudges. That would mean that Existence granted Sato Tsukiyo's Request, but Kuroda Ouji had one lingering doubt.</p>
+<p>"But why did it kill the Orphanage Director and the teacher affiliated with the Orphanage? Weren't those two not Targets of a grudge?"</p>
+<p>-They were indeed Targets of a grudge. As a result of Motomachi's psychometry Ability, the Orphanage Director attempted Rape on Sato Tsukiyo, and the Orphanage teacher had continuously committed Sexual harassment.</p>
+<p>Kuroda Ouji could offer no rebuttal to Kahei Jingoro's Words. Motomachi Itsuki was an excellent psychometrer. She was born with a very useful Ability for investigations, capable of knowing facts from quite a long time ago just by touching something. According to Motomachi Itsuki's Words, the Orphanage Director and the Orphanage teacher were indeed Targets of a grudge.</p>
+<p>-From that perspective, the Target has not harmed anyone against whom it holds no grudge so far, so we thought it would be worth making Contact and talking.</p>
+<p>"...You all could be in Danger."</p>
+<p>While it was a convincing Argument, the investigation team, who had to directly confront that Existence, could be in Danger.</p>
+<p>-It's something someone has to do. And not all team members will make Contact; only I and Seido, the Shrine Maiden familiar with divine beings, will step forward.</p>
+<p>It's something someone has to do.... Right. Kuroda Ouji also thought that since these Words had been spoken, he couldn't stop Kahei Jingoro. There was no Law that could stop a Subordinate who had already hardened their Resolve.</p>
+<p>"Then, the Target's targets are...."</p>
+<p>-The Sacrifice of about three people is a small Matter. If we try to stop it unnecessarily, we'll have to calculate the Harm to Tokyo, let alone have a Conversation.</p>
+<p>It was the same thought as Kuroda Ouji's in the early stage of the Call. That an additional Harm of about three people was unavoidable.... Kuroda Ouji nodded his Head with a heavy Expression and opened his Mouth.</p>
+<p>"Try to make Contact."</p>
+<p>-Understood.</p>
+<p>At Kuroda Ouji's Command, Kahei Jingoro calmly Answered.</p>
+<p>"S-Sensei-nim, I-I can't go on anymoreee...."</p>
+<p>Oofuchi Erika declared her Surrender to me, gushing Semen from her Pussy, saying she couldn't take any more.</p>
+<p>When I first visited Daigo Terue's Mansion, we put dinner aside and enjoyed Sex together. Satisfying our Lust was prioritized over a Meal.</p>
+<p>However, because Daigo Terue, who had Sex with me alone at school before, disappeared, saying she was going to prepare dinner to create alone time for her Daughter and me, Oofuchi Erika had to endure my Virility alone. After that, Oofuchi Erika, who had experienced over a dozen Climaxes in a row, declared her Surrender.</p>
+<p>"Come for dinner~♥"</p>
+<p>Daigo Terue, with a vibrant Voice, having received enough Semen from me, announced from the kitchen that the Meal was ready.</p>
+<p>"Just a moment~!"</p>
+<p>I carried Oofuchi Erika in a Princess carry to the Shower Room, then washed off the vaginal fluid and Semen covering her entire Body. It was quite amusing to see her flinch every time my Touch reached her, but I was hungry, so I did it moderately, wiped her Body, and put her underwear on.</p>
+<p>"I like it when Sensei-nim puts my underwear on meee...♥"</p>
+<p>Oofuchi Erika had fully come to her senses by the time I put her underwear on, so I lightly kissed her forehead, told her to put on the rest of her Clothes, and then I left the Room and headed to the kitchen.</p>
+<p>"I've prepared eel over rice and various other things~!"</p>
+<p>I sat down in my Seat, wondering if it could truly be called a rice bowl with almost seven eels piled on a small amount of rice. As I waited, sipping pre-meal tea, Oofuchi Erika came out of the Room, apologizing for being late, and sat next to me. For reference, Daigo Terue sat Opposite Side me, gazing at me with a pleased Expression as I ate.</p>
+<p>"I will eat well."</p>
+<p>I picked up my chopsticks and split a piece of well-grilled brown eel flesh to eat. Mmm.... Delicious. It felt like just a few pieces would replenish all the protein I had used today.</p>
+<p>"You'll be leaving tomorrow."</p>
+<p>"Well.... It can't be helped."</p>
+<p>Daigo Terue spoke with a hint of regret. After all, my visit today was, to some extent, for farewell Sex before parting, so it was only natural to feel regret.</p>
+<p>Of course, Daigo Terue often went on Business Trips to Tokyo, and Oofuchi Erika attended Kanto University in Tokyo, so they could meet occasionally. There was no need to feel too much regret, but since they couldn't meet immediately whenever they wanted, like now, they seemed to feel a deep sense of regret.</p>
+<p>"You're settling down in Neo Tokyo?"</p>
+<p>"Yes. I bought the land in advance and built a Building."</p>
+<p>"Looking at Neo Tokyo, it seems there are only Skyscrapers, so is one of those Buildings Sensei-nim's Building?"</p>
+<p>As you can tell from the blatant talk about Neo Tokyo, I also revealed my True Identity to Oofuchi Erika today. Of course, Oofuchi Erika was surprised, but due to her accumulated Lust, she was more curious about my Cock than my True Identity.</p>
+<p>"Then.... I'll go visit Ryuta-ssi's Home sometime."</p>
+<p>"Anytime."</p>
+<p>As we ate and talked, I didn't realize how much Time had passed until my phone suddenly vibrated with a Uuung. Huh? Urabe Konoka? What's going on?</p>
+<p>"Excuse me. I need to take a Phone Call."</p>
+<p>I excused myself to Daigo Terue and answered the phone.</p>
+<p>-Sensei-nim. We received a Call from the Urabe Family, so we'll be leaving for Tokyo first today.</p>
+<p>Urabe Konoka and Hanakame had planned to go to Neo Tokyo with me tomorrow, so it seemed they called me to inform me that they would be leaving first today.</p>
+<p>"Oh? It's not dangerous, is it?"</p>
+<p>-It's an urgent Call, but it probably isn't dangerous.</p>
+<p>To my Question, Urabe Konoka spoke in a tone that didn't seem particularly worried. In fact, there probably wouldn't be much Danger for the two of them. If push came to shove, Lizhael could even descend.</p>
+<p>"Understood. Then I'll see you when you arrive tomorrow."</p>
+<p>As Urabe Konoka said, I thought it was nothing serious and hung up the phone.</p>
+<p>Erika B-cut~!</p>
+<p>Gojoy-nim requested I Yeon-ju Belly Dancer, Tape Appearance~!</p>
+<p>Tape first~!</p>
+<p>Belly Dancer~!</p>
+<p>Hwanbuljeoldaebulga-nim requested Belly button piercing Bikini Lisa, Home Ec Teacher~!</p>
+<p>Lisa first~!</p>
+<p>Home Ec Teacher</p>
+<p>As expected, being an old model, it doesn't listen well haha. Stretching out the arms seems to have been a difficult Demand haha.</p>
+<p>Neosblue-nim requested Sabu Gaia Crasher</p>
+<p>I'm not sure if it's right haha.</p>

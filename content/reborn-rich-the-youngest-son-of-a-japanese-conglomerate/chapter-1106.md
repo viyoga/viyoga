@@ -5,78 +5,77 @@ weight = 1106
 chapter = 1106
 +++
 
-<p>and breast chapter check contains exposure please surroundings this your</p>
-<p>"Aasa, how is Jiro Orabeoni doing?"</p>
-<p>Taira Kanna asked her personal secretary, Sakazuma Aasa, who had assisted her as a secretary since her Student Council days at St. Francisco Girls' Academy, about Taira Jiro's Situation. Because a series of bad incidents had occurred, it was necessary to grasp Taira Jiro's movements.</p>
-<p>Sakazuma Aasa, along with Taira Kanna, had already enrolled in a Foreign Country's University during high school and was now a talented individual with only one year left until Graduation.</p>
-<p>"With the Mithril warehouse attack and the Kitsumasa Assassination Incident overlapping, things feel chaotic. Furthermore, due to disagreements with the UK side regarding the handling of Taira Kitsumasa's Corpse, the transfer is actually being delayed. I expect it will depart two days from now."</p>
-<p>At Sakazuma Aasa's Explanation, Taira Kanna nodded her Head. Currently, Taira Jiro, enraged by the mention of examining his son's Body, had threatened the London police, which had actually complicated The Situation.</p>
-<p>From the perspective of the Japanese government, if they were to immediately comply with Taira Jiro's Threat against their own police, it would appear as if they were succumbing to the coercion, which is why the transfer of Taira Kitsumasa's Corpse is being delayed.</p>
-<p>However, since the Taira Group and the Japanese government are also jointly putting Pressure on the British government, Sakazuma Aasa expected that the transportation of Taira Kitsumasa's Corpse would take place two days later.</p>
-<p>"Information about the Assassination Matter probably hasn't come out yet.... Have you found out who the culprit of the Mithril warehouse attack is?"</p>
-<p>"That was easily found out."</p>
-<p>At Taira Kanna's Question, Sakazuma Aasa nodded her Head. While it was something other Successors couldn't easily figure out, because Taira Kanna was the Master of the Taira Driving System, she was able to easily find out about this Incident.</p>
-<p>The Taira Driving System, under the Pretext of Learning and Error Collection, was collecting operational data from Taira cars nationwide, so it could easily find out what happened on the roads.</p>
-<p>By finding a Taira car parked on the roadside near Taira Jiro's secret warehouse and obtaining only the black box data from its owner, they could Track the vehicle of the group that stole the Mithril.</p>
-<p>"Upon Tracking, the vehicle that stole the Mithril headed towards the port used by Taira Bussan."</p>
-<p>"Is it Ichiro Orabeoni?"</p>
-<p>Since Taira Bussan was the company where Ichiro was the Boss, it was naturally concluded that Ichiro's side had committed the Act, but Sakazuma Aasa shook her Head.</p>
-<p>"I don't think so. Judging by the fact that the vehicles headed towards the South American Sector...."</p>
-<p>"It's Gensuke."</p>
-<p>Although Taira Gensuke was Older than her, Taira Kanna, who had a higher family rank, called Taira Gensuke casually and did not hide her Hatred for Taira Gensuke.</p>
-<p>In fact, not only Taira Gensuke, but Taira Kanna disliked most of her Nephews/Niece.</p>
-<p>All of them were Older than her, and there was Tabenobu, who, like his Father Taira Ichiro, was inscrutable, or Taira Kisa, who lived for his own self-importance, or even the Cat Arisu Fitzgerald, who was close to Taira Ryuta; there were few Nephews/Niece she liked.</p>
-<p>The same was true for Taira Gensuke. Taira Gensuke's endless Inferiority Complex and hot-headed Appearance naturally came across as Hatred to Taira Kanna.</p>
-<p>Moreover, knowing that Taira Gensuke was responsible for the Attack on Taira Ryuta's mansion, her Hatred had deepened even further. In fact, the only Nephew/Niece Taira Kanna liked was Taira Ryuta.</p>
-<p>"Please inform Jiro Orabeoni that the Mithril theft was Gensuke's Act. Before Jiro Orabeoni goes crazy and commits strange acts, it's necessary to let him vent his anger on Gensuke and let off some steam."</p>
-<p>"Understood. It would also be good for us to put Jiro Orabeoni in Debt."</p>
-<p>The Taira Kanna Pabeol, which had just established itself in the Taira Group, was currently solidifying its foundation, so it did not prefer Taira Jiro to take unexpected action.</p>
-<p>Therefore, by informing about Taira Gensuke's Work, they were naturally inducing a fight with Taira Ichiro's side. And in return for providing the Information, they would put Jiro Orabeoni in Debt.</p>
-<p>"Orabeoni will also come to the funeral, won't he?"</p>
-<p>Taira Kanna asked with an Expression of excitement and anticipation, completely opposite to when she had just spoken about Taira Gensuke.</p>
-<p>Sakazuma Aasa also, having attended St. Francisco Girls' Academy with Taira Kanna, knew well that the subject of Taira Kanna's 'Orabeoni' stories was Taira Ryuta.</p>
-<p>"He probably will, won't he? Because there was no Report that Ryuta-nim was injured when Taira Gensuke attacked his mansion."</p>
-<p>"If Orabeoni was injured, I would kill Taira Gensuke with my own Hands."</p>
-<p>At Sakazuma Aasa's Words, Taira Kanna spoke, instantly emitting Killing Intent.</p>
-<p>"Still, Kitsumasa is proving helpful. Because thanks to Kitsumasa's funeral, I can see Orabeoni."</p>
-<p>Taira Kanna, as if she had never emitted Killing Intent, said with a highly expectant Smile, like a Child looking forward to a picnic.</p>
-<p>Having been inaugurated as the Boss of the Taira Driving System and as the sujang of the Kanna Pabeol, Taira Kanna would be busy even if the day doubled in length, so she couldn't make time to meet Taira Ryuta.</p>
-<p>Taira Ryuta also, having been busy managing Taira Yutong, thought he could meet her at this funeral as an opportunity, and did not hide his Expectation.</p>
-<p>The thought of being happy to meet her beloved Orabeoni because of a funeral held due to a Cousin's Death is not something a Normal Person would have, but Taira Kanna was not a Layperson.</p>
-<p>"Orabeoni.... Ehehehe♥"</p>
-<p>Taira Kanna, thinking of Taira Ryuta, who was her Nephew/Niece, Orabeoni, and Husband (?), laughed, "Ehehehe."</p>
-<p>"Kitsumasa's Corpse will likely be transferred two days from now...?"</p>
-<p>Having returned to Fujigasaki Rinka's mansion, I was looking at the Document Eve had obtained and sent from the UK.</p>
-<p>Yesterday, I rested at the mansion, and today, I was so focused on signing a contract with Moth Tactical that I hadn't paid attention, but it seemed Taira Jiro had made an Impulsive Action, causing a Problem with the transfer of Taira Kitsumasa's Corpse.</p>
-<p>Upon checking the Information, Taira Jiro's radical Remark that he would "eliminate the London police who wouldn't immediately send back Taira Kitsumasa's Corpse" seemed to have become a huge Topic for the British government.</p>
-<p>Of course, this Story was not known to the public, but rather because of that Story, the British government and the London police delayed the Corpse transfer period. If they had sent it immediately, they would have been branded with the infamy of having succumbed to Taira Jiro's Threat, so it must have been an unavoidable Decision for the British government.</p>
-<p>If Taira Kitsumasa's Corpse is transferred two days later.... I can also attend the funeral. I'll talk to Mother Mars tomorrow and return to Japan the day after. Taira Kitsumasa's Corpse and I will return to Japan around the same time.</p>
-<p>After seeing the funeral schedule, I can either depart directly from the Airport or rest at my mansion before going, so I'll have to assess The Situation first.</p>
-<p>Looking further at the Information Eve provided, the man who appeared to be the Assassin seemed to have already left the UK. His trace was said to have been lost after a certain port.</p>
-<p>Since the man was first discovered at Ashford International Train Station, which connects France and the UK, he wasn't originally based in the UK. The Probability of him having returned to Europe was high.</p>
-<p>From the limited area of the Island of Great Britain in the UK, the Tracking area has now expanded to the European Continent, so it seemed it would take Taira Jiro more time to identify the Person who killed his son.</p>
-<p>"It's not even my Work, but it's tiring to worry about it."</p>
-<p>I muttered, closing the Information Document Eve had given me on the tablet. In fact, Taira Kitsumasa's Death had nothing to do with me. The only time I had seen his Face was at Taira Saburo's funeral.... If I think about it that way, I'll see Taira Kitsumasa for the last time at this funeral, so he'll be a Cousin I only met at funerals.</p>
-<p>Anyway, Taira Kitsumasa's Death was none of my business, but I had to keep paying attention due to its ripple effect.</p>
-<p>No matter who hired the Assassin, Taira Jiro would undoubtedly seek bloody Revenge, and though I don't know for sure, the Target of that Revenge would probably be the Taira Successors or an Act committed by the Minamoto side, so I couldn't help but pay attention.</p>
-<p>If it was the Taira Successor side, I could unknowingly be swept away by that flow, so I had to be careful, and if it was an Act committed by the Minamoto side, since a Taira Direct Lineage member had died at the hands of Minamoto, Taira Danjo would step forward instead of Taira Jiro, so everyone with the Taira name would have to Attack the Minamoto side.</p>
-<p>I, who am connected to Minamoto Risa, also, while attacking Minamoto, would have to watch someone attacking Minamoto Risa and give Help to Minamoto Risa, making The Situation quite complicated.</p>
-<p>Of course, as The Situation becomes more complicated, it does create an opportunity for my side, which is not yet recognized as a Successor Group, but the Head-ache was unavoidable.</p>
-<p>"Ryuta-jji~! Come out quickly! You said we wouldn't have time after today!"</p>
-<p>As I lay there, suffering from a Head-ache alone, Seizawa Shii's Voice came from Outside the window. Ah, that's right. We were supposed to go surfing together today, weren't we?</p>
-<p>Since I don't know what will happen after I finish my schedule with Mother Mars tomorrow, this was the only time I had to surf and play in the Sea with Seizawa Shii and the other Kids.</p>
-<p>"I'm coming down now."</p>
-<p>I got up from my Seat and said, waving my Hand Outside the window. It seemed I needed to wash away the complicated thoughts in my Mind, caused by Taira Kitsumasa's sudden Death, by surfing.</p>
-<p>Kanna B-cut~!</p>
-<p>Requested by TheDreaming-nim: Kanzaki Saya at an amusement park, 1. Translucent attire and Gun-shooting posture 2. Kneeling and Gun-shooting posture</p>
+<p>and chapter check contains erotic please surroundings this your</p>
+<p>Following the servant, as I went to the Main family's conference room, Taira Danjo Grandfather, wearing black mourning attire, was sitting. Even after a long time, he was still an old man who looked stubborn and unyielding.</p>
+<p>As I sat down, quite a few familiar faces were visible. Excluding Taira Yukiko, Arisu, Nae Fitzgerald, and Taira Kanna who came with me, Nagumo Sian, Taira Ichiro who had just had a war of nerves with Taira Jiro and disappeared, Shinonome Zen who had apologized to me regarding the Shinonome Mio matter, and several bosses of non-affiliated affiliate companies with whom I had exchanged Introductions at the March competition, were noticeable.</p>
+<p>Everyone had a questioning Gaze, wondering, 「Why were we called?」 and as everyone sat down, Taira Danjo, seeing everyone seated, opened his mouth.</p>
+<p>「Before the wake begins, I called you because there are business matters to discuss.」</p>
+<p>As I expected, it seems he called everyone because there were business matters to discuss. What on earth could be so important that he gathered everyone at a funeral? Is it that big of a deal?</p>
+<p>「Come in.」</p>
+<p>At Taira Danjo's words, Taira Yuuichi, still wearing mourning attire, entered. There were rumors that Taira Yuuichi would return to Japan, but in fact, he was not yet affiliated with the Taira Group.</p>
+<p>Although he was the boss of Asakura-Taira Shipyard, in which the Tairaga held a Share, because the shipyard had more Shares held by others outside the Taira, it was not part of the Taira Group.</p>
+<p>For that reason, Taira Yuuichi could not participate in Taira Group Meetings, but seeing him enter the conference room like this, it seemed his return to the Taira Group had become a Reality.</p>
+<p>Seeing that Taira Danjo Grandfather was going to tell everyone himself, it seemed he would at least be given a position like an Affiliate Company Boss, but what achievement did Taira Yuuichi make to secure an Affiliate Company Boss position?</p>
+<p>「Starting tomorrow, when the funeral ends, Yuuichi will be inaugurated as the boss of Taira Global Resource Development.」</p>
+<p>At Taira Danjo's words, everyone murmured. And all Gazes focused not on Taira Yuuichi, but on Taira Ichiro.</p>
+<p>And for good reason, Taira Global Resource Development, or Taira International Resource Development, was the name of the company that Taira Danjo had recently repossessed from Taira Ichiro due to Taira Gensuke's Mistake of attacking our mansion in Neo Tokyo.</p>
+<p>Taira International Resource Development, which had always belonged to Taira Ichiro's Pabeol, was, as its name suggested, an overseas Resources Exploration and mineral import company, and it was one of the very important Affiliate Companies Taira Ichiro possessed.</p>
+<p>Even within the same Taira Group, Taira International Resource Development was the kind of company that allowed Taira Ichiro to avoid receiving Metal supplies from Taira Iron &amp; Steel, which was owned by his rival, Taira Jiro.</p>
+<p>Because it was a company connected to various overseas steel companies and possessed several mines and rare earth deposits, it was a place of considerable Value to Taira Ichiro.</p>
+<p>Ultimately, if Taira Yuuichi were to become the boss of Taira International Resource Development, Taira Ichiro's Affiliate Companies that used Metal as raw material would have their leashes held by Taira Jiro's side, so it could be said to be a considerable Impact.</p>
+<p>Of course, since they were all Taira, if supplies were cut off, Taira Danjo would repossess the company again, so there wouldn't be an immediate practical Impact, but it created an opening for Taira Jiro's Breath to enter the Affiliate Companies supporting Taira Ichiro, so it could be said to be even worse.</p>
+<p>As expected, Taira Jiro isn't just taking it. Taira Yuuichi becoming the boss of Taira International Resource Development this time could be said to be a far more important Matter compared to Taira Gensuke losing Mithril.</p>
+<p>And thinking broadly, Taira Jiro's move this time felt like both an Attack and a Warning not only to Taira Ichiro but also to me.</p>
+<p>Now that Taira Yuuichi has become the boss of Taira International Resource Development, it means they can easily import Mithril from other places.</p>
+<p>Of course, there are tariffs, and Mithril itself is a strategic Resource, so buying it from our Domestic side would be cheaper than importing it, but the fact that Taira Jiro's side gained another Choice was not something I, who sells Mithril, would welcome.</p>
+<p>「Could you tell us what achievement Yuuichi made to become the boss of Taira International Resource Development?」</p>
+<p>It was Taira Ichiro's Question. Even at the March competition, it was Taira Ichiro who asked for the Reason behind Taira Kanna taking charge of Taira Driving System and me taking charge of Taira Food distribution.</p>
+<p>Even now, rather than getting angry, seeing him ask for the Reason, it seemed he had a strong Tendency to first figure out the Cause of the phenomenon.</p>
+<p>「That guy Yuuichi gave Help to Taira Robotics.」</p>
+<p>When answering Questions about me during the March Meeting, Taira Danjo had explained in detail that the Reason I became the boss of Taira Food distribution was that I had prevented the union of the Minamoto Family and the Sugawara Family, but this time, he moved on with a somewhat vague Explanation that Yuuichi had given Help to Taira Robotics.</p>
+<p>I had considerable doubt about this vague Explanation, but most people had a convinced Expression at the Explanation that Taira Robotics, one of the two pillars of Taira, was involved.</p>
+<p>I'll have to talk with the Staff Officers later and properly figure out what The Situation is.</p>
+<p>「The Reason I gathered everyone is to announce that a new Affiliate Company Boss has been inaugurated. Do you have anything else to say?」</p>
+<p>At Taira Danjo's Question, everyone fell Silence. Everyone was surprised by the sudden personnel change, so they seemed to have nothing particular to say.</p>
+<p>「Then, rest sufficiently until the wake. Although it's a funeral and we won't be holding a Banquet, if you tell the Servants what you want, they will grant it.」</p>
+<p>As Taira Danjo issued the order to dismiss guests, everyone rose from their Seats. Seeing them leave in a hurry, it seemed everyone wanted to leave quickly to discuss among their own Pabeol what this Matter meant, or, like me, to consult with their Staff Officers.</p>
+<p>「Ryuta, you stay for a moment.」</p>
+<p>Seeing me rise from my Seat, Taira Danjo called me and told me to stay. Why did he tell me to stay?</p>
+<p>All I've done recently is.... participated in the New Rochelle Incident in New York, signed a Mars Burger Franchise contract in California, and given Work to Moss Tactical. Come to think of it, I did stir up quite a lot of things.</p>
+<p>I gave a Gaze-greeting to the Party who had entered the conference room with me, indicating 「see you later,」 and sat in a Seat near Taira Danjo. As it happened, this Seat was Shinonome Zen's.</p>
+<p>To sit so close to Taira Danjo, I was once again reminded of how close Shinonome Zen was to Taira Danjo. Indeed, it's because he has this much influence that he could bring his Granddaughter in such attire (?) to the Taira Family Funeral Home. If the Granddaughter of a typical Affiliate Company Boss wore such attire, she would have been immediately expelled.</p>
+<p>「Did you have a good trip to the USA?」</p>
+<p>After everyone left, Taira Danjo opened his mouth. I had taken an Airplane under the name Dante Astor, not Taira Ryuta, but it seemed I couldn't deceive Taira Danjo's attention.</p>
+<p>「I secretly went and came back, fearing it would interfere with Business, but how did you know? In fact, because I went and came back too Secretly, they thought I was at Home and attacked me.」</p>
+<p>At Taira Danjo's Question, I spoke with feigned composure.</p>
+<p>「Hmph...! I know you were involved in the New Rochelle Incident. What I'm asking is if there's anything our Family or group will have to bear because of your actions this time.」</p>
+<p>Ah, so that's why he told me to stay. The New Rochelle Incident happened so suddenly that Taira Danjo didn't seem to have a proper grasp of it. Also, because the New Rochelle Incident was so big, he seemed worried that Problems might arise for the group because of me being involved.</p>
+<p>「Probably not? I was also caught up in the New Rochelle Incident, so I haven't done anything wrong enough to be held Responsibility by anyone.」</p>
+<p>「We need to grasp the detailed Situation so that our group can prepare for the aftermath of this Incident. So, tell me what you know.」</p>
+<p>If he knew I was caught up in the New Rochelle Incident, Taira Danjo must have grasped some of the Facts, but he probably asked because he wouldn't know as well as I, who experienced the Situation firsthand. He must be trying to cross-check how different it is from the Information he has.</p>
+<p>「First, the Reason I went to New York was to save my Sabu's Sabu, my Grandmaster.」</p>
+<p>Since I didn't intend to tell him that I went to New York after being called by the Federal Superpower Management Department, I started the Story by making an Excuse about my Grandmaster.</p>
+<p>Taira Danjo listened to my Story with considerable Intrigue. Of course, I didn't tell him all the Facts as the Truth, and I spoke in a way that was moderately favorable to me, but as the Truth of this Incident was so obscured, he was quite intrigued, as if hearing a secret history.</p>
+<p>「So, after saving your Grandmaster, you saw the remaining Superhumans and Jusul users fighting over the Magic Tome and retreated?」</p>
+<p>「Yes, I didn't come aiming for that Magic Tome, so since I achieved my Goal by saving my Grandmaster, I simply avoided the Place.」</p>
+<p>At my Answer, Taira Danjo's Expression subtly changed. It was an Expression that seemed both Relieved and regretful.</p>
+<p>The rumor that Taira Danjo had gathered Superhumans and created several special units was something I was well aware of, so it seemed to be due to his regret at missing an Event where such supernatural Ability Users gathered.</p>
+<p>The Relief, I thought, was probably because I didn't get involved there and returned safely, which made him make that Expression, but on the other hand, another thought occurred to me: surely this old man didn't make an Expression of Relief just for that.</p>
+<p>「So, after the New Rochelle Incident ended, and you successfully rescued your Grandmaster, which was your Goal, why didn't you return immediately?」</p>
+<p>「Ah, since I was already in the USA, I decided to do some Business.」</p>
+<p>「Business?」</p>
+<p>As expected of the Chairman of the Taira Group, Taira Danjo revealed his Curiosity at the Words 「Business.」</p>
+<p>「I tried a burger in New York, and it was delicious. It occurred to me that this burger Franchise isn't in Japan, and since I have a Food distribution network, I thought, 'I could bring it in, couldn't I?' So I flew to California to sign a Contract, which made me a little late.」</p>
+<p>「I knew you were a glutton, but it's Fortunate that you think about Business even while eating a burger. You weren't just thinking about eating every day.」</p>
+<p>Even the Chairman of the Taira Group knows I'm a glutton. I wonder how far the Rumors have been exaggerated.</p>
+<p>「It really was delicious. Next time, when I open the first branch in Japan, I'll give the first burger to Grandfather.」</p>
+<p>「Khuhuhu, you're the first guy to offer me a burger! I've heard your Story well, so you may go now.」</p>
+<p>It seemed he had heard all the Stories he was curious about from me. But my business wasn't finished.</p>
+<p>「Grandfather. The Information about the New Rochelle Incident I told you was quite important, so you must give me compensation. I'll put it on credit, so please repay me later with whatever Grandfather deems appropriate.」</p>
+<p>Since I gave some Information about the New Rochelle Incident, which almost everyone in the world knows was caused by the Obsidian Syndicate, I had to receive compensation. With this level of Information, the Taira Group could use it to their advantage, so Taira Danjo would surely give an appropriate Reward.</p>
+<p>「You impudent bastard, I'll think about it, so get lost!」</p>
+<p>At Taira Danjo's Words, I grinned, then bowed and greeted him, and left the conference room. Since he said he'd think about it, he'll surely give me something.</p>
+<p>Requested by TheDreaming-nim: Shinonome Mio 1. Nude Performance 2. Spreading Magic Tome at the Noriteo</p>
 <p>1.</p>
-<p>I entered 'men's Trunk', but Dolphin Shorts came out ㄷㄷ Dual pistols and dual Smartphones kkeuk kkeuk kkeuk</p>
 <p>2.</p>
-<p>Requested by Gojoy-nim for Chapter 50: 1. Yukiko holding Hands with the protagonist 2. Kanna at the funeral</p>
-<p>1.</p>
-<p>2.</p>
-<p>Requested by MidNightSKY-nim: Alik emitting jolts~! Sakagami Rena using Explosion Release~!</p>
-<p>Alik~!</p>
-<p>Rena~!</p>
-<p>Requested by NeosBlue-nim: Saya using a Gatling Gun~!</p>
-<p>Super Strength to hold a Gatling Gun with one Hand ㄷㄷㄷ</p>
+<p>The Noriteo prompt turned out better than I thought, hehe.</p>

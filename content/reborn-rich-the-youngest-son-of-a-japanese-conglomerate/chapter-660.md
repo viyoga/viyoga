@@ -5,104 +5,80 @@ weight = 660
 chapter = 660
 +++
 
-<p>"Yukiko, turn around."</p>
-<p>Yukiko, wearing a backless outfit, wouldn't show off her charm in the missionary position, so I decided to do it from behind. Since she's wearing such a sexy outfit, I need to maximize its appeal. I lifted Yukiko's sweater, which had an open back, and exposed her pussy.</p>
-<p>The string of sticky vaginal fluid stretched out and dripped onto the bed, looking like I was drooling. I rubbed the outer part of Yukiko's pretty, fluid-soaked pussy with two fingers.</p>
-<p>"Hyaaah...!"</p>
-<p>I felt the slippery, all-encompassing texture of Yukiko's unique vaginal fluid. I rubbed my hand all over Yukiko's pussy, as if applying the slippery fluid.</p>
-<p>"Why is your pussy so sticky?"</p>
-<p>"Haaah, good, Ryuta-aa...♥ I'm all ready, so hurry, put Ryuta's big dick in me♥"</p>
-<p>Well.... She's been sucking my dick and getting excited by my foreplay since earlier, so it seems like no more preliminary exercise is needed. Yukiko didn't even answer my question properly, as if she was already lost in the pleasure of being touched by my hand, and she just swayed her hips, moving as if to seduce me.</p>
-<p>If I kept teasing her without putting it in, she might turn into a succubus and extract my semen, so I nodded and brought my dick to Yukiko's pussy.</p>
-<p>"Okay. I'll put it in."</p>
-<p>In response to my answer to Yukiko's sexy request, Yukiko was looking at my dick with an expression full of anticipation.</p>
-<p>I lifted the hem of the sweater that had fallen down after I took my hand away and was covering her pussy again, and brought my dick to Yukiko's gaping pussy. And I immediately thrust my hips, pressing the glans tightly against Yukiko's innermost cervix.</p>
-<p>"...!"</p>
-<p>As soon as I put it in deeply, Yukiko arched her back like a bow and reached her climax. She couldn't even let out a moan properly, as if it was caught in her throat, and she trembled. I didn't pay attention to Yukiko and started shaking my hips roughly.</p>
-<p>"Haaht! W-wait a sec...! I just came...Hngh, uh, hmmm♥"</p>
-<p>"I haven't come yet, so I'm going to keep moving."</p>
-<p>I was already having trouble controlling my excitement at the sight of Yukiko and Nagumo Sian's sexy figures. Yukiko screamed that it was just for a moment, but I didn't care and shook Yukiko's exposed waist.</p>
-<p>Yukiko's wriggling pussy, unlike what Yukiko was saying about it being just for a moment, chewed on my dick and wouldn't let go.</p>
-<p>It was an incredibly pleasant pussy that would have sucked out all the semen in just a few minutes for a normal man, but I had already ejaculated once and I was also learning my own bedroom skills, so I was able to endure it.</p>
-<p>"Your mouth says it's just for a moment, but your lower half is actually biting down and won't let go of my dick?"</p>
-<p>"Haaah, noo♥ It's too, hmmm...! It feels so good that I'm, hmmm, getting weird♥"</p>
-<p>When I whispered in Yukiko's ear while still shaking my hips, Yukiko got even more excited and screamed with pleasure, saying she felt like she was going to get weird.</p>
-<p>"Haaht, hmmm...! Ryuta-aa♥ Ryuta! I'm gonna cum!!"</p>
-<p>As I continued to shake my hips and hit her weak spot, Yukiko suddenly screamed and leaned her upper body against the bed, her strength gone. Her pussy also bit down on my dick and squeezed it tightly. It seemed like she had completely come because of a huge orgasm that was different from anything before.</p>
-<p>"Hnnngh...."</p>
-<p>As I scratched her insides with my glans and pulled out my dick, Yukiko moaned again and reached a series of small climaxes. I had satisfied Yukiko, so now it was Nagumo Sian's turn.</p>
-<p>Nagumo Sian seemed to have been masturbating while watching me and Yukiko have sex, as her fingers were covered in vaginal fluid and her eyes were seductively unfocused. Her white bikini underwear, which was covering her breasts, had become translucent, revealing Nagumo Sian's pink nipples, as if she had touched her breasts with her fluid-soaked hands.</p>
-<p>"Put your magnificent thing right into my there, Ryuta."</p>
-<p>"If you say it like that, I don't know where to put what."</p>
-<p>"Don't be like that.... I had a hard time watching you two do it, so hurry...!"</p>
-<p>Nagumo Sian, already ready, spread her pussy and showed her pink flesh. She was still embarrassed and didn't say the words "pussy" or "dick," but just called it "that," so I teased her a little, and her face turned red and she just urged me on.</p>
-<p>"If Onee-san doesn't say it properly, I'm going to put my di.ck back in Yukiko's pu.ssy."</p>
-<p>"You're really mean. I understand. I'll say it properly.... Put Ryuta's big, woman-corrupting dick into my, my horny pussy...♥"</p>
-<p>"Okay. Keep your legs spread like that."</p>
-<p>Nagumo Sian's outfit, unlike Yukiko's, had an open chest, so I decided to do it in the missionary position this time and approached her as is.</p>
-<p>Of course, my hard dick, which had been having sex with Yukiko, was coated with Yukiko's vaginal fluid and was glistening, so there was no need for foreplay and it slipped right into Nagumo Sian's pussy.</p>
-<p>"Hhaaht...! This full feeling... Hmmm! Ryuta's magnificent haaht! Dick, hhaht♥ Feels good..."</p>
-<p>I listened to Nagumo Sian's moans and shook my hips while touching Nagumo Sian's breasts with both hands.</p>
-<p>Feeling Nagumo Sian's breasts, which were so soft that my hands sank into them, and the sticky feeling of her pussy, which was as good as a virgin's (actually, she was close to a virgin in terms of experience since she only did it with me for the first time and didn't do it much after that), gave me a very good contrasting feeling.</p>
-<p>Nagumo Sian was also learning bedroom skills like me, so somehow her pussy was wriggling and rubbing against my dick's weak spot, chewing on it. This was almost a Daughter of the Abyss or succubus-level pussy.</p>
-<p>"Kuh...! Feels good, Onee-san!"</p>
-<p>"Ryuta, Ryuta...! I'm haaht♥ feeling good too...!"</p>
-<p>Nagumo Sian seemed to be feeling the height of pleasure as both her breasts and pussy were being attacked at the same time.</p>
-<p>"Ryuta, hmmm! Hmmm♥ I think I'm gonna cum! Put Ryuta's hot baby batter hmmm♥ inside my pussy!"</p>
-<p>"I'm going to cum, so squeeze tight."</p>
-<p>Following Yukiko, Nagumo Sian's pussy had stimulated my dick, so I couldn't hold back any longer either. I could feel the semen rising and I was running like a runaway train towards the final station of ejaculation.</p>
-<p>"Haaht! Like this, hmmm♥ like this...?!"</p>
-<p>At the words "squeeze tight," Nagumo Sian hugged me tightly and wrapped her legs around my waist, crossing her legs so that I couldn't pull my butt away. At the same time, her pussy began to squeeze.</p>
-<p>She was squeezing as much as she could, as I told her to, and craving my semen. Nagumo Sian's crossing her legs behind my waist reduced the range of motion of the piston movement, but I shook my hips even more violently, hitting Nagumo Sian's cervix with my glans so hard that it made a pounding sound.</p>
-<p>"Kuh! I'm gonna cum, Onee-san...!"</p>
-<p>"Haaah! Inside...! Hot milk is coming in!"</p>
-<p>I pressed my body as close as possible to Nagumo Sian's body and ejaculated deep inside Nagumo Sian. Nagumo Sian's large breasts pressed against my body, giving me a soft feeling and making me feel comfortable even after ejaculation.</p>
-<p>My ejaculation lasted for almost thirty seconds. I was still hugging Nagumo Sian tightly and enjoying the afterglow, kissing her, when Yukiko came and licked my anus and balls.</p>
-<p>"Yukiko-ssi?"</p>
-<p>"You came inside Sensei, so you have to put Ryuta's lewd white semen in me too, right?"</p>
-<p>When I turned around, Yukiko's hair was gradually turning pink. Hmm.... Yukiko, whom I had just brought to climax with pleasure, was Phase 1. It seemed like it was time to face Phase 2.</p>
-<p>###</p>
-<p>It was after 9 p.m. when I had dinner after having sex with Yukiko and Nagumo Sian for a long time. It was because I started preparing dinner late after spending almost five hours until 7:30 p.m. craving each other's bodies and overlapping our bodies.</p>
-<p>The two of them, who had sucked all my energy and had shiny faces, told me to rest and went to the kitchen and started preparing dinner with the ingredients they had prepared.</p>
-<p>Before going to the kitchen to cook, I was curious and asked what was in the styrofoam box, and it was eel and top-quality Wagyu beef.</p>
-<p>The dinner that Yukiko and Nagumo Sian prepared for a little over an hour and a half was eel rice bowl and beef stew braised in black garlic soy sauce. Both eel and black garlic were good for stamina. I guess it means I should eat a lot because I've used up so much stamina?</p>
-<p>"I've practiced cooking a lot, so it should taste okay."</p>
-<p>What Yukiko made was black garlic beef stew. The beef chunks, gently braised in a glossy black garlic soy sauce, looked very delicious.</p>
-<p>I heard that she learned cooking skills from the housekeeper at the Human Resources Development Center from time to time, so if she learned properly, her skills would have improved considerably. I also had very delicious meals while I was at the Human Resources Development Center.</p>
-<p>"I'm confident in my eel rice bowl."</p>
-<p>Nagumo Sian made an eel rice bowl with quality that rivaled a restaurant. She even brought a brazier and grilled it properly, so it was a delicious grilled eel with a smoky flavor. But.... It looks like there are almost ten eels in one bowl?</p>
-<p>If a normal eel rice bowl is covered with one piece on top of the rice, this eel rice bowl was covered with eel in as many as seven layers on top of the rice. The bowl was bigger than a normal eel rice bowl, so it seemed like at least one and a half eels would fit in one layer.</p>
-<p>"You worked hard today, so you need to take care of your body."</p>
-<p>"Yes, I'll enjoy the meal."</p>
-<p>First, I took my chopsticks to the black garlic beef stew prepared by Yukiko. The beef stew almost split as soon as my chopsticks touched it. How well did she boil it to make it split like this with chopsticks.... Amazing?</p>
-<p>As I guessed, it was so soft that it disappeared as soon as I put it in my mouth. The black garlic sauce wasn't too strong to be bothersome, and it seemed to be added just enough to help the sweet soy sauce.</p>
-<p>"It's really delicious, Yukiko-ssi."</p>
-<p>"Hehe, there's a lot, so eat a lot."</p>
-<p>She made so much that I could eat it as a side dish for several days, so it seemed like I wouldn't have to worry about food for several days.</p>
-<p>Next was Nagumo Sian's eel rice bowl. The eel was 9 and the rice was 1, but I put a lot of eel on top of the rice and took a big spoonful and put it in my mouth.</p>
-<p>Hmm, this was delicious too. The sauce was exquisite and the eel was cooked well with a smoky flavor. It was so delicious that it was as good as a really famous grilled eel restaurant.</p>
-<p>"Onee-san, the eel rice bowl is delicious too. It tastes better than what you eat at the restaurant?"</p>
-<p>"I made a lot, so eat a lot."</p>
-<p>Nagumo Sian was looking at me with a proud expression full of maternal love as I ate as if it was delicious.</p>
-<p>I ate Yukiko's beef stew and Nagumo Sian's eel rice bowl without thinking. They both ate the food they made.</p>
-<p>After talking about each other's recent events and having a good time, and even eating ice cream for dessert, the two of them talked to each other for a while and started changing into ordinary clothes instead of costumes.</p>
-<p>Yukiko began to transform into Sakagami Rena's teacher, the sorcerer Takinogawa, her other identity, and Nagumo Sian also began to wear a neat Kimono.</p>
-<p>"Huh? Where are you going?"</p>
-<p>"I'm going to see Kanna today, so I have to go. It would be strange to show up right away in the morning, so I'm thinking of going to Miyashi's Taira residence."</p>
-<p>"I'm also thinking of going to see my disciple Sakagami. Even if she has illusion magic, it's dangerous. And.... Someone else will be coming to Ryuta's house soon."</p>
-<p>It seemed like neither of them would be sleeping here. Yeah, I thought it was a little strange that they were seducing me from the middle of the day. I usually talk to them to some extent before starting sex. Today was a bit rushed? Besides, what do you mean someone else is coming?</p>
-<p>"I'll see you tomorrow, so don't be too sad."</p>
-<p>"We have to pretend we're meeting each other for the first time tomorrow, right?"</p>
-<p>"You can think of it as a role play."</p>
-<p>Role play.... I didn't know Nagumo Sian would say something like this. Yukiko, who had transformed into Takinogawa, said that she had seen me before, so she could pretend to know me, right? and gave me a peace sign.</p>
-<p>"Okay. See you tomorrow then."</p>
-<p>"You used a lot of energy today, so get some rest."</p>
-<p>"Ryuta has plenty of energy, so it's okay."</p>
-<p>I saw off the two mommies who were leaving. Not long after Nagumo Sian and Yukiko left, someone rang the doorbell, just as Yukiko had said.</p>
-<p>"Who is it?"</p>
-<p>"It's me."</p>
-<p>Normally, I would say, "How am I supposed to know who it is if you just say 'it's me'?" but I couldn't answer like that. It was Minamoto Lisa's voice. Did Yukiko know that Minamoto Lisa was coming? Something was getting scarier and scarier.</p>
-<p>_____________________</p>
-<p>Yukiko's back view</p>
-<p>Nagumo Sian</p>
-<p>Kkiooot!</p>
+<p>,Ha...! You want me to fight these little brats?"</p>
+<p>Kokubo Shiratsu, a white-haired man with pale skin, led the Anya Temple monks and faced off against the special class students protecting Kinu Tachio's young disciples, speaking as if dumbfounded.</p>
+<p>From the seemingly fragile gray-haired Naruse Shiyo, to Alik pulling out a mop handle and aiming it at him, to Saionji Diana, who held a katana that looked sharp but had her eyes completely covered by her bangs, and even Kujo Kina, who was comforting Kinu Tachio's trembling young disciples, they all looked clumsy.</p>
+<p>,Let's finish this quickly."</p>
+<p>,Osu!"</p>
+<p>At Kokubo Shiratsu's words, the Anya Temple monks rushed in. Even the lower-ranked martial artists of the Anya Temple were no ordinary fighters. They had all learned the basic martial arts created by Takakusaki Gengo, so they could all manipulate the Abyss to a limited extent.</p>
+<p>But unfortunately, their opponents were the monstrously talented girls that Taira Ryuta had personally recruited.</p>
+<p>The seemingly delicate Naruse Shiyo suddenly unleashed her Dragon Transformation, her body covered in black scales, and began to spew black flames.</p>
+<p>In fact, all the martial arts training she had done so far was for use in human form, and Naruse Shiyo in Dragon Transformation possessed excellent physical abilities as well as the ability to manipulate magic and black flames, giving her a complete combat style. The only drawbacks were her lack of experience and poor combat experience.</p>
+<p>,Kuaaaa!"</p>
+<p>The remaining Anya Temple monks wore fearful expressions as they watched the monk screaming and engulfed in black flames. He was dying in great pain.</p>
+<p>Hwoong!</p>
+<p>Finding a gap in that fear, Saionji Diana rushed in with a speed and rhythm that seemed inhuman and began to swing her sword.</p>
+<p>The Wind Blade imbued in the sword made the already sharp sword even sharper, and it was not a strike that the Anya Temple monks, wearing only ordinary monk's robes, could block.</p>
+<p>,Keueut!"</p>
+<p>,Aaaagh!"</p>
+<p>The arms and legs wearing monk's robes that were cut by the sharp blade and floated into the air created a very grotesque sight, but most of the people here were not startled by the sight.</p>
+<p>Of course, Kinu Tachio's young disciples and Kujo Kina were quite surprised, but this was not the time to be surprised. In particular, Kujo Kina, as the eldest Sajae (female senior disciple), had to stop the enemies who were trying to kidnap her Saje (junior disciples) again.</p>
+<p>,Hap!"</p>
+<p>Kujo Kina exchanged punches and kicks with the rushing monks, but she was having a bit of a hard time. It was difficult to stop the Anya Temple monks with only a few days of proper martial arts training.</p>
+<p>However, Kujo Kina was transcending her limits with her innate talent and the single-minded determination to protect her Saje (junior disciples), barely managing to stop the Anya Temple monks.</p>
+<p>,Kina, duck."</p>
+<p>Kujo Kina reflexively ducked when she heard Alik's voice, and a mop handle passed over her head with a hwoong! sound.</p>
+<p>It was a mop handle swung by Alik using Neural Acceleration, so it was incredibly fast, and the mop handle simultaneously struck the necks of three Anya Temple monks as it passed.</p>
+<p>The Anya Temple monks who were hit in the neck with the mop handle fainted and fell to the ground in an instant. Fortunately for them, if it had been the real sword that Alik usually used instead of the mop handle, they would have had their heads cut off and rolling on the floor instead of fainting.</p>
+<p>,Hahahahaha!"</p>
+<p>Kokubo Shiratsu laughed loudly as he watched the Anya Temple monks dwindle in number in an instant.</p>
+<p>,So they weren't just little brats!"</p>
+<p>Kokubo Shiratsu shouted and rushed in. Unlike his pale skin, he swung his darkly stained hand, and the target was Alik, who was holding the mop handle.</p>
+<p>Even though it was a surprise attack, Alik, who was using Neural Acceleration, quickly noticed and calmly raised the mop handle to block Kokubo Shiratsu's darkly stained hand.</p>
+<p>But Kokubo Shiratsu's strike was no ordinary strike. It was a notorious technique called Chikurotenohira (Blood Black Palm), which, once struck, would leave a black handprint on the skin, causing the victim to vomit blood and suffer fatal injuries.</p>
+<p>Paaang!</p>
+<p>Because Alik blocked it technically, the mop handle did not break. But as the mop handle turned black as if it were rotting, Alik had no choice but to quickly drop the mop handle.</p>
+<p>,Alik! I'll help you!"</p>
+<p>Before he knew it, Naruse Shiyo and Saionji Diana had defeated all the Anya Temple monks and rushed at Kokubo Shiratsu.</p>
+<p>,Hmph!"</p>
+<p>Kokubo Shiratsu snorted and blocked their attacks. He deflected Naruse Shiyo's Dragon Claw and knocked Saionji Diana's sword to the side, while simultaneously swinging his foot.</p>
+<p>All of these actions were done as naturally as flowing water, so if an ignorant person were to see it, it would look as if they were rehearsing a scene from an action movie.</p>
+<p>,Be careful of that darkly stained hand! It's not normal!"</p>
+<p>Saionji Diana shouted as she blocked Kokubo Shiratsu's kick with the flat of her sword. It was a powerful kick that would have caused a fracture even if an ordinary person had blocked it, but Saionji Diana's cyber implant was designed with such intense combat in mind, so it could withstand the Anya Temple's Four Heavenly Kings' kick.</p>
+<p>,I'll take the lead!"</p>
+<p>Naruse Shiyo shouted. Thanks to Taira Ryuta's guidance, they knew each other's abilities well and had practiced their formations in preparation for various situations.</p>
+<p>Naruse Shiyo, who had high defense due to her Dragon Scales and high resistance to status ailments due to her Half-Dragon traits, decided to tank and take the lead against an offensive enemy like Kokubo Shiratsu who used dangerous-looking techniques.</p>
+<p>Kokubo Shiratsu struck Naruse Shiyo several times with Chikurotenohira, who persistently followed him, but he cursed inwardly when she showed no particular reaction other than slightly frowning.</p>
+<p>How high was this scaly woman's defense that Chikurotenohira, which had killed martial artists of various schools in one blow, had no effect?</p>
+<p>Naruse Shiyo was not just defending. Although she had good specs, she had only started training properly a short time ago, so she had some clumsy aspects, but the Dragon Claws that Naruse Shiyo wielded were very threatening. They were by no means inferior to the claws wielded by a brown bear.</p>
+<p>,Damn it! You're annoying me!!"</p>
+<p>Kokubo Shiratsu shouted. But the enemy was not just Naruse Shiyo. Saionji Diana's sharp blade was constantly stabbing in at incredibly exquisite moments.</p>
+<p>Each time, he twisted his body as much as possible to avoid it, but there were already many sword marks on his Anya Temple uniform. Bloodstains were already visible on several wounds.</p>
+<p>,Kuaaaa!"</p>
+<p>Kokubo Shiratsu shouted as if he could no longer bear it. The black energy that had been concentrated in his hands began to spread throughout his body. Because Kokubo Shiratsu was so pale, it was even more ominous.</p>
+<p>,Is this phase 2?"</p>
+<p>Naruse Shiyo, who had played a lot of games before she became healthy, muttered as she watched Kokubo Shiratsu turn black.</p>
+<p>,When someone transforms, you're supposed to beat them up, not wait for them!"</p>
+<p>Naruse Shiyo's Dragon Claws and Saionji Diana's Wind Blade-covered sword tore apart Kokubo Shiratsu, who was turning black.</p>
+<p>,Kuaaaat!"</p>
+<p>Kokubo Shiratsu writhed in pain from their attacks, but he slowly began to regenerate his wounds. Naruse Shiyo shouted as she saw this.</p>
+<p>,If physical attacks don't work, let's shock him with electricity! Are you ready, Alik?"</p>
+<p>,Yeah, I'm weady...!"</p>
+<p>Alik did not have a sword, and the mop handle he was holding did not conduct electricity well, so he was spreading his hand and concentrating his mind on creating a blade of lightning there. As if that task was successful, a blue blade of lightning was crackling above his hand.</p>
+<p>,I can barely withstand that much...!"</p>
+<p>Kokubo Shiratsu was using a technique to summon the Abyss into his entire body, so he was confident that if he could just withstand that Western girl's attack, he could wipe them all out.</p>
+<p>So he gritted his teeth and prepared to endure in order to withstand Alik's attack, but suddenly he heard a strange voice from behind.</p>
+<p>,Water Style: Sea Jade."</p>
+<p>,What?!"</p>
+<p>He knew that there was a girl with light purple hair when he entered the dojo. But he thought she had no combat power because she had retreated to the back, and he had completely forgotten about her while fighting these little brats.</p>
+<p>,Kuaaaak!"</p>
+<p>Dozens of fist-sized water beads flew and struck Kokubo Shiratsu's body. Each one gave him tremendous pain as if he were being hit with a hammer, and above all, it soaked Kokubo Shiratsu's entire body.</p>
+<p>Alik waited for Kokubo Shiratsu's entire body to get wet, and then immediately raised the lightning sword in his hand and rushed in.</p>
+<p>,Take Alik's made-up zapping sword...!"</p>
+<p>-Alexandra Self-Styled Zapping Sword.</p>
+<p>,Kuaaaaa!"</p>
+<p>He felt as if the nerves in his entire body were burning, and he was torn from his side to his stomach. The wound was burned by the high heat of the electricity, and regeneration by the Abyss Summoning did not occur.</p>
+<p>,Damn... it...! To, these little... brats...!"</p>
+<p>Before he knew it, the black energy that had been surrounding Kokubo Shiratsu had disappeared as if washed away, and only a miserable sight remained, with his stomach wide open and his entire body steaming as moisture vaporized.</p>
+<p>Kung!</p>
+<p>Kokubo Shiratsu fell, shaking the floor of the dojo greatly. One of the pillars called the Anya Temple's Four Heavenly Kings died, unable to withstand the lynching of high school girls he had looked down on.</p>

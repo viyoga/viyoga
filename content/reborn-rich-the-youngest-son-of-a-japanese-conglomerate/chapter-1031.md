@@ -5,105 +5,80 @@ weight = 1031
 chapter = 1031
 +++
 
-<p>Taira Ryuta's Group had decided not to conduct patrols or vigilante activities due to the information that the forbidden book, the Shard of Omniscience, would appear at the AmSang auction, but Otagi Yuka, Seiwa Rieko, and Kujo Kina, who had come to the USA for actual combat Training, did not stop their patrols. This was because there were few opportunities to experience Actual combat so safely(?).</p>
-<p>Seiwa Rieko was walking alone through the Slums of New York. Although Otagi Yuka was watching from somewhere, Seiwa Rieko mostly handled things alone.</p>
-<p>Seiwa Rieko had gained considerable actual combat experience on the night streets of New York for several days, but most of them were fights that didn't feel particularly helpful for improving her Skill. Still, thanks to that, she was able to get a little used to harming people.</p>
-<p>Just like now.</p>
-<p>"Do you think we'll just let it slide if you walk around wearing clothes like this, saying that vigilantes are in fashion these days?"</p>
-<p>"Rather, it's because of those tight-fitting clothes that I'm getting hard. Heuheu.... We'll play with you today."</p>
-<p>As they entered the alley, two Black People blocked Seiwa Rieko from front and back. No matter that she was wearing a cyber Suit and helmet, which vigilantes were said to wear, if it was just Seiwa Rieko alone, even ordinary Thugs weren't afraid. This was because there were rumors that women wore cyber Suit-like Clothes to defend against Crime, and they knew that vigilante Hunters were roaming around, which had curtailed vigilante activities.</p>
-<p>Rather, most of them were people who got Aroused and rushed in, saying she was wearing tight-fitting Clothes. Just like the two Black People in front of her Eyes.</p>
-<p>The two Black People's Eyes shone brightly as they began to approach Seiwa Rieko. It was clearly a Gaze that intended to do something to Seiwa Rieko.</p>
-<p>Seiwa Rieko let out a small Sigh, then pulled out the dagger attached to her thigh. And she cut the Wrist of one of them who was reaching a Hand to her buttocks.</p>
-<p>"Kwaaaak!"</p>
-<p>Seiwa Rieko's strength wasn't yet strong enough to befit a Vampire, so it wasn't to the extent of severing the Wrist, but because she had cut with a sharp blade, blood spurted up.</p>
-<p>Seiwa Rieko shaped the spurting blood and immediately formed it into a red Rope. The blood Rope, shaped like a Hangman's noose, which a Person committing suicide would use, flew towards the remaining Black Person who was pulling out a Gun as his companion's Wrist was cut.</p>
-<p>"Keo, Keoeok...!"</p>
-<p>The Rope, wrapped around his neck, lifted the criminal straight into the sky. He shook his Legs here and there and stretched out his Hands, trying to loosen the Hangman's noose strangling his neck, but there was no way the blood Rope, made by Seiwa Rieko's blood Jusul, would come undone.</p>
-<p>Seiwa Rieko turned and looked at the Black Person who was holding his profusely bleeding Wrist, unable to even think of escaping.</p>
-<p>"J-j-just...! Y-yes! It was just a Prank! A Prank...!"</p>
-<p>"Really? Then I'll play a little Prank too."</p>
-<p>To Seiwa Rieko, who had experienced Sexual Assault, it was an Excuse worse than not saying anything. Seiwa Rieko swung her dagger and cut his neck. Red blood spurted up like a fountain. Seiwa Rieko gathered the blood and put it straight into her mouth.</p>
-<p>A Vampire who had reached that Realm could absorb blood through their Skin, but Seiwa Rieko was not yet at that level, so she had to ingest it orally.</p>
-<p>The Black Person, who had been struggling while tied by the Rope, was already dead and completely still, so Seiwa Rieko recovered the blood Rope, stabbed her dagger in, and drank the flowing blood.</p>
-<p>"Another bust today."</p>
-<p>Otagi Yuka said, dropping down from the building. She had wanted to give Seiwa Rieko some decent Actual combat experience, but as expected, the punks they encountered today were just Ordinary rapists.</p>
-<p>"Your Jusul wasn't bad, but instead of bothering to make a Rope, it's more profitable in terms of both Time and blood energy consumption to shape it into blades or Needles and launch them."</p>
-<p>Seiwa Rieko nodded her Head at Otagi Yuka's advice, but she didn't agree with Otagi Yuka's Words.</p>
-<p>For Seiwa Rieko, shaping blood into a Rope was easier than shaping it into blades or Needles.</p>
-<p>It seemed that the Hangman's noose Rope had been so deeply engraved in Seiwa Rieko's Simsang when she attempted suicide.</p>
-<p>"...Let's head back now."</p>
-<p>Like that, Otagi Yuka and Seiwa Rieko returned to the Federal Superpower Management Department's Safe House. While returning, Otagi Yuka gave Seiwa Rieko various pieces of advice, and Seiwa Rieko diligently listened to the advice, striving to develop herself.</p>
-<p>Upon arriving at the Safe House, Otagi Yuka and Seiwa Rieko each went to their rooms. Seiwa Rieko, who came out after a Shower, went up to the 4th floor for a Reason she didn't even know herself.</p>
-<p>As she went up to the 4th floor, Seiwa Rieko realized that she harbored a certain Expectation. Taira Ryuta was on the 4th floor, after all.</p>
-<p>It seemed that the thought of perhaps being able to see that shocking Scene she had witnessed the day before leaving for her USA Travel was unconsciously underlying her actions.</p>
-<p>As she went up to the 4th floor, a moaning sound reached Seiwa Rieko's ears, not betraying her Expectation. Seiwa Rieko swallowed her Saliva and used an Ability she had recently acquired. It was the Ability to spiritualize her Body and seep into the Darkness.</p>
-<p>When she went to Taira Ryuta's room, the door was slightly open. As expected, the moaning sound was coming from that door Gap.</p>
-<p>'I can't see well....'</p>
-<p>Seiwa Rieko subtly pushed the door with her finger. The door opened more than she expected, but perhaps because they were focused on Sex, neither of them seemed to have noticed.</p>
-<p>"...!"</p>
-<p>Seiwa Rieko's Eyes widened. It was a different Woman from before. Clearly, when she had seen them the day before leaving for her USA Travel, it had been Seizawa Shii and Otagi Yuka, but this time, it was Kurayamada Kirie, a Woman with a hime-cut, whose Body was intertwined with Taira Ryuta's.</p>
-<p>"Haa, Haeueung! Inside my Pussy, Eungheueut♥ I love the Feeling of your Cock, haaa! Heueut!"</p>
-<p>Seueuk....!</p>
-<p>Seiwa Rieko, still sitting, subtly lowered her Hand down there. Using Kurayamada Kirie and Taira Ryuta's Sex Scene as a side dish, she began to Masturbate over her Clothes.</p>
-<p>Clearly, since she had experienced Sexual Assault, Seiwa Rieko had only felt Aversion towards anything Sexual, but Taira Ryuta's Sex Scene was Arousing her more than anything else.</p>
-<p>'Haa, haa.... I'm strange...!'</p>
-<p>Having melted into the Darkness and hidden her Presence, she couldn't bring herself to Moan aloud, so Seiwa Rieko bit her Lips, quietly stimulating her Pussy with her fingers and Masturbating.</p>
-<p>Unlike Taira Ryuta's Expectation that they wouldn't have arrived in New York yet, Behemoth and Whisper had already entered New York several days ago.</p>
-<p>However, when Behemoth and Whisper entered New York, the Black Knight's activities had already stopped, so they were merely waiting for a moment.</p>
-<p>"Kwaaaah! I can't stand it anymore! How long on earth are you telling me to wait?!"</p>
-<p>Kuung!</p>
-<p>Behemoth slammed down on the iron desk and shouted. Seeing the iron desk dented in the shape of a Palm, Whisper frowned, clicked her Tongue, and opened her Mouth.</p>
-<p>"It's only been a few days, what can't you stand? Just think of it as a Vacation and Rest."</p>
-<p>"You, bitch, might like to Rest if there's no Work, but I'm not like that...! I have to move my Body directly! A lazy bitch like you isn't needed in our Superior, understand?!"</p>
-<p>"Heung...! Crazy Bastard. I know you're just saying 'lazy' or whatever because you want to kill People, you know?"</p>
-<p>As Whisper said, Behemoth was a murder maniac who enjoyed Murder. He had come all the way to New York to catch the big fish called the Black Knight, but as soon as he arrived in New York, that big fish suddenly hid itself, so he was just taking out his anger on Whisper, calling her lazy.</p>
-<p>"Just wait a little. It's Time for our informant to bring the Information."</p>
-<p>"Heung! Obviously, it'll be useless Information! There's no way those who can't even fight would be good at anything else!"</p>
-<p>Superior was the largest anti-national Superpower organization in the USA. Naturally, its power was spread across the entire Nation, and New York was no exception. Because Superhumans each gathered Information, quite a lot of high-quality Information was accumulating for Superior.</p>
-<p>Although Behemoth had called Whisper lazy, while Behemoth was grumbling, Whisper had requested Information from a local Superhuman informant affiliated with Superior in New York, and was now waiting for that Information.</p>
-<p>Ttok-ttok-ttok!</p>
-<p>"Come in."</p>
-<p>After waiting a little, someone knocked on the door. Whisper, who used Sound as a Weapon, also had good Hearing, so she knew that the Footsteps she heard were those of the informant, and told them to come in as soon as they knocked on the door.</p>
-<p>The one who entered was a slightly mouse-faced Latin man. He had the Ability to control Mice, and was proficient at gathering Information using them.</p>
-<p>"So, what Information did you bring?"</p>
-<p>Behemoth asked the mouse-faced man, almost growling.</p>
-<p>"Heeik...! Ah, the Information.... I don't really know where the Black Knight you mentioned is... Heeik!"</p>
-<p>Kwang!</p>
-<p>As soon as he said he didn't know, Behemoth slammed the desk again. The desk had endured one Shock, but it couldn't endure the second, and it ripped apart with a Jjeo-eok. The mouse-faced man, seeing the iron desk tear, was startled again and closed his Mouth.</p>
-<p>Because he was of the same Superior Affiliation, the desk became the Target of his anger; if he had been from a different Affiliation, the mouse-faced man's Head would have exploded instead of the desk.</p>
-<p>"First, hear everything, then get angry, Jacob."</p>
-<p>"Heung...! Okay, continue."</p>
-<p>As Whisper spoke softly, even calling Behemoth by his Name, Behemoth, as if there was nothing he could do, spoke to the mouse-faced man.</p>
-<p>"H-but.... I can roughly predict where the Black Knight will appear in the future."</p>
-<p>"Where is that?"</p>
-<p>"It's the AmSang auction, two days from now, at midnight."</p>
-<p>An AmSang auction.... Whisper muttered to herself. Even Superior dared not touch AmSang.</p>
-<p>Superior's military power might be superior, but AmSang was a huge Group that held the economy of the World's underworld, so even Superior could not recklessly antagonize them.</p>
-<p>"Tell me the Reason you predict that."</p>
-<p>"Due to the activities of the Black Knight and the vigilantes, only Thugs are left on the Streets. In my opinion, the Black Knight is currently taking a Rest Period because he has no Prey. But the item appearing at this AmSang auction is something called the Shard of Omniscience...."</p>
-<p>"The Shard of Omniscience?!"</p>
-<p>Cutting off the mouse-faced man's Words in the middle, Whisper spoke as if shouting. She seemed to already know what the Shard of Omniscience was. When the mouse-faced man and Behemoth looked at Whisper with a 'What?' Expression, Whisper waved her Hand and said.</p>
-<p>"Sorry.... It's nothing, so continue."</p>
-<p>"Y-yes...! The Story is that the Shard of Omniscience will appear at auction, and rumors are spreading that not only the New York underworld but also underworld figures, Magicians, and Sorcerers from all over the World are gathering in New York. If Villains gather, wouldn't the Black Knight naturally follow?"</p>
-<p>In Fact, it was a completely wrong prediction, but the mouse-faced man had accurately matched the movement itself. Because it sounded plausible, Behemoth and Whisper nodded their Heads.</p>
-<p>"Good. So, we just need to Target the Black Knight who will appear at the auction two days from now, right?"</p>
-<p>"Y-yes, sir!"</p>
-<p>"Heung...! If it's only about two days, I can endure it."</p>
-<p>Behemoth, having heard the mouse-faced man's definite answer, went into his room. Whisper, watching such a Behemoth, let out a Sigh and looked at the mouse-faced man.</p>
-<p>"Is there any other Information?"</p>
-<p>Because Whisper knew the importance of Information well, she intended to hear other Information from the mouse-faced man.</p>
-<p>"Shall I give you a comprehensive Report on the New York Situation?"</p>
-<p>"Okay, tell me."</p>
-<p>"First...."</p>
-<p>Whisper listened to the mouse-faced man's Story and began to record the Information in her Notebook. While speaking the Information, the mouse-faced man thought that Famine had dispatched the two individuals to New York well.</p>
-<p>This was because he felt that the Compatibility between Behemoth, who was rough and didn't care about small matters, and Whisper, who was meticulous and thorough, was quite good.</p>
-<p>Seiwa Rieko in a cyber Suit~!</p>
-<p>Chomisaemeonji-nim requested Liz wearing only a dress shirt and only a jumper~!</p>
-<p>Dress shirt</p>
-<p>Jumper~!</p>
-<p>Gojoy-nim requested Chapter 11 Illustrations: 1. Arisu waving her Hand in the car 2. Arisu eating delicious Dakgalbi~!</p>
+<p>"But why did you prepare a shotgun?"</p>
+<p>As I pointed at the shotgun and asked, Sawayanagi Azuma smiled and shook the shotgun Ammunition.</p>
+<p>"It's not that the shotgun is special, but the Ammunition is special."</p>
+<p>The shotgun Ammunition is special, not the shotgun itself? It just looks like ordinary shotgun Ammunition.</p>
+<p>"It's Ammunition called Dragon Breath, and instead of buckshot, it contains Metal Powder like magnesium and zirconium, so it can fire Flame. It doesn't have much stopping power due to its lack of physical force, but I saw myself dealing with those Thorns in a premonition."</p>
+<p>Ah...! From the explanation, it seemed like a single-shot Flamethrower. Quite cool, isn't it? Since it's dealing with thorny Plants, it would definitely be helpful. It probably means she intends to defeat it with Attribute Compatibility/Affinity rather than the physical force of bullets.</p>
+<p>"Kirie-ssi, you remember what I said, right?"</p>
+<p>"Yes."</p>
+<p>Sawayanagi Azuma and Kurayamada Kirie exchanged Words that I couldn't understand.</p>
+<p>"I'll use it now."</p>
+<p>Before I could even ask what she meant, Sawayanagi Azuma raised the shotgun and said. And immediately, she began firing Dragon Breath buckshot at the Thorns blocking the Passage.</p>
+<p>Tang! Tang! Tang!</p>
+<p>Along with the sound of the Gun firing, Flame poured from the Muzzle, beginning to burn the Thorns. This seems to have a range far exceeding 20 meters, doesn't it?</p>
+<p>-Kieeeeh!</p>
+<p>With a strange roar, as if in pain, the entire thorny wall burned away, opening a Passage to the alley.</p>
+<p>"Go now!"</p>
+<p>It was Sawayanagi Azuma, urging us to pass quickly. As she had said beforehand, she seemed to intend to send us first, then deal with those Thorns here and follow. Since she would already know this Situation through premonition, Sawayanagi Azuma wouldn't be in Danger, and there would be a Reason for us to go alone.</p>
+<p>"Be careful, Azuma!"</p>
+<p>Still, after telling her to be careful, Kurayamada Kirie and I ran down the alley where the Thorns had disappeared. Thorny vines occupying the Building burst out from the side window and attacked us, but Kurayamada Kirie swung her long Sword, cutting them down, allowing us to advance.</p>
+<p>As Taira Ryuta and Kurayamada Kirie passed through the alley, the Building occupied by the Thorns began to shake.</p>
+<p>Kwaaaang!</p>
+<p>Thorny vines burst through the Building's window and attacked Sawayanagi Azuma as if to impale her. Seeing the vines shoot out quite violently, it seemed to know who had attacked it.</p>
+<p>If Sawayanagi Azuma had moved with Taira Ryuta, the owner of these Thorns would have tracked them to the end, which is why Sawayanagi Azuma remained alone.</p>
+<p>Sawayanagi Azuma, as if she had known beforehand, took half a step to evade the Thorns, then fired the shotgun.</p>
+<p>Taang!</p>
+<p>The Dragon Breath Ammunition spewed Flame, and the flammable Metal Powder clung to the Thorns, setting them on Fire. As Fire caught, the Thorns writhed as if feeling Pleasurable Ache.</p>
+<p>"Sorry, but you'll have to die. ThornyVine."</p>
+<p>Sawayanagi Azuma said, looking at ThornyVine, the thorny vine writhing in Pleasurable Ache. Due to several premonitions, it was an Enemy she was meeting for the first time today, but Sawayanagi Azuma already knew its nickname.</p>
+<p>The True Identity of this ThornyVine was one of the Black Sage's Collection, kidnapped like the fake Black Knight, and the Black Sage had enhanced ThornyVine's Ability to use thorny vines through strange Drugs before having it participate in the battle for the Book of Omniscience.</p>
+<p>Although it became incredibly strong due to the Drugs, as a Price, ThornyVine's Fading Reason, which was already clouded by Brainwashing, almost disappeared, leaving only animalistic Instinct.</p>
+<p>Sawayanagi Azuma began throwing the Bomb she received from Kurayamada Kirie through the window of the Building occupied by ThornyVine. Thorny vines burst through the window and wall, attacking Sawayanagi Azuma, but Sawayanagi Azuma easily evaded, as if she already knew the Attack.</p>
+<p>Kwaaaang!</p>
+<p>Inside the Building, the Bomb exploded with a roar. Sawayanagi Azuma, who already knew through premonition that all the People inside the Building had died and become nutrients for ThornyVine, could pour Bombs into the Building without hesitation.</p>
+<p>-Kuaaaah!</p>
+<p>With a monstrous scream, the Building began to collapse. The Remains of the Building and H-beams fell to the floor, but Sawayanagi Azuma evaded the falling debris as if she could see the Safety zone.</p>
+<p>What was revealed after the Building disappeared was a giant thorny Tree. Many places were scorched or wounded from the explosion, oozing sap, and in the middle of the thorny Tree, ThornyVine's Face, covered with a Bandage, was embedded.</p>
+<p>"Taking your life, ThornyVine, would be an act of Mercy."</p>
+<p>Sawayanagi Azuma, feeling Sympathy for ThornyVine's Appearance, fired Dragon Breath Ammunition with her shotgun.</p>
+<p>With the Tangtang sound of gunshots, the Tree's Body caught Fire. And at the burning spot, she threw a Plastic container mixed with tar and Gasoline. The Plastic melted by the Flame, and the flammable substances inside also began to catch Fire.</p>
+<p>Since a single Bullet couldn't sustain the Fire for long, she threw an igniter to continuously maintain the Ignition status effect.</p>
+<p>ThornyVine, an overwhelming entity in the form of a giant Tree wielding thorny vines, had poor Compatibility/Affinity with Sawayanagi Azuma, who had already experienced the future through premonition and completed her Preparation. This was because it had a fatal Weakness: Fire.</p>
+<p>Sawayanagi Azuma continued firing the shotgun loaded with Dragon Breath Ammunition, and this time, she began climbing ThornyVine's Main body. Ultimately, to defeat ThornyVine, she had to remove ThornyVine's Main body, which was inside the thorny Tree.</p>
+<p>As if realizing Sawayanagi Azuma's Purpose, countless thorny vines poured out, but Sawayanagi Azuma fired her shotgun and threw Bombs, achieving Neutralization of the thorny vines.</p>
+<p>"...."</p>
+<p>Having reached ThornyVine's Head, Sawayanagi Azuma aimed a rifle, not a shotgun, at ThornyVine's Head. This was because she wanted to kill ThornyVine, who could be called a Victim of the Black Sage, in one go, rather than continuously inflicting the Pleasurable Ache of burning.</p>
+<p>Tang!</p>
+<p>The Muzzle spewed Fire, and a Small hole appeared in ThornyVine's Head. ThornyVine's clouded Eyes found their Last Light. ThornyVine sent Sawayanagi Azuma a Gaze of gratitude for the Release, then dropped its Head.</p>
+<p>"Rest in peace now, ThornyVine."</p>
+<p>Sawayanagi Azuma muttered with a bitter Expression. Simultaneously, the thorny Tree began to wither rapidly. Sawayanagi Azuma quickly descended before the Tree completely decayed and collapsed.</p>
+<p>"Command post, this is Azuma. I have occupied the blocked V1 Point, over."</p>
+<p>-Understood. Please call if there are any unusual circumstances.</p>
+<p>Sawayanagi Azuma, having reported to the Command post, leaned against the alley wall and briefly sat down on the floor. She wasn't physically exhausted, but she was mentally exhausted from having to continuously recall the premonition's Situation and fight.</p>
+<p>Naruse Shiyo was watching the battle from outside the window.</p>
+<p>She had been comfortably waiting in an empty Home near the Point to see if the Black Knight would come or not, when a Heupyeolgui unit and the Silver Stake Alliance, called SPF, began fighting each other in the area she was in charge of.</p>
+<p>According to the various Information Naruse Shiyo had gathered, both the Heupyeolgui and SPF were aiming for the Book of Omniscience, but their current Behavior seemed to focus more on preventing the Opponent from obtaining a Fragment of Omniscience rather than acquiring it themselves.</p>
+<p>"Since it's this Vicinity.... Seari-ssi's team and Mari-ssi's team will have a hard time because of the Heupyeolgui and SPF, won't they?"</p>
+<p>Naruse Shiyo said, spreading out a map. Because the numerous Heupyeolgui unit and SPF had seized the Surroundings, the Group near Naruse Shiyo could also be attacked by the Heupyeolgui or the Silver Stake Alliance.</p>
+<p>Of course, Naruse Shiyo was lucky enough to find an empty Home where she could observe the Surroundings early on, so she was just watching others fight without engaging in battle, but the remaining Groups would likely be attacked as they continued to roam the alleys.</p>
+<p>"By the way, the Heupyeolgui aren't really able to use their Power."</p>
+<p>These Heupyeolgui seemed specialized in ambush rather than Vampire Authority, using Concealment and Marksmanship, but they couldn't shake off SPF's Vampire Tracking, which was already seasoned in Vampire hunt, and were being exterminated by concentrated silver bullet Marksmanship.</p>
+<p>Of course, each Bullet fired by the Heupyeolgui was fatal to humans, so SPF was also suffering heavy losses when they clashed head-on.</p>
+<p>Still, a large-sized man in Knight Armor made of thick Iron Shamelessness stood in the Vanguard, crushing Heupyeolgui with a giant warhammer, and several Ability Users were slaughtering Heupyeolgui, so the Battle Situation was favorable for SPF.</p>
+<p>Kwaang! Tatatatang! Keuaaaak! Die! Kwaaaang!</p>
+<p>Naruse Shiyo observed the Surroundings, watching the battle mixed with various noise. This was because the fake Black Knight might appear.</p>
+<p>But the Black Knight did not appear until the battle between SPF and the Heupyeolgui unit ended.</p>
+<p>This battle was an SPF Victory, and the man in Knight Armor who stood in the Vanguard, crushing Heupyeolgui with a giant warhammer, achieved the greatest merit.</p>
+<p>The man in Knight Armor, standing in the middle of the battlefield filled with Heupyeolgui Corpses, suddenly raised his warhammer and pointed towards Naruse Shiyo.</p>
+<p>'I've been spotted!'</p>
+<p>Although it was a considerable distance, I felt as if my Eyes had met the man in Knight Armor. The man in Knight Armor said something to his Subordinates, then soon left the battlefield; judging by the direction he was moving, he probably said he would intervene in the Fragment of Omniscience battle.</p>
+<p>"Phew...! I guess I have no choice but to fight."</p>
+<p>Naruse Shiyo gathered her Weapons and stood up from her Seat. This was because the man in Knight Armor had left, and the remaining SPF Subordinates were approaching the Place where Naruse Shiyo was.</p>
+<p>Chomisaemeonji-nim requested School Uniform Liz, Archery Club Liz~!</p>
+<p>School Uniform Liz~!</p>
+<p>Archery Club Liz~!</p>
+<p>Gojoy-nim requested Shinoe Misano undressing 1. Removing Top 2. Removing Bottoms~!</p>
 <p>1.</p>
-<p>The scene of her lowering the Window and waving her Hand doesn't come out well haha.</p>
 <p>2.</p>
-<p>There's a bit of an awkward Feeling when she's eating Food dd. Since the specific Food called Dakgalbi wasn't Learning-trained, I roughly made it into red Food haha.</p>

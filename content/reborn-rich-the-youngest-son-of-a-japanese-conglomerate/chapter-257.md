@@ -5,90 +5,76 @@ weight = 257
 chapter = 257
 +++
 
-<p>I stopped by a nearby store and bought a simple shirt, jeans, and underwear. When I returned to the hotel, Arisu and Nae Fitzgerald greeted me naked after they had finished showering.</p>
-<p>,I was moving my body all day yesterday, so I'm hungry, hehe."</p>
-<p>Arisu stroked her belly, which didn't have an ounce of fat, and received the clothes I gave her. Nae Fitzgerald also took the clothes and started to put them on. Except for the chest, the two were almost the same size, so it was easy to buy clothes.</p>
-<p>,Oh my, it fits perfectly? How does Ryuta know his aunt's body size so well?"</p>
-<p>,Mom, stop it. I told him."</p>
-<p>I stopped Nae Fitzgerald, who was trying to joke around with a sexy expression, and we left the hotel. We went straight to the brunch restaurant I had reserved and ordered several dishes. Everyone had burned a lot of calories in the early morning, so we were all very hungry, and the four of us ordered almost ten servings.</p>
-<p>,So, where is Francois' hideout?"</p>
-<p>I asked Nae Fitzgerald while eating an Eggs Benedict. Considering what she's stolen so far, she must have quite a bit of stuff. I don't know how much, but the Phantom Thief's hideout must be a pretty big building.</p>
-<p>,I'll take you there myself, so don't be so impatient."</p>
-<p>Nae Fitzgerald wiped the hollandaise sauce from the Eggs Benedict off the corner of my mouth with her hand and sucked it sensually as she answered. Arisu frowned at the sight, but she just glared at her because her mouth was full of bagel.</p>
-<p>After finishing our meal, we took the cars and motorcycles we had each driven and arrived at one of New York's many skyscrapers.</p>
-<p>It was the New York branch building owned by Légion, a French luxury brand that produces clothes, shoes, and bags, and it was an 80-story skyscraper.</p>
-<p>It turned out that the president of this company was none other than Nae Fitzgerald. The reason why Nae Fitzgerald's frequent business trips and phantom thieving didn't get caught by the rest of her family was because she had the title of president of this Légion company. Since the headquarters were in Europe, she could make excuses for business trips that often.</p>
-<p>,Does it have a branch in Japan too?"</p>
-<p>,Isn't that obvious? Our company isn't that small."</p>
-<p>That's not what I meant. I was asking because I thought Arisu might have collected things at the Japanese branch as well.</p>
-<p>Because it was such a tall building with 80 floors, it wasn't just Légion that was located there, but several other companies were also there. From the 70th floor onwards, it was a space where only the president, Nae Fitzgerald, and those she allowed could enter.</p>
-<p>Arisu and Nae Fitzgerald expertly operated the elevator exclusively for the president in one corner of the parking lot.</p>
-<p>It was an elevator that could only be operated with a password, fingerprint, and iris recognition. And they temporarily registered me and Mimata Chieri-ssi with the installed management AI. I guess that's how you can ride the elevator?</p>
-<p>If you ride the elevator together without any registration, the AI ​​will judge that Nae Fitzgerald is being threatened and notify the PMC that is contracted with her. Amazing, huh?</p>
-<p>Without stopping, we went up to the 70th floor. After getting off the elevator and doing a full scan (because someone might get just the iris and fingerprint separately and come up), we were able to get off.</p>
-<p>,What if someone cuts off Nae-ssi's iris and thumb and comes up like you just said?"</p>
-<p>,Twenty gun barrels are aimed at you at an angle that you can't avoid, so if you get caught in this scan or move right away in the elevator, they'll all fire at once."</p>
-<p>Hmm, maybe it's because it's a machine, but I didn't feel any bloodlust, so I didn't even know there were guns pointed at me. We followed Nae Fitzgerald as she finished scanning and got out of the elevator. As we all got off, a robot wearing a maid outfit approached us. It was a metal robot with four arms, but it was just wearing a maid outfit.</p>
-<p>,Master, are these guests?"</p>
-<p>,Yeah. I called them to show them around, so don't shoot."</p>
-<p>,Understood. Have a good time."</p>
-<p>The maid robot disappeared and we slowly started to look around the 70th floor. In fact, there weren't that many things to see on the 70th floor because there were many guns placed to snipe people who came. There were mainly warehouses for parts used by maid robots, ammunition warehouses for guns, and warehouses with detergents and cleaning agents needed to manage treasures.</p>
-<p>,It's rare to see artificial intelligence robots here, isn't it?"</p>
-<p>,Due to the nature of the job, robots are more reliable than humans. And because they're all valuables, they need precise management."</p>
-<p>Well, since she's Phantom Thief Francois, who has a huge bounty on her head, it would be hard to trust people. Moreover, since there are many expensive relics, AI ​​management would be better as it requires continuous management.</p>
-<p>,Shall we go to the 71st floor?"</p>
-<p>From the 70th floor, you could take an escalator instead of an elevator. Nae Fitzgerald explained that there was a button to adjust the direction of going up or down before getting on, so only one line could be installed on each floor, which prevented waste of space.</p>
-<p>It was definitely different from the 71st floor. Works by various artists were on display, and historical materials were also in vacuum-sealed glass cases.</p>
-<p>I wasn't very interested in works of art or historical materials, so I went to the floor displaying accessories and weapons to see if there were any weapons with good options.</p>
-<p>After looking around at the beginning, there were some weapons with a few options, but since artistry was the main focus, there didn't seem to be anything I could take.</p>
-<p>Oh? There's a collection of Japanese swords. As expected, most of them were precious weapons that were used by famous people in ancient times, but there was only one that was useful as an equipment item. But that one was quite a jackpot.</p>
-<p>◆Blue Sky Thunderbolt / Aohamahekireki (靑天霹靂) [Legendary Sword]</p>
-<p>A weapon that came from another dimension. It is the favorite weapon of Yi Cheong-un (李淸雲), a legendary master of the Jin Dynasty, and when infused with lightning energy, its blade transforms into lightning.</p>
-<p>The achievements and deeds accumulated countless times with the former owner give the user special power.</p>
-<p>●Lightning Affinity+</p>
-<p>●Additional damage to dark, blood, and chaos attributes</p>
-<p>●Traces of swordsmanship are hidden.</p>
-<p>What? I only thought about epic-grade items even if there was something useful, but I didn't expect anything more than that, but it's a legendary grade... It's a lightning attribute weapon, so I thought Alexandra, who is training hard, would like it.</p>
-<p>As I examined it closely, Nae Fitzgerald came up behind me and whispered in my ear.</p>
-<p>,Do you want it?"</p>
-<p>,Yes, I like it."</p>
-<p>When I said I wanted it, Nae Fitzgerald looked at the Blue Sky Thunderbolt standing in a long glass case and tilted her head. It must be because it wasn't a weapon with a long history, and the era and maker were unknown.</p>
-<p>,Arisu must have picked this one... Arisu, come here!"</p>
-<p>Arisu was explaining things to Mimata Chieri-ssi, who she had become close to, but when Nae Fitzgerald called her, she ran over.</p>
-<p>,Mom, why?"</p>
-<p>,Did you bring this?"</p>
-<p>When Nae Fitzgerald pointed to the Blue Sky Thunderbolt, Arisu nodded.</p>
-<p>,I think I got this because it would be helpful to Ryuta."</p>
-<p>How did she know it would be helpful to me and get it? I'm a little curious, but maybe she has some kind of precognitive ability about things like Sawayanagi Azuma. I didn't intend to ask her every little detail. I'll find out later with the glasses from the ruins.</p>
-<p>,Still, if I'm going to give you this precious sword, I should get something in return, right?"</p>
-<p>What kind of reward does she want? Of course, I couldn't just receive a legendary-grade weapon, so I wanted to give something in return.</p>
-<p>,What do you want?"</p>
-<p>,Buy me accessories like necklaces or rings like Arisu."</p>
-<p>Actually, I gave Arisu a gift because of the options, but women seem to give quite a bit of meaning to rings and necklaces, so Nae Fitzgerald seemed to want to receive something from me too. Is it like a proof that she has become my woman?</p>
-<p>,Okay. I'll get you something good."</p>
-<p>The only place to get items in New York now was the black market auction house, so I'll try to get it there. Or I can go to LA to get it.</p>
-<p>,Then I'll give it to you in advance♥ You have to give it to me, okay?"</p>
-<p>Nae Fitzgerald entered a password on a touchpad-like device among the exhibits and registered her fingerprint, and the glass case surrounding the Blue Sky Thunderbolt began to open.</p>
-<p>Taking things out of the glass case is quite complicated. Nae Fitzgerald carefully grabbed the Blue Sky Thunderbolt and handed it to me. Since it's a sword, should I send it to the black market again...?</p>
-<p>,It's going to be a hassle to take it to Japan."</p>
-<p>,Oh, should I bring it to you then?"</p>
-<p>Nae Fitzgerald asked, smiling brightly at my words. She seemed even happier because it could be an excuse to meet in Japan. I could send it to the black market, but Alexandra, who can use this sword properly, is still receiving training from Seryu Tai, so it'll be okay even if it takes a little longer.</p>
-<p>,Then let's exchange it for the gift I prepared at that time."</p>
-<p>,Oh my! That's so romantic, Ryuta♥"</p>
-<p>I didn't think much of it when I said it, but seeing Nae Fitzgerald so moved, I thought that this woman is very easily moved by someone she's fallen for.</p>
-<p>I handed the Blue Sky Thunderbolt back to Nae Fitzgerald and looked around the exhibits up to the 77th floor. There were one or two things I liked, but I'll have to ask for them next time. It wasn't an item I needed right away, and I felt a little sorry to ask for another one after receiving a legendary item.</p>
-<p>,The 78th floor is like an operation room used by Phantom Thief Francois. The 79th floor is where the equipment is, and the 80th floor is a resting space where you can relax."</p>
-<p>Ah, I see. It seems that the entire 10th floor wasn't an exhibition hall. The items on the seven floors from the 71st to the 77th floors are definitely not small, but if you include the Légion headquarters building in Europe and the Japanese branch building in Japan, it must have a truly unimaginable value, right?</p>
-<p>,Then the tour is over. I'm going to the black market auction tomorrow morning, but what are Arisu and Nae-ssi going to do?"</p>
-<p>,We also often visit black market auctions. We sometimes put our items up for auction when there's not enough exhibition space."</p>
-<p>Ah, there are definitely times in the game when items that are known to have been stolen by Phantom Thief Francois are circulating, so they come out and circulate from the black market auction.</p>
-<p>,Then let's go back to the mansion and rest now, and come out again in the morning. Are you tired?"</p>
-<p>Nae Fitzgerald seemed to be worried about my stamina after shaking my waist all night long, probably because she hadn't properly experienced me yet.</p>
-<p>,No. I can do it with Nae-ssi a few more times right now."</p>
-<p>,Oh my♥ Shall we go to the 80th floor then?"</p>
-<p>As expected of a married woman, she didn't back down at all even to my sex jokes. Arisu, who was watching the scene, puffed up her cheeks and said a word.</p>
-<p>,Mom! The bed on the 80th floor is small, so if you want to do it together, a hotel would be better!"</p>
-<p>Ah, is that what she meant? I thought she was going to tell Nae Fitzgerald to stop hitting on me.</p>
+<p>Okutama-machi, being a mountain village in Tokyo, surprisingly had tourist demand. It was mainly thought of by people who came to enjoy camping or who wanted to get away from the bustling city but couldn't afford to go far.</p>
+<p>So, there was a surprisingly large hotel, and coincidentally, there was a room like the largest party room, so I rented it, and since driving would be impossible after drinking, I additionally booked 2 rooms for the women and 3 rooms for the men.</p>
+<p>I was just planning to play in the big room and sleep there right away.</p>
+<p>,The room is big~. Oppa.</p>
+<p>,Alik and Darim are going to spread out the pizza.</p>
+<p>Alik took Jeong Darim, who was surprised by the hotel room, and started spreading out the pizza on the table. Seven pizzas were spread out, and I put the ice cream, drinks, and alcohol that Alik and Jeong Darim had chosen in the refrigerator. They'll eat the jelly and snacks on their own if I put them on one side.</p>
+<p>Soon after, the Sawayanagi Azuma team bought chicken, and the Sawayanagi Tobe team couldn't grill meat, so they bought a large amount of skewers.</p>
+<p>,If we don't have enough, we can order by phone and they'll deliver it.</p>
+<p>Choi Jin-ha, a petrification ability user, said as he placed the skewers on the table. It seemed like he was slightly looking at me, as he couldn't pack as much as I had ordered since they were grilling them one by one.</p>
+<p>,Yeah, we can just order more if we don't have enough.</p>
+<p>,They also deliver chicken.</p>
+<p>Sawayanagi Azuma bought a sufficient amount of chicken, but she said it with an expression of wondering if it might not be enough.</p>
+<p>,You guys aren't adults yet, so it's drinks for you.</p>
+<p>I said, handing the trainees bags of drinks. Choi Jin-ha, Lee Doo-young, and Kim Young-chan looked disappointed, but there's nothing they can do about it.</p>
+<p>,I'll have beer~!</p>
+<p>Rianna Holden happily took a can of beer, Sawayanagi Azuma chose a highball, and Sawayanagi Tobe chose Sake.</p>
+<p>I'm immune to poison because of my Abyss-Bound Body trait, but I'm also immune to intoxication, so I was thinking of just drinking a soft drink, but I chose a beer that goes well with chicken or pizza.</p>
+<p>,How's Doo-young doing? Has his regeneration ability gotten any better?</p>
+<p>Lee Doo-young was a regeneration ability user, and he used to complain that his regeneration ability was terrible in the beginning because he wasn't in good nutritional condition when he was rescued.</p>
+<p>So, I, who am also a regeneration ability user, advised him to eat a lot because regeneration ability requires nutrients, and today, his body looked quite good, so it seemed like his regeneration ability wasn't bad.</p>
+<p>,Investor-nim, as you said, my ability is getting stronger because I'm eating well.</p>
+<p>,Even if you have regeneration, you must wear a helmet when fighting. You can't regenerate if you hurt your head.</p>
+<p>I also used the tactic of covering my head with my arms and approaching when fighting enemies with guns, so I gave advice to Lee Doo-young, who clearly had a lower regeneration ability than me. Starting with this advice, Lee Doo-young and Kim Young-chan asked me what they were curious about.</p>
+<p>Choi Jin-ha was learning a lot as a disciple-like position of Sawayanagi Tobe, who has a similar steelification ability to himself, so it seemed like he didn't have anything he was curious about from me.</p>
+<p>Lee Doo-young was also learning with Katayama Junichi as his mentor, and Kim Young-chan was also learning with Sawayanagi Mikiyo as his mentor, but since both of their mentors were not ability users, it seemed like they were asking me what they were curious about since it had been a while since they had met me.</p>
+<p>In fact, I know a lot about traits, so I could give advice unless it was a really rare trait, but since it was a bit of a hassle, I decided to pass Kim Young-chan on to Yang Seol-hui, who is currently taking root in the Korean and Japanese underworld with Dang So-hwa. Lee Doo-young was the same regeneration ability user as me, so I had no excuse and had to give him advice.</p>
+<p>,I don't know much about clairvoyance, so I'll introduce you to a clairvoyance ability user I know.</p>
+<p>,There's another clairvoyance ability user besides me?</p>
+<p>Kim Young-chan was very surprised at my offer to introduce him. He probably thought he was the only ability user in the world.</p>
+<p>,Just like Doo-young is the same regeneration ability user as me, there's another clairvoyance ability user somewhere. The person I'm going to introduce is like that too.</p>
+<p>,I'm learning shooting from Mikiyo-ssi, but I have to develop my ability on my own, so I was frustrated, but thank you for introducing me.</p>
+<p>He must have been frustrated. Since there was no one in Seiryutai with a vision-type trait, he had to do it himself.</p>
+<p>,Alik learned a little from Seari.</p>
+<p>Alik seemed to have learned some tips from Sawayanagi Seari, a wind ability user who is the same nature force user. When I think about it, Sawayanagi Seari had the highest potential in Seiryutai, so it would be good to nurture her... I should give her some advice when I meet her next time.</p>
+<p>,Yeah, show me later. But didn't you learn from Kiyona Mari-ssi? She's the same nature-type ability user.</p>
+<p>Rather than Sawayanagi Seari, a wind ability user, Kiyona Mari, a pyrokinesis ability user, would have better compatibility with Alik's lightning ability.</p>
+<p>,Ah, Mari is additionally employed in the mission that Investor-nim introduced, so she hasn't been able to attend the trainee training yet.</p>
+<p>Hmm, what was the mission I introduced...? Ah! I remember introducing Wano Haruto and Sawayanagi Sinya to Alik and Konoe Akina, who was rescued with the current trainees.</p>
+<p>I remember hiring them to investigate the uncle who is suspected of killing Konoe Akina's father and to protect Konoe Akina.</p>
+<p>,Ah, then there's nothing we can do. But hasn't the Konoe mission ended yet?</p>
+<p>,I don't know the details, but they said they're going to reveal the whole story at a family clan meeting.</p>
+<p>Hmm, that sounds interesting... I should ask Konoe Akina if I have a chance to meet her later. If her plan succeeds, she'll become the head of the Konoe family, so it might be difficult to meet her because she'll be busy, but I'm in the position of Konoe Akina's benefactor, so I'll be able to meet her at least once.</p>
+<p>As the dinner time passed, it gradually became more and more lively. The one who led the atmosphere was Rianna Holden, who has a bright and cheerful personality.</p>
+<p>Rianna Holden told various stories while mixing in her unique English. She told the trainees interesting stories from the missions she had experienced or told them tips for the future.</p>
+<p>Speaking of future work, I became curious and asked Sawayanagi Azuma.</p>
+<p>,By the way, where do the kids stay after the training is over?</p>
+<p>,There are still rooms left in the accommodation that Investor-nim provided. We'll have them stay there, and if they want, they can live on their own. Of course, they have to pay for their own living expenses, so I think they'll stay in the accommodation for a while?</p>
+<p>I'm satisfied to see them living well in the building I provided. Some of the Seiryutai members are currently living independently, so there must be more rooms available.</p>
+<p>,But Investor-nim, how about contacting the Krascano human traffickers who rescued the kids again?</p>
+<p>,Huh?</p>
+<p>,The public opinion of ability users is so bad right now, so they might dispose of them.</p>
+<p>Ah...! Since the public opinion is so bad and they're ability user slaves who are difficult to handle, they might cut their losses and 'dispose' of them. Alik, the electric ability user, and Konoe Akina, who was difficult to handle because of her magic eyes, were also subject to disposal, so in the current situation, it's understandable that they would think similarly.</p>
+<p>,I'll contact them while I remember.</p>
+<p>I turned on the dark web app on my phone and went to the previous transaction list. When I looked at Krascano, I found the ID Krascano_GOODMAN that I had traded with at that time and sent a text.</p>
+<p>-I'm the person who bought the ability users at that time. Do you have any more ability users?</p>
+<p>Soon, the read mark appeared and I got a reply.</p>
+<p>-You haven't bought anything in a while, but do you need more? I've heard rumors that a certain Korean company has been buying up ability users like crazy recently, so the price has gone up a bit. We don't have any items on our side, so we have to look for vendors who have items, so the price will go up even more.</p>
+<p>Ah, it seemed that the Cheil Group, which was originally going to make Alik a middle boss, was buying up ability users like crazy because they thought ability users would be useful as a result of the ability user incident that happened this time. When I think about it, it's a relief. If I had been a little late, Alik would have been caught by the Cheil Group and become a human weapon.</p>
+<p>-I understand. I'll wait for your call.</p>
+<p>Fortunately, it seemed that the disposal that Sawayanagi Azuma and I were worried about wasn't happening thanks to the Cheil Group. Still, I thought it would be better for us to buy them than to go to the Cheil Group and be subjected to various human experiments as human weapons, so I left a positive text and turned off my phone.</p>
+<p>,It seems like there aren't any people being disposed of.</p>
+<p>,Ah... That's a relief.</p>
+<p>Sawayanagi Azuma smiled slightly with a relieved expression.</p>
+<p>The dinner time passed quickly, and as the food that everyone had bought started to run out one by one, the atmosphere of the dinner party gradually faded.</p>
+<p>,I've booked a few rooms, so take these keys.</p>
+<p>,Oh, Really? I thought we were all going to sleep in this room.</p>
+<p>Everyone who had the dinner party cleaned up the table and scattered to their respective rooms. The three male trainees who were going to use the same room took the remaining drinks and snacks and went to their room, thinking of playing a little more, and the others also left the room. Only Alik whined that he wanted to sleep with me, Ryuta, but Jeong Darim and Rianna Holden grabbed his arms and legs respectively and moved him to his room.</p>
+<p>I looked around the whole room to see if it was all cleaned up and took a shower. After taking a shower, it was still early to go to bed, so I was thinking of watching a movie when I heard someone knocking on the door.</p>
 <p>-----</p>
-<p>A commemorative picture of Alik mentioned after a long time</p>
-<p>I'm making it by changing the model haha</p>
+<p>Wind attribute Sawayanagi Seari!</p>
+<p>Surprisingly, she's older than the main character!</p>
+<p>Gothic Lolita outfit coordinated by the Kiyona Hori Mari sisters!</p>
+<p>The illustration I had made before was deleted, so I made it again from the beginning ㄷㄷ I think it's cuter....</p>

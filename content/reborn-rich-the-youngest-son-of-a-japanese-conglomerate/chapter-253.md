@@ -5,87 +5,93 @@ weight = 253
 chapter = 253
 +++
 
-<p>As the Nameless Ghoul and all traces related to it vanished due to the offering magic circle dedicated to the Daughter of the Abyss, everyone except Mimata Chieri, who knew my abilities to some extent, looked at me in surprise. But I didn't pay attention to their gazes and picked up something black that remained where the Nameless Ghoul had disappeared.</p>
-<p>It seemed that after offering tributes all this time, a gift had finally arrived from the Daughter of the Abyss. The offering I sent this time was quite rare. I sent the spiritual body of a necromancer who had lived for hundreds of years, the armor of a Death Knight, and a high-level weapon, a giant scythe, as a heaping bowl, so the Daughter of the Abyss must have been pleased.</p>
-<p>What I received was a black, glossy metal bracelet. But what's with the bracelet? When I focused my mind on the bracelet, an information window popped up.</p>
-<p>◆Battle Gear of the Abyss Consort [Legendary Armor]</p>
-<p>Equipment in the form of a bracelet made with love by the Daughter of the Abyss. When a certain amount of Abyss is infused, it transforms into black armor that covers the entire body. It was made by reforging the armor worn by a Death Knight with the pressure of the Abyss.</p>
-<p>It has powerful defense and additional performance related to the Abyss.</p>
-<p>Upon Armor Transformation</p>
-<p>●Base Defense + (Abyss + Resistance) X 75 percent additional defense.</p>
-<p>●The efficiency of Abyss stats is greatly increased, and the coefficient of Abyss-related skills is increased.</p>
-<p>●Abyss+5 Strength+3 Agility+3 Nerve+3</p>
-<p>●Immunity to Abyss stat side effects while wearing the armor.</p>
-<p>The bracelet that the Daughter of the Abyss sent as a reward for the offering was a legendary transformation armor! A legendary equipment that can transform... Amazing, Daughter of the Abyss?</p>
-<p>Reading the description, it seemed like it was made by reforging the Death Knight's armor from the offerings I sent.</p>
-<p>The options, such as the efficiency of Abyss stats or the increase in Abyss skill coefficients, weren't given in exact numbers, so I didn't know for sure, but the stats given were incredibly generous. A total of 14 stats combined. It was an amount that would require raising 7 levels.</p>
-<p>Since Abyss stat was attached with 5, I thought I wouldn't be able to use it because of the side effects, but looking at the next line, the meticulous Daughter of the Abyss had attached side effect immunity, so it seemed like I could use it well. Still, it seemed like offering tributes from time to time was being rewarded with such good items.</p>
-<p>I was very surprised by the bracelet's options, but I didn't show it and nonchalantly put on the bracelet. And I looked at Otagi Yuka.</p>
-<p>"Otagi-ssi, what are you going to do now?"</p>
-<p>Otagi Yuka, who had been thinking for a moment at my question, soon opened her mouth.</p>
-<p>"Now that the obstacle is gone, I guess I should go meet the Kurotsukido New York branch manager. I can finally avenge Mariko."</p>
-<p>Otagi Yuka seemed very moved that her year-long revenge was finally coming to an end. Mariko must be her friend's name. She put the golden sword on her shoulder and was about to leave the museum, passing by me, but she turned around and looked at me.</p>
-<p>"Oh, right! Thanks for the help. I'll help you anytime if you contact me."</p>
-<p>"Okay, finish the fight with the branch manager well."</p>
-<p>Actually, I participated to save the Fitzgerald mother and daughter, but as a result, I helped her. The help of Otagi Yuka, a vampire, will be useful someday. After watching Yuka, who greeted me and left the museum, I turned my head and looked at the Fitzgerald mother and daughter.</p>
-<p>"Did you steal everything you wanted to steal?"</p>
-<p>"Ah, no...!?"</p>
-<p>Arisu, in her thief version, who was flustered by my friendly question as if asking if she had eaten lunch, stuttered slightly as she answered.</p>
-<p>"Hurry up and go, I'll be waiting here."</p>
-<p>"Why are you waiting for us?"</p>
-<p>Nae Fitzgerald, in her thief version, asked with a puzzled voice. Isn't it too obvious? Or did she steal too many things and can't remember?</p>
-<p>"When I was doing my mission before, you stole something we had to protect. I'm going to punish you a bit for that."</p>
-<p>"Ah! I remember too, Hubae-nim! At that time, when we were fighting hard against the intruders in the lab, you sneakily stole the data!"</p>
-<p>When I said that, Mimata Chieri also seemed to remember, clapping her hands and shouting while pointing at the Fitzgerald mother and daughter.</p>
-<p>"No, they might run away, so let's just go together."</p>
-<p>I quickly canceled the waiting and approached the Fitzgerald mother and daughter. Since Mimata Chieri also approached with a gun pointed at them, the two sighed as if they couldn't help it and nodded.</p>
-<p>"First, the police will come again soon, so let's quickly pack our things and leave."</p>
-<p>It seemed that they chose to leave the museum quickly rather than arguing with me. The Fitzgerald mother and daughter stole a few things on the first floor and headed to the third floor with me and Mimata Chieri. On the third floor, there was a duffel bag containing things they had stolen from other floors in advance.</p>
-<p>I put the duffel bag on my back and held Arisu and Nae Fitzgerald on each side.</p>
-<p>"Kyaa!"</p>
-<p>"Ah, nooo♥"</p>
-<p>For reference, the person who said "ah, nooo♥" was Nae Fitzgerald. I'm catching her, so why is she making such a seductive sound? Looking at her face, she was even smiling.</p>
-<p>I ran to the open window and went down the wall with the two of them. The sound of sirens getting closer from afar meant the police were coming. So I had to escape as quickly as possible.</p>
+<p>-The existence of espers has been revealed due to the recent Dignity Health Sports Park disaster, and people are claiming to be espers on various social media platforms....</p>
+<p>"Hngh♥ Eueuheung...!"</p>
+<p>The hot western American sun, the radio broadcasting concerns about the impending chaos, and Arisu's moans filled the Starcraft van that Kazuhiro had borrowed.</p>
+<p>Even as Arisu was riding me with her waist moving so skillfully, the car was still being driven. This all started this morning.</p>
+<p>"Ryuta! Wake up!"</p>
+<p>Fujigasaki Rinka, showing no mercy, ripped off the thin blanket covering me and Arisu, who were sleeping naked after our farewell sex against the backdrop of Malibu's night sea, as I had to suddenly part with Arisu for an early trip to Japan.</p>
+<p>Seeing Arisu and me embracing naked after the blanket was removed, Fujigasaki Rinka blushed and screamed.</p>
+<p>"Keueut! Sleeping with a woman! You normie!"</p>
+<p>Isn't "normie" a word that was popular in the late 2010s? How does she know and use it now in 2053?</p>
+<p>"Normie? Isn't that a really old word? Oh, more importantly, Master, what's going on?"</p>
+<p>"The American government might be waiting for you at LA Airport, so go to Tijuana International Airport and take a flight. This Master has prepared everything, so don't worry. I've prepared the plane ticket and everything."</p>
+<p>Seeing Mimata Chieri standing behind Fujigasaki Rinka with a slightly sleepy expression as she spoke triumphantly, it seemed she had woken Mimata Chieri up first.</p>
+<p>"Haaahm~! So, Master has prepared everything, so I should leave now?"</p>
+<p>"That's right."</p>
+<p>"Heueung...♥ Ryutaa~ What's going on?"</p>
+<p>Arisu also woke up from the commotion and asked me while rubbing her eyes. Hmm, quite cute, isn't she? A blonde beauty waking up and rubbing her eyes like a cat is quite my type.</p>
+<p>"Master says she has prepared something, so we should leave now?"</p>
+<p>"I'll go to the airport too. We have to bring the car back anyway."</p>
+<p>Ah, that's right. If we go to the airport and take the plane, we have to bring the car back.... Then, we needed one more person who could drive besides me and Mimata Chieri.</p>
+<p>"I was going to make Kiyohira do it, but if Arisu volunteers to suffer, I'll allow it!"</p>
+<p>With Fujigasaki Rinka's permission, we started preparing to return to Japan. After washing up and packing our bags, it was around 5 AM.</p>
+<p>"I was suspected of being an esper in the beginning and had a lot of annoying things happen to me. I can't let you go through that experience, Ryuta."</p>
+<p>I could feel Fujigasaki Rinka's concern for her disciple in her words before getting into the car, but I also felt the malice hidden behind it towards the American government's esper department. It wasn't certain, but it felt like she was saying, "Try suffering a bit."</p>
+<p>When I opened the door to get into the car, Mimata Chieri was sitting in the driver's seat.</p>
+<p>"Sunbae-nim, please sit in the spacious back seat instead of the passenger seat."</p>
+<p>"Sunbae-nim, do you have an American driver's license?"</p>
+<p>I got into the back seat as Mimata Chieri said and asked. I was curious because Japanese licenses aren't valid in the United States.</p>
+<p>"I got an international driver's license in advance. I am your secretary, so I have to be able to drive in the United States if needed."</p>
+<p>"Ah, an international driver's license...."</p>
+<p>Ah, right, there was such a thing. Then, Mimata Chieri can drive there, and Arisu can drive back.</p>
+<p>"Sunbae-nim, how long will it take to get to Tijuana International Airport?"</p>
+<p>"The navigation says it will take about 2 hours and 50 minutes?"</p>
+<p>"I'm coming too~."</p>
+<p>While Mimata Chieri and I were talking about how long it would take, Arisu sat next to me, and the car started.</p>
+<p>Arisu was sitting there wearing a dress with a white top and a black skirt. When she felt my gaze, she smiled shyly and slightly lifted the skirt of her dress. Arisu's healthy and shapely thighs were revealed and then disappeared again as she lowered the skirt.</p>
+<p>"Hehe...♥ Do you want to see more?"</p>
+<p>"Huh? See what?"</p>
+<p>I pretended not to know, but Arisu had already figured out that my eyes were on her thighs, so she smiled seductively and started to lift the skirt of her dress again.</p>
+<p>As the skirt was lifted and Arisu's pure white thighs were revealed again, my Johnson also started to show itself over my pants in proportion. As expected, he's a very assertive guy, Johnson.</p>
+<p>"Should I lift it a little more?"</p>
+<p>Arisu, who had lifted her skirt almost to the point where her panties were visible, asked me with a seductive expression. I had already seen Arisu's panties hundreds of times, but seeing them like this made me want to see them even more.</p>
+<p>"...Yeah."</p>
+<p>I swallowed hard and answered quietly. At my honest answer, Arisu smiled seductively once again and lifted her skirt a little more. And then she spread her legs.</p>
+<p>There were no panties there, unlike what I had expected. There was only Arisu's cute, tightly closed pussy. Even better.</p>
+<p>"Ehehe.... Ryuta saw mine, so I'm going to see Ryuta's too."</p>
+<p>Arisu smiled and started to take off my pants. My Johnson was already swollen, so it was a bit difficult to take off my pants. Still, to help Arisu, who was struggling, I lifted my butt slightly to make it easier to take off my pants.</p>
+<p>My stiff Johnson, standing tall and looking at the sky, was soon revealed. Arisu looked at my Johnson as if possessed and tried to climb on top of me.</p>
+<p>"But Sunbae-nim is driving in the front...."</p>
+<p>"It's okay♥ We already talked about it beforehand."</p>
+<p>When I tried to stop Arisu, Mimata Chieri, with her face bright red, looked at me through the rearview mirror and said that. Did they plan this in advance? No, more than that, even if they're okay with it, I'm worried about an accident....</p>
+<p>"Sunbae-nim, please drive carefully."</p>
+<p>"Don't worry. I'll take you safely...."</p>
+<p>Sunbae-nim, you're having a nosebleed. As expected, Mimata Chieri was a truly hopeless NTR maniac. Mimata Chieri wouldn't be able to stand the situation where the man she likes is having sex in the back seat while she's driving.</p>
+<p>"Heueum, is it, hngh♥ in now?"</p>
+<p>Jjeolkeueok...!</p>
+<p>"Haeueuehang!"</p>
+<p>Arisu asked if it was in and, without waiting for an answer, matched my Johnson, which was standing stiffly and didn't need separate aiming, to her pussy and sat down as is.</p>
+<p>Seeing Arisu, who was shaking and tilting her head back as if she had reached her climax just by inserting it, I opened my mouth.</p>
+<p>"Is it over?"</p>
+<p>"Nooo...! I'm not, hngh! a useless pussy, aahang♥!"</p>
+<p>At my question, Arisu shook her head and slowly started riding me. Come to think of it, I had car sex with Arisu before. I remember doing it in the car for a short time after going to see her modeling job.</p>
+<p>"Do you remember when we did it in my car alone before?"</p>
+<p>"Heueung, yeah♥"</p>
+<p>"It was great then, but it's even better now."</p>
+<p>"Heueung, hngh! Re...ally? Haeueueut!"</p>
+<p>Arisu, feeling good that I said it felt better, came a little. I could feel the inside of Arisu's pussy getting warmer and wetter.</p>
+<p>"Hngh, eueuheung♥"</p>
+<p>Arisu danced on my Johnson, and as the sun rose, the sunlight became hotter. Mimata Chieri, who was also having a hard time listening, turned on the radio.</p>
+<p>-The existence of espers has been revealed due to the recent Dignity Health Sports Park disaster, and people are claiming to be espers on various social media platforms....</p>
+<p>"Hngh♥ Eueuheung...!"</p>
+<p>Arisu's moans grew louder, and Mimata Chieri, unable to bear it any longer, briefly parked the car on the coastal road.</p>
+<p>"I'm sorry, Hubae-niim...! I can't stand hearing this sound. I'll just, just refresh myself and then we'll leave.... Just for a moment♥"</p>
+<p>Mimata Chieri put her hand under her pants in the driver's seat and started masturbating, repeatedly shouting, "I'm sorry, Hubae-nim!" to me. I don't know what she means by refreshing herself, but judging by the way she's moving her hand vigorously, she seems quite excited.</p>
+<p>Fortunately, because Kiyohira's van was a Starcraft van mainly used by celebrities, the windows were heavily tinted, so it wouldn't be visible from the outside. It would shake a bit strangely, though.</p>
 <p>###</p>
-<p>Even while being attacked by the Nameless Squad, Otagi Yuka was constantly asking Eve to find the location of the New York branch manager, Jackson Shaw. If she defeated the Nameless Squad, Jackson Shaw would know that fact and run away, so she had to go to Jackson Shaw before the news that the Nameless Squad had been neutralized was delivered.</p>
-<p>"Otagi-ssi, what are you going to do now?"</p>
-<p>The man who defeated the Nameless Ghoul with tremendous martial arts and even made its traces disappear with some kind of sorcery, Taira Ryuta, asked. Otagi Yuka answered immediately. She already knew where the New York branch manager, Jackson Shaw, was staying, so she couldn't waste any more time.</p>
-<p>"Now that the obstacle is gone, I guess I should go meet the Kurotsukido New York branch manager. I can finally avenge Mariko."</p>
-<p>It had been a year since she came to the United States alone to avenge her close friend, Takasugi Mariko. She was finally able to take revenge. Perhaps because of the past year she had lived for revenge, Otagi Yuka's heart had already become a Yaksha. The only thing that could relieve Otagi Yuka's anger was Kurotsukido New York branch manager, Jackson Shaw.</p>
-<p>As she was about to pass by Taira Ryuta and go outside, she suddenly smelled a good scent. The source of the scent was Taira Ryuta.</p>
-<p>'He smells good, what kind of perfume is he using?'</p>
-<p>She laughed at herself for thinking this even though she was about to take revenge, but Otagi Yuka suddenly realized that she hadn't thanked Taira Ryuta.</p>
-<p>If Taira Ryuta hadn't been there, Otagi Yuka herself would have been coldly cooling down in the museum like the corpses of the Nameless Squad. Or she would have been treated more miserably as a corpse by the Nameless Ghoul.</p>
-<p>"Oh, right! Thanks for the help. I'll help you anytime if you contact me."</p>
-<p>"Okay, finish the fight with the branch manager well."</p>
-<p>When she turned her body slightly and thanked him, Taira Ryuta smiled slightly and nodded. For a moment, her heart thumped loudly!</p>
-<p>Otagi Yuka didn't know what the feeling she felt was yet. She was embarrassed to show her somehow reddened face, so she just turned her body back and left the museum.</p>
-<p>Otagi Yuka, who came out of the museum, took the motorcycle parked nearby and headed to Jackson Shaw's hideout, which she had found out in advance. Jackson Shaw's hideout was a luxury villa in Manhattan.</p>
-<p>They must be living in such luxury villas with the wealth made from the sacrifices of victims like her friend Mariko. Otagi Yuka entered room 501 on the 5th floor according to the address she received from Eve. No matter how tightly the door was locked, it was useless to Otagi Yuka, who could turn into a red mist.</p>
-<p>Otagi Yuka seeped into the room and headed to the bedroom where she heard a soft snoring sound. Jackson Shaw was fast asleep on a king-size bed. It was late dawn, so she thought he would be asleep.</p>
-<p>Slap! Slap!</p>
-<p>Otagi Yuka slapped the sleeping Jackson Shaw hard on the cheek to wake him up. Jackson Shaw didn't get the position of New York branch manager for free, so as soon as he was slapped, he grabbed the gun placed on the bedside table next to the bed.</p>
-<p>Swaaack!</p>
-<p>However, he couldn't shoot Otagi Yuka because of the golden sword that was swung in an instant. He couldn't shoot because his wrist was cut off while holding the gun.</p>
-<p>"Kua...!"</p>
-<p>"Shh!"</p>
-<p>Otagi Yuka covered Jackson Shaw's mouth, who was about to scream, and put her index finger to her lips, telling him to be quiet.</p>
-<p>"I want to give you as much pain as possible before I end it... But the person next door will wake up because of your screams. I'll end it quickly."</p>
-<p>"Kueuk.... Why, why! Why are you doing this?"</p>
-<p>From Jackson Shaw's point of view, he wouldn't even know why Otagi Yuka was attacking him. Of course, he would guess, since he had caused pain to countless people.</p>
-<p>"You killed my friend. Even if you didn't kill her directly."</p>
-<p>"Just a friend...?"</p>
-<p>Just a friend! Otagi Yuka felt anger that made her see red at Jackson Shaw's words.</p>
-<p>"Yes, you can say just a friend. I guess it's okay for me to cut off just your arms and legs?"</p>
-<p>Otagi Yuka covered Jackson Shaw's mouth again and cut off the rest of his arms and legs with the golden sword, except for his right arm, which had his wrist cut off.</p>
-<p>"Kkeu...! Kkeueu...!"</p>
-<p>Jackson Shaw rolled his eyes and struggled in tremendous pain. Otagi Yuka continued to cover Jackson Shaw's mouth and watched Jackson Shaw feel the pain.</p>
-<p>And just before Jackson Shaw died from excessive bleeding, she cut off his neck to finish him off. Although it was excessive bleeding caused by herself, she wanted to finish it with her own hands.</p>
-<p>Otagi Yuka got up from her seat. And she took out all of Jackson Shaw's blood that was all over her body with the blood domination power unique to vampires. If someone saw her, they wouldn't believe that she was the one who murdered someone with a knife 30 seconds ago, as her clothes were spotless.</p>
-<p>"Let's go home now."</p>
-<p>As someone said somewhere, revenge was futile. But it was also something that had to be done. Otagi Yuka left Jackson Shaw's house to say goodbye to Eve. It was time to go back to Japan, where her parents were waiting.</p>
-<p>'Wouldn't I be able to meet Taira Ryuta again in Japan?'</p>
-<p>She suddenly had such a lewd thought, but Otagi Yuka shook her head and blew that thought away.</p>
-<p>----</p>
-<p>What Otagi Yuka will do in Japan.</p>
-<p>Becoming a 20-year-old student!</p>
+<p>-Taira Ryuta is not among the passengers taking the flight from LA International Airport to Japan, Deputy Director!</p>
+<p>Diana Leach was not at all pleased that her prediction had come true. If her prediction came true completely, she would have to go all the way to Mexico. Although the airport was right on the border, the fact that a high-ranking official and esper of the FSA like herself was crossing the border of another country caused quite a few practical problems.</p>
+<p>"Then look for his name at Tijuana International Airport."</p>
+<p>-Yes, please wait a moment.... Ah, I found it! He's on the passenger list for the 11:20 AM flight to Japan!</p>
+<p>"Good, I guess I can take a helicopter and go there in advance."</p>
+<p>Diana Leach hung up the phone and headed towards the helicopter she had arrived in. She didn't know if Fujigasaki Rinka still had bad feelings towards them, but this incident made her realize that there was still resentment left.</p>
+<p>'The Director will be embarrassed when he hears this story.'</p>
+<p>Diana Leach imagined the Director's reaction and boarded the helicopter.</p>
+<p>"Where shall we go?"</p>
+<p>"Tijuana International Airport.... No, let's go to the immigration office towards Tijuana first."</p>
+<p>The helicopter's rotor blades began to rotate rapidly and rise. The scenery of Fujigasaki Rinka's mansion, which became smaller as it rose into the sky, was visible.</p>
+<p>'Just let them meet. How much trouble can it be to be annoying....'</p>
+<p>Diana Leach raised her middle finger towards Fujigasaki Rinka's mansion and closed the helicopter door.</p>
+<p>------</p>
+<p>Arisu Skirt Lift</p>

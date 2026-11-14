@@ -6,71 +6,90 @@ chapter = 1116
 +++
 
 <p>and chapter check contains erotic please surroundings this your</p>
-<p>"Are there any benefits we gained? Of course, the increased hostility between Ichiro and Jiro is a good thing for us, but...."</p>
-<p>At my question, Linling shook her Head as if there was more. My words, that there would be no benefits, must have been wrong.</p>
-<p>"First of all~! Among the captured Anyaji Branch people, there are quite a few useful individuals. So we decided to hire a few~!"</p>
-<p>Ah...! It seems she's talking about the Anyaji Branch martial artists Taira Gensuke brought when he attacked our mansion. There was a reason why we were able to fend off Taira Gensuke's attack without much difficulty this time.</p>
-<p>We, who even defeated the martial artists of Anyaji Headquarters, of course had no trouble defeating lower-level Branch martial artists. I heard that their firearm usage and various tactical movements were a complete mess, as they had only been taught for a few days.</p>
-<p>Rather, if it had been a PMC unit composed of ex-criminals from the favelas that Taira Gensuke leads in Brazil, or a PMC unit gathered from former BOPE (Batalhão de Operações Policiais Especiais) members, our side's harm would have been greater.</p>
-<p>Fortunately, the reason Taira Gensuke came to Japan this time was to participate in the Taira Grand Council, so he didn't bring many of his units.</p>
-<p>Those brought from Brazil went to raid Taira Jiro's Mithril warehouse, and our attack team mobilized the Anyaji Branch martial artists, who lacked training as combat agents using firearms.</p>
-<p>Of course, as all our kids are Masters, even if Taira Gensuke had mobilized his elite units for the attack on our mansion, human harm wouldn't have been great, but the destruction of facilities or buildings would have been more severe, and servants like maids or gardeners might have been injured.</p>
-<p>Anyway, if Linling says they are useful, they must be quite capable individuals, so I should check them out later.</p>
-<p>"If Linling says they are useful, they must be quite capable, right?"</p>
-<p>"It depends on the criteria. I decided to take a few directly under me, and for those who wished, I hired a few for Athena-ssi's team or Josodang's agents."</p>
-<p>Those Linling decided to take directly under her are probably the real deal. Judging by Linling saying she's taking them, they seem to be people with good administrative work or other abilities, rather than just military prowess.</p>
-<p>As Athena is a former Anyaji Four Heavenly Kings, many people in the Anyaji Branch would follow her. Josodang always suffers from manpower shortages, so it seems they took Anyaji Branch personnel with abilities suitable for Josodang.</p>
-<p>Talented individuals are the most important anywhere, so this would also be a benefit. Surely, besides recruiting talent, are there other benefits? As I looked at her with a curious gaze, Linling looked at me, smiled, and continued speaking.</p>
-<p>"Next is the fact that our side can continue to monitor Taira Gensuke. We infected most of the communication devices of the intelligence agents Taira Gensuke leads with a hacking program we planted."</p>
-<p>During this Taira Jiro Mithril warehouse attack, Sakagami Rena infiltrated and planted a hacking program, and it seems that program infected the communication devices of other intelligence agents.</p>
-<p>This was quite a good thing. Since Taira Gensuke decided to be hostile towards me for an unknown cause, the necessity to keep watching him arose, and if the hacking program continues to collect information, that task would become much easier.</p>
-<p>"The report on the benefits we gained ends here. As for the report on the schedule, we received contact that Taira Kitsumasa's funeral will begin tomorrow."</p>
-<p>I heard that Taira Kitsumasa's corpse arrived in Japan a little after we did, but it seemed the funeral wouldn't start today.</p>
-<p>"He was shot in the face, so it seems some adjustment was needed."</p>
-<p>Since his face would be a mess, it means they have to perform the ritual washing and dressing of the body. I nodded my Head as if I understood. Since attending the funeral was a given anyway, it wasn't particularly meaningful information.</p>
-<p>"And here, congratulations on passing the PMC qualification test~!"</p>
-<p>Linling said, holding out the certificate to me. As soon as the news that I passed the PMC qualification test was heard, Linling finished all the document processing, and it seemed the certificate came out quickly.</p>
-<p>"I passed before, so.... I shouldn't fail a second test."</p>
-<p>I said, looking at the plastic card with my photo embedded, which was written as a private military company establishment certificate. Last time, I passed under the name Yamashiro Ryuta, who infiltrated St. Francis Girls' Academy, so I had two of these certificates.</p>
-<p>The PMC to be created with the certificate obtained this time was planned to increase its elite level and not be small in scale, as it would be a PMC created under Taira Ryuta's name. Because it would be a PMC that could be freely used under Taira Ryuta's name.</p>
-<p>Therefore, I put Athena Mannerheim and Saionji Diana, who can be called Ability Users, as Team Leaders of the newly created PMC, Zenith Force. I was thinking of adding a few more as Team Leaders to make it a PMC where at least four teams work together.</p>
-<p>Athena Mannerheim's side had already almost fully recruited personnel. I heard that former Anyaji martial artists had finished all basic training in my other PMC, the Steel Unit, and were waiting for combat deployment.</p>
-<p>As they are all martial artists skilled in using their bodies, it is said that they also finished their training with excellent results. Of course, getting used to handling firearms took a lot of time, but now that they use guns as well as fists, I was quite looking forward to it.</p>
-<p>Now what remained was Saionji Diana. Before going to the USA, I had asked her to gather skilled individuals who, like Saionji Diana, had problems with their limbs, and I wondered if she had done it well.</p>
-<p>Whether she understood the meaning in my gaze, Saionji Diana also rose from her seat.</p>
-<p>"According to Teacher-nim's command, I recruited a few former special forces members or former Third World War Veterans who had good reputations. About twenty in total.... If we officially start recruiting new employees, I think we can increase the number to a hundred."</p>
-<p>"Well done."</p>
-<p>At Saionji Diana's report, I nodded my Head and praised her for doing well. Actually, with the PMC qualification test results not yet announced, she went around recruiting talent, so it must have been quite difficult, but gathering 20 talented individuals was well done.</p>
-<p>As for the rest, rather than limiting it only to Third World War Veterans, I was thinking of putting all those with accidental or congenital problems with their limbs into the talent pool.</p>
-<p>Because there might be those with superpowers or extraordinary abilities, there was no need to narrow the talent pool to Third World War Veterans. Even if their training level is insufficient, the 20 elite members Saionji Diana selected by traveling the country would teach them well.</p>
-<p>"Let's start Zenith Force's official recruitment after Kitsumasa's funeral ends."</p>
-<p>For now, the Zenith Force story is enough.... Is this the end of the report from Japan?</p>
-<p>"Is this the end of the report from Japan?"</p>
-<p>At my question, Linling rose from her seat again as if she remembered something.</p>
-<p>"Ah. It's not a report from Japan, but.... Goishihara Shoji-ssi of Moth Tactical sent an email."</p>
-<p>Goishihara Shoji? For what reason did he send me an email? Since Linling, who is currently serving as secretary, manages my work email, it seemed she checked it first.</p>
-<p>"What's it about?"</p>
-<p>"It was written as a talent recommendation email...."</p>
-<p>Ah! That's what I requested. I had asked Goishihara Shoji, who was formerly affiliated with Taira, to recommend individuals within the Taira Group who had ability but couldn't display their talent due to factions or other reasons. I had forgotten for a moment.</p>
-<p>"Is that so? Here's the list."</p>
-<p>At my words, Linling held out the paper she was holding. The paper she had been pretending to look at while reporting until now seemed to be exactly the talent list Goishihara Shoji sent.</p>
-<p>"...."</p>
-<p>Not many people were listed on the talent recommendation list. Along with four names, the position or affiliation Goishihara Shoji held when he left Japan was written.</p>
-<p>Naturally, I knew almost no names, and only one name was familiar to me.</p>
-<p>Shinonome Mio (East Cloud Deep Cherry Blossom).</p>
-<p>The name of Taira Saburo's strategist and Taira Electronics' Boss, Shinonome Zen's granddaughter, was clearly written on the talent recommendation report. According to rumors, I heard she became a cripple, but was that not true? For now, I'll have to check this again.</p>
-<p>"Did you find out how all four of them are now?"</p>
-<p>"It hasn't been long since the email arrived, so I've already made a request to Josodang~!"</p>
-<p>Hmm, I see. Let's make a decision on this later, while listening to Josodang's report.</p>
-<p>"Then, we'll talk later, and the report from Japan is over, right?"</p>
-<p>"Yes. There are no particularly important reports left."</p>
-<p>Now it's my turn. I needed to discuss with everyone what to do in the future, while talking about the situation in the USA and what I gained. And also distribute the loot obtained in the USA to those who need it.</p>
-<p>Requested by Gojoy-nim: Dark-skinned Suzuki Chisami, Chapter 56 Remake Chieri~!</p>
-<p>Suzuki~!</p>
-<p>Chieri Remake~!</p>
-<p>At first, I tried to create a scene saying, "The steak thickness is about this much~!", but only an 'okay' sign came out like the illustration above, so since it's a remake anyway, I thought I should change it a bit, so I changed it to a thumbs-up hehehe.</p>
-<p>While updating with the Chapter 56 Remake illustration, I also slightly modified the content, changing it to a thumbs-up gesture with a feeling of "The steak is delicious~!" hehe. You don't have to look again~!</p>
-<p>Requested by TheDreaming-nim: Alik and Tsukiyo at the construction site~!</p>
-<p>Alik~!</p>
-<p>Tsukiyo~!</p>
-<p>Kkyut~!</p>
+<p>ai an created using were</p>
+<p>"Then, shall we start with Introductions? I am Taira Ryuta."</p>
+<p>I had ordered our Meal, and while waiting, I first revealed my name for Introductions. Of course, Shinonome Mio already knew my name, and I knew Shinonome Mio's name and background, but since we had never formally introduced ourselves, I made my self-introduction.</p>
+<p>"I am Shinonome Mio. Currently, I'm a freelancer."</p>
+<p>Seeing her speak casually, both when she first asked for the cursed Item and now when revealing her name, it seemed she wasn't the type to strictly adhere to Etiquette.</p>
+<p>Or perhaps she had changed after Taira Saburo's Death. From what I knew, Shinonome Mio was the epitome of a Yamato Nadeshiko, so her father, whom she served as Master, must have had a significant impact on her. By the way, a freelancer? I thought she wasn't doing anything right now. Is she working on something else?</p>
+<p>"I'm Alik...."</p>
+<p>Alik, sitting next to me, also introduced himself. Judging by him just stating his name and then staring intently at Shinonome Mio, it seemed he was about to give her an Alik-style nickname, just like he did with others.</p>
+<p>"Nono.... I think Nono would be good for Shinonome Mio...."</p>
+<p>It seemed he intended to call her Nono because her name was Shinonome Mio. Shinonome Mio, hearing Alik's Words, looked at him with a confused Expression, as if she didn't understand what he was saying. Then she looked at me and opened her mouth with a questioning look.</p>
+<p>"This Child...?"</p>
+<p>"He's my Bodyguard. Today, he just followed along because he said he wanted to eat katsudon."</p>
+<p>At my Answer, Shinonome Mio's Expression grew even more confused. It was a look that said, 'He's a Bodyguard?' But before any other Story could emerge, our ordered Meal arrived just in time.</p>
+<p>"Here are your gyudon set, katsudon set, karai gyudon, tendon, and karaagedon extra large."</p>
+<p>Hmm.... It all came out as ordered. For reference, the set menu included a donburi like gyudon, a small udon, and one croquette. Shinonome Mio wasn't particularly surprised even when I ordered three bowls of donburi, so it seemed the rumor of my hearty appetite had reached her as well.</p>
+<p>"Let's eat first."</p>
+<p>"...Okay."</p>
+<p>Today, we had met to deal with a cursed Item, but it felt a bit awkward to talk about cursed Items while eating, so we decided to just eat. We could get to the main point after we finished our Meal.</p>
+<p>Thus, the Meal began quietly. Alik, who had come along because he wanted katsudon, focused on his katsudon, munching away, while Shinonome Mio ate slowly, chewing thoroughly.</p>
+<p>After confirming that both of them were eating well, I also ate my three bowls of donburi, adjusting my eating speed so that I finished all three bowls at the same time Shinonome Mio finished her Meal.</p>
+<p>"Ryuta, Dessert...."</p>
+<p>Alik, who had been waiting for me to finish eating, held out the menu, so I took it and chose our Desserts.</p>
+<p>"I'll have the lemon sherbet, and Alik, you want the sundae ice cream, right? And Shinonome-ssi...?"</p>
+<p>I'll have sencha.</p>
+<p>Having heard all the orders, I ordered the Desserts from the Clerk. Now, it was time to start talking.</p>
+<p>"I brought the cursed Item you mentioned, Shinonome-ssi. What will Shinonome-ssi give me in return?"</p>
+<p>Shinonome Mio had clearly asked for the cursed Item, offering a Price, so I asked about that Price. I was curious what Shinonome Mio would offer me as a Price.</p>
+<p>"I'll put a curse on one Person you want."</p>
+<p>Huh? What does that mean...? She'll put a curse on someone I want? It was a bit strange from the moment she asked for a cursed Item, but has she learned some kind of curse-related Skill?</p>
+<p>According to the Information I had, she was a pure Strategist with no Superpowers or other Skills. Of course, that Information was from when she was active under Taira Saburo, so she might have learned curse-related Skills over the past year.</p>
+<p>"You know how to cast curses?"</p>
+<p>"Yes, I learned a bit over the past year."</p>
+<p>Can one become strong by learning for just one year...? I was a little skeptical after hearing her Story, but then I looked at Alik next to me and couldn't help but nod my Head.</p>
+<p>Although he had basic Lightning Ability and an excellent Sabu who taught him Swordsmanship, Alik had grown strong at an astonishing speed. Even though he hadn't even been learning Swordsmanship for a year, Alik had achieved a Skill level that could be trusted, making him a Genius among Geniuses.</p>
+<p>In that light, Shinonome Mio might also have Talent, and her curse Ability could have rapidly strengthened over the past year.</p>
+<p>Since she was renowned as a Strategist from the start, her Intelligence and Knowledge Stats would be high, and the Intelligence Stat helps in learning things, so even if it's only been a year, she might possess considerable Skill.</p>
+<p>"But how did you know I had a curse-related Item?"</p>
+<p>I asked Shinonome Mio my next question. I was curious how she knew I possessed the Grimoire of Purple Flame when we first met that day.</p>
+<p>"If you learn Sorcery, you naturally develop the ability to Smell it. A strong Smell of a curse emanated from your Body. A curse that felt like a burnt, acrid Smell."</p>
+<p>Oh.... The Grimoire of Purple Flame was a cursed Grimoire that emerged from the Flames of an execution ground. The fact that she could accurately sense this made my prediction that she might be a considerable Skill user seem more and more accurate.</p>
+<p>"I don't particularly have anyone I want to curse right now."</p>
+<p>This was the Problem. The Problem was that I currently had no one I wanted to use the curse voucher on, which Shinonome Mio offered in exchange for the Grimoire.</p>
+<p>"Rather than a curse, you said you're a freelancer right now. How about helping me for a while?"</p>
+<p>I subtly asked if she would work under me, but Shinonome Mio shook her Head.</p>
+<p>"Not yet.... I don't want to work under anyone yet."</p>
+<p>'Not yet,' she said.... Is she still grieving for Taira Saburo? I didn't intend to recruit Shinonome Mio, Taira Saburo's chief Strategist, with just one book right away. I came here to build rapport.</p>
+<p>Some might say that giving a precious Grimoire for building rapport is too extravagant, but if I recruit her based on this rapport, a Strategist equipped with the Grimoire I gave her would come under me, so I didn't consider it a waste.</p>
+<p>"Then let's do this. I'll keep the right to request a curse for now. However, this cursed Grimoire is precious, so one curse isn't a fair Price."</p>
+<p>The Grimoire of Purple Flame was a Legacy-class Grimoire. I couldn't just give it away for a single curse. Not even as a rapport-building Item.</p>
+<p>From Shinonome Mio's perspective, if she were to work for me, she would prefer someone who is good at these kinds of calculations. At least, if one holds the title of a Businessperson, they should make deals commensurate with the Value.</p>
+<p>"Then?"</p>
+<p>At my Words, Shinonome Mio showed Curiosity. She seemed quite curious about what Conditions I would propose.</p>
+<p>"Let's postpone the curse request for later, and instead, I'll contact you for Advice whenever I need it."</p>
+<p>I, too, needed to assess Shinonome Mio's Skill if I were to recruit her, so I proposed receiving Business Advice as the Price for the Grimoire.</p>
+<p>"...Frequency?"</p>
+<p>Ah, she didn't fall for it. I deliberately didn't mention the Frequency, intending to get unlimited Advice from Shinonome Mio, but she immediately asked about the Frequency, as if she had seen through my thoughts.</p>
+<p>"About twelve times?"</p>
+<p>"Too many. Three times."</p>
+<p>I proposed twelve times, as there are twelve months in a year, but Shinonome Mio said it was too many and cut it down to a quarter. Ugh.... Three times is too little.</p>
+<p>"Too few. Ten times."</p>
+<p>"...Five times."</p>
+<p>Five times is still a bit ambiguous.... But I don't intend to drag out this tug-of-war over the Advice Frequency, so I should make a final offer.</p>
+<p>"Alright, I'll concede. How about six times? I've cut my initial offer by half, so please accept it?"</p>
+<p>"Six times.... Understood."</p>
+<p>Shinonome Mio nodded her Head, and I now had the right to six sessions of Advice. At the same time, Clerks carrying Desserts entered.</p>
+<p>"Please enjoy your Meal."</p>
+<p>Watching the Clerks place our ordered Desserts and leave, I took out the Grimoire of Purple Flame from my Bag. Immediately, a translucent Screen appeared before my Eyes, displaying the Grimoire of Purple Flame's Information.</p>
+<p>◆Grimoire of Purple Flame (Shien no Isho) [Legacy Magic Tool/Grimoire]</p>
+<p>A Grimoire that emerged from the Flames of an execution one day. According to legend, it was found at a witch's cremation site.</p>
+<p>●When equipped, the proficiency Level of curse Magic increases by 3, and the power of curses increases by 15 percent.</p>
+<p>●Upon thorough reading, Flame resistance increases by 20 percent.</p>
+<p>●If a cursed Life form owned by the possessor dies, 5 percent of the maximum spell Energy is recovered, and the power of spells increases by 10 percent for 5 minutes. This Effect can be stacked.</p>
+<p>●Magic curse flame of , , , death explosive of , .... Can be acquired.</p>
+<p>While the Flame resistance option gained from thorough reading was a bit of a waste, thorough reading required understanding over 80 percent of the book's content, making it an Ability that Characters without relevant Knowledge, like martial arts-oriented Characters such as myself, found difficult to acquire.</p>
+<p>Since Shinonome Mio was presumably a curse-user, she would probably acquire the thorough reading option's Ability quickly. As I held out the Grimoire of Purple Flame, Shinonome Mio, instead of her usual dead fish-like Expression, took it with a slightly excited look.</p>
+<p>Of course, Shinonome Mio's change in Expression was on par with Alik's, so others would find it difficult to notice. Only I, who had learned to read Expressions by observing Alik for a long time, could sensitively discern Shinonome Mio's Expression.</p>
+<p>"Good, the deal is complete."</p>
+<p>Shinonome Mio, after examining the book, smiled with Satisfaction and nodded her Head. Since the deal was complete, I also had something to say.</p>
+<p>"Then I'll use my first Advice right now. I received Talent recommendations from someone, and I want to know if these People are suitable, and if they are good Talents, what Method should I use to recruit them?"</p>
+<p>I handed Shinonome Mio a piece of Paper with People's names written on it. That Paper contained the names of the People Goishihara Shoji had recommended to me, and Shinonome Mio's name was also on that Paper.</p>
+<p>Requested by Gojoy-nim: Yukiko at Dijuni Land 1. After riding the flume ride and getting her Clothes wet~! 2. Yukiko holding churros and waffles~!</p>
+<p>1.</p>
+<p>2.</p>
+<p>Requested by TheDreaming-nim: Chieri 1. Sticking to a hotel window 2. Masturbating in a night park</p>
+<p>1.</p>
+<p>The Composition and form of the Illustrations came out exactly the same, so I'm only uploading two ㅎㅎ. Even with 'sticking to a window + hotel,' it's hard to tell it's a hotel ㅎㅎ.</p>
+<p>2.</p>

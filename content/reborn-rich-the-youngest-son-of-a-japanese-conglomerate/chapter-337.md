@@ -5,77 +5,81 @@ weight = 337
 chapter = 337
 +++
 
-<p>"Working on weekdays is tiring, as expected...."</p>
-<p>Kasaoka Yuzuki was muttering as she left work. Usually, the women of delivery health services are driven home by the manager of the establishment they work for after finishing their shifts, but Kasaoka Yuzuki took a separate taxi or bus to get home in order to not reveal her identity at the establishment.</p>
-<p>Mask Delivery was located in a nightlife district full of bars and brothels far from St. Francisco Girls' Academy, so she had to transfer buses once. Of course, a taxi would take her straight home, but Kasaoka Yuzuki, struggling with debt, had no intention of using a taxi.</p>
-<p>Kasaoka Yuzuki got off the bus and was waiting for the next one. The time was around 9 PM. Kasaoka Yuzuki was blankly staring at the shopping center building across the street while waiting for the bus that would take her near her house.</p>
-<p>While blankly staring at the opposite side, someone familiar was passing by. Looking closely, it was Kasaoka Yuzuki's husband, Kasaoka Koki, and a young female student in plain clothes walking down the street.</p>
-<p>Moreover, they weren't just walking; Kasaoka Koki had his arm around the female student's shoulder, walking like lovers.</p>
-<p>She already knew he was doing this kind of thing with female students, but this time it was a different female student than the one she had seen before. Therefore, the sense of betrayal Kasaoka Yuzuki felt was doubled. If it wasn't just one, there was a possibility he was messing with three or four students.</p>
-<p>'He was such a shy person before we got married....'</p>
-<p>How could a person change this much...? Rather than anger, Kasaoka Yuzuki felt a sense of sorrow for her changed husband first.</p>
-<p>Kasaoka Yuzuki: Are you not coming home today?</p>
-<p>She sent a Line message, but Kasaoka Koki checked his phone once and then put it back in his pocket. He pulled the female student closer and soon disappeared from Kasaoka Yuzuki's sight. The direction Kasaoka Koki was heading was an area full of love hotels.</p>
-<p>Just as she felt the strength leaving her body and wanted to sit down, the bus arrived. As she sat down on the bus, she suddenly thought about what had happened today.</p>
-<p>Yamashiro Ryuta... A new teacher who, unlike his appearance, had a boyish charm. Today, she almost unknowingly let him go all the way, but fortunately, the alarm saved her.</p>
-<p>He said he would book her again, so she gave him her alias, but since she made him cum twice in one day, he would probably book her again in a few days at least.</p>
-<p>Kasaoka Yuzuki's prediction was immediately shattered by the manager's words when she went to work the next day, Saturday.</p>
-<p>"Yuzu-chan, the customer from yesterday really liked you; he booked a 180-minute course this time, you know?"</p>
-<p>Kasaoka Yuzuki swallowed an enormous amount of semen yesterday, so she wondered how far this man's stamina went.</p>
+<p>There were many stories about the mission in the group chat, and after listening to Kujo Kina's story, who used to be in an athletic club, the 3rd gymnasium is mainly used by 3rd and 2nd year high school students. Also, the clubs that mainly use it were the basketball, table tennis, and volleyball clubs. So, if I only investigate the male teachers related to those clubs, the number of suspects will be significantly reduced.</p>
+<p>There is a sports storage attached to the gymnasium, so even middle school students come to move things, and a young middle school student heard the moaning sound that led to this student council request.</p>
+<p>Several suggestions came out, and a suggestion that was acceptable was to secretly install CCTV under the guise of preventing theft in the sports storage since it's near the sports storage. Of course, this isn't something our club will do, so I passed it on to the student council.</p>
+<p>While passing it on to the student council, the product I recommended was the small, attachable spy camera that Mimata Chieri had purchased from the Dark Market before.</p>
+<p>I thought it would be invisible and good, but it was rejected. Because it's a small spy camera, it doesn't have the function of preventing crime by being visible as a CCTV, and it needs to be charged periodically.</p>
+<p>Minamoto Risa: Then I'll just order it with my own money. We just need to catch that pervert teacher anyway, right?</p>
+<p>Minamoto Risa, being cool, says she'll flex with her own money. So, during break time, I was going to tell Seizawa Shii about the Dark Market app. Minamoto Risa already knows about the Dark Market, so I just need to tell Seizawa Shii.</p>
+<p>"Ryuta-cchi! I'm here!"</p>
+<p>"Excuse me...."</p>
+<p>As soon as the break bell rang, Seizawa Shii and Minamoto Risa burst into the room. Minamoto Risa was also showing off her shapely legs in a short skirt, as befitting a gyaru, but Seizawa Shii had completely taken off her school ribbon tie and unbuttoned about three buttons of her shirt, showing off her cleavage.</p>
+<p>"Seizawa, if you're not going to wear the tie, at least button up one more button. Showing that much cleavage is too much."</p>
+<p>"Ehh~! Don't say that~☆ My chest has gotten bigger lately, so my clothes are so stuffy!"</p>
+<p>"Minamoto, you don't like this kind of thing, do you? Try to stop Seizawa quickly."</p>
+<p>Seeing that Seizawa Shii had no intention of listening to me at all, I asked Minamoto Risa for help, but Minamoto Risa also didn't seem to have any intention of listening to me.</p>
+<p>"It's not that I hate exposure, sensei. It's just that I hate pervert teachers who rape students."</p>
+<p>I see, that's what it was. As expected, due to the trauma from her former homeroom teacher, she developed a strange (?) tendency to hate perverted male teachers. Most men are perverts, so she must hate most male teachers.</p>
+<p>That former homeroom teacher has only raised the difficulty of targeting. Alright, if I get the chance, I'll definitely kill that bastard.</p>
+<p>"Still, school rules are school rules.... Fasten one more button. I'll just say you lost the tie."</p>
+<p>"Nee~☆ Ryuta-cchi is the best!"</p>
+<p>"Both of you, sit in front. Seizawa, I'll send you the referral code, so if you sign up with that code, you'll be able to join."</p>
+<p>She was just joking about her chest getting bigger or whatever. Minamoto Risa and Seizawa Shii sat in the seats I had prepared. And they stared at me intently.</p>
+<p>"Yeah, take out some ice cream from the fridge and eat it."</p>
+<p>As expected, as soon as I finished speaking, they took out two pint-sized Haagen-Dazs from the fridge and started eating them while looking at me. It's a pint, I wonder if they can finish it during break time.</p>
+<p>"Seizawa, if you received the referral code, go to the address I told you and download the app. When you install it, enter the referral code and you'll be able to sign up."</p>
+<p>Seizawa Shii knew that the Dark Market existed, but she hadn't signed up, whether she was raised preciously at home or just didn't care.</p>
+<p>There are all sorts of strange things in the Dark Market, so they probably didn't let the two of them, who are still minors... well, not anymore, but students, sign up.... I'm sorry for corrupting the daughters I raised so preciously as a teacher.</p>
+<p>Seizawa Shii had already finished signing up, and the two of them were checking the apps uploaded to the Dark Market with amazed expressions.</p>
+<p>"For reference, the Dark Market is calculated in points, and 1 point is 1 dollar, so buy things wisely."</p>
+<p>"Ehh, 1 point is 1 dollar? Then this shiny, smooth moisturizing cream for the face costs 30,000 dollars?"</p>
+<p>Seizawa Shii grumbled at my words. There were no unreasonably expensive products in the Dark Market. Maybe that shiny, smooth moisturizing cream for the face is also....</p>
+<p>"Maybe they stole an unreleased product from some company. Competitors can check the other company's products, so it's worth investing 30,000 dollars."</p>
+<p>Oh, even though she's a delinquent, she's still from the Minamoto family. She immediately figured out the value of the item.</p>
+<p>"Oh! The thing sensei mentioned. It says it will be delivered today?"</p>
+<p>Then that means there's stock at the Miyashi branch.... If it's delivered today, I can install it quickly.</p>
+<p>"The delivery address is.... Let's make it our club room."</p>
+<p>"Ah! Good idea, Risa-tan! It's troublesome if too many packages come to my house. I should make it the club room too."</p>
+<p>These troublemakers are trying to use the club room as a parcel box as they please. But it was a reasonable choice in its own way. Minamoto Risa, not to mention Seizawa Shii who lives alone, would have someone check each and every one of her packages first, so it would be right to send it to the club room. Especially if it's a product from the Dark Market.</p>
+<p>"Time's up, go to the classroom quickly."</p>
+<p>"Okay, Ryuta-cchi~☆ Thanks for letting me know!"</p>
+<p>"Me too, th...anks."</p>
+<p>Minamoto Risa, who had a hard time saying thank you, blushed and ran away quickly. Seizawa Shii followed slowly, saying, "Risa-tan, let's go together~!", and then turned around.</p>
+<p>"Ryuta-cchi, sorry, but please put the ice cream we didn't finish in the fridge, hehe."</p>
+<p>Ah, if they can't finish it, they can just put it in the fridge. I unconsciously thought that female students would have a similar amount of food as me.</p>
 <p>###</p>
-<p>He thought he was getting better, but he didn't know if it was because of the stress from the club advisor position or because he didn't properly cum inside a woman, but he got horny again and called Mask Delivery yesterday morning to book Kasaoka Yuzuki.</p>
-<p>Since he failed to negotiate for the 90-minute course yesterday, he ordered twice that amount, a 180-minute course, today. With this, she wouldn't be able to run away like yesterday. Today's goal was to shoot a lot of white cream into Kasaoka Yuzuki's Pussy.</p>
-<p>The doorbell rang, and when he opened the door, Kasaoka Yuzuki, wearing a mask, had come to his house. He couldn't see her face properly because of the mask, but she seemed flustered that he had called her the very next day.</p>
-<p>"Come in."</p>
-<p>"Yes...."</p>
-<p>The two of us entered the house and went into the bedroom together as if we had promised to do so.</p>
-<p>"Today, I want to see Yuzu-ssi take off her clothes first."</p>
-<p>"Then I'll take them off first today."</p>
-<p>At my words, Kasaoka Yuzuki began to undress. She took off the tight dress with a similar design to yesterday's and wiggled her butt as she took off her underwear.</p>
-<p>He couldn't see it properly yesterday because he was excited, but her leg muscles were quite developed and sleek. Did she do some kind of dance? Or did she exercise?</p>
-<p>"Looking at your legs, it seems like you exercise. What kind of exercise did you do?"</p>
-<p>"I did ballet a little when I was young. But my body gradually got bigger, so I ended up giving up."</p>
-<p>Ah, she did ballet. As she went through puberty, she became this curvy, so it would have been difficult to continue ballet.</p>
-<p>"Since you did ballet, can you lift one leg up?"</p>
-<p>I was suddenly curious and asked Kasaoka Yuzuki if she could lift her leg up. Kasaoka Yuzuki supported herself with her left leg and slowly began to raise her right leg. But she couldn't fully extend her leg, perhaps because it had been a long time since she had done ballet.</p>
-<p>"It seems a bit stiff. My leg won't go up any further."</p>
-<p>"You look incredibly sexy right now."</p>
-<p>Her Pussy was clearly visible because she was lifting her leg. Kasaoka Yuzuki quickly lowered her leg. Then she covered her Pussy and glared at me slightly. She didn't seem to know that glaring at me only made me more excited.</p>
-<p>"What would you like to do first today?"</p>
-<p>"Let's do smatagari. Unlike yesterday, I'll be the one moving."</p>
-<p>I gave Kasaoka Yuzuki the lead yesterday, but I like taking the lead. Yesterday, it was lukewarm, so Kasaoka Yuzuki escaped, but today I was going to completely heat her up under my lead and devour her.</p>
-<p>Of course, I would pay handsomely for the no-condom sex. I had to give her a slightly expensive amount of money so that no one else could put it in the Pussy I would use.</p>
-<p>"Then, let me prepare a bit...."</p>
-<p>What Kasaoka Yuzuki took out was a transparent container with an orange hemispherical lid, a lubricant. Kasaoka Yuzuki sprayed lubricant on my dick and carefully massaged it in. She definitely put on a condom yesterday, but she's not putting one on today? Is there some kind of change in her mind?</p>
-<p>"Then... let's start. Put your arms around my neck."</p>
-<p>"Huh? Kyaak?"</p>
-<p>I grabbed the outside of Kasaoka Yuzuki's thighs and lifted her up. Then, I pushed my lubricant-covered dick into the small gap where her thighs and Pussy met. It felt like it would be an incredibly pleasant smatagari with her moist Pussy on top and her soft thigh flesh on both sides.</p>
-<p>"Huuahang...."</p>
-<p>"I thought I had to hold you like this to match our heights, Yuzu-ssi."</p>
-<p>Currently, Kasaoka Yuzuki was dangling in the air, held by my hands. She was supporting her upper body by hugging me with both arms, and I was holding her lower body, so wouldn't it feel a bit like zero gravity?</p>
-<p>I was moving the hand holding her thighs and simultaneously moving my waist, giving Kasaoka Yuzuki a variety of pleasures even with smatagari.</p>
-<p>"Heuht, Yuzu-ssi.... It feels good. Yuzu-ssi's Pussy feels good."</p>
-<p>For some reason, Kasaoka Yuzuki seemed to like slightly shy men, so I pretended to be overwhelmed by the new pleasure and shook my arms and waist diligently. Of course, this waist movement was the waist movement of a seasoned lecher.</p>
-<p>"Heueot! Haaht! Uooht...! Yamashiro-ssi's dick is big and bumpy, so it feels good...."</p>
-<p>This ajumma has never said my name when she's wearing the mask, but she seemed out of it because of the pleasure. She doesn't know that I know but am pretending not to, so she'll be very surprised later when she finds out she said my name, right? Or maybe she'll even forget that she said my name because of the pleasure.</p>
-<p>"Haa.... Haa, Yuzu-ssi, Yuzu-ssi feels good. It feels this good now, so if I put it in.... How much better would it feel? Yuzu-ssi...!"</p>
-<p>I continued to whisper in Kasaoka Yuzuki's ear and moved my waist, doing smatagari. Surely my whispers were effective; Kasaoka Yuzuki's Pussy was full of vaginal fluids. My dick, which had been soaked in lubricant, was now washed away by Kasaoka Yuzuki's vaginal fluids and became a vaginal fluid-covered dick.</p>
-<p>Thinking about it, if she likes shy, innocent men, it was fortunate that this ajumma was at St. Francisco Girls' Academy.</p>
-<p>If it were a co-ed or all-boys school, it would be full of shy men, so she would have caused an accident with a student at some point. She might have appeared on TV as a criminal, a shotacon female teacher.</p>
-<p>"Hueueung, now, haaung! When...? When are you going to cum? Ooot, hoooot, it feels so goodhaaht...!"</p>
-<p>Kasaoka Yuzuki was waiting for me to cum because I kept moving my waist like a machine.</p>
-<p>"I want to cum inside Yuzu-ssi. I want to put a lot of my hot Semen inside Yuzu-ssi's Pussy...!"</p>
-<p>"Ohoook! Aaaahng...! That's not allowed...! Haaht, n, no condom is NG...!"</p>
-<p>She was still somewhat rational and said that no condom was NG. I was glad I applied for 180 minutes. It was enough time to slowly heat up Yuzuki and make her open her Pussy.</p>
-<p>"If it's Yuzu-ssi.... I could pay 50,000, no, even 100,000...!"</p>
-<p>"Hueueut! O, one hundred thousand?"</p>
-<p>Kasaoka Yuzuki's eyes widened at the sound of 100,000 yen. Of course, 100,000 yen for one sex was very expensive, but since I could pay with the corporate card given to me by the Taira Group, I could pay not only 100,000 yen but even 200,000 yen. It wasn't my money, so I didn't feel bad about it.</p>
-<p>Since the most urgent thing for Kasaoka Yuzuki right now was money, she would be swayed by my words. Even if she did a job, she wouldn't get that much money if she split it with the establishment, but the money she received for no condom sex was entirely her own profit, not split with the establishment.</p>
-<p>"Yuzu-ssi's Pussy feels good, how good would it feel if I put it in...? It would be the best if I could put it in for 100,000 yen...."</p>
-<p>I continued to whisper in Kasaoka Yuzuki's ear and kept shaking my waist. So much vaginal fluid came out that it dripped and pooled under my feet.</p>
-<p>"Haa.... Please put me down now."</p>
-<p>Kasaoka Yuzuki said to me with a sigh. I silently lowered Kasaoka Yuzuki's voluptuous body to the ground. Looking at Kasaoka Yuzuki's eyes, it seemed like she had already made up her mind.</p>
-<p>Kasaoka Yuzuki went up to the bed and sat down, spreading her legs. Kasaoka Yuzuki's Pussy, visible between her spread legs, was a mess with vaginal fluids.</p>
-<p>"Do I really have to give you 100,000 yen?"</p>
-<p>"If I can hold Yuzu-ssi...!"</p>
-<p>I went between Kasaoka Yuzuki's legs and brought my glans to her vaginal opening.</p>
+<p>The Dark Market delivery person was someone I didn't even think of. No, not even a person.... The Dark Market delivery person was Eve. Eve calmly wore the teal uniform of the academy work team and came all the way to the education preparation room.</p>
+<p>"This is the first time you're seeing me outside of the branch, right, Ryuta-nim?"</p>
+<p>"That's right. I was surprised. I didn't know Eve would come all the way here."</p>
+<p>"It wasn't Ryuta-nim's ID, but since Ryuta-nim is the referrer, I knew it would be related to Ryuta-nim. First, I need to deliver the package to the exact location, so shall we go up?"</p>
+<p>I got up from my seat to guide Eve to the club room. There were no classes anyway, and there wasn't much work to do, so I had time to guide Eve to the club room.</p>
+<p>Come to think of it, this is my first time going up to the second floor. The structure of the second floor of the special building was that as soon as you went up the stairs, there were warehouses on both sides of the hallway. I don't know what kind of warehouse it is, but it seemed to be a warehouse where they put things that were no longer needed, lumping them together as teaching materials.</p>
+<p>"If you put motion detection sensors on the warehouse side, I can deal with anyone who comes even when I'm doing bad things (?)."</p>
+<p>Eve suggested with a smile. That's a tempting suggestion? I've already bribed the guards, so they don't patrol this building, but other people might suddenly come, so a detection sensor would be useful.</p>
+<p>"I'll order a set."</p>
+<p>"Thank you for your purchase~! I brought it just in case. I'll install it for free and leave. If you turn on the detector, a signal will go to Ryuta-nim's phone."</p>
+<p>What kind of thinking do you have to do to bring something like a motion detector just in case? That's really amazing.</p>
+<p>Behind the warehouse was a club room with the strange name of Date Experience-Meditation Club, written as Special Building Club Room. It was an abnormally large club room that combined a classroom, a nurse's office, and an education preparation room.</p>
+<p>Well, since all students from middle school to high school are obligated to join a club, the probability of having more club members than the number of students in a class is high, so it seems like they made the club room this big.</p>
+<p>Deureureuk.</p>
+<p>When I opened the door to the club room, it was cleaner than I thought. It seems like the management team cleans it from time to time. There were a lot of foldable chairs and a long table where all the club members could sit.</p>
+<p>The kids will decorate the club room themselves, and there should be a parcel box in front of the door where they can receive Dark Market parcels....</p>
+<p>"There's no parcel box. That's a shame."</p>
+<p>"Just a moment. I'll check if there's anything in the warehouse. Eve-ssi, please install the detector in the meantime."</p>
+<p>When I opened the warehouse, there was a steel locker that could be used as a parcel box, so it seemed like I could bring this to the entrance of the club room. While I was bringing the steel locker, Eve easily installed the detector.</p>
+<p>"It's linked to the camera here, so if someone passes by, a picture will be taken. Then you can know who it is."</p>
+<p>Oh, it has that kind of function. Eve additionally told me how often I need to change the battery, and I nodded and recorded Eve's words. Since the CCTV or spy camera doesn't continuously record the screen, the battery lasted longer than I thought.</p>
+<p>Since there was still quite a bit of time left even after installing the detector, I decided to install the spy camera right away since I had received the package.</p>
+<p>Yamashiro Ryuta: I received the item, should I install it right away?</p>
+<p>Minamoto Risa: It would be easier for us if you did.</p>
+<p>Since the owner of the package gave permission, I can do it right away. When I said I would install it, Eve said she would accompany me. I went to the place where the middle school female student in the 3rd gymnasium testified that she heard the sound and installed a small spy camera. Minamoto Risa had bought four cameras, how much money did she spend?</p>
+<p>I installed small spy cameras in the corner of the gymnasium, at the entrance of the gymnasium, and inside and outside the warehouse. I was able to install it quickly because Eve helped me.</p>
+<p>"I'll come visit often, Ryuta-nim. Ryuta-nim, please come visit too!"</p>
+<p>"Yes, I'll go visit around the weekend~!"</p>
+<p>I said goodbye to Eve and returned to the education preparation room. And time passed and it was time for the end-of-day assembly.</p>
+<p>-----</p>
+<p>Minamoto Risa with her chest open like Shii</p>
+<p>Different art style</p>
+<p>Fujigasaki Rinka leggings requested by Altenia-nim!</p>
+<p>When I drew with the original Rinka model, it came out like an elementary school student's body, so I changed the model ㅎㅎ</p>

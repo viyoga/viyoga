@@ -5,54 +5,82 @@ weight = 96
 chapter = 96
 +++
 
-<p>Nadachi Tojo's house was close to Shinoe Misano's house. In other words, it was close to the Human Resources Development Center. It seemed that at least those at the team leader level and above lived in this neighborhood because it was easy to commute. Perhaps that's why the surrounding buildings seemed to be of a certain standard or higher.</p>
-<p>After driving around Nadachi Tojo's house once to get a feel for the area, I parked in a paid parking lot some distance away and got out. It was a weekday afternoon after lunch, so the streets were deserted.</p>
-<p>Nadachi Tojo's house was a two-story house. I, who had entered Nadachi Tojo's house, couldn't enter through the main gate, so after checking the surroundings, I climbed over the side fence and entered the yard.</p>
-<p>Sticking to the wall and expanding my senses as much as possible, I could sense only one person inside the house. It seems to be Nadachi Tojo's wife. The two kids must have gone to school... This makes things easy.</p>
-<p>I placed my hand on the first-floor window, closed my eyes, and began to concentrate. My shadow stretched out, climbed the wall, and was sucked under the window. The shadow passed under the window and went up the other side, reaching the lock.</p>
-<p>Chak! (onomatopoeia)</p>
-<p>The shadow exerted physical force and opened the window. I easily opened the window and entered the room. The room I entered had a bed, but it didn't seem to have many decorations or items, so it seemed to be a guest room. I neatly took off my shoes under the window and closed the window again.</p>
-<p>First, I need to take care of Nadachi Tojo's wife. Concentrating, I could roughly hear the sounds Nadachi Tojo's wife was making. She's in the living room right in front of me. I slowly turned the doorknob and opened the door. In front of the door, I could see Nadachi Tojo's wife watching TV in the living room. Nadachi Tojo's wife seemed so focused on the TV that she didn't notice me opening the door and coming out from behind.</p>
-<p>I took out the sleep spray, a legacy of former Team Leader Kurakake Kuma, from my pocket. I hadn't used it even once since taking it from Kurakake Kuma, so all four uses remained. I took a few more steps forward when Nadachi Tojo's wife suddenly got up and turned around. I sprayed the sleep spray directly into her face. Her eyes rolled back in an instant, and I gently caught her with telekinesis as she fell. I don't know why she got up, but her turning around allowed me to use the spray comfortably.</p>
-<p>"Let's put her in the bedroom for now."</p>
-<p>I laid Nadachi Tojo's wife in what appeared to be the couple's bedroom. She probably won't remember me. Shinoe Misano didn't grasp the situation until I explained it to her. The sleep spray seemed to have the effect of slightly blurring the situation at the time of spraying.</p>
-<p>Now, the remaining time is about an hour until the sleep spray wears off. I looked around the house and found the study that Nadachi Tojo used. There was a computer. I turned on the computer placed on the heavy wooden desk. Fortunately, it didn't require a password and the computer turned on. First, I copied all the important document files onto a storage device. It was said to be the next generation of USB based on my past life, and the capacity was enormous and the speed was fast.</p>
-<p>Then, I turned on the internet and went into the email. What a dumbass. He left automatic login on. I guess he didn't think someone like me would come all the way to his house. I checked the emails Nadachi Tojo had exchanged. Unfortunately, almost all of them were work emails. Surprisingly, the emails are clean?</p>
-<p>With a hopeful thought, I went into the recycle bin, which temporarily stores deleted emails, and found the data I wanted.</p>
-<p>Of course, it wasn't an email directly contacting Taira Jiro, but a conversation with someone below him, but the content was quite meaningful.</p>
-<p>Goodfriend ( [email protected] )</p>
-<p>I am sending you a list of people who share our views, so please make sure there’s a positive result in the upcoming personnel appointment. There will be a big reward for you too.</p>
-<p>Your good friend.</p>
-<p>Attachment ⇶ Promotion Target List.DOC ⇩</p>
-<p>I sent this email itself to myself. The guy who sent it is quite bold. Sending it with Taira Steel's email without using a temporary email, is he not even thinking about getting caught?</p>
-<p>Since I found concrete evidence, I didn't have any other expectations and just checked the emails stored in the recycle bin, and I found an unexpected email there.</p>
-<p>dngyrptEhrkwp ( [email protected] )</p>
-<p>Thank you. Please continue to provide regular reports as you have been doing.</p>
-<p>The recent operation you are conducting is impressive.</p>
-<p>Contacting Number 3 is an impressive choice. Trying to create discord with 5-1 may not be a major blow to TR, but these small operations add up to great results.</p>
-<p>Recently, the Chairman-nim has shown great interest in 5-1s1, so please provide continuous reports on 5-1s1. The activity funds have been transferred to a temporary account, so please check.</p>
-<p>What is this? What is Number 3, what is 5-1, and what is 5-1s1? First, I knew that this email was important evidence. I checked the email address that sent this email, but the email account had disappeared because it was a temporarily created email. Certainly, this seemed more thorough and suspicious than contacting Jiro. First, I'll send this to my email too...</p>
-<p>Ah, since it's a regular report, there might be something in the sent emails. But there weren't any particularly suspicious emails in the sent emails. Come to think of it, since the incoming emails are temporary emails that disappear over time, there's no way to reply to them. Then, they must be doing the regular reporting in another way.</p>
-<p>"Did I get everything I need?"</p>
-<p>I muttered to myself, erased all traces of my presence, and turned off the computer. Time has passed quite a bit while investigating. Concentrating my senses, Nadachi Tojo's wife didn't seem to have woken up yet. I went back to the guest room, put on my shoes, and quietly left the house. I locked the window again with my shadow, went to the parking lot, paid the parking fee in cash, and got in the car.</p>
-<p>It's a bit early to leave work already? I drove without thinking. And without realizing it, I went down the most familiar road in the neighborhood and stopped in front of a house.</p>
-<p>It was Shinoe Misano's house. Well, the only house I'm familiar with in this neighborhood is Shinoe Misano's house. I chuckled and was about to start the car again when the door of Shinoe Misano's house opened.</p>
-<p>Shinoe Misano should still be at the company, so is it her husband? Two people came out as the door opened. One was a man with glasses who seemed to be Shinoe Misano's husband, and the other was a woman. The moment I thought they were relatives, they shared a passionate kiss. Of course, it was a lustful kiss using tongues. The two finished kissing, said goodbye, and parted ways. The man went inside the house, and the woman got into the red car parked in front and drove away.</p>
-<p>After the two disappeared, I checked the black box. The angle was good, and the explicit scene from just now was recorded.</p>
-<p>I smiled as I transferred the recorded video data to my smartphone. I won't use it right away. If I show it to Shinoe Misano right away, Shinoe Misano will be sad. I didn't want Shinoe Misano to be sad. I should show it to her after planting some suspicion. That way, the shock will be less.</p>
-<p>This video is important, but the information I got from Nadachi Tojo's computer is more important. First, I received the promotion candidate file attached to the email sent by Taira Jiro's henchman that I found earlier. Surely, there must be people here that Taira Jiro secretly put into or recruited into the Human Resources Development Center.</p>
-<p>"Huh?"</p>
-<p>It's strange. A name that should be there was missing. The name of Suzuki Chisami, the deputy team leader of our Education Support Team 2, was not on the list. I checked it twice just in case, but it wasn't there.</p>
-<p>The date the email was received was only a week ago, and Suzuki Chisami had been at the Human Resources Development Center for over a month, but Suzuki Chisami's name, which should have been there, was missing. Is she not in Taira Jiro's line? Or is it that she can't be promoted right away because she hasn't been here long? What is it? Could it be that Suzuki Chisami is not in the Jiro line?</p>
-<p>I was a little confused. Surely, if Nadachi Tojo came directly and was such a pain in the ass to Shinoe Misano, her name should be there...</p>
-<p>If there's no evidence, there's nothing I can do. I'll have to ask Shinoe Misano directly about the situation at the time. I immediately turned on Line. I sent a Line message to Mimata Chieri instead of Shinoe Misano.</p>
-<p>Taira Ryuta: Sunbae-nim, are you in the Team Leader-nim's office right now?</p>
-<p>Mimata Chieri: No, she went out for external business.</p>
-<p>Hmm... If she's out on external business, I'll have to ask her tomorrow. I sent a thank you message to Mimata Chieri on Line and returned directly to the Human Resources Development Center. Since it was such a close residential area, I arrived home in less than five minutes. I got out of the car and called Yukiko as I entered the house. The information I obtained was so important that I couldn't wait for Yukiko to get off work.</p>
-<p>-Ryuta, what's wrong?</p>
-<p>"I've obtained definite information."</p>
-<p>-Really? Where did you get it? Are you hurt anywhere?</p>
-<p>"I'm not hurt anywhere. I'll tell you the details when we meet. Should I go to the Director's office?"</p>
-<p>-Would you? I have a little work left, so it would have to be evening if we met at home.</p>
-<p>"Yes, I'll go to the Director's office now."</p>
-<p>Come to think of it, it's my first time in the Director's office. I headed to the Director's office with a bit of excitement.</p>
+<p>"The hotel made a mistake and only booked one room. They said there are no rooms left, so I just came in for now."</p>
+<p>At my words, Suzuki Chisami staggered and got up from the bed, coming towards me. Her expression was full of displeasure, which didn't bode well.</p>
+<p>"You can't even handle something like this...! The only thing you were born with is that great bloodline, shouldn't you at least be good at booking hotels?"</p>
+<p>Suzuki Chisami poked my chest with her index finger and started to berate me in a shrill voice. Did she not just hear me? I said it was the hotel's fault, not mine! It seemed she was so drunk that she was interpreting my words in her head the way she wanted to hear them.</p>
+<p>After being poked in the solar plexus a few times with her finger-gun, I started to get annoyed. I wasn't in my usual state either, having drunk enough with my colleagues to make them pass out for a while, so my reason for suppressing myself was weakened.</p>
+<p>Tak!</p>
+<p>I grabbed Suzuki Chisami's wrist as she tried to poke me again. Suzuki Chisami glared at me with a 'what do you think you're doing?' look. I also stared back at Suzuki Chisami with a 'so what?' look.</p>
+<p>"Stop it. You'll regret it if you go any further."</p>
+<p>That was the limit of my reason. I didn't know how I would explode if Suzuki Chisami provoked me one more time. Suzuki Chisami shook off my hand and poked my chest with her index finger once more. And with a queen-like smile, she said to me.</p>
+<p>"How are you going to make me regret it? You're just an employee... Kyaak!"</p>
+<p>I pushed Suzuki Chisami straight onto the bed. Already drunk, Suzuki Chisami fell weakly onto the bed. Suzuki Chisami glared at me as she lay there. Even in that hateful glare, there was a primal fear of being alone in a room with a man.</p>
+<p>"I told you you'd regret it, didn't I?"</p>
+<p>"Let go of me! I'll kill you!"</p>
+<p>I grabbed Suzuki Chisami's chin. Suzuki Chisami desperately struggled, hitting and pinching me. Because of Suzuki Chisami's desperate movements despite being drunk, we ended up tangled together on the bed.</p>
+<p>As I blocked Suzuki Chisami's pinching and hitting, we somehow ended up in a very lewd position. Of course, if I pinched and hit her, Suzuki Chisami would die instantly, so I only blocked her to avoid causing a fatal accident. Perhaps it was because of the adrenaline from the fight, or perhaps she was excited from hitting me, but Suzuki Chisami's nipples were erect even through her shirt and bra.</p>
+<p>Me? I was, of course, fucking hard too. If a healthy man spent almost twenty minutes rubbing bodies with a woman on a bed, it was only natural for him to get an erection, even if he had no feelings for her.</p>
+<p>Suzuki Chisami continued to struggle, unaware that she was excited. "Let go! Let go!" she kept moving, and I suppressed her with my body to stop her from making a fuss. Then, Suzuki Chisami, who luckily freed one arm, slapped me on the cheek.</p>
+<p>This bitch...! My reason momentarily snapped. When I came to my senses, I was tearing Suzuki Chisami's hymen with my dick and roughly power-piston-ing her.</p>
+<p>"Ah, no~!! Don't, I hate it, I hate it! Get off!"</p>
+<p>"What do you mean no? You fucking bitch!"</p>
+<p>Suzuki Chisami was saying "Dame dame!" in Japanese, and I was cursing in Korean while moving my hips.</p>
+<p>Suzuki Chisami's clothes were already torn and stripped off, revealing only her glossy brown skin. Perhaps it was because we were already having sex, but Suzuki Chisami's brown skin looked very sexy.</p>
+<p>"You, you...! I'll make you pay for this!"</p>
+<p>"I'll make you take those words back before the day is over."</p>
+<p>"Shut up, I'll never take them back, aahng! Ung... Eup!"</p>
+<p>Suzuki Chisami seemed surprised by the moan coming from her own mouth. Until just now, she had been burning with anger towards me due to the pain of her hymen being broken, but now that I could feel the fluids slowly coming out of her pussy, I sensed that pleasure was gradually rising.</p>
+<p>Suzuki Chisami's pussy was getting hotter and hotter. The temperature inside Suzuki Chisami's vagina, which I felt from my dick, was gradually rising. Unlike when I forcibly tore her hymen, Suzuki Chisami's pussy was chewing on my dick and responding to my hip movements. As expected, her body was honest, unlike her mouth.</p>
+<p>"Ooh-hot...! Ung, eungeuht!!"</p>
+<p>As a virgin, Suzuki Chisami had no tolerance for pleasure. She tried to suppress her moans, but perhaps because of that, she made somewhat comical moaning sounds.</p>
+<p>"Oook...! Don't do it.... Heuek! Ung... Hut!"</p>
+<p>The "Don't do it!" from before was different, a weak "Don't do it...." I couldn't feel any will to break free from me at all.</p>
+<p>"Apologize, you bitch! Apologize!"</p>
+<p>"N-no way! What do I have to apologize for! To you... I won't lose to the likes of you!"</p>
+<p>"Is that so? Then I'll do this!"</p>
+<p>Peok! Peok! Peok! Peok!</p>
+<p>I changed my position to the so-called mating press position, the flexed position, and moved my hips as roughly as possible, strongly pressing on Suzuki Chisami's uterus.</p>
+<p>"Heueeut~ Ooh-oht! Never, heueup...! Eunghut...! Never ever♥ will I do it!"</p>
+<p>Suzuki Chisami was surprisingly resilient. But my sex stamina was strong enough to handle more than ten people, and the night was still long.</p>
+<p>"Eueuk.... I'm cumming!"</p>
+<p>"No, no, no...! Not insideee~!! Hia-eu-eung!!"</p>
+<p>As befitting the name mating press, I sprayed my Semen into Suzuki Chisami's uterus in the deepest position. Semen was discharged with a gurgling sound, and Suzuki Chisami shuddered each time, accepting the Semen of the man she hated.</p>
+<p>"Is it.... over now? Then let me go now!"</p>
+<p>"Who said it's over?"</p>
+<p>After staring blankly at the ceiling after the internal ejaculation, I bound both of Suzuki Chisami's hands, which were trying to push me away, with one hand and started moving my dick, which was still stuck in Suzuki Chisami's Pussy, again.</p>
+<p>"Heueung...! Men are supposed to be done after cumming once...! Hya-euht! Why is it still hardeeht?"</p>
+<p>Yeah, not me. The movement became even smoother because of the Semen filling Suzuki Chisami's insides. Perhaps that's why Suzuki Chisami's moans sounded sweeter than the first time.</p>
+<p>"Heueung...! Eunghut! Heueut! Heueheung!"</p>
+<p>"Do you feel like apologizing now?"</p>
+<p>"Heueeeung never...! Never will I apologiizeaahng...! I won't do it♥"</p>
+<p>I covered Suzuki Chisami's mouth with my mouth to stop her from saying any more bad words that she would never apologize. If I gave her pleasure from above and below, she would become more obedient. At first, Suzuki Chisami was surprised when I kissed her and tried to bite me, but when I moved my hips violently, she lost her strength and couldn't do that either. Thanks to that, my tongue was able to caress Suzuki Chisami's mouth as much as I wanted.</p>
+<p>"Eung.... Chup, chu-up...! Heueut...! I hate it, kiss-I hate it...! Chu-up...!"</p>
+<p>Seeing Suzuki Chisami sucking my tongue as much as she wanted while saying she hated it with her mouth, I realized that her capture was not far off. I started developing Suzuki Chisami's entire body with kisses on her lips, persistent caresses on her breasts with my hands, and piston movements with rhythm below.</p>
+<p>"Heueeung! Heung, I hate it.... I'm strange, ha-eut!! I hate it! I hate changing strangelyyoo...!"</p>
+<p>Suzuki Chisami also seemed to realize that her body was gradually succumbing to pleasure. And exactly four hours later.</p>
+<p>"Heehee♥ I'm sorry! Ooo-heung! I'm sorrry, Chisami is going to break down like thiseeot!!"</p>
+<p>Suzuki Chisami, who was covered in Semen not only in her Pussy but all over her body, was already a slave to the pleasure I gave her. She had fainted from pleasure for three hours and I had forcibly woken her up three times, and after only replenishing her with water in between and continuing to touch her entire body including her Pussy, she had suddenly turned into an obedient puppy.</p>
+<p>"Clean my dick with your mouth."</p>
+<p>"Yeees♥ Haup...! Oop, oo-heup!"</p>
+<p>Until four hours ago, Suzuki Chisami was a virgin, so everything was still awkward except for being taken. Even now, she was doing fellatio instead of cleaning my dick, and even the fellatio was extremely awkward. Still, this awkwardness had its own charm.</p>
+<p>"That's enough. Now sit next to me."</p>
+<p>"Yeehee."</p>
+<p>"Are you mine now? Got it?"</p>
+<p>"That's...!"</p>
+<p>She didn't answer immediately, as if she hadn't completely surrendered to the depths of her heart yet. I grabbed Suzuki Chisami's breast. I touched her elastic breast and flicked her nipple.</p>
+<p>"Ha-eut!"</p>
+<p>"This nipple too...."</p>
+<p>And then I lowered my hand and rubbed her clitoris.</p>
+<p>"Eung, heueut!"</p>
+<p>"This Pussy too...."</p>
+<p>And then I grabbed Suzuki Chisami's cheeks with both hands and started kissing her. Suzuki Chisami passionately mixed her tongue with mine, the complete opposite of trying to bite my tongue earlier.</p>
+<p>"Chu-up♥ Chu-beup chup, oo-heup...!"</p>
+<p>I took my lips off and looked straight into Suzuki Chisami's eyes.</p>
+<p>"And you are mine too."</p>
+<p>"Yeehee.... I am Ryuta-nim's."</p>
+<p>Suzuki Chisami answered with a dazed look and a happy smile.</p>
+<p>------------</p>
+<p>Suzuki Chisami before getting drunk and picking a fight with the protagonist</p>
+<p>Suzuki Chisami whose clothes were torn by Ryuta who lost his mind.</p>
+<p>Suzuki Chisami after training completion</p>

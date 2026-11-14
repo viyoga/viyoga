@@ -5,88 +5,80 @@ weight = 350
 chapter = 350
 +++
 
-<p>"She's quite the scatterbrain, isn't she?"</p>
-<p>"Yeah? I'm her homeroom teacher."</p>
-<p>Eve said, watching Minamoto Risa leave, and when I said I was her homeroom teacher, Eve went, "Ah...!" and didn't say anything more. Looking over at Saionji Diana, Saionji Diana was lying on the operating table. Above the lying Saionji Diana, a scanning machine was slowly scanning Saionji Diana's body. Is it okay for her to be wearing clothes?</p>
-<p>"Are you measuring her right now?"</p>
-<p>"Yes. Since she said she does swordsmanship, I'm calculating the ideal arm and leg length relative to her torso. For your information, I can scan everything even if she's wearing clothes."</p>
-<p>Ah, I see. Predicting even what I'm thinking, Eve is scary indeed as an AI. Ideal arm and leg length.... That's going to be different for every swordsmanship style, so can you even decide that? The ideal arm length for swordsmanship that uses quickdraw and swordsmanship that uses illusionary sword techniques would be different. Quickdraw would be more advantageous the longer the arm is, and illusionary sword techniques that focus on change would be slower if the arm is too long.</p>
-<p>Eve seemed to see my suspicious gaze and puffed out her cheeks slightly as she spoke.</p>
-<p>"Don't you trust me?"</p>
-<p>"No, it's just that the ideal body type is different for each school of swordsmanship...."</p>
-<p>"I analyzed several schools with big data and came up with an average value. After the surgery, if it's uncomfortable after wielding a sword directly, I can provide AS. Then I'll accumulate more data."</p>
-<p>I see. Eve, who I'd never seen get angry, got a little worked up because I doubted her abilities. On the contrary, this side of her was more human-like(?), which was nice.</p>
-<p>"The body measurements are all done, and the parts that are coming now will arrive in the morning, so the surgery will be done tomorrow morning. What do you want to do?"</p>
-<p>"Saionji, did you hear that? What do you want to do? If it's from the morning, I'll say I'm sick and can't come. Eve can make a fake doctor's note, so do that."</p>
-<p>Perhaps because it was a scanning type, the body measurements were quickly finished. At the words that the surgery would be done tomorrow morning, I asked Saionji Diana when she wanted to have the surgery.</p>
-<p>"I'll have the surgery right away in the morning."</p>
-<p>Since Saionji Diana wanted to get out of her disabled state as soon as possible, doing it from the morning was almost a given.</p>
-<p>"Okay, let's do that. Can we pay now?"</p>
-<p>"Including shipping and making it a custom size to fit Saionji-yang's body, it's 550,000 points!"</p>
-<p>550,000 points is 550,000 dollars, so it's quite expensive. Is that about 71 million yen? Then again, if I thought about it as the down payment for an excellent swordsman, it didn't seem that expensive....</p>
-<p>I nodded and asked Eve to calculate it with my dark web points deposited in the dark web app. Eve blinked for a moment and then gave a refreshing smile, saying, "Calculated, customer-nim!"</p>
-<p>"Let's go now."</p>
-<p>"Yes... Kyaa!"</p>
-<p>I princess-carried Saionji Diana, who was still lying on the body measurement device, and headed towards the wheelchair parked in the corner. Saionji Diana let out a small kyaa scream, but after that, she was quietly held like a rabbit caught by a predator.</p>
-<p>"I'm leaving. I have to go to work tomorrow, so only Diana will come here."</p>
-<p>"Aww...! That's a little disappointing. But since we have business to discuss, please stop by soon."</p>
-<p>I nodded at Eve's words and left the dark web clinic. Coming all the way here just to talk business... should I call Kasaoka Yuzuki for a delivery health service at the unmanned love hotel where the dark web clinic is located? Hugging Kasaoka Yuzuki at home every day and hugging her at a love hotel would feel a little different.</p>
-<p>I came out of the basement floor where the dark web clinic was located and left the love hotel, being mindful of the gazes around me. Saionji Diana looked at me and asked what she was curious about.</p>
-<p>"Um, how much is 1 point in real money, just now?"</p>
-<p>"Yeah, 1 point is 1 dollar."</p>
-<p>Saionji Diana knew about the existence of the dark web clinic, but she didn't seem to know much about the amount since she hadn't used it before.</p>
-<p>"If 1 point is 1 dollar... 550,000 dollars, that's, that's over 70 million yen?"</p>
-<p>"How can the young lady of Saionji Bank be surprised by only 70 million yen?"</p>
-<p>As expected, Saionji Diana was quick to calculate, probably because she had accounting skills in her stat window. I smiled and chided her, asking how the young lady of Saionji Bank, which does big banking, could be surprised, but Saionji Diana was still surprised.</p>
-<p>Well, her family only gave her the lowest-grade cyber implant on one arm, and after the accident, they probably didn't give her much allowance. That's how much Saionji Diana has come to know the value of money.</p>
-<p>"Where's your house? I'll take you."</p>
-<p>"No, just take me to there. After all, today and tomorrow will be the last days I'll be going in a wheelchair."</p>
-<p>Even though I said I'd take her, Saionji Diana asked me to drop her off at the bus stop in the distance. I nodded and took her to the bus stop.</p>
-<p>"How much is your monthly allowance? Since you've decided to work with me after graduation anyway, tell me without lying."</p>
-<p>"20,000 yen a month."</p>
-<p>20,000 yen? That's less than what the money-spending high school girls in Tokyo get.... Saionji Diana's mood seemed to be getting worse after answering my question, so I asked one more time, just in case.</p>
-<p>"Just allowance? Or does that include living expenses?"</p>
-<p>To my repeated question, Saionji Diana replied softly, "Living expenses...." So, you're doing all your transportation and food expenses with 20,000 yen? That's going to be a huge shortage, isn't it? The Saionji family is amazing. They say the rich get richer, but did they become rich by saving this much?</p>
-<p>"I'll give you 100,000 yen a month, so use it as allowance. Tell me if you need more."</p>
-<p>"Yes? Ah...."</p>
-<p>Saionji Diana didn't know what to do when I took out 100,000 yen from my wallet and gave it to her. I patted her on the shoulder as if to say it was okay and helped her put the 100,000 yen I gave her in her pocket.</p>
-<p>She might be short on money to hang out with other young ladies, but I don't think Saionji Diana will hang out that much, so 100,000 yen should be enough.</p>
-<p>We walked quietly to the bus stop.</p>
-<p>"Can you go alone?"</p>
-<p>"Yes, I'm used to buses."</p>
-<p>Saionji Diana said she would take the bus until the end, perhaps because she was embarrassed to have me take her. I waved my hand, telling her to go in carefully, and headed home.</p>
-<p>"Um, Sensei!"</p>
-<p>"Yeah?"</p>
-<p>Saionji Diana calls me from behind. Surely she's not already asking me to raise her allowance, is she? Contrary to my worries, Saionji Diana bowed to me while sitting in her wheelchair.</p>
-<p>"Thank you...!"</p>
-<p>"Ah, I'm your homeroom teacher and future boss, so you can rely on me a little more."</p>
-<p>It was a thank you. I don't know what to say in these situations....</p>
-<p>"Just think about finishing the surgery well for now."</p>
-<p>"Yes!"</p>
-<p>I said goodbye and left Saionji Diana at the bus stop and went home.</p>
+<p>I shared ice cream with Alik and had a healing time chatting about small things. Alik went to the Cheongshim Hall, and I went to the second floor where the Date Experience-Meditation Club was.</p>
+<p>The female students were sitting around watching TV or chatting, and Minamoto Lisa was sitting cross-legged pretending to meditate to uphold the name of the 'Date Experience-Meditation Club'.</p>
+<p>Seizawa Shii was watching her from the side, saying, "Ahaha, Lisa-tan, you're so funny~!" and disturbing her meditation, while Otagi Yuka and Kujo Kina seemed to get along well, having a heated debate about martial arts.</p>
+<p>Well, this is the first time I've seen a club where students with such different tastes gather, but I guess it's because of the special situation of being a special class.</p>
+<p>"Oh, right! Sensei! You promised to spar with me!"</p>
+<p>Kujo Kina said to me when she saw me entering the club room. Did I...? Ah, when I saw the gym teacher reverse-raping a female student back then, I made a deal to carry Naruse Shiyo on my back in exchange for a sparring match. I had completely forgotten.</p>
+<p>"Since there isn't a decent fighting ring right now... how about this?"</p>
+<p>Everyone perked up their ears, curious about my suggestion. They pretended not to listen, but it seems they were listening after all.</p>
+<p>"We'll spar on the beach of the island we were planning to go to for the picnic."</p>
+<p>"Oh...! That's a good idea?"</p>
+<p>"Then we can cut down one of the events we planned. Should we hire a round girl too...."</p>
+<p>Kujo Kina nodded her head, liking the idea, and Minamoto Lisa, who was in charge of this picnic, seemed determined to make my sparring match with Kujo Kina into a formal match, fussing about hiring a round girl and scaling things up.</p>
+<p>...Did I say I would spar during the picnic for nothing? I thought about canceling it even now, but Kujo Kina and Minamoto Lisa's eyes were sparkling so much that I couldn't bring myself to say I would cancel it.</p>
+<p>"I have something to do, so I'm going to leave right away. Lock the door well, and play moderately before you go!"</p>
+<p>"Ehh, Ryuta-jji, aren't you going to be with us today?"</p>
+<p>"What kind of club has the faculty advisor with them every day?"</p>
+<p>When I said I was leaving to go back, Seizawa Shii pouted her cheeks as if she was disappointed, but I said it with a truism.</p>
+<p>In fact, a club is a gathering of students, and unless it's a sports club, the faculty advisor doesn't interfere that much every day. In my case, I had Minamoto Lisa as my target, so I saw them often.</p>
+<p>"I'm really going to leave... I'll give the class president, vice president, and club leader the authority to use my prep room card key, so if you're hungry, take out some ice cream or pudding to eat."</p>
+<p>"Goodbye!"</p>
+<p>I adjusted the St. Francis faculty phone app to give Minamoto Lisa, Konoe Akina, and Shido Tsubaki the authority to open the door to my prep room, and then I left. When I told them to eat ice cream and pudding as they pleased, they all smiled and said goodbye. As expected, women seemed to be weak to sweet things.</p>
 <p>###</p>
-<p>I went to school, and before the morning assembly started, I received a text from Eve saying that the surgery had started. During the assembly, Minamoto Risa, who had looked like she had given up yesterday, had a confident expression on her face today.</p>
-<p>Yesterday, she had an expression like she had lost everything, but today she has a confident expression, so it seemed like she had found some clue in the story with me yesterday.</p>
-<p>Of course, I thought it would go well, but it's not a normal surgery, it's a surgery to attach new limbs, so I'm a little worried.</p>
-<p>I calmed my worried heart and was doing the work to be done today in the education preparation room. Konoe Akina, who is a regular student, and Urabe Konoka, who contacted me in advance that she would be coming to school from tomorrow, are coming.</p>
-<p>Then the total number of students in our class is 13. I haven't seen Oofuchi Erika, who is a hikikomori and hasn't come to school even once. Should I do a home visit later....</p>
-<p>I was doing what I had to teach today and work until the third period when my phone rang.</p>
-<p>EVE: The surgery went well. Saionji-yang is in the recovery room. It will be over in the afternoon with fine-tuning.</p>
-<p>Ryuta: Thank you for your hard work. Thank you for listening to my request.</p>
-<p>EVE: What are you talking about? I did it all for a price.</p>
-<p>Even though she said it was for a price, I found out that Eve gave me a big discount because I was her business partner. The price of the high-performance cyber implant alone seems to be 550,000 dollars, but she didn't charge me at all for the custom tuning fee and surgery fee. In addition, doing skin grafts without making it obvious was also free, so she was quite considerate of me.</p>
-<p>Ryuta: If you ever need anything from me, please ask.</p>
-<p>EVE: Really? I'll remember that. I'll even back up this memory!</p>
-<p>I was grateful and told her to ask me for anything anytime, but she's even backing it up, so is she saying she'll remember it even if I die? That's pretty scary.</p>
-<p>Ryuta: Of course. Ask me anytime.</p>
-<p>EVE: Yes~! Don't worry about Saionji-yang. Recovery technology has advanced these days, so she'll be able to come to school tomorrow.</p>
-<p>After finishing the chat with Eve and doing my work with a lighter heart, lunchtime passed, my class time passed, and it was time for the after-school assembly.</p>
-<p>"Did you all listen to the class well today too?"</p>
-<p>"...."</p>
-<p>"Yesss!"</p>
-<p>"Ahaha, Ryuta-cchi, do you think we listened to the class well?"</p>
-<p>The reactions were so diverse. Well, it's probably a special class because it's like this. Seizawa Shii's reaction was a little annoying, but I'll let it go because she's pretty.</p>
-<p>"Then, as promised, Minamoto and Seizawa, Konoe and Otagi, come to the education preparation room after the after-school assembly.... Good job. Those who are going home, go home, and those who are doing club activities, do your club activities!"</p>
-<p>There was nothing special to convey today, so I finished it roughly. Actually, I was also curious about the match between Minamoto Risa and Saionji Shii's Meditation Club and Konoe Akina and Otagi Yuka's Date Experience Club, so I finished it even faster.</p>
-<p>----</p>
-<p>Diana maid illustration!</p>
+<p>Once I returned home, I booked Kasaoka Yuzuki for 180 minutes on Mask Delivery. Mask Delivery said that Kasaoka Yuzuki hadn't come to work yet, so they would send her right away when she arrived. Hmm, it seems like she hasn't finished her work as a grade level director yet.</p>
+<p>Anyway, from last night with Kijimoto Jurie and Daigo Terue, and now Kasaoka Yuzuki... it was almost a sex marathon that wouldn't even get a normal person hard. Well, I'm still full of energy though.</p>
+<p>I haven't completely made Kasaoka Yuzuki mine yet, and besides, the opponent I'll be facing tomorrow(?) was Yukiko, a succubus who had been starving for three weeks. I had to loosen up my body to this extent to face Yukiko.</p>
+<p>After showering and changing into comfortable clothes, I lay down on the bed and waited, and then I received a text message from Mask Delivery.</p>
+<p>Mask_Deli: Yuzu-ssi just left! Thank you for your reservation!</p>
+<p>She'll be here soon. It's not rush hour now, so the store manager will probably bring her quickly. I thought I could just watch TV and wait leisurely.</p>
+<p>-The gas leak incident that occurred in Korea this time....</p>
+<p>I was watching the news while lying down and dozed off a bit, but I woke up when the story about Korea came on. Oh, that seems like it was some kind of event.... It must be the event I told Han Yu-gyeong about. She'll do well. I should contact her once I send Kasaoka Yuzuki back later.</p>
+<p>-Ding-dong!</p>
+<p>I was thinking about what to ask Han Yu-gyeong when the bell rang. It seemed like Kasaoka Yuzuki had arrived. I got up from the bed and went to the front door to open it.</p>
+<p>It was Kasaoka Yuzuki wearing a mask.</p>
+<p>"It's been a while, Yuzu-ssi."</p>
+<p>"It has been a while."</p>
+<p>Her voice was quite cold. Is it because I didn't call her even once during the weekdays? She seems a little sulky. But I had the best weapon to relieve a woman's mood. It's right between my legs.... Hmm, is that too much of an old man's statement?</p>
+<p>"What kind of service would you like to start with today?"</p>
+<p>"Let's start with smata."</p>
+<p>I chose smata, which is rubbing our genitals together, as the starting point rather than a blowjob or paijuri. No matter how coldly she speaks, if our dicks and pussies are rubbed together with smata, that coldness will melt away quickly.</p>
+<p>"Okay. Please take off your clothes."</p>
+<p>I was already wearing comfortable clothes, so I quickly took off my clothes and lay down on the bed. Kasaoka Yuzuki slowly took off her clothes. As expected, her big breasts welcomed me. Come to think of it, most of the female teachers at St. Francis Girls' Academy were busty.</p>
+<p>From the principal to the student affairs director to the school nurse, there wasn't a single person who wasn't busty. Ah! The home economics teacher, Shimokawabe Airen, wasn't busty. In my opinion, Shimokawabe Airen had the perfect size, but because the surroundings were so full of big breasts, there was an unfortunate incident where she looked a little small.</p>
+<p>Thinking about other women is rude, and evaluating Shimokawabe Airen's breasts is also rude, so I'll stop here and lie comfortably on the bed and enjoy Kasaoka Yuzuki's strip show.</p>
+<p>Seeing her undress while lying down was quite nice because the angle was different from what I usually see. Her breasts look huge from this angle.</p>
+<p>"Are you already excited just by seeing me undress? You're such a pervert."</p>
+<p>Kasaoka Yuzuki was treating me with an S-like feeling today. Hmm, I don't know how long she'll do it, but later, even if she begs me to look at her, I shouldn't.</p>
+<p>She climbs on top of me and puts her pussy on top of my dick pillar. She speaks coldly, but her body is hot, and her pussy is hot and sticky with a lot of vaginal fluid.</p>
+<p>"Huuuuh...!"</p>
+<p>Kasaoka Yuzuki made a soft moan and slowly moved her hips back and forth, starting the smata. It was a smooth movement, as if she was painting my entire dick with a brush dipped in plenty of vaginal fluid.</p>
+<p>"Haaheung, haat! It feels so good...! As expected, it's different from other men, heeheung! It's different♥"</p>
+<p>The smooth movements gradually became more intense. She was moving her hips back and forth frantically from the tip of my glans to my balls, and the friction was reduced due to the vaginal fluid overflowing from her vagina, making the speed even faster.</p>
+<p>Only the wet sound of the dick and pussy rubbing together, chwip chwip chwip, and Kasaoka Yuzuki's moans could be heard in the room.</p>
+<p>"Heeung, haat...! Euung, it feeels.... soo goood♥"</p>
+<p>"If it feels good, try putting my dick in."</p>
+<p>"No way...! It's against company rules, aah♥"</p>
+<p>Kasaoka Yuzuki, who let me put it in on the weekends, was playing hard to get this time.</p>
+<p>"Yuzu-ssi's pussy feels so good.... I wonder how good it would feel if I put it in...? I want to scrape the inside of Yuzu-ssi's vagina with my thick dick...."</p>
+<p>"Heeung, but still♥ Huut...!"</p>
+<p>Kasaoka Yuzuki seemed to be weakening a little as I pleaded.</p>
+<p>"But still...! You have a girlfriend! I saw you going into your house with a woman when I was passing by nearby!"</p>
+<p>Kasaoka Yuzuki suddenly went on a rampage. What did she see? Girlfriend? Kasaoka Yuzuki wouldn't have been spying on my house.... It feels like she saw it by chance on the street, but who did she see? If she saw someone coming to my house, it would have been Kijimoto Jurie or Daigo Terue....</p>
+<p>Daigo Terue probably wouldn't have been there because it was during Kasaoka Yuzuki's working hours, so she probably saw me taking Kijimoto Jurie to my house yesterday.</p>
+<p>"It's not a girlfriend, but so what if I have a girlfriend? Do you think I would give up Yuzu's pussy if I called a delivery health service even though I have a girlfriend?"</p>
+<p>Since it's come to this, I decided to go out confidently. So what? was my tactic. So what if I have a girlfriend or not? I just want to put it in, and I slightly bounced my hips.</p>
+<p>"Haaheuuhaang! Ohoooot! It, it went in, haaang♥"</p>
+<p>I only bounced my hips slightly, but my dick went into her vagina as if it was entering a water slide. Kasaoka Yuzuki made a tremendous moan, but she pulled out my dick again with superhuman mental strength. As she pulled out my dick, her vagina scratched my glans a lot, making her make a pretty unsightly moan of "woohoooot♥," but it was amazing. There were hardly any women who pulled out their dicks on their own.</p>
+<p>"Haa, haa...! Haa...."</p>
+<p>Kasaoka Yuzuki pushed me away with trembling hands and laid me down on the bed. And then she spreads her legs.</p>
+<p>"I can't accept it going in like this by chance. Huut, if you want to put it in, put it in yourself...!"</p>
+<p>I thought she was going to talk about money, but that's not it. She can't accept it going in by chance while doing smata?</p>
+<p>I don't care if it's by chance or not as long as I can put it in. I grabbed Kasaoka Yuzuki's thighs without saying anything and pushed my dick in.</p>
+<p>"Heuoooot! Huut! Dick, huut! It's biiig♥ Haaheung...!"</p>
+<p>---The difficulty of characters wearing masks ㅠㅠ</p>
+<p>Author: Oh! Great body! Good pose too....but why is there kalguksu under the mask?</p>
+<p>This isn't the mask I wanted...?</p>
+<p>Now she's not even wearing a mask....</p>
+<p>Soon, I'm going to create a reason for characters wearing masks not to wear them.....</p>

@@ -5,78 +5,93 @@ weight = 636
 chapter = 636
 +++
 
-<p>"Sniff... Sniff..."</p>
-<p>Minamoto Risa, who had been shedding tears for a while, gradually stopped crying as I comforted her. When Minamoto Risa's shoulder shaking, as she was embraced by me for a long time, stopped, I playfully opened my mouth.</p>
-<p>"Was ○Piece that sad?"</p>
-<p>When I asked with a smile, Minamoto Risa, as if embarrassed to have cried, blushed and nodded her head slightly.</p>
-<p>"Y-You, go back to reading manga!"</p>
-<p>Minamoto Risa shouted back as I kept looking at her with a smile, and covered her face with the tablet. That appearance was quite cute. I thought she would straighten her posture, but she started watching ○Piece while maintaining a position almost hugging me.</p>
-<p>Well... this might be good too. If we keep our bodies close, her affection for me will rise without her even knowing it. I also turned my attention away from Minamoto Risa again and watched ○Piece on the tablet.</p>
-<p>The reason I turned my attention away was because if I kept paying attention, I felt like my dick would get super hard because of the scent of Minamoto Risa's female body and the fact that we were alone in an enclosed space. I was planning to maintain a moderately sweet atmosphere. We've only held hands so far, I can't suddenly shove my hard dick at her.</p>
-<p>As I was watching the tablet, Minamoto Risa's reactions, as she was hugging me and reading the manga, naturally came to my ears. She laughed with a "Puhuhu" at funny scenes, and sniffled at sad scenes, but she didn't cry as much as she did during the Nami episode earlier.</p>
-<p>As expected of a current otaku, her reading speed was quite fast, and by the time we were about to leave the net cafe, she had already surpassed twenty volumes.</p>
-<p>We received a call from the counter that it was almost time to leave, so we put the tablets back in their place and got up from our seats.</p>
-<p>Minamoto Risa hugged me and watched manga, but she didn't do anything else, so there was no need to fix her clothes. We just had to get up and leave right away. We left the VIP couple room, looked at the counter, and informed them that we were checking out.</p>
-<p>"We're checking out."</p>
-<p>"Yes."</p>
-<p>Perhaps because there were sad scenes in ○Piece in between, Minamoto Risa's eyes were bloodshot. The male part-timer seemed to have misunderstood the situation greatly, and made a slightly lewd expression. I didn't like that expression, so I lightly struck the part-timer's groin with telekinesis.</p>
-<p>"Kuh?!"</p>
-<p>Minamoto Risa looked at the part-timer who suddenly sat down with a question mark, but I silently grabbed Minamoto Risa's shoulder and left the net cafe.</p>
-<p>"Why did that happen?"</p>
-<p>"I don't know... Maybe he suddenly got a cramp."</p>
-<p>I pretended not to know and left the net cafe building, heading to the dinner location. For dinner, we went to a Western-style restaurant, as befitting a date. It was a pasta restaurant where you could customize and choose everything from the noodles to the sauce ingredients, which was said to be trending recently.</p>
-<p>"I'll have vongole sauce with linguine, what about you?"</p>
-<p>"I'll have ragu sauce with spaghettini and alfredo sauce with fettuccine noodles. Let's order a margherita pizza as a side and share it."</p>
-<p>"Okay."</p>
-<p>After ordering what we each wanted, we started talking about the ○Piece we had read today. It was still only the beginning for Minamoto Risa, but she was excited and had a lot to say. I was worried that she might find it boring, but I'm glad she liked it.</p>
-<p>"Do you know what Eagle Eye Beagley first thought when he saw Three-Sword Style Zoro?"</p>
-<p>"Huh? I don't know."</p>
-<p>"Why is he wearing a weapon in his helmet compartment?"</p>
-<p>"Ahaha, what is that~."</p>
-<p>While talking, I felt like I might accidentally spoil something, so I told her a meme I had seen a long time ago. Minamoto Risa seemed to find it quite funny and burst out laughing with "Ahaha."</p>
-<p>As we were talking in a friendly atmosphere, the pasta we had chosen was served. Hmm, not bad? It was quite delicious. Maybe it felt more delicious because I chose everything from the ingredients to the sauce and noodles. We were quite hungry, perhaps because reading books burns calories, so we quietly began to focus on our meal.</p>
-<p>"By the way, is the photo printing going well?"</p>
-<p>While eating pasta, I suddenly remembered the photos that Minamoto Risa had been taking of me as a model, so I asked.</p>
-<p>"I'm going to make them into photo cards, so I'm talking to a professional company about it. I'm also going to add glitter coating, so I think the unit price will go up a bit more than I thought."</p>
-<p>Minamoto Risa answered my question without hesitation. No, it's just a bonus to be included in the club magazine, why are you making it so seriously?</p>
-<p>"Shouldn't you be focusing on the club magazine?"</p>
-<p>"We're going to lower the printing quality of the club magazine and focus on mass production as much as possible. Of course, we'll print a few copies in high quality separately for the Date Experience Club members who worked hard. The ones we sell at the festival are mass-produced, low-quality items."</p>
-<p>I don't know what she's thinking. St. Francis Girls' Academy only has about 100 students per grade, and even if you include both middle and high school, there are only about 600 students, so I don't know why she's talking about mass production. There will definitely be a lot left over.</p>
-<p>"Don't worry. It'll sell more than you think."</p>
-<p>"It's a festival, shouldn't we just enjoy it? Is there a reason why we need to sell a lot of club magazines?"</p>
-<p>".... It's because of our family tradition."</p>
-<p>It's because of the Minamoto side. But what does the family tradition have to do with our club magazine?</p>
-<p>"Actually..."</p>
-<p>Minamoto Risa explained it to me in an easy-to-understand way. According to the story, in order for someone with the Minamoto surname to work for the Minamoto Group, they must earn 10 million yen with an investment of 1 million yen or less.</p>
-<p>Because there was an iron rule that they could not work for the Minamoto Group unless they showed that level of skill, the young people of the Minamoto family did their best to earn money.</p>
-<p>From the Minamoto Group's perspective, it was good because incompetent parachuters didn't come in, and from the perspective of those using the Minamoto surname, it was good because they could prove their skills and have new experiences. Of course, if they didn't have the ability, they would be eliminated without any good points.</p>
-<p>"You're going to earn 10 million yen with a club magazine?"</p>
-<p>I was a little worried. The price of the club magazine wouldn't be set that high. Wouldn't we have to sell at least 10,000 copies?</p>
-<p>"Huhu... Just wait and see. The thing you're worried about won't happen."</p>
-<p>Minamoto Risa said confidently. I don't know what Minamoto Risa is looking at. I don't think it will sell that much just because I include my photos in the club magazine....</p>
-<p>As we were talking and eating, we had already emptied our plates. It's time to go to the next course.</p>
-<p>"Okay, I won't worry. Then shall we go to the next date course?"</p>
-<p>"I'm so curious because you keep not telling me. Where are we going?"</p>
-<p>The net cafe and dinner were places that Minamoto Risa chose, and the next course was a course I planned, but since I hadn't told Minamoto Risa what kind of date it was yet, Minamoto Risa was very curious.</p>
-<p>"This way..."</p>
-<p>I took Minamoto Risa to a place where there were no people. As we went to more and more deserted alleys, Minamoto Risa's expression became uneasy. Could it be that this teacher is trying to rape me...? She was making that kind of expression.</p>
-<p>"What are you trying to do?"</p>
-<p>Minamoto Risa's voice, naturally captured by suspicion, became sharp, but I didn't care. I made a slightly bitter expression and opened my mouth.</p>
-<p>"Huhu, it's not something I can do where there are people."</p>
-<p>It's a slightly misleading statement, but what I'm saying isn't wrong. Seeing Minamoto Risa making an expression as if she had been attacked, covering her chest with both arms and taking a step back, I thought I had played too much.</p>
-<p>"I'll scream if you come any closer!"</p>
-<p>"It's a joke. I've become able to fly in this New Southern Capital City. So I came to a deserted alley to fly together."</p>
-<p>I didn't think there was any need to play any more jokes and cause misunderstandings, so I quickly explained, and Minamoto Risa, who had been making an expression of betrayal, soon relaxed her expression, put one hand in her pocket, and laughed with a "Puhuhu."</p>
-<p>"I played a little joke too. I've been watching you for a while, so I know that you're not the kind of person who would do bad things in a place like this, so I was just playing along with your joke. And if you were going to do something bad, you would have done it in the net cafe a long time ago."</p>
-<p>I see. She was matching my tune, she's quite good at acting? Well, if Minamoto Risa had suspected me, she wouldn't have followed me to such a remote alley in the first place.</p>
-<p>"Can you really fly in the sky?"</p>
-<p>Minamoto Risa had a great curiosity about superpowers, so when I said that I had become able to fly, she asked me with sparkling eyes.</p>
-<p>"Yeah, I somehow learned it while trying various things to get away from that giant robot back then."</p>
-<p>To be exact, it would be more accurate to say that I tried it while fighting rather than getting away, and it somehow worked out. There was no need to tell Minamoto Risa that I had destroyed that giant robot.</p>
-<p>"Come here. Where do you want to go?"</p>
-<p>At my words, Minamoto Risa came to me and hugged me slightly. She had hugged Minamoto Risa and floated in the air a little before, so her posture was natural.</p>
-<p>"Hmm... I want to see the Miyashi night view from the sky."</p>
-<p>The Miyashi night view... That would be good too. I grabbed Minamoto Risa's slender waist. And slowly began to rise.</p>
+<p>After sharing sexual intimacy with Simyeonui ttal, who had possessed Urabe Konoka's body three times since morning, it was almost lunchtime. After the sex, I asked Simyeonui ttal what I had been curious about.</p>
+<p>"But you said you'd been watching me for the past few days. Why were you so quiet?"</p>
+<p>"Fufu, I thought I should at least give my priestess some space to think about her own ego. If I had descended while she was struggling like that, it would have only increased her confusion. It was best to stay still."</p>
+<p>Ah, she was staying still to give Urabe Konoka time to sort out her own feelings. Our Simyeon Mama is quite the generous god, after all.</p>
+<p>"This child saw your face at the inn on the island and fell in lo... Ah, you told me not to say that? Understood. My priestess."</p>
+<p>It seemed Urabe Konoka, deep down, was embarrassed and trying to stop Simyeonui ttal. But I already heard everything, you know? She was already smitten with me - that's new information.</p>
+<p>"I've lost several priestesses because of my overwhelming spirit, so I'm always careful. You and my priestess don't need to worry. It's inevitable that you'll be influenced by me, but if you have a firm grasp on yourself, there won't be any major problems."</p>
+<p>Simyeonui ttal has been served by countless priestesses for countless years, so she seems to have accumulated a lot of know-how. She said there wouldn't be any problems, so I guess I don't need to worry too much.</p>
+<p>"Thanks to that waiting, I was able to see my partner and priestess doing it, so I guess you could say I'm lucky."</p>
+<p>"I-is that so?"</p>
+<p>It didn't seem like Simyeonui ttal had any feelings of jealousy. Or does she just not consider humans worthy of jealousy? Anyway, she said she was lucky to see me doing it, so I wondered if Simyeonui ttal also had voyeuristic tendencies. She'd get along really well with Mimata Chieri-ssi, wouldn't she?</p>
+<p>"Partner. Thanks to you giving me the Avatar of the Sunken One, I was able to take another step forward. Thanks to that, I can help you even more than before. I'll grant you any wish you have."</p>
+<p>Even if you suddenly tell me to say what I want, there's nothing in particular... Ah, there is one thing. I should ask about the armor I got from the Naruse family. I was going to ask her to combine it with the bracelet on my wrist since I can't wear armor twice.</p>
+<p>"I recently obtained armor with the Simyeon attribute. I'd like you to combine it with this bracelet."</p>
+<p>"I can do that much for you easily. Ask for something else."</p>
+<p>Another request... Even if Simyeonui ttal has become stronger, she wouldn't be able to grant a wish like killing Taira Ichiro and Jiro and making me the master of Taira. Simyeonui ttal had told me before that doing such a thing, which would have a huge impact on this world, would give other transcendent beings a chance to intervene. If that happened, the world could be destroyed in an instant, so I had to make a reasonable request.</p>
+<p>What kind of useful request wouldn't have too much of an impact on the world...? Hmm, or should I try to reduce something that makes me uncomfortable rather than getting something beneficial?</p>
+<p>"Then... can you reduce the side effects of Simyeon?"</p>
+<p>Simyeon is an incredibly destructive force, but if the Simyeon stat exceeds the Will or Resistance stat, there are major side effects that transform the mind and body. In fact, my Will and Resistance have always been higher than Simyeon, so I've never felt any side effects, but I've always had a fear of not being myself.</p>
+<p>"Hmm, that request... I can only do something about one of the side effects, either mental or physical. The transformation of the mind and body by Simyeon is like a law, so even with my current power, I can't solve both."</p>
+<p>Ah, I see. It's quite scary that being changed by Simyeon is like a law of nature. So, which should I choose, mental or physical...?</p>
+<p>After a moment of deliberation, I made a decision.</p>
+<p>"Make it mental."</p>
+<p>I chose mental because my Resistance stat was already at its limit break, so I had plenty of leeway. I was also more afraid of mental transformation than physical transformation.</p>
+<p>"Okay. It might hurt a little, but bear with it."</p>
+<p>At the same time as Simyeonui ttal's words, my vision went dark. And when I opened my eyes, I saw the face of Simyeonui ttal in the form of Urabe Konoka, smiling as if to say it was all done.</p>
+<p>"It doesn't hurt at all?"</p>
+<p>She said it might hurt a little, but it didn't hurt at all. Was Simyeonui ttal trying to scare me? Simyeonui ttal just smiled slyly at my question.</p>
+<p>"Now, let's go see the armor you mentioned."</p>
+<p>"Shall we?"</p>
+<p>At Simyeonui ttal's words, I changed my clothes and grabbed my phone...? Huh? Why is it already 4 PM? I didn't understand. I did have morning sex with Simyeonui ttal, but we were talking before lunchtime. So why is it 4 PM?</p>
+<p>"I knocked you out for a while because you were in so much pain, so don't be surprised."</p>
+<p>"Oh, really?"</p>
+<p>Simyeonui ttal explained when I was confused. She said I was in so much pain that I almost harmed myself several times, so she knocked me out until the work (?) was finished.</p>
+<p>My Resistance stat, which has a pain-reducing effect, has broken through its limit, and my Will stat, which allows me to endure even when it hurts, is also very high, but if I was hurting myself to that extent, how much did it hurt? It seemed that the little pain Simyeonui ttal was talking about was synonymous with so much pain that it was like attempting suicide by human standards.</p>
+<p>"You might be confused, but let's go out first. I heard they want us to vacate by 5 PM, even though I extended the time."</p>
+<p>Ah, that's right. Originally, we were supposed to check out after lunch, but we stayed until 4 PM, so I had to pay an extra fee. I left the inn room, paid the extra fee at the counter, and got in the car.</p>
+<p>"Are you still confused, partner?"</p>
+<p>"Actually, I was just surprised that so much time had passed when I blinked, so I'm not that confused. I was a little surprised in the inn room, but I don't remember being in pain, so I don't feel confused or anything."</p>
+<p>I was just surprised that hours had passed when I blinked. It wasn't like I was thinking, "Who am I? Where am I?" Simyeonui ttal had carefully (?) knocked me out, so I didn't have any pain anywhere.</p>
+<p>"Fufu, that's good then. Now, let's check your changed abilities."</p>
+<p>Simyeonui ttal knows that I have the ability to see the status window, so she must be telling me to look directly and see how it has changed.</p>
+<p>I turned on the status window and carefully checked my stats. At first, it seemed like nothing had changed, but when I looked closely, one of my traits had changed slightly.</p>
+<p>◆Simyeonui ttal's Brand [Unique Legacy+ Trait]</p>
+<p>A brand left by Simyeonui ttal on her partner. The maximum Simyeon stat increases by 3, you become immune to Simyeon's mental transformation, and the penalty for physical transformation is weakened. Simyeonui ttal is constantly watching you. As long as you have the brand, you cannot escape Simyeonui ttal.</p>
+<p>Simyeonui ttal's Brand was an existing trait, but it was upgraded from Unique Legacy grade to Unique Legacy Plus grade, and I gained immunity to mental transformation. Originally, the description was "weakened Simyeon penalty," but it seems that the description was changed to "weakened physical transformation penalty" as the mental side became immune.</p>
+<p>Hmm, good. It seemed like I could invest a little more in Simyeon now. Of course, I'll also raise my Will stat as much as I use telekinesis, but it was nice that I didn't have to match Will and Simyeon, so there was less to worry about.</p>
+<p>"Then I'll go home."</p>
+<p>"Let's do that. Before that, let's stop by the convenience store...."</p>
+<p>"And buy some sweets?"</p>
+<p>Simyeonui ttal's face flushed as if she was a little embarrassed to be getting sweets. That gap is cute after all. I drove to the convenience store in the middle and bought about 30,000 yen worth of sweets such as ice cream, bread, candy, and jelly. Simyeonui ttal looked very satisfied because I said I would send them all to where Simyeonui ttal is with the tribute magic circle later.</p>
+<p>I returned to my house, opened the box sealed by the Naruse family's onmyoji, and showed her the armor entangled in tentacles. Simyeonui ttal put her hand on her chin and looked at it seriously.</p>
+<p>"This wasn't made by my influence. It's more like my father's side...."</p>
+<p>Ah, it's not Simyeonui ttal's. If Simyeon made it, it wouldn't be impossible to combine it with my bracelet, would it?</p>
+<p>"But it's still a Simyeon item, so I can combine it. Give me the bracelet I gave you."</p>
+<p>I took off the bracelet that I had been wearing without ever taking it off and handed it to Simyeonui ttal. The part where I wore the bracelet was white because it hadn't been tanned.</p>
+<p>"Fufu.... I see you've been wearing it well♥"</p>
+<p>"Who gave it to me? I've been wearing it without taking it off."</p>
+<p>Simyeonui ttal, who had absorbed the Avatar of the Sunken One and become stronger, combined the armor and bracelet into one in an instant. Was she really that strong?</p>
+<p>"Fufu.... Didn't I say earlier that I could do this much easily? I can do this much for my partner anytime."</p>
+<p>"I'll keep wearing it without taking it off again."</p>
+<p>The bracelet's design had changed slightly, and there was a subtle engraving of cephalopod tentacles coiling around it. As I was looking at it closely, the options appeared in front of me, so I checked how it had changed.</p>
+<p>◆Simyeon Husband's Combat Equipment [Legendary Armor]</p>
+<p>Equipment in the form of a bracelet made with love by Simyeonui ttal. When a certain amount of Simyeon is infused, it transforms into black armor that covers the entire body. It was made by reforging the armor worn by the Death Knight and the Simyeon armor with Simyeon pressure.</p>
+<p>It has powerful defense and additional performance for Simyeon.</p>
+<p>When wearing armor</p>
+<p>●Very powerful defense.</p>
+<p>●When defending against all attacks, the Simyeon stat is added to the Resistance stat for calculation.</p>
+<p>●The efficiency of the Simyeon stat is greatly increased, and the coefficient of Simyeon-based skills is increased.</p>
+<p>●Simyeon+8 Strength+5 Agility+5 Nerve+5</p>
+<p>●Immune to Simyeon stat physical transformation side effects while wearing armor.</p>
+<p>Oh...! It didn't change much, but the defense description changed, and more stats were added. Like the trait earlier, the original option was immunity to Simyeon side effects while wearing armor, but now that I'm already immune to mental side effects, there was no need to have immunity to mental side effects, so it seems like they only made it immune to physical transformation side effects and increased the other options. Of course, there were no options when it was equipped in bracelet form without transforming into armor like before, but this was still quite good.</p>
+<p>"I'll really use it well."</p>
+<p>"Fufu, it's about time to wake up Urabe, so let's eat something sweet for the last time."</p>
+<p>"Shall we? What do you want to eat?"</p>
+<p>While eating the sweets I bought at the convenience store, I shared stories with Simyeonui ttal that I hadn't been able to share.</p>
+<p>"It's about time I returned my body to my priestess. I have something to say before I go back."</p>
+<p>"What is it?"</p>
+<p>"Send me three sets of your photo cards too, partner."</p>
+<p>"Ah...."</p>
+<p>She said she had been watching quietly for a few days, so she must have known about the photo cards that were included with the club's magazine. At Simyeonui ttal's request, I smiled awkwardly and nodded.</p>
+<p>"Yes. I'll send them to you first."</p>
+<p>"Fufufu♥ I should send one set to my father."</p>
+<p>Simyeonui ttal is sending my photo card set to Simyeon...? My daughter's partner? He's going to jump out of the Pacific Ocean and cover Japan with a tsunami, isn't he? That's pretty scary.</p>
+<p>"That's a little scary. Can't you not do that?"</p>
+<p>"Fufufu♥ I'm just kidding."</p>
+<p>When I asked her to refrain from making such jokes, Simyeonui ttal didn't answer and returned her body to Urabe Konoka and returned to Simyeon. Is she going to keep making dad jokes?</p>
 <p>____</p>
-<p>Lisa B-cut!</p>
-<p>It took a long time to make because the color of the clothes came out randomly hehe</p>
+<p>Simyeonui ttal SD after a long time</p>
+<p>I don't think I've ever had her wear the St. Francis Girls' Academy uniform before, so I had her wear it hehehe</p>

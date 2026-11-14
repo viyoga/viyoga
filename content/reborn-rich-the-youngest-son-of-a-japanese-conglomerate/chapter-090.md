@@ -5,88 +5,83 @@ weight = 90
 chapter = 90
 +++
 
-<p>Taira Yukiko</p>
-<p>That day was clear with not a single cloud in the sky. Taira Yukiko never imagined that her 10 years of marriage would end that day.</p>
-<p>It was morning, not long before lunch, when she received a call from Taira Danjo, who, since they couldn't have children, only contacted her for work-related matters. She wondered, 'I usually call my husband, so why is he calling me?'</p>
-<p>Until then, Taira Yukiko had been making *shogayaki*, a meal for her husband, Taira Saburo. It was the only dish among Taira Yukiko's cooking that Taira Saburo liked, so Taira Yukiko always prepared *shogayaki* and *miso* soup when the housekeeper went on vacation.</p>
-<p>"Hello?"</p>
-<p>-Yukiko-yah, Saburo... is dead.</p>
-<p>"What? Are you kidding me? How can you say such a thing!"</p>
-<p>At first, she didn't understand what he was saying. Dead? How could a healthy man suddenly die? It didn't make sense. He was healthy until this morning.</p>
-<p>-.... It was a traffic accident. Come to the main house as soon as possible.</p>
-<p>After that, her memory was hazy. She seemed to have rushed in a car, but she couldn't remember when she changed into a *kimono* or who drove the car. At some point, she was wearing a black *kimono* for the funeral and standing in the middle of the funeral hall.</p>
-<p>While standing there in a daze, she saw a woman. It was Jin Mija, a Korean woman Taira Saburo had briefly dated before their marriage.</p>
-<p>"How dare you... Who do you think you are!"</p>
-<p>Taira Yukiko, out of her mind, unknowingly approached her and said harsh words.</p>
-<p>"I didn't want to come either. The Taira Group forced me to come."</p>
-<p>Jin Mija didn't back down and replied to Taira Yukiko. Taira Yukiko had nothing to say, but she didn't want to see this woman at her husband's funeral.</p>
-<p>"What? You, you... you little bitch, where do you think you are!"</p>
-<p>At the moment she said words she didn't even know why she was saying, someone shouted and approached.</p>
-<p>"Stop! What's all this commotion?"</p>
-<p>It was Taira Danjo, the head of the Taira Group, who shouted. Taira Danjo looked at Taira Yukiko with cold eyes. Taira Yukiko hated those cold eyes.</p>
-<p>From the moment she learned she was infertile, those eyes became even colder, and she felt an invisible sense of defeat towards the woman who had given birth to her husband's illegitimate child. That's probably why she was losing her mind and saying whatever came out of her mouth.</p>
-<p>"Father-in-law, these lowly two...."</p>
-<p>"Shut your mouth! This child is of my blood. Surely you're not calling my blood lowly, are you?"</p>
-<p>Taira Danjo said, pointing to a young man.</p>
-<p>"You can't even produce children, yet you're causing such a commotion in front of so many guests? Apologize to this mother and child!"</p>
-<p>"I, I'm sorry."</p>
-<p>Taira Yukiko reluctantly bowed her head and forced an apology. The humiliation was severe. Bowing her head to the woman who had caused her so much pain during her marriage left a deep wound in her heart. Taira Yukiko unknowingly bit her lip.</p>
-<p>Taira Yukiko raised her head and met the eyes of the young man standing next to Jin Mija. He was an incredibly handsome young man, and she knew it immediately. This young man was her husband, Taira Saburo's, child.</p>
-<p>"He, he looks like Saburo-ssi... Ah, I'm sorry."</p>
-<p>This was her first meeting with Taira Ryuta.</p>
-<p>###</p>
-<p>After that, as Taira Ryuta was Taira Saburo's son, Taira Yukiko, as Taira Saburo's wife, knew that she and Taira Ryuta would have some kind of relationship, but she never thought they would live in the same house.</p>
-<p>When Taira Ryuta, who had started working at the Taira Group Human Resources Development Center where she was the director as per Taira Danjo's orders, said he was looking for a place to live, she unknowingly told him to come and live in the detached house within the Human Resources Development Center where she lived. She didn't understand why she did it for a moment, but she couldn't take back the words she had already spoken.</p>
-<p>Yes, this young man who hadn't completely shed his boyishness was not at fault. He was rather a pitiful child. She found out that he had been bullied in school for not having a father and being a Korean resident in Japan. Although their first meeting wasn't pleasant, Taira Yukiko thought she should treat him well.</p>
-<p>On the first day Taira Ryuta came to Yotsukaido City, where the Human Resources Development Center was located, Taira Yukiko, who rarely had enough time, personally drove to pick up Taira Ryuta from Yotsukaido Station.</p>
-<p>"Hello, Mother."</p>
-<p>Taira Ryuta had a rather cheeky personality. She had told him to call her Mother, but she didn't expect him to call her Mother so casually, even though there was only a little over ten years difference in age.</p>
-<p>"Yes, did you have any trouble coming here?"</p>
-<p>"It's just taking the train."</p>
-<p>"Sit next to me."</p>
-<p>As he sat in the passenger seat, she felt Taira Ryuta staring intently at her thighs, but she didn't feel bad for some reason. Rather, she felt proud that she was still a good-looking woman enough for a young guy to stare at her like that.</p>
-<p>"By the way, are there any employees who originally live in the Human Resources Development Center?"</p>
-<p>Didn't I tell him? Taira Yukiko realized that she had only told Taira Ryuta that there was a place to live in the Human Resources Development Center and told him to come and live there.</p>
-<p>"There is."</p>
-<p>"How many people?"</p>
-<p>"Two, including you?"</p>
-<p>"Surely that one person isn't Mother, is it?"</p>
-<p>"That's right. I already disposed of the house I used to live in with him. It was too... quiet, so I just got rid of it."</p>
-<p>"Ah.... I see. So, Mother and I are neighbors?"</p>
-<p>Although she told a depressing story, Taira Ryuta kept changing the subject by talking about other things. Taira Yukiko thought he was a thoughtful child.</p>
-<p>She didn't realize how time was passing as they chatted about cars and other things before arriving at the detached house of the Human Resources Development Center. Taira Yukiko didn't know how long it had been since she had spent time alone with a man talking about things other than work. It felt like a very long time.</p>
-<p>"Follow me."</p>
-<p>"Yes."</p>
-<p>Arriving at the detached house, Taira Yukiko took Taira Ryuta around and showed him around.</p>
-<p>"The third floor is for guest rooms and empty rooms."</p>
-<p>"You can put your laundry in the basket in front of the laundry room on the first floor. The housekeeper will do your laundry every day, and if you need anything or want to eat anything, tell the housekeeper."</p>
-<p>Taira Ryuta listened with shining eyes, as if he was seeing a housekeeper for the first time. She unknowingly thought that he looked cute.</p>
-<p>"I've only seen housekeepers on TV, so it's amazing."</p>
-<p>"Is that so? Get used to it from now on. Oh, and I'll set the rules for this house. No guests, and if you're going to stay out, tell me in advance so I don't worry. There are only two, so can you keep them?"</p>
-<p>"I can keep that much."</p>
-<p>For a moment, Taira Ryuta and Taira Saburo overlapped, and Taira Yukiko was startled. Was it because there was a housekeeper, but she felt secure because a man was living with her? She felt disgusted with herself for thinking this way when it hadn't been long since her husband died.</p>
-<p>"Okay, go to your room and unpack. Let's meet at dinner."</p>
-<p>"Yes. Oh, I didn't say thank you. Thank you for picking me up in the car."</p>
-<p>"It's nothing. Dinner is at six thirty, so come out on time."</p>
-<p>Taira Yukiko unknowingly answered Taira Ryuta coldly and went into her room. After entering the room, she realized that she had been cold to Taira Ryuta. Ah, that child is innocent... Why am I doing this? Taira Yukiko blamed herself once again.</p>
-<p>###</p>
-<p>After all, living with someone who has a completely different lifestyle was not easy. This incident happened the day after Taira Ryuta came.</p>
+<p>When I entered the Human Resources Development Institute's home after a few days, Yukiko greeted me. It was just past 8 o'clock, the time when the housekeeper ajumma works, so Yukiko wasn't worried about the eyes around her and hugged me as soon as she saw me.</p>
+<p>"Ryuta~! Welcome back?"</p>
+<p>"Yes, I'm back. Thanks to you, Yukiko-ssi, I was able to handle the work well."</p>
+<p>As Yukiko hugged me, Yukiko's two huge love sacks pressed against my body, making me feel happy. Home is good after all. I haven't lived in this house at the Human Resources Development Institute for very long, but it feels like my home because it's the longest I've lived anywhere since the possession.</p>
+<p>And having a beautiful mama with a great body waiting for me is the icing on the cake.</p>
 <p>"Have you had dinner?"</p>
-<p>"I ate at the company, so go home now."</p>
-<p>Taira Yukiko nodded and answered as the housekeeper asked after she had just gotten off work. The housekeeper said that the young master had returned and had dinner. Ah! That's right. I'm living with someone else... Taira Yukiko finally realized it on the second day.</p>
-<p>Taira Yukiko hung up the suit she wore at the company and changed into comfortable casual clothes. Then she went straight to the bathroom to wash up.</p>
-<p>"Oh my!"</p>
-<p>She ran into Taira Ryuta coming out with half-dried hair and a towel around his waist. Had he been wearing just a towel after washing up until now? Taira Yukiko screamed.</p>
-<p>"E-even if you've washed up, p-put on some clothes!"</p>
-<p>"Ah, I'm sorry. I forgot to bring my underwear."</p>
-<p>At the word underwear, Taira Yukiko unconsciously looked at Taira Ryuta's crotch. Could that be...? It must be before he's erect, but under the towel, the shape of a huge dick that wouldn't be out of place on a foreigner was blatantly revealed, and Taira Yukiko's face turned red when she saw it. She unknowingly swallowed her saliva at Taira Ryuta's thing, which was much bigger than her husband's.</p>
-<p>"G-go into your room and put on some clothes right now!"</p>
-<p>"Yes."</p>
-<p>Taira Ryuta disappeared into his room, and Taira Yukiko looked at her clothes and went into the bathroom. Even though she was soaking in hot water, the image of the huge dick under Taira Ryuta's towel didn't disappear from Taira Yukiko's mind and tormented her.</p>
-<p>Five years ago, after she found out she was infertile, her sex life with her husband was not the same as before. The act gradually decreased, and as time passed and she entered her thirties, when a woman's sexual desire was at its peak, they became a completely sexless couple.</p>
-<p>She didn't know how her husband, Taira Saburo, resolved his sexual desires, but Taira Yukiko endured her rising sexual desires by focusing more on the Human Resources Development Center she was in charge of. She still loved Taira Saburo, but she sometimes hated him for not having sex.</p>
-<p>But Taira Ryuta, who suddenly came into the house after Taira Saburo died, was different. He resembled her husband, but he had an even more handsome face, a strong body that exuded male pheromones, and he was a sexually active man who looked at her with eyes burning with lust every time.</p>
-<p>Until now, Taira Yukiko thought, 'He's young, so he must have a lot of sexual desire....' but after seeing the thing hanging under Taira Ryuta's today, she began to worry that she might look at Taira Ryuta with sexual eyes.</p>
-<p>Taira Yukiko unknowingly reached for her private area.</p>
-<p>"Haaah...!"</p>
-<p>The bathroom became noisy with the sound of water and moans.</p>
+<p>"Not yet. It's an awkward time, so I haven't eaten yet."</p>
+<p>Because of the flight time and the time it takes to get from the airport, it was awkward to eat dinner, so I just came straight home.</p>
+<p>"I thought so when I saw the flight time. The ajumma made some food, so let's eat together."</p>
+<p>"You didn't eat dinner waiting for me?"</p>
+<p>She didn't eat dinner and waited for me... I felt grateful and sorry. I changed my clothes and went to the table with Yukiko. The food wasn't set on the table yet. Yukiko put on an apron and was warming up the food that the housekeeper ajumma had prepared in advance.</p>
+<p>"I'm warming up the food, so wait a little bit!"</p>
+<p>Hmm, now that she's wearing an apron, an naked apron is tempting, isn't it? I wonder if she'll do it for me if I ask Yukiko later? After waiting a little while, Yukiko brought out rice with braised meat and potatoes, miso soup, and grilled salmon. Knowing my appetite, she gave me an amount that seemed to be three times more than what Yukiko eats.</p>
+<p>"I'll eat well."</p>
+<p>"Yeah, enjoy your meal."</p>
+<p>The braised meat and potatoes were salty, so they went well with the rice. The grilled salmon was also delicious, and the rice was well-cooked. I was hungry because it was late, so it was nice to be able to fill my stomach with a great meal. It would be lonely if I just ate quietly, so I should talk a little.</p>
+<p>"How's the Human Resources Development Institute?"</p>
+<p>"The executive training is in three weeks, so the Education Support Team 1 is busy, and the Support Team 2, where you are, is just doing routine work."</p>
+<p>Ah, there's executive training. If there's a beautiful MILF among the executives, I'll approach her. I should find out later.</p>
+<p>"But you might have to go on a business trip the day after tomorrow. You'll have to go on a two-day business trip to the Human Resources Development Institute's Kita-Tohoku branch. Many people in the Education Support Team 2 took vacations while there wasn't much work to do."</p>
+<p>A branch business trip. It's my first time going, but Sinoe Misano or Mimata Chieri will teach me. Or I can ask Yukiko now... Yeah, let's ask her now that we're talking about it.</p>
+<p>"What do I have to do on a branch business trip?"</p>
+<p>"They'll tell you at the office tomorrow, but to put it simply, you'll teach them the guidelines that have changed this year and check if there are any problems."</p>
+<p>I could solve this with an email... Do I really have to go on a business trip? Yukiko smiled slightly as if she had read my mind.</p>
+<p>"Going on a business trip and seeing them in person shows that we're interested in the branch. You can't know if they're doing well or not unless you see them in person, right? And if there are any good people in the support team, you can get recommendations and bring them to the Human Resources Development Institute headquarters."</p>
+<p>Well, as Yukiko said, there's nothing as sure as seeing it in person. No matter how much we send emails saying, "These are the new guidelines," we can't know whether they're being followed or not unless we see them in person.</p>
+<p>"By the way, about the Health Miracle stock..."</p>
+<p>I told Yukiko to invest when it was a little over $300, saying it would go up to $1,000, and now it's close to $900. Yukiko-fujin trusted me and put all her assets except for living expenses into Health Miracle, and she was very surprised to see her assets triple.</p>
+<p>"I'm thinking of selling when it goes over $1,000, so Yukiko-ssi should sell too."</p>
+<p>"Okay. Thanks to you, Ryuta, I've made a lot of money."</p>
+<p>Yukiko originally had a considerable amount of assets from working at the Human Resources Development Institute and the inheritance she received after Taira Saburo died, but that considerable amount of assets tripled in an instant, so now she has an amazing level of assets, not just considerable. Well, I bought the stock for less than $1, so if I realize the profit, I could get a profit that could be compared to the old coin boom, but I had a lot of things to do with this money. It was a huge amount of money, but it wasn't that much money compared to the world's giant companies, and it was a little tight to do what I had planned. Anyway, I have a lot of information, so there are plenty of ways to make money.</p>
+<p>"The taxes will be considerable, so what are you going to do about that?"</p>
+<p>Unlike Korea, Japan imposed a 20 percent tax on stock profits, which was quite a headache. Roughly calculated, it seemed like the tax alone would be about 13 billion yen. I thought this was too expensive, so I asked Yukiko.</p>
+<p>"Leave that to me. I'll solve Ryuta's problem while I'm solving mine. It won't be completely, but I'll be able to reduce it to some extent."</p>
+<p>I was thinking of solving the tax problem with the favor I received from Taira Danjo-halbae, but since Yukiko said she would solve it, I should use it for another favor. Taira Danjo-halbae told me to use the favor within a month, so I'll have to think about it until the end of the business trip.</p>
+<p>"Thank you, Yukiko-ssi."</p>
+<p>"No, I'm the one who's thankful. You tripled my assets."</p>
+<p>We looked at each other and smiled warmly, and we continued our meal. After the meal, Yukiko took out an apple and peeled it for me. It's been a while since I've had an apple. As I ate the apple with a crunch, Yukiko was looking at me with loving eyes and a smile.</p>
+<p>Am I that heartwarming when I eat an apple? Now that it's come to this, I should be a little more filial. I finished eating the apple that Yukiko peeled and opened my mouth.</p>
+<p>"Yukiko-ssi."</p>
+<p>"Yeah?"</p>
+<p>"I'm going to take a shower. Take off all your clothes, put on only an apron, and wait in the room."</p>
+<p>"Huh? What?"</p>
+<p>I didn't listen to Yukiko's answer and went straight to the bathroom. I lathered up soap and washed my whole body, and when I entered Yukiko's room, the lights were off. I turned on the lights without hesitation. I heard a small, "Haa!" sound, and the lights came on.</p>
+<p>Yukiko was waiting, wearing the apron she had worn earlier, just as I had told her. She seemed a little embarrassed and was turned around, but since she was only wearing an apron, her back was more exposed. I went straight to Yukiko and massaged her butt. As expected, it was a good butt with both firmness and softness coexisting. And it's big too.</p>
+<p>"Huuung...! Ryuta, haaah..."</p>
+<p>"You granted my wish?"</p>
+<p>"I'll grant any wish you have."</p>
+<p>I massaged Yukiko's butt, who was saying something admirable, as if I were kneading rice cake, and put my hand between her bare skin and the apron and touched her breasts this time. Similar to her butt, it was a pleasant feeling with both firmness and softness coexisting, but her breasts had a much higher proportion of softness than her butt.</p>
+<p>I always feel this, but touching her breasts makes me feel relieved. As I touched her breasts here and there, her nipples gradually hardened and pushed against my palm. I gently rolled her nipples with my palm.</p>
+<p>"Huuuum! Haaauuum!"</p>
+<p>Yukiko can't help but moan when I attack her nipples. I wanted to hear Yukiko's moans even more, so this time I pinched her nipples slightly with my fingers instead of my palm and caressed her.</p>
+<p>"Haaang! I like this so much! Haaang!"</p>
+<p>Yukiko reached her climax with just her breasts. Her pussy was dripping with juices, and her legs were trembling so much that I had to hold her so she wouldn't fall. I squatted Yukiko down and held out my erect cock in front of Yukiko.</p>
+<p>"Huuuum...!"</p>
+<p>Yukiko, who has a smell fetish, smelled my cock as if she were smoking drugs. Knowing this would happen, I didn't wash my cock thoroughly. I only rinsed it with water for Yukako.</p>
+<p>"Suck it, Yukiko."</p>
+<p>Yukiko liked it better when I just called her Yukiko instead of Yukiko-ssi when we had sex, so I called her Yukiko without hesitation. I usually call her Yukiko-ssi, but when we have sex, I make her feel the gap moe by calling her by her first name only.</p>
+<p>Yukiko first stuck out her tongue and licked from the base of the shaft to the glans. It was ticklish and felt so good that my butt naturally tightened.</p>
+<p>Yukiko licked for a while, making my cock soaked with saliva, and looked at the shiny cock with satisfaction for a while, and then put it in her mouth.</p>
+<p>Seeing Yukiko doing fellatio while shaking her head back and forth while looking at me, I felt like my cock was going to explode. I also put my foot between Yukiko's squatting legs to make her feel good and started rubbing her pussy with my thumb.</p>
+<p>"Huuuum...! Uuuum~!!"</p>
+<p>I don't know what she's saying because she has my cock in her mouth. I thought she meant to keep going, so I rubbed it a little harder, and she spat out my cock.</p>
+<p>"Stop it...! I can't concentrate because it feels so good."</p>
+<p>"Okay."</p>
+<p>That's what she meant by stop. When I stopped playing with my feet, Yukiko put my cock back in her mouth and started sucking it diligently. Yukiko's fellatio skills were so great that I soon felt a signal from my perineum and ejaculated.</p>
+<p>"Keueup...! I'm cumming, Yukiko!"</p>
+<p>"Uuup! Uup! Kueok!! Kueoeok!"</p>
+<p>I shook Yukiko's head back and forth violently like an onahole. Because it reached her throat, Yukiko gagged, but rather than spitting out my cock, she opened her mouth as much as possible and opened her throat to help me move better.</p>
+<p>Eventually, I put my cock in as deeply as possible and ejaculated. Yukiko didn't spit out my cock after I finished ejaculating, but licked from the base to the glans with her lips, sucking out every last drop of semen remaining in my urethra.</p>
+<p>"Did it feel good?"</p>
+<p>"It was the best."</p>
+<p>I nodded to Yukiko, who was asking me with teary eyes as if her throat had been stabbed.</p>
+<p>"Can I touch Yukiko's pussy now?"</p>
+<p>"Yeah... Touch it a lot."</p>
+<p>I stood Yukiko up, who was still squatting, and started touching Yukiko's wet pussy.</p>
+<p>------</p>
+<p>Naked Apron Yukiko</p>
+<p>Back View ver</p>
+<p>Front View ver</p>

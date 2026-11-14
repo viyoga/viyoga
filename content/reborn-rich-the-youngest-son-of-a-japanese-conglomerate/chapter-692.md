@@ -5,70 +5,100 @@ weight = 692
 chapter = 692
 +++
 
-<p>After dropping off Minamoto Risa, I returned home, and *jiing*, I received a text from Eve.</p>
-<p>EVE: It seems Minamoto Risa-nim wants to kill someone without leaving a trace. She's been looking for related items or fixers.</p>
-<p>That's definitely a good enough reason to send me and Seizawa Shii away. She couldn't seriously say she wanted to kill someone with her friends and teacher watching, after all.</p>
-<p>Ryuta: But isn't that information Risa asked you to keep secret? Is it okay for you to tell me?</p>
-<p>EVE: Ryuta-nim is my business partner, not an outsider. I told Risa-nim I wouldn't leak information to outsiders, so it's fine.</p>
-<p>Being a business partner makes it okay, huh? What a novel logic. Anyway, what's going on with Minamoto Risa? From what I've seen, she's not the type of woman to want to kill someone for no reason. Something must be up.</p>
-<p>What's the Taira information team doing? If something happened to Minamoto Risa, of all people, shouldn't they let me know? I should check it out.</p>
-<p>I called Gocho Kikuhito, the secretary in charge of St. Francisco Girls' Academy. It was a bit late, past dinner, but it was urgent, so I called right away without hesitation. The secretaries of Danjo-halbae always worked overtime, so it was probably still their working hours.</p>
-<p>-This is Gocho Kikuhito, Young Master.</p>
-<p>"Yes, I'm calling to ask something."</p>
-<p>-Yes, please tell me.</p>
-<p>"Do you have any recent information related to Minamoto Risa?"</p>
-<p>-Yes. There's a rumor that she's recently been in talks for marriage with the second son of the Sugawara family.</p>
-<p>Gocho Kikuhito spoke calmly to my question. Is he kidding me...? Why is he so confident? I wanted to say something right away, but I held back as much as possible. As long as I had the Taira name, it was important not to antagonize Taira Danjo's secretaries.</p>
-<p>"Why didn't you tell me? You know I'm in charge of the special class at St. Francisco Girls' Academy. You should have given me Minamoto Risa's information."</p>
-<p>I suppressed my anger and spoke coldly, and I could feel a sense of panic from the other side of the phone.</p>
-<p>My mission to have a relationship with Minamoto Risa was only known to me and Taira Danjo, so Gocho Kikuhito may have arbitrarily judged that this information was unnecessary and didn't give it to me.</p>
-<p>Of course, he could just be ignoring me because he thinks I'm a washed-up high school graduate maknae whose father, Taira Saburo, is dead, or he could be on the line of my uncles or aunts and deliberately not giving me information. If it was the second or third reason, I was going to make them pay the price later.</p>
-<p>-I'm sorry. I misjudged.</p>
-<p>"It's okay, just send me the data as soon as possible."</p>
-<p>-Understood, Young Master. I'll send it right away.</p>
-<p>I hung up the phone and waited for a moment, and then an email came from the Taira information team. Let's see.... I clicked on the email to bring up the screen.</p>
-<p>First, there was information that was simply organized for easy understanding. The marriage talks with the Sugawara family are being promoted by Minamoto Toyomi, the wife of Minamoto Ushin. Minamoto Risa and Sugawara Chohei are the targets, it said.</p>
-<p>And the information team's analysis of the accuracy of the information, the situation of each person, and the expected information when the marriage is successful were listed.</p>
-<p>I decided to first check on Sugawara Chohei, Minamoto Risa's marriage partner.</p>
-<p>His name is.... I know it, so I'll skip it, age...43 years old? I don't know if the Minamoto family is crazy for trying to send their daughter to a middle-aged man in his forties, or if the Sugawara family is shameless for trying to marry off their 40-year-old son to the 20-year-old Minamoto Risa, but isn't that too much?</p>
-<p>I read the page with his name, age, school, and physical specs, and when I turned to the next page, there was a picture.</p>
-<p>Sugawara Chohei was a fairly handsome middle-aged man with his hair slicked back with pomade. According to his profile, he wasn't very tall, about 170cm? Considering the average height in Japan, it's not that short, but still.</p>
-<p>He has a decent appearance and a good family, so I wondered why he hadn't gotten married until he was over 40, and when I turned to the next page, I could see the reason.</p>
-<p>In short, Sugawara Chohei was a sex offender who should have been in prison if he wasn't a member of a prestigious family. He boasted a brilliant record, mainly of sex crimes against minors, and even while committing those sex crimes, Minamoto Risa had apparently shown considerable affection for him since she was a child. Like a guy who consistently commits sex crimes against minors, he seemed to have been targeting the young Minamoto Risa.</p>
-<p>After reading this, I could see who Minamoto Risa wanted to kill.</p>
-<p>She has to break up the marriage somehow, but she can't kill Minamoto Toyomi, one of the marriage brokers, so she's trying to kill Sugawara Chohei, the person involved.</p>
-<p>I think I could help Minamoto Risa if I stepped in. But it's a bit frustrating because I can't just ask, "Should I kill that bastard for you?" without her asking.</p>
-<p>As I turned the pages and checked the information, I got angrier the more I checked. They didn't think of passing on this important data to me?</p>
-<p>The decision is supposed to be made by the end of December, but because they didn't pass on the information to me, I only found out in mid-December, so I couldn't help but be annoyed.</p>
-<p>Originally, I was going to think it was a mistake and just let it go, but I can't just let this go. If the secretary did something wrong, I have to complain to the secretary's owner. I immediately picked up the phone and dialed Taira Danjo's number.</p>
+<p>Minamoto Risa knelt before me and took my dick into her mouth. Minamoto Risa looked up at me, sucking on my dick while watching my reaction.</p>
+<p>"Eubeub, tchoop, tchoobeub...! Is this how I should do it?"</p>
+<p>Probably, "Is this how I should do it to make you feel good?" Of course, it felt good. I didn't tell her to do this or that, but she could improve on her own just by watching my reactions, so her senses seemed amazing.</p>
+<p>Seeing the usually prim Minamoto Risa sucking on my dick and trying so hard at various things was quite arousing. Of course, the pleasure was also partly due to Minamoto Risa's rapidly improving fellatio skills.</p>
+<p>"Eung...! Feels good. Risa's mouth feels good."</p>
+<p>"Heueu, tzeubeub, dahi, heubeub. Tchoop, ahido, tzeub...! Uh-huh, good."</p>
+<p>I can't understand what she's saying this time. Trying to talk with my dick in her mouth, her tongue kept tickling my dick, so it felt good.</p>
+<p>"I can't understand what you're saying?"</p>
+<p>"Puhup...ha! I said your dick is big, and I like it."</p>
+<p>Ah, that's what she meant.</p>
+<p>"Ah.... Isn't it hard to suck if it's big?"</p>
+<p>"I thought your thing was quite big, so it might hurt my jaw due to the human anatomy, but it's okay?"</p>
+<p>It was natural that it didn't hurt since the Holy Pillar was activated while she was sucking my dick. The Holy Pillar trait was subtly good. It could be said to be an essential trait for a huge-cocked guy like me.</p>
+<p>And since it's a trait that can be turned on and off, I can turn it off if the other person likes it when it hurts.</p>
+<p>"But I'm tired of doing it with my mouth for so long. I'll try it with my hands this time. Will you put your head on my lap?"</p>
+<p>Minamoto Risa, with curious eyes, tapped her thighs, wondering what it would be like with her hands.</p>
+<p>I put my head on her thighs as Minamoto Risa told me to. Minamoto Risa's soft but firm thighs supported the back of my head.</p>
+<p>Hmm, this feels pretty good too? Of course, the feeling was doubled as Minamoto Risa grabbed my dick and shook it up and down while I was lying down.</p>
+<p>And the scenery was good. Two pieces of flesh, light brown at the ends and pink, were shaking in front of my eyes, and Minamoto Risa's breasts were jiggling, so I felt healed automatically.</p>
+<p>Wait.... If I suck on the breasts in front of me, isn't this a milk handjob play? Could Minamoto Risa have intended this as well? Is this woman really a genius of sex...?</p>
+<p>Of course, Minamoto Risa wouldn't have intended it. Minamoto Risa was actually focused on looking at and touching my dick for the first time. But I can only think that she laid me down on her thighs as a instinctive decision.</p>
+<p>Then, as Minamoto Risa's instincts told me to, I put Minamoto Risa's delicious nipple, which was shaking in front of my eyes, into my mouth.</p>
+<p>"Hyaahang...! W-what?"</p>
+<p>"It's not fair if I'm the only one receiving. I'll make Risa feel good too."</p>
+<p>In response to Minamoto Risa's question, I took my mouth off Minamoto Risa's pink nipple and explained the reason. Minamoto Risa answered, "Heuheung, is that so?" and nodded.</p>
+<p>"Heu-eut, if you touch me like, haeuk...! Like this, does it feel good, hang?"</p>
+<p>Minamoto Risa did not rest her hands while feeling the pleasure of her nipples. She skillfully applied the Cowper's fluid to my entire dick, making a squelching sound as she shook her hand.</p>
+<p>I was starting to feel like I was going to cum soon. I had just received Minamoto Risa's fellatio, which had quickly reached the semi-master level, so I felt like I was going to cum soon. I couldn't just cum and end it. I wanted to do something for Minamoto Risa because she made me feel good.</p>
+<p>I used the Black Maitreya Palm to the fullest and ravaged Minamoto Risa's pink nipples with my tongue.</p>
+<p>"Haeueut, the tongue suddenly! If you do that, heu-eung♥...!"</p>
+<p>Minamoto Risa let out a sharp moan and moved her hand even faster as if she wouldn't lose.</p>
+<p>Chop, chop, chop, chop!</p>
+<p>Tchoop, tchoop, tchoop, tzeueup...!</p>
+<p>"Heuaaaht!"</p>
+<p>Byueut! Byueut! Byueut!</p>
+<p>My Semen exploded along with Minamoto Risa's moans announcing her climax.</p>
+<p>Hoodudeuk!</p>
+<p>The white Semen, shot into the air with tremendous force, was scattered on Minamoto Risa and my body.</p>
+<p>"Ahahaha...! You...!"</p>
+<p>"Don't just laugh, wipe my eyes."</p>
+<p>I never thought that while doing a milk handjob (although milk didn't come out of Minamoto Risa's breasts), the Semen I shot would hit my eyes. I closed my eyes and waited for Minamoto Risa to wipe away my hot Semen.</p>
+<p>By the way, my Semen was really hot. It felt several degrees higher than the Semen of ordinary people? That's why every woman who receives my intravaginal ejaculation says it's hot and likes it.</p>
+<p>Seueuk, seueuk</p>
+<p>Minamoto Risa smiled as if it was fun and pulled out a tissue from the bedside table next to the bed and wiped my eyes.</p>
+<p>When I opened my eyes, Minamoto Risa, covered in my Semen, was smiling at me. I also smiled at Minamoto Risa and opened my mouth.</p>
+<p>"It's snowing outside and white stuff is falling here too.... It's really a White Christmas?"</p>
+<p>Minamoto Risa laughs at my joke. After laughing for a while, Minamoto Risa suddenly makes a curious expression, then runs her finger over the milky white Semen flowing on her body and puts it in her mouth.</p>
+<p>"Hmm...."</p>
+<p>She's tasting it, wondering if it's delicious, but she tilts her head. It seemed like an ambiguous feeling.</p>
+<p>"I heard it's fishy, but I don't know about yours. It's neither delicious nor bad."</p>
+<p>She still had a curious expression on her face. She had an expression on her face asking what she should try this time, but I thought I wouldn't be able to sleep tonight to satisfy Minamoto Risa's sexual curiosity.</p>
+<p>"Then.... Will you do it from behind? I'm also curious about doing it from behind."</p>
+<p>Minamoto Risa, who was kneeling on all fours and wiggling her butt, proved my prediction correct. It seems my prediction was correct.</p>
+<p>"Since the student is burning with such academic enthusiasm, I can't just stand still as a teacher."</p>
+<p>"Aahaha...! What, are you going to play the role of a teacher in this area too?"</p>
+<p>When I said that while grabbing Minamoto Risa's thin waist, Minamoto Risa smiled and asked me. In fact, I had never heard the word "teacher" from Minamoto Risa.</p>
+<p>Otagi Yuka and Kujo Kina also call me "Teacher-ssi" or "Teacher" to some extent, but Minamoto Risa did not call me "Teacher" because of her trauma from her former homeroom teacher. She called me "you" or omitted the subject at the beginning of the semester.</p>
+<p>"Of course, I'm a teacher because I teach you."</p>
+<p>"Is that so? Then.... Teacher~♥ Can you teach me this position too?"</p>
+<p>At the unexpected word "teacher" from Minamoto Risa's mouth, my dick was already raging and standing so stiff that it touched my navel.</p>
+<p>"I'll teach you everything Risa wants me to teach you...!"</p>
+<p>Tjjeolkeok...!</p>
+<p>My hardened dick began to enter Minamoto Risa's pussy, which had just been broken.</p>
+<p>"Haaaahang...! Teacher-nim, it feels good! Haeueuh-heut♥"</p>
 <p>###</p>
-<p>Taira Danjo was sitting in his study, flipping through documents for a report. Suddenly, the phone rang, and when he checked, it was a call from his youngest grandson, Taira Ryuta. He doesn't usually call often, so he wondered what the call was about at this hour and answered the phone.</p>
-<p>"Yes, why are you calling so late?"</p>
-<p>-Grandfather, do you want my mission to fail?</p>
-<p>As soon as he answered the phone, the cheeky bastard was talking nonsense. From the sound of his grandson's voice, he seemed to be quite angry about something.</p>
-<p>"It's a mission I gave you, so of course I want you to succeed. What are you talking about?"</p>
-<p>-I'm in charge of the mission to win over Minamoto Risa, but important information like Minamoto Risa's marriage talks isn't coming to me. I was wondering if you ordered it.</p>
-<p>"Is that true?"</p>
-<p>Taira Danjo asked back in a subdued voice at his grandson's words. His grandson was subtly implying that the information team at St. Francisco Girls' Academy was following someone other than Taira Danjo? Taira Danjo's insides were boiling.</p>
-<p>-It's true. The marriage is supposed to be finalized at the end of December, but if I hadn't found out through another route, I wouldn't have known until the marriage was finalized. They sent it to me today because I contacted them and pressed them.</p>
-<p>"You cheeky Bastard. I don't usually like you running to me to tattle, but I'll let it go this time."</p>
-<p>-I didn't want to tell you either, Grandfather, but it's strange that I'm not getting information on such important content, so I'm telling you just in case.</p>
-<p>Taira Danjo's thoughts and his grandson's thoughts, though cheeky, were the same. Gocho Kikuhito, who oversees the information at St. Francisco Girls' Academy, was an excellent guy. He wasn't the type to make a mistake of not passing on this important information to Taira Ryuta.</p>
-<p>Then, naturally, he had no choice but to think that there was some cause for this. And it was impossible for the information team to have such mistakes or contamination.</p>
-<p>"Okay, I understand. If what you think is true, I'll give you a gift."</p>
-<p>-Instead of a gift, just reduce the remaining two of the three missions. It's hard, Grandfather~</p>
-<p>"I can't do that, you Bastard! You cheeky Bastard, contact your grandmother. I'm hanging up now."</p>
-<p>Taira Danjo chuckled at his grandson's words and hung up the phone with a scolding. A huge guy acting cute to his grandpa.... No one had ever acted cute to him before, so it was a refreshing feeling.</p>
-<p>Taira Danjo, who had been laughing for a moment, returned to his expressionless face and called his chief secretary, Fumimoto Takayuki.</p>
-<p>"Takayuki."</p>
-<p>"Yes, Chairman. Did you call?"</p>
-<p>Fumimoto Takayuki opened the door and entered the study as soon as Taira Danjo called, as if he had been waiting.</p>
-<p>"Dig into that Kikuhito Bastard and the information team under him. He made a mistake in supporting Ryuta's mission this time, but no matter how I look at it, he's not the type to make such a simple mistake. What do you think?"</p>
-<p>"If someone who isn't supposed to make a mistake makes a mistake, it's probably not a mistake. It seems like something was intended."</p>
-<p>Taira Danjo nodded with a satisfied expression at Fumimoto Takayuki's calm answer to his question.</p>
-<p>"Yes, that's why I'm telling you to dig into it."</p>
-<p>"Understood, Chairman."</p>
-<p>Fumimoto Takayuki bowed his head and went back outside. He trusted Fumimoto Takayuki the most in terms of work, so he thought this matter would be resolved well and looked at the documents he had been reading until just now.</p>
-<p>Taira Danjo closed the documents he had been looking at before the call from Taira Ryuta. The documents contained information on TG Tech, which has recently been showing prominence with new technologies. The title was "Analysis of TG Tech's Future Prospects."</p>
-<p>"You wicked Bastard.... You cheeky Bastard...."</p>
-<p>The content of his muttering was cursing someone, but unlike the content of his words, Taira Danjo was wearing a proud expression with a faint smile.</p>
+<p>"Gget, gget up...! You, get up now."</p>
+<p>Minamoto Risa's voice, which had been faintly heard in my ear, became clear, and I opened my eyes. Looking at the time, it was 4:30. It was exactly the time to get up. I had sex with Minamoto Risa, who was stubbornly clinging to me until 3:30, and then fell asleep, so I slept for about an hour.</p>
+<p>"Did you sleep well?"</p>
+<p>"Yeah.... I thought I'd be really tired, but I feel refreshed?</p>
+<p>Minamoto Risa smiled at me against the backdrop of the still dim, deep blue sky. I couldn't help but get an erection at the sight, but if I had sex here, I would miss my flight.</p>
+<p>It was natural that Minamoto Risa felt refreshed because of my Holy Pillar, but I wasn't a pathetic body that would die if I didn't sleep for a day or two, so I woke up right away.</p>
+<p>"You have an erection?"</p>
+<p>"Men have morning erections."</p>
+<p>"I've heard of it too. But do you get a morning erection even if you sleep for an hour?"</p>
+<p>I don't really know. I just got an erection looking at Minamoto Risa.</p>
+<p>"If we do it one more time, we'll miss the plane, so get ready."</p>
+<p>"Okay, let's wash up."</p>
+<p>"Are we going to wash together?"</p>
+<p>"No, if we wash together, the Curiosity Demon-ssi might want to do this and that, so let's do that next time.... There are two bathrooms, so let's wash separately."</p>
+<p>"Tch...! I know how to be patient when I'm short on time too?"</p>
+<p>Minamoto Risa, who was tch-ing at my words, kissed me lightly on the lips and got up and headed to the hotel bathroom. Since I rented a luxury room, there were two toilets and two bathrooms. I also got up, stretched, and went to wash up.</p>
+<p>I washed away all the traces of last night's sex with hot water and came out, shaking my head with a towel. Minamoto Risa hadn't come out yet. It would take longer for a woman than a man.</p>
+<p>As I was drying my hair with a hair dryer, Minamoto Risa came out, covering her body with a towel. I handed Minamoto Risa the extra towel I had prepared in advance.</p>
+<p>"I need to get ready quickly. The time is ambiguous."</p>
+<p>"Okay, thanks for the towel."</p>
+<p>Minamoto Risa and I, who had prepared in a hurry, headed straight to the underground parking lot where the car was parked. The cold morning air entered my lungs, completely dispelling the remaining sleepiness.</p>
+<p>It was 5 o'clock, so there was no traffic. I was worried that we would be late, but we were able to arrive at the airport at a reasonably early time without being late.</p>
+<p>"You.... If I see you today, I'll see you when school starts next time."</p>
+<p>"Winter vacation is short, so have a good time. I'll buy you a gift from Korea."</p>
+<p>"Okay.... See you when school starts."</p>
+<p>Because so many people were passing by even in the early morning, I couldn't be with Minamoto Risa at the airport. So I had to say goodbye in the car. I hugged Minamoto Risa, who was feeling sad, tightly and gave her a kiss.</p>
+<p>"I'm leaving."</p>
+<p>"Okay, bye."</p>
+<p>Minamoto Risa got out first, and I went to the rental car company at the airport. Since it was a rented car anyway, I was going to return it in advance now. It seemed like it would be perfect to return the car and take a plane to Korea.</p>
+<p>_______</p>
+<p>B-cut!</p>
+<p>Today was a day when I wasn't too lazy to put seaweed on, so I'm putting seaweed on the Minamoto Risa pictures that I made and didn't upload, hehehe.</p>

@@ -5,55 +5,99 @@ weight = 464
 chapter = 464
 +++
 
-<p>an before but check erotic illustration is no panties please slight so surroundings there with your After finishing the physical comfort for Daigo Terue, I came out and walked the darkening night road. Oofuchi Erika was also having a study group with other Students until late at night, so fortunately, while having Sex with Daigo Terue, Oofuchi Erika didn't burst in saying, 'I'm back~!'</p>
-<p>After summer passed, as I was hit by the cool wind and slowly walked the night road, I suddenly saw my Home. As I slowly approached, between the dark shadows, I saw someone leaning against the wall, and upon closer inspection, it was Otagi Yuka. It seemed she was waiting for me... What's the matter?</p>
-<p>「Teacher-ssi.」</p>
-<p>Otagi Yuka also seemed to have found me, and called out to me. Since she was a Vampire with bright night vision, she immediately spotted me and was waving her Hand in greeting.</p>
-<p>「Let's go inside first.」</p>
-<p>As a Teacher, I couldn't have a Student in a School Uniform stand in front of my Home and talk, so I took Otagi Yuka Inside the House.</p>
-<p>「First, sit on the sofa. Do you want something to drink?」</p>
-<p>「Semen... no, give me a glass of water.」</p>
-<p>When I poured her a glass of water, Otagi Yuka took a one shot and then looked at me. Her Gaze was so complex that I couldn't suppress my bewilderment and opened my mouth.</p>
-<p>「By the way... what's the matter?」</p>
-<p>「Teacher-ssi, what exactly did you do to my Body?」</p>
-<p>「Huh?」</p>
-<p>What is she saying? Could it be that she's talking about her Body constantly itching because she had Sex with me? But in Otagi Yuka's facial expression, I couldn't find such Sexual Heat.</p>
-<p>「Can you explain what's going on?」</p>
-<p>「After doing it with Teacher-ssi, that... I'm not hungry, blood-wise.」</p>
-<p>Not being hungry blood-wise means that as a Vampire, she doesn't need to consume Blood. I've played as a Vampire in TMC, so I generally know that when the Blood Sucking Impulse, commonly expressed as hunger, arises, the Field of Vision turns red, allowing one to easily Blood Suck at any time, by seeing through the skin to the Veins of passing Humans and even their Hearts that supply Blood.</p>
-<p>Of course, since it's expressed in a game, it might be different from Reality, but Otagi Yuka said that after having Sex with me, the Blood Sucking Impulse doesn't occur, so it seemed she came because she was worried.</p>
-<p>「I don't know either....」</p>
-<p>Honestly, it wasn't that I had no Guess, but I said I didn't know because I wasn't sure.</p>
-<p>「Perhaps, Teacher-ssi's that... that white, liquid.」</p>
-<p>Otagi Yuka seemed to have a similar thought to mine. Because my Semen volume is so large, usually when I Ejaculate, Semen Refluxes and flows out in a stream, but when I was with Otagi Yuka, that phenomenon didn't occur, so does she absorb Semen...? I had thought, and it seemed that was the correct Answer.</p>
-<p>「Just a moment....」</p>
-<p>I went to the warehouse room where I kept my things, and came out holding the Ruins' Glasses with remaining uses.</p>
-<p>「That's....」</p>
-<p>In the warehouse before the Battle with SPF, I had shown Sakagami Rena and Alik's Stats, so Otagi Yuka also knew about the Ruins' Glasses.</p>
-<p>「If I look with these Glasses, I can also check Status effects and such, so I'm going to look, is that okay?」</p>
-<p>If it were someone who didn't know what the Ruins' Glasses showed, I would just look, but since Otagi Yuka knew, I should ask for her permission. The Status Window itself, seen through the Ruins' Glasses, was like a complete collection of Human Information, so it was right to ask for prior permission.</p>
-<p>「Understood. Please check.」</p>
-<p>Having obtained Otagi Yuka's permission, I comfortably put on the Ruins' Glasses and looked at Otagi Yuka.</p>
-<p>◆Name: Otagi Yuka (愛宕 夕香) Lv12 Stats Body Power:14 Agility:14 Stamina:14 Resistance:14 Recovery:14 Sensitive Nerves:14 Appearance:16 Mind Intelligence:8 Knowledge:6 Concentration:10 Will:8 Creativity:3 Charm/Allure:15 Judgment:7 Other Luck:6 Blood Energy:14 Satiety: 92/100 Skills ◆Akagamikiba Style (赤神牙式: Red God Fang Style) (Unique Swordsmanship Lv11) ◆Otagi-ryu Blood Energy Sorcery (Atago-ryu Ketsuki Jujutsu) (Unique Sorcery Lv7) ◆Investigation (General Skill Lv7) ◆Dish (General Skill Lv8) ◆Linguistics - English Language (General Skill Lv13) ◆Linguistics - Korean Language (General Skill Lv5) Traits ◇Vampire's Physical Body - Otagi (愛宕) [Legendary Bloodline]: All body stats except Appearance are tied to a special stat called Blood Energy. However, even if Blood Energy exceeds its limit, the body stats will only increase up to their individual limits unless those limits are unlocked. With the Vampire's Physical Body, the Limit of all Stats increases by 2, and the more frequently Blood Sucking occurs, the higher the Blood Energy Stat rises. The higher the Blood Energy Stat, the higher the regeneration power, and the Proficiency in Blood Energy Skills additionally increases. At night without the Sun, Blood Energy increases by 120 percent, and if the Blood Sucked Target does not completely die, they can be used as a vassal. If Blood Sucking does not occur, and Satiety decreases below 40, the Blood Energy Stat is only applied by the Satiety's multiplier, the Stats given upon Level Up become half, and are not invested in the Blood Energy Stat. Becomes very vulnerable to Silver and also weak to Light and Flame attributes. As a member of the Otagi (愛宕) family vampire, has an exceptional talent for swordsmanship. ◆Fog Transformation [Narrative Race Trait]: A Vampire Race Trait. Can transform into a blood-red fog. When transformed into fog, reduces physical Damage by 70 percent, and can deal continuous Damage to Enemies within the fog. ◆Blood Energy Affinity [Unique Trait]: Freely manipulates Blood Energy. Increases all Skills and Traits that use Blood Energy by 145 percent, the maximum of the Blood Energy Stat increases by 2, and the efficiency of the Blood Energy Stat increases. ◆Blood Energy Regeneration (血氣 再生) [Narrative Race Trait]: Significantly boosts regeneration based on the Blood Energy stat. Increases the maximum of Blood Energy and Recovery stats by 1, and raises the Blood Energy stat by 2. Can further enhance regeneration by using Satiety. ◆Noble of the Night [Narrative Race Trait]: Charm/Allure Stat increases by 2, and its maximum also increases by 1. The Probability of succeeding in Seduction against the opposite Sex increases. In the case of the same Sex, Seduction can also be performed proportional to Charm/Allure. If Seduction succeeds, the Opponent is afflicted with the Status effect . ◆Curtain of Darkness [Narrative Race Trait]: Damage from Light and Flame Attributes is reduced, and the Blood Energy multiplier that increases at night increases to 130. ◆Mutation - Semen Absorption [Rare+ Race Trait]: A Vampire race trait. When a male's semen, containing strong life energy, is absorbed through the vagina or mouth, it is treated like bloodsucking. The efficiency of Blood Energy increases.</p>
-<p>As expected, her Stats were incredibly high, perhaps because she was of a different Race, and on the Skills side, she was practicing Swordsmanship passed down from the Otagi Family and Sorcery using Blood Energy. Perhaps because she was in the USA for a year, her English language Level was considerable, and while in the USA, searching for the Enemy who caused her friend's Death, her Investigation Skill also seemed to have risen.</p>
-<p>Looking at her Traits, the Vampire's Physical Body, given as a Bloodline Trait, boasted incredible cheat-like power. Just by raising one Blood Energy Stat, it had the Crazy Effect of raising six Stats.</p>
-<p>Instead, if Satiety drops, the Blood Energy Stat is treated as low, and Level Up Stats are only half, but since the Blood Energy Stat automatically increases with continuous Blood Sucking, it wasn't a very big disadvantage.</p>
-<p>Because the Bloodline Traits given just by being born were so enormous, Humans had bound Vampires with agreements to prevent them from wielding power.</p>
-<p>Of course, as strong as these Bloodline Traits were, unlike Humans, Vampires not only vassals created by Blood Sucking, but producing children who inherit Bloodline Traits requires considerable Resources, so they couldn't just churn out baby Vampires like a Vampire Factory.</p>
-<p>And when Vampires Level Up, eight or nine times out of ten, they gain Race Traits, and these Race Traits, while stronger than their Grade fitting for a Vampire, were mostly Narrative Grade. There were few Unique Grade, Legacy Grade, or Unique Legacy Grade, there was only one Legendary Grade Trait, and Myth Grade Traits were virtually non-existent.</p>
-<p>Although Vampires are on average incredibly strong compared to Humans, because there weren't absolutely no Humans who obtained Legendary or Myth Grade Traits, Vampire factions couldn't easily rise up. Although he is a Villain, even Famine, one of the strongest people of the current Era, could Massacre the Otagi Family alone in a single day, so they couldn't easily expand their power.</p>
-<p>Also, because their Weaknesses are so clear, and SPF, which could be called their Delinquent, is still strong, one could rather think that they are continuing their lineage through agreements.</p>
-<p>In Japan, the Otagi Family has a history of being worshipped as a local god since ancient times, so they openly established their Family and lived in the light, but Vampire families or factions elsewhere quietly bowed down and lived without revealing their Vampire nature.</p>
-<p>The Traits after the Bloodline Trait were, as expected of Race Traits, generally good Traits. As a special note, there was the Unique Grade Blood Energy Affinity, and because this Blood Energy Affinity was a Trait also used by Magicians who use Blood, called Blood Mages, it was not a Race Trait.</p>
-<p>Oh, that's right! It was so fun looking at the Status Window that I couldn't explain Otagi Yuka's worry. As luck would have it, the Trait explaining Otagi Yuka's worry was at the very end, so I ended up spending time looking at everything.</p>
-<p>For some Reason, Vampires, being more unstable than Humans, also developed many Mutation Traits. For example, Traits like pale skin and weakness to sunlight, but becoming stronger in Darkness, or even Flesh Armor Mutations that could transform one into a monster, but Otagi Yuka, though it didn't show outwardly, seemed to have developed a Mutation that could absorb Semen.</p>
-<p>Although its Grade was low at Rare+, if this was combined with my Virility, it seemed like a ridiculously cheat-like Trait? Since it's treated as Blood Sucking, if we just keep having Sex, won't her Blood Energy also rise?</p>
-<p>I don't know how much we'd have to do for Blood Energy to rise, but if we have a lot of Sex, her Stats would skyrocket, so Otagi Yuka would become incredibly strong.... Of course, Otagi Yuka would have to have the Intention to have Sex with me.</p>
-<p>「Now, I'll explain.」</p>
-<p>Rather than just the Knowledge passed down in her Family or what she knew Instinctively, if she heard the Explanation with the content clearly displayed in the Status Window, she could use her Abilities more efficiently, so I explained everything to Otagi Yuka from the beginning, one by one.</p>
-<p>「Lastly, what you're worried about is that a Mutation has occurred....」</p>
-<p>「Th-that kind of Pervert-like Mutation has occurred?!」</p>
-<p>「Still, it's pretty good. Because absorbing Semen is treated as Blood Sucking....」</p>
-<p>To Otagi Yuka, who was flustered after hearing the Explanation, I told her about the cheat-like aspect of this Trait. Otagi Yuka listened to my Story in silence, then suddenly her Face turned red like a Persimmon.</p>
-<p>Otagi Yuka made an Expression as if she had made some Resolve, then looked up at me, slightly lifted her Skirt, and opened her mouth. 「P-please give me a Meal, Teacher-ssi....」</p>
-<p>-Skirt Lifting B-Cut! The time was night, but the Window was too bright, so Elimination kkeuk.</p>
+<p>,Long time no see, Ryuta.</p>
+<p>,It's been a while indeed. How have you been?</p>
+<p>Tang So-hwa reached out her hand, and I took it, shaking it and exchanging greetings after a long time. To my question about how she'd been, Tang So-hwa glared at me and shook her head.</p>
+<p>,How could I have been doing well?</p>
+<p>,Huh? Why, did something happen?</p>
+<p>When I asked what was wrong since she said she hadn't been doing well, she looked at me with an absurd expression. It was as if she was saying, ,Do you really not know?</p>
+<p>,Ha! You changed my body weirdly. You did!</p>
+<p>,Weirdly, how so....</p>
+<p>Anyone listening would think I was some mad scientist who experiments on people. I just made your body more sensitive, that's all.</p>
+<p>,Haa.... Let's go inside for now. I only left a few maids because you were coming, so feel free to relax.</p>
+<p>,Thanks for your consideration.</p>
+<p>I had told her that I was on a covert mission where I couldn't reveal my identity, so it seemed like she was being considerate in this way. I followed Tang So-hwa into the house.</p>
+<p>Tang So-hwa's house had the feel of an oriental house on the outside, but the interior was like a regular luxury home.</p>
+<p>,Actually, I don't come home often. I'm so busy with work that I often sleep in the overnight room attached to the president's office.</p>
+<p>Tang So-hwa said as I looked around the house. She must be incredibly busy indeed. It hasn't been long since she used her body to win people over in prison, yet she's already established and running a company of this size, so she must be incredibly busy.</p>
+<p>,Did you have breakfast?</p>
+<p>,I wanted to see you, so I washed up as soon as I woke up and drove straight here, so I haven't eaten yet.</p>
+<p>,Heung, you really came as soon as you woke up because you wanted to see me?</p>
+<p>Tang So-hwa seemed quite pleased with my sweet talk. This is what they mean when they say you can repay a thousand nyang debt with a single word.</p>
+<p>,That's right. That's why I'm so hungry.</p>
+<p>,Let's eat together then. Wake up Yang Seol-hui while I prepare the food. It's that room over there.</p>
+<p>Is she personally preparing breakfast? That doesn't quite fit Tang So-hwa's usual vibe. I watched Tang So-hwa preparing the food, then opened the door to the room where Yang Seol-hui, whom Tang So-hwa had told me about, was sleeping. The room was dark, but it had a pleasant, unique scent of a girl.</p>
+<p>Tak!</p>
+<p>When I pressed the button to turn on the light, I saw Yang Seol-hui sleeping, wrapped tightly in her blanket. She was wrapped in the blanket up to her waist, and she was sleeping in her underwear. Isn't it uncomfortable to sleep in underwear? It seems like it would be uncomfortable....</p>
+<p>,Um....</p>
+<p>I gently shook Yang Seol-hui's shoulder. Yang Seol-hui made a ,woong, sound and didn't wake up. But isn't she a sniper? It seems like she shouldn't be this careless....</p>
+<p>,It's time to eat breakfast, so wake up.</p>
+<p>I shook her shoulder a little harder. As I woke up Yang Seol-hui, who wasn't waking up easily, I could feel a little bit of the hearts of mothers waking up their children in the morning.</p>
+<p>,Woong....</p>
+<p>Yang Seol-hui squinted her eyes as if the light was too bright, and smiled at me.</p>
+<p>,Ehehe, it's Ryuta-nim...!</p>
+<p>She smiled and pulled me into a hug, perhaps still drowsy. She seemed surprised when she felt my touch while she was hugging me. Was she mistaking it for a dream?</p>
+<p>,O-Oh, when did you get here, Ryuta-nim?</p>
+<p>,I just got here.</p>
+<p>Yang Seol-hui seemed to wake up completely, sitting up and looking at me with a flustered expression.</p>
+<p>,We have to eat breakfast, so get ready and come out.</p>
+<p>,Just a moment!</p>
+<p>,Huh?</p>
+<p>She called out to me as I turned to leave. I turned my head and looked at Yang Seol-hui, who smiled brightly.</p>
+<p>,Welcome.</p>
+<p>Is she saying the greeting she couldn't say because she was asleep? I smiled back and said okay. Then I closed the door and went to the dining table. Tang So-hwa opened her mouth as she saw me coming out of the room.</p>
+<p>,It'll be ready soon. Just wait a little longer.</p>
+<p>The air fryer was humming as it turned, and Tang So-hwa was grinding something milky white in a blender. As I listened to the sound of the blender and blankly watched Tang So-hwa cooking, Yang Seol-hui's room soon opened, and Yang Seol-hui came out in comfortable clothes of a short-sleeved shirt and shorts.</p>
+<p>,Ryuta-nim, Boss, good morning.</p>
+<p>,Weren't you sleeping too much because you overdid it yesterday?</p>
+<p>,I didn't overdo it. I just stayed up late watching Ratflix.</p>
+<p>Listening to their conversation, it seemed like they did something yesterday. All I can think of that Yang Seol-hui would do is snipe... If my guess is right, she probably killed a few people yesterday.</p>
+<p>,Okay, it's all done.</p>
+<p>Tang So-hwa placed a bowl of thick beige liquid and a long fried bread stick in front of each of us.</p>
+<p>,What is this?</p>
+<p>,It's soy milk. I ground the boiled beans myself.</p>
+<p>When I pointed to the beige liquid and asked, Tang So-hwa smiled slightly and explained. Ah, it was soy milk. It seems thicker than regular products, perhaps because it's soy milk that she boiled and ground herself.</p>
+<p>,You dip this bread in the soy milk and eat it. They eat breakfast like this a lot in China.</p>
+<p>Ah, so this is Chinese-style breakfast. I dipped the fried bread in the soy milk and ate it. Hmm, the warm, savory soy milk permeated the spaces between the bread, making it quite palatable.</p>
+<p>,Mmm~ It's delicious.</p>
+<p>,You can add sugar to it, or you can eat it as is.</p>
+<p>Following Yang Seol-hui's advice, I added a little sugar and it tasted even better. As expected, it tastes better when the calories go up. Tang So-hwa was looking at me eating with a pleased expression.</p>
+<p>,It tastes good with sugar, doesn't it?</p>
+<p>,I'm glad it suits your taste.</p>
+<p>Tang So-hwa was very happy when I said it was delicious. I've only seen her killing people with poison, so I didn't expect this domestic side of her. People must have many sides to them.</p>
+<p>,Oh, right. If Ryuto Construction has some spare manpower, I'd like you to build a building in Neo Tokyo.</p>
+<p>As soon as I made money from stocks, I immediately bought land in various parts of Kisarazu City, Sodegaura City, Kimitsu City, and Futtsu City, which are planned to be the site of Neo Tokyo. I probably spent about a third of the money I made at that time buying land in Neo Tokyo.</p>
+<p>The land prices were already rising enough at that time, but if the Neo Tokyo project succeeded, I could make two or three times as much, or even tens of times as much in the best case, so I didn't spare any money and bought the land.</p>
+<p>I wouldn't be staying as a regular employee of the Talent Development Institute forever, so I was planning to prepare my residence in Neo Tokyo, which would become the center of Japan in the future.</p>
+<p>,We can gather as much manpower as you need. If it's Ryuta's building, we can make it sturdy with almost no margin.</p>
+<p>,It has to be the best, so please pay attention to it. Let's talk about the details later when Chieri Sunbae comes.</p>
+<p>Mimata Chieri knows the practical details, so I should leave it to her. Right now, the priority was to eat the breakfast that Tang So-hwa had made in preparation for the physical activities ahead.</p>
+<p>,Have you had any difficulties or problems while working?</p>
+<p>I couldn't just eat without saying anything, so I asked if she had any difficulties during that time. Then Yang Seol-hui started rattling off the things that had been difficult, as if she had been waiting for the question.</p>
+<p>,We're just getting on track and trying to get comfortable. There are more Kurotsukido remnants in Korea than in Japan, so it was easier when we absorbed them, but it was difficult because the Boss took charge of Japan. We lost a lot of troops in the war with Taira Foods.</p>
+<p>Certainly, when Tang So-hwa took over the Kurotsukido Northeast Asia branch as the branch manager and seized the Kurotsukido forces in Korea and Japan, the side with the fewest troops would have been Japan. I also participated in the Taira Foods side, so I know to some extent that the Kurotsukido troops suffered considerable damage.</p>
+<p>Tang So-hwa seemed to have left the Korean side, which was relatively easy because there was no damage to the forces, to Yang Seol-hui, and Tang So-hwa, who has high combat power, took charge of the Japanese forces, which lacked troops. If it's Tang So-hwa, she can take on a thousand or more enemies alone, as long as they don't have defenses against poison.</p>
+<p>,Everyone has worked hard. It's not much of a reward for your hard work, but I've prepared a gift, and I hope you like it.</p>
+<p>I took out the cross-shaped ruby earrings that I bought at the New York black market auction before the St. Francis Women's Academy mission, and the teardrop-shaped sapphire earrings that I bought in the United States this time. The ruby earrings had +1 to stamina and resistance, and the sapphire earrings could use a special skill called Frost Mist Zone, which covers the surrounding area with a cold mist once a day.</p>
+<p>,You're getting artifacts as gifts....</p>
+<p>,That's right! I heard that artifacts are usually very expensive, so how did you get them?</p>
+<p>,I have quite a bit of money. I have enough to buy gifts, so don't worry.</p>
+<p>Gamers just call them items, but in this world, things with options are usually called artifacts. In fact, in my case, it was a huge protagonist buff because I could know the abilities just by focusing on the item.</p>
+<p>I got the sapphire earrings this time by going around to various antique shops and checking the abilities until my eyes fell out.</p>
+<p>,Then Yang Seol-hui should take the sapphire earrings. You can use them to retreat after sniping.</p>
+<p>,That's right.</p>
+<p>After talking to each other, Yang Seol-hui decided to take the sapphire earrings, and Tang So-hwa decided to take the ruby earrings. It was exactly as I thought. Snipers have to have a reliable escape technique because they operate alone during combat. The sapphire earrings' Frost Mist Zone was a sufficient technique to hide Yang Seol-hui's body.</p>
+<p>,Thank you, Ryuta-nim.</p>
+<p>,Thank you, Ryuta.</p>
+<p>They both said thank you and tried on the earrings they had chosen.</p>
+<p>,I have to do this much since you've worked hard. I'm glad they both suit you well.</p>
+<p>They both smiled brightly, as if they were in a good mood at my words that they suited them well. Then Tang So-hwa looked at my empty bowl.</p>
+<p>,You've finished breakfast?</p>
+<p>,Yeah. It was delicious.</p>
+<p>,Then go to the washroom and brush your teeth.</p>
+<p>I know what she's intending, but isn't it too early in the morning? Well, Tang So-hwa even said that I changed her body strangely, so her arousal level must be quite high. Should I say it's amazing that she didn't pounce on me as soon as she saw me?</p>
+<p>I got up from my seat and went to the washroom. A new toothbrush was prepared in advance in the washroom. She's meticulous....</p>
+<p>When I finished brushing my teeth and came out, I couldn't see them. Are they in the bedroom or something? I walked to the room where I heard the sound and opened the door.</p>
+<p>----</p>
+<p>Yang Shue-shi AKA Seol-hui</p>
+<p>I changed the Yang Seol-hui exclusive model that I used to use because the lighting was too dark hehehe</p>

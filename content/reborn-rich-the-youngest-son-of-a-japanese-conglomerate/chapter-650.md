@@ -5,70 +5,100 @@ weight = 650
 chapter = 650
 +++
 
-<p>There was a professional printing shop in Miyashi that produced photo prints, prints, book prints, and even photo cards. It had a simple name, Miya General Printing, and although it was smaller than companies in Tokyo, it was a company with good quality.</p>
-<p>It was a Friday night when they would normally be waiting to leave work, but the employees were not preparing to leave. It was time for a guest to come to Miya General Printing with a large order.</p>
-<p>,You haven't forgotten that the buyer is visiting today, right? They said they've already done the design, so Mr. Nakahata, the printing team leader, will take responsibility and treat them well. If you ignore them because they're high school students, our company is finished, finished! Got it?</p>
-<p>,I know. How many times have you said that, Mr. President.</p>
-<p>Nakahata Miwako, the printing team leader, was a little annoyed at the president, who kept telling her to be careful almost like brainwashing. Nakahata Miwako, as a citizen of Miyashi, knew the position that St. Francisco Girls' Academy held in Miyashi and Japan.</p>
-<p>Even though the St. Francisco Girls' Academy festival was approaching and there were many requests for club anthologies and poster production, the president was particularly excited today for some reason. It must be because the order volume is huge.</p>
-<p>,But why photo cards as a supplement to the club anthology? It's not like there's a celebrity in the class.</p>
-<p>,I don't know. Sometimes, when there's a handsome male teacher, students secretly take pictures and request photo cards... .</p>
-<p>,Ah, there's one celebrity at St. Francisco Girls' Academy. I think there's one idol, is it her picture? If you're going to do that with a celebrity, the agency will take care of it... .</p>
-<p>,Well, we get paid if they ask us to do it, no matter what the picture is, so don't make a suspicious face and do well.</p>
-<p>,Yes... .</p>
-<p>The president had to go on a business trip for another matter, so Nakahata Miwako was in charge of entertaining the students of St. Francisco Girls' Academy today.</p>
-<p>,Is this Miya General Printing?</p>
-<p>Not long after the president left, a guest came in. It was a pretty blonde girl with tanned skin wearing a white shirt and blue skirt from St. Francisco Girls' Academy. She had a gyaru's flashy makeup and her eyes were slightly raised, so she looked a bit fierce, but she was a rare beauty.</p>
-<p>,She's a gyaru? By the way, she's so pretty.</p>
-<p>,Yes. Welcome.</p>
-<p>Nakahata Miwako greeted the guest with a different story than she had expected. The gyaru student, after hearing that she had found the right place, said to someone outside the door, 'This is the right place. Let's go in.' and entered the office. After that, St. Francisco female students started coming in one after another.</p>
-<p>,I'm sorry. The club members said they wanted to see how it was made... .</p>
-<p>The gyaru student apologized, but Nakahata Miwako couldn't say anything to her. Each and every one of them is a daughter of a prestigious family, so if she grumbled, the company could go bankrupt.</p>
-<p>,It's okay. You might be curious if this is your first time requesting something like this. Ah...!</p>
-<p>Nakahata Miwako, who was watching the students coming in, was very surprised. The man who came in last was very handsome.</p>
-<p>He had a rare large physique for a Japanese person, tanned brown skin, and a very handsome face... . He was a man with a charm that made any woman want to lean on him.</p>
-<p>,I'm sure the photo card was made with that person's picture... .</p>
-<p>Nakahata Miwako, who had been ignoring the photo cards for the club event until just now, suddenly felt that she wanted to have this man's photo card.</p>
-<p>When she stared at the man, he smiled slightly and approached Nakahata Miwako and held out his hand.</p>
-<p>,Hello. I'm Yamashiro Ryuta, the teacher of these troublemakers.</p>
-<p>,Ah, yes... . I'll, I'll make the photo cards well.</p>
-<p>Nakahata Miwako blamed herself. What a stupid greeting... . But what she said was sincere. If this man was the main character of the photo card, she wanted to do her best to create a masterpiece.</p>
-<p>###</p>
-<p>,Hmm... .</p>
-<p>I was lying on the bed looking at the prototype photo card in my hand. I had made a decision about this photo card at a printing company with a strangely passionate employee.</p>
-<p>We decided to use a prism-coated paper for the general photo cards, and since the few hologram photos we took were not related to the coated paper, we also visited a company that produces hologram chips and requested production separately.</p>
-<p>Production started right away today, but I was a little worried about making photo cards like this.</p>
-<p>It's my picture, but whether it goes well or not, it's not my business. But Minamoto Risa ordered 1,000 copies each of 85 types of photos, excluding hologram photos. So that's a total of 85,000 copies... . Since there are four in a pack, you have to sell 21,250 copies to sell them all.</p>
-<p>Of course, Minamoto Risa said that she applied for it considering that all the special class students would receive a set of 100 cards and a set for her acquaintances, but I wondered if they would all be sold. And I didn't think the special class students' acquaintances would need my picture.</p>
-<p>-Jin Yong-tae: Picture.</p>
-<p>-Jin Yong-tae: I'm getting a photo card at this school festival 🤨</p>
-<p>-Han Yu-gyeong: Ahㅋㅋㅋㅋㅋ🤣 What? Our Yong-tae became a celebrity?</p>
-<p>Han Yu-gyeong bursts out laughing when I show her the prototype of the photo card. The picture is okay, but the cheesy comment underneath must have made Han Yu-gyeong laugh.</p>
-<p>-Jin Yong-tae: I'm publishing a club anthology and it's going to be included as a supplement. My photo card is a bait productㅋㅋㅋ</p>
-<p>-Han Yu-gyeong: But the quality is so good that I want it too? I want to go to the festival and buy our Yong-tae's photo card... . I'm too busy to goㅠㅠㅠ How many types are there in total?</p>
-<p>Han Yu-gyeong was very busy moving to launch TG Tech's new gun, so she couldn't come to the St. Francisco Girls' Academy festival. The gun to be released right now is more important than the festival, so it can't be helped.</p>
-<p>-Jin Yong-tae: Fifteen types of hologram photos, and 85 types of general photo cards... . Quite a lot, right?</p>
-<p>-Han Yu-gyeong: The kid who came up with this idea is really meanㅋㅋㅋ A total of 100 types. How many club anthologies do I have to buy to collect them all?</p>
-<p>-Jin Yong-tae: She's a bit mean. The students and teachers in the class can buy a full set of 100 types separately for acquaintances instead of random packs, should I buy Yu-gyeong one too?</p>
-<p>-Han Yu-gyeong: There's such a thing? I'll buy it! Two sets... . No, four sets...!</p>
-<p>-Jin Yong-tae: Noㅋㅋㅋㅋ You only need to buy one set, why are you buying four sets?</p>
-<p>-Han Yu-gyeong: One is for me to look at, one is for storage. I'll give one set to my mom and one set to Seol-hui... .</p>
-<p>-Jin Yong-tae: Is my photo card a gift set? I'll send a separate gift to your mother and Yang Seol-hui, so I'll only send 2 sets.</p>
-<p>-Han Yu-gyeong: Then send me 3 sets...! I'll use the last set for evangelism 😍</p>
-<p>I don't know what evangelism is, but I said okay and ended the KakaoTalk with Han Yu-gyeong. 2 sets to send to Ha Ju-yoon and Yang Seol-hui... . If Yang Seol-hui receives it, Dang So-hwa will know too, so I'll order 1 set for Dang So-hwa and my friends at Seryu Military Company... . This acquaintance set will sell a lot because of me?</p>
-<p>While I was checking who to give a gift to, my smartphone vibrated again. When I checked, it was a line sent by Yukiko.</p>
-<p>-Yukiko: I heard that Ryuta started producing the photo cards you mentioned before? I heard you can give a set as a gift to an acquaintance... .</p>
-<p>When I thought about how Yukiko knew, it seemed like Sakagami Rena, Yukiko's disciple, had told her. I knew that photo cards were coming out because I had said it before, but the only way she would know that production had started was Sakagami Rena.</p>
-<p>-Taira Ryuta: Yes, that's right. Should I send Yukiko-ssi a full set of photos too?</p>
-<p>-Yukiko: Just send me one set. I'll keep the set Ryuta sent me for storage and I'll have to go and match a set with the lottery cards myself.</p>
-<p>When I saw that Yukiko was going to get one set from me and come to the festival to draw lots, it seemed like Yukiko was going to match at least two sets like Han Yu-gyeong. She said she was coming with Nagumo Sian, so I should ask Nagumo Sian too. Then should I give two sets to other people too? I'll have to ask them one by one later.</p>
-<p>I finished the line with Yukiko, promising to see her at the festival, and was wondering how many sets I should give to whom when my phone vibrated again. This time it wasn't just one person who sent it, it kept vibrating, and when I checked the people who sent the messages, it was Kurayamata Kirie, Eve, and Nae Fitzgerald. They all knew about the release of my photo card and sent me a line asking me to send it to them.</p>
-<p>,Hmm... . I'll sell 100 sets by myself?</p>
-<p>I hope Minamoto Risa doesn't get excited and order more when she sees me buying it. I contacted everyone and told them I would send them two sets each, and finally the phone vibrated again, so I checked and it was a text from Taira Danjo grandpa.</p>
-<p>-Grandpa Danjo: I heard you're doing something strange again this time. Your grandma wants to see you, so send two sets to Kanna.</p>
-<p>Ah, I forgot about my grandmother. My grandmother, Taira Shizuku, loved me, the only son of my father, who was the only son of my father, terribly, but after the St. Francisco Girls' Academy mission, I only talked to her occasionally and didn't see her. Yeah, I should send her a photo card so she can see her grandson's face as much as she wants this time.</p>
-<p>I suddenly checked the prototype photo card I had thrown aside. What I saw was not my picture, but the cheesy comment underneath.</p>
-<p>-"Do you smell something burning? My heart is burning for you."</p>
-<p>I have to send this to my grandmother...? I was momentarily horrified and hesitated whether to send it to my grandmother after seeing the cheesy comment, but I couldn't help it. Grandpa Taira Danjo ordered it directly, so I couldn't help it. I had to send it.</p>
-<p>,Hoo... . Let's go to bed early.</p>
-<p>I sent a reply to Grandpa Danjo saying okay and threw my phone. I had to go to bed early because tomorrow was my date with Urabe Konoka. We decided to meet early.</p>
+<p>The Date Experience Club's anthology sales ended at 4 PM with all copies sold out. Some people in line turned away disappointed, but we sold almost exactly the right amount.</p>
+<p>,That's amazing? We sold almost exactly the right amount.</p>
+<p>,We kept adjusting the orders.</p>
+<p>We had a little more delivered at lunchtime after seeing how much was being sold today, so it seems like we matched the quantity appropriately.</p>
+<p>,Lisa-ttang, so what's our revenue?</p>
+<p>At Seizawa Shii's question, Minamoto Lisa tapped the tablet screen for a moment. Everyone was curious about it, so the students' eyes were all focused on Minamoto Lisa's slender fingers tapping the screen.</p>
+<p>,The first day, A and B combined, we sold about 44,000 copies... and today, combined, we sold about 27,000 copies... That's about 85 million yen just from the club anthology?</p>
+<p>Wow, that's insane. Eighty-five million in two days at a girls' academy festival... Even with Uenozono Karen, who is an idol, this is a huge amount of sales.</p>
+<p>Everyone was momentarily frozen, saying "Wow..." at Minamoto Lisa's words. Even though there were many sheltered young ladies from wealthy families, they knew that this amount of sales was enormous.</p>
+<p>,And if we calculate the cafe sales... it's about 2.9 million yen, so the total sales are a little over 88 million yen. Of course, if we subtract the donations, our labor costs, the cafe material costs, and the money to give to the printing company, the net profit will be significantly reduced.</p>
+<p>,Are you going to give us labor costs too?</p>
+<p>The students, who thought they were volunteering for free, asked Minamoto Lisa with expectant expressions when the topic of labor costs came up.</p>
+<p>,Of course. What else would we do with this money?</p>
+<p>Minamoto Lisa answered indifferently while still tapping the tablet screen. The students were all delighted at Minamoto Lisa's answer.</p>
+<p>No matter how much money they have, no one dislikes earning more money. Moreover, this money was earned entirely by the students' own labor, so it would feel a bit special.</p>
+<p>Even if we give the Date Experience Club students labor costs, it seems like tens of millions of yen will be left over. I wonder what they will do with that money.</p>
+<p>,I think there will be some money left over, so how about this? We're graduating soon, so let's use this money to hold a special class reunion every year.</p>
+<p>Minamoto Lisa seemed to be thinking about what I was thinking about, and made a suggestion to everyone. In fact, we earned quite a lot of money, but it would be a bit awkward for anyone to take it, so Minamoto Lisa's suggestion was quite plausible.</p>
+<p>,We earned quite a lot, but it seems like it will be a bit short to hold a reunion every year?</p>
+<p>Shido Tsubaki tilted her head and asked. This was also true. It would be a huge amount of money for ordinary people, but everyone was a young lady from a prestigious family, so events would cost quite a bit. We wouldn't be holding reunions at a yakiniku restaurant, so if we rented a hotel, paid for food and alcohol, it would cost quite a bit of money for a reunion every year, and it seemed like the money would be depleted after about four or five reunions.</p>
+<p>,We can manage the funds. If we make a little profit with this money, it will be no problem for at least 10 years.</p>
+<p>,I agree!</p>
+<p>Seizawa Shii, Minamoto Lisa's best friend, was the first to agree, and everyone else nodded as if they had no other objections.</p>
+<p>,Then I'll distribute the profits today. Everyone gets 500,000 yen each.</p>
+<p>500,000 yen for working two days seems like a lot, but there was also preparation time for the festival. Still, considering the few hours of preparation after school for about two months, it was a slightly more generous reward than appropriate.</p>
+<p>,Kijimoto Jurie-sensei gets 200,000 yen... Alik is in another club, but he helped steadily, so also 200,000 yen, Karen also helped with promotion even though she's not a club member and even appeared on the photo cards, so 1 million yen... and you....</p>
+<p>Minamoto Lisa, who was calculating for Kijimoto Jurie, Alik, and Uenozono Karen, who were not club members, looked at me.</p>
+<p>,It's okay if I don't get any. Use the money I would receive for your class reunion fees.</p>
+<p>,Your class reunion fees? You're also an advisor to the Date Experience Club, so you have to participate every year no matter what.</p>
+<p>,No matter what?</p>
+<p>Participate no matter what, that's quite coercive. Minamoto Lisa nodded with a determined expression at my question of "No matter what?" After that, Seizawa Shii was making a sad face, saying, "Ryuta-zzi, you weren't planning on coming to the reunion, were you?" The others had similar reactions, so I said, "Okay, I'll go, so stop making that face," and everyone laughed wahaha.</p>
+<p>,Then you also get only 500,000 yen like the club members. It's very little compared to what you've done, but since you said to use the money you would receive for the reunion fees, I'll divert the originally allocated amount to that.</p>
+<p>Divert it to the reunion fees... I wonder how much she was planning to give me. I glanced at the tablet and saw the words "10 million yen" crossed out. She wasn't planning to give me 10 million yen, was she? Minamoto Lisa is quite generous.</p>
+<p>,Everyone has received their money, so you are free to enjoy the festival. But we're planning to watch the fireworks together, so everyone gather at the special class building by 9:20 PM~!</p>
+<p>,Okay, Ryuta-zzi!</p>
+<p>,Yes~!</p>
+<p>In fact, the St. Francisco Girls' Academy Festival was until 10 PM. The festival ended after watching the fireworks for 30 minutes from 9:30, but most clubs were open until before the fireworks. The Date Experience Club finishing this early was a bit unusual.</p>
+<p>,My master and disciples are waiting for me, so I'm going to go there!</p>
+<p>,I have customers too.</p>
+<p>Kujo Kina and Konoe Akina left the club room, saying they had customers.</p>
+<p>Kujo Kina's customers would be Yoda Grandpa and his gang who came this morning, and Konoe Akina's customers seemed to be the Seryu Military Company people. I talked to her briefly yesterday, and she said she took a few days off, so she was going to enjoy the festival during that time.</p>
+<p>In addition, the students gathered and decided to attend the festival events they had each looked at in advance, so they were divided into several groups, and I decided to walk around with Otagi Yuka, Sakagami Rena, Saionji Diana, Urabe Konoka, and Naruse Shiyo, who were under my command.</p>
+<p>,But, Master. Why were you surprised earlier?</p>
+<p>,Sensei was surprised?</p>
+<p>,Sensei-nim? What's wrong?</p>
+<p>Ah, it seemed to be because of Takakusaki Athena's matter earlier. I was just going to pass it off as a misunderstanding, but everyone was curious, so I had no choice but to open my mouth.</p>
+<p>,You know that I'm a disciple of Fujigasaki Rinka, right? And you also know that Kujo Kina is afflicted with the Berserker curse, right?</p>
+<p>,Yeah, I know. Were those two things related?</p>
+<p>For reference, the students knew that Anya-ji was a group that went around casting curses because of the Berserker curse that Kujo Kina was afflicted with. In fact, I hadn't really explained the relationship between Anya-ji and our school, so Otagi Yuka asked as if she was curious.</p>
+<p>,That's actually....</p>
+<p>I told them that Anya-ji was a martial arts group founded by Takakusaki Gengo, who stole our school's martial arts, and that they were currently causing tremendous atrocities in the martial arts world.</p>
+<p>,So the Anya-ji group is like an enemy of Sensei-ssi's school?</p>
+<p>,That's right.</p>
+<p>,Then what's the reason Sensei-nim was surprised today?</p>
+<p>,I met a rather unique woman today....</p>
+<p>When I tried to start explaining at Saionji Diana's question, the reactions of the students who were listening were strange.</p>
+<p>,Woman? Another woman?</p>
+<p>,As expected of a hero, Master!</p>
+<p>,My dragon heart is pounding because Sensei-nim is meeting another woman...!</p>
+<p>Otagi Yuka looked at me with an expression that said, "You're amazing!" and Sakagami Rena had an expression that said, "I knew it~!"</p>
+<p>Naruse Shiyo looked at me with slightly empty eyes, and that look was quite scary. Besides, her dragon heart is pounding...! You don't have some kind of King Engine, so why is it pounding?</p>
+<p>The others just had expressions that said, "He's always like this." Hmm, when did my image become a Casanova? I haven't really taken the initiative to seduce anyone.</p>
+<p>,No, it's not what you guys are thinking... Listen.</p>
+<p>I waved my hand and explained so that the students' misunderstanding wouldn't get any bigger. The students then made embarrassed expressions when they realized they had misunderstood.</p>
+<p>,Ah, so the woman you happened to meet today had the same last name as Takakusaki Gengo, so you chased after her, but you were flustered because she had already disappeared?</p>
+<p>,That's right. But when I thought about it, there are plenty of people with the same last name, right? So I decided to just let it go.</p>
+<p>At my explanation, everyone nodded, saying, "That's right. There are plenty of people with the same last name...." Only Sakagami Rena didn't agree and raised her hand.</p>
+<p>,Still, I don't think it's a bad idea to check, Master!</p>
+<p>,How do I check? I can't just go and tail someone I don't even know who they are, knowing only their name.</p>
+<p>,No, Master's master has been chasing Anya-ji for months, so she knows the situation there well, right? You can contact Master's master and ask her.</p>
+<p>Ah, that's right. Why didn't I think of asking Fujigasaki Rinka? Everyone was looking at me with expressions that said, "Why aren't you calling?" so I called Fujigasaki Rinka on my phone.</p>
+<p>-What's wrong at this ambiguous time, Ryuta?</p>
+<p>It was four o'clock now, so it was an ambiguous time. But I often called around this time.</p>
+<p>It was also the time when I was off work, and as a disciple, I often called Fujigasaki Rinka to check on her at this time. Her voice was playful, so it seemed like she knew that, but she just wanted to play with me.</p>
+<p>,Master, I want to ask you something. It might be related to Anya-ji.</p>
+<p>-Anya-ji? Tell me, my disciple.</p>
+<p>Fujigasaki Rinka's atmosphere changed as soon as the word Anya-ji came out. The playful atmosphere from just now was gone, and it changed to a slightly angry and sharp atmosphere.</p>
+<p>,Does Anya-ji have Takakusaki Gengo's daughter? Not his biological daughter, but his adopted daughter. She uses the last name Takakusaki and looked to be in her early twenties. I was just wondering.</p>
+<p>-Takakusaki Gengo's daughter? Hmm... I haven't heard anything about him having a daughter. Even if she's an adopted daughter, if she's in her early twenties... hmm, if he raised her right after betraying our school, is that a possible age? It's a bit ambiguous. Probably not.</p>
+<p>I nodded at Fujigasaki Rinka's words. Judging by the fact that she said it was ambiguous because of the age range, it was likely not.</p>
+<p>-In fact, all I know about Anya-ji is that there are two protectors under Takakusaki Gengo, and there are four heavenly kings who can be said to be Takakusaki Gengo's direct disciples, and there is an organization under them. In particular, I still don't even know if one of the four heavenly kings is male or female, so I'm currently tracking them down.</p>
+<p>Protectors and four heavenly kings... Is he trying to create some kind of martial arts sect? Listening to this explanation, it seemed like Anya-ji's power was quite large. I need to be a bit careful about this?</p>
+<p>-Anyway, thanks for letting me know, and I'll look into it separately just in case.</p>
+<p>,Yes. Please let me know the results when they come out.</p>
+<p>-Ah, that's right. You're funny, you know?</p>
+<p>What funny thing did I do? I decided to ask what Fujigasaki Rinka thought was funny because I didn't know.</p>
+<p>,What is it?</p>
+<p>-I'm talking about the phrase written on your photo card. 'I'll approach you like falling cherry blossoms' Kyahahaha! Our disciple, huh? You're quite the romantic! Kyahahaha!</p>
+<p>No, I knew the photo card was coming out, but how did she even know about the phrase? My face turned red without me realizing it because I was being teased by my master like this.</p>
+<p>,I'm hanging up!</p>
+<p>When I was about to hang up the phone because I couldn't stand listening to Fujigasaki Rinka's teasing any longer, I heard a voice saying, "Wait a minute!" I wondered if there was something she hadn't said, so I didn't hang up and held the phone, and I heard Fujigasaki Rinka's laughter.</p>
+<p>-Kyahaha, you have to send me your photo card too, okay? You'll be in trouble if you don't send it to me!</p>
+<p>I thought she was going to say something important. I hung up the phone irritably.</p>
+<p>______________________</p>
+<p>Since there are no illustrations made today, I will upload the unreleased Demon Rinka illustrations that I made during the side story hehe</p>
+<p>Tsubu looks surprisingly good in martial arts-style clothes</p>
+<p>Somehow an illustration with a pretty boy feel hehe</p>

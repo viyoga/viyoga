@@ -5,78 +5,100 @@ weight = 630
 chapter = 630
 +++
 
-<p>I opened my Eyes, and it was Morning. How did I get back yesterday? As I replayed the intermittent memories that came to mind, I remembered Otagi Yuka carrying me on her back and bringing me into the room after we arrived Home. I must have immediately collapsed onto the bed and fallen asleep.</p>
-<p>Getting up and looking around, Otagi Yuka and Saionji Diana were asleep. Since I had said I would check their Abilities today anyway, it seemed they had slept at our Home.</p>
-<p>I carefully got up and left the room. Feeling a presence in the guest room as well, when I slightly opened the Door, Sakagami Rena, Konoe Akina, and Urabe Konoka were sleeping there.</p>
-<p>So, everyone slept at our Home. It's good that I don't need to call them again.</p>
-<p>Yesterday I was quite tired, but today, after a deep Sleep, my stamina seemed to have recovered. Thinking about it now, Nagumo Sian probably couldn't control the Bedroom Arts she recently started learning, and absorbed a large amount of my Yang Energy. If not for that, I wouldn't be this tired.</p>
-<p>I put a lot of Bread slices into the oven, then set the timer, and sat on the living room sofa and turned on the TV.</p>
-<p>**-News reports that the New Nanjing City recapture Operation began this Dawn. The South China government, which had been contemplating the treatment of people who had become Zombies, ultimately established the principle of 'kill on Attack, isolate and Chiryo if not attacking'....**</p>
-<p>'Kill on Attack' means they're going to kill everyone, doesn't it? Is it because the population is hundreds of millions that ten or twenty million aren't seen as mere numbers? It's practically saying they'll kill all the zombified people in New Nanjing City.</p>
-<p>In fact, from what I've seen through several Regression runs so far, there's no mention of a Chiryo for this cyber Zombie virus, so to recapture New Nanjing City, the cyber Zombies inevitably had to be eliminated.</p>
-<p>My thought was that even with cyber implants, they're still fundamentally People, so if they just waited about a month, everyone would starve to Death, then they could just clear the Corpses, so was there really a need to dirty their own Army's Hands?</p>
-<p>Even in the game before my Possession, I had seen Entry into New Nanjing City after the cyber Zombies starved to Death once or twice, so this current Choice was quite regrettable. Or is there a Reason to enter now? Surely it's not because of me, is it?</p>
-<p>Even as I thought, 'Is it because of me?', the News continued, but this time it was even more ominous News.</p>
-<p>**-The South China government has deployed its Army to the North China border region. Due to the North China extremist Terror group, the Red Revolution Front, as most of New Nanjing City has died or been infected, the anti-North China sentiment among the South China People is greater than ever before. There are rumors that North China is supporting Terror groups, but the North China government is denying it....**</p>
-<p>Indeed, although the Red Revolution Front, which caused this incident, is an illegal Terror group, because it is ultimately a 'North China' Terror group, anti-North China sentiment among the South China People has grown more than ever. Ultimately, this flows like a prelude to War, but as World War III ended just 8 years ago, in the game, only Tension flowed, and it didn't lead to War.</p>
-<p>But now, perhaps because of my intervention, the New Nanjing recapture Operation is starting early, so I couldn't guarantee that a War wouldn't break out. I'll have to see how the Situation unfolds.</p>
-<p>Dding!</p>
-<p>As I was watching the News, the alarm from the oven, where I was heating toast, rang, indicating time was up. As if they heard the alarm, the Doors of my room and the guest room opened, and the special class Students came out one by one.</p>
-<p>"We're going to eat breakfast right away, so at least Wash Face and come."</p>
-<p>I turned off the TV and went to the kitchen, speaking to the special class Students who had woken up. Then I took the toast out of the oven, fried Bacon and eggs, took out jam, whipped cream, and butter, and took out orange juice and Milk.</p>
-<p>Even the deliciously golden-brown fried Bacon and eggs were placed on the Dining table in a vessel, and the Students who had quickly washed up sat at the table.</p>
-<p>"Haam~! Teacher-ssi, yesterday you completely Fainted, but you woke up early today?"</p>
-<p>"Indeed. Was my Condition not so good yesterday? I felt a bit tired."</p>
-<p>"I'll eat well, Teacher-nim. You worked hard since Morning."</p>
-<p>"It's a very appetizing breakfast, Liege."</p>
-<p>We enjoyed Morning while Chatter. It was a simple Morning of Bread, eggs, and Bacon, but it was quite edible.</p>
-<p>When everyone went to wash up after finishing the Meal, while I finished Dishwashing and everyone was drying their Hair, I also took a Shower. Since it was late November now, I couldn't wash with cold Water anymore, so I showered with warm Water, and the Feeling of my Muscles relaxing in the warm Water was quite pleasant.</p>
-<p>After finishing my Shower and shaking my Head dry as I came Outside, everyone was sitting in the living room, waiting.</p>
-<p>"Just wait a Moment. I'll just dry my Hair and come out."</p>
-<p>"No, we'll dry it for you, so please come here."</p>
-<p>As if she had already thought of drying my Hair, Konoe Akina was shaking a hairdryer and Smiling. If they dry it for me, it's convenient for me. I didn't refuse and sat in the middle of the sofa that the Students had left empty.</p>
-<p>"I'll dry it for you quickly~!"</p>
-<p>Uwoong~!</p>
-<p>As Konoe Akina turned on the hairdryer, no less than five Hands simultaneously began to ruffle my Hair. The mischievous special class Students sitting around had each placed their Hands on my Head. Naturally, with several Hands ruffling my Hair, the Dewy Moisture dried quickly, but my Hair became a mess.</p>
-<p>"Hey, what is this?"</p>
-<p>"Ahahaha! Teacher-ssi's Hair is funny~!"</p>
-<p>"It'll be fine if I comb it for you, Teacher-nim."</p>
-<p>Konoe Akina gently combed my Hair with a comb. After Dyeing my Hair, I had been wearing it swept back for an Image transformation, but with my Hair combed down like this, I felt like the usual Taira Ryuta before the Dyeing.</p>
-<p>"Oh, covered Ryuta looks quite good?"</p>
-<p>"When I didn't dye my Hair and didn't tan my Skin, I used to wear my Hair down like this."</p>
-<p>"Liege, I'm curious about your Appearance before the transformation~!"</p>
-<p>"That's right, Teacher-nim. I want to see it!"</p>
-<p>Except for Otagi Yuka, Konoe Akina, and Urabe Konoka, everyone else had met me at St. Francis Girls' academy, so Sakagami Rena and Saionji Diana were curious about my old Appearance.</p>
-<p>"Just a Moment...."</p>
-<p>Since Students who didn't know my True Identity might see them, all my old Photos or Photos that could hint at my True Identity were kept in a secure folder, so they could only be viewed by entering a separate Password. I unlocked the Password and showed them to the Students who said they were curious.</p>
-<p>"This is... good tooo♥"</p>
-<p>"Perhaps because his Skin is white, he gives off more of a cold handsome man vibe."</p>
-<p>Whether white Skin and black Hair were also their Preference, they seemed quite delighted as they admired my Photos. While the Students were admiring my Photos, I went into the room and retrieved the Ruins' Glasses.</p>
-<p>"Who should I check first?"</p>
-<p>"Please check me first, Teacher-nim."</p>
-<p>As if the Students had already discussed it among themselves in response to my Question, Saionji Diana raised her Hand. I had only seen Saionji Diana before her cyber implant surgery. She probably leveled up quite a bit, and I was most curious about it too.</p>
-<p>Since the Order didn't matter anyway, I should check Saionji Diana first. I put on the Ruins' Glasses and focused my Mind while looking at Saionji Diana's Face.</p>
-<p>**◆Name: Saionji Diana (Saionji Tsukimegami) Lv12**</p>
-<p>**Stats**</p>
-<p>**Physical Body** **Power:6(+14) Agility:12(+14) Stamina:11 Resistance:5(+14) Recovery:4 Sensitive Nerves:12(+5) Appearance:15**</p>
-<p>**Mind** **Intelligence:6 Knowledge:6 Concentration:8 Will:11 Creativity:4 Charm/Allure:14 Judgment:8(+5)**</p>
-<p>**Other** **Luck:3 Cyber Implant Battery:(Arm: 85%)(Legs: 83%)**</p>
-<p>**Skills** **◆Saionji Style (西園寺流) (Narrative Swordsmanship Lv12)** **◆Management [General Skill Lv8]** **◆Riding [General Skill Lv5]** **◆Accounting [General Skill Lv8]** **◆Linguistics [General Skill Lv12]** **◆Tea Ceremony [General Skill Lv7]** **◆Wind Blade Art (風刃術) [Unique Swordsmanship Lv7]** **◆Dark Merchant Firearm Combat Art [Rare+ Marksmanship Lv6]** **◆Wind Reconnaissance [Narrative Skill Lv1]**</p>
-<p>**Modifications** **◇Machine Modification-Arm Implant EVE Special Modification Model [Unique Modification]: A special model created by the Dark Merchant's AI Android Eve for Saionji Diana. Superpower usage possible.** **◇Machine Modification-Leg Implant EVE Special Modification Model [Unique Modification]: A special model created by the Dark Merchant's AI Android Eve for Saionji Diana. Superpower usage possible.**</p>
-<p>**Traits** **◆Swordsmanship Genius [Growth Narrative Trait]: Can easily learn Swordsmanship. Depending on Effort, the Trait can change to one of Swordsmanship Master/Seongin/Choin.** **◆Master's Sensation [Narrative Trait]: Detects Killing Intent, Opponent's presence, or Will with excellent Sensation. Agility Stat receives a bonus the Moment Killing Intent is felt.** **◆Predator of the Battlefield [Narrative Trait]: Senses the flow of battle well. In combat situations, if there are Colleagues, Judgment and Concentration Stats receive a significant bonus.** **◆Kamaitachi's Dance (かまいたち) [Unique+ Trait]: Maximum agility and sensitive nerves, stats increase by 1, and when using a blade, you can use Wind Blade (風刃: Wind Blade).** **◆Sword and Gun Stance [Unique Trait]: Applies the Trait with the higher combined Grade among Sword and Firearm Traits that can be applied when using a Sword. Traits with lower combined Grades are not applied.** **Applies the Trait with the higher combined Grade among Sword and Firearm Traits that can be applied when using a Firearm. Traits with lower combined Grades are not applied.** **◆Wind Affinity [Unique Trait]: Wind Attribute Skills and Traits Effect increases by 130 percent, and damage taken from Wind Attribute Skills is reduced by 70 percent. Can better grasp Surroundings with Wind Sensation.**</p>
-<p>"Oh...!"</p>
-<p>I was surprised without realizing it. Although it had been quite a while since I last saw Saionji Diana's Status Window, to have leveled up 4 times! That's amazing, isn't it? She seemed to have worked hard during that Time. Since she had followed me and participated in several battles, and there was this Zombie incident, it was impossible for her not to Level up.</p>
-<p>Her Stats were greatly boosted thanks to the cyber implants. Just looking at her Stats, she'd be stronger than me. Due to the nature of cyber implants, even if the total exceeds 20, a Limit Break isn't possible, but since there were almost no Characters who could achieve a Limit Break anyway, it wasn't a major disadvantage.</p>
-<p>Two new Skills had appeared: Dark Merchant Firearm Combat Art and Wind Reconnaissance. Since Saionji Diana had been abandoned by her Family, it seemed she had received the new Firearm Skill from Eve. And Wind Reconnaissance was clearly a Skill Sawayanagi Seari possessed, but seeing that its Level was 1, it seemed she had just learned it at this Fellowship meeting.</p>
-<p>What was important were the Traits, and I don't know how both of the two recently acquired Traits ended up being Unique Grade, given Saionji Diana's Luck of 3. As expected of their high Grade, both were good Traits, but especially Sword and Gun Stance was an incredibly overpowered Trait.</p>
-<p>If all Traits are focused on Sword or Firearm Traits, and this Trait is acquired, it's a Trait that allows one to handle both Guns and Swords at a similar Level. The disadvantage is that if Firearm and Swordsmanship Traits are present together, the Trait with the lower combined Grade is not applied, but this can be solved by focusing on one side.</p>
-<p>Taking Saionji Diana as an example, both Swordsmanship Genius and Kamaitachi's Dance, which are Swordsmanship-exclusive Traits, were applied even when she held a Firearm. It was almost regrettable that she didn't have many Swordsmanship Traits.</p>
-<p>If only Swordsmanship Traits appear as she Levels up in the future, she will be able to become a Person excellent in both Swords and Firearms. Of course, since this Sword and Gun Stance only applies to Traits, she needs to learn Skills that can utilize Firearms, but Saionji Diana herself instinctively felt this and was learning Dark Merchant Firearm Combat Art.</p>
-<p>The second Trait, Wind Affinity, was an unconditionally good Trait for Characters using Wind Attributes, like a Gukbap Trait. Although she only had Traits and Skills like Kamaitachi's Dance and Wind Blade Art, it was still quite useful.</p>
-<p>"You've grown well during that Time, haven't you?"</p>
-<p>"Really?"</p>
-<p>At my Words, Saionji Diana brightened and said. Although her Eyes were hidden by her Hair, I felt like she wanted Praise, so I stroked her Head.</p>
-<p>"Write it down if you want to. I'll read it out for you."</p>
-<p>I began to read the Status Window that had appeared before my Eyes to Saionji Diana.</p>
-<p>_________________</p>
-<p>Today's protagonist of Stats, Saionji Diana~!</p>
+<p>"Eugh...!"</p>
+<p>A groan escaped me without my knowing. Yesterday, while choosing photos at the Dating Experience Club, we had a heated debate until 12 AM to pick a hundred photos out of thousands, which left me mentally exhausted.</p>
+<p>Of course, it wasn't just that. Otagi Yuka, Sakagami Rena, and Saionji Diana said it was late and just stayed over at my place, and we ended up having an all-night naked free-for-all until dawn, so the mental and physical fatigue combined, causing me to let out a groan of exhaustion as I woke up.</p>
+<p>Unlike me, who was suffering from my own kind of fatigue, the three carefree naked students were sleeping soundly with peaceful expressions, perhaps due to the characteristics of the Sacred Pillar.</p>
+<p>"Everyone, wake up. You need to get ready for school."</p>
+<p>"Uuuuh... Teacher-ssi, hmmm♥ There's too much milk...! It won't all fit in the bottle..."</p>
+<p>"Give me a break... Like a hero, quickly get a new woman...!"</p>
+<p>"Teacher, this time... please do it without the legs♥"</p>
+<p>Listening to what might be sleep-talking or demands disguised as sleep-talking, I pulled off the blanket covering the three of them. I wondered if I was their mom, having to wake them up like this, but I let it slide because they were all cute.</p>
+<p>"Oh, what...? Is it morning already?"</p>
+<p>"Haaam...! Did you sleep well, Jugun-sama?"</p>
+<p>"Kyaa...!"</p>
+<p>All three of them had different reactions upon waking up.</p>
+<p>"You need to get ready for school."</p>
+<p>"That's right, today is Friday, isn't it?"</p>
+<p>"I'll make breakfast, Jugun-sama."</p>
+<p>"I, I'll help with breakfast too!"</p>
+<p>Since the students' school start time was later than the teacher's work start time anyway, these three had more time to spare than I did. I left the breakfast preparation to the three of them and went to wash up.</p>
+<p>After loosening my muscles, which had been used until dawn, with hot water and taking a shower, French toast and coffee were prepared. The only difference from others was that the three students' plates had two or three slices of French toast, but my plate had a mountain of toast piled up. This is at least thirty slices, isn't it? At this point, it's not breakfast, it's cow feed!</p>
+<p>"How much of a food fighter do you guys think I am?"</p>
+<p>"You used a lot of energy yesterday, so you need to eat this much!"</p>
+<p>"That's right, eat a lot like a hero, Jugun-sama!"</p>
+<p>"I made the coffee."</p>
+<p>Since they told me to eat a lot, I'll eat a lot... I nodded and started breakfast. French toast is delicious when it's sweet. After finishing breakfast (I left about 10 slices), I finished getting ready for work while the students went to wash up.</p>
+<p>"I'm going to school first, so lock the door properly when you come."</p>
+<p>Everyone was in the middle of washing up, so there was no response, but I left the house. I arrived at school and sat down in the teacher's prep room for a while, and I saw the special class students entering the classroom with zombie-like expressions. Well, they were in the club room until after 12, so they must be tired.</p>
+<p>After some more time passed, just before checking for tardiness, Otagi Yuka, Sakagami Rena, and Saionji Diana, who were talking and laughing as they entered, waved their hands as they passed in front of the teacher's prep room.</p>
+<p>"Teacher-ssi~!"</p>
+<p>"Jugun-sama!"</p>
+<p>"Teacher~!"</p>
+<p>Only those three were full of energy. The Sacred Pillar trait must be a scam.</p>
+<p>###</p>
+<p>"What are we doing today?"</p>
+<p>I arrived at the club room, having narrowed down the photos to 100 until late yesterday, so I asked Minamoto Risa what we were doing today.</p>
+<p>"Today, we're just choosing the coating paper for the photo cards and the photo card design... Oh, and I need the teacher's handwritten message and signature, so please write a message in each of these spaces."</p>
+<p>No, I'm not a celebrity, so why do I need a message or signature? Since there are a hundred types of photos, there are also a hundred types of cards, so I had to write a hundred types of messages.</p>
+<p>"I don't even remember the last time I wrote something by hand..."</p>
+<p>"Still, do your best."</p>
+<p>When I grumbled, Minamoto Risa chuckled and spoke as if she were appeasing a disobedient son. Looking at the hundred printed messages made me feel like the French toast I had in the morning was coming up. From the beginning, there was a cheesy line that made my stomach churn, saying, "I love you (in Korean)" means I love you.</p>
+<p>I was about to ask if I really had to write this, but when I looked at Minamoto Risa, Minamoto Risa and the other special class students were already having a heated debate about the photo card design. If I said the message was weird again, it seemed like all the blame would fall on me, so I just endured my upset stomach and decided to write.</p>
+<p>Still, it was kind of fun to write by hand after a long time. Surprisingly, when I focused on writing, my handwriting wasn't bad. Well, since I'm a martial artist, my hand senses weren't bad.</p>
+<p>Jii....</p>
+<p>As I was writing, I felt someone's gaze and looked up. There, Alik was quietly watching me write. By the way, shouldn't Alik be going to the Cheongsim Hall? Why is he still in our club room?</p>
+<p>"Alik, aren't you going to the Cheongsim Hall today?"</p>
+<p>"Um... Cheongsim Hall is also preparing for the festival."</p>
+<p>"What is Cheongsim Hall doing?"</p>
+<p>"Edo period-style teahouse?"</p>
+<p>Ah, they're running a teahouse decorated with an old-fashioned feel. It was a festival event selection that suited the Cheongsim Hall, which trains in Japanese traditional martial arts. I should stop by on the festival day.</p>
+<p>"Doesn't Alik have to help with the Cheongsim Hall preparations?"</p>
+<p>"Alik is... a baby."</p>
+<p>"Huh?"</p>
+<p>Alik was cute to anyone who looked at him, but he wasn't a baby. When I looked at him as if I was puzzled, Alik opened his mouth as if he was frustrated.</p>
+<p>"The club president said Alik is a baby, so he's going to be the mascot on the festival day."</p>
+<p>"No, if you shorten 'Alik is a baby' to 'Alik is a baby,' I won't understand."</p>
+<p>"Um..."</p>
+<p>Thinking about Alik working as the Cheongsim Hall mascot on the festival day made him seem cute. I smiled and stroked Alik's head and started writing the message again. Alik kept looking at me, so I held up the pen to Alik.</p>
+<p>"Should I write something for Alik too?"</p>
+<p>"...Um."</p>
+<p>Hmm... What should I write? After thinking for a moment, I handed Alik a message that said, "Alik is a cute baby." Alik's cheeks flushed slightly as he hugged the paper with the message written on it tightly, as if he liked it very much.</p>
+<p>"If you're not bored with watching, watch. If you get bored, you can help me choose the photo card design over there."</p>
+<p>"Um."</p>
+<p>I focused on writing the message again. For reference, the one I'm writing now is, "Can you give me directions? The way to your heart." Ugh... So cheesy. I should eat some kimchi for dinner today.</p>
+<p>"Ahaha! Ryuta-cchi, what is this?! Alik, isn't it funny too?"</p>
+<p>Seizawa Shii, who had lost her concentration for a moment, was wandering around and started laughing loudly as she looked at the messages I wrote.</p>
+<p>"I'm just writing what's written here, so I don't know anything."</p>
+<p>"Ahaha! Still, the person who receives this would be happy, right?"</p>
+<p>"Should I write a message for you too, like Alik?"</p>
+<p>"You wrote a message for Alik?"</p>
+<p>When Seizawa Shii asked, Alik proudly showed off the message that said, "Alik is a cute baby." Seizawa Shii was looking at it with a very envious expression for some reason.</p>
+<p>"Do you have a request message?"</p>
+<p>"Um... no. Ryuta-cchi, write whatever you want."</p>
+<p>As per Seizawa Shii's request, I thought for a moment and wrote, "An encounter at the laundromat. Shall we meet there again?" and handed it to Seizawa Shii.</p>
+<p>Because there were several things that happened between me and Seizawa Shii at the laundromat, Seizawa Shii's face turned red after receiving my handwritten message. Hehe... I can write this much too.</p>
+<p>"Do you like it?"</p>
+<p>"Ugh... just you wait!"</p>
+<p>Does that mean she doesn't like it? Or does it mean she wants to see me at the laundromat again? I don't know. For now, there were quite a few messages left, so I stopped paying attention to Seizawa Shii, who had run away, and started focusing on writing by hand again.</p>
+<p>As I wrote, I got the hang of it and the speed gradually increased, so it didn't take long to finish. As I put down the pen after finishing the last message, "I learned to swim. To avoid falling for you," everyone was looking at me.</p>
+<p>"Teacher, why did you only write personal messages for Shii and Alik? Write one for us too!"</p>
+<p>Kujo Kina shouted at me, saying not to show favoritism. Is doing this cheesy stuff favoritism too? I had no choice but to write a cheesy line for each of the students gathered in the club room. Everyone seemed satisfied because I wrote the messages with events that each student had in mind.</p>
+<p>"By the way, have you decided on the photo card design?"</p>
+<p>I asked Minamoto Risa, who couldn't hide her happy feelings after receiving the message I wrote, thinking about the date I had with Minamoto Risa where we flew in the sky, "Let's meet again in our sky," and she nodded.</p>
+<p>"We're going to make it in Polaroid form with your message. Since the Polaroid format has space under the photo, I think we can put the message there. I'm wondering if we should use a prism glitter coating or just a regular glossy coating. Since the design is decided, we should make samples of both coatings and choose after seeing them in person."</p>
+<p>Polaroid format... It wasn't a bad choice. There's a reason why classics sell well.</p>
+<p>"Then is it over for today?"</p>
+<p>"You, Konoe, and I are required to go to the photo card production company to check the samples."</p>
+<p>The club president, vice president, and advisor teacher still had work left. It was a bit annoying, but I couldn't help it.</p>
+<p>"It's over for today, and we're going to make samples. Anyone want to come with us?"</p>
+<p>"Me!"</p>
+<p>"I want to go too~!"</p>
+<p>Minamoto Risa said that the more opinions, the better, and recruited volunteers to go to the photo card production company with her. Everyone decided to go together except for Kujo Kina, Naruse Shiyo, and Alik, who had to train at least a little bit every day.</p>
+<p>"You have to let me know what you decided on?!"</p>
+<p>"Alik wants to see it too."</p>
+<p>"Please send me the selected sample too~!"</p>
+<p>"Okay, go and train quickly."</p>
+<p>We said goodbye to the three training musketeers who were lingering because they wanted to go with us, and we called a few taxis and moved to the production company.</p>
+<p>______</p>
+<p>Alik is.... a baby.</p>

@@ -5,113 +5,96 @@ weight = 717
 chapter = 717
 +++
 
-<p>On the day I signed the ISIS acquisition contract with Choi Kyu-hyun, I returned straight to Han Yu-gyeong's apartment and was checking her stats with the relic glasses. I originally planned to do it as soon as I arrived in Korea, but we were so hot for each other that we only had sex when we were alone, and the rest of the time I was busy with TG Tech, which I had been putting off, so I could only check it today.</p>
-<p>It's been a while since I've seen Han Yu-gyeong's stats, partly because of the battle event to eliminate the Yongcheol Faction, and she's leveled up twice.</p>
-<p>"Oh.... You've leveled up twice."</p>
-<p>"Really?"</p>
-<p>"Yeah."</p>
-<p>Han Yu-gyeong Level 13</p>
-<p>Strength: 5 Agility: 5 Stamina: 10 Resistance: 6 Recovery: 2 Nerves: 6 Appearance: 18(+1)</p>
-<p>Mental</p>
-<p>Intelligence: 17(+1) Knowledge: 12(+1) Concentration: 14(+1) Willpower: 14(+1) Creativity: 12(+1) Charisma: 17(+2) Judgment: 15(+1) Charisma: 17(+2)</p>
-<p>Other</p>
-<p>Luck: 18</p>
-<p>Since you leveled up twice, your physical stats increased by one each for stamina and resistance, and your mental stats increased by one each for knowledge, concentration, and judgment.</p>
-<p>Knowledge is a stat that increases when you directly obtain information, so it seemed like the other increased stats were obtained through leveling up.</p>
-<p>"Ah, is that so?"</p>
-<p>When I told Han Yu-gyeong her stats, she modified her stats recorded on her smartphone. Hmm.... Han Yu-gyeong checked her stats, wondering how they increased like this. Judging from the fact that she was recording which stats increased with each level up, it seemed like she was trying to figure out if there was a formula.</p>
-<p>"Should I tell you about the skills first? Or should I choose a trait first?"</p>
-<p>"I checked my stats, so I'll check the skills too."</p>
-<p>If it were me, I would choose the trait that would give me more dopamine first, but Han Yu-gyeong was a little different. It seemed like she was the type to check and organize what she had first.</p>
-<p>Skills</p>
-<p>◆Learning Lv16 [General Skill]</p>
-<p>◆Management Lv13 [Special Skill]</p>
-<p>◆Throwing Lv12 [General Skill]</p>
-<p>◆Linguistics Lv13 [General Skill]</p>
-<p>◆Star Magic Lv11 [Unique Legacy+ Skill]</p>
-<p>◆Command Lv6 [Rare Skill]</p>
-<p>◆Knowledge of the Demonic Path (魔道知識) Lv3 [Epic Skill]: Understanding of those who have walked the Demonic Path (魔道). The more you learn, the greater the positive impact on your magic.</p>
-<p>There were considerable changes in the skills as well. The levels of the original skills increased, and the Linguistics skill, which was divided into Linguistics - English and Linguistics - Japanese, was merged into one.</p>
-<p>Usually, when you learn three languages ​​excluding your native language, they are merged into Linguistics. It seemed like she was learning one more language from another country. I wonder which country's language she learned.</p>
-<p>And a skill called Knowledge of the Demonic Path appeared, but since Han Yu-gyeong is a magician class, it seemed like she naturally acquired the skill while using magic.</p>
-<p>"Did you learn anything new abroad?"</p>
-<p>"Ah, I'm studying Chinese and Spanish these days."</p>
-<p>She was busy with business, but she was studying two foreign languages ​​at the same time. As expected of the top student at Korea University. Maybe that's why her knowledge stat increased by one.</p>
-<p>"I asked because Linguistics skills are usually merged from three foreign languages. Before, English and Japanese were separated."</p>
-<p>"Ah, really? I didn't know that."</p>
-<p>"And a new skill has appeared. It's called Knowledge of the Demonic Path...."</p>
-<p>I read the explanation about Knowledge of the Demonic Path to Han Yu-gyeong and checked the levels of the remaining skills. As expected, Han Yu-gyeong modified her skill levels according to my explanation and recorded the newly created skill.</p>
-<p>"Did you buy and read some old books about magic or sorcery on the dark web, so you got Knowledge of the Demonic Path?"</p>
-<p>"Did you buy and read those too?"</p>
-<p>"Since I'm a magician, I wanted to know a little more...."</p>
-<p>As expected, it was an excellent student's answer. I also train or exercise every day, but Han Yu-gyeong also has a business, learns new foreign languages, and does well in university classes, and even learns about magic. I was once again impressed by how great Han Yu-gyeong is.</p>
-<p>"Then shall we check the traits now?"</p>
-<p>"Yeah!"</p>
-<p>Please select a trait</p>
-<p>①Eye of Exploration ②Summon Minions ③Master of Quick Draw</p>
-<p>"Did something good come up?"</p>
-<p>She asked me with curiosity as I looked at Han Yu-gyeong's trait selection window.</p>
-<p>First of all, the Eye of Exploration is a trait that allows you to identify traps or find hidden vaults or hidden rooms when searching somewhere, so it was a trait that was more suitable for Arisu or Nae Fitzgerald, who are doing Phantom Thief Francois, than for Han Yu-gyeong, who is a mage/summoner character.</p>
-<p>The second, Summon Minions, was a trait that summoned contracted minions to your surroundings, and it was a surprisingly useful skill as a utility. You can release the minions more freely, and in a crisis, you can summon them with Summon Minions, which has the advantage of increasing survivability and broadening the range of handling minions.</p>
-<p>The last, Master of Quick Draw, is a trait that makes you a master of quick draw as the name suggests, but Han Yu-gyeong had no swordsmanship traits at all, so it was a completely useless trait.</p>
-<p>"In the end, there's only Summon Minions, right?"</p>
-<p>"Yeah, if I have this, I can summon the kids anytime."</p>
-<p>Except for the Star Spirit Seong Baek-gyeon White Bear, who can blink, Han Yu-gyeong had no or limited return function, so it was quite useful.</p>
-<p>The Shadow Panther Nero can quickly return to Han Yu-gyeong by moving through the shadows, but it took a lot of time compared to the Summon Minions trait, and the Grizzly Spirit Teddy had to go far and return on his own.</p>
-<p>"Then I'll choose Summon Minions."</p>
-<p>◆Summon Minions [Unique+ Trait]: Summons minions contracted with you. This summons ignores spatial constraints.</p>
-<p>The grade was quite high for a trait that summons minions, but this was because the condition that it ignores spatial constraints was attached.</p>
-<p>With this, Han Yu-gyeong could also work as an excellent assassin.</p>
-<p>After sending the minion, if the minion deals with the target, you can bring it back with Summon Minions, so you can prove your alibi, and if you are attacked by Nero or Teddy, anyone would think that the wound was caused by a wild animal.</p>
-<p>"Tada!"</p>
-<p>-Woong~?</p>
-<p>When Han Yu-gyeong called Teddy, who was in the living room, the large grizzly spirit that suddenly appeared in front of her was surprised and looked at Han Yu-gyeong and me. Bears usually don't show their expressions well, but Teddy was making a face that said, 'What's going on?'</p>
-<p>"Ahaha! Teddy is so cute~!"</p>
-<p>Han Yu-gyeong hugged the surprised Teddy tightly and made a fuss about how cute he was. After hugging Teddy for a while, Han Yu-gyeong sent Teddy back to the living room. Teddy opened the door with a sense and went out to the living room.</p>
-<p>"I can't send him back to his original location."</p>
-<p>"Then the trait name wouldn't be Summon Minions."</p>
-<p>"I guess...."</p>
-<p>If you could freely move minions around with spatial movement, it would be a cheat trait. You could get that as a space-type trait, not a summon-type trait, but as far as I remember, there was no such trait.</p>
-<p>"Let's choose the next trait!"</p>
-<p>Han Yu-gyeong seemed quite happy with this trait and nodded with a smile, urging me to choose the next trait. Because she leveled up twice, she could choose a trait one more time.</p>
-<p>I have to use the wish-fulfilling orb to get a good trait, but Han Yu-gyeong's luck stat is so high that she gets good traits often.</p>
-<p>Please select a trait</p>
-<p>①Trait Selection X Random Item Acquisition ②Owl's Eyes ③Starlight Veil</p>
-<p>"How is it?"</p>
-<p>"Just a moment...."</p>
-<p>Han Yu-gyeong asked me impatiently as if she was curious, but I had to read it first, so I silenced Han Yu-gyeong for a moment. First of all, Random Item Acquisition is too random, so I skipped it, and the Owl's Eyes trait was a trait that Mimata Chieri has, and it was a pretty good trait that improves eyesight and allows you to see well even at night.</p>
-<p>But the Starlight Veil that appeared last is the first time I've seen it...? Maybe Han Yu-gyeong is a Star Magic user, so this trait appeared.</p>
-<p>"I think you can choose either Owl's Eyes or Starlight Veil."</p>
-<p>"You can buy items with money, so...."</p>
-<p>One of Han Yu-gyeong's criteria for choosing a trait was not to choose something that could be solved with money, so I expected that she would not choose Item Acquisition.</p>
-<p>"You can buy night vision goggles or binoculars for Owl's Eyes, so I'll choose Starlight Veil."</p>
-<p>"Okay. I thought Starlight Veil would be better than Owl's Eyes too."</p>
-<p>According to Han Yu-gyeong's choice, I chose Starlight Veil.</p>
-<p>◆Starlight Veil [Unique Trait]: A trait that can only be obtained by those with the Blessing of the Stars trait. Surrounds the caster with a starlight veil, increasing all mental stats by 2 and treating the surrounding environment as 'Starry Night'. ON/OFF trait.</p>
-<p>Starlight Veil was an on/off trait like my Holy Pillar, but it was a trait that was not understood with this trait alone. It can be said that it is treated as a starry night, but if you look at the Blessing of the Stars trait, which is a prerequisite for Starlight Veil, you can understand it immediately.</p>
-<p>◆Blessing of the Stars [Unique Trait]: A trait that can only be obtained by Star Magic users. Star Magic's power is increased by 50 percent and mental power consumption is reduced by 30 percent on starry nights. Concentration, Willpower, Judgment, and Luck stats are increased by 2.</p>
-<p>It was a trait that allowed you to always obtain the 50 percent increase in Star Magic power and 30 percent reduction in mental power consumption that you can only obtain on starry nights with the Blessing of the Stars, and pumped up your mental stats.</p>
-<p>"...That's the kind of trait it is."</p>
-<p>"Ah, it's a trait that's linked to something? Then shall we turn on this thing called Starlight Veil?"</p>
-<p>Han Yu-gyeong seemed to understand immediately at my explanation and asked me if she should turn it on. It was an on/off trait, so she said she would turn it on, and I nodded because I was also curious.</p>
-<p>"Yeah, I'm curious."</p>
-<p>Han Yu-gyeong seemed to concentrate for a moment, and then a dark blue aura appeared around Han Yu-gyeong, and light began to sparkle like starlight from that aura. Hmm, it's pretty because of the light, but it's so obvious in this way. This is a phenomenon that anyone can tell is a psychic, so it's a bit difficult to use it normally.</p>
-<p>I can use it in front of people I trust or when I have to eliminate all the enemies I'm dealing with. Or when I need to look pretty....</p>
-<p>"It's pretty. You look like a fairy because of the starlight."</p>
-<p>"Ehehe.... Is it really pretty?"</p>
-<p>"Yeah."</p>
-<p>Han Yu-gyeong was embarrassed and happy at the same time at my compliment. As expected, even pretty girls don't get tired of compliments about their appearance. It was true that she looked prettier when she turned on the Starlight Veil. According to the explanation, mental stat +2 is attached when you turn on the Starlight Veil, so it seemed like it was because the charm stat went up because of that.</p>
-<p>"But I shouldn't turn it on normally. It seems like it consumes a little mental power."</p>
-<p>"It's too obvious too."</p>
-<p>"I guess so."</p>
-<p>After finishing talking about the traits with Han Yu-gyeong, we got up from our seats. It was because we were going to have dinner with Han Yu-gyeong's mother, Ha Ju-yoon. I checked the traits to spend some time with Han Yu-gyeong before dinner.</p>
-<p>"I was so interested in seeing my status that I'm going to be a little late."</p>
-<p>"I guess so. I didn't realize how time was passing."</p>
-<p>When I checked the time, it was quite tight. But since we had all the preparations done and checked the stats and traits, we went straight outside and headed to the high-end restaurant that Ha Ju-yoon had reserved. The restaurant was a nearby high-end fusion Japanese restaurant, and she had reserved a room so we could talk among ourselves.</p>
-<p>When we arrived at the restaurant and entered the room, an unexpected person was sitting next to Ha Ju-yoon.</p>
-<p>"Nephew~! Why are you so late?"</p>
-<p>"Nae-gomoni (aunt)?"</p>
-<p>Nae Fitzgerald was smiling brightly and waving her hand at me. I knew she was supposed to arrive in Korea tomorrow, but why is Nae Fitzgerald sitting next to Ha Ju-yoon now?</p>
-<p>______</p>
-<p>I made the home room teacher SD character from the Alik and home room teacher SD characters requested by Munyeom-nim a few days ago ㅎㅎ</p>
-<p>It's difficult to make the home room teacher's unique slit eyes when making it in SD ㄷㄷ</p>
+<p>Like any prestigious family, the Tairaga had a tradition of gathering all members for the New Year, but I, being on a secret infiltration mission, couldn't go to the Tairaga main house.</p>
+<p>So, for the New Year of 2054, I planned to bring my mother, Jinmija Yeosa, and meet relatives in Korea. I figured I'd be too busy in the future, and might not be able to meet relatives next year or the year after, so I wanted to meet my maternal relatives now, since I couldn't attend the Tairaga's New Year gathering anyway.</p>
+<p>My deceased maternal grandfather was a first-generation Korean resident in Japan, and his siblings were in Korea, so most of my relatives were in Korea. Jinmija Yeosa was an only child, so she didn't have any relatives in Japan, and she was quite pleased when I suggested meeting relatives in Korea. It must have been because she could see her uncles, aunts, and cousins whom she hadn't seen in a while.</p>
+<p>When I told Han Yu-gyeong about it, she said she wanted to meet Jinmija Yeosa, so I coordinated the schedule.</p>
+<p>The Han family of the Shin-gang Group also had a tradition of gathering for the New Year and having a family meal, like the Tairaga, so I decided to see Han Yu-gyeong after January 1st.</p>
+<p>Jinmija Yeosa was also busy running the Hatake Investment Company that I had entrusted to her, so she couldn't stay long. Of course, I also had school starting in the second week of January, so I was planning to return to Japan with Jinmija Yeosa around January 3rd.</p>
+<p>,Mother is coming tomorrow, right?</p>
+<p>,Yeah.</p>
+<p>December 31st, the last day of 2053, the year I possessed this world. I was lying in bed with Han Yu-gyeong, giving her a back hug after our last year-end sex(?), when Han Yu-gyeong asked. I stroked Han Yu-gyeong's bare back and nodded.</p>
+<p>,Hng...! Don't touch me♥ I need to wash up and leave soon....</p>
+<p>Han Yu-gyeong had decided to go to the main house where Han Mun-gang, the head of the Shin-gang Group, lived with her father, Han Seong-jae, in advance today, so she had to prepare and leave soon.</p>
+<p>,Even just for this New Year's Day, I went with Mom and Dad, but it feels a bit strange to go with just Dad.</p>
+<p>Ha Ju-yoon had divorced Han Seong-jae, so Ha Ju-yoon no longer needed to or had any reason to go to the Shin-gang Group's main house, so Han Yu-gyeong was going to the Shin-gang Group's main house with Han Seong-jae alone.</p>
+<p>,I'm going to wash up?</p>
+<p>Han Yu-gyeong showed off her firm and pretty ass, shaking it seductively as she went to the bathroom, so I couldn't help but get out of bed and follow her.</p>
+<p>,Oh, what the heck...♥</p>
+<p>,What do you mean 'what the heck'? You shook your ass on purpose while walking over here.</p>
+<p>When I followed her in and started fondling Han Yu-gyeong's soft butt, Han Yu-gyeong cooed sweetly. Looking at the time, if I hurry, I can probably do it once...?</p>
+<p>,Noooo.... I don't have time, chuup...! Chuup♥ Haa, if I do it now...! Haaht...♥</p>
+<p>I accepted her kiss and moved my hand down to touch Han Yu-gyeong's pussy. It was slippery with semen and vaginal fluids from our sex just now.</p>
+<p>,We can do it while washing.</p>
+<p>,Nooo...♥ How can I, haaheung...! Haa, how can I do it while showering...!</p>
+<p>,This is really the last sex of the year.</p>
+<p>Saying that this was really the last time, I had Han Yu-gyeong enter the shower booth, lean against it, and turned her butt and pussy towards me.</p>
+<p>,Just a moment.</p>
+<p>I could see her breasts spreading to the side as they were pressed against the shower booth, so I left Han Yu-gyeong standing there and went in front of her.</p>
+<p>Ooh...! The sight of her breasts being pressed against the glass of the shower booth was so hot that any man would get a hard-on.</p>
+<p>I adjusted the water to warm and turned on the shower. It's winter, so it would be cold if we just did it, so I need to turn on warm water to keep her body from getting cold. Also, I said we should do it while washing, so I have to keep that promise.</p>
+<p>Shuaaaaa...!</p>
+<p>,Yu-gyeong is so hot...!</p>
+<p>I muttered without realizing it as I looked at Han Yu-gyeong. Her breasts were already hot from being pressed against the glass, but she looked even hotter as her skin became moist from the shower water.</p>
+<p>,Haaheung...! I don't have time, so hurry, haaht♥!</p>
+<p>I don't know if she's urging me because she doesn't have time or because she wants to do it. I turned back to Han Yu-gyeong and thrust my dick into her pussy, which was dripping with vaginal fluids.</p>
+<p>,Haaheuuht...!</p>
+<p>Han Yu-gyeong's pussy was always in good condition. It was the best pussy that always gripped tightly, no matter when I put it in. I started swirling my waist, stirring and shaking inside Han Yu-gyeong's vagina.</p>
+<p>,Haaht...! Yong-tae-yaa...!</p>
+<p>,I'm sorry, Yu-gyeong is too sexy.... I couldn't resist.</p>
+<p>Saying that I couldn't help it because you were too sexy seemed to excite Han Yu-gyeong even more, as her pussy twitched.</p>
+<p>,I don't have time....</p>
+<p>While shaking my waist, I squeezed a lot of body wash into my hand. Then, with my hand covered in body wash, I started touching Han Yu-gyeong's entire body, creating a lot of foam.</p>
+<p>,Haaheung♥ It feels strange because it's slippery...! Haaht! Yong-tae's hand movements are so naughty♥ Haaang...!</p>
+<p>I also felt good touching Han Yu-gyeong's body. Han Yu-gyeong's skin already felt good to the touch, but it felt even better to touch it with my hand covered in slippery body wash.</p>
+<p>Stimulating her entire body and pussy at the same time caused Han Yu-gyeong to become even more excited. Her breasts were pressed against the glass of the shower booth, so her entire body except for her breasts was covered in foam.</p>
+<p>Since I had decided to give her a shower anyway, I straightened Han Yu-gyeong's upper body, which was leaning against the shower booth, and touched Han Yu-gyeong's breasts with my foamy hand.</p>
+<p>When I stimulated her breasts as well, Han Yu-gyeong's white skin flushed, and her pussy twitched as she climbed the stairs to climax. I was also very excited by the current situation, so I started to feel like I was going to cum.</p>
+<p>,I'm gonna cum...!</p>
+<p>,Eung! Pour Yong-tae's hot! White body cream inside me♥</p>
+<p>Body cream...! Where did you learn such strange words? Of course, it was also sexy to hear, so I poured my semen into the deepest part of Han Yu-gyeong's vagina, starting with those words.</p>
+<p>Buuut! Buut! Buuut...!</p>
+<p>,Haaang! I'm going, I'm going, I'm goingaaht...! Yong-tae's dick juice, haaht! It's hot...♥</p>
+<p>My dick pulsed, spewing semen as if shooting it out, and pounded on Han Yu-gyeong's uterus. Han Yu-gyeong's legs gave way from the pleasure, but I was holding Han Yu-gyeong's body and keeping her from falling, so Han Yu-gyeong didn't fall over.</p>
+<p>,Haa, haa, haa...!</p>
+<p>Han Yu-gyeong was breathing heavily, leaning weakly against me due to the aftereffects of the orgasm, so I squeezed out shampoo and washed Han Yu-gyeong's hair.</p>
+<p>,Haaheung, really.... It's possible to have sex while showering?</p>
+<p>,I said I'd do it for you.</p>
+<p>I kindly washed Han Yu-gyeong's body, quickly took a shower myself, and went outside.</p>
+<p>,I'm leaving now. I'm sorry I can't be with you for the New Year.</p>
+<p>,No. We were together like this today.</p>
+<p>Han Yu-gyeong kept apologizing to me and left the house. After seeing Han Yu-gyeong off, I slowly packed my bags. Even if Han Yu-gyeong and Jinmija Yeosa were meeting, I couldn't stay at Han Yu-gyeong's house with my mom, so I had booked two hotel rooms in advance.</p>
+<p>I took the car that I had rented in advance, went to the hotel, left my luggage, and came out again. It was getting dark, so it was time to eat dinner. Ha Ju-yoon had suggested having dinner, so I went to a high-end Korean restaurant with a private room that Ha Ju-yoon had reserved.</p>
+<p>For reference, Nae Fitzgerald had completed the contract, so she couldn't stay in Korea any longer and returned to the United States. Most people spend the end of the year with their families, so she went to the United States, where her family was.</p>
+<p>She said she had reserved a private Korean restaurant with a room because she couldn't meet the famous celebrity Ha Ju-yoon openly. Indeed, if Ha Ju-yoon, who had divorced a chaebol family member this year, was having a friendly dinner with another man at a restaurant at the end of the year, articles would pour out.</p>
+<p>,Yong-tae, you're here?</p>
+<p>,Yes, Noona.</p>
+<p>Ha Ju-yoon was waiting for me with slightly sad eyes. The table was full of food, as if she had ordered in advance. It was a Korean restaurant, and Ha Ju-yoon had told them in advance, so there was a lot of food set out.</p>
+<p>,I'm used to spending every year-end with my family, so it feels strange to be alone.</p>
+<p>,How about feeling strange in a different way by being with me?</p>
+<p>Ha Ju-yoon's expression looked a little depressed, so I tried to cheer her up by mixing in a joke.</p>
+<p>,Aish~! That's not why I asked you to meet~! I just thought you were alone today too, Yong-tae, so I asked you to have a meal with me.</p>
+<p>,Thank you for thinking of me, Noona.</p>
+<p>,Yeah. Let's eat now.</p>
+<p>We exchanged greetings and had a brief conversation before starting our meal. The food was quite delicious, as it was a restaurant that celebrities often used.</p>
+<p>,Ah, congratulations on winning the award this time.</p>
+<p>,Thank you, did you watch the awards ceremony?</p>
+<p>,Yes. The dress was pretty, wasn't it?</p>
+<p>Ha Ju-yoon had received the Best Supporting Actress award at the year-end drama awards ceremony of a certain broadcasting station. Ha Ju-yoon had a pretty busy year, filming an American drama in the first half of the year and filming a drama in Korea after her divorce in the second half of the year.</p>
+<p>She received considerable praise for her role as a femme fatale supporting character in that drama, being praised as more attractive than the female lead. She was recognized for her acting skills at this year's awards ceremony and received an award. The dress she wore at the awards ceremony at that time suited her very well and became quite a hot topic.</p>
+<p>I had watched TV with Han Yu-gyeong amidst her busy schedule and cheered for Ha Ju-yoon's award, and I had sent Ha Ju-yoon a congratulatory text message when she won the award. That's when Ha Ju-yoon asked me what I was doing at the end of the year and received a dinner invitation.</p>
+<p>,This place is delicious.</p>
+<p>,Right? I told them to give us enough for four people so that our Yong-tae can eat a lot.</p>
+<p>Ah, so that's why there was so much. We enjoyed talking to each other and finished our meal.</p>
+<p>,But.</p>
+<p>,Huh?</p>
+<p>Ha Ju-yoon was looking at me with wide eyes, with an expression that said, 'What is it?' That appearance was cute, not befitting her age. In fact, her appearance itself was that of a super youthful person who looked like she was in her late 20s, so that innocent expression suited her.</p>
+<p>,You're really not calling me because of that?</p>
+<p>,...It's not that it's not because of that.</p>
+<p>If it's not that it's not because of that, then that means you called me because of that, right? Of course, 'that' here meant sex.</p>
+<p>,Then let's go wild until the ringing of the New Year's bell, shall we?</p>
+<p>,Shall we...♥</p>
+<p>I took Ha Ju-yoon out of the restaurant, got in the car, and headed to the hotel I had booked.</p>
+<p>_______</p>
+<p>Han Yu-gyeong B-cut with her breasts pressed!</p>
+<p>It's fun to make illustrations of breasts being pressed after a long time, hehehe.</p>

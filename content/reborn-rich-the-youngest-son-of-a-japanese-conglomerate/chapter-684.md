@@ -5,96 +5,15 @@ weight = 684
 chapter = 684
 +++
 
-<p>"Huuuk.... Huuuk, Hwaaaaang~! Ryuta-jji...!"</p>
-<p>Seizawa Shii hugged me and started crying. She wasn't just sobbing, she was wailing like, "Bweeeeh~!" so I was a little taken aback. She wouldn't cry this much over what happened at Yoda-halbae's dojo today. I don't know exactly what happened, but she must have had a pretty tough day. I patted Seizawa Shii on the back, comforting her without a word.</p>
-<p>Shii, who had been crying for a while, stopped crying at my patting, but was still hiccuping, making a sound similar to hiccups after crying.</p>
-<p>"Are you feeling a little better? What's wrong?"</p>
-<p>"Eung, because of what happened today...."</p>
-<p>"Can you tell me in detail? It's better to tell me than to suffer alone."</p>
-<p>At my question, Seizawa Shii nodded and began to tell me one by one.</p>
-<p>She told me everything from being deceived by Funayama Seigo, to her judgment being clouded by magic and acting rashly, and even having to deal with the broker who had been working with her for years after they betrayed her.</p>
-<p>After hearing the story, it was understandable that she was having a hard time. Especially the betrayal of the broker who had been working with Seizawa Shii for years must have been quite a shock. By the way, if she's been working with them for years, how old was she when she started her ogre activities?</p>
-<p>"It's a relief, in a way."</p>
-<p>"What's a relief, Ryuta-jji! It's so hard, hiing...."</p>
-<p>Seizawa Shii gets upset at my words that it's a relief. It was kind of cute how she was still hugging me even while getting upset.</p>
-<p>"No, listen. Now you know that the magic side is the problem. If this hadn't happened, you might have met an even stronger sorcerer later and become like a puppet.... And if the broker had betrayed you in a more critical situation, it could have been even more dangerous. It's a relief that we were able to meet safely at the laundromat like this."</p>
-<p>"Is that so?"</p>
-<p>"Yeah, that's so."</p>
-<p>Seizawa Shii was a little relieved after hearing my explanation. Being weak against special attacks that target the mind is a pretty big weakness, but if it's just a trouble like today, then she paid a cheap price.</p>
-<p>There were quite a few scary guys later on, like guys who could control people or guys who could blow up your brain if you had a weak mind, so being able to identify her weakness now could be seen as lucky.</p>
-<p>"Let's apologize to Kujo and Yoda-yeonggam formally later, and think together about how to defend against mental attacks in the future."</p>
-<p>"What's Yoda-yeonggam?"</p>
-<p>Seizawa Shii tilted her head and asked at my words. Seizawa Shii isn't from the Star Wars generation. I searched for Yoda and showed it to Seizawa, who was sitting and hugging me.</p>
-<p>"Aaaha...! Ryuta-jji, what is that~? That's too much. That little old man is going to get angry~!"</p>
-<p>Seizawa Shii was laughing hysterically while telling me that I was being too much. Isn't laughing like that a more severe attitude than mine?</p>
-<p>"He's already angry enough. I only thought about it when we first met, but he noticed and kicked me in the shin."</p>
-<p>"You only thought about it, but he hit Ryuta-jji? Ahaha~☆ What a funny old man? Doesn't he have mind-reading powers?"</p>
-<p>After cheering up Seizawa Shii a little with the story about Yoda-halbae, I decided to ask her something I was curious about.</p>
-<p>"Why does Seizawa do fixer work?"</p>
-<p>"Well.... I've been super strong since I was a kid, and I started doing it because I could punish bad guys and get paid for it. Since when, middle school 3rd year? I've been doing it for five years now."</p>
-<p>Five years is quite a veteran. There was a reason why no one suspected her of being an ogre. No one would think that the monster fixer who has been active for five years is the 20-year-old young lady of the Seizawa family, a political powerhouse.</p>
-<p>"Ryuta-jji, how did you get involved with those people?"</p>
-<p>"Those people as in...?"</p>
-<p>"The martial arts people."</p>
-<p>"Ah, those people? Well, I also learned martial arts, and Anya is like an enemy of our school, so I know about them."</p>
-<p>"An enemy of the school.... That's a story similar to something from an old comic book."</p>
-<p>Well, an enemy of the school in the 2050s is a bit of a strange thing to say. But it's actually an enemy, so there's nothing I can do about it.</p>
-<p>"You know from experience, but the Anya guys are the type to make a lot of enemies."</p>
-<p>"Well.... I'm going to get revenge on them for sure, too."</p>
-<p>Even the famous ogre in the underworld has become hostile to Anya, so Anya seemed to be one step closer to destruction. They lost two of the Four Heavenly Kings in this incident, so their power will be weakened even more.</p>
-<p>"But are you okay? Yoda-halbae said that you suffered some pretty serious internal injuries...."</p>
-<p>"Ah, that? I'm okay. I've had good recovery power since I was a kid."</p>
-<p>To recover from internal injuries in less than a day, I wonder if she has high recovery stats or some kind of regeneration trait.</p>
-<p>"Still, you should get a checkup since it's an internal injury."</p>
-<p>"I don't want to go to the hospital...."</p>
-<p>Seizawa Shii whined that she didn't want to get a checkup and hugged me even tighter. I don't know if she just wants to hug me or if she really doesn't want to.</p>
-<p>"What are you going to do about your fixer activities in the future?"</p>
-<p>"Well.... I don't have a broker, so I think I'll have to rest for a while. I've spent a lot of money recently, so I have to take on a request.... I'll just have to eat ramen, I guess."</p>
-<p>I don't know what she spent so much money on, but Seizawa Shii sighed deeply at my question. Introducing a broker was a problem that I could solve, so I decided to help her.</p>
-<p>"Then, shall I introduce you to a broker?"</p>
-<p>"Is it someone I can trust?"</p>
-<p>"Yeah. It's not someone who would play tricks."</p>
-<p>The person I'm going to introduce is Eve. Eve isn't someone who would play tricks, so she'll be perfect for Seizawa Shii's taste. She's not even human in the first place.</p>
-<p>"You know about Amsang, right?"</p>
-<p>"Yeah, is there anyone in the underworld who doesn't know about Amsang?"</p>
-<p>Well.... You can't call yourself a person from the underworld if you don't know about Amsang. Seizawa Shii showed me the Amsang app while touching her phone. It seemed that she hadn't reached the level where she could visit the offline branch yet.</p>
-<p>"I'll mediate with that side. If you check the filters in advance, they won't make you do requests that you don't want to do."</p>
-<p>"Really? I'll trust you since Ryuta-jji is introducing me."</p>
-<p>"First, talk to that side and if you don't like it, you don't have to do it, so don't force yourself just because I introduced you."</p>
-<p>Seizawa Shii, who had been nodding at my words, was silent for a moment, then raised her head and looked at me.</p>
-<p>"Ryuta-jji."</p>
-<p>"Yeah?"</p>
-<p>"Why are you so nice to me, Ryuta-jji? You didn't scold me at school, and even when something like today happens, you comfort me and worry about me like it's your own business."</p>
-<p>"Well...."</p>
-<p>I was about to answer Seizawa Shii's question, but I closed my mouth for a moment. I felt like she wouldn't like it if I answered that it was because she was my student.... I had to give her a more intimate answer.</p>
-<p>"Well?"</p>
-<p>"Well, it's because I like you, so I'm nice to you."</p>
-<p>"Ehehehehe...."</p>
-<p>Seizawa Shii hugged me again and buried her face in my chest. I couldn't see her face because she buried her face in my chest, but judging from the fact that her ears were red, she seemed to be quite embarrassed.</p>
-<p>"Ryuta-jji."</p>
-<p>"Yeah?"</p>
-<p>"I said I spent a lot of money just now, right?"</p>
-<p>"Yeah, you did."</p>
-<p>Why is she suddenly talking about spending a lot of money? When I tilted my head at Seizawa Shii's sudden words, Seizawa Shii opened her mouth with an embarrassed expression.</p>
-<p>"Ryuta-jji said let's meet at the coin laundry again next time...."</p>
-<p>I was about to say, "When did I say that?" but then I suddenly remembered writing a message like a photo card to each of the special class students during the festival.</p>
-<p>I definitely wrote to Seizawa Shii... "A connection at the coin laundry. Shall we meet there again?" Even thinking about it now, it was dripping with cheesiness. I don't know what I was thinking when I wrote that.</p>
-<p>"Yeah, you're talking about the photo card message, right?"</p>
-<p>"Yeah. Ryuta-jji said let's meet here again there."</p>
-<p>"I did?"</p>
-<p>"So, I don't know what's going to happen here...."</p>
-<p>Seizawa Shii kept fidgeting without saying it properly. She doesn't know what's going to happen at the coin laundry? Could it be that the reason she said she spent a lot of money was....</p>
-<p>"You bought this coin laundry?"</p>
-<p>"Yeah...."</p>
-<p>This place must be super expensive? It's near St. Francisco Girls' Academy, where the land prices are the highest in Miyashi, so it looks like a normal coin laundry, but the price must be enormous.</p>
-<p>Moreover, these student-friendly stores are operated by wealthy people all over Japan with almost no profit in order to let their daughters use them, so it can be said that it's not worth the money for an individual to buy and operate them.</p>
-<p>"So...."</p>
-<p>Seizawa Shii, who had been hugging me, got up from her seat. Then she walked towards the entrance of the coin laundry and started to lower the shutter with a rattling sound. As the shutter went down with a rattle and a thud!, the inside of the coin laundry became a completely sealed room.</p>
-<p>"I can do whatever I want because I'm the owner here♥"</p>
-<p>Seizawa Shii came closer to me with a bewitching glint in her eyes. Could it be that she spent so much money just to have sex with me?</p>
-<p>"Yeah, that's right."</p>
-<p>"I didn't say anything?"</p>
-<p>What, did she learn mind-reading like Yoda-halbae? It must be that my expression was too obvious.</p>
-<p>"I bought this place to be alone with Ryuta-jji."</p>
-<p>Before I knew it, Seizawa Shii had come in front of me. Seizawa Shii, who lowered her waist to match my eye level, said to me with heart-filled eyes.</p>
-<p>"I like you, Ryuta-jji."</p>
+<p>Pepero Day oejeon 1-1. Taira Ryuta Photocard Reaction 1 USA, California, San Francisco, Silicon Valley. Mother Mars Development Corporation Headquarters. Mother Mars, whose enterprise value was rising daily as it participated in the Mars colonization business, was a research-oriented company with many researchers voluntarily working overtime every day to develop Mars terraforming technology. Vivian Taylor, the Niece and secretary of Boss Liam Taylor, was checking the parcels to deliver to Liam Taylor. 'This is a tax document.... This is a contract with Black Moon Company, this is....' Vivian Taylor tilted her Head, looking at one delivery box. Parcels usually didn't arrive for Vivian Taylor, the secretary, but a parcel had come in Vivian Taylor's name. The sender was Taira Ryuta, the person who had acquired a 7 percent Share in Mother Mars a few months ago, on the Condition of investing 50 million Dollar. He was a lucky person who had bought shares of Mother Mars, which had continuously grown at a high rate over the past few months, very cheaply, but without the 50 million Dollar Taira Ryuta had invested, the company could have faced significant difficulties. "What on earth could Taira Ryuta-ssi have sent me?" Vivian Taylor didn't open the parcel immediately; instead, she first brought the parcels for Liam Taylor to the CEO's Office to focus on her secretarial Work. Liam Taylor wasn't in the CEO's Office; as a former researcher, he commanded a research team even as Boss, spending most of his time in the laboratory. He only came to the CEO's Office when Vivian Taylor called him for an important Matter. "Then, now, my parcel...." Sitting in the secretary's office, Vivian Taylor took the parcel addressed to her, along with the mail she could handle, to her desk. Vivian Taylor cut the box's Tape with an antique paper knife and frowned at the object inside the box. "An album...?" The parcel contained a book, like a Photo album. Vivian Taylor tilted her Head and took out the album. As she took out the album, there was a letter underneath with a few short phrases written on it; Vivian Taylor set the album aside and checked the letter first. To Vivian.</p>
+<p>I'm sending you a recently taken photocard album.</p>
+<p>Please enjoy it.</p>
+<p>From Ryuta. A photocard album? Taira Ryuta was quite handsome, if she remembered correctly, but to the extent of taking photocards? And why did he send it to her? Vivian Taylor tilted her Head and opened the album. The first few pages contained hologram Chips shaped like Coins, not photocards. Ttik. Pressing the button on the hologram Chip, Taira Ryuta's Appearance became visible. He was wearing a retro suit and a fedora, greeting her with a polite Intimate Posture. "He tanned." His skin used to be white, but now he had healthy brown skin. "Yes, he's definitely handsome." Vivian Taylor smiled slightly, looking at the hologram. As an American who appreciated macho beauty, Vivian Taylor liked Taira Ryuta's brown-skinned Appearance. Ignoring the hologram Chip, she turned the page and found a Photo with something written in Japanese. It seemed to be a Photo taken holding a Glass/Cup and looking at the Camera, and when she checked with a translation App, it said [ A toast to your pupils ]. "He's handsome and cheesy.... Why on earth did he send me this photocard album?" She couldn't understand why he had sent photos when they had only met once. But the Phrase was quite funny, so Vivian Taylor smiled unconsciously.</p>
+<p>-Junior-nim~! I've sent all the photocard albums as you instructed! "Already? That's incredibly fast?" Not long after the festival ended, Mimata Chieri called. As my secretary, she insisted on sending my photocards herself, took the List, and sent them all within a day. -To briefly Report, first, Han Yu-gyeong-ssi, Ha Ju-yoon-ssi, Nae Fitzgerald-ssi, Arisu-ssi, Vivian Taylor-ssi overseas.... "Wait...! Vivian who?" Listening to Mimata Chieri's Report, I couldn't help but interrupt her. Why did you send it to Vivian Taylor? -Vivian Taylor-ssi! Her name was on the List you sent me. No way.... I quickly checked the email I sent to Mimata Chieri. What...? Vivian Taylor is really there?! I must have forgotten to remove her from the List and just included everyone. "I wrote the List incorrectly. What would she think if she received a Photo album like this from someone she's only met once?" -Hmm, handsome but a Lunatic? As expected, Mimata Chieri answered without any hesitation. "I suppose so." -Ahahaha! 'I suppose so,' you say? Aren't you a bit overconfident in your Appearance, Junior-nim? Mimata Chieri burst into Playful Laughter at my calm 'I suppose so.' No, I'm handsome, aren't I? Every time I look in the Mirror, it's new and thrilling.</p>
+<p>Pepero Day oejeon 1-2. Taira Ryuta Photocard Reaction 2 Tairaga Main family. A Delivery arrived for Taira Shizuku, Taira Danjo's Wife. Since Taira Shizuku could obtain desired items within a few hours, deliveries were uncommon for her. "A Delivery has arrived? Who sent it?" Taira Shizuku asked the Maid who brought the Delivery in a gentle Voice. In response to Taira Shizuku's Question, the Maid read the waybill. "It's a Delivery from St. Francis Girls' Academy." "Ah! Just leave it in front of me!" Taira Shizuku smiled brightly and received the Box from the Maid. Then, pulling out a dagger from somewhere, she cut the box's Tape and opened it. Opening the Box, she found an album containing photocards of her Grandson, Ryuta. Taira Shizuku first read the short letter written by Taira Ryuta. To Grandmother.</p>
+<p>I'm specially sending you three sets, Grandmother.</p>
+<p>One is for appreciation, one for storage, and one for proselytizing, they say.</p>
+<p>Please enjoy my photos.</p>
+<p>From Grandson Ryuta. After reading the letter, Taira Shizuku, like a true Grandmother, folded the letter neatly with an Expression full of Affection and handed it to the Maid waiting beside her. "Please laminate this letter for me." "Yes." Handing the letter to the Maid, Taira Shizuku chuckled and took out the three albums. "One for appreciation, one for storage, and one for proselytizing? My Grandson has a great sense of humor." Taira Shizuku, murmuring with a Smile, opened an album. Taira Shizuku skipped the hologram Chips and checked the photocards first. As she looked at the photocards showing her Grandson Taira Ryuta in various Appearances, she unconsciously began to shed Tears. In her Grandson's Appearance, she was somehow seeing her Son, Taira Saburo. "...." Taira Shizuku, wiping her Tears with a Handkerchief for a Moment, handed the album to the Maid standing beside her. "Call an Engineer/Technician to upscale the photos as much as possible without blurring them. I need to make them into posters and put them on the wall." "Should I process all the photos in the album?" "Yes, please do." If Taira Kanna had heard Taira Shizuku's Command now, she would have said, 'Mother, are you a Genius?' She intended to greatly enlarge no less than 85 photos, and no matter how advanced technology was, enlarging Polaroid-sized photos to poster Size required an Engineer/Technician with considerable technology. However, as the mistress of Tairaga, Taira Shizuku could easily hire such an Engineer/Technician, so she didn't consider it a difficult Work.</p>
+<p>Pepero Day oejeon 2. Catfight. Shii vs Yuka 'What I did with Ryuta-jji in the laundry room.... It was truly amazing.' On the Weekend, Seizawa Shii was lying on her bed, recalling what had happened two days prior. She had planned to take a break from requests for a while, and since she had caused an accident related to An'yaji, she intended to stay quiet for a bit, but her Body was itching. "Ryuta-jji definitely said we should do it in bed next time.... Kyaak!" Seizawa Shii stomped her Feet and buried her Face in the pillow. As she kept thinking about that day, the inside of her groin began to itch. Somehow, she didn't want to spend today alone. 'Ryuta-jji probably has nothing to do today.... Should I try going to Ryuta-jji's Home?' Seizawa Shii suddenly wanted to see Yamashiro Ryuta. Although they had destroyed a few Coin washing machines with their intense Body-to-Body Conversation two nights ago, it wasn't enough. "Good! I know Ryuta-jji's Home, so let's go now. We can have Evening Meal together.... And then...♥" Seizawa Shii, blushing for no Reason, began to change her Clothes. Seizawa Shii, leaving her Home in a good Mood, headed towards the house where her Class Teacher Yamashiro Ryuta lived. As she walked through the chilly winter Night air, Yamashiro Ryuta's house became visible in the distance, and a red-haired Woman was standing in front of it, searching for something with her Hands in her pockets. "Isn't that Yukka-jji?" Otagi Yuka approached Ryuta-jji's Home, wondering what was going on, and saw Otagi Yuka taking a Key out of her pocket. And she inserted the Key into Yamashiro Ryuta's house Keyhole with a Clink. "Yukka-jji, what are you doing? Why do you have Ryuta-jji's house Key? Are you a Stalker, perhaps?" "...A Stalker, you say? Teacher-ssi gave me the Key himself." Before Otagi Yuka could open the door, Seizawa Shii approached and asked accusingly, to which Otagi Yuka replied with an annoyed Expression. "Really? Even I...." Seizawa Shii was about to say, 'Even I, who has mingled Bodies with him, didn't get a Key?' but then closed her mouth. Otagi Yuka sniffed around, then looked at Seizawa Shii and smiled with a peculiar Expression. Like a victor's Smile? From Seizawa Shii's perspective, it was a very unpleasant Smile. "W-what is that Expression, Yukka-jji!" "Hmph.... Your Body reeks of Teacher-ssi's Smell, doesn't it? What on earth did you two do?" "What are you talking about? It's been two days already.... Ah!" Seizawa Shii, thinking she had been cornered by Otagi Yuka's Trick, raised her eyebrows. Her Mood soured, thinking she had been teased. "Are you teasing me?" "I'm telling you, you really do Smell of Teacher-ssi...." At Seizawa Shii's Words, Otagi Yuka spoke with exasperation. However, Otagi Yuka's Personality was also far from ordinary, so she didn't tolerate Seizawa Shii's Quarrel. "We might both have Teacher-ssi's Smell ingrained in our Bodies, but I have a Key and you don't, do I?" "What?!" Kukukuku...! The air between them trembled. They were already prepared to fight each other. By a Woman's Instinct, they wanted to determine who was superior and inferior with the Woman in front of them. They wanted to compare their martial prowess to confirm who was closer to their Class Teacher Yamashiro Ryuta. The Moment they glared at each other for a while and were about to move. "Shii? Yuka?" The Voice of their Class Teacher Yamashiro Ryuta, who had seen them both, was heard. Otagi Yuka, who had her back to Yamashiro Ryuta, mouthed Words without making a sound, as if trying not to be heard by him. 'Let's fight next time.' Seizawa Shii, seeing her mouthing, snorted 'Ha!' and nodded her Head. Seizawa Shii resolved that she would definitely contend with this red-haired Woman for supremacy someday.</p>
+<p>Vivian Taylor after a long time~!! Kkiyot!</p>

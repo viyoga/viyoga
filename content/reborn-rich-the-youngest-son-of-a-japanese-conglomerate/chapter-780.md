@@ -5,83 +5,103 @@ weight = 780
 chapter = 780
 +++
 
+<p>Ttok ttok ttok!</p>
+<p>At the sudden Ttok ttok ttok! I opened my Eyes. What was going on? I kneaded Seizawa Shii's soft breast, lying next to me, and got up from the bed, heading for the Door.</p>
+<p>I glanced at the clock hanging in the room; it was 6:10 in the Morning. During this trip, we usually woke up and started activities between 8 or 9 AM, so it was quite early. But a knock at such an early hour? Had something happened?</p>
+<p>Before going to the front door, I closed the Bedroom Door, concealing Seizawa Shii's naked body, which had secretly entered my room and enjoyed (?) itself this Dawn.</p>
+<p>Cheolkeok.</p>
+<p>"Who is it?"</p>
+<p>I asked as I opened the Door, and it was one of the group of University Students. It was the man who had spoken to us at our restaurant the day before yesterday, and his Expression was not good.</p>
+<p>"I apologize for the early Morning. I am the Club President of the Chiba University International Politics Discussion Club, whom you greeted yesterday. I was wondering if you might have seen my friend Tanaka. He's not visible inside the Resort.... And Outside, a snowstorm is raging...."</p>
+<p>Huh? A snowstorm? And one person has disappeared.... Didn't he drink a lot of Alcohol yesterday? Is he not just lying asleep somewhere strange? It's not like we came on a Travel and met a Murderer, like Detective Conan or Kindaichi Case Files; he's probably just sprawled out somewhere like the stairs, drunk.</p>
+<p>"I haven't seen him. I'll ask the class Students."</p>
+<p>"Ah, thank you...! I'm staying in Room 306."</p>
+<p>"Yes."</p>
+<p>Cheolkeok.</p>
+<p>Closing the Door, I yawned and re-entered the Bedroom. I was a bit tired, as they had somehow arranged their own schedules, coming in and out of my room at different times during the Dawn.</p>
+<p>"Shii. Time to get up."</p>
+<p>I woke Seizawa Shii by touching her breast. Since Seizawa Shii was in the same room as Minamoto Risa, I had to wake her up so she wouldn't be late.</p>
+<p>"Haaang♥ Just five more minutes, Ryuta-cchi...! Hmm, it feels so good, so keep touching my breast."</p>
+<p>"What do you mean, just five minutes?! If you're just going to sleep more, go back to your room."</p>
+<p>Chwaaak...!</p>
+<p>I took my hand from Seizawa Shii's breast and opened the curtain. Just as the Club President of the International Politics Discussion Club had said, a snowstorm was raging fiercely. At this rate, it didn't seem like it would stop easily. It looked like we'd have to spend the entire day indoors today.</p>
+<p>"Shii, look at this. It seems we'll have to spend the entire day indoors anyway, so go back to your room and sleep."</p>
+<p>"Uh...? What? Is it really a snowstorm?!"</p>
+<p>At my words, Seizawa Shii, opening her Eyes slightly, was surprised and got off the bed, looking Outside the window. As she came to look at the window, her breasts bounced, a quite pleasing Scene to behold so early in the Morning.</p>
+<p>"Ryuta-cchi is right, we can't go Outside today. Then I guess I'll go back to my room and sleep again."</p>
+<p>Seizawa Shii, having seen the weather Outside, yawned, put on her Clothes, and then, saying "Bye-bye, Ryuta-cchi~!", went Outside.</p>
+<p>"Should I try to sleep again...?"</p>
+<p>Seeing Seizawa Shii go back to her room to sleep, I, too, threw myself onto the bed. Perhaps because Seizawa Shii had been lying there just moments before, the bed was warm.</p>
+<p>Kwang kwang kwang!</p>
+<p>Ugh, what the hell? I just lay down.... I grumbled with a Frustrating Expression and got up from the bed. Checking the Time, it was 8:20 AM. I thought I had just lain down, but two hours had passed? I must have fallen asleep as soon as I lay down.</p>
+<p>"Yes, I'm coming."</p>
+<p>I went to the front door and opened it. As I opened the Door, Minamoto Risa stood there with a slightly anxious Expression.</p>
+<p>"Come in for now."</p>
+<p>"Uh-huh."</p>
+<p>Unlike the University Student earlier, I couldn't leave Minamoto Risa standing Outside the room, so I first let Minamoto Risa Inside the room.</p>
+<p>"Is it because of the weather?"</p>
+<p>"Yeah.... I had a plan for today too."</p>
+<p>Today, too, we had planned to ski in the Morning and then visit a nearby place for an Experience in the afternoon, but it seemed her Mood was bad because it had been ruined by the weather.</p>
+<p>"What's the big deal? We can just take it easy today. Like this, with me...."</p>
+<p>As I said 'like this, with me,' I simultaneously hugged Minamoto Risa tightly. Minamoto Risa playfully said 'Oh, what's this?' and resisted a little, but still remained docile in my Embrace.</p>
+<p>"We can just spend it leisurely, going to the hot spring or something. If you're bored, the Kids brought plenty of games, didn't they?"</p>
+<p>"Well.... That's true, but I just feel bad when things don't go according to plan...."</p>
+<p>Minamoto Risa had a bit of a perfectionist tendency that made her Frustrating when things didn't go according to her plans, but even the Young Lady of the Minamoto family couldn't help unexpected weather.</p>
+<p>"First, let's eat something. You might be in a bad Mood because your belly is empty."</p>
+<p>"Do you think I'm a glutton like you?"</p>
+<p>I suggested eating something to soothe her, but Minamoto Risa chided me. Of course, she seemed to understand my Intention, so she didn't look particularly upset.</p>
+<p>"No, it's just time for a Meal anyway.... Let's go to the breakfast buffet, and I'll make you the matcha ice cream you like, Lisa."</p>
+<p>"...Alright."</p>
+<p>The drink corner at the breakfast buffet had matcha and a soft-serve ice cream machine, so I could personally make Minamoto Risa's favorite matcha ice cream. Soothing her with that, Minamoto Risa finally smiled. Indeed, a Woman must be soothed with something sweet.</p>
+<p>"Get dressed and come out in two minutes."</p>
+<p>Energized by my Comfort, Minamoto Risa gave me a light Kiss, bravely got up from her Seat, and went Outside. It seemed she intended to go around the rooms, waking her Friends.</p>
+<p>"First, I should get dressed."</p>
+<p>Since I was only wearing panties, I got dressed. After getting dressed and finishing other preparations, I came Outside to find the Students emerging, their Expressions still half-asleep.</p>
+<p>"Did everyone sleep well?"</p>
+<p>"No, we played games late last night and then slept...."</p>
+<p>Yesterday, they had played board games, and someone had brought a karaoke machine, so they sang songs and played quite late, making them look quite tired. Of course, the Guys who had secretly entered my room last night and received the stamina recovery Effect from my sacred Shaft showed no signs of fatigue, their Faces glowing.</p>
+<p>"You can sleep again after breakfast, so let's go down to eat."</p>
+<p>The breakfast buffet was held at the restaurant we went to on the first day, and I heard that in the Morning, they provide breakfast buffet Service to customers, and the original restaurant Business starts from lunch.</p>
+<p>Taking the elevator down, we felt something strange.</p>
+<p>"Isn't it too quiet?"</p>
+<p>"Indeed."</p>
+<p>Even if it was a VIP Resort with few customers, there were many employees, so there should have been some presence, but today it was incredibly quiet. It was as if.... there was no one else in this Resort besides us.</p>
+<p>"No way...."</p>
 <p>"Huh?"</p>
-<p>The moment I aligned my glans with Lizhael's pussy, I felt Lizhael's pussy biting my dick. It was different from tightening. It felt like my glans was being bitten by another creature...! This is new.</p>
-<p>"Ufufu, when I created my new body, I put quite a bit of effort into this area to give my partner pleasure...♥"</p>
-<p>Lizhael proudly spoke about her pussy, as if my surprise had been conveyed. Just having it against my glans already felt pretty good. She put in extra effort just to make me feel good, that's quite touching, isn't it?</p>
-<p>If she put in that much effort, then enjoying it to the fullest would be one of my ways of repaying her. I felt each and every fold and bump of Lizhael's pussy as I very slowly pushed my dick in.</p>
-<p>Of course, since it was a pussy exclusively for Jin Yongtae, Lizhael's insides felt so good that my legs almost gave out. Each and every fold and bump inside exquisitely stimulated my dick, so I felt pleasure even with the slightest movement.</p>
-<p>"Haaheueung....♥ Partner's haat! Biig...! Heueung, dick is haat...! Slowly coming in aahang♥"</p>
-<p>"Haa, Liz's pussy feels so good...!"</p>
-<p>We moaned to each other, unable to come to our senses from the pleasure rising from below. Then, the advance of my dick came to a halt, as Lizhael's hymen was blocking my insertion.</p>
-<p>"Partner...! Quickly, haa♥ make me yours...♥"</p>
-<p>Lizhael spoke seductively, shaking her pelvis as if telling me to tear her hymen quickly. Of course, as she shook her pelvis, my dick, which was about a third of the way inside Lizhael's body, was also stimulated, which felt very good.</p>
-<p>"Liz, you're mine."</p>
-<p>"Ufufu...♥"</p>
-<p>I pulled my waist back slightly and then forcefully thrust my dick in again. My glans parted the clinging pussyskin and tore Lizhael's hymen. I didn't actually hear it, but I felt like I heard a *buueok* sound as her hymen tore.</p>
-<p>"...♥"</p>
-<p>From the start, I didn't intend to give Lizhael pain by trying multiple times, so I was able to tear Lizhael's hymen in one go. Lizhael looked slightly pained, but also wore a strangely happy expression.</p>
-<p>"Keueu...! Feels good, Liz...!"</p>
-<p>When I tore her hymen and my dick was completely inside, it felt like my dick and Lizhael's pussy fit perfectly, like a key and a keyhole.</p>
-<p>Of course, it couldn't not feel good. A pussy that fit my dick perfectly, with countless folds and bumps inside that bit like a living creature, made me feel like I was about to cum just by thrusting.</p>
-<p>"Kiss, kisseu, kisseueu♥ give me a kiss, partner♥"</p>
-<p>At Lizhael's request to be connected with me both below and above, I pouted my lips. Lizhael slowly matched her lips to mine, then stuck out her tongue, pushed against my teeth, and entered my mouth, moving her tongue as if caressing the inside of my mouth.</p>
-<p>At the tongue movement full of affection, I also intertwined my tongue, and of course, I also slowly started moving my waist.</p>
-<p>Chueuep, jjeubeuep, chuep, jjeuuep, chup, jjeuuep...!</p>
-<p>A sound that was hard to tell whether it was the sound of kissing or the sound of friction between the dick and pussy due to the piston movement, circled around us, increasing each other's excitement.</p>
-<p>As the pleasure felt in my pussy increased, Lizhael's tongue movements became even more active, making me feel like the inside of my skull was being caressed. I didn't know kissing could feel this good.</p>
-<p>"Haaaaahang...!"</p>
-<p>But Lizhael was the first to surrender. When I increased the gear of my waist movements, she couldn't take it anymore while kissing, so she parted her lips and started moaning. No matter how electrifying and good kissing was, it was less than sex where genitals rubbed against genitals.</p>
-<p>Cheolssak! Cheolssak! Cheolssak! Cheolssak! Cheolssak!</p>
-<p>I hugged Lizhael's body tightly, feeling like our whole bodies were sticking together, and shook my waist. Lizhael's soft body and her tight and complex pussy made me feel good at the same time.</p>
-<p>"Haaheung, euheung...! Partner, haat! Too heueut! Strong aahang♥"</p>
-<p>"So you don't like it strong?"</p>
-<p>When Lizhael said it was too strong, I asked if she didn't like it, and Lizhael shook her head violently.</p>
-<p>"I like it aahang, partner's haat! Rough heueung...♥ Sex eueut...! Hyaaeuheut, I like it...!"</p>
-<p>I guess she doesn't hate it after all. I smiled slyly and shook my waist even more roughly.</p>
-<p>Even with Lizhael's moans that seemed like she was about to pass out, as I continued the piston movement, the inside of Lizhael's pussy convulsed and started stimulating my dick wildly. It was a lewd movement as if she was going to extract semen from my dick before reaching climax.</p>
-<p>Jjeolssak! Cheolssak! Cheolssak! Cheolssak!</p>
-<p>"Haat! Haang! Heueung! Haat! No, haat! If I keep feeling this good, hyaaeueut! I'll become an idiot aahang♥"</p>
-<p>"You can become an idiot as much as you want in front of me."</p>
-<p>Of course, just like Lizhael said she felt so good that she would become an idiot, I also felt so good that my vision turned white.</p>
-<p>I was planning to let Lizhael climax and ejaculate first, but I couldn't hold back any longer.</p>
-<p>"Liz, I'm gonna cum...!"</p>
-<p>"Heueung, partner's rich semen♥ quickly haaeuheung...! In my deepest, heueut! Place haaeung...! Inject it aahot...♥"</p>
-<p>When I announced that I was about to ejaculate, Lizhael lifted and shook her waist slightly, urging me to ejaculate even more. I grabbed Lizhael's slender waist and did piston movements even more roughly, then clung to Lizhael as much as possible, pushed the cervix with my glans, and started ejaculating.</p>
-<p>"__! Keueut...!"</p>
-<p>"Haaaaaahang...!"</p>
-<p>The vision in front of my eyes blurred, and I started ejaculating with the feeling that all the fluids in my body were draining out through my dick. As my dick swelled to its maximum, Lizhael crossed her legs in an X shape and pulled my waist, trying to accept my dick even deeper.</p>
-<p>Bueut! Bueut! Bueut! Bueut! Bueueut!</p>
-<p>My dick throbbed and poured semen into Lizhael's uterus with tremendous force. Every time I ejaculated and my semen was poured into her uterus, Lizhael trembled all over and started climaxing in succession.</p>
-<p>We hugged for a long time. Pussy job and sex, only two ejaculations, but it was a physical exertion comparable to ten other sex sessions. That's how good Lizhael's body felt.</p>
-<p>After a while, when my stamina recovered a bit and I pulled out my dick, semen gushed out of Lizhael's pretty pussy.</p>
-<p>"My partner's hot milk is full, so my belly is warm, partner...."</p>
-<p>Lizhael, who was stroking her belly with a satisfied expression, soon got up. An ordinary person would have been sprawled out for about thirty more minutes, but as expected, she was an Outer God, so her recovery was on a different level from humans.</p>
-<p>"Ufufu...♥"</p>
-<p>Lizhael, who was wearing a lewd smile, went down below me and grabbed my dick again. My dick, which had slightly lost its strength due to the tremendous ejaculation just now, started to slowly stretch and harden as if yawning as soon as it touched Lizhael's hand.</p>
-<p>She's not a dick healer or anything, but how can she make it stand up so easily? Among the women I've seen so far, she seemed to have the best ability to make my dick regain its strength.</p>
-<p>"Ufufu♥ This time...."</p>
-<p>Lizhael, who was looking at my dick that was about 80 percent erect with a very lewd expression, wrapped my dick with her big, soft, and elastic breasts.</p>
-<p>Ah! It's a boobjob. If it's a boobjob with Lizhael's breasts, which feel so incredibly good to the touch that I lose track of time, I could probably squeeze out at least ten shots.</p>
-<p>It didn't even take 2 seconds for the words 'probably' that I just said to be proven true. My dick, nestled between two soft mounds, was engulfed in tremendous pleasure.</p>
-<p>A boobjob with ordinary breasts wouldn't give such shocking pleasure, but Lizhael's breasts were capable of it.</p>
-<p>"Keueueut....! Liz, it feels good. It feels so good that my body feels like it's floating...!"</p>
-<p>"Feel free to enjoy my breasts as much as you want, partner...♥"</p>
-<p>Lizhael, who had my dick between her breasts, pressed and rubbed her breasts, and also licked my glans with her tongue, giving me pleasure by doing both a boobjob and fellatio at the same time.</p>
-<p>I, who had ejaculated twice in the boobjob alone, gave Lizhael a lot of cunnilingus in return, and then we licked each other's pussy and dick in the 69 position, and then we overlapped our bodies again and had sex.</p>
-<p>In this place where infinite time seemed to flow, we overlapped our bodies countless times, poured out our essence countless times, and tasted the essence we poured out again.</p>
-<p>As we overlapped our bodies, matched our lips, and shared love, we fell asleep for a while. When I woke up, the space with the pink bed where we had shared love had disappeared, and we were standing in a space like the universe again.</p>
-<p>Lizhael was wearing the splendid silver and black mixed clothes I had seen for the first time. She smiled slyly at me, who had woken up from sleep, and opened her mouth.</p>
-<p>"It was a short wait for my partner, but it was a very long wait for me, who was newly born, because the time zones are different. My love for my partner is overflowing, so I don't know if I went too far."</p>
-<p>"No, I felt good too. Don't ignore my affection just because my wait was short."</p>
-<p>Lizhael smiled as if she was satisfied with my answer.</p>
-<p>"Ufufu...! I understand. Now that I've relieved my desires a bit, I should look at my partner's skills and traits."</p>
-<p>Was that a little? Is that what she calls relieving...? Still, it seemed like she was going to change the traits and skills that had become useless because Simyeonui ttal was gone.</p>
-<p>--------------</p>
-<p>Hot pants home teacher, Black Lisa, Kkan Yuka requested by Hwanbuljeoldaebulga-nim</p>
-<p>Lisa-ttang</p>
-<p>Home Teacher</p>
-<p>Kkan Yuka~!</p>
-<p>When it was Yuka's turn to make the last one, I thought, "Since it's 19+, is there any need to wear a bra?" so I made a bare breasts cut too hehe</p>
-<p>Lizhael Boobjob B-cut!</p>
-<p>Actually, I made over 40 boobjob cuts, but I'm too lazy to put seaweed on the dick, so I'm only uploading one hehehe</p>
+<p>Minamoto Risa opened her Mouth with a slightly uneasy Expression.</p>
+<p>"Could it be that the employees couldn't go to Work because of the snowstorm?"</p>
+<p>Ah, that could be it. I heard that apart from some employees remaining for Rumseobiseu and those providing night service, the rest return to the general Shiga Kogen Resort, which is about a 15-minute bus ride away. They said there was employee accommodation there, so they commute. The employees supposedly worked by taking the bus early every Morning, but with weather like this snowstorm, they might not have been able to go to Work.</p>
+<p>"Even if they couldn't go to Work, the Rumseobiseu employees would have prepared breakfast."</p>
+<p>Right, this is a ski resort in Shiga Kogen where such things happen frequently, so they wouldn't starve their esteemed guests. There must be some other protocol for this kind of weather.</p>
+<p>Suppressing an ominous Sensation, we entered the restaurant. The lights were on in the restaurant, and Inside, the group of University Students sat with uneasy Expressions.</p>
+<p>"Oh?! It's gone...?"</p>
+<p>Food should have been laid out, but there was none.</p>
+<p>"There's no food?"</p>
+<p>"Yes. Right now, there's no one else Inside the Resort but us."</p>
+<p>When I spoke to the Club President of the International Politics Discussion Club, whom I had an Acquaintance with, he told me something strange. No one else but us Inside the Resort?</p>
+<p>"No one but us? What about the employees?"</p>
+<p>"My friend disappeared, so I looked around, but there were no employees at all."</p>
+<p>What the hell. The Atmosphere suddenly turned into a mystery. All the employees disappeared.... Even if they couldn't go to Work because of the weather, there should still be employees who were originally at the Resort.</p>
+<p>"No one?"</p>
+<p>"Yes."</p>
+<p>"Phew.... First, let's eat breakfast and talk."</p>
+<p>I paused the Story for a moment and took a few special class Students who were confident in cooking into the restaurant's Kitchen. It was originally a place where customers shouldn't enter, but since there were no employees and we were hungry, we had to make something to eat with the ingredients Inside the restaurant. Opening the refrigerator, there were plenty of ingredients. There was enough meat, Fish, and Vegetables, as well as Bread, cereal, and such to be provided at the breakfast buffet. Even if the snowstorm lasted longer, if we ate sparingly, there was enough for a week.</p>
+<p>"Since it's Morning, let's make egg toast and have Milk and cereal for a simple Meal."</p>
+<p>"Ryuta, go back to your Seat and sit down. Alik will make it for you."</p>
+<p>"That's right, Teacher-nim, please sit down~!"</p>
+<p>They insisted I wait Outside while they made breakfast for me, so I went Outside.</p>
+<p>"The Kids are preparing egg toast and cereal, so let's talk while we eat that."</p>
+<p>"Ah, we'll help too!"</p>
+<p>At my words, perhaps feeling bad about just being served, two female college students among the University Students got up from their Seats and headed to the Kitchen I had just exited.</p>
+<p>"Have you still not found your friend?"</p>
+<p>"No. I really don't know where he is."</p>
+<p>"You guys haven't seen the man who's not here, have you?"</p>
+<p>I asked, looking around at the special class Students, and they all shook their Heads. They hadn't seen him. In fact, since the special class Students had played late in my room yesterday and then immediately went back to their rooms to sleep, it was natural that they hadn't seen the missing male student if he wasn't loitering in our Passage.</p>
+<p>"What's going on?"</p>
+<p>As we were talking, a Voice was heard from the restaurant Entrance. Ah, there was one more person I had forgotten. Takakusaki Athena, a Western Beauty with Silver hair, was entering the restaurant with a Curious Expression.</p>
+<p>Requested by Gojoy-nim! Kijimoto Jurie's Casual Clothes, Underwear, Belly Dancer, naked body~!</p>
+<p>Casual Clothes~!</p>
+<p>Underwear~!</p>
+<p>Belly Dancer~!</p>
+<p>Naked body~!</p>
+<p>Kkiyoot~!</p>

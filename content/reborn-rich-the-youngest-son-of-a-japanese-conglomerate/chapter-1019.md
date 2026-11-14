@@ -5,128 +5,118 @@ weight = 1019
 chapter = 1019
 +++
 
-<p>One night, after Class Teacher Yamashiro Ryuta confessed to Minamoto Lisa that he was Taira Ryuta. Minamoto Lisa found herself walking towards Yamashiro Ryuta's Home without realizing it. She had a strong desire to do Sexy Things with Taira Ryuta, but more than anything, she wanted to see his Appearance. As she arrived in front of Yamashiro Ryuta's Home, Minamoto Lisa ran into her Best friend, Seizawa Shii.</p>
-<p>「Lisa-ttang?」</p>
-<p>「Shii...!」</p>
-<p>It was an unexpected encounter. To run into each other in front of their Class Teacher's Home at this hour of the night...! But both of them, while thinking about why they had come to Class Teacher Yamashiro Ryuta's Home, simultaneously realized that their Best friend in front of them had come for the exact same Reason.</p>
-<p>「No way.... You came here to have a Tryst with Ryuta-jji?」</p>
-<p>「Shii, you're the one who came here to do that... with the Class Teacher, aren't you?!」</p>
-<p>After exchanging a few Words, a moment of Silence fell between them. Both knew. That they were both one of Taira Ryuta's many flirtatious Women. And in this Situation, they couldn't possibly enter Taira Ryuta's Home together.</p>
-<p>「Shall we go to a family restaurant first, Lisa-ttang...?」</p>
-<p>「Hmph.... Fine.」</p>
-<p>The two retreated from Taira Ryuta's Home and headed to a family restaurant. Upon arriving at the family restaurant, they ordered from the Drink bar, grabbed a Drink each, and sat facing each other.</p>
-<p>「Lisa-ttang, didn't you go to Ryuta-jji's Home a little too openly?」</p>
-<p>「Huh...?」</p>
-<p>「Ryuta-jji, that place.... You know.」</p>
-<p>「Huh? What are you talking about?」</p>
-<p>When Minamoto Lisa seemed not to understand, Seizawa Shii sighed, dipped her finger in the moisture from her glass, and then wrote 'Taira' (平) on the table. Minamoto Lisa was very surprised to see what Seizawa Shii had written.</p>
-<p>「How did you know this? Did the Class Teacher tell you, Shii?」</p>
-<p>「No, Ryuta-jji just looks exactly like that dead Saburo mister. I don't know exactly when, but after just watching him, I realized that Ryuta-jji was one of them.」</p>
-<p>To have just realized it, she had a truly keen eye. Minamoto Lisa had only thought, 'Ah, he did resemble him,' after hearing Yamashiro Ryuta's confession that he was Taira Ryuta. Apart from that surprise, Minamoto Lisa made a slightly angry Expression at Seizawa Shii's Answer. She felt a slight Sense of Disappointment in her friend, wondering why Seizawa Shii hadn't told her if she knew that fact.</p>
-<p>She understood the need to be cautious in the current Situation in Japan, where the power struggle between Minamoto and Taira continued, but she couldn't help but feel hurt. She felt a slight Sense of Betrayal at the fact that her Best friend had been hiding such an important Secret.</p>
-<p>「I like Lisa-ttang, but I also like Ryuta-jji.... That's why I didn't say anything.」</p>
-<p>Minamoto Lisa had nothing to say to Seizawa Shii's Words. If it had been Minamoto Lisa just a few months ago, she would have been furious at Seizawa Shii for not telling her the truth, all for the sake of a mere Man.</p>
-<p>But now, she herself had fallen in love with that Man she had once considered "mere," so she understood how much Seizawa Shii must have worried.</p>
-<p>「I understand. But are you okay? With me and the Class Teacher...」</p>
-<p>「Yeah, Lisa-ttang, you know, don't you? Ryuta-jji is a Man who can't help but have many Women. You can be on my side, and I can be on your side. And we can even be together after Marriage, can't we?」</p>
-<p>Minamoto Lisa also knew that Taira Ryuta was a Man with many Women. Of course, she thought that she, a Minamoto, would become the Main Wife, but if they were outnumbered, there was nothing they could do, so it was true that they needed allies.</p>
-<p>「And.... There's a very dangerous Woman. We need to join forces because of her.」</p>
-<p>Seizawa Shii said with a slightly tense Expression. It was the first time Minamoto Lisa had seen the usually bold and martially strong Seizawa Shii so vigilant of one person, so she became curious about whom Seizawa Shii was talking about.</p>
-<p>「Who is that dangerous Woman?」</p>
-<p>「It's.... Taira Kanna.」</p>
-<p>Taira Kanna? Taira Kanna was Taira Ryuta's Aunt, so there was no probability of them getting together, so why was she considered a female rival?</p>
-<p>「Kanna is the Class Teacher's Aunt. So, it doesn't matter, does it?」</p>
-<p>Minamoto Lisa asked Seizawa Shii with a face full of Doubt. Seizawa Shii smiled innocently at Minamoto Lisa's Question and opened her mouth.</p>
-<p>「Remember when Ryuta-jji didn't come for a day before?」</p>
-<p>At Seizawa Shii's Words, Minamoto Lisa replied, 'Ah, that happened.' As Minamoto Lisa remembered, he had said he was unwell and took a day off. She thought he wasn't seriously ill because he came to School right after that day or after the Weekend, but did something happen then?</p>
-<p>「At that time, Ryuta-jji was kidnapped by Kanna.」</p>
-<p>「Huh? The Class Teacher?!」</p>
-<p>At Seizawa Shii's Words, Minamoto Lisa unknowingly raised her Voice. Although there were no other customers in the family restaurant, when Minamoto Lisa raised her Voice, the Part-timer glanced over.</p>
-<p>「Tell me in detail.」</p>
-<p>「So, on the day Ryuta-jji took sick leave, the Kids who followed Ryuta-jji went to his Home, and he wasn't there. So they realized it was a kidnapping and came to find me. I work as a fixer, you know.」</p>
-<p>Aware of the Part-timer's gaze, the two lowered their Voices and began to whisper their Story.</p>
-<p>It was a rather serious and grave Story about a kidnapping, but since the Party Concerned who was kidnapped had safely returned, and Seizawa Shii's storytelling skill was excellent, Minamoto Lisa listened to the Story with great Intrigue.</p>
-<p>However, that Intrigue soon turned to Astonishment as Seizawa Shii's Story progressed.</p>
-<p>「...Even with Alik-jjang and Yuka-kkat-chi, opponents I couldn't confidently say I could beat, we couldn't win.」</p>
-<p>「Kanna defeated all those people by herself?」</p>
-<p>Minamoto Lisa asked in surprise. She was greatly astonished because she hadn't known Taira Kanna possessed such strong martial prowess. Although Alik was unexpected, Minamoto Lisa also knew that Otagi Yuka, as a Vampire, possessed Strength beyond human limits. The fact that Taira Kanna alone defeated such individuals made her realize that she hadn't truly known Taira Kanna.</p>
-<p>「No! We didn't lose. It was a bit... disadvantageous, but... when Shii-yot-chi came down, Kanna left, saying that was enough.」</p>
-<p>Seizawa Shii said they hadn't lost, but Minamoto Lisa, seeing her face steeped in a sense of defeat, judged that even if they had continued to fight, Taira Ryuta's rescue team wouldn't have won.</p>
-<p>「And when I went into the room inside, Ryuta-jji was wearing women's clothes.」</p>
-<p>「Huh?」</p>
-<p>「He said he was tied up naked and put on the clothes that were there to escape.... Why would he be tied up naked? Kanna definitely fucked Ryuta-jji...! And the room reeked of sex, you know~!」</p>
-<p>「...!」</p>
-<p>Minamoto Lisa fell silent at Seizawa Shii's Words. Raping her nephew...! Taira Kanna's evaluation in Minamoto Lisa's mind plummeted. She had thought Kanna was a somewhat better Woman among the Taira, but an Aunt fucking her nephew...!</p>
-<p>「Clearly, Taira Kanna will keep targeting Ryuta-jji no matter what. So.... We have to join forces.」</p>
-<p>「After hearing your Story, Shii, I definitely understand that Kanna is a dangerous Woman. Alright. Let's join forces.」</p>
-<p>Minamoto Lisa and Seizawa Shii held hands. Although they had almost fought due to Minamoto Lisa's Misunderstanding in their initial Conversation, now they united in spirit and decided to rally under the banner of 'Down with Taira Kanna'.</p>
-<p>「But I'm the Main Wife.」</p>
-<p>「I don't care about being the Main Wife, so do whatever you want, Lisa-ttang.」</p>
-<p>Seizawa Shii smiled and conceded the position of Main Wife, looking at Minamoto Lisa, who emphasized being the Main Wife until the very Last. For the free-spirited Seizawa Shii, the complicated position of Main Wife, which required coordinating Women, was something she would rather avoid.</p>
-<p>「Jinmija Yeosa.」</p>
-<p>After Taira Saburo's funeral ended and he returned Home, Taira Ryuta called his Mother, Jinmija.</p>
-<p>「Yes?」</p>
-<p>「By the way, how did you meet Taira Saburo, I mean, my Father?」</p>
-<p>Taira Ryuta couldn't understand. He was curious how Taira, the most renowned chaebol in Japan, and his Mother, Jinmija, had become involved.</p>
-<p>「I met your dad when I was a university student. I was a freshman, and your Father was also a freshman. Your dad couldn't make proper friends because of the Taira Family name. Everyone either feared him, tried to use him, or found him difficult. But I didn't care that your dad was a Taira. No matter how much of a Taira he was, he was just a rookie in society. That's how we became friends.」</p>
-<p>「Ah, you met in university.... Well, that makes the Age calculation right.」</p>
-<p>At Jinmija's Words, Taira Ryuta nodded, counting on his fingers. Then, as if curious, Taira Ryuta looked at his Mother.</p>
-<p>「If Taira Saburo went to university, it must have been a pretty good university, what university was it? And what Department?」</p>
-<p>「He attended Kanto University, Business Administration Department.」</p>
-<p>「My Mother wanted to be a Boss? She couldn't because of me.」</p>
-<p>Taira Ryuta looked at Jinmija with a slightly apologetic Expression. Jinmija smiled, looking at Taira Ryuta, then soon became lost in Memory.</p>
-<p>Taira Saburo resembled his Son, Taira Ryuta, in front of him, but he was a different Man. Unlike Ryuta, who was clearly of the Physical Class, Taira Saburo had a much more intellectual aura. Both his Mother and Father were smart, and she wondered why Taira Ryuta was like that, while simultaneously recalling their university days.</p>
-<p>The two, who belonged to the same club, eventually fell in love. Jinmija loved Taira Saburo's humility and Intellect, and Taira Saburo loved Jinmija's brilliance and confidence. After dating, they naturally spent the night together.</p>
-<p>「Saburo....」</p>
-<p>「Yoshiko (Beautiful Child)....」</p>
-<p>The two looked at each other, naked. Jinmija spread her Legs, accepting Taira Saburo's hot shaft, and as their bodies intertwined, they began to share their body temperature and passion.</p>
-<p>「Haaheut...! Saburo, Heueut Saburooo...!」</p>
-<p>「Yoshiko (Beautiful Child)...! Inside, it feels so good...!」</p>
-<p>「Heuheung...! I'm embarrassed, Heueung...!」</p>
-<p>The sex, exchanging their firsts, was clumsy but a truly pleasurable Intimate Experience. Once ignited, the two shared their love, mingling their bodies every time they met.</p>
-<p>「Does it feel good when I do this?」</p>
-<p>「Haaht! Yes, Heueut! Like that...! More, Haaheung♥ Do it moreee...!」</p>
-<p>「How about this?」</p>
-<p>「Eueuheung...! Saburo, it feels so good, Haaang!! Inside, Heueung! Moreee♥」</p>
-<p>「Heueung...! Does it feel good when I, Haaht! Move like thisss...!」</p>
-<p>「Keueeut...! It feels good, Yoshiko (Beautiful Child)!」</p>
-<p>Countless Passionate Times with Taira Saburo flashed through Jinmija's Head.</p>
-<p>「...Mom, Jinmija Yeosa!」</p>
-<p>Jinmija, who was deeply lost in old thoughts, only snapped back to reality and replied, "Huh?" when her Son called her with an Expression that seemed to ask what she was doing.</p>
-<p>「What were you thinking about that you didn't notice me calling you repeatedly?」</p>
-<p>「Oh, nothing at all!」</p>
-<p>At Taira Ryuta's Question, Jinmija's Face reddened, and she quickly waved her hand. Taira Ryuta opened his mouth at his Mother's strange Appearance.</p>
-<p>「But why did you two break up?」</p>
-<p>「We just did what we could... no, we both had our own circumstances. Your dad had to study abroad, and my grades were getting risky, so we broke up without any lingering feelings. Only....」</p>
-<p>「Only?」</p>
-<p>「I didn't know you were in my belly at the Last.」</p>
-<p>At Jinmija's Words, Taira Ryuta nodded, saying, "Ah, I see." As is common with first relationships in university, their relationship didn't last long. They dated from the middle of their freshman year and broke up in their final semester.</p>
-<p>Taira Saburo was busy preparing to study abroad, and Jinmija also had to manage her grades. So, they naturally broke up, and Taira Saburo boarded an Airplane to study abroad. Jinmija didn't know that Taira Ryuta was in her belly until then.</p>
-<p>Thus, Jinmija gave birth to Taira Ryuta alone, and Taira Saburo, learning later, offered to Marry her to take Responsibility, but Jinmija and Taira Saburo were no longer in love. And Jinmija, knowing the brutality of the Tairaga's succession struggle, did not want to enter a Family where there was no love and where her Son might be in Danger.</p>
-<p>She decided to raise her Son alone, thinking it would be better for Taira Ryuta's Safety, even if she had to raise him by herself. Taira Saburo respected Jinmija's thoughts and never sought her out again to ensure his Son's Safety, so his Siblings wouldn't find out. However, he consistently sent Child Support every month.</p>
-<p>Sometimes it was hard raising a child alone, but Jinmija still had no Regret.</p>
-<p>「Mom, thank you. For raising me so well by yourself.」</p>
-<p>Because her Son had grown up so dependably.</p>
-<p>「What's with you suddenly~? Now do you truly understand the greatness of this Jinmija Yeosa?」</p>
-<p>Embarrassed by her Son's Words, Jinmija overreacted and praised herself. Taira Ryuta laughed heartily, watching Jinmija.</p>
-<p>「Jinmija Yeosa, just wait a little. Your Son will start a company for you, so you'll be able to do the Management you dreamed of.」</p>
-<p>And then, as if embarrassed, he went into his room. Jinmija thought at the time that Taira Ryuta was just saying Words. Any child would boast about making their Parents live in luxury, after all.</p>
-<p>Still, she had a slight Expectation, and now that her Son was part of the Taira Group, she thought he might start a small company for his Mother in a few years.</p>
-<p>A few months later, Jinmija had become the Boss of a company much larger than she had imagined.</p>
-<p>Jinmija-ssi B-cut~!</p>
-<p>A practice Illustration that made me think, 'Ah, I need to undress her and make her a bit younger.'</p>
-<p>Jinmija Yeosa was quite something when she was young, kkeuk kkeuk.</p>
-<p>1000th Chapter Anniversary Illustrations~!</p>
-<p>TheDreaming-nim requested: 1. Naked Karen and Yurie having Subway sex while pressing their breasts against the glass. 2. Naked Shido Tsubaki having daytime park sex.</p>
-<p>I tried to make them feel like a continuation of a Story, kkeuk kkeuk.</p>
-<p>Gojoy-nim requested for Taira: 1. Camilla samba dance (full body) 2. Camilla's decisive underwear with a Bedroom background.</p>
-<p>1.</p>
-<p>2.</p>
-<p>IseibuI-nim requested: Nae and Arisu sitting cross-legged on a bed at night, wearing translucent Negligee and Seduction (including bare Feet).</p>
-<p>Starting with Nae~!</p>
-<p>Arisu~!</p>
-<p>Chomise-meonji-nim requested: 1. Liz lying naked on the bed, covering her Pussy with her Legs and raising both hands towards her Head. 2. Liz wearing the Nagumo attire from Chapter 995.</p>
-<p>1.</p>
-<p>The Illustration I showed in the previous chapter was actually a requested Illustration, kkeuk kkeuk.</p>
-<p>2.</p>
-<p>The last one, if upscaled to super large, might even make a dakimakura? kkeuk kkeuk</p>
+<p>After finishing all the dates, the final destination was the Hotel. From the moment Liz bought the underwear, I knew the final destination would naturally be the bed. Liz probably thought the same.</p>
+<p>"Liz...!"</p>
+<p>"Partner-isiyeo...."</p>
+<p>Entering the Hotel Room, we shared a passionate Kiss without needing to say who started first. Our mouths met, our tongues mixing, as we kissed, leaning against the wall at the Hotel Room's entrance.</p>
+<p>As Liz's soft breasts pressed against my body, her unique body scent, unlike any I'd smelled before, tickled my nose, heightening my Arousal.</p>
+<p>Chu-eup...! Jjeup♥ Jjeu-beup...! Jjok...!</p>
+<p>We, who had been Kissing with lewd sounds, parted our lips as if by prior arrangement, just like when we started Kissing.</p>
+<p>"I'll go wash. You-isiyeo."</p>
+<p>"No, I'll wash first."</p>
+<p>Liz, being an Outer God, had a resistance to dirt, so it seemed better for me to wash first. I entered the Shower Room and washed as quickly as possible. Rushing out before the Heat of my hardened cock cooled, Liz laughed, seeing the towel wrapped around my waist standing erect.</p>
+<p>"Hahahaha...! The towel is sticking out like a Tent, You-isiyeo."</p>
+<p>"This is a gift I've hidden."</p>
+<p>"I look forward to it, You-isiyeo."</p>
+<p>Liz, with a strange Smile, entered the Shower Room. The rustling sound of Clothes being removed was heard, and a moment later, Liz came Outside.</p>
+<p>"!"</p>
+<p>The Reason Liz suddenly said she was going to wash was because of the underwear she bought at the department store. Rather than undressing in front of my eyes, she appeared having undressed in the Shower Room to show off the underwear.</p>
+<p>It was quite serious erotic underwear. It was shaped like a T, covering her breasts and Pussy, and made of translucent Lace, so it was such a lewd sight that a man with weak Virility might Ejaculation just by looking at it.</p>
+<p>She was also wearing a translucent black veil on her Head, matching the underwear set, which also created a certain Atmosphere. It was like a lewd yet modest feeling.</p>
+<p>"This is the underwear bought with your Card. How is it? Does it please your Mind?"</p>
+<p>"Yeah...! My cock feels like it's about to burst any second."</p>
+<p>"Your cock is very precious, so it shouldn't burst."</p>
+<p>Liz, who had made a Playful Jest, gently pushed me, then removed the towel wrapped around my waist, and took my cock into her mouth, saying she had to suck it before it burst.</p>
+<p>"Eugh, Kueuk...!"</p>
+<p>The moment Liz took my cock into her mouth, a moan escaped me without my knowing. It was an immense Pleasure. A Pleasure like Lightning striking from Head to Feet made me lose my Mind.</p>
+<p>It felt as if there were dozens of tongues in her mouth, and each tongue had suction cups, sucking every nook and cranny of my cock. I was already Arousal from my date with Liz, and felt I couldn't hold out if she kept sucking.</p>
+<p>"Kueuk...! I'm going to cum, Liz...!"</p>
+<p>"Beheup...! Not yet, You-isiyeo."</p>
+<p>When I said I was about to cum, Liz, who had spat out my cock, soon grabbed my cock with her Hand and began to shake it. My cock, drenched in Liz's saliva and my pre-cum, boasted a slipperiness that felt utterly comfortable even with Liz's Handjob.</p>
+<p>Chop-chop-chop-chop!</p>
+<p>Making sounds of Dewy Moisture and flesh rubbing, Liz gave me a Handjob. This too felt as good as the Fellatio just now.</p>
+<p>"Kueuk! I'm cumming...!"</p>
+<p>Byuut! Byuut! Byuut!</p>
+<p>In the end, I couldn't hold out and Ejaculation. Since I couldn't endure the feeling of ejaculation from the Fellatio, it was remarkable that I had endured Liz's Handjob even for a little while.</p>
+<p>"Huhu, your Semen is always so thick."</p>
+<p>Liz said, licking the Semen pooled in her Hand. Rather than the thickness of my Semen, I thought Lizhael herself, who had squeezed it all out with incredible skill, was more amazing.</p>
+<p>"Now, I'll do it for you."</p>
+<p>"Uhuhuhu♥"</p>
+<p>Having received such Service, I couldn't just stand by, so I decided to give Liz Service in return. Since Liz was also sufficiently Arousal, I targeted Liz's breasts from the start.</p>
+<p>Licking her erect nipples and kneading her breasts, sweet moans flowed from Liz's lips.</p>
+<p>"Haa-eua-hang...! Your tongue always feels so Haa-eung♥ good...!"</p>
+<p>Although I was the one giving Foreplay, I also felt good. As I touched Liz's soft yet firm breasts, which I wanted to touch infinitely, I unconsciously focused on the Sensation in my Hands.</p>
+<p>It was Liz's breasts, with an excellent Touch that could be called "drug breasts" without fault. There was nothing lacking, from their Size and Touch to their Sensitivity.</p>
+<p>Even the Touch of the Lace underwear acted as a spice, making it feel like I'd never tire of touching them.</p>
+<p>After focusing on Liz's breasts for a while, I lifted my Head. Liz, as if knowing what was next, spread her Legs for me.</p>
+<p>I grabbed Liz's thighs, slightly pushed aside the underwear covering her Pussy, and began to frantically lick Liz's Petals.</p>
+<p>"Haa-heueu-hang...! It feels good, my Partner-isiyeo...! Eung-heut...! My Partner-isiyeo's tongue♥ Heua-heueut! It feels so good-aa-hang...!"</p>
+<p>Listening to Liz's moans, I licked Liz's vaginal fluid, which was as addictive as the Touch of her breasts.</p>
+<p>Even while causing Craving, the moment I drank it, the Craving subsided; it was vaginal fluid with a taste that made me unable to stop drinking it.</p>
+<p>"Haa-heueu-heung...♡"</p>
+<p>Liz, moaning as if melting, stroked my Head. Seeing her thigh Muscles tremble and quiver, it seemed she was on the verge of Climax.</p>
+<p>To hasten the Climax that was slowly revealing itself, I lifted my tongue and licked her Clitoris as if poking it.</p>
+<p>"Haa-heueut! If you lick there, like that...! I'm, I'm going to cum♥ Hyaa-aa-aa-hang!!!"</p>
+<p>Lizhael, trembling and reaching Climax as she lifted her Legs. Since we had each reached Climax once, I wore a satisfied Expression and kissed Liz's Pussy.</p>
+<p>Jjok!</p>
+<p>"Haaang!"</p>
+<p>Even a light Kiss gets a good Reaction. Now that her Pussy was sufficiently loosened, it was time to slowly begin the main event. Without taking off Lizhael's underwear, I simply pushed aside her panties and inserted my cock. I could take off her Clothes later; for now, I had to enjoy Liz's erotic Pussy in her underwear.</p>
+<p>"Heueut...! My Partner-isiyeo's cock-iit...!"</p>
+<p>"Kueuk...! Liz's Pussy feels good...!"</p>
+<p>As our bodies became One Body, we moaned simultaneously. It was because each other's cock and Pussy felt incredibly good.</p>
+<p>"My Partner-isiyeo's cock always feels good."</p>
+<p>Liz looked at my Face and Smiled. Even in her Gaze, blurred with Pleasure, there was full Affection for me.</p>
+<p>I looked at Liz's Face like that, our Gazes mixing, and began to slowly sway my waist. Liz's curves and folds gave immense Pleasure. It was a Pussy that felt alive.</p>
+<p>Because it was such a pleasurable Pussy, to slowly enjoy the Pussy inside Liz, I slowly swayed my waist. As I slowly swayed my waist, I enjoyed the Stimulation Liz's Pussy provided. Even with a slight movement, countless Protrusions and suction-cup-like features stimulated my cock, giving me ample Pleasure.</p>
+<p>"Haa-heueu-heung...♥ My Partner-isiyeo slowly inside, my Haaht, scratching the inside, Heueu-heung...! I like it-aa-hang...♥"</p>
+<p>As I swayed my waist like a leisurely boatman slowly rowing, Liz, seemingly pleased, clung to me.</p>
+<p>Of course, I wouldn't enjoy Liz's incredibly pleasurable Pussy with just this one Intimate Posture. Of course, Liz seemed to feel the same, as she moaned and pushed my Upper Body down. Before I knew it, the position was Reversal, with Liz on top, placing one Feet on my Upper Body to prevent me from moving, in a modified Cowgirl position, swaying her waist above me.</p>
+<p>"Ah-heung...! Now, Heueu-heung♥ I'll move for you-ee-ee...! My Partner-isiyeo just needs to enjoy-haa-heung♥"</p>
+<p>Liz, with a seductive Smile, lowered the Legs she had placed on my Body and slowly moved her waist, then gradually began to quicken her Rhythmic Motion. The sound of viscous liquid rubbing stimulated my Lust through my Sensitive Ear.</p>
+<p>Liz, who had been vigorously swaying her waist, as if the underwear she was wearing was uncomfortable, began to take off her underwear one by one. As I lay there watching Liz take off her underwear, she began to undress with seductive movements, like a strip show.</p>
+<p>Liz, having removed the veil on her Head and the translucent underwear one by one, became naked. Of course, her erotic underwear Appearance was sexy, but with such an overwhelming Figure, Liz's naked body, without a single Silken Strand of Clothes, was more beautiful than any other Appearance.</p>
+<p>Liz's Pussy, as she rode me in Cowgirl position, like a pump drawing up Semen, greedily squirmed, making me feel good. I also didn't stay still, thrusting my waist upwards, moving in rhythm with Liz's Rhythmic Motion.</p>
+<p>"Haa-heueu-heueu...! My Partner-isiyeo's Heueu-heung♥ Cock is hot...! Deepest inside my Body-ee...! Heueu-heung! It's getting stranger and stranger-aa-hang♥"</p>
+<p>Every time I moved, my deeply inserted cock was knocking on her Jagunggu, so Liz rolled her Eyes and writhed in Pleasure.</p>
+<p>Liz, who had reached a small Climax, arched her waist back and almost lay down, and before I knew it, the Intimate Posture had Reversal, becoming Missionary Position with me on top, swaying my waist. Of course, I too was feeling a similar feeling of ejaculation, much like Liz who had reached a partial Climax.</p>
+<p>Cheol-sseok! Cheol-sseok! Cheol-sseok!</p>
+<p>To race towards the finish line of Ejaculation, I thrust my waist so roughly and quickly that the sound of flesh slapping echoed.</p>
+<p>"Haaang, Haaang, Haaang...! Heueu-heung! Partner-isiyeo...! Inside me, Heueu-heung, my Partner-isiyeo's Heueu-heung♥ Semen, Haaht! Fill me up with it-aa-hat♥"</p>
+<p>Liz already seemed to feel the Semen rising from my Balls. Even before I said I was cumming, she was already swaying her Pelvis, urging me for my Semen.</p>
+<p>"Kueuk...! As Liz says, I'll cum inside!!"</p>
+<p>"Haa-eueu-heung...! My Partner-isiyeo's Heueu-heung! Fill me, fill me with your baby seed, Heueut! Give it to me-aa-at♥"</p>
+<p>Byuut! Byuut! Byuut!!</p>
+<p>I pushed my cock in as far as possible and poured Semen into Liz's uterus until it seemed to overflow. At the same time as I Ejaculation, Lizhael also reached Climax and hugged my Body tightly.</p>
+<p>Chyup, Chyuu...♥</p>
+<p>After a light Kiss and withdrawing my cock, Liz lay there, covering her groin with one Hand and Smiling.</p>
+<p>"Uhuhuhu... Partner-isiyeo. This isn't the end, is it?"</p>
+<p>As expected, perhaps because she wasn't human, even after experiencing an immense Climax, Liz wasn't particularly tired. I too, perhaps because of Liz's body scent and Arousal, still had a firm cock despite having Ejaculation.</p>
+<p>Liz, with a seductive Smile, placed her four limbs on the Ground and pushed her buttocks towards me. It was probably an action for Doggy style.</p>
+<p>I held my still firm cock and inserted it into her Pussy, which was made easier for insertion due to the abundant Semen.</p>
+<p>"Haa-eua-hang!"</p>
+<p>As my cock slid in with a "ssu-uk" sound, Liz began to let out short moaning sounds. I enjoyed the Appearance of Liz's large Pelvis, Side breast, and perfectly shaped buttocks and swayed my waist.</p>
+<p>Thus, Sex with Liz continued almost like a Frenzy.</p>
+<p>Swaying my waist frantically, spraying Semen intravaginal into Liz, Kissing, and indulging in the Act of enjoying Liz's body, when I came to my senses, Liz was already lying there, covered in Semen, looking at me.</p>
+<p>"Very, very.... It was enjoyable, Partner-isiyeo. Intertwining my Body with yours was enjoyable, but the date we shared was also very enjoyable. With this, I can wait for a while for the day I meet my Partner-isiyeo again."</p>
+<p>Liz seemed satisfied with everything today. And seeing her mention meeting again, it seemed she was returning to her original World.</p>
+<p>And Liz's Body slowly began to turn into particles of Light from her fingertips and scatter.</p>
+<p>"Are you leaving already, Liz?"</p>
+<p>As I asked regretfully, Liz opened her mouth with a benevolent Smile.</p>
+<p>"Parting is just a Moment, Partner-isiyeo."</p>
+<p>"Yeah. Right. We'll meet again someday."</p>
+<p>"Hug me tightly with your Arms."</p>
+<p>I hugged Liz tightly as she scattered into particles of Light. Liz also hugged me and whispered something into my Sensitive Ear.</p>
+<p>"I love you, Partner-isiyeo."</p>
+<p>Liz left behind Words of love and completely scattered into Light, disappearing. I was suddenly hugging empty space.</p>
+<p>Liz's Appearance had completely vanished, making me wonder if it was a Fantasy or a Dream. But it wasn't a Dream. Because the Sticker Photo I took with Liz still remained.</p>
+<p>In the Sticker Photo, Liz, with a heart mark etched, was Smiling at me.</p>
+<p>Liz B-cut~!</p>
+<p>The Composition is somewhat funny kkeuk kkeuk</p>
+<p>I made it as a scene of approaching for a Kiss, but there was no scene where it appeared, so it's a B-cut hehe</p>
+<p>While making a Cowgirl image, I forgot to take off her panties, so it's a B-cut hehe</p>
+<p>Legs on Body B-cut~!</p>
+<p>Underwear Missionary Position~!</p>
+<p>Cowgirl B-cut hehe</p>
+<p>Missionary Position B-cut~!</p>
+<p>Doggy style B-cut~!</p>
+<p>After Sex B-cut~!</p>

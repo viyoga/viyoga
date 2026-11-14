@@ -5,79 +5,80 @@ weight = 741
 chapter = 741
 +++
 
-<p>Lunch time. I booked the Korean restaurant where I had met Ha Ju-yoon-ssi a while ago. Jinmija Yeosa-nim would be satisfied because the food was delicious, and I booked a private room so that Han Yu-gyeong-ssi, whose face is well-known, could eat without worrying about the attention of others.</p>
-<p>,I have a reservation under the name Jin Yong-tae.</p>
-<p>,I will guide you.</p>
-<p>I went to the restaurant counter with Jinmija Yeosa-nim, and the employee guided us. The hallway was quiet, and I couldn't hear any talking, so the soundproofing seemed to be good.</p>
-<p>,Here it is.</p>
-<p>Deureureuk.</p>
-<p>Following the employee's guidance, I opened the sliding door and saw Han Yu-gyeong-ssi sitting there with a very nervous expression. She must have arrived earlier than the scheduled time.</p>
-<p>,Oh, Mother...! Ah, hello.</p>
-<p>,Hmph...! Who's your mother?</p>
-<p>When Han Yu-gyeong-ssi greeted her, Jinmija Yeosa-nim spoke coldly. Instantly, the atmosphere in the room froze. Jinmija Yeosa-nim, who had been wearing a cold expression for a moment, suddenly smiled after seeing everyone's expressions.</p>
-<p>,Ohoho, sorry, sorry.... I wanted to say this line after watching a drama. Are you Yu-gyeong-ssi? Nice to meet you~!</p>
-<p>Ah.... It was a joke. I was so nervous. I was wondering what to do with this atmosphere after Jinmija Yeosa-nim's sudden outburst, but thankfully it was just a joke.</p>
-<p>,Ah, you scared me, Mother~!</p>
-<p>Han Yu-gyeong-ssi was acting cute to Jinmija Yeosa-nim, even though they had just met. Still, because Han Yu-gyeong-ssi is pretty, even if she acts cute on the first meeting, it wasn't unpleasant. Jinmija Yeosa-nim smiled at Han Yu-gyeong-ssi's appearance.</p>
-<p>,Hoho, let's sit down first.</p>
-<p>As Jinmija Yeosa-nim said, everyone sat down. Soon the meal came out, and we had a friendly conversation while eating.</p>
-<p>,Yong-tae went on a trip to Korea earlier this year, and that's when you first met?</p>
-<p>,Yes. I was caught by some thugs, and he saved me.</p>
-<p>The two got along quite well. They enjoyed talking about the story of how they first met me, and they asked about each other's preferences while talking.</p>
-<p>,This time's mithril mine production is....</p>
-<p>,Then we can supply this much to TG Tech?</p>
-<p>Among the topics they discussed, the one they surprisingly agreed on the most was business. Because TG Tech, which deals with technology, and Hatake Mining, which supplies mithril, had a close relationship, Han Yu-gyeong-ssi and Jinmija Yeosa-nim's interests overlapped quite a bit, so they got along best when talking about business.</p>
-<p>At first, I was worried about whether the two would get along, but I was relieved when they talked well without any awkwardness, and I focused on the meal.</p>
-<p>,You have such excellent business skills, I can't believe you worked part-time until Yong-tae grew up.</p>
-<p>,I had to find a job that I could easily leave in the middle because I had to raise Yong-tae alone. Yong-tae's dad helped with the money, so I wasn't that strapped for cash....</p>
-<p>As the conversation flowed, Jinmija Yeosa-nim's past story came up. I had assumed that she went to a prestigious university since she said she met my father, Taira Saburo, at university, but when I asked later, it turned out she graduated from Edo University, the best university in Japan.</p>
-<p>Hearing that made me feel touched and heartbroken at the same time. Jinmija Yeosa-nim, a talented woman from Edo University, gave up her future and focused on raising her son, so I felt grateful and sorry for her.</p>
-<p>,But this idiot thought our family didn't have money and gave up on going to college in early high school.</p>
-<p>,Oh, is that so? I was wondering why Yong-tae isn't dumb, but why he didn't go to college.</p>
-<p>,Right? He was smart, but he didn't try....</p>
-<p>Before I knew it, the conversation turned to my intelligence. Jinmija Yeosa-nim was using the money from the mart where she worked part-time for living expenses, and she was saving the money that Taira Saburo sent for my college fund, but I misunderstood that our family was poor and didn't pursue college.</p>
-<p>They both said I was smart, but as someone who could see stats, I knew that my initial intelligence was not high at 2, but rather low.</p>
-<p>But because Jinmija Yeosa-nim is my mother, and Han Yu-gyeong-ssi has rose-colored glasses on, I was being evaluated as someone who is smart but doesn't study.</p>
-<p>Thinking about it, I was curious why my intelligence stat was low when my dad and mom both went to Edo University. Usually, being smart is hereditary.</p>
-<p>But now, thanks to elixirs and leveling up, I have a pretty decent intelligence stat (based on combat character stats), so I can say that I've become quite smart. Recently, I've been thinking about where to use this intelligence, so I've been studying English in my spare time while working as a teacher, and I've been making good progress thanks to my stats. If I try for a few more months, I think I'll be able to hold a conversation in English.</p>
-<p>,Our family was poor after being disowned by our clan, but I thought the opposite of Yong-tae. I thought that if I went to a good university and got a good job, the fighting between my mom and dad would be resolved, so I focused more on studying.</p>
-<p>In fact, Han Yu-gyeong-ssi is now the daughter of a chaebol family, which can be said to be a modern-day aristocracy, but she lived a fairly difficult life until she returned to the Shin-gang Group after raising the family's name as the top student at Korea University.</p>
-<p>As expected, thinking is different because the intelligence stat is different. To think of raising the family through studying.</p>
-<p>,You suffered a lot when you were young. I'm so glad you're doing well now.</p>
-<p>Jinmija Yeosa-nim stroked Han Yu-gyeong-ssi's head as if she was proud of her. As Han Yu-gyeong-ssi and Jinmija Yeosa-nim became closer, the lunch came to an end.</p>
-<p>,Then I'll take you to the TG Tech Research Institute.</p>
-<p>After the meal, we decided to tour the TG Tech Research Institute. Jinmija Yeosa-nim also had a close relationship with TG Tech as a company that supplied mithril, so she needed to check how TG Tech was operating.</p>
-<p>Also, because I am leaving Korea with Jinmija Yeosa-nim tomorrow morning, I scheduled a visit to the research institute to say goodbye to Lara Sinclair and Linling before leaving.</p>
-<p>,Mom, honestly, I don't have the brains to get into Edo University like you or Dad. Then who do I take after?</p>
-<p>I asked Jinmija Yeosa-nim what I was curious about while going to the research institute.</p>
-<p>,Your maternal grandfather was strong, and your maternal grandmother was smart. You probably take after your maternal grandfather.</p>
-<p>That phrase "strong" can be interpreted in many ways, but she's probably saying that he had good physical abilities. My maternal grandfather and grandmother passed away when I was young, so I don't remember them well, but I had seen their pictures in my mom's photo album.</p>
-<p>They were both handsome and beautiful, and especially my maternal grandfather had an impressive, muscular body. Thanks to that, Jin Yong-tae has a handsome face and a strong body.</p>
-<p>,Mother, that's the TG Tech Research Institute over there.</p>
-<p>Han Yu-gyeong-ssi pointed to the large TG Tech Research Institute. Because TG Tech started releasing firearms and came to the forefront, security was quite strict to prevent industrial espionage.</p>
-<p>Of course, the security was handled by Vanguard, where Han Yu-gyeong-ssi is the president. Because trustworthy Vanguard agents were responsible for security, it was impossible to infiltrate like a thief, and attempts to steal technology were made by industrial spies secretly contacting researchers.</p>
-<p>However, all communication attempts were blocked or monitored by Eve and Lara Sinclair, rendering them all ineffective.</p>
-<p>Of course, betrayal didn't not happen at all, and so far, a total of two researchers have betrayed, but one of them was found dead after committing suicide, and the other was found dead on the banks of the Han River.</p>
-<p>Of course, those industrial spies who induced the two researchers to betray were also found dead near their companies, which was naturally done by Han Yu-gyeong-ssi's black team, which is in charge of Vanguard's illegal activities.</p>
-<p>In fact, this was a moderate method in the megacorp world. It was standard procedure for many companies to take care of the betrayer's entire family.</p>
-<p>Of course, instead of threats, the company told the researchers that the industrial spies had stolen the technology and killed them, and since then, no more betrayals of TG Tech have occurred.</p>
-<p>We got out of the car and were greeted by Lara Sinclair, the director of the research institute.</p>
-<p>,I am Lara Sinclair, the director of this research institute and the Chief Technology Officer of TG Tech. Nice to meet you.</p>
-<p>,I'm Yong-tae's mom, Jinmija.</p>
-<p>Jinmija Yeosa-nim and Lara Sinclair shook hands and entered the lab, and a small figure appeared in front of us.</p>
-<p>It was Linling wearing a white one-piece swimsuit. Linling ran to me, ignoring Jinmija Yeosa-nim, who was a new face. But it suits her well, but isn't it a bit too revealing? Who on earth put her in a one-piece swimsuit with what thoughts?</p>
-<p>,Jin Yong-tae, Master-nim.</p>
-<p>At Linling's words, Jinmija Yeosa-nim frowned. She seemed bothered by the word "Master-nim" coming from Linling, who looked young.</p>
-<p>,Master-nim? Yong-tae, what on earth are you making this child do?</p>
-<p>It seemed like Mom was misunderstanding something big about Linling.</p>
-<p>,No, Mom.... Listen to the story first.</p>
-<p>,Listen to the story? Here's a child in a swimsuit in the middle of winter calling you Master-nim...!</p>
-<p>Jinmija Yeosa-nim put her hands on her hips as if she was very angry and was about to start scolding me. But soon she couldn't help but start laughing, and Han Yu-gyeong-ssi also laughed loudly while watching.</p>
-<p>,Don't tell me it was a joke?</p>
-<p>,I talked to Yu-gyeong-ssi when you went to the bathroom earlier~! Yu-gyeong-ssi contacted the research institute.</p>
-<p>Oh, this ahjumma.... She made fun of Yu-gyeong-ssi earlier, and it seems like she was trying to make fun of me too. I looked at Linling with a resentful expression. Linling still opened her mouth with a blank expression.</p>
-<p>,I just wore today's outfit that Lara Sinclair chose for me, Jin Yong-tae, Master-nim.</p>
-<p>In the end, the conspirators to make fun of me were Jinmija Yeosa-nim, Han Yu-gyeong-ssi, and Lara Sinclair. Linling just wore what she was told to wear.</p>
-<p>______</p>
-<p>Linling White Swimsuit</p>
-<p>Kkiyot!</p>
+<p>Perhaps it's because of the current situation, but Taira Kanna-ssi was slowly sitting down on my face in a situation where her panties had turned translucent due to the pussy juice she had excitedly leaked, revealing her light pink pussy mound.</p>
+<p>"Normally, when you say kiss, isn't it when lips meet lips?"</p>
+<p>Because of the breath I exhaled while asking Taira Kanna-ssi that question, her pussy was stimulated, and Taira Kanna-ssi trembled.</p>
+<p>"Haaah...♡ I like your breath, Onii-sama...! I already cleared the lips-to-lips kiss when Onii-sama was knocked out. I'm sorry. I couldn't resist."</p>
+<p>It seemed she had already stolen my lips when she knocked me out with anesthesia. I didn't know that. Amazing, Taira Kanna-ssi.</p>
+<p>"Then, I'm looking forward to the lower lip kiss♡"</p>
+<p>With a *chwulpak* sound, her wet pussy stuck to her wet panties stuck to my nose and lips, starting a 'kiss.'</p>
+<p>Now that it's come to this, I'll have to use my sex skills to sweet-talk her into letting me go. So, first, it was important to satisfy Taira Kanna-ssi.</p>
+<p>First, I opened my mouth and licked hard over her panties with my tongue. Of course, her panties were soaked with her pussy juice, so it tasted like pussy juice, but Taira Kanna-ssi's pussy juice tasted like a citrusy, sour, and refreshing flavor.</p>
+<p>"Haaah...! O, Onii-sama's tongue is, haah♡, l-licking my... *heuung*, lower lips...!"</p>
+<p>Actually, because my arms and legs were tied, all I could do right now was flick my tongue. But because I was the owner of the Black Mireuk Gong, a master of seduction, there were many things I could do with my tongue.</p>
+<p>I sharpened my tongue and drew a picture with my tongue, following the shape of Taira Kanna-ssi's pussy. Taira Kanna-ssi trembled, thrilled by the pleasure she felt from my tongue movements.</p>
+<p>"Onii-sama...♡ Onii-samaa♡ Onii-samaaa...!!!"</p>
+<p>Taira Kanna-ssi only called me with her tongue and reached her climax. I felt her thighs, which were placed on either side of my face, tighten and tremble.</p>
+<p>This won't do. I have to completely marinate Taira Kanna-ssi in pleasure to blackmail her with sex. I kept moving my tongue, not caring that Taira Kanna-ssi had already reached her climax.</p>
+<p>"Haaheueut, haah...! I, I'll also.... serve you...♡"</p>
+<p>To endure this pleasure and think about serving me, Taira Kanna-ssi's mental strength seemed quite impressive. Her willpower stat must be quite high?</p>
+<p>Taira Kanna-ssi got up from my face and turned her body to face my dick. Then, she sat back down on my face and grabbed my dick.</p>
+<p>"*Chuu*...♡ *Chwup*♡ *Tzubeup*...! *Tzup*, *chubeu*, *chwup*...♡"</p>
+<p>Taira Kanna-ssi grabbed my dick and started sucking it like a lollipop, and as she moved her waist, rubbing her pussy against my nose and lips, urging my tongue, it seemed like she was doing a reverse 69.</p>
+<p>If she's sucking my dick like this, I can't lose either. I also passionately used my tongue and lips to start sucking over Taira Kanna-ssi's panties.</p>
+<p>In this kidnapping room with only a bed, for a while, only the lewd sounds of *chwup chwup* as we sucked on something with our mouths could be heard.</p>
+<p>It felt a bit like a hit to my pride, but Taira Kanna-ssi's fellatio skills were considerable. She's probably still a virgin as a well-raised young lady of the Tairaga family, but to have this level of fellatio skills...! No matter how much she practiced with bananas or dildos beforehand, this level as a virgin seemed quite amazing.</p>
+<p>To be good at studying and a genius at sex, it was somewhat unfair.</p>
+<p>And even though Taira Kanna-ssi's panties were soaked with my saliva and her own pussy juice, so it didn't matter whether she wore them or took them off, she was wearing a layer of armor. This meant that she wasn't receiving 100 percent of my tongue's attacks.</p>
+<p>The reason I'm saying this excuse-like thing is....</p>
+<p>"Haaang...!"</p>
+<p>"Keuek, I'm cumming...!"</p>
+<p>It's because I had a one-on-one match of 69 with Taira Kanna-ssi, who was a novice at sex, and we almost reached our climax at the same time.</p>
+<p>*Byuuut! Byuuut! Byuuuut!*</p>
+<p>Because I hadn't had sex yesterday, the amount of semen was enormous. Because Taira Kanna-ssi had taken her mouth off my dick to let out a climactic moan, the semen that was shot out like a water gun soared into the air and then fell like rain due to gravity. Taira Kanna-ssi continued to bite my dick, as if she couldn't bear to lose any of it, without losing her mind from the climax.</p>
+<p>Taira Kanna-ssi, who had swallowed all of my pouring semen, licked her lips with her tongue and then looked at the semen that had fallen on my body.</p>
+<p>"The white semen falling on Onii-sama's brown skin is so.... sexy♡"</p>
+<p>"Could you not say things like the semen on my body is sexy?"</p>
+<p>Whether she heard my answer or not, Taira Kanna-ssi started licking up the semen that had fallen on my body with her tongue.</p>
+<p>"Euum, Onii-sama's baby batter, it's too good to waste...♡"</p>
+<p>*Haltchak, haltchak*♡</p>
+<p>Taira Kanna-ssi was just licking up the semen, but it was the same as caressing every part of my body. My dick, which had been in a semi-hard state after ejaculation, rose hard again.</p>
+<p>"Oh my...! According to what I learned in health and physical education, men don't get erect right away.... As expected, Onii-sama is amazing♡"</p>
+<p>Taira Kanna-ssi, seeing my erect dick, said I was amazing and grabbed my dick again, shaking it up and down.... Her eyes were filled with lewd heat.</p>
+<p>"Hehe.... Now that we've finished kissing each other, shall we move on to the next step?"</p>
+<p>I don't know when 69 became a kiss, but if 69 is a kiss, the next step was obvious. I opened my mouth to encourage Taira Kanna-ssi even more.</p>
+<p>"If we go any further, it's forbidden territory, Auntie...."</p>
+<p>"Hehehe.... Wasn't the action just now forbidden territory? And you're Yamashiro Ryuta-gun, aren't you? If a man and a woman of different surnames who like each other can mix bodies♡ It's 2053 now, you know?"</p>
+<p>Taira Kanna-ssi started taking off her underwear as if to show me. Taira Kanna-ssi's beautiful huge breasts appeared before my eyes with a *ppyoong*, and because her panties were soaked and translucent, her pussy, whose shape I was already familiar with, also showed its appearance to me.</p>
+<p>But Taira Kanna-ssi didn't take off her bridal veil and white lace gloves. A naked body with a bridal veil and see-through lace gloves.... Taira Kanna-ssi was definitely a connoisseur of perversion.</p>
+<p>"Hehe...! I'll give Onii-sama my first time."</p>
+<p>"I'm sorry, but I'm a worn-out man...."</p>
+<p>At my words, Taira Kanna-ssi's expression distorted for a moment, and she stroked my cheek.</p>
+<p>"Don't bring up other women... no. Stray cats in front of me. Because I might not be able to stand it anymore."</p>
+<p>Taira Kanna-ssi spoke in a chilling voice, and instantly, an enormous murderous aura filled the room. Considering the skills she showed in the fencing competition at the sports day before, the enormous strength she showed today, and the murderous aura now, Taira Kanna-ssi also seemed to be a considerable expert.</p>
+<p>"I can't help it. In this case, I have no choice but to poison Onii-sama with my body."</p>
+<p>I was also thinking of persuading her to release me with my body. We're thinking about similar things. The 69 just now was just a prelude. The real fight will be a battle of seduction (色鬪) that starts right now.</p>
+<p>Taira Kanna-ssi stood on top of my dick. And, as if telling me to watch carefully, she smiled lewdly and slowly started to sit down.</p>
+<p>Because my dick was already standing straight up, looking at the sky, all she had to do was aim (?) well and it would go right in, so there was no need to grab it and put it in the hole. But Taira Kanna-ssi didn't insert it right away.</p>
+<p>"Hehe, Onii-sama, did you think I would put it in right away?"</p>
+<p>Taira Kanna-ssi brushed past my dick and started rubbing her pussy against my dick shaft, like a stripper doing a pole dance. Since she's a virgin, it might be better to rub it like this to loosen it up a bit rather than inserting it right away.</p>
+<p>"Haaht...! It's hot and hard, and it's throbbing, Onii-sama's dick...!"</p>
+<p>Taira Kanna-ssi moved her waist up and down as if coating my dick with her pussy juice. When my dick looked completely wet, she lifted her waist again and matched her glans to her pussy. It seemed like she was finally entering the insertion phase.</p>
+<p>"Please accept my first time. Onii-sama."</p>
+<p>"Isn't it closer to a forced sale than accepting it right now?"</p>
+<p>"Yes♡ Onii-sama doesn't have the right to refuse?"</p>
+<p>As expected, my *tsukkomi* didn't work at all on Taira Kanna-ssi, who was a *yandere*. Taira Kanna-ssi, who dismissed my words, lowered her waist as it was.</p>
+<p>"Aaaah...!"</p>
+<p>I felt Taira Kanna-ssi's hymen being pierced right away in my dick as she inserted it deeply in an instant, but Taira Kanna-ssi tilted her head back and trembled, as if even the pain of her hymen being torn was a pleasure. It seemed like she had reached her climax just from the insertion.</p>
+<p>"Finally, finally...! I've embraced Onii-sama inside me...♡"</p>
+<p>Taira Kanna-ssi, still looking down at me with *yandere* eyes while having my dick inside her. She looked very happy.</p>
+<p>I didn't stay still. Only my arms and legs were tied, but my waist was somewhat free, so I started bouncing and twisting my waist.</p>
+<p>"Heuaht...! O, Onii-samaa?! St, haaht! I, *heuht*! Just now...! I, *heuhang*...! I went, so, haang♡ Don't move, *heueuheung*...! Please!!"</p>
+<p>Taira Kanna-ssi asked me not to move, but I wasn't going to listen to that. I had to aim for the moment when the virgin was weakest, when her hymen was torn.</p>
+<p>I continued to violate Taira Kanna-ssi's vagina, lifting my waist into the air.</p>
+<p>"*Heuuht*, *heueuheung*! Wait, haaht! Too...! Much, Onii-samaa...! Haaht! *Euhheut*♡ *Haaheueut*! I can't, *heuuht*! Get a hold of myself...♡"</p>
+<p>Taira Kanna-ssi begged me to please go slowly, but I didn't listen to her.</p>
+<p>Taira Kanna-ssi confidently told me that she would poison me with her body, but she was just a virgin with no sex experience. Like a puppy that doesn't know how scary a tiger is, she had to pay the price for her rash words about poisoning me in front of me, who could be called a sex master.</p>
+<p>____</p>
+<p>Saionji Diana-ssi's American flag bikini + jeans + armpit pics requested by RefundAbsolutelyImpossible-nim!</p>
+<p>Home Ec Teacher's American flag bikini + jeans + armpit pics!</p>

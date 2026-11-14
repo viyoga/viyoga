@@ -5,114 +5,128 @@ weight = 1000
 chapter = 1000
 +++
 
-<p>Another route - Juuki (Gun Demon) Training.</p>
-<p>After a major fight, I captured one person as a Prisoner. The one I captured was an excellent gunslinger nicknamed Juuki (Gun Demon) in the original work. Just like in the game, they handled all firearms well, so our side suffered quite heavy losses, but somehow, we were fortunate enough to capture them as a Prisoner.</p>
-<p>I entered the warehouse alone, where Juuki (Gun Demon) was held. Juuki (Gun Demon) was suspended by chains, wearing a thick-gloved power suit of unknown Gender. Naturally, since the battery pack had been removed, they couldn't use the power suit's characteristic powerful Muscle strength assistance, so they were merely hanging there.</p>
-<p>I approached Juuki (Gun Demon) and began removing the power suit's Gloves one by one. Kung Kung, the sound of the Gloves falling and echoing on the warehouse floor, was heard.</p>
-<p>As I completely disengaged the power suit, there was a Woman with short hair. Inside the power suit, a feminine Figure, wearing a sports bra and panties, was hidden. Seeing that Appearance, I was quite surprised. Juuki (Gun Demon) was a Woman? Even in the game, they only appeared in the power suit, so I didn't know they were a Woman; it was unexpected that a Woman was inside.</p>
-<p>"So, the famous Juuki (Gun Demon) was a Woman?"</p>
-<p>"...."</p>
-<p>Juuki (Gun Demon) didn't answer my question. I poked the nipple slightly protruding above the sports bra Juuki (Gun Demon) was wearing.</p>
-<p>"Heung, Keut...!"</p>
-<p>Precisely as my finger touched the nipple, Juuki (Gun Demon)'s body Trembled. As expected of someone with excellent physical Sensation, their nipple sensitivity seemed quite good.</p>
-<p>"Keueut, kill me. Why don't you kill me?"</p>
-<p>"I prefer to persuade rather than kill. No matter how much harm you've inflicted upon us."</p>
-<p>Since Juuki (Gun Demon) was a named character even in the original work, I thought I could use them quite well if I persuaded them. By the way, 'Keut, kill me'... Hearing such Words, like a female knight captured by Enemy Forces, would make anyone want to torment them.</p>
-<p>"Then, I'll begin the persuasion."</p>
-<p>I, like a gentleman (?), informed Juuki (Gun Demon) that I was beginning the persuasion, then grabbed Juuki (Gun Demon)'s breast. It wasn't a very large breast, but perhaps because they were a former Combatant, it was quite elastic and pleasurable to touch.</p>
-<p>"Heueu...! Keueut! I-is this persuasion?!"</p>
-<p>"In a little while, you'll want to be on my side."</p>
-<p>"Don't be ridiculous!! That won't happen!"</p>
-<p>Even as they said that wouldn't happen, their nipples hardened. It's always so amusing to see a body react honestly, even when the Words say 'that won't happen' or 'I don't like it'.</p>
-<p>Juuki (Gun Demon) rattled the chains and writhed their body, and the pleasure felt in their breasts seemed to be gradually growing stronger.</p>
-<p>Seeing that, I drew forth the Abyss with my Fingertips. Then, I slowly cut off the front strap of the Bra. The Bra fell to the floor with a Thud, and Juuki (Gun Demon)'s breasts were revealed. Breasts of a moderate size, neither small nor large, were reflected before my eyes.</p>
-<p>The Pink nipples Trembled under my Gaze. I chuckled at the sight, then grabbed Juuki (Gun Demon)'s Chin, lifted it, and said,</p>
-<p>"Your breasts are pretty."</p>
-<p>"Tsk, abandon the thought that I'll follow you just because you praise me...!"</p>
-<p>I just praised them, that's all.... I ignored Juuki (Gun Demon)'s Words, grabbed their breast, and lightly bit their nipple. Then, in that state, I began to Stimulate the nipple by Licking it with my tongue.</p>
-<p>"Keuheungeut...!"</p>
-<p>Juuki (Gun Demon) gradually began to make a more feminine Voice. Their rebellious movements steadily decreased. As expected, it's always the most interesting part, subduing a Prisoner after a battle, precisely because of these Reactions.</p>
-<p>After Molesting Juuki (Gun Demon)'s nipples for a while, I removed my Lips and grabbed the only piece of cloth Juuki (Gun Demon) was wearing: their panties.</p>
-<p>"It's damp in the middle? Are you wet? Or did you piss yourself?"</p>
-<p>"I'm not wet...!"</p>
-<p>"Then you pissed yourself?"</p>
-<p>"Keueut...! Shut up!"</p>
-<p>Wordplay isn't working, I see. Then, there's no choice but to just take off their panties. Unlike when I cut off the Bra, I took off the panties directly with my own hands, but it took some time because Juuki (Gun Demon) moved their Legs wildly. I needlessly teased them and made them irritated.</p>
-<p>Still, since I did take them off, it's time to gradually begin. I Bound both of Juuki (Gun Demon)'s thighs with Telekinesis, then began to freely touch their pussy. Perhaps because their Arousal had subsided from struggling and moving their Legs just now, their pussy was dry, but I wasn't worried, as my Skill could make it Flood at any time.</p>
-<p>Zveup...!</p>
-<p>I inserted one finger into their Vaginal opening while beginning to caress the outside of their pussy with my other hand. Juuki (Gun Demon) moved their Torso, resisting intensely, but since both their Legs were already tightly held by Telekinesis, they couldn't move as violently as when I took off their panties.</p>
-<p>"Keuheung, Heueu...!"</p>
-<p>Faint moaning sounds, like a soft Breath from Nose, flowed out. Their pussy was getting wet, and vaginal fluid was emerging, but I couldn't move my finger more intensely. This was because the finger I had inserted into their Pussy hole was blocked, unable to go in even a single joint. The Hymen was blocking my finger's advance.</p>
-<p>"You're a virgin, yet you're getting this Aroused? How Lustful."</p>
-<p>I whispered into their Whispering Ear, degrading them. Hearing my degradation, Juuki (Gun Demon)'s Face reddened, and they said nothing. Hmm, unexpectedly, degradation seemed to work on their Personality. They felt shy and shame, but their pussy squirmed, and vaginal fluid gushed out.</p>
-<p>By the way, usually, at times like this, they'd just say it's merely a physiological reaction, so why is this one staying silent? Do they have no tolerance for men? Did they go through all-girls middle school, high school, and university?</p>
-<p>First, I need to touch them more. I need to engrave upon them that the pleasure they're feeling isn't a lie, but a real, tangible thing.</p>
-<p>Squish, squish, squish.</p>
-<p>"You know what? It feels like it would be incredibly good with you. This is the first time I've seen a virgin release so much Lustful pussy fluid, gripping my finger so tightly. If I put it all the way inside, you'd clench incredibly tight, wouldn't you...!"</p>
-<p>I continued to whisper Lewd talk into their Whispering Ear while touching Juuki (Gun Demon)'s pussy. No matter how much Juuki (Gun Demon) denied it, their nipples were noticeably erect, pointing towards the sky, and vaginal fluid was continuously dripping from their pussy like a half-submerged faucet.</p>
-<p>"For now, this much seems enough."</p>
-<p>"Heueu, Uh? W-what do you mean by that?!"</p>
-<p>Juuki (Gun Demon), who had been hazily enjoying the pleasure, asked what I meant by my Words. They seemed quite innocent, as if they didn't precisely understand what I meant.</p>
-<p>Since a virgin might panic if they saw my Large Penis, I grabbed Juuki (Gun Demon)'s Chin with one hand and Kissed them. Juuki (Gun Demon) tried to bite my tongue during the sudden Kiss, but I was holding their Chin firmly, so they couldn't bite my tongue.</p>
-<p>As my tongue wrapped around Juuki (Gun Demon)'s tongue, tickling and continuously injecting pleasure, Juuki (Gun Demon) was soon absorbed in sucking and receiving my Lips. In the meantime, I took off my Pants and underwear. My cock was exposed, but Juuki (Gun Demon) had already closed their eyes and was engrossed in our kiss, so they couldn't see my cock.</p>
-<p>Their Legs remained spread open, held by Telekinesis, and with my free hand, I grabbed my cock and rubbed it against their pussy. Juuki (Gun Demon) seemed slightly surprised but soon thought it was the same Foreplay as before and continued to enjoy my kiss. Perhaps because touching their pussy felt good, they were making nasal moans, Heuheung Heuheung, even during the kiss.</p>
-<p>I smiled at the sight of the innocent virgin, deceiving themselves, and immediately pushed my cock in deeply. My cock immediately tore through Juuki (Gun Demon)'s Hymen and entered Intravaginal.</p>
-<p>"Uh...! Heueu...!"</p>
-<p>Because we were kissing, Juuki (Gun Demon) couldn't properly moan (whether it was a moan of Pleasure or pain, I didn't know) and opened their eyes wide. But she was a Prisoner, and I didn't soothe Juuki (Gun Demon), who was surprised by the sudden insertion; instead, I immediately began to thrust my hips.</p>
-<p>Tzeueup...!</p>
-<p>As I pulled my mouth away from the kiss, a silver-colored Silken Strand made of saliva stretched out, then broke with a Thud. As the tongue that had been teasing inside their mouth disappeared, Juuki (Gun Demon) Screamed loudly.</p>
-<p>"What are you doing! Pull it out! I said pull it out...!"</p>
-<p>"Now that I've taken your Hymen, I'm your first man. That's an irreversible fact. And even if I pull my cock out now, it's not like your Virginity will return, is it? So...."</p>
-<p>At the Words that it was already irreversible, Juuki (Gun Demon) seemed to fall into Despair. I opened my mouth, speaking close to Juuki (Gun Demon)'s Sensitive Ear.</p>
-<p>"Since it's irreversible, wouldn't it be better to just enjoy it?"</p>
-<p>I spoke as if seducing Juuki (Gun Demon) with a demon-like Voice, but Juuki (Gun Demon) shook their Head, refusing to be Subjugated by me. Naturally, since I had merely inserted it, there was no way a named character like Juuki (Gun Demon) would be Subjugated. The real thing starts now.</p>
-<p>"Heung, Keueut...! Do you think I'll be Subjugated by merely this, Keueut?!"</p>
-<p>"We'll see about that."</p>
-<p>I began to thrust my hips, kneading Juuki (Gun Demon)'s breasts with both hands. Juuki (Gun Demon) tried to resist, making Keuheung! Keueut! sounds, but they couldn't stop the pleasure spreading from their groin throughout their entire body.</p>
-<p>"Keuheung...! Haaht...! Heueu...!"</p>
-<p>I didn't say anything that would break the Atmosphere, like 'doesn't it feel good?', but instead kept gazing into Juuki (Gun Demon)'s eyes as I thrust my hips.</p>
-<p>The wet squishing sounds and the sound of flesh colliding disoriented Juuki (Gun Demon)'s Sensitive Ear, amplifying the pleasure given by my cock, which was gradually digging deeper inside them.</p>
-<p>"Heungaat! No more, Heueut! No, nooo mooore, Heuhyat! I can't take it anymoreee~!!"</p>
-<p>Juuki (Gun Demon) couldn't endure it, letting out moans like Screams, then, as if fainting from a powerful Orgasm, their Head dropped with a Thud. As expected, a virgin's pussy was weak. My feeling of ejaculation hadn't even risen, yet they were trembling and reaching Climax.</p>
-<p>You're not dead, are you? I lifted Juuki (Gun Demon)'s Chin to check. Hmm, they're breathing well. I looked at Juuki (Gun Demon), nodded my Head, and pulled out my cock. As my glans scraped against the Intravaginal as it pulled out, Juuki (Gun Demon) flailed again, opening their eyes as if regaining consciousness. Then, they looked at me and asked,</p>
-<p>"Haaang...! Is it, Heueut, is it over now?"</p>
-<p>"What are you talking about? I'm not done yet. You're the only one who felt good."</p>
-<p>At my Words, Juuki (Gun Demon)'s Expression turned despairing, but behind that despairing Expression, they couldn't hide the Expectation of being able to feel the same Pleasure again.</p>
-<p>This time, I went behind Juuki (Gun Demon). I should do it in Doggy style. Since I couldn't keep using Telekinesis to hold their thighs, I'd have to Thrust them from behind so they couldn't show defiance.</p>
-<p>"Whyyy.... are you going behind me? It's over now, isn't it? It's over, isn't it?"</p>
-<p>"I just told you. I'm not finished yet. Remember it well. This is a position called Doggy style."</p>
-<p>I grabbed Juuki (Gun Demon)'s hips from behind and slowly pushed my cock in.</p>
-<p>"Uh, Keueut...!"</p>
-<p>As soon as I inserted my cock, Juuki (Gun Demon) curled their Toes, halfway reaching Climax. Since I was holding their hips, they felt like they were slightly dangling.</p>
-<p>"Expect it. Because I'll make you feel even better."</p>
-<p>"Even... better...?!"</p>
-<p>As I whispered into their Whispering Ear, Juuki (Gun Demon) asked back in a hazy Voice. Since they seemed curious, it was time to gradually begin.</p>
-<p>"Euryat!"</p>
-<p>"Heuhyaat...! Wait...! Heueu, the angle has changed, Eungeuheut...! The Feeling is, Haaht! Diffeerentt...!"</p>
-<p>Juuki (Gun Demon)'s pupils rolled upwards at the different Feeling compared to what we had just done while standing and gazing at each other. But I was in a Situation where I had to show my Sex Skill to persuade Juuki (Gun Demon). I couldn't stop here.</p>
-<p>"Heueu! Haaht! Haaang! I'll become your Subordinate, Heueut! I'll become it, Haaang! Stop, Heueu! Stooop ittt!!"</p>
-<p>I shouldn't believe these Words. Humans were beings who could lie at any time. Only after completely soaking Juuki (Gun Demon) in Semen, making them 'semen-pickled' so they couldn't Betray me, could I truly believe that Juuki (Gun Demon) had become mine.</p>
-<p>"Haaeueuheung! Stop, stooop...!"</p>
-<p>I decided to perceive Juuki (Gun Demon)'s 'stop' as a 'do more' Feeling and continued to thrust my hips. As I thrust my hips, I slapped their buttocks, Chalsak Chalsak, making them red, but Juuki (Gun Demon) seemed to feel no pain at all, due to the pleasure emanating from their pussy.</p>
-<p>Gradually, my own feeling of ejaculation began to rise. I grabbed Juuki (Gun Demon)'s hair and thrust my hips even stronger.</p>
-<p>"Haaht! Heueu, it feels so gooood, Haaang...! Heueu, youuurs...! Haaht! I'll become yours, Haaang♥ Heueu...! Stop, stooop ittt!!"</p>
-<p>"I'm going to cum inside, so you have to take it all with your pussy. Understood?"</p>
-<p>"Heueu, w-what...? Haaht! You're cumming, hit...! Heueu!"</p>
-<p>Since they seemed unable to properly understand the word 'cumming,' I decided to just give Juuki (Gun Demon) a direct demonstration.</p>
-<p>Cheolsseok! Cheolsseok! Cheolsseok!</p>
-<p>Gazing at their heaving buttocks, I tightly embraced Juuki (Gun Demon) from behind and began to Ejaculate.</p>
-<p>Buut! Byuut! Buuuut!!</p>
-<p>"Heua...! Heueu! Th-this, Heueut! What is this hot thing, Haaang...! My insidee!! Haaht! I'm coming, I'm coming, I'm comingg♥"</p>
-<p>Simultaneously with my Ejaculation, Juuki (Gun Demon) also reached Climax. Their entire body reddened and Trembled, as if a tremendous Orgasm had struck Juuki (Gun Demon).</p>
-<p>"Haa, haa, haa.... Y-you...! Is it over now?"</p>
-<p>Juuki (Gun Demon), who couldn't regain consciousness for a while, asked me, panting for breath.</p>
-<p>"Usually, men do need to rest a little after Ejaculating once."</p>
-<p>Juuki (Gun Demon) brightened up at my Words, but then couldn't help but fall into Despair at the Words that followed.</p>
-<p>"But I'm not a usual man, so even if I Ejaculate, I can do it about five more times immediately."</p>
-<p>"S-stooop ittt!!"</p>
-<p>That day, the warehouse was filled with Juuki (Gun Demon)'s moans and Screams. As the Date changed and the next day dawned, Juuki (Gun Demon) became my Loyal Subordinate and, at the same time, a Meat Toilet addicted to my cock.</p>
-<p>B-cut!</p>
-<p>I can't maintain background consistency, and images are created faster without backgrounds, so I usually don't use them haha.</p>
-<p>TheDreaming-nim requested Lianna Holden 1. Wet Shirt on the bed 2. Breast Exposure on the bed</p>
+<p>One night, after Class Teacher Yamashiro Ryuta confessed to Minamoto Lisa that he was Taira Ryuta. Minamoto Lisa found herself walking towards Yamashiro Ryuta's Home without realizing it. She had a strong desire to do Sexy Things with Taira Ryuta, but more than anything, she wanted to see his Appearance. As she arrived in front of Yamashiro Ryuta's Home, Minamoto Lisa ran into her Best friend, Seizawa Shii.</p>
+<p>「Lisa-ttang?」</p>
+<p>「Shii...!」</p>
+<p>It was an unexpected encounter. To run into each other in front of their Class Teacher's Home at this hour of the night...! But both of them, while thinking about why they had come to Class Teacher Yamashiro Ryuta's Home, simultaneously realized that their Best friend in front of them had come for the exact same Reason.</p>
+<p>「No way.... You came here to have a Tryst with Ryuta-jji?」</p>
+<p>「Shii, you're the one who came here to do that... with the Class Teacher, aren't you?!」</p>
+<p>After exchanging a few Words, a moment of Silence fell between them. Both knew. That they were both one of Taira Ryuta's many flirtatious Women. And in this Situation, they couldn't possibly enter Taira Ryuta's Home together.</p>
+<p>「Shall we go to a family restaurant first, Lisa-ttang...?」</p>
+<p>「Hmph.... Fine.」</p>
+<p>The two retreated from Taira Ryuta's Home and headed to a family restaurant. Upon arriving at the family restaurant, they ordered from the Drink bar, grabbed a Drink each, and sat facing each other.</p>
+<p>「Lisa-ttang, didn't you go to Ryuta-jji's Home a little too openly?」</p>
+<p>「Huh...?」</p>
+<p>「Ryuta-jji, that place.... You know.」</p>
+<p>「Huh? What are you talking about?」</p>
+<p>When Minamoto Lisa seemed not to understand, Seizawa Shii sighed, dipped her finger in the moisture from her glass, and then wrote 'Taira' (平) on the table. Minamoto Lisa was very surprised to see what Seizawa Shii had written.</p>
+<p>「How did you know this? Did the Class Teacher tell you, Shii?」</p>
+<p>「No, Ryuta-jji just looks exactly like that dead Saburo mister. I don't know exactly when, but after just watching him, I realized that Ryuta-jji was one of them.」</p>
+<p>To have just realized it, she had a truly keen eye. Minamoto Lisa had only thought, 'Ah, he did resemble him,' after hearing Yamashiro Ryuta's confession that he was Taira Ryuta. Apart from that surprise, Minamoto Lisa made a slightly angry Expression at Seizawa Shii's Answer. She felt a slight Sense of Disappointment in her friend, wondering why Seizawa Shii hadn't told her if she knew that fact.</p>
+<p>She understood the need to be cautious in the current Situation in Japan, where the power struggle between Minamoto and Taira continued, but she couldn't help but feel hurt. She felt a slight Sense of Betrayal at the fact that her Best friend had been hiding such an important Secret.</p>
+<p>「I like Lisa-ttang, but I also like Ryuta-jji.... That's why I didn't say anything.」</p>
+<p>Minamoto Lisa had nothing to say to Seizawa Shii's Words. If it had been Minamoto Lisa just a few months ago, she would have been furious at Seizawa Shii for not telling her the truth, all for the sake of a mere Man.</p>
+<p>But now, she herself had fallen in love with that Man she had once considered "mere," so she understood how much Seizawa Shii must have worried.</p>
+<p>「I understand. But are you okay? With me and the Class Teacher...」</p>
+<p>「Yeah, Lisa-ttang, you know, don't you? Ryuta-jji is a Man who can't help but have many Women. You can be on my side, and I can be on your side. And we can even be together after Marriage, can't we?」</p>
+<p>Minamoto Lisa also knew that Taira Ryuta was a Man with many Women. Of course, she thought that she, a Minamoto, would become the Main Wife, but if they were outnumbered, there was nothing they could do, so it was true that they needed allies.</p>
+<p>「And.... There's a very dangerous Woman. We need to join forces because of her.」</p>
+<p>Seizawa Shii said with a slightly tense Expression. It was the first time Minamoto Lisa had seen the usually bold and martially strong Seizawa Shii so vigilant of one person, so she became curious about whom Seizawa Shii was talking about.</p>
+<p>「Who is that dangerous Woman?」</p>
+<p>「It's.... Taira Kanna.」</p>
+<p>Taira Kanna? Taira Kanna was Taira Ryuta's Aunt, so there was no probability of them getting together, so why was she considered a female rival?</p>
+<p>「Kanna is the Class Teacher's Aunt. So, it doesn't matter, does it?」</p>
+<p>Minamoto Lisa asked Seizawa Shii with a face full of Doubt. Seizawa Shii smiled innocently at Minamoto Lisa's Question and opened her mouth.</p>
+<p>「Remember when Ryuta-jji didn't come for a day before?」</p>
+<p>At Seizawa Shii's Words, Minamoto Lisa replied, 'Ah, that happened.' As Minamoto Lisa remembered, he had said he was unwell and took a day off. She thought he wasn't seriously ill because he came to School right after that day or after the Weekend, but did something happen then?</p>
+<p>「At that time, Ryuta-jji was kidnapped by Kanna.」</p>
+<p>「Huh? The Class Teacher?!」</p>
+<p>At Seizawa Shii's Words, Minamoto Lisa unknowingly raised her Voice. Although there were no other customers in the family restaurant, when Minamoto Lisa raised her Voice, the Part-timer glanced over.</p>
+<p>「Tell me in detail.」</p>
+<p>「So, on the day Ryuta-jji took sick leave, the Kids who followed Ryuta-jji went to his Home, and he wasn't there. So they realized it was a kidnapping and came to find me. I work as a fixer, you know.」</p>
+<p>Aware of the Part-timer's gaze, the two lowered their Voices and began to whisper their Story.</p>
+<p>It was a rather serious and grave Story about a kidnapping, but since the Party Concerned who was kidnapped had safely returned, and Seizawa Shii's storytelling skill was excellent, Minamoto Lisa listened to the Story with great Intrigue.</p>
+<p>However, that Intrigue soon turned to Astonishment as Seizawa Shii's Story progressed.</p>
+<p>「...Even with Alik-jjang and Yuka-kkat-chi, opponents I couldn't confidently say I could beat, we couldn't win.」</p>
+<p>「Kanna defeated all those people by herself?」</p>
+<p>Minamoto Lisa asked in surprise. She was greatly astonished because she hadn't known Taira Kanna possessed such strong martial prowess. Although Alik was unexpected, Minamoto Lisa also knew that Otagi Yuka, as a Vampire, possessed Strength beyond human limits. The fact that Taira Kanna alone defeated such individuals made her realize that she hadn't truly known Taira Kanna.</p>
+<p>「No! We didn't lose. It was a bit... disadvantageous, but... when Shii-yot-chi came down, Kanna left, saying that was enough.」</p>
+<p>Seizawa Shii said they hadn't lost, but Minamoto Lisa, seeing her face steeped in a sense of defeat, judged that even if they had continued to fight, Taira Ryuta's rescue team wouldn't have won.</p>
+<p>「And when I went into the room inside, Ryuta-jji was wearing women's clothes.」</p>
+<p>「Huh?」</p>
+<p>「He said he was tied up naked and put on the clothes that were there to escape.... Why would he be tied up naked? Kanna definitely fucked Ryuta-jji...! And the room reeked of sex, you know~!」</p>
+<p>「...!」</p>
+<p>Minamoto Lisa fell silent at Seizawa Shii's Words. Raping her nephew...! Taira Kanna's evaluation in Minamoto Lisa's mind plummeted. She had thought Kanna was a somewhat better Woman among the Taira, but an Aunt fucking her nephew...!</p>
+<p>「Clearly, Taira Kanna will keep targeting Ryuta-jji no matter what. So.... We have to join forces.」</p>
+<p>「After hearing your Story, Shii, I definitely understand that Kanna is a dangerous Woman. Alright. Let's join forces.」</p>
+<p>Minamoto Lisa and Seizawa Shii held hands. Although they had almost fought due to Minamoto Lisa's Misunderstanding in their initial Conversation, now they united in spirit and decided to rally under the banner of 'Down with Taira Kanna'.</p>
+<p>「But I'm the Main Wife.」</p>
+<p>「I don't care about being the Main Wife, so do whatever you want, Lisa-ttang.」</p>
+<p>Seizawa Shii smiled and conceded the position of Main Wife, looking at Minamoto Lisa, who emphasized being the Main Wife until the very Last. For the free-spirited Seizawa Shii, the complicated position of Main Wife, which required coordinating Women, was something she would rather avoid.</p>
+<p>「Jinmija Yeosa.」</p>
+<p>After Taira Saburo's funeral ended and he returned Home, Taira Ryuta called his Mother, Jinmija.</p>
+<p>「Yes?」</p>
+<p>「By the way, how did you meet Taira Saburo, I mean, my Father?」</p>
+<p>Taira Ryuta couldn't understand. He was curious how Taira, the most renowned chaebol in Japan, and his Mother, Jinmija, had become involved.</p>
+<p>「I met your dad when I was a university student. I was a freshman, and your Father was also a freshman. Your dad couldn't make proper friends because of the Taira Family name. Everyone either feared him, tried to use him, or found him difficult. But I didn't care that your dad was a Taira. No matter how much of a Taira he was, he was just a rookie in society. That's how we became friends.」</p>
+<p>「Ah, you met in university.... Well, that makes the Age calculation right.」</p>
+<p>At Jinmija's Words, Taira Ryuta nodded, counting on his fingers. Then, as if curious, Taira Ryuta looked at his Mother.</p>
+<p>「If Taira Saburo went to university, it must have been a pretty good university, what university was it? And what Department?」</p>
+<p>「He attended Kanto University, Business Administration Department.」</p>
+<p>「My Mother wanted to be a Boss? She couldn't because of me.」</p>
+<p>Taira Ryuta looked at Jinmija with a slightly apologetic Expression. Jinmija smiled, looking at Taira Ryuta, then soon became lost in Memory.</p>
+<p>Taira Saburo resembled his Son, Taira Ryuta, in front of him, but he was a different Man. Unlike Ryuta, who was clearly of the Physical Class, Taira Saburo had a much more intellectual aura. Both his Mother and Father were smart, and she wondered why Taira Ryuta was like that, while simultaneously recalling their university days.</p>
+<p>The two, who belonged to the same club, eventually fell in love. Jinmija loved Taira Saburo's humility and Intellect, and Taira Saburo loved Jinmija's brilliance and confidence. After dating, they naturally spent the night together.</p>
+<p>「Saburo....」</p>
+<p>「Yoshiko (Beautiful Child)....」</p>
+<p>The two looked at each other, naked. Jinmija spread her Legs, accepting Taira Saburo's hot shaft, and as their bodies intertwined, they began to share their body temperature and passion.</p>
+<p>「Haaheut...! Saburo, Heueut Saburooo...!」</p>
+<p>「Yoshiko (Beautiful Child)...! Inside, it feels so good...!」</p>
+<p>「Heuheung...! I'm embarrassed, Heueung...!」</p>
+<p>The sex, exchanging their firsts, was clumsy but a truly pleasurable Intimate Experience. Once ignited, the two shared their love, mingling their bodies every time they met.</p>
+<p>「Does it feel good when I do this?」</p>
+<p>「Haaht! Yes, Heueut! Like that...! More, Haaheung♥ Do it moreee...!」</p>
+<p>「How about this?」</p>
+<p>「Eueuheung...! Saburo, it feels so good, Haaang!! Inside, Heueung! Moreee♥」</p>
+<p>「Heueung...! Does it feel good when I, Haaht! Move like thisss...!」</p>
+<p>「Keueeut...! It feels good, Yoshiko (Beautiful Child)!」</p>
+<p>Countless Passionate Times with Taira Saburo flashed through Jinmija's Head.</p>
+<p>「...Mom, Jinmija Yeosa!」</p>
+<p>Jinmija, who was deeply lost in old thoughts, only snapped back to reality and replied, "Huh?" when her Son called her with an Expression that seemed to ask what she was doing.</p>
+<p>「What were you thinking about that you didn't notice me calling you repeatedly?」</p>
+<p>「Oh, nothing at all!」</p>
+<p>At Taira Ryuta's Question, Jinmija's Face reddened, and she quickly waved her hand. Taira Ryuta opened his mouth at his Mother's strange Appearance.</p>
+<p>「But why did you two break up?」</p>
+<p>「We just did what we could... no, we both had our own circumstances. Your dad had to study abroad, and my grades were getting risky, so we broke up without any lingering feelings. Only....」</p>
+<p>「Only?」</p>
+<p>「I didn't know you were in my belly at the Last.」</p>
+<p>At Jinmija's Words, Taira Ryuta nodded, saying, "Ah, I see." As is common with first relationships in university, their relationship didn't last long. They dated from the middle of their freshman year and broke up in their final semester.</p>
+<p>Taira Saburo was busy preparing to study abroad, and Jinmija also had to manage her grades. So, they naturally broke up, and Taira Saburo boarded an Airplane to study abroad. Jinmija didn't know that Taira Ryuta was in her belly until then.</p>
+<p>Thus, Jinmija gave birth to Taira Ryuta alone, and Taira Saburo, learning later, offered to Marry her to take Responsibility, but Jinmija and Taira Saburo were no longer in love. And Jinmija, knowing the brutality of the Tairaga's succession struggle, did not want to enter a Family where there was no love and where her Son might be in Danger.</p>
+<p>She decided to raise her Son alone, thinking it would be better for Taira Ryuta's Safety, even if she had to raise him by herself. Taira Saburo respected Jinmija's thoughts and never sought her out again to ensure his Son's Safety, so his Siblings wouldn't find out. However, he consistently sent Child Support every month.</p>
+<p>Sometimes it was hard raising a child alone, but Jinmija still had no Regret.</p>
+<p>「Mom, thank you. For raising me so well by yourself.」</p>
+<p>Because her Son had grown up so dependably.</p>
+<p>「What's with you suddenly~? Now do you truly understand the greatness of this Jinmija Yeosa?」</p>
+<p>Embarrassed by her Son's Words, Jinmija overreacted and praised herself. Taira Ryuta laughed heartily, watching Jinmija.</p>
+<p>「Jinmija Yeosa, just wait a little. Your Son will start a company for you, so you'll be able to do the Management you dreamed of.」</p>
+<p>And then, as if embarrassed, he went into his room. Jinmija thought at the time that Taira Ryuta was just saying Words. Any child would boast about making their Parents live in luxury, after all.</p>
+<p>Still, she had a slight Expectation, and now that her Son was part of the Taira Group, she thought he might start a small company for his Mother in a few years.</p>
+<p>A few months later, Jinmija had become the Boss of a company much larger than she had imagined.</p>
+<p>Jinmija-ssi B-cut~!</p>
+<p>A practice Illustration that made me think, 'Ah, I need to undress her and make her a bit younger.'</p>
+<p>Jinmija Yeosa was quite something when she was young, kkeuk kkeuk.</p>
+<p>1000th Chapter Anniversary Illustrations~!</p>
+<p>TheDreaming-nim requested: 1. Naked Karen and Yurie having Subway sex while pressing their breasts against the glass. 2. Naked Shido Tsubaki having daytime park sex.</p>
+<p>I tried to make them feel like a continuation of a Story, kkeuk kkeuk.</p>
+<p>Gojoy-nim requested for Taira: 1. Camilla samba dance (full body) 2. Camilla's decisive underwear with a Bedroom background.</p>
 <p>1.</p>
 <p>2.</p>
+<p>IseibuI-nim requested: Nae and Arisu sitting cross-legged on a bed at night, wearing translucent Negligee and Seduction (including bare Feet).</p>
+<p>Starting with Nae~!</p>
+<p>Arisu~!</p>
+<p>Chomise-meonji-nim requested: 1. Liz lying naked on the bed, covering her Pussy with her Legs and raising both hands towards her Head. 2. Liz wearing the Nagumo attire from Chapter 995.</p>
+<p>1.</p>
+<p>The Illustration I showed in the previous chapter was actually a requested Illustration, kkeuk kkeuk.</p>
+<p>2.</p>
+<p>The last one, if upscaled to super large, might even make a dakimakura? kkeuk kkeuk</p>

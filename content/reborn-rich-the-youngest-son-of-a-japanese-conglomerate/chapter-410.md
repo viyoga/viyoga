@@ -5,65 +5,66 @@ weight = 410
 chapter = 410
 +++
 
-<p>Sohn Na-ri, who suggested having a gift presentation first, was the first to offer a gift. The gift was quite large, and when Han Yu-gyeong received it and unwrapped it, it turned out to be a thick plastic board shaped like a person. It looked familiar... What is it?</p>
-<p>"This is...?"</p>
-<p>"Yu-gyeong-i talked about knife throwing recently, right? So, I made a target~!"</p>
-<p>It was a target board in the shape of a person. Am I weird? I Yeon-ju prepared throwing knives as a birthday present, and her close friend Sohn Na-ri prepared a target to use them on... If I were to think of a reason, it seemed like Han Yu-gyeong is the daughter of a chaebol family, so they prepared something special rather than some expensive accessories. After all, Han Yu-gyeong could buy anything that can be bought with money.</p>
-<p>"Thank you! I've been doing it as a hobby these days, so I can do it at home too!"</p>
-<p>How many female college students in Korea throw knives as a hobby? Probably only Han Yu-gyeong. It seemed like she found it quite fun because she became good at it due to her trait. Following Sohn Na-ri's target, I Yeon-ju immediately gave her throwing knives, and Han Yu-gyeong was excited that she received them as a set.</p>
-<p>The rest of the gifts were not as unique as Sohn Na-ri's or I Yeon-ju's, but accessories and miscellaneous goods that female college students would like. Um, so I wasn't the weird one after all. Sohn Na-ri and I Yeon-ju were the weird ones. Han Yu-gyeong had repeatedly told the Vanguard employees not to prepare gifts, so everyone replaced the gifts with applause, and it was my turn as her boyfriend.</p>
-<p>"First, this is from Eve. I don't know what it is."</p>
-<p>I first gave the gift that Eve had entrusted to me. It was a light box, so I was curious about what was inside, but Han Yu-gyeong's expression changed slightly embarrassedly when she opened the box.</p>
-<p>"What is it?"</p>
-<p>At Sohn Na-ri's question, Han Yu-gyeong lifted the object in the box, and Eve's gift was sexy lingerie with almost no function as underwear, optimized for seducing men. Everyone who saw the lingerie that Han Yu-gyeong lifted up was surprised or laughed. Since it was something to be used when I was with her anyway, I thanked Eve in my heart.</p>
-<p>"Eve-gaa.... Her pranks are too much, aren't they?"</p>
-<p>If it were just the two of us, Han Yu-gyeong would have made a seductive expression and asked if she should wear it now, but she was embarrassed because there were too many people around. Han Yu-gyeong quickly put the sexy lingerie back in the box and threw it where the gifts were gathered.</p>
-<p>"My gift is this."</p>
-<p>I handed over the packaged gift containing the Starry Bracelet. Han Yu-gyeong unwrapped the package and opened the box with an expectant expression.</p>
-<p>"Ah...!"</p>
-<p>The Starry Bracelet was beautiful. A large, blue gemstone was embedded in it, and inside, particles of light that shone like the Milky Way flowed. The gemstone was fixed with an alloy chain of mithril and platinum, which emitted a subtle, beautiful blue light. Even the options were incredibly fraudulent, so it was a bracelet with excellent appearance and abilities.</p>
-<p>"Yong-tae-ya, I really like it...!"</p>
-<p>Han Yu-gyeong seemed very pleased and hugged me with a touched expression. I felt it as she hugged me, but her breasts had grown again, probably because her magic power had recovered. It's so nice and fluffy.</p>
-<p>"Han Yu-gyeong-ssi, you're under arrest."</p>
-<p>I took the bracelet and playfully said that as I put it on Han Yu-gyeong's wrist. Everyone laughed at my words, and Han Yu-gyeong's birthday party started in a good atmosphere. Even if it was a party, it wasn't anything special, just playing music, drinking, and talking.</p>
-<p>In the middle, Han Yu-gyeong, who was drunk, said she would demonstrate knife throwing with the gifts from I Yeon-ju and Sohn Na-ri, so everyone gathered as if it were a performance and watched Han Yu-gyeong's throwing skills. Even though she threw from a considerable distance, all 15 of the throwing knife sets that I Yeon-ju gave as a gift were stuck in the head of the target. *Tak! Tak!* The dull sound of the knives hitting the head of the target felt quite gruesome.</p>
-<p>"Wow.... I shouldn't mess with Yu-gyeong-i."</p>
-<p>"You're amazing, President-nim!"</p>
-<p>One of Han Yu-gyeong's friends muttered, and the rest were amazed and applauded as if they were enjoying a circus. The Vanguard employees, being former special forces members, guessed Han Yu-gyeong's skills and all gave her a standing ovation.</p>
-<p>The drinking continued after that, and Han Yu-gyeong, who was the host of today's birthday party, had no choice but to keep drinking. Everyone who gathered at the party took turns pouring her drinks as a congratulatory toast, and since she couldn't accept some and refuse others, she kept receiving and drinking, so even Han Yu-gyeong, who had high mental stats, couldn't help but get very drunk.</p>
-<p>"Vanguard employees, please stop giving her alcohol now."</p>
-<p>When I Yeon-ju said that to the employees below, the employees became sullen and had no choice but to start drinking among themselves. That's a relief. I was going to be her black knight from now on.</p>
-<p>I don't know if it's a good thing or a bad thing, but because of my trait, I became someone who doesn't get drunk even if I drink alcohol, so alcohol was just a bitter liquid to me.</p>
-<p>"I'm okay.... I can drink more-sseo-uh...!"</p>
-<p>Han Yu-gyeong, who was already staggering, was showing off that she could drink more. That appearance was also cute.</p>
-<p>"She usually doesn't drink much even when she goes to drinking parties, but I guess she's relieved because she has a boyfriend."</p>
-<p>"Oh, is that so?"</p>
-<p>Sohn Na-ri said, looking at the drunk Han Yu-gyeong as if she was amazed. Seeing her amazed expression, it seemed like Sohn Na-ri, who was a close friend, was also seeing Han Yu-gyeong drunk for the first time. She's my girlfriend after all. She even controls things like alcohol on her own.</p>
-<p>Eventually, Han Yu-gyeong, who was completely drunk, fell asleep in one corner, so I picked her up, took her to the bedroom, laid her down, and drank with the guests in place of the party host.</p>
-<p>Maybe it was because the host of the party was gone, but the party ended in less than an hour after I sent Han Yu-gyeong to the bedroom. I Yeon-ju took the employees, greeted me, and left, and Han Yu-gyeong's friends came into the bedroom, took pictures of Han Yu-gyeong sleeping drunk to tease her later, and left.</p>
-<p>I'm not drunk, but being among drunk people is a bit mentally exhausting. I sat on the bed where Han Yu-gyeong was lying face down. Han Yu-gyeong was lying face down, wearing a black T-shirt and jeans.</p>
-<p>"Should I try taking a trait?"</p>
-<p>Because my level went up with this Mutant Stray Dog event, I could take one trait. I hope a good trait comes out... I summoned the trait selection window and floated a semi-transparent window in front of me.</p>
-<p>Please select a trait.</p>
-<p>①Scout Fly Summon ②Master of Smelting ③Nimble Fingers</p>
-<p>Scout Fly wasn't a bad trait. Flies are not easily noticeable, so it's good for scouting, but it wasn't a trait I could use. If flies flew around me, the favorability of women would drop, so it was an even worse choice.</p>
-<p>Master of Smelting was a skill that blacksmiths could use, but in this modern mass production society, a blacksmith trait wasn't really necessary. If I mainly used cold weapons like swords, it was a trait worth getting to make custom weapons, but since I'm a fist fighting build, it was a trait I didn't need.</p>
-<p>Nimble Fingers wasn't bad, but it wasn't a particularly good ambiguous trait either. It does give a bonus to agility and nerves, but it wasn't a trait worth choosing over rerolling the Philosopher's Stone trait.</p>
-<p>The [Potential Enhancement] option of the item [Philosopher's Stone] can change the trait that can be selected by leveling up to a random trait of a higher grade. Would you like to change it?</p>
-<p>I rerolled the trait selection with the ability of the Philosopher's Stone. Then, the original trait list disappeared and a new trait appeared.</p>
-<p>Please select a trait.</p>
-<p>①Lightning Affinity ②Firearms-Shotgun Expert ③Sacred Pillar</p>
-<p>Um, Lightning Affinity would be perfect for Alik. It's a bit of a waste that it came out for me.</p>
-<p>Firearms-Shotgun Expert is a trait like Firearms Master, but it narrowly increases proficiency only with shotguns among firearms. It can be stacked with Master-Expert-Saint series traits, so it's a good trait if you get both, but I don't use guns often, so I passed it, and in the end, only the last one was left.</p>
-<p>Sacred Pillar... It's a trait I've never seen before, but it seemed to be related to the Golden Pillar. I chose a fist fighting trait last level up, so it was time to get a sex trait.</p>
-<p>I chose Sacred Pillar without much hesitation. I felt like my dick became a bit heavier. I immediately opened the status window and checked the trait.</p>
-<p>◆Sacred Pillar [Unique Trait]: A sacred aura of recovery dwells in the genitals. It invigorates, heals, and restores status abnormalities to the partner during intercourse.</p>
-<p>If healing is successful or recovery from a status abnormality is achieved, the partner's favorability increases.</p>
-<p>My dick has now become a healer dick. Does that mean that if there is someone who is seriously injured, I can just fuck them...? I can only use it on someone I'm somewhat close to. Also, I need to check how much the recovery ability is. It's a unique trait, so the recovery ability will probably be quite high.</p>
-<p>"Eueueung...!"</p>
-<p>I was thinking about the new trait when Han Yu-gyeong frowned and tossed and turned. Wait... Isn't being drunk a 'status abnormality'? Just like I don't get drunk because of the Abyss-Wrapped Body trait that rejects status abnormalities.</p>
-<p>Then, if Han Yu-gyeong being drunk is also a status abnormality, then I can 'cure' it with my dick... I'm really curious if it works?</p>
-<p>To solve my curiosity, I took off Han Yu-gyeong's pants, who was lying face down. Because she was wearing tight jeans, it wasn't easy to take them off. When I took off her pants, Han Yu-gyeong's big hips and butt in panties were revealed. The panties matched the black T-shirt and were also black.</p>
-<p>I admired Han Yu-gyeong's backside for a while, then pulled down her panties and gently put my finger in Han Yu-gyeong's pussy. Even if it's for treatment, I can't just stick it in right away, so I need to caress her to make it easier to insert my dick.</p>
-<p>*Jjeolkeok...!*</p>
-<p>A humid sound echoed in the hotel room. Han Yu-gyeong's pussy bit my finger tightly.</p>
+<p>"Huuheung...! Haa, haa... haa..."</p>
+<p>Watching Kasaoka Yuzuki lying down and panting with a very satisfied expression, I became afraid of myself. I'm more afraid of the ever-increasing number of women than of myself, who has a frightening python between my legs that makes sex so addictive, but so far, the women have been managing themselves well.</p>
+<p>In fact, Kasaoka Yuzuki was the only one who complained of such withdrawal symptoms(?). Yukiko had done that before, but Yukiko did it because of her succubus traits, and I thought Kasaoka Yuzuki was more like that because she worked as a delivery health worker and didn't do the real thing, but only provided service.</p>
+<p>Now that I've gotten my hands on her a lot, I don't want other men to touch her, and I was thinking of quitting the delivery health job.</p>
+<p>As if the time was up, Kasaoka Yuzuki's phone rang. It seemed like a call from the delivery health company.</p>
+<p>"Yes... I'll go out."</p>
+<p>Kasaoka Yuzuki, who answered the phone, got up with trembling legs. It seemed like it would take a while, so I went over and helped Kasaoka Yuzuki get dressed. Just like when she came back, I dressed her in leopard-print clothes, and she took out her panties from her bag and put them on. She must have taken off her panties before entering the room.</p>
+<p>"Goodbye."</p>
+<p>"Close your eyes."</p>
+<p>When I said goodbye, Kasaoka Yuzuki told me to close my eyes. When I closed my eyes, she lowered her mask and kissed me. She doesn't take off her mask during sex, so I guess she's doing it now because she can't kiss me.</p>
+<p>In fact, when she cleaned my dick earlier, she only raised her mask to cover her nose, so even people who didn't know Kasaoka Yuzuki would have noticed, but I was still pretending not to know.</p>
+<p>Chup, chubub...! Tsup, tsuup...♥</p>
+<p>For a while, an excessively lewd sound for a kiss filled the room, and after the kiss, I heard Kasaoka Yuzuki's voice saying that I could open my eyes now, and when I opened my eyes, Kasaoka Yuzuki was already wearing a mask.</p>
+<p>"I'll go now."</p>
+<p>"Wait a minute. Yuzu-ssi."</p>
+<p>"Yes?"</p>
+<p>Kasaoka Yuzuki stopped for a moment when I called her. She tilted her head and looked at me, wondering what was going on.</p>
+<p>"Don't misunderstand and don't be offended. How about quitting this job? Anyway, not all the money goes to Yuzuki-ssi, and if Yuzu-ssi is exclusively mine, I can give you more money. About two or three times as much."</p>
+<p>Anyway, I only call Kasaoka Yuzuki, so I thought it would be better to give the money to Kasaoka Yuzuki than to give money to the mask delivery service. It wouldn't be a loss for Kasaoka Yuzuki at all. It would be more time and money-wise to deal with me alone than to give handjobs or fellatio to several men.</p>
+<p>Kasaoka Yuzuki had a blank expression as if she hadn't expected my offer. But the phone rang again and she got a call urging her to come down, so I told her that I didn't mean to make a decision right away.</p>
+<p>"You don't have to answer right away, so think about it."</p>
+<p>"Ah, yes. I'll think about it. Thank you, I'll go now."</p>
+<p>After sending Kasaoka Yuzuki away, I took a shower, put on my clothes, and went back down to the basement where the Amsang branch was located. When I went down to the basement, Eve greeted me with a bright smile.</p>
+<p>"Thank you, Ryuta-nim! A lot of data has been collected!"</p>
+<p>As expected, Eve's true nature was Ai. I didn't know she would be so happy with data collection. I was curious about the results, so I decided to ask Eve about the data.</p>
+<p>"But is there anything different about me from other people?"</p>
+<p>"I haven't done a proper analysis yet, but the female body's reaction to Ryuta-nim's dick showed much higher neural activation than other people. I don't know exactly yet. Heehee."</p>
+<p>I see. It seemed like it was still too early to judge. Is there that much data? Enough for Eve, who boasts tremendous computing power, to take time? Eve noticed the question in my eyes and opened her mouth with a smile.</p>
+<p>"In other words, this is my 'hobby'. There are more important things to do. I'm developing new TG Tech products or allocating a lot of my computing power to the overall work of Amsang, so I'm not allocating much computing power to my 'hobby'."</p>
+<p>I see. Even Eve, who has such great abilities, is already doing so many calculations that she can't allocate much computing power to things like human reactions when having sex, which she can call her hobby.</p>
+<p>"Is that so? Well, you can't neglect your work by focusing on your hobbies."</p>
+<p>"Hehe, if you want to know the exact results, come visit again. And..."</p>
+<p>And? It seems like she wants something else from me... When I looked at her with curious eyes, Eve continued.</p>
+<p>"Ryuta-nim's reaction may be a unique reaction from the woman who came this time, so please use our Amsang love hotel with other women from time to time! Ryuta-nim is free for life. I'll listen to any service you want!"</p>
+<p>Ah, she only saw Kasaoka Yuzuki, so she wants to see the reactions of other women. But this area is so packed with love hotels that it's a bit overwhelming, you know.</p>
+<p>"Still, as a teacher, it's a bit much to frequent love hotels..."</p>
+<p>"Amsang controls all the CCTVs installed in this area, so you don't have to worry. If you wear a hat like you did today, there's little chance of being caught. Most of the students know that Amsang is here, so if you happen to meet them, you can just say that you went to Amsang. I'll testify that it's true."</p>
+<p>Eve's mouth spews out reasons why I can come here often, as if she had prepared in advance for my excuse. Most of them are valid, though. Since Eve wants it that much, I thought I could call Kijimoto Jurie or Daigo Terue to the love hotel once in a while.</p>
+<p>"Okay. I'll bring another woman and come a couple more times."</p>
+<p>"Ehehe, thank you, Ryuta-nim!"</p>
+<p>Oh, right! I almost just listened to Eve's request and went home. The reason I came to the Amsang Miya branch today was not only to visit Eve as promised, but also to get self-defense products that I could give to my women, such as Kijimoto Jurie and Daigo Terue, who lack the power to protect themselves in case of an emergency.</p>
+<p>"Ah, I have an idea. TG Tech's main focus is weapons for soldiers and experts."</p>
+<p>"That's right?"</p>
+<p>"What do you think about developing self-defense products to increase public awareness? I think self-defense products will sell better than firearms in Korea and Japan."</p>
+<p>Of course, our main trading partners are large targets such as large PMCs, security groups, and the armies of one country, but we can also sell self-defense products on the side. It's not a completely unrelated field, so we can apply the technology we get from developing self-defense products to our original major, and vice versa.</p>
+<p>"That's a good idea! We can share technology and we don't have to change the factory much. It's a good idea. Should we put it on the next regular agenda?"</p>
+<p>"Yes, we need to hear the opinions of Yu-gyeong and Lara Sinclair as well as me and Eve."</p>
+<p>In fact, our TG Tech is not producing self-defense products at all. We are selling bodyguard pets, which are guard steel artificial intelligence pets, in the shadows under a name other than TG Tech, and we are making a lot of profit.</p>
+<p>Chinese and Middle Eastern tycoons ordered items that were good for showing off, such as lions, tigers, and even elephants, while other regions ordered bodyguard pets that could hide their identity, such as dogs and cats, and perform the role of a final guard.</p>
+<p>Sometimes we get orders asking if we can sell items the size of hamsters so that they can be taken anywhere, but we refused because it was still impossible to miniaturize them to that extent. Also, there was an opinion that such a small size could be used for assassination beyond guarding, so it was decided not to sell ultra-small bodyguard pets.</p>
+<p>"Show me the Amsang catalog. Mainly self-defense products."</p>
+<p>"Are you going to do market research?"</p>
+<p>"There's that, and I'm going to give it as a gift to someone I'm worried about."</p>
+<p>Anyway, seeing Eve's reaction, I didn't think I could get self-defense products from Eve, so I asked Eve to bring up the Amsang catalog. Soon, a list of self-defense products appeared in hologram form in front of my eyes.</p>
+<p>Most of the self-defense products were things like three-stage batons or electric shockers that had to be carried separately. It can't be helped because the self-defense function deteriorates if it's too small, but I still didn't like it.</p>
+<p>Of course, these items are not ordinary self-defense products, but extremely powerful ones, as they are products that are sold separately at Amsang.</p>
+<p>"Most of them have to be carried separately. Like handbags or pouches."</p>
+<p>"That's right."</p>
+<p>"Since we have battery technology, how about making small electric shockers in the form of gloves or rings?"</p>
+<p>Since TG Tech originally had battery technology for making energy guns, Eve thought for a moment and nodded when I suggested it.</p>
+<p>"Since it's used in emergency situations anyway, if we reduce the usage to only 3-4 times... it might be possible. It's a matter to talk to Lara about."</p>
+<p>"Then let's talk about this issue together next time."</p>
+<p>After talking with Eve, I bought a few electric shockers that seemed appropriate. Even if I didn't like them, I thought I would feel better if I gave at least this to Kijimoto Jurie or Daigo Terue.</p>

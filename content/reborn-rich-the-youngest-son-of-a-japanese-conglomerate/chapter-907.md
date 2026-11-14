@@ -5,75 +5,73 @@ weight = 907
 chapter = 907
 +++
 
-<p>"Shameless bastard. You Hypnotized me, and now you invite me to Anyaji? Isn't that a truly Conscienceless action?" Seizawa Shii spat her Words at Funayama Seigo, but Funayama Seigo, with an Expression that said 'What's wrong with that?', pushed up his Glasses.</p>
-<p>"If you join our Anyaji, we will adequately compensate you for that. Our Organization treats its gang members so well that for outsiders, we can only offer an Apology."</p>
-<p>Naturally, it was Bullshit. Moreover, contrary to his Words, he didn't even properly Apologize. Seizawa Shii, after those Words, gave up on receiving an Apology from Funayama Seigo. Then, all that remained was to smash Funayama Seigo's Face with her Fists.</p>
-<p>Kwaaang!</p>
-<p>With just a kick of her Feet, a tremendous roar erupted, and as she closed the distance with Funayama Seigo, Seizawa Shii attempted a Superman Punch, extending her Fist straight out.</p>
-<p>Funayama Seigo hastily raised his Hand to block Seizawa Shii's Fist, but he couldn't block Seizawa Shii's Fist, which possessed Super Strength, without taking any Harm.</p>
-<p>"Kueuk!"</p>
-<p>Funayama Seigo's Hand, which had blocked Seizawa Shii's Fist, was pushed back, striking his nose and causing a gush of nosebleed. He needed to reset his broken nosebone, but Seizawa Shii's Attack didn't end. Seizawa Shii, after opening her Fist, grabbed Funayama Seigo's Wrist, which had been holding her Fist, and performed an over-the-shoulder throw.</p>
-<p>Kuung!</p>
-<p>Funayama Seigo crashed into the Ground, and the playground's sand shot up.</p>
-<p>"Keuheok!"</p>
-<p>Although Funayama Seigo had managed to perform a breakfall in that Moment, he was slammed onto the floor with such force that he felt the wrenching pain of his Internal Organs rattling.</p>
-<p>"I would be grateful if you would release my Hand...!"</p>
-<p>Funayama Seigo quickly formed hand seals with the Hand not caught by Seizawa Shii, and unleashed a Kotodama (Word Spirit) that confused the mind. It was a basic mental Attack, but having faced her before, he thought it would work because Seizawa Shii's Mental Defense was low compared to her martial arts Skill and physical Ability.</p>
-<p>"You know I get angry at that Hypnosis-like thing, and you still use it openly?"</p>
-<p>Killing Intent, as if Flames were erupting, blazed from Seizawa Shii's Eyes. Seeing that, Funayama Seigo thought, 'It's not working? This is getting difficult,' and slowly began to move his Body. He pulled Seizawa Shii's Arm, which was holding his Wrist, and climbed onto her. Then, moving like a snake, he got behind Seizawa Shii and began to twist her Elbow.</p>
-<p>Funayama Seigo was a Fist Technique practitioner of the ground-fighting style, favoring grappling techniques in Jujutsu. While chokes, joint locks, and pins are difficult techniques to use against top-tier martial artists who employ various Energy Manipulations, the fact that he held a seat among Anyaji's Four Heavenly Kings with such techniques meant that Funayama Seigo's ground techniques had reached a high Realm.</p>
-<p>Especially against Fighters who relied on brute strength like Seizawa Shii, he had almost never suffered Defeat, so in this Miyashi Attack, Funayama Seigo wanted to face Seizawa Shii once again. He thought he could easily win and thus easily achieve merit.</p>
-<p>In fact, he was confident he could finish her with mental Sorcery and hadn't expected it to come to a physical fight, but Funayama Seigo was confident he could defeat Seizawa Shii even in a physical fight. The position of an Anyaji Four Heavenly King could not be attained by Sorcery alone.</p>
-<p>"It might not hurt now, but if I just apply a little more...!"</p>
-<p>Udu-duk...!</p>
-<p>As Funayama Seigo applied force, an ominous sound came from Seizawa Shii's Elbow. Just as Funayama Seigo said, it seemed that if he applied a little more force, a serious Problem would occur in her Elbow.</p>
-<p>"Bullshit! I'm flexible, you know?"</p>
-<p>Seizawa Shii shouted and rotated her Shoulder and Arm. Seizawa Shii, too, hadn't been idle while waiting for this day.</p>
-<p>As if preparing for Funayama Seigo's mental Attack, she had heard about Funayama Seigo's combat style from Athena Mannerheim, and had sought out Jujutsu practitioners and Jiu-Jitsu athletes who used ground techniques, undergoing quite rigorous Training.</p>
-<p>Of course, a Layperson wouldn't have been able to learn much in such a short time, but Seizawa Shii, with her outstanding Talent, absorbed various Teachings quickly, like a sponge.</p>
-<p>Naturally, because the absolute time was short, Seizawa Shii hadn't reached the point where she could primarily use ground-fighting techniques, but she was capable enough to defend against her Opponent's techniques. Just as Seizawa Shii herself had said, she was quite flexible, so she could escape from techniques that an ordinary Person wouldn't be able to escape from, relatively easily.</p>
-<p>"I didn't know you were confident in Jujutsu too!"</p>
-<p>Of course, Funayama Seigo was not one to simply watch Seizawa Shii try to escape his choke. He moved back and forth according to Seizawa Shii's movements, and in different positions, he was choking or twisting Seizawa Shii's various joints.</p>
-<p>"Byeontae bastard! Get off me, you pervert!!"</p>
-<p>Seizawa Shii, too, moved incessantly as she had learned, shouting at Funayama Seigo. In truth, Seizawa Shii preferred striking battles where she could smash her Opponents, so even though she had practiced beforehand, this Situation was not particularly enjoyable.</p>
-<p>In the same orphanage playground, Genpaku, who was tearing up the playground with immense power, and Sakagami Rena, who was moving dazzlingly, throwing Surigeom, or using flashy Ninjutsu, were engaged in a splendid and fierce battle. In contrast, Seizawa Shii and Funayama Seigo's battle was a sweaty, ground-based swamp fight.</p>
-<p>"Aaaah! Let go!"</p>
-<p>"Huhuhu! If you agree to join Anyaji, I'll let you go."</p>
-<p>In fact, Funayama Seigo was at Leisure. Because he didn't think Genpaku would lose to Sakagami Rena, he was leisurely waiting for Seizawa Shii to become completely exhausted.</p>
-<p>No matter how much Seizawa Shii displayed unexpected ground Skill, it was a pathetic Skill compared to his own, honed over a lifetime of Training, so even the seemingly evenly matched fight now was Funayama Seigo's Intention.</p>
-<p>But that was Funayama Seigo's blunder.</p>
-<p>The two, who had been engaged in a muddy fight for a long time, one trying to escape the ground and the other preventing it, heard a Swaeeaaek sound of wind cutting through the air.</p>
-<p>Just then, because they were in a Position looking up at the sky, Seizawa Shii and Funayama Seigo could spot the Arrow flying from the rooftop of the adjacent building.</p>
-<p>Deep Thrust! With a chilling sound, the Arrow pierced Genpaku's massive Body.</p>
-<p>"Kueuaaaaaaah!!"</p>
-<p>Genpaku, as if feeling agonizing pain from what seemed to be no ordinary Arrow. Funayama Seigo was flustered by the sudden Situation. He had clearly heard from the information broker Kyoshiro that there would be no Support forces other than Seizawa Shii and Sakagami Rena, hadn't he? Seizawa Shii didn't miss the Gap in Funayama Seigo's fluster.</p>
-<p>Seizawa Shii, escaping from Funayama Seigo's Embrace like a loach, brushed off the sand, then looked at Funayama Seigo with an Expression that said, 'Now you're dead.'</p>
-<p>"I was going to beat you to Death by myself, but now it's 2-on-1, no... 3-on-1, isn't it?"</p>
-<p>Seizawa Shii glanced at Sakagami Rena, who was delivering the final blow to Genpaku, and spoke. Though she hated to admit it, Seizawa Shii was still not confident she could defeat Funayama Seigo. Even if she attacked with striking techniques, Funayama Seigo would grab her attacking Arm or Legs and cling to her again.</p>
-<p>However, Sakagami Rena and Urabe Konoka, who could perform ranged Attacks, had a favorable Compatibility/Affinity against Funayama Seigo, who had to cling and engage in Melee Combat.</p>
-<p>"Well.... I didn't expect Guardian Genpaku to fall to that ninja, but it's still too early to guarantee Victory."</p>
-<p>As Funayama Seigo raised his Hand, Anyaji monks in splendid robes appeared from somewhere. Among them, alongside the Anyaji monks Seizawa Shii knew, came individuals in somewhat different attire; unlike the Anyaji monks in simple robes resembling Martial Arts Uniforms, these wore quite ornate Kasaya (Buddhist robes).</p>
-<p>There were about twenty monks, and a considerable number, about fifteen, of monks in ornate Kasaya.</p>
-<p>Allow me to introduce them. You probably already know our Anyaji monks... These are the Anyaji Esoteric Monks (密法僧), under my direct supervision and that of my Sabu-nim.</p>
-<p>The Esoteric Monks were members of Anyaji who practiced esoteric magic, using wicked Sorcery, and were subordinate to Hojo Otoji and Funayama Seigo.</p>
-<p>Originally, their main Role was combat support for the Anyaji monks, but in Anyaji, which revered martial arts, Esoteric Monks who used Sorcery did not hold a particularly high Status. However, when Hojo Otoji, who was favorable to Sorcery, became Anyaji's second-in-command, they became something akin to Hojo Otoji's direct unit.</p>
-<p>After that, instead of combat support, they performed tasks such as casting Curses on dangerous Enemies, or Brainwashing the children of kidnapped Japanese high-ranking officials.</p>
-<p>"Since it has come to this, I have no Choice but to give up on Seizawa-ssi. Regrettably, since I have lost one Guardian, I, too, have no Choice but to take your life."</p>
-<p>Funayama Seigo snapped his Fingers as if he had no Choice. Then, the Anyaji Esoteric Monks began chanting an ominous Order.</p>
-<p>The Anyaji Esoteric Monks focused their mental Attacks on Seizawa Shii, but thanks to various Training sessions to increase her Mental Power, and a mental Protection Talisman located in the Cleavage of her cyber Suit, she was able to withstand the Esoteric Monks' mental Attacks.</p>
-<p>"Ah, and some of the monks who came with me, go to the rooftop from where the Arrow flew and kill the one who shot it."</p>
-<p>Funayama Seigo, as if he had just remembered, Commanded the Anyaji monks who had appeared with the Esoteric Monks. Five Anyaji monks, after bowing in response to Funayama Seigo's Command, ran towards the Entrance of the abandoned orphanage.</p>
-<p>Kwaaang!</p>
-<p>The five monks who were running were caught in the explosion that occurred at the Entrance of the abandoned orphanage and died. Because it was a considerably large explosion that would be difficult for an ordinary Person to withstand, even the highly trained Anyaji monks could not stop the Touch of Death.</p>
-<p>Requested by DoubleBarrelShotgun-nim: Wedding Dress Liz~!</p>
-<p>Kkiyoooot~!!</p>
-<p>Requested by Gojoy-nim: Succubus Yukiko Belly Dancer and Tape Attire~!</p>
-<p>Belly Dancer~!</p>
-<p>Tape~!</p>
-<p>Requested by ISaveI-nim: Angewomon Cosplay Konoka~! Naruto Ninja Attire Lena~!`</p>
-<p>Konoka first~!</p>
-<p>Lena~!</p>
-<p>I wondered if this fit the Naruto vibe, so I tried a different Style hehe.</p>
-<p>Kkiyot~!!</p>
-<p>Requested by MidNightSKY-nim: Child Linling looking at the night sky~!!</p>
-<p>Her Expression is blank, but she's floating because she's in a good Mood hehe.</p>
+<p>Chwaaaak!</p>
+<p>Fujigasaki Rinka leaped up, and at that very moment, flesh tentacles burst out from the piles of corpses scattered across the clearing.</p>
+<p>Fujigasaki Rinka changed the trajectory of her hand, which she had intended to swing at Takakusaki Gengo, trying to bat away the tentacles, but Takakusaki Gengo stretched out his hand, attempting to fix them in empty space, just as he had done to the Gwonmaeng Fist Masters.</p>
+<p>At that moment, Lizhael's Blessing, bestowed by Urabe Konoka and Hanakame, activated. Lizhael's unique indigo Aura, sparkling like stars, repelled Takakusaki Gengo's intangible Aura.</p>
+<p>As expected, seeing it repelled by Lizhael's Aura, Takakusaki Gengo's power was not Telekinesis. It seemed he was using some kind of Divine Power. I still didn't know what it was. Still, it was Fortunate that they could block that Telekinesis-like technique. I had been worried about how they would block it. If so, even with the support of the tentacles, Fujigasaki Rinka wouldn't be significantly pushed back.</p>
+<p>Just because Takakusaki Gengo stole Shinkai Yatsude, I thought he would be able to use the Abyss, but that didn't seem to be the case either. This was because the Aura felt whenever Takakusaki Gengo exerted his power was different from the Abyss.</p>
+<p>「This isn't over yet...!」</p>
+<p>Takakusaki Gengo wasn't surprised even after seeing his power repelled. It seemed he had a Plan B prepared for such a situation.</p>
+<p>Takakusaki Gengo abandoned his arrogant perch on the Altar, stood up, and rushed at Fujigasaki Rinka.</p>
+<p>Facing Takakusaki Gengo and numerous tentacles simultaneously, Fujigasaki Rinka was at a disadvantage. Takakusaki Gengo alone was almost her equal in Skill, and having to deal with these unidentified flesh tentacles as well, it seemed like she was fighting a somewhat unfavorable battle. Still, I had a Belief that my Sabu, Fujigasaki Rinka, wouldn't be easily defeated.</p>
+<p>"Let's help the Divine Fist!"</p>
+<p>The Gwonmaeng Fist Masters, perhaps thinking of helping Fujigasaki Rinka, who was being jointly attacked by tentacles, contrary to my thoughts, the remaining Gwonmaeng Fist Masters rushed at Takakusaki Gengo. They were saying they would help immediately, just seconds after the tentacles burst out, and I wondered if it wasn't overly hasty.</p>
+<p>「I already said I wouldn't forgive anyone causing a Commotion in the shrine...!」</p>
+<p>Of course, Guardian Hall Master Numagoori Kaneshige, the only person on Takakusaki Gengo's side, also didn't stand idly by. He blocked the Gwonmaeng Fist Masters from interfering with Takakusaki Gengo and Fujigasaki Rinka's battle.</p>
+<p>Although he was an Elderly Person with a white beard reaching his Solar Plexus, Numagoori Kaneshige's Skill was formidable. His Physique wasn't particularly large, just average, yet his physical Ability was strangely outstanding. He picked up the Gwonmaeng Fist Masters who rushed at him, throwing them around as if they were pebbles.</p>
+<p>「Didn't you say his Skill wasn't very impressive for a Guardian Hall Master?」</p>
+<p>I said, looking at Musashi Takuro and Athena Mannerheim, who had explained Numagoori Kaneshige to me. They had clearly said that Guardian Hall Master Numagoori Kaneshige's Skill wasn't very impressive. I had listened to their words and watched him for a moment, thinking he was weak, but I hadn't known he possessed this level of Skill.</p>
+<p>「I, I didn't know he was that strong.」</p>
+<p>In fact, though they were being disgracefully defeated right now, those Gwonmaeng Fist Masters were the team that, along with old man Yoda, killed Hojo Otoji, Anyaji's second-in-command. If so, they should have been able to defeat Numagoori Kaneshige, who was rated as weaker than him, but he was practically toying with them, like an Adult playing with Children, so Musashi Takuro, witnessing it firsthand, couldn't help but stammer in surprise.</p>
+<p>「We can't just leave it to the Gwonmaeng Fist Masters like this. Let's step in soon.」</p>
+<p>As I spoke, rotating my Wrist, Musashi Takuro wore a slightly reluctant Expression. Since Musashi Takuro's grudge was against Takakusaki Gengo, not Anyaji, it seemed awkward for him to attack Numagoori Kaneshige, who was from the same affiliation.</p>
+<p>「Are you reluctant to attack because he's also a Guardian?」</p>
+<p>「That's not it. I just thought this was the perfect opportunity to save Kiyohira.」</p>
+<p>Ah! Kiyohira was here. I had momentarily forgotten my friend in the current Situation, but as expected of a Sabu, he hadn't forgotten Kiyohira until the end.</p>
+<p>As Musashi Takuro said, the Gwonmaeng Fist Masters were already distracting Numagoori Kaneshige, and Takakusaki Gengo was fiercely fighting Fujigasaki Rinka, so this was the perfect Timing to rescue Kiyohira.</p>
+<p>「You're right. Let's rescue Kiyohira first.」</p>
+<p>「I was going to go alone.」</p>
+<p>「Let's go together, in case anything happens. He's my friend too, so I won't let him get hurt.」</p>
+<p>Tentacles were already bursting from the piles of corpses and attacking Fujigasaki Rinka, and Kiyohira was abandoned close to the piles of corpses, so I couldn't send Musashi Takuro alone, not knowing what might happen.</p>
+<p>At my Words, Musashi Takuro nodded his Head and ran towards the pile of corpses where Genba Kiyohira lay. Since it was quite a large clearing, there was no one to interfere except for the Altar area where people were gathered, so they quickly reached the Place where Kiyohira lay.</p>
+<p>「He's not dead.... But...」</p>
+<p>Musashi Takuro said with a bitter Expression. Curious why he wore such an Expression after rescuing his Disciple, I approached and saw that less than half a day had passed since his Arm was torn off, yet the wound was severely damaged. The hygiene here at the shrine was indeed problematic. Although my nose was numb now, a rotting Smell had persisted since we entered. At this rate, it seemed impossible to reattach his Arm...</p>
+<p>「Cyber implants are very advanced these days. He can continue his life as a Fist Technique practitioner, so let's take him...!」</p>
+<p>Paaat!</p>
+<p>While I was speaking to reassure Musashi Takuro, another tentacle suddenly burst from the pile of corpses. I pushed Musashi Takuro, who was holding Kiyohira, and swung my Fist at the tentacle.</p>
+<p>Jjeong!</p>
+<p>「Kueugh...!」</p>
+<p>It felt like hitting a lump of iron, not a tentacle. My hand felt a bit numb. Although it was a sudden strike and I hadn't imbued it with Aura, the power of my straight punch was by no means weak, yet the tentacle appeared unharmed, having taken no significant damage.</p>
+<p>Is Sabu fighting dozens of these things plus Takakusaki Gengo?</p>
+<p>As I retreated with Musashi Takuro, I looked at Fujigasaki Rinka, who was engaged in a fierce battle. She didn't seem injured, but her Expression looked grim. Of course, due to the flickering torches, the Expression I saw on Sabu's face might not have been accurate.</p>
+<p>「Jurie-sensei, I Request you...!」</p>
+<p>In today's battle, I entrusted Kiyohira to Kijimoto Jurie, who was acting as the medic. Kijimoto Jurie, seemingly unafraid of the current Situation, was watching the battle with an intrigued Expression.</p>
+<p>「Leave it to me! I'll keep your friend alive!」</p>
+<p>Speaking while holding a syringe filled with ominous-looking green liquid, it made me a bit uneasy, but I had no choice but to trust her.</p>
+<p>After entrusting Kiyohira to Kijimoto Jurie, when I returned to my original Place with Musashi Takuro, Athena Mannerheim's Expression was grim.</p>
+<p>「What's wrong?」</p>
+<p>In response to my Question, Athena Mannerheim spoke with an urgent Expression. What on earth was happening? Looking at the fight, it seemed no different from before... Still, I needed to know what was happening to properly help, so I decided to ask Athena Mannerheim a little more.</p>
+<p>「Please give me an Explanation.」</p>
+<p>「I thought something was strange. I trained over a hundred White Light Fist Masters. But only thirty White Light Fist Masters went to Fujigasaki Rinka during today's Operation, and I went to you instead of the White Light Fist Masters. So where are the remaining seventy White Light Fist Masters?」</p>
+<p>At Athena Mannerheim's Words, I shook my Head, as if I didn't know. When we arrived at the clearing with the Altar, there were only two enemies. Even if I didn't have observation or Sensation Traits, if there were seventy additional enemies, I would surely have felt something, but I felt nothing.</p>
+<p>Athena Mannerheim raised her hand with her Index Finger extended, pointing at Takakusaki Gengo.</p>
+<p>「I'm feeling a power similar to my White Light from Takakusaki Gengo. He probably absorbed the Aura of all seventy White Light Fist Masters. This Aura leaves almost no trace, so it won't be easily felt by anyone other than me or an Abyss user, who is its antithesis.」</p>
+<p>Seventy White Light Fist Masters? In truth, I hadn't directly faced an enemy called a White Light Fist Master, so I didn't know how much Aura they possessed, but with a number like seventy, not just one or two, it would surely be a Threat even to Sabu Fujigasaki Rinka.</p>
+<p>And among those present here, the only ones who could feel the power of that White Light were Athena Mannerheim, the owner of that Aura, and Fujigasaki Rinka, an Abyss user who directly receives the debuff of White Light. The rest didn't even know Takakusaki Gengo was using that Aura.</p>
+<p>A power that leaves almost no trace... I had felt Athena Mannerheim's Presence was faint since I first met her, and it was probably due to this White Light power.</p>
+<p>「That's Dangerous. I should go help Sabu.」</p>
+<p>As I, having heard the full Explanation, was about to push off the Ground and leap up to help Fujigasaki Rinka, my Eyes met Takakusaki Gengo's. Takakusaki Gengo pulled up the Corner of his Mouth and smiled. It was an Expression that said I couldn't save Sabu no matter when I stepped in. The moment I saw that Smile, Goosebumps erupted on my Skin.</p>
+<p>It was a Delusion-like thought, but I felt that Takakusaki Gengo knew everything inside this Cliff shrine as intimately as if it were his own belly. It felt as if he had been waiting for me to Attack in support of Sabu. And the Confidence that he could render such support attempts futile at any moment was palpable in that Smile.</p>
+<p>And as if that Feeling wasn't wrong, when I pushed off the Ground and leaped up, dozens of tentacles attacking Fujigasaki Rinka, and an explosive White Light burst from Takakusaki Gengo.</p>
+<p>After an Instant, when the Light ceased, Sabu Fujigasaki Rinka was caught by the tentacles.</p>
+<p>「If you let your guard down just because it's in Darkness, this is what happens.」</p>
+<p>Takakusaki Gengo, who had muttered while looking at Fujigasaki Rinka, now opened his mouth, looking at everyone gathered before the Altar.</p>
+<p>「All of you, be proud of yourselves! For you shall witness the birth of a God!!」</p>
+<p>Takakusaki Gengo's Voice was filled with Bliss. And from Fujigasaki Rinka's Crown of the head, the Aura of the Abyss drained out, and was seen being absorbed by Takakusaki Gengo.</p>
+<p>Nagumo Sian's Dongtan Dress and Missy look style, requested by Gojoy-nim... I also didn't know the exact difference between the two, so I searched on Wiki and found that 「Missy look is a fashion that emphasizes a mature yet sophisticated physique...」 and so on, and the Dongtan Dress felt like a sub-category of the Missy look style haha. So, I roughly made the Missy look into a form-fitting Dress, excluding the Dongtan Dress we commonly know haha.</p>
+<p>Dongtan~!</p>
+<p>I've done Dongtan a lot so far, so just two images...</p>
+<p>Missy look~!</p>
+<p>Kkiyot!</p>
+<p>Other requests, due to the limitations of the model requiring Learning, the drawings couldn't be created ㅠㅠ.</p>

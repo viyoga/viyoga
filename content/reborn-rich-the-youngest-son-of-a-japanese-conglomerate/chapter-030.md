@@ -5,73 +5,56 @@ weight = 30
 chapter = 30
 +++
 
-<p>Fortunately, Taira Danjo appeared with his entourage at that moment, preventing the unfortunate event of my pants pitching a tent. Hmm, I need to buy some good underwear. Something that doesn't show even when it gets bigger.</p>
-<p>Beside Taira Danjo stood a graceful woman who looked to be in her early forties and a girl in a school uniform. Behind them were a bunch of attendants. Anyway, that school uniform girl is pretty.</p>
-<p>I had seen the woman who looked to be in her early forties on the internet before. She was Taira Danjo's current wife, Taira Saburo's mother, and my grandmother.</p>
-<p>Her name is Taira Shizuku. She married Taira Danjo at the age of 18 and is currently 59 years old. She looks like she's in her early forties, so she must spend a lot of money on her face. Well, Taira Danjo-halbae also looks like he's in his mid-50s, but he's 82 years old. The Taira Group's technology must be amazing.</p>
-<p>I heard that she collapsed from the shock of her son's death at the funeral, but it seems she has recovered now.</p>
-<p>But who is that high school student wearing a school uniform next to her? Before my question could end, Taira Danjo looked at me and his eyes lit up.</p>
-<p>"Hmm! You've gotten taller, and your face seems to have changed a bit...."</p>
-<p>"I think it's because I ate medicinal herbs in the mountains."</p>
-<p>Unlike the other uncles and cousins, Taira Danjo has an expression that says, 'That's possible.' It seemed like he knew about the existence of elixirs that could change a person's body because he had a lot of experience.</p>
-<p>"Wife, this guy is Saburo's son."</p>
-<p>"Saburo's...?"</p>
-<p>When Taira Shizuku realized that I was Saburo's son, that is, her grandson, she rushed over and stroked my cheek. With tears welling up in her eyes, she asked, 'Are you Saburo's son?' so I nodded my head in a daze.</p>
-<p>"Yes, my name is Taira Ryuta."</p>
-<p>"Ryuta.... That's a good name.... Kanna, come here. This is your nephew. Saburo-oppa's son."</p>
-<p>Taira Shizuku gestures for the school uniform girl to come over. By the way, I'm a nephew? Then that means she's my dead father's younger sister and Taira Danjo's late-born youngest daughter? This halbae is incredibly vigorous. When I looked at Taira Danjo, Taira Danjo gave a 'Hut' smile.</p>
-<p>Taira Kanna.... She's underage, so it's a no-go, but she has a great body and is a beautiful girl with a side ponytail. You could say she has a delicate feeling that makes you want to protect her?</p>
-<p>"Ah, hello...."</p>
-<p>"Yes, hello."</p>
-<p>She stuttered a bit when she saw me, so I wondered if she was scared because I was so big? But judging from the way she kept glancing at my face, that wasn't it.</p>
-<p>"Since you are Saburo's son, stand next to us."</p>
-<p>"Yes."</p>
-<p>With Taira Danjo's words, Taira Shizuku took my hand and headed to the very front. Hmm.... I don't know if I'm thinking too hastily, but it doesn't seem like Taira Saburo was killed by the Minamoto family, who are rivals of the Tairaga. It seemed like he was killed by someone from the Taira Group, someone who even had the 'Taira' surname.</p>
-<p>Taira Saburo was the youngest of Taira Danjo's sons, but since he would be protected by Taira Shizuku, the biggest elder in the family besides Taira Danjo, he would have emerged as a strong rival to Taira Ichiro, Taira Jiro, and Taira Kokoro, who were aiming to be the next Chairman.</p>
-<p>One, two, or all three of them, feeling a sense of crisis about that, would have wished for Taira Saburo's death. And a week ago, Taira Saburo died as they wished.</p>
-<p>If that's the case, isn't it dangerous for me, who suddenly appeared as Taira Saburo's son? First of all, I shouldn't act out and should just diligently attend the Human Resources Development Institute.</p>
-<p>The ancestral rites were held at the Taira family's cemetery behind the main house. Taira Danjo, Taira Shizuku, Taira Saburo's widow Taira Yukiko, I, and Taira Kanna stood at the very front, the rest of the family followed behind, and those who were not from the Taira family followed at the very end.</p>
-<p>We sprinkled clean water on the cleanest tombstone, which was the most recently made among the numerous tombstones. Then, the monk who came with us came forward and chanted Buddhist scriptures. I don't believe in religion, so I don't know what he's saying, but it must be something good.</p>
-<p>The ancestral rites were over when the monk finished reciting the Buddhist scriptures. But even after the chanting was over, Taira Shizuku shed tears and stroked the tombstone, saying, 'Saburo-ya.' I could understand her grief since her son had died.</p>
-<p>"Ahem, let's go inside now, wife."</p>
-<p>"Yes, sob...."</p>
-<p>It was hard to watch parents grieving for their dead child. Even Taira Danjo, who wouldn't bleed even if you pricked him with a needle, didn't show it, but judging from the redness in his eyes, it seemed like he was grieving over his son's death.</p>
-<p>The people of the Tairaga who returned to the main house all had lunch together. It was a stiff meal where Taira Danjo asked questions and the person who received the question answered. Still, the food is delicious. If the food wasn't delicious, I would have gotten indigestion because of the atmosphere.</p>
-<p>"Ichiro, the results in the trading division aren't very good. Do you have any ideas?"</p>
-<p>"The economy isn't good.... I'm watching it for now, Father."</p>
-<p>If it were a scene from a drama about the youngest son of a mega-corp, it would have been an answer that would have made him scream, but Taira Danjo just looked at Taira Ichiro with cold eyes and clicked his tongue. Tsk.</p>
-<p>"Jiro, the steel industry is doing well, so take charge of shipbuilding as well."</p>
-<p>Ah, this halbae is expressing his dissatisfaction by assigning work to his rival. In some ways, he had a more terrifying personality than someone who screams in a drama.</p>
-<p>"Thank you, I'll do my best!"</p>
-<p>"Shipbuilding is being pushed back by Korea and China, but try to nurture it well."</p>
-<p>Is it Taira Kokoro's turn now? Since the main contenders vying for the Taira family's succession are Taira Danjo's three siblings, Taira Kokoro must be expecting something as well.</p>
-<p>"Is the entertainment side still being split evenly with the Minamoto side?"</p>
-<p>"To be exact, the side where the Taira family's influence reaches is about forty percent, and Minamoto is less than thirty percent, Father. The rest are places where neither side has any influence."</p>
-<p>"Hmm.... We can't lose to Minamoto."</p>
-<p>"I understand, Father."</p>
-<p>Taira Kokoro chuckled quietly. It was a better result than Taira Ichiro, the eldest son who received unspoken criticism, even though he didn't gain anything like Taira Jiro. The quiet meal started again, and Taira Danjo spoke to Taira Saburo's widow, Taira Yukiko.</p>
-<p>"Is the work at the Human Resources Development Institute going well?"</p>
-<p>"Yes, Father. I am always teaching the Taira Group employees to the best of my ability."</p>
-<p>"Yes, your 'son' Ryuta will be attending the Human Resources Development Institute starting the week after next, so be aware of that."</p>
-<p>It seemed like Taira Yukiko was in charge of the Human Resources Development Institute. Taira Yukiko glanced at me at Taira Danjo's words. I bowed my head slightly. She told me to call her 'Mother,' but since she's my boss, I should make a good impression.</p>
-<p>After that, Taira Danjo spoke to the Fitzgerald family and decided to invest in Oliver Fitzgerald's company. While coming to the main house, Arisu Fitzgerald told me about her parents, so I searched them up on the internet and found out that Oliver Fitzgerald was also the president of a company called Taron, which was a rising company in the United States, although not on the same level as the Taira family. Uh...? Taron? I definitely heard that somewhere before.... I can't remember right now.</p>
-<p>After that, Taira Danjo showed the usual grandfather-like appearance of asking about his grandchildren's daily lives. But the grandchildren who received the questions boasted about their achievements in order to make a better impression on their grandfather, saying things like what grades they received and that they received good evaluations for the opinions they gave at the company.</p>
-<p>I don't have anything to show off, and because of the hypothesis that Saburo was killed by none other than someone from the Taira family, I shouldn't stand out, so I'll just say that I had a fun trip.</p>
-<p>"Ryuta, what did you do during your week off this time?"</p>
-<p>Finally, my turn has come.</p>
-<p>"I thought I wouldn't have a chance to travel once I joined the company, so I enjoyed traveling and came back. Ah, here's a travel gift, Grandfather."</p>
-<p>I took out a box containing ten stick-type red ginsengs from my pocket and handed it to the servant who was waiting behind me. The servant took the red ginseng box and handed it to Taira Danjo. Taira Danjo had already finished his meal, so he took out a stick from the red ginseng box and sucked on it.</p>
-<p>"Hahaha, you're the only one of my youngest grandsons who thinks about my health!"</p>
-<p>Jjirit! The gazes of the uncles and aunt who were aiming to be the next Chairman were too piercing. Still, I had to buy this much of a gift when I went on a trip, but was it a mistake? I vowed not to act out too much earlier, but I need to engrave it deeper in my heart.</p>
-<p>The eventful Taira family lunch time ended and everyone headed to their respective homes. I was about to go outside as well, but an employee blocked my path.</p>
-<p>"Doryeon-nim, the Chairman is looking for you."</p>
-<p>Ah, I shouldn't act out anymore.... First, let's follow the employee. It was the place where I had a private meeting with Taira Danjo before.</p>
-<p>"You stupid bastard! Are you an animal or a human, just putting anything in your mouth that looks good for you?"</p>
-<p>Taira Danjo shouted as soon as I came in. It was like my mom was scolding me because she thought I picked up anything and ate it and grew so big.</p>
-<p>"Put out your hand."</p>
-<p>"Yes..."</p>
-<p>When I put out my hand, Taira Danjo's employee put a long, slender silver machine about the size of a pencil on my finger.</p>
-<p>Ttakkeum!</p>
-<p>What, are they drawing blood? The employee checked the results after about three minutes, as if the results came out quickly, and nodded to Hal-abeoji.</p>
-<p>"It seems like there's nothing wrong. You can go now."</p>
-<p>I was dumbfounded as I was kicked out of Taira Danjo's room. Did he call me because he was worried about my body? He's not a tsundere old man, is he?</p>
+<p>"As I mentioned yesterday, today is Taira Ryuta-ssi's welcome dinner. Everyone, please help Taira-ssi adjust well, and today's dinner is subsidized by the company, so just come."</p>
+<p>"Waaah~!"</p>
+<p>Shinoe Misano said to her team members before leaving work. In Japan, there was a culture of paying a participation fee for company dinners, so the entire team was excited that the company was subsidizing it. All of this was thanks to Taira Yukiko-sama's support, but only Shinoe Misano knew that fact.</p>
+<p>"Let's meet at Enkyo."</p>
+<p>"Enkyo sounds good~!"</p>
+<p>One of the male employees made a fuss, saying that he liked Shinoe Misano's words. Enkyo seemed to be the name of a restaurant. When I asked Mimata Chieri, she said it was a Chinese restaurant and bar nearby.</p>
+<p>When they said Enkyo, Enkyo, I thought they meant *enko* (援交: *enjo*, short for *enjo kosai*, meaning compensated dating). When they said, "Enkyo sounds good~!" I was shocked. But I had misheard it.</p>
+<p>While everyone was excited about the free dinner, something was caught by my master's senses. I saw the deputy team leader, Kurakake Kuma, taking something out of his bag and putting it inside his jacket. Huh? Isn't that...? I've seen it as a game item.</p>
+<p>It was definitely a spray-type sleeping pill. In games, it was used to sneak in and use sleeping pills to put the homeowner to sleep in order to steal data, but if the resistance stat among the physical stats and the will stat, which is a mental stat, are high, you can overcome sleep, so sometimes there are targets that are not affected by sleep.</p>
+<p>I think if the average value of resistance and will is 9.5 or higher, you can resist 100 percent, but since my average resistance will is 10, it was a big advantage that I could nullify it even if that baldy used it on me. But why is he carrying that around? For self-defense?</p>
+<p>"Let's go quickly, junior-gun~!"</p>
+<p>I was standing and thinking for a while because of the spray-type sleeping pill, and almost all the team members had left. Mimata Chieri grabbed my hand and led me out of the office.</p>
+<p>"What were you thinking about?"</p>
+<p>"Ah, I was thinking about work a little."</p>
+<p>"Today is junior-gun's welcome party, so let's think about work later~!"</p>
+<p>The Chinese pub called Enkyo was close to the Human Resources Development Center, as expected. It was within walking distance, so there was not much burden.</p>
+<p>The reserved seats were round tables, so when we sat down in order, my mentor Mimata Chieri sat on my right, and team leader Shinoe Misano, who was sitting there first, sat on my left.</p>
+<p>To have such luck with beauties sitting on both sides of me. When I glanced around, it seemed that other people didn't think much of it, but only Kurakake Kuma was looking at me with a resentful expression.</p>
+<p>Because we made a reservation in advance, alcohol and individual meals came out right away. And they said that dishes to replace the snacks would be coming out soon. Most people ordered beer. Three people ordered different drinks: Mimata Chieri ordered lemon sour, and unexpectedly, Shinoe Misano ordered sweet potato shochu and drank it straight from the glass without adding water. She's a total tomboy. Lastly, Kurakake Kuma ate Chuhai, which didn't suit him. Everyone else had beer.</p>
+<p>"For Taira Ryuta-gun's company life!"</p>
+<p>""Cheers!""</p>
+<p>Hmm, I'm a little embarrassed because I'm the topic of the story? The team members drank alcohol and got excited and started talking to me. Of course, the first thing they asked was whether Taira Ryuta's Tairaga was *that* Tairaga.</p>
+<p>When I nodded, the employees around me made a fuss, saying, "Ooh~! Royal royal!" but only Kurakake Kuma snorted.</p>
+<p>Even if I'm the youngest of the Taira Group, I'm a direct descendant, so why is he openly ignoring me like that? Could his backer be an uncle or aunt? But that couldn't be the case, because this Human Resources Development Center was one of the core groups that fully supported the deceased Taira Saburo. There's no way a mole of another successor could openly show it like this within it. He just thinks I'm lying.</p>
+<p>I sneered at Kurakake Kuma with my expression and just focused on the drinking party. I also asked about things I was curious about at work or drank with other employees to promote friendship.</p>
+<p>Shinoe Misano and Mimata Chieri became increasingly drunk and touched me more and more, slapping my arms or thighs while laughing, or kneading me like an old man doing sexual harassment, telling me to show my muscles and give them strength.</p>
+<p>If an ugly old woman had done it, I would have shouted, "What the hell are you doing!" and written a heartfelt message to the personnel team saying that I had been sexually harassed, but they were both quite beautiful, so I just stayed still. Let them touch me as much as they want. I can pay them back later.</p>
+<p>###</p>
+<p>Kurakake Kuma was an abnormal person who would copy manga as it is, but he prided himself on his patience. So he was quietly watching Shinoe Misano and Mimata Chieri flirting with Taira Ryuta, who would soon become his women.</p>
+<p>Kurakake Kuma often thought that he was like a bear chasing prey, just like his name. He was a bear with the patience to chase a target to the end, the ferocity when facing prey, and the cunning to drive prey into a corner.</p>
+<p>There was a reason why he ordered Chuhai. From the beginning, Kurakake Kuma didn't think of company dinners as an act to interact with team members. He just thought of it as one of the methods of hunting. If you order Chuhai, people will think you're weak at drinking, so their guard will be lowered. And since you're relatively less drunk than the other person, it was the best alcohol for hunting women.</p>
+<p>"I'm going to the restroom..."</p>
+<p>When Shinoe Misano, who was drinking sweet potato shochu, staggered and went to the restroom, he felt that the opportunity he had been waiting for had finally come. But Kurakake Kuma didn't make the mistake of getting up right after Shinoe Misano. He counted to thirty in his head and then got up.</p>
+<p>The spray sleeping pill in his inside pocket was reassuring. Kurakake Kuma, who went to the restroom, waited for Shinoe Misano to come out.</p>
+<p>"Uh...? Deputy team leader?"</p>
+<p>Kurakake Kuma sprayed sleeping pills on Shinoe Misano's face, who was looking at him with blurry eyes. Shinoe Misano couldn't withstand the pouring sleep and collapsed. He succeeded. Now, all he had to do was tell the team members and say that he would take her home...!</p>
+<p>In fact, he had been worried about whether to use the drug on Shinoe Misano or Mimata Chieri.</p>
+<p>Thinking, "Both are good..." Kurakake Kuma, who was already worried as if both of them had become his women, chose Shinoe Misano, who had more weaknesses. Kurakake Kuma thought that the more you have, the more it becomes a weakness.</p>
+<p>First of all, Shinoe Misano held the position of team leader. And she is the wife of a Korean man. If he took a picture of her having sex with him and threatened her, Shinoe Misano was more likely to be obedient than Mimata Chieri. Her position as team leader and her relationship with her husband would eventually become her weaknesses.</p>
+<p>Once she accepted it, it was over. After that, he was confident that he could make her his slave with the sex skills he had honed for nearly ten years with his superiors and subordinates' wives.</p>
+<p>He thought that he should gradually gaslight Mimata Chieri and gradually conquer her with authority rather than using a sleeping pill operation like this time. Even if he took a picture of her with a sleeping pill operation, she had nothing to lose, so she was more likely to report it to the police. This method was not the one that Kurakake Kuma mainly used, so it was unfamiliar, but everyone has a first time. Once he succeeded, he could continue to succeed. He was thinking of making that one success with Mimata Chieri.</p>
+<p>Let's stop thinking about Mimata Chieri. First of all, he had to deal with this woman, Shinoe Misano. Kurakake Kuma put Shinoe Misano's arm around his neck and supported her by putting his right hand behind her back and into her armpit. Since she was close, he felt like he could smell Shinoe Misano's female scent. He hadn't done it in a long time, so his panties were completely wet with the Cowper's fluid coming from his erect dick.</p>
+<p>With a slightly surprised and slightly serious expression, he supported Shinoe Misano and came to the round table where the dinner was being held.</p>
+<p>"This is a big problem. Shinoe-ssi seems to have been very drunk and was sleeping in the hallway to the restroom. As the deputy person in charge, I think I should take Shinoe-ssi home?"</p>
+<p>Everyone agreed with Kurakake Kuma's words, saying that he should take her home quickly, but only one person, Taira Ryuta, shook his head.</p>
+<p>"Even so, it's a company dinner, so since the person in charge is drunk, the deputy person in charge should stay in his place. I, the youngest, will take the team leader home."</p>
+<p>Certainly, Taira Ryuta's words were logical. There had to be a person in charge at the drinking party. Kurakake Kuma gnashed his teeth. That guy I didn't like from the beginning!</p>
+<p>Just as Kurakake Kuma was about to refute Taira Ryuta's words, his phone suddenly rang. He checked why it was ringing with the hand that wasn't supporting Shinoe Misano, and it turned out that he had received a LINE message from Taira Ryuta.</p>
+<p>When he opened the LINE message, there was a picture of him spraying Shinoe Misano with a spray-type sleeping pill, taken at a perfect angle.</p>
+<p>'That bastard...!'</p>
+<p>That collateral line of the Taira Family was threatening him with a photo. He had threatened countless women with photos until now, but he had never been the target of threats. Kurakake Kuma forced a smile and nodded.</p>
+<p>"Come to think of it, you're right. You take her home."</p>
+<p>It was his complete defeat. His future in the company was ruined. If that bastard reported the picture he had taken to the police, he would have no choice but to go to jail. Kurakake Kuma was looking at Taira Ryuta's back as he supported Shinoe Misano with anxious eyes.</p>

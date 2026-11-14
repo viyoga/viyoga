@@ -5,100 +5,104 @@ weight = 122
 chapter = 122
 +++
 
-<p>Having arrived home and calmed her mind and body with a cup of tea, Jinmija Yeosa-nim said she was going to lie down and went into the master bedroom, leaving me to talk with my two remaining friends.</p>
-<p>,Thank you. For protecting my mom."</p>
-<p>Arriving home, I greeted Kazuhiro and Kiyohira. But Kazuhiro and Kiyohira shook their heads as if it was nothing.</p>
-<p>,Rather, thank you for blocking it with your whole body. I almost cried back then."</p>
-<p>,Actually, I thought you were going to die, you bastard. So, I hugged Ajumma-nim thinking I should take good care of her."</p>
-<p>The two seemed impressed by my willingness to spread my body to block the bullets. Well, I'm not going to die from something like that....</p>
-<p>After all, the MegaCorp youngest son's beginner-friendly, eternal-friend Yeouiju and regeneration combo was no joke. To be able to withstand a hail of bullets without wearing any armor. Of course, I was able to do this much because I leveled up my regeneration trait while getting shot in between.</p>
-<p>,I'm not dying, you bastards."</p>
-<p>,Crazy bastard."</p>
-<p>,Next time, I need to train more and become a martial artist who can beat guns."</p>
-<p>Kazuhiro scoffed at my words that I wouldn't die, and Kiyohira was seriously determined to beat guns next time with a serious expression.</p>
-<p>Of course, this world was a world where martial artists could beat people with guns. If you gained supernatural powers like me, or if you had your body modified, you could beat guns.</p>
-<p>But for Kiyohira, who hated body modification, to beat a gun, he would have to learn a martial art of at least Epic grade or level up and suddenly acquire a supernatural trait.</p>
-<p>Of course, the reason Kiyohira hated body modification was because of my master, Fujigasaki Rinka.</p>
-<p>Kiyohira had already learned the basics of martial arts from Fujigasaki Rinka, and Fujigasaki Rinka had won the UMC, the world's top martial arts organization, undefeated in the most fierce openweight class with the body of a woman who had not undergone body modification, and had been at the top for two years now, so naturally Kiyohira also had a strong desire for naturalness. And as a reaction to that, he came to hate body modification immensely.</p>
-<p>Since the topic of Fujigasaki Rinka came up, I should ask Kiyohira. Since he's in the same martial arts organization in the same country, he probably knows a lot about his master.</p>
-<p>,Oh, right. How's Master doing? You must have seen her a few times in America, right?"</p>
-<p>,I haven't seen her much either. I heard she's living in a national park for half a year."</p>
-<p>,So, is that why you went to Yosemite National Park to copy her?"</p>
-<p>When I asked in disbelief, Kiyohira nodded with an expression that asked why I was asking the obvious.</p>
-<p>,Of course. It's not shameful to copy the best. You have to copy what the best does to even touch the edge of their shadow."</p>
-<p>Of course, he wasn't wrong. But you don't have a Myth-grade martial art like Fujigasaki Rinka.... It was a bit of a shame. I should give Kiyohira an Epic-grade or higher martial arts book later. Kiyohira is still in the relatively human welterweight class (~77.1Kg), so he could have a decent fight if it's Epic-grade or higher. Even though the welterweight class is a fierce weight class, it was nothing compared to the inhuman openweight class, so Kiyohira should be able to do it.</p>
-<p>,Yeah, good luck. Let's see my friend become a champion."</p>
-<p>,Yeah, thanks. I'm going back to America a bit later this time and try to train in the Fujisan primeval forest...."</p>
-<p>Kiyohira was saying lines like a friend who goes missing in a Japanese horror story. I should put a GPS on him later....</p>
-<p>,Hyung-nim, don't just encourage Genbaki, encourage me too!"</p>
-<p>Kazuhiro had calmed down a bit and joined our conversation. Seeing this, it was clear that Kazuhiro was more tender-hearted than Kiyohira.</p>
-<p>Kazuhiro became a delinquent because he was twisted by an unfortunate family history and racist bullying, but Kiyohira had an unfortunate family history but liked fighting from the beginning and became a delinquent because he wondered if there was anywhere else to fight. Because of that difference, it was natural that Kazuhiro was softer than Kiyohira.</p>
-<p>,Are you feeling a bit better?"</p>
-<p>,Keu keu keu, the Kuroki (Black Demon) of Edogawa Middle School was such a coward."</p>
-<p>,Don't talk about Kuroki! You Shiroki (White Demon)!"</p>
-<p>When they were in Edogawa Middle School, their nicknames were Kuroki and Shiroki, but now that they were adults, they were both very ashamed of those nicknames. Actually, even I would be ashamed if I was called the Black Demon of Edogawa Middle School. If I was a chuunibyou in middle school, I would have been like, "Wow~ cool," but now....</p>
-<p>,Shut up, you guys. Or I'll reveal your middle school nicknames on the broadcast station?"</p>
-<p>Since they were both now UMC players and J-League players with recognition, they suddenly became quiet as if they had made a promise when I said I would tell their embarrassing nicknames on the broadcast station. The reason I silenced them was to contact Yukiko. Yukiko must have heard the news too, so I thought I should call her now because she would be worried if I didn't contact her.</p>
-<p>,Mother, this is Ryuta."</p>
-<p>-Are you okay? I heard too. What happened all of a sudden....</p>
-<p>Yukiko seemed flustered by the sudden shooting news.</p>
-<p>,I'm okay for now. I'll explain the details when I get back. I'm a little worried, so could you send me a bodyguard? I'm worried about my biological mother."</p>
-<p>-I'll send one as soon as possible. Be careful just in case.</p>
-<p>,I'll be back in a little while."</p>
-<p>-I'll be waiting.</p>
-<p>As soon as Yukiko hung up, the two criticized me indiscriminately, as if they were trying to retaliate against me for saying I would contact the broadcast station.</p>
-<p>,Ahem! A son of two mothers! You're no different from Lu Bu!</p>
-<p>,Woo~! Woo~!"</p>
-<p>Comparing me to Lu Bu, their creativity in criticism was no joke. Kazuhiro seemed to like Romance of the Three Kingdoms unlike his appearance, so he compared me to Lu Bu.</p>
-<p>,Oh yeah, you bastards. Want to taste Lu Bu's fist?"</p>
-<p>,I don't fight the injured."</p>
-<p>,Me neither. I can't fight unless Tata has a doctor's note saying you're all healed, but not now."</p>
-<p>They forgot that they criticized me by comparing me to Lu Bu, and this time they were treating me like an injured person and refusing to fight. They were pros at making people angry.</p>
-<p>,More than that...."</p>
-<p>Kiyohira suddenly said seriously. What is it? What does he have to say?</p>
-<p>,Let's see the pictures of those girls from your slutty story earlier. Kazuhiro saw them in person, so I have to see them in pictures at least."</p>
-<p>I looked at Kiyohira with a dumbfounded expression for a moment, sighed, took out my smartphone, and showed him Han Yu-gyeong's picture and Arisu's picture.</p>
-<p>,Ooh~! Pretty. They're both celebrity-level?"</p>
-<p>Although Kazuhiro and Kiyohira had unique tastes, they could distinguish between beauty and ugliness, so of course they knew that Han Yu-gyeong and Arisu were pretty. It's just that they didn't match their tastes.</p>
-<p>,So, which one are you dating?"</p>
-<p>,Both."</p>
-<p>I answered confidently to Kiyohira's question. The two stared at me blankly, and then, when they said they wouldn't fight the injured, they started attacking me in unison.</p>
-<p>,Beat this shameless bastard!"</p>
-<p>,You bad guy!"</p>
-<p>I was harassed by my two friends until the bodyguard Yukiko sent came.</p>
+<p>Sawayanagi Seari felt a sense of déjà vu as she entered the laboratory. She was sure it was her first time in this lab, but something felt familiar.</p>
+<p>,This is....,</p>
+<p>,Yes, this place is built in a similar style to the lab where we were trapped. Gomisawa Renya, to go this far...! You're really the worst guy.,</p>
+<p>As Sawayanagi Seari muttered, realizing something, Sawayanagi Tobe nodded, turning Sawayanagi Seari's realization into certainty.</p>
+<p>Indeed. The form and atmosphere of this laboratory were similar to the unidentified laboratory where war orphans of Seryutai were experimented on in the past.</p>
+<p>The reason Gomisawa Renya unconsciously or intentionally built such a laboratory was obvious. It must be for the study of superpowers. Sawayanagi Tobe, enraged at Gomisawa Renya, began to brutally kill everyone he met upon entering the laboratory.</p>
+<p>He had to kill everyone he met to hide his identity anyway, but he began to beat to death not only the guards but also the researchers who had no ability to resist, using his Steel Skin-enhanced physical abilities.</p>
+<p>Kiyona Hori didn't say anything, but she seemed angry as she started shooting everyone she saw with her suppressed submachine gun, and Sawayanagi Seari closed her eyes and asked the wind for directions in order to focus on saving Sawayanagi Azuma.</p>
+<p>Mimata Chieri didn't actively participate in the battle, but she plugged a hacking USB into the laboratory computer to collect data. Occasionally, when a laboratory guard came up behind Seryutai, she would provide suppressive fire to protect the Seryutai members.</p>
+<p>The laboratory was like a stage in a game, with more guards and better equipment as they went down each floor.</p>
+<p>However, the Seryutai agents were excellent soldiers, so there was no problem up to the 3rd floor. It was difficult for mere guards to stop the Seryutai agents, who experienced real combat every time, and the excellent assassin Mimata Chieri. Moreover, the guards were helpless because Sawayanagi Tobe was using his superpowers at full power.</p>
+<p>But from the 4th floor, it was different.</p>
+<p>From the 4th floor, they were soldiers who had enough real combat experience, whether they were Black Tech agents or agents from somewhere else. Moreover, they were well-prepared troops, as they had already received a report that an infiltration and rescue team was coming.</p>
+<p>,There are three over there!,</p>
+<p>,Okay! I'll block the front, so hit them from behind!,</p>
+<p>However, it was difficult to stop the cooperation of two superpower users, even for skilled people who were prepared. Moreover, Kiyona Hori and Mimata Chieri, who were non-superpower users, also had excellent combat power, so they were able to break through to the 4th floor with ease.</p>
+<p>,I've received a message about the current situation. I'll reply that it's going smoothly. Judging from the fact that they told me to contact them if anything happens, the situation outside isn't bad either.,</p>
+<p>Mimata Chieri said, sending a Line message on her smartphone.</p>
+<p>,If the situation outside is going smoothly, we don't have to worry about the rear.,</p>
+<p>Kiyona Hori said with a relieved expression. While Mimata Chieri and Kiyona Hori were changing magazines, Sawayanagi Seari found the way to the 5th floor. But Sawayanagi Seari's expression wasn't good.</p>
+<p>,What's wrong, Seari?,</p>
+<p>When Kiyona Hori asked, Sawayanagi Seari answered with a slightly terrified look.</p>
+<p>,There's something scary on the 5th floor....,</p>
+<p>Sawayanagi Seari was slightly terrified because it was the first time the wind had warned her like this. The others were also uneasy about what was on the 5th floor that made Sawayanagi Seari so terrified. However, only Mimata Chieri, who didn't know what abilities Sawayanagi Seari had, stood there with a what? expression.</p>
+<p>But they had to go down to save Sawayanagi Azuma. The group steeled their hearts and opened the door to the passage leading to the 5th basement floor.</p>
+<p>The moment they opened the door, the stench of blood hit their noses. Sawayanagi Tobe, who was at the forefront, frowned and stepped into the 5th basement floor.</p>
+<p>,Why are all the researchers here dead?,</p>
+<p>Most of the researchers on the 5th floor were dead, with all the internal organs in their stomachs gone, as if they had been torn apart by beasts.</p>
+<p>,Be careful...!,</p>
+<p>The moment he shouted to be careful, something covered Sawayanagi Tobe. That something was a hideous thing. It seemed that this place was a laboratory for creating combat chimeras. It seemed that the experimental chimera had escaped, taking advantage of the commotion caused by the infiltration and escape team above.</p>
+<p>Whether it was a full-fledged study, steel armor was added to the fatal areas such as the chest or abdomen on the chimera's gray skin. It was a grotesque sight with pus dripping between the armor, perhaps because the two heads were forcibly connected to the steel armor and raw muscles.</p>
+<p>Fortunately, the chimera's teeth and claws couldn't penetrate Sawayanagi Tobe's steel-hardened body. However, the monster had a strong endurance that didn't budge even with Sawayanagi Tobe's punches.</p>
+<p>As the situation continued where they couldn't inflict damage on each other, the chimera gave up chewing on Sawayanagi Tobe and began to aim for Sawayanagi Seari and Kiyona Hori, who were standing behind him.</p>
+<p>,Where do you think you're going...!,</p>
+<p>Sawayanagi Tobe grabbed the chimera's torso tightly to prevent it from moving to his companions. The chimera struggled to get closer to Sawayanagi Seari and Kiyona Hori, making a keeee! sound.</p>
+<p>Sawayanagi Seari and Kiyona Hori started shooting at the chimera. They shot at the parts without armor as much as possible, so the chimera's flesh burst and body fluids scattered around. But whether they heard the gunshots, a few more chimeras appeared.</p>
+<p>Meanwhile, Mimata Chieri was sending a Line message to Taira Ryuta.</p>
+<p>Cherry🍒: Junior! It's dangerous here, so don't come!</p>
+<p>Cherry🍒: Photo</p>
+<p>Cherry🍒: There are monsters like that, so if you don't hear from us, retreat and contact the Taira Group.</p>
+<p>Mimata Chieri put her smartphone in her pocket and joined the three people shooting, starting to shoot at the chimera. So she didn't see Taira Ryuta's reply that came right away.</p>
+<p>Master❤️: I'm going down now.</p>
 <p>###</p>
-<p>After the bodyguard came, I took my friends home and headed to the talent development center's house. It was quite late, but Yukiko would be waiting. As I thought, when I arrived home, Yukiko ran to me as soon as she saw me and hugged me.</p>
-<p>,Are you okay? Are you hurt anywhere?"</p>
-<p>,Yes, I'm okay, Yukiko-ssi."</p>
-<p>Hmm, Yukiko's chest feel is the best after all. I hug her almost every day, but it always feels new and good. Of course, it was because of her soft and elastic breasts.</p>
-<p>,First of all, what was the situation...."</p>
-<p>I told her the story of what happened at the restaurant. In the story, I naturally revealed Mimata Chieri's identity, but since she was in the hospital and couldn't go to work for a few days, I needed to let Yukiko know.</p>
-<p>,So, you were safe thanks to the agent Chairman-nim sent?"</p>
-<p>,That's right."</p>
-<p>I didn't tell her the story that I spread my arms in front of everyone and blocked the bullets, just in case Yukiko would worry.</p>
-<p>,I'm grateful to her. I'll take care of the fact that she can't go to work tomorrow, so don't worry."</p>
-<p>,I hope she's okay. She was wearing a bulletproof vest, so she wasn't shot in a fatal area, but she seemed to have lost quite a bit of blood."</p>
-<p>Yukiko smiled as if she was okay with my worry.</p>
-<p>,The bleeding is okay. With the technology of the Taira Group, they can save even someone who is on the verge of death...."</p>
-<p>That's a relief then. Seeing Yukiko say it confidently, it seemed like Mimata Chieri would be okay.</p>
-<p>,But are you really okay? They say there was such a hail of bullets...."</p>
-<p>Yukiko looked at me again and asked. Yukiko's gaze was directed at the shirt I was wearing. Ah...! Come to think of it, I had been wearing the blood-stained shirt all this time. Could it be that the reason my friends said they wouldn't fight the injured was because of this? After that, they harassed me after showing me Han Yu-gyeong's and Arisu's pictures, but they didn't physically attack me severely.</p>
-<p>,Look, I'm okay!"</p>
-<p>I took off my shirt and showed her. Of course, there were no wounds on my body, but naturally a lot of blood came out before it healed, so my body was covered in blood.</p>
-<p>,There's so much blood...! Wait a minute!"</p>
-<p>Yukiko ran somewhere and came back with a towel soaked in water. And she started wiping my body carefully. But I could just take a shower.... From Yukiko's point of view, she seemed to want to check carefully if there were any wounds on my body.</p>
-<p>After about ten minutes, all the blood stains on my body were gone. But Yukiko was still wiping my body. Especially when she licked and wiped my clearly defined abs, it seemed like her purpose had changed. Naturally, my stimulated body reacted. It was completely erect.</p>
-<p>Hmm.... Is arousing me like this like a succubus's instinct...? I stood Yukiko up. And I kissed Yukiko's lips.</p>
-<p>Chuuup...! Chup, Chuuuu♥</p>
-<p>Yukiko actively responded to my kiss. After kissing for a few minutes, I took my mouth off and opened my mouth, looking at Yukiko's melting expression.</p>
-<p>,I'm going to wash up, so warm up your body in bed by touching yourself."</p>
-<p>,No."</p>
-<p>Yukiko answered firmly that she didn't want to. Huh? Does she not want to do it? Could it be that she just wants to kiss or something?</p>
-<p>,You don't want to do it?"</p>
-<p>,No, Ryuta smells good right now...♥ If you wash up, the smell will disappear."</p>
-<p>Ah! It seemed that Yukiko's smell fetish had been properly activated.</p>
-<p>,Then, let's wash up after we do it."</p>
-<p>,Kyaak!"</p>
-<p>I picked up Yukiko in a princess carry and ran up the stairs.</p>
-<p>-----</p>
-<p>Mission VER. Chieri. She mainly wears techwear, but sometimes she wears a black leather dress. The weapon she uses is a small pistol hidden inside her skirt.</p>
+<p>,Huu...! Why are you hiding so well?,</p>
+<p>I took a breath after taking out the last of the five guys who were hiding. In fact, it only took about 5 minutes to find them, but I went back and forth to the 3rd floor at full power and found and killed 5 people.</p>
+<p>The last one smartly tried to escape to the 1st floor entrance while I was on the 3rd floor, but he couldn't beat my speed and was caught and died with his neck broken.</p>
+<p>I was quite tired from sprinting for 5 minutes, so I was sitting on the ground resting when my pocket vibrated. When I opened it, it was Mimata Chieri.</p>
+<p>Cherry-chan★: Junior! It's dangerous here, so don't come!</p>
+<p>Cherry-chan★: Photo</p>
+<p>Cherry-chan★: There are monsters like that, so if you don't hear from us, please contact the Taira Group.</p>
+<p>I saw the picture Mimata Chieri sent and got up from my tired body.</p>
+<p>First, I sent a Line message saying I was going down and ran at full speed. There was an elevator going down in this building. That's how the guards could join, after all.</p>
+<p>Those monsters were the ones that appeared later with names like Experimental Subject β. Was the origin of that monster Black Tech? I don't think so.... Or maybe Black Tech received technology from somewhere.</p>
+<p>Contrary to the complicated mess in my head, I ran as fast as possible and arrived at the elevator. They said it was okay up to the 4th floor earlier, so they must be on the 5th or 6th floor.</p>
+<p>It's been quite a while since they said the 4th floor, so is it the 6th floor?</p>
+<p>After thinking for a moment, I pressed the 6th floor.</p>
+<p>The elevator carrying me went down at a fast speed and opened the door on the 6th basement floor.</p>
+<p>,Huh?,</p>
+<p>As the elevator door opened, dozens of pairs of eyes met mine. Numerous researchers were looking at me in the elevator. As I walked out of the elevator, the researchers took a step back. Behind the researchers, there was a huge glass tube, and inside it, a blue-haired girl was floating in the liquid.</p>
+<p>It was Sawayanagi Azuma.</p>
+<p>So the floor with the monsters was the 5th floor. I have to rescue Sawayanagi Azuma quickly and go up to the 5th floor.</p>
+<p>,Get that girl out of the glass tube right now.,</p>
+<p>When I said with killing intent, some researchers tried to operate the machine, but a few middle-aged researchers who seemed to be senior researchers came in front of me and shouted.</p>
+<p>,How dare you give orders? This is not a place for an ignorant guy like you to come. Get out of here!,</p>
+<p>,Yeah, get out!,</p>
+<p>Are these guys crazy? These guys who are obviously doing forbidden research are so confident? Rather, we are the victims, not the perpetrators.</p>
+<p>,You accomplices to kidnapping...!,</p>
+<p>I strangled the senior researcher who came forward and those who agreed and told me to get out with shadows. After some time, a few researchers fell to the ground with a cracking sound. The remaining researchers, who saw their colleagues being strangled by shadows, screamed and were terrified.</p>
+<p>,Open it quickly. I'm busy and have to go up to the 5th floor now.,</p>
+<p>,Ye, yes!,</p>
+<p>The researchers, who saw their colleagues die in front of their eyes, operated the machine so fast that their hands couldn't be seen and opened the glass tube. First, the water that filled the glass tube drained, and then the glass tube opened. I went into the glass tube and held Sawayanagi Azuma in a princess carry.</p>
+<p>Sawayanagi Azuma kept her eyes closed while being held by me. Hmm, she can't come to her senses right away.</p>
+<p>,Where do I go to get to the 5th floor?,</p>
+<p>,Yo, you can't just go.,</p>
+<p>What does that mean? Listening to the researcher's words that followed, he said that they lowered the triple steel wall to prevent the chimeras on the 5th floor from coming in. It's fortunate that I came to the 6th floor first rather than the 5th floor. If I had continued to go down, I would have been blocked by the triple steel wall and wouldn't have been able to save Sawayanagi Azuma.</p>
+<p>,I'll save only one person who opens it. Open it quickly. I have to go.,</p>
+<p>As soon as I finished speaking, the remaining ten or so researchers quickly started typing on the keyboard. At that moment, there was no sound in this place except for the sound of keyboards tapping and breathing.</p>
+<p>,I, I opened it!,</p>
+<p>,No! I opened it!,</p>
+<p>,No, it's me!,</p>
+<p>It quickly became a chaotic scene. I saved everyone fairly and sent them to the Daughter of the Abyss as they were. By the way, I sent a few people alive earlier, but judging from the fact that there was no reaction, is a living offering worse than a corpse? I thought about the Daughter of the Abyss's taste and headed to the passage leading to the 5th floor. The triple steel door was open. As expected, everyone was a good researcher who didn't lie.</p>
+<p>,Is that it?,</p>
+<p>When I went to the 5th floor, there was a shadow approaching while strolling, it seemed to be those monsters I saw in the picture. I decided to hunt the monsters as quickly as possible. I had to catch them as quickly as possible. That's because the time limit for the shadow-formed bead was less than 5 minutes. I stirred the monsters' brains by inserting them into their heads with shadow skewers. If I do this, they die in one shot. The brain is usually the weak point of any monster.</p>
+<p>As I ran, I looked for Mimata Chieri and the Seryu Military Company's group, smashing the brains of the monsters as they appeared. Then I saw about seven monsters gathered together. Sawayanagi Tobe was blocking as many as five monsters, and Sawayanagi Seari, Kiyona Hori, and Mimata Chieri were avoiding two monsters that were running towards them. But they were getting slower and slower, and it seemed like they would be caught soon.</p>
+<p>,Here they are, you monsters!,</p>
+<p>At my shout, the gazes of all humans and monsters gathered on me. During that brief moment, I dropped the heads of the two monsters chasing the women with shadow blades.</p>
+<p>And the remaining five monsters were easily knocked down by stirring their brains with shadow skewers, just like I had done until now.</p>
+<p>After taking out the seven monsters here, it seemed that there were no more monsters left. Even when I concentrated my senses as much as possible, I couldn't feel any presence other than us.</p>
+<p>At that moment, whether the duration of the shadow-formed bead had ended, the strength in my body was gone. The Abyss decreased by 5, and the level of Shadow Domination dropped by 5. But I didn't get nothing at all.</p>
+<p>LEVEL UP!</p>
+<p>Please select a trait.</p>
+<p>You have mastered the advanced Shadow Domination technique. The level of Shadow Domination increases by 2.</p>
+<p>Oh, that's awesome. Level up and Shadow Domination level up by 2.</p>
+<p>I definitely felt it this time. The Abyss is a very useful stat, but it's also dangerous. Even though Will and Value were the same, I did human sacrifices and killed people so freely, so it definitely had an effect on my personality. But if it weren't for the increased Abyss, I wouldn't have been able to solve this case.</p>
+<p>I can definitely beat these monsters if I use Shinkai Yatsude and all my abilities, but I wouldn't have been able to beat them as easily as I did just now. If we fought, there would eventually be casualties, and I couldn't guarantee that those casualties wouldn't be me or Mimata Chieri.</p>
+<p>So the conclusion was to first max out Will as much as possible and then invest in the Abyss little by little.</p>
+<p>,Ugh...!,</p>
+<p>I was thinking for a moment when Sawayanagi Azuma, who was being held by me, opened her eyes. Sawayanagi Azuma seemed very surprised that this place was not inside a glass tube but in my arms.</p>
+<p>,Bu, there were definitely five men....,</p>
+<p>,Don't worry. We worked together to save you...! Hup!,</p>
+<p>It was Sawayanagi Azuma who suddenly started kissing me. What's going on again?</p>

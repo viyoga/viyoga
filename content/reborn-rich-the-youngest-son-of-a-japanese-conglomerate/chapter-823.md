@@ -5,67 +5,66 @@ weight = 823
 chapter = 823
 +++
 
-<p>After things went well with Minamoto Lisa, Minamoto Lisa immediately returned to her Home. She said she had to do some final studying because the Test was tomorrow.</p>
-<p>Moreover, Minamoto Lisa and some other Students had to take the University Entrance Common Test, the Japanese equivalent of the SAT, for two days next weekend, so this week was a series of exams for the top university-bound Students of St. Francis Girls' academy.</p>
-<p>The Students I knew who were taking the University Entrance Common Test in our class were Minamoto Lisa, Oofuchi Erika, and Shido Tsubaki, and for St. Francis Girls' academy as a whole, it was about Nakanoin Rina, the Head of the Disciplinary Committee.</p>
-<p>My Aunt, the Student Council President, and my Kidnapper, Taira Kanna, was already attending High School and prestigious overseas Universities concurrently, so she said she wouldn't be taking the University Entrance Common Test separately.</p>
-<p>By the way, since Taira Kanna's Story came up, let me tell you that Taira Kanna sent me a few Text Messages during the Kotowazuki incident, and the content of those messages was all chilling.</p>
-<p>She sent messages saying that if I died, she would kill Kotowazuki and then herself, and it seemed she was very worried because she didn't properly know my Skill, perhaps because she had easily captured me with a paralyzing drug.</p>
-<p>No matter how much I said I was fine, she didn't calm down, so I replied that I had a Gun, and only then did she quiet down, but I was planning to give Taira Kanna a taste of her own Medicine for kidnapping me.</p>
-<p>Of course, I heard from my rescue unit Students that Taira Kanna's Skill was no joke, but hearing that Story made me want to have a Match with her. I was curious if the Skill she showed when fighting all the rescue unit members was real.</p>
-<p>After the Kotowazuki incident, I also heard from Taira Kanna that Taira Danjo was quite disappointed. I couldn't reveal my True Identity, and Taira Kanna, a direct descendant of Taira, couldn't even participate in that Travel, so she couldn't get a piece of the pie in the Kotowazuki arrest.</p>
-<p>Returning to the exam Story, as a Teacher, I had already submitted the Exam Paper for my subject, so I didn't have much to do, but as Taira Ryuta, I had to Study for the PMC certification exam in February.</p>
-<p>Although I had passed the PMC certification exam under the name Yamashiro Ryuta, the PMC certification exam itself was a very difficult Test, so I had to continue the Study I had put aside for a while. If I became complacent just because I had passed once, I could fail, so I had to prepare in advance from now on.</p>
-<p>Kōtetsubutai (Steel Unit), the PMC owned by Yamashiro Ryuta, had also completed its personnel recruitment, so I was planning to go check it out sometime this week.</p>
-<p>I hadn't been able to properly check on it due to my busy Teacher Work, and had been indirectly managing it by dispatching management personnel supported by Asada Ei and Mimata Chieri, so I hadn't paid much attention to it, but now that it was fully staffed, the PMC's Owner had to show his Face once.</p>
-<p>And while checking Kōtetsubutai, I was planning to check Kurayamada Kirie's PMC, Chūōōkamitai (Loyal Wolf Unit). No matter how much Kurayamada Kirie was the Leader, my Share was over 65 percent. It was a PMC that could be considered my Possession.</p>
-<p>This one had the former terrorist group Jinildang as its Mother organization, so its personnel were fully recruited immediately upon establishment and were already at Work.</p>
-<p>I heard from Kurayamada Kirie and Mimata Chieri that since most of the members were former terrorists, they knew the psychology of terrorists well, and were showing tremendous prominence in counter-terrorism and terrorist hunting.</p>
-<p>I was planning to visit the successful Chūōōkamitai, buy them something delicious, and give them some Bonuses to increase their Loyalty.</p>
-<p>Normally, it would be a relatively leisurely exam period for a Teacher, with just exam proctoring and finishing early, but it seemed like it would be a very busy period for me with my certification exam Preparation and PMC visits.</p>
-<p>Ah, come to think of it, besides the previous schedule, I also had a meeting with Headmaster Daigo Terue. Looking at it now, I'm incredibly busy this week, aren't I?</p>
-<p>While I was thinking about my schedule with Daigo Terue, my phone rang, and when I checked, it was Daigo Terue's Text Message by chance. Why did she send me a Text Message?</p>
-<p>-Daigo Terue: You said the Brave Citizen Award would be on Monday or Tuesday, didn't you? It's been confirmed for Monday, so I'm contacting you. It's scheduled to be held in the special class classroom after all the exams are over. Originally, it should have been held in the Auditorium with all the Students gathered, but because it's exam period, it will be in the classroom. I'm sorry if you were looking forward to it.</p>
-<p>Ah, there was the Brave Citizen Award. It wasn't a particularly important Reward, but since it was an Award received for catching Kotowazuki, one of Japan's worst serial Killers, it could be said to be quite an important Award in terms of its Meaning.</p>
-<p>-Yamashiro Ryuta: That's fine. We didn't catch Kotowazuki to receive an Award. And regarding our meeting this week, how about Friday after all the exams are over? Would that be alright?</p>
-<p>-Daigo Terue: Whatever Yamashiro-sensei wants. I'll treat you to something delicious.</p>
-<p>-Yamashiro Ryuta: I'll look forward to it.</p>
-<p>Since it was a Situation where I was being treated as a thank you for taking care of Oofuchi Erika during the Kotowazuki incident, I didn't have to prepare anything and could just go to Daigo Terue's Home with a relaxed Mind.</p>
-<p>It felt like a very long time since I had gone to School, even though it had only been three days, Friday, Saturday, and Sunday. Of course, after the Kotowazuki incident ended, I had returned to School by Helicopter, but today was the first time I had walked directly from Home to School since the incident, so it really felt like a long time.</p>
-<p>When I arrived at School, I left my Luggage in the Education Preparation Room, checked faxes and such, and then headed to the special class classroom for morning Jorye. When the Door opened, all the Students were sitting at their desks, waiting for me.</p>
-<p>"Did everyone prepare well for the exam?"</p>
-<p>"Eh~! I hate exams~☆"</p>
-<p>"I worked hard~!"</p>
-<p>Although it was exam week, most of them were aiming for St. Francis Women's University, which they would automatically advance to, so it didn't have the burning Feeling of the midterm exam we had shortly after I took office. Back then, a Date with me was offered as a Reward, so they studied incredibly hard.</p>
-<p>"Even if this exam isn't important, you know that you can't have a Failing Grade if you want to go to St. Francis Women's University, right?"</p>
-<p>"Ei~! No way I'd get a Failing Grade?"</p>
-<p>Even with escalator advancement, there was a minimum required score, which was to exceed the Failing Grade of 40 Points.</p>
-<p>If they couldn't even pass that score, they couldn't go to St. Francis Women's University, but unless they had completely given up on their Studies, there were almost no Students who received a Failing Grade. Of course, even if they received a Failing Grade, there were two supplementary exams, so it was not easy to fail even for a complete idiot.</p>
-<p>"Ryuta, I'm scared...!"</p>
-<p>The biggest Problem in this classroom was Alik. Since Alik had wandered through Manchuria, the northern Korean Peninsula, and Russia since childhood, was caught by a Slave Trader, and then rescued by me, her foundation was very weak.</p>
-<p>She had barely avoided a Failing Grade in the last exam, but Alik could be said to be the most at Danger in this exam as well.</p>
-<p>She had a Talent for Language, so English, and her elective subjects Korean language and Russian (which she naturally excelled at as her native Language) were fine, and Alik could get a certain score in social studies subjects by simply memorizing.</p>
-<p>However, she was particularly weak in Mathematics and Japanese Classics, which was a Problem in the last exam, but she said she had studied Japanese Classics along with Training during this vacation.</p>
-<p>I heard that Alik's Teacher/Master, Home Economics Teacher Shimokawabe Airen, was also good at Japanese Classics in addition to Home Economics, so she gave her private tutoring.</p>
-<p>Then the remaining subject was Mathematics, and Alik said she was working hard in her own way, but according to Naruse Shiyo, who was helping Alik Study, it was not good at all.</p>
-<p>Alik was also calmly assessing her own Skill and was feeling anxious.</p>
-<p>"Even if you don't do well, there's a supplementary exam. Don't worry too much, Alik."</p>
-<p>"Alik, supplementary exam.... I hate it."</p>
-<p>"Eh~! You should say let's do well now so we don't have to go to the supplementary exam, Ryuta-cchi~!"</p>
-<p>Of course, it would be good if Alik did well and didn't have to go to the supplementary exam, as Seizawa Shii said, but I heard that this last exam had many units that Alik found particularly difficult, so it was hard to be Optimistic.</p>
-<p>"Anyway~! Today you don't even have the Mathematics you find difficult, so do well.... Oh, right. After you finish all your exams, they'll be presenting the Brave Citizen Award for catching Kotowazuki during homeroom, so be aware."</p>
-<p>"Ah, I know that. My dad's local reporter said they'd be taking Photos in our class today."</p>
-<p>"Reporters are coming for us too."</p>
-<p>"Many Minamoto reporters will come, so it will get a bit complicated, you."</p>
-<p>Looking at the Students answering my Words, it seemed that other Students already knew about the Brave Citizen Award ceremony today. If such Photos were published as articles, the advertisement Effect would certainly be enormous, so most of the Families to which the Students belonged seemed to have called reporters.</p>
-<p>"Alright, do your best on the Test, and I'll see you at homeroom."</p>
-<p>The school for noble Young Ladies had quite large classrooms, but I worried if it would become incredibly cramped due to the reporters, but I thought the School would have coordinated it well, and I finished the morning Jorye.</p>
-<p>Class Teachers are forbidden from proctoring their own classes, so I would have to go around other classes. Which class should I visit? I checked the tablet provided for Teachers.</p>
-<p>Coincidentally, the class I had to proctor for the first period was 3rd Year Class A, where Taira Kanna was. Surely, Taira Kanna didn't use her power as Student Council President and Taira's influence to call me as a proctor, did she?</p>
-<p>Gojoy-nim requested Jeong Darim (a Superhuman rescued with Alik, who researches plants) in casual clothes and underwear~!</p>
-<p>Casual clothes</p>
-<p>Underwear~!</p>
-<p>seungj050-nim requested Yukiko and Dang So-hwa in a Footjob-like posture~!</p>
-<p>Yukiko</p>
-<p>Dang So-hwa~!</p>
-<p>Kkiyoot~!</p>
+<p>After receiving the Bracelet from Lizhael, I had sex with Hangari Muneo for the first time in a very long time since Chooten Island. Actually, after testing the Bracelet, I was going to go back Home and just laze around and rest, but Hangari Muneo subtly seduced me, so I had no choice but to provide Service. Later, Urabe Konoka also joined in Hangari Muneo's sex, and I finished Sunday enjoying the luxury of receiving Service from the two Shrine Maidens.</p>
+<p>Again, it became Monday Morning, and I went to Work. Now the Last Test was over and there were no classes, but there was some Paperwork, so I couldn't rest comfortably until a few days before Graduation. Of course, if it were other High Schools, they would have to prepare university application documents, but St. Francis Girls' Academy students mostly automatically advance to St. Francis Women's University, so the Students I had to care about were only a few who took the university entrance common test.</p>
+<p>"You rested well over the Weekend, didn't you? For two days over the Weekend, the Kids who took the university entrance common test all suffered, but from today, you'll only have Club activities in the Morning, so you can just Enjoy yourselves and leave."</p>
+<p>Students of St. Francis Girls' Academy approaching Graduation have a tradition of leaving something in the club during the remaining Time after taking the Last Test, but our class's Date Experience Club, which most of our class is a member of, has no juniors to continue the club, so it seemed like they could just play and then graduate.</p>
+<p>"Ryuta-ssi, will you also come to play in the club room?"</p>
+<p>The Test was over, and as if she had decided to openly break the school rules for a long time, Seizawa Shii, wearing a sky-blue Loli Dress instead of her School Uniform, asked me, looking at me. When I looked at her with an Expression as if asking what the hell this was, Seizawa Shii rather stood up from her Seat as if telling me to look closely.</p>
+<p>The Dress Seizawa Shii was wearing was similar to the Clothes I wore when I first arrived at St. Francis Girls' Academy's special class. At that Time, seeing Seizawa Shii's Attire, I thought the special class would be a complete delinquent class.</p>
+<p>"I have Paperwork, so I can't go to the club room."</p>
+<p>"Ei...! If we play among ourselves, it's not fun~!"</p>
+<p>Of course, I would also find it fun to play with the Students instead of doing Paperwork, but while I have the Status of a Teacher, I have to do what I have to do, so I couldn't help it.</p>
+<p>"And what is that Attire?"</p>
+<p>"Anyway, after the Last Test, no one bothers the third-year students. Even the disciplinary committee now is at its most lenient Time, so they can't pay much attention."</p>
+<p>The disciplinary committee president is also busy with university advancement, and the disciplinary committee Students are ultimately St. Francis Girls' Academy Students, so they had to prepare for the next academic year or university, so now was indeed the most lenient period. No matter how lenient it was, such Attire would probably not be allowed, but Seizawa Shii seemed to have the conviction that she wouldn't be scolded.</p>
+<p>"First, let's play today, and since the grades will come out during Jorye, if there are any Students who need to retake the Test, let's Study again from tomorrow.."</p>
+<p>When the topic of re-examination came up, Alik was seen to Flinch. According to what I heard from Naruse Shiyo, after roughly scoring it, a dismal score in the 20s out of a cut-off of 40 Points came out, and she said that even if he took the re-examination, the Possibility was not high. Naturally, the re-examination would be easier than the main Test, but since Alik lacked the basics, even the re-examination seemed uncertain. And since Spring vacation, rather than Learning about school classes, he put more effort into Geomsul Training, following Shimokawabe Airen, so the anxiety of being Held Back a Year was even greater.</p>
+<p>Separately from Alik's re-examination story, he took the Test on Friday, but the grades coming out immediately on Monday could be said to be a very fast speed. Students who took the university entrance common test need data on their grades as quickly as possible, so the Last Test of the academic year always tends to have grades released quickly. Around the Students' Jorye Time, I heard that the scores would be released, so it seemed like we could talk about the scores then.... Let's end the Morning Jorye with this.</p>
+<p>After finishing Jorye, I went to the Education preparation room and did Paperwork. The special class troublemakers seemed to be going to the club room, chattering among themselves, and I heard the sound of them passing through the corridor. After doing Paperwork for a while, I stood up from my Seat. Now, as life at school was gradually ending, I had to meet someone I absolutely had to scout.</p>
+<p>I left the special class building and walked the Road towards Cheongsim Hall. Perhaps because Cheongsim Hall was in a Place close to the Forest, walking on the snowy, unmelted forest Road, I felt good. The air was also refreshing and felt good, and the moderately cool Weather was also good. After walking a little, the Cheongsim Hall club building, attached to the building where home economics classes were held, was visible. I knocked on the door of Cheongsim Hall, noisy with various sounds such as shouts due to the Club activities, and then opened it.</p>
+<p>Deureureuk.</p>
+<p>"Ah! Yamashiro-sensei!"</p>
+<p>When I opened the door and walked in, Nishiike Neiko, the president of Cheongsim Hall, greeted me. She's also a third-year student, so she'll be graduating soon.</p>
+<p>"It's been a long Time. Are you also advancing to St. Francis Women's University?"</p>
+<p>"Yes. I couldn't focus on Study because of Training, hehe."</p>
+<p>At my Question, Nishiike Neiko answered with a laugh, scratching her Head. If she's capable enough to be the Club President of Cheongsim Hall, she must have quite a lot of Skill. I should subtly try to recruit her later.</p>
+<p>"Shimokawabe seonsaengnim, is she here?"</p>
+<p>"Yes. She'll be in the Master's room Inside."</p>
+<p>"Okay, thank you for telling me."</p>
+<p>I, after expressing my gratitude to Nishiike Neiko, entered Cheongsim Hall. For a Moment, the Gaze of the Cheongsim Hall Students gathered on me, but since I was such a popular Person at St. Francis Girls' Academy, the gathering of gazes was unavoidable. I, kindly accepting the Greetings of the Students, headed towards the Master's room.</p>
+<p>Ttok-ttok</p>
+<p>"Shimokawabe seonsaengnim, this is Yamashiro Ryuta."</p>
+<p>"Come in."</p>
+<p>I, who knocked on the door of the Master's room, at Shimokawabe Airen's Words to come in, opened the Master's room door and entered. In the Master's room, Shimokawabe Airen, wearing leggings and a training jacket, was standing to greet me.</p>
+<p>"It's been a long Time. Shimokawabe seonsaengnim."</p>
+<p>"Indeed. It's been a long Time."</p>
+<p>After Spring vacation, she was on some Mission and wasn't at school, so I hadn't been able to meet Shimokawabe Airen. From the early days of St. Francis Girls' Academy, as one of the future three Swordsmen, I had Resolve to recruit Shimokawabe Airen, so the scout Proposal I had subtly mentioned to Shimokawabe Airen before, I intended to make officially starting today.</p>
+<p>"The Reason I came to see you today is to give you this Proposal."</p>
+<p>I handed over a document file to Shimokawabe Airen. Shimokawabe Airen asked, "What is this?" and received the document file I gave her. And after opening the document file, she immediately looked at me.</p>
+<p>"This is...!"</p>
+<p>"Yes. It's a job transfer Proposal."</p>
+<p>I handed over a Proposal to Shimokawabe Airen, offering a certain Salary and bonus, to work together. I had already heard from Daigo Terue about Shimokawabe Airen's employment conditions, so I made a much more generous Proposal than the Amount she was currently receiving. I made a Proposal with various unconventional conditions, including 1.5 times her annual Salary and bonus, and the provision of a Home in Neo Tokyo.</p>
+<p>"Until now, I've subtly suggested working together, but now that Graduation is not far off, I'm telling you officially."</p>
+<p>"The conditions are excellent. But what is this written here about providing one Ichimonji Request ticket every year?"</p>
+<p>At my Words, Shimokawabe Airen, who was nodding her Head while reading the document, asked about the Ichimonji Request ticket as if puzzled. Indeed, since the premium Famous sword brand Ichimonji is still in the preparation Stage, if it's written like that, it was natural not to know what it meant.</p>
+<p>"Shimokawabe seonsaengnim, do you happen to know the name Ichimonji Harugoro?"</p>
+<p>"Yes. He's a Famous Master, isn't he? If so...!"</p>
+<p>Shimokawabe Airen, who was answering my Question, realized what providing one Ichimonji Request ticket every year meant. It meant that she could Request one Sword each year from Ichimonji Harugoro, who is called a Master. Swordsmen loved Famous swords and wanted to possess them. Shimokawabe Airen is an excellent Swordsman. I knew that she also had a Hobby of collecting excellent swords. So I put forward a Condition that would Stimulate a Swordsman's Instinct.</p>
+<p>"With Ichimonji Harugoro-ssi, I made a contract to create a premium Famous sword brand called Ichimonji. Since I happen to have a Mithril mine, I'm thinking of Requesting a Mithril Katana from Ichimonji-ssi."</p>
+<p>"Mithril.... Katana...!"</p>
+<p>At my Words, Shimokawabe Airen, with an Ecstasy Expression, repeated the Words "Mithril Katana". Certainly, for a Swordsman in Japan, "Mithril Katana" was a Word that would make them drool Saliva. To make a Sword with that expensive Mithril, moreover, if it's a Sword made by a Master Swordsmith called a Master in this Era, any Swordsman would want to wield that Sword.</p>
+<p>"Huu...."</p>
+<p>I thought she was almost convinced, but Shimokawabe Airen closed her Eyes and composed her Breath. When Shimokawabe Airen opened her Eyes again, the Desire in her Eyes had disappeared, and she had Eyes like a very clear Lake. What a pity. She was almost convinced, you know.</p>
+<p>"In addition to this, there is one more Condition."</p>
+<p>Of course, if Shimokawabe Airen refused my Proposal, I was thinking of raising the conditions. But Shimokawabe Airen seemed to be setting some other Condition. I, with a Taut Tension Expression, looked at Shimokawabe Airen's Lips.</p>
+<p>"Soon, I heard there will be a big fight with Anyaji. If you let me participate in that Battle, I will accept the conditions Yamashiro-ssi proposed."</p>
+<p>Like a battle maniac, it was Shimokawabe Airen expressing her intention to participate in the fight with Anyaji that would soon clash. Perhaps she heard about the impending Battle with Anyaji from her Friend Fujigasaki Rinka. Since I was telling Fujigasaki Rinka about Anyaji-related content, Sabu also understood The Situation. Even without that, until now, I didn't know that Anyaji had a Guardian Court, and an elite Enemy force was revealed, so I was thinking of asking Shimokawabe Airen for Help, but since she herself expressed a desire to participate in the Battle, it was a very good thing for me.</p>
+<p>"Of course. On the contrary, it's a welcome!"</p>
+<p>I, smiling, nodded my Head. If it's Shimokawabe Airen, she would be able to deal with some Old Monsters of the Guardian Court that Takakusaki Gengo has at once.</p>
+<p>Urabe Konoka belly dancer, Breast Covering requested by Gojoy-nim!</p>
+<p>Belly dancer~!</p>
+<p>Breast Covering~!</p>
+<p>Hangari Muneo Swimsuit requested by chea yun-nim!</p>
+<p>Nagumo Sian Breast Covering + Randoseru + Bear Panties + embarrassed Expression requested by Iseibu-nim!</p>
+<p>I saw your revised Comment late, so I couldn't add the +bed hehehe.</p>

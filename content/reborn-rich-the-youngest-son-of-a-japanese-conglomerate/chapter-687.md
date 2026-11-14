@@ -5,123 +5,81 @@ weight = 687
 chapter = 687
 +++
 
-<p>Seizawa Shii, following my words, placed her arms on the washing machine, bent her waist, and looked at me. The look in her eyes was quite complex, a mix of expectation and fear, excitement, and affection for me.</p>
-<p>I approached Seizawa Shii, who was bent over. Then, I grabbed Seizawa Shii's peach-like buttocks and spread them apart. Naturally, spreading her buttocks also spread her pussy, revealing pink inner flesh and a dripping stream of vaginal fluid, which was incredibly erotic.</p>
-<p>"I'm going in."</p>
-<p>"Okay, Ryuta-cchi...."</p>
-<p>Seizawa Shii answered with a tense voice to my words. I slowly brought my dick to Seizawa Shii's spread pussy. And slowly, I pushed my waist, starting to enter inside.</p>
-<p>"Haaah...! It's weird. It hurts, Ryuta-cchi!"</p>
-<p>The vaginal opening widened to its limit, and I heard Seizawa Shii's painful voice. But I didn't have the luxury to listen to Seizawa Shii's words either, because Seizawa Shii's insides boasted an incredible tightness.</p>
-<p>It felt like being squeezed tightly by a hand. Even though Seizawa Shii was a wielder of superhuman strength called an Ogre, I thought her pussy would just be a normal woman's pussy, but I was wrong.</p>
-<p>Only about two-thirds of my glans had entered, but it was already squeezing so much from the entrance of her vagina that it hurt a little. It shouldn't normally be this much, she seemed to be too tense and putting in a lot of strength.</p>
-<p>"Shii, your pussy is too tight, it hurts."</p>
-<p>"Hiss...! Is it good that it's tight? Ugh.... Something feels stuffy inside."</p>
-<p>"Of course it's good, it feels good, Shii."</p>
-<p>To ease Seizawa Shii's tension, I praised her while grabbing and caressing Seizawa Shii's breasts with both hands, stimulating her nipples to give her pleasure.</p>
-<p>"Haa, while doing that, haa...! Why are you touching my breasts?!"</p>
-<p>"Originally, you don't just put your dick in your pussy, you also give foreplay while having sex."</p>
-<p>With praise and breast caresses added, a sweetness that seemed to feel pleasure little by little was mixed in with the voice that seemed to endure the pain.</p>
-<p>Accordingly, her pussy loosened up a bit, but it was still incredibly tight. It seemed she was just born with a strong pussy tightness. With this level of tightness, a normal man's dick would have broken, right?</p>
-<p>"Is that so...?"</p>
-<p>"Yeah, listen carefully since it's your teacher's words."</p>
-<p>"Hiss...! Okay, sex education teacher-nim...♥"</p>
-<p>Seizawa Shii might have said it as a joke, but hearing Seizawa Shii call me teacher for the first time made me excited without realizing it, and my dick became even harder.</p>
-<p>"Hyaaah! Ryuta-cchi, hiss! Your dick, is it alive? Inside, hiss! It's moving so much...!"</p>
-<p>When my excited dick hardened and twitched inside Seizawa Shii, Seizawa Shii was surprised and asked if it was alive.</p>
-<p>"It's because Shii is so pretty, and Shii's pussy feels so good."</p>
-<p>I praised Seizawa Shii and pushed my waist forward again, which I had stopped for a moment.</p>
-<p>"Hiss...!"</p>
-<p>Something felt like it caught with a thud at the end of my dick. It seemed to be Seizawa Shii's hymen. After figuring out the location of her hymen, I pulled my waist back for a moment and then quickly pushed my waist again.</p>
-<p>Tu, tutuk!</p>
-<p>At the same time as the feeling of her hymen tearing, Seizawa Shii let out a high scream. She seemed surprised because she suddenly felt pain after feeling good.</p>
-<p>"Kyaaak! It hurts, it hurts...! Ryuta-cchi, it hurts...."</p>
-<p>"It's because your hymen tore."</p>
-<p>She said it hurt, but she didn't show tears or anything because she had a lot of painful things while doing missions. It was just a slight grumble.</p>
-<p>"Am I bleeding?"</p>
-<p>At Seizawa Shii's question, I chuckled. I slightly pulled my dick out and showed Seizawa Shii the hymenal blood smeared with vaginal fluid with my finger.</p>
-<p>"A little."</p>
-<p>"Aha.... Then I've become a woman? Ehehe.... Ryuta-cchi's woman."</p>
-<p>I couldn't stand it anymore when she said such a commendable thing. I took my hands off Seizawa Shii's breasts and grabbed her thin but firm waist.</p>
-<p>"Ryuta-cchi?"</p>
-<p>"If you bear with it for a little bit, you'll feel good, Shii."</p>
-<p>I pulled Seizawa Shii's waist and pushed my dick in as much as possible. Seizawa Shii's virgin insides, which had never been touched by a foreign object, were widened by my violent thick dick, and the inside was violated.</p>
-<p>"Hieuu...! It hurts, Ryuta-cchi...! Hiss! Hieuheuheung...! It's weird, hiss!"</p>
-<p>At first, Seizawa Shii said it hurt, but as the parts that were being rubbed or torn were healed by the Holy Pillar effect (I don't know what the principle is, but the hymen was not regenerated), she gradually began to make excited sounds.</p>
-<p>"Does it feel good?"</p>
-<p>"Hiss...! Definitely...! Heung, it hurt...! Heung, inside, euheung, it feels good, Ryuta-cchi...♥"</p>
-<p>Now, Seizawa Shii was completely entrusting her body to pleasure. Of course, in the meantime, I was feeling tremendous pleasure from Seizawa Shii's pussy, which was tightly squeezing my dick.</p>
-<p>Thud! Thud! Thud!</p>
-<p>"Hiss, hiss! Hyaeuheung...! Ryuta-cchi, hiss! Ryuta-cchi, heuaahang...! I, hiheut...! It's weird....! Heung, hyaeuheung...♥"</p>
-<p>Now that Seizawa Shii was feeling good, I also stopped considering Seizawa Shii's virginity and moved violently for my own release, and Seizawa Shii began to writhe in pleasure she had never tasted before.</p>
-<p>I was holding her waist and pressing down, but it wasn't easy to suppress Seizawa Shii, who was thrashing in pleasure because she was so strong. Is this what it feels like to ride an untamed wild horse?</p>
-<p>"Hieuheung!"</p>
-<p>Seizawa Shii, who was holding my waist, stood up her waist and pulled my head. Without caring that I was resisting, she forcibly pulled my head and started kissing me.</p>
-<p>Originally, it was a normal doggy style, but as Seizawa Shii stood up, the position changed to standing doggy style. Naturally, the angle at which my dick was stabbing changed, and I felt a new pleasure.</p>
-<p>Of course, Seizawa Shii also trembled with new pleasure and kissed me roughly.</p>
-<p>Tsuup, chubuep...! Tsup, chueup...!</p>
-<p>It wasn't a kiss, it was almost like eating something ravenously. A crude oral sex to fill only something craving, a filthy oral sex that couldn't be called a kiss, and shaking her waist made Seizawa Shii lose her mind.</p>
-<p>"Haaang!"</p>
-<p>With Seizawa Shii's big moan, the inside of her vagina wriggled. It was already a tight pussy, but when it wriggled with even more intensity, I started to ejaculate without realizing it.</p>
-<p>"Keueu...! I'm cumming, Shii...!"</p>
-<p>"Hiss, I don't know...! Ryuta-cchi, hiss! Ryuta-cchi...♥"</p>
-<p>With a cracking sound, the washing machine in front of me was crushed, Seizawa Shii reached orgasm, and I began to pour out semen inside Seizawa Shii's tightly narrowed pussy.</p>
-<p>Byuut! Byuut! Bueut...!</p>
-<p>Literally, my dick was squeezed in her pussy, and semen came out with tremendous force. Normally, the semen would flow back and fall to the ground, but because her pussy was so tight, the entrance was completely blocked, so it was holding all that amount of my semen in her uterus.</p>
-<p>"Hieuheueueu...! It's hot, Ryuta-cchi...♥"</p>
-<p>"Haa... haa.... Did it feel good?"</p>
-<p>Seizawa Shii didn't answer, but she nodded and pushed me. My dick slowly came out, and Seizawa Shii's pussy came out as if she didn't want to let go, and then it came out with a ppong feeling.</p>
-<p>Of course, since it was a standing sex position, standing doggy style, semen fell to the floor due to gravity. I came a lot.</p>
-<p>"Ryuta-cchi.... I'm curious about other positions too."</p>
-<p>The flames of lust were still burning in Seizawa Shii's eyes. Amazing, isn't it? If it's your first time, your stamina and mental strength usually can't handle it, so you fall out. Even though I'm turning on the Holy Pillar, it was the first time I've seen someone so energetic.</p>
-<p>Seizawa Shii, who slowly approached me, took out a few towels from her laundry that had just finished drying in the washing machine and laid them on the floor. And she said to me with slightly scary eyes.</p>
-<p>"Lie down, Ryuta-cchi. This time, I'll make you feel good♥"</p>
-<p>"U, uh...."</p>
-<p>As if she didn't even think about my dick, which was limp and dangling from the tremendous ejaculation just now, she knelt between my legs and grabbed my dick as I lay down.</p>
-<p>"You have to clean it after you shoot like this, right?"</p>
-<p>"Well, yeah?"</p>
-<p>At my answer, Seizawa Shii bit my dick with her mouth as it was. Seizawa Shii, who cleaned my urethra with almost vacuum cleaner-like pressure, smiled contentedly as she looked at my dick, which had been re-erected by the cleaning fellatio.</p>
-<p>Seizawa Shii, who stood up again and matched the position of her pussy and my dick, slowly began to lower her waist. It seemed like she was trying to find out a new pleasure with the cowgirl position.</p>
-<p>"Haaaang...! It feels good, Ryuta-cchi♥"</p>
-<p>This time, my semen still remaining in her vagina acted as a lubricant, so my dick went in much easier than the first time. Seizawa Shii, who reached her peak as soon as I put it in, began to shake her waist.</p>
-<p>"Hiss, haeuheung...!"</p>
-<p>As her waist movements became more intense, Seizawa Shii's pounding became more and more painful. It would have been okay if it was a bed, but it was quite painful because the bottom was a hard floor.</p>
-<p>When I looked at Seizawa Shii, she seemed to be on the verge of losing her mind, so I didn't think it would work with words, so I grabbed Seizawa Shii's pelvis, lifted it into the air, and started piston movements by moving my waist.</p>
-<p>"Aaa...! Haa, it feels good!"</p>
-<p>Seizawa Shii, who pushed away my arm because she wanted to move herself (as she pushed, the chair next to her bounced off and smashed into the wall), moved her waist again.</p>
-<p>I quickly used a submission technique to grab Seizawa Shii and rotate her to change the position from cowgirl to missionary. My pelvic bones won't break in the missionary position, right?</p>
-<p>"Haeueung, hiss! It hurts, it hurts but, hiss! It feels good!"</p>
-<p>I also shook my waist much more violently than before, feeling like, "Now you try it too," but Seizawa Shii liked it even more.</p>
-<p>Then she wrapped her legs around my waist and squeezed tightly, and I clearly heard a cracking sound from the 11th and 12th ribs at the very bottom. Of course, it was regenerated immediately, but this was the first time I had such intense sex.</p>
-<p>"Haeueung! Hiss!"</p>
-<p>"Heoeok...heoeok... keuek!"</p>
-<p>With the sound of crashing and cracking, Seizawa Shii and I overlapped each other's bodies in a trance. When I came to my senses, Seizawa Shii was collapsed, constantly dripping semen from her pussy, and the surroundings were devastated.</p>
-<p>Let's see.... Five washing machines were damaged, and all the chairs around were smashed.</p>
-<p>But I won after all.... To be honest, having sex with Seizawa Shii was harder than Kaihsu Kakan, one of the Four Heavenly Kings of Anya Territory, earlier.</p>
-<p>"It's not sex, it's a battle...."</p>
-<p>There would have been a chair, I would have sat down, but I leaned against the half-crushed washing machine and muttered. Seizawa Shii, who seemed to have come to her senses at that voice, groaned and raised her body. Her recovery power is also amazing, isn't it?</p>
-<p>"Kyaak.... W, what is this?"</p>
-<p>"You did all this."</p>
-<p>"R, really? Ah, I have to buy a new washing machine...."</p>
-<p>She seemed to remember what she had done, as if she hadn't completely lost her mind. I smiled slightly as I looked at Seizawa Shii, who was feeling depressed while looking at the washing machine.</p>
-<p>"It wasn't just you who had sex, so I'll buy you a washing machine."</p>
-<p>It's a commercial washing machine, so it'll be a bit expensive, but I could do this much for Seizawa Shii, who bought a store to be with me.</p>
-<p>"Really? It's going to be a bit expensive...."</p>
-<p>"It's okay. Instead...."</p>
-<p>"Instead?"</p>
-<p>"Next time, let's just do it on the bed in the room. My whole body aches from doing it on the bare floor."</p>
-<p>Seizawa Shii laughed, "Ahaha," as I tapped her shoulder and said that.</p>
-<p>"Ahaha~☆ Ryuta-cchi, are you weak?"</p>
-<p>"It's not that I'm weak, it's that you're too strong."</p>
-<p>After finishing the conversation, we started cleaning up the laundromat for a while. We gathered the chair fragments in one place and started checking the broken washing machines one by one.</p>
-<p>"I can't use the towels. I have to throw them away."</p>
-<p>Seizawa Shii, who threw the towels that had been laid out for sex in the place where the chair fragments were, muttered and started putting on her clothes.</p>
-<p>The underwear that was caught up in our intense sex was also dirty, so she just wore shorts and a hoodie on her bare body, and when I was looking at her, she slightly revealed one side of her chest and laughed playfully.</p>
-<p>"Ufufu.... Should we do it one more time?"</p>
-<p>"No, if we do it again this time, we'll break a few more washing machines."</p>
-<p>"Ahahaha! Sorry, I lost my mind because it was my first time, Ryuta-cchi."</p>
-<p>Usually, if it's your first time, you don't know what to do, and you quickly fall out from the pleasure you taste for the first time. It seemed like it was a problem that her body was too energetic.</p>
-<p>____________</p>
-<p>Seizawa Shii B-cut!</p>
-<p>I liked it quite a bit, but it suddenly had a ponytail, so it became a B-cut hehe</p>
-<p>I also liked this illustration, but it didn't feel like she was leaning on the washing machine enough, so it also became a B-cut hehe</p>
-<p>Just a back view feeling hehe</p>
+<p>As Christmas approached, the atmosphere in the neighborhood was gradually changing. Actually, there had been such an atmosphere gradually since the end-of-term ceremony, but as the weather became colder, Christmas trees and decorations adorned every corner of the street, and the Christmas atmosphere was gradually escalating.</p>
+<p>I enjoyed that atmosphere and did quite a lot of work before my Christmas Eve date with Minamoto Risa.</p>
+<p>I finished up the TG Tech paperwork and submitted the 3rd semester Korean exam questions, and even reviewed the resumes of the executive candidates for my PMC recommended by Asada Ei and Asada Fukushi.</p>
+<p>And in between, I spent time with Otagi Yuka, Sakagami Rena, Urabe Konoka, Saionji Diana, and Seizawa Shii, who visited my house, spending the night with them in bed.</p>
+<p>Of course, not all the bed visitors were able to go on a Christmas date with me, so they grumbled a bit, but I silenced those grumbles with the thick, long truncheon between my legs.</p>
+<p>-♪~ ♬~ ♩~ ♪~</p>
+<p>On Christmas Eve morning, I listened to carols and drove to the place I had promised to meet Minamoto Risa.</p>
+<p>The meeting place was in Miyashi's downtown area, away from the Minamoto residence. It was rush hour, so there were a lot of people, but because Minamoto Risa was such a beauty, I could spot her even before I parked the car.</p>
+<p>She was standing there wearing a fancy coat made of real animal fur that the heiresses of conglomerates would wear (well, she really is a conglomerate heiress), and it suited her usual haughty appearance so well.</p>
+<p>,Merry Christmas! You're not late, are you?"</p>
+<p>,Of course I'm not late. I can't let you wait too long in the cold."</p>
+<p>I parked the car and rolled down the window, and Minamoto Risa greeted me with a Christmas greeting and a slight eye smile. She was wearing a coat, but her lower body was in a short skirt and stockings, so it would have been quite cold if she had waited for a long time.</p>
+<p>,Get in."</p>
+<p>,Okay~!"</p>
+<p>I was driving a different rented sports car, not the one I usually drive. The Minamoto Group would know my car as the homeroom teacher's, and the date could be canceled by the Minamoto Group before it even started, so I rented a car to prevent them from tracking me right away.</p>
+<p>Of course, if the Minamoto Group wanted to track me, they could, but they wouldn't be able to react quickly enough to interfere with the date. If I want to date Minamoto Risa, I have to put up with this much.</p>
+<p>,You changed your car?"</p>
+<p>Minamoto Risa opened the car door and said as she got into the passenger seat. The scent of Minamoto Risa's frequently used perfume and Minamoto Risa's unique pheromones filled the car, stimulating a man's instincts.</p>
+<p>,I rented it. In case the Minamoto Group tries to interfere with our date."</p>
+<p>,Ahahaha! You didn't want to be disturbed on a date with me?"</p>
+<p>Minamoto Risa laughed loudly as if my answer was funny. I listened to Minamoto Risa's laughter and started the car.</p>
+<p>,Don't worry too much about our family. I talked about it well at the meeting on the last day of school."</p>
+<p>I'm curious about exactly what she said at the dinner on the last day of school. I've talked about this topic before, but I didn't go into detail, so I was curious about what was said at the dinner.</p>
+<p>,Exactly how did you talk about it?"</p>
+<p>,Yeah, I talked about it well this time, so the family decided to stop meddling in my marriage."</p>
+<p>Hmm, that's a bit unexpected. A prestigious family like the Minamoto doesn't see marriage as the result of love between a man and a woman, but as a political union between families, so they don't give up arranged marriages easily.</p>
+<p>The Seizawa family, who don't interfere if they don't receive anything from the family, is a very unusual case, and usually prestigious families mainly have arranged marriages. Moreover, Minamoto Ushin was a fool for his youngest daughter, even recognized by the Taira intelligence team. But he said he wouldn't care about marriage? Hard to believe....</p>
+<p>,Your father allowed that? The guy who tried to get me fired for holding your shoulder a bit during our three-legged race at the sports day?"</p>
+<p>,Yeah, I guess he realized something from this incident."</p>
+<p>Minamoto Risa said nonchalantly. It would be believable if Minamoto Ushin said it himself. Sugawara Chohei, who was the marriage candidate this time, was such a mess that he might have changed his mind.</p>
+<p>,By the way, do you like sports cars? Seeing that your original car and the car you rented this time are both sports cars."</p>
+<p>,Actually, there's no car I particularly prefer. My original car was provided by the family, and I got this car now because I'm dating you, so I wanted to block any interference and get a car that's suitable for a date."</p>
+<p>,Heeh.... Is that so?"</p>
+<p>Minamoto Risa seemed quite pleased when I said I rented it to go on a date with her. I glanced sideways as she crossed her legs in the passenger seat, and she smiled like a little devil.</p>
+<p>,If you cross your legs like that, any man will look...."</p>
+<p>,I didn't say anything?"</p>
+<p>When I said that as an excuse, Minamoto Risa crossed her legs in the opposite direction again as if it was fun. I pretended not to see while looking at the road on purpose, but this time she put her feet on the car dashboard and started messing with my view like a nuisance passenger.</p>
+<p>A quick glance.</p>
+<p>When I couldn't stand it and looked at Minamoto Risa's legs, she laughed as if she had done it.</p>
+<p>I seemed to have become a bit more comfortable. When I was first appointed at the beginning of the semester, she was wary of men because of the previous homeroom teacher, and even had a bit of a misandrist feeling. Now she's developed to the point where she can play such lewd pranks, so I was deeply moved.</p>
+<p>,Are you a pervert?"</p>
+<p>,Any man is bound to become a pervert in front of pretty legs."</p>
+<p>,Hehe, so you're saying my legs are pretty? You're good at saying nice things."</p>
+<p>Minamoto Risa, perhaps embarrassed by my answer, lowered her legs again, contrary to what she said. The atmosphere subsided for a moment, and she was looking out the window.</p>
+<p>The scenery outside was quite good, and driving on the road with Mount Fuji in the background didn't make the two-hour distance feel that long.</p>
+<p>,Oh...? It's snowing."</p>
+<p>When we were about fifteen minutes away from Tokyo, it started to snow from the sky.</p>
+<p>At first, small snowflakes like sleet scattered sparsely, but before I knew it, quite large snowflakes were falling like pouring down. It wasn't a blizzard, but it was about the size of large snowflakes, and if it got worse from here, it would interfere with the date.</p>
+<p>,It's snowing quite a bit.... Are we not going to be able to do the date we planned today?"</p>
+<p>,I know. The weather forecast said it would snow, but only a little."</p>
+<p>It was rare for any weather agency in any country to work properly. Our plan included walking around downtown Tokyo quite a bit, but with this much snow, it would be better not to go outside.</p>
+<p>,But let's try to do a few things we planned to do first. If it doesn't work out, we can take a taxi and rest at the hotel."</p>
+<p>,Okay...."</p>
+<p>Minamoto Risa answered quietly, perhaps shrinking back a little at the word hotel.</p>
+<p>Minamoto Risa was planning to go to the Minamoto main house by plane early tomorrow morning to spend Christmas with her family, so I had booked a hotel, but the fact that she was staying at a hotel meant that she was thinking about it a little, so I was wondering if it was today?</p>
+<p>,But it's a white Christmas, so the atmosphere is good."</p>
+<p>,Yeah, it's nice to see the snow piled up on the Christmas decorations."</p>
+<p>The streets of Tokyo were decorated splendidly for Christmas, so it was even more enjoyable to watch as it snowed. We drove along the decorated streets and decided to park the car at the 5-star hotel we had booked in advance.</p>
+<p>,Let's park in the hotel parking lot first...."</p>
+<p>We parked the car in the parking lot of the hotel we had booked and got out. Actually, Christmas dates were good to do at night because of the various lights and events, so I decided to indulge in Minamoto Risa's hobbies now in the morning and afternoon when the sun was out.</p>
+<p>,Ugh, I'm nervous...."</p>
+<p>You're the only one who gets nervous about going to Akihabara, you know?</p>
+<p>I was planning to look around the classic anime and manga stores in Akihabara with Minamoto Risa.</p>
+<p>Even though it was classic anime, it varied depending on the era, but Minamoto Risa and I had in common that we liked works from the 2010s to the 2020s.</p>
+<p>Of course, I was just looking at how the works I watched in the pre-possession era ended, but for Minamoto Risa, who didn't have any friends to share her hobbies with, even a light fan like me was qualified as a hobby companion.</p>
+<p>Minamoto Risa was thinking of sweeping up all kinds of goods there. Of course, she had a lot of money, so I decided to play the role of Minamoto Risa's brake.</p>
+<p>Minamoto Risa told me to stop her if she felt like she was going on a rampage, so I can stop her with peace of mind.</p>
+<p>,But it's natural to be excited because it's the first time."</p>
+<p>,The first time? You said you often hang out in Tokyo?"</p>
+<p>,Shii doesn't have any hobbies in this area, so I didn't want to force her to hang out with me, and I was a bit hesitant to go alone...."</p>
+<p>I understand why she's a little nervous if it's her first time. I nodded as if I understood Minamoto Risa's excuse and took Minamoto Risa's hand.</p>
+<p>When I came out of the parking lot, the snow had subsided compared to before. Fortunately, it wasn't enough to interfere with the date.</p>
+<p>,Then shall we go enjoy our Christmas date?"</p>
+<p>,Okay...."</p>
+<p>Minamoto Risa blushed and answered shyly when I held her hand and said it was a date. She looked so cute that I almost hugged her tightly without realizing it.</p>
+<p>_____________</p>
+<p>Minamoto Risa B-cut!</p>
+<p>Kkyoooot!</p>

@@ -5,76 +5,73 @@ weight = 585
 chapter = 585
 +++
 
-<p>After a steamy sex session with Kurayamada Kirie, I picked up my phone and couldn't help but pause. I had a lot of messages from the Special Class kids, telling me that the graduation trip was going to be 5 nights and 6 days instead of 4 nights and 5 days, because it was a graduation trip. And the destination was...</p>
-<p>Sakagami Rena: My lord, the destination for the school trip has been decided: Seoul in Korea and Xin Nanjing in Southern China.</p>
-<p>Sakagami Rena, who provides me with information via LINE whenever something happens, sent me a message so I could find out the destination.</p>
-<p>"Ah...!"</p>
-<p>I had a bad feeling about this... Neither Seoul nor Nanjing were good choices. Seoul, the main stage for the youngest son of MegaCorp, was a trap destination because I didn't know what could happen, and a huge incident was about to happen around this time in Xin Nanjing... It was almost on the scale of the LA famine, so I was a bit worried.</p>
-<p>The period was roughly set, but the exact occurrence of the incident had some randomness depending on the protagonist's actions, so I couldn't know whether the incident would happen during this school trip or not. I could only hope it wouldn't happen. As just a teacher, I couldn't stop this trip.</p>
-<p>Hmm... Maybe I should tell Daigo Terue? No, even if it was right after it was decided, I couldn't change it now that the departure is on Thursday. It's already Monday night.</p>
-<p>"Why are you looking so serious with that shit-eating grin on your face?"</p>
-<p>It was almost time to leave, so Kurayamada Kirie washed up, came out, and asked me after seeing my expression. While Kurayamada Kirie was writhing and sticking her tongue out in pleasure, I had already washed up, so as soon as Kurayamada Kirie was ready, we could leave right away.</p>
-<p>"Shit-eating grin...? It's nothing."</p>
-<p>I said it was nothing and turned off the LINE app. All I could do was prepare anyway. I couldn't bring weapons from Japan, so I had to prepare them in Korea or China in advance.</p>
-<p>Korea has Han Yu-gyeong and TG Tech's stuff, so preparation will be easy, but Xin Nanjing in China is the problem. I should ask Eve about this in advance.</p>
-<p>While Kurayamada Kirie was drying her hair, I turned on the dark web app and started talking to Eve.</p>
-<p>Ryuta: Eve, I'm going on a graduation trip to Seoul and Xin Nanjing in China this time. Can you prepare some equipment there in advance?</p>
-<p>EVE: What kind of equipment do you need?</p>
-<p>Ryuta: Hmm... A few guns and swords, and a power suit that can protect the entire Special Class?</p>
-<p>EVE: What? What the hell is going on in Xin Nanjing?</p>
-<p>Ryuta: Actually, I don't know if it will happen or not...</p>
-<p>I told Eve about what might happen in the future.</p>
-<p>EVE: Really? Then this might be a golden opportunity to invest. If the stock prices of related stocks fall due to this incident, we should sweep them up. Because it's a stock that will eventually go up.</p>
-<p>Ryuta: No, investment is good, but how about preparation...?</p>
-<p>EVE: That's not a difficult request. You can think of it as an opportunity to test TG Tech's mass-produced products.</p>
-<p>Ryuta: That's good too.</p>
-<p>Because of Eve's "the more the merrier" attitude, I even came to the point of wondering if this was okay, but I told Eve to prepare, so if something happens, we can deal with it as it happens, and if not, we can enjoy the graduation trip.</p>
-<p>"Let's go now."</p>
-<p>Kurayamada Kirie, who had finished preparing to go out, said. I nodded and got up from my seat.</p>
-<p>"How are you going to establish the PMC?"</p>
-<p>"I've already done the rest of the preliminary registration, and as soon as my PMC license comes out, I can do it right away. The PMC license results come out quickly, so I should be able to do it within this week."</p>
-<p>The PMC license was a license that many high-ranking Japanese officials took or needed, so the announcement of successful applicants was quite fast. If there are no major problems, I think the announcement will be made within 3 days. The list will probably be posted before or after the graduation trip.</p>
-<p>"Are the PMC preliminary members doing well?"</p>
-<p>"Yes, they're using the money you invested to pay the employees' salaries and rent a decent office in Tokyo."</p>
-<p>According to what I heard from Kurayamada Kirie, when she first abandoned Jinildang and said she was going to do a PMC business, some extremists made a fuss saying that she had abandoned the purity of Jinildang. But when they were able to show their families that they were going to work in Tokyo with the monthly salary deposited into their accounts, the complaints disappeared as if they had never happened.</p>
-<p>The complaints of some Jinildang members were cured by your beliefs, capitalism. This became a happening that could be passed over with a single word.</p>
-<p>"Mimata Chieri-ssi and Sawayanagi Azuma-ssi are both Sunbae in the industry, so ask them if you have any questions. I don't really know much about the PMC industry."</p>
-<p>"I'm already contacting them often. They're both kind enough to tell me."</p>
-<p>After leaving the hotel and talking about the future PMC business, I arrived at the parking lot before I knew it.</p>
-<p>"I'm leaving now."</p>
-<p>"Okay, let's see each other often."</p>
-<p>"It's the company you invested in anyway, so you'll see me often even if you don't want to."</p>
-<p>Kurayamada Kirie naturally took out a helmet from the subspace, put it on, and said while riding her bike.</p>
-<p>Well, the money I supported wasn't a small amount, so if I calculated the ratio of the original Jinildang's assets, I had invested almost 65 percent. In other words, the PMC that Kurayamada Kirie will build is also mine. Unless there is no relationship at all, it is practically my PMC, so I had no choice but to meet often.</p>
-<p>Watching Kurayamada Kirie disappear on her bike, I got into my car. I should tell Han Yu-gyeong and Ha Ju-yoon that I'm going to Korea. They'll both be very happy to hear that.</p>
-<p>###</p>
-<p>Because everyone knew that I was studying for the license, the Special Class kids, who had been careful until I took the test, were unsealed from the day I went to work on Tuesday, the day after the test.</p>
-<p>They came to me every break to ask me to play with them or eat snacks together, and after school, it became like we were naturally doing date experience club activities, so we went to various places and took pictures.</p>
-<p>"Okay, take this pose... Smile naturally~!"</p>
-<p>Minamoto Risa was looking at me and taking pictures, and that camera was quite unique. Six cameras made like a big hula hoop were surrounding me, and there were two cameras above and below. It was a hologram camera that cost a whopping 1,500 yen to print one, and she was taking pictures with it while changing the background.</p>
-<p>"Will this sell?"</p>
-<p>"I'll take responsibility for whether it sells or not, so don't worry about anything."</p>
-<p>Minamoto Risa smiled confidently. It seemed that the club anthology that our date experience club would sell at the festival wouldn't sell well, so Minamoto Risa suggested including my photo card as a bonus. And everyone agreed to that opinion, so this happened. Actually, it's a hologram photo, so it doesn't feel like a photo 'card', but more like a photo token.</p>
-<p>So the price of the anthology, which was originally thought to be 500 yen, was set at 5,000 yen, which is ten times higher. I was wondering who would buy a club anthology for 50,000 won, but Minamoto Risa said she would take responsibility for everything, so I was just being dragged around and taking pictures.</p>
-<p>Beyond taking solo photos, I also took hologram photos with the Special Class students for their personal collections, so I didn't have time to do anything after school.</p>
-<p>In addition, the disappointing thing was that I had taken pictures of all the other students (even Alik and Uenozono Karen, who were not club members), but Minamoto Risa, the target, was so focused on taking pictures that she had no intention of taking pictures with me.</p>
-<p>If I took pictures of things that would remain as memories like this, my favorability would increase while looking at the pictures, but Seizawa Shii stepped in as if she knew I was feeling sorry at that time.</p>
-<p>"Everyone else has taken pictures, so Risa-ttan should take a picture with Ryuta-zzi too. The scenery here is good, so it'll look good together!"</p>
-<p>Seizawa Shii was the best as expected. Minamoto Risa stood next to me as if she couldn't beat Seizawa Shii's words.</p>
-<p>"Aww~! Get a little more lovey-dovey~☆"</p>
-<p>Minamoto Risa, who was awkwardly standing a little apart, stuck to me a little as if she couldn't help it at Seizawa Shii's words. When Minamoto Risa got close, I smelled Minamoto Risa's unique scent like cherry blossoms.</p>
-<p>"Are you taking it? One, two, three!"</p>
-<p>With Seizawa Shii's words, the sound of click, click, click was heard and the picture was taken. As soon as the picture was taken, Minamoto Risa quickly got away from me, but her cheeks were slightly red, so it seemed like she was embarrassed.</p>
-<p>"Let's just take pictures up to here because tomorrow is the day we leave for the graduation trip."</p>
-<p>I also took a picture with Minamoto Risa. I decided to end the photo shoot here today. I have to go buy things because there are things to buy before the trip.</p>
-<p>"And I'll pay the price, so Minamoto, give me a separate copy of the pictures I took with me and the students. It's a picture I took with the students, so I'll keep it too."</p>
-<p>I said that because I thought it would be a meaningful picture. At my words, Seizawa Shii clapped her hands and opened her mouth.</p>
-<p>"Ah! Let's take a group photo of us too, then! What do you think, Ryuta-zzi?"</p>
-<p>"We can take a lot of those on the school trip. There are some students who didn't come to the club today."</p>
-<p>It was the day before the graduation trip, so there were many kids who skipped club activities because they had things to buy. So it was impossible to take a class photo.</p>
-<p>"Still, let's take it today and finish it~! I'm going to take a picture with me, Risa-ttan, and Ryuta-zzi, so you can gather a few more people and take pictures."</p>
-<p>Seizawa Shii seemed to want to take a picture with Minamoto Risa and me. I nodded as if I couldn't help it. Otagi Yuka, Sakagami Rena, and Saionji Diana, who participated in the club activities today, also seemed to want to take pictures with me separately. For reference, these three don't have family support, so they decided to shop with me for the graduation trip, so they were waiting until the club was over.</p>
-<p>In the end, I became like a life-size standee for taking pictures with a few students and had to spend some time.</p>
-<p>________</p>
-<p>Seizawa Shii new model practice.</p>
-<p>Heuheung...! I like white gyaru~!!</p>
+<p>"Gheuk...! Keueok...!"</p>
+<p>The guide twisted his whole body while vomiting, then stood up from his spot. The special class students held their breaths, watching the guide with bated breath. Surely, warning messages must have popped up on the students' VR devices as well, but seeing the guide, who looked like he was infected with the plague, acting strangely, they wore slightly fearful expressions.</p>
+<p>"W-What in the world is going on...?"</p>
+<p>In the sudden situation, Uenozono Karen spoke in a trembling voice, but she didn't stop filming with her GoPro. At this point, isn't it more like a war correspondent's sense of duty rather than a vlog? Normally, one wouldn't even think of filming in such an unexpected situation.</p>
+<p>"Geureuk...! Keuk! Kireureuk!"</p>
+<p>As if he heard Uenozono Karen's live broadcast, the guide made strange noises and turned his body towards us. The guide, with vomit smeared on his mouth, looked at us for a moment with only the whites of his eyes showing, then charged at us with a shriek, "Kieee!"</p>
+<p>It was the appearance of a zombie seen in movies. He had a lot of cyber implants attached to his body, so it was a bit unique, but I couldn't help but think of zombies.</p>
+<p>The speed at which the guide charged was incredibly fast, befitting a cyber implant user. However, since I was sitting behind the driver's seat, the closest to him, the guide couldn't charge at the students as his waist was grabbed by my hand.</p>
+<p>"Nowhere to go, not to my students...!"</p>
+<p>I grabbed his waist and threw the zombified guide backward. The guide crashed to the ground with a loud noise.</p>
+<p>Kwaang!</p>
+<p>"Suplex!! Awesome, Sensei~!"</p>
+<p>Naruse Shiyo shouted in an excited voice, not fitting the situation. But the guide soon struggled and got up. I ran to the driver's seat, opened the entrance, and kicked the guide out.</p>
+<p>A pride of lions, who were approaching while loitering, saw the suddenly appearing large prey and came closer. Then they paused for a moment, looking at the guide with a feeling like, 'Isn't this the friend who used to give us raw chicken?'</p>
+<p>"Kyaa! Lions! What do we do...!"</p>
+<p>"Lions~! Look here, lions!"</p>
+<p>The students, who hadn't properly grasped the situation yet, were worried about the guide who had been thrown outside, and Seizawa Shii seemed uninterested in the guide and was happy to see the lions. Seeing her like this, Seizawa Shii feels a bit scary.</p>
+<p>"Kuaaaa!"</p>
+<p>"Euheoheong!"</p>
+<p>Of course, the guide, who had turned into a zombie and lost his mind, charged at the lion at the very front who was loitering. It's obvious that a human can't win in a confrontation with a lion, but the guide was a mechanical weapon plastered with cyber implants all over his body. It meant that he could have a good match with the king of beasts, the lion.</p>
+<p>We were able to vividly watch the match between the cyber zombie VS the lion through a window. I never thought I would see such a scene directly, not even in a movie. The cyber zombie killed one lion and fought reasonably well, but eventually, his whole body was broken down into flesh and machine by the collective attack of the remaining lions.</p>
+<p>"This isn't a hidden camera, right? It's real, right?"</p>
+<p>I heard someone muttering after seeing all these scenes. Judging from the voice, it seemed to be Kujo Kina.</p>
+<p>"A plague? Z-Zombies are just in movies.... Medically, it doesn't make sense...."</p>
+<p>I heard Kijimoto Jurie panicking and muttering quickly as if she was in a panic. Um, how should I explain this...?</p>
+<p>"Maybe, in my opinion, it's a virus in the cyber implants. We're all fine, right?"</p>
+<p>Minamoto Risa said. Oh, thankfully, I don't have to explain. Everyone nodded as if Minamoto Risa's words made sense, then looked at Saionji Diana, who also had cyber implants. Everyone wore slightly fearful expressions, as if asking, 'Surely not you too?'</p>
+<p>"I updated the firewall before coming on the graduation trip, so I'll be fine. And I'm using a closed-type cyber implant, so there's no way for a virus to enter. I'm using the VR device that you guys received, too."</p>
+<p>Everyone seemed somewhat relieved by Saionji Diana's words that they shouldn't worry, but the current situation was still serious.</p>
+<p>Minamoto Risa's prediction was true. This situation was exactly what I was worried about.</p>
+<p>The Great War, World War III, was over, but the scars remained until now, eight years later, whether it was the victorious or defeated countries, and so did the grudges left to each other.</p>
+<p>The person who caused this incident was a VR computer technician from North China who one day discovered a flaw in the cyber implant OS (operating system) Phoenix, created by the giant South Chinese cyber tech company, Phoenix Technology Company. If certain conditions were met, it could give a strong stimulus to the brain and maximize human aggression.</p>
+<p>The VR computer technician, who had lost his child in the war, vowed to take revenge on South China with this flaw.</p>
+<p>He created a North Chinese terrorist group to carry out attacks against South China and attacked companies other than Phoenix Technology Company, which had the problem he discovered. It was to spread Phoenix Technology Company's OS Phoenix even further.</p>
+<p>As Phoenix Technology Company's OS, Phoenix, became the dominant software for South Chinese cyber implants, he spread a pre-completed dormant virus in New Nanjing City, where there were the most cyber implant users, and the current situation occurred.</p>
+<p>Whether that date was in mid-November or late November of this year changed dynamically depending on the situation, but we were unlucky enough to have the incident happen on our first day in New Nanjing City.</p>
+<p>As Saionji Diana said, there was no need to worry about infection if it was a closed-type cyber implant, but this place was a VR technology special zone with a lot of technical interaction. Basically, it meant that it was a city that used open-type cyber implants. Right now, more than half of the cyber implant users in New Nanjing had become cyber zombies.</p>
+<p>"Minamoto's idea seems right."</p>
+<p>"Certainly, that guide just now was full of cyber implants."</p>
+<p>"And we just arrived in New Nanjing City, so we didn't have a chance to get infected with the virus."</p>
+<p>Otagi Yuka and Sakagami Rena, and Saionji Diana, to whom I had told the story that this kind of thing could happen, agreed with Minamoto Risa's words. I was doing this public opinion manipulation (?) because it would be easier to act if the special class students quickly accepted the fact that the current situation was dangerous.</p>
+<p>"Still, we don't know, so let's wear masks or something."</p>
+<p>"There aren't any masks."</p>
+<p>"There are a lot of school nurses.... Here, here."</p>
+<p>Since there were still many students who didn't know, everyone shared and wore all the masks that Kijimoto Jurie had. Kijimoto Jurie, being a school nurse, carried a bag full of emergency supplies, and there were quite a few masks in that box.</p>
+<p>"Huh? The internet is down."</p>
+<p>"Me too. The connection to the outside is cut off."</p>
+<p>"I can't make calls either?"</p>
+<p>When the dangerous situation occurred, the students all tried to contact their respective families, but they were all showing flustered reactions because the internet was down. Of course, the person who caused this incident wouldn't just spread the virus and end the job. The goal was to cut off communication with the outside and create more chaos.</p>
+<p>"Everyone, don't worry. I'll drive, so let's get out of this safari park first."</p>
+<p>I comforted the students who were suddenly panicking because the communication was cut off and sat in the driver's seat.</p>
+<p>There were still lions loitering around the bus, so it was quite difficult to turn the car around. I picked up the plastic box containing the raw chickens next to the driver's seat, opened the door for a moment, and scattered them all far away.</p>
+<p>The lions ran after the scattered raw chickens, and in the meantime, I turned the car around and started going back the way I came to get out of the safari park.</p>
+<p>"I-Is it really zombies, everyone? I'm scared...."</p>
+<p>I continued to drive while listening to Uenozono Karen's vlog recording.</p>
+<p>The tigers who were proudly mating on the rocks had also disappeared somewhere, sensing the commotion, and the wolves who were acting friendly, asking for raw chicken, were nowhere to be seen. When I was thinking that it was a cyber implant virus, so it wouldn't affect animals, I could see why the beasts were not visible.</p>
+<p>The barbed wire fence surrounding the safari park was torn and there was a hole. It seemed that all the beasts in the safari park had run out through that hole.</p>
+<p>Cyber zombies plus beasts roaming around, the difficulty has increased even more....</p>
+<p>Seeing that the ticket office at the entrance was empty, it seemed that the employee at the ticket office of the safari park at the hole in the barbed wire fence had been infected with the virus and had gone berserk and made a hole in the barbed wire fence.</p>
+<p>"Keueooo!"</p>
+<p>"Kieee!"</p>
+<p>As soon as we came out of the safari park, the cyber zombies who heard the noise rushed towards the bus we were in. They were all foaming at the mouth and running with their eyes rolled back, which was quite terrifying, but this bus was specially made to be safe even if a beast attacked. With a sturdy steel frame and strong iron bars on the windows, even zombies with cyber implants wouldn't be able to break it easily.</p>
+<p>Thinking about it, this bus seems much better than the bus we were originally on? Because it's much sturdier. Although it's narrower than the bus we used to use.</p>
+<p>"If only I had a sword...."</p>
+<p>I heard Shimokawabe Airen muttering. She seemed to be itching for a fight, being a battle maniac.</p>
+<p>Tung tung tung tung!</p>
+<p>I heard the sound of cyber zombies hitting the bus wall from the outside. There were so many cyber zombies gathering that it was becoming difficult for the bus to move.</p>
+<p>__________</p>
+<p>I liked the Kunoichi Home Teacher's ninja suit made for the 4 million celebration, so I had Sakagami Rena wear it too, hehe.</p>
+<p>Kkiyot!!</p>

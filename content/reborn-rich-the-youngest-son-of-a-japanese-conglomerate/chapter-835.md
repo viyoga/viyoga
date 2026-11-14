@@ -5,97 +5,71 @@ weight = 835
 chapter = 835
 +++
 
-<p>The sight of the mother and daughter lying side by side, which I had stopped having sex with just now, was very erotic to my eyes. Originally, I was going to talk before having sex, but seeing them lying like this, I couldn't help it.</p>
-<p>I couldn't make my cock, which was already struggling because I hadn't cum yet, suffer any more, so I thought I should enjoy it a little first. I guess I can talk later. If I left it like this, the blood might rush to my cock and it might explode.</p>
-<p>'Daddy...♥'</p>
-<p>'Since it's your first Intimate Experience, I should make sure you experience Ejaculation properly.'</p>
-<p>First, as a reward for her first Intimate Experience, I decided to inject semen into Oofuchi Erika, who was calling me Daddy. I spread Oofuchi Erika's stocking-clad Thighs again and pushed my glans into her small, gaping pussy.</p>
-<p>Tzzgeuk...!</p>
-<p>'Haa-eua-hang! Appuaaa...! Even though it's being inserted for the second time, it's sooooo goood♥'</p>
-<p>As soon as I inserted it, Oofuchi Erika spread her Toes wide, trembled, and reached a small Climax. I grabbed Oofuchi Erika's large Breasts and slowly shook my waist.</p>
-<p>'Kyaa-heung...! Breast, haaht, if you grab them like thaaat...! It feels strangeee♥'</p>
-<p>In fact, from the beginning, I had covered her upper body with the Entwined Sheets, and then after thrusting into her pussy, I realized she was a Virgin, so I tried to move my waist as gently as possible so it wouldn't hurt, so I hardly touched Oofuchi Erika's Breasts.</p>
-<p>But seeing how good her Reaction was like this, it seemed that her Breasts were also quite Sensitive. She's Daigo Terue's goddaughter, but seeing how her Reactions are a bit similar, I wondered if she was really her daughter.</p>
-<p>'Next is... my turn, Ryuta...♥'</p>
-<p>While I was touching Oofuchi Erika's Breasts and doing the piston movement for a while, Daigo Terue got up, came behind me, pressed her Breasts tightly against my Back, and started stimulating me by caressing my Balls and Anus area.</p>
-<p>My cock had already received enough Stimulation from Oofuchi Erika and Daigo Terue earlier, so a Ejaculation signal quickly came from my Balls.</p>
-<p>'Daddyyy...! Inside, haaht! Daddy's...! Is getting bigger and harder, heueu-heung...♥'</p>
-<p>Oofuchi Erika, who was a Virgin, also seemed to instinctively feel the signs of my Ejaculation, as she moaned loudly and clung to me.</p>
-<p>Thud! Thud! Thud!</p>
-<p>Like a short-distance marathoner running towards the finish line that was now visible, I raised my final sprint even more and shook my waist roughly.</p>
-<p>'Keueueut! I'm cumming...!'</p>
-<p>Byuuut! Byuuut! Byuuuut!</p>
-<p>Semen spurted out powerfully and began to fill Oofuchi Erika's Virgin Uterus, which no one had ever filled before. As my Ejaculation continued, Oofuchi Erika hugged me tightly and reached Climax.</p>
-<p>'Heuaaaht! Inside my Bellyyy...! Is hottt, Daddy, Daddy, haaht! Daddyyy♥'</p>
-<p>'Erika, this is what it means to cum. It's one of the happiest things a Woman can feel.'</p>
-<p>Daigo Terue approached Oofuchi Erika, who was already feeling Climax, stroked her Cheek with affectionate Eyes, and gave her sex education(?).</p>
-<p>After Ejaculating for a while, I slowly pulled my cock out. And I held my Large Penis out in front of Oofuchi Erika's Face.</p>
-<p>'Did something this big go inside me?'</p>
-<p>Oofuchi Erika looked at my Large Penis and asked with wide Eyes. I smiled and nodded.</p>
-<p>'So, Erika must have felt good, right?'</p>
-<p>'Heeh.... I see. Then...!'</p>
-<p>Nael-leom.</p>
-<p>Oofuchi Erika began to lick the vaginal fluid and my semen that were smeared on my cock. Everything must be new to her since it was her first Intimate Experience. Oofuchi Erika, who was feeling the taste and texture of my semen, opened her Mouth wide, put my cock in, and sucked it.</p>
-<p>Tzzwip, tchup, tzzbeueup, chwip♥</p>
-<p>A full-fledged Cock Cleaning had begun. I didn't teach her separately, but she's doing well. She's a top student.</p>
-<p>'Beuha...! I cleaned it, Daddy...♥ Now, please do it for Mom too~!'</p>
-<p>Oofuchi Erika, who had been sucking my cock for a while and sucking out even the semen remaining in my urethra, said as she pulled in her godmother Daigo Terue. She had an Expression that she wanted her mom to have fun too. She's such a Filial Daughter.</p>
-<p>Does she really want to create a Mother and daughter layered sex? Daigo Terue seemed embarrassed by Oofuchi Erika's Actions, but soon she gave a lewd Smile, grabbed my Face, and started kissing me.</p>
-<p>Chwip, jjok, jjok, tzzbeueup...! Chwip-chwip♥</p>
-<p>'This is an Adult's Kiss...!'</p>
-<p>Oofuchi Erika, who had started with sex without a Kiss with me, was watching from the Side with sparkling Eyes.</p>
-<p>'Erika, I'll show you Adult sex.'</p>
-<p>Daigo Terue really seemed to be trying to teach Oofuchi Erika about sex, as she taught her various forms of servitude, such as Fellatio, Paizuri, and 69, and after showing her once, she had Oofuchi Erika do an internship.</p>
-<p>In particular, what gave me the most Pleasure in the servitude education was the double Paizuri, where the four Breasts of the two Mother and daughter surrounded my cock, and I felt a pleasant feeling as if my whole Body was wrapped in something soft.</p>
-<p>The next class was, of course, sex, and she showed me various sexual positions, but because Daigo Terue felt so much Pleasure, the education was not properly carried out.</p>
-<p>Of course, there was no internship like during the servitude, but Oofuchi Erika was stimulating her pussy and Masturbation while watching the sex between me and her godmother, and was enjoying it in her own way.</p>
-<p>'Haa-haang~! Heu-haaang...! I like you filling my cock up, haa-haang♥'</p>
-<p>Daigo Terue's appearance, with her neatly tied hair coming loose and moving as if dancing while performing several intensely moving positions, was very bewitching. She was now showing off the cowgirl position on top of me, and that movement was the most optimal erotic movement to squeeze out a man's semen.</p>
-<p>I appropriately bounced my waist, pressing Daigo Terue's Pleasure button, and each time I did, I could see Daigo Terue becoming more and more soaked in Pleasure.</p>
-<p>'This time, do it from behind for me...♥'</p>
-<p>Daigo Terue pulled out my cock, turned around to face me in a doggy style position, and said. Even with her Fading Reason clouded by Pleasure, she didn't forget to wiggle her Buttocks and seduce me. Is the last Education the doggy style?</p>
-<p>I had already cum once to Oofuchi Erika earlier, but Daigo Terue had stimulated my cock in various ways while teaching Oofuchi Erika various things, so it seemed like semen would come out soon.</p>
-<p>'I'll fill your Uterus with this position.'</p>
-<p>'Heueung...♥ I don't know...!'</p>
-<p>I announced my Ejaculation to Daigo Terue and started shaking my waist while grabbing the upper part of Daigo Terue's Pelvis.</p>
-<p>Thud! Thud! Thud!</p>
-<p>'Haeum...! Your cock, haaht! The angle is haaht! Different, haaht! This, haaht! This is gooood, haa-hang♥'</p>
-<p>Daigo Terue's moan grew louder along with the loud sound of flesh slapping. It seemed that her excitement was heightened even more because she knew that Ejaculation was imminent.</p>
-<p>'Haaht! Ejaculation is getting closer, haaht....! I like you pressing down hard, haaht! I like ittt♥'</p>
-<p>'Daddy, please receive Erika's Lips Virgin...!'</p>
-<p>Daigo Terue, who had been left alone for a while and was lonely, came to me and held out her Lips. It seemed she was trying to have her first Kiss with me, which she hadn't been able to do until now.</p>
-<p>As I held out my Lips, Oofuchi Erika lightly touched my Lips like a bird Kiss. But I, who was already shaking my Lower Body and heading towards Ejaculation, was not more excited by this sweet Kiss. I put my Tongue in as if violating Oofuchi Erika's Mouth and began to Molestation the inside of her Mouth wildly.</p>
-<p>Tzzbeuep, jjok, tzzheup...!</p>
-<p>Thud! Thud! Tteol-sseo-eok!</p>
-<p>'Haeueut~! I think I'm going, haa-haang...! Pussy going, going! Goinggg!!!"</p>
-<p>The fresh Sensation of the Kiss Virgin felt on my Tongue, the Lewd sound of the Kiss and doggy style, and even more Obscene Daigo Terue's Climax sound, I also reached Climax almost simultaneously.</p>
-<p>I pulled Daigo Terue's large Buttocks and started Ejaculating with my cock stuck in the deepest part.</p>
-<p>Wulkeok! Wulkeok! Wulkeo-eok!</p>
-<p>'Haaa-haang! This is ittt! Hot milk, haaht! I like it so much...♥'</p>
-<p>After pouring a lot of hot semen into Daigo Terue's Inside, I pulled my cock out. Oofuchi Erika, who had an Expression as if she had been waiting in Line for a ride, cleaned my cock, which was covered with her godmother's vaginal fluid.</p>
-<p>'Daddy.... It's not over yet, right?'</p>
-<p>Of course not. This week was the exam period, so all I did was have sex with Kurayamda Kirie on Wednesday, so I had plenty of Virility left.</p>
-<p>'Then.... Please enjoy the Mother and daughter layered sex to your heart's content♥'</p>
-<p>Oofuchi Erika, who licked my Ear once and then said Vulgar words. To say such outrageous things.... I'll have to Punish her a lot, right?</p>
-<p>'Heeh-heueung.... Daddy, no more, heueo-heo, really, stop it...!'</p>
-<p>Oofuchi Erika was completely out of it, saying stop, stop, and was sprawled out on the Bed. The Stockings she was wearing today were torn to shreds, and her whole Body was covered in Sweat, her own and her mom's vaginal fluid, and my semen.</p>
-<p>'Teacher, Erika~! Stop now, wash up, and come have Dinner~!'</p>
-<p>Daigo Terue's Voice was heard from outside. Daigo Terue was a proud Mother who left the last sex to her daughter and went to the kitchen, her Legs trembling, to treat her customer.</p>
-<p>'Heeh-heueung...!'</p>
-<p>Looking at Oofuchi Erika, it seemed like she wouldn't be able to come to her senses for a while. I let out a small Sigh, picked up Oofuchi Erika (just lifting her up made her pussy squirt water and reach Climax, that's how Sensitive her Body had become), and headed to the Shower Room.</p>
-<p>Today's B-cuts!</p>
-<p>I increased the number of Daigo Terue B-cut Scenes at Gojoy's request ㅎㅎ</p>
-<p>Erika has about two ㅎㅎ</p>
-<p>Seungj050 requested a pose that looks like Ha Ju-yoon and Alik are doing a Footjob.</p>
-<p>Ha Ju-yoon~!</p>
-<p>Alik</p>
-<p>What's a Chick ㅎㅎ</p>
-<p>AbsolutelyNonRefundable requested a Shirt, White Panties, Black Stockings, Ponytail Lisa Home Economics Teacher~!</p>
+<p>Thursday evening, I called Minamoto Lisa. There was also the fact that we hadn't been on a date for a while, and I also wanted to show her something.</p>
+<p>I waited for Minamoto Lisa in a secluded alley. Due to the nature of St. Francis Academy's street, if there were no female Students coming to the academy, there was no reason for people to be in the mansions, so there were often empty houses. Except for a caretaker coming by every few days to tidy up, there was no one there.</p>
+<p>The place I found was empty because all four surrounding houses had no Young Lady to enroll in St. Francis Girls' Academy. Thus, the alley between the mansions was a very secluded place.</p>
+<p>Of course, due to Miyashi's characteristics, even if the houses were empty or the area was secluded, the Public Order wasn't bad, so Minamoto Lisa wouldn't encounter thugs on her way.</p>
+<p>After waiting a little, I heard Footsteps, and when I poked my Head out, I saw Minamoto Lisa approaching.</p>
+<p>She looked like she had just been studying for her college entrance essay, wearing a very comfortable outfit with a hanten (a short winter jacket) over her school uniform. Since I had told her to dress comfortably for a quick meeting, it seemed she had come in her study clothes.</p>
+<p>"You're not late."</p>
+<p>"You, why did you call me all the way to a place like this? We could have just met at a nearby family restaurant."</p>
+<p>Minamoto Lisa asked, as if she didn't understand. She was subtly glaring at me and puffing out her cheeks, and even if our meetings were a secret, meeting in a place like this seemed a bit unappealing.</p>
+<p>Of course, Minamoto Lisa's thoughts weren't wrong, but this time, besides the secret of our relationship, there was one more secret involved, which was why I specifically called her to a secluded alley.</p>
+<p>"I called you for a reason. Look at this."</p>
+<p>I smiled and showed Minamoto Lisa Lizhael's gift, the Black Knight transformation Bracelet. Then, the frustration she felt from being called to a strange place visibly vanished in an instant.</p>
+<p>Because Minamoto Lisa had wanted to see my Black Knight transformation before, when I showed her the Bracelet, she looked at me with sparkling Eyes, as if they were popping out.</p>
+<p>"Did you repair the Bracelet?"</p>
+<p>"Yes."</p>
+<p>Before, when I said I couldn't transform because I had left the Bracelet for repair, she had been very disappointed, so when I said the repair was finished, she seemed very pleased.</p>
+<p>For reference, I had specifically requested Lizhael to maintain the Design after transformation, so even if the creator changed from Simyeonui ttal to Lizhael, my appearance after transformation would not change.</p>
+<p>"Shall I transform?"</p>
+<p>At my Question, Minamoto Lisa looked around. She was checking if there was any CCTV or if anyone was watching.</p>
+<p>"So there was a Reason you called me here?"</p>
+<p>Minamoto Lisa, having confirmed that there was nothing around, spoke as if admiring my choice of Position. Since there was no CCTV and the surrounding mansions were empty, Minamoto Lisa was the only one who would see me transform here.</p>
+<p>"Of course. I searched for a place like this just to show you."</p>
+<p>Actually, when I was deployed to St. Francis Girls' Academy, it was one of the secluded spots investigated by the Taira Information Team, but I lied and said I had investigated it for Minamoto Lisa.</p>
+<p>"Really? You searched for a secluded place just for me...! I'm touched, you...!"</p>
+<p>Minamoto Lisa said she was touched and hugged me. To be touched by something like this. It seemed she still had such High School Girl-like Emotions remaining.</p>
+<p>Minamoto Lisa, who had been hugging me for a while, released the hug, and looked at me with Eyes full of Expectation. Although she didn't speak, her Expression clearly said, 'Hurry up and transform~!', so I smiled and poured the Chaos of Creation into the Bracelet.</p>
+<p>As the Chaos of Creation flowed into the Bracelet, it flowed down as if frozen liquid was melting, and began to envelop my entire Body. And as it enveloped my entire Body, it gradually took on the form of Armor.</p>
+<p>"Wow...! The Black Knight is right before my Eyes...!"</p>
+<p>Perhaps because Minamoto Lisa's favorite ○-Punch Man was also a hero story, when I transformed into the Black Knight, who is called the hero of the Mortal World, her Reaction was very dramatic.</p>
+<p>"You...! Can I take a selfie?"</p>
+<p>"Hmm.... It's fine as long as you don't show it to anyone."</p>
+<p>I spoke awkwardly at the sudden request for a selfie. I hadn't expected Minamoto Lisa to suddenly ask for a selfie. It seemed she was very touched to see the Black Knight, whom she had only seen on the News, appear before her Eyes.</p>
+<p>"It's fine if anyone sees it. I can just say I took it with someone in cosplay."</p>
+<p>Chark! Chark! Chark!</p>
+<p>After taking several selfies, making V-signs with her Fingers and striking peace poses, or winking and changing poses while taking photos, Minamoto Lisa looked at me and spread her Arms.</p>
+<p>"This isn't the end, is it? Hug me and fly with me in your Black Knight state, you."</p>
+<p>"I was already going to suggest we fly around for a walk."</p>
+<p>To have already seen through all the Events I was planning, that's amazing, isn't it? I hugged Minamoto Lisa in my Black Knight form and used telekinetic Flight. Naturally, I used Shadow Domination to make Minamoto Lisa and myself less visible, and as we flew over Miyashi, I filled Minamoto Lisa's Dopamine, which would have been bored from continuous studying.</p>
+<p>Finally, that day arrived. Friday morning dawned, the day of Genbaki's UMC Unlimited Class Champion challenge Match. Since I had decided to watch the Match with all the Students after a long time, I went to the academy with snacks I had bought in advance.</p>
+<p>"Alright, the morning Jorye will be in the club room, so let's all go up."</p>
+<p>As I entered, carrying popcorn, potato chips, and nachos in both hands, all the Students laughed. "What is this, Ryuta-jji~!" Seizawa Shii was the first to Tackle me, and the other Students also laughed and said something.</p>
+<p>For today, when a Japanese Unlimited Class UMC Champion might be born again, Minamoto Lisa, Shido Tsubaki, Oofuchi Erika, and other Students in the university prep class decided to relieve their study Stress by watching the UMC Match for a while. Of course, Minamoto Lisa, who had flown extensively with the Black Knight yesterday, had an Expression that showed not an ounce of Stress.</p>
+<p>We all rushed up to the club room. Naruse Shiyo said that a doctor should be present because someone might hyperventilate while watching the Match, so the infirmary teacher Kijimoto Jurie also came to the club room with us.</p>
+<p>"First, today's Jorye is.... Canceled. It seems the school has nothing to say to you, with only Graduation remaining."</p>
+<p>The third-year High School Girls of St. Francis Girls' Academy were being treated almost like senior sergeants on their last tour. In fact, attendance requirements were significantly relaxed at this time, so Uenozono Karen had been absent for the past few days, including today. The reasons were recording and dance Practice for her next album release.</p>
+<p>For reference, Kujo Kina, who is serious about Martial Arts, was absent today, saying she flew directly to the USA with her Sabu and disciples to watch the Match. What incredible passion.</p>
+<p>"Then everyone, put whatever you want to eat in here and sit down~!"</p>
+<p>Naruse Shiyo, who brought a large Movie Theater popcorn tub from somewhere and spoke. It wasn't just me who prepared snacks; several Students had prepared their favorite snacks, so everyone filled their popcorn tubs with food without shortage.</p>
+<p>There were even Students who brought frozen Fries and fried them in a fryer, and those were Konoe Akina and Alik. Alik offered to make Fries because he was grateful for his friends' Support during the additional Test, and Konoe Akina offered to help, so the two of them were frying potatoes, emitting a savory Smell.</p>
+<p>"Alik, I like your Fries. Ryuta-jji, you eat a lot too."</p>
+<p>"Yeah, Alik. I'll eat well."</p>
+<p>I received the Fries that Alik generously filled into the popcorn tub. Next to me, Konoe Akina sprinkled Onion Powder and salt on the Fries and gave me a Bottle containing sauce.</p>
+<p>Everyone thus took their desired snacks and Drinks, sat down, and began watching the UMC Match on the large screen.</p>
+<p>Naturally, Genba Kiyohira and the Champion.... What was his name again? Ah, right. Hunter Herrera's Match was the very last main Match, so we had to watch the preceding Matches first.</p>
+<p>Since it was the day a Japanese Person was challenging for the Unlimited Class Champion title, UMC included several Japanese athletes in other Weight class and Matches as well, to boost popularity on the Japanese side.</p>
+<p>-Ultimate Martial Arts Championship! Today, Japan's New Hope, Genba Kiyohira, finally challenges for the Unlimited Class UMC Champion title. This is Los Angeles, New Colosseum Arena! Even at a glance, there are many East Asian spectators!</p>
+<p>The broadcast began, showing numerous spectators, and near the ring, Kujo Kina was seen waving her Hand and going wild. Kujo Kina's young disciples and the old man Yoda were also very passionately Supporting her, and seeing that sight, all the Students in the club room burst into Playful Laughter.</p>
+<p>The first Match featured fighters from different Weight classes, competing for Ranking.</p>
+<p>Among the first three Matches, one Japanese Person appeared, but unfortunately lost by Judgment and bowed his Head as he exited, and after that, the Unlimited Class began, seeing that the unranked lower-tier Unlimited Class Matches were lower in priority than other Weight class ranking Matches, one could understand the status of the Unlimited Class in UMC.</p>
+<p>From the very first Unlimited Class Match, a Western giant appeared, whose entire Body was veined from Drugs + Body Modification, and his Opponent was a Japanese Person who had replaced both his Arms with cyber implants.</p>
+<p>The excitement was certainly incomparable to other Weight classes. Both fought without dodging, with immense speed and power, and while the Western giant completely disassembled one of the Japanese Person's Arms, the Japanese Person formed a Spear with his Steel Hand and stabbed the giant's Neck.</p>
+<p>Udeudeuk! With a chilling sound, the Match ended, and medical staff quickly and skillfully entered the ring, providing Chiryo to the bio-modified Western giant, ending in a Japanese Victory.</p>
+<p>"Certainly.... The Unlimited Class Matches are much more interesting."</p>
+<p>Otagi Yuka mumbled beside me, picking at her popcorn. I also nodded in Consent, then watched the next Match. After the continuous Unlimited Class Matches ended, finally, Genba Kiyohira's Turn approached.</p>
+<p>Requested by Hwanbuljeoldae-bulga-nim: Lisa, Home Ec Teacher with Belly button + Armpit + Thighs showing~!</p>
 <p>Starting with Lisa-ttang~!</p>
-<p>I definitely put in black, but white Stockings keep coming out ㅎㅎ</p>
-<p>Home Economics Teacher</p>
-<p>The Home Economics Teacher is doing well ㅎㅎ</p>
-<p>Gojoys requested Daigo Terue Underwear + Breast Covering</p>
-<p>Underwear~!</p>
-<p>Breast Covering</p>
-<p>Kkeu-eut...!</p>
+<p>Home Ec Teacher~!</p>
+<p>Requested by seungj050-nim: Home Ec Teacher lying face down with Feet included Illustration~!</p>

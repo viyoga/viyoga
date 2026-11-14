@@ -5,77 +5,72 @@ weight = 357
 chapter = 357
 +++
 
-<p>After school, everyone except Alik, who was heading straight to the Cheongsim Hall to practice martial arts, and Saionji Diana, who said she was going to Cheongsim Hall today to thank Shimokawabe Airen-nim for her support request to me, headed to the club room.</p>
-<p>Of course, idol Uesonozo Karen, who was absent, and hikikomori Oofuchi Erika, whom I had never seen because she hadn't come to school yet, didn't come. It was a given that these two wouldn't come, so no students complained separately. In the first place, neither of them were club members.</p>
-<p>,It's big for 10 club members, isn't it?</p>
-<p>,The school's clubs originally accept students from junior high to high school, so there are more members than in a class. In fact, this size of club room is small scale.</p>
-<p>Konoe Akina, who became the president of the Date Experience-Meditation Club, said admiringly as she looked around the club, and I answered.</p>
-<p>Looking around, Seizawa Shii was wandering around the club room as if she was amazed, and the rest of the students were sitting in chairs at the long table.</p>
-<p>,Shii, sit down.</p>
-<p>,Neee~☆Lisa-tan!</p>
-<p>When Seizawa Shii sat down at Minamoto Lisa's words, I stood up and looked at everyone.</p>
-<p>,As you all know, I'm Yamashiro Ryuta, your homeroom teacher and club advisor. I'll let you do whatever you want with the club, and if you need anything, feel free to contact me. Decide on club rules by discussing them with each other, and don't stay up too late.</p>
-<p>Like a club advisor, I said that I wouldn't get too involved. I was too lazy to set detailed rules like club rules, and I thought that Konoe Akina and Otagi Yuka, the club president and vice president who secretly volunteered to be my helpers, would lead the club subtly as I wanted, so I thought it would be fine even if I didn't interfere directly.</p>
-<p>,As you all know, this is Konoe Akina, a classmate and club president. Please take care of me for the rest of the semester.</p>
-<p>,I'm Vice President Lisa, let's get along.</p>
-<p>When the president and vice president greeted each other, all the other female students applauded.</p>
-<p>,Actually, the name is Date Experience Club, but it's a club for friends to freely hang out, like going to cafes or theaters.</p>
-<p>,Why are you leaving out the meditation club?</p>
-<p>,Lisa-yang just named the meditation club, right?</p>
-<p>,No, I'm definitely going to do it, meditation!</p>
-<p>Konoe Akina and Minamoto Lisa, who had become a little closer after meeting separately after the student council's work yesterday, were comfortably bickering.</p>
-<p>,So, it's a club where you can hang out freely? Nice!</p>
-<p>Konoe Akina nods and answers Kujo Kina's words.</p>
-<p>,Yes, you can usually go home early or hang out with other friends, but let's set a day for club members to act together. When you go out, the advisor-sensei will accompany you as a bodyguard and as a boyfriend to match the club's name.</p>
-<p>This wasn't discussed. But it was manageable because it wasn't every day, but a few times a week. Everyone introduced me as a boyfriend, so they looked at me, and the gaze was really burdensome.</p>
-<p>,Before that.</p>
-<p>Minamoto Lisa opened her mouth after Konoe Akina finished speaking.</p>
-<p>,Since our special class is different from ordinary students, the student council has set a few conditions.</p>
-<p>Minamoto Lisa told the students the three conditions set by the student council. Everyone had heard it in the group line chat room, but it seemed like she was making it official by saying it out loud one more time.</p>
-<p>,So, we have to solve the auditorium moaning incident first.</p>
-<p>,If that's the case, I've been recording the area around the auditorium today. From before lunch to now.</p>
-<p>I added to Minamoto Lisa's words and told them that I had recorded the video. Since it's automatic recording, it's still recording now.</p>
-<p>,That's interesting! Shall we watch the recorded video?</p>
-<p>Muscle fighting girl Kujo Kina turned on the TV in the club room with excitement. I went to the mart in the afternoon and bought and installed the TV.</p>
-<p>,If you split the screen and run this file... Okay, done.</p>
-<p>Scenes of the auditorium area that I and Eve installed began to appear on the four screens. Of course, the culprit wouldn't appear right away, so it was just a boring landscape painting with no change.</p>
-<p>,Let's speed it up to 2x, no, 4x.</p>
-<p>Shido Tsubaki, who seems to know this well as a former newspaper editor, skillfully operated the remote control.</p>
-<p>,President, I know this kind of work better, so can I take command?</p>
-<p>,Yeah, sure! It's better for us to solve it quickly.</p>
-<p>At Shido Tsubaki's question, Konoe Akina made eye contact with Minamoto Lisa for a moment and then nodded and answered. As soon as Shido Tsubaki's permission was granted, she switched to newspaper editor mode in an instant and began giving instructions to each person.</p>
-<p>,Sakagami Rena, Hamahata Konoka, Naruse Shiyo, Kujo Kina, please keep watching the four divided screens. You can watch one screen each.</p>
-<p>,The rest of you, I'd like you to organize the clues you've obtained. I'd like you to check if there are any teachers on the list of teachers without alibis obtained from the student council that overlap with the teachers of the 3rd and 2nd year high school students and clubs that use the 3rd auditorium.</p>
-<p>,I'll contact the newspaper club to gather information.</p>
-<p>Shido Tsubaki quickly divides tasks among the students. Amazing, she can organize it so quickly.</p>
-<p>But Shido Tsubaki didn't call the newspaper club and looked at me. What is it? Does she have something to ask me to do?</p>
-<p>,Sensei... Please supply the students here with ice cream.</p>
-<p>Yeah, she just wanted to eat something sweet. I didn't have anything else to do, so I went to the education preparation room, took out ice cream and pudding from the refrigerator, put them in a plastic bag, and went up.</p>
-<p>,Look at this! This!</p>
-<p>While I was on the first floor for a while, Kujo Kina was making a fuss as if she had found something, and everyone was looking at the screen that Kujo Kina was pointing at.</p>
-<p>I'm curious about everything. I also approached and looked at the screen where Kujo Kina pointed. On the screen, a blurry brown-skinned man and a female student were seen walking somewhere. That somewhere was a secluded corner that the hidden camera wasn't capturing, which sparked everyone's curiosity.</p>
-<p>,Ah, that's not me.</p>
-<p>I said in embarrassment. Of course, I thought I would be suspected because of my brown skin.</p>
-<p>,Of course not. The hairstyle is different. That side has completely short hair, and sensei has blonde and somewhat long hair.</p>
-<p>Shido Tsubaki took out an ice cream from the plastic bag and answered. Shido Tsubaki said that I wasn't the culprit, and if those two are there, it's important where they go and how long they stay. They might come with a student to take something out quickly.</p>
-<p>,Kujo, what time did that brown teacher and female student go?</p>
-<p>,It was boring, so I sped it up to 32x. So... the time is now.</p>
-<p>At Kujo Kina's answer, all the female students shuddered. Everyone probably thought this. If we go to the auditorium now, can we see sex in real life? Everyone must be quite curious since they're all virgins.</p>
-<p>,Let's go right away! It's best to catch them in the act!</p>
-<p>,Kujo-ssi is right. Unless we're police, the best way to catch a criminal is to catch them in the act.</p>
-<p>However, Kujo Kina and Shido Tsubaki seemed more excited about catching the culprit. The rest just nodded unconsciously. However, only Minamoto Lisa, who had already seen a former homeroom teacher raping a student, didn't look good.</p>
-<p>,Shall we go then...?</p>
-<p>At my words, everyone gets up in a rush. And 10 people, including me, ran towards the auditorium together. A live broadcast of sex between a teacher and a student, no one would want to miss it. I was curious too.</p>
-<p>Of course, I'm curious, but if they get caught, that teacher won't be safe either. Whether they did it because they liked each other, threatened, or forced, they attacked a young lady from a prestigious family. If it's not someone like me, the result will be social annihilation.</p>
-<p>I picked up Naruse Shiyo, who was having a hard time running and panting, and ran. It was time for everyone to go home or do club activities in the club room, so there were hardly any students who saw us running.</p>
-<p>,Se, Sensei-niim...!</p>
-<p>,You're having a hard time. I'll have Kujo carry you when we come back. Just bear with it.</p>
-<p>,Y-yes...</p>
-<p>Naruse Shiyo answered in a barely audible voice at my words. I ran without falling behind and arrived at the 3rd auditorium. As the students got closer to the crime scene(?), their running speed naturally decreased, and when they arrived at the auditorium, they stopped and didn't even make a small voice.</p>
-<p>,If we make a fuss, they might notice in advance and run away. Let's be quiet and approach.</p>
-<p>Minamoto Lisa, who had already raided the scene(?) once, lowered her voice and said, and everyone nodded quietly.</p>
-<p>Everyone muffled their footsteps and headed towards the warehouse building outside the auditorium where the brown-skinned teacher and student had gone.</p>
-<p>I didn't know when I installed the camera, but the warehouse wasn't attached to the school wall, and there was some space for people to be. In the direction where the two disappeared, there was that space, and as we got closer, we could hear watery sounds and the moans of a man and a woman.</p>
-<p>-----</p>
-<p>Frail Girl Naruse Shiyo</p>
-<p>I tried to make it look frail, but I'm not sure if it feels right.</p>
+<p>"Welcome, investor-nim."</p>
+<p>Sawayanagi Sinya was sitting in the vice president's office when he saw me, stood up, and greeted me. He seemed to have been doing some paperwork, as there were documents and a fountain pen on his desk.</p>
+<p>"Sorry for making you come out on a Saturday."</p>
+<p>"It's nice to see your face after a long time, so it's fine."</p>
+<p>Because I had fought several battles with the Seryu-tai people, I had a good relationship with most of the members. In particular, Sawayanagi Sinya and I had rolled around together during the Azuma rescue operation, so our camaraderie was even stronger.</p>
+<p>"Is business going well?"</p>
+<p>Seryu Military Company didn't really need much intervention. Sawayanagi Azuma had future sight, so she knew which requests were safe and good. And from my point of view, it was good if the elite Seryu-tai grew well without losing personnel, so I decided on a policy of following Sawayanagi Azuma's decisions so that they could do actual combat as safely as possible.</p>
+<p>"Well, I don't know what will happen to the current mission, but it's going smoothly. While taking on overseas missions, the work of establishing orphanages for young esper boys and girls who are being oppressed in various parts of the world is also going well."</p>
+<p>Since most of them were in the Seryu-tai esper research lab, after failing to purchase young espers from slave traders, everyone agreed to the orphanage plan I recently proposed.</p>
+<p>Now, it hasn't been long since the LA disaster, so hatred for espers was still rampant around the world. Because of this, there were quite a few abandoned children, so I argued for the establishment of an orphanage to save those children and to train prospective esper unit members, and fortunately, everyone in Seryu-tai agreed with my argument.</p>
+<p>So now, they were acquiring the building next to Seryu Military Company and creating an orphanage called Seryu House.</p>
+<p>"I'm glad to hear that everything is going well. By the way, I found a student of mine who has talent as a VR diver, and I was wondering if Sinya-ssi could give them some advice?"</p>
+<p>Looking at Sawayanagi Sinya, I remembered the promise I made to Oofuchi Erika to connect her to a PMC's VR diver, so I asked Sawayanagi Sinya if it was okay.</p>
+<p>"I'd have to see how good they are, but advice should be no problem."</p>
+<p>"Then I'll tell them to contact you."</p>
+<p>This concluded my tour of the companies I was in charge of. In fact, all three places were being run almost entirely by delegation, so it ended quickly because there wasn't much for me to worry about.</p>
+<p>As I got up from my seat, Sawayanagi Sinya also got up as if he was about to leave work.</p>
+<p>"Are you going to the dorm?"</p>
+<p>"I live separately from the company dorm. Today is the weekend, so I'm going to meet my girlfriend."</p>
+<p>"I shouldn't have called you on the weekend. I'm sorry."</p>
+<p>"Don't be sorry. The investor-nim called, and the president is away right now, so of course, the vice president has to come out."</p>
+<p>I felt a little sorry for Sawayanagi Sinya, who had a date, but in the end, it was company business, so someone had to do it. Sawayanagi Sinya went down to the first floor to leave the building, and I went up to the dorm floor where Sawayanagi Seari and Mimata Chieri were waiting.</p>
+<p>Click...!</p>
+<p>I opened the door and went inside, and I could hear Sawayanagi Seari and Mimata Chieri talking and laughing. What are they doing that's making them so excited?</p>
+<p>The sound was coming from the bedroom. I opened the bedroom door and saw Sawayanagi Seari and Mimata Chieri lying together, dressed in sexy lingerie, waiting for me.</p>
+<p>"Ryuta-nim! Come here~!"</p>
+<p>"Ah, Sunbae-nim! The perverted Sunbae-nim prepared in advance before we could be attacked~!"</p>
+<p>What are you two talking about? But it was even funnier that I was taking off my clothes like Pavlov's dog. But there probably aren't many adults who can resist when two beautiful women are waiting in their underwear right in front of them.</p>
+<p>"As expected, the tanned body is more powerful."</p>
+<p>"I like Ryuta-nim no matter what~♥"</p>
+<p>Mimata Chieri, who likes netorare, naturally liked me more because I was closer to being a gold-tanned guy, and Sawayanagi Seari seemed to like me just for being me.</p>
+<p>"First, the two of us will serve Sunbae-nim together."</p>
+<p>It seemed that they had already made a sex plan while I was talking to Sawayanagi Sinya, because as soon as I took off all my clothes, they led me to the bed and started caressing me.</p>
+<p>Mimata Chieri licked and sucked my neck and nipples, excluding my dick, and Sawayanagi Seari wrapped my dick with her big elf breasts and started doing a bj with slightly awkward movements.</p>
+<p>"Does it feel good, Sunbae-nim?"</p>
+<p>I thought I wouldn't feel that good because I had just been with the succubus Yukiko, but the two of them caressing me felt pretty good. Sawayanagi Seari, who was clearly an Ero Elf, quickly became skilled at bj, and Mimata Chieri was definitely a seductress who knew my weaknesses, so I couldn't hold out for long and ended up cumming in Sawayanagi Seari's cleavage.</p>
+<p>"Heuhyat! It's warm between my breasts...!"</p>
+<p>"It's a waste to just let it flow!"</p>
+<p>Sawayanagi Seari was surprised that her cleavage was warm because of the temperature of my semen, and Mimata Chieri, perhaps because she didn't want to waste my flowing semen, buried her nose in Sawayanagi Seari's cleavage and started licking my semen with her tongue.</p>
+<p>What, are they playing like this to make me horny? I pushed Mimata Chieri's lace panties aside, who was showing her back while licking Sawayanagi Seari's cleavage, and immediately put my dick in.</p>
+<p>"Haeuhang...! I couldn't lick all the semen off yet♥"</p>
+<p>Mimata Chieri seduced me by shaking her hips while I was doing doggy style, and Sawayanagi Seari took over the caresses that Mimata Chieri had been doing and started licking and caressing my whole body as I moved my waist.</p>
+<p>It seemed that both of them were determined to suck all my semen today.</p>
+<p>"Heueut! Sunbae-nim's dick, haaht♥ is still good!"</p>
+<p>"Sunbae-nim's pussy is still good too."</p>
+<p>"When I felt it between my breasts just now, it was still a strong, pleasant dick like a boy!"</p>
+<p>Sawayanagi Seari said that at the end, and it became like a time to praise each other's genitals. Even though the topic is dicks, I guess this is what you call innocent.</p>
+<p>"Heueut, heung♥ Hang, euheung...! Heuhyat...!"</p>
+<p>"Haeut...! Ryuta-niim♥ Haeut...! Feels heueut!"</p>
+<p>Mimata Chieri, who was moaning as I stuck my dick in her, and Sawayanagi Seari, who was watching me and Mimata Chieri, was now masturbating instead of caressing me, and giving me moans right next to my ear in an ASMR style.</p>
+<p>In addition, with my slightly rougher breathing, the bedroom was filled with moans and wet, squelching sounds.</p>
+<p>"Haeut...! I'm, I'm going to go now! Sunbae-niim♥"</p>
+<p>"Haang! Ryuta-nim, I'm going too...! I'm gonna cum♥"</p>
+<p>"Keueut, I'm gonna cum!"</p>
+<p>All three of them reached their climax at the same time. I injected a lot of semen into Mimata Chieri's pussy and pulled out my dick. Unlike Yukiko's pussy, which absorbs all the semen as energy even if I do intravaginal ejaculation, Mimata Chieri's pussy dripped white semen. As expected, I liked the semen dripping like this in a cream pie. It felt more like conquest.</p>
+<p>"Haehaeu.... Haeu...! Semen, it's a waste."</p>
+<p>As if to get revenge for being licked in the cleavage just now, Sawayanagi Seari started licking the semen flowing from Mimata Chieri's pussy.</p>
+<p>"Heuaaang! I just, I just came, heueung! I'm saying...!"</p>
+<p>When Sawayanagi Seari licked her climaxed pussy, Mimata Chieri released a slutty juice mixed with vaginal fluid and semen and climaxed again.</p>
+<p>Of course, my dick, which had been watching the scene, overcame its post-nut clarity and stood up again. Whether she intended to or not, Sawayanagi Seari's pink pussy was in a perfect position for me to stick it in as she licked Mimata Chieri's pussy. It seemed that she had thrown away her panties while masturbating alone when I was with Mimata Chieri just now.</p>
+<p>As if asking me to put it in, her pussy was seducing me with its small, gaping hole. Of course, I didn't refuse the temptation. I put my dick, which was covered in Mimata Chieri's vaginal fluid like love gel, into Sawayanagi Seari's pussy.</p>
+<p>"Heueeung! Ryuta-nim's dick, it's been a while, heueut! since it's been inside♥"</p>
+<p>As expected, Sawayanagi Seari's Ero Elf pussy was good. It felt even more so because it felt different from humans, like Yukiko's succubus pussy. It was a different but very pleasant feeling that was a little hard to explain.</p>
+<p>"Haa, haa...! As expected, Sunbae-nim having sex with another woman is the best, haaang♥"</p>
+<p>Mimata Chieri, who had woken up from her climax, was masturbating while filming me and Sawayanagi Seari having sex with a camera that looked like a GoPro. When did she buy that? She's not an AV director. I'll have to confiscate that video later.</p>
+<p>"Haeueueheut! The camera is filming me, Ryuta-niim...!"</p>
+<p>"Does it feel good to be filmed?"</p>
+<p>"Eueueung, I don't know...! It feels strange♥"</p>
+<p>It seems like she likes being filmed. If this goes on, these two will become a tremendous pervert combo. I sighed slightly and started shaking my waist.</p>

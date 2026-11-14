@@ -5,118 +5,69 @@ weight = 1038
 chapter = 1038
 +++
 
-<p>After finishing all the dates, the final destination was the Hotel. From the moment Liz bought the underwear, I knew the final destination would naturally be the bed. Liz probably thought the same.</p>
-<p>"Liz...!"</p>
-<p>"Partner-isiyeo...."</p>
-<p>Entering the Hotel Room, we shared a passionate Kiss without needing to say who started first. Our mouths met, our tongues mixing, as we kissed, leaning against the wall at the Hotel Room's entrance.</p>
-<p>As Liz's soft breasts pressed against my body, her unique body scent, unlike any I'd smelled before, tickled my nose, heightening my Arousal.</p>
-<p>Chu-eup...! Jjeup♥ Jjeu-beup...! Jjok...!</p>
-<p>We, who had been Kissing with lewd sounds, parted our lips as if by prior arrangement, just like when we started Kissing.</p>
-<p>"I'll go wash. You-isiyeo."</p>
-<p>"No, I'll wash first."</p>
-<p>Liz, being an Outer God, had a resistance to dirt, so it seemed better for me to wash first. I entered the Shower Room and washed as quickly as possible. Rushing out before the Heat of my hardened cock cooled, Liz laughed, seeing the towel wrapped around my waist standing erect.</p>
-<p>"Hahahaha...! The towel is sticking out like a Tent, You-isiyeo."</p>
-<p>"This is a gift I've hidden."</p>
-<p>"I look forward to it, You-isiyeo."</p>
-<p>Liz, with a strange Smile, entered the Shower Room. The rustling sound of Clothes being removed was heard, and a moment later, Liz came Outside.</p>
-<p>"!"</p>
-<p>The Reason Liz suddenly said she was going to wash was because of the underwear she bought at the department store. Rather than undressing in front of my eyes, she appeared having undressed in the Shower Room to show off the underwear.</p>
-<p>It was quite serious erotic underwear. It was shaped like a T, covering her breasts and Pussy, and made of translucent Lace, so it was such a lewd sight that a man with weak Virility might Ejaculation just by looking at it.</p>
-<p>She was also wearing a translucent black veil on her Head, matching the underwear set, which also created a certain Atmosphere. It was like a lewd yet modest feeling.</p>
-<p>"This is the underwear bought with your Card. How is it? Does it please your Mind?"</p>
-<p>"Yeah...! My cock feels like it's about to burst any second."</p>
-<p>"Your cock is very precious, so it shouldn't burst."</p>
-<p>Liz, who had made a Playful Jest, gently pushed me, then removed the towel wrapped around my waist, and took my cock into her mouth, saying she had to suck it before it burst.</p>
-<p>"Eugh, Kueuk...!"</p>
-<p>The moment Liz took my cock into her mouth, a moan escaped me without my knowing. It was an immense Pleasure. A Pleasure like Lightning striking from Head to Feet made me lose my Mind.</p>
-<p>It felt as if there were dozens of tongues in her mouth, and each tongue had suction cups, sucking every nook and cranny of my cock. I was already Arousal from my date with Liz, and felt I couldn't hold out if she kept sucking.</p>
-<p>"Kueuk...! I'm going to cum, Liz...!"</p>
-<p>"Beheup...! Not yet, You-isiyeo."</p>
-<p>When I said I was about to cum, Liz, who had spat out my cock, soon grabbed my cock with her Hand and began to shake it. My cock, drenched in Liz's saliva and my pre-cum, boasted a slipperiness that felt utterly comfortable even with Liz's Handjob.</p>
-<p>Chop-chop-chop-chop!</p>
-<p>Making sounds of Dewy Moisture and flesh rubbing, Liz gave me a Handjob. This too felt as good as the Fellatio just now.</p>
-<p>"Kueuk! I'm cumming...!"</p>
-<p>Byuut! Byuut! Byuut!</p>
-<p>In the end, I couldn't hold out and Ejaculation. Since I couldn't endure the feeling of ejaculation from the Fellatio, it was remarkable that I had endured Liz's Handjob even for a little while.</p>
-<p>"Huhu, your Semen is always so thick."</p>
-<p>Liz said, licking the Semen pooled in her Hand. Rather than the thickness of my Semen, I thought Lizhael herself, who had squeezed it all out with incredible skill, was more amazing.</p>
-<p>"Now, I'll do it for you."</p>
-<p>"Uhuhuhu♥"</p>
-<p>Having received such Service, I couldn't just stand by, so I decided to give Liz Service in return. Since Liz was also sufficiently Arousal, I targeted Liz's breasts from the start.</p>
-<p>Licking her erect nipples and kneading her breasts, sweet moans flowed from Liz's lips.</p>
-<p>"Haa-eua-hang...! Your tongue always feels so Haa-eung♥ good...!"</p>
-<p>Although I was the one giving Foreplay, I also felt good. As I touched Liz's soft yet firm breasts, which I wanted to touch infinitely, I unconsciously focused on the Sensation in my Hands.</p>
-<p>It was Liz's breasts, with an excellent Touch that could be called "drug breasts" without fault. There was nothing lacking, from their Size and Touch to their Sensitivity.</p>
-<p>Even the Touch of the Lace underwear acted as a spice, making it feel like I'd never tire of touching them.</p>
-<p>After focusing on Liz's breasts for a while, I lifted my Head. Liz, as if knowing what was next, spread her Legs for me.</p>
-<p>I grabbed Liz's thighs, slightly pushed aside the underwear covering her Pussy, and began to frantically lick Liz's Petals.</p>
-<p>"Haa-heueu-hang...! It feels good, my Partner-isiyeo...! Eung-heut...! My Partner-isiyeo's tongue♥ Heua-heueut! It feels so good-aa-hang...!"</p>
-<p>Listening to Liz's moans, I licked Liz's vaginal fluid, which was as addictive as the Touch of her breasts.</p>
-<p>Even while causing Craving, the moment I drank it, the Craving subsided; it was vaginal fluid with a taste that made me unable to stop drinking it.</p>
-<p>"Haa-heueu-heung...♡"</p>
-<p>Liz, moaning as if melting, stroked my Head. Seeing her thigh Muscles tremble and quiver, it seemed she was on the verge of Climax.</p>
-<p>To hasten the Climax that was slowly revealing itself, I lifted my tongue and licked her Clitoris as if poking it.</p>
-<p>"Haa-heueut! If you lick there, like that...! I'm, I'm going to cum♥ Hyaa-aa-aa-hang!!!"</p>
-<p>Lizhael, trembling and reaching Climax as she lifted her Legs. Since we had each reached Climax once, I wore a satisfied Expression and kissed Liz's Pussy.</p>
-<p>Jjok!</p>
-<p>"Haaang!"</p>
-<p>Even a light Kiss gets a good Reaction. Now that her Pussy was sufficiently loosened, it was time to slowly begin the main event. Without taking off Lizhael's underwear, I simply pushed aside her panties and inserted my cock. I could take off her Clothes later; for now, I had to enjoy Liz's erotic Pussy in her underwear.</p>
-<p>"Heueut...! My Partner-isiyeo's cock-iit...!"</p>
-<p>"Kueuk...! Liz's Pussy feels good...!"</p>
-<p>As our bodies became One Body, we moaned simultaneously. It was because each other's cock and Pussy felt incredibly good.</p>
-<p>"My Partner-isiyeo's cock always feels good."</p>
-<p>Liz looked at my Face and Smiled. Even in her Gaze, blurred with Pleasure, there was full Affection for me.</p>
-<p>I looked at Liz's Face like that, our Gazes mixing, and began to slowly sway my waist. Liz's curves and folds gave immense Pleasure. It was a Pussy that felt alive.</p>
-<p>Because it was such a pleasurable Pussy, to slowly enjoy the Pussy inside Liz, I slowly swayed my waist. As I slowly swayed my waist, I enjoyed the Stimulation Liz's Pussy provided. Even with a slight movement, countless Protrusions and suction-cup-like features stimulated my cock, giving me ample Pleasure.</p>
-<p>"Haa-heueu-heung...♥ My Partner-isiyeo slowly inside, my Haaht, scratching the inside, Heueu-heung...! I like it-aa-hang...♥"</p>
-<p>As I swayed my waist like a leisurely boatman slowly rowing, Liz, seemingly pleased, clung to me.</p>
-<p>Of course, I wouldn't enjoy Liz's incredibly pleasurable Pussy with just this one Intimate Posture. Of course, Liz seemed to feel the same, as she moaned and pushed my Upper Body down. Before I knew it, the position was Reversal, with Liz on top, placing one Feet on my Upper Body to prevent me from moving, in a modified Cowgirl position, swaying her waist above me.</p>
-<p>"Ah-heung...! Now, Heueu-heung♥ I'll move for you-ee-ee...! My Partner-isiyeo just needs to enjoy-haa-heung♥"</p>
-<p>Liz, with a seductive Smile, lowered the Legs she had placed on my Body and slowly moved her waist, then gradually began to quicken her Rhythmic Motion. The sound of viscous liquid rubbing stimulated my Lust through my Sensitive Ear.</p>
-<p>Liz, who had been vigorously swaying her waist, as if the underwear she was wearing was uncomfortable, began to take off her underwear one by one. As I lay there watching Liz take off her underwear, she began to undress with seductive movements, like a strip show.</p>
-<p>Liz, having removed the veil on her Head and the translucent underwear one by one, became naked. Of course, her erotic underwear Appearance was sexy, but with such an overwhelming Figure, Liz's naked body, without a single Silken Strand of Clothes, was more beautiful than any other Appearance.</p>
-<p>Liz's Pussy, as she rode me in Cowgirl position, like a pump drawing up Semen, greedily squirmed, making me feel good. I also didn't stay still, thrusting my waist upwards, moving in rhythm with Liz's Rhythmic Motion.</p>
-<p>"Haa-heueu-heueu...! My Partner-isiyeo's Heueu-heung♥ Cock is hot...! Deepest inside my Body-ee...! Heueu-heung! It's getting stranger and stranger-aa-hang♥"</p>
-<p>Every time I moved, my deeply inserted cock was knocking on her Jagunggu, so Liz rolled her Eyes and writhed in Pleasure.</p>
-<p>Liz, who had reached a small Climax, arched her waist back and almost lay down, and before I knew it, the Intimate Posture had Reversal, becoming Missionary Position with me on top, swaying my waist. Of course, I too was feeling a similar feeling of ejaculation, much like Liz who had reached a partial Climax.</p>
-<p>Cheol-sseok! Cheol-sseok! Cheol-sseok!</p>
-<p>To race towards the finish line of Ejaculation, I thrust my waist so roughly and quickly that the sound of flesh slapping echoed.</p>
-<p>"Haaang, Haaang, Haaang...! Heueu-heung! Partner-isiyeo...! Inside me, Heueu-heung, my Partner-isiyeo's Heueu-heung♥ Semen, Haaht! Fill me up with it-aa-hat♥"</p>
-<p>Liz already seemed to feel the Semen rising from my Balls. Even before I said I was cumming, she was already swaying her Pelvis, urging me for my Semen.</p>
-<p>"Kueuk...! As Liz says, I'll cum inside!!"</p>
-<p>"Haa-eueu-heung...! My Partner-isiyeo's Heueu-heung! Fill me, fill me with your baby seed, Heueut! Give it to me-aa-at♥"</p>
-<p>Byuut! Byuut! Byuut!!</p>
-<p>I pushed my cock in as far as possible and poured Semen into Liz's uterus until it seemed to overflow. At the same time as I Ejaculation, Lizhael also reached Climax and hugged my Body tightly.</p>
-<p>Chyup, Chyuu...♥</p>
-<p>After a light Kiss and withdrawing my cock, Liz lay there, covering her groin with one Hand and Smiling.</p>
-<p>"Uhuhuhu... Partner-isiyeo. This isn't the end, is it?"</p>
-<p>As expected, perhaps because she wasn't human, even after experiencing an immense Climax, Liz wasn't particularly tired. I too, perhaps because of Liz's body scent and Arousal, still had a firm cock despite having Ejaculation.</p>
-<p>Liz, with a seductive Smile, placed her four limbs on the Ground and pushed her buttocks towards me. It was probably an action for Doggy style.</p>
-<p>I held my still firm cock and inserted it into her Pussy, which was made easier for insertion due to the abundant Semen.</p>
-<p>"Haa-eua-hang!"</p>
-<p>As my cock slid in with a "ssu-uk" sound, Liz began to let out short moaning sounds. I enjoyed the Appearance of Liz's large Pelvis, Side breast, and perfectly shaped buttocks and swayed my waist.</p>
-<p>Thus, Sex with Liz continued almost like a Frenzy.</p>
-<p>Swaying my waist frantically, spraying Semen intravaginal into Liz, Kissing, and indulging in the Act of enjoying Liz's body, when I came to my senses, Liz was already lying there, covered in Semen, looking at me.</p>
-<p>"Very, very.... It was enjoyable, Partner-isiyeo. Intertwining my Body with yours was enjoyable, but the date we shared was also very enjoyable. With this, I can wait for a while for the day I meet my Partner-isiyeo again."</p>
-<p>Liz seemed satisfied with everything today. And seeing her mention meeting again, it seemed she was returning to her original World.</p>
-<p>And Liz's Body slowly began to turn into particles of Light from her fingertips and scatter.</p>
-<p>"Are you leaving already, Liz?"</p>
-<p>As I asked regretfully, Liz opened her mouth with a benevolent Smile.</p>
-<p>"Parting is just a Moment, Partner-isiyeo."</p>
-<p>"Yeah. Right. We'll meet again someday."</p>
-<p>"Hug me tightly with your Arms."</p>
-<p>I hugged Liz tightly as she scattered into particles of Light. Liz also hugged me and whispered something into my Sensitive Ear.</p>
-<p>"I love you, Partner-isiyeo."</p>
-<p>Liz left behind Words of love and completely scattered into Light, disappearing. I was suddenly hugging empty space.</p>
-<p>Liz's Appearance had completely vanished, making me wonder if it was a Fantasy or a Dream. But it wasn't a Dream. Because the Sticker Photo I took with Liz still remained.</p>
-<p>In the Sticker Photo, Liz, with a heart mark etched, was Smiling at me.</p>
-<p>Liz B-cut~!</p>
-<p>The Composition is somewhat funny kkeuk kkeuk</p>
-<p>I made it as a scene of approaching for a Kiss, but there was no scene where it appeared, so it's a B-cut hehe</p>
-<p>While making a Cowgirl image, I forgot to take off her panties, so it's a B-cut hehe</p>
-<p>Legs on Body B-cut~!</p>
-<p>Underwear Missionary Position~!</p>
-<p>Cowgirl B-cut hehe</p>
-<p>Missionary Position B-cut~!</p>
-<p>Doggy style B-cut~!</p>
-<p>After Sex B-cut~!</p>
+<p>and chapter check contains erotic please surroundings this your Tang!!</p>
+<p>The moment flames flared from the Muzzle, Kurayamada Kirie's pupils tore vertically, and the wolf Blood of the Kurayamada Family surged within her.</p>
+<p>Kurayamada Kirie approached Whisper, displaying the skill of deflecting the Bullet fired at her with her Sword.</p>
+<p>-Fuck. Off!!</p>
+<p>Kurayamada Kirie had no choice but to retreat from the sound wave Attack that poured out like a lion's roar. She swung her Sword as Taira Ryuta had torn through a sound wave barrier with his Fist, but the sound waves Whisper fired contained a debuff effect that slowed the opponent.</p>
+<p>Due to the slowing debuff, Kurayamada Kirie's sword strike, unable to gain sufficient Acceleration, could not tear through Whisper's sound wave Attack. Caught in Whisper's sound wave Attack and forced to retreat a considerable distance, Kurayamada Kirie thought that Whisper possessed a rather troublesome Ability.</p>
+<p>A Voice Attack boasting an immense range, and the Ability to even inflict debuff effects with that Attack...! She had received Information from the Federal Superpower Management Bureau in advance and knew about it, but merely knowing the Information and experiencing it directly in combat were vastly different.</p>
+<p>Whisper shot her Gun at the slowed Kurayamada Kirie, but Kurayamada Kirie batted away the Bullet even with her slowed Sword. This was because Kurayamada Kirie's innate wild Sensation already allowed her to know the Bullet's trajectory, so even if her speed was slightly reduced, she could block it in advance.</p>
+<p>"Slowing sound waves and Gun attacks... A simple but incredible combo. I'd be forced to take it even knowing."</p>
+<p>Having heard that Whisper could use various debuffs, Kurayamada Kirie, judging that she had no Chance of Winning like this, abruptly cut the Handle of a nearby Home and went Inside.</p>
+<p>"!?"</p>
+<p>Whisper was flustered when her opponent, who had been fighting her, suddenly went Inside the House. She couldn't help but be flustered when her opponent, who had confidently spoken of prophecy and her victory just moments ago, ran away without a shred of Hesitation.</p>
+<p>No matter that Whisper was one of Superior's 10 ganbu, said to be the best superpower terrorist group in the world, a year ago she was merely a female college student full of dreams. Her Combat Experience was not as extensive as expected.</p>
+<p>To be more precise, while the Frequency of her battles was quite high, because her superpower was so good, she easily won most battles, so the Quality of her experience could be said not to be high.</p>
+<p>Compared to Kurayamada Kirie, who had been active in terrorist groups since childhood and participated in all sorts of battles, the quantity and Quality of Whisper's Combat Experience could not even be compared.</p>
+<p>Taang!</p>
+<p>While Whisper was flustered for a moment, Kurayamada Kirie had, before she knew it, pierced through a Wall with a Gun instead of a Sword and sniped her. Whisper was hit by the Bullet and fell; she had survived because she unconsciously erected a sound barrier around herself when entering battle, otherwise, her cyber Suit would have exploded, and she would have died or been severely injured.</p>
+<p>"I'll blow you away along with this Building...!"</p>
+<p>Whisper, who stood up from her Seat, muttered in an angry Voice and took a deep Breath.</p>
+<p>-Fucking die!!!!!</p>
+<p>With an ear-splitting Scream, the 5-floor apartment began to collapse. One might ask how she could collapse a Building with just a Voice, but this was precisely Whisper's boasted Scream of Destruction.</p>
+<p>Everything touched by the Scream of Destruction was Disassembled and turned into Powder, so it was a technique she didn't often use if colleagues were present, but since Behemoth, who came to New York with her, was coincidentally not here, she could use it freely.</p>
+<p>However, Kurayamada Kirie was not someone who didn't expect such a Counterattack. Even before firing the Gun, Kurayamada Kirie had immediately reacted to the shock, installed an exploding Bomb, and had already evacuated the Place.</p>
+<p>Kwakwakwakwang!!!</p>
+<p>With a roar, the explosion engulfed Whisper. Although she dodged the explosion with her sound barrier and the Scream of Destruction she had fired, she was thrown back and had no choice but to fall due to the shockwave.</p>
+<p>This was precisely Kurayamada Kirie's terrifying point. Even when fighting as a Swordsman, if it became dangerous, she would not hesitate to enter terrorist mode and commit cowardly Acts anytime.</p>
+<p>Furthermore, now that she was operating an official PMC with financial support from Taira Ryuta, Kurayamada Kirie's Agonggan contained the latest military-grade equipment.</p>
+<p>Thanks to her equipment being upgraded, it could be said that her terror Ability was even stronger now than during her terrorist days.</p>
+<p>"Kueuk...!" Tang!</p>
+<p>As soon as Whisper, caught in the explosion, shook her Body and stood up from her Seat, another sniper shot. This time, it was a gunshot fired from the collapsed adjacent Building.</p>
+<p>"Is that where you are?!"</p>
+<p>Whisper once again used the Scream of Destruction to collapse the Building. This time it was a high-rise Building over 50 floors, and the Building collapsed with one blast of Whisper's Scream of Destruction.</p>
+<p>In fact, due to the battle for the fragments of omniscience, all the Buildings in the Surroundings were collapsing, burning, and exploding, so it wasn't special, but to produce this much power with just one Voice meant that Whisper possessed considerable potential.</p>
+<p>"Your Voice is quite booming."</p>
+<p>This time, she thought she absolutely couldn't escape, but before she knew it, Kurayamada Kirie was behind Whisper, holding a Sword against her Neck.</p>
+<p>"H-how...? If you're human, you absolutely shouldn't be able to avoid it...."</p>
+<p>"Have you heard of remote sniping? If I can just mount the Gun, I don't have to be Inside the Building."</p>
+<p>Answering the confused Whisper's question, Kurayamada Kirie stabbed and Neutralized the speaker Device attached to Whisper's cyber Suit Shoulder with her Sword.</p>
+<p>No matter how amazing an Ability User Whisper was, Kurayamada Kirie thought she produced the power to collapse Buildings because she received help from such equipment, so she got behind her and Neutralized the speaker Device.</p>
+<p>"I intended to only use Whisper's Ability, but it can't be helped."</p>
+<p>Whisper sighed and muttered, then snapped her Fingers. She had precisely activated the Witch Power flowing in her Veins.</p>
+<p>The moment she snapped her Finger, a shockwave occurred, throwing Kurayamada Kirie back, but she had already heard from Sawayanagi Azuma that Whisper possessed other Abilities, so she was prepared. Clinging to an still-intact Wall, minimizing the shock, she drew her Sword again.</p>
+<p>"I already know that you possess other Abilities besides your Voice, you know."</p>
+<p>"Even if you know, what can you do?"</p>
+<p>"Considering what you've suffered until now, you shouldn't have such Confidence."</p>
+<p>"Don't fucking joke!"</p>
+<p>In fact, because she had been almost Mocked/Debased by Kurayamada Kirie, Whisper screamed and began to use all sorts of magic, starting with creating and firing her favorite magic, an invisible Arrow.</p>
+<p>"I can use Sorcery too, you know?"</p>
+<p>Kurayamada Kirie muttered like that, dodging Whisper's magic, and chanted a spell.</p>
+<p>From the moment she knew that incomplete werewolf traits, about a quarter, had appeared in herself, Kurayamada Kirie had examined the werewolf-exclusive equipment hidden in the Kurayamada Family's secret warehouse. One of them was several Sorceries usable in a werewolf state.</p>
+<p>Not long after she started learning, she couldn't chant the spell quickly, but because she liked its power considerably, she had continued to Practice, and she never knew the opportunity to use it like this would come now.</p>
+<p>-Gesshoku Ookami (Lunar Eclipse Wolf).</p>
+<p>It was a Sorcery meaning "Wolf that devoured the Moon," a Sorcery that enchanted a Weapon with the Aura of Moonlight that could cut through the opponent's Sorcery or magic. Although it was a Sorcery that could only be used on a night with the Moon out, now it was a night with a crescent Moon, and the opponent was a Witch using magic, so it was a sufficiently effective spell.</p>
+<p>The moment she chanted the spell, Kurayamada Kirie's Oodachi (Great Sword) began to shine with Moonlight. As a Sword made from the Claws of her Father, Kurayama Kazuma, a complete werewolf, it had extremely good compatibility with the Gesshoku Ookami Sorcery.</p>
+<p>"Do you think you can win by using just one such shoddy Sorcery?"</p>
+<p>Whisper unleashed various magic and simultaneously exerted her superpower, shrieking the Scream of Slowing. Kurayamada Kirie swung her Sword without dodging.</p>
+<p>-Shinten Kenkei-ryu (Divine Heaven Sword Form Style)-Kirie-shiki (Paulownia Love Style) Ken'uzu (Sword Vortex)</p>
+<p>Using Kirie-shiki Ken'uzu, a Martial Arts Form that draws countless small Circles, Kurayamada Kirie Neutralized all of Whisper's magic pouring down on her, then quickly swung her Sword and cut through the sound wave barrier.</p>
+<p>Because the speaker Device on her Shoulder was Neutralized, unlike the Early Stage of the battle, she could cut through Whisper's Voice with her Sword.</p>
+<p>Kurayamada Kirie, as if to completely finish this battle, thrust her Sword this time.</p>
+<p>-Shinten Kenkei-ryu (Divine Heaven Sword Form Style)-Kirie-shiki (Paulownia Love Style) Kenmuchi (Sword Whip)</p>
+<p>Kenmuchi was a Martial Arts Form that could bend her Sword like a Whip or extend it even longer, a Martial Arts Form that could Attack an Enemy at a much greater distance than usual.</p>
+<p>Whisper too, although Kurayamada Kirie's Oodachi was long, she thought it wouldn't reach her, but she was very surprised when it attacked as if the Sword was extending.</p>
+<p>Although she tried to quickly dodge her Body, Whisper was a Superhuman and a Witch, not a Warrior. She could not avoid Kurayamada Kirie's sword strike that had come right up to her.</p>
+<p>Pagak! In an instant, Kurayamada Kirie's sword blade embedded itself in Whisper's combat helmet.</p>
+<p>TheDreaming-nim requested Herta Vogel 1. Phone Booth Breast Press. 2. Buttocks Grab~! 1. The Composition was similar, so the last one is in a bikini hehe. 2. When I just made it, I don't know why, but it tried to spread wide all the way to the Pussy with both Hands, so changing the viewpoint made it a bit better hehehe. MidNightSKY-nim Waterbomb Phantom Mother and daughter~! Arisu~! Nae~! Chomisaemeonji-nim requested Liz Lingerie, String Panties~! Lingerie~! String Panties~! For the String Panties prompt, I tried using "thong" instead of "g-string," and this also turned out quite well hehe.</p>

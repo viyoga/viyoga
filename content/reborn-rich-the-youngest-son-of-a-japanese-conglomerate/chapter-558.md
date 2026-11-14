@@ -5,95 +5,81 @@ weight = 558
 chapter = 558
 +++
 
-<p>After giving Minamoto Lisa a Tats○ki telekinetic service, I started walking around with Minamoto Lisa to see if there were any rides we could ride together. But....</p>
-<p>,Actually, I'm not good at riding scary rides."</p>
-<p>Minamoto Lisa, unexpectedly, couldn't ride roller coasters and other such rides. So, when the idea of going to Fuji-Q Highland came up, she only agreed because of the ○-Punch Man collaboration? Amazing. That's some serious loyalty.</p>
-<p>So, we went to the shooting game where you shoot and match dolls, which wasn't scary, and it turned out that if you hit a certain number of dolls, they would give you a ○-Punch Man character doll that they were currently collaborating with, so Minamoto Lisa's eyes sparkled.</p>
-<p>,I'll try! I've done clay shooting when I was young, so I'm confident."</p>
-<p>Yukiko's shooting level was also high with clay shooting, but what about Minamoto Lisa? I watched Minamoto Lisa's doll shooting with anticipation, but Minamoto Lisa, as she said, only did it when she was young, so she wasn't very good. She only knocked down two dolls.</p>
-<p>,Ah...! It's not working out. You, um... use your ability to get it for me."</p>
-<p>Minamoto Lisa is now confidently asking me to use telekinesis to get it for her. Seeing her blushing and embarrassed, it seemed like she knew it was an unreasonable request. But seeing her asking, it seemed like she really wanted it. Actually, I've shot guns quite a bit, so I don't think I need to use telekinesis.</p>
-<p>,I'll just try it first."</p>
-<p>I aimed the shooting gun and fired. With a ttak sound, the bullet hit the doll, but the doll didn't fall. This.... They're determined to take people's money. How much did they weaken the power of the bullets?</p>
-<p>I have no choice. The bullets given for 1000 yen are 10, and to receive the ○-Punch Man character doll prize that Minamoto Lisa wants, I have to hit 9 bullets. Since I just failed, I have 9 bullets left, and now I can't afford to make a single mistake.</p>
-<p>I carefully aim and hit the doll. As long as I hit it somehow, it didn't matter. I can make it teeter and fall to the ground with telekinesis. Of course, since telekinesis is an intangible power, it wasn't very obvious that I was using telekinesis.</p>
-<p>,9 hits! It's a Tats○ki doll! Congratulations~!"</p>
-<p>,Here's your present!"</p>
-<p>The part-timers handed me a pretty big Tats○ki doll and congratulated me. I gave the Tats○ki doll to Minamoto Lisa. Minamoto Lisa hugged the doll, which was half her size, tightly and then looked at me.</p>
-<p>,I'm sorry, but the 10-bullet prize too...."</p>
-<p>Minamoto Lisa said, looking very cautious. The 9-bullet prize was a Tats○ki doll, and the 10-bullet prize was a giant doll of the ○-Punch Man protagonist, Bald Cape. Hmm, it's definitely a doll that an otaku would want.</p>
-<p>,Okay. I'll get you the Bald Cape too."</p>
-<p>,Thank you...."</p>
-<p>Minamoto Lisa seemed very touched, but I could do this much for the sake of Minamoto Lisa's favorability, who was my target.</p>
-<p>,Ah! Jugun-nim!"</p>
-<p>,Sensei-nim."</p>
-<p>,Fath, no, Sensei-niim!"</p>
-<p>I was aiming again when I heard a voice calling me from behind. I hit one bullet and turned around to see Sakagami Rena, Shido Tsubaki, and Oofuchi Erika, who had been walking around with me, finding me and coming towards me.</p>
-<p>,Are you having fun?"</p>
-<p>,Yes~!"</p>
-<p>,It was quite fun."</p>
-<p>,Sakagami-ssi wasn't scared of the roller coaster at all, so it wasn't fun to watch."</p>
-<p>Everyone seemed to be having fun. It's just that Sakagami Rena didn't seem to feel any fear on the roller coaster, just like the roller coaster members I rode with earlier. Is it natural since she's a ninja who does a lot of harsh training? I talked with the students who came up to me for a while and then focused on the doll shooting again, and this time I was able to hit all 10 bullets with the help of subtle telekinesis.</p>
-<p>,Congratulations! 10 bullets! The highest score! Here's the giant Bald Cape doll~!"</p>
-<p>It's almost the size of a person, so I don't know how she's going to carry it around, but I handed the giant Bald Cape doll to Minamoto Lisa. Minamoto Lisa hugged the giant Bald Cape doll tightly as if she were treating it like a treasure.</p>
-<p>,Wow~! Ryuta-chi! Get me one too, a doll~!"</p>
-<p>,Ryuta...! Alik wants you to get one too."</p>
-<p>It seemed like all the kids in our class had gathered and were watching me shoot. They were all clamoring for me to get them dolls too. It seemed like it would take a lot of time to get dolls for all twelve of them, so I pointed to the souvenir shop next to the doll shooting range.</p>
-<p>,Let's choose at the souvenir shop. There might be something that suits your taste other than dolls."</p>
-<p>In fact, most of the dolls other than the collaboration products were common dolls that could be picked up at a neighborhood claw machine, so everyone agreed that they would rather choose directly at the souvenir shop. Not everyone is a fan of classic animation like Minamoto Lisa, so there was no reaction to the collaboration dolls.</p>
-<p>,Shii, let's put this in the car together."</p>
-<p>,Shall we? By the way, it's huge, isn't it?"</p>
-<p>Minamoto Lisa seemed to have a hard time holding the two big dolls, so she suggested to Seizawa Shii that they go to the parking lot together, and Seizawa Shii nodded happily. Then she looked at me and shouted.</p>
-<p>,Ryuta-chi~! I'm going to the parking lot, so pick out something that suits me~!"</p>
-<p>If it suits me, does she mean something to wear among the souvenirs? I didn't have time to think any more and was grabbed by the special class students and went to the souvenir shop.</p>
-<p>Fuji-Q Highland has a lot of souvenirs that resemble Mount Fuji, as the name Fuji of Mount Fuji is attached to the name. There were dolls that resembled Mount Fuji with white snow on top and blue below, and there were also Fuji-shaped foods with white chocolate on top and cookies below, and there were also many cat ear headbands and balloons that could be used at the amusement park, which had nothing to do with Mount Fuji, and of course, there were also collaboration products that Minamoto Lisa would go crazy for.</p>
-<p>The students scattered to choose their own souvenirs, and I, as a teacher who participated together, chose souvenirs that would suit Shimokawabe Airen and Kijimoto Jurie, who didn't choose their own souvenirs.</p>
-<p>I gave Kijimoto Jurie a cat ear headband as a gift, even though it didn't have much to do with her.</p>
-<p>,This is...?"</p>
-<p>,Wear this and see you at my house tonight."</p>
-<p>She seemed to be getting very excited with her face turning red at my whispering words, so I was very satisfied.</p>
-<p>I gave Shimokawabe Airen, an inspector, a keychain and paper knife (a knife that can neatly open letter envelopes) made of a small, finger-sized Japanese sword as a gift.</p>
-<p>,Oh my, you didn't have to give me anything...."</p>
-<p>,But it's a souvenir for coming to play."</p>
-<p>,Thank you, Yamashiro-sensei."</p>
-<p>As expected of an inspector, Shimokawabe Airen seemed satisfied with my gift. Then, shall I choose mine now...? I looked around to see if there was anything delicious, and there was a special product corner that gathered local specialties from the Mount Fuji area, so I went there.</p>
-<p>,Ryuta-chi~! Did you pick out mine?"</p>
-<p>I was busy choosing various ingredients when I heard Seizawa Shii's voice. Ah.... I forgot. I gave Seizawa Shii a packaged wasabi root that I happened to be holding.</p>
-<p>,What is this, Ryuta-chi? So funny~☆ Did you just pick it out and give it to me?"</p>
-<p>Seizawa Shii, like a generous gyaru, forgave me for forgetting. Instead, she took me around and showed me what shopping hell is.</p>
+<p>Maybe it was because I fell asleep in Yukiko's arms after so long, but I woke up this morning feeling incredibly cozy. It was like I had dreamt of lying on a pillow made of fluffy, pleasant angel feathers.</p>
+<p>,Turns out what I thought was super soft and nice was just my face buried in Yukiko's chest."</p>
+<p>,Fufu, did it feel that good?"</p>
+<p>I didn't even realize I was saying how good it felt out loud. Yukiko smiled at me. Seeing her like that, I buried my face in her chest again. Ah... this is it. This squishy, soft sensation is why guys lose their minds over boobs.</p>
+<p>,Kyaang♥"</p>
+<p>After snuggling in Yukiko's chest for a while, I got out of bed. I figured I'd better start getting ready now or I'd be late, so I kissed Yukiko on the forehead and went to wash up.</p>
+<p>Humming a tune, I washed up and came out to find Yukiko had made toast, scrambled eggs, and bacon, and set it all on the table with coffee. It wasn't the naked apron look, but seeing Yukiko in an apron after so long naturally made my lower half stir, but I really didn't have time.</p>
+<p>,Why didn't you sleep a little longer..."</p>
+<p>,Eung, no. I need to head to the Naruse mansion too."</p>
+<p>We talked about our plans for the day while eating breakfast. We had laid down and had pillow talk on and off during our rests after sex yesterday and early this morning, but I couldn't say we had a lot of conversation. Still, I talked to Yukiko every other day, so we knew each other's situations well.</p>
+<p>,How long will you be in Miyashi?"</p>
+<p>,Probably... today? Shiyo-ssi is doing surprisingly well, so I don't think I need to be there."</p>
+<p>,Then... I guess I won't even get to see your face before you leave?"</p>
+<p>Miyashi to Chiba, where the Human Resources Development Institute is located, was almost a 3-hour drive, so the timing was pretty awkward. So, even if I wanted to go on a date after school, I wouldn't be able to.</p>
+<p>,Fufu, you're busy too, aren't you? You have to prepare for the PMC exam, and create an intelligence organization... You can see me anytime after this mission is over, so be patient?"</p>
+<p>When I spoke as if I was disappointed, Yukiko stroked my cheek and said soothingly. I knew Yukiko wanted to be with me too but was holding back, so I couldn't help but nod.</p>
+<p>,I guess not. I'll go to Chiba next time."</p>
+<p>,There are too many people watching in Chiba, so you might get caught. Let's meet in Tokyo."</p>
+<p>I made plans to meet Yukiko next time, got dressed, and went to work with Yukiko seeing me off.</p>
 <p>###</p>
-<p>-Look at that figure. No one is looking for you.</p>
-<p>In a dark place with nothing, Naruse Shiyo was watching her homeroom teacher, Yamashiro Ryuta, and her friends go to the amusement park.</p>
-<p>,Th, this is all an illusion! Who are you? Get out of my head!"</p>
-<p>After participating in the sports day as a rider in the equestrian battle, Naruse Shiyo returned home and collapsed immediately. And when she came to her senses, she was in a dark place with nothing. No one explained it to her, but she knew that this dark place was in Naruse Shiyo's own mind.</p>
-<p>Not long after waking up in the darkness, a voice began to be heard. At first, it was a gentle voice asking if she didn't want to be comfortable, but when Naruse Shiyo, who felt the malice hidden in that gentleness, ignored it, it gradually became rough.</p>
-<p>Now, she was showing her classmates having fun at the amusement park and constantly whispering bad things like, "You're a completely useless person, so give me your body," or "Just end your life."</p>
-<p>-It's not an illusion. I swear on my existence. Do you want to keep watching them having fun without you?</p>
-<p>,It's better to have fun when you're playing. I don't want them to worry about me or care about me there either."</p>
-<p>Naruse Shiyo was fine. She had already accepted her weakness since she was young. She didn't want her friends to worry about her even in such a fun place, so she wasn't hurt by the scenes that the unidentified voice showed her.</p>
-<p>-Keuheuhe, you said you were okay, but I can feel you caring about that man. How is it? Seeing him with another woman...?</p>
-<p>The screen that the voice showed was showing her homeroom teacher, Yamashiro Ryuta, being dragged around by Seizawa Shii and looking at things.</p>
-<p>-Ryuta-chi! How about this? Ah, should I get that one instead?</p>
-<p>-Why bother asking if you're not going to listen to the answer?</p>
-<p>The two of them bickering looked very good together. As she watched the cheerful and refreshing Seizawa Shii and the handsome and reliable Yamashiro Ryuta, she felt jealousy without realizing it.</p>
-<p>,No! It's just admiration...!"</p>
-<p>Naruse Shiyo shouted as if denying her ugly heart. But the voice in the darkness knew Naruse Shiyo's heart better than anyone else.</p>
-<p>Suddenly, one side became a little brighter. She could see someone approaching Naruse Shiyo. Hair covering half of her face, a slender body, and eyes full of dark circles.... The only difference was that her hair color was a dark black, but she looked just like Naruse Shiyo herself.</p>
-<p>-I know your heart well. Because I am you. So....</p>
-<p>The black Naruse Shiyo took another step closer.</p>
-<p>-Give me</p>
-<p>One more step.</p>
-<p>-Your body</p>
-<p>Now she was almost right in front of her. Naruse Shiyo was sensing that if the black Naruse Shiyo came completely in front of her, she would completely lose herself. At that time, she heard her name coming out of the screen that was still showing Yamashiro Ryuta.</p>
-<p>-This is pretty. Should I give it to Shiyo-ppuyo as a gift?</p>
-<p>-Ah, I was thinking the same thing. I picked it out earlier. I'm going to give it to her as a gift since she couldn't come today.</p>
-<p>Hearing the two of them, she couldn't help but cry. Her teacher and friend hadn't forgotten her. As Naruse Shiyo smiled, the black Naruse Shiyo frowned.</p>
-<p>-It's a failure today. But you will gradually not be able to reject me.</p>
-<p>The black Naruse Shiyo stepped back and soon disappeared into the darkness.</p>
-<p>__________</p>
-<p>Shido Tsubaki Amusement Park Fashion~!</p>
-<p>The suspenders and brown pants are the point~!</p>
-<p>Urabe Konoka~!!</p>
-<p>It's a light and airy style, hehe.</p>
-<p>Black Naruse Shiyo.</p>
-<p>Black hair suits her too, hehe.</p>
+<p>Naruse Shiyo-ssi came to school the day after Yukiko left. As Yukiko said, her assimilation rate had increased while sealing the Black Dragon for six years, and Yukiko said that she had almost completely returned to human form right before Yukiko left yesterday.</p>
+<p>So, she was able to come to school much sooner than I had initially thought. When Naruse Shiyo-ssi came to school, all the students greeted her warmly, and Naruse Shiyo-ssi seemed quite touched by it.</p>
+<p>,Shiyo-ppuyo, are you feeling okay?!"</p>
+<p>,Shiyo-chan, I was worried because you suddenly stopped answering your LINE messages~!"</p>
+<p>,I'm sorry for making everyone worry."</p>
+<p>I was leaning against the classroom door, watching Naruse Shiyo-ssi and the students with a pleased expression, when Minamoto Lisa-ssi approached.</p>
+<p>,You helped Naruse-ssi with her situation, didn't you?"</p>
+<p>,Eung...?"</p>
+<p>Huh? How did she know? When I stammered with a slightly surprised expression at the unexpected question, Minamoto Lisa-ssi gave a gentle smile and continued.</p>
+<p>,Saionji-ssi was also helped by you, and it's strange that the Naruse family, who hadn't even tried to treat her until now, suddenly treated Shiyo-ssi. You must have helped this time too."</p>
+<p>Ah.... It wasn't that she knew my movements, but because Minamoto Lisa-ssi knew that I had helped Saionji Diana-ssi with her cyber implant, she deduced that I had helped by connecting that incident with the fact that the Naruse family usually didn't care about Naruse Shiyo-ssi's treatment. That's quite a deduction, isn't it? But as a result, I did help.</p>
+<p>,Well..."</p>
+<p>,Fuhut. You're not denying it?"</p>
+<p>I didn't deny it because I didn't actually treat her directly. But I didn't deny it either because Naruse Shiyo-ssi's recovery wasn't entirely without my contribution. Seeing that, Minamoto Lisa-ssi smiled and nodded as if she understood, and went back to her seat.</p>
+<p>It's good if Minamoto Lisa-ssi, who is my target, thinks well of me even though I didn't say anything. After Minamoto Lisa-ssi returned to her seat, I was organizing the content to be delivered at today's morning assembly in the education preparation room when Naruse Shiyo-ssi knocked and entered the education preparation room.</p>
+<p>,Yes, Naruse-ssi, what's wrong?"</p>
+<p>,My father conveyed his thanks, but I don't think I've thanked you yet."</p>
+<p>Ah, was that so? Still, I think she thanked me when I met her with Yukiko the day before yesterday....</p>
+<p>,Didn't you say thank you two days ago?"</p>
+<p>,You just said it in passing. I wasn't really in my right mind then, so I couldn't convey my true feelings!"</p>
+<p>Is that so? It seemed that Naruse Shiyo-ssi wanted to formally thank me as much as she had received a big help. When I sat still as if telling her to go ahead, Naruse Shiyo-ssi bowed very politely.</p>
+<p>,Teacher. I have received a favor that is hard to repay in a lifetime. If it weren't for you, I would have already died or continued to suffer from the Black Dragon."</p>
+<p>Since I was the one who dealt with the Black Dragon, it was true that I was her benefactor. Actually, if I had been late, I felt like Yukiko would have taken care of the Black Dragon on her own.... But still, I dealt with it as a result, so it's my credit.</p>
+<p>,So, to repay that favor... I will serve you from now on!"</p>
+<p>Huh? What is she saying? When I made a face as if asking what she meant, Naruse Shiyo-ssi looked at me with honest eyes without a hint of falsehood.</p>
+<p>,Do you even know what you're saying?"</p>
+<p>,Of course. You don't know the pain I was in before you saved me, Teacher."</p>
+<p>Naruse Shiyo-ssi looked at me with pleading eyes and continued.</p>
+<p>,The moment I saw your back as you saved me from the pain that had followed me all my life, I made up my mind. I will follow you for the rest of my life.... You are my savior.... Just as you saved me, I want to be helpful to you too. I will never forgive those who harass you..."</p>
+<p>O-oh.... Why are her eyes changing strangely? Where did the honest eyes from 30 seconds ago go? Naruse Shiyo-ssi's eyes were somewhere between a fanatic and a yandere. It's a bit scary, but there's no need to refuse if she's going to repay the favor.</p>
+<p>,Okay, I get that. But does serving me mean you're going to work for me from now on?"</p>
+<p>,Yes! Anything... just tell me what to do."</p>
+<p>She kept muttering that she wouldn't forgive the guys who harassed me, so I said I understood and asked again exactly. Actually, Naruse Shiyo-ssi wasn't a very useful talent to me until she changed her race to Dragonkin. Not only was she physically weak, but she wasn't smart either.</p>
+<p>But now that she's become a Dragonkin and is the daughter of an Onmyoji family, I thought she might have talent in that area too, so she's become quite a desirable talent. I don't know how well a body fused with a dragon will perform, but it will at least surpass ordinary people. I was a little sad that I didn't bring my glasses from the ruins today. I didn't bring them because I didn't know Naruse Shiyo-ssi would come to school, but it's still a shame.</p>
+<p>,But did you tell your father?"</p>
+<p>,Yes. Of course, I told him. My father also allowed me to repay the favor. After all, my father and mother can work hard from now on to make a boy to succeed the family."</p>
+<p>At this rate, she was about to throw away the Naruse name altogether. I get it, so can you please change your eyes back to normal? Just then, the bell rang to announce the morning assembly time.</p>
+<p>,Let's talk about this separately after school. We have to go to the assembly, so let's go to the classroom together."</p>
+<p>,Yes, if that's what you want, Teacher...."</p>
+<p>I took Naruse Shiyo-ssi to the classroom and stood in front of the podium. Actually, there was nothing special to report today. There were a few things that came by fax, but since today was Friday, it was the kind of thing any teacher would say: don't go out too much during the weekend and study hard.</p>
+<p>,Naruse-ssi has recovered and returned, so everyone treat her well. Today is Friday, so you can play as much as you want on the weekend, so study hard today...."</p>
+<p>,Ryuta-jji, what are you doing on the weekend?"</p>
+<p>,Me? I'm studying for the certifications I'm working on these days."</p>
+<p>Because they were troublemakers from the special class who often frequented the education preparation room during breaks, everyone knew that I was studying for certifications. They didn't know it was the PMC certification, though.</p>
+<p>Actually, it didn't matter if the students knew it was the PMC certification. Because it was such a difficult certification to obtain, some high-ranking people who wanted to have a personal PMC hired people with PMC certifications at high wages, so there were quite a few people who tried to obtain it simply as a spec, not for the purpose of establishing a PMC directly.</p>
+<p>,Ryuta-jji, you're a teacher and you're working hard on other studies?"</p>
+<p>,I'm a contract worker, so I have to work hard in case I get fired."</p>
+<p>,Teacher! If you get fired, come to our agency! The president told me to ask you for sure~! He became a fan after watching the vlog you were on!"</p>
+<p>The classroom was quiet for a moment at the mention of the contract worker, but it became noisy again at Uenozono Karen-ssi's words. As the vlog from the sports day became quite a hot topic, Uenozono Karen-ssi's agency president seemed to be very interested in me. There aren't many guys in Japan with a mask and a good body like this.</p>
+<p>,Woo~! I'm against Ryuta-jji becoming a celebrity!"</p>
+<p>,That's right! Please be our teacher only!"</p>
+<p>Normally, I would have said it would be fun and told them to try it, but the students were against me becoming a celebrity. I didn't have any intention of becoming a celebrity in the first place, so I smiled and waved my hand.</p>
+<p>,I have no intention of doing it either. Work hard today and see you at the end of the day."</p>
+<p>I greeted the students roughly and returned to the education preparation room. Then I turned on my phone and sent a LINE message to the students who were currently following me.</p>
+<p>Taira Ryuta: Let's have a meeting after school today. The topic is the intelligence team.</p>
+<p>-----------</p>
+<p>Naruse Shiyo-ssi B-cut!</p>
+<p>The atmosphere has changed a bit after removing the dark circle tag because her body has recovered hehe</p>

@@ -5,55 +5,82 @@ weight = 995
 chapter = 995
 +++
 
-<p>"Jin Yongtae-nim, please wear this Suit."</p>
-<p>Adult version Linling, Linxiang, offered me a custom Suit. I put on the Suit Linxiang handed me and spoke.</p>
-<p>"Since we're going to the Taira side today, put aside the name Jin Yongtae in public places."</p>
-<p>Both the Taira Group and the Taira Family had immense Pride in the 'Taira' surname, so there was no need to use my Korean name within that Family.</p>
-<p>Today, Mimata Chieri and Linxiang were planning to accompany me to the Taira Grand Conference. Although she had retired from the Taira Group, Mimata Chieri was originally assigned to me as a secretary by Taira Danjo, so she had received secretary Education and would inform me how to act at a gathering like today's Grand Conference. Linxiang would observe and Learn from her, providing me Help.</p>
-<p>And if it were judged that I had no Faction whatsoever, even a Taira Direct Lineage member could be disregarded. So, I intended to show that Mimata Chieri, who currently leads a sizable PMC called East Weapon, was with me.</p>
-<p>"...I understand. Since there are many people with the Taira surname there, may I call you Ryuta-nim?" "Yes." "Instead, at the mansion, I'll call you Jin Yongtae-nim."</p>
-<p>Linxiang seemed to prefer the Address Jin Yongtae-nim over Ryuta, showing a slight Obsession. As I talked with Linxiang and put on my Suit, Alik and Linling came running over.</p>
-<p>Both were holding something; Alik had a Belt, and Linling had a Necktie.</p>
-<p>"Ryuta, Belt...!" "Jin Yongtae-nim, your Necktie~!" "Thank you, both."</p>
-<p>I stroked both their Heads, then put on my Belt and Necktie. My now black Hair was being tidied by Linxiang while I put on my Suit.</p>
-<p>After finishing my preparations, I went down to the mansion, where People were gathered, waiting to see me off to the Meeting.</p>
-<p>"Ryuta Older Brother~! You're even more handsome today♥" "Liege-nim...! You are magnificent!!" "Teacher-nim! You're cool!"</p>
-<p>I didn't usually dress shabbily, but I hadn't shown myself in a custom Suit and such a tidy Appearance before, so everyone's Praise made me a little awkward. It's not like I was bad normally, you know.</p>
-<p>"There won't be anything particularly dangerous. So don't worry.... I'll be back from the Meeting."</p>
-<p>I waved to everyone, then boarded the luxury sedan made by Taira Motors. The vehicle had been sent by Danjo Grandfather two days prior. Just in case, I checked for listening devices, but it was a clean vehicle.</p>
-<p>"Ryuta-nim, you look handsome today...♥" "Junior-nim, it's been a while since you wore a Suit!"</p>
-<p>Saionji Diana was in the Driver's Seat, and Mimata Chieri was in the passenger seat. Saionji Diana was assigned the temporary driver mission today, but I couldn't keep using high-caliber personnel like Saionji Diana as a driver, so I planned to hire a separate driver.</p>
-<p>However, it seemed it would take a while because I needed to find someone with strong Loyalty and the ethical consciousness not to sell Information heard while driving to other places.</p>
-<p>"Just bear with it for today, Diana." "I don't mind continuing to drive, Ryuta-nim."</p>
-<p>Saionji Diana said she didn't mind my words, but Saionji Diana still had things to do. As a former Successor of Saionji Bank, Saionji Diana possessed various Abilities along with military power, so she had to take on much more important tasks than driving.</p>
-<p>"I can drive, Jin Yongtae-nim. I'm a secretary anyway, so I'll be with you everywhere. And I can multitask, so I can do other things while driving."</p>
-<p>As we were talking about driving, Linxiang said she could be the driver. Ah, that's right. Linxiang could be the driver from now on. When Linxiang said she would drive, Saionji Diana let out a slight tsking sound, as if regretfully. "That would be good too." "I can also be Junior-nim's driver~!" "Senior-nim, you have to manage East Weapon, don't you?" "Ah, that's right, Heh~!"</p>
-<p>Mimata Chieri said she could do it too in response to Linxiang's words, but seeing her quickly agree to my words, it seemed she wasn't serious.</p>
-<p>As we talked about the driver, we were already driving through the city center of Neo Tokyo. It was the first day of March, the beginning of Spring, so the warm-looking Sunlight illuminated the city skyscrapers.</p>
-<p>"Once you arrive at the Grand Conference, you'll immediately have breakfast. The Taira Direct Lineage members gather a little early for the meal, so something might be discussed there. Be alert. It's a place only family can go, so I can't Help you."</p>
-<p>Mimata Chieri spoke cautiously. She meant that before the Taira Grand Conference, the Direct Lineage members would gather for breakfast, and since secretaries couldn't join, she couldn't Help me there.</p>
-<p>"Next is the Meeting, right?" "Not immediately, but about twenty or thirty minutes later? The Meeting will begin. That twenty or thirty minutes is a time to make final coordinations with friendly executives or affiliate company presidents, but Junior-nim doesn't have anything to coordinate yet, so you can just use the time to greet people and get acquainted with their faces."</p>
-<p>I see. While preparing for the Grand Conference, I had already memorized their faces from photos, so I knew who was who. Now, I needed to actually build friendships. It wouldn't be bad if I became friends with everyone, but since they each had taken a side in the succession structure, I couldn't just become friends indiscriminately. If I wasn't careful, it could create a picture of me bowing into one side of the succession structure.</p>
-<p>Today, I'll just greet everyone and build friendships with those who don't have a particular Faction, in other words, those in Danjo Grandfather's Faction. Perhaps even those in my Father Taira Saburo's Faction?</p>
-<p>"I understand up to that point. Secretaries can also come to the Grand Conference, right?" "Yes. During the Grand Conference, Linxiang and I will Support you!"</p>
-<p>Indeed, a secretary was needed to prepare data for the Meeting. It was reassuring that the two of them would Help.</p>
-<p>As I was doing a final Review of the Grand Conference, we soon approached the Taira mansion. Perhaps because of this Grand Conference, the Taira Group had blocked the road and was operating outposts. This was to prevent industrial spies from rival Groups from entering, given the important content of the Meeting.</p>
-<p>Seeing this, one could say the Taira Group's power was truly amazing. For a single Group to block roads and operate blockade outposts like this. It was indeed typical of a dystopian world where corporate power was growing stronger.</p>
-<p>"Stop, stop. Where are you visiting from?"</p>
-<p>As we stopped the car and rolled down the window, a Security Guard in black tech-wear and a bulletproof vest asked.</p>
-<p>"Taira Direct Lineage Taira Ryuta-nim is inside. This is a visit to participate in the Grand Conference."</p>
-<p>Saionji Diana showed the Access Pass she had received in advance and spoke. The Security Guard checked the Access Pass and confirmed my face, who was seated in the back. Then, he checked the list of entrants on the tablet in his hand and nodded his Head. Since my Party/Group had also received entry permits in advance, they didn't inspect anyone else besides me.</p>
-<p>"Confirmed. Please enter."</p>
-<p>Having received entry permission, we rolled up the windows again and passed the blockade outpost. I had thought that my Uncles or Aunt might intervene to make entry troublesome, but it seemed they hadn't gone that far.</p>
-<p>Well.... To harass the youngest Nephew/Niece who had no real power in the Group yet, by tampering with security, would be an act of inviting one's own Destruction. So, if they had any sense, they wouldn't directly touch me today. They might attack politically in the Meeting, though. The familiar Road, which I had traveled several times, gradually appeared. It was a road I had often come to since my deceased Father Taira Saburo's funeral, so it was familiar to my Eyes. A little further, the Taira Main family home, which looked twice as wide as our mansion's grounds, came into view.</p>
-<p>The modernization of Facilities on our side wouldn't lose, but the sheer area couldn't be compared. We parked in the parking lot, where numerous luxury sedans were parked, and got out.</p>
-<p>"Are you Taira Ryuta-nim?"</p>
-<p>As I got out, an Elderly Person in Butler attire approached, as if he had been waiting.</p>
-<p>"Yes. I am Taira Ryuta, but...?" "I am Third Butler Yanagiba Morishige. Shizuku-nim is looking for you before the meal."</p>
-<p>Huh? Grandmother? Hmm.... That made sense. Taira Shizuku, who met me after Taira Saburo's death, cherished me terribly, as if her son had returned to life. Since we hadn't met for half a year due to missions, it seemed she wanted to meet beforehand.</p>
-<p>"Yes, please guide me." "Yes, then this way...." "Chieri-ssi, please take good care of the Party/Group."</p>
-<p>As I followed Yanagiba Morishige, the Third Butler, I turned my Head and entrusted the rest of the Party/Group to Mimata Chieri.</p>
-<p>"Just trust me, Ryuta-nim."</p>
-<p>Mimata Chieri nodded her Head and spoke. Since the Taira Main family home would have countless Eyes and Sensitive Ears, we had decided in advance not to use our usual Addresses like Senior-nim or Junior-nim for a while.</p>
-<p>I nodded, looking at Mimata Chieri, who had a trustworthy Expression, and followed Yanagiba Morishige. The place Yanagiba Morishige guided me to was a place I knew. It was the Annex where I had often met my Grandmother Taira Shizuku, and she was waiting for me there.</p>
-<p>Hwanbuljeoldaebulga-nim requested Saionji Diana's casual Clothes and underwear~! Diana, who makes many bold challenges in her attire haha Underwear~! Bonus~! Because I liked the Composition and equipment haha Gojoy-nim requested Lisa Tape, breast covering~! Starting with Tape~! Breast covering~! MidNightSKY-nim requested Succubus Yukiko Pink Seduction, Shii playing drums~! Starting with Yukiko~! I clearly entered 'fog' but it came out with a Flame feeling ㄷㄷ Shii~! Kkiyot!</p>
+<p>a and before chapter check content erotic is please surroundings this with your</p>
+<p>While Taira Ryuta and Nagumo Sian were entwined, Taira Yukiko met Tosen Nobumichi.</p>
+<p>Even though he was an Elderly Person, she met him working energetically; seeing him talking with the Gardeners outside the mansion even at a late hour, Yukiko approached him.</p>
+<p>"Butler-nim."</p>
+<p>"Yukiko-nim."</p>
+<p>They were old acquaintances. Tosen Nobumichi was Taira Saburo's Butler, and Taira Yukiko was Taira Saburo's Wife, so it was natural. However, they weren't particularly close, because after Taira Saburo and Taira Yukiko married and lived in a top-tier mansion, Tosen Nobumichi remained by Taira Saburo's side as an advisor instead of a Butler. Since Taira Yukiko was dedicated to her Work at the Talent Development Center, they didn't have much contact.</p>
+<p>"But Yukiko-nim, what brings you here...?"</p>
+<p>"I'd like to speak with you alone."</p>
+<p>Tosen Nobumichi, who had worn a puzzled Expression at Taira Yukiko seeking him out, at Yukiko's Words that she wanted to speak alone, waved his Hand as if telling the Gardeners to leave.</p>
+<p>"Now, please tell me your business."</p>
+<p>Seeing all the Gardeners disappear, Tosen Nobumichi told Taira Yukiko to state her business.</p>
+<p>"Recently, I heard something. The Story that Saburo-ssi left another Will...."</p>
+<p>At Yukiko's Words, Tosen Nobumichi's Expression hardened.</p>
+<p>"That has nothing to do with Yukiko-nim. Even if Yukiko-nim is Saburo-nim's Wife."</p>
+<p>Tosen Nobumichi spoke with a resolute Expression. But no matter how resolute Tosen Nobumichi was, Taira Yukiko did not give up.</p>
+<p>"I'm not asking to force something on the people who followed Saburo-ssi. I'm just curious about the content of the Will...."</p>
+<p>Yukiko was quite shocked by the existence of another Will implied in the data she received from Taira Shizuku. And to confirm the content of that Will, she sought out Tosen Nobumichi.</p>
+<p>As stated in the data, the Saburo faction members who followed Taira Saburo either went under Taira Kanna, with whom Yukiko had a bad relationship, or moved their affiliation to the neutral unaffiliated faction, and the rest left the Taira Group, so it could be said that the only person Yukiko could ask was Tosen Nobumichi, who was Taira Ryuta's Butler.</p>
+<p>"Hmph.... It seems like something Madam Shizuku did. Since that seems to be the only Route for Yukiko-nim to know about the existence of that Will. I understand. I'll tell you the content."</p>
+<p>Tosen Nobumichi let out a small Sigh, then nodded his Head.</p>
+<p>"At the time, Yukiko-nim probably also vaguely knew, but the Offensive from the Successors against Saburo-nim was becoming very severe. Saburo-nim realized then that he might die."</p>
+<p>Taira Saburo was an outstanding individual. After declaring his entry into the succession competition, he began to push forward terrifyingly, causing all the succession competitors to be vigilant of Taira Saburo.</p>
+<p>The three succession competitors, excluding Taira Saburo, implicitly agreed to first crush Taira Saburo and eliminate him from the Taira succession. Thus, Taira Saburo was receiving concentrated Attacks from the three Successors.</p>
+<p>Of course, that Situation was also orchestrated by Taira Saburo. It was to create an Image of an overwhelming succession competitor, attacked simultaneously by the three Successors. Through that Image, claiming the trend was already decided, he intended to absorb the unaffiliated faction, which could be called the largest faction in the Taira Group.</p>
+<p>However, the other Successors also had Awareness of Taira Saburo's plan, and they tried to prevent Taira Saburo from taking the unaffiliated faction by any Method.</p>
+<p>From then on, not political Attacks, but Attacks using direct force began, and the Taira Successors began a bloody fight among themselves.</p>
+<p>Taira Saburo also began to think that he might die at that time.</p>
+<p>"At that time, Taira Saburo-nim distributed Wills to his buha. Rather than a Will, it was a final survival document. It was a kind of guideline on what actions his buha should take for their own Survival if he were to die."</p>
+<p>As Tosen Nobumichi said, though it was called a Will, it could actually be called a final Command given to his buha. Taira Saburo, thinking that the Well-Being of his buha who followed him would be in Danger if he were to die, issued an Order in the name of a Will.</p>
+<p>"The content of the Will differed for each Person. There were instructions to go under Agassi Kanna, and also instructions to join the unaffiliated faction. Saburo-nim wrote the Will to suit the Situation of each of his buha."</p>
+<p>"Then.... What about those who left the Taira Family...?"</p>
+<p>Yukiko asked about the 10 percent of Saburo's faction who had left the Taira Family, which she had been curious about.</p>
+<p>What kind of People were they, and why did they have to leave the Taira Family? Also, why did Taira Shizuku tell her to look for the 10 percent who left the Taira Family?</p>
+<p>"You know well that the Taira Successors engaged in a fierce, bloody fight. Those who left the Taira Group are individuals who caused such harm to the three current succession competitors that they absolutely cannot be tolerated. Conversely, they are People who rendered great service to Taira Saburo-nim. If they had remained in the Taira Group, they would all have been murdered by the other Successors. Isn't the fate of deeply loyal warriors who lost their Liege/Master obvious? That's why Taira Saburo-nim left them a portion of his property and ordered them to leave the Group."</p>
+<p>Taira Yukiko nodded her Head, indicating she understood Tosen Nobumichi's Words. Those who left were meritorious retainers who had rendered great service in the succession War. Their achievements were such that the other Successors could not tolerate them, so Taira Saburo wanted them to survive and told them to leave the Taira Family.</p>
+<p>"Saburo-ssi was that kind of Person...."</p>
+<p>Taira Yukiko replied with a bitter Expression. Although her curiosity about the Information Taira Shizuku had given her was resolved, she couldn't help but feel a bitter taste in her mouth.</p>
+<p>Taira Saburo did not want his Wife to get involved in the succession War. That's why Taira Yukiko still didn't know the full truth, even a year after Taira Saburo's death.</p>
+<p>And if Tosen Nobumichi's Story was true, then the People Taira Saburo truly worried about were his buha, so she couldn't help but feel bitter in her mouth.</p>
+<p>"By the way, what was written in the Will you received, Butler-nim?"</p>
+<p>Yukiko asked Tosen Nobumichi one last Question. Seeing that Tosen Nobumichi had not left the Group, he must not have received a Will telling him to leave, and seeing that he was currently Taira Ryuta's Butler, he hadn't joined the unaffiliated faction nor gone under Taira Kanna, so she asked out of curiosity.</p>
+<p>"A slightly different Will came to me. To return to Shizuku-nim...."</p>
+<p>"Is that so."</p>
+<p>At Tosen Nobumichi's answer, Taira Yukiko nodded her head with an expression of understanding. Since Tosen Nobumichi had originally been a butler that Taira Shizuku had kept since her days as Kabasawa Shizuku (椛澤 滴玖), it was natural for him to return to Taira Shizuku's side.</p>
+<p>"Thank you for the Story. I'll look around the mansion a bit before going in."</p>
+<p>"Be careful as it gets dark, Yukiko-nim."</p>
+<p>Thus, they finished their Conversation and parted ways. Yukiko decided to take a walk to clear her complex Mind. Yukiko wandered aimlessly along the paths created in Taira Ryuta's mansion, when she saw something peculiar.</p>
+<p>Someone was clinging to the window on the wall of the main building where Taira Ryuta was staying. Yukiko, whose night vision was bright due to her Succubus Trait, could tell at a glance who the clinging Person was.</p>
+<p>"What are you doing, Chieri-ssi?"</p>
+<p>The Person clinging there was Mimata Chieri. At Taira Yukiko's Question, Mimata Chieri, whose Face was deeply flushed, turned her Head towards Yukiko.</p>
+<p>"Ehehe.... Ju-just watching?"</p>
+<p>Mimata Chieri's flushed Face and thinking about what Taira Ryuta and Nagumo Sian were doing Inside Room, it was clear what Mimata Chieri was doing. And because she roughly knew Mimata Chieri's sexual preference, Taira Yukiko let out a small Sigh and chuckled slightly at the same time.</p>
+<p>"Well then.... Keep enjoying yourself."</p>
+<p>Taira Yukiko waved her Hand at Mimata Chieri, then moved her Footsteps again. Perhaps because she had laughed in bewilderment at Mimata Chieri's eccentric behavior, the suffocating Feeling had somewhat disappeared. Taira Yukiko, whose thoughts were somewhat organized, returned to her assigned room, lay on the bed, and sought Sleep.</p>
+<p>"Haaah-euh-heung! Junior-nim! I'm sooorryyyy♥"</p>
+<p>Mimata Chieri was moaning sound loud enough to make the room tremble. She had been caught again watching Nagumo Sian and me having sex.</p>
+<p>Nagumo Sian had returned to her own room to avoid Misunderstandings in the morning, and I was punishing the Voyeurism Netorare maniac with my yukbong.</p>
+<p>"What's with your pussy twitching while you're saying sorry, Sunbae?!"</p>
+<p>"Th-that's because! Junior-nim showed me such a scene, haaah-aang♥"</p>
+<p>"I didn't show you, you watched it yourself!"</p>
+<p>My Discipline/Training was useless on this Byeontae Precious child. It felt like she liked it more the more I scolded her? Still, I couldn't stop punishing her. Because the feeling of ejaculation came quickly.</p>
+<p>"As Punishment, I'm going to fill you up inside, so you can't spill a single drop, okay?"</p>
+<p>"Haaah-euh-heung! Junior-nim, heung! There's too much baby fluid, heung♥ It's impossibleeeeee!!"</p>
+<p>"That's why it's Punishment!"</p>
+<p>Byuurut! Byurut! Byuuut!</p>
+<p>I poured my semen generously into Mimata Chieri's pussy, who was struggling and saying it was impossible. Simultaneously with my Ejaculation, Mimata Chieri rolled her Eyes back and reached Climax.</p>
+<p>"Don't cling to the wall anymore."</p>
+<p>"Hee-euh-heung...♥"</p>
+<p>Mimata Chieri, who had already reached her maximum Climax, couldn't Answer my Words. I shook my Head with an Expression of helplessness.</p>
+<p>Nagumo Sian, requested by Gojoy-nim: 1. Scene of her lying in bed covered with Entwined Sheets after sex, 2. Appearance in a Martial Arts Uniform.</p>
+<p>1.</p>
+<p>For some reason, images of her covering herself properly with the Entwined Sheets don't come out well ㄷㄷ.</p>
+<p>2.</p>
+<p>Requested by MidNightSKY-nim: Lisa, happy that the publishing game hit the Jackpot, and Ryuta, who received Contact from Lisa and is happy together with her~!</p>
+<p>Starting with Lisa~!</p>
+<p>If you look closely, her Eyes are shaped like the Yen symbol (￥) hehe.</p>
+<p>Ryuta~!</p>
+<p>VER. heard the Story via Text Message.</p>
+<p>Receiving a Phone Call doesn't come out very well ㄷㄷ.</p>

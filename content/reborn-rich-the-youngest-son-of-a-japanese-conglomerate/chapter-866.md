@@ -5,88 +5,65 @@ weight = 866
 chapter = 866
 +++
 
-<p>At the Egawa Family mansion, Alik sat in a pavilion in the corner of the garden, took out his sword, and looked at it.</p>
-<p>The famous sword, Thunderclap, that Taira Ryuta had given him. According to the master craftsman Ichimonji, he had heard that remnants of Swordsmanship were still present in this sword.</p>
-<p>Alik was exploring the traces said to be hidden within the sword, flowing a faint Jeollyu through it.</p>
-<p>'Is this it...?'</p>
-<p>Alik slightly furrowed his brow, observing the flow of Jeollyu he felt within the sword. The movement of Jeollyu, which couldn't be felt in ordinary swords, was visible, and this seemed to be the hidden traces of Swordsmanship.</p>
-<p>Alik left Thunderclap as it was, picked up the katana he had placed beside him, and stood up. And drew the sword, swinging it just as he had felt from Thunderclap. After swinging it a few times, Alik tilted his Head. And sitting down again, resting his Chin on his Hand, he fell into thought.</p>
-<p>"Is this not it...?"</p>
-<p>Alik, who had been thinking for a moment, realized that the flow of Jeollyu he had felt from Thunderclap was not merely expressing the sword's movements.</p>
-<p>'It was the Jjirittjiritt movement...!'</p>
-<p>A small Enlightenment. It was a small but big step. Until now, Alik had merely pushed Jeollyu when swinging the sword, but he realized that this also had a certain pattern and flow.</p>
-<p>Alik stood up again and swung the sword. Although it was a simple upward slash, at the same time, the Jeollyu within Alik's Body moved in a unique pattern.</p>
-<p>Kkwaleureung!!</p>
-<p>Simultaneously with the upward slash, Jeollyu burst from the floor and shot towards the sky. It was as if Lightning was striking in reverse. Even if one dodged the sword, the Lightning suddenly surging from the floor would be difficult to block.</p>
-<p>"This is fun...."</p>
-<p>Alik muttered with delight. After swinging the sword a few times and conjuring rumbling Lightning that ascended into the sky in reverse, Alik's surprised adoptive Mother, Egawa Shiho, came running.</p>
-<p>"Alik, what's wrong?"</p>
-<p>"Shiho mom, Alik learned a new Technology."</p>
-<p>Although Alik spoke proudly, holding his katana, in Egawa Shiho's Eyes, only the garden, charred and ruined by the Lightning, was visible.</p>
-<p>"Alik, I made a separate Training Ground for you, didn't I~!? What will you do if you make such a mess here?!"</p>
-<p>"Ah...!"</p>
-<p>At Egawa Shiho's scolding, only then did Alik look around. The Flowers and Grass in the garden were heavily charred, making the Surroundings a mess.</p>
-<p>"Shiho mom, Sorry."</p>
-<p>Although Alik's Body had grown considerably in just a few months, overflowing with feminine charm, he still looked only cute to Egawa Shiho. Since this wasn't a big Mistake, Egawa Shiho hugged Alik tightly.</p>
-<p>"It's okay, Alik. From next Time, please do your Training in the Training Room?"</p>
-<p>"Yes...!"</p>
-<p>At Egawa Shiho's Words, Alik made a firm Expression and nodded his Head. As the Head of Household of the Egawa Family, Egawa Shiho, who taught bride lessons to noble women of marriageable Age, had a very strict Personality, but she was soft only towards Alik.</p>
-<p>"Shiho mom, Alik will go to the Training Room and work hard...!"</p>
-<p>Alik, excited about having learned a new Swordsmanship, holding his swords, ran to the Training Room Egawa Shiho had specially made for him. Egawa Shiho, looking at Alik's Back View, smiled as if she couldn't stop him.</p>
-<p>"Everyone, did you rest well this Weekend?"</p>
-<p>I entered the Classroom and asked, looking at the Students. Already, since it had been a free-for-all after the Test ended, the Students had no such thing as Monday sickness. It was just one of the days they came to play with their Friends.</p>
-<p>"Of course~! Ryuta-cchi, you went to Kofu without us, didn't you?"</p>
-<p>"We like going to Kofu too, why didn't you take us?"</p>
-<p>"That's right, that's right~!"</p>
-<p>Seizawa Shii, having heard it from somewhere, mentioned that I had taken some Students to Kofu City. In response, the Students who couldn't go to Kofu grumbled and made a Commotion. It wasn't for fun, but to make Swords for the Kids, so it wasn't necessarily a Secret, but for some reason, the Students who didn't use cold Weapons seemed to feel a little left out.</p>
-<p>"It wasn't for fun, but more like a Factory tour for Work? Think of it as having gone for something like that."</p>
-<p>"Then I too, for my Work, let me go with Ryuta-cchi sometime~!"</p>
-<p>"Are you saying you want to do a request together?"</p>
-<p>"Yes~☆"</p>
-<p>It felt like I had somehow gotten entangled by Seizawa Shii, but I had no choice but to nod my Head. Minamoto Risa, although she had a slightly dissatisfied Face, was quiet, because I had promised to take Minamoto Risa and a Sunbae under her who used cold Weapons to meet Ichimonji later, it seemed she was letting it go. With the other Students as well, only after making a promise to do something together did the Commotion subside a little, and only then could I talk about today's main Matter.</p>
-<p>"Let's move on from the Kofu Story now, and from today, I need to do career counseling with a few people at a Time, who wants to go first?"</p>
-<p>In fact, for advancement to higher Education or career paths, the Class Teacher's Role was extremely limited at St. Francis Girls' Academy, so career counseling was merely a formal procedure. It was just like a final tea Time between the graduating Students and the Teacher before they parted ways, perhaps? As a Class Teacher for other graduating classes, one would have to check each Student's club schedule and adjust the counseling order, but in our class, except for Alik and Uenozono Karen, everyone was in the Date Experience Club, so the order could be decided freely. The Students also didn't particularly seem to want to speak first. Our class, especially because the relationship between the Teacher and Students was good, they talked at any Time, so having separate counseling didn't offer much of a merit anyway.</p>
-<p>"I want to go first."</p>
-<p>Surprisingly, the Student who raised her Hand was Shido Tsubaki. As a former Newspaper Club member, she preferred to observe first and wasn't usually a Student who stepped forward first in such situations, but seeing her raise her Hand first, it seemed she really had something to say.</p>
-<p>"Next? I'll do two people a day."</p>
-<p>"It's better to get this kind of thing over with quickly. I'll go next!"</p>
-<p>The next Student to raise her Hand was Kujo Kina. Having returned from the USA, perhaps not yet adapted to the Time difference, she raised her Hand with a slightly tired-looking Face.</p>
-<p>"Good. Then everyone go up to the second floor.... Shido, go to the Counseling Room on the second floor. I'll grab a few things and head up."</p>
-<p>"Yes."</p>
-<p>"Yes~!"</p>
-<p>The Students stood up and rushed up to the club room, and I stopped by the Education Preparation Room to pick up documents like counseling logs and headed to the Counseling Room on the second floor.</p>
-<p>Deureureuk.</p>
-<p>Opening the door of the Counseling Room and entering, Shido Tsubaki was sitting there. I placed the document file on the desk and sat down on the Opposite Side of Shido Tsubaki.</p>
-<p>"Alright. Since you raised your Hand first, you must have something you want to talk about, right?"</p>
-<p>"Actually, it's not related to counseling. It's not a Question for you as my Class Teacher, but something I wanted to ask from your position as the Date Experience Club's advisor Teacher. I was wondering if I could go to the Newspaper Club starting tomorrow. After all, I'm a former Newspaper Club President, and I've been involved there for five and a half years, so I have Affection for it.... I also want to leave something behind for my juniors."</p>
-<p>Ah, so that's what it was? Since Shido Tsubaki is a former Newspaper Club President, she would naturally have more Affection for the Newspaper Club than the Date Experience Club.</p>
-<p>"Is it okay if I permit it? Did the Newspaper Club say you could go?"</p>
-<p>"Yes. The Newspaper Club told me to get permission from Teacher-nim and come."</p>
-<p>Ah, I see. Anyway, the Date Experience Club was a club that would disappear once the third-year special class graduated. That's why, rather than leaving something behind, the Kids just chatted every day, watched TV, and played while eating delicious things. Shido Tsubaki, rather than just idling and playing in the Date Experience Club, seemed to want to return to the Newspaper Club before Graduation to leave something behind for her juniors.</p>
-<p>"You told the Date Experience Club President, didn't you?"</p>
-<p>For reference, the Date Experience Club President was Konoe Akina. At the beginning of the second semester, the Meditation Club, advocated by Minamoto Risa, and the Date Experience Club, advocated by Konoe Akina, had a Match to recruit members, and the Date Experience Club won, so Konoe Akina became the President.</p>
-<p>"No, I thought it was Etiquette to speak to Teacher-nim first."</p>
-<p>Is that so? Is it Etiquette to speak to the advisor Teacher first? I'm not sure about club Matters. I didn't think Shido Tsubaki's Words were particularly wrong, so I nodded my Head.</p>
-<p>"Alright, I understand. After counseling, you can tell Konoe and go to the Newspaper Club. Then, although it's formal, I'll do the career counseling."</p>
-<p>I, after permitting Shido Tsubaki's Request to go to the Newspaper Club, opened the document file and spread out the counseling document with Shido Tsubaki's name written on it.</p>
-<p>"You decided to go to Kanto University, right?"</p>
-<p>"Yes. I haven't been accepted yet. The Interview is still remaining."</p>
-<p>It was Kanto University, founded by several noble Families pooling their Money, and among them, the Shido Family also had a Share, so even if Shido Tsubaki uttered Profanity at the Interview, she would not be Eliminated.</p>
-<p>"What will you do after University Graduation?"</p>
-<p>"Even while attending University, I plan to continue developing Search Eye. There's also the Method of joining Shido Newspaper, but for now, this is my thought."</p>
-<p>She seemed to be thinking of continuing to develop Search Eye, the internet newspaper she was doing with Oofuchi Erika.</p>
-<p>"If you have any difficulties while working, Contact me anytime."</p>
-<p>Shido Tsubaki, although she didn't know my True Identity as Taira Ryuta, knew that I was the Black Knight, so she nodded her Head at my Words.</p>
-<p>"Understood."</p>
-<p>"Hmm.... Well, career counseling is over now, do you have anything else to counsel about besides the Newspaper Club?"</p>
-<p>Since career counseling was so formal, there was nothing to ask. To my Question of whether she had anything else to counsel about, Shido Tsubaki shook her Head.</p>
-<p>"Then you can go. Please call Kina from the club room."</p>
-<p>"Yes."</p>
-<p>At my Words, Shido Tsubaki stood up. And she paused as she was about to leave the Counseling Room and stood in front of the door. And she opened her mouth softly.</p>
-<p>"Actually, there's one thing I want to counsel about...."</p>
-<p>Requested by MidNightSKY-nim: Liz and Lisa watching the night sky in a place full of Stars~!</p>
-<p>Starting with Lisa-ttang~!</p>
-<p>The Atmosphere was so good that I made an Illustration I liked while creating it into a Cover, hehe.</p>
-<p>Liz~!</p>
-<p>She looks like a Demon Lord, hehe.</p>
-<p>The Atmosphere is different from Lisa-ttang, hehe.</p>
+<p>are covering please there view with</p>
+<p>Even after receiving their Weapons from the old man Ichimonji Harugoro, the special class Female Students went to the Home Economics Lab and were engrossed in practicing making chocolate. I wondered what incredible things they were trying to make by practicing chocolate making for almost a week, but thanks to that, I also had time to Study for the PMC certification Test, so I sent the Students to the Home Economics Lab and focused on Studying for the PMC certification Test.</p>
+<p>Thursday passed, and Friday, the last day of School before Graduation, arrived. For some reason, a Tension hung over the school, and I found out why as soon as I arrived near the main gate.</p>
+<p>"Yamashiro seonsaengnim~!" "Teacher-nim!" "Korean Teacher-nim!!" "Please transfer to our School!!" "Yamashiro-ssi! Please marry me!!" Female Students holding chocolate rushed at me like Zombies. Not only St. Francis Girls' Academy Female Students, but also Miyashi City High School Female Students, and young Career Women approached me, thrusting chocolate at me. It seemed they intended to give me chocolate today because Saturday was Valentine's Day. But with so many People, it's quite scary, isn't it? The Security Guard at the Entrance of St. Francis Girls' Academy didn't stop them, but just sat inside the Outpost, calmly saying, "Yamashiro-sensei is very popular, isn't he?"</p>
+<p>"Uh, uh...! Th-that's right, thank you. Thank you." Receiving chocolates from the St. Francis Girls' Academy Female Students who were ambushing at the Entrance, the Miyashi City High School Female Students waiting in front of the Entrance, and the Career Women, my Hands were not enough. Unable to receive them all by Hand, I took off the Windbreaker I was wearing, loosely tied the sleeves to make it like a wrapping cloth, and had to put the chocolates in it. After receiving chocolate gifts, shaking Hands, and even taking Photos for almost 20 minutes, I was finally able to enter the academy. And even while going to the special class building, one by one, they approached with shy Expressions and put chocolate into my Windbreaker wrapping cloth.</p>
+<p>Arriving at the special class building, I encountered Shido Tsubaki and Oofuchi Erika, who had arrived a little early, in the corridor. Like scouts on Reconnaissance, they didn't even properly greet me, but merely glanced at the chocolates in my Windbreaker wrapping cloth and entered the Classroom.</p>
+<p>"Seriously...." I watched the two enter the Classroom and opened the education preparation room door. And almost simultaneously, the Infirmary door across the hall opened.</p>
+<p>"Ah, I've been waiting for you, Yamashiro seonsaengnim~!" Kijimoto Jurie came out of the Infirmary, flashing her usual gentle Smile. After she confessed to me that she was an Assassin specializing in Poisoning, this gentle Smile felt a little different, but I didn't show it and greeted Kijimoto Jurie warmly.</p>
+<p>"Jurie seonsaengnim." "As expected, you're very popular, aren't you?" Kijimoto Jurie asked, looking at my Windbreaker wrapping cloth. Having nothing particular to say, I vaguely mumbled a reply.</p>
+<p>"I'll add one to this pile of chocolates here. Here you go."</p>
+<p>Kijimoto Jurie held out a carefully wrapped Gift Box to me. Since she said she'd add one more to the pile of chocolates, it was probably homemade chocolate, right? Normally, if a Woman made homemade chocolate for me, it would be quite a grateful thing, but receiving a homemade chocolate gift from Kijimoto Jurie, who was called the Poison Witch, made me a little hesitant. Moreover, the Wrapper's Color was green, which made me even more uneasy.</p>
+<p>"Thank you. I'll eat it well." "Yes, ufufu.... I made it in my laboratory, so please enjoy it." As I received the Gift Box without showing any unease, Kijimoto Jurie, as if her Purpose was simply to deliver the gift, smiled gently and entered the Infirmary. By the way, Kijimoto Jurie's laboratory? Isn't that where she makes Poison? Hearing that just makes me even more uneasy.</p>
+<p>I also went into the education preparation room, prepared a large box, and poured all the chocolates from the Windbreaker wrapping cloth into it. Perhaps because I had been harassed (?) by the Students and Kijimoto Jurie since Morning, I felt my blood sugar dropping, so I decided to eat one of the gifted chocolates.</p>
+<p>"I'm a little uneasy, but.... Shall I try the one Jurie seonsaengnim gave me?" I said, unwrapping the box tied with a red ribbon on green Wrapper. As I unwrapped it and opened the box, a sweet scent wafted out, and a heart-shaped green chocolate was visible. But why is it green?</p>
+<p>"It must be matcha chocolate, right? Right?" On a green base, there was a small flower decoration made of something ominously purple, which looked quite good, but the ominous Color combination of green and purple made me hesitate for a moment. Both colors represented Poison in games, so it would have been strange not to feel uneasy in this Situation.</p>
+<p>I bravely picked up a chocolate and put it in my mouth. As I chewed the chocolate, kadeuk , fortunately, it was matcha chocolate, just as I had first thought. And the remaining uneasy part, the purple decoration, seemed to be made of blueberries. Matcha and blueberries, it didn't seem like they would go well together, but they subtly did.</p>
+<p>I took a Photo of the chocolate, then sent a Text Message to Kijimoto Jurie saying it was delicious, and after Studying for the PMC certification Test until just before Morning assembly, I entered the special class Classroom.</p>
+<p>"Woo~! Popular guy~☆" "Woo-woo~!" "Kyahaha, I've never seen anyone receive so much chocolate, Teacher-nim~!" It seemed the news that I had received many chocolate gifts had already spread, as soon as I entered the Classroom, sounds of "woo-woo" Jeers were heard.</p>
+<p>"I can't heartlessly refuse when they're giving it to me, can I?" "Still, woo~!" "That's true, but, woo-woo~!" "Woo-woo~!" The Jeers started again. Looking at their Expressions, it didn't seem like they were jeering because they were genuinely in a bad Mood. Glancing at the jeering Students, it seemed the special class Students hadn't brought chocolate today. Surely.... They wouldn't give nothing to their Class Teacher, would they?</p>
+<p>"I'm telling you now so you won't be disappointed later, but we're not giving you anything today." Minamoto Lisa said, as if she had noticed my Gaze. She's really quick with Awareness.</p>
+<p>"Mine's Giri Choco, so I'll give it to you now~!" Kujo Kina stood up from her Seat and held out a ready-made chocolate, not a homemade one. Still, it was a gift chocolate from a quite expensive brand.</p>
+<p>"Alright. Thank you, Kina." "It's a product with a lot of protein, so eat it after your Athletics!" A gift, and a protein Product? I wondered, so I read it, and indeed, just as Kujo Kina said, it was a product with a quite high protein content.</p>
+<p>"Are you going to the Home Economics Lab again today?" "No, today I'm going Home to make it. So the other Kids can't interfere...." It seemed they had interfered with each other quite a bit until now, as the Students each said they would go straight Home after Morning assembly today, claiming they would make a proper item. Then why did they come to School? And what on earth are they making that they'll spend all day making it at Home today?</p>
+<p>"Alright, Graduation is next week, so prepare well.... The academy would have sent the Graduation ceremony Order and preparation Matters in an email, so check everything and proceed." Saying this, I really felt that Graduation was right around the corner. Thinking about it, only the Morning assembly on Graduation day was left, and there would be no closing assembly at all, so what I was saying now could be considered the last closing assembly. My Mood was a little strange.</p>
+<p>"Ryuta-cchi, look forward to tomorrow~☆" "Ryuta, tomorrow Alik will give you something delicious." "You, see you tomorrow." After I roughly finished telling them all the last instructions, all the Students, as if in a hurry, stood up from their Seats and greeted me. It was roughly a "see you tomorrow" greeting. I returned their greetings and sent the Students off.</p>
+<p>The last remaining Student was Shido Tsubaki. Shido Tsubaki approached me and took out a box from her Bag.</p>
+<p>"It's Giri Choco, Teacher-nim." "Yeah, thank you." It seemed she had stayed until the very end just to give me chocolate. I received the chocolate from Shido Tsubaki and thanked her.</p>
+<p>"You know, about the counseling we had before...." Huh? The counseling before? What was it? I thought, then realized it was about Seiwa Rieko, who had dropped out before I came.</p>
+<p>"You mean Seiwa Rieko's Matter?" "Yes. We decided to meet the day after Graduation. I plan to meet her then and properly Apologize." So they decided to meet the day after Graduation. Even if one made a Mistake, there weren't many People who properly Apologized, so Shido Tsubaki could be said to be excellent.</p>
+<p>"I hope it resolves well. Seiwa Rieko will understand your Feelings too." "Thank you, Teacher-nim. Actually, it's not even a Matter related to you...." "It's related because you, Shido, are my Student." "Is that so...? I'll get going, Teacher-nim. Thank you once again." Ending the short Story with Shido Tsubaki, I returned to the education preparation room. In fact, today was the last day of Work, so there was a lot to do. I had already organized the documents in advance, so there wasn't much to do right now, but there were quite a few documents I had to personally take to the faculty office, so today seemed a little busier than usual. Fortunately, the contract itself was until this semester, so there was no need to write a separate resignation letter.</p>
+<p>Having finished the last of my Paperwork as a faculty member of St. Francis Girls' Academy, I carried the documents to be submitted and exited the special class building.</p>
+<p>"!" "Kyaaak!" "Teacher-nim! Please accept my chocolate!" "It's true feelings chocolate, Teacher-nim~!" It seemed the commotion from the Morning wasn't the end of it. Having finished chocolate making in the Home Economics Lab today, everyone was holding out Gift Boxes containing freshly made chocolates to me. From the younger-looking middle school Students to the graduating class I often saw in Korean language classes, they were gathered to give me chocolate.</p>
+<p>"Just a moment...." I ran to the education preparation room, grabbed a few boxes, and began receiving the chocolates from the Students. I'm not some Celebrity, giving out chocolates and taking selfies together, so quite a lot of Time passed.</p>
+<p>After receiving all the Students' chocolates, I carried the overflowing boxes stacked together, returned to the education preparation room to put them down, and came out again.</p>
+<p>The commotion from just a moment ago had vanished, and the special class building was filled with its usual silence. I carried the documents and headed to the faculty office.</p>
+<p>"Yuzuki seonsaengnim." Calling out to Matsunaga Yuzuki, the 3rd-grade Class Teacher, and handing her the documents, Matsunaga Yuzuki smiled at me.</p>
+<p>"I've been waiting for you, Yamashiro seonsaengnim."</p>
+<p>Matsunaga Yuzuki picked a Gift Box from her desk and gave it to me. Then, bowing her Head slightly so that other Teachers nearby couldn't hear, she whispered to me. "All the other boxes are Giri Choco, but this one is true feelings chocolate♥" It seemed it was Giri Choco for her colleagues, but true feelings chocolate for me.</p>
+<p>"Thank you. I look forward to your continued support." I received the chocolate from Matsunaga Yuzuki and greeted her. As if to say, "I look forward to your continued support," Matsunaga Yuzuki, while at St. Francis Girls' Academy, promised to introduce me to suitable Talents if she found any. It was like a scout, in a way. Although she was disappointed that I was leaving St. Francis Girls' Academy, she quickly regained her spirits, knowing that we wouldn't be completely unable to see each other.</p>
+<p>Starting next semester, she decided to begin a mathematics doctoral program and later work as a Training assistant or lecturer at St. Francis Women's University, which was closer to me, while also doing scouting Work. Since university Students would be easier to employ than high school Students, I intended to help Matsunaga Yuzuki complete her doctoral program quickly.</p>
+<p>"See you next time." I said my greetings and left the faculty office. While I was at the faculty office building, I thought of going to the Headmaster's office, but when I asked the academic Administration about Daigo Terue, I was told she hadn't come to the academy today due to other Work, so I headed back to the education preparation room.</p>
+<p>As I approached the special class building, I wondered, but there were no Students now. It seemed everyone who wanted to give me chocolate had already done so.</p>
+<p>Opening the special class building door and entering, I saw a Woman in a Kimono far down the corridor. It was Shimokawabe Airen. What's going on? Surely not....</p>
+<p>"Shimokawabe seonsaengnim." "Ah, Yamashiro seonsaengnim. I made this during Home Economics practice. It's homemade, but it's Giri Choco."</p>
+<p>Shimokawabe Airen, wearing a Kimono and an Apron, held out a carefully wrapped box to me. I received the chocolate and greeted her.</p>
+<p>"Thank you, Teacher-nim. Did you wait long?" "No, I just arrived." It seemed she hadn't waited long. Indeed, I hadn't been in the faculty office for long, so she couldn't have waited long.</p>
+<p>"Then, would you like to have a cup of tea or something in the education preparation room?" "It's fine, I'll be going now." Shimokawabe Airen shook her Head, her Face slightly flushed, and walked down the corridor, exiting the special class building. It seemed her sole Purpose was just to give me chocolate.</p>
+<p>Curious about what kind of chocolate Shimokawabe Airen, the Home Economics Teacher, had made for me, I went into the education preparation room and opened the box. Inside, along with a Note, was a long, Sword-shaped chocolate. As I drew the Sword from its Scabbard, made of dark chocolate, a blade made of white chocolate was revealed. As expected of a Home Economics Teacher, it was incredibly well-made. Was it really Giri Choco...? To put in this much effort.</p>
+<p>It's too precious to eat, isn't it...? I decided not to eat the chocolate I received from Shimokawabe Airen right away and took a Photo.</p>
+<p>And when I unfolded the Note to check, it simply said, "Thank you for the Sword gift." Did Shimokawabe Airen give me a Sword-shaped chocolate because I had given her a Sword gift?</p>
+<p>Requested by Gojoy-nim: Saionji Diana breast-covering + belly dancer~!</p>
+<p>Breast-covering~!</p>
+<p>Belly dancer</p>
+<p>Requested by TheDreaming-nim: 1. Rinka-ssabu breast-covering at the Zoo 2. Rinka-ssabu fleeing while breast-covering</p>
+<p>1.</p>
+<p>Ssabu entered the animal Cage haha</p>
+<p>Is it Prey...?</p>
+<p>Ssabu, who had somehow tamed two Tigers haha</p>
+<p>2.</p>
+<p>If you add 'crowd', the Crowd becomes this large haha</p>
+<p>Today, Teacher-nim's true feelings chocolate gifts B-cut~!</p>
+<p>Kkiyot!</p>

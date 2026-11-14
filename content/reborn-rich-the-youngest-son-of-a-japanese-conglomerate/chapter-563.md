@@ -5,77 +5,82 @@ weight = 563
 chapter = 563
 +++
 
-<p>Sakagami Rena, having received a leave pass from her homeroom teacher and lord, Taira Ryuta, left the school and changed into her ninja outfit at Taira Ryuta's house near the academy. The Naruse family is a family of onmyoji, so she had to be fully prepared for anything that might happen.</p>
-<p>Sakagami Rena, equipped with numerous magic tools, shurikens, a pistol, an infiltration &amp; escape kit, and various other items, headed towards the Naruse family's mansion. Unlike other prestigious families that tried to be as close to St. Francis Girls' Academy as possible, the Naruse family was uniquely located in a slightly secluded area.</p>
-<p>However, it wasn't too far away; it was still a reasonable distance for commuting by car. The Naruse family's mansion was a modern Western-style mansion on a hill, giving off an arrogant feeling that they were different from the common folk.</p>
-<p>Something was definitely strange. Prestigious families' mansions were usually used as villas and for the young ladies to stay in while attending St. Francis Girls' Academy, but the Naruse family's mansion felt heavily guarded with a large number of personnel. It wasn't just a house for young ladies; it wasn't uncommon to see guards carrying submachine guns.</p>
-<p>,This is definitely suspicious....'</p>
-<p>Sakagami Rena, who had been watching the Naruse family for a while, slowly began to approach the Naruse family's mansion. She covered herself with a disposable special fiber camouflage blanket that didn't emit heat and blended in with the surrounding colors to avoid being detected by thermal imagers, and approached little by little.</p>
-<p>The mansion was located on a hill with an open view, so approaching it directly would likely get her caught. If she were wearing the St. Francis Girls' Academy uniform, she wouldn't be attacked, but since she was wearing a ninja outfit now, she would likely be riddled with bullets from the submachine guns the guards were carrying if she got caught.</p>
-<p>Sakagami Rena approached the mansion slowly but steadily. Eventually, Sakagami Rena, having reached the high walls of the Naruse family's mansion, took off the special fiber camouflage blanket and began to climb the wall. It was the place Sakagami Rena had been watching from the beginning, where the guards patrolled the least.</p>
-<p>Having successfully climbed over the mansion's wall, Sakagami Rena looked around and took out a device from her pocket. It was a device that could find the coordinates of where the person was mainly located based on line chats or calls.</p>
-<p>There hadn't been any calls or line chats from Naruse Shiyo for several days, but since there was data she had steadily collected before that, she could easily pinpoint Naruse Shiyo's room. Sakagami Rena carefully headed towards the coordinates indicated by the device, making sure not to get caught.</p>
-<p>The place Sakagami Rena arrived at wasn't a very good room for a young lady of a prestigious family to use. Sakagami Rena, who came from the Sakagami family, which was famous for its strictness, also used a fairly large and nice room, but Naruse Shiyo's room was like... a room of someone who was about to leave soon. There weren't many belongings, and it wasn't very spacious.</p>
-<p>Seeing Naruse Shiyo's bag and uniform hanging there, it was clear that it was Naruse Shiyo's room, but Naruse Shiyo wasn't in the room.</p>
-<p>,I thought she'd be lying in bed because she was sick, but where did she go?'</p>
-<p>Sakagami Rena took something out of her pocket again, which was a ferret with orange spots on a beige background. It was a special breed of ferret raised with the Sakagami family's secret techniques, smaller than ordinary ferrets, able to go to places where people couldn't, and able to track scents.</p>
-<p>, Hamutaro (ハム太郎). Find out whose scent is on that bed and uniform, okay?</p>
-<p>,Kkyu!</p>
-<p>As if understanding her words, Sakagami Rena's ferret, Hamutaro, smelled Naruse Shiyo's bed and uniform and went out the window as if telling her to follow. Sakagami Rena also went out the window following Hamutaro and carefully followed him.</p>
-<p>Hamutaro went to a fairly large building in the backyard of the mansion, but Hamutaro was just circling around it and couldn't enter the mansion.</p>
-<p>,Come here, Hamutaro.</p>
-<p>,Kkyu...!</p>
-<p>Sakagami Rena called Hamutaro back and headed to where Hamutaro was circling. After looking around, Sakagami Rena could see why Hamutaro couldn't enter the building. A barrier spell was in place, so it was impossible to enter by ordinary means.</p>
-<p>,I need to inform my lord of this first.'</p>
-<p>Sakagami Rena took out her phone. She thought she should ask Taira Ryuta for his opinion first because trying to break the barrier by force would inevitably get her caught.</p>
-<p>,I wondered who was approaching the barrier, and it was a ninja.</p>
-<p>,How...!</p>
-<p>A voice was heard from behind as she was taking out her phone. Sakagami Rena, who could detect even the smallest signs of movement, would never have failed to notice someone approaching like this. It was almost impossible.</p>
-<p>But the fact that it was happening now meant that the man who had approached Sakagami Rena was an incredibly skilled person.</p>
-<p>,Fortunately for you, I should keep you alive to find out why a ninja came to our family. I won't kill you, so be captured quietly.</p>
-<p>The man standing behind Sakagami Rena was Naruse Hirohide, the head of the Naruse family. Sakagami Rena, who had memorized the faces of all the heads and executives of major prestigious families, recognized Naruse Hirohide and made a rather dismayed expression.</p>
-<p>,I didn't expect this situation....'</p>
+<p>First, to figure out how much Asada Ei could withstand at normal temperatures, we left the freezer where Asada Ei resided and sat down in the lab in front to start talking. Asada Ei, with a slightly flushed expression, sat on the prepared chair and opened her mouth.</p>
+<p>,I have a slightly stuffy feeling, like I'm in a sauna... but I don't think I'll collapse like before.</p>
+<p>I was wondering what it would feel like, but it's like being in a sauna. How fascinating. I wondered how long it would take to use up the cold she had gathered over the past few days. Eve seemed to have similar questions as me, as she was attaching sensors to Asada Ei's body.</p>
+<p>The reason was that it could be dangerous if she was outside for too long, so they were checking in advance.</p>
+<p>Since Asada Ei's situation isn't ideal, have her prepare for work here for a while, where there are freezing facilities. Sakagami Rena and Naruse Shiyo are also in the same situation of unfair treatment as Asada Ei, so please discuss, work together, and report to me.</p>
+<p>,Yes. Leave it to me.</p>
+<p>,Understood, sensei.</p>
+<p>,My lord, I will do my best.</p>
+<p>Although she spent 7 years in the hospital, Asada Ei was a veteran who had experienced the Third World War as an intelligence officer, even if only at the very end. No matter how much Sakagami Rena and Naruse Shiyo were young ladies of 명가/myeongga or whatever, Asada Ei would probably see them as looking like kids. Saying 'Leave it to me' sounded like she was saying 'Leave them to me.' Come to think of it, she's in her 30s now, but she looks so young...? Could it be because of her Snow Woman traits?</p>
+<p>,The location is a bit... Please understand.</p>
+<p>,This location?</p>
+<p>Asada Ei didn't seem to know that this place was a love hotel district. It seemed like she didn't know the surrounding area well yet, probably because she had been brought here unconscious and hadn't left since.</p>
+<p>,Um....</p>
+<p>,The Miyashi branch of Am Sang is located in the basement of a lodging facility.</p>
+<p>When I was having trouble explaining, Eve stepped in and explained it to Asada Ei.</p>
+<p>,Lodging facility... you mean a hotel?</p>
+<p>,Yes! Just add Love♡ in front of it!</p>
+<p>,Ah....</p>
+<p>Asada Ei couldn't close her mouth at Eve's reckless cheerfulness. I told Sakagami Rena and Naruse Shiyo to focus on video conferences since it would be quite burdensome for them to keep coming here. We don't have to meet in person for a conference anyway.</p>
+<p>,Don't worry, the Miyashi branch of Am Sang is only temporary. I'm having a building built in Neo Tokyo, so I'll tell them to make a freezer on one floor there.</p>
+<p>,Neo... Tokyo?</p>
+<p>Ah, that's right, this person had been lying down for 7 years. The Neo Tokyo plan was established after Asada Ei collapsed, so she might not know about it.</p>
+<p>There are three leaders in the intelligence organization, but one doesn't know the recent situation, one has nothing but power, and Sakagami is the most decent one.</p>
+<p>,First, Asada Ei-ssi, please focus on grasping the recent situation and making the organization efficient. Naruse, learn about information and organization from Asada Ei-ssi... and teach her how to use shikigami magic in information warfare. Sakagami... will do well on her own.</p>
+<p>Even if I created an intelligence organization right away, it wouldn't be operational the next day, so for now, the three of them had no choice but to talk and lead it well. I thought it would probably take a few months for Torine-doo to normalize.</p>
+<p>,I don't know much about information, so I think interfering more than this would only be a hindrance. I'll be going now. Sakagami and Naruse, talk a little more and then come.</p>
+<p>With that, I ended the first meeting of the three Torine-doo leaders and left the room. It seemed like they would have a lot to talk about among themselves. And I also had to study for the PMC certification exam.</p>
 <p>###</p>
-<p>,Hmm....</p>
-<p>The contents of the email sent by the Taira Group's information team were simple. The Naruse family was still doing onmyoji work, and the wealth the Naruse family had accumulated was from onmyoji work rather than a trading company. They had made a lot of money from onmyoji work (if the Taira information team wrote "a lot," it meant they had really made a lot of money).</p>
-<p>How do they make money from onmyoji work? I wondered, but I thought I could ask Urabe Konoka, who was a similar professional, and waited for Sakagami Rena's report.</p>
-<p>I studied for my PMC certification while waiting for contact, but Sakagami Rena's report didn't come until after lunchtime and until the end-of-day meeting. I was a little worried, so I sent a line message and went into the classroom.</p>
-<p>,Everyone, good work today. There's nothing special to announce.... You can go home right away.</p>
-<p>,We're having club activities today, you know? Ryuta-jji is the advisor, so you have to come to the club room!</p>
-<p>,Our Date Experience Club will be publishing a collection of writings at the festival, so we need to start preparing little by little now.</p>
-<p>There were club activities. Seizawa Shii said I had to participate, and Konoe Akina, the club president, explained what we would be doing today.</p>
-<p>The festival was still far away, but it seemed like they were starting to prepare little by little. They were writing about topics such as date experiences, date fashion, and recommended meals for dates that they had done at the Date Experience Club, so if they started now, they would be able to make it in time for the festival with plenty of time to spare.</p>
-<p>,I don't think I can join you today...?</p>
-<p>,I was going to get Ryuta-jji to review my writing, but does that mean you have to look at it all at once later?</p>
-<p>,Please be sure to participate next time~!</p>
-<p>Fortunately, participation wasn't mandatory today. Now that I had sent Sakagami Rena to the Naruse family, I couldn't just laugh and chat with the students in the club. I had to wait for contact, so I couldn't do club activities today.</p>
-<p>,Urabe, stop by the education preparation room before going to the club, and the rest of you have fun with your club activities today.</p>
-<p>,Yes~!</p>
-<p>I told Urabe Konoka to stop by for a moment and returned to the education preparation room. Soon after, Urabe Konoka carefully opened the door and came in.</p>
-<p>,What did you call me for?</p>
-<p>,Yeah, there's something I want to ask you. Do you know much about onmyoji?</p>
-<p>At my question, Urabe Konoka put her chin on her hand as if organizing her thoughts for a moment, and then soon opened her mouth.</p>
-<p>,First of all, Shinto shrine priests and priestesses are professions that deal with gods, and onmyoji are professions that tell fortunes by observing the movements of celestial bodies, use magic, or deal with yokai. Compared to Shinto priests, there aren't many in modern times, but I've heard that a few families are continuing the lineage.</p>
-<p>I see. I had a similar feeling to Shinto priests and priestesses, but after hearing Urabe Konoka's explanation, there was quite a difference.</p>
-<p>,Do onmyoji families make money by telling fortunes or defeating yokai?</p>
-<p>Urabe Konoka, who had been puzzled by my question, seemed to have noticed something.</p>
-<p>,Is it the Naruse family?</p>
-<p>,Yeah. Naruse Shiyo hasn't been in contact, which is quite suspicious, so I'm investigating.</p>
-<p>,Hmm.... Onmyoji families make money not only from the fortune-telling and yokai extermination that you just mentioned, but....</p>
-<p>Urabe Konoka paused for a moment. She seemed to be having a hard time saying something, as she had a slightly troubled expression.</p>
-<p>,There's also a way to prosper the family by capturing specific yokai and using the yokai's bizarre power. But this work is accompanied by considerable danger. You have to offer treasures or.... The person themselves becomes a seal.... Things like that.</p>
-<p>Ah, I think I've heard that story somewhere. I believe I heard about yokai similar to the Japanese version of house elves, called Zashiki-warashi (座敷童子), guardian spirits that bring good luck if they are in the house, and it seemed like she was referring to that kind. However, the latter part was quite disturbing because it involved sacrificing or sealing people.</p>
-<p>,Are you talking about things like Zashiki-warashi?</p>
-<p>,Yes. Zashiki-warashi are relatively harmless. But.... There are many dangerous types. There are many cases where they forcibly seal them for the prosperity of the family or offer people to the yokai, so it's dangerous if the seal is broken or the offerings aren't made. Rumor has it that the Naruse family has sealed a Western yokai, but it's just a rumor, so I don't know the exact details.</p>
-<p>Hmm.... The information I had was added to Urabe Konoka's explanation, and the story was becoming more concrete. The second son who was adopted even though there was an eldest son, the onmyoji family that had been trading with the West since modern times, the rumor that they were sealing a Western yokai, and Naruse Shiyo, who was a young lady of a prestigious family but had a weak body.... All of this was converging into one story.</p>
-<p>,So, what if an onmyoji family adopted a second son even though they had an eldest son, and the daughter of that second son is very weak. If the family has enough wealth to fully treat that weak daughter but doesn't treat her, is there a possibility that the daughter was used for the seal?</p>
-<p>I said it in a way that made it clear enough that the onmyoji family was the Naruse family, so Urabe Konoka seemed to be thinking for a moment. She seemed to be thinking about whether it was something she could get involved in.</p>
-<p>,If it's as you say, teacher, there's a high probability. But I don't know if I can help....</p>
-<p>,No, I'm grateful just for telling me. Go up to the club room.</p>
-<p>,Yes....</p>
-<p>Currently, Urabe Konoka was in a situation where she was disconnected from Simyeonui ttal, the god she served, so it seemed like she couldn't be of help. I sent Urabe Konoka, who was slightly discouraged because she couldn't be of help to me, up to the club room and got up from my seat.</p>
-<p>Sakagami Rena should have contacted me by now, but the fact that she hasn't contacted me until now means that something is happening at the Naruse family's mansion. If that's the case, I have no choice but to go to the Naruse family's mansion myself.</p>
-<p>,Since there are too many absences, I have no choice but to make a home visit as a teacher.</p>
-<p>_________</p>
-<p>Sakagami Rena</p>
-<p>I tried making it with other models instead of the usual model that makes Sakagami Rena haha. Which one do you like the most?</p>
+<p>After the three of them met, it seemed like things were being handled well without me having to say anything separately. While juggling studying for the PMC certification and teaching, I also looked at the literary magazine from the Date Experience Club from time to time, and I was also photographed with the camera I ordered with the ₩1,000,000 KRW (over $750 USD) prize money from the sports day (I later found out that Minamoto Risa had contributed money). About three days passed, and I already had over ten report emails.</p>
+<p>Of course, I wasn't completely neglecting my subordinates. For Naruse Shiyo, who lacked technique compared to her stats, I scheduled a consultation with Shimokawabe Airen, the home ec teacher and kendo master.</p>
+<p>Shimokawabe Airen was a teacher in her own right, an advisor to the Cheongsim Hall, and unofficially, a fixer who handled the dirty work of St. Francisco Girls' Academy, so she was living a busy life.</p>
+<p>Originally, I wanted to have the consultation right away on Monday, but Shimokawabe Airen was also busy, so the consultation was scheduled for Thursday, three days later. If she's this busy, Naruse Shiyo won't be able to receive separate instruction from Shimokawabe Airen.</p>
+<p>After school, after the closing ceremony, I took Naruse Shiyo and Alik to Cheongsim Hall. I was greeted by the students of Cheongsim Hall and entered the building. The students of Cheongsim Hall, except for the special class and the students taking Korean classes, were the students I saw most often, but they were especially welcoming to me today.</p>
+<p>When I asked why, many students said they had become fans after watching Uenozono Karen's vlog that filmed the sports day. They said it was cool how enthusiastically I cheered with my classmates. Since St. Francisco Girls' Academy was featured, most of the students at St. Francisco Girls' Academy had seen the vlog.</p>
+<p>Yeah, I thought it was strange that there were more students whispering when they saw me after the sports day. I was curious, but this was the reason. I'll have to be careful of the attention on the streets from now on.</p>
+<p>Alik went to change clothes for training, and I took Naruse Shiyo and sat in the consultation room in Cheongsim Hall. Then, Shimokawabe Airen came in.</p>
+<p>Today, Shimokawabe Airen was wearing a tracksuit that looked like a track top, unlike her usual Kimono. She was slightly sweaty, as if she had been exercising, and she had the zipper of her tracksuit jacket almost all the way down. Her chest looked a bit more prominent because the clothes were sticking to her due to the sweat.</p>
+<p>,I was a little late. I skipped my morning jog today. I just ran around the schoolyard for a bit.</p>
+<p>,Routines are important. And you're not that late.</p>
+<p>,Is that so?</p>
+<p>Shimokawabe Airen wiped her sweat with a handkerchief and sat across from us. When Shimokawabe Airen took her seat, I honestly told her about Naruse Shiyo's situation. I thought I could tell her this much since she was a friend of my master. After listening to everything I said, Shimokawabe Airen summarized it in one sentence.</p>
+<p>,You're worried because her physical abilities are very good, but she doesn't have much technique?</p>
+<p>,Yes. It seems like she learned some martial arts when she was young....</p>
+<p>,I learned the family's traditional naginata technique!</p>
+<p>Naruse Shiyo said confidently. The naginata is a Japanese glaive, a weapon with a blade attached to a long pole, characterized by a thin Japanese blade.</p>
+<p>,If this child is strong, as Yamashiro-sensei said, then a nagamaki would be a better fit than a light naginata. They're similar in shape, so if she's learned naginata techniques, she'll be able to learn nagamaki techniques quickly.</p>
+<p>The nagamaki looked similar to the naginata, but it was a completely different weapon in origin. It was a weapon with an extended handle to make it easier to handle the heavy ōdachi, and it was heavier than the naginata.</p>
+<p>Shimokawabe Airen seemed to have judged that the naginata was a long-handled weapon, but it was light because of the thin blade, so it was not suitable for Naruse Shiyo to learn.</p>
+<p>,Let's have her spar with the students first to see if the strength Yamashiro-sensei mentioned is real.</p>
+<p>Cheongsim Hall was a Japanese koryu martial arts club, so they also had wooden naginata-shaped sticks, so there was no problem with sparring.</p>
+<p>The sparring partner was the second-year club president of Cheongsim Hall. Just like when Alik came to Cheongsim Hall to spar before, all the Cheongsim Hall students gathered to watch the sparring.</p>
+<p>,Start.</p>
+<p>At Shimokawabe Airen's words, Naruse Shiyo used her excellent physical abilities to swing the wooden stick. With a threatening whoong! sound, the wooden stick was swung, but the opponent easily dodged it and struck her shoulder with a sword. Naruse Shiyo jumped up and dodged the sword.</p>
+<p>But since she couldn't move her body easily while in the air, she was hit by the opponent's second attack.</p>
+<p>,Ouch...!</p>
+<p>Even if it was a wooden sword, it still hurt. Naruse Shiyo glared at her opponent with slightly teary eyes, and then used a thrust this time. Perhaps because of her tremendous strength and agility physical stats, Naruse Shiyo's wooden stick was fired with a paang~! sound of air bursting.</p>
+<p>But what good is it if the attack is fast? Naruse Shiyo's preparation movements were too big, so the opponent was able to see through them all.</p>
+<p>In the end, Naruse Shiyo was thoroughly beaten by the second-year club president, and the sparring session ended. Of course, thanks to her Dragon Blood Regeneration trait, she didn't seem to feel any pain, but she kept huffing and puffing because she was upset about being beaten by a junior, and soon she became depressed.</p>
+<p>,I'm too weak to help you, sensei.... I was going to get rid of everyone who was bothering you....</p>
+<p>,I saw it well. It seems like her technique doesn't control her body because she has little technique compared to her body's functions. Has it not been long since your body got better?</p>
+<p>,...Yes.</p>
+<p>Shimokawabe Airen ignored Naruse Shiyo, who was muttering to herself, and started with her impressions of the sparring. It was indeed an accurate assessment. As expected of a master, she picked out only the essential points just by watching the sparring. I was impressed and listened quietly from the side.</p>
+<p>,It was like watching someone who had cyber implants and was sparring right away. There's a big disconnect between her physical abilities and her mind, you could say?</p>
+<p>,Then what should I do?</p>
+<p>,I think ordinary exercise would be better than technique training right now. You have to get used to your body first, and then learn techniques. If you train in forms now without getting used to it, you'll only pick up bad habits.</p>
+<p>In the end, Naruse Shiyo was recommended to do bodyweight exercises such as running and gymnastics rather than form training. She can do that kind of thing on her own, so she doesn't need to get help from Shimokawabe Airen.</p>
+<p>,And since she's definitely strong, it would be good to learn the nagamaki technique I mentioned rather than the naginata. I only know the basics, so I'll introduce you to someone who's good at it separately.</p>
+<p>,Thank you....</p>
+<p>The consultation, which I thought would take quite a while, ended in less than thirty minutes. Seeing her even introduce a teacher to teach her martial arts separately, the home ec teacher was the best after all. Naruse Shiyo, who had heard a solution from Shimokawabe Airen in her own way, clenched her fists tightly and was determined to win next time!</p>
+<p>In fact, the way for Naruse Shiyo to win was easy. She could transform, approach, and scratch with her claws. However, since this was a sparring session to make up for her lack of technique, she didn't use a sure-win tactic.</p>
+<p>,Um, I'm going to go exercise, would you like to join me, sensei?</p>
+<p>Naruse Shiyo said it with some courage, but I had things to do.</p>
+<p>,Sorry, let's exercise together next time. The PMC certification exam isn't far away, so I'm going to study a bit today.</p>
+<p>The PMC certification exam was next Monday, so there were only 3 days left excluding today. At first, I didn't have much expectation because I was taking it as an experience, but the more I studied, the more I thought I could pass, so I couldn't just do it half-heartedly.</p>
+<p>,Okay, sensei. You're busy, but you still made time for me.... Thank you!</p>
+<p>,Okay, let's definitely exercise together after the exam!</p>
+<p>I took Naruse Shiyo to the training ground behind the special class building and headed to the education preparation room to study.</p>
+<p>------</p>
+<p>Home ec teacher after a long time</p>

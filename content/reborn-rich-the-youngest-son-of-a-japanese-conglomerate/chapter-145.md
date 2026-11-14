@@ -5,81 +5,75 @@ weight = 145
 chapter = 145
 +++
 
-<p>Kiyohira-nim's GPS signal was quite far away. Looking at the GPS signal on my smartphone, Kiyohira-nim seemed to be almost in the deepest part of the forest, about halfway through. I don't know why he went all the way there. He should know we have plans today.</p>
-<p>,Here it is."</p>
-<p>,We have to go all the way there?"</p>
-<p>When I showed him my smartphone, Kazuhiro-kun spoke with a slightly annoyed expression. But before I knew it, he changed his expression and was excitedly taking pictures of the forest scenery. The narrow forest path, which was not maintained at all, and the trees that soared high into the sky, blocking the sunlight, gave off an eerie and mysterious feeling. More than anything, after living in the city and only breathing polluted air, breathing the clear air of the forest felt refreshing.</p>
-<p>,I have to post this too~!"</p>
-<p>I chuckled at Kazuhiro-kun and followed the forest path, looking at the GPS signal. Following the forest path, a fork in the road appeared.</p>
-<p>,Hyung-nim, which way should we go? Ah, should I ask on the 7channel bulletin board?"</p>
-<p>,Why ask the bulletin board? Just look at the GPS."</p>
-<p>I scolded Kazuhiro-kun and looked at the GPS signal, but it was right in the middle of the fork, making it ambiguous which way to go. Kazuhiro-kun, standing next to me, looked at the GPS signal on his smartphone with an annoyed smile and started writing about the situation on 7channel. There might be someone who knows the way among the people commenting on the bulletin board, so posting it wouldn't be bad.</p>
-<p>115 KZHRSMITH: Photo</p>
-<p>116 KZHRSMITH: I'm following the GPS, but the fork in the road is ambiguous. Which way is better to go? Right? Left?</p>
-<p>117 Anonymous: It's not as scary as I thought? It's just a dense forest. By the way, the air must be really good.</p>
-<p>118 Psychic Hunter: 117 must have no spiritual sense at all. It's been a while since I've seen a photo with such malice emanating from it... In my opinion, there is no safe path. The only way to survive is to turn back.</p>
-<p>119 Verdi Fan: My head has been hurting a lot since the parking lot photo. Is there something wrong with this?</p>
-<p>120 Anonymous: The right side has more sunlight, so it's better to go that way. The left side is too dark and scary.</p>
-<p>121 Shot-jjang: Me too, the right! The left feels bad.</p>
-<p>122 Anonymous: I think the left might be better?</p>
-<p>123 Kenji-ssi: 122, that bastard is the worst!</p>
-<p>124 Anonymous: How about trying both paths a little bit and going where the GPS gets closer?</p>
-<p>Reading the comments under Kazuhiro-kun's post, Anonymous number 124's suggestion seemed reasonable and valid.</p>
-<p>,Let's do what this number 124 says."</p>
-<p>,That's definitely right. Rather than just picking a random path, it's better to try both a little bit and go the way that gets closer."</p>
-<p>First, we went to the right path, which the other people preferred. The right path seemed to be a path out of the forest, as it was gradually moving away from the GPS signal. We walked a little, stopped, and went back.</p>
-<p>,Let's go back."</p>
-<p>Fortunately, going to the darker left path got us closer and closer to the GPS signal where Kiyohira-nim was. At this rate, it seemed like we would arrive in about thirty minutes at a normal walking pace. We went deeper and deeper.</p>
-<p>,Hyung-nim, it's getting darker and darker?"</p>
-<p>,It's not even 3 o'clock yet. Maybe it's because the trees are getting denser."</p>
-<p>,Is that so?"</p>
-<p>It was definitely getting darker as we went deeper into the forest. As we went a little further inside, crows flew around cawing, making the atmosphere even more eerie. If I didn't have any abilities, it was a path I would never want to go on.</p>
-<p>,Hyung-nim, that, there!!"</p>
-<p>Suddenly, Kazuhiro-kun widened his eyes and pointed at one place. What is it? When I looked at where Kazuhiro-kun was pointing, a faint white figure was staring at us through the dense trees. It was a pale, naked female ghost. By the way, she seems to have a good figure? For a moment, my hair stood on end and I felt an eerie sensation.</p>
-<p>I drew up the Abyss. The power of the unidentified ghost was repelled by the power of the Abyss, and the eerie feeling disappeared. Along with that, the ghost's appearance also disappeared. I slapped Kazuhiro-kun, who was trembling, to bring him back to his senses.</p>
-<p>Smack!!</p>
-<p>,Uh, uh? It disappeared!"</p>
-<p>,First, let's not look around and just follow the path."</p>
-<p>We hurried and kept walking, only looking at the GPS signal and the path. Because we walked at a considerable speed, what was predicted to be a 30-minute distance became almost close to the GPS signal in about fifteen minutes.</p>
-<p>When we went to the place where Kiyohira-nim's GPS signal was, there was a huge tree. A rope was hanging from the large branch of the tree, and a white-haired man was hanging and swaying below the rope.</p>
-<p>,Genbaki!!"</p>
-<p>Kazuhiro-kun shouted Kiyohira-nim's nickname and ran towards the corpse hanging from the large tree branch. I was also surprised and ran over, and the corpse seemed to have been dead for some time, as it was being eaten by bugs here and there, and it smelled terrible.</p>
-<p>Looking closely, only the hair was white like Kiyohira-nim's; it wasn't Kiyohira-nim at all. Looking closely, although it was badly damaged, it was a middle-aged white-haired man.</p>
-<p>Kazuhiro-kun was wailing, ,Genbaki-iii!!" without looking closely. You idiot. I slapped Kazuhiro-kun's cheek again.</p>
-<p>,Uh, uh? What's wrong?"</p>
-<p>,Look closely. It's not Kiyohira-nim."</p>
-<p>,Uh, uh? It's really not?"</p>
-<p>Kazuhiro-kun hadn't fully regained his senses since seeing the ghost earlier. But why is Kiyohira-nim's GPS signal here?</p>
-<p>I looked around the corpse. There was a Buddhist rosary hanging on a branch near the corpse. Since Kiyohira-nim is a Buddhist, it seemed like he hung the rosary to pray for the repose of the dead corpse. Next to it, on the branch, was the GPS watch I had given him as a gift. Checking it, there was a note along with the watch.</p>
-<p>There's a suspicious shrine 4KM north. I think it's a cult. See you there.</p>
-<p>It seemed like he hung it with the GPS watch to make us see this note. This idiot, putting the GPS next to the corpse to surprise us, I'm going to have to beat him up a bit when I meet him, just like Kazuhiro-kun said. And why did he hang it next to the corpse instead of just wearing the watch so we could find him without leaving a note? Does he want us to take care of the corpse?</p>
-<p>I showed the note to Kazuhiro-kun, and we both prayed for the repose of the corpse and contacted the police to tell them we found a corpse in the forest. But the police just said they understood and hung up. Without even asking for the location of the corpse.</p>
-<p>We cursed at the police for a while and set off for the shrine to the north that Kiyohira-nim mentioned. Kazuhiro-kun was skillfully posting his experience of seeing the corpse on 7channel while walking on the bumpy road. Then he said, ,Hyung-nim, there's some information here," and handed me his phone.</p>
-<p>198 KZHRSMITH: I just saw a corpse. It seemed like he committed suicide by hanging himself on a huge tree. I cried my eyes out thinking it was my friend. But it wasn't.</p>
-<p>199 Anonymous: Prove it.</p>
-<p>200 KZHRSMITH: I won't prove that. I have to go to where my friend is.</p>
-<p>201 Psychic Hunter: I have a strange feeling. Has there been anything strange before?</p>
-<p>202 KZHRSMITH: I saw something like a ghost, but the friend I came with slapped me and I came to my senses. I might have gone crazy if it weren't for this guy...</p>
-<p>203 Psychic Hunter: Your friend seems to have strong yang energy. Rely on that friend.</p>
-<p>204 Anonymous: Then where is your friend?</p>
-<p>205 Anonymous: He's a martial arts fighter, right? Isn't he fighting with the ghost? WWWW</p>
-<p>206 Verdi Fan: Hey hey! This is not a laughing matter! If you found a corpse, shouldn't you report it to the police?</p>
-<p>207 Anonymous: It's been 5 years since the police gave up on Aokigahara. There are at least 1000 corpses?? I've seen articles every year saying they ignore reports.</p>
-<p>208 KZHRSMITH: As 207 said, I contacted the police, but they hung up without even asking for the location. We're going to the shrine in the north because our friend left a note.</p>
-<p>209 Psychic Hunter: I haven't heard of a shrine in such a place?</p>
-<p>210 Anonymous: A shrine deep in Jukai... I only have bad feelings.</p>
-<p>211 Verdi Fan: It's better not to go. It's really dangerous.</p>
-<p>212 Anonymous: If that's the case, there's probably a cult shrine called Shirashira (白白). It's a famous cult on mystery channels.</p>
-<p>,Shirashira? Hmm...! That's a strange name."</p>
-<p>,It seems like there really is a cult, just like Kiyohira-nim's note said."</p>
-<p>The distance of 4 kilometers would take about 1 hour if you walked slowly, but you could go in 15 minutes if you ran quickly.</p>
-<p>As Kiyohira-nim taught us, we went north and saw quite a few footprints, as if people were going back and forth, and the road was gradually being tidied up. After about 3 kilometers, we saw a torii gate. A torii gate in the middle of the forest looked ominous.</p>
-<p>,There really is a shrine?"</p>
-<p>,People are scarier than ghosts, so we have to be careful now."</p>
-<p>I said, putting on the gloves made from the Simyeonui ttal's hair from my pocket. People who are blinded by cults wouldn't hesitate to kill, and if Kiyohira-nim hung the rosary on that corpse, the cult and the corpse might be related.</p>
-<p>At my words, Kazuhiro-kun picked up a fallen tree branch and started looking around. Is he worried about being attacked?</p>
-<p>Just as we were about to cross the torii gate, we heard Kiyohira-nim's voice.</p>
-<p>,Wait!"</p>
-<p>------Ghost Caution------</p>
-<p>I tried to make a faint ghost, but the ghost picture failed because it was too close....</p>
-<p>The prettiest ghost among the pictures that came out....</p>
+<p>There are illustrations of about a swimsuit level. Please check your surroundings when viewing outside.</p>
+<p>The reason I asked Nagumo Sian if her Uncle or Aunt had visited was because this Black Moon Party incident seemed to involve one of the Successors using the Black Moon Party for some goal of their own.</p>
+<p>It could be an incident caused by Minamoto, but these people called Successors are the kind of people who would even kill their younger sibling if it benefited them, so they could never be excluded from this incident.</p>
+<p>Anyway, Taira Food is neutral in the succession structure, so they probably think it doesn't matter if they suffer harm. Or, they might intentionally create such a Crisis Situation, then provide help with troop support, etc., and recruit them into their own faction.</p>
+<p>Since my information gathering ability is still poor, I couldn't know the exact facts. I could only make a few predictions. While such predictions are important, it's probably best to first do my best with the Work at hand.</p>
+<p>After finishing the Call, Arisu and Mimata Chieri were talking about something between themselves. Hmm, were they bored while I was on the phone? Still, it was Fortunate that they seemed to have become closer than before.</p>
+<p>"I spoke well to Nagumo Sian-nim and secured the Seiryu Military Company Work as well."</p>
+<p>"Just recently, I heard that all the personnel who went out on a mission had returned, and I received Contact that they would be introduced to my junior-nim today or tomorrow."</p>
+<p>"Ah, today...."</p>
+<p>I looked at Arisu and slightly fumbled my Words. She would already be a little upset because of Mimata Chieri, and if I suddenly made an Evening appointment, she would get completely sulky. Because Arisu would want to spend time alone with me.</p>
+<p>"You said you invested in another company, right? I want to see those company people too."</p>
+<p>"Really?"</p>
+<p>It wasn't like they had a big fight or anything, but considering what happened with Mimata Chieri, I thought she wouldn't particularly like meeting the Seiryu Military Company people. Especially since Sawayanagi Azuma, who shoots hearts at me whenever she sees me, is there, it was a bit of a Problem.</p>
+<p>"Then, Sunbae-nim, let's have Dinner with the Seiryu Military Company people. Please make Contact."</p>
+<p>"Understood, junior-nim!"</p>
+<p>The Seiryu Military Company people had made their nest in a 7-story building near the East Weapon Headquarters. Of course, the building was mine, and while the Seiryu Military people were essentially renting, I wasn't receiving Money. I planned to start receiving it once they started earning Money from Work. This request from Taira Food would be the first step.</p>
+<p>I approached Arisu and asked what she had been talking about with Mimata Chieri earlier.</p>
+<p>"By the way, while I was on the phone, what were you talking about with Sunbae-nim?"</p>
+<p>"Ah, with Mimata-ssi? We just talked about Ryuta. Hehe...."</p>
+<p>Although something felt suspicious, I just nodded my Head. Mimata Chieri, who had finished her Call, soon approached Arisu and me, saying that we would have a Company Dinner together with Alcohol, and suggested we first go to the Seiryu Military Company building.</p>
+<p>When I asked why we had to go, she said we needed to greet the four Characters who had returned from their mission, so we ended up going to the company building before Dinner.</p>
+<p>The Seiryu Military Company building itself was close to the East Weapon Headquarters building, so we decided to walk. In less than 3 minutes, we arrived at the building marked "Seiryu Military Company" and headed to the CEO's Office on the F floor. Since the Seiryu Military Company itself didn't have many personnel, the top 3 floors were temporarily occupied by Seiryu Military Company personnel.</p>
+<p>Since they had only recently arrived here, they were staying in the company building, but they said they would each find their own Home and move out later. Since 10 people had equally divided the Money from the company sale, they wouldn't have to worry about Money for finding a Home. Because they were people who had never had much Money, I was worried they might splurge and spend all the large sum they received. I should assign someone to manage their finances later.</p>
+<p>Hmm, anyway, if they all go out and live separately and get kidnapped by Black Tech through individual attacks again, shouldn't I prepare accommodation for them? There will be many expenses. No, that's not right. Since I won't give them free rent, I can think of it as recovering the Money.</p>
+<p>"Investor-nim!! It's been a long time! And thank you so, so much for the new building!! To use such a building after using a dilapidated office until now, it's so good!"</p>
+<p>Sawayanagi Azuma saw me and welcomed me immensely, like a dog seeing its Master after a month. Even though it had only been about a week since we last met.</p>
+<p>But just like with Mimata Chieri, seeing Arisu clinging to my Side, they started looking at each other and laughing again.</p>
+<p>However, Sawayanagi Azuma, who had been experimented on as a test subject in her childhood, hadn't attended school, passed high school by taking Japan's high school equivalency exam (高等学校卒業程度認定試験), and then mostly lived on the battlefield, so she didn't have much social or personal experience.</p>
+<p>So, unlike the situation with Mimata Chieri, although her mouth was smiling, she was stammering a lot and showing clear signs of embarrassment.</p>
+<p>"Th-th-there, wh-what k-kind of R-Relationship do you have with o-our In-investor-nim?"</p>
+<p>"Huhu, we're close."</p>
+<p>Perhaps because Arisu had just done it once (?), she seemed much more relaxed. Sawayanagi Azuma quickly let out a Sigh and seemed to retreat one step for now.</p>
+<p>"I'll call the four who have completed their mission now, Investor-nim."</p>
+<p>"I'm curious about everyone."</p>
+<p>"Everyone really wants to see Investor-nim."</p>
+<p>Well, since I was also part of the Sawayanagi Azuma rescue Operation and saved them from Black Tech's demonic beast, it's natural that they would want to see me. Moreover, during the Sawayanagi Azuma rescue Operation, as I went wild after taking Medicine/Drug, it was naturally revealed that I had superpowers, so the Seiryu Military Company people even felt a slight Sense of Kinship with me.</p>
+<p>Whether they came as soon as Sawayanagi Azuma called or not, four people entered the CEO's Office in less than a minute.</p>
+<p>"Please introduce yourselves and greet me in Turn."</p>
+<p>At Sawayanagi Azuma's Words, a simple-looking man in his 20s with short, sport-style Hair and Brown Skin stepped forward. Although he didn't appear to have large Muscles, looking at his exposed Forearms and such, one could tell he had trained to a considerable Level.</p>
+<p>"I am Katayama Junichi (方山 純壱). Investor-nim!"</p>
+<p>Katayama Junichi, although he had no superpowers, had excellent basic Combat ability and outstanding dagger swordsmanship, so I remembered him being quite useful in Melee Combat. I shook Hands with Katayama Junichi and greeted him. His Gaze was indeed very goodwill.</p>
+<p>The second person to step forward was a woman, slightly taller than Sawayanagi Seari, a cute woman with a small Physique for an Adult. Along with Sawayanagi Seari, she was like the mascot Existence of Seiryu Military Company.</p>
+<p>I am Sawayanagi Mikiyo! Please take care of me!</p>
+<p>Sawayanagi Mikiyo, unlike her cute Face, had a bold Personality and was in charge of sniping within the team. Although she also had no superpowers, her Eyes were very good, allowing her to perform observation and sniping simultaneously, making her a sniper with considerably high Ability. Close-range and mid-range combat could also be done with the submachine gun she carried, so it could be said she possessed all-weather capabilities. This time too, I shook Hands and moved on.</p>
+<p>Next was a slightly slow, chubby man with shaggy Hair. He came out slowly even when it was his Turn, then greeted me.</p>
+<p>"Uh... I'm Sawayanagi Shigeru. Thank you for saving Azuma."</p>
+<p>Sawayanagi Shigeru was a unique Ability User, a so-called Speedster Ability User. He could move at incredible speed for a short period, but his Energy source was Fat, so he needed a large meal intake. The Speedster Ability was an Ability that could be used incredibly deceptively depending on how it was used, so it was a Character mainly favored by Masters.</p>
+<p>The last person to come out was a Caucasian Beautiful Woman with purple Hair, and she had a remarkably voluptuous Figure. Hmm, quite an amazing Figure. Not Yukiko-level, though.</p>
+<p>"Hello! Nice to meet you~! I'm Iyana Holden! Please take good care of me, handsome Honey!!"</p>
+<p>After greeting, she made jjok sounds on my cheek and forehead, giving me many kisses. When Arisu exclaimed, "What are you doing~!", only then did she stop. When a Pretty person showered me with kisses, it felt good.</p>
+<p>Iyana Holden was the last remaining Superhuman of Seiryutai, a Telepathy Ability User. She played the Role of an operator with her Telepathy Ability, which was quite an ambiguous Ability since there were also walkie-talkies, but because it was transmitted directly into the Mind, there was no risk of being detected by the Enemy due to sound, and information could be easily transmitted even in areas where electronic equipment couldn't be carried.</p>
+<p>In the game, despite her ambiguous Performance, she was quite popular precisely because of her unconventional Attire during combat. Because she fought wearing Clothes almost like bikini armor, she received the full support of male users.</p>
+<p>Also, when she became a high-Level telepathist, she could create a mental shield, so her defense wasn't that weak. But now it wasn't a combat Situation, but casual clothes. What a shame.</p>
+<p>"Oh....! Yankee Go Home!!"</p>
+<p>"You, you're a Yankee too!"</p>
+<p>As Iyana Holden, who had been staring at Arisu, shouted, Arisu got angry and yelled. Their Personalities seem to have a slight Compatibility/Affinity.... Although I only saw it for a moment, if Iyana Holden was Scissors, Arisu seemed to be the paper in a rock-paper-scissors relationship. Seeing this, Arisu seemed weak against people who do things at their own pace.</p>
+<p>As soon as the introductions of the four were finished, the rest of the Seiryutai rushed in as if they had been waiting, including Vice President Sawayanagi Sinya, the Steel-transformation Ability User Sawayanagi Tobe, the Goth Loli Sisters Kiyona Hori and Mari, and the cutest Sawayanagi Seari.</p>
+<p>"Investor-nim, please show your Face more often!"</p>
+<p>"We'll forget your Face!"</p>
+<p>"Hmm, since everyone wants to see you, please come often...."</p>
+<p>"Come often, Older Brother!"</p>
+<p>"Hmph, hmph! It's not because I wanted to see you!!"</p>
+<p>As expected, perhaps because they were comrades who had fought together, they welcomed me immensely. Since only I was being welcomed so much, Arisu, who was meeting them for the first time, seemed a little left out, so I introduced Arisu to everyone.</p>
+<p>"Everyone, say hello. This is my Cousin, Arisu Fitzgerald."</p>
+<p>Eight out of the ten Seiryutai members, perhaps because they were seeing her for the first time, simply greeted her with "Hello" and "Nice to meet you," but only Kiyona Mari and the Hori Sisters stared at Arisu as if they had discovered an incredible Treasure. And they shouted with a sound almost like a Scream.</p>
+<p>"Kyaaak!!! It's Arisu-ssi, the top Star of Milan this time!!"</p>
+<p>"What do I do! What do I do!"</p>
+<p>Ah, it seemed the two knew Arisu's True Identity (?). Kiyona Mari and the Hori Sisters eventually pushed me aside, and, calling her "eonni, eonni," were talking like extreme fans, asking for autographs and if they could take Photos.</p>
+<p>Arisu.... I didn't know you were a popular Star.</p>
+<p>Iyana Holden.</p>
+<p>Information: Telepathy Ability Users reduce the Area of their Clothes as much as possible because sensitive Sensation is important. I don't know why, but telepathists say that touch is also an important Condition for Telepathy.</p>
+<p>My Hands are always a shame ㅠㅠ</p>

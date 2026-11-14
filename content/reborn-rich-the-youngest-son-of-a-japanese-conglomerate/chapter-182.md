@@ -5,91 +5,71 @@ weight = 182
 chapter = 182
 +++
 
-<p>After filming all the alleyway scenes, we took a short break. The shoot started at ten, and after filming several scenes, it was now lunchtime.</p>
-<p>,You said earlier that I don't have to hold back with food, right?</p>
-<p>,Yes, but I think I eat quite a bit because I'm big.</p>
-<p>,It's good to eat a lot~! It'll probably be a lunchbox, so I'll tell them to bring you a lot so you can eat plenty.</p>
-<p>,Thank you.</p>
-<p>I was a bit hesitant to ask for a lot since it was an unfamiliar place, so I was relieved when Ha Ju-yoon said she would tell them. Ha Ju-yoon told her manager, Hwang Yoon-gi, to bring four lunchboxes, and Hwang Yoon-gi brought them over. If there are four, is it one for Ha Ju-yoon and three for me?</p>
-<p>When I received the lunchboxes, they were from a premium lunchbox franchise, the kind that costs ₩30,000-40,000. There were many side dishes, and the main courses were high-end, making it a substantial lunchbox. We set up the lunchboxes on a makeshift table in the waiting room and had lunch together.</p>
-<p>,By the way, Yong-tae, your acting is pretty good?</p>
-<p>,Oh, really? Thank you.</p>
-<p>To be honest, there weren't any particularly difficult scenes... but it feels good to be praised.</p>
-<p>,Yong-tae, have you ever thought about becoming a celebrity?</p>
-<p>,Huh?</p>
-<p>A celebrity? The reason she's praising my acting must be because she wants to recommend me to become a celebrity. But I have no intention of continuing to act at all. This music video is just a one-time experience that I'm doing because I made a promise on a whim; I have no intention of becoming a celebrity. If I become a celebrity, people's attention will be focused on me, which would be annoying....</p>
-<p>Besides, meeting women and beating up bad guys would probably be more difficult, and I don't think I'd make as much money as I do now.... It's better to just continue building my strength under the radar like this and then seize the throne of the Tira Group at the right time, sticking to my original goal.</p>
-<p>,Actually, I don't really want to be a celebrity. I'm satisfied with my current life.</p>
-<p>,Is that so? That's a shame. You have a good look, a good body, and your acting isn't bad either.</p>
-<p>Ha Ju-yoon didn't seem too disappointed. It didn't seem like she was serious; she just asked out of curiosity. We put the celebrity talk aside and finished lunch while talking about other things.</p>
-<p>Compared to me, who devoured three lunchboxes, Ha Ju-yoon only ate about half of hers and left the rest. It seemed like she had a small appetite to begin with. Or is she managing her weight?</p>
-<p>,Here are the scenes we'll be filming in the afternoon.</p>
-<p>,Yes.</p>
-<p>After the meal, the director handed me the script. I received the script and quickly read through it. A scene where I'm left alone at school after failing an exam and studying by myself, a scene where I'm tutored one-on-one by a teacher, a scene where we look at each other and act out emotions, and.... a kiss scene? There's a kiss scene?</p>
-<p>Han Yu-gyeong will probably freak out if she sees it.... No woman would be happy if her man filmed a kiss scene with her mother. Well, for me, kissing Ha Ju-yoon, a beautiful actress, is great.</p>
-<p>,Alright~! Let's get started with the after-school scene!</p>
-<p>At the director's words, I stopped thinking about the kiss scene and decided to focus on the filming that was right in front of me. The filming took place in the same classroom as before, but the lighting was changed to give it the feeling of a classroom with the sunset after school. I sat in the empty classroom, looked at the exam paper, crumpled it up, and grabbed my head. It was a scene of frustration over a low score.</p>
-<p>This level of acting was easy. I had worried about low grades many times, so I naturally became immersed in the scene. I sighed, recomposed myself, and took out a book when Ha Ju-yoon entered as the classroom door opened.</p>
-<p>,Oh my, what are you doing here instead of going home?</p>
-<p>,My grades aren't good.... I'm going to study a little more here.</p>
-<p>,Then, should the teacher take a look? What parts don't you understand?</p>
-<p>Ha Ju-yoon naturally sat next to me and lectured me on the parts I didn't understand, as if she were tutoring me. Ha Ju-yoon played the role of an English teacher, so she explained grammar, and she seemed to be good at English and taught well.</p>
-<p>As directed by the director, I sometimes nodded as if I understood and sometimes tilted my head, listening to Ha Ju-yoon's explanations. I also showed the image of a student admiring the teacher, blushing and looking at Ha Ju-yoon's face from time to time.</p>
-<p>Whether it was because I was immersed in the acting or because the scent of a mature woman kept tickling my nose, my face actually turned slightly red. Ha Ju-yoon saw my reddened face and smiled, but there was a happening where the director said that the smile was too sexy and asked to film it again. Ha Ju-yoon grumbled while looking at a hand mirror during the short break.</p>
-<p>,Tch, I'm just being pure...! Yong-tae, did you also feel that my smile was sexy?</p>
-<p>,Um.... It did feel a bit sexy.</p>
-<p>I changed the word appropriately when answering Ha Ju-yoon's question because I thought it would be a little rude to say it was too sexy.</p>
-<p>,Hoh ho ho! I am sexy, aren't I? Woo~♥</p>
-<p>Ha Ju-yoon seemed to be in a good mood at my words, laughing "hoh ho ho" and starting filming again. Fortunately, after that, the filming went smoothly without any hiccups. After finishing the one-on-one lecture scene and other minor scenes, the kiss scene, which I was half-expecting and half-worried about, finally arrived.</p>
-<p>The scene was about the main character, who had been accepted into the university he wanted, going to the teacher, giving her a bouquet of flowers, and kissing her. Ha Ju-yoon, who was about to kiss her daughter's boyfriend, was very calm, as if she wasn't nervous at all. Is it because she's a veteran actress? On the other hand, I felt like I was really going to confess to a teacher I had a crush on because I had been immersed in the acting all along.</p>
-<p>I took off my school uniform, put on the clothes prepared on set, and headed to the set with a bouquet of flowers. The set was like an apartment hallway, and I rang the doorbell in front of one of the doors. My heart was already pounding. The door opened, and Ha Ju-yoon, dressed in slightly casual clothes, looked at me with a surprised expression.</p>
-<p>To me, who was already immersed in the situation, Ha Ju-yoon's appearance looked very beautiful.</p>
-<p>,Here you go, Teacher.</p>
-<p>I smiled and gave her the bouquet, and Ha Ju-yoon happily received it. Then, I showed her the acceptance letter in my other hand.</p>
-<p>,I got accepted.</p>
-<p>,Oh, congratula... mmm!</p>
-<p>I kissed Ha Ju-yoon without even hearing all of her congratulatory words. The situation was supposed to be a pure kiss from a young boy and a kiss for broadcast, so there was no tongue or anything...! Wait, Ha Ju-yoon-ssi! Why are you using your tongue? Huh? Ha Ju-yoon used her tongue to kiss me, turning a scene that was supposed to be a forbidden but pure love into something like an erotic movie.</p>
-<p>,Cut! Why have you been doing this since earlier? Let's go for a pure image rather than a sexy one, okay?</p>
-<p>Of course, the director cut the scene, and we had no choice but to film the kiss scene again.</p>
-<p>,I'm sorry~. It's been so long since I kissed someone that my tongue went out to greet you without me even realizing it?</p>
-<p>,It's already happened, so there's nothing we can do.... Let's keep the tongue thing a secret from Yu-gyeong.</p>
-<p>,I think it's already too late?</p>
-<p>Ha Ju-yoon pointed to one spot, and when I looked, Han Yu-gyeong was staring at me and Ha Ju-yoon with bulging veins on her forehead. Um.... I'm going to get scolded, aren't I?</p>
-<p>After the kiss scene, we filmed a few more scenes, and the filming wrapped up. The singer's album was being released in four days, so they said they would go straight into editing without any wrap-up party. Even though AI editing technology has made things faster, some parts still required human touch, so it seemed like they were still busy even in this day and age.</p>
-<p>,I'm sorry~, Yu-gyeong-aang~.</p>
-<p>,I didn't know....</p>
-<p>,First of all, Mom, be quiet!</p>
-<p>Everyone got into Ha Ju-yoon's big van, and Ha Ju-yoon was apologizing to Han Yu-gyeong with aegyo, while I kept denying it, saying I didn't know. Han Yu-gyeong pressed her temples with both hands, as if she hadn't recovered from the shock of seeing her mother and boyfriend kissing on set.</p>
-<p>,Haa.... Mom, you should have told me about this beforehand.</p>
-<p>,It's acting, acting. Instead, Mom will buy you something delicious today. Let's make up~.</p>
-<p>,Aish! I'm not a child, why would I make up with food?</p>
-<p>Fortunately, I seemed to be out of the target, so I was watching their fight from a step back. Well, it's more like Han Yu-gyeong was getting angry and Ha Ju-yoon was trying to smooth things over with aegyo.</p>
-<p>,Sigh.... Okay. I'll let it go this time since it was filming.</p>
-<p>,Thank you~! What does our daughter want to eat? Should I buy you eel so Yong-tae can use his strength a bit? Yoon-gi-ya~! Head to that eel restaurant.</p>
-<p>,Aish! Mom, what are you saying again?</p>
-<p>In the end, it was fortunate that Han Yu-gyeong made up, ending the situation. But "eel so I can use my strength a bit"...! Do I look like I can't use my strength? I'm amazing even without eel. When I think about it, Sinoe Misano also bought me eel often, so is recommending eel a characteristic of middle-aged women?</p>
-<p>,It's not Yong-tae's fault, so I'll just let it go this time.</p>
-<p>,Okay. I'll eat eel today and gain strength instead.</p>
-<p>,Mom, shush~. Speak quietly.</p>
-<p>Han Yu-gyeong blushed at my playful words and playfully hit my arm. Han Yu-gyeong seemed to have made up, so we talked about this and that as we headed to the eel restaurant.</p>
-<p>,But what was the contractual issue?</p>
-<p>,They're just nitpicking at our contract, saying there's a problem. They're demanding damages. It hasn't been completely resolved yet, but I've left it to the staff.</p>
-<p>It was a contract issue. Oh, I think there was an event like this in the game too.... I feel like I remember something, but I can't quite recall. What was it.... It must not have been a big event if I can't remember it right away. I'll think about it while eating eel.</p>
-<p>We soon arrived at the eel restaurant and took our seats. Ha Ju-yoon told Hwang Yoon-seong to go home for the day, and Hwang Yoon-seong greeted us and left. Still, she seemed to care about him as his manager, as Ha Ju-yoon had him take some eel to go.</p>
-<p>,Eat as much as you want here, it's on your older sister.</p>
-<p>,Yes, I'll enjoy the meal, *nuna*.</p>
-<p>,You're calling me *nuna*?</p>
-<p>The atmosphere briefly turned cold at Han Yu-gyeong's question after hearing our conversation, but Ha Ju-yoon didn't seem flustered at all. Is it because she's an actress and good at ad-libbing, or is Ha Ju-yoon just bold herself? I'm not sure.</p>
-<p>,Do you want me to be called "mother" or "mother-in-law" in public? This Ha Ju-yoon? Look at us. The age difference doesn't seem that big, so *nuna* is perfect.</p>
-<p>,Haa.... Okay.</p>
-<p>Han Yu-gyeong took a few deep breaths as if trying to calm her anger, then nodded her head in agreement. And she grabbed the eel that was grilled on the iron plate and piled it onto my plate. Almost two-thirds of the eel that came out was piled high on my plate.</p>
-<p>,It seems like you really need to use your strength a bit to relieve my frustration today, Yong-tae.</p>
-<p>,I don't really need eel, but.... I'll enjoy the meal.</p>
-<p>Well, I can always use my strength. We stopped chatting and ate the grilled eel, and it was quite delicious, as Ha Ju-yoon had assured. It was grilled with charcoal and rice straw, so it had a lot of smoky flavor and the right amount of oil, making it delicious grilled eel. Han Yu-gyeong, who had been slightly uncomfortable, also widened her eyes and said it was delicious, eating well.</p>
-<p>Bbi bbi bbi♪</p>
-<p>Everyone was enjoying the meal when Han Yu-gyeong's phone rang. Han Yu-gyeong looked at the number, sighed, and answered the phone.</p>
-<p>,Yes. Are you saying you absolutely have to negotiate with me in person again?</p>
-<p>It seemed to be about the contract issue from earlier. Han Yu-gyeong frowned and made an annoyed expression, then stood up as if she had no choice.</p>
-<p>,I'll head out first. Yong-tae, finish eating and take a taxi to our house.</p>
-<p>,Oh my, are you leaving already?</p>
-<p>For some reason, Ha Ju-yoon's voice contained anticipation rather than regret.</p>
+<p>While Pyongyang was quite hot, Kraskino had perfect weather, right between spring and summer. It must be freezing in winter, but right now, it was just right. A quick search showed the average temperature in July was around 24 degrees Celsius, so it was slightly warm.</p>
+<p>Getting off the train, I booked a room in a hotel near the station. Even though it was called a hotel, it felt like a run-down 90s Russian building. Well, considering the city, I guess it couldn't be helped. It's not a major city, after all.</p>
+<p>,First, I need to find the location of the human trafficker....,</p>
+<p>Since ,Mega Corp's Youngest Son, was a 15-rated game, the protagonist obviously couldn't use a slave market. I only found out about the human trafficker in this city while looking at Alexandra Smirnova's character settings, so I only knew the city name and not the exact location.</p>
+<p>,Is the only way to go through the Black Market app after all?,</p>
+<p>Of course, since the Black Market's name literally means 'Dark Merchant' (暗商), it has to be connected to human trafficking. I might be able to get information from the Black Market app, but if I rescued Alexandra Smirnova, it would be easy for them to trace it back to me.</p>
+<p>Then I would automatically become an enemy of the Black Market, which would be a huge problem. I wouldn't be able to get items, and I'd have to deal with attacks from the Black Market, which has tremendous influence in the underworld. That would be a significant issue.</p>
+<p>,Ah!,</p>
+<p>Right, I just don't have to rescue her. Why did I even think about rescuing her? I have plenty of points; I can just buy her....</p>
+<p>I switched my plan from rescue to purchase and opened the Black Market app. I could get a lot of information from the Plus tier, but after selling the BS Group's AI file, I became a Diamond tier, the highest level, which added several features.</p>
+<p>One of them was the ability to ask Eve questions, like ChatGPT. It was expensive at 10,000 points per question, but Eve, the Black Market's AI, knew a lot about the underworld, so it was quite useful.</p>
+<p>Of course, this feature wasn't omnipotent and only pertained to the information the Black Market had gathered, so it couldn't know everything in the world. And EVE itself didn't disclose sensitive information, so it wasn't used much later on.</p>
+<p>I opened the Black Market app and tapped on the chat with Eve. I wanted to try out the new feature, even if it was a bit expensive.</p>
+<p>EVE: Ryuta-nim, hello! You're in Kraskino today? Are you enjoying your trip?</p>
+<p>Eve knew my location right away, probably because I agreed to location information when I installed the app. I shouldn't antagonize the Black Market until I'm firmly established. They know my location and everything.</p>
+<p>Ryuta: Yes. It's fun to see a different atmosphere after being in Pyongyang.</p>
+<p>EVE: I see! Since you're using the chat feature, you must be here to provide or purchase information.</p>
+<p>Oh, right. The chat feature with Eve also had a function to earn points by providing information. I remembered it after seeing Eve's message because it was a feature I barely used in the game.</p>
+<p>Ryuta: I want to purchase information.</p>
+<p>EVE: Ryuta-nim, feel free to ask anything you're curious about. I'll tell you as much as I know. Since this is your first time, your first question is free! But please be careful, as each piece of information will cost a minimum of 10,000 points from now on~!</p>
+<p>Oh! The first one is free? That didn't happen in the game. And seeing that the minimum for questions is 10,000 points, important information must be more expensive. In the game, it was just a flat 10,000 points, so it felt a bit different. Then, instead of asking about Kraskino, I want to ask about something that seems more expensive while it's free....</p>
+<p>Ryuta: Taira Foods and Kurotsukido are in conflict in Akita Prefecture. Why is Kurotsukido targeting Akita Prefecture?</p>
+<p>I didn't understand why Kurotsukido was constantly fighting with the Taira Group, which was vying for the top spot in Japan, so I asked Eve if there was something behind these attacks or what their purpose was.</p>
+<p>EVE: Kurotsukido decided to launch a full-scale invasion after hearing from someone that mithril was buried on the site of Taira Foods' 8th factory in Akita Prefecture. The value of mithril isn't small, so I don't think they'll give up easily!</p>
+<p>Ah, Kurotsukido knew about the existence of mithril. I also knew that mithril was buried in Akita Prefecture, but I didn't know the exact location. This question was quite helpful. Should I ask Nagumo Sian for that 8th factory site later?</p>
+<p>Ryuta: That was very useful information. Then, I'm curious about the next piece of information....</p>
+<p>EVE: Before you ask! If you want to know about Kraskino, it would be cheaper to ask an informant registered on the Black Market app than to use 10,000 points to ask me!</p>
+<p>Of course, I knew it was cheaper to use local informants, but I also wanted to try out the new chat feature with Eve. I satisfied my curiosity about the new feature with the free information I just received, so it seemed better to follow Eve's advice.</p>
+<p>Ryuta: I'll find an informant as Eve advised. Thank you for the information today!</p>
+<p>EVE: I'm glad the information I gave was helpful. Then, I'll end the chat now!</p>
+<p>-Chat feature has ended.</p>
+<p>After ending the chat with Eve, I immediately made an appointment to meet with an informant in Kraskino. I was supposed to meet them in front of the Kraskino station in five minutes, so I leisurely headed out.</p>
+<p>The hotel was close to the station, so even if I walked slowly, it would take only three minutes to arrive. I bought a drink at the convenience store in front of the hotel and went to the station.</p>
+<p>,Are you the one who requested the informant?,</p>
+<p>The informant was a Russian-Korean mixed-race man who spoke awkward Korean with a slight Russian accent. Since there was no one else in front of Kraskino station besides me, the informant seemed to recognize me right away.</p>
+<p>,Yes, I have a few questions to ask.,</p>
+<p>,I'll take questions. It's 50 points per question.,</p>
+<p>,I want to know the location of the human trafficker.,</p>
+<p>,Ah, it's 70 points including the guide. Okay?,</p>
+<p>Even if they told me where it was, I would have to wander around in an unfamiliar city, so I nodded at the man's words.</p>
+<p>,Follow me.,</p>
+<p>The man led the way, and I followed behind him. We gradually moved away from the city center. The human trafficking location was, as expected, in a shady back alley.</p>
+<p>Entering the building, it looked like an office. Russians and Russian-Koreans stood up and greeted me with looks that said, "Who the hell is this bastard?" I wasn't going to be intimidated by mere thugs from this backwater town, so we glared at each other and stood our ground.</p>
+<p>,What are you doing? He's a guest.,</p>
+<p>At the words of the informant who guided me, the burly men finally sat down. After I paid the informant 70 points, a chubby, slightly dark-skinned Korean man came out from what looked like the boss's office in the innermost part and greeted me. His appearance was incredibly fitting for a slave trader.</p>
+<p>,Oh~! Welcome, guest. I apologize if you were offended. We've had some minor disagreements with the guys in the next neighborhood lately.,</p>
+<p>,It's okay.,</p>
+<p>,I'm glad you're okay! May I ask what kind of 'merchandise' you're looking for?,</p>
+<p>What an incredibly slick guy.</p>
+<p>,I came here because I want to buy those with unique abilities. I heard rumors and came looking.,</p>
+<p>,Ah, we have a few. Most of them have ambiguous abilities, but there are occasionally people who look for those with such abilities.,</p>
+<p>Wasn't Alexandra the only one with abilities? Maybe everyone here with abilities was sold to the Jeil Group, and only Alexandra survived.</p>
+<p>,Follow me. Since Young-cheol said you're a member of the Black Market, we'll skip the separate procedures and guide you right away.,</p>
+<p>Following the slave trader's lead, I followed him into the boss's office and entered a side door in the corner. After passing through the side door, there were two more doors. The slave trader opened the right door.</p>
+<p>,Watch your head~!,</p>
+<p>Inside the right door was a staircase leading to a basement with a low ceiling, so I had to bend over to go down.</p>
+<p>,This side has the general merchandise. Most of them are people who were dragged here because of debt.,</p>
+<p>Several people sat in a small, shabby room in the basement with iron bars, their eyes vacant. The slave trader said many were dragged here because of debt, but there must be people who were kidnapped as well. I expected this scene, but it was quite unpleasant. I don't know if it's because of sympathy or just the morality I had before the possession, but I couldn't help but feel uncomfortable.</p>
+<p>But I can't cause a ruckus after coming all this way. I abandoned my sympathy and followed the slave trader with indifferent eyes. If I keep feeling this way, I can just liberate the people here later. Right now, I need to think about the purpose of my visit.</p>
+<p>The slave trader went down another level. It seemed like those with abilities were in a more secure place.</p>
+<p>,This is where we keep our troublemakers. You probably came here after hearing rumors about this one....,</p>
+<p>The slave trader said to me as he opened the door to the first room. As I expected, Alexandra Smirnova was standing in the first room. She was wearing a loose, white short-sleeved shirt that came down to her thighs, like a patient gown, and had beige hair. Her eyes were yellow, and she looked much smaller and younger than I remembered. Was it because she wasn't getting enough nutrition? Alexandra Smirnova quietly looked at me and the slave trader.</p>
+<p>,This kid is probably the 'electric eel' you heard rumors about. She's quite pretty, so she's been sold several times, but she always gets returned. She can't be used sexually because electricity flows through her body. Since she's been returned several times, I'll give her to you for 8,000 points.,</p>
+<p>The slave trader was surprisingly honest about Alexandra Smirnova's flaws(?). 8,000 points.... Roughly converted, that's about ten million won. It's amazing that I can buy the infamous mid-boss of ,Mega Corp's Youngest Son, for only ten million won....</p>
+<p>,I'm not just buying one, so give me a bit more of a discount.,</p>
+<p>I demanded a discount because I felt like I'd be taken advantage of if I didn't. I had a lot of money, but I didn't want to be a pushover.</p>
+<p>,Hmm, this already includes a discount.... Okay! Let's do this. Let's go through everything first, and I'll give you a percentage discount on the total amount.,</p>
+<p>Is he saying the discount rate will vary depending on how much I buy? I was planning to buy everything if there were many with decent abilities, so I wasn't worried about the discount rate.</p>

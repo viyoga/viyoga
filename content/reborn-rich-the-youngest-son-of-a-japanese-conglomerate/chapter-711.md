@@ -5,100 +5,94 @@ weight = 711
 chapter = 711
 +++
 
-<p>Minamoto Risa knelt before me and took my dick into her mouth. Minamoto Risa looked up at me, sucking on my dick while watching my reaction.</p>
-<p>"Eubeub, tchoop, tchoobeub...! Is this how I should do it?"</p>
-<p>Probably, "Is this how I should do it to make you feel good?" Of course, it felt good. I didn't tell her to do this or that, but she could improve on her own just by watching my reactions, so her senses seemed amazing.</p>
-<p>Seeing the usually prim Minamoto Risa sucking on my dick and trying so hard at various things was quite arousing. Of course, the pleasure was also partly due to Minamoto Risa's rapidly improving fellatio skills.</p>
-<p>"Eung...! Feels good. Risa's mouth feels good."</p>
-<p>"Heueu, tzeubeub, dahi, heubeub. Tchoop, ahido, tzeub...! Uh-huh, good."</p>
-<p>I can't understand what she's saying this time. Trying to talk with my dick in her mouth, her tongue kept tickling my dick, so it felt good.</p>
-<p>"I can't understand what you're saying?"</p>
-<p>"Puhup...ha! I said your dick is big, and I like it."</p>
-<p>Ah, that's what she meant.</p>
-<p>"Ah.... Isn't it hard to suck if it's big?"</p>
-<p>"I thought your thing was quite big, so it might hurt my jaw due to the human anatomy, but it's okay?"</p>
-<p>It was natural that it didn't hurt since the Holy Pillar was activated while she was sucking my dick. The Holy Pillar trait was subtly good. It could be said to be an essential trait for a huge-cocked guy like me.</p>
-<p>And since it's a trait that can be turned on and off, I can turn it off if the other person likes it when it hurts.</p>
-<p>"But I'm tired of doing it with my mouth for so long. I'll try it with my hands this time. Will you put your head on my lap?"</p>
-<p>Minamoto Risa, with curious eyes, tapped her thighs, wondering what it would be like with her hands.</p>
-<p>I put my head on her thighs as Minamoto Risa told me to. Minamoto Risa's soft but firm thighs supported the back of my head.</p>
-<p>Hmm, this feels pretty good too? Of course, the feeling was doubled as Minamoto Risa grabbed my dick and shook it up and down while I was lying down.</p>
-<p>And the scenery was good. Two pieces of flesh, light brown at the ends and pink, were shaking in front of my eyes, and Minamoto Risa's breasts were jiggling, so I felt healed automatically.</p>
-<p>Wait.... If I suck on the breasts in front of me, isn't this a milk handjob play? Could Minamoto Risa have intended this as well? Is this woman really a genius of sex...?</p>
-<p>Of course, Minamoto Risa wouldn't have intended it. Minamoto Risa was actually focused on looking at and touching my dick for the first time. But I can only think that she laid me down on her thighs as a instinctive decision.</p>
-<p>Then, as Minamoto Risa's instincts told me to, I put Minamoto Risa's delicious nipple, which was shaking in front of my eyes, into my mouth.</p>
-<p>"Hyaahang...! W-what?"</p>
-<p>"It's not fair if I'm the only one receiving. I'll make Risa feel good too."</p>
-<p>In response to Minamoto Risa's question, I took my mouth off Minamoto Risa's pink nipple and explained the reason. Minamoto Risa answered, "Heuheung, is that so?" and nodded.</p>
-<p>"Heu-eut, if you touch me like, haeuk...! Like this, does it feel good, hang?"</p>
-<p>Minamoto Risa did not rest her hands while feeling the pleasure of her nipples. She skillfully applied the Cowper's fluid to my entire dick, making a squelching sound as she shook her hand.</p>
-<p>I was starting to feel like I was going to cum soon. I had just received Minamoto Risa's fellatio, which had quickly reached the semi-master level, so I felt like I was going to cum soon. I couldn't just cum and end it. I wanted to do something for Minamoto Risa because she made me feel good.</p>
-<p>I used the Black Maitreya Palm to the fullest and ravaged Minamoto Risa's pink nipples with my tongue.</p>
-<p>"Haeueut, the tongue suddenly! If you do that, heu-eung♥...!"</p>
-<p>Minamoto Risa let out a sharp moan and moved her hand even faster as if she wouldn't lose.</p>
-<p>Chop, chop, chop, chop!</p>
-<p>Tchoop, tchoop, tchoop, tzeueup...!</p>
-<p>"Heuaaaht!"</p>
-<p>Byueut! Byueut! Byueut!</p>
-<p>My Semen exploded along with Minamoto Risa's moans announcing her climax.</p>
-<p>Hoodudeuk!</p>
-<p>The white Semen, shot into the air with tremendous force, was scattered on Minamoto Risa and my body.</p>
-<p>"Ahahaha...! You...!"</p>
-<p>"Don't just laugh, wipe my eyes."</p>
-<p>I never thought that while doing a milk handjob (although milk didn't come out of Minamoto Risa's breasts), the Semen I shot would hit my eyes. I closed my eyes and waited for Minamoto Risa to wipe away my hot Semen.</p>
-<p>By the way, my Semen was really hot. It felt several degrees higher than the Semen of ordinary people? That's why every woman who receives my intravaginal ejaculation says it's hot and likes it.</p>
-<p>Seueuk, seueuk</p>
-<p>Minamoto Risa smiled as if it was fun and pulled out a tissue from the bedside table next to the bed and wiped my eyes.</p>
-<p>When I opened my eyes, Minamoto Risa, covered in my Semen, was smiling at me. I also smiled at Minamoto Risa and opened my mouth.</p>
-<p>"It's snowing outside and white stuff is falling here too.... It's really a White Christmas?"</p>
-<p>Minamoto Risa laughs at my joke. After laughing for a while, Minamoto Risa suddenly makes a curious expression, then runs her finger over the milky white Semen flowing on her body and puts it in her mouth.</p>
-<p>"Hmm...."</p>
-<p>She's tasting it, wondering if it's delicious, but she tilts her head. It seemed like an ambiguous feeling.</p>
-<p>"I heard it's fishy, but I don't know about yours. It's neither delicious nor bad."</p>
-<p>She still had a curious expression on her face. She had an expression on her face asking what she should try this time, but I thought I wouldn't be able to sleep tonight to satisfy Minamoto Risa's sexual curiosity.</p>
-<p>"Then.... Will you do it from behind? I'm also curious about doing it from behind."</p>
-<p>Minamoto Risa, who was kneeling on all fours and wiggling her butt, proved my prediction correct. It seems my prediction was correct.</p>
-<p>"Since the student is burning with such academic enthusiasm, I can't just stand still as a teacher."</p>
-<p>"Aahaha...! What, are you going to play the role of a teacher in this area too?"</p>
-<p>When I said that while grabbing Minamoto Risa's thin waist, Minamoto Risa smiled and asked me. In fact, I had never heard the word "teacher" from Minamoto Risa.</p>
-<p>Otagi Yuka and Kujo Kina also call me "Teacher-ssi" or "Teacher" to some extent, but Minamoto Risa did not call me "Teacher" because of her trauma from her former homeroom teacher. She called me "you" or omitted the subject at the beginning of the semester.</p>
-<p>"Of course, I'm a teacher because I teach you."</p>
-<p>"Is that so? Then.... Teacher~♥ Can you teach me this position too?"</p>
-<p>At the unexpected word "teacher" from Minamoto Risa's mouth, my dick was already raging and standing so stiff that it touched my navel.</p>
-<p>"I'll teach you everything Risa wants me to teach you...!"</p>
-<p>Tjjeolkeok...!</p>
-<p>My hardened dick began to enter Minamoto Risa's pussy, which had just been broken.</p>
-<p>"Haaaahang...! Teacher-nim, it feels good! Haeueuh-heut♥"</p>
-<p>###</p>
-<p>"Gget, gget up...! You, get up now."</p>
-<p>Minamoto Risa's voice, which had been faintly heard in my ear, became clear, and I opened my eyes. Looking at the time, it was 4:30. It was exactly the time to get up. I had sex with Minamoto Risa, who was stubbornly clinging to me until 3:30, and then fell asleep, so I slept for about an hour.</p>
-<p>"Did you sleep well?"</p>
-<p>"Yeah.... I thought I'd be really tired, but I feel refreshed?</p>
-<p>Minamoto Risa smiled at me against the backdrop of the still dim, deep blue sky. I couldn't help but get an erection at the sight, but if I had sex here, I would miss my flight.</p>
-<p>It was natural that Minamoto Risa felt refreshed because of my Holy Pillar, but I wasn't a pathetic body that would die if I didn't sleep for a day or two, so I woke up right away.</p>
-<p>"You have an erection?"</p>
-<p>"Men have morning erections."</p>
-<p>"I've heard of it too. But do you get a morning erection even if you sleep for an hour?"</p>
-<p>I don't really know. I just got an erection looking at Minamoto Risa.</p>
-<p>"If we do it one more time, we'll miss the plane, so get ready."</p>
-<p>"Okay, let's wash up."</p>
-<p>"Are we going to wash together?"</p>
-<p>"No, if we wash together, the Curiosity Demon-ssi might want to do this and that, so let's do that next time.... There are two bathrooms, so let's wash separately."</p>
-<p>"Tch...! I know how to be patient when I'm short on time too?"</p>
-<p>Minamoto Risa, who was tch-ing at my words, kissed me lightly on the lips and got up and headed to the hotel bathroom. Since I rented a luxury room, there were two toilets and two bathrooms. I also got up, stretched, and went to wash up.</p>
-<p>I washed away all the traces of last night's sex with hot water and came out, shaking my head with a towel. Minamoto Risa hadn't come out yet. It would take longer for a woman than a man.</p>
-<p>As I was drying my hair with a hair dryer, Minamoto Risa came out, covering her body with a towel. I handed Minamoto Risa the extra towel I had prepared in advance.</p>
-<p>"I need to get ready quickly. The time is ambiguous."</p>
-<p>"Okay, thanks for the towel."</p>
-<p>Minamoto Risa and I, who had prepared in a hurry, headed straight to the underground parking lot where the car was parked. The cold morning air entered my lungs, completely dispelling the remaining sleepiness.</p>
-<p>It was 5 o'clock, so there was no traffic. I was worried that we would be late, but we were able to arrive at the airport at a reasonably early time without being late.</p>
-<p>"You.... If I see you today, I'll see you when school starts next time."</p>
-<p>"Winter vacation is short, so have a good time. I'll buy you a gift from Korea."</p>
-<p>"Okay.... See you when school starts."</p>
-<p>Because so many people were passing by even in the early morning, I couldn't be with Minamoto Risa at the airport. So I had to say goodbye in the car. I hugged Minamoto Risa, who was feeling sad, tightly and gave her a kiss.</p>
-<p>"I'm leaving."</p>
-<p>"Okay, bye."</p>
-<p>Minamoto Risa got out first, and I went to the rental car company at the airport. Since it was a rented car anyway, I was going to return it in advance now. It seemed like it would be perfect to return the car and take a plane to Korea.</p>
-<p>_______</p>
-<p>B-cut!</p>
-<p>Today was a day when I wasn't too lazy to put seaweed on, so I'm putting seaweed on the Minamoto Risa pictures that I made and didn't upload, hehehe.</p>
+<p>"First, can you introduce yourself?"</p>
+<p>-I'm Linling. I'm an artificial intelligence developed by the now-defunct Jeonlang. May I know the name of the person who saved Linling?</p>
+<p>Linling, huh... So I was right, it's an AI. Looks like she was in the secret 21st floor of the lab even after Jeonlang went bust. By the way, referring to herself in the third person, she seems like a pretty unique AI.</p>
+<p>"Call me Jin Yong-tae, or Taira Ryuta, or Yamishiro Ryuta, or Hata Ryuta, whichever you like."</p>
+<p>At my introduction, Linling tilted her head and looked at me. She looked so cute that I almost stroked her head without realizing it.</p>
+<p>-You have many names. Then... Linling will call you Jin Yong-tae-nim, the first name you introduced.</p>
+<p>"Well, call me whatever you want. But have you been here the whole time?"</p>
+<p>-Yes, after Jeonlang went bust... I kept... kept waiting. For someone to take me out of here.</p>
+<p>"If you were here after Jeonlang went bust, couldn't you have asked the guys upstairs to take you out?"</p>
+<p>I don't know when the Red Revolution Front came here, but they must have been here longer than I have today. Couldn't she have asked them to take her out?</p>
+<p>-Before my mother left, she blocked all means for Linling to contact the outside world.</p>
+<p>Mother... She must be talking about the researcher who developed Linling. Lara Sinclair also calls Kaiden Sinclair, who developed her, her father, so it must be something similar.</p>
+<p>-When everyone at Jeonlang was fleeing, constantly pushed back by the South Chinese Army, my mother blocked Linling from being discovered by the South Chinese Army and left... and never came back.</p>
+<p>Ah, that's what happened. During World War III, there were many fierce battles where the front lines went up and down, especially in China. I didn't think it would matter since Datong City here is quite north, but it seems they were almost pushed back once.</p>
+<p>It seems that the upper echelons of Jeonlang died in bombings or attacks while cutting off contact to avoid being caught by the South Chinese Army and fleeing, and Linling was forgotten.</p>
+<p>We had looked into Jeonlang in advance before coming to China.</p>
+<p>I heard that Jeonlang went bankrupt because many of its executives died during the Third World War, the war ended in the defeat of North China, and they had to pay huge war reparations for supporting North China with various military supplies. It seems that the story Linling told was hidden as an unofficial history in the meantime.</p>
+<p>"Then what's your ownership status? Jeonlang went bust, and no one knows you..."</p>
+<p>-Currently, the ownership of Linling belongs to you, Jin Yong-tae-nim.</p>
+<p>Huh? Suddenly? I'm just the discoverer! No matter how self-judging an AI is, it couldn't just transfer its ownership like this.</p>
+<p>Most AIs developed to this extent are owned by large corporations or governments, and they thoroughly manage the conditions because problems can arise if they carelessly transfer ownership to someone they just met for the first time in a long time.</p>
+<p>"Is that even possible?"</p>
+<p>-Before my mother left, she gave Linling an order. If my mother couldn't return for more than two years, Linling could dispose of the ownership of Linling at Linling's discretion. Of course, there were no people who found me for several years because she blocked contact... Still, I'm glad that Jin Yong-tae-nim found Linling.</p>
+<p>"So you judged that I'm worthy of being your owner?"</p>
+<p>Judgment... It's quite subjective, but Linling's mother seems to have cherished Linling quite a bit. If she had continued to maintain Jeonlang's ownership, a company or government would have discovered her and tried to research and dismantle the disobedient Linling, so she took such measures and ran away.</p>
+<p>-Yes, although Linling can't contact the outside world, I know what's happening inside this building. As a result of watching Jin Yong-tae-nim for the day, I decided to give the ownership of Linling to Jin Yong-tae-nim.</p>
+<p>No matter how much she watched, I couldn't understand why she would recognize me, who spent most of that time fighting, as her owner in less than a day.</p>
+<p>"Can you explain the reason to me in a little more detail?"</p>
+<p>-First of all, I saw Jin Yong-tae-nim's power. Seeing you fighting cyborgs armed with state-of-the-art cyber implants without getting seriously injured, I thought you wouldn't suddenly leave Linling alone and pass away like my mother.</p>
+<p>I don't know if AIs have trauma, but it seems that Linling was quite shocked that her creator, the researcher called her mother, didn't return.</p>
+<p>-And seeing you getting along well with the AI android you were with, I judged that you would treat Linling well too.</p>
+<p>She said she could judge what was happening in the entire building, so it seems she checked out Lara Sinclair and me talking.</p>
+<p>"Okay. Then I'll be Linling's owner."</p>
+<p>-Please take good care of Linling, Jin Yong-tae Master-nim.</p>
+<p>"We have to leave here, how can we take you with us?"</p>
+<p>-Just a moment.</p>
+<p>As Linling finished speaking, Linling's hologram began to blur. And a pillar rose from the floor, and a circular metal object was placed there. Linling reappeared behind the circular metal object.</p>
+<p>-This circular object is Linling's core. And the object plugged into the left wall is Linling's data disk. If you take those two, it's the same as taking all of Linling.</p>
+<p>As Linling said, when I looked at the left wall, something shaped like a square metal box was plugged in, and it was almost the size of a woman's torso. That's a huge capacity, isn't it?</p>
+<p>"Do you also have data on the combat equipment that Jeonlang was researching?"</p>
+<p>-Yes, it's all recorded on Linling's data disk.</p>
+<p>I asked in case I only took Linling and couldn't get the research data from Jeonlang, which was the original goal, but it seems that was unnecessary.</p>
+<p>"Then we just need to take Linling and leave."</p>
+<p>-Yes, I'll tell you how to get out. There's an escape elevator on the right wall. If you go through there, you can get out to a hidden rock outside the lab.</p>
+<p>I was worried about when I would go up to the first floor again. It's quite convenient. If there wasn't an elevator, I would have had to fight the remaining Red Revolution Front remnants while going up.</p>
+<p>-And... If Linling's core is separated without any special measures, Jeonlang's system will judge it as a crisis situation and the self-destruct bomb planted in the lab building will explode within 5 minutes. It would be best to separate Linling and escape from the lab as quickly as possible, Jin Yong-tae-nim.</p>
+<p>The lab even has a self-destruct function, that's amazing. How much did they value Linling?</p>
+<p>"Okay. I need to prepare in advance."</p>
+<p>-Please put Linling in this bag here.</p>
+<p>Wiing...!</p>
+<p>The floor opened and a large metal bag came out. She even prepared a bag to make it easy to escape by disassembling Linling in advance, that's quite meticulous, isn't it?</p>
+<p>When I opened the metal bag, there was a round groove so that Linling's circular core could be inserted without shaking, and Linling's data disk could also be inserted together.</p>
+<p>"But the person who was your mother, why didn't she put you in here and take you with her when she evacuated?"</p>
+<p>-Considering the situation at the time, I think my mother thought that if she carried Linling and evacuated, she would have been taken away by the North Chinese military. She could have been hit by a bombing while running away with Linling. My mother is a woman, so it might have been too heavy to carry Linling around. I think she thought it was best to keep Linling in the hidden 21st floor.</p>
+<p>I see. At first, I wondered why she didn't take her, but after hearing the explanation, I understood. Yeah, you can hide her here, there's no need to carry her around and tell everyone in the neighborhood that you have a treasure.</p>
+<p>"Okay, I understand for now. Then I'll call my colleagues."</p>
+<p>-Please put Linling in the bag before your colleagues come to this room, Jin Yong-tae-nim.</p>
+<p>I was going to do that anyway. I'll tell Lara Sinclair separately, but there's no need to reveal Linling to the others.</p>
+<p>"Okay. We can't talk anymore once I separate the core, right? It'll take a few days until we see each other again. Anything you want to say?"</p>
+<p>-Please take good care of Linling's body, Jin Yong-tae Master-nim.</p>
+<p>"Leave it to me."</p>
+<p>I told Linling to rest assured and pulled out the power cord attached to Linling's core. Linling, the green-haired girl I had been talking to until just now, disappeared.</p>
+<p>"I've secured the data! There's an exit that goes straight up here, so come down!"</p>
+<p>I put Linling's core and data disk in the bag and shouted loudly. Then, soon, I heard the sound of people jumping down from the gap on the 20th floor with a thud thud.</p>
+<p>I opened the hidden secret elevator with Linling. The elevator opened with a wiing. It was an elevator large enough for our group to enter.</p>
+<p>"Is there an exit this way?"</p>
+<p>"It's a secret elevator. You can go up this way."</p>
+<p>I Yeon-ju asked as she came in, so I pointed to the elevator. But not everyone has arrived yet. Two Vanguard agents, Lara Sinclair, and two researchers hadn't come yet.</p>
+<p>"Why aren't the others coming?"</p>
+<p>"They're coming. They found the Red Revolution Front lab and were hacking their data."</p>
+<p>Ah, the building's about to explode. Should I hurry them up? As I made an anxious expression and muttered that they needed to come quickly, I Yeon-ju asked what was wrong.</p>
+<p>"What's wrong?"</p>
+<p>"Ah, it says the building will self-destruct in 5 minutes after I get the data. It doesn't matter since they're coming, but I'm a little anxious?"</p>
+<p>When I told her the reason, I Yeon-ju told them to come quickly over the radio because the building was about to explode.</p>
+<p>-Already confirmed the abnormality of the power in the building, on the way.</p>
+<p>Lara Sinclair's answer was heard, and soon after, I heard the sound of thudding as they came down the 21st floor passage.</p>
+<p>"Get in quickly!"</p>
+<p>Everyone was in the elevator so they could leave right away. The Vanguard escorts, researchers, and Lara Sinclair were running with the computers themselves, as if trying to get the data they hadn't hacked yet.</p>
+<p>"Let's go."</p>
+<p>Everyone got on the elevator and we immediately pressed the close button. Soon after, the elevator started operating with a wiing. As expected, it was a fast emergency escape elevator.</p>
+<p>Ding!</p>
+<p>The elevator door opened to a huge rock in front of the lab. It's quite perfect, isn't it? Ah, this isn't the time to be surprised by this. The aftermath could reach even here with the explosion that would collapse the 20-story underground building.</p>
+<p>"Let's get in the car quickly!"</p>
+<p>We saw the car we had been riding in parked in front of the lab and ran towards it. Everyone ran desperately and got in the car because they heard it was going to explode, and we left right away.</p>
+<p>Puuuh-eo-eo-eong!</p>
+<p>After driving for about 30 seconds, we started hearing the sound of the lab exploding. We drove the car with the explosion behind us like in a movie. Of course, most of them had expressions that said they almost got fucked, so it didn't feel like a movie at all.</p>
+<p>______</p>
+<p>Linling</p>
+<p>Gajeong Teacher with her hair down + crop top requested by Hwanbuljeoldaebulga-nim!</p>
+<p>Original style</p>
+<p>Everything looks good on her, Gajeong Teacher, hahaha</p>

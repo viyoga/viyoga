@@ -5,44 +5,77 @@ weight = 394
 chapter = 394
 +++
 
-<p>Talking with Urabe alone right now would be too conspicuous to the Female Students, so I first told Urabe Konoka 'just a moment' and gave her a wink. Urabe Konoka also nodded as if she understood and sat back down on the chair in the Beach House.</p>
-<p>"Ryuta-jji! Are you really a Teacher? Kina-ppi is a famous monster in our school, you know." If Kujo Kina had heard it, she would have said 'Who's a monster?!' but she was Faint, so she couldn't hear Seizawa Shii's Words. Seeing everyone agree with 'That's right, that's right,' it seemed Kujo Kina reigned as an object of Fear. After all, she had sent 30 people to the Hospital, so the exaggerated rumors unique to a girls' school must have made Kujo Kina an even more unapproachable opponent.</p>
-<p>"I knew Teacher-nim would win~!" Konoe Akina said, with a slight Blush blooming on her Face. Well, Konoe Akina knew my Skill to some extent, so she could probably predict this Match.</p>
-<p>"Well, you did well." Minamoto Risa didn't look at me, but gave a thumbs-up. I didn't know what she meant by 'well done,' but it seemed Minamoto Risa's preconceptions about me were slowly crumbling.</p>
-<p>After being surrounded by the Female Students for a while, Kujo Kina regained consciousness and was finally released. This was because Minamoto Risa had announced the next schedule.</p>
-<p>"Now it's free Time until Evening Meal. You can go back to the Villa and rest, or continue playing in the Sea." At Minamoto Risa's Words, most decided to rest at the Villa. They had been playing in the Water since Morning, eaten Lunch, and watched my and Kujo Kina's nail-biting sparring, so they must be tired. I was also slightly mentally exhausted, and since most of them were delicate Female Students, except for a few, they must be incredibly tired by now.</p>
-<p>Arriving at the Villa and being shown to my Room, it was quite spacious. Still, it seemed they had given me a rather luxurious Room because I was the Class Teacher. The Luggage I had handed over to the employee at the dock had also been properly moved.</p>
-<p>"Hmm...!" I picked up my phone and contacted Urabe Konoka, asking her to come to my Room. I was curious about what Urabe Konoka had felt. Since I didn't have the Ability to Detect things like dibeopeu or curses, if I asked Urabe Konoka, who was presumed to have such Abilities, I would know the Truth.</p>
-<p>Urabe Konoka came to my Room quickly, as if she had been preparing in advance. She had already changed her Clothes, wearing comfortable everyday Clothes instead of a Swimsuit.</p>
-<p>"How are your Rooms?" "It's a similar Size to Teacher-nim's Room, but we decided to use it with three people each." Urabe Konoka looked around my Room at my question, then answered. The Villa was quite spacious, so individual Rooms would be possible, but chatting at night is also a kind of Travel romance, so it seemed they had assigned three people per Room.</p>
-<p>Since Uenozono Karen was absent and there were 12 people, it seemed they were using four Rooms with three people each. This time, unlike at the department store, the composition was a little different, perhaps assigned according to friendships. Of course, there was a Room made up of the remaining Kids who couldn't be affiliated with any group, but I thought it wasn't bad, as they could become friends this way too.</p>
-<p>"I'm in the same Room as Sakagami-yang and Naruse-yang." It seemed Urabe Konoka's Room was the Room for the remaining Children who didn't have close friends. The Masked Woman Sakagami Rena had no close friends, and Naruse Shiyo also often skipped school, so she was closer to the Infirmary Teacher Kijimoto Jurie than to the Students. Similarly, Urabe Konoka also had no friends, as she had no Fate before transferring as a transfer Student.</p>
-<p>Hmm, I thought Oofuchi Erika would be in this Room instead of Naruse Shiyo. But I heard she was in the same Room as Shido Tsubaki. It seemed Shido Tsubaki would hear the Story about the VR Dive that Oofuchi Erika and I had discussed in the helicopter. As a former Newspaper Club President, a VR diver would be good to use as an informant, so she must be trying to get close to Oofuchi Erika.</p>
-<p>That's enough talk about Rooms, now I intended to discuss Kujo Kina's Story.</p>
-<p>"Now, tell me what you felt from Kujo Kina." Actually, at the start of the fight, I didn't notice any unusual expression at all. But gradually, I began to strongly feel the aura of the curse, and before I knew it, it had engulfed Kujo-yang's entire body. After that, Kujo-yang started to go on a rampage.</p>
-<p>Hmm, a curse.... As expected, it wasn't a Trait, but a Dibeopeu. Since I still had uses left for the Ruins' Glasses, I could check what kind of curse it was. Should I call her and check?</p>
-<p>"There's no need to drag this kind of Matter out." As Urabe Konoka said, if it was a curse, the berserk state would gradually worsen. Before she knew it, the influence of the berserk state would affect her Personality, and if the Madness exploded like when she received Discipline, it seemed it could even cause casualties.</p>
-<p>Then, of course, it would affect my Mission, so it would be better to resolve it in advance. I contacted Kujo Kina and had her come to my Room.</p>
-<p>"Teacher-nim~! Wow! I was pleasantly defeated, you know. To Faint without any wounds like this, you went easy on me in the sparring, didn't you?" Kujo Kina spoke heartily, opened the door, and entered. She flinched slightly upon seeing Urabe Konoka in the Room, but soon sat down on the Opposite Side of the Table where I was sitting. Since I had already put on the Ruins' Glasses, I immediately looked at Kujo Kina.</p>
-<p>Kujo Kina Lv06 berserk curse ya seal</p>
-<p>Power:7 Agility:5 Stamina:7 Resistance:4 Recovery:4 Sensitive Nerves:6 Appearance:14</p>
-<p>Intelligence:4 Knowledge:3 Concentration:2 Will:5 Creativity:7 Charm/Allure:12 Judgment:6</p>
-<p>Luck:9</p>
-<p>◆Kujo Kina Style Mixed Martial Arts Lv8[Special Skill]: A mixed martial art that Kujo Kina learned herself by combining various martial arts. Not yet complete.</p>
-<p>◆Body Training Lv10[General Skill]: When performing Body Training, it slightly increases the Probability of related Body Stats below 10 rising.</p>
-<p>◆Kujo Family Traditional Cooking Skill Lv05[Rare Skill]: Can cook various dishes of the Kujo Family, passed down through generations.</p>
-<p>◆Wild Sensation[Narrative Trait]: Sensitive Nerves and Luck Stats increase by 2, and there is a Probability of sensing approaching Danger. Additionally, Evasion Rate and Accuracy Rate increase, and she becomes skilled at utilizing terrain in battle.</p>
-<p>◆Genius of Fist Technique[Growth-type Narrative Trait]: Can easily learn Fist Technique. Depending on Effort, the Trait can change to Master of Fist Technique/Seongin/Choin. The growth rate of other Skills excluding Fist Technique decreases by 15 percent.</p>
-<p>◆Wild Body[Narrative Trait]: Power and Agility Stats increase by 1, and their Limit also increases by 1. The efficiency of Power and Agility increases, and she acquires faint wound Regeneration. Surprisingly, her Traits were well-developed. Although her Level was still low, all her Traits were Narrative Traits, and 'Genius of Fist Technique' was a growth type, so it could rise further. She'd be good as an evasion-type critical hit Fist Technique practitioner, mainly investing in Agility, Sensitive Nerves, and Concentration Stats, wouldn't she? Ah, rather than this, I should focus on the Dibeopeu under that name right now.</p>
-<p>As I focused my mind on the Dibeopeu window, a detailed Explanation appeared in a translucent window.</p>
-<p>◇Dibeopeu/Curse - Mumatsuan'ya (無末暗夜) Berserk Seal (狂爆印): A martial arts technique of Mumatsuan'ya. Can apply a berserk curse mark on the opponent. └Berserk Stigma: Curse, periodically grants the Opponent a Berserk Status effect. During battle, the activation rate increases by 150 percent. Mumatsuan'ya.... I've heard that somewhere, but where? As I thought about Mumatsuan'ya, an Explanation of Mumatsuan'ya appeared before my Eyes again.</p>
-<p>◆Mumatsuan'ya (無末暗夜) [Legend+ Fist Technique]: A fist technique created by Takakushi Gengo (高草木 玄悟) by combining Shinkaiyatsude (深海八手) and Tetsue Shinto-ryu (鐵重 神道流). It utilizes an unknown power called the Abyss, but has the side effect of mental distortion.</p>
-<p>Ah! It was the name of Takakushi Gengo's Fist Technique. He had stolen and mastered Shinkaiyatsude, which my Sabu Fujigasaki Rinka had warned me about, and formed a martial arts group called An'yaji (暗夜寺). I had forgotten about it because I was busy preparing to come to St. Francisco Girls' Academy right after receiving the warning about Takakushi Gengo from my Sabu. I didn’t expect to get caught up in this kind of situation.</p>
-<p>But why does Kujo Kina have traces of Mumatsuan'ya? I don't know the connection with Kujo Kina, but thinking about it, since Mumatsuan'ya is also a Fist Technique that deals with the Abyss, it seemed natural that Urabe Konoka, a Shrine Maiden related to Simyeonui ttal, would recognize it.</p>
-<p>"Ahahaha...! Teacher-nim, I know I'm alluring, but why are you staring so intently?" As I kept staring intently, looking at the Stats window, Kujo Kina, unable to bear it any longer, blushed slightly and tried to lighten the Atmosphere with a Playful Jest.</p>
-<p>"Kujo, haven't you been unable to control your Fading Reason recently? Perhaps the Incident that got you suspended and this sparring Match are related, you know." "Was it that obvious in the sparring just now?" At my Words, Kujo Kina asked back without much surprise, as if she had somewhat guessed. Indeed, she seemed to be aware of it herself. I shook my Head and continued to speak.</p>
-<p>"It wasn't that obvious. Only I, who directly faced you, and Urabe here, would have noticed." Saionji Diana and Otagi Yuka would have noticed too, but there was no need to say it in a way that implied many people knew she had many strange things about her.</p>
-<p>"You know what kind of Family the Urabe Family is, right?" "Yeah, they're a famous Shrine Family." At my question, Kujo Kina nodded her Head and answered.</p>
-<p>"Urabe seems to have felt a strange Aura from you. It's probably curse-related, do you have any idea where it might have come from?" If it were a Layperson, many would scoff at the mention of a curse, but a Scion of a prestigious Family, who knows more about the hidden side of the World, would know that curses exist. Indeed, at my Words, Kujo Kina shook her Head with a slightly serious Expression and smiled.</p>
-<p>"Fortunate. Because it's a curse.... I thought I was going Crazy." To be Fortunate that it's a curse. Indeed, a curse that can be removed might be better than going Crazy. With a slight hint of Tears in her Eyes, it seemed she had been worrying a great deal by herself.</p>
-<p>"Right. I don't know much about Curse Removal, so. Talk to Urabe here. Since we don't even know who cast the curse, talk to your Family and investigate." "Thank you, Teacher-nim. I'll repay this Favor someday." The Kujo Family is a Family that ranks around 3rd or 4th in the business hierarchy after Taira and Minamoto, so if I put them in Debt, it would eventually return as a great profit. Of course, I didn't interfere in this Matter because of the Reward, but receiving a Reward is good. There was no need to foolishly refuse when they offered a Reward.</p>
+<p>"Ah, I haven't allocated my stats yet, what should I put them into?"</p>
+<p>"Huh? Stats?"</p>
+<p>Because I had leveled up and only selected a trait without allocating my stats, I asked Han Yu-gyeong-ssi. Han Yu-gyeong-ssi listened to my stats for a moment and told me to put them into Strength and Stamina. Her face flushed as if she was having some lewd thoughts, but since I was gradually getting to the point where I needed to allocate to Strength and Stamina anyway after allocating to other stats, I put them into Strength and Stamina as Han Yu-gyeong-ssi said.</p>
+<p>Ah, Strength and Stamina reminded me of something I had forgotten.</p>
+<p>"Speaking of Strength and Stamina, do you remember the Grizzly Totem I gave you as a gift when I went on a trip to America before? Are you taking good care of it?"</p>
+<p>Han Yu-gyeong-ssi's weakness was her mediocre physical abilities, so in order to overcome that weakness, I gave her the Grizzly Totem, an item I obtained in America, as a gift, but it didn't seem to be having any effect yet.</p>
+<p>"Even though I wipe it down and cherish it every day as Yong-tae-ssi said, there's no reaction?"</p>
+<p>The way to gain abilities from the Grizzly Totem was to clean and care for the dirty totem, and if you were recognized by the bear spirit in the totem, your Strength and Stamina stats would increase dramatically, which you could usually obtain by caring for it for about a week. I remember it being almost over two months, but still no news... Did I give her the wrong item?</p>
+<p>"I carry it around with me every day, you know?"</p>
+<p>Han Yu-gyeong-ssi brings the backpack she carries around every day and takes out a bear statue about 40 centimeters tall from inside. It was definitely clean, as if Han Yu-gyeong-ssi had taken good care of it, and I couldn't see any old stains like when I bought it.</p>
+<p>I was grateful that Han Yu-gyeong-ssi didn't doubt my words at all, carrying it around and cherishing it because I told her to take good care of it. Usually, people wouldn't seriously listen to the words that you can gain abilities if you wipe this statue well.</p>
+<p>I stared intently at the Grizzly Totem with the glasses from the ruins on. I had to check why the totem wasn't giving Han Yu-gyeong-ssi its abilities. Since it's an item I got with some effort, I have to fix it if there's a defect, so I need to check what's wrong first.</p>
+<p>◆Grizzly Totem [Epic Totem]</p>
+<p>An Indian shaman bound a bear spirit to a bear statue. If you are recognized by the bear spirit, you can gain the bear's Strength and Stamina.</p>
+<p>It wants to become a summoned beast by making a contract with Han Yu-gyeong-ssi, the current owner of the totem.</p>
+<p>Uh...? This is the first time I've seen this? The Grizzly Totem can also become a summoned beast? Is it because Han Yu-gyeong-ssi takes such good care of it?</p>
+<p>It seemed that the reason why the Grizzly Totem wasn't giving the bear's Strength and Stamina was because it wanted to become Han Yu-gyeong-ssi's summoned beast. Once it gives its abilities, the connection with Han Yu-gyeong-ssi will be cut off.</p>
+<p>There were several questions, but I conveyed the Grizzly Totem's will (?) to Han Yu-gyeong-ssi.</p>
+<p>"Really? You want to play with Nero and White Bear?"</p>
+<p>As Han Yu-gyeong-ssi gently stroked the Grizzly Totem, the Grizzly Totem trembled. It looked as if it was answering Han Yu-gyeong-ssi's question with a yes.</p>
+<p>I think it was probably because Han Yu-gyeong-ssi's hidden stat, Affinity, was high. Both Nero, the Shadow Panther, and White Bear, the Sacred White Dog, were not ordinary beast summoned beasts but felt like spirits, so it seemed that her Affinity had increased while hanging out with them. So, the bear spirit bound to the Grizzly Totem must want to form a master-servant relationship with Han Yu-gyeong-ssi.</p>
+<p>"Will you make a contract with me?"</p>
+<p>Han Yu-gyeong-ssi's contract offer was the final blow. The totem, which had been trembling at Han Yu-gyeong-ssi's words, began to crack, and light was emanating from the cracks.</p>
+<p>The light from the cracks in the totem grew larger and larger, and at some point, the light burst out, and the totem was destroyed as if it had exploded. What appeared from within was a small brown baby bear.</p>
+<p>"Uwoong...."</p>
+<p>"Kyaa! How cute...!"</p>
+<p>Han Yu-gyeong-ssi hugged the baby bear tightly, and Nero and White Bear, who had approached, were looking at their new companion. I stroked Nero and White Bear and looked at the baby bear.</p>
+<p>◆Grizzly Totem Name: _ Age:?? Gender: _</p>
+<p>Currently, it is a nearly extinct North American spirit, with the form of a bear. The current owner is Han Yu-gyeong-ssi.</p>
+<p>Han Yu-gyeong-ssi hasn't given it a name yet, so it doesn't have a name, and its gender is neuter because it's a spirit. It's definitely cute because it's a baby bear.</p>
+<p>"The name is.... Okay! Let's make it Teddy."</p>
+<p>Teddy... I think she took it from Teddy Bear. The black panther is Nero, the white puppy is White Bear, and the grizzly bear is Teddy, Han Yu-gyeong-ssi's naming sense was a bit disastrous. It's not like she's giving them completely weird names, but it feels too, too common?</p>
+<p>"Kku-eong."</p>
+<p>"Okay, okay, I'll give you food."</p>
+<p>Han Yu-gyeong-ssi held Teddy and took Nero and White Bear out of the room. And she pours feed into a large bowl. Nero and White Bear yielded to the new newbie as if telling him to eat first. Teddy looked at them and then ate the feed, *chyap chyap*, making noises.</p>
+<p>Han Yu-gyeong-ssi and I smiled contentedly as we watched the three summoned beasts eating. For reference, I bought some stock in that feed company that the three are diligently eating. If they can make feed that even spirit summoned beasts enjoy, I thought it was worth buying stock in.</p>
+<p>"Then shall we see Teddy's abilities?"</p>
+<p>Han Yu-gyeong-ssi said, stroking Teddy after he finished eating. As expected of a born manager, it seemed like she was thinking about finding out the abilities of her summoned beasts first.</p>
+<p>After some experiments, Teddy lost the ability to give permanent Strength and Stamina to those who recognized him, but instead gained the aura ability to increase Strength and Stamina to allies around him.</p>
+<p>If you keep him next to you, you can continue to receive the aura effect, but from the owner's point of view, it's not as good as a permanent stat increase, but if you think about giving abilities to all allies, it was a good ability as Han Yu-gyeong-ssi's summoned beasts increased. Rather, it could be said to be much better if you look at the future.</p>
+<p>Teddy seemed to think of me as a companion too, so the aura effect was being given to me as well. This guy has good sense. He even recognizes his owner's boyfriend. For reference, another ability is that he can adjust his size similarly to White Bear, and like any spirit summoned beast, he is free to summon and unsummon.</p>
+<p>Teddy, White Bear, and Nero played around for a while, then began to fall asleep one by one, exhausted. We watched them with smiles like parents, then looked at each other.</p>
+<p>"Since the kids are all asleep.... Shall we do what we were doing? I have something else prepared besides what Eve gave me."</p>
+<p>She prepared a costume for me on her birthday? I'm a little touched? On top of that, the words 'since the kids are all asleep' made me feel like a newlywed couple, so I was quite excited.</p>
+<p>Han Yu-gyeong-ssi went into the room and fiddled around, and when I heard her say to come in, I went in and saw Han Yu-gyeong-ssi waiting for me, wearing a tight gray dress that was commonly called the Dongtan Missus style before possession.</p>
+<p>"This is...?"</p>
+<p>"How is it?"</p>
+<p>"You're so sexy, Yu-gyeong-a...."</p>
+<p>When I praised her with a slightly dazed expression, Han Yu-gyeong-ssi smiled shyly. But Ha Ju-yoon-ssi seems to have worn this too. Don't tell me Ha Ju-yoon-ssi recommended it to Han Yu-gyeong-ssi?</p>
+<p>It had been quite a while since I chose Han Yu-gyeong-ssi's trait and Teddy was suddenly contracted, so it was 4 AM now. But we forgot our fatigue and approached each other and hugged.</p>
+<p>###</p>
+<p>I took a vacation until Monday and decided to return to Japan on a night flight, so I spent Monday with Han Yu-gyeong-ssi, constantly overlapping our bodies. Thanks to my newly acquired Sacred Pillar trait, Han Yu-gyeong-ssi rushed at me tirelessly, and I also enjoyed Han Yu-gyeong-ssi's body to my heart's content without giving in.</p>
+<p>Besides the Dongtan Missus look, she also brought the school uniform she wore before and various costumes, so it was quite fun. While we were having sex and hugging each other, Han Yu-gyeong-ssi suddenly asked.</p>
+<p>"What does the school uniform look like at the school where Yong-tae-ssi is a teacher?"</p>
+<p>"Huh? Why?"</p>
+<p>"I'm going to wear it when we meet next time♥"</p>
+<p>At Han Yu-gyeong-ssi's words, I searched the internet and showed her the design of St. Francis Girls' Academy's uniform. Since it is a historically deep and old school, the appearance of the uniform came out immediately when I searched.</p>
+<p>"Euheung...! It's quite cute?"</p>
+<p>"It would look great on Yu-gyeong-ssi."</p>
+<p>"Really? Hehe, I'll try to get one."</p>
+<p>Han Yu-gyeong-ssi is so pretty in both face and body, so anything would look good on her. We soon looked at each other again and started kissing. We explored each other's bodies again without thinking. I massaged Han Yu-gyeong-ssi's large breasts to my heart's content, and my dick was stuck in Han Yu-gyeong-ssi's pussy and didn't think about coming out.</p>
+<p>I had ejaculated so much inside that the semen that could no longer enter was flowing out, soaking the bed sheets. The bedroom was filled with the smell of chestnut blossoms, the smell of Han Yu-gyeong-ssi's vaginal fluids, and the mixed smell of pheromones that we were emitting. Smelling this made us even more horny and we clung to each other. The more we had sex, the stronger the lewd smell became, creating a cycle of sex that made us excited again.</p>
+<p>We were barely able to come to our senses when Dickson knocked on the door from outside. Looking at the time, we would have been late for the flight if we had done it one more time. I quickly prepared and took the car driven by Dickson to the airport.</p>
+<p>"BS Group will probably have a hard time recovering now. Now, all the chaebols will rush to BS Group to eat a big piece."</p>
+<p>"We just need to eat what we need and get out. The rest, let them do whatever they want with what they eat."</p>
+<p>Han Yu-gyeong-ssi and I discussed future work in the car. Originally, we should have done it today when we had a lot of time, but we were so focused on sex that we had no choice but to do it in the car to the airport.</p>
+<p>In fact, these kinds of meetings can be done anytime by phone or video conference, but having sex with Han Yu-gyeong-ssi can only be done when I come to Korea, so having sex with Han Yu-gyeong-ssi was more valuable to me. I wonder if Han Yu-gyeong-ssi thinks the same way?</p>
+<p>"I'll come again next time."</p>
+<p>"I'll go to Japan too."</p>
+<p>Parting is always similar. Han Yu-gyeong-ssi's eyes welled up with tears, and I also stroked Han Yu-gyeong-ssi's cheeks with a regretful heart. I turned my back on Han Yu-gyeong-ssi, who was waving her hand until the end, and boarded the plane to Japan.</p>
+<p>-----</p>
+<p>Han Yu-gyeong-ssi B-cut</p>
+<p>Han Yu-gyeong-ssi with one breast sticking out.</p>
+<p>Uterus heart Han Yu-gyeong-ssi</p>

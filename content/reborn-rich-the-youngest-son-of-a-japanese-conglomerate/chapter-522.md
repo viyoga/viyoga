@@ -5,57 +5,55 @@ weight = 522
 chapter = 522
 +++
 
-<p>After a hearty and enjoyable meal, Konoe Akina and Oofuchi Erika went home after chatting for a bit. Even as she headed home, Oofuchi Erika kept thanking me for saving her, saying that Daigo Terue-sama would thank me separately.</p>
-<p>Since Daigo Terue-sama's goddaughter was saved by me, it was only right that she thank me. It wouldn't just end with thanks, she'd probably give me a reward too. I didn't know what she'd give me, but I was quite looking forward to it. Actually, Daigo Terue-sama doesn't really know my true identity yet, so she might give me a good reward as a teacher at St. Francis Girls' Academy, like a full-time position, but she seems pretty sharp, so she'll probably give me something good. Or I could just ask for something else directly. Since I'm getting a reward anyway, I should be brazen about it.</p>
-<p>Konoe Akina, even though we had a date today and some rough stuff happened in between, said goodbye to me with eyes dripping with honey, probably because we became one physically. Konoe Akina was already being kind and showing me her affection to a noticeable degree, but from tomorrow on, she's going to be completely obvious about it.</p>
-<p>,Teacher-ssi! I'm here!</p>
-<p>,Teacher-niim...!</p>
-<p>Sakagami Rena, who stayed at my house saying she had something to consult with me about, must have contacted Otagi Yuka and Saionji Diana, because the two of them came together. I wondered why they were called, but seeing them staring at me lecherously, it seemed to be because of what I did with Konoe Akina today. Since a new woman appeared, they must want to make their mark on me with their bodies.</p>
-<p>,I came because I'm short on blood♥ I even brought a bottle to put Teacher-ssi's white fluid in!</p>
-<p>,I'm....</p>
-<p>Otagi Yuka boldly said that she came to ask me for semen because she was short on blood, and seeing Saionji Diana fidgeting and talking, it seemed that she was also after my body.</p>
-<p>,I also want to receive a reward for my merits today, my lord.</p>
-<p>Sakagami Rena, although not to the extent of Konoe Akina who gave me a decisive opportunity, played a role today with her ninjutsu. Thanks to her tormenting the monster with Fire Release ninjutsu, which is the monster's opposing attribute, I was able to have an opportunity to attack and avoid danger by making it hesitate when it was dangerous.</p>
-<p>The conclusion was that they wanted to have a three-on-one sex with me. Today was an unusually tiring day, but I had recovered some energy from the five servings of food I just ate, so I should be able to knock out three inexperienced girls with pleasure.</p>
-<p>###</p>
-<p>Since I had sex without using the Holy Pillar, it didn't even take two hours to knock all three of them out. Using the Holy Pillar subtly consumed my stamina, so it was better not to use it on tiring days like today unless someone was hurting. The three of them were completely knocked out and sound asleep on my bed, but I couldn't sleep. No matter how big my bed was, it was impossible for four people to sleep in it, and even if I tried to sleep in the guest room, there were no bed sheets left because I had been too busy to do laundry recently.</p>
-<p>Every time a woman visited, a huge amount of vaginal fluid and semen would ruin at least one sheet, so I had to do laundry often. Of course, I could use the washing machine at home, but there were so many sheets that I had to go to a coin laundry to wash them all at once.</p>
-<p>It was dawn, but the coin laundromat in this neighborhood was open 24 hours, so I thought I should do it now, so I gathered the pile of laundry, put it in a basket, and went outside.</p>
-<p>The autumn night was quite chilly, but it wasn't too cold to move around. After walking a bit with the basket, I saw a brightly lit coin laundromat.</p>
-<p>I thought there would be no one there since it was dawn, but I saw a silhouette standing there. It was a girl with dyed blonde hair. When I opened the door of the coin laundromat with a rattle, the blonde girl greeted me happily.</p>
-<p>,Oh! Ryuta-cchi!</p>
-<p>,What's up so early, Seizawa?</p>
-<p>The person in the laundromat this time was also Seizawa Shii. Seizawa Shii was wearing leggings and a light top instead of the dolphin pants she wore last time. I've been thinking about it for a while, but her body is really toned. I somehow have the image that white gyarus don't work out....</p>
-<p>,I got my clothes dirty while working part-time.... It's faster than doing it at home~! But Ryuta-cchi! I call you by your first name, so don't call me Seizawa without any affection, call me Shii-chan or Shii~☆</p>
-<p>She was working part-time? The Seizawa family is so big that they've produced a Prime Minister of Japan. Of course, I heard from Seizawa Shii that they have a strong laissez-faire attitude towards raising their children, but I didn't know that Seizawa Shii had to work part-time.</p>
-<p>,Aren't there any rules like banning part-time jobs at the academy?</p>
-<p>Since St. Francis Girls' Academy is an elite school, I wondered if there was a rule banning part-time jobs, so I asked, and Seizawa Shii burst out laughing.</p>
-<p>,Pahahaha! Ryuta-cchi is so funny~! How can a teacher ask a student something like that?</p>
-<p>Come to think of it, it's a bit funny for a teacher to ask a student about school rules. I also laugh awkwardly, Ahahaha, and put the laundry in the washing machine.</p>
-<p>,Ahahaha.... You're really funny, Ryuta-cchi! Um.... To answer your question, I don't think there was such a rule. If there was such a rule, the academy.... would have definitely said something.</p>
-<p>Seizawa Shii laughed until she had tears in her eyes and then answered my question. So part-time jobs are allowed. Judging by the fact that she said the academy would have said something, it seems that the academy also knows that Seizawa Shii is working part-time.</p>
-<p>Come to think of it, even if they're a prestigious family, they might not be rich. It's possible that they're a poor but historically famous family and that's why they were admitted to this school, or that their family suddenly went bankrupt after they were admitted, so they should allow part-time jobs. It would be too heartless to expel them for not having money.</p>
-<p>,But why are you working part-time? The Seizawa family should be able to support you enough, right?</p>
-<p>,You know that our family is a family of politicians, right?</p>
-<p>I nodded at Seizawa Shii's question. In fact, politicians' positions have been reduced compared to the past because power is shifting to large corporations worldwide, but the Seizawa family was a prestigious family in the political world that had produced a Prime Minister of Japan in the past.</p>
-<p>,Politics is ultimately about give and take. That's especially true for my family. If you receive something from the family, you have to pay it back in the end. Of course, I receive basic support, though.</p>
-<p>,Even if you're a daughter, you have to pay a price?</p>
-<p>I asked because I didn't understand, and Seizawa Shii smiled. That smile felt a bit sad for a moment, but before I knew it, she had returned to her usual energetic self.</p>
-<p>,Everyone at this school is the same. You have to pay a price for living comfortably. It's not a tangible price, but you pay the price of your parents deciding your future. You go to the university your parents want, marry the man from the family they want, and the husband's family wants you to give birth to a son.... I'm lucky to even have a choice like I do.</p>
-<p>Come to think of it, that's true. I understood after hearing Seizawa Shii's story. In the end, daughters are tools for prestigious families to gain political advantages with other families.</p>
-<p>Even the most powerful family in Japan, the Taira, is no exception, so Nae Fitzgerald also married the son of a historically significant American family. Of course, according to Nae Fitzgerald, they had a love marriage, but the fact that Taira Danjo, that picky old man, didn't strongly oppose it meant that the Fitzgerald family wasn't a bad family.</p>
-<p>For reference, the family that Taira Kokoro-sama's aunt married into wasn't bad either, but Taira Kokoro-sama married the second son, not the eldest son, because she brought in a son-in-law to aim for the throne of Taira.</p>
-<p>Of course, the parents have affection for their daughters and think that doing so is good for their children, but self-reliant adolescent girls suffocate in such an atmosphere of prestigious families.</p>
-<p>,Our Seizawa family is relatively reasonable. They give us a choice from a young age. If we follow the path our parents want, they support us, and if not, they only give us minimal support. Of course, the eldest son who will inherit the family doesn't have any of that.</p>
-<p>According to Seizawa Shii, the eldest son will live his life following the blueprint of entering politics unconditionally. The other children also live their lives according to the family's decisions as much as possible, but in Seizawa Shii's case, she came to St. Francis Girls' Academy as the family decided, but she caused so many accidents that she only receives basic food, clothing, and shelter, so she has to work part-time.</p>
-<p>The Saionji family is like that too, and so is the Seizawa family, they're so cold.... In the end, Seizawa Shii said that she made the choice herself, but it's probably because she's not helping the family that they're not supporting her.</p>
-<p>By the way, what kind of part-time job does she have that ends at night and gets her clothes dirty? I don't know if it's because I'm possessed by a perverted demon, but I can only think of it in a strange way no matter how much I think about it. Surely not?</p>
-<p>,You're not doing some kind of strange part-time job, are you?</p>
-<p>,Ahahaha! Are you a pervert, Ryuta-cchi? Even if my family is laissez-faire, they'd shave my head if I did something like that, you know?</p>
-<p>I was worried and asked, but Seizawa Shii burst out laughing again. Just then, a beep beep beep sound rang, indicating that Seizawa Shii's laundry was finished. Seizawa Shii moved the clothes that had been dried from the washing machine to the laundry basket. And then she glared at me like a little devil and kissed me lightly on the cheek.</p>
-<p>,I'm keeping my cherry safe, so don't worry. Fufufu♥</p>
-<p>Drrrreuk Tang!</p>
-<p>A girl and a cherry.... Seizawa Shii opened the door of the coin laundromat and left, laughing mischievously without even hearing my answer. She's so seductive....</p>
-<p>-----</p>
-<p>Coin Laundry Shii B-cut!</p>
-<p>I don't know why, but Shii looks pretty in the laundromat ddd</p>
+<p>After getting off work, I ate dinner and was studying for my certification when I got a LINE message from Shido Tsubaki.</p>
+<p>-Shido Tsubaki: The investigation finished faster than expected, so I'm sending you the list of Self-Defense Force and PMC-origin faculty members who have been in their positions for 7 years or more.</p>
+<p>She said the investigation would be done tonight or tomorrow morning, but it finished faster than I thought. I downloaded and opened the list Shido Tsubaki sent.</p>
+<p>Since the World War ended only eight years ago, there were quite a few veterans at the academy. After the war, many personnel from the Self-Defense Force and PMCs were discharged into society due to labor cost burdens, making it easy to find veterans. In fact, most of the teachers at St. Francisco Girls' Academy were hardly soldiers; most had only been affiliated with the Self-Defense Force and public corporation PMCs, conscripted in the late stages of the war and assigned to rear supply duties.</p>
+<p>Oh, there's a non-commissioned officer...? If they're an NCO, they must be a real soldier who participated in the war. The name is Asada Fukushi. He's the management team leader? It only says he retired as a master sergeant, and there's no other information. Something's fishy....</p>
+<p>-Yamashiro Ryuta: Is there any detailed information about the management team leader?</p>
+<p>-Shido Tsubaki: The reporter who investigated said he seems to be from an intelligence unit. It would take a long time to investigate....</p>
+<p>I see. An intelligence unit.... Then that fits perfectly with the third condition of the culprit that I mentioned in the club room: being skilled in information management. I thought he'd be hopeless in this area because he looks old, but that's unexpected.</p>
+<p>In fact, when you think about it, the management team is treated almost like invisible people within the academy. If they're walking around in blue work clothes, no one pays attention unless they barge into the classroom during class.</p>
+<p>If some of them were involved in drug crimes, it was obvious that they would be difficult to find. They knew the academy grounds better than anyone else, and there were temporary structures for rest in various places around the academy's perimeter.</p>
+<p>The old building I saw from the helicopter a few days ago when I went to the Daigo family's mansion turned out to be a warehouse and rest area where the management team that manages the forest keeps their tools. If someone deliberately hid drugs in a place like that, it was clear that our Date Experience Club students, who are civilians called the reconnaissance team, would never find them.</p>
+<p>I wonder why I didn't realize this until now, but students and teachers don't even pay attention to the management team walking around. Even if they see them, they just assume they're doing something.</p>
+<p>Still, just because the management team leader Asada Fukushi is suspicious doesn't mean he's confirmed to be the culprit, so I needed to be a little more objective. I decided to ask Shido Tsubaki a few things I was curious about.</p>
+<p>-Yamashiro Ryuta: I have a few things I'd like you to investigate. Can you find out if there are any other soldiers among the management team besides the team leader? And find out about the management team leader's family relationships.</p>
+<p>-Shido Tsubaki: Those aren't very difficult investigations. Please wait a moment.</p>
+<p>Shido Tsubaki probably noticed who I was suspecting. Judging by how quickly she replied, her reporter instincts seemed to be kicking in.</p>
+<p>As I kept thinking about the management team leader Asada Fukushi, something I had passed by before suddenly came to mind. I had passed by the Director-nim's office and remembered being surprised that the budget for detergent was quite large. More budget was allocated than I thought.</p>
+<p>Could the ingredients in the detergent be raw materials for drugs? I wondered, but I didn't know anyone who knew much about chemistry. Then I had no choice but to ask Eve, who isn't a person.</p>
+<p>I turned on the Dark Web app and asked Eve if there were any ingredients in the detergent that could be used as raw materials for drugs.</p>
+<p>-Ryuta: Eve, is it possible to make drugs using detergent as a raw material?</p>
+<p>-EVE: Of course! Of course, not all detergents can be used to make drugs, but the ingredients in professional products from companies A and D....</p>
+<p>As expected, Eve is an AI, so she gave me an answer that would fill an A4 sheet of paper, like ChetGPT. After listening, she said that it's not a general detergent, but a product used by professional cleaning companies, so the ingredients are different. And it is possible to make drugs using those different ingredients as raw materials, but the government is constantly monitoring such detergents, so large purchases are always checked.</p>
+<p>No matter how much they monitor, St. Francisco Girls' Academy is a nexus of power, so wouldn't they be able to purchase it without the government's suspicion...?</p>
+<p>Then all that's left is to confirm with Daigo Terue. I immediately called Daigo Terue. Daigo Terue was constantly busy fixing the mess that former acting Director Ishidera Kosuke had made, so she's probably still at the academy.</p>
+<p>-Yamashiro-sensei?</p>
+<p>,Director-nim, I'm calling because I have something to ask. Are you at the academy?</p>
+<p>-Yes. Ishidera Kosuke ruined things, and the sports day is coming up, so I'll be busy until next week. I heard from the student council Chairman. That.... You're helping with the drug case? Thank you, Yamashiro-sensei.</p>
+<p>,Yes, I have a question related to that. Could you tell me what kind of cleaning detergent the academy is currently using?</p>
+<p>-Please wait a moment? I put the receipt somewhere here. Please wait a moment while I look for it.</p>
+<p>She even collects every single receipt; she's an amazing Director. Whenever I have to go to the Director's office, there's almost always someone waiting in front of the door to get approval, but I wondered if there was a Director who worked this hard.</p>
+<p>I heard the sound of the phone being put down, then the rustling sound of paper being turned for a moment, and soon Daigo Terue's voice was heard again.</p>
+<p>-I found it. We're using products from Company D. I know our academy has always used this product. Ishidera Kosuke ordered almost twice as much as usual while he was Director, whether it was a mistake or not. But what does this have to do with drugs?</p>
+<p>Company D's product was the detergent that Eve said could be used as a raw material for drugs. I didn't tell Daigo Terue, who asked what it had to do with drugs, that the management team leader Asada Fukushi was the culprit; I only told her that detergent could be a raw material for drugs. I didn't want to say anything until I was completely sure that the management team leader was the culprit, so I only told her the facts. Of course, it couldn't be helped if Daigo Terue thought of the management team leader as the culprit after hearing that story.</p>
+<p>While waiting for Shido Tsubaki's call after hanging up, I remembered Taira Kanna's story about the mission. She said that production had exploded in the past week, so the police, who had been ignoring it, had started investigating.</p>
+<p>Unlike the meticulous Daigo Terue, Ishidera Kosuke, who had no interest in running the academy, was appointed as acting Director, so he drastically increased the detergent budget, which he had not been able to do before. As Daigo Terue just confirmed, he almost doubled the amount.</p>
+<p>Now I was starting to understand. Why Z-MAX hadn't been able to advance into Tokyo, where there are many people and high prices, and was only distributed in cities near Mount Fuji.</p>
+<p>The amount of raw materials was limited, so they had no choice but to not advance into Tokyo. It was only the detergent that could be ordered in large quantities under the name of St. Francisco Girls' Academy. They gradually increased the amount, but at some point, Daigo Terue must have stopped them from increasing the amount.</p>
+<p>This time, Shido Tsubaki called me instead of sending a LINE message. I immediately answered the phone.</p>
+<p>-As you said, Sensei, many of the management team are from the Self-Defense Forces. I think they came to St. Francisco Girls' Academy as caretakers on the recommendation of the management team leader. And....</p>
+<p>It was becoming increasingly clear that management team leader Asada Fukushi was the drug dealer. If they procured raw materials from the academy and made drugs somewhere, the caretakers from the Self-Defense Forces under the management team would have transported or sold them. They would have handed it over to a middleman outside the academy, and the middleman would have sold it to nearby cities or passed it on to drug dealers. All of those contacts would have used overseas chat programs to erase as much trace as possible.</p>
+<p>,And?</p>
+<p>-The management team leader's daughter is suffering from an unknown rare disease. So the hospital bills alone cost tens of millions of yen a year....</p>
+<p>Judging by the way she was talking, Shido Tsubaki seemed to think that the management team leader was the culprit. She seemed to have come to the very natural conclusion that even if he was the leader of the management team, he couldn't afford tens of millions of yen in hospital bills a year, so he got involved in drug crimes.</p>
+<p>,Even if the management team leader and most of the management team are former Self-Defense Force personnel, the detergent used by the management team is something that can be the main raw material for drugs, and the management team leader's daughter's medical expenses are tens of millions of yen a year, it doesn't mean that the management team leader is a drug dealer. They're all circumstantial evidence. We need solid physical evidence.</p>
+<p>-So, we have no choice but to search the warehouses used by the management team. Are you going now?</p>
+<p>,Yeah, I have to go and take a look.</p>
+<p>Sakagami Rena, who is skilled in stealth, or Otagi Yuka, who knows how to blend into the darkness of the night as a vampire, would be great at finding drugs. If I use Abyss and Shadow Domination, sneaking in is a piece of cake. As I was thinking about my plan to infiltrate the management team's warehouses scattered in various places, I heard Shido Tsubaki's voice.</p>
+<p>-I want to go with you too.</p>
+<p>If Shido Tsubaki gets involved here, things will get complicated....</p>
+<p>----</p>
+<p>Review of the new model I touched again yesterday</p>
+<p>It's gotten pretty good, but it doesn't feel like Yukiko ㅎㅎ I'll have to use the one I used to use for Awakened Yukiko.</p>

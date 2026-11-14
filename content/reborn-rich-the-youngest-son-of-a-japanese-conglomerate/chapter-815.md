@@ -5,82 +5,82 @@ weight = 815
 chapter = 815
 +++
 
-<p>When I pushed aside the hotpants covering Seizawa Shii's mons pubis, her pussy was immediately visible. Perhaps she had already been anticipating sex with me, as she wasn't wearing panties.</p>
-<p>"Why aren't you wearing panties?"</p>
-<p>"Of course, I prepared in advance. Since we were going to meet here, Ryuta-cchi...♥"</p>
-<p>It seemed she thought the coin laundry was some kind of love hotel. I stroked Seizawa Shii's exposed pussy, caressing her pubic mound with my index and middle fingers. The more I stroked, the more transparent, slick, and sticky vaginal fluid began to seep from the cleft of Seizawa Shii's pussy. As the vaginal fluid emerged, the scent of a woman seducing a man also filled the coin laundry.</p>
-<p>"Haaht-heueung...! Ryuta-cchii...♥"</p>
-<p>As I spread the vaginal fluid and stimulated the plump flesh of Seizawa Shii's pubic mound, her moans grew sweeter with each touch. After stimulating only the outside for a while, I pushed two fingers inside Seizawa Shii's vagina.</p>
-<p>"Heueu-heueut...!"</p>
-<p>Seizawa Shii's intravaginal space, which accepted my fingers as if sucking them in, began to clench my fingers as if to crush them. I wonder how her pussy will accept my cock if it clenches my fingers like this.</p>
-<p>"Haaht, Ryuta-cchi's fingers, heueung, they're thick, I love it♥ It feels different from when I do it myself, heuhaang...!"</p>
-<p>Naturally, Seizawa Shii's fingers, being a woman's, couldn't compare to mine. And the sensation is different when someone else touches you compared to when you touch yourself. Of course, the biggest difference lies in my technique, with its various sexual traits and excellent Bedroom Arts.</p>
-<p>"Haaah-aahng.... That's enough. I'm sufficiently aroused, so lie down here, Ryuta-cchi."</p>
-<p>Seizawa Shii, her eyes glazed over with pleasure, slowly turned her body to face me again. Seeing her tell me to lie down, it seemed she intended to move herself in the cowgirl position. As she did, she began to strip off her clothes, preparing for sex. Once she had stripped off all her own clothes, she showed the kindness of stripping mine off too.</p>
-<p>Seizawa Shii, with her good athleticism and active personality, loved the cowgirl position where she could move self-initiatively. The only problem was that the more she lost her fading reason due to pleasure, the more violent her thrusting became, causing me pain.</p>
-<p>"I wiped the floor clean before Ryuta-cchi came, so you can just lie down."</p>
-<p>Perhaps thinking I wouldn't lie down because it was dirty, Seizawa Shii said she had cleaned it thoroughly. In truth, I hesitated a little because I thought it would hurt, but I couldn't actually say that and ruin the atmosphere, so I lay down on the laundry room floor as Seizawa Shii instructed.</p>
-<p>"Haaah-aah...! As expected, Ryuta-cchi's is so huge...! It's big and incredibly stiff...♥"</p>
-<p>As I lay down, my cock stood pointing at the ceiling as if to pierce the sky, and Seizawa Shii, once again admiring it, praised my cock. Naturally, since I was the owner of the cock that was the subject of that praise, I couldn't help but feel proud.</p>
-<p>"My cobra is quite big, indeed."</p>
-<p>"Ahahaha~! Before you called it an anaconda, and today it's a cobra? Ryuta-cchi, you're so funny? I'm going to sit now."</p>
-<p>Seizawa Shii, who had been laughing at my words for a while, slowly began to squat down onto my cock. Her spatial awareness must have been incredibly keen; she didn't even grab my cock to aim, yet as Seizawa Shii sat down, my cock began to slide directly into her pussy.</p>
-<p>"Haaht-heueu.... This, thiss...♥ It feels good, when you first put it in, heueut, that feeling of my inside spreading wide...! Heueung, Ryuta-cchiiiii♥"</p>
-<p>As my glans widened Seizawa Shii's vaginal opening and entered, she trembled slightly as if reaching climax. Seeing her keep saying she liked this, it seemed my cock entering and widening the inside of her pussy truly felt good to her.</p>
-<p>"Haaah-aahng...!"</p>
-<p>My cock fully entered Seizawa Shii's warm, wet, and tight vagina. When fully inserted, my cock stimulated her cervix as if lifting it from within, causing Seizawa Shii to throw her head back and reach a light climax.</p>
-<p>"Stabbing me inside...! It's too strong...♥"</p>
-<p>"I didn't stab you. Shii-ssi, you put it in."</p>
-<p>"Haaht, don't argue, Casanova-ssi♥"</p>
-<p>Jjeuk-geok...!</p>
-<p>Seizawa Shii, having held my cock deepest inside and reached climax, slowly began to withdraw it, as if about to start the piston motion for the first time. She pulled my cock out to its limit, almost only the tip of the glans remaining, then began a long stroke, pushing it all the way back in. It was a truly exquisite piston motion, long enough that my cock wouldn't slip out.</p>
-<p>"Haaht, Ryuta-cchi's, heueut, glans head scrapes out all my insides...!"</p>
-<p>At first, Seizawa Shii slowly withdrew and slowly inserted my cock, but soon her speed increased.</p>
-<p>Cheol-sseok! Cheol-sseok! Cheol-sseok! Cheol-sseok!</p>
-<p>Seizawa Shii's buttocks slapped against my thighs, creating the sound of flesh hitting flesh. But as if this intensity wasn't enough, the force grew stronger and stronger. The 'cheol-sseok cheol-sseok' sounds grew louder, now turning into 'peok-peok' sounds. My thighs are quite sore, aren't they?</p>
-<p>Aside from my thighs, my tailbone ached every time Seizawa Shii sat on me because I was lying on the hard floor. I recalled my first experience with Seizawa Shii, which I had forgotten since we had always done it on a bed until now. It felt like it hurt this much back then too.</p>
-<p>"Haaht-heueu-heung! This is it, haaht, this is the feeling, aah-haat...!"</p>
-<p>Seizawa Shii, who was violently thrusting her hips to an extent that any other man's pelvis would not have endured, pulled me up and sat me on a makeshift plastic chair used for waiting during laundry. Then she sat on top of me, embraced my upper body, and resumed the cowgirl position.</p>
-<p>"Kiss, kiss meee, Ryuta-cchii...♥"</p>
-<p>Jjok, jjok, jjeueup, jjop...! Jjeubeup♥</p>
-<p>Seizawa Shii grabbed my chin and began a somewhat rough kiss. It seemed she had sat me on the chair because she wanted to kiss. Naturally, she didn't stop her violent hip thrusting.</p>
-<p>Ppu-deuk ppu-deuk....</p>
-<p>Each time Seizawa Shii thrust her hips, my tailbone no longer ached, but the not-so-sturdy four legs of the plastic chair directly absorbed that kinetic energy. The ominous 'ppu-deuk ppu-deuk' sounds continued from the plastic chair until it could no longer endure, and with a 'Pang~!' sound, the chair shattered.</p>
-<p>"Keueut...!"</p>
-<p>Even though the chair broke, I stayed suspended in empty air without falling, like performing the 'Horse Stance' (馬步: a stance resembling an invisible chair) from martial arts novels. I forced myself to stay put because if I fell with the chair, I could get cut by the plastic shards.</p>
-<p>"Because the plastic broke, we'll have to do it standing."</p>
-<p>"This is my first time standing. Hehe♥"</p>
-<p>The standing sexual position (立位) was quite difficult, and it was more advantageous for the man to be smaller to move, so it wasn't a sexual position I, with my height and large size, often did. So, I decided to spread my legs and adjust to Seizawa Shii's height, performing a modified standing sexual position where she would thrust her hips while standing. Since Seizawa Shii herself preferred positions where she could move independently, I thought she would like it.</p>
-<p>"Like this.... Like this, I just have to thrust my hips?"</p>
-<p>"Mm."</p>
-<p>Seizawa Shii, excited about trying a new posture, took the position and reinserted my cock. And then she began to thrust her hips.</p>
-<p>"Haaht-heueu.... Changing the position.... The feeling, haaht...! It's differenttt...♥"</p>
-<p>It was originally a posture for slowly moving the hips and performing piston motion, but because Seizawa Shii's body performance was so good, she began to move quickly, no different from the cowgirl position. Of course, she couldn't perform the long strokes of pulling out almost completely and then inserting all the way in, as she did in the cowgirl position, but instead, the speed seemed to have increased as the range of motion became shorter.</p>
-<p>"Haa, haa, haa...!"</p>
-<p>As she focused more and more on the stimulation she felt in her pussy, I could see Seizawa Shii's eyes glazing over.</p>
-<p>Seizawa Shii thrust her hips, pushing my body against the washing machine. As she collided with the washing machine, there was a 'kwadeudeuk' sound of the machine breaking, but fortunately, it wasn't the washing machine where my laundry was spinning.</p>
-<p>Kwang!</p>
-<p>Seizawa Shii, bracing both hands against the washing machine as a wall (naturally, the washing machine broke and parts clattered down), gradually increased her speed. Since I was standing with my legs spread, adjusting my height, our faces were at similar levels, and we began to kiss again without either of us initiating it.</p>
-<p>Each time Seizawa Shii felt pleasure, she kept pushing my body, and I could feel fragments of the broken washing machine digging into my back.</p>
-<p>Thinking this wouldn't do, I grabbed Seizawa Shii's waist, lifted her, and straightened my spread legs, changing to a standing doggy position where we faced each other. And with a feeling of 'now you try this,' I grabbed Seizawa Shii's waist and violently thrust, as if she were an Onahole.</p>
-<p>"Haaht, haaht! It hurts, Ryuta-cchii...! It feels gooddd♥ It's strangeee...! It hurts, haaht! But it feels gooddd♥"</p>
-<p>Seizawa Shii, who had become a human Onahole, held onto my shoulders to brace herself, and each time she felt pleasure and tensed, her shoulder muscles felt like they would tear.</p>
-<p>Of course, Seizawa Shii's pussy was excellent, so regardless of the physical pain I felt, my cock had an honest physiological reaction.</p>
-<p>"Keueueu...! I'm cumming...!"</p>
-<p>"Haaht-heueut! Inside, haaht! Casanova Milk♥ Shoot it full inside, Ryuta-cchii...♥"</p>
-<p>Byuut! Byuut! Byuuut!</p>
-<p>I pressed Seizawa Shii's body, which I had been roughly holding and thrusting, as tightly as possible against mine and ejaculated semen. The physical pain from the rough sex made me feel a threat to my survival, perhaps activating my instinct for species propagation to its fullest, as an enormous amount of semen poured from my cock.</p>
-<p>"Haaht-heueu-heung...! My precious Ryuta-cchi milk, haaht, it's leaking down belowww♥"</p>
-<p>Even though my cock was blocking Seizawa Shii's pussy like a lid, the quantity was so immense that semen refluxed and dripped onto the floor.</p>
-<p>"Haa, haa, haa...."</p>
-<p>Seizawa Shii leaned against me, embraced, and was breathing heavily. But her cardiopulmonary endurance was also excellent, as she quickly recovered and looked at me with sparkling eyes.</p>
-<p>"Let's clean up the floor and do Round 2, Ryuta-cchi♥"</p>
-<p>Just one round already damaged several washing machines; if we go for a few more rounds as Seizawa Shii says, won't this place become complete ruins?</p>
-<p>Seizawa Shii B-cut!</p>
-<p>Hanasaki Sayaka (Arisu's Actor friend from the early chapters) Casual Attire + Underwear requested by Gojoy-nim~!</p>
-<p>Casual Attire~! She usually helps out serving at the pub her parents run haha</p>
-<p>Underwear~!</p>
-<p>Jin Mija Tank Top Hotpants Buttocks Emphasis Illustration requested by ISaveI-nim~!</p>
-<p>What's the last one haha</p>
-<p>Lizhael, arm in arm, looking down and pressing with her feet, requested by seungj050-nim~!</p>
-<p>I didn't think it would come out, but it did haha</p>
+<p>-Haaang... Daddy♥ Thaaat...! It feels Heuaht! Gooood...!</p>
+<p>Daigo Terue regained her senses at the moaning sound tickling her ears. Why was I sleeping? Her mind was hazy, dizzy, and a complete mess. Daigo Terue felt that the current Situation was strange.</p>
+<p>'No, I definitely wasn't sleeping.... I had an appointment with Yamashiro Ryuta-ssi.... I drank the coffee Erika gave me, the coffee.... That's right! It was because of the coffee that I lost consciousness...!'</p>
+<p>Daigo Terue's eyes snapped open. And in her field of vision, as her eyes opened, a tablet monitor was fixed, perfectly positioned for her to see.</p>
+<p>On that screen, an AV video was playing. At first, she thought it was just a staged adult video, but it wasn't. Looking closely at the screen, the ones engaging in sticky, erotic sex were people she knew.</p>
+<p>Yamashiro Ryuta, the muscular, blonde man with brown skin, and her own daughter.... Oofuchi Erika, naked, were having sex on her bed.</p>
+<p>-Haaang♥ Daddy...! Yes, Erika's pussy inside feels good, haaang♥</p>
+<p>Especially Oofuchi Erika was showing a side of herself she had never revealed to her mother before. The sight of her being pinned by a man, moaning 'aang-aang' and calling Yamashiro Ryuta 'Daddy,' was difficult for her to witness as a mother.</p>
+<p>So she tried to get up and stop them immediately, but then she noticed something like handcuffs and shackles on her hands and feet. No matter how hard a flustered Daigo Terue pulled, they wouldn't come loose.</p>
+<p>'Erika, what on earth are you thinking...?'</p>
+<p>Daigo Terue's mind was complicated. Who could have orchestrated this? Was it Teacher Yamashiro? Or was it her daughter, Oofuchi Erika? Or did both of them plan this?</p>
+<p>And why on earth did they do such a thing? Unanswered questions coiled endlessly in Daigo Terue's mind.</p>
+<p>-There, Haaht! That spot feels so gooddd!!</p>
+<p>Daigo Terue turned her head, trying not to watch the indecent video. But unable to move her hands, she couldn't cover her ears, forced to keep listening to her daughter's indecent moaning sounds.</p>
+<p>At first, there was only surprise, anger, and a slight disgust, but as she continued to listen to her daughter's moans and Yamashiro Ryuta's rough, panting breathing sounds, something changed.</p>
+<p>"No...!"</p>
+<p>Her Body was gradually growing hotter. Daigo Terue denied it, but her body, which had begun to burn, betrayed her words, proving her 'no' was a lie. Her turned head slowly rotated back, making her glance repeatedly at the tablet monitor screen before her eyes.</p>
+<p>The first thing she saw was Yamashiro Ryuta's broad back. He was holding Oofuchi Erika as if crushing her, thrusting his hips, and each time he pulled his hips back, his enormous Large Penis was seen explicitly widening her daughter's pussy.</p>
+<p>"Haa...♥"</p>
+<p>If only that huge cock would enter her own body...! Because Daigo Terue already knew what it felt like for Yamashiro Ryuta to spread her pussy and enter, the area between her groin grew hotter and hotter.</p>
+<p>-Haaang! Haaang!</p>
+<p>"Haa, haa...!"</p>
+<p>Unconsciously, her daughter's moans and Daigo Terue's moans were synchronizing. If not for the handcuffs and shackles, she could have at least masturbated, but now her limbs were all tied. Daigo Terue felt an unbearable itchiness deep inside her pussy.</p>
+<p>"Haa, haa, haa...! Quickly, Haaht, at least the handcuffs...!"</p>
+<p>As if someone had heard Daigo Terue's voice, the handcuffs and shackles clinked open. Daigo Terue hastily moved her hands towards her pussy.</p>
+<p>"Haaang...! Nooo!"</p>
+<p>She inserted three fingers and roughly rubbed the inside of her pussy, but this wasn't the feeling. She wanted to scratch deeper inside, where her fingers couldn't reach. Yamashiro Ryuta's Large Penis, reflected before Daigo Terue's eyes, was visible.</p>
+<p>Yes, that's it. I need that long, thick thing.</p>
+<p>Daigo Terue, her body trembling, pulled herself up from the bed.</p>
+<p>"Haaang... Daddy♥ Thaaat...! It feels Heuaht! Gooood...!"</p>
+<p>Oofuchi Erika, unusually, had a cervix that was developed for sensitivity from the very beginning. When I pressed and tapped the deepest part of her pussy, she let out a shriek-like moaning sound and trembled violently. Her reaction was amusing, so naturally, I tormented her even more persistently, and each time I pressed her cervix, her pussy tightened, which felt good to me too.</p>
+<p>Oofuchi Erika's pussy, being a virgin's, was tight enough to be painful. Especially deep inside, protrusions and vaginal folds were intricately intertwined, making it a pussy that felt better the deeper I thrust. As the sensitivity around her cervix developed, her pussy felt as if it was made to pleasurably receive the cock thrusting deep inside.</p>
+<p>"Erika, does it feel good?"</p>
+<p>I thrust deep into Oofuchi Erika's pussy, then quickly stimulated her inside with short hip movements as I asked.</p>
+<p>"Haaang♥ Daddy...! Yes, Erika's pussy inside feels good, haaang♥"</p>
+<p>In response to my question, Oofuchi Erika loudly answered that it felt good. If Daigo Terue had been inside the house, it would have been strange not to hear such a loud sound.</p>
+<p>Early in our sex, I asked Oofuchi Erika about the whereabouts of Daigo Terue, whom I was originally supposed to meet, and Oofuchi Erika said that Daigo Terue had an emergency and wouldn't be home until late. She said she had hacked Daigo Terue's entire phone to prevent her contact message from reaching me, and sent me a text message herself, which was a bit scary. Seeing this action, it seemed she also had a bit of a yandere streak.</p>
+<p>"Lying like that, Erika, you're a bad child, aren't you?"</p>
+<p>"I'm sorryyy! Teacher-nim, Erika, Hyaeueut! Wanted to do something erotic with Daddy...♥ so Heueut...! I did a lot of bad thingsss!"</p>
+<p>When I pressed her cervix firmly and asked sternly, to tame Oofuchi Erika beforehand, she begged for my forgiveness. Anyway, is it Teacher or Daddy? She's using both.</p>
+<p>"There, Haaht! That spot feels so gooddd!!"</p>
+<p>Hmm.... My pussy discipline seemed to have no particular effect on Oofuchi Erika. It was only the thought of pleasure, rather than the thought of having done wrong. Instead of stimulating her, should I try a 'No More Dick' operation, Tsk?! Like, 'I won't put my cock inside'? As I idly thought about educational sex(?) and thrust my hips, the sound of footsteps came from the entrance of Daigo Terue's Bedroom.</p>
+<p>What? I subtly turned my head to look at the room entrance, without stopping my hip movements. There stood Daigo Terue, whom Oofuchi Erika had said wouldn't be home until late evening, in her underwear.</p>
+<p>"Oh, oh? Terue-ssi!?"</p>
+<p>As I, flustered, called out to Daigo Terue, Oofuchi Erika, who had been moaning 'aang-aang' for a while, turned her head towards the bedroom entrance, looked at her godmother, and smiled brightly.</p>
+<p>"Mom, you're here? Mom, come over here too♥"</p>
+<p>Oofuchi Erika reached out her hand towards Daigo Terue, beckoning her. It was an inappropriate appearance for the situation, as if welcoming a mother who was late for a meal. Unable to grasp the situation, I decided it wasn't proper etiquette to be fucking her daughter in front of her mother (even if she was her godmother), so I pulled my deeply embedded cock out of Oofuchi Erika.</p>
+<p>"Kyaaahaaang...! Daddy...! Heueut! If you pull it out so, so roughly, Erika, Aheueung♥ will cummm♥"</p>
+<p>As my cock was pulled out, its glans scraping her intravaginal walls, Oofuchi Erika climaxed grandly, gushing vaginal fluid.</p>
+<p>I pulled my cock out thinking it was improper, but instead, I ended up giving her mother a cum-soaked show of her daughter....</p>
+<p>Wondering if she was angry, I looked at Daigo Terue, but her expression wasn't angry. No, rather, she looked incredibly in Heat....</p>
+<p>"Headmaster-nim...!"</p>
+<p>Daigo Terue quickly approached me, grabbed my shoulder, and turned my body. And then, she took my glistening cock, coated with Oofuchi Erika's vaginal fluid, into her mouth.</p>
+<p>Chyuup...! Chyup! Chyup!</p>
+<p>She suddenly began to fiercely suck my cock, cleaning off Oofuchi Erika's vaginal fluid that had made it so glistening. As soon as Oofuchi Erika's vaginal fluid was cleaned off, Daigo Terue climbed on top of me and immediately inserted my cock into her pussy.</p>
+<p>"Heueueut! This is ittt...♥ My pussyyy...! The deepest part, Haaht! Kept! Itching...!"</p>
+<p>Daigo Terue began to rub my glans as if a bug had bitten deep inside her pussy. She frantically thrust her hips with such dazzling hip movement that in less than two minutes, she threw her head back and reached Climax.</p>
+<p>"Haaahaaang...!"</p>
+<p>Thinking I needed to talk to both of them to figure out what had happened, I pulled my cock out of Daigo Terue.</p>
+<p>"Haaahaang...! If you scrape the inside like thattt...♥ I came, I'm coming again, coming, coming, cominggg...!"</p>
+<p>Again, as I pulled my cock out, scraping her inside intensely, she experienced a multi-orgasm, her eyes already glazed over, so I laid Daigo Terue down. Anyway, for both of them to cum when I pull my cock out, like mother, like daughter, indeed.</p>
+<p>Being such a wealthy house, the bed wasn't cramped even with me, Daigo Terue, and Oofuchi Erika. Since both of them were still disoriented in the afterglow of orgasm, I decided to go get some water.</p>
+<p>I left the bedroom and stepped outside, where I saw drops of what appeared to be Daigo Terue's vaginal fluid on the floor. Following the vaginal fluid, it led to Oofuchi Erika's room on the second floor.</p>
+<p>"!"</p>
+<p>In Oofuchi Erika's room, there were unlocked handcuffs and shackles, and a screen set up broadcasting Daigo Terue's bedroom situation live, and I couldn't understand what kind of situation this was.</p>
+<p>Returning to the first floor, I organized my thoughts; it seemed Oofuchi Erika was behind this. I generally understood, but I didn't know the exact method. I took a sip of water, my original purpose for leaving, and re-entered the bedroom.</p>
+<p>Tak!</p>
+<p>As I entered and turned on the bedroom light, it became much brighter than before. Daigo Terue and Oofuchi Erika were still lying on the bed, but with the room now bright, it was an incredibly stimulating scene.</p>
+<p>Although Daigo Terue was Oofuchi Erika's godmother, since they were like mother and daughter, I wondered if this could be called a mother-daughter layered sex.</p>
+<p>Today's B-cuts!</p>
+<p>Daigo Terue trying to enter the room.</p>
+<p>Eliminated due to being too bright, strange composition, different from description, etc. hehe</p>
+<p>Daigo Terue lying down~!</p>
+<p>Erika lying down~!</p>
+<p>End of B-cuts~!</p>
+<p>Gojoy-nim requested Erika's underwear, breast covering~!</p>
+<p>Starting with underwear</p>
+<p>Breast covering~!</p>
+<p>Bonus naked body shot~!</p>

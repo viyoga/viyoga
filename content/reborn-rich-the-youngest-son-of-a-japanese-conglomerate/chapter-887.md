@@ -5,111 +5,83 @@ weight = 887
 chapter = 887
 +++
 
-<p>Next, the Female Student who took out a box was Naruse Shiyo. Seeing her carefully carry the box so it wouldn't shake, it seemed she had made a chocolate with many decorative elements.</p>
-<p>"Teacher-nim~! What I prepared is...!"</p>
-<p>What Naruse Shiyo took out of the box was a cute deformed Dragon-shaped chocolate. Perhaps using food coloring, it was made with green and blue to resemble Dragon skin, and its Size was quite large for a chocolate, almost the Size of a Forearm. It seemed she had made a Dragon-shaped chocolate symbolizing herself as a Half-Dragon.</p>
-<p>"It's a Fairy Dragon-shaped chocolate."</p>
-<p>I thought she had just made an SD version of a Dragon, but is there such a thing as a Fairy Dragon? Still, it was a cuter chocolate gift than the Eyeball chocolate Konoe Akina had just given me as a gift, which was Fortunate.</p>
-<p>"I also put fruit jam inside, so you have to eat it right away, Teacher-nim."</p>
-<p>Naruse Shiyo ominously said that it had fruit inside, just like Konoe Akina's. It's a cute Dragon shape, so it's a bit of a waste to cut and eat it.</p>
-<p>"I'll cut it for you."</p>
-<p>Naruse Shiyo took out a Plastic Sword shaped like a Dragon Slayer from some comic book from the box. It seemed she had prepared this separately, but did she mean to slice even a chocolate Dragon with a Dragon Slayer? Minamoto Lisa, a classic comic enthusiast, was seen with sparkling Eyes as she looked at the Dragon Slayer miniature Sword.</p>
-<p>Seogeok seogeok.</p>
-<p>The Fairy Dragon chocolate's Neck was sliced with a somewhat Goosebumps-inducing sound. If you think about it, isn't this quite cruel? Naruse Shiyo herself is a Half-Dragon, yet she's slicing up a Dragon.</p>
-<p>"Huh?"</p>
-<p>I didn't notice at first, but the cross-section was a bit strange. It seemed to show the flesh part, probably made of Pink chocolate with strawberries, and marbling (?) made of white chocolate. And every time the Fairy Dragon's Neck was cut, jam made from a red-fleshed fruit spurted out like Blood.</p>
-<p>"Now. Please try it~!"</p>
-<p>Naruse Shiyo, having brought a Plate at some point, offered me a slice of the cut chocolate. It was a chocolate shaped like bloody raw pork Neck meat. Even the other special class Students around made Expressions of Astonishment upon seeing what was on the Plate.</p>
-<p>"Uh, I'll eat it well."</p>
-<p>Having already eaten Konoe Akina's Eyeball, I had no choice but to eat Naruse Shiyo's raw meat (?) chocolate. I picked up the Pink chocolate, smeared with sticky red jam, with a fork and put it in my mouth. The jam dripping down felt like Blood, but as I Forcibly ate it, it was indeed chocolate-flavored.</p>
-<p>These red, Blood-like things were cherry jam. The combination of cherry jam and Pink chocolate with berries wasn't bad. It was actually delicious. But it looked so much like raw meat on the outside.... I needed Courage to eat it again.</p>
-<p>"Hmm, it's delicious?"</p>
-<p>"Uh-hehe, isn't it good?"</p>
-<p>When I said it was delicious, Naruse Shiyo twisted her Body and rejoiced. As expected, the other Students also took a bite to Taste it, and left reviews saying it was somewhat difficult to look at, but quite edible.</p>
-<p>"Next is my chocolate, Liege/Master!"</p>
-<p>Next in order was Sakagami Rena. Sakagami Rena also brought a rather large box, looking uneasy, and like Naruse Shiyo, she seemed careful not to let it shake.</p>
-<p>"What I made is... my loyalty, thinking of my Liege/Master~!"</p>
-<p>When she opened the box with a 'Ta-da!', a Heart lay inside. It wasn't a Heart-shaped chocolate, but a real Heart, throbbing and beating.</p>
-<p>"Th-this, is this really a Valentine's Day gift? It's not chocolate."</p>
-<p>"It is chocolate!"</p>
-<p>Sakagami Rena insisted it was chocolate, but seeing a Heart throbbing and beating right before my Eyes, I couldn't believe it.</p>
-<p>"I have a human Heart-shaped mold at Home, so I made chocolate with it, and the valves, aorta, and vena cava were made of Jelly."</p>
-<p>No matter if it's a ninja Family, why do they have a human Heart-shaped mold? And why is the Heart beating when she said it was made of chocolate...?</p>
-<p>"Ehehe, it feels Real, doesn't it, Liege/Master?"</p>
-<p>"It feels too Real, so I can't eat it...."</p>
-<p>"That's because I cast Illusion Magic on the chocolate that represents my loyalty!"</p>
-<p>Why cast Illusion Magic on a Valentine's chocolate.... So, this throbbing and beating Heart right before my Eyes is due to Illusion Magic, right?</p>
-<p>Glancing at the other Students, seeing them looking at Sakagami Rena with Expressions of disbelief, it seemed the beating Heart was visible to the Students' Eyes as well.</p>
-<p>"Quickly, please eat my loyalty, Liege/Master!"</p>
-<p>"Hurry~!" Sakagami Rena pushed the throbbing Heart right in front of my Nose. Still, it was a gift, and I didn't want to show too much reluctance, so I took the Heart in my Hand and bit into it with a kwadeuk .</p>
-<p>Fortunately, it didn't seem to be Illusion Magic that deceived my Tongue's Touch or Taste, and it tasted like ordinary delicious chocolate. However, even now, when I looked with my Eyes, it appeared as if I had taken a bite out of a Heart. It was still throbbing and beating, so to the surrounding special class Students, it would look like a Scene of me chewing and eating a real Heart.</p>
-<p>"Haa.... My Liege/Master... my loyalty... You ate it...!"</p>
-<p>Sakagami Rena had a 'pyong-gan' (captivated) Expression as she watched me with the Heart-shaped chocolate. I don't know why she was like this, but if she was happy, that's what mattered.</p>
-<p>I finished eating the Heart chocolate and waited for the next Turn. Even if I tried to just leave it, it kept throbbing and beating, stealing my Gaze, so I decided it was better to eat it and finished it all.</p>
-<p>"Next is me."</p>
-<p>This time, Saionji Diana stepped forward. What Saionji Diana took out was a teddy bear-shaped chocolate sitting in a wheelchair. It was a very cute Appearance, but like when Saionji Diana used to ride in a wheelchair, the teddy bear had no Limbs.</p>
-<p>"Me, no, please eat the teddy bear. The wheelchair is not for eating."</p>
-<p>"...."</p>
-<p>So, she meant for me to eat the physically incomplete teddy bear that represented Saionji Diana herself, right? I wondered why these Students were like this, but realizing that these Troublemakers belonged to the special class, a collection of problem Students from St. Francis Girls' Academy, I had no choice but to accept it as the special class Class Teacher.</p>
-<p>"Then I'll eat it."</p>
-<p>The teddy bear had an Appearance made of mocha chocolate with coffee, and since biting the Head directly was difficult, I bit the Belly, and inside, there was a long, coiled Jelly, like a 'Wang Kkumteuli' (a Korean gummy worm candy), seemingly representing Internal Organs. It was shocking content enough, but still better than the previous chocolates, so I could eat it deliciously.</p>
-<p>Now, only Alik remained. Oofuchi Erika had said she would come around lunch, and Urabe Konoka also said she would give hers later, so in the current Situation, only Alik could be said to be left.</p>
-<p>Alik was wearing a maid uniform, having changed at some point. And like the other Students, she approached me, carrying Plates instead of a box. It seemed she had prepared not just one, but two Plates.</p>
-<p>"Ryuta, Alik prepared Maid Cafe Omelet Rice."</p>
-<p>What Alik brought was Omelet Rice. On top of a beautifully made egg omelet shaped like a rugby ball, was a cute Omelet Rice with 'Ryuta, thank you ♡' written in ketchup.</p>
-<p>Because my mouth was incredibly sweet from the continuous chocolate Tasting, to the point where I wondered if I'd get diabetes, the Omelet Rice Alik prepared, though not fitting for Valentine's Day, felt like an Oasis in the middle of a desert.</p>
-<p>"I'll eat well, Alik."</p>
-<p>"You can't eat yet, Ryuta Master-nim...!"</p>
-<p>As I picked up my Spoon to scoop and eat the Omelet Rice, Alik grabbed my Hand with incredible speed.</p>
-<p>"Huh? Why...?"</p>
-<p>"I didn't do the 'make it delicious' Order...."</p>
-<p>Aha...! Now I understood. What Alik had prepared wasn't just Omelet Rice. Since it was Maid Cafe Omelet Rice, it needed a 'make it delicious' Order...!</p>
-<p>"Then, will you do the 'make it delicious' Order?"</p>
-<p>"Yes...!"</p>
-<p>Alik, motivated by my request, made a heart with both hands, and while saying 'Oishikunare (おいしくなれ)' to the omelet rice, she emitted electricity.</p>
-<p>"Ryuta, it's delicious now...!"</p>
-<p>No, why the electricity...? I hid my bewildered Expression as much as possible and stroked Alik's Head.</p>
-<p>"Thank you. I'll eat well, Alik."</p>
-<p>"Yes. Eat deliciously, Ryuta...."</p>
-<p>I scooped the Omelet Rice with a Spoon and put it in my mouth. Perhaps due to the electricity just now, it had a slightly burnt, smoky Taste, but it was delicious. Rather, the smoky Taste acted as a Kick, giving it a distinctive feel compared to ordinary Omelet Rice.</p>
-<p>"It's delicious, Alik!"</p>
-<p>I quickly emptied one Bowl and showed the empty Vessel to Alik, smiling. But Alik still had another Bowl of Omelet Rice in her Hands. Did she prepare two Bowls because I eat a lot?</p>
-<p>"Ryuta, Alik prepared Maid Cafe Omelet Rice as Dessert."</p>
-<p>What? Dessert...? Receiving the new Plate, I knew. This was Alik's Valentine's Day chocolate gift.</p>
-<p>A sweet chocolate Smell came from this Omelet Rice Plate. Alik had made Omelet Rice-shaped chocolate.</p>
-<p>The yellow part of the omelet was banana chocolate made with milk chocolate and banana flavor, and the cute red writing 'Alik ♡ Ryuta' on top was made of raspberry chocolate, not ketchup.</p>
-<p>"Alik will feed you."</p>
-<p>Alik gently scooped the Omelet Rice chocolate she made with a Spoon, and put the Spoon into my mouth, so I took a bite with an 'ang'. Still, perhaps because I had just eaten the real Omelet Rice that could be called a Meal, it was quite delicious.</p>
-<p>"Alik, both Omelet Rices were delicious."</p>
-<p>"Really...?"</p>
-<p>"Yes."</p>
-<p>Perhaps satisfied with my Answer, she showed a faint Smile. With this, I had eaten all the chocolates prepared by the Students. Though I hadn't eaten Oofuchi Erika's and Urabe Konoka's yet. Somehow, what those two were preparing also felt a bit scary.</p>
-<p>"So.... Who's first place?"</p>
-<p>It was Seizawa Shii who immediately asked an awkward Question.</p>
-<p>"Since I haven't eaten Oofuchi's or Urabe's yet, I can't assign a Ranking."</p>
-<p>I made an Excuse about Oofuchi Erika and Urabe Konoka, who hadn't arrived yet, and refused to assign a Ranking.</p>
-<p>"You make good Excuses. Tch, alright. We're going back, so eat all my chocolate too."</p>
-<p>"I'll make it again next year, so don't not eat it because it's too precious; eat it, you."</p>
-<p>I hadn't eaten Seizawa Shii's and Minamoto Lisa's chocolates because they were too precious to eat, but they told me to eat them, saying they'd make them again next year. However, I had no intention of eating them right away. Since I had received so many chocolates, and eating them all in one day seemed unhealthy, I decided to put them in the refrigerator and eat them little by little.</p>
-<p>After sending off the Students who had rushed in like that, Deliveries arrived one after another. Chocolates sent by Han Yu-gyeong, Arisu, Yukiko, Chieri, Ha Ju-yoon, Nagumo Sian, Nae Fitzgerald, and others arrived one after another.</p>
-<p>I didn't eat them, but I read the Letters and checked the chocolate shapes, and fortunately, there were no chocolates as bizarre as those from this special class of Troublemakers.</p>
-<p>I sent a Text Message to everyone saying I had received the chocolates well, and started Studying for the PMC certification Test again.</p>
-<p>Before I knew it, lunchtime passed (I skipped lunch because I had eaten chocolate and Omelet Rice). The Doorbell rang again. Since Oofuchi Erika was supposed to arrive around this Time, I opened the Door without asking who it was.</p>
-<p>"Hello, Yamashiro Teacher-nim."</p>
-<p>"Hello, Teacher-nim~!"</p>
-<p>It wasn't just Oofuchi Erika who came. She was with Oofuchi Erika's mom, Daigo Terue.</p>
-<p>"Welcome."</p>
-<p>I ushered the Mother and daughter into the Home. The Mother and daughter, looking busy, handed me a box, and when I opened it, there was a hen-shaped chocolate and a Chick-shaped chocolate inside, all at once.</p>
-<p>"Yamashiro Teacher-nim, don't you want to eat Oyakodon♥ rather than chocolate?"</p>
-<p>"We made it together with Mom, so please eat both♥"</p>
-<p>Listening to their seductive Expressions and Words, it was clear that this Pervert Mother and daughter didn't come to feed me chocolate, but to eat me.</p>
-<p>"Let's go to the Bedroom and eat."</p>
-<p>Since I had eaten a lot of chocolate today, and needed to burn some calories, I dragged the two Pervert Mother and daughter into my Bedroom.</p>
-<p>Urabe Konoka's and Lizhael's chocolate gifts were already uploaded in Chapter 780, Side story 3, hehe.</p>
-<p>Alik B-cut!</p>
-<p>Requested by Gojoy-nim: Nakanoin Rina's belly dancer and breast-covering~!</p>
-<p>Belly dancer~!</p>
-<p>Breast-covering~!</p>
-<p>Requested by TheDreaming-nim: Gokado Hanako's park fountain outdoor exposure A-cut B-cut~!</p>
-<p>A-cut~!</p>
-<p>B-cut~!</p>
+<p>"Kwaaaah! this bitch! Die!!"</p>
+<p>Genpaku, still burning, Charged at Sakagami Rena again. Sakagami Rena easily dodged that Attack, but felt a strange Feeling.</p>
+<p>Somehow, Genpaku's speed seemed to have gotten faster, and his Size seemed to have gotten bigger. Was she mistaken because of the Flames clinging to Genpaku? Sakagami Rena tilted her Head and threw a Surigeom.</p>
+<p>Kuung!</p>
+<p>The Ground, struck by Genpaku's Palm, shook and let out a roar. Before she knew it, the Fire Sakagami Rena had set was extinguished.</p>
+<p>Normally, if he had caught Fire with the Sakagami Family's special oil, he would have burned to Death, but it was strange that the Fire was extinguished so quickly. His flesh was slightly charred, but he didn't seem to have taken much Impact.</p>
+<p>But it wasn't entirely ineffective, so Sakagami Rena continued to adhere to her previous hit-and-run Method and continued her Battle with Genpaku.</p>
+<p>The more they fought, and the more Genpaku got angry, Sakagami Rena realized that the strange Feeling she had felt earlier was actually true.</p>
+<p>The more Genpaku got angry, his Size grew larger and larger, and his Power and speed became stronger. It couldn't even be called a mistake, because now, compared to when they first fought, his Height had grown almost a span taller. As the unknown Power grew stronger, Sakagami Rena felt a familiar yet different Feeling from Genpaku.</p>
+<p>"This is.... Divine...!"</p>
+<p>It was a similar Feeling to the Abyss that Taira Ryuta had used in the past. To be precise, it was a different Power from the Abyss, but she felt that the source of that Power was not human, but from a transcendent Existence.</p>
+<p>What Sakagami Rena felt was true. Dozens of years ago, Genpaku, an ordinary second-rate sumo wrestler, discovered an abandoned shrine in a corner of Mount Suzuka (鈴鹿山) where no one went while training.</p>
+<p>At first, he tried to just pass by, but Genpaku, who was thirsty for Victory, entered the abandoned Shrine, paid his respects to an unnamed god, and prayed for Power for himself.</p>
+<p>After paying his respects at that Shrine dedicated to the unnamed god, Genpaku began to rise rapidly. His Power grew stronger and stronger, and the attacks of opposing sumo wrestlers no longer hurt him.</p>
+<p>The power he gained so easily was like an addiction. So Genpaku, before every match, went to the unnamed shrine, made offerings, and paid his respects. Each time, he grew stronger, and eventually, he was on the verge of becoming an Ozeki (大関: a sumo rank, effectively the highest rank just below Yokozuna (横綱)).</p>
+<p>But what the unnamed god bestowed was not just a Blessing. Without him knowing, gradually, a Change in his personality began to occur. Of course, perhaps because it was a gradual Change, Genpaku didn't even realize he was undergoing Corruption.</p>
+<p>He became increasingly violent, and in situations where he disagreed with an Opponent, his Hands would go up before Conversation; unable to control his Lust, he caused many problems concerning Women.</p>
+<p>Ultimately, he caused an unforgivable Problem: while walking down the Road, he Raped and Murdered a certain Woman. Because of that incident, he was expelled from the sumo world, but he wasn't imprisoned; just then, as World War III broke out, taking advantage of the Public Order vacuum, he hid his Body in that abandoned Shrine in Suzukasan where he had gained his Power.</p>
+<p>After that, he was scouted by Takakusaki Gengo of Anyaji and became a Guardian of Anyaji; in the name of Anyaji, he committed dozens of Murders, leading to the current Situation where he is fighting Sakagami Rena.</p>
+<p>Genpaku was struggling quite a bit, but ultimately, he thought he could eventually crush Sakagami Rena in front of him, because the unnamed god's infinite Power was with him.</p>
+<p>Urabe Konoka, holding the Bow Taira Ryuta had gifted her, climbed onto the rooftop of a certain building. It was a high-Positioned rooftop where the abandoned Orphanage, which Seizawa Shii and Sakagami Rena had entered, was visible at a glance.</p>
+<p>Urabe Konoka, who had climbed onto the rooftop, slowly nocked an Arrow onto the Bowstring and checked the Situation in the abandoned Orphanage's playground. Seizawa Shii and Sakagami Rena, each facing their respective Opponents, were engaged in fierce Battle.</p>
+<p>Urabe Konoka continued to watch the Battle Scene to provide Help at the decisive Moment. After the first Attack, gaining the advantage of an Ambush, the Enemy too would be mindful of the Arrows Urabe Konoka shot, so the first Attack was the most important.</p>
+<p>"That Person is...?!"</p>
+<p>What Urabe Konoka paid attention to was the incredibly massive sumo-style Fist Technique practitioner who was fighting Sakagami Rena. She felt an ominousness from that sumo-style Fist Technique practitioner, so Urabe Konoka looked a little more closely.</p>
+<p>"Something inhuman Power seems to be involved...."</p>
+<p>Even excluding Outer Gods, Japan is a country that worships countless Gods, so Urabe Konoka was convinced that the Power she felt from the sumo-style Fist Technique practitioner was the Power of some transcendent Existence. Looking at the Situation, if it continued like this, Sakagami Rena seemed to be in great difficulty.</p>
+<p>To face that sumo-style man, she too seemed to need to borrow transcendent Power. Coincidentally, Urabe Konoka also was a Shrine Maiden who served the Outer God Lizhael, the Boundary of Opposing Chaos, a transcendent Existence.</p>
+<p>Geugeugeung.</p>
+<p>Urabe Konoka aimed at the sumo-style man and drew the Bowstring. If it were an ordinary Person, it would be a Bowstring they couldn't even draw, but Urabe Konoka had received Lizhael's Blessing, so without much Power, she could draw it. On the Bow shaft, an Arrow with a Talisman attached, carefully written by Hangari Muneo, was nocked. As it was an Arrow imbued with powerful divine Power, it would be able to inflict great harm on the Opponent.</p>
+<p>Tung.</p>
+<p>Simultaneously with the sound of the Bowstring snapping, the Arrow cut through the empty space.</p>
+<p>Sakagami Rena felt the Situation was becoming increasingly difficult. Her Opponent, Genpaku, had become a giant over almost 2 meters 30 centimeters, and in terms of speed, she, who was confident in her swiftness, had almost no speed difference with him.</p>
+<p>The bigger his Size became, his defense also increased, so now the throwing stars Sakagami Rena threw were bounced off as if thrown at Shamelessness, and various Jusul were also being ignored.</p>
+<p>'How can I win?'</p>
+<p>Sakagami Rena pondered various strategies, but no particular sharp Method came to mind. The fortunate thing was that Genpaku had little Resistance to her Illusion Magic, so even if his speed became faster, she could dodge his attacks using Illusion Magic.</p>
+<p>"!"</p>
+<p>While fighting Genpaku and dodging his fists, Sakagami Rena saw Someone standing on the rooftop of a commercial building overlooking this abandoned Orphanage.</p>
+<p>"You've come."</p>
+<p>She knew Urabe Konoka, along with Seizawa Shii, was in the same Group as her. The Operation was to provide cover from a distance using a Bow, a long-range weapon, but until that Operation was planned, Sakagami Rena had never seen Urabe Konoka fight, so she hadn't had high Expectations.</p>
+<p>But looking at the current Situation, the Arrows Urabe Konoka was shooting seemed to be her only hope.</p>
+<p>Swaeeeeeek!</p>
+<p>The sound of a sharp object slicing through the wind was heard, but unlike before, Sakagami Rena abandoned her hit-and-run tactics to prevent Genpaku from evading. Holding the Ninjato Murasakii-ichi (紫一) that Ichimonji Harugoro had crafted for her, she charged straight in.</p>
+<p>"Khahaha! To commit suicide, are you coming to me? Try using that cute Flame again!"</p>
+<p>Already, with his Fading Reason half-gone, Genpaku seemed not to hear even the sound of the Arrow cutting sharply through the Wind. As Genpaku was about to clap his Hands together with Sakagami Rena's Body in the middle to crush her, Urabe Konoka's Arrow pierced Genpaku's gigantic body.</p>
+<p>"Keueuaaaaaaak!!"</p>
+<p>Unlike when he was hit by dozens of throwing stars, Genpaku was crying out in immense Pleasurable Ache, a different Dimension of suffering. As if a Small hole had been made in a balloon full of air, his huge Size was shrinking. Along with that, she felt the transcendent Power felt from Genpaku also scattering.</p>
+<p>Sakagami Rena was not one to miss a Situation like this.</p>
+<p>-Futon (Wind Release) Rotating Saw.</p>
+<p>Sakagami Rena, who had cast a magic that imbues her Ninjato with rotating Wind like a saw, swung her Sword as it was. She had already come in front of Genpaku to draw his Gaze, so she just needed to swing her Sword.</p>
+<p>Kakaka!</p>
+<p>"Kwaaaah! S-save me!"</p>
+<p>Along with a noisy sound, Blood splattered everywhere. By the Impact of the Rotating Saw, his belly skin was split open with a crack, and his Internal Organs were exposed. Sakagami Rena took out the last remaining Bottle containing the Sakagami Family's special oil and threw it at the suffering Genpaku.</p>
+<p>"Just as you said, I'll use that cute Flame again."</p>
+<p>-Katon (Fire Release) Dragon's Breath.</p>
+<p>Sakagami Rena, jumping back, used the Dragon's Breath as it was, which Genpaku had just called cute. By the Dragon's Breath, the Sakagami Family's special oil Bottle burst open, and Genpaku's Internal Organs caught Fire.</p>
+<p>"Keuaaaah! Please, please put out this Fire! Please! It's hot! Hot!!"</p>
+<p>Until now, his Attitude as if not feeling pain was gone, and Genpaku was moving his Body Crazy as if Dancing. Sakagami Rena, without letting her guard down, holding her Ninjato and Surigeom, watched Genpaku, but Genpaku's movements gradually slowed down and soon completely stopped moving and fell to the Floor. There was no need for a confirmation kill; he had become completely black charcoal and was only emitting wisps of smoke.</p>
+<p>"Huu...."</p>
+<p>Sakagami Rena let out a sigh. She wanted to collapse right away, but the Battle was not over. She had used up all her Battle Consumables, such as various Talismans, smoke bombs, and the Sakagami Family's special oil, but she still had stamina left, and her Surigeom, throwing stars, and Ninjato remained, so she had to Help Seizawa Shii, who was still fighting fiercely.</p>
+<p>Requested by DoubleBarrelShotgun-nim, Black Gyaru School Uniform Kanna~!</p>
+<p>Other than School Uniform~!</p>
+<p>Requested by MidNightSKY-nim, Gyaru Liz Gyaru Peace Photo and Ryuta's flustered Appearance upon seeing that Photo~!</p>
+<p>Liz Gyaru Peace~!</p>
+<p>Ryuta</p>
+<p>I didn't know how to put a Photo inside the phone, so I just substituted it with a Liz Illustration haha.</p>
+<p>Requested by TheDreaming-nim, Diaper Athena 1. Nipple Pinching 2. Running.</p>
+<p>1.</p>
+<p>2.</p>
+<p>I don't know why, but she doesn't run well haha. Perhaps because her breasts are Small, even if I added breast bouncing, there was no Effect T_T.</p>
+<p>Requested by Gojoy-nim, Succubus Yukiko's usual Attire and underwear~!</p>
+<p>Usual Attire~!</p>
+<p>There isn't really anything to call usual Attire haha.</p>
+<p>Underwear~!</p>
+<p>Requested by Neosblue-nim, Ryuta who took a different tree, not a martial arts tree~!</p>
+<p>Modification + Firearm</p>
+<p>Complete Modification.</p>
+<p>VR Diver.</p>
+<p>Pyrokinesis</p>
+<p>Cold energy Ability.</p>

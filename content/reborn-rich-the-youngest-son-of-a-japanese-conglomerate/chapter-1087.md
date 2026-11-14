@@ -5,77 +5,78 @@ weight = 1087
 chapter = 1087
 +++
 
-<p>Taira Gensuke's attack team, which had decided to attack Taira Ryuta's mansion, divided their attack route into two. This was because there were two entry routes into Taira Ryuta's mansion.</p>
-<p>They divided into Team A, which would attack the entry route leading to the main gate of Taira Ryuta's mansion, and Team B, which would attack the shrine connected to the backdoor.</p>
-<p>Taira Gensuke, of course, wanted to enter proudly through the main gate, so he took charge of Team A, and Kaiho Kyoichi, who was in charge of the Anya Branch in the past, decided to enter as the Team Leader of Team B, which would enter through the backdoor.</p>
-<p>As the top person in charge of overseeing all Anya branches, Kaiho Kyoichi possessed skills equal to or greater than the Anya Four Heavenly Kings.</p>
-<p>When everything at the Anya headquarters, including Takakusaki Gengo, collapsed and he was wondering what to do, it was Taira Gensuke, who claimed to be Takakusaki Gengo's Disciple, who approached Kaiho Kyoichi.</p>
-<p>Kaiho Kyoichi received enormous Rewards and a high position in the Taira Trading Company's South American branch from Taira Gensuke, and handed over the Kwon Masters of the Anya branch to Taira Gensuke.</p>
-<p>Taira Gensuke, dissatisfied with the skills of the Anya branch's Kwon Masters, ordered Brainwashing and Body gaejo for all the Kwon Masters.</p>
-<p>Now that the gaejo and Brainwashing were complete, they became excellent combatants, responsible for one axis of Taira Gensuke's power in Japan.</p>
-<p>Although all the Kwon Masters of the Anya branch were Brainwashed and gaejo due to his choice, Kaiho Kyoichi didn't care at all.</p>
-<p>As a Kwon Master of the same lineage as the Four Heavenly Kings Funayama Seigo, who actively used Jusul, Kaiho Kyoichi had actively used Brainwashing through Jusul when expanding the Anya branch nationwide, so he didn't think it was bad or strange that Taira Gensuke was doing Brainwashing and gaejo.</p>
-<p>Rather, he thought that he should be thanked for making it possible to use them as combatants through gaejo.</p>
-<p>'Everyone be quiet.... Secure the shrine as quickly as possible.'</p>
-<p>Since Team A, which could be said to be the main force, would start attacking the Taira mansion, Team B's jakjeon was to respond from the rear and capture the key personnel on Taira Ryuta's side who were trying to escape, so Kaiho Kyoichi had to secure the shrine as quickly as possible.</p>
-<p>According to what he had found out in advance, there were only a very small number of people at the shrine, so it seemed that there would be no difficulty in securing it.</p>
-<p>"!"</p>
-<p>Kaiho Kyoichi, who was at the head and heading towards the shrine, had no choice but to stop on the spot after passing through the Torii gate. This was because the appearance changed as soon as he crossed the Torii gate, even though it was a normal dark mountain path outside the Torii gate.</p>
-<p>The dark mountain path was gone, and the appearance had changed to a space universe with navy blue color and shining stars here and there, with everyone floating in it.</p>
-<p>"Wh, what should we do?"</p>
-<p>Even though they had been Brainwashed, they weren't just dolls who listened to commands. If it was such a strange phenomenon, they had no choice but to be flustered. One of the Anya Kwon Masters asked Kaiho Kyoichi with a flustered Expression.</p>
-<p>"Don't worry. It's not like I didn't expect this much when attacking the Taira clan. It's probably a Formation."</p>
-<p>Because Kaiho Kyoichi was from a Pabeol within Anya that actively used Jusul, he knew that this situation was due to a Formation.</p>
-<p>Kaiho Kyoichi closed his Eyes, muttered, chanted a spell, made a Suin, and then opened his Eyes. Blue demon fire blazed in Kaiho Kyoichi's Eyes.</p>
-<p>Then, the current cosmic scenery became translucent, and the original mountain path began to appear faintly. Kaiho Kyoichi smiled when he saw the road.</p>
-<p>"Don't pay attention to the surrounding scenery and just follow behind me, and there won't be any major problems."</p>
-<p>Kaiho Kyoichi said, looking at the thirty or so Anya Kwon Masters who were following him. Kaiho Kyoichi took the lead and began to climb the mountain path.</p>
-<p>How long had he been walking? Someone blocked Kaiho Kyoichi's path.</p>
-<p>"I will no longer allow you people to approach."</p>
-<p>The one who appeared was a Beautiful Woman with a voluptuous Mommae wearing Miko clothing. She looked very mysterious with the appearance of the universe visible in the background.</p>
-<p>Kaiho Kyoichi smacked his lips as he looked at the Miko's appearance and smiled slyly. That sly Smile was full of undisguised Lust.</p>
-<p>"Khehehe.... I'm really lucky. Besides the mission bosang, I can get a Woman worth using as a Meat Toilet."</p>
-<p>Kaiho Kyoichi spoke as if the Miko had become his. The Miko frowned slightly at those Words.</p>
-<p>"Mannerheim-ssi asked me to capture you alive, but I'll have to make you an exception."</p>
-<p>"You talk too much unnecessarily. Everyone, capture that Miko without hurting a single hair on her head!"</p>
-<p>If you interpret the Miko's Words, it meant that she already knew about Kaiho Kyoichi and Taira Gensuke's attack, but Kaiho Kyoichi, who was already blinded by Lust, didn't hear it properly.</p>
-<p>He ordered his buha to capture the Miko, but only about ten of them jumped out towards the Miko after hearing his command.</p>
-<p>"...?!"</p>
-<p>Kaiho Kyoichi turned his Head to look behind him in an instant. The Anya branch Kwon Masters, who should have had at least twenty left, had disappeared. He didn't know when they had disappeared, but currently, there were only about ten of them here who had jumped out to capture the Miko.</p>
-<p>Then where did the remaining twenty go?</p>
-<p>As Kaiho Kyoichi was confused by the Question that flashed through his Mind, he saw another surprising Scene.</p>
-<p>Even though the Anya branch Kwon Masters, who had been strengthened by Body gaejo, rushed to capture the Miko, the Miko was leisurely avoiding their hands and defeating them one by one with Kwonbeop. Her movements were as natural as flowing water, and Kaiho Kyoichi realized that the Miko was a Master of Kwonbeop.</p>
-<p>'She's a Strong Person!'</p>
-<p>Kaiho Kyoichi had laughed, thinking that it was ridiculous to block the road with just one person, but the reality was completely different. She was guarding it alone because she could block it sufficiently by herself.</p>
-<p>No matter how much he was at the level of the Four Heavenly Kings, he couldn't fight ten Anya branch Kwon Masters strengthened by Body gaejo at the same time. Kaiho Kyoichi erased the thought of capturing that Miko and making her his sexual Plaything.</p>
-<p>"The capture is canceled! Everyone, take out your guns and shoot her to death!!"</p>
-<p>Kaiho Kyoichi shouted after seeing the Miko, who was using extraordinary skills at a glance and muryeokhwa them one by one.</p>
-<p>The Anya Kwon Masters, who would never have touched a gun normally, now took out their pistols without hesitation and began to fire at the Miko according to Kaiho Kyoichi's command, since they had been Brainwashed.</p>
-<p>Tang, tang, tang, tang!</p>
-<p>The gunfire of the seven Anya branch Kwon Masters, excluding the three who had fallen, continued. The bullets flew towards the Miko at an incredible speed, but soon stopped in the empty space in front of the Miko.</p>
-<p>"Did you think you could wound a Miko in the Divine Domain? It is not 'allowed' for a Miko to be wounded here."</p>
-<p>As the Miko smiled and touched one of the bullets floating in front of her, they all fell to the floor. The fallen lead bullets collided with the stone floor, making a sharp metallic sound, and Kaiho Kyoichi, who had been momentarily stunned by this situation, came to his senses.</p>
-<p>"If guns don't work, then we have no choice but to fight with our fists! Everyone, use Kwonbeop to deal with her! Hurry!"</p>
-<p>This time, Kaiho Kyoichi moved towards the Miko himself along with the command. This was because he had a bad premonition that they would be annihilated if he didn't deal with this Miko.</p>
-<p>"Dieeee!!"</p>
-<p>Kaiho Kyoichi swung his fist full of his Juhryeok. The Miko slipped past Kaiho Kyoichi and the Anya branch Kwon Masters' attacks, and then kicked one of the branch Kwon Masters, knocking him unconscious.</p>
-<p>Kaiho Kyoichi and the Anya branch Kwon Masters' attacks missed every time, and each time, one of them was knocked unconscious by the Miko's counterattack, and their number decreased.</p>
-<p>The Miko didn't attack Kaiho Kyoichi. She was only attacking and knocking out his buha, the Anya branch Kwon Masters. As his buha fell one by one, Kaiho Kyoichi remembered the Words the Miko had said a moment ago.</p>
-<p>-Mannerheim-ssi asked me to capture you alive, but I'll have to make you an exception.</p>
-<p>Besides the meaning that Taira Ryuta's side knew about the attack in advance, it also contained the meaning that she would kill him.</p>
-<p>His buha would end with unconsciousness, but it was a declaration that she would definitely kill him. Death slowly surrounded Kaiho Kyoichi like fog, and by the time he came to his senses, his surroundings were already full of death, and he couldn't even escape.</p>
-<p>"I hope you remember what I said?"</p>
-<p>The Miko, who had knocked out all of his buha, smiled as she looked at Kaiho Kyoichi, who was terrified, and opened her mouth.</p>
-<p>When all ten of his buha had fallen and only Kaiho Kyoichi was left, she seemed to know his Words that kept flashing through his Mind. Kaiho Kyoichi trembled and opened his mouth at the Gaze that seemed to penetrate everything about him.</p>
-<p>"Sa, sa, save...!"</p>
-<p>Kwajik!</p>
-<p>Kaiho Kyoichi tried to say save me, but it was already too late. This was because the Miko's fist, which had gathered the mysterious Aura of navy blue and purple color, did not allow him to finish saying save me.</p>
-<p>"This side is all taken care of. I hope Konoka's side is also taken care of well...."</p>
-<p>The Miko who was protecting the shrine, Hanakame, muttered as he looked at the siche of Kaiho Kyoichi, who had lost his Head.</p>
-<p>TheDreaming-nim requested Teacher Kajung 1. Covering her groin at the airport 2. Emphasizing her breast posture in the airplane~!</p>
+<p>and breast chapter check contains exposure please surroundings this your</p>
+<p>"Aasa, how is Jiro Orabeoni doing?"</p>
+<p>Taira Kanna asked her personal secretary, Sakazuma Aasa, who had assisted her as a secretary since her Student Council days at St. Francisco Girls' Academy, about Taira Jiro's Situation. Because a series of bad incidents had occurred, it was necessary to grasp Taira Jiro's movements.</p>
+<p>Sakazuma Aasa, along with Taira Kanna, had already enrolled in a Foreign Country's University during high school and was now a talented individual with only one year left until Graduation.</p>
+<p>"With the Mithril warehouse attack and the Kitsumasa Assassination Incident overlapping, things feel chaotic. Furthermore, due to disagreements with the UK side regarding the handling of Taira Kitsumasa's Corpse, the transfer is actually being delayed. I expect it will depart two days from now."</p>
+<p>At Sakazuma Aasa's Explanation, Taira Kanna nodded her Head. Currently, Taira Jiro, enraged by the mention of examining his son's Body, had threatened the London police, which had actually complicated The Situation.</p>
+<p>From the perspective of the Japanese government, if they were to immediately comply with Taira Jiro's Threat against their own police, it would appear as if they were succumbing to the coercion, which is why the transfer of Taira Kitsumasa's Corpse is being delayed.</p>
+<p>However, since the Taira Group and the Japanese government are also jointly putting Pressure on the British government, Sakazuma Aasa expected that the transportation of Taira Kitsumasa's Corpse would take place two days later.</p>
+<p>"Information about the Assassination Matter probably hasn't come out yet.... Have you found out who the culprit of the Mithril warehouse attack is?"</p>
+<p>"That was easily found out."</p>
+<p>At Taira Kanna's Question, Sakazuma Aasa nodded her Head. While it was something other Successors couldn't easily figure out, because Taira Kanna was the Master of the Taira Driving System, she was able to easily find out about this Incident.</p>
+<p>The Taira Driving System, under the Pretext of Learning and Error Collection, was collecting operational data from Taira cars nationwide, so it could easily find out what happened on the roads.</p>
+<p>By finding a Taira car parked on the roadside near Taira Jiro's secret warehouse and obtaining only the black box data from its owner, they could Track the vehicle of the group that stole the Mithril.</p>
+<p>"Upon Tracking, the vehicle that stole the Mithril headed towards the port used by Taira Bussan."</p>
+<p>"Is it Ichiro Orabeoni?"</p>
+<p>Since Taira Bussan was the company where Ichiro was the Boss, it was naturally concluded that Ichiro's side had committed the Act, but Sakazuma Aasa shook her Head.</p>
+<p>"I don't think so. Judging by the fact that the vehicles headed towards the South American Sector...."</p>
+<p>"It's Gensuke."</p>
+<p>Although Taira Gensuke was Older than her, Taira Kanna, who had a higher family rank, called Taira Gensuke casually and did not hide her Hatred for Taira Gensuke.</p>
+<p>In fact, not only Taira Gensuke, but Taira Kanna disliked most of her Nephews/Niece.</p>
+<p>All of them were Older than her, and there was Tabenobu, who, like his Father Taira Ichiro, was inscrutable, or Taira Kisa, who lived for his own self-importance, or even the Cat Arisu Fitzgerald, who was close to Taira Ryuta; there were few Nephews/Niece she liked.</p>
+<p>The same was true for Taira Gensuke. Taira Gensuke's endless Inferiority Complex and hot-headed Appearance naturally came across as Hatred to Taira Kanna.</p>
+<p>Moreover, knowing that Taira Gensuke was responsible for the Attack on Taira Ryuta's mansion, her Hatred had deepened even further. In fact, the only Nephew/Niece Taira Kanna liked was Taira Ryuta.</p>
+<p>"Please inform Jiro Orabeoni that the Mithril theft was Gensuke's Act. Before Jiro Orabeoni goes crazy and commits strange acts, it's necessary to let him vent his anger on Gensuke and let off some steam."</p>
+<p>"Understood. It would also be good for us to put Jiro Orabeoni in Debt."</p>
+<p>The Taira Kanna Pabeol, which had just established itself in the Taira Group, was currently solidifying its foundation, so it did not prefer Taira Jiro to take unexpected action.</p>
+<p>Therefore, by informing about Taira Gensuke's Work, they were naturally inducing a fight with Taira Ichiro's side. And in return for providing the Information, they would put Jiro Orabeoni in Debt.</p>
+<p>"Orabeoni will also come to the funeral, won't he?"</p>
+<p>Taira Kanna asked with an Expression of excitement and anticipation, completely opposite to when she had just spoken about Taira Gensuke.</p>
+<p>Sakazuma Aasa also, having attended St. Francisco Girls' Academy with Taira Kanna, knew well that the subject of Taira Kanna's 'Orabeoni' stories was Taira Ryuta.</p>
+<p>"He probably will, won't he? Because there was no Report that Ryuta-nim was injured when Taira Gensuke attacked his mansion."</p>
+<p>"If Orabeoni was injured, I would kill Taira Gensuke with my own Hands."</p>
+<p>At Sakazuma Aasa's Words, Taira Kanna spoke, instantly emitting Killing Intent.</p>
+<p>"Still, Kitsumasa is proving helpful. Because thanks to Kitsumasa's funeral, I can see Orabeoni."</p>
+<p>Taira Kanna, as if she had never emitted Killing Intent, said with a highly expectant Smile, like a Child looking forward to a picnic.</p>
+<p>Having been inaugurated as the Boss of the Taira Driving System and as the sujang of the Kanna Pabeol, Taira Kanna would be busy even if the day doubled in length, so she couldn't make time to meet Taira Ryuta.</p>
+<p>Taira Ryuta also, having been busy managing Taira Yutong, thought he could meet her at this funeral as an opportunity, and did not hide his Expectation.</p>
+<p>The thought of being happy to meet her beloved Orabeoni because of a funeral held due to a Cousin's Death is not something a Normal Person would have, but Taira Kanna was not a Layperson.</p>
+<p>"Orabeoni.... Ehehehe♥"</p>
+<p>Taira Kanna, thinking of Taira Ryuta, who was her Nephew/Niece, Orabeoni, and Husband (?), laughed, "Ehehehe."</p>
+<p>"Kitsumasa's Corpse will likely be transferred two days from now...?"</p>
+<p>Having returned to Fujigasaki Rinka's mansion, I was looking at the Document Eve had obtained and sent from the UK.</p>
+<p>Yesterday, I rested at the mansion, and today, I was so focused on signing a contract with Moth Tactical that I hadn't paid attention, but it seemed Taira Jiro had made an Impulsive Action, causing a Problem with the transfer of Taira Kitsumasa's Corpse.</p>
+<p>Upon checking the Information, Taira Jiro's radical Remark that he would "eliminate the London police who wouldn't immediately send back Taira Kitsumasa's Corpse" seemed to have become a huge Topic for the British government.</p>
+<p>Of course, this Story was not known to the public, but rather because of that Story, the British government and the London police delayed the Corpse transfer period. If they had sent it immediately, they would have been branded with the infamy of having succumbed to Taira Jiro's Threat, so it must have been an unavoidable Decision for the British government.</p>
+<p>If Taira Kitsumasa's Corpse is transferred two days later.... I can also attend the funeral. I'll talk to Mother Mars tomorrow and return to Japan the day after. Taira Kitsumasa's Corpse and I will return to Japan around the same time.</p>
+<p>After seeing the funeral schedule, I can either depart directly from the Airport or rest at my mansion before going, so I'll have to assess The Situation first.</p>
+<p>Looking further at the Information Eve provided, the man who appeared to be the Assassin seemed to have already left the UK. His trace was said to have been lost after a certain port.</p>
+<p>Since the man was first discovered at Ashford International Train Station, which connects France and the UK, he wasn't originally based in the UK. The Probability of him having returned to Europe was high.</p>
+<p>From the limited area of the Island of Great Britain in the UK, the Tracking area has now expanded to the European Continent, so it seemed it would take Taira Jiro more time to identify the Person who killed his son.</p>
+<p>"It's not even my Work, but it's tiring to worry about it."</p>
+<p>I muttered, closing the Information Document Eve had given me on the tablet. In fact, Taira Kitsumasa's Death had nothing to do with me. The only time I had seen his Face was at Taira Saburo's funeral.... If I think about it that way, I'll see Taira Kitsumasa for the last time at this funeral, so he'll be a Cousin I only met at funerals.</p>
+<p>Anyway, Taira Kitsumasa's Death was none of my business, but I had to keep paying attention due to its ripple effect.</p>
+<p>No matter who hired the Assassin, Taira Jiro would undoubtedly seek bloody Revenge, and though I don't know for sure, the Target of that Revenge would probably be the Taira Successors or an Act committed by the Minamoto side, so I couldn't help but pay attention.</p>
+<p>If it was the Taira Successor side, I could unknowingly be swept away by that flow, so I had to be careful, and if it was an Act committed by the Minamoto side, since a Taira Direct Lineage member had died at the hands of Minamoto, Taira Danjo would step forward instead of Taira Jiro, so everyone with the Taira name would have to Attack the Minamoto side.</p>
+<p>I, who am connected to Minamoto Risa, also, while attacking Minamoto, would have to watch someone attacking Minamoto Risa and give Help to Minamoto Risa, making The Situation quite complicated.</p>
+<p>Of course, as The Situation becomes more complicated, it does create an opportunity for my side, which is not yet recognized as a Successor Group, but the Head-ache was unavoidable.</p>
+<p>"Ryuta-jji~! Come out quickly! You said we wouldn't have time after today!"</p>
+<p>As I lay there, suffering from a Head-ache alone, Seizawa Shii's Voice came from Outside the window. Ah, that's right. We were supposed to go surfing together today, weren't we?</p>
+<p>Since I don't know what will happen after I finish my schedule with Mother Mars tomorrow, this was the only time I had to surf and play in the Sea with Seizawa Shii and the other Kids.</p>
+<p>"I'm coming down now."</p>
+<p>I got up from my Seat and said, waving my Hand Outside the window. It seemed I needed to wash away the complicated thoughts in my Mind, caused by Taira Kitsumasa's sudden Death, by surfing.</p>
+<p>Kanna B-cut~!</p>
+<p>Requested by TheDreaming-nim: Kanzaki Saya at an amusement park, 1. Translucent attire and Gun-shooting posture 2. Kneeling and Gun-shooting posture</p>
+<p>1.</p>
+<p>I entered 'men's Trunk', but Dolphin Shorts came out ㄷㄷ Dual pistols and dual Smartphones kkeuk kkeuk kkeuk</p>
+<p>2.</p>
+<p>Requested by Gojoy-nim for Chapter 50: 1. Yukiko holding Hands with the protagonist 2. Kanna at the funeral</p>
 <p>1.</p>
 <p>2.</p>
-<p>I don't know if Teacher Kajung and Phone Ga Laura have bad compatibility, but her Face is getting smudged ㄷㄷ</p>
-<p>Gojoy-nim requested Yukiko 1. Talking in the car 2. Crying in the car~!</p>
-<p>1.</p>
-<p>2.</p>
+<p>Requested by MidNightSKY-nim: Alik emitting jolts~! Sakagami Rena using Explosion Release~!</p>
+<p>Alik~!</p>
+<p>Rena~!</p>
+<p>Requested by NeosBlue-nim: Saya using a Gatling Gun~!</p>
+<p>Super Strength to hold a Gatling Gun with one Hand ㄷㄷㄷ</p>

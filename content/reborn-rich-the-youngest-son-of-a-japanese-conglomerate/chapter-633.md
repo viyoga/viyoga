@@ -5,77 +5,81 @@ weight = 633
 chapter = 633
 +++
 
-<p>I had been to the mansion where Kujo Kina lived once before. As the advisor of the Date Experience Club, I had a one-on-one date with the special class students in turns, and I had a health date with Kujo Kina in the gym inside the mansion.</p>
-<p>,Hello, sensei. Thank you again for helping Kina-yang in Shin-Namgyeong."</p>
-<p>At the entrance of the mansion, Kujo's white-haired butler bowed deeply to me.</p>
-<p>,As a homeroom teacher, it's natural to help my students. You don't have to greet me."</p>
-<p>,Hehe.... Kina-yang will be waiting in the gym you visited before."</p>
-<p>I nodded to the butler and headed to the gym inside the mansion. It was a gym used only by Kujo Kina, but it was quite spacious and had everything it needed. I heard that Kujo Kina's older brother, the next Chairman of the Kujo family, had a great love for his younger sister, and he seemed to give Kujo Kina everything she wanted.</p>
-<p>,Sensei, you're here?"</p>
-<p>When I entered the gym, Kujo Kina, wearing a black workout tank top that showed her abs and lime-colored leggings, greeted me with a slight smell of sweat. She was already working out and sweating a bit. Dumbbells and exercise equipment were placed around her.</p>
-<p>,Did you warm up?"</p>
-<p>,Huh? It's just my daily workout routine?"</p>
-<p>,Really? Don't overdo it."</p>
-<p>Well, with abs like that, there's no way she wouldn't work out every day. For a woman to build her body to that extent, she either has to be addicted to exercise or steroids. There was little chance that Kujo's daughter would be injecting steroids, so she must be addicted to exercise.</p>
-<p>,Then let's go to the arena."</p>
-<p>Past the weight training room, there was an arena with mats where you could practice martial arts forms, and it seemed like she would be training her martial arts here.</p>
-<p>,Should we start with sparring first?"</p>
-<p>Since I decided to give her special training, I was going to start with sparring. I was going to figure out Kujo Kina's strengths and weaknesses while sparring. I put on the gloves hanging on the wall. Still, it's sparring, so I can't hit my student with my bare fists. When Kujo Kina was about to put on gloves, I stopped her.</p>
-<p>,Don't wear gloves."</p>
-<p>,Are you sure, sensei?"</p>
-<p>Since my resistance stat had already exceeded 20, I wouldn't be too shocked even if I got hit by Kujo Kina's bare fists, so I told her to take off her gloves. Kujo Kina seemed to have her pride hurt by my words, and she clicked her tongue and took a stance, looking at me.</p>
-<p>,Attack whenever you're ready."</p>
-<p>,Aren't you underestimating me too much?!"</p>
-<p>Kujo Kina, saying, "Aren't you underestimating me?" simultaneously threw a punch. It was quite fast, but that was it. I deflected Kujo Kina's punch to the side and tapped her side. I didn't hit her hard, but she seemed even more angry because of that, and she kicked me with an "Iik!"</p>
-<p>I wondered if she was angry because I did it weakly, so this time I mercilessly grabbed her ankle and threw Kujo Kina. Still, she hadn't neglected her breakfall training, and Kujo Kina, who landed softly even with my throw, rushed at me again, swinging her fists and feet as if she was furious. It seems like she's just angry at the fact that she's being hit.</p>
-<p>Rather, the attacks she swung in anger were sharper and more threatening than the previous attacks, but the martial artist was the combat style with the shortest range of all combat styles. If you give in to anger, you'll only hurt yourself. That's why the martial artist had to remain calm more than anyone else.</p>
-<p>I blocked and neutralized all of Kujo Kina's attacks as she rushed at me recklessly. In the beginning, she gave in to anger and attacked recklessly, but you can't be angry forever. After a few minutes, Kujo Kina soon regained her composure and began to make precise attacks.</p>
-<p>,Stop."</p>
-<p>I, who had been receiving attacks for a while, opened my mouth. Kujo Kina stopped her hands and breathed heavily, "Haa, haa." I went to the water purifier on one side and got some water and gave it to Kujo Kina. Kujo Kina, who received the water cup, tilted her head back and drank the water heartily. She could do a beer commercial at that level.</p>
-<p>,Let's sit down and talk for now."</p>
-<p>I said, sitting on the mat as it was. Kujo Kina also sat down on the spot as if she understood.</p>
-<p>,First of all, the things to point out are.... Don't get excited during battle. It was much better to calmly attempt techniques towards the end than to get swept up in anger and attack recklessly."</p>
-<p>,I think that's definitely right. When I swing my fists while giving in to anger, I feel like I'm putting too much power into it, so my accuracy is lacking and my stamina is being consumed quickly."</p>
-<p>,And...."</p>
-<p>In fact, there were many things to point out. The thing I wanted to point out the most was that Kujo Kina was a self-taught mixed martial artist who had learned various martial arts. Of course, I didn't mean that mixed martial arts was bad. But you need to have a base martial art that is the foundation, but it felt like she had just learned this and that, so it felt like she had no roots.</p>
-<p>Of course, Alik was also a self-taught swordsman who had learned this swordsmanship and that swordsmanship, but Alik had Shimokawabe Airen, the future Three Sword Master, as his teacher. This was a big difference. Because the teacher can guide you through the many crossroads.</p>
-<p>Of course, Alik had the fraudulent electric-type trait, but if you limit it to martial arts, Kujo Kina wasn't bad either. She had the qualities to become a good martial artist because she had the martial arts prodigy trait, as well as the wild sense and wild body traits that helped her movement. If she continues to train alone like now, it would be no different from wasting her precious talent.</p>
-<p>,And?"</p>
-<p>,It's good to absorb the advantages of various martial arts, but how about learning one martial art properly that will be your root first? Or you could find an excellent teacher."</p>
-<p>In fact, saying this was no different from saying, "Your direction itself is wrong!" so I spoke a little cautiously. But Kujo Kina nodded as if she had felt a lot from the sparring just now.</p>
-<p>,Definitely.... It seems to make sense. Then, can you be my master, sensei?"</p>
-<p>Me as a master was impossible. I was a martial artist armed with stat buffs and traits, a style that pushed through with strength rather than technique.</p>
-<p>Besides, because I had an extremely aggressive style that rushed in without taking care of my body due to my excellent defense and regeneration, Kujo Kina and my conditions were too different to help Kujo Kina.</p>
-<p>If Kujo Kina fought according to my style, Kujo Kina, who had no regeneration, would surely die soon.</p>
-<p>,I'm not good enough to be someone's martial arts master yet. Just a moment.... I wonder who is an excellent martial artist...?"</p>
-<p>I thought for a moment about whether there was anyone who could be Kujo Kina's teacher. Should I ask Fujigasaki Rinka if she has a good teacher? I was already wondering who to entrust the brainwashed martial arts boys and girls rescued from Anya-ji to, so it seemed like I could include Kujo Kina there.</p>
-<p>,I have a method in mind, so I'll ask for now."</p>
-<p>,Okay, sensei. I'll go work out again in the meantime."</p>
-<p>When I took out my phone and spoke, Kujo Kina nodded. Even during this short break, she's working out.... She's really addicted.</p>
-<p>-Taira Ryuta: Teacher, you know that friend who was cursed with berserk from Anya-ji that I mentioned before....</p>
-<p>When I sent a line with a brief explanation, I soon received a reply from Fujikasaki Rinka.</p>
-<p>-Rinka-ttang: I was already thinking of entrusting the kids to a martial artist named Kinui Tachio, so ask her if she's interested too. The only problem is that this person is a martial artist who trains in Mt. Fuji and has no fixed residence, so I'm looking for a place to accommodate all the kids who were kidnapped from Anya-ji. If the residence problem isn't resolved, he says he'll let the kids roam free on Mt. Fuji to train, isn't that too much?</p>
-<p>Mt. Fuji? It's right next to Miyashi. That's even better. Kinui Tachio.... As someone with shallow knowledge of martial artists, I don't know him well, but if Fujigasaki Rinka is entrusting the kids to him, he seems to be a person with no problems in terms of skill and personality.</p>
-<p>-Taira Ryuta: She's rich, so she'll solve the residence problem. And since this neighborhood is near Mt. Fuji anyway, it should be fine.</p>
-<p>-Rinka-ttang: Really? Then the residence problem is solved? As expected, I have a good disciple, so a solution comes out quickly! I'm going to have the kids meet Kinui Tachio-ajusshi tomorrow, so ask if she's coming.</p>
-<p>-Taira Ryuta: Just a moment.</p>
-<p>I paused the Line conversation for a moment and called Kujo Kina. Kujo Kina approached me while holding a dumbbell.</p>
-<p>,Do you know someone named Kinui Tachio?"</p>
-<p>,I know him! He's famous as a wandering martial artist who travels around Japan and breaks into dojos. He was said to be terrifyingly strong when he was young, but now I hear he's traveling around the country to establish the martial arts he's learned."</p>
-<p>He was a famous person. Or maybe Kujo Kina is a martial arts otaku.</p>
-<p>,This time, I rescued one child who was affected by berserk like you and a few children who were kidnapped.... I'm thinking of entrusting them to someone named Kinui Tachio, so I'm asking if you're thinking of becoming a disciple together...."</p>
-<p>,Great! As expected, sensei is the best! To find me a master so quickly."</p>
-<p>Kujo Kina was very happy even before I finished speaking.</p>
-<p>,The story isn't over yet. There's a problem, and that is that since this person is a wanderer, there's no suitable place for the new disciples to be with.... He said he might just let the kids roam free on Mt. Fuji where he trains."</p>
-<p>,That's not a problem. If you just get out of Miyashi, the land prices on the Mt. Fuji side aren't expensive.... Hmm, that's how it'll work out."</p>
-<p>As expected of the young lady of the Kujo Group, she seemed to have finished the calculation quickly in her head.</p>
-<p>,Leave that to me. Is there anything else you need?"</p>
-<p>,Probably not. Do you have time tomorrow? They said they're meeting the new disciples and that Kinui Tachio-ssi."</p>
-<p>,Of course I do! If I don't meet them together tomorrow, I'll become a disciple in order of enrollment, so I have to meet them together no matter what! No, can I meet him first instead? Since I've decided to become a disciple, I want to be the highest-ranking senior."</p>
-<p>After hearing Kujo Kina's words, I conveyed Kujo Kina's answer to Fujigasaki Rinka.</p>
-<p>-Rinka-ttang: It wouldn't be bad to see him in advance if you're going to prepare a place for the kids to be in advance. Ask her if she can come here right now.</p>
-<p>I sent Kujo Kina the location and asked if she could go now, and she looked at me with a look that asked if I was asking the obvious.</p>
-<p>,I have to leave right away, sensei-ssi! If I join even a day earlier, I'll become a senior, right?!"</p>
-<p>____________________</p>
-<p>Leggings Kina</p>
-<p>I was surprised that someone predicted the leggings in advance hehehe</p>
+<p>We continued to hold hands as we strolled through the beautiful villa district, enjoying the scenery before stopping at a cafe. We figured our legs were getting tired from all the walking, and it was cold, so we wanted to rest and warm up while we talked.</p>
+<p>After sitting down and checking out the cafe's atmosphere and menu, it seemed to be a specialty herbal tea cafe. Coffee is common, so this kind of place isn't bad either.</p>
+<p>"This place seems to specialize in herbal teas. What do you want to drink?"</p>
+<p>"I'll have... lavender tea."</p>
+<p>"Then I'll go with today's herbal blend...."</p>
+<p>Since we could order from a kiosk at our seats, we each ordered our drinks and waited for a bit before a woman in a waitress outfit brought our tea.</p>
+<p>We received our warm teas and took a sip, warming our slightly chilled bodies. The complex scent of the blended herbs was quite pleasant.</p>
+<p>"Come to think of it, Urabe-ssi and I don't seem to know much about each other, surprisingly."</p>
+<p>Especially me, I didn't know much about Urabe Konoka. Actually, Urabe Konoka probably knows more about me than other students. She knows that I am Taira, and she also knows that I am related to Simyeonui ttal.</p>
+<p>In the case of other students, I know a lot because of the information investigated by the Taira Group's information team, but Urabe Konoka is a recently</p>
+<p>adopted daughter and suddenly entered St. Francisco Girls' Academy for the first time this time, so the information team didn't have time to investigate, so there was nothing special in the information I received.</p>
+<p>All I know about Urabe Konoka is that she is a shrine maiden of Simyeonui ttal and used to work as an employee at an inn run by her grandmother, so I was curious.</p>
+<p>"How old are you?"</p>
+<p>I knew that Urabe Konoka was an adult, but I didn't know her exact age, so I asked.</p>
+<p>"My father passed away during the first semester of my senior year of high school, and about a year has passed since I dropped out for revenge... I'm the same age as the students who repeated a year in our class."</p>
+<p>Ah, so she's the same age as me. By the way, she dropped out of high school as a mere frail girl to take revenge... Urabe Konoka seems to have a bit of a chivalrous spirit. In a way, it's amazing that she even succeeded in her revenge.</p>
+<p>"It's not something an educator should say, but I think it's amazing that you actually got your revenge."</p>
+<p>"Actually, I was scared too. But after reading my father's will, I couldn't stand doing nothing, so I decided to take revenge with my grandmother."</p>
+<p>Urabe Konoka's father, Ueshima Kosaku, was a man who committed suicide after a fellow teacher stole all of his research.</p>
+<p>Some might think, 'Why would he kill himself over something like that?' but Urabe Konoka's father seemed to feel considerable frustration because he had his life's work stolen before his very eyes.</p>
+<p>"I've told you my story, so please tell me about yourself, Sensei."</p>
+<p>"Hmm... Okay, I guess I can start with this."</p>
+<p>I told Urabe Konoka that I was an illegitimate child. I told her that I didn't know I had a father when I was growing up and that I was suddenly dragged to Taira Saburo's funeral, and she listened to my story with a very interested expression.</p>
+<p>"Ah... it's like something out of a drama. 'The person who thought they were a commoner is actually a member of the Taira Group?!' That kind of feeling."</p>
+<p>"Hahaha, I guess it does feel a bit like that."</p>
+<p>The story of an illegitimate child of a chaebol family is a common trope in melodramatic dramas, so I understood why Urabe Konoka said it seemed like something she saw in a drama.</p>
+<p>"I'm kind of similar to you. I'm an adopted daughter, and you're an illegitimate child, but our status, or something like that, suddenly got higher."</p>
+<p>"Well, yeah."</p>
+<p>It wasn't strange that Urabe Konoka was talking about status since it was a world where capitalism was at its extreme.</p>
+<p>"It must have been hard for you to adapt."</p>
+<p>"Well... my uncles are always looking at me with suspicion. How's the Urabe family?"</p>
+<p>"Well, since it's a family of shamans where divine power is passed down through bloodlines, there are many people in the family who disapprove of me."</p>
+<p>From what I heard, the Urabe family seemed to reject Urabe Konoka even more than the Taira family, where my uncles and aunts didn't even consider me a competitor. I decided to change the subject to lighten the slightly heavy atmosphere.</p>
+<p>"Did your grandmother get out? You said she was going to be released on parole before."</p>
+<p>"Ah, yes. She's selling the inn and will be coming to the mainland soon. As you know, Sensei, the distance from the island is too far, so it's hard to see each other when we want to."</p>
+<p>"Really? Well, since you're here now, it must be hard for her to run the inn alone. If she still has lingering feelings about the inn business, I'll set up an inn for her. If the work is hard, she can just hire employees."</p>
+<p>When I asked, with an exaggerated expression, if I should set up an inn for her, Urabe Konoka smiled, thinking I was joking.</p>
+<p>"I'm not kidding, so think about it. The food I ate at the inn back then was really delicious. The service... it was really nice when a kid named Hamahaka Konoka scrubbed my back while I was bathing."</p>
+<p>"Ah~! What are you talking about?!"</p>
+<p>When I talked about Urabe Konoka attending to me when I was at the inn back then, Urabe Konoka blushed and playfully hit my arm.</p>
+<p>We chatted while talking about each other and the upcoming festival before leaving the cafe when it was lunchtime.</p>
+<p>"What do you want to eat?"</p>
+<p>"Since we were talking about our inn earlier, I want to eat something seafood-related."</p>
+<p>"Then let's walk around and see if there's a restaurant like that."</p>
+<p>I took Urabe Konoka's hand again and walked down the street. We weren't as stiff as when we first held hands, probably because we talked about each other a bit more.</p>
+<p>While walking around the villa district shopping street, we found a restaurant specializing in snow crab course meals. As befitting a wealthy neighborhood, there was a store selling snow crab even though it was far inland. Of course, the price wasn't cheap, but with the wealth I had, I could eat this every day without any problems.</p>
+<p>We ordered the most expensive course meal for three people and ate the snow crab dishes that came out one by one. We ate snow crab in every possible way, including grilled snow crab, steamed snow crab, snow crab sushi, fried snow crab, and snow crab shabu-shabu, and then we ate the meal menu, which included udon noodles boiled in snow crab shabu-shabu broth and snow crab gratin.</p>
+<p>Feeling satisfied, we came out of the restaurant and talked about the food.</p>
+<p>"It was definitely delicious... but since this is inland, the one I ate at the inn back then was fresher and tastier."</p>
+<p>"Right? I was thinking the same thing while I was eating."</p>
+<p>It was definitely a high-end restaurant, so it was delicious, but there was still a difference from eating it in the production area. It was a difference in freshness, so there was nothing the restaurant could do about it.</p>
+<p>"We've had lunch, so let's go somewhere else now."</p>
+<p>We had been walking around the villa district since morning, so I thought we had seen enough, and we returned to the parking lot where we had parked the car.</p>
+<p>"Where do you want to go?"</p>
+<p>I actually had a date plan set up, so I was just asking out of courtesy. If we played statically in the villa district, this time I had reserved a bowling alley or a table tennis hall to play a little more dynamically than in the morning.</p>
+<p>"...."</p>
+<p>Urabe Konoka suddenly went silent at my question. What's wrong...? I thought, and when I looked at her, Urabe Konoka, whose face was completely red, looked at me.</p>
+<p>"Are you sick? Do you have a fever...?"</p>
+<p>Her face was so red that I put my hand on Urabe Konoka's forehead, and it was definitely a little hot.</p>
+<p>"You really have a fever? Is it because we were outside for too long today?"</p>
+<p>"It's not a fever from being sick."</p>
+<p>At my fuss, Urabe Konoka smiled slightly and grabbed the hand that was on her forehead and pulled it down.</p>
+<p>"I'm blushing because I'm embarrassed about what I'm about to say."</p>
+<p>"What you're about to say?"</p>
+<p>What is she so embarrassed about that she's blushing this much? I waited for Urabe Konoka to open her mouth.</p>
+<p>"What you asked, Sensei."</p>
+<p>"You mean where I asked where you wanted to go?"</p>
+<p>Urabe Konoka nods when I ask back. Hmm... Where does she want to go that she's stalling like this?</p>
+<p>"Where I want to go is...."</p>
+<p>Urabe Konoka stops talking again. Seriously, she's not Kim Seong-ju, but why is she being so frustrating? I really wanted to tackle her, but I waited again, looking at Urabe Konoka's face, which was as red as a carrot.</p>
+<p>"I, I, I want to go somewhere where it can just be the two of us, Sensei...!"</p>
+<p>If it's a place where it can just be the two of us, is she talking about a place where a man and a woman take off their clothes and combine their genitals in a reproductive act? I'm not misunderstanding, am I?</p>
+<p>"Really?"</p>
+<p>"Yes...."</p>
+<p>At Urabe Konoka's shy but firm answer, I immediately started the car. If the woman has mustered up this much courage, I can't just stand still. I quickly started the car to find a nearby lodging.</p>
+<p>_________________________________</p>
+<p>Next episode preview...!</p>
+<p>See you in the next episode without underwear, hehe.</p>

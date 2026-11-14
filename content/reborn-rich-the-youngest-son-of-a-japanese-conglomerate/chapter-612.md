@@ -5,92 +5,60 @@ weight = 612
 chapter = 612
 +++
 
-<p>When I opened my eyes, Otagi Yuka was already in my arms. I wondered how she got in, but she probably used her vampire ability, mist form, to enter the room.</p>
-<p>Normally, I'd wake up immediately if someone lay down next to me, but I was so tired yesterday that I didn't even notice Otagi Yuka lying next to me and just kept sleeping.</p>
-<p>In fact, one of the least tired people from yesterday's battle was Otagi Yuka, because she absorbed a lot of blood from the cyber zombies during the battle, restoring her stamina and vigor.</p>
-<p>Actually, even though they're called zombies, they're just humans with modified brains and increased aggression, so they don't have spoiled blood, and there was no problem for Otagi Yuka to absorb their blood.</p>
-<p>Of course, their blood might be contaminated with metallic toxins due to all the cyber implants, but unless it's silver, vampires can refine and absorb the metal in the blood, so it was fine.</p>
-<p>Still, a girl the size of a child coming to her teacher's bed in the middle of the night, wearing only a big shirt over her panties and sleeping soundly... It's a relief that the teacher is me.</p>
-<p>Looking at the curtained hotel window, the outside was still a dark blue dawn with a twilight glow. There was still plenty of time before breakfast. Then, I decided to put in the level-up points I had planned to use before going to sleep and get a new trait.</p>
-<p>I put one hand inside Otagi Yuka's shirt, enjoying the soft, squishy feel of her breasts, and looked at the level-up window in front of me. I should allocate stats first. I summoned the status window to allocate stats.</p>
-<p>◆Name: Jin Yong-tae/■■■/Taira Ryuta/Yamashiro Ryuta: Lv15</p>
-<p>Strength: 16 Agility: 13 Stamina: 16 Resistance: 19 Recovery: 12 Nerves: 12 Appearance: 17</p>
-<p>Intelligence: 8 Knowledge: 8 Concentration: 7 Willpower: 20 Creativity: 6 Charm: 15 Judgment: 5</p>
-<p>Luck: 5 Abyss: 17</p>
-<p>Remaining Stats: 2</p>
-<p>◆Shinkai Yatsude</p>
-<p>◆Black Maitreya Art</p>
-<p>◆Shadow Domination</p>
-<p>◆Telekinesis</p>
-<p>◆Telekinetic Reactive Shield</p>
-<p>◆Magic Circle Usage</p>
-<p>◆Acting</p>
-<p>◆Education</p>
-<p>◆Language - English</p>
-<p>◆Management</p>
-<p>◆Regeneration</p>
-<p>◆Crimson Pillars of Carnage Swimming in Vaginal Fluids</p>
-<p>◆Sense of a Saint</p>
-<p>◆Limit Break: Willpower</p>
-<p>◆Abyss Affinity</p>
-<p>◆Dojang of the Daughter of the Abyss</p>
-<p>◆Telekinesis</p>
-<p>◆Cambion's Flesh</p>
-<p>◆Magic Circle [Offering to the Daughter of the Abyss]</p>
-<p>◆Purity Worship</p>
-<p>◆Brand of the Daughter of the Abyss</p>
-<p>◆Body Entwined in the Abyss</p>
-<p>◆Saint of Fistfights</p>
-<p>◆Sacred Pillar</p>
-<p>◆Telekinetic Reactive Shield</p>
-<p>◆Dragonslaying (Dragon Killing)</p>
-<p>I must have worked hard, because the Language - English skill and Management skill had appeared in the skill slots. Still, my time at school wasn't completely wasted. It was a time when I could develop myself in my own way.</p>
-<p>"First, put one into Resistance...."</p>
-<p>First, I put one stat into Resistance, which was at 19, to make it 20, and then checked the stat window again for a moment. I was wondering where to put the remaining stat. Should I allocate a stat that would be immediately helpful in combat, or should I break the limit of the 20 Willpower stat or the 20 Resistance stat and make it 21? I was worried because there might be a battle with a giant zombie robot in the future.</p>
-<p>"Come to think of it, Resistance is also a combat stat. Let's just make Resistance 21."</p>
-<p>Resistance was a trait that had various benefits such as defense and immunity. It also matched my Regeneration trait along with the Recovery stat, so I decided to choose Resistance. No matter how good my regeneration was, I would die if I collided with a giant robot and was shattered into pieces, so I decided to allocate to Resistance, which governs defense. I need to withstand at least one hit to recover my body with regeneration.</p>
-<p>The moment Resistance broke through the limit of 20, I definitely felt something change. That's because a translucent window immediately appeared in front of me, announcing that I had broken through the limit.</p>
-<p>-The Resistance stat has broken through the limit. The efficiency of the Resistance stat is greatly increased. Reduces 20 percent of the enemy's final damage and strongly resists diseases. Acquired the trait Spectral Skin!</p>
-<p>◆Spectral Skin [Limit Break Trait]: Physical defense is increased, and two-thirds of physical defense is applied to spell/magical attacks and elemental attacks.</p>
-<p>Oh...! The Limit Break trait was a slightly random trait, and I got a pretty good one. It wasn't a trait that was given every time I raised a stat after 21, but a trait that was only given when I broke through the limit of 20, so if I was unlucky, a trait that didn't suit my current style might appear.</p>
-<p>Of course, it's not like there's no way to change the Limit Break trait if I don't like it, but I'm quite lucky this time. I got a good trait that I don't need to change. Spectral Skin is a pretty sweet trait that can block some elemental damage or magical damage with normal defense.</p>
-<p>Now that I've allocated all my stats, should I choose a trait this time?</p>
-<p>LEVEL UP!</p>
-<p>Please select a trait.</p>
-<p>①Modified Wire Tentacles ②Two Dragon Heads ③Gun Specialist</p>
-<p>As expected, I wasn't lucky, so the first traits weren't very good. Wire Tentacles was a pretty high-grade cyber implant trait that could move numerous wires to stick into mechanical opponents and exert dominance or directly hack into computers, but it was meaningless to me, who was using the Purity Worship trait.</p>
-<p>Two Dragon Heads meant a dragon with two heads, but it was a trait that made you have two dicks. It was treated as a mutation trait, and it wasn't like I could insert into two women at the same time just because I had two dicks, so it didn't suit me, who was using the Purity Worship trait, so I decided to just skip it.</p>
-<p>Gun Specialist  was a trait with many enthusiasts. There were so many people who went for gun traits, and among them, there were many people who liked shotguns, but it didn't suit my style, which was fistfights + superpowers.</p>
-<p>The [Potential Enhancement] option of the item [Wish-Fulfilling Pearl] can change the trait that can be selected by leveling up to a higher-grade random trait. Would you like to change it?</p>
-<p>As soon as I thought about changing the trait list, a translucent window appeared. Of course, my answer was yes.</p>
-<p>Please select a trait.</p>
-<p>①Blessing of the Stars ②Telekinetic Body ③Mental Strike</p>
-<p>Oh...! Pretty useful traits came out. If I were to talk about them in order of uselessness to me, Blessing of the Stars was a useful trait for the star magic that Han Yu-gyeong has, so it was useless to me, and then Mental Strike was a trait that allowed characters who do physical attacks to attack enemies who ignore physical damage, such as spirits or ghosts, but I had the Abyss, which could be said to be a higher version of it.</p>
-<p>The Telekinetic Body trait was a trait needed to fly with telekinesis, which I had been talking about before. As the name Telekinetic Body suggests, it was a trait that made my telekinesis receive my body better. Besides telekinetic flight, it was a pretty good trait because it allowed for various applications such as adding telekinesis to fistfights as propulsion to increase attack speed and damage.</p>
-<p>Of course, I wouldn't be able to fly as soon as I chose this trait, and practice would be needed, but it was still a trait with quite high potential, and the other traits were unnecessary for me, so I chose Telekinetic Body.</p>
-<p>◆Telekinetic Body [Unique Trait]: A trait that can only be acquired by users with telekinesis. It makes the user's body more responsive to their telekinetic abilities, enhancing the power of their telekinesis, allowing more precise control, and reducing the amount of willpower required.</p>
-<p>It was a trait that not only allowed for various applications but also strengthened telekinesis itself, so I would be able to apply telekinesis to combat even better.</p>
-<p>"Heung...! How long are you going to keep groping, Teacher-ssi?"</p>
-<p>Ah, that's right. I was just unconsciously groping Otagi Yuka's breasts. I must have groped them for a long time, because Otagi Yuka seemed to have woken up.</p>
-<p>"So, you don't like it?"</p>
-<p>When I asked with a slight smile, Otagi Yuka blushed and shook her head.</p>
-<p>"Nooo.... Don't just torment my breasts...♥"</p>
-<p>Otagi Yuka put one leg on my thigh, pressed her crotch against me, and slowly rubbed my most private area. Her crotch was hot, probably because she was excited by me constantly touching her breasts.</p>
-<p>"Everyone else is still asleep.... There's plenty of time for us to do it once, Teacher-ssi♥"</p>
-<p>I can't help it. I started the fire of Otagi Yuka's desires, so I have no choice but to take responsibility.... I got up and took off Otagi Yuka's panties.</p>
-<p>###</p>
-<p>While the students and teachers of St. Francis Girls' Academy were overcoming the zombie attacks and falling asleep in the hotel, the world was buzzing about the Neo Nanjing City virus incident.</p>
-<p>In particular, the medical community was in a state of confusion because it was showing a different pattern from the spread of a typical virus.</p>
-<p>-It's strange that it doesn't show much spread in other places.</p>
-<p>-Especially the fact that all the virus patients are wearing cyber implants....</p>
-<p>In a video conference of the WHO (World Health Organization), infectious disease experts were giving their opinions. As they talked, the doctors were gradually approaching the truth, which was that the cause of the current situation was not a typical virus but a type of computer virus.</p>
-<p>-No suspected virus has been found in the bodies of the infected victims.</p>
-<p>-I'm not 100 percent sure, but based on the facts that have been revealed, I think a computer virus has infected the cyber implant operating system.</p>
-<p>It didn't take long for the opinions of infectious disease experts to be known to the world. A virus in cyber implants is the cause of the zombie incident...! People felt wary of cyber implants. Is it even possible that you turn into a zombie if you have cyber implants?</p>
-<p>Due to this incident, the stocks of cyber implant-related companies around the world began to plummet. It was something that no one had expected, so it left financial losses for many people, but only a few people benefited.</p>
-<p>"As expected of Ryuta-nim...."</p>
-<p>Eve muttered, recognizing the countless pieces of information pouring in. Before going on the graduation trip, Taira Ryuta had told her to liquidate his liquid assets and bet on the crash of the world's cyber implant companies if a virus broke out in Neo Nanjing City, so he was making a huge amount of money now that the crash had begun.</p>
-<p>Eve herself and Han Yu-gyeong, who were with Taira Ryuta, were happy to see their assets multiply several times in an instant. Of course, this happiness could only be properly enjoyed if Taira Ryuta returned safely, but they all believed that he would return safely.</p>
-<p>_______</p>
-<p>Dongtan Dress Series Otagi Yuka Edition!</p>
-<p>Otagi Yuka in a different art style</p>
+<p>「Wow.... What's Sword and Gun Stance? Isn't it super broken?」 Otagi Yuka, who was listening beside me, said in surprise. While the Sword and Gun Stance Trait is indeed broken if its conditions are perfectly met, those conditions are difficult to achieve, requiring other Traits to manifest as desired, making it a very challenging Trait to fulfill.</p>
+<p>「I.... I'm satisfied that the Limbs Loss debuff attached to my Status Window is gone.」 Saionji Diana smiled, seemingly satisfied. In fact, when her Stats were checked before, it was prior to equipping cyber implants, so her Stats were extremely low due to the Limbs Loss debuff. Thus, Saionji Diana seemed content with the debuff being gone. Still, since her Level had risen significantly and she had even gained good Traits, she could be called an excellent combat agent.</p>
+<p>「Then it's my Turn! I'm curious too.」 Was it Otagi Yuka's Turn? To be honest, I was curious about Otagi Yuka's Stats as well. Due to the Vampire Race Trait, raising Blood Energy Stats through Blood Sucking is more important than Leveling up, and since she had absorbed an enormous amount of Blood in New Nanjing City, I was curious how much it had increased.</p>
+<p>I looked at Otagi Yuka while wearing the Ruins' Glasses. ◆Name: Otagi Yuka (愛宕 夕香) Lv14</p>
+<p>Strength:16 Agility:16 Stamina:16 Resistance:16 Recovery:16 Sensitive Nerves:16 Appearance:16</p>
+<p>Intelligence:8 Knowledge:7 Focus:10 Will:9 Creativity:3 Charm:15 Judgment:8</p>
+<p>Luck:6 Blood Energy:16 Satiety: 98/100</p>
+<p>◆Akagamikiba Style (赤神牙式: Red God Fang Style) (Unique Swordsmanship Lv12) ◆Otagi Style Blood Energy Sorcery (Atago-ryu Kekki Jujutsu) (Unique Sorcery Lv9) ◆Investigation (Normal Skill Lv8) ◆Cooking (Normal Skill Lv8) ◆Linguistics (Normal Skill Lv10) ◆Special Driving (Special+ Skill Lv8) ◆Fog Flight (Epic Skill Lv6)</p>
+<p>◇Vampire's Physical Body - Otagi (愛宕) [Legendary Bloodline]: All physical body stats, except for Appearance, are tied to the special stat called Blood Energy. However, even if the Blood Energy stat exceeds its limit, the physical body stat will only increase up to its own limit if that limit is not unlocked.</p>
+<p>With the Vampire's Physical Body, the Limit of all Stats increases by 2, and the more frequently Blood Sucking is performed, the more the Blood Energy Stat rises. The higher the Blood Energy Stat, the higher the regeneration and the additional Proficiency in Blood Energy Skills.</p>
+<p>At Night without the Sun, Blood Energy increases by 120 percent, and if the target of Blood Sucking does not completely die, they can be controlled as a Vassal.</p>
+<p>If Blood Sucking is not performed and Satiety drops below 40, the Blood Energy Ability is only applied by the Satiety's multiplier, and Stats given upon Level Up are halved and not invested in the Blood Energy Stat.</p>
+<p>Becomes very vulnerable to Silver and is also weakened by Light and Flame attributes.</p>
+<p>As a member of the Otagi (愛宕) family vampire, has an exceptional talent for swordsmanship.</p>
+<p>◆Fog Transformation [Epic Race Trait]: Vampire Race Trait. Can transform into a blood-red Fog. When in Fog Transformation, physical Damage is reduced by 70 percent, and continuous Damage can be dealt to enemies within the Fog.</p>
+<p>◆Blood Energy Affinity [Unique Trait]: Freely manipulates Blood Energy. The Power of all Skills and Traits using Blood Energy increases by 145 percent, the maximum value of the Blood Energy Stat increases by 2, and the efficiency of the Blood Energy Stat increases.</p>
+<p>◆Blood Energy Regeneration (血氣再生) [Epic Race Trait]: Significantly boosts regeneration power based on Blood Energy. Increases the maximum Blood Energy and Recovery values by 1, and raises Blood Energy by 2. Regeneration can be further enhanced by consuming Satiety.</p>
+<p>◆Noble of the Night [Epic Race Trait]: Charm Stat increases by 2, and its maximum value also increases by 1. The probability of successfully Seducing the opposite sex increases. In the case of the same sex, Seduction is also possible in proportion to Charm. If Seduction is successful, the Opponent is afflicted with the Status effect .</p>
+<p>◆Curtain of Darkness [Epic Race Trait]: Damage from Light and Flame Attributes is reduced, and the Blood Energy multiplier that increases at Night increases to 130.</p>
+<p>◆Mutation - Absorption (Semen Absorption) [Rare+ Race Trait]: Vampire Race Trait. When a male's semen, containing strong life force, is absorbed through the uterus or orally, it is treated the same as blood-sucking. The efficiency of Blood Energy increases.</p>
+<p>◆Blood Physical Body [Legacy Race Trait]: Vampire Race Trait. The maximum value of Physical Body Stats is linked to the maximum value of Blood Energy Stats. The maximum value of the Blood Energy Stat increases by 1. Oh, her Level went up by 2, and her Blood Energy Stat also increased by 2. As expected, the broken nature of the Vampire Race was revealed here. Because the Blood Energy Stat and Physical Body Stats are linked, even if she diligently sucks Blood, her Physical Body Stats rise on their own without Leveling up.</p>
+<p>Of course, as the game progresses, the amount of Blood Sucking required to raise 1 Blood Energy increases exponentially, but since Vampires live long, they can grow stronger just by consistently "eating" (?), so it wasn't a significant demerit. Seeing this, the Silver Stake Alliance, which is hostile to Vampires, seemed impressive once again. Although they weren't on good terms with us, the Silver Stake Alliance kept the Vampires in check, preventing their power from growing in this World.</p>
+<p>And though it wasn't important, she seemed to be maintaining her Satiety well by consistently stealing and consuming my Semen.</p>
+<p>The Skills, which were divided into Linguistics-English and Linguistics-Korean language, merged as her Korean language Skill improved, and perhaps because she had many occasions to drive large vehicles recently, Special Driving appeared. And a Skill called Fog Flight appeared, which seemed to naturally follow if she frequently trained her Fog Transformation Trait.</p>
+<p>Vampires are truly broken. While I, with two Traits, had only just barely managed to fly.</p>
+<p>However, despite Otagi Yuka's various advancements, the most significant point of attention was the new Trait, Blood Physical Body.</p>
+<p>The biggest reason Vampire characters couldn't perform well in the late game was that even if their Blood Energy was high, if their Physical Body Stats' maximum value was low, they couldn't break through their Limits. Blood Physical Body was a broken Trait that matched the maximum value of Blood Energy Stats with the maximum value of Physical Body Stats.</p>
+<p>No matter how good a Trait a Vampire got, if that Blood Physical Body Trait didn't appear, they would eventually be treated as a failed character because they couldn't perform in the late game. So, Otagi Yuka was very Lucky that this Trait had appeared for her now. Of course, she still had to raise her Blood Energy Stat a lot, so she wouldn't feel stronger right away.</p>
+<p>「Yuka's Level went up by 2, and....」 When I explained her Stats to Otagi Yuka, she seemed a little unenthusiastic. Perhaps because Saionji Diana had gained 4 Levels earlier, she felt her own growth was stagnant. To make such an unenthusiastic Expression despite gaining a broken Trait....</p>
+<p>「Listen carefully. So, this Blood Physical Body, you see. It might seem useless because it doesn't make you stronger right away, but in the late game, it will....」 As I passionately explained the new Trait Otagi Yuka had gained, she finally nodded her Head, realizing, 「Ah, it's a good thing.」</p>
+<p>「Sensei-ssi, I understand enough now, so please look at Sakagami-yang.」 「Liege-nim, I'm nervous.」 As if my passionate explanation was enough, Otagi Yuka had Sakagami Rena sit in front of me. Sakagami Rena was worried that her growth might have slowed down. Sakagami Rena had also taken on various tasks under me, so her Level must have risen quite a bit. Didn't she gain at least 3 Levels?</p>
+<p>◆Name: Rena Sakagami (坂上 令梛) Lv13</p>
+<p>Strength:6 Agility:16 Stamina:8 Resistance:4 Recovery:4 Sensitive Nerves:16 Appearance:15</p>
+<p>Intelligence:7 Knowledge:7 Focus:8 Will:9 Creativity:3 Charm:12 Judgment:14</p>
+<p>Luck:8 Magic Power:16</p>
+<p>◆Sakagami Style Ninjutsu (坂上流 忍術) (Epic+ Ninjutsu Lv16) ◆Bone Law Tiger Fall Style (骨法 虎倒流) (Epic+ Fist Technique Lv10) ◆Sakagami Style Bedroom Arts (坂上流 房中術) (Epic Bedroom Arts Lv8) ◆Linguistics (Normal Skill Lv13) ◆Marksmanship (Normal Skill Lv10) ◆Investigation (Normal Skill Lv17) ◆Information Analysis (Special Skill Lv8) ◆Nagumo Style Illusion Magic (Unique Skill Lv6) ◆Onmyoji Magic - Shikigami Magic (Epic Skill Lv4) ◆Eye Technique (瞳術) (Unique Skill Lv1)</p>
+<p>◇Bloodline - Sakagami (血統-坂上) [Unique Bloodline]: According to the Sakagami Ninja Bloodline passed down through generations, the skill coefficient inherited from the Sakagami Family (坂上家) increases by 1.3 times. Grants the special stat, Magic Power.</p>
+<p>◆Owl's Eye [Rare+ Trait]: Can see through Darkness and, with mental Focus, can see far distances.</p>
+<p>◆Ninjutsu Genius [Growth-type Epic Trait]: Can easily learn Ninjutsu. Depending on Effort, the Trait can change to one of Ninjutsu Master/Seongin/Superhuman.</p>
+<p>◆Night Stalker [Epic Trait]: Can conceal one's presence. Reduces the chance of being detected when in Concealment. Critical hit probability greatly increases when performing an Ambush.</p>
+<p>◆Detective's Eye [Rare+ Trait]: Focus, Judgment, and Luck increase when investigating something. The probability of discovering new facts during investigation increases.</p>
+<p>◆Talent for Escape Arts (遁術) [Unique+ Trait]: Ability to learn Escape Arts, which are part of Ninjutsu. Increases the effectiveness of Escape Arts and reduces Magic Power consumption. Magic Power increases by 3, and the maximum value increases by 2.</p>
+<p>◆Magic Circuit [Epic Trait]: Magic Power Stat and its maximum value increase by 1, and efficiency increases. When using Magic, Magic Power consumption decreases by 35 percent, and Magic activation speed increases.</p>
+<p>◆Eye Technique (瞳術) - Weakness Insight [Unique Trait]: Can identify an opponent's weak points in battle. Increases the chance of landing a critical hit.</p>
+<p>Outside of Battle, can discern an Opponent's Lies, and when investigating an Opponent, it becomes easier to identify non-combat Weaknesses. As expected, her Level went up by 3. Impressive.</p>
+<p>The Stats were unremarkable, so I moved on, but she had gained no less than four Skills. Unlike Traits gained immediately upon Level Up, these were Skills that required time and effort to learn, showing how diligently Sakagami Rena had worked.</p>
+<p>Information Analysis seemed to have developed from her diligent efforts as the Investigation Hall was established, and Nagumo Style Illusion Magic seemed to have come from learning Illusion Magic from Yukiko. Since Yukiko also learned from Nagumo Sian, it would naturally be called Nagumo Style Illusion Magic.</p>
+<p>Shikigami Magic seemed to have been learned after I requested the Naruse Family to send an Instructor to teach basic Shikigami Magic, and Eye Technique is a Skill that can only be learned with an Eye Technique Trait, so she must have gained an Eye Technique-related Trait.</p>
+<p>As her Level had risen by 3, she gained 2 Traits, and Magic Circuit, though Epic-grade, was quite good. While the reduction in Magic Power consumption and increased Magic activation speed felt somewhat modest, it was an extremely useful Trait for Sakagami Rena, who uses various Magic, including Escape Arts, Illusion Magic, Shikigami Magic, and Eye Technique. Now, both her Combat power and combat Stamina would increase.</p>
+<p>Finally, the Eye Technique - Weakness Insight that appeared was very good. To explain the Eye Technique first, it was a skill researched to gain a Demonic Eye (魔眼) through the power of magic, but this too could only be learned by those who had Talent as a trait.</p>
+<p>Eye Technique - Weakness Insight is simply described as being able to identify an Opponent's Weakness, but knowing an Opponent's Weakness in Battle was extremely useful, and especially outside of Battle, discerning an Opponent's Lies and identifying non-combat Weaknesses was an incredibly good Skill for an information agent.</p>
+<p>「By the way, what does 'non-combat Weakness' mean?」 Otagi Yuka, who was listening beside me, asked. In truth, "non-combat Weakness" was a somewhat ambiguous phrase.</p>
+<p>「So, for example, when investigating a Person named A, you can more easily find things like A's corruption, or know that A's granddaughter is a Weakness because A cherishes her granddaughter.」</p>
+<p>「What? Is that possible with a Trait?」 「Since Eye Technique itself was created to imitate the Authority of a Demonic Eye, it must be touching the Domain of Authority.」 At my Explanation, Otagi Yuka and everyone else seemed surprised. Sakagami Rena, unlike Otagi Yuka, seemed satisfied with her growth.</p>
+<p>「Seeing that you've gained many Skills, you've worked hard.」 I stroked Sakagami Rena's Head. Sakagami Rena smiled pleasantly, as if pleased to receive Praise from her Liege-nim.</p>
+<p>「Sensei-ssi, no favoritism! Stroke me too~!」 「Me too, Teacher-nim.」 「Please look at my Status Window quickly and praise me too♥」 It was as if they were jealous Large Dogs; as soon as I stroked one, they all rushed at me, asking for Praise. In the end, I had no choice but to stroke each of their Heads one by one to calm them down.</p>
+<p>Sakagami Rena made with Otagi Yuka's B-cut art style! This art style suits her quite well, hehehe.</p>

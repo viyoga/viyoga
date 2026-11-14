@@ -5,69 +5,95 @@ weight = 1057
 chapter = 1057
 +++
 
-<p>and chapter check contains erotic please surroundings this your Tang!!</p>
-<p>The moment flames flared from the Muzzle, Kurayamada Kirie's pupils tore vertically, and the wolf Blood of the Kurayamada Family surged within her.</p>
-<p>Kurayamada Kirie approached Whisper, displaying the skill of deflecting the Bullet fired at her with her Sword.</p>
-<p>-Fuck. Off!!</p>
-<p>Kurayamada Kirie had no choice but to retreat from the sound wave Attack that poured out like a lion's roar. She swung her Sword as Taira Ryuta had torn through a sound wave barrier with his Fist, but the sound waves Whisper fired contained a debuff effect that slowed the opponent.</p>
-<p>Due to the slowing debuff, Kurayamada Kirie's sword strike, unable to gain sufficient Acceleration, could not tear through Whisper's sound wave Attack. Caught in Whisper's sound wave Attack and forced to retreat a considerable distance, Kurayamada Kirie thought that Whisper possessed a rather troublesome Ability.</p>
-<p>A Voice Attack boasting an immense range, and the Ability to even inflict debuff effects with that Attack...! She had received Information from the Federal Superpower Management Bureau in advance and knew about it, but merely knowing the Information and experiencing it directly in combat were vastly different.</p>
-<p>Whisper shot her Gun at the slowed Kurayamada Kirie, but Kurayamada Kirie batted away the Bullet even with her slowed Sword. This was because Kurayamada Kirie's innate wild Sensation already allowed her to know the Bullet's trajectory, so even if her speed was slightly reduced, she could block it in advance.</p>
-<p>"Slowing sound waves and Gun attacks... A simple but incredible combo. I'd be forced to take it even knowing."</p>
-<p>Having heard that Whisper could use various debuffs, Kurayamada Kirie, judging that she had no Chance of Winning like this, abruptly cut the Handle of a nearby Home and went Inside.</p>
-<p>"!?"</p>
-<p>Whisper was flustered when her opponent, who had been fighting her, suddenly went Inside the House. She couldn't help but be flustered when her opponent, who had confidently spoken of prophecy and her victory just moments ago, ran away without a shred of Hesitation.</p>
-<p>No matter that Whisper was one of Superior's 10 ganbu, said to be the best superpower terrorist group in the world, a year ago she was merely a female college student full of dreams. Her Combat Experience was not as extensive as expected.</p>
-<p>To be more precise, while the Frequency of her battles was quite high, because her superpower was so good, she easily won most battles, so the Quality of her experience could be said not to be high.</p>
-<p>Compared to Kurayamada Kirie, who had been active in terrorist groups since childhood and participated in all sorts of battles, the quantity and Quality of Whisper's Combat Experience could not even be compared.</p>
-<p>Taang!</p>
-<p>While Whisper was flustered for a moment, Kurayamada Kirie had, before she knew it, pierced through a Wall with a Gun instead of a Sword and sniped her. Whisper was hit by the Bullet and fell; she had survived because she unconsciously erected a sound barrier around herself when entering battle, otherwise, her cyber Suit would have exploded, and she would have died or been severely injured.</p>
-<p>"I'll blow you away along with this Building...!"</p>
-<p>Whisper, who stood up from her Seat, muttered in an angry Voice and took a deep Breath.</p>
-<p>-Fucking die!!!!!</p>
-<p>With an ear-splitting Scream, the 5-floor apartment began to collapse. One might ask how she could collapse a Building with just a Voice, but this was precisely Whisper's boasted Scream of Destruction.</p>
-<p>Everything touched by the Scream of Destruction was Disassembled and turned into Powder, so it was a technique she didn't often use if colleagues were present, but since Behemoth, who came to New York with her, was coincidentally not here, she could use it freely.</p>
-<p>However, Kurayamada Kirie was not someone who didn't expect such a Counterattack. Even before firing the Gun, Kurayamada Kirie had immediately reacted to the shock, installed an exploding Bomb, and had already evacuated the Place.</p>
-<p>Kwakwakwakwang!!!</p>
-<p>With a roar, the explosion engulfed Whisper. Although she dodged the explosion with her sound barrier and the Scream of Destruction she had fired, she was thrown back and had no choice but to fall due to the shockwave.</p>
-<p>This was precisely Kurayamada Kirie's terrifying point. Even when fighting as a Swordsman, if it became dangerous, she would not hesitate to enter terrorist mode and commit cowardly Acts anytime.</p>
-<p>Furthermore, now that she was operating an official PMC with financial support from Taira Ryuta, Kurayamada Kirie's Agonggan contained the latest military-grade equipment.</p>
-<p>Thanks to her equipment being upgraded, it could be said that her terror Ability was even stronger now than during her terrorist days.</p>
-<p>"Kueuk...!" Tang!</p>
-<p>As soon as Whisper, caught in the explosion, shook her Body and stood up from her Seat, another sniper shot. This time, it was a gunshot fired from the collapsed adjacent Building.</p>
-<p>"Is that where you are?!"</p>
-<p>Whisper once again used the Scream of Destruction to collapse the Building. This time it was a high-rise Building over 50 floors, and the Building collapsed with one blast of Whisper's Scream of Destruction.</p>
-<p>In fact, due to the battle for the fragments of omniscience, all the Buildings in the Surroundings were collapsing, burning, and exploding, so it wasn't special, but to produce this much power with just one Voice meant that Whisper possessed considerable potential.</p>
-<p>"Your Voice is quite booming."</p>
-<p>This time, she thought she absolutely couldn't escape, but before she knew it, Kurayamada Kirie was behind Whisper, holding a Sword against her Neck.</p>
-<p>"H-how...? If you're human, you absolutely shouldn't be able to avoid it...."</p>
-<p>"Have you heard of remote sniping? If I can just mount the Gun, I don't have to be Inside the Building."</p>
-<p>Answering the confused Whisper's question, Kurayamada Kirie stabbed and Neutralized the speaker Device attached to Whisper's cyber Suit Shoulder with her Sword.</p>
-<p>No matter how amazing an Ability User Whisper was, Kurayamada Kirie thought she produced the power to collapse Buildings because she received help from such equipment, so she got behind her and Neutralized the speaker Device.</p>
-<p>"I intended to only use Whisper's Ability, but it can't be helped."</p>
-<p>Whisper sighed and muttered, then snapped her Fingers. She had precisely activated the Witch Power flowing in her Veins.</p>
-<p>The moment she snapped her Finger, a shockwave occurred, throwing Kurayamada Kirie back, but she had already heard from Sawayanagi Azuma that Whisper possessed other Abilities, so she was prepared. Clinging to an still-intact Wall, minimizing the shock, she drew her Sword again.</p>
-<p>"I already know that you possess other Abilities besides your Voice, you know."</p>
-<p>"Even if you know, what can you do?"</p>
-<p>"Considering what you've suffered until now, you shouldn't have such Confidence."</p>
-<p>"Don't fucking joke!"</p>
-<p>In fact, because she had been almost Mocked/Debased by Kurayamada Kirie, Whisper screamed and began to use all sorts of magic, starting with creating and firing her favorite magic, an invisible Arrow.</p>
-<p>"I can use Sorcery too, you know?"</p>
-<p>Kurayamada Kirie muttered like that, dodging Whisper's magic, and chanted a spell.</p>
-<p>From the moment she knew that incomplete werewolf traits, about a quarter, had appeared in herself, Kurayamada Kirie had examined the werewolf-exclusive equipment hidden in the Kurayamada Family's secret warehouse. One of them was several Sorceries usable in a werewolf state.</p>
-<p>Not long after she started learning, she couldn't chant the spell quickly, but because she liked its power considerably, she had continued to Practice, and she never knew the opportunity to use it like this would come now.</p>
-<p>-Gesshoku Ookami (Lunar Eclipse Wolf).</p>
-<p>It was a Sorcery meaning "Wolf that devoured the Moon," a Sorcery that enchanted a Weapon with the Aura of Moonlight that could cut through the opponent's Sorcery or magic. Although it was a Sorcery that could only be used on a night with the Moon out, now it was a night with a crescent Moon, and the opponent was a Witch using magic, so it was a sufficiently effective spell.</p>
-<p>The moment she chanted the spell, Kurayamada Kirie's Oodachi (Great Sword) began to shine with Moonlight. As a Sword made from the Claws of her Father, Kurayama Kazuma, a complete werewolf, it had extremely good compatibility with the Gesshoku Ookami Sorcery.</p>
-<p>"Do you think you can win by using just one such shoddy Sorcery?"</p>
-<p>Whisper unleashed various magic and simultaneously exerted her superpower, shrieking the Scream of Slowing. Kurayamada Kirie swung her Sword without dodging.</p>
-<p>-Shinten Kenkei-ryu (Divine Heaven Sword Form Style)-Kirie-shiki (Paulownia Love Style) Ken'uzu (Sword Vortex)</p>
-<p>Using Kirie-shiki Ken'uzu, a Martial Arts Form that draws countless small Circles, Kurayamada Kirie Neutralized all of Whisper's magic pouring down on her, then quickly swung her Sword and cut through the sound wave barrier.</p>
-<p>Because the speaker Device on her Shoulder was Neutralized, unlike the Early Stage of the battle, she could cut through Whisper's Voice with her Sword.</p>
-<p>Kurayamada Kirie, as if to completely finish this battle, thrust her Sword this time.</p>
-<p>-Shinten Kenkei-ryu (Divine Heaven Sword Form Style)-Kirie-shiki (Paulownia Love Style) Kenmuchi (Sword Whip)</p>
-<p>Kenmuchi was a Martial Arts Form that could bend her Sword like a Whip or extend it even longer, a Martial Arts Form that could Attack an Enemy at a much greater distance than usual.</p>
-<p>Whisper too, although Kurayamada Kirie's Oodachi was long, she thought it wouldn't reach her, but she was very surprised when it attacked as if the Sword was extending.</p>
-<p>Although she tried to quickly dodge her Body, Whisper was a Superhuman and a Witch, not a Warrior. She could not avoid Kurayamada Kirie's sword strike that had come right up to her.</p>
-<p>Pagak! In an instant, Kurayamada Kirie's sword blade embedded itself in Whisper's combat helmet.</p>
-<p>TheDreaming-nim requested Herta Vogel 1. Phone Booth Breast Press. 2. Buttocks Grab~! 1. The Composition was similar, so the last one is in a bikini hehe. 2. When I just made it, I don't know why, but it tried to spread wide all the way to the Pussy with both Hands, so changing the viewpoint made it a bit better hehehe. MidNightSKY-nim Waterbomb Phantom Mother and daughter~! Arisu~! Nae~! Chomisaemeonji-nim requested Liz Lingerie, String Panties~! Lingerie~! String Panties~! For the String Panties prompt, I tried using "thong" instead of "g-string," and this also turned out quite well hehe.</p>
+<p>"This is Maya Reed. Our future lawyer."</p>
+<p>"Hello, it's a pleasure to meet you."</p>
+<p>Coming out of the interview room, I introduced Whisper, Maya Reed, to everyone and began discussing the Incident.</p>
+<p>"How's The Situation?"</p>
+<p>Although I had a rough idea of The Situation from watching the News right after waking up, I asked Naruse Shiyo, as Jooseodang must have investigated in detail.</p>
+<p>"Although an evacuation order was issued last night and residents were evacuated, there was considerable harm to Civilians, and almost all the buildings were damaged, so everyone is quite dissatisfied with The Situation."</p>
+<p>Even if an evacuation order was issued, it seemed people couldn't all get out in such a short time. It appears the police or Public Officials didn't have time to go door-to-door evacuating everyone, so Civilian harm was considerable.</p>
+<p>"In truth, everyone who participated in the Fragment of Omniscience struggle should bear Responsibility, but the media is currently pushing the Responsibility onto the Obsidian Syndicate and Superior."</p>
+<p>"I didn't know it would go this far.... Was my Idea that good?"</p>
+<p>Even just looking at the internet News now, it was all critical articles about the Obsidian Syndicate and Superior. Posts too.</p>
+<p>Seeing everyone speak with one Voice, it seemed the US government's intelligence agencies were using public opinion manipulation units to control internet public opinion.</p>
+<p>"There won't be any harm to our side, right?"</p>
+<p>"No, there are no articles influencing our side. In fact, among our people who participated in the New Rochelle Incident, the only known person is the Black Knight, but no one who saw the Black Knight, excluding our own people, is alive, so there will be no Topic."</p>
+<p>Indeed.... We just need to be careful about the Black Knight's side. Even if our side was discovered by surviving Civilians, the Civilians would probably think we were a special unit gathered to Subjugate Superior.</p>
+<p>"Now that we've grasped the current Situation, let's move."</p>
+<p>After checking the condition of Sabu Fujigasaki Rinka and Sajo Soda Haruto, and needing to visit the crematorium to cremate the two Transport team members who died in this Incident, we rose from our Seats.</p>
+<p>-This Terrorist act, carried out jointly by New York's largest gang, the Obsidian Syndicate, and the world's top superhuman Terrorist Organization, Superior...</p>
+<p>Kwang!</p>
+<p>"Jenjang!! Everything is my fault?!"</p>
+<p>Carmine Castello, the Boss of New York's top Organization, the Obsidian Syndicate, and the CEO of Obsidian Pharmaceuticals, watched the News with a stifling Expression and hit the desk.</p>
+<p>Even when he changed to other channels in his stifling frustration, the Obsidian Syndicate's name was appearing alongside the infamous Superior.</p>
+<p>Carmine Castello couldn't understand what had happened. Of course, it was true that the Obsidian Syndicate had a hand in this New Rochelle Incident.</p>
+<p>But Carmine Castello felt wronged. They had only given their subordinate gang members pistols and rifles, and no matter how many people they sent, that equipment didn't have the power to reduce an entire City to Ruins.</p>
+<p>He would understand if the News reported that they would be arrested for the crime of sending a gang to kill a few people, but being told they would be arrested on charges of committing Terrorist acts in the City made Carmine Castello furious. And with the infamous Superior, no less.</p>
+<p>He wanted to vent his anger, but the Magician faction of the Obsidian Syndicate that proposed this matter had gone to New Rochelle and hadn't returned, presumably dead.</p>
+<p>-Tta-reureung!</p>
+<p>As Carmine Castello was feeling stifled by the current Situation, unable to do anything as if his hands and feet were tied, the Phone Call rang loudly. Carmine Castello glared at the Phone Call for a moment before answering.</p>
+<p>"Hello?"</p>
+<p>-This is Dark Merchant. Castello-ssi, you've broken a Rule.</p>
+<p>Carmine Castello, who answered the Phone Call, broke into a cold Sweat at the words of the Opponent speaking in a mechanical Voice. The Dark Merchant, which could be called a guild of numerous underworld organizations, was famous for dealing with members who broke Rules coldly and thoroughly.</p>
+<p>In particular, what Carmine Castello broke was an act of a seller robbing a buyer, which directly eroded the Dark Merchant's Trust Level, so it seemed a considerable level of Discipline would be imposed.</p>
+<p>"W-what are you talking about...? Our Obsidian Syndicate has never broken the Dark Merchant's Rules!"</p>
+<p>Carmine Castello tried to somehow get past the current Situation with a lie, but naturally, the Dark Merchant wouldn't believe that lie.</p>
+<p>-Do you expect us to believe such a lie? For the crime of breaking the Dark Merchant's Rules, we will confiscate all the winning bid for this auction.</p>
+<p>"Hey! This is the Price for selling my item fairly! What the hell are you talking about!!"</p>
+<p>Carmine Castello immediately roared in protest at the news that the enormous winning bid would all be confiscated. In truth, he had expected to be expelled from the Dark Merchant or for Dark Merchant amsalja to come kill him, but he never thought they would try to seize all of this winning bid.</p>
+<p>The Fragment of Omniscience's winning bid of ninety-eight million Points, which converted to ninety-eight million Dollars, was money that would serve as reliable Bullet-s in countless future courtroom battles, so he couldn't help but be angry that the Dark Merchant was going to gobble it all up.</p>
+<p>-Secondly, we were going to send amsalja after you, but it doesn't seem bad for you to bear all the blame and face the judgment of the law as is. If you are not in prison, we will continue to send amsalja. As it is, many people have started putting bounties on you since articles came out saying you are one of the culprits in this Incident.</p>
+<p>At the Dark Merchant agent's Words, Carmine Castello's blood pressure rose, and the back of his Neck stiffened. In the end, it was a message to go to prison if he didn't want to die.</p>
+<p>Since the Dark Merchant itself couldn't be free from this Incident, it would be a good thing if the Obsidian Syndicate bore all the Guilt and went to prison. That's why they told Carmine Castello that if he stayed in prison, he would live, and if he came out, he would die.</p>
+<p>"Hmph! No matter how great the Dark Merchant is, I cannot bear Guilt I didn't commit and go to prison. I, Carmine Castello, and the Obsidian Syndicate will resist to the very end!"</p>
+<p>-Good luck.</p>
+<p>At his Words of resisting to the end, the Dark Merchant agent only said 'Good luck' and hung up the Phone Call. Carmine Castello wore an extremely angry Expression, but instead of hanging up, he made a Phone Call to another place. When someone answered, Carmine Castello began pouring out Words as if venting his anger about what had just happened.</p>
+<p>"Gather all the troops! Police? FBI? Make sure anyone who comes can be turned into a beehive! And spread the word to the politicians and police who took Money or Drugs from us. Tell them absolutely not to step forward. The moment they do, they'll die with us! I'll show them that our Obsidian Syndicate is not to be trifled with!"</p>
+<p>The CEO's Office of Obsidian Pharmaceuticals was filled with Carmine Castello's shouts, brimming with anger.</p>
+<p>Upon arriving at the Hospital, the Jooseodang agent wore a quite awkward Expression.</p>
+<p>"What's the Matter?"</p>
+<p>As I approached and asked a Question, the Jooseodang agent's Face brightened upon seeing me. Seeing him welcome me, was it something I could resolve?</p>
+<p>"Ah, you've come at a good Time. Fujigasaki-nim is fighting with the Nurses, saying she wants to be discharged immediately...."</p>
+<p>It seemed Sabu, having regained consciousness, was causing a ruckus. I nodded my Head and headed to the Hospital Room where Sabu was. Opening the Hospital Room door, I saw Nurses looking at Fujigasaki Rinka with anxious Expressions, and Fujigasaki Rinka was taking off her patient gown as if she intended to leave immediately.</p>
+<p>Then, her Eyes met mine, her Face instantly flushed red, and she screamed, 'Baek!'</p>
+<p>"Hey! You should Knock before coming in!!"</p>
+<p>"Ah, I-I'm sorry."</p>
+<p>Startled by Fujigasaki Rinka's scolding, I left the Hospital Room again. Waiting in front of the Hospital Room door, I soon heard Fujigasaki Rinka's Voice telling me to come in. Still, just in case, I knocked 'Tok-tok' and then entered the Hospital Room.</p>
+<p>The Nurses looked at me with Expressions of relief that I had come, and in that short time, Fujigasaki Rinka had changed into her usual attire of a white Shirt and Jeans.</p>
+<p>"You came at just the right Moment. These Nurses are telling me I can't leave. Disciple, you'll have to sort this out for me."</p>
+<p>"Do you think it's okay to leave?"</p>
+<p>"I'm just lying around here anyway. There's no special Treatment either."</p>
+<p>At my Question, Fujigasaki Rinka spoke as if stifled. In fact, Fujigasaki Rinka was right. The Doctor had said yesterday that there was nothing to do but recuperate, so there would be no surgery or Drug Treatment. In that case, lying in the Hospital or lying in the accommodation made little difference.</p>
+<p>I nodded my Head at Fujigasaki Rinka and opened my mouth, looking at the Nurse.</p>
+<p>"Please process her discharge."</p>
+<p>"B-but...."</p>
+<p>"We have to leave New York soon anyway. Even if she needs to be in a Hospital, she'd have to be moved elsewhere, so please process her discharge."</p>
+<p>It wasn't a Situation where we could stay in New York for long, and there were other matters, so Fujigasaki Rinka couldn't continue to stay here.</p>
+<p>The Nurses said they needed to observe her for a few more days, but after my and Fujigasaki Rinka's firm insistence, they sighed and nodded their Heads as if they had no choice.</p>
+<p>"Understood. I'll bring the documents, so please wait a moment."</p>
+<p>After the Nurse left the Hospital Room, I looked at the Jooseodang agent who had remained in the Hospital.</p>
+<p>"How is Sajo-nim doing?"</p>
+<p>"He's recovering quickly. Since there were no other wounds, just malnutrition.... Providing him with nutrition seems to have greatly improved his appearance. However, he won't be able to move immediately."</p>
+<p>Sajo Soda Haruto was in a state of near Famine, with his ribs clearly visible, so I was a little worried, but it was Fortunate that he was recovering.</p>
+<p>"I want to go see Sabu too."</p>
+<p>"First, let's complete the discharge documents, Sabu."</p>
+<p>Perhaps because Sajo's Story came up, I held back Fujigasaki Rinka, who was about to rush to the Hospital Room where Sajo was hospitalized, and told her to handle the discharge first.</p>
+<p>"Yes, my mind was racing."</p>
+<p>As Fujigasaki Rinka nodded her Head at my Words, her Blush faded a little, and her Complexion was quite pale compared to usual. If it seems she's not getting better while I watch, I'll have to bring up drastic measures.</p>
+<p>Yesterday was Pepero Day...! I didn't receive any Pepero, so I didn't know and it passed me by ㅠㅠ To commemorate the past Pepero Day, I've prepared some Pepero Day Illustrations ㅎㅎ</p>
+<p>Alik~!</p>
+<p>"Ryutta.... Just eat one."</p>
+<p>Han Yu-gyeong~!</p>
+<p>"Yongtae-ya~♡ Do I have to eat it all the way to the end?"</p>
+<p>Rinka Surprised B-cut!</p>
+<p>Gojoy-nim requested 1. Hanako waving her Hand 2. Hanako in the car.</p>
+<p>1.</p>
+<p>2.</p>
+<p>TheDreaming-nim requested 1. Herta being subjected to Hand Play 2. M-Legs Herta~!</p>
+<p>1.</p>
+<p>Herta was supposed to be the one being subjected, but she kept appearing in an attacking stance, so as an alternative, I made it into a breast-pulling scene as requested~!</p>
+<p>2.</p>
+<p>Kkyu-it!</p>
+<p>Chomisaemeonji-nim requested Liz in a police uniform, Liz in a WWII Military Uniform~!</p>
+<p>Police Liz~!</p>
+<p>WWII Military Uniform Liz~!</p>

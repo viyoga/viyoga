@@ -5,95 +5,89 @@ weight = 556
 chapter = 556
 +++
 
-<p>Fortunately, the company dinner for the winning team of the sports day wasn't held at my house. I could afford to pay, but having a dozen or so students hanging out at my place would be a pain to clean up after, so I thought it would be better to do it outside.</p>
-<p>After lunch, everyone came out, and Otagi Yuka, Sakagami Rena, and Saionji Diana returned home to discuss the company dinner for tomorrow with the rest of the class via LINE. First, I incited the three at my house to shoot down any suggestions for holding it at my place.</p>
-<p>All three said they understood, but thankfully, they had all hung out at my place before, so other opinions were coming up.</p>
-<p>-Erika Private First Class: Are we just eating? Or are we hanging out and eating?</p>
-<p>-Kujo Kina: Of course, we should hang out! How about a water park?</p>
-<p>-ShiiPipi: Is it November already? The water park is too cold~ヽ(。_°)ノ Let's go to Dijuni Land instead!</p>
-<p>-Minamoto Lisa: I hate it when there are too many people on Sundays. I heard a huge bookstore opened in Shizuoka, how about there?</p>
-<p>- Shido Tsubaki: I like bookstores too, but it doesn't seem like a good place for everyone to enjoy.</p>
-<p>-AlikAlik: Alik wants to go to an amusement park...!</p>
-<p>-Urabe Konoka: Then how about Fuji-Q Highland, the amusement park nearby?</p>
-<p>-Konoe Akina: I think I went there once in middle school. Nostalgic~</p>
-<p>Fuji-Q Highland... I searched it up and it was an amusement park in Fujiyoshida, Yamanashi Prefecture. If Miyashi was west of Mount Fuji, then Fuji-Q Highland was northeast of Mount Fuji.</p>
-<p>It's famous as a scream-inducing amusement park with many roller coasters and is known for doing a lot of collaborations with anime. This season is a collaboration with a classic (?) anime, and there was an article saying that this week is a ○-Punch Man collaboration that Minamoto Lisa likes.</p>
-<p>-Minamoto Lisa: Our cute Alik wants to go, so I like Fuji-Q Highland too.</p>
-<p>Minamoto Lisa immediately agreed, so she must have seen the article I saw. As I was searching about Fuji-Q Highland, Otagi Yuka, who was sitting next to me, saw it and asked.</p>
-<p>,Sensei-ssi, do you like amusement parks?"</p>
-<p>,Huh? I don't mind. It's more important that you guys have fun, so do whatever you want. I just don't want it at my house."</p>
-<p>,I was wondering because I haven't been there since middle school, so I thought it would be nice to go after a long time."</p>
-<p>It seemed like everyone went to amusement parks for picnics from school in middle school since it was close. Then, in high school, we would decide on our own and go, like we did. Saionji Diana and Sakagami Rena didn't have bad reactions either, so it seemed like they had some memories there.</p>
-<p>When Otagi Yuka, Sakagami Rena, and Saionji Diana agreed to the Fuji-Q Highland idea in the chat, almost all the students switched over to that side.</p>
-<p>Phew.... I'm just glad it's not at my house. I should hire a housekeeper or maid so that people can come over to my house anytime. Of course, Alik said she would be a maid, but I should hire a full-time housekeeper in case Alik has to go on missions that require her strength.</p>
-<p>,But Shiyo-yang hasn't said anything, my lord. I've been sending her LINE messages since yesterday, saying we worked hard, but she hasn't said anything, so I thought she was tired, but she hasn't said anything today either. Could it be because she overdid it at the sports day yesterday?"</p>
-<p>Sakagami Rena said with a worried expression while looking at her phone. Ah.... I was a little worried too. Naruse Shiyo wanted me to order her to do it, but I was worried that she might get sick, and it seemed like my worries came true.</p>
-<p>,I guess she overdid it yesterday...."</p>
-<p>,Well, Shido and Oofuchi were saying their calves hurt. Naruse, who is weak, must be worse."</p>
-<p>Otagi Yuka nodded in agreement to my words. It seemed like other students who don't exercise that much were complaining of muscle pain.</p>
-<p>,My calves don't hurt no matter how much I overdo it."</p>
-<p>Saionji Diana said with a refreshing smile. Well, you're a cyber implant.... While I was wondering what to say, all three of them looked at each other and laughed at Saionji Diana's words, so it seemed like it was a joke. Please don't make those weird jokes that are hard to react to.</p>
-<p>,Sensei-ssi is paying tomorrow, so shouldn't we look into transportation and stuff?"</p>
-<p>,Ah, that's right. I need to look into the car, at least."</p>
-<p>Amusement parks and meals can be paid for on the spot, but transportation had to be prepared in advance. Uenozono Karen said she couldn't attend because of her schedule, and Naruse Shiyo hasn't replied yet, but I should book a 15-seater vehicle just in case.</p>
-<p>,Sakagami, contact Naruse. Ask her if she's coming tomorrow or not."</p>
-<p>Sakagami Rena took out her phone and contacted Naruse Shiyo's number at my words. In the meantime, I booked a 15-seater vehicle. Even if Naruse Shiyo comes, there will be about two seats available, so I can ask Kijimoto Jurie or the homeroom teacher Shimokawabe Airen if they want to come along.</p>
-<p>,She's not answering the phone, my lord. I guess she's not coming tomorrow."</p>
-<p>I nodded at Sakagami Rena's words. She was probably sick in bed because she overdid it at the sports day, as I expected earlier. She just rode on the horse and moved her hands, but she's sick in bed? How weak is she? Should I get her some kind of tonic....</p>
-<p>,And all three of you, take this."</p>
-<p>I gave Otagi Yuka, Saionji Diana, and Sakagami Rena a card each. All three of them asked me with a look of, What is this? so I smiled and answered.</p>
-<p>,It's a salary card. All three of you are helping me with my work while going to school without the support of your families, so I thought about what I should do and realized I haven't given you a salary yet. So I put in enough for last month and this month, so use it as much as you want."</p>
-<p>I thought I should repay all three of them because they silently did what I asked them to do, but after hearing that they didn't have any family to eat with at the sports day yesterday, I thought they wouldn't be able to receive support from their families either, so I made a salary card. I ordered it from Eve last night, and it arrived today, so I was able to give it to the kids without being late.</p>
-<p>,Heh.... I was thinking about getting a part-time job anyway, thanks, Sensei-ssi!"</p>
-<p>,As expected of my lord. I'll use it well."</p>
-<p>,Salary.... Thank you!"</p>
-<p>Everyone seemed quite touched by the sudden salary. But why are they all taking off their clothes?</p>
-<p>,Huh? Why?"</p>
-<p>,It's a service of gratitude, my lord♥"</p>
-<p>,Sensei-niim...♥"</p>
-<p>,Hehe♡ Shall we see what pizza-flavored semen tastes like?"</p>
-<p>Two of them just seemed horny, and one of them was taking off my clothes for some strange reason. Well, I ate a lot of pizza, so I should burn some calories with some waist exercises.</p>
-<p>###</p>
-<p>The next morning, I drove the rented large vehicle to St. Francisco Girls' Academy. When I arrived on time, some people who had already arrived were waiting in front of the school. I glanced at the number of people and it didn't seem like everyone was there.</p>
-<p>,Ehh~! You're late, Sensei!"</p>
-<p>Kujo Kina, wearing jeans as short as dolphin pants, said bluntly to me. At those words, I pointed to the clock in the car, which still had one minute left.</p>
-<p>,I'm right on time. I'm not late."</p>
-<p>,Ah, really? Was I waiting for Sensei too much?"</p>
-<p>Waiting for me too much was a very direct confession. Kujo Kina scratched her head awkwardly at my words and opened the car door. And sat in one of the back seats. She was about to get in the passenger seat just now, but she sat in the back, so it seemed like she had already decided on a seat.</p>
-<p>,Hello, Sensei~!"</p>
-<p>,Good morning, Sensei."</p>
-<p>Konoe Akina and Shido Tsubaki got in right after, and Otagi Yuka, holding a half-asleep Alik, got in after them.</p>
-<p>When a few more students got in, the passenger seat door opened and Shimokawabe Airen got in. Shimokawabe Airen was wearing ripped jeans and a track top, which suited her well because of her slim figure.</p>
-<p>,Thank you for inviting me, Yamashiro-sensei."</p>
-<p>,Alik is always in your care. I'll repay you from time to time like this."</p>
-<p>I looked at Alik's still dazed appearance in the rearview mirror and smiled as I answered Shimokawabe Airen's greeting. Shimokawabe Airen is my top priority for scouting at the school, so I have to keep trying.</p>
-<p>,Ufufu.... I heard she was resting today, so I gave her some hard training yesterday."</p>
-<p>,Ah, is that so?"</p>
-<p>Alik is usually quiet, but her stamina is at the beagle level, so I was wondering why she was sleeping so much, but it seemed like Shimokawabe Airen had worked her hard yesterday.</p>
-<p>,Finally, Shii descends~☆"</p>
-<p>,Good morning."</p>
-<p>As Seizawa Shii sat down noisily, Minamoto Lisa got in soon after. All the students are in, so only Kijimoto Jurie is left. After waiting a little, I heard the sound of footsteps and saw Kijimoto Jurie running towards us.</p>
-<p>,Huff...! I'm sorry! I was late because I was getting ready~!! Huff...!"</p>
-<p>Kijimoto Jurie apologized to everyone as she sat in the back seat. She was panting because she ran, and Seizawa Shii said that she was Naruse Shiyo's substitute, so she could have come slowly. She even said that Naruse Shiyo doesn't run fast, so she should be careful not to run fast because she's not a substitute.</p>
-<p>Kijimoto Jurie was wearing a sweater and a long skirt under her usual doctor's gown, but she only took off her doctor's gown, and now that it's fall, she's finally wearing clothes that fit the season. By the way, she still had huge breasts that couldn't be hidden by the sweater. The curves were amazing even though she was wearing a sweater....</p>
-<p>I was hot just looking at her wearing a sweater and a doctor's gown in the middle of summer, but when I asked her, Kijimoto Jurie said that she doesn't get hot very easily and gets cold easily. She was probably wearing clothes that didn't fit the season because of the air conditioner that she keeps on in the summer.</p>
-<p>,Then let's get going."</p>
-<p>Everyone was in the car, so I immediately left for Fuji-Q Highland. It wasn't that far, about an hour away from Miyashi. Everyone had eaten breakfast, and we decided to eat snacks sold inside Fuji-Q Highland for lunch and have a big dinner, so we could go straight to the amusement park without stopping anywhere else.</p>
-<p>,I got a lot of oranges from where I work, do you want to eat them?"</p>
-<p>Seizawa Shii took out a large orange from the black bag she was carrying. But Otagi Yuka, who is sensitive, seemed to see something and opened her mouth while looking at the orange.</p>
-<p>,Shii, there's blood on the orange...?"</p>
-<p>,Ah ah...! I must have bled while picking oranges, hehe.... It's okay if I wipe it off."</p>
-<p>Is there an orange farm around here? Seizawa Shii never told me what kind of part-time job she was doing, no matter how much I asked, but it seemed like she was working part-time at an orange farm.</p>
-<p>,Here, I brought a lot, so eat one each."</p>
-<p>Seizawa Shii said as she passed out the oranges one by one. Next to me, Shimokawabe Airen peeled the orange with a dagger in an instant and smiled as she put them in my mouth one by one. The news was playing quietly on the radio, and when I heard that it was a case near Mount Fuji, I listened carefully and heard that someone was found murdered in a mountain lodge near Mount Fuji. Geez.... It's become a scary world.</p>
-<p>,Ryuta-jji~! Play some exciting music!"</p>
-<p>,Shall I?"</p>
-<p>At Seizawa Shii's words, I played my own collection of exciting songs. The car was full of exciting music, and the weather was sunny, which was perfect. Besides, a beautiful woman was peeling oranges and putting them in my mouth, so the fatigue of driving was zero.</p>
-<p>After driving for a while, we were able to arrive at our destination, Fuji-Q Highland. The atmosphere was so good that the hour of driving didn't feel long.</p>
-<p>_____________</p>
-<p>Kujo Kina in outing clothes~!</p>
-<p>Ai made her breasts bigger today ㄷㄷ Kina wouldn't be this big...?</p>
-<p>Homeroom teacher~!!</p>
-<p>Homeroom teacher likes Kimono or sporty clothes.... I'll put her in a dress next time~!</p>
-<p>Nurse-ssi~!</p>
-<p>Huge tits Jurie that can't be hidden even with a sweater.</p>
+<p>There are no explicit illustrations, but there is some suggestive content!</p>
+<p>,Yamashiro-sensei, the favor you've done for me is by no means small. You eliminated the Black Dragon, severing our family's misdeeds, and even saved my daughter."</p>
+<p>Naruse Koyou, sitting in his wheelchair, bowed respectfully as he listed my accomplishments one by one. I wondered why he didn't mention the story of making him the head of the family, but it seemed he didn't have much ambition in the first place.</p>
+<p>In the end, it seemed that Naruse Koyou became the head of the Naruse family to eliminate the family's misdeeds, as he said, the evil practice of offering a girl to the Black Dragon every six years, and to save his daughter, Naruse Shiyo.</p>
+<p>,Please allow me to repay your kindness."</p>
+<p>,There is something I want from the Naruse family."</p>
+<p>I didn't hold back and honestly said that there was something I wanted from the Naruse family. I was going to skip the tedious back-and-forth and just say what I wanted. Yukiko was waiting, and I really thought, 'The reward is fine,' but they might say, 'Oh, is that so?' so it would be better to say it without hiding.</p>
+<p>,That's a relief! What is it that you want?"</p>
+<p>Naruse Koyou looked very pleased when I said I wanted something. I had done him a favor, but why was he so happy to give me a reward?</p>
+<p>,First of all, I'm planning to create an intelligence team. Please dispatch a few basic shikigami (familiar spirit) instructors so that the intelligence team can learn."</p>
+<p>You might ask, "Why shikigami for an intelligence team?" But according to Sakagami Rena, all Onmyoji (spiritual diviner) families have considerable intelligence capabilities. The reason for this was the shikigami they used. It was possible to collect information by flying paper shikigami, which is a basic shikigami technique, to the desired location. A more skilled Onmyoji could even collect information by using small animals undergoing yokai (supernatural beings) transformation.</p>
+<p>Sakagami Rena knew that I wanted to build an intelligence team, so she made this recommendation.</p>
+<p>,That's not too difficult. I don't know if I can say that I've repaid your kindness with that..."</p>
+<p>Even though it was a transfer of the family's techniques, even if it was just basic shikigami techniques, Naruse Koyou was still trying to give me more, saying it wasn't enough. How much were you planning to give me? Then I could even say what Sakagami Rena told me to try asking for?</p>
+<p>,Then, I have a hobby of collecting art and antiques, so could I receive an ancient book or antique from the Naruse family?"</p>
+<p>This was the second reward Sakagami Rena recommended, as I had obtained a technique from a hanging scroll I got from the Daigo family before. She said that it would be much better to get one of the items collected by the Naruse family, an Onmyoji family, than money.</p>
+<p>,I understand. However, those items are in the main family's warehouse in Kyoto, so I will invite you separately."</p>
+<p>,Yes. I understand."</p>
+<p>Of course, the mansion in Miyashi here can be said to be a villa, so they wouldn't keep useful items here. I accepted the promise to be invited next time and got up from my seat. Seeing Naruse Koyou's expression, it seemed like he had something more to say, so I asked him why as I stood up.</p>
+<p>,Is there anything else you would like to talk about?"</p>
+<p>,Um... I wasn't able to inherit all of my father's shikigami this time, so the family is having a bit of a hard time. Could you help me a little?"</p>
+<p>I heard that some shikigami had disappeared before he inherited them. Given the nature of Onmyoji families, where most of the power of the family is concentrated on the head of the family, the weakening of the head of the family could lead to checks or attacks from other families. It seems that we weakened him because of the shikigami we killed without knowing, so I should help him. If I can get the support of the Naruse family, it could be of considerable help in the Taira throne war later.</p>
+<p>,We're not strangers, so if there's anything I can do to help, I will."</p>
+<p>,Thank you...!"</p>
+<p>I received Naruse Koyou's thanks and headed to where Yukiko was waiting. I wondered if she would be with Naruse Shiyo, but only Yukiko was waiting for me in the reception room.</p>
+<p>,Where is Naruse Shiyo?"</p>
+<p>,Oh, she fell asleep. The adaptation process is quite exhausting."</p>
+<p>It was still early to fall asleep, but it seemed that the adaptation process was quite tiring.</p>
+<p>Now that I had nothing else to do, Yukiko and I left the Naruse family's mansion right away. The butler who greeted us when we first came in saw us off again this time. Naruse Koyou also came in his wheelchair and greeted us. I'm his benefactor, but it's a bit burdensome to see a sick person like that.</p>
+<p>,Is this the first time you've driven this car?"</p>
+<p>,Is it? I couldn't drive the car I used to drive under the identity of Yamashiro Ryuta."</p>
+<p>The car I used to drive was an SUV like a Hummer, but now I couldn't drive that car, so I was driving a foreign sports car I received from the family. Yukiko had never ridden in this car when she met me, so she looked around the car as if it were new.</p>
+<p>,So, where do you want to go?"</p>
+<p>,Um... I want to go to the school where Ryuta works."</p>
+<p>Was she curious about the school...? I nodded at Yukiko's words and drove to the school.</p>
+<p>It was evening when the sun was setting, and students who had finished their club activities were returning home. There were quite a few students leaving school, so I checked with the kids just in case, and it seemed that they decided to take a break from club activities today because I wasn't there. It was fortunate for me in my position to visit the special class building with Yukiko, but I wondered if they really needed me to write the Date Experience Club's magazine.</p>
+<p>,Our class is a special class with kids who are physically weak, often absent, or troublemakers, so it's in a different building."</p>
+<p>,Oh, really? Is that the building?"</p>
+<p>I explained the school to Yukiko as we walked, and soon we arrived at the special class building. First, I showed Yukiko the education preparation room where I mainly stay. Yukiko went inside the education preparation room and looked around the seat I use.</p>
+<p>,I usually prepare for class here, or study for the certifications I'm doing now."</p>
+<p>,It's quite spacious. Do you use it alone?"</p>
+<p>,Until recently, there was an assistant teacher, but she was a student teacher, so her term ended and I use it alone now."</p>
+<p>Yukiko, who smiled mischievously at my answer, approached me and stroked my crotch, whispering in my ear. Yukiko's sweet scent wafted over me, and her breath tickled my earlobe.</p>
+<p>,Did you sleep with that student teacher too?"</p>
+<p>,...Yes."</p>
+<p>For some reason, I couldn't lie to Yukiko. After hearing my answer, Yukiko gently rubbed my glans over my pants a few times with her palm, then stepped away again.</p>
+<p>,Shall we go to another place in the building this time?"</p>
+<p>,Okay."</p>
+<p>Yukiko said, leading me by the hand, and I awkwardly followed Yukiko in an erect state. Yukiko saw my awkward appearance and smiled with a devilish expression, "Ufufu."</p>
+<p>The next place we went was the nurse's office diagonally across from the education preparation room. Of course, Kijimoto Jurie, who had no students to treat because all the students in the special class had left school, had also left work.</p>
+<p>When I entered the nurse's office, the scent of medicine unique to the nurse's office and Kijimoto Jurie's scent brushed past my nose.</p>
+<p>,Heung, heu-heung~♪"</p>
+<p>Yukiko hummed and looked around the nurse's office, then sat on the nurse's office bed, which could almost be called Naruse Shiyo's designated seat. Yukiko patted the seat next to her as if telling me to sit next to her.</p>
+<p>When I sat next to her, Yukiko started whispering in my ear again. This time, she stroked my half-soft penis and teased me.</p>
+<p>,Did you do it with the school nurse here too?"</p>
+<p>,Keueut! Yes, I did...!"</p>
+<p>,Our Ryuta, you're such a pervert♥"</p>
+<p>This time, Yukiko bit my earlobe once and then got up from her seat again.</p>
+<p>,Show me the club room this time~!"</p>
+<p>Is she tormenting me because I've been with a lot of other women? I adjusted the position of my stiffly erect penis as I watched Yukiko's back as she left the nurse's office, and then followed Yukiko out of the nurse's office.</p>
+<p>I held Yukiko's hand and headed to the club room on the second floor, and as soon as I opened the door, Yukiko looked at the club room and exclaimed, "Wow~!"</p>
+<p>This was because the club room was so well decorated. A super-large TV was hanging on one wall, the kitchen had a top-of-the-line refrigerator, and the sofas were worth millions of yen, so it was natural for Yukiko, who came from a regular high school, to be surprised.</p>
+<p>,Looking at the club room, I realize that this is St. Francisco Girls' Academy. It's so famous as a prestigious girls' school that I had a feeling of longing?"</p>
+<p>,You longed for it?"</p>
+<p>,Yeah, a little?"</p>
+<p>It seemed that St. Francisco Girls' Academy was quite famous during Yukiko's school days. Yukiko also looked around the club room and looked at this and that as if she was curious, then opened the refrigerator and took out a pudding.</p>
+<p>It was the vanilla caramel pudding that Seizawa Shii had recently become addicted to. Hmm, I should fill it up when I go to work tomorrow. If it disappears, she'll make a fuss trying to find the culprit.</p>
+<p>,Ah~!"</p>
+<p>Was she trying to feed me instead of eating it herself? Yukiko smiled brightly and scooped up a spoonful of pudding and brought it to my mouth. As I ate the pudding, Yukiko ran to me and started kissing me.</p>
+<p>Tsu-eup, chu-eup, chu-beup, jjok...!</p>
+<p>Yukiko, who had been kissing me until the pudding in my mouth disappeared, took her mouth off with a "Puha" and looked at me with hazy eyes.</p>
+<p>,As expected, Ryuta's lips are sweet♥"</p>
+<p>My penis, which had become erect again from the kiss, was throbbing, but Yukiko got up from her seat again and poured all the remaining pudding into her mouth.</p>
+<p>,I've eaten all the snacks, so will you show me the classroom now?"</p>
+<p>It seemed that she was completely determined to dry me up. After sighing for a moment, I took Yukiko and went back to the first floor and entered the classroom.</p>
+<p>,The classroom is no different from other schools?"</p>
+<p>,That's right. It's also a school with a long history. They often redecorate the interior, but it's not much different from other schools."</p>
+<p>Yukiko ended her impressions of the classroom briefly, as if she wasn't as impressed as she was with the club room earlier.</p>
+<p>,Turn around for a moment."</p>
+<p>,Yes? Yes."</p>
+<p>What is she trying to do this time? I turned around for a moment as Yukiko said. Not even 10 seconds after I turned around, I turned around at Yukiko's words to turn around again.</p>
+<p>Yukiko was wearing the uniform of St. Francisco Girls' Academy in her original form. Yukiko, blushing and smiling, looked at me and opened her mouth seductively.</p>
+<p>,Sensei, please hug me♥"</p>
+<p>------------------</p>
+<p>Yukiko B-cut!</p>
+<p>I like how big her breasts look even when she's wearing a uniform, hehehe.</p>

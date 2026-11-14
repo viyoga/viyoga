@@ -5,65 +5,84 @@ weight = 1093
 chapter = 1093
 +++
 
-<p>are illustrations of swimsuit there Opening the Legion shopping bag that the Phantom Thief mother and daughter had given me, I saw two items: a rolled-up bamboo slip (竹簡: a recording medium made of bamboo instead of paper) and a reddish crystal ball the size of a child's head.</p>
-<p>Hmm.... Both seemed to be quite unusual Items. First, I took out both Items and checked the Bamboo Slip.</p>
-<p>◆Ten Thousand Spirits Curse Release (萬靈呪解) [Unique Immortal Art Book / Magical Tool]</p>
-<p>A bamboo slip documenting ancient Immortal Arts (仙術) that manipulate ten thousand souls. Cannot be read without proper qualification.</p>
-<p>○Cannot be read by those who have not mastered Immortal Arts.</p>
-<p>●Upon first complete reading, all Immortal Arts Levels increase by 1. Immortal Arts activation speed increases by 10%.</p>
-<p>●When possessed, Damage and Immortal Arts Effect against Monsters/Spirits, Spirits, and Ghost Spirits increase by 30%. Damage and Immortal Arts Effect from Monsters/Spirits, Spirits, and Ghost Spirits decrease by 20%.</p>
-<p>●Immortal Arts form transformation , eye opening , destruction soul , restraint spirit , , can be acquired.</p>
-<p>Oh...! The Bamboo Slip was a somewhat minor and Rare skill book Item, an Immortal Arts Book. It seemed someone using Immortal Arts had also participated in the Fragment of Omniscience struggle. Seeing that the Phantom Thief mother and daughter obtained the Bamboo Slip, they must not have survived.</p>
-<p>The options were a bit ambiguous; in this near-future era, just before cyberpunk arrived, Monsters/Spirits and Spirits were hard to find, so it was an Item that could only be used somewhat restrictively.</p>
-<p>Of course, in Japan, there were a few Onmyoji Families that dealt with Monsters/Spirits and Spirits, so it had the advantage of being usable almost as a Counter to Onmyoji Families.</p>
-<p>However, Ghost Spirits, excluding Monsters/Spirits and Spirits, refer to the souls of dead humans, so Soul Interrogation, which can talk to dead people, and Soul Tracking, which can track using Ghost Spirits, were quite useful Immortal Arts.</p>
-<p>The former can obtain Information, and the latter, no matter what security system is created, it's difficult to stop ghosts.</p>
-<p>However, there was a Limit that those who had not mastered Immortal Arts could not read it, but fortunately, there was someone in my faction who had mastered Immortal Arts. I thought Nagumo Sian would like this as a Gift.</p>
-<p>Next was the Crystal Ball's Turn. It was a subtly reddish Crystal Ball, the size of a child's Head, and even amidst the chaos of New Rochelle, there wasn't a single crack. Usually, such Crystal Balls are Tools that assist Magic, like a Staff or Wand.</p>
-<p>◆Phoenix Egg-Replica[Legacy+ Crystal Ball / Magic tool]</p>
-<p>A Crystal Ball made by an Alchemist to imitate a Phoenix Egg. Although not a real Phoenix Egg, it contains powerful Authority of Flame.</p>
-<p>●Flame Ability can be changed to .</p>
-<p>●Grants to the possessor.</p>
-<p>●Increases the possessor's Flame Ability by 20%.</p>
-<p>Crazy.... It was an Item of even higher Grade than the Ten Thousand Spirits Curse Release I had just seen. Although the option descriptions seemed simple, all three options were extremely powerful Abilities. Of course, the Ten Thousand Spirits Curse Release, which allows one to learn various techniques, grants considerable utility, but this Phoenix Egg Replica was an incredible Item that a Flame Ability User would want to possess even by Murder.</p>
-<p>The first option, Flame of Life, was an Ability to change Flame Ability into Healing Ability. If a wounded Colleague is burned with the Flame of Life, it was a very good Ability as it would Heal them. Of course, Internal Injury or illness would not be healed, but the very fact that one could recover on the Battlefield was a very good Ability.</p>
-<p>However, because the Pleasurable Ache of burning would still be felt, it would inflict mental Damage on the healed Colleague, and despite providing Treatment, if they lacked pain resistance, it had the disadvantage that their Affection Level would actually decrease.</p>
-<p>Still, it was an incredibly good Ability that allowed a Flame Ability User, useful only for destruction, to also be used as a Healer.</p>
-<p>The second option, Flame Regeneration, was an Ability to recover by enveloping oneself in Fire, and the stronger the Firepower, the stronger the regeneration Ability became, making one very difficult to kill until all Flame Ability was consumed.</p>
-<p>The last option, a 20% increase in Flame Ability, was also very good. It wasn't Flame Damage, but rather it enhanced the Flame 'Ability' itself by 20%. Not only Damage or Output, but also Ability activation speed and Stamina, etc., several Abilities increased by 20% at once, so this could also be called a very honey option.</p>
-<p>If I give it to Kiyona Mari, she'll become incredibly strong, won't she? Currently, the strongest person in Seryutai was Sawayanagi Seari, who had awakened Elf Traits, but with just this one Item, it seemed she could surpass Sawayanagi Seari.</p>
-<p>First, because it's such a powerful Item, I should consult with Sawayanagi Azuma, the Leader of Seryutai, and then decide whether to give it to Kiyona Mari.</p>
-<p>"Are you giving me such good Items?" "Yes! Among the Items obtained in New Rochelle, I chose two Items that seemed necessary for Ryuta." "Hoohoohoo...! Since Ryuta likes it so much, we are even more Satisfied."</p>
-<p>When I expressed my gratitude, both were happy. Rather than the Value of the Item, my liking the Gift I received seemed to be a better sight. No matter that I had saved Arisu in New Rochelle, I felt a little Sorry to just receive.</p>
-<p>"And...." "The Gift isn't over."</p>
-<p>Huh? The Gift isn't over? Is there another Gift? As I wondered, Arisu smiled and handed me a Small Box. It felt like something the Size of a single Finger was wrapped.... If it's this Size, is it something like a Key?</p>
-<p>"Can I open it?" "Yes, open it~!"</p>
-<p>At my question, Arisu smiled and said, as if telling me to open it quickly. I opened the Box's lid. Inside the Box, a universal connection terminal, used like a USB in the current Era, was inside.</p>
-<p>"?"</p>
-<p>Naturally, in this state, because I didn't know what was inside the universal connection terminal, I looked at the two of them with a question mark floating.</p>
-<p>"What is it?" "Ah! I didn't explain what was inside."</p>
-<p>Continuously looking at my Face, Arisu, who had been making an Expectation Expression, said "Ah!" as if realizing, clapped her Hands and muttered. And she wiggled her Finger at me, making a gesture for me to come closer to her, so I bent my Waist towards Arisu and brought my Head closer.</p>
-<p>Arisu, seeing that Appearance, smiled as if Satisfied, then brought her Face to my Whispering Ear and began to Whisper.</p>
-<p>"You know, when Ryuta first met Phantom Thief Francois before...."</p>
-<p>Ah, I wondered what she was going to say. She was going to talk about Phantom Thief Francois. No matter that it was her own Home, because security was important, it seemed she thought it better to Whisper. Since the Phantom Thief Francois Matter was kept strictly Secret.</p>
-<p>By the way, when I first met Phantom Thief Francois.... When was that? Ah! Is she talking about meeting him at the Laboratory during the Kurotsukidoo Battle before? Fought with a Frustrating Telekinesis user before meeting him?</p>
-<p>"Laboratory?" "Uh-huh! There~! I'll give you the Data I obtained there as a Gift!"</p>
-<p>Clearly, that Laboratory was Taira Robotics' Secret Laboratory.... Is this really a Gift? Aren't they just trying to dump it on me?</p>
-<p>I was a little suspicious, but seeing Arisu's innocently bright Expression, I felt Sorry for being suspicious for no reason. She must have thought the Data inside would be useful to me.</p>
-<p>Seeing that there were Attackers then, it must certainly be important Data. Even at that time, "What on earth were they trying to get to dare Attack Taira's Laboratory?" I had thought, but I never imagined this Data would fall into my Hands.</p>
-<p>"Thank you. But do you know what kind of Data it is?" "No, Grandfather is scary, and.... Taira Robotics had nothing to do with our Business, so I was Satisfied with just stealing it."</p>
-<p>Hmm.... They're not really dumping a problem on me, are they? I'll know once I check the Data. I nodded my Head and put the universal connection terminal into my Embrace. I'll show this to Linling when I go to Japan.</p>
-<p>"Thank you. I'll use it well." "Yes~! Ryuta will be able to use it well!"</p>
-<p>Since I received quite a lot of Gifts today, I couldn't just wipe my mouth clean and leave. I had to give some Repayment. Originally, I had intended to repay them with Service with my Body, but because of Taira Gensuke's Attack, I had to leave, so I couldn't even do that.</p>
-<p>"You know I built a Home in Neo Tokyo, right?" "Yes, the one Gensuke just attacked?" "You said you splendidly repelled him, but is the Mansion alright?" "Probably, it'll be fine. I spent quite a lot of Money."</p>
-<p>I brought up the Story to invite them to my Mansion, but Arisu and Aunt Nae asked me, worrying if the Mansion was alright. Even if I invited them, it was a Place that had allowed an Attack because of Gensuke, so I felt a bit disgraced. Still, those in the Mansion weren't pushovers, so no part of it would have been broken or anything.</p>
-<p>"I know you're coming to Japan soon. I'll invite you to my Home. No, when you're in Japan, please stay at my Home."</p>
-<p>Of course, there was a Company in Japan called Legion Japan, and also high-class Hotels, so Arisu and Nae would have a Place to stay, but I still intended to invite them to my Home as Repayment.</p>
-<p>"Oh really?! I'm excited for Ryuta's Mansion!" "Ufufufu, we'll be able to enjoy ourselves after a long time, won't we?♥"</p>
-<p>Both of their Reactions were quite good. I, just like Arisu had done, wiggled my Finger and made a gesture for them to come closer to me, and both approached me with Expressions that asked what was happening.</p>
-<p>I placed my Mouth between the Faces of the two mother and daughter and Whispered into their Whispering Ears.</p>
-<p>"As Repayment for today's Gifts, while you are at my Mansion, I will let you enjoy yourselves to the fullest."</p>
-<p>Naturally, enjoyment meant Sex. At my Whisper, both looked at me with flushed Expressions.</p>
-<p>"I'll look forward to it, Ryuta!" "Ufufufu, we'll be able to enjoy ourselves after a long time, won't we?"</p>
-<p>It's unavoidable that they're disappointed about not being able to do it today, but in Japan, I intended to make the two Phantom Thief mother and daughter feel incredibly good. Even now, they are flushed with Expectation, but I'll have to make them feel even better than their Expectation.</p>
-<p>Today's changed Cover B-cut~! When creating Cover candidates, I didn't use a detailer (Face upscale), so the Faces were blurry hehe. Only the finally selected Cover combines the detailer and overall upscale hehe. Gojoy-nim requested Tetsu Kagerou's usual Attire and Underwear~! Usual Attire~! Kkyut Underwear~! I didn't know when she was in her cyber Suit, but she has an incredibly slender Waist ㄷㄷ</p>
+<p>Tteubeup, Jeubeup...!</p>
+<p>Maya Reed, performing fellatio, was quite persistent. She bit down deep on my cock, observing my reactions, moving her tongue and the inside of her throat, striving to receive my semen.</p>
+<p>"Eueut...! I'm about to cum!"</p>
+<p>Maya Reed's efforts were quite successful, as she managed to extract my semen during her first fellatio. As the feeling of ejaculation gradually intensified, I grabbed Maya Reed's head with both hands and pressed down.</p>
+<p>I didn't know if her throat also had an erogenous zone, but as Maya Reed performed fellatio, her nipples hardened, and her face was flushing red.</p>
+<p>"Kheueu...! I'm cumming!"</p>
+<p>Byuuut!! But! Byeut!!</p>
+<p>Because I had firmly pressed her head with my hands, Maya Reed's cheeks didn't puff out from my immense ejaculate volume. This was because I had shot my semen directly into the back of her throat.</p>
+<p>Whether it was due to the mental satisfaction of having sucked my cock and brought me to ejaculation, or if her throat truly had an erogenous zone, Maya Reed's eyes rolled back slightly, and she seemed to have reached her climax.</p>
+<p>"Huuu.... That felt good. It doesn't end with ejaculation; after ejaculation, you need to suck out the semen remaining in the urethra and clean the cock."</p>
+<p>I said, stroking Maya Reed's head. Maya Reed nodded with my cock still in her mouth, as if understanding, then pulled my cock from her throat, bit down only on the glans, and sucked out the remaining semen with a 'jjok' sound.</p>
+<p>"If you stroke it with your hand while sucking.... Yes, just like that."</p>
+<p>She was doing it well on her own. Even before I spoke, Maya Reed was already grabbing my cock from the root, squeezing it as if to milk out the semen, and sucking all the remaining semen from my urethra.</p>
+<p>"Boss, this is what you call ejaculation, right?"</p>
+<p>I nodded at Maya Reed's question. Maya Reed smiled happily, with an expression that said she had accomplished something.</p>
+<p>"How was it for you? It was your first time doing it orally, wasn't it? Was it difficult?"</p>
+<p>"The first time it poked my throat, it was a little difficult...."</p>
+<p>"It was difficult?"</p>
+<p>"Seeing Boss enjoy it, and having my throat poked, strangely made me feel good. Every time the inside of my throat was poked, it tingled down there...."</p>
+<p>As I expected, she seemed to have felt pleasure from having her throat poked by my cock. Maya Reed made an eager expression, saying it tingled "down there," so I decided to repay her for the fellatio.</p>
+<p>"Now, it's my turn to please you. Lie down and spread your legs."</p>
+<p>Maya Reed lay down on the bed with a slightly Shameful Blush. Whether from shame or a virgin's instinct, she held her constantly closing legs to keep them spread, and revealed her pussy to me.</p>
+<p>When she performed fellatio, she seemed so skilled that I doubted if she was truly a virgin, but now she was shy again, confusing me. Of course, I would know for sure once I directly inserted my cock.</p>
+<p>I put my head between Maya Reed's legs, and first observed her pussy. As expected of a Westerner, it was a beautiful pussy with a light color. I slightly extended my tongue between her labia majora and labia minora and began to lick.</p>
+<p>"Heueeut...!"</p>
+<p>I had only licked her lightly, but Maya Reed trembled as if electrocuted. She seemed to be feeling quite good.</p>
+<p>Satisfied with Maya Reed's sensitivity, I continued to lick her pussy. Perhaps because she had been aroused while sucking my cock earlier, her pussy was already drenched in vaginal fluid. I licked Maya Reed's pussy as if wiping away the vaginal fluid smeared around it with my tongue.</p>
+<p>"Eungheueueut...! It's strange, Bossueeut! Down there, haaht! A strange♥ heueut! sensation is coming...!"</p>
+<p>At the sensation of her pussy being licked for the first time, Maya Reed twisted her entire body, resisting.</p>
+<p>"It's not strange, it's pleasurable. Don't try to resist; just accept this pleasurable sensation."</p>
+<p>I momentarily lifted my tongue, and gave Maya Reed some advice.</p>
+<p>"Neheeet...! It feels good...! Boss's tongue♥ is making my down there, heueut! feel so good, oooht!"</p>
+<p>To switch her stance immediately at my one word.... She really is like a fanatic, isn't she? I moved my tongue rhythmically, matching the rhythm of Maya Reed's moans.</p>
+<p>"Euhheut! Bossueeut...! Haaht! It's strange, ooht, no, heueut! It feels good, ooh♥"</p>
+<p>Maya Reed's pussy was already thoroughly loosened from when she performed fellatio, but since she was a virgin, I diligently used my tongue to loosen her up a bit more.</p>
+<p>Thinking this was enough, I sat up, grabbed Maya Reed's calves, and spread her legs. This was because her legs had been quite clamped shut from the pleasure while I was licking her.</p>
+<p>"Now, I'm going to put it in."</p>
+<p>"Nehee...♥ Boss and I are becoming one now, aren't we?"</p>
+<p>"Becoming one," she said, with that strange gaze again. She seemed surprisingly dependent. Just by looking at her, I would have thought she'd become an independent and intellectual lawyer. Instead of answering, I nodded and slowly pushed my cock inside.</p>
+<p>"Eugeueuht...! Down there, heueut! Boss's haaueeut~! Big cock, ooh...! It's widening, ooht...! It's being stretched, eeeheong♥"</p>
+<p>Maya Reed's virgin pussy was widening to its limit, accepting my cock. The pressure seemed considerable, as Maya Reed tried to close her legs, but I was holding her legs, so she couldn't achieve her purpose.</p>
+<p>Kkuuk...!</p>
+<p>My cock was blocked by something like a wall. It was her hymen. Earlier, she had become so skilled at fellatio so quickly that I wondered if she wasn't a virgin, but it seemed she was simply a sex genius who learned sex skills quickly.</p>
+<p>I pushed my hips forward, and slowly began to tear Maya Reed's hymen. Maya Reed's virgin pussy, which felt as if it was filled with tiny granules, was pushing my cock out as if expelling a foreign object.</p>
+<p>I enjoyed the sensation of her pussy and the pushing pressure, and thrust my hips further inward.</p>
+<p>Deudeuk...!</p>
+<p>"Ah, it hurts, aaht!"</p>
+<p>Perhaps because her sensitivity was so acute, Maya Reed vividly felt the pain of her hymen tearing. Undeterred by her pain, I completely tore through her hymen, penetrating her.</p>
+<p>"Haaueeut...! It hurts, aaht! Heueut! It's strange, eee...! Inside, eungheueut...! My deepest inside♥ is being pressed by Boss's haaht! cock, eeeheong!!"</p>
+<p>Naturally, because of the Black Mirok Gong, all the pain Maya Reed felt was soon converted into pleasure.</p>
+<p>Cheol-sseok! Cheol-sseok! Cheol-sseok!</p>
+<p>Making sounds of flesh colliding, I thrust my hips, searching for Maya Reed's sensitive spots. Of course, her sensitivity was so acute that even if I just thrust my hips thoughtlessly, Maya Reed would still moan with pleasure, but it was like a man's instinct to give a woman the utmost pleasure.</p>
+<p>"Haaang, haaht! Haaang...! Haaaaaang♥"</p>
+<p>Maya Reed's moaning sound, as I initially worried, didn't become excessively loud due to her sound Ability, but it was a moan that seemed to resonate within my body, like an echo. It was a more vivid moaning sound, somehow.</p>
+<p>One could even say it was a moan that made a man move more fiercely, like whipping a galloping horse.</p>
+<p>"Heueut! It feels...! Ooht...! Strange, eung, heueut! No...! It feels good♥ It feels good, Bossueeut!!"</p>
+<p>That she felt good was probably the truth. Just moments ago, Maya Reed's pussy had been making pushing movements, but now it was squirming and clinging to me, exhibiting a sucking motion inward, like during a vacuum fellatio.</p>
+<p>Of course, Maya Reed's pussy felt incredibly good. With its unique granular sensation and the added sucking movements, the pussy's intention to exploit my semen was clearly felt, and I could feel the semen gradually rising from my Balls.</p>
+<p>Cheolpeok! Cheolpeok! Cheolpeok!!</p>
+<p>Matching the sound of flesh colliding, which was much wetter than before, I thrust my hips even more fiercely. It was a final spurt to spray the semen, which was slowly rising, into Maya Reed's pussy.</p>
+<p>"Haaueuheung...! This! Haaht! Something...! Euhheung...! It's coming, haaht! Something big, eeet...! It's coming, oooht♥"</p>
+<p>"Haa, haa...! That's what a climax is."</p>
+<p>Although she had reached climax earlier from Breast Caress, this climax would be a massive one, incomparable to before. As her pussy was continuously stimulated and their flesh touched, it wouldn't even compare to a climax felt merely from foreplay.</p>
+<p>"Kheueu...! I'm, I'm cumming...!"</p>
+<p>I pressed my pubic bone against Maya Reed's groin as much as possible and cried out. In that instant, my cock expanded to its limit then contracted, profusely gushing out semen.</p>
+<p>Buuut! Buuut! Buuut!!</p>
+<p>"Haaaaaaaaaang! Ah, something hot inside, so much, eeeuk!!! It's coming, it's coming, it's coming, aaht♥"</p>
+<p>Maya Reed reached climax, her tongue lolling out. Her eyes were half-rolled back, her mind half-gone, and her pelvis twitched and shuddered.</p>
+<p>But I had no intention of ending it there. I didn't pull out my cock, but lifted Maya Reed's almost unconscious, trembling body into the air. It was a modified breeding press posture, allowing for the deepest possible penetration.</p>
+<p>"Haa, haa. Haa...?! Bo, Boss? It's not over?"</p>
+<p>"Before I return to Japan, I need to make Maya completely mine."</p>
+<p>At my words, Maya Reed's eyes widened, and she began to panic. Ignoring Maya Reed's panicked expression, I began to thrust my hips.</p>
+<p>"Boss...! I'm already yours...! So! Stooooop! Haaaaaang♥"</p>
+<p>Maya Reed couldn't finish her sentence and could only moan. Thus, within hours of losing her virginity, Maya Reed's intimate experiences surpassed double digits.</p>
+<p>Today's B-cuts~!</p>
+<p>Requested by Gojoy-nim: Chapter 53 Remake Chieri, Suzuki Chisami</p>
+<p>Worried Chieri~!</p>
+<p>Suzuki Chisami</p>
+<p>Requested by TheDreaming-nim: Lara Sinclair 1. See-Through Shirt 2. Bike Riding</p>
+<p>1.</p>
+<p>2.</p>

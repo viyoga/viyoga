@@ -5,81 +5,100 @@ weight = 250
 chapter = 250
 +++
 
-<p>Mimata Chieri seemed to have fully recovered from the nasty hangover, a side effect of the elixir of power. She came running to me from the morning, shaking me awake-me, who'd stayed up late having sex with Nae Fitzgerald.</p>
-<p>,Sunbae-nim, Sunbae-nim! Wake up!"</p>
-<p>"Ugh... it's only 6 AM?"</p>
-<p>Breakfast at the Fitzgerald mansion is usually at 7:30, so it's still quite early, but she's waking me up already. She must be thrilled to actually feel the increase in power.</p>
-<p>"That potent liquor you gave me is really an elixir, Ryuta! I feel so much stronger!"</p>
-<p>Mimata Chieri strikes a front double biceps pose, like a bodybuilder, boasting about her increased strength. Even if she tries to show off her muscles, her arms are still thin. Is it because she's a woman, or because of the bio-remodeling? She looks toned, but there's no bulging.</p>
-<p>"I still don't see any muscles, Sunbae?"</p>
-<p>"But I did get stronger! Yaap! Can't you see it now?"</p>
-<p>Thanks to Mimata Chieri's excited fuss, I woke up and sat up. The thin sheet I was sleeping under slid down, revealing my bare upper body. Mimata Chieri twitched her nose, opened her narrow eyes, and looked at me.</p>
-<p>"Hmm, there's a reason you were tired. Now that the sheet's down, I can smell a woman all over you? This scent... is it Arisu? Doesn't seem like it..."</p>
-<p>"Is your hangover better now?"</p>
-<p>I ignored Mimata Chieri's words and tried to change the subject to her hangover. There's no need to tell Mimata Chieri anything. Anything I say will just end up in Mimata Chieri's collection of fodder.</p>
-<p>"Yes, I'm fine now!"</p>
-<p>"Then I'll go wash up. Sorry, but could you put the sheet in the laundry basket, Sunbae?"</p>
-<p>I got up, grabbed my underwear, and headed to the shower. I glanced at Mimata Chieri, who was sniffing the sheet, muttering, "Whose scent is this?" I ignored her and went to wash up.</p>
-<p>While showering in cold water, I thought about what to do today. Instead of a complicated plan, I decided to just go through the day's schedule, and when Arisu and Nae Fitzgerald move at night, I'll secretly follow them, and after the theft, I'll catch them.</p>
-<p>The problem is whether to tell this to Mimata Chieri or not... Of course, I can trust Mimata Chieri, but if I tell her that Arisu and Nae Fitzgerald are probably Phantom Thief François, she'll freak out.</p>
-<p>"Ryuta, what are you thinking about?"</p>
-<p>"I was wondering whether to tell you what I'm expecting to happen, Sunbae-nim."</p>
-<p>"Aww♥ Tell me~. If you say that and then don't tell me, I'll be so curious."</p>
-<p>Mimata Chieri snuggled up to me, acting cute as if trying to seduce me. Okay, let's tell her. I can endure a little fuss.</p>
-<p>I told Mimata Chieri about a few incidents and my thoughts, saying that Arisu and her aunt, Nae Fitzgerald, are probably Phantom Thief François.</p>
-<p>"Heeeh~? Really? Ryuta, you're amazing~! If what you say is true, then you figured out something that no one else has?! Su~goi!"</p>
-<p>Mimata Chieri reacted to my story with a typical Japanese "Heeeh~! Su~goi!" and made a fuss, but it was bearable.</p>
-<p>"They're probably going to steal something today."</p>
-<p>"Hmm, then how about this? We suffered at the lab before, so after catching them both, you should violate them!"</p>
-<p>"Huh?"</p>
-<p>What is this woman saying? I'm not some serial rapist... Violate them after catching them?</p>
-<p>"You know that Nae Fitzgerald is my aunt, right, even if Arisu is not?"</p>
-<p>"I know, but you did it, right? I smelled Nae-nim's perfume on the sheet? And the other woman's scent on the sheet is different from Arisu's. So, the only women in this mansion are Nae-nim and the maids, but the maids in this mansion aren't very pretty."</p>
-<p>No, don't give me that yandere look again... Anyway, her nose is amazing. To smell Nae Fitzgerald's perfume, which must have faded a long time ago. And to be able to identify who's who by the woman's scent (?) is truly amazing.</p>
-<p>"You'll watch me violate them both, Sunbae-nim?"</p>
-<p>"Nehe, of course♥"</p>
-<p>I unconsciously touched my temple. Am I getting dizzy...? The thought that maybe I shouldn't keep Mimata Chieri by my side briefly crossed my mind, but I also felt a little excited, so I started to think that good is good.</p>
-<p>Clap!</p>
-<p>I slapped both cheeks with my palms and barely managed to fend off the lewd thoughts. Then I opened my mouth.</p>
-<p>"Let's decide after seeing how things go."</p>
-<p>"So, you're saying you'll do it?"</p>
-<p>"Let's go eat breakfast first, Sunbae."</p>
-<p>I put Mimata Chieri, who was full of lewd fantasies, under my arm and went down to the dining room. We were a little late because we were talking, and Oliver Fitzgerald, Nae Fitzgerald, and Arisu were all sitting at the table.</p>
-<p>Nae Fitzgerald's face was constantly smiling, and her skin was smooth and glossy. It must be because she sucked up so much of my yang energy early this morning.</p>
-<p>"Oh, Ryuta, come sit down. Butler~! Please give Ryuta a lot of food."</p>
-<p>As expected, it was worth pretending to take sleeping pills and staying erect yesterday. As soon as I sat down, Nae Fitzgerald took good care of me.</p>
-<p>Arisu, not knowing why, tilted her head and looked at her mother, wondering why she was acting like that, and Oliver Fitzgerald greeted me, asking if I slept well, then frowned and kept looking at his phone. Something must be going on at the company?</p>
-<p>"Ryuta, what are you going to do today?"</p>
-<p>"I'll probably look around New York again today. Mimata Sunbae hasn't seen New York properly, and I haven't seen everything either."</p>
-<p>In fact, the only places I've seen in New York are the AmSang branch, the Fitzgerald mansion, the factory district, and the hotel where I met Arisu, so today I should enjoy a vacation.</p>
-<p>Arisu made a slightly embarrassed expression at my words, then stuck out her tongue and smiled.</p>
-<p>"Then let's go out together after breakfast! I'll make sure you have a day of fun without regrets."</p>
-<p>It was hard to believe Arisu's words, but today I'll finally be able to go sightseeing.</p>
-<p>###</p>
-<p>Arisu Fitzgerald and Nae Fitzgerald quietly left the mansion and headed to the Metropolitan Museum.</p>
-<p>"Why are you so late?"</p>
-<p>"I couldn't help it, Mom, we were sightseeing in New York."</p>
-<p>The three of them went out together in the morning and enjoyed sightseeing until late at night, so Nae Fitzgerald, who had to do all the preparations alone, gave Arisu Fitzgerald a slight scolding. Arisu Fitzgerald said it couldn't be helped and clung to Nae Fitzgerald, acting cute.</p>
-<p>"Let's park the car here for now."</p>
-<p>Nae Fitzgerald and Arisu Fitzgerald parked their car in a parking lot one block away from the museum and entered an alley.</p>
-<p>When they came out of the alley, Nae Fitzgerald and Arisu Fitzgerald had disappeared, and the world's most famous thief, Phantom Thief François, had appeared.</p>
-<p>With cyberware equipped with various devices and even complex tactical night headwear like VR machines... Their appearance was exactly the same as Phantom Thief François, whose appearance had been exposed in the media. Except for the chest size, their body shape and appearance were similar, so it was hard to tell who was who unless you knew them well. They moved through the shadows of the night and soon arrived at the Metropolitan Museum.</p>
-<p>Nae Fitzgerald headed towards the entrance, and Arisu Fitzgerald climbed up the wall of the Metropolitan Museum as if defying gravity. She stopped at a third-floor window and carefully opened it.</p>
-<p>Because she had taken measures when she visited the museum in advance, opening the window didn't trigger an alarm.</p>
-<p>Arisu Fitzgerald quietly ran to the control room on the third floor. All the CCTV cameras can be checked in the control room, and the police can be called, so this place had to be taken care of.</p>
-<p>Arriving quietly in front of the control room, Arisu Fitzgerald attached a radio wave blocking device to the control room door and pushed a sleeping gas canister with a small straw-like tube through the gap in the door.</p>
-<p>Shiiiii!</p>
-<p>With the sound of air entering, the control room was filled with white smoke-like sleeping gas. Arisu Fitzgerald waited for a while and then opened the door. Inside the control room, two fat guards were sitting in chairs, fast asleep due to the sleeping gas. This should keep them asleep for at least four hours.</p>
-<p>"Control room secured."</p>
-<p>Arisu Fitzgerald turned off all the CCTV cameras and radioed Nae Fitzgerald, who should have taken care of the guard at the guardhouse by the door by now.</p>
-<p>"There's a problem."</p>
-<p>Strangely, Nae Fitzgerald's answer came from behind Arisu Fitzgerald, not from the radio. Arisu was slightly surprised but turned around, pretending to be okay. As expected, Nae Fitzgerald was standing behind Arisu Fitzgerald.</p>
-<p>"What's wrong, Mom?"</p>
-<p>"It seems like there's already an intruder. The guard was collapsed."</p>
-<p>At Nae Fitzgerald's words, Arisu Fitzgerald turned on the CCTV footage recorded at the front gate guardhouse. Coincidentally, just one minute before they arrived at the museum, a red mist suddenly entered through the front gate and surrounded the guard, knocking him unconscious?</p>
-<p>"That mist is the intruder?"</p>
-<p>"Maybe? Wait a minute, Mom...! Look over there! Look at number 1!"</p>
-<p>The screen captured on CCTV number 1 showed the red mist gradually gathering and changing into the shape of a person. The person was an Asian woman with long red hair.</p>
-<p>"This woman must be a thief too, right? Then let's hurry up before our stuff gets stolen!"</p>
-<p>"I guess we have to. It wasn't intentional, but it suddenly turned into a competition between thieves."</p>
-<p>Afraid that their chosen items would be stolen, the two quickly left the control room. As soon as both Phantom Thief François left the control room, the computer in the control room suddenly started working. From the moment the red-haired woman was captured on the screen, all CCTV data began to be erased.</p>
+<p>As soon as I got into the taxi, I contacted the group to let them know I was heading to Fujigasaki Rinka's mansion, and then I started to review the fight against Famine.</p>
+<p>Certainly, Famine was weaker than in the game, probably because it was its first appearance. It was strong enough to kill 20,000 people in an instant, but it didn't have the final boss-level force it showed in TMC. It's not like I fought well either, but I couldn't help it since I didn't have the ability to fly.</p>
+<p>Next, with my heightened intelligence, I just pulled out some memories of Famine, and I remembered the deductions made by several players in the pre-possession community. According to the players' deductions, Famine was a character that grew by absorbing people's life force, so it went to the stadium where people gathered.</p>
+<p>If that's the case, the number of victims in the original history was supposed to be 40,000, but it was reduced to 25,000, so will Famine eventually weaken? Or will it become more rampant because it didn't absorb enough life force...?</p>
+<p>25,000 people... That's by no means a small number. I didn't know how many people would suffer from this incident, including the victims' families. Even I, with my strong mental fortitude, felt a bit of guilt because of the abnormal number.</p>
+<p>I felt like I could have reduced the sacrifice a little more if I had done a little better, but I decided to think that I had saved 15,000 people who would have been sacrificed otherwise. Yeah, if it weren't for me, 40,000 people would have died, not 25,000.</p>
+<p>Thinking that way made me feel a little lighter.</p>
+<p>,We have arrived."</p>
+<p>I took my smartphone out of my pocket, paid, and got out of the taxi. My clothes weren't torn because of the armor during the battle, so the smartphone I had in my pocket was fine.</p>
+<p>Ah, now that I think about it, I left my bag in the bathroom. It was just a bag I carried around to hold the Daughter of the Abyss's statue, though.</p>
+<p>,Sunbae-nim!"</p>
+<p>Mimata Chieri was waiting at the entrance and ran towards me when she saw me. Because Mimata Chieri's shout was so loud, Arisu, Kiyohira, and Hanasaki Sayaka came out and greeted me.</p>
+<p>,Are you hurt?"</p>
+<p>,Yeah, I'm fine."</p>
+<p>Arisu asked, touching my body here and there. I said I was okay and nodded.</p>
+<p>,Th-that... Ryuta-ssi, are you a psychic?"</p>
+<p>Hanasaki Sayaka asked me hesitantly. It's a natural question. I transformed into armor right in front of her. But I don't need to say it as it is.</p>
+<p>,It's a secret."</p>
+<p>,Ah... All the news is saying that a psychic committed terrorism."</p>
+<p>That's right. It was an incident where 25,000 people died. Of course, it was a big deal not only in the United States but all over the world. I went inside the mansion with everyone and turned on the large TV in the living room and changed the channel.</p>
+<p>All the channels were in chaos. I changed the channel a few times and then fixed it on a news channel that had just started and started watching what they were saying.</p>
+<p>First of all, the screen said "Breaking News! Psychic Terrorist Attack on Soccer Stadium!" and the sensational phrase "26,200 Deaths!" was floating below, and the scene of Aitana and Famine fighting and me jumping up in armor was constantly playing.</p>
+<p>I thought it was about 25,000 people, but more than 1,000 more people died than I expected.</p>
+<p>A whopping 40,000 survivors at the stadium saw the scene, and it was broadcast on sports channels all over the world, so the United States and other governments that wanted to hide the existence of psychics would not be able to stop it.</p>
+<p>Not just one or two people saw Famine running wild and me and Aitana fighting against Famine, and tens of millions of people watched it in real time, and those who saw it spread the scene they saw to their respective communities, so it became an undeniable fact.</p>
+<p>-I couldn't stand it because he suddenly appeared and killed other people. I just thought it was something I could do, so I stepped up.</p>
+<p>A Latina beauty with slightly reddish brown hair, Aitana, was being interviewed. She was being interviewed, but judging from the soldiers in military uniforms walking around, it seemed that the planned future of being forcibly enlisted was waiting for her.</p>
+<p>But in a way, it might be good for Aitana too. If she doesn't enter the big fence of the US military, she may suffer from numerous temptations and kidnappings.</p>
+<p>Besides, by becoming a member of the US military and resolving various conflicts, she can increase her level and reduce the difference in ability with Famine, which had a considerable gap.</p>
+<p>The next screen was Famine's appearance. A man with gray hair, brown skin, and blue eyes, whose race was difficult to identify. Famine's appearance continued to be shown, and the announcer was talking.</p>
+<p>,People who have seen this man who calls himself Famine should report it as soon as possible. The government has declared that it will pay up to ten million dollars in cash to citizens who help catch this man called Famine."</p>
+<p>Only ten million dollars for a terrorist who killed 26,000 people? Isn't that too stingy? It will continue to rise as Famine continues to commit atrocities, but right now, no one will risk their lives for just ten million dollars.</p>
+<p>No, would there be? It's a cheap price for me to fight Famine, but ten million is a lot of money for ordinary people.</p>
+<p>The next one was naturally me. They talked about me for a few minutes under the topic of an unidentified hero, and the people around me who were watching the news with me glanced at me. I'm a little embarrassed, so I wish they would move on to the next topic.</p>
+<p>Fortunately, there wasn't much information about me, so they quickly moved on to the next topic. The next topic was whether the government knew about the existence of psychics. Of course they knew. Dickson, a former soldier who is Han Yu-gyeong's bodyguard, said he saw psychics on the battlefield, so there was no way they wouldn't know.</p>
+<p>I was watching the news when I heard a sound from outside. It was the sound of a car engine. It was the sound of a gasoline engine, which is hard to hear these days. I glanced out the window and saw that the source of the sound was a camper van.</p>
+<p>Camper vans and vehicles that go to the outback still use gasoline because they can't charge electricity in the middle, and the engine sound seemed to prove it.</p>
+<p>,Ryuta!!!"</p>
+<p>A beauty with rare purple hair and red eyes, Fujigasaki Rinka, got out of the camper van and shouted my name loudly. Fujigasaki Rinka was wearing a black short-sleeved T-shirt and green cargo pants, which looked pretty good on her.</p>
+<p>,It's Rinka-nim...!"</p>
+<p>,Rinka-san..."</p>
+<p>Hanasaki Sayaka, a huge fan of Fujigasaki Rinka, and Kiyohira, who idolizes Fujigasaki Rinka, ran to the door after hearing Fujigasaki Rinka's voice. Before the two of them could reach the front door, the door slammed open and Fujigasaki Rinka came in with a bag.</p>
+<p>,I'm here!"</p>
+<p>Fujigasaki Rinka greeted Kiyohira with a "Yo" and immediately looked at me. In fact, Kiyohira and I are the only people Fujigasaki Rinka knows, so she would look for the people she knows first.</p>
+<p>,You!"</p>
+<p>Fujigasaki Rinka strode towards me and hugged me as I stood awkwardly. It was as if she was saying I did a great job.</p>
+<p>,My disciple, Ryuta. You've become famous? You're on TV! Huh?"</p>
+<p>,Did you recognize me?"</p>
+<p>She must have seen the news on the way here. Fujigasaki Rinka would have seen the Shinkaiyaitsude techniques used by the black-armored man, so she would have known it was me right away.</p>
+<p>,Of course. Everyone did! This is the technique that this master taught. Wouldn't it be strange if I didn't know?"</p>
+<p>,I thought my master would recognize me. First, let me introduce you to my group."</p>
+<p>I calmed down the excited Fujigasaki Rinka and introduced her to the group except for Kiyohira.</p>
+<p>,This cute orange-haired person is Mimata Chieri-ssi, who is my senior at the company and is now working as my secretary, this blonde beauty is my cousin Arisu Fitzgerald, and this person may be known to Sunbae-nim, she is Hanasaki Sayaka-ssi, a famous actress in Japan."</p>
+<p>,I forgot my manners because I was so happy to see my disciple! Since I'm at my house, you all know my name, right? Nice to meet you all!"</p>
+<p>When I introduced everyone, Fujigasaki Rinka laughed heartily and shook hands with everyone once.</p>
+<p>Of course, Hanasaki Sayaka was on the verge of fainting at Fujigasaki Rinka's handshake, and Fujigasaki Rinka brushed it off as if she was used to this reaction. She's such a big star, so there must have been times when her fans fainted.</p>
+<p>,By the way, is Kazuhiro okay?"</p>
+<p>Fujigasaki Rinka asked as if she had remembered something. He was fine until the end, so unless he suddenly gets caught up in a shooting, he should be fine.</p>
+<p>,I wonder if he can come to the home party today...? No, we can't have a party, can we?"</p>
+<p>If Fujigasaki Rinka holds a home party at her house in a national disaster situation where 25,000 people have died, she will get a lot of aggro and be criticized by public opinion.</p>
+<p>,Let's just call Kazuhiro and have a quiet meal with us."</p>
+<p>When I said that we should cancel the party and just have a meal, thinking about my master's future, Fujigasaki Rinka silently nodded and suddenly called Kiyohira.</p>
+<p>,Hey, Kiyohira. Call Kazuhiro and ask if he can come. I have something to talk about alone with my disciple."</p>
+<p>Fujigasaki Rinka grabbed me by the scruff of the neck and took me to the training ground where I had sparred with Kiyohira. Everyone heard that she had something to talk about alone, so no one followed.</p>
+<p>Fujigasaki Rinka entered the training ground, closed the door, looked at me with serious eyes, and opened her mouth.</p>
+<p>-----</p>
+<p>I've compiled the main character's stats at the request of someone ㅎㅎ</p>
+<p>Level 11</p>
+<p>Strength: 12 Agility: 10 Stamina: 12 Resistance: 17 Recovery: 10 Nerves: 11 Appearance: 17</p>
+<p>Mental</p>
+<p>Intelligence: 8 Knowledge: 8 Concentration: 4 Willpower: 17 Creativity: 2 Charm: 15 Judgment: 4</p>
+<p>Other</p>
+<p>Luck: 5 Abyss: 15</p>
+<p>Crimson pillars of murderous intent swimming in semen</p>
+<p>Magic Circle - Offering to the Daughter of the Abyss</p>
+<p>Regeneration</p>
+<p>Master's Sense</p>
+<p>Limit Break: Willpower</p>
+<p>Abyss Affinity</p>
+<p>Daughter of the Abyss's Stamp</p>
+<p>Telekinesis</p>
+<p>Cambion's Body</p>
+<p>Daughter of the Abyss's Brand</p>
+<p>Body Entwined in the Abyss</p>
+<p>Eulogy of Purity</p>
+<p>Shinkaiyaitsude</p>
+<p>Black Miroku Palm</p>
+<p>Shadow Domination</p>
+<p>Telekinesis</p>
+<p>Magic Circle Usage</p>
+<p>Maximum Limit Level +2 Body +3 Willpower +2 Abyss +5</p>
+<p>The traits and skills are so flashy ㅋㅋㅋ</p>
+<p>------</p>
+<p>Rinka-ttang!</p>
+<p>Rinka-ttang watching training with a whip.</p>
+<p>Rinka-ttang showing off her latissimus dorsi.</p>
+<p>Rinka-ttang suddenly dancing</p>

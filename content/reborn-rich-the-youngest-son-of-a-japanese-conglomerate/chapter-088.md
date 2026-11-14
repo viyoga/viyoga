@@ -5,75 +5,87 @@ weight = 88
 chapter = 88
 +++
 
-<p>The kiss with Taira Yukiko was sweet. I hugged Taira Yukiko tightly while kissing, and Taira Yukiko responded by holding the back of my head. After parting our lips for a moment, she looked at the lights I had turned on and opened her mouth.</p>
-<p>"It's outside here, and it's too bright. Let's go inside, okay?"</p>
-<p>"Okay... Hup!"</p>
-<p>As I said okay and tried to move, Taira Yukiko pulled my face with both hands again and kissed me.</p>
-<p>We entered the house while passionately kissing like an enthusiastic couple in a movie. We hurriedly took off our shoes and continued kissing in the entryway.</p>
-<p>Taira Yukiko craved my lips as if she were someone who hadn't eaten for a week looking for food. I laid Taira Yukiko on the spacious sofa in the first-floor living room and continued kissing. We were too impatient to go all the way to the bedroom on the second floor.</p>
-<p>We continued to match our lips, and our tongues intertwined like snakes mating, exchanging each other's sweet saliva. At the same time, our hands were busy. Taira Yukiko was busy taking off my clothes, and I was busy taking off Taira Yukiko's clothes. When I lowered the shoulder straps and lowered the zipper on her back, a black bra appeared, concealing her huge breasts.</p>
-<p>When I touched her breasts over the bra, I felt soft yet firm breasts. They were breasts that felt good just by touching them.</p>
-<p>Although she couldn't make moaning sounds because we were kissing, I could feel her excited breaths. Taira Yukiko's breath was hot.</p>
-<p>As I continued to touch her breasts over the bra, the middle part gradually became hard. This must be the nipple. I grabbed her nipple with my thumb and forefinger and gently rolled it.</p>
-<p>"Haaang!"</p>
-<p>In the end, Taira Yukiko, unable to overcome the pleasure, stopped kissing and made a sweet moaning sound. I wanted to hear more of this moan. I took advantage of the fact that our lips were already parted and completely stripped Taira Yukiko of her clothes.</p>
-<p>Taira Yukiko's body could be described in three words: voluptuousness, white, and pink. I already knew she had a good figure because of her curvy body, which was noticeable even through her clothes, but when she became completely naked without a single thread, her figure was overwhelming. Moreover, her pink nipples stood out even more in contrast to her flawless white skin.</p>
-<p>"Yukiko, you're beautiful."</p>
-<p>Now there were no more -ssi or honorifics. Taira Yukiko, no, Yukiko was now my woman. Knowing the hidden meaning in my words, Yukiko's eyes were filled with joy.</p>
-<p>"Hold me, Ryuta..."</p>
-<p>Yukiko reached out her hands towards me. It was the touch of a woman craving love. I approached and hugged Yukiko like metal attracted to a magnet. I felt her breasts being pressed and spreading due to my weight, and the hard nipples in the center tickled and stimulated my skin.</p>
-<p>Since I was also naked, we touched each other's bodies and enjoyed the texture of our skin. Even just rubbing our skin together, our excitement gradually intensified. At some point, we overlapped our lips again and began to caress each other's erogenous zones.</p>
-<p>It definitely felt better to touch her bare breasts than over the bra. Seeing her breasts changing shape in my hands gave me a sense of satisfaction for some reason.</p>
-<p>"Heuaaang...! It feels so good to have a man's touch after so long, haang!"</p>
-<p>To make Yukiko, who had started moaning, even happier, I caressed her breasts more persistently. Her skin gradually turned red as her body heated up. After caressing her persistently for about ten minutes, she flipped her eyes and raised her head as if reaching her peak.</p>
-<p>"Haeuaang! I like it, Ryuta, I like it, I love you...!"</p>
-<p>Yukiko was briefly limp, but the repressed sexual desire of a widow could not be satisfied with just this, and she quickly regained her senses.</p>
-<p>"This time, I'll do it for you."</p>
-<p>With a bewitching look and smile like a succubus, she sat me on the sofa this time. She grabbed my proudly hardened Johnson and began to lick it while looking up at me.</p>
-<p>"Euheuk!!"</p>
-<p>Pleasure came to the point where I moaned involuntarily and my toes curled. It was the best fellatio I had ever experienced. When I moaned, Yukiko made a devilish expression as if she was about to say, "Weakness found~☆," and sucked my Johnson even harder. While I was losing my mind to pleasure, Yukiko also seemed to be getting excited, and a small spring formed with her vaginal fluid dripping onto the floor.</p>
-<p>"Uueok...!"</p>
-<p>Even while gagging, Yukiko put my massive Johnson deep into her throat and stayed still. When I looked to see what she was doing, she buried her nose deep in my lower abdomen, smelling my scent, and lowered one hand to touch her pussy and masturbate.</p>
-<p>I guess she has a scent fetish. Could it be... that Yukiko took my underwear that often disappeared? After smelling my scent for a while, Yukiko shook her head up and down again and started fellating my Johnson at high speed.</p>
-<p>Thanks to Yukiko's fellatio, which had reached the level of a master, I felt the urge to ejaculate more and more.</p>
-<p>"Yukiko, I'm cumming...!"</p>
-<p>At my words, Yukiko lowered her head on her own and took my Johnson deep into her throat again. At the same time as I ejaculated, she smelled the scent of my groin and touched her pussy to reach her own climax. Can this be called a simultaneous orgasm?</p>
-<p>It was a pleasure that felt like my back was about to break. Yukiko sucked up even the semen remaining in my urethra and took her mouth off my Johnson.</p>
-<p>"Did it feel good?"</p>
-<p>"Yeah, it felt really good..."</p>
-<p>"It was worth practicing..."</p>
-<p>Yukiko muttered quietly. Is this the skill she gained from practicing? I felt strangely proud, so I grabbed her arm and pulled her into a hug. Flesh touched flesh, and I could feel Yukiko's heart beating.</p>
-<p>"I can feel your heart beating."</p>
-<p>Yukiko whispered in my ear, as if she felt the same way. As if she felt this was also sexual stimulation, my Johnson, which was in a semi-erect state, stood up and announced its presence.</p>
-<p>I laid Yukiko down and spread her legs. I could see her pink, beautiful pussy. It was a mess, congested and wet with vaginal fluid because she had already climaxed twice. I licked her vulva and tasted the vaginal fluid. It was a sour vaginal fluid full of pheromone scents that seduced men.</p>
-<p>"Haeum...! Haaang...."</p>
-<p>Yukiko closed her eyes and quietly enjoyed my caresses. Seeing that, I felt mischievous for no reason and gently stimulated her clitoris with my tongue.</p>
-<p>"Haaang! Too strong...! Haaang...."</p>
-<p>As I continued to stimulate her clitoris, vaginal fluid spurted out, pyut pyut! Unable to endure it any longer, she grabbed my head with both hands and pulled me up. And whispered in my ear to put it in.</p>
-<p>As Yukiko begged, I put the tip of my glans on Yukiko's vulva and slowly inserted it. The flesh of her pussy intertwined with my glans, welcoming a man after a long time. It was a very pleasant pussy.</p>
-<p>"Heueueung! Haaang!"</p>
-<p>Yukiko was beside herself just from inserting the glans. She scratched my back with her fingernails, letting me know her pleasure.</p>
-<p>I slowly inserted my Johnson again. The protrusions inside her vagina caressed my Johnson as if they were alive. In return, I thrust deeper and caressed her cervix with my glans.</p>
-<p>"Hiaang!! I've never felt this full before!"</p>
-<p>I felt proud to teach her the first time. I slowly started piston movements. Yukiko shed tears as she felt a man invading her inside after a long time. Those tears stimulated a man's hidden sadistic nature. So, without realizing it, the speed of my piston movements increased.</p>
-<p>Cheolssuk cheolssuk!</p>
-<p>Her pussy was already wet from two climaxes, but when my Johnson went in, the sound of flesh hitting flesh was loud every time she shook her waist. But this sound was nothing.</p>
-<p>"Aaaang! Put it in deeper, deeper! Haaang!"</p>
-<p>It was because Yukiko was already making even louder moaning sounds. I didn't know how to put it in deeper when I was already hitting her cervix, but I shook my waist more vigorously. Yukiko spread her legs wider and tried to accept my Johnson deeper into her.</p>
-<p>"Haaang! I like it! Haaang! I love you, Ryuta! I love you!"</p>
-<p>"I love you too, Yukiko-ssi!"</p>
-<p>"Kiss me, kiss me...!"</p>
-<p>We exchanged passionate kisses, exchanging fluids from each other's bodies up and down. Above, we shared each other's saliva, and below, Cowper's fluid and vaginal fluid mixed.</p>
-<p>I kept shaking my waist. The pleasure I felt from my Johnson gradually made me unable to see anything in front of me, and as my Johnson swelled in anticipation of ejaculation, Yukiko spread her legs wide and pressed my buttocks with both hands, leading my tip to her deepest part.</p>
-<p>"Heueu!! I'm cumming!"</p>
-<p>"Haeuang~! Aaaang!! Put it in, put Ryuta's semen in my pussy...!"</p>
-<p>When Yukiko pressed my buttocks and my Johnson pushed the cervix to the maximum, my Johnson expanded to the maximum and ejaculated semen. The ejaculation earlier felt like my back was about to break, but this time it felt like my soul was leaving with each gush.</p>
-<p>Ulkeok ulkeok!</p>
-<p>"Haaaaaa!!! I'm going too♡ Haa....Aang♥"</p>
-<p>"Eueheuek!! It feels good, Yukiko's pussy."</p>
-<p>Yukiko felt the climax at the same time as my Johnson, which was completely attached without a gap, ejaculated. At that moment, the wrinkles of her pussy squeezed my Johnson tightly, and I groaned without realizing it.</p>
-<p>"Aaa...! It's warm...!"</p>
-<p>Yukiko stroked her lower abdomen with a languid expression after a wave of climax passed. I completely finished ejaculating and pulled out my Johnson. Her pussy was so tight that the flesh of her pussy came off when I pulled out my Johnson.</p>
-<p>After a while, my semen began to flow back from her pussy with a gurgling sound. Hmm... This is a cream pie.</p>
-<p>"Shall we do it in bed now?"</p>
-<p>Yukiko nodded shyly at my question. Is it okay for a 30-year-old widow to be this cute?</p>
+<p>Since I came to Korea, I decided to take care of a few things as planned. I introduced the Korean talents I knew to Han Yu-gyeong and used the knowledge I gained when I played with the ninja concept before to find hidden throwing stars or hidden blades of rare grade or higher.</p>
+<p>The people I introduced would meet Han Yu-gyeong separately after I went to Japan next time, and I searched for throwing stars and hidden blades while traveling around Korea together. Due to time constraints, I couldn't go to Jeolla-do, Gyeongsang-do, or Gangwon-do, but I was able to find some throwing weapons while touring Gyeonggi-do and Chungcheong-do.</p>
+<p>Most of them were sturdy and powerful general throwing weapons, but some of the items I obtained had special abilities of epic grade or higher.</p>
+<p>◆Lightning Flash Shuriken [Epic Equipment]: A shuriken that turns into lightning when thrown. It is made by refining special minerals. Spirituality dwells in the refining process and returns to the owner.</p>
+<p>◆Azure Light Butterfly Dart [Epic Equipment]: It looks like a butterfly-shaped hair ornament that decorates the head, but it is a hidden weapon that can be thrown so that it cannot follow the trajectory like a butterfly. Poison can be applied to the mouth of the butterfly. It is enchanted with a spell that returns to the owner.</p>
+<p>◆White Jade Rosary [Unique Equipment/Consumable]: A rosary made by connecting 32 white jade beads created with ancient magic, each white jade bead is a type of exploding hidden weapon. The explosive power is considerable, but once used, it cannot be used again.</p>
+<p>There were three types of high-grade weapons I found this time. I also obtained a few throwing stars or hidden blades without other options, so it would be enough to use.</p>
+<p>While searching for throwing stars and hidden blades, I also found a few elixirs nearby. I gave the elixir that enhances physical abilities to Han Yu-gyeong, and I ate the elixir that increases my lacking mental abilities.</p>
+<p>As a result, Han Yu-gyeong's Strength increased by 2, Dexterity by 1, Constitution by 2, Resistance by 1, Nerves by 2, and finally Appearance by 1, and my Intelligence increased by 2, Judgment by 1, and Appearance by 1. In the first place, there were few elixirs that enhance the mental side, so Han Yu-gyeong ate a lot, but it would be enough to survive in Korea, the main stage.</p>
+<p>I didn't use all the elixirs. I obtained four Juangwa elixirs that increase appearance by 1 and slow down aging, so Han Yu-gyeong and I shared one each and set aside the remaining two for Arisu and Yukiko.</p>
+<p>,I don't know how you know all this, but thank you."</p>
+<p>Han Yu-gyeong now believed that I could make meju out of red beans. It was something she couldn't help but believe since I gave her superpowers and a mysterious elixir that really improved her body's performance.</p>
+<p>,But it's a bit disappointing. I wanted to spend some time alone together...."</p>
+<p>Because we traveled around so much, the entire day on Saturday and until the afternoon on Sunday had passed. This was also possible because we traveled so tightly that we took turns sleeping in the car, but if we had done it leisurely, we would have had to travel until Monday when I returned to Japan.</p>
+<p>,We can just stay together without moving from now on."</p>
+<p>,Hehe, should we?"</p>
+<p>It was still the elevator before arriving at Han Yu-gyeong's house, but we were clinging to each other like newlyweds. We had eaten enough outside before going to Han Yu-gyeong's house, so now we just had to exercise (?) naked at home. Oh, I need to wash up first. Well, we can do it while washing.</p>
+<p>We arrived home and took off our clothes as if shedding our skin. And without saying who would go first, we headed to the bathroom. We turned on the hot water and started brushing our teeth together while looking in the mirror. While brushing our teeth, Han Yu-gyeong suddenly looked at me.</p>
+<p>,Aangaee!"</p>
+<p>,Huh?"</p>
+<p>I couldn't understand what Han Yu-gyeong was saying, who suddenly had a mouthful of toothpaste foam and moved her mouth, so I asked again. Han Yu-gyeong rinsed her mouth at my question and brought her mouth to my ear. The mint scent brushed past my nose, probably because she had just brushed her teeth.</p>
+<p>,I love you♥"</p>
+<p>,Ah~."</p>
+<p>I pretended not to know that Han Yu-gyeong was waiting for an answer to ,I love you' with a playful spirit and continued brushing my teeth. Then, Chi~! Han Yu-gyeong hit my arm. I also rinsed my mouth like Han Yu-gyeong, gave her a light kiss on the lips, and whispered ,I love you' in her ear.</p>
+<p>,Hehe, shall we go into the tub?"</p>
+<p>,Let's do that."</p>
+<p>Since it wasn't a very large tub, I went into the tub first and Han Yu-gyeong sat on top of me as if overlapping. We played with each other in the tub. We splashed water and tickled each other's bodies, but soon it became each other's caresses.</p>
+<p>The sounds of laughter and loud splashing were soon replaced by moans and light splashing sounds.</p>
+<p>,Haaang~! Heueum...!"</p>
+<p>Han Yu-gyeong couldn't help but moan when I rubbed her erect and sensitive pink nipples with soapy hands.</p>
+<p>Han Yu-gyeong also squeezed out body wash and rubbed my dick without giving in to me. It felt different from getting a handjob with bare hands usually. It was more slippery and felt better.</p>
+<p>,Keueuk...! I like it...."</p>
+<p>,Haeueung...! Me too, I like it too, Yong-tae-ya!"</p>
+<p>I and Han Yu-gyeong moaned as if singing in unison, and soon looked into each other's eyes and kissed. We passionately mixed our tongues and exchanged saliva.</p>
+<p>Chuuup.... Chuhuuup...!</p>
+<p>After the lewd kissing sound passed, we started caressing each other under the pretext of washing each other with soapy hands. The bathroom was full of foam. Still, as we touched each other, we were able to wash every part of our bodies without leaving any unwashed areas.</p>
+<p>,Did you wash everything?"</p>
+<p>,No, I haven't washed everything yet."</p>
+<p>When I looked at her as if asking what she meant, Han Yu-gyeong turned her body and showed me her butt. And she pointed to her pussy.</p>
+<p>,You didn't wash the inside here. Please wash it quickly by rubbing it with a thick cleaning brush♥"</p>
+<p>At the sight of her wiggling her butt and teasing my dick, my dick's stiffness automatically reached MAX. Such a seductive bitch....</p>
+<p>,I'll wash you clean."</p>
+<p>,Aang♥"</p>
+<p>I inserted my dick into Han Yu-gyeong's pussy, which was already wet from the foamy caress just now. As soon as I put in only the glans, Han Yu-gyeong pushed her butt back and inserted my dick all the way in.</p>
+<p>,Haaang!"</p>
+<p>Han Yu-gyeong, who inserts it herself and emits pleasure herself. I decided to give her a reward of pleasure for that admirable appearance.</p>
+<p>I wrapped one arm around her chest and the other arm around her and placed it on her clitoris. And I started piston movements by touching her nipples and clitoris at the same time.</p>
+<p>,Haaang! This is, too, sttooong♥ Heuaaang...!"</p>
+<p>Han Yu-gyeong was quickly reaching a small climax, probably because the three-point attack of nipples, clitoris, and vagina was too strong. I was not satisfied with that and continued to shake my waist. The only thing that could stop this runaway piston movement was ejaculation.</p>
+<p>Cheolssak! Cheolssak! Cheolssak!</p>
+<p>Along with the sound of flesh hitting flesh, Han Yu-gyeong's moans grew louder and louder. Perhaps it was natural. Han Yu-gyeong was moaning almost to the point of screaming because of the continuous multi-orgasms.</p>
+<p>,Kyaaang! Haaa! Eunghat, eung! Keueut!! Haeung!"</p>
+<p>,Heoeok...! Heok...! Heok! Does it feel good?"</p>
+<p>,Heueueut! It's gooood, so gooood♥ I'm getting weird, Yong-tae-yaaang!"</p>
+<p>If it feels good, I should do more. I felt the urge to ejaculate gradually, so I spurred on the piston movement even more.</p>
+<p>Han Yu-gyeong's pussy, which had been going on since earlier, was constantly wriggling and demanding my semen. Like an AI that had learned how I ejaculate, Han Yu-gyeong's pussy was wriggling stimulatingly. It was repeating sucking like a sucker, wriggling and rubbing, and continuing to caress me, demanding that I release my semen quickly.</p>
+<p>At Han Yu-gyeong's pussy's urging, my dick also began to spew out semen.</p>
+<p>,Keueut, I'm cumming!"</p>
+<p>,Eheuheung...! Gooood! Inside, cum inside. Please put Yong-tae's thick semen in my belly, haaaaang!"</p>
+<p>As Han Yu-gyeong asked, I put my sperm deep inside Han Yu-gyeong's belly. The semen was being powerfully shot out, and it was the most pleasant ejaculation I had had since coming to Korea.</p>
+<p>When I pulled out my dick, a large amount of semen poured out of Han Yu-gyeong's pussy with a thud. I washed away the semen flowing on the bathroom floor and Han Yu-gyeong's pussy with the shower and went back into the tub with Han Yu-gyeong. We were both breathing heavily as if we had run at full speed.</p>
+<p>,But it's disappointing."</p>
+<p>,What is?"</p>
+<p>What's disappointing? Was my sex skill lacking? I felt curious at Han Yu-gyeong's words and asked back.</p>
+<p>,Yong-tae's semen is hot, so I liked the warm feeling of holding it in my belly, but it's disappointing because it's all washed away♥"</p>
+<p>,Ah, I can always put it back in. Would you like a refill, ma'am?"</p>
+<p>,Yeee♡"</p>
+<p>I refilled the semen cream more than ten times until Sunday and Monday morning.</p>
+<p>###</p>
+<p>Saying goodbye was always disappointing. Han Yu-gyeong, who followed me to the airport, was teary-eyed, and Dickson was also teary-eyed with joy when I gave Han Yu-gyeong 10 million won to take good care of her.</p>
+<p>,I'll come again during summer vacation, so don't be too lonely."</p>
+<p>,Okay.... I'll go in the middle too~!"</p>
+<p>Yeah, it's not a long distance, and it's not a burden to go back and forth, so we can see each other in the middle. I gave Han Yu-gyeong a farewell kiss and boarded the plane.</p>
+<p>,Contact me when you arrive~!"</p>
+<p>,Okay, I'll contact you!"</p>
+<p>Han Yu-gyeong waved her hand until she couldn't be seen. I also waved my hand back and passed through the boarding gate and boarded the plane.</p>
+<p>,Hmm.... It was a rewarding business trip (?)."</p>
+<p>Yukiko processed it as a business trip, so it's a business trip. This business trip didn't benefit the Taira Group, but I was able to gain quite a lot. I gained stats with the elixir, received gloves from Simyeonui ttal, and above all, I was satisfied that I had raised Han Yu-gyeong to some extent.</p>
+<p>I was worried about what would happen if I lived as level 1 in Korea, which would gradually become a demon realm, but fortunately, I was able to level up. The stats were automatically distributed, but I could choose the characteristics, so I should grow her in the Summon/Throwing/Command series. Well, I can change the route if a better characteristic comes out in the middle, but that's the plan for now.</p>
+<p>I can't help but worry about Han Yu-gyeong because we are physically separated, but the biggest thing was that I was able to relieve my worries to some extent. Nero will take care of it even if someone tries to assassinate or kidnap her. Nero, the shadow leopard, was a gangster until the early and mid stages with his specs. It's still the beginning, so I can rest assured.</p>
+<p>Looking out the window at Seoul and the Korean Peninsula getting farther and farther away, I returned to Japan.</p>
+<p>------</p>
+<p>Han Yu-gyeong's front view in the bathroom</p>
+<p>Han Yu-gyeong's back view in the bathroom</p>

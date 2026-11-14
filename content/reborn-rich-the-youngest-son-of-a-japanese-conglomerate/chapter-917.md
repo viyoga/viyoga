@@ -5,86 +5,67 @@ weight = 917
 chapter = 917
 +++
 
-<p>Warning! There are illustrations with breast Exposure~! Please check your Surroundings before enjoying them!</p>
-<p>Having finished the PMC certification Test, I immediately rode my electric bike south from Kofu City towards Miyashi. To be precise about my Destination, it was a pension and barbecue Place on the outskirts of Miyashi, a location I had intentionally leaked to Anyaji. Because I had let it be known that I would meet Fujigasaki Rinka there, Anyaji personnel who would face me were probably waiting for me. Since I had already heard from Athena Mannerheim, if the personnel hadn't changed at the last Moment, I also knew who was waiting for me.</p>
-<p>My Sabu, instead of going to the pension I was heading to, would be moved to a strange Place by a driver who was a Spy for Anyaji, and I was a little worried if Sabu could really defeat the Enemies. The Opponents were those who used the Power of the White Night Dragon that shakes the Abyss, and three Guardians from the Guardian Temple, who could be called Anyaji's top fighting force. Of course, if it were Sabu Fujigasaki Rinka's pure Skill, there would be no Problem, but since the Opponent used Power that was the Affinity of the Abyss, I thought it would be quite a Problem.</p>
-<p>Despite my worries, Fujigasaki Rinka had loudly declared that she would be fine alone, so I had no choice but to send her alone.</p>
-<p>The other groups were also equally worrying. The reason I was less worried about them than Sabu's side was because I had assigned Kurayamada Kirie and Hangari Muneo Hanakame to them. For the groups without assistants, their fighting power was high compared to their scheduled Opponents, so the Possibility of Victory was high, and I didn't bother to assign assistants.</p>
-<p>Still, whether assistants were assigned or not, or whether our side's fighting power was strong, since a battle is something you don't know until you fight it yourself, I couldn't help but worry.</p>
-<p>I rode, filled with various worries, and as I worried about this and that, I was already approaching the pension I had prepared in advance. Soon, Sabu and my Students must have also started their battles.</p>
-<p>I had rented out the pension for the entire day, and had requested that the owner or Clerk not be present, so there would be no one at the pension except for the Anyaji personnel waiting for me.</p>
-<p>If the pension were damaged, I would just compensate with Money, and if I was lucky and the scheme I had prepared in advance succeeded, the pension would be fine.</p>
-<p>Kkiik.</p>
-<p>After parking my electric bike in the empty lot in front of the pension, used as a Parking Lot, I slowly walked towards the pension. As I approached, several people were grilling meat at the barbecue area in front of the pension. I had sent the meat in advance, just in case Anyaji might be suspicious, and it seemed they were grilling and eating it.</p>
-<p>"The meat Owner has arrived."</p>
-<p>"That young Guy is Fujigasaki Rinka's Disciple?"</p>
-<p>"...Ryuta."</p>
-<p>"Long time no see."</p>
-<p>The ones waiting for me were that Guy Genba Kiyohira, his Sabu, Guardian Musashi Takuro of the Guardian Temple, another Guardian of the Guardian Temple, Kakishima Dekuro, and Athena Mannerheim.</p>
-<p>Although there were no ordinary Anyaji martial monks, with two Guardians and two Four Heavenly Kings, it could be said to be a considerable fighting force. As for Anyaji, since I was Fujigasaki Rinka's Disciple, they must have paid quite a bit of attention.</p>
-<p>"I thought there might be Guests, so I prepared plenty of meat. That worked out well."</p>
-<p>Jeobeok.</p>
-<p>As I took a step closer, making a Playful Jest, everyone stood up from their Seats. They were waiting for me, not Sabu Fujigasaki Rinka, and I wasn't surprised, so everyone except Athena Mannerheim, who knew the fact, seemed a little surprised.</p>
-<p>"No one move. I will face Fujigasaki Rinka's Disciple alone."</p>
-<p>Genba Kiyohira's Sabu, Musashi Takuro, stepped forward and said. Because I had killed Kaishu Kakan, Musashi Takuro's Disciple and former Four Heavenly Kings of Anyaji, it seemed he was stepping forward to take boksu.</p>
-<p>Kakishima Dekuro, also a Guardian, grumbled something quietly, but seeing him remain still, it seemed he wouldn't step forward.</p>
-<p>"Is it true that you killed Kaishu Kakan?"</p>
-<p>"It was a fair gyeoltue."</p>
-<p>Although he was affiliated with Anyaji, since he was a martial arts Sunbae, I answered with Etiquette. Actually, to be honest, it wasn't a fair gyeoltue.</p>
-<p>At the time, Anyaji had launched an Ambush, so it was a disadvantageous fight for our side. Since Anyaji would consider an Ambush a type of Tactics, I didn't bother to bring it up.</p>
-<p>"I will judge for myself if it was truly a fair gyeoltue!"</p>
-<p>At my Words, he suddenly shouted, and Musashi Takuro threw a fist at me. It was immense physical Ability. There was quite a distance between us, but he instantly closed the distance, and before I knew it, his fist was right before my Eyes.</p>
-<p>Huwooong!</p>
-<p>Because I had roughly anticipated that I might be Ambushed, I dodged Musashi Takuro's fist by bending my Body to the Side. Even though I dodged the fist, due to the immense Wind, my Sensitive Ear's skin tore slightly, and Blood burst out.</p>
-<p>This old man is incredibly strong. They said he was among the top five in Anyaji in terms of Skill, and it seemed that wasn't a lie.</p>
-<p>****</p>
-<p>-Creation Chaos Style Star Breaker.</p>
-<p>Of course, I couldn't just stand there and take it. With Star Breaker, a Martial Arts Form that unleashes Creation Chaos Gi into a fist, I tried to strike Musashi Takuro's Side.</p>
-<p>Musashi Takuro tried to swat away my Arm, but realizing it was difficult to block the immense Power contained in my Hand, he instead burrowed into my Embrace. Musashi Takuro, having naturally dodged my fist in this way, continued his Attack from within my Embrace.</p>
-<p>-Ever-Victorious Mountain Collapse Style (常勝崩山流) Mountain Collapse Lean (崩山靠).</p>
-<p>Musashi Takuro, having burrowed into my Embrace, used a leaning technique that struck with his back and Shoulder. Because the distance was so close, I couldn't dodge. His Shoulder struck my Solar Plexus, instantly taking my Breath away. Even as I was sent flying by the shock, I swung my Feet and struck Musashi Takuro's Shoulder.</p>
-<p>"Kueuk!"</p>
-<p>"Keok!"</p>
-<p>Simultaneously letting out moans of Pleasurable Ache, I was flung backward, and Musashi Takuro was also pushed back in the direction his Shoulder was struck.</p>
-<p>Although we exchanged blows for a short time, I could understand enough. He was indeed an Anyaji Guardian. He was not an Opponent to be taken lightly. Whether I took him lightly or not, the battle wasn't over. Because the Fighting spirit in Musashi Takuro's Eyes had not yet extinguished.</p>
-<p>"This much isn't enough to prove it!"</p>
-<p>Musashi Takuro, once again swinging his fist at me, this time, I also didn't dodge and swung my fist to meet his.</p>
-<p>Kuuuuung!</p>
-<p>As fist clashed with fist, with an immense shockwave, the repercussions spread like a Storm raging around us. The Trees planted around the pension swayed, and the pension window panes rattled as if they would shatter.</p>
-<p>Musashi Takuro and I didn't care about the repercussions, and relentlessly exchanged fists and Feet. All the pension window panes, which had barely withstood the shockwave from our fists clashing just now, shattered, and the surrounding Trees broke, fell, and became a mess.</p>
-<p>Musashi Takuro and I fought for quite a long time, and when battles are exchanged for such a long time, one naturally comes to know the Opponent.</p>
-<p>I could feel that Musashi Takuro was not a bad Person for someone affiliated with Anyaji who insisted on a fair Match, or that he was a Sabu who loved his Disciple.</p>
-<p>Musashi Takuro must have also felt a few things about me while exchanging fists with me. I couldn't know what he felt about me, as I didn't know Musashi Takuro's thoughts.</p>
-<p>Kung!</p>
-<p>After clashing fists, Musashi Takuro and I leaped backward. And this time, instead of immediately rushing in, we looked at each other. An Elderly Person with a slightly large Physique and Muscles. Musashi Takuro looked at me with a Gaze full of bewilderment, Anger, and Resentment, then soon opened his mouth.</p>
-<p>"Why aren't you using your full power?"</p>
-<p>"This is the Skill I displayed in the fight with Kaishu Kakan."</p>
-<p>In fact, I still wasn't using my full power. Because I intended to first prove to Musashi Takuro that it was a fair Match.</p>
-<p>"Alright. So, what you said was true, then?"</p>
-<p>To everyone else, it sounded like he was asking if my Match with Kaishu Kakan was fair, but that wasn't what Musashi Takuro was asking.</p>
-<p>"Wasn't there one more Person with me at the time? Ask that Person."</p>
-<p>At my Words, Musashi Takuro looked at Athena Mannerheim. Athena Mannerheim was also present during Anyaji's Attack on old man Kinui Tachio's Dojang.</p>
-<p>"Athena, is what this Guy says true? Kakan...."</p>
-<p>"Yes. It's a fact."</p>
-<p>To Musashi Takuro's Question, Athena Mannerheim answered with a resolute Attitude without hearing the entire Question. At Athena Mannerheim's Attitude, which showed she already knew about the Question, Musashi Takuro made an Expression as if he had realized something. And Musashi Takuro began his Silence, but Kakishima Dekuro, the Anyaji Guardian who had been silently listening to the Story, stepped forward as if Stifling.</p>
-<p>"Hey, Musashi. What Story are you two discussing? And honestly, what's the meaning of Kakan and that Disciple of Rinka fighting Fair and square? Kakan is already dead by that Guy's hand, you know. It seems better to just quickly deal with him and leave this Place."</p>
-<p>To Kakishima Dekuro's Question, Musashi Takuro turned his Body. He didn't just turn his Body; he used the rotational force from turning his Body to extend his fist with full power.</p>
-<p>Of course, Kakishima Dekuro, also an Anyaji Guardian, realized the Situation was Danger, and tried to dodge Musashi Takuro's fist, but Athena Mannerheim, who was behind him, grabbed his Shoulder, making it impossible to dodge.</p>
-<p>Kwaddeudeuk!</p>
-<p>"W-What... What the, Kueoheok...!"</p>
-<p>Musashi Takuro's fist shattered his breastbone, and burrowed almost up to his Elbow into Kakishima Dekuro's Body. Kakishima Dekuro, whose interior was completely pulverized, trembled, shedding Tears of Blood, then soon stopped moving. It was Kakishima Dekuro, who died without knowing why he had died.</p>
-<p>In the sudden Situation, Silence enveloped the pension Surroundings. Even I hadn't thought Musashi Takuro would kill Kakishima Dekuro immediately.</p>
-<p>Requested by MidNightSKY-nim, Kanna and Liz in Tape attire, imagining Ryuta pouncing on them~!</p>
-<p>Starting with Kanna~!</p>
-<p>After creating it, I thought, "Something's missing?" so I added a nosebleed here haha</p>
-<p>For some reason, Ryuta also appears with a nosebleed haha</p>
-<p>Liz~!</p>
-<p>Kkiyot!</p>
-<p>Requested by TheDreaming-nim, Kujo Kina's kick and phone Filming at the wrestling arena~!</p>
-<p>Kick~!</p>
-<p>As expected of a fighter, she kicks better than Kirie haha</p>
-<p>Phone camera~!</p>
-<p>Requested by ISaveI-nim, Nae and Jin Mija figure skating with their upper body Undressing + wearing only panties~!</p>
-<p>Starting with Madam Jin Mija~!</p>
-<p>Nae~!</p>
-<p>I didn't know how to do figure skating poses, so I just drew them generally ice skating haha</p>
+<p>Part 3. Cookie.</p>
+<p>A certain Greenhouse.</p>
+<p>A man with white hair, almost silver hair, was sitting, looking at the Plants. There were various Plants in the Greenhouse, including tall Trees and rare Plants that were not commonly seen, but what was peculiar was that the growing ecologies of each Plant were different. Of course, an ordinary Person would just pass by, but anyone who knew even a little about Plants would feel something strange about the Appearance inside the Greenhouse.</p>
+<p>Some Plants were short shrubs from alpine regions of cold climates, and others were like palm trees growing in tropical regions. Even if it was inside a Greenhouse for growing Plants, Plants that could not grow together in one Greenhouse were growing without any Problem, an Appearance that botanists would have found extremely bizarre.</p>
+<p>"!"</p>
+<p>Sitting in a comfortable Chair, the white-haired man, who had been resting while looking at the Plants, suddenly opened his Eyes wide. Other Trees were fine, but one Tree was rapidly withering and dying.</p>
+<p>"... Gengo is dead."</p>
+<p>The white-haired man muttered as if the Death of the Tree were the Death of a Person. Anyone who saw him might call him a swindler, but the white-haired man's Words were true.</p>
+<p>The white-haired man had countless nicknames, one of which was the Observer of Destiny. He enjoyed watching the Destiny of several People he paid attention to through Plants, and the withered Tree this time was connected to Takakusaki Gengo's Destiny.</p>
+<p>"What a waste, Gengo."</p>
+<p>The white-haired man said it was a waste and snapped his Fingers. Then, Takakusaki Gengo's withered and dead Tree began to burn with Fire.</p>
+<p>"If you had succeeded in the pupation you so desired this time, you could have met me."</p>
+<p>The white-haired man muttered in a very regretful Way of Speaking, but his Expression remained the same relaxed Expression he had just shown while looking at the Plants.</p>
+<p>The white-haired man was the Cause of Takakusaki Gengo's Appearance before his Death.</p>
+<p>The Cause that made him Endless Despair, unable to overcome the Despair that befell him, and scattering Despair around him. The man who killed Takakusaki Gengo's Father right before Takakusaki Gengo's Eyes.</p>
+<p>He was the man Takakusaki Gengo called a Magician. The white-haired man also liked the nickname Magician that Takakusaki Gengo had given him. Because nothing described him better than that name.</p>
+<p>"It seems something interesting is happening in Japan."</p>
+<p>The white-haired man muttered, watching Takakusaki Gengo's dead Tree crackle and burn.</p>
+<p>When Simyeonui ttal transformed into Lizhael, Lizhael shed her useless parts like a shell, as if undergoing ecdysis.</p>
+<p>To be reborn as a new Existence and Ascend, she needed to shake off the useless things clinging to her. While transforming into Lizhael, Simyeonui ttal discarded quite a few parts that constituted her into her deep-sea Palace.</p>
+<p>When the newly born Lizhael Ascended into space, the various Remains of Simyeonui ttal left in the deep-sea Palace began to merge with each other.</p>
+<p>And the Remains of Simyeonui ttal left the deep-sea Palace and wandered the Sea. Though the Remains of Simyeonui ttal were merely a part, because that part was a part of an Outer God, it possessed considerable Power and Will.</p>
+<p>The Remains of Simyeonui ttal, wandering aimlessly in the Sea, suddenly developed Dissatisfaction with its own incompleteness. At the same time, it began to Resent Lizhael, who had abandoned it. Of course, the Remains of Simyeonui ttal did not know that Simyeonui ttal, its former self, had become an Outer God named Lizhael, but it came to hate the Outer God that had changed and was now a different Existence.</p>
+<p>And what it felt was longing. A longing for the Existence it had felt deep Affection for while living as an Outer God for a long period, Jin Yong-tae or Taira Ryuta. Even if the Remains of Simyeonui ttal were discarded remnants, its Affection for Taira Ryuta remained.</p>
+<p>'Instead of just drifting like this, let's go to Japan, where Ryuta is.'</p>
+<p>The Remains of Simyeonui ttal made a Decision on a night when the full moon reflected and swayed on the sea surface. To go see Taira Ryuta.</p>
+<p>Thus, the Remains of Simyeonui ttal headed west. Instead of drifting without Purpose until now, it now had a Destination, so the Remains of Simyeonui ttal moved at a considerable speed. As the Remains of Simyeonui ttal headed towards Japan, it heard a certain sound when it approached land.</p>
+<p>Pungdeong! It was the sound of Something falling into the Sea. The Remains of Simyeonui ttal realized that what had fallen into the water was a human Woman.</p>
+<p>The Remains of Simyeonui ttal watched the Woman slowly sinking into the deep sea. She was a Woman wearing a School Uniform, the kind Humans wear when they are Educated during childhood and adolescence.</p>
+<p>'If things continue like this, this human Woman will die. But...'</p>
+<p>The Remains of Simyeonui ttal, thinking of Something, swiftly approached, cutting through the current, and burrowed into the Woman's body. At that Moment, the human Woman's Life flashed before the Eyes of Simyeonui ttal's Remains.</p>
+<p>This Woman in the School Uniform had fallen into the Sea to commit suicide.</p>
+<p>The Woman in the School Uniform was an Orphan who could not remember the Faces of the Parents who had abandoned her as a baby. The Woman in the School Uniform was quite Beautiful, but for an Orphan without the Power to protect herself, Beauty was worse than useless.</p>
+<p>Countless People looked down on her as an Orphan and coveted her Body, while other Women, Jealous of her Beauty, tormented her. Fortunately, she met a good Orphanage Boss and was able to protect herself, but the day before Graduation, that Boss-Teacher tried to Rape the Woman in the School Uniform.</p>
+<p>She resisted fiercely and managed to escape, but the Woman in the School Uniform Despaired. If she Graduated like this, she would have to leave the Facility, and having been Betrayed by the Teacher she trusted, everything she had endured until now burst forth.</p>
+<p>So, what she chose was to throw her Body down from the coastal Cliff she sometimes went to alone to see the Sea. The sound that occurred as she fell into the Sea made the Remains of Simyeonui ttal look, wondering what the sound was.</p>
+<p>-Can you hear my Words?</p>
+<p>The Remains of Simyeonui ttal spoke to the Soul of the Woman in the School Uniform, which was beginning to scatter. The Woman in the School Uniform seemed surprised by the sudden Voice, but soon calmed down. Her Attitude was that there was nothing to fear, as she was dying anyway.</p>
+<p>-I want to Use your Body. You'll return to Nature when you die anyway, so may I Use it?</p>
+<p>The Woman in the School Uniform realized that the Existence speaking to her was no ordinary Existence. She naturally understood, without even realizing it, that this was an Existence that could do Something with her already almost dead Body.</p>
+<p>-Yes, but.... I have a Request.</p>
+<p>-Asking to be saved is not allowed. Because I need to Use your Body. Other than that, if it's possible, I'll grant your Request.</p>
+<p>Although it was a somewhat cold Answer, the Remains of Simyeonui ttal cut her off beforehand, in case the Woman in the School Uniform would ask to be saved. Instead, it conveyed its Will to grant her Request if it was possible, as the Price for Using her Body.</p>
+<p>-I have two Requests. First, kill the People who made me commit suicide.</p>
+<p>From a human perspective, it was quite a chilling Request, but for the Remains of Simyeonui ttal, it was not a difficult Request at all. The Remains of Simyeonui ttal, having already scanned the Woman in the School Uniform's Memories, knew who to kill. As the Remains of Simyeonui ttal conveyed its Will to comply, the Woman in the School Uniform made another Request.</p>
+<p>-My name is Tsukiyo (月夜). Please keep my name as it is, so that it can be remembered that I existed in this world.</p>
+<p>Tsukiyo.... The Remains of Simyeonui ttal, having already read the Woman in the School Uniform's Memories, knew that this name was given because she was abandoned at the orphanage on a night full of moonlight.</p>
+<p>The Remains of Simyeonui ttal liked this name. Because it, too, had decided to search for Taira Ryuta on a night when the full moon reflected and swayed on the sea surface, it decided to Use the Woman in the School Uniform's name, Tsukiyo.</p>
+<p>-You can do as you wish with the surname. Anyway....</p>
+<p>It understood what she meant. Because the surname was taken from the surname Used by the Boss-Teacher who had Betrayed Tsukiyo, whom she had regarded as a Father.</p>
+<p>-I will grant both of your two Requests. So....</p>
+<p>-Yes, thank you. I don't have the Power to endure anymore anyway. Then, please enjoy my remaining Life....</p>
+<p>Tsukiyo's last remaining Soul scattered. And the Remains of Simyeonui ttal, inheriting the name Tsukiyo, occupied that space.</p>
+<p>The Remains of Simyeonui ttal, no, Tsukiyo, revived her dying Physical Body. Her stopped Heart began to beat, and the broken Bones and Internal Organs from the Shock of falling from the Cliff began to Heal.</p>
+<p>Tsukiyo, having Healed everything in the Sea, like a Mother's Amniotic fluid, arrived on land. It was a beach with a sandy shore and a low Stone wall. Tsukiyo smiled, because everything she experienced with a human Physical Body (though half Outer God) was enjoyable.</p>
+<p>Since her shoes had disappeared when she fell into the Sea, Tsukiyo walked along the beach with only her socks on her Feet. Enjoying the Feeling of the sand being indented by her Weight, Tsukiyo slowly walked in one direction.</p>
+<p>She had to keep the Promise she made with the former owner of this Body. Tsukiyo did not like to remain in Debt. No Matter how much she wanted to see Taira Ryuta, keeping her Promise was the priority.</p>
+<p>First, Tsukiyo's very first Goal was the orphanage where Tsukiyo had lived. After killing the orphanage Boss-Teacher and resolving the biggest Cause of her suicide, she planned to seek out the Students who had tormented Tsukiyo at School, one by one.</p>
+<p>A few days later, in a beach Village, due to the sudden Deaths of several villagers, it became a Topic that a serial Murderer had appeared in this small beach Village.</p>
+<p>Tsukiyo B-cut!</p>
+<p>Neosblue-nim requested Alik Using a naginata~! The Request for a naginata with blades on both sides, blocking Sabu's Attack, was deleted due to illustration rules haha.</p>
+<p>Gojoy-nim requested Nagumo Sian's breast covering and buttocks showing~!</p>
+<p>breast covering!</p>
+<p>buttocks showing~!</p>

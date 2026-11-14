@@ -5,91 +5,84 @@ weight = 273
 chapter = 273
 +++
 
-<p>In the end, Mimata Chieri and Arisu took turns driving while I had sex, heading towards Tijuana.</p>
-<p>Arisu insisted that Mimata Chieri would be returning to Japan with me, so I had to do it more with her, resulting in a ratio of about 7 to 3 in favor of Arisu.</p>
-<p>I was in the middle of doggy-style, grabbing Arisu's slender waist and thrusting my dick in, when I heard Mimata Chieri's voice from the driver's seat.</p>
-<p>,Ah, Sunbae-nim, the immigration office is in 5 minutes, so please finish quickly."</p>
-<p>,Okay."</p>
-<p>Then I'd have to shake my hips faster. I didn't want to be embarrassed by having sex until 5 minutes later, but I also didn't want to miss the pleasure I was feeling now, so I shook my hips more vigorously, aiming to cum inside Arisu as quickly as possible.</p>
-<p>As I sped up my piston movements, Arisu splattered her vaginal fluid on my lower abdomen, losing her mind to pleasure. The sound of flesh colliding, chulssuk chulssuk, grew louder along with Arisu's moans.</p>
-<p>,Haa...! Hmmm♥ Ryuta... Good, hmmm! Haa!"</p>
-<p>Arisu was urging me to cum with her sweet moans, and I was moving only for my own pleasure to cum faster, so I gradually felt the urge to ejaculate.</p>
-<p>,Huuung♥ Ryuta jaiiit...! In, haaung! Inside, euheut...! It's getting biggerrr!"</p>
-<p>Arisu must have noticed my dick preparing to cum, her voice filled with joy as she wiggled her hips seductively. My piston and Arisu's seductive hip movements meshed together.</p>
-<p>Combined with Arisu's wriggling inside her pussy, I felt an incredible pleasure and quickly filled Arisu's womb with my white ejaculate.</p>
-<p>Buut! Byuut! Byureut!</p>
-<p>My dick pulsated, repeatedly expanding and contracting Arisu's pussy. Arisu also seemed to orgasm from my ejaculation, arching her toes and sticking out her tongue sloppily as she reached orgasm.</p>
-<p>,Hee...heeeung♥ Joahang...!"</p>
-<p>Arisu was breathing heavily, enjoying the afterglow of sex, and I was also enjoying the afterglow, touching Arisu's soft breasts with my dick still inside her. Then, when I pulled out my dick, I heard a hudeuk sound and my semen fell on the towel I had laid on the car seat.</p>
-<p>I had put a towel down out of conscience because it was a borrowed car. The towel was already covered in semen and vaginal fluid from the several times we had sex on the way here. I should throw away the towel right away.</p>
-<p>,Huu.... Sunbae, haven't we arrived at the immigration office yet?"</p>
-<p>,Yes, we'll arrive in about two minutes."</p>
-<p>Then I should get dressed quickly. I had taken off my clothes completely because I was worried about getting them dirty from having sex, but I couldn't pass through the immigration office naked, so I had to put on my clothes.</p>
-<p>First, I helped Arisu put on her clothes, and then I put on my clothes as well. Then, I opened the window to ventilate the car, which was filled with the smell of pheromones, semen, vaginal fluid, and sweat.</p>
-<p>Just opening the window wouldn't erase the traces of our intense sex for the past few hours, but I was doing it out of courtesy. Sometimes they search the car if they're suspicious.</p>
-<p>Of course, for a typical (?) tourist like me, it ends with showing my passport and trunk.</p>
-<p>The cars gradually started to gather, so we closed the windows again.</p>
-<p>It couldn't be helped that the cars were backed up due to the bottleneck caused by the inspection at the border. My flight was at 11:20, so I had plenty of time. I left before 6 o'clock and it's 8 o'clock now, so it seemed like I would have to wait a long time because I was mixed in with the cars trying to get to work.</p>
-<p>Knock knock.</p>
-<p>Someone knocked on the passenger seat window. When Mimata Chieri lowered the window, a beautiful Black woman with shiny, straight hair neatly tied in a low ponytail, which was unusual for a Black person, was standing there. Judging by her appearance, she wasn't completely Black, but seemed to be mixed. Maybe from the Asian side?</p>
-<p>The Black beauty seemed to frown at the strong smell of sex as soon as the window was lowered, but quickly recovered her expression and looked at me through the passenger seat window.</p>
-<p>,Are you Taira Ryuta-ssi?"</p>
-<p>,Yes, but...."</p>
-<p>,I'm Diana Richie, the Deputy Director of the U.S. Federal Superpower Management Agency. Can I have a word with you for a moment?"</p>
-<p>As expected of the American intelligence agency. How did they know and wait for me at the Mexican immigration office...? Moreover, she spoke to me in Japanese, asking if I could speak Japanese. She was the Deputy Director, so she seemed quite capable.</p>
-<p>,Because of my flight time...."</p>
-<p>,You'll have to wait here for at least 30 minutes due to immigration screening anyway. If you talk to us for about ten minutes, Taira Ryuta-nim's car will be allowed to pass through immediately without having to wait."</p>
-<p>I was going to make the excuse of flight time, but Diana Richie's words that talking to them would save time made it impossible to refuse.</p>
-<p>,Okay."</p>
-<p>,Good. Then park the car in that immigration office building over there."</p>
-<p>Following Diana Richie's lead, I parked the car and entered the conference room inside the immigration office, standing face to face with each other. Arisu and Mimata Chieri said they would wait in the car, so I entered the conference room alone.</p>
-<p>When I actually faced her, she was quite a curvy Black woman. With skin like black pearls, a white suit that contrasted with it, and sexy legs, she was a woman who gave off the feeling of a Black model.</p>
-<p>,We have no intention of harassing Taira Ryuta-nim. First of all, thank you for helping to prevent the famine at Dignity Health Sports Park."</p>
-<p>Diana Richie bowed politely to me. As expected, it seemed that they had found out that I was the armored man who fought the famine, as Fujigasaki Rinka had said. If they bother me, I'll knock them out with a rear naked choke and leave for Mexico.</p>
-<p>,If people are being massacred in front of my eyes, I have to help. It's nothing."</p>
-<p>,Still, according to our calculations, about 40,000 people should have been sacrificed, but thanks to Taira-ssi, we were able to reduce the sacrifices."</p>
-<p>They can even calculate that? About 40,000 people died in the game story even without me, so it's quite accurate?</p>
-<p>,Fujigasaki Rinka-nim thought we would bother Taira-ssi. I understand that she has a bias because she met Fujigasaki Rinka-nim when there was a slightly oppressive tone when the former director was in office, but that is not the case at all now."</p>
-<p>Listening to her speak, it seemed that she had gone to Fujigasaki Rinka's house after we left and had been tricked once. This story is also quite meaningful.</p>
-<p>It's similar to the meaning that the organization's stance changes quickly depending on the director, if it was oppressive under the former director and not now. In other words, it's a group that can't be fully trusted.</p>
-<p>,Let's get to the point."</p>
-<p>Fujigasaki Rinka is my master, but this story has nothing to do with me. I preferred to speak directly rather than beating around the bush.</p>
-<p>,You speak directly, unlike a Japanese person."</p>
-<p>,As you investigated, you know that I'm half Korean."</p>
-<p>,I haven't investigated that far yet, but.... Nice to meet you. My grandmother was also Korean. So I received the beautiful Korean name Siyeon as my middle name."</p>
-<p>Then her full name is Diana Siyeon Richie? I thought she had straight hair instead of curly hair, which was unusual for a Black person, but it seems that Diana Richie's Korean grandmother had straight hair.</p>
-<p>,We want to establish a good long-term relationship with Taira-ssi. The FSA also provides requests with reasonable compensation, so you can solve our requests or just establish a friendly relationship. Taira-ssi, who helped the United States, is always welcome."</p>
-<p>,Well, I don't intend to be hostile unless you bother me, so let's start with a friendly relationship."</p>
-<p>Diana Richie smiled slightly at my words to start with a friendly relationship. She seemed to have come all the way here because she wanted to establish a good relationship with me, so she would have succeeded in her mission just by doing this much.</p>
-<p>,And this is a thank you gift from the U.S. government separately."</p>
-<p>What Diana Richie handed me seemed to be a certificate of rights for some account.</p>
-<p>,Since this is not officially given money, it's not a large sum, but it's an account with about ten million dollars in it. If Taira-nim reveals your identity and officially receives compensation, you will be able to receive ten or twenty times more compensation than this.... But you won't, will you?"</p>
-<p>Diana Richie said, smiling at me. She understood me well. It wasn't time for me to reveal myself yet. Of course, I did film a music video in Korea, but what I meant was that it wasn't time to reveal my abilities yet.</p>
-<p>Taira Ichiro, Kokoro, and Jiro were watching with their eyes wide open, and I, who didn't have much power yet, had to hide in the shadows and gradually build up my power.</p>
-<p>,Then the story is over now. I'll guide you so you can go comfortably. You said that one person would bring the car, so you can come to the fast pass road of the immigration office as you came."</p>
-<p>We were able to pass through the immigration office without being inspected, as Diana Richie guided us. Tijuana was a city right in front of the border. Tijuana International Airport, our destination, was also right next to the border, so there was no need to move any further.</p>
-<p>We saved a lot of time and arrived in Tijuana, and since it was only about 9 o'clock, we ate tacos and burritos and briefly felt the atmosphere of Mexico.</p>
-<p>After a leisurely breakfast, we went to the airport and I and Mimata Chieri finished preparing to go to Japan. As expected, Fujigasaki Rinka, my generous master, booked us first class, so it seemed like we could go quite comfortably during the long flight.</p>
-<p>,Heeing.... I'm sad, Ryuta."</p>
-<p>,You're coming back to Japan soon anyway."</p>
-<p>I and Arisu kissed and hugged, spending time apart for a while, and eventually, time did not allow it, so we parted ways.</p>
-<p>,Hehe, now I'll monopolize Sunbae-nim."</p>
-<p>Mimata Chieri, who was leaning on me, linking her arm with mine. I gently pinched Mimata Chieri's soft cheek with the opposite hand that Mimata Chieri was linking her arm with.</p>
-<p>,Monopolize me as much as you want until we arrive in Japan."</p>
-<p>,I was going to do that anyway? Ehehe♥"</p>
-<p>We stuck together like a disgusting lovey-dovey couple and boarded the plane. The seats on the plane were separated, so there was almost no meaning to monopolization, but Mimata Chieri seemed satisfied.</p>
-<p>I had been up since yesterday doing it with Arisu, so I only slept for about an hour, so as soon as I got on the plane, I fell asleep.</p>
-<p>During the 12-hour flight, I slept, woke up, ate in-flight meals, slept again, and ate again, and before I knew it, I was able to arrive in Japan.</p>
-<p>I took my car that I had parked and took Mimata Chieri to Mimata Chieri's house near the East Weapon headquarters building, and then I drove back to the Human Resources Development Center.</p>
-<p>I parked the car in the parking lot of my house inside the Human Resources Development Center, moved my luggage into the empty house, and headed to the director's office of the Human Resources Development Center.</p>
-<p>,Ryut...!"</p>
-<p>Yukiko's secretary, Ikehara Koyuki, was surprised and tried to call my name, but I playfully blocked her lips with my index finger. Ikehara Koyuki seemed to understand my gesture and closed her mouth without calling my name.</p>
-<p>I slightly opened the door to the director's office. Yukiko was sitting in the president's office, looking at documents. When I opened the door and entered, Yukiko looked surprised and stood up from her seat, looking at me.</p>
-<p>,Ryuta!"</p>
-<p>I strode towards Yukiko and hugged her. Yukiko's soft breasts and Yukiko's scent, which stimulated something nostalgic, tickled the tip of my nose. Through this tactile and olfactory sense, I felt like I had returned home.</p>
-<p>,I'm back."</p>
-<p>My quite long vacation ended with this one word. My vacation was over, but I felt like I had returned to a cozy home.</p>
-<p>----Unused illustrations</p>
-<p>Lewd Diana</p>
-<p>Illustration that was rejected because the girl with glasses in the back is cuter</p>
-<p>Surprised Yukikos</p>
+<p>After signing the contract with Lara Sinclair, we decided to keep in touch, and I went out with Han Yu-gyeong, Mimata Chieri-sunbae, and Eve to have lunch. Eve seemed very excited, as it was her first time going outside. She looked at the passing people and buildings with a curious expression, like someone from the countryside visiting Tokyo for the first time.</p>
+<p>Of course, Eve had seen a lot through screens like CCTV, but it seemed like this was the first time she was seeing it in person.</p>
+<p>,Is this your first time going outside?</p>
+<p>,I was assembled at the Tokyo branch. And since I got the android idea from Ryuta-nim, I wanted to show it to Ryuta-nim first, hehe.</p>
+<p>Han Yu-gyeong seemed a bit confused by Eve's attitude. She knew Eve was an AI android, but her appearance was that of an attractive and shapely woman, so when Eve treated me affectionately, she had an expression that said she didn't know whether to be jealous or not.</p>
+<p>,Yu-gyeong-ssi, why don't you do something like become a celebrity? I think you're in the top three of the people I've seen....</p>
+<p>,Oh, I'm not that good.</p>
+<p>Han Yu-gyeong's confusion quickly disappeared with Mimata Chieri-sunbae's flattery, or rather, not-flattery. Since they could both speak each other's languages, they gradually became friendly and started chatting.</p>
+<p>We went to a fancy restaurant famous as a date spot for couples, and we had lunch. Even though Eve seemed human, she couldn't eat food, so I was happy to be able to eat Eve's food as well.</p>
+<p>,I implemented the sense of taste, but I haven't been able to create a digestive system yet.</p>
+<p>,Well, it's nice when you taste it, but it would be terrible if it started to rot in your mouth or body.</p>
+<p>I nodded at Eve's words. It seemed difficult to even eat food.</p>
+<p>,About the TG Tech matter.</p>
+<p>When everyone was mostly finished with their meal, I told my partners Eve and Han Yu-gyeong, and my secretary Mimata Chieri-sunbae, about this dispatch to St. Francis Girls' Academy.</p>
+<p>I especially asked Eve not to sell information to others. I had to be careful because the Dark Trade app had a function to buy and sell information.</p>
+<p>,I won't sell my partner's information.</p>
+<p>After hearing that, I continued to speak.</p>
+<p>,I'm going to be working at a place called St. Francis Girls' Academy for about six months, so I don't think I'll be able to actively participate in the management of TG Tech.</p>
+<p>,Hmm, you definitely won't be able to focus for six months.</p>
+<p>Han Yu-gyeong nodded and agreed with my words.</p>
+<p>,You can just text or call, right?</p>
+<p>,You can, but we can't meet like today, and since I have a mission, I can't deal with sudden events.</p>
+<p>I shook my head and answered Eve's words. Of course, most things could be done by phone or text, but I couldn't keep leaving my position, and there was a possibility that my identity would be revealed if I openly met Han Yu-gyeong or Mimata Chieri-sunbae, so I was saying this in advance.</p>
+<p>,Then, if there's an important decision to make, I'll let Yu-gyeong decide.</p>
+<p>I entrusted the decisions during my absence to Han Yu-gyeong, who had the most shares along with me. Han Yu-gyeong nodded with a determined expression, as if telling me to leave it to her.</p>
+<p>,Then, since we're all gathered here today, should we go to a cafe or something and decide on important things before Sunbae goes to that girls' academy?</p>
+<p>At Mimata Chieri-sunbae's suggestion, we moved to another place and talked about business.</p>
+<p>,First of all, we should start with this bodyguard pet thing, right?</p>
+<p>We had to start producing bodyguard pets, as orders were pouring in explosively after the accident in LA. We had been advertising since we were at the New York auction house, so we had to start production soon.</p>
+<p>,Then, I'll have the pet business made at the Dark Trade's factory in Tokyo for now.</p>
+<p>If we did this, Dark Trade would handle everything from production to delivery, so I had to concede a significant amount of the pet business's profits to Eve. It was urgent, so there was no other choice.</p>
+<p>,We also need to make a catalog. Dogs and cats are basic, and the Middle East is ordering large-sized pets like lions.</p>
+<p>,Let's discuss and decide on the catalog.</p>
+<p>Even though orders were pouring in, it was only about 340 animals. According to Eve, since it wasn't mass production, they could make 10 bodyguard pets a day, but if they made a catalog and standardized it to some extent, they could produce more.</p>
+<p>,The catalog will take a few days because we need to do market research.... Next....</p>
+<p>We continued to talk about future business. Since everyone was capable, the business discussion proceeded quickly and smoothly.</p>
+<p>When it was evening, the discussion was mostly over, and the two of them, except for Han Yu-gyeong and me, went back, and we went on a date that we hadn't been able to do. We enjoyed a Tokyo date in the evening and went back to the hotel, where I fucked Han Yu-gyeong until the morning of the day she returned to Korea.</p>
+<p>###</p>
+<p>,Yong-tae-yaa....</p>
+<p>As expected, Han Yu-gyeong hugged me with tears in her eyes, as she was sad to part. I definitely didn't get to see Han Yu-gyeong often, so there was a sense of longing.</p>
+<p>,I'll go to Korea too, so don't be too sad.</p>
+<p>,Eung...!</p>
+<p>Since I had to go to Korea at least once this year anyway because of some events there. At my words, Han Yu-gyeong forced a smile and nodded with her big, teary eyes.</p>
+<p>,I'm leaving now.</p>
+<p>,Okay, bye. Don't do anything too dangerous.</p>
+<p>,Yong-tae, don't do anything dangerous either!</p>
+<p>Well, I did cause more trouble than Han Yu-gyeong. If the St. Francis Girls' Academy thing that was coming up went wrong, it would be a huge problem.</p>
+<p>Han Yu-gyeong turned around several times and waved to me. I also waved until Han Yu-gyeong disappeared, then got into the car parked in the parking lot. But strangely, Mimata Chieri-sunbae was in the passenger seat.</p>
+<p>,Sunbae-nim??</p>
+<p>,Hehehe....</p>
+<p>Mimata Chieri-sunbae showed me her phone with a slightly crazy expression. On Mimata Chieri-sunbae's phone, I could see the video of the sex that Han Yu-gyeong and I had from last night until this morning.</p>
+<p>How did she take the video? Suddenly, I remembered Mimata Chieri-sunbae, who had been later than us at the Dark Trade Tokyo branch yesterday. She must have gone in when we went out of the hotel and installed a hidden camera. It seemed like she used the miniature hidden camera that I had bought from Dark Trade in New York before.</p>
+<p>,Sseup, Sunbae-niim?</p>
+<p>,I was wrong, so punish me, Hubae-nim♥</p>
+<p>I headed straight to the hotel. I really had to punish Mimata Chieri-sunbae severely today.</p>
+<p>###</p>
+<p>After sending Han Yu-gyeong off, my daily life became even busier. I was already busy studying to become a Korean language teacher, but the investigation and decisions about the business added more work, so I was having a very busy day.</p>
+<p>I was studying when a Line message came. Who was it? When I looked, it was a Line message from Sawayanagi Azuma.</p>
+<p>Sawayanagi Azuma: Investor-nim~! You haven't forgotten about the Seryutai outing in three days, have you?</p>
+<p>Ah! Now that I thought about it, I was supposed to go to the valley with the Seryutai members.... I was so busy that I had completely forgotten.</p>
+<p>Taira Ryuta: Of course not, what should I prepare?</p>
+<p>I sent the Line message nonchalantly, as if I hadn't forgotten the appointment at all. Even if there was something to prepare, there were still three days left, so I could prepare it.</p>
+<p>Sawayanagi Azuma: Investor-nim, you just need to prepare yourself~! We'll prepare everything else!</p>
+<p>Even if there was no need to prepare anything, I was an investor, so I thought it would be good to buy some top-quality Wagyu beef and have a barbecue. It seemed like the Seryutai side would prepare everything else, so there was nothing else to prepare.</p>
+<p>Taira Ryuta: Okay. I'll just bring myself.</p>
+<p>Sawayanagi Azuma: Okay♥ I'll be looking forward to it, Investor-nim!</p>
+<p>I didn't know what she was looking forward to, but I ended the Line message with, See you then. Sawayanagi Azuma seemed to want to chat more on Line, but I was busy. Since I had this outing schedule on the weekend, I had to work even harder.</p>
+<p>After finishing the Line message with Sawayanagi Azuma, I started studying again, but not long after, the phone rang this time.</p>
+<p>,Aish, what is it?</p>
+<p>I picked up the phone again with a bit of annoyance. When I looked at the phone screen, Fujigasaki Rinka's name was displayed. Was there something wrong in the United States? I answered the phone.</p>
+<p>,Master?</p>
+<p>-Kyahaha! This Master will arrive in Japan on the morning of the day after tomorrow, so the disciple should stand by!</p>
+<p>It was a sudden standby order. The day after tomorrow.... It was the day of the outing. It would be a bit difficult if the schedules overlapped.</p>
+<p>,I'm going to an outing for the company I'm investing in the day after tomorrow?</p>
+<p>-Then that's even better! Pick me up at the airport and go to the outing together. I can also see the people from the company you're investing in, that's great!</p>
+<p>Was she trying to look at people like they were in a zoo.... Once Fujigasaki Rinka made a decision like this, it couldn't be changed, so I had no choice but to nod.</p>
+<p>,Okay. Tell me the exact arrival time.</p>
+<p>-It's probably 7 o'clock? I'll find out exactly and send it to you on Line, so wait!</p>
+<p>A Line message came immediately from Fujigasaki Rinka, who had ended the call.</p>
+<p>Rinka-ttang: It's 7:40! Come to Haneda!</p>
+<p>Fujigasaki Rinka was more my pace than anyone else. Really, Taira Danjo, Mimata Chieri-sunbae, and Fujigasaki Rinka, it seemed like there wasn't a normal person around me.</p>

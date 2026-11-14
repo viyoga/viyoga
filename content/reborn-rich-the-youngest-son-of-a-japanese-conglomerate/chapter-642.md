@@ -5,93 +5,108 @@ weight = 642
 chapter = 642
 +++
 
-<p>As Minamoto Lisa's goal stated, doing a thousand photos in a day was a bit much. Opinions on the photos differed greatly, so each one was the subject of considerable debate. With 12 students, it was natural that tastes would vary.</p>
-<p>Even with photos of similar concepts, some argued for smiling, others for expressionless, so it was natural that it took time.</p>
-<p>,This isn't working. Since we're going to filter them out in the second round anyway, let's move on to voting on whether the photos are good or not. We'll have to collect similar concept photos separately and filter them out in the third round anyway."</p>
-<p>After picking out about a hundred photos, it was taking too long, so Minamoto Lisa, unable to continue, eventually switched to a show-of-hands voting system rather than exchanging opinions.</p>
-<p>Changing the method sped things up, and although they didn't reach the target of a thousand, they were able to classify about eight hundred.</p>
-<p>,By the way, how many photos are you going to make into photo cards in the end?"</p>
-<p>,Maybe a little over a hundred? If you buy one club anthology, it comes with a pack, and I'm planning to put four or five in there."</p>
-<p>,What?"</p>
-<p>So, to collect all hundred, you'd have to buy more than 20 club anthologies, even if you're incredibly lucky and get no duplicates? No matter how handsome I am, would anyone collect my photo cards that much? I'm a bit skeptical.</p>
-<p>,This isn't the end. Since the club is on the second floor, we'll set up a cafe in our classroom on the first floor and let people exchange duplicate cards."</p>
-<p>She's a, she's a genius? To think of selling drinks at the cafe to buyers of the club anthology and sucking money out of them twice over, she truly is the young lady of the Minamoto family.</p>
-<p>The problem is how many books I can sell with my card.... Minamoto Lisa must have thought this through to plan it like this. Still, just in case, I should promote the club anthology to Yukiko and a few others.</p>
-<p>Minamoto Lisa seemed to be pushing herself, as she was trying to pass the Minamoto Group's test of earning ten million yen with an investment of less than one million yen through sales at this festival. I've already raised Minamoto Lisa's favorability quite a bit, so it would be good for me if Minamoto Lisa secured a position in the Minamoto Group.</p>
-<p>And since they're selling the club anthology with my face on it, it would hurt my pride if it didn't sell well, so I should ask a few people to buy it for me.</p>
-<p>,We'll take care of cleaning up here, so you can go first."</p>
-<p>,Doesn't look like there's anything to clean up, though?"</p>
-<p>For some reason, Minamoto Lisa was trying to kick me out of the club room. Do they have something to talk about separately with the special class kids in the club room? Since I have a few people who will be my ears anyway, I nodded and got up from my seat.</p>
+<p>Opening the door, Minamoto Risa, dressed in casual clothes, was standing there. Behind her was an SUV, not the usual limousine she rode in, and men in black suits were unloading boxes. They probably brought the SUV instead of the limousine because of those boxes.</p>
+<p>,It's quite late, what's going on?</p>
+<p>,Yeah, I brought the 100 sets of photocard albums you ordered. I thought I'd give them to you today since I'll be busy tomorrow.</p>
+<p>Ah, I see. She must have been working alone even when others were resting. It seemed like she had received the goods from the printing house and was moving them, but she remembered me in the middle and brought them over.</p>
+<p>,Here you go.</p>
+<p>One of the men in black suits handed me the four boxes, bowed to Minamoto Risa, and returned to the SUV. Since I decided to buy 100 sets of photocards, four boxes probably meant 25 sets in each box.</p>
+<p>,Wait a minute, I need to pay you.</p>
+<p>,I opened an account in the group LINE chat, so send it there.</p>
+<p>It seemed like she had discussed something in the special class group LINE chat while I was having sex and dinner with the mammas. When I replied, 'Oh, really?', Minamoto Risa hesitated for a moment before opening her mouth.</p>
+<p>,Thank you, you.</p>
+<p>,Huh?</p>
+<p>,Actually, you don't have to take photos from your position. There's probably no advisor who works as hard as you, right?</p>
+<p>Was that so? I didn't really know how other advisors did it. I just did what the kids told me to do (more than anything, I needed to win Minamoto Risa's favor), so I didn't know that was working hard.</p>
+<p>,I'm not just an advisor, I'm a homeroom teacher and advisor. I need to pay more attention to the kids. And more than anything, this is an important event for you, right?</p>
+<p>,....</p>
+<p>Minamoto Risa seemed a little touched by my answer and was silent. The silence was brief, and she soon opened her mouth with a flushed expression.</p>
+<p>,If this goes well... shall we go on a date again like last time?</p>
+<p>,Let's do it whether it goes well or not.</p>
+<p>,Okay...!</p>
+<p>Minamoto Risa smiled at my answer. And then, saying she had to go now, she glanced at the men in black suits in the SUV. Seeing how Minamoto Risa was concerned about them, it seemed like they were men attached by Minamoto Ushin or another Minamoto. She spoke as if she was in control during our recent date, but it seemed like someone had quickly placed restrictions on Minamoto Risa.</p>
+<p>,Then, see you tomorrow.</p>
+<p>,Okay.</p>
+<p>After Minamoto Risa left, I picked up the boxes and went into the house. When I opened the box inside, I saw a rather luxurious-looking album. Looking at the album, all the photocards were inserted. I was worried that the album and photocards were separate and I would have to insert them one by one, but it seemed like the company did all this.</p>
+<p>Hmm, seeing my photos like this is a bit embarrassing...? And there are even strange lines written on them.</p>
+<p>I closed the album, put the box in a corner, and took out my phone. Quite a bit of time had passed while I was having sex and eating with Yukiko and Nagumo Sian, so I was going to check if anything had happened during that time.</p>
+<p>First, checking LINE, I saw that Minamoto Risa had opened an account in the group LINE chat for people who bought the photocard album set to pay, so I decided to send the money. How much was it? Was it 200,000 yen...?</p>
+<p>After sending the money to the account opened by Minamoto Risa, I turned on Mitube. Because Uenozono Karen's vlog had just been uploaded.</p>
+<p>KAREN's School Life Vlog - Festival Preparation.</p>
+<p>It was a simple title, but after the New Namgyeong City Cyber Zombie incident, attaching the name Uenozono Karen and St. Francisco Girls' Academy attracted a lot of attention. This video hadn't been uploaded for long, but the number of views was considerable.</p>
+<p>-Hello, everyone. I'm preparing for the festival with my friends right now~!</p>
+<p>Uenozono Karen's appearance is shown, and the familiar sight of the special class is in the background.</p>
+<p>-We're planning to sell club magazines and run a cafe this time. We're moving things in preparation for tomorrow's festival right now~!</p>
+<p>Soon, the special class students moving things were shown, and Minamoto Risa, carrying a blueprint with what to put where printed on it, was seen on the screen giving instructions. Minamoto Risa was also seen smiling at the camera and waving her hand slightly.</p>
+<p>-Actually, I haven't been able to do club activities until now because of my idol activities. Like this indirectly... Ah, Teacher~!</p>
+<p>While Karen was talking, the screen switched and my appearance carrying luggage was shown. Hmm... I look good. I turned it on to check because my appearance was coming out in the vlog</p>
+<p>-If you purchase club magazine A, you can receive a photocard of our homeroom teacher here.</p>
+<p>At Uenozono Karen's words, I gave a shy smile as if I was embarrassed, and soon the screen switched to Uenozono Karen's face.</p>
+<p>-If you purchase club magazine B, you can receive my photocard~! Just so you know, the money isn't coming to me. The profits from my photocard will be donated to the victims of the New Namgyeong incident.</p>
+<p>The next scene showed Uenozono Karen saying, 'Those who can come, please come and participate in the donation?', and she started moving luggage with the children. And the video ended by briefly showing the students working and moving luggage as if it were fast-forwarded.</p>
+<p>There wasn't much content, but it seemed like Minamoto Risa's requested club magazine advertisement was certain. Because the comment section was exploding.</p>
+<p>-I'm in Mexico, so I'm too sad that I can't buy Karen's photocard😭</p>
+<p>-No, why are you telling us one day in advance?! It's a weekday, so I have to take a day off in advance to go buy a photocard....</p>
+<p>└The festival is open until 9 PM anyway. If you leave work early and take the Shinkansen, you might be able to buy it?</p>
+<p>-But what's with that teacher releasing a photocard WWWW</p>
+<p>└He's handsome lol</p>
+<p>└What a dirty world....</p>
+<p>-Be careful. That man is the one who grabbed and threw zombies with both hands in the cyber zombie video. If he catches you, you're dead? lol</p>
+<p>I'll try an acrostic poem with 'Ro' (로) 18 times.</p>
+<p>-As I always feel when I see it, Karen's class students are all pretty♥</p>
+<p>-Especially when the gyaru class president smiled and waved her hand, my heart almost stopped WW</p>
+<p>-Why isn't the white gyaru coming out! I'm a white gyaru fan!! Too bad😡</p>
+<p>As expected, there were various reactions as she was a globally popular idol, but there were also some unexpected complaints.</p>
+<p>There were complaints about how they were advertising the festival one day before, and complaints like, 'Who is that guy releasing a photocard?'</p>
+<p>Of course, there were overwhelmingly more comments like 'Karen is cute', 'Gyaru is pretty', and 'Classmates are pretty' than complaints.</p>
 <p>###</p>
-<p>,Now that Ryuta-sensei is gone, let's start."</p>
-<p>As soon as homeroom teacher Yamashiro Ryuta left, Minamoto Lisa opened her mouth to Oofuchi Erika. Otagi Yuka nodded and pulled the laptop in front of her.</p>
-<p>No one asked what they were starting. The date experience club members had already finished talking. They didn't want to show the viral marketing from the fan club, so they told Yamashiro Ryuta to leave.</p>
-<p>,Is it okay to do viral marketing like this?"</p>
-<p>,Of course. Our school kids have a lot of money, so they won't care much about the amount."</p>
-<p>Minamoto Lisa answered nonchalantly to Otagi Yuka's question. Otagi Yuka said in her mind, "You're the richest family," but she didn't say that thought out loud.</p>
-<p>Oofuchi Erika typed a few times, then nodded as if satisfied, and continued typing while looking at the laptop monitor. Seeing this, Minamoto Lisa asked Oofuchi Erika.</p>
-<p>,Are you done?"</p>
-<p>,Yeah. Take a look."</p>
-<p>At Minamoto Lisa's words, Oofuchi Erika turned the laptop so everyone could see it.</p>
-<p>◆ Breaking News! Date Experience Club Planning to Make Prince Photo Cards at the Festival!!!!</p>
-<p>A Sneak Peek Fan Leaker Brought More News WWW</p>
-<p>So that's why Minamoto Lisa Kept Taking Prince's Pictures</p>
-<p>They Say They're Selling Photo Cards with the Club Anthology WWWWWW</p>
-<p>Prince Was Wondering Why They Were Taking His Pictures, But When He Heard They Were Releasing Photo Cards, He Was Worried It Would Be a Burden for the Buyers.</p>
-<p>No~ We Have Money Even If We Don't Have Anything Else WWWWW It Was So Cute How He Was Worrying About Useless Things WW</p>
-<p>└So How Much Is the Anthology?</p>
-<p>└Not Decided Yet!</p>
-<p>└Another Attention Seeker. Are They Really Going to Sell Sensei's Photo Cards in the Club Anthology WWWW But It Would Be Nice If They Really Did.</p>
-<p>└Ah, Prince Is Cute. He's Worried About Us with Our Money WWWWW</p>
-<p>└We Should Make It Sell Out in an Hour So He Doesn't Have to Worry.</p>
-<p>└We Have Money to Burn, So We Could Buy 100 Club Anthologies WW</p>
-<p>└Roughly a Picture of the Japanese Prime Minister Giving a Thumbs Up.</p>
-<p>└Yeah~ I'm Going to Make It Sell Out. No One Here Can Buy It~ I'm the Only One Who Will See Prince's Photo Cards.</p>
-<p>└STFU. Minamoto Lisa Will Probably Figure Out All Our Thoughts and Print a Ton of Books.</p>
-<p>└But Sneak Peek Fan, Is the Photo Quality Good? If It's Just Random Photos, I Wouldn't Really Want to Buy It</p>
-<p>└Minamoto Lisa Took Over 6,000 Pictures with a Camera Worth Over 1 Million Yen. How Could There Not Be Good Ones?</p>
-<p>└Six Thousand? Are You Crazy? How Can You Take So Many Pictures of My Husband Without My Permission?</p>
-<p>└You're the Crazy One WW Why Is Prince Your Husband? He's My Husband WWWWW</p>
-<p>└You're Both Just Crazy.</p>
-<p>What Oofuchi Erika did was join Yamashiro Ryuta's anonymous fan club, "Prince of the Prison," and leak information about the date experience club. It was to increase interest and manipulate public opinion by releasing information about selling photo cards in advance, but this wasn't the end of the operation.</p>
-<p>,The reaction is good. Let's post it on the real-name fan cafe this time."</p>
-<p>Minamoto Lisa smiled as she looked at the reactions to the post. There were comments saying "Minamoto Lisa, you bitch," but she didn't care. She was prepared to be insulted to some extent for this kind of operation.</p>
-<p>Yamashiro Ryuta's fan clubs were divided into "Prince of the Prison," an underground, non-real-name cafe, and "Yamashiro Ryuta-nim Appreciation Society," a public, real-name cafe. It was easy to manipulate public opinion in the non-real-name cafe, "Prince of the Prison," but it was difficult to manipulate public opinion in the "Yamashiro Ryuta-nim Appreciation Society."</p>
-<p>However, since there was some overlap in the membership of the two fan clubs, it was easy to spread the news. She thought that the reaction wouldn't be bad even without manipulating public opinion, as the "Yamashiro Ryuta-nim Appreciation Society" was a more moderate group.</p>
-<p>###</p>
-<p>,Hoo...."</p>
-<p>Taira Kanna sighed and pressed her temples. Most of the third-year students at St. Francisco took a week off using this vacation, but Taira Kanna couldn't rest because she was taking classes at the university she had entered early and writing reports. That's why she had a headache from fatigue.</p>
-<p>If others saw her, they would say, "Why are you in such a hurry?" but Taira Kanna's thoughts were different.</p>
-<p>In her opinion, even this was slow. Her opponents were not her peers but the successors of the Tairaga family. With Taira Ichiro, Jiro, and Kokoro already firmly holding their positions, Taira Kanna couldn't rest.</p>
-<p>,Should I rest for about 10 minutes, though? At times like this...."</p>
-<p>Taira Kanna manipulated her smartphone and accessed the "Yamashiro Ryuta-nim Appreciation Society," Ryuta-oraboni's fan club.</p>
-<p>,Looking at Oraboni's pictures is healing."</p>
-<p>Since it was a fan club, the "Yamashiro Ryuta-nim Appreciation Society" often posted pictures of Ryuta-oraboni, so Taira Kanna often used the "Yamashiro Ryuta-nim Appreciation Society."</p>
-<p>She didn't visit the other fan club, "Prince of the Prison," often because it was an anonymous community and there were too many vulgar posts saying they wanted to fuck or suck Oraboni, but today there were a few stories about "Prince of the Prison" posted in the "Yamashiro Ryuta-nim Appreciation Society."</p>
-<p>,Huh...? Breaking news?"</p>
-<p>●Post Number 220113. ●Author: Goddess of the Moon Diana</p>
-<p>●Title: Breaking News from the Prison Next Door.</p>
-<p>I heard that the date experience club is releasing an anthology at the festival, and they're giving away our teacher's photo cards as a bonus? Is this true?</p>
-<p>If it's true that they're giving away photo cards as a bonus, I should save up some allowance ^^</p>
-<p>Comments (105)</p>
-<p>●Kkyuri Kkyung: I can't believe it because that side is anonymous, so there are a lot of lies and exaggerations.</p>
-<p>●Tsubattan: The person who posted the article seems to be affiliated with the real date experience club. They often deliver news that you wouldn't know unless you were a member of the date experience club.</p>
-<p>●Cherry Jjang: Should I ask Sensei? www</p>
-<p>└●Sasami: (ఠ ̥̆ ఠ) Don't pretend to be close to Sensei when you're not.</p>
-<p>└●Parfait Joa: That's right. Pretend to be close in the fan club next door.</p>
-<p>●Ryuko (竜子) Ttang: I hope it's true. So does that mean we can call this photo card official?</p>
-<p>●D-Cup Miko: If photo cards are coming out, I hope they release a lot of club anthologies. So they don't sell out.</p>
-<p>└●Fire Mari: But are you really a D-cup?</p>
-<p>└●D-Cup Miko: Yes.</p>
-<p>└●Fire Mari: Die, big boobs!</p>
-<p>└●D-Cup Miko: Huh?</p>
-<p>●Sarada Joa: If this rumor is true, I hope the festival comes soon! I'm looking forward to it~</p>
-<p>,Photo cards.... You've had a cheeky thought, Lisa."</p>
-<p>After reading all the posts, Taira Kanna immediately figured out who had started this. The pattern of manipulating public opinion from behind the scenes and hiding herself was similar to the movements of the Minamoto Group.</p>
-<p>There isn't a company without a viral team, but the Minamoto family is known to use it the best, so Minamoto Lisa seemed to have a talent for manipulating public opinion as well.</p>
-<p>,But I'll let it slide this time. You've put up a very attractive product."</p>
-<p>Thinking that she had lost this time, Taira Kanna smiled. At the same time, she calculated how much money was in her account.</p>
-<p>She was thinking about how much money she would have to spend to collect all the photo cards, as the vicious Minamoto Lisa would definitely put the photo cards in randomly and make it impossible to complete the set by buying only one or two books.</p>
+<p>The atmosphere was different when I went to work at school. As expected, it was a festival, so it was already lively even though it wasn't time for school yet.</p>
+<p>Of course, the school atmosphere wasn't just lively. There were three times as many school guards as usual, and the discipline committee members would be wearing armbands and walking around when the festival started, so it would be a strange atmosphere where liveliness and oppression coexisted.</p>
+<p>The St. Francisco Girls' Academy Festival, Seongsan Festival, was almost the only event among the St. Francisco Girls' Academy events where people who were not school officials were allowed to enter.</p>
+<p>Therefore, security was strictly enforced to ensure the safety of the female students. Of course, accidents didn't happen often because they didn't sell alcohol at the festival.</p>
+<p>It often happened that young men with boiling blood approached St. Francisco Girls' Academy students, but that level couldn't be called an accident. Of course, if they approached the female students like that, they would be caught by the guards or discipline committee members who had already been dispatched.</p>
+<p>,We're sorry, but you also have to pass the metal detector test, teacher.</p>
+<p>,Of course. I have to.</p>
+<p>The guards guarding the main gate said to me with slightly apologetic expressions. It seemed a little difficult for them to tell me to take the metal detector test because they were getting some money from me. But there are many eyes watching, so I have to. There's nothing made of metal anyway.</p>
+<p>I put my smartphone in the storage box and took the metal detector test.</p>
+<p>-BEEP BEEP BEEP</p>
+<p>The metal detector rang loudly. Ah...! I didn't take off my bracelet. Even if it was a legendary item made by the Daughter of the Abyss, it was natural to get caught because the main material was metal.</p>
+<p>I put the bracelet in the storage box and passed the metal detector test safely. And after receiving my smartphone and bracelet back, I headed to the special class building.</p>
+<p>The building was definitely finished with renovations. The warm-feeling wooden exterior with 'Book store and Cafe' simply written on it was quite fitting. It was a shame that it was a temporary exterior and would be demolished after the festival.</p>
+<p>I entered the special class building and opened the door to the education preparation room, which had a sign that said 'Teachers Only - This is not a festival venue'.</p>
+<p>When I checked the fax to see if there were any messages, there was a message telling the teachers to contact the security headquarters immediately if there were any customers causing trouble.</p>
+<p>I can handle troublemakers even without the power of the security guards, but it would be better to leave general disturbances to the security guards.</p>
+<p>But if there were guys who sexually harassed our class, I was going to send them straight to the Daughter of the Abyss to be fed to the jellyfish.</p>
+<p>After sitting for a while, the hallway quickly became noisy. The students were excited, so they came to school earlier than usual.</p>
+<p>,You, move the club magazines to the second floor!</p>
+<p>Minamoto Risa opened the door with a clatter and said. Ah, that's right. We decided to take the magazines to the club room this morning because someone might steal them at night.</p>
+<p>A truck was parked in front of the special class building, and the truck was full of boxes. Is that all club magazines?</p>
+<p>,There's quite a lot, but please work hard.</p>
+<p>,No. I can do this much easily.</p>
+<p>Otagi Yuka, Naruse Shiyo, Seizawa Shii, and Kujo Kina were already moving the boxes, so I couldn't complain.</p>
+<p>I also moved the boxes together, and everyone was strong and quick, so we were able to move all those boxes to the second-floor club room quickly.</p>
+<p>,There's quite a lot?</p>
+<p>,I ordered more.</p>
+<p>Ah, she said she would order 2,000 copies of my photocard each time, so she must have ordered more. Since there are also Uenozono Karen photocards, I guess we have no choice but to order more club magazines.</p>
+<p>,Okay, now that we've moved everything, let's go to the classroom for now.</p>
+<p>The classroom was already transformed into a cafe, but there were quite a few seats, so all the special class students could sit down.</p>
+<p>When I entered the classroom, Kijimoto Jurie, the one-day manager wearing an apron, was standing at the cafe counter. I made eye contact with Kijimoto Jurie and stood there.</p>
+<p>,Let's see... It's already 50 minutes because we moved the luggage. Everyone has finished all the other preparations, right?</p>
+<p>Originally, I had to check attendance at 8:30, but it was a little late because we moved the luggage. I took out my phone, entered the faculty app, and pressed the attendance complete button.</p>
+<p>,It's quite a tough schedule from 9 AM to 9 PM, but since a total of 15 people will be taking turns, the work itself won't be that hard.</p>
+<p>Minamoto Risa, who led this festival, said while handing out the festival work shift table to the students. If there are a total of 14 people, it seems like that includes me and Kijimoto Jurie.</p>
+<p>Uenozono Karen said she would help with the festival work, and Alik had to go to the Cheongsim Hall festival venue, so since there were 12 students, it seemed natural that +2 was me and Kijimoto Jurie.</p>
+<p>,Why is this like this?</p>
+<p>I said looking at the festival work shift table. If I didn't consider looking around the festival with the students as a break, I was the only one who almost had no break time.</p>
+<p>Of course, there weren't that many days for selling club magazines, but a date hell with almost no rest was waiting for me.</p>
+<p>,Just work hard for two days.</p>
+<p>,Ryuta-cchi, you don't think dating us is work, do you?</p>
+<p>,That's right, you don't hate it, do you, teacher?</p>
+<p>I couldn't say it was hard because of the students' reactions.</p>
+<p>,No... I'm just worried that you'll have a hard time because I can't do a lot of work.</p>
+<p>While we were talking about the work schedule, the time was getting closer to the festival start time.</p>
+<p>,Everyone will be working together at the festival opening, so please be in the position written on the shift table.</p>
+<p>Minamoto Risa was skillfully assigning students. Reading the shift table, everyone was assigned a job until 10 AM. My role was to unpack the boxes placed in the second-floor club magazine store and display the club magazines well.</p>
+<p>As I started unpacking the boxes and stacking the thin vinyl packs containing the club magazines and photocard packs, the time became 9 AM, the start of the festival. At that time, my sharp senses began to hear the sound of footsteps. Could they be coming this way?</p>
 <p>______</p>
-<p>Following yesterday, Alik is wearing a dinosaur skin (?) lol</p>
-<p>It feels like a dinosaur raincoat lol</p>
+<p>I don't have an illustration I made today, so I'm uploading an Alik practice illustration lol</p>

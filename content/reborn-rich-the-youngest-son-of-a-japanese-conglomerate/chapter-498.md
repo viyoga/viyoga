@@ -5,59 +5,87 @@ weight = 498
 chapter = 498
 +++
 
-<p>After the office was ventilated, and just as Oofuchi Erika and Shido Tsubaki were about to start their meeting, the McDoria hamburger that Oofuchi Erika had ordered arrived. Seeing it, Shido Tsubaki raised her glasses with a finger and frowned slightly, but didn't say anything to Oofuchi Erika.</p>
-<p>Oofuchi Erika couldn't say anything about such things, because Shido Tsubaki was a founding member of Search Eye, established under Shido Tsubaki's leadership, and she demonstrated outstanding ability in bringing back various information through VR Dive, so she was a little fond of her.</p>
-<p>,I didn't eat dinner because I was investigating... Should I order one for Tsubaki-chan too?</p>
-<p>,No, I already ate. But can I listen while you eat?</p>
-<p>At Shido Tsubaki's words, Oofuchi Erika nods, taking a big bite of her Large Mac with a waang. Then, she launched the document file containing the conversation between Daigo Terue and Yamashiro Ryuta that she had prepared in advance. Shido Tsubaki read the contents for a moment and then nodded.</p>
-<p>,So, behind the Toyotaka faction is Minamoto's fourth son, Minamoto Shigemune, and they might use force to seize control of the Daigo family?</p>
-<p>,Yeah, it's just a rumor, so we need to confirm it thoroughly.</p>
-<p>Oofuchi Erika answered, chewing on her hamburger, to Shido Tsubaki's question. She had thought it was just a power game within the family, but as she investigated, the scale of the matter grew larger and larger, and Shido Tsubaki began to worry about what to do.</p>
-<p>,Is it okay for me to ask about this?</p>
-<p>As the daughter of a giant newspaper company, Shido Tsubaki, who knew this industry well, pondered for a moment. The giant newspaper companies were already places that only produced articles that suited the tastes of giant corporations and the government, and the various newspaper companies owned by the Shido family were no different.</p>
-<p>With the Minamoto Group involved, even if it was just a school club activity, if Shido Tsubaki revealed this matter, the Shido family would definitely suffer the damage. If they incurred the displeasure of the Minamoto Group, one of Japan's two major powerhouses, even the Shido Group, famous for its media influence, would inevitably be hit hard.</p>
-<p>,What are you worried about? Is it because the Minamoto side is involved?</p>
-<p>,Yeah, sorry...</p>
-<p>This matter was also related to Daigo Terue, Oofuchi Erika's godmother, so she felt sorry for Oofuchi Erika for worrying about this matter. Oofuchi Erika shook her head and then put the remaining piece of hamburger into her mouth, opening her mouth.</p>
-<p>,We can just focus on Ishidera Kosuke, whom we were initially investigating, except for the fact that Minamoto is involved. We can say that we published the article without knowing that the Toyotaka faction and Minamoto had joined forces. Wouldn't that be okay?</p>
-<p>Shido Tsubaki nodded at Oofuchi Erika's reasonably clever words. That's right, there was no need to make all the information she knew into an article.</p>
-<p>The Shido family, and even the entire Daigo family, didn't fear the Toyotaka faction, a minor faction of the Daigo family, so if they removed the story about the Minamoto side and passed everything onto the Toyotaka faction and Ishidera Kosuke, it seemed like they could publish the article.</p>
-<p>If they didn't reveal the name of Minamoto, it would be ambiguous for the Minamoto Group to respond. If the Minamoto side got angry, it would be proving that the Minamoto Group was the entity using force, so if they didn't mention the name, they wouldn't show any reaction.</p>
-<p>,Yeah, that's a good idea. But if we publish it under the name of the newspaper club, it could cause trouble for the newspaper club, so let's publish the article anonymously and post it on the bulletin boards of each club.</p>
-<p>,Yeah, leave posting it on the club bulletin boards to me. I'll post it not only on general clubs but also on unauthorized clubs, so Tsubaki-chan, please write a delicious article.</p>
-<p>Fearing that newspaper club students would suffer disadvantages if they wrote an article targeting the current school director, Ishidera Kosuke, they decided to post it anonymously on the club bulletin boards as an internet article.</p>
-<p>Oofuchi Erika, who is excellent at VR Dive, would be able to post articles on each club without leaving any traces.</p>
-<p>,We still don't have enough sources, so we need to gather more detailed data and write the article. Erika, can you work hard over the weekend?</p>
-<p>,Yeah, this is no different from helping my mother, so I should work a little harder. And the Daigo family will pay for the information and the article.</p>
-<p>Search Eye, conceived by Shido Tsubaki, was a business that acted as an information broker and even published articles when something happened. It was structured to receive money from people who benefited from revealing the truth, and it wasn't a company that received money from those who hid the truth by doing bad things to hide the truth.</p>
-<p>It was conceived by Shido Tsubaki, a female student who still had a sense of justice in her adolescence, and Oofuchi Erika was adding her strength as an informant, but both were disappointed that Sakagami Rena, who used to hang out with them, didn't join this business.</p>
-<p>According to Sakagami Rena, she had a lord and couldn't do personal work? However, she said that she would accept information gathering in the form of a request.</p>
-<p>,Shall we request Sakagami Rena?</p>
-<p>,Okay, let's talk to her first.</p>
-<p>The two began to talk about making a request to Sakagami Rena for information gathering.</p>
+<p>A few minutes ago. In the innermost part of the shrine, Kurayamada Kirie was waiting for her father, Kurayama Kazuma, in front of the sacred rope.</p>
+<p>She didn't know what was going on, but suddenly she heard gunshots and shouts from the entrance of the shrine, so she was nervous. Soon, she felt someone approaching.</p>
+<p>,You were waiting here."</p>
+<p>The one who appeared was Kurayama Kazuma in his werewolf form. So something happened. Kurayamada Kirie knew that her father didn't take on the werewolf form unless it was a battle, so she realized that the ongoing gunshots were unusual.</p>
+<p>,What's with the gunshots? Did someone attack?"</p>
+<p>,Well... it'll be taken care of."</p>
+<p>Kurayamada Kirie frowned at his reaction, as if he didn't care about his own subordinates. Her father was acting strange. He used to care about his subordinates' safety, but now he was talking as if it had nothing to do with him.</p>
+<p>,Everything is because of....'</p>
+<p>Kurayamada Kirie glared at the stone building with the sacred rope in front of her. Her father was acting strange and using the organization's manpower in useless places because of that unknown object, the root of this earthquake.</p>
+<p>,The sacred rope... at this level."</p>
+<p>Kurayama Kazuma approached the sacred rope, unaware that his daughter was resenting him, and reached out with his hand, his sharp claws sticking out.</p>
+<p>Patsutsutsutsu!</p>
+<p>Sparks flew as the protective magic on the sacred rope was activated. Kurayama Kazuma smiled and brushed off the protective magic as if it were a fly.</p>
+<p>,Hap!"</p>
+<p>Kurayama Kazuma cut the sacred rope with his claws and approached the collapsing stone building as if there was nothing else to stop him.</p>
+<p>He kicked down the decaying wooden door and entered, finding a stone coffin covered in talismans. The building seemed to be mainly for storing the stone coffin, as there was nothing else but the stone coffin alone on a stone altar.</p>
+<p>,Those stupid Daigo bastards. They don't even know that the thing they're sealing is the key to dominating the world..."</p>
+<p>Kurayama Kazuma mocked the Daigo family and began to tear off the talismans one by one with his sharp claws. The talismans didn't attack the person who touched them like the sacred rope. They were talismans to prevent the thing inside the stone coffin from coming out, not to prevent people from approaching like the sacred rope.</p>
+<p>When all the talismans were removed, the stone coffin began to shake and vibrate. It felt as if there was a living creature inside the stone coffin, moving inside to get out.</p>
+<p>,Khehehe...! Don't worry. I'll let you out."</p>
+<p>Kurayama Kazuma spoke to the being inside the stone coffin as if he were talking to it, and grabbed the lid of the stone coffin. Then, as if it understood him, the vibration of the stone coffin stopped, which gave Kurayamada Kirie a strangely unpleasant feeling.</p>
+<p>Geugeugeuk.</p>
+<p>The sound of stone scraping against stone was heard, and the stone coffin began to open. Soon, the stone coffin was completely opened, and the appearance of the root of the earthquake was revealed.</p>
+<p>,This is...."</p>
+<p>Kurayamada Kirie opened her mouth with a slightly disappointed look. What was inside the stone coffin was a root of some kind of plant, just like the name root of the earthquake.</p>
+<p>Of course, it didn't really feel like a normal plant root. A large, thick root was the center, and small, long roots were divided into four branches, forming a human figure. The head was also subtly distorted, resembling an ugly human.</p>
+<p>If you glanced at it, it looked similar to a newborn human baby, but there were so many plant roots that if you looked closely, you would know that it could never be a human baby.</p>
+<p>,Yes, yes, let's become one...!"</p>
+<p>Kurayamada Kazuma's eyes were already full of madness. And he opened his mouth wide as if he was going to eat the root of this earthquake in one bite. At that moment, Kurayamada Kirie saw it. The root on Kurayama Kazuma's palm entered his mouth on its own.</p>
+<p>The root passed through Kurayama Kazuma's esophagus before he could even chew it. Seeing that, Kurayamada Kirie's instincts warned her that this was a dangerous situation. So she took a step back without realizing it.</p>
+<p>Kurayama Kazuma's condition was strange. The blood vessels swelled up so much that they could be seen even through the thick fur of the werewolf, and his eyes were ominously bloodshot and began to turn red. In addition, his already huge body, over 2 meters tall, began to grow even larger. It wasn't just a matter of swelling up. Kurayama Kazuma's body was growing visibly.</p>
+<p>,Kuaaaa!"</p>
+<p>A shockwave occurred with Kurayama Kazuma's roar, and the stone building began to collapse. It was already old and about to collapse, but when the shockwave swept through the building, it could no longer withstand it. Kurayamada Kirie escaped outside, avoiding the collapsing building.</p>
+<p>With a kuung sound, dust rose. The dust rose quite high due to the impact of the collapsing building, but Kurayama Kazuma revealed his massive body through the dust.</p>
+<p>,F, Father...!"</p>
+<p>A monster over 4 meters tall, that was Kurayama Kazuma's current appearance. It was the appearance of a giant werewolf wrapped in bizarre vines.</p>
+<p>Kung!</p>
+<p>Kurayama Kazuma pulled his root-filled foot from the ground and took a step forward. Then the ground shook and began to cause an earthquake.</p>
+<p>,The root of the earthquake was real?'</p>
+<p>Kurayamada Kirie thought it would just have some kind of effect, but she didn't know it would really cause an earthquake.</p>
+<p>,I'm hungry...!"</p>
+<p>Chwaak!</p>
+<p>At that moment, the vines wrapped around Kurayama Kazuma's body were shot toward the surrounding trees and creatures. Of course, Kurayama Kirie was also among those creatures. Sensing the threat, Kurayama Kirie quickly drew her ōdachi (greatsword) from the air and slashed at the vines.</p>
+<p>,It's tough...!'</p>
+<p>It was not an ordinary vine. It was cut in one strike, but she felt considerable resistance. Kurayamada Kirie's ōdachi was a masterpiece with a blade length of over 2 meters, and because of its heavy weight and sharpness, it should have been able to cut vines like tofu.</p>
+<p>,W, what...!"</p>
+<p>Kurayamada Kirie looked around. The surrounding trees that were pierced by the vines began to wither in an instant. The lush leaves fell and began to crumble and dry up. If she hadn't cut the vines with her sword, she would have died as a mummy.</p>
+<p>,D, did Father attack me...?"</p>
+<p>Kurayamada Kirie was quite shocked. He was her father who had never laid a hand on her, even though they hadn't met often since she left the family. She was shocked that her father, who was the infamous head of Jinildang, but had been gentle to her, his daughter, had attacked her to kill her.</p>
+<p>,W, what?"</p>
+<p>While Kurayamada Kirie was shocked and hesitated, someone seemed to have run over due to the sudden earthquake. She looked to the side and saw a man in black armor standing there. This man was famous all over the world. Why is this man here?</p>
+<p>,Black Knight?"</p>
 <p>###</p>
-<p>Minamoto Risa stared at the man sitting in front of her with a stern expression. The man resembled Minamoto Risa to some extent, but his warm smile seemed different from Minamoto Risa's usual cold demeanor.</p>
-<p>The man was Minamoto Shigemune, the fourth son of the Minamoto family. He had suddenly barged into the Minamoto family's residence at St. Francisco Girls' Academy late in the evening and called for Minamoto Risa.</p>
-<p>,You should get your act together soon. You still have an appearance that doesn't suit the name of Minamoto.</p>
-<p>As soon as he saw her face, Minamoto Shigemune spewed out venom with that seemingly warm face. Minamoto Risa knew that this was the true nature of Minamoto Shigemune, who was said to be gentle for a Minamoto family man.</p>
-<p>Minamoto Shigemune had tormented Minamoto Risa since childhood, and not only Minamoto Risa but also those who were weaker and less powerful than him. There were countless victims of Minamoto Shigemune, including the family's servants, classmates, and lowerclassmen at school.</p>
-<p>Since he took charge of the Minamoto Group's education business as he got older, he had gained a reputation for being kind, but Minamoto Risa knew that all of this was fabricated information.</p>
-<p>Minamoto Shigemune's sadistic tendencies were still present, and rumors circulating in the Minamoto family said that Minamoto Shigemune killed someone every few months to calm down his sadism.</p>
-<p>,Since when have you cared about me? I'll do whatever I want with my appearance, so Shigemune-ssi, don't worry about me.</p>
-<p>Minamoto Risa frowned and answered Minamoto Shigemune. She was supposed to call him her older brother in name, but Minamoto Risa called Minamoto Shigemune's name as if he were a stranger.</p>
-<p>Minamoto Risa, who was an illegitimate child, had been discriminated against since childhood, so she didn't think of Minamoto Shigemune and her other siblings as family who shared her blood. So, instead of saying "older brother" or "older sister," she simply attached -ssi to their names. Minamoto Shigemune didn't show any particular reaction, as he was used to her calling him by his name.</p>
-<p>,Finally, the day has come for you to be of help to the family.</p>
-<p>Minamoto Risa snorted at Minamoto Shigemune's words. The Minamoto family was famous for not being close among siblings. Recently, the story of the Tairaga family's succession war had been the focus since Taira Saburo's death, but originally, the Minamoto family was famous for being a mess. The current Chairman, Minamoto Ushin, had also become Chairman by killing all his brothers and uncles, which had been a hot topic for a while.</p>
-<p>She didn't know what Minamoto Shigemune was going to say yet, but Minamoto Risa thought that this matter would probably only be beneficial to Minamoto Shigemune and would never be helpful to the family as a whole.</p>
-<p>,We've decided to support the Toyotaka faction of the Daigo family this time.</p>
-<p>Minamoto Shigemune opened his mouth quietly. Even Minamoto Risa, who was a delinquent, could understand what Minamoto Shigemune's story meant. When multiple successors are in contention and there is a succession battle, it is possible to borrow the power of other families, but in a situation where the successor is already determined, such as in the Daigo family, it was taboo for a completely unrelated family to lend its power. If this happened more often, it would be commonplace to change the head of another family by force.</p>
-<p>The Daigo family had not officially appointed a successor, but most people knew that Daigo Tadanori was the successor. This is because the Tadanori faction holds most of the real power.</p>
-<p>The current temporary school director, Ishidera Kosuke, is a member of the Toyotaka faction, but this is only temporary while Daigo Terue is suspended, and it does not mean that Daigo Toyotaka is the successor of the Daigo family.</p>
-<p>In the end, Minamoto Shigemune seemed to be planning to do something that was considered taboo. He was planning to pull down Daigo Tadanori, who was considered legitimate, push Daigo Toyotaka as the head of the Daigo family, and receive a portion of the Japanese women's education that the Daigo family monopolized.</p>
-<p>,There's nothing I can do, though?</p>
-<p>Minamoto Risa decided to feign incompetence in order to reject Minamoto Shigemune's proposal. However, Minamoto Shigemune opened his mouth with a bitter expression that didn't match his usual kind face.</p>
-<p>,I know that you have some influence at St. Francisco Girls' Academy. So don't refuse. If this is successful, I'll reward you. It won't be a bad thing for you either.</p>
-<p>,I'll think about it.</p>
-<p>Since she couldn't answer immediately, Minamoto Risa postponed her answer under the pretext of thinking about it. Minamoto Shigemune got up from his seat in a slightly angry manner, as if he didn't expect Minamoto Risa, an illegitimate child, to postpone his proposal.</p>
-<p>,Hmph...! You'll have to give me an answer quickly. Otherwise, you won't have a chance.</p>
-<p>Minamoto Shigemune, who had gotten up from his seat, left the residence. Minamoto Risa sat in her seat without paying any attention to Minamoto Shigemune's departure and began to think about this matter.</p>
+<p>What is that monster? Seeing Kurayamada Kirie with him, he seems to be a member of Jinildang, but did they have someone like that...? A giant werewolf with tree vines like tentacles wrapped around his body....</p>
+<p>,W, what?"</p>
+<p>,Black Knight?"</p>
+<p>Kurayamada Kirie is surprised to see me. It's natural to be surprised since the Black Knight is such a famous person, but I need to ask about that monster first.</p>
+<p>,What is that monster?"</p>
+<p>,My father.... He ate something called the root of the earthquake that was sealed in this shrine, and he became like that."</p>
+<p>Root of the earthquake...? That's the first time I've heard that name. By the way, that werewolf was the head of Jinildang? And Kurayamada Kirie's father was the head of Jinildang? I thought she was just dipping her toes in, but she was a high-ranking member.</p>
+<p>,I'm hungry...!"</p>
+<p>Kung!</p>
+<p>Kung!</p>
+<p>The monster is shouting that he's hungry and approaching us step by step. As he gets closer, tentacles fly towards us. I and Kurayamada Kirie cut down the vine tentacles and took a step back.</p>
+<p>Kurayamada Kirie didn't seem to have awakened her werewolf traits, but she still swung a huge greatsword lightly, probably due to her father's influence. It was strength that ordinary women would find difficult to have.</p>
+<p>,What do you want me to do?"</p>
+<p>I glanced at Kurayamada Kirie and asked. I couldn't just kill that monster in front of her without asking, since he was her father.</p>
+<p>,Can't we turn him back?"</p>
+<p>,Probably not...."</p>
+<p>I nodded at Kurayamada Kirie's question, which felt sad. He seemed to be completely fused with the root of the earthquake, so it seemed impossible to separate them.</p>
+<p>,The father I knew was already gone when he was possessed by that root of the earthquake. Please kill that monster and free my father."</p>
+<p>Kurayamada Kirie looked at me with tears in her eyes and asked me to get rid of the monster. I got Kurayamada Kirie's permission, so it's okay to kill him now.</p>
+<p>Just as I was about to rush at the monster vine tentacle werewolf, the surviving Jinildang members rushed over. And then Sakagami Rena, Konoe Akina, and Nakanoin Rina arrived. Jinildang probably stopped fighting and rushed over because the earthquake started from where their leader was, and the Public Morals Committee was cleaning up after the security forces, and Nakanoin Rina, the chairman of the Public Morals Committee, came to find out what was going on as a representative.</p>
+<p>Sakagami Rena and Konoe Akina seemed to be worried about me.</p>
+<p>-Erika was handed over to the Public Morals Committee. Ishidera Kosuke and Minamoto's people were also tied up and handed over to the Public Morals Committee, so they will interrogate them.</p>
+<p>Sakagami Rena said through a communication line that was connected so that others couldn't hear. Erika is safe, so that's good, and Ishidera Kosuke and Minamoto's guys.... Taira Kanna will investigate them.</p>
+<p>,L, Leader! What happened?"</p>
+<p>Kuaaaa!</p>
+<p>One of the Jinildang members approached the monster and asked, but the answer he got was only a roar and vine tentacles. The Jinildang member who was pierced by the tentacles that were shot in an instant was sucked dry in an instant and became a mummy with only bones and skin left.</p>
+<p>,!"</p>
+<p>I definitely can't get caught by those tentacles....</p>
+<p>-----</p>
+<p>Kurayamada Kirie, whose wolf bloodline has awakened!</p>
+<p>Animal ears look good on her, haha.</p>

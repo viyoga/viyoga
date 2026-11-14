@@ -5,123 +5,89 @@ weight = 1037
 chapter = 1037
 +++
 
-<p>Waking up early in the Morning, I headed to the Back mountain for a walk after a long time.</p>
-<p>There was no particular Reason; I just felt like it. It was a rare holiday with no particular Work, and I thought I wanted to enjoy a refreshing Morning walk.</p>
-<p>Coming Outside the mansion, the garden, covered in Dawn fog under a deep blue sky where the sun had not yet fully risen, welcomed me.</p>
-<p>My Field of Vision was limited because of the Dawn fog, but I did not give up on my walk.</p>
-<p>After walking through the mansion garden for a while, I walked up the stairs behind the mansion and ascended to the shrine on the Back mountain. A hazy lantern was visible through the fog.</p>
-<p>Shrine Maidens wake up early in the Morning, so this lantern must have been hung by them after waking up at Dawn. I passed through the shrine door where the lantern hung and entered the shrine.</p>
-<p>"Hmm?"</p>
-<p>Did someone burn some scent? Combined with the Morning fog, the scent gave off a strange feeling.</p>
-<p>It felt different from Lizhael's shrine that I knew. Still, because I knew the original structure, I was certain this was not a different place.</p>
-<p>Since I woke up early and came to the shrine, I intended to see Hanakame or Urabe Konoka before heading back down.</p>
-<p>When I went towards the inner garden where the two of them were staying, Lizhael was there, wearing Miko clothing.</p>
-<p>Huh? Why is Liz in Reality...? And why is she wearing Miko clothing...?</p>
-<p>"Liz?"</p>
-<p>"Fufufu.... My Partner-nim. I heard today is your day for Rest."</p>
-<p>No way, did she descend knowing I had no Work today? The Reason Hanakame and Urabe Konoka weren't visible seemed to be that they had collapsed after making Liz descend.</p>
-<p>"Welcome, Liz. Shall we go on a date today?"</p>
-<p>If I were to ask, 'Why did you come for no reason? Why didn't you tell me in advance?', her Mood would sour, so I approached Liz and gently hugged her. Liz's huge breast was soft and embraced my Body, which felt truly good.</p>
-<p>"Fufufu.... You are still so gentle."</p>
-<p>I had never had a proper date with Liz, so it seemed like it would be okay to have a date for at least today. Besides, I had no other Work today.</p>
-<p>Liz and I held Hands and came down from the temple to the mansion. Liz was looking at my mansion with an Expression full of Curiosity.</p>
-<p>"Is this where my Partner lives? It pleases me."</p>
-<p>"There are many rooms, so you can stay anywhere."</p>
-<p>Of course, as an Outer God, Lizhael's time to stay in this World is limited, so she wouldn't need a room, but still, having her own room feels good, so it would be good to create a room exclusively for Liz.</p>
-<p>First, for Liz, who is currently wearing Miko clothing, I should roughly find some fitting Clothes for her and then go shopping. I roughly found Clothes that fit Liz and dressed her in them.</p>
-<p>Even though I just dressed her in a white shirt that I wear and Shorts, her Figure was so good that it suited her well.</p>
-<p>In fact, her Appearance in Miko clothing was so sexy that I wanted to lay her down on the bed right away, but I didn't know how long Liz could stay here, so I thought I should leave some Memories and endured.</p>
-<p>Well, doing it on Our Home bed would also be a Memory in its own way, you know.</p>
-<p>I put Liz in the passenger seat and headed to Tokyo. Neo Tokyo also had things, but Tokyo was still better.</p>
-<p>Neo Tokyo would become a desolate yet Pleasure Mecca corporate city seen in a cyberpunk era, but for now, it was difficult to match Tokyo's Entertainment.</p>
-<p>I said Entertainment, but what we would do today wasn't that kind of Entertainment; it was the kind that Lovers do on a date.</p>
-<p>Driving to Tokyo with Liz, I headed straight for the department store. No matter how much it suited her, I couldn't have her walking around in just a white t-shirt and Shorts, you know.</p>
-<p>"This is a department store, indeed. It's my first time actually coming here."</p>
-<p>Liz's Eyes sparkled. She seemed quite excited. First, because we had to change her Clothes, we headed straight to the women's clothing store.</p>
-<p>In the women's clothing store, Liz was a huge hit. The department store Clerks, as if possessed, recommended Clothes that suited Liz. She was so pretty and had such good Style that it must have been a pleasure to dress her.</p>
-<p>I took all the Clothes that Liz liked even a little. Even if she could only wear one outfit today, the rest could be sent as offerings, you know.</p>
-<p>In the end, the Clothes Liz chose were light Clothes suitable for a date. Liz's Appearance, wearing a white Frill shirt and a long blue skirt, suited her quite well.</p>
-<p>"Does it suit me well?"</p>
-<p>"Yes, very much."</p>
-<p>Because it was Liz, who knew there was no lie in my Words, she smiled as if happy even at my plain Words.</p>
-<p>"Are you thinking of purchasing all these Clothes?"</p>
-<p>"Yes, I'll send them to Liz, so try wearing them."</p>
-<p>"Fufufu.... I will wear them carefully, Partner-nim."</p>
-<p>After paying for the Clothes, I looked around the department store as part of our date, and Liz, standing in front of the women's underwear store, looked at me.</p>
-<p>"You, can you lend me that Card for a moment?"</p>
-<p>"Huh?"</p>
-<p>I would buy whatever she chose, so why was she asking to borrow it? When I said, 'Huh?' and looked puzzled, Liz laughed, saying, 'Ufufufu.'</p>
-<p>"Ufufufu.... I want to surprise you, so I intend to choose underwear without your knowledge."</p>
-<p>"If it's that, I can give you a hundred Cards."</p>
-<p>Ah, that's what it was? I can't resist surprise underwear. At Liz's Words, I immediately took out my Card and handed it over.</p>
-<p>"Partner-nim, order Dessert at the Underground food court and wait."</p>
-<p>Before, I had bought Dessert for Liz at the department store food court and offered it as a tribute.</p>
-<p>Remembering that still, she told me to wait at the Underground food court. I nodded my Head and went down to the Underground food court.</p>
-<p>"This and.... Ah, please give me two of these too."</p>
-<p>I ordered Desserts that Liz would like and sat at the food court's Dining table.</p>
-<p>After waiting a little, Liz came down holding a shopping bag. More than anything, I was incredibly curious what kind of underwear was inside that shopping bag.</p>
-<p>"Fufufu.... There is nothing inside the shopping bag, Partner-nim."</p>
-<p>Perhaps sensing my Gaze fixed on the shopping bag, Liz said, holding out the Card.</p>
-<p>"Huh? Really nothing?"</p>
-<p>"She wasn't wearing underwear originally, so she came down already wearing it."</p>
-<p>Ah...! That's how it was. Was the shopping bag just taken as a courtesy? Like that, we sat at the department store food court Dining table and enjoyed sweet Desserts. As expected, since it was Dessert bought at a department store food court, it had a luxurious taste, indeed.</p>
-<p>After finishing all the Desserts at the department store, we walked around the Tokyo street. Since it was a sudden date, I hadn't made any particular plans, so I thought I would try anything that looked good with Liz while walking around the street.</p>
-<p>"How about that?"</p>
-<p>"It seems good."</p>
-<p>When I pointed to the Purikura (sticker photo booth) in front of my Eyes, Liz said it was good. It seemed she would say anything I chose for her was good.</p>
-<p>"Here...?"</p>
-<p>"It's a place to take Sticker Photos."</p>
-<p>I gave Liz an Explanation and entered the empty booth. Then, I decided on the photo's theme and various Settings, and pointed to where the Camera was.</p>
-<p>"Just look there."</p>
-<p>"There, you mean...?"</p>
-<p>-Cheese~!</p>
-<p>When I smiled at the sound of "cheese" coming from the Machine, a Photo was taken. For the next shots, we took Sticker Photos with poses like finger hearts or kissing on the cheek.</p>
-<p>"And you can decorate each Photo however you want."</p>
-<p>"I will try to decorate it splendidly, my dear."</p>
-<p>Liz showed quite a lot of enthusiasm and decorated the Photo, but after decorating it quite splendidly, she looked at the original Photo, then erased everything she had decorated and left only simple hearts, one by one.</p>
-<p>"If we decorate too much, you and I will be hidden, so this much would be good."</p>
-<p>It's a bit difficult for me to say this directly, but since both Liz and I are beautiful people, there wasn't really a need to decorate much. I also just wrote today's Date in the empty space on the Photo and pressed the print button.</p>
-<p>Wiing, the Photos came out one by one as set, so Liz and I each took one. Liz watched the received Sticker Photo for a while, then smiled as if happy.</p>
-<p>"I will keep it as my Treasure for Eternity, my dear."</p>
-<p>Her Words are thankful, but I don't think a Sticker Photo can endure for Eternity, you know....</p>
-<p>After leaving the Sticker photo booth, we ate the lunch Liz chose (she chose a McDonald's burger) and then happily enjoyed games at a nearby game center.</p>
-<p>Because Liz and I had such outstanding appearances, I could feel People in the Surroundings glancing at us, but no one approached, so we enjoyed various games at the game center without much discomfort.</p>
-<p>We played the doll claw machine and exchanged dolls (Telekinesis was quite helpful), and Liz was so happy to receive a teddy bear that I was also satisfied.</p>
-<p>After the doll claw machine, we played games we could enjoy together, such as Taiko no Master and Mario Cart Rider.</p>
-<p>In the Early Stage, Liz struggled a little, but she quickly adapted, and later it wasn't easy for me to win either. Still, she seemed to enjoy it quite a lot, and her Appearance of sincerely enjoying herself was good.</p>
-<p>There was also a Sticker Photo booth at the game center, but since we had already taken photos, we mainly enjoyed games that we could play together.</p>
-<p>Perhaps because we had enjoyed ourselves so excitedly at the game center, it was gradually getting dark when we came Outside. Still, the reserved restaurant time was yet far away, so this time we decided to go to a karaoke room. We thought that if we sang a few songs, the time would match.</p>
-<p>"I'll sing for you."</p>
-<p>"Good. I don't think I've ever heard your Singing."</p>
-<p>I entered the karaoke room and sang for Liz. It was an Ordinary Level of Singing, neither particularly good nor bad, but Liz was still happy.</p>
-<p>"Liz, is there a song you want to sing too?"</p>
-<p>"Fufufu, give me the Microphone."</p>
-<p>Did Liz know any songs? As I wondered and handed over the Microphone, Liz sang without selecting a song.</p>
-<p>It was a song sung like "La~♪ La~♬" without Lyrics, but Liz's Voice and melody were so beautiful that I unconsciously fell completely under their spell.</p>
-<p>As I listened to her Singing blankly, Liz laughed, saying, 'Ufufufu,' and returned the Microphone to me. My blank Expression must have been a little funny.</p>
-<p>"Liz, that was incredibly good...! What song was that?"</p>
-<p>"Where do you think the Singing skill of Siren, one of my vassals, came from?"</p>
-<p>In fact, I didn't even know Siren was Liz's vassal, you know. By the way, it's a surprising fact that Siren, who seduced sailors in the Sea, actually existed. She must have been a vassal since the time of Simyeonui ttal.</p>
-<p>As we sang for each other like that, before I knew it, the restaurant Reservation time approached, so we rode a Taxi and headed to the restaurant.</p>
-<p>It was a high-class restaurant providing course dishes, and she seemed quite satisfied.</p>
-<p>"Is this what a date is, Partner-nim?"</p>
-<p>Liz, who was cutting her Steak, asked me. She must have never experienced a date until now, so it seemed a question/doubt arose, 'Is this a date?'</p>
-<p>"It doesn't necessarily have to be this course; we can laze around at Home, watch a Movie and go to a cafe, there are various forms. Still, don't you think there aren't many People who play as fruitfully as we did today?"</p>
-<p>"Fufufu.... As you said, it was quite a dense date."</p>
-<p>In fact, we had intended to watch a Movie too, but we ran out of time and skipped it. After finishing our meal with various Conversations, we went to the nearby department store Parking Lot, got back into my car, and headed to the next date course.</p>
-<p>In fact, one could say the date ended with the Evening meal. After all, the Last course was a hotel where we would taste each other's bodies and share love.</p>
-<p>Liz B-cut~!</p>
-<p>This red attire was also considered for the date attire, but Clothes closer to casual wear were chosen haha.</p>
-<p>Chomisaemeonji-nim requested Office Look Liz, Nurse Liz~!</p>
-<p>Office Look~!</p>
-<p>Nurse Liz~!</p>
-<p>I prefer the nurse attire more haha.</p>
-<p>TheDreaming-nim requested Ryuta using Creation Chaos Style Earth Vein Drawing/Star Shattering~!</p>
-<p>Earth Vein Drawing~!</p>
-<p>Star Shattering~!</p>
-<p>Kkiyot~!</p>
-<p>Gojoy-nim requested Taira Camilla with her hair down, her Rest attire when resting, and Shower.</p>
-<p>Rest attire~!</p>
-<p>When Camilla rests, she wears a babydoll similar to what was uploaded before haha.</p>
-<p>Shower~!</p>
-<p>Since it's a Character whose Sex status hasn't been decided yet, I made the shots without showing her nipple haha.</p>
+<p>As we gradually approached the Fragment of Omniscience acquisition battle, the surrounding Combat power was indeed greatly increasing.</p>
+<p>It wasn't just the Obsidian Syndicate, a New York Back Alley gang, or Vampires who only used Concealment (though I easily defeated them, it was actually a quite strong Concealment Ability that even I didn't easily notice); the real deal were fighting each other.</p>
+<p>Vampires exploding entire surrounding Buildings with Blood Sorcery, the SPF Branch Manager in giant Knight Armor confronting those Vampires, and the witch Golden Hat I saw earlier was now fighting a pack of silver-furred Werewolves.</p>
+<p>In addition, seeing special units seemingly sent by the government fighting groups of Magicians aiming for the Fragment of Omniscience, we ran.</p>
+<p>"Oh?!"</p>
+<p>As we were running, we discovered a welcome Face. It was my Sabu, Fujigasaki Rinka. Fujigasaki Rinka, who could be said to be the strongest among our Members, had decided to freely search for the Black Knight without any specific location, and it seemed she had met us while circling the Fragment of Omniscience acquisition battle area.</p>
+<p>"Sabu, couldn't you find the Black Knight?"</p>
+<p>"I thought you were the Black Knight."</p>
+<p>At my Question, Fujigasaki Rinka shook her Head and said. It seemed she was surprised to see me because of the Black Knight Attire. Well.... I am indeed the Black Knight, but I'm talking about Grandmaster Soda Haruto right now.</p>
+<p>"First, I've looked around the east and south from the center of the acquisition battle, but he wasn't there."</p>
+<p>The east and south from the center.... Since we came from the southwest, if we consider this side also empty, only the west and north remained.</p>
+<p>"Since we came from the southwest, the west, north, and central areas remain, so let's split up and go."</p>
+<p>At my Proposal, Fujigasaki Rinka nodded her Head. And after a moment of thought, she opened her Mouth.</p>
+<p>"I'll pass through the central area and go north. You two check the west."</p>
+<p>Fujigasaki Rinka, with the highest Combat power, seemed to intend to sweep through the dangerous central area and then check the north. It's a considerably dangerous Path, but Sabu would be able to do it.</p>
+<p>"Let's do that. If we check the west and he's not there, we'll regroup."</p>
+<p>If it's dangerous, we can quickly check the west and regroup, so I nodded my Head.</p>
+<p>"Good. The first one to find him reports to Command, and everyone regroups there, right?"</p>
+<p>"Yes, Sabu."</p>
+<p>After parting ways with Fujigasaki Rinka, we ran to check the west from the center of the acquisition battle. Then we had no choice but to stop at a Voice, because of the sound, "Black Knight?"</p>
+<p>Since the Black Knight is so famous, I thought there might be someone who recognized him, but it could also be that they were wondering about another Black Knight, so I stopped and headed towards where the Voice came from.</p>
+<p>There, wearing a Metal helmet, was a Woman in a peculiar cyber Suit with speaker-like Devices on both Shoulders. Oh?! This Woman, it's Whisper!</p>
+<p>I never imagined Whisper and Behemoth would participate in the Fragment of Omniscience acquisition battle, so meeting them here was quite surprising.</p>
+<p>Superior, to which Whisper and Behemoth belong, is a gathering of pure Superhumans, so they wouldn't have come to aim for the Fragment of Omniscience, an Item exclusively for Magicians, and it seemed they came to survey the acquisition battle, thinking the Black Knight might appear here.</p>
+<p>Just like Sabu and I parted ways, perhaps searching for the Black Knight separately, Behemoth was not visible in the Surroundings.</p>
+<p>"To actually find you in the Fragment of Omniscience acquisition battle.... I didn't expect it."</p>
+<p>Whisper said, looking at me. It felt like she wasn't usually using the speakers on her Shoulders, just having a normal Conversation.</p>
+<p>Seeing her say she didn't expect to meet the Black Knight, it seemed Behemoth must have suggested searching the Fragment of Omniscience acquisition battle.</p>
+<p>But somehow, I had a Feeling I had seen Whisper somewhere before. She looked strangely familiar. Especially her Figure....</p>
+<p>I definitely saw her somewhere. And recently, Ah...! I remembered. Her Attire was different, so I didn't recognize her for a moment, but it was the Blindfold Woman who bumped into me at the auction Cruise ship Banquet! Her Figure was quite good, so I had paid attention to her, and because of that, I could recognize her. Saying it like this makes me sound like I'm really into Women.</p>
+<p>"You, you were at the auction, weren't you?"</p>
+<p>"H-How did you know that!!"</p>
+<p>When I pretended to know, Whisper was very surprised. Actually, I was only about 60 percent sure, but seeing her Reaction, it seemed almost certain.</p>
+<p>"Who at the auction?"</p>
+<p>Kurayamada Kirie, as if she had no idea who it was, quietly asked me. Of course, I couldn't explain in the current Situation. If I said, "It's the Woman who bumped into me," Whisper would also learn my True Identity.</p>
+<p>"Hmm, I'd like to deal with you, but I don't have time...."</p>
+<p>It was quite an awkward Situation. I had to find Sabu's Sabu, and capturing Whisper was also my Mission.... Our Missions were conflicting.</p>
+<p>Of course, Whisper wouldn't consider my Situation, so should I deal with her first? However, if I dealt with Whisper, Behemoth would also appear, and the battle would likely become very long, which was a Worry.</p>
+<p>"You, search the west for Grandmaster. I'll deal with this Woman."</p>
+<p>While I was agonizing, Kurayamada Kirie said, drawing her characteristic long Ōdachi.</p>
+<p>"Are you sure?"</p>
+<p>"Yes."</p>
+<p>Even if Whisper was a Strong Person among Superior's Top 10, I couldn't imagine Kurayamada Kirie losing.</p>
+<p>And since our Combatants are also spread out in the vicinity, I can ask for Help anytime.</p>
+<p>"Good, I'll leave it to you."</p>
+<p>"It's a Repayment for the Bracelet."</p>
+<p>Saying it was a Repayment for the space-shaped Bracelet I bought at the auction, Kurayamada Kirie pointed her Sword at Whisper. Of course, a space-shaped Bracelet was an invaluable Treasure for a space Ability User, but seeing her bring it up, it seemed she was quite touched by my Bracelet gift.</p>
+<p>"Humph...! How funny. Who said I'd let you go?"</p>
+<p>As if she had heard our entire Conversation, Whisper scoffed and said. Indeed, she must have found it Absurd that I was saying "I'll deal with her" while she stood still. But I was also in a hurry to find Sabu's Sabu, so I didn't Answer and ran along my original Path.</p>
+<p>-Don't. Go.!!!</p>
+<p>Something between a Scream and a shout poured out from Whisper's Shoulder. No matter how fast I was, I couldn't be faster than the speed of sound. I rolled on the Floor from the sound wave that swept past me, then got up again, and the sound wave she had just unleashed was returning. The space was visibly rippling from how strong the sound wave was.</p>
+<p>Is she trying to stop me like this? It's quite an amazing Ability to control sound waves at will, but I still had to go. I simply thrust my Fist.</p>
+<p>-Creation Chaos Flow: Star Shatter.</p>
+<p>With Creation Chaos Flow: Star Shatter, after tearing through the wall of sound waves returning to me, I entrusted my Rear to Kurayamada Kirie and ran.</p>
+<p>"...!"</p>
+<p>Whisper, Maya Reed, seeing the Black Knight tear through the wall of sound waves she had unleashed with a punch and run off, was speechless. Even within the infamous Superior, there were only a few who could display such skill, including Behemoth.</p>
+<p>Of course, the Black Knight became famous by fighting Famine, the Head of Superior. But since then, Famine had also grown endlessly stronger. The fact that he was still alive, despite the US government's sincere Efforts to kill him, was proof of that.</p>
+<p>Therefore, she thought she could easily defeat the Black Knight now, but Whisper realized her thought was greatly mistaken. The Black Knight had also grown during that time.</p>
+<p>For the Mission received from Famine, she wanted to chase the Black Knight immediately, but she couldn't. Because the Woman in front of her, holding an unusually long longsword, was pointing that longsword at her.</p>
+<p>"Phew.... Black Knight found. I'll transmit the estimated Position."</p>
+<p>Whisper sent a communication to Behemoth. For some reason, the Woman in front of her was letting her communicate.</p>
+<p>"It's not like Bushido, so why did you wait for me?"</p>
+<p>Since the Language they spoke was Japanese, Whisper asked, using Bushido as an example.</p>
+<p>"We have a precognitive Ability User. They said that if I don't interfere with communication before the battle starts, I can avoid a 2-on-1 fight with that guy, Behemoth."</p>
+<p>At Whisper's Question, the longsword Woman shrugged her Shoulders and Answered. The Woman in front of her spoke as if it were nothing, but Whisper couldn't help but be very surprised.</p>
+<p>Because precognitive Ability Users were an extremely rare Ability even among rare Superhumans. Furthermore, beings who could specifically foresee the future like this were even rarer.</p>
+<p>A precognitive Ability User was also a being Famine was searching for, and Whisper thought that if she could gain merit by taking the Information about the precognitive Ability User this time, she could further raise her hierarchy within Superior.</p>
+<p>Whisper, who secretly desired Revenge against Famine, had a plan to raise her hierarchy within Superior, gradually approach Famine, and kill him when he let his guard down.</p>
+<p>"Since I need Information, I won't kill you."</p>
+<p>As Whisper said, pointing her Gun, the Woman in front of her, Kurayamada Kirie, laughed Absurdly.</p>
+<p>"You really say the exact same thing, don't you? I came knowing what the future holds. Then you know who should be afraid, right?"</p>
+<p>At Kurayamada Kirie's Words, Whisper felt a chill. Despite having a precognitive Ability User, the fact that the longsword Woman was standing in front of her meant that Woman would defeat her.</p>
+<p>"Shut up! There's no such thing as Destiny! I'll prove that the future is wrong!"</p>
+<p>Whisper screamed and pulled the trigger.</p>
+<p>Whisper Combat Uniform B-cut~!</p>
+<p>It's a bit inconsistent, but I quite like it haha.</p>
+<p>MidNightSKY-nim requested Linling, Linxiang Singing at Karaoke~!</p>
+<p>Linling~!</p>
+<p>Appearing like a hidden picture, little Linling is cute hehehehehe.</p>
+<p>Linxiang~!</p>
+<p>The last one is so excited she climbed onto the sofa haha.</p>
+<p>Gojoy-nim requested 1. Hanasaki Sayaka's Eyes sparkling upon realizing the protagonist's Sabu is Rinka~! 2. Rinka receiving Contact from the protagonist~!</p>
+<p>1.</p>
+<p>2.</p>
+<p>SkyFerry-nim requested the school nurse wearing a Doctor's Gown and a trench coat (like a pervert/flasher) Attire~!</p>
+<p>Kkippaet~!</p>

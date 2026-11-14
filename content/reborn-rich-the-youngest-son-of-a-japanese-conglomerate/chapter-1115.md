@@ -5,63 +5,72 @@ weight = 1115
 chapter = 1115
 +++
 
-<p>「Investor-nim~! Don't forget our promise to go to the auction together~!」</p>
-<p>「I haven't forgotten. Let's go together next time.」</p>
-<p>Sawayanagi Seari waved her hand and said. The rest of the Seryu Military Company people also waved their hands at me and got into the vehicle, and Kurayamada Kirie also left words saying, 「see you next time,」 and got on her bike.</p>
-<p>Because the personnel affiliated with Seryu Military Company in Tokyo and Kurayamada Kirie, affiliated with the Chungrang Dae in Kofu City, were going in different directions, they decided to part ways at the airport. The rest of the Kids living in my mansion rode in the car together towards Neo Tokyo.</p>
-<p>「Ryutaa...!」</p>
-<p>「Older Brother~! You know, this time I, Shinkaiyatsude....」</p>
-<p>On the way, Alik and Tsukiyo took seats on either side of me and were expressing their joy at seeing me after a long time, each in their own way.</p>
-<p>Alik was clinging to me, rubbing her soft cheek against me while saying, 「Ryutaa,」 and Tsukiyo was chattering away, telling me even the smallest things that had happened while I was gone, as if she had so much to say.</p>
-<p>Receiving so much affection from the two, I entered the mansion in Neo Tokyo and immediately gathered the people to hold a Meeting.</p>
-<p>Having returned from the USA, there was a need to organize what had been gained in the USA, and also to receive a detailed Report on the current The Situation in Japan.</p>
-<p>Of course, since it wasn't a large-scale Meeting, only the necessary personnel were called, the rest were given Rest, and those far away decided to participate in the Meeting via video call.</p>
-<p>「Thank you all for protecting our forces while I was away.」</p>
-<p>First, I greeted those who had been in Japan. Even in Japan, they had prevented the attack caused by Taira Gensuke's Impulsive Action, and especially the Mithril warehouse attack incident by Taira Jiro was something we had cleverly manipulated Taira Gensuke's side to cause, so they must have suffered considerably due to various jakjeon and keeping Secrets.</p>
-<p>「First, I'll receive the Report on Japan's Work.」</p>
-<p>At my Words that I would receive the Report on Japan's Work first, Asada Ei stood up from her seat. Since Asada Ei was in charge of various Information, she was suitable as the reporter.</p>
-<p>「First, I will Report again on Taira Gensuke's attack incident. As you know....」</p>
-<p>As expected, the Report on the Work caused by Taira Gensuke came first. The Report was exactly as I knew it, except for some minor details, but there was one unresolved question.</p>
-<p>「Why on earth did he decide to antagonize us? Because I became the Affiliate Company Boss before Taira Gensuke, who is a Branch manager? Is that a Reason?」</p>
-<p>Even if my promotion was faster than Taira Gensuke's, would that be a Reason to antagonize me? In fact, though he's called a Branch manager, if he's the South American Branch manager of Taira Bussan, it's much larger in scale than Taira Food distribution.</p>
-<p>He wasn't just a Neighborhood Branch manager in Japan; being a South American Branch manager meant he was in charge of a Daeryuk. It could by no means be called a small force. Especially since his mother, Taira Camilla's Family, was not small, Taira Gensuke was doing quite well in Brazil, yet he attacked me just because of Taira Food distribution? It didn't make much sense.</p>
-<p>「Combining the Information gathered from various places, Taira Gensuke is said to have a rough and hasty Personality in his action, but he is not without judgment. Seeing him act so hastily, I wonder if someone wasn't fanning the flames from behind the scenes.」</p>
-<p>Who could have fanned the flames...? Of course, this was also Asada Ei's Hypothesis, so Taira Gensuke might have just acted Impulsively on his own.</p>
-<p>「How about we create a Hypothesis like this, Older Brother?」</p>
-<p>Tsukiyo, who had been listening quietly, opened her mouth. Huh? Did she think of something?</p>
-<p>「What's Taira's current Incident? Taira Gensuke attacking Taira Jiro's Mithril warehouse and our mansion, and Taira Kitsumasa's Assassination. What if Taira Gensuke committed all of this? Since these events happened around the same time, Taira Gensuke could be involved in Taira Kitsumasa's Death, couldn't he?」</p>
-<p>Tsukiyo said, raising her Index Finger with an Expression that asked, 「What do you think?,」 but merely similar timing wasn't enough to conclude that Taira Gensuke was involved in Taira Kitsumasa's Assassination Incident.</p>
-<p>「That seems like a bit of a stretch?」</p>
-<p>「That's why it's a Hypothesis. Listen. If we combine what Ei-ssi said, it seems Taira Kitsumasa instigated Taira Gensuke. Since Taira Gensuke also has judgment, he noticed that Taira Kitsumasa was instigating him. Could it be that he hired an assassin out of Frustrating?」</p>
-<p>Hired an assassin out of Frustrating? Could there be such a good-for-nothing Bastard? As I stared in Absurd, Tsukiyo shrugged her Shoulder, saying, 「Well, it's just a Hypothesis.」</p>
-<p>Although it was a difficult Hypothesis to accept, Tsukiyo's judgment that Taira Gensuke had even committed Taira Kitsumasa's Assassination was a new Sight. Anyway, Taira Jiro's side would be desperately searching for Taira Kitsumasa's assassin and their Mastermind, so we just needed to keep our Sensitive Ear open. It wouldn't be too late to decide what to do after the assassin and their Mastermind were revealed.</p>
-<p>Of course, the question of why Taira Gensuke was antagonizing me, which I was curious about, remained unresolved, but now the Reason was no longer important. Only the fact that we had to take revenge for the Attack on us someday was important.</p>
-<p>「The next Report is about the aftermath of this Incident. Taira Jiro combined the Mithril warehouse attack Incident he suffered and the mansion attack Incident we suffered, and reported them to Chairman Taira Danjo-nim.」</p>
-<p>I heard this in the USA. He reported Taira Ichiro and Taira Gensuke as anti-Taira individuals. I was curious about Chairman Taira Danjo's Reaction, and I'll hear it here.</p>
-<p>「Naturally, Taira Jiro's accusation that they were anti-Taira individuals did not pass, but since it was a fact that Taira Gensuke caused significant harm to the Neo Tokyo Project being promoted at the group level, Chairman Taira Danjo-nim called Taira Ichiro and reportedly took quite strong measures」</p>
-<p>「Quite strong? What kind of measures?」</p>
-<p>「They reduced headquarters support for Taira Bussan, recovered two Affiliate Company, and announced they would dispatch their own audit team.」</p>
-<p>Whoa.... Normally, this would just be a Matter of succession rivalry, but Taira Gensuke attacked our mansion in Neo Tokyo, causing Taira Ichiro to suffer considerable damage. Taira Gensuke must have been severely scolded by his dad, Taira Ichiro? This is a bit satisfying. Still, being scolded by his own dad seems a little insufficient....</p>
-<p>「Did Gensuke receive any separate Discipline?」</p>
-<p>「Taira Gensuke is ultimately a Branch manager affiliated with Taira Bussan, so the reduction of headquarters support for Taira Bussan can be considered a Punishment for Taira Gensuke. The Taira Bussan South American Branch will probably have to conduct its Business this year and next year without any support. If they fail to achieve Achievement, they will have to step down from the Branch manager Seat.」</p>
-<p>Ah, that's right. The reduction in support was ultimately a Discipline for Taira Gensuke. It was a disciplinary measure that essentially said, 「Go ahead and try to do well without support. If you can't, I'll even take away your Branch manager Seat.」</p>
-<p>Could Taira Gensuke really succeed without headquarters support? I didn't know much about Taira Gensuke's Business acumen, so I had questions. Rather, this was both a Punishment and an opportunity for Taira Gensuke. If he succeeded without headquarters support, it would prove his Ability.</p>
-<p>Asada Ei, having finished her Report, sat down, and this time Linling stood up from her seat. As an android, she wouldn't need Paper, but her Appearance holding Report Paper in her company attire was quite Cute. Linling opened her mouth, looking at the Paper.</p>
-<p>「This time, I will Report the Results of the mansion attack Incident!」</p>
-<p>Mansion attack Incident? Wasn't that Report already finished? As I made a puzzled Expression, Linling smiled sweetly with a Cute Expression and continued her Story.</p>
-<p>「The total Amount of damage is 1,203,000 yen, mostly for Structure damaged during battle....」</p>
-<p>Ah, so this was the Report. Yes, this Report also needs to be done. Although Taira Gensuke, that Guy, was splendidly repelled, there wasn't absolutely no harm because a battle had occurred. Since it was already known that we had been attacked by Taira Gensuke, I would have to make Taira Bussan compensate for this Money. Naturally, the Perpetrator should compensate for the damage Amount, so even if it wasn't a large sum of Money, we didn't need to bear that damage Amount.</p>
-<p>「Charge Taira Bussan ten times that damage Amount.... No, about fifty times.」</p>
-<p>Even ten times 1.2 million yen is only 12 million yen, so we should get fifty times. If our side claimed such harm, Taira Bussan had no Method to deal with the current The Situation. If they argued about this for no reason, I would go to Taira Danjo after Taira Jiro and say something, so they would know it's more profitable to just give what's asked.</p>
-<p>「Hmm.... I'll try charging one hundred times the damage Amount~!」</p>
-<p>Linling is even worse than me. Not fifty times, but a hundred times.... Still, about 120 million yen is like pocket change for Taira Bussan, so it's doable.</p>
-<p>「The next Report will be about profits, not losses!」</p>
-<p>Profits? Did we gain something? Of course, this Incident made the relationship between Taira Jiro and Taira Ichiro more hostile, but other than that, there doesn't seem to be anything specific....</p>
-<p>Linling B-cut~!</p>
-<p>After deliberating with the second Illustration, I decided on the Illustration in the main text as the Illustration hehehe.</p>
-<p>Requested by Gojoy-nim: Chapter 55 Yukiko 1. Happy Expression watching Ryuta eat well 2. Chapter 55 Illustration Remake~!</p>
-<p>1.</p>
-<p>2.</p>
-<p>Requested by Geomeunkkaemuk-nim: Alik in heart-patterned pajamas~!</p>
-<p>Ppuu!</p>
-<p>Alik came with various types of pillows, asking to Sleep together hehe.</p>
+<p>-♬― ♪―</p>
+<p>After a long time, her phone danced and sang, so Shinonome Mio picked up the phone with her slender finger. The phone's screen was displaying the nostalgic name of an old colleague. After a brief hesitation, Shinonome Mio pressed the Call button.</p>
+<p>-Are you really Crazy?</p>
+<p>As soon as she answered the phone, Koishihara Shoji asked. Hearing that Voice, Shinonome Mio smiled bitterly. Koishihara Shoji, who was the strongest Martial Arts Faction of the Taira Saburo Pabeol, had often been misunderstood because of that Way of Speaking.</p>
+<p>Even now, it wasn't that he was cursing her by asking if she was Crazy, but probably after hearing rumors that she had become a Cripple or gone Crazy, he contacted her to ask if it was true.</p>
+<p>"If I'm Crazy, you could say I'm Crazy. Just like you."</p>
+<p>If it were in the past, Shinonome Mio would have used dignified and formal respectful speech, but she didn't now. This was because she had decided not to use respectful speech with anyone except her Blood Kin grandfather since her Liege had died.</p>
+<p>Moreover, because Shinonome Mio was already broken somewhere, even if she tried to be like her old self, it wouldn't work properly. Like wearing ill-fitting Clothes, both her Opponent and she herself would feel uncomfortable.</p>
+<p>-Is she Crazy as the rumors say...? Or has she changed due to shock? I don't know.</p>
+<p>Koishihara Shoji muttered at Shinonome Mio's changed Way of Speaking.</p>
+<p>-That man, Taira Ryuta, I gave him your name. He's looking for Talent.</p>
+<p>Give her name? Shinonome Mio, with her brilliant Brain, thought about the meaning of Koishihara Shoji saying he had given her name. Combining that with "He's looking for Talent," it seemed he had recommended Shinonome Mio as Talent.</p>
+<p>Taira Ryuta was someone Shinonome Mio also knew. Taira Saburo's illegitimate son who suddenly appeared one day.</p>
+<p>While his Appearance was somewhat similar to Taira Saburo, he was otherwise a completely different man. He was a man in whom it was difficult to find similarities with Taira Saburo in terms of his upbringing, ideology, or Personality. Because Taira Ryuta was only a Taira by Bloodline and had grown up outside until adulthood, sharing none of their ideologies, Shinonome Mio did not acknowledge Taira Ryuta as Taira Saburo's Successor.</p>
+<p>"Taira Ryuta is only by Blood, not the Liege's Successor."</p>
+<p>-Shinonome, there is no Liege's Successor. It was a sudden Death. But.... Wouldn't it be even better that Taira Ryuta had no relation to Taira at the time?</p>
+<p>Shinonome Mio quickly understood Koishihara Shoji's Words. Shinonome Mio and Taira Saburo's close associates believed that the one who killed Taira Saburo was within the Taira Family.</p>
+<p>Some might suggest that Taira Saburo's Death was caused by the Minamoto side, but all of Taira Saburo's close associates would shake their Heads at that Hypothesis. Considering Taira Saburo's actions before his Death, it clearly indicated that the culprit was within the Taira Group.</p>
+<p>Ultimately, Koishihara Shoji's Words meant that if one intended to seek Revenge, Taira Ryuta was the most suitable. Because he was an illegitimate son who only entered the Taira Group after Taira Saburo's Death, he had no relation whatsoever to the Mistake of killing Taira Saburo.</p>
+<p>"Revenge and taking someone as Liege are completely unrelated. But...."</p>
+<p>Shinonome Mio swallowed the Words "I can watch for a while" without uttering them. Surely Koishihara Shoji was thinking the same thing as her. That's why he recommended her.</p>
+<p>"What do you intend to use this for?"</p>
+<p>I muttered, looking at the will of Jayeom that Shinonome Mio had demanded. Of course, she hadn't directly asked for Jayeom's will, but....</p>
+<p>-I will pay the Price, so will you give me the cursed object you possess?</p>
+<p>Since she said that, it must be referring to Jayeom's will, which allows the use of curses. I didn't know what Price she intended to pay, but I thought that if I gave it as a gift for now, it might help in recruiting her.</p>
+<p>What was important now was Talent recruitment, so I could provide Jayeom's will, which was useless to us but seemed quite valuable.</p>
+<p>Of course, we weren't lacking in martial Talent, but we were a bit short on personnel for administrative work and staff. Even the Joseodang, which should focus its capabilities solely on Information, was losing manpower to administration and staff, so there was a need to transfuse Talent into this area.</p>
+<p>So I intended to recruit Shinonome Mio, but because of her Appearance at Taira Kitsumasa's funeral, I wondered if this was right.</p>
+<p>There were rumors that Taira Saburo's Death had caused her such great grief that she had become a Cripple, but at the funeral home, while not a Cripple, she had a similar feeling to a 'menhera', which made me worry if she should be included in the staff.</p>
+<p>So today, while giving Shinonome Mio Jayeom's will that she had demanded, I intended to check once if her strategy was still intact.</p>
+<p>I easily found Shinonome Mio's contact info through Joseodang, contacted her, and made an appointment. Now, I was heading there with Jayeom's will, matching the appointment time.</p>
+<p>The place where I made an appointment with Shinonome Mio was a commercial building in Neo-Tokyo that we had purchased to open a Mars Burger Neo-Tokyo branch. It was a prime piece of Ground in the central area where Taira Group headquarters, Taira Electronics, Taira Products, and several other core Affiliate Companies were gathered, but this time, we were able to buy it sufficiently with the bounty for Carmine Castello, the Mastermind of the New Rochelle incident, which we received from the black market.</p>
+<p>Currently, before Mars Burger moved in, Joseodang was operating a restaurant as a Disguise. Of course, even if Mars Burger moved in, Joseodang intended to Manage the Neo-Tokyo No. 1 branch. Because Neo-Tokyo had many Taira Group affiliate companies, there was no other Place where it was easier to collect Information.</p>
+<p>We also planned to open restaurants on the 2nd and 3rd floors, and we would surely be able to obtain Information from there as well.</p>
+<p>-Neo-Tokyo 24-hour Gyudon.</p>
+<p>The gyudon restaurant with no distinguishing features visible from the car window was the restaurant operated by Joseodang. Of course, it would change to Mars Burger within a few months, but it was said to be a decent restaurant.</p>
+<p>"I'll park~!"</p>
+<p>Tsukiyo stopped the car with a cheerful Voice, and Linxiang, Alik, and I got out. Originally, I had intended to go with only Linxiang, but Alik wanted to eat gyudon, so he came along.</p>
+<p>Ttal-lang.</p>
+<p>As we entered the restaurant, the front door bell attached to the door shook and made a sound. The Clerks greeted us warmly. A few of the Clerks who greeted us warmly would be our Joseodang agents.</p>
+<p>"I have a Reservation under Taira Ryuta."</p>
+<p>"Yes, this way...."</p>
+<p>Although it was gyudon, a Japanese fast food, this gyudon restaurant had several private rooms. Naturally, it was a Method prepared to obtain Information, but perhaps because the Feeling of gyudon and private rooms didn't quite match, no particularly useful Information had ever come in.</p>
+<p>So, we planned to create a high-end traditional Japanese restaurant on the 2nd floor and a fine-dining restaurant on the 3rd floor, and collect high-value Information from there. Since Joseodang said they were enticing famous Chefs in Japan who wanted to expand their Business, the Result would soon be apparent.</p>
+<p>If Taira Food distribution announced an Investment, even famous Chefs would find it quite alluring. Since they could also receive fresh ingredients guaranteed by Taira, it would be even more alluring.</p>
+<p>At first, I was a little dissatisfied about receiving Taira Food distribution, but in this way, it had its useful aspects. We also received high Points for having Taira Food distribution when bringing Mother Mars to Japan. Since other affiliate companies could be created outside of Taira, I was quite satisfied now.</p>
+<p>If I only maintained the current contract and occasionally opened new deals, the advantage was that I wouldn't have to do much Work as the Boss.</p>
+<p>"How would you like to Order?"</p>
+<p>"When the customer who is coming arrives, I'll Order all at once."</p>
+<p>"Understood."</p>
+<p>I sent away the Clerk who was asking for our Order and stroked Alik's Head, who was intently looking at the Menu.</p>
+<p>"Did you want gyudon that badly?"</p>
+<p>"Alik prefers katsudon over gyudon."</p>
+<p>So he came along because he wanted to eat the katsudon sold at the gyudon restaurant rather than gyudon. Should I also look at the Menu until Shinonome Mio arrives?</p>
+<p>It seemed like I could order spicy gyudon, tendong, and karaagedong in large portions. I wasn't particularly hungry, but now that I was looking at the Menu, my belly felt hungry.</p>
+<p>As I was looking at the Menu and choosing items, a Voice from outside the door announced, "A customer has arrived."</p>
+<p>"Tell them to come in."</p>
+<p>"Yes."</p>
+<p>Deureureuk.</p>
+<p>At my Words, the door opened, and Shinonome Mio entered. Shinonome Mio entered, dressed in Gothic Lolita attire similar to Taira Kitsumasa's funeral, with an unkempt hairstyle. The Dark Circles under her eyes were still there.</p>
+<p>"...."</p>
+<p>Just as I had looked at Shinonome Mio's attire and Appearance, Shinonome Mio also stood in front of the door and looked at me.</p>
+<p>"Sit."</p>
+<p>It was Alik who broke the Silence. Alik looked at Shinonome Mio, who was standing as if blocking the front of the door, with a slightly dissatisfied Expression.</p>
+<p>"Customer, if you don't sit down quickly, I can't Order my meal. Alik is hungry."</p>
+<p>Ah, so that was the Reason he told her to sit? It seemed he was dissatisfied that he couldn't Order the katsudon he wanted because Shinonome Mio wasn't sitting.</p>
+<p>"Please sit. Let's Order our meal first."</p>
+<p>"...Mm."</p>
+<p>Seeing Shinonome Mio sit down immediately at my Words, she seemed a little flustered by Alik's Attitude. So, before we even made Introductions, we Ordered our meal. As soon as the meal was Ordered, Alik faintly smiled as if satisfied.</p>

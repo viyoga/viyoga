@@ -5,85 +5,65 @@ weight = 1074
 chapter = 1074
 +++
 
-<p>**-Yes, Dante-ssi.**</p>
-<p>Diana Rich's Voice on the Phone Call sounded frantic. It must be because the Fragment of Omniscience auction, which hadn't been given much thought, had escalated into such a massive Incident that an entire City had vanished.</p>
-<p>"You know I dealt with Behemoth and Whisper, don't you?"</p>
-<p>In truth, Whisper wasn't killed, but since Whisper had been swayed to our side, it was as good as being eliminated from Superior, so I said I had dealt with them.</p>
-<p>And since the Federal Superhuman Management Department didn't know Whisper's True Identity, even if I lied and said I had dealt with them, they wouldn't be able to find out.</p>
-<p>**-Yes, it must have been a difficult mission.... Thank you. The success compensation will be paid within a few days.**</p>
-<p>This mission, involving the killing of an Executive of the world's largest superhuman Terrorist Organization, came with substantial compensation, which meant the USA government was taking Superior very seriously.</p>
-<p>"By the way, this Incident has grown quite large; how do you think it will be resolved?"</p>
-<p>**-I don't know either. In truth, this Incident is so complex, with so many factions involved...**</p>
-<p>As Diana Rich said, it was such a complex and massive Incident involving numerous factions that the Federal Superhuman Management Department couldn't really do anything about it. From the start, the Fragment of Omniscience auction wasn't even an Event for the Federal Superhuman Management Department to concern itself with.</p>
-<p>"In this Incident, New York's largest Organization, the Obsidian Syndicate, massively deployed its forces. I alone faced over 200 individuals, and I heard they numbered in the thousands. How about we say they collaborated with the Terrorist Organization Superior to carry out Terrorist acts to bring down New York?"</p>
-<p>The Transport team's Sacrifice victims were members of the Gwonmaeng, not people under me, but still, since two of our side died, I had to exact a Revenge sufficient to bring down the Obsidian Syndicate. I decided to pin the Responsibility for this Incident on the Obsidian Syndicate. It would be both Revenge and good for Business.</p>
-<p>"Saying this Incident occurred because of a Forbidden Magic Tome won't be accepted by the public."</p>
-<p>As I said, the public would never accept that a City was reduced to Ruins because of a Forbidden Magic Tome, something only found in novels or comics. It would be far more acceptable to claim that an already exposed superhuman Terrorist Organization and New York's largest Organization jointly committed Terrorist acts.</p>
-<p>**-That certainly makes sense. This Matter is problematic even if the Truth is revealed.**</p>
-<p>Diana Rich consented to my Words. "It's problematic even if the Truth is revealed." This was the statement that cut through the current Situation. The ones overseeing this Incident were probably agonizing over what to do.</p>
-<p>"And for the Building compensation, if funds are raised by selling the Obsidian Syndicate's Assets and the shares and patents of the pharmaceutical company they established, the government won't incur significant losses."</p>
-<p>Of course, rebuilding an entire City with just one gang and one company is absurd, but it would still significantly reduce the government's Expenditure burden.</p>
-<p>**-Dealing with the gang, saving on reconstruction costs-I like it. I'll convey it to the higher-ups. Is there anything you need, by any chance?**</p>
-<p>Diana Rich also consented to my Words. But she asked if there was anything I needed, wondering if I had a Scheme.</p>
-<p>"I'm coveting a few of Obsidian Pharmaceuticals' patents. If my Proposal is accepted, you just need to include me in the patent bidding."</p>
-<p>Because I was planning to gather Jung Darim, Kijimoto Jurie, and a few others to create a pharmaceutical company and a Laboratory, I thought of buying a few of Obsidian Pharmaceuticals' patents while devising a plan to screw over the Obsidian Syndicate.</p>
-<p>**-That much isn't difficult.**</p>
-<p>Diana Rich's Answer was clear. The Incident in New Rochelle was so severe that even if the government completely Disassembled the Obsidian Syndicate and Obsidian Pharmaceuticals, no one would object. Even politicians who had taken Bribes from the Obsidian Syndicate would approve of eliminating them.</p>
-<p>"For now, that's all for the Contact."</p>
-<p>**-Understood. This New Rochelle Incident has me so busy, I have no time to Rest. As I said before, I'll send the compensation right away.**</p>
-<p>After ending the Phone Call with Diana Rich, I rose from my Seat. Since the Phone Call had lasted a while, the Doctor must have examined Fujigasaki Rinka.</p>
-<p>"I've finished the Phone Call with the Superhuman Management Department.... Now I need to handle the Casualties. How have you decided to proceed with the funerals for the two deceased Gwonmaeng members?"</p>
-<p>"The current person in charge is Kinui Tachio-nim, and he said that since both individuals have no family, he wishes to cremate them in the USA and then create graves for them in Japan."</p>
-<p>The representative of the Gwonmaeng who came to the USA seemed to be the old man Yoda. I nodded my Head and said I would cover all the funeral Costs, telling them to make it top-tier, then rose from my Seat.</p>
-<p>"Let's hold the rest of the Meeting later."</p>
-<p>In truth, there wasn't much left to discuss in a Meeting. Of course, I needed to know about Whisper's interview at our accommodation or how the combat team's battle progressed, but those weren't urgent matters.</p>
-<p>I headed to the Hospital Room where Fujigasaki Rinka had been taken. In front of the Hospital Room were Naruse Shiyo, Shimokawabe Airen, Kujo Kina, and the old man Yoda.</p>
-<p>"Teacher-nim...!"</p>
-<p>"Ryuta-ssi."</p>
-<p>"Teacher!"</p>
-<p>All of them rose from their Seats as they saw me approaching. I gave a greeting with my Eyes and went to Naruse Shiyo.</p>
-<p>"Has the Doctor been here?"</p>
-<p>"Yes."</p>
-<p>"What did the Doctor say?"</p>
-<p>"They said it's an Internal Injury, but there's no Treatment other than resting."</p>
-<p>As expected.... No matter how secret a government hospital it is, they wouldn't have a Treatment for martial arts Internal Injuries. Especially since the USA doesn't have many Experts in this field.</p>
-<p>If resting doesn't work, I'll have no choice but to take drastic measures. I didn't want to do this to Sabu, but I have to do what needs to be done.</p>
-<p>"After a bit of Rest, if she gets better, she'll need to go to Japan for Treatment."</p>
-<p>"Yes, that seems best."</p>
-<p>Still, it was fortunate that she didn't need surgery or other Treatment. For now, we left one Joesodang Agent outside Sabu's Hospital Room and returned to our accommodation to get some Sleep, planning to come back to the hospital in the Morning. Everyone had expended a lot of Stamina in battle and must be tired, so Rest was the priority.</p>
-<p>In the vehicle heading Home, I decided to Contact Eve. This Matter seemed to require coordinating with the Dark Merchant side. Since the Incident ultimately stemmed from the Dark Merchant auction, I decided to give them some Information so they could grasp the Situation.</p>
-<p>**-Ryuta: I've made a Proposal to the Federal Superhuman Management Department to pin the Responsibility for this Incident on the Obsidian Syndicate and Superior. I'm sending you a Text Message because I thought Eve should know.**</p>
-<p>**-EVE: Thank you for thinking of me~! I'll also watch how the Situation unfolds and Contact you if I have any new Information. I like the idea of pinning everything on the Obsidian Syndicate~!**</p>
-<p>The Dark Merchant usually didn't care whether people fought over an Item after an auction, but to maintain the Dark Merchant's Trust Level, there was a Rule that the party who submitted the Item should not steal or extort it back. Because of this Incident, the Obsidian Syndicate was now firmly marked by the Dark Merchant.</p>
-<p>**-Ryuta: Does the Dark Merchant itself intend to impose Discipline on the Obsidian Syndicate?**</p>
-<p>**-EVE: Of course~! We've decided not to pay the winning bid for the Fragment of Omniscience to the Obsidian Syndicate.**</p>
-<p>They foolishly overstepped and now won't even receive the payment for the Fragment of Omniscience. In that case, the Dark Merchant seems to have made a huge profit, if they kept all the Fragment of Omniscience's payment.</p>
-<p>**-EVE: It's not a huge profit. The ship sinking this time, and... we have to pay compensation to the customers. Compensation will also be deposited into Ryuta-nim's Account.**</p>
-<p>Indeed.... If that massive Cruise ship sank and they have to pay compensation to the customers, even if they pocketed all the Fragment of Omniscience's payment, it wouldn't be a huge profit. But to maintain the Dark Merchant auction's Trust Level, they have no choice but to take action, which is why they're paying compensation this time.</p>
-<p>**-BEEP! BEEP!**</p>
-<p>Waking up to the alarm, I groggily searched for the Remote control. Then I turned on the TV and switched to a News channel.</p>
-<p>**-The Terrorist Incident that occurred in the New Rochelle area overnight...**</p>
-<p>As expected, they were talking about the New Rochelle Incident. A Reporter was broadcasting against a backdrop of Ruins, with people in rescue Agent attire moving through the Ruins, searching for survivors.</p>
-<p>**-It is being identified as a joint Crime committed by the superhuman supremacist Terrorist Organization Superior and New York's largest criminal Organization, the Obsidian Syndicate...**</p>
-<p>Oh...! It seemed my Proposal, "Let's pin all the blame on the Obsidian Syndicate and Superior!" had been accepted.</p>
-<p>**-In this Incident, two notorious Executives of Superior were killed.... And arguments are ongoing regarding the claim that the City's damages should be compensated by liquidating the Assets of the Obsidian Syndicate and Obsidian Pharmaceuticals.**</p>
-<p>I smiled watching the News and checked my phone, finding many Contacts. I first checked Diana Rich's Text Message.</p>
-<p>**-Deputy Director Diana Rich: Dante-ssi's proposed opinion has been adopted. Since you provided a good Idea, they say they will give you the opportunity to preferentially purchase one of Obsidian Pharmaceuticals' patents. Please Contact us by this Evening with which patent you desire.**</p>
-<p>I had only asked for the opportunity to bid on a patent, but they were giving me priority rights out of gratitude. Priority rights mean the right to purchase first, so I can acquire the patent without competing with other companies. This is quite preferential treatment for the Price of an Idea. Perhaps because I'm the Black Knight, they valued my Idea quite highly.</p>
-<p>In that case, it was as good as having acquired one of Obsidian Pharmaceuticals' patents, so the pharmaceutical company project I had planned seemed likely to go smoothly this time.</p>
-<p>___________</p>
-<p>MidNightSKY-nim requested: Kijimoto Jurie, the school nurse, and Daigo Terue, the Chairperson, being Seduce-d in Erotic attire~!</p>
-<p>School Nurse~!</p>
-<p>Chairperson~!</p>
-<p>Hwanbuljeoldae-bulga-nim requested: Old version Lisa, the Home Economics Teacher, lying down in a sleeveless dress shirt, skirt, and Stockings!</p>
-<p>Lisa~!</p>
-<p>Home Economics Teacher~!</p>
-<p>Gojoy-nim requested: 1. Yukiko surprised after a sudden Embrace, 2. Yukiko surprised when Ryuta sees her showering and getting dressed~!</p>
-<p>1.</p>
-<p>2.</p>
-<p>Chomisaemeonji-nim requested: 1. Liz in a red Uniform~! 2. Liz in tactical gear~!</p>
-<p>1.</p>
-<p>2.</p>
-<p>The last one is Liz, who forgot to put on her Pants hehe.</p>
-<p>TheDreaming-nim requested: Herta Vogel 1. Jump 2. Hand Play</p>
-<p>2.</p>
+<p>are illustrations of swimsuit there Opening the Legion shopping bag that the Phantom Thief mother and daughter had given me, I saw two items: a rolled-up bamboo slip (竹簡: a recording medium made of bamboo instead of paper) and a reddish crystal ball the size of a child's head.</p>
+<p>Hmm.... Both seemed to be quite unusual Items. First, I took out both Items and checked the Bamboo Slip.</p>
+<p>◆Ten Thousand Spirits Curse Release (萬靈呪解) [Unique Immortal Art Book / Magical Tool]</p>
+<p>A bamboo slip documenting ancient Immortal Arts (仙術) that manipulate ten thousand souls. Cannot be read without proper qualification.</p>
+<p>○Cannot be read by those who have not mastered Immortal Arts.</p>
+<p>●Upon first complete reading, all Immortal Arts Levels increase by 1. Immortal Arts activation speed increases by 10%.</p>
+<p>●When possessed, Damage and Immortal Arts Effect against Monsters/Spirits, Spirits, and Ghost Spirits increase by 30%. Damage and Immortal Arts Effect from Monsters/Spirits, Spirits, and Ghost Spirits decrease by 20%.</p>
+<p>●Immortal Arts form transformation , eye opening , destruction soul , restraint spirit , , can be acquired.</p>
+<p>Oh...! The Bamboo Slip was a somewhat minor and Rare skill book Item, an Immortal Arts Book. It seemed someone using Immortal Arts had also participated in the Fragment of Omniscience struggle. Seeing that the Phantom Thief mother and daughter obtained the Bamboo Slip, they must not have survived.</p>
+<p>The options were a bit ambiguous; in this near-future era, just before cyberpunk arrived, Monsters/Spirits and Spirits were hard to find, so it was an Item that could only be used somewhat restrictively.</p>
+<p>Of course, in Japan, there were a few Onmyoji Families that dealt with Monsters/Spirits and Spirits, so it had the advantage of being usable almost as a Counter to Onmyoji Families.</p>
+<p>However, Ghost Spirits, excluding Monsters/Spirits and Spirits, refer to the souls of dead humans, so Soul Interrogation, which can talk to dead people, and Soul Tracking, which can track using Ghost Spirits, were quite useful Immortal Arts.</p>
+<p>The former can obtain Information, and the latter, no matter what security system is created, it's difficult to stop ghosts.</p>
+<p>However, there was a Limit that those who had not mastered Immortal Arts could not read it, but fortunately, there was someone in my faction who had mastered Immortal Arts. I thought Nagumo Sian would like this as a Gift.</p>
+<p>Next was the Crystal Ball's Turn. It was a subtly reddish Crystal Ball, the size of a child's Head, and even amidst the chaos of New Rochelle, there wasn't a single crack. Usually, such Crystal Balls are Tools that assist Magic, like a Staff or Wand.</p>
+<p>◆Phoenix Egg-Replica[Legacy+ Crystal Ball / Magic tool]</p>
+<p>A Crystal Ball made by an Alchemist to imitate a Phoenix Egg. Although not a real Phoenix Egg, it contains powerful Authority of Flame.</p>
+<p>●Flame Ability can be changed to .</p>
+<p>●Grants to the possessor.</p>
+<p>●Increases the possessor's Flame Ability by 20%.</p>
+<p>Crazy.... It was an Item of even higher Grade than the Ten Thousand Spirits Curse Release I had just seen. Although the option descriptions seemed simple, all three options were extremely powerful Abilities. Of course, the Ten Thousand Spirits Curse Release, which allows one to learn various techniques, grants considerable utility, but this Phoenix Egg Replica was an incredible Item that a Flame Ability User would want to possess even by Murder.</p>
+<p>The first option, Flame of Life, was an Ability to change Flame Ability into Healing Ability. If a wounded Colleague is burned with the Flame of Life, it was a very good Ability as it would Heal them. Of course, Internal Injury or illness would not be healed, but the very fact that one could recover on the Battlefield was a very good Ability.</p>
+<p>However, because the Pleasurable Ache of burning would still be felt, it would inflict mental Damage on the healed Colleague, and despite providing Treatment, if they lacked pain resistance, it had the disadvantage that their Affection Level would actually decrease.</p>
+<p>Still, it was an incredibly good Ability that allowed a Flame Ability User, useful only for destruction, to also be used as a Healer.</p>
+<p>The second option, Flame Regeneration, was an Ability to recover by enveloping oneself in Fire, and the stronger the Firepower, the stronger the regeneration Ability became, making one very difficult to kill until all Flame Ability was consumed.</p>
+<p>The last option, a 20% increase in Flame Ability, was also very good. It wasn't Flame Damage, but rather it enhanced the Flame 'Ability' itself by 20%. Not only Damage or Output, but also Ability activation speed and Stamina, etc., several Abilities increased by 20% at once, so this could also be called a very honey option.</p>
+<p>If I give it to Kiyona Mari, she'll become incredibly strong, won't she? Currently, the strongest person in Seryutai was Sawayanagi Seari, who had awakened Elf Traits, but with just this one Item, it seemed she could surpass Sawayanagi Seari.</p>
+<p>First, because it's such a powerful Item, I should consult with Sawayanagi Azuma, the Leader of Seryutai, and then decide whether to give it to Kiyona Mari.</p>
+<p>"Are you giving me such good Items?" "Yes! Among the Items obtained in New Rochelle, I chose two Items that seemed necessary for Ryuta." "Hoohoohoo...! Since Ryuta likes it so much, we are even more Satisfied."</p>
+<p>When I expressed my gratitude, both were happy. Rather than the Value of the Item, my liking the Gift I received seemed to be a better sight. No matter that I had saved Arisu in New Rochelle, I felt a little Sorry to just receive.</p>
+<p>"And...." "The Gift isn't over."</p>
+<p>Huh? The Gift isn't over? Is there another Gift? As I wondered, Arisu smiled and handed me a Small Box. It felt like something the Size of a single Finger was wrapped.... If it's this Size, is it something like a Key?</p>
+<p>"Can I open it?" "Yes, open it~!"</p>
+<p>At my question, Arisu smiled and said, as if telling me to open it quickly. I opened the Box's lid. Inside the Box, a universal connection terminal, used like a USB in the current Era, was inside.</p>
+<p>"?"</p>
+<p>Naturally, in this state, because I didn't know what was inside the universal connection terminal, I looked at the two of them with a question mark floating.</p>
+<p>"What is it?" "Ah! I didn't explain what was inside."</p>
+<p>Continuously looking at my Face, Arisu, who had been making an Expectation Expression, said "Ah!" as if realizing, clapped her Hands and muttered. And she wiggled her Finger at me, making a gesture for me to come closer to her, so I bent my Waist towards Arisu and brought my Head closer.</p>
+<p>Arisu, seeing that Appearance, smiled as if Satisfied, then brought her Face to my Whispering Ear and began to Whisper.</p>
+<p>"You know, when Ryuta first met Phantom Thief Francois before...."</p>
+<p>Ah, I wondered what she was going to say. She was going to talk about Phantom Thief Francois. No matter that it was her own Home, because security was important, it seemed she thought it better to Whisper. Since the Phantom Thief Francois Matter was kept strictly Secret.</p>
+<p>By the way, when I first met Phantom Thief Francois.... When was that? Ah! Is she talking about meeting him at the Laboratory during the Kurotsukidoo Battle before? Fought with a Frustrating Telekinesis user before meeting him?</p>
+<p>"Laboratory?" "Uh-huh! There~! I'll give you the Data I obtained there as a Gift!"</p>
+<p>Clearly, that Laboratory was Taira Robotics' Secret Laboratory.... Is this really a Gift? Aren't they just trying to dump it on me?</p>
+<p>I was a little suspicious, but seeing Arisu's innocently bright Expression, I felt Sorry for being suspicious for no reason. She must have thought the Data inside would be useful to me.</p>
+<p>Seeing that there were Attackers then, it must certainly be important Data. Even at that time, "What on earth were they trying to get to dare Attack Taira's Laboratory?" I had thought, but I never imagined this Data would fall into my Hands.</p>
+<p>"Thank you. But do you know what kind of Data it is?" "No, Grandfather is scary, and.... Taira Robotics had nothing to do with our Business, so I was Satisfied with just stealing it."</p>
+<p>Hmm.... They're not really dumping a problem on me, are they? I'll know once I check the Data. I nodded my Head and put the universal connection terminal into my Embrace. I'll show this to Linling when I go to Japan.</p>
+<p>"Thank you. I'll use it well." "Yes~! Ryuta will be able to use it well!"</p>
+<p>Since I received quite a lot of Gifts today, I couldn't just wipe my mouth clean and leave. I had to give some Repayment. Originally, I had intended to repay them with Service with my Body, but because of Taira Gensuke's Attack, I had to leave, so I couldn't even do that.</p>
+<p>"You know I built a Home in Neo Tokyo, right?" "Yes, the one Gensuke just attacked?" "You said you splendidly repelled him, but is the Mansion alright?" "Probably, it'll be fine. I spent quite a lot of Money."</p>
+<p>I brought up the Story to invite them to my Mansion, but Arisu and Aunt Nae asked me, worrying if the Mansion was alright. Even if I invited them, it was a Place that had allowed an Attack because of Gensuke, so I felt a bit disgraced. Still, those in the Mansion weren't pushovers, so no part of it would have been broken or anything.</p>
+<p>"I know you're coming to Japan soon. I'll invite you to my Home. No, when you're in Japan, please stay at my Home."</p>
+<p>Of course, there was a Company in Japan called Legion Japan, and also high-class Hotels, so Arisu and Nae would have a Place to stay, but I still intended to invite them to my Home as Repayment.</p>
+<p>"Oh really?! I'm excited for Ryuta's Mansion!" "Ufufufu, we'll be able to enjoy ourselves after a long time, won't we?♥"</p>
+<p>Both of their Reactions were quite good. I, just like Arisu had done, wiggled my Finger and made a gesture for them to come closer to me, and both approached me with Expressions that asked what was happening.</p>
+<p>I placed my Mouth between the Faces of the two mother and daughter and Whispered into their Whispering Ears.</p>
+<p>"As Repayment for today's Gifts, while you are at my Mansion, I will let you enjoy yourselves to the fullest."</p>
+<p>Naturally, enjoyment meant Sex. At my Whisper, both looked at me with flushed Expressions.</p>
+<p>"I'll look forward to it, Ryuta!" "Ufufufu, we'll be able to enjoy ourselves after a long time, won't we?"</p>
+<p>It's unavoidable that they're disappointed about not being able to do it today, but in Japan, I intended to make the two Phantom Thief mother and daughter feel incredibly good. Even now, they are flushed with Expectation, but I'll have to make them feel even better than their Expectation.</p>
+<p>Today's changed Cover B-cut~! When creating Cover candidates, I didn't use a detailer (Face upscale), so the Faces were blurry hehe. Only the finally selected Cover combines the detailer and overall upscale hehe. Gojoy-nim requested Tetsu Kagerou's usual Attire and Underwear~! Usual Attire~! Kkyut Underwear~! I didn't know when she was in her cyber Suit, but she has an incredibly slender Waist ㄷㄷ</p>

@@ -5,51 +5,69 @@ weight = 846
 chapter = 846
 +++
 
-<p>When Yuzuki Matsunaga revealed her panties to me in the park, I heard a gasping 'heoeok' sound from somewhere. Someone seemed to have seen Yuzuki Matsunaga's actions from afar. No matter how sparsely populated this area was, the park itself had a lot of foot traffic (and it was also students' dismissal time), so I couldn't tell who made the sound.</p>
-<p>"First, let's go to my car." Since it was a park near St. Francis Girls' Academy, if we did anything strange here, rumors could spread in an instant, so we decided to move for now. I took Yuzuki Matsunaga and headed to the parking lot where I had parked the car.</p>
-<p>"Get in." "Yes." I seated Yuzuki Matsunaga in the passenger seat and immediately started the car. Since both of us were teachers at St. Francis Girls' Academy, we couldn't go on a date in Miyashi. So, we planned to drive to Fujinomiya City, south of Miyashi, play there, and then return.</p>
-<p>"Have you been to Fujinomiya City?" "It's a nearby city, so once or twice? I've been there." Indeed, since it was only about 50 minutes away by car, Yuzuki Matsunaga, who had been in Miyashi for several years, couldn't possibly not have been there.</p>
-<p>"With your Nampyeon-nim?" I subtly stroked Yuzuki Matsunaga's bare thigh, exposed beside me, and asked. Yuzuki Matsunaga, startled as I suddenly stroked her thigh, trembled slightly, but soon spread her thighs, accepting my touch.</p>
-<p>"Haaheueu...! No, I didn't often go out to play with my Nampyeon-nim. Haa...♥ Just twice, heueut, when I was a Class Teacher for junior high school, I came on a picnic with the Students, heueung, that's all." I see. It seemed she didn't often go out to play with her ex-Nampyeon-nim, Koki Kasaoka. Well, that kind of relationship would lead to divorce, I suppose. I enjoyed the sensation of Yuzuki Matsunaga's thighs and her moans, and also the sight of Mt. Fuji outside the window, as I drove.</p>
-<p>Because it was weekday lunch time, there weren't many cars, so the road conditions weren't bad. We might get there faster than I thought...?</p>
-<p>"I, I'll do it for you too." As if feeling sorry that only her thighs were being massaged and touched, Yuzuki Matsunaga lowered my pants' zipper. And then, skillfully pulling down my panties, she pulled my cock out.</p>
-<p>"Haa... It's been a long time. This smell... I love it...♥" Yuzuki Matsunaga welcomed my cock, which she hadn't seen in a long time, burying her nose in it and beginning to inhale its scent. Then, extending her tongue, she began to lick my cock.</p>
-<p>Tzeueup, Jjeup, Jjyuuueup! It was lunchtime, but she hadn't eaten yet-was she hungry? Yuzuki Matsunaga sucked my cock so hard her cheeks became hollow. I enjoyed the pleasure radiating from my cock, stroking Yuzuki Matsunaga's head as I continued to drive.</p>
-<p>For a normal person, it would have been an incredibly dangerous scene, but there was no chance I would cause an accident just because of pleasure.</p>
-<p>Tzeubeup, Chyuup, Chyupchyupchyup! Of course, Yuzuki Matsunaga's Fellatio Skill was extraordinary, and there were times my vision turned white from the pleasure radiating from my cock, but because there was a driving assistance device, I didn't veer out of the lane.</p>
-<p>"Kkeueu...! I'm cumming...!" Eventually, Yuzuki Matsunaga succeeded in drawing out my semen before we even arrived in Fujinomiya City. She had been sucking and licking my cock for almost thirty minutes, so it would have been strange if I hadn't cum.</p>
-<p>Byuut! Byuut! Byuut! Yuzuki Matsunaga, without spilling a single drop, continuously gulped down the enormous amount of my gushing semen, accepting every last bit I shot out.</p>
-<p>I felt a slight sense of exhaustion, but without causing an accident, I could continue driving.</p>
-<p>"Beeh...♥" Yuzuki Matsunaga opened her mouth and showed me, proving she had drunk all my semen. Her appearance was so lewd that my cock became hard again, but we were almost at our destination, so I couldn't continue anything further. And I was also hungry.</p>
-<p>Soothing my aroused cock, I drove and arrived at our destination, Fujinomiya Yakisoba Street, Omiya Yokocho.</p>
-<p>What was famous in Fujinomiya City was its yakisoba. Fujinomiya yakisoba differed from typical yakisoba in several ways. Instead of using Chinese noodles, it used slightly thicker, special noodles; pork cracklings (Nikukasu) with the fat removed were added; and finally, instead of katsuobushi, dried fish powder was sprinkled on top-that was Fujinomiya City's yakisoba.</p>
-<p>"Have you tried Fujinomiya-style yakisoba?" "They sell it in Miyashi too, so I've eaten it, but I've never eaten it locally." "Since it's completely my first time, let's enjoy this first together." We walked around Omiya Yokocho and headed to a yakisoba restaurant that looked good. We ate yakisoba with a few added toppings like squid and shrimp, and it tasted quite good. It was somewhat similar to original yakisoba but had a different taste.</p>
-<p>"It's delicious." "When I eat with Teacher-nim, my appetite seems to increase even more." Slurping her yakisoba, and while Yuzuki Matsunaga ordered and drank a drink, I ordered and ate two more servings.</p>
-<p>And we took a walk at Shiraito Falls, located north of Fujinomiya City, taking photos with the waterfall as a backdrop. We also went to Fuji Milk Land near the falls, saw cows, and ate ice cream.</p>
-<p>As we enjoyed our date like that, before we knew it, the day was slowly starting to get dark, so we got back in the car and headed towards Miyashi.</p>
-<p>For dinner, we decided to eat at the hotel restaurant I had reserved in advance. Since I had to make a request regarding Alik's additional test, I reserved the most luxurious hotel restaurant in Miyashi.</p>
-<p>"Is it okay to come to such an expensive place?" Yuzuki Matsunaga looked around, asking as if the luxurious restaurant felt burdensome.</p>
-<p>"You know I have a lot of money. Also, this time, for catching Kotowazuki at the ski resort, I also received a bounty. Don't worry about money; eat as much as you want." I waved my hand as if saying it was fine and sat down. At my words, Yuzuki Matsunaga also erased her burdened expression and sat down.</p>
-<p>"Matsunaga-sensei." "Yes." "Among my disciples, there's someone named Alik..." I began to talk about the main topic before the food came out. It was about Alik failing math in this test, being held back a year, and requesting help for an additional test.</p>
-<p>Since it was my first time doing this kind of lobbying, I was embarrassed, but for Alik's sake, I could do this much. And Matsunaga Yuzuki wasn't a stranger; she was one of the women I had shared my body with the most since I came to Miyashi, so I thought she would grant this much.</p>
-<p>"Okay. When our date ends today, I'll send the data by email." As expected, Yuzuki Matsunaga nodded her head without much worry. Indeed, the date was rewarding.</p>
-<p>"Instead..." Of course, there was something she wanted as the price.</p>
-<p>"Today, you have to completely satisfy me, okay?" "Even if you didn't grant my request, I was going to do that anyway." I nodded my head at Yuzuki Matsunaga's condition and said. After a date like this, I had no intention of sending her home without having sex. Whether she liked my answer, Yuzuki Matsunaga laughed, 'Ufufut.'</p>
-<p>As soon as my improper request regarding Alik ended, the meal course immediately began to come out. We happily conversed and enjoyed the meal at the luxurious restaurant, which was different from lunch.</p>
-<p>Because we had eaten with wine, Yuzuki Matsunaga's face became a little red, and narrowing her eyes, she began to scan me up and down. Slowly, it seemed she was going into Heat.</p>
-<p>"Shall we leave now?" "Yes!" Yuzuki Matsunaga immediately stood up and answered my proposal. She seems eager, doesn't she? Unlike eager Yuzuki Matsunaga's attitude, for our bodies to mingle, we had to wait a little.</p>
-<p>After eating at the hotel restaurant, it would have been convenient to go straight to a Hotel Room, but this hotel was a Minamoto-affiliated hotel. A meal was fine, but getting a room was impossible.</p>
-<p>News would immediately be conveyed to Minamoto Lisa, and the Minamoto Group would also learn about my relationship with Yuzuki Matsunaga, so I reserved another hotel. It was the Am-sang Miyashi Branch's disguised love hotel. After a long time, I'll be able to give sex data to Eve.</p>
-<p>"Weren't we doing it here?" "Because I wanted to relive memories." Since I had called Yuzuki Matsunaga to the Am-sang love hotel before when she was doing 'Delivery Health,' I drove the car to the love hotel street, reminiscing about those memories.</p>
-<p>After parking in the love hotel parking lot, as I got out, my phone vibrated. Glancing at my phone, a text message had arrived from Eve, saying my private room was prepared. Because of the Am-sang app installed on my phone, it seemed I couldn't enter the love hotel secretly from Eve.</p>
-<p>Matsunaga Yuzuki and I took the elevator to my private sex room on the 5th floor. The door to the hotel room on the 5th floor opened, and the familiar scenery of the room was visible.</p>
-<p>"I'll shower first." Yuzuki Matsunaga quickly entered the Shower Room, as if unable to endure it. As I sat waiting, my phone rang again. Wondering what was wrong, I looked at my phone; it was Eve's contact again. I expected it to be a silly message like "Have good sex~!", but Eve's text message, unlike my expectation, had quite serious content.</p>
-<p>-EVE: Ryuta-nim, there's a GPS tracking device and wiretap in Matsunaga-ssi's Bag~! Eh? What is this sound again? Matsunaga Yuzuki wouldn't need to wiretap my words. As I was feeling doubt, my phone vibrated again.</p>
-<p>-EVE: Seeing that there's a GPS tracking device, it seems someone secretly put it in. Shall I try to reverse-track the signal? At Eve's reverse-tracking proposal, I sent a reply, saying 'please.' Right, Matsunaga Yuzuki wouldn't possibly put a GPS tracking device in her bag to track her own movements. After waiting like that for a moment, my phone vibrated again.</p>
-<p>-EVE: As a result of reverse-tracking the signal and checking the surrounding CCTV, it's this person.</p>
-<p>-EVE: Photo. Eve sent several photos, and the protagonist of the photos was none other than Yuzuki Matsunaga's ex-Nampyeon-nim, Koki Kasaoka. Koki Kasaoka was sitting in a cafe, wearing earphones. He seemed to be listening to my conversation with Yuzuki Matsunaga.</p>
-<p>Why? Why did he plant a tracking device and wiretap inside his divorced ex-wife's bag? Even if he kept listening, only the sounds of Matsunaga Yuzuki and my sex would come out. Surely, this guy's preference is NTR...?</p>
-<p>"I'm all clean." While I was worrying, Yuzuki Matsunaga came out of the Shower Room, wearing only underwear.</p>
-<p>"Then I'll shower too..." "No." First, since a woman was right in front of my eyes, I was about to ignore that guy Koki Kasaoka and head to the Shower Room, but Yuzuki Matsunaga's resolute voice was heard.</p>
-<p>"Don't shower, just come as you are. Your unwashed smell is good...♥" Before I knew it, Yuzuki Matsunaga was lying on the bed, looking at me and speaking as if seducing me. To respond to Yuzuki Matsunaga's demand, I slowly approached her.</p>
-<p>Requested by Gojoy-nim, Matsunaga Yuzuki's sexy lingerie and Hangari Muneo's sexy lingerie~! Starting with Hangari Muneo~! Matsunaga Yuzuki~! Requested by Hwanbuljeoldaebulga-nim, Matsunaga Yuzuki's Amta and Lisa-ttang's casual clothes (date version)~! I chose two out of four haha Starting with Lisa-ttang~! Matsunaga Yuzuki~! Kkiyot~!</p>
+<p>Otagi Yuka rode her bike towards a deserted Place near Mount Fuji. Shimokawabe Airen was riding her bike alongside Otagi Yuka. On Saturday, when they met at Chungrangdae, Otagi Yuka had requested a day of Training from Shimokawabe Airen, which was why they were going together. Naruse Shiyo, who could be called Shimokawabe Airen's Disciple, had Work, and Alik was alone, searching for the traces left on his Sword, so Shimokawabe Airen had free Time and could oversee Otagi Yuka's Training. The Place they were going to was where Shimokawabe Airen often went with Alik and Naruse Shiyo for their Training. There was a clearing in the middle of the forest, with no houses or People nearby, making it perfect for Training. The two hid their bikes in a bush near the forest and headed across the forest to the clearing.</p>
+<p>「I didn't expect you to ask me for Training.」</p>
+<p>「Well, if I asked our Class Teacher-ssi, she'd probably go too easy on me.... And Shimokawabe seonsaengnim has Disciples, so I thought she could spar with me at an appropriate Level.」</p>
+<p>As Otagi Yuka said, there weren't many who could serve as a combat teacher/master within St. Francis Girls' Academy. Kujo Kina's Sabu, the old man Yoda, was there, but he had gone to the USA with Kujo Kina to enjoy the UMC Unlimited Class matches and was currently returning to Japan, so in the end, only Shimokawabe Airen remained.</p>
+<p>「How do you want to train?」</p>
+<p>「A Duel. I don't mind getting a little hurt, but please don't kill me.」</p>
+<p>In response to Shimokawabe Airen's Question, Otagi Yuka drew the Golden Sword, Golden Blood, from her back and answered. Otagi Yuka was accustomed to fighting bare-handed with her Blood Energy Ability, but she had also honed the Swordsmanship passed down through the Otagi Family for a long Time, and having heard from Taira Ryuta that the Golden Sword she currently possessed had excellent Performance, she decided to use Swordsmanship as her primary focus as well.</p>
+<p>「Good. Actual combat or Duels that are like Actual combat are the foundation for Skill development....」</p>
+<p>Shimokawabe Airen also said, drawing the Sword tied to her waist. After finishing the request from St. Francis Girls' Academy, it had been a long Time since she had fought due to the Test period and various other matters, so her Blood was boiling a little.</p>
+<p>「Hap!」</p>
+<p>Otagi Yuka rushed in without warning and swung her Sword.</p>
+<p>Chang!</p>
+<p>Despite it being an Ambush-like Attack, Shimokawabe Airen easily blocked Otagi Yuka's downward-striking Sword.</p>
+<p>「This Time, it will be a little different.」</p>
+<p>Blood Energy rose from Otagi Yuka's Body and began to resonate with the Golden Sword she held. From the Golden Sword, a golden Aura surged instead of red Blood Energy, and seeing that Aura, Shimokawabe Airen's Expression hardened. It felt quite Threatening. Shimokawabe Airen swung her Sword with a slightly more serious Expression. Otagi Yuka also swung her Sword at the same Time.</p>
+<p>Kuuuuu...!</p>
+<p>A sound that couldn't be thought of as Sword clashing against Sword was heard, but the two paid no mind and continued to swing their Swords. Like a calculated Sword dance, Attack and Defense continued without pause.</p>
+<p>Pa-at!</p>
+<p>In the end, it was Otagi Yuka who first drew Blood. The shoulder part of her Leather jacket tore, and Blood surged out, but at some point, the surging drops of Blood were reabsorbed into Otagi Yuka's Body. If not for the torn Mark on her shoulder, her uninjured Appearance would have made it seem as if Shimokawabe Airen's Sword strike hadn't succeeded. After that, the two continued to swing their Swords and exchange Sword strikes for almost an hour, hardly getting tired.</p>
+<p>「Let's stop now.」</p>
+<p>「Haa, haa.... Yes.」</p>
+<p>As Shimokawabe Airen elegantly sheathed her Sword, signaling the end of the Duel, Otagi Yuka, who had been breathing heavily, nodded her Head. Neither of them had wounds on their Bodies, but the outcome was clear. Otagi Yuka's Leather jacket had become so tattered that it could no longer be worn. Her Clothes were cut, and her flesh was also wounded, but the absence of a wound was due to the Vampire's unique regenerative Ability.</p>
+<p>「Why aren't you using your Family's Swordsmanship?」</p>
+<p>In this Duel, Otagi Yuka had mostly used only basic techniques to perform her Swordsmanship, so Shimokawabe Airen asked, puzzled. Shimokawabe Airen had heard that the Otagi Family possessed an excellent Swordsmanship called Akagamikiba-shiki (Red God Fang Style), and she knew that Otagi Yuka had also mastered it. Seeing her possess such excellent Swordsmanship yet not use it made her feel puzzled. She thought that since her own Swordsmanship Skill was higher, Otagi Yuka wouldn't be going easy on her, so she wondered why.</p>
+<p>「Because the Sword I'm using has changed, if I use my Swordsmanship, it actually creates many openings.」</p>
+<p>Otagi Yuka smiled awkwardly and held up her Golden Sword. Otagi Yuka's Golden Sword was a Western-style two-handed Sword. Although Otagi Yuka's strength allowed her to use it with one Hand, it had a distinctly different shape, length, and weight from a Japanese Katana, so it seemed there were difficulties in using her originally learned Swordsmanship. Seeing that, Shimokawabe Airen nodded her Head. A master of Kendo like Shimokawabe Airen could naturally change the Martial Arts Routine of her Martial Arts Form to match the Weapon even if it changed, but Otagi Yuka, despite being a considerably skilled Swordsman, had not yet reached that Realm.</p>
+<p>「Then today, I'll help you with your Swordsmanship. You just need to adjust it a little to the Sword, so if you put in the effort just for today, much of the awkwardness will decrease.」</p>
+<p>As Shimokawabe Airen gave her diagnosis, Otagi Yuka nodded her Head. If she could properly use the Swordsmanship she had been practicing with this Golden Blood, her overall power would greatly increase.</p>
+<p>「Then, shall we take a stance?」</p>
+<p>「Yep!」</p>
+<p>In the clearing of Mount Fuji, the sound of Swords swinging and shouts of Gi echoed late into the night.</p>
+<p>Miyashi, Am-sang Branch.</p>
+<p>Saionji Diana, carrying a duffel bag, descended into the Underground of the love hotel where the Am-sang Branch was located. Naturally, Eve greeted Saionji Diana at the Am-sang Branch.</p>
+<p>「Welcome, Diana~!」</p>
+<p>「Yeah. Long Time no see, Eve.」</p>
+<p>Since the two had become like Friends after Eve performed Saionji Diana's cyber implant surgery, Eve and Saionji Diana spoke casually.</p>
+<p>「Are those the Chungrangdae items you mentioned?」</p>
+<p>「Yeah, they looked pretty good, so I brought them.」</p>
+<p>As Eve pointed to the duffel bag and asked, Saionji Diana nodded and poured out the equipment from the duffel bag onto the workbench. The items inside the duffel bag were quite diverse, including high-impact Grenades, Ankle mines, Modified bullets with enhanced Penetration, large-caliber Shotgun Ammunition containing Mithril powder, a pump-action Shotgun that could use that Shotgun Ammunition, and heat-seeking Missiles and launchers.</p>
+<p>「It seems they're not all ordinary items, but have undergone certain Modifications.」</p>
+<p>「I'll check them one by one.」</p>
+<p>At Saionji Diana's Words, Eve nodded and began scanning each piece of equipment. Blue Light emanated from her Eyes, checking the equipment, and her Expression wasn't bad, indicating everything was fine.</p>
+<p>「Most of them are Modified off-the-shelf products, but their Performance has improved by 10 to 20 percent.」</p>
+<p>「That old man's Skill doesn't seem bad, does it?」</p>
+<p>Although it was 10 to 20 percent, Saionji Diana was quite surprised to hear the maximum of 20 percent. She had thought it would only improve by a single digit, but she was surprised that the Performance had improved much more than expected.</p>
+<p>「So, what are you going to do with these?」</p>
+<p>「I'll remake them our way. Attach a few to my combat limbs....」</p>
+<p>Saionji Diana had separate combat cyber implants, along with cyber implants indistinguishable from human Arms. The production of combat cyber implants took quite a long Time, so she couldn't use them in Actual combat, but she was steadily collecting Data and developing them.</p>
+<p>「Since most of TG Tech's items are Energy Weapons, I also want to match some gunpowder Weapons....」</p>
+<p>What Saionji Diana liked most among the Harvest from Chungrangdae this Time was the Shotgun containing Mithril Fragments. There had been cases where the inside of the barrel couldn't withstand Mithril, causing problems with the rifling or damaging the barrel, but Chief of Arms Shizuma Ichihara of Chungrangdae had somehow produced a pump-action Shotgun that used Mithril Shotgun Ammunition.</p>
+<p>「This Technology, I should tell the creator to patent it. If it were someone unknown, I would have preemptively filed for the patent, but since he's the Chief of Arms of Ryuta-nim's PMC, I shouldn't do such a thing.」</p>
+<p>「I'll Contact the Chief of Arms old man about that later.」</p>
+<p>For now, Saionji Diana wanted to focus more on strengthening herself rather than discussing patents, so she brushed off the patent discussion by saying she would Contact him later. Eve, as if understanding Saionji Diana's mind, Smiled and began talking about the various equipment again.</p>
+<p>「It seems more appropriate to carry the Shotgun rather than putting it into the cyber implant, and it would be good to put in this heat-seeking Missile.」</p>
+<p>「You can put in a Missile?」</p>
+<p>「Since there's a launcher, we can miniaturize it a bit based on that.... And if we change the design a little, we can mount it. Of course, two Missiles will probably be the Limit, but that should be enough.」</p>
+<p>「Then what about these bullets?」</p>
+<p>「Those....」</p>
+<p>The two began a Discussion with the items they brought, and before long, the topic expanded to include various Weapons acquired by Am-sang. The two talked tirelessly about the parts to be mounted on Saionji Diana's combat cyber implants.</p>
+<p>Requested by TheDreaming-nim: Athena and Taira Kokoro sitting on a park bench, wearing only panties and exposing their breasts~!</p>
+<p>Starting with Athena~!</p>
+<p>Taira Kokoro~!</p>
+<p>Requested by Hwanbuljeoldae-bulga-nim: Lisa, Home Ec Teacher sleeveless See-Through + Hotpants + Thigh band</p>
+<p>Lisa~!</p>
+<p>Home Ec Teacher~!</p>
+<p>I thought something was missing, and it turns out the armpit image you requested was omitted ㄷㄷ. It would take more Time to make it again, so I just uploaded it as is. Your understanding is appreciated.</p>

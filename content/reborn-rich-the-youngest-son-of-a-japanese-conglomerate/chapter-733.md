@@ -5,61 +5,84 @@ weight = 733
 chapter = 733
 +++
 
-<p>In the upper-level conference room of the Federal Superpowers Administration, located in a secret place, several high-ranking officials from the American intelligence community were having a discussion while looking at a screen.</p>
-<p>The screen showed a huge man in black armor fighting an even larger cyborg. It was a battle scene between the Black Knight, who had recently become a global sensation, and Gao Xiang, the leader of the Red Revolution Front.</p>
-<p>,As you all know, Gao Xiang is one of the top-ranked cyborgs in the world, excluding the elite forces of the United States and some other countries."</p>
-<p>James Fuller, the director of the Federal Superpowers Administration, with his receding white hair and short full beard, pointed to Gao Xiang on the screen and said.</p>
-<p>As technology advanced, numerous armies were continuing their research into cyborg soldiers as part of the supersoldier project.</p>
-<p>With the covert support of North China, Gao Xiang, who was loaded with numerous missiles and wore thick armor, possessed power that was not inferior to those government-affiliated cyborg soldiers. Of course, he didn't measure up to America's top cyborg agents, but he was not an easy opponent.</p>
-<p>James Fuller's point was that they had gathered to decide the U.S. government's attitude toward the Black Knight, who had easily defeated such a strong Gao Xiang.</p>
-<p>,The FSA Director means that the Black Knight, who took care of Gao Xiang, is amazing, right?"</p>
-<p>,I know that. That's why we're all gathered here."</p>
-<p>,Knowing that, isn't that why we're all here to decide on America's attitude toward the Black Knight?"</p>
-<p>The directors and ministers of the CIA, the Department of Homeland Security, and the U.S. Army Superpowers Response-Support Department responded to James Fuller's words.</p>
-<p>,It's not enough to just say that the Black Knight is strong. What I want to say is that the Black Knight's growth rate is terrifying."</p>
-<p>,What do you mean?"</p>
-<p>The Secretary of Homeland Security asked with a curious expression at James Fuller's words.</p>
-<p>,If you look at the battle with Famine here, the Black Knight is engaging in a somewhat simple battle, using tremendous physical abilities for close combat only. But in recent videos, he's using a new superpower, telekinesis. He's shown neutralizing incoming bullets and missiles, and even using a telekinetic shield to suppress explosions. Considering that the fight with Famine was only a few months ago, it's an incredible growth rate."</p>
-<p>In response to the Secretary of Homeland Security's question, James Fuller explained the Black Knight's growth in detail, along with several videos. The others nodded, taking a 'that's right' attitude, but one person, the CIA Director, had a dissatisfied expression.</p>
-<p>,The United States owes the Black Knight for the Famine incident, but if we put that aside, I think the Black Knight is a serious threat to the United States. If what Director James says is true, doesn't that mean there are hardly any people in America who can stop the Black Knight? I think we need to take some action."</p>
-<p>,Thinking that way will only make the Black Knight hostile. The Black Knight doesn't have hostile feelings towards the United States. A few months ago, he even helped our FSA with our work. We quietly moved on then, but if it wasn't for the Black Knight, our citizens would have suffered considerable damage. Besides, he's not from a hostile country, but from an allied country."</p>
-<p>James Fuller retorted to the critical remarks of CIA Director Jovany Wells.</p>
-<p>,The Black Knight is certainly not the hero we think he is, but he is someone we can talk to. Seeing that he has several investment or cooperative agreements with several American companies, we can see that, unlike Famine or some of the other superpowered individuals we have classified as threats, we can communicate with him."</p>
-<p>,Besides, the world's opinion of the Black Knight is very good. He's a hero who fought Famine and took care of the leader of a terrorist organization that caused over ten million casualties. If the U.S. government suddenly becomes hostile to the Black Knight, who hasn't committed any actual wrongdoing, not many people will agree with that. It will backfire."</p>
-<p>Kamron Broussard, the director of the U.S. Army Superpowers Response-Support Department, and the Secretary of Homeland Security agreed with James Fuller's words. Jovany Wells still frowned, taking a displeased attitude.</p>
-<p>,Still, I don't think we can trust him because he's not an American."</p>
-<p>,Director Jovany, do you think we can't trust the Black Knight because he's not an American? Or do you think we can't trust him in and of himself?"</p>
-<p>At Kamron Broussard's question, Jovany Wells thought for a moment and said, ,The former." At Jovany Wells' answer, James Fuller and Kamron Broussard exchanged glances and smiled.</p>
-<p>,Then how about we do this?"</p>
-<p>As if a solution was already prepared, James Fuller looked at Jovany Wells and said the solution. Jovany Wells looked at them in disbelief after hearing the solution.</p>
-<p>,You two were already on the same side?"</p>
-<p>,Now that the world knows that there are superpowered individuals, they will become valuable assets. Each country will competitively recruit superpowered individuals. We are simply sharing the idea that we should make that powerful superpowered individual our ally rather than kicking him out."</p>
-<p>,Imagine Russia or North China embracing the Black Knight. I think it's a wise decision to bring him to our side instead."</p>
-<p>Kamron Broussard and James Fuller each had their own superpower units, so they were well aware of the importance of powerful superpowered individuals. That's why they had shared their thoughts on how to handle the Black Knight in advance.</p>
-<p>,I heard the two of you's opinions for the first time, but after listening, I think the FSA Director and the USRAD Director are right. In fact, the Department of Homeland Security's common opinion is that our United States doesn't need to create a new enemy right now, with the arrest of Famine having failed several times and being almost neglected."</p>
-<p>When even the Secretary of Homeland Security expressed his approval, Jovany Wells could no longer object. And after listening to their opinions, he thought they sounded plausible, so his initial negative thoughts had decreased considerably.</p>
-<p>,We should also recruit superpowered agents."</p>
-<p>Rather, after seeing James Fuller and Kamron Broussard's attitude, he began to think that the CIA should also hire superpowered agents. He was curious as to how useful superpowered individuals were, that they were being called the future assets of the United States.</p>
-<p>,Okay. I agree too."</p>
-<p>When Jovany Wells said, raising both hands as if he had lost, the others all nodded with satisfied expressions.</p>
-<p>Whether the Black Knight would accept America's proposal was a matter for the future, but this meeting at the Federal Superpowers Administration became the decisive reason for determining the attitude towards superpowered individuals and the Black Knight within the United States.</p>
-<p>###</p>
-<p>I was incredibly busy after returning from China. After finishing the negotiations with Taron, deciding on Linling's future, and checking on the Black Knight's situation, I came to my senses and realized that the new year was just around the corner.</p>
-<p>To roughly summarize the work I've done so far, the negotiations with Taron only had small negotiations between the working-level staff left, but I used that as an excuse to meet Nae Fitzgerald and Ha Ju-yoon several times and mingle bodies with them.</p>
-<p>Since we had agreed to hand over Isis to Taron in the big picture, my uncle Oliver Fitzgerald contacted me to thank me. It just so happened that I received a call while I was doing a breeding press on Nae Fitzgerald, so I felt a pang of conscience, but Nae Fitzgerald was so excited by the call that I unknowingly got harder.</p>
-<p>Besides that, the Isis employees felt a great deal of anxiety at the news that they were suddenly moving to another company again, so I had to reassure them.</p>
-<p>In fact, TG Tech has become more famous these days, but I told them that they would be acquired by Taron, an American company with solid technology and a foothold in Mars development, and that their employment would be guaranteed, which reduced their anxiety a little.</p>
-<p>Linling has temporarily decided to participate in TG Tech's technology research until my mission at the St. Francis Academy for Girls is over. In return, I promised to make Linling's body the best it could be.</p>
-<p>Linling had done countless simulations during the past nine years when the Jeonlang went bankrupt at the end of the war and she was alone, so a huge amount of data was accumulated on the data disk. Lara Sinclair, who received the data, was very happy and locked herself in the lab.</p>
-<p>Besides energy weapons, there were also several research materials that Jeonlang had done, so TG Tech's next generation of weapons and equipment seemed to be much more advanced.</p>
-<p>For reference, Linling's core and data disk were decided to be stored in the basement of the TG Tech Research Institute, just like in Jeonlang.</p>
-<p>Lastly, after this rescue operation in China, I gave bonuses to I Yeon-ju and the Vanguard agents and researchers, and everyone seemed very touched when I said that I would give money even to the six who died this time.</p>
-<p>I wouldn't leak the rumor that I'm the Black Knight with this much, right? Of course, I gave them carrots with money, but I decided to secretly monitor their smartphones through Eve. I gave them the money in points through the Amsang app, so I was able to easily monitor them by having them all install the Amsang app.</p>
-<p>While I was spending these few days in a whirlwind of busyness, I received a call from the United States. It was a call from Diana Richie, the Deputy Director of the Superpowers Administration, whom I had met before.</p>
-<p>I wondered if she was going to ask me for something like last time? I thought and answered the phone.</p>
+<p>We sat huddled together in the clubroom after cleaning the refrigerator. It took a while to clean not only the refrigerator but also the dust that had settled in the clubroom during the vacation, so it was almost lunchtime. Since I was treating for lunch, I turned on the delivery app and ordered each person's desired food.</p>
+<p>"So, four burger sets from Jetria, five burger sets from Mac, and three chicken sets from Korea Fried Chicken, right?"</p>
+<p>"Yep~!"</p>
+<p>The special class female students wanted franchise burgers or chicken, which are junk food(?), probably because they only ate fancy food at their parents' homes during the vacation. When they were at school, they were free to eat whatever they wanted because they could go to franchises with their friends, but when they returned to their parents' homes, they only ate neat food every time, so they seemed to crave stimulating food.</p>
+<p>I added one set each of what I would eat from Jetria, Mac, and Korea Fried Chicken and completed the order.</p>
+<p>"First, let me tell you about what happened during the vacation. I was in Japan for a while and then went to Korea."</p>
+<p>"Eh? Is that it?"</p>
+<p>Seizawa Shii asked if that was the end with a slightly disappointed expression at my story. There were actually many stories, but most of them were things I couldn't talk about because I had a big obstacle called a disguised identity.</p>
+<p>The ISIS acquisition and the events at the Jeonrang Research Institute would definitely be interesting, but I didn't want to take risks just for the sake of interest. The ISIS acquisition was a story that could reveal my identity, and the Jeonrang Research Institute's work was no different from confessing that I am the Black Knight, so I just said that nothing special happened.</p>
+<p>"Yeah, this homeroom teacher had a boring vacation. I had to do the paperwork for your graduation and submit the final exam questions, so there were no special events."</p>
+<p>"Then I guess I'll have to liven up the atmosphere."</p>
+<p>The next person to step up after my story was Kujo Kina.</p>
+<p>Kujo Kina's story was quite interesting. It was about going on a training camp to warm Okinawa with her master, Old Man Yoda, and his disciples. She said that she left because Anya-ji might attack if she stayed in Miyashi.</p>
+<p>She told stories of challenging various martial arts dojos in Okinawa and being bitten by a snake while training in the forest.</p>
+<p>"Is the snake bite okay?"</p>
+<p>"Of course! I had to go to the hospital for a bit, but... Isn't this scar cool? Kyahaha!"</p>
+<p>Kujo Kina laughed heartily and slightly lifted her skirt, spreading her legs to show the snake fang scars with two dots on the inside of her thigh. No... Rather than cool, it looks quite sexy because of the location?</p>
+<p>"Kina! How can you spread your legs like that in front of a man!"</p>
+<p>Minamoto Risa, who was sitting next to me, covered my eyes and started nagging. After Minamoto Risa's nagging time ended, Minamoto Risa, who had already opened her mouth, started her story.</p>
+<p>"I'm aiming for Edodai, so I only studied during the vacation. I've decided to work on university life and the Minamoto Group at the same time after graduation, so I'll be quite busy from next year. If you need any help with business, tell me. Since we have a connection, I'll help if I can."</p>
+<p>Minamoto Risa's vacation was also nothing special, but the fact that she would participate in the Minamoto Group's work right after graduation was quite interesting, so some students shone their eyes and asked questions.</p>
+<p>"Then which branch are you starting to work at?"</p>
+<p>"If you need information, please tell me. My newspaper company will be doing its job by then, so I can help."</p>
+<p>"Lisa, if you have any difficulties, tell me anytime. I'll help if I can."</p>
+<p>Minamoto Risa smiled at her friends' support. But I'm wondering when she's going to let go of my eyes.</p>
+<p>"Minamoto, can you let go of my eyes now?"</p>
+<p>"Ah! I'm sorry, Ryuta-ssi."</p>
+<p>She was surprised at my words and removed her hand. It was a shame that Minamoto Risa's scent brushed past my nose and disappeared, but I have to listen to the next story.</p>
+<p>Next were Otagi Yuka and Sakagami Rena, Saionji Diana and Urabe Konoka, but I thought there wouldn't be much to talk about since they were members who stayed in Miyashi, but there was something to talk about.</p>
+<p>"Hehe... We stayed in Miyashi, so nothing special happened, but there was one event that our friends might be interested in! That is..."</p>
+<p>What Otagi Yuka was talking about was that I went to Hatsumode, the New Year's shrine visit, with her.</p>
+<p>All four of them took out photos taken with me at the shrine and started showing off, and everyone except Shido Tsubaki was booing, saying, "Why don't you take pictures with us?" Even Alik gave a thumbs down and booed, which was quite shocking.</p>
+<p>"Alik... Even you?"</p>
+<p>I said it as if I were Caesar saying, "Et tu, Brute?" but the booing didn't stop.</p>
+<p>After waiting for the booing to stop, fortunately, the food I ordered arrived one by one, and I was able to shut the mouths of the special class troublemakers who were saying, "Woo~!"</p>
+<p>"It's not Hatsumode, but we can just go to the shrine together separately."</p>
+<p>"Ryuta, Alik also has a pretty furisode."</p>
+<p>"Okay, shall we go take pictures together wearing pretty furisodes?"</p>
+<p>"Okay...!"</p>
+<p>First of all, I was able to turn around Alik's mood, who was in a good mood after eating stimulating franchise food for the first time in a while. It was still cute to see her eating Jetria burgers with her small mouth, omyomnyom.</p>
+<p>"Let's go together if the rest of you can go during the week. This is our last semester, so we have to take pictures of our special class troublemakers in furisodes."</p>
+<p>At my words, everyone nodded while eating lunch as if they had never booed. They nodded so calmly that I thought they were all just trying to tease me as a joke. It was difficult for me, a man, to guess the hearts of high school girls. I should eat lunch too.</p>
+<p>The story, which was temporarily suspended to eat lunch, continued after lunch. Konoe Akina said that she was busy acting as the head of the Konoe family during the vacation and couldn't do anything, and Oofuchi Erika went to the United States and talked about studying chemistry and biology, which she was interested in.</p>
+<p>The most interesting story so far was Seizawa Shii, who worked as a fixer in Tokyo. The story of catching a serial kidnapper was so interesting that it made me sweat. Seizawa Shii revealed her side job to her friends after the Anya-ji attack because she thought that her friends might become future clients as she was about to graduate.</p>
+<p>"...At that time, I confirmed the scene where they were trying to hand over the children to the gang."</p>
+<p>"So, what happened?"</p>
+<p>"Of course, I quietly rode my bike and chased after them. I thought I could find out where the kidnapped children were gathered if I followed the gang...."</p>
+<p>Everyone listened to the story with great interest. Some people brought popcorn from somewhere and ate it while listening.</p>
+<p>"...So the kids went back to their parents. It was really hard, you know?"</p>
+<p>"Wow! Amazing, Shii!"</p>
+<p>"Shii had the most interesting vacation."</p>
+<p>Now the remaining students were Shido Tsubaki, Alik, and Naruse Shiyo. Among them, Shido Tsubaki stepped up first.</p>
+<p>"I'll talk first. I participated in a humanities seminar hosted by Kanto University. It was just a seminar, but several university students and professors majoring in humanities and a few high school students who would enter Kanto University gathered and spent a few days in a pension. It was an event to present each other's research and promote friendship. But...."</p>
+<p>"But?"</p>
+<p>Perhaps because she was a prospective journalist, Shido Tsubaki's story seemed to have the power to focus people's attention. Everyone waited for Shido Tsubaki's next story. The story that followed Shido Tsubaki was quite shocking.</p>
+<p>"A murder occurred at that seminar."</p>
+<p>"Huh...! Really?"</p>
+<p>Shido Tsubaki's story was quite shocking. It was an amazing incident in which as many as four people died at the Kanto University seminar, and the culprit was revealed by a detective who was taking a folklore doctorate at Kanto University. By the way, Kanto University's folklore doctoral course....</p>
+<p>"Is that detective Wano Haruto by any chance?"</p>
+<p>"Ah, that's right!"</p>
+<p>How amazing. To have a name I know come out here. The person who found the culprit by reasoning on Chooten Island was Wano Haruto. That culprit was Urabe Konoka's grandmother, though.</p>
+<p>"Ah! That person revealed the truth about my father's death."</p>
+<p>Konoe Akina said as if she knew. Wano Haruto, whom I introduced, revealed that the uncle who was the acting head of the Konoe family at the time was the murderer of Konoe Akina's father. After that, Konoe Akina was able to become the head of the Konoe family.</p>
+<p>"Wano Haruto? Should we ask him to investigate something on our side too?"</p>
+<p>"He seems to be a pretty great detective, but why isn't his name known?"</p>
+<p>The name Wano Haruto was etched in the minds of the special class female students with a few stories. Even if only a few of them make a request, he will make a lot of money. Wano Haruto's detective business will be quite active.</p>
+<p>"Then only we are left. The previous two stories were so great that our story might be a bit boring."</p>
+<p>Naruse Shiyo and Alik seemed quite burdened because Seizawa Shii and Shido Tsubaki's stories were so impressive.</p>
+<p>"We started training in the mountains where Shimokawabe-sabunim's main house is located. Then one day, Sabunim told us to go somewhere."</p>
+<p>"Moka-sabu suddenly told us to follow him."</p>
+<p>Naruse Shiyo told the story, and Alik added interjections from behind, and the story progressed.</p>
+<p>"The place we went to was deep in the mountains. There was a monster there."</p>
+<p>"Huh? A monster?"</p>
+<p>When the genre suddenly changed, the rest of the students, except for those who had actually seen monsters, each had question marks on their faces. They had expressions that said, "What's with the monster story in an era where cyberpunk is one step ahead?"</p>
+<p>"Sabu said that something had been ruining the nearby rice paddies recently, so we followed him, and there was a monster there."</p>
+<p>"It was really there. Kidnap? Ah, a monster...!"</p>
+<p>It was a ridiculous story to anyone who didn't know, but the students who had participated in the Naruse Shiyo rescue operation with me knew that this story was true. The rest of them also said, "Really?" as Naruse Shiyo and Alik spoke together, and they began to listen to their story with concentration.</p>
 <p>______</p>
-<p>Han Yu-gyeong's crop top + armpit pics requested by RefundAbsolutelyNotPossible-nim!</p>
-<p>To show off the armpits, it has to be a sleeveless shirt, so the crop top feeling doesn't come out well hehehe</p>
-<p>Bonus bikini armpit flex~!</p>
-<p>Bring the cooked rice!!</p>
-<p>Leeian-nim's requested adult version of Linling will appear in the main story someday hehe. To make an adult version, I have to think about the prompt and the art style, so please wait a little bit~! The adult version is more difficult than the SD version TTT Instead, I'll give you a cute Linling SD version~~!</p>
+<p>Saionji Diana with her breasts supported, requested by RefundAbsolutelyImpossible-nim!</p>
+<p>Saionji Diana's armpit pride~!</p>
+<p>I don't know why, but the one-piece swimsuit makes her figure look better, hehe.</p>

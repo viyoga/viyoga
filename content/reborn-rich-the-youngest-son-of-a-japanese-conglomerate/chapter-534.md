@@ -5,54 +5,89 @@ weight = 534
 chapter = 534
 +++
 
-<p>Kurayamada Kirie, having finished her beastification, returned to her usual self. When she had wolf ears, she was all, 'Heeung~ K-dick is the best!' but once she released the beastification, she was back to her usual calm and glaring demeanor. That doesn't mean the conditioning I'd done until now was useless; it just seemed like she no longer had any complaints about my bloodline. It's just that she wasn't all dazed anymore, but her thinking was completely different from before.</p>
-<p>Anyway, it was quite a tough weekend. Starting with Daigo Terue, then Sakagami Rena, and finally Kurayamada Kirie, I spent 80 percent of my time from Friday night to Sunday night having sex. Even for me, this kind of forced march was quite tiring. An ordinary guy would have been completely dehydrated and dried up like a dried squid.</p>
-<p>So, after having sex yesterday, I had a late dinner and fell straight to sleep while hugging Kurayamada Kirie, and ended up waking up later than usual. If Kurayamada Kirie hadn't woken me up, I would have been late.</p>
-<p>"I'm going to prioritize getting my certification from now on, so you should focus on your missions."</p>
-<p>Kurayamada Kirie left the house first, leaving me with these words. As Kurayamada Kirie said, her priority right now was getting her PMC certification. No matter how much I've made an investment contract in advance, if Kurayamada Kirie can't get her certification, the contract is meaningless, so it was right for her to do her best to get the certification now.</p>
-<p>The PMC certification exam was held twice a year, in May and mid-November. The exam I'm aiming for now is the one in mid-November, so the period is tight, but Kurayamada Kirie has high intelligence stats and learning skills, so I thought she would do well somehow. After talking to her after sex, she said she had been studying related subjects in preparation for graduation, so I didn't think she would fail.</p>
-<p>I thought I might try it this time too, so I decided to study in my spare time. My intelligence has increased quite a bit, and it would be nice to have my own direct PMC, so I was thinking of giving it a try. Of course, the November exam was just for practice, and what I was really aiming for was the May exam next year.</p>
-<p>I went to work and searched the internet and ordered a basic theory book and a collection of past questions. Of course, I could have bought an E-book that I could view on my tablet or phone, but I just ordered a book. As befits Japan, the leading country of analog, I was able to order a book even now that paper books have almost disappeared.</p>
-<p>I arrived at the special class building without being late and went into the education preparation room, where there were two faxes about the sports day.</p>
-<p>The first fax said that parents and several high-ranking officials would be attending the sports day, so I should tell the students to behave themselves. I think this is probably directed at our special class... There's no way my kids will listen. Somehow, I feel like they'll either act as usual or dress up even more flamboyantly.</p>
-<p>Anyway, I was wondering if Taira Danjo or Minamoto Ushin would be coming to this parent visit. Taira Danjo is Taira Kanna's dad, and Minamoto Ushin is Minamoto Lisa's dad, so there's a possibility they'll participate in the parent visit. I should ask the Taira information team about this. If they both attend, it'll be quite a commotion. Especially if Minamoto Ushin comes, I'll have to be more careful with my actions, so I hope he doesn't come.</p>
-<p>The other one was a filming cooperation fax, and it seemed like Uenozono Karen's agency was going to film a short video about the sports day. They said they were filming material to use for the self-produced vlog of the idol Serief, which Uenozono Karen belongs to. So, it seems like Uenozono Karen won't be absent on the sports day.</p>
-<p>Since she's a high school idol, she's probably trying to emphasize the fresh feeling of being a high school student a little more before she graduates. Still, Daigo Terue is amazing. To allow this. Serief is on the Taira Entertainment side, so they might have solved it with money, or they might have negotiated under the name of a mid-sports day performance. St. Francisco Girls' Academy is no ordinary school, so it seems like there are celebrity performances even during sports days.</p>
-<p>I roughly stuck the fax in the attendance book and headed to the special class. I opened the classroom door with a *deureureuk*, and I could feel a lively atmosphere. I greeted the students.</p>
-<p>"Good morning~!"</p>
-<p>"Ryuta-cchi, you look a little tired today? Did you watch AV?"</p>
-<p>As expected, Seizawa Shii was the first to speak to me. I guess it shows that I'm tired. It was closer to recreating an AV scene than watching AV, but I can't say that kind of thing to a high school girl yet.</p>
-<p>"I missed you, Sensei!"</p>
-<p>"Good morning!"</p>
-<p>I receive cheerful greetings and stand in front of the teacher's desk. By the way, the one who said she missed me was Konoe Akina. She was still looking at me with a lovestruck girl's expression. I'm glad she doesn't seem to have any problems with her eyesight.</p>
-<p>"You know that the sports day is this Friday, right? I got a fax saying that parents will be attending, so behave yourselves."</p>
-<p>"Ehh~! Behave ourselves! This isn't the 2030s... Isn't that too old-fashioned?"</p>
-<p>I don't know how someone from the 2020s would react if I said the 2030s were old-fashioned...</p>
-<p>"Well, it's not every day, so just be reasonably well-behaved on Friday."</p>
-<p>I didn't really intend to touch on the students' clothes or attitude much. Most people have almost zero expectations for the special class at St. Francisco Girls' Academy, so if they're reasonably well-behaved, they might get the impression that they're surprisingly okay? It'll be like a kind Fatty. If they're just normal, there will be a contrasting effect that makes them look really kind when they do a small good deed after doing bad things.</p>
-<p>"And Karen's filming is coming, so be aware of that too."</p>
-<p>"Then shouldn't we dress up more?"</p>
-<p>It was a bad move to mention the filming. Seizawa Shii is definitely going to wear a super flamboyant outfit on the sports day this Friday, far from being well-behaved. Uenozono Karen will definitely be the main character in the filming, but the classmates who will be playing the background roles will stand out a lot. Everyone is pretty, and it will be quite a hot topic if it's broadcast.</p>
-<p>"By the way, have you decided who's going to participate in each event?"</p>
-<p>"I wrote it down here."</p>
-<p>In response to my question, the class president, Minamoto Lisa, hands me a piece of paper. She seems to be paying attention as the class president. When I read the paper, the archery contestants were Sakagami Rena, Oofuchi Erika, Shido Tsubaki, Uenozono Karen, and Urabe Konoka.</p>
-<p>Urabe Konoka is unexpected. The rest are all from prestigious families, so it makes sense that they would do archery, but I thought Urabe Konoka wouldn't be very good at archery since she's an adopted daughter. I should ask her later.</p>
-<p>The relay race has 10 people, so 3 of our class members were missing: the physically weak Naruse Shiyo, Saionji Diana, who has a cyber implant, and Shido Tsubaki, who obviously doesn't look like she's good at running.</p>
-<p>Dodgeball also had 10 participants, but Naruse Shiyo, Shido Tsubaki, and Uenozono Karen were missing. Everyone except Naruse Shiyo participated in the cavalry battle, Konoe Akina in equestrianism, Otagi Yuka in fencing, and Seizawa Shii was selected for lacrosse.</p>
-<p>Minamoto Lisa was selected for the three-legged race, which is the most important event for me at this sports day event, and this was all as I intended.</p>
-<p>When deciding on the events, I asked Sakagami Rena to do some work when choosing the three-legged race contestants, and Sakagami Rena, with the help of Otagi Yuka, Konoe Akina, and Saionji Diana, decided to have a lottery for the three-legged race, and Sakagami Rena manipulated the lottery so that Minamoto Lisa would be chosen. Sakagami Rena, a mid-level ninja, said that manipulating the lottery was not a difficult task for her.</p>
-<p>If there are constant physical contacts while practicing or playing the three-legged race, even the wooden Minamoto Lisa will have no choice but to change a little.</p>
-<p>"If we become the best or excellent class, there will be prize money, so let's all work hard."</p>
-<p>The prize money for the best class was considerable, with a prize of 1 million yen, which is unthinkable at other schools. Most of the gold spoons, the daughters of prestigious families, don't have a sense of money, so they just think, 'Oh, there's prize money,' but still, some of them seemed to be working hard because they would have money that they didn't have to tell their families how to use.</p>
-<p>The special class was in a similar situation, with most of them being indifferent to the prize money of 1 million yen, but Otagi Yuka, who had broken up with her family, Saionji Diana, who received almost no support from her family, and Urabe Konoka, who was from an ordinary background, lit up at the sound of 1 million yen.</p>
-<p>"If we become the best class, Sensei will treat us to a dinner in addition to the prize money, so let's work hard."</p>
-<p>"Wow! Let's win and fleece Ryuta-cchi!"</p>
-<p>"That sounds fun!"</p>
-<p>Is me treating you to a meal better than 1 million yen? I was dumbfounded by the students' reactions, but I was glad that the students were motivated. That way, Minamoto Lisa will also practice the three-legged race hard.</p>
-<p>"'Fleece' is too much. It's time, so let's study hard today and see you at the end of the day."</p>
-<p>I finished the morning assembly and left the classroom. I should decide on the three-legged race practice schedule with Minamoto Lisa at the end of the day...</p>
-<p>*Uuung!*</p>
-<p>I was thinking about today's plans when my phone rang. Who is it this morning? I checked my phone and saw a message with the name Taira Kanna.</p>
-<p>Taira Kanna: Please be in the club room today. The student council is planning to make a second request.</p>
-<p>--------------------</p>
-<p>Alik Practice 2</p>
+<p>As expected of an athletic meet, there were various awards, starting with the cheering award and a few minor awards. Taira Kanna, the leader of the winning Red and White team, received an award, and finally, it was the turn of the Most Outstanding Class. Most of the awards were presented by the parents, who were either heads of corporations, leaders of prestigious families, or famous politicians, making it a more extravagant awards ceremony than any other athletic meet.</p>
+<p>,The final award, the Most Outstanding Class award, will be presented by Minamoto Ushin-nim of the Minamoto Group."</p>
+<p>Hmm, since Taira Danjo gave the award to the leader of the winning Red and White team just now, I thought Minamoto Ushin would give the Most Outstanding Class award, and I was right.</p>
+<p>The Most Outstanding Class received the award with their homeroom teacher and the class president, so Minamoto Risa and I went up to the podium together.</p>
+<p>Minamoto Ushin looked at me and Minamoto Risa as we went up to the podium. When he looked at me, he glared as if he were looking at an enemy, but when he looked at Minamoto Risa, he had a melting expression like he was looking at a cute kitten, making me wonder how someone's expression could change so quickly.</p>
+<p>,For my daughter to achieve an all-around victory, the first in the long history of St. Francisco Girls' Academy... I'm so happy."</p>
+<p>,It wasn't just me who achieved it, but me, my classmates, and my teacher achieved it together, Father."</p>
+<p>Minamoto Ushin, who seemed to genuinely cherish Minamoto Risa, said this with a moved expression as he put the medal around her neck. Minamoto Risa corrected the error in Minamoto Ushin's words, but Minamoto Ushin didn't seem to be listening at all. By the way, Minamoto Risa only calls me 'you,' but she still calls me 'teacher' in front of other people. I'm a little touched.</p>
+<p>,And you. Do you know that the former homeroom teacher of the special class was such irredeemable trash that he's now in pieces in the junkyard?"</p>
+<p>,Ah, no. I didn't know that..."</p>
+<p>As expected, the former homeroom teacher didn't go to jail but received private sanctions from the prestigious families. I cursed him so much that I was thinking of killing him if I happened to meet him again, but it's a bit of a shame that he's already dead. I should have gotten rid of him with my own hands.</p>
+<p>,Now you know. Congratulations on being the Most Outstanding Class."</p>
+<p>Minamoto Ushin gave me the medal with a scary smile. In short, it was like saying that if I mess with his daughter, I'd be chopped up and thrown into the junkyard too. Being threatened by the head of one of Japan's top companies is a bit creepy, but I couldn't help it since my goal was to mess with Minamoto Ushin's daughter.</p>
+<p>Still, I acted like I was a little scared so that Minamoto Ushin could rest assured, and I went down from the podium after the awards ceremony was over.</p>
+<p>,I'm sorry."</p>
+<p>,Huh? It's okay. You're my father. It's natural for you to worry."</p>
+<p>Minamoto Risa apologized with an embarrassed expression, as if she was ashamed of her father's attitude. Actually, I wasn't that scared, so I was really okay. If Minamoto Ushin were to chop me up as he said, he would have to suffer considerable losses as well.</p>
+<p>When I came down from the podium, they handed me the number of medals that could be given to all the class members. Of course, the Most Outstanding Class didn't receive the award just because Minamoto Risa and I did well, but because all the students in the class did well, so we received as many medals as there were students.</p>
+<p>,Waaaaah~!"</p>
+<p>When we brought the medals, all the students cheered. I gave each of the students in the class a medal. Even though it was just a plated medal from a school competition, the students were happy as if they had received an Olympic medal.</p>
+<p>,Everyone, you worked hard. Since we really won, let's have a company dinner that I'll pay for. You'll be sore from exercising tomorrow, so let's rest tomorrow and meet on Sunday."</p>
+<p>While Daigo Terue was giving the closing address, I congratulated the students and dismissed them in advance. Except for a few students, the rest were going to have dinner with their parents who had come today after a long time, so we couldn't have a company dinner today, and tomorrow, the students who don't usually train would probably be groaning with muscle pain, so I made a dinner appointment for Sunday.</p>
+<p>,...With this, we conclude the 137th Athletic Meet."</p>
+<p>The athletic meet was finally over. It was just one day, but it felt quite long because there were so many events.</p>
+<p>,You worked hard."</p>
+<p>,Ryuta-ssi~! I'm going to go now! My dad went back to Tokyo in the middle, so I'm going to have dinner with Lisa-tan and Ushin-ajusshi~☆"</p>
+<p>,Thank you for your hard work, teacher!"</p>
+<p>When Daigo Terue's closing address was over, most of the students greeted me. The V-log filming team that was filming Uenozono Karen also came up to me and greeted me.</p>
+<p>,Thank you for your hard work filming."</p>
+<p>,Yes, you too, teacher~!"</p>
+<p>Hmm, I wonder if this V-log will be uploaded to Mytube...? Even if Uenozono Karen is a famous idol, I don't think the V-log will become a hot topic. After sending all the students home, I headed straight home to get off work.</p>
+<p>###</p>
+<p>On Mytube, videos of the members' daily lives in V-logs were uploaded twice a week on Serif's official channel. This week, it was announced that a video of the athletic meet of Serif's youngest and only high school student, Karen, would be uploaded.</p>
+<p>The time announced for the video to be uploaded was 7 p.m. Before the video was released, Serif's fans were waiting for the video in the live chat.</p>
+<p>-I'm starting to admire Karen-yang, who goes to St. Francisco Girls' Academy~!</p>
+<p>-St. Francisco Girls' Academy? Is it a Christian school?</p>
+<p>-No, the founder is the missionary Saint Francisco. It's not a Christian school, but you can think of it as a Japanese version of a noble school.</p>
+<p>-Karen is still a baby.</p>
+<p>Since Serif had many overseas fans, there were many people who didn't know about St. Francisco Girls' Academy, a Japanese young lady's school. Before the video started, there were many chats asking about St. Francisco Girls' Academy or answering questions about it. Because translation has become easier, people of different nationalities could easily share their opinions through chat.</p>
+<p>-It's starting. Everyone be quiet~!</p>
+<p>Soon, the announced time of 7 p.m. came, and the video started. The other members of Serif, except for Uenozono Karen, were shown on the screen wearing white T-shirts and red dolphin pants from St. Francisco Girls' Academy.</p>
+<p>,Today~ Serif! Hello!"</p>
+<p>After greeting, the members of Serif chatted and explained for a while, and then opened the door of a classroom. As the classroom was revealed, Uenozono Karen was immediately filmed looking surprised. Everyone poured out reactions saying she looked cute as her eyes widened in surprise.</p>
+<p>-Ah, Karen is so cute~!</p>
+<p>-Look at her surprised face WWWWW</p>
+<p>-It seems like she didn't know they would come to the classroom with a camera LOL</p>
+<p>The reactions of the classmates who showed surprised reactions after Uenozono Karen were also shown, and the response was explosive.</p>
+<p>-But why are they all so pretty?</p>
+<p>-Are all the young ladies in Japan pretty?</p>
+<p>-I want to go to that school.</p>
+<p>-Looking at these female students, Francisco is qualified to be a saint.</p>
+<p>The response was very good because most of the classmates were beautiful. Since they were all beauties with distinct personalities, there was one student who suited the tastes of the viewers watching the video.</p>
+<p>-I really like that pink blonde black gyaru. What's her name? Is she also a celebrity?</p>
+<p>-I think the white gyaru is better LOL</p>
+<p>-I like the one with the covered eyes.</p>
+<p>-Heeuuuung, muscular ponytail onee-san♥</p>
+<p>There were many chats that were purely liking them like this, but there were also sexually harassing chats being uploaded. However, the sexually harassing chats were being blocked as soon as they were uploaded, so they didn't pollute the chat window.</p>
+<p>The next scene was the homeroom teacher. There were many posts in the chat saying, "Surely it's not a man, right?" but despite the fans' expectations, the homeroom teacher was a man.</p>
+<p>-A male teacher appeared aaaaaaa</p>
+<p>-What, this ikemen?</p>
+<p>-He's got a good body too. Please let his dick be small....</p>
+<p>-I suddenly feel better.</p>
+<p>-I'm going to drop out of my school and go to that school LOL</p>
+<p>-Why is he a teacher with that face? Suspicious?</p>
+<p>-Is there any information about that teacher?</p>
+<p>-I searched and there's a fan site made by the students LOL</p>
+<p>-The St. Francisco students were only watching good things among themselves.</p>
+<p>Rather than Serif or the classmates, the homeroom teacher was becoming a hot topic. The homeroom teacher's appearance passed quickly, but his appearance of cheering in between the students' games came out, and the chat became active every time.</p>
+<p>The keyword "Karen's homeroom teacher" became a hot topic on the internet for several days after the broadcast ended, but Taira Ryuta, the main character, didn't know anything about it in his dreams.</p>
+<p>###</p>
+<p>In a dark room with a complex magic circle drawn on it. A pale girl with gray hair was lying on the magic circle.</p>
+<p>Men wearing Onmyoji costumes that have appeared in various media surrounded the magic circle where the pale girl was lying and chanted spells in a low voice. Every time they chanted, the candles erected in the magic circle flickered precariously.</p>
+<p>With a creepy creaking sound, the door opened and a dignified middle-aged man entered the room with the magic circle. The middle-aged man was also wearing an Onmyoji costume, and he opened his mouth to the man who was watching with an anxious expression.</p>
+<p>,How is it going?"</p>
+<p>,Ah, the seal is still not calming down."</p>
+<p>,Tch...! I told you not to overdo it! Why did you suddenly appear in the athletic meet events!"</p>
+<p>The middle-aged man shouted as if frustrated by the words that it wasn't calming down. The girl in the magic circle was Naruse Shiyo. The middle-aged man was Naruse Hirohide, the head of the Naruse family, and the man who had just said that the seal was not calming down was Naruse Shiyo's father, Naruse Koyou.</p>
+<p>,The seal is still far from breaking, so try to calm it down as much as possible. When Shiyo wakes up, tell her again firmly. Don't overdo it."</p>
+<p>,I understand."</p>
+<p>Naruse Hirohide lectured Naruse Koyou for a long time and then went outside. Naruse Koyou's expression darkened as Naruse Hirohide left.</p>
+<p>,I'm sorry. My daughter..."</p>
+<p>Naruse Koyou muttered for a while and then headed to the magic circle.</p>
+<p>-------------</p>
+<p>I realized that I only made the Red Team uniform for the athletic meet ㅎㅎ So I'll upload a picture of Nakanoin Rina (Disciplinary Committee Chairman) wearing the White Team uniform ㅎㅎ</p>
+<p>As expected, the dolphin doesn't go anywhereㅋㅋㅋ</p>
+<p>As a bonus, the Home Economics teacher's White Team athletic meet outfit!!</p>

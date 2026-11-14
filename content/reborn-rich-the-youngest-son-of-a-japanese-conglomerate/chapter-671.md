@@ -5,65 +5,102 @@ weight = 671
 chapter = 671
 +++
 
-<p>"Hoho, so you said you wanted to meet with me alone?"</p>
-<p>Minamoto Ushin opened his mouth as he sat across from Minamoto Risa. Minamoto Risa, who had a calm expression as if the unpleasant incident with his mother, Minamoto Toyomi, had never happened, stood up from her seat, politely greeted her father, and then sat back down.</p>
-<p>"Yes. I wanted to show you this."</p>
-<p>Minamoto Risa handed a rather thick stack of documents to Minamoto Ushin.</p>
-<p>"Shall we see what our daughter has given me?"</p>
-<p>Minamoto Ushin smiled and read through the documents that Minamoto Risa had given him, turning each page one by one. Minamoto Ushin's smiling expression gradually hardened, eventually turning into a blank stare, and the last page of the documents was closed.</p>
-<p>The documents that Minamoto Risa had handed to Minamoto Ushin were the club sales from the St. Francis Girls' Academy festival, which Minamoto Risa had led. It detailed what they sold as merchandise, who the target of the business was, what preparations and plans were made before the business, what differed from the plan while actually doing business, and what they would do with the profits.</p>
-<p>In order for a member of the Minamoto family to work at the Minamoto Group, an exam was required, where they had to earn more than ten million yen with an investment of less than one million yen. Minamoto Risa had achieved this at a mere school festival. Moreover, it wasn't just ten million yen, but several times that amount.</p>
-<p>"I didn't know you wanted to participate in our group's work."</p>
-<p>Minamoto Ushin had thought that Minamoto Risa had no interest in the Minamoto Group because she suddenly became delinquent after entering St. Francis Girls' Academy High School, tanning and skipping school.</p>
-<p>Most people seemed to think similarly to Minamoto Ushin, and after that, there were fewer people who kept her in check. Minamoto Ushin felt a slight chill thinking that her delinquent behavior so far might have been a smokescreen. He thought it was very meticulous of her to avoid the suspicious gazes of her siblings while even repeating a grade.</p>
-<p>Of course, since he hadn't asked Minamoto Risa directly, Minamoto Ushin didn't know if what he thought was true or if he was just overestimating his daughter.</p>
-<p>"An investment of 920,000 yen with a net profit of 64.4 million yen... A very outstanding result."</p>
-<p>Minamoto Ushin said with admiration. Since the Minamoto family's group entrance exam was created, there haven't been many people in the history of the Minamoto Group who have achieved such results.</p>
-<p>Many people with the Minamoto surname took this exam and entered the Minamoto Group, but most of them easily passed the exam with the help of their parents or those around them.</p>
-<p>Even Minamoto Ushin, who is now called a giant in the Japanese business world, easily entered the Minamoto Group with the help of his father when he was young.</p>
-<p>Of course, he didn't have the thought of becoming the best in the Minamoto Group at the time of joining the company, so he wasn't desperate. That's because there were several brothers above Minamoto Ushin at that time.</p>
-<p>"Is it a pass?"</p>
-<p>"Do you really want to join the group?"</p>
-<p>Minamoto Ushin asked back at Minamoto Risa's question. He had a very worried expression, because if Minamoto Risa joined the Minamoto Group, his sons and daughters would not leave their half-sibling, who would become a competitor, alone, and that was very worrying.</p>
-<p>Although he could prevent physical harm with the Chairman's command, it was difficult for even Minamoto Ushin, the Chairman, to protect her in the ruthless political strife within the Minamoto Group.</p>
-<p>"Yes."</p>
-<p>"Keueung...!"</p>
-<p>Minamoto Ushin groaned as he looked at Minamoto Risa's unwavering, straight eyes.</p>
-<p>"I understand. But you have to be careful. Understand?"</p>
-<p>"Thank you, Father."</p>
-<p>Minamoto Risa finally smiled. She knew better than anyone what Minamoto Ushin was worried about, but if she stayed still like this, it would be no different from withering away.</p>
-<p>Only with power could she shake off the absurd conditions that Minamoto Toyomi had presented today. And the easiest way for Minamoto Ushin's daughter, Minamoto Risa, to gain power was to jump into the work of the Minamoto Group and form a faction.</p>
-<p>Minamoto Ushin was worried about Minamoto Risa's survival and was concerned about her joining the Minamoto Group, but Minamoto Risa had decided to join the Minamoto Group for her own survival.</p>
-<p>###</p>
-<p>I was quite busy after the festival ended.</p>
-<p>First, I had to do experience work naked with the women of Seiryutai and the students in the special class who had decided to follow me until Saturday (Naruse Shiyo and Alik, who are still minors, were naturally excluded), and from Sunday, I spent time sorting out the people to send my photo cards to.</p>
-<p>Of course, instead of regular delivery, I used dark delivery, which delivered at an incredible speed if you paid the right amount of money, so I, who had plenty of money, spent some money to send my photo cards to various people overseas.</p>
-<p>To be honest, I was a bit embarrassed because of the phrase written under the photo, but I couldn't give it to some and not to others, so I sent it to everyone who would want to receive it.</p>
-<p>And because TG Tech was about to release firearms, I was so busy with work that I didn't even know how time was passing. I was so busy checking the documents sent by tablet one by one.</p>
-<p>For reference, Arisu was cast in our gun CF this time and had almost finished filming. Arisu was very happy and contacted me after hearing that I had recommended her.</p>
-<p>I was nervous about what would happen if Arisu and Han Yu-gyeong met, but Arisu is in the United States and Han Yu-gyeong is currently too busy to meet each other.</p>
-<p>The production and release of our firearms went smoothly, but there was a document reporting that several firearm companies that are currently producing gunpowder firearms were subtly dissing our TG Tech, and when I read it, there was a considerable level of criticism.</p>
-<p>There were several links, and when I clicked on the one at the front, it was an advertisement video. In the advertisement, a handsome man in a macho cowboy outfit was smoking a cigar, creating gun smoke, and dealing with enemies with a revolver.</p>
-<p>And next to him, a man who looked like a loser to anyone was firing energy bullets with a colorful gun in a ridiculous outfit, but he was pathetically unable to deal with even one enemy, ppiyong ppiyong.</p>
-<p>"Very bad."</p>
-<p>The macho man muttered like that and dealt with the enemy that the loser man couldn't kill in one shot. And the gun company's logo came out and the advertisement ended. H&amp;P? It's a pretty well-known company, but isn't this too one-dimensional of a diss?</p>
-<p>In short, it was an advertisement that put in the message that if you use TG Tech's energy gun, you become a loser who uses childish guns.</p>
-<p>"This is too much. They made our gun look like a colorful water gun."</p>
-<p>I knew that it didn't look like that because I had seen the design before the release and it was very futuristic and simply well-designed, but I couldn't help but feel frustrated when I saw the advertisement.</p>
-<p>When I clicked on the next link, it was an article, not an advertisement this time. It was an article saying that if children play with energy guns that look like toy guns, which they had advertised as not being able to kill enemies until just now, a big accident could happen.</p>
-<p>Guns are the same. Shouldn't you keep both regular guns and energy guns out of the hands of children in the first place? And it's too much to say that it looks like a toy without even seeing the released product.</p>
-<p>I turned off the news article and clicked on the next link. This was also an article, but this time it was about whether the new weapon called an energy gun really had practicality. Still, this was a convincing article.</p>
-<p>Energy firearms didn't exist in the market yet, and since they didn't exist in the market, they didn't know their combat power, so they could think, "Will it be practical?"</p>
-<p>Of course, I could understand all of this criticism. It's not that I agree with the content, but the most talked about thing in the recent cyber zombie situation was, of course, the cyber zombies and the strange response of the South Chinese government, but the next was our TG Tech's prototype energy gun.</p>
-<p>The leaked video had already spread around the world, and gun enthusiasts were cheering for the new gun instead of the existing gunpowder guns, so they must have thought that checks were necessary.</p>
-<p>In addition, there were already many gun companies dividing a limited pie among themselves, and they couldn't help but think that the size of the pie would shrink if energy guns came out, so they couldn't help but feel a considerable sense of crisis.</p>
-<p>Dissing with articles or advertisements was considered gentlemanly... No, it wasn't. The next content was about industrial espionage and financially and politically pressuring us.</p>
-<p>Of course, there was no chance that the laboratory protected by Eve and Lara Sinclair would be robbed, so industrial espionage was rather data that could be used to counterattack the opponent, and political pressure was being appropriately blocked because of Han Yu-gyeong, the youngest daughter of the Shin-gang Group.</p>
-<p>Finally, financial pressure was an attack that didn't matter much. It's not like we started the business with debt, and we had a lot of money. Rather, there were so many people approaching us for investment that it was tiring, so financial problems would be the last thing to worry about.</p>
-<p>The last content of the document was a response plan to this criticism, and it was written quite rationally. Han Yu-gyeong and several advisors at TG Tech must have put their heads together to think about it.</p>
-<p>Suddenly, I became worried after reading this document. Would they be happy with just a photo card set when everyone is suffering like this? That was my worry.</p>
-<p>"I should send an additional gift set."</p>
-<p>I muttered and turned the tablet over to start reading the next document.</p>
-<p>_________</p>
-<p>Minamoto Risa before tanning.</p>
-<p>Kkiyot!</p>
+<p>"No... There's the Am-sang, right? You're about to make the same misunderstanding as last time."</p>
+<p>When I said that in an aggrieved tone, Minamoto Lisa approached our group, saying, "Ah~ really?"</p>
+<p>"I'll go too."</p>
+<p>"Huh? Do you have business with Am-sang too, Minamoto-ssi?"</p>
+<p>I thought it would end if she knew I was going to Am-sang. It seemed like she had separate business there.</p>
+<p>"Yeah... I have business."</p>
+<p>"Okay. Let's go together then."</p>
+<p>"I'm happy if Lisa-tan goes with us too~☆"</p>
+<p>So, the three of us decided to go to Am-sang together. Today's gathering was a weekend meeting, so everyone came in casual clothes, which was convenient because we didn't have to go change into our school uniforms.</p>
+<p>Normally, I couldn't go to a love hotel district with two female students in school uniforms, so we'd have to go change.</p>
+<p>"But Shii, why are you going to Am-sang?"</p>
+<p>"Well, you see..."</p>
+<p>Seizawa Shii started telling Minamoto Lisa about what happened yesterday. She started from the part where Seizawa Shii received a request from Anya-ji, but suddenly, I thought of something I was curious about and decided to interject.</p>
+<p>"But Anya-ji wouldn't have approached you saying, 'We are Anya-ji,' right? Who did they say they were when they approached you?"</p>
+<p>"It was something like an orphanage, and they said the orphanage kids were being kidnapped, so they asked me to take care of the kidnapper."</p>
+<p>Ah, I see. I heard about the kidnapping, but this is the first time I've heard that Anya-ji runs an orphanage.</p>
+<p>"Wait a minute... It's here. Check it out with this if you need to."</p>
+<p>Seizawa Shii, who was rummaging through her wallet, handed me a business card. I took it and looked at it: it said Funayama Seigo, Director of Senya Children's Welfare Facility (聖夜-児童養護施設). Senya? Holy Night? It's a little strange to use Anya's dark name for a children's welfare facility. Still, the fact that they use the 'night' character in their name seems to indicate they were showing off a bit subtly.</p>
+<p>I should tell Fujigasaki Rinka to track this down. Of course, since things went wrong with Seizawa Shii, they probably emptied out that Senya Children's Welfare Facility, but there might still be some traces left.</p>
+<p>"Anyway, I received a request to punish the kidnapper..."</p>
+<p>Seizawa Shii, after giving me the business card, started explaining what happened to Minamoto Lisa again.</p>
+<p>Seeing her explain everything without hiding anything, it seemed like Minamoto Lisa knew that Seizawa Shii was working as a fixer. They've been close since they were young, so they probably tell each other everything.</p>
+<p>"...That's what happened."</p>
+<p>"If something like that happened, why didn't you tell me yesterday?"</p>
+<p>"The job ended late yesterday...?"</p>
+<p>To be more precise, she was busy having combat sex with me after the job, but anyway. Speaking of sex, the damage to the washing machines cost about 800,000 yen. Fortunately, two of the five broken machines could be repaired, so that's how much it cost.</p>
+<p>"I was going to go to Am-sang today and then call you to talk about it~!"</p>
+<p>Seizawa Shii said soothingly when Minamoto Lisa felt a bit left out. I understood Minamoto Lisa's position too. If her closest friend went through something big and she didn't know anything about it, she might feel a bit sad.</p>
+<p>"Then, is the story you just told me related to why you're going to Am-sang?"</p>
+<p>"Since the broker died... are you going to meet a new broker?"</p>
+<p>"Ah... I see."</p>
+<p>When Minamoto Lisa completely understood why Shii and I were going to Am-sang, we had already entered the entrance of the love hotel district.</p>
+<p>"Wow~! It's really in the love hotel district. I only half believed it until now!"</p>
+<p>Seizawa Shii made a fuss, looking at the rows of love hotels.</p>
+<p>"First, let's go into that building..."</p>
+<p>I pointed out the location of Am-sang so that Seizawa Shii could come again next time, pointing to the basement door in a corner of the love hotel.</p>
+<p>"You can go in here."</p>
+<p>"I definitely might not have been able to find it on my own. Thanks for the guidance, Ryuta-cchi~☆"</p>
+<p>Seizawa Shii smiled brightly as she opened the basement door. Minamoto Lisa tilted her head, as if she felt that the atmosphere was slightly different from usual.</p>
+<p>Since Minamoto Lisa has a phobia of men, if she knew that I was in a relationship with her closest friend, the possibility of failing my mission at St. Francis Girls' Academy would increase exponentially, so I was sweating a little.</p>
+<p>I asked Seizawa Shii to be careful about what she said about our relationship when we had dinner after having sex, but I don't know if Seizawa Shii will listen to me. Still, I asked her to keep it private, so she probably won't say anything.</p>
+<p>"Welcome~!"</p>
+<p>When I opened the basement door, Eve was welcoming us. She was wearing a special outfit every time I visited, but today she was wearing an outfit in the style called "past jirai-kei."</p>
+<p>Of course, Seizawa Shii, who doesn't know the exact name because it was an old trend, approached Eve in a friendly manner, even though it was her first time meeting her, saying, "Who are you? Your style is pretty."</p>
+<p>"...Jirai-kei?"</p>
+<p>However, Minamoto Lisa, who enjoys classical materials, immediately recognized Eve's outfit.</p>
+<p>"I'm Eve, who manages the Am-sang branches!"</p>
+<p>"Eve? Hmm... I'll call you Eve-chan! I'm Seizawa Shii. Call me Shii-chan too."</p>
+<p>"Okay, Shii-chan~!"</p>
+<p>When I approached Seizawa Shii and Eve, who were becoming friends in real time, Eve greeted us, saying, "Ryuta-nim, Lisa-nim, you've arrived~!"</p>
+<p>"Yes, Eve. How have you been?"</p>
+<p>"I haven't been doing well because Ryuta-nim is busy and doesn't visit often~!"</p>
+<p>Of course, it's a secret from Seizawa Shii and Minamoto Lisa that I'm the CEO of TG Tech, so it seemed like Eve was answering appropriately. I've been talking to her often recently because of work, so we've been interacting frequently.</p>
+<p>"It's been a long time, Minamoto-ssi, hasn't it?"</p>
+<p>"Yeah, there's nothing to buy at Am-sang as a student..."</p>
+<p>"What are you talking about? If you look at this screen, there are many useful things that even students can buy!"</p>
+<p>Eve was advertising by displaying a screen with holograms.</p>
+<p>On the hologram screen, there were learning-related items that would be useful for students, such as machines that stimulate the brain to improve memory and pills that have an awakening effect, as well as romance items such as perfumes that stimulate actual pheromones, which were slightly illegal items, as expected of Am-sang.</p>
+<p>"There's even stuff like this? There's all sorts of things?!"</p>
+<p>"Let's buy things later and take care of the business we came here for first."</p>
+<p>"Ah, that's right...! We had business."</p>
+<p>"Business? Would you like to tell me what it is?"</p>
+<p>At Eve's question, Seizawa Shii started to give a slightly abbreviated explanation of what she had told Minamoto Lisa earlier. Eve's eyes sparkled, and she nodded, agreeing with her. Since Eve agreed with her so well, Seizawa Shii was excited to talk.</p>
+<p>"...So, I came to find a new broker."</p>
+<p>"I see. I guess I'll be the broker then."</p>
+<p>"Wow~ Eve-chan does that too?"</p>
+<p>Seizawa Shii tilted her head and asked when Eve said she would directly broker for her. It seemed like Seizawa Shii thought Eve was just an employee of the Am-sang branch.</p>
+<p>"Eve is an artificial intelligence android. She knows all the information about Am-sang."</p>
+<p>"Oh, how can you explain it so boringly, Ryuta-nim~!"</p>
+<p>Eve scolded me at my explanation. It seemed like Eve was planning to tease Seizawa Shii a bit.</p>
+<p>"Ah~! Is that so? She just looks like a person?"</p>
+<p>Seizawa Shii grabs Eve's hand with a curious face. And then she's surprised again.</p>
+<p>"Not only does she look like a person, but she even feels like one?"</p>
+<p>"Thank you, Shii~! Don't flatter me too much."</p>
+<p>"She looks like a person?" seems to be a compliment to Eve. Judging by the fact that she's smiling happily.</p>
+<p>"Ahem, shouldn't we talk about the mission first?"</p>
+<p>When Minamoto Lisa, who had been alienated for a while, spoke, Eve started explaining, saying, "Ah, right! We were talking about our mission."</p>
+<p>"Am-sang handles not only goods but also various requests. There are about 420,000 fixers around the world who have a brokerage request contract with Am-sang."</p>
+<p>420,000 people around the world is a lot. Of course, unlike PMCs, not all of them can be used as combat troops. It's just a request brokerage contract. But if necessary, you can make a request to attack Am-sang's rival organizations, so you could think of it as a kind of military force.</p>
+<p>"There are always a lot of requests. Even if Shii-chan sets a lot of conditions, there will be a request that fits them."</p>
+<p>"Really? That's a relief. My previous broker didn't do many jobs because my conditions were too strict, so he betrayed me because he didn't get enough money."</p>
+<p>Seeing her looking dejected while talking, it seemed like the broker's betrayal had hurt her. Seizawa Shii sighed deeply at Eve's explanation, looking relieved.</p>
+<p>"Then I'll apply Shii-chan's filter. First of all, are you capable of murder?"</p>
+<p>The first question is tough. "Are you capable of murder?" But Seizawa Shii nodded as if she was okay with that condition.</p>
+<p>"That's okay. I only kill bad guys."</p>
+<p>"Ah... so you're in that line of work. So, it's okay if the other person is a bad guy?"</p>
+<p>"Yeah. I do this job because I like punishing bad guys and making money."</p>
+<p>"But the judgment of good and bad varies from person to person... First, would you like to sit here? Please check the items here."</p>
+<p>Seeing them talking for a long time and checking something, it seemed like setting the request filter would take quite a while. Minamoto Lisa and I, who had become temporary burdens, looked at each other and sat on the chairs around us.</p>
+<p>"Minamoto, what business did you come to Am-sang for?"</p>
+<p>"...It's a secret."</p>
+<p>At my question, Minamoto Lisa's expression changed in various ways, and then she refused to answer. It seems like something's going on.</p>
+<p>"You don't have to tell me if you don't want to, but don't forget that I can help you anytime."</p>
+<p>"Okay. Thank you, you."</p>
+<p>In fact, since she came to Am-sang, it was clear that Minamoto Lisa would either make a request to Eve or get something from her that she kept secret from me, so I would be able to find out what was going on right away. Because Eve will tell me right away.</p>
+<p>I need to find out what's going on and decide whether to intervene or not. Of course, since Minamoto Lisa is my target, the probability of intervening is very high.</p>
+<p>________</p>
+<p>Jirai-kei Eve B-cut!</p>
+<p>Eve's unique pink bridge hair doesn't come out well since the program update ㅠㅠ</p>

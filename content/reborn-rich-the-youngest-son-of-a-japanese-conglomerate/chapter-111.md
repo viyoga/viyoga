@@ -5,90 +5,76 @@ weight = 111
 chapter = 111
 +++
 
-<p>I looked at Yukiko eating Jua-gwa with a satisfied expression, wearing the Glasses of Ruins. I was curious about what kind of traits Yukiko had.</p>
-<p>Name: Taira Yukiko Lv11</p>
-<p>Stats</p>
-<p>Strength: 5 Agility: 8 Stamina: 9 Resistance: 5 Recovery: 7 Nerves: 14 Appearance: 18</p>
-<p>Intelligence: 10 Knowledge: 12 Concentration: 16 Willpower: 10 Creativity: 8 Charm: 17 Judgment: 16</p>
-<p>Luck: 6</p>
-<p>◆Management Lv9 [Special Skill]: Gains a bonus when commanding a group of a certain size or more.</p>
-<p>◆Gun Shooting Lv12 [General Skill]: Gains a bonus to shooting skills using firearms.</p>
-<p>◆Cooking Lv1 [General Skill]: Gains a bonus to making food.</p>
-<p>◆Femme Fatale [Epic Trait]: Appearance and Charm stats and their limits increase by 2, and efficiency also increases. Increases the probability of seducing the opposite sex and also increases sexual attractiveness.</p>
-<p>◆Dark Vision [Rare+ Trait]: Can see well in dark places. Can see with 80 percent of the feeling of a bright place.</p>
-<p>◆Succubus Body [Legendary+ Trait]: A trait that can only be obtained if you have both sexual skills or traits and dark traits or skills. All physical stats and limits increase by 2, Charm stat increases by 4, and the player's level limit also increases by 2. Absorbs essence when having sex with humans. Does not absorb essence when having sex with Cambions or Incubuses, and experience increases for both.</p>
-<p>Pregnancy becomes impossible with human seed. Can only become pregnant with the seed of a higher-level Incubus.</p>
-<p>◆Marksman [Epic Trait]: Handles firearms like a master. Receives a large bonus to shooting actions.</p>
-<p>◆Sensitive Senses [Rare Trait]: The efficiency of the Nerve and Concentration stats increases. Senses become more sensitive.</p>
-<p>◆Hawk Eye [Rare Trait]: Eyesight improves. Can see distant objects clearly by concentrating.</p>
-<p>Unexpectedly, after checking her stats and traits, Yukiko was a combat-type character. Moreover, except for the two traits, Femme Fatale and Succubus Body, she was a specialized character focused on shooting traits. Even if a player created a character with a sexy sniper concept, they wouldn't be able to create one as good as Yukiko.</p>
-<p>I remembered Yukiko telling me at Disneyland that her hobby was clay shooting. So, I understood why her shooting skill level was high, but with so many traits attached, shooting was bound to be fun... It seemed like a virtuous cycle where she enjoyed it, so she worked harder, and her shooting skill level increased.</p>
-<p>And what was surprising was that she had the Legendary+ trait, Succubus Body. Since the Cambion Body, a lower version of Incubus and Succubus, was a Legendary trait, it seemed natural that the higher version, Succubus Body, would be Legendary+. It was a shame it wasn't Mythic, but it was higher than Legendary, so it seemed to be Legendary+. Due to the trait, her level limit could also be raised by 2, so Yukiko's potential was enormous.</p>
-<p>I wondered why her eyes turned pink when we had sex, but I thought it was just my imagination, but it wasn't. It seemed to be because of the Succubus Body. One of the options was that she absorbed essence when having sex with humans, so I wondered if the reason Taira Saburo and she became sexless wasn't because of infertility, but because Saburo was too tired after having sex with Yukiko. If you have sex with Cambions and Incubuses, experience increases for both... I was glad I got the Cambion Body. Otherwise, I would have been exhausted when I had sex with Yukiko too, right?</p>
-<p>Anyway, it seemed like being infertile was a significant trauma for her, but in fact, she wasn't infertile. Later, when I become the leader of Japan and don't need to worry about power or the eyes of those around me, I might be able to give Yukiko a child. Of course, that's on the premise that I acquire the Incubus trait.</p>
-<p>Her stats were also decent, and her Nerves, Concentration, and Judgment, which are mainly taken by those who go for a firearm build, were all high. Next time, I should go real shooting with Yukiko instead of clay shooting. Ah, I can give her the gun I took from the assassins who attacked Han Yu-gyeong when she came to Japan.</p>
-<p>"Huh? Why are you wearing glasses?"</p>
-<p>Yukiko, who was eating Jua-gwa well, suddenly saw me wearing glasses and widened her eyes. I was wearing the Glasses of Ruins and looking at Yukiko's stats, so it was natural for Yukiko to be surprised.</p>
-<p>"I was going to ask if they suit me."</p>
-<p>"Hmm... It's better not to wear them. Ryuta-gun's charm is his manly appearance..."</p>
-<p>Compared to Han Yu-gyeong's comment that I looked cute~! when I wore glasses, Yukiko gave me an objective evaluation. Hmm, Yukiko likes manly things.</p>
-<p>"You definitely look younger because you ate the fruit I gave you."</p>
-<p>"Really?"</p>
-<p>At my words, she got excited like a child and got up from her seat to look in the mirror. She touched her face here and there and nodded as if satisfied.</p>
-<p>"I think it really got better? What's the name of this fruit?"</p>
-<p>"Jua-gwa."</p>
-<p>"Jua, Jua-gwa?"</p>
-<p>Yukiko seemed to have heard the name Jua-gwa before. In fact, Jua-gwa was one of the common elixirs in the game. It often appeared on the black market for about 400,000 points. According to the NPC's explanation, MILF madams of high status around the world were burning with desire to obtain it.</p>
-<p>In fact, appearance was a very important stat in reality, but it wasn't very important in the game, so players who did a self-imposed hard mode by not investing in Health Miracle early on didn't buy Jua-gwa. They would have bought more guns or bombs with that money.</p>
-<p>"Such an expensive thing..."</p>
-<p>"I can buy this much for Yukiko anytime."</p>
-<p>When I said it on purpose in a cheesy way, Yukiko blushed and liked it very much. So, she liked cheesy things. The atmosphere gradually became sweeter, and our faces naturally got closer and closer. At that moment...!</p>
-<p>Knock knock knock!</p>
-<p>"Director, how would you like breakfast?"</p>
-<p>The housekeeper knocked on the door from outside and asked. We were startled and fell apart.</p>
-<p>"I ate the fruit that Ryuta gave me, so I'm full for breakfast~!"</p>
-<p>"Yes, the clothes you will wear today are hung in front of the door."</p>
-<p>We heard the sound of the housekeeper's footsteps moving away. We looked at each other's faces and laughed once.</p>
-<p>"I'll get ready for work too."</p>
-<p>"Okay, see you later."</p>
-<p>It was still early, but I thought I wouldn't have time to exercise after work today, so I decided to go to the gym in advance. I can wash up there. I packed a protein drink, a change of clothes, and gifts for my office colleagues and left the house.</p>
+<p>Taira Kokoro was lying in the bathtub, enjoying her bath with a languid expression. She was managing her skin by dissolving bath nutrients filled with ingredients that slow down aging and keep it moist and firm. And this management was only a small part of the management she was doing.</p>
+<p>What good would it be if she became the owner of the Taira Group only to become a decrepit old hag? So, Taira Kokoro was serious about anti-aging procedures. She was doing all sorts of research at Taira Cosmetics, which she owned, and applying the results to herself, so even though she was in her early 50s, she looked like she was in her early 30s.</p>
+<p>Even so, Taira Kokoro didn't know satisfaction. She did her best to not lose her youth, receiving blood transfusions from young women once a week and even using shamanistic secrets. Right now, she was looking for the Juangwa that Nagumo Sian, the president of Taira Foods, had eaten to maintain her face and body of a twenty-year-old. In fact, if she only had that Juangwa, the research she was doing now wouldn't be necessary. But since she hadn't obtained the Juangwa yet, research and management could never be skipped.</p>
+<p>So, this time was a time that no one could disturb except for Taira Danjo, the head of the Taira Group. It was a time to fully concentrate on absorbing the nutrients in the bathtub.</p>
+<p>But soon, the phone rang, creating a crack in that time that no one had disturbed until then. Taira Kokoro frowned and looked at her smartphone. Taira Ryuta.... Her cheeky nephew. As soon as she told him to call her Kokoro-ssi because she didn't want to hear the word aunt, he immediately called her that. Ichiro's son and Jiro's son were all very polite to her, so it was a new feeling.</p>
+<p>It had been a long time since she had been called Kokoro-ssi by a child. Usually, she heard the words president or CEO a lot.</p>
+<p>Taira Kokoro smiled slightly and answered the phone.</p>
+<p>,Oh my, nephew~. What's wrong?</p>
+<p>-I'm calling to tell you that the matter has been resolved well. However....</p>
+<p>It seemed that the Minamoto-related matter that her nephew was working on had been handled well. She lent him a little bit of power, and he succeeded right away, so he seemed quite capable. If she used him well, she might be able to use him as a long-term pawn...? But she was bothered by the word 'however' that Taira Ryuta had just said. It must mean that he called her because of that word 'however'.</p>
+<p>,However?</p>
+<p>-Something else happened besides our mission.</p>
+<p>,Hmm.... Is it related to our side?</p>
+<p>-Yes. Sawas Amika, the owner of the villa, had another man. That man....</p>
+<p>Taira Ryuta paused for a moment and then continued.</p>
+<p>-It's Murakata Keiji.</p>
+<p>,What?</p>
+<p>Naturally, Taira Kokoro's voice rose. Sawas Amika was pretty, but she didn't have any special charm, so she was a B-list celebrity managed by a planning company under Taira Entertainment, and Murakata Keiji was the most notable male actor among young people these days with his handsome face and acting skills. Whether Sawas Amika fell into the abyss or not wasn't a big deal for Taira Kokoro, but Murakata Keiji was different. He was doing several commercials recently, so if this matter was revealed, it would cause a big problem for the agency.</p>
+<p>She knew that Murakata Keiji's private life was a mess, but that's why he lived in TERT, where secrecy was guaranteed, but it seemed like he had an accident outside this time.</p>
+<p>,What is that guy doing?</p>
+<p>-That's....</p>
+<p>Taira Ryuta hesitated to answer Taira Kokoro's question as if he was a little embarrassed. Taira Kokoro was annoyed that Taira Ryuta kept stopping in the middle of his words, but she couldn't help it. Taira Ryuta was the only one who could explain the current situation to her.</p>
+<p>,Don't tell me he got caught up in it and died?</p>
+<p>-No, hmm.... I'll tell you, so please tell me how to handle it. Murakata Keiji and Sawas Amika were doing the deed when they were surprised by the target's sudden visit, and Sawas Amika had a vaginal spasm, but they're still stuck together. I was going to call an ambulance, but if this gets out, both of their celebrity lives will be over, so I'm asking Kokoro-ssi.</p>
+<p>At Taira Ryuta's words, Taira Kokoro rubbed her forehead. She was dizzy. How could this situation happen...?</p>
+<p>,I'll call some people, so can you wait until those people get there?</p>
+<p>-I can do that much.</p>
+<p>Taira Kokoro, who hung up the phone, nervously called her secretary, Mori Sota.</p>
+<p>,Take the kids to Sawa Amika's villa right away! Go and take Murakata Keiji and that woman to Taira Hospital...! And manage the kids' private lives better in the future!</p>
+<p>Taira Kokoro unnecessarily yelled at Mori Sota, who was innocent.</p>
 <p>###</p>
-<p>"Good morning."</p>
-<p>I arrived at the office at 8:58 after exercising. I almost would've been late if I had done one more set. As Yukiko said yesterday, there weren't many people in the office. Mimata Chieri, who usually came before me and greeted me happily, was also absent, probably on vacation. I gave the seaweed gifts to the people who were there first.</p>
-<p>I gave them out in order of proximity, and the last one was to the deputy team leader, Suzuki Chisami. Shinoe Misano didn't seem to have arrived yet.</p>
-<p>"Deputy Team Leader, this is a gift."</p>
-<p>"Hmm...! Well, thank you. Here's a list of things you need to do for the business trip tomorrow, so prepare them."</p>
-<p>Ah, I'm going on a business trip with Suzuki Chisami...! I don't really like it. Suzuki Chisami is the one in the team who especially hates and checks me, so I can't like it. Or should I take this opportunity to establish discipline on this business trip since it's a one-on-one situation?</p>
-<p>"Aren't you going to take it?"</p>
-<p>"Ah, I'm sorry."</p>
-<p>I must have been too lost in my own thoughts. I received the documents that Suzuki Chisami gave me. The documents contained work-related content to be done at the branch and trivial tasks such as booking accommodation that I had to do. Still, Suzuki Chisami booked the transportation yesterday.</p>
-<p>Still, because it was a large company, we traveled by plane. If I had driven or taken the train, it would have taken quite a long time for a round trip, but because it was a plane, I was able to save quite a bit of time. As soon as I received the documents, I called a hotel near the branch. There weren't many hotels with rooms available right away for tomorrow.</p>
-<p>I called several places and was barely able to secure a room. She could have just booked it yesterday... Still, when I asked why there were no rooms even on weekdays, they said that there was a local festival, so the hotels were full. I was lucky to have found a room.</p>
-<p>Looking at the list of things to do that Suzuki Chisami gave me, I had to rent a car in addition to accommodation, so there was a lot to do.</p>
-<p>"Hello~! Am I a little late?"</p>
-<p>After roughly finishing the business trip preparations for an hour, Shinoe Misano entered the office around 10 a.m. According to Shinoe Misano, there was a team leader-level meeting from the morning, so she went straight to the conference room instead of the office. I approached Shinoe Misano and gave her the seaweed gift.</p>
-<p>"Oh, thank you, Taira-gun. I have something to say about this business trip, so can we talk separately for a moment?"</p>
-<p>"Yes."</p>
-<p>Shinoe Misano and I entered the empty office where we usually meet for secret rendezvous.</p>
-<p>"That's too much."</p>
-<p>Shinoe Misano, who came into the office, said with a seemingly angry expression.</p>
-<p>"Yes?"</p>
-<p>"I was trying to come to my senses and only look at my husband, but how can you make me like this and then go to Korea?"</p>
-<p>Come to think of it, after her husband came back, I didn't do it for a week because of guilt, but I made her my personal pussy again by pushing her. And then I immediately went on a business trip to Korea, so Shinoe Misano's body must be burning up.</p>
-<p>"Do you want this?"</p>
-<p>I unzipped my pants and took out my dick, which wasn't fully erect yet. Shinoe Misano's expression when she saw it changed as if I had put food in front of someone who had been starving for a week.</p>
-<p>"Yes, I want to put Ryuta-gun's delicious dick in my pussy right now!"</p>
-<p>Shinoe Misano also sat on the desk in the empty office and spread her legs. As she spread her legs, her skirt naturally went up, and she wasn't wearing anything inside. As expected, she called me not for a business trip, but for sex. Shinoe's pussy was already flooded. Is this almost heat?</p>
-<p>"Before that, why are Suzuki Chisami and I in the same business trip group?"</p>
-<p>"Haa... Ryuta-gun, I was going to send you to the branch once to learn the job, and Kamita-gun, who was originally going to go with Ryuta-gun, had a family matter and had to take a vacation, so there was no other way. But I have to stay in my position as team leader..."</p>
-<p>Listening to Shinoe Misano's words, it seemed that she was originally supposed to go on a business trip with a senior named Kamita Akisuke, but suddenly a family matter came up, so Suzuki Chisami went instead.</p>
-<p>"I can't help it. Then turn around and spread your pussy."</p>
-<p>When I sighed and said that, Shinoe Misano turned around with a delighted expression, pulled her skirt up to her waist, and showed me her ass. Since she wasn't wearing panties in the first place, I could see her naked figure.</p>
-<p>"Hmm...! I didn't wear panties, so you can just put it in right away♥"</p>
-<p>"I know you're not wearing them because you just showed me."</p>
-<p>I answered Shinoe Misano's words and put my huge dick into Shinoe Misano's pussy, which was already drooling over my huge dick.</p>
-<p>"Haaah!!!!"</p>
-<p>It's too much to go as soon as I put it in! After that, Shinoe Misano went fifteen times in total.</p>
-<p>----Illustration----</p>
-<p>Shinoe Misano with her skirt up.</p>
-<p>Shinoe Misano with her skirt off.</p>
+<p>Now that I had finished the job, I had to report it. I called Taira Kokoro first, and then I contacted Fumimoto Takayuki, Taira Danjo's secretary, and he told me that it was late now, so I should sleep for a day and come to the main house in the morning to report, so I immediately returned to the Human Resources Development Center and cooled down my battle-heated body with Yukiko's body.</p>
+<p>I released a lot of hot semen inside Yukiko, who accepted everything kindly, and I felt very refreshed after burying my face in Yukiko's chest and waking up.</p>
+<p>I woke up before the housekeeper came, took a shower, and finished preparing to go to the main house. I told Yukiko in advance that I was going to the main house early, so I can just go, right?</p>
+<p>When I came out of the house, the weather was very hot even though it was early in the morning, as if summer was about to begin in earnest. Since it's getting so hot, I should slowly use up my accumulated annual leave and enjoy a summer vacation. But planning a summer vacation wasn't easy. There were quite a few people to take care of, so if I didn't plan well, the schedules would clash and everything could go wrong.</p>
+<p>Kazuhiro also told me to go to an island or something during his summer transfer period while his next transfer destination was being decided, so I had to go at least once. A few days ago, Kiyohira also went to Aokigahara (青木ヶ原: a primeval forest area near Mount Fuji) and hasn't contacted me, so it would be fun to find him and take him along.</p>
+<p>I had to take care of Han Yu-gyeong, Arisu, and Yukiko respectively, so when I asked each of them, Han Yu-gyeong said that she would make the travel plans, so I just had to take time off during this period, Arisu said that she would go to her main home in the United States to play together, and I decided to go to the shooting range and the sea with Yukiko as I had thought before.</p>
+<p>I just had to coordinate the schedules so that they didn't overlap. This time, there was also the PMC acquisition, so coordinating the schedules became quite difficult, but it would work out somehow.</p>
+<p>As I was thinking about various plans for the summer vacation, I was able to arrive at the main house before I knew it. This time, I had to get a close aide to sit as a figurehead president for Taira Danjo grandpa. That way, I can definitely set up this summer's plans.</p>
+<p>It was only about 6:30 in the morning, so I felt something quiet. I was guided to Taira Danjo grandpa's office. When I entered the office, Taira Danjo was unfolding and reading the morning newspaper.</p>
+<p>,Is there an interesting article?</p>
+<p>,Hehe, the story of the world turning is interesting in itself. Each and every one of these pieces of information is money, you rascal.</p>
+<p>,You can see it with this.</p>
+<p>I held up my smartphone and shook it at Taira Danjo. What era is it now that you're still reading paper newspapers? Come to think of it, it was the first time I had seen a paper newspaper since I possessed this body. It was amazing that paper newspapers still existed in 2050.</p>
+<p>,Newspapers are huge information organizations. You may be seeing it for the first time, but paper newspapers contain high-quality information. And there's no risk of being hacked.</p>
+<p>Ah! It seemed that paper newspapers had the feeling of information papers that recorded high-quality information in this era. Paper newspapers seemed to have survived by attempting to become high-end in the face of extinction.</p>
+<p>,I see. Then I should get one too.</p>
+<p>,Hehehe, even if you apply for a paper newspaper, you'll receive something different from me. This newspaper is only published for the top executives of the Taira Group.</p>
+<p>Is this old man teasing me? He was showing off with the thought that this is a really good thing, but you can't use it, so I was a little annoyed, but there were many places to get information even if it wasn't a newspaper, so I didn't feel bad.</p>
+<p>,Let's stop talking about newspapers and eat first. Follow me.</p>
+<p>I followed Taira Danjo to the dining room. Taira Shizuku was sitting in the dining room. I greeted Taira Shizuku.</p>
+<p>,Hello, Grandma.</p>
+<p>,Oh my, Ryuta came? Geez! Ryuta should have said that he was coming, why didn't you say anything?</p>
+<p>Seeing Taira Shizuku welcoming me and starting to scold Taira Danjo for not saying that I was coming, I cheered inwardly, saying, "Scold him more!"</p>
+<p>,Hmm! It was last night that Ryuta was scheduled to come. I couldn't tell you because you were sleeping then.</p>
+<p>,Was that so? Let's eat first.</p>
+<p>Breakfast was mainly neat and not burdensome on the stomach. I was able to be released from the meal only after eating four bowls until Taira Shizuku was satisfied.</p>
+<p>I stroked my full stomach with difficulty and followed Taira Danjo to the conference room. Fumimoto Takayuki was already sitting in the conference room. Fumimoto Takayuki, that ajosshi, came from the morning, he's a diligent ajosshi.</p>
+<p>,Hello. Fumimoto-ssi.</p>
+<p>,Good morning, Chairman, Young Master.</p>
+<p>,Ahem....</p>
+<p>We exchanged greetings and sat down. At Taira Danjo's words, "Alright, report," I told him what happened yesterday.</p>
+<p>,.... That's what happened.</p>
+<p>,Hmm, what was the reason why the plan failed even though you expected the opponent's counterattack?</p>
+<p>Is this post-mission feedback? It seemed that Taira Danjo was going to point out each and every plan.</p>
+<p>,I didn't know there was a jamming device. If I had known there was such a thing, I would have thought of a different trap.</p>
+<p>,"If you want to become the owner of PMC in the future, it's important to know what equipment is currently available."</p>
+<p>,"I will keep that in mind."</p>
+<p>That wasn't wrong. If I had known that there was a jamming device, I would have used different equipment. As the saying goes, knowledge is power.</p>
+<p>,Was the plan sloppy because you thought you could handle it yourself even if the plan failed, so you made it carelessly?</p>
+<p>,The abilities and resources I have are also resources, and I thought that these resources should be used at the last moment. It wasn't careless. Please just think that it's still clumsy.</p>
+<p>,I understand. Anyway, you succeeded.... Good job.</p>
+<p>This is how the retaliatory mission for the shooting incident ended. Now it was time to talk about the PMC acquisition.</p>

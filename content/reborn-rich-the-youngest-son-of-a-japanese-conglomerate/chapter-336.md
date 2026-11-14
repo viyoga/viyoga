@@ -5,30 +5,85 @@ weight = 336
 chapter = 336
 +++
 
-<p>-wi-ing "I'll go get it." Just as I was about to ask another Question, a vibration sound indicated the food was ready. I stood up from my Seat, went to the Counter, picked up two trays with my ordered food, two Psycho Chicken Burger Sets, and Shimokawabe Airen's Amazing Burger Set, went to our Seats, and placed the Amazing Burger Set in front of Shimokawabe Airen.</p>
-<p>"Thank you. You're so kind, Taira-ssi." "Hmm, since I'm on a mission right now, 'Taira-ssi' isn't quite right. Please just call me Ryuta-gun." Although there was no one around to hear, I still cautioned Shimokawabe Airen, as it shouldn't become a habit to call me Taira-ssi.</p>
-<p>"Understood, Ryuta-gun. Seeing as you're concealing your True Identity, I suppose I shouldn't ask what kind of mission it is." Shimokawabe Airen said this, subtly implying, 'You're not doing anything bad, are you?' I laughed "Ahaha," and evaded, saying, "Shall we eat?" I unwrapped the Chicken Burger and took a bite. Hmm, perhaps because I exercised, it tastes even better.</p>
-<p>"By the way, Shimokawabe Airen-nim, you're such an excellent Swordsman that you know my Sabu, so why are you working as a Home Teacher?" I asked Shimokawabe Airen about her Story, partly to divert the Topic from my mission. Actually, I don't know if her Skill is excellent right now, but I asked because I know her certain future.</p>
-<p>"Actually, the Act of wielding a Sword doesn't make Money. My main profession is a Swordsman, but to make a living, I have to Work. Rather, being a Teacher is my side job." I wanted to say, 'Wielding a Sword makes a lot of Money. In your future, you become a Mercenary with incredibly high employment fees,' but I just kept quiet for now. If I don't say anything, I might be able to hire her a bit cheaper.</p>
-<p>"Is that so? Still, if you're a Swordsman, you could open a Kendo Dojang, couldn't you?" Our Kashima Ichishin Doryu (鹿島鬼一神道流) is a martial art passed down through a single lineage, so we cannot have many disciples. Is it a single-line inheritance martial art like Shinkai Yatsude? In my Memory, Shimokawabe Airen clearly founded a school and was a Swordsman leading a large force. Surely, a major Incident must have occurred between the present and the era of TMC that changed Shimokawabe Airen's Thoughts.</p>
-<p>"Of course, I can teach the basics, not the secret techniques of our school, but it's pitiful that they can't learn more than that. So I don't open a Dojang. Instead of a Dojang, I run a club at the school." Oh, right. There was a club, wasn't there? A fax had clearly arrived, telling me to investigate and submit the Students' clubs by next week... I had completely forgotten about it. I must do it on Monday.</p>
-<p>"Is it a Swordsmanship club?" To be precise, I'm the advisor for Cheongsim-gwan (淸心館), an ancient martial arts club. Hearing from Shimokawabe Airen, it seemed they practiced not only Swordsmanship but various martial arts. Since all the Female Students were Young Ladies from prestigious families, there were quite a few Students who practiced ancient martial arts passed down through their Family.</p>
-<p>In the case of St. Francisco Girls' Academy, since the middle school and high school divisions shared clubs, the club members were said to have a very strong camaraderie. Because they spent almost six years in club activities, their relationship was that good. That camaraderie continued into society, and in the case of long-established clubs, it was said to be helpful even in the professional world.</p>
-<p>"Ryuta-gun, you'll probably have to take on a club advisor role. There's an unwritten Rule that second foreign language Teachers, like Korean language Teachers, usually have more free Time, so they have to take on an advisor role." Ah, so that's how it was? If I become a club advisor, I can't leave Work right away, and I dislike that... Of course, there might not be a Rule that the advisor must attend every day, but it's still one more thing to worry about, so I disliked it.</p>
-<p>"I'm also the Class Teacher for the 3rd-year special class, do I still have to be a club advisor?" "The 3rd-year special class?" Shimokawabe Airen was surprised by my Words and asked back instead. Does she have some Fate with the special class? Or some other Secret?</p>
-<p>"Yes, the previous Class Teacher caused an Accident last semester and was fired, so I came in." "Ah, then... you must know a Student named Saionji Diana?" I knew Saionji Diana. She was a somewhat gloomy-looking girl in a wheelchair. Her Hair was disheveled and grown down to below her Eyes, so her Face wasn't properly visible.</p>
-<p>"Yes. I know her. Although I've only been in charge for a week, a Class Teacher is still a Class Teacher." "Ah, Diana was... the Club President of Cheongsim-gwan." That girl in the wheelchair was the Club President of Cheongsim-gwan, an ancient martial arts club? If so, it didn't seem like she was born with a physical Disability. Indeed, if she had no Limbs and wore Prosthetic Legs and Prosthetic Hands, she couldn't have been the Club President of an ancient martial arts club.</p>
-<p>"Then, is her current use of a wheelchair due to an Accident?" "Yes, unfortunately, she was in a truck Accident." A truck... For an Accident to be severe enough to sever Limbs, it must have been a tremendous Incident.</p>
-<p>"But if she's attending St. Francisco Girls' Academy, she must be from a prestigious Family, yet all her Prosthetic Hands, except for one Arm, are just rudimentary forms. There are excellent cyber implants available these days, you know." "That's..." Shimokawabe Airen hesitated for a moment, then opened her Mouth. Her Words began with an Explanation of the Saionji Family. The Saionji Family was a wealthy Family involved in banking.</p>
-<p>Saionji Diana was the daughter of the Saionji family's successor, and she was in an accident when she and her parents were hit by a truck while traveling. Shimokawabe Airen said it seemed like the work of Saionji Fusato, the second son of the Saionji family, but there was no evidence. Saionji Diana's father died, leaving the position of Saionji family's successor vacant. Naturally, the most likely successor would be Saionji Fusato.</p>
-<p>Since then, Saionji Diana quit her club and is currently just quietly commuting to and from school. Those rich bastards... Why are they so lacking in Imagination? Both my Father, Taira Saburo, and Saionji Diana's Father died in truck accidents. Thinking about it, the fact that the culprits were never identified in either case, and that both were successful, suggests it was a very effective Assassination Event.</p>
-<p>"So, is Saionji Diana, having lost her connections, unable to receive cyber implants?" "That's right. While there are prestigious families that aren't wealthy, the Saionji Family is rich. It seems they don't provide cyber implants, saying that a Child without Limbs is useless." Hmm, in the end, Saionji Diana will only have a negative future. If she can't become the Head of the Saionji Family, only the Life of a poor Jang-ae will remain. Revenge would be out of the question. If Saionji Diana had the Skill, I might be able to help her.</p>
-<p>"If Saionji Diana was the Club President of an ancient martial arts club, her Skill must be considerable, right?" "Among the Disciples I taught, her Talent was the most outstanding. She couldn't become my Disciple because she had a separate school she was learning." If her Skill was sufficient, I could Sponsorship her to get cyber implants. Next Monday, I'll have to wear the Ruins' Glasses for the first Time in a while and go. If Shimokawabe Airen wanted to take her as a Disciple, her Skill would be beyond doubt, but I still need to confirm it.</p>
-<p>"I'll pay a little more Attention." "Thank you, Ryuta-gun." Shimokawabe Airen elegantly bowed her Head and expressed her gratitude. To express such gratitude even though I haven't done anything yet, it must mean Shimokawabe Airen cares for Saionji Diana that much.</p>
-<p>Good, even if her Skill isn't great when viewed through the Ruins' Glasses, I'll at least get her low-grade cyber implants that allow for daily Life. Even if it costs some Money, it will raise Shimokawabe Airen's Affection Level. "Shall we get up now?" Having finished our meal, we stood up from our Seats, cleaned up the trash, and went Outside.</p>
-<p>"Which way are you going?" When I asked, Shimokawabe Airen pointed in the direction of St. Francisco Girls' Academy. "I'm staying in the Cheongsim-gwan building. The Headmaster also gave her permission. She said it's like hiring a Security Guard by letting me live there, huff-huff." Since the academy grounds are quite large, having a skilled Person like Shimokawabe Airen would reduce the area that needs to be covered. Although it's unlikely for a mere school, if someone were to invade, they could also borrow Shimokawabe Airen's Power.</p>
-<p>"My direction is similar too, so let's go together." My Home was also a three-minute distance from St. Francisco Girls' Academy, so our directions were similar. Ah, come to think of it, I didn't hear the answer to my earlier Question. "By the way, the Question I asked earlier. I'd like to ask it again." "Yes? What Question?" "The Question about whether I have to be a club advisor even if I'm the special class Class Teacher." As soon as the special class Story came up, Shimokawabe Airen started talking about Saionji Diana, so I didn't get an answer.</p>
-<p>"Actually, there's no Rule that you absolutely have to be an advisor, but you'll face immense Pressure to do so. Ryuta-gun, you're a Newcomer and a second foreign language Teacher." In the end, two conditions were attached to me that meant I had to become an annoying advisor. Because I'm a Newcomer Teacher who's easy to assign Work to, and a second foreign language Teacher who doesn't have that much Work.</p>
-<p>"Ah, my Home is here." "That's a very nice Home." While walking, I arrived Home before I knew it and greeted Shimokawabe Airen.</p>
-<p>"Please come visit anytime. If you're Sabu's friend, you're a special Person to me too." "...Ryuta-gun, please visit Cheongsim-gwan anytime as well." We bowed our Heads to each other and parted ways. I watched Shimokawabe Airen's Back View for a while, then went Inside the House.</p>
-<p>I went to exercise to relieve Stress, but I came back even more stressed because of the advisor Work. Meeting Shimokawabe Airen was a big Harvest, though. If I have to do the advisor Work anyway, I should choose a club that's most advantageous to me. Like a club that my Goal, Minamoto Risa, is a member of. I searched through the data on St. Francisco Girls' Academy provided by the Taira Information Team. But there was something I hadn't expected. Minamoto Risa, the delinquent Student, wasn't in any club.</p>
+<p>First, I'm hungry, so should I order something with Uber Eats? After finishing the call with Eve, quite a bit of time had passed, so I was searching for nearby restaurants to order food.</p>
+<p>Ttiring! Ttiring!</p>
+<p>While I was searching for restaurants, a ton of Line messages poured in, so I took a peek and saw that Konoe Akina had already created a group Line chat for the club. Seriously, why is she so diligent...? Let me eat in peace.</p>
+<p>Ryuta: Hold on, let me order food first....</p>
+<p>Konoe Akina: Ryuta-nim! Home-cooked food is healthier than delivery food. Should I bring some food I made to your place?</p>
+<p>Minamoto Risa: What are you saying! Going to his house?!</p>
+<p>Seizawa Shii: I haven't had dinner yet either, Ryuta-cchi, order some for me too! A karaage set meal!</p>
+<p>Urabe Konoka: If it's cooking, I'm confident too!</p>
+<p>Shido Tsubaki: For your information, I'm eating soba.</p>
+<p>Ryuta: You guys don't even know my address. Just a moment, talk amongst yourselves.</p>
+<p>It was only a brief moment, but it was chaotic. Three members of the special class were missing, so it was a group chat with a total of 10 people, so it was that noisy. Still, since 3 people are being left out, I should add them to the group chat later.</p>
+<p>I'll say Alik is joining multiple clubs.... Ah, I need to order food first. I was craving Japanese-style Chinese food today. It's a menu that doesn't come out often as school lunch at St. Francisco Girls' Academy, so I crave it from time to time.</p>
+<p>I'm pretty hungry, so I ordered a double portion of fried rice (chahan), a double portion of karaage set meal, a double portion of mapo tofu rice bowl, and gyoza as a side. The total is 4600 yen, including the delivery fee. Miyashi is quite expensive, so it couldn't be helped. I should order using the company card.</p>
+<p>After ordering delivery with Uber Eats and going back into the group chat, Konoe Akina and Minamoto Risa were explaining the mission they received from Taira Kanna today. Hmm, they're doing well on their own.</p>
+<p>Ryuta: Ordered.</p>
+<p>Seizawa Shii: What did you order?</p>
+<p>Ryuta: Double portion of chahan, double portion of karaage set meal, double portion of mapo tofu rice bowl, and Gyoza.</p>
+<p>Seizawa Shii: You really ordered a karaage set meal? Are you really telling me to come to your house? Ryuta-cchi so funny~!🤣</p>
+<p>Ryuta: What are you talking about? I ordered it because I wanted to eat it.</p>
+<p>Minamoto Risa: Let's stop talking about food and think about what we need to do to solve the mission.</p>
+<p>In fact, this mission was very easy. The student council's request was to find the person making the moaning sounds of a man and a woman in the corner of the auditorium, but if you think about it, it was a request to find a male teacher who is sleeping with students.</p>
+<p>If that's the case, whether he's the culprit in the auditorium or not, Kasaoka Kouki, Kasaoka Yuzuki's husband, is there, so we can pin it on this guy. According to the Taira Group's information, he's having affairs with the students he teaches as much as he wants.</p>
+<p>Shido Tsubaki: Speaking as the former head of the newspaper club, 20 percent of the male teachers attending the school are in unhealthy relationships with female students at the academy. If we throw one of them to the student council, wouldn't the request be over?</p>
+<p>Shido Tsubaki was thinking similarly to me. She's a student with quite a scary mindset? I need to be careful.</p>
+<p>Minamoto Risa: 20 percent? Disgusting!</p>
+<p>Otagi Yuka: It's not all of them, it's only 20 percent....</p>
+<p>Kujo Kina: I just came back from exercising, and you guys are doing something so fun? If it's a perverted teacher, I'll blow him away with a bang!</p>
+<p>Ryuta: Then let's vote. A is that we find the culprit ourselves. B is that we give one of the people on Shido-yang's list to the student council. Let's choose one of the two.</p>
+<p>I created a voting window with two options, A and B, and a miscellaneous option, and uploaded it. Actually, I'm a little lazy, so I hope most people choose B.</p>
+<p>But unlike my expectations, the students had a higher selection rate for A. The selection rate for miscellaneous was even higher than B.</p>
+<p>Kujo Kina: Since it's our club's first activity, let's not eat what others throw at us and do it ourselves!</p>
+<p>Otagi Yuka: I chose miscellaneous because I'm on the side of going with A, but if there are no more clues, going with B.</p>
+<p>Minamoto Risa: I'm B. But the slightly different point is that instead of one of the 20 percent, we hand over all of them to the student council.</p>
+<p>Shido Tsubaki: That's not possible. I have a good relationship with those 20 percent of teachers.</p>
+<p>What is a good relationship? I can only picture Shido Tsubaki threatening them and the teachers helping Shido Tsubaki with her school life.</p>
+<p>Minamoto Risa: Good relationship...? Don't tell me you're enjoying yourself with those 20 percent of teachers?</p>
+<p>...Minamoto Risa thought a little more violently than I did.</p>
+<p>Shido Tsubaki: There's no way! How lewd is your mind?!</p>
+<p>I kind of agree. Rather, hating this kind of lewd thing so much could mean that you're very interested in it. Minamoto Risa's reaction is so fastidious that she might be very interested in that side.</p>
+<p>Minamoto Risa: Lewd!? Isn't that too harsh of a word?????</p>
+<p>Seizawa Shii: Alright! Alright! Let's not fight, the vote is higher for A, so we're going with A, right Ryuta-cchi?</p>
+<p>Ryuta: Yeah, I guess so? Let's investigate ourselves, and if we can't, let's get help from Shido Tsubaki.</p>
+<p>I essentially accepted Otagi Yuka's opinion of going with A, but if there are no more clues, going with B, and wrapped up the situation. If I watched any longer, Minamoto Risa and Shido Tsubaki seemed like they would fight.</p>
+<p>Ding-dong!</p>
+<p>"Delivery!"</p>
+<p>The delivery came just in time. I happily received the food from the delivery person and set it on the table. And a selfie with the table full of food.</p>
+<p>Ryuta: Photo</p>
+<p>Ryuta: Sensei is going to eat now, so everyone come early tomorrow without being late.</p>
+<p>After that, a lot of Line messages came, but I was too busy eating to check them.</p>
+<p>###</p>
+<p>In the morning at St. Francisco Girls' Academy, the 3rd grade special class was in a small uproar because Saionji Diana, who had suddenly abandoned her wheelchair, appeared.</p>
+<p>"Saionji-yang, you can walk now? That's great."</p>
+<p>"You didn't say anything about the surgery in the club group chat yesterday?"</p>
+<p>"I've never fought someone with a cyber implant before, how about a match?"</p>
+<p>Konoe Akina and Otagi Yuka, who had brought Saionji Diana into the date experience-meditation club, congratulated her, and Kujo Kina, who knew about Saionji Diana's circumstances even though they had only met in class, also approached and requested a sparring match.</p>
+<p>"Thank you. For your concern."</p>
+<p>"Actually, I ran out of data.... I couldn't participate in the chat."</p>
+<p>"I'm a prosecutor, so if I fight you, you might die, so I won't spar."</p>
+<p>Saionji Diana sincerely answered each person. Of course, the reactions were all different. Konoe Akina, who gave ordinary congratulations and thanks, just moved on, and Otagi Yuka, as a young lady from a prestigious family, didn't understand the words "ran out of data and couldn't participate in the chat."</p>
+<p>"I can't just let that statement pass...?"</p>
+<p>Naturally, Kujo Kina had a slightly angry expression at the words that ignored her, but the atmosphere changed due to other students who came to school soon after, so she couldn't get angry anymore.</p>
+<p>"Diana-chan! You can walk now? Ryuta-cchi is amazing?"</p>
+<p>"This is...!"</p>
+<p>Seizawa Shii, who had heard the rough story from Minamoto Risa, smiled and clung to Saionji Diana, and Minamoto Risa was surprised by the cyber implant that was not visible at all from the outside.</p>
+<p>'The Minamoto Group doesn't have this kind of technology either.... I can't just ignore the underworld.'</p>
+<p>Minamoto Risa, as a member of the Minamoto Group's main family, knew about various new technologies, but Saionji Diana's cyber implant limbs were quite impressive. Above all, the fact that they could make it look like human skin was quite impressive.</p>
+<p>"This texture is scoop material...!"</p>
+<p>A few more students who came were surprised to see Saionji Diana, so Kujo Kina completely missed the timing to get angry and had no choice but to sit down, thinking that she would show them what's what someday.</p>
+<p>"Saionji-ssi, what model did you use for the cyber implant? This kind of flawless skin procedure doesn't seem to be on the market yet, did you receive a test product? Is there no problem moving even if you replace all four limbs? Do you know the exact specifications of the product? Also...."</p>
+<p>There was someone who showed particular interest in Saionji Diana, and it was Naruse Shiyo, a sickly girl who hadn't had much presence until now.</p>
+<p>Because she grew up so sickly, Naruse Shiyo's dream was to become a cyborg with most of her problematic body modified. So, she asked Saionji Diana, who had a cyber implant, various questions. But most of them were questions that Saionji Diana couldn't answer. It was a question related to the business of her benefactor and homeroom teacher, Yamashiro Ryuta, so she thought that if she answered, she might ruin it.</p>
+<p>"I don't know much. It's still a test model, so please understand that I can't answer the questions. If you're really curious, please send the questions via Line. I'll ask the side that did the surgery if it's okay to answer."</p>
+<p>"Yes, please...! Please ask that side."</p>
+<p>Saionji Diana couldn't resist Naruse Shiyo's sparkling eyes and said that she would ask the questions. After all, if Eve said it wasn't okay, it would be easier for Saionji Diana to answer, so she passed the responsibility to that side.</p>
+<p>"Okay, let's have morning assembly! Take your seats."</p>
+<p>Yamashiro Ryuta opened the classroom door and said. Yamashiro Ryuta glanced at Saionji Diana, nodded, and smiled.</p>
+<p>For Saionji Diana, Yamashiro Ryuta's few seconds of smile were better than all the congratulations she received from her classmates every morning.</p>
+<p>'Thank you, Sensei.'</p>
+<p>Saionji Diana greeted Yamashiro Ryuta in her heart and then sat down.</p>
+<p>----</p>
+<p>I'm Hamahata Konoka, currently Urabe Konoka.</p>
+<p>The ribbon is the point, hehe. I'm working hard to learn at the shrine, so you'll be able to see the miko outfit soon, hehe.</p>

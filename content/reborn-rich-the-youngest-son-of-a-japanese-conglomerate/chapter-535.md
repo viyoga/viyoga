@@ -5,75 +5,75 @@ weight = 535
 chapter = 535
 +++
 
-<p>When I first checked Taira Kanna's message, I briefly wondered, 'What was the student council's request again?' But then I remembered the deal we made at the beginning of the semester when we were forming the club: since a club with dating as its theme would be problematic, I agreed to fulfill two requests from the student council.</p>
-<p>The first request was to find a teacher who was doing terrible things to a student, but after investigating, it turned out to be a case where the teacher was reverse-raped by the student, so I remember handling it somewhat leniently.</p>
-<p>This request, like the last one, must be something that would damage the reputation of St. Francisco Girls' Academy if reported to the police. Since it's better to handle it internally, they're subcontracting it to us, who have already successfully completed one task. The student council and the disciplinary committee must be incredibly busy preparing for the sports day right now.</p>
-<p>I was curious about the details, but I figured they would tell me later in the clubroom, so I started searching for and studying PMC certification materials online. The book I ordered should arrive tomorrow, so for now, I had no choice but to look at online resources.</p>
-<p>Of course, I also had basic duties to perform as a teacher, but I didn't have that much work, so I had quite a bit of time to study for the certification.</p>
-<p>I spent the morning studying for the certification, then had lunch with Kijimoto Jurie, and after lunch, I had a physical conversation in the infirmary as exercise, and before I knew it, it was dismissal time. Since most of the members except Alik would be in the clubroom anyway, I didn't mention Taira Kanna's story and quickly ended the dismissal.</p>
-<p>Surrounded by students, I went up to the second floor of the special class building, and Seizawa Shii and Minamoto Risa started talking to me.</p>
-<p>,Ryuta-chi, you're coming to the clubroom after a long time~?</p>
-<p>"I wish you would be a little more aware that you are the club advisor."</p>
-<p>It had been quite a while. Minamoto Risa scolded me because I hadn't gone since the exam period ended without any particular reason. The others were also glaring at me slightly, as if they were dissatisfied with my not visiting the clubroom.</p>
-<p>"Sorry, sorry, I'll come more often from now on, so forgive me."</p>
-<p>I apologized to everyone and went up the stairs. Entering the clubroom after a long time and sitting down, I opened my mouth to announce Taira Kanna's message.</p>
-<p>"I heard that the student council is making another request today. Does anyone know if something's going on at the academy?"</p>
-<p>I asked in case any of the students knew anything, but they all shook their heads as if they didn't know. Only Shido Tsubaki seemed to be thinking if there was anything among the things she knew that the student council might request.</p>
-<p>"Shido, is there something?"</p>
-<p>"There have been a few things recently, but nothing that would warrant the student council asking us for help."</p>
-<p>I see.... If Shido Tsubaki, the academy's information expert, doesn't know, it seems like something quite secretive is going on.</p>
-<p>"Hello, everyone in the Date Experience Club. I've come to ask you for the request you promised when you formed the club."</p>
-<p>After chatting for a while, Taira Kanna came to the clubroom with the secretary. I heard that the secretary was injured during the last terrorist incident, but it seemed like she had recovered quickly.</p>
-<p>"We know that, so can you tell us what it's about?"</p>
-<p>Minamoto Risa asked what the request was in a sharp tone. Taira Kanna smiled as if she didn't care about Minamoto Risa's grumbling and sat down. Then, she suddenly wiped away her smile and opened her mouth with a serious expression.</p>
-<p>"This request is more confidential than the last one. Please keep it a secret."</p>
-<p>"Of course. We're in a special class, so we don't have anyone to talk to except our classmates, you know?"</p>
-<p>Seizawa Shii gave a slightly sad answer to Taira Kanna's firm words. Seeing the other students nodding as if they would keep the secret, Taira Kanna opened her mouth.</p>
-<p>"This request is about drugs."</p>
-<p>A moment of silence filled the clubroom at Taira Kanna's words. Drugs? That's really serious. Well, drugs were a common story all over the world in this day and age, but St. Francisco Girls' Academy was one of the drug-free zones. None of the Japanese upper class wanted their daughters to get involved with drugs, and St. Francisco Girls' Academy's security was also dispatching experts in this field, so there was no room for drugs to penetrate the academy.</p>
-<p>Even if a huge drug organization tried to distribute something similar to drugs at St. Francisco Girls' Academy, the organization would be destroyed and killed by privately hired assassins before going to trial. Most organizations knew this, so drug problems had not occurred until now.</p>
-<p>"Can you tell us the full story?"</p>
-<p>Minamoto Risa also changed from her grumpy attitude to a serious one and asked Taira Kanna for more details.</p>
-<p>"Recently, a drug called Z-MAX has been distributed in Shizuoka, Yamanashi, Saitama, and Kanagawa prefectures. Do you know where the center is?"</p>
-<p>Shizuoka, Yamanashi, Saitama, and Kanagawa prefectures.... They are all prefectures surrounding Mount Fuji. Konoe Akina seemed to know this as well, nodding and answering.</p>
-<p>"Mount Fuji, huh. So, is that drug, Z-MAX, circulating in the academy as well?"</p>
-<p>Z-MAX.... A drug with a name like an energy drink. Konoe Akina asked if drugs were circulating in the academy at Taira Kanna's question. Taira Kanna smiled and shook her head.</p>
-<p>"Fortunately, drugs are not being distributed to us. Rather, it seems like we are distributing drugs to the surrounding cities."</p>
-<p>What? St. Francisco Girls' Academy is making drugs and distributing them to the surrounding areas? That was an absurd situation. Even if I wrote a novel, it wouldn't be like this.... The others also had expressions of disbelief.</p>
-<p>"Isn't there some kind of mistake? It's true that drugs are circulating, but isn't it too much of a leap to say that the academy is a drug production base...."</p>
-<p>Everyone nodded at Minamoto Risa's words. Taira Kanna continued to speak with an indifferent expression, as if she hadn't heard the rebuttal.</p>
-<p>"The police recently confiscated a vehicle carrying drugs, and these were found on the paper used to wrap the drugs."</p>
-<p>Taira Kanna took out a gray piece of paper. It was a newspaper titled 'Weekly St. Francisco (週刊 ST. Francisco)'. Surely, the name of the newspaper published weekly by the St. Francisco Girls' Academy newspaper club was 'Weekly St. Francisco'. Then Taira Kanna showed another one, which was the newspaper covering the corruption of the Toyotaka faction that Shido Tsubaki and Oofuchi Erika's Search-Eye had recently exposed in the academy. The only thing the two newspapers shared was that they were both distributed exclusively at St. Francisco Girls' Academy.</p>
-<p>"All paper waste from the academy is incinerated in the academy's incinerator for information protection purposes. The fact that these two newspapers were found as drug wrappers means that our academy is related to drugs."</p>
-<p>I didn't know that the academy's paper waste was all incinerated without being recycled. If that's the case, it seems like the academy is really involved with drugs.... Whoever the culprit is, they're fearless.</p>
-<p>"You want us to investigate this? Isn't that asking too much, Kanna-pippi?"</p>
-<p>Seizawa Shii said to Taira Kanna as if it was too much.</p>
-<p>"Shido Tsubaki-yang and Oofuchi Erika-yang, the co-representatives of Search-Eye, are here, and the others are also excellent students, so I'm sure you'll be able to achieve results. And please don't call me Kanna-pippi anymore, Seizawa-ssi."</p>
-<p>Aren't you trusting our classmates too much.... Of course, as Taira Kanna said, they are all capable, so if they do it properly, they will be able to find the culprit. Especially since Sakagami Rena is here, they could find the culprit if they had enough time. Taira Kanna sternly said that she didn't like Seizawa Shii's unique nickname, Kanna-pippi, which she made up as she pleased.</p>
-<p>"If drugs are involved, it could be quite dangerous, so you're asking us to do such a request?"</p>
-<p>"I'll attach armed disciplinary committee members, so there won't be anything dangerous. If you don't trust the disciplinary committee members, I'll tell the academy's security company, so you can call them."</p>
-<p>Minamoto Risa asked about safety, but Taira Kanna answered calmly. I nodded at Taira Kanna's words. I knew that the disciplinary committee members of St. Francisco Girls' Academy had enough combat power to fight against PMC combatants and terrorists like Jinildang after the battle in the northern forest. Rather, the disciplinary committee members seem stronger than the current security guards.</p>
-<p>And Taira Kanna subtly looked at Otagi Yuka and Sakagami Rena. She seemed to know that they both had some combat power. She seemed to have inferred their combat power by knowing that the Otagi family was a vampire family and the Sakagami family was a ninja family. However, she didn't seem to know that Saionji Diana's combat power was considerable, as she didn't look at Saionji Diana.</p>
-<p>"This request is not to catch all the drug manufacturers. I'll consider it a success if you get just a few pieces of relevant information. We're short-handed because it's the sports day period."</p>
-<p>As I expected, they seemed to have a lot of work. It seemed like they had a lot to worry about as outsiders were entering the academy. Still, it was doable because they didn't impose unreasonable conditions on the students, such as having us wipe out or catch the drug manufacturers. It would be something our classmates could do if it was just getting information.</p>
-<p>"Please give us some time to talk."</p>
-<p>Konoe Akina, the club president, gathered the students as if she couldn't decide right away. I was about to go there too, but Taira Kanna grabbed my hand.</p>
-<p>"Ryuta-oppa, how have you been?"</p>
-<p>"Ah, well, I've been doing well."</p>
-<p>Oh, right. The setting was that I was childhood friends with Taira Kanna. Taira Kanna continued to talk to me with a slightly disappointed expression.</p>
-<p>"You haven't been coming to the student council room lately.... I'm disappointed, Ryuta-oppa."</p>
-<p>"I've been busy with exams and stuff. By the way, you came in first place? Congratulations."</p>
-<p>It felt a bit strange for my cousin to call me Ryuta-oppa, but since I was older, it wasn't too out of place. I brought up the topic of Taira Kanna's grades to change the subject. Coming in first place in the whole school was amazing.</p>
-<p>"I worked hard to get a grade that wouldn't embarrass Ryuta-oppa. So...."</p>
-<p>Taira Kanna stopped talking for a moment with a slightly dangerous look in her eyes, then opened her mouth again.</p>
-<p>"Tell me I did a good job and pat my head."</p>
-<p>I had a feeling that I would be stabbed with a knife if I didn't pat her head, so I patted Taira Kanna's head and told her she did a good job. Taira Kanna was enjoying my touch with her eyes closed.</p>
-<p>"We're having a serious meeting, what are you doing?"</p>
-<p>Minamoto Risa said with an unpleasant expression. It seemed like the conversation was over.</p>
-<p>"We'll accept it. If we succeed in this request, there won't be any more requests, right?"</p>
-<p>"Yes, there are two requests as promised."</p>
-<p>Taira Kanna got up from her seat when Konoe Akina said she would accept.</p>
-<p>"The disciplinary committee members you'll be attached to will bring the related materials. And...."</p>
-<p>After finishing the story about the materials, Taira Kanna looked at me again.</p>
-<p>"I'm recharged thanks to you, Ryuta-oppa."</p>
-<p>I didn't know what was recharged, but I nodded. Taira Kanna, who had a satisfied smile on her face at my appearance, slightly bowed her head to everyone and left the clubroom. The secretary who was standing next to her also bowed her head and went outside, but no one cared. That's how shocking this incident was.</p>
+<p>When the sports day ended and I returned home, Taira Danjo and Taira Kanna were already at my place. Seriously, even if the Taira Group gave me this place they used as a hideout, isn't this too much of a privacy invasion? Actually, Sakagami Rena and Otagi Yuka and others come and go as they please, so I didn't really have anything to say to Taira Danjo. Still, with the Minamoto side crawling all over the place, is it okay for them to be at my house?</p>
+<p>"Shouldn't you not be here?"</p>
+<p>"Hmph, who dares to block my path? With Ushin here on the Minamoto side, they'll be too busy defending against any possible attacks to pay attention to us. And..."</p>
+<p>Taira Danjo stopped talking and looked at Taira Kanna. As if telling her to continue, Taira Kanna took over her grandpa Taira Danjo's words and explained to me.</p>
+<p>"The official story is that Father went to the restaurant in advance to wait, and I stopped by the house of my childhood friend, Yamashiro Ryuta, before going to the restaurant."</p>
+<p>Aha... So, someone disguised as Taira Danjo is waiting at the restaurant, and they've created a situation where only Taira Kanna came here.</p>
+<p>"Hmph! You fool. You just had to do your mission... Why did you get results as a teacher and attract attention?"</p>
+<p>Well, with this victory, I could definitely get attention. Still, Taira Danjo must have known there was a sports day, and that if a blonde tanned guy stood in front of the special class as a teacher, Minamoto Ushin might notice, whether the results were good or not, so she must have a plan. Still, this is the first time I've been scolded for doing well. You grumpy old geezer... Aren't you being too harsh?</p>
+<p>"How am I supposed to control it if the students do well? And speaking of attention, what about Kokoro-gomo bringing a camera?"</p>
+<p>"Father, don't bother my... no, don't harass my nephew-nim. Preparations are already complete."</p>
+<p>When I retorted to Taira Danjo's words, Taira Kanna stopped us as if mediating. As expected, she was a crazy old geezer who already had a solution but was trying to nag me.</p>
+<p>"Hmph, you won't give in until the end and talk back! Fine, as Kanna says, preparations are already complete. We've made it so that no matter how much Minamoto investigates, they'll think you're Yamashiro Ryuta."</p>
+<p>Because Sakagami Rena investigated separately and found out my identity, I contacted the Taira information team about how my identity might be revealed due to these and those things, but listening to Taira Danjo's story, it seemed like they had completely compensated for that part.</p>
+<p>Seeing this, the information team seems as important as the PMC in charge of force. I felt like I should create my own information team. I had quite a few sources to get information from... Thinking about it, I was quite well-equipped to create an information team.</p>
+<p>I could get information from the back alleys from Ryuto Construction Company, where Dangsowa is the president, online information from Oofuchi Erika, a VR diver, ordinary coverage from Shido Tsubaki, and if I wanted to know about one person or one group in detail, I could order Sakagami Rena.</p>
+<p>If I integrate these, it wouldn't be as good as the Taira Group's information team, but it seems like I could create a pretty useful information team... I should think about it.</p>
+<p>"What are you thinking about while your grandpa is talking?"</p>
+<p>"Ah, I was thinking that the information team is quite useful. I'm sorry."</p>
+<p>Without realizing it, I seemed to be too focused on creating a new organization. Taira Danjo made a slightly unpleasant expression but soon smiled.</p>
+<p>"Hehe, you wouldn't be thinking of having your own information team, would you? That's a difficult task, so don't even think about it now!"</p>
+<p>"But I can still think about it, right?"</p>
+<p>"Creating an information team is no ordinary task, so even if you just think about it, it will only be painful for you. Thinking about something you can't have is a painful thing."</p>
+<p>Still, I somehow feel like I can do it... This is also a good thing in its own way. It means that even the Taira information team doesn't know all of my forces.</p>
+<p>"Anyway, I've seen that you're doing well, so I'll be going now. Your grandma wants to see you, but I told her to hold back. Even if you can't come to the main house, at least video call her often."</p>
+<p>Taira Danjo didn't have anything else to say and was only stopping by to see my face, so she got up, ending with telling me to contact my grandmother, Taira Shizuku, often. Then, as if suddenly remembering something, she looked at me and opened her mouth.</p>
+<p>"Ah, even if it's not revealed that you're a Taira, that Minamoto Ushin guy cherishes that child Lisa very much, so he might act out of spite. Any father would be concerned if there was a slick-looking guy like you around his daughter."</p>
+<p>Hmm... Even if it's not revealed that I'm Taira Ryuta, it could be dangerous? Well, the way he looked at me during the awards ceremony was almost murderous. I haven't even done anything to Minamoto Lisa yet. Isn't this too much overprotection?</p>
+<p>Taira Danjo got into the car first, and Taira Kanna smiled and looked at me from the entrance.</p>
+<p>"Congratulations on being the best class today, Older Brother."</p>
+<p>"You're calling me Older Brother even here?"</p>
+<p>"My nephew-nim is older than me. There's no problem with calling you Older Brother."</p>
+<p>Still, it was fortunate that she called me nephew-nim in front of Taira Danjo. If she had called me Older Brother there too, we would have both been scolded.</p>
+<p>"Father is waiting, so I'll go. You'll be able to receive the prize for the best class around next week."</p>
+<p>"There was a prize too?"</p>
+<p>"Yes. I'll go now, Older Brother..."</p>
+<p>Taira Kanna looked at me with her slightly scary, empty eyes and waved her hand. I also waved back and saw her off. Now that she's gone to eat, I should eat something too. As I was wondering what to eat, the door burst open. It was Sakagami Rena, Otagi Yuka, and Saionji Diana.</p>
+<p>"We thought a guest had come, so we were waiting outside until they left."</p>
+<p>"The other students are eating with their families, but the three of us don't have family coming today."</p>
+<p>"So, we came to have dinner with Master."</p>
+<p>Ah, I see... Otagi Yuka had cut ties with her family during the FSA attack, Saionji Diana had been neglected by her family since the accident where her leg was cut off, and Sakagami Rena's relationship with her family wasn't bad, but she had become independent while serving me as her master. So, unlike the other students, they didn't have family to have dinner with today.</p>
+<p>"Come on in. I'm hungry too, so let's eat something delicious. We decided to be together after graduation, so we can truly call ourselves family."</p>
+<p>All three of them seemed quite touched by my words about family. I felt embarrassed for no reason and let all three of them in.</p>
+<p>"You must be hungry from exercising, right? What do you want to eat?"</p>
+<p>"Um... Teacher-ssi?"</p>
+<p>"Master?"</p>
+<p>"Teacher-nim...♥"</p>
+<p>Maybe it's because they were touched by me earlier, but they all seemed quite horny. All three of them are choosing me as the dinner menu. No, I'm not something to eat. First of all, even if I were to do it, I had to replenish my calories first. I wanted to satisfy my appetite before my lust. I was hungry because I had a lot to worry about today, so I was stressed.</p>
+<p>"Let's eat dinner first, and I'll eat you as dessert~!"</p>
+<p>All three of them burst out laughing at my tone, as if I were appeasing a kindergartener. We looked at each other and laughed, then started choosing the dinner menu.</p>
+<p>###</p>
+<p>A high-end restaurant in Miyashi. Minamoto Ushin, Minamoto Lisa, and Seizawa Shii were eating at one table. It was a high-end restaurant that offered steaks made with the finest Wagyu beef and lobsters as big as forearms, but Minamoto Ushin had chartered it, so there were only three customers.</p>
+<p>"Shii, is Lisa doing well in school?"</p>
+<p>"Lisa is doing great~! She's not skipping school or leaving in the middle like she used to. Uncle also saw Lisa's ranking, right?"</p>
+<p>When Minamoto Ushin asked Seizawa Shii as if probing, she told him that Minamoto Lisa was doing well, as if asking why he was asking such a thing. Of course, Minamoto Ushin knew Minamoto Lisa's affairs well, so he was just asking if there was anything he didn't know.</p>
+<p>"Thanks to Shii, our Lisa is doing well, so tell me if you ever want anything. This uncle can grant most things."</p>
+<p>"Eii~! I don't even receive anything from my dad, so I like it when Uncle buys me delicious things like this sometimes~☆"</p>
+<p>Despite Minamoto Ushin's favor, Seizawa Shii said it was okay and cut a large lobster butter grill and put it in her mouth. Minamoto Ushin looked at Seizawa Shii and opened his mouth again.</p>
+<p>"What kind of guy is the new homeroom teacher? He's not a bad guy like the previous homeroom teacher, right?"</p>
+<p>"Ah, Ryuta-cchi? Ryuta-cchi isn't a human trash like the previous homeroom teacher. No, you could even say he's a good teacher. Anyway, there's only about half a semester left, so do you really need to worry about Ryuta-cchi?"</p>
+<p>As Seizawa Shii said, it's already November, so Minamoto Lisa doesn't have much time left at the academy. Unlike the 2nd and 1st graders, the 3rd graders at St. Francis Girls' Academy didn't take classes until February of next year, when the semester ended.</p>
+<p>Students who were going to St. Francis Women's University only took classes until December, and the remaining students who were going to other prestigious schools prepared for the center exam or prepared to study abroad separately after December.</p>
+<p>"Hmm...."</p>
+<p>Minamoto Ushin nodded, saying hmm. He nodded, wondering if he didn't need to investigate separately since there were only two months left.</p>
+<p>"That's right. There's nothing particularly suspicious about the teacher. He doesn't have a gloomy feeling like the previous homeroom teacher."</p>
+<p>Minamoto Lisa said to Minamoto Ushin with a calm attitude and cut the steak. Then, she took the steak she had cut with a fork and handed it to Minamoto Ushin.</p>
+<p>Minamoto Ushin received the steak from Minamoto Lisa with a happy expression. He liked this kind of aegyo that Minamoto Lisa did from time to time. She was also his most cherished daughter and looked similar to the person Minamoto Ushin had loved the most in his life.</p>
+<p>"It's delicious. Is there anything you want, Lisa? You've achieved something so outstanding that it will go down in the academy's history, so I'll grant you something."</p>
+<p>"Then...."</p>
+<p>At Minamoto Ushin's words, Minamoto Lisa opened her mouth as if she had made up her mind.</p>
+<p>__________</p>
+<p>I changed Taira Kanna's model.</p>
+<p>Please give a lot of love to Student Council President Kanna-chan too~! Hehe</p>

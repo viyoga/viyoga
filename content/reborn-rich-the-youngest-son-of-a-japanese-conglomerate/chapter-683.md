@@ -5,88 +5,74 @@ weight = 683
 chapter = 683
 +++
 
-<p>I heard the sound of several people coming down the stairs to the basement. Seizawa Shii sighed as the anxiety she felt turned out to be true.</p>
-<p>,Haa.... K, why did you have to betray me? We were doing so well.</p>
-<p>,I was too tired of finding your picky requests.... Anyway, you're leaving Miyashi when you graduate, so I can't broadcast anymore, right? I was thinking of making some serious money before that.</p>
-<p>In the end, the reason for the betrayal seemed to be money. Seizawa Shii was an excellent fixer, but she had her own standards for accepting missions, so she couldn't handle many.</p>
-<p>Of course, K couldn't broker many jobs, so he couldn't make much brokerage fee, and to top it off, when Seizawa Shii graduated, she would be working somewhere other than Miyashi, so he wouldn't be able to collect even that brokerage fee, so he was trying to make a lot of money for the last time.</p>
-<p>Seizawa Shii glanced at the source of the footsteps. Anya Order monks in black robes were coming down one by one to K's brokerage office.</p>
-<p>,Hoo.... You know the price of betrayal, right?</p>
-<p>,Kekeke.... You mean the price of a 'failed' betrayal.</p>
-<p>K answered with a sneer at Seizawa Shii's words. A successful betrayal meant that the other party could not hold him accountable, so if the Anya Order monks gathered here won, he would not have to pay the price of betrayal to Seizawa Shii.</p>
-<p>,I just came to check the magic....</p>
-<p>The woman in the Oni mask said, looking embarrassed as she watched the Anya Order monks come down the stairs. Judging by the slight trembling in her voice, she didn't seem to have much combat experience.</p>
-<p>,Do you think those guys will let a witness live? Help me if you want to live too.</p>
-<p>,Hoo... Alright.</p>
-<p>Seizawa Shii's words were not wrong, so the woman in the Oni mask sighed and nodded.</p>
-<p>There were already about fifteen Anya Order monks who had come down to the basement. Seizawa Shii didn't let the opponent prepare any further and rushed at the monks as if she were bouncing off.</p>
-<p>The woman in the Oni mask reached out to Seizawa Shii and cast some kind of spell on her, which increased her defense and also increased her physical abilities.</p>
-<p>,Oh! Thank you!</p>
-<p>Seizawa Shii, feeling her body lighten in an instant, shouted and swung her fist at the Anya Order monk in the front.</p>
-<p>Kwadeudeuk!</p>
-<p>With a chilling sound, the Anya Order monk's skull shattered. Seizawa Shii was already excellent in physical abilities, but she was buffed with auxiliary magic, so each of her gestures had a deadly power, like a tiger with wings.</p>
-<p>,Surround her, everyone!</p>
-<p>,Kill her!</p>
-<p>In an instant, Seizawa Shii was swept away into the black robes. If it were an ordinary person, they would be quickly swept away if they fought so many people alone, but Seizawa Shii was no ordinary person, but the infamous fixer Ogre from the underworld.</p>
-<p>,Kkeuaaa!</p>
-<p>,Shit!!</p>
-<p>Peoeok, Kwadeuk! Along with the chilling sound of bones breaking, screams close to screams echoed in the basement. Blood splattered here and there, turning K's brokerage office, which was already dark and had a bad atmosphere, into a place where a chilling mass killing took place.</p>
-<p>,Kkeureureuk.... Keok!</p>
-<p>As the last Anya Order monk with a broken neck fell, Seizawa Shii turned around with a refreshing smile. Normally, Seizawa Shii's smile, as a beautiful girl, would be quite pleasing to the eye, but smiling with her whole body covered in blood made her look very chilling.</p>
-<p>,No matter how famous the Anya Order is, they can't stop me with just their mooks. Now, shall we receive the price of betrayal?</p>
-<p>,I, I'm sorry! O, Ogre...! I was actually threatened too!</p>
-<p>K, who was receiving Seizawa Shii's murderous aura, trembled and begged. Seizawa Shii didn't answer and slowly approached, maintaining her smile.</p>
-<p>,Jenzaaaaaang! Dieeeeee!</p>
-<p>As Seizawa Shii approached, K took out a hidden pistol and started firing wildly, tang tang tang tang!</p>
-<p>Seizawa Shii, who had experienced countless of these last struggles while doing various requests as Ogre, had already expected it. She dodged and approached K's wrist in an instant.</p>
-<p>Woodeudeuk!</p>
-<p>With the sound of bones breaking, the gun falls to the floor.</p>
-<p>,I didn't intend to break your hand, but this is your fault?</p>
-<p>Seizawa Shii said softly and covered K's face with her hand.</p>
-<p>Kwadeuk...! Kwadeuk!</p>
-<p>Along with the sound of something small breaking, Seizawa Shii's fingers were piercing and digging into the skull.</p>
-<p>K, who couldn't even scream because his face was covered, flailed his arms and legs, and died as Seizawa Shii's fingers dug in about one and a half joints.</p>
-<p>,I trusted you.... Goodbye, K.</p>
-<p>Seizawa Shii muttered softly and approached K's secret vault, which she knew about. If you remove the table on one side, there was a vault on the floor.</p>
-<p>Kwadeudeuk!</p>
-<p>As expected, Seizawa Shii tore open the vault door with her strength, took a bag from inside the brokerage office, and took the money, documents, and gold bars from inside the vault. Then she approached the woman in the Oni mask.</p>
-<p>,Here, I'll give you extra money because you helped me with something that wasn't originally discussed.</p>
-<p>Seizawa Shii takes out two bundles of 10,000 yen bills and hands them to the woman in the Oni mask. Because she grabbed the bundles of money with her hands covered in blood and brain fluid, the bundles of money were also covered in blood and brain fluid.</p>
-<p>,...Ah, thank you?</p>
-<p>The woman in the Oni mask received the bundles of money with slightly trembling hands. It was natural for her to tremble because she had seen a human weapon turning a dozen people into minced meat in an instant.</p>
-<p>,Now, let's go our separate ways. I'll contact you if I need support next time.</p>
-<p>,I understand.</p>
-<p>The woman in the Oni mask nodded, regaining her senses. In fact, giving two auxiliary spells and receiving two million yen was a very profitable mission. It was a bit scary, but she was thinking of not refusing if she received another request next time.</p>
-<p>Of course, it wasn't the original mission to figure out if the magic was cast, but she knew very well that it was an unavoidable situation because she was next to Seizawa Shii.</p>
-<p>As she walked up the stairs, she saw the moon and the night sky floating high. Was it already this late?</p>
-<p>Seizawa Shii got on her bike that she had parked in front of the fixer brokerage office.</p>
-<p>As soon as she sat on the bike, she was bothered by her blood-stained rider suit.</p>
-<p>,I need to wipe the handle and the chair.... Also, I need to wash the suit and wash Ryuta-ssi's clothes and return them, so I need to stop by the laundromat today.</p>
-<p>Seizawa Shii muttered, started the bike, and headed to her house. She met Yamashiro Ryuta with a high probability every time she stopped by the coin laundromat, and she was curious if she would be able to meet him this time as well.</p>
-<p>###</p>
-<p>After eating a delicious dinner at the Kujo family, we decided to go straight home. Everyone was tired from the sudden battle, so we decided to rest at home.</p>
-<p>I dropped off the rest of the students except for Urabe Konoka, who had brought her car, in front of their houses, and finally arrived at my house.</p>
-<p>,I'm a little tired.</p>
-<p>After parking the car, I came into the house and unconsciously muttered that I was tired. I took off the dobok I was wearing as I entered the shower room. The dobok was quite dirty because it was stained with my sweat, Kai Shu Kakan's blood, and the blood I coughed up.</p>
-<p>I just got this new one, but it got dirty right away, so it was true that you never know what will happen in the world. I need to take a shower and go do laundry. I'm tired, but if I don't wash blood stains quickly, they won't come off easily....</p>
-<p>I took a shower in hot water and came out. Still, washing my body in warm water made me feel like the fatigue was washing away with it. I came out of the bathroom, dried my hair and body, put on some simple clothes, picked up the laundry basket, and headed to the coin laundromat I usually go to.</p>
-<p>As I walked a little on the night streets, I saw the coin laundromat with the lights on. Seizawa Shii was sitting inside the laundromat as expected. I had a feeling she would be there....</p>
-<p>Seizawa Shii was eating potato chips, wajak wajak, with a slightly spaced-out expression.</p>
-<p>Deureureuk.</p>
-<p>,Seizawa.</p>
-<p>As I opened the sliding door of the coin laundromat and called out to Seizawa Shii, Seizawa Shii was startled and turned to look at me.</p>
-<p>,Ryuta-ssi?!</p>
-<p>,Yeah. I came to do laundry.</p>
-<p>When I answered, holding up the laundry basket, Seizawa Shii looked at me with a slightly suspicious expression.</p>
-<p>,Ryuta-ssi, did you install a hidden camera in this laundromat? How can you come to the laundromat every time I come?</p>
-<p>,A hidden camera.... It's just that the timing worked out well. It could be because our lifestyles are similar.</p>
-<p>I'm probably the most hidden camera victim in Japan. You shouldn't be talking to me about hidden cameras.</p>
-<p>,Hmm.... Is that so?</p>
-<p>,But why are you eating potato chips?</p>
-<p>,I didn't eat dinner. I'm hungry....</p>
-<p>I see. I put the laundry in the washing machine, sat next to Seizawa Shii, and took the potato chips that Seizawa Shii was eating and ate them.</p>
-<p>,Hey~! I told you I didn't eat dinner.</p>
-<p>,Potato chips aren't dinner. Let's do laundry and eat dinner somewhere together.</p>
-<p>Somehow Seizawa Shii's expression didn't look good, so I suggested that we eat dinner together, and Seizawa Shii started to sob and tear up as if my worried heart was conveyed.</p>
-<p>_______</p>
-<p>Bloody Shii!</p>
+<p>MONA-RISA: It's all sorted out. From now on, there won't be any more trash attached to me using my marriage as an excuse.</p>
+<p>After a boisterous meal with the remaining students, my phone rang as I was heading somewhere, and it turned out to be Minamoto Risa. She's gotten hooked on chatting with this encrypted app. At this point, I wonder if we could just use LINE.</p>
+<p>Ryuta: That's good. Did anything come up about Sugawara Chohei being murdered?</p>
+<p>Just in case, I asked Minamoto if they knew the truth about Sugawara Chohei's death.</p>
+<p>MONA-RISA: Nope. Everyone thinks it was an accident. You haven't forgotten our date on the 24th, have you?</p>
+<p>As expected, unless you suspect murder using psychic powers from the start, it's just an unfortunate accident, so even the Minamoto Group wouldn't be able to tell it was murder using telekinesis.</p>
+<p>Ryuta: Of course not. If we're going to hang out on Christmas Eve, we should probably make reservations in advance. Where do you want to go?</p>
+<p>MONA-RISA: We've hung out a lot in Miyashi, so how about Tokyo?</p>
+<p>I had to go to Korea right after hanging out with Minamoto Risa anyway, so going to Tokyo and heading straight to the airport would be pretty good.</p>
+<p>Ryuta: Sounds good. Let's hang out in Tokyo.</p>
+<p>MONA-RISA: Okay~. You have a good vacation too. I think I'll be busy preparing for college.</p>
+<p>Minamoto Risa was studying hard to get into Edo University, the best university in Japan. She was ranked second in the entire school in the last exam, the second semester exam, so she was skilled enough to go to Edo University.</p>
+<p>Being ranked second in the entire school at St. Francisco Girls' Academy, which could be considered a prestigious school, was a pretty good score.</p>
+<p>In fact, St. Francisco Girls' Academy, where you could naturally advance to St. Francisco Women's University, didn't really have an atmosphere where people studied that hard.</p>
+<p>However, there were many daughters of prestigious families who valued education, so the top students aimed for studying abroad or prestigious universities in Japan, so the level was by no means low. No, rather, the prestigious college prep class had intensive classes with excellent teachers prepared through enormous capital, so the level could be considered the top in the country.</p>
+<p>Ryuta: You have good grades, so you can definitely do it. Don't forget that I'm always cheering you on, and let's hang in there a little longer.</p>
+<p>MONA-RISA: Okay, thank you.</p>
+<p>I finished chatting with Minamoto Risa on the encrypted app and put my phone away. I was walking while chatting, and I've almost arrived. Today was the Jeseodang's information report.</p>
+<p>I had requested some information, so I was heading to a temporarily prepared conference room with Naruse Shiyo, Alik, Otagi Yuka, and Saionji Diana to hear the report on the first investigation.</p>
+<p>For reference, Sakagami Rena couldn't make it because she had a family gathering in the evening. Sakagami Rena was one of the executives of the Jeseodang, but she said she was going to see her family after a long time, and since Asada Ei would give the overall report anyway, I sent her to her family.</p>
+<p>"Sensei~! That's the building!"</p>
+<p>Naruse Shiyo pointed to a slightly old three-story commercial building. We rented the office for just one day for the information meeting. I gave the building owner three days' rent for renting it for one day, and he readily agreed.</p>
+<p>The office we rented was an empty office on the third floor. When I went inside, Asada Ei, the information agent of the Jeseodang and the one who was practically leading the Jeseodang, was waiting for us.</p>
+<p>Asada Ei, with her very light bluish-ice-colored hair, pale skin, and expressionless face, bowed her head to me.</p>
+<p>"Ryuta-nim, have you arrived? I checked in advance to see if there were any bugs, and it's clean."</p>
+<p>As winter came and the temperature dropped, Asada Ei, a snow woman, was able to be more active, so we had a face-to-face meeting instead of a hologram meeting.</p>
+<p>There was no way there would be any bugs, but I still had to check. Security was important because sensitive information could come out during information meetings.</p>
+<p>"Ei-ssi, have you eaten?"</p>
+<p>I sat in the seat of honor and asked Asada Ei. Asada Ei nodded with a slightly cold expression, as befitting a snow woman.</p>
+<p>"I'll give you the report first."</p>
+<p>"Yes."</p>
+<p>"I'll start with the investigation into Takakusaki Athena that you ordered first."</p>
+<p>Takakusaki Athena suddenly appeared in Anyaji, and I was curious about the origin of Takakusaki Athena's ability to suppress the Abyss, so I used the Jeseodang to investigate.</p>
+<p>"First of all, we couldn't track down Takakusaki Athena. The Jeseodang judges that she has a psychic power to hide her presence."</p>
+<p>"I also got the impression that she had a vague presence when I saw her at the dojo that time. Is that a psychic power?"</p>
+<p>Otagi Yuka agreed with Asada Ei and added to the story. Personally, I didn't feel like I couldn't feel her presence or that she had a vague presence. Is it because of the Abyss I have?</p>
+<p>When I nodded as if to tell her to continue, Asada Ei opened her mouth again.</p>
+<p>"So, instead of chasing Takakusaki Athena, we decided to find out about Takakusaki Athena herself first. If you look here...."</p>
+<p>The screen that Asada Ei displayed was Takakusaki Gengo's family register. The name of Takakusaki Athena, which was written as adopted below Takakusaki Gengo, was written there.</p>
+<p>"The registration date is 2040, during the Third World War. It says that Takakusaki Athena, who was 8 years old at the time, was adopted."</p>
+<p>2040 is 13 years ago.... Then her actual age is 21? She's one year older than me.</p>
+<p>"And if a foreign girl was adopted, I thought there would be a record of her going abroad, so I checked the flight records at the time, but it didn't come out."</p>
+<p>"Then was she adopted by a Japanese organization?"</p>
+<p>"That's not it. As a result of comparing the data of adoption organizations in Japan at the time with the data from when Takakusaki Gengo adopted Takakusaki Athena, no data was found."</p>
+<p>According to Asada Ei, Takakusaki Athena is an adopted child who fell from the sky, but does that make sense?</p>
+<p>"That's strange."</p>
+<p>"We thought so too, so we investigated from a different angle. When I checked Takakusaki Gengo's data, this data came out."</p>
+<p>Asada Ei said she thought the same when I said it was strange, and she showed another piece of data on the screen. It was a document with a red stamp that read Level 2 Secret, and the document had a picture of Takakusaki Gengo, stating Takakusaki Gengo, Deputy Commander of the Special Task Force (特殊任務団).</p>
+<p>"Takakusaki Gengo seems to have been working for the government doing assassination missions during the World War. He has a martial arts skill that can be called psychic power, and he doesn't need a gun to kill people, so the Japanese government seems to have killed those who expressed opinions against the Japanese government in enemy or allied countries."</p>
+<p>I didn't know that Takakusaki Gengo was from the government. I thought he stole Senkaiyatsude and locked himself in a mountain to practice martial arts, but it seemed that he had been traveling around the world, killing people with martial arts and honing his skills.</p>
+<p>As expected, it was a move worthy of the leader of Anyaji. Honing his martial arts by killing people.</p>
+<p>"Since his activity period is until 2041, it seems that he left the Special Task Force not long after adopting Takakusaki Athena. This is all the data we have investigated so far."</p>
+<p>"You've investigated quite a bit in a short amount of time. Thank you for your hard work."</p>
+<p>I didn't get the information I asked you to find out, but it was pretty amazing to gather this much information in just a week.</p>
+<p>"We haven't collected all the information Ryuta-nim ordered yet, so we will continue to track the information."</p>
+<p>"Yes, please continue to track it. Then what's the next information...?"</p>
+<p>"Then I will explain the trends of the Taira successors that you requested second."</p>
+<p>The second semester ended today, and the third semester was even shorter, so the time for me to leave St. Francisco Girls' Academy was approaching. So now I needed to know how the succession structure within the Taira family was going.</p>
+<p>That's why I asked the Jeseodang to investigate. Investigating the Taira Group itself could be a bit dangerous, but figuring out the trends of the successors was easy enough, so I decided to dig into that.</p>
+<p>"First of all, Taira Jiro, who unknowingly joined hands with Minamoto Group's Kanzawa at the last Human Resources Development Center, has been lying low for a while and has started working again. He has been confirmed to have regained his position as president of Taira Steel, which had been temporarily taken away, by consolidating his power and successfully completing several missions for Taira Danjo-nim."</p>
+<p>Taira Jiro, who was about to be completely eliminated from the succession structure because he was initially deceived by the Minamoto spy, showed his skills and seemed to have returned to the axis of the succession war.</p>
+<p>"Since he is Taira Jiro who owns steel, he may reach out to Ryuta-nim, who owns Hatake Mining, and ask for cooperation. Or...."</p>
+<p>"If I'm easy, he'll try to swallow the entire Mithril mine."</p>
+<p>Taira Jiro had no choice but to approach me because he had a steel company. As I own the largest Mithril mine in Japan, he had no choice but to covet it. Of course, whether we cooperate or fight will depend on what Taira Jiro does, but I was thinking of cooperating first.</p>
+<p>Because Taira Ichiro's power was so great, I thought it would be better to oppose Taira Ichiro rather than fight unnecessarily.</p>
+<p>"That's right. Hiding your power is a good way, but you need to show enough power that the other person can't ignore you."</p>
+<p>"Let's think about that later at the general meeting."</p>
+<p>Of course, I was thinking of revealing some things. But I hadn't decided how much of my power to reveal, so I decided to decide on this topic later after a meeting with all my close aides.</p>
+<p>____</p>
+<p>Asada Ei</p>
+<p>Kkigyok!</p>

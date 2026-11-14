@@ -5,5 +5,104 @@ weight = 282
 chapter = 282
 +++
 
-<p>"....So what's the Method Grandfather has in mind? You must have something more detailed than just a Blond Tanned Guy disguise, right?" Thinking about it, a disguise alone wouldn't be enough. There must be a more detailed approach.... I was curious what it was. And I was convinced that since Taira Danjo Grandfather had specified a period of six months, there must be something certain. "Yes, there is." "As the one directly doing it, I'd like to know the details?" At my Words, Taira Danjo Grandfather chuckled, kheu-heu-heu. "Don't think so hastily. First, I'll tell you the background of this matter." According to Taira Danjo's Story, Minamoto Risa was attending a place called St. Francisco Girls' Academy, where only daughters of Japan's ultra-Upper class attended. For reference, my Aunt, Taira Kanna, who was younger than me, was also attending the same St. Francisco Girls' Academy. St. Francisco Girls' Academy was a school founded by the Daigo Family, a branch family of the Ichijo Family, a famous noble Family in Japan, and it was quite isolated from the outside world. St. Francisco Girls' Academy was a well-known and renowned Agassi Middle-High Integrated School (a 6-year educational program combining middle school and high school, often called an escalator school where students automatically advance from the middle school division to the high school division once admitted). It was primarily for laypersons. Students who entered the middle school division could potentially continue all the way to St. Francisco Women's University, a university run by the Daigo Family. Of course, Students with excellent grades would go on to prestigious universities like Edo University, but perhaps because it gathered Female Students from the Upper class and operated on an escalator system, most Upper class Female Students were said to attend St. Francisco Girls' Academy. "You said it's a closed school, isolated from the outside?" Yes, unlike St. Francisco Women's University in Tokyo, St. Francisco Girls' Academy is located in Miyashi, west of Mount Fuji. Ah, Miyashi. I heard it was a recently established City with a short History, but it was called a Villa City because of the many Villas owned by the Japanese Upper class. That's why I heard the Security was incredibly strict. It was a City where Outsiders might be stopped and questioned by the police three or four times a day, and it might be even more so because of St. Francisco Girls' Academy. After all, the daughters of the Upper class would be tempting Prey for kidnappers. "Somehow, the more I hear this Story, the more difficult the Difficulty feels?" "Yes, if you go there as a Layperson, that would be the case." If I were to go to Miyashi without revealing my Status as the Youngest of the Taira Family, it was obvious I would constantly be stopped and questioned by the police. In that case, Taira Danjo Grandfather must naturally have a Plan. "Now, check the document Bag." At Taira Danjo's Words, I opened the document Bag placed in front of me and checked the documents inside. The documents contained a Person's name and alma mater, but the name was.... a bit peculiar. Yamashiro Ryuta (山城 竜太).... The surname is Yamashiro, so why is my name listed here? Age: twenty-five, born in 2028.... Graduated from Kanto University, Faculty of Education.... Subject: Second Foreign Language, Korean language.... The more I read it, the more it seemed like someone similar to me. When I, having roughly read the documents, looked at Taira Danjo, Taira Danjo was wearing a Sly Smile. "Kheu-heu-heu, if it's difficult for a Layperson to Infiltrate, then just go in as a Teacher. Since you're good at Korean language, you can go in as a Korean language Teacher." "No, just because I'm good at Korean language doesn't mean I can teach Korean language well!" I was only thinking of a School Security Guard, but Taira Danjo surpassed my Imagination. To go in as a Teacher.... And for the absurd Reason that I was good at Korean language, he was telling me to go in as a Korean language Teacher. "Of course, since there's still a long Time until the start of the semester, you'll just have to put in the Effort for the teaching Method. Or, for the class, you can just read the data we've prepared." Taira Danjo's Words reminded me of some Teachers who, before Possession, simply read straight from the Book during class. I used to Curse them back then, but now I was in a Position to become such a Teacher. "And if you focus on conversation-based classes, it won't be that difficult." This irresponsible old man. You need to know how to teach conversation too. Taira Danjo, unconcerned by my Glaring Eyes, continued his Story. "With the Power of our Family, I plan to put you in the special class where Minamoto Risa is." "What's a special class?" Special class? Just hearing the name, it was a class I couldn't Guess at all. Usually, a special class in a School would make one think of a class for Students with Disabilities. "It's a class where Guys who have been Held Back a Year, are physically weak, or have other Reasons are gathered. The Class Teacher of that class recently resigned due to an unfortunate Incident, so it should be easy for you to become their Class Teacher." So, in a Word, it's a class full of Troublemakers. Minamoto Risa was said to be 20 years old, the same Age as me, so she must have been Held Back a Year and is in that special class. Taira Danjo's Words made me feel a growing Headache. "But Kanna, who will be attending there.... Aunt, what should I do? Should I pretend not to know her?" Suddenly, I thought of my Aunt, Taira Kanna, who was younger than me and would be attending St. Francisco Girls' Academy, and asked. I would have to go disguised as the Person named Yamashiro Ryuta in these documents, but I didn't know if Taira Kanna had been informed. If Taira Kanna suddenly called me Nephew-nim, everything would fall apart. "There's still a long Time until the start of the semester, why are you worrying? I'll take care of telling Kanna in advance, so don't worry." "There's one more thing. The Minamoto side must also have an Information Faction, so if this Person named Yamashiro Ryuta suddenly appears, they'll feel something is strange, won't they?" The Minamoto side wouldn't be inferior to the Taira Group, so they might suspect this Person named Yamashiro Ryuta who suddenly appeared. At my Words, Taira Danjo waved his Hand as if to say not to worry. "Just as the Minamoto side troubled us during the Kurotsukidoo Incident before, we will make the Minamoto side frantic around the Time you appear, so don't worry. A War might break out between us right away, so would they care about just one Teacher?" Ah, it seemed he meant we would use a similar Method to when the Minamoto side intervened during the War between Kurotsukidoo and Taira Foodstuff, preventing the Taira Group from helping Taira Foodstuff. My Questions were mostly answered, but the most important part of this Story still remained. It was an absurd Story, but there was a Reason I kept listening. It was the Reward for this Work. As it was a six-month Project, there seemed to be quite a large Reward. If the Reward wasn't substantial, I planned not to do it. "Naturally, since you're putting in six months of Effort, you'll give a big Reward, right?" "You bastard! Do I look like someone who would use you without giving a Reward? Of course, if you succeed, I will give you a big Reward." When I kept looking at Taira Danjo with a 'What's that big Reward?' Gaze, Taira Danjo opened his Mouth with a displeased Expression. "If I say I'll give a Reward, you should trust and accept it. To Pressure this old man with such strange Glaring Eyes until the end, who do you take after...?" "Since I'm Grandfather's Bloodline, I must resemble Grandfather." At my Words that I must resemble Taira Danjo, he seemed slightly pleased, raising the corners of his Mouth slightly, then Taira Danjo began to state the Reward. "I will entrust Taira Food distribution to you." Taira Danjo's Words meant entrusting me with one of the Taira Group's many Affiliate Companies. I thought he would just give me some Money or Stock, but to entrust an entire Affiliate Company. I could tell how seriously Taira Danjo was taking this Work. From the perspective of having studied the Affiliate Companies in advance, Taira Food distribution was a company that connected Nagumo Sian's Taira Foodstuff, Taira Kokoro's Taira Department Store (where she was Boss), and Taira Ichiro's Taira Bussan, possessing a nationwide distribution network. It was similar to Taira Logistics, which had a nationwide Delivery System, but it only distributed Foodstuff, so it wasn't a large Affiliate Company. Entrusting an entire Affiliate Company to me, a mere 20-year-old, was a very significant Matter. It was the same as giving me the Qualification to become a Successor to Taira Danjo Grandfather. It meant that I, too, could soon step into the Taira Group's Successor War. Even if it was a bit difficult now, in six months, my Power would grow even greater, so it would be worth a try. "Of course, that's only if you succeed in this Work." "This much is worth working hard for." At Taira Danjo's Words, I grinned and rose from my Seat. I collected the documents containing Yamashiro Ryuta's personal Information. "Go and receive the data from Fumimoto, who is waiting Outside." "Yes." Rising from my Seat and leaving the Official Duties Room, Taira Danjo's Secretary, Fumimoto Takayuki, was standing there holding a shopping bag. The shopping bag was full of Books and documents. It looked quite heavy, didn't it? More than that, having to read all of this was Frustrating, but I had no intention of taking it out on Fumimoto Takayuki. "Here are the data, Young Master. There are materials regarding Korean language classes and St. Francisco Girls' Academy, among others. And you should visit the Yamashiro Family as quickly as possible, if possible." It seemed he was referring to the Yamashiro Family of Yamashiro Ryuta. This implied that they were a Family respectable enough for him to enter St. Francisco Girls' Academy, a school for Agassi, as a Teacher.... I'll have to find out more when I get Home. "Understood for now. Excuse me, but could you make an Appointment with the Yamashiro Family?" "Of course. Ah, Shizuku-nim said to tell the Young Master to visit her before she leaves." Taira Shizuku? Surely she's not planning to feed me a ton of wagashi again, is she?</p>
-<p>20-year-old High School Students Otagi Yuka, the Vampire I met in the USA Konoe Akina, who possesses Maan</p>
+<p>I woke up to the sound of snoring. Lianna Holden was using my left arm as a pillow, snoring softly. On my right, Sawayanagi Azuma was sleeping soundly, and Mimata Chieri was curled up at my feet. What is she, a cat...?</p>
+<p>I found my phone and saw that it was already 11 o'clock. It was about time to gather for lunch. I guess I got a decent amount of sleep since I was fucking until sunrise today.</p>
+<p>Everyone seemed to be slowly waking up as I fidgeted to look at my phone.</p>
+<p>"Haaam...! Seeing honey's face from the morning makes me horny."</p>
+<p>I chuckled at Lianna Holden's old man-like comment. Sawayanagi Azuma also stood up and stretched her arms to the sky, and Mimata Chieri stretched in a cat-like pose. Did she hear me call her a cat earlier? That's amazing.</p>
+<p>"We'll go down first, so Investor-nim, please come down a little later."</p>
+<p>The three of them left the room, and I also got up and stretched. Then I went to the bathroom to wash up and went down to the dining hall.</p>
+<p>Everyone seemed to have drunk a lot yesterday and had a bad hangover, with messy hair and touching their heads because of headaches.</p>
+<p>"Ryuta, you're such a late sleeper."</p>
+<p>"Haha, sorry, I drank a lot yesterday."</p>
+<p>Alik, who hadn't drunk at all yesterday, scolded me for sleeping in, looking perfectly fine. I smiled and stroked Alik's head.</p>
+<p>Alik seemed to enjoy being petted, closing his eyes and enjoying my touch.</p>
+<p>"This little cat named Alik is quite agile. I gave him some pointers during morning training."</p>
+<p>Fujigasaki Rinka, wearing a tracksuit, came into the dining hall while talking to me. She seemed to have washed up after morning training, shaking her hair with a towel as she came in. She shook her head so vigorously that water droplets splashed on me.</p>
+<p>"Ah, you're splashing everywhere, Master! Dry off before you come!"</p>
+<p>"Kyahaha! Think of it as this Master's droplets of love!"</p>
+<p>"What the hell are droplets of love?"</p>
+<p>Anyway, Fujigasaki Rinka giving Alik training meant that Alik had some talent.</p>
+<p>While I was talking with Fujigasaki Rinka, everyone gathered in the dining hall, and for lunch, we had ochazuke, a dish eaten in Japan to cure hangovers. It was topped with luxurious toppings such as umeboshi, salmon, pollack roe, and katsuobushi.</p>
+<p>Of course, since I wasn't drunk, I quickly finished my ochazuke and got another bowl from the guesthouse owner. I had to replenish my calories since I had been moving my waist non-stop from last night until dawn.</p>
+<p>"After finishing your meal, rest for about thirty minutes, and then we'll play in the valley today. If you're going to play in the water, wear your swimsuits."</p>
+<p>Sawayanagi Azuma announces today's schedule and goes up to her room. She's probably going to change into her swimsuit. I'm going to get an eyeful today.</p>
+<p>I also went up to my room, put on the trunk-type swimsuit I wore on vacation with Yukiko, and came outside.</p>
+<p>When I went down to the valley, there were several people playing in the water because it was a summer Sunday.</p>
+<p>"Ryuta~!"</p>
+<p>Alik, wearing a one-piece swimsuit, ran to me. Alik was wearing a navy blue one-piece swimsuit with a design like a school swimsuit, and he had a surprisingly voluptuous figure. I could feel him slowly growing. I didn't raise him, but I felt proud to see him growing up.</p>
+<p>"Mari-chan chose it for me."</p>
+<p>"It's pretty, Alik."</p>
+<p>"...Ryuta is pretty too."</p>
+<p>Alik said, turning around in front of me. It was indeed a swimsuit that suited the cute Alik. He was very happy when I said it suited him well.</p>
+<p>Kiyona Mari seemed to be no exception, coming down with her sister Kiyona Hori when her story came up.</p>
+<p>The Kiyona Hori and Mari sisters, in their gothic lolita style with lace, were wearing white and black swimsuits, respectively.</p>
+<p>Well, they were wearing things that suited them, probably because they were interested in fashion. Kiyona Hori's chest size was overwhelming, but Kiyona Mari was also wearing a swimsuit that suited her.</p>
+<p>"I-It's not like I wore it for the investor...!"</p>
+<p>"How is it, Investor-nim?"</p>
+<p>"You both look great."</p>
+<p>I gave the two sisters a thumbs up and told them they looked great. They blushed and liked my compliment.</p>
+<p>Soon after, Mimata Chieri, in a red bikini that matched her orange hair, and Sawayanagi Azuma, in a green bikini, came down.</p>
+<p>Of course, men came down in between, but I didn't have enough time to describe the men's swimsuits, so I just skipped it.</p>
+<p>"Ehehe, Ryuta-nim...!"</p>
+<p>Konoe Akina came down wearing a white bikini, hooked her arm around mine, and pressed her chest against me. Is it okay for a virgin to provoke like this? Especially the head of a family who is responsible for a whole family.</p>
+<p>"Konoe-ssi, it suits you well?"</p>
+<p>"Ehehe...!"</p>
+<p>Konoe Akina put her hands on both cheeks and liked my compliment. Soon, Fujigasaki Rinka came down to the valley with a can of beer in one hand, making a "kyahaha" sound.</p>
+<p>She was wearing a black bikini top and short jeans, and the serious wound from yesterday was gone without a single bruise.</p>
+<p>"Master, you're all right?"</p>
+<p>"I was suppressing my recovery to instill a sense of alertness in you. Did you think I would be defeated by a mere disciple of Takakusaki Gengo? Not even Gengo himself."</p>
+<p>Suppressing recovery, what kind of realm is that? Even I, who has a trait, can't suppress regeneration even for a moment.</p>
+<p>"It suits you well, Master. A bikini is definitely better than bruises, definitely."</p>
+<p>"This guy, he says everything to his Master!"</p>
+<p>Fujigasaki Rinka punches my abdomen with a "pang!" Fujigasaki Rinka's fist strike contained tremendous power, shaking my internal organs, and even though I was hit in the stomach, my back strangely hurt.</p>
+<p>"Oh! Ryuta-nim! There's a fist mark on your back...!"</p>
+<p>"Ryuta, are you okay?"</p>
+<p>Of course, the fist mark will disappear quickly because of regeneration, but making a mark on my back when I was hit in the stomach seemed to be due to her almost divine skill.</p>
+<p>"Honey!"</p>
+<p>Lianna Holden, wearing a bikini in the style of the American flag, made a grand entrance, and Sawayanagi Seari, wearing a white one-piece swimsuit in contrast to Alik, came down to the valley, blushing shyly.</p>
+<p>Unfortunately, sniper Sawayanagi Mikiyo came wearing a rash guard, and Jung Da-rim, the last of the women, was wearing a swimsuit but seemed uninterested in playing in the water, wearing Seryutai's green field jacket.</p>
+<p>I think she'll probably look at the grass around the valley and play. I hope she finds some good medicinal herbs.</p>
+<p>"Those who want to play in the water, play in the water, and everyone have fun~!"</p>
+<p>"Yay~!"</p>
+<p>At Sawayanagi Azuma's words, everyone went into the water, or some of the men approached the female tourists who were already playing in the water and were flirting with them. Since they were all PMC agents, they had good bodies and seemed to be doing well with the women.</p>
+<p>"Kyahaha! Come at me!"</p>
+<p>Fujigasaki Rinka was playing in the water, splashing water without distinguishing between friend and foe, and the water that Fujigasaki Rinka splashed was so stinging that it seemed to contain energy.</p>
+<p>"Ouch!"</p>
+<p>"Please be gentle, Rinka-ssi!"</p>
+<p>"Kyahahaha!"</p>
+<p>It's good that you're excited to come and play, but isn't this too much? Now that it's come to this, I have to splash water too. I put the abyss into it and splashed it at Fujigasaki Rinka with a *chwaak*.</p>
+<p>Puhwaaaak!!!</p>
+<p>The water was splashed at Fujigasaki Rinka more strongly than I thought. It was powerful enough to make Fujigasaki Rinka stagger, who hadn't prepared for it.</p>
+<p>I was a little scared too, but fortunately, Fujigasaki Rinka still had a playful look on her face, so I breathed a sigh of relief.</p>
+<p>"Ryu-ta! You dare...!"</p>
+<p>"Master did it too!"</p>
+<p>After that, we splashed water like crazy. Fujigasaki Rinka also seemed to have come to her senses from my attack, and I could feel her adjusting her strength. Of course, she shot very strongly when she shot water at me.</p>
+<p>After playing in the water for a while, Alik was hit by Fujigasaki Rinka's water stream, which was aimed at me, and Alik was pushed back by the water stream and fell.</p>
+<p>"Alik~! Are you okay?"</p>
+<p>"Uung...! I'm okay, Ryuta."</p>
+<p>He said he was okay, but Alik was breathing heavily, as if he was a little upset. Alik didn't splash water at Fujigasaki Rinka, but ran at her and made a melee attack.</p>
+<p>"What, you little cat! You have to use water, not your body!"</p>
+<p>Visible sparks of electricity crackled from Alik's body, which was clinging to Fujigasaki Rinka's body.</p>
+<p>"Uaaa,aa,aa,aa,aa!"</p>
+<p>Fujigasaki Rinka was electrocuted and trembled as electricity flowed through her body from Alik's *pajik pajik*. The problem was that this was in the water of the valley, and we were gathered around it.</p>
+<p>Except for me, who had resistance to abnormal conditions, everyone was electrocuted and floated on the water.</p>
+<p>Fortunately or unfortunately, the tourists who came to the valley seemed to be far away, so they weren't electrocuted.</p>
+<p>"Ah...!"</p>
+<p>Alik seemed to be flustered when he looked around and saw everyone collapsed.</p>
+<p>"Let's get everyone out of here first."</p>
+<p>"Okay...."</p>
+<p>Fortunately, Alik didn't use his full power, so no one was seriously injured. They were just surprised by the sudden electric shock.</p>
+<p>After putting everyone on the rocks of the valley, they regained consciousness one by one. Of course, Fujigasaki Rinka was the first to regain consciousness and shouted at Alik.</p>
+<p>"You little cat! Do you want to be punished?"</p>
+<p>"I'm sorry...."</p>
+<p>When the rest of the people regained consciousness, Alik bowed his head and apologized to everyone. The Seryutai people had experienced this kind of thing since they were young, so they all understood.</p>
+<p>-----</p>
+<p>Swimsuit illustrations of the remaining members!</p>
+<p>Jung Da-rim</p>
+<p>Lianna Holden</p>
+<p>Sawayanagi Mikiyo</p>
+<p>Mimata Chieri</p>
+<p>Sawayanagi Seari</p>
+<p>Sawayanagi Azuma</p>
+<p>Alik</p>

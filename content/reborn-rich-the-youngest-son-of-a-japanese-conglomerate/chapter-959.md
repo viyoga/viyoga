@@ -5,76 +5,73 @@ weight = 959
 chapter = 959
 +++
 
-<p>"Hmph...!"</p>
-<p>Kobiki Fusamoto, the detective Team Leader investigating the mass Murder Incident in Village A that occurred today, tilted his Head while looking at the results of the investigation in front of the Corpse of the orphanage Director, which the forensic team members were examining.</p>
-<p>As a result of investigating the connections of the dead through inquiries, one suspect emerged. It was a woman named Sato Tsukiyo, who had just graduated from High School, and most of the dead had a history of tormenting this woman named Sato Tsukiyo.</p>
-<p>"What's wrong, Team Leader-nim?"</p>
-<p>'There's something bothering me. I know that the dead were people who tormented Sato Tsukiyo. But, you know. The two people who died at the orphanage aren't? The orphanage Director, Sato-ssi, is a man who is famous in the village for his good character, and the orphanage Teacher's reputation wasn't bad either...."</p>
-<p>Kobiki Fusamoto pointed out the strange points in response to his buha's question. Moreover, these weren't the only suspicious points.</p>
-<p>"There are many CCTVs, but there isn't a single screen where Sato Tsukiyo is filmed. The last screen where Sato Tsukiyo is filmed is all that came out on the CCTV on the road to the coastal Cliff just yesterday."</p>
-<p>Not only were there no CCTVs, but there were also no witnesses. In this day and age, killing eighteen people without leaving any traces is a bizarre thing.</p>
-<p>"Then, could it be that it's not Sato Tsukiyo? Except for the orphanage, the rest are people with bad reputations, so there may be grudges in other directions."</p>
-<p>"Yes. Let's look at it from various angles. Still, it's not like we didn't get anything at all."</p>
-<p>As Kobiki Fusamoto said, it wasn't like they didn't get anything at all. There were no CCTVs or witnesses, but there was one piece of evidence that the police found. It was the fingerprints taken from the blood and brain fluid on the orphanage Director's clothes.</p>
-<p>Kobiki Fusamoto hoped to find the culprit based on this. First of all, he was thinking of running the fingerprints he found through the criminal database.</p>
-<p>"Still, since Sato Tsukiyo is the suspect based on the circumstances, find out her location.... Tell the team members to investigate in other directions as well."</p>
-<p>"Understood, Team Leader-nim!"</p>
-<p>After the buha police officer saluted and disappeared, Kobiki Fusamoto looked at the Corpse of the orphanage Director in front of him with an uneasy Expression. A hole pierced through his forehead. What kind of equipment did they use to make such a wound? Looking at the hole pierced in the orphanage Director's forehead, he felt an ominous Feeling as if he were looking into an endless Abyss.</p>
-<p>When I went to the kitchen to drink water, all traces of the meal we had eaten were already cleaned up. Hanakame probably cleaned it up. I poured water from the water purifier, then rinsed the cup roughly and put it on the shelf.</p>
-<p>After drinking all the water and turning around to open the door to leave the kitchen, Hanakame was standing right in front of the door. She wasn't wearing the Miko clothing she had been wearing earlier, but like Urabe Konoka, she was wearing something similar to sexy lingerie.</p>
-<p>Of course, Hanakame's Appearance was more daring than Urabe Konoka, who could still be called a novice(?). Even though she was wearing underwear, it was a sex-only underwear system that allowed for immediate sex without having to undress or push it to one side, with her nipples and pussy exposed.</p>
-<p>"Hanakame, what is this...?"</p>
-<p>"I said it was my turn next♥"</p>
-<p>That's right. I remember Hanakame saying it was her turn next when I went to the room with Urabe Konoka.</p>
-<p>"Since it's right next door, I can hear the sounds of Bugun and Konoka?"</p>
-<p>Ah...! It was next door? I was wondering how I knew sex was over, but Hanakame quickly answered how she knew, being quick-witted.</p>
-<p>By the way, she seemed to be able to move quite stealthily. My sensing ability isn't very high, but seeing her standing in front of the kitchen door without me noticing at all, it seemed Hanakame's combat ability was also considerable.</p>
-<p>I remembered being surprised when I realized that Hanakame was also quite skilled when I was worrying about personnel distribution before the battle with An-yaji. So, I assigned her to support Seizawa Shii, and I heard that she did quite well.</p>
-<p>"Then, where...?"</p>
-<p>When I asked if we would do it in the room like Urabe Konoka or right here in the kitchen, Hanakame shook her Head with a bright Smile, as if to say neither.</p>
-<p>"These days, the weather is getting warmer, so how about doing it under the moonlight in a charming way?"</p>
-<p>What Hanakame proposed to me was Outdoor sex. It was quite a daring proposal that surprised me a little.</p>
-<p>"Is it okay to do it inside the Urabe Shrine grounds?"</p>
-<p>I asked somewhat cautiously. I've had Outdoor sex a few times, but it was in sparsely populated parks or places like that, not inside the Urabe Family Shrine, which has a certain amount of prestige, so I asked cautiously. I didn't want to cause problems by getting caught doing Outdoor sex.</p>
-<p>"The security guards do night patrols, but the night patrols start at 11 o'clock, so there's plenty of time. And there are hardly any people who visit our shrine."</p>
-<p>Believing Hanakame's Words that it was okay, I went outside. I was also wearing a Shirt and panties, so it was an inappropriate Appearance to go out in, but Hanakame, who was exposing both her nipples and pussy, was an inappropriate Appearance anywhere, whether outdoors or indoors, so I thought that my Appearance was relatively okay.</p>
-<p>Hanakame had even prepared shoes in advance, wearing black high heels with red soles and walking next to me with an excited Expression. It was still mid-February, so the weather was a bit chilly. I was fine as I was due to various Traits, but I was worried about Hanakame, so I looked to the side and saw her smiling with an excited Expression, so it seemed she was okay. She had proposed the Outdoor Play walk first, after all.</p>
-<p>"Ufufu, if I had known this would happen, I would have prepared a leash. Then it would have been a true Outdoor walk."</p>
-<p>Hanakame, walking quietly inside the shrine, was regretting not being able to have a true Outdoor walk. I didn't know why a leash was needed to have a true Outdoor walk.</p>
-<p>After walking inside the shrine for a while, Hanakame stood in front of a tree. And she smiled brightly at me.</p>
-<p>"This place will be good."</p>
-<p>Hanakame put her Hand on the tree, leaned against it, stuck out her Buttocks, and bent her waist. It was a very sexy pose and Appearance, but as Hanakame said, it felt quite charming.</p>
-<p>With the round moon hanging on the end of the tree branch of the tall tree, the subtle orange lighting spread below, and the lights of Miyashi City visible in the distance, and even Hanakame's Buttocks as round as the moon.... It could be said to be a perfect scene.</p>
-<p>"When you were mixing Bodies with Konoka, I finished all the preparations. Please come in right away, Bugun...♥"</p>
-<p>Hanakame, leaning against the tree, wiggled her Buttocks and seduced me. Just as Hanakame had said that she had fully loosened her pussy when I was having sex with Urabe Konoka, vaginal fluid was flowing from her pussy, wetting the stone floor.</p>
-<p>I slowly approached and touched Hanakame's Buttocks. When I touched her Buttocks, which had a bouncy and soft contradictory sensation at the same time, I unknowingly put strength into my cock.</p>
-<p>Slap!</p>
-<p>"Haaheung...!"</p>
-<p>When I slapped her Buttocks, not too hard but enough to feel good, Hanakame's sweet moan came out, and vaginal fluid fell in droves. I lowered her underwear, then put my cock under her pussy and rubbed it as if doing Sumata.</p>
-<p>"Heueung, don't do that...! Put it inside, put it inside, Bugun...!"</p>
-<p>Hanakame said in an anxious Voice, but I didn't answer and moved my waist while being close to her vaginal flesh. Then, the vaginal fluid was smeared all over my cock as if it were coated, and that's why I didn't put it in right away. If I coated it with vaginal fluid before putting it in, it would go in even better.</p>
-<p>I matched my cock, which was covered in Hanakame's vaginal fluid, to Hanakame's Jilgu and put it in.</p>
-<p>"Haaheueuheung...! Bugun's cock, heueung! It's still magnificent...!"</p>
-<p>I just put my cock in, but Hanakame herself started to move. Holding onto the tree and using it to balance, she moved her waist quite vigorously, so her Buttocks swayed and piston movement was made.</p>
-<p>Hanakame's pussy wasn't narrower than Urabe Konoka's, but I felt a pleasure as if tentacles were sprouting from the inside of her pussy and stimulating my entire cock. The clench was also appropriate, and it was a top-class pussy that tightened my cock in various places as if she knew my erogenous zones.</p>
-<p>Of course, it felt good that Hanakame was moving, but it was true that it felt somewhat stuffy compared to me moving. After enjoying Hanakame's movement for a while, I grabbed Hanakame's waist and started to vigorously move my waist to poke her pussy.</p>
-<p>"Haaht! Heueung...! The inside, Bugun's glans, haaht! It's pounding my inside!!"</p>
-<p>Hanakame's moans started to escalate. I was worried that someone would come because Hanakame's moans kept getting louder, but it was my first Outdoor sex in a long time, so I was also filled with excitement and didn't pay attention to it, continuing to shake my waist vigorously.</p>
-<p>"Haaht! Quickly...! I'm going! Bugun too, heueung, please cum quickly! Bugun's precious baby seed♥ Haaht! Please pour it into Hanakame's uterus!!"</p>
-<p>Hanakame started to urge me to ejaculate, perhaps because she felt my cock getting bigger and bigger. Hanakame also seemed to be reaching Climax, as her pussy contracted as if trying to squeeze out semen.</p>
-<p>"Keueueueut...! I'm cumming (more vulgar)!"</p>
-<p>Ul-keok Ul-keok Ul-keok!!</p>
-<p>Just as I was raising the last pitch for Ejaculation, a light was seen in the distance.</p>
-<p>"Who's there...?"</p>
-<p>The Voice of an Elderly Person who seemed to be a security guard was heard in the distance. But the semen that had risen from my Balls had already started to pour semen from the tip of my glans into Hanakame's uterus. With the last remaining Fading Reason, I moved my Hand to cover Hanakame's mouth.</p>
-<p>Ulkeok! Ulkeok! Ulkeok!!</p>
-<p>I couldn't do anything because of the pleasure that made my Field of Vision turn white. Hanakame also seemed to be unable to take any action because she was already trembling with Orgasm with her Eyes full of whites.</p>
-<p>"Hmph...! What is it? I definitely heard something...?"</p>
-<p>Whether it was a Miracle or the security guard noticed and backed off, I don't know, but the security guard, who was shining a flashlight here and there, turned back again.</p>
-<p>"Haa, haa, haa...! What happened?"</p>
-<p>"Haaheueu, haa. Haaheueuheung...! I put an invisible Talisman on the tree in advance, heueu, haa, haa...! It felt good, Bugun...!"</p>
-<p>You knew this would happen and put a Talisman on it in advance? It seemed Hanakame had planned the Outdoor sex in advance. I was surprised because I thought we would get caught. It seemed that the invisible Talisman didn't block the sound. I was worried because she was moaning so loudly, and it seemed that the security guard came because he heard that sound.</p>
-<p>Sex Scene~!</p>
-<p>Ha Ju-yoon and Jin Mi-ja lying face down, requested by I Save I-nim~!</p>
-<p>Starting with Ha Ju-yoon~!</p>
-<p>Jin Mi-ja Yeosa~!</p>
+<p>a and breast check exposure is please surroundings there your</p>
+<p>The room was spacious. In fact, because I had decided the overall framework of the Design, it was my first visit, but it didn't feel unfamiliar. The peculiar thing about this room was its Immense Size bed.</p>
+<p>The bed at the Home in St. Francis Girls' Academy wasn't bad either, but because sometimes more than two Women would come, I decided to bring a specially made giant bed into the room. I wondered how they got the bed in, as it was much larger than the door, but I figured the Engineers/Technicians must have managed it somehow and moved on.</p>
+<p>"Do you like it?"</p>
+<p>Butler Tosen Nobumichi, who had accompanied the servant, asked me. I nodded my Head. Perhaps because it was my future Place of residence, Dang So-hwa seemed to have put a lot of thought into it. I heard she was making her own room separately, so it might be that she worked even harder since she also had her own room.</p>
+<p>"Yes, I like it. It's my first Home, and it's so spacious and the room is nice, so I like it."</p>
+<p>"That's Fortunate. Perhaps because she cares about Ryuta-nim, Shizuku-nim also visited the construction Scene secretly several times."</p>
+<p>Grandmother visited...? Taira Shizuku, the mistress of the Tairaga Family, had a very busy schedule. But for her to specifically visit the construction Scene for her grandson's Home, not even his actual Home, meant Something.</p>
+<p>And since it wasn't just once, but several times, it showed that the mistress of the Tairaga Family cherished her grandson very much. Even though it was a secret visit. Still, since Butler Tosen Nobumichi in front of me knew, some people in the Tairaga Family would understand Taira Shizuku's intent.</p>
+<p>"As you know, I Request that you maintain the Secret regarding matters within this mansion."</p>
+<p>"Hoho, of course. Since you have employed this old Butler, I will pledge my Loyalty."</p>
+<p>At my admonition, Tosen Nobumichi smiled and nodded his Head. It wasn't that I didn't trust Grandmother, but when Tosen Nobumichi was introduced, I had the Joseodang investigate him. Tosen Nobumichi had been Taira Shizuku's Butler since before her Marriage into the Tairaga Family, when she was Kabasawa Shizuku (Kabasawa Shizuku).</p>
+<p>After Taira Saburo was born, he was a Person Taira Shizuku trusted so much that he cared for Taira Saburo from childhood and even served as his private tutor.</p>
+<p>When the Joseodang investigated, there were no separate connections to other Successors or other Enterprises, so I judged that I could trust him and entrust him with the Butler duties.</p>
+<p>I told everyone to unpack their Luggage and meet at the restaurant, but the servants were taking care of the Luggage, so I had no things to do. Then....</p>
+<p>"Let's go to the Shrine on the Back mountain once."</p>
+<p>"Then I will oversee the meal Preparation."</p>
+<p>Behind our mansion, there was a Hill that was a bit too low to be called a Mountain, and there I had built Lizhael's Shrine. Urabe Konoka and Hanakame, who arrived yesterday, would probably be at the Shrine. Since I had arrived Home anyway, I should go meet them both.</p>
+<p>The previous night.</p>
+<p>"Delicious~!"</p>
+<p>Tsukiyo took a bite of a parfait from a nearby cafe and exclaimed, her Eyes sparkling brightly. Urabe Konoka and Hanakame watched her Appearance with slightly pleased Expressions. Because Tsukiyo ate so deliciously, Urabe Konoka and Hanakame, who unconsciously became hungry themselves, also added one parfait each.</p>
+<p>The three, who had been enjoying parfaits for a while, making the sound of spoons clinking against glass cups, finished their parfaits. Tsukiyo had a somewhat Regrettable Expression, but she forced a dignified Expression and rose from her Seat.</p>
+<p>"Then, shall we go to the Shrine now?"</p>
+<p>There was vanilla ice cream on her Mouth, so she had no dignity at all. Urabe Konoka chuckled and wiped Tsukiyo's Mouth. Although Tsukiyo was a God, her original Appearance was that of such a pretty and cute girl that they couldn't help but smile.</p>
+<p>And after packing some Dessert and food from the cafe, they boarded the black van parked in front of the cafe. For reference, the cafe bill was paid by the Paranormal Phenomenon Management Bureau Investigation Team.</p>
+<p>As they headed to the Neo Tokyo Address that Hanakame had provided from Tokyo, Kahei Jingoro, who was in the Driver's Seat, opened his Mouth.</p>
+<p>"I heard land prices in Neo Tokyo are expensive these days, but upon checking, the Shrine site is quite spacious."</p>
+<p>The Place was Neo Tokyo, and the site was spacious, so I asked, wondering if it wouldn't be a significant bleeding for the Urabe Family, even if they were one of the prestigious Families, but Hanakame shook his Head as if to say it wasn't.</p>
+<p>"No, it's a Place where ghosts appear, so the land Price is cheap."</p>
+<p>If it were another Person, they might say, "ghosts? What a strange Story," but Kahei Jingoro was a team member of the Japan Paranormal Phenomenon Management Bureau. He knew of the Existence of ghosts, so he nodded his Head, saying, "Ah, I see."</p>
+<p>Some of the People from the Japan Paranormal Phenomenon Management Bureau deliberately bought houses where ghosts appeared at a cheap Price, exorcised the ghosts, and then sold them expensively as a form of financial investment, so the discussion about land prices was simply passed over.</p>
+<p>Driving along the Mountain Road, they eventually arrived at the Shrine.</p>
+<p>"Is there nothing in the Surroundings?"</p>
+<p>Shrine Maiden Investigator Seido Omina got out of the vehicle and asked, looking around the Surroundings. Although the skyscrapers of Neo Tokyo were visible at a glance from the Hill, there was no Light in the Surroundings.</p>
+<p>"If you go down the Road on the opposite side, there are a few houses."</p>
+<p>"Is that so?"</p>
+<p>"Yes."</p>
+<p>Urabe Konoka answered Seido Omina, and from the Luggage she had brought, she took out Lizhael's Identification Tablet, an offering box, and a few other items, placing them in front of the Shrine's Main Hall. Then, together with Hanakame, they recited several prayers, informing Lizhael, the God they served, that the Shrine had been moved.</p>
+<p>"Then, now...."</p>
+<p>"It's my Turn, right?"</p>
+<p>Since the ceremony of enshrining Lizhael was over, it was Tsukiyo's Turn next. For reference, items like an offering box and an Identification Tablet for enshrining Tsukiyo were procured by Seido Omina while Tsukiyo was eating a parfait at the cafe.</p>
+<p>"Yes. You can take a Seat wherever you wish."</p>
+<p>"I have a Place in mind. Let's go there."</p>
+<p>The Place Tsukiyo chose was surprisingly a small pavilion. I thought she would choose the second largest pavilion, but it seemed she had a Personality that wasn't particularly bound by formalities.</p>
+<p>After placing the Identification Tablet, the offering box, and a few other items, Urabe Konoka and Hanakame clasped their hands together and chanted a spell, and Tsukiyo swayed, then black Aura scattered from her Body, and she collapsed on the spot.</p>
+<p>Tsukiyo, who opened her Eyes again, no longer exuded an incomprehensible Intimidating Aura or Pressure. She had become the Layperson Sato Tsukiyo.</p>
+<p>"I-I'm sorry...!"</p>
+<p>Sato Tsukiyo, who opened her Eyes, bowed her Head to everyone and offered an Apology. Seeing her Eyes welling up with Tears, she seemed to know that the People here had suffered because of the God who had descended upon her.</p>
+<p>"I apologize, but would you please Answer a few Questions for the conclusion of the Incident?"</p>
+<p>Kahei Jingoro approached Sato Tsukiyo with a Notebook and a Pen, and spoke. Seeing Sato Tsukiyo's Appearance, it seemed like the Incident could be concluded as is, but they still needed to confirm if she would give the same testimony as the Story of the God 'Tsukiyo' who had been present until just now.</p>
+<p>"It is said that you made a contract with the God Tsukiyo who was in your Body; is that a fact?"</p>
+<p>Sato Tsukiyo answered Kahei Jingoro's Question, trembling slightly. It seemed to be because the memory of jumping into the Sea had resurfaced.</p>
+<p>"The Reason you headed to the Cliff Road on the outskirts of the village on CCTV was... to commit suicide?"</p>
+<p>"Yes. The Director of the orphanage I trusted... me.... me.... Ugh...!"</p>
+<p>Sato Tsukiyo eventually burst into Crying while answering Kahei Jingoro's Question. Feeling like he had unnecessarily triggered her Trauma and made her cry, Kahei Jingoro apologized and closed his Notebook.</p>
+<p>And he looked at his team members: Shrine Maiden Seido Omina, Psychometrist Motomachi Mitsuki, and Ninja Mochizuki Ikuro.</p>
+<p>As all three nodded their Heads, signifying that Sato Tsukiyo was no longer in a state of Possession by a God, Kahei Jingoro gave a slight bow to Urabe Konoka and Hanakame.</p>
+<p>"I think that's enough. Thank you for responding to our Request for Help."</p>
+<p>"Sato-ssi here... she's alright, isn't she?"</p>
+<p>"Because she made a promise/appointment with God Tsukiyo. Since our Purpose differs from the police, no one will hold Sato-ssi legally Responsible. Then...."</p>
+<p>Kahei Jingoro greeted the three Shrine Maidens once again, and took his team members towards the Place where the van was parked. Seido Omina, who had become a little friendly as they were both Shrine Maidens, waved her Hand at Urabe Konoka and Hanakame, but the others, like Kahei Jingoro, merely gave a slight bow and departed from the Shrine.</p>
+<p>As they watched the Japan Paranormal Phenomenon Management Bureau Investigation Team leave, Hanakame looked at Sato Tsukiyo. Urabe Konoka also looked at Sato Tsukiyo with an uneasy Expression.</p>
+<p>"Tsukiyo-nim, what do you wish to do?"</p>
+<p>"Indeed, I can't hide it from your Eyes."</p>
+<p>Hanakame felt Something strange as he watched Tsukiyo return to Sato Tsukiyo. The Pressure emanating from Tsukiyo's Body had disappeared, but the Abyss filling Tsukiyo's Body remained. Urabe Konoka also felt the same, which is why she looked at Tsukiyo with an uneasy Expression.</p>
+<p>"When I found her, it was already too late to save this Child named Sato Tsukiyo. So, instead of paying the Price of Revenge, I decided to Use this Child's Body. I told a small lie because I needed to deceive those Paranormal Phenomenon Management Bureau Children to comfortably operate in this Body."</p>
+<p>In the end, it meant that Sato Tsukiyo had already died a long time ago. Whether the unknown Existence had taken Revenge and occupied her Body, allowing her to die peacefully, or if she died in anxiety, was unknown, but Tsukiyo had devised several schemes to meet them, simultaneously with her Revenge.</p>
+<p>"Well then, I look forward to working with you both?"</p>
+<p>Tsukiyo smiled as she looked at the two and spoke. Her Appearance was a little eerie, but Urabe Konoka and Hanakame also smiled and nodded their Heads.</p>
+<p>Requested by TheDreaming-nim, Athena in front of a Street stall~! 1. Viewfinder 2. Phone Camera 1. 2. Requested by Hwanbuljeoldaebulga-nim, old model Hanbok Lisa, Home Ec Teacher~! Starting with Lisa-chan~! Home Ec Teacher~! The requested Legs Exposure didn't work out well, so I'm just uploading them in a skirt state haha.</p>

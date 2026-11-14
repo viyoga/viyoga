@@ -5,70 +5,72 @@ weight = 1097
 chapter = 1097
 +++
 
-<p>"It seems it could be dangerous, Shoji."</p>
-<p>Taira Saburo, who was looking at documents, suddenly said something out of the blue to Koishihara Shoji. Danger, he said. What kind of danger was he talking about?</p>
-<p>Koishihara Shoji, standing next to Taira Saburo and looking at his phone, glared at Taira Saburo as if he had started again.</p>
-<p>"What are you suddenly talking about?"</p>
-<p>Taira Saburo sometimes, like now, said things Koishihara Shoji couldn't understand.</p>
-<p>Shinonome Mio, Taira Saburo's strategist, and Hosen Jinto, the Security Leader, understood those words well and conversed with each other, but the aggressive assault leader Koishihara Shoji couldn't understand Taira Saburo's vague words. Moreover, since neither Shinonome Mio nor Hosen Jinto were present now, Koishihara Shoji eventually asked Taira Saburo what he meant.</p>
-<p>"The current Situation, you see. Our plan seems to have been too hasty."</p>
-<p>"Are you saying the current Situation is dangerous?"</p>
-<p>At Taira Saburo's words about danger, Koishihara Shoji's eyes gleamed sharply.</p>
-<p>"Yes."</p>
-<p>"Then tell me who these guys are that are causing danger. I'll go kill all those bastards."</p>
-<p>If Hosen Jinto, the Security Leader, was a Shield, Koishihara Shoji, the PMC Leader under Taira Saburo's name, was a Sword.</p>
-<p>Following Taira Saburo's Commands, Koishihara Shoji, who had blindly killed Enemies, was thinking that this time too, he just needed to kill the guys who were endangering them. If he killed the guys causing danger, wouldn't the danger naturally disappear?</p>
-<p>"It seems difficult to change the Situation, Shoji. Take this."</p>
-<p>Shaking his Head at his Subordinate's Answer, Taira Saburo handed a universal connector to Koishihara Shoji.</p>
-<p>"This is...."</p>
-<p>"Check it later with your PMC team members. It will contain guidelines on what to do in an emergency."</p>
-<p>That was the last time Koishihara Shoji spoke personally with Taira Saburo. Because Taira Saburo immediately gave him a Mission.</p>
-<p>In fact, after saying it was dangerous and then immediately giving a Mission, Koishihara Shoji thought Taira Saburo was making a Joke. Because there was no Reason for someone who said it was dangerous to give a Mission.</p>
-<p>When he returned to the PMC after completing the Mission, Koishihara Shoji heard the News of Taira Saburo's car accident. Only then was Koishihara Shoji able to confirm Taira Saburo's will, which was inside the universal connector Taira Saburo had given him.</p>
-<p>Following Taira Saburo's last wishes, Koishihara Shoji, who had come to the USA, opened his eyes. And he let out a scoffing laugh, as if in disbelief.</p>
-<p>"You still disturb my Mind, Liege."</p>
-<p>Perhaps because Tetsu Kagerou, who had returned from a Mission, had told him about meeting Taira Saburo's Son, he saw his Liege's last Appearance in a Dream after a long Time.</p>
-<p>Although it was a Dream, seeing Taira Saburo after a year was both welcoming and nostalgic.</p>
-<p>"Since you allowed me to meet my Liege after a long Time.... I'll consider any Proposal you make positively."</p>
-<p>Koishihara Shoji muttered, thinking of Taira Ryuta, whom he had promised to meet soon. Of course, he had no intention of following everything Taira Ryuta proposed. Especially things like 'come under my command.' Even if he was the Liege's Son, he was a completely different Person from the Liege.</p>
-<p>Since he was someone who had never seen his Father's Face while growing up, he had no intention of following him just because of Blood Kin. It was the same as Koishihara Shoji and his team members not following Taira Kanna.</p>
-<p>Since it wasn't the Warring States period, no matter how close a Blood Kin someone was, if they were a completely different Person from the one they had pledged Loyalty to, they would not pledge Loyalty.</p>
-<p>In that respect, Taira Saburo and Taira Kanna were completely different people. Taira Ryuta, whom he had promised to meet this time, also was only a Son in name, and likely hadn't inherited any of Taira Saburo's character or virtues.</p>
-<p>Koishihara Shoji couldn't pledge Loyalty, but if it wasn't a Command to follow him, he had the generous thought that he could grant a few Requests. As a Repayment for allowing him to see Taira Saburo's Appearance after a long Time.</p>
-<p>"What?! What's this now...?"</p>
-<p>After getting off the Airplane, I, who was going to Sabu's Mansion in Malibu by car, couldn't help but scream involuntarily after looking at my phone.</p>
-<p>Because Asada Ei and Taira Yukiko, among others, had brought News that my Cousin, Taira Kitsumasa, had been Assassinated in the UK.</p>
-<p>As if the Taira Group's already chaotic Situation, with my Mansion and Taira Jiro's Mithril warehouse having been attacked, wasn't enough, the death of Taira Kitsumasa was like pouring Gasoline on a raging Fire.</p>
-<p>Especially Taira Jiro, following the Mithril warehouse Attack, had fallen into a Situation where he even lost his Son. He would never stay still. No matter who the culprit was, he would surely seek Revenge.</p>
-<p>"Kitsumasa's Assassination, you say... What do you think?"</p>
-<p>"Hmm.... I don't know what will happen. Given Taira Jiro's Personality, he definitely won't stay still. Rather, such a huge Event has occurred that we have no Data at all...."</p>
-<p>Naruse Shiyo thought for a moment at my Question, then answered. As Naruse Shiyo said, even if various Data had been collected, there was no Data on what happened when Taira Jiro's child died, so no one knew how the Situation would unfold.</p>
-<p>"We'll just have to respond according to the Situation. For now, tell the Jooseodang side to keep monitoring the Situation."</p>
-<p>"Understood, Teacher-nim. But what about the funeral...?"</p>
-<p>Oh, that's right. Since Taira Kitsumasa died, there will be a funeral. Because of the pre-arranged meeting, I have to stay in LA for at least three days. It seems I won't be able to attend the funeral due to Time constraints?</p>
-<p>"What's the schedule?"</p>
-<p>"First, they have to bring the Corpse from the UK to Japan by special Airplane, so it seems it will take some Time. The Jooseodang will inform us once the funeral schedule is set."</p>
-<p>"If it fits our schedule, let's attend. Still, we have a Business appointment already made, so we'll have to see."</p>
-<p>Since Taira Kitsumasa's Corpse was in the UK for now, it seemed the funeral wouldn't be held immediately. And even at my Father Taira Saburo's funeral, several Cousins who were in other Countries didn't attend, so it seemed I didn't need to force myself to attend either.</p>
-<p>Of course, the Situation was different from Taira Saburo's funeral, so it would be better to attend if I could.</p>
-<p>Like the proverb, "If a prime minister's dog dies, you offer condolences, but if the prime minister dies, you don't," Taira Saburo's Death was like a prime minister dying, and Taira Kitsumasa's Death was like a prime minister's Son dying, so the Situation was a bit different.</p>
-<p>With Taira Saburo's Death, the Saburo Pabeol among the Succession factions had been Disbanded (though they would regroup a year later to become the Kanna Pabeol). But now, with Taira Jiro still strong, and his Son having died, it was expected that there would be far more guests than at Taira Saburo's funeral.</p>
-<p>By the way, of course, since it happened in the UK, it would be difficult to get Information. But who committed this Act? Surely Taira Gensuke wouldn't have orchestrated this after the Attack in Japan... Did Taira Ichiro or Taira Kokoro do it? Or Kanna?</p>
-<p>Of course, it might not be the Taira side, but the Minamoto side, or perhaps something went wrong in the UK, and someone we don't know shot and killed him.</p>
-<p>For now, we also need to collect Information. We need to know who killed Taira Kitsumasa and with what Intention, so that we can respond accordingly.</p>
-<p>"I don't know how the Situation will unfold, but let's all rest comfortably and then return to Japan."</p>
-<p>I said, looking at the Malibu Beach in the distance.</p>
-<p>Because there had been many things, from vigilante Work in New York to the New Rochelle incident, everyone must have accumulated Physical and Mental fatigue, knowingly or unknowingly.</p>
-<p>Even though a major Event like Taira Kitsumasa's Death had occurred, I decided to give my Subordinates Rest.</p>
-<p>"You're returning to LA after a long Time, right?"</p>
-<p>I asked Maya Reed, who was looking at Malibu Beach with complex eyes. Maya Reed had also decided to rest at Fujigasaki Rinka's Mansion this time and then return to law school.</p>
-<p>This time, upon leaving Superior, she had Surrendered to our side, but there was still some awkwardness remaining. So, to get closer this time, we decided to spend a few days together at Sabu's Mansion. For that Reason, I was also intentionally speaking casually.</p>
-<p>"Yes, actually, since I no longer have family, there was no Reason to return."</p>
-<p>Since she was Maya Reed, who had lost all her family, I should treat her well. So she can consider us family. Looking at her Abilities, she's a Talent no one would want to lose.</p>
-<p>The car stopped. We were welcomed by the Mansion caretaker and were guided to our respective rooms. Perhaps because there were quite a lot of people, we decided to use Fujigasaki Rinka's Annex as well. Because Fujigasaki Rinka was someone who occasionally provided rooms to her Japanese Martial Arts juniors when they came to the USA for Training, there were quite a few rooms in the Annex, so there was no Situation where multiple people had to share a room.</p>
-<p>Alik and Tsukiyo pouting, requested by MidNightSKY-nim~!</p>
+<p>and chapter check contains erotic please surroundings this your</p>
+<p>"Are there any benefits we gained? Of course, the increased hostility between Ichiro and Jiro is a good thing for us, but...."</p>
+<p>At my question, Linling shook her Head as if there was more. My words, that there would be no benefits, must have been wrong.</p>
+<p>"First of all~! Among the captured Anyaji Branch people, there are quite a few useful individuals. So we decided to hire a few~!"</p>
+<p>Ah...! It seems she's talking about the Anyaji Branch martial artists Taira Gensuke brought when he attacked our mansion. There was a reason why we were able to fend off Taira Gensuke's attack without much difficulty this time.</p>
+<p>We, who even defeated the martial artists of Anyaji Headquarters, of course had no trouble defeating lower-level Branch martial artists. I heard that their firearm usage and various tactical movements were a complete mess, as they had only been taught for a few days.</p>
+<p>Rather, if it had been a PMC unit composed of ex-criminals from the favelas that Taira Gensuke leads in Brazil, or a PMC unit gathered from former BOPE (Batalhão de Operações Policiais Especiais) members, our side's harm would have been greater.</p>
+<p>Fortunately, the reason Taira Gensuke came to Japan this time was to participate in the Taira Grand Council, so he didn't bring many of his units.</p>
+<p>Those brought from Brazil went to raid Taira Jiro's Mithril warehouse, and our attack team mobilized the Anyaji Branch martial artists, who lacked training as combat agents using firearms.</p>
+<p>Of course, as all our kids are Masters, even if Taira Gensuke had mobilized his elite units for the attack on our mansion, human harm wouldn't have been great, but the destruction of facilities or buildings would have been more severe, and servants like maids or gardeners might have been injured.</p>
+<p>Anyway, if Linling says they are useful, they must be quite capable individuals, so I should check them out later.</p>
+<p>"If Linling says they are useful, they must be quite capable, right?"</p>
+<p>"It depends on the criteria. I decided to take a few directly under me, and for those who wished, I hired a few for Athena-ssi's team or Josodang's agents."</p>
+<p>Those Linling decided to take directly under her are probably the real deal. Judging by Linling saying she's taking them, they seem to be people with good administrative work or other abilities, rather than just military prowess.</p>
+<p>As Athena is a former Anyaji Four Heavenly Kings, many people in the Anyaji Branch would follow her. Josodang always suffers from manpower shortages, so it seems they took Anyaji Branch personnel with abilities suitable for Josodang.</p>
+<p>Talented individuals are the most important anywhere, so this would also be a benefit. Surely, besides recruiting talent, are there other benefits? As I looked at her with a curious gaze, Linling looked at me, smiled, and continued speaking.</p>
+<p>"Next is the fact that our side can continue to monitor Taira Gensuke. We infected most of the communication devices of the intelligence agents Taira Gensuke leads with a hacking program we planted."</p>
+<p>During this Taira Jiro Mithril warehouse attack, Sakagami Rena infiltrated and planted a hacking program, and it seems that program infected the communication devices of other intelligence agents.</p>
+<p>This was quite a good thing. Since Taira Gensuke decided to be hostile towards me for an unknown cause, the necessity to keep watching him arose, and if the hacking program continues to collect information, that task would become much easier.</p>
+<p>"The report on the benefits we gained ends here. As for the report on the schedule, we received contact that Taira Kitsumasa's funeral will begin tomorrow."</p>
+<p>I heard that Taira Kitsumasa's corpse arrived in Japan a little after we did, but it seemed the funeral wouldn't start today.</p>
+<p>"He was shot in the face, so it seems some adjustment was needed."</p>
+<p>Since his face would be a mess, it means they have to perform the ritual washing and dressing of the body. I nodded my Head as if I understood. Since attending the funeral was a given anyway, it wasn't particularly meaningful information.</p>
+<p>"And here, congratulations on passing the PMC qualification test~!"</p>
+<p>Linling said, holding out the certificate to me. As soon as the news that I passed the PMC qualification test was heard, Linling finished all the document processing, and it seemed the certificate came out quickly.</p>
+<p>"I passed before, so.... I shouldn't fail a second test."</p>
+<p>I said, looking at the plastic card with my photo embedded, which was written as a private military company establishment certificate. Last time, I passed under the name Yamashiro Ryuta, who infiltrated St. Francis Girls' Academy, so I had two of these certificates.</p>
+<p>The PMC to be created with the certificate obtained this time was planned to increase its elite level and not be small in scale, as it would be a PMC created under Taira Ryuta's name. Because it would be a PMC that could be freely used under Taira Ryuta's name.</p>
+<p>Therefore, I put Athena Mannerheim and Saionji Diana, who can be called Ability Users, as Team Leaders of the newly created PMC, Zenith Force. I was thinking of adding a few more as Team Leaders to make it a PMC where at least four teams work together.</p>
+<p>Athena Mannerheim's side had already almost fully recruited personnel. I heard that former Anyaji martial artists had finished all basic training in my other PMC, the Steel Unit, and were waiting for combat deployment.</p>
+<p>As they are all martial artists skilled in using their bodies, it is said that they also finished their training with excellent results. Of course, getting used to handling firearms took a lot of time, but now that they use guns as well as fists, I was quite looking forward to it.</p>
+<p>Now what remained was Saionji Diana. Before going to the USA, I had asked her to gather skilled individuals who, like Saionji Diana, had problems with their limbs, and I wondered if she had done it well.</p>
+<p>Whether she understood the meaning in my gaze, Saionji Diana also rose from her seat.</p>
+<p>"According to Teacher-nim's command, I recruited a few former special forces members or former Third World War Veterans who had good reputations. About twenty in total.... If we officially start recruiting new employees, I think we can increase the number to a hundred."</p>
+<p>"Well done."</p>
+<p>At Saionji Diana's report, I nodded my Head and praised her for doing well. Actually, with the PMC qualification test results not yet announced, she went around recruiting talent, so it must have been quite difficult, but gathering 20 talented individuals was well done.</p>
+<p>As for the rest, rather than limiting it only to Third World War Veterans, I was thinking of putting all those with accidental or congenital problems with their limbs into the talent pool.</p>
+<p>Because there might be those with superpowers or extraordinary abilities, there was no need to narrow the talent pool to Third World War Veterans. Even if their training level is insufficient, the 20 elite members Saionji Diana selected by traveling the country would teach them well.</p>
+<p>"Let's start Zenith Force's official recruitment after Kitsumasa's funeral ends."</p>
+<p>For now, the Zenith Force story is enough.... Is this the end of the report from Japan?</p>
+<p>"Is this the end of the report from Japan?"</p>
+<p>At my question, Linling rose from her seat again as if she remembered something.</p>
+<p>"Ah. It's not a report from Japan, but.... Goishihara Shoji-ssi of Moth Tactical sent an email."</p>
+<p>Goishihara Shoji? For what reason did he send me an email? Since Linling, who is currently serving as secretary, manages my work email, it seemed she checked it first.</p>
+<p>"What's it about?"</p>
+<p>"It was written as a talent recommendation email...."</p>
+<p>Ah! That's what I requested. I had asked Goishihara Shoji, who was formerly affiliated with Taira, to recommend individuals within the Taira Group who had ability but couldn't display their talent due to factions or other reasons. I had forgotten for a moment.</p>
+<p>"Is that so? Here's the list."</p>
+<p>At my words, Linling held out the paper she was holding. The paper she had been pretending to look at while reporting until now seemed to be exactly the talent list Goishihara Shoji sent.</p>
+<p>"...."</p>
+<p>Not many people were listed on the talent recommendation list. Along with four names, the position or affiliation Goishihara Shoji held when he left Japan was written.</p>
+<p>Naturally, I knew almost no names, and only one name was familiar to me.</p>
+<p>Shinonome Mio (East Cloud Deep Cherry Blossom).</p>
+<p>The name of Taira Saburo's strategist and Taira Electronics' Boss, Shinonome Zen's granddaughter, was clearly written on the talent recommendation report. According to rumors, I heard she became a cripple, but was that not true? For now, I'll have to check this again.</p>
+<p>"Did you find out how all four of them are now?"</p>
+<p>"It hasn't been long since the email arrived, so I've already made a request to Josodang~!"</p>
+<p>Hmm, I see. Let's make a decision on this later, while listening to Josodang's report.</p>
+<p>"Then, we'll talk later, and the report from Japan is over, right?"</p>
+<p>"Yes. There are no particularly important reports left."</p>
+<p>Now it's my turn. I needed to discuss with everyone what to do in the future, while talking about the situation in the USA and what I gained. And also distribute the loot obtained in the USA to those who need it.</p>
+<p>Requested by Gojoy-nim: Dark-skinned Suzuki Chisami, Chapter 56 Remake Chieri~!</p>
+<p>Suzuki~!</p>
+<p>Chieri Remake~!</p>
+<p>At first, I tried to create a scene saying, "The steak thickness is about this much~!", but only an 'okay' sign came out like the illustration above, so since it's a remake anyway, I thought I should change it a bit, so I changed it to a thumbs-up hehehe.</p>
+<p>While updating with the Chapter 56 Remake illustration, I also slightly modified the content, changing it to a thumbs-up gesture with a feeling of "The steak is delicious~!" hehe. You don't have to look again~!</p>
+<p>Requested by TheDreaming-nim: Alik and Tsukiyo at the construction site~!</p>
 <p>Alik~!</p>
 <p>Tsukiyo~!</p>
-<p>Lisa without Gyaru vibes, requested by Meokguja-nim~!</p>
-<p>Her current Appearance is slightly darker because her Tanning hasn't completely faded. I couldn't precisely adjust the skin tone, so it came out a bit too pale hehe.</p>
-<p>I guess she'll be a pale Lisa when she meets Ryuta next time hehe.</p>
+<p>Kkyut~!</p>

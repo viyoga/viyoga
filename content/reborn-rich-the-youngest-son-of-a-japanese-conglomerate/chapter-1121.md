@@ -5,72 +5,49 @@ weight = 1121
 chapter = 1121
 +++
 
-<p>and are be careful chapter check contains erotic many please so surroundings there this with your</p>
-<p>From a certain moment, Shinonome Mio felt a sense of powerlessness. While under Taira Saburo, she had a great influence on Taira Saburo's expansion of power as a strategist, but it was from the moment she was pushed back.</p>
-<p>From some point, Taira Saburo discussed important matters with the newly recruited chief of staff, and only discussed less important matters with Shinonome Mio. And not long after, Taira Saburo died in a car accident.</p>
-<p>In an instant, the forces built by Taira Saburo and Shinonome Mio scattered into pieces. Some, as if they had been waiting, went under Taira Ichiro, Taira Jiro, or Taira Kokoro; some declared neutrality and claimed to be non-affiliated; and some left the Taira Group itself.</p>
-<p>Only a few unlucky people met their death after Taira Saburo died. Those like Uta Koshi, the newly appointed chief of staff under Taira Saburo, all died under mysterious circumstances.</p>
-<p>Shinonome Mio did not choose any of them, but had somehow become a member of the non-affiliated faction. It was because Shinonome Zen, Shinonome Mio's Grandfather and President of Taira Electronics, had intervened to prevent his Granddaughter from dying.</p>
-<p>After her respected Liege died, Shinonome Mio became extremely debilitated. She thought that her Liege pushing her to the second line was due to her own inadequacy, and that this Situation, where she didn't know why her Liege died, also happened because she was inadequate.</p>
-<p>After Taira Saburo died, Shinonome Mio became a Cripple, as the rumor circulating among people claimed. Every time something happened, she only blamed herself, so there was no way she could live a proper life.</p>
-<p>Around the time Shinonome Mio was living as a Cripple, a letter arrived for Shinonome Mio. It was the will of her deceased Liege, Taira Saburo.</p>
-<p>It stated that Taira Saburo, who worried about Shinonome Mio's Safety, had pushed her back. It was a letter, written in Taira Saburo's uniquely calm style, stating that he was sorry things turned out this way and telling her to live her own life from now on.</p>
-<p>Shinonome Mio was more shocked by this letter than by Taira Saburo's Death. Her Liege kept her away out of worry for her....</p>
-<p>Such a dangerous Incident occurred, yet Shinonome Mio, who prided herself as the first chief of staff, was unaware of it.</p>
-<p>She was disqualified as a chief of staff. Her Liege did not trust her, and she, as a chief of staff, failed to earn her Liege's trust. She, who should have been her Liege's reliance, became an object of worry.... Due to the great shock, Shinonome Mio's hair turned completely white, silver hair, in a single day.</p>
-<p>After that, Shinonome Mio put an end to her Cripple life. It was to live her own life according to her Liege's will and to become strong enough not to be worried about by anyone in the future.</p>
-<p>Of course, because she didn't know the exact Situation of Taira Saburo's Death, for her own Safety, she decided to maintain the rumor that Shinonome Zen's famous Granddaughter had become a Cripple.</p>
-<p>With the Ability of Shinonome Mio, an excellent schemer, this level of information manipulation was easy to do. She didn't even tell Shinonome Zen that she had escaped her Cripple life.</p>
-<p>"Are you ready?"</p>
-<p>While briefly reading Taira Saburo's will on the desk and thinking about that time, Shinonome Zen's Voice was heard from outside the door.</p>
-<p>"Yes, I'm ready."</p>
-<p>Shinonome Mio answered and opened the door. Shinonome Zen saw his Granddaughter's Appearance and frowned slightly, but said nothing.</p>
-<p>Since Shinonome Zen's children had all died, only his Granddaughter remained, and he probably didn't want to say anything to his Granddaughter, who had become extremely weak after her Liege's Death.</p>
-<p>Having devised countless cruel schemes, even Shinonome Zen, the cold-blooded chief of staff who made Taira Danjo-nim Chairman, was merely a soft-hearted Grandfather in front of his own flesh and blood.</p>
-<p>"Ryuta-nim, are you all ready?"</p>
-<p>As I was wearing a dark Suit for the funeral and tying my necktie, Linxiang's Voice was heard from outside. Those accompanying me to the funeral today were my secretary Linxiang and my driver Tsukiyo.</p>
-<p>In fact, most of my core Subordinates were not affiliated with the Taira Group, so there was no particular Reason for them to attend today's funeral. Those with Work would do their own Work, and those who returned from the USA, because I gave them a few days of Vacation, would either rest or attend to personal matters.</p>
-<p>"Yeah, I'm done~!"</p>
-<p>I, having finished tying my necktie, answered Linxiang and opened the door to leave. As expected, for attending the funeral, Linxiang was also wearing a black Dress, and even though it was a black Dress that didn't reveal her Figure and had no particular Exposure, it suited her quite well.</p>
-<p>"Let's go down for now."</p>
-<p>"Yes."</p>
-<p>Although there was plenty of time, the car traffic was quite heavy during the last Taira competition, so we decided to leave a little early. There was no need to arrive late and attract attention.</p>
-<p>"Older Brother~!"</p>
-<p>Discovering me from afar in the Parking Lot, Tsukiyo was seen excitedly waving her Hand. Originally, Tsukiyo's driver attire was a dark Suit, so there was no need to prepare separate Clothes.</p>
-<p>Fujigasaki Rinka contacted me yesterday, and Fujigasaki Rinka decided to depart for Japan with Sajo-nim in a few days, so Tsukiyo would soon be able to meet her Sabu and Grandmaster.</p>
-<p>"As you know, today's schedule is Taira Kitsumasa's funeral. Taira Jiro's forces are expected to fully gather...."</p>
-<p>As I got into the vehicle, Linxiang took out her tablet and spoke as if giving a Report. As Linxiang said, many predicted that Taira Jiro would gather all those who followed him at this funeral to display his power.</p>
-<p>Of course, Taira Kitsumasa was not only Taira Jiro's Son but also Taira Danjo-nim's Grandson, so not only Taira Jiro's forces but also many customers would come. There would be those who, like us, weren't on Taira Jiro's side but came because they were Family, and various types of attendees, such as those who simply came to make a good Impression because it was a Taira Family funeral.</p>
-<p>For factions contemplating whether to side with Taira Jiro, today would be the day to make their choice clear. Even if they supported Taira Jiro after today, they would inevitably be treated differently from those who supported him in front of the many people at the funeral.</p>
-<p>"The Situation for Taira Jiro and Ichiro will be a bit complicated."</p>
-<p>"That's right. First, Taira Jiro's side had their Mithril warehouse attacked domestically and his Son assassinated overseas, so they must be worried about developing a weak Image of being unable to suppress attacks; and Taira Ichiro's side received severe reprimands from the Chairman due to his Son's Mistake, along with various disadvantages. It's no exaggeration to say that both only suffered losses."</p>
-<p>It was no exaggeration to say there was almost no winner in this Incident.</p>
-<p>Taira Jiro, whose Son died, lost Mithril, and even gained an Image of being attacked, must find the Assassin who killed his Son and their Mastermind as quickly as possible and exact cruel Revenge to recover from this Incident; and Taira Ichiro must achieve more to reclaim the affiliate companies that Grandfather Taira Danjo-nim took back while reprimanding him for this Incident, so it must be seen that almost no one gained profit from this Incident.</p>
-<p>Our side also suffered no particular harm, and although we demanded a huge Reward from Taira Ichiro's side compared to the damage, the problem was that an Image of being attacked was created.</p>
-<p>That said, to take Revenge, we couldn't immediately Attack that Guy, Taira Gensuke, in Brazil. If I had my way, I wanted to Attack and eliminate him immediately, but it wasn't time yet. Since I now clearly knew what Style that Guy, Taira Gensuke, had, I was thinking of instigating him to create discord once again.</p>
-<p>Anyway, like this, there was almost no winner in this Incident. If I had to say, since the Taira were fighting among themselves and eroding their power, it should be seen that the Minamoto side, who are rivals with Taira, were gaining indirect benefits.</p>
-<p>Of course, according to what I heard from Minamoto Risa, the Minamoto side was also not in a position to comfortably watch the Taira's succession competition. With a Woman named Minamoto Katsue, who possessed excellent Skill, entering Japan, predictions were continuing that the Minamoto side would also begin a succession competition. The fact that the deceased Taira Katsumasa did not achieve any particular results in Europe was also because of this Woman named Minamoto Katsue, so her Skill must be considerable.</p>
-<p>"There will be almost no one focusing on us at the funeral, so let's just observe how The Situation unfolds and act in a way that benefits us."</p>
-<p>"Understood. Still, since Yongtae-nim is so Tall and Handsome, there's no way he won't attract attention."</p>
-<p>"That's right~! Older Brother is handsome, so everyone will stare."</p>
-<p>The two doting fools were saying the terrible Words that Yongtae-nim/Older Brother is handsome, so he will receive everyone's attention. Today, the war of nerves between Taira Jiro and the other succession competitors would be no joke, and if I received everyone's Gaze, that would also be a considerably big Problem.</p>
-<p>Only Taira Kanna would say, "Orabeoni, the funeral Suit suits you well too~!" but the other Taira Successors would definitely not think well of it. In fact, today's funeral had a slightly unsettling Reason. It was because Taira Kanna kept sending Text Messages like, "Orabeoni, I'll see you after a long time. I'm looking forward to it♥."</p>
-<p>Even when she was the Student Council President of St. Francis Girls' Academy, Taira Kanna had kidnapped me without hesitation, so there was a Possibility she would cause some Incident, regardless of whether the current Place was a funeral. Of course, it was highly possible it was just a Text Message saying she was looking forward to seeing me after a long time, but the Crazy Taira Kanna, who had a screw loose somewhere, always had to be watched carefully. Still, at this funeral, only Taira Kanna was someone to worry about, which was Fortunate. Surely there wouldn't be another Crazy Person, right?</p>
-<p>Christmas Special Illustration~!</p>
-<p>Requested by TheDreaming-nim: 1. Alik in a Santa Hat 2. Taira Kisa as Rudolph</p>
-<p>1.</p>
-<p>2.</p>
-<p>Requested by JeongChucky-nim: 1. Home Economics Teacher as Santa Girl holding a Candy Sword~! 2. Simyeonui ttal, "I'm the Gift"~!</p>
-<p>1.</p>
-<p>Simyeonui ttal in Gift Wrapping</p>
-<p>You requested "Abyss Princess," so I made it Simyeonui ttal, who is the closest~!</p>
-<p>Requested by Hwanbuljeoldaebulga-nim: Lisa in a Santa Bikini with armpit Exposure, Home Economics Teacher~!</p>
-<p>Home Economics Teacher~!</p>
-<p>Requested by Meokguja-nim: Ryuta in Rudolph makeup~!</p>
-<p>Requested by Gojoy-nim: Taira Camilla's Ordinary Santa Attire, Sexy Santa Attire~!</p>
-<p>Ordinary?</p>
-<p>Her Figure itself is Erotic, so it doesn't feel Ordinary hehehe</p>
-<p>Sexy Santa~!</p>
-<p>Requested by Gojoy-nim: Chapter 58 Illustration Remake~!</p>
-<p>1.</p>
-<p>2.</p>
+<p>After World War III, the world was mostly in a similar situation. Among the countless participants and war victims, an immense number of amputees emerged.</p>
+<p>This was because it was an era where medical advancements had reached a level capable of saving everyone except those who would suffer Instant Death, so many people survived after receiving timely medical support even if their limbs were amputated.</p>
+<p>Thus, in each country, there were amputees ranging from as few as one hundred thousand to as many as one million. Perhaps because of that, not long after the war ended, something called cyber-implants began to become popular worldwide.</p>
+<p>The victims of World War III, although more expensive than Prosthetic Hands, equipped their bodies with cyber-implants that had just begun to be released, in order to overcome their disabilities with the help of machines.</p>
+<p>Of course, this was limited to those with a certain amount of Wealth, so cyber-implants were not yet fully popularized, but they were distributed to the extent that they could be called a trend.</p>
+<p>However, in Japan, cyber-implants had a certain Price, and because the Japanese government privatized PMCs and acted as if it almost ignored the participants of World War III, the penetration rate of cyber-implants among amputees in Japan was among the lowest in developed countries.</p>
+<p>Last year, when a cyber Zombie incident occurred in Shin-Namgyeong City due to a virus infecting cyber-implants, while other countries were Astonished by the phenomenon of people turning into Zombies, Japan was more surprised by the fact that so many people in one City had received cyber-implant procedures, which became a Scene explaining Japan's low penetration rate of cyber-implants.</p>
+<p>So, when Zenith Force, the new PMC, recruited new employees as amputees under the name Re-Born, and decided to provide cyber-implants for free to all successful applicants, the Reaction within Japan was explosive.</p>
+<p>Of course, it was a recruitment of around 100 people, far short of the number of amputees in Japan, but considering how difficult it is for amputees to find employment, it could be said to be the largest-scale recruitment in recent years.</p>
+<p>Moreover, not only was it recruitment, but because they said they would provide much sturdier and more powerful combat cyber-implants, not just everyday ones, for free, it became an even bigger Topic among amputees.</p>
+<p>Countless amputees, with the thought of "What if me too?", applied for Zenith Force's new employee recruitment, and the number reached a staggering 150,000, making it a Topic again. This time, it became a Topic not only among amputees but also among ordinary citizens through News and newspaper articles.</p>
+<p>Moreover, even if they were eliminated, the Story that 30,000 yen would be provided as "Amputee Victim Livelihood Support Fund" and cyber-implant discount coupons would be issued, made those who found PMCs uncomfortable and did not apply feel extremely regretful.</p>
+<p>Not all, but considering that a significant number of applicants were beggars, 30,000 yen was by no means a small Amount. It was enough to cover meals for at least one or two weeks or to use for urgent needs.</p>
+<p>And the cyber-implant discount coupon provided with it was also not bad: it was a discount coupon that allowed the purchase of the most basic line of cyber-implants from a company called Cyberware, which was recently becoming famous in the USA, at a 30 percent discounted Price.</p>
+<p>At this level, because it was an Amount that even poor families could afford if they pushed themselves a bit, the eliminated applicants would be able to equip cyber-implants and find employment in other Work.</p>
+<p>Because of these many favorable Conditions, there were so many applicants that Zenith Force had no choice but to filter out applicants in several Stages, and the very first gateway/hurdle was the Written Aptitude Test.</p>
+<p>As it was a PMC whose main work was battle, not a general company, different aptitudes were required than for a general company. Therefore, the questions on the Written Exam were vastly different from the test questions of other enterprises.</p>
+<p>Teamwork with team members was basic, questions about how well they could comply with Commands and Command, whether they could maintain composure even in brutal battles, and their Perception of secret maintenance and security tested the applicants.</p>
+<p>Zenith Force, which had prepared Written Exam testing grounds in the Capital of each prefecture, eliminated one hundred thousand people, two-thirds of the applicants, with a single Written Exam.</p>
+<p>No matter how good other abilities were, Zenith Force's position was that if they lacked the aptitude required for a PMC combat agent, they would inevitably be eliminated. And since the maximum number of successful applicants was about one hundred, they were individuals who would have to be dropped eventually.</p>
+<p>Although a significant number of 100,000 people were eliminated, surprisingly, there was no grumbling, as the Amputee Victim Livelihood Support Fund and cyber-implant discount coupons prepared by Zenith Force quelled the dissatisfaction of failure.</p>
+<p>"Jin Yongtae-nim, 100,000 people failed the Written Exam, and 50,000 are left~!"</p>
+<p>I was doing various tasks because of Zenith Force's new recruitment, when Linling came into the room and reported. 50,000 people? More than I thought are left? Is it because most of the applicants are World War III participants, so their basic mindset is different? Or is it because their Determination to join our company is different?</p>
+<p>Because of Tsukiyo's point, we convened an emergency Meeting yesterday to discuss how to deal with the eliminated applicants, and what came out of it was the livelihood support fund and cyber-implant discount coupons.</p>
+<p>The livelihood support fund was calculated by AI Friends like Linling, Lara Sinclair, and Eve, considering at what Amount people would feel like they were being treated as beggars, and they decided to pay a little more than that, so an Amount of 30,000 yen was set, calculating transportation costs and various other things.</p>
+<p>A considerable Amount of funds was consumed by this, but it was not an unbearable Level. Zenith Force and I were able to gain a strong Image of not abandoning war heroes. Of course, this would require more viral marketing.</p>
+<p>The cyber-implant discount coupon provided next was a quite strategic business move: by distributing cyber-implants cheaply in Japan, where their penetration was not yet widespread, it was a strategy to significantly increase market share in Japan.</p>
+<p>All applicants who applied to Zenith Force were 'Customers' who needed cyber-implants, so the judgment was that by offering goodwill, loyal Customers could be secured.</p>
+<p>Cyberware's cyber-implants, being manufactured in fully mechanized unmanned factories, still yielded a small profit even with a 30 percent discount.</p>
+<p>And since consumables and parts would have to be continuously purchased, profits would be generated continuously, and if they found employment using cyber-implants, they would naturally become interested in higher-end lines rather than the basic line, so the cyber-implant discount coupons were distributed with the idea of attracting future Customers along with market share.</p>
+<p>"At this Level, the handling of eliminated applicants must have gone well, right?"</p>
+<p>"We're giving them Money and cyber-implant discount coupons, so if they write bad Words online, they're probably a Minamoto viral marketing company, aren't they? I'll find their Address and deal with them somehow. Of course, if they actually received Money and discount coupons from us and are still swearing, I'll find their Address and..."</p>
+<p>Linling, speaking with the light gone from her Eyes, was quite frightening, but seeing that no Report of negative public opinion had come in yet, the measures for the eliminated applicants seemed to have gone well. After all, it also had the bonus of raising our Image and increasing cyber-implant market share in Japan.</p>
+<p>"Among the successful Written Exam applicants, how many people should we be wary of?"</p>
+<p>"About 15 people?"</p>
+<p>There were quite a few questions on this Written Exam. There were questions designed to ascertain if the opponent was answering properly without contradiction by posing several similar problems, and there were also questions to filter out other Successors or Minamoto's Spies.</p>
+<p>If you look at each Problem individually, it was general, but if you comprehensively judged the answers to several problems, Trap questions that could reveal Spies were hidden.</p>
+<p>Of course, there might be Spies who were excellent enough to see through this Trap, or who luckily avoided the Problem by misinterpreting it, but the Written Exam was only the first filter.</p>
+<p>They would be filtered out in the remaining second and third Tests, and even if they passed through all our Traps, we still had a plan prepared, so there was no need to worry about Spies.</p>
+<p>"Tell Joseodang to eliminate the 15 caught individuals in the second Stage and continue Surveillance."</p>
+<p>Even if Spies were caught, there was no intention to kill or harm them. Rather, by monitoring the eliminated Spies, we could identify the opponent's Cheopbo Resources, so Joseodang agents would have a hard time for a while.</p>
+<p>"Is the second Test Preparation going well?"</p>
+<p>If the first Written Exam was a Test to see if one was a Talent mentally suited for a PMC, the second Test was a Test of the body. Because it was a Test to confirm whether the body could accept combat-grade cyber-implants, considerable Preparation was needed.</p>
+<p>The Written Exam also required considerable Effort to meticulously design the questions, and the second Test also involved no less Effort, so I wondered how many would pass this time. This is because if one passed the second Test, they could be called a provisional successful applicant for Zenith Force. Moreover, the second Test also included one other arrangement, so its results were also highly anticipated.</p>
+<p>Today, since there were no requests, I'll upload one of the attire practices I made before ㅎㅎ</p>
+<p>I practiced the attire for a nun Character to appear in another Work, and the Character wearing the practice clothes was Chieri ㅎㅎ</p>

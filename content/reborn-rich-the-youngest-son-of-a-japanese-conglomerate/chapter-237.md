@@ -5,75 +5,67 @@ weight = 237
 chapter = 237
 +++
 
-<p>I don't know what system allows the hologram to move so freely, but Eve-ssi came all the way to the entrance to greet me. I have no idea why, but Eve-ssi was welcoming me. I don't even have any AI data this time, so she's not expecting to get more AI data again, is she?</p>
-<p>"Ryuta-nim, please come this way, and Chieri-nim, please come this way!"</p>
-<p>Eve-ssi guided each of us to a counter seat. At the counter seat where Chieri, no, Mimata Chieri went, a new hologram of Eve-ssi appeared and was introducing herself to Mimata Chieri, who was visiting for the first time. It seemed that Mimata Chieri's Dark Trade app ID was Chieri.</p>
-<p>"But why are you welcoming me so much?"</p>
-<p>"Ahaha, hardly anyone comes to the New York branch these days. There are ominous rumors going around this area...."</p>
-<p>This area has a port and the Dark Trade, so the security shouldn't be bad. What's going on? If Eve-ssi, who is the Dark Trade itself, says it's ominous, it must be really ominous.</p>
-<p>"Can you tell me what the rumors are?"</p>
-<p>"Well, I'd normally have to charge points, but since you're a customer who frequents this place, I have a duty to provide basic security information, so I'll tell you for free."</p>
-<p>Well, the grade to come to the Dark Trade branch is from Plus grade members, so they have to notify the excellent members who come here so they aren't in danger.</p>
-<p>"An unknown... like a vampire, is attacking the Kurotsuki-doo New York branch. Ryuta-nim is Asian, so you might be mistaken for Kurotsuki-doo by that vampire-like being, so be extra careful."</p>
-<p>A vampire.... A historic monster that has been with humanity since the beginning, a terrifying ghost that sucks blood, just like the name says. Well, strictly speaking, it's not a ghost, though.</p>
-<p>As a monster, it was quite strong and had a lot of annoying characteristics, so fighting it was annoying, so it was better not to deal with it.</p>
-<p>I almost got tangled up with a weird guy. I have to be careful. It would be nice if Kurotsuki-doo fought that vampire bastard. Dang So-hwa will try to eliminate the new organization, but since they have to focus their efforts here, it will be easier to buy time.</p>
-<p>Dang So-hwa needs to settle down well while Kurotsuki-doo is in trouble. I should tell her this news after I leave the Dark Trade.</p>
-<p>"Okay. I'll be careful."</p>
-<p>"Yes, please be careful not to get hurt. Then I'll open the catalog for you now!"</p>
-<p>With Eve-ssi's words, a hologram window opened and a list of numerous items appeared. Hmm, there are so many items that I need to narrow it down a bit?</p>
-<p>"Show me old books, relics, unusual materials, and weapons. Oh, and elixirs too."</p>
-<p>"Yes! Please wait a moment."</p>
-<p>As expected, a moment for Eve-ssi, the world's top AI, was an instant. As soon as she finished saying "Please wait," new categorized lists reappeared. It was still long, but it was manageable to look through.</p>
-<p>"Hmm."</p>
-<p>Is it because there are so many people in New York that there are so many eyes looking? The list was long, but I didn't see any good items that I knew of. Or maybe the auction is not far away, so people are putting items up for auction, and the seeds of good items have dried up.</p>
-<p>Still, after flipping through a few pages, I found a few things worth buying, so I chose about three items.</p>
-<p>The first was a relic called the Allying Music Box. It was a relic for alarms, and when someone with evil intentions came nearby, the music box would move and make a sound.</p>
-<p>And the next was a book called The Art of Combat (Kunst des Fechten), which contained the secret swordsmanship of Johannes Liechtenauer, a German sword master. I remember it being about the same grade as Gok San-pa's Gale Sword Technique, so it's more profitable to buy it.</p>
-<p>However, Liechtenauer was more famous worldwide than Cheok Jun-gyeong, so it was more expensive than Gok San-pa's Gale Sword Technique.</p>
-<p>Finally, there was a liquor made in the Middle Ages called the Elixir of Power. It was said to have been made in some monastery, but I just bought it because the name was Elixir of Power. If it's an elixir that permanently increases strength, that's great, and even if it's a buff-type potion, it's quite useful. Even if it's neither, it's a very old liquor, so it should be worth something.</p>
-<p>"Give me the music box and the Elixir of Power right away, and ship the book to the registered address."</p>
-<p>"I'll get the music box and the Elixir of Power ready for you before you leave. Before that, I have a proposal for Ryuta-nim."</p>
-<p>A sudden proposal? What's going on? I don't remember this kind of event in the Dark Trade in the game....</p>
-<p>"What proposal?"</p>
-<p>"We'd like to receive mithril from the mithril mine that Ryuta-nim recently acquired."</p>
-<p>I was curious how they knew I had acquired a mithril mine, but since I was going to develop the mine anyway, it was important to find a supplier, and the Dark Trade would be a great customer.</p>
-<p>"I haven't developed the mine yet, so I don't know how much is buried there?"</p>
-<p>The amount of reserves in the mine itself is expected to be quite large, as it is treated as a specialty of Akita Prefecture in the game, but I didn't know the exact amount of reserves.</p>
-<p>"Don't worry about the reserves. Kurotsuki-doo obtained documents calculating the reserves secretly from Taira Foods."</p>
-<p>Where did they get that? I knew the Dark Trade's information network was amazing, but this is a bit creepy. Still, some of the mithril mined from the mine will be used by the company I and Han Yu-gyeong established in Korea, so I couldn't provide it all to the Dark Trade, so I decided not to give a complete answer for now. I'll have to hand it over to Jinmija Yeosa, who is in charge of the mine.</p>
-<p>I'll draw up a contract for now, but please get in touch with Hata Yoshiko, the CEO of Hatake Investment Company, for the contract details.</p>
-<p>"You mean Ryuta-nim's mother?"</p>
-<p>What, did they investigate everyone around me? For reference, Hata Yoshiko is the Japanese reading of Jinmija Yeosa's name.</p>
-<p>"Yes, let's finish the contract like this for now, and where did you get the information that I got the mine?"</p>
-<p>"Rather than getting it from somewhere, if Hatake Investment Company is practically Taira Ryuta-nim's company, and its subsidiary, Hatake Mining Company, bought the Taira Foods 8th factory site in Daisen City from East Weapon, then logically, it's a natural result that Ryuta-nim got the mithril mine, right?"</p>
-<p>It would be easy to infer the owner of the land from officially available registry copies. Hatake Investment Company also has Jinmija Yeosa as its CEO, so it would be easy to track my name.</p>
-<p>I'm not thinking that I won't get caught at all. I just thought it would be okay to cover my eyes and make Hatake Investment Company. I'll just create a company under a different name later to hide the real information.</p>
-<p>"And...."</p>
-<p>"And?"</p>
-<p>Does she have other business besides the mithril mine? Eve-ssi opened her mouth with a slightly hesitant expression.</p>
-<p>"Please stop by the Tokyo branch too! I've been waiting to surprise Ryuta-nim!"</p>
-<p>I don't know what she's talking about. I don't understand even if she acts like a tsundere while humming and glancing.</p>
-<p>"....Okay. I'll stop by the Tokyo branch when I go back to Japan this time."</p>
-<p>"Really?!"</p>
-<p>"Yes, really!"</p>
-<p>I don't know what she's trying to show me, but I'm getting really curious now, so I really need to stop by the Tokyo branch.</p>
-<p>"Here you go."</p>
-<p>Eve-ssi sticks out her pinky finger. I looked at it for a moment, wondering what it was, and then I realized that it meant to make a pinky promise, so I reached out my hand containing the abyss and hooked my pinky with Eve-ssi's.</p>
-<p>"Heuhyat~!"</p>
-<p>"See you next time, Eve-ssi."</p>
-<p>As expected, the unfamiliar sensation made Eve-ssi surprised and make a strange noise, "Heuhyat." I smiled slightly at the sight and got up from my seat. And when I looked at where Mimata Chieri was sitting, Mimata Chieri was muttering to herself with a glazed look in her eyes. When I listened closely, she kept muttering incomprehensible words like, "Should I buy this? But I can't give up the bed screen."</p>
-<p>What is it? What's making her like that? I looked at Eve-ssi, who was sitting in front of Mimata Chieri.</p>
-<p>She's been like that because she's been worrying about what to buy. I think she doesn't have enough money to buy both.</p>
-<p>After hearing Eve-ssi's words, I looked at the screen that Mimata Chieri was looking at. It was a shopping cart window, and one was a silent, ultra-small reconnaissance drone, and the other was an ultra-small spy camera that didn't need a power supply for two months on a single charge.</p>
-<p>Just by looking at the products, I could guess what Mimata Chieri was going to do, so I sat down and listened to Mimata Chieri muttering. I'm probably going to be the victim of this reconnaissance drone and spycam, so I can't let her buy them.</p>
-<p>"Eve-ssi, please cancel what's in the shopping cart."</p>
-<p>"Yes~☆"</p>
-<p>"Nooooo!"</p>
-<p>Ignoring Mimata Chieri's scream, I slung her over my shoulder and left the Dark Trade's New York branch. Mimata Chieri kept wriggling like a hateful 4-year-old girl, crying, "No, I have to buy it!" but I ignored her and went to where I had parked my motorcycle.</p>
-<p>Then suddenly, a murderous voice came from behind. It was a murderous voice, but it was a pretty soprano female voice. It was a beautiful, mesmerizing voice that you could tell was a beauty just by hearing it.</p>
-<p>"Black Moon Company bastards, I thought I eliminated the human trafficking ring, but did they make another one? Die!"</p>
-<p>Black Moon Company was the American name for Kurotsuki-doo. Then the bastard attacking me now is...!</p>
-<p>-----</p>
-<p>Eve-ssi's advantages! Her bust size can be adjusted because she's a hologram! (Small → Medium → Large)</p>
-<p>Disadvantage: Can't do it because she's a hologram ㅠㅠ</p>
+<p>"Hmm, it seems Muyoung-gwi is dead."</p>
+<p>Black Moon Party's monthly regular central executive meeting. A masked man, Black Moon, the leader of the Black Moon Party, opened his mouth. It was a huge deal. The executives who had gathered buzzed with chatter at the news that Muyoung-gwi, a powerhouse within the top five of the Black Moon Party in terms of martial prowess, had died.</p>
+<p>"!"</p>
+<p>"Wasn't Muyoung-gwi immortal?"</p>
+<p>Everyone present was an executive and knew Muyoung-gwi's true nature. The fact that Muyoung-gwi, a spirit who had lived for hundreds of years, had died was unbelievable, even coming from Black Moon, the absolute authority of the Black Moon Party. Muyoung-gwi's death, someone they believed to be immortal, was that shocking.</p>
+<p>"Here, this is Muyoung-gwi's Soul Sphere. No matter how much damage Muyoung-gwi's spirit takes, if this Soul Sphere isn't destroyed, he can revive. But when I checked this morning, the Soul Sphere was destroyed like this."</p>
+<p>When everyone couldn't accept the truth, Black Moon placed shattered glass shards on a large plate and showed them to everyone. Muyoung-gwi's Soul Sphere, as Black Moon said, was a kind of Life Vessel. Even if Muyoung-gwi's spirit was damaged, as long as the spirit core, which could be called the essence of his soul, was intact, he could eventually revive, even if it took time.</p>
+<p>But seeing the Soul Sphere shattered to pieces, it seemed that Muyoung-gwi's spirit had either been completely annihilated or had disappeared from this dimension, severing the connection between Muyoung-gwi and the Soul Sphere, causing the Soul Sphere to be destroyed.</p>
+<p>"Nikolai-yang, explain what happened."</p>
+<p>Black Moon asked Nikolai-yang, the vice-leader of the Black Moon Party, who had dispatched Muyoung-gwi to New York. Nikolai-yang rose from her seat.</p>
+<p>"Since the New York branch hadn't paid its dues for several months, we concluded it was a branch rebellion and dispatched Muyoung-gwi."</p>
+<p>"Ah, that's right."</p>
+<p>At Nikolai-yang's words, Black Moon nodded as if remembering. Judging a branch's rebellion was quite a significant matter, so other than doing it openly like Dang So-hwa, it was common for the leader and vice-leader to consult, so Black Moon remembered having discussed it.</p>
+<p>"But it turned out that our contact at headquarters was deemed a spy and was taken care of, so communication wasn't smooth. And the New York branch was under attack and couldn't properly pay its dues, so we misunderstood. Since Muyoung-dae was dispatched anyway, we decided to help them with the attack."</p>
+<p>"So, he died fighting the guys attacking the New York branch? Is that it?"</p>
+<p>Black Moon spoke as if wondering how someone fighting a branch could kill Muyoung-gwi, and Nikolai-yang opened her mouth with a calm expression.</p>
+<p>"The opponent was a vampire, apparently."</p>
+<p>"Hmm...! A young vampire, maybe not, but a mature vampire could beat Muyoung-gwi."</p>
+<p>At Nikolai-yang's explanation, Black Moon nodded and said. A powerful, old vampire could beat Muyoung-gwi. It was a battle of demons who had lived for a long time, so the Metropolitan Museum incident was understandable.</p>
+<p>"Jackson Shadow was also found dead. It's clearly the work of a vampire, with blood overflowing on the bed."</p>
+<p>"In the end, that stupid New York branch manager incurred the wrath of a vampire, and poor Muyoung-gwi died."</p>
+<p>The fact that there was a lot of blood even though the vampire killed the opponent meant that the target had a huge grudge. Among vampires, it meant that they didn't kill to eat, but to take revenge, and they would submerge the corpse in blood.</p>
+<p>"What should we do with the New York branch?"</p>
+<p>"It's a branch that doesn't give us much profit because it's entangled with many forces, but we need it, even if it's small. Send your cousin, Sergei-yang, as the branch manager. He's talented, so he'll handle it well."</p>
+<p>".... I understand."</p>
+<p>Nikolai-yang answered, grinding her teeth inwardly. Appointing someone with the same family name, Yang, as the New York branch manager might seem beneficial to Nikolai-yang herself, but appointing her cousin, one of her most cherished confidants, Sergei-yang, to the New York branch manager position, which was a minor post, was a way to weaken her, the vice-leader's, power.</p>
+<p>"No one objects to Sergei-yang going to the New York branch as the branch manager, right?"</p>
+<p>"No!"</p>
+<p>"I agree!"</p>
+<p>Black Moon looked around at the other executives to prevent Nikolai-yang from changing her mind, and the other executives, except for Nikolai-yang's faction, nodded, as it would be good for them if Nikolai-yang's faction weakened.</p>
+<p>'Keuk, just you wait, Black Moon...!'</p>
+<p>Nikolai-yang was sharpening her knife inwardly, but she was smiling outwardly.</p>
+<p>###</p>
+<p>As a result, there was no shortage of stamina. With the combination of the crimson life pillar swimming in vaginal fluids and the Black Mileuk Gong, a technique of the inner chambers, I was able to defeat (?) Mimata Chieri and the Fitzgerald mother and daughter.</p>
+<p>It was a pattern where I would do a 2-on-1 with the Fitzgerald mother and daughter and knock them both out for a while, and then Mimata Chieri, who had been watching and masturbating until then, would cling to me. Once I got used to it, I was able to have sex while distributing my pace appropriately.</p>
+<p>It was a fairly large and expensive room, so all four of us could lie down. Everyone had fallen asleep as if passed out from the intense sex of the early morning, and I was the only one who had woken up slightly after falling asleep and was watching TV.</p>
+<p>These days, most TVs have automatic translation programs, so I could watch American programs with subtitles.</p>
+<p>I should watch the news since there was an incident yesterday. There might be new information about the Metropolitan Museum incident.</p>
+<p>"Chinese gangs fought at the New York Metropolitan Museum and terrorized police with bombs. Let's connect with Johnson, our reporter on the scene. Johnson?"</p>
+<p>A glamorous black female announcer briefly mentioned what happened yesterday and connected to a local reporter. By the way, Johnson the reporter is a familiar name. Soon, the screen changed, and a reporter with brown hair and glasses began reporting in front of the Metropolitan Museum with a microphone.</p>
+<p>The content of Johnson's report was not much different from what the announcer said. He was talking about the corpses in the museum belonging to some Asian gang and that there were frequent street fights recently, which was different from the actual events, so I changed the channel.</p>
+<p>Oh, did the US and Japan have a soccer game? The channel I switched to was a sports channel, and it was showing highlights of a friendly A match between the US and Japan.</p>
+<p>I didn't watch the whole game, but after watching the highlights, Japan dominated the game with organized soccer, but in the end, they only did caressing soccer by passing the ball around and couldn't score. The US used physical soccer and scored two goals with headers, and the US won 2-0.</p>
+<p>If this continues, Kazuhiro's call-up to the Japanese national team will become even bigger? But after watching the interview with soccer national team coach Manzawa Sanetada, I thought my idea was wrong.</p>
+<p>"We lost because our best players playing in Europe weren't called up. And we didn't score, but all other indicators were ahead of us. I don't want controversy over one player."</p>
+<p>Despite losing, he had an attitude that he was not at fault at all, and it seemed that Kazuhiro would never be selected as long as that coach was there. And that one player is clearly a sniper at Kazuhiro.</p>
+<p>"Shall we see what the reaction is...?"</p>
+<p>I went online to see the reaction, and most of it was cursing the coach. There were quite a few recommendations for articles saying that it would be better for Kazuhiro to go to the US national team, and some memes were popping up. For example, after posting a picture of Kazuhiro's interview....</p>
+<p>Hello, I am Smith Kazuhiro.</p>
+<p>I enjoyed watching Mama-less japan soccer.</p>
+<p>In fact, I Naturalized a long time ago. To the USA.</p>
+<p>I have nothing to do with Japan.</p>
+<p>Thank you. For your interest so far. You bastards.</p>
+<p>You keep associating me with japan?? Don't do it.</p>
+<p>I'll say it again, I'm a USA person now.</p>
+<p>Or I'll teach you. Sex to your Mama.</p>
+<p>Memes like this about Kazuhiro going to the US were trending. I think I saw this before I possessed this body, but how is it trending here? Amazing.... Of course, the problem in the Japanese soccer world was that Kazuhiro was really thinking of going to the US national team, but I don't give a shit about Japanese soccer.</p>
+<p>I sent the meme I just saw to Kazuhiro with a link and texted him asking if he was really going to the US national team. But there was no reply from Kazuhiro, probably because he was training in the morning. He'll send a reply when he sees it later.</p>
+<p>"Heueung♥"</p>
+<p>Everyone was slowly waking up and clinging to me with sleepy eyes. I kissed everyone and woke them all up. I had made a reservation at a brunch restaurant, so we had to get up soon. After going to the restaurant, we planned to go to the hideout of Phantom Thief Francois to look at the items.</p>
+<p>"I've made a reservation at a brunch restaurant, so get up. We don't have much time."</p>
+<p>When I said this while rubbing and patting everyone's butts, they got up one by one. At the words that we didn't have much time, they went into the shower room together with slightly awkward steps, probably because they were so sore from yesterday. The door opened slightly in the middle, and Arisu poked her face out with a flustered expression.</p>
+<p>"Ryuta...! Now that I think about it, we don't have any clothes. If we only wear cyberware, we'll be arrested as Francois right away.... I'm sorry, but while we're getting ready, can you buy some clothes for Mom and me?"</p>
+<p>Oh, that's right. I just kidnapped them in Phantom Thief Francois's form and brought them to this hotel.... Looking next to the bed, there was only cyberware scattered around, except for Mimata Chieri's clothes. I nodded in agreement, wrote down their sizes, and went outside.</p>

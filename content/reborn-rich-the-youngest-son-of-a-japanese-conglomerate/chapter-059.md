@@ -5,64 +5,81 @@ weight = 59
 chapter = 59
 +++
 
-<p>The next day, another new day began. I woke up, got ready in 10 minutes, and arrived at the company in 5 minutes. I didn't realize how great a perk it was to have the company so close when I commuted before my possession. Being able to sleep until 8:30 was a Blessing.</p>
-<p>"Hello!" I started today's Work with a refreshing greeting. Still, after almost a week, I was slowly getting used to the Work. Though, as the Youngest of the team, I still had more chores to do.</p>
-<p>One peculiar thing that happened today was that Shinoe Misano appointed me as the person in charge of external work support. Of course, Shinoe Misano was the main person in charge.</p>
-<p>Shinoe Misano's Justification to the team members was that my surname is 'Taira', which would give the Opponent a little more trust, but of course, she must have appointed me because she wanted to take me out every time she went outside and fuck my Dick. She's so Lewd, how did she manage not to cheat when her Husband went overseas? It was truly a mystery.</p>
-<p>Still, unlike Shinoe Misano's Heuksim, there was no external schedule today, so I could have lunch with Mimata Chieri. Mimata Chieri ordered a medium-sized udon, considering she would exchange some with me, and I was still having a large Size. For reference, the Menu I chose was mentaiko cream pasta. Today was a noodle day.</p>
-<p>Since many people, like Mimata Chieri and me, exchanged small portions, side Plates were prepared so we could easily swap food.</p>
-<p>"Hehe! I was really disappointed that Junior-gun wasn't there for lunch yesterday. Steak and kaisendon came out, and I absolutely love both of them, you know?"</p>
-<p>"So, what did you choose?"</p>
-<p>"Kaisendon~! Steak felt a bit too heavy for lunch."</p>
-<p>The Menu yesterday was good, indeed. Of course, I also had eel donburi, which was no less delicious.</p>
-<p>"I had eel donburi for lunch yesterday."</p>
-<p>"Wow, that sounds delicious! Still, we had the same kind of donburi, didn't we?"</p>
-<p>Kaisendon (Seafood Donburi) is seafood donburi, so it's indeed a donburi, just like eel donburi.</p>
-<p>"Then, shall we go for Steak next time?"</p>
-<p>"Sounds great~! Since I'm your Sunbae, I'll introduce you to the most delicious Steak restaurant in this Neighborhood!"</p>
-<p>"This Neighborhood is new to me, so I didn't know any good restaurants. Thank you, Senior-nim!"</p>
-<p>After lunch, I made a promise with Mimata Chieri to have a Meal sometime, and as I was back to Work, Shinoe Misano called me. She told me to follow her, saying she was going to look for some data, and when I went, it was a secluded office-like Place that no one seemed to use. I could use this Place later, too?</p>
-<p>I went in first, and Shinoe Misano followed, ttal-ggak the Door shut. Shinoe Misano sat on the desk with a seductive Expression, lifting her Suit skirt, and there were no panties underneath. Her Pussy was already glistening with anticipation for office Sex, making Foreplay seem unnecessary.</p>
-<p>Pulling down my Pants, I approached and immediately plunged my Cock into her glistening, Byeontae Pussy. The moment my Cock entered, Shinoe Misano let out a tumultuous moan.</p>
-<p>"Haaahng!!"</p>
-<p>"I'll kiss you, so be quiet."</p>
-<p>Fearing our Whispers of Pleasure might be heard, I covered Shinoe Misano's mouth with mine. As I kissed her and Thrust, she was so pleased she nearly died.</p>
-<p>I drove the audacious, No panties-wearing Shinoe Misano to exhaustion with continuous Climaxes. I waited until Shinoe Misano regained her strength, then returned to the office, and before long, leaving work time arrived again.</p>
-<p>Was it because there was Sex time in between that Time flew by so fast? It was super easy. Mimata Chieri said that when the Newcomer training approaches, it gets incredibly busy, so I should enjoy it to the fullest before then.</p>
-<p>After leaving work, as I walked Home, a Line came in. Checking it, it was Taira Yukiko.</p>
-<p>Taira Yukiko: Come to the Parking Lot behind.</p>
-<p>Taira Ryuta: Understood, Mother.</p>
-<p>By the way, why a Parking Lot? Ah! Come to think of it, Taira Yukiko said the vehicle she ordered would arrive around today. I headed to the Parking Lot behind the Annex with an expectant Expression.</p>
-<p>Taira Yukiko was leaning against a vehicle, waiting for me. And when she saw me, she smiled and threw something. I caught it and checked; it was a Key. Nowadays, Keys aren't used much, but some hybrid vehicles still used Keys.</p>
-<p>They said it was used to activate the internal combustion engine with a Key to escape when the vehicle's System was Neutralized by an EMP Attack. Most such vehicles were military vehicles, though....</p>
-<p>Looking closely, it was a dark blue SUV, seemingly modeled after military vehicles like General Motors' Hummer or Stellantis' Jeep from before my possession, full of a macho feel. With its angular, massive feel, it was the kind of vehicle that made you feel like if there was an accident, the Opponent would die, but I would be perfectly fine. I like it?</p>
-<p>"Safety is always paramount for a car. This car is a civilian version of a vehicle Taira Motors supplied to the Self-Defense Forces for military use, so even if there's an accident, you'll be fine."</p>
-<p>Ah! Taira Yukiko's Husband and my Father, Taira Saburo, died in a dump truck accident. That must be why she chose this car for me. From Taira Yukiko's Expression, which held sadness, I felt a pang of sympathy.</p>
-<p>"It seems so. It looks incredibly sturdy; even if a Tank came, I wouldn't get hurt, Mother?"</p>
-<p>I replied brightly for no particular reason and walked around the car, stroking it. Below the taillight, 'chrysalis' was embossed in Gold, and this 'chrysalis' was the car's name. The pronunciation was probably 'chrysalis'. I liked the rear part too. It certainly looked very sturdy.</p>
-<p>After circling the car, I was in front of Taira Yukiko. I gave Taira Yukiko a hug. And I said, "Thank you, Mother," and immediately released the hug. It wasn't that I had any Heuksim; I simply wanted to Comfort her.</p>
-<p>"Oh, oh, yes. Drive well and safely."</p>
-<p>She seemed a little flustered, but Taira Yukiko replied with a Smile, as if she felt my gratitude.</p>
-<p>"First, let's have Evening and then look at the car. The car won't run away."</p>
-<p>As I showed no Expression of leaving the car, Taira Yukiko grabbed my sleeve and headed Home. I guess I was too excited about getting a new car.</p>
-<p>When I entered Home, the Housekeeper had already prepared Evening. Today was hamburg Steak. The Housekeeper, now knowing my Meal portions, served four thick hamburg Steaks with four sunny-side-up eggs on top.</p>
-<p>It was delicious, as expected. The combination of premium wagyu, fresh orange-hued egg yolks, and demi-glace sauce was so delicious that the separately prepared rice seemed to go down endlessly.</p>
-<p>"Mother, I'll go for a spin in the car and be back~!"</p>
-<p>"Drive carefully~!"</p>
-<p>After finishing my Meal, I ran to the Parking Lot. Since I got a new car, I had to drive it. I started the engine using the smart Key attached to the analog Key. They said if I linked this smart Key with my phone, I wouldn't need to carry the Key. I should leave the Key in the car and just carry my phone.</p>
-<p>Before starting, I sat down and authenticated the smart Key with my phone, so now I could do everything with my phone, as long as there wasn't an EMP Attack. But surely, no one would launch an EMP Attack on me?</p>
-<p>I turned on the engine and started driving. It definitely felt heavy, like a military vehicle. I was excited for the first time in a while and drove around Yotsukaido City.</p>
-<p>Of course, since I don't know the geography of Yotsukaido City well, saying I drove around it was an exaggeration; it's more accurate to say I drove wherever my heart desired and then navigated back to Taira Talent Development Institute.</p>
-<p>Although I did drive at the driving academy, I had Sex with the instructor more during driving lessons, so I didn't really feel like I had driven much. So this drive felt like it was after a very long time.</p>
-<p>I returned to the Talent Development Institute, parked, and came Home. Taira Yukiko must have finished bathing by now, right? To avoid making the Mistake of forgetting my underwear again, I grabbed my underwear, Shorts, and a T-shirt to wear at Home, and entered the Bathroom.</p>
-<p>"Kyaak!"</p>
-<p>In the Bathroom, Taira Yukiko had finished bathing and was getting dressed. Unconsciously, I stood frozen, staring at Taira Yukiko's semi-naked body. She was beautiful. Her white Skin and explosive Figure combined to create a Body that any man would be mesmerized by.</p>
-<p>"Ah, uh.... I'm sorry, Mother."</p>
-<p>"Don't just say you're sorry, hurry and get out!!"</p>
-<p>"Ah, yes. I'm sorry."</p>
-<p>Taira Yukiko's Body was white and smooth, as if painted with Milk. I also caught a glimpse of her Breasts, which were a pleasing Pink. Well, she was still 33, in her prime. She probably managed herself as well as any Celebrity, which is why she could maintain that level of Appearance and Skin. Nowadays, anti-aging Technology has advanced, so there were many Celebrities who maintained their Appearance even in their 50s.</p>
-<p>After standing in front of the Bathroom for a while, Taira Yukiko came out. I bowed my Head once more and apologized. As I kept apologizing, Taira Yukiko seemed to calm down.</p>
-<p>"No, it's fine. I must have bathed for too long without realizing it. Still, please be careful."</p>
-<p>"Yes. I'm sorry."</p>
-<p>"Huhu, don't blame yourself too much, I'm fine."</p>
-<p>To be honest, I'm not really sorry. In fact, I'd even like to see it again sometime.</p>
+<p>Forming a connection with Kawaji Emiko at the gym was fortunate. Coincidentally, Kawaji Emiko was in charge of organizing the groups for this class. Grouping was actually an easy task. It was just a matter of mixing the trainees with an app that randomly shuffled people and then dividing them into groups of 10.</p>
+<p>I promised her twenty million won after this class was over for that easy task, and after looking at the resumes and evaluations of each new trainee that had been submitted in advance, I formed my group with only pretty people who had good grades and didn't have overlapping affiliations with subsidiaries. Kawaji Emiko called me a pervert for that, but she was already blinded by the twenty million won I would give her after the training was over.</p>
+<p>,Wow, is this our conference room?</p>
+<p>,There are slippers in front, so put them on and come in.</p>
+<p>Ten members of Group 74, who still hadn't shed their college student image, entered the conference room. Maybe because they were all women, a pleasant fragrance filled the conference room. Come to think of it, they're all older than me. Taira Ryuta is 20 years old, after all. Hmm.... I have a feeling that if the group members find out about this, it might not lead to good results, so I should lie about my age.</p>
+<p>Looking at the schedule, it seemed like it was time to get to know the group members before dinner. So, we decided to introduce ourselves to each other.</p>
+<p>,As I said before, I'm Taira Ryuta. As your mentor, I will do my best to help you.</p>
+<p>Since I was the mentor, I started the introductions first. After finishing the introductions from the first person, Ebie Miyuka, to the last person, Asako Ukie, I felt a bit lost about what to do next.</p>
+<p>Still, we talked about each other's names, hometowns, universities, which subsidiaries we were accepted into, and even trivial things like hobbies and favorite foods, so some time had passed. I just need to kill a little more time.</p>
+<p>,This Room 74 is always open, so if you have group assignments or even individual assignments, you can come here to do them. Or you can come to see me.</p>
+<p>I said, placing all the drinks and snacks I had bought on the rectangular table where everyone was sitting around. A few people's eyes lit up at my last words.</p>
+<p>,Can we meet one-on-one?</p>
+<p>Ebie Miyuka asked boldly. Hmm.... If I say yes outright, will it sound like I'm too eager?</p>
+<p>,If you need counseling, you have to see each other alone. Um.... You can talk over there.</p>
+<p>I pointed to a small office located separately on the first floor. It's definitely easier for me one-on-one too. And people who want to be alone with me probably have a high initial level of interest, right?</p>
+<p>,Me! I want to book a consultation!</p>
+<p>Ebie Miyuka was bold as expected. When I smiled slightly and nodded, the other group members also raised their hands, saying they wanted to book consultations.</p>
+<p>,Then let's have all the group members do it, and I'll contact you via LINE whenever I have time.</p>
+<p>I didn't know the entire group's schedule right away, and I didn't plan to book a consultation (?) all at once, so I notified them that I would send LINE messages as needed.</p>
+<p>,"Ah! And I was thinking of having a company dinner here after dinner tonight, what do you think?"</p>
+<p>,"Sounds good!"</p>
+<p>,"A company dinner... I'm looking forward to it!"</p>
+<p>Why are you answering in less than a second? Well, I'm glad you're attending. It would be a waste of money if the alcohol I bought went to waste.</p>
+<p>,That's a relief. I bought a lot of stuff at the mart in the middle to have a company dinner with you guys.</p>
+<p>I said, opening the refrigerator. The refrigerator was full of alcohol, and in between, it was packed with drinks and retort side dishes that shouldn't be frozen.</p>
+<p>The freezer was full of frozen food and ice cream, but I didn't bother showing the freezer. They'll probably check it out on their own.</p>
+<p>The group members rushed to the refrigerator and talked to each other in surprise.</p>
+<p>,Wow, how much did you buy?</p>
+<p>,I've never seen this much alcohol except at convenience stores or marts.</p>
+<p>Well, buying fifty thousand won worth of alcohol and snacks is a lot. Well, all the women here will eat it all, so there won't be any left over, right?</p>
+<p>,Let's eat dinner together too. The other groups ate with their mentors earlier, but we were lonely eating only among ourselves.</p>
+<p>,That's right, let's eat together!</p>
+<p>It was mealtime, so I pretended to be unable to resist the group members pulling my arm and followed them. Taira Yukiko is the director of the Human Resources Development Center, so she's busy, and she said there's no need to eat dinner together during the training period, so I thought it would be okay to eat with the group members.</p>
+<p>Since there were so many groups, Group 1 to Group 100 had dinner at 6:00 PM, Group 101 to Group 200 had dinner at 6:30 PM, and Group 201 to the last group had dinner at 7:00 PM. This was a measure to prevent everyone from rushing in at 6:00 PM. Breakfast and lunch were also at different times, but they ate by time slots, cutting off by 100 groups.</p>
+<p>Since we were Group 74, we could go straight to the cafeteria as soon as it was dinner time. I was led to the cafeteria by the group members. Dinner was hamburger steak. Here, like the employee cafeteria, you could choose small, medium, or large sizes, so I confidently asked for a large size again. Since the hamburger steaks were made in advance, they gave me four patties without any other sizes.</p>
+<p>I sat down and waited, and the group members gathered. Looking around, I saw that the group members were eating dinner only among themselves without mentors.</p>
+<p>Like girls, they chattered and ate. I chimed in during the conversations and finished the hamburger steak. It was four quite large patties, but they disappeared in eight bites.</p>
+<p>The noisy meal ended, and we rested for a while before agreeing to meet at the Group 74 conference room at 8:00 PM and parted ways.</p>
+<p>###</p>
+<p>,I... I want to get counseling now....</p>
+<p>When everyone was tipsy and gathered in groups of three or five to talk, Ebie Miyuka pulled my sleeve and said. Her face was slightly flushed as if she was a bit drunk. I nodded and whispered in Ebie Miyuka's ear.</p>
+<p>,Wait a little bit.</p>
+<p>,Haa, yes....</p>
+<p>Ebie Miyuka made a lewd moan as if my breath was tickling her ear. I watched the drinking party for a while and then clapped my hands so everyone could hear.</p>
+<p>Clap! Everyone looks at me at the sound of the applause.</p>
+<p>,Let's stop here for today. I'll create these kinds of company dinners often, so don't be disappointed.</p>
+<p>,Yes....</p>
+<p>,Ebie-ssi, please stay and help with the cleanup. We'll take turns cleaning up.</p>
+<p>When everyone staggered out, Ebie Miyuka and I cleaned up the mess. Even after the last group member said goodbye, closed the door, and left, we continued to clean up. If we clean up roughly, the cleaning lady will clean it in the morning.</p>
+<p>,The second floor will be more comfortable than the first floor office. Let's go up.</p>
+<p>I grabbed Ebie Miyuka's hand and went up to the second floor. Ebie Miyuka's hand was wet with sweat, probably because she was nervous. But her whole body will be wet with sweat soon, so it doesn't matter.</p>
+<p>There was bedding laid out on the second floor. Ebie Miyuka hurriedly started kissing my lips. It was a rather awkward kiss, and it seemed like she lacked experience compared to her appearance. I skillfully moved my tongue to make Ebie Miyuka ecstatic.</p>
+<p>Chup, chuu.... Chuuup♡</p>
+<p>Along with the sound of exchanging lewd saliva, Ebie Miyuka lay down on the blanket. While continuing to kiss with our lips, we hurriedly took off each other's clothes.</p>
+<p>Ebie Miyuka was a slim, slender type with a height of just over 160cm. Her breasts were about a full A cup, but since I hadn't had sex lately, I was grateful for any breasts, whether they were A cups or H cups.</p>
+<p>,Haaang!</p>
+<p>Ebie Miyuka reacted sensitively when I brought my lips to her chest. Is it true that the smaller the breasts, the more sensitive they are?</p>
+<p>,Haeung, aah! Haaaa...!</p>
+<p>While continuing to suck and touch her breasts, I stroked her stomach with my remaining hand and gradually went down. I felt the bush, and a gradually humid, muddy area appeared. First, I put the tip of my finger on the hole in the mud with one finger.</p>
+<p>,Haaang!! Sensitive, I'm, I'm sensitive!</p>
+<p>It seemed like Ebie Miyuka herself was sensitive, not just because her breasts were small. I slowly pushed my finger in a little more. But at some point, the advance was blocked. It was as if a transparent membrane was blocking it.</p>
+<p>,Is this your first time?</p>
+<p>Ebie Miyuka nodded shyly at my question. Hmm.... Come to think of it, she was from a women's university. So, it seemed like she hadn't met men often.</p>
+<p>,Mentor-sensei, please make me a woman.</p>
+<p>It was a voice soaked in pleasure. My already stiff dick became even stiffer. Since I couldn't tear the precious hymen with my finger, I took out my finger and put my dick on it. And instead of inserting it, I stimulated from the perineum to the Clitoris with my dick as if doing smata.</p>
+<p>,Euheung!! Heueung! Haaang! I like it, this is my first time, I like it! I like mentor-sensei! Haaang!</p>
+<p>While my dick was rubbing against her pussy, her pussy diligently spat out fluids on my dick to lubricate it. Both the pussy and the dick were slippery enough. This time, instead of slipping from the perineum to the Clitoris, I changed course and entered the moist tunnel.</p>
+<p>,Heueuaaang!</p>
+<p>There was a small obstacle, but it couldn't stop my banana train that had already accelerated. My train ruthlessly broke through the obstacle in front and ran non-stop to the final destination.</p>
+<p>,It hurts, it hurts!</p>
+<p>It's supposed to hurt. I only thought to myself and continued to shake my hips. Ebie Miyuka, who was in pain at first, was now in sync with my movements.</p>
+<p>,Heueung.... Haeung.....</p>
+<p>The moans of pain gradually became filled with pleasure.</p>
+<p>###</p>
+<p>White Day Bonus!</p>
+<p>A Date with Han Yu-gyeong.</p>
+<p>,"This place is supposed to be a great restaurant, let's go quickly, Yong-tae-ya!"</p>
+<p>,"Why suddenly a beauty mark? Euh-eung, to look sexy to Yong-tae...."</p>

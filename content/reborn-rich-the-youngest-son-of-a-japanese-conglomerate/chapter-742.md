@@ -5,86 +5,86 @@ weight = 742
 chapter = 742
 +++
 
-<p>After a brief commotion, Lara Sinclair began to tour the lab with Jinmija Yeosa, who was visiting for the first time today. It had been a few months since I'd seen it too, so I walked around with them, getting a good grasp of how the research at TG Tech was progressing.</p>
-<p>With the recent release of the energy gun and the influx of usage data, the lab had become incredibly busy with improvements. On top of that, Linling's data from years of solo research was added, making everyone even busier.</p>
-<p>,Releasing an improved version right after the initial launch could raise concerns about reliability, so you can take your time."</p>
-<p>,Releasing improved versions is something Han Yu-gyeong or you can do. We're just doing what we can right now."</p>
-<p>I felt bad for the researchers with dark circles under their eyes, but Lara Sinclair shook her head as if disagreeing.</p>
-<p>Well, the release schedule isn't determined by the lab anyway, so they're just doing their jobs regardless.</p>
-<p>,Are you making proper progress on the power suit research, too?"</p>
-<p>,Positive. The busy ones you're seeing are the gun part researchers. The power suit part is doing research over there."</p>
-<p>Lara Sinclair pointed to another office in response to my question. Even if I didn't see it, the power suit side must be quite busy too.</p>
-<p>We had planned to release the energy gun and power suit together, but due to the cyber zombie situation, TG Tech's energy gun unexpectedly became a hot topic, so we released it first. As a result, all of TG Tech's capabilities were focused on the energy gun for a while, pushing back the power suit's development schedule more than we anticipated.</p>
-<p>Moreover, we decided to replace all the armor with the mithril alloy we obtained after taking down Jeon Yong-cheol, which added even more time.</p>
-<p>,Do you need a bit more mithril supply?"</p>
-<p>,Positive, a 15 percent increase in the first quarter of 2054...."</p>
-<p>Jinmija Yeosa wasn't affiliated with TG Tech, so she didn't ask many questions. As the CEO of Hatake Investment Company, she simply asked Lara Sinclair what the company could do to help, such as how much mithril needed to be supplied and whether there were any materials needed from Japan.</p>
-<p>Han Yu-gyeong said it would be fine, but Lara Sinclair, who was handling the practical work, seemed to think a bit more mithril was needed.</p>
-<p>,Jin Yong-tae Master-nim. I've changed my clothes."</p>
-<p>Linling, who had disappeared with Han Yu-gyeong for a moment, returned. Unlike before, when she was wearing a white swimsuit, this time she was wearing a white cyber suit to be released with the power suit.</p>
-<p>But honestly, isn't this basically the same as a swimsuit? Except for the fact that her arms and legs aren't exposed, it's still clinging tightly to her body.</p>
-<p>,Linling, it suits you well."</p>
-<p>,Really? I'm receiving the cyber suit's data and extracting data by wearing it in simulations."</p>
-<p>Hmm.... It seemed like she was doing more than just changing the hologram skin; she was conducting some kind of experiment. It seemed like she could obtain some meaningful data with that method, even if it wasn't actual combat training. Was some kind of physics engine applied?</p>
-<p>Perhaps it was because Linling had been left alone to experiment with simulations, and her core had a built-in physics engine that applied the laws of physics to reality. She seemed familiar with it, as if the Jeonlang had done a lot of experiments like this.</p>
-<p>,Linling, I'm going to Japan tomorrow. I won't see you for a while."</p>
-<p>,Jin Yong-tae Master-nim.... Are you abandoning me like my mother?"</p>
-<p>Suddenly, Linling looked at me with empty eyes. Abandoning her.... Why was she saying such strange things? Seeing her like that reminded me of what Lara Sinclair had said before.</p>
-<p>-Be careful, Ryuta. An AI who has lost its master might become obsessed with its new one.</p>
-<p>,What are you talking about? I told you before, you can still contact me, so don't think strange things."</p>
-<p>I comforted Linling and stroked her head. Of course, I couldn't actually touch her since she was a hologram, but I had my ways. If I stroked her with my abyss-infused hand, I could touch the AI in its hologram state. Just like when I shook hands with Eve before.</p>
-<p>,Ah...! Jin Yong-tae Master-nim, more.... Stroke me more."</p>
-<p>,Okay, good girl. Don't think about being abandoned, and don't say things like that either, okay?"</p>
-<p>,Yeehee...."</p>
-<p>Linling was practically melting from my stroking. She's usually expressionless, but she's so cute like this.</p>
-<p>After stroking her for a while, Linling's unfocused pupils returned to normal, as if she was satisfied. Han Yu-gyeong, who had been quietly watching, approached me and opened her mouth.</p>
-<p>,Stroke me too."</p>
-<p>,Are you jealous of Linling?"</p>
-<p>,It's not that.... It just looks like she's feeling good...."</p>
-<p>Han Yu-gyeong answered as if she was stammering at my question. Linling's reaction was definitely good. I chuckled and stroked Han Yu-gyeong's head. Han Yu-gyeong also enjoyed my stroking for a while, but looked at me as if she was disappointed.</p>
-<p>,I'm sad that you're leaving tomorrow...."</p>
-<p>,We can see each other next time.... Don't be too sad. The mission will be over soon, so I'll come often."</p>
-<p>,...Okay."</p>
-<p>It wasn't tomorrow yet, but she seemed sad that I was leaving. I hugged Han Yu-gyeong and patted her back to reassure her.</p>
-<p>,Jin Yong-tae-ssi."</p>
-<p>As I was hugging and comforting Han Yu-gyeong, someone spoke to me. I turned my head and saw I Yeon-ju, the vice president of Vanguard.</p>
-<p>,Ah, I Yeon-ju-ssi."</p>
-<p>,Yeon-ju-ssi, you're here?"</p>
-<p>Han Yu-gyeong seemed a little embarrassed that she was being hugged by me, so she gently pushed me away and greeted I Yeon-ju as if nothing had happened.</p>
-<p>,Yes, President-nim. I heard that Jin Yong-tae-ssi is going to Japan tomorrow, so I came because I had something to say."</p>
-<p>To me? I didn't have many opportunities to meet I Yeon-ju, and even when we did, it was only a few times in battle, so we weren't that close. I wondered why she had come to find me.</p>
-<p>,Yes, what is it?"</p>
-<p>,I came to thank you. You gave money to the agents who participated in this mission and to the families of the dead agents."</p>
-<p>Was she thanking me for that? I had given 100,000 Dark Web points to everyone who participated this time, so they would have received about 100 million won per person. Of course, I gave 3 million points to I Yeon-ju, who directly helped capture Gao Xiang.</p>
-<p>It was a small amount of money compared to the points I received, but they must have felt grateful for the unexpected money. They seemed especially grateful that I had taken care of the families of the dead agents as well.</p>
-<p>,Everyone worked hard together. It was just an infiltration and escort mission, but it's a shame that there were deaths."</p>
-<p>We were entering an era where power was paramount, so maintaining the loyalty of PMC and security companies was crucial. When situations like this occurred, death benefits and success bonuses were important.</p>
-<p>,I'm grateful too, but all the agents who received the bonus asked me to convey their gratitude."</p>
-<p>,Well.... I just did what I had to do."</p>
-<p>It felt strange to receive such gratitude. I told I Yeon-ju, who was bowing in gratitude, that it was just something I had to do.</p>
-<p>,The company also gave success bonuses and condolence money, but not as much as you, Yong-tae."</p>
-<p>Han Yu-gyeong spoke with a slightly guilty expression, but it was unavoidable given the industry situation. Of course, it was necessary to increase the death benefits a little to increase loyalty, but it was still okay for now. There weren't many opportunities to die in security work these days.</p>
-<p>,Well, it can't be helped. These security companies and PMCs often have people's lives at risk, so they can't allocate a lot of money."</p>
-<p>In Korea, the security industry was the main focus, so there weren't many opportunities to die, and the compensation was quite high. However, in Japan, the PMC situation was quite severe. They were exporting military force to the world, so there were many opportunities to die, and Japanese PMCs were famous for having meager death benefits. The PMC industry's attitude was "take it or leave it," and they had the mindset that if you didn't like the compensation, you could leave the company at any time, since there were plenty of young people who couldn't find jobs.</p>
-<p>That's why PMC agents often took out personal insurance at a considerable cost. There was a reason why insurance companies were booming in Japan.</p>
-<p>Thinking about it that way, it might be a good idea to run an insurance company since a PMC system will soon be established in Korea as well. Then.... There's no need to start a new company; I can just use the opportunity that Han Yu-gyeong has.</p>
-<p>,Yu-gyeong-a."</p>
-<p>,Huh?"</p>
-<p>,You know the Shinkang Group affiliate I mentioned before."</p>
-<p>,Yeah. The one I'm supposed to receive?"</p>
-<p>,Yeah, if you can choose, choose an insurance company."</p>
-<p>I gave Han Yu-gyeong advice, thinking about the future. She looked like she wanted an explanation, so I told her about the relationship between PMCs and insurance companies that I had just thought of.</p>
-<p>,Ah.... I see. There could be such a causal relationship. But do you really think PMCs will be allowed in our country?"</p>
-<p>,The war is over and the unification is complete, so there's no need to maintain a large military force, and several defense companies, including Shinkang, will demand PMCs from the political world. We're also a defense company, so we need to lend a hand in that direction."</p>
-<p>If many PMCs were created, the market for defense companies would naturally expand, so TG Tech had to support the implementation of the PMC business.</p>
-<p>Personally, I didn't think it was good for society at all for private companies to have military force, but if I couldn't stop this overwhelming historical trend, I thought it wouldn't be a bad idea to go with the flow.</p>
-<p>,The lab visit was quite enjoyable. Shall we all go out for dinner then?"</p>
-<p>Jinmija Yeosa, who had toured the lab, approached with a big smile. We had come to the lab after lunch, but as we were talking, it was already dinner time.</p>
-<p>,Mom, this is I Yeon-ju-ssi. She's the head of the Korean security company."</p>
-<p>,Oh, is that so? I Yeon-ju-ssi, let's go out for dinner together."</p>
-<p>I introduced I Yeon-ju to Jinmija Yeosa. They wouldn't have a chance to meet separately, but I wanted them to at least get to know each other's faces. They could help each other when Vanguard was dispatched to Japan or when Mom came to Korea.</p>
-<p>And so, we headed to the lab's cafeteria with quite a few people. We had been told that they had prepared delicious food in advance, knowing that we were coming, so we could eat in the lab's cafeteria without having to find a separate restaurant.</p>
-<p>The one who liked having dinner at the lab the most was Linling. If we went to another restaurant, Linling, being a hologram, wouldn't be able to follow, but in the lab's cafeteria, she could watch me eat.</p>
-<p>__________</p>
-<p>Linling Cyber Suit</p>
-<p>This is Linling simulating various versions of the cyber suit~!</p>
+<p>"Brother-nim! There, haaah...!"</p>
+<p>Taira Kanna shuddered once more as her cervix was directly hit by my dick as I thrust my hips. She showed a maidenly reaction, instinctively clenching her legs from the excessive pleasure, but I didn't allow it.</p>
+<p>"Nowhere to...!"</p>
+<p>Since I couldn't use my limbs, I used telekinesis to spread Taira Kanna's legs. I hadn't thought about it until now, but I could apply telekinesis to sex like this. Since I could move my opponent with an invisible arm, it seemed like its uses were endless.</p>
+<p>"Kyaa!"</p>
+<p>Taira Kanna was surprised and let out a high-pitched scream when her legs suddenly spread. She knew I was the Black Knight, so she knew I used telekinesis, but she apparently didn't know I'd use it during sex.</p>
+<p>"Haaah...! Brother, since you can't use your arms, do you want to touch my body with telekinesis instead?"</p>
+<p>"Yeah, I'll make you feel even better."</p>
+<p>I used telekinesis to spread Taira Kanna's thighs and fix them in the air, then began high-speed piston movements. Pang, pang, pang! Along with the sound of moist flesh colliding, Taira Kanna's moans echoed loudly. I wondered if someone outside would hear this lewd sound and come to rescue me, but of course, it was a futile hope.</p>
+<p>"Haaaang♡ Floating helplessly in the air, heeut! Being violated...!"</p>
+<p>Taira Kanna began to climax, scattering her fluids. Using telekinesis in a state where I couldn't use my limbs made it easier to concentrate.</p>
+<p>Of course, I was also feeling pleasure. There were times when I almost lost control of my telekinesis because of the pleasure I felt from Taira Kanna's tight virgin pussy, but my willpower stat had already reached the limit of human ability, so my telekinesis didn't fail.</p>
+<p>I thought I should train my telekinesis while restraining my body, and now I moved Taira Kanna's body up and down. Of course, I kept moving my waist as well, maximizing pleasure by moving Taira Kanna's body and my waist in rhythm.</p>
+<p>"Heeut! Doing it like thaat, haa♡ I can't anymore, heeut...! Brother-nim♡ It's weird, haaang♡ I'm going, Brother-nim...! I, heeut! I'm gonna cum...!"</p>
+<p>"Keuh...! I'm cumming too...!"</p>
+<p>Taira Kanna climaxed due to the intense hip movements and telekinetic movements, but I was feeling the same pleasure. I couldn't hold back either and cummed deeply inside Taira Kanna.</p>
+<p>Buuk! Buut! Byuut!</p>
+<p>The pleasure from cumming made my vision turn white, and my telekinesis was released. I couldn't concentrate because of the pleasure, so my telekinesis naturally failed. Taira Kanna fell onto my body like a doll with its strings cut.</p>
+<p>Of course, as my body lowered with the release of telekinesis, my dick went in even deeper, causing Taira Kanna to twitch like an electrocuted person, reaching another climax even in the middle of her orgasm.</p>
+<p>"Haa, haa, haa.... It's not over yet, Brother."</p>
+<p>Taira Kanna, who quickly regained her senses, leaned against my body with a flushed face and began to stimulate my nipples with her lace gloves. She also slowly rotated her waist, not giving my dick in Taira Kanna's pussy time to lose its strength. The feeling of her breasts pressing against me was also pleasant, so my dick immediately hardened without a chance to soften.</p>
+<p>But her stamina is amazing. I didn't intentionally activate the Holy Pillar trait, but she regained her energy so quickly. She's still a student, so how is her stamina so high?</p>
+<p>"Okay, let's see who wins."</p>
+<p>"Where is there winning and losing in love, Brother? Let's just feel good together, us♡"</p>
+<p>Taira Kanna skillfully parried my words and moved her waist gracefully. She had only done insertion sex once, but she was incredibly skilled and natural at moving her waist in the cowgirl position. Does she have some kind of trait for this too? I wondered if high intelligence also meant better learning of sex skills.</p>
+<p>"Hehe, then shall we start the next round now?"</p>
+<p>"I'm curious, how many rounds are there in total?"</p>
+<p>When I asked Taira Kanna, feeling slightly uneasy, she gave me her signature yandere smile and opened her mouth.</p>
+<p>"Of course, until Brother's baby juice hits my egg♥"</p>
+<p>I got goosebumps all over my body at Taira Kanna's smile and words. Because of the Cambion's flesh trait, the probability of impregnating a woman is extremely low, so if I can't impregnate her, will I have to be squeezed by Taira Kanna for the rest of my life...?</p>
+<p>###</p>
+<p>"Ah.... Why isn't Ryuta-jji here yet?"</p>
+<p>It was already ten minutes past the morning homeroom time, but the classroom door showed no signs of opening.</p>
+<p>I expected the classroom door to creak open at any moment, as usual, and the blonde tanned teacher to come in, saying, "Have all my troublemakers been doing well?" but the classroom door remained unmoved.</p>
+<p>"Why isn't he here?"</p>
+<p>"Is he sick somewhere?"</p>
+<p>"I'm the class president, so I'll go check."</p>
+<p>As the students buzzed, the class president, Minamoto Risa, stood up from her seat. Minamoto Risa strode over and opened the classroom door. Kijimoto Jurie was standing in front of the door.</p>
+<p>"Oh? Nurse Teacher?"</p>
+<p>"Am I late? Sorry. Yamashiro-sensei said she's not feeling well today and is taking sick leave. I also got the message late...."</p>
+<p>At Kijimoto Jurie's words, some of the special class students who had decided to follow Taira Ryuta tilted their heads.</p>
+<p>Because Taira Ryuta was so strong, they had never seen him sick before. And if he was sick and couldn't come to school, he would have told them first.</p>
+<p>This situation, where he had disappeared without a word, was no different from saying that something had happened to Taira Ryuta.</p>
+<p>Otagi Yuka, Sakagami Rena, Saionji Diana, Naruse Shiyo, and others made eye contact and nodded. Something happened to Taira Ryuta. It was a thought that everyone shared at the same time.</p>
+<p>"First of all, the things I need to tell you today are...."</p>
+<p>Kijimoto Jurie's morning homeroom story passed by their ears, but the students who were making eye contact ignored the story and exchanged worried glances.</p>
+<p>"That's all for homeroom.... Everyone, have a good class today! Fighting!"</p>
+<p>After Kijimoto Jurie left the classroom, the students who had been exchanging glances stood up from their seats in a flurry.</p>
+<p>Because there were about ten minutes left before the first period started, they went out to talk about the current situation.</p>
+<p>The students who gathered in the counseling room on the second floor of the special class building locked the door and sat down.</p>
+<p>"Did anyone get a separate message from sensei?"</p>
+<p>At Konoe Akina's words, everyone nodded. No one had received a Line message from Taira Ryuta since last night.</p>
+<p>"Actually, I went to look for sensei last night, but he wasn't home. I thought he might be at another woman's house.... But looking at today, I don't think that's the case?"</p>
+<p>Otagi Yuka spoke with an uncomfortable expression. Otagi Yuka currently had the 'Thirst for Blood' debuff, which caused her bloodsucking satisfaction to drop quickly, so she felt uneasy because she didn't know when she would succumb to the thirst for blood and fall into madness.</p>
+<p>"My lord went to have dinner with Taira Kanna yesterday at her invitation."</p>
+<p>"Then.... Is the culprit Taira Kanna?"</p>
+<p>At Sakagami Rena's words, Urabe Konoka asked cautiously.</p>
+<p>Taira Kanna's name was by no means light. Even if you took away the Taira surname, the person with the greatest military power in Miyashi, where St. Francisco Girls' Academy is located, was the student Chairman, Taira Kanna.</p>
+<p>She handles the Public Morals Committee, which is armed with the latest equipment, and also has the Taira family's security force, so their power is stronger than the police in Miyashi, which is famous for its strong public authority.</p>
+<p>"I can't be sure yet. Something might have happened after the appointment with Taira Kanna and he was on his way back. It could be a plan to cause a clash between my lord and Taira Kanna's forces, or Taira Kanna's side could be the culprit, as we suspect...."</p>
+<p>Sakagami Rena shook her head as if she didn't know. In fact, she knew almost nothing about this case. The only fact she knew was that Taira Ryuka had disappeared after going to the dinner party that Taira Kanna had invited him to.</p>
+<p>"Ryuta.... Kidnapped?"</p>
+<p>"We don't know what the situation is yet, Alik."</p>
+<p>Alik, who had been sitting quietly, asked quietly. Urabe Konoka tried to stroke his head as if to soothe him, but she couldn't bring herself to do it because electricity crackled around Alik's body.</p>
+<p>"Ryuta, Alik's precious.... person. If Ryuta is kidnapped or something more happens.... Alik can't stand it."</p>
+<p>Alik's eyes were shining with golden light flowing with electricity. Naruse Shiyo, who was sitting next to Alik, was also furious, her pupils splitting like those of a reptile.</p>
+<p>"I'm going to kill them.... I'm going to cut off their faces with Dragon Claw so they can't hold their heads up anymore. I can't forgive them for kidnapping sensei. I'm going to tear them apart and kill them, kill them, kill them..."</p>
+<p>As Naruse Shiyo was muttering, spewing out her hatred for the still unknown kidnapper at an incredible speed, Konoe Akina calmed them down with the pressure of her mystic eyes.</p>
+<p>"Everyone, calm down. You can only save sensei if you calm down, right? If something happens to sensei, I will take revenge too, but saving sensei is our priority right now."</p>
+<p>"Yeah, sensei wouldn't have died. He has regeneration and his body itself is incredibly strong."</p>
+<p>While Konoe Akina and Otagi Yuka were calming down Alik and Naruse Shiyo, who were about to go berserk, Sakagami Rena and Saionji Diana talked to each other for a while and then looked at all the students who had gathered.</p>
+<p>"First, let's check Taira Kanna's movements during break time and carefully gather information."</p>
+<p>"I understand that you want to run out and find him right away, but it might not be good if we make too much noise. Our sudden movements might put sensei in danger, so let's act like nothing's wrong."</p>
+<p>Everyone nodded at Saionji Diana and Sakagami Rena's words. Their actions would be limited because they were stuck at school, but there were many things they could use. Everyone thought they would find Taira Ryuta soon.</p>
+<p>_________</p>
+<p>Taira Kanna's Yass Scene B-cut!</p>
+<p>Putting on the seaweed is too annoying....</p>
+<p>Saionji Diana wedding style underwear + armpit requested by RefundAbsolutelyNotAllowed-nim</p>
+<p>Since Saionji Diana is a character whose hair covers her face, I thought I could easily make her with a new model? So I made it with a new model hehe But....</p>
+<p>When I made it with a new model, her eyes were more exposed than I thought ㄷㄷㄷ But since I made it anyway, I tried some new things with the new model hehe</p>
+<p>Saionji Diana with a cyber implant prosthetic arm for combat!</p>
+<p>Saionji Diana threatening to shoot you if you don't recommend it....! She pointed a gun at me too, so I had no choice but to self-recommend ㅠㅠ</p>
+<p>The rest of the characters requested by RefundAbsolutelyNotAllowed-nim will be uploaded tomorrow~!</p>

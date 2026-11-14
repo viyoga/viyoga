@@ -5,54 +5,88 @@ weight = 1027
 chapter = 1027
 +++
 
-<p>We were deployed as a support team, and I hadn't expected to get a clue right away today, but Genbaki and Musashi Takuro immediately captured two suspicious individuals. Hearing that news, I returned to the Safe House.</p>
-<p>Of course, Sawayanagi Azuma and Sawayanagi Sinya helped, but this capture could still be considered a significant achievement. For reference, I was on standby as a support team in another area, so I couldn't go to help Genbaki.</p>
-<p>The two captured individuals were taken to the interrogation room on the 4th Underground floor of the Federal Superpower Management Department's Safe House, where a Jo Seodang agent and Sawayanagi Sinya, who is responsible for information at Seryutai, were asked to interrogate them. They would probably Torture them now to extract information.</p>
-<p>Genbaki, that Guy, suffered a large Wound on his opposite Arm, not his cyber implant, and headed to the hospital emergency room. He said he fought some Guy called Geomi, and a special Silken Strand had dug into his Arm, leaving him severely Injured.</p>
-<p>Of course, with advanced Medicine, this level of harm would recover, but it still didn't feel good to see his Arm in such a state, especially since his main profession was Martial Arts.</p>
-<p>After waiting for a moment, the Jo Seodang agent and Sawayanagi Sinya came up from the interrogation room. Both had slightly awkward Expressions, as if something had happened during the interrogation.</p>
-<p>"What happened?" "Well...." "The two captured individuals died."</p>
-<p>Huh? Two people suddenly died? Not just one, but both at the same time? What the hell happened? Surely, both of them were Pro, so they wouldn't have accidentally killed someone by Torturing them too roughly.</p>
-<p>"Please tell me exactly what happened."</p>
-<p>At my Request, Sawayanagi Sinya began to tell the Story of what had happened.</p>
-<p>"First, we separated the two into different rooms. We needed to separate them and hear each of their Stories to uncover any lies."</p>
-<p>So far, nothing was out of the ordinary. Interrogations are usually one-on-one, so separating them wasn't wrong. The incident probably happened after this.</p>
-<p>"First, we decided to interrogate the VR Diver. Since VR Divers operate in cyberspace, they are weak to physical body pain, so we prioritized them, knowing they would easily spill information with just a little Threat." "We barely even Tortured them. They started talking freely after just one finger was bent."</p>
-<p>Following Sawayanagi Sinya's Words, the Jo Seodang agent continued. Bending one finger wouldn't kill someone, so where did the Problem happen?</p>
-<p>"The Problem started then. Suddenly, the Guy named Geomi in the next room started making a ruckus. He screamed, 'You can't say any more information! Do you want to die?!' and began struggling to remove his Handcuffs and Shackles, and just as we were about to stop the interrogation, suddenly.... Both of them started spitting Blood and then died."</p>
-<p>Both who were telling the Story had confused Expressions. It seemed they were under some kind of Jusul Jinzhi.... It seemed they had received a Jinzhi Jusul where if even one person uttered a specific keyword, both would die. If only one died, information could be carefully extracted from the other, so it seemed a Jusul had been placed to kill both simultaneously, which was quite a cruel Act.</p>
-<p>"It seems to be Jusul, but both of us are ignorant about Jusul.... I apologize." "Since things have already turned out this way, there's nothing we can do. I also requested the interrogation.... Still, since we've gathered some information, let's organize it and hold a Meeting with that content once everyone returns."</p>
-<p>It was Fortunate that we had heard quite a bit of information from the VR Diver. There was a regret that if Otagi Yuka or Naruse Shiyo, who are skilled in Jusul, had been here, they could have prevented this, but both of them were still outside on patrol and support, so they couldn't help.</p>
-<p>Since such an incident could happen again in the future, I'll have to either make the Yin-Yang master agents belonging to Jo Seodang into interrogators or devise another method.</p>
-<p>Soon, those who had gone on patrol and those who had been on standby in various Places in New York to provide support returned. Everyone was disappointed by the fact that the two captured individuals had died, but they attended the Meeting to share the information they had gathered.</p>
-<p>"First, let's check the information." "I apologize for this Situation occurring due to our inexperience in handling Prisoners." At my Words, Naruse Shiyo stepped forward. And she bowed her Waist to everyone and offered an Apology. Since it was an incident involving a Jo Seodang intelligence agent, for whom Naruse was responsible, it seemed she started by apologizing.</p>
-<p>"No one here could have predicted that someone who leaked information would be killed by Jusul.... So, let's start by sharing the information we've found."</p>
-<p>When Fujigasaki Rinka said it was alright, Naruse Shiyo gave a slight bow of her Neck and began to relay the organized information.</p>
-<p>"First, the True Identity of the two captured individuals is that they are one of the vigilante Hunter teams under the Black Sage. The information received from Eve that there are vigilante Hunters has been confirmed as fact. And it was also confirmed as fact that the Black Sage desires the grimoire, the Shard of Omniscience. They said they are doing the vigilante Hunter Work because the routine of the Black Knight attacking New York's Back Alley organizations and a follow-up unit searching for the grimoire was broken by the vigilantes, so they deployed the vigilante Hunters."</p>
-<p>So, all the information I received from Eve has been confirmed as fact. By the way, if they are one of the vigilante Hunter teams, it means there's more than one Hunter team.... I'll have to ask about this once the Explanation is finished.</p>
-<p>"The new information is about the Collection that the Person called the Black Sage gathers. The Black Sage travels the World, collecting People as items, and probably.... the fake Black Knight, Rinka-ssi's Sabu, Soda Haruto-nim, is also held as a Collection item by the Black Sage, they said. They also said that the vigilante Hunter teams consist of a Collection item and a buha of the Black Sage, working as a two-person team."</p>
-<p>To treat People as mere Collection items.... Even I, who haven't even seen Sajo's Face, am angry, so Fujigasaki Rinka, Sajo's Disciple, must be even angrier. I glanced at my Sabu's Face, and she wore an indifferent Expression, but as her Disciple, I knew that Expression was precisely the one before Anger explodes.</p>
-<p>That Appearance of suppressing Anger and forcing a blank Expression was Fujigasaki Rinka, the Mount Hua before it erupts. With that Expression, the Black Sage wouldn't be unscathed.</p>
-<p>"In that case, even if we rescue Sajo, there will likely be some Jusul measures, just like with the two who died today, so not only rescuing but also performing Curse Removal will be important." "That's right. Soda Haruto-nim will surely have some Jusul placed on him, just like those who died today."</p>
-<p>At my Words, Naruse Shiyo nodded her Head and gave her Consent. Then, we would need Otagi Yuka or Naruse Shiyo, who can at least perform Jusul, but the Worry is whether these two can break the Jusul of a sorcerer who has been active for over a decade, known as the Black Sage.... I'll have to talk about this later.</p>
-<p>"Tell me the next piece of information." "After that, we started asking about the Black Sage, but from then on, Geomi in the next room started making a ruckus, so we couldn't properly grasp the information, they said. We only got fragmented information.... After that, both of them died." "It seems the Jinzhi's keyword was related to the Black Sage...."</p>
-<p>At Naruse Shiyo's Words, Otagi Yuka muttered. Of course, I don't know much about Jusul, so I don't know the exact method, but as Otagi Yuka said, it was clear that information about the Black Sage was the Trigger.</p>
-<p>"Shiyop-ppi~! Is there anything useful among the fragmented information you mentioned?"</p>
-<p>Seizawa Shii raised her Hand and spoke. As a problem solver, she seemed curious if there were any more clues.</p>
-<p>"The Black Sage is probably in East New York or the eastern part of New York. That VR Diver said 'East...' before dying."</p>
-<p>It wasn't enough to pinpoint the Black Sage's Position, but it was still quite significant information. Of course, it wasn't precise information since he died mid-sentence.</p>
-<p>"Still, if the two we caught today are one of the vigilante Hunter teams, there must be other teams, so the Mission isn't a complete Failure. They will be cautious having already lost one team, but given the Situation so far, the Black Sage probably won't give up on the Shard of Omniscience."</p>
-<p>Seiwa Rieko made a rather sharp Analysis. According to my Memory, I believe there's Pubic Hair in Seiwa Rieko's skill window, and perhaps because of that, she seems to grasp the opponent's Pubic Hair well.</p>
-<p>Yes. Today's Work was not a Failure. We caught an Enemy, and although that Enemy died while speaking information, we gained meaningful information and knew it wasn't over yet, so it couldn't be called a Failure.</p>
-<p>"Then, how should we proceed with patrols? Should we focus on East New York, according to the information we obtained today?" "Since these vigilante Hunters seem to be roaming all over New York anyway, wouldn't it be better to stick to the original plan?"</p>
-<p>Next, they discussed whether to maintain the current patrol areas or focus patrols on the eastern part of New York, which they had heard about last. Both opinions had merit, and the Story was quite tense, but suddenly, a Contact on my phone rendered all of it futile.</p>
-<p>-EVE: Ryuta-nim. The Shard of Omniscience is going to be put up for auction at the AmSang Auction House. The auction start date is three days from now, at midnight. Eve informed me that the grimoire, the Shard of Omniscience, which the Black Sage was searching for so desperately, was going to be put up for auction at the AmSang Auction House.</p>
-<p>Gojoy-nim requested an Illustration of Yu-gyeong undressing and Seduction, and her Appearance covered by Entwined Sheets in bed~!</p>
-<p>Seduction~!</p>
-<p>Entwined Sheets~!</p>
-<p>Hwanbuljeoldaebulga-nim requested Lisa, the Home Teacher-nim, in a Maid Outfit~!</p>
+<p>"Ah, there they are...!"</p>
+<p>As the Heupyeolgui unit melted into the Darkness and disappeared, Lianna Holden, as if pointing at a passing dog, very easily aimed a submachine gun to one side and fired.</p>
+<p>Tatatatang!</p>
+<p>Along with the muzzle flash, Blood splattered in the empty space. Of course, I was also concentrating this time and could feel where the Enemies were moving, but I didn't know Lianna Holden would find the concealed Heupyeolgui so easily.</p>
+<p>"Kwaaaah! Die!!"</p>
+<p>Tatatatang! Tang! Tatatatang!</p>
+<p>The Heupyeolgui unit, which reappeared, perhaps feeling that Concealment was useless, began a reckless volley of Marksmanship. Although they were hit by the gun Lianna Holden fired, perhaps because it wasn't a silver Bullet, they recovered quickly.</p>
+<p>We had already hidden behind the alley or a large iron Trash Can, a Dumpster, so we could avoid the Heupyeolgui's gunfire.</p>
+<p>Although I could have just stood there, trusting the psychokinetic Reaction shield, this also consumes Mental Power, so hiding was a better Choice. I needed to conserve Mental Power to use more of my Power when recapturing Sajo.</p>
+<p>"How did you find them?"</p>
+<p>Hearing the Tangtangtang! of gunshots, I asked Lianna Holden. I was curious how she found the concealed Heupyeolgui so easily.</p>
+<p>"Well.... Since I'm a Telepathy Ability User, even if I can't read thoughts, I can naturally feel the mental waves that Person is thinking. No matter how well they hide."</p>
+<p>Oh, Telepathy has such a function.... It's a complete Concealment Character Counter, isn't it? Usually, Telepathy-specialized Characters are not Combat Class, so I didn't know about this Ability from using them as Operators. Lianna Holden is also an Operator, after all.</p>
+<p>"Stop the Chatter and take this."</p>
+<p>Kurayamada Kirie handed a Magazine each to Lianna Holden and Sawayanagi Azuma.</p>
+<p>"What is it?"</p>
+<p>"It's a Magazine filled with silver Bullets. I brought one each just in case, and it turned out well."</p>
+<p>Perhaps because she had Subspace, she seemed to have packed items to prepare for various situations. Kurayamada Kirie put the Sword she was using into Subspace, and took out a glittering Sword that appeared to be coated with silver.</p>
+<p>As expected, every time I see Subspace, I envy it. Being able to change Equipment depending on The Situation was a huge advantage. It was like being able to become an all-rounder Character. However, spatial Traits rarely appear, so unless one is incredibly lucky, they don't manifest, so I could only continue to envy it.</p>
+<p>"When this Marksmanship ends, we Counterattack immediately."</p>
+<p>The Heupyeolgui's Ammunition wouldn't be infinite, and there would be time to change Magazines, so I suggested we Counterattack when the Marksmanship ended. Everyone nodded their Heads, and a few seconds later, the noise of the Marksmanship ceased, so I was the first to deploy a shield and burst out.</p>
+<p>"Huh?!"</p>
+<p>As if they had guessed we would burst out, I saw the chattering leader of the Heupyeolgui unit aiming what looked like an anti-tank Missile. Since guns weren't working, they must have intended to blow us up entirely.</p>
+<p>I quickly stretched out my Hand, and used Telekinesis to lift the Missile launcher aimed at us upwards. Simultaneously, the Missile was fired.</p>
+<p>Kwaaaang!</p>
+<p>With a tremendous roar, the Missile hit the Building. The Remains of the Building fell, raising Dust.</p>
+<p>Explosions, collision sounds, and the noise of something collapsing were already loudly occurring in various places throughout the New Rochelle area, so a slightly damaged Building was no big deal.</p>
+<p>"Hmph! A Superhuman, were you? We absolutely cannot let a human variant steal the Book of Completion!"</p>
+<p>"I told you I'm not aiming for your so-called Book of Completion!"</p>
+<p>I charged, feeling Frustrated by the Heupyeolgui unit leader's Words. The moment I charged, Sawayanagi Azuma and Lianna Holden provided covering Marksmanship, and Kurayamada Kirie also began running behind me, holding her Sword.</p>
+<p>It was then.</p>
+<p>From behind the Heupyeolgui unit, with the sound of energy Guns firing, woong! woong!, several individuals began to attack the Heupyeolgui unit. I didn't know who they were, but if they were helping, I should gladly accept it.</p>
+<p>I ran towards the unsightly Heupyeolgui unit leader, and delivered a Creation Chaos Style: Star Shatter to his Face. As his Head was struck by a fist condensed with destructive Energy, his Head itself exploded, scattering brain matter and Blood around.</p>
+<p>Even if they were Heupyeolgui who could regenerate with just Blood, if the harm was enough to make their Head explode and disappear, they wouldn't be able to survive even if a swimming pool's worth of Blood was poured on them.</p>
+<p>Kurayamada Kirie also vertically split the Heupyeolgui who appeared to be a subordinate leader next to the Heupyeolgui leader. The cut surface burned black by the silver Sword, and the sight of it writhing in Pleasurable Ache and turning to ash showed just how vulnerable Heupyeolgui are to silver.</p>
+<p>While we hunted four or five Heupyeolgui, those who ambushed from the rear also swept away the remaining Heupyeolgui, and before long, no living Heupyeolgui existed in this alley.</p>
+<p>Jeobeok jeobeok.</p>
+<p>Those who ambushed the Heupyeolgui approached us through the dark alley Passage. The ones who appeared were three individuals armed with cyber suits and our TG Tech energy Guns, and the slender-figured Combatant leading the way removed their helmet.</p>
+<p>"Huh?! Seari."</p>
+<p>"Investor-nim~!"</p>
+<p>The Face revealed after removing the helmet was Sawayanagi Seari, with pointed ears. I thought her Figure looked familiar, and it turned out to be someone I knew.</p>
+<p>Sawayanagi Seari giggled, ran to me, and hugged me.</p>
+<p>The remaining cyber suit Combatants were Sawayanagi Shigeru, a Speedster Ability User, and Lee Du-yeong, who possessed regeneration Ability. Both bowed their Heads slightly and gave me a greeting, so I also bowed my Head and returned the greeting.</p>
+<p>"Seari, how are you here?"</p>
+<p>Sawayanagi Azuma asked, looking curious.</p>
+<p>"Well.... As the battlefield moved north, our Points also changed. Our team was in charge of this Surroundings, but we overlapped with a pack of Heupyeolgui and were fighting them. We got pushed back a bit while fighting and were running away, then came to this alley because of the loud noise, and since Investor-nim's Party/Group was here, we helped you."</p>
+<p>Because so many people were gathered, even these outskirts Points seemed to have fierce competition to secure a spot. By the way, pushed back, you say.... Sawayanagi Seari has Elf Traits, so her Combat power is considerable, so it seems the number of Enemies was quite large.</p>
+<p>"Are the Heupyeolgui that strong?"</p>
+<p>I asked, looking puzzled. Besides Sawayanagi Seari, Lee Du-yeong and Sawayanagi Shigeru are also Ability Users, so they don't seem like a team that would easily flee. Are the Heupyeolgui that strong? Even if Heupyeolgui are an overpowered Race, it was still a bit puzzling.</p>
+<p>"Their Combat power is usually at the level of a PMC Soldier, but the Heupyeolgui clan gathered here has Concealment as a Trait, so they're a bit tricky to deal with...!"</p>
+<p>Ah, so it was indeed difficult to deal with them because of Concealment.</p>
+<p>"Ah! There's no time for this! The Heupyeolgui will flock here. We'll handle this place, so Investor-nim, please quickly rescue Sajo-nim!"</p>
+<p>Although Sawayanagi Seari was making a Fuss, telling us to go first, saying the Heupyeolgui would soon rush in, I was thinking about the Heupyeolgui's Concealment Ability.</p>
+<p>Tricky to deal with because of Concealment, huh.... There's a Method. Sawayanagi Azuma and I looked at each other, then nodded our Heads. We both had the same thought, didn't we? Sawayanagi Azuma stepped forward and opened her mouth.</p>
+<p>"Anyway, we have to keep moving towards the center.... I'll provide Lianna to your team as support. Because Lianna can easily find Enemies in Concealment."</p>
+<p>"I'm confident I can find them no matter where they hide, so leave it to me~!"</p>
+<p>Originally, Lianna Holden's Role was not a Combatant but an Operator, so if she went with us towards the Fragment of Omniscience, where tiered battles would be frequent, she could suffer great harm.</p>
+<p>Lianna Holden also knew well that it would be of greatest Help to fight the Heupyeolgui here, then go to the mobile Command post and play the Operator Role, so she stepped forward, saying to leave it to her.</p>
+<p>"Ah, Lianna was here...! If Lianna is with us, we can clear out all the Heupyeolgui."</p>
+<p>Sawayanagi Seari nodded her Head, saying that Lianna Holden was trustworthy. She seemed to think that if Lianna Holden could break through the Heupyeolgui's Concealment, they could definitely win.</p>
+<p>"If the Heupyeolgui are dealt with, could you please take Holden to the Command post?"</p>
+<p>"Of course~! Lianna's Operation will be of Help to Investor-nim!"</p>
+<p>At my Request, Sawayanagi Seari nodded her Head greatly and answered. Seeing her immediately talk about the Operator, she seemed to have accurately grasped my Intention.</p>
+<p>As we talked, I felt a presence approaching. Sawayanagi Seari's Expression, which had been smiling brightly, turned serious, and she soon put her helmet back on.</p>
+<p>"Now, the Heupyeolgui will gradually flock here. Investor-nim's Party/Group, please quickly pursue the Black Knight!"</p>
+<p>"I'll leave the rear to you."</p>
+<p>At Sawayanagi Seari's Words, I said I would leave the rear to her, then grabbed Sawayanagi Azuma and Kurayamada Kirie by their waists and leaped onto the Building.</p>
+<p>As we climbed onto the Building's rooftop, the purple sky with a crescent moon and the night streets of New Rochelle were visible. Of course, the Appearance was not a pleasant sight. This was because explosions were occurring here and there, and intact Buildings were collapsing with a rumble.</p>
+<p>I didn't know who would take Responsibility for this Mess, but it wouldn't be me, so I flew over the Buildings towards North Avenue in New Rochelle with Telekinetic Flight.</p>
+<p>Seari B-cut~!</p>
+<p>She originally wears a teal-colored cyber suit, but since her True Identity shouldn't be revealed, she fights in a black cyber suit in New York haha.</p>
+<p>RefundNeverPossible-nim requested: Teacher Gajeong and Lisa-ttang doing the Zero Two dance in a bikini with nipples slightly visible, with a shy Expression~!</p>
 <p>Lisa-ttang~!</p>
-<p>Home Teacher-nim~!</p>
-<p>Chomisaemeonji-nim requested Liz in a Maid Outfit, riding a Bike~!</p>
-<p>Maid Outfit~!</p>
-<p>Bike Liz~!</p>
+<p>When I used the See-Through prompt, strange Clothes came out instead of a bikini, so I just used a prompt for nipples to protrude~!</p>
+<p>Teacher Gajeong~!</p>
+<p>MidNightSKY-nim requested: Shii awkwardly showing Aegyo, Shii feeling shy after showing Aegyo~!</p>
+<p>Aegyo~!</p>
+<p>Bukku</p>
+<p>Gojoy-nim requested: Shinoe Misano 1. Surprised Expression upon realizing the protagonist is Taira, and 2. Aroused Expression thinking of the protagonist in bed~!</p>
+<p>1.</p>
+<p>2.</p>
+<p>Chomisaemeonji-nim requested: Mira Liz, Ribbon Liz~!</p>
+<p>Mira~!</p>
+<p>Ribbon~!</p>
+<p>There isn't much difference except for the Color hehehe.</p>

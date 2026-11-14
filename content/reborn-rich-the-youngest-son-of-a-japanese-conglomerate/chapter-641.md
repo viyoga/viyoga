@@ -5,89 +5,104 @@ weight = 641
 chapter = 641
 +++
 
-<p>,I wish you could stay a bit longer, but you have to go to school tomorrow, so it can't be helped.</p>
-<p>Naruse Koyou said with a hint of regret as he looked at us standing in front of the helicopter. He gave us a lot, but he didn't seem to mind much. Well, since it was treasure collected since the Heian period, the amount was so vast that what we took was like scooping a cup of water from a lake.</p>
-<p>Besides, he even appraised the troublesome sealed items (especially when I explained the infertility curse ring that could wipe out humanity, he was so surprised he dropped his notebook), and he was obviously grateful that I was taking one of them. He's probably thankful that I'm taking the cursed item out of his house.</p>
-<p>We came with six, but we were nine when we returned, with Naruse Shiyo, Alik, and Shimokawabe Airen joining us. I was worried that the helicopter wouldn't be able to take off with the added weight, but as expected, the technology of 2053 wasn't so shabby that it would falter with the weight of three women.</p>
-<p>,It's getting dark already.</p>
-<p>,It's almost December, so the sun sets early.</p>
-<p>We flew through the sky against the backdrop of the sunset. Everyone was looking at the sunset with moist expressions. Did everyone feel like they were lost in sentimentality? You don't often get to see the sunset from the sky, so it's understandable to be sentimental.</p>
-<p>,Ribbon-chan~! Say hello to Hamtaro!</p>
-<p>The sentimentality was short-lived as Sakagami Rena introduced Hamtaro to Ribbon-chan, the weasel youkai she had received this time. Everyone was watching Sakagami Rena's two weasels because they had nothing else to do during the hour-long trip back to Miyashi.</p>
-<p>,Kkikkik!</p>
-<p>,Cheep!</p>
-<p>The two weasels greeted each other by touching noses. In fact, Hamtaro, the weasel Sakagami Rena raises, isn't a youkai, but it's a weasel specially raised by the ninja Sakagami family, so it's almost a semi-youkai.</p>
-<p>The two long fur balls, who had been sniffing each other's noses, suddenly intertwined and started mating with *pat pat* sounds. Seriously, was *yas* this easy?</p>
-<p>,Ah, ah...!</p>
-<p>,...!</p>
-<p>,The sunset is beautiful, Sensei.</p>
-<p>The atmosphere suddenly turned cold. Only Alik was looking at the two weasels and making me feel awkward by asking, Ryuta, what's that?</p>
+<p>"Yukiko, turn around."</p>
+<p>Yukiko, wearing a backless outfit, wouldn't show off her charm in the missionary position, so I decided to do it from behind. Since she's wearing such a sexy outfit, I need to maximize its appeal. I lifted Yukiko's sweater, which had an open back, and exposed her pussy.</p>
+<p>The string of sticky vaginal fluid stretched out and dripped onto the bed, looking like I was drooling. I rubbed the outer part of Yukiko's pretty, fluid-soaked pussy with two fingers.</p>
+<p>"Hyaaah...!"</p>
+<p>I felt the slippery, all-encompassing texture of Yukiko's unique vaginal fluid. I rubbed my hand all over Yukiko's pussy, as if applying the slippery fluid.</p>
+<p>"Why is your pussy so sticky?"</p>
+<p>"Haaah, good, Ryuta-aa...♥ I'm all ready, so hurry, put Ryuta's big dick in me♥"</p>
+<p>Well.... She's been sucking my dick and getting excited by my foreplay since earlier, so it seems like no more preliminary exercise is needed. Yukiko didn't even answer my question properly, as if she was already lost in the pleasure of being touched by my hand, and she just swayed her hips, moving as if to seduce me.</p>
+<p>If I kept teasing her without putting it in, she might turn into a succubus and extract my semen, so I nodded and brought my dick to Yukiko's pussy.</p>
+<p>"Okay. I'll put it in."</p>
+<p>In response to my answer to Yukiko's sexy request, Yukiko was looking at my dick with an expression full of anticipation.</p>
+<p>I lifted the hem of the sweater that had fallen down after I took my hand away and was covering her pussy again, and brought my dick to Yukiko's gaping pussy. And I immediately thrust my hips, pressing the glans tightly against Yukiko's innermost cervix.</p>
+<p>"...!"</p>
+<p>As soon as I put it in deeply, Yukiko arched her back like a bow and reached her climax. She couldn't even let out a moan properly, as if it was caught in her throat, and she trembled. I didn't pay attention to Yukiko and started shaking my hips roughly.</p>
+<p>"Haaht! W-wait a sec...! I just came...Hngh, uh, hmmm♥"</p>
+<p>"I haven't come yet, so I'm going to keep moving."</p>
+<p>I was already having trouble controlling my excitement at the sight of Yukiko and Nagumo Sian's sexy figures. Yukiko screamed that it was just for a moment, but I didn't care and shook Yukiko's exposed waist.</p>
+<p>Yukiko's wriggling pussy, unlike what Yukiko was saying about it being just for a moment, chewed on my dick and wouldn't let go.</p>
+<p>It was an incredibly pleasant pussy that would have sucked out all the semen in just a few minutes for a normal man, but I had already ejaculated once and I was also learning my own bedroom skills, so I was able to endure it.</p>
+<p>"Your mouth says it's just for a moment, but your lower half is actually biting down and won't let go of my dick?"</p>
+<p>"Haaah, noo♥ It's too, hmmm...! It feels so good that I'm, hmmm, getting weird♥"</p>
+<p>When I whispered in Yukiko's ear while still shaking my hips, Yukiko got even more excited and screamed with pleasure, saying she felt like she was going to get weird.</p>
+<p>"Haaht, hmmm...! Ryuta-aa♥ Ryuta! I'm gonna cum!!"</p>
+<p>As I continued to shake my hips and hit her weak spot, Yukiko suddenly screamed and leaned her upper body against the bed, her strength gone. Her pussy also bit down on my dick and squeezed it tightly. It seemed like she had completely come because of a huge orgasm that was different from anything before.</p>
+<p>"Hnnngh...."</p>
+<p>As I scratched her insides with my glans and pulled out my dick, Yukiko moaned again and reached a series of small climaxes. I had satisfied Yukiko, so now it was Nagumo Sian's turn.</p>
+<p>Nagumo Sian seemed to have been masturbating while watching me and Yukiko have sex, as her fingers were covered in vaginal fluid and her eyes were seductively unfocused. Her white bikini underwear, which was covering her breasts, had become translucent, revealing Nagumo Sian's pink nipples, as if she had touched her breasts with her fluid-soaked hands.</p>
+<p>"Put your magnificent thing right into my there, Ryuta."</p>
+<p>"If you say it like that, I don't know where to put what."</p>
+<p>"Don't be like that.... I had a hard time watching you two do it, so hurry...!"</p>
+<p>Nagumo Sian, already ready, spread her pussy and showed her pink flesh. She was still embarrassed and didn't say the words "pussy" or "dick," but just called it "that," so I teased her a little, and her face turned red and she just urged me on.</p>
+<p>"If Onee-san doesn't say it properly, I'm going to put my di.ck back in Yukiko's pu.ssy."</p>
+<p>"You're really mean. I understand. I'll say it properly.... Put Ryuta's big, woman-corrupting dick into my, my horny pussy...♥"</p>
+<p>"Okay. Keep your legs spread like that."</p>
+<p>Nagumo Sian's outfit, unlike Yukiko's, had an open chest, so I decided to do it in the missionary position this time and approached her as is.</p>
+<p>Of course, my hard dick, which had been having sex with Yukiko, was coated with Yukiko's vaginal fluid and was glistening, so there was no need for foreplay and it slipped right into Nagumo Sian's pussy.</p>
+<p>"Hhaaht...! This full feeling... Hmmm! Ryuta's magnificent haaht! Dick, hhaht♥ Feels good..."</p>
+<p>I listened to Nagumo Sian's moans and shook my hips while touching Nagumo Sian's breasts with both hands.</p>
+<p>Feeling Nagumo Sian's breasts, which were so soft that my hands sank into them, and the sticky feeling of her pussy, which was as good as a virgin's (actually, she was close to a virgin in terms of experience since she only did it with me for the first time and didn't do it much after that), gave me a very good contrasting feeling.</p>
+<p>Nagumo Sian was also learning bedroom skills like me, so somehow her pussy was wriggling and rubbing against my dick's weak spot, chewing on it. This was almost a Daughter of the Abyss or succubus-level pussy.</p>
+<p>"Kuh...! Feels good, Onee-san!"</p>
+<p>"Ryuta, Ryuta...! I'm haaht♥ feeling good too...!"</p>
+<p>Nagumo Sian seemed to be feeling the height of pleasure as both her breasts and pussy were being attacked at the same time.</p>
+<p>"Ryuta, hmmm! Hmmm♥ I think I'm gonna cum! Put Ryuta's hot baby batter hmmm♥ inside my pussy!"</p>
+<p>"I'm going to cum, so squeeze tight."</p>
+<p>Following Yukiko, Nagumo Sian's pussy had stimulated my dick, so I couldn't hold back any longer either. I could feel the semen rising and I was running like a runaway train towards the final station of ejaculation.</p>
+<p>"Haaht! Like this, hmmm♥ like this...?!"</p>
+<p>At the words "squeeze tight," Nagumo Sian hugged me tightly and wrapped her legs around my waist, crossing her legs so that I couldn't pull my butt away. At the same time, her pussy began to squeeze.</p>
+<p>She was squeezing as much as she could, as I told her to, and craving my semen. Nagumo Sian's crossing her legs behind my waist reduced the range of motion of the piston movement, but I shook my hips even more violently, hitting Nagumo Sian's cervix with my glans so hard that it made a pounding sound.</p>
+<p>"Kuh! I'm gonna cum, Onee-san...!"</p>
+<p>"Haaah! Inside...! Hot milk is coming in!"</p>
+<p>I pressed my body as close as possible to Nagumo Sian's body and ejaculated deep inside Nagumo Sian. Nagumo Sian's large breasts pressed against my body, giving me a soft feeling and making me feel comfortable even after ejaculation.</p>
+<p>My ejaculation lasted for almost thirty seconds. I was still hugging Nagumo Sian tightly and enjoying the afterglow, kissing her, when Yukiko came and licked my anus and balls.</p>
+<p>"Yukiko-ssi?"</p>
+<p>"You came inside Sensei, so you have to put Ryuta's lewd white semen in me too, right?"</p>
+<p>When I turned around, Yukiko's hair was gradually turning pink. Hmm.... Yukiko, whom I had just brought to climax with pleasure, was Phase 1. It seemed like it was time to face Phase 2.</p>
 <p>###</p>
-<p>,It's been a while. Did everyone have a good rest?</p>
-<p>Wednesday morning. I greeted the students during the morning assembly, looking around after going to school for the first time in a week. Most of them looked like they didn't want to be at school, probably because they weren't used to going to school after a long time.</p>
-<p>Alik, who seemed to have no thoughts, and Naruse Shiyo and Kujo Kina, who looked like they were finally free from training, seemed to like school.</p>
-<p>,Don't slack off too much, everyone. Don't just play around because there are no final exams this semester, and prepare in advance. You know the winter vacation is short, right? Don't regret it later, and start little by little now.</p>
-<p>Unlike Korea, which only has the 1st and 2nd semesters, St. Francis Girls' Academy has a 3-semester system. There is a short winter vacation followed by the 3rd semester, which is packed with final exams, center exams, and graduation. For reference, the 2nd semester has sports day, Halloween party, school trip, and festival, so it has a stronger image of being a semester for playing than the 3rd semester, which is the end of the school year.</p>
-<p>,That's for the 3rd semester~! It's okay since it's still the 2nd semester!</p>
-<p>Seizawa Shii said confidently. She didn't seem to care much even if she failed the exam. Since she was planning to go to St. Francis Women's University anyway, she just needed to avoid failing.</p>
-<p>For reference, ordinary students had to get quite high grades to enter St. Francis Women's University. Since it had the image of a luxury women's university attended by daughters of prestigious families, students from outside St. Francis Girls' Academy had to get considerable scores.</p>
-<p>,Ah, you. You have to properly prepare for the festival from today, so stop by the club room after class.</p>
-<p>I was about to leave because I didn't have anything else to say, but Minamoto Risa called out to me. That's right, there was the festival preparation.</p>
-<p>,Yeah~! Ryuta-cchi is the main character of this club anthology! If you skip it, I'll pluck all your nose hairs!</p>
-<p>Why the nose hairs...? Besides, my writing isn't even included in the anthology, but I'm the main character? I don't know what that means.</p>
-<p>,I'll participate, so spare my nose hairs.</p>
-<p>Everyone laughs *ahahaha* as if what I said was funny. Well, that's how high school girls are. They laugh even when they see a rolling leaf. I left the students' laughter behind and headed to the education preparation room.</p>
-<p>I went to the nurse's office in the middle to enjoy Kijimoto Jurie's body, prepared for today's Korean class, finished the Korean class, and went back to the special class building with the students, replacing the closing assembly by telling them the announcements. There weren't any particular announcements, and the closing assembly ended with me just telling them that they had worked hard taking the class after a long time.</p>
-<p>,Ryuta-cchi! Class is over, so let's go to the club room right away.</p>
-<p>Seizawa Shii, who had just finished class, suggested a forced march with no rest. The other kids seemed to be looking forward to the club activities, so I nodded.</p>
-<p>,Alik, come with us.</p>
-<p>,Doesn't Cheongsim Hall have club activities today?</p>
-<p>,If we do the closing assembly on the street like today, we have time... It's okay for a bit.</p>
-<p>Ah, that's right. Other students have to go back to the classroom after class and do the closing assembly again, so our class has some time to spare. Alik seemed to be planning to do date experience club activities during that spare time.</p>
-<p>,Okay, let's go up together.</p>
-<p>We went up to the club room on the second floor and sat down in the chairs.</p>
-<p>,So, we're preparing for the festival today, but what exactly are we doing?</p>
-<p>,I'll explain that.</p>
-<p>Minamoto Risa stood up and said in response to my question. Since this anthology project was originally Minamoto Risa's, it was right for Minamoto Risa to explain.</p>
-<p>,First of all, we've taken quite a lot of pictures so far. When I counted them, I found that we've taken almost six thousand.</p>
-<p>The pictures Minamoto Risa is talking about are probably my pictures, right? But you took six thousand pictures of me? That's amazing...</p>
-<p>,So today, we're going to select the photos. We're going to select the photos that are good enough to be included in the photo cards out of the six thousand.</p>
-<p>Ah, you're not planning to use all six thousand. It seemed like they were going to be selecting usable ones out of the six thousand for a while.</p>
-<p>,First, we're going to filter out the blurry photos or the ones where the homeroom teacher is closing his eyes, so please focus on that part.</p>
-<p>We divided the twelve members of the date experience club and me into four groups of three and decided to filter out blurry or closed-eye photos, 1,500 photos per group.</p>
-<p>I was in the same group as Oofuchi Erika and Kujo Kina, and Alik decided to help until he went to Cheongsim Hall.</p>
-<p>,Kujo, how did you decide to do your training when you're at school?</p>
-<p>,I decided to go after club activities. He said there's no time to rest.</p>
-<p>,Can you move your fingers now?</p>
-<p>,Yeah, he pushed me really hard on the first day, but now he says he knows my limits and ends the training right before the point where I can't move anymore. The master is a devil, a devil.</p>
-<p>I was curious about Kujo Kina's training, so I asked her, and it seemed like she was doing well. Kujo Kina was having a pretty fulfilling day with school classes, club activities, and training. Seeing her constantly calling Yoda grandpa a devil, it seemed like he was pushing her really hard.</p>
-<p>,You over there, stop chatting and check the photos quickly.</p>
-<p>,Okay. Let's look at the first photo first.</p>
-<p>Minamoto Risa told us off because she was annoyed by the time we were spending chatting because there were so many photos, so I grabbed the mouse of the laptop in front of us. I clicked on the very first file in the shared photo folder and displayed it on the screen. Hmm... It was quite difficult to see a photo of me posing because I'm not a professional model.</p>
-<p>,It's not blurry and he's not closing his eyes, so let's move on.</p>
-<p>Oofuchi Erika immediately moved on to the next photo without caring that I was embarrassed. Since it was taken with such an expensive camera and I was able to control my body enough to endure closing my eyes while taking the photo, there weren't many photos that were worth throwing away.</p>
-<p>,There's only one photo with closed eyes and two blurry photos out of a hundred. The defect rate is only about 3 percent, App-, no, Sensei.</p>
-<p>Oofuchi Erika was saying *appa* so much that I was starting to get used to the title that cut off in the middle of *appa*. Isn't she going to just call me dad later? Thinking about her constantly calling a bachelor dad was scary.</p>
-<p>,Ryuta, Alik, I'm leaving now.</p>
-<p>,Okay, see you tomorrow, Alik.</p>
-<p>Alik, who had been looking at the photos for a while, got up from his seat, and not long after, the inspection of the 1,500 photos assigned to us was finished. First, we took out the blurry or shaky photos and the photos where I was closing my eyes or where other characters suddenly appeared, so there were about 1,300 photos left.</p>
-<p>,We're done.</p>
-<p>,It's taking a little longer on this side. Maybe it's because it's the initial photos and we didn't have the shooting technique yet, but there are a lot of shaky photos.</p>
-<p>Well, taking photos is also a skill, so the defect rate (?) of the photos taken in the beginning must be high. For reference, the photos we selected were the photos taken in the middle and later stages of the photo shoot. That's why there weren't many shaky or blurry photos.</p>
-<p>Soon after, the initial photo selection was over, and soon there was a second photo selection.</p>
-<p>,This time, we're not going to divide into groups and we're going to talk together. We're going to exclude photos that aren't suitable for photo cards while looking at the photos.</p>
-<p>,We're not going to look at all five thousand photos left today, are we?</p>
-<p>I asked because even if we selected the photos quickly, it seemed like it would take a very long time to look at five thousand photos.</p>
-<p>,Of course not. I'm thinking about how it would be if we looked at about a thousand today.</p>
-<p>Minamoto Risa shook her head as if it was obvious. And she immediately displayed the first photo. There was a blonde me sitting under a maple tree with a smile.</p>
-<p>This is more embarrassing than before? Just now, we were just looking for blurry, shaky, or closed-eye photos, so we quickly moved on, but this time we have to look at it in detail.</p>
-<p>,Hmm... I like it.</p>
-<p>,Ryuta-cchi's smile is perverted. I like it.</p>
-<p>,I agree too.</p>
-<p>,I like Sensei too.</p>
-<p>,I like Daddy's picture!</p>
-<p>,I don't like it? Men should be stronger! Don't you have any shirtless photos?</p>
-<p>Most of them agreed, and only Kujo Kina, who was trying to strip me, objected. No, there aren't many naked photos in the first place, so what's with this guy talking about stripping me?</p>
-<p>_____________</p>
-<p>Halloween Day Alik Bear.</p>
-<p>Alik in a bear costume, like a Russian girl hehe</p>
+<p>It was after 9 p.m. when I had dinner after having sex with Yukiko and Nagumo Sian for a long time. It was because I started preparing dinner late after spending almost five hours until 7:30 p.m. craving each other's bodies and overlapping our bodies.</p>
+<p>The two of them, who had sucked all my energy and had shiny faces, told me to rest and went to the kitchen and started preparing dinner with the ingredients they had prepared.</p>
+<p>Before going to the kitchen to cook, I was curious and asked what was in the styrofoam box, and it was eel and top-quality Wagyu beef.</p>
+<p>The dinner that Yukiko and Nagumo Sian prepared for a little over an hour and a half was eel rice bowl and beef stew braised in black garlic soy sauce. Both eel and black garlic were good for stamina. I guess it means I should eat a lot because I've used up so much stamina?</p>
+<p>"I've practiced cooking a lot, so it should taste okay."</p>
+<p>What Yukiko made was black garlic beef stew. The beef chunks, gently braised in a glossy black garlic soy sauce, looked very delicious.</p>
+<p>I heard that she learned cooking skills from the housekeeper at the Human Resources Development Center from time to time, so if she learned properly, her skills would have improved considerably. I also had very delicious meals while I was at the Human Resources Development Center.</p>
+<p>"I'm confident in my eel rice bowl."</p>
+<p>Nagumo Sian made an eel rice bowl with quality that rivaled a restaurant. She even brought a brazier and grilled it properly, so it was a delicious grilled eel with a smoky flavor. But.... It looks like there are almost ten eels in one bowl?</p>
+<p>If a normal eel rice bowl is covered with one piece on top of the rice, this eel rice bowl was covered with eel in as many as seven layers on top of the rice. The bowl was bigger than a normal eel rice bowl, so it seemed like at least one and a half eels would fit in one layer.</p>
+<p>"You worked hard today, so you need to take care of your body."</p>
+<p>"Yes, I'll enjoy the meal."</p>
+<p>First, I took my chopsticks to the black garlic beef stew prepared by Yukiko. The beef stew almost split as soon as my chopsticks touched it. How well did she boil it to make it split like this with chopsticks.... Amazing?</p>
+<p>As I guessed, it was so soft that it disappeared as soon as I put it in my mouth. The black garlic sauce wasn't too strong to be bothersome, and it seemed to be added just enough to help the sweet soy sauce.</p>
+<p>"It's really delicious, Yukiko-ssi."</p>
+<p>"Hehe, there's a lot, so eat a lot."</p>
+<p>She made so much that I could eat it as a side dish for several days, so it seemed like I wouldn't have to worry about food for several days.</p>
+<p>Next was Nagumo Sian's eel rice bowl. The eel was 9 and the rice was 1, but I put a lot of eel on top of the rice and took a big spoonful and put it in my mouth.</p>
+<p>Hmm, this was delicious too. The sauce was exquisite and the eel was cooked well with a smoky flavor. It was so delicious that it was as good as a really famous grilled eel restaurant.</p>
+<p>"Onee-san, the eel rice bowl is delicious too. It tastes better than what you eat at the restaurant?"</p>
+<p>"I made a lot, so eat a lot."</p>
+<p>Nagumo Sian was looking at me with a proud expression full of maternal love as I ate as if it was delicious.</p>
+<p>I ate Yukiko's beef stew and Nagumo Sian's eel rice bowl without thinking. They both ate the food they made.</p>
+<p>After talking about each other's recent events and having a good time, and even eating ice cream for dessert, the two of them talked to each other for a while and started changing into ordinary clothes instead of costumes.</p>
+<p>Yukiko began to transform into Sakagami Rena's teacher, the sorcerer Takinogawa, her other identity, and Nagumo Sian also began to wear a neat Kimono.</p>
+<p>"Huh? Where are you going?"</p>
+<p>"I'm going to see Kanna today, so I have to go. It would be strange to show up right away in the morning, so I'm thinking of going to Miyashi's Taira residence."</p>
+<p>"I'm also thinking of going to see my disciple Sakagami. Even if she has illusion magic, it's dangerous. And.... Someone else will be coming to Ryuta's house soon."</p>
+<p>It seemed like neither of them would be sleeping here. Yeah, I thought it was a little strange that they were seducing me from the middle of the day. I usually talk to them to some extent before starting sex. Today was a bit rushed? Besides, what do you mean someone else is coming?</p>
+<p>"I'll see you tomorrow, so don't be too sad."</p>
+<p>"We have to pretend we're meeting each other for the first time tomorrow, right?"</p>
+<p>"You can think of it as a role play."</p>
+<p>Role play.... I didn't know Nagumo Sian would say something like this. Yukiko, who had transformed into Takinogawa, said that she had seen me before, so she could pretend to know me, right? and gave me a peace sign.</p>
+<p>"Okay. See you tomorrow then."</p>
+<p>"You used a lot of energy today, so get some rest."</p>
+<p>"Ryuta has plenty of energy, so it's okay."</p>
+<p>I saw off the two mommies who were leaving. Not long after Nagumo Sian and Yukiko left, someone rang the doorbell, just as Yukiko had said.</p>
+<p>"Who is it?"</p>
+<p>"It's me."</p>
+<p>Normally, I would say, "How am I supposed to know who it is if you just say 'it's me'?" but I couldn't answer like that. It was Minamoto Lisa's voice. Did Yukiko know that Minamoto Lisa was coming? Something was getting scarier and scarier.</p>
+<p>_____________________</p>
+<p>Yukiko's back view</p>
+<p>Nagumo Sian</p>
+<p>Kkiooot!</p>

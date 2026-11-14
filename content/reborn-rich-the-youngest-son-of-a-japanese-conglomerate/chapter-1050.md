@@ -5,80 +5,70 @@ weight = 1050
 chapter = 1050
 +++
 
-<p>"But why did you prepare a shotgun?"</p>
-<p>As I pointed at the shotgun and asked, Sawayanagi Azuma smiled and shook the shotgun Ammunition.</p>
-<p>"It's not that the shotgun is special, but the Ammunition is special."</p>
-<p>The shotgun Ammunition is special, not the shotgun itself? It just looks like ordinary shotgun Ammunition.</p>
-<p>"It's Ammunition called Dragon Breath, and instead of buckshot, it contains Metal Powder like magnesium and zirconium, so it can fire Flame. It doesn't have much stopping power due to its lack of physical force, but I saw myself dealing with those Thorns in a premonition."</p>
-<p>Ah...! From the explanation, it seemed like a single-shot Flamethrower. Quite cool, isn't it? Since it's dealing with thorny Plants, it would definitely be helpful. It probably means she intends to defeat it with Attribute Compatibility/Affinity rather than the physical force of bullets.</p>
-<p>"Kirie-ssi, you remember what I said, right?"</p>
-<p>"Yes."</p>
-<p>Sawayanagi Azuma and Kurayamada Kirie exchanged Words that I couldn't understand.</p>
-<p>"I'll use it now."</p>
-<p>Before I could even ask what she meant, Sawayanagi Azuma raised the shotgun and said. And immediately, she began firing Dragon Breath buckshot at the Thorns blocking the Passage.</p>
-<p>Tang! Tang! Tang!</p>
-<p>Along with the sound of the Gun firing, Flame poured from the Muzzle, beginning to burn the Thorns. This seems to have a range far exceeding 20 meters, doesn't it?</p>
-<p>-Kieeeeh!</p>
-<p>With a strange roar, as if in pain, the entire thorny wall burned away, opening a Passage to the alley.</p>
-<p>"Go now!"</p>
-<p>It was Sawayanagi Azuma, urging us to pass quickly. As she had said beforehand, she seemed to intend to send us first, then deal with those Thorns here and follow. Since she would already know this Situation through premonition, Sawayanagi Azuma wouldn't be in Danger, and there would be a Reason for us to go alone.</p>
-<p>"Be careful, Azuma!"</p>
-<p>Still, after telling her to be careful, Kurayamada Kirie and I ran down the alley where the Thorns had disappeared. Thorny vines occupying the Building burst out from the side window and attacked us, but Kurayamada Kirie swung her long Sword, cutting them down, allowing us to advance.</p>
-<p>As Taira Ryuta and Kurayamada Kirie passed through the alley, the Building occupied by the Thorns began to shake.</p>
-<p>Kwaaaang!</p>
-<p>Thorny vines burst through the Building's window and attacked Sawayanagi Azuma as if to impale her. Seeing the vines shoot out quite violently, it seemed to know who had attacked it.</p>
-<p>If Sawayanagi Azuma had moved with Taira Ryuta, the owner of these Thorns would have tracked them to the end, which is why Sawayanagi Azuma remained alone.</p>
-<p>Sawayanagi Azuma, as if she had known beforehand, took half a step to evade the Thorns, then fired the shotgun.</p>
-<p>Taang!</p>
-<p>The Dragon Breath Ammunition spewed Flame, and the flammable Metal Powder clung to the Thorns, setting them on Fire. As Fire caught, the Thorns writhed as if feeling Pleasurable Ache.</p>
-<p>"Sorry, but you'll have to die. ThornyVine."</p>
-<p>Sawayanagi Azuma said, looking at ThornyVine, the thorny vine writhing in Pleasurable Ache. Due to several premonitions, it was an Enemy she was meeting for the first time today, but Sawayanagi Azuma already knew its nickname.</p>
-<p>The True Identity of this ThornyVine was one of the Black Sage's Collection, kidnapped like the fake Black Knight, and the Black Sage had enhanced ThornyVine's Ability to use thorny vines through strange Drugs before having it participate in the battle for the Book of Omniscience.</p>
-<p>Although it became incredibly strong due to the Drugs, as a Price, ThornyVine's Fading Reason, which was already clouded by Brainwashing, almost disappeared, leaving only animalistic Instinct.</p>
-<p>Sawayanagi Azuma began throwing the Bomb she received from Kurayamada Kirie through the window of the Building occupied by ThornyVine. Thorny vines burst through the window and wall, attacking Sawayanagi Azuma, but Sawayanagi Azuma easily evaded, as if she already knew the Attack.</p>
-<p>Kwaaaang!</p>
-<p>Inside the Building, the Bomb exploded with a roar. Sawayanagi Azuma, who already knew through premonition that all the People inside the Building had died and become nutrients for ThornyVine, could pour Bombs into the Building without hesitation.</p>
-<p>-Kuaaaah!</p>
-<p>With a monstrous scream, the Building began to collapse. The Remains of the Building and H-beams fell to the floor, but Sawayanagi Azuma evaded the falling debris as if she could see the Safety zone.</p>
-<p>What was revealed after the Building disappeared was a giant thorny Tree. Many places were scorched or wounded from the explosion, oozing sap, and in the middle of the thorny Tree, ThornyVine's Face, covered with a Bandage, was embedded.</p>
-<p>"Taking your life, ThornyVine, would be an act of Mercy."</p>
-<p>Sawayanagi Azuma, feeling Sympathy for ThornyVine's Appearance, fired Dragon Breath Ammunition with her shotgun.</p>
-<p>With the Tangtang sound of gunshots, the Tree's Body caught Fire. And at the burning spot, she threw a Plastic container mixed with tar and Gasoline. The Plastic melted by the Flame, and the flammable substances inside also began to catch Fire.</p>
-<p>Since a single Bullet couldn't sustain the Fire for long, she threw an igniter to continuously maintain the Ignition status effect.</p>
-<p>ThornyVine, an overwhelming entity in the form of a giant Tree wielding thorny vines, had poor Compatibility/Affinity with Sawayanagi Azuma, who had already experienced the future through premonition and completed her Preparation. This was because it had a fatal Weakness: Fire.</p>
-<p>Sawayanagi Azuma continued firing the shotgun loaded with Dragon Breath Ammunition, and this time, she began climbing ThornyVine's Main body. Ultimately, to defeat ThornyVine, she had to remove ThornyVine's Main body, which was inside the thorny Tree.</p>
-<p>As if realizing Sawayanagi Azuma's Purpose, countless thorny vines poured out, but Sawayanagi Azuma fired her shotgun and threw Bombs, achieving Neutralization of the thorny vines.</p>
-<p>"...."</p>
-<p>Having reached ThornyVine's Head, Sawayanagi Azuma aimed a rifle, not a shotgun, at ThornyVine's Head. This was because she wanted to kill ThornyVine, who could be called a Victim of the Black Sage, in one go, rather than continuously inflicting the Pleasurable Ache of burning.</p>
-<p>Tang!</p>
-<p>The Muzzle spewed Fire, and a Small hole appeared in ThornyVine's Head. ThornyVine's clouded Eyes found their Last Light. ThornyVine sent Sawayanagi Azuma a Gaze of gratitude for the Release, then dropped its Head.</p>
-<p>"Rest in peace now, ThornyVine."</p>
-<p>Sawayanagi Azuma muttered with a bitter Expression. Simultaneously, the thorny Tree began to wither rapidly. Sawayanagi Azuma quickly descended before the Tree completely decayed and collapsed.</p>
-<p>"Command post, this is Azuma. I have occupied the blocked V1 Point, over."</p>
-<p>-Understood. Please call if there are any unusual circumstances.</p>
-<p>Sawayanagi Azuma, having reported to the Command post, leaned against the alley wall and briefly sat down on the floor. She wasn't physically exhausted, but she was mentally exhausted from having to continuously recall the premonition's Situation and fight.</p>
-<p>Naruse Shiyo was watching the battle from outside the window.</p>
-<p>She had been comfortably waiting in an empty Home near the Point to see if the Black Knight would come or not, when a Heupyeolgui unit and the Silver Stake Alliance, called SPF, began fighting each other in the area she was in charge of.</p>
-<p>According to the various Information Naruse Shiyo had gathered, both the Heupyeolgui and SPF were aiming for the Book of Omniscience, but their current Behavior seemed to focus more on preventing the Opponent from obtaining a Fragment of Omniscience rather than acquiring it themselves.</p>
-<p>"Since it's this Vicinity.... Seari-ssi's team and Mari-ssi's team will have a hard time because of the Heupyeolgui and SPF, won't they?"</p>
-<p>Naruse Shiyo said, spreading out a map. Because the numerous Heupyeolgui unit and SPF had seized the Surroundings, the Group near Naruse Shiyo could also be attacked by the Heupyeolgui or the Silver Stake Alliance.</p>
-<p>Of course, Naruse Shiyo was lucky enough to find an empty Home where she could observe the Surroundings early on, so she was just watching others fight without engaging in battle, but the remaining Groups would likely be attacked as they continued to roam the alleys.</p>
-<p>"By the way, the Heupyeolgui aren't really able to use their Power."</p>
-<p>These Heupyeolgui seemed specialized in ambush rather than Vampire Authority, using Concealment and Marksmanship, but they couldn't shake off SPF's Vampire Tracking, which was already seasoned in Vampire hunt, and were being exterminated by concentrated silver bullet Marksmanship.</p>
-<p>Of course, each Bullet fired by the Heupyeolgui was fatal to humans, so SPF was also suffering heavy losses when they clashed head-on.</p>
-<p>Still, a large-sized man in Knight Armor made of thick Iron Shamelessness stood in the Vanguard, crushing Heupyeolgui with a giant warhammer, and several Ability Users were slaughtering Heupyeolgui, so the Battle Situation was favorable for SPF.</p>
-<p>Kwaang! Tatatatang! Keuaaaak! Die! Kwaaaang!</p>
-<p>Naruse Shiyo observed the Surroundings, watching the battle mixed with various noise. This was because the fake Black Knight might appear.</p>
-<p>But the Black Knight did not appear until the battle between SPF and the Heupyeolgui unit ended.</p>
-<p>This battle was an SPF Victory, and the man in Knight Armor who stood in the Vanguard, crushing Heupyeolgui with a giant warhammer, achieved the greatest merit.</p>
-<p>The man in Knight Armor, standing in the middle of the battlefield filled with Heupyeolgui Corpses, suddenly raised his warhammer and pointed towards Naruse Shiyo.</p>
-<p>'I've been spotted!'</p>
-<p>Although it was a considerable distance, I felt as if my Eyes had met the man in Knight Armor. The man in Knight Armor said something to his Subordinates, then soon left the battlefield; judging by the direction he was moving, he probably said he would intervene in the Fragment of Omniscience battle.</p>
-<p>"Phew...! I guess I have no choice but to fight."</p>
-<p>Naruse Shiyo gathered her Weapons and stood up from her Seat. This was because the man in Knight Armor had left, and the remaining SPF Subordinates were approaching the Place where Naruse Shiyo was.</p>
-<p>Chomisaemeonji-nim requested School Uniform Liz, Archery Club Liz~!</p>
-<p>School Uniform Liz~!</p>
-<p>Archery Club Liz~!</p>
-<p>Gojoy-nim requested Shinoe Misano undressing 1. Removing Top 2. Removing Bottoms~!</p>
-<p>1.</p>
-<p>2.</p>
+<p>Seogeok...! Although it was chains possessing powerful magical power enough to Seal the Fragment of All-Knowledge, they were cut through like butter by the Predator's Claws, strengthened by the Rain of Lamentation, almost without a sound.</p>
+<p>Chaenggeurang!</p>
+<p>At the sound of the chains falling onto the Building's rooftop floor, everyone looked at the monster Predator and Fujigasaki Rinka.</p>
+<p>And everyone, as if by promise, simultaneously began to run towards the Fragment of All-Knowledge held in Fujigasaki Rinka's hand.</p>
+<p>The Black Sage, possessing powerful strength, had suddenly intervened, and they had implicitly been confronting the Black Sage together, but ultimately, the Reason they had gathered in New Rochelle was because of the Fragment of All-Knowledge.</p>
+<p>Due to the Predator's Claws, now that the Seal on the Fragment of All-Knowledge was broken, they thought that quickly grabbing the Fragment of All-Knowledge and leaving this Place was a good Choice, rather than fighting the powerful Black Sage.</p>
+<p>"I will take the Book of Completion!"</p>
+<p>The Heupyeolgui Grand Duke, changing his Body into blood fog, began to rapidly descend towards the Building's rooftop. The remaining Magicians also, each by their own Method, began to head towards the Building's rooftop.</p>
+<p>The Black Sage also, using teleportation, moved to seize the Fragment of All-Knowledge.</p>
+<p>"Monsters tainted by Darkness cannot be allowed to possess the Fragment of All-Knowledge!"</p>
+<p>Even on the rooftop, the SPF New York Branch President, with a greedy Expression, spoke of a great cause and stretched out a Hand towards Fujigasaki Rinka, and the Lizardman Warlord, like a chameleon snatching an insect, extended a long tongue towards the Fragment of All-Knowledge.</p>
+<p>In the meantime, Fujigasaki Rinka severed the neck of the Werewolf Chief, who was no different from a living Corpse, moving by the Rain of Lamentation, with a Hand Blade, and seeing everyone approaching her with greedy Expressions, she let out a small laugh, then dropped the Fragment of All-Knowledge straight down below the Building.</p>
+<p>Naturally, everyone's Gaze was directed towards the Fragment of All-Knowledge falling towards the floor. But only one person, Fujigasaki Rinka, was looking only at the Black Sage. From the beginning, the Reason Fujigasaki Rinka was here was not for the Fragment of All-Knowledge, but to kill the Black Sage, who could be called her Sabu's enemy.</p>
+<p>In fact, from the very first time she defended against the Black Sage's Attack with the Fragment of All-Knowledge, she had been planning the current Situation.</p>
+<p>Everyone gathered here had gathered out of Greed, so she thought they wouldn't be able to suppress their Greed indefinitely. Rather, by dropping the Fragment of All-Knowledge below the Building, she intended to divert the attention focused on her towards the Fragment of All-Knowledge.</p>
+<p>As Fujigasaki Rinka had thought, everyone, including the Black Sage, began to descend downwards to catch the falling Fragment of All-Knowledge.</p>
+<p>There were Magicians and Heupyeolgui rapidly descending, the SPF New York Branch President and the Lizardman Warlord climbing down the Building, and the Black Sage moving 20 meters at a time with teleportation.</p>
+<p>Fujigasaki Rinka quietly closed her Eyes, then threw a fist towards the empty space where no one was.</p>
+<p>-Shinkaiyatsude (Deep Sea Eight Arms) Haro-okanfure (Wave Piercing Touch)</p>
+<p>It was Shinkaiyatsude's most basic Technique, a straight punch imbued with the Abyss. When Fujigasaki Rinka's fist was fully extended, the Black Sage finished his teleportation and appeared. Fujigasaki Rinka had meticulously calculated the Black Sage's trajectory and thrown her fist in advance, a perfect cut.</p>
+<p>"Keueu...! I knew this would happen, so I had already cast a Barrier!"</p>
+<p>The Black Sage also was not only concerned with the Fragment of All-Knowledge but seemed to be paying attention to Fujigasaki Rinka, who was glaring at him. Fujigasaki Rinka's outstretched straight punch was blocked by the Black Sage's purple Barrier.</p>
+<p>"This isn't the end...!"</p>
+<p>Fujigasaki Rinka smiled and opened her clenched fist. Because Fujigasaki Rinka had also anticipated that the Black Sage would block this Attack.</p>
+<p>-Shinkaiyatsude (深海八手) Juushi Mitsuru Kaika (十指満開花: Ten Fingers Full Bloom Flower) - Manhwapung (万花風: Ten Thousand Flower Wind).</p>
+<p>As Fujigasaki Rinka's ten fingers spread open, a black Flower made of Abyss bloomed, and simultaneously, its Petals began to pour down on the Black Sage.</p>
+<p>No matter that he was the Black Sage, the Abyss Energy unfolding at close range he could not block entirely.</p>
+<p>"Kuaaaah!!"</p>
+<p>The Black Sage, with the Abyss Petals embedded in his Body, screamed and fell. Although she had inflicted meaningful harm on the Black Sage for the first time, it was difficult to declare Victory with this alone. Fujigasaki Rinka, chasing the falling Black Sage, ran along the Building wall.</p>
+<p>At some Moment, having regained his senses, the Black Sage began to chase the Fragment of All-Knowledge again with teleportation. Although he wanted to take boksu on Fujigasaki Rinka immediately, the Fragment of All-Knowledge was the priority now.</p>
+<p>If he diverted his Interest to Fujigasaki Rinka even slightly, one of the Fragment of All-Knowledge contenders would clearly snatch the Fragment of All-Knowledge and escape.</p>
+<p>So the Black Sage first intended to somehow get the Fragment of All-Knowledge into his Hand and then kill all the remaining riff-raff. If he only obtained the Fragment of All-Knowledge, he believed he could kill everyone with one Hand.</p>
+<p>The Black Sage, who had been teleporting, stopped in the empty space in the middle of the Building. And he concentrated Energy into the Book of Lamentation.</p>
+<p>"Lamentation Reversal."</p>
+<p>The Moment the Black Sage chanted the Order, the Rain of Lamentation falling from the sky stopped in the empty space. And it began to surge back up into the sky. The tar-like Rain of Lamentation that had been soaking the floor also, as if Time had been reversed, rose drop by drop into the sky.</p>
+<p>The Fragment of All-Knowledge, which had been falling under the influence of Gravity, also stopped in the empty space for a Moment, then began to surge back up into the empty space. Seeing that the remaining Fragment of All-Knowledge contenders chasing the Fragment of All-Knowledge were not rising, it seemed he had used localized Gravity manipulation.</p>
+<p>Even if the Fragment of All-Knowledge fell to the Ground, they would have to fight over it for a long Time anyway, so the Black Sage used Gravity manipulation magic with the thought of securing the Fragment of All-Knowledge first.</p>
+<p>"Jenjang! You hideous Magician Guy!!"</p>
+<p>"Should we have dealt with him first after all?!"</p>
+<p>The Fragment of All-Knowledge contenders erupted in Anger and began to Attack the Black Sage to prevent him from getting the Fragment of All-Knowledge into his Hand.</p>
+<p>When the Fragment of All-Knowledge was falling to the floor, no one knew who its Master would be, so everyone ran towards the Fragment of All-Knowledge to get it into their Hands, but now that the Fragment of All-Knowledge was close to the Black Sage's Hand, everyone seemed to be of the same Mind and began to Attack the Black Sage.</p>
+<p>The Blood Blade shot by the Heupyeolgui Grand Duke, the silver dagger thrown by the SPF New York Branch President, and the trident thrown by the Lizardman Warlord flew targeting the Black Sage, and the Magicians also shot their respective magic towards the Black Sage.</p>
+<p>"I didn't use Lamentation Reversal for nothing."</p>
+<p>The Black Sage, looking at those who began to Attack him, scoffed and said.</p>
+<p>What rose after using Lamentation Reversal was not only the Fragment of All-Knowledge. The Rain of Lamentation that had been falling and the Rain of Lamentation that had pooled on the floor also rose together in the form of black Water droplets.</p>
+<p>"Lamentation Seal."</p>
+<p>The black Water droplets that had risen into the sky combined into one and began to protect the Black Sage with a large shield.</p>
+<p>Kwakwakwakwa!!</p>
+<p>The powerful attacks unleashed by the Fragment of All-Knowledge contenders continuously struck the Lamentation Seal shield, but only rippled and did not reach the Black Sage.</p>
+<p>"Using Water droplets as a Barrier is your fatal move!!!"</p>
+<p>Fujigasaki Rinka shouted as she fell from the empty space. And she immediately struck the upper center of the Water droplet with her fist.</p>
+<p>-Shinkaiyatsude (深海八手) Kaku-umidashoo (隔海打礁: Striking the Sea, Hitting the Reef).</p>
+<p>In Shinkaiyatsude's Martial Arts Principles (武理), many teachings are related to the Sea. Shinkaiyatsude itself, being a martial art developed from the movements of an octopus god submerged deep in the Pacific Ocean, had a profound understanding of water and the sea.</p>
+<p>Therefore, Fujigasaki Rinka, who had deeply undergone Training in Shinkaiyatsude, knew how to pierce through the large Water droplet shield protecting the Black Sage.</p>
+<p>Shinkaiyatsude's Kaku-umidashoo was a typical Tongbeiquan, or Gyeoksantau Technique, but like its Martial Arts Form name, 'Striking the Sea,' it also had the Effect of shattering the opponent's Water Attribute Barrier.</p>
+<p>Paaaang!!</p>
+<p>As Fujigasaki Rinka's fist touched the Water droplet, the Water droplet burst open. And the shockwave of that impact engulfed the Black Sage.</p>
+<p>"Kuaaaah! Now, now it's over!!"</p>
+<p>The Black Sage, writhing in Pain, continued to reach out his Hand. The distance between the Fragment of All-Knowledge and the Black Sage's finger was now less than two finger-lengths. If the Black Sage stretched his Hand just a little further, the Fragment of All-Knowledge would fall into the Black Sage's Hand.</p>
+<p>The remaining Fragment of All-Knowledge contenders continued to pour attacks towards the Black Sage. Now that the shield was broken, the Fragment of All-Knowledge would be swept away by those attacks, but because their Attitude was that if they couldn't have it, no one should, the attacks of the Fragment of All-Knowledge contenders were incredibly fierce.</p>
+<p>"No...!"</p>
+<p>The Moment Fujigasaki Rinka was about to shout "No!", the Building's side window pane burst open, and with a Ping! sound, a wire shot out and snatched the Fragment of All-Knowledge.</p>
+<p>By a difference of 0.01 seconds, what the Black Sage's Hand grasped was the empty space where the Fragment of All-Knowledge had been. And the Black Sage was directly Exposed to the attacks unleashed by the Fragment of All-Knowledge contenders.</p>
+<p>"Kuaaaah! W-who the hell is that?!"</p>
+<p>As per the Black Sage's Pain-filled cry, everyone gathered here was wondering who on earth had suddenly snatched the Fragment of All-Knowledge.</p>
+<p>The one who appeared was a woman wearing a helmet shaped like a VR Device and a cyber Suit. One of the Magicians recognized the woman's True Identity and screamed. "T-that's Phantom Thief François!" The one who snatched the Fragment of All-Knowledge from the Black Sage's Hand was none other than the world's most famous thief, Phantom Thief François.</p>
+<p>Requested by MidNightSKY-nim, Sakagami Rena using Ice Shield, School Nurse in Water Bomb attire~! Rena~! School Nurse~! Requested by Gojoy-nim, Chieri eating Udon in a Restaurant, Shinoe Misano closing the door and turning her Head to look~! Chieri~ Shinoe Requested by Chomisaemeonji-nim, Liz in a blue Dress, Liz in old Prison attire~! Dress~! Prison attire~!</p>

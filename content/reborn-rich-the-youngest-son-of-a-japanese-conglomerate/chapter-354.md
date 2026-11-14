@@ -5,111 +5,69 @@ weight = 354
 chapter = 354
 +++
 
-<p>"Three things?"</p>
-<p>"What are the conditions?"</p>
-<p>Minamoto Risa asked again, as if three conditions were too many, and Konoe Akina calmly asked about the conditions.</p>
-<p>"First, you must follow the club integration rules well."</p>
-<p>"That's obvious, since it's like school rules."</p>
-<p>Asking to follow the school rules was a common-sense request, so I had no choice but to nod. For reference, if you break the rules more than twice in a semester, the club will be shut down.</p>
-<p>"Of course, Minamoto-sunbae and Seizawa-sunbae are famous for not following the rules, so that's why I made it a condition."</p>
-<p>"What are you talking about!"</p>
-<p>Minamoto Risa got angry at Taira Kanna's words, but Taira Kanna didn't care at all and started the next story.</p>
-<p>"Second, the student council will conduct random inspections from time to time."</p>
-<p>"Random inspections are a bit..."</p>
-<p>When Konoe Akina showed resistance to the words 'random inspection', Taira Kanna explained the reason as if it was unavoidable.</p>
-<p>"Still, since there's a club with the word 'date' in it and a male homeroom teacher together, I can't get the approval of the disciplinary committee without this much."</p>
-<p>"Okay. But we're not prisoners, and I don't want you to check on us too often, so do it about once a month."</p>
-<p>I wanted to get off work early, and I thought it would be best to minimize the random inspections, so I set a condition. If I kept arguing with Taira Kanna that I didn't want random inspections, the story would only get longer.</p>
-<p>"Instead, when you do long-distance club activities like trips, one or two members of the student council will accompany you."</p>
-<p>"Okay. What's the third condition?"</p>
-<p>This time, Minamoto Risa nodded and asked about the third condition. She didn't seem to care much, as if she had no intention of doing anything bad during the trip.</p>
-<p>"The third is that the Date Experience-Meditation Club will occasionally take on requests from the student council."</p>
-<p>"""Requests?"""</p>
-<p>Requests? We all asked back at the same time at the unexpected condition.</p>
-<p>"Yes, everyone in the student council and disciplinary committee is known, so we're using you, who are less known. It's not bad for the Date Experience-Meditation Club either, because if you owe us a debt, we can look out for you later when you cause an accident."</p>
-<p>"Isn't my face already well-known?"</p>
-<p>Minamoto Risa retorted at Taira Kanna's words. Of course, Minamoto Risa, the young lady of the Minamoto Group and a delinquent who had been held back a year, was a famous person in the school, so she did not meet the condition of 'less known' that Taira Kanna had said.</p>
-<p>"It means less known in terms of inspection as the student council. It's not just about being known by face. Rather, if there's Minamoto-sunbae, who's a troublemaker, wouldn't students who commit bad deeds feel relieved?"</p>
-<p>"What are you talking about!"</p>
-<p>Minamoto Risa wouldn't be relieved if there were students who committed bad deeds, but Minamoto Risa got caught up in Taira Kanna's sophistry and got angry.</p>
-<p>I put my hand on Minamoto Risa's shoulder to calm her down and continued the story.</p>
-<p>"Even if we do the requests, the condition 'occasionally' is too abstract."</p>
-<p>"I see. Should we do it three times during the second semester?"</p>
-<p>Three times a semester... While I was pondering for a moment, Minamoto Risa and Konoe Akina protested and said.</p>
-<p>"Three times is too much! Make it two times!"</p>
-<p>"That's right, let's do it twice."</p>
-<p>"Okay, let's do it twice."</p>
-<p>The request was decided to be twice before I knew it. It was an absurd condition that didn't have to be done, but I got caught up in the student council president's words.</p>
-<p>"Then, are you going to allow the establishment of the club?"</p>
-<p>"Since you've agreed to all three conditions, I'll allow it."</p>
-<p>At Minamoto Risa's words, Taira Kanna stamped the student council president's seal on the club establishment documents and placed them on top of a pile of documents on one side.</p>
-<p>"Then, shall we go back now?"</p>
-<p>"Wait a minute, I'll give you your first request."</p>
-<p>I knew it. I wondered why she suddenly made a request unrelated to the club a condition, but it was because she had something to request now.</p>
-<p>"Ehh-, I want to go back quickly...!"</p>
-<p>Minamoto Risa answered with a disgusted expression. Still, she stood there as if she couldn't help it and waited for Taira Kanna's story.</p>
-<p>"This request is an investigation request."</p>
-<p>"We're not police, why are we investigating?"</p>
-<p>Minamoto Risa asked back at Taira Kanna's words. If it's an investigation, it's right for the police or a detective hired by the school to do it, so why are they asking us?</p>
-<p>"You have to do it because you're not police."</p>
-<p>"...It's that kind of thing."</p>
-<p>Everyone here understood at Taira Kanna's words. This investigation that we are doing was to investigate something that would damage honor if it was reported to the police or a detective. That's what a prestigious family is like. They can't stand anything that damages the honor they value most.</p>
-<p>"Seeing that you're asking us... Is it a problem between a man and a woman?"</p>
-<p>"It probably is."</p>
-<p>It probably is... Seeing that she's asking for an investigation, it seems like she doesn't know the exact details yet. If it's a problem between a man and a woman, it shouldn't be reported to the police. Rumors spread in an instant, so the police and detectives can't be trusted. Besides, if it goes to trial, it will be completely public.</p>
-<p>"Then, there must be a clue, right?"</p>
-<p>"Yes, you can't take this clue outside, so please read it here."</p>
-<p>What Taira Kanna gave us was a handwritten note that transcribed someone's testimony as it was. Reading it, it said that a student who went to the third lecture hall to move exercise equipment for club activities heard moaning sounds of a man and a woman in a corner. The student was scared and ran away, then reported this fact to the student council.</p>
-<p>"If you heard sexy sounds, shouldn't you have watched a little more to confirm?"</p>
-<p>"Unfortunately, the student was in the middle school, so fear was greater than curiosity, so they ran away. If they were in high school, they would have investigated the source of the sound in detail."</p>
-<p>If it's a middle school student from a prestigious family who was raised preciously, that could be the case. It's a bit annoying to investigate with just moaning sounds, so it seems like they're trying to leave it to us...</p>
-<p>"For now, this is the only clue. But since our school is not co-ed, it wouldn't be a student's indiscretion. The most likely thing is that it was done by a male teacher and a female teacher, or a male teacher and a female student."</p>
-<p>"Even if it's not a teacher, it could be a security guard or a member of the work team, right?"</p>
-<p>Taira Kanna shook her head at Minamoto Risa's point.</p>
-<p>"All the men on the security and work teams had clear alibis at that time."</p>
-<p>Then the man is definitely a teacher. I need to find out if the woman is a teacher or a student, but if I catch the man first, I can find out the other person.</p>
-<p>The same goes for the woman, but there were so many students and teachers on the woman's side, so there were many more people to investigate. So it was much more reasonable to investigate the male teachers.</p>
-<p>"Here's a list of male teachers whose alibis are unclear. Our school doesn't interfere with things between adults, but we don't tolerate things between underage students and teachers, so we must find out the truth."</p>
-<p>I checked the list of male teachers with unclear alibis that Taira Kanna gave me, and my name wasn't on it.</p>
-<p>"The school doesn't interfere with adults dating? So, if a student is an adult, they can date a teacher?"</p>
-<p>"There are cases like that. It's just an old rule. Of course, it's a crime if they do it by force or by threatening them."</p>
-<p>St. Francisco Girls' Academy, where the daughters of prestigious families attend, is a school with a long history. In the old days, there were many cases where students left the school due to arranged marriages, and sometimes the target of the arranged marriage was a teacher and a student.</p>
-<p>Still, if they quit school to marry a teacher at an educational institution, it wouldn't work, so there was a school rule that teachers couldn't date underage female students, but they could date adult female students. Of course, it's a dead letter rule now that a lot of time has passed, but it's still a rule that hasn't disappeared.</p>
-<p>I learned a lot of school rules to infiltrate St. Francisco Girls' Academy, and I remember laughing and saying, "What kind of rule is this?" when I saw this rule.</p>
-<p>I couldn't help but laugh because it was a rule that seemed to be written for this infiltration mission. Because the target, Minamoto Risa, is a 20-year-old student.</p>
-<p>"Then we got the clues and the list of suspects, so can we go?"</p>
-<p>"Not yet."</p>
-<p>Minamoto Risa asked if she could go to leave the student council room quickly, but she was stopped again.</p>
-<p>"There's a lot to do for the club besides the request. First, you have to decide on a club room and write down the account number to receive the monthly club subsidy."</p>
-<p>"Ah, we have to decide on a club room!"</p>
-<p>"Are there any club rooms left now?"</p>
-<p>It would be nice to have a club room. Minamoto Risa also asked excitedly, and Konoe Akina asked with a slightly worried expression. She seemed to be worried that there wouldn't be enough club rooms because there were so many clubs in the school.</p>
-<p>"There are plenty of club rooms. The place I can recommend is the second floor of the current 3rd grade special class. You can go there right after class, and even if the teacher is working, they can quickly chase after the club students if they cause an accident, and if there are sick students, they can go to the infirmary on the first floor."</p>
-<p>Ah, the second floor of the special class building was empty, and it seemed like she was telling us to use it. It's quite a large place, can we really have it for our club...?</p>
-<p>"What do you think, Minamoto-yang?"</p>
-<p>"I like it, I can go there during breaks because it's close to the classroom..."</p>
-<p>Konoe Akina and Minamoto Risa talked to each other for a while and nodded.</p>
-<p>"Then we'll decide to have the club room on the second floor of the special class... Where should we put the account?"</p>
-<p>"I'll use my account."</p>
-<p>Konoe Akina, the club president, raised her hand. In the first place, she would spend much more money than the club subsidy, so it wasn't a big problem who received it. It would be pocket money for Minamoto Risa or Konoe Akina.</p>
-<p>"The school doesn't give a lot of subsidies, but you'll have to get a few receipts to match the price."</p>
-<p>"Yes, I can do that much."</p>
-<p>When Konoe Akina wrote the account number on the document, Taira Kanna nodded as if everything was over.</p>
-<p>"You can go home now. Thank you for your hard work."</p>
-<p>"The chairman worked harder."</p>
-<p>All the procedures for the club were over, and we greeted each other and left the student council building. It was already before dinner time. It was still bright because it was summer, but I was starting to get hungry.</p>
-<p>"Teacher, I have something to talk about with Minamoto-yang, so we'll go separately."</p>
-<p>"Okay, sure. Don't stay out too late."</p>
-<p>They became the president and vice president of the club, so they must have a lot to talk about. I greeted them and went straight home.</p>
-<p>When I got home and was about to order delivery with Uber Eats because I was too lazy to cook, I got a call from Eve.</p>
-<p>###</p>
-<p>"Brother, your nephew has grown into a wonderful man."</p>
-<p>Taira Kanna sat in the student council president's chair and muttered to herself while looking at a photo of Taira Saburo saved on her phone.</p>
-<p>"He has a great body and his face is more handsome than yours, brother."</p>
-<p>She was talking while looking at Taira Saburo's photo, but of course there was no answer.</p>
-<p>"My nephew says he doesn't see minors as the opposite sex. I'm glad he doesn't seem to have any abnormal sexual desires like lolicon. It's a shame because I'm still a minor... Ah!"</p>
-<p>Taira Kanna, who was having a good time talking, widened her eyes as if she had realized something.</p>
-<p>"Surely my nephew wants me to become an adult quickly. Right, brother?"</p>
-<p>There was no answer to Taira Kanna's question, but Taira Kanna nodded with a bright expression as if she had heard the answer.</p>
-<p>"Taira Kanna and Taira Ryuta can't be together, but Taira Kanna and Yamashiro Ryuta can be together... Thank you, brother. For leaving a clone behind."</p>
-<p>Taira Kanna's eyes were full of madness.</p>
+<p>Since I asked if she could guess if I showed her, I slowly took off my clothes to show Yukiko my long, hard thing. Yukiko sat on the bed, watching me undress as if enjoying a male strip show. Her expression as she watched was very sexy and lewd, which was a bit funny, but it probably meant that my strip show (?) was satisfying to Yukiko.</p>
+<p>"Even though your skin is tan, you're still gorgeous, Ryuta♥"</p>
+<p>"Does it suit me?"</p>
+<p>"My preference is for pale skin, but any skin color suits Ryuta."</p>
+<p>Since I went straight to St. Francis Girls' Academy after tanning, it seemed like this was the first time Yukiko had seen this look in person, so she was examining it closely. I had sent her pictures a few times, but photos are different from the real thing, so Yukiko seemed to be looking closely.</p>
+<p>"Ah...! It seems like the color is a bit darker here too... And you can see the splits clearly on this side?"</p>
+<p>Yukiko, who had gotten off the bed at some point, was thoroughly examining my body. She seemed a bit like an ajumma, but that look was also cute, so I kept watching Yukiko admire my body.</p>
+<p>"But doesn't your skin look more muscular since it's darker?"</p>
+<p>"You'll feel that even more if you hug me tight like this?"</p>
+<p>I hugged Yukiko much tighter than usual. Since my stats were much higher than before, Yukiko didn't seem to be in any pain at all, and she snuggled even closer to me with a kyaak. Yukiko hugged me for a long time, as if she liked being held tight.</p>
+<p>"Ryuta... I missed you."</p>
+<p>"Me too, Yukiko."</p>
+<p>Since I was hugging her naked, my dick was still pressing against Yukiko's stomach. Of course, since I was naked, she would feel my dick even more vividly. Yukiko seemed to enjoy my dick pressing firmly against her stomach, and she wiggled her hips slightly before opening her mouth with a nonchalant expression.</p>
+<p>"Hmm... I still don't know. I guess I have to taste it directly with my mouth to judge?"</p>
+<p>Yukiko pushed my body away slightly and squatted down in front of me. Then, she licked from my balls to the tendon below my dick, and then my glans.</p>
+<p>It was just a lick, but it felt incredibly good. The moment Yukiko's tongue touched me, it felt like lightning struck in my head. Is this the power of a succubus's tongue? I was quite surprised that she gave me pleasure close to that of Simyeonui ttal.</p>
+<p>"I still can't tell just by licking♥"</p>
+<p>Yukiko smiled with hazy eyes, then opened her mouth wide and swallowed my dick.</p>
+<p>Ttsuep, ttsueb! Chup, chyuheup! Chup, ttsueup!</p>
+<p>Since Yukiko was the person I had been intimate with the most, she also knew my weaknesses the best. Since Yukiko, who had even equipped herself with the skills of a succubus (?), was sucking my dick, I felt an incredible pleasure that made my back arch involuntarily.</p>
+<p>"Keueut! It feels good, Yukiko-ssi...!"</p>
+<p>Yukiko looked up at me and asked with a look as if asking if it felt good, so I answered while holding back a moan. Yukiko seemed satisfied with my answer, and she made her eyes into crescent shapes and smiled. And she moved her head back and forth even more diligently. She's sucking while smiling, which makes me even hornier.</p>
+<p>As if determined to extract my semen, Yukiko grabbed my ass with both hands, which was trying to escape from the incredible pleasure, and moved her tongue and head to the end.</p>
+<p>I, who prided myself on being able to last quite a long time with my past sex experience, couldn't even last ten minutes and had no choice but to tell Yukiko that I was going to cum. That's how great the pleasure was.</p>
+<p>"I'm gonna cum, Yukiko-ssi...! I'm gonna cum!"</p>
+<p>Byueut! Beut! Byureureut!</p>
+<p>As the semen came out intensely, Yukiko's cheeks, which were holding my dick, swelled up with a huge amount of semen. Yukiko sucked out even the semen in my urethra, then rolled the semen in her mouth, tasted it thoroughly, and swallowed it. That act of tasting felt like a great sommelier tasting wine.</p>
+<p>"It's fresh semen that's only a day old?"</p>
+<p>It was true that it was only a day old. Because I had a lot of sex yesterday. How did she know that? Is it because she's a succubus? But when I looked at the content, it was a bit scary. It meant, "You had sex with another woman yesterday, didn't you?"</p>
+<p>"It's okay, Ryuta."</p>
+<p>When I made a slightly guilty expression, Yukiko gave me a benevolent smile and hugged me. And she continued to whisper in my ear.</p>
+<p>"I've come to understand that a guy like Ryuta will attract a lot of girls. And that's one of the reasons why I like Ryuta."</p>
+<p>I don't know why the fact that many women are attracted to me is a reason to like me. I decided not to dig any deeper and just think that good is good. Maybe it's because she's happy to be the woman of a man who is so popular.</p>
+<p>"Ah, we have to guess the thick, long thing from earlier, right?"</p>
+<p>"Yes, you tasted it with your mouth, so do you know what it is now?"</p>
+<p>I thought she would guess it by now, but Yukiko was still smiling playfully and took a step back, shaking her head slightly and answering innocently.</p>
+<p>"Hehet, I still don't know. I think I need to eat it with another mouth to know?"</p>
+<p>As she said that, she took off her clothes one by one, as if preparing to eat with another mouth. She took off her stockings with vertical stripes, which were quite sexy, and her tight-fitting pink dress, and her sexy lingerie that seemed to be matched, and became naked without wearing anything.</p>
+<p>The orange light of the sunset shining from the window behind Yukiko made her beautifully sculpted, near-perfect body shine even more, so my dick, which had just poured out a huge amount of semen, couldn't help but regain its strength quickly. That's how beautiful Yukiko was.</p>
+<p>"Yukiko, you're so pretty."</p>
+<p>"I'm happy... Hug me quickly."</p>
+<p>Yukiko's face turned red like a girl at my compliment that she was pretty, and she held out her hands to me. I didn't do as Yukiko expected and shook my head and answered.</p>
+<p>"Before eating with another mouth... I'm thirsty too."</p>
+<p>I approached Yukiko, made her stand with her legs apart, and brought my mouth to her pussy, which was closed in a straight line.</p>
+<p>"Heueungheut!"</p>
+<p>Yukiko made a sweet moaning sound as soon as I touched her tongue. Her attack power (?) had increased tremendously, but it seemed like her body had become more sensitive and her defense power had decreased because she hadn't done it for three weeks.</p>
+<p>I inserted my tongue into the slit that was split vertically and moved my tongue, and soon a sticky and sweet vaginal fluid like honey water gushed out like a spring. The taste was slightly different because she had become a fully awakened succubus, but as I said it was like honey water, it really seemed to have a slightly subtle sweet taste. This is quite delicious?</p>
+<p>"Heueuhang, euheut! It feels goodhang...! As expected, what Ryuta does is heueung♥ Better than doing it aloneahhat...! I like itahhang♥"</p>
+<p>I felt good because she praised my cunnilingus so much. Since it's a compliment from a succubus, it must be true that I've reached a certain level (?). In fact, I've done it with so many women so far, and it would be a problem if I couldn't reach a certain level with this experience.</p>
+<p>I continued to ravage Yukiko's pussy with my tongue. I licked around the mound of her pussy to tease her, then sucked her clitoris to give her extreme pleasure and drank the fiercely flowing vaginal fluid. Yukiko squirted several times and reached a grand climax.</p>
+<p>"Heueueung, stop...! Put it in now! Please put Ryuta's big thing in Yukiko's bottom nowoot...! Heueut!"</p>
+<p>I kept sucking until Yukiko begged. I want to put it in if she asks me to, but I wish she would ask me more lewdly....</p>
+<p>When I stopped sucking her pussy and looked at Yukiko, Yukiko seemed to have noticed my thoughts and opened her mouth with a seductive expression while lying on the bed with her legs apart.</p>
+<p>"Heueung, please put Ryuta's super thick dick in Yukiko's perverted pussyoot♥ Fill Yukiko's pussy with a lot of cum and fill Yukiko's baby room with white perverted juiceee♥"</p>
+<p>"Okay. I'll fill it up a lot."</p>
+<p>Yukiko is soon filled with joy at my answer that it's good. I brought my dick to her in the same position with her legs apart. And I moved my dick over her pussy. I could see the bottom part of my dick sparkling and being coated with vaginal fluid.</p>
+<p>"Heueu...! Heueut...! Don't be meanoo...♥ Put Ryuta's dick in quickly...!"</p>
+<p>"I'm just putting some of Yukiko's vaginal fluid on my dick. It won't go in well otherwise, will it?"</p>
+<p>"It's wet enough... Huh? Quickly♥"</p>
+<p>I couldn't bear to see Yukiko acting cute and asking me to put it in any longer, so I aligned my glans with her vaginal opening. And I opened my mouth while looking into Yukiko's eyes.</p>
+<p>"I'm going to put it in."</p>
+<p>"Yes, please put it in quickly, honey♥"</p>
+<p>I couldn't bear it any longer at Yukiko's sweet words of "honey," so I pushed my waist forward as it was. My dick reached the deepest part of her cervix as if being sucked in.</p>
+<p>"Heueuhat! It's here, it's here...! Ryuta's dickee♥ Heueut! It feels goodahang...! Haeut, heueung...!"</p>
+<p>Yukiko's vaginal walls, which had reached climax as soon as I put it in, were wriggling as if they were alive, and even her cervix was sucking my glans as if it had a will and was telling me to release semen. Of course, this was the first time I had felt such pleasure, so I almost ejaculated immediately.</p>
+<p>No way. My pride won't allow me to cum as soon as I put it in. I grabbed Yukiko's slender waist with both hands and slowly started to increase the pitch of my piston movement.</p>

@@ -5,100 +5,86 @@ weight = 723
 chapter = 723
 +++
 
-<p>"By the way, how are we going to get the combat gear on the plane?"</p>
-<p>After finishing my meal, I asked Han Yu-gyeong while watching the Vanguard agents, who had arrived at TG Tech headquarters, put various pieces of equipment into large synthetic plastic boxes.</p>
-<p>"Am-sang has a paper company that imports TG Tech weapons, so we're going to ship them as airplane cargo. While Yong-tae-ssi was making a contract with Taron, Eve and I were preparing the import and export documents."</p>
-<p>When I gave her a look that seemed to say, 'Is that even possible?', Han Yu-gyeong smiled and continued.</p>
-<p>"It might be pretty difficult in places like the United States, Korea, or Japan, but in countries like China or South America, there's nothing you can't do with money. We've already sent money to China, so there shouldn't be any major problems."</p>
-<p>"Well, yeah, money solves everything...."</p>
-<p>Maybe it's because I'm a Possessor, but in some ways, I still haven't shaken off the sensibilities of the 2020s. Bringing in weapons was nothing in the 2050s. I was making things difficult by overthinking something that could be solved with money.</p>
-<p>"When Lara-ssi goes on business trips, she usually procures things locally instead of using documents, but if it's confirmed that the enemy is the Red Revolution Front, it's better to use our familiar weapons. There's also the issue of combat power."</p>
-<p>"I didn't really think about it since I don't have any equipment."</p>
-<p>The only equipment I had was the black bracelet that could turn me into Black Knight. So, I didn't really think much about the equipment used by other combatants. I need to be a little more meticulous in the future. Of course, even if I don't think about it, my secretary, Mimata Chieri, will do a good job, but there might be situations where I can't get Mimata Chieri's help, so I need to think more broadly.</p>
-<p>"Preparation is complete."</p>
-<p>While we were talking about equipment, I Yeon-ju approached and reported to Han Yu-gyeong.</p>
-<p>I Yeon-ju struggled quite a bit in the previous battle against Jeon Yong-cheol, the boss of the Yongcheol gang, but I heard that TG Tech's energy weapons have greatly increased her combat power, so I had high expectations for this battle. According to I Yeon-ju, she's now at a level where she wouldn't be pushed back even if she fought Jeon Yong-cheol one-on-one, and it seemed like I would be able to confirm that in this battle.</p>
-<p>"The vehicle is ready, so let's leave right away."</p>
-<p>"Yes."</p>
-<p>After hearing Han Yu-gyeong's response, I Yeon-ju gestured to the Vanguard combatants. The Vanguard combatants quickly picked up the synthetic plastic boxes containing the equipment and went down to the underground parking lot where the transport vehicle was parked.</p>
-<p>I, Han Yu-gyeong, and I Yeon-ju also went down to the underground and got into the transport vehicle carrying the troops heading to China.</p>
-<p>"Dickson, thanks for your hard work today too."</p>
-<p>"Of course. It's about rescuing a comrade."</p>
-<p>The driver was Dickson. It seemed like Dickson was behind the wheel because we needed someone to drive when Han Yu-gyeong returned to TG Tech after sending us off.</p>
-<p>Dickson is also affiliated with Vanguard, so he seemed to want the Vanguard agents to return safely.</p>
-<p>"Be careful, Yong-tae-ya."</p>
-<p>"Don't worry. Have I ever been hurt?"</p>
-<p>When we arrived at the airport, Han Yu-gyeong hugged me with a worried expression and said that, so I reassured her.</p>
-<p>In fact, I had been thinking about catching the leader of the Red Revolution Front and receiving the bounty, so now that things had turned out this way, I was planning to take care of the leader of the Red Revolution Front while rescuing Lara Sinclair.</p>
-<p>I've also become stronger now, so a mere terrorist group couldn't stop me. I left the worried Han Yu-gyeong behind and boarded the plane with I Yeon-ju and her troops.</p>
-<p>###</p>
-<p>One day before.</p>
-<p>Lara Sinclair's group, who had opened the door and entered the ruins of the Jeonrang Research Institute, flinched slightly at the explosion heard from afar.</p>
-<p>It seemed that the vehicle of Jang Wei, the guide who had taken them to the front of the research institute ruins, had been hit by something and exploded. They knew they would be attacked, but they were a little surprised that there would be such a loud explosion.</p>
-<p>"It seems like someone is definitely in this area."</p>
-<p>The head of the escort team said quietly, shouldering his rifle and surveying the surroundings.</p>
-<p>"S-shouldn't we not keep standing at the entrance?"</p>
-<p>One of the two researchers who came with Lara Sinclair asked, stuttering. He seemed quite nervous, thinking that an unexpected battle was waiting for them.</p>
-<p>Of course, they weren't ordinary researchers, but researchers from a defense company, so they knew the basics of how to use firearms, and both of them were carrying pistols to protect themselves.</p>
-<p>"If they attacked us here, we could all run back through the door we just came in, so they won't think about attacking here. They'll try to lure us in further."</p>
-<p>"Positive, so we need to eliminate as many threats as possible before we go in."</p>
-<p>Lara Sinclair answered and suddenly aimed her anti-materiel sniper rifle at one spot and fired immediately.</p>
-<p>Taang!</p>
-<p>With a tremendous noise, the head of the sniper who was aiming at Lara Sinclair's group from afar was blown to pieces.</p>
-<p>"Thermal imaging confirms that there are no people in that building. Run."</p>
-<p>An ordinary person wouldn't even dare to shoot while standing because of the tremendous recoil, but Lara Sinclair was an android.</p>
-<p>With a strong mithril alloy skeleton and artificial muscle fibers with tremendous density, she was able to withstand the recoil of the anti-materiel sniper rifle and calmly check the infiltration route.</p>
-<p>Everyone started running at Lara Sinclair's words. Perhaps because they were sure that they had eliminated the sniper, bullets started flying from the surrounding buildings.</p>
-<p>Lara Sinclair responded by firing back with her anti-materiel sniper rifle, blowing up the heads and torsos of the enemies firing from inside the buildings.</p>
-<p>Click...!</p>
-<p>Lara Sinclair's group, who had hurriedly opened the door and entered, were lucky enough that no one had died. One of the escort troops had been grazed by a bullet in the arm and injured, but it wasn't a serious injury.</p>
-<p>As Lara Sinclair said, the building was empty. Judging from the fact that it was next to the guard post, it seemed to be a place where the guards' weapons were stored, but there were no weapons there now. There were only weapon racks and empty cartridge cases rolling around.</p>
-<p>"This building is only safe for less than a minute. I'll explain quickly."</p>
-<p>Lara Sinclair said, unfolding a map of the Jeonrang Research Institute on the floor. Lara Sinclair, who had determined the infiltration route with the android's tremendous computing power, pointed to one spot on the map.</p>
-<p>"This is the entrance building of the research institute. And this is the building we're in. The distance isn't that far in a straight line, but there are several obstacles. I'll lead the way on the optimal route, so I hope you'll follow quickly."</p>
-<p>"I'll take responsibility for the rear."</p>
-<p>The deputy leader of the escort team said at Lara Sinclair's words. It was the most dangerous mission after Lara Sinclair, who was clearing the way, but he volunteered without hesitation. The team leader had to protect Lara Sinclair, who was the most important person, so he thought that the only person who could protect the rear was the deputy leader.</p>
-<p>"Okay. Let's go right away."</p>
-<p>Lara Sinclair nodded once, took the map, opened the door of the building again, and immediately fired her pistol with the hand that wasn't holding the anti-materiel sniper rifle.</p>
-<p>Tang! Tang! Tang!</p>
-<p>Lara Sinclair, who had instantly put holes in the foreheads of three enemies who were trying to enter the building, turned her body and entered between the buildings as she had said in advance, as if nothing had happened.</p>
-<p>Tang!</p>
-<p>Lara Sinclair fired again at one enemy who was coming out of the guard post and knocked him down, moving without any change in speed, as if she didn't even feel that she had fired. It was a natural shot as if she had planned it in advance.</p>
-<p>Damn it (他妈的: Shibal)!</p>
-<p>"Chūsī (去死: Go die)!"</p>
-<p>"Go die!"</p>
-<p>The enemies inside the research institute weren't just taking it either. Almost dozens of unidentified soldiers came out in droves and sprayed bullets with curses.</p>
-<p>Lara Sinclair calmly pointed to the cover, and the group ran along the path where the bullets were least exposed and hid behind the cover.</p>
-<p>"While I draw their attention, please snipe the person holding that RPG-7."</p>
-<p>Lara Sinclair said to the agent with the sniper rifle among the escort agents hiding behind the cover and ran first to draw their attention.</p>
-<p>Tang! Tang! Tang! Tang!</p>
-<p>Lara Sinclair skillfully ran and drew the enemies' attention, but she couldn't help but get hit by bullets. However, the enemies' bullets couldn't penetrate Lara Sinclair's artificial muscle fibers.</p>
-<p>While Lara Sinclair was stalling for time, the escort agents got up from behind the cover and sniped the enemy holding the RPG-7 that Lara Sinclair had requested, along with covering fire.</p>
-<p>"I'll provide cover, so come this way."</p>
-<p>When Lara Sinclair's shooting started, everyone started running. But no matter how great Lara Sinclair's combat power was, she couldn't stop all the enemies in a short amount of time. In the end, someone was hit by a stray bullet while running.</p>
-<p>"Don't worry about me, just go! Uwaaaa!"</p>
-<p>Tutatatata!</p>
-<p>The person who was hit by the bullet was one of the escort agents. The fallen escort agent told them not to worry about him and started firing his gun wildly with a scream.</p>
-<p>"Don't let his sacrifice be in vain, run."</p>
-<p>It sounded like a cold-hearted thing to say, but it was logical, so everyone ran following Lara Sinclair's words. As a result of running so hard, they were able to arrive at the entrance of the laboratory without any sacrifices.</p>
-<p>"It will take about 5 seconds to hack. Please shoot at the approaching enemies."</p>
-<p>Fortunately, the security device of the laboratory was digital rather than an analog key type, so Lara Sinclair was able to connect and hack it.</p>
-<p>5 seconds was a short time, but it was also a long time. It was enough time for bullets to fly and kill one or two people. The escort agents shot hard, but one person was shot and fell. At the same time as one person fell, scattering blood, the door opened.</p>
-<p>"Go in quickly."</p>
-<p>One person had fallen, but everyone quickly entered the laboratory building without looking back, perhaps because of their survival instincts. When the escort unit leader, who had decided to take responsibility for the rear, entered last, Lara Sinclair closed the door and manipulated the digital panel on the door.</p>
-<p>Tung! Tung! Tung!</p>
-<p>As befitting a laboratory that researches combat equipment, bullets hit the walls and doors, but they only made a heavy sound and didn't penetrate. Lara Sinclair completed the manipulation of the digital panel on the laboratory door and looked around, opening her mouth.</p>
-<p>"I've changed the password, so it will take them some time to follow. Let's go."</p>
-<p>Lara Sinclair still had her usual emotionless expression, but she was feeling a considerable threat.</p>
-<p>She had tried to make an emergency call via satellite communication, but the satellite communication was down, and although she didn't know it at the entrance, she could infer that a considerable number of troops were hiding in this abandoned research institute by entering the research institute site and grasping the surrounding traces.</p>
-<p>Moreover, she had already lost two troops just by entering the research institute, so it was not a good situation.</p>
-<p>'I should prioritize survival over obtaining data.'</p>
-<p>Because the situation had become unfavorable, Lara Sinclair changed her top priority from data collection to survival.</p>
-<p>"If we can avoid combat and just move... we can last for a few days. TG Tech's rescue team will come, so let's try to survive."</p>
-<p>Lara Sinclair's group, who had been thinking that they might die, were in a small despair.</p>
-<p>But everyone's eyes started to light up at Lara Sinclair's words, which gave them hope that they could survive.</p>
-<p>______</p>
-<p>Lara Sinclair!</p>
-<p>The old model for making Lara Sinclair was unstable, so I made a new model~!!</p>
-<p>For some reason, when I practice with the new model, I want to dress her in a swimsuit hehe.</p>
-<p>IF Story: Lara Sinclair infiltrates a casino to help TG Tech, which is in financial trouble hehehe.</p>
+<p>After a brief commotion, Lara Sinclair began to tour the lab with Jinmija Yeosa, who was visiting for the first time today. It had been a few months since I'd seen it too, so I walked around with them, getting a good grasp of how the research at TG Tech was progressing.</p>
+<p>With the recent release of the energy gun and the influx of usage data, the lab had become incredibly busy with improvements. On top of that, Linling's data from years of solo research was added, making everyone even busier.</p>
+<p>,Releasing an improved version right after the initial launch could raise concerns about reliability, so you can take your time."</p>
+<p>,Releasing improved versions is something Han Yu-gyeong or you can do. We're just doing what we can right now."</p>
+<p>I felt bad for the researchers with dark circles under their eyes, but Lara Sinclair shook her head as if disagreeing.</p>
+<p>Well, the release schedule isn't determined by the lab anyway, so they're just doing their jobs regardless.</p>
+<p>,Are you making proper progress on the power suit research, too?"</p>
+<p>,Positive. The busy ones you're seeing are the gun part researchers. The power suit part is doing research over there."</p>
+<p>Lara Sinclair pointed to another office in response to my question. Even if I didn't see it, the power suit side must be quite busy too.</p>
+<p>We had planned to release the energy gun and power suit together, but due to the cyber zombie situation, TG Tech's energy gun unexpectedly became a hot topic, so we released it first. As a result, all of TG Tech's capabilities were focused on the energy gun for a while, pushing back the power suit's development schedule more than we anticipated.</p>
+<p>Moreover, we decided to replace all the armor with the mithril alloy we obtained after taking down Jeon Yong-cheol, which added even more time.</p>
+<p>,Do you need a bit more mithril supply?"</p>
+<p>,Positive, a 15 percent increase in the first quarter of 2054...."</p>
+<p>Jinmija Yeosa wasn't affiliated with TG Tech, so she didn't ask many questions. As the CEO of Hatake Investment Company, she simply asked Lara Sinclair what the company could do to help, such as how much mithril needed to be supplied and whether there were any materials needed from Japan.</p>
+<p>Han Yu-gyeong said it would be fine, but Lara Sinclair, who was handling the practical work, seemed to think a bit more mithril was needed.</p>
+<p>,Jin Yong-tae Master-nim. I've changed my clothes."</p>
+<p>Linling, who had disappeared with Han Yu-gyeong for a moment, returned. Unlike before, when she was wearing a white swimsuit, this time she was wearing a white cyber suit to be released with the power suit.</p>
+<p>But honestly, isn't this basically the same as a swimsuit? Except for the fact that her arms and legs aren't exposed, it's still clinging tightly to her body.</p>
+<p>,Linling, it suits you well."</p>
+<p>,Really? I'm receiving the cyber suit's data and extracting data by wearing it in simulations."</p>
+<p>Hmm.... It seemed like she was doing more than just changing the hologram skin; she was conducting some kind of experiment. It seemed like she could obtain some meaningful data with that method, even if it wasn't actual combat training. Was some kind of physics engine applied?</p>
+<p>Perhaps it was because Linling had been left alone to experiment with simulations, and her core had a built-in physics engine that applied the laws of physics to reality. She seemed familiar with it, as if the Jeonlang had done a lot of experiments like this.</p>
+<p>,Linling, I'm going to Japan tomorrow. I won't see you for a while."</p>
+<p>,Jin Yong-tae Master-nim.... Are you abandoning me like my mother?"</p>
+<p>Suddenly, Linling looked at me with empty eyes. Abandoning her.... Why was she saying such strange things? Seeing her like that reminded me of what Lara Sinclair had said before.</p>
+<p>-Be careful, Ryuta. An AI who has lost its master might become obsessed with its new one.</p>
+<p>,What are you talking about? I told you before, you can still contact me, so don't think strange things."</p>
+<p>I comforted Linling and stroked her head. Of course, I couldn't actually touch her since she was a hologram, but I had my ways. If I stroked her with my abyss-infused hand, I could touch the AI in its hologram state. Just like when I shook hands with Eve before.</p>
+<p>,Ah...! Jin Yong-tae Master-nim, more.... Stroke me more."</p>
+<p>,Okay, good girl. Don't think about being abandoned, and don't say things like that either, okay?"</p>
+<p>,Yeehee...."</p>
+<p>Linling was practically melting from my stroking. She's usually expressionless, but she's so cute like this.</p>
+<p>After stroking her for a while, Linling's unfocused pupils returned to normal, as if she was satisfied. Han Yu-gyeong, who had been quietly watching, approached me and opened her mouth.</p>
+<p>,Stroke me too."</p>
+<p>,Are you jealous of Linling?"</p>
+<p>,It's not that.... It just looks like she's feeling good...."</p>
+<p>Han Yu-gyeong answered as if she was stammering at my question. Linling's reaction was definitely good. I chuckled and stroked Han Yu-gyeong's head. Han Yu-gyeong also enjoyed my stroking for a while, but looked at me as if she was disappointed.</p>
+<p>,I'm sad that you're leaving tomorrow...."</p>
+<p>,We can see each other next time.... Don't be too sad. The mission will be over soon, so I'll come often."</p>
+<p>,...Okay."</p>
+<p>It wasn't tomorrow yet, but she seemed sad that I was leaving. I hugged Han Yu-gyeong and patted her back to reassure her.</p>
+<p>,Jin Yong-tae-ssi."</p>
+<p>As I was hugging and comforting Han Yu-gyeong, someone spoke to me. I turned my head and saw I Yeon-ju, the vice president of Vanguard.</p>
+<p>,Ah, I Yeon-ju-ssi."</p>
+<p>,Yeon-ju-ssi, you're here?"</p>
+<p>Han Yu-gyeong seemed a little embarrassed that she was being hugged by me, so she gently pushed me away and greeted I Yeon-ju as if nothing had happened.</p>
+<p>,Yes, President-nim. I heard that Jin Yong-tae-ssi is going to Japan tomorrow, so I came because I had something to say."</p>
+<p>To me? I didn't have many opportunities to meet I Yeon-ju, and even when we did, it was only a few times in battle, so we weren't that close. I wondered why she had come to find me.</p>
+<p>,Yes, what is it?"</p>
+<p>,I came to thank you. You gave money to the agents who participated in this mission and to the families of the dead agents."</p>
+<p>Was she thanking me for that? I had given 100,000 Dark Web points to everyone who participated this time, so they would have received about 100 million won per person. Of course, I gave 3 million points to I Yeon-ju, who directly helped capture Gao Xiang.</p>
+<p>It was a small amount of money compared to the points I received, but they must have felt grateful for the unexpected money. They seemed especially grateful that I had taken care of the families of the dead agents as well.</p>
+<p>,Everyone worked hard together. It was just an infiltration and escort mission, but it's a shame that there were deaths."</p>
+<p>We were entering an era where power was paramount, so maintaining the loyalty of PMC and security companies was crucial. When situations like this occurred, death benefits and success bonuses were important.</p>
+<p>,I'm grateful too, but all the agents who received the bonus asked me to convey their gratitude."</p>
+<p>,Well.... I just did what I had to do."</p>
+<p>It felt strange to receive such gratitude. I told I Yeon-ju, who was bowing in gratitude, that it was just something I had to do.</p>
+<p>,The company also gave success bonuses and condolence money, but not as much as you, Yong-tae."</p>
+<p>Han Yu-gyeong spoke with a slightly guilty expression, but it was unavoidable given the industry situation. Of course, it was necessary to increase the death benefits a little to increase loyalty, but it was still okay for now. There weren't many opportunities to die in security work these days.</p>
+<p>,Well, it can't be helped. These security companies and PMCs often have people's lives at risk, so they can't allocate a lot of money."</p>
+<p>In Korea, the security industry was the main focus, so there weren't many opportunities to die, and the compensation was quite high. However, in Japan, the PMC situation was quite severe. They were exporting military force to the world, so there were many opportunities to die, and Japanese PMCs were famous for having meager death benefits. The PMC industry's attitude was "take it or leave it," and they had the mindset that if you didn't like the compensation, you could leave the company at any time, since there were plenty of young people who couldn't find jobs.</p>
+<p>That's why PMC agents often took out personal insurance at a considerable cost. There was a reason why insurance companies were booming in Japan.</p>
+<p>Thinking about it that way, it might be a good idea to run an insurance company since a PMC system will soon be established in Korea as well. Then.... There's no need to start a new company; I can just use the opportunity that Han Yu-gyeong has.</p>
+<p>,Yu-gyeong-a."</p>
+<p>,Huh?"</p>
+<p>,You know the Shinkang Group affiliate I mentioned before."</p>
+<p>,Yeah. The one I'm supposed to receive?"</p>
+<p>,Yeah, if you can choose, choose an insurance company."</p>
+<p>I gave Han Yu-gyeong advice, thinking about the future. She looked like she wanted an explanation, so I told her about the relationship between PMCs and insurance companies that I had just thought of.</p>
+<p>,Ah.... I see. There could be such a causal relationship. But do you really think PMCs will be allowed in our country?"</p>
+<p>,The war is over and the unification is complete, so there's no need to maintain a large military force, and several defense companies, including Shinkang, will demand PMCs from the political world. We're also a defense company, so we need to lend a hand in that direction."</p>
+<p>If many PMCs were created, the market for defense companies would naturally expand, so TG Tech had to support the implementation of the PMC business.</p>
+<p>Personally, I didn't think it was good for society at all for private companies to have military force, but if I couldn't stop this overwhelming historical trend, I thought it wouldn't be a bad idea to go with the flow.</p>
+<p>,The lab visit was quite enjoyable. Shall we all go out for dinner then?"</p>
+<p>Jinmija Yeosa, who had toured the lab, approached with a big smile. We had come to the lab after lunch, but as we were talking, it was already dinner time.</p>
+<p>,Mom, this is I Yeon-ju-ssi. She's the head of the Korean security company."</p>
+<p>,Oh, is that so? I Yeon-ju-ssi, let's go out for dinner together."</p>
+<p>I introduced I Yeon-ju to Jinmija Yeosa. They wouldn't have a chance to meet separately, but I wanted them to at least get to know each other's faces. They could help each other when Vanguard was dispatched to Japan or when Mom came to Korea.</p>
+<p>And so, we headed to the lab's cafeteria with quite a few people. We had been told that they had prepared delicious food in advance, knowing that we were coming, so we could eat in the lab's cafeteria without having to find a separate restaurant.</p>
+<p>The one who liked having dinner at the lab the most was Linling. If we went to another restaurant, Linling, being a hologram, wouldn't be able to follow, but in the lab's cafeteria, she could watch me eat.</p>
+<p>__________</p>
+<p>Linling Cyber Suit</p>
+<p>This is Linling simulating various versions of the cyber suit~!</p>

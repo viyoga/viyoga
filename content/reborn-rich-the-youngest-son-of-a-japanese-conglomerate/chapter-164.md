@@ -5,75 +5,72 @@ weight = 164
 chapter = 164
 +++
 
-<p>There are illustrations of about a swimsuit level. Please check your surroundings when viewing outside.</p>
-<p>The reason I asked Nagumo Sian if her Uncle or Aunt had visited was because this Black Moon Party incident seemed to involve one of the Successors using the Black Moon Party for some goal of their own.</p>
-<p>It could be an incident caused by Minamoto, but these people called Successors are the kind of people who would even kill their younger sibling if it benefited them, so they could never be excluded from this incident.</p>
-<p>Anyway, Taira Food is neutral in the succession structure, so they probably think it doesn't matter if they suffer harm. Or, they might intentionally create such a Crisis Situation, then provide help with troop support, etc., and recruit them into their own faction.</p>
-<p>Since my information gathering ability is still poor, I couldn't know the exact facts. I could only make a few predictions. While such predictions are important, it's probably best to first do my best with the Work at hand.</p>
-<p>After finishing the Call, Arisu and Mimata Chieri were talking about something between themselves. Hmm, were they bored while I was on the phone? Still, it was Fortunate that they seemed to have become closer than before.</p>
-<p>"I spoke well to Nagumo Sian-nim and secured the Seiryu Military Company Work as well."</p>
-<p>"Just recently, I heard that all the personnel who went out on a mission had returned, and I received Contact that they would be introduced to my junior-nim today or tomorrow."</p>
-<p>"Ah, today...."</p>
-<p>I looked at Arisu and slightly fumbled my Words. She would already be a little upset because of Mimata Chieri, and if I suddenly made an Evening appointment, she would get completely sulky. Because Arisu would want to spend time alone with me.</p>
-<p>"You said you invested in another company, right? I want to see those company people too."</p>
-<p>"Really?"</p>
-<p>It wasn't like they had a big fight or anything, but considering what happened with Mimata Chieri, I thought she wouldn't particularly like meeting the Seiryu Military Company people. Especially since Sawayanagi Azuma, who shoots hearts at me whenever she sees me, is there, it was a bit of a Problem.</p>
-<p>"Then, Sunbae-nim, let's have Dinner with the Seiryu Military Company people. Please make Contact."</p>
-<p>"Understood, junior-nim!"</p>
-<p>The Seiryu Military Company people had made their nest in a 7-story building near the East Weapon Headquarters. Of course, the building was mine, and while the Seiryu Military people were essentially renting, I wasn't receiving Money. I planned to start receiving it once they started earning Money from Work. This request from Taira Food would be the first step.</p>
-<p>I approached Arisu and asked what she had been talking about with Mimata Chieri earlier.</p>
-<p>"By the way, while I was on the phone, what were you talking about with Sunbae-nim?"</p>
-<p>"Ah, with Mimata-ssi? We just talked about Ryuta. Hehe...."</p>
-<p>Although something felt suspicious, I just nodded my Head. Mimata Chieri, who had finished her Call, soon approached Arisu and me, saying that we would have a Company Dinner together with Alcohol, and suggested we first go to the Seiryu Military Company building.</p>
-<p>When I asked why we had to go, she said we needed to greet the four Characters who had returned from their mission, so we ended up going to the company building before Dinner.</p>
-<p>The Seiryu Military Company building itself was close to the East Weapon Headquarters building, so we decided to walk. In less than 3 minutes, we arrived at the building marked "Seiryu Military Company" and headed to the CEO's Office on the F floor. Since the Seiryu Military Company itself didn't have many personnel, the top 3 floors were temporarily occupied by Seiryu Military Company personnel.</p>
-<p>Since they had only recently arrived here, they were staying in the company building, but they said they would each find their own Home and move out later. Since 10 people had equally divided the Money from the company sale, they wouldn't have to worry about Money for finding a Home. Because they were people who had never had much Money, I was worried they might splurge and spend all the large sum they received. I should assign someone to manage their finances later.</p>
-<p>Hmm, anyway, if they all go out and live separately and get kidnapped by Black Tech through individual attacks again, shouldn't I prepare accommodation for them? There will be many expenses. No, that's not right. Since I won't give them free rent, I can think of it as recovering the Money.</p>
-<p>"Investor-nim!! It's been a long time! And thank you so, so much for the new building!! To use such a building after using a dilapidated office until now, it's so good!"</p>
-<p>Sawayanagi Azuma saw me and welcomed me immensely, like a dog seeing its Master after a month. Even though it had only been about a week since we last met.</p>
-<p>But just like with Mimata Chieri, seeing Arisu clinging to my Side, they started looking at each other and laughing again.</p>
-<p>However, Sawayanagi Azuma, who had been experimented on as a test subject in her childhood, hadn't attended school, passed high school by taking Japan's high school equivalency exam (高等学校卒業程度認定試験), and then mostly lived on the battlefield, so she didn't have much social or personal experience.</p>
-<p>So, unlike the situation with Mimata Chieri, although her mouth was smiling, she was stammering a lot and showing clear signs of embarrassment.</p>
-<p>"Th-th-there, wh-what k-kind of R-Relationship do you have with o-our In-investor-nim?"</p>
-<p>"Huhu, we're close."</p>
-<p>Perhaps because Arisu had just done it once (?), she seemed much more relaxed. Sawayanagi Azuma quickly let out a Sigh and seemed to retreat one step for now.</p>
-<p>"I'll call the four who have completed their mission now, Investor-nim."</p>
-<p>"I'm curious about everyone."</p>
-<p>"Everyone really wants to see Investor-nim."</p>
-<p>Well, since I was also part of the Sawayanagi Azuma rescue Operation and saved them from Black Tech's demonic beast, it's natural that they would want to see me. Moreover, during the Sawayanagi Azuma rescue Operation, as I went wild after taking Medicine/Drug, it was naturally revealed that I had superpowers, so the Seiryu Military Company people even felt a slight Sense of Kinship with me.</p>
-<p>Whether they came as soon as Sawayanagi Azuma called or not, four people entered the CEO's Office in less than a minute.</p>
-<p>"Please introduce yourselves and greet me in Turn."</p>
-<p>At Sawayanagi Azuma's Words, a simple-looking man in his 20s with short, sport-style Hair and Brown Skin stepped forward. Although he didn't appear to have large Muscles, looking at his exposed Forearms and such, one could tell he had trained to a considerable Level.</p>
-<p>"I am Katayama Junichi (方山 純壱). Investor-nim!"</p>
-<p>Katayama Junichi, although he had no superpowers, had excellent basic Combat ability and outstanding dagger swordsmanship, so I remembered him being quite useful in Melee Combat. I shook Hands with Katayama Junichi and greeted him. His Gaze was indeed very goodwill.</p>
-<p>The second person to step forward was a woman, slightly taller than Sawayanagi Seari, a cute woman with a small Physique for an Adult. Along with Sawayanagi Seari, she was like the mascot Existence of Seiryu Military Company.</p>
-<p>I am Sawayanagi Mikiyo! Please take care of me!</p>
-<p>Sawayanagi Mikiyo, unlike her cute Face, had a bold Personality and was in charge of sniping within the team. Although she also had no superpowers, her Eyes were very good, allowing her to perform observation and sniping simultaneously, making her a sniper with considerably high Ability. Close-range and mid-range combat could also be done with the submachine gun she carried, so it could be said she possessed all-weather capabilities. This time too, I shook Hands and moved on.</p>
-<p>Next was a slightly slow, chubby man with shaggy Hair. He came out slowly even when it was his Turn, then greeted me.</p>
-<p>"Uh... I'm Sawayanagi Shigeru. Thank you for saving Azuma."</p>
-<p>Sawayanagi Shigeru was a unique Ability User, a so-called Speedster Ability User. He could move at incredible speed for a short period, but his Energy source was Fat, so he needed a large meal intake. The Speedster Ability was an Ability that could be used incredibly deceptively depending on how it was used, so it was a Character mainly favored by Masters.</p>
-<p>The last person to come out was a Caucasian Beautiful Woman with purple Hair, and she had a remarkably voluptuous Figure. Hmm, quite an amazing Figure. Not Yukiko-level, though.</p>
-<p>"Hello! Nice to meet you~! I'm Iyana Holden! Please take good care of me, handsome Honey!!"</p>
-<p>After greeting, she made jjok sounds on my cheek and forehead, giving me many kisses. When Arisu exclaimed, "What are you doing~!", only then did she stop. When a Pretty person showered me with kisses, it felt good.</p>
-<p>Iyana Holden was the last remaining Superhuman of Seiryutai, a Telepathy Ability User. She played the Role of an operator with her Telepathy Ability, which was quite an ambiguous Ability since there were also walkie-talkies, but because it was transmitted directly into the Mind, there was no risk of being detected by the Enemy due to sound, and information could be easily transmitted even in areas where electronic equipment couldn't be carried.</p>
-<p>In the game, despite her ambiguous Performance, she was quite popular precisely because of her unconventional Attire during combat. Because she fought wearing Clothes almost like bikini armor, she received the full support of male users.</p>
-<p>Also, when she became a high-Level telepathist, she could create a mental shield, so her defense wasn't that weak. But now it wasn't a combat Situation, but casual clothes. What a shame.</p>
-<p>"Oh....! Yankee Go Home!!"</p>
-<p>"You, you're a Yankee too!"</p>
-<p>As Iyana Holden, who had been staring at Arisu, shouted, Arisu got angry and yelled. Their Personalities seem to have a slight Compatibility/Affinity.... Although I only saw it for a moment, if Iyana Holden was Scissors, Arisu seemed to be the paper in a rock-paper-scissors relationship. Seeing this, Arisu seemed weak against people who do things at their own pace.</p>
-<p>As soon as the introductions of the four were finished, the rest of the Seiryutai rushed in as if they had been waiting, including Vice President Sawayanagi Sinya, the Steel-transformation Ability User Sawayanagi Tobe, the Goth Loli Sisters Kiyona Hori and Mari, and the cutest Sawayanagi Seari.</p>
-<p>"Investor-nim, please show your Face more often!"</p>
-<p>"We'll forget your Face!"</p>
-<p>"Hmm, since everyone wants to see you, please come often...."</p>
-<p>"Come often, Older Brother!"</p>
-<p>"Hmph, hmph! It's not because I wanted to see you!!"</p>
-<p>As expected, perhaps because they were comrades who had fought together, they welcomed me immensely. Since only I was being welcomed so much, Arisu, who was meeting them for the first time, seemed a little left out, so I introduced Arisu to everyone.</p>
-<p>"Everyone, say hello. This is my Cousin, Arisu Fitzgerald."</p>
-<p>Eight out of the ten Seiryutai members, perhaps because they were seeing her for the first time, simply greeted her with "Hello" and "Nice to meet you," but only Kiyona Mari and the Hori Sisters stared at Arisu as if they had discovered an incredible Treasure. And they shouted with a sound almost like a Scream.</p>
-<p>"Kyaaak!!! It's Arisu-ssi, the top Star of Milan this time!!"</p>
-<p>"What do I do! What do I do!"</p>
-<p>Ah, it seemed the two knew Arisu's True Identity (?). Kiyona Mari and the Hori Sisters eventually pushed me aside, and, calling her "eonni, eonni," were talking like extreme fans, asking for autographs and if they could take Photos.</p>
-<p>Arisu.... I didn't know you were a popular Star.</p>
-<p>Iyana Holden.</p>
-<p>Information: Telepathy Ability Users reduce the Area of their Clothes as much as possible because sensitive Sensation is important. I don't know why, but telepathists say that touch is also an important Condition for Telepathy.</p>
-<p>My Hands are always a shame ㅠㅠ</p>
+<p>This episode contains a suggestive illustration. Please be mindful of your surroundings.</p>
+<p>,I'm sorry~! Today is the last day I'm busy, so let's have fun starting tomorrow, okay?",</p>
+<p>Han Yu-gyeong apologized to me once again and left the grilled eel restaurant. Hmm.... Something feels like it's about to come to mind, but I can't quite remember. Because it was difficult to acquire Vanguard in the game, I had only used it once or so until now, so I didn't remember the Vanguard-related events very well.</p>
+<p>Still, judging from how it feels like I almost remember, it seems like it was an event I experienced too. If I didn't remember it at all, it would have been an event I couldn't have experienced. Of course, the problem was that it was frustrating because I almost remembered it....</p>
+<p>,Yong-tae-ya, can I have a drink?",</p>
+<p>,Yes, please drink as much as you like.",</p>
+<p>Perhaps because it was a private room, there were no prying eyes, so Ha Ju-yoon was ordering drinks to her heart's content. As soon as she ordered, soju arrived, and Ha Ju-yoon and I shared a drink.</p>
+<p>,Heueung...♪",</p>
+<p>,Do you like alcohol?",</p>
+<p>At my question, Ha Ju-yoon shakes her head. Then, she looks at me and gives me a captivating smile.</p>
+<p>,No, it's just.... Because Yong-tae is in front of me, I suddenly feel like drinking?",</p>
+<p>,Am I some kind of side dish?",</p>
+<p>,Hohoho! You're right, you are a side dish~! Just looking at you makes the alcohol go down so smoothly....",</p>
+<p>I don't know if she usually drinks or not, but it didn't seem like she was very strong with alcohol. I didn't really feel like drinking, so I only had one glass at first, and Ha Ju-yoon had about three glasses, but her face was already red. Wouldn't it be a problem if I took Ha Ju-yoon home while she was staggering and got caught by paparazzi?</p>
+<p>,If you think you're going to get drunk, stop drinking.",</p>
+<p>,Nooo.... I'm, not drunk.",</p>
+<p>Hmm, she's drunk. In times like these, it's better to suggest an alternative rather than just telling her not to drink. If I just told her not to drink, drunks would insist that they weren't drunk and would stubbornly try to drink more.</p>
+<p>,Then how about we go home and drink just the two of us? There are a lot of people here and it's uncomfortable.",</p>
+<p>,Eueung, should we?",</p>
+<p>To get this drunk after just three glasses of alcohol.... This ajumma, shouldn't drink outside. I picked up the remaining eel and got up from my seat. Then I paid and went outside. Ha Ju-yoon took out a mask from her bag and put it on. Just a mask should be enough to keep people from recognizing her.</p>
+<p>I followed Ha Ju-yoon's lead and went to the house where Ha Ju-yoon was staying. But what if Han Seong-jae, Han Yu-gyeong's dad, is at home? Hmm.... What should I say if I meet him? It's going to be super awkward.</p>
+<p>,By the way.... Isn't your husband at home?",</p>
+<p>,Husbaaand? I don't know, I live alone.... That bastard has been living with another woman for a long time.",</p>
+<p>Ah, I see. They didn't have a good relationship in the game either. If Ha Ju-yoon lives alone, there won't be an awkward encounter. That's a relief.</p>
+<p>,Let's buy the alcohol here and go. I'll pick it out, so sit here and wait?",</p>
+<p>Ha Ju-yoon left me sitting at the plastic makeshift table outside the convenience store and went inside. Did I pay for the eel restaurant, so she's trying to buy this? I sent a KakaoTalk message to Han Yu-gyeong while I was waiting.</p>
+<p>Jin Yong-tae: By the way, which company did you sign a contract with now?</p>
+<p>Han Yu-gyeong: It's a place called Base Technology Company. They're saying that we violated the contract and a thief broke in. But the location where the stolen goods were was an area that our people don't handle, you know? But they're stubbornly presenting us with the contract and telling us to compensate them. Isn't it ridiculous?</p>
+<p>Ah! It was the Base Technology event! I should have asked who the contracting party was earlier. As soon as I heard the name, I remembered it right away.</p>
+<p>This event consists of several choices. If you obediently give Base Technology the money they demand, your reputation will drop, and even if you fight to the end in court, your reputation will drop. This is because the BS Group is behind Base Technology, and it was a conditional event that appeared if the player had a security company of a certain size or larger and didn't have a good relationship with Park Sang-beom, one of the children of the BS Group.</p>
+<p>Therefore, no matter what choice you make in the negotiation, you can't get a good result. The best option was to raid Base Technology with the Vanguard agents, obtain confidential data, and use it to blackmail Base Technology to gain profit.</p>
+<p>If the protagonist had rhetoric skills or high intelligence and judgment stats, they could probabilistically make Base Technology a puppet, so it was a pretty good event.</p>
+<p>If you used the puppeted Base Technology, you could obtain important information about the BS Group, and later you could even destroy the BS Group, so making Mace Technology a puppet was the best result. Han Yu-gyeong didn't have rhetoric skills, but she had high intelligence and judgment stats, so she would be able to create the best result.</p>
+<p>Jin Yong-tae: First of all, keep dragging it out and never listen to Base Technology's side of the story.</p>
+<p>Han Yu-gyeong: Okay. What are you thinking?</p>
+<p>Of course, I was thinking of suggesting a raid to Han Yu-gyeong, but if I wrote about the raid in KakaoTalk, it could be evidence of illegal activity, so I should talk about it in person.</p>
+<p>Jin Yong-tae: I'll tell you when we meet, so drag it out as much as possible. Pretend to be pushing it towards a legal battle and buy time.</p>
+<p>Han Yu-gyeong: Okay. I'll do as Yong-tae says. If I drag it out, I might be late today, is it okay if you're alone?</p>
+<p>Jin Yong-tae: Yeah, just come back safely. Dickson and the bodyguards are with you, right? Nero will be there too, of course.</p>
+<p>Sometimes, if you chose the wrong option, you would be attacked on the spot, so I told her to take Dickson and Nero with her. Well, now Han Yu-gyeong's strength is considerable, so even if she's alone, she can get through the early Base Technology event, but still.</p>
+<p>Han Yu-gyeong: Yeah, yeah! Dickson is here and Nero is here too. I also got throwing skills and magic this time, so I'll be fine.</p>
+<p>Jin Yong-tae: Okay, good luck❤️</p>
+<p>Han Yu-gyeong: 🥰 I love you❤️ See you later~!</p>
+<p>After I finished KakaoTalking with Han Yu-gyeong, I heard the sound of a bell ringing from the convenience store door, and Ha Ju-yoon came out. She bought so much that she came out with two big bags full. Beer and soju for 10,000 won for 4 cans, jerky, a lot of squid leg snacks, several tubs of Häagen-Dazs.... As expected of a chaebol's daughter-in-law, she didn't seem to sober up even after buying Häagen-Dazs at the convenience store. Usually, even if someone is drunk, they would sober up when they see the price of Häagen-Dazs, but not her.</p>
+<p>Besides that, there were various other things in the bag. It looked quite heavy for Ha Ju-yoon's slender arms to carry, so I took both bags from her.</p>
+<p>,Ayi~! It's mine.",</p>
+<p>,I'm holding it for you because it looks heavy.",</p>
+<p>,Ah, really? Hehe.... Let's go home quickly.",</p>
+<p>Ha Ju-yoon pouted slightly when I took the bags, but she quickly calmed down when I said I would hold them for her. I didn't know the way to Ha Ju-yoon's house, so I was walking half a step behind Ha Ju-yoon. Ha Ju-yoon entered a luxury apartment complex at a slightly faster pace. She's walking well even though she's drunk? Isn't she that drunk?</p>
+<p>Ha Ju-yoon's house was a penthouse on the highest floor. She lives alone and uses such a large place? It must be lonely.</p>
+<p>,Excuse me.",</p>
+<p>,Feel free to be rude. Come in quickly.",</p>
+<p>I chuckled at Ha Ju-yoon's words to feel free to be rude and laughed without realizing it. After entering the house, I first went to what seemed to be the kitchen and put the Häagen-Dazs, beer, soju, and drinks in the refrigerator. The weather was getting a little warmer, so the beer felt a little lukewarm, so I thought I should put it in the refrigerator.</p>
+<p>The refrigerator was huge, but there wasn't much food inside. There were only packaged chicken breasts and separately packaged salads. Because she's an actress, she always has to take care of herself, so she has salads that are packaged separately like that. In some ways, it was a bit pitiful.</p>
+<p>I felt a little sympathy for her because she didn't have a good relationship with her husband, wasn't close to her daughter, lived alone in this big house, and couldn't properly enjoy the pleasure of eating. Of course, if it was before the possession, I might have cursed her, saying, "She has so much money, what's with the fuss?" but the situation is different now than it was then, so my judgment is different too.</p>
+<p>,Oh? A photo was uploaded to the agency's promotional channel. Do you want to see it together?",</p>
+<p>Ha Ju-yoon, who was sitting on the sofa as soon as she came in, looked at her phone and gestured to me. I sat next to Ha Ju-yoon and looked at Ha Ju-yoon's phone. It was a recently popular SNS called On Mars, which was a social networking service that recently became popular due to the promotion of Cantal Musk, an American tycoon who said it would also work on Mars, which is currently under development.</p>
+<p>On Mars, there were photos from the filming set that were taken today. There were photos of Ha Ju-yoon, of course, and also photos of me, and there were many people in the comments asking about my identity. There were a lot of comments saying I was handsome and asking who I was, but there were also quite a few hateful comments. As a fan, it would be upsetting to see a man they had never heard of or seen before at the music video shoot that they thought Jun of JBS was filming.</p>
+<p>Even though I understood the frustrating situation in my head, I was pissed off because I was receiving malicious comments in my heart. That's what you get for doing drugs? If I meet that Jun or Jjun guy in the back alley later, I should beat him up a bit. Hmm, seeing how annoyed I am, I guess I'm not cut out to be a celebrity after all.... I was able to confirm my aptitude once again here.</p>
+<p>,Don't worry too much about it. Later, each and every one of these people's posts will be money. Our company's legal team is collecting all the comments without me even having to tell them.",</p>
+<p>,Oh, is that so? I'll give the money I receive from the people who insulted me to noona. There was only salad in the refrigerator, so buy something delicious with that money.",</p>
+<p>,Hohoho! Do you think I don't have money to buy something delicious? This is all maintenance? Take a look at this body.",</p>
+<p>At my words, Ha Ju-yoon laughed, stood up, put one hand on her waist, and put one hand behind her head and struck a pose. She definitely had a good figure. She was tall, had big breasts, a slender waist, and relatively large hips. She was probably in the top 0.01 percent in Korea. If I were a woman and had that kind of figure, I would have worked hard to not lose it.</p>
+<p>,Hehe, how is it?",</p>
+<p>,You're sexy, noona.",</p>
+<p>,♥",</p>
+<p>Ha Ju-yoon, who was giving me a seductive smile at my words, was approaching me. Ha Su-yoon's breath came so close that it tickled my nose. Ha Ju-yoon's breath was sweet. It had a faint soju smell mixed with an inexplicable exciting scent.</p>
+<p>-----</p>
+<p>Preview of the next scene. Hoo... Mama...!</p>

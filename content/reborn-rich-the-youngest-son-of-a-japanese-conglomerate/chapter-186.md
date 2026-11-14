@@ -5,82 +5,84 @@ weight = 186
 chapter = 186
 +++
 
-<p>Base Technology made a big mistake. They picked a fight with Vanguard, who had been guarding them until just a few days ago. That was a huge mistake.</p>
-<p>The people of Vanguard had been on guard duty for months, so they knew the geography of Base Technology's headquarters and research lab better than the people at Base Technology themselves. To pick a fight was practically begging for an attack.</p>
-<p>,Since the other side is going to try to smear Vanguard for completely illogical reasons, we don't need to be all fair and square either."</p>
-<p>,So... when would be a good time to attack?"</p>
-<p>,The sooner, the better. Before the memories of the people who participated in guarding Base Technology fade. Besides, Base Technology might change the interior layout or security points."</p>
-<p>I answered Han Yu-gyeong's question. In the game, the terrain changed over time, so it was best to attack early when we knew the terrain.</p>
-<p>,Then... let's attack now."</p>
-<p>Han Yu-gyeong clenched her fist tightly as she spoke. It was her way of expressing her determination, but to me, it was incredibly cute.</p>
-<p>,The employees are already furious at Base Technology for making such ridiculous claims. We need to let them vent their anger now."</p>
-<p>,You know security is important, right?"</p>
-<p>,Yeah, of course."</p>
-<p>For me, it was a slightly disappointing decision. I was planning to eat spicy pig's trotters and have sex with Han Yu-gyeong in her career woman outfit. Well, I can always dress her up again after the attack.</p>
-<p>,Are you going on the attack too, Yu-gyeong-ah?"</p>
-<p>,Yeah, you said we needed someone to assess the data. I'll go and make the assessment, then threaten Park Mun-seok...!"</p>
-<p>For reference, Park Mun-seok was the president of Base Technology. He was a typical 'strong to the weak and weak to the strong' type of person, who would give in if you pressured him hard. Negotiating with him would be exhausting.</p>
-<p>,Then I'll come along too."</p>
-<p>,Are you sure? Most of the guards have guns..."</p>
-<p>,You saw me beat those guys with guns in Japan with my bare hands."</p>
-<p>,Actually, I told you to run to the bathroom then, so I didn't see it myself..."</p>
-<p>Ah, that's right. I told Han Yu-gyeong to run to the bathroom and lie in the bathtub back then. All she saw was the group of assassins collapsed after the fight, so it was natural she wouldn't know how I fought.</p>
-<p>,Then I'll stand next to Yu-gyeong-i as her bodyguard."</p>
-<p>,Okay, don't do anything dangerous, okay?"</p>
-<p>Han Yu-gyeong kept telling me not to do anything dangerous while making a phone call somewhere.</p>
-<p>,I Yeon-ju-ssi. I need you to gather some people."</p>
-<p>I Yeon-ju... I Yeon-ju was the daughter of Vanguard's former president. When Vanguard was faltering, which was when it was possible to acquire it, I Yeon-ju's father, the former president, had a disease that required very expensive treatment, so Vanguard was put up for sale to pay for the treatment. If that period was missed, Vanguard's former president would die, and Vanguard, no longer needing treatment costs, would be inherited by I Yeon-ju, who would become the president.</p>
-<p>When the protagonist buys Vanguard, the former president who received treatment lives, and I Yeon-ju becomes the protagonist's secretary and Vanguard's vice president. Perhaps because her father survived thanks to the protagonist's money, she had high loyalty from the beginning, making it easy to take control of Vanguard.</p>
-<p>I Yeon-ju had a look that suited her short hair, and she was also excellent in combat, so she was a character with a considerable fanbase. Since she was a character that could be romanced, some people tried to romance her.</p>
-<p>Multiple heroine romance was possible because of some system created in the United States, but there were more gamers who romanced characters who could bring political or influential benefits.</p>
-<p>,The reason is, to attack those annoying Bastards... so gather team members who can keep their mouths shut. Tell them the mission pay is high. And of course, I Yeon-ju-ssi, I'll give you a bonus too."</p>
-<p>Han Yu-gyeong was smiling as she talked on the phone, showing that the two were on good terms. If they're on good terms, that's great. If, by some chance, Han Yu-gyeong didn't get along with I Yeon-ju and had trouble taking control of Vanguard, I was even considering assassination, so it was fortunate that they got along well.</p>
-<p>,Oh, and please get a bulletproof vest and helmet for one person separately."</p>
-<p>She probably meant to get one for me. I don't really need it, but since she's so worried, I should wear it out of courtesy. Han Yu-gyeong sat down for a moment and fiddled with her phone, then got up from her seat.</p>
-<p>,Let's go, Yong-tae-ya. Base Technology's headquarters and research lab are attached, so we're going to gather near there and attack, so we need to go now."</p>
-<p>,Isn't Dickson coming?"</p>
-<p>,Dickson called to say he's arrived, so let's go."</p>
-<p>Ah, I see, Dickson must live nearby. That's why he came so quickly. Han Yu-gyeong and I left the apartment as is and boarded the sturdy-looking tactical vehicle that Dickson, who was waiting with the lights on, was in. Since it was certain there would be combat, there was a high probability that the CEO-like sedan we usually rode in would be damaged, so it seemed he brought the tactical vehicle.</p>
-<p>,Here you go, CEO-nim..."</p>
-<p>,"Thank you, Dickson."</p>
-<p>Dickson handed Han Yu-gyeong the techwear. Dickson, who even made eye contact with me, started driving, and Han Yu-gyeong pressed a button to raise the partition so the back seat couldn't be seen, then changed into the techwear. Hmm...! This is pretty good too? The tight fit showed off Han Yu-gyeong's good figure well. I should ask her to wear this later too.</p>
-<p>Base Technology was located between Geomdan Mountain and Paldang Dam in the east of Hanam City. As a secret subsidiary group of BS Group, it had considerable technology, so there were many security forces to protect that technology. But since Vanguard, which was in charge of most of the security outsourcing, was out due to this dispute, it would be a fairly easy mission.</p>
-<p>I looked at the lights passing by outside the window and thought about what was to come. The success of the Base Technology attack was a given, and I had to think about the next step.</p>
-<p>###</p>
-<p>,Kuaaaaaaack!!"</p>
-<p>Park Sang-beom screamed and woke up from his bed. He had a nightmare about a large hand folding an iron plate in half in front of his eyes and rushing to fold his spine like that. It was all because of Jin Yong-tae.</p>
-<p>Park Sang-beom had nightmares often after meeting Jin Yong-tae. He was greatly shocked by the murderous intent he felt when Jin Yong-tae folded the coin in front of him. Park Sang-beom, who was receiving murderous intent for the first time in his life, often had nightmares. So Park Sang-beom spent a considerable amount of money to dig up information about Jin Yong-tae.</p>
-<p>He thought it was important to know for sure rather than continuing to leave Jin Yong-tae as a mysterious being and growing the unknown fear.</p>
-<p>,Did you get the information, Secretary Kim?"</p>
-<p>,Yes, I have obtained some information through a private investigation agency in Japan."</p>
-<p>Park Sang-beom had ordered Secretary Kim, whom his father, Park Il-soo, the president of BS Planning, had assigned to him, to obtain information, and the results finally came out today. He was disappointed that he still couldn't use BS Group's Japanese line properly because it was under his uncle, Park Il-man, rather than his father, but he paid a considerable amount of money, so the information would be somewhat accurate. Park Sang-beom nodded and looked at Secretary Kim as if to tell him to continue.</p>
-<p>,Jin Yong-tae, Japanese name is Hata Ryuta, age is 20."</p>
-<p>,Hmm, the same age as Han Yu-gyeong. That young Bastard... keep going."</p>
-<p>Park Sang-beom was angry once again at the fact that a guy a year younger than him had shown him murderous intent.</p>
-<p>,He is a third-generation Korean resident in Japan, grew up without a father, and originally planned to graduate from high school and immediately join a small and medium-sized company called Edogawa Industries, but for some reason, he joined a Taira Group affiliate. After going to Taira Group, it is said that it is no longer possible to obtain information."</p>
-<p>,No father and a high school graduate? Hahaha! He was a lowly guy!"</p>
-<p>As soon as he heard Secretary Kim's second piece of information, Park Sang-beom smiled bitterly. Park Sang-beom, who had a strong sense of class as a third-generation chaebol, felt that the trauma he had suffered from Jin Yong-tae was slightly fading when he heard that Jin Yong-tae had grown up without a father and had not even gone to university.</p>
-<p>,Keep going. And how did that fatherless guy get into Taira Group?"</p>
-<p>,There is testimony that he is excellent in martial arts. When Han Yu-gyeong went to Japan for fun, several assassins with guns went to Han Yu-gyeong, whether it was because of a power struggle or for some other reason, but Jin Yong-tae repelled them all. Perhaps that's why he caught the eye of Taira Group and received security duties?"</p>
-<p>Except for the fact that he was excellent in martial arts and repelled the assassins, it was all inaccurate speculation, but Park Sang-beom nodded as if satisfied with Secretary Kim's speculation.</p>
-<p>,Kekeke, does Han Yu-gyeong know this fact? The fact that she is dating a mere fatherless high school graduate guard."</p>
-<p>Park Sang-beom, who even ridiculed Han Yu-gyeong, began to think carefully.</p>
-<p>,He will definitely come to Korea again. He will come to see Han Yu-gyeong. We can get the passenger list from our airline, right? If Jin Yong-tae gets on the plane, contact me immediately."</p>
-<p>,Understood. What should we do after that?"</p>
-<p>,I'll hire a few people and bring him to me. I have to kill him myself."</p>
-<p>Park Sang-beom thought that he had to kill Jin Yong-tae himself in order to end the nightmare. He wanted to completely erase the fact that he was afraid of Jin Yong-tae's murderous intent at that time by directly eliminating Jin Yong-tae.</p>
-<p>A few weeks later, Secretary Kim rushed to Park Sang-beom busily.</p>
-<p>,Young master! Jin Yong-tae is coming to Korea in a few days."</p>
-<p>,Is that so? Hehehe. Hire people right now. He is said to be strong in martial arts, so spend a lot of money and get some experts... okay?"</p>
-<p>,Understood!"</p>
-<p>Park Sang-beom was in a good mood. The work of tarnishing Vanguard's reputation, which he was recently in charge of, was progressing smoothly, and he felt very lucky to hear that Jin Yong-tae, whom he had to deal with, was coming to Korea.</p>
-<p>,Hehehehe, Jin Yong-tae... it would be nice to die in front of Han Yu-gyeong. Then I can approach her to comfort her."</p>
-<p>Park Sang-beom smiled bitterly. Park Sang-beom lost the bet with Han Yu-gyeong, but he did not keep his promise with Han Yu-gyeong. He kept hovering around and talking to her. Park Sang-beom thought that Han Yu-gyeong would be his anyway. He thought that he couldn't meet her right now because of Jin Yong-tae. He was trying to kill Jin Yong-tae to regain his confidence, but he was also trying to kill Jin Yong-tae because he thought that Han Yu-gyeong would be his if Jin Yong-tae was gone.</p>
-<p>-----------Requested Illustration-----</p>
-<p>Yukiko and Ha Ju-yoon's aegyo illustration requested by Missi Hunter- Aegyo doesn't come out well. I wonder if there is a concept of aegyo in foreign countries....</p>
-<p>Yukiko taking a cat pose and Ha Ju-yoon winking.</p>
-<p>Wouldn't Mamang Deopbap be nice?</p>
-<p>An illustration that I uploaded because I liked the composition, Ha Ju-yoon Mamang's ass is so good and Yukiko Mamang's thighs are so good too hehe</p>
-<p>I Save I's request for an illustration of the aunt (entertainment CEO), Taira Kokoro, who was captured by the protagonist. If I show you the image of the aunt who has already been captured, it feels like a spoiler, so I just made an illustration that introduces Taira Kokoro hehe</p>
-<p>I made it with a slightly more sharp and luxurious feeling than the characters I have made so far ㅎㅎ</p>
-<p>Hoo Aunt~!!</p>
+<p>There's a slightly panty-revealing illustration! Look around you.</p>
+<p>At my gesture, all the boys rushed towards me. Seeing them bowing politely to the Russian pilot who flew them here, it seemed they had basic manners.</p>
+<p>"Did anything happen on the way?"</p>
+<p>"No."</p>
+<p>Choi Jinhwa, who has petrification abilities, answered my question on behalf of everyone. Meanwhile, a military transport truck approached us. The window of the truck in front of us rolled down, and a soldier asked me.</p>
+<p>"Are you the director of East Weapon?"</p>
+<p>"That's right."</p>
+<p>At my answer, the soldier got out of the driver's seat and opened the back door. Being a transport vehicle, it could accommodate quite a few people in the back. About fifteen people? The hurried movement of opening the door suggested that the war situation wasn't very good.</p>
+<p>"Please get in. The situation is urgent."</p>
+<p>"Yes, but let's stop by a nearby hotel on the way. I need to drop these kids off...."</p>
+<p>"Understood. There's a small hotel called Metro Hotel on the way. We'll stop there for a moment."</p>
+<p>I got in first and had the rescued boys and girls get in. I'm not getting off midway, so I should get in first. The soldier also looked back from the driver's seat to make sure everyone was on board and then started driving. I called the Metro Hotel that the soldier mentioned and booked two rooms. I wasn't sure how many days it would take, so I booked for about five days. Actually, the summer trip I promised Yukiko is in four days, but I hope it ends before then.</p>
+<p>"Here's a card. I don't know how many days it will take, but think of it as a Akita tour and have fun. I'll be back within five days at the latest."</p>
+<p>I took out the card where my salary is deposited and gave it to Konoe Akina, who is the oldest and familiar with Japan. Originally, it was an account used to withdraw my salary immediately and put it into Health Miracle, but after Health Miracle skyrocketed and I sold the stocks, I was just using it as a cash card. There's about 15 million yen in it, so even if they spend a lot, it shouldn't be insufficient.</p>
+<p>"Everyone seems to be fine after eating the porridge, so eat something delicious starting tomorrow."</p>
+<p>"Wow~!"</p>
+<p>Everyone cheered and got excited at my words. They seemed most excited about food, probably because they had been quite hungry while in the slave trader's underground prison.</p>
+<p>I wrote my LINE address on a piece of paper and gave it to Konoe Akina, opening my mouth.</p>
+<p>"Konoe-ssi, here's my LINE address, so buy a phone tomorrow, register it here, and contact me if anything happens."</p>
+<p>"Yes...."</p>
+<p>"I'll be back soon, so don't worry."</p>
+<p>"But benefactor, what's your name? Come to think of it, I don't even know your name."</p>
+<p>At Konoe Akina's question, everyone looked at me. I told them to introduce themselves, but I didn't introduce myself. Seeing everyone looking at me at Konoe Akina's words, it seemed they were all curious about my name.</p>
+<p>"My Korean name is Jin Yongtae, and my Japanese name is Taira Ryuta."</p>
+<p>"Ah.... Then I'll call you Yongtae-hyung."</p>
+<p>"Ryuta-hyung sounds better, doesn't it?"</p>
+<p>"I was just going to call you Yongtae-hyungnim."</p>
+<p>When I introduced my name, the boys said they would call me hyung or hyungnim, and Jung Darim just nodded after hearing my name and was looking at Juan and Seeds, and Alexandra Smirnova was memorizing my name with a strange pronunciation, saying, "Taira Ryutta..."</p>
+<p>"Taira?"</p>
+<p>Only Konoe Akina knew the meaning behind my name and asked back with her already big eyes widened even more. Surely, if it were last year when Konoe Akina was kidnapped, there wouldn't have been a person named Taira Ryuta, so she might have been surprised by the sudden appearance of the name Taira. Usually, people from prestigious families are educated about the names of people from other families, so she might be surprised by an unfamiliar name.</p>
+<p>"It's only been about four months since I became a Taira. Well, it's not important, call me Taira Ryuta or Jin Yongtae, whichever is comfortable."</p>
+<p>"Yes, yes.... Ryuta-nim."</p>
+<p>Oh, she's calling me by my first name instead of my last name? It seemed that Konoe Akina felt close to me because I rescued her. While talking about my name, we arrived at the Metro Hotel.</p>
+<p>"I made a reservation under Konoe-ssi's name, so just say your name."</p>
+<p>"Yes. Thank you again, Ryuta-nim...."</p>
+<p>"Take off the -nim from Ryuta-nim. It's ticklish."</p>
+<p>"B, but.... You're our benefactor. Then Ryuta...ss, -ssi! Don't worry and come back safely. I'll take good care of my friends here."</p>
+<p>"Okay, everyone stay well. I'll be back soon."</p>
+<p>I thought she was going to say Ryuta-chan. I said goodbye to the kids who got off and closed the car door. In the car that started again, I spoke to the soldier.</p>
+<p>"How's the war situation?"</p>
+<p>"Kurotsukido is feinting to strike Daisen City through Iwate Prefecture, so Akita City and Semboku City are concentrating their forces on Daisen City, which is our main base. However, Kurotsukido's forces, which were trying to strike Daisen City, suddenly entered Semboku City, and Semboku has been occupied."</p>
+<p>From what I heard, the enemy pretended to attack the main base, so all the troops gathered towards the main base, and they lost one of the important outposts.</p>
+<p>"Kurotsukido is concentrating its forces on Semboku City and continuing to attack Daisen City and Akita City."</p>
+<p>"Then isn't our side in a favorable situation? We're attacking from both the west and the south."</p>
+<p>"Originally, it would have been advantageous because the forces were equal, but when Kurotsukido occupied Semboku, the forces that were protecting Semboku on the Taira Foods side and the forces that were returning to recapture Semboku were ambushed, and the forces were greatly reduced. As a result, the absolute number is insufficient, making it difficult to attack from both sides."</p>
+<p>Ah... There were troop losses when Semboku City was captured. That makes things difficult. Also, we have to prepare for them to come from behind through Iwate Prefecture, so we need to send more troops to Yokote City, which is right behind Daisen City. This means we have to split our already reduced forces, so the situation doesn't look easy.</p>
+<p>"So where are we going now?"</p>
+<p>We're going to the base camp set up on Route 46 to attack Kakunodate.</p>
+<p>Kakunodate.... I searched for Kakunodate. When we were occupying Akita and Semboku at the same time, it wasn't such an important area, but when Kurotsukido occupied Semboku, Kakunodate became a very important location. It was a perfect location to attack Akita and Daisen at the same time.</p>
+<p>From our perspective, if we occupy Kakunodate, we don't need to block both sides, we just need to block Kakunodate, and if we go straight up Route 46 from Kakunodate, it's Semboku City, so it's good for attacking. The opponent probably knows the importance of Kakunodate, so they must have gathered a large number of troops on the Kakunodate side.</p>
+<p>We drove quite fast and covered the distance that usually takes about an hour in forty minutes, and arrived at the base camp that East Weapon had created to attack Kakunodate.</p>
+<p>"Senior!"</p>
+<p>When I arrived at the base camp and got off, Mimata Chieri greeted me. It seemed like she had just been in battle, as Mimata Chieri was full of the smell of gunpowder. Mimata Chieri had already switched to secretary mode and began explaining the situation to me.</p>
+<p>"We're proceeding with as few casualties as possible on our side, but the casualties of the main force of Taira Foods on the Semboku side are so great that we're barely holding on."</p>
+<p>"I'll have to step in. Prepare a cyber suit that can hide my identity as much as possible."</p>
+<p>"Okay. It's too early to reveal Senior's identity yet."</p>
+<p>I was guided to the tent that Mimata Chieri uses, and Mimata Chieri went to prepare my cyber suit. In the end, the only way to end this battle quickly was to maximize my abilities.</p>
+<p>I should check my abilities since I'm facing a big battle. That way, I can make a battle plan in advance.</p>
+<p>My abilities are powerful physical abilities and close combat abilities due to Shinkaiya Tsude, telekinesis and shadow domination abilities, damage reduction due to the Cintamani and instant death prevention and recovery abilities due to regeneration, and finally, shooting skills that I learned from my military life before possession, although they are not that great.</p>
+<p>The key here was the Cintamani's damage reduction and regeneration characteristics. In addition, if I wear a cyber suit that protects against bullets to some extent, I will be able to ignore the damage from bullets to some extent. My calculation was that if I draw aggro and stand at the forefront and massacre Kurotsukido, I can win enough.</p>
+<p>"I brought the suit!"</p>
+<p>Mimata Chieri brought the cyber helmet and cyber suit that I used last time. Yeah, even if I only wear the helmet, it won't be easy for the enemy or allies to recognize me. Since Mimata Chieri came in, I asked her about Seryu Tai, which I was curious about.</p>
+<p>"By the way, how's Seryu Tai doing?"</p>
+<p>"I heard that Seryu Military Company has completely cleared Yurihonjo City and is defending on the Daisen side."</p>
+<p>"Then I should call them here. I'm thinking of pushing them completely this time and settling in Semboku City, and the Seryu Tai kids will be helpful."</p>
+<p>"Shall I call Nagumo Sian-nim?"</p>
+<p>"Yes."</p>
+<p>Mimata Chieri picked up the phone and called Nagumo Sian. As Mimata Chieri is the general manager in charge of the Eastern Front, Nagumo Sian answered the phone right away. The two were talking about the movement of Seryu Tai.</p>
+<p>"Yes, I understand. Ah! Senior? Yes~. Senior, Nagumo Sian-nim is telling me to switch."</p>
+<p>After talking for a while, Mimata Chieri handed the phone to me.</p>
+<p>"Yes, Nuna. I'm on the phone."</p>
+<p>-This fight isn't your fight, I'm sorry.</p>
+<p>Nagumo Sian, anticipating that I was about to go into battle, spoke in a sorry voice.</p>
+<p>"I couldn't stay still because I have my people. I don't want Nuna to get hurt either."</p>
+<p>-...Yes, cherishing your people is important, but what's more important is your life. Please cherish your life.</p>
+<p>"I won't die in this fight at least. You said you'd grant my wish when this war is over, Nuna."</p>
+<p>Hmm, I unknowingly said something like a death flag. But I wasn't someone who would die from this level of flag. I will finish this work wonderfully and get Nagumo Sian to grant my wish.</p>
+<p>------</p>
+<p>Alexandra Smirnova in school uniform</p>
+<p>Why are you holding your skirt?</p>
+<p>😍😍😍😍</p>

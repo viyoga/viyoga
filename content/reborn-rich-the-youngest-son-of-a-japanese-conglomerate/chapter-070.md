@@ -5,37 +5,85 @@ weight = 70
 chapter = 70
 +++
 
-<p>Waking up a little early, I checked the News on my phone and saw that the recent Yotsukaido Central Park Terror was causing a stir. 32 Casualties and 54 Injured Persons.... It seemed many of the Injured Persons had died overnight. As I expected, there were many articles criticizing the police's lax response. Surprisingly, there was also a little about me; the Story of a man who fought terrorists bare-handed was spreading like an urban legend. My Story probably wasn't appearing in the News or official media because Taira Yukiko or Taira Danjo were reluctant for it to become a Topic and had suppressed it. Because I had gone to Sleep early yesterday, I woke up earlier than usual. Going out to the restaurant, I saw Taira Yukiko eating her Meal. Taira Yukiko is also eating her Meal earlier than usual?</p>
-<p>「Did you Sleep well, Mother?」 「Yes, you should eat too. Sit here.」</p>
-<p>I bowed in greeting and sat in the Seat in front that Taira Yukiko indicated. Soon, the Housekeeper aunt/middle-aged woman brought out the Food: sunny-side-up fried eggs and butter-toasted ppang. Perhaps because it was an early breakfast, it was quite ordinary.</p>
-<p>「How much harm did our company's People suffer yesterday?」 「Fortunately, the Terror occurred at a Place distant from where our company's People were located, so there were no Casualties, and about five People were Injured Persons from falling while fleeing.」</p>
-<p>That's fortunate. Indeed, since the Terror happened on the Road back from the food stalls, it was quite a distance from where the Talent Development Center employees were situated. It seemed the employees of the Talent Development Center had secured good Seats far from the food stalls early in the Morning, so the harm was less.</p>
-<p>「I have to go to the Main family home for a Report today, so I'll leave early.」</p>
-<p>Taira Yukiko hastily finished her Meal, prepared immediately, and left. Will Grandfather Taira Danjo scold her? Or is it just a Report about this Incident? I decided to return to my old Home in Tokyo after a long time to see my real Mother, Jinmija Yeosa. Anyway, I had received a ton of missed Phone Calls, so I sent a Text Message saying 'I'm fine' and drove my car towards Tokyo. I should Rest at Home for two days after a long time. Sex or whatever, I need to Rest for about two days. I was hit by so many Bullets yesterday that I felt I should avoid overexertion.</p>
-<p>When I opened my Eyes, it was an early Time again. Once I started waking up early, my Sleep pattern must have adjusted to it without me realizing. Waking up exactly at 8:35, just before going to the company, would be the best, you know. Since I was up early, I had a simple Meal of ppang, gathered my Clothes, exercised for a little over an hour at the Gym in the Talent Development Center, took a Shower, changed my Clothes, and went to the office.</p>
-<p>「Good Morning~.」</p>
-<p>As I entered the office with a greeting, everyone in the office looked at me. Just a few days ago, People would look at me with displeasure for arriving exactly five minutes before Work started at 9 AM, and especially the male team members would look at me with Jealousy for being friendly with Shinoe Misano and Mimata Chieri, the two Beautiful Women of the team, but today there was none of that. Is it natural since I'm the Director's Son of the Talent Development Center? Until now, I had only directly revealed to Shinoe Misano that I was the Son, so the other team members must have thought I was just one of the collateral relatives.</p>
-<p>「The Director was Sunbae-gun's Mother?」 「Haha, yes. Had I not told you?」</p>
-<p>Mimata Chieri asked me with a slightly wronged Expression, wondering why I hadn't told her until now.</p>
-<p>「Yes. I knew Sunbae-gun's Tairaga was that Tairaga, but I didn't know you were the Director's Son.」 「Son? Just call me Sunbae-gun normally, as usual, Senior-nim.」</p>
-<p>Mimata Chieri, as if she hadn't truly called me 'Son,' chuckled, 「Hehe, right, Junior-nim?」 and resumed her Work. Before I knew it, the office became noisy again with the sound of Typing and Phone Calls. Indeed, such a big Incident happened just a few days ago, yet this ordinary Appearance felt rather abnormal.</p>
-<p>「Good Morning, everyone. Some of you may be having a hard time because of the Incident a few days ago, but please bear with it a little longer, as the busiest training period is just around the corner.」</p>
-<p>From the company's perspective, it couldn't allow employees who weren't even Injured to Rest right before the busiest Season, so Shinoe Misano's Words were absolutely right. Speaking of Rest, I remembered I also have to take a day off from the company tomorrow. The Tuesday two weeks ago was Taira Saburo's 35th day, so tomorrow, two weeks later, would be his 49th day. It's the Last day of the funeral rites. I can tell Shinoe Misano about it later when we meet alone. Or Taira Yukiko might have already told her, like before.</p>
-<p>「Taira-gun, we need to go to a client, so please prepare.」</p>
-<p>As soon as I thought it, Shinoe Misano called me. Perhaps because she had starved herself over the Weekend, her Gaze was no joke. Until now, many People had found it strange that I was performing Shinoe Misano's external Work/task, but today there was none of that. Everyone seemed to think that Shinoe Misano was taking me around to give me Management Education. It's not Management Education, it's sex education.... I had also accumulated semen over the Weekend, so today I would be able to properly dominate Shinoe Misano.</p>
-<p>Although I had returned in just two weeks, the Main family home still didn't feel familiar. This time, for the 49th-day ceremony, many Relatives were present, but Arisu was in Milan for Work, and most Cousins didn't come; only Taira Saburo's Siblings and collateral Relatives eager to catch Taira Danjo's eye were there. Taira Yukiko wore her customary black funeral Kimono, and I also wore a black suit. Taira Yukiko's Complexion was unusually poor, and it didn't seem to be solely because of Taira Saburo's final 49th-day ceremony. Her Expression seemed poor due to the malice mixed with countless murmuring, Sneers, and Jealousy from the People. Words like 'his wife was unlucky, so her Nampyeon died early,' or 'she's no longer related to the Tairaga, so why does she keep the important position of Director of the Talent Development Center?' were like Daggers piercing Taira Yukiko's breast. Of course, all these Words were spoken by insignificant Characters who wouldn't dare utter them in the presence of Chairman Taira Danjo or Taira Yukiko. They were merely spewing malicious Words, harboring futile Expectations that Taira Yukiko's significant position as Director of the Talent Development Center might fall to them. I took Taira Yukiko's Hand.</p>
-<p>「!」 「Mother, don't mind them.」 At my Words, Taira Yukiko offered a faint Smile. It was faint, but a Smile full of Sincerity. I should at least be her support. Otherwise, it would drive a perfectly fine Person mad.</p>
-<p>「Hmm! Everyone must be here, right? Yukiko! Ryuta! As Saburo's wife and Son, lead the way.」</p>
-<p>When Taira Danjo referred to her as Saburo's wife in front of everyone, the malicious Words around them ceased. I don't know if he did it knowingly or just by chance, but Grandfather Taira Danjo, that was nice. Taira Danjo, Taira Shizuku, and Taira Yukiko stood at the very front, followed by me, Taira Kanna, Ichiro, Jiro, Kokoro, and others. Arisu's Mother, Nae Fitzgerald, also stood with them. I exchanged Gaze with everyone and followed the lead. The Destination was the family Cemetery where Taira Saburo was buried. A monk stood before Taira Saburo's Tombstone, and as we all arrived, he began the Last funeral rites. Chanting prayers, pouring Water on the Monument and wiping it clean repeatedly, about thirty minutes passed, and all the ceremonies concluded.</p>
-<p>「Now! Let's go to the Banquet Hall!」</p>
-<p>At Taira Danjo's Words, everyone headed to the large Banquet Hall. It was approximately 5 PM, a bit early for dinner, but when we arrived at the Banquet Hall, a Meal was already laid out. Although I always had a hearty Appetite, in this Atmosphere, the Meal didn't go down well. As the Meal was nearing its end, Taira Danjo called each of his children and gave them an Evaluation, saying what they did well and what they did poorly. Taira Ichiro, who had been scolded before, received Praise, while Taira Jiro had the shipbuilding business he had previously received taken away again. Taira Kokoro achieved a great Success this time and received a Media Company.</p>
-<p>「Ryuta.」 「Yes, Grandfather.」</p>
-<p>This time, it was my Turn.</p>
-<p>「I heard you rendered meritorious service in stopping the Terror this time? Is there anything you wish to receive?」</p>
-<p>At Taira Danjo's Words, everyone made murmuring sounds. It must have been murmurs like, 'He rendered meritorious service in stopping that recent tumultuous Terror?' I thought for a moment, then quickly gave my Answer.</p>
-<p>「I've never received an Allowance from Grandfather, so please give me some Allowance this time. It hasn't been long since I received my Salary, but I have no Money.」</p>
-<p>Everyone burst into Playful Laughter at my jest. Uncles like Taira Ichiro and Jiro, who desired to be the next Chairman, seemed to have been wary that I might ask for something excessive and Taira Danjo would grant it, but a Demand for an Allowance was a cute Level. Other collateral family members probably had no particular thoughts, but they must have laughed because I, who only demanded an Allowance from the Chairman of the Taira Group, vying for Japan's top spot, seemed foolish. Of course, I also wanted something big, but if my ambition were exposed, my Uncle or Aunt could send an Assassin again. And now was the Time to invest even a small Amount of Money in Stock and grow it.</p>
-<p>「Hahaha! To reveal at a family gathering that I am a terrible Grandfather who has never given his Grandson an Allowance, you wretched bastard!」</p>
-<p>Taira Danjo called his secretary and had a check brought. And he called me to come and receive it.</p>
-<p>「Here it is, you thing! It's your Allowance!」 「Thank you, Grandfather.」</p>
-<p>The Amount written on the check was Fifty Million Yen. Quite generous, Grandfather Danjo.</p>
+<p>I effortlessly princess-carried Yukiko-ssi and went up to the second floor. Into the master bedroom on the second floor, Yukiko's room. Come to think of it, I've been in this house for quite a while, but this is my first time entering Yukiko's room.</p>
+<p>Opening the door revealed a room much larger than mine. The bed is huge too. It was wide enough for four people to lie down comfortably. I tossed Yukiko-ssi onto the bed.</p>
+<p>"Kyaa~!"</p>
+<p>Yukiko-ssi giggled with a small cry. Yukiko-ssi lay on the bed as is, seducing me with her bewitching eyes. There was no way I could resist Yukiko-ssi's seduction now.</p>
+<p>I went straight onto the bed and kissed Yukiko-ssi's forehead. Then I kissed between her eyebrows, her nose, and down to her lips, giving her a deep, adult kiss using my tongue.</p>
+<p>"Has any man ever been on this bed before?"</p>
+<p>".... No. You're the first man to come onto this bed."</p>
+<p>Hmm, so she didn't use it with Taira Saburo-ssi. Slightly satisfied, I went back to her lips and lightly sucked on Yukiko-ssi's deer-like long neck.</p>
+<p>"Haaang.... Not there. It'll leave a mark...."</p>
+<p>Saying it's not okay while hugging my back tightly, what's that about? Her voice was moist, possessing a magic that melts men.</p>
+<p>"I'm going to stamp you as mine now."</p>
+<p>"Heeung.... I've been your woman since we went to see the cherry blossoms that time.... Ryuta."</p>
+<p>Is she talking about when we went to see the cherry blossoms and kissed during the fireworks? To reward Yukiko-ssi for saying something so admirable, I went down from her neck to her chest. I tickled her areola with my tongue and lightly sucked on her nipples. Yukiko-ssi seemed to feel good, wriggling her body while letting out a plaintive moan.</p>
+<p>"Haaah-aahng.... It's ticklish...."</p>
+<p>After continuously attacking her chest, this time I moved my lips along her slightly exposed abs.</p>
+<p>As I lowered my lips little by little, I was able to reach her neatly trimmed pussy, as if she had gotten a Brazilian wax. I licked her plump labia majora, lightly touching her labia minora with my tongue, teasing her with tantalizing caresses.</p>
+<p>I wanted to slurp and suck to my heart's content, greedily lapping up the vaginal fluids gushing from Yukiko-ssi's pussy, but since the semen I had already shot out was still trickling out, I was using a frustratingly teasing method of foreplay.</p>
+<p>"Haaheung.... A little more... euung...."</p>
+<p>Yukiko-ssi seemed to be impatient because there were parts she wanted me to touch, but I wasn't touching them at all. She was pushing my head deeper into her pussy with her hands. I teased her for a few more minutes before suddenly licking her engorged and erect clitoris.</p>
+<p>"Hiaaang!!!"</p>
+<p>Whether it was because she was surprised by the sudden attack or because of the pleasure, Yukiko-ssi arched her back like a bow. I continued my offensive, sucking and touching her clitoris.</p>
+<p>"Haang! Haaheung! Too much...! Haaaang...! Put it in, Ryuta, huh? Put it in now! I can't take it anymore!"</p>
+<p>Unable to just watch Yukiko-ssi begging, I raised my head and looked into each other's eyes, inserting my Johnson as is. Perhaps because there was already lubricant from my semen, it went in more smoothly than the first time I thrust.</p>
+<p>"Haa....! I love this! Haaang!"</p>
+<p>Yukiko-ssi was ecstatic when I put it in. I started shaking my hips to make her feel even better. After shaking my hips for a few minutes, I decided to ask Yukiko-ssi for some seasoning to make the sex even more exciting.</p>
+<p>"Say something dirty, Yukiko."</p>
+<p>"Haaang...! I can't do thateee...."</p>
+<p>"If you don't say it, I won't shake my hips?"</p>
+<p>Yukiko-ssi protested that she couldn't do it at my sudden request, but when I drastically slowed down the speed of my piston, she put her lips to my ear and whispered obscene words.</p>
+<p>"Haaheung.... Does Mom's pussy taste good? Please thrust into Mom's pussy with Ryuta's banana...!"</p>
+<p>"Yes, Mother, your pussy tastes so good...!"</p>
+<p>She said it with a flushed face, but I could feel her vaginal fluids gushing out as if she was intoxicated by her own lewd story. As if to repay her, I vigorously thrust into Yukiko-ssi's pussy.</p>
+<p>"Haaheung! Haaang, Ryuta, eat me deliciously. It's a pussy prepared only for Ryuta...!"</p>
+<p>The combination of the intense piston movement and Yukiko-ssi's lewd story whispered in my ear quickly brought on the feeling of ejaculation.</p>
+<p>"Where should I put my semen?"</p>
+<p>"Haaheung! Put Ryuta's hot semen inside my pussy! Haaang!"</p>
+<p>As her moans grew louder, my hip movements became more intense. I pulled out to the middle of my glans and then pushed all the way in again with a long stroke, reciprocating big and fast, and Yukiko-ssi's eyes rolled back. Her whites were showing, and it seemed like she was reaching her climax.</p>
+<p>"I'm going, going, going, going! Haaaahng!!"</p>
+<p>"Eueueuk, I'm cumming!!"</p>
+<p>As my Johnson poured white liquid deep into her cervix, Yukiko-ssi seemed to have completely gone as well, her vaginal walls spasming wildly, contracting and releasing my Johnson.</p>
+<p>After our climaxes ended, I hugged Yukiko-ssi without pulling out my Johnson. Yukiko-ssi also hugged me and gave me a light bird kiss on my lips. The bird kiss soon turned into a deep French kiss, and the French kiss made my Johnson regain its strength inside Yukiko-ssi's pussy.</p>
+<p>"Eueung?? Again...?"</p>
+<p>Yukiko-ssi, feeling my Johnson growing vigorously inside her, asked me with wide eyes. I nodded and started moving my hips as is.</p>
+<p>"Haaang!! I just, I just cameee!! Let me rest a little, aahng!!"</p>
+<p>###</p>
+<p>After finishing our business two more times, Yukiko-ssi was lying down, using my arm as a pillow. I told Yukiko-ssi various stories, one of which was about Health Miracle stock.</p>
+<p>"I knew you were getting a lot of pocket money from Father-nim, but now I know why you kept saying you were short on money. You invested it all in Health Miracle stock, right?"</p>
+<p>The story about Health Miracle was making headlines all over the world right now because of its stock price, which had risen more than 300 times. Most people were investing money in Health Miracle stock. Yukiko-ssi was very surprised when I told her that I bought Health Miracle when it was less than a dollar.</p>
+<p>"So don't worry. If things go wrong, we can just live comfortably with this money. If Yukiko-ssi retires from the Human Resources Development Center, we can build a mansion where we don't have to care about what others think and live together."</p>
+<p>"You thought that far ahead?"</p>
+<p>Yukiko-ssi was looking at me with an expression as if she was impressed by my thoughts. Certainly, now that she had a man to support her, the precarious look she had in the Hiramotoga parking lot was gone. Then I can bring up the story I found out.</p>
+<p>"Yukiko-ssi, I heard a story recently...."</p>
+<p>I started by telling her about Team Leader Suzuki Chisami, and then about the head of the personnel department who was backing Suzuki Chisami, which I had heard from Mimata Chieri-ssi.</p>
+<p>"I didn't think Taira Jiro-ssi would have already extended his reach this far....."</p>
+<p>Yukiko-ssi listened to my story with a slightly serious expression and muttered.</p>
+<p>"Don't worry about it anymore. I'll take care of it."</p>
+<p>Yukiko-ssi hugged my face to her ample chest and spoke kindly. My face was buried in her chest, which was the epitome of softness, and Yukiko-ssi gently stroked the back of my head, making my body and mind incredibly comfortable. I felt so comfortable that my eyes closed on their own.</p>
+<p>"Sleep well, Ryuta."</p>
+<p>The soft words of Yukiko-ssi brushing against my ear were the last memory of this night.</p>
+<p>###</p>
+<p>Sunlight poured in through the window, and I woke up naturally because it was so bright. I stretched and got up. Next to me, Yukiko-ssi's naked body, shining in the pouring sunlight, looked even more beautiful.</p>
+<p>"You're awake?"</p>
+<p>Yukiko-ssi greeted me with a bashful smile. I also said good morning.</p>
+<p>"I'll be busy during the weekend because of the personnel department head issue we talked about in the early morning."</p>
+<p>"I had plans for the weekend too, but I was going to cancel them and spend time with Yukiko-ssi...."</p>
+<p>When I spoke as if I was complaining a little, Yukiko-ssi chuckled and pinched my cheek. Yukiko-ssi's eyes were warm, and even the hand that pinched my cheek felt affectionate.</p>
+<p>"Take care of your work on the weekend. We can always be together on weekday evenings."</p>
+<p>Yukiko-ssi, speaking in a tone as if she was soothing a whining child, got up from her seat and went into the shower room. It was a big deal that someone from another line was the head of the personnel department, an important department in the Human Resources Development Center that she was in charge of. She seemed to be trying to leave quickly because if she procrastinated, Yukiko-ssi could become a nominal director, that is, something similar to a figurehead.</p>
+<p>Soon, Yukiko-ssi came out of the shower and we talked while watching her dry her hair.</p>
+<p>"What's your plan?"</p>
+<p>"I have a few ideas."</p>
+<p>Yukiko-ssi said that she would go to the company and figure out all the personnel appointments the head of the personnel department had made over the next day or two, find out if Jiro-ssi's line was there, and find out who was trustworthy, and as soon as Monday came, she would get rid of the people Yukiko-ssi had identified and leave only the trustworthy people.</p>
+<p>Certainly, she'll be busy during the weekend if she wants to figure out all the personnel appointments the head of the personnel department has made over the past few years.</p>
+<p>"Should I help you?"</p>
+<p>"It's okay. My secretary is coming back today, so I can do it with her."</p>
+<p>Yukiko-ssi, who had dried her hair and put on a suit, kissed my forehead. By the way, she looks sexy in a suit too.</p>
+<p>"I don't know what your appointment is, but your prior engagements are important, so don't worry about me and have a good weekend."</p>
+<p>"Tell me anytime if you need my strength. Yukiko-ssi, you know my strength, right?"</p>
+<p>When I showed off my muscles while naked, Yukiko-ssi said, "Hey, what are you doing~!" while staring intently at my muscular body. She's still young, but liking muscles makes an ajumma an ajumma.</p>
+<p>"Then.... I'm staying out tonight."</p>
+<p>"Okay, see you Monday evening~!"</p>
+<p>Yukiko-ssi kissed me on the lips this time and left. It's only 7 o'clock, so should I sleep a little more? Ah, come to think of it, the sofa will be a mess, so I should clean that up before I sleep.</p>

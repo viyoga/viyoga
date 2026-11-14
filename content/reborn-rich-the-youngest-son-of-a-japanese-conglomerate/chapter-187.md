@@ -5,74 +5,93 @@ weight = 187
 chapter = 187
 +++
 
-<p>"Jin Yong-tae and Han Yu-gyeong-ssi suddenly came out of the house!"</p>
-<p>"Hehehe.... Good, I couldn't work because I was with Ha Ju-yoon-ssi, but with those two, it's possible."</p>
-<p>At Secretary Kim's report, Park Sang-beom gave a bitter smile. Ha Ju-yoon-ssi was famous in the entertainment industry and had the status of a daughter-in-law of a chaebol family, so Park Sang-beom was reluctant to touch her. That's why he didn't attack even though he knew Ha Ju-yoon-ssi was alone a while ago.</p>
-<p>On the other hand, Jin Yong-tae is just Han Yu-gyeong's boyfriend, who is far down in the inheritance rankings, so even if Park Sang-beom messes with him, there will be no repercussions. Since he's not directly touching Han Yu-gyeong, a fight between the two groups won't happen.</p>
-<p>"Okay, they came out, but where are they going? The Yongcheol Faction guys I contracted happen to be nearby, so I can send them in the direction those two are going."</p>
-<p>The Yongcheol Faction that Park Sang-beom mentioned sounded like just a gangster name, but in reality, it was a back-alley organization created by a special forces officer named Jeon Yong-cheol after the war, who gathered soldiers after being discharged. They are known to do anything for money, and now they have completely taken over Gangnam in Seoul. On the surface, they were a security company called Yongcheol Security, but in reality, they were a messed-up gang that did everything for money, including drugs, prostitution, and human trafficking.</p>
-<p>"The location they're going to is a bit strange.... They're in a car driven by a bodyguard, heading towards Hanam-si."</p>
-<p>"What? Could it be.... Did they find out we're behind Base Technology?"</p>
-<p>Park Sang-beom was trying to increase the reputation of another security company acquired by BS Group by staging a theft at Base Technology to lower the reputation of Vanguard, led by Han Yu-gyeong-ssi. When he heard that Han Yu-gyeong's group was going to Hanam-si, where Base Technology was located, he felt a pang of guilt and asked Secretary Kim.</p>
-<p>"Looking at the direction they're moving, it seems like they're going there."</p>
-<p>"Are they trying to negotiate again...? Or are they going to argue?"</p>
-<p>Park Sang-beom muttered, unable to imagine it was an attack. He knew it didn't make sense to go negotiate without contacting them at this late hour, but he didn't know why they were going with Jin Yong-tae-ssi.</p>
-<p>"I don't know the reason, but it's a good thing. Have the Yongcheol Faction wait in advance. Since they came into our territory, we can get rid of them this time."</p>
-<p>"Understood, will Doryeonnim (young master) be going too?"</p>
-<p>At Secretary Kim's question, Park Sang-beom nodded. He had to see Jin Yong-tae-ssi die with his own eyes, the one who humiliated him. Only then would he not have the nightmares he had every night.</p>
-<p>"I will drive. I'll prepare the car."</p>
-<p>Secretary Kim said he would prepare the car, then made a call, contacted the Yongcheol Faction, and went down to the parking lot.</p>
-<p>"We'll be able to meet soon. Jin Yong-tae, I'll see how long you can be so confident in front of me...."</p>
-<p>Park Sang-beom muttered quietly.</p>
-<p>###</p>
-<p>Vanguard's gathering place was an empty lot about one hundred and fifty meters away from the headquarters and research institute of Base Technology. When we got off, about thirty Vanguard agents, who seemed to have mostly gathered, were all armed and waiting.</p>
-<p>Because it was illegal, everyone's helmets were shaped to completely cover their faces, and all the name tags indicating their affiliation were torn off. Somehow, this felt similar to the atmosphere of the Tira Group's No-Face Corps.</p>
-<p>"You've arrived, Sajang-nim (president)!"</p>
-<p>"Yes, I'm sorry for the late hour."</p>
-<p>"There's no need to apologize. We were already annoyed with Base Technology."</p>
-<p>A tall woman with short, intellectual looks walked forward and said. This woman was probably I Yeon-ju-ssi. I Yeon-ju-ssi was talking to Han Yu-gyeong-ssi and then looked at me.</p>
-<p>"You must be the main character of the equipment you prepared separately."</p>
-<p>"Hello. I'm Jin Yong-tae."</p>
-<p>When I greeted her, I Yeon-ju-ssi also bowed and handed me a bulletproof vest and helmet. The helmet was the same as the ones the Vanguard members were wearing. Hmm, it's quite a good-looking helmet. It was a helmet with a built-in air purifier. It was older than the Seryu Military Company's combat helmet I recently bought, but it must have been a top-of-the-line helmet when it was purchased.</p>
-<p>"What is your level of combat ability? I hope you won't be a hindrance during the attack...."</p>
-<p>"I'll just be standing next to Yu-gyeong, so I won't be a hindrance."</p>
-<p>"I see, that's a relief."</p>
-<p>I Yeon-ju-ssi seemed unhappy with me being there. Well, that's to be expected. It would be a problem that I, who am not a Vanguard person, am at the scene where Vanguard is committing an illegal act, and she would be quite unhappy because Han Yu-gyeong-ssi could get hurt because I'm next to her.</p>
-<p>"Then, first, we will install a radio jammer to prevent outside communication, remove all the CCTV cameras in the vicinity, and then break in. Team 1 will go to the headquarters, and Team 2 will go to the laboratory to retrieve the data. Sajang-nim (president), Jin Yong-tae-ssi, and Dickson-ssi, please wait at the main gate."</p>
-<p>"Okay. Do as you say."</p>
-<p>I Yeon-ju-ssi quickly briefed them, and when Han Yu-gyeong-ssi nodded, the operation began. As expected of the elite Vanguard, they silently installed a radio jammer and circled around the area to neutralize the CCTV cameras.</p>
-<p>I was impressed by how all these movements were perfectly coordinated, as if they had rehearsed it, and I Yeon-ju-ssi, who was still next to us, smiled slightly.</p>
-<p>"We've been guarding this place for a long time, so we can do it with our eyes closed."</p>
-<p>"I see. I can definitely feel how skilled you are."</p>
-<p>At the same time as my words, the 30 people who had completed the neutralization mission shot the main gate guards with tranquilizer guns, knocked them unconscious, and entered the password to open the main gate.</p>
-<p>"I was going to use a hacking tool if the password was wrong and it didn't open, but it's been a few days since we left, and they haven't changed the password."</p>
-<p>I Yeon-ju-ssi sighed as if she was disappointed with the security of Base Technology, took out a chair from the guard post next to the main gate, and looked at Han Yu-gyeong-ssi.</p>
-<p>"Sajang-nim (president), please sit here. Dickson, if a support unit from Base Tech comes, please let us know and take Sajang-nim (president) to safety."</p>
-<p>"Of course, I'll take Boss to safety."</p>
-<p>Dickson nodded at I Yeon-ju-ssi's words. Since the purpose was to steal data, not to occupy the laboratory or the company, there was no need to fight the enemy's support unit. If they could just get the data, they could hit and run.</p>
-<p>And there was no way a support unit would come because they had installed a radio jammer in advance. There's no way support would come suddenly if they didn't receive a call for help.</p>
-<p>I Yeon-ju-ssi joined the headquarters assault team and went to the headquarters building on the left, and the thirty Vanguard units split in half and entered the headquarters and the laboratory.</p>
-<p>"They'll be out soon. Base Technology doesn't have that many guards directly with them."</p>
-<p>I nodded at Han Yu-gyeong-ssi's words. I focused my senses with the master's intuition and counted, and it seemed that there were only about three or four guards left after everyone had gone home. This was not enough to stop the thirty Vanguard agents.</p>
-<p>The problem wasn't the guards of Base Technology. While concentrating and using the master's senses, I could hear the sound of cars in the distance. It was the sound of about three cars, and judging by the fact that they were getting closer, it seemed like they were coming this way.</p>
-<p>"But it seems like cars are coming this way...."</p>
-<p>"Did they break through the radio jammer? What happened?"</p>
-<p>"I don't hear anything...."</p>
-<p>Han Yu-gyeong-ssi, who unconditionally believed my words, wondered how they had broken through the radio jammer and called for reinforcements, and Dickson listened for a while and shook his head, saying that he didn't hear anything.</p>
-<p>"Thinking about it, it doesn't seem like they're coming for support. Even if they called for support, they couldn't get here this quickly."</p>
-<p>"That's right."</p>
-<p>I nodded at Han Yu-gyeong-ssi's words. Since Base Technology was far away from the city, it would take a long time to get here even if they received a request for support. Then what are these cars that are coming now? Is it just a patrol or something?</p>
-<p>"Ah! I can hear it now!"</p>
-<p>Dickson, who had been listening to the sound, clapped his hands and said. He seemed to be impressed with my senses, as he smiled at me and gave me a thumbs up.</p>
-<p>"What should we do? I told I Yeon-ju-ssi."</p>
-<p>"Since I'm curious who it is, should we hide nearby and watch?"</p>
-<p>Han Yu-gyeong-ssi said in response to Dickson's question. It seemed like her liver had grown bigger because she had leveled up and raised her stats a bit. Judging by the slight distortion of the objects around Han Yu-gyeong-ssi, it seemed like she had already used a mental shield. It must mean that she's ready to step up if necessary.</p>
-<p>I said I understood and nodded, and headed to the parking lot on the right outside the main gate of Base Technology. Since there were still a few cars of guards who hadn't left work in the parking lot, I decided to hide behind them and see who was coming.</p>
-<p>I hid behind the parking lot and waited for about thirty seconds before I saw the cars. It was a German luxury foreign car and two black vans.</p>
-<p>Men in suits got out of the vans, and two men got out of the German foreign car. One was someone I had never seen before, and the other was someone I had seen before.</p>
-<p>"Why is Park Sang-beom here...?"</p>
-<p>Han Yu-gyeong-ssi muttered in an incomprehensible tone.</p>
-<p>"It seems like Park Sang-beom was tailing us. Did he get suspicious because we suddenly moved?"</p>
-<p>"Then he must have realized that this attack is us, what should we do now?"</p>
-<p>Dickson, who understood my words, asked Han Yu-gyeong-ssi. If he had been tailing us all the way here and Base Technology was attacked, we would be the prime suspects. As if the surprised expression from just now was a lie, Han Yu-gyeong-ssi's expression was blank. I felt an unknown murderous intent in Han Yu-gyeong-ssi's expression.</p>
-<p>"There's no choice. We have to get rid of everyone there."</p>
+<p>-Fufu, I'll look forward to your request. I wonder what kind of request it will be....</p>
+<p>At Nagumo Sian's playful words, I also smiled slightly. I wondered if Nagumo Sian would still be smiling or be flustered when she received my request. Anyway, I should tell her about calling the Seryu-tai kids, which was the purpose of the call. Because I can't delay any longer.</p>
+<p>"Ah, and I'd like Seryu Military Company to support the Kakunodate attack."</p>
+<p>-They already departed when I spoke with the East Weapon representative earlier. It's a short distance, so they'll arrive soon.</p>
+<p>They're leaving right away; their agility is impressive. Maybe Sawayanagi Azuma's precognitive abilities allowed her to prepare in advance. No, seeing that they left immediately, it seems she's indeed coming here using her precognition.</p>
+<p>I want to ask Sawayanagi Azuma when this war will end. If the war doesn't end soon, Yukiko will get sulky because we can't go out and play, and it'll be hard to appease her.</p>
+<p>"Then I'll contact you again with good news."</p>
+<p>-Okay, just don't get hurt. We'll also respond based on the situation, so let's keep each other informed if anything comes up.</p>
+<p>"Yes, be careful not to get hurt too, Nuna-nim."</p>
+<p>After ending the call with Nagumo Sian, I took off my clothes to put on the cyber suit that Mimata Chieri brought. Mimata Chieri was visually licking my body like a lecherous old man. This won't do. I need to establish discipline on the bed later.</p>
+<p>"They said the Seryu-tai side left right away?"</p>
+<p>"Kakunodate and Daisen are much closer than Akita City, so they'll arrive in twenty-five minutes."</p>
+<p>Then I should prepare quickly and leave in thirty minutes.</p>
+<p>"Did you tell the East Weapon soldiers to prepare?"</p>
+<p>"Yes, I told them when I took Sunbae-nim's cyber suit earlier."</p>
+<p>Then I can leave right away without needing to gather them separately. I was about to take off all my clothes and put on the cyber suit when Mimata Chieri subtly approached me. Her expression was strange and she seemed to be craving something.</p>
+<p>"Sunbae-niim...."</p>
+<p>"There are only twenty minutes left? There's no time for that...."</p>
+<p>Could she possibly be suggesting sex with only twenty minutes left? Mimata Chieri chuckled at my words.</p>
+<p>"Do you think I'm such a pervert that I'd suggest doing it even in this situation?"</p>
+<p>"Well...!"</p>
+<p>"Ah, Sunbae-nim!"</p>
+<p>Mimata Chieri shouted, about to yell because I couldn't answer immediately. Seeing her wronged expression, it didn't seem like she approached me for anything lewd.</p>
+<p>"Then what's the matter?"</p>
+<p>"Do you know that Sunbae-nim has become a huge star now?"</p>
+<p>"Huh? What am I...!"</p>
+<p>Ah, right. I filmed a music video. The news even reached Japan.... Seeing Mimata Chieri's slyly teasing expression, it seemed she definitely watched the music video. I opened my mouth to make excuses in a hurry.</p>
+<p>"A friend's mother is an actress, and the other actor got arrested for drugs, so I was urgently asked to fill in; I couldn't help it."</p>
+<p>"So, did you kiss your friend's mother?"</p>
+<p>I did more than kiss. Of course, there was no need to tell Mimata Chieri every detail, so I didn't say anything. Mimata Chieri's face was already red, seemingly very excited that I kissed Ha Ju-yoon.</p>
+<p>"Hey, Sunbae-nim."</p>
+<p>"Heeuung.... Friend's mom...♥ Sunbae-nim is a pervert♥"</p>
+<p>"Hey, it was just filming, okay?"</p>
+<p>She didn't seem to be listening to me anymore, so I sighed and put on the cyber suit. It was the same suit I wore before, so it fit perfectly. I decided to put on the helmet later and turned on the tablet PC that Mimata Chieri handed me with the suit to review the data until the Seryu-tai people arrived.</p>
+<p>The map showed the Kakunodate area. Since they'll probably be monitoring the road from the building near the post office, Kakunodate is a town in the Senboku area, not a city, so it's a place where low buildings continue along the road. There were only one- or two-story buildings, so it seemed difficult for Kurotsukido to monitor from afar.</p>
+<p>Still, since all the troops from Akita City are being deployed, it'll be impossible not to get caught. Anyone would notice if numerous transport vehicles drove in a row with their lights on late at night.</p>
+<p>"Sunbae-nim, they said the Seryu-tai people have arrived."</p>
+<p>"They came quickly?"</p>
+<p>I was studying the terrain while looking at the tablet PC when Mimata Chieri, who had regained her senses, received a call from a soldier at the base entrance and told me.</p>
+<p>Only fifteen minutes have passed; how fast did they drive? As I put the tablet down and stood up, the tent door opened and Sawayanagi Azuma entered. Sawayanagi Azuma saw me, ran over, and hugged me. It's been a while since I hugged a woman, so Johnson is trying to react a bit.</p>
+<p>"Investor-nim! I missed you~!"</p>
+<p>"Azuma-ssi, have you been well?"</p>
+<p>Was it a bit much to ask if she's been well? She must have only been fighting for the past six days while I was gone. Whether my worries were unfounded, Sawayanagi Azuma nodded with a bright expression.</p>
+<p>"Yes! The president of Taira Foods praised us for doing well~! We also recaptured Yurihonjo City and defended well when the enemies attacked Daisen City."</p>
+<p>Well, they recaptured a city and carried out several missions with only 10 people, so they couldn't help but receive a good evaluation. Certainly, if this war ends in victory, both Seryu Military Company and East Weapon will gain quite a bit.</p>
+<p>"If this operation is successful, you'll receive an even better evaluation. And...."</p>
+<p>"And?"</p>
+<p>"If you succeed in this operation within two days, I'll grant you one request. Of course, something I can do."</p>
+<p>"R-really?"</p>
+<p>When I said I'd grant her a request, Sawayanagi Azuma's eyes lit up and she asked again. Seeing that, Mimata Chieri ran over to my side, dododo.</p>
+<p>"Sunbae-nim! What about me?"</p>
+<p>"Giving Sunbae-nim a request ticket is a bit scary, though?"</p>
+<p>"Sunbae-nim!!"</p>
+<p>"Just kidding. I'll grant Sunbae-nim a request too. Keep in mind, it's a request ticket if you succeed within two days."</p>
+<p>"Yes~!"</p>
+<p>"Two days should be enough."</p>
+<p>At my words of two days, Mimata Chieri excitedly raised her hand and answered, and Sawayanagi Azuma closed her eyes for a moment and said it seemed enough. She probably confirmed it with her precognition; does that mean it'll be decided within two days? Then that's good for me since my schedule won't be delayed.</p>
+<p>Well, Sawayanagi Azuma probably won't make a big request, and Mimata Chieri will probably ask me to show her how I have sex with other women. The two of them were already distracted by the request ticket I mentioned, pulling my arm and telling me to leave quickly.</p>
+<p>"Tobe-ssi and I will be at the forefront. The remaining Seryu-tai members can deal with the enemies using their respective strengths. If East Weapon attacks when Tobe-ssi and I create chaos at the front, you'll be able to win even if you're outnumbered."</p>
+<p>"Then Sunbae-nim will have to ride in the same transport vehicle as the Seryu-tai side?"</p>
+<p>"I have to go with Tobe-ssi, so I have to go together."</p>
+<p>It was convenient in many ways to be with Seryu-tai since I needed to draw aggro at the front with Tobe, who has the steelification ability. Mimata Chieri seemed disappointed that we hadn't spent much time together since I returned from Korea, but it couldn't be helped.</p>
+<p>"I understand. Don't get hurt, Sunbae-nim!"</p>
+<p>"Sunbae-nim, you're the one who shouldn't get hurt."</p>
+<p>After a brief farewell, Mimata Chieri went to command East Weapon, and I boarded the transport vehicle that the Seryu-tai people were in. It was originally a vehicle that was divided into two cars, but it was a large armored vehicle that could accommodate everyone, probably newly received.</p>
+<p>"We received it as payment instead of money for the lab mission back then. The armor is really good, it can carry a lot of people, and it can carry a lot of luggage, so it's great."</p>
+<p>Ah, the lab recapture mission was a mission commissioned by Taira headquarters, so they were able to receive compensation right away.</p>
+<p>"Investor-nim!"</p>
+<p>"Did you come to help us?"</p>
+<p>"We saw it! The music video Investor-nim was in!"</p>
+<p>"Oh! Movie Star!"</p>
+<p>Ah.... The music video must have already spread to Japan. Only Sawayanagi Tobe and Sawayanagi Sinya, who didn't seem very interested in music videos, didn't seem to know, and most of them seemed to know that I was in the music video.</p>
+<p>I watched it when the music video first came out and haven't seen it since; how much of a hit was it? After greeting everyone, I sat in an empty seat. Everyone boarded the vehicle and we departed for our destination, Kakunodate. I spoke to Sawayanagi Azuma, who was sitting across from me.</p>
+<p>"Does Seryu Military Company not accept new recruits?"</p>
+<p>"New recruits?"</p>
+<p>"Yes, during my trip to Korea this time...."</p>
+<p>I told them about the children I bought in Kraskino. Everyone perked up their ears and listened to my story, and when I asked if it would be okay to have about four talented boys and girls join Seryu Military Company, everyone agreed.</p>
+<p>Since the people of Seryu Military Company are much more familiar with ability users than ordinary people, they seemed to agree right away.</p>
+<p>"They're not from the same experimental background as us, but they've all gone through difficult times, so we'll take good care of them."</p>
+<p>"What kind of abilities do they all have?"</p>
+<p>When Sawayanagi Azuma nodded, saying she would take good care of them, Sawayanagi Seari, who was sitting next to her, asked me with curiosity.</p>
+<p>"One has the ability to change their body like Tobe-ssi, but that kid can change their body into rock."</p>
+<p>"Hmm...!"</p>
+<p>Sawayanagi Tobe snorted, seemingly a bit excited that a junior with a similar position to him was appearing. The more tanks there are, the more stable the team is, so if they train well, it would be good for Seryu Military Company as well.</p>
+<p>"One is a regeneration ability user, and one has clairvoyance. The last one is an electricity ability user."</p>
+<p>Everyone I mentioned had decent abilities, so the Seryu-tai people all had welcoming expressions. In fact, they're the kind of people who would smile and accept them even if their abilities weren't great, so they were probably just happy to welcome a new family member.</p>
+<p>If I keep picking up (?) ability users like this, Seryu-tai might become the best PMC in Japan. I really hope that happens. It would be a very gratifying thing as an investor.</p>
+<p>----</p>
+<p>Kakunodate Location</p>
+<p>It's a crucial strategic point in the current war situation!</p>

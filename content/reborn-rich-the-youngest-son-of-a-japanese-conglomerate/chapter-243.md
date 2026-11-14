@@ -5,84 +5,72 @@ weight = 243
 chapter = 243
 +++
 
-<p>I was searching the Fitzgerald mansion, opening my senses as much as possible to find Arisu's room. Of course, my dick, still retaining the heat of Mimata Chieri's pussy, hadn't died down yet.</p>
-<p>"Hum~♬ Hum~♪ I shall conquer the enemy general's pussy before my dick cools down."</p>
-<p>I was humming a tune, thinking about being able to do it with Arisu after a long time, and muttering Guan Yu's famous lines as I pleased, wandering around to feel Arisu's presence. Of course, it would be much easier to find her room if I called her, but for some reason, today I was in the mood for a sneaky night visit.</p>
-<p>Hmm, the guest rooms were on the first floor, and the maids and butlers were sleeping in the staff quarters next to the mansion... Let's go up to the second floor first. Yes! It seemed like the second floor was the right answer. As soon as I came up to the second floor, I could feel a presence in the corner room.</p>
-<p>Then, does Nae Fitzgerald sleep on the third floor? Or maybe she came to New York after a long time and might be doing other work. Rather than wondering about Nae Fitzgerald, it was a priority to release the white liquid that was pooling in my balls.</p>
-<p>I quietly opened the door. As soon as I opened the door, the scent of a mature woman wafted out. Well, it's been a while since I did it with Arisu, so she'd be pumping out a lot of pheromones.</p>
-<p>Arisu was lying face down, burying her face in the pillow, wearing a thong that revealed her bouncy ass.</p>
-<p>I climbed onto the bed and massaged Arisu's ass. As expected, the texture of the firm, bouncy, and large ass that Orientals can't beat was addictive the more I touched it. She seemed to be asleep, judging by how she was letting me touch her ass.</p>
-<p>Arisu was slowly spreading her legs, perhaps because of the ass massage while sleeping. With space to go down, I slowly went down from her ass and stroked her pussy.</p>
-<p>"Huuu...."</p>
-<p>She didn't seem to have woken up. She seemed to be moaning unconsciously. Her dry pussy gradually became moist, and before I knew it, it was wet and sticky.</p>
-<p>I pulled down her thong and pushed my dick, which had been erect since earlier, into her pussy. It seemed like I could insert it enough since Arisu wasn't a virgin and she was wet enough.</p>
-<p>"Huuung...!"</p>
-<p>Arisu moaned even while sleeping as my dick entered. Her voice was a little hoarse, probably because she was quite tired today.</p>
-<p>"Keueut, Arisu...!"</p>
-<p>Her pussy was tighter than usual today. She's not a virgin, but it's as if... her pussy, used to the smaller dicks of other men than mine, was surprised by the different, huge dick and was pushing it away... Could it be?</p>
-<p>I pretended not to know anything and naturally shook my waist while touching her breasts. I could tell without even rubbing them a few times. This woman wasn't Arisu! Her breasts were bigger than Arisu's. Then, this woman was... Nae Fitzgerald. No, how could I not have noticed this, even though they look so alike.</p>
-<p>Now that it's come to this, I have to keep going with the stance that I thought it was Arisu. If I stop now, or if I reveal that I noticed it wasn't Arisu and continue, I'll become a bastard who intentionally raped his aunt, but if I keep saying Arisu's name, it'll just feel like I made a mistake.</p>
-<p>"Arisu, keut, Arisu's pussy feels so good."</p>
-<p>I kept whispering "Arisu, it feels so good" into Nae Fitzgerald's ear while shaking my waist.</p>
-<p>"Heuuut...! Eueung♥ Heuuheung♥"</p>
-<p>"Arisu...!"</p>
-<p>I kept calling Arisu's name, even though it sounded awkward to me, and did my best to make Nae Fitzgerald feel good. Still, since I have the effects of my special traits, if I make her feel good, she won't punish me, right? There was a high probability that she would just let it go.</p>
-<p>Nae Fitzgerald's pussy seemed to be pushing away my dick, an unfamiliar intruder, but before I knew it, it had gotten used to my dick and was sucking my dick deep inside.</p>
-<p>"Haaht, Haeuuheung...! Heuuht! Eueung...!"</p>
-<p>Nae Fitzgerald's ass rippled with my hip movements. At first, I was flustered, but the situation itself was so hot that I felt the urge to cum faster than usual.</p>
-<p>"Keueut...! I'm cumming, Arisu!!"</p>
-<p>I pulled my dick out of her pussy, which was clinging to me as if not wanting to let me go, and sprayed my semen on Nae Fitzgerald's back.</p>
-<p>Byureut! Byureut! Beut!</p>
-<p>Perhaps because it was a very depraved and exciting situation, even more semen than usual came out and dirtied Nae Fitzgerald's back. The milky white liquid pooling between Nae Fitzgerald's two spinal erector muscles was somehow a very erotic scene, so I was very turned on, but I couldn't do it again here.</p>
-<p>It was a waste to only do it twice, but now was the time to retreat, not advance. I watched Nae Fitzgerald's back, which was moving up and down as she breathed heavily, and leaned in slightly to kiss her neck.</p>
-<p>"Good night, Arisu."</p>
-<p>I called Nae Fitzgerald "Arisu" until the end, and closed the door and left. Hmm, I hope it didn't seem awkward?</p>
-<p>###</p>
-<p>Two hours ago.</p>
-<p>"Mom, I'm going to the Relic Tower."</p>
-<p>After making plans for a while, Arisu Fitzgerald told Nae Fitzgerald that she would go to the Relic Tower before going home. The Relic Tower was a space that Nae Fitzgerald had built in New York to store stolen goods. Arisu also built a Relic Tower in Japan following her, but of course, she hadn't caught up with her mother's collection yet, as there was a difference in the years of work they had done.</p>
-<p>"I'm going to give it all to you when I die anyway, so why do you keep looking at it?"</p>
-<p>"I just like looking at treasures...."</p>
-<p>Nae Fitzgerald sighed as if she couldn't help it, because Arisu Fitzgerald had liked looking at treasures since she was a child, and opened her mouth.</p>
-<p>"But you have to come home early, okay? You have to sleep if you want to play with Ryuta, whom you like, tomorrow."</p>
-<p>"Okayyy. Don't nag me, and you go in quickly, Mom."</p>
-<p>The two mothers parted ways there, Arisu Fitzgerald went to the Relic Tower, and Nae Fitzgerald headed to the Fitzgerald mansion.</p>
-<p>"Have you arrived? Where is Arisu-nim?"</p>
-<p>"She said she's going to play a little more, so you can rest, Butler-nim."</p>
-<p>Nae Fitzgerald answered the butler, who asked about Arisu Fitzgerald's whereabouts, and went up to the room on the second floor. Originally, the Fitzgeralds' master bedroom was the largest room on the third floor, but when her husband, Oliver Fitzgerald, was away, she used the room on the second floor.</p>
-<p>The room on the third floor was too big to use alone, and she felt her husband's absence, so she used the room prepared for her alone on the second floor when she was alone.</p>
-<p>Nae Fitzgerald took a shower and lay down as she was, wearing only panties. She was confident in her stamina, but she was exhausted from constantly flying and meticulously planning operations so that the reputation of the Phantom Thief François would not be tarnished.</p>
-<p>Did she fall asleep for a moment? Nae Fitzgerald woke up halfway to the sound of the door opening. Feeling it with the sharp senses of a phantom thief, it was a large man. Was it her husband? Did his business trip end earlier than expected?</p>
-<p>Her husband had sometimes come in and enjoyed passionate sex when she was sleeping alone, so Nae Fitzgerald smiled slightly and pretended to be asleep.</p>
-<p>As expected, he started touching her ass from the beginning. Nae Fitzgerald was also confident in her ass. Her husband also liked her ass the most out of Nae Fitzgerald's body, so she thought he would touch her ass right away.</p>
-<p>Perhaps because it was sex after a long time, the inside of her stomach became ticklish and she slowly spread her legs without realizing it. Her husband didn't miss the gap between her spread legs and touched her pussy.</p>
-<p>"!"</p>
-<p>It was different than usual. Just touching the outside of her panties gave her tremendous pleasure. Was it because it had been too long? Nae Fitzgerald still wanted to pretend to be asleep, so she buried her face in the pillow and suppressed her moans.</p>
-<p>"Huuu...."</p>
-<p>Even though she suppressed her moans, the sound came out without her knowing, as if it was leaking from somewhere. So much fluid came out of her pussy that it was embarrassing for her.</p>
-<p>Her husband must have felt that it was time and pulled down her panties and inserted his dick.</p>
-<p>'It's not Oliver!'</p>
-<p>She realized it the moment he inserted it. It wasn't her husband, Oliver Fitzgerald. The dick of an unknown man was bigger, harder, and hotter than her husband's dick, and above all... it felt good.</p>
-<p>"Keueut, Arisu...!"</p>
-<p>The voice that came out of the man's mouth was the voice of her nephew, Taira Ryuta, whom she hadn't seen much. What was even more surprising than his voice was that Taira Ryuta thought she was Arisu Fitzgerald and was fucking her now.</p>
-<p>She knew that Arisu Fitzgerald liked Taira Ryuta, but she thought she just liked him as a cousin, but to think they were in this kind of relationship...! Moreover, she was a married woman, so she should pull out this dick right away and give him a lecture as an aunt. It was just a mistake, so she wouldn't make the situation bigger, but....</p>
-<p>However, Nae Fitzgerald couldn't think properly anymore. Tremendous pleasure came right away. It was a pleasure she had never felt even during her long married life. It was a tremendous pleasure, as if she was becoming a small dot in a vast universe.</p>
-<p>"Arisu, keut, Arisu's pussy feels so good."</p>
-<p>Taira Ryuta whispered Arisu Fitzgerald's name into Nae Fitzgerald's ear and shook his waist. Even though it wasn't her name, the voice felt sweet. Whatever the name, it meant that her pussy felt good.</p>
-<p>"Heuuht...! Eueung♥ Heuuheung♥"</p>
-<p>"Arisu...!"</p>
-<p>Taira Ryuta kept calling Arisu Fitzgerald's name and shook his waist violently. For some reason, Nae Fitzgerald was upset that Taira Ryuta wasn't calling her name, but she couldn't reveal herself in this situation.</p>
-<p>"Haaht, Haeuuheung...! Heuuht! Eueung...!"</p>
-<p>She was shamelessly making vulgar moans that she hadn't even made during sex with her husband, experiencing several orgasms, when she heard Taira Ryuta's urgent voice.</p>
-<p>"Keueut...! I'm cumming, Arisu!!"</p>
-<p>'No, don't cum inside♥'</p>
-<p>Nae Fitzgerald couldn't bring herself to say that he shouldn't cum inside. Surely, if the hot semen coming out of this young man's dick came inside her, it would feel incredibly good. But as a wife of a man, receiving semen from another man was something she shouldn't do.</p>
-<p>Nae Fitzgerald couldn't do anything because she felt both emotions at the same time.</p>
-<p>Fortunately or unfortunately, Taira Ryuta pulled his dick out of Nae Fitzgerald's pussy and started cumming on her back.</p>
-<p>It was a tremendous amount. If she were to hold this hot and abundant semen in her womb, it would surely feel incredibly good.</p>
-<p>"Good night, Arisu."</p>
-<p>Taira Ryuta finished cumming, kissed Nae Fitzgerald's neck, and left the room. The kiss was as hot as a brand. It was so hot that it was still burning even after Taira Ryuta left.</p>
-<p>Nae Fitzgerald lay face down and took off her panties, which were soaked with fluid. Then, she supported herself with her arms and lifted only her upper body. She could feel the semen pooling on her back flowing down. She looked at the door that Taira Ryuta had left through for the last time.</p>
-<p>"I want to feel it one more time...."</p>
-<p>Nae Fitzgerald was surprised by the words she had said without realizing it! Today was a mistake and it was something that would never happen again. There's absolutely no way, but she wants to feel it one more time...! Nae Fitzgerald shook her head violently to come to her senses.</p>
+<p>After saying goodbye to Nae Fitzgerald, who ended up crying at our parting (Arisu gets sent off with a smile whenever she goes somewhere, but she got mad at Nae Fitzgerald for crying when she was saying goodbye to me), we boarded the plane to LA.</p>
+<p>Even though it was the same country, the United States, New York in the East and LA in the West meant the flight time was close to 5 hours. They say this is faster because the engines have been further developed through war, so it must have taken even longer before.</p>
+<p>We were tired because we had stayed up all night at the auction, even though we took naps, so we flew over the United States asleep on the plane. When I opened my eyes, we had arrived at LA International Airport.</p>
+<p>There were many people to meet at the airport. Arisu was being awaited by her friend and actress Hanasaki Sayaka, and we were being awaited by my friend Kiyohira.</p>
+<p>In addition, an investment contract with Mother Maas was being prepared at a hotel cafe near the airport, so we were scheduled to be busy from the airport.</p>
+<p>"Yo~!"</p>
+<p>Among the many crowds, Kiyohira, with his white hair and menacing face, waved at us. I'm close to him, so it feels friendly, but Kiyohira looks pretty damn scary.</p>
+<p>With his muscular body trained in martial arts and his delinquent appearance, he had a look that wouldn't be subject to racism anywhere. But everyone in the group already knew Kiyohira, so we approached him happily.</p>
+<p>"Thanks for coming."</p>
+<p>"What, isn't it easier for me to give you a ride than a taxi? I'm staying at Rinka-nim's house anyway. Now that you guys are here, I can use that as an excuse to see Rinka-nim, which is great."</p>
+<p>Kiyohira respected Fujigasaki Rinka very much as a fighter, so he seemed very excited to be able to stay at Fujigasaki Rinka's house thanks to us.</p>
+<p>He had been friends with Rinka since high school, but he couldn't just stay at her house without a reason, so he must have thought it was a good opportunity because I, Fujigasaki Rinka's disciple, was coming.</p>
+<p>"Wait a minute, I'll call Sayaka."</p>
+<p>Arisu looked around and picked up her phone, saying she would call because she couldn't find Hanasaki Sayaka.</p>
+<p>"Huh? She's over there? Okay, I'll go."</p>
+<p>After talking for a while, Arisu hung up and moved us along. Hanasaki Sayaka was</p>
+<p>She said she was waiting for us in the lounge near the immigration checkpoint, which we didn't need to go to because we came on a domestic flight within the US.</p>
+<p>We picked up Hanasaki Sayaka, who was anxiously waiting for us alone. But she's a pretty famous actress in Japan, so why is she alone without a manager? Is it okay for her to be out here alone like this?</p>
+<p>"Hello, Ryuta-ssi! Thank you for letting me stay at Rinka-nim's house! Thank you for the autograph you gave me before, too!"</p>
+<p>Hanasaki Sayaka bowed ninety degrees to me as she greeted me. Ah, right, she was a huge fan of Fujigasaki Rinka.</p>
+<p>"Ah, yes. Shall we go to the car first? This is Genba Kiyohira, who will be our driver during this trip to the United States."</p>
+<p>"Hello."</p>
+<p>"Ah! I know you. You're active in UMC, right? Please sign this for me!"</p>
+<p>It seemed that Hanasaki Sayaka was not only a personal fan of Fujigasaki Rinka, but also liked martial arts itself. Kiyohira, with a slightly embarrassed expression, signed the autograph paper that Hanasaki Sayaka handed him and led us.</p>
+<p>"I heard there were quite a few people, so I deliberately rented a bigger car."</p>
+<p>Kiyohira, who arrived at the parking lot, said as he opened the door of a large Starcraft van that looked like it was for an idol group.</p>
+<p>Well, two of our members are celebrities, so it's not strange to ride in a car like this. I put Arisu, Hanasaki Sayaka, and Mimata Chieri in the back so they could chat, and I sat in the passenger seat next to Kiyohira. It seemed like we could move while catching up with Kiyohira.</p>
+<p>"When is your match?"</p>
+<p>"It's scheduled for November. Against the 3rd place guy."</p>
+<p>If it's November, shouldn't he be training hard now? It's the end of July now... There's still some time left, so is it okay for a few days?</p>
+<p>"I wonder if Kazuhiro is training right now?"</p>
+<p>Kazuhiro had a game tomorrow, so we couldn't meet him today. It was a derby match between FCLA and LA Andromeda, so he said he was preparing thoroughly. Kazuhiro got us hard-to-find tickets for the derby match, so we had a plan to watch Kazuhiro's game tomorrow and have a party at Fujigasaki Rinka's house.</p>
+<p>For reference, Fujigasaki Rinka is still in some national park and said she would arrive around the time of the party at her house tomorrow. If the plane is delayed or something, there was a possibility that it would be a home party without the host.</p>
+<p>After driving for about 5 minutes, we arrived at the hotel closest to the airport. The appointment with the president of Mother Maas was here, so we got out of the car.</p>
+<p>"While we're doing the contract, the others can hang out at the hotel. Or you can hang out around here..."</p>
+<p>I and my secretary Mimata Chieri were going to do the contract, so I told the others and headed to the hotel cafe. Kiyohira, who knows the surrounding area well, will guide them well. Arisu has been to LA often, so it won't be boring.</p>
+<p>"It should be reserved under the name Mother Maas."</p>
+<p>"I'll guide you."</p>
+<p>Guided by the clerk, we were led to a room. Inside the not-so-large room, a table was set up, and a middle-aged white man with gray hair and a slightly anxious expression was sitting.</p>
+<p>Next to him stood a beautiful white woman with silver hair and a slightly expressionless face, and although she was quite younger than I knew, I could recognize her at a glance.</p>
+<p>It was Vivienne Taylor, the Chairman of Mother Maas, the chairman of the five major megacorps in the United States in TMC, the previous work of the youngest son of Megacorp and the future timeline. Of course, she's my age now, so she's not the chairman, but the daughter or close relative of the man who's here now. In TMC, she was the typical megacorp chairman with no blood or tears, but I don't know what she's like now.</p>
+<p>"Hello, I'm Taira Ryuta, who contacted you."</p>
+<p>"Ah, hello. I'm Liam Taylor, the president of Mother Maas. This is my niece and secretary, Vivienne."</p>
+<p>I thought she was his daughter, but she was his niece. I sat down in the seat facing Liam Taylor, and Mimata Chieri stood next to me like Vivienne Taylor.</p>
+<p>As expected of Liam Taylor, who came from the head of a research institute that was under NASA and then became independent, his eyes were full of intelligence. However, like many people from research positions, he had a somewhat lacking spirit, like a scholar.</p>
+<p>"We're both busy with business, so let's get straight to the point. How much money do you need and how much equity can you give?"</p>
+<p>"The crops that are suitable for Martian soil that we're currently working on..."</p>
+<p>Liam Taylor clearly told me to get straight to the point, but he started to explain something, which was a bit frustrating, but I couldn't just cut him off rudely, so I kept listening.</p>
+<p>In the end, the conclusion of Liam Taylor's 10-minute story was that they are currently conducting research to grow crops suitable for Martian soil, so the more they invest for the future of humanity, the better.</p>
+<p>"How much equity can you give for ten million dollars?"</p>
+<p>"Hmm..."</p>
+<p>At my words, Liam Taylor glanced at Vivienne Taylor. He was probably looking at her with an expression of, "What should we do?" because Vivienne Taylor majored in economics and management and knows more about it. Vivienne Taylor sighed softly and opened her mouth to me.</p>
+<p>"We're not a start-up, so we can't give you a lot of equity. If you look at this data, you can see that if the research is successful, the value of our Mother Maas can be seen as astronomical. For ten million dollars, we can give you about 0.5 percent, considering the future value."</p>
+<p>Vivienne Taylor probably thought that 0.5 percent for ten million was appropriate or a little reduced, but I thought it was a windfall to be able to buy equity in Mother Maas, which would become a megacorp in the future, at this price. But I can't accept it right away, so I have to haggle a little more.</p>
+<p>"How about investing fifty million dollars and receiving 10 percent equity?"</p>
+<p>I was arguing for 2 percent per ten million, which is four times Vivienne Taylor's claim of 0.5 percent per ten million. At those words, Vivienne Taylor shook her head as if it was absolutely impossible.</p>
+<p>"If you invest up to fifty million, we'll give you up to 7 percent."</p>
+<p>"Okay."</p>
+<p>When I nodded immediately, Vivienne Taylor and Liam Taylor had a dazed expression. I didn't necessarily want to take too much equity. If I had too much equity, the future could change. If I get greedy and the future changes and Mother Maas becomes just another company, it's my loss, so I have to keep it moderate.</p>
+<p>Later, when Mother Maas becomes one of the megacorps representing the United States, this 7 percent equity will have tremendous value.</p>
+<p>"In addition, you must include a clause that we will be the preferred negotiating partner if you ever sell your equity again."</p>
+<p>"Sure."</p>
+<p>It seemed to be a clause for defending management rights. We accepted Mother Maas's last request, signed the contract, and even signed the equity transfer agreement. It was a speed like roasting beans in a flash of lightning. Mimata Chieri sent the money to Mother Maas's account, Liam Taylor made the final signature, and we were able to exchange money and equity.</p>
+<p>------The current appearance of the two future megacorp presidents!</p>
+<p>Vivienne Taylor</p>
+<p>Vivienne enjoys wearing suit pants, even though she's a woman.</p>
+<p>But our Yu-gyeong is....</p>
+<p>She likes skirts!</p>
+<p>Mini skirts are no exception, hehe.</p>

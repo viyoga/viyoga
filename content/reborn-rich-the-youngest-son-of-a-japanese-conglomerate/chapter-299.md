@@ -5,94 +5,100 @@ weight = 299
 chapter = 299
 +++
 
-<p>The first thing the three women did was a three-person fellatio. Lianna Holden and Sawayanagi Azuma were sucking my glans like they were kissing, or like sucking on candy, while Mimata Chieri was licking the shaft.</p>
-<p>"Keueut!"</p>
-<p>A three-person fellatio...! As three tongues intertwined, sucking and licking my dick, an incredible pleasure flowed down my spine. Along with a chilling sensation, I felt a tickling that made me feel like I was going to cum any second.</p>
-<p>"Eoae yo, ibun jeoa?"</p>
-<p>Sawayanagi Azuma asked while sucking. I think she was asking, "How is it, does it feel good?" so I nodded my head, saying, "It's good." Everyone laughed, as if my interpretation was correct, and licked my dick even more intensely with their tongues.</p>
-<p>Chup, chuup, tsuptsup...!</p>
-<p>Indeed, the three-person joint attack was strong. In the end, I couldn't hold back any longer and came for the first time today.</p>
-<p>Buut! Byuut! Buuuk!!</p>
-<p>"Hyat!"</p>
-<p>"Kyaak...!"</p>
-<p>"Heueung~♥"</p>
-<p>Since no one was sucking the hole, the semen floated into the air and fell onto the women's faces with a pattering sound.</p>
-<p>As always, the amount of my semen was enormous, so the three of them were covered in a huge amount of semen on their faces.</p>
-<p>The three of them laughed at each other's appearance, then started licking each other's faces and eating my semen. That sight turned me on again, and my dick quickly regained its strength.</p>
-<p>After that, I fucked them one by one, and when I fucked one, the remaining two caressed my whole body to make me cum quickly. It was as if they wanted their turn to come quickly.</p>
-<p>"Heueung...! Heueut...♥ Investor-nim~! Gibun joayo...."</p>
-<p>Sawayanagi Azuma, who was the first in line, moaned as she was impaled by my dick, Lianna Holden was sucking on my nipples, and Mimata Chieri was licking my ass.</p>
-<p>Since I had already came once, I didn't act like a premature ejaculator. It's not like I have premature ejaculation anyway.</p>
-<p>Sawayanagi Azuma seemed excited by this situation, closing her eyes and enjoying my dick, and I also enjoyed Sawayanagi Azuma's tight pussy and shook my hips.</p>
-<p>"Haeunghut! Something hot is coming in♥"</p>
-<p>Since there wasn't much time left until dinner, I didn't hold back my orgasm and immediately ejaculated deep inside Sawayanagi Azuma's pussy.</p>
-<p>"Next, put it in me, Honey♥"</p>
-<p>I don't know when they decided the order of who would have sex next, but next was Lianna Holden. I pulled my dick out of Sawayanagi Azuma's pussy and shoved it straight into Lianna Holden's.</p>
-<p>Since it had been in Sawayanagi Azuma's pussy just a few seconds ago, I couldn't help but compare it to Lianna Holden's pussy. Lianna Holden's texture was softer than Sawayanagi Azuma's tight pussy. I liked the feeling of my entire dick being enveloped.</p>
-<p>With just a little hip shaking, Lianna Holden couldn't control her abilities again and was moaning telepathically.</p>
-<p>-Heueung! honey's Big dick feels so good♥</p>
-<p>Being called "big dick" wasn't a bad compliment. Encouraged by those words, I shook my hips vigorously, and soon Sawayanagi Azuma, who had recovered from her climax, clung to me.</p>
-<p>Now Mimata Chieri was sucking on my ear, and Sawayanagi Azuma started sucking on my neck. She sucked so hard that it would leave a bruise, but it would probably recover before dinner because of regeneration.</p>
-<p>-Kiss me, honey...! kiss me♥</p>
-<p>The advantage of having sex with Lianna Holden was that I could hear her moans telepathically while kissing.</p>
-<p>As I kissed and shook my hips up and down while connected, Lianna Holden crossed her legs in an X shape. The close contact between skin and skin felt pretty good.</p>
-<p>The pleasure grew as I felt like my whole body was connected.</p>
-<p>-Heueung, heueueung♥ honey's dick feels so good...!</p>
-<p>With Lianna Holden's telepathy penetrating my mind, the close contact, and the caresses of the other two, I could feel the semen rising from my balls again.</p>
-<p>-Put honey's white Milk inside me...!</p>
-<p>Lianna Holden must have known that I was about to cum, as she pulled my legs even closer and pressed my waist against her. I pressed my glans against Lianna Holden's cervix and forcefully released my white milk.</p>
-<p>Byuut! Beut! Byuut!!</p>
-<p>-Haeueut! Fuck! fuck...me♥ It's hot, honey's lava Milk feels so good♥</p>
-<p>Lianna Holden rolled her eyes back and reached orgasm as I came. As I pulled out my cum-filled dick and scratched the inside of Lianna Holden with my glans, Lianna Holden fluttered and trembled.</p>
-<p>This time it was Mimata Chieri's turn. Looking at the time, it seemed like it would be perfect to inject semen into Mimata Chieri's insides and then have dinner.</p>
-<p>"Sunbae-nim, what position would you like me to do?"</p>
-<p>"The same position as the previous two♥"</p>
-<p>Mimata Chieri, who has a netorare preference, always made me do the same position with other women, and it seemed like it would be the same this time.</p>
-<p>"Then spread them."</p>
-<p>"Nehee...♥"</p>
-<p>Mimata Chieri blushed and followed my orders. She sat on the bed, spread her legs, and opened her pink pussy.</p>
-<p>I inserted my dick, which was still covered in Lianna Holden's juices and my semen, into Mimata Chieri's pussy.</p>
-<p>"Heuaaang♥ I love it, the Sunbae-nim's perverted dick that was fucking another woman's pussy feels so good...!"</p>
-<p>I don't know how broken she is, but Mimata Chieri moaned while saying depraved things.</p>
-<p>"You like that Lianna Holden's juices were on my dick?"</p>
-<p>"Heuheung! I love it, Sunbae-niim♥ Joayohoot...!"</p>
-<p>At my words, the inside of her pussy twitched as if she was slightly gone. It felt like it was pulling my dick inward as if sucking it in, and when I pulled my dick back, her pussy lips clung to it as if they wouldn't let go.</p>
-<p>"Haeut! I love it...! Sunbae-nim's huge thing feels so good♥"</p>
-<p>Unlike Lianna Holden, Mimata Chieri hugged me tightly with her arms and moaned in my ear.</p>
-<p>"Heung, haeut! Eung...! Heueut!"</p>
-<p>Mimata Chieri's breath and moans brushing against my ear further aroused me, and Sawayanagi Azuma and Lianna Holden's caresses also hastened my orgasm.</p>
-<p>"Haeut! Eueung...! Sunbae-niim♥ Put it inside! Haaang...♥"</p>
-<p>I made big piston movements, repeating the process of only hooking the glans when pulling out and inserting it all the way to the end of the cervix when inserting. Mimata Chieri writhed in pleasure felt throughout her pussy and begged for ejaculation.</p>
-<p>"What should I put inside?"</p>
-<p>"Sunbae-nim's, breeding juices, put the breeding juices inside me♥"</p>
-<p>Breeding juices.... I thought her creativity was amazing for thinking of such a titillating word. As Mimata Chieri begged, I filled her womb with breeding juices.</p>
-<p>"Haaaaa...♥"</p>
-<p>Mimata Chieri was enjoying the languid pleasure while twitching. As I pulled out my dick, white, lumpy semen flowed out. Sawayanagi Azuma and Lianna Holden sucked my dick as if they had been waiting for me to pull it out, cleaning it thoroughly.</p>
-<p>"It's dinner time. Shall we go eat dinner?"</p>
-<p>I said, looking at the two who were cleaning my dick and Mimata Chieri, who was sprawled out.</p>
-<p>###</p>
-<p>The women in room 203 next to Taira Ryuta's room were speechless.</p>
-<p>The sound of squelching and the moans of the women who seemed to be feeling immense pleasure, and even Lianna Holden, unable to control her superpowers, even broadcast her lewd moans to the women in the next room via telepathy.</p>
-<p>Fortunately for Lianna Holden, the range of the telepathy she emitted in pleasure was only as far as Taira Ryuta's next room. Sawayanagi Azuma had not booked a room below Taira Ryuta's room in case the sound leaked out, so there was no possibility of others hearing it.</p>
-<p>Everyone was quite shocked, but Sawayanagi Seari was especially shocked.</p>
-<p>Due to her young appearance, Sawayanagi Seari was treated as a cute mascot in Seryutai, so she had not been exposed to much explicit material. She was old enough, but her Seryutai colleagues prevented her from seeing explicit material.</p>
-<p>However, hearing such vivid and lewd sounds, even if it was only sound, was a huge shock to her.</p>
-<p>It wasn't that she came to despise explicit things, but it was just pure shock. A shock that such a world exists. As she listened to the sounds, her body became hot and her lower body became itchy, but that was the same for everyone in this room.</p>
-<p>Another shocking thing was that two of the three women were friends who had been connected to her since their days as test subjects and were willing to give up their lives for her, and one was Mimata Chieri, who had recently become close to the Seryutai members.</p>
-<p>"B-but is it normal to do it with four people?"</p>
-<p>Sawayanagi Mikiyo opened her mouth as if asking someone. Kiyona Hori and Mari sisters, who knew the ways of the world because they often worked part-time at cafes and other jobs, opened their mouths to answer.</p>
-<p>"....Probably not common?"</p>
-<p>"I heard that there is a free marriage law in the United States.... But this is Japan."</p>
-<p>Was that why Lianna Holden was involved? Sawayanagi Seari shook her head. Lianna Holden was a white woman who mixed English into her speech, but she was from the same test subject background and grew up in Japan, so she was basically Japanese on the inside.</p>
-<p>-We'll wash up quickly and go to the restaurant, so see you at the restaurant.</p>
-<p>-I need to wash up too.</p>
-<p>Sawayanagi Azuma and Taira Ryuta's voices were heard from the next room, and the sound of the door opening was heard, and the three women and Taira Ryuta were heard leaving.</p>
-<p>The women in room 203 were all silent as if they had promised each other, worried that their voices might be heard.</p>
-<p>"S-shall we go back to our room for now?"</p>
-<p>"Yeah. It'll get complicated if we get caught here...."</p>
-<p>At Kiyona Mari's words, Kiyona Hori nodded and stood up. The four women quietly left the room and returned to their room 203.</p>
+<p>I came to see a movie with Alik after leaving East Weapon. It was because Alik said there was a movie he wanted to see.</p>
+<p>Alik's taste was unexpectedly horror, and he flinched every time a scary scene came out while watching the movie, which was very cute.</p>
+<p>The movie was a typical American slasher horror movie style, featuring a group of college students being killed by a ruthless killer with an axe.</p>
+<p>,It was fun....,</p>
+<p>Alik said, looking at me as the movie ended and the ending credits rolled. Alik, who hadn't touched the popcorn while watching the movie, crunched on the popcorn while the ending credits rolled.</p>
+<p>,Why do you like these movies, Alik?,</p>
+<p>,Um.... I don't know.,</p>
+<p>Well, there must be more people who don't know why they like a certain genre, so Alik probably doesn't know why he likes it either.</p>
+<p>,Then what should we do next? It's lunchtime, so should we have lunch?,</p>
+<p>,Yeah, Alik wants to eat whatever Ryuta wants to eat.,</p>
+<p>Hmm.... What should we have? When I searched for a date lunch, I found out that there was a trendy pasta place, so I decided to go there. It's a restaurant where you can combine the sauce and noodle type you want, so I was quite curious.</p>
+<p>Fortunately, there was no line because it was a weekday. Still, it was quite crowded because it was a popular place.</p>
+<p>,You choose the noodles and sauce and eat them.,</p>
+<p>Alik nodded at my words and looked at the menu. I also looked at the menu to see what I should order.</p>
+<p>You could mix and match as you pleased, but there were recommendations for sauces for each noodle, so you wouldn't order a combination that didn't match.</p>
+<p>,Excuse me, are you ready to order?,</p>
+<p>Alik nodded slightly as if he had decided, and called the employee. An employee who looked like a college student approached and greeted us with a smile.</p>
+<p>,Fettuccine Rigate (a variation of fettuccine that has stripes on the wide pasta to better absorb the sauce) with Alfredo sauce. Alik?,</p>
+<p>,Alik will have vongole with capellini (thin pasta noodles, also called angel hair).,</p>
+<p>,Okay. What would you like to drink?,</p>
+<p>,Lemonade and.... What do you want to drink, Alik?,</p>
+<p>,Alik will have black tea.,</p>
+<p>As expected of a Russian, he likes black tea. I also ordered a pizza on top of that.</p>
+<p>I saw before that Alik liked pizza. I can't fill my stomach with just one plate of pasta, so I had to eat pizza as a side.</p>
+<p>Soon the meal came out and I ate with Alik. Surprisingly, Alik ate quite well, so I ordered a few extra sides. It seemed like his body was sending him signals to put something in because of his late growth spurt.</p>
+<p>,Come this way.,</p>
+<p>I wiped the pizza sauce off Alik's mouth. This date is completely.... More like a daughter and father than a date between a man and a woman?</p>
+<p>,Then what do you want to do next?,</p>
+<p>,Alik wants to take sticker pictures with Ryuta.,</p>
+<p>Sticker pictures.... I took one with Han Yu-gyeong who came to visit Japan last time. We left the restaurant and went to the sticker picture place.</p>
+<p>As it is 2053, sticker pictures had a lot of features. When you take a picture, it takes your face and Ai transforms it into fantasy genre clothing and backgrounds, or swaps the faces of two people, and the basic correction effects are so good that couples and friends still take a lot of pictures when they go on dates.</p>
+<p>At first, we took pictures with a slightly blurry prince and princess concept, but gradually we took pictures with the horror style backgrounds that Alik liked.</p>
+<p>There were pictures taken together and pictures taken separately, and it was a fun experience except that I was a little embarrassed because Alik's clothes that Ai had decorated were quite unconventional.</p>
+<p>It took longer to choose because we took so many cuts, but in the end, Alik couldn't hide his joy because he liked it. Of course, if someone else saw it, they would say, "How is that joy when he's expressionless?" but I could see it clearly.</p>
+<p>,Let's go to a cafe next time, Ryuta.,</p>
+<p>Alik, who was excited, decided on the destination before I asked where to go next. The fact that he specifically mentioned the name of the cafe made me think that it was a place that Alik liked, not just any cafe.</p>
+<p>Café Louis.</p>
+<p>I feel like I've heard this cafe name somewhere.... I couldn't remember. Alik took my hand and opened the cafe door.</p>
+<p>,Welcome, Master~! This is Gothic Maid Cafe Louis!,</p>
+<p>What greeted us were red-haired sisters wearing gothic lolita outfits.</p>
+<p>I didn't remember because I didn't pay attention, but when I solved Se Ryutai's debt and bought all the shares, the Kiyona Hori Mari sisters, who received a considerable amount of money, said that they opened a maid cafe called Cafe Louis. I remembered now when I saw them.</p>
+<p>,What's going on with you two? O-of course, it's not like I'm curious!,</p>
+<p>Kiyona Mari asked us while handing out the menu.</p>
+<p>,Alik is on a date with Ryuta.,</p>
+<p>,D-d-d.... Date?!,</p>
+<p>She's very agitated. Kiyona Hori pushed Kiyona Mari, who couldn't come to her senses, and came to us. By the way, she's the boss, but she's also working hard at hosting.</p>
+<p>Of course, there were many other employees at Cafe Louis. Since their main job was PMC, they said that they would be away quite often, so they hired plenty of employees.</p>
+<p>,Master? Have you chosen your menu?,</p>
+<p>As expected, she's older than Kiyona Mari, so she doesn't get agitated much and asks me with a smiling face.</p>
+<p>,Omelet rice and strawberry smoothie.... What do you want to eat, Alik?,</p>
+<p>,Alik wants to eat cookies and a chocolate shake.,</p>
+<p>,Yes~! Please wait a moment! Mari, come with me.,</p>
+<p>Kiyona Hori took the order and grabbed Kiyona Mari by the neck and followed her. Because it's a Gothic Mate Cafe, most of them were wearing clothes that were more like gothic lolita clothes with white aprons than traditional maid outfits.</p>
+<p>,Did you come to see Hori-ssi and Mari?,</p>
+<p>,Yeah, they're both fun. They're friends.,</p>
+<p>They were both nice to Alik because they thought he was cute, so it seemed like Alik felt comfortable with them too. As we talked about this and that, the menu we ordered came out. As expected, it was the Kiyona sisters who brought the plates.</p>
+<p>,Here, Alik's favorite white chocolate cookies and chocolate shake...!,</p>
+<p>Kiyona Mari placed the plate in front of Alik, and Kiyona Hori placed the plate in front of me with a smiling but slightly scary expression.</p>
+<p>,This is the omelet rice and strawberry smoothie that Master ordered~! It's usually paid, but I'll write something on it because you're an acquaintance.,</p>
+<p>Kiyona Hori took out the ketchup bottle and started writing something on the omelet rice.</p>
+<p>,Become delicious~! Become delicious~!,</p>
+<p>-If you touch a minor, I'll fucking kill you.^^</p>
+<p>No, what do you think of me? I've become someone who can't touch minors because of my memories before possession.</p>
+<p>By the way, it's really scary to say "Become delicious~! Become delicious~!" cheerfully and write "I'll fucking kill you" in red with ketchup.</p>
+<p>,Write something for me too, Mari.,</p>
+<p>,Okay, I'll write it for you~!,</p>
+<p>Mari was writing "I love Alik so much!" on the cookie with chocolate syrup at Alik's request. But why aren't you being tsundere to Alik?</p>
+<p>,Alik, I'll go to East Weapon later, so.... You have to tell me all about today's date?,</p>
+<p>,Okay.,</p>
+<p>They said "Do you really have to tell me?" several times and went to serve other customers. Hmm, are they curious about the date? Or are they worried that I'll touch Alik? I don't know at all.</p>
+<p>,Oh!,</p>
+<p>I just thought it was a concept cafe, so the food wouldn't be good, but it was quite delicious. It was a pretty well-made omelet rice. The strawberry smoothie was also refreshing and delicious.</p>
+<p>When Alik and I finished our food and drinks, the Kiyona Hori Mari sisters came again and took a polaroid picture.</p>
+<p>They took a total of six pictures: one couple shot of Alik and me, Alik and Kiyona Mari, Alik and Kiyona Hori, me and Kiyona Mari, me and Kiyona Hori, and finally a group shot taken by another employee.</p>
+<p>,That'll be 20,000 yen, customer.,</p>
+<p>,Isn't that too expensive, Hori-ssi?,</p>
+<p>,Because we took six pictures.... Hehe.,</p>
+<p>No, I didn't even ask you to take them. Besides, you took the pictures you took with me!</p>
+<p>Still, 20,000 yen wasn't that expensive for me, so I hid my bitter expression and paid.</p>
+<p>,Come again next time~!,</p>
+<p>,Everything I have is not waiting for you!,</p>
+<p>,I'm not coming again!,</p>
+<p>We came outside while being seen off by the two sisters. The last course was the game center. This was also Alik's pick. The building right next to Cafe Louis was a game center, so it seemed like Alik had been thinking about going there while passing by.</p>
+<p>Alik had wandered around since he was a child, so he wasn't good at games, but he still enjoyed it quite a bit. I was going to get him a claw machine as the last thing, but the machine that had eaten as much as 10,000 yen kept dropping the doll.</p>
+<p>,What the fuck!,</p>
+<p>,Fuck? Ryuta, what's fuck?,</p>
+<p>,Ah, it's nothing.,</p>
+<p>I accidentally swore in Korean. Now that it's come to this, it was necessary to give a true education to the owner of this game center who had adjusted the machine too weakly. I put money into the claw machine again and controlled it.</p>
+<p>What I controlled wasn't the joystick. I thinly pulled out the shadows and made them like a net, and grabbed and pulled out the dolls as they were.</p>
+<p>,Ryuta.... Amazing!,</p>
+<p>Alik admired with his eyes shining like stars. I feel good that he likes it so much. I gave Alik the biggest doll among the ones I picked.</p>
+<p>,This is a gift.,</p>
+<p>,Alik, this is the first time I've received a doll....,</p>
+<p>It's a little sad that it's the first time a girl has received a doll as a gift. I put the rest of the dolls in a large shopping bag and went back to Cafe Louis to get rid of them. The Kiyona Hori Mari sisters also really liked the doll gifts.</p>
+<p>It was when I gave the doll gifts and came out of the cafe that my phone suddenly rang.</p>
 <p>----</p>
-<p>Illustrations in sex order!</p>
-<p>Azuma</p>
-<p>Lianna Holden</p>
-<p>Chieri-jjang🍒</p>
+<p>Alik taking sticker pictures with an apocalypse background.</p>

@@ -5,75 +5,78 @@ weight = 961
 chapter = 961
 +++
 
-<p>and chapter contains erotic illustrations this</p>
-<p>After leaving Urabe Shrine and returning Home on the electric bike, there were shoes placed at the front door. Judging by the size, they were women's shoes. Who could it be? Entering the living room, there was no one there.</p>
-<p>「Did someone just take off their shoes and leave?」</p>
-<p>Muttering such nonsense, I entered the bedroom to change Clothes. After finishing Outdoor sex with Hanakame and showering at the Shrine, all that was left was to change Clothes. Turning on the bedroom light, someone was lying on the bed covered with a blanket. Just who could it be?</p>
-<p>As I slowly approached, the blanket was lifted, revealing the identity of the unknown person: it was Konoe Akina. It was Konoe Akina, who had left to deal with Family matters when I went to the Am Dark branch. Was her Work all finished?</p>
-<p>It seemed she had come to my Home after her Work was done and waited for me in bed. Since it was quite late, she probably intended to sleep over at my place.</p>
-<p>Konoe Akina's body, hidden under the blanket, was naked. Konoe Akina looked at me and smiled with her Eyes, as if glad to see me.</p>
-<p>「Akina?」</p>
-<p>「Ryuta-nim, please come under the blanket quickly.」</p>
-<p>Konoe Akina lifted the blanket and patted the spot next to her. By the way, she's taken off all her Clothes, so why is she still wearing her glasses?</p>
-<p>「Like this?」</p>
-<p>「Noo♥ Take them off and come in...!」</p>
-<p>To my slightly mischievous question, Konoe Akina requested that I undress in a complaining tone.</p>
-<p>Konoe Akina was the one who made the biggest contribution in this battle against Anyaji, along with Urabe Konoka, so I obediently took off my Clothes at Konoe Akina's request.</p>
-<p>Konoe Akina pushed up her glasses and admired me as I took off my Clothes. It was obvious what Konoe Akina was thinking as she went, 'Ehehe,' but since what Konoe Akina was imagining would soon happen on the bed, I let her admire me as she pleased.</p>
-<p>「Ryuta-nim, you have a great body...♥ I want to lick each and every one of Ryuta-nim's defined abdominal Muscles.」</p>
-<p>As I finished taking off my Clothes, Konoe Akina said, her Expression dazed, expressing her Impression of my body. Hearing that, I chuckled and lay down next to Konoe Akina.</p>
-<p>「As you said, I've come under the blanket. What should we do now?」</p>
-<p>「Hold me, Ryuta-nim♥」</p>
-<p>As Konoe Akina said, I hugged the naked Konoe Akina tightly. The feeling of Konoe Akina's soft, naked Yeoche, warmed in the blanket, pressing against me was very pleasant. My cock, already Erect due to the Atmosphere, pressed firmly against my Lower Cauldron as I hugged her, and I could feel Konoe Akina shiver.</p>
-<p>「Ryuta-niim...♥」</p>
-<p>Konoe Akina snuggled into me even more, her Voice filled with Aegyo. As she did, Konoe Akina's large breasts were pressed against my body, making the sensation even better.</p>
-<p>「I can hear Ryuta-nim's heart beating...!」</p>
-<p>「I can feel Akina's breasts being pressed.」</p>
-<p>「Aww~! What is that...!」</p>
-<p>We didn't immediately engage in Sexual Act, but snuggled together and had a small conversation for a while. Then, as our Eyes met, as if it were a promise, we both simultaneously extended our Lips and kissed.</p>
-<p>Jju-eup! Chup! Jjeubeub...! Chup!</p>
-<p>While kissing, Konoe Akina lowered her Hand and grabbed my cock, which was pressing against her belly, and moved it to her groin. Then, without inserting it into her pussy, she placed it between her pussy and thigh as if doing Sumata, and began to move her waist, rubbing my cock against her pussy and thigh.</p>
-<p>Because we were lying on our sides, my cock and thigh were in close contact even without tightening her Legs, allowing for smooth Sumata. Moreover, her pussy was constantly replenishing vaginal fluid, so it was always slippery.</p>
-<p>However, it must have been quite difficult to move her waist while lying on her side, but Konoe Akina, who had recently started physical training, didn't seem to be struggling much, diligently adjusting the strength and moving her waist.</p>
-<p>The sound of my cock rubbing against her thigh, jjigeokjjigeok, was very stimulating and Erotic. Added to that was the Erotic kissing sound of jjeup jjeup, creating an Erotic sound that would make even someone resistant to Stimulation feel the sensation of Ejaculation rising.</p>
-<p>「Jjeup...! Teacher, how is Akina's, haaht...! thigh pussy?」</p>
-<p>「It's soft and sticks to my cock, making me feel good...!」</p>
-<p>「Heuheung...♥ If Teacher feels good, I'll shake even harder...!」</p>
-<p>Chap, chap, chalbak, jja-geok jjigeok!</p>
-<p>When I said I felt good to Konoe Akina's question, Konoe Akina moved her waist even more vigorously, accompanied by wet sounds. Then, she removed the blanket covering herself and me and stood up from her spot.</p>
-<p>「Lie straight, Ryuta-nim...!」</p>
-<p>It seemed that her pussy had been Stimulated by Sumata and she couldn't take it anymore. It seemed she was going to do the cowgirl position, telling me to lie straight.</p>
-<p>As I lay straight as Konoe Akina said, my cock, soaked in Konoe Akina's vaginal fluid, stood tall, facing the sky. Konoe Akina's Eyes sparkled as she looked at my cock.</p>
-<p>I don't mean that her Eyes sparkled with interest or curiosity, but that her Eyes literally sparkled. Konoe Akina had used her Mystical eye on me! As I looked into Konoe Akina's Eyes, which were glowing red, my body stiffened and it became difficult to move.</p>
-<p>「Ufufu, you can't go anywhere now, Ryuta-nim...!</p>
-<p>It seemed the reason she was wearing glasses was to petrify me with a light amplifier.</p>
-<p>「You've been tormenting other girls with this cock today, haven't you? When you took off your Clothes, I could smell other girls all over you.」</p>
-<p>Konoe Akina asked, pointing at my cock with a slightly scary Smile. Well, she seemed to be certain already, so I didn't say anything. It seemed she was a little Jealous. In times like these, it was best to remain silent.</p>
-<p>Konoe Akina didn't seem to expect an Answer from me either, staring at my cock, which was facing the sky, with a very excited Expression.</p>
-<p>「Heueu-eung♥ Ryuta-nim's petrified cock...♥」</p>
-<p>Konoe Akina grabbed the base of my cock, which had been Erected and petrified, matched it to her Jilgu, and slowly began to sit down on my body.</p>
-<p>「Keueu...!」</p>
-<p>Even though I was petrified, it wasn't as if my senses were paralyzed, so I could vividly feel the sensation of being inserted into Konoe Akina's pussy. Rather, because the petrification made it difficult for me to move, I focused even more on the sensation of Konoe Akina's intravaginal, clinging and pleasantly entangling me.</p>
-<p>「Haa-eueu-heung...! I can feel Ryuta-nim's cock, haaht! splitting me open and entering...♥ Heueung, the deepest part...!」</p>
-<p>Konoe Akina, having sat down on me as much as possible, reached Climax as my cock pushed up against her cervix. After lying on my body for a while, she slowly began to move her waist, as if getting used to it.</p>
-<p>「Haa...! Haa-heung...! Heueu...!」</p>
-<p>At first, it was slow, but gradually the speed increased, and the slapping sound of her Movements began to change into a fierce, pounding motion.</p>
-<p>「Haaht! Heueung! Haa-heuht! It's deep, haaht! Teacher-niim...! It's too strong!!」</p>
-<p>No, I'm just lying still because I'm petrified.... The one moving too strongly is Konoe Akina, you. I looked at her with an dumbfounded Expression, but Konoe Akina had her Eyes closed, completely absorbed in enjoying the pleasure that my cock was giving her.</p>
-<p>Of course, I felt good too. Perhaps because my senses were more sensitive, it seemed I felt even better than usual.</p>
-<p>「Kkeu-haaht! Heueut! It's too strong! Ryuta-nim, haaht, your cock is inside, heueung...! I'm going...! I'm going! I'm going♥」</p>
-<p>Konoe Akina, who had been moving fiercely, threw her Head back and reached a splendid Climax. I aimed for the moment when Konoe Akina reached Climax and released the petrification. Then, I turned my body and changed the Intimate Posture from cowgirl to missionary position.</p>
-<p>In fact, because I had abnormally high resistance to Status effect due to various Traits, I could have released the petrification at any time if I used my power. However, I had been watching Konoe Akina for a while, wondering how far she would go.</p>
-<p>Then, I also gradually became frustrated with just lying still, so I aimed for the moment when Konoe Akina reached Climax and released the petrification.</p>
-<p>「You dared to inflict a Status effect on me?!」</p>
-<p>「Ryuta-niim...! It was just like a role-playing game...♥」</p>
-<p>Konoe Akina said in a tone as if making an Excuse to my Words. Of course, Konoe Akina's Words were half true. Konoe Akina's Mystical eye was powerful enough to stop even an Outer God for a moment, so if she had used it seriously, I might not have been able to release the petrification so easily. But since I was a little resentful, I decided not to let her sleep tonight.</p>
-<p>「Excuses are unnecessary! If the problem is me holding other women, I'll fuck you all day today!」</p>
-<p>「Haa-heueu-eung! Ryuta-nim, Teacher...! I just came! Haaht! If you go any further, I'll become strange!!」</p>
-<p>Since we had changed Intimate Posture while already inserted, all I had to do was shake my waist for missionary position sex. Konoe Akina, who had already reached Climax once, could definitely feel what a multi-orgasm was.</p>
-<p>「From now on, count one number each time you Climax. Got it?」</p>
-<p>「One, two...! Three! It's too strong! Teacher-niim...!」</p>
-<p>Konoe Akina's cries as she counted numbers echoed in the Room. And so, I tormented Konoe Akina until Dawn.</p>
-<p>SD Alik and SD Shii double peace maid, requested by I Save I-nim~!</p>
-<p>Starting with Alik~!</p>
-<p>Shii~!</p>
+<p>before breast chapter check contains exposure please surroundings this your</p>
+<p>"Ryuta-nim, have a good trip."</p>
+<p>Receiving Butler Tosen Nobumichi's greeting, we boarded the van we had arrived in and headed towards the Hatake Investment Company Building.</p>
+<p>Just as it had taken fifteen minutes to get to our Home from the Hatake Investment Company Building, it also took fifteen minutes to go from the mansion to the Hatake Investment Company Building.</p>
+<p>"Boss-nim...! It's an honor to meet you!"</p>
+<p>Entering the Hatake Investment Company Building's Underground Parking Lot required passing through the Security Office. The Security Guards were currently former Prisoners from Anyaji, hired as Security Guards before my PMC license came out, and since they all knew my face as their Boss, they greeted me respectfully as soon as they saw me and raised the parking barrier.</p>
+<p>The reason why the Security Guards, former Prisoners from Anyaji, treated me respectfully, despite me being the one who brought down Anyaji, was because they didn't realize I was the one who had brought them down. Instead, they thought of me as the Young Master of the Tairaga Family who had taken them in when Anyaji fell and they had nowhere to go, so it felt like they were treating a benefactor well.</p>
+<p>"Oh~! Ryuta-cchi Boss-nim~!"</p>
+<p>Ignoring Seizawa Shii's surprised reaction, expressed in a teasing tone (I was a little worried Seizawa Shii might give Jinmija Yeosa a nickname), I parked the car in the Underground Parking Lot, got out, and headed to the elevator with everyone.</p>
+<p>"The lower floors will be used by my PMC, and the middle layer will be used as offices by Joseodang or our smaller companies. And the Upper Layer will be used by Hatake Investment Company and its Affiliate Companies."</p>
+<p>"Then are we going straight to Hatake Investment Company? Mother is there too, right?"</p>
+<p>Seizawa Shii's question made me understand why all the Women had followed me to Hatake Investment Company. It must have been to make an Impression on Jinmija Yeosa, my Mother.</p>
+<p>Of course, Shimokawabe Airen, who still had no Relationship with me, must have come for a different Reason. Most of them seemed to have come to make an Impression on Jinmija Yeosa.</p>
+<p>"Yes, probably?"</p>
+<p>I replied, pressing the elevator button for the floor where Hatake Investment Company's CEO office was located. I felt a sense of buoyancy as the elevator ascended, and with a Dding! sound, the door opened.</p>
+<p>The exterior of the Building was deliberately designed without any particular Individuality, but the interior Design was quite sophisticated. Since it wasn't my Work Place but Jinmija Yeosa's, I had left the interior Design to her, and it seemed to have turned out quite well.</p>
+<p>"The CEO-nim is waiting, Boss-nim."</p>
+<p>Since I had contacted them in advance to say I was coming, the secretary wasn't surprised to see me and immediately guided me to Jinmija Yeosa's office. However, she glanced at the Women around me, making a slight questioning Expression, as if wondering, 'Who are these people?'</p>
+<p>"Son."</p>
+<p>Jinmija Yeosa also seemed quite surprised when so many people suddenly entered, but she quickly hid her surprise, called my name, and smiled. In fact, some of them weren't meeting Jinmija Yeosa for the first time.</p>
+<p>Because we had held several video conferences, Alik, Naruse Shiyo, Otagi Yuka, Saionji Diana, and others were already acquainted with each other.</p>
+<p>"This is Seizawa Shii, a student I taught...."</p>
+<p>"Mother, you're so beautiful~! You look more like Ryuta-cchi's Older Sister than his Mother~!!"</p>
+<p>As soon as I started the introduction, Seizawa Shii fussed (I was a bit uneasy that Seizawa Shii might give Jinmija Yeosa a nickname), and everyone else, not to be outdone, rushed to Jinmija Yeosa, asking about the secret to her youthful looks and the secret to her Skin Texture, trying to build goodwill.</p>
+<p>Jinmija Yeosa seemed a little Embarrassed, but like the strong Woman she was, who wouldn't be intimidated by Taira Jiro, she smiled and accepted the questions and stories from Seizawa Shii and the other troublemakers. But why was Shimokawabe Airen mixed in there? Was she truly curious about my mom's youthful appearance?</p>
+<p>"Everyone, please take good care of my inadequate son."</p>
+<p>"Don't worry, just trust me, Mother~!"</p>
+<p>"Ryuta Oppa, please leave him to me~!"</p>
+<p>"Ryuta, Alik will protect... you."</p>
+<p>Somehow, the Atmosphere felt like 'please take good care of my son,' which was a bit Embarrassing, and everyone saying 'leave him to me' made it feel like we were at an auction house. Soon, the secretary brought coffee and tea, and we sipped them slowly as we began our Conversation.</p>
+<p>"How do you like the new Building?"</p>
+<p>After the commotion settled down, I asked Jinmija Yeosa for her Impression of the new Building.</p>
+<p>"How do I like it...? It's great. The old office was in an old commercial Building, so both the heating and insulation were bad. The water pressure was also weak."</p>
+<p>Indeed... Since she was going to move to Neo Tokyo anyway, she hadn't leased an expensive office, but it seemed to have been quite inconvenient. Jinmija Yeosa seemed extremely satisfied.</p>
+<p>"No unusual occurrences, right?"</p>
+<p>"No. In fact, after that Incident, it's been so quiet it makes me uneasy. Nothing else has happened."</p>
+<p>The Incident Jinmija Yeosa referred to was the attack on Hatake Investment Company's old office by Taira Jiro's side. I didn't know if they were surprised by the strength of our counterattack, which made it seem like everyone had disappeared, or if they were planning something else, but nothing else had happened yet. Joseodang had ascertained that they were busy preparing for the upcoming March Competition. I put down my empty coffee cup and spoke.</p>
+<p>"Then I'll be going. Today is the first day, so I just came to look around."</p>
+<p>Since it was the first day and Jinmija Yeosa was handling Hatake Investment Company's Work well, there was no need for me to interfere, so I decided to leave quickly. I also had to visit other offices.</p>
+<p>"Alright. I can't stop my son, whom I haven't seen in a long time, from leaving less than fifteen minutes after coming to the office."</p>
+<p>"Mom is busy too."</p>
+<p>Jinmija Yeosa grumbled a bit when I said I was leaving, but as the busy CEO of Hatake Investment Company, she soon waved her hand as if telling me to go. I said my greeting and went outside, having to wait outside the office while the other Women took their turns saying goodbye to Jinmija Yeosa.</p>
+<p>After leaving the Hatake Investment Company CEO office, I went to the office of a company called A Tech on the middle layer. A Tech was not a real Enterprise but a shell company established by Joseodang, and Sakagami Rena and Asada Ei were waiting there.</p>
+<p>"Liege-nim...!"</p>
+<p>"Ryuta-nim."</p>
+<p>An unexpected guest was also waiting here: Athena Mannerheim, whom I had thought would be in the PMC office on the floor below. This meant I wouldn't need to visit the PMC office, my next destination.</p>
+<p>"Did you have a good trip to Finland?"</p>
+<p>"Yes. Thank you for understanding."</p>
+<p>It was Athena Mannerheim, who had gone to Finland, where her Parents' Grave was, immediately after the war against Anyaji ended. Athena Mannerheim's Gaze towards me was full of goodwill, as if grateful for my support with Airplane fare and other things.</p>
+<p>"By the way, who is this Lady?"</p>
+<p>Athena Mannerheim felt Tsukiyo's persistent Gaze on her and asked me. Tsukiyo seemed displeased with the white light Aura flowing within Athena's Body.</p>
+<p>Naturally, since Tsukiyo was filled with an Aura similar to the Abyss, she wouldn't look favorably upon Athena Mannerheim, who possessed the opposing Attribute of white light.</p>
+<p>"This is Tsukiyo."</p>
+<p>After the Anyaji war, Athena Mannerheim had made Introductions with everyone, so I only needed to introduce Tsukiyo, the new face, without needing to introduce anyone else.</p>
+<p>"Tsukiyo-ssi. I'm Athena Mannerheim."</p>
+<p>"You inherited the blood of the Light Dragon. Since you are a comrade who follows Ryuta Oppa... let's get along."</p>
+<p>Athena Mannerheim wore an Expression as if wondering what this Woman had just said, but Tsukiyo, as if she had fulfilled her duty by greeting, ignored Athena Mannerheim and bickered with Alik while clinging to my arm, calling me Oppa.</p>
+<p>"How are the trainees?"</p>
+<p>Before the Atmosphere became strange, I asked Athena Mannerheim. I couldn't keep calling them Prisoners from Anyaji forever, so for now, I was calling them trainees. Thirty of them were undergoing basic training, borrowing East Weapon's training center, and the remaining thirty were working as Security Guards in this Building.</p>
+<p>Once the first batch of trainees finished their training, the current Security Guards would begin their training as the second batch of trainees.</p>
+<p>"They are all confident in physical combat and do well, but it's true that their Repulsion towards firearms hasn't disappeared yet."</p>
+<p>The trainees from Anyaji were martial artists who didn't use any weapons, so they seemed to have a Repulsion towards firearms, which could kill a person with a flick of a finger. I had a somewhat optimistic thought that it would resolve itself with time. Still, I should give them a stern warning.</p>
+<p>"Tell them they need to become proficient if they want to get their Salary. Otherwise, they need to have a superpower that surpasses firearms."</p>
+<p>"Understood. I will definitely raise them into excellent agents."</p>
+<p>I gave Athena Mannerheim words of caution. Athena Mannerheim nodded her Head in understanding at my words and replied in a trustworthy Way of Speaking.</p>
+<p>Gojoy-nim requested Han Yu-gyeong's Belly Dancer and Tape attire~!</p>
+<p>First, Belly Dancer~!</p>
+<p>Tape~!</p>
+<p>TheDreaming-nim requested Chapter 129 Ghost 1. Masturbation 2. Seongbul</p>
+<p>1.</p>
+<p>2.</p>
+<p>MidNightSKY-nim requested Ryuta shooting Creation Chaos Beam and Sakagami Rena using Wind Release~!</p>
+<p>I mixed in Lora, but it doesn't feel like Creation Chaos haha</p>
+<p>Wind Release Rena</p>
+<p>Kki-wyeot...!</p>

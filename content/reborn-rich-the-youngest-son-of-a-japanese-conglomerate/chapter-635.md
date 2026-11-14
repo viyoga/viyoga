@@ -5,79 +5,81 @@ weight = 635
 chapter = 635
 +++
 
-<p>I definitely had a deal to go on a date if I won first place at the sports day, and Minamoto Risa-ssi mentioned it again during the graduation trip. I had forgotten about it since it was before the zombie apocalypse. She sure remembered it well.</p>
-<p>-Yamashiro Ryuta: Then, shall we meet tomorrow?</p>
-<p>-Minamoto Risa: Yeah, let's meet at the same place we met before.</p>
-<p>We made the promise plainly and ended the call. Soon, the steak I ordered arrived, and Yoda-halbae trembled at the sight of the glorious two-kilogram steak. Isn't he getting too excited?</p>
-<p>"Uooooh!"</p>
-<p>With a reaction like that, it must be satisfying for the person who's buying. As I thought, Kujo Kina-ssi was looking at Yoda-halbae Kinu Tachio-ssi with a pleased expression.</p>
-<p>"Kujo-ssi, I'll enjoy the meal."</p>
-<p>"Eat as much as you want, Sensei. I met my master thanks to you, Sensei, so you can order ten times more."</p>
-<p>Ten times the current amount would be 20 kilograms, but even I, who eats well, can't eat that much. I don't think even a tiger or a lion could eat 20 kilograms of meat at once. The 2 kilograms you ordered for me now will be enough to fill me up, how much of a glutton do you think I am?</p>
-<p>"You won't need me tomorrow, right?"</p>
-<p>I was originally supposed to oversee Kujo Kina-ssi's training until tomorrow, but now that she has a master, there was no need for me to stick around. I also have a date with Minamoto Risa-ssi.</p>
-<p>Besides, constantly interfering with the training would be disrespectful to Yoda-halbae, who has become Kujo Kina-ssi's master.</p>
-<p>"Huh? Weren't you going to come with me to see my disciples? I thought you'd come along because of the Berserker Curse."</p>
-<p>Fujigasaki Rinka-ssi probably solved the Berserker Curse. But just in case, I should call someone who can solve it.</p>
-<p>"Then I'll contact Urabe-ssi. I found it before, but Urabe-ssi was the one who performed the exorcism."</p>
-<p>"Ah, that's right. Then we can ask Konoka-chan."</p>
-<p>Kujo Kina-ssi nodded, agreeing with me. Now that the schedule is settled, I should think about how to make the date tomorrow great. As I was thinking about my date strategy with Minamoto Risa-ssi, I heard someone crying next to me. It's Yoda-halbae next to me, is the old man crying?</p>
-<p>"*Huk huk*, it's so delicious...!"</p>
-<p>No, how delicious does it have to be to eat while crying? I cut the meat and put it in my mouth with a dumbfounded expression. Hmm.... It is delicious. But not enough to cry.</p>
+<p>"Haaeeuuheueung...."</p>
+<p>To give the virgin Urabe Konoka some time to adjust to my dick, I stayed still inside her, and Urabe Konoka's pussy began to wriggle on its own, gently biting my dick.</p>
+<p>Of course, I enjoyed the wriggling of her pussy, but I wondered if Urabe Konoka would feel good just having my dick inside her. But my worries were unfounded; even without any piston action, her pussy wriggled and rubbed against my dick on its own, and Urabe Konoka was moaning as if she felt good too.</p>
+<p>Soaking in the warm hot spring water with my dick inside a woman's body was paradise.</p>
+<p>"I'm going to move now."</p>
+<p>"...Yes."</p>
+<p>As I grabbed Urabe Konoka's waist and lifted her up and down, making piston movements with the sound of splashing water, Urabe Konoka tilted her head back and began to moan from the unfamiliar pleasure she was experiencing for the first time in her life.</p>
+<p>"Haaeeut, it's strangeooo...! Something, heeung! Strange...! Haaeeut, between my legs, heeut...! It's ticklish, and the inside is being pressed by Teacher-nim's, haaeeut! That... thing...♥"</p>
+<p>Urabe Konoka was telling me about the pleasure she was feeling, as if trying to explain her symptoms to a doctor. So, she's the type to get chatty during sex.</p>
+<p>"Does it feel good?"</p>
+<p>"Neheeet...! Hwaaat, Teacher-nim's eueung, hard and big thing...! Heueuheung♥ It's pressing down on the inside of me, so it feels gooood! Hyaaahang...!"</p>
+<p>She was definitely like a shy girl before we started, but once my dick went inside her pussy, she became incredibly expressive. Or maybe she had acknowledged her feelings for me and changed like this. The latter was probably more likely.</p>
+<p>As the movements became more intense, the sound of the waves changed from splashing to crashing, and Urabe Konoka's moans grew louder.</p>
+<p>"Stand up."</p>
+<p>Rather than sitting and moving while holding Urabe Konoka's waist, I wanted to move my body directly, so I had Urabe Konoka stand up, rest her arms on the rocks of the hot spring, and stick her butt out towards me.</p>
+<p>"Is this what you call doggy style?"</p>
+<p>"Yeah. Urabe, your backside is pretty too."</p>
+<p>In fact, some women hated it, saying it was beastly, but the innocent Urabe Konoka, who was a virgin until 10 minutes ago, tilted her head and looked at me with an expression that said, Is this that position? I'm curious! Moreover, she smiled at me, looking pleased that I had even complimented her backside.</p>
+<p>Of course, my compliment wasn't just lip service. Urabe Konoka was slender, but her waist was thin and her hips were wide, making her backside very seductive.</p>
+<p>Earlier, when Urabe Konoka was sitting on top of me, I couldn't see her pussy properly, but now that she was showing her butt to me, I could see her pussy. Originally, her pussy should have been swollen from her first experience, but thanks to the characteristics of the sacred pillar, it wasn't very swollen or congested. Of course, the hymen blood had already been washed away in the hot spring, so there was no trace of it.</p>
+<p>Urabe Konoka's pussy was a cute pussy with plump labia majora. Of course, it was tightly closed as it had just been a virgin, but the flesh around the closed pussy had volume, making me want to touch it for no reason.</p>
+<p>I touched Urabe Konoka's pussy mound before inserting my dick. The soft, chewy feeling was quite addictive.</p>
+<p>"Hang, haaeeut...! Teacher-nim, heeung, your touch, haaeeut...! It's naughtyooooo♥"</p>
+<p>Urabe Konoka was moaning hotly just from me touching her pussy mound. After touching her pussy mound for a while, I parted her pussy lips with my index finger and gently inserted it into her vagina, and Urabe Konoka's vagina, hotter than the hot spring, gently bit my index finger.</p>
+<p>"I'm going to put it in now."</p>
+<p>"Haaaa.... Please come in, Teacher-nim♥"</p>
+<p>After teasing Urabe Konoka's pussy for a while, I parted her plump pussy mound and pushed in my glans, and Urabe Konoka shook her butt and seduced me.</p>
+<p>"Haaaahng!"</p>
+<p>She had been tormented by my finger until just now, so she moaned loudly as she felt the relatively large difference when she was hit with a huge dick. And Urabe Konoka's pussy began to wriggle and greedily suck on my dick. It was a pleasant pussy that gave me the feeling of a vacuum fellatio.</p>
+<p>"Haaeeueeang! Teacher-nim, haaeeut! The position, eungheut...! Changed♥ so it feels like it's coming in deeper! I'm being pierced, heehit...! By Teacher-nim's haaeeut! Thing, heeung♥ I'm being pierced through♥"</p>
+<p>"Keueut, it's not that I'm piercing you, but Konoka's pussy is sucking on my dick."</p>
+<p>My pubic bone and Urabe Konoka's butt collided with a slap, and my balls also stimulated Urabe Konoka's Clitoris, so her voice gradually rose.</p>
+<p>"Haaeeut, haaeeuahang...! It's strange, it's strange...! Something's coming, Teacher-nim! Hwaaaahang♥ Eueheung! Something haaeeut! It feels haaaaang!!"</p>
+<p>As if announcing her climax, Urabe Konoka's pussy began to suck on my dick as she reached her climax, as if squeezing my semen. I didn't refuse Urabe Konoka's pussy's demands and increased the pitch of my piston movements.</p>
+<p>"Konoka, I'm going to cum inside...!"</p>
+<p>"Haaeeueeheung...! Inside, haaeeut! Please cum inside me, Teacher-nim...♥"</p>
+<p>Pulling on Urabe Konoka's thin waist, I began to ejaculate into the deepest part of Urabe Konoka.</p>
+<p>Byueeut! Beueut! Byueeuuut!</p>
+<p>"Haaaang! Something hot, heueut! Is coming inside meooo♥"</p>
+<p>It seemed that everything was new to Urabe Konoka, who was experiencing her first sex and first intravaginal ejaculation. She was quite cute as she was surprised and climaxed as my hot semen was injected into her body.</p>
+<p>After trembling for a while after ejaculating, I picked up Urabe Konoka, who was leaning against the rock she had been holding onto, and went back into the hot spring. I thought she would be cold because only her legs were in the hot spring.</p>
+<p>"Ah.... Teacher-nim's milk is coming out!"</p>
+<p>"I should ask them to change the water."</p>
+<p>I was holding Urabe from behind, and my semen was coming out cloudy, so we got up from our seats. Then, we scrubbed each other's backs in the washing area, splashed water, wiped ourselves off, and went back into the room.</p>
+<p>Urabe seemed a little tired and lay down on the bed naked. And she smiled and looked at me.</p>
+<p>"Hold me, Teacher-nim."</p>
+<p>As Urabe Konoka requested, I hugged Urabe Konoka tightly on the bed. Urabe Konoka, who was in my arms, wriggled for a moment and then went down.</p>
+<p>When I looked at her with a what's wrong? expression, Urabe Konoka smiled and said, Service♥, and put my dick in her mouth.</p>
+<p>Of course, it wasn't so good that I was going to faint, as it was the first fellatio from a virgin who had her first experience today. Still, I liked her hard-working and trying attitude, and I liked the warm and moist feeling of having it in a woman's mouth, so I stroked Urabe Konoka's head and enjoyed the feeling in her mouth.</p>
+<p>After sucking on my dick for a while, Urabe Konoka spat out my dick with a somewhat disappointed expression and opened her mouth.</p>
+<p>"It's not coming out, Teacher-nim."</p>
+<p>"It usually takes a long time to cum again after you've cum once."</p>
+<p>I couldn't tell her to her face that her skills were lacking, so I smiled and answered. At that, Urabe Konoka smiled with a naive expression, as if she had learned a new fact, saying, Is that so?</p>
+<p>"When we did it in the hot spring, it was from behind... so I was sad that I couldn't see Teacher-nim's face."</p>
+<p>"Was that so?"</p>
+<p>"So.... Please do it missionary style, Teacher-nim♥"</p>
+<p>Urabe Konoka was lying back on the bed, spreading her legs and seducing me. It was a seductive gesture that was hard to believe she was a virgin until just now. Where did she learn these seduction skills? Is there something passed down in her DNA?</p>
+<p>Of course, I didn't resist the seduction and immediately pounced on Urabe Konoka.</p>
 <p>###</p>
-<p>In front of a convenience store near the Miyashi department store. It was always the place I met Minamoto Risa-ssi when we met separately. I arrived at the convenience store ten minutes before the appointment and went inside to choose something to drink while waiting.</p>
-<p>I bought one green tea-flavored drink that Minamoto Risa-ssi likes, and I bought one ion drink. When I came out, Minamoto Risa-ssi was standing there.</p>
-<p>She still had her pink blonde hair and was wearing a short pink coat and jeans that reached her waist, which suited her well. She definitely had the style of a rich daughter. Today is Sunday, so there was no reason to wear another school's uniform, so she was just wearing casual clothes.</p>
-<p>"You look pretty today?"</p>
-<p>"Only today?"</p>
-<p>Minamoto Risa-ssi smiled brightly and asked jokingly at my compliment.</p>
-<p>"Of course you're always pretty. Didn't you see the comments on Uenozono-ssi's vlog?"</p>
-<p>Recently, Uenozono Karen-ssi had been uploading the Seoul graduation trip vlog again, and the response was quite good.</p>
-<p>Of course, most of the comments were from Uenozono Karen-ssi's fans, but the other students, including Minamoto Risa-ssi, were all pretty, so the comment response was very favorable. In particular, Minamoto Risa-ssi was revealed to be the heiress of the famous Minamoto Group in Korea, so the response was even better. A chaebol daughter + a gyaru who is hard to see these days + a pretty combination seemed quite fresh.</p>
-<p>"I saw it, but there are a lot more comments on other things than on mine these days?"</p>
-<p>"That's.... unavoidable."</p>
-<p>I had already told her not to upload the Shinnamgyeong episode, but after the Seoul episode of the graduation trip ended, some fans and zombie enthusiasts were clamoring in the comment section to please upload the Shinnamgyeong episode as well.</p>
-<p>It's an actual situation and quite brutal. I couldn't understand why they would want to see it, but I thought that there must be various tastes in the world. And since she has an idol image, there was no need to upload a brutal video, so I heard that the agency was ignoring the comments saying "Shinnamgyeong episode please."</p>
-<p>In fact, Uenozono Karen-ssi didn't have the original. I had stolen the video and completely deleted it so that it couldn't be recovered, so now only Eve and I had the video file.</p>
-<p>"Shall we go now?"</p>
-<p>I held out my hand to Minamoto Risa-ssi. Minamoto Risa-ssi answered quietly with a "yeah" and took my hand.</p>
-<p>"Is there anyone following you today?"</p>
-<p>"Yeah. My father is paying attention to other things right now, and I'm in charge of managing the mansion, so they have to listen to me when I tell them not to follow me if they don't want to get fired."</p>
-<p>Minamoto Risa-ssi is the heiress of the Minamoto family, so bodyguards follow her wherever she goes. She usually wore another school's uniform and somehow managed to shake them off, but I asked her because she wasn't wearing a uniform today. It's Sunday today, and it seemed that she had completely taken control of the mansion's servants while her father, Minamoto Ushin-ssi, was unable to pay attention. By the way, if Minamoto Ushin-ssi can't even pay attention to his daughter, something else must be happening or about to happen. I'll have to look into this separately.</p>
-<p>In fact, even without the bodyguards, she didn't seem to have any fear of kidnapping or attacks because I was there. She had seen my abilities in Shinnamgyeong, and Minamoto Risa-ssi knew about my telekinetic powers.</p>
-<p>Today's date course was a net cafe date as before. After that, we would have dinner, and then I was planning to have a special date that I had thought of. It wasn't a very complicated schedule. Net cafe → Dinner → Special date → Home.</p>
-<p>"Welcome~!"</p>
-<p>I entered the net cafe, greeted by the clerk. It wasn't the same clerk I had seen before, probably because it was the weekend and not a weekday.</p>
-<p>"Please give me a VIP couple seat. For five hours. Please also pay for the drink bar for two people."</p>
-<p>"Yes, the drink bar for two people, VIP couple seat for five hours, is 6,780 yen."</p>
-<p>There was a place like a VIP couple seat? Before, we just played in a normal net cafe room with partitions. By the way, the VIP couple seat is expensive. I thought it would be better to rent a motel, but it wasn't time for me to go to a lodging facility with Minamoto Risa-ssi yet, so I went to the VIP couple seat.</p>
-<p>The VIP couple seat was not partitioned like a typical net cafe, but was decorated like a normal room. There was no bed, just a desk on the floor, and a PC desk and gaming chair were provided separately.</p>
-<p>"Let's go to the drink bar first."</p>
-<p>Minamoto Risa-ssi seemed to have a definite net cafe routine. She went straight to the drink bar right after settling down last time.</p>
-<p>Last time it was melon soda, but today she wanted to drink strawberry juice, so she chose that, and Minamoto Risa-ssi chose matcha frappuccino like last time. She even chose the same drink, so her routine is definitely solid.</p>
-<p>We grabbed drinks and some snacks and returned to the room, taking out the tablet in the room. We both took out the tablet because we had to watch classic works on the tablet.</p>
-<p>"Are you going to watch ○piece again today?"</p>
-<p>"Yeah, I have to continue watching the part I was watching before. You're still watching ○punchman?"</p>
-<p>I nodded at Minamoto Risa-ssi's question. But Minamoto Risa-ssi shook her head at my question. Huh? That ○punchman otaku isn't watching ○punchman at the net cafe?</p>
-<p>"I've already seen it five times, so today I'm going to watch ○piece like you."</p>
-<p>Minamoto Risa-ssi was slightly embarrassed and turned her head away as she answered, her face slightly flushed. That's kind of touching? It means she's sharing my interests.</p>
-<p>"I've only heard about ○piece, but I've never seen it, so I don't know if it will suit my taste."</p>
-<p>"It'll probably be fun."</p>
-<p>She's seen ○punchman five times, but she's never seen ○piece.... Actually, it's probably a bit of a burden because there are so many volumes.</p>
-<p>We were already settled and reading books. Minamoto Risa-ssi was sitting next to me, sucking on her matcha frappuccino with a straw from time to time, focusing on the tablet screen. Today, she was wearing clothes with a pretty deep cleavage, so her cleavage was clearly visible in my taller seated position.</p>
-<p>"What are you looking at?"</p>
-<p>"No, I was just wondering where you were watching."</p>
-<p>"Well.... I'd be curious about the reaction if someone said they were watching ○punchman. Don't worry, Ushin-ssi. It's fun enough."</p>
-<p>Minamoto Risa-ssi smiled at my answer with an understanding expression. In fact, I couldn't honestly say that I was looking at her chest rather than her reaction to ○piece, so I smiled and said that I was caught and turned my gaze back to the tablet screen.</p>
-<p>"*Huk*...! *Huk*...!"</p>
-<p>How long has it been? I was also focusing on ○piece, but I heard a sobbing sound next to me. What is it? When I looked, Minamoto Risa-ssi was watching ○piece and shedding tears.</p>
-<p>There are some touching or sad scenes in ○piece, but where is she crying like that?</p>
-<p>Curious, I looked at the tablet screen that Minamoto Risa-ssi was watching, and it was the story of the navigator, Nami-ssi. The story of Nami-ssi and her adoptive mother was quite sad. I remembered that I also blushed slightly when I watched it as a child before the possession. (I definitely didn't cry.)</p>
-<p>I remember that Minamoto Risa-ssi also had a sad story with her mother as an illegitimate child, so she probably felt more sad because she identified with her own appearance.</p>
-<p>"...!"</p>
-<p>Minamoto Risa-ssi noticed my gaze and looked at me with big, tearful eyes. I gave her a gentle smile as if to say it was okay to cry and stroked her hair.</p>
-<p>"*Huk, huk*...! *Uwaaah*...!"</p>
-<p>Minamoto Risa-ssi threw away the tablet and buried her face in my chest, sobbing loudly. I patted Minamoto Risa-ssi on the back and comforted her.</p>
-<p>___________</p>
-<p>Minamoto Risa-ssi B-cut!</p>
-<p>I thought it was a bit too much for a comic book cafe date, so I changed it to jeans hehehe</p>
+<p>The food prepared by the inn was delicious. It was a neatly prepared dish of mountain vegetables and meat from near Mount Fuji, and according to the clerk's explanation, it contained quite a few herbs that were good for stamina. So, I ate it very deliciously, and it really felt like I was getting stronger.</p>
+<p>After dinner, I played table tennis for about 30 minutes at the table tennis table prepared at the inn, and then went back to the room and had sex round 2. In the night's sex, the virgin Urabe Konoka couldn't last until midnight and fainted from pleasure.</p>
+<p>After that, I soaked in the hot spring and slept soundly until morning, and it was the most refreshing feeling I'd had in a long time.</p>
+<p>Usually, I would either be sleep-deprived from having sex until dawn, or I would sleep alone and have too much yang energy left over, so I would feel somewhat frustrated, but now I felt perfectly balanced. It felt like I was taking a vacation on a date for the first time in a long time.</p>
+<p>When I woke up with a comfortable feeling, Urabe Konoka was holding my face with her breasts and stroking my hair.</p>
+<p>"Konoka, when did you wake up?"</p>
+<p>"I woke up a few days ago and have been watching you, my partner."</p>
+<p>Ah, it wasn't Urabe Konoka. It seemed that Simyeonui Ttal had finally returned after a long silence. Hmm.... Simyeonui Ttal knew that I had met many women so far, so I didn't think she would be angry about doing it with Urabe Konoka, so I buried my face in Simyeonui Ttal's chest (although it was Urabe Konoka's).</p>
+<p>"I missed you."</p>
+<p>"Hehe, did you miss me so much that you're acting like this?"</p>
+<p>"Of course. I don't get to see you often normally.... But I still feel like we're connected somehow, but recently that feeling has disappeared."</p>
+<p>That was true. Simyeonui Ttal and I were connected by the trait Simyeonui Ttal's Brand, but recently, Simyeonui Ttal had been blocking all external stimuli in order to digest the avatar of the Sunken One, so that connected feeling was almost gone.</p>
+<p>"Hehe.... I have a lot to say, but first, hold me."</p>
+<p>Before I knew it, the black yukata that Urabe Konoka had been wearing as pajamas was taken off and spread out on the bed. She looked a little different from Urabe Konoka; even though we were indoors, she had slightly reddish-brown hair like Urabe Konoka when the sunlight was shining on her, and she was looking at me with more seductive eyes.</p>
+<p>"I'll make you feel good for the first time in a while."</p>
+<p>"Hehe.... I'm looking forward to it, my partner♥"</p>
+<p>______________________</p>
+<p>Urabe Collection</p>
+<p>Simyeonui Ttal Descended Mode Konoka</p>

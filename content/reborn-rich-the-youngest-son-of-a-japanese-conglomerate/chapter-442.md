@@ -5,84 +5,58 @@ weight = 442
 chapter = 442
 +++
 
-<p>"Let's rest a bit first, gather information, and then start acting as soon as possible."</p>
-<p>"Before that, let's meet with the branch manager-nim first."</p>
-<p>When Jack Henderson said he would rest, Ankoji Satoi stopped him and said that. Jack Henderson nodded as if he understood.</p>
-<p>"I heard the Tokyo branch manager-nim was busy, so I thought he wasn't here...? I was very rude. It's not that I didn't want to greet him, but I thought he wasn't at the branch, so I said I'd rest."</p>
-<p>"He's here today. Follow me."</p>
-<p>The Tokyo branch manager of the SPF was a well-known businessman who properly controlled the Tokyo branch, which had nearly a third of the SPF's Japanese forces. Because he had been providing considerable support for the SPF, the vampire hunters of the SPF Tokyo branch had a high level of loyalty to the Tokyo branch manager.</p>
-<p>The SPF New York branch trio and Ankoji Satoi went up to the top floor of the building. When they knocked on the door of the quite luxurious and large branch manager's office, they soon heard a voice from inside telling them to come in.</p>
-<p>"You must be tired from the long flight! I am the SPF Tokyo branch manager, Taira Jiro."</p>
-<p>A sturdy man in a suit got up with a smile and offered a handshake. The identity of the SPF Tokyo branch manager was Taira Jiro, the second son of the Taira family.</p>
-<p>Being the SPF Tokyo branch manager was one of the many identities that Taira Jiro had. Taira Jiro was the head of several organizations and exercised absolute control over each organization with his enormous financial power.</p>
-<p>Because Taira Danjo only allowed his children the minimum amount of PMC, Taira Jiro, who needed military force, began to devour organizations with considerable military force with his financial power without being recognized by the government like the SPF.</p>
-<p>He even showed the ability to contact terrorist organizations and make them his henchmen. Some of the terrorist organizations that Taira Jiro controlled were working for Taira Jiro's interests by carrying out terror against Taira Jiro's enemies.</p>
-<p>"I heard from the New York branch. Is it Otagi Yuka that you're after?"</p>
-<p>After finishing the greetings, Taira Jiro asked after everyone sat down in their chairs.</p>
-<p>"That's right. Otagi Yuka's actions in New York could not be overlooked, so the New York branch dispatched me and these friends."</p>
-<p>Jack Henderson said, pointing to Angel Ramirez and Malik Riverman, who were sitting quietly next to him.</p>
-<p>"The situation may be a little difficult."</p>
-<p>"Is it that difficult to catch one Otagi Yuka?"</p>
-<p>"It's not difficult to catch one Otagi Yuka. But the problem is that she's at a high school attended by daughters of prestigious families from all over Japan."</p>
-<p>If the SPF's heartless vampire hunters were deployed to St. Francisco Girls' Academy to catch one Otagi Yuka, many victims could occur. If that happened, the SPF would become the enemy of all of Japan, and this could lead to Japan falling into the hands of vampires.</p>
-<p>"High school student...? As far as we know, Otagi Yuka is an adult."</p>
-<p>"She failed a grade because she was in New York for a long time and didn't have enough attendance days."</p>
-<p>The SPF New York branch knew basic information such as her age and appearance, but it seemed that this was the first time they had heard that Otagi Yuka was an adult and a high school student.</p>
-<p>"If you hide that you're the SPF and there are no casualties among the other students, you can carry out the operation, but..."</p>
-<p>"We can, of course, hide our names, but we can't fight vampires while being considerate."</p>
-<p>It was common for high-ranking members of society to become vampires and carry out assassinations while hiding that they were the SPF, so hiding their names was not a big deal. However, there was no way to avoid collateral damage while dealing with a powerful vampire who had single-handedly dealt with the Black Moon Company's New York branch. Clearly, a considerable number of students would be swept up, and half of them were likely to die.</p>
-<p>"If I give you some ideas and troops, can you kill a few more people you want at St. Francisco Girls' Academy?"</p>
-<p>"We can do that much."</p>
-<p>"Team leader...!"</p>
-<p>"Angel!"</p>
-<p>When Jack Henderson accepted the proposal to assassinate ordinary people, which he could not accept if he were a righteous SPF vampire hunter, Angel Ramirez tried to shout, but Malik Riverman blocked Angel's mouth. Jack Henderson was a man who valued dealing with vampires more, even if there was some damage, so it was natural for him to nod at Taira Jiro's proposal.</p>
-<p>After all, if the SPF's vampire hunters stormed into St. Francisco Girls' Academy as they were, there would be even greater damage. Even if it was an assassination, Jack Henderson thought it would be better if only a few people died, because there would be less damage to ordinary people.</p>
-<p>"Then I'll tell you. First, send a threatening letter. Say something like if Otagi Yuka doesn't come out alone, the rest of her friends will be swept up. And..."</p>
-<p>A plan full of malice flowed from Taira Jiro's mouth. Jack Henderson smiled at the story and nodded.</p>
-<p>###</p>
-<p>Kurayamda Kirie, who had been taught a lesson by my dick, did not come to the education preparation room from after lunch until the end of the day.</p>
-<p>She tried to beat me with her body, but that was impossible. She must be a little embarrassed because she begged me to go slowly while we were having sex. Or maybe she can't forget the taste of my dick and is masturbating alone somewhere.</p>
-<p>When I think about it, it's funny. It was absurd that she was sent by the Toyotsuki faction of the Daigo family, but instead of trying to expel me, she tried to rape me. No matter how shocking a scene I showed a virgin, is it okay for her to try to fuck me as soon as she gets hold of my weakness? If Kurayamda Kirie was a man and I was a woman, it would be a light novel.</p>
-<p>Of course, she's not showing herself in front of me now because she knows she's ashamed...</p>
-<p>Thanks to that, I was able to smoothly prepare for class the day after tomorrow and prepare for the midterm exam without worrying about other people's eyes. At this rate, I think I can finish preparing the exam within this week, so I can rest on the weekend.</p>
-<p>While I was preparing the questions, my phone suddenly rang. When I looked at the name, it was Kurayamda Kirie.</p>
-<p>Kurayamda Kirie: I'm not feeling well, so I'm going home early today.</p>
-<p>Kurayamda Kirie: But keep in mind. I have your weakness...</p>
-<p>Kurayamda Kirie: The things I said while we were doing it were just to heighten the excitement, so don't think you've won!</p>
-<p>Kurayamda Kirie: Why aren't you replying while you're looking at it?</p>
-<p>Yamashiro Ryuta: I need a chance to speak to speak. I was looking at what you were saying because the lines kept coming while I was typing.</p>
-<p>Kurayamda Kirie: Is that so? See you tomorrow then.</p>
-<p>Yamashiro Ryuta: Okay. See you tomorrow, you faking-sick pervert-ssi.</p>
-<p>She kept turning on the holy pillar and having sex, so it's a lie that she's sick. However, she may have been a little mentally exhausted. I thought that Kurayamda Kirie might have been mentally exhausted as a virgin, so I didn't nag her for leaving.</p>
-<p>Kurayamda Kirie was quiet for a while at my words, "faking-sick pervert-ssi," and then sent lines non-stop. The phone kept buzzing for a while, but I didn't look at it. This time, I didn't look at it and just left it alone, so she won't ask why I'm ignoring her.</p>
-<p>As soon as I turned off the line, it was time for the end of the day, so I just left the noisy phone and headed to the special class classroom.</p>
-<p>"Nothing happened today, right?"</p>
-<p>"Where's Kirikiri-chan?"</p>
-<p>Seizawa Shii was asking about Kurayamda Kirie's whereabouts, giving her another strange nickname.</p>
-<p>"She said she wasn't feeling well and left early."</p>
-<p>"Hee~! Kirikiri-chan, is it that day?"</p>
-<p>"Stop it, Shii!"</p>
-<p>Minamoto Risa stops Seizawa Shii from saying anything. Hmm, she's having a hard time. I greeted Minamoto Risa with my eyes and started telling her the announcements I had received.</p>
-<p>"From today until the end of the exam, clubs are prohibited, so don't think about being in the club room."</p>
-<p>"Ehh! We were going to have a study group in the club room today!"</p>
-<p>"I know you're just going to lie down on the sofa and watch Ratflix if you're in the club room. Just meet at home or at a cafe or family restaurant."</p>
-<p>Everyone, including Seizawa Shii, grumbled and complained at the word "club room prohibited." I can't help it if the school doesn't allow it. I just told them to study at a cafe or family restaurant. I didn't even bring up the idea of a library from the beginning because I thought our class, with its energetic characteristics, would quickly make noise and get kicked out.</p>
-<p>Then, since Cheongsim Hall is also a club, does that mean we're not doing Cheongsim Hall today either? Should I have dinner with the home ec teacher after a long time? While I was thinking for a moment, Seizawa Shii raised her hand again.</p>
-<p>"Can we study at Ryuta-cchi's house?"</p>
-<p>"Of course not. Don't even think about it because the teacher is still preparing the exam even after getting off work."</p>
-<p>Everyone laughs when I gesture to shoo them away.</p>
-<p>Ehh~! Then I guess I can't help it. Let's have a study group at the family restaurant today!</p>
-<p>Seizawa Shii said, looking at some of the students, as if they had really planned to have a study group today. It seemed that they were thinking quite seriously about my promise to give a gift if they were within the top 6. If this happens, the average grade of our class might be quite high?</p>
-<p>Daigo Terue would be very happy. If the special class's grades increase as soon as they come to her line, Daigo Terue's voice will also increase in the Daigo Educational Foundation.</p>
-<p>"Okay, study hard. There are no other announcements, so I'll finish here."</p>
-<p>"Ryuta-cchi Annyong~☆"</p>
-<p>"Thank you for your hard work!"</p>
-<p>"Ryuta, Alik is going to study...!"</p>
-<p>Several students greeted me, put on their bags, and got up from their seats. The study group members seemed to have formed parties of three or four close friends and were gathering together to talk about where to study.</p>
-<p>Alik, who I was most worried about, joined the Konoe Akina and Otagi Yuka team and was talking.</p>
-<p>"Teacher."</p>
-<p>"Sakagami."</p>
-<p>As I stood at the teacher's desk and looked at the students, Sakagami Rena called me as she packed her bag and left. I feel a little sorry. She can't even have a study group because of my order to investigate Kurayamda Kirie.</p>
-<p>I winked at her to mean "thank you," and Sakagami Rena blushed and went straight outside. She's very shy.</p>
-<p>---</p>
-<p>SD Otagi Yuka</p>
+<p>I dedicated myself to Otagi Yuka's treatment(?) until evening, fully restoring Otagi Yuka and contacting our fellow combatants to inform them of her successful recovery. Afterwards, I changed into the clothes prepared in the safehouse. I couldn't exactly wander around in a cyber suit. Otagi Yuka remained in the school uniform she had been wearing.</p>
+<p>"Here."</p>
+<p>Otagi Yuka hands me a small vial containing a very small amount of blood. What is this? Seeing my questioning expression, Otagi Yuka blushed slightly and opened her mouth.</p>
+<p>"Since ancient times, the virgin blood of our kind has been a precious ingredient in alchemy. This is the price for saving me, Sensei-ssi."</p>
+<p>Aha, because the vampire Otagi Yuka had great control over blood, she was able to collect her virgin blood that was on her and my body during sex and put it in a vial. She was able to completely remove the blood from her blood-soaked uniform, so she must have been able to collect the virgin blood scattered during sex.</p>
+<p>I focused my mind and looked at the vial Otagi Yuka gave me. Soon, a translucent information window popped up.</p>
+<p>◆Superior Vampire's Virgin Blood [Unique Elixir/Material/Consumable]</p>
+<p>A collection of virgin blood from a virgin superior vampire. An elixir that increases regeneration and raises recovery stats by 3~5. If consumed without proper measures, the Vampire Transformation debuff is activated, turning the consumer into a vampire. Usually used as a material for making elixirs or magical items. Because it was a precious material, many female vampires were raped by vampire hunters during the witch hunt era.</p>
+<p>A unique-grade material... This is quite a gift. If I just eat it, my race will change to a vampire, so I can't eat it. I received the vial and smiled at Otagi Yuka.</p>
+<p>"Thank you. I'll use it well."</p>
+<p>"Eung.... By the way, if you just eat it, you'll become a vampire, so never eat it without taking other measures or use it to make equipment."</p>
+<p>Otagi Yuka even told me the precautions to take when consuming it in response to my greeting. I nodded and put the virgin blood I received from Otagi Yuka into my pocket. I thought about a list of useful alchemists and said to Otagi Yuka.</p>
+<p>"Let's go home now."</p>
+<p>"Okay."</p>
+<p>We took a taxi we had called and returned to Miyagi City, where our respective homes were located. It was a bit much to drop Otagi Yuka off alone at the Otagi family's mansion, which had become an empty house, but in the end, she had to overcome it herself.</p>
+<p>"Rest well and see you tomorrow."</p>
+<p>"Yeah, thank you... Sensei-ssi."</p>
+<p>In response to my greeting, Otagi Yuka waved her hand with a forced bright expression. Of course, it would be much better to take revenge than not to take revenge, but even if she did take revenge, it wouldn't bring the dead back to life, so she would definitely feel empty. There was nothing I could do to help, and it was a problem that Otagi Yuka had to overcome on her own, so I could only say one word of encouragement.</p>
+<p>After sending Otagi Yuka home, I arrived at my house as well. Getting out of the taxi, I couldn't help but flinch slightly. The lights were on in the house, which should have been empty. Who the hell came?</p>
+<p>I took off my shoes and went inside, and Taira Kanna and Konoe Akina were there, and Sakagami Rena and Saionji Diana were also there, sitting down.</p>
+<p>"Onii... I mean, Teacher, you're here?"</p>
+<p>Taira Kanna greeted me with a slightly dangerous look in her eyes for some reason. Following her, Konoe Akina, Sakagami Rena, and Saionji Diana also greeted me, so I said I'm back and sat down on the empty space on the sofa in the living room where everyone was gathered.</p>
+<p>"By the way, what's going on?"</p>
+<p>"I think I need to tell you about what happened at school today."</p>
+<p>Konoe Akina answered my question. Ah, I see. I heard that there was an attack, but I didn't know exactly what the situation was. Now that I'm hearing the story from Taira Kanna, I'm curious.</p>
+<p>"I'll explain the overall story."</p>
+<p>Taira Kanna stepped forward and opened her mouth. As the student council Chairman, Taira Kanna would know the overall story in more detail than Konoe Akina or the other students.</p>
+<p>"The attack took place when students were moving during the start of lunch break."</p>
+<p>Certainly, if they attacked during class or a short break, the attack location would be quickly identified and suppressed. If they attacked when students were going to the cafeteria or buying bread at the store, they would quickly fall into chaos, making it easier to succeed in the mission.</p>
+<p>The attackers seem to have targeted the daughters of families who are in competition with Taira Jiro's business, myself, and someone in the special class. The three students who died were Negi Makiho, the daughter of the Negi family, who used to be a vassal of my brother Saburo and now supports me from behind, and two daughters of families who are in competition with Taira Jiro's business.</p>
+<p>When I heard about it after the battle at the shrine, two students had died and five were seriously injured, but when Taira Kanna said that three had died, it seemed that one of the five seriously injured had died.</p>
+<p>By the way, Taira Kanna seemed quite angry. She used to call him Jiro Onii-sama, but now she just calls him Taira Jiro by his name. She almost died herself, and even the daughter of a family who followed her died, so it seemed natural that she was filled with anger.</p>
+<p>Most of the seriously injured are daughters of rival companies and daughters of forces close to me. Sakazuma Aasa, the student council secretary, was not seriously injured, but she was attacked as well.</p>
+<p>Listening to the dead and injured, it seemed that Taira Jiro's target was either the daughter of his rival company or Taira Kanna's close aides in order to step on Taira Kanna before she could properly grow, as she had absorbed some of Taira Saburo's forces.</p>
+<p>"If it were a normal terrorist, the school wouldn't have suffered this much damage. Because they were made invisible by a transparency superpower user, we couldn't respond properly, so fifteen guards died and the students suffered a lot of damage. At first, I thought they were using optical camouflage technology, but when I examined the bodies of those whose transparency had been lifted, I confirmed that they had no special equipment, so it was revealed that it was a terrorist attack using superpowers."</p>
+<p>Listening to the story, I realized why Taira Jiro specifically chose to attack when the SPF New York branch was attacking Otagi Yuka.</p>
+<p>One of the agents dispatched from the SPF New York branch was a transparency ability user. Since he was supporting the people of the SPF New York branch anyway, he must have received help himself. The terrorist group that received support for the transparency ability clearly killed the people who had to be killed for Taira Jiro's future.</p>
+<p>"But what about the special class being attacked...?"</p>
+<p>"I'll tell you about that! Our assistant teacher, Kurayamada-sensei, was very active. Five people tried to attack only our special class, but they were all cut down by Kurayamada-sensei's sword and died without being able to attack properly."</p>
+<p>Is Kurayamada Kirie that good? Konoe Akina glanced at Taira Kanna, so it seemed that Konoe Akina also helped in the battle with her Mystic Eyes. She wanted to hide her abilities in front of Taira Kanna, who was not yet sure if she was on my side, so she gave all the credit to Kurayamada Kirie.</p>
+<p>By the way, I was curious about what it meant to attack the special class. If they rashly touched the Minamoto family, a corporate war would break out in Japan, or did they attack Taira Kanna's side and Minamoto Lisa's side at the same time in order to broaden the suspects as much as possible? There was too little evidence on this side, so it was difficult to even guess.</p>
+<p>"Of course, there's no evidence that Taira Jiro did this, right?"</p>
+<p>"Yes, except for the circumstantial evidence that Teacher told us, there is no real evidence. The terrorist group that attacked St. Francisco Academy for Girls has been expressing hostility towards the Japanese upper class for a long time, so it's difficult to link them to Taira Jiro, and they are not related to the groups mobilized in the battle at the shrine this time, so the dates and periods are coincidental, but we can't attack Taira Jiro with that."</p>
+<p>As expected, Taira Jiro seemed to have prepared thoroughly so that he wouldn't get caught, as this incident could have completely ruined his position and even sent him to jail.</p>
+<p>"By the way, if Kurayamada Kirie handled the five people who attacked the special class, who handled the rest?"</p>
+<p>"Fifteen guards died in the early stages, so they couldn't exert their power properly, but our school has a disciplinary committee."</p>
+<p>Is the disciplinary committee strong enough to suppress terrorists? It was hard to believe. Taira Kanna seemed to like my surprised expression, and she smiled slightly, erasing the gloomy expression she had had until just now because someone from her forces had died.</p>
+<p>"Of course, the disciplinary committee may not be as skilled combatants as the terrorists, but the disciplinary committee's equipment warehouse has state-of-the-art combat equipment sleeping there thanks to donations from many parents. Transparency can be confirmed with thermal vision goggles, and there are state-of-the-art cyber suits and the latest military firearms donated by parents, so although there were injuries, we were able to win without any deaths."</p>
+<p>In the end, they won with equipment. Still, I heard good information. The information that wide-area transparency can be confirmed with thermal imaging goggles and that the disciplinary committee of St. Francisco Academy for Girls is a hidden armed force that no one knows about.</p>
+<p>By the way, how much are the donations that the disciplinary committee has equipment to overwhelm terrorists? Even if each of the academy's donors is a famous family recognized in Japan, even if it's the disciplinary committee that is responsible for the safety and chastity(?) of the daughters of those famous families.... Hmm, thinking about it, it's somewhat understandable. They would have donated a considerable amount of money to protect their children's safety and chastity.</p>
+<p>"Ah, and tomorrow early in the morning, all the teachers, the student council, and the disciplinary committee of St. Francisco Academy for Girls will gather to talk about this situation. The story of Teacher being absent may come up, so be prepared."</p>
+<p>Certainly, if there is a teacher who disappeared before the attack started, he will be highly suspected. This is also good information. I can prepare in advance.</p>
+<p>"Thank you. Good information."</p>
+<p>"I don't regret any information I give to Teacher."</p>
+<p>Taira Kanna, who was speaking with deep, empty eyes like an abyss, became a little scary, but I still thanked her.</p>

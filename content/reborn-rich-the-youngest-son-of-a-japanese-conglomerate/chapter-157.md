@@ -5,91 +5,71 @@ weight = 157
 chapter = 157
 +++
 
-<p>Swimsuit illustration included.</p>
-<p>,If Hijitani-ssi was at the entrance from around 8:07, she would know that I didn't go to the Kantou University people's lodging. She can see our passage from the entrance. Even if she was looking outside the entrance, she would have heard my footsteps."</p>
-<p>Everyone exclaims, "Ah~!" at my explanation. Hijitani Saori, who was thinking for a moment, also nods.</p>
-<p>,I certainly didn't see Taira-ssi passing by this way."</p>
-<p>,But could he have gone before 8:07?"</p>
-<p>Professor Homura Kouga was pointlessly raising objections. Annoying me with his diarrhea-ridden professor ass.</p>
-<p>,At least I was in my room at 8:02. Can you see the selfie here?"</p>
-<p>I showed them the selfie I took with the open-air bath as the background. And I showed the time in the photo information. It was recorded exactly at 20:02:36.</p>
-<p>,It's possible to commit murder in 5 minutes, but if a stranger like me, who isn't close to him, tries to kill Kimura-ssi, there would definitely be a big commotion, like a physical fight."</p>
-<p>In fact, if I decided to kill Kimura Atsuhiro, 5 seconds would have been enough, let alone 5 minutes. But they don't know my skills well, so they nodded at my words. But only Professor Homura Kouga was not convinced.</p>
-<p>,That's true... But looking at the body, he was stabbed in the back with a knife, so could he have been ambushed?"</p>
-<p>Ah, this crazy old man...! I sighed and opened my mouth again.</p>
-<p>,Am I some kind of ninja that I can go into a room without the person inside noticing and ambush him from behind? And as you can see in the photo, it's 8:02:36. If you calculate the time to go out and the time to return to the room, you'll know that it's less than 3 minutes. It's not nearly enough time to commit murder. Do I need to say more here?"</p>
-<p>When I looked at Professor Homura Kouga with a slightly angry expression, the professor flinched and said, "Ah, I understand."</p>
-<p>In fact, the alibi would be solved if I showed the KakaoTalk with Han Yu-gyeong, but there were sexy photos of Han Yu-gyeong in there. I couldn't show my woman's breasts to others. And there's also a photo of my fully erect dick. Well, showing my dick photo wouldn't matter. It would just hurt the self-esteem of the two surviving Kantou University men.</p>
-<p>,It's certainly strange that there are no signs of a struggle, as Taira-ssi said just now."</p>
-<p>Wano Haruto said. Certainly, Kimura Atsuhiro was one of the more robust members of this Kantou University group, except for his friend Morisuke, who died before. If a physical fight had occurred, he wouldn't have been lying down as if he were just sleeping without any mess.</p>
-<p>Wano Haruto was lost in thought, and everyone else was also silent. As if he couldn't stand the silence, Professor Homura Kouga immediately opened his mouth.</p>
-<p>,The people who don't have overlapping alibis from earlier are..."</p>
-<p>Professor Homura Kouga glanced at me and then paused for a moment.</p>
-<p>,In the end, it would be three people excluding the victim."</p>
-<p>Professor Homura Kouga has guts. He was scared just now and said, "Ah, I understand," but in the end, he included me as a suspect. In the end, the people who didn't have alibis for the two murder cases presented by Professor Homura were me, Uchidate Kanimi, and Hijitani Saori.</p>
-<p>,If you're saying that I don't have an alibi because my whereabouts are unclear for 4 minutes and 30 seconds, doesn't that mean that Professor Homura also doesn't have an alibi for this incident? You disappeared for 10 minutes to go to the bathroom. And you said that Professor Homura and Wano-ssi were together during the first murder, right? But both of you said you went to the bathroom, so you could have committed the murder then. Why are you excluding yourselves?"</p>
-<p>I snapped back because I was annoyed that he was subtly excluding himself from the list of suspects. I couldn't understand how he could put me on the suspect list because I couldn't prove my alibi for less than 5 minutes, even though he clearly made the easy excuse of going to the bathroom both times for the first and second murders and left his seat, yet he was getting off the suspect list.</p>
-<p>,That's... 10 minutes was long for this murder, but going to the bathroom during the first incident didn't even take 1 minute. You can't commit murder in that time. Wano-gun can prove it."</p>
-<p>,If you two are accomplices, you're giving each other perfect alibis."</p>
-<p>"Ah!"</p>
-<p>Jjak!</p>
-<p>Wato Haruto suddenly clapped his hands with an exclamation as if he had realized something at my words. Because of Wano Haruto, the atmosphere that had been heated up until just now because of me and Professor Homura Kouga calmed down.</p>
-<p>,What is it?"</p>
-<p>,I have something in mind... I'll tell you when it becomes more concrete."</p>
-<p>What, that's anticlimactic... A moment of silence lingered, but the innkeeper grandmother opened her mouth as if trying to sort out the situation.</p>
-<p>,Everyone needs to rest, so why don't we put the body in the basement first? There's one more coffin in the storage room."</p>
-<p>,I will, but this island's custom is to prepare only one's own coffin, so why do you have so many coffins? The coffin that Morisuke was put in was also quite large compared to the grandmother's physique."</p>
-<p>Wano Haruto asked as if he couldn't contain his curiosity. At Wano Haruto's question, the innkeeper grandmother made a sad expression.</p>
-<p>,Those coffins are for my son and daughter-in-law... They both didn't even find their bodies in a boat accident, so there are coffins left without owners."</p>
-<p>,Ah, is that so? I asked something unnecessary."</p>
-<p>When the atmosphere became strange, Wano Haruto went to get the coffin with an awkward expression. When Wano Haruto brought the coffin, I and Wano Haruto put Kimura Atsuhiro in the coffin and moved the coffin to the basement.</p>
-<p>,I'm sorry that my professor is being stubborn for no reason. In my opinion, Taira-ssi is the least likely to be the culprit. In the first place, you don't know us and you said you don't have an alibi, but both of those times are too short to commit murder."</p>
-<p>Wano Haruto apologized on the way to move the coffin to the basement. The person who made a mistake should apologize, not Wano Haruto.</p>
-<p>,It's not your fault. But have you caught any clues?"</p>
-<p>,Some pieces of the puzzle are coming together, but I still can't see the decisive piece."</p>
-<p>We talked and went to the basement and put the coffin containing Kimura Atsuhiro's body next to Morisuke's coffin. Just as we were about to go up after putting the coffin down, Wano Haruto opened the coffin and was looking at Kimura Atsuhiro's appearance.</p>
-<p>,Aren't you going up?"</p>
-<p>,We weren't close, but we knew each other, so I'll pray for his soul and go up."</p>
-<p>If that's the case, I can't force him to go up. I said to Wano Haruto, "Then I'll go up first," and started climbing the stairs.</p>
-<p>,Medicine, huh..."</p>
-<p>I heard Wano Haruto saying something quietly from behind, but I didn't know what it meant. When I went up to the first floor, everyone had returned to their rooms. It was a complacent situation where everyone was scattered without anything being decided.</p>
-<p>In fact, I didn't care what happened to the Kantou University students. Besides, even if the culprit attacked me, I could fight back enough, so I wasn't worried.</p>
-<p>,Let's rest."</p>
-<p>After having a pointless debate about whether there was a valid alibi or not and moving the body to the basement, it was already ten o'clock. I usually spend the night having sex every day, but I should go to bed early today. I'm likely to meet the Daughter of the Abyss tomorrow, so I need to build up my stamina in advance.</p>
-<p>I went into the room and threw myself into the blanket. Thanks to the cozy blanket, I was able to fall asleep quickly.</p>
-<p>###</p>
-<p>Knock knock knock!</p>
-<p>,Guest, breakfast is ready."</p>
-<p>,Yes..."</p>
-<p>I opened my eyes at Hamahata Konoka's voice. The time was... 7 a.m. I slept for almost 9 hours. It was the first time in a long time that I had slept this long.</p>
-<p>Deureureuk.</p>
-<p>The sliding door opened and Hamahata Konoka, who had brought breakfast, appeared. Hamahata Konoka was setting up breakfast on the low table next to the bed. When I smelled it, it seemed to be porridge with seafood. Hamahata Konoka, who was faithfully carrying out the order to prepare 3 servings, brought a small pot that was enough for three people to eat.</p>
-<p>,I'll give you more if you eat it all."</p>
-<p>,Yes, I'll enjoy the meal."</p>
-<p>I scratched my messy hair and ate the porridge that Hamahata Konoka had served. Hmm, it's delicious. I could feel the rich taste of the sea. Because it was porridge, I felt like it was being quickly absorbed from head to toe.</p>
-<p>,It's delicious."</p>
-<p>,Hehe, thank you."</p>
-<p>,Do the inn people go to see the island festival?"</p>
-<p>,Yes, the whole village supports the festival. Our Chou-ten Inn is no exception. So you'll have to have dinner at the shrine."</p>
-<p>Ah, the inn also attends the festival, so I have to eat dinner at the shrine. Anyway, I have to do something called a tribute role, so I'm going to be at the shrine for dinner.</p>
-<p>,I was asked to do the tribute role at the shrine, so I have to go by 6 o'clock."</p>
-<p>,Really? Wow! I think this is the first time this has happened. Every time, I made human figures with rice cakes without beef, but it seems like you're getting special treatment, guest."</p>
-<p>Hamahata Konoka is very surprised at my words. Of course, it's the first time. Who in this world would have been invited by the Daughter of the Abyss?</p>
-<p>I refilled the seafood porridge two more times and took a shower and brushed my teeth in the shower facilities prepared in one corner of the hot spring. I have to purify myself in the hot spring later after lunch and before going to the shrine.</p>
-<p>The rain continued to fall. I didn't have anything special to do, so I was restless staying in the room, so I took the umbrella that I hadn't returned yet and left the room for another walk.</p>
-<p>,Ah, come this way."</p>
-<p>Professor Homura Kouga called me when I was about to leave the guest room building. He called me with an indifferent expression as if he didn't care at all about the war of nerves we had yesterday.</p>
-<p>,Are you going to the shrine in the evening too? The inn said that they're providing dinner at the shrine today because of the festival. I'm saying this because I can't leave you alone, since you don't have an alibi."</p>
-<p>,The shrine asked me to take on the role of tribute, so I'm going to the shrine too."</p>
-<p>At my words, Professor Homura Kouga widened his eyes and started asking me this and that with eyes burning with academic passion.</p>
-<p>,How did the shrine know you and ask you to do the work?"</p>
-<p>,Is the tribute role transferable? Can I, can I try it?"</p>
-<p>,There's a festival event that ordinary people can't see, can you let me see it too?"</p>
-<p>,Can't I bring a camera and take pictures?"</p>
-<p>What, he looked almost crazy. Of course, my answers were all, "Please ask the shrine." I thought the shrine would reject most of the professor's requests, but he was full of anticipation of becoming part of the festival himself when I said that I would attend the festival as a tribute.</p>
-<p>,Maybe Hime-nim Shinkai will change it if she likes you."</p>
-<p>I left only those words and went for a walk.</p>
-<p>--- An illustration I made because I suddenly wanted to see Arisu ---</p>
-<p>Arisu coat advertisement</p>
-<p>Arisu in a school uniform is crazy.</p>
-<p>Arisu in a school swimsuit</p>
+<p>,Yong-tae-yah~!!"</p>
+<p>As I got off the plane at the airport, Han Yu-gyeong was waiting for me with her bodyguard, Dickson. Han Yu-gyeong, jumping up and down and waving her hand, looked incredibly cute. She was wearing a black pleated skirt that matched her white collared shirt, and she looked great in it, exuding a fresh, college-student vibe.</p>
+<p>Come to think of it, Han Yu-gyeong is the youngest of the women I've dated? Since we're the same age. There's a reason she feels so fresh.</p>
+<p>,I missed you!"</p>
+<p>As I got closer, Han Yu-gyeong rushed over and hugged me tightly. I hugged her back just as tightly, telling her I missed her too, and she giggled, nuzzling her head into my chest.</p>
+<p>People around us were looking at Han Yu-gyeong and me, wondering who the guy this gorgeous woman was waiting for. Han Yu-gyeong didn't seem to care, already used to this kind of attention. I was a little awkward, but I've gotten somewhat used to the stares.</p>
+<p>,Are you hungry? Should we grab a bite?"</p>
+<p>,Yeah, let's eat. It's lunchtime, after all?"</p>
+<p>I had booked the flight to arrive right around lunchtime. My plan was to eat as soon as I got off the plane since I was really craving Korean food.</p>
+<p>Our group headed to Han Yu-gyeong's car, which was parked in the airport parking lot. She must have gotten a new car because it was much fancier than her old one. Han Yu-gyeong's new car felt like the kind of dignified car that CEOs ride in.</p>
+<p>,You got a new car?"</p>
+<p>,Yep! I didn't tell you so I could surprise you~."</p>
+<p>I asked Han Yu-gyeong as I loaded my suitcase into the trunk. Getting a new car isn't that surprising, though. I know that Han Yu-gyeong made a ton of money investing in Health Miracle based on my advice, so she could buy over a hundred of these cars.</p>
+<p>,Actually, the surprise isn't just the car... I bought a company."</p>
+<p>,Oh, really?"</p>
+<p>It's a bit early, but using the money earned from Health Miracle to buy a company from the start was one of the major routes. I wonder if there's a company worth buying right now?</p>
+<p>,What kind of company did you buy?"</p>
+<p>,I bought a security company. Security demand keeps increasing these days because public safety is unstable."</p>
+<p>As expected, she's so smart that she seems to have picked the right answer even without knowing the strategy. She must have done a lot of research before buying the security company. Since Korea wasn't a country where PMCs could openly operate like Japan, most of them were operating under the name of security companies.</p>
+<p>Security companies were one of the top places where numerous men conscripted during the war ended up after the war. The remaining top spots were the workplaces they had before the war, and a significant number ended up in criminal organizations. Some even became drug addicts due to the trauma of the war.</p>
+<p>Quite a few police officers were sacrificed during the war, and after North Korea collapsed and unification occurred during World War III, the already insufficient police force had to cover the North Korean region as well, causing the crime rate to skyrocket.</p>
+<p>The South Korean government was already burdened with enormous post-war reconstruction costs and didn't have the money to recruit more police officers, so they took police officers who were originally in South Korea and sent them to the North. As a result, public safety in North Korea remained poor, and the police density in the original South Korean region decreased, making public safety unstable throughout the country.</p>
+<p>Along with that, private security companies grew. Security companies that had strengthened their forces by bringing in combat experts who had gone through the war gained the public's trust. That has continued until now, eight years after the war, and security companies have become a lucrative industry. Plus, they can be used as manpower in case of emergency.</p>
+<p>But buying a security company is the right answer, but among those security companies, there are some that are huge hits. I wonder which one she bought?</p>
+<p>,By the way, which security company did you buy?"</p>
+<p>,You've probably never heard of it. It's called Vanguard..."</p>
+<p>Ooh! Vanguard! Is it because she's smart, or is it because her luck stat is high? Han Yu-gyeong was picking the right answer every time. Vanguard was the super hit choice I had in mind. In the community, Vanguard was the first place recommended when acquiring a security company in Korea. Plus, it was famous for being hard to acquire. You could only buy it early in the game when the company was struggling; if you missed that timing, you could only request services from them.</p>
+<p>All of its employees were from special forces, and they were an elite force with decent equipment, and the company was quite large. Compared to the security companies owned by chaebol groups, its fame was lower, but its substance was the best.</p>
+<p>,So, Yu-gyeong-i is the CEO now?"</p>
+<p>,Yeah, my secretary said I had to buy a car befitting the CEO position, so I bought it. I stretched myself a bit buying the security company, so I barely managed to buy the car too, you know?"</p>
+<p>Well, Vanguard itself is a top-tier company, so even if she made a lot of money from stocks, it would have been hard to buy. The fact that she bought it at all is a big deal. You need timing, luck, and money to buy it. The company will run itself now, but Han Yu-gyeong herself probably doesn't have much money, which makes me feel bad. Should I give her some allowance under the guise of investment?</p>
+<p>,Should I invest in you?"</p>
+<p>,No, the company is fine."</p>
+<p>,Then I'll buy a portion of the shares. About 10 percent?"</p>
+<p>She said the company was fine, so I suggested holding Vanguard's shares, but Han Yu-gyeong seemed hesitant to receive money from me and said she would think about it.</p>
+<p>The place we arrived at for lunch was a samgyetang restaurant. It was mid-July, getting hotter, so it seemed like she was trying to replenish my energy.</p>
+<p>,Please give us a Wild Ginseng Abalone Chicken Stew."</p>
+<p>I don't know what she's trying to get me to eat, ordering such an energy-boosting samgyetang. Wild Ginseng Abalone Chicken Stew... I can't even imagine what it tastes like. But since I've been in Japan, it's been a while since I've had samgyetang, so I'm looking forward to it.</p>
+<p>Soon, the meal came out, and I started eating the samgyetang deliciously after a long time. Hmm, I was a bit worried, but it just tastes like samgyetang. For reference, Dickson was eating at a table near the entrance. If a freak enters, he'll come in through the entrance, so he seemed to be sitting at a table near the entrance in preparation for that.</p>
+<p>,Ah, that's right. How's Nero?"</p>
+<p>,He's doing well~! Look."</p>
+<p>Looking at Dickson, I suddenly remembered Han Yu-gyeong's other bodyguard, the Shadow Panther Nero, and asked about him. The place Han Yu-gyeong was pointing to was my shadow, and Nero's tail came out from there, wrapped around my ankle once, and then went back into the shadow. He seemed to be following Han Yu-gyeong's instructions quite well. Well, since there's a related trait, the training must be over by now.</p>
+<p>If Han Yu-gyeong continues to follow the summoning tree, I should create a summoning scroll using the summon coordinates I remember. Of course, it depends on what traits come out in the level-up, but I should make one after raising her level to some extent.</p>
+<p>Of course, summoning scrolls aren't just made, so I needed considerable preparation as well. Most of it had to be obtained from the black market, so it cost a lot of money and time. If she only does summoning as a support and takes other trait trees, I was thinking of preparing something else instead of a summoning scroll accordingly.</p>
+<p>,Ah, I'm full. Yong-tae, did you enjoy the meal?"</p>
+<p>,Yeah, it's good to eat samgyetang after a long time."</p>
+<p>Maybe it's because it had a lot of wild ginseng and abalone in it, or maybe it's just because of my mood, but I felt like I was really getting energy.</p>
+<p>,Then, now that we've had something delicious... shall we go home?"</p>
+<p>Han Yu-gyeong's face was flushed as she asked, and she looked so lovely that I smiled and nodded. It was a little funny to see Dickson looking at us with a pleased expression from the table near the entrance.</p>
+<p>,Yeah, let's go! I need to put my luggage down, and I want to be alone with Yu-gyeong-i..."</p>
+<p>,Hehe... I want to be alone with Yong-tae too."</p>
+<p>We took the car to Han Yu-gyeong's place near Korea University. She didn't move, did she, even though she changed her car?</p>
+<p>,The house is still the same as before, right?"</p>
+<p>,Yeah, there's quite a bit of time left on the lease, and it's close to the university, so I don't really feel like going anywhere else yet, so I'm still there."</p>
+<p>Han Yu-gyeong had a lot of stories to tell after not seeing me for a long time, so she kept chattering away, telling me about her university classes, friends, professors, and the students she tutors. It was fun to listen to the little things.</p>
+<p>As we were talking, we arrived at the apartment complex where Han Yu-gyeong lives.</p>
+<p>,We're here."</p>
+<p>,Thank you for your hard work, Dickson. You can go home now."</p>
+<p>,Yes, have a good time."</p>
+<p>Dickson seemed very happy to be going home right after lunch. Dickson took my suitcase out of the trunk before leaving. Han Yu-gyeong and I took the somewhat familiar apartment and elevator up. Soon, we arrived at the house, and when she opened the door, Han Yu-gyeong made an ,Eh?" sound. What's wrong? Why is she so surprised and fidgety?</p>
+<p>,What's wrong?"</p>
+<p>,The shoes..."</p>
+<p>There were a few pairs of shoes in the hallway, and judging from Han Yu-gyeong's expression, one of them didn't seem to be hers. Oh, there's a guest. This is a little awkward...</p>
+<p>,Oh my~, is that my daughter?"</p>
+<p>Someone approached the hallway and spoke. Her voice was as soft as silk. Judging by the fact that she called her daughter, it seemed to be Han Yu-gyeong's mother. No way, I'm suddenly meeting my girlfriend's mom... I didn't even have time to prepare myself...</p>
+<p>Soon, a beautiful woman with ash blonde hair wearing a white t-shirt and jeans stood in front of the hallway, greeting Han Yu-gyeong, and then she was surprised to see me behind her. It was Ha Ju-yoon, Han Yu-gyeong's mother.</p>
+<p>Ha Ju-yoon had a lot of fans because of her considerable beauty, and the fans made crazy remarks, saying that the youngest son of Mega Corp was a shitty game without freedom because he couldn't target the mother.</p>
+<p>I was thinking, ,What are you talking about in a 15-year-old game?", but seeing Ha Ju-yoon's beautiful appearance in person like this, I understood their feelings a little bit.</p>

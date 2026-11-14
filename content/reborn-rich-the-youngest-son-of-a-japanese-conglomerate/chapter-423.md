@@ -5,84 +5,84 @@ weight = 423
 chapter = 423
 +++
 
-<p>"What I want to do is..."</p>
-<p>Naruse Shiyo-ssi paused for a moment. Perhaps because of that, everyone was focused, staring only at Naruse Shiyo-ssi's mouth.</p>
-<p>"What I want to do with you, sensei-nim, is assist you with your workout. If we were in a relationship, I could help with things like that, right?"</p>
-<p>"Since there are things like home gyms... it's definitely possible."</p>
-<p>There might not be a home gym in this clubroom, but bodyweight exercises are possible... Naruse Shiyo-ssi is physically weak, so she probably suggested muscle training because she likes things that are 'strong,' like pro wrestling or death metal.</p>
-<p>"Alright! What exercise should we start with? We don't have equipment, so it'll have to be mostly bodyweight exercises."</p>
-<p>"Hmm... then please start with push-ups."</p>
-<p>Push-ups are easy enough. I immediately got down on the floor and started doing push-ups.</p>
-<p>"Haa... look at that tricep...!"</p>
-<p>Naruse Shiyo-ssi watched my muscles twitch with each push-up, panting and pressing down on them.</p>
-<p>"So firm, sensei-nim...!"</p>
-<p>"Haa...♥ Look at those veins...!"</p>
-<p>It sounds incredibly lewd if you only listen to the sounds, but Naruse Shiyo-ssi was seriously admiring my muscle quality. Of course, all the other students were just swallowing hard as they watched my twitching arm muscles.</p>
-<p>"Nineteen... twenty... By the way, Naruse, how many should I do?"</p>
-<p>"Just a little more, sensei-nim♥"</p>
-<p>I can keep doing push-ups without rest, but if this is supposed to be a home date, it feels a bit different. Only after Naruse Shiyo-ssi took pictures and videos of me working out was I able to finish the push-ups. I think I did almost two thousand. If the homeroom teacher was a normal male teacher instead of me, he would have collapsed immediately.</p>
-<p>"Then, please do sit-ups now!"</p>
-<p>Naruse Shiyo-ssi said, sitting on my instep and holding my calves tightly. Naruse Shiyo-ssi is so light that her body might lift up when I do sit-ups. I'll have to focus on engaging my core as much as possible.</p>
-<p>As I started doing sit-ups, Naruse Shiyo-ssi's face came closer. Well, since I'm bringing my face to my knees while doing sit-ups, you could say I'm getting closer to Naruse Shiyo-ssi.</p>
-<p>Naturally, Naruse Shiyo-ssi's face turned red, probably because she was embarrassed by my face getting so close. Unlike the push-ups, which she made me do for a long time, she quickly stopped the sit-ups.</p>
-<p>"S-sit-ups are enough now! Next is... squats."</p>
-<p>After sit-ups, she ordered me to do squats, but there wasn't much to see since I was wearing long pants. The fabric around my thighs bulged as if it would burst, but that alone wasn't enough eye candy. In the end, we only did about twenty squats before stopping.</p>
-<p>"Thank you for indulging my whims, sensei-nim."</p>
-<p>"No problem, it's good to exercise."</p>
-<p>To be honest, bodyweight exercises don't really do anything for me, but it was a fun experience in its own way. No one has ever watched me so intently while I exercised before.</p>
-<p>"Next, it's my turn."</p>
-<p>Next up was Saionji Diana-ssi. What Saionji Diana-ssi wanted wasn't that difficult.</p>
-<p>It was to help design the katana that Saionji Diana-ssi would use next. Even though it's called design, it wasn't anything professional. Saionji Diana-ssi would ask for my preferences, and I would answer, and she would just write it down in a notebook.</p>
-<p>Since Diana (the Moon Goddess) is also the name of the moon goddess, how about using the moon as a symbol? The pattern could be circular or crescent-shaped...</p>
-<p>"G-goddess...?"</p>
-<p>I don't really know anything about katanas, so I was just giving her a few design motifs, but Saionji Diana-ssi seemed flustered by my saying she was a goddess.</p>
-<p>She keeps her bangs long enough to cover both eyes, but looking at her facial features, nose, mouth, and jawline, she definitely isn't ugly. No, she's very pretty. She could be called a goddess.</p>
-<p>All the kids in our class are beauties, and Saionji Diana-ssi is hiding her face with her bangs, so it's not obvious, but if she went to a normal school, she would be called the school's idol and be the object of admiration.</p>
-<p>I didn't have any more advice to give about the sword's design, so it ended quickly. Nevertheless, Saionji Diana-ssi seemed very satisfied. Now there are only two left. Minamoto Risa-ssi and Shido Tsubaki-ssi. Both are a bit awkward, but I can't do it for one and not the other, so I have to do it.</p>
-<p>"I'll go last, so Minamoto-ssi, please go first."</p>
-<p>"Really? There's nothing I particularly want to do... Ah! I've got it!"</p>
-<p>When Shido Tsubaki-ssi yielded her turn, Minamoto Risa-ssi came up with something. Her expression was strange, a complex expression that seemed both triumphant and frustrated.</p>
-<p>"What I want to do on a home date with my boyfriend is... meditation!"</p>
-<p>...Minamoto Risa-ssi doesn't seem to have given up her attachment to the Date Experience - Meditation Club. When I registered as the homeroom teacher and advisor, I just wrote down Date Experience Club, so that seems to still be on her mind.</p>
-<p>"Kya haha! Risa-tan, you still have the Meditation Club in your heart? So funny!"</p>
-<p>"Ahaha! Minamoto-ssi is probably the only one who meditates on a home date with her boyfriend, right?"</p>
-<p>Seizawa Shii-ssi and Otagi Yuka-ssi laughed at Minamoto Risa-ssi's words, gently teasing her. Minamoto Risa-ssi's eyebrows furrowed at their laughter.</p>
-<p>"Shut up, both of you. What's with all the talking when I said I wanted to do it."</p>
-<p>Minamoto Risa-ssi scolded them and then looked at me.</p>
-<p>"Since they won't be quiet even if I meditate here, I'll do it next time."</p>
-<p>"Do as you please."</p>
-<p>Minamoto Risa-ssi's words meant she was postponing it to the next time altogether. She realized that she would be ridiculed even if she meditated right now, so she seemed to be just skipping it.</p>
-<p>"My turn came quickly."</p>
-<p>It was the last turn, Shido Tsubaki-ssi's turn. Shido Tsubaki-ssi looked at me with a mischievous expression.</p>
-<p>"What I want to do for our home date is interview you, sensei-nim."</p>
-<p>"Interview?"</p>
-<p>An interview... It seems like she just wants to do what she wants under the guise of a home date. Shido Tsubaki-ssi saw my suspicious expression and shook her hand as if to say that wasn't the case at all.</p>
-<p>"It's not because I was the head of the newspaper club that I want to interview you, sensei-nim... Look at this."</p>
-<p>Shido Tsubaki-ssi turned her laptop around to show me the screen. 'Couple Interviews are a Hot Topic Lately! You Can Learn About Your Partner's Tastes and Habits.' An article like that was displayed. Ah, this was trending? It seemed to be popular these days to interview each other and get to know each other better.</p>
-<p>"Okay. Let's do it."</p>
-<p>Once the couple interview that Shido Tsubaki-ssi suggested was over, today's club activities would be over, so I sat across from Shido Tsubaki-ssi with the intention of getting it over with quickly. As expected, the other students seemed interested in my interview, sitting around and watching with fascinated expressions.</p>
-<p>"How tall are you and how much do you weigh?"</p>
-<p>"I'm in the late 180s for height, and I don't know my weight because I haven't measured it recently."</p>
-<p>"What's your favorite food?"</p>
-<p>"I don't really have any preferences, but I do like meat."</p>
-<p>"How old were you when you had your first time?"</p>
-<p>"Hey."</p>
-<p>I had a slightly bad feeling from the moment she asked about my height and weight, but isn't this the kind of question they ask AV actors at the beginning of AV videos? And if it's an interview for couples to learn about each other's tastes, they would do it in the early stages of dating, but who asks about the age of their first time in the early stages of a relationship? We might end up fighting if we do this.</p>
-<p>"Just kidding. Actually, the third question was, 'What's your favorite movie genre?'"</p>
-<p>"You surprised me. There's no way I could answer something like 'first time.' I like action movies that are easy to enjoy. I don't dislike other genres that much, but I don't like movies that are too long and boring."</p>
-<p>For reference, Taira Ryuta's memory of his first time was in the third year of middle school. He was a handsome guy, so he probably got rid of his virginity very easily.</p>
-<p>The interview continued. Most of the questions were about preferences or certain situations, but Shido Tsubaki-ssi's pranks, like asking about my first time, continued intermittently. Still, I didn't get caught up in it and successfully completed the interview.</p>
-<p>"Hee, Ryuta-jji likes meat..."</p>
-<p>"As expected of a Korean teacher, he likes Korean food..."</p>
-<p>"Kyahaha! I like action movies too, so sensei-nim and I have the same taste!"</p>
-<p>The reaction to the interview from the students in the class was quite good. Many of the kids seemed to want to know about me, so they listened quite attentively throughout the interview, so there wasn't even any noise interrupting the interview.</p>
-<p>"That's it for today. Completing the first task will be tomorrow, I guess."</p>
-<p>"Yes. Tomorrow is just watching a movie, so it won't be difficult, sensei-nim."</p>
-<p>Konoe Akina-ssi replied to my words with a tone that suggested she had worked hard. In fact, contrary to what Konoe Akina-ssi said, the experience of watching Ratflix with a lover seemed like it would be quite difficult.</p>
-<p>While watching a movie, the female students would take turns sitting next to me for 10 minutes each, and I would have to endure my vigorous Johnson reacting to the scent and breath of the nearby female students, so it seemed like it would be a mentally and physically difficult time.</p>
-<p>Moreover, some people, including Seizawa Shii-ssi, would definitely be targeting me and playing pranks, and if I got an erection, they would definitely make a huge fuss to make fun of me. If we were alone, they wouldn't be able to say anything because of their virginity...</p>
-<p>Wait, that's right! There was no need to force myself to suppress an erection in a place with so many people. Now that I think about it, there was a good way.</p>
-<p>"Konoe, there's something I want to talk about regarding tomorrow's Ratflix viewing experience..."</p>
-<p>----</p>
-<p>Saionji Diana-ssi in Hanbok for the New Year!</p>
-<p>Kkiooot! Please also check out the Gyaru duo Hanbok posted in the announcement~!!</p>
+<p>"Let's rest a bit first, gather information, and then start acting as soon as possible."</p>
+<p>"Before that, let's meet with the branch manager-nim first."</p>
+<p>When Jack Henderson said he would rest, Ankoji Satoi stopped him and said that. Jack Henderson nodded as if he understood.</p>
+<p>"I heard the Tokyo branch manager-nim was busy, so I thought he wasn't here...? I was very rude. It's not that I didn't want to greet him, but I thought he wasn't at the branch, so I said I'd rest."</p>
+<p>"He's here today. Follow me."</p>
+<p>The Tokyo branch manager of the SPF was a well-known businessman who properly controlled the Tokyo branch, which had nearly a third of the SPF's Japanese forces. Because he had been providing considerable support for the SPF, the vampire hunters of the SPF Tokyo branch had a high level of loyalty to the Tokyo branch manager.</p>
+<p>The SPF New York branch trio and Ankoji Satoi went up to the top floor of the building. When they knocked on the door of the quite luxurious and large branch manager's office, they soon heard a voice from inside telling them to come in.</p>
+<p>"You must be tired from the long flight! I am the SPF Tokyo branch manager, Taira Jiro."</p>
+<p>A sturdy man in a suit got up with a smile and offered a handshake. The identity of the SPF Tokyo branch manager was Taira Jiro, the second son of the Taira family.</p>
+<p>Being the SPF Tokyo branch manager was one of the many identities that Taira Jiro had. Taira Jiro was the head of several organizations and exercised absolute control over each organization with his enormous financial power.</p>
+<p>Because Taira Danjo only allowed his children the minimum amount of PMC, Taira Jiro, who needed military force, began to devour organizations with considerable military force with his financial power without being recognized by the government like the SPF.</p>
+<p>He even showed the ability to contact terrorist organizations and make them his henchmen. Some of the terrorist organizations that Taira Jiro controlled were working for Taira Jiro's interests by carrying out terror against Taira Jiro's enemies.</p>
+<p>"I heard from the New York branch. Is it Otagi Yuka that you're after?"</p>
+<p>After finishing the greetings, Taira Jiro asked after everyone sat down in their chairs.</p>
+<p>"That's right. Otagi Yuka's actions in New York could not be overlooked, so the New York branch dispatched me and these friends."</p>
+<p>Jack Henderson said, pointing to Angel Ramirez and Malik Riverman, who were sitting quietly next to him.</p>
+<p>"The situation may be a little difficult."</p>
+<p>"Is it that difficult to catch one Otagi Yuka?"</p>
+<p>"It's not difficult to catch one Otagi Yuka. But the problem is that she's at a high school attended by daughters of prestigious families from all over Japan."</p>
+<p>If the SPF's heartless vampire hunters were deployed to St. Francisco Girls' Academy to catch one Otagi Yuka, many victims could occur. If that happened, the SPF would become the enemy of all of Japan, and this could lead to Japan falling into the hands of vampires.</p>
+<p>"High school student...? As far as we know, Otagi Yuka is an adult."</p>
+<p>"She failed a grade because she was in New York for a long time and didn't have enough attendance days."</p>
+<p>The SPF New York branch knew basic information such as her age and appearance, but it seemed that this was the first time they had heard that Otagi Yuka was an adult and a high school student.</p>
+<p>"If you hide that you're the SPF and there are no casualties among the other students, you can carry out the operation, but..."</p>
+<p>"We can, of course, hide our names, but we can't fight vampires while being considerate."</p>
+<p>It was common for high-ranking members of society to become vampires and carry out assassinations while hiding that they were the SPF, so hiding their names was not a big deal. However, there was no way to avoid collateral damage while dealing with a powerful vampire who had single-handedly dealt with the Black Moon Company's New York branch. Clearly, a considerable number of students would be swept up, and half of them were likely to die.</p>
+<p>"If I give you some ideas and troops, can you kill a few more people you want at St. Francisco Girls' Academy?"</p>
+<p>"We can do that much."</p>
+<p>"Team leader...!"</p>
+<p>"Angel!"</p>
+<p>When Jack Henderson accepted the proposal to assassinate ordinary people, which he could not accept if he were a righteous SPF vampire hunter, Angel Ramirez tried to shout, but Malik Riverman blocked Angel's mouth. Jack Henderson was a man who valued dealing with vampires more, even if there was some damage, so it was natural for him to nod at Taira Jiro's proposal.</p>
+<p>After all, if the SPF's vampire hunters stormed into St. Francisco Girls' Academy as they were, there would be even greater damage. Even if it was an assassination, Jack Henderson thought it would be better if only a few people died, because there would be less damage to ordinary people.</p>
+<p>"Then I'll tell you. First, send a threatening letter. Say something like if Otagi Yuka doesn't come out alone, the rest of her friends will be swept up. And..."</p>
+<p>A plan full of malice flowed from Taira Jiro's mouth. Jack Henderson smiled at the story and nodded.</p>
+<p>###</p>
+<p>Kurayamda Kirie, who had been taught a lesson by my dick, did not come to the education preparation room from after lunch until the end of the day.</p>
+<p>She tried to beat me with her body, but that was impossible. She must be a little embarrassed because she begged me to go slowly while we were having sex. Or maybe she can't forget the taste of my dick and is masturbating alone somewhere.</p>
+<p>When I think about it, it's funny. It was absurd that she was sent by the Toyotsuki faction of the Daigo family, but instead of trying to expel me, she tried to rape me. No matter how shocking a scene I showed a virgin, is it okay for her to try to fuck me as soon as she gets hold of my weakness? If Kurayamda Kirie was a man and I was a woman, it would be a light novel.</p>
+<p>Of course, she's not showing herself in front of me now because she knows she's ashamed...</p>
+<p>Thanks to that, I was able to smoothly prepare for class the day after tomorrow and prepare for the midterm exam without worrying about other people's eyes. At this rate, I think I can finish preparing the exam within this week, so I can rest on the weekend.</p>
+<p>While I was preparing the questions, my phone suddenly rang. When I looked at the name, it was Kurayamda Kirie.</p>
+<p>Kurayamda Kirie: I'm not feeling well, so I'm going home early today.</p>
+<p>Kurayamda Kirie: But keep in mind. I have your weakness...</p>
+<p>Kurayamda Kirie: The things I said while we were doing it were just to heighten the excitement, so don't think you've won!</p>
+<p>Kurayamda Kirie: Why aren't you replying while you're looking at it?</p>
+<p>Yamashiro Ryuta: I need a chance to speak to speak. I was looking at what you were saying because the lines kept coming while I was typing.</p>
+<p>Kurayamda Kirie: Is that so? See you tomorrow then.</p>
+<p>Yamashiro Ryuta: Okay. See you tomorrow, you faking-sick pervert-ssi.</p>
+<p>She kept turning on the holy pillar and having sex, so it's a lie that she's sick. However, she may have been a little mentally exhausted. I thought that Kurayamda Kirie might have been mentally exhausted as a virgin, so I didn't nag her for leaving.</p>
+<p>Kurayamda Kirie was quiet for a while at my words, "faking-sick pervert-ssi," and then sent lines non-stop. The phone kept buzzing for a while, but I didn't look at it. This time, I didn't look at it and just left it alone, so she won't ask why I'm ignoring her.</p>
+<p>As soon as I turned off the line, it was time for the end of the day, so I just left the noisy phone and headed to the special class classroom.</p>
+<p>"Nothing happened today, right?"</p>
+<p>"Where's Kirikiri-chan?"</p>
+<p>Seizawa Shii was asking about Kurayamda Kirie's whereabouts, giving her another strange nickname.</p>
+<p>"She said she wasn't feeling well and left early."</p>
+<p>"Hee~! Kirikiri-chan, is it that day?"</p>
+<p>"Stop it, Shii!"</p>
+<p>Minamoto Risa stops Seizawa Shii from saying anything. Hmm, she's having a hard time. I greeted Minamoto Risa with my eyes and started telling her the announcements I had received.</p>
+<p>"From today until the end of the exam, clubs are prohibited, so don't think about being in the club room."</p>
+<p>"Ehh! We were going to have a study group in the club room today!"</p>
+<p>"I know you're just going to lie down on the sofa and watch Ratflix if you're in the club room. Just meet at home or at a cafe or family restaurant."</p>
+<p>Everyone, including Seizawa Shii, grumbled and complained at the word "club room prohibited." I can't help it if the school doesn't allow it. I just told them to study at a cafe or family restaurant. I didn't even bring up the idea of a library from the beginning because I thought our class, with its energetic characteristics, would quickly make noise and get kicked out.</p>
+<p>Then, since Cheongsim Hall is also a club, does that mean we're not doing Cheongsim Hall today either? Should I have dinner with the home ec teacher after a long time? While I was thinking for a moment, Seizawa Shii raised her hand again.</p>
+<p>"Can we study at Ryuta-cchi's house?"</p>
+<p>"Of course not. Don't even think about it because the teacher is still preparing the exam even after getting off work."</p>
+<p>Everyone laughs when I gesture to shoo them away.</p>
+<p>Ehh~! Then I guess I can't help it. Let's have a study group at the family restaurant today!</p>
+<p>Seizawa Shii said, looking at some of the students, as if they had really planned to have a study group today. It seemed that they were thinking quite seriously about my promise to give a gift if they were within the top 6. If this happens, the average grade of our class might be quite high?</p>
+<p>Daigo Terue would be very happy. If the special class's grades increase as soon as they come to her line, Daigo Terue's voice will also increase in the Daigo Educational Foundation.</p>
+<p>"Okay, study hard. There are no other announcements, so I'll finish here."</p>
+<p>"Ryuta-cchi Annyong~☆"</p>
+<p>"Thank you for your hard work!"</p>
+<p>"Ryuta, Alik is going to study...!"</p>
+<p>Several students greeted me, put on their bags, and got up from their seats. The study group members seemed to have formed parties of three or four close friends and were gathering together to talk about where to study.</p>
+<p>Alik, who I was most worried about, joined the Konoe Akina and Otagi Yuka team and was talking.</p>
+<p>"Teacher."</p>
+<p>"Sakagami."</p>
+<p>As I stood at the teacher's desk and looked at the students, Sakagami Rena called me as she packed her bag and left. I feel a little sorry. She can't even have a study group because of my order to investigate Kurayamda Kirie.</p>
+<p>I winked at her to mean "thank you," and Sakagami Rena blushed and went straight outside. She's very shy.</p>
+<p>---</p>
+<p>SD Otagi Yuka</p>

@@ -5,78 +5,86 @@ weight = 1028
 chapter = 1028
 +++
 
-<p>Based on Eve's Information, we held another Meeting and decided to stop patrols until the auction day. The Black Sage's side would also soon learn that the Shard of Omniscience was going to be auctioned, and then the Black Knight or vigilante sanyangkkun would have no reason to act, so they wouldn't move. Therefore, judging that patrols would be meaningless, we decided to Rest until the auction and raise our jeonturyeok instead.</p>
-<p>We informed Eve of The Situation, and even after hearing about the Black Sage going wild for the Shard of Omniscience, Eve was confident that the auction itself would not be attacked.</p>
-<p>She said that mabeopsa criminals with evil Tendencies, like the Black Sage, were under surveillance or wanted in many Nations, so AmSang was essential for them to buy necessary items, and she had the conviction that they wouldn't do anything to make an enemy of AmSang.</p>
-<p>Even the famous Famine, they say, tries not to make an enemy of AmSang.</p>
-<p>For that Reason, Eve was expecting a struggle to break out after the auction, but she showed the Attitude that the battle happening after the auction was none of AmSang's business. She said that the Moment the item was sold, it became the buyer's Responsibility.</p>
-<p>-EVE: Thank you for worrying~! Just in case, I should pay more attention to security for the auction. And since there's such a risk, I should charge a higher commission to the exhibitor who put up the item.</p>
-<p>I don't know how expensively it will sell, but the more expensively it sells, the more Eve will profit. Because she receives a commission by percentage, not a fixed Amount, you see.</p>
-<p>-Ryuta: By the way, who is the Person who exhibited that Shard of Omniscience?</p>
-<p>At Eve's Words that she would charge a higher commission to the exhibitor, I asked, curious about who had put the Shard of Omniscience up for auction. In fact, the Person who put the Shard of Omniscience up for auction could be said to be the one who caused all of this Work.</p>
-<p>This auction exhibitor spread the rumor that the Shard of Omniscience existed, and the Black Sage, hearing that rumor, came to New York and caused a ruckus with a fake Black Knight and vigilante sanyangkkun. Then, Fujigasaki Rinka, Behemoth, and Whisper, who saw the fake Black Knight, came to the USA, and because of that Behemoth, the Federal Superpower Management Department called me. So, all the Work in New York could be blamed on the Person who put the Shard of Omniscience up for auction.</p>
-<p>-EVE: It's a Secret. It's an AmSang Rule, so I can't tell you. I'll tell you when the auction ends.</p>
-<p>It seemed she couldn't tell me, no matter how much it was my Question. It was probably because it was a Question that involved AmSang's Trust Level. Of course, I didn't expect to hear the answer to the Question, so I decided to just move on.</p>
-<p>Thinking about it again, an unidentified Person spread the rumor about the Shard of Omniscience, which allowed me to find my Sabu's Sabu, so from Fujigasaki Rinka's and my perspective, he could also be said to be quite a grateful Person.</p>
-<p>-Ryuta: I think it's fine even if I don't know. Let's move past the exhibitor's True Identity, and we'll also participate in this auction.</p>
-<p>-EVE: I don't think the entire Party/Group can go. We haven't even made a Notice yet, but there are already many people on the waiting list, so it seems the rumor is spreading.</p>
-<p>Seeing that Eve said she hadn't even made a Notice yet, it seemed that the side that put the Shard of Omniscience up for auction, not AmSang, was spreading the rumor.</p>
-<p>Anyway, I didn't have the thought of taking everyone to the auction. My plan was to have only a few people, including myself, who could observe The Situation of the auction inside the auction house, and the rest would be outside, prepared for when a situation arose.</p>
-<p>Well, for the details, I'll have to hold a Meeting with everyone once again.</p>
-<p>-Ryuta: We don't need many Seats. Anyway, as Eve said, if the entire Party/Group is inside the auction house at the Moment something happens after the auction, it would be inconvenient to move. It's better to have them watching The Situation from the Surroundings, so about 3 or 4 Seats should be enough.</p>
-<p>-EVE: Understood. I'll tell you first of all once the Position is decided so you can plan in advance~!</p>
-<p>Still, as a Business partner, she's paying a little attention. She even said she'd tell me the auction house Position first. After finishing the chat with Eve, I informed Naruse Shiyo, who was waiting next to me, of the Information I had heard from Eve.</p>
-<p>"Eve thinks a fight will happen after the auction, huh."</p>
-<p>"Yeah. Hearing this auction Story, it's Fortunate that we caught the Black Sage's Geomi and the VR Diver first."</p>
-<p>The thought came to me that it was Fortunate that Genbaki and Musashi Takuro had caught Geomi, and Sawayanagi Azuma and Sawayanagi Sinya had caught the VR Diver first.</p>
-<p>Hearing the Story of Genbaki and Musashi Takuro's fight, it seemed they were a lure-defense type who first created a lair and then massacred the People who entered. If they had prepared Guns and Spiderwebs in advance around the auction house and fought, it would have been quite dangerous. Numerous Sasangja would have occurred, and our side would have suffered considerable harm.</p>
-<p>Our side doesn't have a type like Geomi, so we can't do exactly the same, but since Sawayanagi Sinya, a VR Diver, is in Seryutai, it seemed possible to at least prepare several Guns and Cameras.</p>
-<p>"A Meeting.... We can't do it now, right?"</p>
-<p>"Yes. Most of them went to Sleep."</p>
-<p>Thinking about the battle, many ideas came to mind, but because it was late due to consecutive Meetings, most people had gone to Sleep, leaving only Naruse Shiyo and me, so we couldn't hold a Meeting. Then, I'll have to Sleep first, wake up, and hold another Meeting.</p>
-<p>"Shiyo, you go to Sleep early too. I should go to Sleep now."</p>
-<p>"Understood. I'll just organize the Information first."</p>
-<p>I nodded my Head, gently stroked Naruse Shiyo's Head, and then walked up the stairs. While climbing the stairs, I wrote down the ideas that came to mind on my phone. I should write them down in advance, just in case I forget if I just Sleep.</p>
-<p>Like that, looking at my phone, I climbed the stairs and opened my room door, but I felt something strange. Huh? Did I enter the wrong room because I was looking at my phone?</p>
-<p>I took my Gaze off my phone and raised my Head; it was indeed the room assigned to me. I hadn't entered the wrong one. Only, someone was just covering themselves with the Entwined Sheets on my bed, which was directly visible.</p>
-<p>"Who is it...?</p>
-<p>I approached the bed. The Gwonmaeng misters wouldn't have entered my room as they pleased, and it seemed a Woman who was targeting my Body (?) had probably entered my room in advance, waited, and then fallen into Sleep.</p>
-<p>Arriving at the bed, I grabbed the Entwined Sheets and slowly began to pull them down. Then, the Appearance of the Person lying Inside the Entwined Sheets began to be revealed.</p>
-<p>The first to discover the anomaly was Athena Mannerheim.</p>
-<p>Athena Mannerheim, who was investigating Information about the personnel affiliated with the Anyaji Branch who had disappeared, whether due to Guilt or Responsibility, recently found a man from the Anyaji Branch. He was an Administration employee of the Shizuoka Branch. And from him, she heard a strange Story.</p>
-<p>"A Person named Takakusaki Gengo-nim's Disciple appeared and gathered everyone in the Branch. And they performed gaejo and Brainwashing.... I am an Administration employee, so I was just caught and doing simple administration Work when I saw an opportunity and escaped."</p>
-<p>The Word "Takakusaki Gengo's Disciple" bothered her, but Athena Mannerheim decided to ask other curious points first.</p>
-<p>"How were you, an Administration employee, able to escape?"</p>
-<p>"Well.... Suddenly, they became busy. From what I heard, they said to prepare because they had to attack an Annoying illegitimate child. Anyway, in the midst of that busyness, I got a Gap to escape. That's when I escaped."</p>
-<p>'An Annoying illegitimate child?'</p>
-<p>Something caught her at the Administration employee's Words. She had heard that her current sangsa, Taira Ryuta, was also an illegitimate child.</p>
-<p>Taira Ryuta didn't seem to care much about the fact that he was an illegitimate child, but she still had a memory of thinking she should be careful because it might be rude.</p>
-<p>"Who is the Person named Takakusaki Gengo's Disciple?"</p>
-<p>"Well.... I didn't hear his name. I only saw his Face once, but he was a quite handsome man with blonde hair and Brown skin."</p>
-<p>A handsome man with blonde hair and Brown skin...? He had an appearance exactly similar to Taira Ryuta a month ago.</p>
-<p>"What's his Height?"</p>
-<p>"Ah, his Height seemed to be in the early 180s."</p>
-<p>At the Administration employee's Words, Athena Mannerheim let out a Sigh of Relief. No. Taira Ryuta was a giant over 190 cm, so he was a different person from the one named Takakusaki Gengo's Disciple.</p>
-<p>In fact, Taira Ryuta was Takakusaki Gengo's Disciple? Athena Mannerheim thought it was Fortunate that a Kaiser Söze-like development didn't happen.</p>
-<p>"Ah, and.... He was fluent in Japanese, but he gave the Impression of being Mixed Blood somewhere. Like Latin...."</p>
-<p>"You should have said that first!"</p>
-<p>It was Athena Mannerheim who unnecessarily made a Tackle at the Administration employee's Words. Information roughly began to combine in Athena Mannerheim's mind.</p>
-<p>As the Latin Mixed Blood man named Takakusaki Gengo's Disciple, the Work Anyaji had done after receiving missions from South America, the Words "Annoying illegitimate child," and the Taira Family Tree and Photos of its Characters she had seen while working under Taira Ryuta all combined, before long, they were showing Athena Mannerheim a single conclusion.</p>
-<p>It was an attack aimed directly at Taira Ryuta.</p>
-<p>"I should inform Jo Seodang about this first."</p>
-<p>If Athena Mannerheim's prediction was correct, this Matter was something that could never be solved alone.</p>
-<p>MidNightSKY-nim requested Ryuta and Liz on a Motorcycle date~!</p>
-<p>Ryuta~!</p>
-<p>Liz~!</p>
-<p>Gojoy-nim requested Yukiko wearing a funeral Kimono and doing a Greeting, and Yukiko lying disheveled~!</p>
-<p>Greeting</p>
-<p>The Greeting doesn't work as well as I thought, haha.</p>
-<p>Lying down</p>
-<p>Chomisaemeonji-nim requested Liz in a Coat + sweater, and naked body Apron Liz~!</p>
-<p>Coat sweater~!</p>
-<p>Apron~!</p>
-<p>TheDreaming-nim requested Alik Atelier Undressing of upper garment 1. Breast gathering 2. Zero Two</p>
+<p>"How enviable...."</p>
+<p>Sawayanagi Seari muttered, watching Taira Ryuta grab Sawayanagi Azuma and Kurayamada Kirie by their waists and fly up onto a Building with Telekinetic Flight.</p>
+<p>"Seari~! This is no time for that! Vampires are coming this way...!"</p>
+<p>Lianna Holden shouted towards Sawayanagi Seari, who was looking up at the Building. It was because she could feel Vampire units approaching from both sides.</p>
+<p>"Ehehehe... I wondered where you ran off to, but you couldn't get any further than this, could you?"</p>
+<p>Vampires in the same military attire as before appeared, smirking nastily. Sawayanagi Seari smiled back at their sneer and replied.</p>
+<p>"No, it's not that we couldn't get any further than this.... It's that we no longer need to run. So we were waiting."</p>
+<p>Huwooong~!</p>
+<p>Simultaneously with Sawayanagi Seari's Answer, the Wind began to blow. It was a fierce Wind, strong enough to whip hair if one wasn't wearing a combat helmet. Sawayanagi Seari rode the Wind, kicking off the wall. Then, she leaped over the Vampires' Heads and began to fire.</p>
+<p>Woong! Woong! Woong! Woong!</p>
+<p>Along with the unique Marksmanship sound of the energy firearm, several Vampires fell, their Heads pierced by high-heat energy beams.</p>
+<p>"Energy beams seem more effective than silver bullets, don't they?"</p>
+<p>Sawayanagi Seari muttered as she landed behind the group/pack of Vampires. Piercing their skulls with high-heat beams, giving them no time to regenerate, meant silver bullets were unnecessary. As Sawayanagi Seari quickly dealt with several Vampires, they hastily melted into the Darkness.</p>
+<p>'Lianna, hide behind Lee Du-yeong. And tell me the Vampires' Position.'</p>
+<p>**-Understood. Several are running towards your front now!**</p>
+<p>Lee Du-yeong was playing the tanker role of Seryu-tai, using a riot shield and a submachine gun-type energy firearm that could be used with one hand, so Lianna Holden read Sawayanagi Seari's thoughts, ran, and hid behind Lee Du-yeong.</p>
+<p>Sawayanagi Seari sprinkled mithril powder from her waist, then used her Aerokinesis Ability to turn the Wind into blades, slashing at the approaching Vampires. The mithril powder mixed with the Wind rotated around Sawayanagi Seari like blades, thanks to her delicate manipulation. It was a somewhat expensive Attack, but extremely efficient against Vampires and werewolves.</p>
+<p>"Kwaaaah!"</p>
+<p>These were Vampires whose wounds caught fire as the mithril powder adhered to them, controlled by Sawayanagi Seari's Wind.</p>
+<p>The Vampires hidden in the Darkness were extremely surprised; it was a cruel Attack they had never imagined. To inflict a wound and then sprinkle mithril powder on it...! From a Vampire's perspective, it was a far more cruel jit than sprinkling salt on a wound.</p>
+<p>**-Du-yeong! Five at three o'clock!**</p>
+<p>While Sawayanagi Seari was cruelly (?) inflicting Pleasurable Ache on and killing Vampires, Lee Du-yeong raised his shield and fired at the spot Lianna Holden indicated. Lee Du-yeong was also using a TG Tech submachine gun-type energy firearm, so he could inflict significant damage on the Vampires.</p>
+<p>Sawayanagi Shigeru used his Speedster Ability to climb the adjacent Building at incredible speed, occupying the high ground. Originally, Sawayanagi Shigeru, due to the immense calorie consumption when using his Speedster Ability, couldn't frequently overuse it and had to wait for decisive moments.</p>
+<p>However, by consistently undertaking PMC missions and undergoing several battles in those missions, his Ability had increased, and his calorie consumption had drastically decreased. Now, he could utilize his Speedster Ability intermittently during battle, greatly increasing his Combat power.</p>
+<p>**-Shigeru, there's a sniper on the 4th floor at 10 o'clock.**</p>
+<p>Tang!</p>
+<p>Sawayanagi Shigeru only had a pistol for an energy firearm, but his main Equipment was an assault rifle. He had prepared several magazines to respond to any Situation, so he fired mithril bullets at the Position Lianna Holden had told him.</p>
+<p>Watching the Vampire, revealed from the Darkness by the mithril bullet, fall to the floor, Sawayanagi Shigeru admired Lianna Holden.</p>
+<p>Before joining Lianna Holden, he had no choice but to flee from stealthy Vampires. Sawayanagi Seari also had Sensing Ability, but the Vampires' Concealment surpassed Sawayanagi Seari's Sensing Ability. Even now, it was a similar Situation, and it was astonishing how different the Situation became with just one Lianna Holden joining them.</p>
+<p>While Lianna Holden finding the hidden Vampires was a big Reason, it was also because, as an operator, she gave Commands to the three almost simultaneously, allowing them to engage in combat almost instantly, thus changing the Situation 180 degrees from when they had to flee.</p>
+<p>**-Shigeru, there's a guy trying to ambush us from behind...!**</p>
+<p>Sawayanagi Shigeru turned around, shot the Vampire attempting to ambush Lee Du-yeong and Lianna Holden from behind, and observed The Situation.</p>
+<p>Lee Du-yeong steadfastly endured, reliably protecting Lianna Holden, and Sawayanagi Seari was grinding down the Vampire unit like a blender, sprinkling mithril powder with her Wind Ability.</p>
+<p>Even when an Enemy fired, she displayed an incredible skill, sensing the air currents beforehand and evading, while accurately firing at the spot Lianna Holden indicated.</p>
+<p>-Shigeru! 12 o'clock, on top of the Box!</p>
+<p>"Fortunate indeed."</p>
+<p>Tang!</p>
+<p>Sawayanagi Shigeru muttered as he fired at the spot Lianna Holden indicated. It was truly Fortunate.</p>
+<p>Before meeting Vampires today, the only Vampires he knew were Otagi Yuka and Sei and Rieko, who were part of this mission. Excluding Sei and Rieko, who hadn't been Vampires for long, Otagi Yuka's Ability was truly remarkable.</p>
+<p>Watching Otagi Yuka's Ability and helping with night vigilante patrols, he had thought that Vampires were truly terrifying beings, and he had been extremely nervous when he met the Vampire unit this time.</p>
+<p>He had thought, 'Is this a unit composed of Vampires like Otagi Yuka?' but fortunately, these Vampire guys were worthless, except for their Concealment Ability.</p>
+<p>If they had all been Vampires like Otagi Yuka, they wouldn't have been able to escape until now. He thought that perhaps Otagi Yuka's level among Vampires was rare.</p>
+<p>Otagi Yuka was a special Vampire brought along by Taira Ryuta, the investor of Seryu Military Company, who brought along various Talents, so he decided to think that she was exceptionally strong.</p>
+<p>Sawayanagi Shigeru, feeling Relief that not all Vampires were as strong as Otagi Yuka for humanity's future, fired in the direction Lianna Holden indicated.</p>
+<p>As time passed, the Vampire unit was completely annihilated. Nearly a hundred Vampires died, but perhaps because Sawayanagi Seari created a whirlwind with mithril powder and swept them away, all the Vampire corpses turned to ash and scattered, so the street was clean except for the numerous bullet marks.</p>
+<p>"At least we defended our Points."</p>
+<p>Lee Du-yeong glanced at his riot shield, which had several bullet marks, then looked around and muttered. Sawayanagi Seari, who had ground down nearly 70% of the Enemies, approached with a refreshed Expression and spoke.</p>
+<p>"It's thanks to Lianna, but we won more easily than expected."</p>
+<p>Although there were nearly 100 Enemies, the fact that they had not a single scratch meant that the Opponent had relied too heavily on Concealment. So, when Lianna Holden, who could detect Concealment, joined them, the Enemies' direct Combat power was terrible, allowing them to win easily.</p>
+<p>"I was worried that the Vampires might be as strong as Otagi-ssi.... Fortunate indeed."</p>
+<p>Lee Du-yeong also seemed to have similar thoughts to Sawayanagi Shigeru.</p>
+<p>"I, on the other hand, never thought these Vampires would be as strong as Otagi-ssi. Because she's someone Investor-nim brings along, like us.... I thought she'd be special."</p>
+<p>Sawayanagi Seari didn't seem to worry even when she met the Vampire unit. Perhaps it was because of her absolute belief in Investor Taira Ryuta that she thought Vampires like Otagi Yuka were not common.</p>
+<p>While Sawayanagi Seari's Party/Group was thinking about Otagi Yuka, Otagi Yuka was frowning as she passed through an alley.</p>
+<p>It was because the fog that suddenly rose so thick one couldn't see an inch ahead, and the Blood Scent that felt stimulating to a Vampire's Sense of Smell, were stimulating Otagi Yuka.</p>
+<p>"A Barrier...?"</p>
+<p>Otagi Yuka felt that she had entered a trap someone had set beforehand, given the clearly unnatural fog and the complete absence of the various noises she had heard before entering the fog zone. However, Otagi Yuka was not one to easily yield just because she had entered the Opponent's Barrier.</p>
+<p>Otagi Yuka, biting her thumb with her sharp Fangs, swung her Arm and sprinkled her Blood around. Soon, the white fog that enveloped the Surroundings was stained by Otagi Yuka's Blood and turned into red fog. As Otagi Yuka waved her Hand to draw back the fog, the street of New Rochelle was revealed.</p>
+<p>"A Vampire? Quite a good offering has arrived."</p>
+<p>In the revealed New Rochelle alley, a Woman who could clearly be called a witch stood blocking the Road. She was an alluring yet dangerous-feeling witch with blonde hair and gray Eyes, and with skull decorations and chains binding her Hands and Feet, she could only be described as an evil witch.</p>
+<p>In both Hands, she held a book with ominously burning purple Flame, but the book was not burning despite the Flame. It was probably not an ordinary book, but a grimoire, like the Fragment of Omniscience that appeared at the AmSang auction today (though the power would be different).</p>
+<p>"A witch defeated by the times, yet dares to call me an offering...?"</p>
+<p>Otagi Yuka scoffed at the witch's Words. She made such a remark because most witches lived hidden in forests or remote areas, away from an increasingly civilized society. And simultaneously, she drew her beloved Sword Golden Blood.</p>
+<p>One might ask if she was preparing for battle just because she was called an offering, but the witch's Barrier was already filled with Intent to Kill and malice towards those who entered. Since it could be said that she had already received the witch's Attack as a first strike, the Situation between the witch and the Vampire, who had already met, could not be resolved through Conversation.</p>
+<p>"You should know who you're dying by, shouldn't you? I am Hertha Vogel. The Witch of the Black Forest (Die Hexe des Schwarzwaldes)."</p>
+<p>"You don't deserve to hear my name."</p>
+<p>Even though the witch Hertha Vogel introduced herself, Otagi Yuka did not tell her name. And she immediately ran and swung her Sword to sever the witch's neck.</p>
+<p>____________</p>
+<p>Hertha Vogel B-cut~! + Reason for being a little late....</p>
+<p>I was a little late because I had to suddenly create Hertha Vogel's model by changing the combat order + Google Docs suddenly wasn't working (other internet was fine, but Google Docs just wouldn't connect ㄷㄷ) haha.</p>
+<p>TheDreaming-nim requested 1. Alik holding Alcohol in the Classroom, 2. Alik being interviewed while stuck in the Classroom wall.</p>
 <p>1.</p>
-<p>It seems the Atelier hasn't done its Learning dd</p>
+<p>I didn't realize it when I made it, but when I checked again upon uploading, there was a problem where the gold color faded and the Pussy part was exposed, so I will not accept requests for gold g-strings from now on~!</p>
 <p>2.</p>
-<p>Kkiyot...!</p>
+<p>It looks like he's stuck in the Podium, not the wall....ㅎㅎ</p>
+<p>Chomisaemeonji-nim requested Santa, Rudolph Liz~!</p>
+<p>Santa~!</p>
+<p>Rudolph~!</p>
+<p>Gojoy-nim requested Chapter 27: Surprised Yukiko and Han Yu-gyeong delighted to receive Yong-tae's Phone Call after a long time~!</p>
+<p>Yukiko~!</p>
+<p>Although described as light attire, I added the setting that even with light attire, she would have worn pajamas or something, since her stepson, an outside man, was coming ㅎㅎ</p>
+<p>Han Yu-gyeong~!</p>
+<p>Kkiyot~!</p>

@@ -5,89 +5,84 @@ weight = 195
 chapter = 195
 +++
 
-<p>We enjoyed a date that felt like a real date for the first time in a while, and we spent a passionate night together. Han Yu-gyeong-nim must have been satisfied with the date, as she clung to me even more tightly that night. We did it until dawn and fell asleep, barely waking up when it was almost time to meet Han Yu-gyeong's friends and tutoring student.</p>
-<p>I'm pretty tired. I did it with Ha Ju-yoon in the morning and with Han Yu-gyeong until dawn. I got up, stretched roughly, and took a shower. Han Yu-gyeong also went to wash with sleepy eyes, but she woke up because of the cold water and came out wide awake.</p>
-<p>"Ah, how did the negotiation with Base Technology go?"</p>
-<p>"It went well. Just like Yong-tae said, blackmail worked well... Now, I need to slowly buy up the stock and gain a solid controlling stake."</p>
-<p>What Han Yu-gyeong said was the standard route to take over Base Technology. Because BS Group held shares under borrowed names like homeless people, Han Yu-gyeong and Vanguard had to find those homeless people and get the shares. On top of that, they also had to buy the shares floating in the stock market... Vanguard would have a lot to do.</p>
-<p>Since BS Group had started a succession war, they wouldn't have the manpower to pay attention to this, so they probably wouldn't face much interference.</p>
-<p>"I'm all ready. Shall we go now?"</p>
-<p>"Okay."</p>
-<p>Even though it was vacation, all the Korea University students we were meeting lived nearby, so we decided to meet at a popular restaurant around the university. If it weren't for Lee Ji-soo, Han Yu-gyeong's tutoring student, we could have met in the evening, had dinner, and drank, but Lee Ji-soo was still a minor, a high school senior, so we decided to meet for lunch.</p>
-<p>Speaking of minors, I'm reminded of some NPC's who are still minors. There were characters I could meet as heroines, and there were students who were excellent VR divers. I should organize the ones with decent abilities and pass the list to Han Yu-gyeong.</p>
-<p>Most minors don't have affiliations yet, so it would be easy to recruit them. Even if they were in their early twenties, if they had decent stats, it was hard to get them because they were affiliated. If they didn't have affiliations, their abilities were ambiguous or they had personality problems.</p>
-<p>It was mid-July, so the weather was incredibly hot. I walked with Han Yu-gyeong towards our destination, basking in the sunlight. We were supposed to meet at a recently famous Mexican restaurant today, and when we arrived, Son Na-ri and Hong Su-yeon had already taken their seats and were waving at us.</p>
-<p>"Hello, I'm Jin Yong-tae."</p>
-<p>"Hello. We've met before, right? I'm Son Na-ri, Yu-gyeong's best friend."</p>
-<p>"I'm Hong Su-yeon."</p>
-<p>After an awkward greeting, I sat down. Han Yu-gyeong found this awkward atmosphere funny and laughed before speaking.</p>
-<p>"Why are you using formal speech when we're the same age? Just speak casually."</p>
-<p>"Hehe. Should I? I was disappointed that you just showed your face and disappeared with Yu-gyeong back then."</p>
-<p>"I heard Yu-gyeong's boyfriend is celebrity-level, and it's true."</p>
-<p>"Hahaha, no way."</p>
-<p>Son Na-ri had an ordinary face, and Hong Su-yeon had what you'd call a 7 out of 10, a face in the top 20-30 percent. Of course, Han Yu-gyeong would be in the top 0.1 percent.</p>
-<p>We sat down and ordered food. We even ordered for Lee Ji-soo, who hadn't arrived yet, and after we ordered, we saw a pretty girl entering the restaurant. Han Yu-gyeong and everyone else saw her and raised their hands.</p>
-<p>"Ji-soo-yah, here! Here!"</p>
-<p>Lee Ji-soo was a beautiful girl with brown hair and a slightly cat-like face. She was already quite a beauty, but she had a freshness unique to students, making her a girl you could look at with a pleased expression.</p>
-<p>"Am I a bit late? The taxi kept getting caught at lights."</p>
-<p>In fact, she wasn't late for the appointment. It was just that the others who came first lived in this neighborhood, so they arrived early. Lee Ji-soo apologized for being late, then looked at me with sparkling eyes and greeted me.</p>
-<p>"You're Yu-gyeong-ssaem's boyfriend, right? Hello, I'm Lee Ji-soo."</p>
-<p>Lee Ji-soo extended her hand, and I unconsciously grabbed it and shook it. Hmm, is she from a political family? Her handshake posture gives off that kind of vibe.</p>
-<p>Once everyone was seated, the chatter hell of four women began. At first, they talked about when they met, who confessed first, and what they did on dates, but mostly Han Yu-gyeong talked and I added a few words.</p>
-<p>In particular, everyone seemed deeply impressed by the story of our first meeting, and when I said I saved her from thugs, everyone's eyes became dreamy. It's like they're imagining a knight saving a princess... Of course, I didn't mention that we had sex right away that day.</p>
-<p>Even after the food came out, the chatter didn't stop, but I briefly escaped from the chatter and touched my phone. It vibrated as if someone had contacted me. When I looked at my phone, the person who sent the KakaoTalk was Ha Ju-yoon.</p>
-<p>Ha Ju-yoon: I thought the music video would be released tomorrow, but it came out as a pre-release today? Check it out here .</p>
-<p>Jin Yong-tae: I'm embarrassed to watch it hehe</p>
-<p>I put my phone down for now. It definitely felt a bit cringe-worthy to see myself on screen.</p>
-<p>"What's wrong?"</p>
-<p>"That thing I filmed with your mother, it came out today."</p>
-<p>Han Yu-gyeong was talking to her friends, but she noticed my strange behavior and asked me. I used the title "mother" to refer to Ha Ju-yoon so as not to upset Han Yu-gyeong by calling her "older sister" again.</p>
-<p>"Oh, really? Let's see, let's see!"</p>
-<p>"What are you talking about?"</p>
-<p>"Ssaem, I'm curious too."</p>
-<p>"Judging by the talk of watching something, it seems like some kind of video or photo?"</p>
-<p>Everyone started to wonder what it was because of Han Yu-gyeong's fuss. I sighed and told them the whole story of the music video.</p>
-<p>When I told them that Joon of the boy group JBS had taken drugs and I had accidentally gotten the opportunity to film a music video, everyone went wild and said they wanted to see it right away.</p>
-<p>I had no choice but to click on the link Ha Ju-yoon sent me, and MiTube came up.</p>
-<p>Ahn Ha-yeon 87030 views 'Forbidden Love' MV - 1 hour ago.</p>
-<p>When I clicked on the title, a calm song came on, befitting a ballad.</p>
-<p>The music video showed an old school, with the teacher played by Ha Ju-yoon writing something on the blackboard, and I was glancing at her. Hmm, I look handsome even to myself. Then, when our eyes met, Ha Ju-yoon smiled, and I blushed and pretended to look at my textbook.</p>
-<p>"Oh my, oh my!"</p>
-<p>Son Na-ri exclaimed like an ahjumma and continued watching the music video. Han Yu-gyeong and the others were also quietly watching the music video.</p>
-<p>The song was about the pain of forbidden love. The vocals were good, so it matched the music video well and captured the poignant atmosphere well. The alley fight scene and some classroom scenes that were filmed at the filming location alternated, and the song ended with the last scene being me, as a college student, visiting Ha Ju-yoon's house and kissing her.</p>
-<p>"Wow~! The song was good. The music video was good too."</p>
-<p>"Are you originally majoring in acting? Your acting is pretty good?"</p>
-<p>"Huuuck...! It's touching."</p>
-<p>Son Na-ri and Hong Su-yeon exclaimed, and Lee Ji-soo even shed tears, not sure what was so touching. Han Yu-gyeong was silent, perhaps because of the kiss scene. After a moment of silence, Han Yu-gyeong opened her mouth.</p>
-<p>"Ugh! Yong-tae looks so cool...! I shouldn't have told you to film it. If you become famous, women will flock to you...!"</p>
-<p>Ah, that's why she was quiet. Everyone laughed awkwardly at Han Yu-gyeong's words. Well, I'm not going to become a superstar because of just one music video. Even if it becomes unexpectedly popular, I'm not going to be on TV or MiTube, so the interest will fade quickly.</p>
-<p>Because it's a chaotic world where new topics keep coming out every day. Even if I briefly come to mind, I'll quickly be swept away and disappear in the torrent of other information. That's why I wasn't particularly worried like Han Yu-gyeong.</p>
-<p>"What shall we do after eating?"</p>
-<p>"Let's go to a karaoke!"</p>
-<p>I asked about our next destination to ease the slightly awkward atmosphere caused by Han Yu-gyeong, and Lee Ji-soo raised her hand and suggested karaoke. It was a safe choice, so everyone nodded at Lee Ji-soo's suggestion.</p>
-<p>That's when it happened. A loud boom and a rumbling sound were heard, along with the sound of something collapsing. Shit, what is it?</p>
-<p>I ran out of the restaurant. A building visible in the distance was collapsing, emitting black smoke. Han Yu-gyeong and the other girls, who followed belatedly, were also surprised and watched the scene of the building collapsing with their mouths open.</p>
-<p>"But what building is that?"</p>
-<p>"It's a building with BS Defender and several BS Group affiliates..."</p>
-<p>Ah! Park Il-soo-ajeossi must be really going wild because he lost his son. Why is he attacking so recklessly? BS Group's stock is going to plummet completely.</p>
-<p>"BS Group hasn't been doing well lately, what with Sang-beom Sunbae's death and all..."</p>
-<p>Son Na-ri muttered. Hmm, I feel a bit guilty. We were the ones who killed Park Sang-beom and stirred up the discord, so we can't say that we have no responsibility for this incident, but still, Park Il-soo's side went too far. Blowing up a building in the middle of Seoul. He crossed the line way too much.</p>
-<p>Everyone was getting calls, probably because this situation was on the news. Ha Ju-yoon also called Han Yu-gyeong, and the rest, Lee Ji-soo, Son Na-ri, and Hong Su-yeon, seemed to be getting calls from their parents.</p>
-<p>"We'll have to go to karaoke next time."</p>
-<p>"Yeah, I think I should go home too, since they're worried."</p>
-<p>"I'm being told to go to my family's house altogether."</p>
-<p>Everyone seemed to be disappointed that they had just met, but there was no choice given the situation. Han Yu-gyeong also finished a long call with Ha Ju-yoon and told everyone to meet next time and part ways for now. After parting ways with the friends she met, Han Yu-gyeong opened her mouth with a look of helplessness on her face.</p>
-<p>"I'm being told to go to my family's house too. Yong-tae-yah, what should I do? I came from Japan after a long time... I couldn't be with you because of work, and if I go to my family's house because of this bombing, I won't be able to see you anymore this time..."</p>
-<p>Han Yu-gyeong still needed the umbrella of the Shin-gang Group, so she couldn't refuse the order to come to her family's house. But she couldn't take me to her family's house either.</p>
-<p>If it became known that I was dating her, it could cause problems for both of us.</p>
-<p>If Han Yu-gyeong, the youngest granddaughter of a giant Japanese corporation, were to marry me, she would be treated as an outsider of the Shin-gang Group and would not be able to exert any influence. Conversely, I would be seen as relying on a large Korean corporation to try to get involved in the succession structure, and I would be under intense scrutiny from my uncles and aunts. Therefore, we shouldn't reveal that we're dating until we both have a certain level of stability. Ha Ju-yoon knows, but she said she'd keep it a secret, so we'll move on.</p>
-<p>"Let's go home for now. Dickson will come to pick you up, right?"</p>
-<p>"Yeah..."</p>
-<p>If Han Yu-gyeong goes into the Shin-gang Group's main house, she'll be there for at least three days, and my trip to Korea will end during those three days. My trip to Korea itself doesn't end today, but I won't be able to be with Han Yu-gyeong anymore on this trip.</p>
-<p>"Next time..."</p>
-<p>"Yeah?"</p>
-<p>"Next time, I'll either become independent or solidify my position within the Shin-gang Group so that we don't have to part ways like this. And..."</p>
-<p>"And?"</p>
-<p>"I'm going to completely destroy the BS Group that created this situation."</p>
-<p>Han Yu-gyeong's eyes, as she made her resolution, seemed to be burning. It was indeed the look of a protagonist. It was a little funny that what was fueling that protagonist's gaze was being interrupted from a long-awaited date with her boyfriend, but since I occupy the largest share of Han Yu-gyeong's heart right now, it can't be helped.</p>
-<p>Besides, Han Yu-gyeong had no choice but to see the BS Group in a negative light, as they were responsible for everything from Park Sang-beom to the Base Technology incident and this bombing.</p>
+<p>Contains explicit content + explicit illustrations. Watch your surroundings carefully!</p>
+<p>Nagumo Sian's pussy was tight like a virgin's, with a pressure that felt like it was pushing my dick away. Of course, it was also an incredibly pleasurable pussy. Moreover, even if I just slightly flicked my hips, her love juices would burst out with moans, making it seem like it was an incredibly sensitive pussy. In short, it was a top-tier pussy.</p>
+<p>I fondled Nagumo Sian's breasts with my hands, enjoying the soft and fluffy sensation, while simultaneously enjoying the stimulation from Nagumo Sian's virgin pussy with my dick. Yeah, is there any other paradise? This is paradise right here. Feeling such pleasant sensations with both my dick and hands at the same time made me feel the best.</p>
+<p>, "Heuaaang, haaeung...! Ryuta, hheung...! I feel, heeung, strangeee~♥"</p>
+<p>"It's not that you feel strange, it's that you feel good. Now, repeat after me. Ryuta's dick feels good."</p>
+<p>"Haeung...! Ryuta's dick, feels goooood, haaang!"</p>
+<p>"Sian-nunim's pussy feels good too."</p>
+<p>"Haeueut♥"</p>
+<p>The feeling of coloring Nagumo Sian with my colors one by one gave me a great sense of conquest. Even if Taira Danjo, the president of Taira Foods who controlled Akita and my father's mentor, came, the fact that the woman with whom he had a connection was not only a virgin but also did as I told her during sex doubled my excitement.</p>
+<p>"Haeut, haaeung, feels good, Ryuta's dick feels goood, haang♥"</p>
+<p>She was still repeating the lines I taught her, raising her own excitement. I was simply thrusting in various angles and depths, looking for Nagumo Sian's weak spot.</p>
+<p>"Heeunghat! Haeut! Ah, eunghut...! Hyaaaeung!"</p>
+<p>Ah, this was her weak spot. Stimulating slightly below her cervix made her twist her body and become so excited that the skin all over her body turned red. A lot of sticky love juice was coming out of her pussy, and the inside of her pussy was wriggling wildly, stimulating my dick.</p>
+<p>"Euheot, hheuek, heoeok...! Strange, stran, no, feels goood, good, Ryuta...! Heungheut! Hheueuunghut~!!!!"</p>
+<p>Nagumo Sian, who had reached her peak from the continuous weak spot attacks, rolled her eyes back, stretched her legs wide, and trembled all over. I hugged Nagumo Sian tightly and continued to shake my hips.</p>
+<p>"Euheok, I.... Heeung! I feel like I'm going to go crazy, stop, haaeung! Hheueu, hheung♥ Stop! Haeung! Heeung!"</p>
+<p>Nagumo Sian said to stop, hugging my back tightly and scratching my back with her fingernails. I don't know if pulling my butt with her calves means to stop or to continue.</p>
+<p>I am the type of person who believes in actions rather than words, so I continued to shake my hips. Perhaps because of that, Nagumo Sian seemed to be going increasingly crazy. The relentless pleasure seemed too much for Nagumo Sian, who was a virgin until 30 minutes ago, to handle.</p>
+<p>"Hheeut...! Oook! Heungheut! Haeut!"</p>
+<p>Before Nagumo Sian, who was only intermittently uttering death throes, completely lost her mind, I stopped the piston movement and left my dick inside Nagumo Sian's warm pussy as it was for a while, waiting for Nagumo Sian to get used to it.</p>
+<p>After waiting for a while, Nagumo Sian's heavy breathing calmed down and her rolled-back eyes returned to normal. I looked at Nagumo Sian affectionately and opened my mouth.</p>
+<p>"Are you okay now?"</p>
+<p>"Yeah, I thought I was going crazy a moment ago. I didn't know there was such pleasure before."</p>
+<p>"Then now, I'll move without stopping until I cum."</p>
+<p>"Aahng♥ Then I'll go crazy again soon...!"</p>
+<p>I ignored Nagumo Sian's words, which I didn't know whether were a refusal or an agreement, and moved my hips again. It was a fast and rough movement solely for the purpose of cumming.</p>
+<p>If I continued to be gentle because it was her first time, it seemed like it would take too long and put too much strain on Nagumo Sian, so I prioritized my own cumming and moved greatly.</p>
+<p>"Hheeut, feels good! Ryuta's dick, feels heut! so good♥"</p>
+<p>"I'll keep making you feel good."</p>
+<p>Nagumo Sian heated up again as if she had never calmed down. Love juice was still being produced due to the stimulation, and it didn't seem like it would dry out and hurt at this point.</p>
+<p>Since I had been thrusting into Nagumo Sian's virgin pussy, which had been an A-grade pussy that felt good from the beginning, I prioritized cumming and moved, and I quickly felt the urge to cum.</p>
+<p>"Nunim, I think I'm going to cum! Where should I cum?"</p>
+<p>"Heeung♥ Inside, give me your semen inside! Inside...!"</p>
+<p>Yeah, it's her first sex, so it's polite to ejaculate inside rather than outside. There would be no problem even if I ejaculated several times a day, but since I hadn't been able to do it for several days, a huge ejaculation was waiting.</p>
+<p>"Heuheuk! I'm cumming! Nunim!"</p>
+<p>"Hheueeung! Inside, inside, euheut! Something hot is coming in♥ Hheuhyaaahaat♥"</p>
+<p>Gush! Gush! Gush! Gush!</p>
+<p>Perhaps because it was a huge ejaculation, my vision turned white due to the pleasure. I filled her womb so full that the semen was about to flow back. Due to the exhaustion immediately after ejaculation, I collapsed on top of Nagumo Sian as if falling. Nagumo Sian also seemed very satisfied and hugged my collapsed body tightly.</p>
+<p>"Hheung♥ Heavy~."</p>
+<p>"Grab my neck once."</p>
+<p>"Euheung, I will~♥"</p>
+<p>As Nagumo Sian, who was acting cute while saying it was heavy, grabbed my neck, I also grabbed Nagumo Sian's waist and butt and flipped her over. Now I was lying down below and Nagumo Sian was lying on top of me. Of course, my dick was still inside Nagumo Sian's pussy.</p>
+<p>I stroked Nagumo Sian's hair and enjoyed the afterglow. Nagumo Sian also pressed her large breasts against my chest and gave me a massage (?).</p>
+<p>"Nunim, can I ask you something?"</p>
+<p>"Are you talking about me being a virgin?"</p>
+<p>As expected, she's quick-witted. There's a reason why she became a president as a woman. Moreover, she's been reigning for so long that she's called the godmother in Akita Prefecture, so her intuition and various abilities must be far superior to others.</p>
+<p>"I married into the Ishii family, who were large landowners in Akita Prefecture. However, the problem was that my husband didn't have much time left to live. The Ishii family gave money to my family and brought me in to get an heir before my husband died, and I was married off like that."</p>
+<p>Ah, a marriage to continue the lineage.... Even though it's the old days (considering my possession, it must be not too distant past), I was surprised that such a thing existed in modern times.</p>
+<p>"So? But you still have to have sex with your husband to get an heir."</p>
+<p>"That's right. I had to, but the problem was that my husband was too weak to even get his thing up."</p>
+<p>Ah, I see. How weak was he? He couldn't even get an erection.</p>
+<p>"Before a year had passed, my husband died, and I abandoned the Ishii surname and left the Ishii family in exchange for a considerable amount of money, not aiming for the inheritance. As I left, I changed my surname from Ishii back to my original surname, Nagumo."</p>
+<p>Ah, even if her husband died, it wasn't a divorce, so she would have rights to the Ishii family's property. Her in-laws must have been worried about that point and gave her some money to give up.</p>
+<p>This solved the question of why Nagumo Sian was still a virgin.</p>
+<p>The answer was that she met a weak husband who couldn't even get his dick up, and her husband died quickly, so she remained a virgin.</p>
+<p>"After that, the Ishii family adopted and raised a child from a distant relative, but I don't know what happened after that because I didn't care. I used the money I received from leaving the Ishii family to start a small food company called Kanmido (Sweet Shop) and grew it into a large company. When I grew Kanmido to a certain extent, your grandfather, Danjo-oraboni, came and took over Taira Foods."</p>
+<p>Amazing. It was like a novel, where a female president grew a company into a large one, and the chairman of a global company came to headhunt her.</p>
+<p>I heard that Nagumo Sian then met Taira Danjo's expectations and raised the market share, which had been far behind Minamoto Foods, to an equal level.</p>
+<p>"But...."</p>
+<p>"Yes?"</p>
+<p>"Hheeut, how long are you going to keep it in?"</p>
+<p>As we were talking, my dick became proud again because of Nagumo Sian's virgin pussy, which kept munching and sucking, and it seemed to be exciting Nagumo Sian again. In the end, we were exciting each other.</p>
+<p>"I'm going to keep it in until I cum again."</p>
+<p>"Eunghheeut! It's already late, I have to wake up and go to sleep♥ It shouldn't get this big, aahng♥"</p>
+<p>What's with shaking her butt while saying no? It's subtly stimulating, so my dick is getting harder and harder. I also flicked my hips slightly, exciting Nagumo Sian more and more.</p>
+<p>"If you don't want it, you can just get up and pull it out. If you pull my dick out of your pussy, I'll just go to sleep."</p>
+<p>"Heeung, pulling it out is easy...."</p>
+<p>Nagumo Sian raised her upper body, which had been lying on top of me, and slowly lifted her hips in a sumo squat position. However, as she lifted her hips, my glans naturally brushed against the inside of Nagumo Sian's narrow vagina, stimulating her, and she had no choice but to sit down again quickly.</p>
+<p>"Hyaaahng! If it feels this good, I can't take Ryuta's dick out forever, haang♥"</p>
+<p>"Are you going to give up with just one try? Try again."</p>
+<p>She couldn't even pull it out halfway a moment ago and sat down because of the pleasure, but this time, with a determined expression on my words, she lifted her hips again and started to pull my dick out of her pussy.</p>
+<p>"Heung, hheung.... Hheeut!"</p>
+<p>She endured her moans as much as possible and pulled it out almost to the glans, but when I lifted my hips sharply as if flicking them and thrust my dick deep into her pussy again, Nagumo Sian collapsed as it was.</p>
+<p>"Hheuaaang~! How can you do this?"</p>
+<p>"Let's just cum one more time and sleep refreshed?"</p>
+<p>"Okay. I'll quickly.... Eunghut! Squeeze out your semen♥"</p>
+<p>I explained that the movement I just made up and down was called cowgirl. As expected, Nagumo Sian was also an excellent student in sex, and after listening to my explanation, she was able to skillfully and lewdly shake her hips to exploit my semen.</p>
+<p>Of course, I didn't end it there and did it from behind and then did the missionary position again, knocking Nagumo Sian out completely after doing it three more times. It couldn't be helped because it had been a while. I had to discharge the overflowing semen I had collected for several days somewhere.</p>
+<p>------Unused illustrations.</p>
+<p>Nagumo Sian's breathtaking back view</p>
+<p>Comparison of drawing styles</p>

@@ -5,86 +5,68 @@ weight = 314
 chapter = 314
 +++
 
-<p>Yukiko, who entered the hotel room, had a completely different vibe than usual. Her eyes were literally shining pink, and her hair was flying around even though there was no wind.</p>
-<p>"Shall we close the door first and then talk, Omonim (mother)?"</p>
-<p>Since there were prying eyes around, I called her Omonim (mother) rather than Yukiko-ssi. And fortunately, the door wasn't completely broken, just the locking mechanism, so it seemed like we could just close it.</p>
-<p>If the hotel staff saw these somewhat famous women gathered in a hotel room like this, it would be quite a scandal, so closing the door was important. As for the lock, well, we could compensate with money later.</p>
-<p>Step.</p>
-<p>Yukiko took a step closer. Nae Fitzgerald, catching my gaze, closes the door.</p>
-<p>Step.</p>
-<p>I could feel it when Yukiko took another step closer. Something like an intangible aura emanating from Yukiko was exerting pressure in all directions.</p>
-<p>Ha Ju-yoon, being a regular person, couldn't withstand the pressure Yukiko was emitting, so she stood up and took a step or two back, and Nae Fitzgerald, although not a regular person, frowned and looked at Yukiko.</p>
-<p>Surprisingly, Nagumo Sian, who was lying beneath me, had a calm expression. I don't know if it's because she's still far away or if she has enough power to withstand Yukiko's pressure.</p>
-<p>I should check Nagumo Sian later with the glasses from the ruins. She definitely has abilities I don't know about.</p>
-<p>Step.</p>
-<p>Third step.</p>
-<p>Now that I see it, Yukiko is coming straight towards me. I also got out of my awkward position of having my dick in Nagumo Sian's pussy and looking at Yukiko, and stood up straight to face Yukiko.</p>
-<p>"Omonim (mother), no, Yukiko-ssi."</p>
-<p>"..."</p>
-<p>It was a bit funny to be standing there naked, with semen dripping from my dick onto the floor, but Yukiko's atmosphere was strange, so it was not a laughing matter at all.</p>
-<p>Step.</p>
-<p>Yukiko, who took another step closer, reaches out her hand to me. A pink aura began to engulf the surroundings like a mist from Yukiko's body.</p>
-<p>Yeah, it seemed like the Succubus's physical body was manifesting and affecting Yukiko's mind right now.</p>
-<p>How can I bring Yukiko back to her senses...? First, I approached Yukiko and took the hand she was reaching out to me.</p>
-<p>Smile.</p>
-<p>Yukiko smiles. But it was different from the smile she usually showed me. It was a bit more seductive and contained a bit more obsession.</p>
-<p>"Get a grip, Yukiko-ssi."</p>
-<p>"...relationship?"</p>
-<p>"Huh?"</p>
-<p>I couldn't hear what she was saying because it was too quiet, so I asked again.</p>
-<p>"Was our relationship just physical?"</p>
-<p>"What are you talking about? It's a bit much to say in this situation, but I love everyone here."</p>
-<p>It was such a trashy line, but it was true. Everyone was important to me. But my words and heart didn't seem to reach Yukiko anymore.</p>
-<p>Tsu-tsu-tsu!</p>
-<p>The wind around Yukiko became stronger and stronger, and the pink mist became thicker and thicker. And Yukiko's body slowly began to change.</p>
-<p>Her clothes tore as wings grew from her back. Her hair color was also changing from brown to pink. It was as if the Succubus's physical body had completely awakened.</p>
-<p>"I'll have you... forever★"</p>
-<p>Now Yukiko, who had transformed into a Succubus, pulled the hand holding me. I was dragged towards Yukiko. Rather than trying to resist, I would wait until Yukiko came to her senses.</p>
-<p>The surroundings were covered in Yukiko's pink mist, giving the feeling of being in a completely different world, not a hotel room. As a Succubus who can manipulate dreams and illusions, she might be showing me an illusion. Or maybe it just looks like this because of the pink aura.</p>
-<p>"Shall we kiss?"</p>
-<p>"Yukiko-ss... Mmph!"</p>
-<p>She asked, "Shall we?" but didn't listen to my answer until the end and blocked my mouth with her lips. The tongue of Yukiko, who had awakened as a Succubus, was like a live fish. It aggressively wrapped around my tongue and stimulated the upper part of my palate, giving the feeling that she had multiple tongues.</p>
-<p>While kissing, the Succubus's unique heart-shaped tail wrapped around my body as if not to let me go. Fortunately, or maybe not, I quickly raised my arms when I was being tied up, so my arms were free and not tied to the tail.</p>
-<p>"Haaah...! Energy is overflowing☆!"</p>
-<p>It wasn't like Yukiko's usual way of speaking at all, but somehow it was a voice that affected my mind. Every time I heard her voice, my dick twitched....</p>
-<p>"Yukiko-ssi, get a grip!"</p>
-<p>"It can't be helped."</p>
-<p>When I shouted to bring Yukiko back to her senses, I heard Nagumo Sian's voice from behind. It was still a calm voice.</p>
-<p>It seems like the energy of the Incubus (淫魔) is running wild right now, so if you, Ryuta, suppress it once, she will come to her senses.</p>
-<p>I don't know how Nagumo Sian knew and told me the solution, but after all, the only way to defeat a Succubus is through a sex battle. I can't hit Yukiko, after all.</p>
-<p>I decided to find out about Nagumo Sian later, and I activated the Black Maitreya Art to the fullest and kissed Yukiko. And I started stimulating the sensitive areas of her chest as much as possible by playing with my hands.</p>
-<p>"Chuuup, Heu-hyat! Tssu-op, A-hyat★ Chuu-beu-chup, chup, Haa-eu-ut! Feels so good!!"</p>
-<p>As expected, my best effort had an effect, and Yukiko's moans became sweeter and sweeter. Kissing and making reactions with moans in between, she seemed like a Succubus through and through.</p>
-<p>"You can't do that~! I'm going to make you feel good★☆"</p>
-<p>"We can feel good together."</p>
-<p>I had a feeling that something bad would happen if I just let go and left it to Yukiko's hands, so I kept touching her chest while saying that we should feel good together. She had turned into a Succubus, but her breasts were still great to touch.</p>
-<p>It was the best kind of breasts that changed shape as I touched them and quickly returned to their original state. Since Yukiko's breasts were already top-notch, they didn't seem to have changed that much even after turning into a Succubus.</p>
-<p>Yukiko showed a dualistic appearance, twisting her body and enjoying my touch while verbally refusing. I don't know why, but I have to completely soak her in pleasure.</p>
-<p>"Heuu-at! No, if I feel this good...!"</p>
-<p>"I'll make you feel even better so you can remember me properly."</p>
-<p>I continued to caress her breasts with my hands while using the Abyss to push away the tail that was wrapped around my body.</p>
-<p>After an unknown amount of time, Yukiko's tail strength loosened due to the pleasure. I didn't miss the opportunity and pulled my body away.</p>
-<p>Having completely regained freedom of my body, I laid Yukiko down and overlapped my body with hers. With one hand, I held both of Yukiko's hands so she couldn't struggle, and with my mouth, I sucked on her nipples while caressing her thighs and groin area with my other hand, excluding her pussy. It was to make her even more desperate.</p>
-<p>"Heua-hang...! If you do any more! I'll become Ryuta's slave★"</p>
-<p>"Slave? Don't say things like that."</p>
-<p>As expected, Yukiko, as if burning with impatience, was writhing all over and saying anything that came to her mind, just as I intended.</p>
-<p>"Ohot, ohot...! There, not there...☆"</p>
-<p>"Not there, then where?"</p>
-<p>"Pussy! Touch my pussy★ Haa-eu-ut! Uu-heung...!"</p>
-<p>If it were Yukiko, she would have said "...pussy" with a shy expression, but as expected, the Succubus didn't seem to know shame.</p>
-<p>"Since you answered honestly, I'll touch it."</p>
-<p>I touched Yukiko's pussy with the hand that had been touching her thighs and groin. It felt like something was creating suction and sucking me in. Like her pussy was doing a vacuum fellatio?</p>
-<p>If an ordinary man put it in here, he wouldn't last even 10 seconds and would ejaculate. So, this is the Succubus's pussy, huh? I need to be prepared.</p>
-<p>"Heua-aahng! Ha-eut, u-ot, o-ot!"</p>
-<p>Yukiko was so happy that she was about to faint, even though I had only inserted one finger, as if her sensitivity had increased even more after awakening as a Succubus.</p>
-<p>"U-ot! Eun-heut! Stop, I'm really...! Getting weird, Haa-eu-heung, throw me away★"</p>
-<p>Yukiko was literally fainting as I moved my finger while it was inserted. Even though she was rolling her eyes back and spitting out her juices, it didn't look ugly, and even that appearance looked very vulgar and beautiful.</p>
-<p>"What would you like me to do now?"</p>
-<p>I asked, showing Yukiko my stiff dick, which was standing up so straight that it was almost touching my navel, with veins popping out.</p>
-<p>I had just had a round with Nagumo Sian, but maybe it was because of the Succubus's pink aura or because the situation itself was exciting, my dick was like a volcano that would erupt with semen if I touched it.</p>
-<p>"Heuu-eung, put it in. Ryuta's big dick, put it in and become my master...!"</p>
-<p>Master? I don't know what she's been saying since earlier, but I was going to put my dick straight into Yukiko's pussy as she asked. Because I couldn't take it anymore either.</p>
-<p>"Haa-at! Heu-ut!"</p>
-<p>I pushed my dick straight into Yukiko's familiar yet unfamiliar pussy. With a sound of something snapping, my dick felt like it was breaking through something like a membrane.</p>
-<p>Could it be that she grew a hymen as she became a Succubus?? I pulled my dick out slightly and glanced down, and there was blood on the shaft.</p>
-<p>Whatever the case, I ended up taking Yukiko's virginity.</p>
+<p>"Haa...!"</p>
+<p>Kasaoka Yuzuki sighed. At first, it was good. When she met her husband on a trip to France, when she married him even though he was unemployed, when she insisted on making him a French teacher, and even when her husband turned out to be surprisingly talented at teaching, things were good between them.</p>
+<p>At the same time, earning money increased their income, and when they were simultaneously scouted by St. Franciscisco Girls' Academy, Japan's top private prestigious girls' school, she felt amazing. Their salary increased again, and the Kasaoka couple moved to Miyashi, where St. Franciscisco Girls' Academy was located. Up until then, it was good.</p>
+<p>But the problem started after they bought a house. Naturally, house prices in Miyashi were expensive, so they bought a suitable house with a manageable monthly debt.</p>
+<p>It would have been a difficult debt for one person, but since they were earning money together, there was no problem. The salary at St. Franciscisco Girls' Academy was good, so with some effort, it wasn't an impossible amount to repay.</p>
+<p>However, it was a mistake to invest in order to repay the money faster. As is the case with these kinds of stories, the investment was a scam, and the couple lost a lot of money. Because they had taken out loans to invest in order to repay the house price, the amount of money they had to repay each month increased even more.</p>
+<p>Moreover, because Kasaoka Yuzuki had invested based on the information she had received, Kasaoka Koki blamed Kasaoka Yuzuki for the scam. It was the first time she had heard such harsh words from her husband, so Kasaoka Yuzuki was quite shocked.</p>
+<p>After the scam, Kasaoka Yuzuki, who had originally been a kind and considerate person, became irritable, and Kasaoka Koki, who had become despondent as the debt increased significantly, began to spend his salary lavishly. This caused frequent fights between the two.</p>
+<p>As the fights became more frequent, their relationship became more strained in inverse proportion, and Kasaoka Koki started going out. One day, when Kasaoka Yuzuki discovered Kasaoka Koki entering a motel with a student he was teaching, she was devastated.</p>
+<p>She couldn't fight with her husband. She had a woman's intuition that if they fought over this, it would be the end of her husband. It was foolish, but she still loved her husband, so she didn't want to break up yet. Moreover, because it was her fault that they had been scammed, she didn't have the confidence to say anything.</p>
+<p>'I have to earn money. If the debt disappears, he'll go back to normal.'</p>
+<p>Kasaoka Yuzuki started with tutoring and began looking for things that would make even more money. In the end, the most money she could earn was by selling her body.</p>
+<p>'Honey, I'm sorry. But I'm not doing it directly....'</p>
+<p>Because she worked at a delivery health service where insertion was NG, but she did fellatio, handjobs, and body-rubbing services, Kasaoka Yuzuki justified her actions by saying that it wasn't cheating if there was no insertion.</p>
+<p>Still, she was earning quite a lot of money and steadily repaying her debt, but this time, problems started to arise on her husband's side.</p>
+<p>Suddenly, many students who were taking French classes began to switch to Korean classes. Kasaoka Koki was furious, saying that the new teacher was stealing his students, and said that he would have to say something when he gave him the class roster.</p>
+<p>Yamashiro Ryuta-gun was very handsome, even though I had seen him before the start of the semester. He wasn't Kasaoka Yuzuki's type, as she preferred fair skin, and he had deeply tanned brown skin, but even so, she thought he was handsome at first glance. Not only his face but also his sturdy body had a fatal charm that made a woman's heart flutter.</p>
+<p>But she couldn't forgive him for slowing down her debt repayment by reducing her husband's students. Moreover, she was even more annoyed by his attitude of being annoyed by the news that his students had increased. It was fatal for our couple to lose even one student, but he had that kind of attitude.... That attitude made her dislike Yamashiro Ryuta-gun even more.</p>
+<p>Well, there wasn't much Kasaoka Yuzuki could do to forgive him, but she could at least take a cold attitude.</p>
+<p>And after the first day, the departure of students became more and more severe, and her husband, Kasaoka Koki, became more and more violent. Eventually, it escalated into a physical fight on Friday.</p>
+<p>In the end, they were called to the principal's office and scolded severely by the principal, and because it was her husband who had taken a threatening attitude, Kasaoka Koki eventually received a warning. The next step after a warning was a pay cut, so he couldn't cause any more trouble.</p>
+<p>"So, the number of students who left this time is...."</p>
+<p>When Kasaoka Yuzuki returned home on Friday, she calculated her husband's salary for the next month. Originally, her husband earned more than she did because he had a lot of students, but now his salary had decreased to the point where there was a significant difference between his salary and Kasaoka Yuzuki's salary. Almost 30 percent of his salary had been cut.</p>
+<p>'I have no choice but to go to work today....'</p>
+<p>Kasaoka Yuzuki called the delivery health company she was working for and told them that she would be going to work today as well. Originally, she only went on weekends, but now it seemed like she would have to work on weekdays as well.</p>
+<p>Her husband hadn't returned yet. He was probably using the excuse of being scolded by the principal to go out and drink a lot. Kasaoka Yuzuki wrote a note next to the cold dinner, her usual excuse that she was going to a part-time job, and went outside.</p>
+<p>###</p>
+<p>First, I bought a few Häagen-Dazs ice creams as originally planned, bought some necessities, and withdrew money from the ATM just in case.</p>
+<p>After sending the Häagen-Dazs to Simyeonui ttal, I took out a business card I had picked up at the convenience store from my pocket.</p>
+<p>The business card I picked up was for Mask Delivery Health, a company where women wearing masks come to your house and do lewd things. Well, Miyashi isn't a very big city, so their identities would be revealed quickly. They would need to wear masks to hide their identities.</p>
+<p>I had never used such a business before, but after hesitating for a while, I succumbed to curiosity and lust, and I accessed the Mask Delivery site using the QR code drawn on the back of the business card.</p>
+<p>Hmm.... Since their faces are covered with masks, I guess they're competing with their bodies. The women who posted profile pictures on Mask Delivery all had good bodies. I chose one. She seemed to have the best body based on my standards. She had big breasts and wide hips, but her waist was thin, so she had a lot of volume. Of course, I don't know what her face looks like because she's wearing a mask.</p>
+<p>Perhaps because Miyashi is not a battleground(?) like Tokyo or Osaka, which have small populations, the fees were quite expensive. The basic fee was 35,000 yen for 90 minutes, the designation fee was 5,000 yen, the transportation fee to my house was 1,000 yen, and there was another fee called a membership fee, which I didn't know what it was, for 3,000 yen. A total of 43,000 yen?</p>
+<p>After designating her and sending the money, I saw a phrase written at the bottom of Mask Delivery.</p>
+<p>-This business is a legal business where the real thing is NG.</p>
+<p>Ah, shit, I wasted my money. But I had already sent the money and was curious, so I didn't cancel. I should get a lot of handjobs, smatas, and fellatios. My pent-up desires for the past two weeks made me vulnerable to even the slightest touch.</p>
+<p>If it doesn't work out, I'll have to negotiate with the woman. I could even give her money and ask if the real thing is possible.</p>
+<p>After waiting for a while, I heard the doorbell. I opened the door with a slightly pounding heart.</p>
+<p>Click!</p>
+<p>"Oh my...!"</p>
+<p>The woman who opened the door was Kasaoka Yuzuki, the homeroom teacher of the third grade. She was wearing a mask and had a different hairstyle than usual, but someone with good eyesight would be able to recognize her. Maybe not someone who is insensitive.</p>
+<p>By the way, that tight black dress suits her quite well.</p>
+<p>Kasaoka Yuzuki looked surprised to see me. For some reason, I thought it would be more fun to pretend not to recognize her, so I naturally said to Kasaoka Yuzuki.</p>
+<p>"Come in."</p>
+<p>"Yes...."</p>
+<p>Kasaoka Yuzuki came into the house with a relieved expression, as if she thought I didn't recognize her. Kasaoka Yuzuki seemed a little surprised to see that a man was living alone in this big house.</p>
+<p>"Do you live alone?"</p>
+<p>"Yes. I told them I didn't need a house this big, but my parents bought it for me."</p>
+<p>For some reason, her eyes sharpened slightly at my words. Is there something wrong with the house? I pretended not to know and took Kasaoka Yuzuki to the bedroom.</p>
+<p>"This is my first time, so do we start right away?"</p>
+<p>"I'll start right away."</p>
+<p>Kasaoka Yuzuki said briefly, as if she was trying not to say anything on purpose so that her identity wouldn't be revealed, and sat me down on the bed. And as she took off my pants and underwear, my dick, which was already hard with excitement, was standing straight up to the sky.</p>
+<p>"Oh...!"</p>
+<p>Kasaoka Yuzuki seemed quite surprised. There probably aren't many this big. I held out my dick to Kasaoka Yuzuki and opened my mouth.</p>
+<p>"Are you just going to look at it?"</p>
+<p>"Ah, no. I'll do it with my mouth first."</p>
+<p>Kasaoka Yuzuki slightly lifted the bottom of her mask, put my dick inside the mask, and then started sucking my dick while shaking her head.</p>
+<p>Kasaoka Yuzuki's fellatio didn't have any special technique, but it felt incredibly good, perhaps because she was trying so hard not to reveal her identity and because it was the first time I had been with a woman in a long time.</p>
+<p>Tsuheup, tsup, tzeueup!</p>
+<p>The lewd sound coming through the mask excited me even more. I felt a sense of ejaculation faster than usual because it had been two weeks since I had done it.</p>
+<p>"Eueut...! I think I'm going to cum."</p>
+<p>Kasaoka Yuzuki smiled, saying that it was okay to cum in her mouth. I think the amount will be enormous because it's the first time I've ejaculated in two weeks....</p>
+<p>"Keueu! I'm cumming!"</p>
+<p>Puhwaaaak!!!</p>
+<p>The semen came out with tremendous force, as if I had turned on the faucet to the maximum, instead of the usual byureut byureut.</p>

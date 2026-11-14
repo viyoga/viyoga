@@ -5,86 +5,83 @@ weight = 761
 chapter = 761
 +++
 
-<p>"Brother-nim! There, haaah...!"</p>
-<p>Taira Kanna shuddered once more as her cervix was directly hit by my dick as I thrust my hips. She showed a maidenly reaction, instinctively clenching her legs from the excessive pleasure, but I didn't allow it.</p>
-<p>"Nowhere to...!"</p>
-<p>Since I couldn't use my limbs, I used telekinesis to spread Taira Kanna's legs. I hadn't thought about it until now, but I could apply telekinesis to sex like this. Since I could move my opponent with an invisible arm, it seemed like its uses were endless.</p>
-<p>"Kyaa!"</p>
-<p>Taira Kanna was surprised and let out a high-pitched scream when her legs suddenly spread. She knew I was the Black Knight, so she knew I used telekinesis, but she apparently didn't know I'd use it during sex.</p>
-<p>"Haaah...! Brother, since you can't use your arms, do you want to touch my body with telekinesis instead?"</p>
-<p>"Yeah, I'll make you feel even better."</p>
-<p>I used telekinesis to spread Taira Kanna's thighs and fix them in the air, then began high-speed piston movements. Pang, pang, pang! Along with the sound of moist flesh colliding, Taira Kanna's moans echoed loudly. I wondered if someone outside would hear this lewd sound and come to rescue me, but of course, it was a futile hope.</p>
-<p>"Haaaang♡ Floating helplessly in the air, heeut! Being violated...!"</p>
-<p>Taira Kanna began to climax, scattering her fluids. Using telekinesis in a state where I couldn't use my limbs made it easier to concentrate.</p>
-<p>Of course, I was also feeling pleasure. There were times when I almost lost control of my telekinesis because of the pleasure I felt from Taira Kanna's tight virgin pussy, but my willpower stat had already reached the limit of human ability, so my telekinesis didn't fail.</p>
-<p>I thought I should train my telekinesis while restraining my body, and now I moved Taira Kanna's body up and down. Of course, I kept moving my waist as well, maximizing pleasure by moving Taira Kanna's body and my waist in rhythm.</p>
-<p>"Heeut! Doing it like thaat, haa♡ I can't anymore, heeut...! Brother-nim♡ It's weird, haaang♡ I'm going, Brother-nim...! I, heeut! I'm gonna cum...!"</p>
-<p>"Keuh...! I'm cumming too...!"</p>
-<p>Taira Kanna climaxed due to the intense hip movements and telekinetic movements, but I was feeling the same pleasure. I couldn't hold back either and cummed deeply inside Taira Kanna.</p>
-<p>Buuk! Buut! Byuut!</p>
-<p>The pleasure from cumming made my vision turn white, and my telekinesis was released. I couldn't concentrate because of the pleasure, so my telekinesis naturally failed. Taira Kanna fell onto my body like a doll with its strings cut.</p>
-<p>Of course, as my body lowered with the release of telekinesis, my dick went in even deeper, causing Taira Kanna to twitch like an electrocuted person, reaching another climax even in the middle of her orgasm.</p>
-<p>"Haa, haa, haa.... It's not over yet, Brother."</p>
-<p>Taira Kanna, who quickly regained her senses, leaned against my body with a flushed face and began to stimulate my nipples with her lace gloves. She also slowly rotated her waist, not giving my dick in Taira Kanna's pussy time to lose its strength. The feeling of her breasts pressing against me was also pleasant, so my dick immediately hardened without a chance to soften.</p>
-<p>But her stamina is amazing. I didn't intentionally activate the Holy Pillar trait, but she regained her energy so quickly. She's still a student, so how is her stamina so high?</p>
-<p>"Okay, let's see who wins."</p>
-<p>"Where is there winning and losing in love, Brother? Let's just feel good together, us♡"</p>
-<p>Taira Kanna skillfully parried my words and moved her waist gracefully. She had only done insertion sex once, but she was incredibly skilled and natural at moving her waist in the cowgirl position. Does she have some kind of trait for this too? I wondered if high intelligence also meant better learning of sex skills.</p>
-<p>"Hehe, then shall we start the next round now?"</p>
-<p>"I'm curious, how many rounds are there in total?"</p>
-<p>When I asked Taira Kanna, feeling slightly uneasy, she gave me her signature yandere smile and opened her mouth.</p>
-<p>"Of course, until Brother's baby juice hits my egg♥"</p>
-<p>I got goosebumps all over my body at Taira Kanna's smile and words. Because of the Cambion's flesh trait, the probability of impregnating a woman is extremely low, so if I can't impregnate her, will I have to be squeezed by Taira Kanna for the rest of my life...?</p>
-<p>###</p>
-<p>"Ah.... Why isn't Ryuta-jji here yet?"</p>
-<p>It was already ten minutes past the morning homeroom time, but the classroom door showed no signs of opening.</p>
-<p>I expected the classroom door to creak open at any moment, as usual, and the blonde tanned teacher to come in, saying, "Have all my troublemakers been doing well?" but the classroom door remained unmoved.</p>
-<p>"Why isn't he here?"</p>
-<p>"Is he sick somewhere?"</p>
-<p>"I'm the class president, so I'll go check."</p>
-<p>As the students buzzed, the class president, Minamoto Risa, stood up from her seat. Minamoto Risa strode over and opened the classroom door. Kijimoto Jurie was standing in front of the door.</p>
-<p>"Oh? Nurse Teacher?"</p>
-<p>"Am I late? Sorry. Yamashiro-sensei said she's not feeling well today and is taking sick leave. I also got the message late...."</p>
-<p>At Kijimoto Jurie's words, some of the special class students who had decided to follow Taira Ryuta tilted their heads.</p>
-<p>Because Taira Ryuta was so strong, they had never seen him sick before. And if he was sick and couldn't come to school, he would have told them first.</p>
-<p>This situation, where he had disappeared without a word, was no different from saying that something had happened to Taira Ryuta.</p>
-<p>Otagi Yuka, Sakagami Rena, Saionji Diana, Naruse Shiyo, and others made eye contact and nodded. Something happened to Taira Ryuta. It was a thought that everyone shared at the same time.</p>
-<p>"First of all, the things I need to tell you today are...."</p>
-<p>Kijimoto Jurie's morning homeroom story passed by their ears, but the students who were making eye contact ignored the story and exchanged worried glances.</p>
-<p>"That's all for homeroom.... Everyone, have a good class today! Fighting!"</p>
-<p>After Kijimoto Jurie left the classroom, the students who had been exchanging glances stood up from their seats in a flurry.</p>
-<p>Because there were about ten minutes left before the first period started, they went out to talk about the current situation.</p>
-<p>The students who gathered in the counseling room on the second floor of the special class building locked the door and sat down.</p>
-<p>"Did anyone get a separate message from sensei?"</p>
-<p>At Konoe Akina's words, everyone nodded. No one had received a Line message from Taira Ryuta since last night.</p>
-<p>"Actually, I went to look for sensei last night, but he wasn't home. I thought he might be at another woman's house.... But looking at today, I don't think that's the case?"</p>
-<p>Otagi Yuka spoke with an uncomfortable expression. Otagi Yuka currently had the 'Thirst for Blood' debuff, which caused her bloodsucking satisfaction to drop quickly, so she felt uneasy because she didn't know when she would succumb to the thirst for blood and fall into madness.</p>
-<p>"My lord went to have dinner with Taira Kanna yesterday at her invitation."</p>
-<p>"Then.... Is the culprit Taira Kanna?"</p>
-<p>At Sakagami Rena's words, Urabe Konoka asked cautiously.</p>
-<p>Taira Kanna's name was by no means light. Even if you took away the Taira surname, the person with the greatest military power in Miyashi, where St. Francisco Girls' Academy is located, was the student Chairman, Taira Kanna.</p>
-<p>She handles the Public Morals Committee, which is armed with the latest equipment, and also has the Taira family's security force, so their power is stronger than the police in Miyashi, which is famous for its strong public authority.</p>
-<p>"I can't be sure yet. Something might have happened after the appointment with Taira Kanna and he was on his way back. It could be a plan to cause a clash between my lord and Taira Kanna's forces, or Taira Kanna's side could be the culprit, as we suspect...."</p>
-<p>Sakagami Rena shook her head as if she didn't know. In fact, she knew almost nothing about this case. The only fact she knew was that Taira Ryuka had disappeared after going to the dinner party that Taira Kanna had invited him to.</p>
-<p>"Ryuta.... Kidnapped?"</p>
-<p>"We don't know what the situation is yet, Alik."</p>
-<p>Alik, who had been sitting quietly, asked quietly. Urabe Konoka tried to stroke his head as if to soothe him, but she couldn't bring herself to do it because electricity crackled around Alik's body.</p>
-<p>"Ryuta, Alik's precious.... person. If Ryuta is kidnapped or something more happens.... Alik can't stand it."</p>
-<p>Alik's eyes were shining with golden light flowing with electricity. Naruse Shiyo, who was sitting next to Alik, was also furious, her pupils splitting like those of a reptile.</p>
-<p>"I'm going to kill them.... I'm going to cut off their faces with Dragon Claw so they can't hold their heads up anymore. I can't forgive them for kidnapping sensei. I'm going to tear them apart and kill them, kill them, kill them..."</p>
-<p>As Naruse Shiyo was muttering, spewing out her hatred for the still unknown kidnapper at an incredible speed, Konoe Akina calmed them down with the pressure of her mystic eyes.</p>
-<p>"Everyone, calm down. You can only save sensei if you calm down, right? If something happens to sensei, I will take revenge too, but saving sensei is our priority right now."</p>
-<p>"Yeah, sensei wouldn't have died. He has regeneration and his body itself is incredibly strong."</p>
-<p>While Konoe Akina and Otagi Yuka were calming down Alik and Naruse Shiyo, who were about to go berserk, Sakagami Rena and Saionji Diana talked to each other for a while and then looked at all the students who had gathered.</p>
-<p>"First, let's check Taira Kanna's movements during break time and carefully gather information."</p>
-<p>"I understand that you want to run out and find him right away, but it might not be good if we make too much noise. Our sudden movements might put sensei in danger, so let's act like nothing's wrong."</p>
-<p>Everyone nodded at Saionji Diana and Sakagami Rena's words. Their actions would be limited because they were stuck at school, but there were many things they could use. Everyone thought they would find Taira Ryuta soon.</p>
-<p>_________</p>
-<p>Taira Kanna's Yass Scene B-cut!</p>
-<p>Putting on the seaweed is too annoying....</p>
-<p>Saionji Diana wedding style underwear + armpit requested by RefundAbsolutelyNotAllowed-nim</p>
-<p>Since Saionji Diana is a character whose hair covers her face, I thought I could easily make her with a new model? So I made it with a new model hehe But....</p>
-<p>When I made it with a new model, her eyes were more exposed than I thought ㄷㄷㄷ But since I made it anyway, I tried some new things with the new model hehe</p>
-<p>Saionji Diana with a cyber implant prosthetic arm for combat!</p>
-<p>Saionji Diana threatening to shoot you if you don't recommend it....! She pointed a gun at me too, so I had no choice but to self-recommend ㅠㅠ</p>
-<p>The rest of the characters requested by RefundAbsolutelyNotAllowed-nim will be uploaded tomorrow~!</p>
+<p>"Huh?"</p>
+<p>The moment I aligned my glans with Lizhael's pussy, I felt Lizhael's pussy biting my dick. It was different from tightening. It felt like my glans was being bitten by another creature...! This is new.</p>
+<p>"Ufufu, when I created my new body, I put quite a bit of effort into this area to give my partner pleasure...♥"</p>
+<p>Lizhael proudly spoke about her pussy, as if my surprise had been conveyed. Just having it against my glans already felt pretty good. She put in extra effort just to make me feel good, that's quite touching, isn't it?</p>
+<p>If she put in that much effort, then enjoying it to the fullest would be one of my ways of repaying her. I felt each and every fold and bump of Lizhael's pussy as I very slowly pushed my dick in.</p>
+<p>Of course, since it was a pussy exclusively for Jin Yongtae, Lizhael's insides felt so good that my legs almost gave out. Each and every fold and bump inside exquisitely stimulated my dick, so I felt pleasure even with the slightest movement.</p>
+<p>"Haaheueung....♥ Partner's haat! Biig...! Heueung, dick is haat...! Slowly coming in aahang♥"</p>
+<p>"Haa, Liz's pussy feels so good...!"</p>
+<p>We moaned to each other, unable to come to our senses from the pleasure rising from below. Then, the advance of my dick came to a halt, as Lizhael's hymen was blocking my insertion.</p>
+<p>"Partner...! Quickly, haa♥ make me yours...♥"</p>
+<p>Lizhael spoke seductively, shaking her pelvis as if telling me to tear her hymen quickly. Of course, as she shook her pelvis, my dick, which was about a third of the way inside Lizhael's body, was also stimulated, which felt very good.</p>
+<p>"Liz, you're mine."</p>
+<p>"Ufufu...♥"</p>
+<p>I pulled my waist back slightly and then forcefully thrust my dick in again. My glans parted the clinging pussyskin and tore Lizhael's hymen. I didn't actually hear it, but I felt like I heard a *buueok* sound as her hymen tore.</p>
+<p>"...♥"</p>
+<p>From the start, I didn't intend to give Lizhael pain by trying multiple times, so I was able to tear Lizhael's hymen in one go. Lizhael looked slightly pained, but also wore a strangely happy expression.</p>
+<p>"Keueu...! Feels good, Liz...!"</p>
+<p>When I tore her hymen and my dick was completely inside, it felt like my dick and Lizhael's pussy fit perfectly, like a key and a keyhole.</p>
+<p>Of course, it couldn't not feel good. A pussy that fit my dick perfectly, with countless folds and bumps inside that bit like a living creature, made me feel like I was about to cum just by thrusting.</p>
+<p>"Kiss, kisseu, kisseueu♥ give me a kiss, partner♥"</p>
+<p>At Lizhael's request to be connected with me both below and above, I pouted my lips. Lizhael slowly matched her lips to mine, then stuck out her tongue, pushed against my teeth, and entered my mouth, moving her tongue as if caressing the inside of my mouth.</p>
+<p>At the tongue movement full of affection, I also intertwined my tongue, and of course, I also slowly started moving my waist.</p>
+<p>Chueuep, jjeubeuep, chuep, jjeuuep, chup, jjeuuep...!</p>
+<p>A sound that was hard to tell whether it was the sound of kissing or the sound of friction between the dick and pussy due to the piston movement, circled around us, increasing each other's excitement.</p>
+<p>As the pleasure felt in my pussy increased, Lizhael's tongue movements became even more active, making me feel like the inside of my skull was being caressed. I didn't know kissing could feel this good.</p>
+<p>"Haaaaahang...!"</p>
+<p>But Lizhael was the first to surrender. When I increased the gear of my waist movements, she couldn't take it anymore while kissing, so she parted her lips and started moaning. No matter how electrifying and good kissing was, it was less than sex where genitals rubbed against genitals.</p>
+<p>Cheolssak! Cheolssak! Cheolssak! Cheolssak! Cheolssak!</p>
+<p>I hugged Lizhael's body tightly, feeling like our whole bodies were sticking together, and shook my waist. Lizhael's soft body and her tight and complex pussy made me feel good at the same time.</p>
+<p>"Haaheung, euheung...! Partner, haat! Too heueut! Strong aahang♥"</p>
+<p>"So you don't like it strong?"</p>
+<p>When Lizhael said it was too strong, I asked if she didn't like it, and Lizhael shook her head violently.</p>
+<p>"I like it aahang, partner's haat! Rough heueung...♥ Sex eueut...! Hyaaeuheut, I like it...!"</p>
+<p>I guess she doesn't hate it after all. I smiled slyly and shook my waist even more roughly.</p>
+<p>Even with Lizhael's moans that seemed like she was about to pass out, as I continued the piston movement, the inside of Lizhael's pussy convulsed and started stimulating my dick wildly. It was a lewd movement as if she was going to extract semen from my dick before reaching climax.</p>
+<p>Jjeolssak! Cheolssak! Cheolssak! Cheolssak!</p>
+<p>"Haat! Haang! Heueung! Haat! No, haat! If I keep feeling this good, hyaaeueut! I'll become an idiot aahang♥"</p>
+<p>"You can become an idiot as much as you want in front of me."</p>
+<p>Of course, just like Lizhael said she felt so good that she would become an idiot, I also felt so good that my vision turned white.</p>
+<p>I was planning to let Lizhael climax and ejaculate first, but I couldn't hold back any longer.</p>
+<p>"Liz, I'm gonna cum...!"</p>
+<p>"Heueung, partner's rich semen♥ quickly haaeuheung...! In my deepest, heueut! Place haaeung...! Inject it aahot...♥"</p>
+<p>When I announced that I was about to ejaculate, Lizhael lifted and shook her waist slightly, urging me to ejaculate even more. I grabbed Lizhael's slender waist and did piston movements even more roughly, then clung to Lizhael as much as possible, pushed the cervix with my glans, and started ejaculating.</p>
+<p>"__! Keueut...!"</p>
+<p>"Haaaaaahang...!"</p>
+<p>The vision in front of my eyes blurred, and I started ejaculating with the feeling that all the fluids in my body were draining out through my dick. As my dick swelled to its maximum, Lizhael crossed her legs in an X shape and pulled my waist, trying to accept my dick even deeper.</p>
+<p>Bueut! Bueut! Bueut! Bueut! Bueueut!</p>
+<p>My dick throbbed and poured semen into Lizhael's uterus with tremendous force. Every time I ejaculated and my semen was poured into her uterus, Lizhael trembled all over and started climaxing in succession.</p>
+<p>We hugged for a long time. Pussy job and sex, only two ejaculations, but it was a physical exertion comparable to ten other sex sessions. That's how good Lizhael's body felt.</p>
+<p>After a while, when my stamina recovered a bit and I pulled out my dick, semen gushed out of Lizhael's pretty pussy.</p>
+<p>"My partner's hot milk is full, so my belly is warm, partner...."</p>
+<p>Lizhael, who was stroking her belly with a satisfied expression, soon got up. An ordinary person would have been sprawled out for about thirty more minutes, but as expected, she was an Outer God, so her recovery was on a different level from humans.</p>
+<p>"Ufufu...♥"</p>
+<p>Lizhael, who was wearing a lewd smile, went down below me and grabbed my dick again. My dick, which had slightly lost its strength due to the tremendous ejaculation just now, started to slowly stretch and harden as if yawning as soon as it touched Lizhael's hand.</p>
+<p>She's not a dick healer or anything, but how can she make it stand up so easily? Among the women I've seen so far, she seemed to have the best ability to make my dick regain its strength.</p>
+<p>"Ufufu♥ This time...."</p>
+<p>Lizhael, who was looking at my dick that was about 80 percent erect with a very lewd expression, wrapped my dick with her big, soft, and elastic breasts.</p>
+<p>Ah! It's a boobjob. If it's a boobjob with Lizhael's breasts, which feel so incredibly good to the touch that I lose track of time, I could probably squeeze out at least ten shots.</p>
+<p>It didn't even take 2 seconds for the words 'probably' that I just said to be proven true. My dick, nestled between two soft mounds, was engulfed in tremendous pleasure.</p>
+<p>A boobjob with ordinary breasts wouldn't give such shocking pleasure, but Lizhael's breasts were capable of it.</p>
+<p>"Keueueut....! Liz, it feels good. It feels so good that my body feels like it's floating...!"</p>
+<p>"Feel free to enjoy my breasts as much as you want, partner...♥"</p>
+<p>Lizhael, who had my dick between her breasts, pressed and rubbed her breasts, and also licked my glans with her tongue, giving me pleasure by doing both a boobjob and fellatio at the same time.</p>
+<p>I, who had ejaculated twice in the boobjob alone, gave Lizhael a lot of cunnilingus in return, and then we licked each other's pussy and dick in the 69 position, and then we overlapped our bodies again and had sex.</p>
+<p>In this place where infinite time seemed to flow, we overlapped our bodies countless times, poured out our essence countless times, and tasted the essence we poured out again.</p>
+<p>As we overlapped our bodies, matched our lips, and shared love, we fell asleep for a while. When I woke up, the space with the pink bed where we had shared love had disappeared, and we were standing in a space like the universe again.</p>
+<p>Lizhael was wearing the splendid silver and black mixed clothes I had seen for the first time. She smiled slyly at me, who had woken up from sleep, and opened her mouth.</p>
+<p>"It was a short wait for my partner, but it was a very long wait for me, who was newly born, because the time zones are different. My love for my partner is overflowing, so I don't know if I went too far."</p>
+<p>"No, I felt good too. Don't ignore my affection just because my wait was short."</p>
+<p>Lizhael smiled as if she was satisfied with my answer.</p>
+<p>"Ufufu...! I understand. Now that I've relieved my desires a bit, I should look at my partner's skills and traits."</p>
+<p>Was that a little? Is that what she calls relieving...? Still, it seemed like she was going to change the traits and skills that had become useless because Simyeonui ttal was gone.</p>
+<p>--------------</p>
+<p>Hot pants home teacher, Black Lisa, Kkan Yuka requested by Hwanbuljeoldaebulga-nim</p>
+<p>Lisa-ttang</p>
+<p>Home Teacher</p>
+<p>Kkan Yuka~!</p>
+<p>When it was Yuka's turn to make the last one, I thought, "Since it's 19+, is there any need to wear a bra?" so I made a bare breasts cut too hehe</p>
+<p>Lizhael Boobjob B-cut!</p>
+<p>Actually, I made over 40 boobjob cuts, but I'm too lazy to put seaweed on the dick, so I'm only uploading one hehehe</p>

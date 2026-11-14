@@ -5,95 +5,88 @@ weight = 331
 chapter = 331
 +++
 
-<p>My Korean class was the last one on Tuesday, the 6th period. The location was on the 3rd floor, classroom C, in the building with the 3rd-year classrooms, so it was a bit of a distance.</p>
-<p>I took the prepared materials and headed to class. To be honest, it was my first time teaching someone, so I was a little nervous and excited. But if things have already progressed this far, I have to do it. There's no choice.</p>
-<p>As I left the teacher's prep room and headed to the classroom, I heard a voice calling me from behind.</p>
-<p>"Ryuta-nim!"</p>
-<p>"Ta... I mean, Teacher-ssi!"</p>
-<p>When I turned around, Konoe Akina and Otagi Yuka were walking over with books in hand to attend the class as well. I don't know why, but the two of them seemed closer than yesterday. Could it be because they share the secret of knowing my identity? Secrets make each other intimate, so that must be it.</p>
-<p>"You're on your way to Korean class, right?"</p>
-<p>"Yes! Let's go together, Ryuta-nim!"</p>
-<p>"Since we're in the same class. Teacher-ssi hasn't been to school for very long, so we'll show you the way."</p>
-<p>"Then, shall we go together and get a tour?"</p>
-<p>Otagi Yuka, who called me by the strange title of Teacher-ssi, offered to guide me. Actually, I memorized the school's geography during the week, so I know the way, but I pretended to be guided so it wouldn't be awkward. Come to think of it, these two must have used the 3rd-year building a year ago. Since they both took a year off for their own reasons and ended up in the special class, they might miss the 3rd-year building a bit.</p>
-<p>"How was class today?"</p>
-<p>"It felt strange, like I was back in my daily life after a long time."</p>
-<p>"I had to use my stiff brain after a long time, so it was hard to adjust."</p>
-<p>Since they were both taking classes after a year, I was curious about their impressions, so I asked them, and it was quite funny because they both had different answers.</p>
-<p>"By the way, Ryuta-nim, I know you're good at Korean, but did you prepare for the class?"</p>
-<p>"Teacher-ssi, you're good at Korean?"</p>
-<p>Konoe Akina asked me with a slightly worried expression, and Otagi Yuka, after hearing that I was good at Korean, asked back in surprise as if it was unexpected. Of course, I'm doing Korean teacher because I can speak Korean to some extent. Did they just think I came in because there was an empty Korean teacher position?</p>
-<p>"I prepared for this semester's class, but I'm worried because there are many new students."</p>
-<p>"That's the students' choice, so just teach according to the original progress. If you teach from the beginning or the basics because of the new students, the students who have been taking the class from the beginning will lose out."</p>
-<p>"That's true. It's right to focus on the students who were originally taking the class rather than the newly arrived students."</p>
-<p>When I told them my worries, they both gave me their own conclusions. In the end, the answer was to teach according to the original progress as I had prepared. Since there's also the online lectures that Taira Kanna mentioned, the newly joined students will prepare well on their own.</p>
-<p>"It's over there! It feels strangely nostalgic."</p>
-<p>"Yeah. Even just a year ago, we went to school in that building."</p>
-<p>The two pointed to the 3rd-year high school building and were slightly lost in memories. Except for a few repeaters in the special class, all the friends who entered with them must have graduated, so there wouldn't be many kids to share memories with.</p>
-<p>"Ah, sorry! I think we got too caught up in memories. Let's go up, Ryuta-nim."</p>
-<p>"Ahem...! Go up first, Teacher-ssi."</p>
-<p>Konoe Akina had a slightly troubled expression, but Otagi Yuka's eyes were a little red as if she was thinking of a dead friend.</p>
-<p>There were obviously many students in the building, so attention was focused on the appearance of a strange man. It's a bit much to say it myself, but it seemed like my appearance was drawing even more aggro. Wherever I go, handsome men monopolize attention.</p>
-<p>"Tch!"</p>
-<p>Someone made a clicking sound, so I looked over and it was the French class teacher, Kasaoka... What was his name? Surely the name of the 3rd-year head teacher, his wife, was Kasaoka Yuzuki, but I forgot the man's name.</p>
-<p>"Move!"</p>
-<p>Kasaoka whatever-his-name is said irritably and bumped into my shoulder as he passed. My shoulder didn't budge at all, so it was funny because he staggered instead.</p>
-<p>His face was fairly decent, so he must have been a bit popular with the female students, but it seemed like he was getting even more edgy with me because he thought my appearance would reduce his standing.</p>
-<p>"Why is he like that?"</p>
-<p>"Yeah, why is he bumping into other people's shoulders?"</p>
-<p>Konoe Akina and Otagi Yuka got angry on my behalf. Konoe Akina spoke irritably while looking at Kasaoka so-and-so's back, and Otagi Yuka looked like she was wondering if she should give him a beating. Since I fought with Otagi Yuka once in New York, that Kasaoka so-and-so would be in danger if Otagi Yuka gave him a beating.</p>
-<p>"I guess he's annoyed because there are a few people who switched from French to Korean class because of me."</p>
-<p>They both nodded at my explanation, but their faces didn't really look convinced. Since they are both daughters of wealthy, prestigious families, they probably don't empathize with the difficulty of having their salaries reduced. Or maybe they don't know that the salary of a second foreign language teacher is reduced when the number of students decreases.</p>
-<p>"Let's go up for now. We'll be late."</p>
-<p>Rather, I was the one who was wronged, but I comforted them and went up to the 3rd floor, classroom C, where the Korean class was held. As I passed by, I glanced and saw that classroom A seemed to be Chinese and classroom B was French. There are a lot of students. Is he getting edgy because of just four people?</p>
-<p>"Ryuta-nim, fighting! We'll go in first because other people might misunderstand."</p>
-<p>"Teacher-ssi, don't be nervous~!"</p>
-<p>I think enough people who could misunderstand have already misunderstood while coming here... The two encouraged me and went into the classroom first.</p>
-<p>I slowly walked and entered through the open door. The classroom, which had been a bit noisy, suddenly became quiet.</p>
-<p>"Hello everyone. I'm Yamashiro Ryuta, and I'm in charge of the Korean class this semester."</p>
-<p>Standing in front of the teacher's desk, I introduced myself to everyone. It was quiet for a moment, but soon it became noisy like a marketplace, and the female students started asking me questions.</p>
-<p>"Teacher~! Do you have a girlfriend?"</p>
-<p>"Where did Noda Fukuno-sensei go?"</p>
-<p>"You're handsome, Ryuta-cchi~☆"</p>
-<p>Hmm, the reaction wasn't bad. I smiled slightly and answered the questions I heard. By the way, the student who called me handsome with the strange nickname Ryuta-cchi was Seizawa Shii. When I looked at her, she stuck out her tongue slightly and winked with a dehet.</p>
-<p>"I don't have a girlfriend, and Noda Fukuno-sensei is on temporary leave."</p>
-<p>For reference, Noda Fukuno is the name of the teacher who taught Korean in the first semester. Even though I answered the question, the classroom became even noisier. Surely it's not because I said I didn't have a girlfriend?</p>
-<p>"Everyone, be quiet."</p>
-<p>When someone spoke from the entrance, the classroom became quiet in an instant as if everyone had promised. When I looked to the side, student council Chairman Taira Kanna was standing there with a Korean book in her hand.</p>
-<p>"Hello, Teacher."</p>
-<p>Taira Kanna bowed politely to me and then sat in an empty seat. Did Taira Kanna also take my class? Come to think of it, I only looked at the list of newly added students and didn't see the names of the students who were taking the class.</p>
-<p>"Hmph, making a big fuss...!"</p>
-<p>Minamoto Risa muttered loud enough for everyone to hear. Taira Kanna arrogantly opened her book and started preparing for class as if she hadn't heard Minamoto Risa's story at all.</p>
-<p>A chill ran between the two heiresses of Japan's leading companies, Taira and Minamoto, and the atmosphere rapidly cooled.</p>
-<p>"Sorry I'm late~! Oh? It's my homeroom teacher! Hello~!"</p>
-<p>"The bell hasn't rung yet, so you're not late. Take a seat."</p>
-<p>Uenozono Karen ran over. She must have been taking Korean class from the beginning as well. Since she's an idol who's active in Korea, it wasn't strange that she was taking Korean class. Fortunately, the atmosphere that had cooled down was somewhat relieved because of Uenozono Karen. I was worried about what to do with this atmosphere, so it was a relief.</p>
-<p>Yesterday, I went home and searched for Serife, the agency that Karen belongs to, and it was an idol from a Korean agency, but Taira Entertainment had a significant stake in the company. I heard she was quite popular, and as if to prove that fact, most of the students were glancing at Uenozono Karen.</p>
-<p>As soon as Uenozono Karen sat down, the bell rang to start class.</p>
-<p>"I'll call attendance and start class."</p>
-<p>I called attendance and started class. Fortunately, there were no absences today.</p>
-<p>It was awkward at first, but I had been steadily preparing and my native language was Korean, so I gradually became more familiar with it.</p>
-<p>"Let's stop the class here and now I'll take any questions you have during the class or conversation questions."</p>
-<p>One class at Saint Francisco Girls' Academy was 50 minutes. I taught for about 40 minutes and took questions. Since everyone was from prestigious families, the concentration in class was good. Except for a few questions about my personal information, all the questions were about the class content.</p>
-<p>"We have class at this time tomorrow, right? There's no homework, so everyone please review and come."</p>
-<p>I said something that a teacher would say and ended the class. Since it was the last class, everyone rushed out to go back to their classrooms and go home. I had to do the final assembly, so I moved quickly so I wouldn't be late.</p>
-<p>"Ryuta-cchi-ssaem! Let's go together!"</p>
-<p>"Ryuta-nim, let's go together!"</p>
-<p>Seizawa Shii and Konoe Akina shouted at the same time. Otagi Yuka had an expression that said, "Ah, I'm late!" and Minamoto Risa, who was next to Seizawa Shii, was looking at her phone as if she wasn't interested.</p>
-<p>"Okay, let's all go together."</p>
-<p>"I'll join too~!"</p>
-<p>Including Uenozono Karen, we became a total of six people and headed to the building where the 3rd-year special class was located. For reference, only Uenozono Karen was 19 years old and the rest were all 20 years old. Then wouldn't they know each other?</p>
-<p>"Excluding Uenozono-yang, don't the rest of you know each other? Since you're the same age?"</p>
-<p>When I asked, Minamoto Risa opened her mouth.</p>
-<p>"Not really. Shii and I didn't attend often."</p>
-<p>Hmm, I see. Certainly, I saw in the data that she didn't attend enough to be excused, even if she was the heiress of the Minamoto Group, so she failed a grade.</p>
-<p>"Ryuta-cchi-ssaem, what are you doing after school? Wanna go eat a hamburger with me?"</p>
-<p>Seizawa Shii made a suggestion to me, but I shook my head and refused. I was a little tempted, but it's my first day in practice, so I can't show myself being all smiles to a woman.</p>
-<p>"I, I, it's unhealthy! You'll get caught by the discipline committee!"</p>
-<p>"Hee? What does it matter? Is eating a hamburger unhealthy?"</p>
-<p>Konoe Akina shouted at Seizawa Shii. But Seizawa Shii asked back, as if it didn't matter, asking why hamburgers were unhealthy, and instead launched a counterattack.</p>
-<p>Our group arrived at the classroom while listening to the argument between Konoe Akina and Seizawa Shii. It's more fun to watch other people argue than just walking. It was a pretty rewarding day.</p>
+<p>"She's quite the scatterbrain, isn't she?"</p>
+<p>"Yeah? I'm her homeroom teacher."</p>
+<p>Eve said, watching Minamoto Risa leave, and when I said I was her homeroom teacher, Eve went, "Ah...!" and didn't say anything more. Looking over at Saionji Diana, Saionji Diana was lying on the operating table. Above the lying Saionji Diana, a scanning machine was slowly scanning Saionji Diana's body. Is it okay for her to be wearing clothes?</p>
+<p>"Are you measuring her right now?"</p>
+<p>"Yes. Since she said she does swordsmanship, I'm calculating the ideal arm and leg length relative to her torso. For your information, I can scan everything even if she's wearing clothes."</p>
+<p>Ah, I see. Predicting even what I'm thinking, Eve is scary indeed as an AI. Ideal arm and leg length.... That's going to be different for every swordsmanship style, so can you even decide that? The ideal arm length for swordsmanship that uses quickdraw and swordsmanship that uses illusionary sword techniques would be different. Quickdraw would be more advantageous the longer the arm is, and illusionary sword techniques that focus on change would be slower if the arm is too long.</p>
+<p>Eve seemed to see my suspicious gaze and puffed out her cheeks slightly as she spoke.</p>
+<p>"Don't you trust me?"</p>
+<p>"No, it's just that the ideal body type is different for each school of swordsmanship...."</p>
+<p>"I analyzed several schools with big data and came up with an average value. After the surgery, if it's uncomfortable after wielding a sword directly, I can provide AS. Then I'll accumulate more data."</p>
+<p>I see. Eve, who I'd never seen get angry, got a little worked up because I doubted her abilities. On the contrary, this side of her was more human-like(?), which was nice.</p>
+<p>"The body measurements are all done, and the parts that are coming now will arrive in the morning, so the surgery will be done tomorrow morning. What do you want to do?"</p>
+<p>"Saionji, did you hear that? What do you want to do? If it's from the morning, I'll say I'm sick and can't come. Eve can make a fake doctor's note, so do that."</p>
+<p>Perhaps because it was a scanning type, the body measurements were quickly finished. At the words that the surgery would be done tomorrow morning, I asked Saionji Diana when she wanted to have the surgery.</p>
+<p>"I'll have the surgery right away in the morning."</p>
+<p>Since Saionji Diana wanted to get out of her disabled state as soon as possible, doing it from the morning was almost a given.</p>
+<p>"Okay, let's do that. Can we pay now?"</p>
+<p>"Including shipping and making it a custom size to fit Saionji-yang's body, it's 550,000 points!"</p>
+<p>550,000 points is 550,000 dollars, so it's quite expensive. Is that about 71 million yen? Then again, if I thought about it as the down payment for an excellent swordsman, it didn't seem that expensive....</p>
+<p>I nodded and asked Eve to calculate it with my dark web points deposited in the dark web app. Eve blinked for a moment and then gave a refreshing smile, saying, "Calculated, customer-nim!"</p>
+<p>"Let's go now."</p>
+<p>"Yes... Kyaa!"</p>
+<p>I princess-carried Saionji Diana, who was still lying on the body measurement device, and headed towards the wheelchair parked in the corner. Saionji Diana let out a small kyaa scream, but after that, she was quietly held like a rabbit caught by a predator.</p>
+<p>"I'm leaving. I have to go to work tomorrow, so only Diana will come here."</p>
+<p>"Aww...! That's a little disappointing. But since we have business to discuss, please stop by soon."</p>
+<p>I nodded at Eve's words and left the dark web clinic. Coming all the way here just to talk business... should I call Kasaoka Yuzuki for a delivery health service at the unmanned love hotel where the dark web clinic is located? Hugging Kasaoka Yuzuki at home every day and hugging her at a love hotel would feel a little different.</p>
+<p>I came out of the basement floor where the dark web clinic was located and left the love hotel, being mindful of the gazes around me. Saionji Diana looked at me and asked what she was curious about.</p>
+<p>"Um, how much is 1 point in real money, just now?"</p>
+<p>"Yeah, 1 point is 1 dollar."</p>
+<p>Saionji Diana knew about the existence of the dark web clinic, but she didn't seem to know much about the amount since she hadn't used it before.</p>
+<p>"If 1 point is 1 dollar... 550,000 dollars, that's, that's over 70 million yen?"</p>
+<p>"How can the young lady of Saionji Bank be surprised by only 70 million yen?"</p>
+<p>As expected, Saionji Diana was quick to calculate, probably because she had accounting skills in her stat window. I smiled and chided her, asking how the young lady of Saionji Bank, which does big banking, could be surprised, but Saionji Diana was still surprised.</p>
+<p>Well, her family only gave her the lowest-grade cyber implant on one arm, and after the accident, they probably didn't give her much allowance. That's how much Saionji Diana has come to know the value of money.</p>
+<p>"Where's your house? I'll take you."</p>
+<p>"No, just take me to there. After all, today and tomorrow will be the last days I'll be going in a wheelchair."</p>
+<p>Even though I said I'd take her, Saionji Diana asked me to drop her off at the bus stop in the distance. I nodded and took her to the bus stop.</p>
+<p>"How much is your monthly allowance? Since you've decided to work with me after graduation anyway, tell me without lying."</p>
+<p>"20,000 yen a month."</p>
+<p>20,000 yen? That's less than what the money-spending high school girls in Tokyo get.... Saionji Diana's mood seemed to be getting worse after answering my question, so I asked one more time, just in case.</p>
+<p>"Just allowance? Or does that include living expenses?"</p>
+<p>To my repeated question, Saionji Diana replied softly, "Living expenses...." So, you're doing all your transportation and food expenses with 20,000 yen? That's going to be a huge shortage, isn't it? The Saionji family is amazing. They say the rich get richer, but did they become rich by saving this much?</p>
+<p>"I'll give you 100,000 yen a month, so use it as allowance. Tell me if you need more."</p>
+<p>"Yes? Ah...."</p>
+<p>Saionji Diana didn't know what to do when I took out 100,000 yen from my wallet and gave it to her. I patted her on the shoulder as if to say it was okay and helped her put the 100,000 yen I gave her in her pocket.</p>
+<p>She might be short on money to hang out with other young ladies, but I don't think Saionji Diana will hang out that much, so 100,000 yen should be enough.</p>
+<p>We walked quietly to the bus stop.</p>
+<p>"Can you go alone?"</p>
+<p>"Yes, I'm used to buses."</p>
+<p>Saionji Diana said she would take the bus until the end, perhaps because she was embarrassed to have me take her. I waved my hand, telling her to go in carefully, and headed home.</p>
+<p>"Um, Sensei!"</p>
+<p>"Yeah?"</p>
+<p>Saionji Diana calls me from behind. Surely she's not already asking me to raise her allowance, is she? Contrary to my worries, Saionji Diana bowed to me while sitting in her wheelchair.</p>
+<p>"Thank you...!"</p>
+<p>"Ah, I'm your homeroom teacher and future boss, so you can rely on me a little more."</p>
+<p>It was a thank you. I don't know what to say in these situations....</p>
+<p>"Just think about finishing the surgery well for now."</p>
+<p>"Yes!"</p>
+<p>I said goodbye and left Saionji Diana at the bus stop and went home.</p>
+<p>###</p>
+<p>I went to school, and before the morning assembly started, I received a text from Eve saying that the surgery had started. During the assembly, Minamoto Risa, who had looked like she had given up yesterday, had a confident expression on her face today.</p>
+<p>Yesterday, she had an expression like she had lost everything, but today she has a confident expression, so it seemed like she had found some clue in the story with me yesterday.</p>
+<p>Of course, I thought it would go well, but it's not a normal surgery, it's a surgery to attach new limbs, so I'm a little worried.</p>
+<p>I calmed my worried heart and was doing the work to be done today in the education preparation room. Konoe Akina, who is a regular student, and Urabe Konoka, who contacted me in advance that she would be coming to school from tomorrow, are coming.</p>
+<p>Then the total number of students in our class is 13. I haven't seen Oofuchi Erika, who is a hikikomori and hasn't come to school even once. Should I do a home visit later....</p>
+<p>I was doing what I had to teach today and work until the third period when my phone rang.</p>
+<p>EVE: The surgery went well. Saionji-yang is in the recovery room. It will be over in the afternoon with fine-tuning.</p>
+<p>Ryuta: Thank you for your hard work. Thank you for listening to my request.</p>
+<p>EVE: What are you talking about? I did it all for a price.</p>
+<p>Even though she said it was for a price, I found out that Eve gave me a big discount because I was her business partner. The price of the high-performance cyber implant alone seems to be 550,000 dollars, but she didn't charge me at all for the custom tuning fee and surgery fee. In addition, doing skin grafts without making it obvious was also free, so she was quite considerate of me.</p>
+<p>Ryuta: If you ever need anything from me, please ask.</p>
+<p>EVE: Really? I'll remember that. I'll even back up this memory!</p>
+<p>I was grateful and told her to ask me for anything anytime, but she's even backing it up, so is she saying she'll remember it even if I die? That's pretty scary.</p>
+<p>Ryuta: Of course. Ask me anytime.</p>
+<p>EVE: Yes~! Don't worry about Saionji-yang. Recovery technology has advanced these days, so she'll be able to come to school tomorrow.</p>
+<p>After finishing the chat with Eve and doing my work with a lighter heart, lunchtime passed, my class time passed, and it was time for the after-school assembly.</p>
+<p>"Did you all listen to the class well today too?"</p>
+<p>"...."</p>
+<p>"Yesss!"</p>
+<p>"Ahaha, Ryuta-cchi, do you think we listened to the class well?"</p>
+<p>The reactions were so diverse. Well, it's probably a special class because it's like this. Seizawa Shii's reaction was a little annoying, but I'll let it go because she's pretty.</p>
+<p>"Then, as promised, Minamoto and Seizawa, Konoe and Otagi, come to the education preparation room after the after-school assembly.... Good job. Those who are going home, go home, and those who are doing club activities, do your club activities!"</p>
+<p>There was nothing special to convey today, so I finished it roughly. Actually, I was also curious about the match between Minamoto Risa and Saionji Shii's Meditation Club and Konoe Akina and Otagi Yuka's Date Experience Club, so I finished it even faster.</p>
 <p>----</p>
-<p>Blonde tanned Taira Ryuta.</p>
-<p>I didn't want to create a man, but since he's the main character, I thought I should show you his dyed and tanned appearance, so I created it haha.</p>
-<p>As expected, creating a man is more difficult ㄷㄷ If I make him muscular, he becomes a complete muscle monster, and his face becomes rough to match, so it was difficult ㅠㅠ</p>
+<p>Diana maid illustration!</p>

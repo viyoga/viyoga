@@ -5,84 +5,78 @@ weight = 667
 chapter = 667
 +++
 
-<p>The first day of the festival has passed. Fortunately, since yesterday afternoon, the printing shop kept supplying my photo cards, so we were able to sell the club's anthology well without any customers turning back.</p>
-<p>Of course, I had to go on festival dates with the students one by one for their welfare(?), but due to time constraints, I haven't been able to date all of them yet. Even though I had planned the order in advance, students' guests came, they had to leave their posts to do business, and other things happened, so it was common for the order to change or be skipped.</p>
-<p>In particular, I couldn't go on the festival date with Kujo Kina that I was supposed to have yesterday because Kujo Kina's-ssi master and disciples who were supposed to come yesterday had something happen, so they said they would come today. I was worried it might be related to Anya-ji, but when I asked, they said it was nothing serious.</p>
-<p>This morning, I started selling the club's anthology again, but unlike yesterday, no one rushed over as soon as the festival started.</p>
-<p>After all, my photo cards were domestic products sold to the female students of St. Francisco Girls' Academy, so once the academy's female students bought them all, there would be no more momentum for sales.</p>
-<p>Of course, Uenozono Karen's photo cards are for fans coming to Miyashi from Japan, so they will continue to sell steadily.</p>
-<p>,I guess my photo cards won't sell much today?"</p>
-<p>,Still, your photo cards will sell a bit today. Not as much as yesterday, though."</p>
-<p>Of course, yesterday, several people swept up a thousand, two thousand, or four thousand copies at once, so it was impossible to sell as much as yesterday.</p>
-<p>,Ah...! I'm tired! Ryuta-cchi, I'm tired."</p>
-<p>,If you're tired... should I give you a Red Bull or something?"</p>
-<p>Seizawa Shii, bored because there were no customers, whined to me that she was tired for no reason. Actually, she had reason to be tired. Yesterday, the strong students in the special class did all the hard work, mainly moving luggage.</p>
-<p>,Just hang in there a little longer. Today, if we sell everything, I won't place an additional order and we'll end the business, so you can enjoy the festival from then on."</p>
-<p>Minamoto Lisa said apologetically, and Seizawa Shii waved her hand with a flustered expression, saying, ,It's okay, Lisa-tan~!"</p>
-<p>,The business might end sooner than you think today."</p>
-<p>,Huh? What do you mean."</p>
-<p>,Hehe, look at that."</p>
-<p>The line, which was emptier than yesterday, was already packed again. Huh? When did the line get so packed? I tilted my head and looked at Minamoto Lisa.</p>
-<p>,There are two reasons. First, Miyashi City Middle School and High School are closed today. When I checked, you're quite popular with the students there. So, they're coming to buy your photo cards that they couldn't buy yesterday. And enjoy our academy's festival at the same time."</p>
-<p>I'm popular at that high school too? I didn't know that at all. And Minamoto Lisa's premise seemed to have changed. They're buying the club's anthology with my photo cards while they're here to see the festival. It didn't make sense to think that they came to get my photo cards and enjoy the festival at the same time.</p>
-<p>,What's the second reason?"</p>
-<p>,The second reason is that I posted on SNS that the quantity might not be large on the second day, so it might sell out quickly. So, they're lining up in advance before it sells out. Especially Karen's fans came from far away, so it would be a shame if it sold out."</p>
-<p>I see. Looking at Minamoto Lisa's confident expression, it seemed like she was confident that she could sell quite a lot of copies today as well.</p>
-<p>,So, you should grab someone and go on a date."</p>
-<p>,When you say it like that, I feel like I'm doing a boyfriend-for-hire part-time job."</p>
-<p>,I'll give you a part-time fee, so go."</p>
-<p>Minamoto Lisa was telling me to quickly grab someone and go on a date, like a boss running a boyfriend-for-hire business. Just then, Kujo Kina came and said that her master and disciples had arrived, so I decided to go with her. Minamoto Lisa said that since I had guests with me, I should have fun and not be as strict as yesterday with the 30-minute limit.</p>
-<p>,Master~! I got permission from the club president, so you can go and have fun now."</p>
-<p>,Greetings."</p>
-<p>In front of the special class building, there was Yoda Grandpa, a young boy, two girls, and a man about our age. Yoda Grandpa Kinui Tachio is much older than me, so I showed respect and greeted him first.</p>
-<p>,Hoo...! That guy's disciple is a teacher. I'm afraid of what will become of Japan's future!"</p>
-<p>,Hey, do you have to start with a harsh remark as soon as you see my face?"</p>
-<p>,You also thought of me as Yoda as soon as you saw me, didn't you."</p>
-<p>Oh, right. This old geezer was a strange old man who could hear even thoughts in my head, like a telekinesis user, so he could hear the word Yoda.</p>
-<p>,But you've become a bit softer, haven't you? Before, you would kick me in the shin as soon as I thought something..."</p>
-<p>,Hehe, I have six disciples now. You can't solve everything with violence."</p>
-<p>So, instead of violence, you use harsh remarks? It doesn't seem like there's been much progress...</p>
-<p>,This is my third disciple, Nakasone Rishin."</p>
-<p>Yoda Grandpa introduced me to a man who looked to be in his late teens or early twenties. His name sounded like he should have a queue ponytail and cover his eyes, but he was quite handsome, somewhere between a good-looking guy and a pretty boy, if he were an ordinary person. But he had a gloomy expression, so he wasn't likable.</p>
-<p>,So, you're that person's disciple."</p>
-<p>This guy seemed to know who I was. Well, Fujigasaki Rinka said she rescued Nakasone Rishin here, so even if he doesn't know the details about me, he probably knows that I'm Fujigasaki Rinka's disciple.</p>
-<p>,I'm sorry for the sudden request, but may I ask you for a sparring match?"</p>
-<p>,Nakasone!"</p>
-<p>It was really sudden. When I glanced at Yoda Grandpa and Kujo Kina, they seemed to be flustered, as if it hadn't been discussed in advance.</p>
-<p>In particular, Kujo Kina seemed to dislike that he was asking her homeroom teacher to fight as soon as they met, without any respect, so she shouted his name.</p>
-<p>,Today is the festival, so let's set a date for sparring next time."</p>
-<p>St. Francisco Girls' Academy has a sports field, an indoor stadium, and a martial arts club like Cheongsim Hall where sparring can be done, but today they were all unavailable because of the festival.</p>
-<p>,Hehe, okay. Come visit my disciple's dojo after the festival is over! Then we can have a sparring match or give guidance, right?"</p>
-<p>Yoda Grandpa said, trying to ease the slightly chilled atmosphere, and I nodded.</p>
-<p>,What are your names?"</p>
-<p>This time, I approached the boy and girls, who looked to be around 12 years old, and asked their names first.</p>
-<p>All three had different personalities. The boy was Sato Haruto, and he had a playful personality like most boys his age. One of the two girls was Suzuki Kaho, a very shy girl who kept peeking out from behind Yoda Grandpa.</p>
-<p>The last girl was Ageba Tsurumi, who was very friendly. She asked me, whom she was meeting for the first time, ,What's your name, oppa? How old are you, oppa?" and asked me about myself.</p>
-<p>,Have you decided where to go?"</p>
-<p>,I decided in advance while looking at the pamphlet with the kids yesterday!"</p>
-<p>It was better to decide in advance than to just stand here and worry about where to go. First, we decided to go to the hearty meat barbecue restaurant run by The Fist, Kujo Kina's old club, which Yoda Grandpa strongly wanted to go to, and eat from the morning.</p>
-<p>I remember him crying while saying that the Wagyu was delicious before. How much does he like meat?</p>
-<p>,Ah! Sunbae-nim!"</p>
-<p>A club member of The Fist, who discovered Kujo Kina, welcomed us. Even though she had to leave the club due to an unfortunate accident, they welcomed her, so it seemed that Kujo Kina's reputation wasn't bad.</p>
-<p>,I'm from The Fist, so I came to help you sell a bit today."</p>
-<p>,Thank you, Sunbae-nim~!"</p>
-<p>They seemed to be doing American-style barbecue, constantly grilling something in a sealed grill that looked like a drum can placed horizontally.</p>
-<p>It might be okay since they just have to take out the meat and cut it.</p>
-<p>,Seven barbecue platters! Enjoy!"</p>
-<p>As expected of a mixed martial arts club, they were very energetic. It was a menu with well-cooked meat such as beef, pork, and chicken, and a pile of french fries, which would be enough for two meals for an ordinary person.</p>
-<p>But my group was all fighters, so they ate it all without leaving any. In particular, Yoda Grandpa was trying to hold back his tears in front of his disciples, saying, ,It's delicious. It's delicious..." and hiccuping.</p>
-<p>After the meal, we went to the game club that the boy Sato Haruto wanted to go to and enjoyed playing games, and Suzuki Kaho and Ageba Tsurumi shopped for accessories sold by the crafts club that they had chosen.</p>
-<p>Suzuki Kaho and Ageba Tsurumi were quite cute as they carefully chose what to buy, so I gave them each an accessory as a gift, and Kujo Kina looked at me with a ,What about me?" expression, so I bought her a hair tie.</p>
-<p>Next, after hearing that Nakasone Rishin wanted to eat Japanese-style desserts, we headed to Cheongsim Hall. Yoda Grandpa also knew Shimokawabe Airen, so he seemed to be quite looking forward to seeing her after a long time.</p>
-<p>,?!"</p>
-<p>Huh? I felt a strange presence as I was passing through the main stadium to go to Cheongsim Hall. Something familiar but unfamiliar. I stopped for a moment and turned my head to look at the place where I felt the presence.</p>
-<p>The owner of that presence also felt my gaze, and stopped and looked at me as well.</p>
-<p>The owner of the strange presence was a woman with pale hair that looked like silver or white, or even transparent. She was an incredible beauty who was not inferior to the beauties I knew, but it was strange that no one was paying attention to that woman.</p>
-<p>Smile!</p>
-<p>The woman, who had been looking at me for a moment, smiled and turned her body again and disappeared into the crowd of the festival.</p>
-<p>,Teacher, what are you looking at?"</p>
-<p>,It's nothing. Let's go."</p>
-<p>I didn't know what was bothering me. I just thought I felt it wrong and shook my head at Kujo Kina's question.</p>
-<p>_________________</p>
-<p>A new character whose name is still unknown~!</p>
-<p>I wanted to create a transparent-like pale hair texture, but I don't know if it turned out well ㅎㅎ</p>
+<p>,A... I, is that Ryuta-jji's dick?!"</p>
+<p>Seizawa Shii's face was shadowed as she stuttered, looking at my hideous, gigantic anaconda standing tall. Well, it's understandable to be surprised seeing this for the first time (?). It's a size unseen in the East, and even in the West, there are hardly any dicks this big. Because it's a dick that combines both size and hardness.</p>
+<p>Seizawa Shii, who was momentarily surprised, soon changed to an expression full of curiosity and began to carefully touch my dick. It wasn't so much for foreplay, but more like she was touching it out of curiosity for a dick she was seeing for the first time.</p>
+<p>,H-hot.... The texture is different from what I imagined, Ryuta-jji..... The front is a bit hard but also soft?"</p>
+<p>Seizawa Shii was analyzing my dick while fondling it. It's not like she's doing research or anything. Rather than stopping Seizawa Shii's actions, I let her touch it as much as she wanted. It's better for her to touch it with curiosity than to be afraid of it. Seizawa Shii touched it for a while, then looked up at me with an, Ah, that's right! expression.</p>
+<p>,Ah, right! I was going to make Ryuta-jji feel good. What should I do now?"</p>
+<p>,Hold it like this and move it up and down."</p>
+<p>,L-like this?"</p>
+<p>When I told Seizawa Shii how to give a handjob, she started stroking my dick with slightly awkward movements.</p>
+<p>But the awkward movements were only temporary. She kept moving her hand while looking at my face to gauge my reaction.</p>
+<p>She started moving rhythmically, checking the parts where my reaction was good. At some point, she was toying with my dick, sometimes applying pressure and sometimes releasing it. As expected of a famous fixer, her hand sensitivity seemed extraordinary. Her physical abilities were good, and these sensory aspects seemed decent too.</p>
+<p>,Keuh...!"</p>
+<p>,Here? Do you like it here? Ufufu☆ Ryuta-jji's dick twitching is super dangerous♥"</p>
+<p>When I started moaning, she made her usual gyaru smile and shook my dick hard enough to make a chap chap sound, asking if I liked it here. She seemed to be enjoying the fact that I was feeling pleasure from her every touch.</p>
+<p>,Kyaa, what's this coming out of Ryuta-jji's dick hole?"</p>
+<p>Seizawa Shii screamed in surprise as the Cowper's fluid oozed out due to the stimulation. Then, she took a bit of the Cowper's fluid with her finger and rubbed it.</p>
+<p>,Didn't you learn about it in sex education? That's Cowper's fluid."</p>
+<p>,Ah, is that it? It's slippery and feels weird~☆"</p>
+<p>Seizawa Shii was delighted when I explained it to her. She had a proud expression, as if she had succeeded in something, as a direct phenomenon showing my arousal occurred. She seemed happy that she had given me pleasure herself.</p>
+<p>,Now, suck it with your mouth instead of your hand."</p>
+<p>,W-with my mouth? Isn't it too big? Ryuta-jji's dick is bigger than uncut futomaki (太巻き: Japanese-style kimbap)?"</p>
+<p>It's the first time I've heard someone call a dick futomaki. Actually, my dick is quite big to put in the mouth for the first time having sex. Should I receive fellatio next time...?</p>
+<p>,Then let's do the mouth thing next time."</p>
+<p>,No, it's not that I don't want to do it.... Ahem....!"</p>
+<p>When I said that fellatio was okay, Seizawa Shii, perhaps curious herself, first bit the glans. And since she had already learned how to give a handjob from me, she started moving her head up and down, applying what she learned.</p>
+<p>Seizawa Shii wasn't bad at studying either, but she was an honor student who could apply what she learned in sex without being taught. But no matter how good a student is, they will make basic mistakes if they don't learn. I urgently stopped Seizawa Shii.</p>
+<p>,W-wait a minute! You have to make sure your teeth don't touch...!"</p>
+<p>Seizawa Shii stopped shaking her head when I urgently said that because her canines were touching as she moved up and down. Actually, my resistance stat is so high that my dick wouldn't get hurt unless Seizawa Shii tried to bite it on purpose, but since my dick is so sensitive, it would be quite painful if her teeth touched it during fellatio.</p>
+<p>If she had done it a little more, I would have lost my erection from the pain. That would have been embarrassing. Seizawa Shii would definitely ask, Ryuta-jji, why did your dick get smaller and softer?</p>
+<p>,Aahssuh? Ianay."</p>
+<p>Seizawa Shii looked up at me with my dick in her mouth. She probably said, Did it hurt? Sorry.</p>
+<p>,It's okay. I should have told you in advance."</p>
+<p>When I said it was okay, she moved her head back and forth again with my dick in her mouth. This time, she moved her head carefully so that her teeth wouldn't touch. As expected, it was her first time, so saliva was dripping from her mouth, soaking her breasts and bra.</p>
+<p>Still, it felt pretty good because, apart from the awkward movements, she moved her tongue around in my mouth as if tasting it, and I could feel that ticklish pleasure.</p>
+<p>,That's enough."</p>
+<p>I stroked Seizawa Shii's hair and enjoyed her mouth for a while before lifting her up.</p>
+<p>It felt good, but I couldn't reach climax in a short time with just this. And I couldn't just keep asking Seizawa Shii for fellatio indefinitely.</p>
+<p>,Phew...! My jaw hurts, Ryuta-jji."</p>
+<p>,It's because you're not used to it yet."</p>
+<p>,Did it feel good?"</p>
+<p>,Yeah, it felt good, Shii."</p>
+<p>When I stroked Seizawa Shii's hair and praised her, she smiled happily, asking, Really? Seeing her happy with such an innocent expression, it was more arousing because it contrasted with the lewd appearance of her sucking my dick just now.</p>
+<p>,T-then, are we going to do that, that.... now?"</p>
+<p>When my eyes changed, Seizawa Shii swallowed hard and asked. Without answering, I took a step closer to Seizawa Shii.</p>
+<p>As I approached, Seizawa Shii tried to step back according to her virgin instincts, but she smiled at me and instead came closer to me.</p>
+<p>I slowly touched Seizawa Shii's shoulders and started taking off Seizawa Shii's underwear. First, I took off Seizawa Shii's bra, which was full of saliva from the fellatio, and then I took off her panties, which were already soaked and no longer functioning as underwear, leaving Seizawa Shii naked without a single thread on her body.</p>
+<p>I took a step back and looked at Seizawa Shii's naked body. Seizawa Shii slightly covered her Pussy with her arms, but subtly gathered her breasts to emphasize them, smiling and looking at me.</p>
+<p>Looking at it like this, it's another mystery. She's strong enough to crush a light truck, but she's not muscular. Looking at it like this, she just has a somewhat firm body. I wonder what the source of her strength is.</p>
+<p>Looking at her pose, she seemed quite confident in her breasts. Of course, as Seizawa Shii was confident, they were quite beautiful breasts. Not too big, just the right size, large white breasts. They were the kind of breasts that someone with no patience would touch without realizing it.</p>
+<p>,Haaang...! Ryuta-jjii~ I'll be surprised if you touch me suddenly♥"</p>
+<p>That impatient person was me. Seizawa Shii's elastic and bouncy breasts gave a different feeling than touching them over her bra. Perhaps because it was bare skin, the sense of closeness was better, making the feeling of touching them even better?</p>
+<p>,Shii's breasts are so pretty that I touched them without realizing it."</p>
+<p>,Ufufu, were they so pretty that you couldn't resist?"</p>
+<p>Seizawa Shii laughed out loud, happy with my compliment about her breasts. I nodded, fondling her breasts once again.</p>
+<p>,Yeah."</p>
+<p>,Heuh, Ryuta-jji, you're a pervert."</p>
+<p>,All men are perverts."</p>
+<p>,I-is that so? Haa...♥"</p>
+<p>It was a playful conversation, but as I thought that sex was approaching soon, Seizawa Shii's breathing became increasingly sticky, and my dick was dripping Cowper's fluid and its rigidity was increasing.</p>
+<p>I took a step closer and hugged Seizawa Shii, kissing her. When my fully erect dick pressed firmly against Seizawa Shii's stomach, I could feel Seizawa Shii flinching with a surprised moan.</p>
+<p>Chup, chubub, tsuup.... smooch....!</p>
+<p>,Haa... haa, haa.... Ryuta-jji's dick.... is big and hot."</p>
+<p>Seizawa Shii, who was breathing heavily after parting her lips, evaluated my dick, which had been pressing firmly against her stomach. Since her excitement level had already reached its peak, it was bound to be hot.</p>
+<p>My dick is already hotter than others, but Seizawa Shii, who is having her first experience, doesn't know that, so she's surprised with an expression that says, How can it be this hot?</p>
+<p>,Ryuta-jjii...."</p>
+<p>Seizawa Shii looked at me with an expression that said she didn't know what to do. She's a virgin, but she probably knows everything. She knows that in order to get rid of this anxious feeling, she needs to accept my dick into herself.</p>
+<p>,Then now...."</p>
+<p>Seizawa Shii nodded at my gaze, which asked, Shall we do it?</p>
+<p>,Put your hands over there and bend your back."</p>
+<p>If possible, I wanted her first experience to be missionary style, but this wasn't a bedroom with a place to lie down. It was just a coin laundry with only a chair.</p>
+<p>If I wasn't going to do deulbak from the first experience, then the only answer here was doggy style. Of course, there's also standing position, but that's a bit uncomfortable because the heights don't match... after all, the only thing left is doggy style.</p>
+<p>__________</p>
+<p>Seizawa Shii Frontal Nude B-Cut!</p>
+<p>A picture where everything is appropriately covered ㅎㅎ</p>
+<p>Why is there one more hand...?</p>

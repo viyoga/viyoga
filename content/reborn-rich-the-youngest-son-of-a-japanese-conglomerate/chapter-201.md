@@ -5,71 +5,92 @@ weight = 201
 chapter = 201
 +++
 
-<p>While Pyongyang was quite hot, Kraskino had perfect weather, right between spring and summer. It must be freezing in winter, but right now, it was just right. A quick search showed the average temperature in July was around 24 degrees Celsius, so it was slightly warm.</p>
-<p>Getting off the train, I booked a room in a hotel near the station. Even though it was called a hotel, it felt like a run-down 90s Russian building. Well, considering the city, I guess it couldn't be helped. It's not a major city, after all.</p>
-<p>,First, I need to find the location of the human trafficker....,</p>
-<p>Since ,Mega Corp's Youngest Son, was a 15-rated game, the protagonist obviously couldn't use a slave market. I only found out about the human trafficker in this city while looking at Alexandra Smirnova's character settings, so I only knew the city name and not the exact location.</p>
-<p>,Is the only way to go through the Black Market app after all?,</p>
-<p>Of course, since the Black Market's name literally means 'Dark Merchant' (暗商), it has to be connected to human trafficking. I might be able to get information from the Black Market app, but if I rescued Alexandra Smirnova, it would be easy for them to trace it back to me.</p>
-<p>Then I would automatically become an enemy of the Black Market, which would be a huge problem. I wouldn't be able to get items, and I'd have to deal with attacks from the Black Market, which has tremendous influence in the underworld. That would be a significant issue.</p>
-<p>,Ah!,</p>
-<p>Right, I just don't have to rescue her. Why did I even think about rescuing her? I have plenty of points; I can just buy her....</p>
-<p>I switched my plan from rescue to purchase and opened the Black Market app. I could get a lot of information from the Plus tier, but after selling the BS Group's AI file, I became a Diamond tier, the highest level, which added several features.</p>
-<p>One of them was the ability to ask Eve questions, like ChatGPT. It was expensive at 10,000 points per question, but Eve, the Black Market's AI, knew a lot about the underworld, so it was quite useful.</p>
-<p>Of course, this feature wasn't omnipotent and only pertained to the information the Black Market had gathered, so it couldn't know everything in the world. And EVE itself didn't disclose sensitive information, so it wasn't used much later on.</p>
-<p>I opened the Black Market app and tapped on the chat with Eve. I wanted to try out the new feature, even if it was a bit expensive.</p>
-<p>EVE: Ryuta-nim, hello! You're in Kraskino today? Are you enjoying your trip?</p>
-<p>Eve knew my location right away, probably because I agreed to location information when I installed the app. I shouldn't antagonize the Black Market until I'm firmly established. They know my location and everything.</p>
-<p>Ryuta: Yes. It's fun to see a different atmosphere after being in Pyongyang.</p>
-<p>EVE: I see! Since you're using the chat feature, you must be here to provide or purchase information.</p>
-<p>Oh, right. The chat feature with Eve also had a function to earn points by providing information. I remembered it after seeing Eve's message because it was a feature I barely used in the game.</p>
-<p>Ryuta: I want to purchase information.</p>
-<p>EVE: Ryuta-nim, feel free to ask anything you're curious about. I'll tell you as much as I know. Since this is your first time, your first question is free! But please be careful, as each piece of information will cost a minimum of 10,000 points from now on~!</p>
-<p>Oh! The first one is free? That didn't happen in the game. And seeing that the minimum for questions is 10,000 points, important information must be more expensive. In the game, it was just a flat 10,000 points, so it felt a bit different. Then, instead of asking about Kraskino, I want to ask about something that seems more expensive while it's free....</p>
-<p>Ryuta: Taira Foods and Kurotsukido are in conflict in Akita Prefecture. Why is Kurotsukido targeting Akita Prefecture?</p>
-<p>I didn't understand why Kurotsukido was constantly fighting with the Taira Group, which was vying for the top spot in Japan, so I asked Eve if there was something behind these attacks or what their purpose was.</p>
-<p>EVE: Kurotsukido decided to launch a full-scale invasion after hearing from someone that mithril was buried on the site of Taira Foods' 8th factory in Akita Prefecture. The value of mithril isn't small, so I don't think they'll give up easily!</p>
-<p>Ah, Kurotsukido knew about the existence of mithril. I also knew that mithril was buried in Akita Prefecture, but I didn't know the exact location. This question was quite helpful. Should I ask Nagumo Sian for that 8th factory site later?</p>
-<p>Ryuta: That was very useful information. Then, I'm curious about the next piece of information....</p>
-<p>EVE: Before you ask! If you want to know about Kraskino, it would be cheaper to ask an informant registered on the Black Market app than to use 10,000 points to ask me!</p>
-<p>Of course, I knew it was cheaper to use local informants, but I also wanted to try out the new chat feature with Eve. I satisfied my curiosity about the new feature with the free information I just received, so it seemed better to follow Eve's advice.</p>
-<p>Ryuta: I'll find an informant as Eve advised. Thank you for the information today!</p>
-<p>EVE: I'm glad the information I gave was helpful. Then, I'll end the chat now!</p>
-<p>-Chat feature has ended.</p>
-<p>After ending the chat with Eve, I immediately made an appointment to meet with an informant in Kraskino. I was supposed to meet them in front of the Kraskino station in five minutes, so I leisurely headed out.</p>
-<p>The hotel was close to the station, so even if I walked slowly, it would take only three minutes to arrive. I bought a drink at the convenience store in front of the hotel and went to the station.</p>
-<p>,Are you the one who requested the informant?,</p>
-<p>The informant was a Russian-Korean mixed-race man who spoke awkward Korean with a slight Russian accent. Since there was no one else in front of Kraskino station besides me, the informant seemed to recognize me right away.</p>
-<p>,Yes, I have a few questions to ask.,</p>
-<p>,I'll take questions. It's 50 points per question.,</p>
-<p>,I want to know the location of the human trafficker.,</p>
-<p>,Ah, it's 70 points including the guide. Okay?,</p>
-<p>Even if they told me where it was, I would have to wander around in an unfamiliar city, so I nodded at the man's words.</p>
-<p>,Follow me.,</p>
-<p>The man led the way, and I followed behind him. We gradually moved away from the city center. The human trafficking location was, as expected, in a shady back alley.</p>
-<p>Entering the building, it looked like an office. Russians and Russian-Koreans stood up and greeted me with looks that said, "Who the hell is this bastard?" I wasn't going to be intimidated by mere thugs from this backwater town, so we glared at each other and stood our ground.</p>
-<p>,What are you doing? He's a guest.,</p>
-<p>At the words of the informant who guided me, the burly men finally sat down. After I paid the informant 70 points, a chubby, slightly dark-skinned Korean man came out from what looked like the boss's office in the innermost part and greeted me. His appearance was incredibly fitting for a slave trader.</p>
-<p>,Oh~! Welcome, guest. I apologize if you were offended. We've had some minor disagreements with the guys in the next neighborhood lately.,</p>
-<p>,It's okay.,</p>
-<p>,I'm glad you're okay! May I ask what kind of 'merchandise' you're looking for?,</p>
-<p>What an incredibly slick guy.</p>
-<p>,I came here because I want to buy those with unique abilities. I heard rumors and came looking.,</p>
-<p>,Ah, we have a few. Most of them have ambiguous abilities, but there are occasionally people who look for those with such abilities.,</p>
-<p>Wasn't Alexandra the only one with abilities? Maybe everyone here with abilities was sold to the Jeil Group, and only Alexandra survived.</p>
-<p>,Follow me. Since Young-cheol said you're a member of the Black Market, we'll skip the separate procedures and guide you right away.,</p>
-<p>Following the slave trader's lead, I followed him into the boss's office and entered a side door in the corner. After passing through the side door, there were two more doors. The slave trader opened the right door.</p>
-<p>,Watch your head~!,</p>
-<p>Inside the right door was a staircase leading to a basement with a low ceiling, so I had to bend over to go down.</p>
-<p>,This side has the general merchandise. Most of them are people who were dragged here because of debt.,</p>
-<p>Several people sat in a small, shabby room in the basement with iron bars, their eyes vacant. The slave trader said many were dragged here because of debt, but there must be people who were kidnapped as well. I expected this scene, but it was quite unpleasant. I don't know if it's because of sympathy or just the morality I had before the possession, but I couldn't help but feel uncomfortable.</p>
-<p>But I can't cause a ruckus after coming all this way. I abandoned my sympathy and followed the slave trader with indifferent eyes. If I keep feeling this way, I can just liberate the people here later. Right now, I need to think about the purpose of my visit.</p>
-<p>The slave trader went down another level. It seemed like those with abilities were in a more secure place.</p>
-<p>,This is where we keep our troublemakers. You probably came here after hearing rumors about this one....,</p>
-<p>The slave trader said to me as he opened the door to the first room. As I expected, Alexandra Smirnova was standing in the first room. She was wearing a loose, white short-sleeved shirt that came down to her thighs, like a patient gown, and had beige hair. Her eyes were yellow, and she looked much smaller and younger than I remembered. Was it because she wasn't getting enough nutrition? Alexandra Smirnova quietly looked at me and the slave trader.</p>
-<p>,This kid is probably the 'electric eel' you heard rumors about. She's quite pretty, so she's been sold several times, but she always gets returned. She can't be used sexually because electricity flows through her body. Since she's been returned several times, I'll give her to you for 8,000 points.,</p>
-<p>The slave trader was surprisingly honest about Alexandra Smirnova's flaws(?). 8,000 points.... Roughly converted, that's about ten million won. It's amazing that I can buy the infamous mid-boss of ,Mega Corp's Youngest Son, for only ten million won....</p>
-<p>,I'm not just buying one, so give me a bit more of a discount.,</p>
-<p>I demanded a discount because I felt like I'd be taken advantage of if I didn't. I had a lot of money, but I didn't want to be a pushover.</p>
-<p>,Hmm, this already includes a discount.... Okay! Let's do this. Let's go through everything first, and I'll give you a percentage discount on the total amount.,</p>
-<p>Is he saying the discount rate will vary depending on how much I buy? I was planning to buy everything if there were many with decent abilities, so I wasn't worried about the discount rate.</p>
+<p>I pressed the bell next to the main gate, and two men who looked like guards came out. Of course, they were startled to see Konoe Akina. It was only natural that they would be surprised, since the girl who was to be the next head of the Konoe family, who had gone missing on a trip a year ago, had suddenly returned.</p>
+<p>"A, Agassi!"</p>
+<p>"Please call my mother. Not my uncle, my mother."</p>
+<p>"A, understood!"</p>
+<p>Konoe Akina smiled at me as she watched the two of them rush off somewhere.</p>
+<p>"Fortunately, they're people who know me. They've been here since my father's time, so they'll listen to me."</p>
+<p>Certainly, if it were a guard who didn't know Konoe Akina's face, there would have been a lot of arguing. Naturally, not many people would let in a woman they didn't know just because she said she was the daughter of this family. In that respect, it was fortunate as Konoe Akina said.</p>
+<p>"But how are you going to find evidence that Sawayanagi Sinya did it?"</p>
+<p>Circumstantially, it was certain that Sawayanagi Sinya had done it, but even if we dealt with Sawayanagi Sinya, we needed evidence first. That way, she could rightfully reclaim her position as head of the family.</p>
+<p>"I've asked a few people for help, but I don't know."</p>
+<p>"Then shall I recommend two people who could help?"</p>
+<p>"I'd appreciate it if you would."</p>
+<p>I recommended two people who had the ability to investigate Konoe Akina's kidnapping and the sudden death of Konoe Akina's father, Konoe Kiyoto. I recommended Wano Haruto, whom I had met on Chohten Island, and Sawayanagi Sinya of Seryu Military Company.</p>
+<p>With Wano Haruto's impressive detective skills and Sawayanagi Sinya's combination of martial prowess and net-diving abilities, they should be able to uncover the truth. Sawayanagi Sinya has the tenacious investigative skills to find the Black Tech's secret laboratory, so Wano Haruto can deduce the truth from the information Sawayanagi Sinya finds.</p>
+<p>After I gave Konoe Akina the contact information of the recommendees who would investigate the evidence, I heard a rapid tatak tatak sound of running, and a beautiful woman in a Kimono resembling Konoe Akina rushed over with the guards.</p>
+<p>"A.... A, Akina!!!"</p>
+<p>"Mother!"</p>
+<p>The two mothers and daughters shed tears and hugged each other tightly. In particular, Konoe Akina's mother, Konoe Minako, cried with a loud wail that was almost a sob.</p>
+<p>I felt a lump in my throat for no reason. I wiped under my nose with my index finger and waited for the moment of the mother-daughter reunion.</p>
+<p>"What happened, where have you been all this time?"</p>
+<p>Whether she had calmed down or not, Konoe Minako asked what situation Konoe Akina, who had been missing, had gone through. Konoe Akina told her everything from being kidnapped during summer vacation last year to being rescued by me. Only then did Konoe Minako look at me.</p>
+<p>"Ah, so you saved our Akina. Thank you, benefactor! I really thought I should give up now.... Huk...."</p>
+<p>I simply said that I had done what was right to Konoe Minako, who was constantly bowing while shedding tears. Well, from a parent's point of view, I would be more grateful than any other benefactor. Because I am the one who rescued her missing daughter.</p>
+<p>"Ahem! What is all this commotion?"</p>
+<p>While I was receiving thanks from Konoe Minako, a middle-aged man wearing a dignified men's Kimono came from inside the mansion, asking in a loud voice. Bringing several people along, he seemed to be quite fond of showing off.</p>
+<p>Despite it being summer, the coat worn by the middle-aged man had the Konoe family crest, the peony crest, embroidered on both sides of the chest. It was as if he was claiming, "I am the representative of the Konoe family."</p>
+<p>Seeing that his eyes were slightly similar to Konoe Akina's, this person must be Konoe Sawayanagi Sinya, the current temporary head of the Konoe family.</p>
+<p>"Ah, no! Isn't that Akina?"</p>
+<p>Konoe Sawayanagi Sinya made a distorted expression for about 0.5 seconds before quickly putting on a welcoming expression. The fact that he changed his expression so quickly made it clear that he was involved in Konoe Akina's kidnapping, as we had expected.</p>
+<p>"Yes, Uncle-nim. How have you been?"</p>
+<p>Konoe Akina smiled and greeted Konoe Sawayanagi Sinya, pretending to be calm. It was as if she was greeting him after going on a light trip somewhere. Konoe Sawayanagi Sinya, who received the greeting in a daze, soon looked at me and the bodyguards and asked Konoe Akina.</p>
+<p>"Who are these people?"</p>
+<p>"Ah, this person is the one who saved me, and these three are my bodyguards."</p>
+<p>As Konoe Akina introduced us, I stepped forward and bowed slightly to Konoe Sawayanagi Sinya.</p>
+<p>"Greetings, Konoe Temporary Head. My name is Taira Ryuta."</p>
+<p>"Taira?!"</p>
+<p>As expected, he was startled to hear my last name. After all, even the prestigious Konoe family could not ignore the name of Taira.</p>
+<p>"Akina. Can, can you explain what happened?"</p>
+<p>"I was kidnapped and trapped, but Ryuta-nim saved me."</p>
+<p>"Ah ah...! Thank you. I don't know how worried I was when my Akina went missing."</p>
+<p>Konoe Sawayanagi Sinya, after hearing Konoe Akina's explanation, took my hand and greeted me. The distorted expression from before was not a worried expression at all.... I smiled and answered without showing it.</p>
+<p>"It's nothing. I'm thinking of it as making a new friend. My grandfather was very happy when I told him I made a friend."</p>
+<p>"Ex, excuse me, but what is your grandfather's name?"</p>
+<p>"Ah, I thought you knew, but I'm sorry. My grandfather's name is Taira Danjo."</p>
+<p>"!"</p>
+<p>Konoe Sawayanagi Sinya, upon hearing the name of Taira Danjo, one of Japan's two leading figures along with Minamoto Ushin, froze for a moment. He must have thought it was a collateral line since he had never heard of the name before.</p>
+<p>"I've brought Akina-ssi home, so I should be going now. Akina-ssi, let's see each other sometime next week."</p>
+<p>"Yes, Ryuta-nim. Definitely!"</p>
+<p>At this point, Konoe Sawayanagi Sinya won't be able to harm Konoe Akina recklessly. Konoe Akina and Konoe Minako came to me and said goodbye. In particular, Konoe Minako kept bowing towards me and said that she would continue to repay me. I understand her gratitude, but Konoe Akina will be the one to repay me.</p>
+<p>"Goodbye...."</p>
+<p>"I'll contact you, Ryuta-nim!"</p>
+<p>"Thank you, benefactor!"</p>
+<p>I left, continuing to leave the bodyguards with Konoe Akina and being seen off by the three of them. I've done as much as I can, so now everything else is up to Konoe Akina. I went to the parking lot and got in my car.</p>
+<p>###</p>
+<p>After returning to the Human Resources Development Center, I took a shower and went to the Director's office to meet Yukiko. Before meeting Yukiko, I greeted Yukiko's secretary, Ikehara Koyuki, in the secretary's office, which I had to go through to get to the Director's office, and gave her a gift that I had bought roughly at Haneda Airport.</p>
+<p>"Is it Tokyo Banana?"</p>
+<p>"I'm sorry, I had to return home suddenly due to work, so I couldn't prepare a special gift."</p>
+<p>"No, I like Tokyo Banana. Are you going to see Director-nim?"</p>
+<p>"Yes."</p>
+<p>Ikehara Koyuki, who seemed to really like Tokyo Banana, happily received it and opened the door to the Director's office. Yukiko seemed very busy, typing quickly with a computer in front of her.</p>
+<p>"Mother."</p>
+<p>Since the door was still closing, I called her "Mother" so that Ikehara Koyuki wouldn't hear me if I called her "Yukiko-ssi" as usual.</p>
+<p>"Ah, you're here?"</p>
+<p>Yukino raised her head and looked at me. She seemed very busy, as she was still typing without stopping.</p>
+<p>Well, she's pulling forward the work she has to do later in order to make time for the trip with me, so she must be very busy.</p>
+<p>Yukiko looked at my face and body while typing.</p>
+<p>"It doesn't look like you're hurt anywhere. I was so worried."</p>
+<p>"I told you, I was in Pyongyang at the time."</p>
+<p>Yukiko was the first to contact me when she heard the news that a building had collapsed in Seoul. She was very worried and asked if I was hurt, so I lied and said I was in Pyongyang. It wasn't a complete lie, because I was on the train to Pyongyang at the time, so it wasn't 100 percent a lie.</p>
+<p>"Are you busy?"</p>
+<p>"Yeah, I think I'll be busy until tomorrow. I have a lot more to do because of the trip the day after tomorrow...."</p>
+<p>It was exactly as I expected.</p>
+<p>Yukiko stopped typing and took a sip of the iced coffee next to her.</p>
+<p>"If you're busy, shall I help you prepare for the trip?"</p>
+<p>"I said I'd do the trip preparations this time. You just come and relax...."</p>
+<p>Relax? Next, it'll be about sex, of course. Her face is so red, maybe because it's been a while.</p>
+<p>"Relax?"</p>
+<p>"Ah, never mind.... Come here and recharge me♥"</p>
+<p>I was mesmerized by Yukiko, who closed her eyes and cutely pouted her lips, and approached her to kiss her. How can she be so cute? I was worried about who would take her to live with her if she had such a cute appearance and behavior that no one could ever think of as a widow. Of course, I'm the one living with her.</p>
+<p>We shared a brief bird kiss and only played with our tongues slightly. She seemed so busy that if we did any more, it would definitely lead to sex, and I didn't know when her secretary, Ikehara Koyuki, would barge in, so I stopped in the middle.</p>
+<p>A sticky silver thread stretched and broke between our lips, and Yukiko showed a regretful look, saying, "Ah...!"</p>
+<p>"I want to do more too, but Yukiko-ssi is busy, and I have to stop by the Edogawa main house and wash the car, so let's do the rest on the trip."</p>
+<p>"U,ung. Ryuta, you have to save it up well, okay?"</p>
+<p>Yukiko was now able to say quite bold things like "save it up."</p>
+<p>"I have more than enough even if I don't save it up?"</p>
+<p>"Hohoho! I understand. Have a good trip."</p>
+<p>"Don't overdo it."</p>
+<p>I left the Director's office. I could hear the sound of the keyboard clicking until I closed the door, but the sound disappeared when I closed the door. The soundproofing is surprisingly good?</p>
+<p>When I left the Director's office and went to the secretary's office to leave, Ikehara Koyuki was eating Tokyo Banana while saying, "Omnyomnyom." She must really like it. I'm glad.</p>

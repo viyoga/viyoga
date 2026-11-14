@@ -5,75 +5,97 @@ weight = 809
 chapter = 809
 +++
 
-<p>"!"</p>
-<p>"Shiojima!!"</p>
-<p>"Atsushi!"</p>
-<p>"Th-then... Tomohiko is really the culprit...?"</p>
-<p>Shiojima Atsushi's Corpse was brazenly discarded right in front of the elevator door on the 4th floor corridor. In fact, before the culprit was revealed through Line, I personally thought Shiojima Atsushi was the culprit.</p>
-<p>He had an ordinary appearance that didn't attract attention, and he also had a body that he had trained alone, so I thought he was suitable to be a serial killer.</p>
-<p>But contrary to my suspicions, Shiojima Atsushi had become a Corpse, proving his innocence.</p>
-<p>"Perhaps they left him here because there wasn't enough time?"</p>
-<p>Takakusaki Athena said, looking at the Corpse. The remaining university students were in a panic because another one of their friends had died, so the deliberation had to be between the two of us.</p>
-<p>Certainly, the time for the Murder was short. After attacking me in the sauna and fleeing, I went to the women's bath, took a quick Shower, and changed Clothes, so there would only have been about 5 to 10 minutes of leisure.</p>
-<p>"That's right. There would have been only 5, at most 10 minutes of time...."</p>
-<p>Once I checked the Corpse, it was indeed stabbed in the neck with a Sword, just like the Corpses attacked by Kotowazuki.</p>
-<p>"Now that I think about it, it seems there are other victims besides those stabbed in the neck with a Sword. Ms. Nakamura, who died today, was affected by Poison, wasn't she?"</p>
-<p>Takakusaki Athena made a rather sharp point. That's certainly true. If Nakamura Shunna wasn't Kotowazuki's first case of poisoning, then there would be even more victims affected by Kotowazuki.</p>
-<p>"That's for the police to investigate.... First, let's go around and check if there are any open guest rooms."</p>
-<p>We quickly went around, turning the door Handles of the guest rooms. Come to think of it, we formed the wrong Group. Saionji Diana's cyber implants have a hacking tool, so she can open doors like those in this resort, but we're investigating the 1st floor. I'll have to ask her to check separately later.</p>
-<p>We divided in half, centered around the elevator, to check if the doors were open, so the speed was quite fast. Indeed, all the doors were locked.</p>
-<p>And when we went up to the 5th floor, there were no open places there either. Suzuki Soki, now the only man left among the university students, seemed a little tense, perhaps fearing Kotowazuki who might appear.</p>
-<p>The remaining female students also had expressions mixed with sadness and fear. Especially Hiragami Noyu, Itsu Tomohiko's childhood friend, seemed to have been greatly shocked, her face pale.</p>
-<p>"Everything is locked here too."</p>
-<p>The 5th floor was also all locked. We took the elevator again and headed back to the 1st floor.</p>
-<p>Even though we were a Group with not much to investigate, we still had to search two floors, so everyone seemed to be in the restaurant. And we also wasted some time looking at Shiojima Atsushi's Corpse.</p>
-<p>"Is everyone here?"</p>
-<p>Everyone was sitting at the dining table that had been joined together, so I knew they were all here, but I just said it as a greeting, and we also sat down. For some reason, the middle part was empty, so we sat there.</p>
-<p>"Did you find anything?"</p>
-<p>"No. We didn't find anything."</p>
-<p>At my Question, Shido Tsubaki shook her Head. And the others also shook their Heads, as if they hadn't found anything on the other floors.</p>
-<p>"We found Shiojima Atsushi-ssi's Corpse. It was right there when we got off the elevator on the 4th floor."</p>
-<p>"What about Itsu Tomohiko-ssi?"</p>
-<p>Since no one else in our search party had a close relationship with Shiojima Atsushi, the reaction was, "Ah, I see." This was evident from them immediately asking about Itsu Tomohiko, the culprit.</p>
-<p>"All the guest rooms were locked, so I couldn't check them, and he wasn't visible in the corridor.... Saionji, I'm sorry, but could you check the locked guest rooms?"</p>
-<p>"No problem. Shall I go now?"</p>
-<p>At my Words, Saionji Diana rose from her Seat and asked, heading towards the restaurant's Entrance. I didn't mean for her to go immediately, though....</p>
-<p>Cheolkkeok.</p>
-<p>Saionji Diana didn't go Outside, but locked the restaurant door. Then, standing between the restaurant and the window, she pulled out a Gun.</p>
-<p>Not only Saionji Diana, but Otagi Yuka also rose from her Seat and stood at the door in front of the Kitchen, which could be called the restaurant's back door, as if to prevent anyone from escaping.</p>
-<p>Other Students with excellent Combat power were also sitting, but it was as if they were preparing for battle.</p>
-<p>Sakagami Rena was smiling faintly, but she was twirling a Surigeom, which she had pulled out at some unknown moment, between her fingers, and Seizawa Shii's hand, resting on the luxurious dining table, was causing it to crack with a ppajik ppajik sound.</p>
-<p>Konoe Akina's eyes were glowing as if she had activated her Maan, and Naruse Shiyo's pupils were splitting vertically, preparing for Dragon transformation.</p>
-<p>Kujo Kina was making udeudeuk sounds with her fist joints, and Urabe Konoka's pupils became cross-shaped like Lizhael's, as if she was drawing out Lizhael's power.</p>
-<p>Looking at them like this, their Combat power was immense. It sent shivers down my spine. Of course, this battle preparation wasn't for fighting me, but I needed to find out what was going on.</p>
-<p>"Could you explain what's going on?"</p>
-<p>Since they were all students I trusted, I asked what was happening.</p>
-<p>At my Question, Oofuchi Erika rose from her Seat.</p>
-<p>"The reason we're reacting so sensitively is because Itsu Tomohiko isn't the culprit. We blocked the escape routes in case he tried to flee. And we're preparing for battle in case he causes a disturbance."</p>
-<p>At Oofuchi Erika's Words, Itsu Tomohiko's childhood friend, Hiragami Noyu, her eyes lit up. "Tomohiko isn't the culprit after all, is he?" she mumbled.</p>
-<p>These kids.... They bickered when they were together, but if Itsu Tomohiko isn't the culprit as Oofuchi Erika said, or if he's alive, wouldn't it be good for them to date each other?</p>
-<p>"Then?"</p>
-<p>"As Teacher-nim would also know, we asked a lot about the personal details of the university students at the hot spring. So we know quite a bit about each individual. Itsu Tomohiko-ssi is someone who came up from the Countryside. I heard his Family is neither poor nor rich, but an ordinary middle-class. But if you look at this part of the chat...!"</p>
-<p>After Oofuchi Erika talked about Itsu Tomohiko being a man from a middle-class family in the Countryside, she showed an enlarged Line chat.</p>
-<p>Itsu Tomohiko: What's with that.... Alright, I'm in a good Mood! Since I've helped this far, I'll help you to the end. I'll even prepare all the Alcohol and Drinks, and I'll tell them you prepared it. How's that?</p>
-<p>Tanaka Norio: Are you sure? Won't it be a burden?</p>
-<p>Itsu Tomohiko: That much isn't a burden. You know me well, don't you?</p>
-<p>Indeed, speaking as if he were rich didn't suit Itsu Tomohiko, who was middle-class. We all looked at Suzuki Soki, the last man remaining among the university students. As I recalled, his Parents operated a Factory of a certain scale.</p>
-<p>Since only Itsu Tomohiko and Suzuki Soki were the remaining men, if Itsu Tomohiko wasn't the culprit, then Suzuki Soki had to be.</p>
-<p>"W-what...! You're saying I'm the culprit because of that? And the chat was with Itsu, not me!"</p>
-<p>"He must have killed Tanaka Norio-ssi and then changed his name in the chat room to Itsu Tomohiko and saved it, which is why it appears as Itsu Tomohiko-ssi. I inadvertently pressed the back button and checked the chat, and Suzuki Soki-ssi wasn't there. And there's a simple way to confirm it."</p>
-<p>Oofuchi Erika tapped on the profile of the ID labeled Itsu Tomohiko. The profile Photo was a default one, and she opened her mouth, showing it to the female college students.</p>
-<p>"Is this profile the same as Itsu Tomohiko-ssi's current profile?"</p>
-<p>"No. Tomohiko's current Photo is a mirror selfie...."</p>
-<p>At Oofuchi Erika's Question, Hiragami Noyu immediately replied without even checking the profile Photo. Seeing that she remembered without even checking, perhaps they really should date?</p>
-<p>Uzuka Hikari, the remaining female student who checked belatedly, also nodded her Head, saying, "Oh? That's right!" It certainly seemed that the man who chatted with the deceased Tanaka Norio was not Itsu Tomohiko.</p>
-<p>"And it was suspicious from the start! Clearly, everyone else took Sleeping pills and fell into a deep Sleep, so how did you wake up in the middle and realize Tanaka Norio-ssi had disappeared at Dawn? Didn't you kill Tanaka Norio-ssi at that time?"</p>
-<p>Oh, that's right. When I asked about his alibi, Suzuki Soki clearly said he woke up in the middle of his Sleep, didn't he? To remember even that.... Oofuchi Erika is amazing.</p>
-<p>"Keukkeukkeukkeu...!"</p>
-<p>"T-Tomohiko, where is he?! Answer me, Suzuki!"</p>
-<p>Perhaps because he could no longer hide it, Suzuki Soki began to laugh sinisterly, like a Villain, with an ominous feeling. The female college students had already recoiled with disgusted expressions, but Hiragami Noyu soon screamed, asking where he had put Tomohiko.</p>
-<p>"Huuu..... Alright, let's do this. Just let me go. Then I'll return that guy Itsu safely."</p>
-<p>Because Hiragami Noyu's shout confirmed that he had a Hostage, Suzuki Soki opened his mouth with a sly expression. His expression seemed to say, "If you kill or catch me, Itsu Tomohiko's life will also be gone." I couldn't tell if the words of this serial killer, Kotowazuki, were true or false. His gaze was filled with Madness, making it impossible to know what the Truth was. Whether Itsu Tomohiko was already dead or if he was keeping him alive.</p>
-<p>Oofuchi Erika had brilliantly exposed the culprit, but as a tender-hearted high school girl, she didn't know what to do in this Situation.</p>
-<p>Jjirit jjirit Fist-throwing Alik requested by MidNightSKY-nim~!</p>
-<p>Kkiyoooot!</p>
+<p>"Let's see your Skill. Kirie, draw your Sword."</p>
+<p>To suddenly tell me to draw my Sword.... Is he suggesting a Duel? Considering he's a Master Blacksmith, he was an incredibly muscular Grandfather, and it seems he was indeed part of the Martial Arts Faction.</p>
+<p>"Draw my Sword, Grandfather? Are you telling me to Duel?"</p>
+<p>Kirie also seemed to be thinking the same thing as I was, and she tilted her Head at Ichimonji Harugoro, asking. She seemed puzzled by the sudden, blunt command to draw her Sword.</p>
+<p>"Seeing as you've come to me, it seems you have a Request, but to do so, you must prove your qualifications. That qualification is Martial Arts."</p>
+<p>He's seen right through my thoughts. As a famous Master Swordsmith, it seemed he could see through anyone who came to him with a purpose. I, too, had something I wanted from Ichimonji Harugoro.</p>
+<p>"Shall we have a Duel, then?"</p>
+<p>To be honest, I had never actually fought after mastering the Creation Chaos Style, so I was curious about its power. It was about half a grade higher than Shinkaiyatsude, so it should be stronger, but since my Proficiency was still lower than Shinkaiyatsude, I wasn't sure what its true power would be.</p>
+<p>"Alright. I have no intention of going easy on you just because you're the largest Shareholder."</p>
+<p>Kirie said, drawing her Sword from Agonggan, a Trait I always envied. Agonggan Ability.... It was an Ability I envied every Time I saw it.</p>
+<p>She said she wouldn't go easy on me, but the Iron Sword she drew was a blunted one for Duels, as if she was worried I might get hurt.</p>
+<p>For me, too, it was better to use a practice Sword. It would be a shame if I broke Kirie's real combat Sword while using the Creation Chaos Style, which I wasn't fully accustomed to yet.</p>
+<p>"First, let's go Outside. The entire Blacksmith's workshop might get destroyed."</p>
+<p>"Alright."</p>
+<p>I told Kirie because there was an empty lot in front of the Blacksmith's workshop. There were many precious Swords and forging Equipment inside, and if we made a mess here, it would obviously be a pain to clean up, so I suggested we Duel Outside.</p>
+<p>"Hehehe. I'm looking forward to this.... Shall we see just how skilled the Guy who defeated Kazuma is?"</p>
+<p>As Kirie and I faced each other in the empty lot in front of the Blacksmith's workshop, Ichimonji Harugoro flexed his Muscles, wearing a very expectant Expression.</p>
+<p>Looking at that Expression, he seemed less like a Master and more like a Grandfather who just enjoyed watching others fight.</p>
+<p>Kirie held her Sword horizontally, displaying the blade, taking a defensive Intimate Posture. It seemed she intended to prioritize Defense first, then Counterattack.</p>
+<p>Kirie was a Swordsman who used an Ōdachi (Great Sword), delivering powerful and strong blows over a wide range. While it was a Swordsmanship not suited for Counterattacks, her current Intimate Posture seemed to be a way to keep my Skill in check, the Skill that had killed her Father, Kurayama Kazuma.</p>
+<p>It was a Duel, and I had no intention of going all out to protect Kirie's Pride in her own territory. Isn't she being too cautious?</p>
+<p>"Haap!"</p>
+<p>At first, I simply threw a standard straight punch without any Martial Arts Form. Even if I had abandoned Shinkaiyatsude, the foundation I had trained for over ten years didn't just disappear.</p>
+<p>Huuung!</p>
+<p>It was a fist launched with a sound as if tearing through the Wind. It was a blow without any Martial Arts Form, but it possessed enough Destructive Power to turn an ordinary Person into a bloody mess with a single hit.</p>
+<p>Divine Heaven Sword Form Style - Kirie Style Kenuzu (Sword Vortex).</p>
+<p>Kirie calmly created small Circles around herself with her Ōdachi, attempting to trap my fist and tear it to shreds.</p>
+<p>Ah, it was an Attack that could also serve as Defense. And it was a Technique that could compensate for the Ōdachi Swordsmanship's weakness in Melee Combat, allowing her to grind down an opponent's Attack.</p>
+<p>Of course, if I were to throw my fist, prepared for a wound, I could hit Kirie's Shoulder and incapacitate her, but there was no need to see a lot of Blood in a Duel. I immediately pulled back the fist I had thrust out and switched to Defense.</p>
+<p>Because I wanted to see Kirie's Skill, I wiggled my finger, Provoking her to come closer. Kirie's eyebrows twitched at my Provocation, and she soon brought her Sword down.</p>
+<p>Divine Heaven Sword Form Style - Kirie Style Kenmuchi (Sword Whip).</p>
+<p>Swaaek!</p>
+<p>It was a powerful blow that made the Sword seem to bend like a Whip. As I quickly dodged to the Side, the Ground split vertically with a jjeok sound.</p>
+<p>It was a blunted Sword, yet its power was tremendous. It was a blow befitting an Ōdachi, with great inherent Destructive Power due to its weight and length.</p>
+<p>Because the Ōdachi had such a long reach, once Kirie began her Offensive, I, as a Fist Technique practitioner, couldn't even close the distance.</p>
+<p>If a Fist Technique practitioner and a heavy-long Weapon martial artist had similar Skill, this kind of distance penalty seemed difficult to overcome. In a word, it meant it was difficult to win due to Compatibility/Affinity.</p>
+<p>Of course, that was the case when Skills were similar. When the Skill gap was enough to disregard Compatibility/Affinity, the Story changed. Like with Kirie and me right now.</p>
+<p>Woong...!</p>
+<p>As the sound of a wasp's wings fluttering lingered, a blue-violet Aura gathered in my Hand. I clenched my fist again and threw a straight punch just like before.</p>
+<p>Creation Chaos Style - Star Breaker.</p>
+<p>The blue-violet Aura, resembling the Appearance of space, poured out glittering light Powder as if starlight twinkled within it, and despite being just a straight punch, its Appearance was incredibly beautiful.</p>
+<p>However, even with its beauty, there was a hidden, fatal Destructive Power. Even though it was just a straight punch, the surrounding atmosphere rippled, and a massive Pressure could be felt.</p>
+<p>"Hap!"</p>
+<p>Kirie also seemed to feel the Threat, and she swung her Sword like Crazy, making an Effort to block my blow, but with a kakakang! sound, only her Sword was ground down.</p>
+<p>Huuuuung~!</p>
+<p>When I withdrew my Power and stopped my fist right in front of Kirie's nose, her Head was whipped back by the strong Wind.</p>
+<p>"My Sword is like this, and it seems you held back considerably.... I lost."</p>
+<p>Kirie held up her Sword, which was now half its original length, and declared her Defeat. Perhaps because the Skill gap was so wide, she didn't even show an Expression of regret.</p>
+<p>"Oh my...! I didn't know you were this strong. Indeed, you are skilled enough to kill Kazuma...."</p>
+<p>Ichimonji Harugoro approached Kirie and me with Admiration. Then he carefully examined the Duel Sword, which was now half its original length.</p>
+<p>"I made this Duel Sword too carelessly. Next Time, I'll have to make it sturdier."</p>
+<p>It seemed this muscular Elder was the one who made the Duel Sword. After observing the Mark left on the Sword for a while, Ichimonji Harugoro raised his Head again and looked at me.</p>
+<p>"So, what do you want? A Skillful Person of your Level certainly has the right to ask me for a Request."</p>
+<p>"Ah, there are two Requests, the first is.... My Disciples use Swords. They're not martial arts Disciples, but I'm a School Teacher.... I was going to ask if you could make a few Swords for them."</p>
+<p>I made this Request because I have many Students at St. Francis Girls' academy who use Swords. Unless a Sword has options like indestructibility or durability recovery, it's a Consumable, so the more, the better.</p>
+<p>"That's not difficult. However, I'll need their body measurements and Hand Size, and you'll have to tell me in detail what kind of Sword they want."</p>
+<p>"It's the exam period right now, so it's difficult, but the School isn't too far, so I'll bring the Kids to visit next week. It would be better for the actual Sword users to make the Request themselves."</p>
+<p>Next week, the exams would be over, and it would be free class Time with no lessons, so I thought I'd have plenty of Leisure.</p>
+<p>"Alright, what's the second one?"</p>
+<p>"As you might have expected, it's a Business Proposal."</p>
+<p>"I know you're wealthy enough to invest in Kirie's PMC Business, but doing Business with Swords isn't a good Choice. I have no intention of putting my name on factory-made Swords."</p>
+<p>Ichimonji Harugoro shook his Head at my Proposal. Indeed, putting the name Ichimonji Harugoro on factory-produced Swords was unthinkable for a Master. However, my Proposal was different.</p>
+<p>"I have no intention of mass-producing factory-made Swords. What I want is to turn the Master's Swords into a premium brand. And if we handle the Communication, no pesky merchants will bother the Elderly Person."</p>
+<p>To be honest, the profitability of the Sword Business didn't matter much to me. It was simply that I had more Swordsmen under me, so I needed an exclusive Blacksmith.</p>
+<p>By gifting premium branded Swords, I could raise the Affection Level of the Swordsmen, and also secure Ichimonji Harugoro, a top-tier Blacksmith. It was hitting two birds with one Stone.</p>
+<p>"Other Enterprises have also proposed that much. If you have no other Proposal...."</p>
+<p>"Ah, I own a Mithril mine. I'll provide a certain Amount each month."</p>
+<p>"Where's the contract?"</p>
+<p>His Eyes lit up the moment the Mithril mine was mentioned, proving that good ingredients were always an appealing Proposal to Blacksmiths.</p>
+<p>"First, I'll give you my Business Card. You can proceed with the contract with this company."</p>
+<p>Since I couldn't prepare a contract immediately, I handed Ichimonji Harugoro the Business Card of Jinmija Yeosa, the CEO of Hatake Investment Company.</p>
+<p>"Ohh...! So you're the Owner of the famous Hatake Investment Company these days? I heard you own a Mithril mine with an enormous reserve."</p>
+<p>"Well.... I was just lucky."</p>
+<p>I thought he was just a muscular Elderly Person interested only in Swords, but it seemed he also kept up with economic news. To know about Hatake Investment Company.... Or perhaps he found out after searching for Mithril.</p>
+<p>"That went well."</p>
+<p>As we returned to the Chūōōkamitai Main Building's CEO's Office, Kirie said to me.</p>
+<p>"It went well for you too, didn't it? You use a Sword too. Honestly, rather than profitability, I secured that Grandfather to let my people use good Swords. You wanted to try a Mithril Sword too, didn't you?"</p>
+<p>At my Words, Kirie's Eyes widened. It seemed she hadn't expected me to take care of her as well.</p>
+<p>"What are you going to do now?"</p>
+<p>"Ah, there's a Place I want to show you."</p>
+<p>Are we going to see another Place, not the CEO's Office? I thought, following Kirie, and it was Kirie's Home, one floor above the CEO's Office.</p>
+<p>It seemed she used one floor of the Chūōōkamitai Main Building as her Home.</p>
+<p>Kirie, having entered her Home, instantly stripped off her Clothes. Now In Underwear, Kirie looked at me and opened her Mouth.</p>
+<p>"What are you doing? Hurry and take off your Clothes."</p>
+<p>Requested by Chijeuppang-nim: Rabbit Pajamas Alik, Bunny Girl Alik~!</p>
+<p>Bunny Girl Alik~!</p>
+<p>Requested by Hwanbuljeoldaebulga-nim: Tied Shirt + Cleavage + Suit Skirt + Armpit + Black Stockings Home Economics Teacher~!</p>
+<p>The tied Shirt didn't come out well, haha</p>
+<p>Requested by seungj050-nim: Kirie Footjob Intimate Posture, Spanking.</p>
+<p>Footjob</p>
+<p>Spanking~!</p>
+<p>Requested by Gojoy-nim: Lara Sinclair's usual Attire and Underwear Attire</p>
+<p>Usual</p>
+<p>Underwear</p>

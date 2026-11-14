@@ -5,82 +5,71 @@ weight = 241
 chapter = 241
 +++
 
-<p>Mimata Chieri was already excited coming into my room, squirming her body and her face was quite red, showing she was quite horny.</p>
-<p>Hmm, should I feed this elixir of power to Mimata Chieri? Strength is important for learning martial arts, after all. Her agility is high enough, so the elixir of power would be perfect for Mimata Chieri. Still, I can't waste a precious elixir, so I need to make sure.</p>
-<p>I took out the glasses from the ruins from the carrier and looked at Mimata Chieri. Mimata Chieri tilted her head, looking at me with an expression that said, 'Why the sudden glasses?'</p>
-<p>"Sunbae-nim?"</p>
-<p>"Just a moment."</p>
-<p>I raised my hand to stop Mimata Chieri from approaching and focused on Mimata Chieri's status window that appeared in front of me.</p>
-<p>◆Name: Mimata Chieri Lv13</p>
-<p>Strength: 5(+5) Agility: 14(+5) Stamina: 8 Resistance: 5 Recovery: 6(+5) Nerve: 17(+5) Appearance: 14</p>
-<p>Mental</p>
-<p>Intelligence: 7 Knowledge: 7 Concentration: 12 Willpower: 10 Creativity: 6 Charm: 17 Judgment: 13</p>
-<p>Other</p>
-<p>Luck: 9</p>
-<p>◆Tairaga Family Grade A Firearms Combat (Rare Combat Art Lv16)</p>
-<p>◆Management (Common Skill Lv8)</p>
-<p>◆Sniping (Special Skill Lv12)</p>
-<p>◆Espionage (Special Skill Lv9)</p>
-<p>◆Linguistics (Common Skill Lv9)</p>
-<p>◆Chieri-ryu Fighting Style (Rare Skill Lv2)</p>
-<p>◇Bio-Modification: Muscle Fiber Enhancement [Advanced Modification]: A modification that increases strength and recovery stats, with the side effect of reduced energy efficiency, increasing food intake.</p>
-<p>◇Bio-Modification: Vision Enhancement [Advanced Modification]: Enhances vision, but has the side effect of changing the color of the pupils.</p>
-<p>◇Bio-Modification: Nerve Acceleration [Advanced Modification]: Increases nerve stats, but has the side effect of changing hair color.</p>
-<p>◆Cloud Riding [Epic Trait]: Moves lightly as if riding on clouds. Lightens movements, provides a bonus to jumping actions, and increases the limits of agility and nerve by 1.</p>
-<p>◆Master of Marksmanship [Epic Trait]: Becomes a master of marksmanship. Additional bonuses are granted to skills or traits related to marksmanship, and the acquisition speed of marksmanship skills is accelerated.</p>
-<p>◆Copycat [Epic Trait]: The acquisition speed of techniques using the body is accelerated up to the initial 5 levels, and there is a certain probability of acquiring techniques from the opponent's movements.</p>
-<p>◆Willow Branch Dance [Epic Trait]: An enlightenment on the movements of willow branches swaying in the wind, providing bonuses to evasion, accuracy, and critical hit chance. The efficiency of agility and nerve stats is significantly increased.</p>
-<p>◆Owl's Eyes [Rare+ Trait]: Can see through the darkness and can see far away by concentrating.</p>
-<p>◆Crowd Assimilation [Rare Trait]: Presence becomes faint when entering a crowd. It becomes difficult to notice without special skills or traits.</p>
-<p>◆Martial Arts Master [Epic Trait]: Becomes a master of martial arts. Bonuses are added to all physical techniques, and the acquisition speed of martial arts is accelerated.</p>
-<p>She was 2 levels higher than me, so she had many traits and a quite flashy status window. Looking at it, she had received three bio-modifications. The numbers in parentheses next to the stats, for example, Agility: 14(+5), means that +5 is added to 14, so it's not just 14, but 14 + 5. So, the actual stat is 19.</p>
-<p>The reason it's displayed like that is because if you exceed the stat limit of 20, a 'tier' is created, which has various tremendous effects, but even if you just cut off your arm and attach a mechanical arm, a 'tier' is not created.</p>
-<p>So, stats can rise to 21 when you train for a long time, transcend with an amazing trait, or are born as a different race with a high tier, but physical modifications do not raise the tier. It would be displayed as 10(+11) like this. You can only say you've transcended when the number in front exceeds 20.</p>
-<p>Let's stop talking about tiers and explain a bit more about modifications. Physical modifications are usually divided into bio-modifications and mechanical modifications, and both have their pros and cons.</p>
-<p>Bio-modifications don't get caught in metal detectors and aren't noticeable on the outside, making them suitable for agents like Mimata Chieri. They also have fewer side effects compared to mechanical modifications.</p>
-<p>Mechanical modifications are much stronger than physical modifications. So, they are more suitable for combatants than agents. Even with the same advanced modification, stats are added at +17 like this, more than three times that of bio-modifications, so you can get stronger easily, but the decrease in basic physical stats is very severe. Of course, it would be a scam if the basic stats remained the same after cutting off an arm and attaching a mechanical arm. Bio-modifications enhance the original body, so they are added to the basic stats.</p>
-<p>Another advantage is that you can attach many special abilities, not just stats. All sorts of weapons can be stored, and attacks like electric attacks or flamethrowers are also possible. Of course, it was also possible to embed hacking tools.</p>
-<p>Overall, Mimata Chieri's stats were quite excellent. Her strength, resistance, and recovery were a bit low in the physical aspect, but her agility and nerve were high, allowing for agile and complex movements.</p>
-<p>In the mental aspect, her concentration and judgment were quite high, increasing the probability of making the right choices in urgent situations.</p>
-<p>The trait window was quite good, with almost all traits being of epic grade except for two. There were many highly versatile traits. Cloud Riding was a trait that improved movement, and Willow Branch Dance was also a trait that enabled flexible movement.</p>
-<p>Copycat was a trait that accelerated the early learning of any skill. Ah, so that's why she could easily steal and learn the forms of my Shinkaiyatsude techniques.</p>
-<p>Owl's Eyes was a superior version of Yukiko's Hawk Eye ability, increasing vision and securing night vision.</p>
-<p>Crowd Assimilation was a trait specialized in infiltration and stealth, giving bonuses when infiltrating or hiding in crowded places.</p>
-<p>Finally, there were two master series traits: Master of Marksmanship and Martial Arts Master. Master of Marksmanship was literally a master of marksmanship, and Martial Arts Master was a universal trait that encompassed sword masters and martial arts masters, but its power was weaker than specialized traits.</p>
-<p>So, the Martial Arts Master used tactics that involved learning various martial arts and changing techniques depending on the opponent. Since Mimata Chieri also has the Copycat trait, I should cram her with various techniques. Compared to her quite decent trait window, her skills were all of rare grade or lower, so I should find good secret manuals and have her learn them.</p>
-<p>"Are those glasses X-ray glasses or something? Why are you looking at me so intently?"</p>
-<p>As I kept looking at Mimata Chieri with the glasses from the ruins, she blushed and squirmed, like a woman being visually raped. What a woman. I was just looking at her stats, but she got excited on her own.</p>
-<p>"First, sit here."</p>
-<p>I took off the glasses from the ruins, sat down at the table in the room, and pointed to the opposite side. Now that I knew Mimata Chieri's strength didn't exceed 12, I knew the elixir of power would be effective, so I had to make her drink it.</p>
-<p>"Drink this, Sunbae-nim."</p>
-<p>As Mimata Chieri sat opposite me, I gave her the elixir of power in the bottle and said. Mimata Chieri took the bottle, opened it slightly, and took a small sip.</p>
-<p>"Oh? It's alcohol?"</p>
-<p>"Yes, it's said to be good alcohol for women. Drink it all."</p>
-<p>I thought about giving it to Yukiko or Han Yu-gyeong, but I decided to give the Grizzly Totem to Han Yu-gyeong and the ring to Yukiko, so I'll give this elixir of power to Mimata Chieri. I decided to give the music box to Jinmija Yeosa, and I'll give Arisu something later when I get something more in New York.</p>
-<p>"It has a very deep aroma?"</p>
-<p>"It's because it's a few hundred years old."</p>
-<p>"Huh? You bought this alcohol on the black market, right? Is it okay to give such expensive alcohol to me?"</p>
-<p>When I said the elixir of power was a few hundred years old, Mimata Chieri was surprised and asked back. I smiled and nodded.</p>
-<p>"It's only effective if you drink the whole bottle by yourself, so drink it all in front of me now, Sunbae-nim."</p>
-<p>"It's not a lot..."</p>
-<p>As Mimata Chieri said, it wasn't a lot. About 150 milliliters? About 5 ounces. Roughly the amount of three soju shots.</p>
-<p>"Don't you want to drink it, Hubae-nim?"</p>
-<p>"Uh-uh, I told you it's only effective if you drink the whole bottle. And..."</p>
-<p>"And?"</p>
-<p>As I stopped talking in the middle, Mimata Chieri asked back as if curious. I approached her, tucked her long orange hair behind her ear, and whispered softly.</p>
-<p>"Because I want to see Sunbae-nim drunk and disheveled..."</p>
-<p>At my words, her already red face turned even redder, and she started drinking the elixir of power straight from the bottle. She emptied the elixir of power at once, moving her Adam's apple gulping. I don't know what the principle is, but it's said that it rises from 0 to 2 when the alcohol wears off, so I hope it rises by 2 if possible.</p>
-<p>"Iii~ drank it all."</p>
-<p>As expected, it seemed very strong because it was alcohol that had been aged for hundreds of years. A very strong alcohol smell came from Mimata Chieri's breath as she approached me and said she had drunk it all.</p>
-<p>Still, there was no way Mimata Chieri, who was strong with alcohol, would get drunk with only 150 milliliters of alcohol, so it seemed like she was pretending to be slightly drunk to excite me.</p>
-<p>"Look at this, because of Hubae-nim... I'm disheveled."</p>
-<p>Mimata Chieri was showing her wet pussy while lifting her baby doll skirt. When she lifted the curtain-like skirt of the baby doll, the fragrance of her body rushed in, along with her slender and smooth thighs and her pussy full of wet fluids.</p>
-<p>I was already in a quite horny state, but smelling Mimata Chieri's scent made me even harder. Mimata Chieri silently climbed onto the table with light movements.</p>
-<p>And still lifting her skirt, Mimata Chieri slowly spread her legs until her pussy was right in front of my nose.</p>
-<p>"Hubae-nim, I drank it all, so lick it."</p>
-<p>Mimata Chieri, with eyes mixed with alcohol, lust, and affection, was asking for cunnilingus. I didn't refuse and buried my nose in Mimata Chieri's pussy.</p>
-<p>---------Chieri unused cut</p>
-<p>A cut made because someone wanted long-haired Chieri at once.</p>
-<p>For some reason, when I make a yandere cut, it's always Chieri wearing a school uniform... What happened in high school?</p>
-<p>Skirt lifting</p>
-<p>I only entered skirt lifting, but the lewd Ai revealed her breasts...</p>
+<p>The auction venue was in one of the skyscrapers in the middle of New York. I thought an underground auction would be held in back alleys or slums, but it's quite bold to do it in the middle of New York, huh?</p>
+<p>Of course, plus-rank people who can participate in auctions are likely to be high-ranking members of society or have considerable wealth, so it wouldn't be good for the underground if they were harmed in a slum with poor security. That's why they're doing it in the middle of the city.</p>
+<p>When we entered the building, an unexpected person greeted us.</p>
+<p>,Hello~! Long time no see~!,</p>
+<p>Eve greeted us at the information desk. Two of them, in fact. Eve A was wearing a purple tailored jacket, and Eve B was wearing a white suit with a dark tie. Both of them were wearing round-rimmed glasses today, making them look a bit more intellectual.</p>
+<p>Since the underground offline branch had several Eves taking care of customers at the same time, there could be several of them here as holograms.</p>
+<p>,First of all, I'd like to thank Ryuta-nim for saving Yuka.,</p>
+<p>Both Eves bowed to me.</p>
+<p>,Kurotsuki-doo and I don't have good feelings either. And even Otagi Yuka-ssi would have helped me.,</p>
+<p>,Still, I'm grateful for what you did. Yuka went back to Japan, so she'll give her thanks in Japan.,</p>
+<p>I spoke to Eve as if I had done nothing, and Eve bowed again. Otagi Yuka came to America for revenge, so going back to Japan must mean she dealt with the head of the underground New York branch.</p>
+<p>,The auction is about to start, so I'll guide you to your room first. Would you like a glass room where you can see the real items? Or would you like a room where you can see them on a screen?,</p>
+<p>,What do you want to do?,</p>
+<p>I preferred a glass room where I could see the items directly. Even if I looked at the auction items on the screen, my ability to know the information of the items wouldn't activate, so I wouldn't be able to buy good items. But since I came with my colleagues, I asked the others for their opinions.</p>
+<p>,It's better to see it directly.,</p>
+<p>,Yeah! There are things you can't see on the screen too,,</p>
+<p>Fortunately for me, Nae Fitzgerald and Arisu seemed to prefer seeing the items directly, perhaps because of the insight they gained from being the Phantom Thief François. Mimata Chieri was looking at her phone as if she didn't care which room it was.</p>
+<p>,Then please give us a glass room.,</p>
+<p>,Yes! After all, the number of glass rooms where you can see the items directly is limited. You made a good choice.,</p>
+<p>As Eve finished speaking, a drawer-like thing came out of the information desk with a key with a number on it. And along with the key, we each received a tablet to use to participate in the auction.</p>
+<p>,Please go to room 007.,</p>
+<p>I took the key and went in the direction Eve pointed. Room 005, room 006... Room 007 was right there, so I opened the door with the key and went inside.</p>
+<p>The room had one side made of glass, and there was a stage right in front of it to display the auction items. And another side was made of a screen so you could see the auction items in detail, and in the middle, there was a sofa facing the glass side, and in front of the sofa, there were finger foods and wine, champagne, etc. that you could pick up and eat.</p>
+<p>There was another door on the remaining wall without a screen or glass wall, and when I asked Arisu, she said it was a bathroom and shower room. Since one companion can come along and it's a closed space, many things must happen. The bathroom or shower room is there to clean up after that.</p>
+<p>Since we came almost right before the start time, the auction soon began. The stage outside the glass wall lit up, and Eve, wearing a white suit, black shirt, and pink tie, appeared like a ghost.</p>
+<p>Eve's appearance was also visible on the screen, and Eve was shown closer on the screen.</p>
+<p>,Hello~! It's been a while since the New York auction! I'm Eve, who everyone knows☆,</p>
+<p>Even though it was a stage, the audience was watching from inside the glass wall or on the screen, so there were no cheers or reactions to Eve's greeting.</p>
+<p>,Before we start, we'll have a brief advertisement from our partner!~,</p>
+<p>The lights on the stage went out again, and an advertisement appeared on the screen. But the advertisement was... somehow strange.</p>
+<p>-The streets are getting scarier. Will we really be able to go home alive?</p>
+<p>A scene showing the slums appeared, and a man's voice heightened the sense of crisis.</p>
+<p>-In such scary situations, what you need is a pet that can protect its owner! Now, look at this cute Shih Tzu!</p>
+<p>A cute Shih Tzu appeared, jumping and acting cute to its owner. The Shih Tzu in the advertisement was the ideal Shih Tzu. It had long eyelashes, deep eyes, and the color combination of its fur was appropriate, making it cute enough to be in a dog food advertisement.</p>
+<p>Then, a robber wearing a mask that covered his entire face appeared and pointed a gun at the owner. The Shih Tzu rushed at him with tremendous force, jumped, and bit the robber's neck. It was clearly a brutal scene, but because it was done by a cute little Shih Tzu, it seemed a bit unrealistic.</p>
+<p>The fur of the Shih Tzu, standing proudly with blood dripping from its mouth, peeled off, revealing the steel frame inside. It was actually a robot in the shape of a Shih Tzu! That's what the scene was.</p>
+<p>-A pet that protects its owner's safety and doesn't need to be fed or shed fur! The latest Ai makes it look no different from a cute pet! The best safety provided by the underground's partner! You can customize everything from the appearance to the system specifications and specs according to the customer's order! Pre-order now! Released after October!</p>
+<p>The advertisement ended with a QR code. This is the steel pet we were going to do business with. Suddenly my phone rang, and it was a message from Eve on the underground app.</p>
+<p>EVE: We made our business advertisement well, right? I'm going to try selling it to the underground plus members in New York first.</p>
+<p>Ah, it seemed like they were advertising in advance while the customers were gathered for the auction.</p>
+<p>Ryuta: It's well made, but still, tell me in advance if you're going to do something. I was surprised.</p>
+<p>EVE: I kept sending messages, but Ryuta-nim didn't reply. So I contacted Yu-gyeong-nim, who is doing business with you, and got permission.</p>
+<p>Huh? You kept sending messages? When I went to the message box of the underground app, there were several messages from Eve. They were all about whether it was okay to make our business item into an advertisement for this auction. When I looked at the time the messages were sent, it was when I had just returned to the Fitzgerald mansion and was sleeping.</p>
+<p>Ryuta: I was sleeping then. It seems like you can contact Yu-gyeong?</p>
+<p>EVE: Ryuta-nim connected us then, and Han Yu-gyeong-nim also knew about the underground, so I contacted her through the underground app.</p>
+<p>When we said we were going into business together at that time, I gave Han Yu-gyeong's contact information, so it seemed like they had been in contact since then.</p>
+<p>Ryuta: I understand. The advertisement is interesting.</p>
+<p>Even though the Shih Tzu dripping blood from its mouth was scary.</p>
+<p>EVE: We've already received 30 pre-orders!</p>
+<p>Oh, that's great. Since it wasn't an item to be sold in large quantities to the public, but an item to be sold to the rich, the price range would be set as high as possible. We hadn't set an exact price yet, but 30 orders seemed like it would be a considerable profit.</p>
+<p>Ryuta: That's great.</p>
+<p>EVE: Well, the auction is about to start now, so let's stop talking here!</p>
+<p>Ryuta: Yes. We can talk in Tokyo later too.</p>
+<p>After finishing chatting with Eve and looking at the stage, the lights on the stage were on again, and it was a diamond necklace with a huge gemstone inside a glass case. It didn't seem like a necklace with any power, but it increased charm by 6. Wow.</p>
+<p>,This necklace contains a whopping 100-carat diamond! In the Renaissance era....,</p>
+<p>Eve was explaining the story of the necklace, and Arisu and Nae Fitzgerald were listening to Eve's explanation as if they were drawn in. When I looked at the guests inside and outside the building earlier, there were many noble ladies, so it seemed like there would be a lot of competition.</p>
+<p>Even if charm goes up by 6, I can't wear that fancy diamond necklace, so I wasn't planning on participating in this auction. Arisu and Nae Fitzgerald were talking about who would participate, and Mimata Chieri, who wasn't very interested in accessories, didn't care.</p>
+<p>,Now! The price will start at five million points! Start!,</p>
+<p>The tablet we received when we came in had a picture of the item, the current price, and a button to raise the price. Five million points is almost 650 million yen, or about 6.5 billion won, so it was quite expensive from the starting price.</p>
+<p>Of course, I thought it was expensive, but Nae Fitzgerald, who received Arisu's concession, was pressing the tablet screen like crazy with a face that said, ,Oh my god, I have to buy this!,. Seeing that reaction, is the starting price quite cheap?</p>
+<p>Since the auction is linked to the underground app and you have to bid with your points, I could participate enough because I got a lot of points in exchange for selling the Ai data to Eve. But Nae Fitzgerald is also participating, so there's no need for me to go in and raise the price.</p>
+<p>,Thirty million points! Is there anyone else?,</p>
+<p>Seeing Nae Fitzgerald's relaxed expression, it seemed like Nae Fitzgerald had raised it to thirty million points.</p>
+<p>,Thirty million points, sold!,</p>
+<p>,People tend to save money at the beginning of the auction because they don't know what will come out next. At this price, it's a cheap buy.,</p>
+<p>With Eve's declaration of the winning bid, Nae Fitzgerald shrugged and explained to me. The next one was also a work of art. Several items that I wasn't interested in passed by, and the sixth auction item appeared.</p>
+<p>,Huh?,</p>
+<p>What appeared at the auction was a sculpture of something hard and black, a statue of a goddess standing on countless cephalopod legs.</p>

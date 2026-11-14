@@ -5,76 +5,87 @@ weight = 502
 chapter = 502
 +++
 
-<p>,Alright, let's get started right away.</p>
-<p>As I sat on the bed, Kasaoka Yuzuki, as if she had been waiting, lowered my pants and underwear, slightly lifted her mask, and began to suck and lick my dick. She seemed to have a lot of pent-up desire, sucking on it like she was eating a very delicious ice cream bar, her cheeks hollowing out so much it was visible over the mask. Her eyes, filled with ecstasy as she smelled my dick, were a bonus.</p>
-<p>,Ugh...! Feels so good, Yuzu-ssi....</p>
-<p>I stroked Kasaoka Yuzuki's hair and praised her fellatio skills. Kasaoka Yuzuki looked up at me and smiled with her eyes.</p>
-<p>Kasaoka Yuzuki's fellatio felt great, but I didn't cum right away. Thanks to Otagi Yuka and Sakagami Rena, the duo of perverted thieves who snuck in at dawn and stole my Semen, I was able to endure what would normally have been enough pleasure to make me ejaculate.</p>
-<p>,Let's move on to the main event right away now.</p>
-<p>,Then....</p>
-<p>At my words to move on to the main event, Kasaoka Yuzuki put her hand inside her mini dress, took off her panties, and climbed on top of me while I was sitting.</p>
-<p>Jeugeuk....</p>
-<p>Kasaoka Yuzuki lowered her waist and slowly aligned my dick with her Pussy hole. With a lewd sound, my dick scraped against Kasaoka Yuzuki's moist and sticky flesh walls, gradually sliding deeper inside. The moment my glans kissed Kasaoka Yuzuki's deepest cervix, Kasaoka Yuzuki let out a passionate moan.</p>
-<p>,Heu-oht...! Eungh-heut! Oht!</p>
-<p>Kasaoka Yuzuki, fluttering her thighs and tilting her head back, reached a dazzling climax. It was a bit much to cum as soon as I entered, but I could understand since she seemed to have already gotten incredibly excited while sucking my dick.</p>
-<p>,Eutchha.</p>
-<p>Watching Kasaoka Yuzuki, who was out of her mind from climaxing, I thought that the cowgirl position was no longer possible, so I lifted Kasaoka Yuzuki up with my dick still inside her. And then I laid her down as is, changing the position to missionary. As I moved my body back and forth with my dick still inside, she shot out a lot of vaginal fluids again due to the pleasure, soaking the bottom of my shirt. I took off my shirt and then took off Kasaoka Yuzuki's clothes as well.</p>
-<p>And with my heavy body, I pressed down on Kasaoka Yuzuki's voluptuous body and began to move my waist. Kasaoka Yuzuki was already in a daze from the long-awaited pleasure.</p>
-<p>,Have you made a decision about my previous offer?</p>
-<p>I asked, bringing my mouth close to Kasaoka Yuzuki's ear while slowly and deeply shaking my waist. It was a question about the offer I had made to her to quit the adult entertainment business and become exclusive to me.</p>
-<p>,Heueung....! I don't knowwww...♥</p>
-<p>Kasaoka Yuzuki seemed to be out of her mind from the overwhelming pleasure. Then I'll have to bring her back to her senses a bit.</p>
-<p>I hugged Kasaoka Yuzuki tightly and bit the mask with my mouth. And I turned my head and took off the mask.</p>
-<p>,Heueut! What are you doing...!</p>
-<p>Tzup, ttzup, jjok!</p>
-<p>Kasaoka Yuzuki, surprised with her eyes wide open as the mask was suddenly removed, I spat out the mask and kissed Kasaoka Yuzuki before she could finish her sentence.</p>
-<p>At first, she turned her head and struggled, refusing, but as I shook my waist and pressed on her cervix, continuing to kiss her with sincerity, Kasaoka Yuzuki was soon wrapping her tongue around mine.</p>
-<p>I thought she would surrender right away, but her resistance was surprisingly strong. It took almost more than ten minutes to calm her down. But now, only a female with a completely melted expression remained.</p>
-<p>,Kasaoka Yuzuki. Become my exclusive adult entertainment girl.</p>
-<p>I said, looking at Kasaoka Yuzuki, who was lying beneath me, after a long kiss. Kasaoka Yuzuki nodded with a pleasure-filled smile and hazy eyes.</p>
-<p>,Heuung...! I'll become your adult entertainment girl♥</p>
-<p>Saying your adult entertainment girl sounds a bit strange, but it couldn't be helped since the word "health" itself is used differently in Korea and Japan. Anyway, since she decided to become exclusive to me, the only things I could give as a reward were pleasure and money. Right now, I should give her pleasure rather than money.</p>
-<p>I started the piston movement that I had stopped for a moment and sucked on Kasaoka Yuzuki's neck as if stamping it with a seal that it was mine. There would be red marks on her neck, but I didn't care.</p>
-<p>,Haeungeut! If you do that, heut! My husband will find out that I'm Ryuta-ssi's woman...!</p>
-<p>Rather, seeing her Pussy tighten even more when she talked about her husband, it seemed that the feeling of cheating while mentioning her husband was becoming a source of pleasure.</p>
-<p>,Do you feel better than with your husband?</p>
-<p>,Heueung, with my husband... Oht, it's been heut! So long since we did it, I don't really knowwww!</p>
-<p>I saw Kasaoka Koki, Kasaoka Yuzuki's husband, wandering around motel villages with a female student before, so they couldn't be on good terms. Of course, they wouldn't have a marital relationship either. But I couldn't tolerate her evading my questions like this.</p>
-<p>,Answer honestly. Before I pull out my dick.</p>
-<p>I shook my waist even more violently and cornered Kasaoka Yuzuki. Whether the threat of pulling out my dick worked, Kasaoka Yuzuki crossed her legs behind my waist and hugged me tightly. It seemed like she was trying to prevent me from pulling out.</p>
-<p>,Heuung, more than him, ha-eut, Ryuta-ssi's haht...♥ magnificent dick is hoo-oht! More...heut, I like ittt!</p>
-<p>Kasaoka Yuzuki, revealing that she liked it more than her husband and climaxing at the same time, I also got excited by her lewd confession and thrust my dick into her innermost cervix and began to ejaculate.</p>
-<p>Byuut! Beut! Byuuuut!</p>
-<p>,Oht♥, Heueut! I'm going, I'm going, I'm going!</p>
-<p>My Semen filled Kasaoka Yuzuki's uterus. She was already climaxing, but Kasaoka Yuzuki was feeling another orgasm at the same time as ejaculation. I pulled out my dick and watched the Semen flow from her Pussy hole. Hmm, cream pie is always good no matter when I see it. Kasaoka Yuzuki reached out to me while lying down. It wasn't a request for a hug.</p>
-<p>I understood the meaning of Kasaoka Yuzuki's gesture. It meant she would clean my dick. I immediately held out my dick, covered in vaginal fluids, in front of Kasaoka Yuzuki's nose. Kasaoka Yuzuki pulled my butt with her outstretched arms and put my dick in her mouth, starting the post-sex cleaning. Sucking the Semen remaining in my urethra as if she was eating a very delicious food gave me considerable pleasure both visually and in the sensation felt on my dick.</p>
-<p>Naturally, my dick regained its strength, and I hugged Kasaoka Yuzuki, who had taken my dick out of her mouth, and said.</p>
-<p>,You know I booked you for 5 hours today, right? It's your last shift at Mask Delivery, so do your best.</p>
-<p>,I will serve you with all my heart, customer♥</p>
-<p>Kasaoka Yuzuki gave me an alluring smile and began to serve me. She's working so hard even on her last day of work, her work ethic is good.</p>
+<p>"Haaaeuuuung...! Ryuta-nim's scent, I luv it♥"</p>
+<p>Konoe Akina's eyesight began to clear up more and more with each sex session, and she fully regained her sight during the third round. Her previously blurred, empty eyes shone with life, but after the subsequent sex, they became hazy again with pleasure.</p>
+<p>In my defense, I was worried that she might not be completely cured, so even after Konoe Akina regained her sight, I gave her preventative care(?) about twice. But I overdid it, and from the fourth time on, things got a little weird.</p>
+<p>Perhaps due to the lingering effects of what I had splashed on her face when she lost her sight, she became extremely sensitive to my scent. She became a total scent fetishist, squirting just from the smell of my semen. There are many people around me with strange fetishes, but this Konoe Akina was my fault. I hadn't showered after fighting, so I probably smelled quite a bit, and that seemed to be Konoe Akina's preference.</p>
+<p>"I'm glad you can see well now."</p>
+<p>"Me too. Actually, I was prepared to lose my sight forever."</p>
+<p>Hearing her words, it seemed that Konoe Akina had also been quite prepared and used her magic eye abilities beyond her limits.</p>
+<p>"Why did you push yourself so hard?"</p>
+<p>"Because if I hadn't, Sensei would have been seriously injured or killed...."</p>
+<p>Well.... In that situation, when I thought, "Ah! I'm dead now," Konoe Akina blocked the monster's movements, so I could say that Konoe Akina was my savior. It was quite touching that she was willing to sacrifice her eyes to save my life.</p>
+<p>"Thank you."</p>
+<p>"Thank you too."</p>
+<p>When I thanked Konoe Akina for trying to save me even at the cost of her eyes, Konoe Akina also thanked me for some reason. Was it gratitude for freeing her from the slave trader a few months ago? I don't know.</p>
+<p>"I'm hungry, do you want to eat something?"</p>
+<p>I skipped dinner and had sex several times, so I was very hungry. As I was asking Konoe Akina, the doorbell suddenly rang.</p>
+<p>"Just a moment...!"</p>
+<p>I quickly put on comfortable clothes and went to the front door to open it. Sakagami Rena and Oofuchi Erika were standing in front of the door.</p>
+<p>"I thought I should report on how things are going today, My Lord."</p>
+<p>"Come in for now."</p>
+<p>A report.... By the way, she's calling me My Lord even in front of Oofuchi? Is Sakagami Rena revealing that she's serving me?</p>
+<p>First, I sat them both on the sofa in the living room and poured orange juice into cups.</p>
+<p>"Sakagami probably came to talk about the war situation.... What about Oofuchi?"</p>
+<p>"I came to express my gratitude for saving me, Sensei."</p>
+<p>Ah, she knew I saved her. But how did she know when I was wearing the Black Knight armor?</p>
+<p>"I heard from Rena that Sensei is on some kind of mission. But to risk being discovered and come in Black Knight disguise to save me.... Thank you so much!"</p>
+<p>Ah, she thinks I disguised myself as the Black Knight, not that I am the Black Knight. Well, she might think so. Seeing Sakagami Rena fidgeting while Oofuchi Erika was talking, it seemed that she had made a slip of the tongue to Oofuchi Erika and made a strange excuse that I was disguised as the Black Knight. Having roughly figured out the situation, I nodded in agreement and opened my mouth.</p>
+<p>"A student was kidnapped, so as her homeroom teacher, I naturally had to go save her. However, I thought it would be troublesome if it became known that I had strong martial power, so I disguised myself."</p>
+<p>"As ex... Sensei! Thank you."</p>
+<p>Can you stop calling me Dad? It's kind of cute how you cover your mouth in surprise, though.</p>
+<p>"But what about Akina...?"</p>
+<p>Sakagami Rena asked, looking curious. She must be asking if her eyes have been healed. If it were just Sakagami Rena, I would have shown Konoe Akina directly and told her that she was okay, but I couldn't show her because Oofuchi Erika was there. She's probably undressed right now.</p>
+<p>"I'm okay."</p>
+<p>Just as I was about to answer that I was okay, Konoe Akina came out wearing her school uniform again. She must have been listening to the conversation in the room.</p>
+<p>"Can you really see well now?"</p>
+<p>"Yeah."</p>
+<p>"That's a relief...."</p>
+<p>Sakagami Rena lets out a sigh of relief. Sakagami Rena was the one who moved Konoe Akina to my house, so she knew about Konoe Akina's eye condition and must have been very worried.</p>
+<p>"But have you both had dinner?"</p>
+<p>"Not yet. We went to the Director-nim's house and listened to the war situation in real time, so we didn't even have time to eat dinner, and it's already this late."</p>
+<p>Hearing about the war situation, it seemed that battles had taken place not only at St. Francisco Girls' Academy but also elsewhere. After all, if the Toyotaka faction wanted to seize power, they would have had to subdue Daigo Tadanori, the current heir apparent, so they must have attacked that side as well.</p>
+<p>"Then let's order food first and talk. Tell me everything you want to eat. I'll buy it for you."</p>
+<p>I turned on the delivery app and took the students' orders. Konoe Akina ordered sushi, Oofuchi Erika ordered fried rice from a Japanese-style Chinese restaurant, and Sakagami Rena said she was craving ramen, so she ordered soy sauce ramen with double chashu. I ordered one of each of their desired menus from each place and also ordered chicken separately.</p>
+<p>Since they worked hard today, they need to eat this much to replenish the calories they used to regenerate.</p>
+<p>"By the way, can you tell me how the war situation is going?"</p>
+<p>"Yes, apart from our side, the Toyotaka faction reportedly made a surprise attack on Director-nim's father, Daigo Tadanori-ssi. I heard that they mobilized about three hundred troops at that time."</p>
+<p>Three hundred.... While we were bickering with a few dozen people, the main base was fighting in what could truly be called a war.</p>
+<p>"Of course, the Tadanori faction was not well prepared because they didn't expect to be attacked so quickly. There was a combat unit from the Kujo alliance, but Minamoto was stronger than Kujo after all."</p>
+<p>That's right. Kujo was not an easy force to deal with, but it was no match for Minamoto. The guys they sent to St. Francisco Girls' Academy were a bit weak, but our side was probably not the main force, and the main force probably attacked Daigo Tadanori.</p>
+<p>"So they lost?"</p>
+<p>"No. In the end, the victory is thanks to My Lord."</p>
+<p>"Me?"</p>
+<p>The Tadanori faction won because of me? What are you talking about? When I looked at Sakagami Rena with a questioning expression, she smiled slightly and began to explain.</p>
+<p>"Originally, I was going to use the secret forces in St. Francisco Girls' Academy to save Erika, but My Lord saved Erika, so I was able to deploy them to the battlefield of the Daigo family's succession war."</p>
+<p>Ah...! That's right, it's thanks to me. Originally, I should have been bickering with the group that was holding Oofuchi Erika hostage and threatening her in St. Francisco Girls' Academy, but because I participated, they were immediately deployed to the main battlefield.</p>
+<p>By the way, secret forces.... Anyone who hears it would say, "How strong can the secret forces of a mere middle and high school be?" but I knew that Shimokawabe Airen, one of the Three Swordsmen, was in those secret forces, so I nodded. By the way, if it's "forces," does that mean there's another strong person I don't know about? I wonder who it is. How strong will they be?</p>
+<p>"The secret forces were deployed quickly by helicopter and reportedly brought the war situation, which was leaning towards Minamoto, back to equilibrium."</p>
+<p>Just equilibrium? I thought Shimokawabe Airen would be able to kill everyone there.... It seemed that there were also some strong people on the Minamoto side. I was disappointed that I couldn't see it myself. It would have been a very exciting fight.</p>
+<p>"At that time, the Tairaga sent troops, and the Tadanori faction ended up winning completely. The battle ended less than thirty minutes ago."</p>
+<p>I see. It seems that the battle ended anticlimactically because the Tairaga intervened at a perfect timing before Minamoto could send additional troops. Still, I'm glad the Tadanori faction won. From now on, the Toyotaka faction will only be purged completely. If they dragged foreign powers into the succession war, they will have to take responsibility, so they will not be able to survive even as a minority faction.</p>
+<p>Ishidera Kosuke, the temporary Director, has also been taken care of, so Daigo Terue will return as Director, and I won't have to worry about the political infighting within the academy anymore. Daigo Terue wouldn't expel Minamoto Lisa just because Minamoto intervened in the succession dispute, would she?</p>
+<p>Daigo Terue is a reasonable woman, so she wouldn't do that. And even if she did, I could persuade her with my body(?) and stop her.</p>
+<p>After the story about the war situation ended, the food we ordered began to arrive one after another. It was already long past dinner time, so it was a time that could be called a late-night snack, but everyone was so hungry that no one cared.</p>
+<p>"Everyone's hungry, right? You worked hard today."</p>
+<p>I ordered one menu for each person, and I ordered almost five servings of food, so the table was very plentiful. We all shared each other's food, chatted, and had a pleasant meal.</p>
 <p>###</p>
-<p>After a burst of heat, Kasaoka Yuzuki was in my bedroom, using my arm as a pillow and breathing heavily.</p>
-<p>,Haa, haa.... Haa, from when did you know it was me?</p>
-<p>,From the beginning.</p>
-<p>We were talking about this and that with her using my arm as a pillow, and I answered Kasaoka Yuzuki's question about when I knew it was her honestly.</p>
-<p>,Kasaoka-sensei's figure and face are so impressive. You can't hide it with just covering your mouth.</p>
-<p>Kasaoka Yuzuki was about to make a slight expression as if she had been deceiving me until now, but her expression relaxed when I said something with subtle praise.</p>
-<p>,Why didn't you say anything right away?</p>
-<p>,I just thought it was an opportunity to be with Kasaoka-sensei. I had no intention of blackmailing you or anything.</p>
-<p>Kasaoka Yuzuki was subtly satisfied with my answer. She seemed relieved because I had never asked for anything since I realized Kasaoka Yuzuki's identity.</p>
-<p>,But why are you doing this job?</p>
-<p>,I didn't want to do it either, it's because of debt. The salary of a teacher at St. Francis Girls' Academy is high, but it was difficult to pay off the debt with just the salary because I was scammed.</p>
-<p>It was the same reason as the information given by the Taira information team before. As expected, the information from the Taira information team was accurate. This time, I opened my mouth to ask about the recent machinations of Ishidera Kosuke.</p>
-<p>,Recently, the acting Director told me to join his side. Can you tell me how the situation is progressing?</p>
-<p>,Recently, several teachers seem to be called to the Director's office. Only the teachers I know.... But have you decided to go under the acting Director?</p>
-<p>I felt like she was subtly changing the subject in the middle, but I honestly told her that I was close to Daigo Terue and said I would join but not follow her.</p>
-<p>,I see. Can I interpret that you are close to the former Director, so you are joining to find out what his intentions are?</p>
-<p>,Yes. Because the things they offered are not what I need. I have a few requests. Please find out what's going on for me, only to the extent that it's not dangerous. If you do well, I'll take care of your debt.</p>
-<p>Kasaoka Yuzuki's eyes widened at my offer. She seemed very surprised that I would solve her debt so easily, which wasn't a small amount. Of course, I would solve the debt, but it wasn't a big loss because I could use my information to catch the person who scammed Kasaoka Yuzuki and recover the money. She probably didn't scam just one person, so I might even make more money.</p>
-<p>,You're saying you'll pay off my debt with that?</p>
-<p>,Instead, you'll have to do your job as my exclusive adult entertainment girl well.</p>
-<p>Kasaoka Yuzuki asked in surprise, and I said, squeezing Kasaoka Yuzuki's big breasts tightly. Kasaoka Yuzuki smiled as if relieved at those words. This time, Kasaoka Yuzuki grabs my dick.</p>
-<p>,Don't worry about that, customer♥</p>
-<p>----</p>
-<p>Kasaoka Yuzuki's nude B-cut!</p>
-<p>The three-dimensionality of her breasts is no joke, haha.</p>
+<p>"Brother."</p>
+<p>Inside a remote abandoned factory, Daigo Tadanori looked at Daigo Toyotaka, who was tied up in front of him and kneeling. Although he had done many despicable things, he was a pitiful younger brother. A pitiful younger brother who had struggled to escape from the shadow of himself, the eldest son, since childhood, but had failed to do so. A pathetic younger brother who always aimed for the top but lacked both character and ability.</p>
+<p>But this time, what he did was too much. Not only did he borrow the power of another family to kill Daigo Tadanori, who had already been designated as the next head of the family, but he even kidnapped Oofuchi Erika, who could be said to be his granddaughter, crossing the line too far.</p>
+<p>"I lost."</p>
+<p>Daigo Toyotaka knew that his brother was pitying and feeling sorry for him. He was very proud, but he knew his brother's gentle nature, so he didn't think he would be hurt this time either. He had lost a lot of power, but he was quite confident, perhaps because he thought he wouldn't die.</p>
+<p>"Brother. No, Toyotaka. I won't lay a hand on your children."</p>
+<p>"Wh, what are you saying?! Brother! Does that mean you're going to kill this brother?"</p>
+<p>When Daigo Tadanori spoke on the premise of his death, Daigo Toyotaka was startled and tried to stand up. But he was tightly bound, so it just looked like he was struggling.</p>
+<p>"Please send me off without pain."</p>
+<p>"Brother! Brother!"</p>
+<p>When Daigo Tadanori looked to the side and spoke, Daigo Toyotaka shouted as if his throat would burst.</p>
+<p>"Takatji! I don't have any particular complaints, but... you made too much noise. I'd appreciate it if you died☆"</p>
+<p>A blonde woman wearing a tech mask, whose identity was unknown, slowly approached Daigo Toyotaka, who was kneeling.</p>
+<p>The masked woman grabbed Daigo Toyotaka's face as if covering it with her hands. As the blonde masked woman began to exert force, a cracking sound was heard along with the sound of the skull breaking.</p>
+<p>Soon, with a thud, the skull was completely shattered, and the gray-white brain matter burst out around it.</p>
+<p>"At this point, even if I throw it on the road and disguise it as a traffic accident, no one will know, Daigo next head of the family, Uncle."</p>
+<p>She took out a handkerchief and wiped her brain-covered hands, smiling with her eyes. Daigo Tadanori couldn't bear to see his brother's death, so he turned his body and didn't answer.</p>
+<p>"Aigoo...! I ruined my clothes too. I have to go to the coin laundry again.... I'm leaving now, so please make sure the payment isn't late~!"</p>
+<p>The masked woman frowned at the brain matter splattered on her clothes, waved her hand once, and went out of the building. Only a corpse and the corpse's brother were left inside the abandoned factory.</p>

@@ -5,80 +5,81 @@ weight = 760
 chapter = 760
 +++
 
-<p>Perhaps it's because of the current situation, but Taira Kanna-ssi was slowly sitting down on my face in a situation where her panties had turned translucent due to the pussy juice she had excitedly leaked, revealing her light pink pussy mound.</p>
-<p>"Normally, when you say kiss, isn't it when lips meet lips?"</p>
-<p>Because of the breath I exhaled while asking Taira Kanna-ssi that question, her pussy was stimulated, and Taira Kanna-ssi trembled.</p>
-<p>"Haaah...♡ I like your breath, Onii-sama...! I already cleared the lips-to-lips kiss when Onii-sama was knocked out. I'm sorry. I couldn't resist."</p>
-<p>It seemed she had already stolen my lips when she knocked me out with anesthesia. I didn't know that. Amazing, Taira Kanna-ssi.</p>
-<p>"Then, I'm looking forward to the lower lip kiss♡"</p>
-<p>With a *chwulpak* sound, her wet pussy stuck to her wet panties stuck to my nose and lips, starting a 'kiss.'</p>
-<p>Now that it's come to this, I'll have to use my sex skills to sweet-talk her into letting me go. So, first, it was important to satisfy Taira Kanna-ssi.</p>
-<p>First, I opened my mouth and licked hard over her panties with my tongue. Of course, her panties were soaked with her pussy juice, so it tasted like pussy juice, but Taira Kanna-ssi's pussy juice tasted like a citrusy, sour, and refreshing flavor.</p>
-<p>"Haaah...! O, Onii-sama's tongue is, haah♡, l-licking my... *heuung*, lower lips...!"</p>
-<p>Actually, because my arms and legs were tied, all I could do right now was flick my tongue. But because I was the owner of the Black Mireuk Gong, a master of seduction, there were many things I could do with my tongue.</p>
-<p>I sharpened my tongue and drew a picture with my tongue, following the shape of Taira Kanna-ssi's pussy. Taira Kanna-ssi trembled, thrilled by the pleasure she felt from my tongue movements.</p>
-<p>"Onii-sama...♡ Onii-samaa♡ Onii-samaaa...!!!"</p>
-<p>Taira Kanna-ssi only called me with her tongue and reached her climax. I felt her thighs, which were placed on either side of my face, tighten and tremble.</p>
-<p>This won't do. I have to completely marinate Taira Kanna-ssi in pleasure to blackmail her with sex. I kept moving my tongue, not caring that Taira Kanna-ssi had already reached her climax.</p>
-<p>"Haaheueut, haah...! I, I'll also.... serve you...♡"</p>
-<p>To endure this pleasure and think about serving me, Taira Kanna-ssi's mental strength seemed quite impressive. Her willpower stat must be quite high?</p>
-<p>Taira Kanna-ssi got up from my face and turned her body to face my dick. Then, she sat back down on my face and grabbed my dick.</p>
-<p>"*Chuu*...♡ *Chwup*♡ *Tzubeup*...! *Tzup*, *chubeu*, *chwup*...♡"</p>
-<p>Taira Kanna-ssi grabbed my dick and started sucking it like a lollipop, and as she moved her waist, rubbing her pussy against my nose and lips, urging my tongue, it seemed like she was doing a reverse 69.</p>
-<p>If she's sucking my dick like this, I can't lose either. I also passionately used my tongue and lips to start sucking over Taira Kanna-ssi's panties.</p>
-<p>In this kidnapping room with only a bed, for a while, only the lewd sounds of *chwup chwup* as we sucked on something with our mouths could be heard.</p>
-<p>It felt a bit like a hit to my pride, but Taira Kanna-ssi's fellatio skills were considerable. She's probably still a virgin as a well-raised young lady of the Tairaga family, but to have this level of fellatio skills...! No matter how much she practiced with bananas or dildos beforehand, this level as a virgin seemed quite amazing.</p>
-<p>To be good at studying and a genius at sex, it was somewhat unfair.</p>
-<p>And even though Taira Kanna-ssi's panties were soaked with my saliva and her own pussy juice, so it didn't matter whether she wore them or took them off, she was wearing a layer of armor. This meant that she wasn't receiving 100 percent of my tongue's attacks.</p>
-<p>The reason I'm saying this excuse-like thing is....</p>
-<p>"Haaang...!"</p>
-<p>"Keuek, I'm cumming...!"</p>
-<p>It's because I had a one-on-one match of 69 with Taira Kanna-ssi, who was a novice at sex, and we almost reached our climax at the same time.</p>
-<p>*Byuuut! Byuuut! Byuuuut!*</p>
-<p>Because I hadn't had sex yesterday, the amount of semen was enormous. Because Taira Kanna-ssi had taken her mouth off my dick to let out a climactic moan, the semen that was shot out like a water gun soared into the air and then fell like rain due to gravity. Taira Kanna-ssi continued to bite my dick, as if she couldn't bear to lose any of it, without losing her mind from the climax.</p>
-<p>Taira Kanna-ssi, who had swallowed all of my pouring semen, licked her lips with her tongue and then looked at the semen that had fallen on my body.</p>
-<p>"The white semen falling on Onii-sama's brown skin is so.... sexy♡"</p>
-<p>"Could you not say things like the semen on my body is sexy?"</p>
-<p>Whether she heard my answer or not, Taira Kanna-ssi started licking up the semen that had fallen on my body with her tongue.</p>
-<p>"Euum, Onii-sama's baby batter, it's too good to waste...♡"</p>
-<p>*Haltchak, haltchak*♡</p>
-<p>Taira Kanna-ssi was just licking up the semen, but it was the same as caressing every part of my body. My dick, which had been in a semi-hard state after ejaculation, rose hard again.</p>
-<p>"Oh my...! According to what I learned in health and physical education, men don't get erect right away.... As expected, Onii-sama is amazing♡"</p>
-<p>Taira Kanna-ssi, seeing my erect dick, said I was amazing and grabbed my dick again, shaking it up and down.... Her eyes were filled with lewd heat.</p>
-<p>"Hehe.... Now that we've finished kissing each other, shall we move on to the next step?"</p>
-<p>I don't know when 69 became a kiss, but if 69 is a kiss, the next step was obvious. I opened my mouth to encourage Taira Kanna-ssi even more.</p>
-<p>"If we go any further, it's forbidden territory, Auntie...."</p>
-<p>"Hehehe.... Wasn't the action just now forbidden territory? And you're Yamashiro Ryuta-gun, aren't you? If a man and a woman of different surnames who like each other can mix bodies♡ It's 2053 now, you know?"</p>
-<p>Taira Kanna-ssi started taking off her underwear as if to show me. Taira Kanna-ssi's beautiful huge breasts appeared before my eyes with a *ppyoong*, and because her panties were soaked and translucent, her pussy, whose shape I was already familiar with, also showed its appearance to me.</p>
-<p>But Taira Kanna-ssi didn't take off her bridal veil and white lace gloves. A naked body with a bridal veil and see-through lace gloves.... Taira Kanna-ssi was definitely a connoisseur of perversion.</p>
-<p>"Hehe...! I'll give Onii-sama my first time."</p>
-<p>"I'm sorry, but I'm a worn-out man...."</p>
-<p>At my words, Taira Kanna-ssi's expression distorted for a moment, and she stroked my cheek.</p>
-<p>"Don't bring up other women... no. Stray cats in front of me. Because I might not be able to stand it anymore."</p>
-<p>Taira Kanna-ssi spoke in a chilling voice, and instantly, an enormous murderous aura filled the room. Considering the skills she showed in the fencing competition at the sports day before, the enormous strength she showed today, and the murderous aura now, Taira Kanna-ssi also seemed to be a considerable expert.</p>
-<p>"I can't help it. In this case, I have no choice but to poison Onii-sama with my body."</p>
-<p>I was also thinking of persuading her to release me with my body. We're thinking about similar things. The 69 just now was just a prelude. The real fight will be a battle of seduction (色鬪) that starts right now.</p>
-<p>Taira Kanna-ssi stood on top of my dick. And, as if telling me to watch carefully, she smiled lewdly and slowly started to sit down.</p>
-<p>Because my dick was already standing straight up, looking at the sky, all she had to do was aim (?) well and it would go right in, so there was no need to grab it and put it in the hole. But Taira Kanna-ssi didn't insert it right away.</p>
-<p>"Hehe, Onii-sama, did you think I would put it in right away?"</p>
-<p>Taira Kanna-ssi brushed past my dick and started rubbing her pussy against my dick shaft, like a stripper doing a pole dance. Since she's a virgin, it might be better to rub it like this to loosen it up a bit rather than inserting it right away.</p>
-<p>"Haaht...! It's hot and hard, and it's throbbing, Onii-sama's dick...!"</p>
-<p>Taira Kanna-ssi moved her waist up and down as if coating my dick with her pussy juice. When my dick looked completely wet, she lifted her waist again and matched her glans to her pussy. It seemed like she was finally entering the insertion phase.</p>
-<p>"Please accept my first time. Onii-sama."</p>
-<p>"Isn't it closer to a forced sale than accepting it right now?"</p>
-<p>"Yes♡ Onii-sama doesn't have the right to refuse?"</p>
-<p>As expected, my *tsukkomi* didn't work at all on Taira Kanna-ssi, who was a *yandere*. Taira Kanna-ssi, who dismissed my words, lowered her waist as it was.</p>
-<p>"Aaaah...!"</p>
-<p>I felt Taira Kanna-ssi's hymen being pierced right away in my dick as she inserted it deeply in an instant, but Taira Kanna-ssi tilted her head back and trembled, as if even the pain of her hymen being torn was a pleasure. It seemed like she had reached her climax just from the insertion.</p>
-<p>"Finally, finally...! I've embraced Onii-sama inside me...♡"</p>
-<p>Taira Kanna-ssi, still looking down at me with *yandere* eyes while having my dick inside her. She looked very happy.</p>
-<p>I didn't stay still. Only my arms and legs were tied, but my waist was somewhat free, so I started bouncing and twisting my waist.</p>
-<p>"Heuaht...! O, Onii-samaa?! St, haaht! I, *heuht*! Just now...! I, *heuhang*...! I went, so, haang♡ Don't move, *heueuheung*...! Please!!"</p>
-<p>Taira Kanna-ssi asked me not to move, but I wasn't going to listen to that. I had to aim for the moment when the virgin was weakest, when her hymen was torn.</p>
-<p>I continued to violate Taira Kanna-ssi's vagina, lifting my waist into the air.</p>
-<p>"*Heuuht*, *heueuheung*! Wait, haaht! Too...! Much, Onii-samaa...! Haaht! *Euhheut*♡ *Haaheueut*! I can't, *heuuht*! Get a hold of myself...♡"</p>
-<p>Taira Kanna-ssi begged me to please go slowly, but I didn't listen to her.</p>
-<p>Taira Kanna-ssi confidently told me that she would poison me with her body, but she was just a virgin with no sex experience. Like a puppy that doesn't know how scary a tiger is, she had to pay the price for her rash words about poisoning me in front of me, who could be called a sex master.</p>
-<p>____</p>
-<p>Saionji Diana-ssi's American flag bikini + jeans + armpit pics requested by RefundAbsolutelyImpossible-nim!</p>
-<p>Home Ec Teacher's American flag bikini + jeans + armpit pics!</p>
+<p>Oh, a second virgin...! That was a phrase befitting Lizhael's epithet, the conflicting boundary of chaos. When you think about it, 'second' and 'virgin' shouldn't be in the same sentence. Virgin means 'first,' and 'second' implies not being a virgin anymore.</p>
+<p>Of course, hearing Lizhael's logic, it wasn't entirely nonsensical. She made a new body, so naturally, if it's a new, unused body, it would have a hymen. And since it's her second body, it would be her second virginity. I'd actually be a little disappointed if she said her new body didn't have a hymen.</p>
+<p>Of course, hearing about the hymen didn't immediately make me want to spread Lizhael's legs and stick my dick in. Sex has its order, after all.</p>
+<p>"Rather than the hymen, I want to take Liz's first kiss first."</p>
+<p>"Uhehehe♥ As my partner, you can take any of my firsts."</p>
+<p>At my words, Lizhael stretched out her arms towards me, giving me a motherly smile as if telling me to hug her. Naturally, I didn't refuse, throwing myself onto the bed and embracing Lizhael.</p>
+<p>Just a light hug, and I already felt amazing with our bare skin touching. That's because Lizhael's skin was incredibly soft. Like soft, white rice cake, it had an extreme softness that sank in as you touched it, giving a cozy feeling when embraced.</p>
+<p>If just the feeling of her arms and legs was this good, I shuddered to think how her breasts would feel. Wouldn't I lose track of time just holding her breasts?</p>
+<p>"I missed you, Liz."</p>
+<p>"Partner, I missed you terribly while I was changing...♥"</p>
+<p>It hadn't been a long time since we were apart, but we told each other we missed each other and hugged tightly once more.</p>
+<p>Hugging tightly naturally brought our faces closer, and we naturally kissed.</p>
+<p>Chup.</p>
+<p>We gave each other a light kiss, what you might call a bird kiss, and then, with flushed faces, we looked at each other again before starting a deep kiss.</p>
+<p>Chubub, chup, chu-eup, chu-heup, chu-oop♥</p>
+<p>Of course, Lizhael, whose hardware was virgin but had kissed me countless times, gave me a kiss so lewd that we couldn't call it a first kiss. Just intertwining our tongues felt amazing.</p>
+<p>"Haa, haa.... Haa♥"</p>
+<p>We separated our tongues after a long time, seemingly reluctantly. A silvery line of saliva stretched and broke, and this time, I decided to touch Lizhael's breasts.</p>
+<p>As I held Lizhael's breasts, which were perfect in size and shape, I could see my fingers sinking in. Like a bottomless swamp, my fingers sank into her breasts. But it didn't feel limp or saggy at all; it was a bewitching breast with a chewy elasticity that stuck to my hand. Again, like her epithet, it was a transcendent breast with the conflicting sensations of softness and elasticity.</p>
+<p>Her nipples and areolas were a bit large, but it was appropriate considering the size of her breasts. If they were average size, it would have looked unbalanced.</p>
+<p>Just the sensation on my hands felt so good that my precum was flowing. Of course, Lizhael also seemed to enjoy my touch, her face flushed as she moaned.</p>
+<p>"Heueueung...! Your touch, partner, haaht! Feels so good, haaahng♥"</p>
+<p>Normally, I would have touched her for a bit and moved on to the next step, but the sensation of her breasts was so good that I kept touching them like I was playing with textures. Lizhael couldn't hold back and reached her climax, performing shiofuki.</p>
+<p>"Haaang! Partner...! Haaht, my breasts, heueung♥ Do you like them that much, haaahng...?!"</p>
+<p>I snapped out of it at Lizhael's words, who was asking me while squirting her fluids, pyut pyut. I seemed to have gotten so absorbed that I brought her to climax with just her breasts.</p>
+<p>"Haa, haa.... Now it's my turn, partner...♥"</p>
+<p>Perhaps because she was an Outer God, she recovered quickly from the aftereffects of her climax, laying me down and kneeling between my legs. Lizhael stared in awe at my massive hard-on, standing tall and dripping with precum, before starting to lick the shaft of my dick, coated in precum, as if licking sweet syrup.</p>
+<p>"Heueup...!"</p>
+<p>It felt so good I was going numb. It was just her tongue touching me, but whether it was because her tongue had barbs or suction cups, I got goosebumps every time her tongue grazed me.</p>
+<p>"I'll enjoy this, partner♥"</p>
+<p>Lizhael, who had licked all the precum coating my dick, opened her mouth and took my dick into it.</p>
+<p>Tzubeup...!</p>
+<p>"Keueu...! Feels good, Liz...."</p>
+<p>Lizhael took my dick all the way to the back of her throat from the start. Again, it felt amazing. I couldn't help but arch my back.</p>
+<p>At my words of pleasure, Lizhael smiled with crescent-moon eyes and shook her head more vigorously, shifting her fellatio into high gear.</p>
+<p>Tzubeup, tzeup, tzubeup, tzubeueup, tzeup...!</p>
+<p>It felt like my soul was being sucked out of my dick. Even while sucking, she didn't forget to stimulate my dick with her tongue, moving her throat, mouth, and tongue in diverse ways as if they were different creatures, starting to carve pleasure into me.</p>
+<p>"Keueut, I'm gonna cum, Liz...!"</p>
+<p>Tzeup, tzubeup, tzeup, tzubeup, tzeup, tzubeup, tzeup, tzubeup, tzubeup...♥</p>
+<p>Lizhael sped up her fellatio even more at my words that I was going to cum. With those movements urging on my ejaculation, I couldn't hold back and had no choice but to give Lizhael my semen.</p>
+<p>Byueut! Beut! Byueut! Beut!!</p>
+<p>It was a massive ejaculation that felt like my soul was leaving my body. Lizhael's cheeks puffed out for a moment, but she didn't spill a single drop of semen, swallowing it all as I shot.</p>
+<p>"Tzeueup...! Behe...♥"</p>
+<p>Lizhael spat out my dick and opened her mouth to show me my semen. My semen volume was so large that there was still semen left in her mouth besides what she had swallowed.</p>
+<p>After showing me my semen like that, Lizhael closed her mouth again and swallowed the semen inside. Naturally, my dick, which had almost lost its strength after ejaculating, regained its power and became stiff again at Lizhael's lewd actions.</p>
+<p>"Partner's essence is always delicious♥"</p>
+<p>Hmm, I didn't know my semen had a taste. She was licking her lips with a truly satisfied expression, making it feel like she had eaten a true delicacy.</p>
+<p>"I'll return the favor. Lie down again, Liz."</p>
+<p>To be honest, I wanted to insert it right away, but I thought I should stimulate her pussy directly and loosen her up a bit so it wouldn't hurt.</p>
+<p>Of course, the pain of her hymen tearing might be nothing to Lizhael, an Outer God, but as her first experience partner, I wanted to make Lizhael feel the best I could.</p>
+<p>I approached Lizhael, who was lying down as I told her and spreading her legs while looking at me. I was seeing Lizhael's virgin pussy for the first time because she had been keeping her legs together until now, and it was an incredibly pretty and lewd pussy.</p>
+<p>Lizhael's pussy, moist and wet, was tightly closed in a line, but when I spread it slightly, I could see the small, spread-out, pink labia minora and her gaping vulva. Because her skin was so white, her pink pussy looked incredibly stimulating.</p>
+<p>After watching Lizhael's moist virgin pussy for a while, I licked it with my tongue, sweeping across the entire pussy.</p>
+<p>Haljjak...!</p>
+<p>"Haeueuheuh! Partner-euh-euh...!"</p>
+<p>Just one lick with my tongue and her reaction was this intense, so her sensitivity was top-notch, and the taste was also top-notch. It had a refreshing taste without the slight fishiness that women should have. And it didn't feel strange at all; it felt like it had an aphrodisiac or tonic effect, my dick throbbing every time I licked.</p>
+<p>After licking her pussy for a while, I slowly pushed my finger into her vulva this time. From the entrance of her pussy, I could clearly feel an enormous number of bumpy protrusions, and even though it was my finger and not my dick, it was definitely the best pussy I had ever seen, gripping me tightly.</p>
+<p>I wanted to put my dick in right away, but I had decided to loosen her pussy up, so I pulled my finger out again. I felt like I might accidentally pierce Lizhael's hymen with my finger if I stayed any longer.</p>
+<p>Of course, I wanted to conquer Lizhael's hymen with my dick, so I pulled my finger out.</p>
+<p>This time, I found her hidden clitoris and licked it with my tongue. It was such a sensitive area that I licked around it before gently stimulating it, and Lizhael's reaction was unusual.</p>
+<p>"Heuaaaang...! Partner, not there...! I'm gonna cum, haaahng♥"</p>
+<p>She writhed her pelvis back and forth, feeling pleasure as if she was in pain, and as soon as I licked her clitoris, she started spraying her fluids all over my face. Her sensitivity is incredible. She was practically a premature ejaculator. Of course, her recovery was fast, so it wouldn't be a problem for enjoying sex.</p>
+<p>Pyut pyut! Pyut!</p>
+<p>My whole face was wet with Lizhael's fluids, but I didn't feel unpleasant at all. I just felt good that I had pleased this Outer God.</p>
+<p>"N-now that's enough, please come quickly, partner...♥"</p>
+<p>"I want to tease you a little more."</p>
+<p>When I told Lizhael, who was begging me to come, that I wanted to tease her with a playful expression, I heard Lizhael puff out her cheeks slightly and tell me not to joke around. I chuckled at her cute appearance and nodded.</p>
+<p>"I'm kidding. I'll put it in, Liz."</p>
+<p>"Please come inside me quickly, my beloved partner♥"</p>
+<p>Lizhael was spreading her legs and urging me on. I raised my body, grabbed the shaft of my dick, and aligned the head with Lizhael's vulva.</p>
+<p>___________</p>
+<p>I made a Kimono, requested by Mirmar2-nim, instead of a Shrine Maiden outfit or Kimono, because I've made Shrine Maiden outfits before, hehe.</p>
+<p>Zero Two Slingshot Bikini Lizhael and Belly Dancer Lizhael, requested by MidNightSKY-nim!</p>
+<p>Starting with the Slingshot Bikini~!</p>
+<p>Belly Dancer Lizhael</p>
+<p>Kkiyot!</p>
+<p>The Round Girl requested by Hwanbuljeoldaebulga-nim.... The AI didn't seem to have learned it, so it didn't come out well, ㅠㅠ</p>
+<p>No matter how much I tried, this was the best I could get, so I couldn't proceed any further, dㄷ</p>

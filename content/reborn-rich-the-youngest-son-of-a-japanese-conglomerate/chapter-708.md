@@ -5,108 +5,90 @@ weight = 708
 chapter = 708
 +++
 
-<p>There will be illustrations of underwear! Please check your surroundings!!</p>
-<p>,Huh? You even bought a Caped Baldy figure?"</p>
-<p>Minamoto Risa-ssi was watching me check out from the side, so she opened her mouth with a curious look, looking at the ○ne-Punch Man Caped Baldy figure I found in the excavation.</p>
-<p>,This is an excavation, they say it's a figure found in the ruins of Akihabara during the Third World War. So, it's quite a rare item made before the Third World War. Half of the cape flew away, but I bought it because the rest was intact."</p>
-<p>,There are also excavations? That's amazing."</p>
-<p>In fact, this was also Minamoto Risa's. I was planning to give it back as a gift once I received what I asked Eve for.</p>
-<p>,But where are you going while I'm paying?"</p>
-<p>,Ah, I was just going to walk around because watching you pay is boring."</p>
-<p>If you don't have anything to do, that's great. I was wondering when would be a good time to go, but I can go to the Am Sang Tokyo branch while Minamoto Risa-ssi is paying for the large amount of goods she bought at the store. I should deliver the acquired Jeonsugap and receive the Caped Baldy and related items I just bought.</p>
-<p>,Then, would you like to stop by the Am Sang Tokyo branch for a moment? It's close, so it won't take long."</p>
-<p>,Am Sang branch? Okay. I'll be back in a bit, so make sure you pay well."</p>
-<p>,Yes, please have a good trip."</p>
-<p>Minamoto Risa-ssi would have raised about a month's worth of sales by herself, so the store owner bowed politely almost to the level of a salute.</p>
-<p>We immediately left the building and took a taxi to the Am Sang Tokyo branch. When we came outside, the snow that had been falling since earlier had stopped. Looking at the sky, it didn't seem to have stopped completely as it was still cloudy, and it seemed to be in a temporary lull.</p>
-<p>,You're going to work for the company while attending Edo University?"</p>
-<p>,Yeah. I think that's how it'll be. Of course, I have to do well on the exams...."</p>
-<p>,Then, since you'll be staying in Tokyo, it's a good idea to know the location of the Am Sang Tokyo branch. You can easily get information or items that you can't get elsewhere."</p>
-<p>,Hmm.... Is that so? Well, the Minamoto Group's information team might not give me information, so the information side would be good."</p>
-<p>After having various conversations about Am Sang, we got out of the taxi and entered the Am Sang branch. Unlike Miyashi, where the branch was located in a love hotel village, the Tokyo branch was located among numerous skyscrapers, so Minamoto Risa-ssi looked around curiously.</p>
-<p>,Ryuta-nim! Risa-ssi~! Welcome!"</p>
-<p>When we entered the branch, Eve greeted us. I naturally placed the packaged Jeonsugap box on the table. I didn't want to talk about the energy weapon Jeonsugap in front of Minamoto Risa-ssi, so I just put it on the table. Eve also saw the Jeonsugap and nodded subtly, understanding my intention, and smiled.</p>
-<p>,First, please ship this Dragon Bull Shinryong figure to Miyashi's house."</p>
-<p>,Yes~! I'll charge you later."</p>
-<p>,Is Am Sang also capable of shipping?"</p>
-<p>When I asked Eve to ship the figure I bought in Akihabara and Eve said she would, Minamoto Risa-ssi, who was listening, asked with a curious look.</p>
-<p>,Of course. We also ship items sold by Am Sang, and if customers want, they can use Am Sang's shipping. Of course, it's more expensive than shipping from other above-ground courier companies, but the advantage is that you can ship without leaving a record."</p>
-<p>,Not leaving a record.... That's quite an advantage."</p>
-<p>Of course, since Am Sang is called a merchant of the underworld, shipping without leaving a record was mostly for drugs, weapons, and money used as bribes.</p>
-<p>,Is what I said ready?"</p>
-<p>,Of course~!"</p>
-<p>At my words, Eve clapped her hands. Then, something was brought on the shelf of a mobile robot, which was a figure that made the ruins into a miniature. On one side was the figure of Garo-oh, a monster-human and the main villain of one chapter.</p>
-<p>,What is it?"</p>
-<p>,Um, if you plug the Caped Baldy I bought at the store earlier here...."</p>
-<p>At Minamoto Risa-ssi's question, I plugged the Caped Baldy figure I got from the excavation earlier into the slot. Then, the Caped Baldy and Garo-oh stood facing each other, creating a plausible scene.</p>
-<p>Of course, Minamoto Risa-ssi had a pretty envious expression, but she couldn't bring herself to ask for it because it was something I bought.</p>
-<p>,Ah...! Is that why you wanted to come to Am Sang?"</p>
-<p>,Yeah. And this is also a gift."</p>
-<p>,Really? You're the best...!"</p>
-<p>Minamoto Risa-ssi was so excited at my words that it was a gift that she jumped up and down and hugged me. As expected, it was ○ne-Punch Man, which Minamoto Risa-ssi mainly fangirls over, so the reaction was on a different level than the ○ne-Piece figure from earlier. She really likes it a lot.</p>
-<p>,Hehe, you two look good together!"</p>
-<p>After being hugged for a while, Minamoto Risa-ssi, embarrassed by Eve's words, quickly broke the hug.</p>
-<p>,It's almost lunchtime, is there a good restaurant around here that's suitable for a date? If not around here, Akihabara is also fine."</p>
-<p>,Hmm.... Since it shouldn't overlap with dinner, what are you eating for dinner?"</p>
-<p>Eve asked about dinner as if she was going to answer my question in earnest. In fact, I had made a reservation for dinner, but I decided to eat lunch depending on the situation, so I asked Eve for a recommendation. As an Android capable of processing big data, Eve will recommend a good lunch.</p>
-<p>,I'm going to a Japanese French course restaurant for dinner."</p>
-<p>,Then, there's a sushi restaurant on the way to Akihabara that has good reviews from couples. I'll send you the location with the Am Sang app."</p>
-<p>,Thank you, Eve."</p>
-<p>Eve shared the location of the restaurant with me, and Minamoto Risa-ssi and I came out of the Am Sang branch. For reference, Eve decided to send the figure set gift I gave to Miyashi as well.</p>
-<p>We immediately took a taxi and went to the sushi restaurant that Eve told us about. It was a pretty well-reviewed place, but it was a weekday and the price range was somewhat high, so we were able to enter the store without waiting.</p>
-<p>,But what did you tell your family and come to Tokyo?"</p>
-<p>,Um, I came saying that Shii and I are going to hang out in Tokyo for a day. Shii-yang happened to have something to do in Tokyo, so I could match my alibi."</p>
-<p>When I sat down and asked Minamoto Risa-ssi what I was curious about, Minamoto Risa-ssi said that she came to Tokyo using Seizawa Shii-ssi as an excuse.</p>
-<p>Seizawa Shii-ssi is in Miyashi, so she went to Tokyo to do requests that she couldn't do much, so she's probably happily getting the blood of villains on her fists right now.</p>
-<p>We tasted the sushi that the sushi chef gave us one by one and had a conversation. It wasn't a special topic, but it was everyday conversation like what happened during school life or what I did in the early days of vacation.</p>
-<p>After finishing lunch and going to Akihabara, the store owner, who was waiting with an anxious expression, worried that we might just ask him to pay and not come, changed to a relieved expression and greeted us.</p>
-<p>,I was worried because you didn't come...!"</p>
-<p>,Did you think I just left? Is the payment done?"</p>
-<p>,Oh~! I wasn't worried, I was really worried if something happened to the customer. The payment is done, the price is...."</p>
-<p>,Here's my card, just give me the receipt."</p>
-<p>Minamoto Risa-ssi coolly handed over her card without even listening to the price. I was curious about how much it would cost to give me everything here, so I looked at the receipt that the store owner handed over, and it came out to a little over 4 million yen.</p>
-<p>It seemed that the price was that much, excluding duplicates, among the things in the entire store and the ○ne-Punch Man section. I don't know if it's expensive or cheap.</p>
-<p>Even though I became a Tairaga and made a lot of money, I don't think I can spend this much money on hobbies because my fundamental values haven't changed yet. Even though I was discriminated against as an illegitimate child, the young lady who grew up in a chaebol family from a young age was different.</p>
-<p>,Please ship it right away."</p>
-<p>,Of course! I'll entrust it to the fastest place possible!"</p>
-<p>After checking the delivery again, we left the store. Since we just finished eating, we took a walk around Akihabara and looked around, and in the middle, we left Akihabara, took a taxi, and then went to a cafe famous as a date course and had a pleasant date.</p>
-<p>,It gets dark quickly in winter."</p>
-<p>,Yeah, it's definitely better because the atmosphere is better when it gets dark."</p>
-<p>The decorated trees and lights in every street gave off a much more Christmas atmosphere than during the day. We were intoxicated by the Christmas atmosphere, holding hands and walking, and arrived at Tokyo Skytree.</p>
-<p>I chose Tokyo Skytree as the last course of today's date, and I made a reservation in advance at a restaurant in Tokyo Skytree to have dinner while watching the Christmas night view.</p>
-<p>Even in 2053, it is still the tallest structure in Japan, and it became a topic of conversation because it was not destroyed during the Third World War.</p>
-<p>Some people said that Tokyo Skytree, which was not destroyed even during the war, symbolizes the indomitable spirit of the Japanese people, but in fact, it was just lucky that it missed the bombing location.</p>
-<p>The restaurant was located on the 350-meter observatory, and as expected, it was Christmas Eve, so couples occupied most of it.</p>
-<p>,The night view is pretty."</p>
-<p>,It is."</p>
-<p>We were guided to a seat with a good view of the Tokyo night view. I gave a little more money to ask for a seat with a good view of the night view, so I was guided to a seat with the best view of the sparkling Tokyo scenery. It started snowing again as it got dark, making the Christmas atmosphere even thicker.</p>
-<p>We looked into each other's eyes or smiled and shared emotions while eating the course meals that were being served. After eating like that for a while, Minamoto Risa-ssi suddenly laughed, puhe.</p>
-<p>,Why?"</p>
-<p>,You're a glutton. Will you be full with this?"</p>
-<p>Ah, is that why you laughed? I chuckled and shook my head.</p>
-<p>,Of course not. I'm going to stop by a convenience store and buy something to eat when I go to the hotel after eating everything."</p>
-<p>It was a date, so I couldn't ask for a lot at the course meal restaurant, so I stayed still, but considering the calorie consumption tonight, I had to eat a little more.</p>
-<p>After receiving the course meal and receiving an explanation about the meal, the meal time alone passed by more than 2 hours. We finished eating, took pictures standing on the transparent floor on the 340-meter observatory, and came down from the Skytree.</p>
-<p>,I'm not scared of the transparent floor at all because I flew with you."</p>
-<p>Minamoto Risa-ssi, who had been drinking the paired wine with the meal, came a little closer with a flushed face. Her pronunciation was a bit strange because her tongue was twisted, but that appearance was also quite cute.</p>
-<p>On the way to the hotel, we stopped by a convenience store, bought what we wanted to eat, took a taxi, and quickly entered the hotel.</p>
-<p>There was a strange atmosphere between Minamoto Risa-ssi and I, who checked in and quickly entered the hotel room.</p>
-<p>Because she was a virgin, Minamoto Risa-ssi seemed awkward in this situation even though she was drunk.</p>
-<p>,Are you good at massage?"</p>
-<p>,Huh? Well, I'm pretty good."</p>
-<p>In fact, I had never learned massage, but I nodded my head, saying that I was good at Minamoto Risa-ssi's question. I felt like I had to.</p>
-<p>,My legs hurt because I walked a lot today. You massage me."</p>
-<p>Minamoto Risa-ssi said with a shy expression. It was a perhaps virgin-like tactic to create a justification for me to touch Minamoto Risa-ssi's body.</p>
-<p>,Shall I? Lie down. I'll rub it without hurting you."</p>
-<p>,Uung.... I'll take off my clothes first."</p>
-<p>,Okay, I have to massage you, so I'll go wash my hands."</p>
-<p>While Minamoto Risa-ssi was taking off her clothes, I went to the bathroom and washed my hands. I was finally about to reap the fruits of my labor for several months. Since I was already alone with her in the hotel room, there was almost no chance of failure, but I was a little nervous.</p>
-<p>I washed my face to relieve my tension and came out. I couldn't help but pause at the sight of Minamoto Risa-ssi.</p>
-<p>,!"</p>
-<p>In the middle of the hotel, Minamoto Risa-ssi was waiting for me wearing white underwear that contrasted with her light brown skin. I guess taking off her clothes that Minamoto Risa-ssi said didn't mean taking off her outerwear.</p>
-<p>Gulp.</p>
-<p>I swallowed hard without realizing it at Minamoto Risa-ssi's surprise attack(?).</p>
-<p>_____</p>
-<p>Risa-ttang's underwear B-cut!</p>
-<p>I liked it, but dark stockings should come out for the date outfit, but white stockings came out, so it was rejected~! Dark stockings didn't come out well because it was white underwear ㅠㅠ</p>
-<p>Big-breasted Risa-ttang.</p>
+<p>I arrived on the 15th floor, but the Red Revolution Front terrorists were already gathered to capture Lara Sinclair and her group, so it was difficult to know where Lara Sinclair and her group were just by sensing their presence. This was because the entire 15th floor was swarming with people, making it difficult to tell who was with Lara Sinclair and who were Red Revolution Front terrorists.</p>
+<p>But just then, shouts and gunshots began to be heard from afar, as if Lara Sinclair's group had been discovered.</p>
+<p>,Where should I go?</p>
+<p>Due to the nature of this laboratory, it was wide and the paths were narrow, making it feel like a maze, so I didn't know where to go to reach the source of the commotion.</p>
+<p>,There's no other way.</p>
+<p>Then there's only one way. I muttered and gathered strength in my whole body. Then, I started running, breaking through the walls towards the direction where the sound was loudest.</p>
+<p>Kwang! Kwang! Kwang! Kwang!</p>
+<p>When I broke through several walls with my body. The sound was also getting louder, so the location started to become more specific, making it easier to find the direction. If I had just looked for a path and moved along it, it would have taken more than ten times longer than breaking through the walls.</p>
+<p>Kwaaaang!</p>
+<p>,Surprise, Motherfucker!</p>
+<p>I made my appearance while shouting in English, "Surprise, Motherfuckers!" so that even the Chinese could understand. I can't speak Chinese, so I said it with the feeling that they would understand at least this much.</p>
+<p>Lara Sinclair's group was holding long, large rectangular shields suitable for riot control, blocking both sides of the path, and Lara Sinclair was firing from the middle, which seemed like a dangerous situation at first glance.</p>
+<p>The eight escort agents I had sent with her had been reduced to two, and considering that Lara Sinclair, who was firing from the middle, didn't have many guns, it seemed like she wouldn't be able to eliminate all the Red Revolution Front enemies gathered here, and the enemy was approaching, about to snatch the shields away.</p>
+<p>,Let's say hello after we finish this situation.</p>
+<p>I spoke to Lara Sinclair and immediately threw a punch at the enemies.</p>
+<p>-Deep Sea Eight Hands (Shenhai Bashou) Touching Heart, Breaking the Sky.</p>
+<p>In a straight passage like this, there was no better technique than Touching Heart Breaking Sky, where a giant tentacle-shaped energy extends in a straight line.</p>
+<p>Kwakwakwakwa!</p>
+<p>The enemies swept away by the dark abyss's currents didn't even leave a trace. Of course, the enemies who were "lucky" enough to only have a part of their body swept away disappeared, leaving only the remaining body parts like in a B-grade horror movie.</p>
+<p>After clearing the enemies on one side of the passage with a single punch, I looked at the other side. The enemies on the other side were across from Lara Sinclair's group, but they were frozen in surprise after seeing me knock down over a hundred enemies with a single gesture.</p>
+<p>I can't use Touching Heart Breaking Sky here. Lara Sinclair's group is in the middle, so they could get swept away.</p>
+<p>-Shadow Domination Black Spear (Black Spear).</p>
+<p>I used Shadow Domination, which I found useful in today's Lara Sinclair rescue operation. The rapidly increasing shadows became black spears and soared from the ground.</p>
+<p>,Kuaaak!</p>
+<p>The enemies who were hit by Touching Heart Breaking Sky probably died without even knowing they were dying, but the enemies who were hit by the Black Spear died in agony with fist-sized holes in their bodies.</p>
+<p>,Are you okay?</p>
+<p>I quickly defeated the enemies approaching from both sides of the path and asked Lara Sinclair as I approached her.</p>
+<p>,Psychic power, evaluation readjustment... Positive. Need to understand the mechanism.... If you're asking if Lara Sinclair is okay, Positive. But the escort team suffered 6 casualties.</p>
+<p>Lara Sinclair, who had been muttering to herself for a moment in response to my question, told me about the current situation.</p>
+<p>,There are still many enemies on the 15th floor, so let's move.</p>
+<p>,Condition, I don't recommend immediate escape. Based on what I've gathered after briefly accessing this building's system, there seems to be a data center-like place on the 21st floor underground.</p>
+<p>Huh? There was a 21st floor? The information I knew was that the 20th floor, where the Red Revolution Front's leader Gao Xiang was, was the end, but it seemed like there was a hidden passage.</p>
+<p>Well.... That's why I couldn't get data on Jeonlang products here in the game either. Since one of my goals from the start was to catch Gao Xiang and get the bounty, it seemed like I could go to the 21st floor while going to the 20th floor.</p>
+<p>,Since we came down to the 15th floor anyway, let's go to the 21st floor.</p>
+<p>,Positive. If we came here and returned without getting anything, the sacrifices of the escort agents would be meaningless.</p>
+<p>She's saying things that don't sound like an android at all.</p>
+<p>,First of all, the group that came with us will be coming up the stairs, so I think we should help them. Lara Sinclair and the others have had a hard time, so please rest first.</p>
+<p>,Then I will go to the passage with the stairs and rest in a nearby room. So that I can go down immediately at any time.</p>
+<p>It's definitely far from the stairs here, so it would be better to wait nearby. I guided Lara Sinclair's group to a room near the stairs (of course, I kindly sent all the Red Revolution Front terrorists I met along the way to the afterlife) and went up the stairs.</p>
+<p>I quickly went up the stairs, defeating the enemies I met one by one, and met I Yeon-ju and the rescue team around the 7th floor. Still, they were elites, so it seemed like no one was injured or killed.</p>
+<p>,I've rescued Lara Sinclair and cleared the stairs, so let's go down.</p>
+<p>,Aren't we escaping right away?</p>
+<p>,Since we came all the way here, she said let's get the data as originally planned.</p>
+<p>I Yeon-ju asked why we weren't leaving right away, but I made an excuse using Lara Sinclair.</p>
+<p>,Okay, I understand. Let's go down.</p>
+<p>I Yeon-ju sighed softly and nodded. She seemed to think it would be okay since I was there.</p>
+<p>,Thank you for coming all the way here.</p>
+<p>Lara Sinclair politely greeted I Yeon-ju and the rescue team. But why is she speaking informally to me with "positive" and "negative" when she can speak so naturally like this? Of course, everyone except I Yeon-ju doesn't know that Lara Sinclair is an AI android, so she might be speaking like that to hide it.</p>
+<p>,Let's go down quickly. The enemies might know that we're going down. It would be better to go down before the enemy prepares.</p>
+<p>,I've already told the Red Revolution Front's radio that we're going up.</p>
+<p>I Yeon-ju said as I urged her. It seemed like it could cause confusion for a while, though not completely.</p>
+<p>We ran down the stairs and quickly arrived at the 20th floor underground.</p>
+<p>,There's no staircase going down to the 21st floor?</p>
+<p>As expected, my memory wasn't wrong. As far as I knew, there were only 20 floors, so if there was a staircase to the 21st floor, I would have definitely explored the 21st floor.</p>
+<p>,There must be a hidden passage to the 21st floor.</p>
+<p>She's speaking like a human, probably because there are many eyes watching.</p>
+<p>,Then let's go to the 20th floor.</p>
+<p>I Yeon-ju seemed a bit impatient after coming to the lowest floor and tried to open the doorknob of the 20th floor, so I grabbed her wrist. There's a boss on the 20th floor, so I need to warn them. If we just go in recklessly, everyone except me could suffer great damage, so I needed to prepare in advance.</p>
+<p>,Wait.... The Red Revolution Front's boss Gao Xiang might be on the 20th floor. I heard from the information I obtained that he's quite strong, so please everyone prepare a bit.</p>
+<p>,There's nothing to prepare.</p>
+<p>,The research team also seized guns and bullets while coming, so we're fully prepared.</p>
+<p>The agents who use TG Tech weapons had large-capacity energy magazines, so there was no need to worry about running out of bullets. They also had several spare energy packs, so they had plenty of ammunition.</p>
+<p>Lara Sinclair's team, who had used up all their consumables while escaping and were short on bullets, seized enough bullets and guns that matched the specifications from the Red Revolution Front terrorist corpses, so it seemed like they wouldn't be short on bullets for the remaining battle.</p>
+<p>,Then I'll open the door.</p>
+<p>Click.</p>
+<p>The door opened and there was a huge room. There, a cyborg that looked like a mechanical golem, almost 4 meters tall, was standing, and next to it, Red Revolution Front executives, who had also modified their entire bodies with steel cyber implants, were lined up.</p>
+<p>As expected, the most noticeable among the lined-up enemies was the leader, Gao Xiang. Not only was he large, but he had painted his entire body red to match the name of the Red Revolution Front, so he couldn't help but stand out. Fortunately, there were no attributes that made him faster just because he was painted red, so there was no need to be careful about speed.</p>
+<p>,I was wondering how far you would come, but you finally came this far.</p>
+<p>The giant cyborg that looked like a mechanical golem, Gao Xiang, the leader of the Red Revolution Front, opened his mouth when he saw us. Of course, Gao Xiang spoke in Chinese, but Lara Sinclair, who was standing next to him, translated it at the level of simultaneous interpretation.</p>
+<p>,What did you come for? Did you come for the bounty on my head?</p>
+<p>,We came for the data of the company Jeonlang that used to be in this place. We didn't even know you were here.</p>
+<p>I answered Gao Xiang's question. In fact, it was true that I came for the bounty, but the others came for Jeonlang's research data, so I answered as if I didn't know.</p>
+<p>When Lara Sinclair conveyed my words as they were, Gao Xiang started laughing like crazy. I don't know what's so funny about my answer. Maybe he replaced too much of his body with machines, so Gao Xiang's sense of humor is a bit different from that of ordinary humans.</p>
+<p>,Hahahaha! Jeonlang? Hehe, it's true that this used to be Jeonlang's laboratory, but there wasn't much data. You've come to a place where you'll die without getting any data.</p>
+<p>,He's laughing at a strange point. Isn't he crazy?</p>
+<p>I just muttered to myself, but Lara Sinclair even translated my muttering and conveyed it again, so the executives standing next to Gao Xiang started cursing at me, getting angry as if they were about to rush at me.</p>
+<p>,It seems like we can't avoid a battle anyway. And I have something to say.</p>
+<p>,Yes?</p>
+<p>,What?</p>
+<p>I suddenly looked around at my group and spoke, so they looked at me with an atmosphere of "What are you trying to say here?"</p>
+<p>,Please keep what happened here on the 20th floor a secret.</p>
+<p>I said that to my group and started pouring the abyss into the black bracelet on my wrist, the Abyss Lord's combat equipment.</p>
+<p>____</p>
+<p>Reason for being a little late today</p>
+<p>If Google Docs exceeds 200 pages, it keeps crashing ㅠㅠㅠ</p>
+<p>SD series, Awakened Yukiko!</p>
+<p>I made three versions ㅎㅎ</p>

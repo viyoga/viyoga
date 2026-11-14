@@ -5,87 +5,94 @@ weight = 758
 chapter = 758
 +++
 
-<p>After meeting Diana Richie and returning home for dinner, feeling a bit bored, I took out my passport and driver's license from my briefcase and took pictures.</p>
-<p>-Jin Yong-tae: Photo</p>
-<p>-Jin Yong-tae: It's my passport and driver's license. Do you like the name?</p>
-<p>I verified my passport and driver's license to Han Yu-gyeong, who gave me the name Dante, and sent her a KakaoTalk message. Since a last name and middle name were added to the name Han Yu-gyeong gave me, I wanted to get her evaluation.</p>
-<p>-Han Yu-gyeong: Dante Lee Aster? Since middle names aren't usually mentioned, Dante Aster? Hmm.... Does it suit you? Saying it out loud, it sounds pretty good?😘</p>
-<p>Han Yu-gyeong seemed to have said my American name out loud, so her reply was a bit slower than usual. But it seemed she didn't dislike the name.</p>
-<p>-Jin Yong-tae: I'm glad Yu-gyeong thinks it's okay❤️ Did you resolve the former president of Shingang Life Insurance's issue well?</p>
-<p>-Han Yu-gyeong: Yep~! I recovered all the money the former president embezzled and got some information too.</p>
-<p>From the story that she recovered the embezzled funds right away, it seemed she used violence rather than legal measures to get it back. It would take a lot of time to recover the money through legal measures after all.</p>
-<p>I decided not to ask if the former president was safe. I didn't have the hobby of ruining the mood by asking about something I already guessed.</p>
-<p>As I was chatting with Han Yu-gyeong on KakaoTalk and finishing dinner, I heard the sound of the front door opening. It was Sakagami Rena and Naruse Shiyo. Seeing two of the Seo leaders of Joseodang come, it seemed they came for information work.</p>
-<p>"Did you eat dinner? I just finished eating."</p>
-<p>"We ate too, Jugun-nim."</p>
-<p>"We solved it at a convenience store, Sensei~!"</p>
-<p>Even though they're young ladies from prestigious families, they're eating dinner at a convenience store... It seemed like juggling academics and information team work was a bit tough. I feel sorry for no reason.</p>
-<p>"I'm sorry."</p>
-<p>"For what?"</p>
-<p>"Because you couldn't have a proper dinner because of me and ate at a convenience store."</p>
-<p>"Huh? We wanted to eat at a convenience store, so we ate there?"</p>
-<p>They didn't understand what was wrong with my apology. Looking at their expressions, it seemed they really wanted to eat there. Even young ladies from prestigious families with high-class tastes sometimes want to eat stimulating convenience store food.</p>
-<p>"Well then, never mind... Look at this."</p>
-<p>To change the awkward atmosphere, I showed Sakagami Rena and Naruse Shiyo my American passport and driver's license. Since they were one of the three leaders of my information team, I had to let them know that I became an American.</p>
-<p>"...Dante Lee Aster? Sensei, did you become a Yankee?"</p>
-<p>"Yankee... I received the new identity I said I'd get before."</p>
-<p>"America also realized Jugun-nim's greatness. They chose to be on the same team rather than antagonize Jugun-nim."</p>
-<p>After talking about my American identity for a while and reviewing the documents, they revealed the reason they came to my house.</p>
-<p>"We came to inform you of an update on the investigation of Takakusaki Athena that Jugun-nim ordered."</p>
-<p>Ah... The Takakusaki Athena case. When I ordered the investigation of Takakusaki Athena, it was to prepare for the fact that Takakusaki Athena's energy was the opposite of the Abyss.</p>
-<p>Of course, now that the Abyss has disappeared, the threat is less than before, but it would be good to check in case my master Fujigasaki Rinka might be harmed by Takakusaki Athena.</p>
-<p>"Okay, tell me."</p>
-<p>"The place believed to be Takakusaki Athena's origin is thought to be Finland in Northern Europe. After all, Takakusaki Gengo was dispatched to Finland, which sided with Russia during World War III."</p>
-<p>Sakagami Rena started telling me the story. In fact, Naruse Shiyo wouldn't have been able to pay attention to the information side because she was training during vacation, so Sakagami Rena or Asada Ei must have done most of the investigation.</p>
-<p>Takakusaki Athena was a girl that Takakusaki Gengo brought back from a mission when he was the vice-commander of the Japanese Special Task Force. Judging by her appearance, I thought she might be from America or Europe, but it seemed likely that she was from Finland in Northern Europe.</p>
-<p>"There is also a mission to deploy to Finland in the Special Task Force's directive here. Since the adoption of Takakusaki Athena overlaps with that time, there is a high possibility that she is a Finnish girl. Of course, the possibility that she is from Sweden, Estonia, or Russia, which border Finland, cannot be ruled out, but we are still primarily reporting on Finland."</p>
-<p>"Is that all?"</p>
-<p>I asked, wondering if it was the end with finding out her nationality, and Sakagami Rena shook her head as if there was more. They investigated further from here? That's amazing?</p>
-<p>"No, there's more. Since she was adopted at the age of 8, she became Takakusaki following Takakusaki Gengo, but we thought there was a high possibility that she kept her name, so we first checked the Finnish data for reports of a girl named Athena who died or went missing. As a result of the confirmation, we have identified about five cases in total. From now on, we will dig into these five deaths and missing persons cases."</p>
-<p>"Excellent. Thank you for your hard work, everyone."</p>
-<p>I praised Sakagami Rena and Naruse Shiyo, stroking their heads.</p>
-<p>Sakagami Rena comfortably enjoyed my touch like a puppy being petted by its owner, but Naruse Shiyo, who probably wasn't very helpful to the information side because she was training, was restless, looking at me a bit. It seemed she was a bit embarrassed to receive praise for something she didn't do.</p>
-<p>"Um... Sensei. I didn't help with the information side because I was training?"</p>
-<p>"You're also a member of Joseodang. The merits of the Naruse family members who are currently working as general informants can also be said to be Shiyo's merits, so you deserve to be praised. Instead of receiving praise now, step up in earnest later."</p>
-<p>"I understand, Sensei!"</p>
-<p>Naruse Shiyo, who had been enjoying my petting, clenched her fists tightly and made a resolution when I said it was okay and that she could do well in the future.</p>
-<p>"It seems like that direction is right for Takakusaki Athena, so keep digging, and also find out more about the Special Task Force where Takakusaki Gengo was the vice-commander."</p>
-<p>For some reason, I felt like it would be important, so I asked them to investigate the Special Task Force as well as Takakusaki Athena. Sakagami Rena nodded reliably as usual, and Naruse Shiyo resolved to be active this time.</p>
+<p>I returned home, took a shower, changed into comfortable clothes, and waited. Soon, Sakagami Rena, Naruse Shiyo, Saionji Diana, Alik, and Otagi Yuka changed their clothes and came to my house.</p>
+<p>,Ryutta...!</p>
+<p>I stroked Alik, who ran over and hugged me tightly, and sat him on my thigh. Otagi Yuka glared at me slightly.</p>
+<p>,Is Alik a cat or a dog?</p>
+<p>,Alik, woof woof...?</p>
+<p>,No, Alik is Alik.</p>
+<p>,Yeah, Alik is Alik...!</p>
+<p>Otagi Yuka, who was watching me and Alik talking, hesitated a little and opened her mouth.</p>
+<p>,But now Alik too....</p>
+<p>,Alik too?</p>
+<p>,Because Alik has grown a bit more during the vacation....</p>
+<p>Ah, I think I know what Otagi Yuka is trying to say. In fact, until before the vacation, Alik had a slightly youthful feel, but after the vacation, her development progressed further and she became a hot-bodied Russian girl, so it seemed like she was telling me to treat her a little more carefully.</p>
+<p>But no matter how much her body has changed to be more feminine, Alik's inner self has not changed. Rather, if I pushed Alik away because I was being careful, it seemed like Alik would be hurt.</p>
+<p>,Oh, never mind. I'm not the one to talk, since I drink Mr. Teacher's milk every day.</p>
+<p>Otagi Yuka was about to say something more, but when I and Alik just stared blankly, she sighed softly as if it was nothing and sat down.</p>
+<p>To talk a little more about Alik, whose body exploded in growth during the vacation, Alexandra, the mid-boss of the No. 1 Group in the game, had a much more explosive body than the current Alik.</p>
+<p>In my opinion, it seemed like she had that kind of body because of additional bio-modification. Alik is an adult now, so I don't think she'll grow any more from here.</p>
+<p>In fact, it was amazing that her body improved during the vacation itself. It feels like girls start developing earlier than boys and end earlier.</p>
+<p>Maybe Alik didn't eat much while wandering around the north of the Korean peninsula, the land Russia paid instead of reparations after the war, so she didn't grow as much as she has now.</p>
+<p>,Shall we hear the story then?</p>
+<p>,Ah, yes...! I'll explain!</p>
+<p>Naruse Shiyo said, getting up with a slightly nervous expression. Seeing Sakagami Rena looking at her with an interesting expression, it was clear that she had told Naruse Shiyo, as one of the executives of the Joseodang, that she should be able to report information to me.</p>
+<p>,First of all, how far did I explain last time?</p>
+<p>,Ah, it's that Takakusaki Athena is presumed to be from Finland, and that Takakusaki Gengo was a girl he brought from a mission when he was the deputy commander of the Japanese Special Task Force.</p>
+<p>Um, that's right. I only knew that Takakusaki Athena looked like a Western Caucasian, but as a result of the last tracking, it was revealed that she was likely to be Finnish.</p>
+<p>,Then this time?</p>
+<p>,According to the Joseodang's investigation, Takakusaki Athena seems to have been the daughter of the Mannerheim family. It's a famous family in Finland, but it seems to be from a collateral family, not the main family.</p>
+<p>Then Takakusaki Athena's original name is Athena Mannerheim? Naruse Shiyo handed me a photo. It was a photo of a family, a seemingly affectionate couple, a daughter who looked about 8 years old, and a son who looked a little younger.</p>
+<p>The daughter's appearance resembled Takakusaki Athena, and above all, she resembled Takakusaki Aneta and the mother in the family photo so much that I wouldn't doubt that they were the same person. It seemed certain that it was Takakusaki Athena.</p>
+<p>,It's a photo obtained by searching the abandoned house where the Mannerheim family lived. It's not that we obtained the photo, but we obtained the data and developed it.</p>
+<p>Since a girl named Athena disappeared, it seemed like they went around several houses in Finland to find out. If it's an abandoned house, did Takakusaki Athena get kidnapped and move somewhere? Or....</p>
+<p>,And.... There are circumstances that Takakusaki Gengo killed the entire Mannerheim family and took Takakusaki Athena with him.</p>
+<p>,He killed the whole family?</p>
+<p>I had a hunch, but that ominous prediction came true, and my mouth tasted quite bitter. I thought Anya just kidnapped boys and girls like that, but I thought Takakusaki Athena was just kidnapped, but it wasn't, he killed the whole family and took her to Japan.... As expected, Takakusaki Gengo was a cruel man.</p>
+<p>,Why did he kill them?</p>
+<p>,It's not accurate, but it seems like he was worried that the Mannerheim family would be a historically deep-rooted family in Finland, so they would mobilize the main family and track him down to the end.</p>
+<p>It's quite surprising information, but there are still many things that haven't been clarified. Why did it have to be Takakusaki Athena? Why did he have to kill the entire family and take Takakusaki Athena with him? Why did Takakusaki Gengo abandon his position as deputy commander of the Japanese Special Task Force even though the war wasn't over yet? The questions about the same stories did not disappear.</p>
+<p>,Is there any more information?</p>
+<p>,Yes. It seems like it will take more time to find out about Takakusaki Gengo's activities in the Japanese Special Task Force, which you ordered together before.</p>
+<p>According to what I heard before, the Japanese Special Task Force seemed to have carried out operations with force not only against enemy countries but also against allied countries during World War III, so the Japanese government must have hidden it tightly. Or they erased its existence altogether.</p>
+<p>,However, I heard rumors about the person who was the commander of the Japanese Special Task Force. There was a story that he was stronger than Takakusaki Gengo.</p>
+<p>,That could be true. So Takakusaki Gengo is the deputy commander, not the commander.</p>
+<p>Of course, it's been quite a while since Takakusaki Gengo threw away his position as deputy commander, so it has nothing to do with Takakusaki Gengo now, but it was still necessary to know about the strong people in advance.</p>
+<p>,Then investigate that commander as well. It's not necessary information, but it could be useful information.</p>
+<p>,Okay. Just leave it to me, Teacher!</p>
+<p>Naruse Shiyo, who had finished her information report quite well, sat down with a slightly proud expression. Sakagami Rena was smiling like a mother with a proud expression. It seemed like she felt like she had taught her friend well.</p>
+<p>,So, what's left is to find out what kind of power Takakusaki Athena has, Takakusaki Gengo's activities during his time in the Japanese Special Task Force, and the unknown existence of the commander of the Japanese Special Task Force, right?</p>
+<p>,Yes. But it seems like it will take quite a while to find out all three.</p>
+<p>When I pointed out what I would find out next, Sakagami Rena said as if it would be difficult right away. Of course, I knew.</p>
+<p>The power that Takakusaki Athena has is either a trait or the power of an Outer God, but it will be very difficult to obtain that information. It would be faster to capture her and check with the glasses in the ruins, and the Japanese Special Task Force side has to forcibly pull out what the Japanese government is hiding, so it was also a difficult mission.</p>
+<p>,Let's try to find it easily and give up if it doesn't work. Because the remaining things are not important information. Especially for the latter information, please find out without stimulating the Japanese government.</p>
+<p>,Understood, my lord.</p>
+<p>The summary of the information I heard today is roughly finished. Now, based on the information I have obtained, I had to talk about where to use this information.</p>
+<p>,Then, based on this information.... We might be able to induce Takakusaki Athena to betray Takakusaki Gengo?</p>
+<p>,If the story goes well, we might be able to bring her to our side altogether.</p>
+<p>If Takakusaki Athena heard the story we found out, it was highly likely that she would not continue to follow Takakusaki Gengo, who was the enemy of her parents and siblings, so it was natural to try to work on this side.</p>
+<p>,Then, above all, Takakusaki Athena's contact information or current location is important.</p>
+<p>,That's right. Anya might attack again at any time, so set Takakusaki Athena's location and contact information as a high priority.</p>
+<p>It was conveyed to Anya that I was a disciple of Fujigasaki Rinka, and there were also disciples protected by Kujo Kina, so it was a situation where Anya could attack at any time.</p>
+<p>,Then, since we've roughly finished, shall we watch a movie for the first time in a while?</p>
+<p>It was still a long time until dinner, so I decided to watch a movie with the students for the first time in a while. There were a few new movies on Ratflix, so there must be something fun.</p>
+<p>,Okay!</p>
+<p>,I'll make popcorn!</p>
+<p>,Alik will.... Buy nachos.</p>
+<p>,Should we get beer and soda too?</p>
+<p>The remaining students, who had been quiet until just now, got up from their seats as if they were excited. Except for Sakagami Rena and Naruse Shiyo, the remaining students were just like combatants, so they had no choice but to just listen in on the information side, so they must have been restless.</p>
 <p>###</p>
-<p>The place that Taira Kanna reserved was a place that cooked fresh seafood, which was rare in Miyashi. After looking it up on the internet in advance, it was a place that served not only sashimi and sushi, but also clear fish soup cooked in the traditional Japanese style and neatly grilled fish.</p>
-<p>"Eat as much as you want, Oraboni. I already know that Oraboni is a big eater~♪"</p>
-<p>Taira Kanna, who was sitting across from me, looked very happy. Did something good happen?</p>
-<p>She had her usual appearance of Taira Kanna, with her navy blue side ponytail, seemingly affectionate but slightly empty eyes when you look closely, and a smile that also seemed affectionate but somewhat doll-like, but still, something was different from usual.</p>
-<p>Somehow, she felt a bit excited? There was a feeling that I couldn't express in words.</p>
-<p>"The food hasn't come out yet, but Kanna-gomo, you should eat a lot too. You look too thin."</p>
-<p>I also gave Taira Kanna food blessings (?) and waited for the servers to bring the food. In fact, Taira Kanna was a skinny glamor, a body that women wanted. She didn't necessarily need to gain more weight, but if she gained just a little more, she would look a little sexier.</p>
-<p>"Oraboni, just call me Kanna. Gomo... seems too distant, doesn't it?"</p>
-<p>Even if she's my aunt, she's still my uncle by degrees, so isn't it not that far? Especially with Nae Fitzgerald, one of my aunts, we docked each other's genitals, so you could say we're closer than anyone else.</p>
-<p>"The food is here."</p>
-<p>The door opened quietly, and the servers brought the food. As expected of a high-end restaurant, you can hardly hear the sound of the door opening. The servers are also very quiet.</p>
-<p>I picked up the fried shrimp in front of me and took a bite. Paasak! The batter crumbled with a sound, and I felt the chewy and sweet shrimp inside.</p>
-<p>Hmm... As expected of a restaurant reserved by the Taira family's young lady, it was very delicious. I should bring the kids here next time.</p>
-<p>"Ah~! Try this too."</p>
-<p>Taira Kanna took a piece of octopus leg, scallop, and crab meat from the seafood hot pot all at once, placed it on a renge (a Japanese spoon), and brought it to my mouth. We're not close enough to feed each other like this.</p>
-<p>Still, seeing her treat me so well, it seemed like she cherished me because she was the younger sister of my father, Taira Saburo. It must be the feeling of taking good care of a newly born nephew.</p>
-<p>"I'll enjoy it."</p>
-<p>I opened my mouth according to Taira Kanna's "Ah~!" and ate the ingredients from the seafood hot pot. Hmm, it's delicious. The seafood with the deep broth filled my mouth.</p>
-<p>"Oh, the hot pot is delicious too."</p>
-<p>"Hehe...! Eat a lot."</p>
-<p>Taira Kanna's lips were gradually rising, as if she was happy to see me eating well. I ate the seafood tempura, seafood hot pot, and crab gratin as Taira Kanna said.</p>
-<p>When the next course, sushi, came out, I felt something was wrong. My vision was gradually blurring, and I was gradually becoming dizzy. What is it... Is there anything I'm allergic to in the seafood I ate?</p>
-<p>"Oraboni is really amazing."</p>
-<p>"Huh, huh? What do you mean?"</p>
-<p>"To eat so much food with anesthetic that would knock out an elephant... I'm very surprised."</p>
-<p>What? Anesthetic? At that moment, I remembered a phrase I saw in the Omikuji, the fortune slip, at Hatsumode this year.</p>
-<p>●Be careful of seafood at the beginning of the year!</p>
-<p>No, did I know that fortune would mean this? I just thought it meant to be careful not to get a stomach ache... Through my blurring vision, I saw Taira Kanna gradually approaching me.</p>
-<p>"Oraboni... I don't know how long I've been waiting for today♥ Let's be together forever, I... lo...ve..."</p>
-<p>Taira Kanna's voice gradually scattered in my ears, and then I lost consciousness.</p>
-<p>____________</p>
-<p>Taira Kanna B-cut!</p>
-<p>It's scary~!</p>
-<p>Belly dancer Lisa-ttang, requested by RefundAbsolutelyImpossible-nim, as a home tutor!</p>
-<p>Lisa-ttang, who looks like a harem dancer, looks better with tanned skin~!!</p>
-<p>Home tutor belly dancer~!</p>
-<p>I tried to create the feeling of a home tutor with a new model ㅎㅎ Personally, I like it, but what do you think?</p>
+<p>,You.... It was fun.</p>
+<p>Minamoto Lisa said with a blushing face. I had a date with Minamoto Lisa for the first time in a while, and we both had a lot of fun.</p>
+<p>Of course, there were a few embarrassing situations for Minamoto Lisa, but it was still a fun date that would remain as a pleasant memory.</p>
+<p>,I had fun too.</p>
+<p>Chuu.</p>
+<p>I also said that I had fun and kissed Minamoto Lisa on the forehead.</p>
+<p>,Of course it was fun...! Making me do weird things....</p>
+<p>,So you didn't like it?</p>
+<p>,No....</p>
+<p>It was a date where we decided to grant each other's wishes, and Minamoto Lisa naturally asked for a superpower experience, and I made Minamoto Lisa do several embarrassing things, so Minamoto Lisa can't hate it or like it like this now. But it was fun overall, so that's good.</p>
+<p>,The taxi's here...! I, I'll go now!</p>
+<p>We decided to separate in Miyashi in advance to avoid the eyes of the Minamoto family, so Minamoto Lisa decided to take a taxi home. She's going so quickly now because she's embarrassed.</p>
+<p>,Bye~!</p>
+<p>I said goodbye to Minamoto Lisa and was about to walk back when my phone vibrated and rang. Who is it? When I checked, it was Urabe Konoka.</p>
+<p>,Yeah, Urabe. What's wrong?</p>
+<p>-It seems like Simyeonui ttal is about to return. Please come to the shrine quickly.</p>
+<p>,I'll go right away.</p>
+<p>I immediately hung up the phone and headed to a dark alley. I looked around and there was no one there, so I floated my body with psychokinetic flight and flew up. It was a calculation that flying with psychokinetic flight would be much faster than waiting for a taxi.</p>
+<p>_________</p>
+<p>Diana and the home teacher's sexy nurse outfit requested by RefundAbsolutelyImpossible~!</p>
+<p>The sexy suit will be uploaded tomorrow because I don't have enough time to practice designing the newly born Simyeonui ttal haha</p>
+<p>Starting with Saionji Diana~!</p>
+<p>Home teacher~! I didn't have time to change the model, so I made a new model haha</p>
+<p>Kkiyoot~!</p>

@@ -5,91 +5,69 @@ weight = 1045
 chapter = 1045
 +++
 
-<p>Loyalty was nowhere to be found among these underworld criminals; perhaps because of that, they revealed their Affiliation even before Shigemori Kishio could inflict proper Torture.</p>
-<p>"Kishio, where are they affiliated?"</p>
-<p>Perhaps because she had been living as a vigilante in New York for a while, Kujo Kina, in her own way, now knew the power structure of the New York underworld well. So she was wondering where this incident had truly originated.</p>
-<p>"It's the Obsidian Syndicate."</p>
-<p>"From Obsidian?! They've been quiet until now, haven't they?"</p>
-<p>As the name of New York's largest Crime Syndicate came from Shigemori Kishio's mouth, Kujo Kina tilted her Head, looking puzzled.</p>
-<p>The Obsidian Syndicate had been quiet even when the Black Knight was causing a commotion for a while, but now that they were suddenly stepping forward, she felt something strange.</p>
-<p>"Additionally, they said these weren't all of them; about 600 people followed the Fragment of Omniscience that went north."</p>
-<p>600 people went north? If you add the 200 people Kujo Kina's team just dealt with, they mobilized a whopping 800 Combatants. Indeed, with other underworld organizations almost shattered now, the only organization that could mobilize this many people was the Obsidian Syndicate.</p>
-<p>"I'll have to check this with AmSang."</p>
-<p>With an Expression as if she had caught a clue, Kujo Kina picked up the phone. Because the AmSang App had a chat feature that could connect directly with Eve, Kujo Kina immediately informed Eve of the current Situation via chat.</p>
-<p>Buuuuung~!</p>
-<p>As soon as Kujo Kina informed her of the Situation, the phone rang. It seemed Eve, wanting to hear more details about the Situation, had made the Phone Call. Kujo Kina muttered, 'She's certainly in a hurry, isn't she?' and then answered the phone.</p>
-<p>-Kujo-ssi, it's Eve. I'd like to hear a bit more about the current Situation.</p>
-<p>"The content I sent in the Text Message is everything, so there's not much more to tell in detail, is there? When Teacher's team and our team arrived at the port, nearly 200 people attacked, and we dealt with them, and when we interrogated the Guys who survived, only the name Obsidian Syndicate came out."</p>
-<p>-Is that so...?</p>
-<p>"The Obsidian Syndicate, which caused this incident, they were the ones who put that item, whether it's the Fragment of Truth or the Fragment of Omniscience, up for auction, right?"</p>
-<p>Kujo Kina thought that the reason the Obsidian Syndicate, which had been quiet until now, suddenly moved was precisely because they were the organization that possessed the Fragment of Omniscience, which had caused a commotion in this auction.</p>
-<p>Along with the rumor that the Fragment of Omniscience had flowed into the underworld, seeing that they mobilized a whopping 800 Combatants, it was easy to Guess that they had devised a vicious plan to sell off the Fragment of Omniscience, which was of immense Value, at auction and then re-seize it.</p>
-<p>-....</p>
-<p>Eve didn't Answer the Question, but Kujo Kina thought it was a Silence of affirmation. In fact, even if Kujo Kina's prediction was wrong, the Obsidian Syndicate was a Member affiliated with AmSang, so attacking the People attending the auction was Ban.</p>
-<p>Whether Kujo Kina's prediction was right or wrong, it could be said that the Obsidian Syndicate's future was heavily clouded.</p>
-<p>"Oh, by the way, besides the 200 people who attacked us, 600 people are pursuing that book that flew north."</p>
-<p>-Is that so? I'm sorry, but until AmSang reaches the port, could you please hold the Obsidian Syndicate Combatants? I'll make sure the Reward is not disappointing.</p>
-<p>"That's not difficult. Talk about the Reward with Teacher. Because I hate complicated Matters."</p>
-<p>Watching over the tied-up remnants of the Obsidian Syndicate wouldn't be difficult. However, complicated Matters like Reward discussions seemed best left to Teacher, so she decided to defer it to Teacher.</p>
-<p>Even without that, besides vigilante activities, she was busy setting up a GYM franchise in the USA, so she had no time to worry about this too.</p>
-<p>Since Taira Ryuta wasn't the kind of Person to steal his Disciple's achievements, Kujo Kina could comfortably leave it to Teacher.</p>
-<p>Strictly speaking, since Sei and Rieko were also affiliated with Teacher, Teacher also achieved something and would be able to receive a fair Reward from Eve for his achievements, so it wouldn't be a bad thing for Teacher either.</p>
-<p>15 minutes ago.</p>
-<p>-Huh? Oh! The Side of the ship is bursting open? Isn't the ship Sinking...?!</p>
-<p>From the radio, the flustered Voice of Sniper Kim Young-chan, who was waiting at the port and looking out at the Sea, was heard. The JoSeoDang agent, who was in the specially made van that served as a mobile Command post, picked up the radio while zooming in on the Camera screen Kim Young-chan had set up.</p>
-<p>In fact, Naruse Shiyo, a JoSeoDang ganbu, should have been in the Command post, but because Naruse Shiyo had excellent Combat power to simply stay still in the Command post, she ended up conducting the fake Black Knight capture Operation on Scene.</p>
-<p>So two JoSeoDang agents who came with Naruse Shiyo had to handle the Work from the mobile Command post.</p>
-<p>"Everyone is coming up to the Deck, and seeing AmSang preparing lifeboats, it seems the auction team will be safe."</p>
-<p>"And since Ryuta-nim has superpowers...."</p>
-<p>Even if the ship were to Sink, the JoSeoDang agents didn't worry much. In the countless Situation simulations they had already predicted, the ship Sinking was also part of the scenario. In all those scenarios, the auction team could escape safely.</p>
-<p>"Stand by."</p>
-<p>The JoSeoDang agent gave Kim Young-chan the Command to stand by and was watching the Screen displaying the Sea.</p>
-<p>And bursting out from the cabins, not the Deck, those heading north to New Rochelle, and people on the Deck chasing those heading north to New Rochelle, as if playing tag, were visible.</p>
-<p>-A considerable number of people are flying north...!</p>
-<p>Along with Kim Young-chan's Report, the JoSeoDang agent looked at the map, calculated where the people heading north to New Rochelle might go, and then opened his mouth to announce the Operation change to everyone on standby for communication. Clearly, the ones fleeing first would be the ones with the Fragment of Omniscience.</p>
-<p>"Everyone, move Position according to Plan E."</p>
-<p>Due to the sudden Incident, instead of New Rochelle Port, which was originally expected to be the battlefield, New Rochelle North, the North Avenue side, became the battlefield, so everyone had to leave their standby Positions and move.</p>
-<p>Because they had already assumed the battlefield might change, everyone would know the Information about where they needed to move according to the Situation.</p>
-<p>-Plan E? I only memorized up to Plan B.... Where should we go?</p>
-<p>-This is Group D. We request to be informed of our Position to move to.</p>
-<p>-We had other Plans?!</p>
-<p>It seemed only a very small number of teams were familiar with the other Plans. The JoSeoDang agents let out a small Sigh and informed each team of the Position they needed to go to.</p>
-<p>"Can you explain the current Situation?"</p>
-<p>While running north, I put my Earphones in my ears and initiated Contact with the Information team.</p>
-<p>-Currently, the battlefield is expected to be North Avenue, so all teams have moved Position according to Plan E.</p>
-<p>North Avenue, huh.... I don't know the exact Position, but since the Chairman of the Arab Alchemist Association carried the Fragment of Omniscience north, its Position might be similar to North Avenue.</p>
-<p>Anyway, our auction team is a pursuit team with no fixed Position, so it seemed we just needed to keep heading north and find where the Commotion was.</p>
-<p>"Understood. We will continue to pursue the Fragment of Omniscience, so let me know if there are any special circumstances."</p>
-<p>-Understood.</p>
-<p>After ending communication with JoSeoDang, I turned into an alley.</p>
-<p>Tatatatang!!</p>
-<p>As soon as I turned the alley, Bullets suddenly flew. Because I was running with a psychokinetic Reaction shield, all the Bullets bounced off, but those who attacked us seemed to have different Skill than the underworld criminals we just fought.</p>
-<p>Even if it was an Ambush, seeing them appear while deceiving my Sensation, it was clear. Their attire was definitely different from the underworld criminals just now; these people, giving off the impression of regular soldiers in tech-wear, were carrying rifles.</p>
-<p>Their main Equipment was firearms, but seeing that they deceived my Sensation, it seemed they had other Abilities besides firearms.</p>
-<p>"You mere human, to block our Ambush, how impressive...!"</p>
-<p>Seeing them say 'a mere human,' they seemed not to be human. Looking closely, their Faces were pale and Fangs protruded, so they seemed to be a Heupyeolgui unit.</p>
-<p>No...! Heupyeolgui attacking in such regular military attire? Have they abandoned the romance of Heupyeolgui?</p>
-<p>Of course, as the Era changes, it's not uncommon to see Heupyeolgui armed with Guns, but there's still the romance of Heupyeolgui, isn't there? Like transforming into Blood fog or fighting using Blood Sorcery.</p>
-<p>"Were the Heupyeolgui also aiming for the Fragment of Omniscience...?"</p>
-<p>"Humans call the grimoire heading north the Fragment of Omniscience, but our clan calls it the Book of Completion (liber complementum). It is the only Book containing the Knowledge that can Release our Heupyeolgui clan from silver...! Like the legend that Strigoi King Dancescu Blaga became immune to silver after reading the Book of Completion, our clan will also be free from silver."</p>
-<p>What the hell. Before the Ambush, they were quietly hiding and waiting, yet they're rattling off Answers to things I didn't even ask. Are they an info-dumping freak...?</p>
-<p>By the way, I've definitely heard the name Strigoi King Dancescu Blaga, whom this Heupyeolgui mentioned, somewhere before.... Ah, the Sword Golden Blood that Otagi Yuka obtained was precisely the Sword Dancescu Blaga used.</p>
-<p>Now, as Otagi Yuka became the Gold Blood clan Lord, she became a being similar to the second Dancescu Blaga, and there was definitely a Trait among the clan Traits that greatly increased resistance to silver. If so, did Dancescu Blaga obtain that Ability from the Fragment of Omniscience in the past? It's such an old Incident that there's no way to know, though.</p>
-<p>"Alright. I acknowledge the Heupyeolgui's desire for that Book of Completion. And we're not pursuing the Book of Completion you're talking about, you know?"</p>
-<p>"You're not aiming for the Book of Completion? Unbelievable!"</p>
-<p>Along with the Words 'Unbelievable!' the Heupyeolgui unit melted into the Darkness. It seemed they were trying another Ambush.</p>
-<p>"Hey! I believed what you guys said, didn't I?!"</p>
-<p>I shouted with an aggrieved Expression. Since I don't know when the fake Black Knight will appear, I can't be tied down here.... This has become a bit troublesome.</p>
-<p>TheDreaming-nim requested: Messy Room Ha Ju-yoon 1. Masturbation over tube top Clothes 2. breast-covering Intimate Posture</p>
-<p>1.</p>
-<p>2.</p>
-<p>Actually, the requested Intimate Posture had a similar structure to breast-covering, so I tried to modify it a bit, but the one-hand breast emphasis Intimate Posture didn't come out well haha.</p>
-<p>Gojoy-nim requested: Mimata Chieri Chapter 26 introducing the company while walking around Chapter 27 having a meal together in the company restaurant</p>
-<p>26~!</p>
-<p>I made it with the feeling of explaining, pointing here and there, saying 'this is here and that is there' haha.</p>
-<p>However, the prompt for pointing has over a 90% probability of pointing straight ahead, so if I receive a similar Request next time, I'll have to make it in a different way haha. I did a lot of Gacha haha.</p>
-<p>27~!</p>
-<p>Kyuut</p>
-<p>Chomisaemeonji-nim requested: Liz playing in the water in the Great River, Liz Dancing~!</p>
-<p>Playing in the water~!</p>
-<p>Dancing~!</p>
+<p>and chapter check contains erotic please surroundings this your "Die\! Black Knight\! Pay the price for disrupting Superior's event\!"</p>
+<p>Hwuung~!</p>
+<p>Behemoth's fist, which had grown continuously and now appeared to be 4 meters in Size, grazed my Head. At this Size, it no longer felt like a human.</p>
+<p>Just now, recalling a slight clue, I revised my strategy to evasion first, while thinking of a Solution instead of a method to accumulate damage on Behemoth.</p>
+<p>In fact, I should have used this strategy from the Early Stage, before Behemoth had accumulated buffs, thinking of a Solution and evading, but he had already received so many buffs that evading his attacks, moving at immense speed, was quite burdensome.</p>
+<p>But it couldn't be helped. In battle, the Situation never unfolds exactly as I wish, so I had to respond to the current circumstances; I couldn't just complain, 'Ah, I should have done that then.'</p>
+<p>Hwuung\!</p>
+<p>This time, a kick grazed past. Since my Abdomen Armor was already broken, I had to be even more careful to dodge. Even as I dodged, I kept thinking about how I could break Behemoth's defense.</p>
+<p>The Enlightenment of 'Gappa' obtained from the battle with Sajo just now, and the Knowledge of Shinkaiyatsude and Creation Chaos Style that I already possessed, mixed in my Head, then separated again, and several new 'Muri' (Martial Principles) flashed through my Mind.</p>
+<p>Kwaaang\!</p>
+<p>But perhaps it was because I was too engrossed in that? I allowed Behemoth a single blow. Behemoth aimed for my Head and struck down, but I hastily put up a psychokinetic reaction shield and raised my Arm to block it.</p>
+<p>The psychokinetic reaction shield shattered as easily as a sugar snack, and cracks spread across my gauntlet, but it was a better Result than my Head being blown off.</p>
+<p>As expected, perhaps because his power had grown stronger, my Arm throbbed with a Pleasurable Ache. Of course, due to regeneration, I recovered quickly.... Just now, feeling the psychokinetic reaction shield break, something was on the verge of dawning on me, but Behemoth seemed to consider the blow he had just landed on me an Opportunity, giving me no time to think as he continued his relentless barrage of attacks.</p>
+<p>Hwuung\! Hwuung\!</p>
+<p>An immense Attack, capable of tearing a Layperson's skin with just the Pung-ap (Wind pressure), was pouring down. I could only continue to step back, being pushed.</p>
+<p>Eventually, I was forced to stop momentarily due to the Building Remains piled Behind the Back. Behemoth, as if by Intuition, sensed that moment was his Opportunity to eliminate me, and swung his Fist with all his might, determined not to miss it. As Behemoth's fist filled my Field of Vision, the first thought that came to mind was 'I'm fucked.'</p>
+<p>It was then.</p>
+<p>Suddenly, Kurayamada Kirie rushed out, embraced me, and took Behemoth's blow instead.</p>
+<p>Kwaaaang\!</p>
+<p>Perhaps because it was a Place where many Building Remains were gathered, Dust billowed up as the shockwave passed. Using the rising Dust Particles as a shield, I ran, holding Kurayamada Kirie.</p>
+<p>"Kirie\! Are you alright?"</p>
+<p>Even after taking Behemoth's blow head-on, Kurayamada Kirie seemed fine. The thought, 'Why is she fine?' and the thought, 'It's Fortunate she's fine,' occurred simultaneously.</p>
+<p>"Thanks to the Bracelet you gifted me, I'm fine."</p>
+<p>To my question of whether she was alright, Kurayamada Kirie answered with a Smile. The Bracelet I gifted her? Ah... it seemed she was referring to the space-shaped Bracelet I bought at this auction. The options were definitely....</p>
+<p>**◆Space-Shaped Bracelet [Narrative+ Accessory/Bracelet]** A necklace made in an ancient desert Kingdom. The Authority of space is imbued within it. However, if a Person without related Abilities wears it, there is no Effect. ●If one has space Ability, the Effect of that Ability is enhanced by 0.5 Stage. ●Once a week, only for Ambush or unstoppable attacks, it activates .</p>
+<p>It seemed that thanks to Space Refraction, the second option of the Space-Shaped Bracelet, Behemoth's decisive blow was blocked. No matter how much Behemoth was enhanced to his maximum, he couldn't overcome the Authority over space, so the Attack must have simply missed. Thanks to me gifting this Bracelet to Kurayamada Kirie, a fatal harm was prevented.</p>
+<p>**By the way, it was quite touching. Even knowing the Bracelet's options, it wouldn't be easy to embrace me and block an attack. If this battle ends in Victory, I'll have to give her some special Affection later.**</p>
+<p>"For now, since you can't block any more, stay far away."</p>
+<p>I released Kurayamada Kirie and said. I felt Behemoth approaching, having heard us talking.</p>
+<p>"What about the other comrades?" "Is there anyone you need?" "Perhaps someone with Jusul (Sorcery)... magic, debuffs, or Shimokawabe Airen-sensei?"</p>
+<p>When shock Energy accumulates in Behemoth, his magical defense also increases, but it's not on the level of physical defense, so a Jusul (Sorcery) or magic-type Character would be able to inflict harm more easily than me. Or Shimokawabe Airen, a Swordsman who cuts space, could defeat Behemoth almost as easily as if they had a natural Compatibility.</p>
+<p>"One Person will be able to Help you."</p>
+<p>One Person? Who could it be? Kurayamada Kirie was in the closest Position to me, so she came to me first, but is there anyone else nearby...?</p>
+<p>But there was no time to think deeply. I asked Kurayamada Kirie to Help carefully, then turned my Body and headed towards Behemoth.</p>
+<p>"Die\!"</p>
+<p>Behemoth's fist appeared, parting the Dust. It was still fast and strong. I barely dodged the fist by tilting my Head back.</p>
+<p>I'm starting to get hungry and lose power. Is his Energy infinite? Of course, he does have Energy gained from the shock I gave him, but....</p>
+<p>"Ah...!"</p>
+<p>While thinking about Energy, I suddenly realized Something. About 80% of the Energy currently within Behemoth's Body originated from me.</p>
+<p>It's not easy to handle someone else's Energy at all, but being able to freely control one's own Energy is precisely the Creation Chaos Gi. Because if it's my Energy, the Creation Chaos Gi allows me to handle even powers with very different characteristics.</p>
+<p>If so, the shock Energy seething within Behemoth's Body, though slightly transformed, originated from me, so I should be able to control it as easily as I control Creation Chaos Gi.</p>
+<p>The moment I gained a small Enlightenment, time slowed, and the Martial Arts Form 'Gappa' for destroying Armor, which I had created today, along with the Energy operation methods of the Creation Chaos Style and the Intimate Experience of Shinkaiyatsude's Internal Heavy Hand Technique, all converged and blended together.</p>
+<p>During that brief Moment I was gaining Enlightenment, Behemoth again sought an Opportunity and attacked me. Whether my Enlightenment would come first, or if Behemoth's fist, flying towards me in slow motion, would smash my Head first, would decide the Match.</p>
+<p>**-Stop\!**</p>
+<p>With someone's cry to stop, Behemoth began to slow down. Until just now, it had felt like my Surroundings were slowing down due to the accelerated mind as a side Effect of Enlightenment, but now it truly felt like Behemoth himself was slowing down.</p>
+<p>It's done...! With the Help of someone unknown, I was able to fully Handle the Enlightenment. Having handled the Enlightenment, I instinctively punched Behemoth's exposed Solar Plexus.</p>
+<p>**-Creation Chaos Style (創世混沌流) Vajra Crush (金剛碎).**</p>
+<p>The moment my fist made Contact with Behemoth's Body, the Energy within Behemoth's Body that originated from me began to Respond.</p>
+<p>"Kuheoeok\! This is...!"</p>
+<p>Behemoth also seemed to have sensed Something was wrong the moment he took my blow. He withdrew the fist he had been aiming at me and clutched his Solar Plexus.</p>
+<p>"You may be accustomed to Pleasurable Ache due to your fighting style, but that pain was one that led you to Victory, so you could endure it. But if Death awaits at the end of this pain, I'd like to see if you can bear it."</p>
+<p>I approached Behemoth, who was clutching his Solar Plexus, and spoke. Behemoth probably hadn't experienced Defeat much since gaining the Ability to absorb shock with his own power. If Victory were Guaranteed, he could endure the pain, but if Defeat and Death awaited at the end of the pain, he wouldn't be able to bear it.</p>
+<p>I began to trample Behemoth. Every blow carried the Enlightenment of Vajra Crush, ignoring Behemoth's defense, and all the damage was piercing right through.</p>
+<p>If he were a Person worthy of admiration/respect, I wouldn't torment him like this and would finish him in one blow, but Behemoth was a malicious terrorist.</p>
+<p>Although not now, he was a Guy so depraved that he would destroy several Cities in the future, so I mercilessly beat Behemoth until Dust flew in the moonlight. One might ask if it wouldn't be better to get Information on Superior or Famine, but there were few who could Handle Behemoth. If left to a general Investigator, he was a Guy who would quickly escape. I thought it would be better to kill him now.</p>
+<p>While beating Behemoth, I gained one more thing: I roughly understood how Behemoth's shock Energy increases his defense.</p>
+<p>Of course, I wouldn't be able to gain a defense as monstrous as Behemoth's, but if I applied this, my basic defense and psychokinetic reaction shield would become much more solid.</p>
+<p>"Kuheoeok\! Keueok\! K-kill me...!"</p>
+<p>When he first started taking hits, his Gaze held Killing Intent, aiming to kill me to the very end, and seeking an Opportunity. But now, it felt like he had given up everything. He seemed to have slowly realized that he couldn't escape alive.</p>
+<p>I wanted to hit him a few more times, but I was worried about my Sabu (Master/teacher) Fujigasaki Rinka, who hadn't immediately rushed over even after I had supposedly found her, so I gathered all the Gi (Energy) within Behemoth's Body towards his Head and made it explode.</p>
+<p>Because I had hit him so many times with Vajra Crush, I could now control Behemoth's Gi (Energy) without even touching him, thus gifting Behemoth his Last moment.</p>
+<p>Armor Ryuta Attack Pose B-cut~! Most came out with this Composition, but I liked the main text Composition, so I chose that one~! hehe</p>
+<p>Changed Cover B-cut~! I liked Compositions 1 and 2 more, but holding the Gun felt awkward, so they were eliminated hehe. The Last one, I liked the aiming Method, but the Muzzle was too low, so it was eliminated hehe.</p>
+<p>Chea yun-nim requested Ha Ju-yoon in a Wedding Dress~!</p>
+<p>Chomisaemeonji-nim requested Liz in a white Suit, and Liz wearing only a translucent white Shirt~! White Suit~! Shirt Liz</p>
+<p>TheDreaming-nim requested Herta Vogel 1. Breast Biting 2. Jump 1. 2. The remaining biting Mark illustrations had blood flowing from the bite marks, which felt a bit Sadistic, so I'm only uploading two images hehe.</p>

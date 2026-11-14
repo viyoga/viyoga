@@ -5,69 +5,66 @@ weight = 865
 chapter = 865
 +++
 
-<p>Otagi Yuka rode her bike towards a deserted Place near Mount Fuji. Shimokawabe Airen was riding her bike alongside Otagi Yuka. On Saturday, when they met at Chungrangdae, Otagi Yuka had requested a day of Training from Shimokawabe Airen, which was why they were going together. Naruse Shiyo, who could be called Shimokawabe Airen's Disciple, had Work, and Alik was alone, searching for the traces left on his Sword, so Shimokawabe Airen had free Time and could oversee Otagi Yuka's Training. The Place they were going to was where Shimokawabe Airen often went with Alik and Naruse Shiyo for their Training. There was a clearing in the middle of the forest, with no houses or People nearby, making it perfect for Training. The two hid their bikes in a bush near the forest and headed across the forest to the clearing.</p>
-<p>「I didn't expect you to ask me for Training.」</p>
-<p>「Well, if I asked our Class Teacher-ssi, she'd probably go too easy on me.... And Shimokawabe seonsaengnim has Disciples, so I thought she could spar with me at an appropriate Level.」</p>
-<p>As Otagi Yuka said, there weren't many who could serve as a combat teacher/master within St. Francis Girls' Academy. Kujo Kina's Sabu, the old man Yoda, was there, but he had gone to the USA with Kujo Kina to enjoy the UMC Unlimited Class matches and was currently returning to Japan, so in the end, only Shimokawabe Airen remained.</p>
-<p>「How do you want to train?」</p>
-<p>「A Duel. I don't mind getting a little hurt, but please don't kill me.」</p>
-<p>In response to Shimokawabe Airen's Question, Otagi Yuka drew the Golden Sword, Golden Blood, from her back and answered. Otagi Yuka was accustomed to fighting bare-handed with her Blood Energy Ability, but she had also honed the Swordsmanship passed down through the Otagi Family for a long Time, and having heard from Taira Ryuta that the Golden Sword she currently possessed had excellent Performance, she decided to use Swordsmanship as her primary focus as well.</p>
-<p>「Good. Actual combat or Duels that are like Actual combat are the foundation for Skill development....」</p>
-<p>Shimokawabe Airen also said, drawing the Sword tied to her waist. After finishing the request from St. Francis Girls' Academy, it had been a long Time since she had fought due to the Test period and various other matters, so her Blood was boiling a little.</p>
-<p>「Hap!」</p>
-<p>Otagi Yuka rushed in without warning and swung her Sword.</p>
-<p>Chang!</p>
-<p>Despite it being an Ambush-like Attack, Shimokawabe Airen easily blocked Otagi Yuka's downward-striking Sword.</p>
-<p>「This Time, it will be a little different.」</p>
-<p>Blood Energy rose from Otagi Yuka's Body and began to resonate with the Golden Sword she held. From the Golden Sword, a golden Aura surged instead of red Blood Energy, and seeing that Aura, Shimokawabe Airen's Expression hardened. It felt quite Threatening. Shimokawabe Airen swung her Sword with a slightly more serious Expression. Otagi Yuka also swung her Sword at the same Time.</p>
-<p>Kuuuuu...!</p>
-<p>A sound that couldn't be thought of as Sword clashing against Sword was heard, but the two paid no mind and continued to swing their Swords. Like a calculated Sword dance, Attack and Defense continued without pause.</p>
-<p>Pa-at!</p>
-<p>In the end, it was Otagi Yuka who first drew Blood. The shoulder part of her Leather jacket tore, and Blood surged out, but at some point, the surging drops of Blood were reabsorbed into Otagi Yuka's Body. If not for the torn Mark on her shoulder, her uninjured Appearance would have made it seem as if Shimokawabe Airen's Sword strike hadn't succeeded. After that, the two continued to swing their Swords and exchange Sword strikes for almost an hour, hardly getting tired.</p>
-<p>「Let's stop now.」</p>
-<p>「Haa, haa.... Yes.」</p>
-<p>As Shimokawabe Airen elegantly sheathed her Sword, signaling the end of the Duel, Otagi Yuka, who had been breathing heavily, nodded her Head. Neither of them had wounds on their Bodies, but the outcome was clear. Otagi Yuka's Leather jacket had become so tattered that it could no longer be worn. Her Clothes were cut, and her flesh was also wounded, but the absence of a wound was due to the Vampire's unique regenerative Ability.</p>
-<p>「Why aren't you using your Family's Swordsmanship?」</p>
-<p>In this Duel, Otagi Yuka had mostly used only basic techniques to perform her Swordsmanship, so Shimokawabe Airen asked, puzzled. Shimokawabe Airen had heard that the Otagi Family possessed an excellent Swordsmanship called Akagamikiba-shiki (Red God Fang Style), and she knew that Otagi Yuka had also mastered it. Seeing her possess such excellent Swordsmanship yet not use it made her feel puzzled. She thought that since her own Swordsmanship Skill was higher, Otagi Yuka wouldn't be going easy on her, so she wondered why.</p>
-<p>「Because the Sword I'm using has changed, if I use my Swordsmanship, it actually creates many openings.」</p>
-<p>Otagi Yuka smiled awkwardly and held up her Golden Sword. Otagi Yuka's Golden Sword was a Western-style two-handed Sword. Although Otagi Yuka's strength allowed her to use it with one Hand, it had a distinctly different shape, length, and weight from a Japanese Katana, so it seemed there were difficulties in using her originally learned Swordsmanship. Seeing that, Shimokawabe Airen nodded her Head. A master of Kendo like Shimokawabe Airen could naturally change the Martial Arts Routine of her Martial Arts Form to match the Weapon even if it changed, but Otagi Yuka, despite being a considerably skilled Swordsman, had not yet reached that Realm.</p>
-<p>「Then today, I'll help you with your Swordsmanship. You just need to adjust it a little to the Sword, so if you put in the effort just for today, much of the awkwardness will decrease.」</p>
-<p>As Shimokawabe Airen gave her diagnosis, Otagi Yuka nodded her Head. If she could properly use the Swordsmanship she had been practicing with this Golden Blood, her overall power would greatly increase.</p>
-<p>「Then, shall we take a stance?」</p>
-<p>「Yep!」</p>
-<p>In the clearing of Mount Fuji, the sound of Swords swinging and shouts of Gi echoed late into the night.</p>
-<p>Miyashi, Am-sang Branch.</p>
-<p>Saionji Diana, carrying a duffel bag, descended into the Underground of the love hotel where the Am-sang Branch was located. Naturally, Eve greeted Saionji Diana at the Am-sang Branch.</p>
-<p>「Welcome, Diana~!」</p>
-<p>「Yeah. Long Time no see, Eve.」</p>
-<p>Since the two had become like Friends after Eve performed Saionji Diana's cyber implant surgery, Eve and Saionji Diana spoke casually.</p>
-<p>「Are those the Chungrangdae items you mentioned?」</p>
-<p>「Yeah, they looked pretty good, so I brought them.」</p>
-<p>As Eve pointed to the duffel bag and asked, Saionji Diana nodded and poured out the equipment from the duffel bag onto the workbench. The items inside the duffel bag were quite diverse, including high-impact Grenades, Ankle mines, Modified bullets with enhanced Penetration, large-caliber Shotgun Ammunition containing Mithril powder, a pump-action Shotgun that could use that Shotgun Ammunition, and heat-seeking Missiles and launchers.</p>
-<p>「It seems they're not all ordinary items, but have undergone certain Modifications.」</p>
-<p>「I'll check them one by one.」</p>
-<p>At Saionji Diana's Words, Eve nodded and began scanning each piece of equipment. Blue Light emanated from her Eyes, checking the equipment, and her Expression wasn't bad, indicating everything was fine.</p>
-<p>「Most of them are Modified off-the-shelf products, but their Performance has improved by 10 to 20 percent.」</p>
-<p>「That old man's Skill doesn't seem bad, does it?」</p>
-<p>Although it was 10 to 20 percent, Saionji Diana was quite surprised to hear the maximum of 20 percent. She had thought it would only improve by a single digit, but she was surprised that the Performance had improved much more than expected.</p>
-<p>「So, what are you going to do with these?」</p>
-<p>「I'll remake them our way. Attach a few to my combat limbs....」</p>
-<p>Saionji Diana had separate combat cyber implants, along with cyber implants indistinguishable from human Arms. The production of combat cyber implants took quite a long Time, so she couldn't use them in Actual combat, but she was steadily collecting Data and developing them.</p>
-<p>「Since most of TG Tech's items are Energy Weapons, I also want to match some gunpowder Weapons....」</p>
-<p>What Saionji Diana liked most among the Harvest from Chungrangdae this Time was the Shotgun containing Mithril Fragments. There had been cases where the inside of the barrel couldn't withstand Mithril, causing problems with the rifling or damaging the barrel, but Chief of Arms Shizuma Ichihara of Chungrangdae had somehow produced a pump-action Shotgun that used Mithril Shotgun Ammunition.</p>
-<p>「This Technology, I should tell the creator to patent it. If it were someone unknown, I would have preemptively filed for the patent, but since he's the Chief of Arms of Ryuta-nim's PMC, I shouldn't do such a thing.」</p>
-<p>「I'll Contact the Chief of Arms old man about that later.」</p>
-<p>For now, Saionji Diana wanted to focus more on strengthening herself rather than discussing patents, so she brushed off the patent discussion by saying she would Contact him later. Eve, as if understanding Saionji Diana's mind, Smiled and began talking about the various equipment again.</p>
-<p>「It seems more appropriate to carry the Shotgun rather than putting it into the cyber implant, and it would be good to put in this heat-seeking Missile.」</p>
-<p>「You can put in a Missile?」</p>
-<p>「Since there's a launcher, we can miniaturize it a bit based on that.... And if we change the design a little, we can mount it. Of course, two Missiles will probably be the Limit, but that should be enough.」</p>
-<p>「Then what about these bullets?」</p>
-<p>「Those....」</p>
-<p>The two began a Discussion with the items they brought, and before long, the topic expanded to include various Weapons acquired by Am-sang. The two talked tirelessly about the parts to be mounted on Saionji Diana's combat cyber implants.</p>
-<p>Requested by TheDreaming-nim: Athena and Taira Kokoro sitting on a park bench, wearing only panties and exposing their breasts~!</p>
-<p>Starting with Athena~!</p>
-<p>Taira Kokoro~!</p>
-<p>Requested by Hwanbuljeoldae-bulga-nim: Lisa, Home Ec Teacher sleeveless See-Through + Hotpants + Thigh band</p>
-<p>Lisa~!</p>
-<p>Home Ec Teacher~!</p>
-<p>I thought something was missing, and it turns out the armpit image you requested was omitted ㄷㄷ. It would take more Time to make it again, so I just uploaded it as is. Your understanding is appreciated.</p>
+<p>Coming out of the cafe, we drove to a nearby high-end restaurant, parked the car, and were guided to the restaurant.</p>
+<p>No matter how high-end the restaurant, the Swords in the car combined would be worth hundreds of millions of yen, so Naruse Shiyo summoned a Shikigami to guard our car. She handled Shikigami-jutsu quite freely, so I looked at Naruse Shiyo with a surprised Expression and opened my mouth.</p>
+<p>"Your Yin-Yang Arts have improved quite a bit, haven't they?"</p>
+<p>"I really worked hard~! If you only count after becoming a Half-Dragon, I was probably the busiest, you know? At School, I studied, after School, I learned martial arts from Sabu-nim, and when I returned Home, I practiced Yin-Yang Arts.... I barely had any Time to rest."</p>
+<p>At my Praise, Naruse Shiyo, with an Attitude as if saying, 'Tell me I suffered right now!', began to talk about how hard she had it. Seeing her, I let out a chuckle and stroked Naruse Shiyo's Head. Then, Naruse Shiyo stopped appealing her hard Efforts and began to enjoy my Touch.</p>
+<p>Arriving at the restaurant, we took our reserved Seats and began to enjoy the high-end restaurant's Food. Old man Ichimonji Harugoro and his Disciples seemed quite pleased with the Meal, eating their Food with satisfied Expressions.</p>
+<p>"By the way, should we also lend a Hand in the Anyaji fight?"</p>
+<p>During the Meal, old man Ichimonji Harugoro said. If he were a typical blacksmith, he might just say, 'Just watch us fight,' but Ichimonji Harugoro was a muscular old man of immense Size.</p>
+<p>With that Size and as a First-rate blacksmith, if he were to equip himself with Items, he could probably face Anyaji's martial artists, but characters specializing in crafting always needed to be cherished and protected.</p>
+<p>If he needlessly participated in battle and was matched with an Anyaji high-ranking member like a Guardian Old Monster and died, I would have to find a new blacksmith for my Swordsmen, so I shook my Head.</p>
+<p>"No. You've contributed enough by making the Swords. We'll be able to win sufficiently with them."</p>
+<p>"That's right, that's right. Master Grandfather, just watch us fight~☆"</p>
+<p>At my Words that it was fine, Seizawa Shii, who was a Fist Technique practitioner and thus had no particular Obligation to Ichimonji Harugoro, agreed and prevented Ichimonji Harugoro's participation with Words that could sound slightly impolite, telling him to just watch.</p>
+<p>"Hmph...! I can't even show my Skill...!"</p>
+<p>Even at Seizawa Shii's slightly impolite Words, Ichimonji Harugoro laughed playfully and pretended to be angry. Everyone laughed at the sight and continued their enjoyable Mealtime.</p>
+<p>Although the difficult Event of the battle with Anyaji was approaching, everyone had gained Confidence from obtaining their Weapons today, so no signs of anxiety were visible.</p>
+<p>We had a light dinner with Wine, and Ichimonji Harugoro and his Disciples returned to Kofu City, while I drove the Students home one by one. Of course, some Students, drunk on Alcohol, clung to me, saying they wouldn't go, but since I had quite a lot of things to do tonight, I sent them all back.</p>
+<p>Shimokawabe Airen returned to Cheongsim Hall, carrying the Sword she received from Ichimonji Harugoro and her original Swords that had been signed with gold inlay. Since Taira Ryuta had driven her to the School's main gate, even though she carried a heavy Bag, it wasn't particularly difficult.</p>
+<p>Originally, the Swords she brought should have been placed on the 2nd floor of Cheongsim Hall, in Shimokawabe Airen's Sword exhibition room, but since she intended to leave after Graduation to Work under Taira Ryuta, it seemed fine to leave them in the Bag and place them with her moving Luggage.</p>
+<p>Shimokawabe Airen carefully set down her original swords, signed by Ichimonji Harugoro, still in their bag, and began to examine the newly received Kamiwa (神和: Divine Harmony).</p>
+<p>Earlier, when she received the Sword, there were many Students, so she couldn't examine it closely, but now there was no one to scold her for focusing on her new Sword, so Shimokawabe Airen drew Kamiwa and examined it in detail.</p>
+<p>"...."</p>
+<p>It was certainly a Famous sword. Since Taira Ryuta, who had the Ability to see, had even told her its Abilities, she felt she could use it even better.</p>
+<p>Shimokawabe Airen did not put the Sword back into its Scabbard, but instead swung it in the Cheongsim Hall Dojang, demonstrating her Swordsmanship.</p>
+<p>It felt good. The swinging Sword was certainly full of Power, and her Stamina seemed to be consumed less.</p>
+<p>Shimokawabe Airen, who had been swinging the Sword and performing her Swordsmanship, Kashima Shin-ryū, for a while, put the Sword back into its Scabbard with a satisfied Expression.</p>
+<p>As satisfied as she was with the Sword, she was grateful to the one who gave her the Sword as a gift.</p>
+<p>Ichimonji Harugoro had merely made it upon request, and in fact, the one who gave this gift was Taira Ryuta. A Sword of this caliber, made of Mithril by an excellent Master like Ichimonji, would be worth at least tens of millions of yen.</p>
+<p>"Since I received a gift...."</p>
+<p>It was precisely the Valentine's Day Period. Although she was teaching the Female Students of St. Francis Girls' Academy to make chocolate, she hadn't intended to give a chocolate gift to anyone, but now that she had received a gift, she thought she should make chocolate for Taira Ryuta.</p>
+<p>"What shape should I make it...."</p>
+<p>Shimokawabe Airen muttered, looking at the Sword. A Smile hung on her Expression as she looked at the Sword.</p>
+<p>"The last Information has arrived."</p>
+<p>Takakusaki Athena opened her mouth in the conference room. All the Anyaji Members gathered in the conference room looked at Takakusaki Athena.</p>
+<p>"Fujigasaki Rinka's Disciple is said to be going to Kofu City the day after Graduation and returning around lunchtime."</p>
+<p>"Why is he going?"</p>
+<p>At Takakusaki Athena's Question, Anyaji's second-in-command, Hojo Otoji, immediately asked for the Reason.</p>
+<p>"He said he's going to take some certification Test. I heard he's quitting St. Francis Girls' Academy after this batch of Students graduates, so perhaps he's getting a certification that will help him with Employment in the future?"</p>
+<p>"Hmm.... Is that so?"</p>
+<p>It was understandable, as general martial arts Dojangs, unlike Anyaji who receive requests through dark Paths, don't earn much Money. Among excellent Martial artists, there were quite a few who had separate main professions.</p>
+<p>Takakusaki Athena subtly glanced at Genba Kiyohira. She heard from Taira Ryuta that Genba Kiyohira knew well that Taira Ryuta was affiliated with the Tairaga Family. However, even though Information about Taira Ryuta had come in until now, he said nothing.</p>
+<p>Even now, he didn't say things like, 'He has a lot of Money, so he doesn't really need to get a certification,' but just sat there with an Expression devoid of any particular Emotion.</p>
+<p>Something was strange, but if he didn't interfere, it was a good thing for Takakusaki Athena.</p>
+<p>"Then let's strike when he enters Miyashi from Kofu. If he's alone, we won't need to send many, will we?"</p>
+<p>"Since he killed Kaishu Kakan, we must be careful even if he's alone."</p>
+<p>At the Words of a few seemingly light-hearted Guardian Fist Technique practitioners who suggested dealing with him, Takakusaki Gengo opened his mouth.</p>
+<p>"But the Choice to capture him when he enters Miyashi is good. We must send someone who can definitely kill Fujigasaki Rinka's Disciple."</p>
+<p>"Then how about sending the White Light Fist Technique practitioners we've been Training this time?"</p>
+<p>At Takakusaki Gengo's Words, Takakusaki Athena spoke. She knew that Taira Ryuta had abandoned the Abyss, so she made the Proposal, thinking that he would easily defeat the White Light Fist Technique practitioners she had trained. But Takakusaki Gengo shook his Head at Takakusaki Athena's Proposal.</p>
+<p>"The White Light Fist Technique practitioners are reserved solely for Fujigasaki Rinka."</p>
+<p>To save dozens of White Light Fist Technique practitioners solely for Fujigasaki Rinka, it seemed he intended to definitely remove Fujigasaki Rinka this time.</p>
+<p>"Since we roughly know everyone's movement Paths, we need to properly formulate a Plan. Bernardo, who do you wish to face?"</p>
+<p>When Takakusaki Gengo asked Bernardo, one of the newly joined Four Heavenly Kings, Bernardo began to look at the profiles of the People displayed on a large Screen on one side of the conference room.</p>
+<p>Bernardo, who had challenged various Dojangs and cruelly killed his Opponents, had become completely imbued with Killing Intent, and perhaps due to the influence of the Yoma Possession Art taught by Kamishirato Manzo, he was becoming increasingly cruel.</p>
+<p>The profiles contained Photos along with the person's Fist Technique or Abilities, and after looking at them for a while, Bernardo chose one.</p>
+<p>"The Leader who scouted me knows well that I'm strong with Guns, right? Let's go with this Woman. I've only faced Fists until now, and I'm getting a little antsy, I can't stand it."</p>
+<p>The one Bernardo chose was Saionji Diana, whose profile stated 'Cyber Implants, Gun Usage'. Bernardo, who had fought for his life for several years against drug cartels armed with Guns in the labyrinthine Brazilian favelas, thought he could sufficiently defeat a Woman like Saionji Diana.</p>
+<p>Having become much stronger after joining Anyaji, he thought he could Disassemble her Limbs like Toys, no matter how many cyber implants his Opponent had, and became Aroused. It was a Reaction that could be seen from Bernardo, who was becoming increasingly Sadistic and cruel.</p>
+<p>"So be it. Next is...."</p>
+<p>Takakusaki Gengo looked at Bernardo, who was Aroused by himself, nodded his Head, and began to formulate the Operation. All Anyaji personnel, except Takakusaki Athena, did not think at all about a Situation where they might be Defeated. Even the fearsome Fujigasaki Rinka was not a worry, as they had dozens of White Light Fist Technique practitioners.</p>
+<p>Requested by Gojoy-nim: Saionji Diana's casual attire and underwear~!</p>
+<p>Casual Attire~!</p>
+<p>Underwear~!</p>

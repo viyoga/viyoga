@@ -5,105 +5,39 @@ weight = 886
 chapter = 886
 +++
 
-<p>and breast chapter check contains exposure please surroundings this your</p>
-<p>-Tting-dong! Tting-dong! Tting-dong!</p>
-<p>"Ah, what the...?"</p>
-<p>I opened my eyes to the boisterous doorbell sound. The room was still dark, and when I checked the clock by the bed, it was 5 AM. I grumbled slightly, got out of bed, and headed to the front door.</p>
-<p>-Tting-dong! Tting-dong! Tting-dong!</p>
-<p>"I'm coming, I'm coming!"</p>
-<p>The doorbell kept ringing insistently, so I said I was coming and opened the front door. Taira Kanna stood at the door.</p>
-<p>"What brings you here so early?"</p>
-<p>"I wanted to be the first to give Orabeoni a gift for Valentine's Day~!"</p>
-<p>Ah, is that why you came so early? Taira Kanna held a rather large box in her hands.</p>
-<p>"Ah.... Thank you. I'm sorry, but you're second for Valentine's Day."</p>
-<p>"Eh, really? I came so incredibly early...?"</p>
-<p>Taira Kanna asked, surprised by my words. Because Otagi Yuka had been coming every night to collect my semen in a bottle before the Anyaji battle, I received a Valentine's Day gift immediately after midnight yesterday.</p>
-<p>Otagi Yuka, as if she were a Vampire, gave me strawberry-flavored liquid chocolate made to feel like a blood pack. Although it looked gruesome, when I sucked on it, it was quite tasty. Otagi Yuka, watching me suck on the blood pack, grinned and asked, "Do you understand a little of what it feels like to be a Vampire?"</p>
-<p>"She gave me her gift right after 12 AM today and left."</p>
-<p>I didn't mention that Otagi Yuka had come, had sex, and left. If I had said it needlessly, I might have triggered Taira Kanna's yandere side to explode.</p>
-<p>"Ah...! I was too complacent. Still, please accept it. It won't lose in taste or Design."</p>
-<p>"Thank you, I'll eat it deliciously."</p>
-<p>As I spoke, receiving the box, Taira Kanna stared intently at me. She looked at me with an Expression as if asking if I intended to keep her at the front door, so I had no choice but to invite Taira Kanna in.</p>
-<p>"Do you want to come in for now?"</p>
-<p>"Yes~!"</p>
-<p>Taira Kanna, excited, came in as soon as I asked. I went to the kitchen, made two cups of coffee, and returned to the living room.</p>
-<p>"Here's your coffee."</p>
-<p>"Thank you, Orabeoni. Orabeoni, please try the coffee with the chocolate I brought."</p>
-<p>At Taira Kanna's words, I removed the packaging to find a three-tiered chocolate shaped like a Wedding Cake. A man in a Suit and a Woman in a Wedding Dress were crafted from sugar art and adorned it, and the three-tiered chocolate was also lavishly decorated with white chocolate.</p>
-<p>"Amazing. A three-tiered wedding chocolate, huh...."</p>
-<p>"I designed our Wedding Cake in chocolate in advance for when we get married."</p>
-<p>Taira Kanna talked about 'our marriage' and 'Wedding Cake,' but I pretended not to hear. I just took a Photo, like with other Valentine's chocolates. I thought I should take a Photo since it would disappear once eaten.</p>
-<p>"Put the Camera down and wait a moment."</p>
-<p>As I admired the chocolate Taira Kanna gave me, Taira Kanna took out a Camera and started Filming me and the chocolate. After taking solo Photos of me for a while, she eventually came to my side, took a selfie with me, and then stood up.</p>
-<p>"This should be worthy of my collection. I'll send you one of the Photos I took."</p>
-<p>You have a Photo collection of me? Indeed... judging by how she swept up our club's anthology at the festival, she must have collected all my photo cards, so she probably has a Photo collection of me besides the photo cards.</p>
-<p>"Ah, and these are Neika and Rina's Giri Choco gifts."</p>
-<p>Taira Kanna, as if remembering belatedly, took out two ready-made chocolates from her Bag and handed them to me. Muko Neika and Nakanoin Rina also prepared chocolates for me... that was unexpected.</p>
-<p>"Then... I'll see you at Graduation, Orabeoni♥"</p>
-<p>Jjok.</p>
-<p>After kissing my forehead, Taira Kanna left, leaving only the three-tiered wedding chocolate. I had no intention of eating chocolate first thing in the Morning, so I put it back in the box and placed it in the refrigerator.</p>
-<p>Since I was already up early, I gulped down the remaining coffee and began Studying for the PMC certification Test. After Studying for a while, the doorbell rang again.</p>
-<p>"Yes~!"</p>
-<p>When I opened the front door, the special class Students were there in a group. Each of them held a Gift Box, as if they had prepared Valentine's Day gifts.</p>
-<p>"Happy Valentine's Day~☆"</p>
-<p>"We've prepared Valentine's Day gifts~!"</p>
-<p>"Teacher-nim~!!"</p>
-<p>All of them, like high school girls, squealed with lively Attitudes, making the neighborhood noisy from the Morning, so I let everyone Inside the House for now.</p>
-<p>"Did you all make chocolates?"</p>
-<p>"Yeah, we went Home early yesterday and made them."</p>
-<p>Minamoto Lisa answered my Question. Then, smiling sweetly, she held out a box to me. It was a box with a slight oriental pattern, and when I received and opened it, there were three Glass/Cups inside. And inside the Glass/Cups, there was a transparent, jelly-like substance, as if Alcohol had been poured into them.</p>
-<p>"They're Glass/Cups...?"</p>
-<p>"Yes, I made chocolates in the shape of Glass/Cups and put solidified Japanese sake, hardened with agar-agar, inside them. It's a Japanese-style whiskey bonbon."</p>
-<p>Ah, that's interesting. Solidifying Japanese sake and putting it into Glass/Cup-shaped chocolates, it seems like it must have some meaning...?</p>
-<p>"It's incredibly novel, but you wouldn't have made it like this without any Reason.... Could you explain a little more?"</p>
-<p>At my Question, Minamoto Lisa suddenly blushed. Did I ask something embarrassing? As I tilted my Head and looked at her, Minamoto Lisa, with an Embarrassed Face, opened her mouth.</p>
-<p>You know, there's a ceremony called Sansankudo (三三九度) in traditional Japanese weddings...</p>
-<p>Aha, so you made it with a wedding as the motif, like Taira Kanna. Taira Kanna made hers with a Western wedding, giving it a Wedding Cake feel, while Minamoto Lisa represented Sansankudo, a part of the traditional wedding ceremony, with chocolate.</p>
-<p>"Since it's Sansankudo... shall we share it?"</p>
-<p>Since Sansankudo was a ceremony where the Bride and groom shared three cups of Alcohol, I playfully asked Minamoto Lisa.</p>
-<p>"Oh, I don't know...!"</p>
-<p>"We're here too, so don't be all lovey-dovey just the two of you, okay?"</p>
-<p>Minamoto Lisa, not seeming displeased by my Proposal, smiled, said 'I don't know,' and twisted her Body, while Seizawa Shii, watching her, puffed out her cheeks and spoke.</p>
-<p>"Next is Seizawa Shii?"</p>
-<p>"We didn't decide on the Turn, but since Ryuta-cchi called... here!"</p>
-<p>Seizawa Shii coolly handed over the box, and when I opened it, there was a miniature washing machine inside. It wasn't a regular washing machine, but a miniature of the commercial washing machine from the Coin Laundry that had a deep Fate with Seizawa Shii.</p>
-<p>"The Metal parts of the washing machine were made with edible silver, and the rest was made by polishing chocolate!"</p>
-<p>Amazing. It looked exactly like a real washing machine, scaled down. Along with Minamoto Lisa's Glass/Cup chocolate I just received, it was almost too precious to eat.</p>
-<p>"Lisa's and Shii's are both too precious to eat."</p>
-<p>"Ehehe...! I made it well, didn't I?"</p>
-<p>She seemed very pleased with my Praise. Of course, the other special class Students, who didn't know the meaning of the washing machine between Seizawa Shii and me, looked at Seizawa Shii, who was giggling 'ehehe,' with Expressions that said, 'It's well-made, but why a washing machine for Valentine's Day?'</p>
-<p>"Uhuhuhu, you don't know, but we have our own Story~."</p>
-<p>Despite her Friends' puzzled Gazes, Seizawa Shii, with a sly Attitude that said, 'You don't have memories like this, do you?', annoyed the special class Students.</p>
-<p>"Next is me, Teacher-nim."</p>
-<p>The next Student to step forward was Konoe Akina. When I unwrapped the Gift Box Konoe Akina gave me, something like a basket appeared. Inside that basket....</p>
-<p>...!</p>
-<p>Countless eyeballs were staring at me. I almost screamed without realizing it. Of course, the eyeballs were made of chocolate, but their Veins and shape were incredibly similar to real eyeballs. The only difference was that a pink heart was drawn on the pupil part.</p>
-<p>"Th-they're pretty eyes, aren't they?"</p>
-<p>"Yes. Hehe.... Mine are made by coating grapes with chocolate, so please eat them before they spoil. I went through quite a lot of trouble to make them, selecting Kyoho grapes that matched the size of an eyeball and even removing all the seeds."</p>
-<p>So they were made from Kyoho grapes.... That's why they're just eyeballs when you coat grapes with chocolate. At Konoe Akina's words to try one, I picked up an eyeball and put it in my mouth.</p>
-<p>Kkwadeuk....</p>
-<p>Because of its shape, as the slightly hard chocolate film broke in my mouth, the grape fluid inside squirted out, and it truly felt like chewing on an eyeball.</p>
-<p>As my Depiction just now suggested, the Touch was not great, but the taste was fine. The rich chocolate taste lingered in my mouth before disappearing, and the refreshing tartness of the grape washed away the chocolate's heaviness, creating a balanced flavor. It surprisingly goes well with fruit.</p>
-<p>"It's delicious. Though at first, because of its shape, it was a little scary."</p>
-<p>"Can we try one too?"</p>
-<p>When I said it was delicious, Seizawa Shii asked with an Attitude that couldn't contain her curiosity. But Konoe Akina shook her Head.</p>
-<p>"Since I gave the gift to Teacher-nim, Teacher-nim has to allow it."</p>
-<p>Since it was already a gift given to me, it became mine, meaning I had to give permission. Seizawa Shii then looked at me and asked.</p>
-<p>"Ryuta-cchi~! Can we try one?"</p>
-<p>"Yes, it's precious since Akina gave it to me, but I still want to share this taste. Everyone, try one."</p>
-<p>Actually, I allowed it because I found it a bit much to eat all these eyeball chocolates by myself, but I said it was precious so Konoe Akina wouldn't feel bad, and handed them out to the Students one by one.</p>
-<p>Seizawa Shii casually popped an eyeball chocolate into her mouth, but some Students frowned at the excessively realistic eyeball shape before reluctantly putting it in their mouths.</p>
-<p>"As Ryuta-cchi said, the taste is fine."</p>
-<p>Seizawa Shii couldn't hide her Expression. She frowned and said the 'taste' was fine, and the others, following the realistic shape, were at a loss with the realistic bursting sensation in their mouths.</p>
-<p>"The feeling of the eye bursting is really realistic, isn't it?"</p>
-<p>Seeing Konoe Akina, who was asking excitedly, made me realize that she was no ordinary person either. I thought Konoe Akina's terrifying Valentine's Day gift was the last of its kind, but upon receiving the next Student's gift, I realized it was just the beginning.</p>
-<p>Requested by Gojoy-nim: Nakanoin Rina's casual attire and underwear attire~!</p>
-<p>Casual Attire</p>
-<p>As a disciplinary committee member, her usual attire is a School Uniform, but since she's graduating now....</p>
-<p>She'll probably dress in a Suit-like style hehe.</p>
-<p>Underwear~!</p>
-<p>Requested by TheDreaming-nim: Muko Neika 1. Exposure rear view at the Art Museum 2. Front and side view Filming with a phone Camera.</p>
-<p>1.</p>
-<p>2.</p>
-<p>Today is Parents' Day and the author's birthday, so like last year, I gave myself a gift hehe.</p>
-<p>I bought a 16-Terra hard drive hehe Kkiyoooot!</p>
+<p>Seizawa Shii and Sakagami Rena rode their bikes to an abandoned orphanage on the outskirts of Miyashi. In front of the orphanage, a nameplate that read 『Senya Children's Welfare Facility (聖夜-児童養護施設) Miyashi Branch』 was displayed. The building looked clearly old and rundown, but the nameplate was spotless, as if it had been put up just yesterday.</p>
+<p>"Senya Children's Welfare Facility.... They deliberately hung it for me to see. What a terrible Taste, truly." Seizawa Shii said, looking at the Nameplate. In the past, during the Anyaji Attack Incident, Funayama Seigo had deceived Seizawa Shii by claiming he was the director of the Senya Children's Welfare Facility, so seeing that Nameplate hung at the abandoned Orphanage, it was clear its Purpose was to shake Seizawa Shii's composure.</p>
+<p>"Don't mind it." "I don't mind it. It just means another Fist Mark will be etched onto Funayama Seigo's Face." Seeing the Blood Vessel bulging on her Temple even as she claimed not to mind, it seemed she wasn't angry, but at least Frustrated.</p>
+<p>"Let's go in." "Wait a moment.... Hide the bikes where they can't be seen." The meticulous Sakagami Rena had Seizawa Shii hide the bikes they rode in on, and she herself affixed a Talisman to the Orphanage Entrance. It was a Jusul Trap placed in preparation for any potential Anyaji Support forces. Since Seizawa Shii was incredibly strong, moving two bikes was no Work at all. While Sakagami Rena was attaching the Talisman, Seizawa Shii hid the bikes behind a rather large Tree and returned.</p>
+<p>"Let's go in. Even if additional Enemies come, it will buy us Time to escape." "Escape, you say~! If those Bastards come, we'll just beat them up as they arrive!" The cautious Sakagami Rena and the confident Seizawa Shii entered the abandoned Orphanage, exchanging opposing views on the Enemy's Support forces. The abandoned Orphanage was a three-story square Concrete building with no discernible Design elements, and it had a playground for children to Play, giving it a School-like Feeling, but there was still a difference in Scale.</p>
+<p>Especially since Seizawa Shii and Sakagami Rena had attended St. Francis Girls' Academy, which had an enormous Scale with multiple playgrounds, they couldn't think that its Structure was similar to a School.</p>
+<p>"Have you arrived?" Funayama Seigo emerged from a secluded Corner pillar of the Orphanage and offered a greeting. His Attitude was as if he were truly welcoming a customer, just because he had put up a Nameplate. Seizawa Shii snorted, as if even Funayama Seigo's Attitude displeased her.</p>
+<p>"Why did you call us?" "I only called Seizawa Shii-nim. I didn't call your friend." In response to Seizawa Shii's Question, Funayama Seigo answered with Feigned Ignorance. Funayama Seigo's Words were indeed true. He had only Contacted Seizawa Shii, saying he wanted to clear up a Misunderstanding.</p>
+<p>Although Anyaji had judged Sakagami Rena to be part of Seizawa Shii's Pabeol, since it was Seizawa Shii who ultimately conveyed the message, Sakagami Rena became someone who simply followed along without an invitation. Of course, Anyaji would have Guessed that Sakagami Rena would follow.</p>
+<p>"Well, it doesn't Matter. You are Sakagami Rena-ssi, correct? Please listen together. The Reason we called Seizawa Shii-ssi is to invite Seizawa Shii-ssi to our Anyaji. Well, if Sakagami Rena-ssi also comes, you are welcome, but...." "Hah...!" Seizawa Shii was dumbfounded. Had Funayama Seigo forgotten that he himself had cast a weak Hypnosis-like spell on Seizawa Shii? Because of that, she almost developed a grudge with Kujo Kina, and she even killed the broker she had worked with for a long time with her own Hands, and now he was asking her to join Anyaji...! It was impossible. Moreover, he was even bothering Sakagami Rena, which made her even more Frustrated.</p>
+<p>"No. I'd rather die than join Anyaji." "You seem to be under some mistake." At Seizawa Shii's refusal, Funayama Seigo opened his Mouth with a chilling Expression.</p>
+<p>"If you don't join Anyaji, you will die. Not just you, Seizawa Shii-ssi, but also the friend you brought with you." In the end, all Funayama Seigo was doing was Threatening them with Death. Seizawa Shii and Sakagami Rena looked at each other and giggled. Because Funayama Seigo was acting exactly as they had discussed beforehand, seeing each other's Faces made them burst into Playful Laughter.</p>
+<p>""Try to kill us."" They both turned their Heads simultaneously and spoke to Funayama Seigo. Seeing that, Funayama Seigo ground his teeth.</p>
+<p>"Kukuku, why bother arguing with High School Girls? You should just Faint them without further Conversation." From behind Funayama Seigo, an elderly man of massive size, incredibly fat, and wearing a hakama appeared. His name was Genpaku (元伯), one of the Guardians of the Guardian Hall. Seeing his enormous size, his oicho (大銀杏: ginkgo leaf-shaped topknot worn by sumo wrestlers of Juryo (十兩) rank or higher), and his hakama, it was clear he had mastered sumo-based martial arts.</p>
+<p>"Plan A was not combat, but recruitment. Since they refused, we have no choice but to fight, but...." "Then I'd like to take on that Platinum Blonde Hair High School Girl, uhuhuhuhu....!" At the Words that they had no choice but to fight, Genpaku grinned lecherously and pointed at Seizawa Shii. Seizawa Shii, seeing him, called him a Crazy old man! but seeing him grin even more slyly, it seemed he wasn't particularly Impacted.</p>
+<p>"Genpaku-nim, Seizawa Shii is a target for persuasion. If a Guardian fights her, she will be greatly harmed, so I will entrust you with Sakagami Rena-ssi, who came with her." "Tsk...! It's a shame, but it can't be helped." Genpaku clicked his Tongue regretfully and stood before Sakagami Rena. Sakagami Rena, without any Conversation or hesitation, threw a Surigeom at Genpaku.</p>
+<p>"Th-that! How rude...!" Genpaku shouted, dodging the suddenly flying Surigeom. He was large in Size, but quite Agile. However, he couldn't dodge all the Surigeom that instantly attacked from multiple angles. With a chilling pook pook sound, two Surigeom embedded themselves in Genpaku. But perhaps because his Fat was so thick, they failed to inflict fatal Harm.</p>
+<p>"Kwaaah!" Genpaku charged at Sakagami Rena with incredible speed. Then he struck Sakagami Rena with a Harite, a sumo palm strike.</p>
+<p>Pu-wook! "Kwaaaak!" With the sound of something being deeply pierced, Sakagami Rena's Appearance scattered and vanished, and a log-shaped Box with iron Thorns appeared. Because Genpaku had used Harite with considerable Power, his Hand was pierced by the iron Thorns. Since there was little Fat on his Hands and Fingers, it could be said he suffered significant Harm.</p>
+<p>Pook pook pook! While Genpaku screamed in agony, Sakagami Rena threw Surigeom repeatedly from behind again. Again, due to his Fat, they didn't inflict significant Physical Harm, but the Surigeom that embedded this time were Poison Surigeom coated with a neurotoxin that dulled the Opponent.</p>
+<p>"Kwaaaah, this bitch!" She didn't know what trick he used, but the Poison didn't seem to affect Genpaku. It was a fast-acting Poison, strong enough for combat, but seeing him Charge at an incredible speed, no different from before, it seemed to have no effect at all.</p>
+<p>Sakagami Rena pulled a smoke bomb from her Embrace and threw it on the Floor. Genpaku advanced straight through the smoke like a Charging Tank, but Sakagami Rena was no longer there. -Katon (Fire Release) Dragon's Breath. Sakagami Rena quickly formed hand seals, then exhaled a breath of intensely hot Flame at Genpaku.</p>
+<p>"Kwaaaaaah!" Although it was an intensely hot Flame, Genpaku, seemingly unafraid, Charged through the Fire towards Sakagami Rena. His Hakama was burning, but he didn't seem to mind at all.</p>
+<p>- Nekodamashi (猫だまし: Cat Trick). And then, right before Sakagami Rena's Eyes, he clapped his Hands with immense force, extinguishing the Fire with the Aftermath and sending Sakagami Rena flying.</p>
+<p>'What incredible Power!' Sakagami Rena was surprised by Genpaku's Power even as she flew through the air. At first, he just felt like a Fat sumo wrestler, but now he felt like something that transcended sumo.</p>
+<p>Sakagami Rena landed lightly on the Floor like a Cat, but she had no choice but to move immediately. Because Genpaku's Attack continued relentlessly.</p>
+<p>This time, he charged threateningly, lowering his head like a battering ram, and his movements resembled the sumo technique Buchikamashi (ぶちかまし: headbutt).</p>
+<p>Since he had already approached at an incredible speed and was close, Sakagami Rena tried to leap over him by stepping on Genpaku's Shoulder.</p>
+<p>"!" But she couldn't. An invisible Energy field had formed around Genpaku, delivering an immense Shock just by touching it.</p>
+<p>Sakagami Rena quickly pulled her Hand away and rolled her Body, dodging Genpaku's Buchikamashi. At first, she had underestimated him slightly because she was easily hit, but it seemed he hadn't earned the title of Anyaji Guardian merely by his large Size.</p>
+<p>"Khahaha! You're good at escaping! Kwaaaak, this bitch!!!" Seizing the Moment Genpaku laughed and spoke, Sakagami Rena threw a Surigeom again.</p>
+<p>After clashing a few times, it seemed there would be no chance of victory if she fought him head-on. She decided to accumulate Harm gradually by engaging in a Long Game with hit-and-run Tactics.</p>
+<p>"Kwaaaak!" The Surigeom she had just thrown was not an ordinary Surigeom. It was a Surigeom wrapped in a Talisman inscribed with an explosion Jusul. When Genpaku nervously pulled out the Surigeom embedded in his Body, it exploded. Sakagami Rena didn't miss the Explosion and threw a few Small Bottles at Genpaku.</p>
+<p>As something flew towards him while he was caught in the Explosion, Genpaku instinctively hit the Bottles. As Genpaku hit them, the Bottles immediately shattered with a jjaeng-geurang sound, and the special oil of the Sakagami Family inside flowed out and set Genpaku's Body on Fire.</p>
+<p>"The whole roasted pig is cooking nicely." Sakagami Rena said, looking at the burning Genpaku with a somewhat triumphant Expression.</p>
+<p>Requested by DoubleBarrelShotgun-nim, Black Gyaru Shii~!! It was fun making them, so I created several Concepts haha. As expected, tanning the Skin gives a slight Lisa-ttang Feeling haha. Requested by RefundAbsolutelyImpossible-nim, Tank Top + Jeans + Belly button Piercing Home Economics Teacher, Lisa-ttang~!! Lisa-ttang~! Home Economics Teacher~!</p>

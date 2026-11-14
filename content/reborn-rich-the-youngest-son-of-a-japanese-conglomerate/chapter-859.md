@@ -5,81 +5,72 @@ weight = 859
 chapter = 859
 +++
 
-<p>Shimokawabe Airen, who had approached Ichimonji Harugoro, with a shy Expression (it was the first Time I had seen such an Expression from her), took out several Swords from her Bag. Then, she held them out to Ichimonji Harugoro.</p>
-<p>"Please sign the Scabbard for me."</p>
-<p>"Oh...! These are my early creations...! And this one was given as a Gift to someone...! And this one was made as a limited edition...! How did you get your Hands on these?"</p>
-<p>Ichimonji Harugoro's Swords would command no small Price, yet she possessed so many... It wasn't for nothing that Shimokawabe Airen lived in the Cheongsim Hall building on the school grounds. It seemed she saved on rent to collect Swords.</p>
-<p>"I inherited some from my Master-nim. The early creations you mentioned, and the ones given as Gifts, my Master-nim passed down to me."</p>
-<p>Shimokawabe Airen's master, I heard from Kujo Kina's master, was probably named Haruka (温和). I didn't know her last name back then, but it might be revealed today.</p>
-<p>"Could your Master-nim possibly be Kagiya Haruka?"</p>
-<p>"Yes."</p>
-<p>It seemed there was some kind of relationship between Shimokawabe Airen's Master-nim, Kagiya Haruka, and Ichimonji Harugoro. Since he had given her Swords he made in his early days and another as a Gift, they must have been quite close.</p>
-<p>"As you know, Haruka and I were Neighborhood Friends since childhood. When Haruka said she wanted to become a Swordsman, I jumped into blacksmithing, vowing to make her Swords... After what happened to Haruka, I had no further reason to see her..."</p>
-<p>Ichimonji Harugoro suddenly spoke of a pure love Story between childhood friends, his Eyes turning wistful. As the Students remaining in the Blacksmith's workshop focused their Gaze on him, he cleared his throat, a little embarrassed, and mumbled his Words.</p>
-<p>"Well... you asked me to sign them, didn't you? Instead of a mere Sign, I will engrave my Seal into the Scabbard and inlay it with Gold."</p>
-<p>Inlay craft, you say...! Isn't that even more difficult than a mere Sign? It seemed he was giving special treatment to his childhood friend's Disciple.</p>
-<p>"What kind of Sword would you like me to make for you?"</p>
-<p>"Ah, that..."</p>
-<p>At Ichimonji Harugoro's Question, Shimokawabe Airen, like a skilled Swordsman, made various Demands. Ichimonji Harugoro listened to Shimokawabe Airen's Demands and simultaneously recorded them on his tablet.</p>
-<p>"You even make similar Requests to Haruka..."</p>
-<p>Ichimonji Harugoro rubbed his Nose, speaking as if touched again after hearing Shimokawabe Airen's Request. No, old man, don't get sentimental again.</p>
-<p>"You, come over here."</p>
-<p>After Shimokawabe Airen went to have her Body measurements taken, Ichimonji Harugoro, having regained his composure, called me over.</p>
-<p>"Ahem, ahem... Right, in what order should I proceed with the crafting?"</p>
-<p>"As I said, please prioritize those who will use them as their main Weapons, and put those who want Spare Swords later. It seems a Battle will break out within a month at the latest."</p>
-<p>According to Athena Mannerheim's Words that Anyaji was training martial artists with white Aura, it was obvious that Attacks against Fujigasaki Rinka and me would follow soon, so I wanted to Arm all the Students with proper Weapons.</p>
-<p>"I have many Swords, so please put me later in the order, and Alik needs to identify the traces on his Sword, right? Please move Alik's order forward."</p>
-<p>Shimokawabe Airen, having finished all her Body measurements, approached and spoke. That's right, Alik would benefit from finding the hidden traces on his Sword and gaining new Technology, so he should receive his Weapon first.</p>
-<p>"That's right. Please do so."</p>
-<p>"Heh heh, I was itching to get to Work anyway, as Mithril arrived yesterday. Of course, there was some Mithril that came for practice before that, but I used it to make about three practice Swords, so it's gone..."</p>
-<p>For reference, the practice Swords Ichimonji Harugoro had made beforehand were to be sold on the Black Market. He was selling them under the Name 'Mithril Zero Prototype,' or something... Since the ingredients had also arrived, I should ask how long it would take.</p>
-<p>"How long will it take?"</p>
-<p>"If it were just me, it would take quite some Time, but with my Disciples, newly hired Employees, and the many Machines you invested in and purchased, it won't take long to forge a single Sword. In fact, I Work on several Swords simultaneously... Excluding the Products I pay special attention to, it should be about a week."</p>
-<p>It seemed that the Anglerfish fit well, and thanks to the Disciples we hired and the various auxiliary Machines we purchased, the Time would be reduced. That was good. I had worried that Time might be too tight, but it seemed I didn't need to worry about that.</p>
-<p>"The Products you pay special attention to...?"</p>
-<p>"Of course, as a Blacksmith, I will pay attention to all of them, but I can't help but pay more attention to the Tairaga Daughter's Rapier and the Sword of Haruka's Disciple here."</p>
-<p>Ichimonji Harugoro answered my Question honestly. The Rapier Taira Kanna possessed was made by a tier-1 Western Sword maker, so his Rivalry would be ignited, and Shimokawabe Airen's Sword, being for the Disciple of his beloved(?) childhood friend, he would naturally put more effort into crafting it.</p>
-<p>I glanced at Shimokawabe Airen, and she seemed very happy that her Weapon would be crafted with such care.</p>
-<p>"Don't worry about the rest. I will put enough effort into them. And since those two Weapons are later in the order, don't worry that the others won't receive theirs."</p>
-<p>Taira Kanna had requested a Spare Weapon, which was a later priority, and Shimokawabe Airen had yielded her turn to Alik, so her crafting order was also later. It seemed he intended to put a lot of effort and Time into them anyway, as they were later in the crafting order and unrelated to immediate Battle. Well... I couldn't say anything about that.</p>
-<p>"Now, I'm going to be busy starting today, so you and your Disciple should leave."</p>
-<p>Ichimonji Harugoro issued an order to leave, as if he intended to start Work immediately. Since he was promising to make the requested Items quickly, we had no intention of lingering in the Blacksmith's workshop, so we left.</p>
-<p>"Ichimonji-ssi and Shimokawabe-sensei's Sabu-nim, were they close?"</p>
-<p>As I stepped out of the Blacksmith's building, I asked Shimokawabe Airen what I had been curious about.</p>
-<p>"I heard from my Sabu-nim that Master Ichimonji had a Jjak sarang for her. And that he gave her many Gifts..."</p>
-<p>"Ah...!"</p>
-<p>To act as if they were unfortunate Yeonin, when it was unrequited love... What an astonishing old man. To protect old man Ichimonji Harugoro's Dignity, I decided not to say anything more.</p>
-<p>When I contacted Saionji Diana and Muko Neika, who were in the firearms warehouse, they said they were coming out of the warehouse and heading this way.</p>
-<p>I waited for them in the Parking Lot after getting the Students into the car, and they both came carrying a lot of Luggage, as if they had picked out many Items. Beside them, Chief of Arms Shizuma Ichihara was walking along, wearing a proud Expression like a Grandfather who had given many Gifts to his Granddaughter.</p>
-<p>"There were quite a lot of intriguing Items, Teacher-nim~!"</p>
-<p>Seeing the usually calm Saionji Diana quite excited, it seemed she was very pleased with Shizuma Ichihara's Items.</p>
-<p>"That's right~! There's a lot of useful stuff here, Yamashiro ssaem!"</p>
-<p>Muko Neika also seemed very satisfied, gently stroking the duffel Bag slung over her Shoulder.</p>
-<p>"Heh heh, most of them are former Terror Items, but they'll be useful."</p>
-<p>Oh, right. This old man, though now a military supplies manager for a PMC, was a bad old man who supplied firearms and explosives to terrorist organizations just a few months ago, wasn't he? Still, he seemed pleased that the high school girls showed Interest in the various Items he had made.</p>
-<p>"Heh heh heh, you said you'd pay, didn't you? The Items the two of them picked out total 2.4 million yen, so please settle the payment."</p>
-<p>Or was he happy because of the Money he'd get from me...? By the way, what did the two of them spend 2.4 million yen on?</p>
-<p>"Shall we look at the Receipt first? You brought it, right?"</p>
-<p>"Of course, I prepared it. Take a look."</p>
-<p>I looked at the Receipt Shizuma Ichihara gave me. 20 high-impact Grenades each, 10 ankle mines each... 500 gaejo Ammunition rounds with high Penetration each, large-caliber shotgun Ammunition infused with Mithril powder and a pump-action shotgun that could use it, a heat-seeking Missile and a launcher... Looking at the Items listed on the Receipt, I even wondered if he had given them to us cheaply.</p>
-<p>"Didn't you give them to us cheaply?"</p>
-<p>"Heh heh, I had a Granddaughter who died long ago. Today, I was just reminded of her for a moment."</p>
-<p>It seemed to be a day for the Chungrangdae old men to get lost in Memory. Since I couldn't inflict financial loss on Chungrangdae, which was just starting out, I decided not to take a discount. Anyway, if there was a loss, I'd have to cover it, so it was better to pay now.</p>
-<p>"You're getting the Money from me, not them, so don't regret it later and take a lot."</p>
-<p>"Then give me exactly 3.72 million yen."</p>
-<p>As expected, he didn't refuse. I sent a Text Message to Jinmija Yeosa, redirecting the 3.72 million yen charge to Hatake Investment Company. They would deposit the Money within a few days.</p>
-<p>"3.72 million yen? Understood. I told Hatake to deposit the Money, so they'll deposit it."</p>
-<p>The Weapon crafting Request was done, and the Money Deal was done, so there was no Reason to stay here any longer. Kurayamada Kirie wasn't here anyway, so I should take the Kids to lunch.</p>
-<p>"Would you like to go to lunch with us?"</p>
-<p>"No, it's fine. Young people should eat together. I brought my Lunchbox."</p>
-<p>At my Proposal, Shizuma Ichihara waved his Hand and returned to his office. If he didn't want to eat, there was nothing I could do. I turned my Head to look at the Students and spoke.</p>
-<p>Torimotsuni (鳥もつ煮: braised chicken giblets in soy sauce) is famous in Kofu, so shall we have that for lunch?</p>
-<p>"Sounds good, Orabeoni~!"</p>
-<p>"I don't know what it is, but if Ryuta eats it, Alik will like it too...!"</p>
-<p>"Might as well give it a try."</p>
-<p>Everyone agreed and nodded their Heads at my Proposal, so I punched the restaurant I had looked up into the GPS and started the car.</p>
-<p>Empty-eyed Yandere Alik, requested by Iseibu-nim~!</p>
-<p>Felt a little weak? So I added eye shadow, hehe.</p>
-<p>「Ryuta tied to a Chair... Good. Alik and Ryuta, we'll be together for a Lifetime.」</p>
-<p>Home Ec Teacher B-cut~!</p>
-<p>Knee socks felt too childish, so I took them off, hehe.</p>
+<p>before breast chapter check contains please surroundings this your</p>
+<p>Thinking about it now, it was a little strange. From September of last year until mid-February now, whenever I was at the academy, we almost always ate lunch together, and at least once a week, we mingled our bodies in the Infirmary, but I had never seen Kijimoto Jurie outside of school events.</p>
+<p>Even if I considered the Students an exception, as I met them frequently outside, I had been to the homes of fellow faculty members Daigo Terue and Matsunaga Yuzuki, or met them outside, but strangely, I had never met Kijimoto Jurie outside.</p>
+<p>And then, I suddenly recalled something Daigo Terue had casually mentioned long ago, when she was talking about the Fixers affiliated with St. Francis Girls' Academy.</p>
+<p>"Dokumajo (Poison Witch)...."</p>
+<p>"Oh my?! You know that name? I got that nickname after poisoning and killing several people during a mission."</p>
+<p>At my mumble, Kijimoto Jurie, surprised, asked, "Huh? How do you know that?" and then explained to me why she got the nickname Dokumajo.</p>
+<p>"Surely, it's not because I'm an Assassin that you've come to dislike me, is it?"</p>
+<p>As my reaction was lukewarm, Kijimoto Jurie's Expression turned chilling, and she asked, "Have you come to dislike me?" Looking at her like that, it was a bit scary...? It felt similar to that yandere face I had seen from Taira Kanna.</p>
+<p>I shook my Head at Kijimoto Jurie's Question. Honestly, if it came to killing people, I was no less experienced, so that wasn't why I disliked her. There were even a few women I had a Relationship with who had Murder experience. Frankly, Seizawa Shii herself was a Fixer who killed bastards, called an Ogre.</p>
+<p>"No.... It was sudden Information, and honestly, I never expected someone as innocent-looking as Jurie-sensei to do such Work."</p>
+<p>"I'm innocent? Oh, you~!"</p>
+<p>I wasn't praising her for being innocent.... Still, she seemed pleased, patting my Shoulder and exclaiming, "Oh, I don't know~!" as she blushed. Judging by the strength with which she patted my Shoulder, her raw power didn't seem that strong.</p>
+<p>"Now that there's nothing left to hide, I'll ask you again. Will you truly Work under me?"</p>
+<p>"I already answered earlier, I will!"</p>
+<p>At my Question, Kijimoto Jurie nodded her Head with a gaze full of enthusiasm. Now that I knew Kijimoto Jurie was an excellent Assassin, it felt like a waste to only use her as an Infirmary Doctor, but I would have to discuss this Matter with Joseodang and my other comrades.</p>
+<p>Since I didn't even know exactly what Ability Kijimoto Jurie possessed, I would have to bring the Glasses from the Yujeok tomorrow and check.</p>
+<p>"Then, continuing from what I said earlier, I am Taira Ryuta...."</p>
+<p>I began the Story that had been briefly interrupted when Kijimoto Jurie revealed her True Identity. I revealed my True Identity, explained my Situation, and also talked about the PMC Kijimoto Jurie would Work for.</p>
+<p>In fact, I hadn't obtained my PMC license yet, but there was an exam in February, almost immediately after Graduation, so I could get it then. At that time, I would take the exam under the name Taira Ryuta and pass.</p>
+<p>While I was talking to Kijimoto Jurie, I heard the boisterous sounds of Students leaving school in the middle. It seemed the Story had gotten a bit long.</p>
+<p>"I see...! I knew Yamashiro-sensei was extraordinary, but I didn't know you were of the Taira Direct Lineage."</p>
+<p>Kijimoto Jurie, as if nothing had happened, entered her usual kind Infirmary Teacher Mode, cooing and hugging me tightly, saying I had suffered greatly. Her gentle Expression and action made me doubt if she was truly the Woman who said she would taxidermy me and stare at me forever.</p>
+<p>"Then, would you tell me your Story, Kijimoto Jurie-sensei?"</p>
+<p>I wanted to know a little more detailed Story. I became curious about the Story of how a Woman with even a Doctor's license became an Assassin. At my Request, Kijimoto Jurie began her Story while still hugging me.</p>
+<p>"Hmm.... I was quite intelligent. Enough to Study various subjects even while attending medical school. One day, during an internship, I saw a patient poisoned by a toxic substance, and something just clicked, you could say.... After that, I studied chemistry and various Addiction mechanisms, eventually majoring in clinical microbiology."</p>
+<p>"And becoming an Assassin?"</p>
+<p>As Kijimoto Jurie's Explanation only contained stories about her studies, I asked how she became an Assassin.</p>
+<p>"Well, when you Study, don't you wonder if the content is actually correct?"</p>
+<p>Kijimoto Jurie asked me as if seeking my Consent. Honestly, for me, who had little connection to Study apart from the PMC license studies I was doing recently, it wasn't a very relatable theme.</p>
+<p>If it were me, I would just think, 'There's a lot to memorize, I hate it,' but some people, like Kijimoto Jurie, who had a strong Interest in Study, seemed to wonder, 'Will the content I'm learning actually be useful? And will the Theory actually be applicable?' Even if I didn't agree with Kijimoto Jurie's thoughts, there was no need to interrupt Kijimoto Jurie's flow of Story, so I nodded my Head in agreement.</p>
+<p>"Right? So, I started conducting Addiction Experiments~! Of course, I couldn't just go around killing ordinary people, and I also needed to cover research expenses, so I thought, 'Let's kill people with the Poison I have and earn Money!' That's how I think I entered the path of an Assassin. After that, I was scouted by the St. Francis Education Foundation of the Daigo Family."</p>
+<p>I see.... Normally, even someone researching toxic substances would conduct clinical Experiments using animals, not think of using them on people, but Kijimoto Jurie didn't seem to fall into that ordinary category.</p>
+<p>"But are you satisfied just being in the Infirmary? Today's Proposal was made without knowing that Jurie-sensei was an excellent Fixer, so...."</p>
+<p>After hearing Kijimoto Jurie's Story, I felt Doubt about whether the Infirmary Work was truly suitable for Kijimoto Jurie. When I made this Proposal, I didn't know Kijimoto Jurie was an Assassin, so I needed to reconsider.</p>
+<p>"That's true. Hmm.... I quite enjoy working in the Field, you know? I need to verify if my Paper is correct...."</p>
+<p>The Field probably refers to Assassination missions, right? From what I've heard so far, Kijimoto Jurie was less of a natural-born Assassin and more of a natural-born mad scientist. She preferred conducting Human body Experiments to see if the Poison she researched was effective.</p>
+<p>"Anyway, there's only a week left until Graduation, so please think about it during that time. Just tell me what kind of Work you want to do, and I can create a suitable Position for you."</p>
+<p>"Understood. I won't Worry for too long."</p>
+<p>Well.... Kijimoto Jurie wouldn't demand the Vice President position of an Affiliate Company I was going to receive; she would probably ask for a Position appropriate for her.</p>
+<p>"Until Yamashiro-sensei came today, I was really depressed...! I thought my Fate with Yamashiro-sensei might end like this."</p>
+<p>"It hasn't ended, so it's fine, isn't it?"</p>
+<p>"I don't know, you idiot...!"</p>
+<p>As our Stories roughly concluded, Kijimoto Jurie began to complain to me. Since we were still embracing, we bickered playfully, then shared a short peck, followed by a deep, passionate kiss where our tongues entwined.</p>
+<p>Ttseup, Ttseubeup...! Ttseup♥</p>
+<p>After a passionate kiss that lasted for a while, we broke apart at the Clink of the Restroom door next to the Infirmary opening. It seemed the cleaner who tidied the school after hours every day had arrived.</p>
+<p>"Let's stop here for today. I have a Prior Engagement...."</p>
+<p>Honestly, I wanted to ravish Kijimoto Jurie right then and there, but since I had a Prior Engagement with Minamoto Lisa, I promised myself for next time. As we talked, quite a bit of Time had passed, so I had to hurry Home.</p>
+<p>"Understood. I've decided to follow Yamashiro-sensei, so I'll tell the Headmaster I'm quitting, and I'll have to think about what I'll do, as Yamashiro-sensei mentioned."</p>
+<p>"Then, I'll see you tomorrow."</p>
+<p>I should give Kijimoto Jurie some Time to Worry. And I, too, should think about a suitable Position for Kijimoto Jurie. Having finished our Story, I greeted her and stood up from my Seat. And before opening the Infirmary door, I turned my Head to look at Kijimoto Jurie.</p>
+<p>"That taxidermy Story earlier was a Playful Jest, right...?"</p>
+<p>"Uhuhuhu, did it sound like a Playful Jest? It just meant I didn't want to part with Yamashiro-sensei that much."</p>
+<p>To my Question, Kijimoto Jurie gave an Answer whose meaning changed depending on the interpretation. Did she mean she didn't want to part with me so much that she wanted to taxidermy me, or that she would taxidermy me because she didn't want to part with me...?</p>
+<p>Because of Kijimoto Jurie's chilling Gaze I had seen earlier, the latter seemed more likely. I'd have to be a bit more careful from now on.</p>
+<p>I left the Infirmary and went to the education preparation room, packing my Luggage as it was. I considered studying for the PMC license, but since I might be late for my promise with Minamoto Lisa, I only packed the things I would Study tonight.</p>
+<p>As I packed my Luggage, it occurred to me that since Kijimoto Jurie said she would Work under me, I now had two Poison Users under me. In fact, the two were quite different from each other, except for the commonality of using Poison.</p>
+<p>Kijimoto Jurie had mastered Poison through modern medicine and science, while Dang So-hwa had mastered Poison using techniques passed down through her Family for generations, so their starting points were different. By the way, if I were to make them meet, wouldn't an incredible Poison be created?</p>
+<p>Kijimoto Jurie~!</p>
+<p>Requested by ISaveI-nim: Yandere Nurse Shiyo, Jurie~! Starting with Shiyo~!</p>
+<p>"Teacher-nim, you're hurt, so don't go anywhere and sit down^^ I'll protect you for life...."</p>
+<p>Jurie.</p>
+<p>Having been hospitalized after a battle with XXX, I opened my Eyes at a strange presence. Kijimoto Jurie was laughing above me, "Ihihi, taxidermy, taxidermy...!"</p>
+<p>I added a one-sentence IF Story hehe.</p>
+<p>Requested by TheDreaming-nim: Athena sleeping on a park bench + Filming shot and Athena escaping from the park~! Starting with the illustration of her sleeping on a bench~!</p>
+<p>The last one is an illustration when I used 'viewfinder' and 'recording' as prompts instead of just a hand appearing for Filming hehe. Escaping Athena~!</p>
+<p>Requested by seungj050-nim: Home Ec Teacher Liz, in Despair from an irresistible power.... but neither of them shows a good Expression of Despair ㄷㄷ Starting with Home Ec Teacher~!</p>
+<p>Home Ec Teacher came out with a feeling of giving up hehe. Liz~!</p>
+<p>Liz's Expression is like, "What is Despair?" hehehe. Perhaps because she's an Outer God, she doesn't make a Despair Expression even when prompted hehe.</p>

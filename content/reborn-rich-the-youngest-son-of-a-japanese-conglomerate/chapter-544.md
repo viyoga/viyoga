@@ -5,80 +5,77 @@ weight = 544
 chapter = 544
 +++
 
-<p>The morning of St. Francis Girls' Academy's high school athletic meet. The main gate and parking lot of St. Francis Girls' Academy were bustling with numerous luxury cars. Because they were all dignified, large luxury sedans and gathering at the academy's main gate, the entrance to the academy was quite congested.</p>
-<p>Most of the vehicles belonged to parents, relatives, or guardians of the female students attending the high school of St. Francis Girls' Academy, and they were all from somewhat prestigious families or chaebol groups.</p>
-<p>The real big shots, like the Taira, Minamoto, Kujo, or Tachibana, were arriving at the helicopter landing pad of St. Francis Girls' Academy by helicopter. Although the hierarchy was divided in this way as well, none of the parents complained.</p>
-<p>After the shrine in the forest north of the academy collapsed, St. Francis Girls' Academy flattened part of the forest to create a new, large helicopter landing pad.</p>
-<p>This was because last year, and every year, each faction had engaged in a power struggle over the helicopter landing order due to the narrow landing pad, so they wanted to be able to land several helicopters simultaneously.</p>
-<p>Tutututututu!</p>
-<p>A man got off at the helicopter landing pad, which was noisy with the sound of helicopters. It was Kujo Kazuo, the eldest son of the Kujo family and the next Chairman of the Kujo Group. Despite his busy schedule, the handsome man in his early thirties with a dashing aura had come to St. Francis Girls' Academy to see his beloved youngest sister, Kujo Kina's, athletic meet.</p>
-<p>,Those senile old geezers."</p>
-<p>Kujo Kazuo, after getting off the helicopter, muttered while looking at the sky he had just been floating in. Two helicopters were facing each other in the sky. They were the Taira and Minamoto helicopters, trying to be the last to land, even by a little bit.</p>
-<p>,What's so important about landing time...."</p>
-<p>It was an act that didn't align with the Kujo family's spirit of pursuing practical benefits as the third-ranked group. What difference did it make if there were only a few seconds of difference? But despite Kujo Kazuo's cynical thoughts, Kujo Kazuo had to wait for that ridiculous act to end.</p>
-<p>This was because, as the successor of the Kujo family, he had to greet the senile old geezers inside the helicopters. Otherwise, those two senile old geezers would immediately contact Kujo Jyonoshin, the Chairman of the Kujo Group, the head of the Kujo family, and his father, and would spew nonsense about how he wasn't properly educating his children.</p>
-<p>,Did you pack the lunch properly?"</p>
-<p>,Yes, Mr. Vice President."</p>
-<p>It was a tradition at the St. Francis Girls' Academy athletic meet for the students' families to pack a lunch. Kujo Kazuo, who cherished his younger sister, had prepared a meat-focused lunch full of protein that his sister liked.</p>
-<p>As he was confirming a few things with his aide, the two helicopters finally landed simultaneously. It seemed they had come to an agreement to land at the same time after all.</p>
-<p>,The bald head is still the same, Ushin."</p>
-<p>Those were the first words Taira Danjo said as he got off the helicopter. Kujo Kazuo thought that he could never get used to Taira Danjo's appearance, with his white hair but taut skin.</p>
-<p>,Are you a kid, teasing me about being bald? And I'm not bald, I'm clean-shaven."</p>
-<p>Minamoto Ushin, who claimed to be clean-shaven himself, retorted sharply to Taira Danjo as he got off the helicopter. Kujo Kazuo thought that he looked more bald than clean-shaven, but Minamoto Ushin glared at him as if he had read his mind, so he pretended not to notice and turned his head.</p>
-<p>,The air is so good, probably because of the nearby forest and Mount Fuji. Every time I come to St. Francis Girls' Academy, this clear air makes me feel good. You must be happy. You've come here one more time than others."</p>
-<p>Taira Danjo said, pretending to take a deep breath of air with a nonchalant 'heu-eup'. His words sounded envious, saying 'You must be happy,' but it was actually a sarcastic remark implying, 'Your daughter failed a grade and had to come here one more time, huh?'</p>
-<p>Upon hearing those words, a vein started to pop out on Minamoto Ushin's temple. But he quickly changed to a calm expression and opened his mouth.</p>
-<p>,It was good every year, but this year is not so good. There were so many incidents at this academy this year, weren't there? Terrorism, student kidnapping, and even the shrine collapsed. I don't know who the student council president is, but they need to pay more attention."</p>
-<p>It was Minamoto Ushin's counterattack. He meant that the academy had become a mess because Taira Danjo's daughter hadn't done her job properly as student council president. Taira Danjo heard the sound of teeth grinding, but Taira Danjo was smiling.</p>
-<p>,Kukuku...."</p>
-<p>,Hehehe...."</p>
-<p>The two started making strange laughing noises while glaring at each other. Kujo Kazuo sighed. He had seen this scene quite often at meetings of the Japanese business world, but he never got used to it.</p>
-<p>,Senile old geezers.'</p>
-<p>,Instead of doing this here, why don't we go down? Your daughters are waiting."</p>
-<p>Kujo Kazuo approached the two giants of the Japanese business world and said something different from what he was thinking. The two reluctantly nodded as if they understood and stopped glaring at each other.</p>
-<p>,Hmph, alright. Kazuo, you said your sister is attending the academy, right?"</p>
-<p>,Yes. She's a senior in high school this year, so this will be my last time coming here."</p>
-<p>At Taira Danjo's words, Kujo Kazuo's stiff expression relaxed as he answered. Kujo Kina was his favorite among Kujo Kazuo's younger sisters, so it immediately showed on his face. Others called him a siscon, but Kujo Kazuo didn't agree. He never looked at his sister in a sexual way. He just adored her very much.</p>
-<p>,Hmph...! Since she's in the same class as that Risa, she must be an uncontrollable troublemaker."</p>
-<p>The atmosphere suddenly turned cold at Minamoto Ushin's words, but Taira Danjo subtly smiled. He knew that even though Minamoto Ushin called her an uncontrollable troublemaker and acted cold, Minamoto Risa was his favorite child.</p>
-<p>He knew that he was just trying not to show that he cherished Minamoto Risa in front of Taira Danjo. It was probably to hide a weakness.</p>
-<p>,There was an accident during a club activity, so that's how it happened."</p>
-<p>Kujo Kazuo didn't want to talk about Kujo Kina's suspension, so he glossed over it. The other two didn't seem to want to bother Kujo Kazuo any further, so they didn't bring up Kujo Kina. The three talked about business and world affairs as they walked.</p>
-<p>The three, having left the helicopter landing pad, headed towards the spectator seats of the athletic meet. There, the academy director, Daigo Terue, was standing and greeting the parents. When Taira Danjo, Minamoto Ushin, and Kujo Kazuo appeared, all the parents and St. Francis Girls' Academy officials who were sitting stood up.</p>
-<p>,How do you do?"</p>
-<p>,Yes, you're working hard."</p>
-<p>,I hope this athletic meet is successful as well. Especially, I hope the White Team wins."</p>
-<p>,Hello, Daigo-ssi."</p>
-<p>Everyone received Daigo Terue's greetings. After that, everyone approached as if trying to get Taira Danjo or Minamoto Ushin to recognize them, but Minamoto Ushin raised his palm as if he was annoyed and blocked them.</p>
-<p>,I came here today as a parent, so I don't want to talk about work."</p>
-<p>,How cold.... I'll listen to stories. But it has to be a really necessary and important story."</p>
-<p>Taira Danjo, who called Minamoto Ushin cold for completely blocking the other parents' greetings, said with a smile that he would listen to stories, but he made it even more burdensome to approach by adding the condition that it had to be a really necessary story.</p>
-<p>,A cold old man and a cunning old man.'</p>
-<p>Kujo Kazuo muttered inwardly while looking at the two of them.</p>
+<p>Sakagami Rena, having received a leave pass from her homeroom teacher and lord, Taira Ryuta, left the school and changed into her ninja outfit at Taira Ryuta's house near the academy. The Naruse family is a family of onmyoji, so she had to be fully prepared for anything that might happen.</p>
+<p>Sakagami Rena, equipped with numerous magic tools, shurikens, a pistol, an infiltration &amp; escape kit, and various other items, headed towards the Naruse family's mansion. Unlike other prestigious families that tried to be as close to St. Francis Girls' Academy as possible, the Naruse family was uniquely located in a slightly secluded area.</p>
+<p>However, it wasn't too far away; it was still a reasonable distance for commuting by car. The Naruse family's mansion was a modern Western-style mansion on a hill, giving off an arrogant feeling that they were different from the common folk.</p>
+<p>Something was definitely strange. Prestigious families' mansions were usually used as villas and for the young ladies to stay in while attending St. Francis Girls' Academy, but the Naruse family's mansion felt heavily guarded with a large number of personnel. It wasn't just a house for young ladies; it wasn't uncommon to see guards carrying submachine guns.</p>
+<p>,This is definitely suspicious....'</p>
+<p>Sakagami Rena, who had been watching the Naruse family for a while, slowly began to approach the Naruse family's mansion. She covered herself with a disposable special fiber camouflage blanket that didn't emit heat and blended in with the surrounding colors to avoid being detected by thermal imagers, and approached little by little.</p>
+<p>The mansion was located on a hill with an open view, so approaching it directly would likely get her caught. If she were wearing the St. Francis Girls' Academy uniform, she wouldn't be attacked, but since she was wearing a ninja outfit now, she would likely be riddled with bullets from the submachine guns the guards were carrying if she got caught.</p>
+<p>Sakagami Rena approached the mansion slowly but steadily. Eventually, Sakagami Rena, having reached the high walls of the Naruse family's mansion, took off the special fiber camouflage blanket and began to climb the wall. It was the place Sakagami Rena had been watching from the beginning, where the guards patrolled the least.</p>
+<p>Having successfully climbed over the mansion's wall, Sakagami Rena looked around and took out a device from her pocket. It was a device that could find the coordinates of where the person was mainly located based on line chats or calls.</p>
+<p>There hadn't been any calls or line chats from Naruse Shiyo for several days, but since there was data she had steadily collected before that, she could easily pinpoint Naruse Shiyo's room. Sakagami Rena carefully headed towards the coordinates indicated by the device, making sure not to get caught.</p>
+<p>The place Sakagami Rena arrived at wasn't a very good room for a young lady of a prestigious family to use. Sakagami Rena, who came from the Sakagami family, which was famous for its strictness, also used a fairly large and nice room, but Naruse Shiyo's room was like... a room of someone who was about to leave soon. There weren't many belongings, and it wasn't very spacious.</p>
+<p>Seeing Naruse Shiyo's bag and uniform hanging there, it was clear that it was Naruse Shiyo's room, but Naruse Shiyo wasn't in the room.</p>
+<p>,I thought she'd be lying in bed because she was sick, but where did she go?'</p>
+<p>Sakagami Rena took something out of her pocket again, which was a ferret with orange spots on a beige background. It was a special breed of ferret raised with the Sakagami family's secret techniques, smaller than ordinary ferrets, able to go to places where people couldn't, and able to track scents.</p>
+<p>, Hamutaro (ハム太郎). Find out whose scent is on that bed and uniform, okay?</p>
+<p>,Kkyu!</p>
+<p>As if understanding her words, Sakagami Rena's ferret, Hamutaro, smelled Naruse Shiyo's bed and uniform and went out the window as if telling her to follow. Sakagami Rena also went out the window following Hamutaro and carefully followed him.</p>
+<p>Hamutaro went to a fairly large building in the backyard of the mansion, but Hamutaro was just circling around it and couldn't enter the mansion.</p>
+<p>,Come here, Hamutaro.</p>
+<p>,Kkyu...!</p>
+<p>Sakagami Rena called Hamutaro back and headed to where Hamutaro was circling. After looking around, Sakagami Rena could see why Hamutaro couldn't enter the building. A barrier spell was in place, so it was impossible to enter by ordinary means.</p>
+<p>,I need to inform my lord of this first.'</p>
+<p>Sakagami Rena took out her phone. She thought she should ask Taira Ryuta for his opinion first because trying to break the barrier by force would inevitably get her caught.</p>
+<p>,I wondered who was approaching the barrier, and it was a ninja.</p>
+<p>,How...!</p>
+<p>A voice was heard from behind as she was taking out her phone. Sakagami Rena, who could detect even the smallest signs of movement, would never have failed to notice someone approaching like this. It was almost impossible.</p>
+<p>But the fact that it was happening now meant that the man who had approached Sakagami Rena was an incredibly skilled person.</p>
+<p>,Fortunately for you, I should keep you alive to find out why a ninja came to our family. I won't kill you, so be captured quietly.</p>
+<p>The man standing behind Sakagami Rena was Naruse Hirohide, the head of the Naruse family. Sakagami Rena, who had memorized the faces of all the heads and executives of major prestigious families, recognized Naruse Hirohide and made a rather dismayed expression.</p>
+<p>,I didn't expect this situation....'</p>
 <p>###</p>
-<p>I went to the education preparation room after coming to work and immediately entered the classroom. Hmm, as expected, everyone is wearing their gym clothes today because it's the athletic meet. The gym clothes were a slightly loose-fitting red dolphin pants design with a short-sleeved t-shirt made of sweat-absorbent material on top. Normally, they would wear the school's blue gym pants, but today, to show that they were on the Red Team for the athletic meet, they wore red dolphin pants.</p>
-<p>,The student council's request was resolved last night, so don't worry...."</p>
-<p>I informed the students that today's matter had been resolved. There were many students who were very disappointed that they hadn't found out who the culprit was yesterday.</p>
-<p>,If there was such an interesting event, you should have told me too, Ryuta-jji~!!"</p>
-<p>,It's a good result that we didn't receive any other requests from Taira Kanna."</p>
-<p>Seizawa Shii complained to me that she had missed an interesting event, and Minamoto Risa seemed to think it was good that they had succeeded in this matter and wouldn't receive any additional requests from Taira Kanna.</p>
-<p>,So who's the culprit?"</p>
-<p>,Um.... The culprit is...."</p>
-<p>At Seizawa Shii's question, I paused for a moment. All the students except for Shido Tsubaki, Otagi Yuka, and Sakagami Rena, who already knew who the culprit was, were looking at my mouth.</p>
-<p>,I'll tell you when we become the best class today."</p>
-<p>,Ryuta-jji! Are you serious?"</p>
-<p>,Ryutta, Alik is curious...!"</p>
-<p>,Teacher, that's too much!"</p>
-<p>It was a joke, but the female students' reaction was explosive (?). If I continued not to tell them, I felt like I would receive a lot of resentment, so I revealed the culprit's identity.</p>
-<p>,The culprit was the head of the management team, Asada Fukushi."</p>
-<p>,Oh, really? He didn't seem like the type of guy to do that...."</p>
-<p>,I knew it. He always gave me a bad impression."</p>
-<p>Everyone had different opinions when I revealed the culprit's identity. I looked at the time while watching the students chatter. There are about twenty minutes left until the athletic meet starts.</p>
-<p>At that time, I heard someone knocking on the classroom door. Ah.... It's that. I sighed slightly and opened the classroom door. When the door opened with a creak, a camera came into the classroom.</p>
-<p>It was the v-log filming team from the idol group Serif, who were filming Uenozono Karen's school life. Right, I was told a few days ago that there would be a simple filming.... Several people related to the filming team came in together, and there was a familiar face there.</p>
-<p>,You, you are....?"</p>
-<p>,Hello. I'm Uenozono's homeroom teacher, Yamashiro Ryuta."</p>
-<p>I greeted my aunt, Taira Kokoro, who had come to the filming site. I had to quickly introduce myself as Yamashiro Ryuta because I had to greet her before Taira Kokoro said something strange to me.</p>
-<p>----------------------</p>
-<p>Athletic meet outfit: white t-shirt and red dolphin Minamoto Risa.</p>
-<p>You always have to be careful that a dolphin doesn't come out of dolphin pants from somewhere, hehe.</p>
+<p>,Hmm....</p>
+<p>The contents of the email sent by the Taira Group's information team were simple. The Naruse family was still doing onmyoji work, and the wealth the Naruse family had accumulated was from onmyoji work rather than a trading company. They had made a lot of money from onmyoji work (if the Taira information team wrote "a lot," it meant they had really made a lot of money).</p>
+<p>How do they make money from onmyoji work? I wondered, but I thought I could ask Urabe Konoka, who was a similar professional, and waited for Sakagami Rena's report.</p>
+<p>I studied for my PMC certification while waiting for contact, but Sakagami Rena's report didn't come until after lunchtime and until the end-of-day meeting. I was a little worried, so I sent a line message and went into the classroom.</p>
+<p>,Everyone, good work today. There's nothing special to announce.... You can go home right away.</p>
+<p>,We're having club activities today, you know? Ryuta-jji is the advisor, so you have to come to the club room!</p>
+<p>,Our Date Experience Club will be publishing a collection of writings at the festival, so we need to start preparing little by little now.</p>
+<p>There were club activities. Seizawa Shii said I had to participate, and Konoe Akina, the club president, explained what we would be doing today.</p>
+<p>The festival was still far away, but it seemed like they were starting to prepare little by little. They were writing about topics such as date experiences, date fashion, and recommended meals for dates that they had done at the Date Experience Club, so if they started now, they would be able to make it in time for the festival with plenty of time to spare.</p>
+<p>,I don't think I can join you today...?</p>
+<p>,I was going to get Ryuta-jji to review my writing, but does that mean you have to look at it all at once later?</p>
+<p>,Please be sure to participate next time~!</p>
+<p>Fortunately, participation wasn't mandatory today. Now that I had sent Sakagami Rena to the Naruse family, I couldn't just laugh and chat with the students in the club. I had to wait for contact, so I couldn't do club activities today.</p>
+<p>,Urabe, stop by the education preparation room before going to the club, and the rest of you have fun with your club activities today.</p>
+<p>,Yes~!</p>
+<p>I told Urabe Konoka to stop by for a moment and returned to the education preparation room. Soon after, Urabe Konoka carefully opened the door and came in.</p>
+<p>,What did you call me for?</p>
+<p>,Yeah, there's something I want to ask you. Do you know much about onmyoji?</p>
+<p>At my question, Urabe Konoka put her chin on her hand as if organizing her thoughts for a moment, and then soon opened her mouth.</p>
+<p>,First of all, Shinto shrine priests and priestesses are professions that deal with gods, and onmyoji are professions that tell fortunes by observing the movements of celestial bodies, use magic, or deal with yokai. Compared to Shinto priests, there aren't many in modern times, but I've heard that a few families are continuing the lineage.</p>
+<p>I see. I had a similar feeling to Shinto priests and priestesses, but after hearing Urabe Konoka's explanation, there was quite a difference.</p>
+<p>,Do onmyoji families make money by telling fortunes or defeating yokai?</p>
+<p>Urabe Konoka, who had been puzzled by my question, seemed to have noticed something.</p>
+<p>,Is it the Naruse family?</p>
+<p>,Yeah. Naruse Shiyo hasn't been in contact, which is quite suspicious, so I'm investigating.</p>
+<p>,Hmm.... Onmyoji families make money not only from the fortune-telling and yokai extermination that you just mentioned, but....</p>
+<p>Urabe Konoka paused for a moment. She seemed to be having a hard time saying something, as she had a slightly troubled expression.</p>
+<p>,There's also a way to prosper the family by capturing specific yokai and using the yokai's bizarre power. But this work is accompanied by considerable danger. You have to offer treasures or.... The person themselves becomes a seal.... Things like that.</p>
+<p>Ah, I think I've heard that story somewhere. I believe I heard about yokai similar to the Japanese version of house elves, called Zashiki-warashi (座敷童子), guardian spirits that bring good luck if they are in the house, and it seemed like she was referring to that kind. However, the latter part was quite disturbing because it involved sacrificing or sealing people.</p>
+<p>,Are you talking about things like Zashiki-warashi?</p>
+<p>,Yes. Zashiki-warashi are relatively harmless. But.... There are many dangerous types. There are many cases where they forcibly seal them for the prosperity of the family or offer people to the yokai, so it's dangerous if the seal is broken or the offerings aren't made. Rumor has it that the Naruse family has sealed a Western yokai, but it's just a rumor, so I don't know the exact details.</p>
+<p>Hmm.... The information I had was added to Urabe Konoka's explanation, and the story was becoming more concrete. The second son who was adopted even though there was an eldest son, the onmyoji family that had been trading with the West since modern times, the rumor that they were sealing a Western yokai, and Naruse Shiyo, who was a young lady of a prestigious family but had a weak body.... All of this was converging into one story.</p>
+<p>,So, what if an onmyoji family adopted a second son even though they had an eldest son, and the daughter of that second son is very weak. If the family has enough wealth to fully treat that weak daughter but doesn't treat her, is there a possibility that the daughter was used for the seal?</p>
+<p>I said it in a way that made it clear enough that the onmyoji family was the Naruse family, so Urabe Konoka seemed to be thinking for a moment. She seemed to be thinking about whether it was something she could get involved in.</p>
+<p>,If it's as you say, teacher, there's a high probability. But I don't know if I can help....</p>
+<p>,No, I'm grateful just for telling me. Go up to the club room.</p>
+<p>,Yes....</p>
+<p>Currently, Urabe Konoka was in a situation where she was disconnected from Simyeonui ttal, the god she served, so it seemed like she couldn't be of help. I sent Urabe Konoka, who was slightly discouraged because she couldn't be of help to me, up to the club room and got up from my seat.</p>
+<p>Sakagami Rena should have contacted me by now, but the fact that she hasn't contacted me until now means that something is happening at the Naruse family's mansion. If that's the case, I have no choice but to go to the Naruse family's mansion myself.</p>
+<p>,Since there are too many absences, I have no choice but to make a home visit as a teacher.</p>
+<p>_________</p>
+<p>Sakagami Rena</p>
+<p>I tried making it with other models instead of the usual model that makes Sakagami Rena haha. Which one do you like the most?</p>

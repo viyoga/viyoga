@@ -1,0 +1,42 @@
++++
+title = "Chapter 605: Sorry"
+weight = 605
+[extra]
+chapter = 605
++++
+
+<p>"I-I’m sorry..."</p>
+<p>Vaelira’s apology lingered in the room after it left her mouth, thin and inadequate, hanging in the sterile air alongside the steady hum of wards and the faint mechanical rhythm of life-preserving glyphs.</p>
+<p>The sound faded quickly, absorbed by the walls, leaving only her uneven breathing and the presence looming beside the bed.</p>
+<p>Kaiden offered no response. He did not shift his stance or acknowledge her words in any visible way, and that absence of reaction carved deeper into her nerves than any shouted threat could have.</p>
+<p>Her chest rose and fell in short, frantic pulls of air as she searched his shadowed face for a sign of restraint or mercy and found only stillness.</p>
+<p>Her thoughts raced without structure, panic accelerating as seconds stretched. Pain pulsed through her ribs with every breath, yet it registered distantly compared to the dread tightening in her gut. His silence pressed on her, turning her apology into a humiliation she could feel crawling under her skin.</p>
+<p>"I said I’m sorry!" she rasped again, voice cracking as desperation bled through.</p>
+<p>When he remained unmoved, the fear twisted, souring into anger that spilled out unchecked. "What is wrong with you?!" she shouted harsh enough for her voice to tear at her throat. "Why are you doing this to me?!" Her eye burned as it locked onto him, wild and glossy. "Is this about that? About me rejecting you? The whole school laughed at you, not just me. I would have forgotten it in hours, but everyone else kept bringing it up! You’re punishing me for their jokes?"</p>
+<p>Her breathing turned ragged as the words poured out, blame stacking on blame in a frantic attempt to regain control of the situation. She swallowed hard, pain flashing across her face as her jaw brace protested the movement. "You can’t seriously think this is justified. You hear me, right? You can’t-"</p>
+<p>"Do you even hear yourself?"</p>
+<p>The interruption cut cleanly through her spiraling words. While raising his right hand above Vaelira, Kaiden decreed, "You apologize, and within moments, any feigned remorse gets tossed aside as you start deflecting blame and accusing others to save yourself."</p>
+<p>Vaelira’s eye tracked the movement of his arm and felt fear tightening her throat as the limb rose. Her breath hitched, each inhale shorter than the last as her attention locked onto his hand. "What do you plan to do with me?!" she demanded. The question carried no authority, only a plea disguised as anger.</p>
+<p>Kaiden did not answer.</p>
+<p>The flesh along his forearm shifted under the skin, muscles tensing, responding to a command deeper than conscious thought. Dark lines traced outward from his wrist, spreading with purpose as the Blood Monarch’s Gauntlet asserted itself, forming as an extension of his arm rather than an external piece of armor. Along his index finger, the blood elongated and hardened, tapering into a brutal claw that gleamed under the white lights.</p>
+<p>Vaelira’s breath fractured into a sharp gasp as realization hit. "No!!" she screamed as her body strained uselessly against the restraints. Pain flared across her chest and shoulders as she tried to recoil, every instinct screaming at her to escape despite the impossibility of the attempt.</p>
+<p>His arm came down in a single, decisive motion.</p>
+<p>The descent was fast and controlled, the claw punching through her hospital garb, bandages, and flesh right above where her heart lay. The impact drove the air from her lungs in a strangled cry as pressure exploded inward, pain detonating through her ribs and spine. The reinforced bedframe shuddered beneath her as the claw sank deep, stopping with lethal precision as the tip pressed against her heart.</p>
+<p>Vaelira’s eyes were blown wide, the pupils swallowing the iris as she waited for the final thrust that would end her life. Seconds passed, and the expected tide of agony failed to arrive. Instead of the searing heat of a mortal wound, she felt only a cold, invasive numbness spreading outward from the point of impact, as if the blood composing the claw was actively suppressing her nervous system’s ability to process the trauma. This lack of pain was more unnerving than the alternative, signaling to her that her very biology was now under his absolute jurisdiction.</p>
+<p>She looked up at him through the haze of her own terror, her breath coming in shallow, wet hitches that made the jaw brace click against her teeth.</p>
+<p>The silence of the room became a vacuum she felt compelled to fill with whatever she thought might buy her a reprieve. "Please..." she rasped, the word barely more than a vibration in her throat. "I-I can see it now. I was wrong. I’ll do anything, Kaiden. I’ll become your slave. Every breath I take, every moment I live, I’ll live it for your sake. I’ll be whatever you want me to be." She searched his face for a flicker of interest, her mind grasping for the only leverage she had ever understood.</p>
+<p>With a groan of effort, she forced her legs to move, parting her thighs in a wide, inviting gesture. The motion was clumsy and pathetic, a display of submission intended to appeal to the boy she had once ridiculed for his interest in her.</p>
+<p>Her expression moved, from scared to sultry, inviting. "I’ll even become your bitch. Any day of the week, any hour of the day, I’ll let you do whatever you want to me. I’ll become your second maid, and I’ll pay you for the privilege of being your bitch! I’ll wear a truly slutty costume and tend to your every need! No matter what they may be!"</p>
+<p>"Just let me live... Please..."</p>
+<p>Kaiden shifted his gaze downward, his eyes tracking the movement of her legs. He looked at the invitingly open space she offered, then slowly raised his eyes back to hers.</p>
+<p>There was no heat in his gaze, no spark of the desire she was trying to ignite.</p>
+<p>Instead, his expression was one of profound, unadulterated disgust. He looked at her not as a woman or a prize, but as a discarded, low-quality object that had failed to realize its own irrelevance.</p>
+<p>The sight of her attempting to trade her body for mercy only served to deepen the revulsion he felt for the person she had revealed herself to be.</p>
+<p>The hopeful, sultry mask Vaelira had forced onto her face shriveled instantly as she looked into Kaiden’s eyes. She searched for even a flicker of the base hunger she was used to manipulating in men, but she found only a cold, mountainous hatred that made her feel smaller than the dust on the floor.</p>
+<p>The realization that her potent weapon, her beauty, which she was so proud of, held zero value to him caused her expression to fracture into a panicked, wide-eyed stare. Her legs began to tremble, but she didn’t close them, her mind frantically pivoting to find a new angle as the silence of the room threatened to crush her.</p>
+<p>"You hate me this much?" she whispered, her voice rising in a desperate, defensive pitch. "I’m still beautiful! I’m good in bed, Kaiden! All my boyfriends loved being with me; they begged for more!"</p>
+<p>She saw his lip curl, and her panic drove her to a more aggressive logic. "Wait, I know! Weren’t all your girlfriends virgins before meeting you? Purity is fine for a trophy, but it means mediocre, boring sex! They must not know how to properly please a man like you. Give me just one chance to show you the difference. You don’t even have to look at me, you can put a bag on my face if it makes you feel better, just let me show you what real experience feels like!"</p>
+<p>"..."</p>
+<p>The disgust that had been cooling Kaiden’s features vanished in a heartbeat. The insult to his girls was the final cord to snap. The blood claw buried in her chest began to thrum with a dark, orange light, the liquid edges hardening into something denser and more predatory. At the same time, his eyes shifted from their deep red into a piercing, incandescent orange.</p>
+<p>"No... Stop!" Vaelira gasped, her voice failing as the orange light reflected in her wide eyes. She felt the pressure of the claw increase, not as a puncture, but as a weight that seemed to be pulling the very heat from her blood.</p>
+<p>Without removing the claw, Kaiden shifted his intent. He didn’t just push deeper; he invoked the [Manifestation of Gluttony].</p>

@@ -5,69 +5,65 @@ weight = 428
 chapter = 428
 +++
 
-<p>"Yuzuki-ssi, lie down for now."</p>
-<p>I told Kasaoka Yuzuki, who was still panting heavily, to lie down, and she obediently lay down on the bed, still huffing and puffing. Even just lying there, her figure was so good that it was pleasing to look at, thanks to her feminine curves from her breasts and wide hips.</p>
-<p>"Spread your legs."</p>
-<p>Again, Kasaoka Yuzuki obediently spread her legs. Then, I saw her pussy covered in my semen. Furthermore, without even being told, Kasaoka Yuzuki spread her pussy with her own fingers, causing her vaginal opening to widen and the semen still inside to start flowing out.</p>
-<p>Her pussy is too covered in semen to suck, so I should just caress it with my hands. But I didn't attack her pussy right away and started touching Kasaoka Yuzuki's breasts first.</p>
-<p>"Huuheuheung...♥ Too strong, make it a little weaker...!"</p>
-<p>As I kneaded Kasaoka Yuzuki's large breasts as if kneading dough, she furrowed her brow slightly and began to moan, as if pain and pleasure were intersecting.</p>
-<p>"Who told you to come over and put it in without permission?"</p>
-<p>"Heuhaeueheung...! Haaht!! I'm sorryyy.... Ryuta-ssi's dick, when I saw it, I couldn't resist♥"</p>
-<p>I pinched her nipples painfully while fondling her breasts and scolded Kasaoka Yuzuki. Kasaoka Yuzuki seemed to have a bit of a masochistic streak, and when I hurt her breasts and said something, her pussy gushed, pushing out the semen with her vaginal fluids. Seeing all the semen come out and the clear vaginal fluids gushing out was quite arousing in its own way.</p>
-<p>"Are you getting vaginal fluids like this while I'm scolding you? You're such a pervert."</p>
-<p>I put vaginal fluids on my thumb and index finger, then stuck them together and pulled them apart, showing Kasaoka Yuzuki the stringy vaginal fluids like glue, and berated her.</p>
-<p>"Heueuk...! Yuzuki's pussy, haaht! I'm sorry for being a perverted pussy...! Haeueuht!"</p>
-<p>"In the future, if you want to put my dick in, make sure you get permission first, okay?"</p>
-<p>"Yesss...! I understanddd!!"</p>
-<p>At the same time as saying 'I understand?', I flicked her Clitoris with my finger, and Kasaoka Yuzuki arched her back and shiofuki-ed. Seeing her trembling and scattering vaginal fluid all over the bed and floor, I wanted to torment her a little more.</p>
-<p>For a long time, I touched Kasaoka Yuzuki's breasts, nipples, and around her pussy, making her impatient. It seemed like she was getting even more impatient because I wasn't directly inserting or touching her Clitoris.</p>
-<p>"Haeueueuht! What do I do, heueuht! Do something to meee...! Ryuta-ssi's dick, haaeung...! Fill me up, put it in...♥"</p>
-<p>She was feeling pleasure from the long caresses, but she wasn't able to reach a satisfying climax, so Kasaoka Yuzuki was shaking her hips seductively and urging for my dick. Seeing her swaying hips, I wanted to shove my dick in right away and shake her roughly, but I held back my boiling desires and opened my mouth to Kasaoka Yuzuki.</p>
-<p>"Then what did I tell you to do earlier?"</p>
-<p>"Ryuta-ssi's dick, heueuhaang...! Can I, heueuht! Put it in my pussy? Haaht...!"</p>
-<p>I smiled as I watched Kasaoka Yuzuki beg and plead for me to put my dick in her. I smiled and nodded, sitting between Kasaoka Yuzuki's spread legs and bringing my dick to her pussy, which was constantly spewing vaginal fluids.</p>
-<p>"Uohoooot!"</p>
-<p>Just by putting the head of my dick to her vaginal opening, Kasaoka Yuzuki was shooting water guns with pyusut pyusut sounds and reaching orgasm. I didn't even give her a break during her climax and widened her pussy with the head of my dick and pushed it in as is. When I looked down, I could see my dick going in with a jjeueuk-like wet sound.</p>
-<p>"Heueuhaaang! This, this is it...! But, heueung! It's dangerous, it's dangerous...! If it goes on like this, heueuht♥ My head will go crazy! Haaht!"</p>
-<p>"Wouldn't it be nice to just go crazy like this? My dick feels good, so it's okay to just go crazy and keep fucking, right?"</p>
-<p>As I slowly moved my dick back and forth, rubbing the weak spots inside Kasaoka Yuzuki's pussy, Kasaoka Yuzuki nodded frantically with a slightly spaced-out face.</p>
-<p>"Heueuht, I want to go crazy...! I want to go crazy and become Ryuta's dick slave, haaht! Haeueheuht...♥"</p>
-<p>I didn't even say the words 'dick slave'. To think she'd fall so deeply that she'd volunteer to be a slave herself, it scared me once again. It seemed like she was showing this kind of reaction because she had already been pierced by my snake so many times that it had become difficult for her to resist me due to the effects of my trait.</p>
-<p>"Then focus on your pussy now. Because the dick you wanted so much will be moving."</p>
-<p>"Haaht♥ I love Ryuta-ssi's big dick! Eueohoooot...!"</p>
-<p>As soon as I told her to focus on her pussy and shook my hips roughly, Kasaoka Yuzuki began to raise her moans.</p>
-<p>###</p>
-<p>'As expected, my Lord is a great hero...!'</p>
-<p>Ninja girl Sakagami Rena, who was hiding her body with optical camouflage in a corner of the ceiling, muttered inwardly as she watched the explicit sex between Yamashiro Ryuta and Kasaoka Yuzuki.</p>
-<p>EVE: If you wait at room 501 of our branch's love hotel, Ryuta-nim will go~!</p>
-<p>Today, after school, Sakagami Rena was preparing to go home when she received a message from Eve. She didn't know why Eve was helping her with what she was doing, but when she heard that Yamashiro Ryuta was her prospective Lord, Eve was helping her without her knowing. Since the ninja Sakagami family and the Dark Merchant Guild were in a mutually beneficial relationship, Sakagami Rena knew that the Miyashi branch of the Dark Merchant Guild was in a love hotel district.</p>
-<p>Sakagami Rena had been following Yamashiro Ryuta to get to know her prospective Lord, following Eve's advice that she had to know him well in order to serve him as her Lord.</p>
-<p>She couldn't skip class, so she followed him to Korea a little late and looked around Yamashiro Ryuta's business, and saw him having sex with a young and beautiful entrepreneur named Han Yu-gyeong, and when Yamashiro Ryuta returned to Japan, she continued to watch him and saw him having sex with the school nurse, Kijimoto Jurie, and Daigo Terue.</p>
-<p>It was something that an ordinary high school girl would frown at, cursing him as a terrible womanizer, but Sakagami Rena was no ordinary high school girl.</p>
-<p>To Sakagami Rena, who thought it was natural to use sex to achieve her goals as a kunoichi (female ninja), Yamashiro Ryuta didn’t just seem like a cheater; he seemed to be using his charm to manipulate the women around him for his own benefit.</p>
-<p>Rather, Sakagami Rena was impressed by his heroic appearance, which ordinary people couldn't even imagine. Sakagami Rena was a virgin, but she knew that this was a big deal because she had learned the art of lovemaking as a kunoichi.</p>
-<p>'It's not something that an ordinary person can do to win over the school nurse, the 3rd grade homeroom teacher, and the principal with his body. He must have seduced them to make his school life easier. He must have mastered the art of lovemaking to a divine level.'</p>
-<p>Sakagami Rena was impressed by Yamashiro Ryuta's art of lovemaking and at the same time watched him dominate Kasaoka Yuzuki.</p>
-<p>Although she was covering her face, it was obvious to anyone that it was Kasaoka Yuzuki, and the way he dominated her without showing it was the epitome of domination. He must have put on a mask as if to separate her personality. In the future, Kasaoka Yuzuki will never be able to resist Yamashiro Ryuta when she wears the mask.</p>
-<p>"Haeueueuht! Ryuta-niim, I love your dick♥"</p>
-<p>Sakagami Rena watched the lewd intercourse scene between Yamashiro Ryuta and Kasaoka Yuzuki with an excited expression.</p>
-<p>Twenty....</p>
-<p>Sakagami Rena felt something like a snake coming out of her crotch. It was vaginal fluid...! Of course, it was normal to get excited watching something like this. Oofuchi Erika was a prime example. Oofuchi Erika had gone home to masturbate just by hearing the sex sounds of Daigo Terue and Yamashiro Ryuta.</p>
-<p>But Sakagami Rena was a kunoichi who had been thoroughly trained in this area. She never got excited just by watching intercourse. In fact, a skilled kunoichi could control her excitement even while having intercourse and assassinate her partner.</p>
-<p>Sakagami Rena was a virgin, so she was theoretically perfect, but she hadn't experienced actual combat yet, so she couldn't be considered a skilled kunoichi, but she couldn't understand why she was leaking vaginal fluid just by watching. She had definitely succeeded in assassinating someone calmly and coolly while watching intercourse more than five times. She wasn't this excited back then.</p>
-<p>It was strange. Why am I getting excited? Sakagami Rena closed her eyes and began to assess her physical condition.</p>
-<p>There was nothing strange. Only one place, her crotch, felt strangely tingly. Sakagami Rena held back, but eventually couldn't resist and slipped her hand into her clothes.</p>
-<p>Her crotch was wet as if she had peed. It was a stickier liquid than urine, but this was proof that Sakagami Rena's training was still lacking.</p>
-<p>'I, it's itchy....'</p>
-<p>Her pussy area was itchy. Sakagami Rena scratched her itchy pussy slightly since she had already put her hand in.</p>
-<p>'Ah...!'</p>
-<p>It felt good even though she only touched it slightly. Suddenly, Kasaoka Yuzuki's figure, accepting Yamashiro Ryuta's dick with a very lewd expression from below, came into Sakagami Rena's view.</p>
-<p>Sakagami Rena was a virgin. She had received kunoichi training, but she didn't yet know the pleasure of sex. Sakagami Rena looked at Kasaoka Yuzuki's very happy face and wondered if she would make that kind of face too.</p>
-<p>'If I serve my Lord, will I be able to feel it too?'</p>
-<p>Before she knew it, the 'prospective' in 'prospective Lord' was gone. Sakagami Rena's mind was gradually hardening in one direction.</p>
+<p>"What's wrong? No, this isn't the place to talk. Come on in first."</p>
+<p>I opened the door, but Otagi Yuka looked to be in bad shape, so I supported her and brought her inside.</p>
+<p>Otagi Yuka's eyes were brimming with tears, not to mention her body was trembling. I was both curious and worried about what could have shaken Otagi Yuka, a girl with the guts to dismantle a huge gang in New York all by herself, to this extent.</p>
+<p>I sat Otagi Yuka down on the sofa in the living room and brought her some warm tea.</p>
+<p>"What's wrong...? Will you tell me?"</p>
+<p>I asked Otagi Yuka with a cautious attitude. Otagi Yuka had been burying her face between her knees, but she lifted her head and looked at me. Her face was teary-eyed, but she soon bit her lip and opened her mouth with a determined expression.</p>
+<p>"When I got home, everyone in the mansion was dead, even the innocent nanny, *heueuk*...!"</p>
+<p>"Huh?"</p>
+<p>Eventually, the tears that had been welling up in her eyes flowed down as Otagi Yuka sobbed. What is she saying? Does she mean everyone in the Otagi family in Miyashi is dead? Come to think of it, the Otagi family is a vampire family, so they can't increase their numbers recklessly, so there aren't that many of them. Therefore, Otagi Yuka is probably the only member of the Otagi family in Miyashi. So, she must be saying that all the servants in the Otagi family mansion are dead.</p>
+<p>"Everyone working at the mansion, who killed them?"</p>
+<p>When I asked based on my own reasoning, Otagi Yuka nodded. I see.... Otagi Yuka handed me a high-quality letter envelope. I took the envelope from Otagi Yuka, opened it, and checked the contents of the letter.</p>
+<p>To Otagi Yuka-ssi.</p>
+<p>Did you enjoy your last supper?</p>
+<p>If you don't want to cause harm to those around you, come to Onuta Shrine next Monday at noon and let's settle this.</p>
+<p>Ah...! I forgot about this. I hadn't even thought about the Silver Stake Federation, abbreviated as SPF, a coalition of vampire hunters. If there's a vampire like Otagi Yuka, I should have been thinking about the Silver Stake Federation, the vampire hunters, too.</p>
+<p>It's hardly mentioned in *MegaCorp's Youngest Son*, but in *TMC*, the predecessor to *MegaCorp's Youngest Son* and set in a later era, you could see a lot of vampire hunters.</p>
+<p>To briefly explain the background, the SPF and various vampire families and organizations around the world had an agreement. In exchange for the SPF not attacking, the vampire forces would not easily increase their kin or blood relatives and would avoid harming ordinary people as much as possible.</p>
+<p>The SPF was exterminating forces that did not have such agreements or small vampire groups that did not need to make agreements.</p>
+<p>Then, in the future TMC era, all power and economic strength were absorbed by giant MegaCorps, and except for a few extremely small vampire forces, the remaining vampire forces declined, making it impossible to keep the agreement.</p>
+<p>Usually, vampire forces operate large hospitals and blood-related businesses to secure blood, but as everything was concentrated on the MegaCorps, hospitals and companies went bankrupt, and to secure blood, they had to attack people and suck blood directly, like in ancient or medieval times.</p>
+<p>Naturally, the agreement could not be kept, and as vampires attacked people, a war broke out between the SPF and the newly emerged alliance of fallen vampires, GES (Great Eastern aristocracy Senate), further fueling the chaos of the giant MegaCorp era.</p>
+<p>In TMC, if you chose the vampire trait as a level-up trait, you would automatically become hostile to the SPF, and a new event would open. Conversely, in a normal state without the vampire trait, you could cooperate with the SPF. If you were more SPF-friendly, you could even work as a vampire hunter affiliated with the SPF.</p>
+<p>Of course, the agreement was being kept in the current era, and there was no need for the SPF to fight the Otagi family, so I wasn't paying attention to it. Since I'm not a vampire either, I wasn't considering it at all, so I was a little taken aback when the name Silver Stake Federation suddenly came up.</p>
+<p>So, the important thing was to confirm whether only Otagi Yuka was fighting the SPF or whether the entire Otagi family was fighting the SPF.</p>
+<p>"Is the Otagi family fighting together too?"</p>
+<p>"No, it's just me..."</p>
+<p>Hmm, I see. So, Otagi Yuka must have done something, and the SPF designated Otagi Yuka as a target for extermination, and the Otagi family abandoned her without helping her. Helping Otagi Yuka would mean fighting the SPF as a force against a force, so it would be burdensome for the Otagi family as well.</p>
+<p>"What did you do to make the SPF do this?"</p>
+<p>"I think it's because of what happened in New York."</p>
+<p>If it's about New York.... Is it because of the fight with Kurotsugi-doo? The SPF isn't that inflexible of a group, is it? Rather, if they fought against gangs like that, they would have applauded, saying it was good that bad guys were killing each other. It seemed like the hardliners in the New York branch had seized power. They wanted to kill even one more vampire, and Otagi Yuka was unlucky enough to get caught up in it.</p>
+<p>In the end, since the only clue left was this letter with only a few lines, I slowly read the letter again. As I read it slowly, I could see some hidden content in the letter.</p>
+<p>"Normally, they wouldn't give you the weekend and would attack right away. I guess they can kill ordinary people, but they need time to prepare to fight a vampire like Yuka. So, it's probably not something that the Japanese SPF branch, which can prepare and act at any time, is leading, and it must be from the New York branch where Otagi, you caused trouble."</p>
+<p>That's a mistake on their part. They shouldn't give us time, and even if they're not fully prepared, they should attack when we're not prepared to have a higher chance of winning, but they didn't know that Otagi Yuka might ask me for help, so it was a big mistake.</p>
+<p>"And the part about not wanting to cause harm to those around you. The SPF knows that if they fight Otagi and harm St. Francis Girls' Academy, they won't be able to handle it. So, it's something that the New York branch is leading, and the headquarters might not know about it. If the headquarters decides that this vampire must be killed, they usually don't think about the surrounding damage."</p>
+<p>The fact that they killed all the humans in the Otagi mansion this time reveals their personality, and vampire hunters were divided into several factions because of this tendency.</p>
+<p>They are divided into moderates who say that they should not harm ordinary people, centrists who say that collateral damage is unavoidable, and radicals who say that anyone who cooperates with vampires is no different from vampires and should be killed. In TMC, centrists were the most numerous, followed by radicals, and moderates were the fewest.</p>
+<p>But that radical faction says they don't want to cause harm to those around them? That means the force dispatched now is small. They can't handle the aftermath of attacking St. Francis Girls' Academy with their current force. No matter how radical they are, they don't fight without looking around, but they check the surrounding situation.</p>
+<p>Finally, the fact that they want to settle the score at Onuta Shrine at noon next Monday suggests that one of the Japanese SPF branches is assisting them, not just the New York branch. There's no way anyone from the New York branch would know about this secluded location, so someone must be helping them. They obviously chose noon because it’s a time when it’s difficult for vampires to use their powers. They picked Monday because they need time to prepare. Additionally, they probably chose a time when all the other students are at school to avoid dealing with the consequences if students at St. Francis Girls' Academy got caught up in the fight over the weekend.</p>
+<p>"Teacher-ssi, you're so... smart?"</p>
+<p>Otagi Yuka says in surprise at my story. To be honest, it's not that I'm smart, but I just know the SPF's behavior well because I often played as a vampire hunter in TMC. Onuta Shrine was a shrine destroyed during World War III, and it's still a ruin that hasn't been restored, so there's no way someone from New York would know about it.</p>
+<p>There were a total of two Japanese SPF branches. The Tokyo branch, which oversees eastern Japan, and the Kyoto branch, which oversees western Japan. The branch that is helping the New York branch this time is probably the Tokyo branch. Miyashi, where St. Francis Girls' Academy is located, is in Yamanashi Prefecture, and Yamanashi Prefecture belongs to eastern Japan.</p>
+<p>"It's the Tokyo branch, right...?"</p>
+<p>"Yeah, probably?"</p>
+<p>Otagi Yuka seemed to have the same thought as me and guessed that it was the Tokyo branch. Then, she looks at my face with a slightly fearful expression. Why is she doing that?</p>
+<p>"Huh? What's wrong?"</p>
+<p>"Teacher-ssi, didn't you know? The head of the SPF's Tokyo branch is Taira Jiro."</p>
+<p>Ah, I didn't know that. That was quite valuable information. From Otagi Yuka's point of view, Taira Jiro is from the Taira family, so she probably couldn't trust me either. But I'm on a different line from Taira Jiro, so now is an opportunity to break one of the forces that Taira Jiro has.</p>
+<p>"I didn't know. And..."</p>
+<p>"And?"</p>
+<p>"Do you think I would abandon a friend because of something like this? Besides, I'm Otagi's teacher, so I have to help when she's in trouble."</p>
+<p>Otagi Yuka had a complex expression mixed with relief, emotion, and sadness at my answer. I smiled slightly and stroked Otagi Yuka's head.</p>
+<p>"It's a little cold, but have some tea."</p>
+<p>"Yeah. Thank you, Teacher-ssi..."</p>
+<p>Otagi Yuka seemed to come to her senses a little after drinking all the tea. After drinking all the tea, she apologizes to me.</p>
+<p>"I'm sorry for getting you involved.... You're the only one I could think of."</p>
+<p>"Don't think like that. Like I said before, you're my friend and student, so of course I have to help you. And you're going to join my company after you graduate, so I'll help you even if you don't want me to."</p>
+<p>From what I heard earlier, the Otagi family won't be able to put any strength into this battle, and there's almost no one who can help Otagi Yuka. It would be me, Konoe Akina, Saionji Diana, or Alik. Oh, Eve is also a friend, so she can help too.</p>
+<p>"Yeah, thank you. I'll definitely repay you for this."</p>
+<p>"Okay, let's think carefully about what to prepare for during the weekend."</p>
+<p>It was important to deal with the SPF that was targeting Otagi Yuka and receive her gratitude later, and to come up with a plan that would help in Monday's battle.</p>
 <p>-----</p>
-<p>Valentine's Day Chocolate Gift~!!</p>
-<p>A gift from naked Kasaoka Yuzuki~!</p>
-<p>A sincere chocolate from the Home Economics Teacher~!!</p>
-<p>A tsundere-flavored gift from Minamoto Lisa~!!</p>
+<p>Tearful Otagi Yuka B-cut</p>

@@ -5,82 +5,67 @@ weight = 804
 chapter = 804
 +++
 
-<p>,First, everyone has no alibi. That Tanaka Norio was Murdered between 1 AM and 3 AM. We were all asleep, so we can't prove it.,</p>
-<p>It was Shido Tsubaki's Words, but in fact, I could prove the alibis of our special class, except for Takakusaki Athena.</p>
-<p>Because I kept waking up due to the semen thieves who secretly came to my room all night, I knew that no one had passed through the passage towards the elevator during the Time the Murder occurred.</p>
-<p>Still, I couldn't reveal that here, so I remained silent.</p>
-<p>,By the way, Shii, Kujo, and Diana, did you guys deliberately show off your strength? To keep the Killer away from us.,</p>
-<p>,Of course~! Do I look like a Woman who would get angry over something as trivial as not being able to go to a pizza place?,</p>
-<p>She looked genuinely angry to me. If Seizawa Shii's Words were true, she seemed to have surprisingly good Acting skills.</p>
-<p>The rest of Kujo Kina and Saionji Diana nodded as if that was right, and some Students seemed moved.</p>
-<p>,What do you think about the culprit?,</p>
-<p>,First, although the culprit left bloodstains at the Scene, that's not because the culprit was careless, but because it shows confidence that they can handle most of the people in the Resort. Because it's the famous Kotowazuki.,</p>
-<p>Minamoto Risa looked around at her special class Friends and asked, and Shido Tsubaki answered.</p>
-<p>,Since they definitely used a sword, they must have had blood on them too, but since I can't sense it, it seems they have excellent cleanup skills.,</p>
-<p>Otagi Yuka raised her Hand and said. Certainly, if Otagi Yuka, a Vampire, couldn't sense it, it wasn't a normal ability, but seemed to be a Trait of at least narrative-class or higher.</p>
-<p>All the Young Ladies of the special class knew that the Otagi Family was a Vampire Family, so they had serious Expressions at Otagi Yuka's Words.</p>
-<p>,Maybe I have a similar ability to them.,</p>
-<p>Everyone looked at Takakusaki Athena at Takakusaki Athena's Words. What ability was she talking about? In fact, we didn't know much about the abilities Takakusaki Athena possessed.</p>
-<p>She had the power of light, which was the opposite of the Abyss, and also the ability to obscure her presence...?</p>
-<p>Ah, Takakusaki Athena seemed to be talking about the ability to obscure her presence, which I had thought of second.</p>
-<p>,A few people gathered here, including me, will have very sharp Sensation. Well, in a normal vacation trip, you can relax and stay safe, but there's me in this Resort, and you guys are here, right? As long as we're here, we're not being careless. No matter how much it snows and a Murder occurs outside the building, the fact that we didn't notice means the other party has that kind of ability. A similar ability to suppress their presence.,</p>
-<p>That certainly made sense. The reason I was conscious of the presence outside while mingling with the Students who came to my room at Dawn was because I thought Takakusaki Athena might attack or call Anyaji.</p>
-<p>If I couldn't feel their presence even though I was so careful, it meant the Killer was that capable. Then I should be careful of ambushes rather than a head-on fight.</p>
-<p>,Now that we know that ability, we'll just have to be more careful. And can we narrow down the culprit with the photos and conversation we just investigated?,</p>
-<p>,I have one~!,</p>
-<p>Oofuchi Erika raised her Hand at my question. When I nodded as if to tell her to speak, Oofuchi Erika began to say what she had thought.</p>
-<p>,In fact, the only evidence revealed is the bloodstains, so we can't say who the culprit is. But there's only one person among the dead who has a different Affiliation.,</p>
-<p>A person with a different Affiliation...?</p>
-<p>,It's Tanaka Norio, one of the university students! The rest are all Resort employees, but only Tanaka Norio isn't affiliated with the Resort.,</p>
-<p>,That's right. When I think about it, it's strange. The culprit killed all the Resort employees, but why did they only kill Tanaka Norio among the guests?,</p>
-<p>Everyone else nodded at Oofuchi Erika's Words. It was certainly strange. Why did they only kill Tanaka Norio? If they were going to kill, they could have killed the other male Students in the same room, but it was strange that they only killed Tanaka Norio.</p>
-<p>,I thought about that 'why'. Why did they only kill Tanaka Norio? Couldn't we think that Tanaka Norio knew a clue about the culprit and was killed?,</p>
-<p>A clue about the culprit.... That's certainly true. Then what clues about the culprit could there be...?</p>
-<p>,So, do you know what that clue is? Erika-chan?,</p>
-<p>Oofuchi Erika nodded at Seizawa Shii's question.</p>
-<p>,The clues all came out in the conversation earlier. The Resort and the beer with sleeping pills are the clues.,</p>
-<p>,Tanaka Norio took care of all of that, didn't he?,</p>
-<p>Otagi Yuka asked at Oofuchi Erika's Words. Oofuchi Erika shook her Head at that question.</p>
-<p>,That's what the Club President said. What if someone gave Tanaka Norio the Resort accommodation and prepared the beer in advance? What if that someone is the culprit? If they only kill Tanaka Norio, they can hide all the clues about the Resort accommodation and the beer with sleeping pills.,</p>
-<p>Certainly, if Oofuchi Erika's assumption was correct, if they only killed Tanaka Norio, they could pass all the clues to the deceased Tanaka Norio.</p>
-<p>Amazing? I knew she was smart, but I didn't know Oofuchi Erika had such a talent for reasoning.</p>
-<p>,Erika-chan is amazing...!,</p>
-<p>,Ehehe, I've read a lot of mystery novels and played a lot of related games while living as a hikikomori.,</p>
-<p>When everyone looked at her with admiring Eyes, Oofuchi Erika scratched the back of her Head as if she was embarrassed.</p>
-<p>,Then the next step is....,</p>
-<p>,It's to secure the dead Tanaka Norio's phone. There will definitely be related conversations.,</p>
-<p>That's right. I don't know why, but the culprit gave all the resort accommodations and beer mixed with sleeping pills to Tanaka Norio and killed him. There should definitely be a call log or history of that on Tanaka Norio's phone.</p>
-<p>,The phone is probably on the Corpse. I'll go get it.,</p>
-<p>Sakagami Rena got up from her Seat and headed Outside. Since Sakagami Rena is the fastest among us, she'll be back soon.</p>
-<p>After waiting for about a minute, Sakagami Rena came back. But it seemed like the phone wasn't on the Corpse, judging by her shaking her Head.</p>
-<p>,When I think about it, he was stabbed in the neck while sleeping and thrown out the window, so he couldn't have had his phone.,</p>
-<p>,That's right. He would have been charging his phone or just throwing it on the bed while sleeping.,</p>
-<p>,You should have told me before I left.,</p>
-<p>Sakagami Rena grumbled, but thoughts don't just pop out as you want.</p>
-<p>,We're going to go up since we're done here, but let's reduce the number of rooms first. Since it's a 3-4 person room, four people can sleep in one room.,</p>
-<p>Having four people in one room would be more helpful than three when a Killer attacked, so we decided to reduce the number of rooms.</p>
-<p>,Let's empty room 301, which is the outermost room, and distribute the Students there.,</p>
-<p>We decided to put Oofuchi Erika, Shido Tsubaki, and Sakagami Rena in room 301 into the remaining rooms one by one, and I looked at Takakusaki Athena.</p>
-<p>,Athena-ssi, are you coming up to the 3rd floor too? There are many empty rooms in 305 where I am.,</p>
-<p>,Teacher!,</p>
-<p>,You...!,</p>
-<p>,Ryuta-cchi!,</p>
-<p>,Teacher-ssi!,</p>
-<p>When I told Takakusaki Athena to come into my room, all the Students glared at me and called me.</p>
-<p>No, I'm not trying to seduce Takakusaki Athena for Sexual reasons, but I'm just saying that because I'm the strongest, I'll keep Takakusaki Athena next to me and watch her. Of course, there were other reasons, but they were definitely not Sexual.</p>
-<p>,Okay.,</p>
-<p>Takakusaki Athena looked at the Students' reactions as if they were interesting, and rather smiled and said okay. Seeing her smile with a strange Expression, it seemed like she was doing it on purpose to piss off the special class troublemakers.</p>
-<p>,Then it's decided. Let's all go back to our rooms. Rest a little, and I'll make lunch. How about shrimp ramen?,</p>
-<p>If I boiled the leftover flower shrimp from yesterday with the Korean red soup ramen I brought separately, it would be very delicious. When I said I would cook myself, they seemed to feel a little better.</p>
-<p>We came out of the Auditorium and all took the elevator to the 3rd floor. Takakusaki Athena got off on the 2nd floor to pack her luggage.</p>
-<p>We arrived on the 3rd floor, and we all scattered to our rooms. The Students in room 301 packed their luggage in the room and came out, and entered the remaining rooms one by one.</p>
-<p>Soon, Takakusaki Athena, who would be using the same room as me, came into 305 with her luggage. Takakusaki Athena came inside, looked around, and opened her mouth.</p>
-<p>,It's definitely wider than the room I use because it's a 3-4 person room.,</p>
-<p>,Sit here. I have something to tell you.,</p>
-<p>In fact, I had more important business with Takakusaki Athena than the Murder case. I thought this was an opportunity to talk when we were alone, so I pointed to the dining table opposite where I was sitting and said.</p>
-<p>Eve Belly Dancer requested by Gojoy-nim~!</p>
-<p>St. Francis's Girls' Academy uniform</p>
-<p>Eve, is it a little scary to look at?</p>
-<p>Succubus Yukiko Amta + Double Peace Ahegao requested by MidNightSKY-nim~!</p>
-<p>After making it, I realized it was the 1.0 version model, not the 1.3 version model that I usually make ㅎㅎ Still, the quality was decent, so I'm uploading it ㅎㅎ</p>
-<p>The illustration requested by Hwanbuljeoldae-bulga-nim will be a little late, so I'll upload it in tomorrow's chapter ㅎㅎ</p>
+<p>After things went well with Minamoto Lisa, Minamoto Lisa immediately returned to her Home. She said she had to do some final studying because the Test was tomorrow.</p>
+<p>Moreover, Minamoto Lisa and some other Students had to take the University Entrance Common Test, the Japanese equivalent of the SAT, for two days next weekend, so this week was a series of exams for the top university-bound Students of St. Francis Girls' academy.</p>
+<p>The Students I knew who were taking the University Entrance Common Test in our class were Minamoto Lisa, Oofuchi Erika, and Shido Tsubaki, and for St. Francis Girls' academy as a whole, it was about Nakanoin Rina, the Head of the Disciplinary Committee.</p>
+<p>My Aunt, the Student Council President, and my Kidnapper, Taira Kanna, was already attending High School and prestigious overseas Universities concurrently, so she said she wouldn't be taking the University Entrance Common Test separately.</p>
+<p>By the way, since Taira Kanna's Story came up, let me tell you that Taira Kanna sent me a few Text Messages during the Kotowazuki incident, and the content of those messages was all chilling.</p>
+<p>She sent messages saying that if I died, she would kill Kotowazuki and then herself, and it seemed she was very worried because she didn't properly know my Skill, perhaps because she had easily captured me with a paralyzing drug.</p>
+<p>No matter how much I said I was fine, she didn't calm down, so I replied that I had a Gun, and only then did she quiet down, but I was planning to give Taira Kanna a taste of her own Medicine for kidnapping me.</p>
+<p>Of course, I heard from my rescue unit Students that Taira Kanna's Skill was no joke, but hearing that Story made me want to have a Match with her. I was curious if the Skill she showed when fighting all the rescue unit members was real.</p>
+<p>After the Kotowazuki incident, I also heard from Taira Kanna that Taira Danjo was quite disappointed. I couldn't reveal my True Identity, and Taira Kanna, a direct descendant of Taira, couldn't even participate in that Travel, so she couldn't get a piece of the pie in the Kotowazuki arrest.</p>
+<p>Returning to the exam Story, as a Teacher, I had already submitted the Exam Paper for my subject, so I didn't have much to do, but as Taira Ryuta, I had to Study for the PMC certification exam in February.</p>
+<p>Although I had passed the PMC certification exam under the name Yamashiro Ryuta, the PMC certification exam itself was a very difficult Test, so I had to continue the Study I had put aside for a while. If I became complacent just because I had passed once, I could fail, so I had to prepare in advance from now on.</p>
+<p>Kōtetsubutai (Steel Unit), the PMC owned by Yamashiro Ryuta, had also completed its personnel recruitment, so I was planning to go check it out sometime this week.</p>
+<p>I hadn't been able to properly check on it due to my busy Teacher Work, and had been indirectly managing it by dispatching management personnel supported by Asada Ei and Mimata Chieri, so I hadn't paid much attention to it, but now that it was fully staffed, the PMC's Owner had to show his Face once.</p>
+<p>And while checking Kōtetsubutai, I was planning to check Kurayamada Kirie's PMC, Chūōōkamitai (Loyal Wolf Unit). No matter how much Kurayamada Kirie was the Leader, my Share was over 65 percent. It was a PMC that could be considered my Possession.</p>
+<p>This one had the former terrorist group Jinildang as its Mother organization, so its personnel were fully recruited immediately upon establishment and were already at Work.</p>
+<p>I heard from Kurayamada Kirie and Mimata Chieri that since most of the members were former terrorists, they knew the psychology of terrorists well, and were showing tremendous prominence in counter-terrorism and terrorist hunting.</p>
+<p>I was planning to visit the successful Chūōōkamitai, buy them something delicious, and give them some Bonuses to increase their Loyalty.</p>
+<p>Normally, it would be a relatively leisurely exam period for a Teacher, with just exam proctoring and finishing early, but it seemed like it would be a very busy period for me with my certification exam Preparation and PMC visits.</p>
+<p>Ah, come to think of it, besides the previous schedule, I also had a meeting with Headmaster Daigo Terue. Looking at it now, I'm incredibly busy this week, aren't I?</p>
+<p>While I was thinking about my schedule with Daigo Terue, my phone rang, and when I checked, it was Daigo Terue's Text Message by chance. Why did she send me a Text Message?</p>
+<p>-Daigo Terue: You said the Brave Citizen Award would be on Monday or Tuesday, didn't you? It's been confirmed for Monday, so I'm contacting you. It's scheduled to be held in the special class classroom after all the exams are over. Originally, it should have been held in the Auditorium with all the Students gathered, but because it's exam period, it will be in the classroom. I'm sorry if you were looking forward to it.</p>
+<p>Ah, there was the Brave Citizen Award. It wasn't a particularly important Reward, but since it was an Award received for catching Kotowazuki, one of Japan's worst serial Killers, it could be said to be quite an important Award in terms of its Meaning.</p>
+<p>-Yamashiro Ryuta: That's fine. We didn't catch Kotowazuki to receive an Award. And regarding our meeting this week, how about Friday after all the exams are over? Would that be alright?</p>
+<p>-Daigo Terue: Whatever Yamashiro-sensei wants. I'll treat you to something delicious.</p>
+<p>-Yamashiro Ryuta: I'll look forward to it.</p>
+<p>Since it was a Situation where I was being treated as a thank you for taking care of Oofuchi Erika during the Kotowazuki incident, I didn't have to prepare anything and could just go to Daigo Terue's Home with a relaxed Mind.</p>
+<p>It felt like a very long time since I had gone to School, even though it had only been three days, Friday, Saturday, and Sunday. Of course, after the Kotowazuki incident ended, I had returned to School by Helicopter, but today was the first time I had walked directly from Home to School since the incident, so it really felt like a long time.</p>
+<p>When I arrived at School, I left my Luggage in the Education Preparation Room, checked faxes and such, and then headed to the special class classroom for morning Jorye. When the Door opened, all the Students were sitting at their desks, waiting for me.</p>
+<p>"Did everyone prepare well for the exam?"</p>
+<p>"Eh~! I hate exams~☆"</p>
+<p>"I worked hard~!"</p>
+<p>Although it was exam week, most of them were aiming for St. Francis Women's University, which they would automatically advance to, so it didn't have the burning Feeling of the midterm exam we had shortly after I took office. Back then, a Date with me was offered as a Reward, so they studied incredibly hard.</p>
+<p>"Even if this exam isn't important, you know that you can't have a Failing Grade if you want to go to St. Francis Women's University, right?"</p>
+<p>"Ei~! No way I'd get a Failing Grade?"</p>
+<p>Even with escalator advancement, there was a minimum required score, which was to exceed the Failing Grade of 40 Points.</p>
+<p>If they couldn't even pass that score, they couldn't go to St. Francis Women's University, but unless they had completely given up on their Studies, there were almost no Students who received a Failing Grade. Of course, even if they received a Failing Grade, there were two supplementary exams, so it was not easy to fail even for a complete idiot.</p>
+<p>"Ryuta, I'm scared...!"</p>
+<p>The biggest Problem in this classroom was Alik. Since Alik had wandered through Manchuria, the northern Korean Peninsula, and Russia since childhood, was caught by a Slave Trader, and then rescued by me, her foundation was very weak.</p>
+<p>She had barely avoided a Failing Grade in the last exam, but Alik could be said to be the most at Danger in this exam as well.</p>
+<p>She had a Talent for Language, so English, and her elective subjects Korean language and Russian (which she naturally excelled at as her native Language) were fine, and Alik could get a certain score in social studies subjects by simply memorizing.</p>
+<p>However, she was particularly weak in Mathematics and Japanese Classics, which was a Problem in the last exam, but she said she had studied Japanese Classics along with Training during this vacation.</p>
+<p>I heard that Alik's Teacher/Master, Home Economics Teacher Shimokawabe Airen, was also good at Japanese Classics in addition to Home Economics, so she gave her private tutoring.</p>
+<p>Then the remaining subject was Mathematics, and Alik said she was working hard in her own way, but according to Naruse Shiyo, who was helping Alik Study, it was not good at all.</p>
+<p>Alik was also calmly assessing her own Skill and was feeling anxious.</p>
+<p>"Even if you don't do well, there's a supplementary exam. Don't worry too much, Alik."</p>
+<p>"Alik, supplementary exam.... I hate it."</p>
+<p>"Eh~! You should say let's do well now so we don't have to go to the supplementary exam, Ryuta-cchi~!"</p>
+<p>Of course, it would be good if Alik did well and didn't have to go to the supplementary exam, as Seizawa Shii said, but I heard that this last exam had many units that Alik found particularly difficult, so it was hard to be Optimistic.</p>
+<p>"Anyway~! Today you don't even have the Mathematics you find difficult, so do well.... Oh, right. After you finish all your exams, they'll be presenting the Brave Citizen Award for catching Kotowazuki during homeroom, so be aware."</p>
+<p>"Ah, I know that. My dad's local reporter said they'd be taking Photos in our class today."</p>
+<p>"Reporters are coming for us too."</p>
+<p>"Many Minamoto reporters will come, so it will get a bit complicated, you."</p>
+<p>Looking at the Students answering my Words, it seemed that other Students already knew about the Brave Citizen Award ceremony today. If such Photos were published as articles, the advertisement Effect would certainly be enormous, so most of the Families to which the Students belonged seemed to have called reporters.</p>
+<p>"Alright, do your best on the Test, and I'll see you at homeroom."</p>
+<p>The school for noble Young Ladies had quite large classrooms, but I worried if it would become incredibly cramped due to the reporters, but I thought the School would have coordinated it well, and I finished the morning Jorye.</p>
+<p>Class Teachers are forbidden from proctoring their own classes, so I would have to go around other classes. Which class should I visit? I checked the tablet provided for Teachers.</p>
+<p>Coincidentally, the class I had to proctor for the first period was 3rd Year Class A, where Taira Kanna was. Surely, Taira Kanna didn't use her power as Student Council President and Taira's influence to call me as a proctor, did she?</p>
+<p>Gojoy-nim requested Jeong Darim (a Superhuman rescued with Alik, who researches plants) in casual clothes and underwear~!</p>
+<p>Casual clothes</p>
+<p>Underwear~!</p>
+<p>seungj050-nim requested Yukiko and Dang So-hwa in a Footjob-like posture~!</p>
+<p>Yukiko</p>
+<p>Dang So-hwa~!</p>
+<p>Kkiyoot~!</p>

@@ -5,68 +5,54 @@ weight = 1008
 chapter = 1008
 +++
 
-<p>a before breast chapter check exposure is please surroundings this with your</p>
-<p>The 14th floor of the Minamoto Media-Computer Technology Building.</p>
-<p>As of yesterday, Minamoto Risa joined Minamoto Media-Computer Technology as a Team Leader.</p>
-<p>It was quite common for a Blood relative of the Minamoto Family to join the Group as a Team Leader, so there wasn't much fuss about Minamoto Risa becoming a Team Leader. However, Minamoto Risa's Minamoto Group entrance exam results became quite a hot Topic.</p>
-<p>The Minamoto Blood relatives' unique Group entrance exam, where they personally invested to grow money, was quite famous within the Minamoto Group because it served as an indicator to gauge the Skill of the Minamoto Family's Blood relatives who would be joining as Team Leaders. Even if everyone acquiesced to the chaebol heirs coming in as parachutes, everyone still hoped that the person on that parachute would be an outstanding individual.</p>
-<p>In particular, the people at the company where the parachute Team Leader would join were Obsessed with the Minamoto Group entrance exam results, because if an incompetent Team Leader came, the company's Achievements would drop, and ultimately, everyone Affiliated with that company would suffer the loss.</p>
-<p>When the news spread that Minamoto Risa would be joining Minamoto Media-Computer Technology, the employees of Minamoto Media-Computer Technology cheered upon hearing the rumor that Minamoto Risa had passed the Minamoto Group entrance exam with incredible scores.</p>
-<p>Moreover, the Story that she didn't earn profits with the Family's help, but rather made hundreds of times the profit by selling club anthologies at a school festival, gave rise to the hopeful thought that the standing of Minamoto Media-Computer Technology, which was considered a backwater within the Minamoto Group, might rise.</p>
-<p>Thus, Minamoto Risa, who became a Team Leader with the immense Expectation of the employees, decided to create a publisher team to achieve results in a short period.</p>
-<p>Minamoto Risa's thought was that there was no need to develop games within Minamoto Media-Computer Technology; by preemptively acquiring and publishing external games that were destined for future success, quick Achievements could be made.</p>
-<p>As game Development was a long-term Project taking several years, creating a publisher team was the best Choice for Minamoto Risa, who desired quick Success, rather than developing games herself.</p>
-<p>Of course, being a publisher was not easy either. This is because a publisher is Responsible for managing everything necessary for game Service, excluding game Development. This included quite complex and numerous things such as game infrastructure construction, translation and localization, server management, promotion, Event planning, User management and analysis, game Market analysis, and operating System construction.</p>
-<p>Just as countless games fail because their operation holds them back despite being well-made, successful popularity can only be achieved when the game's fun and the publisher's Ability are well-balanced.</p>
-<p>Minamoto Risa also enjoyed classic Comics and, unlike other Young Ladies of prestigious families, occasionally had Intimate Experience playing games, so it wasn't an entirely unfamiliar Field. And with the outstanding individuals she had recruited by traveling around Japan, even being Held Back a Year and absenting herself from St. Francis Girls' Academy, gathered in Minamoto Risa's team, she was somewhat confident in their Success.</p>
-<p>And because Minamoto Risa had a List of upcoming hit games provided by Taira Ryuta, she wasn't even considering Failure.</p>
-<p>Minamoto Risa even had the thought of personally acquiring some of the companies that would create hit games, rather than Minamoto Media-Computer Technology doing so.</p>
-<p>「First, we need to find good games and sign contracts, right? Please give me a List of games that are about to be released but haven't found a publisher yet.」</p>
-<p>Minamoto Risa said, looking at the employees who were watching her. At her Words, the employees displayed various data on the Screen. As they were talented individuals, a List of game developers not only in Japan but also worldwide appeared on the Screen.</p>
-<p>Seeing the game Taira Ryuta had told her about on that Screen, Minamoto Risa smiled.</p>
-<p>「Damn it...!」</p>
-<p>Kwang!</p>
-<p>The Black Sage spat out a Curse and slammed his desk. He was expressing his frustrated Mood because the plan he had recently made was slowly distorting.</p>
-<p>There were several Reasons why he came to New York and cleaned up New York's Crime Syndicates as a fake Black Knight.</p>
-<p>The acquisition of the property and various illegal items held by the Crime Syndicates, and the Black Cape, the Organization led by the Black Sage himself, taking control of the New York Back Alley, which was left vacant after the fake Black Knight cleared out the illegal Back Alley organizations, were all secondary Reasons.</p>
-<p>The primary Reason was to obtain the forbidden book 'Omniscient Shard,' which was rumored to have flowed into the New York Back Alley.</p>
-<p>The Omniscient Shard was a legendary grimoire, famous as a book that granted desired Knowledge to Magicians or Sorcerers who had reached a certain Realm or higher.</p>
-<p>For Magicians and Sorcerers always thirsty for new Knowledge, it was an irreplaceable Treasure.</p>
-<p>The Reason this irreplaceable Book was called a forbidden book was that the standard for Magicians or Sorcerers who had reached 'a certain Realm or higher' was extremely high.</p>
-<p>If a Magician who did not meet the Omniscient Shard's criteria opened this Book, they would either go mad or their entire Body would explode. Thus, it was designated a forbidden book in the Middle Ages, and due to various Political confusions and Jeonjaeng, the Omniscient Shard wandered all over the World.</p>
-<p>As soon as he received Information that the Omniscient Shard, which all Magicians wished to see yet also feared to see, had flowed into the New York Back Alley, the Black Sage immediately moved to New York.</p>
-<p>However, the Black Sage, who only had Information that it had flowed into the New York Back Alley but didn't know exactly which Organization it had entered, after much Worry, devised a plan.</p>
-<p>If he used his Organization to search for the Omniscient Shard, it would likely be seen as an inter-organizational conflict, and the government would probably intervene. Since that would make things quite complicated, the Black Sage had to find another Method.</p>
-<p>As the Black Sage pondered Methods, he one day realized that the black Aura possessed by Soda Haruto, one of his collections, was similar to that of the Black Knight.</p>
-<p>Having confirmed this, the Black Sage made Soda Haruto into a fake Black Knight and began to cultivate favorable public opinion for vigilante activities, utilizing his Organization.</p>
-<p>Thus, the activities of the fake Black Knight began, and at first, it was good. However, the favorable public opinion for vigilante activities that he had intentionally cultivated ran wild, and strange Humans who engaged in vigilante activities like the Black Knight began to increase.</p>
-<p>At first, he ignored the vigilantes who merely dealt with thugs on the Street, but as the vigilante groups grew and even some Superhumans began vigilante activities, following the Black Knight, they started eliminating the Organizations that the Black Knight was supposed to handle, thereby obstructing the Black Sage's Purpose.</p>
-<p>When the fake Black Knight dealt with an illegal Organization, the Black Cape, the Black Sage's Organization, immediately moved in to search for the Omniscient Shard and simultaneously stole the property left by that Organization. However, when vigilante groups dealt with an Organization, the police arrived before the unprepared Black Cape, making it impossible to search for the Omniscient Shard.</p>
-<p>「Damn it...! What should I do?」</p>
-<p>The Black Sage, muttering Curses, soon slammed his desk once more. It meant something had occurred to him.</p>
-<p>「Right, if vigilantes are the Problem.... I'll just create a Villain group that attacks Heroes. Kilkilkil...! They'll have to pay the Price for bothering me.」</p>
-<p>The Black Sage laughed unpleasantly and began to devise an evil plan. This Time, too, he intended to use part of his collection.</p>
-<p>「Arisu.」</p>
-<p>As Arisu was busy packing her Luggage to return to Japan, the door opened. The person who entered Arisu's room was her Mother, Nae Fitzgerald.</p>
-<p>「Huh? What's wrong, Mom?」</p>
-<p>「It seems we'll have to postpone going to Japan a bit.」</p>
-<p>At Nae Fitzgerald's sudden Words, Arisu frowned. Tomorrow, the day after tomorrow, was their Airplane Reservation, yet she was telling her to postpone the trip to Japan? Did she say this knowing how much Arisu was looking forward to this trip to Japan?</p>
-<p>「No, it's an Airplane for the day after tomorrow.... What on earth is going on?」</p>
-<p>「There's a rumor that a valuable item has arrived in New York.」</p>
-<p>It's related to Phantom Thief François.... Arisu muttered to herself, then signaled Nae Fitzgerald to continue speaking.</p>
-<p>「It's a Book called the Omniscient Shard, and they say it's a very precious Book.」</p>
-<p>「A Book? Is it historically precious? Or is it inherently precious because it's made of Gold or something?」</p>
-<p>At the Words 'precious Book,' Arisu wore an Expression of Intrigue and asked for more details. Though they couldn't share it with anyone else, the Fitzgerald Phantom Thief Mother and daughter shared a certain Desire between just the two of them. It was the Obsession and Desire to steal precious things.</p>
-<p>It could be kleptomania, stealing items guarded by someone, or a Possessive Urge to own precious things, but the two Mother and daughter believed they were born with the innate nature of phantom thieves, slightly different from these two Emotions.</p>
-<p>「You could say both. It has historical Value... and since it's a grimoire, it has Value in itself.」</p>
-<p>At Nae Fitzgerald's Words, Arisu felt even more drawn in. Nae Fitzgerald, sensing her Daughter was still Worrying, decided to deliver the decisive blow.</p>
-<p>「This Work seems quite Dangerous. The Omniscient Shard has flowed into a Crime Syndicate, you see. I don't think I can do it alone, Mom.... But if my Daughter helps, we might be able to solve it.」</p>
-<p>Arisu chuckled at Nae Fitzgerald's Words. Her Mom's Appearance of exaggeration was amusing.</p>
-<p>Nae Fitzgerald was capable of escaping even when surrounded by hundreds of police officers. It seemed unlikely she would be caught by a mere New York Crime Syndicate. However, since there was always a 'what if,' Arisu reluctantly nodded her Head.</p>
-<p>「Alright. I'll postpone it for about one or two weeks, I guess....」</p>
-<p>「Once this Work is over, let's go to Tokyo together. We can meet Ryuta, too.... Huh? Ryuta is a Playboy, so we'll have to combine our strengths to capture him.」</p>
-<p>Nae Fitzgerald also knew how much Arisu wanted to see Taira Ryuta, so she spoke soothingly. She herself also wanted to see Taira Ryuta, so she decided to go to Japan once this Work was over.</p>
-<p>TheDreaming-nim requested Arcade Oofuchi Erika 1. Tied up state 2. Jumping with breasts jiggling~!</p>
-<p>1.</p>
-<p>2.</p>
-<p>Neosblue-nim requested Drop Kick Lena~!</p>
+<p>We were deployed as a support team, and I hadn't expected to get a clue right away today, but Genbaki and Musashi Takuro immediately captured two suspicious individuals. Hearing that news, I returned to the Safe House.</p>
+<p>Of course, Sawayanagi Azuma and Sawayanagi Sinya helped, but this capture could still be considered a significant achievement. For reference, I was on standby as a support team in another area, so I couldn't go to help Genbaki.</p>
+<p>The two captured individuals were taken to the interrogation room on the 4th Underground floor of the Federal Superpower Management Department's Safe House, where a Jo Seodang agent and Sawayanagi Sinya, who is responsible for information at Seryutai, were asked to interrogate them. They would probably Torture them now to extract information.</p>
+<p>Genbaki, that Guy, suffered a large Wound on his opposite Arm, not his cyber implant, and headed to the hospital emergency room. He said he fought some Guy called Geomi, and a special Silken Strand had dug into his Arm, leaving him severely Injured.</p>
+<p>Of course, with advanced Medicine, this level of harm would recover, but it still didn't feel good to see his Arm in such a state, especially since his main profession was Martial Arts.</p>
+<p>After waiting for a moment, the Jo Seodang agent and Sawayanagi Sinya came up from the interrogation room. Both had slightly awkward Expressions, as if something had happened during the interrogation.</p>
+<p>"What happened?" "Well...." "The two captured individuals died."</p>
+<p>Huh? Two people suddenly died? Not just one, but both at the same time? What the hell happened? Surely, both of them were Pro, so they wouldn't have accidentally killed someone by Torturing them too roughly.</p>
+<p>"Please tell me exactly what happened."</p>
+<p>At my Request, Sawayanagi Sinya began to tell the Story of what had happened.</p>
+<p>"First, we separated the two into different rooms. We needed to separate them and hear each of their Stories to uncover any lies."</p>
+<p>So far, nothing was out of the ordinary. Interrogations are usually one-on-one, so separating them wasn't wrong. The incident probably happened after this.</p>
+<p>"First, we decided to interrogate the VR Diver. Since VR Divers operate in cyberspace, they are weak to physical body pain, so we prioritized them, knowing they would easily spill information with just a little Threat." "We barely even Tortured them. They started talking freely after just one finger was bent."</p>
+<p>Following Sawayanagi Sinya's Words, the Jo Seodang agent continued. Bending one finger wouldn't kill someone, so where did the Problem happen?</p>
+<p>"The Problem started then. Suddenly, the Guy named Geomi in the next room started making a ruckus. He screamed, 'You can't say any more information! Do you want to die?!' and began struggling to remove his Handcuffs and Shackles, and just as we were about to stop the interrogation, suddenly.... Both of them started spitting Blood and then died."</p>
+<p>Both who were telling the Story had confused Expressions. It seemed they were under some kind of Jusul Jinzhi.... It seemed they had received a Jinzhi Jusul where if even one person uttered a specific keyword, both would die. If only one died, information could be carefully extracted from the other, so it seemed a Jusul had been placed to kill both simultaneously, which was quite a cruel Act.</p>
+<p>"It seems to be Jusul, but both of us are ignorant about Jusul.... I apologize." "Since things have already turned out this way, there's nothing we can do. I also requested the interrogation.... Still, since we've gathered some information, let's organize it and hold a Meeting with that content once everyone returns."</p>
+<p>It was Fortunate that we had heard quite a bit of information from the VR Diver. There was a regret that if Otagi Yuka or Naruse Shiyo, who are skilled in Jusul, had been here, they could have prevented this, but both of them were still outside on patrol and support, so they couldn't help.</p>
+<p>Since such an incident could happen again in the future, I'll have to either make the Yin-Yang master agents belonging to Jo Seodang into interrogators or devise another method.</p>
+<p>Soon, those who had gone on patrol and those who had been on standby in various Places in New York to provide support returned. Everyone was disappointed by the fact that the two captured individuals had died, but they attended the Meeting to share the information they had gathered.</p>
+<p>"First, let's check the information." "I apologize for this Situation occurring due to our inexperience in handling Prisoners." At my Words, Naruse Shiyo stepped forward. And she bowed her Waist to everyone and offered an Apology. Since it was an incident involving a Jo Seodang intelligence agent, for whom Naruse was responsible, it seemed she started by apologizing.</p>
+<p>"No one here could have predicted that someone who leaked information would be killed by Jusul.... So, let's start by sharing the information we've found."</p>
+<p>When Fujigasaki Rinka said it was alright, Naruse Shiyo gave a slight bow of her Neck and began to relay the organized information.</p>
+<p>"First, the True Identity of the two captured individuals is that they are one of the vigilante Hunter teams under the Black Sage. The information received from Eve that there are vigilante Hunters has been confirmed as fact. And it was also confirmed as fact that the Black Sage desires the grimoire, the Shard of Omniscience. They said they are doing the vigilante Hunter Work because the routine of the Black Knight attacking New York's Back Alley organizations and a follow-up unit searching for the grimoire was broken by the vigilantes, so they deployed the vigilante Hunters."</p>
+<p>So, all the information I received from Eve has been confirmed as fact. By the way, if they are one of the vigilante Hunter teams, it means there's more than one Hunter team.... I'll have to ask about this once the Explanation is finished.</p>
+<p>"The new information is about the Collection that the Person called the Black Sage gathers. The Black Sage travels the World, collecting People as items, and probably.... the fake Black Knight, Rinka-ssi's Sabu, Soda Haruto-nim, is also held as a Collection item by the Black Sage, they said. They also said that the vigilante Hunter teams consist of a Collection item and a buha of the Black Sage, working as a two-person team."</p>
+<p>To treat People as mere Collection items.... Even I, who haven't even seen Sajo's Face, am angry, so Fujigasaki Rinka, Sajo's Disciple, must be even angrier. I glanced at my Sabu's Face, and she wore an indifferent Expression, but as her Disciple, I knew that Expression was precisely the one before Anger explodes.</p>
+<p>That Appearance of suppressing Anger and forcing a blank Expression was Fujigasaki Rinka, the Mount Hua before it erupts. With that Expression, the Black Sage wouldn't be unscathed.</p>
+<p>"In that case, even if we rescue Sajo, there will likely be some Jusul measures, just like with the two who died today, so not only rescuing but also performing Curse Removal will be important." "That's right. Soda Haruto-nim will surely have some Jusul placed on him, just like those who died today."</p>
+<p>At my Words, Naruse Shiyo nodded her Head and gave her Consent. Then, we would need Otagi Yuka or Naruse Shiyo, who can at least perform Jusul, but the Worry is whether these two can break the Jusul of a sorcerer who has been active for over a decade, known as the Black Sage.... I'll have to talk about this later.</p>
+<p>"Tell me the next piece of information." "After that, we started asking about the Black Sage, but from then on, Geomi in the next room started making a ruckus, so we couldn't properly grasp the information, they said. We only got fragmented information.... After that, both of them died." "It seems the Jinzhi's keyword was related to the Black Sage...."</p>
+<p>At Naruse Shiyo's Words, Otagi Yuka muttered. Of course, I don't know much about Jusul, so I don't know the exact method, but as Otagi Yuka said, it was clear that information about the Black Sage was the Trigger.</p>
+<p>"Shiyop-ppi~! Is there anything useful among the fragmented information you mentioned?"</p>
+<p>Seizawa Shii raised her Hand and spoke. As a problem solver, she seemed curious if there were any more clues.</p>
+<p>"The Black Sage is probably in East New York or the eastern part of New York. That VR Diver said 'East...' before dying."</p>
+<p>It wasn't enough to pinpoint the Black Sage's Position, but it was still quite significant information. Of course, it wasn't precise information since he died mid-sentence.</p>
+<p>"Still, if the two we caught today are one of the vigilante Hunter teams, there must be other teams, so the Mission isn't a complete Failure. They will be cautious having already lost one team, but given the Situation so far, the Black Sage probably won't give up on the Shard of Omniscience."</p>
+<p>Seiwa Rieko made a rather sharp Analysis. According to my Memory, I believe there's Pubic Hair in Seiwa Rieko's skill window, and perhaps because of that, she seems to grasp the opponent's Pubic Hair well.</p>
+<p>Yes. Today's Work was not a Failure. We caught an Enemy, and although that Enemy died while speaking information, we gained meaningful information and knew it wasn't over yet, so it couldn't be called a Failure.</p>
+<p>"Then, how should we proceed with patrols? Should we focus on East New York, according to the information we obtained today?" "Since these vigilante Hunters seem to be roaming all over New York anyway, wouldn't it be better to stick to the original plan?"</p>
+<p>Next, they discussed whether to maintain the current patrol areas or focus patrols on the eastern part of New York, which they had heard about last. Both opinions had merit, and the Story was quite tense, but suddenly, a Contact on my phone rendered all of it futile.</p>
+<p>-EVE: Ryuta-nim. The Shard of Omniscience is going to be put up for auction at the AmSang Auction House. The auction start date is three days from now, at midnight. Eve informed me that the grimoire, the Shard of Omniscience, which the Black Sage was searching for so desperately, was going to be put up for auction at the AmSang Auction House.</p>
+<p>Gojoy-nim requested an Illustration of Yu-gyeong undressing and Seduction, and her Appearance covered by Entwined Sheets in bed~!</p>
+<p>Seduction~!</p>
+<p>Entwined Sheets~!</p>
+<p>Hwanbuljeoldaebulga-nim requested Lisa, the Home Teacher-nim, in a Maid Outfit~!</p>
+<p>Lisa-ttang~!</p>
+<p>Home Teacher-nim~!</p>
+<p>Chomisaemeonji-nim requested Liz in a Maid Outfit, riding a Bike~!</p>
+<p>Maid Outfit~!</p>
+<p>Bike Liz~!</p>

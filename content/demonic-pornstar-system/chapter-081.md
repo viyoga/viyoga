@@ -1,0 +1,36 @@
++++
+title = "Chapter 81: Splurty Time"
+weight = 81
+[extra]
+chapter = 81
++++
+
+<p>Aria slowly began to lower herself onto his shaft. The last—and first—time they had sex, she was submissively lying on her back and gave Kaiden full control. He was very gentle with her, so much so that he paused during his entrance into her folds regularly and for long lengths at that. Now that Aria wanted to ride him, both had an equal amount of control because Kaiden’s hands were firmly planted on her perky behind.</p>
+<p>However, due to the worryingly flooded state of her feminine folds, she slid on his cock and nearly took his giant monster all the way into her deepest depths. The only thing stopping that from happening was Kaiden’s grip on her butt and the fact his shaft was already hitting the walls of her womb.</p>
+<p>This accident had a profound effect on the young woman, namely, her eyes going hazy and unfocused as her entire body trembled, and then she... erupted.</p>
+<p>"Ahhnnnghhhh!!♥" The silver-haired beauty orgasmed, moaning in pure ecstasy, while her fertile flower field let out loud squirting sounds. Aria instantly came from her rapid descent on his length, and her womb tattoo started flaring violently. When the girls were not excited, it was just a simple black tattoo, but right now, it pulsated with a bright pink color.</p>
+<p>It took Aria a good minute to collect her thoughts. "I... blacked out...?" she asked with disbelief. The smug grin on Kaiden’s features told the girl all she needed to know. "Miss Nurse, my problem didn’t go away."</p>
+<p>His tone was no longer that of a desperate patient. The real, confident Kaiden returned.</p>
+<p>"... I can feel that very well..." Aria whispered while glancing down at the entrance of her kitten, which was busy continuously kissing his cock.</p>
+<p>Kaiden then reached for her crop top and freed her alluring mounds from their sexy bras, after which he immediately moved to quip them in his palms, massaging them. "Miss Nurse, are you good to continue administering my treatment?"</p>
+<p>"Hmph...! I’m a strong, dutiful nurse. Of course, I am ready to continue your treatment!"</p>
+<p>Hearing her proud declaration, he moved his hands from her breasts back to her behind, gripped her perky butt with both hands, and started bobbing her up and down on his cock. It didn’t take long for Aria to join in on the fun as she used her trained leg muscles to help him out. Kaiden was still a real patient in a real hospital, so she didn’t want him to exert too much effort until he was officially discharged.</p>
+<p>He let go of her left buttcheek to instead grab the shoulder blade on her back and pull the girl into him so that her tantalizingly swaying breasts were in reach of his lips. Once they were, Kaiden hungrily chomped down on the right one while Aria put both of her hands on his head, both to support herself better and to help him suckle on her tits easier.</p>
+<p>Her boyfriend was truly getting into it when he started moving his hips so that his cock would kiss the entrance of her womb with even more might, forcing the silver-haired beauty to moan whether she liked it or not; her body simply needed to let him know how much physical pleasure and emotional joy she was experiencing. Furthermore, Aria was very proud of her capability to take him into her depths this well, a fact she hoped her man would also recognize and appreciate.</p>
+<p>If Kaiden didn’t, she would have to make sure to point it out to him while looking up at his eyes adorably. Aria knew doing so would make his heart melt, and she would receive heaps of praise immediately.</p>
+<p>"Ahhn~! Ahhh! Kai- Mister Kaiden, this is way too good...! My brain is melting...♥ I love it!" Aria did her best, but her act was coming apart in real-time just as her brain began refusing to function properly, as all her mental power was on making sure she could remember this moment in full even a hundred years from now.</p>
+<p>"I’m glad to hear it, Miss Nurse. After all you did for me, it’s only fair you get to have some fun."</p>
+<p>Aria could barely register his words, but she understood that all was good, so she focused on raising her butt all the way into the air, so much so that the tip of his cock was giving a loud smooch to her lower lips, and then slammed herself down on it. The girl’s body told her it craved more of the same ultimate pleasure she received when she accidentally slipped down on his length—and she obediently listened. Each time Aria descended, a mini orgasm erupted in her depths, which was further strengthened with the eagerness with which Kaiden was sucking on her tits.</p>
+<p>She was smaller than Nyx in that department, so seeing undeniable proof of her man finding her body so hot gave Aria warm, fuzzy feelings in her stomach.</p>
+<p>"Ah, Kai, I’m cumming soon... It’s going to be a big one..."</p>
+<p>Hearing her announcement, Kaiden grabbed onto her behind with renewed vigor and started pumping her up and down on his shaft so that he could come together with her.</p>
+<p>It didn’t take long for a euphoric scream to leave her delicate lips. "C-c-cccummmiiiiinggggggg!!!♥♥♥"</p>
+<p>Aria’s womb’s walls were breached by the tip of his cock, which then began splurting copious amounts of sperm into their rightful resting place. To conduct a fair exchange, she also released her liquids right onto her lover’s twitching shaft. Once Aria managed to regain vision in her eyes, she saw her man looking at her with eyes full of adoration, love, and gratitude. She felt exactly the same, so she leaned in to give him a sensual kiss, transmitting all the strong feelings she held toward him.</p>
+<p>"Haaahhh... Haaahhhh...." Aria panted heavily as her chest heaved up and down mightily in order to do its best to refill her emptied-out lungs while basking in the glory of her extreme orgasm and the aftermath of their delicious kiss.</p>
+<p>"Miss Nurse, I think you did it!" Kaiden declared with great relief as if his life was truly in danger and he wasn’t just extremely horny.</p>
+<p>"Yes, I can feel it... You’re shrinking inside me." The silver-haired girl replied with a happy smile before leaning in for another kiss, where their tongues entered another round of wet tango.</p>
+<p>...</p>
+<p>"God damn, it stinks like sex in here!" Luna shouted while rushing for the window to let an abundant amount of fresh air in. Aria glanced at the girl bashfully before nuzzling her head into Kaiden’s broad chest, hiding away from the embarrassment like an ostrich with its head in the sand.</p>
+<p>She was currently seated on his lap while Kaiden himself sat on the sofa. Both of them were still naked to the core. The pair meant to shower, but on the way to the bathroom, they both had an irresistible urge to start kissing once again, so here they were.</p>
+<p>"It’s time to upload. I wonder which PoV will do better..." Kaiden murmured excitedly while stroking Aria’s delicious thighs. He was not at all embarrassed by the situation.</p>
+<p>Nyx and Luna plopped down on either side of them, further making the silver-haired girl feel out of her element. The others were fully clothed while her bare kitty was still dripping the mixture of her and Kaiden’s fluids...!</p>

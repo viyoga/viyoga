@@ -5,71 +5,76 @@ weight = 260
 chapter = 260
 +++
 
-<p>The auction venue was in one of the skyscrapers in the middle of New York. I thought an underground auction would be held in back alleys or slums, but it's quite bold to do it in the middle of New York, huh?</p>
-<p>Of course, plus-rank people who can participate in auctions are likely to be high-ranking members of society or have considerable wealth, so it wouldn't be good for the underground if they were harmed in a slum with poor security. That's why they're doing it in the middle of the city.</p>
-<p>When we entered the building, an unexpected person greeted us.</p>
-<p>,Hello~! Long time no see~!,</p>
-<p>Eve greeted us at the information desk. Two of them, in fact. Eve A was wearing a purple tailored jacket, and Eve B was wearing a white suit with a dark tie. Both of them were wearing round-rimmed glasses today, making them look a bit more intellectual.</p>
-<p>Since the underground offline branch had several Eves taking care of customers at the same time, there could be several of them here as holograms.</p>
-<p>,First of all, I'd like to thank Ryuta-nim for saving Yuka.,</p>
-<p>Both Eves bowed to me.</p>
-<p>,Kurotsuki-doo and I don't have good feelings either. And even Otagi Yuka-ssi would have helped me.,</p>
-<p>,Still, I'm grateful for what you did. Yuka went back to Japan, so she'll give her thanks in Japan.,</p>
-<p>I spoke to Eve as if I had done nothing, and Eve bowed again. Otagi Yuka came to America for revenge, so going back to Japan must mean she dealt with the head of the underground New York branch.</p>
-<p>,The auction is about to start, so I'll guide you to your room first. Would you like a glass room where you can see the real items? Or would you like a room where you can see them on a screen?,</p>
-<p>,What do you want to do?,</p>
-<p>I preferred a glass room where I could see the items directly. Even if I looked at the auction items on the screen, my ability to know the information of the items wouldn't activate, so I wouldn't be able to buy good items. But since I came with my colleagues, I asked the others for their opinions.</p>
-<p>,It's better to see it directly.,</p>
-<p>,Yeah! There are things you can't see on the screen too,,</p>
-<p>Fortunately for me, Nae Fitzgerald and Arisu seemed to prefer seeing the items directly, perhaps because of the insight they gained from being the Phantom Thief François. Mimata Chieri was looking at her phone as if she didn't care which room it was.</p>
-<p>,Then please give us a glass room.,</p>
-<p>,Yes! After all, the number of glass rooms where you can see the items directly is limited. You made a good choice.,</p>
-<p>As Eve finished speaking, a drawer-like thing came out of the information desk with a key with a number on it. And along with the key, we each received a tablet to use to participate in the auction.</p>
-<p>,Please go to room 007.,</p>
-<p>I took the key and went in the direction Eve pointed. Room 005, room 006... Room 007 was right there, so I opened the door with the key and went inside.</p>
-<p>The room had one side made of glass, and there was a stage right in front of it to display the auction items. And another side was made of a screen so you could see the auction items in detail, and in the middle, there was a sofa facing the glass side, and in front of the sofa, there were finger foods and wine, champagne, etc. that you could pick up and eat.</p>
-<p>There was another door on the remaining wall without a screen or glass wall, and when I asked Arisu, she said it was a bathroom and shower room. Since one companion can come along and it's a closed space, many things must happen. The bathroom or shower room is there to clean up after that.</p>
-<p>Since we came almost right before the start time, the auction soon began. The stage outside the glass wall lit up, and Eve, wearing a white suit, black shirt, and pink tie, appeared like a ghost.</p>
-<p>Eve's appearance was also visible on the screen, and Eve was shown closer on the screen.</p>
-<p>,Hello~! It's been a while since the New York auction! I'm Eve, who everyone knows☆,</p>
-<p>Even though it was a stage, the audience was watching from inside the glass wall or on the screen, so there were no cheers or reactions to Eve's greeting.</p>
-<p>,Before we start, we'll have a brief advertisement from our partner!~,</p>
-<p>The lights on the stage went out again, and an advertisement appeared on the screen. But the advertisement was... somehow strange.</p>
-<p>-The streets are getting scarier. Will we really be able to go home alive?</p>
-<p>A scene showing the slums appeared, and a man's voice heightened the sense of crisis.</p>
-<p>-In such scary situations, what you need is a pet that can protect its owner! Now, look at this cute Shih Tzu!</p>
-<p>A cute Shih Tzu appeared, jumping and acting cute to its owner. The Shih Tzu in the advertisement was the ideal Shih Tzu. It had long eyelashes, deep eyes, and the color combination of its fur was appropriate, making it cute enough to be in a dog food advertisement.</p>
-<p>Then, a robber wearing a mask that covered his entire face appeared and pointed a gun at the owner. The Shih Tzu rushed at him with tremendous force, jumped, and bit the robber's neck. It was clearly a brutal scene, but because it was done by a cute little Shih Tzu, it seemed a bit unrealistic.</p>
-<p>The fur of the Shih Tzu, standing proudly with blood dripping from its mouth, peeled off, revealing the steel frame inside. It was actually a robot in the shape of a Shih Tzu! That's what the scene was.</p>
-<p>-A pet that protects its owner's safety and doesn't need to be fed or shed fur! The latest Ai makes it look no different from a cute pet! The best safety provided by the underground's partner! You can customize everything from the appearance to the system specifications and specs according to the customer's order! Pre-order now! Released after October!</p>
-<p>The advertisement ended with a QR code. This is the steel pet we were going to do business with. Suddenly my phone rang, and it was a message from Eve on the underground app.</p>
-<p>EVE: We made our business advertisement well, right? I'm going to try selling it to the underground plus members in New York first.</p>
-<p>Ah, it seemed like they were advertising in advance while the customers were gathered for the auction.</p>
-<p>Ryuta: It's well made, but still, tell me in advance if you're going to do something. I was surprised.</p>
-<p>EVE: I kept sending messages, but Ryuta-nim didn't reply. So I contacted Yu-gyeong-nim, who is doing business with you, and got permission.</p>
-<p>Huh? You kept sending messages? When I went to the message box of the underground app, there were several messages from Eve. They were all about whether it was okay to make our business item into an advertisement for this auction. When I looked at the time the messages were sent, it was when I had just returned to the Fitzgerald mansion and was sleeping.</p>
-<p>Ryuta: I was sleeping then. It seems like you can contact Yu-gyeong?</p>
-<p>EVE: Ryuta-nim connected us then, and Han Yu-gyeong-nim also knew about the underground, so I contacted her through the underground app.</p>
-<p>When we said we were going into business together at that time, I gave Han Yu-gyeong's contact information, so it seemed like they had been in contact since then.</p>
-<p>Ryuta: I understand. The advertisement is interesting.</p>
-<p>Even though the Shih Tzu dripping blood from its mouth was scary.</p>
-<p>EVE: We've already received 30 pre-orders!</p>
-<p>Oh, that's great. Since it wasn't an item to be sold in large quantities to the public, but an item to be sold to the rich, the price range would be set as high as possible. We hadn't set an exact price yet, but 30 orders seemed like it would be a considerable profit.</p>
-<p>Ryuta: That's great.</p>
-<p>EVE: Well, the auction is about to start now, so let's stop talking here!</p>
-<p>Ryuta: Yes. We can talk in Tokyo later too.</p>
-<p>After finishing chatting with Eve and looking at the stage, the lights on the stage were on again, and it was a diamond necklace with a huge gemstone inside a glass case. It didn't seem like a necklace with any power, but it increased charm by 6. Wow.</p>
-<p>,This necklace contains a whopping 100-carat diamond! In the Renaissance era....,</p>
-<p>Eve was explaining the story of the necklace, and Arisu and Nae Fitzgerald were listening to Eve's explanation as if they were drawn in. When I looked at the guests inside and outside the building earlier, there were many noble ladies, so it seemed like there would be a lot of competition.</p>
-<p>Even if charm goes up by 6, I can't wear that fancy diamond necklace, so I wasn't planning on participating in this auction. Arisu and Nae Fitzgerald were talking about who would participate, and Mimata Chieri, who wasn't very interested in accessories, didn't care.</p>
-<p>,Now! The price will start at five million points! Start!,</p>
-<p>The tablet we received when we came in had a picture of the item, the current price, and a button to raise the price. Five million points is almost 650 million yen, or about 6.5 billion won, so it was quite expensive from the starting price.</p>
-<p>Of course, I thought it was expensive, but Nae Fitzgerald, who received Arisu's concession, was pressing the tablet screen like crazy with a face that said, ,Oh my god, I have to buy this!,. Seeing that reaction, is the starting price quite cheap?</p>
-<p>Since the auction is linked to the underground app and you have to bid with your points, I could participate enough because I got a lot of points in exchange for selling the Ai data to Eve. But Nae Fitzgerald is also participating, so there's no need for me to go in and raise the price.</p>
-<p>,Thirty million points! Is there anyone else?,</p>
-<p>Seeing Nae Fitzgerald's relaxed expression, it seemed like Nae Fitzgerald had raised it to thirty million points.</p>
-<p>,Thirty million points, sold!,</p>
-<p>,People tend to save money at the beginning of the auction because they don't know what will come out next. At this price, it's a cheap buy.,</p>
-<p>With Eve's declaration of the winning bid, Nae Fitzgerald shrugged and explained to me. The next one was also a work of art. Several items that I wasn't interested in passed by, and the sixth auction item appeared.</p>
-<p>,Huh?,</p>
-<p>What appeared at the auction was a sculpture of something hard and black, a statue of a goddess standing on countless cephalopod legs.</p>
+<p>,Heee... Stop, I can't eat anymore♥'</p>
+<p>,Don't fuck me.... Fuck me....'</p>
+<p>Sawayanagi Azuma and Lianna Holden were sprawled out on the bed. Still, Sawayanagi Azuma's education was successful overnight.</p>
+<p>Lianna Holden was quite an excellent student. Perhaps because she was a PMC soldier, even though she was an operator, her body was flexible and she used her body well, so she followed Sawayanagi Azuma's teachings well, and her sensitivity was so good that she could enjoy sex itself.</p>
+<p>Still, a virgin is a virgin, so she retired quickly, so I, who still had stamina left, had no choice but to harass Sawayanagi Azuma. In the end, Lianna Holden woke up and I stacked them both and took turns pounding them, so now they are both incapacitated on good terms.</p>
+<p>,Heuaahm~!'</p>
+<p>I yawned, stretched roughly, and then threw myself between the two women's naked bodies and lay down. When I wake up, I should contact Han Yu-gyeong and tell her about the future.</p>
+<p>###</p>
+<p>After parting ways with the Seryutai members and trainees, I returned to the Talent Development Center home and had a video call with Han Yu-gyeong on my computer. Han Yu-gyeong on the screen was at the company, as I could see the monitor behind her, and she was wearing a white shirt and a black skirt.</p>
+<p>Han Yu-gyeong's face was bright, as if she was glad to see my face because we had only been talking on the phone or KakaoTalk. Hmm, she's still pretty... I'm just using the camera attached to the computer, but Han Yu-gyeong seems to be taking pictures with a separate, good camera because she wants to look prettier to me.</p>
+<p>-Yong-tae-ya~!</p>
+<p>,Yeah, how have you been?'</p>
+<p>-Do you know how worried I was when I heard you were in LA, Yong-tae? I was going to fly over there right away...!</p>
+<p>Han Yu-gyeong started nagging me as soon as I greeted her. Of course, it's natural to be worried because a disaster that killed 26,000 people happened... But I don't have any injuries, and even if I do get hurt, I recover. Han Yu-gyeong had nothing to worry about.</p>
+<p>,Hey, I came back the very next day. I don't have any injuries.'</p>
+<p>-That armored man called the Black Knight who appeared in the news is you, Yong-tae! Do you think I wouldn't know that?</p>
+<p>No, how did she know that? Was Han Yu-gyeong's eye for detail that good? In the monitor, Han Yu-gyeong was puffing out her cheeks and glaring at me.</p>
+<p>,Uh, how did you know?'</p>
+<p>-I can tell by your physique and stuff. How much have I seen of Yong-tae's body...?</p>
+<p>It was quite scary at this point. To know it was me right away by looking at my physique... How well does she know me?</p>
+<p>,Well, as you can see, I'm not hurt. Even though I got hit a few times.'</p>
+<p>-Hoo.... Okay. I'll let it slide this time. I'm going to Tokyo soon, so I'll have to see your face and scold you then.</p>
+<p>Fortunately, Han Yu-gyeong seemed to be willing to let it go this time. If I had been hurt, I would have been scolded a lot, but she's letting it go because I'm fine.</p>
+<p>,Yeah, okay. I miss you. Come quickly.'</p>
+<p>-Eung♥ I miss Yong-tae too.</p>
+<p>,How have you been lately?'</p>
+<p>Han Yu-gyeong's complexion darkened at my question about her recent situation. Did something bad happen?</p>
+<p>-Ah, it's just some family stuff....</p>
+<p>Family matters mean the affairs of the Shin-gang Group. So, in game terms, quite an important event is happening within the group... What is it?</p>
+<p>,What's wrong? You don't look good....'</p>
+<p>-Um, do you know the drama my mom recently appeared in?</p>
+<p>,Ah! I saw the article. There was an article saying that she recently appeared in a drama invested in by an American production company.'</p>
+<p>Of course, I saw the drama Ha Ju-yoon appeared in, but there was quite a full-fledged exposure scene, so I said that I saw it in an article because I was worried that the atmosphere with Han Yu-gyeong would become strange if I said I saw it.</p>
+<p>-There was a bit of exposure in that drama. My grandfather saw it and was furious, so it looks like my parents are going to get divorced.</p>
+<p>Ah, well, I've never seen a chaebol daughter-in-law film an exposure scene. From what I heard, it seemed like Ha Ju-yoon's affection for Han Seong-jae, Han Yu-gyeong's father and her husband, was almost over, so there wouldn't be a big problem even if they divorced.</p>
+<p>Ha Ju-yoon has a fairly solid position, but I was worried about whether she would be able to live well if there was interference from the Shin-gang Group. If Han Yu-gyeong takes over the Shin-gang Group, it will be smooth sailing, but for now, she will have to focus on dramas and movies invested in by foreign companies.</p>
+<p>When the video call with Han Yu-gyeong is over, I should contact her and ask what I can do to help.</p>
+<p>,It's your parents' business, and the fact that they are Yu-gyeong's parents doesn't change, so don't think about it so hard.'</p>
+<p>-Okay. Anyway, they were barely maintaining their marriage because of me.... It might be better to break up now. And I'm an adult and I have Yong-tae! I'm okay.</p>
+<p>Han Yu-gyeong didn't seem to be that shocked, as if she had already expected it. She just knew that her parents didn't get along well, but she seemed a little depressed when they actually broke up.</p>
+<p>,How's the BS Group doing?'</p>
+<p>I asked Han Yu-gyeong about the BS Group's affairs to change the subject. We killed Park Sang-beom, a school Sunbae who was obsessed with Han Yu-gyeong, and disguised it as something Park Il-man, Park Sang-beom's older brother, had done to Park Il-soo, Park Sang-beom's father, so a big internal conflict broke out in the BS Group, so I suddenly thought of it and asked.</p>
+<p>-They're both being scolded a lot by the current Chairman, and they're reluctant to have direct physical clashes, but it's certain that they're still attacking each other in an internal conflict.</p>
+<p>It seemed that the Chairman of the BS Group had restrained them because the situation had become so bad that they were carrying out terrorism in Seoul. Then, they will start targeting each other in a more insidious and fatal way, although not directly.</p>
+<p>,I see. How's Base Technology doing? Are you taking control of it well?'</p>
+<p>Base Technology was a secret research institute under the BS Group, so taking control of Base Technology was like holding the BS Group's weakness.</p>
+<p>-Base Technology is doing well. We've already won over the head of the research institute....</p>
+<p>,Then there's nothing to worry about. Have you finished registering all the patent data I gave you?'</p>
+<p>Before, I took several data from the BS Group's research institute in Pyongyang and gave some of it to Han Yu-gyeong and told her to register a few technologies as patents first. Han Yu-gyeong nodded at my question.</p>
+<p>-I've registered the patent in our company's name. As TG-Tech Industry, heehee.</p>
+<p>The company TG-Tech Industry was created by combining the Tae of Jin Yong-tae and the Gyeong of Han Yu-gyeong's alphabet initials. Eve, the Ai of the shadows, will also receive shares in this company and become a partner. Han Yu-gyeong smiled every time the story of TG-Tech Industry came up, as if she liked the name of the company created with our two names.</p>
+<p>For reference, I had 45 shares, Han Yu-gyeong had 45 shares, and Eve had 10 shares. Eve invested quite a lot of money and provided Ai-related technology, so I tried to give her more shares, but Eve refused, saying that she was satisfied with 10 shares.</p>
+<p>Because of this TG-Tech Industry matter, Han Yu-gyeong, I, Eve, and a representative from Energy-Link Industrial Company have decided to meet in Tokyo, so we can discuss the business in more detail then.</p>
+<p>,How about making the BS Group's new tech armor design similar to the Black Knight?'</p>
+<p>Among the data I stole from the Pyongyang BS Group Research Institute was data on the new tech armor, so I came up with the idea of combining that technology with the appearance of the Black Knight, which is currently a hot topic.</p>
+<p>-I'll think about that. I know that Yong-tae is the Black Knight, but if we use the Black Knight's design from the beginning, we'll look like a new company that doesn't have the technology and is just trying to use the Black Knight, which is currently a hot topic.</p>
+<p>Well, that's true. I can't put on armor and directly say, ,Please buy a lot from this company and that company!'</p>
+<p>-Ah, more than that, that pet-cum-bodyguard pet business we're trying to create. I heard that we've been getting a lot of orders since the recent psychic terrorist attack?</p>
+<p>Certainly, Eve told me that there were too many people reserving the steel pet that we secretly advertised, perhaps because of the anxiety.</p>
+<p>,Eve said that she would be in charge of production because the steel pet business is illegal, but is it going well?'</p>
+<p>-Yeah, she said we should take a look around the factory when we meet in Tokyo?</p>
+<p>Does she have a factory in Japan? Not in a third world country? It's quite a dangerous attempt, but it might be better. Even if we get caught, we can suppress it with the power of the Tairaga. Of course, if we get caught, we'll have to ask Taira Danjo grandpa.</p>
+<p>Ah, thinking about Taira Danjo grandpa, I suddenly became anxious. He said he would give me two missions while helping me with the PMC acquisition, but he hasn't said anything, so I'm even more anxious. What kind of work is he going to make me do?</p>
+<p>Tting!</p>
+<p>Taira Danjo grandpa is not a gentleman either, as soon as I thought about it, I got a text message. Of course, it wasn't Taira Danjo himself who sent it, but Fumimoto Takayuki, Taira Danjo's chief secretary, sent it.</p>
+<p>Grandpa's Secretary Fumimoto: The Chairman says he wants to see you at the main house this evening.</p>
+<p>I looked at Han Yu-gyeong with an apologetic expression after seeing the text message.</p>
+<p>,I have to end the video call now. My grandfather suddenly wants to see me?'</p>
+<p>-Eung, we're both scared of our grandfathers....</p>
+<p>Han Yu-gyeong, who has a scary grandfather like me, nodded with an understanding look at my words.</p>
+<p>,I'll contact you again.'</p>
+<p>-Eung, I'll buy something Yong-tae likes when I go to Tokyo~!</p>
+<p>We waved our hands at each other and ended the video call. There were a few more items to discuss with Han Yu-gyeong and I was going to contact Ha Ju-yoon, but I should talk about that later. I have to start preparing now to get there on time for dinner.</p>

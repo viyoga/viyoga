@@ -5,94 +5,78 @@ weight = 850
 chapter = 850
 +++
 
-<p>Thursday, when the additional Test was held. The additional Test began from the first period. As a result of my separate inquiry, among the third-year high school Students of St. Francis Girls' Academy, there were a total of 4 Students taking the additional Test. Among them, 2 were taking the Math Test, and the remaining two were for other subjects.</p>
-<p>If there had been Students failing multiple subjects and those subjects overlapped, they would have had to take it until the second period, but fortunately, there were no Students with overlapping subjects, so the additional Test ended in the first period. Since the results came out immediately after taking it, it would be possible to know today whether Alik would graduate or not.</p>
-<p>"Ryuta, I'm going...!"</p>
-<p>Alik rose from his seat with a solemn Expression. He looked like a general going to war, but what Alik had brought was a student tablet for the Test. He didn't seem to be this nervous even when a battle broke out. I stroked Alik's Head to give him strength.</p>
-<p>"Alik, do well."</p>
-<p>"Yeah.... Ryuta, if Alik does well, let's eat Pizza for lunch."</p>
-<p>"Pizza, that's nothing. If you just pass the additional Test, I can buy you ten plates~!"</p>
-<p>"Yeah...!"</p>
-<p>I made a Pizza promise with Alik and rose from my seat to escort him to the Entrance of the special class building.</p>
-<p>"Alik, do well~☆"</p>
-<p>"You can do it~!"</p>
-<p>"We have to graduate together, so let's do our best!"</p>
-<p>Receiving a shower of Support from his friends, as he exited the Classroom, passed through the corridor, and opened the Entrance door, Alik's Sabu, the Home Ec Teacher Shimokawabe Airen, was standing there, and she also seemed to be standing there to Support Alik.</p>
-<p>"Ah, Shimokawabe-sensei."</p>
-<p>"Yamashiro-sensei, hello? Alik is also going to take the Test, right?"</p>
-<p>At Shimokawabe Airen's Question, Alik nodded his Head.</p>
-<p>"I made him train too much, so I was worried that he might not have studied properly and ended up taking an additional Test. It bothered me."</p>
-<p>Shimokawabe Airen said, looking at Alik with a slightly apologetic Expression. In fact, the Reason Alik came to St. Francis Girls' Academy was to learn a technique from Shimokawabe Airen, so Graduation was not his top Goal.</p>
-<p>"It's not Moka Sabu's fault."</p>
-<p>Alik, who had somehow grown taller than Shimokawabe Airen, said, gently stroking Shimokawabe Airen's Head. That Guy Alik, he seemed to be imitating me, stroking her Head every time I comforted him.</p>
-<p>"Uhuhuhu, I understand. Alik, you can do it."</p>
-<p>Shimokawabe Airen, who burst into Playful Laughter at Alik's stroking, gently pinched and stretched Alik's soft cheek, encouraging Alik.</p>
-<p>"Yeah, Moka Sabu, Ryuta, I'm going."</p>
-<p>Alik clenched his fists with both hands and raised them to his chest, showing his Will, then headed towards the Classroom where the Test was being held.</p>
-<p>"Don't Worry. I've given him highly probable Practice Problems, so he'll pass the additional Test splendidly."</p>
-<p>"Is that so? That's Fortunate."</p>
-<p>Shimokawabe Airen, looking at Alik's Back View, was making a very worried Expression, so I spoke as if to tell her not to Worry. Only then did Shimokawabe Airen smile, seemingly feeling a little Sweet Relief.</p>
-<p>"Are you watching the UMC Champion Match tomorrow?"</p>
-<p>I had some Information to tell Shimokawabe Airen, so I asked if she was watching the UMC Champion Match tomorrow. At my Question, Shimokawabe Airen nodded her Head.</p>
-<p>"Although it's a sport, it's also Martial Arts.... And since the Champion challenger is a Japanese Person, I decided to watch the Match with the Cheongsimgwan Students."</p>
-<p>As expected of Cheongsimgwan, a Japanese traditional Martial Arts club, they seemed to be watching the UMC Match. Of course, UMC itself is modern mixed Martial Arts, but as traditional Martial Artists, they could think about how to counter modern mixed Martial Arts, so all the club members seemed to be watching it.</p>
-<p>"The Japanese Person in the Finals, Genba Kiyohira, is my friend."</p>
-<p>"Oh my, really? Your friend challenging for the Champion title, you must be proud."</p>
-<p>"Well.... It's a bit complicated."</p>
-<p>At first, she congratulated me, but then Shimokawabe Airen tilted her Head at my complicated Expression.</p>
-<p>"Actually...."</p>
-<p>I told Shimokawabe Airen the Story about that Guy Genba Kiyohira. At the Story that Anyaji had contacted him and he seemed to have learned Anyaji Martial Arts while I wasn't paying attention, Shimokawabe Airen's Expression also became serious.</p>
-<p>"Did you tell Rinka too?"</p>
-<p>"Not yet. Sabu was quite fond of that Guy Genbaki. I'll have to tell her soon."</p>
-<p>When I first learned this fact, I thought, 'Let's tell Fujigasaki Rinka once it's confirmed,' but even when I heard the Story about that Guy Genbaki from Athena Mannerheim, I only talked about the Anyaji Guardian Temple that I learned about at the same time, and couldn't talk about that Guy Genbaki.</p>
-<p>The Fate with that Guy Genbaki was old, and that Guy Genbaki followed Fujigasaki Rinka so well. Of course, Fujigasaki Rinka also cherished Genbaki, who followed her well, and used to teach him the basics of Martial Arts. Perhaps because of those Memories, I couldn't bring myself to tell Sabu.</p>
-<p>"Rinka will also watch the Match, and she'll find out when she watches it, so it would be better to tell her before that."</p>
-<p>"Right? I should call now."</p>
-<p>I nodded at Shimokawabe Airen's Advice and took out my phone. Since it's already been decided to make Contact, I should tell her now.</p>
-<p>-Ryuta, what's going on at this Time?</p>
-<p>Because she knew this was my Work Time, she answered the phone, asking in a puzzled Voice.</p>
-<p>"I just called to tell you something."</p>
-<p>-Is it about Anyaji?</p>
-<p>In fact, since the only Reason I would call Sabu to tell her something was about Anyaji, Fujigasaki Rinka quickly realized and asked.</p>
-<p>"Yes. Actually, it's about that Guy Genbaki."</p>
-<p>-That Guy Genbaki learned Anyaji Martial Arts? I knew.</p>
-<p>Oh? It seemed Fujigasaki Rinka already knew.</p>
-<p>"You knew?"</p>
-<p>-Of course. That Guy Genbaki said he was switching to the Unlimited Class, so I watched a few Matches out of Worry, and it was obvious.</p>
-<p>"Then why didn't you tell me?"</p>
-<p>-Well, I did it because I was worried about you. That Guy Genbaki is a close friend.... I pretended not to know because I was afraid you'd be shocked to hear it.</p>
-<p>Ah.... Just as I was worried about Sabu's Reaction, Sabu also seemed to have not spoken, fearing I would be shocked.</p>
-<p>"I also knew Sabu cherished that Guy Genbaki, so I hesitated before telling you.... Actually, I was planning to keep it to myself and beat some sense into that Guy Genbaki."</p>
-<p>-Oh?! Me too! I didn't tell you, and I was going to give that Guy Genbaki a few knocks on the Head to make him come to his senses.</p>
-<p>As expected, like Sabu, like Disciple. Their thoughts were incredibly similar.</p>
-<p>"It's Fortunate you weren't so shocked."</p>
-<p>-Yes, that Guy is a Little One I cherish a bit, but you are my Disciple, irreplaceable by anyone. Your abandoning Shinkai Yatsude is more shocking than that Guy Genbaki's matter. You bastard!</p>
-<p>Listening to her Words, she didn't seem to Worry about that Guy Genbaki. It seemed she thought a few knocks on the Head, as she just said, would make him come to his senses. Or perhaps she coldly thought that since he was already part of Anyaji, it was his own Choice.</p>
-<p>"Ei, I didn't abandon it.... I remember all the Martial Arts Forms. I'll make sure to pass it on well to the next generation so the lineage doesn't break, so don't Worry, Sabu."</p>
-<p>-Alright. Going back to that Guy Genbaki's Story, that Guy Genbaki will probably try to meet me as the UMC Victory. Then Anyaji will Attack or something. If not, he might try to Attack you, asking to meet you as a friend who has returned in triumph.</p>
-<p>"Since both of us know the fact, even if they pull such Tricks, we won't fall for them."</p>
-<p>-They've probably guessed that we've noticed that Guy Genbaki is practicing Anyaji Martial Arts after watching the Match, so they might deploy a different Operation.... Think about various things. This Sabu gets a Headache thinking about those kinds of things.</p>
-<p>"If you listen to Athena Mannerheim's Story, she said they've trained Guardians or martial artists who use that white Aura, so they might just Attack with all of Anyaji's Power this Time, taking this opportunity."</p>
-<p>-Kyahaha! Then I'd be grateful. Those Anyaji bastards, even if a hundred of them come, I'm not afraid. I'd rather sweep them all away at once, so I hope it happens as you said.</p>
-<p>When I said that all of Anyaji might Attack, Fujigasaki Rinka actually liked the idea, saying she could sweep them all away at once.</p>
-<p>"First, since Sabu already knows about that Guy Genbaki, which was the Reason I called, I'll hang up now."</p>
-<p>-Alright. If you find out Anyaji bastards' Operation, tell me right away.... See you later.</p>
-<p>After ending the Call with Fujigasaki Rinka, I looked at Shimokawabe Airen, who had been listening to our conversation beside me.</p>
-<p>"Sabu said she already knew."</p>
-<p>"I knew. She had consulted me with her Worry."</p>
-<p>At my Words, Shimokawabe Airen said with a Smile. Shimokawabe Airen, who already knew the fact about that Guy Genbaki from her counseling with Fujigasaki Rinka, had told me to call Sabu after hearing my Worry.</p>
-<p>"Uhuhuhu, both of you worrying for the same Reason and talking to the same Person, truly like Sabu, like Disciple."</p>
-<p>Saying the exact same Words I had just thought during the Call, Shimokawabe Airen laughed. I felt inexplicably embarrassed, and scratched the Back of my Head as I spoke.</p>
-<p>"Well.... It seems there's nothing to be done about a Disciple resembling their Sabu."</p>
-<p>"That's right. I also have aspects that resemble Sabu."</p>
-<p>As I talked with Shimokawabe Airen for a while, Alik was visible in the distance. Had that much Time already passed? Talking on the phone with Sabu and then with Shimokawabe Airen, it felt like a lot of Time had passed without me realizing it.</p>
-<p>If one wasn't close to Alik, he might have appeared with a normal, expressionless face, but to me, he looked like he was approaching with a triumphant Expression, like Grand Prince Suyang from some Movie.</p>
-<p>"Phew~ He must have done well."</p>
-<p>"Yes, he seems to have passed."</p>
-<p>Seeing her let out a Sigh of Relief after seeing Alik's Expression, Shimokawabe Airen also seemed to grasp Alik's Expression, perhaps because she was Alik's Sabu.</p>
-<p>"Ryuta, Moka Sabu..... Alik passed...!"</p>
-<p>Alik, who had approached us, immediately informed us of his additional Test passing news. I smiled and stroked his Head, saying he did well. Alik closed his Eyes as if enjoying my stroking, just like a Cat.</p>
-<p>In the end, the Great Alik Graduation Operation was a success. Although I had to use my Body for lobbying to make Alik graduate and one Person became jellyfish food, the success of the Operation was important.</p>
-<p>Requested by JungChucky-nim~! SD Alik disappointed holding an Exam Paper and happy SD Alik~!!</p>
-<p>Failing Grade!</p>
-<p>Pass!</p>
+<p>Sakagami Rena's next counseling partner was Otagi Yuka. Not long after Sakagami Rena left the Counseling Room, Otagi Yuka opened the door and entered.</p>
+<p>She had said she was Training with Shimokawabe Airen recently, and she seemed quite tired, as deep Dark Circles had descended under her eyes.</p>
+<p>In proportion to that hardship, she had to consume blood frequently, so Otagi Yuka came to my Home almost every night to suck my semen. Even without that, because of the Clan Lord Trait Evolution, the Status effect was attached, and I had to maintain my satiety level, so I couldn't refuse to give her semen. Naturally, since it was taking out semen, my mood, being subjected to it (?), was also good, you know.</p>
+<p>「Teacher-ssi, is the counseling going well?」</p>
+<p>「Well, it's just a formality.」</p>
+<p>To Otagi Yuka's Question, I answered, writing something in the counseling log. In Otagi Yuka's case, like Sakagami Rena, she was advancing to St. Francis Women's University, and since she was helping my Business, career counseling could end easily.</p>
+<p>「The Sakagami Family side told me to visit once, as I'm becoming Rena's Liege/Master. How about the Otagi side? Should I visit there too?」</p>
+<p>When I asked about the Otagi Family while I was already visiting the Sakagami Family, Otagi Yuka shook her Head.</p>
+<p>「...No. Rena is becoming independent, and my side has disowned the Family, so the Situation is completely different. Especially Vampires, who are blood relative-centered, perceive disowned individuals as other blood relatives, so there's no need for Teacher-ssi to go and give a greeting.」</p>
+<p>Otagi Yuka said, making a bitter Expression. In fact, as she said, Sakagami Rena's and Otagi Yuka's Situations were indeed different.</p>
+<p>If Sakagami Rena had chosen a Liege/Master according to the ninja tradition, Otagi Yuka was closer to being abandoned by her Family. When the Silver Stake Alliance came to deal with Otagi Yuka, the Otagi Family disowned her, no different from expelling her from the Family to minimize harm, so the Situation was completely different from Sakagami Rena's side.</p>
+<p>「Does the Clan Lord Trait seem to be progressing well?」</p>
+<p>Since the Otagi Family Matter wasn't a good thing, I asked Otagi Yuka if her Clan Lord Trait was progressing well, to change the theme. I displayed Otagi Yuka's recorded Trait window on the tablet.</p>
+<p>◆???Blood Clan Lord [??? Grade Race Trait]: By becoming the head of a faction, one can evolve into a higher Vampire and obtain abilities befitting that. Until this Trait is fully obtained, the Status effect is applied. [Evolution Rate: 7%]</p>
+<p>Since it was recorded as seen at that Time, the Evolution rate would have risen further, but Evolution had not yet been completely achieved.</p>
+<p>Otagi Yuka was struggling and having a hard Time fully obtaining this Trait, so I looked at the strategy guide I had recorded immediately after Possession at Home. As expected, looking at the Vampire Trait side, there were also Tips I hadn't told Otagi Yuka yet, so I made this the theme.</p>
+<p>「Feeling-wise, I think something is progressing, but from a certain Moment, it feels completely blocked, like I can't move forward?」</p>
+<p>「One of the conditions is that you must create at least one vassal. Since the Trait name itself is Clan Lord Trait, you need at least one vassal.」</p>
+<p>「Ah, is that how it is?」</p>
+<p>At my Explanation, Otagi Yuka asked back, making a somewhat awkward Expression. As I looked at her with an Expression as if asking why, she opened her mouth, her awkward Expression unchanged.</p>
+<p>「Most Vampire Families would be like that, but the Otagi Family is also extremely careful about increasing vassals. I've also never made a vassal, not even once...」</p>
+<p>Ah, that's right. There's that too. In the underworld, there are also monster Hunters, and especially with the Silver Stake Alliance watching with wide open eyes, Vampire Families couldn't openly and recklessly increase vassals like in the Middle Ages. Also, there was a perception unique to Vampire Families, a chosen people ideology, that their precious blood could not be carelessly mixed with humans.</p>
+<p>Of course, some Vampire Clans, which could be called Opponents of the Silver Stake Alliance, don't care about such things and recklessly increase vassals, but exposed Families like the Otagi Family tended to be careful about increasing vassals.</p>
+<p>「Of course, if I decide to make one, I can make anyone, but I want to find someone a little more cautiously. If possible, I'd prefer an excellent Person, and most importantly, I have to ask if that Person even wants to become a Vampire...」</p>
+<p>Otagi Yuka also seemed to be a cautious type. In fact, if she just made up her mind, she could grab anyone walking on the night street and make them a vassal, but Otagi Yuka didn't seem to want that kind of method.</p>
+<p>「For now, regarding vassals, let's try to find a suitable Person together. I'll tell Am-sang or our Joseodang side, so we'll be able to find them.」</p>
+<p>「Understood. Thank you, Teacher-ssi.」</p>
+<p>At my Words that I would help find a Person suitable to become a vassal, Otagi Yuka gave her greeting of thanks with a touched Expression. It was Otagi Yuka, looking at me with a hot gaze as if to strip off my Clothes immediately, but suddenly the door opened with a Knock, and Otagi Yuka's hot passion cooled down.</p>
+<p>「Liege/Master.」</p>
+<p>Suddenly, the one who opened the door was Sakagami Rena.</p>
+<p>「Sorry, but during counseling, my Father says he wants to invite you today, if it's alright.」</p>
+<p>「Ah, really? Until what Time should I go?」</p>
+<p>To bring it up and say let's meet today, Sakagami Rena's Father, Sakagami Ginshiro, seemed to have quite an impatient Personality. And since I had to give a definite answer about whether I could go or not for them to prepare to welcome me, it seemed she hastily opened the door during counseling.</p>
+<p>「I think it would be fine if you came to our Home around 6 o'clock, which is dinner Time.」</p>
+<p>「Understood. I'll go to match that Time.」</p>
+<p>「I'm done with counseling too, so shall I slowly get up...! Teacher-ssi, see you in the club room~!」</p>
+<p>As it was decided that I would go to the Sakagami Family today, Otagi Yuka also said counseling was over and stood up from her seat. Perhaps because she couldn't help but be compared with the Otagi Family who had disowned her, her Expression wasn't very good. I'll have to give her some Comfort later. Since she'll come for blood replenishment tonight too, you know.</p>
+<p>Although the Sakagami Family was a ninja Family, the Sakagami Family's Miyashi mansion outwardly appeared to be an ordinary Japanese-style mansion. Compared to the Size of giant Family mansions like Minamoto or Kujo, it was smaller, but it was well-built in a traditional-looking style. Well, I don't know much about architectural methods, you know.</p>
+<p>「L-Liege/Master. Oh, you've come?」</p>
+<p>「Yes, your Kimono is pretty.」</p>
+<p>「Liege/Master also suits the Suit well.」</p>
+<p>Lightly stroking Sakagami Rena's Head, which was reddening as if slightly embarrassed, I stepped my Feet into the Sakagami Family mansion.</p>
+<p>As Sakagami Rena and I passed, the servants and Maids cleaning the mansion bowed at the waist and gave greetings, and almost all of them seemed to have trained bodies. They were probably all low-ranking ninjas.</p>
+<p>Like that, as I followed Sakagami Rena's guidance, I arrived at the Sakagami Family's inner quarters, and there were Family members wearing Kimonos, with similar purple-toned Hair to Sakagami Rena. These People were probably...</p>
+<p>「Hahaha! Welcome, Teacher-nim. I am Sakagami Ginshiro, Rena's Father.」</p>
+<p>The handsomely built middle-aged man with dark purple Hair standing at the very front seemed to be Sakagami Ginshiro. Sakagami Ginshiro welcomed me, laughing heartily.</p>
+<p>I inadvertently shook Hands with Sakagami Ginshiro and began to receive introductions to the Sakagami Family members.</p>
+<p>「This here is my Wife, Shiine.」</p>
+<p>「Hello, Teacher-nim? I've heard a lot of stories about Teacher-nim from Rena.」</p>
+<p>「Ah, yes. Yes, hello.」</p>
+<p>Sakagami Rena's mom, Sakagami Shiine, was a beautiful Wife with Silver hair close to White hair, and seeing Sakagami Ginshiro and Sakagami Shiine, Sakagami Rena seemed to have inherited half and half of both Parents' Hair colors.</p>
+<p>Besides Sakagami Rena's two Parents, I was introduced to Sakagami Rena's Uncle, Aunt, and Cousin Siblings.</p>
+<p>「Rena's Older Brother is attending graduate school in Tokyo, so he couldn't attend today.」</p>
+<p>I knew Sakagami Rena had an Older Brother, but I didn't know he was a graduate student. As Sakagami Shiine made an apologetic Expression because her Son couldn't attend, I smiled as if it was alright.</p>
+<p>「Ah, instead of standing like this... Please come Inside. I've prepared a meal.」</p>
+<p>After greeting the Sakagami Family members for a while, I was guided to the restaurant. As I entered the restaurant, a neat and tidy evening meal of traditional Japanese cuisine was set on a low dining table.</p>
+<p>「What's prepared isn't much, but please eat deliciously.」</p>
+<p>As everyone sat in their Seats, the meal began. As if Sakagami Rena had told them my meal amount, the quantity of food served in front of me was quite a lot. Befitting a noble Family's meal, all the food was excellent, so I could enjoy the meal deliciously.</p>
+<p>「Sorry, Teacher-nim.」</p>
+<p>Like that, as everyone finished the meal, Sakagami Ginshiro, the Head of Family of the Sakagami Family, looked at me and bowed at the waist.</p>
+<p>「Yes? What...?!」</p>
+<p>「Originally, according to tradition, the principle is not to care for the retainers of an independent Family, but because she is a Daughter raised preciously since childhood...」</p>
+<p>It wasn't that I didn't understand Sakagami Ginshiro's Words. No matter how much it was a ninja Family, if a 20-year-old Daughter who had just become an Adult said she was serving some man and becoming independent, it would rather be strange if they didn't care.</p>
+<p>「Sorry, but may I Test Teacher-nim?」</p>
+<p>The Word 'Test' came out, and seeing Sakagami Ginshiro's Expression, his kind Attitude until now was gone, and he was looking at me with an Expression as if looking at a daughter-thief, saying, 「I can never give my Daughter!」</p>
+<p>Requested by Hogamyudonggolbaengi-nim: Home Ec Teacher and Alik, wearing Management Swimsuits~!</p>
+<p>Starting with Alik~!</p>
+<p>Alik with animal ears suddenly popping out hehehe</p>
+<p>Home Ec Teacher~!</p>
+<p>Requested by TheDreaming-nim: Ryuta fighting, wrapped in Genesis Chaos, Gold Sun version and Gold Sun released version~!</p>
+<p>Gold Sun~!</p>
+<p>Black Hair, no Tanning Ryuta</p>
+<p>I tried to make the Genesis Chaos Gi feel like it was mixed with purple and dark blue, but it didn't turn out well hehe.</p>
+<p>Requested by ISaveI-nim: Alik wearing a Geobukseon-ryu Martial Arts Uniform~!</p>
+<p>Alik dressed a little provocatively especially today ㄷㄷ</p>

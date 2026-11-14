@@ -5,77 +5,74 @@ weight = 637
 chapter = 637
 +++
 
-<p>Whoooosh...!</p>
-<p>Gently cutting through the wind, I ascended with Minamoto Risa, soaring through the Miyashi night sky. Miyashi had developed quite a bit, so seeing it from above, it sparkled considerably, making the night view quite enjoyable.</p>
-<p>A moon between a half-moon and a full moon hung in the sky, adding appropriate lighting, making Minamoto Risa look prettier than usual in the moonlight. As expected, there's a reason why they say lighting is everything.</p>
-<p>"Hey, that's the hotel where our class had its dinner."</p>
-<p>"Yeah, and that's where we took pictures before...."</p>
-<p>It had only been about three months, but there were quite a few places where memories had been made. We were circling through the Miyashi sky, revisiting places where memories had accumulated.</p>
-<p>"Ah, it's the school."</p>
-<p>As we flew, we arrived at St. Francis Girls' Academy. Unlike the brightly lit other places, St. Francis Girls' Academy was dark. It was Sunday, and even if there were club activities, it was time for everyone to go home.</p>
-<p>"Actually, I haven't liked school much until now. Except for Shii, there were hardly any good things. That's why I wandered outside."</p>
-<p>Minamoto Risa said calmly to me, looking at the school from the sky. It was something I already knew. I came to this school to capture Minamoto Risa, so I had seen the information that the Taira information team had investigated in advance.</p>
-<p>"But since you came, school life has become enjoyable. Club activities are fun, and my classmates have become brighter too.... The homeroom teacher before you was really the worst."</p>
-<p>"Why are you praising me so much, it's embarrassing."</p>
-<p>I said to Minamoto Risa, who was lost in sentimentality looking at the darkened school, with an awkward expression. Too much praise is a bit much. The previous homeroom teacher was so terrible that I felt like I was being overly praised.</p>
-<p>"Fufu, that's what I like about you."</p>
-<p>Minamoto Risa smiles, her eyes curving like crescent moons, seeing my embarrassed expression. And Minamoto Risa's face comes closer and closer. Her closed eyes and slightly pouting lips made my heart flutter.</p>
-<p>Tss...!</p>
-<p>Minamoto Risa lightly kisses my lips. Her face, lit by the moonlight, was red, as if she had mustered a lot of courage. Seeing that face, no man could just let it pass, so I lifted Minamoto Risa's chin with my fingers and kissed her lips once more.</p>
-<p>I tickled her slightly closed teeth with my tongue, and like a maiden, she was surprised and slightly stiffened, opening her eyes, but soon closed them again and opened her mouth to accept my tongue.</p>
-<p>It was even better because it was an unskilled, innocent kiss. Minamoto Risa, who had been awkward, also responded to my tongue and began to enjoy the kiss.</p>
-<p>Kissing in the moonlit night sky was also a pretty fresh experience for me, as it was my first time.</p>
-<p>Ttsup...♥</p>
-<p>After kissing for a while, we parted our lips. A silver thread mixed with each other's saliva stretched out, sparkling in the moonlight.</p>
-<p>"Haa, haa... haa.... So this is kissing, I don't know when to breathe."</p>
-<p>Minamoto Risa said with a slightly smiling, dazed look. She doesn't know when to breathe, so it's definitely her first kiss.</p>
-<p>"Shall we go down now?"</p>
-<p>"No, just a little longer.... Fly me a little longer."</p>
-<p>It was late November, early winter weather, so I suggested going down because Minamoto Risa's body temperature seemed to be dropping from flying continuously, but Minamoto Risa seemed to want to fly a little longer.</p>
-<p>I hugged Minamoto Risa tightly so she wouldn't get cold, and moved slowly, once again enjoying the Miyashi night view together as we flew.</p>
+<p>After Simyeonui ttal returned to Urabe Konoka, Urabe Konoka was very grateful to Simyeonui ttal. It seemed to be out of gratitude for Simyeonui ttal knowing her worries and just watching her for a few days.</p>
+<p>According to Urabe Konoka, gods usually think of their priestesses or priests as game characters they play, and don't care about their thoughts or feelings.</p>
+<p>But Simyeonui ttal respected Urabe Konoka's thoughts and just watched her for a few days without doing anything, so she seemed very touched as the priestess who serves her.</p>
+<p>As I was talking to Urabe Konoka, it was almost dinner time, so I asked Urabe Konoka.</p>
+<p>,What do you want to eat for dinner?</p>
+<p>,Actually, I was planning to have dinner with my friends today....</p>
+<p>Ah, it seemed Urabe Konoka didn't expect to be with me this long either. Or maybe she was going to report her date review to her friends (probably Otagi Yuka, Sakagami Rena, or Saionji Diana).</p>
+<p>,Then go meet your friends. If you made a promise, you should go. Should I take you?</p>
+<p>,No, I'm going to eat at a store near the school, so it's okay!</p>
+<p>Since my house is near the school, it seemed she wouldn't have to go far. It's convenient that I don't have to take her. I got up to see Urabe Konoka off.</p>
+<p>,Sensei....</p>
+<p>,Huh?</p>
+<p>Urabe Konoka called me before going out and looked at me, then kissed me. The kiss became a passionate kiss where we exchanged tongues, and after kissing for a while, we parted our lips.</p>
+<p>,Sensei.... I was happy yesterday and today. Thanks to you, I have become sure of my feelings.</p>
+<p>Urabe Konoka said that and hurried out, looking embarrassed. I feel strange. After seeing Urabe Konoka off and returning to my room, I immediately ordered chicken. It's been a while since I've been alone, so I should watch Letflix and eat chicken.</p>
 <p>###</p>
-<p>The Monday after the date with Minamoto Risa was a day entirely focused on rest.</p>
-<p>It was a week's break given due to the Shinnankyeong City situation, but I hadn't rested at all during the vacation, so I was planning to do nothing today, just lazing around watching TV or Ratflix.</p>
-<p>-It's been a few days since the Shinnankyeong City recapture operation began, and videos taken by South Chinese soldiers are being leaked. The reaction to this is....</p>
-<p>The South Chinese military was tightening from all sides in the Shinnankyeong City recapture operation, taking a method of dealing with all the cyber zombies without letting them escape, and the video of that operation was leaked, causing quite a stir.</p>
-<p>The public opinion had worsened considerably because of the sight of them shooting all human-shaped creatures they saw with guns without even checking whether they were zombies or not, creating a field of corpses. Not only domestic public opinion but also world public opinion was not good because it looked like they were massacring their own people. Moreover, since the number was ten million, it was becoming a huge topic.</p>
-<p>Of course, even if there was no way to cure the cyber zombies, it's not like they could be cured even if they weren't killed, but the sight of shooting and killing countless of the same humans was quite shocking.</p>
-<p>That's why I was disappointed about the Shinnankyeong recapture operation before. Cyber zombies are called cyber zombies, but they are not real zombies that have resurrected dead bodies, but people whose brains have been transformed by cyber implant viruses.</p>
-<p>So I thought it would be better to wait for them to starve to death if they didn't eat anything, but the reaction was not good because they were killing everyone and carrying out the city recapture operation.</p>
-<p>No matter how much you think zombies should be killed, cyber zombies are not infected even if bitten, and they look no different from humans except for bloodshot eyes, so the scene of killing them is shocking.</p>
-<p>Perhaps that's why there are fewer people asking Uenozono Karen to release the South Chinese vlog video. If you really want to see real zombie videos, you can watch the videos leaked by the South Chinese military this time.</p>
-<p>Of course, there are still people who want to see beautiful high school girls fighting zombies, so they are still leaving comments. But now they are a minority, so she plans to ignore them even more.</p>
-<p>Anyway, the South Chinese government is now blaming all of this on North China, so the anti-North China sentiment of the South Chinese people is growing even more. War rumors keep circulating, is a real war going to break out?</p>
-<p>While I was worrying about what to do if a war broke out, my phone vibrated, and when I checked, it was a Line message from Naruse Shiyo.</p>
-<p>-Naruse Shiyo: Sensei-nim, it's hard ㅠㅠ Save me ㅠㅠ</p>
-<p>-Yamashiro Ryuta: Today is the last day of training anyway. Just hang in there.</p>
-<p>I heard that home ec teacher Shimokawabe Airen, Alik, and Naruse Shiyo had left somewhere together for training and were scheduled to return tonight, and it seemed quite difficult. Naruse Shiyo had been sending Line messages asking to be saved from time to time.</p>
-<p>For reference, Alik sent food certification shots of grilled pork belly cooked directly over a fire or fish he caught himself grilled over a bonfire, as if he was doing well camping outside.</p>
-<p>-Naruse Shiyo: If I collapse and die here, Sensei won't be able to go to Kyoto with me tomorrow~</p>
-<p>-Yamashiro Ryuta: Yeah~ You won't die. If it's hard enough to die, you wouldn't be able to Line me.</p>
-<p>-Naruse Shiyo: Tsk....</p>
-<p>What Naruse Shiyo was talking about Kyoto was that tomorrow, the last day of the week-long vacation, I was invited to the Naruse main family in Kyoto with Naruse Shiyo. It was to receive compensation for defeating the previous Naruse family head and saving Naruse Shiyo last time.</p>
-<p>I was planning to appraise artifacts and pick out useful items, just like I got from the Daigo main family warehouse last time. I hope there are good items.</p>
-<p>-Naruse Shiyo: Sensei! Do you want to see me wearing a dobok?</p>
-<p>-Yamashiro Ryuta: Did you take a picture? Show me.</p>
-<p>It seemed like they were wearing doboks for training. Not long after I asked her to show me, a picture arrived from Naruse Shiyo.</p>
-<p>-Naruse Shiyo: Photo</p>
-<p>The picture was of Naruse Shiyo wearing a dobok and striking a pose, and Alik making a V-sign next to her, which was quite a bizarre picture. It was a picture full of questions, such as why Alik was wearing a school uniform and why the two had different art styles, no.... atmospheres.</p>
-<p>-Yamashiro Ryuta: The dobok looks good on you? Alik is cute too.... But why isn't Alik wearing a dobok?</p>
-<p>-Naruse Shiyo: His clothes were all torn while sparring with the master... Ah, oiawhioah</p>
-<p>-Naruse Shiyo: Sorry, Alik is interfering with my typing next to me.</p>
-<p>Alik seemed embarrassed to let me know that his clothes were all torn. The two of them bickering is quite cute.</p>
-<p>-Yamashiro Ryuta: Okay, come back safe today and see you in Kyoto tomorrow.</p>
-<p>-Naruse Shiyo: Okay, Alik will be with me too~! See you tomorrow.</p>
-<p>-Yamashiro Ryuta: Okay, see you tomorrow.</p>
-<p>After finishing the Line with Naruse Shiyo, I suddenly wondered how Kujo Kina, who had met a new master, was doing, so I decided to Line her. For reference, I heard a bit from Urabe Konoka that Fujigasaki Rinka had erased the berserk curse placed on Kujo Kina's master and sent her off safely.</p>
-<p>I heard that she started training yesterday, and I was curious about how the training was going, so I Lined Kujo Kina.</p>
-<p>-Yamashiro Ryuta: Kujo, how's the training?</p>
-<p>-Kujo Kina: Sensei, I'm soryy but my hands are shaking so I can't type.</p>
-<p>Kujo Kina's typos exploded, showing how hard the training was. I couldn't help but laugh as I imagined Kujo Kina typing with trembling hands.</p>
-<p>-Yamashiro Ryuta: WWWWWWW Okay, contact me when you're back to normal. Good job.</p>
-<p>As expected, Naruse Shiyo was definitely exaggerating. If you're going to say you're about to die from exhaustion, it should be at least that level.</p>
-<p>_________</p>
-<p>Naruse Shiyo B -cut!</p>
-<p>Alik B-cut lol</p>
-<p>I cut and pasted Alik because I thought it would be cute if the art styles were different ㅎㅎㅎㅎ</p>
+<p>The first day of December. As Monday came, the school became increasingly busy. This was because the Seongsan Festival, the St. Francisco Girls' Academy Festival, which can now be called Miyashi's local specialty, was fast approaching.</p>
+<p>The Seongsan Festival is a festival where the female students of prestigious families boast about the results of their club activities for a year, and it was famous for being visited by the citizens of Miyashi every year. In particular, it was famous for its delicious food and fun activities that spared no expense, so many people looked forward to the Seongsan Festival.</p>
+<p>Since the Seongsan Festival is an event held for two days, Thursday and Friday of the first week of December, the time left until the festival was quite tight, with only 3 days: Monday, Tuesday, and Wednesday.</p>
+<p>Several construction vehicles entered the school during the weekend and changed the exterior of the building as requested by each club, so I was surprised to see that the school looked completely different when I went to work on Monday. Of course, it hasn't completely changed yet because there are still 3 days left, but I was quite looking forward to it because they said they would continue construction after class every day and it would be completed on the day of the festival.</p>
+<p>,Did you have a good weekend?</p>
+<p>Morning assembly time. I came into the special class classroom with my usual Monday greeting, but Minamoto Lisa and Konoe Akina, who are in charge of this Date Experience Club festival, were sitting there with dark circles under their eyes and looking quite tired.</p>
+<p>The rest were the same as usual, as if nothing had happened. Only Urabe Konoka, who spent time with me over the weekend, was looking at my face with a slightly flushed expression.</p>
+<p>,I'm so tired from running around the printing company to help Lisa-ttang~!</p>
+<p>Seizawa Shii, who seemed to have suffered over the weekend because she was close to Minamoto Lisa, yawned and replied, looking tired. From what I heard, they seemed to have made a lot of adjustments regarding the book size, font shape and size, paper selection, and line spacing. They made several prototypes and scrapped them, so it was definitely understandable that Seizawa Shii was tired.</p>
+<p>Not only that, but they said that residents of Miyashi come to the Seongsan Festival, and there was criticism that my photo cards were too aimed at women, so several people got together and even held a meeting. Minamoto Lisa, who looked like a flashy gyaru, seemed to be very meticulous and thorough in her work.</p>
+<p>,So what did you decide to do to target men?</p>
+<p>,Ah, we decided to put Karen's photo cards in it, like dividing idol albums into A package and B package instead of your photo cards.</p>
+<p>Uenozono Karen smiled shyly at Minamoto Lisa's answer.</p>
+<p>Of course, Uenozono Karen's photo cards, who is a popular active idol and whose popularity is at its peak due to being caught up in the recent zombie incident, would be of great help to sales, but there was a mountain to climb. It was the agency.</p>
+<p>,Don't you have to talk to the agency?</p>
+<p>,Selling is confirmed, but we decided to discuss the details today.</p>
+<p>She even did this on the weekend, so she seemed to have a great aptitude as a businesswoman. Seriph's Japanese agency is a Taira-affiliated agency, and she was able to end the conversation well with them, so her negotiation skills were great.</p>
+<p>,So is the book design completely decided?</p>
+<p>,Yeah, this is it. We decided to make the cover of the B version, which gives Karen's photo, blue.</p>
+<p>Minamoto Lisa answered, shaking a book with a green cover at my question.</p>
+<p>The book wasn't very big. In fact, the content was just date recommendation items and reviews of my date experiences, but since 11 people's experiences were included one by one and some people wrote articles in a special format, it wasn't that thin. It seemed to be a readable thickness.</p>
+<p>,Are you selling this with a bonus?</p>
+<p>,Yeah, that's right.</p>
+<p>Hmm.... Will people buy this? I thought, but Minamoto looked very confident. First of all, I have to say that I'll buy my photo card set, but it's a bit much to say it from morning assembly.... I should say it later during the closing ceremony. I felt embarrassed that I was saying I would buy my own photo cards.</p>
+<p>,There are no announcements today, so let's just bear with it for a few days since the festival is coming up soon.</p>
+<p>,I love festivals, Ryuta-jji~! Will you go on a festival date with me?</p>
+<p>Everyone glared at my face at Seizawa Shii's words, so I couldn't answer Seizawa Shii's question right away.</p>
+<p>,.... I can't be biased towards just Seizawa, so I'm thinking of going to one or two stores in different clubs per student.</p>
+<p>The students' sharp gazes are withdrawn at my answer. As expected, if I said I was going on a date with Seizawa Shii, the other students would have made a fuss saying, ,What about me?!. I've been in the special class for a while, so I can avoid it like this in advance. I'm blocking the students from making a fuss in advance.</p>
+<p>,Then I should check in advance what's fun~☆</p>
+<p>,Yeah, if you see what's fun in advance, the date will be fun too.</p>
+<p>I answered Seizawa Shii's words absentmindedly, closed the door of the special class, and came out. There was a nurse's office right in front of the special class, and it seemed like Kijimoto Jurie was there because the door was open. Should I say good morning since the door is open?</p>
+<p>,Kijimoto-sensei.</p>
+<p>,Ah! Yamashiro-sensei!</p>
+<p>Kijimoto Jurie, wearing a white doctor's gown and a sweater suitable for the season, greeted me with a bright expression when I called her. Hmm, as expected, the overwhelming curves are noticeable even when wearing a sweater. It was a good picture from the morning.</p>
+<p>,I heard you're helping us this time?</p>
+<p>,Ah, well.... I'm no different from the special class's assistant homeroom teacher.</p>
+<p>Kijimoto Jurie decided to play the role of manager (?) of the cafe that will be set up in the special class. If you sell books and photo cards in the club room on the 2nd floor, we provided a place where you can officially exchange them at the cafe on the 1st floor, where they said they would sell coffee and tea.</p>
+<p>It was Minamoto Lisa's evil scheme to suck money twice, and there had to be a teacher in charge of each store. I decided to take charge of the club room, and Kijimoto Jurie decided to take charge of the special class's cafe.</p>
+<p>,Still, it must be annoying, did Minamoto say she would give you money?</p>
+<p>,Instead of money....</p>
+<p>,Yes?</p>
+<p>,Instead, I decided to receive 3 sets of Yamashiro-sensei's photo cards.</p>
+<p>Ah, she decided to receive a photo card set instead of money as compensation for being the cafe manager. The more I hear this.... It seemed like the club's collection of works would sell well because of my photo cards. There are a lot of people who want it, huh?</p>
+<p>Of course, it will sell even better now that there are Uenozono Karen photo cards, but I felt confident seeing that so many people wanted my cards.</p>
+<p>,As the advisor of the Date Experience Club and the homeroom teacher of the special class, I still want to repay you. Is there anything you want?</p>
+<p>,Anything I want?</p>
+<p>When I asked what she wanted, Kijimoto Jurie got up from her seat and closed the door of the nurse's office. And there was a sound of the door locking with a click.</p>
+<p>Kijimoto Jurie, who locked the door, turned to me and lifted her long skirt. There were no underwear inside the skirt. It seemed she was waiting for me without wearing underwear in the first place. It seemed that leaving the door open was also to lure me in.</p>
+<p>,What Yamashiro-sensei will pay me as a reward is.... my body.</p>
+<p>I pay with my body quite often. Seeing that it sells so well, there seems to be a lot of demand.</p>
+<p>_____</p>
+<p>I'm not feeling well, so I didn't turn on the AI program today, so I'll release the illustrations I made for practice before ㅎㅎ</p>
+<p>Arisu practice</p>
+<p>Half-awakened (?) Yukiko ㅎㅎ</p>

@@ -5,81 +5,74 @@ weight = 356
 chapter = 356
 +++
 
-<p>There were many stories about the mission in the group chat, and after listening to Kujo Kina's story, who used to be in an athletic club, the 3rd gymnasium is mainly used by 3rd and 2nd year high school students. Also, the clubs that mainly use it were the basketball, table tennis, and volleyball clubs. So, if I only investigate the male teachers related to those clubs, the number of suspects will be significantly reduced.</p>
-<p>There is a sports storage attached to the gymnasium, so even middle school students come to move things, and a young middle school student heard the moaning sound that led to this student council request.</p>
-<p>Several suggestions came out, and a suggestion that was acceptable was to secretly install CCTV under the guise of preventing theft in the sports storage since it's near the sports storage. Of course, this isn't something our club will do, so I passed it on to the student council.</p>
-<p>While passing it on to the student council, the product I recommended was the small, attachable spy camera that Mimata Chieri had purchased from the Dark Market before.</p>
-<p>I thought it would be invisible and good, but it was rejected. Because it's a small spy camera, it doesn't have the function of preventing crime by being visible as a CCTV, and it needs to be charged periodically.</p>
-<p>Minamoto Risa: Then I'll just order it with my own money. We just need to catch that pervert teacher anyway, right?</p>
-<p>Minamoto Risa, being cool, says she'll flex with her own money. So, during break time, I was going to tell Seizawa Shii about the Dark Market app. Minamoto Risa already knows about the Dark Market, so I just need to tell Seizawa Shii.</p>
-<p>"Ryuta-cchi! I'm here!"</p>
-<p>"Excuse me...."</p>
-<p>As soon as the break bell rang, Seizawa Shii and Minamoto Risa burst into the room. Minamoto Risa was also showing off her shapely legs in a short skirt, as befitting a gyaru, but Seizawa Shii had completely taken off her school ribbon tie and unbuttoned about three buttons of her shirt, showing off her cleavage.</p>
-<p>"Seizawa, if you're not going to wear the tie, at least button up one more button. Showing that much cleavage is too much."</p>
-<p>"Ehh~! Don't say that~☆ My chest has gotten bigger lately, so my clothes are so stuffy!"</p>
-<p>"Minamoto, you don't like this kind of thing, do you? Try to stop Seizawa quickly."</p>
-<p>Seeing that Seizawa Shii had no intention of listening to me at all, I asked Minamoto Risa for help, but Minamoto Risa also didn't seem to have any intention of listening to me.</p>
-<p>"It's not that I hate exposure, sensei. It's just that I hate pervert teachers who rape students."</p>
-<p>I see, that's what it was. As expected, due to the trauma from her former homeroom teacher, she developed a strange (?) tendency to hate perverted male teachers. Most men are perverts, so she must hate most male teachers.</p>
-<p>That former homeroom teacher has only raised the difficulty of targeting. Alright, if I get the chance, I'll definitely kill that bastard.</p>
-<p>"Still, school rules are school rules.... Fasten one more button. I'll just say you lost the tie."</p>
-<p>"Nee~☆ Ryuta-cchi is the best!"</p>
-<p>"Both of you, sit in front. Seizawa, I'll send you the referral code, so if you sign up with that code, you'll be able to join."</p>
-<p>She was just joking about her chest getting bigger or whatever. Minamoto Risa and Seizawa Shii sat in the seats I had prepared. And they stared at me intently.</p>
-<p>"Yeah, take out some ice cream from the fridge and eat it."</p>
-<p>As expected, as soon as I finished speaking, they took out two pint-sized Haagen-Dazs from the fridge and started eating them while looking at me. It's a pint, I wonder if they can finish it during break time.</p>
-<p>"Seizawa, if you received the referral code, go to the address I told you and download the app. When you install it, enter the referral code and you'll be able to sign up."</p>
-<p>Seizawa Shii knew that the Dark Market existed, but she hadn't signed up, whether she was raised preciously at home or just didn't care.</p>
-<p>There are all sorts of strange things in the Dark Market, so they probably didn't let the two of them, who are still minors... well, not anymore, but students, sign up.... I'm sorry for corrupting the daughters I raised so preciously as a teacher.</p>
-<p>Seizawa Shii had already finished signing up, and the two of them were checking the apps uploaded to the Dark Market with amazed expressions.</p>
-<p>"For reference, the Dark Market is calculated in points, and 1 point is 1 dollar, so buy things wisely."</p>
-<p>"Ehh, 1 point is 1 dollar? Then this shiny, smooth moisturizing cream for the face costs 30,000 dollars?"</p>
-<p>Seizawa Shii grumbled at my words. There were no unreasonably expensive products in the Dark Market. Maybe that shiny, smooth moisturizing cream for the face is also....</p>
-<p>"Maybe they stole an unreleased product from some company. Competitors can check the other company's products, so it's worth investing 30,000 dollars."</p>
-<p>Oh, even though she's a delinquent, she's still from the Minamoto family. She immediately figured out the value of the item.</p>
-<p>"Oh! The thing sensei mentioned. It says it will be delivered today?"</p>
-<p>Then that means there's stock at the Miyashi branch.... If it's delivered today, I can install it quickly.</p>
-<p>"The delivery address is.... Let's make it our club room."</p>
-<p>"Ah! Good idea, Risa-tan! It's troublesome if too many packages come to my house. I should make it the club room too."</p>
-<p>These troublemakers are trying to use the club room as a parcel box as they please. But it was a reasonable choice in its own way. Minamoto Risa, not to mention Seizawa Shii who lives alone, would have someone check each and every one of her packages first, so it would be right to send it to the club room. Especially if it's a product from the Dark Market.</p>
-<p>"Time's up, go to the classroom quickly."</p>
-<p>"Okay, Ryuta-cchi~☆ Thanks for letting me know!"</p>
-<p>"Me too, th...anks."</p>
-<p>Minamoto Risa, who had a hard time saying thank you, blushed and ran away quickly. Seizawa Shii followed slowly, saying, "Risa-tan, let's go together~!", and then turned around.</p>
-<p>"Ryuta-cchi, sorry, but please put the ice cream we didn't finish in the fridge, hehe."</p>
-<p>Ah, if they can't finish it, they can just put it in the fridge. I unconsciously thought that female students would have a similar amount of food as me.</p>
-<p>###</p>
-<p>The Dark Market delivery person was someone I didn't even think of. No, not even a person.... The Dark Market delivery person was Eve. Eve calmly wore the teal uniform of the academy work team and came all the way to the education preparation room.</p>
-<p>"This is the first time you're seeing me outside of the branch, right, Ryuta-nim?"</p>
-<p>"That's right. I was surprised. I didn't know Eve would come all the way here."</p>
-<p>"It wasn't Ryuta-nim's ID, but since Ryuta-nim is the referrer, I knew it would be related to Ryuta-nim. First, I need to deliver the package to the exact location, so shall we go up?"</p>
-<p>I got up from my seat to guide Eve to the club room. There were no classes anyway, and there wasn't much work to do, so I had time to guide Eve to the club room.</p>
-<p>Come to think of it, this is my first time going up to the second floor. The structure of the second floor of the special building was that as soon as you went up the stairs, there were warehouses on both sides of the hallway. I don't know what kind of warehouse it is, but it seemed to be a warehouse where they put things that were no longer needed, lumping them together as teaching materials.</p>
-<p>"If you put motion detection sensors on the warehouse side, I can deal with anyone who comes even when I'm doing bad things (?)."</p>
-<p>Eve suggested with a smile. That's a tempting suggestion? I've already bribed the guards, so they don't patrol this building, but other people might suddenly come, so a detection sensor would be useful.</p>
-<p>"I'll order a set."</p>
-<p>"Thank you for your purchase~! I brought it just in case. I'll install it for free and leave. If you turn on the detector, a signal will go to Ryuta-nim's phone."</p>
-<p>What kind of thinking do you have to do to bring something like a motion detector just in case? That's really amazing.</p>
-<p>Behind the warehouse was a club room with the strange name of Date Experience-Meditation Club, written as Special Building Club Room. It was an abnormally large club room that combined a classroom, a nurse's office, and an education preparation room.</p>
-<p>Well, since all students from middle school to high school are obligated to join a club, the probability of having more club members than the number of students in a class is high, so it seems like they made the club room this big.</p>
-<p>Deureureuk.</p>
-<p>When I opened the door to the club room, it was cleaner than I thought. It seems like the management team cleans it from time to time. There were a lot of foldable chairs and a long table where all the club members could sit.</p>
-<p>The kids will decorate the club room themselves, and there should be a parcel box in front of the door where they can receive Dark Market parcels....</p>
-<p>"There's no parcel box. That's a shame."</p>
-<p>"Just a moment. I'll check if there's anything in the warehouse. Eve-ssi, please install the detector in the meantime."</p>
-<p>When I opened the warehouse, there was a steel locker that could be used as a parcel box, so it seemed like I could bring this to the entrance of the club room. While I was bringing the steel locker, Eve easily installed the detector.</p>
-<p>"It's linked to the camera here, so if someone passes by, a picture will be taken. Then you can know who it is."</p>
-<p>Oh, it has that kind of function. Eve additionally told me how often I need to change the battery, and I nodded and recorded Eve's words. Since the CCTV or spy camera doesn't continuously record the screen, the battery lasted longer than I thought.</p>
-<p>Since there was still quite a bit of time left even after installing the detector, I decided to install the spy camera right away since I had received the package.</p>
-<p>Yamashiro Ryuta: I received the item, should I install it right away?</p>
-<p>Minamoto Risa: It would be easier for us if you did.</p>
-<p>Since the owner of the package gave permission, I can do it right away. When I said I would install it, Eve said she would accompany me. I went to the place where the middle school female student in the 3rd gymnasium testified that she heard the sound and installed a small spy camera. Minamoto Risa had bought four cameras, how much money did she spend?</p>
-<p>I installed small spy cameras in the corner of the gymnasium, at the entrance of the gymnasium, and inside and outside the warehouse. I was able to install it quickly because Eve helped me.</p>
-<p>"I'll come visit often, Ryuta-nim. Ryuta-nim, please come visit too!"</p>
-<p>"Yes, I'll go visit around the weekend~!"</p>
-<p>I said goodbye to Eve and returned to the education preparation room. And time passed and it was time for the end-of-day assembly.</p>
-<p>-----</p>
-<p>Minamoto Risa with her chest open like Shii</p>
-<p>Different art style</p>
-<p>Fujigasaki Rinka leggings requested by Altenia-nim!</p>
-<p>When I drew with the original Rinka model, it came out like an elementary school student's body, so I changed the model ㅎㅎ</p>
+<p>I headed to Hatake Investment Company, where Jinmija Yeosa is the CEO, with Mimata Chieri. Hatake Investment Company entrusted its security to East Weapon and was located close to the buildings of East Weapon and Seryu Military Company for convenient visits.</p>
+<p>,To make me, your mom, come to work on a Saturday after not seeing me for so long, Yongtae, you unfilial son.</p>
+<p>,It's Yamashiro Ryuta now, though.</p>
+<p>Jinmija Yeosa greeted me with a pout as soon as she saw me. She's been quite busy lately because of Hatake Investment Company's recent expansion into mining, so she might be a little annoyed that I asked to see her even on the weekend. I feel sorry for my mom, but what can I do when the weekend is the only time I have?</p>
+<p>,Changing your family name as you please. Don't you have three identities now?</p>
+<p>,Are you saying I'm Lu Bu? And it wasn't me who changed it as I pleased, it was Grandpa.</p>
+<p>Jin-ssi, Taira-ssi, and Yamashiro-ssi, it was true that I had three IDs. I really became a man with three surnames like Lu Bu. Hmm, if I use this, I can get married three times....</p>
+<p>,How is Hatake Mining going?</p>
+<p>,We've hired most of the workers, and excavation is slowly starting.</p>
+<p>It's been a few months since I acquired the mithril mine, and I've been pushing the mining business ever since, so I'll be able to mine mithril soon. If I start supplying mithril to TG Tech and other companies that have already promised to supply it, I will start making huge profits.</p>
+<p>,Any other special notes?</p>
+<p>,Taira Jiro's side contacted us yesterday. They asked if we could supply to them.</p>
+<p>,You need to check the documents carefully. If you don't limit the quantity that can be requested for delivery, they will request delivery of a huge number of items and then sue us on the pretext that we can't deliver within the deadline. In that way, they may make us pay huge compensation or swallow the company whole.</p>
+<p>When Jinmija Yeosa told me that Taira Jiro's side had contacted her, Mimata Chieri told me her concerns. Hatake Investment Company isn't that big of a company, so Taira Jiro's side might be tempted to swallow it whole. Since it's Taira Jiro who's in charge of Taira Steel, he couldn't help but be more interested in our mine. If so, then all we have to do is not give them an excuse in the first place.</p>
+<p>,Hmm, for now, tell them that it's not possible because there are already a lot of reserved items. And keep buying land around the mine. Ask East Weapon to increase security as well. I don't know what Taira Jiro's side will do.</p>
+<p>Even if I don't supply mithril to Taira Steel anyway, there were many places to sell it. Mithril is a rare and precious metal, so there were people lining up to buy it, so I had to be selective about whether it would benefit us or not.</p>
+<p>,We've been buying land around the area. We're building a mining village around the mine and also building shopping districts, so we've established a small construction company called Hatake Construction.</p>
+<p>The size of the mithril mine is quite large, and there are many workers, so I thought that if I built a mining village around it, I could recover some of the labor costs spent on the miners.</p>
+<p>,Not bad. It's going to be quite difficult to get permission from the local government to build residential buildings around the mine.</p>
+<p>,Nagumo Sian-ssi solved it well. Nagumo Sian-ssi is so popular in Akita Prefecture that it was solved quickly, you know?</p>
+<p>Nagumo Sian is a big shot who is called the godmother in Akita Prefecture, so helping our Hatake Mining would be a simple matter. I should send her a separate gift. Would a dildo made in the shape of my dick be okay....</p>
+<p>,For now, let's decide not to accept Taira Steel's proposal and continue as we are now, but increase security.</p>
+<p>,Okay. It's just as we've been doing, so there's not much to change. The president of East Weapon, our main security contractor, is right in front of us, so shall we sign the contract now?</p>
+<p>,Hehe, shall we?</p>
+<p>Mimata Chieri and Jinmija Yeosa quickly started talking separately. In the meantime, I contacted Sawayanagi Seari on my cell phone. Sawayanagi Azuma, the president of Seryu Military Company, had left for overseas dispatch with only a few people left behind, so there weren't many people in the Seryu Military Company building right now.</p>
+<p>Sawayanagi Seari, who succeeded in elf awakening, couldn't go on overseas dispatch because she hadn't solved the problem of hiding her ears yet, and Sawayanagi Sinya was guarding the building as vice president. Judging from the fact that all the new recruits rescued from Korea have been put into missions, it seemed like a very large-scale request.</p>
+<p>Taira Ryuta: What do you want to eat? I'll pack it up and take it with me before I go to Seryutai.</p>
+<p>Sawayanagi Seari: Something sweet! Chieri-chan is coming too, right?</p>
+<p>Taira Ryuta: Yeah, I'll go with something sweet and Chieri-chan.</p>
+<p>Sawayanagi Seari: Okay! I'll be waiting, Ryuta-nim~!</p>
+<p>Were Sawayanagi Seari and Mimata Chieri close? I didn't know that.... After simply ending the Line chat, the contract between Hatake Investment Company and East Weapon wasn't over yet, so I turned on the Dark Merchant app. I'm sure I remember there being an earring called Fairy's Secret.</p>
+<p>Fairy's Secret was a useless item that only changed the race notation of awakened fairy-type characters to human, but it seemed like it would be in the Dark Merchant. I was almost certain because I could get it from the Dark Merchant in the game as well. Maybe if I have this, I can solve the problem of the elf's pointy ears.</p>
+<p>,Hmm, it's here after all.</p>
+<p>I wondered if it was in the Tokyo branch, but luckily it was in the Tokyo branch. I immediately placed an order and pressed the button to pick it up directly from the branch instead of delivery.</p>
+<p>,Are you done?</p>
+<p>Mimata Chieri asked me if the contract was over. I was just waiting for the two of them to sign the contract and doing this and that on my phone.</p>
+<p>,Then I'll go, Mom.</p>
+<p>,Yeah, you must be tired from doing disguise work during the week and your main job on the weekends.</p>
+<p>,I'm just checking, though.</p>
+<p>,Still, being tired is being tired.</p>
+<p>Unlike Yukiko, my adoptive mother who only thinks about fucking me, Jinmija Yeosa was worried about me as expected of my real mother. This must be a parent's heart.</p>
+<p>,I'm really going. Don't overdo it yourself, Mom.</p>
+<p>,How can I not overdo it when my son makes me come to work on the weekend?</p>
+<p>,I'm sorry about that.</p>
+<p>After coming out of Hatake Investment Company, we took a taxi and stopped by the Dark Merchant's Tokyo branch. Mimata Chieri went to buy the sweets that Sawayanagi Seari had requested, and only I went into the branch.</p>
+<p>,Hello~! Ryuta-nim~!</p>
+<p>Eve in hologram form was in the Tokyo branch. The Eve android that was in Tokyo must have moved to the Miyashi branch as I expected. Then does that mean there's only one Eve android? I don't know why she's following me, but is it because she's a business partner?</p>
+<p>,Ryuta-nim, you said you'd come to visit around the weekend, so you meant you'd come to the Tokyo branch?</p>
+<p>,I'm just here to pick up the item today. Going to visit is, um....</p>
+<p>Come to think of it, I promised to help prepare for the picnic early next week, and then there's the picnic right after that, and then there's another schedule, so I won't be able to do it next week either.</p>
+<p>,When I think about the schedule, it'll be the week after next.</p>
+<p>,Why are you so busy?</p>
+<p>,I know, right.</p>
+<p>Eve said something to me with a slightly pouting expression, but it's not my fault that things turned out this way, it's because of the school schedule....</p>
+<p>,I'll definitely stop by the week after next.</p>
+<p>,Yes~! The item is here.</p>
+<p>After promising to stop by the Miyashi branch the week after next, I received the box containing the Fairy's Secret. After saying goodbye to Eve once again and coming out of the Tokyo branch, Mimata Chieri was waiting for me with shopping bags full of desserts that almost ten people could eat.</p>
+<p>,Why did you buy so much?</p>
+<p>,There were just a lot of things that looked delicious, hehe.</p>
+<p>As expected, it was like Mimata Chieri, who can't resist exploring famous restaurants. I took half of the luggage and took a taxi together to the small building where Seryu Military Company was located.</p>
+<p>I swiped the card key I had and entered the building, heading to the upper floor dormitory room where Sawayanagi Seari was. It was to put the desserts that Mimata Chieri bought in large quantities first. There were quite a few things that needed to be frozen, so if I did business with Sawayanagi Sinya first, they would all melt.</p>
+<p>,Waa~! Ryuta-nim~! Chieri-chan~!</p>
+<p>Sawayanagi Seari, wearing light clothes like dolphin pants and a tank top, greeted us. Sawayanagi Seari, who had awakened as an elf and had a completely busty and curvy body, was just wearing casual clothes, but she was exuding a very sexy atmosphere.</p>
+<p>,Ehehe, I missed you♥</p>
+<p>,Me too, but where's Sinya-ssi?</p>
+<p>She hugged me slightly with an innocent expression and pressed her breasts tightly against me, giving me the feeling that Ero-Elves are different, but I asked about Sawayanagi Sinya's whereabouts first to take care of the business inspection, which was the purpose of coming to Seryu Military Company.</p>
+<p>,Sinya is probably in the vice president's office.</p>
+<p>,Then I'll go see Sinya-ssi quickly and come back, so please wait a bit.</p>
+<p>,I'll be playing with Seari-chan, so junior, please go do your work and come back~!</p>
+<p>Mimata Chieri said with a bright smile, giving me a strange feeling, but I nodded and went downstairs alone to see Sawayanagi Sinya.</p>
+<p>-----Seari B-cut</p>

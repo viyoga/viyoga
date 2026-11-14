@@ -5,66 +5,82 @@ weight = 222
 chapter = 222
 +++
 
-<p>Breaking News! Phantom Thief François Steals World Heritage Jikokuten Sword (持國天劍: Jikokutenken) from Kyoto's Tennōji Temple!</p>
-<p>Is it a coincidence...? Why does Phantom Thief François keep showing up where Arisu is? The suspicion I had at the hamburger shop earlier is swirling again. Even if Arisu is the phantom thief, can she steal something in France one day and then steal something in Kyoto the next day? Unless she has a private jet, there's no way she could steal things so quickly....</p>
-<p>Besides, Jikokutenken.... I looked it up because I was curious, and it turns out that the sword held by Jikokuten, one of the Four Heavenly Kings statues at Tennōji Temple, is a real sword, not a carving, which made it famous and eventually designated as a World Heritage Site. That sword is called the Jikokuten Sword, or Jikokutenken, and it became a famous relic of the Tennōji Temple.</p>
-<p>Since the Yeouiju and Cheonwanghwan I ate in Korea at the beginning were items related to Gwangmok Cheonwang among the Four Heavenly Kings, this Jikokuten Sword might also have a matching item. Like the Yeouiju, the Jikokuten Sword itself was likely a good item.</p>
-<p>I should test the waters a bit when I meet her next time. If she is, then I'll get some items from her.</p>
-<p>###</p>
-<p>For the first time in a while, I decided to spend the day lazing around at home. Rather, since starting my vacation, I've been busier than when I was working, going to Jukai Forest, Chōten Island, Korea, Akita Prefecture, and so on. So, since today was a rare day with no plans, I decided to laze around at home.</p>
-<p>I did wake up early at 3 AM to go for a morning workout, but now I had no reason to go outside. I was lying in bed, looking at Ratflix while chatting with various women on KakaoTalk and Line.</p>
-<p>One of the good things about being possessed is this Ratflix. Several series I had been waiting for before the possession were already completed, so I could watch them right away without waiting. Of course, there were also many that were cut off in the middle of the season and ended vaguely, but that was fun in its own way.</p>
-<p>I was watching a few things when I started watching a mystery drama starring Ha Ju-yoon-mamang, and my phone vibrated. It was Mimata Chieri.</p>
-<p>Cherry-chan🍒: Sunbae-nim! I've completed the negotiations! In the end, the executives at Taira Foods also thought it would be more profitable to select a new site, so they decided to transfer the land around it as soon as they cleared it.</p>
-<p>Taira Ryuta: Thank you for your hard work, Sunbae-nim. Are you coming to Tokyo right away?</p>
-<p>Cherry-chan🍒: Yes, the consignment contract with East Weapon ended a long time ago. Starting today, East Weapon will be guarding the main facilities of the Taira Group in Akita Prefecture for six months instead of the annihilated DTMS.</p>
-<p>Taira Ryuta: Sunbae-nim, you can take a vacation if you need it. I'm comfortable and happy lazing around at home for the first time in a while.</p>
-<p>Cherry-chan🍒: Whenever Hubae-nim goes out to play, I'm resting too, you know? I'm the president of East Weapon, but my main job is Hubae-nim's secretary, so I rest when Hubae-nim is away.</p>
-<p>Ah, that's right. To think she considers my secretary her main job, that's kind of admirable. After finishing my Line chat with Mimata Chieri, the next message came as if it were a promise. It was Sawayanagi Azuma.</p>
-<p>Sawayanagi Azuma: Investor-nim, I've put Tang Xiaohua and her subordinate in the place you specified.</p>
-<p>It seemed that Tang Xiaohua and Yang Seol-hui were placed in the location I specified. It's a bit of a hassle to get to, but it looks like they arrived safely.</p>
-<p>Taira Ryuta: Thank you. I'll try to enlighten them well.</p>
-<p>Sawayanagi Azuma: Surely the tool you're using for that enlightenment isn't Investor-nim's big banana, is it?</p>
-<p>Taira Ryuta: Huh? I don't know what you're talking about? 🙂</p>
-<p>I pretended not to know anything in response to Sawayanagi Azuma's sharp remark. Of course, as Sawayanagi Azuma said in the chat, the persuasion tool for Tang Xiaohua and Yang Seol-hui was indeed the big banana in my crotch. Anyway, it's a banana. It's not yellow, though.</p>
-<p>Sawayanagi Azuma: I don't mind if Investor-nim is with other women. In this day and age when men are scarce, it's not a big problem for someone like Investor-nim to meet multiple women.</p>
-<p>As expected, it was a statement typical of Sawayanagi Azuma, who has a slightly twisted view of love to the point of filming and sending her sex videos to Mimata Chieri.</p>
-<p>In fact, Sawayanagi Azuma's words were somewhat true, as it was indeed a time when men were scarce. During World War III, countless soldiers died, and the majority of those soldiers were young men, so there was a huge shortage of young men worldwide.</p>
-<p>Even so, there weren't many women who would accept meeting every woman who came my way like I do, but there were also women like Sawayanagi Azuma who said they couldn't have a man like me all to themselves.</p>
-<p>Especially in the United States, after the passage of some Free Marriage Act due to PC protests that existed before World War III, people who protested when a single man married several women under that law after the war were spitting blood. They said that our intention was not a male-centered harem marriage.</p>
-<p>Anyway, as Sawayanagi Azuma said, this era was an era of male scarcity. That's why I could seduce women more easily.</p>
-<p>If a handsome man, who is already rare among the scarce men, approached, there weren't many women who would refuse unless they had a hatred of men or liked another man.</p>
-<p>Sawayanagi Azuma: The new kids are doing well. Except for Alik wanting to become a maid, so the Kiyona sisters got him a maid outfit. He said he didn't like the training uniform.</p>
-<p>Taira Ryuta: Really? WWW. I guess the maid cafe was impressive when I was waiting for him in Akita.</p>
-<p>Alexandra seemed to be really serious about being a maid. Imagining him insisting on wearing a maid outfit even while receiving training from Seiryutai made me laugh without realizing it.</p>
-<p>Sawayanagi Azuma: Alik keeps looking for Investor-nim, so if this continues, you should consider putting him directly under Investor-nim rather than Seiryutai.</p>
-<p>Taira Ryuta: Then I can't help it. They were all skinny from not being able to eat when they were locked up, so please feed them well.</p>
-<p>Sawayanagi Azuma: They're working hard because I told them they'll get something delicious if they train well.</p>
-<p>Won't they think it's cheap to do that with food? But they're professionals, so they'll figure it out. It's better to just leave it alone rather than a non-expert like me interfering in such small training. Still, since the topic of food came up, I should also talk about Lee Doo-young, who has regenerative abilities.</p>
-<p>Taira Ryuta: I think the guy named Lee Doo-young, who has regenerative abilities, isn't activating his regenerative abilities well because he's malnourished. Please check on him later after feeding him well. Like Shigeru-ssi, his abilities will be activated smoothly if he has a certain amount of surplus nutrients.</p>
-<p>Just like speedster Sawayanagi Shigeru eats non-stop without getting tired, I also consistently eat three servings, which is partly because I'm hungry, but also for regeneration. So, I warned them to make sure Lee Doo-young gets enough nutrients for regeneration.</p>
-<p>Sawayanagi Azuma: Yes, then we'll have to give Doo-young-gun a little more food. It's time for the next training session, so I'll go now, Investor-nim!</p>
-<p>It seems that Sawayanagi Azuma, the president, is also one of the training instructors. They can divide and teach according to their specialties.... I hope I didn't cause any problems with the training by recommending Sawayanagi Shinya to Konoe Akina.</p>
-<p>"They'll figure it out."</p>
-<p>I brushed off my unnecessary worries and watched the part of Ha Ju-yoon-mamang's drama that I had stopped. Oh.... There's an exposure scene. I took a picture of the exposure scene and sent it to Ha Ju-yoon on KakaoTalk.</p>
-<p>Jin Yong-tae: Photo</p>
-<p>Jin Yong-tae: Are you cheating on me?</p>
-<p>Ha Ju-yoon: You...! You know it's all acting♥ No one has scratched my itch since our Yong-tae left.</p>
-<p>Jin Yong-tae: I'm just kidding, haha. I was watching the drama and sent it because you came out, Nuna.</p>
-<p>Ha Ju-yoon: If you miss me, there are many works you can watch as much as you want. Yong-tae only has music videos, so even if you want to see me, you can only see the same thing?</p>
-<p>Why are we talking about music videos here too? It gained strange popularity and was number one for two days, but fortunately, my identity wasn't revealed, and there were no follow-up sources, so the interest died down. If I had stayed in Korea, I would have been harassed by entertainment officials.</p>
-<p>Jin Yong-tae: I'm on vacation, so I'm lying down and resting. What are you doing now, Nuna?</p>
-<p>Ha Ju-yoon: I'm filming. I'm waiting because another actor is filming for a while, haha.</p>
-<p>I talked to Ha Ju-yoon until it was her turn to film, and then I turned off my phone after Ha Ju-yoon went to film. Han Yu-gyeong and Arisu also contacted me in the morning, and there's no one else to contact now....</p>
-<p>Hmm, honestly, I was bored lying down alone after being so busy. I'm sending KakaoTalk and Line messages even though I don't have anything to say. It's a bit early, but I should pack my travel bag for tomorrow.</p>
-<p>I packed my clothes and various items into my bag. Yukiko said she would pack everything, so I didn't know what else to pack, so I only packed the basics. It only took thirty minutes to pack everything. It was now 5 PM, the time when employees leave the Human Resources Development Center, but Yukiko said she would be late due to finishing up her last work before the vacation, and the housekeeper was also on vacation today, so I would be alone until late.</p>
-<p>I was wondering what to do when the phone rang. It was Suzuki Chisami. She was on a business trip yesterday, so is she calling to see me?</p>
-<p>"Yes, this is Taira Ryuta."</p>
-<p>-Ryuta-ssi, are you free today?</p>
-<p>Suzuki Chisami's voice, which I hadn't heard in a while, was seductively moist.</p>
-<p>"Of course."</p>
-<p>-Then would you like to have dinner at my house?</p>
-<p>"I'll go now."</p>
-<p>The thought of tasting the healthy beauty of a brown-skinned OL after a long time made my banana throb on its own. I guess I can't be a homebody after all. Seeing how excited I am to go out like this rather than staying at home.</p>
-<p>---------Awakened Ha Ju-yoon-mamang</p>
-<p>It came out like this without any separate prompt input, so I'm uploading it, haha.</p>
+<p>Mimata Chieri was already excited coming into my room, squirming her body and her face was quite red, showing she was quite horny.</p>
+<p>Hmm, should I feed this elixir of power to Mimata Chieri? Strength is important for learning martial arts, after all. Her agility is high enough, so the elixir of power would be perfect for Mimata Chieri. Still, I can't waste a precious elixir, so I need to make sure.</p>
+<p>I took out the glasses from the ruins from the carrier and looked at Mimata Chieri. Mimata Chieri tilted her head, looking at me with an expression that said, 'Why the sudden glasses?'</p>
+<p>"Sunbae-nim?"</p>
+<p>"Just a moment."</p>
+<p>I raised my hand to stop Mimata Chieri from approaching and focused on Mimata Chieri's status window that appeared in front of me.</p>
+<p>◆Name: Mimata Chieri Lv13</p>
+<p>Strength: 5(+5) Agility: 14(+5) Stamina: 8 Resistance: 5 Recovery: 6(+5) Nerve: 17(+5) Appearance: 14</p>
+<p>Mental</p>
+<p>Intelligence: 7 Knowledge: 7 Concentration: 12 Willpower: 10 Creativity: 6 Charm: 17 Judgment: 13</p>
+<p>Other</p>
+<p>Luck: 9</p>
+<p>◆Tairaga Family Grade A Firearms Combat (Rare Combat Art Lv16)</p>
+<p>◆Management (Common Skill Lv8)</p>
+<p>◆Sniping (Special Skill Lv12)</p>
+<p>◆Espionage (Special Skill Lv9)</p>
+<p>◆Linguistics (Common Skill Lv9)</p>
+<p>◆Chieri-ryu Fighting Style (Rare Skill Lv2)</p>
+<p>◇Bio-Modification: Muscle Fiber Enhancement [Advanced Modification]: A modification that increases strength and recovery stats, with the side effect of reduced energy efficiency, increasing food intake.</p>
+<p>◇Bio-Modification: Vision Enhancement [Advanced Modification]: Enhances vision, but has the side effect of changing the color of the pupils.</p>
+<p>◇Bio-Modification: Nerve Acceleration [Advanced Modification]: Increases nerve stats, but has the side effect of changing hair color.</p>
+<p>◆Cloud Riding [Epic Trait]: Moves lightly as if riding on clouds. Lightens movements, provides a bonus to jumping actions, and increases the limits of agility and nerve by 1.</p>
+<p>◆Master of Marksmanship [Epic Trait]: Becomes a master of marksmanship. Additional bonuses are granted to skills or traits related to marksmanship, and the acquisition speed of marksmanship skills is accelerated.</p>
+<p>◆Copycat [Epic Trait]: The acquisition speed of techniques using the body is accelerated up to the initial 5 levels, and there is a certain probability of acquiring techniques from the opponent's movements.</p>
+<p>◆Willow Branch Dance [Epic Trait]: An enlightenment on the movements of willow branches swaying in the wind, providing bonuses to evasion, accuracy, and critical hit chance. The efficiency of agility and nerve stats is significantly increased.</p>
+<p>◆Owl's Eyes [Rare+ Trait]: Can see through the darkness and can see far away by concentrating.</p>
+<p>◆Crowd Assimilation [Rare Trait]: Presence becomes faint when entering a crowd. It becomes difficult to notice without special skills or traits.</p>
+<p>◆Martial Arts Master [Epic Trait]: Becomes a master of martial arts. Bonuses are added to all physical techniques, and the acquisition speed of martial arts is accelerated.</p>
+<p>She was 2 levels higher than me, so she had many traits and a quite flashy status window. Looking at it, she had received three bio-modifications. The numbers in parentheses next to the stats, for example, Agility: 14(+5), means that +5 is added to 14, so it's not just 14, but 14 + 5. So, the actual stat is 19.</p>
+<p>The reason it's displayed like that is because if you exceed the stat limit of 20, a 'tier' is created, which has various tremendous effects, but even if you just cut off your arm and attach a mechanical arm, a 'tier' is not created.</p>
+<p>So, stats can rise to 21 when you train for a long time, transcend with an amazing trait, or are born as a different race with a high tier, but physical modifications do not raise the tier. It would be displayed as 10(+11) like this. You can only say you've transcended when the number in front exceeds 20.</p>
+<p>Let's stop talking about tiers and explain a bit more about modifications. Physical modifications are usually divided into bio-modifications and mechanical modifications, and both have their pros and cons.</p>
+<p>Bio-modifications don't get caught in metal detectors and aren't noticeable on the outside, making them suitable for agents like Mimata Chieri. They also have fewer side effects compared to mechanical modifications.</p>
+<p>Mechanical modifications are much stronger than physical modifications. So, they are more suitable for combatants than agents. Even with the same advanced modification, stats are added at +17 like this, more than three times that of bio-modifications, so you can get stronger easily, but the decrease in basic physical stats is very severe. Of course, it would be a scam if the basic stats remained the same after cutting off an arm and attaching a mechanical arm. Bio-modifications enhance the original body, so they are added to the basic stats.</p>
+<p>Another advantage is that you can attach many special abilities, not just stats. All sorts of weapons can be stored, and attacks like electric attacks or flamethrowers are also possible. Of course, it was also possible to embed hacking tools.</p>
+<p>Overall, Mimata Chieri's stats were quite excellent. Her strength, resistance, and recovery were a bit low in the physical aspect, but her agility and nerve were high, allowing for agile and complex movements.</p>
+<p>In the mental aspect, her concentration and judgment were quite high, increasing the probability of making the right choices in urgent situations.</p>
+<p>The trait window was quite good, with almost all traits being of epic grade except for two. There were many highly versatile traits. Cloud Riding was a trait that improved movement, and Willow Branch Dance was also a trait that enabled flexible movement.</p>
+<p>Copycat was a trait that accelerated the early learning of any skill. Ah, so that's why she could easily steal and learn the forms of my Shinkaiyatsude techniques.</p>
+<p>Owl's Eyes was a superior version of Yukiko's Hawk Eye ability, increasing vision and securing night vision.</p>
+<p>Crowd Assimilation was a trait specialized in infiltration and stealth, giving bonuses when infiltrating or hiding in crowded places.</p>
+<p>Finally, there were two master series traits: Master of Marksmanship and Martial Arts Master. Master of Marksmanship was literally a master of marksmanship, and Martial Arts Master was a universal trait that encompassed sword masters and martial arts masters, but its power was weaker than specialized traits.</p>
+<p>So, the Martial Arts Master used tactics that involved learning various martial arts and changing techniques depending on the opponent. Since Mimata Chieri also has the Copycat trait, I should cram her with various techniques. Compared to her quite decent trait window, her skills were all of rare grade or lower, so I should find good secret manuals and have her learn them.</p>
+<p>"Are those glasses X-ray glasses or something? Why are you looking at me so intently?"</p>
+<p>As I kept looking at Mimata Chieri with the glasses from the ruins, she blushed and squirmed, like a woman being visually raped. What a woman. I was just looking at her stats, but she got excited on her own.</p>
+<p>"First, sit here."</p>
+<p>I took off the glasses from the ruins, sat down at the table in the room, and pointed to the opposite side. Now that I knew Mimata Chieri's strength didn't exceed 12, I knew the elixir of power would be effective, so I had to make her drink it.</p>
+<p>"Drink this, Sunbae-nim."</p>
+<p>As Mimata Chieri sat opposite me, I gave her the elixir of power in the bottle and said. Mimata Chieri took the bottle, opened it slightly, and took a small sip.</p>
+<p>"Oh? It's alcohol?"</p>
+<p>"Yes, it's said to be good alcohol for women. Drink it all."</p>
+<p>I thought about giving it to Yukiko or Han Yu-gyeong, but I decided to give the Grizzly Totem to Han Yu-gyeong and the ring to Yukiko, so I'll give this elixir of power to Mimata Chieri. I decided to give the music box to Jinmija Yeosa, and I'll give Arisu something later when I get something more in New York.</p>
+<p>"It has a very deep aroma?"</p>
+<p>"It's because it's a few hundred years old."</p>
+<p>"Huh? You bought this alcohol on the black market, right? Is it okay to give such expensive alcohol to me?"</p>
+<p>When I said the elixir of power was a few hundred years old, Mimata Chieri was surprised and asked back. I smiled and nodded.</p>
+<p>"It's only effective if you drink the whole bottle by yourself, so drink it all in front of me now, Sunbae-nim."</p>
+<p>"It's not a lot..."</p>
+<p>As Mimata Chieri said, it wasn't a lot. About 150 milliliters? About 5 ounces. Roughly the amount of three soju shots.</p>
+<p>"Don't you want to drink it, Hubae-nim?"</p>
+<p>"Uh-uh, I told you it's only effective if you drink the whole bottle. And..."</p>
+<p>"And?"</p>
+<p>As I stopped talking in the middle, Mimata Chieri asked back as if curious. I approached her, tucked her long orange hair behind her ear, and whispered softly.</p>
+<p>"Because I want to see Sunbae-nim drunk and disheveled..."</p>
+<p>At my words, her already red face turned even redder, and she started drinking the elixir of power straight from the bottle. She emptied the elixir of power at once, moving her Adam's apple gulping. I don't know what the principle is, but it's said that it rises from 0 to 2 when the alcohol wears off, so I hope it rises by 2 if possible.</p>
+<p>"Iii~ drank it all."</p>
+<p>As expected, it seemed very strong because it was alcohol that had been aged for hundreds of years. A very strong alcohol smell came from Mimata Chieri's breath as she approached me and said she had drunk it all.</p>
+<p>Still, there was no way Mimata Chieri, who was strong with alcohol, would get drunk with only 150 milliliters of alcohol, so it seemed like she was pretending to be slightly drunk to excite me.</p>
+<p>"Look at this, because of Hubae-nim... I'm disheveled."</p>
+<p>Mimata Chieri was showing her wet pussy while lifting her baby doll skirt. When she lifted the curtain-like skirt of the baby doll, the fragrance of her body rushed in, along with her slender and smooth thighs and her pussy full of wet fluids.</p>
+<p>I was already in a quite horny state, but smelling Mimata Chieri's scent made me even harder. Mimata Chieri silently climbed onto the table with light movements.</p>
+<p>And still lifting her skirt, Mimata Chieri slowly spread her legs until her pussy was right in front of my nose.</p>
+<p>"Hubae-nim, I drank it all, so lick it."</p>
+<p>Mimata Chieri, with eyes mixed with alcohol, lust, and affection, was asking for cunnilingus. I didn't refuse and buried my nose in Mimata Chieri's pussy.</p>
+<p>---------Chieri unused cut</p>
+<p>A cut made because someone wanted long-haired Chieri at once.</p>
+<p>For some reason, when I make a yandere cut, it's always Chieri wearing a school uniform... What happened in high school?</p>
+<p>Skirt lifting</p>
+<p>I only entered skirt lifting, but the lewd Ai revealed her breasts...</p>

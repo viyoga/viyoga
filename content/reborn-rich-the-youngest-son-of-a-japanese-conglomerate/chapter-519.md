@@ -5,60 +5,75 @@ weight = 519
 chapter = 519
 +++
 
-<p>The monster fell, and several translucent windows, including a level-up window, floated before my eyes, but I decided to check them later and recover my stamina even a little now. I had used up almost all of my stamina, mental power, and Abyss, so I didn't even have the mental capacity to check properly.</p>
-<p>After sitting for a few minutes and regaining some energy, I first approached Konoe Akina, who was bleeding from her eyes. She was the main contributor to the victory, giving me the decisive opportunity with her Mystic Eyes, and the blood flowing from her eyes didn't look good.</p>
-<p>"Are you okay?"</p>
-<p>"Yes, I'm fine except that I can't see."</p>
-<p>Konoe Akina answered calmly to my question. If you can't see, isn't that not okay? I gently grabbed Konoe Akina's cheek and looked into her eyes. Konoe Akina's eyes, usually sparkling red, were a dull red that seemed empty.</p>
-<p>I don't know if this is a temporary aftereffect or a permanent disability. I was very worried. It could be a serious situation, so I need to get her treated as soon as possible.</p>
-<p>"Sakagami, take Konoe to point A."</p>
-<p>The point A I mentioned was my house. It was our secret code that Sakagami Rena and I had agreed upon in advance. Although her armor was almost completely destroyed, the helmet part remained, so my identity hadn't been revealed yet. Rather than going together, I asked Sakagami Rena to take her to my house.</p>
-<p>The Public Morals Committee had seen me, so I couldn't hide the appearance of the Black Knight itself. But if I carried Konoe Akina myself, I would be harassed a lot by the media and intelligence agencies of various countries, so I asked Sakagami.</p>
-<p>Sakagami nodded at my words and took Konoe Akina out of the battlefield. As soon as they disappeared, I approached Nakanoin Rina.</p>
-<p>"What happened here is..."</p>
-<p>"You want me to keep it a secret, right?"</p>
-<p>She's quite perceptive. I had already seen Nakanoin Rina talking to Konoe Akina and Sakagami Rena, so if only Nakanoin Rina could keep the secret, no one would leak it. Kurayamada Kirie was too grief-stricken by the loss of her father to pay attention to this, so if I could persuade Nakanoin Rina well, the secret would be kept. The appearance of the Black Knight itself would be revealed because of the Public Morals Committee, but that couldn't be helped.</p>
-<p>"I understand. If it weren't for you, the academy would have suffered a huge loss, so I won't tell anyone about this."</p>
-<p>Indeed, if the monster continued to move while hungry, the nearest St. Francisco Girls' Academy would have been the target, so if I hadn't intervened, a terrible disaster would have occurred. Nakanoin Rina also saw the terrorists of Jinildang being drained of their life force and withering away, so she must feel grateful to me as the head of the Public Morals Committee.</p>
-<p>After hearing her promise to keep it a secret, I approached the fallen monster, the corpse of the Jinildang leader. Kurayamada Kirie was standing next to the corpse.</p>
-<p>"Father..."</p>
-<p>Kurayamada Kirie was standing blankly, staring at the corpse. In the gaping hole in the corpse's chest was a fist-sized jewel with an ominous red light flashing, and when I saw it, a translucent information window automatically appeared before my eyes.</p>
-<p>◆Seed of Earthquake [Legendary+ Elixir/Material/Consumable/Seed]</p>
-<p>A seed that can create an avatar of the sunken-root king who dwells in the underground. If refined well, it becomes a material for an elixir.</p>
-<p>Legendary Plus... That's amazing, isn't it? Of course, there was an ominous explanation that it would become an avatar of an unknown god called the sunken-root king, but since it said that if refined well, it would become a material for an elixir, I thought it would be good to take it first.</p>
-<p>The Seed of Earthquake that the Jinildang leader ate probably has the effect of becoming an avatar of the sunken-root king, and that's why the Jinildang leader became such a monstrous figure. An avatar means an incarnation, so the spirit of the original body's owner is suppressed by the spirit of the deity, and the body is used as a tool of the god, so it's never a good effect.</p>
-<p>I also have the elixir material item called Vampire Virgin Blood that I got from Otagi Yuka before, so I should take it and combine it later to make a good elixir. I picked up the Seed of Earthquake and approached Kurayamada Kirie.</p>
-<p>"What are you going to do with the corpse?"</p>
-<p>"Could you take the claws separately for me?"</p>
-<p>Kurayamada Kirie answered my question. Kurayamada Kirie's greatsword, which was stuck in its heart, exploded along with its heart, so she wouldn't be able to cut off the claws by herself. I used Abyss on my hand to cut off the root part of the Jinildang leader's long, sharp claws. Perhaps because its heart was destroyed, it cut off easily without any resilience or recovery power. Because it fought against my attack containing the Abyss, there were only three claws that looked intact, so I cut off only the three claws that looked intact and took them.</p>
-<p>"Thank you. Let's talk later."</p>
-<p>Kurayamada Kirie hugged the claws tightly as if holding something precious and disappeared past the shrine. Let's talk later... Does she know my identity? I never told Kurayamada Kirie that I was the Black Knight. I even changed my voice so I wouldn't be recognized. I've mixed bodies with her and I'm with her all the time at work, so it seems like she knows intuitively.</p>
-<p>I thought about whether this corpse, which was huge but looked pathetic with its chest blown open and even its claws gone, would be helpful to Simyeonui ttal, but I concluded that it would be helpful because it was a body that had become an avatar of a suspicious god for a while.</p>
-<p>I immediately sent it as an offering to Simyeonui ttal and erased the traces of the monster being here. The world is already turbulent due to the appearance of psychics, but if such a monster appears, it will be even more chaotic, so I'm cleaning it up in advance. Actually, the main reason is to receive rewards from Simyeonui ttal, though.</p>
-<p>Like when I sent the offering last time, the gift didn't come right away, probably because she was going to have Urabe Konoka give me the reward. I can ask Urabe Konoka about the reward for the offering later, and I need to go home quickly now.</p>
-<p>"Then, I'll be going."</p>
-<p>I said goodbye to Nakanoin Rina, who was surprised that the corpse had suddenly disappeared, and ran to get out of the forest.</p>
-<p>I got out of the forest and used Shadow Domination to hide myself well and arrived at the special class building. My clothes were tattered because I had allowed the monster to attack me several times even after the armor was destroyed, so I had to change my clothes.</p>
-<p>I had prepared workout clothes to wear when using the training room in the education preparation room, so I changed into those clothes and ran back home.</p>
-<p>Even though I have Shadow Domination and can move secretly, I thought it would be better to move in my original form because I could be caught on CCTV while wearing the Black Knight's helmet, so I changed my clothes.</p>
-<p>I ran to the academy in the middle of my date with Konoe Akina and fought for quite a long time, so it was already dark. I ran through the darkness and arrived home, and Konoe Akina was lying in the bedroom, with Sakagami Rena sitting next to her with a worried expression.</p>
-<p>"Are you Sensei?"</p>
-<p>Konoe Akina asked me, who was opening the door and coming in, as if she still couldn't see. I had hoped it was a temporary side effect, but it seems that's not the case since she still can't see.</p>
-<p>I looked at Sakagami Rena, and she shook her head, confirming once again that she couldn't see. She must have wiped away the blood that was flowing from her eyes while waiting for me, because her face was the same as usual. Except that her eyes gave off an empty feeling.</p>
-<p>"I'll go see Erika, Sensei. Please take good care of Akina."</p>
-<p>"Okay, Oofuchi must be very surprised too, so comfort her well."</p>
-<p>Sakagami Rena bowed to me and left the room. After looking at Konoe Akina for a moment, Konoe Akina opened her mouth.</p>
-<p>"I heard it from Rena. She said that if I do that...thing with Sensei, my wounds will heal?"</p>
-<p>Ah, Sakagami Rena told her in advance. I was wondering how to say this myself, but she said it in advance with sense. That's a relief.</p>
-<p>"Then today's date will finally end the way I wanted it to? Hehe...."</p>
-<p>She's talking even though she can't see, but she doesn't seem anxious. If I couldn't see, I would be very anxious. Does she really believe that it will be cured? She's the first person I'm close to who's been hurt this badly since Otagi Yuka, so I felt sorry for her.</p>
-<p>"What did Akina want?"</p>
-<p>"Sensei, no, to be together with Ryuta-nim."</p>
-<p>I thought so because she had been subtly provoking me sexually since yoga, but she's talking about it very confidently. I stroked Konoe Akina's hair and brushed it back. She flinched when I suddenly touched her because she couldn't see, but then she smiled.</p>
-<p>"Ryuta-nim, I love you."</p>
-<p>Konoe Akina turned her head towards me and smiled with empty eyes.</p>
-<p>"So please, hold me."</p>
-<p>It was a voice filled with all sorts of emotions, including affection, thirst, anxiety, and hope. I hugged Konoe Akina tightly. Konoe Akina's frail body felt even more pitiful.</p>
-<p>After that, I started to take off the clothes that Konoe Akina was wearing one by one.</p>
-<p>----</p>
-<p>The homeroom teacher is sitting upright in commemoration of Buddha's Birthday~!</p>
+<p>Minamoto Risa and I went out in front of the special class building and started by warming up. Even while stretching, Minamoto Risa kept looking around as if checking if anyone was watching, but from the start, the special class was located in a somewhat isolated place compared to other buildings, so there was no one watching. It was almost dinner time too. I could see the sun setting behind Minamoto Risa, so everyone must be finishing up their club activities and going home, or ordering dinner like us and waiting in the club room or classroom.</p>
+<p>"No one's watching, so don't bother looking around."</p>
+<p>"But if they don't see us practicing, the opponent won't be on guard."</p>
+<p>Hardly anyone uses the word 'on guard' for the three-legged race at the sports day or takes it seriously... I thought, but I didn't bother saying it out loud. Minamoto Risa's expression was quite serious.</p>
+<p>"My father is a perfectionist. He'll be disappointed if I don't get first place in even something this small... That's why I'm working hard. He's especially strict with me."</p>
+<p>Minamoto Risa spoke as if making excuses, probably guessing my thoughts from my expression even though I didn't say them out loud.</p>
+<p>By the way, Minamoto Ushin is strict with Minamoto Risa? According to the Taira Group's information team, Minamoto Risa is Minamoto Ushin's most cherished child... Unexpectedly, I heard some new information. This was information worth looking into further.</p>
+<p>"I was just a little curious, so you don't have to make excuses. And..."</p>
+<p>"And?"</p>
+<p>"Your father is probably strict because he has that much expectation for you."</p>
+<p>It was meant to be a comforting remark, but Minamoto Risa chuckled after hearing my words. Then she opened her mouth with a somewhat gentle expression.</p>
+<p>"Hehe, are you trying to comfort me?"</p>
+<p>"Well... yeah."</p>
+<p>"How kind. Thank you. I feel a little refreshed thanks to you."</p>
+<p>She's smiling refreshingly. Rather, I felt refreshed seeing Minamoto Risa's smile. Of course, Minamoto Risa's smile is beautiful, but the sunset glowing crimson was also providing exquisite lighting, further enhancing Minamoto Risa's charm.</p>
+<p>"Let's give it a try now."</p>
+<p>"I'll tie our ankles together, so just stand still."</p>
+<p>I knelt on one knee and tied Minamoto Risa's and my ankles together. I was conscious of Minamoto Risa's straight and smooth brown thighs and calves, but I acted as if I had no ulterior motives, putting on a straight face and focusing on tying our ankles together. Fortunately, there was a wide rope lying around in the education preparation room, so there was no need to prepare anything separately for tying our ankles.</p>
+<p>For reference, the rules of the three-legged race prohibited carrying female students like luggage, probably to prevent male teachers with relatively strong strength from using such loopholes. I thought it was a last resort, but it's a shame I can't do it this way, but now I have no choice but to practice hard.</p>
+<p>"Shall we go now?"</p>
+<p>"Yeah, start with your left foot forward."</p>
+<p>We tied our ankles together and stood in place, then started. But our three-legged race started creaking from the very first step. First of all, there was a bit of a height difference, so our strides were different. Minamoto Risa is a bit tall for a girl, but I'm in the late 180s, so even though Minamoto Risa is quite tall compared to the average girl, the height difference was still significant. Naturally, our strides were different, and we were walking with our familiar gaits, so our movements were clashing.</p>
+<p>"This time, let's try walking slowly for just three steps."</p>
+<p>"Okay."</p>
+<p>We took steps with awkward movements like mismatched gears. Still, the first step wasn't bad, probably because we were being mindful of our movements. But the second and third steps were the problem.</p>
+<p>Minamoto Risa started to falter from the second step, and she was tripping on the third step. I quickly grabbed Minamoto Risa. I grabbed her shoulder with one hand and tried to support her body by putting my hand between her armpit, but my hand went in too deep and slightly touched her chest.</p>
+<p>"Kyaa!"</p>
+<p>"Ah, I'm sorry...!"</p>
+<p>I apologized with my mouth, but in my heart, I wasn't sorry. I was saying thank you. Hmm... Minamoto Risa's chest is more of a firm style than a soft one. As expected, it was a lively and pleasant sensation befitting a gyaru.</p>
+<p>"No, it's because you caught me when I was about to fall... Thank you."</p>
+<p>Even Minamoto Risa, who has a slight dislike of men, couldn't blame me for this. It wasn't intentional at all, and I was preventing Minamoto Risa from falling and getting hurt.</p>
+<p>Once again, we renewed our determination and practiced the three-legged race. Of course, renewing our determination didn't immediately turn our clumsy movements into skillful ones, so I had to grab Minamoto Risa as if hugging her several times when she was about to fall.</p>
+<p>Why wasn't I falling? Still, I'm a martial artist with a lot of physical stats and physical-related traits, so it would be a bit much to fall in a mere three-legged race. And Minamoto Risa is very light, so there was no way my heavy body would be swayed by Minamoto Risa's movements.</p>
+<p>After being embraced by me about twelve times, Minamoto Risa sighed, thinking that this three-legged race wasn't as easy as she thought.</p>
+<p>Originally, I was going to hug her about thirty more times under the pretext of saving her from falling, but seeing her looking dejected, I felt like helping her. Okay, let's help her. It's not as good as hugging, but this is also a way to get close.</p>
+<p>"You agree that we can't keep going like this, right?"</p>
+<p>"Yeah, it's not working even though we keep trying..."</p>
+<p>When Minamoto Risa nodded, I grabbed Minamoto Risa's waist and pulled her towards me.</p>
+<p>"Kyaa...! W-What are you doing?"</p>
+<p>"The problem was that only our ankles were connected. Our upper bodies need to be touching like this too. The person in the middle can walk without wobbling."</p>
+<p>In fact, Minamoto Risa was awkward about being close to me, so she was keeping her upper body away from me. In that posture, she naturally couldn't maintain her balance properly, which is why she kept falling.</p>
+<p>Of course, I, who am good at handling my body, realized that from the beginning, but I pretended not to know because I thought it would be better to grab her as if hugging her when she was about to fall. But seeing her looking dejected, my heart softened, and I decided to help her out.</p>
+<p>"I-Is that so?"</p>
+<p>Minamoto Risa tilted her head at my words and nodded for now. We started the three-legged race again.</p>
+<p>It was definitely much better than before when we were wobbling. Since Minamoto Risa was almost leaning on me, there was no way we would wobble as long as I maintained my balance well.</p>
+<p>This time, we were able to walk the entire length of one side of the special class building, which was our goal. Until now, it was difficult to even take a few steps, but now that we've changed our posture, it's much easier to move.</p>
+<p>"You're right. Sorry for misunderstanding."</p>
+<p>Minamoto Risa apologized properly. I shook my head as if to say it was okay. After practicing two more times, Seizawa Shii, Kujo Kina, and Otagi Yuka came down from the club room.</p>
+<p>"Ooh~ You two look like a couple!"</p>
+<p>"Aren't you sticking too close together?"</p>
+<p>"Ryuta-cchi is a man of many charms~☆"</p>
+<p>The three of them were whistling and making a fuss like drunken uncles when they saw Minamoto Risa and me.</p>
+<p>"It can't be helped if we want to practice."</p>
+<p>"We know~! We're going to the main gate because it's time for our delivery to arrive."</p>
+<p>"We ordered a lot of delicious food, so let's eat together, Sensei!"</p>
+<p>"Don't forget to take your vitamins after dinner!"</p>
+<p>I already bought some snacks while buying sweets today, but it would be polite to eat the delicious food that the students ordered. Still, Otagi Yuka is amazing for still talking about vitamins.</p>
+<p>"Let's do it a few more times until the kids come back."</p>
+<p>"Okay."</p>
+<p>Minamoto Risa said to me, watching the two of them walking lightly towards the school gate. Will it take about five minutes for the kids to come back? We can go back and forth at least ten more times.</p>
+<p>As Seizawa Shii said earlier, Minamoto Risa's athletic ability wasn't bad. I can't say it's very good, but it's better than average, and the more we did it, the faster our record started to get little by little.</p>
+<p>After going back and forth close to ten times, Seizawa Shii, Kujo Kina, and Otagi Yuka were coming with quite large bags. There were quite a few students, eleven in total, so the bags had to be big, and all three of them were carrying them, so all three of them were quite strong.</p>
+<p>"Let's go up and have dinner now!"</p>
+<p>Kujo Kina urged Minamoto Risa and me as if she was hungry. We nodded and bent down at the same time to untie the rope tied to our ankles.</p>
+<p>"Ah...!"</p>
+<p>Minamoto Risa blushed as she faced me closely. We untied the ankle rope without saying a word. Even though we had been breathing quite well together until just now, it felt liberating to have our ankles separated. Freedom is good after all.</p>
+<p>"Good job. If we practice every day, we can really get first place, you know?"</p>
+<p>"Yeah, good job to you too, Sensei."</p>
+<p>We encouraged each other and followed Seizawa Shii, Otagi Yuka, and Kujo Kina up to the second-floor club room.</p>
+<p>--------</p>
+<p>Minamoto Risa B-cut!</p>
+<p>While making it, I thought, "Oh? It's evening," so I discarded what I was making and changed the background to a sunset haha.</p>

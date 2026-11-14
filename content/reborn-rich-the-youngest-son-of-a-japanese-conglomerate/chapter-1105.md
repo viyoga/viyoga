@@ -5,80 +5,69 @@ weight = 1105
 chapter = 1105
 +++
 
-<p>"This is Taira Ryuta. Nice to meet you."</p>
-<p>I extended my hand to Kanzaki Saya and spoke. Kanzaki Saya looked at my extended hand for a moment, then grinned, grabbed my hand, and shook it.</p>
-<p>"The leader introduced me, but I'm Kanzaki Saya. Ryuta-ssi."</p>
-<p>Her Grip was quite strong. She didn't seem like a strength-based character, though. Being a combat class and constantly holding a pistol in both hands, she seemed to have a certain level of grip strength.</p>
-<p>"By the way, for what reason did Saburo-ssi's son come to our company?"</p>
-<p>Kanzaki Saya, having finished the Handshake, looked at Goishihara Shoji and asked.</p>
-<p>"It's contract-related."</p>
-<p>"Oh really? That's fortunate. Recently, I haven't had a chance to shoot a gun, so I've been frustrated."</p>
-<p>The fact that she hasn't had a chance to shoot a gun recently seemed to mean she didn't have many missions. It seems that during their Moth Wing days, they had a certain reputation in Japan, but in the USA, they were close to unknown, and for Japanese companies to hire them, they had to be mindful of the Taira side, so it seemed work wasn't coming in much.</p>
-<p>In that case, the security mission I proposed this time must feel like a welcome rain in a drought, wouldn't it? In a way, with this contract proposal, I could say I've filled Goishihara Shoji's Affection Level.</p>
-<p>"So you chased all your comrades out again and monopolized the shooting range by yourself?"</p>
-<p>When we entered the shooting range, Goishihara Shoji sighed upon seeing Kanzaki Saya, which seemed to be because she was monopolizing the shooting range alone. Other PMC employees also needed to do shooting training, so it must have been awkward that she was using it alone.</p>
-<p>"What do you mean, 'chased out'? Today, our assault team is on Rest, and the raid team and sniper team went for Actual combat training for a week, so no one was using it; I just rented it out."</p>
-<p>Kanzaki Saya spoke as if she were being treated unfairly. But Goishihara Shoji, as if saying 'no way', shook his Head.</p>
-<p>"Even if it's Rest, shooting training is voluntary, but you know well that the assault team members are forcibly exercising and waiting in the 1st floor Gym until your occupation of the shooting range ends."</p>
-<p>"Hmph~! Since I'm the Team Leader, my Subordinates should follow my Words!"</p>
-<p>According to Goishihara Shoji's Words, it meant she was forcibly monopolizing the shooting range after all. Goishihara Shoji, with Kanzaki Saya, after having such a friendly (?) argument, looked at me with a slightly awkward Expression and bowed his Head.</p>
-<p>"Ah, I'm sorry for showing you such a strange Appearance."</p>
-<p>"No, it's good to see you getting along informally with your Subordinates. We also tend to get along quite informally."</p>
-<p>At Goishihara Shoji's Words, I, glancing at Naruse Shiyo and Maya Reed, said. Of course, Maya Reed hasn't been with us for long, so we don't get along informally, but apart from a few, we generally get along comfortably.</p>
-<p>"Oh~! Are those Ryuta-ssi's Subordinates? Nice to meet you~!"</p>
-<p>Kanzaki Saya, waving her Hand, greeted Naruse Shiyo and Maya Reed as well.</p>
-<p>Even to two people she didn't know well, seeing her greet them warmly, she felt like a Large Dog with a good Personality. The Bullet Lover I knew wasn't like this; seeing how much she's changed, it seems some Incident must have happened to the future Moss Tactical.</p>
-<p>Just then, Kanzaki Saya, Naruse Shiyo, and Maya Reed were having a short Conversation, the shooting range Door opened, and Tetsu Kagerou, Tetsuka Ayame entered. It seemed they had just finished Training, as they were in their Cyber Suits.</p>
-<p>Of course, since they weren't flying, their Wings were folded, and with their Wings folded, it felt as if the Wings were defending Tetsuka Ayame on both sides.</p>
-<p>"Saya, Shoji-leader! I'm here~♬ Today's Training was quite fun too! Huh?!"</p>
-<p>Tetsuka Ayame, who was greeting us upon her return, looked at me and made a surprised Expression.</p>
-<p>"Saburo-ssi's son! Did you already come to play?"</p>
-<p>"Rather than coming to play, I came to sign a contract."</p>
-<p>Since Tetsuka Ayame and I had already met during the New Rochelle Incident and broken the ice, we spoke comfortably with each other.</p>
-<p>"Back then in New Rochelle, did you save the Chairman of the Arab Alchemy Association?"</p>
-<p>When we met in New Rochelle, chasing the carpet ridden by the client, the Chairman of the Arab Alchemy Association, as it fell from the Sky in flames, was Tetsuka Ayame's last Appearance, so I asked if she saved him.</p>
-<p>"Yes! I saved him. I got a ton of bonuses for it~♪"</p>
-<p>There's a rumor that he's Royalty from some oil-producing country, so as the Chairman of the Arab Alchemy Association, he must have given a considerable level of bonus to the PMC Mercenary who saved his Life.</p>
-<p>"First, since you've looked around the entire shooting range, let's look around the 2nd Floor now."</p>
-<p>As Tetsuka Ayame and my Story roughly ended, Goishihara Shoji interjected and spoke. Right, we can't stand in the 3rd Floor shooting room forever.</p>
-<p>As I nodded my Head, Kanzaki Saya and Tetsuka Ayame, saying 'I want to follow too~!', joined our Party/Group.</p>
-<p>"The 2nd Floor is the restaurant. As a PMC, meals are prepared considering nutritional balance. Since it's almost lunch time, please eat here before you go."</p>
-<p>"Shall we?"</p>
-<p>As Goishihara Shoji said, the 2nd Floor was a cafeteria. As most of Moss Tactical's members were Japanese Persons, the cafeteria seemed to be Japanese food-centric.</p>
-<p>While eating the meal, the three from Moss Tactical and we got to know each other a little better; the three from Moss Tactical seemed surprised by my large appetite, and contrary to me, I learned that Tetsuka Ayame was a small eater. Perhaps because of her Flight Suit, she seemed to be controlling her Body Weight.</p>
-<p>The meal was not bad. It was typical American-Japanese Japanese Food with an American touch. As Goishihara Shoji said, the balance of carbohydrates, proteins, and fats was good, and while we were Guests so it was overlooked, registered PMC Agents seemed to have a set amount of food to eat according to their registered Information.</p>
-<p>"Saburo-ssi's son fought in New Rochelle and was quite strong. We couldn't decide the outcome for almost several minutes~♩"</p>
-<p>At the Words that I was strong, Kanzaki Saya asked with sparkling Eyes. With an Attitude like a tail-wagging husky, saying 'Want to do Actual combat training?'.... She seemed to be a battle maniac comparable to Shimokawabe Airen.</p>
-<p>"Yamamoto and Ito must be very disappointed. Because they're in Training all week, they won't be able to see Saburo-ssi's son, will they?"</p>
-<p>The people named Yamamoto and Ito seemed to be the Team Leaders of the sniper team and assault team 2, who weren't here. As all members of Moss Tactical were former Subordinates of Taira Saburo, they seemed to want to see me at least once.</p>
-<p>"I have a perfectly fine name, Taira Ryuta."</p>
-<p>"Ah, sorry, sorry~♪ Every time I see Ryuta-ssi's Face, Saburo-ssi comes to mind."</p>
-<p>Because Tetsuka Ayame kept calling me Saburo-ssi's son, when I tackled her, she honestly said she was sorry. Do I really resemble Taira Saburo that much?</p>
-<p>After finishing the meal like that and looking around the 1st Floor Gym (there was a brief happening where the People in the Gym were surprised to see me), we finished the schedule of looking around the Moss Tactical Building.</p>
-<p>"I'll be going now. I hope the contract goes well."</p>
-<p>"I agree."</p>
-<p>We had talked about the contract, had a meal, and looked around the entire Building, so there was no longer any Reason to stay at Moss Tactical; I shook Hands with Goishihara Shoji and greeted him.</p>
-<p>"Ah, if any difficult Matter arises, please Contact me. I will Help you anytime."</p>
-<p>"Thank you for your consideration."</p>
-<p>Given the future Appearance of Tetsuka Ayame and Kanzaki Saya, and the certainty that something bad would happen to Moss Tactical in an unknown future, I told Goishihara Shoji that I would Help him anytime.</p>
-<p>If I Help, Moss Tactical might be able to escape its unfortunate future. Though I don't know exactly what that unfortunate future is yet.</p>
-<p>We, who came out of the Moss Tactical Building, got back into the vehicle. The Work was also finished, and it was time to return to Fujigasaki Rinka's Home on Malibu Beach.</p>
-<p>"They all seemed like good People, didn't they? Of course, Kanzaki-ssi and Tetsuka-ssi seemed a little wild-eyed, though...."</p>
-<p>Naruse Shiyo, who was in the vehicle, stated her Impression. I agreed. Rather, I, more than the Image of Tetsu Kagerou and Bullet Lover I knew, was puzzled by how docile (?) they were, but this Appearance must be their true Appearance.</p>
-<p>Their Appearance in the Game, which changed them due to some Matter, must be different from their current Appearance.</p>
-<p>As the Successor War progresses, someday eventually I intended to call Moss Tactical, who knows the Weakness of each Successor well, back to Japan, so I hoped they wouldn't experience unfortunate events. I should talk to Eve and ask her to inform me if anything happens.</p>
-<p>"How was Maya? Was there any Lie?"</p>
-<p>I asked Maya Reed, who had been listening to all the Stories from behind me.</p>
-<p>"Most of it was Truth."</p>
-<p>"Most?"</p>
-<p>Does that mean some of it was a Lie? Of course, I've heard that People unconsciously tell small Lies during Conversation, but it would be difficult to catch that with just Voice.</p>
-<p>"But currently Moss Tactical has no Thought of returning to Moth Wing."</p>
-<p>Maya Reed spoke in Goishihara Shoji's Voice. Perhaps because she was a Voice Ability User, it was incredibly similar. Of course, there was a Way of Speaking, so it wasn't perfectly identical, but this seemed like it could be quite useful.</p>
-<p>"That last Word was a Lie. Goishihara-ssi clearly wants to return to Moth Wing."</p>
-<p>At Maya Reed's Words, I felt a little Confusion. Wanting to return to Moth Wing, does it mean he misses the past days with Taira Saburo, or that he wants to come under my command?</p>
-<p>Of course, the Probability of it being the former is quite high, but hearing that the last Story was a Lie, I realized that bringing Moss Tactical under my command might not be as difficult as I Thought.</p>
-<p>Tetsuka Ayame's folded Wings B-cut~!</p>
-<p>Requested by Gojoy-nim: Shinoe Misano's Seduction, Yukiko's 49th-day memorial Appearance.</p>
-<p>Shinoe Misano~!</p>
-<p>Yukiko~!</p>
-<p>Requested by Geomeunkkaemuk-nim: Genbaki Sabu Musashi Takuro~!</p>
+<p>"My condolences. Kitsumasa must have gone to a good place."</p>
+<p>"Thank you for coming."</p>
+<p>I had wondered how it would be with Taira Kanna, given that the recent encounter between Taira Jiro and Taira Ichiro was quite hostile, but surprisingly, the Atmosphere didn't seem bad at all.</p>
+<p>Of course, Taira Jiro offered a perfunctory greeting without much talk, but there was no sense of Killing Intent or bloodshot Eyes like when he dealt with Taira Ichiro. Rather, his Gaze held a hint of goodwill, perhaps...?</p>
+<p>I was quite curious about the Story behind it. I'll have to ask Taira Kanna later what happened with Taira Jiro.</p>
+<p>"I can't believe Kitsumasa was assassinated. Since he was staying overseas, Uncle Jiro's Guards must have been constantly with him."</p>
+<p>Arisu, watching Taira Kanna offer her condolences, opened her mouth in bewilderment. Indeed, no matter how capable an Assassin, it would be difficult to kill a Target constantly accompanied by a professional Guard team.</p>
+<p>"Information heard from the UK side...."</p>
+<p>"The UK? What are you talking about?"</p>
+<p>Just as I began to speak, intending to explain the Situation I knew from information on the assassination, Taira Kanna, having finished her condolences, returned and asked what I was talking about.</p>
+<p>"Ah, I've roughly heard about the Situation when Kitsumasa was assassinated. I was about to explain it to Arisu."</p>
+<p>"I was curious too! Tell me quickly, Nephew-nim~!"</p>
+<p>As Taira Kanna said, 'Tell me quickly~!' with a touch of Aegyo, Arisu frowned slightly, but I pretended not to see and opened my mouth to tell the Story I intended to.</p>
+<p>"Alright. I'll continue the Story. If we combine the Information heard from the UK side and from various other sources, it seems Taira Kitsumasa let his Guard down when Minamoto Katsue from the Minamoto side left Europe. So, after carousing late into the night at a Club, the Assassin didn't miss the Gap that appeared when both the Guard and Taira Kitsumasa were relaxed."</p>
+<p>As I explained the content gathered from the Information from the UK, the Story of Minamoto Katsue I heard from Minamoto Risa, and various other sources, everyone nodded their Heads, understanding.</p>
+<p>"But Aunt Kokoro hasn't arrived yet. Is she not planning to come at all?"</p>
+<p>After the Story of how Taira Kitsumasa died concluded, Arisu looked around and spoke. As Arisu said, Taira Kokoro had not yet arrived.</p>
+<p>Of course, everyone in the Taira Group knew that Taira Kokoro's mother and Taira Jiro's mother were different, making them half-siblings with a not-so-good Relationship, but not coming to the funeral of a deceased child was an action that would further worsen an already bad Relationship.</p>
+<p>"She'll come. Older sister Kokoro, perhaps because she's an Entertainment Industry Boss, loves to receive attention."</p>
+<p>"Older sister does have that side to her...!"</p>
+<p>Taira Kanna spoke with a convinced Way of Speaking. Was Taira Kokoro like that? I'd seen her a few times but hadn't noticed it.... Since even Nae Fitzgerald agreed that she had such a side, it couldn't be wrong.</p>
+<p>Of course, I had only seen Taira Kokoro a few times over the past year, so I thought Taira Kanna, who had known Taira Kokoro her entire life, would know better.</p>
+<p>"Look, she's coming."</p>
+<p>Taira Kanna, with an Expression that said, 'See? I told you so,' pointed towards the Main family Entrance. Along with Taira Kokoro, her seemingly very frail Husband, Taira Katsuto, and Taira Kokoro's Children, Taira Kisa and Taira Akio, were entering through the Main Gate.</p>
+<p>As Taira Kanna said, with a whole Family, including Taira Kokoro, entering one after another just before the guest reception time was almost over, attention couldn't help but be focused on them.</p>
+<p>"It's a pity, Kitsumasa was quite a clever Child...."</p>
+<p>"Thank you for coming.... You're quite late, Kokoro."</p>
+<p>As I pricked my Sensitive Ears, I could hear their Conversation. The other mourners seemed to be thinking similarly to me and were quiet, so their Conversation was even clearer.</p>
+<p>"The Cars were a bit backed up.... By the way, have you found the culprit who harmed Kitsumasa? Shall I help?"</p>
+<p>"I haven't found them yet, but I can find that Assassin bastard without your Help."</p>
+<p>"It won't be easy, will it? I'll just go since you don't need it, but I hope you remember that I can always help in Tracking down the Guys who harmed our Family."</p>
+<p>This time, the Conversation was about whether they had identified the Assassin. It was quite surprising to recently learn that among the four current Successors, Taira Kokoro's Information Organization rivals Taira Ichiro's in ranking 1st or 2nd.</p>
+<p>According to the Report from the Investigation Department, the combination of Taira Kokoro's paparazzi reporters from her sports and Entertainment Industry newspaper and her separate secret Information team is quite effective.</p>
+<p>Since she was so confident in her Information capabilities, she publicly said, 'Shall I help?' here. However, just as Taira Jiro refused, this Proposal was one that should never be eagerly accepted.</p>
+<p>Everyone was listening intently, with Taira Kokoro drawing their Gaze, and it was a Trap that could inadvertently make Taira Jiro's Information team seem incompetent compared to Taira Kokoro's.</p>
+<p>I hadn't realized it, but Taira Kokoro was indeed a Successor. To lay such a tempting Trap for her Opponent, in front of everyone, at the funeral of her Nephew and Taira Jiro's Son, no less. Her ruthless Sim, which showed no mercy regardless of the Opponent's Situation, felt quite refreshing.</p>
+<p>In fact, I had considered Taira Kokoro the easiest among the succession competitors, but I should view her as just as difficult an Opponent as the other three. As someone who, despite being a Woman, had competed with Taira Ichiro and Taira Jiro until now, she could not be underestimated.</p>
+<p>"Oh my, our Family was all gathered here?"</p>
+<p>"Hello, Aunt, Uncle."</p>
+<p>Taira Kokoro and her Family, having finished their condolences, approached us. As I was the Youngest in this gathering (although Taira Kanna was younger, she was my Aunt, one generation above me, so I was indeed the Youngest), I bowed my Head slightly and greeted them first.</p>
+<p>"I always say this, Ryuta, but your Rhythm of Passion and Body are too good for playing Boss. If you ever want to earn some Allowance, contact me anytime."</p>
+<p>"They say you became a Boss, and your Face seems to have brightened even more."</p>
+<p>Taira Kokoro, as usual, talked about scouting me for the Entertainment Industry, and Taira Katsuto offered an Ordinary greeting. I exchanged Gaze with Taira Kisa and Taira Akio, and others also greeted each other.</p>
+<p>"Soon the reception of mourners will end and the Tsuya will begin, so has everyone had enough Sleep?"</p>
+<p>Taira Kokoro looked at us and asked. Tsuya (通夜) is part of Japan's funeral customs, referring to the night spent keeping watch over the deceased's remains.</p>
+<p>Staying up for one night is easy for me.... The phantom thief mother and daughter engage in thievery at night, so staying up all night would be nothing to them, and Taira Kanna, according to the testimony of my Subordinates, is also a Strong Person, so one night wouldn't be a Problem.</p>
+<p>"The Main family is so vast; if you get sleepy, you can just secretly slip into any Room and catch a little Sleep."</p>
+<p>Taira Kisa looked at her mom and spoke as if asking why she would even ask such a Question. Indeed.... She wasn't that close to the deceased Taira Kitsumasa, so there was no need to stay until the very end. Moreover, if she stayed too faithfully, it might lead to a Misunderstanding that I and Taira Jiro had some kind of Relationship.</p>
+<p>"Rather than just standing around idly like this, shall we return to our Seats for now?"</p>
+<p>At Taira Kanna's Proposal, we all returned to the Seats where the Taira Family and Taira Group Executives were. As Taira Kanna said, there was no need to stand.</p>
+<p>We sat a little distance from Taira Kokoro's Family, and with me at the center, Yukiko, the phantom thief mother and daughter, and Taira Kanna sat at the same table. Seeing Taira Kokoro's Family sit at a different table, I subtly leaned my Upper Body towards Taira Kanna and quietly asked what I had been curious about.</p>
+<p>"I felt it while watching you talk with Uncle Jiro earlier.... Did something happen between the two of you?"</p>
+<p>"Ah, that? I told him who the culprit of the Mithril attack Incident was. That's why he showed that Attitude."</p>
+<p>Aha...! So that was it? From our understanding, the ones who raided Taira Jiro's Mithril warehouse were Taira Gensuke's elite unit brought from Brazil and unregistered Mercenaries.</p>
+<p>At first, both teams were quite elite and difficult to Track, so I thought it would take some Time for Taira Jiro to find out the Truth. But it was a bit puzzling that he quickly identified the True Identity and ran to Grandfather Taira Danjo-nim to ask him to reprimand Taira Ichiro's side; now, hearing the Story, it seems Taira Kanna quickly figured out the True Identity and informed Taira Jiro.</p>
+<p>Since Taira Kanna is the Boss of Taira Driving System, she could use the systems, Camera Video, and GPS data of Taira Cars spread across the country, so she seemed to have quickly identified the culprit. Thinking about it this way, Taira Kanna's Information power is not to be underestimated either.</p>
+<p>"Did you receive a Price?"</p>
+<p>I asked, curious about what she received for the Information, but Taira Kanna shook her Head at my Question.</p>
+<p>"I received it as Debt instead of a Price."</p>
+<p>I didn't understand why she would accept Debt that could simply be ignored, but in my opinion, causing Discord between Taira Ichiro and Taira Jiro was already an advantage from a competitor's standpoint, so Taira Kanna might not have considered the Debt a big deal. Or perhaps she was confident she could collect the Debt no matter what.</p>
+<p>"So that was The Situation."</p>
+<p>Nae Fitzgerald nodded her Head at Taira Kanna's Words. Everyone at this table had incredible Senses, so even though Taira Kanna and I spoke in whispers, they were listening to the Story with intrigued Expressions, as if asking, 'Something like that happened?'</p>
+<p>"Taira Blood relatives and those seated at the Taira Group Executive table, please follow. The Chairman is looking for you."</p>
+<p>While we were deep in Conversation, a servant came and began to lead everyone around our table towards the Taira Main family's back garden. Since only Taira Blood relatives and Taira Group Executives, not all guests, were called, it seemed there was something business-related to discuss. In my opinion, it was likely about the whereabouts of Taira Jiro's Eldest son, Taira Yuuichi, who had decided to return to Japan.</p>
+<p>Since there were no particular requests today, I'll be uploading the Cover B-cuts~!</p>
+<p>It felt like a 'menhera'-style Guitarist would suit her, so I tried giving her a Guitar hehe.</p>

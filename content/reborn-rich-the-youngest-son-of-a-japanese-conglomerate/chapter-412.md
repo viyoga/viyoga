@@ -5,73 +5,72 @@ weight = 412
 chapter = 412
 +++
 
-<p>Han Yu-gyeong LV11</p>
-<p>Strength: 5, Agility: 5, Stamina: 9, Resistance: 5, Recovery: 2, Nerves: 6, Appearance: 18 (+1)</p>
-<p>Mental</p>
-<p>Intelligence: 17 (+1), Knowledge: 11 (+1), Concentration: 13 (+1), Willpower: 14 (+1), Creativity: 12 (+1), Charm: 17 (+2), Judgment: 14 (+1), Charisma: 17 (+2)</p>
-<p>Other</p>
-<p>Luck: 18</p>
-<p>◆Learning Lv15 [General Skill]: Increases the frequency of knowledge gain when learning. Positively affects the skill proficiency increase of other skills.</p>
-<p>◆Management Lv11 [Special Skill]: Has a positive effect when leading a group of a certain size or more.</p>
-<p>◆Throwing Lv12 [General Skill]: The skill of throwing something, affected by Agility, Nerves, and Concentration stats. Increases projectile damage.</p>
-<p>◆Linguistics - English Lv14 [General Skill]: Converses in English.</p>
-<p>◆Linguistics - Japanese Lv8 [General Skill]: Converses in Japanese.</p>
-<p>◆Star Magic Lv9 [Unique Legacy + Skill]: A vision magic from a distant star that twists the laws to create phenomena.</p>
-<p>◆Command Lv3 [Rare Skill]: Can command in battle. Speeds up the movements of subordinates.</p>
-<p>◆Star Intellect [Unique Legacy Trait]: Increases initial Intelligence by 6 and the effect of Intelligence is increased. The Intelligence limit increases by 2. If the trait  is present, the Intelligence limit additionally increases by 2 and the efficiency of Intelligence is also further increased.</p>
-<p>◆Mental Shield [Epic Trait]: When concentrating, creates a shield with a defense power of 120 percent of the average of mental stats (18.75). The duration is the average of mental stats in minutes (15.625 minutes).</p>
-<p>◆Summoning Contract [Coordinates: 335%7#**56]: Coordinates to contract with a Shadow Panther.</p>
-<p>◆Master of Throwing [Epic Trait]: Becomes a master at throwing things.</p>
-<p>◆Majesty of the Monarch [Unique Trait]: A Charisma stat proportional to Charm is generated. Reduces the betrayal of subordinates and increases loyalty in proportion to the stat. Subordinates follow instructions better.</p>
-<p>◆Cold Reason [Rare Trait]: Can always maintain reason. Has strong resistance to mental attacks.</p>
-<p>◆Star Knowledge [Unique Legacy Trait]: Can twist the laws with knowledge from a distant star.  is registered as a skill. If the trait  is present, the power of Star Magic increases and the consumption of mental power decreases.</p>
-<p>◆Healthy Body [Rare Trait]: Becomes resistant to diseases, and Stamina and Resistance stats each increase by 2 and efficiency increases.</p>
-<p>◆Star Energy Storage [Legacy Trait]: A trait manifested when the skill Star Magic reaches the basic level. Stores star energy in the body. In women, it is stored in the breasts, and in men, it is stored in the muscles of the whole body. When star energy is stored, the power of magic is increased by 30 percent and the consumption of mental power is reduced by 40 percent when casting magic. Different abilities are additionally increased for each part where star energy is stored.</p>
-<p>◆Star Coordinates [ᚱᚣ-ᛢᚾᛊᚳᚳᚣ ##1124ᛢᛊᛉᛩ-8789 ᚺᚣᚳᛜ7] Summon: Summons Seong Baek-gyeon (Star White Dog).</p>
-<p>Oh! As I expected, Han Yu-gyeong's level went up by 2, not 1. Looking at the stats, Strength went up by one on the physical side, and Intelligence, Knowledge, Concentration, and Creativity went up on the mental side, excluding the parentheses. Considering the stats, it's more than just leveling up, but I guess the Knowledge increase isn't from leveling up but from studying hard while I was away. Knowledge can usually only be increased through learning.</p>
-<p>The plus part in the parentheses was that all mental stats increased by 1 due to the Star Cluster Necklace, and Appearance, Charm, and Charisma each increased by one because Han Yu-gyeong's chest got bigger due to Star Energy Storage.</p>
-<p>In the skill section, the levels went up evenly, and a skill called Command was newly created. I guess because my Intelligence stat is high, skill acquisition and leveling up are quite fast.</p>
-<p>"Congratulations! You leveled up twice."</p>
-<p>"Really? Then can I get two abilities?"</p>
-<p>Han Yu-gyeong is super happy when I tell her she leveled up twice. She expected to level up once with this event, but she didn't seem to expect to level up twice.</p>
-<p>"Yeah. You caught so many Mutant Wild Dogs this time, so you leveled up a lot. Should we roll for a trait now?"</p>
-<p>"Yeah, I'm nervous... I hope I don't get something bad."</p>
-<p>In Han Yu-gyeong's case, she didn't have a Yeouiju like me that allowed her to choose twice, so there was a chance of failing in trait selection. However, her Luck stat was a whopping 18, so she got a lot of good traits during trait selection and hasn't failed yet, but she might fail this time. Of course, Luck could work its magic again this time and give her a good trait. Actually, until I possessed her, her Luck stat wasn't very high, so I didn't really know how powerful Luck 18 was.</p>
-<p>Please select a trait.</p>
-<p>①Vampiric Factor ②Summoning - Master of Taming ③Trait Selection X Acquire Random Item</p>
-<p>The first Vampiric Factor was a trait that changed the race like the [XX's Flesh Trait] traits. It's a trait that turns you into a vampire like Otagi Yuka. Except for being weakened under the sun and having to periodically suck blood, all stats are greatly increased and race skills are added, so it's a pretty good trait, but it didn't suit Han Yu-gyeong. The vampire side has magical restrictions, so you can't get anything other than blood magic, and if you become a vampire, you probably won't be able to use Star Magic, which is the foundation of Han Yu-gyeong's abilities. There were far more abilities to give up to get one race ability, so it was better not to choose it.</p>
-<p>The second was Summoning - Master of Taming. Compared to the first trait, it was a trait that suited her current abilities much better. Han Yu-gyeong already had two summons, so this one trait would greatly strengthen her combat power.</p>
-<p>The third was Acquire Random Item without trait selection, which wasn't great when it appeared for me, but it was a decent trait if a character with a high Luck stat like Han Yu-gyeong chose it.</p>
-<p>There were players who covered themselves in all sorts of luck items and kept getting this trait to create an item gacha character. I remember them going around destroying everything while decked out in legendary or mythical items in every slot using save-load skills. I've never done it because I don't like styles where abilities are only strengthened with items.</p>
-<p>Of course, now it's reality, so save-load skills don't exist, so it was a trait I didn't recommend. If you threw away the opportunity to gain the tremendous power of a trait and got a low-level item, there would be no greater loss. Of course, you might get lucky and get a mythical item, but that's like winning the lottery.</p>
-<p>In the end, the only one worth choosing this time was the second, but since Han Yu-gyeong was the one choosing, I explained each one to her one by one.</p>
-<p>"It's kind of interesting to get an item without choosing a trait? Does an item fall from the sky? Hmm... I guess the only one worth choosing is the second one?"</p>
-<p>"Right? Becoming a vampire is a bit much, and in the case of items, we can get them separately."</p>
-<p>Han Yu-gyeong had the same thought as me this time. For reference, if you choose a random item, a cube made of light appears in front of you, and it shines according to the item's grade, and when the light disappears, the item appears as if it had been there from the beginning. Han Yu-gyeong's choice was Summoning - Master of Taming. When I chose the second one, Summoning - Master of Taming was added to Han Yu-gyeong's status window.</p>
-<p>◆Summoning - Master of Taming [Epic Trait]: Increases the probability of taming summoned summons. The tamed summons follow the owner better, all stats of the summons increase by 2, and the efficiency of all stats increases.</p>
-<p>It was a fraudulent trait that increased the probability of taming summoned summons and even increased all stats of the summons by 2, but it was an underrated trait among players because it didn't strengthen the user.</p>
-<p>"Nero, White Bear! Move quickly~!"</p>
-<p>Han Yu-gyeong summoned Nero and White Bear and made them move. It seemed like both summons were flustered because all their stats suddenly increased by 2. They seemed to be light on their feet but couldn't handle their strengthened abilities.</p>
-<p>"It looks like they haven't adapted to their strengthened abilities yet."</p>
-<p>"Then let's let them adapt and choose the next trait."</p>
-<p>"Should we?"</p>
-<p>At my words, Han Yu-gyeong's eyes sparkled as if she was curious about the next trait. I let Nero and White Bear play on their own and opened the next trait selection window.</p>
-<p>Please select a trait.</p>
-<p>①Golden Idol ②Super Strength ③Star's Blessing</p>
-<p>The first Golden Idol was a trait that allowed you to choose a random item gacha in the leveling up trait I just mentioned. In addition, another ability was the ability to enjoy the abilities of equipped items at 150 percent, which was a great ability. It's a fraudulent ability because all equipped items are multiplied by 1.5.</p>
-<p>However, it was a useless ability without items, and there was a big disadvantage that one slot out of the three trait selections would be forced to acquire a random item without trait selection every time you leveled up in the future. It was a very good trait to get at the last level 20. By that time, you would have collected most of the items, so it would be perfect to just take the ability to multiply item abilities by 1.5 at the end.</p>
-<p>The second was Super Strength, which was a trait that simply increased Strength stat, efficiency, and Strength limit, and was only related to Strength. It would be a pretty useful trait for me, who is focused on physical abilities, but it was not very useful for Han Yu-gyeong, who doesn't have to use Strength directly.</p>
-<p>The third was Star's Blessing, which increased the power of all Star Magic and some stats on nights when stars appeared. There was a restriction of night, but the increase was significant, so it was a perfect trait for Han Yu-gyeong, a Star Magician, to choose.</p>
-<p>I feel it again, but the power of Luck was amazing. Both trait selections came out quite well. My Luck stat was only 5, so I was envious of her stat.</p>
-<p>"I guess there's only Star's Blessing, right?"</p>
-<p>"Then I'll choose Star's Blessing."</p>
-<p>After listening to my explanation, Han Yu-gyeong chose Star's Blessing as expected. When she chose Star's Blessing, a mysterious light briefly sparkled around Han Yu-gyeong and seemed to be absorbed.</p>
-<p>◆Star's Blessing [Unique Trait]: A trait that only Star Magic users can obtain. The power of Star Magic is increased by 50 percent and mental power consumption is reduced by 30 percent on nights when stars appear. Concentration, Willpower, Judgment, and Luck stats are increased by 2.</p>
-<p>As expected, it was very good as it was a unique grade, had a restriction as a Star Magic user, and had a time limit. The 50 percent increase in Star Magic power was obviously great, so I'll skip it, and if the mental power consumption reduction was applied together with the 40 percent consumption reduction of the Star Energy Storage trait I originally had, the mental power consumption of Star Magic would be reduced by a whopping 70 percent, greatly increasing combat sustainability.</p>
-<p>The stat increase was that Concentration, Willpower, and Judgment, which are mainly used in combat on the mental side, increased by 2, and Luck, which does not usually increase, also increased by 2. Then I'll have to take traits at night from now on. If Luck goes up by 2, it will be 20, so if I'm lucky, a legendary trait might come out. It might even be possible to get a mythical grade, which doesn't usually come out.</p>
-<p>"Then...!"</p>
-<p>Han Yu-gyeong reached out to me and cast the buff skill, Starlight Tempering. When she reached out, I thought she was going to attack me, but it wasn't, she was giving me a buff. Star's Blessing was a trait that increased the power of Star Magic, not the damage of Star Magic, so the ability of the buff skill, Starlight Tempering, also increased.</p>
-<p>As a result of several movements, the buff ability of Starlight Tempering increased, and even the duration of the buff increased. The duration even increased, so it seemed like Starlight Tempering, the lowest level magic of Star Magic, was the magic that benefited the most.</p>
-<p>----</p>
-<p>I didn't make an illustration today, so I'll just upload one Minamoto Risa SD illustration that I made before, hehe.</p>
-<p>Kawaiineyo hehe</p>
+<p>"Hello, I'm Kurayamada Kirie."</p>
+<p>"Ah, you must be the student teacher who's coming today? I'm Yamashiro Ryuta, the homeroom teacher of the Special Class."</p>
+<p>I turned my head to see a woman in a black suit with straight, hime-cut hair standing there. She was quite pretty, but her glaring gaze made her look like she'd only be popular with a certain demographic (?) that enjoys being looked down on.</p>
+<p>Since she's a student teacher, she must be in her final year of university... so she's probably twenty-four. Even if Daigo Terue chose someone who's the least influenced by the Toyotaka faction, she's still on their recommended list, so I need to be prepared to some extent. She must have come with some kind of secret mission.</p>
+<p>And more than anything, now that I've become a Saint of Martial Arts, my senses have evolved from a master's to a saint's, and I can feel it... this woman, Kurayamada Kirie... she's a considerable expert. I probably wouldn't have sensed it if I still had a master's senses, but now that I have a saint's senses, I can gauge the strength of opponents who are weaker or similar to me, which seems quite useful.</p>
+<p>It's hard to tell because she's covered in a suit and her body type is naturally thin, but the thighs revealed under her skirt were full of elasticity, and the calluses on her palms that were subtly visible suggested that she had likely mastered the sword.</p>
+<p>Even if she was sent by another faction, this position of vice homeroom teacher doesn't require martial prowess, but political power. Is she just someone who learned swordsmanship as a hobby? Or could it be that she was sent to eliminate me on a dark night?</p>
+<p>Of course, she's not a swordswoman on the level of Shimokawabe Airen-sensei, who will be one of the Three Swordsmen of the future, but it was clear that she was a swordsman of considerable skill. I'd have to fight her to know for sure, but the odds of me winning are higher. That's because my stats have increased dramatically recently after eating milk pudding made with Simyeonui ttal's special milk, greatly increasing my power.</p>
+<p>"Ah, please sit here."</p>
+<p>The teacher's preparation room was quite large for me to use alone from the start, so there were many empty desks. I pointed to the seat next to me for Kurayamada Kirie. Kurayamada Kirie nodded and sat down next to me, placing her luggage down. There wasn't really any luggage to speak of. Just a bag that looked like a laptop bag and a tumbler were all of Kurayamada Kirie's belongings.</p>
+<p>"Kurayamada-sensei, what subject are you teaching?"</p>
+<p>I asked what I was most curious about first. I heard about the student teacher coming today through a fax this morning, so I didn't know anything, and I didn't even know what subject she taught yet, so I asked.</p>
+<p>"Japanese Classics."</p>
+<p>Hmm, Japanese Classics... she's teaching a much more important subject than me, a second foreign language teacher.</p>
+<p>"As you know, I teach Korean as a second foreign language."</p>
+<p>At my words, Kurayamada Kirie frowned slightly, so subtly that it was almost imperceptible. Seeing her frown at Korean, it seemed like she wasn't very fond of Korea.</p>
+<p>Well, everyone has their own preferences. But young women usually like Korea. Is she an ultra-rightist or something? Or does she have bad experiences with Korea...? Her reaction is different from other people, so I'm a little curious.</p>
+<p>"Even though it's a Special Class, you don't really have to worry about the kids. They all do well on their own."</p>
+<p>"Is that so?"</p>
+<p>"However, Naruse Shiyo is a bit unwell, so you need to pay attention to her."</p>
+<p>I gave Kurayamada Kirie a rough explanation of our class before the morning assembly. Kurayamada Kirie didn't seem very interested, even though it was the class she would be the vice homeroom teacher for, but she listened to what I said.</p>
+<p>Soon, the bell for the morning assembly rang, and I took Kurayamada Kirie to the Special Class's classroom. At first, the noisy female students quieted down when they saw me, but then they started murmuring, wondering who Kurayamada Kirie was as she followed behind me.</p>
+<p>"Ryuta-cchi! Who is she? Are you introducing your girlfriend to us?"</p>
+<p>"No way!"</p>
+<p>"Sensei is our public property, so you can't have a girlfriend!"</p>
+<p>The class atmosphere became strange as Seizawa Shii said that I couldn't have a girlfriend, but I calmed the students down, saying, "Whoa, whoa."</p>
+<p>By the way, what's with the "public property" thing? Thinking with my perverted brain, if a man is public property, all I can think of is something lewd like a communal dildo. Well, Kujo Kina, who directly said I was public property, probably doesn't think that way at all, but I'm sorry that your teacher lacks imagination.</p>
+<p>"This is Kurayamada Kirie-sensei, who will be our class's vice homeroom teacher as a student teacher starting today."</p>
+<p>"Hello, I'm Kurayamada Kirie. My subject is Japanese Classics. Please take care of me."</p>
+<p>Kurayamada Kirie introduced herself and bowed, just like she did to me. The students clapped, feeling a bit dazed by the sudden appearance of the vice homeroom teacher.</p>
+<p>"Wow~ a new teacher!"</p>
+<p>"Nice to meet you!"</p>
+<p>"Hello~!!"</p>
+<p>Despite the sudden meeting, all the female students in the Special Class welcomed Kurayamada Kirie. My class is full of good kids after all. I watched with a slightly pleased expression as the students introduced each other to Kurayamada Kirie.</p>
+<p>Kurayamada Kirie was quite taciturn, but my class had already honed their communication skills with the taciturn Alik, the cynical Minamoto Risa, and Oofuchi Erika, who was awkward at conversation due to being a former hikikomori with hardly any words, so they didn't mind at all.</p>
+<p>After talking for a while, Seizawa Shii raised her hand as if she had remembered something and asked me.</p>
+<p>"Then what happens to Yogo-chan?"</p>
+<p>"Kijimoto-sensei wasn't originally the vice homeroom teacher, she's just been looking after the Special Class, so she'll just have a little less work to do."</p>
+<p>Seizawa Shii asked about Kijimoto Jurie, who had been acting as the vice homeroom teacher, so I told her that Kijimoto Jurie wasn't the official vice homeroom teacher.</p>
+<p>"Since the second period is Japanese Classics, ask the vice homeroom teacher any additional questions you have then, and I'll end the morning assembly here."</p>
+<p>"Yes~!!"</p>
+<p>"Bye Ryuta-cchi!"</p>
+<p>After the morning assembly, I took Kurayamada Kirie to the nurse's office. It was to introduce Kurayamada Kirie to Kijimoto Jurie. I knocked on the nurse's office, and soon Kijimoto Jurie's voice was heard, saying, "Come in."</p>
+<p>"Ah, Yamashiro-sensei~! Good morning!"</p>
+<p>"Yes, Kijimoto-sensei. We have a student teacher joining our class today, so I wanted to introduce her to you."</p>
+<p>Kijimoto Jurie smiled brightly at me. She was slightly startled when she saw Kurayamada Kirie coming in behind me, but she didn't show it much.</p>
+<p>"Hello, I'm Kurayamada Kirie."</p>
+<p>"Yes, I'm Kijimoto Jurie, the school nurse. Please take care of me."</p>
+<p>The two women made eye contact for a moment, and it felt like sparks were flying. I have no idea what's going on...</p>
+<p>"I'm going to go to the Japanese Classics teacher now. I need to get the kids' progress and materials."</p>
+<p>"Ah, you have class in the second period soon, so you need to prepare! Have a good trip."</p>
+<p>Kurayamada Kirie told me that she was going to go to the Japanese Classics teacher as soon as she greeted Kijimoto Jurie. Since time was definitely tight, I nodded. Kurayamada Kirie bowed again and left the nurse's office.</p>
+<p>"Rumors usually circulate before student teachers come, but this is a sudden appointment."</p>
+<p>"Actually..."</p>
+<p>I thought it would be okay for Kijimoto Jurie to know, so I told her about the circumstances of Kurayamada Kirie becoming the vice homeroom teacher of the Special Class. Kijimoto Jurie seemed angry when she heard that it was due to a factional dispute, and her voice rose slightly.</p>
+<p>"The former homeroom teacher, Nomata Shigemichi-sensei, wasn't a proper person. It's a big mistake for the Toyotaka faction to push such a teacher in and cause an accident, and then, less than two months after the accident, to appoint a vice homeroom teacher to expand their power!"</p>
+<p>Kijimoto Jurie seemed even more angry because she knew the former homeroom teacher well. I heard from several students that the former homeroom teacher, Nomata Shigemichi, wasn't very well-regarded, even if you excluded the sexual harassment he committed.</p>
+<p>He didn't even do the basics (including the morning and after-school assemblies that I do even though I find them annoying), leaving them to Kijimoto Jurie, and on top of that, he was constantly hitting on Kijimoto Jurie, which made me angry just hearing about it. He was ruined by the sexual harassment incident, so I won't see him again, but he was quite the piece of human garbage.</p>
+<p>"Calm down."</p>
+<p>I told Kijimoto Jurie to calm down and gave her the box containing the small electric shocker I bought at the black market yesterday. Kijimoto Jurie's eyes widened and she looked expectant when I suddenly gave her a gift.</p>
+<p>"It's not a gift that women would like... but recently, there was the incident with the history teacher, Ootawa Masato-ssi, so I prepared some self-defense equipment."</p>
+<p>I said it was self-defense equipment in advance, just in case she had excessive expectations. Nevertheless, Kijimoto Jurie was very happy and opened the box. The electric shocker she took out of the box was a small, lipstick-shaped one, and it didn't look like an electric shocker, so it seemed quite useful.</p>
+<p>"Thank you, Ryuta-nim...♥"</p>
+<p>"You're welcome. Then, can I receive a reward?"</p>
+<p>Seeing her call me Ryuta-nim, it seemed like she was horny after receiving a gift from me. I matched Kijimoto Jurie's arousal and asked a question while lowering my zipper.</p>
+<p>Soon, the nurse's office was filled with wet sounds and moans. I was able to get a refreshing few shots off from the morning.</p>
+<p>-----</p>
+<p>Kurayamada Kirie</p>
+<p>Actually, this is her second appearance lol</p>

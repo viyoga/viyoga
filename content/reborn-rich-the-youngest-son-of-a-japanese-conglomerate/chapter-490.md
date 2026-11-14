@@ -5,95 +5,85 @@ weight = 490
 chapter = 490
 +++
 
-<p>"The scores are out!"</p>
-<p>At someone's shout, the special class students who were sitting down for lunch jumped up and rushed out.</p>
-<p>Next to the infirmary, across from the education preparation room, a ranking chart was posted on the bulletin board, boldly labeled '2053 Second Semester Midterm Exam Results.' On the right was a large paper with the school-wide scores, and on the left, a slightly smaller paper with the special class scores.</p>
-<p>The first student to arrive was Seizawa Shii, who was sitting in the very front row today. Otagi Yuka and Sakagami Rena saw Seizawa Shii's speed and their eyes sparkled. Even if she was sitting at the very front of the classroom, being faster than the vampire Otagi Yuka and the ninja Sakagami Rena meant she had considerable athletic ability.</p>
-<p>"Phew~ I barely made 6th place!"</p>
-<p>Seizawa Shii, who was checking her scores, sighed. Seizawa Shii, who was quite smart and had studied hard this time, was confident in being in the top ranks, so she didn't expect to barely scrape into 6th place, which was the rank for which her homeroom teacher, Ryuta-sensei, promised a gift. Still, because she was such a positive person, Seizawa Shii decided to be happy about being in the top 6, rather than being disappointed that her score was lower than she thought.</p>
-<p>"Still, your overall ranking is high."</p>
-<p>Urabe Konoka, who had recently become close to Seizawa Shii, comforted her. Soon after, Minamoto Lisa, who had arrived, looked at the ranking chart with a slightly frustrated expression. Unlike Minamoto Lisa's frustrated expression, Seizawa Shii smiled brightly and congratulated Minamoto Lisa.</p>
-<p>"Lisa-tan~! Congrats on 2nd place!"</p>
-<p>"What's the point of being 2nd in the class.... Taira Kanna is 1st in the whole school, so I can't be completely happy."</p>
-<p>The relationship between the Tairaga and Minamoto families was so famous that all of Japan knew about it, so Minamoto Lisa, as a member of the Minamoto family, couldn't happily enjoy her score. That's because Taira Kanna, the object of comparison, was ranked 1st in the entire school.</p>
-<p>"Being the student council Chairman and 1st in the whole school, Taira Danjo-ojisan must be happy."</p>
-<p>Seizawa Shii muttered while looking at the ranking chart. Because she belonged to the Seizawa family, which competed for the top spot in Japanese politics, she had met Taira Danjo before.</p>
-<p>"Hmph, Taira Danjo probably won't be that happy. He thinks the Tairaga should naturally be the best."</p>
-<p>Minamoto Lisa sneered, but the students next to her couldn't take sides or object, and just looked at the ranking chart. They thought that if they added a word, they might suffer damage to their family or themselves personally.</p>
-<p>"Alik, I got first place.... From the bottom...."</p>
-<p>"Still, it's a relief you're not first from the bottom in the whole school!"</p>
-<p>Alik opened his mouth with a gloomy expression while looking at the ranking chart, but Konoe Akina comforted him. Alik was very disappointed, but Konoe Akina sincerely thought it was a good thing.</p>
-<p>Alik, who had been held captive by slave traders for a long time, lacked the basics, so he thought he would be at the bottom of the whole school, but he was quite smart and attended study groups every day without fail, so he achieved the feat of being 10th from the bottom, let alone the bottom of the whole school.</p>
-<p>Because the average level of Saint Francisco Girls' Academy was high, she thought that maybe he wouldn't have to take extra classes with this score. Of course, what was more important than the ranking in the additional test was whether the score for each subject exceeded the failing grade or not, so she couldn't rest assured.</p>
-<p>In the first place, Alik's goal was to avoid the additional test, so he would only know the desired result when the exact score came out.</p>
-<p>"You can do better on the final exam. Got it?"</p>
-<p>"Yes...!"</p>
-<p>Konoe Akina comforted Alik while checking her own score. She was 4th in the class and 8th in the whole school.</p>
-<p>Since she was already the head of the Konoe family, Konoe Akina wasn't under much pressure about her grades. If her grades were too low, her mother, who was acting as the family head until she graduated, would be disappointed, but that didn't mean her position in the family would be lowered, so she didn't have the motivation to study hard.</p>
-<p>However, as a result of studying hard because of the sweet fruit of a gift date if she was in the top 6, which was offered by her homeroom teacher Taira Ryuta, she was able to achieve the score of 4th place. If it was another class, it would have been a score of about 2nd or 3rd place, but there were many smart students, making the name of the special class pale in comparison, so she received this score.</p>
-<p>'Finally, a date with Ryuta-sensei...♥'</p>
-<p>Konoe Akina's face was flushed with her index finger on her blankly opened mouth. Konoe Akina's true intention was to advance not only the date but also more than that this time. Before she knew it, scenes that minors couldn't watch were slowly playing in Konoe Akina's imagination.</p>
-<p>"Akkina.... Where, are you sick?"</p>
-<p>Konoe Akina, who had been comforting him, suddenly blushed and made a dazed expression, so he tilted his head and looked at her with an innocent expression.</p>
-<p>"Ah, no...! By the way, Otagi also made it into the top 6."</p>
-<p>"Hehe, this much is easy!"</p>
-<p>Otagi Yuka was 5th, right behind Konoe Akina. Otagi Yuka was planning to receive Taira Ryuta's healthy white liquid as a gift in the glass bottle she had received from her previous homeroom teacher and fill it to the brim.</p>
-<p>"Shido-cchi and Fuchi-cchi studied together, so they both made it into the top 6?"</p>
-<p>Seizawa Shii spoke to Oofuchi Erika and Shido Tsubaki, who were looking at the ranking chart with satisfaction. For reference, Fuchi-cchi was the nickname Seizawa Shii called Oofuchi Erika, and Shido-cchi was Shido Tsubaki.</p>
-<p>Oofuchi Erika didn't like the nickname because the 'cchi' in Fuchi-cchi sounded similar to 'chichi' (ちち), which means breasts, but she was too shy to say anything to Seizawa Shii, true to form for someone who used to be a hikikomori.</p>
-<p>"Congrats on 1st place."</p>
-<p>"U-un, thank you."</p>
-<p>"Aren't you going to congratulate me on 3rd place?"</p>
-<p>Minamoto Lisa congratulated Oofuchi Erika, who was ranked 1st in the class. Shido Tsubaki pushed up her glasses and appealed to Minamoto Lisa that she was in 3rd place, but Minamoto Lisa just smiled.</p>
-<p>Minamoto Lisa wasn't really sneering, and they were both class president and vice president, so they were quite close, so she was just joking.</p>
-<p>"I thought you'd feel bad if someone with a higher rank than you congratulated you."</p>
-<p>"Hmm, that's true."</p>
-<p>Shido Tsubaki nodded, saying that Minamoto Lisa's words seemed right. In this way, the students who had high ranks were excited, but the rest of the students who didn't make it into the top 6 quietly returned to their seats.</p>
-<p>"No! I worked hard this time...! I was going to go to the department store with Ryuta-sensei and ask him to buy me exercise equipment~!!"</p>
-<p>Of course, there were also students like Kujo Kina who couldn't accept their scores and caused a ruckus. Kujo Kina was wildly venting her anger by swinging her fists in the air.</p>
-<p>"What's all the commotion? Class is starting, so hurry up and go in!"</p>
-<p>Kujo Kina's rampage was ended by her homeroom teacher, Yamashiro Ryuta, who had belatedly finished his meal. Kujo Kina shouted 'Damn it!' and went into the classroom.</p>
-<p>###</p>
-<p>How bad is Kujo Kina's score that she's so angry? I checked the ranking chart that the students were looking at.</p>
-<p>Special Class Midterm Exam Ranking.</p>
-<p>Top. Oofuchi Erika.</p>
-<p>Runner-up. Minamoto Lisa.</p>
-<p>3rd place. Shido Tsubaki.</p>
-<p>4th place. Konoe Akina.</p>
-<p>5th place. Otagi Yuka.</p>
-<p>6th place. Seizawa Shii.</p>
-<p>7th place. Saionji Diana.</p>
-<p>8th place. Urabe Konoka.</p>
-<p>9th place. Sakagami Rena.</p>
-<p>10th place. Naruse Shiyo.</p>
-<p>11th place. Kujo Kina.</p>
-<p>12th place. Uenozono Karen.</p>
-<p>13th place. Egawa Alexandra.</p>
-<p>Hmm.... 11th place and she's that disappointed? By the way, Kurayamda Kirie's prediction was right.</p>
-<p>I predicted Shido Tsubaki would be 2nd, but Kurayamda Kirie said Minamoto Lisa would be 2nd. I'm glad I didn't make a bet. If I lost the bet, I don't know what Kurayamda Kirie would ask for.</p>
-<p>"Oofuchi, congrats on 1st place."</p>
-<p>"Fa...! No, Ryuta-sensei! Thank you."</p>
-<p>Oofuchi Erika, who had just taken 1st place, happened to be standing next to me, so I congratulated her, and it seemed like she barely managed to stop herself from calling me dad again. Even if I'm having sex with Daigo Terue, who is Oofuchi Erika's godmother, dad.... I'm not planning on having children yet.</p>
-<p>"Minamoto, congrats too. 2nd place. And 3rd place in the whole school.... You worked hard."</p>
-<p>"It's a meaningless score if I can't beat Taira Kanna."</p>
-<p>Minamoto Lisa seemed happy with my praise, but soon hardened her face and shook her head. I listened to Minamoto Lisa's words and checked the school-wide scores, and Taira Kanna was really in 1st place.</p>
-<p>It's not a prestigious school for studying, but 1st place at Saint Francisco Girls' Academy, which has a high overall level, means my aunt is amazing.</p>
-<p>"Okay, we'll talk about the rankings during the after-school meeting, so everyone go back now. Class is really starting soon!"</p>
-<p>The next class's teacher would be arriving soon, so I sent the students who were still whispering about the rankings back to class.</p>
-<p>"What rank did Kurayamda-sensei get when you were in school?"</p>
-<p>"I never got 1st place."</p>
-<p>If she didn't get 1st place, does that mean she got 2nd or 3rd place? Certainly, if she's a graduate of Saint Francisco Girls' Academy, she didn't go to Saint Francisco Women's University, which anyone can go to, but went to Haseda University, which can be said to be a prestigious university, so she must have studied quite well.</p>
-<p>"But if you're giving gifts to the top 6, it'll cost at least 120,000 yen, aren't you worried?"</p>
-<p>Kurayamda Kirie asked with a slightly worried expression, remembering that I said I would give the students gifts worth 20,000 yen. She looked like she was about to open her wallet right away if I said I was short.</p>
-<p>"The Yamashiro family may be at the tail end of a prestigious family, but we have enough money. Why, do you want to get a gift too, Kurayamda-sensei?"</p>
-<p>"Rather than a gift that costs money...."</p>
-<p>Kurayamda Kirie looked at me and slightly lifted her skirt. It seemed like she meant she wanted to receive the gift with her body.</p>
-<p>"Okay. Shall we go to the gym storage as usual?"</p>
-<p>"Neehee...♥"</p>
-<p>She's really a pervert. Anyway, we both don't have class today, so it seems like it doesn't matter if we have sex until the after-school meeting.</p>
+<p>"Where should we go?"</p>
+<p>"Come this way."</p>
+<p>To my question, Minamoto Risa grabbed my wrist and pulled me along. It seemed she had already decided where to go. Well, that makes it easy for me. We headed away from the downtown area where Miyashi's only department store, Miya Prime Mall, was located, and into a more back alley area.</p>
+<p>"The downtown area near the department store is usually frequented by students from St. Francisco Girls' Academy, so it's expensive, and Miyashi Municipal High School students don't really go there."</p>
+<p>Aha, so that's why I didn't see many Miyashi Municipal High School students. I did occasionally see students from Miyashi Municipal High School dressed like Minamoto Risa near the downtown area around Miya Prime Mall, but there were definitely more students from St. Francisco Girls' Academy.</p>
+<p>I wondered where the Miyashi Municipal Middle and High School students, who were co-ed and had a much larger student body, were gathering, but it seemed they had another place to hang out. The back alleys were full of slightly shabbier shops than the ones I usually went to in Miyashi, as well as sticker photo booths, VR game rooms, internet cafes, and food franchises that were popular in Tokyo, all catering to students.</p>
+<p>There were more and more Miyashi Municipal High School students dressed like Minamoto Risa in the alley. Of course, with Minamoto Risa's looks, she stood out even in the Miyashi Municipal High School uniform. I couldn't help but think that Minamoto Risa was the prettiest of all the people wearing Miyashi Municipal High School uniforms here. And with me there too, we were bound to attract even more attention.</p>
+<p>Thinking about it, to others, both Minamoto and I probably looked like delinquent students with our blonde hair and tanned skin. I wonder if we'd be called a "golden sun" couple?</p>
+<p>"So, what are we going to do here?"</p>
+<p>"We're going there."</p>
+<p>To my question, Minamoto Risa pointed to an internet cafe. An internet cafe was a place that combined the feel of a Korean PC bang and a book cafe, and I was quite surprised that Minamoto Risa wanted to go there. She doesn't look like she'd be interested in this kind of thing at all...</p>
+<p>"...What!"</p>
+<p>Minamoto Risa reacted sensitively to my questioning gaze, as if she had been caught doing something.</p>
+<p>"Are you into computers? Or manga?"</p>
+<p>"...Manga. Reading manga has been a hobby of mine since I was little."</p>
+<p>I see. Now that I think about it, the manga I used to read before I was possessed must be finished by now, right? Of course, I don't know if that manga even exists in this world. I should enjoy myself since I came here with Minamoto Risa.</p>
+<p>Ttalang!</p>
+<p>As we opened the door and entered the internet cafe, the bell on the door rang. A female clerk standing at the counter looked at us, hearing the bell. The clerk looked quite young, probably a high school part-timer.</p>
+<p>"Welcome... Oh?! Risa-ssi! Long time no see, imnida!"</p>
+<p>"Yeah, it's been a while."</p>
+<p>The clerk and Minamoto Risa seemed to know each other, and they exchanged greetings. Then, the clerk narrowed her eyes and looked at me.</p>
+<p>"Risa-ssi, is this him, perhaps?"</p>
+<p>The clerk asked, raising her pinky finger, and Minamoto Risa blushed slightly and nodded shyly. Minamoto Risa took care of setting the time and paying, and then turned around, her face expressionless as if she had never blushed at all.</p>
+<p>"Don't worry about it, I just didn't want to bother explaining."</p>
+<p>Her acting is amazing. Just now, she looked like a shy but pure gyaru in love. Now, she's as cold as can be. She looked colder than usual, as if telling me not to misunderstand. At this point, I'm sure she has an acting skill in her stat window.</p>
+<p>Our seats were in a booth divided by partitions where we could comfortably stretch our legs. Since it was divided like a room, there must be a lot of guys who have sex here. Of course, nothing like that will happen between Minamoto Risa and me today, but it's a little disappointing.</p>
+<p>"Do you like manga?"</p>
+<p>Minamoto Risa usually calls me "Sensei," but she probably just calls me "you" because everyone can hear us, even with the partitions.</p>
+<p>"Yeah, I especially like classic works."</p>
+<p>Since it's 2053 now, I figured the manga that existed before I was possessed would be considered classic works, so I said I liked classic works. Minamoto Risa slightly raised the corners of her mouth, as if she liked my answer.</p>
+<p>"Really? Then you can look at this. We don't have enough space to keep all the classic works in books, so we use tablets these days."</p>
+<p>When Minamoto Risa heard that I liked classic works, she pulled out a tablet hanging on one wall and handed it to me. When I turned on the tablet, it automatically connected to the internet cafe's app, and a screen with a search bar and recommended books appeared, where I could search for books.</p>
+<p>"I paid for the drink bar too, so let's go get a drink first."</p>
+<p>Just as I was about to search for something to read, Minamoto Risa stood up and said. A drink bar sounds good. I followed Minamoto Risa to the drink bar. As expected of a paid service, there were quite a lot of options.</p>
+<p>I went with a safe choice, melon soda, while Minamoto Risa, a matcha lover, chose a matcha frappuccino. The drinks came out quickly, and we took them back to our seats.</p>
+<p>Minamoto Risa also seemed to like classic works, as she picked up a tablet instead of choosing a book from the shelves outside.</p>
+<p>I also picked up a tablet and sat down, searching for some of the manga I used to read. As expected, they were all finished, since so much time had passed. ○ Piece was also finished, so I clicked on it and started reading from where I left off.</p>
+<p>I glanced at Minamoto Risa sitting next to me, and she was reading ○ Punch Man. Of course, since I was bigger, I could clearly see Minamoto Risa's cleavage.</p>
+<p>"What are you looking at?"</p>
+<p>Minamoto Risa asked, sensing my gaze.</p>
+<p>"I was just curious about what you were reading... I used to enjoy ○ Punch Man a lot too."</p>
+<p>I couldn't honestly say that I was looking at her cleavage, so I changed the subject to ○ Punch Man. Minamoto Risa smiled brightly at my words. She looked like she was happy to see a comrade.</p>
+<p>"Ah! You've seen ○ Punch Man? Who do you like the most?"</p>
+<p>This is the first time Minamoto Risa has shown me this kind of reaction. It seems like she's quite lively when it comes to topics she likes.</p>
+<p>"Of course, the main character..."</p>
+<p>"Right? Of course, in ○ Punch Man, the main character, Saitama... He solves everything in one punch like a deus ex machina..."</p>
+<p>I didn't know she was so talkative. Minamoto Risa was talking to me for a long time, then she suddenly realized something and turned her head.</p>
+<p>"Sorry...! Was I too excited?"</p>
+<p>"No, it was quite fun? And I think similarly to you."</p>
+<p>Minamoto Risa looked relieved at my words and turned her gaze back to the tablet. I also started looking for the episode I was reading before I was possessed on my tablet.</p>
+<p>By the way, a gyaru otaku who likes manga? This information wasn't even in the information team's report. This is supposed to be a mission to capture Minamoto Risa, so shouldn't they have investigated her hobbies?</p>
+<p>While thinking about the Taira information team, I found the part I was reading. Hmm...! The content was almost the same as what I was reading, but the very detailed settings were slightly different. 95 percent similar, but 5 percent different? Still, the main plot was similar, so it didn't hinder my reading.</p>
+<p>As expected, this place didn't seem to be the future of my old world. The similar content made it feel like a parallel world. But the manga was fun, and the curiosity about what would happen next made me put aside my thoughts about this world and continue to focus on the manga.</p>
+<p>I was concentrating on the manga when Minamoto Risa tapped me on the shoulder.</p>
+<p>"Yeah?"</p>
+<p>"Our reserved time is up."</p>
+<p>"Ah! Really? Time flies so fast."</p>
+<p>I was so engrossed in the manga that I hadn't realized how much time had passed. I looked at the time as Minamoto Risa said, and it was already almost dinner time. It was a little after 6 o'clock, so it seemed Minamoto Risa had reserved 2 hours.</p>
+<p>"What should we eat for dinner?"</p>
+<p>"Hmm... Let's go with that."</p>
+<p>When I asked after leaving the internet cafe, Minamoto Risa pointed to a place. Minamoto Risa had chosen a tonkatsu restaurant.</p>
+<p>"This place is good."</p>
+<p>Minamoto Risa had decided where we would go, and it seemed she had planned the places to go for our date in advance. Both the internet cafe and the tonkatsu restaurant we came to now were chosen without hesitation, so she must have thought about it beforehand. It seemed like she either liked to take the lead on dates or was a very prepared person.</p>
+<p>We ordered the assorted cutlet set (I ordered a double portion) and waited for our food. Minamoto Risa sat across from me and opened her mouth, looking at me.</p>
+<p>"A lot of people have tried to get close to me, but you're the first person who didn't get bored at the internet cafe. Everyone lied and said they liked manga, but after an hour or two, they got really bored. Shii honestly said she didn't like reading."</p>
+<p>So that's why she was friends with Seizawa Shii. I guess it's better to be honest and say you don't like something than to lie.</p>
+<p>"Still, isn't it because you're attractive that those people lied and wanted to get close to you, Minamoto? Don't think too badly of them."</p>
+<p>"They don't want to get close to me, they're after my body."</p>
+<p>Minamoto Risa said sarcastically at my words. Well, Minamoto Risa was attractive. She had a pretty face and a great body, so it would be strange if a man didn't have lewd thoughts.</p>
+<p>"Here's your assorted cutlet set~! Enjoy your meal."</p>
+<p>I also had lewd thoughts about Minamoto Risa, so it wouldn't be beneficial for me to continue this conversation, and fortunately, the food we ordered came out.</p>
+<p>"Hmm...! This is really good?"</p>
+<p>"Right? I'm glad you like it."</p>
+<p>Minamoto Risa was happy when I ate the tonkatsu in an exaggerated way and said it was delicious. It was actually really delicious. The tonkatsu was delicious, as highly praised by Minamoto Risa, who had eaten all kinds of good food as the young lady of the Minamoto family.</p>
+<p>"By the way, what kind of gift do you want?"</p>
+<p>"Hmm... I don't really want anything? Actually, I was just preparing for exams and hadn't read manga in a while, so I came to the internet cafe because there was a date... no, an event with you. We both had a pretty good time reading, so I'm satisfied with that."</p>
+<p>Minamoto Risa seemed to not really want a gift, as she was satisfied with what happened at the internet cafe just now. Hmm... I still want to give her something.</p>
+<p>I finished my meal faster than Minamoto Risa, even though I had more, so I secretly touched my phone. I turned on the Dark Web app and requested something from Eve.</p>
 <p>----</p>
-<p>Akina B-cut</p>
-<p>She's cute, but she suddenly has short twin tails, so she was eliminated...!</p>
-<p>Alik tilting his head at Akina</p>
-<p>"Akkina.... Where, are you sick?"</p>
-<p>She looks like she's embarrassed about something, so it's cute, so here's a cut!</p>
+<p>Alik at the amusement park for Children's Day!</p>
+<p>Alik in kindergarten uniform!</p>
+<p>Alik from another school!</p>

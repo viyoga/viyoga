@@ -5,95 +5,94 @@ weight = 774
 chapter = 774
 +++
 
-<p>"I heard you were off sick yesterday, are you feeling a bit better?"</p>
-<p>"Korean language Teacher-nim~! Are you okay?"</p>
-<p>"I'm better now. Thank you for your concern."</p>
-<p>I, who had returned to work after just one day, received worries from many people. I came to the special class building, receiving greetings and concerns about my well-being from the Security Guard at the school's main gate, with whom I usually made small talk, and from the Female Students who were arriving early for school.</p>
-<p>"First, there are no faxes that have come in...."</p>
-<p>I, who had come to the education preparation room, checked the faxes, placed my luggage in my seat, then left the education preparation room again and headed towards the Infirmary across the hall.</p>
-<p>Ttok-ttok</p>
-<p>"Yes~!"</p>
-<p>As I knocked on the door, Kijimoto Jurie's gentle Voice was heard. Kijimoto Jurie Teacher-nim is diligent too. Even though she's an infirmary Teacher-nim with less Work than the Class Teacher, she comes to work earlier than me.</p>
-<p>I opened the Infirmary door and entered. Upon entering the Infirmary, Kijimoto Jurie was there, busily working, typing away on a keyboard.</p>
-<p>"What are you doing?"</p>
-<p>"Ah, Ryuta Teacher-nim...! I'm writing a Paper/Thesis."</p>
-<p>A Paper/Thesis? I glanced at the computer Screen and saw content that looked incredibly professional. It was written about some kind of infection by pathogens or something, did Kijimoto Jurie have other degrees besides being a Doctor? By the way, isn't research on infection by pathogens a bit dangerous?</p>
-<p>In fact, to become a health Teacher, one only needs to complete the infirmary Teacher course at a college of education or obtain the infirmary Teacher qualification at a nursing university, but this is St. Francisco Girls' Academy, Japan's top Noble girls' school. Naturally, due to the belief that a Young Lady of a prestigious family cannot be entrusted to a nurse, Kijimoto Jurie, who holds a Doctor's license, is in charge of the special class infirmary Teacher, and the other infirmary Teacher-nims also hold Doctor's licenses.</p>
-<p>"Jurie Teacher-nim, do you have another Major?"</p>
-<p>"Yes. It's in the same medical field, but I'm double majoring in clinical microbiology. Actually, the reason I came to St. Francisco Girls' Academy was because I thought I'd have the leisure to write a Paper/Thesis."</p>
-<p>Ah, so that's how it was. In fact, all I had done with Kijimoto Jurie until now was either lunch or Sex, so I didn't know many facts about her. To be a Doctor and also study a new Major, she was quite a talented individual. I didn't know that.</p>
-<p>"I came to the Infirmary to thank you for covering for me yesterday. Thank you, Jurie Teacher-nim."</p>
-<p>"Ah! That's right. Are you okay? Are you hurting somewhere?"</p>
-<p>At my thanks, Kijimoto Jurie, as if remembering I had taken sick leave yesterday, touched my forehead and looked at me with an Expression full of worry. Although I said I was fine, her worried Expression still hadn't disappeared.</p>
-<p>"It's fortunate that you don't seem to have a fever. Please sit on the bed, Ryuta Teacher-nim."</p>
-<p>Kijimoto Jurie took out a stethoscope, telling me to sit on the bed. In fact, I hadn't taken sick leave because I was sick. Taira Kanna had taken sick leave on her own accord, but since I couldn't tell Kijimoto Jurie that I had been Kidnapping, I sat on the Infirmary bed as Kijimoto Jurie instructed.</p>
-<p>Cheolk-keok.</p>
-<p>But why is she locking the door? As I stared intently, Kijimoto Jurie opened her mouth as if making an Excuse, her Face slightly flushed.</p>
-<p>"To examine you with a stethoscope, Teacher-nim would have to lift your top, and I'm worried the Students might misunderstand."</p>
-<p>Ah, I see. Right, if I were shirtless, Seizawa Shii, who might suddenly burst in, would probably say, 'Ryuta-jji, is that Exhibitionism?!' or something.</p>
-<p>"Please lift your top."</p>
-<p>"Yes."</p>
-<p>I lifted my top as Kijimoto Jurie instructed. I had left my coat in the education preparation room, and since I was wearing a sweater, I just had to lift both the sweater and the short-sleeved T-shirt I was wearing underneath at once.</p>
-<p>"Haa...."</p>
-<p>I didn't know why she let out a deep Sigh after looking at my Body, but soon Kijimoto Jurie placed the stethoscope on my breast.</p>
-<p>The cold feeling of the stethoscope gave me Goosebumps, but Kijimoto Jurie, without any trace of her previous Arousal, listened to the sounds through the stethoscope with a serious Attitude.</p>
-<p>"Haa, haa, haa...♥"</p>
-<p>As if my description of her serious Attitude just now was a lie, this time Kijimoto Jurie clearly showed signs of Arousal, beginning to Stimulate my nipple with the stethoscope.</p>
-<p>"Uhm, Teacher-nim?"</p>
-<p>"Heueu, with the stethoscope, you seem fine... but I think a more precise diagnosis might be necessary♥"</p>
-<p>A "precise diagnosis" wouldn't be a medical examination involving my yukbong deep inside Kijimoto Jurie Teacher-nim, would it? I suddenly checked the clock and saw that only about 10 minutes were left until morning assembly.</p>
-<p>"I really want to receive the precise diagnosis from Jurie Teacher-nim, but there are only 10 minutes left until morning assembly."</p>
-<p>"Ah...."</p>
-<p>Kijimoto Jurie was very disappointed by my Words. It seemed certain that the "precise examination" Kijimoto Jurie mentioned was exactly what I had just thought of. Even if she was disappointed, there was nothing to be done. It's not like I could skip my morning schedule just for Sex.</p>
-<p>"I also have Work during the first class, so that won't work.... I'll stop by the Infirmary during the second class. I can get the precise examination then, right?"</p>
-<p>"O-of course!"</p>
-<p>After postponing the precise examination (?) to the second class and appeasing Kijimoto Jurie, I asked if there had been any special incidents yesterday, but there were none.</p>
-<p>"Then, I'll see you during the second class."</p>
-<p>"Yes, I'll be waiting for youuu♥"</p>
-<p>Kijimoto Jurie's Gaze had become completely Obscene, making it seem like writing her Paper/Thesis during the morning was already out of the question.</p>
-<p>I, who had left the Infirmary, stopped by the education preparation room for a moment to pick up the Attendance Book and tablet used for checking attendance, then headed towards the special class Classroom.</p>
-<p>"It's been a while."</p>
-<p>Although it had only been one day since I hadn't come to school, I was glad to see the Students, so I greeted them with "It's been a while."</p>
-<p>"It's only been one day, did you miss us?"</p>
-<p>"Yeah, because my Body was sick, I missed our special class troublemakers. Usually, they're a pain, you know."</p>
-<p>"Ah~! What the, Ryuta-jji! That's too much!"</p>
-<p>"Still, it's fortunate that you missed us even when you were sick!"</p>
-<p>I stood at the Podium, exchanging Comic dialogue with the special class Students. There was no need to call attendance, as everyone was present.... There were no specific announcements from the school, but there was an announcement just for our class. It was about the ski resort Travel coming up next week.</p>
-<p>"You know we're using the one-day Vacation pass we got from winning the sports competition to go to the ski resort next Friday, right?"</p>
-<p>"Ah, that's right!"</p>
-<p>"That sounds fun~! Ryuta-jji, are you good at skiing?"</p>
-<p>"Alik, snow.... I'm used to it."</p>
-<p>Since we were planning to use the Vacation pass next Friday, finish academy on Thursday, and then depart for a 3-night, 4-day ski resort Travel from Thursday to Sunday, I had to tell the Students in advance to submit their Vacation passes.</p>
-<p>"Since you need to use a Vacation pass to go on the ski resort Travel, please submit your Vacation pass today if possible. You can submit it up to three days before, but you might forget after the Weekend."</p>
-<p>"Got it~!"</p>
-<p>"Okay!"</p>
-<p>"I'll definitely submit it, Teacher-nim...!"</p>
-<p>Perhaps because it had been a long time since the class went out together, the Students looked very excited. Of course, Uenozono Karen, who was planning to use her Vacation pass for Entertainment Industry engagements, had a regretful Expression because she couldn't join her Friends.</p>
-<p>"Then, I'll make the ski trip plan today, so everyone gather in the club room after school, okay?"</p>
-<p>When Minamoto Lisa, as Class president, said she would make the plan, everyone nodded their Head in understanding.</p>
-<p>"Of course, you, as the Class Teacher and the one with Responsibility, will also participate."</p>
-<p>"Of course. I won't miss it today."</p>
-<p>Since I had Work for a few days and couldn't attend whatever was happening in the club room after academy, Minamoto Lisa told me with a stern Expression that I shouldn't miss it this time. Since I didn't have any particular appointments today, I nodded my Head.</p>
-<p>"Then.... Study hard today, and I'll see you when school ends."</p>
-<p>Having delivered all the announcements for today, I greeted the Students and exited the Classroom. I returned the attendance tablet I had brought to the Classroom to the education preparation room and then left the special class building.</p>
-<p>The Place I was going was the Student Council building. At that time, I had lost my phone while losing consciousness, and Taira Kanna said she was keeping my phone. I was on my Road to retrieve it.</p>
-<p>"Hello, Yamashiro Teacher-nim. The Student Council President is waiting for you."</p>
-<p>Seeing me, the disciplinary committee members greeted me and opened the door. "The Student Council President is waiting for you," they said.... It seemed they no longer had any intention of hiding that they were the Student Council President's subordinates.</p>
-<p>Perhaps when Taira Kanna Graduates, the disciplinary committee Students will go with Taira Kanna. I took the elevator to the floor where the Student Council Room was located, and upon entering, only Taira Kanna was waiting for me, smiling. Had the other Student Council Students gone to class?</p>
-<p>"Welcome, Orabeoni. Did you come because you missed me?"</p>
-<p>"I miss my phone more than you...."</p>
-<p>"Fufu, your shyness remains unchanged♡ You're cute, Orabeoni."</p>
-<p>"I've hidden your phone on my Body. Try to find it, Orabeoni♡"</p>
-<p>I wondered why the Student Council Students weren't there, but it seemed it was to play such an Erotic Prank. Hmm, where did she hide the phone...? It was pretty obvious, actually. It would be one of two places.</p>
-<p>I strode purposefully towards Taira Kanna. And extended my hand. What I chose was the Button of Taira Kanna's School Uniform Shirt. I was going to search inside her Cleavage, thinking, 'Surely she wouldn't have put it inside her Pussy, would she?'</p>
-<p>"...♡ What is it suddenly, Orabeoni~! Aren't you being too Erotic?"</p>
-<p>As I unbuttoned all the Buttons, Taira Kanna's Cleavage became visible. But my phone was not tucked between Taira Kanna's breasts as I had expected.</p>
-<p>Surely not.... Did she really "store" it down there? At my Astonishment Expression, Taira Kanna chuckled softly. Taira Kanna's Hand moved down towards her skirt and went into her pocket. In Taira Kanna's beautiful Hand, which emerged from her pocket, was my smartphone.</p>
-<p>"Orabeoni, Byeontae...♡"</p>
-<p>I had been completely fooled by Taira Kanna's Wordplay. It seemed Taira Kanna was the only Woman who could Mockery me like this.</p>
-<p>Minamar2-nim requested a Gyaru Illustration of Minamoto Lisa before Tanning!</p>
-<p>When I first made it, I thought, "Huh? Why does it feel different?" but then I realized that the settings had changed after updating the AI Program ㄷㄷㄷ The Furisode Illustration of Lisa-ttang in the recently uploaded oejeon was also different from the usual feeling because of that ㅠㅜㅠ</p>
-<p>So, here's the re-made Lisa-ttang White Gyaru image~!</p>
-<p>Gyaru Peace~!</p>
-<p>A slightly more daring Gyaru Lisa-ttang in Miyashiro Municipal High School Uniform~!</p>
-<p>Kkiyoo-oot, I liked them so much I made a lot of them ///////.</p>
+<p>"Are those guys perhaps...."</p>
+<p>"That's right."</p>
+<p>The Students of the Chiba University International Politics Discussion Club whispered quietly as they watched the St. Francis Girls' Academy Students sitting at the long table.</p>
+<p>At first, they merely admired the Students' beautiful Beauty, but soon realized they had seen the St. Francis Girls' Academy Students somewhere before.</p>
+<p>If they were ordinary People, there was a Possibility they wouldn't know, but they were International Politics Discussion Club Students. They did a lot of research on various overseas incidents for discussions, and the most impactful overseas incident recently was precisely Southern China's New Nanjing City Cyber Zombie Incident.</p>
+<p>The girls sitting at that long table and the blonde Tanning Teacher were precisely the protagonists who had been in the middle of Southern China's New Nanjing City Cyber Zombie Incident.</p>
+<p>They were the unfortunate Female Students who got trapped in the middle of Cyber Zombies while on a graduation trip, and with the leaked battle video, they were also the Opportunity for TG Tech's energy guns to become globally popular, and currently, they were also the parties involved in the incident that had extremely heightened the tension between Northern China and Southern China.</p>
+<p>"They're all so pretty, I thought about trying to hit on them, but if I make a mistake, my head might fly off like a Zombie's, huh?"</p>
+<p>Itsu Tomohiko, a somewhat flashy-looking Male Student, said with a hint of regret.</p>
+<p>"Stop it. All those girls are Young Ladies of noble Families, do you think they'd fall for you trying to hit on them?"</p>
+<p>Suzuki Soki, the Club President of the Chiba University International Politics Discussion Club, who had just gone to greet the St. Francis Girls' Academy table, said with a slight sneer. Itsu Tomohiko, with his flashy Appearance and the bluff of trying to hit on any Woman, was a guy full of bravado, but in reality, his success rate was extremely low.</p>
+<p>"Yeah~! Don't go there for nothing, saying strange things and just getting humiliated, stay still, Tomohiko!"</p>
+<p>Nakamura Shunna, the Vice President of the Chiba University International Politics Discussion Club, who had gone to greet the St. Francis Girls' Academy table with Suzuki Soki, also scolded Itsu Tomohiko to stay still.</p>
+<p>"That's right, Tomohiko's Buttocks are too Light~! Whenever he sees a Woman, he approaches, saying, 'Should I try to hit on her?'!"</p>
+<p>Hiragami Noyu, a Female Student who had been friends with Itsu Tomohiko since childhood, also scolded Itsu Tomohiko, following the Club President and Vice President.</p>
+<p>"You know I get even more fired up when you tell me not to, right? Besides, if she's a Daughter of a noble Family, if I play my cards right, won't my Life blossom?"</p>
+<p>Despite the Club President, Vice President, and even his childhood friend trying to stop him, Itsu Tomohiko's Eyes were already burning brightly with enthusiasm.</p>
+<p>"Anyway.... Thank you once again, Tanaka. Thanks to you, we got to come to such a luxurious VIP Resort. Furthermore, since we could see the People who were at the center of the New Nanjing Incident, which recently became the most talked about Topic, as the Club President, I'll express my gratitude once again."</p>
+<p>Ignoring the unreasonable Itsu Tomohiko, it was Suzuki Soki expressing gratitude to Tanaka Norio, a quiet man with Glasses who had acne on his cheeks.</p>
+<p>While Suzuki Soki, as the Club President, was worrying about where to go for a club event before the new semester began, Tanaka Norio brought a VIP accommodation ticket, allowing them to unexpectedly come to the ski resort to play at a cheap Price.</p>
+<p>It was unexpected that Tanaka Norio, who was usually quiet and introverted, brought the accommodation ticket, but thanks to that, they could go on a trip cheaply, so they didn't pay much attention.</p>
+<p>Tanaka Norio flinched slightly at Suzuki Soki's sudden expression of gratitude, but soon smiled and said.</p>
+<p>"It's good for club Friends to go on a trip.... I also luckily received the accommodation ticket from a friend."</p>
+<p>All club members here, excluding the Club President, were not from wealthy Families/Households who could afford to come to such a VIP Resort.</p>
+<p>Suzuki Soki, the Club President, became the Club President of the International Politics Discussion Club because his Parents operated a Factory of a certain scale, making him wealthier than his Friends, and he didn't hesitate to be generous to his club Friends.</p>
+<p>"Thanks to Tanaka, I can also ski after a long time, so I'm grateful too."</p>
+<p>Shiojima Atsushi, a thin Male Student with an ordinary Appearance who could be seen anywhere on the street, also joined in praising Tanaka Norio.</p>
+<p>Following Suzuki Soki, the Club President, when Shiojima Atsushi praised him, Tanaka Norio didn't know what to do, but perhaps his Appearance was amusing, as the rest of the Students also began to praise Tanaka Norio.</p>
+<p>Among those praising club Students, Uzuka Hikari, whom Tanaka Norio secretly had Jjak sarang for, was also there, so Tanaka Norio's Face turned red like an apple.</p>
+<p>Tanaka Norio was able to escape from the Hell of praise after the ordered Meal came out.</p>
+<p>"By the way, as expected of a VIP Resort, it's a bit expensive, isn't it?"</p>
+<p>The Price of the Menu was a bit expensive, so the Students grumbled slightly. If the accommodation fee hadn't been free with the accommodation ticket, they would have left immediately after seeing the Price.</p>
+<p>"For Morning, a breakfast buffet is provided, so let's eat that. For lunch, let's eat at an outside restaurant, and for Evening, let's buy some meat separately and have a barbecue."</p>
+<p>"That's good! Then, shall we check the restaurant for lunch first?"</p>
+<p>To avoid using the expensive resort restaurant, the International Politics Discussion Club Students utilized their Major and began a discussion to select a lunch restaurant.</p>
+<p>Having satisfactorily finished dinner, we decided to take a Shower or use the hot spring to wash off the Sweat shed from skiing and snowboarding.</p>
+<p>Naturally, because it was a resort mainly used by VIPs, there were no special baths like mixed-gender bathing. If you wanted to use the hot spring with other Genders, you had to reserve a family bath room, which was a special room on the 1st floor, but since we were on the 3rd floor, we had no choice but to use the basic gender-separated hot springs available in the original Resort.</p>
+<p>"Oh...! This feels good!"</p>
+<p>I took a Shower and soaked my Body in the hot spring. It felt wonderfully warm. As I was relaxing languidly in the warm hot spring water, with the sound of the Door opening, some Male Students from that International Politics Discussion Club I had seen earlier entered.</p>
+<p>When I saw them earlier at the restaurant, there were four people, but only three people entered the hot spring.</p>
+<p>The Students seemed startled upon seeing me, but they subtly bowed their Heads, took a Shower, and entered the hot spring.</p>
+<p>"Um...."</p>
+<p>One of the Male Students spoke to me with a curious Gaze. It was the Male Student who had come to greet us earlier.</p>
+<p>"Perhaps you are that Class Teacher-nim from the New Nanjing Incident?"</p>
+<p>Ah, I wondered what he was curious about, and it turned out he seemed curious about the Cyber Zombie Incident during the graduation trip.</p>
+<p>"Well.... I am that Person."</p>
+<p>"Ah! I see...! As expected, since we are an International Politics Discussion Club, we have a lot of Interest in overseas incidents, so we recognized you quickly."</p>
+<p>Not an International Politics Club, but an International Politics Discussion Club, I see.</p>
+<p>"It wasn't something I wanted to do, but I was caught up in it.... I merely did my best to survive."</p>
+<p>I'm fine, but some of the Students are experiencing a bit of Trauma, so I didn't want to talk about this Topic with strangers.</p>
+<p>Representatively, there were Oofuchi Erika and Uenozono Karen, who didn't come here. If you include the 3rd graders, excluding the special class, that number would greatly increase.</p>
+<p>"I'm fine, but some of the Students consider that Incident a Trauma, so I would appreciate it if you didn't mention it where Students are present."</p>
+<p>"Of course, although we are an International Politics Discussion Club, this time we didn't come to debate, but just to play. We've already discussed that Incident enough, so it won't come up again."</p>
+<p>If so, that's Fortunate.... Anyway, our schedules won't overlap, and there won't be many opportunities to talk like this, so I decided to let it go.</p>
+<p>"Earlier at the restaurant, there were four men, but now there are three?"</p>
+<p>"Ah, Shiojima-gun said he had to write a seasonal Report and would use the hot spring later."</p>
+<p>The surname of the one who didn't come seemed to be Shiojima. After that, since there was no more ingredient to talk about, we naturally fell silent.</p>
+<p>"...."</p>
+<p>Maintaining Silence for a moment, I, who was enjoying the hot spring, glanced at the time. The time I had promised to play card games with the special class troublemakers was almost up. I should get up soon.</p>
+<p>Cheombeong...!</p>
+<p>I stood up, making a Water sound. In the hot spring that had been quiet until just now, as I made a sound, everyone's Eyes focused on me, and naturally, their Eyes went to my dangling Large Penis.</p>
+<p>"!"</p>
+<p>"Heo-eok...!"</p>
+<p>"W-what is that...?!"</p>
+<p>Towards the startled Students, I slightly bowed my Head, saying 'Then, I'll be going....' and greeted them, splashed Water on my Body, wiped my Body, and then put on a yukata prepared by the Resort.</p>
+<p>Of course, I also knew I had a Large Penis, but whenever I saw such reactions, my Shoulders shrugged, and it seemed like an unavoidable male Instinct.</p>
+<p>"What did we just see?"</p>
+<p>Club President Suzuki Soki, who had been having a Conversation with Yamashiro Ryuta, muttered. Seeing the Body and Genitals of that man, the Class Teacher, with whom he had just been talking, was quite a shock.</p>
+<p>"Did I see it wrong...?"</p>
+<p>Male Student Itsu Tomohiko, with a flashy Appearance, also rubbed his Eyes, denying Reality.</p>
+<p>"A python, it was a python...!"</p>
+<p>Tanaka Norio kept muttering the Words "python."</p>
+<p>"Soki...."</p>
+<p>"What's wrong, Tomohiko?"</p>
+<p>When Itsu Tomohiko called Suzuki Soki with a completely deflated Face, Suzuki Soki, wondering what was wrong, asked Itsu Tomohiko.</p>
+<p>"I'm going to stop what I said earlier about hitting on Female Students. I've lost my Confidence...."</p>
+<p>"Is that a good thing...?"</p>
+<p>"They'll see that Class Teacher every day, won't they? He has a good Body and is handsome, and they'll see a Class Teacher that big, so do you think they'd even notice me?"</p>
+<p>"Still, wouldn't they not see his cock? They're Students and a Teacher...?"</p>
+<p>"I don't know...."</p>
+<p>This time, Suzuki Soki had to sweat profusely to console Itsu Tomohiko, who had lost too much Confidence.</p>
+<p>Aitana, requested by Gojoy-nim (She is a Latina Woman who fought alongside [Ryuta] during the famine in the USA. She is currently active as a Hero-like figure affiliated with the US Army haha)</p>
+<p>Aitana Concept Attire!</p>
+<p>Because she's affiliated with the Army, she wears a Cyber Suit with camouflage patterns haha.</p>
+<p>Casual Clothes</p>
+<p>Bikini~!</p>
+<p>Aitana, shining as the #1 most loved celebrity by Americans in 2053!!</p>
+<p>Underwear~!</p>
+<p>Belly Dancer~!</p>
+<p>Perhaps because of her brown Skin, the dancer attire suits her haha.</p>
+<p>Bikini Home Economics Teacher-nim, requested by Hwanbuljeoldae-bulga-nim!</p>

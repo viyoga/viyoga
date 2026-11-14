@@ -5,81 +5,83 @@ weight = 144
 chapter = 144
 +++
 
-<p>Mimata Chieri-ssi began the acquisition of East Weapon, and I started preparing for the trip I had promised my friends. I packed a tent and some cooking utensils, just in case we camped out. There was no camping time on the schedule, but those two guys were so unpredictable that I prepared just in case.</p>
-<p>"You have to be careful, okay?"</p>
-<p>"Of course, Yukiko-ssi. You haven't forgotten about our trip the week after next, have you? I'll make you incredibly happy."</p>
-<p>Yukiko-ssi was very worried when I told her I was going to the infamous Jukai Forest to pick up Kiyohira. I reassured Yukiko-ssi, raising her expectations for our trip.</p>
-<p>"Of course...! I'm really looking forward to it...! It's my first trip alone with a man since our honeymoon."</p>
-<p>He was a good father, but Saburo-ssi was too much. Not taking a single trip during their married life. Feeling a little sorry for Yukiko-ssi, I kissed her forehead and got into the car.</p>
-<p>Since I had to pass through Tokyo anyway to get to Shizuoka where Mount Fuji is, I picked up Kazuhiro-ssi on the way. Kazuhiro-ssi came out of his rented room near Tokyo FC and waved at me, saying, "Hyung-nim!"</p>
-<p>Training in Aokigahara (青木ヶ原)... Kiyohira, is he really that old-school?</p>
-<p>Kazuhiro muttered as he got into the car. Jukai, or Aokigahara, northwest of Mount Fuji, was one of Japan's infamous places. It had long been rumored as a famous suicide spot, but in reality, there were fewer suicides and missing people than people believed because there were many CCTVs and the area was monitored by the police.</p>
-<p>However, during World War III, police forces were focused elsewhere, and it became completely demonized during that time. Most of the CCTVs were damaged, and the nearby police substation was in ruins and not managed. The Jukai Forest had now become Japan's representative demon realm, where countless suicide hopefuls, cult officials, and occult enthusiasts gathered.</p>
-<p>"These days, there's almost no one who goes there because it's scary."</p>
-<p>"So... should we prove we're going?"</p>
-<p>At my words, Kazuhiro-ssi, who was a natural attention-seeker, smiled and picked up his smartphone. Kazuhiro-ssi was going to post on Japan's representative community, 7channel. Since Kazuhiro-ssi was transferring to the United States soon, I told him to do whatever he wanted to do in Japan as much as possible.</p>
-<p>"Now that you're going to the United States, do whatever you want. So, are you going to post our travelogue on the internet?"</p>
-<p>"Going to Aokigahara is interesting, so."</p>
-<p>"Do whatever you want."</p>
-<p>Was he starved for attention because he wasn't selected for the national team due to a racist national team coach? Kazuhiro-ssi was gleefully taking pictures of the scenery outside the window, thinking about posting them on the internet. Now that it was the transfer period with no games, he wouldn't be able to receive public attention until his transfer destination was decided, so he seemed to feel good because he was satisfying his attention-seeking desires even like this.</p>
-<p>It was almost four hours from the Talent Development Center to the Jukai Forest of Mount Fuji. I drove for about two hours and then stopped at a rest area.</p>
-<p>"Let's eat something and start again. It's already past 12 o'clock."</p>
-<p>Since we left a little after 10, it was lunchtime. I ordered some food at the rest area with Kazuhiro-ssi and started eating lunch. Japan also had well-equipped rest areas like Korea, so there were many foods. I ordered Kitsune Udon, Katsudon, and meat skewers, and Kazuhiro-ssi ordered curry. When the food came out, Kazuhiro-ssi excitedly took pictures.</p>
-<p>"Look at this. I got a lot of comments."</p>
-<p>During the meal, Kazuhiro-ssi showed me his smartphone. When I received the smartphone, the bulletin board that Kazuhiro-ssi created had quite a few comments. Surprisingly, going to the Jukai Forest seemed to have attracted attention.</p>
-<p>001 KZHRSMITH: Going to Aokigahara to catch my friend today.</p>
-<p>002 Anonymous: Don't lie.</p>
-<p>003 KZHRSMITH: It's true. My friend is a martial arts athlete and he went to Aokigahara to train.</p>
-<p>004 Anonymous: That sounds even more like a lie?</p>
-<p>005 KZHRSMITH: I'm on my way. Photo</p>
-<p>006 Kenji-ssi: The direction you're going is right.</p>
-<p>007 KZHRSMITH: Arrived at the rest area! Photo</p>
-<p>008 Anonymous: Looking at this guy's ID, he's from Tokyo. Seems to be a Smith Kazuhiro fan... Looking at the road and the rest area, it's a rest area a little past Tokyo. If you go that way, it seems like you're on the way to Jukai?</p>
-<p>009 Verdifan: Smith Kazuhiro, I hope you disappear to the United States soon...</p>
-<p>010 Anonymous: Smith Kazuhiro? Is he famous?</p>
-<p>011 Verdifan: He's the best Japanese national in the J-League. That's why I hate him more.</p>
-<p>Perhaps because of Kazuhiro-ssi, who conspicuously used his name as his ID, the bulletin board lost its story about the Jukai Forest and became noisy with stories about Kazuhiro-ssi. Kazuhiro-ssi seemed a little happy because his story became the main topic. He seemed even more excited because he saw the contents of the praise from the fans of Verdi Tokyo, his rival team.</p>
-<p>"Give it back. I have to upload the lunch picture I took earlier."</p>
-<p>Kazuhiro-ssi took the phone back from me and wrote, "The food at this rest area is delicious. My friend who's going with me is a big eater, so he ate 3 servings by himself," and uploaded the food picture. Then he sent the same picture to his girlfriend, Kagawa Umi-yang. The contents of their Line were so lovey-dovey that I felt like the lunch I had just eaten would come back up, so I took my eyes off Kazuhiro-ssi's phone and asked Kazuhiro-ssi.</p>
-<p>"You've been dating for quite a while? You broke up really quickly when you dated girls in high school."</p>
-<p>"Maybe it's because she's smart, or maybe it's because she has something I don't have, but I feel like we match well."</p>
-<p>He had been dating Kagawa Umi-yang for over 4 months, so it seemed like the longest relationship he's had. The longest he dated in high school was a little over 100 days. Every day he dated Kagawa Umi-yang was breaking a record. From what I heard, Kagawa Umi-yang also seemed to like Kazuhiro-ssi, so they must be a good match for each other.</p>
-<p>"Let's call Genbaki."</p>
-<p>"Yeah, we need to decide where to meet in advance."</p>
-<p>At Kazuhiro-ssi's words, I agreed and picked up my phone to call Kiyohira. But Kiyohira didn't answer the phone. Only the ringing tone went on.</p>
-<p>"He's not answering. Is he still training?"</p>
-<p>"If that's the case, I'm going to beat him up. Hyung-nims are driving and making a direct visit, so he needs to answer the phone quickly."</p>
-<p>"Let's buy some coffee and leave. We need to go quickly and beat him up."</p>
-<p>"I'll have a Zero Coke."</p>
-<p>Kazuhiro-ssi said he would drink Zero Coke, perhaps because he was a soccer player and trying to manage his weight. I bought coffee and Zero Coke at the small convenience store in the rest area. I got in the car, handed the Coke to Kazuhiro-ssi, and started driving again.</p>
-<p>Leaving the rest area, I passed the highway and headed to the Jukai Forest on National Route 139. Kazuhiro-ssi took a picture of the sign for National Route 139 passing by the window. He was probably going to post it on 7channel again. I'm doing the annoying driving, and this attention-seeking bastard...!</p>
-<p>"It's starting to feel like a forest."</p>
-<p>National Route 139 was a road that passed through the Jukai Forest, so the forest gradually became denser. Kazuhiro-ssi excitedly took pictures of that scene again.</p>
-<p>I drove the car and parked it in the parking lot. It was originally a parking lot for the Aokigahara hiking trail, but since the war, it hadn't been managed at all, and there were several cars parked with a lot of dust on them. These cars were probably cars that people who had no intention of ever leaving the forest again had driven. Anyone could see that there were ownerless cars parked, so the atmosphere was a bit eerie.</p>
-<p>"Ew...! It's a bit scary."</p>
-<p>Kazuhiro-ssi was taking pictures of the parking lot like crazy while saying it was scary. He said that the reaction was explosive because he hadn't uploaded the pictures long ago. It seemed like even on the internet, they didn't think we would really go.</p>
-<p>"Give it to me."</p>
-<p>I became a little curious and received the phone from Kazuhiro-ssi. It was in the 10s of comments earlier, but it had already changed to the 80s.</p>
-<p>067 KZHRSMITH: Arrived at the Aokigahara hiking trail parking lot! Photo</p>
-<p>068 KZHRSMITH: Photo</p>
-<p>069 Kenji-ssi: This is dangerous! Stop it right now.</p>
-<p>070 Anonymous: You really went and certified it, but isn't something strange about the black car over there?</p>
-<p>071 Anonymous: That's right. It looks like something is visible in the back seat window...</p>
-<p>072 Spiritual Hunter: As an expert, I can say that it's unconditionally dangerous.</p>
-<p>.</p>
-<p>.</p>
-<p>.</p>
-<p>083 Verdifan: Is this really okay? I feel dizzy when I look at this picture...</p>
-<p>The back seat window of the black car? I looked at the picture Kazuhiro-ssi uploaded. Something whitish was captured, but there was no evidence that this was a ghost. It was probably just a bad picture.</p>
-<p>"Oh, I took a spiritual photo like this, isn't it awesome?"</p>
-<p>"Isn't it just a bad picture?"</p>
-<p>"No, look closely, this is the eye, this is the mouth, and this is the hand."</p>
-<p>Kazuhiro-ssi said with passion when I said it wasn't a big deal. When I looked at it as Kazuhiro-ssi said, it definitely looked like a person's face. Even if it was really a ghost, it wasn't that scary.</p>
-<p>I was a man who was receiving the attention of the Daughter of the Abyss, who was hundreds of times more dangerous than a ghost. A mere evil spirit couldn't give me fear.</p>
-<p>"Stop looking at your phone and let's find Kiyohira."</p>
-<p>"I'm glad Hyung-nim gave me a wristwatch with GPS function. Otherwise, I would have had to search the forest all day."</p>
-<p>When Kiyohira said he was going to the Jukai Forest to train, I gave him a wristwatch with GPS. If this guy went missing, we, who were the closest to him, had to find him, so I gave him a wristwatch with GPS function.</p>
-<p>"I thought you would use it like this."</p>
-<p>"Hyung-nim's prediction is amazing."</p>
-<p>"Kiyohira is insensitive, so."</p>
-<p>I turned on the app connected to Kiyohira's watch on my smartphone and started searching for Kiyohira's signal.</p>
+<p>The two of them confronted each other with 'huhu' sounds for a while, then sat down as if nothing had happened. Anyone would think they were super close? They were still in the probing stage, subtly starting to ask each other questions. To me, it looked like jabs boxers throw to check each other's skills.</p>
+<p>"Mimata-ssi, why do you call Ryuta-kun 'hoobae-nim' (junior)?"</p>
+<p>"I was a senior at the Human Resources Development Center. I guess it just stuck. Arisu-nim, you seem su~per close with your cousin, Ryuta-nim?"</p>
+<p>"Being su~per close is legal in Japan and New York, you know."</p>
+<p>"Hufufufu...."</p>
+<p>"Uhuhuhu....."</p>
+<p>"Alright, alright, let's stop the chit-chat and finish our work first."</p>
+<p>Watching them was taking too long, so I stopped their squabble for now. We need to resolve the reason we came here first. I couldn't keep Nagumo Sian, who was much older, waiting any longer. I first asked Mimata Chieri to understand the situation.</p>
+<p>"First, did you find out why Nagumo Sian-nim is trying to hire East Weapon?"</p>
+<p>"I think it's because of Kurotsuki-doo. Recently, there have been many rumors that Kurotsuki-doo is concentrating its forces in Akita."</p>
+<p>Hmm, what's in Akita Prefecture that the Black Moon Society is gathering troops? Still, since it's a matter for the affiliate, Taira Foods, shouldn't they borrow the power of the Taira main family? No matter how much Kurotsuki-doo is a huge Chinese group and one of the top crime organizations in the world, Akita is Taira Group's front yard, so they can't afford to lose. Taira Group itself wouldn't lose even if it fought with the Hei Yue Group (the name that binds all Black Moon Societies worldwide), so it would be unsightly to lose here.</p>
+<p>"Shouldn't they borrow the power of the main family? That's what they usually do."</p>
+<p>"They say they can't spare troops because of something going on with the Minamoto side recently. That's probably why the request came to us."</p>
+<p>If that's the situation, then Minamoto and the Black Moon Society might have joined forces. If this prediction is true, then Minamoto has brought in foreign forces to attack domestic rivals.... If this becomes known later, public opinion of Minamoto could worsen. Am I thinking too much into the Black Moon Society? If not....</p>
+<p>"Is East Weapon's standby force sufficient?"</p>
+<p>"Yes, since I haven't been in office for many days and there haven't been any new requests yet, everyone except for employees with existing missions were on standby."</p>
+<p>"Then let's decide to do it positively and call Nagumo Sian-nim."</p>
+<p>Nagumo Sian was one of the few friendly forces within the Taira family who promised to support me third if I received support from two affiliates, so I couldn't let her collapse like this. I immediately picked up my smartphone and called Nagumo Sian.</p>
+<p>"Big Noona (older sister)."</p>
+<p>-Oh my, I told you to just call me Daemo-nim (Godmother) like everyone else does.</p>
+<p>As expected, Nagumo Sian really liked being called "Big Noona". Even though she said to call her Daemo-nim, her voice itself was filled with joy. Should I just call her Noona when we get closer?</p>
+<p>"It's just a phone call. Who's going to say anything when there's no one else listening?"</p>
+<p>-Huhu, I like that boldness of yours. So, what did you decide about East Weapon?</p>
+<p>"Of course, I have to help you. Just cover the labor costs."</p>
+<p>-As expected, I have a good eye for people. You didn't even hesitate for a second.</p>
+<p>Nagumo Sian was delighted at my immediate offer to help. I didn't expect her to be this happy.... Did something happen? Before worrying about that, I should also try to promote Seryu Military Company a bit.</p>
+<p>"And can I recommend another PMC? This one is the opposite of East Weapon, a small elite unit...."</p>
+<p>-I was just looking for an elite unit, so that's great. What's the name of that company?</p>
+<p>Indeed, it would be difficult to deal with Kurotsuki with just East Weapon, whose only advantage is quantity. I was going to give Seryu Military Company some work and give them a big achievement of receiving a request from the Taira Group, but Nagumo Sian was looking for an elite unit, so everything felt like it was working out well.</p>
+<p>"It's Seryu Military Company. It's a small but decent PMC."</p>
+<p>-If you say so, I'll contract with them too.</p>
+<p>"Then let's have the working-level staff finalize the contract today, and we'll go to Akita right away after the contract is completed, Big Noona."</p>
+<p>-Hohoho! Still, call me Daemo-nim when there are people around.</p>
+<p>"Yes. Before I hang up, let me ask you one thing. Did Uncle or Aunt visit you?"</p>
+<p>Nagumo Sian was silent for a moment at my question. It seemed like my question was right.</p>
+<p>- .... Excellent.</p>
+<p>The call ended with Nagumo Sian's words, which contained several meanings.</p>
+<p>###</p>
+<p>A few hours ago, in the president's office of Taira Foods in Akita Prefecture.</p>
+<p>"I heard that you've been having a hard time recently because of Kurotsuki, Imo-nim (Aunt)."</p>
+<p>A man was standing in front of Nagumo Sian, who was sitting in the president's seat. He was short, but his presence was significant.</p>
+<p>The man had neatly combed-back hair, a nervous look in his eyes, and snake-like pupils hidden behind highly reflective rimless glasses. And he was wearing a high-end suit on his slightly frail, thin body.</p>
+<p>The man was Taira Danjo's eldest son and the man closest to the throne of the vast Taira empire.</p>
+<p>Taira Ichiro (平 一郎), a very simple name for the eldest son of Japan's leading Taira family, but Taira Ichiro liked his name. As the eldest son (一郎) of the Taira (平) family, there was no name that suited him better.</p>
+<p>Nagumo Sian looked at Taira Ichiro for a moment and opened her mouth. Nagumo Sian had known Taira Ichiro since he was a child, but he wasn't a child she was fond of.</p>
+<p>It was partly because of his cold, cold-blooded eyes, and partly because his inhuman behavior as he grew up didn't match Nagumo Sian, who was respected as Daemo (Godmother) throughout Akita. Among Taira Danjo's children, Nagumo Sian cherished Taira Saburo the most, so he was even less fond of him because he was compared to Taira Saburo.</p>
+<p>"It's not that hard. We've only been pushed back for a moment."</p>
+<p>"You can't afford to be pushed back even for a moment, Imo-nim, as long as you bear the name of Taira."</p>
+<p>You can't afford to be pushed back as long as you bear the name of Taira.... Nagumo Sian was slowly catching on to Taira Ichiro's intentions. Nagumo Sian realized that Taira Ichiro wanted to get involved in this game.</p>
+<p>"So, did you come to advise Taira Foods on what to do?"</p>
+<p>"How dare I advise Imo-nim? Just...."</p>
+<p>"Just?"</p>
+<p>"I came to offer a small help."</p>
+<p>A small help.... Clearly, if she received Taira Ichiro's help, the Kurotsuki matter could be easily resolved. But the problem was what Taira Ichiro would take in return for that help.</p>
+<p>"A small help.... Before I ask what that help is, I want to hear the price first?"</p>
+<p>"It may be a small help to me, but it may be a big help to Imo-nim. You only need to grant me one of two requests. The first is to unconditionally support me when the next Chairman is elected, or the second is to give me the site of the 8th factory that is currently planned for construction. How is it? You only need to grant me one of the two."</p>
+<p>At that moment, Nagumo Sian realized that the site of Taira Foods' 8th factory was Taira Ichiro's goal. Anyone would think that the goal was to gain support in the next Chairman election, but with Taira Danjo still healthy, the next Chairman election was a very distant event.</p>
+<p>The 8th factory site was only purchased, and construction had not yet begun, so anyone would choose to give the 8th factory site rather than support the next Chairman election, which had political burdens.</p>
+<p>This was because if the fight with Kurotsuki-doo became prolonged, the cost of hiring a PMC would be much more expensive than the land price of the 8th factory site. The fact that the 8th factory site itself was in a remote location also contributed to the fact that the land price was not very high.</p>
+<p>"You don't need me to decide right now, do you? I want to think about it a bit."</p>
+<p>"I see. But while Imo-nim is thinking, Taira Foods' damages will increase further. I can't disturb your thoughts, so I'll be on my way."</p>
+<p>Taira Ichiro politely greeted her and left the president's office. Nagumo Sian ordered her secretary to investigate the 8th factory site.</p>
+<p>"Was this the reason why Chairman introduced Ryuta's PMC?"</p>
+<p>From a political point of view, Taira Danjo's biggest enemies were Taira Ichiro and the two successors. Taira Ichiro needed to increase his power to solidify the succession structure, and increasing that power was a burden to Taira Danjo.</p>
+<p>Not long after Nagumo Sian ordered her secretary to investigate the 8th factory site, the name Taira Ryuta appeared and the phone started ringing.</p>
+<p>"The timing is good."</p>
+<p>Nagumo Sian smiled as she looked at Taira Ryuta's name on her smartphone.</p>
+<p>###</p>
+<p>"Imo-nim will think that the 8th factory site is my goal, right?"</p>
+<p>Taira Ichiro spoke up in the car on the way back to the airport. Kurinami Chuhei, the driver and secretary, glanced at him in the rearview mirror and nodded.</p>
+<p>"Since we made them think that way, they will definitely think so."</p>
+<p>"If we check the 8th factory site and fight Kurotsuki, there won't be any personnel who can detect our actions, right?"</p>
+<p>"That's true, but it's a pity about 'that thing' on the 8th factory site."</p>
+<p>Taira Ichiro smiled at Kurinami Chuhei's words. It was definitely a smile, but it gave others a sense of eeriness.</p>
+<p>"You have to give one to get one."</p>
+<p>"Still, if our lord becomes Chairman, what the Taira Group has will become what our lord has."</p>
+<p>"That's right."</p>
+<p>Taira Ichiro said "That's right" and looked out the window. Outside the window, the factory area of Taira Foods was receding.</p>
+<p>"Yes, those are all mine."</p>
+<p>Taira Ichiro muttered quietly while looking at the scenery outside the window.</p>

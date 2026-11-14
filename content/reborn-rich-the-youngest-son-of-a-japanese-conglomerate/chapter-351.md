@@ -5,104 +5,98 @@ weight = 351
 chapter = 351
 +++
 
-<p>"Ryuta-nim, I've gathered the club members!"</p>
-<p>"Sensei-ssi, we're here!"</p>
-<p>Today, Konoe Akina and Otagi Yuka were the first to enter the teacher's prep room. They both looked quite confident, as if they had gathered quite a few club members.</p>
-<p>"I've got the club application forms for Saionji Diana, Sakagami Rena, and Naruse Shiyo from the special class!"</p>
-<p>"You gathered three people! Was that Minamoto's team's relaxation club? They won't be able to beat us easily!"</p>
-<p>Gathering three classmates was commendable, but the fact that there were no applications from other classes or grades despite putting up that flashy poster suggested that the Dating Experience Club hadn't made a big splash at the school. Or maybe the students got scared off by the word "dating" and didn't apply.</p>
-<p>"We're here too."</p>
-<p>"Ehehe, Ryuta-cchi~☆"</p>
-<p>The teacher's prep room door burst open, and Minamoto Risa and Seizawa Shii entered. Huh...? Three more people were following behind them. One of them was a face I recognized.</p>
-<p>It was Urabe Konoka, formerly of Hamahata Konoka Prefecture, whom I'd seen at the Choohten Island Inn. I was sure she said she'd be here tomorrow... Did she come a little early?</p>
-<p>If so, then the other two are... Suspended students? Looking closely, they looked exactly like the ID photos in the student registry.</p>
-<p>The one with the slightly grayish-blue hair, glasses, and suspenders must be Shido Tsubaki, formerly of the newspaper club, and the one with the brown hair, high ponytail, muscular build, and boisterous demeanor must be Kujo Kina, who fought 30-to-1 with her own club members.</p>
-<p>"Alright, you're here! We gathered three people! How many did you guys get?"</p>
-<p>Otagi Yuka said, looking at Minamoto Risa and Seizawa Shii. Minamoto Risa stepped forward instead of Seizawa Shii and answered.</p>
-<p>"We have three too. These three here."</p>
-<p>"Ah, hello, Sensei...!"</p>
-<p>"You really are a handsome teacher, just like the informant said."</p>
-<p>"Kyahaha! Sensei, you're built, huh? You like martial arts?"</p>
-<p>You could guess their personalities just by hearing them say one thing each; they were all full of individuality.</p>
-<p>Urabe Konoka seemed to recognize me and was being careful, but thankfully, she didn't rashly call out my name.</p>
-<p>Shido Tsubaki mentioning an informant made it obvious that she was the former head of the newspaper club. Even now, she was scanning me up and down with her eyes behind her glasses, trying to figure me out.</p>
-<p>Kujo Kina was just a martial arts idiot. She gave off a similar vibe to Fujigasaki Rinka. If I told her I was Fujigasaki Rinka's disciple, I could probably make her my subordinate right away... I'll have to see about that.</p>
-<p>"None of you are in any clubs?"</p>
-<p>"Urabe Konoka transferred this semester, so she doesn't have a club to begin with, and the rest of us caused trouble in our clubs, so we got kicked out or something!"</p>
-<p>Seizawa Shii explained to my question. But is it okay to say you got kicked out so cheerfully? So, the club recruitment numbers are tied at 3-to-3.</p>
-<p>"But after hearing what I said yesterday, you ran off like you realized something. How did you think of recruiting these guys?"</p>
-<p>Before I heard any talk about who lost or won the tie, I asked Minamoto Risa what I was curious about.</p>
-<p>"Like Sensei said yesterday, if it doesn't work internally, find a solution externally, so I thought we should bring in suspended students and transfer students from outside as club members."</p>
-<p>I definitely remembered saying yesterday that if it doesn't work internally, you have to do it externally.</p>
-<p>To get inspired by that and bring in two suspended students and a transfer student from outside the school is pretty amazing. Even if it's the two suspended students, seeing that she knows the transfer student Urabe Konoka's contact information, the Minamoto family must have considerable information power.</p>
-<p>"Ryuta-nim! How can you give hints in a fair match?"</p>
-<p>"Yeah, no favoritism!"</p>
-<p>Konoe Akina and Otagi Yuka protested, thinking I had given a hint, but I hadn't given a hint.</p>
-<p>"So, it's a tie?"</p>
-<p>Seizawa Shii said, looking at Konoe Akina and Otagi Yuka. In soccer terms, it was like coming back from 3-0 down to tie 3-3, so Seizawa Shii's momentum was understandable.</p>
-<p>"Since it's a tie, let's name it the Dating Experience-Meditation Club."</p>
-<p>"Why is the Dating Experience Club's name coming first? Meditation-Dating Experience Club sounds better, doesn't it?"</p>
-<p>Minamoto Risa protested and answered my words. Is which name comes first a matter of pride? This is a bit of a headache.</p>
-<p>"Meditation-Dating Experience Club sounds like you're fantasizing about dating experiences. Dating Experience-Meditation Club sounds better because it feels like you're having a dating experience and then organizing it with meditation."</p>
-<p>Konoe Akina was speaking somewhat logically. The problem was that the logic was "somewhat," so naturally, the meditation club side didn't accept it. In the end, the teacher's prep room turned as noisy as a marketplace.</p>
-<p>"Stop!"</p>
-<p>It seemed like the argument was getting increasingly heated, so I raised my hand to stop everyone.</p>
-<p>"Don't get too worked up, everyone, take out an ice cream from the fridge. There's pudding too, so you can eat pudding."</p>
-<p>You have to supply sweets at times like this. I'm glad I put the fridge in yesterday. Everyone went to the fridge at my words and grabbed an ice cream each. Everyone was grabbing ice cream and pudding according to their individual tastes.</p>
-<p>Konoe Akina chose a strawberry yogurt-flavored ice cream, and Otagi Yuka chose a slightly creepy bright red cherry-flavored ice bar. Seizawa Shii chose a custard-flavored pudding, and Minamoto Risa and Urabe Konoka chose green tea-flavored Häagen-Dazs.</p>
-<p>The two suspended students made unique choices; former newspaper club member Shido Tsubaki took out the frozen gyudon I had put in and microwaved it, and Kujo Kina started mixing the protein powder I use for exercising at school. Both of them were acting so naturally that you wouldn't know there was anything wrong.</p>
-<p>As expected, they were both unusual guys. Even with my dumbfounded look, Shido Tsubaki was munching on the microwaved gyudon, and Kujo Kina vigorously shook the water mixed with protein powder and then did a one-shot, finishing it off with a "Kya~!" like she was drinking beer.</p>
-<p>When everyone had finished their ice cream and such, I opened my mouth.</p>
-<p>"Let's just have the Minamoto and Seizawa team and the Konoe and Otagi team do rock-paper-scissors. We can't just keep arguing forever. Both teams have gathered three people, so let's leave the final decision to luck."</p>
-<p>In fact, this decision I made was extremely biased towards the Konoe Akina and Otagi Yuka team. Otagi Yuka, a vampire with superhuman physical abilities, wouldn't be able to lose to the ordinary female students Minamoto Risa and Seizawa Shii even if she wanted to.</p>
-<p>Otagi Yuka seemed to realize my intention and gave me a slight smile.</p>
-<p>"Rock-paper-scissors...! Alright!"</p>
-<p>"In soccer terms, you could see it as a penalty shootout. It's a showdown!"</p>
-<p>Minamoto Risa and Otagi Yuka agreed, and Konoe Akina and Seizawa Shii also nodded. That's a relief. I can finish quickly and go home.</p>
-<p>In a 1-on-1 format, a survival match where the next player comes out when one person loses, the first match was between Konoe Akina and Minamoto Risa.</p>
-<p>""Rock, paper, scissors- shoot!""</p>
-<p>They shouted at the same time and put out their hands as they had decided. Konoe Akina was scissors, and Minamoto Risa was rock, resulting in Minamoto Risa's victory.</p>
-<p>"Ah... I lost, Yuka, get her!"</p>
-<p>"Yeah, don't worry."</p>
-<p>Otagi Yuka rotated her right arm shoulder and stood in front of Minamoto Risa coolly.</p>
-<p>""Rock, paper, scissors- shoot!""</p>
-<p>Minamoto Risa was paper from the start, and Otagi Yuka was originally rock, but I clearly saw her change from rock to scissors with incredible reflexes.</p>
-<p>"Ah...! I lost."</p>
-<p>"Don't worry, Risa-tan! I'll win for you!"</p>
-<p>Seizawa Shii stepped forward with an expression that she would definitely win.</p>
-<p>""Rock, paper, scissors- shoot!""</p>
-<p>I saw it...! Seizawa Shii's hand changed three times, and Otagi Yuka's hand also changed three times... The result was a draw with both of them throwing rock.</p>
-<p>"Ah! It's a tie~☆"</p>
-<p>"Kuh...!"</p>
-<p>Seizawa Shii cutely tapped her head and stuck out her tongue, and Otagi Yuka looked at Seizawa Shii, who had shown unexpected skill, with wary eyes.</p>
-<p>Everyone here didn't know anything about Seizawa Shii. She had Otagi Yuka-level reflexes. I don't know about strength or technique, but she was definitely strong.</p>
-<p>"Ooh...! You two want to fight after this is over?"</p>
-<p>Kujo Kina seemed to have watched the two matches with interest and was applying for a sparring match (?) with Otagi Yuka and Seizawa Shii.</p>
-<p>"Let's hurry up and finish this and go home."</p>
-<p>"Hee~! Ryuta-cchi wants to go home?"</p>
-<p>When I urged them to finish the match, Seizawa Shii approached me slightly and spoke to me.</p>
-<p>"Starting tomorrow, I'll be your advisor, so you can't go this early."</p>
-<p>"That's right! Then let's do rock-paper-scissors again."</p>
-<p>After hearing my answer, Seizawa Shii gave me a mischievous smile and stood in front of Otagi Yuka again.</p>
-<p>""Rock~paper~scissors!""</p>
-<p>The match started again, Seizawa Shii wasn't looking at Otagi Yuka's hand. She was giving me a strange smile.</p>
-<p>"Hee~! I lost? Sorry~ Risa-tan."</p>
-<p>"No, I lost too..."</p>
-<p>Seizawa Shii returned to her usual self, as if the strange smile she had just given was a lie, and apologized to Minamoto Risa, leaning on her back.</p>
-<p>"Kuh...!"</p>
-<p>Otagi Yuka also knew that Seizawa Shii had let her win, so she made a slightly prideful expression.</p>
-<p>"First, since Otagi Yuka won, the club will be the Dating Experience-Meditation Club. And Konoe or Yuka will be the president, and Minamoto or Seizawa will be the vice president."</p>
-<p>"Konoe will be the president."</p>
-<p>"Risa-tan will be the vice president."</p>
-<p>Otagi Yuka and Seizawa Shii answered my words immediately, as if they didn't want to take on troublesome tasks. Konoe Akina and Minamoto Risa didn't say anything, as if it had been discussed in advance.</p>
-<p>"Here are the documents. You can submit them to the student council tomorrow."</p>
-<p>"Yes, please take care of us, advisor Sensei."</p>
-<p>When I signed the advisor Sensei section on the club establishment application and gave it to her, Konoe Akina bowed and received it.</p>
-<p>Still, thanks to the two teams running around to create a club, almost all the special class students have joined a club. At this rate, I won't get scolded by Kasaoka Yuzuki or the headmaster.</p>
-<p>Tomorrow, I have to do club activities and bring the glasses from the ruins to check Seizawa Shii's abilities. I'm glad that the Saionji Diana thing and everything else worked out well.</p>
-<p>----</p>
-<p>Shido Tsubaki</p>
-<p>The suspenders and glasses with a 5:5 part are the character's points!</p>
-<p>Kujo Kina</p>
-<p>She's muscular like this....</p>
-<p>But when she wears long sleeves, it's less noticeable ㅎㅎ</p>
+<p>Kasaoka Yuzuki's pussy was wriggling, welcoming my dick like it was happy to see it after a few days. I slowly moved my hips and asked Kasaoka Yuzuki.</p>
+<p>"Were you jealous when you saw me with another woman?"</p>
+<p>"Huuuheuung...! Don't, hyaaang♥, don't ask...!"</p>
+<p>Kasaoka Yuzuki, already unable to think straight from the stimulation my dick was giving her, wriggled her pelvis and avoided answering my question. If she wouldn't answer, there was nothing I could do. I grabbed Kasaoka Yuzuki's ample breasts with both hands and shook my hips roughly.</p>
+<p>Slap! Slap! Slap!</p>
+<p>Along with the sharp sound of flesh hitting flesh, Kasaoka Yuzuki's pheromone-like feminine scent, moans, and the humidity were creating a strange atmosphere in the room. Naturally, our excitement continued to rise without subsiding.</p>
+<p>"Huuung, too strong...! Yamashiro-ssi's dick, huuuheung♥, is hard and big, haaang! I like it...!"</p>
+<p>"I like Yuzu-ssi's pussy too, it's delicious."</p>
+<p>"Haaheut! Was that woman's pussy delicious too?"</p>
+<p>She told me not to ask earlier, but now she's asking. The way she was squeezing me while asking made it seem like she had a bit of a netorare tendency. I hoped someone like Mimata Chieri wouldn't appear again.</p>
+<p>"It was delicious. I guess you could say it was a different flavor than Yuzu-ssi?"</p>
+<p>"Haaheut! Huuung...♥"</p>
+<p>As expected, she probably doesn't know herself, but I praised another woman while doing it with Kasaoka Yuzuki, and her pussy is wriggling. I don't know why there are so many perverts around me.</p>
+<p>"She had big breasts like Yuzu-ssi and a body that felt great."</p>
+<p>"Huuuheuung...! Euheut! Hwaaaaaang♥"</p>
+<p>Kasaoka Yuzuki orgasmed grandly at my whisper, and seeing that, I urged myself to shake my hips.</p>
+<p>"Huuung, stop, I just came! Heut, it's too strong...! Stop, huuung, slowly! Be gentle...!"</p>
+<p>I definitely vowed when she was being all huffy earlier that I wouldn't give her any attention even if she begged me to. So, I didn't pay her any mind and shook my hips only for my own pleasure. I booked 180 minutes, so I figured I could cum however I wanted at first.</p>
+<p>"Huuueueoheo...! Heueo, heueut! I can't think of anything♥, I feel like I'm going crazy...! Heut, Woohoooot!!"</p>
+<p>Kasaoka Yuzuki was losing her mind from the constant waves of climax. I was doing piston movements only for my own pleasure, so I quickly felt the urge to cum.</p>
+<p>"I'm going to cum deep inside, so receive it well in your uterus so it doesn't spill."</p>
+<p>"Huuuung.... Inside, haheut! Insiiiide...! Noooo♥"</p>
+<p>She says noooo, but it feels like she's welcoming it a lot? I didn't say anything and pushed my dick as far inside as possible, then throbbed and poured semen into her uterus.</p>
+<p>"Huuueueueueut...!"</p>
+<p>Kasaoka Yuzuki lifted her legs up and trembled, showing a flamboyant climax reaction. Her eyes, visible above the mask, rolled back, showing mostly the whites.</p>
+<p>Looking at the time, it was a little over forty minutes. I booked 180 minutes, so there's still a lot of time left. I paid, so I can enjoy Kasaoka Yuzuki's body more, right?</p>
+<p>I pulled out my dick and made Kasaoka Yuzuki lie on her stomach. Whether it was because she was exhausted from the climax, Kasaoka Yuzuki was still as I moved her, like a doll with its strings cut.</p>
+<p>After making Kasaoka Yuzuki lie on her stomach, I slightly spread her legs and inserted my dick. Normally, a man would only be able to insert the glans slightly because of Kasaoka Yuzuki's huge ass, but my dick, as the owner of a huge cock, was able to insert it deeply enough despite the ass's obstruction(?).</p>
+<p>"Ooooohot! You're already doing it...?"</p>
+<p>She almost comes again as soon as I insert it. And she looks at me with fearful eyes, but no way.</p>
+<p>"I'm going to completely soak you in pleasure for 180 minutes, so wait."</p>
+<p>Now that it's come to this, I have to completely subdue her today. So she can never be huffy again.</p>
+<p>###</p>
+<p>Kasaoka Yuzuki, who extended the 180 minutes by an additional thirty minutes, returned with trembling legs. I didn't think she would be huffy like before, but she still wasn't completely subdued to me.</p>
+<p>It's because I subtly asked her to take off her mask, but she was startled and shook her head. It must be that she absolutely can't show it. I felt it when Kasaoka Yuzuki sucked my dick earlier, but she had a pretty strong mentality.</p>
+<p>"Hmm, there's a lot of laundry."</p>
+<p>I thought I would have to wash the sheets from doing it with Kijimoto Jurie in the guest room until this morning, and then with Daigo Terue and Kasaoka Yuzuki in the master bedroom. Since I'm going to do laundry anyway, I should take care of it today. I didn't have time because I had to go to Tokyo tomorrow.</p>
+<p>I took the basket full of laundry and went to the laundromat I had visited a while ago. At the laundromat, there was a familiar platinum blonde Shiro-gyaru wearing short 청 (cheong) shorts.</p>
+<p>"Oh! Ryuta-chi!"</p>
+<p>Seizawa Shii was in the laundromat like I saw before. Is this girl a laundromat NPC? I keep meeting her at the laundromat.</p>
+<p>"Don't look at me with those eyes. Girls have a lot of laundry, so I just come often...!"</p>
+<p>Seizawa Shii, noticing my gaze, blushed and answered.</p>
+<p>"Ryuta-chi is the one who's always there whenever I go to the laundromat, though?"</p>
+<p>I can't say it's because women are dirtying my bed sheets... so I decided to return Seizawa Shii's story as is.</p>
+<p>"Guys have a lot of laundry too, so I just come often."</p>
+<p>"Don't copy me, Ryuta-chi! By the way, I'm curious about what kind of laundry you have, can I take a look?"</p>
+<p>Seizawa Shii, suddenly approaching my laundry basket, started looking at my laundry. Fortunately, in addition to the sex-stained sheets, there were also the clothes, socks, and underwear that I wore, so it wouldn't be easy to notice that I was living a promiscuous life.</p>
+<p>"Ryuta-chi, you pervert."</p>
+<p>"What's perverted?"</p>
+<p>How did she notice right away? I was flustered and looked at Seizawa Shii.</p>
+<p>"How can you put your underwear out like this when a girl is watching!"</p>
+<p>Ah, thankfully she was saying something about the underwear.</p>
+<p>"It's not like I told you to look..."</p>
+<p>"Still! Did you want to show off your panties to everyone passing by, so you put them on top like this?"</p>
+<p>What kind of perverted story is she telling? No one is curious about a man's panties.</p>
+<p>"No one cares except you, probably?"</p>
+<p>"Are you saying I'm a pervert, Ryuta-chi?"</p>
+<p>"Yeah."</p>
+<p>I answered while putting the laundry in the washing machine. Of course, I put the underwear that Seizawa Shii was complaining about inside first.</p>
+<p>I put in the other clothes too, and I was getting a little impatient because it was almost time for the aeg-aek-soaked sheets to come out, but Seizawa Shii was squatting and watching me put the laundry in the washing machine while spinning around.</p>
+<p>I should just quickly put it in. It'll just look like it's wet with water to anyone who sees it....</p>
+<p>"Ah! Ryuta-chi, why is your sheet wet? Did you pee?"</p>
+<p>Why does she have such good eyes again? I racked my brain as much as possible. I couldn't become a bed-wetter like this. Of course, the story of me being a bed-wetter would be passed on to Minamoto Risa, who is Seizawa's best friend, and then it would be very difficult to capture my target, Minamoto Risa. If I want to meet a woman, it would be better to be a Casanova than a bed-wetter.</p>
+<p>"It's not pee."</p>
+<p>"Then what is it?"</p>
+<p>"A high school student who is still a minor doesn't need to know."</p>
+<p>"I'm not a minor!"</p>
+<p>Seizawa Shii says she's not a minor and snatches the sheet away. And she touches the wet spot. She'll feel that it's slippery and sticky. The moment she realizes what that liquid is, Seizawa Shii's face turns red and she shouts at me.</p>
+<p>"Y-you're a pervert!"</p>
+<p>"It's better to be a pervert than a bed-wetter."</p>
+<p>"Hmm, that's true."</p>
+<p>It was a little funny that she agreed with me even though she called me a pervert.</p>
+<p>"Sorry, it's Ryuta-chi's privacy. Is it your girlfriend?"</p>
+<p>"No, one of my sex friends."</p>
+<p>I decided to just go with it shamelessly now. There was no other way.</p>
+<p>"Ryu, Ryuta-chi, you were a playboy??"</p>
+<p>"A playboy... you're talking like someone from a long time ago? I'm just popular. And I'll break up with everyone when I get a girlfriend."</p>
+<p>Actually, even if I get a girlfriend in the future, I won't have to break up with the women. Because there are too many people to break up with.</p>
+<p>"Well, it's better than my dad? My dad still has a lot of girlfriends..."</p>
+<p>For reference, Seizawa Shii's dad is a current member of the National Assembly and a former minister. This is a huge scandal story, is it okay to talk about it so casually?</p>
+<p>"Still, it's a teacher's privacy, so keep it a secret from the kids."</p>
+<p>"Ehhh~! I wanted to tell the kids because it's a really fun story!"</p>
+<p>"I'll grant you one wish, so please bear with it."</p>
+<p>"A wish? Okay. I don't have anything in mind right now, so I'll keep it~!"</p>
+<p>Then, a beep sounded and the alarm went off, indicating that Seizawa Shii's laundry, which she had come earlier, was finished. Seizawa Shii said, "Ah, the laundry is done!" and opened the washing machine and started putting the laundry in. I stared intently at the laundry that Seizawa Shii was putting in as revenge for what happened earlier. Seizawa Shii was about to say something to me, but she had something she did, so she just focused on putting the finished laundry in the basket.</p>
+<p>"Don't look! It's embarrassing, Ryuta-chi."</p>
+<p>"I was embarrassed too."</p>
+<p>"Ugh...! Then look just a little."</p>
+<p>After putting various clothes in the basket, it was naturally time for the underwear. What's with those underwear that have a lot of lace and look like they're all see-through?</p>
+<p>"Is it for your boyfriend?"</p>
+<p>"I don't have a boyfriend?! I'm not a pervert like Ryuta-chi, so I don't have a sex friend either!"</p>
+<p>Seizawa Shii's face turned completely plum-colored and she shouted. Then why are you wearing underwear like that?</p>
+<p>"Hmph! I'm going now, Ryuta-chi is an idiot!"</p>
+<p>"It's getting dark, so go carefully."</p>
+<p>With a clatter and a click, Seizawa Shii closed the door and left, and the coin laundromat fell silent instantly. Hmm, she really won't spread rumors to the kids, right?</p>

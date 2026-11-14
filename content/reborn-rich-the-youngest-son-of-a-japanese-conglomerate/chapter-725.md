@@ -5,82 +5,48 @@ weight = 725
 chapter = 725
 +++
 
-<p>"They say the entrance is over there."</p>
-<p>While heading towards where I Yeon-ju was pointing, the Red Revolution Front terrorists blocked us from time to time, but they couldn't stop the rescue team that was well-prepared.</p>
-<p>I used psychokinesis to help my comrades avoid injuries as we advanced, and a few of the agents who didn't realize I was a psychic looked at me in surprise.</p>
-<p>Recently, Vanguard had also recruited a few psychics, and according to Han Yu-gyeong-ssi, they were currently undergoing basic training. They were showing pro-psychic moves and laying the groundwork for creating a psychic unit in Korea.</p>
-<p>In the first place, except for two or three giant corporations that had psychic units, Vanguard was the most actively recruiting in Korea, and Vanguard had an advantage because I had passed on a list of good psychics to Han Yu-gyeong-ssi.</p>
-<p>Of course, since the psychic famine had happened less than half a year ago, there was still some reluctance towards psychics, so many hidden psychics were not coming out.</p>
-<p>I think we'll be able to recruit more from next year, though. I was watching the atmosphere at that time because it was important.</p>
-<p>"It seems to be here."</p>
-<p>I Yeon-ju said, looking at the destroyed door of the largest-looking building. Did Lara Sinclair destroy the door when she entered?</p>
-<p>"Since there are no other troops outside, it seems that everyone has gone inside the lab to chase the research team."</p>
-<p>We took care of about a hundred people while coming to the entrance of the lab building, but in North China, which prides itself on its large population, the Red Revolution Front, a terrorist group, was also famous for its large numbers, so a hundred or so was not a large force.</p>
-<p>"Let's break in too."</p>
-<p>"I'll set up landmines near the entrance. That way, we can prevent being attacked from the front and back."</p>
-<p>At my suggestion to go inside, I Yeon-ju said she would set up landmines and had the Vanguard agents bury landmines near the entrance.</p>
-<p>"These landmines send a one-way radio wave to us at the same time as the explosion, so we won't be ambushed from behind."</p>
-<p>Even if there was no internet or satellite communication, the walkie-talkie could be used, so there was no problem receiving the signal from the landmines.</p>
-<p>"Let's go in now."</p>
-<p>At I Yeon-ju's words, I took the lead again. If I tanked at the very front, the damage to the group would not be great even if we encountered the enemy, so I volunteered to take the lead.</p>
-<p>"Hmm... the road splits here."</p>
-<p>I Yeon-ju muttered, looking at the stairs leading to the basement and the stairs leading to the second floor. From the outside, it looked like a large building with about 5 floors above ground, so I could tell how much it was above ground, but I couldn't tell how deep the basement was.</p>
-<p>But having played the game, I knew that the basement was about 20 floors deep. So people who played the Red Revolution Front headquarters episode sometimes called this lab building an underground labyrinth.</p>
-<p>Because you have to keep going deeper. Especially when there is no information, posts like 'Where is the last floor?' often appeared in the community.</p>
-<p>"Let's do this. Let's divide the team in half, quickly look around the odd and even floors above ground as quickly as possible, and then go down to the basement together."</p>
-<p>Whether it was the enemy or Lara Sinclair's group, they probably weren't above ground, but it was still important to check.</p>
-<p>"Okay. Let's divide into my team and Yong-tae-nim's team."</p>
-<p>We quickly divided into teams and received a walkie-talkie. Because the sound of the walkie-talkie could alert the enemy, we decided to make a whoosh sound first when contacting each other. We decided to wait if there was no answer, and if there was an answer, we would talk to each other, and I went up to the second floor.</p>
-<p>Since we had already gone around the first floor together, my team would take the even floors, 2nd and 4th, and I Yeon-ju's team would take the odd floors, 3rd and 5th.</p>
-<p>"Who is it? Keu-ak!"</p>
-<p>"Kuai tao!"</p>
-<p>I quickly moved around the area I was in charge of, taking out the enemies that appeared from time to time. I don't know what they're saying because I don't know Chinese, but judging from their reactions, it's probably something like 'Who is it?' or 'Run away!'</p>
-<p>"Y-you're amazing...!"</p>
-<p>"It's nothing."</p>
-<p>One of the Vanguard rescue team members said in admiration as I broke the heads of each enemy wearing an old-fashioned combat helmet with my fists without using a gun. I couldn't see his expression because he was wearing a combat helmet, but judging from his voice, he seemed very impressed.</p>
-<p>-Whoosh, whoosh</p>
-<p>Just as we had quickly searched all the areas we were in charge of, I heard the sound of wind from the walkie-talkie. I thought we had searched quickly, but I Yeon-ju's team searched even faster?</p>
-<p>"We have finished the search. There were some enemies, but Lara Sinclair's group was not there."</p>
-<p>-We neither. Then let's meet at the entrance to the basement.</p>
-<p>A little later, we met at the entrance to the basement. I told I Yeon-ju about the few battles on the even floors and that there was no trace of Lara Sinclair.</p>
-<p>"We also had one or two battles, but we were able to subdue them easily because they didn't expect our intrusion. The 5th floor is connected to the helipad, so there weren't many rooms, so we were able to finish the search quickly."</p>
-<p>I was wondering how they were faster than me, but there weren't many rooms to search on the 5th floor. Still, judging from the fast combat speed and the fact that I didn't hear any gunshots, it seemed that they had taken out the enemy before they could react by using silent nail guns and TG Tech's guns.</p>
-<p>"Let's install a beacon at this entrance. Since we can't install landmines, we'll use a method of giving a signal when someone passes by."</p>
-<p>It seemed like they were just installing a beacon because installing something similar to a landmine could lead to it being buried in the basement.</p>
-<p>After installing the beacon, we quickly went down to the basement.</p>
-<p>"Shi di ren!"</p>
-<p>"Sha le ta."</p>
-<p>As soon as we entered the basement, soldiers from the Red Revolution Front, whom we hadn't seen much of on the ground, began to pour out.</p>
-<p>As expected of a terrorist group, it felt like they preferred the basement to the ground. If they were in a building above ground and turned on the lights at night, it would let people know that there were people in this abandoned research facility, so they must be in the basement.</p>
-<p>We didn't kill all the enemies we met, but we kept one or two alive and interrogated them about where Lara Sinclair's group was, but the enemies didn't know the exact location either.</p>
-<p>"Well... that's a relief, actually. Knowing the location would mean that Lara-ssi is in danger."</p>
-<p>I Yeon-ju confiscated a walkie-talkie from a Red Revolution Front terrorist and handed it to an agent who could speak Chinese. If they had the enemy's walkie-talkie, they would know what was going on.</p>
-<p>As we were annihilating each floor and came down to about the 3rd floor, we heard a sound from the Red Revolution Front's walkie-talkie.</p>
-<p>Each floor was large, so it took quite a while, but it was a welcome call that we could get some information.</p>
-<p>-Di ren zai di xia shi wu ceng!</p>
-<p>"What are they saying?"</p>
-<p>"They say the enemy is on the 15th floor underground."</p>
-<p>The agent who could speak Chinese answered with an urgent expression when I asked. The fact that the floor was specified seemed to mean that Lara Sinclair's location had been discovered after all.</p>
-<p>"It seems like Lara-ssi's location has been discovered, so let's go down as quickly as possible!"</p>
-<p>I Yeon-ju also shouted urgently. We were on the 3rd floor underground, so we had to go down a whopping 12 floors underground. And the enemies who heard the radio would be coming on the way... Would we be able to make it in time?</p>
-<p>The elevator was already going down at a fast speed, and if we took the elevator, they would attack us with a bomb, so we chose the stairs.</p>
-<p>When we went to the stairs leading to the next floor, we saw the Red Revolution Front troops who couldn't take the elevator going down with a tatatatak sound.</p>
-<p>"It won't be easy...?"</p>
-<p>I Yeon-ju said with a serious expression because of the large number of troops. I thought for a moment and then opened my mouth.</p>
-<p>"There's one way."</p>
-<p>"What way is it?"</p>
-<p>At I Yeon-ju's question, I pointed to the space between the stair railing and the stair railing.</p>
-<p>"If I jump this way, I can go straight down to the 15th floor."</p>
-<p>At my words, everyone except I Yeon-ju looked at me with a 'what are you talking about?' look, but I Yeon-ju, who knew my skills well, thought for a moment and then nodded.</p>
-<p>"Then Yong-tae-nim, please go down first and save Lara Sinclair-ssi. We'll go down from behind while reducing the number of enemies."</p>
-<p>"Okay. I'll see you soon."</p>
-<p>After getting I Yeon-ju's consent, I immediately jumped over the stair railing. Of course, I fell down due to gravity, and I started counting the floors in my head to avoid making a mistake in the falling floor.</p>
-<p>4th floor... 5th floor... 6th floor....</p>
-<p>Of course, I was falling at a tremendous speed due to gravitational acceleration, and each floor was passing by quickly, but since I was already beyond human perception, I was counting the floors well without making a mistake.</p>
-<p>13th floor... 14th floor... 15th floor! Got it!</p>
-<p>Kwajijik!</p>
-<p>I grabbed the railing on the 15th floor. The aluminum railing was bent as if it would break under my weight, but I floated my body with psychokinesis to prevent the railing from breaking.</p>
-<p>Before jumping over the railing on the 15th floor and entering the entrance on the 15th floor, I quickly looked at the Red Revolution Front enemies who were coming down. All of the Red Revolution Front terrorists were wearing combat helmets like old military helmets instead of combat helmets that covered their entire heads like us, so I could see their expressions.</p>
-<p>They seemed to be feeling a bit of fear at the sight of my huge figure suddenly falling from the sky. I need to turn this slight fear into despair.</p>
-<p>______</p>
-<p>SD Shii!</p>
+<p>"Kids, I'm here~!" I said, as if to be heard by the Female Students inside, and as I stood at the front door, everyone in the Family/Household rushed out to see me. What, not even like dogs welcoming their Master home after a long time, why are they rushing out so quickly?</p>
+<p>"Sensei-ssi!" "Liege-nim!" ""Sensei-nim!"" Along with the Members I expected-Otagi Yuka, Saionji Diana, and Sakagami Rena-Urabe Konoka was there. Since Urabe Konoka is a Shrine Maiden, I thought she would be busy with New Year's prayers and such, but seeing her at our Home, it seemed she was a bit free.</p>
+<p>Everyone was wearing New Year's Furisode (振袖: the most formal kimono for unmarried women), and after always seeing them in school uniforms or casual clothes, seeing them in Furisode was a refreshing change.</p>
+<p>"Why is everyone wearing Furisode?" Of course, we were wearing them and waiting to go to Hatsumode (the first shrine visit of the New Year) with Sensei!</p>
+<p>Ah, they were going for New Year's prayers? Then it made sense that Urabe Konoka was waiting here. Urabe Konoka said Shinkai Hime, the Daughter of the Abyss, wanted to see me, and it seemed that was referring to the prayer visit.</p>
+<p>"Since we're already at the front door, let's go now." Anyway, since I was already dressed in a Suit and Coat, it seemed I could go now. Nowadays, men usually wear Suits rather than Kimonos for Hatsumode, so there was no need to change Clothes, and since I hadn't taken off my Shoes yet, I could just go straight out. The Students also came to the front door, so they just needed to put on their Shoes and go out.</p>
+<p>"Shall we?" "Wait! I'll get my Handbag, Liege-nim~!" "I'll go get mine too!" "I knew this would happen, so I brought my Handbag in advance!"</p>
+<p>I thought we could just go straight out, but they were busy getting their Handbags and Wallets. Saionji Diana cleverly said she had brought her Handbag in advance and linked her Arm in mine. She's quite quick-witted, isn't she?</p>
+<p>"Sensei-nim, it's been a long time." "Yes, it has. Have you been well?"</p>
+<p>To Saionji Diana, who greeted me with sparkling Eyes through her Bangs, I also greeted her and asked how she was. Saionji Diana nodded her Head with a shy Expression, and the Students who had gone to get their Bags or Wallets looked at Saionji Diana, who was linked Arm in arm with me, with Expressions of having been outmaneuvered.</p>
+<p>"Diana is so clever!" "We can just split it for going and coming back." Everyone quieted down at my Words. Since there were four Members, it was a judgment that there was no need to compete for my Arm in arm. Because two could link Arms going, and two could link Arms coming back.</p>
+<p>"But isn't linking Arms meaningless? We have to go by car to the shrine anyway, don't we?" "Ah...!" At Otagi Yuka's Words, everyone made an "Ah...!" sound and an Expression of realization. Anyway, since everyone was ready, I took out my car from the garage after a long time.</p>
+<p>"Everyone, get in." I put the Students in the car and drove to where Urabe Shrine was located. As expected of Miyashi, a Villa City, perhaps because many Students were on vacation, there didn't seem to be many visitors for prayers. Or perhaps the people who would have flocked there on January 1st or 2nd had already done so.</p>
+<p>"Please park the car in the parking lot behind, not the one for visitors. Because we have to go to a different shrine." As Urabe Konoka said, we parked the car in the employee parking lot, not the one where shrine visitors park, then climbed the stairs directly next to the parking lot. On both my Sides, Saionji Diana and Urabe Konoka were linked Arm in arm, climbing the stairs with me.</p>
+<p>Even for this short path up the stairs and to the shrine, they seemed to want to walk Arm in arm together. As for me, if Women linked Arms with me on both Sides, it was warm and nice, so I stayed still.</p>
+<p>"If you go up these stairs and turn right, it's Shinkai Hime-nim's shrine." Urabe Konoka, linked Arm in arm on my left, explained the way to me in a whisper. Before, I went through the entrance used by general visitors and took a complicated route through various Passages, but there was a direct path from the employee parking lot.</p>
+<p>After climbing all the stairs, instead of going straight to Shinkai Hime Shrine, we decided to take Photos to feel a bit like we were out for fun. Since everyone was wearing splendid Furisode to do Hatsumode with me, they seemed to want to capture it in Photos.</p>
+<p>"Then each of you stand in a Place you like. I'll take your Photo." "Sensei-ssi, take mine first~!"</p>
+<p>First, we decided to take individual Photos, and Otagi Yuka's Photo was taken first. Otagi Yuka was wearing a red Furisode that matched her Hair Color, and also had a red-dyed winter fur collar attached, so she stood out immensely.</p>
+<p>"How is it?" "It suits you well. It's incredibly vibrant." Looking at Otagi Yuka's Appearance, I gave her a thumbs-up. One might think it was a bit overly splendid, but because Otagi Yuka's Appearance was also splendid, it didn't feel excessive at all.</p>
+<p>"Next, I want to take one with Sensei-ssi~!" After taking individual Photos, I took a Photo with Otagi Yuka, and the next Turn was Urabe Konoka's.</p>
+<p>Urabe Konoka was wearing a white-based Furisode with a red pattern, and while not as much as Otagi Yuka with her red fur collar, she had a dark brown fur collar attached, creating a different Atmosphere.</p>
+<p>"D-Does it look strange?" "Not at all. Rather, you're so incredibly pretty that the background feels overshadowed." "Ehehe..." Urabe Konoka asked, seeming a little uneasy, but at my Answer, she put both Hands to her cheeks as if Embarrassed, and laughed, "Ehehe." Indeed, Praise was the Answer for Women. And it was an Appearance that couldn't help but be praised.</p>
+<p>I also took a Photo with Urabe Konoka, and the next Turn was Sakagami Rena's. Sakagami Rena was wearing a splendid dark purple Furisode that matched her Hair Color. However, to balance the splendid Furisode, she had a normal white fur collar.</p>
+<p>"Rena, you're pretty. It suits you incredibly well." "Liege-nim...! You are indeed a Hero who captivates Women's hearts♥" This time, I praised Sakagami Rena before she even asked, with good Sense, and she gave me the strange Evaluation of being a Hero who captivates Women's hearts. Still, seeing how delighted she was, it seemed there was no other meaning behind it.</p>
+<p>Last was Saionji Diana, and unlike the others, she was wearing a simple Furisode without a fur collar. It was a black Furisode contrasting with her white Skin, and perhaps because Saionji Diana was tall, it suited her quite well. She looked just like Diana, the goddess of the night and forest, and Virginity (though she wasn't a Virgin), just like her name.</p>
+<p>"It suits you well. Diana is like a goddess, just like her name." "Really? I'm happy, Sensei-nim..." When I gave the Evaluation exactly as I thought, Saionji Diana was extremely delighted. The Evaluation of being a goddess, just like her name, seemed to please her greatly. After taking all the Photos, and while we were debating whether to take a group Photo, Urabe Konoka opened her mouth.</p>
+<p>"Since there's no one around, let's first ask the Shrine Maiden at Shinkai Hime-nim's shrine for a group Photo. This way...." As Urabe Konoka instructed, we followed the Road, and the Daughter of the Abyss's shrine appeared. It wasn't as big as Susanoo's shrine, the main god of Urabe Shrine, but it had everything it needed.</p>
+<p>There was also a Chozuya (手水舎: a place to wash hands), a collection box for offerings, and a shrine maiden. Huh? Wasn't the Daughter of the Abyss's shrine maiden Urabe Konoka? Why was there another shrine maiden?</p>
+<p>"It's been a long time, Husband." The Shrine Maiden approached me and gave a greeting. She was a sexy Misi-style Shrine Maiden in her mid-thirties, and although her Face was unfamiliar, I felt a sense of familiarity. Seeing her call me Husband.... Could it be?!</p>
+<p>"Perhaps from Cho-oten Island...?" "Yes, I was indebted to you then. Fufu."</p>
+<p>The Reason her Face was unfamiliar was because she was the Hangari Muneo who had worn a jar on Cho-oten Island. The Reason I felt a sense of familiarity was because we had Sex, and I knew her entire Body except for her Face.</p>
+<p>"Did you move to the shrine in Miyashi?" "Yes, actually, I only go to Cho-oten Island for rituals, but since Shinkai Hime-nim sought out my Husband, they said the rituals would be simplified starting next year, so the overall management is handled by the head priest of that shrine, and I decided to go for only a day or two."</p>
+<p>I see. Since it's an Island after all, there must be many inconveniences for staying there. I greeted the Hangari Muneo, then went to the Chozuya with the Students to wash our Hands.</p>
+<p>"By the way, what kind of god is Shinkai Hime-nim?" Otagi Yuka asked, after being quiet for a while. Indeed, only I, Urabe Konoka, and a few others knew, and I hadn't really told the Students much about the Daughter of the Abyss.</p>
+<p>Shinkai Hime-nim is a deity that the Urabe Family claims to be a subordinate sea god under Susanoo. "Claims?"</p>
+<p>Sakagami Rena, sensing a subtlety in Urabe Konoka's Explanation, asked again. Then the Hangari Muneo, who had been listening to our Story nearby, stepped forward.</p>
+<p>"From here, it's a bit difficult for Konoka, who has the Urabe surname, to explain, so I will explain." Indeed, it wouldn't be a good look for Urabe Konoka to refute the Urabe Family's claims, so it seemed better for someone else to step forward and explain.</p>
+<p>"Actually, Shinkai Hime-nim is not a native Japanese god, but a god from outside. Although her history is old, if you look at how she is deified in areas bordering the Pacific, such as the Izu Islands, Ogasawara Islands, and Northern Mariana Islands, she is a god who came from the Pacific. Just by this, you can tell she has no Relation to Susanoo, a native Japanese god. My claim, as a Shrine Maiden serving Shinkai Hime-nim, is that Shinkai Hime-nim is not a subordinate god of Susanoo, but a separate god who rules the deep Sea." Everyone nodded their Heads at the Hangari Muneo's Explanation. Since Japan itself is a Country of gods, worshipping all sorts of gods, it was actually understandable no matter which god was worshipped.</p>
+<p>"Thank you for the Explanation." "You're welcome." When Urabe Konoka greeted us, Hangari Muneo smiled and spoke. After washing our hands and rinsing our mouths at the Chozuya, we went to the main hall's offering box.</p>
+<p>First, following the order of prayer, I rang the bell in the main hall and took out my wallet to make an offering.</p>
+<p>Still, since it was the Daughter of the Abyss's offering box, to whom I was indebted, I thought I'd offer a generous amount of Money, so I decided to empty all the Money in my Wallet. Upon checking, there were fifteen 10,000-yen bills in my Wallet.</p>
+<p>I took out all the money and put it into the offering box, and following the practice of two bows, two claps, and one bow, I bowed twice, clapped twice, and then bowed once more.</p>
+<p>When I bowed my Head for the last time and raised it, it was no longer the Daughter of the Abyss's shrine in Miyashi. I had somehow moved to the Place where the Daughter of the Abyss was.</p>
+<p>Furisode B-cuts! Otagi Yuka Urabe Konoka Sakagami Rena Saionji Diana</p>

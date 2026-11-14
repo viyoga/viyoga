@@ -5,84 +5,93 @@ weight = 623
 chapter = 623
 +++
 
-<p>Entering the laundromat, I glanced at the laundry basket Seizawa Shii was holding and saw the gothic lolita-style dress she had worn today. She's already doing laundry for something she wore today? It's November, so she shouldn't have been sweating.</p>
-<p>"You're washing something you wore today right away?"</p>
-<p>"Of course~! Because I'm a neat and tidy Shii-pyo~☆"</p>
-<p>Seizawa Shii paused slightly at my question before answering. I don't think so.... I remember she brought a huge pile of laundry when I met her at the laundromat before.</p>
-<p>"But that outfit looks expensive, shouldn't you take it to a better place than a coin laundry?"</p>
-<p>"It's okay if I use the high-end clothes washing machine."</p>
-<p>At my question, Seizawa Shii pointed to a huge silver coin washing machine in the corner. So, there was something like that. The shape was a bit different, and the price was higher than other washing machines, so I was wondering, but it was a washing machine dedicated to high-end clothing. Miyashi's neighborhood is affluent, so it seemed like they had these high-end washing machines.</p>
-<p>"You're working part-time, isn't it a bit much to wash it in a high-end washing machine after wearing it only once?"</p>
-<p>"Well.... I got something dirty on it while working part-time, Ryuta-jji."</p>
-<p>Ah, I see... not! What kind of part-time job makes you get something dirty on a goth-loli dress? Did she spill coffee or something while working at a goth-loli cafe like a maid cafe?</p>
-<p>"Did you spill something like food while working at a goth-loli cafe?"</p>
-<p>"U, uh...! That's right, I worked at a goth-loli cafe! Ketchup! I spilled ketchup while putting it on an omelet...."</p>
-<p>"Are you still working at the cafe? Tell me where it is. I'll go there sometime."</p>
-<p>"Ah, no. I was just helping out a friend's store. Even if Ryuta-jji comes next time, I won't be there."</p>
-<p>She seemed flustered for some reason, but Seizawa Shii pushed the dress into the high-end clothes washing machine and set the settings. Looking closely, it seemed like she could set the material, what it got dirty with, and other things in detail before washing. I should try it sometime.</p>
-<p>I also dumped all the laundry I brought into the washing machine, put in coins, and started it. Hmm... it takes about 1 hour and 20 minutes including drying. I sat down on a plastic chair in the laundromat. Seizawa Shii also finished setting up the laundry, pulled up a chair next to me, and sat down.</p>
-<p>"Seizawa, how long does your laundry take?"</p>
-<p>"About 1 hour and 10 minutes? And Ryuta-jji! Don't call me Seizawa, call me Shii. Why are you trying to keep your distance?"</p>
-<p>It seemed like it took less time than mine even though it was high-end washing because she had less laundry. And I wasn't particularly trying to keep my distance. It's just that I got used to calling her Seizawa, which I had been calling her since the beginning of the semester.</p>
-<p>"I haven't particularly kept my distance. And don't I call all the other students by their last names?"</p>
-<p>"You call Alik-ppi Alik."</p>
-<p>Ah, that's right. There was Alik. Still, Alik is Alik....</p>
-<p>"Still, I've known Alik since before. And before she became Egawa Alexandra, she was Alexandra Smirnova. Her name is difficult, so I just call her by her nickname."</p>
-<p>"Smirnova? That's a bit difficult. Still, call me Shii from now on, Ryuta-jji."</p>
-<p>"Okay, Shii. Is that okay now?"</p>
-<p>When I called her Shii, Seizawa Shii giggled.</p>
-<p>"Ryuta-jji, I'm hungry, should we play rock-paper-scissors and the loser goes to the convenience store? One person has to watch the laundromat, so one person has to go."</p>
-<p>Seizawa Shii suggested a rock-paper-scissors game, perhaps because she was bored of waiting for the laundry to finish. Still, I can't ask a kid who's living off part-time work to buy me something, so I got up from my seat.</p>
-<p>"What's with the game? I'll just go. What do you want to eat?"</p>
-<p>"Ryuta-jji is buying?"</p>
-<p>"Yeah. What kind of teacher mooches off a student who's working part-time?"</p>
-<p>"I make a lot of money...."</p>
-<p>"I make more. Just shut up and tell me what you want to eat."</p>
-<p>"Then grilled rice balls, and Kalbi, and.... Dumplings...."</p>
-<p>When I told her to say what she wanted to eat, Seizawa Shii said a lot of things, not like a midnight snack, but like she was trying to eat a meal. I don't think she usually eats this much, was her part-time job that hard?</p>
-<p>"Are you having some kind of home party? It's too much to memorize, so just send it to me on LINE."</p>
-<p>"Okay!"</p>
-<p>Seizawa Shii called out so many things that I shook my phone and told her to send it to me on LINE and left the laundry room.</p>
-<p>The convenience store was about a 3-minute walk at a fast pace. I went into the convenience store. I put the food on the LINE that Seizawa Shii sent and picked out what I wanted to eat. I picked out more than what Seizawa Shii ordered, so the amount was huge.</p>
-<p>"Are you having a party or something?"</p>
-<p>I used the convenience store often, so the part-timer and I were familiar with each other, so he spoke to me. I think he asked because I had so many things at the checkout counter.</p>
-<p>"Well, something like that."</p>
-<p>"It's 23,000 yen."</p>
-<p>23,000 yen? Hmm.... Did I buy too much? I divided my stuff and Seizawa Shii's stuff into two bags and headed back to the laundromat. Both bags were quite heavy.</p>
-<p>"Ryu, Ryuta-jji, why is there so much?"</p>
-<p>"Because you ordered so much."</p>
-<p>I handed the bag to Seizawa Shii and sat back down on the plastic chair. We quietly ate our food and watched the laundry spinning in the washing machine. We had already eaten dinner, and I didn't intend to eat everything I bought. I bought some for tomorrow morning too.</p>
-<p>"Ryuta-jji, aren't you eating anymore?"</p>
-<p>"I'm going to eat the rest in the morning."</p>
-<p>"Hee~ It's amazing that glutton Ryuta-jji is only eating this much?"</p>
-<p>"You're more amazing. I should give you the title of glutton now."</p>
-<p>"Calling a cute girl a glutton! That's too much!"</p>
-<p>Seizawa Shii said it was too much, but when I pointed to the bag that was still full of food, her face turned red and she became quiet. By the way, it's amazing that she calls herself a cute girl. Of course, Seizawa Shii was cute from an objective point of view, but still.</p>
-<p>"I didn't eat anything while working, so I was hungry...."</p>
-<p>"Okay. Eat a lot."</p>
-<p>I turned on my phone, leaving the embarrassed Seizawa Shii behind. It was to watch the video that Eve leaked again.</p>
-<p>This time, it was more focused on the appearance of zombies being shot and holes being made in the energy bullets, as if to show the performance of the gun a little more.</p>
-<p>"What are you watching?"</p>
-<p>"Ah, it seems like the video that Uenozono took from the South China Sea unit was leaked again."</p>
-<p>"Again?"</p>
-<p>At my words, Seizawa Shii frowned. There was a reason why Seizawa Shii frowned. It was because of the malicious comments. Most of them were reactions that it couldn't be helped, but a very small number of them said, "Isn't this murder?" and made malicious comments saying that St. Francis Girls' Academy was a school for murderers. Of course, that opinion was very small.</p>
-<p>Anyone could see that the threatening cyber zombies were running like crazy, and there were over a thousand of them. Of course, it's self-defense to shoot with the weapon you're holding.</p>
-<p>Besides, the focus is now on TG Tech's guns, so as time goes by, comments about murder or anything like that are disappearing. Of course, the Japanese government may be deleting those posts and blocking the writers. The target of the malicious commenters' malicious comments were the daughters of Japan's vested interests. Or maybe they physically became unable to use the internet anymore.</p>
-<p>"There are no comments about you here. Most of them are just comments about the gun."</p>
-<p>"Ah, really? That's a relief."</p>
-<p>It was spread in the American community, so it was in English, but these days, translations are good, so I could quickly check the contents.</p>
-<p>It was mostly comments saying please release it quickly and take my money. It was a natural reaction since they were showing the power of the new system called energy bullets like this.</p>
-<p>"Ryuta-jji, you're involved with TG Tech, so you're going to make some money?"</p>
-<p>"That's why I can buy you so much at the convenience store like this."</p>
-<p>To the students' questions about how I prepared so many guns, I made the excuse that I had a meeting with an employee of TG Tech, which I invested in, and decided to move some of the items by bus. I told them that the zombie incident broke out before I could move the items, so we were able to use them.</p>
-<p>Actually, it wasn't a very good excuse, but the special class students believed it. Of course, Shido Tsubaki, who thought of herself as a reporter, was suspicious of my answer, but she couldn't ask directly because she had saved her life thanks to my guns.</p>
-<p>"Shii, don't worry about the malicious comments and tell me if there's anything you want to eat. I'll buy you as much as you want."</p>
-<p>"Really, Ryuta-jji?"</p>
-<p>I stroked Seizawa Shii's head once as if to comfort her, who was a little depressed, and Seizawa Shii's face turned red and she got up from her seat. It was because the laundry was done. My laundry still had about 10 minutes left.</p>
-<p>Seizawa Shii, who put the finished laundry in the basket, stood in front of me and suddenly grabbed both of my cheeks and kissed me.</p>
-<p>Chuuup, chyuup♥ Jjubeub...!</p>
-<p>Seizawa Shii, who had been mixing her tongue with mine for a while, licked her lips with her tongue and looked at me.</p>
-<p>"A reward for buying me delicious things♥ Hehe, Ryuta-jji's lips taste like yakitori today."</p>
-<p>Seizawa Shii laughed hehe and took the laundry basket and went outside. Of course, the last thing I ate was yakitori, so it would taste like yakitori sauce. She's so seductive. This wasn't my first kiss with Seizawa Shii, but it was still a very sweet kiss. I smiled slightly and looked at the remaining time on the washing machine.</p>
-<p>______________</p>
-<p>Alik practice. I usually use Alik when practicing with a new model. Because she's cute.</p>
+<p>As Minamoto Lisa's goal stated, doing a thousand photos in a day was a bit much. Opinions on the photos differed greatly, so each one was the subject of considerable debate. With 12 students, it was natural that tastes would vary.</p>
+<p>Even with photos of similar concepts, some argued for smiling, others for expressionless, so it was natural that it took time.</p>
+<p>,This isn't working. Since we're going to filter them out in the second round anyway, let's move on to voting on whether the photos are good or not. We'll have to collect similar concept photos separately and filter them out in the third round anyway."</p>
+<p>After picking out about a hundred photos, it was taking too long, so Minamoto Lisa, unable to continue, eventually switched to a show-of-hands voting system rather than exchanging opinions.</p>
+<p>Changing the method sped things up, and although they didn't reach the target of a thousand, they were able to classify about eight hundred.</p>
+<p>,By the way, how many photos are you going to make into photo cards in the end?"</p>
+<p>,Maybe a little over a hundred? If you buy one club anthology, it comes with a pack, and I'm planning to put four or five in there."</p>
+<p>,What?"</p>
+<p>So, to collect all hundred, you'd have to buy more than 20 club anthologies, even if you're incredibly lucky and get no duplicates? No matter how handsome I am, would anyone collect my photo cards that much? I'm a bit skeptical.</p>
+<p>,This isn't the end. Since the club is on the second floor, we'll set up a cafe in our classroom on the first floor and let people exchange duplicate cards."</p>
+<p>She's a, she's a genius? To think of selling drinks at the cafe to buyers of the club anthology and sucking money out of them twice over, she truly is the young lady of the Minamoto family.</p>
+<p>The problem is how many books I can sell with my card.... Minamoto Lisa must have thought this through to plan it like this. Still, just in case, I should promote the club anthology to Yukiko and a few others.</p>
+<p>Minamoto Lisa seemed to be pushing herself, as she was trying to pass the Minamoto Group's test of earning ten million yen with an investment of less than one million yen through sales at this festival. I've already raised Minamoto Lisa's favorability quite a bit, so it would be good for me if Minamoto Lisa secured a position in the Minamoto Group.</p>
+<p>And since they're selling the club anthology with my face on it, it would hurt my pride if it didn't sell well, so I should ask a few people to buy it for me.</p>
+<p>,We'll take care of cleaning up here, so you can go first."</p>
+<p>,Doesn't look like there's anything to clean up, though?"</p>
+<p>For some reason, Minamoto Lisa was trying to kick me out of the club room. Do they have something to talk about separately with the special class kids in the club room? Since I have a few people who will be my ears anyway, I nodded and got up from my seat.</p>
+<p>###</p>
+<p>,Now that Ryuta-sensei is gone, let's start."</p>
+<p>As soon as homeroom teacher Yamashiro Ryuta left, Minamoto Lisa opened her mouth to Oofuchi Erika. Otagi Yuka nodded and pulled the laptop in front of her.</p>
+<p>No one asked what they were starting. The date experience club members had already finished talking. They didn't want to show the viral marketing from the fan club, so they told Yamashiro Ryuta to leave.</p>
+<p>,Is it okay to do viral marketing like this?"</p>
+<p>,Of course. Our school kids have a lot of money, so they won't care much about the amount."</p>
+<p>Minamoto Lisa answered nonchalantly to Otagi Yuka's question. Otagi Yuka said in her mind, "You're the richest family," but she didn't say that thought out loud.</p>
+<p>Oofuchi Erika typed a few times, then nodded as if satisfied, and continued typing while looking at the laptop monitor. Seeing this, Minamoto Lisa asked Oofuchi Erika.</p>
+<p>,Are you done?"</p>
+<p>,Yeah. Take a look."</p>
+<p>At Minamoto Lisa's words, Oofuchi Erika turned the laptop so everyone could see it.</p>
+<p>◆ Breaking News! Date Experience Club Planning to Make Prince Photo Cards at the Festival!!!!</p>
+<p>A Sneak Peek Fan Leaker Brought More News WWW</p>
+<p>So that's why Minamoto Lisa Kept Taking Prince's Pictures</p>
+<p>They Say They're Selling Photo Cards with the Club Anthology WWWWWW</p>
+<p>Prince Was Wondering Why They Were Taking His Pictures, But When He Heard They Were Releasing Photo Cards, He Was Worried It Would Be a Burden for the Buyers.</p>
+<p>No~ We Have Money Even If We Don't Have Anything Else WWWWW It Was So Cute How He Was Worrying About Useless Things WW</p>
+<p>└So How Much Is the Anthology?</p>
+<p>└Not Decided Yet!</p>
+<p>└Another Attention Seeker. Are They Really Going to Sell Sensei's Photo Cards in the Club Anthology WWWW But It Would Be Nice If They Really Did.</p>
+<p>└Ah, Prince Is Cute. He's Worried About Us with Our Money WWWWW</p>
+<p>└We Should Make It Sell Out in an Hour So He Doesn't Have to Worry.</p>
+<p>└We Have Money to Burn, So We Could Buy 100 Club Anthologies WW</p>
+<p>└Roughly a Picture of the Japanese Prime Minister Giving a Thumbs Up.</p>
+<p>└Yeah~ I'm Going to Make It Sell Out. No One Here Can Buy It~ I'm the Only One Who Will See Prince's Photo Cards.</p>
+<p>└STFU. Minamoto Lisa Will Probably Figure Out All Our Thoughts and Print a Ton of Books.</p>
+<p>└But Sneak Peek Fan, Is the Photo Quality Good? If It's Just Random Photos, I Wouldn't Really Want to Buy It</p>
+<p>└Minamoto Lisa Took Over 6,000 Pictures with a Camera Worth Over 1 Million Yen. How Could There Not Be Good Ones?</p>
+<p>└Six Thousand? Are You Crazy? How Can You Take So Many Pictures of My Husband Without My Permission?</p>
+<p>└You're the Crazy One WW Why Is Prince Your Husband? He's My Husband WWWWW</p>
+<p>└You're Both Just Crazy.</p>
+<p>What Oofuchi Erika did was join Yamashiro Ryuta's anonymous fan club, "Prince of the Prison," and leak information about the date experience club. It was to increase interest and manipulate public opinion by releasing information about selling photo cards in advance, but this wasn't the end of the operation.</p>
+<p>,The reaction is good. Let's post it on the real-name fan cafe this time."</p>
+<p>Minamoto Lisa smiled as she looked at the reactions to the post. There were comments saying "Minamoto Lisa, you bitch," but she didn't care. She was prepared to be insulted to some extent for this kind of operation.</p>
+<p>Yamashiro Ryuta's fan clubs were divided into "Prince of the Prison," an underground, non-real-name cafe, and "Yamashiro Ryuta-nim Appreciation Society," a public, real-name cafe. It was easy to manipulate public opinion in the non-real-name cafe, "Prince of the Prison," but it was difficult to manipulate public opinion in the "Yamashiro Ryuta-nim Appreciation Society."</p>
+<p>However, since there was some overlap in the membership of the two fan clubs, it was easy to spread the news. She thought that the reaction wouldn't be bad even without manipulating public opinion, as the "Yamashiro Ryuta-nim Appreciation Society" was a more moderate group.</p>
+<p>###</p>
+<p>,Hoo...."</p>
+<p>Taira Kanna sighed and pressed her temples. Most of the third-year students at St. Francisco took a week off using this vacation, but Taira Kanna couldn't rest because she was taking classes at the university she had entered early and writing reports. That's why she had a headache from fatigue.</p>
+<p>If others saw her, they would say, "Why are you in such a hurry?" but Taira Kanna's thoughts were different.</p>
+<p>In her opinion, even this was slow. Her opponents were not her peers but the successors of the Tairaga family. With Taira Ichiro, Jiro, and Kokoro already firmly holding their positions, Taira Kanna couldn't rest.</p>
+<p>,Should I rest for about 10 minutes, though? At times like this...."</p>
+<p>Taira Kanna manipulated her smartphone and accessed the "Yamashiro Ryuta-nim Appreciation Society," Ryuta-oraboni's fan club.</p>
+<p>,Looking at Oraboni's pictures is healing."</p>
+<p>Since it was a fan club, the "Yamashiro Ryuta-nim Appreciation Society" often posted pictures of Ryuta-oraboni, so Taira Kanna often used the "Yamashiro Ryuta-nim Appreciation Society."</p>
+<p>She didn't visit the other fan club, "Prince of the Prison," often because it was an anonymous community and there were too many vulgar posts saying they wanted to fuck or suck Oraboni, but today there were a few stories about "Prince of the Prison" posted in the "Yamashiro Ryuta-nim Appreciation Society."</p>
+<p>,Huh...? Breaking news?"</p>
+<p>●Post Number 220113. ●Author: Goddess of the Moon Diana</p>
+<p>●Title: Breaking News from the Prison Next Door.</p>
+<p>I heard that the date experience club is releasing an anthology at the festival, and they're giving away our teacher's photo cards as a bonus? Is this true?</p>
+<p>If it's true that they're giving away photo cards as a bonus, I should save up some allowance ^^</p>
+<p>Comments (105)</p>
+<p>●Kkyuri Kkyung: I can't believe it because that side is anonymous, so there are a lot of lies and exaggerations.</p>
+<p>●Tsubattan: The person who posted the article seems to be affiliated with the real date experience club. They often deliver news that you wouldn't know unless you were a member of the date experience club.</p>
+<p>●Cherry Jjang: Should I ask Sensei? www</p>
+<p>└●Sasami: (ఠ ̥̆ ఠ) Don't pretend to be close to Sensei when you're not.</p>
+<p>└●Parfait Joa: That's right. Pretend to be close in the fan club next door.</p>
+<p>●Ryuko (竜子) Ttang: I hope it's true. So does that mean we can call this photo card official?</p>
+<p>●D-Cup Miko: If photo cards are coming out, I hope they release a lot of club anthologies. So they don't sell out.</p>
+<p>└●Fire Mari: But are you really a D-cup?</p>
+<p>└●D-Cup Miko: Yes.</p>
+<p>└●Fire Mari: Die, big boobs!</p>
+<p>└●D-Cup Miko: Huh?</p>
+<p>●Sarada Joa: If this rumor is true, I hope the festival comes soon! I'm looking forward to it~</p>
+<p>,Photo cards.... You've had a cheeky thought, Lisa."</p>
+<p>After reading all the posts, Taira Kanna immediately figured out who had started this. The pattern of manipulating public opinion from behind the scenes and hiding herself was similar to the movements of the Minamoto Group.</p>
+<p>There isn't a company without a viral team, but the Minamoto family is known to use it the best, so Minamoto Lisa seemed to have a talent for manipulating public opinion as well.</p>
+<p>,But I'll let it slide this time. You've put up a very attractive product."</p>
+<p>Thinking that she had lost this time, Taira Kanna smiled. At the same time, she calculated how much money was in her account.</p>
+<p>She was thinking about how much money she would have to spend to collect all the photo cards, as the vicious Minamoto Lisa would definitely put the photo cards in randomly and make it impossible to complete the set by buying only one or two books.</p>
+<p>______</p>
+<p>Following yesterday, Alik is wearing a dinosaur skin (?) lol</p>
+<p>It feels like a dinosaur raincoat lol</p>

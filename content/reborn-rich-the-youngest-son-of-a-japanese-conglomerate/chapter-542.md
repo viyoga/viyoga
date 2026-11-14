@@ -5,73 +5,83 @@ weight = 542
 chapter = 542
 +++
 
-<p>"This isn't a joke. It involves drugs, so it could be incredibly dangerous."</p>
-<p>-Aren't you in danger, sensei?</p>
-<p>"I'm... good at fighting, so."</p>
-<p>I didn't really have anything to say to Shido Tsubaki's question, so I mumbled something strange. Telling her that I'm a master of kenpo wouldn't work on Shido Tsubaki in a situation where we're going to a place with drug dealers who might have guns. But I can't exactly reveal that I'm a psychic either...</p>
-<p>-Is it because you're the Black... Knight?</p>
-<p>...I figured she must have seen something during the Oofuchi Erika rescue incident. There's no way she wouldn't have looked into it, leaving Shido Tsubaki behind like that. Shido Tsubaki, who's hobby is gathering information, probably got information from a camera she installed somewhere or from a disciplinary committee member who participated in the battle. I should have been more careful.</p>
-<p>"... It was just cosplay."</p>
-<p>Shido Tsubaki was silent for a moment at my ridiculous words that no one would believe. After a moment, I heard Shido Tsubaki's serious voice from the phone.</p>
-<p>-Don't joke around, sensei.</p>
-<p>Damn it. She doesn't believe me after all. Oh well. In this case, the best strategy was to just brazen it out with an iron face.</p>
-<p>"Still, I can't. As a teacher and a hero, I can't do anything that could harm my student."</p>
-<p>It was embarrassing to call myself a hero, but I couldn't help it. The image of the Black Knight was already a hero in the world. Ma-vel and GC were also creating hero characters with armor similar to mine and serializing them to great acclaim, so the image of me as a hero was already too ingrained.</p>
-<p>I heard that Aitana, who became famous as the face of the battle with the Famine and the American psychic special forces, was already raking in money from image rights everywhere, which I was a little jealous of. Of course, no matter how much money they gave me, I had no intention of selling my face as the Black Knight.</p>
-<p>I'm going to be the chairman of a chaebol later, so hero activities? It's not like I'm Batman or Iron Man. I was going to be satisfied as the mastermind sitting in the back, not a hero. This world isn't a world of hero stories, but a world of mega-corporations without blood or tears.</p>
-<p>-You can protect me, sensei. If you're the Black Knight who fought the Famine...</p>
-<p>Hmm, now that I think about it, I recently got a telekinetic barrier. If I put it on Shido Tsubaki, her safety would be guaranteed...</p>
-<p>"Just this once. And I hope you'll keep my work a secret from now on."</p>
-<p>I decided to take Shido Tsubaki with me on the condition that she keep my identity a secret. I ended the call with Shido Tsubaki, who excitedly said she understood, and contacted Sakagami Rena and Otagi Yuka, whom I had thought of in advance, and told them to meet me in front of the school gate.</p>
-<p>I threw on some clothes and left the house. Summer was completely over now, and the cool air tickled my cheeks. Miyashi surprisingly had good air for a city. It's a city with a small population, but the refreshing air created by Mount Fuji and the Sea of Trees flows in.</p>
-<p>I understood why rich people built villas in this city. The air is good, there aren't many ordinary people, but there are many rich people who can communicate, and it's moderately bustling, so you can buy what you need at any time. Should I build a villa in this area later?</p>
-<p>"Ah! Sensei-ssi!"</p>
-<p>I was thinking about villas and heading to school when Otagi Yuka with red hair saw me at the main gate and waved her hand. Sakagami Rena, wearing a ninja mask, was standing next to her. She's wearing a mask because there might be a battle after all.</p>
-<p>"Yeah, but..."</p>
-<p>Just as I was about to say that Shido Tsubaki might come, I saw Shido Tsubaki. She must have left around the same time as me, because she arrived around the same time too.</p>
-<p>"Huh? Why is Shido here?"</p>
-<p>"Won't it be dangerous?"</p>
-<p>Otagi Yuka and Sakagami Rena were tilting their heads with question marks, with expressions that said, 'Why is she here?'</p>
-<p>"She seems to have seen me wearing the Black Knight armor when Oofuchi was kidnapped..."</p>
-<p>"I see."</p>
-<p>"That's right."</p>
-<p>They nodded without needing any further explanation after hearing my short words. Soon, Shido Tsubaki arrived and we entered the academy.</p>
-<p>"So, did you find out where to look?"</p>
-<p>"Ah, can't we just wander around the forest and search any suspicious-looking houses?"</p>
-<p>Otagi Yuka answered Shido Tsubaki's question with an expression that said, 'Is that difficult?' Shido Tsubaki sighed and flipped through the printed papers one by one.</p>
-<p>"The reason I insisted on coming along is because I thought we'd waste time like this. It's a map showing the location of the management team's temporary buildings that I investigated in advance, so you can go while looking at it."</p>
-<p>I see. It seemed that Shido Tsubaki had anticipated that we would act so recklessly and insisted on coming along.</p>
-<p>I checked the paper I received. It's written in quite detail. The academy grounds were quite large, so there were quite a few management team rest areas and warehouses. Looking at the map, I pointed to two of them. The old warehouse deep in the forest that I saw from the helicopter, and the warehouse near the back gate where food and various supplies came in, not the main gate.</p>
-<p>"The manufacturing will probably be done in a secluded place, and the finished drugs will be stored in a place where vehicles can easily come and go to take them out, so these two places are suspicious."</p>
-<p>"It's definitely more efficient to look at suspicious places first than to look at all the places."</p>
-<p>Everyone nodded at my words, and in addition, we decided to split into teams of two and look at the two places at the same time. The plan was to check the two places and if there was nothing, we would each look at the nearest place. Of course, Shido Tsubaki was on my team because I brought her, and Sakagami Rena and Otagi Yuka were on one team.</p>
-<p>"The request given to us is not to defeat the drug dealers, but to find out information, so don't overdo it and don't try to fight."</p>
-<p>Except for Shido Tsubaki, the rest are skilled enough to win even if a bunch of drug dealers come, so I can't really say it's unreasonable, but since it's not like I'm getting paid, there's no need to use my strength.</p>
-<p>"Okay. I'll report the situation and deal with it, so don't worry, sensei-ssi."</p>
-<p>"My lord, please don't worry."</p>
-<p>The two left those words and headed to the warehouse deep in the forest. It seemed that they gave way to a place that was easy for us to go to, taking into account that Shido Tsubaki was there. They're both so considerate.</p>
-<p>"We've been taken care of."</p>
-<p>"Don't worry about those two, they're strong."</p>
-<p>"I know those two are strong."</p>
-<p>Shido Tsubaki probably knows that the Otagi family is a vampire family and the Sakagami family is a ninja family. We walked slowly towards the back gate. We met guards on the way to the back gate, but they had already eaten enough money from me, so they passed me without saying anything.</p>
-<p>"The guards aren't saying anything?"</p>
-<p>"I usually grease their palms a little."</p>
-<p>"...I see."</p>
-<p>I didn't know what she was imagining and saying 'I see', but we soon saw the warehouse and shut our mouths. There were two warehouse buildings, the warehouse where goods from outside the academy came in first, and the garbage dump where the academy's goods (such as garbage) were taken out.</p>
-<p>I put a weak telekinetic shield on Shido Tsubaki and gestured for her to follow me. Shido Tsubaki seemed a little surprised by the translucent barrier in front of her, but she followed my instructions and headed to the warehouse.</p>
-<p>The things in the warehouse are mostly food ingredients or cleaning supplies requested by the management team, so there are no guards stationed there. It's easy to track if you steal it and it's not very convertible to cash, so there's no need to protect it with guards. There was a lock, but locks were like twigs in front of me.</p>
-<p>We easily entered the warehouse and slowly looked around inside to find drugs. After searching for about fifteen minutes, we couldn't find even the 'd' in drugs.</p>
-<p>"There's nothing?"</p>
-<p>"Since this is where things come in, wouldn't it be more natural for things to be in the garbage dump? Because they won't rummage through the garbage."</p>
-<p>That makes sense. Since this warehouse is where things come in from the outside, it seemed strange to have drugs here. Rather, the garbage dump would be a place where you can take things without being suspected.</p>
-<p>We immediately left the warehouse and went to the garbage dump. There wasn't any food waste, so there was less of an unpleasant smell, but there was still a unique smell of the garbage dump. There were a huge number of general waste, paper boxes, and plastic waste in large bags.</p>
-<p>The Earth rapists were living in St. Francis Girls' Academy...</p>
-<p>I looked around the garbage dump with an eco-friendly thought. Hmm, where would I hide the drugs if I were me? First of all, general waste is out. It's in black bags that are hard to distinguish, and general waste is dirtier than other waste here, so it's out from the worker's point of view.</p>
-<p>Most of the plastics are transparent, so there doesn't seem to be any space to hide drugs, and it seems like they would be between the unfolded and stacked paper boxes. It would be easy to find if you marked the paper boxes.</p>
-<p>"It seems like it's between the paper boxes."</p>
-<p>"It definitely seems like it."</p>
-<p>Shido Tsubaki must have thought the same thing as me, because she said that as she approached the pile of paper boxes. I didn't want to touch the dirty boxes that I didn't know what was in them, so I pulled Shido Tsubaki back and looked at the pile of paper boxes. Looking closely at the pile of boxes, there were a few piles of boxes that were checked with something like a red pen, although it wasn't very noticeable.</p>
-<p>Seogeok!</p>
-<p>I used Shadow Domination to remove the rope tying the pile of boxes, and then I was about to use telekinesis to lift the unfolded boxes when I heard a voice from behind.</p>
-<p>"Hehe... What brings you to this garbage dump, sensei?"</p>
-<p>It was the voice of the management team leader. It wasn't the usual kind-hearted old man's voice, but a chilling voice full of murderous intent.</p>
+<p>On Monday, after going to work with Kijimoto Jurie, I was called in by Daigo Terue. I knocked on the Director-nim's office door, and Daigo Terue's voice replied, "Come in."</p>
+<p>"Yamashiro-sensei, did you have a good weekend?"</p>
+<p>"Yes. I had a wrap-up party with the students after the sports day and rested well."</p>
+<p>Daigo Terue nodded. And smiled slightly.</p>
+<p>"The top-performing team at the sports day gets a day off to use as they please. The students get a day off, but they have to take the class online that day, and I ask the teachers to schedule their vacation on a day when they don't have class if possible, but still, a vacation is a vacation. Please deliver this to the students directly, sensei. They'll all be happy."</p>
+<p>Oh.... I was wondering what kind of prize to give to students, most of whom are rich anyway, but they're just giving them a day off as a gift. If they use it on Friday or Monday, they can play for 3 days, so it seemed like they could use it that way.</p>
+<p>"And.... thank you."</p>
+<p>"Yes? For what?"</p>
+<p>What is she thanking me for? Daigo Terue's expression was serious.</p>
+<p>"Erika. Before Yamashiro-sensei took office, she had no hope at all, I thought she would continue to live as a hikikomori, only living in her room, but she made friends, cooperated with those friends to participate in the sports day.... I couldn't have imagined this."</p>
+<p>Oofuchi Erika was Daigo Terue's goddaughter, but it seemed like she thought of her as her real daughter because of the affection she had for raising her. I dragged her hikikomori daughter out into the world, so she must be grateful.</p>
+<p>"It's my job as homeroom teacher. You don't need to thank me."</p>
+<p>I said modestly and got up from my seat. I couldn't talk to Daigo Terue for long because I wouldn't be able to make it to the morning assembly if I didn't go back soon.</p>
+<p>"I'll go now since it's almost time for assembly. Let's have dinner sometime, Director-nim."</p>
+<p>"Okay. I'll contact you."</p>
+<p>Daigo Terue knew that the dinner I was talking about was sex, so she blushed but didn't refuse. I said goodbye to Daigo Terue and headed to the special class building.</p>
+<p>There's nothing special to tell them today, I just need to tell them about the sports day's best class that I just heard from Daigo Terue. The kids will be so happy, right?</p>
+<p>Deureureuk!</p>
+<p>"You guys must have had a good weekend since Ei-sensei bought you food, right?"</p>
+<p>I opened the classroom door with a refreshing morning greeting. The students greeted me with jeers, "Uu~!", as if they didn't like the way I was showing off.</p>
+<p>"Ryuta-jji, don't show off! I'm a poor student who works part-time~!"</p>
+<p>Well, talking about money could be a bit sensitive. Minamoto Risa of the Minamoto Group and Konoe Akina, the head of the Konoe family, make the average very high, but Saionji Diana, who was abandoned by her family, Otagi Yuka, and Seizawa Shii, who makes a living working part-time, make our class the most economically unequal class in St. Francisco Girls' Academy.</p>
+<p>"Please forgive me for showing off this much. Because I have good news."</p>
+<p>It was quite cute how everyone perked up their ears when I said I had good news. Uenozono Karen with her twintails was also attending class for the first time in a while and was looking at my mouth. Then the empty seat is Naruse Shiyo's.</p>
+<p>I was starting to worry. Naruse Shiyo skips class once or twice a week, but if she's sick from Saturday to today, that's three days in a row. I feel like it's because I made her participate in the sports day....</p>
+<p>"Ryuta-jji, what are you thinking about? Tell me quickly!"</p>
+<p>"Ah, I was just checking attendance with my eyes. The good news is that.... there's a prize for being the best class at this sports day."</p>
+<p>"A prize? What is it? I don't like money or gift certificates...."</p>
+<p>"It's St. Francisco Girls' Academy, so they won't give you money. Probably...."</p>
+<p>"I like money! I can take a break from my part-time job~☆"</p>
+<p>At my words, the students were speculating about the prize the school would give them. By the way, I'm curious about what kind of part-time job Seizawa Shii does. I should call her separately and ask her later.</p>
+<p>"The prize is a day off that you can use whenever you want."</p>
+<p>"Wow~! That's a relief! I got a call saying that I might be held back a year if I miss a few more days of school!"</p>
+<p>"Not bad."</p>
+<p>"Well.... there would have been complaints no matter what they gave as a prize."</p>
+<p>I thought they would like it quite a bit, but except for Uenozono Karen, who had a problem with her attendance, the rest had a lukewarm reaction.</p>
+<p>Uenozono Karen is working as an idol, so she was assigned to a special class to be lenient with her attendance, but there was still a minimum. She's been skipping class often since the first semester because she's so busy with her idol work, so her minimum attendance is precarious. So, unless it's a very important schedule, it was impossible for her to be absent now.</p>
+<p>Naruse Shiyo is absent because she's sick, so it can't be helped, and she's a diligent child who watches online lectures even when she's absent, so there's no problem with her attendance.</p>
+<p>"Still, if you use it on Friday or Monday, you can go somewhere to play, right? If you skip school for a day, you can go on a 4-day trip."</p>
+<p>"Is that so?"</p>
+<p>The students nodded with an expression that said, "That makes sense...!" Of course, it would be a problem if Minamoto Risa and Seizawa Shii, who were held back a year due to absences, or Uenozono Karen, whose attendance was precarious due to continuous absences, were absent without a reason, but it didn't matter if the other students were absent for a day or so.</p>
+<p>"Did sensei get something as a prize for being the best class?"</p>
+<p>"I also got a day off. I can't use it on days when I have class, but I'll have to use it if there's a seminar like last time."</p>
+<p>In fact, I'm planning to go to Tokyo or Korea again under the guise of a seminar to work, but I can't tell the students the truth, so I packaged it as a seminar again. The students said, "Oh, I see," and then, "Oh, right!" and started talking to me.</p>
+<p>"Ryuta-jji, you've become a star, haven't you?"</p>
+<p>"That's right! Our vlog got a great response this time, sensei!"</p>
+<p>Uenozono Karen's vlog? You must be talking about the one you filmed at the sports day back then?</p>
+<p>"Why am I becoming a hot topic when it's Uenozono's vlog?"</p>
+<p>"Well, it's because you're Karen's homeroom teacher, so your face is shown a bit."</p>
+<p>At the students' words, I immediately took out my phone and accessed Mytube. The students also seemed to think my reaction would be interesting, so they all came out and surrounded me, watching my phone screen together.</p>
+<p>"Sensei-nim...."</p>
+<p>Uenozono Karen looked at the screen and called me in a slightly disappointed, sobbing tone. I looked at Uenozono Karen with a "Why?" expression, and her eyes were slightly teary.</p>
+<p>"Ryuta-jji, that's too much! Why didn't you subscribe to Karen's channel?"</p>
+<p>Seizawa Shii scolded me and told me the answer. Ah, that's why she was about to cry? That's kind of cute. I immediately pressed the subscribe button on Serif's channel, which Uenozono Karen belongs to, and looked at Uenozono Karen with an expression that said, "Okay, right?"</p>
+<p>"Ehehe...!"</p>
+<p>Watching Uenozono Karen smile brightly as if she had never been teary-eyed, I clicked on the most recently uploaded video. By the way, 2 million views on a video with me in it with 5 million subscribers.... It was quite a hot topic.</p>
+<p>First, I checked the comments. There wasn't much time left until class, so I couldn't watch the entire video with the students, so I had to check the reactions first.</p>
+<p>Scanning through the comments, it wasn't quite to the extent of "You've become a complete star," as the kids said. Most of the comments were about how pretty and cute the Serif members were, and they were surprised by the beauty of the special class students, and the reactions to me were clearly divided between men and women. The comments written by men were mostly curses, ranging from "Why is there a blonde guy at school?" to "I'm disappointed because he's a male teacher" and "His dick must be small."</p>
+<p>Well, the reactions from women were quite good without me having to say it. In particular, Latin and American older sisters liked me quite a bit. Japan prefers white, pretty boy styles, so the reactions were better in the comments from foreigners.</p>
+<p>"Ei~! Ryuta-jji, don't smile too much."</p>
+<p>"Ryuta, is your dick.... small?"</p>
+<p>Seeing my satisfied expression, Seizawa Shii puffed out her cheeks for some reason and told me not to smile with a sulky expression, and Alik said the word "dick," which shouldn't have come out of Alik's mouth, with a pure and innocent expression. But it was a statement that touched my pride, so I had to explain myself to Alik.</p>
+<p>"No, I'm more confident than anyone.... in my big d, no, what's wrong?"</p>
+<p>"Sensei, no matter how proud you are of that part, you can't say that in front of Alik!"</p>
+<p>When I was about to tell Alik about the greatness of my thing, Otagi Yuka and a few others blocked my mouth, and Uenozono Karen was deleting the comments that were making dick jokes. Everyone seemed shocked by the word "dick" that came out of Alik's mouth.</p>
+<p>"I have to track down and catch the IDs ekfkadlwhgdk39 and hentai77."</p>
+<p>Minamoto Risa, who was carefully looking at the comments and writing down the IDs in the meantime. She was the scariest. Because she had the ability to carry out those words at any time, it didn't sound like a joke. The atmosphere of appreciating the vlog's reaction became strange, so I put my phone back in.</p>
+<p>"Okay, class is starting now, so stop blocking my mouth and sit down."</p>
+<p>"Yes~!"</p>
+<p>The students quickly returned to their seats at my words. I picked up the documents I had brought and headed to the classroom door. And I turned my head and looked around at the students and opened my mouth.</p>
+<p>"Those comments there are all lies, so don't believe anything. Especially the d.... that one."</p>
+<p>Everyone burst out laughing at my words to save my pride. Seizawa Shii looked at me with a playful expression, holding her phone and reading something.</p>
+<p>"What about the pretty Spanish older sister's comment that says, 'This person is the most handsome teacher out of all the teachers~!'?"</p>
+<p>"That might be true...."</p>
+<p>"U~!"</p>
+<p>In the end, I had no choice but to leave the class while being jeered at. After leaving the classroom, I headed to the nurse's office instead of the education preparation room. Because I had something to ask about Naruse Shiyo.</p>
+<p>__________</p>
+<p>Alik now</p>
+<p>Alik as seen by Ryuta and his classmates</p>
+<p>Protect Alik~!!</p>

@@ -5,82 +5,70 @@ weight = 1084
 chapter = 1084
 +++
 
-<p>"Are you alright?"</p>
-<p>"Ryuta-ssi, did the Chiryo go well?"</p>
-<p>Everyone was worried about Fujigasaki Rinka and I, who returned the next Morning. After all, I had disappeared to treat her after she vomited Blood in front of everyone, so it was only natural they would be worried. Of course, some who knew about my Chiryo method gave us slightly strange looks.</p>
-<p>"Yeah, I'm fine. I'm all better."</p>
-<p>Fujigasaki Rinka said as if to reassure them, but in truth, she wasn't fully recovered.</p>
-<p>The Internal Injury she had strained to get during the Black Sage battle was recovered, but the Internal Injury from the Takakusaki battle, which had eaten away at her Abyss maximum, wasn't fully recovered.</p>
-<p>I hadn't thought that even my Sacred Shaft Trait would be able to recover the Internal Injury from the Takakusaki Gengo battle, but fortunately, it was effective.</p>
-<p>According to what I heard from Fujigasaki Rinka, if the maximum Abyss she had lost to Takakusaki Gengo was 100, then 20 had been recovered in one night yesterday.</p>
-<p>In a way, it could be said that only one-fifth was recovered, but from my perspective, I had only expected the Black Sage Internal Injury to be healed, so the fact that even the Internal Injury from the Takakusaki Gengo battle was healed was quite Lucky.</p>
-<p>Sabu was also quite encouraged that her lost Abyss maximum was being recovered.</p>
-<p>"How is Sajo-nim doing?"</p>
-<p>I didn't think anything would have happened overnight, but I asked about Sajo-nim, who was hospitalized.</p>
-<p>"I contacted the Hospital this Morning, and it seems he's doing even better than yesterday. He hasn't regained consciousness yet, but all his stats are improving."</p>
-<p>Naruse Shiyo Answered my Question. Sajo had no major injuries and was only malnourished, so he seemed to be getting better every day. That's a relief. Once he regains consciousness, we can go to Japan together.</p>
-<p>"I'm going to see Sabu...!"</p>
-<p>Because of the Stamina recovery, another side Effect of the Sacred Shaft, Fujigasaki Rinka was full of energy. Fujigasaki Rinka took Shimokawabe Airen and the Gwonmaeng People to the Hospital where Sajo was, and the rest of us decided to have a Meeting.</p>
-<p>"Is there any new News about the New Rochelle incident?"</p>
-<p>"There's been more News about Carmine Castello being captured and the connection between Obsidian Pharmaceuticals and the Obsidian Syndicate."</p>
-<p>Since we were the ones who caught Carmine Castello, I skipped over that.... The fact that there was more News talking about the connection between Obsidian Pharmaceuticals and the Obsidian Syndicate meant that the government was likely aiming to sell Obsidian Pharmaceuticals and use that Money for the government Reward for this incident.</p>
-<p>To do that, Carmine Castello had to be the definite culprit in this incident. In truth, Carmine Castello was involved in this New Rochelle incident, but he wasn't the mastermind or the Terror mastermind behind the incident.</p>
-<p>He was a Scapegoat for the government to clean up the mess, but he was the Boss of a gang organization that had committed numerous crimes, so I didn't feel sorry for him.</p>
-<p>"I bought this at the Auction."</p>
-<p>I gave Kujou Kirie a Signal to take out the Mental Amplifier I had bought at the Auction from Agonggan.</p>
-<p>"What is this?"</p>
-<p>Otagi Yuka asked, curious about what I had taken out.</p>
-<p>"Ah, this is an Item called a Mental Amplifier...."</p>
-<p>◆Mental Amplifier N003-01[Rare+ Armor/Helmet]</p>
-<p>A prototype developed by the Community Tech company OmniCom. They embarked on developing a new System that connects the human Mind and Spirit to replace VR Dive, but the Mental Amplifier project was canceled, leaving only the prototype, after receiving failing grades in various Side Effects and marketability evaluations.</p>
-<p>●Mental Wavelength Amplification Technology: Increases all Mental Stats by 1 while worn. However, it puts a heavy load on the Brain.</p>
-<p>●Connects the Minds of People using the Mental Amplifier N003-01. As a Side Effect, it deals 6.75% Mental Damage every hour.</p>
-<p>●Telepathy-related Abilities increase by one grade. As a Side Effect, dizziness occurs.</p>
-<p>I read out the Information on the translucent window that appeared on the Mental Amplifier to everyone, telling them what the Mental Amplifier was.</p>
-<p>"It looks pretty good. But the Side Effects are...."</p>
-<p>Sawayanagi Azuma, who had heard my Explanation, said with some hesitation. In fact, Sawayanagi Azuma, the Boss of the superpower PMC, was the most Expert in superpowers here right now, so she must have felt that this product was an unviable equipment from my Explanation.</p>
-<p>"Of course, I didn't buy this to use it right away. I bought it to create improved equipment based on this product."</p>
-<p>"Even if there's a product.... Reverse Engineering won't be able to produce results quickly."</p>
-<p>Reverse Engineering is reverse engineering, and it's about taking apart and analyzing a product to make something similar to it.</p>
-<p>With Lara Sinclair, Eve, and Linling on our side, Reverse Engineering would be fast enough, but I was thinking of adding one more thing to this.</p>
-<p>"So, I'm going to headhunt some of the researchers from OmniCom, the company that created this Mental Amplifier, who know a lot about Mental Amplifiers. And if we can buy the research Rights or patents, we'll buy them."</p>
-<p>"Ah...!"</p>
-<p>Then the researchers we brought would have all the data, and we wouldn't have to do Reverse Engineering, so it seemed better to hire the researchers so we could start researching the improved version right away.</p>
-<p>"That's even better. From your Explanation, Teacher, this wasn't originally made to enhance superpowers, but was scrapped after trying to create a System to replace VR Dive, so I don't think OmniCom will be picky about it either."</p>
-<p>Naruse Shiyo nodded as if what I said made sense.</p>
-<p>"Then connect to TG Tech in Korea and tell them to buy the OmniCom researchers and Rights."</p>
-<p>"Yes~! I'll contact them right after the Meeting."</p>
-<p>Now that the Mental Amplifier Story is over, I should talk about Obsidian Pharmaceuticals again.</p>
-<p>"Has there been any Contact from Japan about which patents of Obsidian Pharmaceuticals they want?"</p>
-<p>"Yes, there's a List here."</p>
-<p>At my Question, the Jeseodang agent handed over a document. From the fact that there was a List, it seemed that they wanted several patents, not just one, and it seemed that they wanted me to buy one patent with priority and participate in the bidding for the remaining ones.</p>
-<p>"Based on this List, decide which patents should be purchased with priority and determine the importance of the patents. And add any necessary equipment."</p>
-<p>Of course, it wasn't even decided yet whether Obsidian Pharmaceuticals' patents would be sold at Auction, but from the way things were going, it was certain that all of Obsidian Pharmaceuticals' assets would be split up and sold off, so it seemed like we could start preparing now.</p>
-<p>Just like the early Bird catches the worm, we also needed to know in advance what we needed so we wouldn't buy unnecessary patents or equipment and only buy what we absolutely needed.</p>
-<p>"And.... Just like hiring OmniCom researchers, I'm thinking of recruiting researchers from Obsidian Pharmaceuticals or the Obsidian Syndicate."</p>
-<p>"They're criminals now."</p>
-<p>Otagi Yuka voiced some opposition to recruiting researchers from Obsidian Pharmaceuticals and the Obsidian Syndicate. Otagi Yuka, who hated Drugs because her friend had died from Drugs, was opposing with some personal feelings mixed in.</p>
-<p>Before going to strike Carmine Castello, I had looked at the Information about the Obsidian Syndicate, and surprisingly, the Obsidian Syndicate was a very old organization.</p>
-<p>It started as an alliance of witches and alchemists during the colonial era, and as the alchemists took the lead, they grew into New York's largest gang by selling Drugs that the alchemists illegally made. That organization was the Obsidian Syndicate.</p>
-<p>I needed an alchemist to combine the Elixir ingredients I had been collecting, and if I wanted to start a pharmaceutical company based on the Obsidian Syndicate's patents, alchemists were essential here as well, so I was thinking of recruiting the Obsidian Syndicate's alchemists who would be imprisoned or become fugitives.</p>
-<p>"We're not going to make Drugs... Can't you understand a little?"</p>
-<p>"...Okay. I guess I was too sensitive."</p>
-<p>At my Words, Otagi Yuka sighed and nodded.</p>
-<p>Of course, I could find other alchemists, but it was very difficult to find alchemists in the modern era, and the Obsidian Syndicate's alchemists had been manufacturing excellent (?) Drugs to make the organization the largest in New York, so I wanted to hire them by proving their skills.</p>
-<p>Otagi Yuka understood, so the first gateway was passed, and now the second hurdle of getting these researchers from the US government was waiting.</p>
-<p>"Tell Diana Lich that we want to recruit the researchers who were simply involved and ask the US government what they need."</p>
-<p>I instructed the Jeseodang member. After all, I should ask my connections in the US government about this. It's a task that has nothing to do with the Federal Superpower Management Department, but they should be able to ask about it.</p>
-<p>"And contact my aunt or uncle and ask about a visit schedule."</p>
-<p>I told them to make an appointment to meet Arisu and my aunt, and also to talk to my uncle's company, Taron, which is a friendly company to us. It was my first time in New York in a long time, so I had a lot to do.</p>
-<p>Next, as a break, it was time to give out the Items I had bought at the Auction as gifts. They weren't Items with great Abilities, but they were Items I had bought at the black market Auction, so everyone liked them.</p>
-<p>Still, I also bought a few Items that would help the members' Abilities, so I gave Kiyona Mari a ruby Bracelet that increased the proficiency level of her Fire Skill as a gift, and I gave Kim Young-chan, who had X-Ray vision, goggles that increased his Field of Vision when he used X-Ray vision.</p>
-<p>Of course, there were more Items that weren't like that, so I simply gave them accessories with only one stat attached or just souvenirs that the members would like as gifts.</p>
-<p>After the gift-giving Event was over, we were continuing the Meeting when the Phone rang. Looking at who it was, it was Sabu Fujigasaki Rinka. I had told them everything important, so I ended the Meeting and answered Sabu's Phone.</p>
-<p>"Yes, Sabu."</p>
-<p>-Sajo woke up...! He says he wants to see my Disciple, so will you come to the Hospital?</p>
-<p>Gojoy-nim requested Rinka Sabu, 1. Lying down exhausted after sex, 2. Putting on underwear~!</p>
-<p>1.</p>
-<p>2.</p>
-<p>MidNightSKY-nim requested Rinka Sabu, Leeds Belly Dancer~!</p>
-<p>Rinka Sabu~!</p>
-<p>Leeds~!</p>
+<p>and chapter check contains erotic please surroundings this your</p>
+<p>As the Mars development project gained full swing, Lancaster, a desert city near Edwards Air Force Base, the space shuttle landing site, also became quite bustling.</p>
+<p>Moth Tactical, led by Goishihara Shoji, was also located in that Lancaster.</p>
+<p>The predecessor of Moth Tactical was Moth Wing, one of Taira Saburo's PMC teams, which assisted Taira Saburo and made great contributions, especially in the Taira Successor War.</p>
+<p>That contribution was so great that they became greatly at odds with other Successors who suffered damage, and Taira Saburo, sensing his own Death, left a building and some property in Lancaster, allowing them to evacuate from Japan to the USA.</p>
+<p>Now, they have changed their name from Moth Wing to Moth Tactical and are active as a PMC in the USA.... That was the information I knew about Moth Tactical.</p>
+<p>Yesterday, after arriving at Fujigasaki Rinka's mansion from New York, I rested and had a barbecue party, relieving all the fatigue I had accumulated, so I was heading to Lancaster with a light body and mind.</p>
+<p>I didn't want to take all my subordinates to Lancaster to show off my power or reveal my full strength to Moth Tactical, which wasn't yet a definite friendly force, so I gave the rest a vacation and headed to Lancaster with only Naruse Shiyo and Maya Reed.</p>
+<p>Naruse Shiyo is one of the three ganbu of the Josedang, so she naturally had to join, and Maya Reed accompanied us to build more rapport before leaving the USA and to find out what the people at Moth Tactical were thinking.</p>
+<p>Also, if she finds out something during this trip, she will think that she is helpful and become more attached to our side.</p>
+<p>「Shiyo-ssi, what kind of abilities do you have?」</p>
+<p>Maya Reed asked Naruse Shiyo, seemingly curious. Maya Reed said that she was surprised to see so many Ability Users in a group other than Superior. Well, all the people under me are quite capable. Even the few personnel without superpowers are very outstanding.</p>
+<p>「Martial arts can't be called an ability, so.... something like this?」</p>
+<p>Naruse Shiyo changed her hand into that of a Dragon and said to Maya Reed. The sight of scales harder than steel rising in an instant and claws growing long was an ability that made me feel amazed every time.</p>
+<p>「Wow...! T-that's amazing. Is it a natural ability? You're not.... a Reptilian or something, are you?」</p>
+<p>「Reptilian?! It's not a natural ability. Actually....」</p>
+<p>Naruse Shiyo began to tell Maya Reed her sad story.</p>
+<p>In fact, it can't be said that Naruse Shiyo's story, who at least has a father, is better than Maya Reed's, who lost her entire family, but Maya Reed lived happily and healthily before losing her family, and Naruse Shiyo lived weakly for several years as a Jusul offering due to her family's interests, so it was impossible to compare who had a better or more miserable life.</p>
+<p>「That's how my Class Teacher, who was also my Teacher, saved me, and I gained the Dragon ability, and my father became the length, and I became free from the Family.」</p>
+<p>「That's terrible...! I'm so glad!」</p>
+<p>Maya Reed, who looked intellectual and cool, seemed weak to these kinds of stories, and her eyes were slightly teary when she heard the story of Naruse Shiyo's hardships.</p>
+<p>「Teacher-nim.... No, Boss is also amazing. You saved not just one person, but an entire Family.」</p>
+<p>Maya Reed grabbed my hand and praised me, saying I was amazing. It seemed like she was going to call me Teacher-nim like Naruse Shiyo. She must have been completely immersed in the story. Perhaps she focused on this true story because of her ability to distinguish between lies and truths.</p>
+<p>「Actually, I infiltrated as a Teacher for the mission, but I couldn't just stand by and watch as a Teacher.」</p>
+<p>「Is that so? Seeing Boss's personality, I knew my choice wasn't wrong....」</p>
+<p>While we were having a slightly embarrassing conversation like that, the vehicle we were in entered Lancaster before we knew it.</p>
+<p>Lancaster is a desert city built in the Antelope Valley at the western end of the Mojave Desert, so it felt a bit barren, but it felt quite bustling due to the recent Mars development boom.</p>
+<p>Lancaster, a city with a barren and bustling, somewhat contradictory feeling at the same time, had an atmosphere that couldn't be felt anywhere else, so I liked it in its own way.</p>
+<p>After entering Lancaster and driving for about ten minutes, we arrived at the Moth Tactical building. It was a place with low buildings in the west, unlike New York, which has many skyscrapers, but it was still a building that looked to be about 10 floors high.</p>
+<p>「How may I help you?」</p>
+<p>After getting out of the car and entering the building with Naruse Shiyo and Maya Reed, a receptionist spoke to us.</p>
+<p>「I'm Taira Ryuta, who is scheduled to meet today.」</p>
+<p>「I see. The Boss is waiting on the 10th floor.」</p>
+<p>We took the elevator with the guidance of the receptionist. When the elevator that arrived on the 10th floor opened, we saw the Moth Tactical CEO's office, where numerous firearms were hanging on the wall.</p>
+<p>The CEO, Goishihara Shoji, was a man who appeared to be in his early 30s with white hair, and his sharp eye shape was impressive.</p>
+<p>「...!」</p>
+<p>Goishihara Shoji was silently looking at me, but he seemed slightly surprised for a moment and then opened his mouth.</p>
+<p>「Ah, I made a mistake. I'm sorry. As Tetsuha said, you look quite similar to Liege/Master. The size is definitely different, though....」</p>
+<p>Ah, it seemed that Goishihara Shoji was staring at me without saying anything because I looked like Taira Saburo. He must have been surprised for a moment. But who is Tetsuha?</p>
+<p>「If it's Tetsuha...?」</p>
+<p>「I'm calling you that because it's Tetsuha Ayame, our Combatant whom you met in New York. It seems you didn't exchange Introductions at that time.」</p>
+<p>I knew that Tetsu Kakeroo was a nickname, but I didn't know her real name was Tetsuha Ayame. It seemed that the 'Tetsu' in Tetsu Kakeroo came from Tetsuha. The rest of the nickname, Kakeroo (蜻蛉: Dragonfly), was probably given because of her combat style of soaring through the sky.</p>
+<p>In fact, I had seen Tetsu Kakeroo, Tetsuha Ayame in the game, but I had never seen Goishihara Shoji in the game.</p>
+<p>Perhaps in the game's timeline, Goishihara Shoji is dead, and Moth Tactical has either gone bankrupt or been absorbed into Asakura. That's why Tetsuha Ayame can become the leader of Asakura's assassination unit, Dragon Fly.</p>
+<p>「Tetsuha may not have known, but I knew of your existence. I'm always keeping a close watch on information from Japan. Because we don't know when Taira will attack us.」</p>
+<p>Tetsuha Ayame seemed to not know of my existence, as she was surprised when she first saw my face and said, 'Saburo-ssi?' but it seemed that Goishihara Shoji knew of my existence.</p>
+<p>The existence of Taira Ryuta wasn't a hidden existence. Most people would have been concerned about the existence of the newly emerged illegitimate son of the Taira Group. Goishihara Shoji would have also looked into my information, wondering, 'Does his Liege/Master have a son?'</p>
+<p>After that, I became an ordinary employee of the Talent Development Center, not holding an important position in the Family, and moved out of everyone's Field of Vision, but now that I have become the president of Taira Yutong again, I am probably becoming a hot Topic in my own way.</p>
+<p>「Perhaps Taira won't attack Moth Tactical for a while now.」</p>
+<p>I should provide some information since I came all the way here. It seems that he is quite concerned about being attacked by Taira.</p>
+<p>No matter how strong Moth Tactical's Combatant is, the opponent is the Successor of Taira, Japan's largest megacorp, so he can't help but be concerned.</p>
+<p>「Taira Kitsumasa died two days ago. You don't have to worry about Taira for a while.」</p>
+<p>「...!」</p>
+<p>Goishihara Shoji's Donggong expanded at my Words. His Expression was the same, but I could feel that he was very surprised by these small body signals.</p>
+<p>「A storm is about to hit Japan. Fortunately, our Moth Tactical is out of that storm.」</p>
+<p>「Is that so?」</p>
+<p>Those were Words with a hidden bone. The Words 'Fortunately, we are out of Taira's storm' had the hidden meaning that 'Even if you are Taira Saburo's son, I will not go under you.'</p>
+<p>I didn't come here to put Moth Tactical under me in the first place. Since it's a PMC anyway, I can control its power if we have a contract relationship, so this time I came to start the first contract.</p>
+<p>Of course, it would be better if I could put them completely under my command, but looking at Goishihara Shoji's Attitude, it seemed impossible.</p>
+<p>I can't say to someone who has already left Taira, 'I'm your Liege/Master's son, so be loyal to me,' and even if I did receive that Loyalty, Moth Tactical is Father Taira Saburo's team, not my team.</p>
+<p>Also, all the Successors hate Moth Wing, the predecessor of Moth Tactical, so it was also a flaw that it was difficult to use them in Japan, the main Stage of the Successor battlefield.</p>
+<p>「Thank you for the information, but.... Why did you come here?」</p>
+<p>Goishihara Shoji asked directly when I didn't show any particular Reaction to the storm metaphor. It certainly feels similar to the information Grandmother gave me.</p>
+<p>He was said to be a very direct and even rough man, like Taira Saburo's sword, but I thought it was unexpected that he subtly revealed that he wouldn't go under me while using the storm metaphor, but perhaps he didn't speak directly because I was the son of his Liege/Master.</p>
+<p>In the end, when I didn't show any Reaction, he seemed a bit frustrated and directly asked me my intentions. I smiled at that Question and opened my mouth.</p>
+<p>Camila Outdoor Play walk requested by chea yun-nim~!</p>
+<p>The pussy kept showing, so I put panties on from the second Illustration hehe.</p>

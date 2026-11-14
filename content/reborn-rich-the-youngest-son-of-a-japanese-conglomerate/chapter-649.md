@@ -5,100 +5,120 @@ weight = 649
 chapter = 649
 +++
 
-<p>"Eugh...!"</p>
-<p>A groan escaped me without my knowing. Yesterday, while choosing photos at the Dating Experience Club, we had a heated debate until 12 AM to pick a hundred photos out of thousands, which left me mentally exhausted.</p>
-<p>Of course, it wasn't just that. Otagi Yuka, Sakagami Rena, and Saionji Diana said it was late and just stayed over at my place, and we ended up having an all-night naked free-for-all until dawn, so the mental and physical fatigue combined, causing me to let out a groan of exhaustion as I woke up.</p>
-<p>Unlike me, who was suffering from my own kind of fatigue, the three carefree naked students were sleeping soundly with peaceful expressions, perhaps due to the characteristics of the Sacred Pillar.</p>
-<p>"Everyone, wake up. You need to get ready for school."</p>
-<p>"Uuuuh... Teacher-ssi, hmmm♥ There's too much milk...! It won't all fit in the bottle..."</p>
-<p>"Give me a break... Like a hero, quickly get a new woman...!"</p>
-<p>"Teacher, this time... please do it without the legs♥"</p>
-<p>Listening to what might be sleep-talking or demands disguised as sleep-talking, I pulled off the blanket covering the three of them. I wondered if I was their mom, having to wake them up like this, but I let it slide because they were all cute.</p>
-<p>"Oh, what...? Is it morning already?"</p>
-<p>"Haaam...! Did you sleep well, Jugun-sama?"</p>
-<p>"Kyaa...!"</p>
-<p>All three of them had different reactions upon waking up.</p>
-<p>"You need to get ready for school."</p>
-<p>"That's right, today is Friday, isn't it?"</p>
-<p>"I'll make breakfast, Jugun-sama."</p>
-<p>"I, I'll help with breakfast too!"</p>
-<p>Since the students' school start time was later than the teacher's work start time anyway, these three had more time to spare than I did. I left the breakfast preparation to the three of them and went to wash up.</p>
-<p>After loosening my muscles, which had been used until dawn, with hot water and taking a shower, French toast and coffee were prepared. The only difference from others was that the three students' plates had two or three slices of French toast, but my plate had a mountain of toast piled up. This is at least thirty slices, isn't it? At this point, it's not breakfast, it's cow feed!</p>
-<p>"How much of a food fighter do you guys think I am?"</p>
-<p>"You used a lot of energy yesterday, so you need to eat this much!"</p>
-<p>"That's right, eat a lot like a hero, Jugun-sama!"</p>
-<p>"I made the coffee."</p>
-<p>Since they told me to eat a lot, I'll eat a lot... I nodded and started breakfast. French toast is delicious when it's sweet. After finishing breakfast (I left about 10 slices), I finished getting ready for work while the students went to wash up.</p>
-<p>"I'm going to school first, so lock the door properly when you come."</p>
-<p>Everyone was in the middle of washing up, so there was no response, but I left the house. I arrived at school and sat down in the teacher's prep room for a while, and I saw the special class students entering the classroom with zombie-like expressions. Well, they were in the club room until after 12, so they must be tired.</p>
-<p>After some more time passed, just before checking for tardiness, Otagi Yuka, Sakagami Rena, and Saionji Diana, who were talking and laughing as they entered, waved their hands as they passed in front of the teacher's prep room.</p>
-<p>"Teacher-ssi~!"</p>
-<p>"Jugun-sama!"</p>
-<p>"Teacher~!"</p>
-<p>Only those three were full of energy. The Sacred Pillar trait must be a scam.</p>
+<p>,Ryuta, are you a regular at the Clear Mind Hall?</p>
+<p>It was Alik's third visit to the Clear Mind Hall during the festival, so Alik looked at me, tilting his head and asking. The first time I visited, he ran up to me, shouting, "Ryuta~!" But now, he was looking at me with eyes that seemed to say, "Why does he keep coming here?"</p>
+<p>,No, some guests wanted to see it.</p>
+<p>,This student...? His skills seem extraordinary.</p>
+<p>Yoda-halbeom's eyes lit up when he saw Alik. As expected of a master, he seemed to recognize Alik's skills right away.</p>
+<p>,He's one of the students taught by Shimokawabe seonsaengnim. He's also a student in my class.</p>
+<p>,Hoo...! Is that so?</p>
+<p>,Chokkomi (Tiny) Grandpa?</p>
+<p>When I introduced Alik, Alik called Yoda-halbae "Chokkomi" with an innocent expression. He probably didn't know Yoda, so he didn't call him Yoda Grandpa.</p>
+<p>,Hehehe, yes, I'm Chokkomi Grandpa~.</p>
+<p>When I called him Yoda-halbae, he tried to joint-lock me, but when Alik called him Chokkomi, he smiled contentedly, hehehe.</p>
+<p>,I'll guide you.... Oh? Aren't you Kinu-i-nim?</p>
+<p>Nishiike Neiko, the head of the Clear Mind Hall, looked at Yoda-halbeom with a surprised expression. As expected of the head of the Clear Mind Hall, who practices Koryu martial arts, she seemed to know Yoda-halbae, who was famous in the martial arts world.</p>
+<p>,Hehe... Yes, I am Kinu-i Tatsuo.</p>
+<p>Yoda-halbeom's nose grew even higher. In fact, I only learned Gwonbeop from Fujigasaki Rinka, and I didn't know much about the martial arts world, so I didn't know that this Kinu-i Tatsuo-halbae was famous.</p>
+<p>He wasn't a character I saw in the game, so I looked down on him a bit, but he seemed to be quite a celebrity.</p>
+<p>,I'll show you to your seats and call the teacher.</p>
+<p>We were guided to our seats by Nishiike Neiko, and the young three disciples were excited, saying, "Wow~! Our master is famous!" as if they were happy that their master was famous.</p>
+<p>Kujo Kina, who knew a bit about the Gwonbeop world, seemed to take it for granted, and Nakasone Rishin, a gloomy guy, seemed surprised by his master's fame.</p>
+<p>,Was master famous?</p>
+<p>,Well, master went around the country breaking dojangs (dojo challenges), so he couldn't help but become famous.</p>
+<p>Kujo Kina answered Nakasone Rishin's question. Next to her, Kujo Kina's young disciples listened to Kujo Kina's story and asked what "dojang breaking" was, so I was about to answer that it was going into someone else's dojang and causing trouble, but I held back after seeing Yoda-halbae's fierce eyes.</p>
+<p>,Here are your ordered Japanese sweets and tea set.</p>
+<p>Shimokawabe Airen came with tea and Japanese sweets. Nakasone Rishin wanted Japanese desserts, so I was watching to see if he would eat well, and he ate very well. The price was quite high, so he was gulping down Japanese sweets that cost several hundred yen apiece.</p>
+<p>,It's delicious. It tastes like what I used to eat at home.</p>
+<p>,Eat a lot.</p>
+<p>Nakasone Rishin closed his eyes and savored the taste as if reminiscing about memories. He was from a wealthy family of politicians, so he seemed to have eaten high-end Japanese sweets often. Now that he was almost abandoned by his family, he probably wouldn't be able to eat them often. Thinking about that made me feel a little sorry for him.</p>
+<p>,Kinu-i seonsaengnim, it's been a while.</p>
+<p>,Shimokawabe.... Your progress is truly amazing.</p>
+<p>Listening to their conversation, it seemed like they hadn't seen each other in a long time. In that long time, Shimokawabe Airen seemed to have grown considerably, and Yoda-halbae recognized her skills and was amazed.</p>
+<p>,When did you two meet?</p>
+<p>,Hmm.... When I was busy breaking dojangs, I had a match with Shimokawabe's master.</p>
+<p>Ah, so that's how they knew each other. I was so interested in Yoda-halbeom's story that I leaned my body slightly towards them to hear the story better.</p>
+<p>,So, what was the result of the match?</p>
+<p>Kujo Kina asked with an excited expression, as if I wasn't the only one curious.</p>
+<p>,That's....</p>
+<p>Yoda-halbae glanced at Shimokawabe Airen. Did Yoda-halbae win and was looking at her, or did he lose and was too embarrassed to say?</p>
+<p>,You could say it was a draw. I broke a bone after being hit by Haruka's bokken (wooden sword), and Haruka's internal organs were damaged by my attack....</p>
+<p>Listening to the story, Haruka seemed to be the name of Shimokawabe Airen's master.</p>
+<p>,My master suffered for almost a year and a half from the internal injuries he sustained at that time. Every time he was in pain, my master would say that he should have just used a real sword and cut off his arm.</p>
+<p>,Hehe, if he had, your master would have won. I hadn't yet perfected my Gwonbeop at that time.</p>
+<p>Yoda-halbae smoothly brushed off Shimokawabe Airen's slightly sharp words.</p>
+<p>Combining their stories, they both suffered injuries and it was a draw, but Shimokawabe Airen's master, called Haruka, seemed to have suffered more from the aftereffects.</p>
+<p>Shimokawabe Airen saved her master's face by saying that he would have won if he had used a real sword, but Yoda-halbae was like, "Yeah~ I wasn't even done perfecting my Gwonbeop at that time~," and was tea-bagging him.</p>
+<p>In my opinion, Yoda-yeonggam was in the process of perfecting his Gwonbeop, so Shimokawabe Airen's master seemed to have been considerate enough not to use a real sword.</p>
+<p>After that, the match became fierce and they injured each other, and although they said it was a draw, seeing that Shimokawabe Airen's master suffered more from internal injuries, it seemed like Yoda-yeonggam won by about 55 to 45.</p>
+<p>,Ah, that friend is going to have a match with my disciple next time, so come and hang out with us then.</p>
+<p>Yoda-halbae pointed at me with a feeling of reconciliation and told me to come and watch this guy fight his disciple. Shimokawabe Airen also knew that there was no point in being hostile to Yoda-halbeom anymore and nodded.</p>
+<p>,Okay. I will also visit seonsaengnim's dojang with my disciple, Alik, that day.</p>
+<p>,A visit? Heul-heul....</p>
+<p>,But.... Do you have any disciples who can fight Ryuta-gun among your disciples, seonsaengnim? I know that all of your disciples have been recently accepted.</p>
+<p>In fact, Yoda-halbeom did have a top disciple who could be called Kujo Kina's senior, but he lost his life in a fight with Anya-ji. Shimokawabe Airen seemed to know that fact, so she carefully asked Yoda-yeonggam.</p>
+<p>,Well, if that Ikunori (Raising Constitution) guy was here, he would have been a great opponent for that guy.... It's not a martial artist's attitude to hesitate to fight just because the opponent is strong, so don't worry about my disciple. Surely that guy won't seriously injure my disciple in front of my eyes?</p>
+<p>As expected of a man who perfected martial arts by breaking dojangs. Don't hesitate to fight just because the opponent is strong.... That's a pretty cool thing to say. Of course, it wasn't cool at all that he threatened me by saying that he would be watching during the match, like he was keeping an eye on me.</p>
+<p>,Don't worry, I won't injure him like Yoda-halbeoji did to Shimokawabe seonsaengnim's master, even if you don't threaten me like that.</p>
+<p>,What did you say~!?</p>
+<p>No, why is this halbae only angry at me? Alik, who was sitting next to me, said, "Chokkomi Grandpa, don't be angry," and the atmosphere became one of just letting it go. As expected, Alik is the only one who takes my side. Alik is the best.</p>
 <p>###</p>
-<p>"What are we doing today?"</p>
-<p>I arrived at the club room, having narrowed down the photos to 100 until late yesterday, so I asked Minamoto Risa what we were doing today.</p>
-<p>"Today, we're just choosing the coating paper for the photo cards and the photo card design... Oh, and I need the teacher's handwritten message and signature, so please write a message in each of these spaces."</p>
-<p>No, I'm not a celebrity, so why do I need a message or signature? Since there are a hundred types of photos, there are also a hundred types of cards, so I had to write a hundred types of messages.</p>
-<p>"I don't even remember the last time I wrote something by hand..."</p>
-<p>"Still, do your best."</p>
-<p>When I grumbled, Minamoto Risa chuckled and spoke as if she were appeasing a disobedient son. Looking at the hundred printed messages made me feel like the French toast I had in the morning was coming up. From the beginning, there was a cheesy line that made my stomach churn, saying, "I love you (in Korean)" means I love you.</p>
-<p>I was about to ask if I really had to write this, but when I looked at Minamoto Risa, Minamoto Risa and the other special class students were already having a heated debate about the photo card design. If I said the message was weird again, it seemed like all the blame would fall on me, so I just endured my upset stomach and decided to write.</p>
-<p>Still, it was kind of fun to write by hand after a long time. Surprisingly, when I focused on writing, my handwriting wasn't bad. Well, since I'm a martial artist, my hand senses weren't bad.</p>
-<p>Jii....</p>
-<p>As I was writing, I felt someone's gaze and looked up. There, Alik was quietly watching me write. By the way, shouldn't Alik be going to the Cheongsim Hall? Why is he still in our club room?</p>
-<p>"Alik, aren't you going to the Cheongsim Hall today?"</p>
-<p>"Um... Cheongsim Hall is also preparing for the festival."</p>
-<p>"What is Cheongsim Hall doing?"</p>
-<p>"Edo period-style teahouse?"</p>
-<p>Ah, they're running a teahouse decorated with an old-fashioned feel. It was a festival event selection that suited the Cheongsim Hall, which trains in Japanese traditional martial arts. I should stop by on the festival day.</p>
-<p>"Doesn't Alik have to help with the Cheongsim Hall preparations?"</p>
-<p>"Alik is... a baby."</p>
-<p>"Huh?"</p>
-<p>Alik was cute to anyone who looked at him, but he wasn't a baby. When I looked at him as if I was puzzled, Alik opened his mouth as if he was frustrated.</p>
-<p>"The club president said Alik is a baby, so he's going to be the mascot on the festival day."</p>
-<p>"No, if you shorten 'Alik is a baby' to 'Alik is a baby,' I won't understand."</p>
-<p>"Um..."</p>
-<p>Thinking about Alik working as the Cheongsim Hall mascot on the festival day made him seem cute. I smiled and stroked Alik's head and started writing the message again. Alik kept looking at me, so I held up the pen to Alik.</p>
-<p>"Should I write something for Alik too?"</p>
-<p>"...Um."</p>
-<p>Hmm... What should I write? After thinking for a moment, I handed Alik a message that said, "Alik is a cute baby." Alik's cheeks flushed slightly as he hugged the paper with the message written on it tightly, as if he liked it very much.</p>
-<p>"If you're not bored with watching, watch. If you get bored, you can help me choose the photo card design over there."</p>
-<p>"Um."</p>
-<p>I focused on writing the message again. For reference, the one I'm writing now is, "Can you give me directions? The way to your heart." Ugh... So cheesy. I should eat some kimchi for dinner today.</p>
-<p>"Ahaha! Ryuta-cchi, what is this?! Alik, isn't it funny too?"</p>
-<p>Seizawa Shii, who had lost her concentration for a moment, was wandering around and started laughing loudly as she looked at the messages I wrote.</p>
-<p>"I'm just writing what's written here, so I don't know anything."</p>
-<p>"Ahaha! Still, the person who receives this would be happy, right?"</p>
-<p>"Should I write a message for you too, like Alik?"</p>
-<p>"You wrote a message for Alik?"</p>
-<p>When Seizawa Shii asked, Alik proudly showed off the message that said, "Alik is a cute baby." Seizawa Shii was looking at it with a very envious expression for some reason.</p>
-<p>"Do you have a request message?"</p>
-<p>"Um... no. Ryuta-cchi, write whatever you want."</p>
-<p>As per Seizawa Shii's request, I thought for a moment and wrote, "An encounter at the laundromat. Shall we meet there again?" and handed it to Seizawa Shii.</p>
-<p>Because there were several things that happened between me and Seizawa Shii at the laundromat, Seizawa Shii's face turned red after receiving my handwritten message. Hehe... I can write this much too.</p>
-<p>"Do you like it?"</p>
-<p>"Ugh... just you wait!"</p>
-<p>Does that mean she doesn't like it? Or does it mean she wants to see me at the laundromat again? I don't know. For now, there were quite a few messages left, so I stopped paying attention to Seizawa Shii, who had run away, and started focusing on writing by hand again.</p>
-<p>As I wrote, I got the hang of it and the speed gradually increased, so it didn't take long to finish. As I put down the pen after finishing the last message, "I learned to swim. To avoid falling for you," everyone was looking at me.</p>
-<p>"Teacher, why did you only write personal messages for Shii and Alik? Write one for us too!"</p>
-<p>Kujo Kina shouted at me, saying not to show favoritism. Is doing this cheesy stuff favoritism too? I had no choice but to write a cheesy line for each of the students gathered in the club room. Everyone seemed satisfied because I wrote the messages with events that each student had in mind.</p>
-<p>"By the way, have you decided on the photo card design?"</p>
-<p>I asked Minamoto Risa, who couldn't hide her happy feelings after receiving the message I wrote, thinking about the date I had with Minamoto Risa where we flew in the sky, "Let's meet again in our sky," and she nodded.</p>
-<p>"We're going to make it in Polaroid form with your message. Since the Polaroid format has space under the photo, I think we can put the message there. I'm wondering if we should use a prism glitter coating or just a regular glossy coating. Since the design is decided, we should make samples of both coatings and choose after seeing them in person."</p>
-<p>Polaroid format... It wasn't a bad choice. There's a reason why classics sell well.</p>
-<p>"Then is it over for today?"</p>
-<p>"You, Konoe, and I are required to go to the photo card production company to check the samples."</p>
-<p>The club president, vice president, and advisor teacher still had work left. It was a bit annoying, but I couldn't help it.</p>
-<p>"It's over for today, and we're going to make samples. Anyone want to come with us?"</p>
-<p>"Me!"</p>
-<p>"I want to go too~!"</p>
-<p>Minamoto Risa said that the more opinions, the better, and recruited volunteers to go to the photo card production company with her. Everyone decided to go together except for Kujo Kina, Naruse Shiyo, and Alik, who had to train at least a little bit every day.</p>
-<p>"You have to let me know what you decided on?!"</p>
-<p>"Alik wants to see it too."</p>
-<p>"Please send me the selected sample too~!"</p>
-<p>"Okay, go and train quickly."</p>
-<p>We said goodbye to the three training musketeers who were lingering because they wanted to go with us, and we called a few taxis and moved to the production company.</p>
-<p>______</p>
-<p>Alik is.... a baby.</p>
+<p>Kujo Kina, Yoda-sabu, and their group left to enjoy the festival again, and as time passed, I was heading to the special class building alone when I ran into that woman from before.</p>
+<p>The beauty with hair between silver and white was holding a pamphlet and heading towards the special class building. At first, I was just going to pass by, but the woman recognized me first.</p>
+<p>,Oh~! Right? The golden-haired teacher who appears on Karen MiTube!</p>
+<p>,I have blonde hair and a tan, but I'm not a delinquent.</p>
+<p>She's talking about Karen MiTube, so she must be a Karen fan. Then, the reason she smiled at me earlier was because she recognized me from Karen MiTube?</p>
+<p>,Did you come to the festival because of the Karen photo cards?</p>
+<p>,I didn't originally want to come to this neighborhood. Um.... I had some kind of meeting scheduled around here, so I stopped by because they said there was a festival.</p>
+<p>Ah, so she stopped by as a side trip. By the way, she's got the looks and her skin is super white and her eye color doesn't look like an Asian's, but she speaks Japanese really well?</p>
+<p>,If you don't mind, can I ask you a question?</p>
+<p>,It's not rude, so ask as much as you want.</p>
+<p>,Are you from which country?</p>
+<p>,Ah, I'm Japanese. I was adopted from Europe, though.</p>
+<p>Ah, so she's a European white person by race, but she was adopted and became Japanese. I bowed slightly, thinking that it might have been rude.</p>
+<p>,I asked because your Japanese is excessively fluent. I'm sorry if it was rude.</p>
+<p>,It's okay. I get that question all the time.</p>
+<p>Well, it's inevitable to be curious if a super-beautiful white woman speaks Japanese very fluently. I soon arrived at the special class building, and the silver-white-haired woman lined up, and I headed to the cafe. If I went straight up to the second floor, Minamoto Risa would probably give me a dating mission right away, so I took refuge in the cafe first. I wanted to rest a little too.</p>
+<p>,Teacher, aren't you tired?</p>
+<p>,No. Rather, I was bored because I was always alone in the infirmary, but now it's fun.</p>
+<p>I went to the cafe and asked Kijimoto Jurie, who had been working as the cafe manager since yesterday, if she wasn't tired, and Kijimoto Jurie raised her arm as if to show off her biceps and said with a smile that she was fine. Surprisingly, she seems to be suited for cafes.</p>
+<p>,The seats.... are full.</p>
+<p>,Yes. There are a lot of people waiting to exchange cards, and there are also people waiting in case Karen comes.</p>
+<p>For reference, Uenozono Karen was almost never in the special class. There were already a lot of people, but if Uenozono Karen was there, there would be even more people and there could be a safety accident, so I told her to keep walking around and enjoy the festival.</p>
+<p>So, Uenozono Karen was filming a St. Francisco Girls' Academy vlog for the second day, escorted by bodyguards.</p>
+<p>I was sitting at the counter seat for a while, drinking the sweet iced chocolate that Urabe Konoka had made for me, and resting while talking. I should rest for about fifteen minutes and then go up to the second floor and receive a mission from Minamoto Risa.</p>
+<p>,Excuse me.</p>
+<p>I was resting for a bit when someone poked my shoulder and called me, so I turned around and it was that silver-white-haired woman from before. What's going on?</p>
+<p>,Yes? What's wrong?</p>
+<p>,As a reward for the question you asked earlier, can I ask you for a favor?</p>
+<p>,Ah, sure.</p>
+<p>I had accepted a question that could be considered a bit rude earlier, so I was willing to grant her any favor as long as it wasn't difficult.</p>
+<p>,Here....</p>
+<p>The silver-white-haired woman handed me a photo card with a slightly shy expression. It had a picture of me getting hit by cherry blossom rain, along with a cheesy line that said, "I'll approach you like falling cherry blossoms." Ah, I shouldn't have written that line. I'm going to be embarrassed every time I look at this card.</p>
+<p>,Can you sign the back?</p>
+<p>,If it's that....</p>
+<p>I took out a pen and signed it. I felt like something was missing if I just signed it, so I decided to ask her name.</p>
+<p>,Who should I write it to?</p>
+<p>,Write it to Takakusaki Athena.</p>
+<p>Ah, Takakusaki Athena.... Like Alik, her last name is Japanese and her first name is Western. I wrote "To Takakusaki Athena-ssi" and handed the photo card back to her.</p>
+<p>By the way, I felt like I had heard that last name somewhere before. Do I know someone with the same last name? But there were many people with similar last names in Japan, so I just thought I had heard it somewhere and moved on.</p>
+<p>,Thank you~! Karen isn't here, is she?</p>
+<p>,Yes. There are too many people.</p>
+<p>As expected, she seemed to be a bigger fan of Karen than me. Takakusaki Athena, who seemed a little disappointed, bowed slightly to me and ordered a drink. Hmm.... I should go up to the second floor soon.</p>
+<p>,Then....</p>
+<p>I said goodbye to Takakusaki Athena and went up to the second floor. As soon as I went up to the second floor, Minamoto Risa assigned Sakagami Rena, who couldn't go on a festival date with me yesterday because I was walking around with Yukiko.</p>
+<p>I was going down to the first floor with Sakagami Rena when I saw Kujo Kina, who seemed to have finished looking around the festival with her master and disciples.</p>
+<p>,Ah...!</p>
+<p>Seeing Kujo Kina reminded me of Gwangpok-in (Berserker), and thinking of Gwangpok-in reminded me of Anya-ji, who gave Gwangpok-in to Kujo Kina. And thinking of Anya-ji reminded me of Takakusaki Gengo, the enemy of our school and the owner of Anya-ji.</p>
+<p>,I thought the last name was familiar, but it was the same last name as Takakusaki Gengo.</p>
+<p>,My lord, what's wrong?</p>
+<p>Ignoring Sakagami Rena's question, I headed to the first floor special class classroom, which was acting as a cafe, at an incredible speed.</p>
+<p>She wasn't there. She was just here....</p>
+<p>,Do you know where that silver-white-haired girl who was talking to me just now went?</p>
+<p>,She ordered a drink to take out and left right away.</p>
+<p>After hearing Urabe Konoka's answer, I ran out of the special class building again. But outside, there was only a line of people buying club magazines, and the silver-white hair was not visible.</p>
+<p>,What's wrong, my lord?</p>
+<p>,No, there's just someone who has the same last name as someone I know....</p>
+<p>I shook my head at Sakagami Rena's question and muttered. Surely it's just the same last name. I seemed to be taking it too sensitively.</p>
+<p>_______________</p>
+<p>Athena enjoying the festival.</p>

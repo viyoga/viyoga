@@ -5,55 +5,88 @@ weight = 541
 chapter = 541
 +++
 
-<p>After getting off work, I ate dinner and was studying for my certification when I got a LINE message from Shido Tsubaki.</p>
-<p>-Shido Tsubaki: The investigation finished faster than expected, so I'm sending you the list of Self-Defense Force and PMC-origin faculty members who have been in their positions for 7 years or more.</p>
-<p>She said the investigation would be done tonight or tomorrow morning, but it finished faster than I thought. I downloaded and opened the list Shido Tsubaki sent.</p>
-<p>Since the World War ended only eight years ago, there were quite a few veterans at the academy. After the war, many personnel from the Self-Defense Force and PMCs were discharged into society due to labor cost burdens, making it easy to find veterans. In fact, most of the teachers at St. Francisco Girls' Academy were hardly soldiers; most had only been affiliated with the Self-Defense Force and public corporation PMCs, conscripted in the late stages of the war and assigned to rear supply duties.</p>
-<p>Oh, there's a non-commissioned officer...? If they're an NCO, they must be a real soldier who participated in the war. The name is Asada Fukushi. He's the management team leader? It only says he retired as a master sergeant, and there's no other information. Something's fishy....</p>
-<p>-Yamashiro Ryuta: Is there any detailed information about the management team leader?</p>
-<p>-Shido Tsubaki: The reporter who investigated said he seems to be from an intelligence unit. It would take a long time to investigate....</p>
-<p>I see. An intelligence unit.... Then that fits perfectly with the third condition of the culprit that I mentioned in the club room: being skilled in information management. I thought he'd be hopeless in this area because he looks old, but that's unexpected.</p>
-<p>In fact, when you think about it, the management team is treated almost like invisible people within the academy. If they're walking around in blue work clothes, no one pays attention unless they barge into the classroom during class.</p>
-<p>If some of them were involved in drug crimes, it was obvious that they would be difficult to find. They knew the academy grounds better than anyone else, and there were temporary structures for rest in various places around the academy's perimeter.</p>
-<p>The old building I saw from the helicopter a few days ago when I went to the Daigo family's mansion turned out to be a warehouse and rest area where the management team that manages the forest keeps their tools. If someone deliberately hid drugs in a place like that, it was clear that our Date Experience Club students, who are civilians called the reconnaissance team, would never find them.</p>
-<p>I wonder why I didn't realize this until now, but students and teachers don't even pay attention to the management team walking around. Even if they see them, they just assume they're doing something.</p>
-<p>Still, just because the management team leader Asada Fukushi is suspicious doesn't mean he's confirmed to be the culprit, so I needed to be a little more objective. I decided to ask Shido Tsubaki a few things I was curious about.</p>
-<p>-Yamashiro Ryuta: I have a few things I'd like you to investigate. Can you find out if there are any other soldiers among the management team besides the team leader? And find out about the management team leader's family relationships.</p>
-<p>-Shido Tsubaki: Those aren't very difficult investigations. Please wait a moment.</p>
-<p>Shido Tsubaki probably noticed who I was suspecting. Judging by how quickly she replied, her reporter instincts seemed to be kicking in.</p>
-<p>As I kept thinking about the management team leader Asada Fukushi, something I had passed by before suddenly came to mind. I had passed by the Director-nim's office and remembered being surprised that the budget for detergent was quite large. More budget was allocated than I thought.</p>
-<p>Could the ingredients in the detergent be raw materials for drugs? I wondered, but I didn't know anyone who knew much about chemistry. Then I had no choice but to ask Eve, who isn't a person.</p>
-<p>I turned on the Dark Web app and asked Eve if there were any ingredients in the detergent that could be used as raw materials for drugs.</p>
-<p>-Ryuta: Eve, is it possible to make drugs using detergent as a raw material?</p>
-<p>-EVE: Of course! Of course, not all detergents can be used to make drugs, but the ingredients in professional products from companies A and D....</p>
-<p>As expected, Eve is an AI, so she gave me an answer that would fill an A4 sheet of paper, like ChetGPT. After listening, she said that it's not a general detergent, but a product used by professional cleaning companies, so the ingredients are different. And it is possible to make drugs using those different ingredients as raw materials, but the government is constantly monitoring such detergents, so large purchases are always checked.</p>
-<p>No matter how much they monitor, St. Francisco Girls' Academy is a nexus of power, so wouldn't they be able to purchase it without the government's suspicion...?</p>
-<p>Then all that's left is to confirm with Daigo Terue. I immediately called Daigo Terue. Daigo Terue was constantly busy fixing the mess that former acting Director Ishidera Kosuke had made, so she's probably still at the academy.</p>
-<p>-Yamashiro-sensei?</p>
-<p>,Director-nim, I'm calling because I have something to ask. Are you at the academy?</p>
-<p>-Yes. Ishidera Kosuke ruined things, and the sports day is coming up, so I'll be busy until next week. I heard from the student council Chairman. That.... You're helping with the drug case? Thank you, Yamashiro-sensei.</p>
-<p>,Yes, I have a question related to that. Could you tell me what kind of cleaning detergent the academy is currently using?</p>
-<p>-Please wait a moment? I put the receipt somewhere here. Please wait a moment while I look for it.</p>
-<p>She even collects every single receipt; she's an amazing Director. Whenever I have to go to the Director's office, there's almost always someone waiting in front of the door to get approval, but I wondered if there was a Director who worked this hard.</p>
-<p>I heard the sound of the phone being put down, then the rustling sound of paper being turned for a moment, and soon Daigo Terue's voice was heard again.</p>
-<p>-I found it. We're using products from Company D. I know our academy has always used this product. Ishidera Kosuke ordered almost twice as much as usual while he was Director, whether it was a mistake or not. But what does this have to do with drugs?</p>
-<p>Company D's product was the detergent that Eve said could be used as a raw material for drugs. I didn't tell Daigo Terue, who asked what it had to do with drugs, that the management team leader Asada Fukushi was the culprit; I only told her that detergent could be a raw material for drugs. I didn't want to say anything until I was completely sure that the management team leader was the culprit, so I only told her the facts. Of course, it couldn't be helped if Daigo Terue thought of the management team leader as the culprit after hearing that story.</p>
-<p>While waiting for Shido Tsubaki's call after hanging up, I remembered Taira Kanna's story about the mission. She said that production had exploded in the past week, so the police, who had been ignoring it, had started investigating.</p>
-<p>Unlike the meticulous Daigo Terue, Ishidera Kosuke, who had no interest in running the academy, was appointed as acting Director, so he drastically increased the detergent budget, which he had not been able to do before. As Daigo Terue just confirmed, he almost doubled the amount.</p>
-<p>Now I was starting to understand. Why Z-MAX hadn't been able to advance into Tokyo, where there are many people and high prices, and was only distributed in cities near Mount Fuji.</p>
-<p>The amount of raw materials was limited, so they had no choice but to not advance into Tokyo. It was only the detergent that could be ordered in large quantities under the name of St. Francisco Girls' Academy. They gradually increased the amount, but at some point, Daigo Terue must have stopped them from increasing the amount.</p>
-<p>This time, Shido Tsubaki called me instead of sending a LINE message. I immediately answered the phone.</p>
-<p>-As you said, Sensei, many of the management team are from the Self-Defense Forces. I think they came to St. Francisco Girls' Academy as caretakers on the recommendation of the management team leader. And....</p>
-<p>It was becoming increasingly clear that management team leader Asada Fukushi was the drug dealer. If they procured raw materials from the academy and made drugs somewhere, the caretakers from the Self-Defense Forces under the management team would have transported or sold them. They would have handed it over to a middleman outside the academy, and the middleman would have sold it to nearby cities or passed it on to drug dealers. All of those contacts would have used overseas chat programs to erase as much trace as possible.</p>
-<p>,And?</p>
-<p>-The management team leader's daughter is suffering from an unknown rare disease. So the hospital bills alone cost tens of millions of yen a year....</p>
-<p>Judging by the way she was talking, Shido Tsubaki seemed to think that the management team leader was the culprit. She seemed to have come to the very natural conclusion that even if he was the leader of the management team, he couldn't afford tens of millions of yen in hospital bills a year, so he got involved in drug crimes.</p>
-<p>,Even if the management team leader and most of the management team are former Self-Defense Force personnel, the detergent used by the management team is something that can be the main raw material for drugs, and the management team leader's daughter's medical expenses are tens of millions of yen a year, it doesn't mean that the management team leader is a drug dealer. They're all circumstantial evidence. We need solid physical evidence.</p>
-<p>-So, we have no choice but to search the warehouses used by the management team. Are you going now?</p>
-<p>,Yeah, I have to go and take a look.</p>
-<p>Sakagami Rena, who is skilled in stealth, or Otagi Yuka, who knows how to blend into the darkness of the night as a vampire, would be great at finding drugs. If I use Abyss and Shadow Domination, sneaking in is a piece of cake. As I was thinking about my plan to infiltrate the management team's warehouses scattered in various places, I heard Shido Tsubaki's voice.</p>
-<p>-I want to go with you too.</p>
-<p>If Shido Tsubaki gets involved here, things will get complicated....</p>
-<p>----</p>
-<p>Review of the new model I touched again yesterday</p>
-<p>It's gotten pretty good, but it doesn't feel like Yukiko ㅎㅎ I'll have to use the one I used to use for Awakened Yukiko.</p>
+<p>There are explicit contents and illustrations, so please check your surroundings before viewing~!!</p>
+<p>After taking the students and Shimokawabe Airen-ssi home, I came into my house with Kijimoto Jurie. Before I knew it, we had thrown off our clothes, and Kijimoto Jurie knelt in front of me without hesitation and took off my panties.</p>
+<p>"Haaheueung...♥ Ryuta-nim's dick, it's been so long...!"</p>
+<p>Kijimoto Jurie, wearing the cat ear headband I gave her as a gift, started licking my dick. I hadn't been able to give Kijimoto Jurie much attention for the past week because of the athletic meet practice, so she must have been quite pent up, as she greedily sucked on my dick. It was like a person who hadn't eaten for three days eating a banana.</p>
+<p>"Is it good?"</p>
+<p>"Yes... It's always delicious...♥"</p>
+<p>Kijimoto Jurie licked the back tendon of my dick with a languid expression. Her seductive expression, as if she were eating the ultimate delicacy, made my already hard dick even harder.</p>
+<p>I couldn't just stand still, so I put my foot between Kijimoto Jurie's legs, who was kneeling in front of me, and rubbed her damp panties with my toes.</p>
+<p>"Haaheup...! Eunghheueut...♥ If you tease me like that... I can't suck it...! Haaht! Stay still!"</p>
+<p>To refuse foreplay because it interferes with sucking my dick, she has quite a thorough spirit of service. Kijimoto Jurie even refused my foreplay and accepted my dick all the way into her throat, begging for semen. The sight of cat-eared Kijimoto Jurie was quite arousing, so I decided to pour semen into Kijimoto Jurie's neck. I grabbed Kijimoto Jurie's head and shook it back and forth like an onahole.</p>
+<p>"Kueok, tteubeup! Keoeheok, tteubeup, tcheup, kehek♥"</p>
+<p>Kijimoto Jurie endured her nausea and accepted my dick, opening her throat as much as possible. After shaking Kijimoto Jurie's face for a while, the feeling of ejaculation rose.</p>
+<p>Byuut! Beut! Beut!</p>
+<p>I pulled Kijimoto Jurie's face all the way to the base of my dick and started ejaculating. Kijimoto Jurie's eyes widened, and I could hear the gulping sound of her swallowing the semen.</p>
+<p>Jjoop...! Jjoop...!</p>
+<p>Kijimoto Jurie, who had sucked out even the remaining semen in my urethra, spat out my dick with a "buha~!" sound.</p>
+<p>"Master-nim came so much in my neck, I came too...♥"</p>
+<p>It seemed that Kijimoto Jurie's masochistic instincts were revived after tasting the semen. Kijimoto Jurie went up to the bed, lay down, spread her legs, and showed me her gaping pussy with her hands, as if seducing me.</p>
+<p>At that sight, my dick regained its strength, so much so that it was hard to believe it had just ejaculated. I grabbed Kijimoto Jurie's spread legs and inserted my erect dick.</p>
+<p>"Haaheueueeut! Keueeot...! Ryuta-nim, heueut! Your dick is so big♥"</p>
+<p>Saying it's big, she pressed between my butt and waist, trying to accept it further inside, which was quite arousing.</p>
+<p>"You'll be tired tomorrow, but don't even think about sleeping tonight."</p>
+<p>"Neheehee...! Please torment me all night, Master-nim...♥"</p>
+<p>Of course, since there is the Holy Pillar effect, I won't be tired tomorrow even if I do it all day. I shook my dick vigorously to fill Kijimoto Jurie's womb to the brim.</p>
+<p>###</p>
+<p>'It's refreshing....'</p>
+<p>This was the first time she had felt this way since collapsing. It was Asada Ei, who had endured eight years of hellish life after collapsing with a feeling as if her whole body was burning. When she came to her senses from time to time, her parents were looking at Asada Ei with worried eyes, and the feeling of her whole body burning was still there.</p>
+<p>But now she no longer felt any pain. How did I get better? She opened her eyes and got up from her seat, and she could recognize the surroundings. Asada Ei was in a metal freezer.</p>
+<p>It was definitely a different place from the hospital she had regained consciousness in before. Come to think of it, her clothes were also different. She was wearing a large white jacket that looked quite thick, different from the hospital patient gown.</p>
+<p>'Where is this...?'</p>
+<p>Asada Ei, who was from an intelligence officer background, calmly looked around. Perhaps her father moved her hospital room with a new treatment method, but since it might not be, she was trying to check.</p>
+<p>Asada Ei originally had skinny leg muscles that were nothing but bones because she had been lying in bed for seven years. But now, instead of her previous skinny appearance, she had changed to a slightly more lively appearance. Still, it was quite difficult to walk step by step, as if she hadn't fully recovered.</p>
+<p>Asada Ei turned the door handle of the freezer. With the sound of pressure escaping, "chii...!", the door opened.</p>
+<p>When the door opened, a beautiful woman with white and pink hair mixed in a bridge style, wearing a white doctor's gown, was standing there. She was a very seductive female doctor, wearing a tight black mini dress inside her gown.</p>
+<p>"You're awake, Asada-ssi. How is your body?"</p>
+<p>"Yes, yes? I think I'm a little better. But are you a doctor?"</p>
+<p>"Hmm... You can call me a doctor, but just call me Eve~!"</p>
+<p>Eve... She wasn't interested in the doctor in front of her. She was just curious if her body was healed.</p>
+<p>"Is my body... healed?"</p>
+<p>"First of all, to tell you the conclusion, it's not healed yet."</p>
+<p>"Ah...."</p>
+<p>"Your father is coming to give you a detailed explanation, so he will tell you. First, wait in the room you just came out of."</p>
+<p>"Yes, I'll wait."</p>
+<p>At Eve's words, Asada Ei went back into the room like a freezer. After waiting a little, the door burst open and Asada Ei's father, Asada Fukushi, came in. However, what surprised Asada Ei was that he came in wearing extremely thick clothes and a hat covering his ears, as if he were going to the Arctic.</p>
+<p>"Ei! You've come to your senses!"</p>
+<p>Asada Fukushi sobbed and hugged Asada Ei tightly. Asada Ei's nose tingled as her father sobbed, but she watched her father cry for a while to ask what happened.</p>
+<p>"Father, what's with that outfit...? Is it winter now?"</p>
+<p>"Winter hasn't come yet. But... look there."</p>
+<p>Asada Fukushi pointed to one side of the wall in response to Asada Ei's question. There was a thermometer on the wall, and it indicated that the temperature in this freezer-like place was minus thirty degrees.</p>
+<p>It was a cold temperature that felt like Asada Fukushi's ears would fall off, but it was just a slightly cool and pleasant temperature for Asada Ei. It was definitely a strange thing, so Asada Ei stammered and asked her father what was going on.</p>
+<p>"W-what's going on?"</p>
+<p>"Well, that is...."</p>
+<p>In response to Asada Ei's question, Asada Fukushi told her the story from the moment Asada Ei collapsed. From the fact that Asada Ei collapsed and hospital bills amounting to tens of millions of yen per year were incurred, to the fact that he sold drugs to solve those hospital bills, to the fact that he was caught by a man named Yamashiro Ryuta, and that that person told him about Asada Ei's treatment method, he told her about what had happened in the past seven years.</p>
+<p>The reason why Asada Fukushi didn't hide the fact that he sold drugs was because Asada Ei was also from the intelligence unit, so she could find out about Asada Fukushi's misdeeds at any time. He thought it would be better to tell the truth rather than hide it now.</p>
+<p>"You're saying Father sold drugs?"</p>
+<p>"I'm not trying to justify it... but at the time, that was the only way I could raise your treatment costs."</p>
+<p>The father Asada Ei knew was a rigid soldier. He was not someone who would ever think of becoming a drug dealer. But because she collapsed, her rigid father turned to crime. Asada Ei felt sorry, grateful, and a little resentful.</p>
+<p>"And oh, temperature allergy?"</p>
+<p>As if shaking off her complicated feelings, Asada Ei asked about her illness, wondering if she had misheard. She had never heard of a temperature allergy before.</p>
+<p>Of course, she could tell that the temperature allergy she had heard existed because she felt a burning pain and felt only a slightly cool feeling even at a temperature of minus thirty degrees.</p>
+<p>"I heard it's not an exact diagnosis... but they said that normal temperatures are dangerous for you. They said that the jacket you're wearing now is something that can preserve the cold."</p>
+<p>Asada Ei despaired at Asada Fukushi's words. Of course, it was better than lying in the hospital room feeling a burning pain, but having to be in a cold place for the rest of her life was not a good result at all.</p>
+<p>"It'll be okay. They said that if you collect enough cold, you can be at normal temperatures for a few hours. But they said it will take some time now because you haven't received cold for seven years."</p>
+<p>Collect cold...? Asada Ei muttered to herself. Did humans have such a function...? Asada Ei thought that she was becoming a little distant from humans at her father's words. As she thought that, Asada Ei looked at her father's hands, whose fingertips were red from the cold in the room.</p>
+<p>"I'm okay, so go home and rest now, Father. It's too cold here."</p>
+<p>"Okay... I'll come with your mother tomorrow."</p>
+<p>He wanted to be with his daughter a little longer, but his daughter had just woken up. If she gets a little better, they can be together longer. Asada Fukushi left the freezer with heavy steps.</p>
+<p>"It's time for cryotherapy~!"</p>
+<p>Eve came in shortly after Asada Fukushi left. Eve wasn't cold, and she was just wearing the same casual clothes and a thin doctor's gown as before. Asada Ei followed Eve's instructions to follow her. All she had to do was follow her to the room next door, which had a capsule-like thing taller than a person standing in it. When Eve operated the capsule, the capsule opened.</p>
+<p>"Go in here. It's a cryogenic cooling device, so you don't have to worry about anything!"</p>
+<p>"Yes."</p>
+<p>Asada Ei went into the capsule. Soon the capsule closed and white cold air began to fill the inside.</p>
+<p>'It's comfortable....'</p>
+<p>Asada Ei closed her eyes without realizing it. And she felt the cold air surrounding her. She felt the cold air entering her body more and more. She felt the cold air accumulating in her body as if water was being poured into an empty plate.</p>
+<p>'Father's words weren't wrong.'</p>
+<p>Suddenly, Asada Ei became curious about the man named Yamashiro Ryuta that her father, Asada Fukushi, had mentioned. He accurately matched her illness and its treatment method, which even the most famous doctors in Tokyo didn't know, and it was also that man who made her father quit his drug business.</p>
+<p>'I've received a favor that I have to repay for the rest of my life.'</p>
+<p>He was a man she didn't even know the face of, but Asada Ei decided to repay the favor she had received from that man.</p>
+<p>_______</p>
+<p>Kijimoto Jurie B-cut!</p>
+<p>Knee socks version.</p>
+<p>The cat started going crazy again when I put on the cat ears, lol.</p>
+<p>Eve B-cut!</p>
+<p>Eve's tits are so big today, haha.</p>
+<p>Asada Ei</p>

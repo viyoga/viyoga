@@ -5,72 +5,83 @@ weight = 7
 chapter = 7
 +++
 
-<p>Since this is a character introduction, there is a risk of spoilers! If you don't like spoilers, please read the main story first~!!</p>
-<p>*I didn't make illustrations for the male characters haha. The order of character introductions is random.</p>
-<p>◆ Jin Yong-tae, ■■■, Taira Ryuta: The main character of this story. Disappointed with a drama, he left angry comments and ended up possessing a well-endowed, handsome, third-generation Korean-Japanese man. He discovers that he is an illegitimate son of the Taira Group, one of Japan's leading conglomerates, and develops the ambition to become the Chairman of the Taira Group.</p>
-<p>◆ Jinmija: The protagonist's mother, whom he calls Jinmija Yeosa. She raised Jin Yong-tae alone. She graduated from one of Japan's top universities, but couldn't advance her career because she was raising the protagonist alone.</p>
-<p>◆ Han Yu-gyeong: The protagonist of the youngest son of Megacorp in the original work. Han Yu-gyeong appears when choosing a female character during character selection. The youngest of the Shin-gang Group. A freshman in the Department of Business Administration at Korea University.</p>
-<p>◆ Ha Ju-yoon: Han Yu-gyeong's mother. She was a TV star in her childhood, but she fell for Han Seong-jae of the Shin-gang Group and gave birth to Han Yu-gyeong. Currently, she is separated from her husband due to a poor relationship.</p>
-<p>◆ Daughter of the Abyss: Outer God. As the name suggests, she is the Daughter of the Abyss. She lives on the seabed, worshiped by jellyfish. She likes sweets.</p>
-<p>◆ Taira Danjo: The Chairman of the Taira Group, one of the leading companies in Japan. He is the protagonist's grandfather and has a grumpy personality. A giant in the Japanese business world who hates even his own son for coveting his authority.</p>
-<p>◆ Taira Shizuku: Taira Danjo's fourth wife. She is Jin Yong-tae's paternal grandmother and cares for him.</p>
-<p>◆ Taira Ichiro: Taira Danjo's eldest son. A man with a small build and glasses. He has a meticulous and cold personality.</p>
-<p>◆ Taira Kokoro: Taira Danjo's eldest daughter. She is in charge of Taira Entertainment within the Taira Group.</p>
-<p>◆ Taira Jiro: Taira Danjo's second son. Unlike his older brother, Taira Ichiro, he is large. He is working hard to become the owner of the Taira Group.</p>
-<p>◆ Nae Fitzgerald: Taira Danjo's second daughter. Her mother is a foreigner, so she looks Caucasian. She is the president of a French luxury company called Légion.</p>
-<p>◆ Arisu Fitzgerald: Nae Fitzgerald's daughter. She works as a model in Japan.</p>
-<p>◆ Taira Saburo: The protagonist's father. Taira Danjo's third son. He dies in a suspicious car accident.</p>
-<p>◆ Taira Yukiko: Taira Saburo's widow. She is the director of the Taira Group's Human Resources Development Center, the company Jin Yong-tae will be attending.</p>
-<p>◆ Awakened Taira Yukiko: The appearance of the succubus's power awakened.</p>
-<p>◆ Taira Kanna: Taira Danjo's third daughter. The protagonist Jin Yong-tae's younger aunt. She is the student council president of the high school she attends.</p>
-<p>◆ Fujigasaki Rinka: The protagonist's master. The UMC's world's best fighting organization's openweight champion. A global sports star, not just in Japan.</p>
-<p>◆ Smith Kazuhiro: The protagonist's friend, nicknamed Sumikazu. Although he possessed someone else, he regards the protagonist as a friend because Jin Yong-tae's memories were mixed in. He is a mixed-race black man and a soccer player. He has a preference for ugly women. He was a delinquent in his school days, but he comes to his senses after being beaten by the protagonist.</p>
-<p>◆ Genba Kiyohira: The protagonist's friend, nicknamed Genbaki. He was known as the Black and White Twin Devils (黑白雙鬼) along with the blacksmith Kazuhiro because he had white hair in his school days. He is currently a fighter in the UMC.</p>
-<p>◆ Mimata Chieri: Jin Yong-tae's direct Sunbae in the Human Resources Development Center. Her hobby is visiting famous restaurants.</p>
-<p>◆ Shinoe Misano: The team leader of the Education Support Team 2, to which the protagonist belongs in the Human Resources Development Center. She wears glasses and has a good figure.</p>
-<p>◆ Suzuki Chisami: The deputy team leader of the Education Support Team 2 in the Human Resources Development Center. She was appointed in the middle. She has tanned skin.</p>
-<p>◆ Sawayanagi Azuma: The president of a PMC called Seryu Military Company. She has limited precognitive abilities.</p>
-<p>◆ Sawayanagi Sinya: The vice president of Seryu Military Company. He is an expert in bomb making and a master of VR dive.</p>
-<p>◆ Sawayanagi Tobe: An agent of Seryu Military Company with the ability to steel himself. He has a taciturn personality.</p>
-<p>◆ Sawayanagi Seari: A wind ability user. She awakens the power of a fairy.</p>
-<p>◆ Kiyona Hori: An agent of Seryu Military Company. She is an excellent driver. Unlike her younger sister, Kiyona Mari, she is well-endowed.</p>
-<p>◆ Kiyona Mari: An agent of Seryu Military Company. A pyrokinesis ability user. Unlike her older sister, Kiyona Hori, she is flat-chested.</p>
-<p>◆ Katayama Junichi: An agent of Seryu Military Company. He specializes in daggers. He likes martial arts.</p>
-<p>◆ Sawayanagi Mikiyo: An agent of Seryu Military Company. A sniper. She looks young, but she is in her mid to late twenties, making her one of the older members of Seryu Military Company.</p>
-<p>◆ Lianna Holden: An agent of Seryu Military Company. A telepathic ability user. She plays the role of an operator. She is presumed to be American.</p>
-<p>◆ Sawayanagi Shigeru: A speedster ability user. He needs a lot of calories to use his ability, so he keeps eating something.</p>
-<p>◆ Nagumo Sian: The president of Taira Foods. An ability user scouted by Taira Danjo when he was young. For some reason, she still looks young. She is called a godmother in Akita Prefecture and is very popular.</p>
-<p>◆ Alexandra Smirnova: Her nickname is Alik. A Russian girl whom the protagonist rescued from a slave trader. Impressed by maid cafes, she wants to become a maid.</p>
-<p>◆ Konoe Akina: The eldest daughter of the prestigious Konoe family in Japan, but she is kidnapped and held in a slave trader's prison until she is rescued by the protagonist.</p>
-<p>◆ Lee Doo-young: A regeneration ability user. The protagonist rescues him from a slave trader. He joins Seryu Military Company.</p>
-<p>◆ Choi Jin-ha: A petrification ability user. The protagonist rescues him from a slave trader. He joins Seryu Military Company.</p>
-<p>◆ Kim Young-chan: A clairvoyance ability user. The protagonist rescues him from a slave trader. He joins Seryu Military Company.</p>
-<p>◆ Jeong Da-rim: She has the ability to communicate with plants. The protagonist rescues her from a slave trader. Unlike her fellow prisoners, she gets a job at a research institute instead of Seryu Military Company.</p>
-<p>◆ Eve: An artificial intelligence that oversees Am-sang, one of the world's leading underworld organizations. A fairly cheerful AI android.</p>
-<p>◆ Lara Sinclair: An artificial intelligence android who introduces herself as 'the daughter of Caiden Sinclair, the founder of Energy-Link Industrial Company'. Unlike Eve, she has a cold and taciturn personality.</p>
-<p>◆ Dickson: Han Yu-gyeong's bodyguard. A large Caucasian man who is a former soldier/homeless. Because he is gay, the protagonist entrusts Han Yu-gyeong to him with peace of mind.</p>
-<p>◆ I Yeon-ju: The vice president of Vanguard, a security company acquired by Han Yu-gyeong. She has a strong sense of loyalty.</p>
-<p>◆ Otagi Yuka: A vampire girl. When her friend dies in the United States after getting involved with a gang during a trip, she heads to the United States for revenge. She is a red-haired, tomboyish beauty.</p>
-<p>◆ Vivian Taylor: The owner of Mother Mars, one of the top five megacorps in the United States in the future. Currently, she is a secretary assisting her uncle, the president of Mother Mars.</p>
-<p>◆ James Fuller: The director of the Supernatural Power Management Department. A psychometry ability user.</p>
-<p>◆ Diana Richie: The deputy director of the Supernatural Power Management Department. She has aerokinesis abilities. She is of mixed Black, Native American, and Korean descent.</p>
-<p>◆ Daigo Terue: The principal of St. Francis Girls' Academy, which is attended by the daughters of famous families from all over Japan.</p>
-<p>◆ Kasaoka Yuzuki: The head teacher of the 3rd grade. The subject is mathematics.</p>
-<p>◆ Shimokawabe Airen: A woman who will be called one of the Three Swordsmen in the future. Currently, she is a home economics teacher at St. Francis Girls' Academy. Even now, her swordsmanship is at a completed level.</p>
-<p>◆ Kijimoto Jurie: The nurse dedicated to the special class of the 3rd grade at St. Francis Girls' Academy.</p>
-<p>◆ Kurayamata Kirie: She came to St. Francis Girls' Academy as a student teacher and assistant homeroom teacher for the special class of the 3rd grade. The subject is Japanese classics. Her glaring eyes are her trademark.</p>
-<p>◆ Minamoto Risa: The youngest of the Minamoto family, who compete with Taira for the top spot in Japan. She is twisted due to the checks from her brothers and her background, so she goes around as a gyaru.</p>
-<p>◆ Seizawa Shii: The daughter of the Seizawa family, which has produced Japanese prime ministers. She is a friend of Minamoto Risa and a delinquent student who dresses in white gyaru fashion. Unlike Minamoto, the Seizawa family is laissez-faire, so she doesn't care about the family.</p>
-<p>◆ Oofuchi Erika: Daigo Terue's goddaughter. She is a hikikomori.</p>
-<p>◆ Kujo Kina: The daughter of the Kujo Group, which ranks around 3rd or 4th in Japan. She is a martial arts maniac.</p>
-<p>◆ Saionji Diana: The daughter of the Saionji family, famous for their banking business. She lost her parents and limbs in a traffic accident and wears prosthetic arms and legs.</p>
-<p>◆ Shido Tsubaki: The former head of the newspaper club. She is suspended for reckless reporting.</p>
-<p>◆ Sakagami Rena: A student who likes masks. She is mysterious.</p>
-<p>◆ Urabe Konoka: The adopted daughter of the famous shrine family, the Urabe family. She is a shaman who serves the Daughter of the Abyss.</p>
-<p>◆ Uenozono Karen: A member of the idol group Seraph.</p>
-<p>◆ Naruse Shiyo: A sickly girl. As sickly as she is, she likes strong things.</p>
-<p>◆ Nakanoin Rina: The disciplinary committee chairman of St. Francis Girls' Academy. She carries a weapon called a jitte.</p>
-<p>◆ Tang So-hwa: The head of the Northeast Asia branch of the dark enterprise Kurotsukido. She boasts tremendous force with the poison skills she learned from her family.</p>
-<p>◆ Yang Xuexi: A Kurotsukido fighter also known as Yang Seol-hui. She is Tang So-hwa's direct subordinate and snipes using her clairvoyance abilities.</p>
-<p>◆ Aitana: An American psychic. She is currently the most famous psychic with her light-based abilities.</p>
-<p>◆ Cheon Ha-rin: An executive director of Jeil Group, Korea's top company.</p>
+<p>Getting off the bus that stopped at the Dong Seoul Terminal, I checked my status window and saw that my Willpower increased by 4 and Concentration by 1. Maybe it was because my stats went up, or maybe it was because I slept, but the shock of committing murder had subsided to some extent.</p>
+<p>Right, the guy had a gun. I had no choice in order to live. I repeated the words 'I had no choice' in my mind and walked around the terminal to find a motel first.</p>
+<p>There were many motels around the terminal, and then I heard a woman scream, 'Kyaa!' from an alley. What's going on? I peeked into the alley and saw two men threatening a woman with a knife. It wasn't that uncommon in Seoul in this world. Should I just pass by...?</p>
+<p>"!"</p>
+<p>I was about to pass by, but as the angle changed, I saw the woman's face. It was Han Yu-gyeong, the protagonist of MegaCorp's youngest son.</p>
+<p>Why are you there? You should still be in Incheon, the starting point...? I don't know why she came all the way here, but as a veteran player of this game, I couldn't let Han Yu-gyeong get hurt in a place like this. I slowly approached and struck the back of one of the thugs' necks with a hand blade. In movies and anime, they usually faint when you hit them there.</p>
+<p>However, whether it was because I hit him gently so he wouldn't die, the thug turned around, saying, "Ah, *ssibal*, what the hell?"</p>
+<p>"There's been more than one or two bastards who died trying to imitate a hero of justice."</p>
+<p>"Just because you're buff doesn't mean a knife won't go in, huh?"</p>
+<p>The two thugs threatened me with knives about a hand-span long. In situations like this, it's best to strike first! Surprisingly, the thugs had the same idea as me and rushed at me at the same time. I pushed away the knife of one of them, who was dangerously aiming for a vital spot, and grabbed his wrist and twisted it. It wasn't a technical twist like a martial arts master disarming a knife, but a twist of the wrist itself with tremendous physical ability. The thug grabbed his wobbling wrist and screamed.</p>
+<p>"Kuaaak!"</p>
+<p>The other one swung his knife at me, and I deliberately let him cut me slightly. Han Yu-gyeong saw the blood splatter and let out a small 'Kyaa!' The moment the thug raised his hand to cut again, I ducked my head and turned to the side, hitting his side. *Eudeuk!* I felt the feeling of ribs breaking with the sound. Again, turning in the opposite direction, another hit to the side!</p>
+<p>"Keoeok!"</p>
+<p>"If you repeat this, it becomes a Dempsey Roll."</p>
+<p>The thug who was holding his broken wrist abandoned his companion who was holding his side and ran away. What a disloyal bastard. I approached Han Yu-gyeong, who was trembling as if surprised, and reached out my hand, asking.</p>
+<p>"Are you alright?"</p>
+<p>Han Yu-gyeong, who took my hand and got up, opened her mouth with an expression as if she was more worried about me.</p>
+<p>"Ah.... Yes. Isn't your arm more dangerous than me?"</p>
+<p>I glanced at my arm. My left arm was torn, and the white shirt I had stolen from the security guard was stained red.</p>
+<p>"This much is nothing."</p>
+<p>"What do you mean nothing? You're bleeding so much!"</p>
+<p>Actually, the blood only came out when I was cut, soaking the shirt, but it had already been healed for a long time due to the regeneration effect. But from the looks of it, the shirt was stained with blood, so it would look like I was seriously injured. In fact, if it weren't for the damage reduction effect and regeneration of the Yeouiju, it could have been a serious injury. But I believed in the two abilities and deliberately got injured.</p>
+<p>"I'll go buy some medicine at the convenience store first! Please wait a moment."</p>
+<p>In fact, I deliberately let the knife graze me in order to put Han Yu-gyeong, the protagonist of this world, in debt. And I also felt a little sorry for Han Yu-gyeong.</p>
+<p>MegaCorp's Youngest Son is a globally huge hit game, a sequel to the previous work [The Mega Corporation (referred to as TMC)], depicting the past of TMC, that is, the era when MegaCorp was just emerging, just before the advent of cyberpunk. The protagonist is the youngest son of Shinkang Group, a top 10 conglomerate in Korea, and the game is about increasing the value of the company by achieving various achievements and solidifying his position in the company to become the Chairman.</p>
+<p>Contrary to the name MegaCorp's Youngest Son, the protagonist's gender can be freely chosen, but gamers said that starting as a woman is the beginning of Nightmare Mode.</p>
+<p>Han Mun-gang, the founder of Shinkang Group, is a person with an old-fashioned mindset that does not fit the current era, and he only thought of the daughters of the family as objects of arranged marriage. So, if you start as a woman, it is very difficult to raise Han Mun-gang's favorability, which is an important point, and the support from the family in the early stages was also very small.</p>
+<p>In addition, when starting as a woman, physical stats are lower than men, so they struggled even against early monsters, and if they were caught by thugs like now, Han Mun-gang's favorability would decrease along with the status ailment called trauma.</p>
+<p>Lastly, even if you clear the same quest, the rewards were less than for men. Even if you clear a very difficult quest, you only get the reward for clearing an intermediate quest based on men, so all the gamers said in unison that the woman button in the gender selection was the Nightmare difficulty button.</p>
+<p>So, usually, when playing as a female protagonist, you don't raise your grandfather's favorability and get promoted internally, but rather go the route of devouring the company by focusing on raising external forces. Of course, the latter is twice as difficult in terms of difficulty.</p>
+<p>After being lost in thought about the game for a few minutes, Han Yu-gyeong soon came with a bag full of things. Probably medicine.</p>
+<p>"I bought bandages and medicine here."</p>
+<p>"Ah, thank you."</p>
+<p>"No thanks. You got hurt trying to save me...."</p>
+<p>I couldn't wrap the bandage in the middle of the road. Besides, I couldn't do it even more because I had to take off my shirt to wrap the bandage.</p>
+<p>"Not in any other sense...."</p>
+<p>Han Yu-gyeong looks at the ground with her ears red.</p>
+<p>"Yes?"</p>
+<p>"Because you have to wrap the bandage.... Would you like to go over there?"</p>
+<p>The place that Han Yu-gyeong, whose face was red, pointed to was a motel. I saw a neon sign that said Motel Rose. I chuckled at Han Yu-gyeong's embarrassment and nodded.</p>
+<p>"Accommodation."</p>
+<p>Since I had to get a room anyway, I said accommodation, paid, and entered the elevator.</p>
+<p>"Um.... Accommodation is?"</p>
+<p>"Ah, I came to Seoul for sightseeing. It's late today, so I'm going to sleep here since I came here anyway."</p>
+<p>"Ah..."</p>
+<p>An awkward atmosphere lingered in the elevator.</p>
+<p>Ding! The elevator stopped with a sound and the door opened. Yu-gyeong-ssi and I walked down the hallway, keeping our distance, and entered the room.</p>
+<p>"First, take off your shirt."</p>
+<p>At Han Yu-gyeong's words, I took off my shirt. Looking at my arm, it seemed that the level of regeneration was low, so there was a small, thread-like scar that was not completely healed.</p>
+<p>Han Yu-gyeong brought a motel towel, wet it with water, and wiped my arm. She widened her eyes as if slightly surprised at the unexpectedly small wound.</p>
+<p>"The wound isn't that big?"</p>
+<p>"I told you. It's okay."</p>
+<p>Another awkward silence followed, but Han Yu-gyeong opened her mouth as if trying to break this awkward silence.</p>
+<p>"Come to think of it, I don't think I've properly introduced myself. I'm Han Yu-gyeong. Thank you for saving me."</p>
+<p>"I'm Jin Yong-tae. Um... just a passing tourist."</p>
+<p>Han Yu-gyeong made a face as if asking why a Korean person would go sightseeing in Seoul in response to my answer.</p>
+<p>"If you're a tourist...?"</p>
+<p>"Ah, I'm a Korean-Japanese. I'm going to join the company in about ten days, so I came to Korea for a trip before going to the company."</p>
+<p>I smiled and showed my employee ID. Han Yu-gyeong's expression became a little strange after seeing my employee ID. She had a suspicious expression.</p>
+<p>"You said your name was Jin Yong-tae, but it says Taira Ryuta? Did the Taira family find me?"</p>
+<p>At Han Yu-gyeong's slightly accusatory question, I answered with a troubled expression.</p>
+<p>"Ah.... I'm a.... illegitimate child. Originally, I grew up as Jin Yong-tae without even knowing my father, but recently I was recognized by the family and I'm going to join the company under that name."</p>
+<p>"Ah! I'm so sorry."</p>
+<p>In fact, the protagonist and her parents were not recognized by the family in the early stages, so Han Yu-gyeong was startled to hear that I was an illegitimate child. She felt a sense of kinship with a story similar to her own.</p>
+<p>"It's okay. Actually, it's not like I was treated badly for being an illegitimate child. I just found out a while ago that I had a father I didn't even know."</p>
+<p>"Still, I suspected you for no reason...."</p>
+<p>"May I ask why you were so suspicious?"</p>
+<p>This time, Han Yu-gyeong was embarrassed. Well, I wasn't actually embarrassed, but I pretended to be embarrassed, but Han Yu-gyeong seemed reluctant to reveal that she was from Shinkang Group.</p>
+<p>"It's similar for me. I'm not an illegitimate child, but I'm also a child from a family that was kicked out of a company."</p>
+<p>"Ah.... So you suspected that I approached you on purpose."</p>
+<p>I did approach her by chance, but it wasn't a deliberate and planned approach.</p>
+<p>"No matter how great the Taira Group is, there's no way they would know that Han Yu-gyeong-ssi would be attacked by thugs today."</p>
+<p>"Yes.... That's true. I think I was too delusional. And what use would I be anyway."</p>
+<p>I patted Han Yu-gyeong's suddenly drooping shoulder. I would have hugged her if we were a little closer.</p>
+<p>"Yu-gyeong-ssi, shouldn't you go home? Do you live nearby?"</p>
+<p>The time was 12:40 AM on Saturday, so it was time for the subway to stop running.</p>
+<p>"Ah!"</p>
+<p>Han Yu-gyeong is surprised to see the time. She probably doesn't have enough money to call a taxi to Incheon in the early stages.</p>
+<p>"Um.... I'm sorry.... Can I sleep here tonight?"</p>
+<p>Hell yeah.</p>

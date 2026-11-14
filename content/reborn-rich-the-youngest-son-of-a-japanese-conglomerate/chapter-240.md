@@ -5,85 +5,67 @@ weight = 240
 chapter = 240
 +++
 
-<p>,You're back again? Is there anything else you want to buy?</p>
-<p>Returning to the Amhang New York branch, Eve asked with a look that seemed to say, 'Why are you back?' Otagi Yuka was nowhere to be seen, probably out hunting Kurotsukido again.</p>
-<p>,Rather than buying something, I got something in New York, and I don't think I can just take it, so I was wondering if I could send it through Amhang.</p>
-<p>,Are you talking about that steel puppy you're holding now?</p>
-<p>,Yes, and this gun too.</p>
-<p>I received the gun from Mimata Chieri and showed it to Eve, who scanned the mechanical wolf and the gun once.</p>
-<p>,Hmm, the gun is in my database. EL-0001, a prototype with only one unit in the world. The steel puppy isn't in the database. Where did you get it?</p>
-<p>,I went to the abandoned factory of Energy-Link Industrial Company and caught it attacking me.</p>
-<p>,Ah~ So that's what happened. As a special perk for Diamond members, I'll ship what you bought today for free, and I'll do it together. Please put it up here.</p>
-<p>Eve pointed to the serving robot that had stopped Otagi Yuka and I from fighting earlier. Of course, since it's a hologram, I can't receive the items directly, so I'll need the help of a robot like this.</p>
-<p>,I'll put them up.</p>
-<p>I placed the quite heavy steel wolf, EL1, and the battery pack on the serving robot. As soon as I put all the items on, the serving robot seemed to have some kind of sensor, as it widened its eyes and looked at me with a surprised expression.</p>
-<p>,Oh, wait a minute! This steel puppy has a dedicated AI installed?</p>
-<p>,Yes, it has a forbidden killing AI installed. I'm planning to take it to Japan and do some research.</p>
-<p>At my words, Eve nodded for a moment, then opened her mouth with a determined expression.</p>
-<p>,Can I buy the AI program inside this puppy?</p>
-<p>,I'm planning to do business with this steel puppy, so I don't think I can sell it.</p>
-<p>As expected of Eve, who can't resist AI data, she looked at me with Puss in Boots eyes. It's super cute, but! Still, it's a business material, so I can't give it away easily.</p>
-<p>,What kind of business is it? Ah! Then how about this? I'll partner with Ryuta-ssi! I can be of considerable help too.</p>
-<p>Hmm, collaboration with Amhang.... From the start, this steel wolf business isn't a business that can be done legally, so working with Amhang, the king of the dark routes, seemed like a good idea. I nodded in agreement and opened my mouth.</p>
-<p>,I'm going to cover this steel wolf with animal skin and sell it as a pet and secret bodyguard for the upper class.</p>
-<p>,Good idea! Each region has different preferred animals... I heard that pet lions are popular in the Middle Eastern royal family these days, so it's good because you can change the appearance in that way. And I can also reprogram the currently installed killing AI.</p>
-<p>The initial idea was good, but redoing the AI was even more helpful. Since Amhang has the most AI data in the world right now, getting help with artificial intelligence would be more beneficial. I wouldn't have to hire a new programmer either.</p>
-<p>,And if you use the mithril alloy from my mine for the skeleton in the current design, it'll be even better.</p>
-<p>,It's fortunate that Ryuta-ssi has a mithril mine!</p>
-<p>She's so happy. I don't know if it's because the business is highly profitable or if she's happy that she can get the AI of this steel wolf if she works with me.</p>
-<p>,Then, to be legally safe, you have to buy Energy-Link Industrial Company first. You're thinking of commercializing that gun too, right? The wolf has to be done illegally, but if you're going to do a gun business, you have to buy Energy-Link Industrial Company. Otherwise, you'll be sued right away.</p>
-<p>,Wasn't Energy-Link Industrial Company bankrupt?</p>
-<p>Eve shook her head at my question. Hmm, the factory was completely abandoned, and it didn't appear in the game, so I thought it was bankrupt... So the company is still around?</p>
-<p>,Well, there's not much activity, but the company itself is still alive. The former president died, and now a person named Lara Sinclair is in charge of the company. She's not doing much, but she's paying her taxes regularly.</p>
-<p>,How much would it cost to buy it?</p>
-<p>,There's not much activity now, but it has quite a few patents, so it won't be cheap.</p>
-<p>Even if it's not cheap, I think I can buy it with my assets, or I can buy it with Han Yu-gyeong and then set up a company in Korea to help Han Yu-gyeong...</p>
-<p>,Let's worry about the money after we find out the price. First of all, since we've decided to partner, you can check the AI of the steel wolf.</p>
-<p>,Wow~ Thank you! Before that, I'll send you a temporary contract through the Amhang app.</p>
-<p>Soon, a document flew in from the Amhang app with a beep. I showed the document to Mimata Chieri to review it. Mimata Chieri quickly read the document and nodded.</p>
-<p>,It doesn't seem to be a problem. It's a temporary contract, so it doesn't seem to have much content yet.</p>
-<p>I nodded at Mimata Chieri's words in secretary mode, and we left Eve and went outside the Amhang New York branch again. There was nothing else to do at Amhang anyway, and it was dinner time, so I was hungry, so I came out right away.</p>
-<p>,Sunbae-nim, are you going to create the company this time as a subsidiary of Hatake Investment Company?</p>
-<p>,Well, I'm thinking of setting it up in Korea.</p>
-<p>,With Han Yu-gyeong-ssi?</p>
-<p>I stopped abruptly as I was about to get on the motorcycle. How does she know Han Yu-gyeong? Surprised, I turned around and saw her looking at me with an expression like a yandere heroine would make.</p>
-<p>,Sunbae-nim, don't make that face. You like me meeting other women.</p>
-<p>,That's bad! You should have told me in advance so I could imagine it and do it myself when you went to Korea!!</p>
-<p>I don't know what Mimata Chieri is talking about at all. What is she imagining and doing by herself...?</p>
-<p>,By the way, when did you know Yu-gyeong?</p>
-<p>,I've been watching Hubae-nim, so there's no way I wouldn't know. She came to Japan once, right? Hubae-nim also went to Korea.</p>
-<p>Ah, that's right. Han Yu-gyeong came to Japan. At that time, Mimata Chieri was monitoring me under the orders of Taira Danjo, so she must have known. So, does Taira Danjo Halbae also know about Han Yu-gyeong?</p>
-<p>,Does grandfather also know?</p>
-<p>,Hmm, I think I reported that you were with another woman during the day and met Han Yu-gyeong in the evening and had sex all day before being attacked. Actually, the attack was such a big deal that I reported it accordingly, so the report on Han Yu-gyeong was probably omitted. As far as I know, no one followed you on your trip to Korea, so he probably doesn't know that you met in Korea.</p>
-<p>Ah, that's right. An assassin came when Han Yu-gyeong came to Japan. It was nullified by the Orb of Power, but I remember being temporarily declared dead and meeting the Daughter of the Abyss. It's only been a few months, but it feels like a long time ago.</p>
-<p>,Is it more likely that he doesn't know?</p>
-<p>,Probably?</p>
-<p>Whether Taira Danjo knows or not, my actions won't change, but it's better if he doesn't know than if he does.</p>
-<p>,Anyway, I'm thinking of creating a joint venture in Korea with Han Yu-gyeong.</p>
-<p>,I understand. But! Next time you do it with Han Yu-gyeong-ssi...</p>
-<p>,Sunbae-nim, what are you talking about?</p>
-<p>As soon as she showed signs of bringing up another strange request to film a video, I drove off on the motorcycle and ended the conversation. I heard Mimata Chieri following behind me saying, "Please!", but I ignored her and entered downtown New York.</p>
+<p>After finishing my business talk with Oliver Fitzgerald, I headed to Mimata Chieri-sunbae's room. I knocked and entered, and she was sitting on the bed, getting ready to sleep in the baby doll she'd been wearing, probably because she couldn't sleep all night from having sex.</p>
+<p>"Ryuta-hubae-nim, what brings you to my room?"</p>
+<p>"I just talked with your uncle..."</p>
+<p>I told her about how a food company was likely to be eliminated from the Mars colonization project, based on my conversation with Oliver Fitzgerald, and asked her to compile a list of promising companies that could take over the project. I mentioned that investing in one of those companies before they got the rights could be a pretty sweet deal.</p>
+<p>"Of course, I'm not asking you to do it right now, just rest up and get it to me by tomorrow."</p>
+<p>"Okay. I can just list the food companies without colonization rights in order of their market capitalization, so I'll just take a short nap and do it right away."</p>
+<p>"Okay. I'm a little sleepy too, so I should go sleep in my room."</p>
+<p>"Okay... Good night, Ryuta-hubae-nim."</p>
+<p>Mimata Chieri grabbed me as I was about to leave, gave me a light kiss on the cheek, and then lay down on the bed. I left Mimata Chieri's room and headed to my own.</p>
+<p>My stamina and recovery stats are high enough that I can go without sleep for a day or two, but it's always better to sleep if I can. I was feeling a bit dazed from not sleeping at dawn.</p>
+<p>I already showered at the hotel, so I can just lie down. I threw myself onto the bed. The plush, high-end bed enveloped my body and was about to lead me into the world of sleep when my phone rang. I checked it and saw a message from Mimata Chieri.</p>
+<p>CherryJjang🍒: I couldn't sleep after lying down, so I looked into the data you requested, Ryuta-hubae-nim.</p>
+<p>CherryJjang🍒: ☞ 2053FoodCompanyReport.doc</p>
+<p>Taira Ryuta: Thank you, Sunbae-nim!</p>
+<p>CherryJjang🍒: Hehe! Have a good night, President-nim. I'm going to sleep now😘</p>
+<p>An employee making the boss work and then going to sleep... Well, Mimata Chieri got the data, and I just have to pick one from the list, though.</p>
+<p>I opened the document Mimata Chieri attached. It listed about 15 food companies that hadn't obtained Mars colonization rights. Hmm, there were a few familiar names, but... Huh? Why is this company here?</p>
+<p>The company I saw was Mother Mars, commonly known as MM. It was one of the top 5 megacorps in America in TMC, the previous work of the youngest son of MegaCorp, set in a future beyond the present.</p>
+<p>Originally, Mother Mars was a small research lab that received outsourcing from NASA to investigate the soil of Mars. Based on that soil research, they started researching crops suitable for the Martian soil, and eventually expanded into mining, construction, and real estate, becoming a super-giant corporation. Ironically, even though the name is Mother Mars, it seemed like they didn't get on board with the initial Mars colonization project.</p>
+<p>Maybe the existing food company was eliminated due to some kind of scandal, and Mother Mars is going in. Even if they don't get the Mars colonization rights this time, it's an opportunity to gain shares in one of the top 5 megacorps in America in the future, so I should talk to Mimata Chieri, make an appointment, and contact them.</p>
+<p>She's probably asleep by now, so I should get some sleep too and then have her do it. I wasn't the kind of evil boss who sends messages while people are sleeping.</p>
 <p>###</p>
-<p>We stopped by one of the three major steak houses in New York and had a hearty meal, then rode our motorcycles back to the Fitzgerald family's mansion. Arisu and Nae Fitzgerald hadn't arrived yet, and only the butler greeted us.</p>
-<p>,You're here. Have you had dinner?</p>
-<p>,Yes, I heard that steak is famous in New York, so I went and ate it.</p>
-<p>,Ah, no! The steak made by our mansion's chef is much more delicious than that. I'll make it for you around lunchtime tomorrow.</p>
-<p>Even if it's a historically deep-rooted family, why is he talking about eating steak outside like he's seeing his son who ate street food? I found it funny and absurd, so I just smiled and nodded.</p>
-<p>,Yes, I'm looking forward to how delicious it will be.</p>
-<p>,Hehe, I'll show you the best steak in New York.</p>
-<p>If he's so confident, I wonder how delicious it will be. I parted ways with the butler, and Mimata Chieri also went to her room. I went into my room, took a shower, and decided to check the items I got today.</p>
-<p>◆Grizzly Totem [Epic Totem]</p>
-<p>An Indian shaman has bound the spirit of a bear to a bear statue. If you are recognized by the spirit of the bear, you can gain the strength and stamina of the bear.</p>
-<p>I took out the bear totem that I had checked earlier. This... I should give it to Han Yu-gyeong. Her ranged and mid-range combat was fine with her various magic and throwing skills, but Han Yu-gyeong's physical abilities themselves were terrible, so if she received the grizzly totem's options, she would have a great boost in strength and stamina, which would be very helpful in close combat.</p>
-<p>By the way, the way to be recognized by the spirit of the bear was simple. Just apply honey to the bear totem every day. If you do that for a few days, you will be recognized by the spirit of the bear and it will lend you its strength and stamina.</p>
-<p>I have enough strength and stamina, so I don't need it, so I should give it to Han Yu-gyeong. And next is...</p>
-<p>◆Allie's Music Box [Rare Possession]</p>
-<p>This music box alerts the owner with beautiful music when someone with malice approaches. It is said that a timid fairy resides in it.</p>
-<p>It's not very useful to me, who has the Sense of a Master, but I thought I should give it to Jinmija Yeosa. Since it's malice, it will be useful not only for her life but also for her business. Even scammers who come to ruin her business have malice, so the music box will definitely ring.</p>
-<p>The last liquor called the Elixir of Strength was something I had never seen before either. I'm a little curious whether it will be a dud or a hit.</p>
-<p>◆Elixir of Strength [Rare Elixir]</p>
-<p>An elixir that randomly increases strength by 0~2 when a person with less than 12 strength drinks it all and sobers up. It's just a liquor with no ability if you don't get drunk.</p>
-<p>This was also a useless elixir for me. I can't even get addicted anymore because of my trait, so how can I get drunk? Besides, my strength is exactly 12. Even if I drink it and get drunk, my strength won't increase. Thinking about it, the trait Body Wrapped in the Abyss is quite bad. I don't get drunk even if I drink alcohol, so what's the point of drinking soju...? I don't usually drink alcohol often, but there are times when I crave it.</p>
-<p>As I was sighing while looking at the Elixir of Strength, I heard a knock, and Mimata Chieri peeked in.</p>
-<p>Oh, she came into the room wearing a baby doll that felt like something that the upper class in early modern Europe or America would wear. Mimata Chieri opened her mouth with a slightly flushed face.</p>
-<p>,Hubae-niim... I'm not wearing panties♥</p>
+<p>After taking a short nap, I made an appointment with Mother Mars with Mimata Chieri.</p>
+<p>Mother Mars was desperate for investment, so they were very welcoming when they received our call. It was so much that I had a hard time stopping them from coming to New York right away.</p>
+<p>Fortunately, Mother Mars had its headquarters in California, which was our next destination, so we were able to meet them in a way that was similar to our schedule. They said they would come to the airport to pick us up because they were in a hurry, so it seemed like we would be able to sign the investment contract right away.</p>
+<p>After successfully arranging the meeting with Mother Mars, I happily attended the dinner. It was the last meal in New York, so the butlers and maids prepared a very lavish spread, which made me even happier.</p>
+<p>"By the way, do you know about the underground auction?"</p>
+<p>"Yeah, I've attended with Mom a few times. Are you thinking of going to the auction this time, Ryuta?"</p>
+<p>When I asked about the underground auction during dinner, everyone in the Fitzgerald family knew about it.</p>
+<p>"Sunbae-nim and I are planning to go this time. It's an early morning auction, so I thought we could pack our bags, go to the auction, and then head straight to the airport."</p>
+<p>"Then we can go together! Arisu has to take the same plane anyway, so it's good to go together, and I can also find out what styles are promising these days as the president of Légion."</p>
+<p>"Yeah! I should definitely go with you too. I'm part of the group!"</p>
+<p>When they heard that we were attending the auction, Arisu and Nae Fitzgerald got excited and said they would go with us.</p>
+<p>"Hmm, I want to go to the underground auction after a long time, but I have to go on a business trip to England right after dinner..."</p>
+<p>Oliver Fitzgerald said he was going on a business trip on his private plane right after dinner, so we ended up going to the auction with the same 3-on-1 sex party as yesterday.</p>
+<p>"Ryuta, do you have a formal suit? Even though it's an auction hosted by the underground, a lot of high-ranking people come to the auction, so there are some basic things you need to bring."</p>
+<p>I'm glad I packed a suit in case I needed it. It's a non-face-to-face auction where you look at the items on the glass or screen in each room and bid to buy them, but you still meet people coming and going, so it's necessary to be formal.</p>
+<p>It's not a rule set by the underground, but the dress code is implicitly formal, so I had no choice but to follow it. It was a relief that Mimata Chieri had also packed a dress.</p>
+<p>The auction was at dawn, so we were talking and playing in the drawing room for a few hours before the three women left, giggling, to help each other with their outfits, and I packed all my bags in my room, put on my suit, and was lightly drinking alcohol and looking at my phone in the drawing room.</p>
+<p>After looking at my phone for a while, the drawing room door opened and Arisu came in. Arisu was wearing a light green summer dress that matched her eyes, and her fashion was accented with the necklace I gave her as a gift.</p>
+<p>"How is it?"</p>
+<p>"Pretty. I think the dress matches Arisu's eyes."</p>
+<p>Arisu smiled brightly at my sincere compliment and came to me and gave me a light kiss. Before the atmosphere could heat up any further, the door opened and this time Nae Fitzgerald came in, wearing a white cream-colored suit-like dress, giving off a very noblewoman-like feel. She looked like a noblewoman, but her voluptuous cleavage made her a very hot fashion.</p>
+<p>"Does it suit me? When I was taking off my clothes today, Ryuta's white baby juice leaked out, so I wanted to wear this color♥"</p>
+<p>"Mom!"</p>
+<p>Arisu shouted at Nae Fitzgerald's lewd words, and Nae Fitzgerald looked at Arisu again with a 'so what' expression. Just as I was about to stop them from fighting again, the door opened once more, and this time, of course, Mimata Chieri, who was left behind, came in.</p>
+<p>Mimata Chieri was wearing a beige mini dress that reached above the knees, with a large ribbon at the waist as the point. It was a dress that suited Mimata Chieri, who had a refreshing, fruity charm. She was also wearing quite flashy earrings, I wonder where she got them.</p>
+<p>"Hehe, I prepared a dress just in case, and I'm glad there's a reason to wear it."</p>
+<p>"Sunbae-nim, you're pretty."</p>
+<p>"Hee, really? That's a relief."</p>
+<p>Since all the preparations were finished, we took a limousine to the place where the underground auction was being held. In the car, Nae Fitzgerald handed us each a mask.</p>
+<p>"Everyone knows who everyone is even if they're wearing a mask, but it's not a legal event, so it's good to wear a mask."</p>
+<p>It was a thin plastic mask that could be easily worn and thrown away. Mine was a green frog with a gloomy expression... Isn't this Pepe? It was quite nice to see that the trend was still alive in 2053.</p>
+<p>Arisu's was a chick mask, Chieri's was a calico cat mask, and Nae Fitzgerald's was a luxurious mask with a handle that only covered the eyes, like the ones noblewomen wear in movies.</p>
+<p>"Woo...! Mom's is so fancy and high-class, that's cheating!"</p>
+<p>"This is originally mine, and I didn't know you guys were going to the auction, so I urgently got a mask. Hohoho!"</p>
+<p>Well, we talked about it during dinner, so she had to get a mask urgently. Still, the Pepe mask is a bit much, but I can't help it because that's the only mask. Everyone was already wearing their own masks, probably because they thought I would ask them to change my Pepe mask.</p>
+<p>Squeak!</p>
+<p>The car stopped in front of the building where the auction was starting, and the butler opened the door. Nae Fitzgerald got out first, and then I got out.</p>
+<p>"Shall we go, Frog Prince-nim?"</p>
+<p>"Shall we, Cheating Queen-nim?"</p>
+<p>Nae Fitzgerald held out her hand to me, and I took it. Arisu, who came out after me, said 'That's cheating!' and put her arm around the arm that Nae Fitzgerald wasn't holding. Arisu seems to feel particularly jealous of her mom. Still, I felt Arisu's soft breasts because she was holding my arm, so I felt good.</p>
+<p>When I turned my head to see what Mimata Chieri was doing, I saw her dripping blood from her nose under her mask as she looked at me with women on both sides.</p>
+<p>Even if she's a netorare maniac, is this something to bleed from the nose about? I laughed in disbelief and walked into the building where the auction was being held with Arisu and Nae Fitzgerald on both sides.</p>

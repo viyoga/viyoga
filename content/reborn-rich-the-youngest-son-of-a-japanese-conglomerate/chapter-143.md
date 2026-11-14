@@ -5,90 +5,103 @@ weight = 143
 chapter = 143
 +++
 
-<p>The acquisition of Seryu Military Company was finalized, and to prevent Black Tech from continuing to attempt kidnappings, Seryu Military Company decided to relocate from Fussa Street.</p>
-<p>First, the exact location would be decided when the remaining four who went on the mission returned, and in the meantime, they would operate in pairs of at least two people to prevent kidnapping incidents as much as possible.</p>
-<p>In fact, to clean up the situation where the secret laboratory was severely damaged and all the researchers were killed, they wouldn't have time to pay attention to Seryu Military Company.</p>
-<p>While coordinating with Seryu Military Company for three days, I continued to stay at a hotel near Fussa Street, and every night, Sawayanagi Azuma, who used to be a virgin bitch but is now just a slave to my dick, came to visit.</p>
-<p>After banging Sawayanagi Azuma and she went back, it was routine for Mimata Chieri, who seemed to have come several times already, to give me a dick service before I fell asleep.</p>
-<p>,Sunbae-nim, how did you discover this taste?"</p>
-<p>After Sawayanagi Azuma left, I made Mimata Chieri cum about five times, then asked Mimata Chieri, who was breathing heavily, while giving her a pillow for her arm. Mimata Chieri pinched my nipple and answered sulkily.</p>
-<p>"It's all because of you, Hubae-nim."</p>
-<p>Huh? Because of me? What did I do?</p>
-<p>"Actually...."</p>
-<p>Mimata Chieri's story went like this. She received an order from Taira Danjo to monitor my every move and watched my free-spirited sex life, and she developed a habit of hiding somewhere and watching my actions while masturbating.</p>
-<p>But it didn't stop there, and after being held by me, she somehow started to get more excited when I was with other women.</p>
-<p>"My chest tightens, and the inside gets hotter, and I feel even better."</p>
-<p>"Is that so?"</p>
-<p>I don't know what she's talking about. I didn't want to understand her NTR fetish. I wanted to be the one doing the NTR. Like a fool, I don't want to see my woman with another man.</p>
-<p>"By the way, Sunbae-nim, since you're not the president of Seryu Military Company, you can buy another PMC, right?"</p>
-<p>"That's right?"</p>
-<p>"Then it would be better to buy a PMC from the recommendation list that grandfather gave you, right?"</p>
-<p>"This time, it's a regular PMC, not a psychic unit like Seryu Military Company, so you don't have to hide the Taira surname."</p>
-<p>That's right. The reason I used the name Hata Ryuta this time was to completely block Taira Danjo's gaze. From the perspective of the PMC we're acquiring, even if Mimata Chieri is the one acquiring it, if the name behind it is 'Taira', it will be more trustworthy, so we should use the value of the name.</p>
-<p>"Is there a place you've been looking at, Sunbae-nim?"</p>
-<p>"Yes, actually, I was against Seryu Military Company at first."</p>
-<p>"That's right."</p>
-<p>At the time, Mimata Chieri didn't know that Seryu Military Company was a psychic unit, so she probably looked into several PMCs with the intention of proposing an alternative while opposing Seryu Military Company.</p>
-<p>"I looked through the documents that Chairman gave me at that time, and there was a decent PMC."</p>
-<p>It seemed that Taira Danjo old man had picked out a pretty good property.</p>
-<p>"Actually.... It was full of trap properties. It was like a recommendation list to test my eye for choosing a company. Only about 4 out of the 25 companies on the Chairman's list had good conditions."</p>
-<p>As expected of Danjo old man, he couldn't give anything properly.</p>
-<p>"Then which place do you recommend the most, Sunbae-nim?"</p>
-<p>"It's here. East Weapon, also known as Tohei (東兵), is a PMC."</p>
-<p>Ah, East Weapon...! It was one of the PMCs that could be hired in the game. It was the opposite of Seryu Military Company. If Seryu Military Company was a small elite psychic unit, East Weapon was a PMC that ran a large unit that wasn't so elite.</p>
-<p>East Weapon was a PMC that recruited a lot of regular soldiers at a cheap price during World War III to fill the numbers. Even now, 8 years after the war, it is said to be famous as a PMC where unemployed young people can easily find employment.</p>
-<p>It wasn't that elite, but its reputation in the industry wasn't bad. It had a good reputation with customers because it handled a lot of work that other PMCs didn't do because it wasn't profitable. It handled small things like being a personal bodyguard for a woman being stalked. Of course, it also did combat missions in conflict zones.</p>
-<p>"It's a company with a decent name, so how did it come on the market?"</p>
-<p>"It seems that the company president's son spent money he shouldn't have. He put it up for urgent sale because his life was in danger if he didn't pay back the money quickly. You can probably buy it for about 6 billion yen."</p>
-<p>The son of a PMC company president put the company up for sale because his life was in danger? And at that price? If that's the case, the group he owes money to must be a pretty big one. It's probably Amsang or Hionigumi (日鬼組), a giant Yakuza organization in Japan...</p>
-<p>"Where did he borrow money from that the PMC president is so scared that he's selling the company?"</p>
-<p>"Amsang."</p>
-<p>Ah, as expected. To be able to ignore Amsang's influence, you had to be at least in the top 5 in Japan. Amsang itself is a dark organization that plays around in the world.</p>
-<p>"Then proceed with the acquisition."</p>
-<p>Anyway, after buying the PMC from the East Weapon president, it was unrelated to us, so it wasn't a trap property or anything.</p>
-<p>"Here's the next story.... You lost the bet back then, so you said you'd do whatever I wanted, whatever costume I wanted, right, Hubae-nim?"</p>
-<p>"That's right. I lost the bet, so I'll listen to you. What do you want?"</p>
-<p>I was a little uneasy, but she'll probably choose something somewhat normal, right?</p>
-<p>###</p>
-<p>Normal my ass...! Mimata Chieri said that she was getting a little tired of seeing me have sex with Sawayanagi Azuma for 3 days in a row and wanted to see me have sex with another woman. When I showed a slightly reluctant reaction, Mimata Chieri kept bringing up that I had lost the bet and asked if I wasn't going to keep my promise, so I had no choice but to nod.</p>
-<p>Still, I was a little resentful of Mimata Chieri's actions, so I chose Suzuki Chisami, who doesn't have a good relationship with Mimata Chieri, as my sex partner this time. I drove my car to Suzuki Chisami's house. Today was Saturday, and Suzuki Chisami said she was resting at home, so I was going straight home.</p>
-<p>I rang the bell, and soon the door opened, and brown-skinned Suzuki Chisami greeted me. She seemed very happy to see me, and she was wearing a happy smile.</p>
-<p>"What brings you here?"</p>
-<p>"Just because. Do I need a reason to come?"</p>
-<p>"Ah, no."</p>
-<p>"I'm just going to order something delicious to eat at home, lie down together, and then go back. I wanted to have an indoor date."</p>
-<p>Suzuki Chisami was very happy with my words about an indoor date. It seemed that she had only had hurried sex at the company after the business trip, and we hadn't been together like this separately. I should have taken care of her more sooner, I feel a little guilty.</p>
-<p>I had already forgotten about Mimata Chieri's existence and was enjoying my date with Suzuki Chisami. Surprisingly, Suzuki Chisami's hobby was gaming, and she had a console at home, so we were able to have fun together.</p>
-<p>After playing games for a while, we ordered sushi and ate it, and the atmosphere became a little erotic.</p>
-<p>"I, I'll go wash up."</p>
-<p>Suzuki Chisami, who was still not very experienced, was very shy and blushed as she went to the bathroom. I waited for about a minute and then entered the bathroom naked.</p>
-<p>"Kyaa! I, I'm washing, Ryuta-nim!"</p>
-<p>"It's faster if we wash together."</p>
-<p>Of course, I didn't just plan to shower. I rubbed Suzuki Chisami's body as much as I wanted with my hands covered in body wash. Suzuki Chisami also put body wash on her chest and rubbed it on my body, probably having seen it somewhere.</p>
-<p>The feeling of our skin rubbing together with the slippery foam of the body wash was new. Of course, my dick was stiffly erect, and Suzuki Chisami's nipples stood up sharply as if they would pierce the sky.</p>
-<p>I couldn't hold back any longer and pressed Suzuki Chisami against the glass wall and inserted from behind. The sight of her chest spreading to the side as it was pressed against the glass wall was quite arousing. It would have been even sexier if I had seen her chest being pressed in the opposite direction.</p>
-<p>"Hng!! I, I love doing it from behind♥"</p>
-<p>Cheolssuck! Cheolssuck! Cheolssuck!</p>
-<p>Because it was humid in the middle of the shower, the lewd sound of splashing filled the bathroom every time I did a piston movement.</p>
-<p>"Heeung! Haaung! Heeeang!"</p>
-<p>Every time it splashed, the sight of Suzuki Chisami's big butt rippling added to the visual excitement.</p>
-<p>Suzuki Chisami's pussy, which had not completely shed the freshness of a virgin, bit down on my dick, and Suzuki Chisami and I reached our climax together.</p>
-<p>"Haaaaa!!! Euhhaaang! I'm going, Ryuta-nim, I'm going!!"</p>
-<p>"Ugh, I'm cumming!!"</p>
-<p>Ulkkeok ulkkeok!!</p>
-<p>White semen, contrasting with her brown skin, overflowed from her pussy and flowed down Suzuki Chisami's thighs, and I continued to hold her from behind with my clone inside Suzuki Chisami. After a while, we looked at each other and smiled, then washed each other again and came out.</p>
-<p>Now it was time for the second round in bed. I feel like I forgot something, but it must be a mistake.</p>
-<p>###</p>
-<p>As I came out of the house, escorted by Suzuki Chisami, whose face was glowing, Mimata Chieri was sitting in my car with dead eyes. She was sitting with her skirt open without wearing panties, and the smell of a woman was a complete mess, as if she had masturbated here twenty times. I need to get the interior cleaned?</p>
-<p>"Sunbae-nim?"</p>
-<p>"Heueut~!!"</p>
-<p>When I touched her, she shot a water gun, pyut pyut. How much did she do...? After a while, Mimata Chieri, who had regained her senses, looked at me with a slightly sulky face.</p>
-<p>"No way~!! Even if I told you to, how could you stay that long? And Suzuki Chisami-ssi...! Please do the same for me today as you did for Suzuki Chisami-ssi!"</p>
-<p>"That's not too difficult.... First, let's get the interior cleaned...."</p>
-<p>"That's...! I'm sorry...."</p>
-<p>I drove the car to get the interior cleaned and took Mimata Chieri to a love hotel. I need to completely imprint the horror of my dick on her today.</p>
-<p>"Heeaaang♥ I love copying, let's do it again next time, Hubae-nim!! Haeueut!"</p>
-<p>That night, I sent Mimata Chieri to her climax several times with the shower room → bedroom course, but instead of the horror of my dick, I completely addicted her to this NTR play.</p>
-<p>-----</p>
-<p>Suzuki Chisami is happy</p>
-<p>Illustration of chest being pressed against glass.</p>
+<p>,"So, Ryuta-gun is really a Taira?"</p>
+<p>,"Yes. He's my cousin."</p>
+<p>During the meal, the topic of whether I was really a Taira came up, and when Kiyohira asked again as if to confirm, Arisu nodded and replied.</p>
+<p>,"Arisu-ssi seems too Caucasian to be from the Taira family...."</p>
+<p>,"Ah, I'm a quarter. My grandmother is American, and my mother married an American father."</p>
+<p>Arisu gently accepted the race question, which could be seen as rude. Arisu probably gets these questions often, so she didn't seem to think it was rude.</p>
+<p>,"Ah~ a quarter.... So Ryuta is also one-quarter American?"</p>
+<p>,"No, my grandmother is a different person. Olivia-nim, who is Arisu's grandmother, passed away, and Taira Shizuku-nim, who married after that, is my grandmother."</p>
+<p>,"Ah, the grandmothers are different. Thinking about it that way, you're less related than typical cousins, right?"</p>
+<p>Ah, is that so? Come to think of it, that's right. Usually, cousins have the same grandmother, so even though Arisu is a cousin, she's much less related than that.</p>
+<p>,"Well, I guess you believe me now?"</p>
+<p>,"Yeah, sorry. For doubting you."</p>
+<p>Well, even I wouldn't believe it if a friend from middle school suddenly said, "I'm actually from the S Group, lol," and "The Chairman is my grandfather, lol." Regardless of our conversation, Kagawa Umi and Arisu were chattering away happily. Knowing that Arisu was a young lady from the Taira family, Umi's eyes were filled with even more admiration.</p>
+<p>,"So, you're a young lady from the Taira Group, but you're working as a model?"</p>
+<p>,"The Taira family is my mother's side, so I'm not really treated like a young lady. I did get to join my aunt's agency, but I didn't receive any special treatment."</p>
+<p>Well, for an ordinary person, being able to join Taira Entertainment, Japan's largest agency, would be a huge privilege, but for Arisu, the daughter of Taron, a rising star in the United States, it was true that she hadn't received much. Moreover, Arisu said that even if she worked in Japan, there weren't many roles that a Caucasian could play, so she was worried. If it were Arisu's looks and talent, wouldn't it be more beneficial to join an American agency?</p>
+<p>,"What will Kazuhiro do if you go to America?"</p>
+<p>Arisu showed a slight sign of embarrassment at Kagawa Umi's continuous barrage of questions, so I asked Kagawa Umi a question to change the subject. Kagawa Umi had a slightly troubled expression at my question.</p>
+<p>,"I have school, so I don't know what to do. There's also a way to study abroad in the fourth year at an American university that's affiliated with Edo University.... I'm still thinking about it."</p>
+<p>Hmm, I see. It's a matter between the two of them, so there's nothing I can say. In my opinion, if Kazuhiro is in America and Kagawa Umi is in Japan, they'll break up quickly, but you never know what the future holds.</p>
+<p>,"Kazuhiro, which team are you thinking of transferring to?"</p>
+<p>,"I'm torn between New York City FC and LAFC."</p>
+<p>He's considering one team from the East and one from the West. At Kazuhiro's words, Arisu, who was born in New York, insisted that he come to New York City, and Kiyohira, who currently lives in LA, told him to come to LAFC.</p>
+<p>,"I definitely think you should come to New York, the center of the American economy!"</p>
+<p>,"Warm LA is the best, Sumikazu!"</p>
+<p>,"Um, I'm just thinking of going to the one that pays more...."</p>
+<p>In the end, the two's argument was meaningless. The conclusion was the place that pays more, as Kazuhiro said. According to Kazuhiro, this would be decided soon.</p>
+<p>,"Ah, and we're going on vacation to America in about four weeks?"</p>
+<p>I had decided to travel to America with Arisu on this vacation. Perhaps the American trip with Arisu would be the last part of my vacation.</p>
+<p>,"That's great. Let's meet up then. And see Rinka-nim too."</p>
+<p>,"I've completely entrusted the American itinerary to Arisu, so coordinate the schedule with Arisu."</p>
+<p>I had to see Fujigasaki Rinka, the martial arts master, once. I needed to learn more about Shinkaiya Tsude and spar with her to feel the power of the world's best martial artist.</p>
+<p>,"I'm going to Hollywood for work anyway, so I'll see you then."</p>
+<p>,"Just let me know the date and I'll prepare."</p>
+<p>,"I'll be in America around that time too, so I should meet up with you too."</p>
+<p>While the three of them were coordinating a date to meet, my phone vibrated and a Line message came. I took out my phone and checked it, and it was a message from Mimata Chieri.</p>
+<p>Cherry-chan🍒: A request has come in for East Weapon. I thought my Sunbae-nim should know.</p>
+<p>Hmm? Mimata Chieri usually handles East Weapon's work, so she doesn't need to notify me, but the fact that she sent me a Line message like this meant it was a big deal.</p>
+<p>Taira Ryuta: Yes, please tell me.</p>
+<p>Cherry-chan🍒: Nagumo Sian-nim wants to hire East Weapon. It seems like she wants to hire on a large scale. So I've scheduled a phone call with my Sunbae-nim.</p>
+<p>Taira Ryuta: I'll go to the East Weapon building after lunch.</p>
+<p>Cherry-chan🍒: Okay~!</p>
+<p>When I finished the Line message, everyone was looking at me. Have they never seen someone touch their phone before? Why is everyone looking at me?</p>
+<p>,"What is it?"</p>
+<p>,"You looked so serious."</p>
+<p>Kiyohira answered my question. No, I didn't have a serious expression. It was probably just a serious expression?</p>
+<p>,"No, I recently acquired a company. I heard that a request came in for that company, so I was thinking about it for a moment, and I guess my expression became serious."</p>
+<p>,"Oh, which company?"</p>
+<p>,"Do you get a lot of money because you're from the Taira family?"</p>
+<p>Kiyohira and Kazuhiro were surprised and asked when I said I had acquired a company. I had told Arisu in advance that I had made a lot of money from stocks and acquired a company, so she wasn't surprised.</p>
+<p>,"I acquired a PMC called East Weapon. And I didn't get much money from becoming a Taira. I bought the company with the money I made from stock investments."</p>
+<p>Kiyohira especially seemed to think that money just came out when you became a member of the Taira family, but the truth was that a guy like me without a daddy's boy didn't have many ways to get money. Aside from my salary, Taira Danjo-halbae occasionally gave me pocket money, but that was also close to a reward I received for contributing to preventing Jinildang's terrorism or catching Minamoto's spies, and I rarely received it without doing anything.</p>
+<p>,"East Weapon is a big company, right? You bought it with the money you made from stocks?"</p>
+<p>,"Hehehe, I'm the one who bought Health Miracle when it was less than $1."</p>
+<p>,"Ah, that's right! I didn't say thank you? Thank you. I became super rich thanks to you!"</p>
+<p>I introduced Health Miracle to Arisu after introducing it to Han Yu-gyeong, and Arisu said that she had put most of the money she had earned as a model into it. I think Han Yu-gyeong put in about 50 million won, but Arisu put in much more than that, so she must have made a lot of money.</p>
+<p>,"No, why didn't you introduce it to us?"</p>
+<p>,"I was introduced and put in about 1 million yen? The problem is that you were holed up in the American forest for training and couldn't be contacted."</p>
+<p>,"Ah, that's right. That's what happened.... I was in Yosemite National Park."</p>
+<p>When Kazuhiro said that he had also made money, Kiyohira seemed to lose all his energy at the thought that he had missed a great opportunity to make money. Well, this guy likes fighting more than money, so he'll regain his energy soon.</p>
+<p>,"So, I think I need to go to the company after lunch."</p>
+<p>,"Ah, is that so? Well, it can't be helped...."</p>
+<p>,"I can play with our Umi, hehe...."</p>
+<p>,"Aww~ why are you like this, hohoho."</p>
+<p>It seems like my friends are settled for now, and I opened my mouth to Arisu's ear.</p>
+<p>,"Arisu, I'll give you a tour of the company."</p>
+<p>,"Really? Hehe. I was disappointed because I thought we were breaking up so soon~!"</p>
+<p>Arisu was very happy at my words that I would give her a tour. If we had broken up so soon after meeting for the first time in a while, she probably would have been very sulky. And Kiyohira had a slightly disgusted expression as the couple was lovey-dovey on both sides.</p>
+<p>,"I should have brought my girlfriend from America too....."</p>
+<p>Kiyohira, who likes chubby women, seemed to have many women who fit his taste in America, where the obesity rate is high. So he happily continues to meet and change girlfriends. He says he has a girlfriend now, but when I saw the picture, he was dating a Caucasian woman who seemed pretty decent if she lost weight.</p>
+<p>We showed each other lovey-dovey gestures, such as feeding each other food, to make Kiyohira even more angry, and Kiyohira put down his spoon in the middle, as if he had lost his appetite.</p>
+<p>After many twists and turns, the meal ended, Kiyohira left to train, and Kazuhiro and Kagawa Umi disappeared into a street full of love hotels, exuding an obviously sticky atmosphere.</p>
+<p>We got into the car to go to the location of East Weapon's headquarters. Arisu, who was sitting next to me, opened her mouth.</p>
+<p>,"But who is Cherry-chan?"</p>
+<p>Hmm, she saw me using Line. What should I explain this as?</p>
+<p>,"Actually, she's the president of East Weapon. I don't have enough qualifications yet, so I don't have the qualifications to be president.... So my grandfather gave the position of president to the secretary he assigned, and I'm behind the scenes as an outside director."</p>
+<p>,"Really? I want to meet her in person."</p>
+<p>I feel strange because her tone is somehow cold? Are they going to fight? I felt a little uneasy and drove the car.</p>
+<p>East Weapon was located in Kawaguchi City, Saitama Prefecture, north of Tokyo, so I had to drive for at least 30 minutes. Arisu opened her mouth again and started chattering, as if she had never been cold.</p>
+<p>,"I've been more interested in singing lately, so I've been practicing often."</p>
+<p>,"Then will you sing a song for me?"</p>
+<p>Arisu started singing without being embarrassed by my request. She sang well in the karaoke room before, too. She was a born entertainer. I drove to East Weapon's headquarters while listening to Arisu's song.</p>
+<p>East Weapon's headquarters was a 10-story building. I parked in the parking lot and went into the building. To get a 10-story building at a cheap price, I would have had to raise the acquisition price three or four times if the former president's son's life wasn't in danger due to debt. There was quite a bit of debt secured by the building, but I could pay that money back at any time.</p>
+<p>,"Hello, Director-nim!"</p>
+<p>The employees greeted me as soon as they saw me, probably because Mimata Chieri had given them a lot of training with my picture. It's amazing that they recognize me even though it's my first time here today.</p>
+<p>,"The president is waiting for you."</p>
+<p>Following the employee's guidance, Arisu and I headed to the president's office on the 10th floor. The door opened, and Mimata Chieri, wearing a slightly more dignified suit than she did at the Human Resources Development Institute, was visible. Mimata Chieri smiled brightly when she saw me, then gave Arisu a slightly puzzled look.</p>
+<p>,"Hu, A... Director-nim?"</p>
+<p>,"Just speak normally, Sunbae-nim."</p>
+<p>Mimata Chieri, who was about to call me "Hubae-nim" but noticed Arisu's expression and called me "Director-nim," I told her to speak normally. The fact that Mimata Chieri is a senior at the Human Resources Development Institute is not something to hide. I'll just have to tell them why she calls me Hubae-nim and Sunbae-nim.</p>
+<p>,"Yes, Hubae-nim!"</p>
+<p>,"This is my cousin, Arisu."</p>
+<p>,"Hello. I am Mimata Chieri, who is leading East Weapon with 'full authority' from Taira Ryuta-nim."</p>
+<p>,"Yes, I am Arisu Fitzgerald, who cherishes Ryuta very much!"</p>
+<p>I felt like lightning struck between the two of them for a moment, but that must be my imagination?</p>
+<p>,"Huhu...!"</p>
+<p>,"Hu.hu.hu."</p>
+<p>,"Huhuhu...!"</p>
+<p>,"Hu.hu.hu.hu."</p>
+<p>What should I do now? I was sweating and just looking at the two women who were saying "huhu."</p>

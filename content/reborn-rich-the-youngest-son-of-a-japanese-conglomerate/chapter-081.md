@@ -5,87 +5,68 @@ weight = 81
 chapter = 81
 +++
 
-<p>,"Don't make loud noises."</p>
-<p>As I fondled her breasts, Koikawa Sachiko let out a moan, "Hnn...," then quickly covered her mouth. The way she widened her eyes and covered her mouth was quite cute.</p>
-<p>,"First kiss too?"</p>
-<p>,"Y-yes...."</p>
-<p>Not knowing if it was true or not, I grabbed Koikawa Sachiko's chin, lifted it, and kissed her. Her awkward tongue movements seemed to prove that it was indeed her first kiss. Koikawa Sachiko sucked on my lips and tongue as if possessed. Seemingly very pleased, she grabbed the back of my head with both hands and wouldn't let go.</p>
-<p>I let her kiss me as I unbuttoned Koikawa Sachiko's pants and lowered the zipper. Then, I helped her take off her pants by lifting each leg. Being from the volleyball club, her sleek and firm long legs were attractive.</p>
-<p>,"Your legs are pretty too."</p>
-<p>I forced myself to break the kiss and said, causing her face to flush. Since I couldn't go wild with so many people outside, I left her top on, pulled down her panties, and touched her pussy. Touching her already soaked pussy, wet enough to dampen the surrounding hair, made Koikawa Sachiko cover her mouth and tremble. She was desperately trying to suppress her moans. The more she did, the more I wanted to tease her, but I had to hold back today.</p>
-<p>Already wet enough, I decided to insert my dick into her virgin pussy without further foreplay. I had Koikawa Sachiko lean against the desk, her ass facing me. In other words, doggy style. The pulled-down panties were slightly in the way, so I took them off completely and thrust my dick in. I felt a sensation of something tearing as it went all the way to her cervix.</p>
-<p>,"Ugh..woo-oop!!"</p>
-<p>Koikawa Sachiko covered her mouth, enduring the pain. I waited for a moment, caressing her breasts and Clitoris, and her pussy relaxed again. I slowly rotated my hips, tormenting her vaginal walls and cervix.</p>
-<p>,"Hmm... hnn... ugh...hoo-ah.. Hap! Haa..."</p>
-<p>Koikawa Sachiko couldn't hold back her moans, but she still seemed to be trying her best. I rhythmically shook my hips, ravaging the inside of Koikawa Sachiko.</p>
-<p>,"Haa! Ah-ha! Hnn.... I can't, ah-ha, hold back my moans-! I'm going, kiss, kiss me!"</p>
-<p>I lifted Koikawa Sachiko's waist, turned her head, and kissed her. Koikawa Sachiko greedily moved her tongue.</p>
-<p>Now, the room was filled with vulgar kissing sounds instead of moans. The sounds were somewhat masked by the loud music I had turned on, but they were still audible enough inside the room.</p>
-<p>The room, filled with kissing sounds, the sounds of flesh colliding, and the meaningless music, eventually only echoed with panting breaths and the song after a dozen or so minutes.</p>
-<p>Tuk, tutuk!</p>
-<p>When I pulled out my dick, Semen clumped and fell from Koikawa Sachiko's pussy onto the floor. I grabbed Koikawa Sachiko by the armpits, who was about to collapse onto the floor from exhaustion, lifted her, and sat her on a chair. Then, I took out a wet wipe and wiped her pussy.</p>
-<p>,"Haa! Hnn!"</p>
-<p>Are you going again with just this? I took out a few more wet wipes, finished wiping her pussy, and used the mop that was leaning in the corner to clean up my Semen that had fallen on the floor.</p>
-<p>I also felt a bit languid, so I sat in a chair and leaned back for a moment. Soon, Koikawa Sachiko regained her senses.</p>
-<p>,"Was the consultation helpful?"</p>
-<p>,"I'm not sure yet. I think I need to receive it a few more times."</p>
-<p>I burst into a hearty laugh at Koikawa Sachiko's brazen words, her face flushed.</p>
-<p>,"Hahaha, I understand. Come visit me again for another consultation."</p>
-<p>,"Yes, I'll be going now."</p>
-<p>Koikawa Sachiko bowed to me and left the private office with unsteady steps. Hmm.... The room is filled with a lewd smell now, so I should open the window to ventilate it.</p>
-<p>Knock knock knock!</p>
-<p>,"Um.... Could I have a consultation too?"</p>
-<p>It seemed like I would have to postpone the ventilation for a bit.</p>
+<p>After bringing Shinoe Misano back to normal (?) with office sex, I had a lot to do to prepare for my trip to Korea. First, I figured I needed some money, so I decided to sell some of my Health Miracle stock, which had now risen to $800. Of course, I only sold a small portion. I'll dump it all when it hits a thousand.</p>
+<p>,This should be enough to last me a few days."</p>
+<p>I decided to make the Korea trip from Friday to Monday. When I told Yukiko-ssi, she seemed a little sad that I was suddenly going on a trip when we had planned to sleep together in the room on Friday, but she cheered up when I promised to keep loving her until I left for Korea.</p>
+<p>So, until I went to Korea this week, we decided to sleep together on weekdays, set an alarm, and I would get up alone before the housekeeper came and go to my room. It was only for two days, so I could put up with this much inconvenience.</p>
+<p>After subduing Shinoe Misano in front of my pussy in the office, Shinoe Misano, her sexual desire resolved, regained her spirits, and Yukiko-ssi was very happy when I hugged her gently every night. As expected, if a man is good at his nighttime duties, things get resolved well.</p>
+<p>LEVEL UP!</p>
+<p>Please select a trait.</p>
+<p>Was it because I worked hard to shake my hips for the peace of the office and the peace of the home? I finally leveled up. It took quite a while, even after having sex with 74 trillion people.</p>
+<p>Since the level cap was 20 unless I broke through the level limit, the level-up tempo was quite slow in MegaCorp's youngest son and its predecessor, TMC. And it seemed that combat gave more experience than sex.</p>
+<p>,Haa...! Is something good happening?"</p>
+<p>Yukiko-ssi, lying beneath me with her legs spread, asked, panting. She seemed curious as to why I was smiling while looking at the level-up window.</p>
+<p>Perhaps because I keep serving her every night, her face has been glowing lately, making her even more attractive. Is the effect of the Golden Pillar being exerted positively? I don't know.</p>
+<p>,It's because Yukiko-ssi is pretty."</p>
+<p>,Aang♡ Don't say things like that. I'll cum quickly♥"</p>
+<p>Yukiko-ssi had become much more affectionate lately. She really liked it when I said her name like this sometimes. It must have been quite difficult for someone this affectionate to put on airs of dignity when her son came. I'll put off leveling up and traits for later and serve Yukiko-ssi a little more.</p>
+<p>,Hyaang♥ Joaang~!"</p>
+<p>The room was filled with Yukiko-ssi's moans and lewd smells.</p>
 <p>###</p>
-<p>,'I should have just gone home.'</p>
-<p>Asako Ukie regretted it. Taira Ryuta-nim was letting them use the medium-sized bathhouse, but not using it together, so she shouldn't have stayed without going home just to see a man's face for a moment.... She felt like an unfilial daughter.</p>
-<p>Ebie Miyuka: Please come to this place by 2 PM after lunch~!</p>
-<p>A message from Ebie Miyuka, who was acting as the team leader, had arrived on LINE. Since there were trainees who didn't go home even on weekends, the cafeteria continued to operate, so there was no need to worry about meals. She just felt self-loathing for not going home because she was obsessed with a man.</p>
-<p>Asako Ukie went to the cafeteria alone. The menu was good. It was a Western-style set with a piece of steak, pasta, and soup. As expected of a large company, the meals were good. She received the food on a tray and was wondering where to sit when she saw a prince on one side!</p>
-<p>I have to act naturally without being too awkward. Asako Ukie made a resolution in her mind and headed to the seat where Taira Ryuta was having lunch.</p>
-<p>,"Hello, Mentor-nim!"</p>
-<p>She sat across from him and greeted him brightly. Taira Ryuta also widened his eyes for a moment and then smiled.</p>
-<p>,"Asako-ssi, are you coming to the bathhouse later?"</p>
-<p>,"Ah, yes. I decided to go."</p>
-<p>,"Certainly, the rooms only have showers, and the large bathhouse is a bit off-putting. The team members kept urging me so much.... I barely managed to ask my superior and borrow the medium-sized bathhouse."</p>
-<p>Taira Ryuta hadn't been with the company for long, but surprisingly, he seemed to know the situation of the trainees well.</p>
-<p>,"You seem to know the life of the trainees well?"</p>
-<p>,"I'm actually not from the education team, but from the education support team, so our team was in charge of preparing the accommodations, so I know everything that's in the dorms. I wasn't originally a mentor either, but the education team was short on staff, so they asked for support, and that's how I became a mentor."</p>
-<p>Ah, I see. Taira Ryuta might not have been a mentor.... The person who asked for support will be blessed! Asako Ukie silently expressed her gratitude to the unknown person who had asked for support and continued her conversation with Taira Ryuta.</p>
-<p>,"Now that the first week has passed, what are your impressions of the first week?"</p>
-<p>,"It's fun. The team members are all kind too."</p>
-<p>,"Ah, I thought so too. I heard that there are teams that are fighting. As a mentor, I'm really at a loss as to what to do if our team members fight."</p>
-<p>Asako Ukie felt like this situation was a dream. Not only was she eating with Taira Ryuta, whom she thought of as a prince, but she was even talking to him like this...! After the meal, they sat on a bench and had a cup of coffee from the vending machine. That coffee was the most delicious coffee Asako Ukie had ever had. Even the coffee from a barista who won the World Barista Championship wouldn't be this delicious.</p>
-<p>,"I have to prepare the bathhouse, so I'll be going now."</p>
-<p>,"Thank you for your hard work, Mentor-nim~!"</p>
-<p>After Taira Ryuta left, Asako Ukie returned to her room feeling like she was floating in the air. The time was.... One o'clock. There's still some time until two o'clock. Asako Ukie lay down on the bed and looked at her phone for a while.</p>
-<p>Then, without realizing it, she dozed off. Was it because she lay down right after eating?</p>
-<p>,"Ah, no!"</p>
-<p>The moment she opened her eyes, she felt like she was late and shot up! Looking at the time, it was 2:45 PM. She was late, but not that late yet. Asako Ukie packed her toiletries and ran to the building that Ebie Miyuka had told her about. Entering the bathhouse building, she could hear the sound of water and echoing voices, so she knew there were still people there. At least she could soak her body a little...! She let out a sigh of relief and opened the door to the bathhouse.</p>
-<p>She couldn't see well. The bathhouse was full of steam. As Asako Ukie pushed through the steam and approached the bath, she felt something different. It was because moans were mixed in with the women's voices.</p>
-<p>,"Hnn!! Haa!!"</p>
-<p>,"Ah, there, that's the spot!"</p>
-<p>This was.... Even though she was a virgin, she could tell this much. It was the sound of having sex. How...? She definitely came to the right place that Ebie Miyuka had told her about...?</p>
-<p>,'I have to leave this place!'</p>
-<p>The moment Asako Ukie was about to turn around, she heard the pleasant voice she had heard a few hours ago. It was the voice of the person she thought of as a prince.</p>
-<p>,"Asako-ssi? You're late."</p>
-<p>,"Mentor-nim...?"</p>
-<p>Walking through the steam a little more, she saw Taira Ryuta being serviced by three women on a waterbed-like structure.</p>
-<p>,"W-what is this...? I'll just leave."</p>
-<p>,"You were free to come in, but you can't leave now. Come here."</p>
-<p>Taira Ryuta smiled and gestured to Asako Ukie. But Asako Ukie shook her head.</p>
-<p>,"I, I can't do that."</p>
-<p>,"Touch that place once. It's wet, isn't it?"</p>
-<p>Wet? Without realizing it, Asako Ukie lowered her hand and touched her precious place. It was soaked with a slippery liquid. Since when...?</p>
-<p>,"Come here quickly."</p>
-<p>Taira Ryuta's words were like a spell. Asako Ukie slowly approached Taira Ryuta.</p>
-<p>###</p>
-<p>,"Hoo....!"</p>
-<p>It was the first time I had dealt with ten people. My legs were wobbly and my back was aching, but I wasn't too worried. Regeneration would take care of the recovery. I turned on the ventilation fan that I hadn't been using. The steam that had filled the bathhouse quickly disappeared.</p>
-<p>I didn't expect to clear all the team members in the first week. I'm a crazy bastard. I looked at the bottle that was standing in the corner, with about one-tenth of its contents remaining.</p>
-<p>Dionysus's Bath Bomb [Rare Consumable]: When added to bathwater, it improves marital harmony.</p>
-<p>In simple terms, it was an aphrodisiac to be added to bathwater. It didn't have a strong effect, but everyone had a crush on me, so it was a great success even without a strong effect. The excitement effect was present even in the steam, so I hadn't turned on the ventilation fan. I bought it on the black market, but I didn't expect to use it here.</p>
-<p>On the large waterbed that I had prepared an hour in advance, several women were sprawled out with ahegao expressions, and a few with good stamina were enjoying the warmth in the tub.</p>
-<p>,"Mentor-nim, come into the tub too~!"</p>
-<p>,"Hurry!"</p>
-<p>At the urging of the women in the tub, I pretended to be reluctant and went to the tub. I was looking forward to the remaining three weeks of training.</p>
+<p>Thankfully, Yukiko-ssi gave me business trip expenses under the guise of a Korean business trip without using my vacation days. As expected, she's a mom worth serving....</p>
+<p>I didn't have that much luggage. Just a change of clothes and toiletries. I have money, so I can buy anything I'm missing. I took the plane so comfortably. Still, since it was an overseas trip, there were quite a few things to prepare besides luggage, so I was busy and hadn't yet spent my level-up points and traits. I thought it would be enough to think about it while flying in the sky.</p>
+<p>LEVEL UP!</p>
+<p>Please select a trait.</p>
+<p>①Regeneration Trait Level Up ②Basic Summoning Magic ③Master of Shield Technique</p>
+<p>The only useful one was Regeneration Trait Level Up. Regeneration traits had risen a lot from being shot several times, so it wasn't a particularly attractive option. Also, Basic Summoning Magic wasn't a skill that could be used right away. Summoning magic had a strong randomness in the first summoning, and Basic Summoning Magic had low-grade summons, so it was a disappointing trait to choose even from the perspective of taking the summoning tree. Shield Technique was literally a trait that used shields, and in this world where firearms were rampant, it was nothing more or less than a one-time defensive technique.</p>
+<p>The [Potential Enhancement] option of the item [Yeouiju] can change the traits that can be selected by leveling up to random traits of a higher grade. Would you like to change it?</p>
+<p>Since only useless traits came out, I naturally used the Yeouiju's ability to reroll the traits.</p>
+<p>Please select a trait.</p>
+<p>①Back Tattoo [Tribute to the Abyss] ②Clairvoyance ③Saint of Fishing</p>
+<p>It had been a while since a tattoo-related trait came out, and this time a tattoo called Tribute to the Abyss, which I had never seen before, came out. It must have come out because of the related traits and skills like Shinkai Yatsude or various abyss and shadow-related things. The name was too ominous, so I decided not to choose it. Tribute? Is it something like offering yourself to the abyss? What's with this? Tribute to the Abyss is a pass.</p>
+<p>Next was Clairvoyance. Just looking at the name, it seemed like a lewd trait, but it was a trait that allowed you to see how many enemies were behind the wall and what they were doing in combat situations.</p>
+<p>Gamers who wanted to see through clothes vehemently protested, but MegaCorp's youngest son was a 15-year-old game, not a game for adults, so the Clairvoyance trait only applied to combat. Of course, later, if you chose the Clairvoyance trait, a God mode would come out that allowed you to see through clothes, but this was also hit with a ban by the game company and taken down from the game distribution platform, Steam Pack, so it became a mod that could only be obtained through dark routes.</p>
+<p>Clairvoyance didn't really appeal to me. After all, even without Clairvoyance, I could concentrate and know who was inside the building with the Senses of a Master, so it wasn't useful, and if I wanted to take off a woman's clothes, I could just seduce her.... I didn't really need it.</p>
+<p>The last one was Saint of Fishing. No matter how much of a master, expert, or saint you are, fishing was a bust. Damn it, this level-up is a failure.... Just as I sighed and was about to choose the better Clairvoyance, a semi-transparent window suddenly appeared in front of me.</p>
+<p>The Daughter of the Abyss intervenes and changes one of the trait lists.</p>
+<p>Please select a trait.</p>
+<p>①Magic Circle [Tribute to the Daughter of the Abyss] ②Clairvoyance ③Saint of Fishing</p>
+<p>What? It could be changed like this? I had played the game for so many hours, but this was the first time this had happened. Well, it's the first time I've met a being from another dimension that transcends humans, should I call it a god.... Isn't it? Me?</p>
+<p>Suddenly, my head hurt. But soon the headache disappeared. What's going on?</p>
+<p>I stopped thinking and chose the trait Magic Circle [Tribute to the Daughter of the Abyss], which the Daughter of the Abyss had intervened and changed. Then, a pain that was on a different level from just now rushed in. It felt like stabbing my brain with a knife. It felt like carving knowledge that humans shouldn't know into my head with a chisel. It was so painful that no screams came out of my mouth.</p>
+<p>I didn't want this pain, it's too painful, but I'm happy, new knowledge is filling my head, Daughter of the Abyss, what are you doing to me, I want to see you, I love you, I'm going into the water like this, my whole body is torn to shreds in the whirlpool....</p>
+<p>,Are you okay?"</p>
+<p>If the stewardess hadn't shaken me, I would have gone crazy. Fortunately, I came to my senses.</p>
+<p>,Ah, I suddenly had a headache. I'm fine now."</p>
+<p>,Are you sure?"</p>
+<p>The stewardess asked me with a suspicious expression. Why? I looked in the mirror because my eyes were wet, and I was crying. Crying blood, too. No wonder the stewardess is looking at me strangely. I took a tissue and wiped away the bloody tears.</p>
+<p>,It looks like the blood vessels burst as the intraocular pressure rose."</p>
+<p>I made an absurd excuse, but the stewardess nodded and just moved on. Thank goodness. If she had reported me as, Is this bastard a drug addict?, my trip to Korea would have been ruined.</p>
+<p>It seems like I survived this time because of the Yeouiju too. If it weren't for the Yeouiju's instant death prevention, I should have died instantly when I felt the pain of stabbing my brain with a knife earlier.</p>
+<p>You have learned the hidden unknown knowledge, Magic Circle [Tribute to the Daughter of the Abyss], and your Knowledge has increased by 2. Knowledge of the magic circle connected to the abyss has increased, and the Abyss has increased by 2. You have experienced pain that transcends the pain that humans can feel in an instant, and your Will has increased by 1 and Resistance has increased by 2.</p>
+<p>As much as the pain was extreme, a total of 7 stats increased just by learning it. In terms of stats alone, it was more effective than leveling up three times. Because the pain from earlier was so severe, I invested this level-up point 2 into Resistance as well.</p>
+<p>Resistance was a stat that resisted physical diseases and mutations, and also resisted impacts and pain, so I invested a little more in the hope that if something like this happened again, it wouldn't hurt as much.</p>
+<p>After struggling to come to my senses from the pain, I looked at the contents of the trait I had chosen, Magic Circle [Tribute to the Daughter of the Abyss].</p>
+<p>Magic Circle [Tribute to the Daughter of the Abyss] [Abyss Legendary Trait]: This is a magic circle that can offer tributes to the Daughter of the Abyss. If the Daughter of the Abyss likes the tribute, she will reward you.</p>
+<p>What is an Abyss Legendary Trait? It's a new classification? If you offer a tribute, she'll reward you if she likes it? I don't even know the Daughter of the Abyss's tastes.... And I don't even know what the reward is. This trait is full of unknowns and uncertainties.</p>
+<p>This level-up trait was a bust, just like I thought earlier. I was a little annoyed, so I sighed heavily, and then I heard an announcement that we had arrived in Korea.</p>
+<p>---</p>
+<p>After Status Change</p>
+<p>Physical</p>
+<p>Strength: 11 Agility: 7 Stamina: 11 Resistance: 11 Recovery: 10 Nerves: 11 Appearance: 16</p>
+<p>Mental</p>
+<p>Intelligence: 2 Knowledge: 4 Concentration: 3 Will: 16 Creativity: 2 Charm: 13 Judgment: 3</p>
+<p>Other</p>
+<p>Luck: 5 Abyss: 11</p>
+<p>Trait Added Magic Circle [Tribute to the Daughter of the Abyss]</p>
+<p>Skill Added Use Magic Circle</p>

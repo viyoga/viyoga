@@ -5,65 +5,81 @@ weight = 573
 chapter = 573
 +++
 
-<p>The morning at St. Francisco Girls' Academy began as if the chaos at the Naruse household the night before had never happened. When I arrived for the morning assembly, everyone was present except for Naruse Shiyo.</p>
-<p>"Shiyo-ppuyo isn't here again today? Is she really sick?"</p>
-<p>"Naruse will be taking a few days off. She's having the surgery she's been putting off."</p>
-<p>I had decided to tell Seizawa Shii that Naruse Shiyo was having surgery to adjust to her new body, so I told her just that. Of course, Seizawa Shii, Minamoto Risa, Shido Tsubaki, and Kujo Kina, who hadn't participated in the Naruse family battle yesterday, didn't know the truth and looked worried.</p>
-<p>"If she had the surgery sooner, our Shiyo-ppuyo wouldn't have suffered so much! The Naruse family is too much!"</p>
-<p>It was impolite to badmouth another family in a public setting, but the Naruse family had gone too far. They had done far worse than the kids knew, so they deserved the criticism.</p>
-<p>They had done something far worse than neglecting treatment; they had sealed a monster inside the girl's body. If Seizawa Shii knew the truth, she would probably curse them out.</p>
-<p>"The surgery will go well, so don't worry too much and let's work hard today."</p>
-<p>I reassured the worried students and returned to the teachers' lounge. I sat down and checked my smartphone, seeing that Sakagami Rena and Yukiko had sent me messages in the morning. I first checked Sakagami Rena's message, which seemed to have been sent before the assembly started.</p>
-<p>Sakagami Rena: Master, Naruse's fusion spell seems to have worked stably. According to Master's words, she will come out of the cocoon today.</p>
-<p>Hmm... That's a relief. I was so surprised when her flesh tore and red pieces flew out. Class would start soon, so I didn't reply and instead read the message from Yukiko.</p>
-<p>Yukiko: I was sad that I couldn't be with Ryuta last night. Shall we go on a date tomorrow after a long time?</p>
-<p>Yukiko: Photo</p>
-<p>Yukiko didn't have any particular information, she just contacted me to ask me out on a date. And she sent me a nude selfie as Takinogawa, which was quite arousing since it was a new form.</p>
-<p>Seeing that she wanted to go on a date tomorrow, it seemed I still had to keep an eye on Naruse Shiyo today. Still, I was really looking forward to the date after a long time, so I replied that I would.</p>
-<p>Taira Ryuta: Yes, let's meet tomorrow. By the way, did Naruse Koyou inherit all the shikigami?</p>
-<p>Yukiko: Yeah, he'll be busy adapting to them today. But I heard that a few monsters died and the contracts disappeared?</p>
-<p>Huh? Monsters died? I was sure I had carefully controlled my strength so no one would die... It seemed that a few monsters who fought Otagi Yuka, Alik, or Saionji Diana had died.</p>
-<p>Taira Ryuta: Maybe someone else couldn't control their strength. But it can't be helped that unwanted deaths occur when battles break out.</p>
-<p>Yukiko: That's right. The Naruse family seems to understand that it can't be helped.</p>
-<p>I'm glad they understand. Surely they wouldn't ask us to compensate them, they just seemed a little disappointed.</p>
-<p>I finished talking with Yukiko and, with some free time, I started studying for the PMC certification exam. I had class today, but I had prepared in advance, so I didn't have anything else to do. At other schools, I would have to look into the universities the kids would be attending, but most of the students already had their futures decided by their families.</p>
-<p>Except for the few who decided to follow me, most would go to the universities designated by their families or St. Francisco Women's University, so I was very relaxed for a homeroom teacher of third-year students. That's why I had time to study for the PMC certification exam.</p>
-<p>If my intelligence stat was still 2, I wouldn't have even tried, but it was now a manageable 8, so I was steadily preparing.</p>
-<p>Most of those taking the PMC certification exam were high-ranking people who wanted to have their own military force or their children, so the difficulty wasn't that high. Of course, it wasn't easy either, since it was a PMC that the country allowed to have practical military force.</p>
-<p>In addition, it was very difficult to actually establish a PMC due to the complicated additional certifications, expensive registration fees, labor costs, and equipment costs. Many small and medium-sized enterprises tried to establish a PMC but failed even after obtaining the certification.</p>
-<p>Of course, even higher-ranking people who didn't have time to get the certification used a recommendation system that catered to the upper class, obtaining the PMC certification without studying at all.</p>
-<p>I asked Grandpa Danjo to recommend me, but he said, "If I recommend you, your uncles will kill you, you know?" So I was satisfied with having Mimata Chieri, who had already obtained the certification, as my secretary.</p>
-<p>After that, things went well, and I put Seryu Military Company under my control. Mimata Chieri took over the struggling East Weapon, the largest company in Japan in terms of troop size, and acquired it, bringing us to where we are now. I wanted to add another PMC, but I didn't have any certifications left, so I had to get one this time.</p>
-<p>With three PMCs and Dangsohwa's Ryuto Construction, I would have enough military power to jump into the Tairaga Group's succession war. The rest was a problem, but I thought it would be taken care of over time. There were many things I was preparing, such as TG Tech and Hatake Group.</p>
-<p>As I was studying for the PMC certification, it was soon time for Korean class. I taught Korean to the female students who were especially sparkling at me, and before I knew it, it was time to finish school.</p>
-<p>"Ryuta-cchi! You have to participate in the club today!"</p>
-<p>"Okay."</p>
-<p>I wanted to study a little more, but I had to skip club activities if I wanted to go on a date with Yukiko tomorrow, so I had to attend today. If I skipped three days in a row, the kids would be upset, so I had to participate today.</p>
-<p>The Date Experience Club members were currently writing a collection of date experiences to be released at the festival.</p>
-<p>St. Francisco Girls' Academy's festival was uniquely held around the same time as Christmas, so it was called the Holy Day Festival (聖日祭). It was an event that had existed since St. Francisco Girls' Academy was a Christian mission school and had been going on for over a hundred years, continuing the tradition.</p>
-<p>As expected of a festival held by daughters of prestigious families, the quality was quite high with all the money poured into it. So I wondered if a collection of writings would sell compared to club activities like cafes, simple restaurants, or haunted houses, but seeing Minamoto Risa's confident expression, it seemed like she had a solution.</p>
-<p>What I did here was to look over the contents of the collection written by the students. Most of the date experiences of the Date Experience Club were with me, so it was a review process to check if anything was different from my memory.</p>
-<p>"Sensei-nim~! Please look at this~!"</p>
-<p>Konoe Akina, who was waiting her turn, showed me her handwritten date experience. Most of the students showed me their date experiences, reminiscing about their feelings at the time and being happy.</p>
-<p>Looking at it now, my role was to add to the students' happy feelings by saying, "That's how it was back then~," raising their morale. I didn't mind doing anything if the students were happy, but... was this really necessary?</p>
-<p>As I was talking with the club students, the clubroom door slid open and Taira Kanna and a few student council members came in. Taira Kanna saw me sitting down, made her eyes into crescent moons, smiled, and greeted me.</p>
-<p>"Hello, Yamashiro-sensei."</p>
-<p>"Yeah, what's up, student council president?</p>
-<p>The student council was very busy preparing for the school trip in mid-November even after the sports festival, and the same was true for Taira Kanna, the student council president. I was curious why she came to our clubroom during such a busy time, so I asked.</p>
-<p>"I came to give you the prize for the sports festival."</p>
-<p>Wasn't the prize for the sports festival a day off? Was there another prize? At my question, Taira Kanna smiled and held out her hand to the side. Then, the secretary next to her took out an envelope and placed it on Taira Kanna's outstretched hand.</p>
-<p>"There was a prize, wasn't there? Here's the prize money for the best class."</p>
-<p>"Ah, prize money? Thanks."</p>
-<p>I seemed to have heard about the prize money. I vaguely glossed over it back then and forgot about it. So I didn't remember how much the prize money was.</p>
-<p>"It's a small amount, but it's still money. There were several procedures, so it was a little late. Please sign here to acknowledge receipt of the prize money."</p>
-<p>I signed another paper that Taira Kanna handed me. It was a paper that said "Prize Money Receipt," and the prize money was one, ten, hundred, thousand, ten thousand... one million yen? Student council president, you said it was a small amount? Of course, from Taira Kanna's point of view as the daughter of the Tairaga family, one million yen wouldn't be a large sum.</p>
-<p>"I have your signature, ora... no, Yamashiro-sensei. Please stop by the student council room from time to time."</p>
-<p>She was about to say "older brother," wasn't she? Taira Kanna gave a faint smile, glanced at the students, turned around, and left the clubroom. As soon as Taira Kanna left, all the students rushed towards me, who was holding the prize money envelope.</p>
-<p>"How much is the prize money, Ryuta-cchi? Let's fill our clubroom with something with the prize money~☆"</p>
-<p>"I'd like a high-end antique dressing table."</p>
-<p>"Rather than that...!"</p>
-<p>"I'd like to increase the cooking utensils?"</p>
-<p>Before I knew it, the students had abandoned writing the collection and were all discussing what to do with the prize money. After a long discussion, they decided to buy a sticker photo booth and a high-end camera. Everyone nodded and agreed as if they had made a promise when Minamoto Risa said it was for the success of the collection.</p>
-<p>What are they going to do with the camera? I was getting a little scared.</p>
-<p>------------</p>
-<p>Takinogawa B-cut</p>
+<p>"Hheu-hik...!"</p>
+<p>With a single headshot, the goons around who witnessed their comrade's head explode like a watermelon were startled. They desperately fired the pistols in their hands at me, but the pistol bullets bounced off the cyber suit I Yeon-ju-ssi had prepared, only sparks flying.</p>
+<p>I swept through the surroundings like a storm, and Han Yu-gyeong-yang also threw throwing daggers, summoning Nero, White Bear, and Teddy to unleash them among the enemies.</p>
+<p>The enemies' confusion grew irrecoverably when large beasts were suddenly summoned before their eyes. Nero was a shadow demon, and White Bear and Teddy were spirit-type summons, so they had considerable resistance to physical attacks and could withstand ordinary bullets.</p>
+<p>"What are these monsters!"</p>
+<p>"Kill them!!"</p>
+<p>Thanks to Han Yu-gyeong-yang's summons drawing attention, the Vanguard Black Team agents, led by I Yeon-ju-ssi who entered through the main gate, began to reorganize their ranks and perform.</p>
+<p>In particular, I Yeon-ju-ssi was wearing a cyberpunk-style, tight-fitting battle suit and running at high speed, firing specially made nail guns mounted on her wrists, melting enemies in an instant, which was quite impressive.</p>
+<p>In fact, I had acquired Vanguard several times even in MegaCorp's youngest son, so I knew I Yeon-ju-ssi's abilities well. Due to the nature of the nail gun, the firepower was not very high, but the evasion rate and critical hit rate were high, so she could perform tremendously well in small-scale skirmishes like this.</p>
+<p>The lacking firepower could be sufficiently supplemented by making a few grenades and nail gun-specific bullets for firepower alone, so she was a useful character that could be used until the end. Since some of the TG Tech development team were already developing I Yeon-ju-ssi-specific bullets, firepower replenishment seemed to be happening sooner than in the game.</p>
+<p>"You bastards!!!"</p>
+<p>Jeon Yong-cheol shouted in anger, watching the Yongcheol Faction's members being swept away despite being numerically superior. Kuaaa! Unable to control his anger, he tore off the suit jacket he was wearing, revealing his entire body made of shiny chrome-colored metal.</p>
+<p>In fact, Jeon Yong-cheol was supposed to be a boss role showing how strong cyber implants were in the early stages, but due to Han Yu-gyeong-yang getting entangled with the BS Group, he was being faced a little late. Perhaps that's why he seemed to have even more cyber equipment attached. He looked slightly different from what I remembered. Originally, he should have been wearing slightly gray metal armor, but it was shiny chrome-like armor... that's a bit ominous?</p>
+<p>Each piece of that equipment looked incredibly expensive, and it seemed he was investing all the money he earned into his body. He should upgrade his subordinates' equipment instead. No matter how many people there are, giving them only pistols or submachine guns and making them fight against the Vanguard's elite Black Team is why they're being massacred like this.</p>
+<p>"Die!"</p>
+<p>Jeon Yong-cheol shouted and began to fire small rocket missiles indiscriminately from his shoulders, as if he didn't care what happened to his subordinates.</p>
+<p>I instantly deployed two telekinetic reaction shields to protect Han Yu-gyeong-yang and I Yeon-ju-ssi. It was the first time deploying two at the same time, and I felt my mental strength rapidly depleting, so it seemed to require considerable skill.</p>
+<p>Kwakwakwakwang!</p>
+<p>With the explosion of the small rocket missiles, the club building itself shook. The club's dazzling lights shattered along with the large glass windows, and moonlight entered with the outside air.</p>
+<p>Although the lights went out, the scene inside was visible due to the moonlight. Most of the Yongcheol Faction's members were collapsed and writhing from the explosion, and the Vanguard Black Team quickly found cover and avoided the blast, so it seemed that no one was injured or killed except for a few.</p>
+<p>Of course, Han Yu-gyeong-yang and I Yeon-ju-ssi, whom I protected, were fine. I Yeon-ju-ssi was a given, and Han Yu-gyeong-yang also had a shield skill, so she looked perfectly fine, not even a speck of dust on her, thanks to the two layers of shields.</p>
+<p>"Are you alright?"</p>
+<p>I Yeon-ju-ssi, who noticed that I had put up a shield, asked. Hmm... The cyber suit on the upper body was blown off by the explosion of the rocket missile, but there were no injuries. Even if I was slightly injured by shrapnel, the wounds would be immediately healed by regeneration, so I looked fine. Still, the helmet was protected by the Abyss, so it was intact.</p>
+<p>"T, you look so sexy with just your upper body exposed."</p>
+<p>Han Yu-gyeong-yang looked at me, blushing slightly. She couldn't say my name in front of others, so she decided to call me by the code name T. It was simply taken from the T in TG Tech.</p>
+<p>It might look sexy in Han Yu-gyeong-yang's eyes, but in reality, I was wearing a helmet, shirtless, and wearing a cyber suit on the bottom, looking like a muscular pervert.</p>
+<p>"I'm fine, so let's take care of Jeon Yong-cheol quickly."</p>
+<p>Thanks to Jeon Yong-cheol killing his own subordinates, the troublesome work was reduced. Rather, it became an easy situation where we only had to catch one person.</p>
+<p>"I'll try using the prototype bullets from the lab."</p>
+<p>I Yeon-ju-ssi said, replacing the nail cartridges of the nail guns mounted on both wrists. Prototype bullets already came out? I didn't know that.</p>
+<p>"These bitches are talking as if I don't even exist!"</p>
+<p>Jeon Yong-cheol shouted in anger as we were talking among ourselves. He had a right to be pissed. One was saying I looked sexy, and the other was saying to take care of him quickly as if it was nothing, so it would have been strange if Jeon Yong-cheol wasn't angry.</p>
+<p>Enraged, Jeon Yong-cheol charged at I Yeon-ju-ssi, who was standing closest. He must have had cyber implants in the part hidden by his pants, as the floor he was standing on collapsed, and he approached I Yeon-ju-ssi at tremendous speed.</p>
+<p>I Yeon-ju-ssi calmly fired the nail gun at the oncoming Jeon Yong-cheol and kicked off the nearby club pillar, jumping up.</p>
+<p>Kwaaang!</p>
+<p>When Jeon Yong-cheol swung his fist, the club pillar where I Yeon-ju-ssi had been standing shattered. I Yeon-ju-ssi was safe because she had already kicked off the pillar and jumped over Jeon Yong-cheol. The nails fired by I Yeon-ju-ssi were embedded in Jeon Yong-cheol's body, but they quickly fell to the floor, as if they weren't deeply embedded.</p>
+<p>I don't know if it's because it's still a prototype, so the proper power isn't coming out, or if Jeon Yong-cheol's armor is tough. Still, the nail gun has basic damage, so if it's not even sticking, it seems he has armor that can ignore even the damage of rifle bullets.</p>
+<p>Perhaps gaining more confidence because I Yeon-ju-ssi's attack didn't work on him, he now aimed for the Vanguard agent and charged. As expected, he charged at tremendous speed, so the Vanguard agent was instantly caught in Jeon Yong-cheol's grasp.</p>
+<p>"Hehehe! I'll kill you one by one like this, painfully!"</p>
+<p>Jeon Yong-cheol began to slowly apply force to his hand like an industrial press. Hmm... I was deliberately staying still to give Han Yu-gyeong-yang or I Yeon-ju-ssi experience, but I have to save my comrade. Vanguard Black Team agents were elites, so it wasn't easy to train them. It would be better to save him than to stand by idly.</p>
+<p>I was about to run while exerting telekinesis to suppress his hand from tightening further, when Han Yu-gyeong-yang fired a starlight beam, hitting Jeon Yong-cheol's wrist.</p>
+<p>"Keueu! So you're one of the psychics who's been a hot topic these days."</p>
+<p>Jeon Yong-cheol, who dropped the Vanguard agent, must have targeted Han Yu-gyeong-yang this time, as he was fired like a cannonball again. Han Yu-gyeong-yang didn't avoid it and floated a blue orb, firing it at Jeon Yong-cheol.</p>
+<p>Kwangkwangkwang!</p>
+<p>He was hit by three orbs in a row, but Jeon Yong-cheol's steel skin was fine except for being slightly melted. Han Yu-gyeong-yang's star magic melts even people like butter, but he's this fine, how much money did he pour into cyber implants?</p>
+<p>"Khahaha! As expected, mithril alloy is the best!"</p>
+<p>Crazy! He covered his entire body in mithril? One mithril bullet costs tens of thousands of won, so I can't even calculate how much money he would need to cover his whole body. Could the reason Jeon Yong-cheol is trying to take over all of Seoul be to completely remodel his body with mithril or rare metals?</p>
+<p>Jeon Yong-cheol, who had become much stronger than I had anticipated, had become a considerably difficult enemy. Although the orb magic didn't work, Han Yu-gyeong-yang wasn't flustered.</p>
+<p>She continued to fire orbs, dodging and observing Jeon Yong-cheol's reactions. I Yeon-ju-ssi must have couldn't bear to see her boss being attacked, as she circled around Jeon Yong-cheol, firing the nail gun and interfering.</p>
+<p>"He's blocking his head."</p>
+<p>Han Yu-gyeong-yang muttered dryly. As Han Yu-gyeong-yang said, he almost ignored attacks coming at his body, but he crossed both hands to block all attacks coming at his head. With that level of modification, he must have had surgery to insert steel plates under the skin of his face, so he could block some damage, but it seemed he couldn't block Han Yu-gyeong-yang's orb magic.</p>
+<p>"Yeon-ju!"</p>
+<p>Han Yu-gyeong-yang suddenly called I Yeon-ju-ssi. The two acted simultaneously as if they were of one mind. Han Yu-gyeong-yang fired the orb she had floated in advance at Jeon Yong-cheol's face and chanted a new spell.</p>
+<p>Starlight permeated I Yeon-ju-ssi's nail cartridge. It was Starlight Tempering, the most basic magic of Han Yu-gyeong-yang's star magic. It had the effect of amplifying the damage of weapons and projectiles, and it seemed she was trying to bet on I Yeon-ju-ssi's prototype nails once again.</p>
+<p>Deureureuk!</p>
+<p>The engine of the nail gun mounted on her wrist spun, firing prototype nails like a waterfall. Unlike before, where they only stuck at the end and fell off, they began to stick into Jeon Yong-cheol's body with a thud.</p>
+<p>Dozens of nails were embedded in his body, and those embedded nails caused a chain explosion.</p>
+<p>Kwakwakwang!</p>
+<p>"Kuaaaa!"</p>
+<p>Jeon Yong-cheol, who had his entire body covered in cyber implants and shouldn't have felt pain, let out a scream amidst the explosions. Everyone was relieved at Jeon Yong-cheol's scream, but Jeon Yong-cheol broke through the black smoke and grabbed I Yeon-ju-ssi.</p>
+<p>"Hehehe, it was quite dangerous, but my head is still intact."</p>
+<p>Half of Jeon Yong-cheol's skin was melted, revealing his steel skeleton, as if he were in a Terminator movie. The nail gun was effective, as there were cracks in his head, but as Jeon Yong-cheol said, it seemed 'still' intact.</p>
+<p>"First, this dangerous toy..."</p>
+<p>Ppudeudeuk!</p>
+<p>Jeon Yong-cheol crushed the nail gun that I Yeon-ju-ssi was wearing on her wrist. Blood dripped as the nail gun broke and I Yeon-ju-ssi's wrist was injured, but I Yeon-ju-ssi bit her lip and didn't make a single groan.</p>
+<p>"Since your wrist is already injured, I'll just get rid of it altogether."</p>
+<p>It was when Jeon Yong-cheol was about to put more force into the hand holding her wrist, wearing a triumphant expression.</p>
+<p>Jeon Yong-cheol's head exploded.</p>
+<p>Tang!</p>
+<p>The gunshot was heard later than Jeon Yong-cheol's head exploding, so it seemed she used a supersonic bullet.</p>
+<p>-I ran around a lot because I thought if I shot as usual and penetrated the wall, the power would be reduced and I wouldn't be able to kill him.</p>
+<p>It was Yang Seol-hui-ssi. Everyone knew that Yang Seol-hui-ssi was aiming for the broken part of Jeon Yong-cheol's head, so they stayed still even though I Yeon-ju-ssi was caught. Yang Seol-hui-ssi quickly moved to find an angle to shoot, and as soon as she was ready, she shot immediately.</p>
+<p>-----</p>
+<p>I Yeon-ju</p>
+<p>It's not a lewd outfit. It's a combat uniform.</p>
+<p>Glasses VER.</p>
+<p>Extremely high defense style</p>
+<p>It's a combat uniform.</p>

@@ -5,80 +5,68 @@ weight = 505
 chapter = 505
 +++
 
-<p>"It seems that Toyotaka's faction and the Minamoto side are indeed intertwined, just as Terue-nim said."</p>
-<p>At the secretary's words, Daigo Tadanori, the acting head of the Daigo family, wore a serious expression. Until now, he had always had the upper hand in the power struggle with the Toyotaka faction, but if Toyotaka had joined forces with Minamoto, it was no ordinary matter.</p>
-<p>"He's overdoing it."</p>
-<p>For Toyotaka, who was not a mainstream member of the Daigo family, to join hands with Minamoto meant that he had given or promised a considerable price. Since he had nothing to give right now, he must have promised to give up a significant portion of the Daigo family's profits in the future when they took control of the Daigo family.</p>
-<p>To think they're trampling on the family's future themselves just to seize power now... Daigo Tadanori was furious. As the acting head of the Daigo family, he was almost certain to be the next head. If his father, Daigo Hisagoro, who was battling illness, passed away, he would become the head, an irreversible situation.</p>
-<p>But even in that situation, he borrowed the power of another family to try to overturn it, so it was only natural that Daigo Tadanori was angry.</p>
-<p>"In the end, we have no choice but to borrow the power of foreign forces as well."</p>
-<p>"If the opponent is Minamoto, then the side we should borrow power from is... Tairaga, perhaps?"</p>
-<p>The secretary asked at Daigo Tadanori's words. But Daigo Tadanori shook his head.</p>
-<p>"We can't handle either Minamoto or Tairaga. In the first place, our power is much greater than that Toyotaka bastard's side, so even if Minamoto is attached to that side, we don't need to borrow the power of a giant family like Tairaga. We can borrow power from a moderate force."</p>
-<p>Daigo Tadanori was saying that he wouldn't bring in the burdensome Tairaga because the power difference between the original Tadanori faction and the Toyotaka faction was already large.</p>
-<p>"And..."</p>
-<p>Daigo Tadanori smiled.</p>
-<p>"Tairaga is always on the opposite side of Minamoto in these kinds of incidents. Even if we don't necessarily borrow the power of Tairaga."</p>
-<p>If the Toyotaka faction, which borrowed the power of Minamoto, wins in this fight between the Tadanori faction and the Toyotaka faction, Tairaga will eventually suffer losses in the long run. So, even if Tadanori doesn't borrow power, Tairaga will lend power on their own.</p>
-<p>Daigo Tadanori was using his head well. If you add Tadanori, a third force, and Tairaga, who will participate as they please to hinder Minamoto, even if the Toyotaka faction borrows the power of Minamoto, they will be able to overwhelm them.</p>
-<p>"First, let's try to find a force we can borrow power from. The forces within the academy might be surprisingly good. Because the students and parents will be most interested."</p>
-<p>"If it's a force within the academy..."</p>
-<p>"To spread it widely, we can hand over the data to that kid from the Shido family."</p>
-<p>"If the opponent is Minamoto, won't they refuse?"</p>
-<p>"Tell them to post it as an anonymous article. Tell them not to worry because we'll take care of the work on our side once they release the article."</p>
-<p>"I will prepare the data, Acting Head-nim...!"</p>
-<p>Daigo Tadanori and his secretary busily began preparing to find a force to join hands with.</p>
-<p>###</p>
-<p>"Welcome~! You're right on time?"</p>
-<p>Eve greeted us with her usual attitude. Saionji Diana and I also greeted Eve and entered the basement of the Miyashi Amasang branch, a love hotel.</p>
-<p>"It's been a while, Eve."</p>
-<p>"Hello, Eve."</p>
-<p>When I greeted Eve, Saionji Diana also greeted her. Saionji Diana seemed to have become close to Eve while getting cyber implants on her arms and legs, and treated her comfortably. You have to acknowledge Eve's sociability.</p>
-<p>"I heard, Diana's grades have gone up a lot, so Ryuta-nim is going to give her a present, right?"</p>
-<p>"Yes, her grades have gone up a lot."</p>
-<p>Eve, who already knew the situation roughly, said with a smile, so I nodded. Her grades last time weren't very good, so they went up a lot, but Saionji Diana also worked quite hard this time. If you look at the fact that her score has risen more than her usual grades in her second year, not just her bad grades last semester.</p>
-<p>"The teacher encouraged the study group, so that's why."</p>
-<p>Saionji Diana said, twisting her body slightly as if she was embarrassed by the compliment.</p>
-<p>"Then, about the parts. What Diana was worried about was this endurance and destructive power..."</p>
-<p>"Ah, I've been thinking about it, and I've decided to prepare two separately, one for everyday use and one for combat."</p>
-<p>"Really?"</p>
-<p>Eve clapped her hands and was very happy at my words. Eve liked doing all sorts of development, so it seemed natural that she was happy.</p>
-<p>"I didn't think about separating combat and everyday use. Then, for the combat limbs, we can remove the special synthetic silicone that creates the skin texture and increase the volume even more. If we do that, we can increase the simple output by more than 1.67 times!!"</p>
-<p>Eve was very happy that she was going to make new ones for combat because the performance degradation was quite severe due to covering the arms and legs with special silicone that looked like human skin. Eve was very excited and talking about what she could do, probably because she could do new development.</p>
-<p>"I think we can add several other functions besides the output as the volume increases. Since Diana is a swordsman, we can install a missile launcher that can attack from a distance, or simply attach a module that can fire bullets..."</p>
-<p>Eve was telling a very interesting story. She could fight with a sword and fire a rocket launcher at the same time, so she could make up for Saionji Diana's weakness as a close-range character.</p>
-<p>"Or how about this?"</p>
-<p>While Eve was getting excited while talking about ideas, I started talking about the abilities of various cyber implants I had seen in the game. In particular, I explained the functions of Cyborg Samurai Reito, one of the swordsmen called the Future Three Swordsmen.</p>
-<p>"Ah, that function also sounds interesting! Then, from the function that Ryuta-nim told me, a little more..."</p>
-<p>I smiled with satisfaction at Eve, who was giving her opinion on improving the function I had told her. At this rate, one of the future three swordsmen might be Saionji Diana instead of Reito. Or maybe she'll become a four swordsman... Ah, if you include Alik, will she become a five swordsman?</p>
-<p>Eve excitedly displayed Saionji Diana's appearance in a hologram, displaying the appearance of wearing the parts on her arms and legs in advance and explaining the functions.</p>
-<p>"I think we can improve the weapons a little bit besides the cyber implants on the arms and legs, but how about this? If you make an acceleration device in the scabbard that assists with the quick draw technique, you can increase the attack power even more."</p>
-<p>Besides cyber implants, I also gave advice on the equipment that Saionji Diana would wear. If the scabbard isn’t just a scabbard, but also includes a device that can assist with the quick draw technique, which is one of the sword techniques, her attack power will increase even more. In fact, Saionji Diana had the ability to unleash a sword wind at the same time as a quick draw using the Kamaitachi trait and the Wind Art technique, so if the quick draw technique were further enhanced, her attack power would grow significantly.</p>
-<p>"Ah, that's good. If the scabbard assists with the quick draw technique, I'll be able to use a new technique."</p>
-<p>Saionji Diana also nodded, agreeing with my idea. She seemed interested when the story about swordsmanship came up. As expected, Saionji Diana was also crazy about martial arts, although she didn't show it as much as Kujo Kina.</p>
-<p>"Then, more budget will be needed for the development side. Of course, if we do this research, our TG Tech's overall technology will improve and we can add functions to related equipment, so we can get enough research funds."</p>
-<p>"How much will it cost?</p>
-<p>"There are quite a few things that need research among the ideas that Ryuta-nim mentioned, so the initial development research funds will need about 323.4 million yen."</p>
-<p>Saionji Diana seemed very surprised at Eve's words. She just came to receive parts as a gift, but it was a natural reaction to suddenly hear about 323.4 million yen. By the way, she's a super high-performance AI, so she's saying the price in great detail. Other companies would have much more expensive research costs, but Eve doesn't need labor costs and does research very quickly with calculations, so it must have been reduced that much.</p>
-<p>"I understand. For now, let's round it up and make the budget 400 million yen."</p>
-<p>I still have most of the four million dollars, 5 billion won, that I got from the United States, so even if I use this for research expenses, I'll still have 100 million yen left. I think I can do these kinds of missions from time to time.</p>
-<p>"I'll support this research fund."</p>
-<p>"Not with company money?"</p>
-<p>Eve asked as if she was wondering, but TG Tech's main business wasn't cyber implants, and it was research that I was doing at my request, so I said I would do it with my own money because the other research funds that the company was doing might be reduced, so Eve agreed with my words.</p>
-<p>"I think it's okay because it's linked to the power suit business... If Ryuta-nim thinks so, I understand."</p>
-<p>Eve nodded, then turned her body and smiled at Saionji Diana. There seemed to be some meaning in Eve's smile, but I couldn't know what that meaning was yet.</p>
-<p>"Diana, Ryuta-nim invested 400 million yen for Diana, so you're grateful, right?"</p>
-<p>"Yes, 400 million... The amount is so large that I don't know how to repay it."</p>
-<p>The two who had a conversation, Eve looked at me and smiled lewdly. Saionji Diana's face turned red. Looking at the two of them, it seemed that they had already talked about something in advance.</p>
-<p>"If you can't repay it with other things, then how about repaying Ryuta-nim with your body?"</p>
-<p>"E, Eve, what are you talking about?!"</p>
-<p>I asked as if shouting at Eve's sudden words. Repay with my body, what am I, a debtor...? But unlike my reaction, Saionji Diana nodded with a shy expression.</p>
-<p>"Teacher, please let me repay the debt. It's not something I'm forced to do, it's something I want to do."</p>
-<p>If I were to explain this, it would be like a female student in my class begging me, please have sex with me because I want to. It seemed that Eve and Saionji Diana had planned it in advance, and it was a plan to make me repay them with my body no matter what.</p>
-<p>Rather, my idea of making new combat arms seemed to make their idea more persuasive. Oh my, you invested 1 billion yen for me, please let me express my gratitude with my body! That's how it became.</p>
-<p>"Diana just wants to have a deeper relationship with Ryuta-nim."</p>
-<p>When I looked at Eve, Eve winked and said. I can't refuse when they're going this far. I nodded.</p>
-<p>----</p>
-<p>Combat Cyber Implant Diana!</p>
-<p>Hologram Diana</p>
-<p>I need to practice cyber implants a little more hehe</p>
+<p>"Kurayamada-sensei's teaching internship is over, so today will be her last day until this morning."</p>
+<p>Morning assembly. I informed the students of Kurayamada Kirie's resignation.</p>
+<p>"Kirie-chan, we'll miss you~!!"</p>
+<p>"We'll miss you, sensei."</p>
+<p>"Thank you for your hard work~!"</p>
+<p>The students each expressed their regret over Kurayamada Kirie's departure. Kurayamada Kirie is usually so taciturn. Seeing them so sad, it seems she took good care of the students in her own way. She even stepped up to save the students during the academy terror attack, so they must like her even more.</p>
+<p>I watched Kurayamada Kirie and the students talking with a slightly pleased expression. Whatever their personalities, they were all beautiful women, so the scene of them talking was quite picturesque. Everyone expressed their regret, but no students were crying. They're sad, but not close enough to cry, huh?</p>
+<p>The conversation between Kurayamada Kirie and the students didn't end until the class bell rang. After the bell rang, I dragged Kurayamada Kirie back to the education preparation room with me.</p>
+<p>"Did you submit your resignation properly?"</p>
+<p>"Yes, the Director-nim's eyes weren't very welcoming because she knew I had one foot in the Toyotaka faction, but she knew there wasn't much a teaching intern could do, so she didn't interrogate me. Instead, she decided that I would only work until this morning. I have to do the minimum handover, after all."</p>
+<p>Listening to the story, it didn't seem like Daigo Terue had said anything in particular to Kurayamada Kirie. Kurayamada Kirie was in charge of Japanese classics classes, so from the next lesson, the original Japanese classics teacher had to teach the special class. I guess the handover would just be about conveying the progress of the Japanese classics class.</p>
+<p>"So, have you thought about it carefully?"</p>
+<p>It hadn't been long since I made the offer to Kurayamada Kirie, but since we were parting ways soon, I asked her again about the PMC support.</p>
+<p>"Yes. I will accept your support. Of course, the newly established PMC won't advocate for things like the restoration of the Emperor."</p>
+<p>No matter how strong your beliefs are, you can't help but crumble in the face of reality. Kurayamada Kirie's reality is, what should she do with the Jinildang agents in the future? Can I protect their livelihoods? She must be worried about things like that.</p>
+<p>The leader of Jinildang and the executives of Jinildang, who had been supporting that belief, were all dead, so it seemed like Kurayamada Kirie couldn't continue on her own.</p>
+<p>"Great. Let's meet at my house later to discuss the details."</p>
+<p>Kurayamada Kirie will be busy with the handover and packing, so I decided to talk about the details later when she has more time.</p>
+<p>"Ah, the Director-nim told me to tell you to stop by the Director-nim's office after the morning assembly."</p>
+<p>Kurayamada Kirie told me that Daigo Terue wanted to meet, as if she had just remembered. She seemed to have forgotten for a moment because she was saying goodbye to the special class students.</p>
+<p>"If you had told me a little later, I would have been late. I'll go to the Director-nim's office, so do the handover well."</p>
+<p>I left Kurayamada Kirie in the education preparation room and headed to the Director-nim's office where Daigo Terue was waiting. I couldn't keep Daigo Terue, who was very busy, waiting any longer, so I quickened my pace and arrived at the Director-nim's office.</p>
+<p>"Director-nim, it's Yamashiro Ryuta."</p>
+<p>"Come in."</p>
+<p>When I knocked on the Director-nim's office and spoke, Daigo Terue immediately welcomed me. She looked quite tired, probably because she had been up all night since yesterday. However, her expression itself wasn't bad, probably because the Toyotaka faction, which had been constantly tormenting her father, Daigo Tadanori, had been wiped out.</p>
+<p>"Thank you for saving my daughter, Yamashiro-sensei."</p>
+<p>Daigo Terue looked at me, stood up from her seat, and bowed politely. It was a natural greeting since I saved her daughter, but her attitude seemed sincere.</p>
+<p>"Oofuchi is the Director-nim's goddaughter, but she's also my student."</p>
+<p>I spoke modestly, but the earnest Daigo Terue would never think that way. Even though she's her goddaughter, she cares a lot about Oofuchi Erika.</p>
+<p>"As a parent, there's nothing more grateful than this. The moment I heard Erika had been kidnapped, I felt like my world was collapsing. So, I want to give Yamashiro-sensei a gift. Is there anything you want?"</p>
+<p>Finally, it was reward time. Actually, money is the best. Because I can buy other things I want with money. The Daigo family is a famous prestigious family, but I don't know much about Japan's hidden items, so I don't know if there are any good items. But it's a bit awkward to ask for money right away, so should I talk about items?</p>
+<p>"I do like things with a long history. Like old swords, Buddha statues, or books."</p>
+<p>"So, you're interested in collecting antique art."</p>
+<p>Daigo Terue looked surprised at my words. Since my current appearance is that of a tanned blonde, she probably didn't think I would have hobbies like collecting antique art.</p>
+<p>She probably thought I had more active hobbies like sports. I do exercise every day, but it's not a hobby. It's just an effort to increase and maintain my stats.</p>
+<p>"Then... the Daigo family has been teaching young ladies since ancient times. So, we've received many gifts from old prestigious families. The Daigo family's warehouse has more items than any museum in Japan, so if you visit with me and choose one of them, I'll give the item Yamashiro-sensei chooses as a gift."</p>
+<p>Oh...! A reward where I can go to the family warehouse and choose an item, that's quite tempting. Since the Daigo family has a long history of education and is a prestigious family, there must be an item with special abilities in the warehouse. Even if there isn't a good item in terms of the game, I can choose an expensive work of art that I can exchange for money, so it's not a loss.</p>
+<p>"Did you call me in to reward me?"</p>
+<p>"Of course, the main reason is to express my gratitude, but I heard that there's a teacher among the teachers who sided with the Toyotaka faction that Yamashiro-sensei deliberately put in. I roughly got a list from Ishidera, but I need to know which teachers sided with the Toyotaka faction to get information so I don't suffer any damage."</p>
+<p>Ah, that's right. The only person I can save is Kasaoka Yuzuki, so I just need to say Kasaoka Yuzuki.</p>
+<p>"It's Kasaoka Yuzuki-sensei. Her husband joined the Toyotaka faction, and she asked me what to do, so I advised her that it would be good to gather information and tell me."</p>
+<p>"Her husband, Kasaoka Kouki, is..."</p>
+<p>"I don't know about that. Seeing as he joined first, he's probably closer to the side that was swayed by the Toyotaka faction."</p>
+<p>Kasaoka Yuzuki is already in my hands, so I didn't need to say anything nice about her husband, Kasaoka Kouki. Daigo Terue realized from my words that I had no liking for Kasaoka Kouki at all, so Kasaoka Kouki will probably be fired.</p>
+<p>"But isn't the basis for giving disadvantages to those who sided with the Toyotaka faction weak?"</p>
+<p>There were various forms of employment for the teachers at St. Francisco Girls' Academy. Excellent teachers were made regular employees, and teachers who taught minor subjects such as second foreign languages, home economics, and VR dive classes were mostly contract workers. Of course, there were regular teachers in the subjects I mentioned earlier, but those were all personnel decisions that included political considerations.</p>
+<p>"That's true. Regular teachers who sided with the Toyotaka faction will probably only receive disadvantages in terms of promotions, salary increases, and overnight duties."</p>
+<p>Judging from the fact that she's only talking about regular employees, it seems like the contract teachers are definitely going to be fired. I know that second foreign language teachers are usually contract workers, so Kasaoka Kouki will probably be fired too.</p>
+<p>"Would you tell me the personal information of the regular teachers who sided with the Toyotaka faction? I know some of the teachers' weaknesses."</p>
+<p>Regular teachers can also be fired if they have serious problems that prevent them from continuing their teaching careers, so I decided to use the teachers' misdeeds that the Taira information team had investigated.</p>
+<p>"You know a lot of rumors?"</p>
+<p>"It's called rumors, but you can consider them almost facts."</p>
+<p>Daigo Terue asked back with a delighted expression at my words. No matter how soft a king is, no king hesitates to root out traitors. Moreover, Daigo Terue, the queen of St. Francisco Girls' Academy, was by no means a soft king. She was naturally excited to hear that she could punish the teachers who sided with the Toyotaka faction and participated in the rebellion with my information.</p>
+<p>"Then I'll tell you the list."</p>
+<p>Daigo Terue excitedly handed me several documents. I found a very welcome name there. Ootawa Masato, the history teacher who kept hitting on Kijimoto Jurie, his name was there.</p>
+<p>He had a very imposing feeling when I ran into him recently, it seemed like it was because he had joined the Toyotaka faction. Did he think that if he did well, Kijimoto Jurie would look at him again? Kijimoto Jurie has already given me her body and soul.</p>
+<p>"First of all, Ootawa Masato-sensei here is..."</p>
+<p>I told her Ootawa Masato's weaknesses as I remembered them. He requests a budget from the academy to buy historical materials, then buys valuable historical materials and replaces them with fakes for his own collection. Naturally, Daigo Terue frowned as she listened to my words.</p>
+<p>After that, I told her about the corruption and weaknesses of several teachers. I didn't tell her about the weaknesses of all the teachers listed, but mainly about the men who didn't like me or hit on the teachers who were classified as my women. Even though they were marked by me, being fired was a very good exit.</p>
+<p>-----</p>
+<p>Introducing the characters following yesterday, B-cut!</p>
+<p>Jinmija Yeosa. I made it with a new model hehe</p>
+<p>Cherry-chan~!</p>
+<p>Lianna Holden</p>
+<p>Otagi Yuka!</p>

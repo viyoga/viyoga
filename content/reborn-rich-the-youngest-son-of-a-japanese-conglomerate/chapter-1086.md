@@ -5,73 +5,80 @@ weight = 1086
 chapter = 1086
 +++
 
-<p>"Ryuta~! Aunt Nae is here~?!"</p>
-<p>At the sound of someone calling me, I opened my eyes. Perhaps because I was tired from treating (sexing) Fujigasaki Rinka yesterday, I seemed to have fallen asleep while lying down and playing with my phone. Aunt Nae entered the room and spoke to me, waking me up, I rubbed my eyes and sat up.</p>
-<p>"You're here?" "Yeah. I was a little late because I was doing 'work' with Arisu, you see? Did you fall asleep waiting?"</p>
-<p>Given the emphasis on 'work', it seemed she had come from doing Phantom Thief Francois-related work. Perhaps she was organizing the items obtained from this Fragment of Omniscience scramble, or reviewing this incident, checking for mistakes or successes.</p>
-<p>"What about Arisu?" "Arisu is changing clothes. She was wearing work clothes, but it seems she doesn't want to show Ryuta her work clothes appearance."</p>
-<p>Since she says she doesn't want to show it, I'm curious what kind of work clothes they are. For now, I'll have to ask her to show me later.</p>
-<p>"Have you had dinner?"</p>
-<p>Glancing at the time, it was a slightly late 7:30 PM for dinner, so I asked Nae Fitzgerald. She probably hadn't eaten dinner, having just come from work.</p>
-<p>"No, we should eat together~! Seeing that Ryuta was also sleeping, you haven't eaten dinner, have you?" "Yes, I was waiting to eat with Aunt-nim~!" "Oh my, you wanted to eat Aunt-nim?"</p>
-<p>Nae Fitzgerald made a mischievous expression and then changed 'with Aunt-nim' to 'Aunt-nim' and asked. I grinned and nodded my Head.</p>
-<p>"Of course. You're delicious, after all." "Oh my♥ Let's go eat dinner quickly. Since Ryuta was coming today, I asked the chef to show off their skill a bit." "Yes, shall we go?"</p>
-<p>At my words, 'Shall we go?', Nae Fitzgerald linked her Arm in arm with mine.</p>
-<p>"Escort me, Ryuta♥" "Yes, I'll safely escort you to the dining table."</p>
-<p>If we walk Arm in arm, Uncle might get a little Jealous, but I thought he'd understand since we're Aunt-nim and Nephew/Niece, I enjoyed Nae Fitzgerald deliberately rubbing her breast against my Forearm as we headed to the restaurant.</p>
-<p>Akita Prefecture. Across from the Mithril Warehouse, a dry reed field,</p>
-<p>Taira Gensuke's Action Leader, Álvaro Ramos, lay prone among the reeds, inspecting his firearm.</p>
-<p>Álvaro Ramos looked at his Surroundings. The Brazilian Sicario team who came to Japan with him, and the unregistered Mercenary team hired by Taira Gensuke, were seen preparing for battle.</p>
-<p>"Speed is the priority for this mission. Deal with the Security Guards as quickly as possible and seize the Mithril. All of this must be accomplished within 20 minutes, understood?"</p>
-<p>All the Combatants who heard Álvaro Ramos's words nodded their Heads. And at Álvaro Ramos's Hand Signals, they slowly began to move.</p>
-<p>If it were daytime, the reeds moving would be visible, but it was night now. Even if the reeds reflected in the vigilance Lighting moved a little, the Security Guards would think it was caused by the Wind.</p>
-<p>Almost at the end of the reed field, they could reach the Mithril Warehouse just by crossing the Road. However, if they left the reed field, they would quickly be caught by the sentry at the Mithril Warehouse Entrance Outpost, and would lose a considerable number of troops while crossing the Road, so Álvaro Ramos waited for a Moment.</p>
-<p>Peu-shoot! Peu-shoot!</p>
-<p>With suppressed firing sounds, minimized by silencers, two Security Guards inside the Outpost fell. Snipers who had been waiting in advance had taken the shots.</p>
-<p>As the Security Guards fell, Álvaro Ramos immediately sent Hand Signals. In response, the Sicario team and the unregistered Mercenary team quickly crossed the Road and placed ladders against the warehouse wall. Since there were also Security Guards inside the warehouse, there was no time to open the locked door.</p>
-<p>Rather, they had planned an Operation to quickly enter by climbing ladders, exploiting the vigilance gap left by the fallen Security Guards at the Entrance Outpost.</p>
-<p>The Sicario team, who were quite elite troops, and the unregistered PMC team, who had undergone modification while performing all sorts of illegal missions, instantly climbed the ladders and secured the Entrance area.</p>
-<p>Álvaro Ramos also quickly climbed over the ladder and hid his Body behind a structure near the Entrance.</p>
-<p>"Our trucks will arrive within 15 minutes. Before that, we must secure the warehouse. Everyone, scatter according to the plan and deal with all the Security Guards!"</p>
-<p>At Álvaro Ramos's words, everyone formed teams of four and began to move stealthily. Álvaro Ramos also moved, leading three who followed him. The place Álvaro Ramos had to secure was the Security Command Center. Because it was full of CCTV screens and a place where warnings could be broadcast to Security Guards, it was the top priority Attack Target.</p>
-<p>Peu-shoot! Peu-shoot!</p>
-<p>"Keo...heup!"</p>
-<p>Álvaro Ramos put bullet holes in the Bodies of two Security Guards he encountered in the Passage and quickly approached to cover their mouths. Even such small noises had to be controlled now. Despite Álvaro Ramos's efforts, noise began to be heard from outside.</p>
-<p>Wiiiiiing~!</p>
-<p>Caught on CCTV somewhere, perhaps, a siren signaling an emergency began to wail. This was unavoidable.</p>
-<p>As the Mithril Warehouse was a major facility, CCTVs were installed everywhere, so no matter how careful they were, they were bound to be caught eventually.</p>
-<p>Tang! Tang! Tang!</p>
-<p>Gunshots were heard from afar. Since those led by Álvaro Ramos were all equipped with silencers, all the gunshots heard now belonged to the Mithril Warehouse Security Guards.</p>
-<p>"The Opponent's skill seems quite good."</p>
-<p>If it were a typical warehouse Security Guard level, Álvaro Ramos had thought they would win without a single counterattack, but seeing the Opponent counterattacking, he thought they were superior to typical Security Guards.</p>
-<p>Taira Gensuke, who had given him the mission, had said the bastard's Security Guards would be pathetic, but it didn't seem to be the case.</p>
-<p>"It's that way."</p>
-<p>In a Corner pointed to by a subordinate, the Security Command Center, their Target, was visible. Through the glass wall and glass door, a command team was seen directing while watching CCTV, and it seemed the glass wall and door were bulletproof military items.</p>
-<p>'Entry will be difficult...?'</p>
-<p>As Álvaro Ramos was worrying, a radio transmission was heard.</p>
-<p>-We're being pushed back! Is the Command Center not secured yet?</p>
-<p>"Wait a Moment."</p>
-<p>Since they were commanding while watching CCTV, it was natural that their side would be pushed back. Álvaro Ramos checked the ventilation in the Security Command Center ceiling and spoke.</p>
-<p>"Open the ventilation ceiling."</p>
-<p>Álvaro Ramos said, activating the gas mask mode on his helmet. As his subordinates opened the ventilation lid in the corridor ceiling, Álvaro Ramos himself climbed into the ventilation passage. And he slowly crawled, making no sound.</p>
-<p>"North! There are three more! Flank and Attack!" "Team B, provide cover at 11 o'clock!"</p>
-<p>The closer he got to the ventilation shaft, the closer the sound of communication from the Security Command Center became. It meant his team was taking damage, but Álvaro Ramos didn't care and slowly crawled until he reached a Position where he could open the ventilation ceiling door.</p>
-<p>And he slowly took out a gas bomb from his waist. It was a bomb that sprayed rapidly spreading nerve poison in gas form, so the Security Command Center would be neutralized as soon as it exploded.</p>
-<p>Kkiiik...! Tung!</p>
-<p>Álvaro Ramos slightly opened the ventilation door and then dropped the gas bomb.</p>
-<p>"Wh-what the hell!?" "Kyaaaah! Save me!"</p>
-<p>Screams were heard, and a few seconds later, Álvaro Ramos dropped down from the ceiling ventilation passage. Everyone in the Security Command Center was clutching their necks and wide-eyed, seemingly in pain. Álvaro Ramos paid no attention to the corpses and immediately looked at the CCTV, beginning to give Commands to his subordinates.</p>
-<p>Under Álvaro Ramos's Command, the unfavorable situation instantly reversed, turning advantageous for the intruders.</p>
-<p>Although the Opponent's skill was better than expected, since they couldn't receive support from the Security Command Center, they could be quickly annihilated.</p>
-<p>"The vehicles have arrived too."</p>
-<p>Seeing several trucks arrive at the main gate they had opened, Álvaro Ramos smiled. Seeing the laborers who would move the Mithril pour out of the trucks, Álvaro Ramos looked around at the subordinates who had entered the Security Command Center.</p>
-<p>"Let's destroy the Command Center and leave this Place."</p>
-<p>At Álvaro Ramos's words, his subordinates installed bombs in the Command Center. And they ran towards Álvaro Ramos, who was heading towards the trucks after leaving the Command Center.</p>
-<p>"I'll detonate the bomb." "Alright."</p>
-<p>As Álvaro Ramos's permission was given, the Sicario subordinate pressed the bomb's button. A kwa-kwa-kwang! loud noise was heard from behind them. With an explosion of this magnitude, it would be difficult to find any traces.</p>
-<p>"How long will it take to finish?"</p>
-<p>Álvaro Ramos, who had arrived at the place where the trucks were lined up, asked the transport manager, and the transport manager answered with a reassuring smile.</p>
-<p>"We are experts, so preparation will be finished in 10 minutes."</p>
-<p>10 minutes? That'll be cutting it close. Álvaro Ramos muttered and issued a return Command to all Combatants. Now it was time for the transport team to act, so there was nothing for the Combatants to do.</p>
-<p>"This side was a success, but I wonder if Liege/Master is doing well." Álvaro Ramos watched the transport team quickly move the Mithril, and wondered about the situation on Taira Gensuke's side, who was in charge of the Attack group on Taira Ryuta's mansion. Because the Opponent was unexpectedly stronger than typical Security Guards, he thought there might be an unforeseen Threat on Taira Gensuke's side as well. Although he worried, Taira Gensuke's skill was extraordinary, so he believed he would overcome any difficulty.</p>
-<p>Gojoy-nim requested Han Yu-gyeong Chapter 43 1. Smiling at the protagonist's Words, 2. Being introduced to a friend~! 1. 2.</p>
+<p>"This is Taira Ryuta. Nice to meet you."</p>
+<p>I extended my hand to Kanzaki Saya and spoke. Kanzaki Saya looked at my extended hand for a moment, then grinned, grabbed my hand, and shook it.</p>
+<p>"The leader introduced me, but I'm Kanzaki Saya. Ryuta-ssi."</p>
+<p>Her Grip was quite strong. She didn't seem like a strength-based character, though. Being a combat class and constantly holding a pistol in both hands, she seemed to have a certain level of grip strength.</p>
+<p>"By the way, for what reason did Saburo-ssi's son come to our company?"</p>
+<p>Kanzaki Saya, having finished the Handshake, looked at Goishihara Shoji and asked.</p>
+<p>"It's contract-related."</p>
+<p>"Oh really? That's fortunate. Recently, I haven't had a chance to shoot a gun, so I've been frustrated."</p>
+<p>The fact that she hasn't had a chance to shoot a gun recently seemed to mean she didn't have many missions. It seems that during their Moth Wing days, they had a certain reputation in Japan, but in the USA, they were close to unknown, and for Japanese companies to hire them, they had to be mindful of the Taira side, so it seemed work wasn't coming in much.</p>
+<p>In that case, the security mission I proposed this time must feel like a welcome rain in a drought, wouldn't it? In a way, with this contract proposal, I could say I've filled Goishihara Shoji's Affection Level.</p>
+<p>"So you chased all your comrades out again and monopolized the shooting range by yourself?"</p>
+<p>When we entered the shooting range, Goishihara Shoji sighed upon seeing Kanzaki Saya, which seemed to be because she was monopolizing the shooting range alone. Other PMC employees also needed to do shooting training, so it must have been awkward that she was using it alone.</p>
+<p>"What do you mean, 'chased out'? Today, our assault team is on Rest, and the raid team and sniper team went for Actual combat training for a week, so no one was using it; I just rented it out."</p>
+<p>Kanzaki Saya spoke as if she were being treated unfairly. But Goishihara Shoji, as if saying 'no way', shook his Head.</p>
+<p>"Even if it's Rest, shooting training is voluntary, but you know well that the assault team members are forcibly exercising and waiting in the 1st floor Gym until your occupation of the shooting range ends."</p>
+<p>"Hmph~! Since I'm the Team Leader, my Subordinates should follow my Words!"</p>
+<p>According to Goishihara Shoji's Words, it meant she was forcibly monopolizing the shooting range after all. Goishihara Shoji, with Kanzaki Saya, after having such a friendly (?) argument, looked at me with a slightly awkward Expression and bowed his Head.</p>
+<p>"Ah, I'm sorry for showing you such a strange Appearance."</p>
+<p>"No, it's good to see you getting along informally with your Subordinates. We also tend to get along quite informally."</p>
+<p>At Goishihara Shoji's Words, I, glancing at Naruse Shiyo and Maya Reed, said. Of course, Maya Reed hasn't been with us for long, so we don't get along informally, but apart from a few, we generally get along comfortably.</p>
+<p>"Oh~! Are those Ryuta-ssi's Subordinates? Nice to meet you~!"</p>
+<p>Kanzaki Saya, waving her Hand, greeted Naruse Shiyo and Maya Reed as well.</p>
+<p>Even to two people she didn't know well, seeing her greet them warmly, she felt like a Large Dog with a good Personality. The Bullet Lover I knew wasn't like this; seeing how much she's changed, it seems some Incident must have happened to the future Moss Tactical.</p>
+<p>Just then, Kanzaki Saya, Naruse Shiyo, and Maya Reed were having a short Conversation, the shooting range Door opened, and Tetsu Kagerou, Tetsuka Ayame entered. It seemed they had just finished Training, as they were in their Cyber Suits.</p>
+<p>Of course, since they weren't flying, their Wings were folded, and with their Wings folded, it felt as if the Wings were defending Tetsuka Ayame on both sides.</p>
+<p>"Saya, Shoji-leader! I'm here~♬ Today's Training was quite fun too! Huh?!"</p>
+<p>Tetsuka Ayame, who was greeting us upon her return, looked at me and made a surprised Expression.</p>
+<p>"Saburo-ssi's son! Did you already come to play?"</p>
+<p>"Rather than coming to play, I came to sign a contract."</p>
+<p>Since Tetsuka Ayame and I had already met during the New Rochelle Incident and broken the ice, we spoke comfortably with each other.</p>
+<p>"Back then in New Rochelle, did you save the Chairman of the Arab Alchemy Association?"</p>
+<p>When we met in New Rochelle, chasing the carpet ridden by the client, the Chairman of the Arab Alchemy Association, as it fell from the Sky in flames, was Tetsuka Ayame's last Appearance, so I asked if she saved him.</p>
+<p>"Yes! I saved him. I got a ton of bonuses for it~♪"</p>
+<p>There's a rumor that he's Royalty from some oil-producing country, so as the Chairman of the Arab Alchemy Association, he must have given a considerable level of bonus to the PMC Mercenary who saved his Life.</p>
+<p>"First, since you've looked around the entire shooting range, let's look around the 2nd Floor now."</p>
+<p>As Tetsuka Ayame and my Story roughly ended, Goishihara Shoji interjected and spoke. Right, we can't stand in the 3rd Floor shooting room forever.</p>
+<p>As I nodded my Head, Kanzaki Saya and Tetsuka Ayame, saying 'I want to follow too~!', joined our Party/Group.</p>
+<p>"The 2nd Floor is the restaurant. As a PMC, meals are prepared considering nutritional balance. Since it's almost lunch time, please eat here before you go."</p>
+<p>"Shall we?"</p>
+<p>As Goishihara Shoji said, the 2nd Floor was a cafeteria. As most of Moss Tactical's members were Japanese Persons, the cafeteria seemed to be Japanese food-centric.</p>
+<p>While eating the meal, the three from Moss Tactical and we got to know each other a little better; the three from Moss Tactical seemed surprised by my large appetite, and contrary to me, I learned that Tetsuka Ayame was a small eater. Perhaps because of her Flight Suit, she seemed to be controlling her Body Weight.</p>
+<p>The meal was not bad. It was typical American-Japanese Japanese Food with an American touch. As Goishihara Shoji said, the balance of carbohydrates, proteins, and fats was good, and while we were Guests so it was overlooked, registered PMC Agents seemed to have a set amount of food to eat according to their registered Information.</p>
+<p>"Saburo-ssi's son fought in New Rochelle and was quite strong. We couldn't decide the outcome for almost several minutes~♩"</p>
+<p>At the Words that I was strong, Kanzaki Saya asked with sparkling Eyes. With an Attitude like a tail-wagging husky, saying 'Want to do Actual combat training?'.... She seemed to be a battle maniac comparable to Shimokawabe Airen.</p>
+<p>"Yamamoto and Ito must be very disappointed. Because they're in Training all week, they won't be able to see Saburo-ssi's son, will they?"</p>
+<p>The people named Yamamoto and Ito seemed to be the Team Leaders of the sniper team and assault team 2, who weren't here. As all members of Moss Tactical were former Subordinates of Taira Saburo, they seemed to want to see me at least once.</p>
+<p>"I have a perfectly fine name, Taira Ryuta."</p>
+<p>"Ah, sorry, sorry~♪ Every time I see Ryuta-ssi's Face, Saburo-ssi comes to mind."</p>
+<p>Because Tetsuka Ayame kept calling me Saburo-ssi's son, when I tackled her, she honestly said she was sorry. Do I really resemble Taira Saburo that much?</p>
+<p>After finishing the meal like that and looking around the 1st Floor Gym (there was a brief happening where the People in the Gym were surprised to see me), we finished the schedule of looking around the Moss Tactical Building.</p>
+<p>"I'll be going now. I hope the contract goes well."</p>
+<p>"I agree."</p>
+<p>We had talked about the contract, had a meal, and looked around the entire Building, so there was no longer any Reason to stay at Moss Tactical; I shook Hands with Goishihara Shoji and greeted him.</p>
+<p>"Ah, if any difficult Matter arises, please Contact me. I will Help you anytime."</p>
+<p>"Thank you for your consideration."</p>
+<p>Given the future Appearance of Tetsuka Ayame and Kanzaki Saya, and the certainty that something bad would happen to Moss Tactical in an unknown future, I told Goishihara Shoji that I would Help him anytime.</p>
+<p>If I Help, Moss Tactical might be able to escape its unfortunate future. Though I don't know exactly what that unfortunate future is yet.</p>
+<p>We, who came out of the Moss Tactical Building, got back into the vehicle. The Work was also finished, and it was time to return to Fujigasaki Rinka's Home on Malibu Beach.</p>
+<p>"They all seemed like good People, didn't they? Of course, Kanzaki-ssi and Tetsuka-ssi seemed a little wild-eyed, though...."</p>
+<p>Naruse Shiyo, who was in the vehicle, stated her Impression. I agreed. Rather, I, more than the Image of Tetsu Kagerou and Bullet Lover I knew, was puzzled by how docile (?) they were, but this Appearance must be their true Appearance.</p>
+<p>Their Appearance in the Game, which changed them due to some Matter, must be different from their current Appearance.</p>
+<p>As the Successor War progresses, someday eventually I intended to call Moss Tactical, who knows the Weakness of each Successor well, back to Japan, so I hoped they wouldn't experience unfortunate events. I should talk to Eve and ask her to inform me if anything happens.</p>
+<p>"How was Maya? Was there any Lie?"</p>
+<p>I asked Maya Reed, who had been listening to all the Stories from behind me.</p>
+<p>"Most of it was Truth."</p>
+<p>"Most?"</p>
+<p>Does that mean some of it was a Lie? Of course, I've heard that People unconsciously tell small Lies during Conversation, but it would be difficult to catch that with just Voice.</p>
+<p>"But currently Moss Tactical has no Thought of returning to Moth Wing."</p>
+<p>Maya Reed spoke in Goishihara Shoji's Voice. Perhaps because she was a Voice Ability User, it was incredibly similar. Of course, there was a Way of Speaking, so it wasn't perfectly identical, but this seemed like it could be quite useful.</p>
+<p>"That last Word was a Lie. Goishihara-ssi clearly wants to return to Moth Wing."</p>
+<p>At Maya Reed's Words, I felt a little Confusion. Wanting to return to Moth Wing, does it mean he misses the past days with Taira Saburo, or that he wants to come under my command?</p>
+<p>Of course, the Probability of it being the former is quite high, but hearing that the last Story was a Lie, I realized that bringing Moss Tactical under my command might not be as difficult as I Thought.</p>
+<p>Tetsuka Ayame's folded Wings B-cut~!</p>
+<p>Requested by Gojoy-nim: Shinoe Misano's Seduction, Yukiko's 49th-day memorial Appearance.</p>
+<p>Shinoe Misano~!</p>
+<p>Yukiko~!</p>
+<p>Requested by Geomeunkkaemuk-nim: Genbaki Sabu Musashi Takuro~!</p>

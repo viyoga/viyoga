@@ -5,89 +5,43 @@ weight = 950
 chapter = 950
 +++
 
-<p>and breast chapter check contains exposure please surroundings this your</p>
-<p>As far as I knew, the Seizawa Family was not a Samurai Family. From the Nara Period, they were an active part of the Japanese Imperial Court, a venerable Noble bureaucratic Family. Considering the history of such a Seizawa Family, Seizawa Shii's powerful strength was a mystery.</p>
-<p>As I put on the Glasses from the Ruins and looked at her, Seizawa Shii gave her characteristic Smile and looked at me. As soon as Seizawa Shii asked, 「Can you see it?」 a translucent Window appeared in front of Seizawa Shii's Face.</p>
-<p>◆Name: Seizawa Shii (清澤 詩維) Lv15</p>
-<p>Stats</p>
-<p>Body</p>
-<p>Strength:19 Agility:12 Stamina:13 Resistance:13 Recovery:14 Sensitive Nerves:12 Appearance:16</p>
-<p>Mind</p>
-<p>Intelligence:11 Knowledge:4 Focus:4 Will:7 Creativity:12 Charm/Allure:15 Judgment:14</p>
-<p>Other</p>
-<p>Luck:15</p>
-<p>Skills</p>
-<p>◆Seizawa Eishin-ryu (清澤 影身流) (Unique Fist Technique LV15)</p>
-<p>◆Rhythmic Gymnastics (Rare SkillLv11)</p>
-<p>◆Linguistics (General Skill Lv8)</p>
-<p>◆Investigation (General Skill Lv11)</p>
-<p>◆Infiltration (Rare Skill Lv9)</p>
-<p>◆Tracking (Special SkillLv9)</p>
-<p>◆Special Driving - Bike (Special+ SkillLv13)</p>
-<p>◆Killing Intent Tracking (Narrative Skill Lv10)</p>
-<p>Traits</p>
-<p>◇Mutation - Steel Muscle Fibers [Unique Mutation]</p>
-<p>◆Pure Strength [Legacy Trait]</p>
-<p>◆Smooth Movement [Special Trait]</p>
-<p>◆Lucky Attack [Narrative Trait]</p>
-<p>◆Fist Technique Master [Narrative Trait]</p>
-<p>◆Master's Sensation [Narrative Trait]</p>
-<p>◆Killing Intent Detection [Narrative+ Trait]</p>
-<p>◆Limit Break: Strength [Unique Trait]</p>
-<p>◆Ogre's Grip [Legacy Trait]</p>
-<p>I looked at Seizawa Shii's Stats and unconsciously laughed. It was because it felt so characteristic of Seizawa Shii.</p>
-<p>Her Body Stats were impeccably good, but her Mind Stats were a bit low. Especially, even though her Intelligence Stat was 11, which wasn't low, the fact that her Knowledge Stat was 4 perfectly showed Seizawa Shii's lack of interest in Study. Furthermore, her low Focus also gave the feeling that it was characteristic of Seizawa Shii.</p>
-<p>On the contrary, her Will Stat, which I thought would be a Weakness, wasn't that low at 7. It probably rose because she was thoroughly beaten by Funayama Seigo's mental Attack before and had been continuously Training until recently.</p>
-<p>Her Strength Stat, which I was curious about, was a whopping 19. If the Limit of her Strength Stat was broken through, it was a Value that could become 21 at the next Level up. Seeing this Strength Stat, I felt that Seizawa Shii's Strength Stat's Limit would also be broken through.</p>
-<p>Her Luck was quite high at 15. Since Seizawa Shii also saw Takakusaki Gengo's transformation scene, her original Luck was probably 13.</p>
-<p>Now that I had scanned all the Stats, it was Time to look at her Skills. Seizawa Eishin-ryu, the inherited martial art that Seizawa Shii was practicing, caught my Eye first. Even though they weren't a Samurai Family, a fairly high-grade inherited martial art was being passed down. Next was.... Rhythmic Gymnastics?</p>
-<p>「Shii, you did Rhythmic Gymnastics?」</p>
-<p>「Yeah! Wow...! That shows up too? Junior high... no, I did it until the early part of my first year of high school. I quit after meeting Lisa-ttang because I was running around outside.」</p>
-<p>At my Words, Seizawa Shii spoke in surprise. From what I heard, it sounded like the Story of a promising Rhythmic Gymnastics girl who fell for the temptation of her bad(?) friend, Minamoto Risa, and quit sports.... If she had a Skill Level of 11 in the early part of high school, she might have been an Olympics medalist by now if she hadn't given up. Because her Strength Stat was so overwhelming.</p>
-<p>Of course, more than the Life of an Olympics medalist, she must have thought her current Life was better, which is why she chose this path as a Fixer.</p>
-<p>「Don't look down on Lisa-ttang. I was already losing Interest as I entered high school.」</p>
-<p>The quick-witted Seizawa Shii saw my Expression and spoke up in defense of Minamoto Risa.</p>
-<p>「When did you start working as a Fixer?」</p>
-<p>「Since my third year of junior high?」</p>
-<p>It suddenly occurred to me that Seizawa Shii's loss of Interest in Rhythmic Gymnastics might be related to her work as a Fixer, so I asked. Indeed, the beginning of her work as a Fixer coincided with her third year of junior high.</p>
-<p>Naturally, compared to the Dopamine-fueled work of a Fixer, Rhythmic Gymnastics was relatively wholesome, so Seizawa Shii seemed to have quickly lost Interest. Especially with the Motivation of defeating Villains and getting Money.</p>
-<p>After finishing the short Conversation with Seizawa Shii, I looked at the next Skill Window and realized that most Skills, except Linguistics, were related to her work as a Fixer. Since she was Held Back a Year, if she started from her third year of junior high, Seizawa Shii was already a 5th-year Fixer. It could be said that such Skill proficiency was natural.</p>
-<p>Next were the Traits. As expected, a Trait related to Strength appeared from the start.</p>
-<p>◇Mutation - Steel Muscle Fibers [Unique Mutation]: Muscle fibers become tougher and stronger. Strength Stats grow easily through exercise or Training, the efficiency of Strength Stats greatly increases, and the Strength Stat increases by 1 additionally every 4 Levels. The Strength Stat Limit increases by 1.</p>
-<p>This was the first Mutation Trait I'd seen since Alik. I had wondered how such a powerful Character emerged from the Seizawa Family, a scholarly official Family, but Seizawa Shii was a Mutant.</p>
-<p>Although it didn't quite reach Alik's Mutation Trait, its options were quite remarkable. Increased Strength Stat efficiency and easy growth through Training, additional Strength Stat increase and Limit increase... It could be called a Package-like Trait for Strength Stats.</p>
-<p>Looking at the next Trait, it was again a Trait related to Strength.</p>
-<p>◆Pure Strength [Legacy Trait]: The maximum Value of Strength Stat increases by 2. When the Strength Stat transcends its grade, it provides several additional Effects. ●Can strike intangible beings and intangible forces with Strength. ●When the Strength Stat surpasses 20, it increases by 1 additionally. ●Defense proportional to the Strength Stat is added.</p>
-<p>Oh...! Although the immediate Effect was only an increase in the maximum Strength Stat, it was a late-game Trait that allowed additional options to be acquired when the Strength Stat surpassed its maximum. The first option obtained after the Limit Break meant that even if an Opponent fired something like an Energy Blaster, it could be deflected if the Timing was right.</p>
-<p>The second meant that the moment the Strength Stat went from 20 to 21, it would increase by an additional 1, becoming 22. That's why it seemed to give a Strength maximum of 2. Since Limit Break Traits can be obtained for every odd Stat from 21 onwards, it's not possible to get two Limit Break Traits. However, 1 Stat exceeding 20 is on a different Dimension than 1 Stat before 20, so it could be said to be a quite good option.</p>
-<p>The third was additional Defense. Most Defense comes from Resistance Stats and worn Armor, but if Defense proportional to Strength Stat is added, she could boast considerable Defense, so it was also a good option.</p>
-<p>The third Trait was probably obtained thanks to Seizawa Shii's Rhythmic Gymnastics since childhood, and it was Smooth Movement.</p>
-<p>◆Smooth Movement [Special Trait]: With smooth movements, even when moving intensely, she does not sustain Injury.</p>
-<p>It was a Trait that Athletes would greatly covet, but in this Worldview, which has all sorts of bizarre Traits, it was a mediocre Trait with not even a high Grade. Let's move on to the next Trait immediately.</p>
-<p>◆Lucky Attack [Narrative Trait]: Proportional to the Luck Stat, Evasion Rate and Critical Rate additionally increase.</p>
-<p>The Luck Stat was a Stat that influenced Evasion Rate and Critical Rate. The fact that Evasion Rate and Critical Rate additionally increased proportionally to Luck meant that the Influence of the Luck Stat in battle would significantly increase.</p>
-<p>Usually, there are few people with high Luck Stats, and its Influence in battle is not great, so it's a Trait that doesn't receive very good treatment for a Narrative Grade. However, since Seizawa Shii's Luck Stat was as high as 15, it was a Trait that could be utilized quite usefully.</p>
-<p>Since I was well aware of the next Traits, Fist Technique Master and Master's Sensation, I skipped them. I then checked the next Trait, Killing Intent Detection.</p>
-<p>◆Killing Intent Detection [Narrative+ Trait]: Detects the Opponent's Killing Intent. Evasion Rate increases, and Retreat Probability increases.</p>
-<p>Although the Explanation was short, it wasn't a bad Trait. It could be said to be a highly preferred Trait, especially in games, precisely because of the increased Retreat Probability.</p>
-<p>Given the characteristics of a bloodless, tearless megacorp cyberpunk Worldview, if one was defeated in battle, even if they knew the disadvantage and tried to escape, they were often caught and killed or captured and persuaded by the Opponent. The Retreat Probability increase option was an option that prevented a cherished combat Character from dying or being taken.</p>
-<p>Seizawa Shii, who often worked alone as a Fixer, would find the Killing Intent Detection Trait quite helpful. In addition to the increased Retreat Probability, the increased Evasion Rate, when combined with the Luck-proportional Evasion Rate increase option of the Lucky Attack Trait, would further increase her Evasion Rate, so she might even be used as an Evasion Tank.</p>
-<p>◆Limit Break: Strength [Unique Trait]: The efficiency of the Body Stat Strength increases, and the maximum Value of Strength becomes 22.</p>
-<p>Did she go all-in on Strength...? The next Trait was a Limit Break Trait that raised the Stat Limit, and it was Strength again. Including this Trait, the Strength Stat Limit was a whopping 25. If she grew properly, it felt like a Monster would be born later.</p>
-<p>It was probably a Trait obtained with the Level gained from this battle with Takakusaki Gengo. As I saw the last Trait, my Eyes widened unconsciously.</p>
-<p>◆Ogre's Grip [Legacy Trait]: When grabbing an Opponent, ignoring Stat Limits, Strength Stat increases by 3.</p>
-<p>Ogre's Grip? It was a Trait I had never seen before. How did it know Seizawa Shii's Fixer nickname was Ogre for such a Trait to appear?</p>
-<p>It was quite an intriguing Trait. To increase while ignoring Stat Limits... Does that mean if Seizawa Shii maxes out all her Strength Stats and uses a grappling Skill, her Strength Stat would be 28...? At that level, even a skull made of Mithril could probably be kneaded like clay.</p>
-<p>Although its Grade was very high as a Legacy Grade, considering it was only useful for grappling, it could be said to be quite disappointing for its Grade. However, since Seizawa Shii was also a Fist Technique practitioner, she might be able to utilize it to some extent if she trained grappling Skills. Or, if she grabbed an Opponent with one Hand and attacked with the other, she might be able to perform an Attack with a Strength Stat of 28. Thinking about it this way, she seems incredibly strong, doesn't she?</p>
-<p>To summarize Seizawa Shii's Status Window, she was a Strength-only Character, but her Strength was so immense that she could be called a terrifying Character. Of course, she hadn't yet reached her Strength Limit, but it seemed she would fill the Limit with just 2 more Levels, so her potential seemed about to explode soon.</p>
-<p>Requested by Neosblue-nim: Alik Derby of Original Alik and Alik whose Destiny was changed by Ryuta~!</p>
-<p>I'll leave it to your Imagination who is which Alik haha.</p>
-<p>Requested by TheDreaming-nim: 1. Yukiko's Classroom Masturbation 2. Awakened Yukiko showing off her breasts in the Classroom~!</p>
-<p>1.</p>
-<p>2.</p>
-<p>I don't know why the Students in the back are topless haha.</p>
-<p>Requested by Albori-nim: Lisa and Shii washing a car in bikinis!</p>
-<p>Shii first~!</p>
-<p>Lisa-ttang~!</p>
-<p>I installed a new version of the AI drawing program, and it feels like the art style has changed a bit haha.</p>
-<p>Bonus~! Baek Lisa</p>
+<p>This level of unease was the first time since before going on a Business Trip to the USA last summer. At that time, due to that unease, he had postponed the Business Trip, and it was then that the Famine first appeared in LA, where Iwanu Sadakake had intended to go. To that very Arena, which Iwanu Sadakake, a Soccer fan, had planned to visit while in the USA. If he hadn't postponed the Business Trip, Iwanu Sadakake could have been one of the tens of thousands of victims.</p>
+<p>'If this goes wrong, it's a situation where at least a Famine-level great disaster could happen in Japan...!'</p>
+<p>A Famine-level monster being unleashed in the Middle of Tokyo, causing a great disaster, must not occur. As if the strength had left his Legs, Iwanu Sadakake slumped back into his Seat and began to read this Incident File once more.</p>
+<p>'First, the Cause, is it because of this Woman named Sato Tsukiyo?'</p>
+<p>Of course, Sato Tsukiyo might not be the culprit. She could have been unfairly identified as the culprit based solely on circumstantial evidence. Since the culprit possessed the Ability to Neutralization CCTV, there was almost no way for ordinary police to know who the culprit was, so the police had no choice but to focus on circumstantial evidence. Looking at the data left behind by the Irimachi Aura, Iwanu Sadakake, who had been thinking for a moment, picked up the Phone as if his Resolve had hardened. And called somewhere.</p>
+<p>"Kuroda. Gather the aces and have them take on the Incident being sent from the police station now. Don't try to catch the culprit yet; first, figure out who the culprit is and how dangerous they are. It's a Director-General's Command. You must not try to catch the culprit without fully understanding them. Understood?"</p>
+<p>Iwanu Sadakake contacted Kuroda Ouji, the Club President of the Superpower Crime Investigation Department of the Japan Paranormal Phenomenon Management Bureau, and earnestly urged him to be careful while investigating.</p>
+<p>-Has your Premonition been activated? As expected of an Investigator Club President, Kuroda Ouji was guessing The Situation, seeing Iwanu Sadakake's Attitude. Because he knew of Iwanu Sadakake's Premonition, which boasted considerable accuracy, Kuroda Ouji asked in a very serious and grave Way of Speaking.</p>
+<p>"Yes. If things go wrong, a Famine-level great disaster could occur."</p>
+<p>At the mention of "Famine-level", Kuroda Ouji kept Silence for a moment. As the Famine appeared in the World, killing tens of thousands, Paranormal Phenomenon management organizations around the World began to use the term "Famine-level" for the highest crisis Stage. The term "Famine-level" was that heavy.</p>
+<p>-Famine-level, you say.... Understood. I will start with the investigation. That will be all....</p>
+<p>Kuroda Ouji said he understood, then hung up the Phone. His Mind, having heard the term "Famine-level", would also be complicated. But he had a Premonition that it would be dangerous if he didn't say this beforehand, so he had made it clear in advance.</p>
+<p>"Famine-level, you say.... Understood. I will start with the investigation. That will be all...."</p>
+<p>Clink.</p>
+<p>"Damn it...!"</p>
+<p>Kuroda Ouji, who had hung up the Phone, muttered a low Curse. Although he had handled many Superhuman crime Incidents in Japan until now, it was the first time Director-General Iwanu had declared something "Famine-level". Of course, if things went well, it could be resolved without a Battle. Just because someone possessed Famine-level Abilities didn't mean that Opponent was a Crazy Murderer psychopath like the Famine. They might even be reasonable.</p>
+<p>"Hoo...!"</p>
+<p>Kuroda Ouji sighed. But soon, he became serious again. This was no time for Sighs. As Director-General Iwanu had said, he needed to form a team composed only of aces.</p>
+<p>Kuroda Ouji, with his own criteria, selected and called several Investigators. In the meantime, data from the police station was delivered to Kuroda Ouji. Kuroda Ouji skimmed through the data while waiting for the Investigators. He hadn't even read a few Lines when he realized that the Incident he was assigned was the recently Topic A-village Incident.</p>
+<p>"Club President Kuroda-nim, did you call for us?" "I have responded to the call." "...." "I'm here~!"</p>
+<p>The four Investigators selected by Kuroda Ouji arrived. A rather large-sized Man with a Soldier-like haircut, a Woman in Miko clothing, a Man in ninja attire, and a cheerful-looking Woman in a Suit. As expected of Investigators from the Japan Paranormal Phenomenon Management Bureau, all of them possessed at least one Ability.</p>
+<p>"You all know about the A-village Incident, right?" "Is it our Incident?" "This is a hugely Topic Incident, isn't it?!" "Yes. However, the Director-General said that it could be a Famine-level Incident, so do not provoke the culprit, and an additional Command has come in to identify the culprit."</p>
+<p>At Kuroda Ouji's Words, everyone fell silent. Probably, including Kuroda Ouji, the thought that flashed through everyone's Mind was the same. "We stepped in poop".... While everyone was thinking similar thoughts, Kuroda Ouji opened his mouth again.</p>
+<p>"As I said, if you don't provoke the culprit, a Battle won't occur. So don't be too Taut Tension; first, everyone look at the data."</p>
+<p>Everyone took out their respective phones or tablets and began to read the data.</p>
+<p>"Super Strength, and...." "I'm not sure what the Ability that Neutralization CCTV is. There are so many candidates."</p>
+<p>Still, as expected of excellent Investigators, they began to deduce about the culprit from the data.</p>
+<p>"First, the police side saw Sato Tsukiyo as the Suspect, but once Superpowers are involved, it's meaningless. We will start the investigation from a zero base."</p>
+<p>At Kuroda Ouji's Words, all the Investigators nodded their Heads. If a Superhuman was involved, the police investigation could be Mockery/Debasement as much as they wanted.</p>
+<p>"First, we should check the Corpse." "While going around the Village, checking for any traces of Jusul that might exist, and investigating this Incident should not be forgotten." "Then, let's divide into two Groups first. Seido and Mojitsuki will check the Corpse, and the other two, Kahei and Motomachi, will conduct an inquiry in the Village."</p>
+<p>The Shrine Maiden called Seido and the Ninja called Mojitsuki nodded their Heads, saying they understood. Unlike the short-haired Man called Kahei, who also nodded with the Corpse Group, the Suit-wearing Woman called Motomachi grumbled, "I want to see the Corpse too."</p>
+<p>"Motomachi, stop. If you want to see the Corpse, find your own Time to do so." "Tch.... Understood."</p>
+<p>When Kuroda Ouji spoke sternly, Motomachi reluctantly agreed. Looking at the Investigators standing silently before him, Kuroda Ouji opened his mouth again.</p>
+<p>"What are you doing? Get up quickly and start Work!" "I'll be going. Club President-nim." "...." "I will deploy." "Yay~!"</p>
+<p>The four Investigators answered according to their Individuality and left the office. Kuroda Ouji, seeing the backs of the Investigators leaving the office, shouted loudly.</p>
+<p>"If there are any special matters, report them immediately! Once you identify the culprit, instead of catching them, return and report first. Don't provoke them unnecessarily!"</p>
+<p>Kuroda Ouji once again urged the Investigators about the Warning. Although he believed the Investigators he chose would do well, the unease remained due to Director-General Iwanu's Warning.</p>
+<p>"Quite busy."</p>
+<p>I, who woke up early in the Morning, grumbled slightly. Because there were many things to do and Luggage to pack before going to Neo Tokyo, I had no Time to rest. This was the same for all the Students and teachers who had decided to follow me, excluding myself. There was a lot of Luggage, and having lived in Miyashi for a long Time, they had to say their Greetings to close people, so they were also busy. Among them, if I were to pick the busiest people, there were Naruse Shiyo and Otagi Yuka. Looking at Naruse Shiyo first, her Work was doubled because she was packing Shimokawabe Airen's Luggage, who was in bed, on her behalf. Alik, who was also a Disciple, was already in Neo Tokyo, so Shiyo had to pack the Luggage alone. While packing Shimokawabe Airen's Luggage alone, she eventually called the Naruse family Servants. Otagi Yuka had to pack two sets of Luggage, one for the USA and one for Neo Tokyo, so she was having a quite busy Time. Seizawa Shii, who was going to the USA with her, first sent all her Luggage to Neo Tokyo (I had rented a fixer's office for her) and decided to go to the USA comfortably with her Maenmom. Her principle was to buy necessary things in the USA. Actually, since I had only lived here for 6 months, I didn't have much Luggage, so packing wasn't difficult, but along with various Paperwork, the Women remaining in Miyashi or the Women who would be separated from me for a while, had quite a few appointments, so I spent a quite busy Time going from Home to Home for Sex. Today, I had two appointments. In the Morning, it wasn't a Sex appointment, but there was an interview requested by Asada Ei, and in the Evening, there was an Oyakodon dinner appointment with Daigo Terue and Oofuchi Erika. Of course, it wasn't a Meal appointment to eat Oyakodon.... It was the Mother-Daughter Don appointment everyone was guessing. I, who had finished preparing for my Outing, rode an electric bike and headed to the Place Asada Ei had told me about. Because my Mission in Miyashi was over, a considerable number of Safe Houses within Miyashi, which had been maintained quite extensively with the Jo-seo-dang, were being reduced. They said the contract for the office where they often held Meetings had ended, and the Place Asada Ei sent me to this Time was somewhere I had never been before. I had thought there might be Safe Houses I didn't know about, but this was.... not a commercial office building, but a Mansion. Well, there's no Law that a Safe House can only be an office. A Place like a Mansion can also be used as a Safe House, because all you need to do is make the Neighbors perceive you as an Ordinary Person. Kki-ik...! It wasn't too far from the Home I lived in, so after parking the bike in the Mansion Parking Lot Asada Ei had mentioned, I locked it and got off. Then I took out my phone. "12th floor, room 1201, huh..." As it was a Mansion in Miyashi, the Facility looked quite good. Hearing that only two households lived on each floor of this spacious Mansion, I truly felt that this Neighborhood was a wealthy one. Perhaps, instead of large Prestigious Families who couldn't own Mansions, the Young Lady-s of typical Prestigious Families attending St. Francis Girls' Academy seemed to live here. Even just entering the Mansion, the Security Guard blocked me, taking some Time. Of course, Asada Ei had told them in advance that there would be a visitor, so it took less Time than I expected. I took the elevator and pressed the 12th floor button. Without anyone getting on in between, the elevator quickly went up to the 12th floor. Tting~dong! I, who got off the elevator, pressed the Doorbell of room 1201. As if waiting, the Door opened with a Clink. "Ei-ssi, uh...!" Because of the Appearance revealed when the Door opened, I couldn't help but be speechless for a moment.</p>
+<p>Requested by MidNightSKY-nim, Shii-chan seductively tempting~! Liz eating delicious food~! Shii first~! While making erotic poses, I suddenly thought of a banana, so I made the last image hehehe Liz~! breast pudding haha The last one is a banana~! Requested by Hwanbuljeoldaebulga-nim, old version Lisa Home Economics teacher, Zero Two~! Lisa first~! Home Economics teacher~! Requested by ISaveI-nim, Phantom Thief Mother and daughter couldn't just drape the Gown over their Shoulders, so I just had them wear the Gown hehe Nae first~! Arisu~!</p>

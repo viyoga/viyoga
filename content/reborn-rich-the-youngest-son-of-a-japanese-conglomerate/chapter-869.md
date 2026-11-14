@@ -5,78 +5,63 @@ weight = 869
 chapter = 869
 +++
 
-<p>Sakagami Rena's next counseling partner was Otagi Yuka. Not long after Sakagami Rena left the Counseling Room, Otagi Yuka opened the door and entered.</p>
-<p>She had said she was Training with Shimokawabe Airen recently, and she seemed quite tired, as deep Dark Circles had descended under her eyes.</p>
-<p>In proportion to that hardship, she had to consume blood frequently, so Otagi Yuka came to my Home almost every night to suck my semen. Even without that, because of the Clan Lord Trait Evolution, the Status effect was attached, and I had to maintain my satiety level, so I couldn't refuse to give her semen. Naturally, since it was taking out semen, my mood, being subjected to it (?), was also good, you know.</p>
-<p>「Teacher-ssi, is the counseling going well?」</p>
-<p>「Well, it's just a formality.」</p>
-<p>To Otagi Yuka's Question, I answered, writing something in the counseling log. In Otagi Yuka's case, like Sakagami Rena, she was advancing to St. Francis Women's University, and since she was helping my Business, career counseling could end easily.</p>
-<p>「The Sakagami Family side told me to visit once, as I'm becoming Rena's Liege/Master. How about the Otagi side? Should I visit there too?」</p>
-<p>When I asked about the Otagi Family while I was already visiting the Sakagami Family, Otagi Yuka shook her Head.</p>
-<p>「...No. Rena is becoming independent, and my side has disowned the Family, so the Situation is completely different. Especially Vampires, who are blood relative-centered, perceive disowned individuals as other blood relatives, so there's no need for Teacher-ssi to go and give a greeting.」</p>
-<p>Otagi Yuka said, making a bitter Expression. In fact, as she said, Sakagami Rena's and Otagi Yuka's Situations were indeed different.</p>
-<p>If Sakagami Rena had chosen a Liege/Master according to the ninja tradition, Otagi Yuka was closer to being abandoned by her Family. When the Silver Stake Alliance came to deal with Otagi Yuka, the Otagi Family disowned her, no different from expelling her from the Family to minimize harm, so the Situation was completely different from Sakagami Rena's side.</p>
-<p>「Does the Clan Lord Trait seem to be progressing well?」</p>
-<p>Since the Otagi Family Matter wasn't a good thing, I asked Otagi Yuka if her Clan Lord Trait was progressing well, to change the theme. I displayed Otagi Yuka's recorded Trait window on the tablet.</p>
-<p>◆???Blood Clan Lord [??? Grade Race Trait]: By becoming the head of a faction, one can evolve into a higher Vampire and obtain abilities befitting that. Until this Trait is fully obtained, the Status effect is applied. [Evolution Rate: 7%]</p>
-<p>Since it was recorded as seen at that Time, the Evolution rate would have risen further, but Evolution had not yet been completely achieved.</p>
-<p>Otagi Yuka was struggling and having a hard Time fully obtaining this Trait, so I looked at the strategy guide I had recorded immediately after Possession at Home. As expected, looking at the Vampire Trait side, there were also Tips I hadn't told Otagi Yuka yet, so I made this the theme.</p>
-<p>「Feeling-wise, I think something is progressing, but from a certain Moment, it feels completely blocked, like I can't move forward?」</p>
-<p>「One of the conditions is that you must create at least one vassal. Since the Trait name itself is Clan Lord Trait, you need at least one vassal.」</p>
-<p>「Ah, is that how it is?」</p>
-<p>At my Explanation, Otagi Yuka asked back, making a somewhat awkward Expression. As I looked at her with an Expression as if asking why, she opened her mouth, her awkward Expression unchanged.</p>
-<p>「Most Vampire Families would be like that, but the Otagi Family is also extremely careful about increasing vassals. I've also never made a vassal, not even once...」</p>
-<p>Ah, that's right. There's that too. In the underworld, there are also monster Hunters, and especially with the Silver Stake Alliance watching with wide open eyes, Vampire Families couldn't openly and recklessly increase vassals like in the Middle Ages. Also, there was a perception unique to Vampire Families, a chosen people ideology, that their precious blood could not be carelessly mixed with humans.</p>
-<p>Of course, some Vampire Clans, which could be called Opponents of the Silver Stake Alliance, don't care about such things and recklessly increase vassals, but exposed Families like the Otagi Family tended to be careful about increasing vassals.</p>
-<p>「Of course, if I decide to make one, I can make anyone, but I want to find someone a little more cautiously. If possible, I'd prefer an excellent Person, and most importantly, I have to ask if that Person even wants to become a Vampire...」</p>
-<p>Otagi Yuka also seemed to be a cautious type. In fact, if she just made up her mind, she could grab anyone walking on the night street and make them a vassal, but Otagi Yuka didn't seem to want that kind of method.</p>
-<p>「For now, regarding vassals, let's try to find a suitable Person together. I'll tell Am-sang or our Joseodang side, so we'll be able to find them.」</p>
-<p>「Understood. Thank you, Teacher-ssi.」</p>
-<p>At my Words that I would help find a Person suitable to become a vassal, Otagi Yuka gave her greeting of thanks with a touched Expression. It was Otagi Yuka, looking at me with a hot gaze as if to strip off my Clothes immediately, but suddenly the door opened with a Knock, and Otagi Yuka's hot passion cooled down.</p>
-<p>「Liege/Master.」</p>
-<p>Suddenly, the one who opened the door was Sakagami Rena.</p>
-<p>「Sorry, but during counseling, my Father says he wants to invite you today, if it's alright.」</p>
-<p>「Ah, really? Until what Time should I go?」</p>
-<p>To bring it up and say let's meet today, Sakagami Rena's Father, Sakagami Ginshiro, seemed to have quite an impatient Personality. And since I had to give a definite answer about whether I could go or not for them to prepare to welcome me, it seemed she hastily opened the door during counseling.</p>
-<p>「I think it would be fine if you came to our Home around 6 o'clock, which is dinner Time.」</p>
-<p>「Understood. I'll go to match that Time.」</p>
-<p>「I'm done with counseling too, so shall I slowly get up...! Teacher-ssi, see you in the club room~!」</p>
-<p>As it was decided that I would go to the Sakagami Family today, Otagi Yuka also said counseling was over and stood up from her seat. Perhaps because she couldn't help but be compared with the Otagi Family who had disowned her, her Expression wasn't very good. I'll have to give her some Comfort later. Since she'll come for blood replenishment tonight too, you know.</p>
-<p>Although the Sakagami Family was a ninja Family, the Sakagami Family's Miyashi mansion outwardly appeared to be an ordinary Japanese-style mansion. Compared to the Size of giant Family mansions like Minamoto or Kujo, it was smaller, but it was well-built in a traditional-looking style. Well, I don't know much about architectural methods, you know.</p>
-<p>「L-Liege/Master. Oh, you've come?」</p>
-<p>「Yes, your Kimono is pretty.」</p>
-<p>「Liege/Master also suits the Suit well.」</p>
-<p>Lightly stroking Sakagami Rena's Head, which was reddening as if slightly embarrassed, I stepped my Feet into the Sakagami Family mansion.</p>
-<p>As Sakagami Rena and I passed, the servants and Maids cleaning the mansion bowed at the waist and gave greetings, and almost all of them seemed to have trained bodies. They were probably all low-ranking ninjas.</p>
-<p>Like that, as I followed Sakagami Rena's guidance, I arrived at the Sakagami Family's inner quarters, and there were Family members wearing Kimonos, with similar purple-toned Hair to Sakagami Rena. These People were probably...</p>
-<p>「Hahaha! Welcome, Teacher-nim. I am Sakagami Ginshiro, Rena's Father.」</p>
-<p>The handsomely built middle-aged man with dark purple Hair standing at the very front seemed to be Sakagami Ginshiro. Sakagami Ginshiro welcomed me, laughing heartily.</p>
-<p>I inadvertently shook Hands with Sakagami Ginshiro and began to receive introductions to the Sakagami Family members.</p>
-<p>「This here is my Wife, Shiine.」</p>
-<p>「Hello, Teacher-nim? I've heard a lot of stories about Teacher-nim from Rena.」</p>
-<p>「Ah, yes. Yes, hello.」</p>
-<p>Sakagami Rena's mom, Sakagami Shiine, was a beautiful Wife with Silver hair close to White hair, and seeing Sakagami Ginshiro and Sakagami Shiine, Sakagami Rena seemed to have inherited half and half of both Parents' Hair colors.</p>
-<p>Besides Sakagami Rena's two Parents, I was introduced to Sakagami Rena's Uncle, Aunt, and Cousin Siblings.</p>
-<p>「Rena's Older Brother is attending graduate school in Tokyo, so he couldn't attend today.」</p>
-<p>I knew Sakagami Rena had an Older Brother, but I didn't know he was a graduate student. As Sakagami Shiine made an apologetic Expression because her Son couldn't attend, I smiled as if it was alright.</p>
-<p>「Ah, instead of standing like this... Please come Inside. I've prepared a meal.」</p>
-<p>After greeting the Sakagami Family members for a while, I was guided to the restaurant. As I entered the restaurant, a neat and tidy evening meal of traditional Japanese cuisine was set on a low dining table.</p>
-<p>「What's prepared isn't much, but please eat deliciously.」</p>
-<p>As everyone sat in their Seats, the meal began. As if Sakagami Rena had told them my meal amount, the quantity of food served in front of me was quite a lot. Befitting a noble Family's meal, all the food was excellent, so I could enjoy the meal deliciously.</p>
-<p>「Sorry, Teacher-nim.」</p>
-<p>Like that, as everyone finished the meal, Sakagami Ginshiro, the Head of Family of the Sakagami Family, looked at me and bowed at the waist.</p>
-<p>「Yes? What...?!」</p>
-<p>「Originally, according to tradition, the principle is not to care for the retainers of an independent Family, but because she is a Daughter raised preciously since childhood...」</p>
-<p>It wasn't that I didn't understand Sakagami Ginshiro's Words. No matter how much it was a ninja Family, if a 20-year-old Daughter who had just become an Adult said she was serving some man and becoming independent, it would rather be strange if they didn't care.</p>
-<p>「Sorry, but may I Test Teacher-nim?」</p>
-<p>The Word 'Test' came out, and seeing Sakagami Ginshiro's Expression, his kind Attitude until now was gone, and he was looking at me with an Expression as if looking at a daughter-thief, saying, 「I can never give my Daughter!」</p>
-<p>Requested by Hogamyudonggolbaengi-nim: Home Ec Teacher and Alik, wearing Management Swimsuits~!</p>
-<p>Starting with Alik~!</p>
-<p>Alik with animal ears suddenly popping out hehehe</p>
-<p>Home Ec Teacher~!</p>
-<p>Requested by TheDreaming-nim: Ryuta fighting, wrapped in Genesis Chaos, Gold Sun version and Gold Sun released version~!</p>
-<p>Gold Sun~!</p>
-<p>Black Hair, no Tanning Ryuta</p>
-<p>I tried to make the Genesis Chaos Gi feel like it was mixed with purple and dark blue, but it didn't turn out well hehe.</p>
-<p>Requested by ISaveI-nim: Alik wearing a Geobukseon-ryu Martial Arts Uniform~!</p>
-<p>Alik dressed a little provocatively especially today ㄷㄷ</p>
+<p>are breast exposure please there view with</p>
+<p>"Something is strange."</p>
+<p>Takakusaki Gengo muttered. Takakusaki Gengo, who had fought countless Battles, possessed a Beast-like Sixth Sense. His Beast-like Sixth Sense gave him a Feeling that something was going awry in the upcoming fight with Fujigasaki Rinka and her Disciple, Kinui Tachio, Shimokawabe Airen, and others, which was to take place the day after tomorrow.</p>
+<p>"What is strange?"</p>
+<p>Hojo Otoji, Anyaji's second-in-command, who stood beside Takakusaki Gengo, pushed up his Glasses and asked Takakusaki Gengo, but Takakusaki Gengo shook his Head.</p>
+<p>"Well.... I don't know what's strange."</p>
+<p>"Perhaps it's because various Large Corporations are coming into Miyashi for St. Francis Girls' Academy's Graduation ceremony tomorrow? But the day after tomorrow is not a special day, so all the Large Corporations that came in will have left, and there will be no one to interfere with our Work."</p>
+<p>No matter how peerless a Master of Fist Technique Takakusaki Gengo was, the Large Corporations dominating Japan had Enemies that rivaled or surpassed him. Hojo Otoji subtly suggested that Takakusaki Gengo's Sensitive Nerves might be due to that.</p>
+<p>"Yes, that could be."</p>
+<p>"In fact, the only People to be wary of in tomorrow's Battle are Fujigasaki Rinka, old man Kinui Tachio, and Shimokawabe Airen, aren't they? With so many Masters arrayed in our Anyaji, the Possibility of losing is almost nil. Fujigasaki Rinka's Disciple and the remaining individuals who could be called Enemies can all be seen as mere Children, so there's no need to worry much about them."</p>
+<p>Hojo Otoji spoke with Confidence. Although Anyaji was not Japan's strongest faction, he felt no great Taut Tension about this Battle because he had the Conviction that the Possibility of losing against such Enemies was almost non-existent.</p>
+<p>Of course, this time they were facing Fujigasaki Rinka, who could be called Anyaji's greatest Opponent, but Anyaji also had Confidence in facing Fujigasaki Rinka because they had cultivated Fist Technique practitioners called White Light Fist Technique practitioners, who could boast extreme Compatibility/Affinity against Fujigasaki Rinka, by researching Takakusaki Athena's white Aura.</p>
+<p>"It's good to see you so confident. Otoji, I can trust you, right?"</p>
+<p>"Of course. With this Operation, there will be no Enemies in the Miyashi area capable of opposing Anyaji. Since Fujigasaki Rinka will also be gone, those Guys from the Fist Alliance will naturally try to come under our Subordinate."</p>
+<p>"We'll see about that. No matter how confident you are, it's better to focus on the Miyashi fight right before your Eyes rather than on future Matters."</p>
+<p>Takakusaki Gengo, who had instilled a sense of caution in the overly confident Hojo Otoji, thought about his Sixth Sense, which was faintly ringing a Bell of warning.</p>
+<p>Takakusaki Gengo, after a moment of thought, reached a Conclusion. There was no Problem. He thought that this level of uneasy Sensation before a Battle was natural. After all, his Opponent was Fujigasaki Rinka, Anyaji's and his own greatest Opponent.</p>
+<p>Valentine's Day, when I received many chocolates, had also passed. Besides the special class where I was the Class Teacher, I had received chocolates from St. Francis Girls' Academy Students and Teachers, Miyashi City High School Students, Miyashi's Career Women, and even my Lovers whom I couldn't meet due to my Mission, so of course, I couldn't eat them all.</p>
+<p>There were some, like Minamoto Lisa, Seizawa Shii, and Taira Kanna, that were too precious to eat, so I just left them, and since the quantity was so immense, for my Health, I decided to put all the chocolates in the refrigerator and eat them gradually over several months.</p>
+<p>After such a hectic Valentine's Day, we finally gathered on Sunday to conduct the last check on the Match against Anyaji, which would take place on Tuesday.</p>
+<p>There was no new content; it was a Time for a final check of what we had continuously discussed in Meetings. Of course, since it was an undertaking by People, and we didn't know what Variables might arise, we decided to Contact each other and respond organically according to The Situation.</p>
+<p>After finishing the Preparation for the Anyaji affair and roughly completing my Study for the PMC Test on the same day, Sunday had already passed.</p>
+<p>Finally, the day of St. Francis Girls' Academy's last schedule, the Graduation ceremony, dawned.</p>
+<p>St. Francis Girls' Academy's Graduation ceremony was, of course, one of the most important schedules from the academy's perspective. This year was especially important because among the graduating Students were Taira and Minamoto.</p>
+<p>As Minamoto Lisa, who should have graduated last year, was Held Back a Year, this year's Graduation ceremony became a major Event where the Young Lady of the Tairaga Family and the Young Lady of the Minamoto Family graduated simultaneously.</p>
+<p>Naturally, as it was their Daughters' Graduation ceremony, Taira Danjo and Minamoto Ushin attended, and at the appearance of these two Giants of Japan's business world, numerous famous Characters from political, business, and noble families expressed their Intention to attend St. Francis Girls' Academy's Graduation ceremony.</p>
+<p>So many People expressed their Intention to participate that St. Francis Girls' Academy only allowed current Students, graduating Students' families, or related individuals to attend, which prevented Miyashi and St. Francis Girls' Academy from becoming Commotion.</p>
+<p>In fact, the Graduation ceremony itself wasn't long enough for any Lobbying, and if People needlessly swarmed Taira Danjo and Minamoto Ushin, causing an Accident, or if those two ill-tempered old men got angry, St. Francis Girls' Academy would have to take Responsibility. So, allowing only family and close relatives was a wise Measure.</p>
+<p>I woke up early in the Morning and, for the first Time in a while, put on a Suit. Old man Taira Danjo and Minamoto Ushin would be watching me as their Daughters' Class Teacher, and many Parents would also be present, so I couldn't wear a tracksuit like at the Sports Festival.</p>
+<p>"Hmm, that Guy is handsome...!"</p>
+<p>While tying my Necktie, I looked in the Mirror, admired my Beauty (?) for a moment, then casually styled my Hair, picked up my document Bag, and stepped Outside the House.</p>
+<p>"The Weather is nice too."</p>
+<p>Even though today was Graduation, my Mission wasn't entirely over. To finish the Work of Yamashiro Ryuta, the Korean language Teacher and special class Class Teacher at St. Francis Girls' Academy, some Paperwork was needed after the Graduation ceremony.</p>
+<p>At most, it was a Matter of a few days, and since Minamoto Lisa, the Target of my Mission, was graduating, it was effectively true that my Work ended today.</p>
+<p>Taira Danjo had Contacted me yesterday, saying he wanted to see me today, so I probably had to Report on my Mission today.</p>
+<p>In fact, this had been quite a Worry for a while. After I Resolved to be with Minamoto Lisa, I cast aside such Worries, but surely, old man Taira Danjo would get incredibly angry when he heard my Story.</p>
+<p>As I walked, lost in various Thoughts, I soon arrived at St. Francis Girls' Academy's main gate. Having commuted this Route for the past few months, it had become second nature to my Body.</p>
+<p>Since it wasn't yet Time for Students to arrive, I passed through the quiet main gate, greeting the Security Guard as I entered.</p>
+<p>"You're working hard."</p>
+<p>"Just one more day of hardship, Yamashiro seonsaengnim~!"</p>
+<p>Because they were Security Guards whom I had slipped some Money each month to ask for Convenience, their Expressions towards me were always friendly. Of course, a slight regret that they wouldn't receive anything from next month remained in their Expressions, but that couldn't be helped. At that Time, I wouldn't even be a Teacher at St. Francis Girls' Academy, so there would be no Reason to slip them Money.</p>
+<p>Passing the main gate, I exchanged greetings with the Students who had arrived early at School and headed towards the special class building. Thinking that today was effectively the Last day, I felt a little sentimental.</p>
+<p>I had only been appointed since September, barely six months, yet I felt this Mood.... Was it because I had aged a year that female Hormones were coming out? No, that wasn't it. It must be because so many things had happened at St. Francis Girls' Academy.</p>
+<p>In front of the special class building stood a Filming team I hadn't seen before. It was Uenozono Karen's MyTube vlog team, whom I had seen once during the Sports Festival, and they had Contacted me last week to request Filming cooperation.</p>
+<p>Today, they were scheduled to Film a Video of the special class graduating Students, including Uenozono Karen, and I understood that their agency had specifically Requested it because Videos of the special class, which always had many Beautiful Women, were very popular. I wondered if Taira Kokoro would also come today. If possible, I should try to talk to Taira Kokoro today.</p>
+<p>"Hello."</p>
+<p>I greeted the vlog Filming team, entered the special class building, passed through the familiar corridor, and opened the equally familiar education preparation room door. As I came, I noticed that there was no presence in the Infirmary Opposite Side the education preparation room.</p>
+<p>Kijimoto Jurie didn't seem to have Gone to Work yet. In fact, no one would know if the Infirmary Teacher didn't come to the Graduation ceremony, so she didn't have to, but Kijimoto Jurie was very close with Naruse Shiyo, who had a weak Body, and although she didn't have an official title, she played a significant Role as the special class assistant Class Teacher, so she was close with the Students and would therefore participate in today's Graduation ceremony.</p>
+<p>I sat in the education preparation room for a moment, doing the remaining Paperwork, and soon heard the sounds of Students arriving at School. I glanced at the Clock on the desk, roughly finished the Paperwork, picked up the tablet that served as the Attendance Book, and left the education preparation room.</p>
+<p>Outside, a Filming team was waiting, perhaps to capture the Last Morning Jorye. Among the Filming team, I saw Taira Kokoro, a Beautiful Woman who looked strict. I gave a slight eye-greeting, passed the Camera, and opened the special class door.</p>
+<p>Requested by Gojoy-nim: Muko Neika's casual attire and underwear~!</p>
+<p>Casual Attire~!</p>
+<p>A cyber Suit that could be called casual attire because she does a lot of Missions haha</p>
+<p>Her real casual attire is a white T-shirt + Jeans + pistol holster haha</p>
+<p>Underwear~!</p>
+<p>Muko Neika can't give up her holster even in her underwear haha</p>
+<p>Requested by TheDreaming-nim: Han Yu-gyeong 1. Pressing her breast against the Glass inside a Phone Call booth. 2. Holding her breast and a phone Camera Situation!</p>
+<p>1.</p>
+<p>2.</p>
+<p>I don't know why, but the T-back isn't appearing ㄷㄷ</p>

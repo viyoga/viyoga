@@ -5,87 +5,86 @@ weight = 750
 chapter = 750
 +++
 
-<p>...Here it comes. Actually, since Shido Tsubaki knew that I was the Black Knight, I thought she would question this news and come looking for me.</p>
-<p>In the past, when the Daigo family's succession war, to which Saint Francisco Girls' Academy belonged, occurred, Oofuchi Erika was kidnapped.</p>
-<p>At that time, I worked with Shido Tsubaki and some other students to save Oofuchi Erika. To avoid revealing my abilities, I sent Shido Tsubaki back, but I transformed into the Black Knight, and Shido Tsubaki, who didn't go home and somehow saw my appearance, found out that I was the Black Knight. And during the drug case, she revealed to me that she knew my identity as the Black Knight.</p>
-<p>,Let's go inside and talk.,</p>
-<p>I couldn't keep Shido Tsubaki standing in front of my house, and I couldn't talk about the Black Knight on the street, so I brought Shido Tsubaki inside first.</p>
-<p>,Can you tell me in detail?,</p>
-<p>I brought out orange juice and asked Shido Tsubaki, pretending not to know. Shido Tsubaki took a sip of the orange juice and slammed the empty glass down.</p>
-<p>,Suddenly, there was an announcement that the Black Knight is American.,</p>
-<p>,Huh? Announcement?,</p>
-<p>I knew there were rumors that the Black Knight was American, but I didn't know there was an official announcement. Did something pop up? At my question, Shido Tsubaki showed me her phone screen.</p>
-<p>-U.S. Army Superpowers Response-Support Department Director Kamron Broussard: "The Black Knight is American, and we can request cooperation in suppressing superpower terrorists at any time."</p>
-<p>What? The U.S. Army Superpowers Response-Support Department was a superpower soldier organization to which Aitana, who fought against famine with me, belonged. It seemed that the Federal Superpower Management Department, which negotiated with me, had shared the information. I should ask Diana Leach about this later.</p>
-<p>,Is it important to you that the Black Knight is American?,</p>
-<p>I suddenly became curious about what Shido Tsubaki was thinking and asked. Judging from her usual attitude, I didn't think she was a patriotic person. From the perspective of the general public, there is not much difference whether the Black Knight is American or Japanese.</p>
-<p>,It's just that the Black Knight I know, that is, Sensei-nim, is Japanese, but suddenly the announcement says he's American, so I'm curious.,</p>
-<p>It seemed that she came to me not out of patriotism, but out of the curiosity that a reporter would have: Why is it different from the information I know?</p>
-<p>,I'll answer you, but it's for your safety, so it's off the record. If you write an article about it, you might be attacked by the United States, or you might be attacked by superpower criminals. It's not just your own danger, Oofuchi-ssi will be in danger too.,</p>
-<p>,...I understand.,</p>
-<p>Of course, Shido Tsubaki would know the danger of dealing with the Black Knight well. Especially in a small newspaper like Search Eye, not a large newspaper, if they covered this truth instead of a flyer, it could disappear without a trace.</p>
-<p>,Because of the video of me catching Gao Xiang, the United States started to recognize me as a dangerous element. So I was forced to choose between joining the United States or becoming their enemy.,</p>
-<p>,I see. Those Americans...,</p>
-<p>Shido Tsubaki nodded at my simple explanation. She seemed to realize what had happened.</p>
-<p>,Then what about your Japanese nationality? Japan does not allow dual citizenship, does it?,</p>
-<p>,I didn't want to give up my nationality by force either. So I asked them to create a new American identity for me. Strictly speaking, the Black Knight is not yet American. Because I don't have an ID card yet.,</p>
-<p>I guess this is enough to tell her? There's nothing else I can tell Shido Tsubaki here. If I go deeper, there will be topics that are difficult to talk about with Simyeon or Simyeonui ttal or Shido Tsubaki.</p>
-<p>,Okay? This is off the record as I just said?,</p>
-<p>,But why did you bother to go all the way to North China to catch that terrorist leader Gao Xiang?,</p>
-<p>She seemed to have a lot of questions because she was a reporter. I took a moment to organize my thoughts. I had to classify what I could and couldn't tell Shido Tsubaki.</p>
-<p>,An acquaintance of mine went there without knowing that it was a Red Revolution Front base, thinking it was just an abandoned research lab, and was caught, so I went to save them. I had no choice but to fight the Red Revolution Front to save my acquaintance.,</p>
-<p>,I see.,</p>
-<p>Shido Tsubaki nodded at the story I told after filtering it appropriately.</p>
-<p>,Then... I'll ask one last question. If I, or our classmates, are in danger, will the Black Knight step in?,</p>
-<p>,The Black Knight stepped in when Oofuchi-ssi was kidnapped, didn't he? The rest of the students will be the same.,</p>
-<p>In fact, I can't transform into the Black Knight now because I don't have Simyeon or Simyeon Bu-gun's combat equipment, but I nodded at Shido Tsubaki's question. I don't need my strength right now. If it's urgent, I can just put on a combat helmet and a cyber suit and run over there.</p>
-<p>,You're still our homeroom teacher. I understand, I'll go now.,</p>
-<p>,Okay, see you at the opening ceremony tomorrow.,</p>
-<p>Shido Tsubaki had a refreshed expression as if something had been resolved. After sending Shido Tsubaki back, I started doing the remaining work. But that didn't last long either. Otagi Yuka, who was short on Semen, came to my house saying, "Sensei-ssi~! Milk!"</p>
+<p>"Fumimotossi, isn't the security cost for Kanna Agassi too low?"</p>
+<p>The one calling out to Fumimoto Takayuki, Taira Danjo's first secretary and chief of staff, was Susuda Yoshitatsu, one of the trainee secretaries that Fumimoto Takayuki was raising as his successor.</p>
+<p>Being a trainee secretary isn't a high position, but being a trainee secretary at the Taira Group headquarters at such a young age in his early twenties proves that his talent is extraordinary. No one could easily reach that position at such a young age.</p>
+<p>Susuda Yoshitatsu's job was to review the various documents that Fumimoto Takayuki gave him and point out any shortcomings, and what he was pointing out now was Taira Kanna's security budget.</p>
+<p>Of course, Taira Kanna is a girl and a student, so she's not an important figure, but since she's still a minor, they could set a budget that seems excessive, but Susuda Yoshitatsu thought they weren't using nearly enough money.</p>
+<p>"Ah, it's okay."</p>
+<p>"Really? I don't understand... You know that we who reviewed this budget are also responsible if Agassi gets hurt, right?"</p>
+<p>Fumimoto Takayuki tried to brush it off as okay, but Susuda Yoshitatsu said it as if he didn't understand. Fumimoto Takayuki thought that Susuda Yoshitatsu wouldn't just let it go, so he put the documents he was reviewing on the desk and looked at Susuda Yoshitatsu.</p>
+<p>"Hmm... Okay, I'll give you a promotion a little early. The information I'm about to tell you is something that a mere trainee secretary can't know."</p>
+<p>"Really? I can finally get rid of this damn trainee title!"</p>
+<p>To talk about this budget, he had to talk about Taira Kanna's personal information, which was not something a trainee secretary could hear.</p>
+<p>Fumimoto Takayuki thought that Susuda Yoshitatsu should slowly start doing full-fledged secretarial work and learn more about the Taira Group, so he decided to promote Susuda Yoshitatsu since this story came up.</p>
+<p>"Secretary Susuda Yoshitatsu, this story can only be heard by those who are qualified. If you recklessly reveal this story..."</p>
+<p>"I'll be punished, very severely."</p>
+<p>Before starting the story, Fumimoto Takayuki told Susuda Yoshitatsu the importance of this information. Susuda Yoshitatsu nodded as if he understood.</p>
+<p>As a secretary who hears various news within the Taira Group, Susuda Yoshitatsu knew what kind of punishment an employee who leaked Taira Group information would receive, so he never intended to reveal the secret.</p>
+<p>"Okay. Then I'll tell you. Kanna Agassi is a very late child. Chairman-nim had Kanna Agassi in his 60s and Madam in her 40s. It's a very old age."</p>
+<p>"That's right. I don't remember it well, but I heard that it was quite a topic as the Taira Group's late child."</p>
+<p>"Yes, Kanna Agassi has been under the management of Taira Bio since her birth, that is, since she was pregnant."</p>
+<p>Susuda Yoshitatsu was silent for a moment at the mention of Taira Bio. He didn't know that Taira Bio, one of the two companies that control the Taira Group, Taira Robotics and Taira Bio, would come out here.</p>
+<p>Susuda Yoshitatsu had little information about Taira Bio and Taira Robotics at the trainee level, so Susuda Yoshitatsu's impression of Taira Bio was that it was secretive and mysterious.</p>
+<p>Taira Bio was where numerous prestigious researchers from Japan and the world were studying biotechnology, and each technology that came out of Taira Bio was amazing.</p>
+<p>Few people knew that the now popular bio-modification technology came from Taira Bio. It came out during the chaotic situation of World War III.</p>
+<p>In addition, amazing technologies came out of Taira Bio and Taira Robotics, and it was said that it advanced humanity by one step.</p>
+<p>"Then..."</p>
+<p>"Yes. Kanna Agassi received bio-modification even before she was born."</p>
+<p>The direct descendant of the Taira Group received bio-modification...! Susuda Yoshitatsu realized why Fumimoto Takayuki removed his trainee title. It was information that was too heavy for a trainee secretary to know.</p>
+<p>In particular, receiving bio-modification from the time of the fetus could be seen as a violation of scientific ethics, so he could understand why Fumimoto Takayuki promoted him. He must be telling him not to reveal the story he just heard.</p>
+<p>"Then, is Kanna Agassi a kind of... test subject?"</p>
+<p>"That's not it. We applied the research results extracted from the numerous experiments and test subjects that Taira Bio has had."</p>
+<p>Fumimoto Takayuki shook his head at Susuda Yoshitatsu's cautious question, denying Susuda Yoshitatsu's hypothesis. However, Susuda Yoshitatsu thought that even with that, he couldn't confidently answer no to the question of whether Taira Kanna could not be said to be a test subject.</p>
+<p>"In the end, the reason why the security budget is low is because Kanna Agassi's strength is that strong."</p>
+<p>"Yes. If she wants to, she can take on about one squad of the famous Taira Special Forces."</p>
+<p>Susuda Yoshitatsu couldn't tell if Fumimoto Takayuki was really saying that or if he was saying it as a joke. That's how high the reputation of the Taira Special Forces was.</p>
+<p>"Still, in the end, isn't it Agassi's body that's strong? If the technology doesn't support it..."</p>
+<p>"Kanna Agassi has been loved by the old monsters of the back garden since she was young. Agassi learned the talents of those old monsters. As you said, there's no chance that the technology will be lacking."</p>
+<p>The Taira, which was a rising family, could not hire talents from prestigious families in the early days, so instead, they recruited numerous hidden talents. Among them were many talented people with excellent martial arts skills or various unique skills, and they were living in retirement in the back garden of the Taira main family.</p>
+<p>There were so many unique and strong people that not only Fumimoto Takayuki but also those who knew their identities called the retired elders of the back garden old monsters.</p>
+<p>Fumimoto Takayuki argued that if Taira Kanna learned various martial arts, assassination techniques, and various skills among those old monsters since she was young, she would never lack skills.</p>
+<p>"So, the security budget will remain the same...?"</p>
+<p>"Yes, there's no need to do that. Of course, when Kanna Agassi graduates and joins the succession competition, she'll form her own security organization... but for now, it's okay to leave it as it is."</p>
+<p>At Fumimoto Takayuki's firm words, Susuda Yoshitatsu closed the documents regarding the Taira family's security budget.</p>
+<p>"Still, I'm grateful to Kanna Agassi for getting promoted by hearing this story."</p>
+<p>"Hehe, is that so? Now that you've gotten rid of the trainee title, you'll have more work to do."</p>
+<p>"I've had a lot of work until now...?"</p>
+<p>Susuda Yoshitatsu's joy at being promoted did not last long due to Fumimoto Takayuki's declaration of excessive workload.</p>
 <p>###</p>
-<p>,Eumnya, eumnya. Sensei-ssi...! I can't drink any more milk.,</p>
-<p>I woke up to Otagi Yuka's sleep talking. It's my first day back to work in a long time. Even though it's a relaxed Saint Francisco Girls' Academy teacher life, I didn't want to go to work after a long time.</p>
-<p>I watched the morning news on my phone and rolled around until the last minute before getting up.</p>
-<p>,Hey, Yuka, wake up.,</p>
-<p>Slap! Slap!</p>
-<p>I woke Otagi Yuka up by slapping her white, bouncy butt, but it seemed that just slapping her butt wasn't enough to break through the vampire's defense.</p>
-<p>I had no choice but to remove the blanket and throw open the window. The cold wind of January came in and drove away the lewd smells of sweat, saliva, vaginal fluid, and Semen that had accumulated overnight.</p>
-<p>,Ah, it's cold...! ,</p>
-<p>,Get up if you're cold.,</p>
-<p>Slap! Slap!</p>
-<p>I slapped her butt again, and she finally opened her eyes, saying it was cold.</p>
-<p>,Wash up in the room bathroom. I'll wash up in the outside bathroom.,</p>
-<p>,Okay, Sensei-ssi.,</p>
-<p>I put a few slices of bread in the toaster and went to the shower room. When I came out after washing with hot water, the toast was nicely toasted. I grilled eggs, sausages, and bacon and put them on a plate.</p>
-<p>I had consumed quite a few calories thanks to Otagi Yuka, so I had to eat this much from the morning.</p>
-<p>,Eat breakfast~!,</p>
-<p>When I sat at the table and shouted, I heard Otagi Yuka's response, and Otagi Yuka, with a towel wrapped around her head, came and sat down.</p>
-<p>,I'll eat well, Sensei-ssi~!,</p>
-<p>,Okay. Eat a lot.,</p>
-<p>Both of them were hungry, so for a while, only the sound of clattering plates and forks hitting each other could be heard.</p>
-<p>,Did you study for the exams during the vacation?,</p>
-<p>,Shouldn't I just do as I learned?,</p>
-<p>Otagi Yuka didn't care about her grades because she had decided to go to Saint Francisco Women's University, which she would automatically advance to from Saint Francisco Girls' Academy. So, even when I asked her if she had studied, she answered with a relaxed expression without any sense of crisis.</p>
-<p>,Well, okay. Put the dishes in the dishwasher and get ready.,</p>
-<p>I nodded and got up from my seat first. I had to go to work earlier than the students, so I was busier than the still relaxed Otagi Yuka.</p>
-<p>If I changed my clothes and carried my briefcase, I was ready to go to work.</p>
-<p>,Have a good day~!,</p>
-<p>,You're coming too!,</p>
-<p>I retorted at Otagi Yuka's words, which sounded like she was seeing off her husband to work, and left the house. As I walked through the cool morning air, I saw the Saint Francisco Girls' Academy building, which I hadn't seen in a long time.</p>
-<p>Since I had to participate in a meeting in the faculty room on the first day of the semester, I didn't stop by the special class building and went straight to the faculty room to greet the teachers I hadn't seen in a long time and participate in the meeting.</p>
-<p>The meeting didn't have any special content. It was just about finishing the last semester well and submitting the exam questions for the exam in two weeks as soon as possible.</p>
-<p>I exchanged subtle glances with Daigo Terue and Matsunaga Yuzuki, who participated in the meeting. When Matsunaga Yuzuki and I exchanged meaningful glances, Matsunaga Yuzuki's ex-husband, Kasaoka Koki, made a strange noise, "Keuek!" but he was now an unrelated ex-husband, so he couldn't do anything to me.</p>
-<p>When the meeting ended and I returned to the special class building, it was almost time for the morning assembly, so I had no choice but to throw my bag in the education preparation room and go straight to the classroom.</p>
-<p>Deureureuk!</p>
-<p>When the classroom door opened, the special class female students sitting at their desks were all looking at me with sparkling eyes.</p>
-<p>,Ryuta-jji!,</p>
-<p>,,Sensei-nim~!!,,</p>
-<p>,Ryutta...!,</p>
-<p>I was happy to hear the students calling me, even though it had only been two weeks. I smiled and went to the podium.</p>
-<p>,It's been a while, you special class troublemakers.,</p>
-<p>,Woo~! Sensei-ssi is the biggest troublemaker!,</p>
-<p>,Woo! Woo! That's right! Ryuta-jji is the biggest troublemaker~!,</p>
-<p>,Ryutta... troublemaker?,</p>
-<p>The sight of them booing at my greeting was like coming home. I smiled and started the morning assembly.</p>
-<p>_____</p>
-<p>Minamoto Risa Furisode~!</p>
+<p>"I can't give Ryuta-oppa to you with just this. Prove your qualifications to me."</p>
+<p>Prove her qualifications to Taira Kanna...! No matter how much Taira Kanna is the student council president of St. Francisco Girls' Academy and the daughter of the Taira family, it was an excessively arrogant statement.</p>
+<p>"Prove your qualifications? Even if you were born in a palace, you can't judge us recklessly!"</p>
+<p>Otagi Yuka, angered by Taira Kanna's words, shouted and rushed forward. Red bloodlust overflowed from Otagi Yuka's hands, making Taira Kanna look as precarious as a candle in the wind. It seemed like Otagi Yuka's fingernail marks would appear on her face at any moment.</p>
+<p>Taira Kanna raised her rapier without a sound to match Otagi Yuka's attack. The trajectory was exquisite, allowing her to accurately block Otagi Yuka's attack.</p>
+<p>Taira Kanna flicked Otagi Yuka's hand with just a flick of her wrist. Otagi Yuka's expression changed at the flick. It was just one match, but she felt that Taira Kanna's skills were unusual.</p>
+<p>"Were you hiding your skills?"</p>
+<p>"Let's just say there was no need to show my skills."</p>
+<p>In fact, Otagi Yuka thought that Taira Kanna might be strong. In particular, the skills she showed in the fencing Red and White match at the sports day were so considerable that a master could feel that her skills were considerable.</p>
+<p>However, just flicking her wrist to repel Otagi Yuka like now proved that Taira Kanna had tremendous physical abilities beyond her skills.</p>
+<p>"Yuka, you're not normal right now. I thought you would be the most dangerous based on my judgment, but are you sick somewhere?"</p>
+<p>Taira Kanna realized that Otagi Yuka was not normal with just one exchange. That's because it didn't reach Otagi Yuka's martial arts skills that Taira Kanna had investigated in advance.</p>
+<p>"Keuk...! Even if I'm not normal, I can still handle someone like you!"</p>
+<p>"Yuka, it's not a fair fight anyway, and we came to rescue the teacher, so let's work together."</p>
+<p>Saionji Diana, who had been watching the two fight silently, stood next to Otagi Yuka in a sword and gun style, holding a sword and a gun each.</p>
+<p>"It's not that I like Yuka-cchi, but we have to work together to save Ryuta-jji quickly."</p>
+<p>Seizawa Shii also stood next to her, cracking her fingers. The remaining Sakagami Rena and Konoe Akina pointed their guns from behind and aimed at Taira Kanna, and Alik was preparing to charge, crackling with electricity from his body.</p>
+<p>"Everyone, come on. I'll take you all on at once."</p>
+<p>Taira Kanna, who was watching the scene, smiled and beckoned them to come to her. Everyone was dumbfounded by Taira Kanna's confidence, the source of which was unknown. Except for Konoe Akina, the skills of the remaining students in the teacher rescue team were so outstanding that they could not be called students.</p>
+<p>"If you don't come, I'll go...!"</p>
+<p>"Alik... go!"</p>
+<p>As the rescue team students stood still in disbelief, Taira Kanna rushed in. Seeing this, Alik manipulated the current in his body and ran towards Taira Kanna at an incredible speed.</p>
+<p>A world slowed down by the incredible speed. Only Alik was moving at a normal speed. Alik swung his sword at Taira Kanna. No matter what bluff Taira Kanna was making, a human who was cut by a sword was dead.</p>
+<p>But Alik was feeling that something was wrong. Taira Kanna's eyes were accurately following the movement of the sword that Alik was swinging.</p>
+<p>'The same... time?!'</p>
+<p>He thought he was the only one in this slowed down world, but that wasn't the case. Taira Kanna was also living in the same slowed down world as Alik.</p>
+<p>Kuung! Kwakwakwa!</p>
+<p>An incredible roar and shockwave that was hard to believe that swords had collided swept through the underground space. Taira Kanna looked at Alik, who was facing her sword, with an interesting look. She was in a defensive posture, blocking the sword, but she seemed very happy, smiling deeply. It was like a lonely swordsman who had met a worthy opponent for the first time in a long time.</p>
+<p>"It seems like you have a similar ability to me? I thought you could only use electricity, but you also have the ability to control the current in your body."</p>
+<p>From what she said, it seemed like Taira Kanna also had the ability to control the current in her body like Alik. When Alik didn't say anything, Taira Kanna smiled and continued.</p>
+<p>"Good, good. Well...! Shall we play in the same time zone?"</p>
+<p>Taira Kanna made a creepy expression and raised her sword.</p>
+<p>_______________</p>
+<p>Kkan Yuka crop top + jeans + armpit illustration requested by RefundAbsolutelyImpossible-nim!</p>
+<p>Bonus Covered Yuka VER!</p>
+<p>Kkiyot~!</p>

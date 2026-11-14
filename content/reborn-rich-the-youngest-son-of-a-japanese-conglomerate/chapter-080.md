@@ -5,93 +5,84 @@ weight = 80
 chapter = 80
 +++
 
-<p>"To have such bad luck...!"</p>
-<p>Asako Ukie sighed. Today wasn't a group schedule, but a field visit to the subsidiary Asako Ukie belonged to, following their schedule. The other group members would be following the schedule of the talent development center, not a field visit. Today was... a teamwork training session with the mentor and group members.</p>
-<p>Asako Ukie sighed again. I wanted to do teamwork training with Prince Charming, no, Taira Ryuta-nim! Asako Ukie, shouting inwardly to who knows who, listened to the senior employee of the company who was explaining in front.</p>
-<p>"This is TIS (Taira IT Solutions). As you all know from applying, it's a place where Japan's best IT experts gather."</p>
-<p>"Wow!"</p>
-<p>"The building is huge!"</p>
-<p>Watching the other colleagues who seemed to have no worries unlike herself, Asako Ukie changed her expression. If I get a low evaluation for no reason, it will be a nuisance to my mentor, Taira Ryuta-nim.</p>
-<p>"This is the core facility of TIS..."</p>
-<p>When the tour that lasted all day ended and she returned to the dormitory, she ran into some of her group members in front of the dormitory. The group members also seemed to have finished their day well and were about to enter the dormitory building.</p>
-<p>"Asako-ssi, you're back?"</p>
-<p>The group members' expressions were good. Their hair was damp, as if they had just finished showering. But there's a shower room in each room, so where did they shower?</p>
-<p>"Where did you shower?"</p>
-<p>At Asako Ukie's question, they looked at each other and giggled. Why are they just laughing without answering? Feeling that their laughter was making Asako Ukie feel worse and worse, one of them answered as a representative.</p>
-<p>"There's a shower room in our group's conference room. We're coming back from showering there."</p>
-<p>"Ehh? Th-that, uh... Isn't the mentor-nim there?"</p>
-<p>They showered with the mentor-nim there? Slightly stuttering, she asked, and they looked at each other again. And they nodded as if they had agreed on something.</p>
-<p>"The mentor-nim left, and we cleaned up before leaving and sweated a lot, so we showered, right?"</p>
-<p>"Yeah! That's right."</p>
-<p>"We were so sweaty~."</p>
-<p>Asako Ukie thought she was possessed by a perverted spirit because the word "sweat" sounded so lewd, and nodded.</p>
-<p>"I want to shower in the conference room once too."</p>
-<p>"Asako-ssi's turn will come next time. It feels re~ally good, showering in the conference room..."</p>
-<p>It feels re~ally good, does the conference room building's shower room have some other function? Asako Ukie said, "I hope so," and entered her room. And to soothe her tired body from the tour all day, she took off her clothes and entered the shower room.</p>
-<p>The warm water poured from the showerhead, soaking her whole body. Showers are all the same. It should feel like this no matter where you do it, so why does it feel so good to do it in the conference room? Asako Ukie, unable to understand, lathered up a shower towel and scrubbed her body. The talent development center was all good, but there was a personal shower room in the room, but no personal bathtub. Of course, there was a large public bath in the talent development center that everyone could use, but she was a little reluctant.</p>
-<p>She didn't want to show herself to so many people. And Asako Ukie thought that if many people used it, it might be a bit of a hygiene problem.</p>
-<p>"But I'm going back home on the weekend, so I can soak in the bathtub then..."</p>
-<p>The talent development center was where they lived from Monday to Friday, but they could go home for the weekend on Saturday and Sunday. Those whose homes were too far away just stayed at the talent development center, but due to the strong personal tendencies of the Japanese, most of the new trainees had left the talent development center and gone outside during the weekends.</p>
-<p>Asako Ukie, who decided to soak in a hot bath at home for three consecutive days since she could leave from Friday evening, came out of the shower room.</p>
+<p>Nadachi Tojo disappeared. It wasn't just that he went into hiding, but it seemed he received a disappearing disciplinary action like the former deputy team leader, Kurakake Kuma. He's probably in some place answering questions about Minamoto, what he did at the Talent Development Center, and whether there are other spies.</p>
+<p>As it concerned the Talent Development Center, most of the information was passed on to the Director, Yukiko, which naturally made it easy for me to get information as well. According to the information received, there were no more Minamoto spies within the Talent Development Center, and there was only a list of people on Taira Jiro's side that Nadachi Tojo had worked with.</p>
+<p>Yukiko coldly dismissed all the people on the list. Those who had been involved from the beginning were demoted to Taira Transportation and Taira Shipbuilding, one of the lowest-ranking subsidiaries. Taira Shipbuilding is where Taira Jiro is the president, so I'm sure he'll take good care of them.</p>
+<p>Those who had joined in the middle were sent to Talent Development Center branches in the provinces instead of other subsidiaries, which I personally thought was worse, but Yukiko said that the Talent Development Center's ranking within the Taira Group was relatively high, so keeping the Talent Development Center title would be good for those being demoted. Is that so? Not knowing much about the Taira Group, I could only nod.</p>
+<p>But strangely, Suzuki Chisami didn't go to Taira Shipbuilding or Transportation, nor was she sent to a Talent Development Center branch.</p>
+<p>,There's nothing on our team's deputy team leader?"</p>
+<p>,No information came out about Suzuki Chisami. It's strange, but what can we do? She hasn't been here long since being assigned, and it's a bit lacking to tie her to Nadachi Tojo, so we'll just have to move on. Ryuta, keep a close eye on her."</p>
+<p>There was no way to resist Yukiko, who hugged me tightly to her chest as if to comfort me. I playfully sucked on Yukiko's nipple once and kissed her on the lips.</p>
+<p>Chuup...! Chup chup!</p>
+<p>After sharing a sweet kiss, I got up from Yukiko's bed. I had done it so much with Yukiko yesterday that I fell asleep, and I almost got caught by the housekeeper in the morning, so we decided to only sleep in the same bed on Fridays, the day before Saturdays when the housekeeper doesn't come to work in the morning.</p>
+<p>,Good night, Yukiko."</p>
+<p>,Good night, Ryuta-gun."</p>
+<p>After saying goodbye, I left Yukiko's room and entered my room. It feels like it's been a while even though I only didn't sleep here for one day. It was still early to sleep, so I just lay down and looked at my phone. Just as I was looking at my phone, I got a KakaoTalk message from Han Yu-gyeong.</p>
+<p>Han Yu-gyeong: Yong-tae, are you asleep?</p>
+<p>Jin Yong-tae: Not yet. What's up?</p>
+<p>Han Yu-gyeong: I was wondering if you could come to Korea this weekend....</p>
+<p>Hmm? To Korea? What's going on? I was planning to go during the next summer vacation, but it seemed there was a reason why she was asking me to come so suddenly.</p>
+<p>Jin Yong-tae: I can go. If you're asking me to come so suddenly, there must be a reason. Can you tell me?</p>
+<p>Han Yu-gyeong: The thing is....</p>
+<p>Han Yu-gyeong's story was like this. Park Sang-beom, a Sunbae from Korea University, had been hitting on Han Yu-gyeong and asking her to meet him, but Han Yu-gyeong refused, saying she had a boyfriend. But Park Sang-beom didn't believe it and spread rumors that Han Yu-gyeong had a delusional disorder, and Han Yu-gyeong, unable to bear it, wanted to reveal me to her friends to dispel the rumors of her having a delusional disorder.</p>
+<p>My woman is being rumored to have a delusional disorder, I can help with that. But if it's Park Sang-beom, he's one of the early villains in MegaCorp's youngest son, so he hasn't changed here either. If he's a man, he's a villain who harasses the protagonist out of jealousy, and if he's a woman, he harasses her by asking her to date him. He was the son of the BS Group, a group ranked 5th in the business world, about 4 places higher than the Shinkang Group. That's why he could harass the protagonist of MegaCorp's youngest son.</p>
+<p>Towards the end of the game, the Shinkang Group takes over Korea, and the protagonist has already dismantled and devoured 5th-ranked groups like the BS Group, so Park Sang-beom becomes a guy who isn't scary at all, but in the beginning, the BS Group mostly appeared as villains who hindered the protagonist.</p>
+<p>While going to Korea, I should check Han Yu-gyeong's stats with the glasses from the ruins I bought on the black market and help her a bit with the game knowledge I have. I have a lot to prepare before going....</p>
 <p>###</p>
-<p>"I'm a little reluctant to use the public bath... So I'm definitely going home and soaking in the bathtub during the weekend."</p>
-<p>The other group members' expressions were strange after hearing Asako Ukie's words during the break after lunch after the morning lecture. It was as if they were looking at someone who seemed pitiful, as if they were late on the information.</p>
-<p>"We're also a little reluctant to use the public bath, but we've decided to stay at the talent development center on the weekend. The mentor-nim said he would let us use a medium-sized bath that we can use among ourselves, not the public bath, on the weekend."</p>
-<p>"If we only use it among ourselves, we don't have to worry about hygiene issues or other problems, right?"</p>
-<p>Ah, there was such a story while I was away...! Asako Ukie felt a little alienated, but it was something that happened because of the tour schedule of the talent development center and TIS where she would be working, so she couldn't blame anyone.</p>
-<p>"Asako-ssi, don't just go home on the weekend, stay at the talent development center with us! You can go home next week, right?"</p>
-<p>Should I? Listening to the story, it seems like I can meet Taira Ryuta-nim even on the weekend... Asako Ukie thought for a moment and nodded.</p>
-<p>"Okay. Let's stay at the talent development center together this weekend."</p>
-<p>"You made a good decision!"</p>
-<p>Everyone welcomed her as if saying, "Welcome to our club!" Asako Ukie smiled awkwardly, thinking, "Did you all want to go into the bath with me so much on the weekend?"</p>
-<p>"The next class is about mock stock trading. They say that the person who has the highest stock price based on the last Wednesday of the month and the group that makes the most profit will be given prizes!"</p>
-<p>"We're not choosing right away, but gathering information for a few hours before choosing, so won't everyone have good results?"</p>
-<p>At the innocent group member's words who didn't know the ruthlessness of the stock market, Asako Ukie shook her head without realizing it. In college, she had invested the money she earned from tutoring to earn money in the stock market. The result was that the stock price was cut in half, and she had a memory of cutting her losses while shedding tears of blood. What was even more infuriating was that the stock price soared as soon as she pulled out her stocks. She hadn't even looked at stocks since then, but she didn't know she would be connected to stocks in this way.</p>
-<p>"Ah...! So that's how you do it!"</p>
-<p>"I feel like I've learned something new."</p>
-<p>An hour later, the group members of Group 74, who had all come out of the lecture room, were impressed. Except for Asako Ukie and one or two others, most of them were stock newbies who didn't even know the basics of stocks, so they felt like they had seen a new world at the instructor's words.</p>
-<p>"Doesn't the mentor-nim also know about stocks?"</p>
-<p>"We have to discuss what stocks to invest in in the conference room anyway, so let's go to the conference room and ask the mentor-nim if he's there."</p>
-<p>Asako Ukie, who was skeptical about stocks, also headed to the conference room, excited about what the mentor would tell her.</p>
-<p>###</p>
-<p>"Me? You're doing a mock investment?"</p>
-<p>Listening to the group members' chattering, each person has 10 million yen in capital and buys stocks based on today's prices, and the rankings are based on the prices on the fourth Wednesday. They're doing all sorts of things.</p>
-<p>"Yes, please recommend something, mentor-nim~!!"</p>
-<p>"Still, it's a task for you guys, so you should find investment opportunities first and then compare them to the places I recommend before choosing."</p>
-<p>They're probably making them do this mock investment to test their research skills and insight. If I help too much, their abilities won't develop, so I spoke a bit sternly.</p>
-<p>These 74 group women are talents who will go into each subsidiary as my hands and feet and ask me for information or do secret operations, but if I help them all just because they say, "Please recommend something~," they will miss the opportunity to develop their abilities. Still, they need to have various abilities to secure their positions and benefit me.</p>
-<p>"You can have meetings here, and you know that the snacks and drinks are in the refrigerator and the cupboard next to it, right? I'll be working in my personal office over there, so if you have any questions or suggestions, come in and ask."</p>
-<p>I went into my personal office and turned on my laptop. The work of the education support team was quite piled up. I couldn't do much work because I had three new group members yesterday. Still, there was a lot of work, especially from Deputy Team Leader Suzuki Chisami, who seemed dissatisfied with me commuting to and from the 74 group office.</p>
-<p>"This is annoying. If I get the chance..."</p>
-<p>Forcibly swallowing the rest of the words, I tapped on the keyboard. It was confirmed that I was the Chairman's grandson by the Chairman's public announcement, but seeing her picking a fight with me, it seemed that she was indeed on Jiro's line as rumored.</p>
-<p>I honestly snitched to Shinoe Misano that such and such work had come from the Deputy Team Leader. I can't say anything to the Team Leader, so I'll probably get scolded instead. Will she scold me and then say something to me?</p>
-<p>Shinoe Misano: Oh my, I thought our office was quiet, but it seems that the work has all been passed on to Ryuta-ssi. Don't worry, just do the work I sent you by email.</p>
-<p>How dare she try to pass all the work to the Team Leader's Johnson friend. I was thinking about how to screw over Suzuki Chisami while doing the work that had been reduced to one-fifth. If that doesn't work, I'll have to talk to Taira Yukiko. Still, Taira Yukiko, the director of the talent development center, would have the strongest influence there.</p>
-<p>There was a knock and the door opened. A tall, boyish beauty, unusual for a woman, came in hesitantly.</p>
-<p>"Team Leader-nim, I want to have a consultation..."</p>
-<p>A new group member, different from yesterday, came with a flushed face. Her name was... Koikawa Sachiko. She said she was in the volleyball club in high school, so she looked like she was in the mid-170s. I smiled and turned up the music that was playing softly.</p>
-<p>"Would you like to sit in front?"</p>
-<p>In this way, I conquered three people yesterday: one group member who came yesterday and two group members who I told to stay behind to clean up. Perhaps because of the Cambion's body, the effect of the golden pillar was even better, and the girls listened well. If you include Ebie Miyuka, who I cut off on the first day, and Koikawa Sachiko, who came now, half of the group members have fallen into my hands.</p>
-<p>"Did you all do the mock investment?"</p>
-<p>"Yes... I'm from Taira Securities, so this was easy."</p>
-<p>Ah, she must have studied in advance, so she came to me when the other kids were working hard to research.</p>
-<p>"So, what do you want to consult about?"</p>
-<p>"Th-that... I..."</p>
-<p>There's probably nothing to consult about. Maybe a friend who consulted with me told her that if she just came to consult, I would take care of it.</p>
-<p>"It seems like it's a story that others shouldn't hear. Then come a little closer."</p>
-<p>"Yes..."</p>
-<p>I used telekinesis to lock the door when Koikawa Sachiko came a little closer to me. It would block anyone from trying to come in.</p>
-<p>"I'm, like this... I'm just tall and don't look like a woman... I don't know men well. I would like the mentor-nim to teach me about men."</p>
-<p>She certainly had a androgynous charm because she was tall and had a short haircut. But she had such large breasts that made you wonder if she really kept doing volleyball jumps with them, so Koikawa Sachiko's androgynous charm quickly disappeared and was full of femininity, which was a ridiculous concern.</p>
-<p>"Sachiko."</p>
-<p>"Ehh?"</p>
-<p>While Koikawa Sachiko was surprised that I suddenly called her by her first name instead of her last name, I unhesitatingly touched Koikawa Sachiko's breasts, especially her nipples.</p>
-<p>"Aah~!"</p>
-<p>"As long as you have these breasts, it's a lie to say that you don't look like a woman. Look at this."</p>
-<p>I put Koikawa Sachiko's hand on my Johnson, who was writhing. Koikawa Sachiko seemed startled for a moment, but then she held my Johnson tightly like a precious object.</p>
-<p>"If you weren't feminine, would I have become like this?"</p>
-<p>"Please... sh-show me to the end. Mentor-nim...!"</p>
-<p>She showed signs of victory and kept pushing, as expected of an athlete.</p>
-<p>--------</p>
-<p>The Hanbok picture came out well, so I'm posting it because it's a waste to keep it to myself!</p>
-<p>I cherish Yu-gyeong-a!!</p>
+<p>,Team leader, I have something I'm personally curious about."</p>
+<p>I requested an interview with Shinoe Misano. No matter how much I thought about it, I couldn't understand why Suzuki Chisami hadn't been demoted or disciplined.</p>
+<p>So I decided to call Shinoe Misano to the empty office we used to have sex in and ask her.</p>
+<p>,Why did you call me all the way here?"</p>
+<p>,I have something I'm curious about regarding Deputy Team Leader Suzuki Chisami."</p>
+<p>First, I explained that the people who had been recently demoted from the Talent Development Center were Jiro's line, excluding the work of Nadachi Tojo, the head of the personnel department who was a Minamoto spy. Recently, the employees were curious about what this demotion meant, so there were many stories going around, so Shinoe Misano nodded as if she understood after hearing my explanation.</p>
+<p>,You're asking why Suzuki Chisami wasn't demoted?"</p>
+<p>,Yes, I heard that Nadachi Tojo was looking out for Suzuki Chisami."</p>
+<p>Shinoe Misano nodded as if she understood my words. But she continued the story, saying that it wasn't true.</p>
+<p>,Hmm.... The situation was quite subtle at the time. The team members who saw the situation could misunderstand."</p>
+<p>,So the team members misunderstood the situation?"</p>
+<p>,Yes, Nadachi Tojo came to me for something else."</p>
+<p>Something else.... What could he have come for?</p>
+<p>,That other thing is...?"</p>
+<p>,...He asked about you. Is Taira Ryuta adapting well? What kind of work is Taira Ryuta in charge of? It was a trivial question like that."</p>
+<p>,Huh?"</p>
+<p>Ah, that's right. In that temporary email, the person called Chairman said they were interested in 5-1-s. Since 5-1-s was me, it was natural for Nadachi Tojo to call Shinoe Misano and ask.</p>
+<p>,So did you tell him?"</p>
+<p>,No, I asked him, 'Does the Director know that you're asking me these questions?' and he backed off. He said he was just curious and left. After that, Suzuki Chisami personally apologized and we moved on."</p>
+<p>Ah, I see. So she's not in Jiro's line? Then why did she act so recklessly as if she had no backing? The question about Suzuki Chisami hasn't been resolved yet. But since there's no evidence, I'll have to be satisfied with watching her.</p>
+<p>,Do you have any other questions, Ryuta-gun?"</p>
+<p>,Yes, are you getting along well with your husband?"</p>
+<p>Shinoe Misano asked playfully, but soon her face hardened at the question about her husband that I mentioned. I had noticed that Shinoe Misano had been worried about this lately. I noticed that her heart loved her husband, but her body was not satisfied, so her desires were building up day by day.</p>
+<p>Before having a relationship with me, she might have been satisfied with the sex she had with her husband after a long time, but now that she has tasted the greater pleasure of me, she will never be able to go back to the old days. Now that I had enough women, I didn't want to instigate Shinoe Misano myself, but I didn't want to see her suffering from the disconnect between her mind and body.</p>
+<p>,That's... none of your business."</p>
+<p>,Is that so?"</p>
+<p>I took a step forward towards Shinoe Misano. Is it really none of my business?</p>
+<p>,Is it really?"</p>
+<p>I asked Shinoe Misano again. Shinoe Misano couldn't answer.</p>
+<p>,Is the guilt towards your husband the problem?"</p>
+<p>,....."</p>
+<p>,Or is it because you hate yourself for cheating?"</p>
+<p>Shinoe Misano still couldn't answer. I kissed Shinoe Misano. Shinoe Misano accepted my kiss with surprising obedience.</p>
+<p>,If that's the case, don't worry. Your husband will be the same."</p>
+<p>I smiled and showed her the video I had taken with the black box of Shinoe Misano's husband, Shinoe Fuujiro, kissing a mysterious woman.</p>
+<p>Shinoe Misano shed tears after watching the video. But it wasn't tears of sadness. It was tears of joy.</p>
+<p>,I'm... I wasn't the only one who was wrong...!"</p>
+<p>Shinoe Misano was happy that she could now embrace me without guilt. Shinoe Misano lost her reason and rushed at me. Shinoe Misano took off my pants and began to suck my dick ravenously, like someone who hadn't eaten for days.</p>
+<p>,Chuuuup...! Chuwwap...! This is it, it has to be this full in my mouth! Uuup...!"</p>
+<p>I grabbed Shinoe Misano's head and repeatedly thrust my dick into her throat. I hadn't done it in a few days, so I hadn't gotten the hang of it yet, and she gagged, Ku-eop! Ku-eup!, but after a while, she skillfully tightened and loosened her throat pussy, urging my dick to ejaculate. I pulled my dick out as it was.</p>
+<p>,Spread them, I'll let you know who the owner of your pussy is."</p>
+<p>Shinoe Misano raised her skirt in joy. I pierced Shinoe Misano's pussy as it was. The pussy already knew. That my dick, not the weak dick that had been coming in for the past few days, was its owner. Shinoe Misano's insides wriggled as if welcoming my dick that had come in after a long time, doing its best to satisfy my dick.</p>
+<p>It definitely felt narrower and tighter than before, probably because she had surgery to enhance her sexual organ.</p>
+<p>,Haaak!!"</p>
+<p>,You like it this much after only a week?"</p>
+<p>,Heeeuuung! I like it so, so much~!! My husband can't even compare...! Haaang!!!"</p>
+<p>The enhanced pussy+1 of Shinoe Misano, who had surgery, definitely felt good. Also, since I had called her out during work, I didn't try to hold back and sprayed my semen inside Shinoe Misano's pussy as it was.</p>
+<p>,Heeueeeaaang~ It's warm...!"</p>
+<p>Not caring that Shinoe Misano had gone, I pulled out my dick and gave it to Shinoe Misano to suck. Shinoe Misano naturally sucked and cleaned my dick even though she had climaxed. No, why did you try to reject me when you're so used to cleaning my dick even when you're this out of it?</p>
+<p>,Spread them."</p>
+<p>I took out a small pack of wet wipes that I usually carry around and wiped Shinoe Misano's pussy. I suddenly thought about why I had tried to act like an owner to Shinoe Misano just now. Yeah, I didn't like that Shinoe Misano prioritized her husband over me. In my head, I was like, 'Well, he's her husband, so I can understand,' but in my heart, I felt annoyed.</p>
+<p>I couldn't help but laugh at my possessiveness, which was like a child showing off. Yeah, any woman who has a relationship with me has to prioritize me. I threw the wet wipe, which was covered in my Semen, into the trash can with that selfish thought.</p>
+<p>--------------------------</p>
+<p>It's been a while since Shinoe Misano's Yasushin Memorial Shinoe Misano illustration~!</p>
+<p>Shinoe Misano means tennis wear....!</p>
+<p>No bra, nipple sticking out Shinoe Misano</p>
+<p>I made it with the drawing style I usually use, but it became similar to Yukiko, so I tried making it with a different drawing style!</p>

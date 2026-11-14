@@ -5,74 +5,78 @@ weight = 705
 chapter = 705
 +++
 
-<p>The cafe that Asada Ei and the students went to was quite excellent. Asada Ei said she had checked it out beforehand, and the drinks were delicious, the desserts were delicious, and even the atmosphere was great.</p>
-<p>For about an hour, we enjoyed pleasant conversation while eating our desired drinks and desserts. Asada Ei, true to her Snow Woman persona, ordered cold drinks and ice cream for dessert, lamenting that she couldn't eat warm food anymore, and Alik still put some of what he ordered into my mouth, omyom-nyom-nyom, while eating his dessert.</p>
-<p>Unexpectedly, Asada Ei was quite a cheerful person, contrary to her cold impression; perhaps it was because she had some experience in society, but she seemed a bit more skilled at dealing with people. She smoothly eased the slightly awkward time with students who weren't very close.</p>
-<p>,It was fun, Ryuta-nim. I hope we can have this kind of time again next time.</p>
-<p>,Contact me anytime. I can always have a conversation with you.</p>
-<p>I parted ways with Asada Ei and went to St. Francisco Girls' Academy mansion street with the students. Everyone had houses nearby, so they naturally split up.</p>
-<p>,Ei-ssi was unexpectedly a fun person.</p>
-<p>,Yeah, I met her often because of the Joseodang work, and even though her expression and atmosphere are cold, she was quite fun.</p>
-<p>Naruse Shiyo nodded in agreement with Otagi Yuka's words. She became one of the three executives of the Joseodang, overseeing the instructors sent by the Naruse family and leading the agents who used shikigami techniques, so it seemed she often met with Asada Ei because of that.</p>
-<p>,Ah, this is the fork in the road. Sensei, Alik and I are going on a mission from tomorrow, so I won't see you during the vacation. Have a great vacation...!</p>
-<p>,Ryuta, bye bye.</p>
-<p>Naruse Shiyo made a gloomy Pepe the Frog-like expression and greeted me, and Alik hugged me lightly, then looked up at me and greeted me.</p>
-<p>I stroked Alik's head and gave Naruse Shiyo a light hug, telling her to have a good time, and Naruse Shiyo reacted as if she was broken, saying, Eh, eh?</p>
-<p>,Don't mess with innocent kids for no reason, Sensei-ssi.</p>
-<p>,You want a hug too?</p>
-<p>,No.... I like it.</p>
-<p>I hugged Otagi Yuka, who was grumbling at the broken Naruse Shiyo, and she became quiet. Otagi Yuka is surprisingly the jealous type. I hugged Otagi Yuka and looked to the side, and I couldn't help but chuckle at Saionji Diana, who was already waiting with her arms open.</p>
-<p>I couldn't refuse when she made such an expectant expression. I opened my arms and hugged Saionji Diana tightly. Saionji Diana hugged me tightly, saying, Ehehe♥. After holding Saionji Diana for a while, we returned to our respective homes.</p>
-<p>Otagi Yuka looked like Saionji Diana wanted to come to my house, but I had a lot of pending work, so I refused today.</p>
-<p>The new TG Tech firearms were still gaining popularity to the point of causing a social phenomenon, and now not only the civilian sector but also PMCs and government forces were placing orders for performance testing.</p>
-<p>Of course, there were quite a few documents that required my signature as a co-representative, so I thought I would be quite busy for the next few days.</p>
-<p>After returning home and signing documents for about two hours, my phone vibrated and started ringing.</p>
-<p>Who is it? I checked and it was Nae Fitzgerald's husband, Oliver Fitzgerald. What's going on?</p>
-<p>,I'm on the phone.</p>
-<p>-Long time no see, nephew.</p>
-<p>He was still a hearty man. Listening to his voice, it didn't seem like he knew I was having a relationship with Nae Fitzgerald.... It seemed like he had a purpose for calling.</p>
-<p>,Yes, Uncle, have you been well too?</p>
-<p>-I've been well. I'm calling about the acquisition of the Korean company I mentioned before.</p>
-<p>Ah, that's right. Oliver Fitzgerald's company, Theron, asked me for help in acquiring a Korean company called Isis.</p>
-<p>,Isis, that company?</p>
-<p>-Yes. I'm going to Korea soon, and I wanted to get some of the help you promised. I heard that Isis is in quite a bit of trouble.</p>
-<p>What exactly did I promise? I quickly checked the memo I had made about business matters during the call to confirm. Ah, that's right. It was help in acquiring Isis on their behalf and then transferring the company or transferring the technology.</p>
-<p>It's a bit of a hassle, but I unintentionally mistook Nae Fitzgerald for Arisu and did NTL, so I decided to help with the company's work as an apology for that. There's no excuse for continuing to have a relationship after that, but what can I do? It's my dick's fault for being so great.</p>
-<p>,Of course. But I'm going to Korea after Christmas.</p>
-<p>In fact, the date I'm going to Korea is Christmas Day, but that day is reserved for Han Yu-gyeong, so I said it would be after Christmas.</p>
-<p>-Ah, that's fine. I have to spend Christmas with my family too.... Anyway, your company has to make the contract, but the brokerage company we set up in the middle set the date after Christmas, so you can come then and talk to Isis.</p>
-<p>Isis's situation was difficult, so it seemed they were trying to make an appointment urgently through a brokerage company and call me before they were sold to another company.</p>
-<p>,What should we do with the method after purchasing Isis? Should we hand over the company? Or should we only transfer the technology?</p>
-<p>-What we need are Isis's cooling technology and engineers, so I'd like you to acquire Isis and then transfer Isis back to us.</p>
-<p>That was definitely easier. Because we only need to change the shares. If we only transfer the technology, I have to clean up the remaining Isis employees on my side, so it's good that I don't have to do that.</p>
-<p>-I'm so busy and if I suddenly appear in Korea, someone might suspect, so Nae will go to this negotiation with you. You can work while thinking about playing with your aunt.</p>
-<p>Listening to this story, it feels like Nae Fitzgerald, not Oliver Fitzgerald, said she would go to Korea herself. It's about time for Nae Fitzgerald's married woman pussy to be itching. I should have fun playing with my aunt as my uncle said.</p>
-<p>,Of course. I'll take good care of Nae-gomo.</p>
-<p>-Okay, I'm counting on you. I'll send you the detailed schedule by email, so contact your aunt.</p>
-<p>After ending the call with Oliver Fitzgerald, I immediately called Nae Fitzgerald.</p>
-<p>-The phone is currently turned off....</p>
-<p>The phone is turned off? Nae Fitzgerald always answers my calls right away. Moreover, the fact that Nae Fitzgerald, who is also a businesswoman, has her phone turned off means she is doing Phantom Thief François work.</p>
-<p>What the hell is she stealing? I'm curious for no reason....</p>
-<p>Thinking of Phantom Thief François, something suddenly came to mind.</p>
-<p>The psychokinetic who is suspected to be under Ichiro and the research lab that the psychokinetic attacked, Phantom Thief François who took something from that research lab...!</p>
-<p>I had forgotten about it because there were several events in a row after that, but I realized that I needed to find out what Phantom Thief François took at that time. I can meet Nae Fitzgerald in person when I acquire Isis and ask her.</p>
-<p>I finished the paperwork I was doing and checked the schedule that came by email. The acquisition negotiation is at 4 pm on the 27th. If the negotiation breaks down here. Re-negotiation at 4 pm the next day was written.</p>
-<p>As I remember, Theron was a company that made engines for Mars-bound spaceships, and they were trying to acquire Isis to obtain Isis's cooling technology to solve the engine's defect, which is heat generation.</p>
-<p>Isis said it was difficult, so I didn't think the negotiation would be difficult. I'll think of it as putting Theron in debt and work hard.</p>
-<p>Theron has Nae Fitzgerald and Arisu, so they were likely to become my friendly forces. Of course, this is on the condition that Oliver Fitzgerald doesn't catch me having sex with Nae Fitzgerald, but I didn't think that Nae Fitzgerald, who is so thorough that she continues to do Phantom Thief François activities, would ever get caught in a relationship with me.</p>
-<p>Then I should help Theron, a potential future ally. Deciding to help Theron, I immediately contacted Han Yu-gyeong and told her about the current situation.</p>
-<p>-Then it would be good to investigate Isis?</p>
-<p>,Yeah. I was going to be with Yu-gyeong until the end of the year, but I'm sorry that I have to leave in the middle because of the contract.</p>
-<p>Since it's a schedule in Korea anyway, I'm telling her the schedule in advance and asking her to investigate Isis. I was actually planning to be together during the year-end and New Year holidays, but I feel sorry that I have to leave for a day or two.</p>
-<p>-It's not difficult to investigate. I might have to leave because I'm busy with work too, but are you sure you're coming on Christmas, Yongtae?</p>
-<p>,Yeah. We decided to spend Christmas together. I'm sorry I can't spend Christmas Eve together.</p>
-<p>I was going to spend Christmas Eve with Minamoto Risa, so I couldn't spend it with Han Yu-gyeong. Instead, I was able to spend Christmas Day together, so I decided to go to Korea on a Christmas Eve night flight or a Christmas morning flight.</p>
-<p>-Yeah~♥ I miss Yongtae. I'm looking forward to our Christmas date!</p>
-<p>,Yeah, I'm really looking forward to it. Actually, I don't need a special date schedule, I only need Yu-gyeong, so don't prepare too much.</p>
-<p>It had become like an unwritten rule that Han Yu-gyeong makes the date course when I go to Korea, and I make the date course when Han Yu-gyeong comes to Japan, so Han Yu-gyeong will make this Christmas date.</p>
-<p>,I'll be in Korea until a few days before school starts, so I can see you for a long time this time.</p>
-<p>-I'm so happy about that, hehe...! I have to be with Yongtae for a long time, so it would be good if the Theron negotiation ends in one day, right?</p>
-<p>Han Yu-gyeong seemed to be really looking forward to it because I was planning to stay in Korea for more than ten days until the end of the vacation next year. Of course, I was also really looking forward to being with Han Yu-gyeong for a long time after a long time.</p>
-<p>______</p>
-<p>Hug me Diana</p>
-<p>Just a slightly made Nae Fitzgerald</p>
+<p>On the airplane to Datong, I began to ponder one thing. It was about how much of my skill and true identity I should reveal.</p>
+<p>Gao Xiang (高翔), the leader of the Red Revolution Front, was a monster with his entire body illegally modified with cybernetic implants. As the huge bounty on his head suggested, he was much more dangerous than Jeon Yong-cheol, whom I had fought before.</p>
+<p>Especially since Gao Xiang's goal was to turn all Chinese citizens into cyborgs, creating a unified cyberpunk communist nation that solely followed the Red Revolution Front's ideology, all of his executives were cyborgs who had replaced over 70 percent of their bodies with cyber implants.</p>
+<p>This meant that not only Gao Xiang but also his subordinates were quite strong, so I would have to fight with some seriousness to truly contend with them.</p>
+<p>Jeon Yong-cheol, a similar cyborg character I had fought before, was strong alone, and his subordinates were mostly Trash Mobs, so there was no need to worry about the others. But here, each subordinate in the boss battle was strong, making the enormous bounty understandable once I fought them.</p>
+<p>Of course, the high bounty wasn't just because Gao Xiang was strong, but because of the numerous atrocities committed by the Red Revolution Front, including the New Nanjing cyber Zombie incident. Players who directly faced them in the game could only curse in frustration.</p>
+<p>I also had elite Vanguard comrades, including I Yeon-ju, but excluding I Yeon-ju, I didn't know how much capability the Vanguard rescue team would demonstrate.</p>
+<p>Moreover, since rescue was the main objective here, I might even have to fight Gao Xiang alone.</p>
+<p>「And if I'm going to film evidence, I'll ultimately have to hide my true identity....」</p>
+<p>Since I was rescuing Lara Sinclair and her party anyway, I planned to film a video of killing Gao Xiang to also claim the bounty, but to do that, I had to hide my identity.</p>
+<p>Even if I participated in combat, the Vanguard agents would be fine since they were wearing combat helmets and cyber suits, but I was the problem....</p>
+<p>「Ultimately, I'll have to say Black Knight handled this.」</p>
+<p>My worry until now was whether to reveal that I was Black Knight to everyone except I Yeon-ju, who already knew my true identity through Han Yu-gyeong.</p>
+<p>Considering the difficulty and the need to hide my identity, no matter how I thought about it, fighting as Black Knight seemed to be the only option.</p>
+<p>First, during the rescue mission, I could just fight. If we fought the boss battle together, I would reveal my identity, but if I fought alone, I wouldn't have to, so I could just fight in Black Knight mode.</p>
+<p>While I was pondering, the airplane had already landed at Datong Yuangang International Airport.</p>
+<p>「This time, we decided to just rent a car instead of a guide. We can just input the coordinates of where contact was lost and follow the navigation. Since combat is almost certain, a guide would only be a burden.」</p>
+<p>I Yeon-ju explained to me in the airport Parking Lot. If we already knew the way, it was better not to have a guide. Besides becoming a burden, as I Yeon-ju said, we were going to cause a ruckus in another country, so the fewer people who knew our true identities, the better.</p>
+<p>Even if a guide was affiliated with the Shadow Merchant, they could betray our trust and contact Public Security, so the choice to only rent a vehicle was excellent.</p>
+<p>「We've brought all the cargo.」</p>
+<p>As I Yeon-ju and I waited briefly in front of a vehicle that seemed to be a modified large military transport, Vanguard agents brought plastic containers filled with combat equipment.</p>
+<p>「Let's load it into the car and depart. The navigation says it'll take about an hour and a half, so let's put on our gear in the car.」</p>
+<p>「Understood.」</p>
+<p>At I Yeon-ju's words, the Vanguard agents swiftly loaded the equipment into the car. And as everyone boarded the vehicle, it began to depart.</p>
+<p>「Here are your combat helmet and cyber suit.」</p>
+<p>One of the Vanguard agents handed me the equipment. Everyone was casually stripping off their clothes and putting on their cyber suits. For reference, I Yeon-ju was sitting in the passenger seat, and the driver was a woman. The driver's seat side seemed to be blocked off, so the Vanguard agents appeared to be undressing without much thought.</p>
+<p>I only had the one set of clothes I was wearing, so I'd have to take them off and put on the cyber suit. After all, I needed clothes to wear when I returned after the mission was over.</p>
+<p>Hulleong!</p>
+<p>「!」</p>
+<p>As I stripped off my clothes, everyone who had been glancing over stared at me with wide eyes. To be so surprised when I hadn't even taken off my underwear... they'd probably faint if I did. Though, the front of my boxer briefs was indeed incredibly thick because of my Large Penis.</p>
+<p>I put on my cyber suit with a slightly smug feeling. I left the combat helmet beside me, as I could put it on later before disembarking.... I subtly checked my phone.</p>
+<p>Habitually, I turned on the internet and saw the search screen for the Phantom Thief François suspicion case, where I had searched why Nae Fitzgerald had come to Korea early. The internet signal was weak.</p>
+<p>As we headed towards the former Wolf's research complex, now occupied by the Red Revolution Front, there would be no internet or satellite communication, making it indeed a suitable hiding place for a terrorist organization.</p>
+<p>Looking at the Phantom Thief François incident screen on my phone, I realized I hadn't asked Nae Fitzgerald what I was curious about.</p>
+<p>I'd have to ask her next time what data Phantom Thief François had stolen from the Taira Laboratory.</p>
+<p>I had planned to ask her after giving her plenty of sex and completely satisfying Nae Fitzgerald.</p>
+<p>But because contact with Lara Sinclair had suddenly been cut off, forcing me to rush to China, my questions for Nae Fitzgerald would have to wait.</p>
+<p>After quickly changing clothes and thinking about Nae Fitzgerald for a moment, we had already left the Datong Downtown Area and were driving through a wasteland.</p>
+<p>This is why there was no internet. Since it wasn't a populated area, they probably didn't bother building a base station. Or it could have been destroyed by war and still not restored.</p>
+<p>「We're now slowly entering the area where the Shadow Merchant guide and Lara Sinclair-ssi lost contact. Please prepare, as we don't know what might happen.」</p>
+<p>I Yeon-ju rolled down the driver's seat window and informed us. I glanced over and saw that I Yeon-ju also seemed to have already changed into her cyber suit.</p>
+<p>Bu-aaaaang!</p>
+<p>No sooner had I Yeon-ju's warning ended than guys on bikes appeared from nowhere and began chasing our vehicle.</p>
+<p>「Kiehehe!」</p>
+<p>Tang! Tang! Tang!</p>
+<p>Ordinary people would feel fear from guys approaching with monstrous shouts and gunfire, but these individuals were Vanguard agents, among the top few in Korea.</p>
+<p>Since it was a combat transport vehicle modified to look like a civilian car, there were holes through which gun muzzles could be extended. So, the Vanguard agents, holding their guns with one hand, counterattacked the enemies who were precariously riding their bikes with one hand.</p>
+<p>Kwang!</p>
+<p>Several of them were swept up with a bike that was hit by a Bullet in its Battery and engulfed in a spectacular explosion. To hit the Battery so accurately while moving like this was amazing.</p>
+<p>After calmly shooting down about twelve or thirteen Red Revolution Front bike attackers, the former Wolf's research laboratory, now the Red Revolution Front's Base, began to appear in the distance.</p>
+<p>Kkii-ik...!</p>
+<p>The car stopped, and everyone got out. The research Laboratory was surrounded by a high Wall, and where it connected to the road, there was a large door and a smaller door beside it, suitable for people to pass through.</p>
+<p>「The Wall is high, so we'll have to go through the door.」</p>
+<p>「I'll lead the way.」</p>
+<p>I said this in response to I Yeon-ju's words. If someone else needlessly went first and got shot, one of our valuable combat forces would become incapacitated. Since I had high Defense and regenerative power, it was right for me to lead the way.</p>
+<p>「Understood.」</p>
+<p>I Yeon-ju, who knew my abilities, nodded her Head. I also nodded once and approached the research Laboratory, opening the door.</p>
+<p>As I opened the door, indeed, as if they had heard the sounds of the recent fight with the bike unit, a dozen or so Red Revolution Front terrorists were aiming their guns.</p>
+<p>"Where are you from?"</p>
+<p>「What did you say?」</p>
+<p>They were shouting at me in incomprehensible Chinese, but I pretended not to understand and placed my Hand on the ear part of my helmet. Thus, no one saw the Shadow on the research Laboratory's Wall move. It was also harder to notice because it was night.</p>
+<p>Puhwahak!!!</p>
+<p>A gigantic Thorn that rose from the Shadow pierced the bellies of all but one, causing Instant Death. Indeed, at night, Shadow Domination was more useful than telekinesis....</p>
+<p>I opened the door I had closed again, then looked at I Yeon-ju and the Vanguard agents waiting, and spoke.</p>
+<p>「The Entrance has been cleared, so please come in.」</p>
+<p>At my words, I Yeon-ju and the Vanguard agents swiftly entered. All of them Flinched for a moment upon seeing the dozen or so corpses under the moonlight, their bellies pierced with holes the size of two fists, bleeding profusely.</p>
+<p>They subtly looked at me after seeing the corpses. Since I was wearing a helmet, I couldn't tell their exact expressions, but they were probably making faces that said, 'How did he do that without a gun?'</p>
+<p>「I left one alive, so we should be able to find out where Lara Sinclair went.」</p>
+<p>At my words, I Yeon-ju and one of the Vanguard agents who could speak Chinese approached the guy who was lucky enough to be alive and lying down, and began asking him a few things in Chinese. After questioning him for a while, I Yeon-ju, seemingly having gotten all the answers, finished off the surviving Red Revolution Front terrorist with the nail gun on her Wrist and approached me.</p>
+<p>「Good news. It seems there were some sacrifices, but Lara Sinclair-ssi and her party haven't been caught yet.」</p>
+<p>Oh...! It's been over a day since contact was lost, and they still haven't been caught? That's amazing.</p>
+<p>「But how could they not be caught?」</p>
+<p>「It seems the former Wolf's research facility here is wider than Imagination. Even with over a thousand Red Revolution Front troops entrenched here, they can't search it all at once, so it seems they're escaping well.」</p>
+<p>Listening to I Yeon-ju's story, I remembered. This place was incredibly vast. I recalled getting a lot of Stress from trying to navigate it when I came here for Gao Xiang's bounty, because it was so huge.</p>
+<p>I Yeon-ju after a long time</p>

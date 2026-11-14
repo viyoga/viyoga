@@ -5,83 +5,83 @@ weight = 134
 chapter = 134
 +++
 
-<p>,Kyaa~! What?"</p>
-<p>Mimata Chieri, who was covering her chest and screaming slightly, seemingly surprised by the sudden psychokinetic nipple attack, asked back as if she didn't understand.</p>
-<p>,I knew there were espers... I didn't know Sunbae-nim had psychic powers."</p>
-<p>,Have you seen other espers besides me, Sunbae-nim?"</p>
-<p>,Hmm... three? One was a target, and two were TAIRA agents."</p>
-<p>Ah, I see. Since Mimata Chieri is an agent, she must have many opportunities to meet espers. By the way, three people, I wonder what their abilities are?</p>
-<p>,What were the abilities of those three?"</p>
-<p>,One of the TAIRA agents was a telekinetic like you, Sunbae-nim, and I don't know the details of the other, but I think it was a physical psychic ability. The target was an esper who could erase his appearance and presence, and I dealt with him after he was caught stealing information from the TAIRA Group with that ability."</p>
-<p>I see. Should I meet that telekinetic esper later and learn some know-how? I don't know if they'll meet me, though.</p>
-<p>,Anyway, what does Sunbae-nim being an esper have to do with Seryu Military Company?"</p>
-<p>,More than half of the 10 people at Seryu Military Company are espers. Even if Seryu Military Company's debt of 135 million is added to the acquisition funds, it's still a profitable contract."</p>
-<p>Mimata Chieri nodded brightly at my words. Even a weak psychic ability can be used in countless tactical ways depending on how it's used, and above all, psychic agents are not resources that can be cultivated just because you want to. Espers themselves were rare, and combat agents with psychic abilities were even rarer, so hiring costs were quite high.</p>
-<p>Of course, since it's the early days of espers appearing, the market price hasn't been formed yet, so Seryu Military Company is experiencing management difficulties, but soon an incident will occur and the existence of espers will be known to the world, and Seryu Military Company's financial situation will improve as well.</p>
-<p>,Ah, I see! Then that changes things. How much is the budget you're thinking of?"</p>
-<p>,Originally, I was thinking about 5 billion yen... But looking at the state of the office, I can set it much lower."</p>
-<p>,With 5 billion yen, you could buy ten of these small businesses, you know?"</p>
-<p>I didn't know they were operating in such a shabby place either. Seeing this shabby two-story office, I could understand why Seryu Military Company was cost-effective for the youngest son of a mega-corp. He probably just wanted to make a lot of money by doing multiple cheap jobs and escape from that office. Since I've prepared 5 billion anyway, I should invest the remaining money after the acquisition.</p>
-<p>,First, find out the market price for acquiring a PMC of this size."</p>
-<p>,I already did."</p>
-<p>When she saw me, she started opposing me, so I thought she only did basic research and didn't research the acquisition amount, but it seemed like she did all that and then opposed me. Mimata Chieri clicked a few things on her laptop and displayed a document on the screen. The acquisition cost of a small PMC with about 10 people was written, and after roughly checking it, it was about 600 million yen. However, other PMCs that were recently traded included things like transportation vehicles that they received when they were affiliated with the Japanese government, even if they were small businesses with about 10 people. In my opinion, Seryu Military Company doesn't seem to have expensive equipment like transportation vehicles, so I thought I could acquire it for about 70 percent of the price.</p>
-<p>,Find out what situation Seryu Military Company is in and how we should solve it if we acquire it, Sunbae."</p>
-<p>,Now?"</p>
-<p>Looking at the time, it was around 11:40. Is it lunchtime, so she's asking, "Now?"</p>
-<p>,Shall we have lunch together first?"</p>
-<p>,No way~!"</p>
-<p>Mimata Chieri was puffing out her cheeks and putting her hands on her hips with a dissatisfied expression. Hmm, I have no idea why she's doing that?</p>
-<p>,Don't get angry, and explain it to me, Sunbae?"</p>
-<p>,If you pinched my chest with telekinesis, you have to take responsibility~! Do it more!"</p>
-<p>Ah...! Is it time for some erotic stuff rather than food? I smiled and used telekinesis to undo Mimata Chieri's shirt buttons. Undoing buttons consumes quite a bit of mental energy, surprisingly. Now that it's come to this, it's telekinesis proficiency training today!</p>
-<p>,Shall we go to the bedroom?"</p>
-<p>I used telekinesis to undo all the buttons on Mimata Chieri's shirt, took it off, and asked her after leaving her in just her bra. Mimata Chieri was moving her lips as if she was about to say something, so I asked her, and she blushed and answered in a small voice.</p>
-<p>,Please carry me to the bed in a princess carry..."</p>
-<p>Ah, so cute. I picked up Mimata Chieri in a princess carry, left the conference room, and headed to the bedroom. When we arrived at the bed, we took off each other's clothes. Mimata Chieri, who had quickly become naked, lay on the bed and reached out her hands to me.</p>
-<p>,Please hug me quickly, Sunbae-nim."</p>
-<p>###</p>
-<p>,Haaah~!! Unghh♥ I like it! I like it!!"</p>
-<p>There is something called a lucid dream. Sawayanagi Azuma realized that the current situation was a dream. It was impossible for her, who was still a virgin, to make such vulgar and sweet moans.</p>
-<p>It was definitely not reality that she was sticking out her tongue and drooling while accepting the man's huge thing. And if this wasn't a dream, she wouldn't be able to see herself as a third party watching.</p>
-<p>,I love you, I love you, Pussy, I love you!!"</p>
-<p>Sawayanagi Azuma thought that if there was a vulgar love confession contest, she would have received the grand prize immediately. Suddenly, Sawayanagi Azuma wanted to see the man who had made her like that.</p>
-<p>Instead of looking at herself sticking out her tongue vulgarly, she looked at the man shaking his waist above her.</p>
-<p>First, what came into Sawayanagi Azuma's view was the man's muscular body. In fact, Sawayanagi Azuma liked the delicate pretty boy style, but she didn't dislike such a muscular body either.</p>
-<p>Next was the face, he was handsome. He wasn't the pretty boy type that Sawayanagi Azuma usually liked, but he had a handsome face that everyone would like. He was a handsome man that anyone on the street would say was handsome.</p>
-<p>,How is it, the new house?"</p>
-<p>,Haaang, I like the investor-nim more than the house, haa!!"</p>
-<p>A new house? Sawayanagi Azuma looked around. It wasn't her usual room. Even though it was just a room, it seemed to be half the size of the house where she, Seari, and three other women from Seryutai were living. Then how big is the house?</p>
-<p>And an investor? Is this person the one who's helping Seryutai? Sawayanagi Azuma's head became complicated. She was confused whether this dream was just a random dream or a prophetic dream.</p>
-<p>When she first realized she was dreaming, she thought it was a random dream because there was no way she would be so vulgar, but considering her recent prophetic dreams, there was a possibility that this dream was also a prophetic dream.</p>
-<p>,Go, go, go! Haa!!"</p>
-<p>Before she knew it, her dream self was reaching her climax, rolling her eyes and trembling. Seeing that, she felt complicated. If it was a scene of them kissing happily, she could have had a pleasant dream, but she resented her ability for showing such a stimulating scene to a virgin.</p>
-<p>,One more time, please do it one more time...! Investor-nim!"</p>
-<p>,Then shall we do it from behind this time?"</p>
-<p>,I like it♥"</p>
-<p>She couldn't watch anymore. Once was enough, but she wasn't satisfied and wanted to do it again, that wasn't the attitude she would take. Yes, this dream is just a random dream...! Sawayanagi Azuma thought that this dream could never be a prophetic dream. She had to wake up now.</p>
-<p>Sawayanagi Azuma opened her eyes. Fortunately, she was no longer looking at herself from a third-person perspective. She saw a familiar ceiling. She got up and looked around, and saw her small room. Was it because of the large room she saw in her dream? Her current room looked very small.</p>
-<p>!"</p>
-<p>She was about to get up completely since she was awake, but her lower body was wet. Sawayanagi Azuma reached down and touched her lower body. A sticky liquid was smeared all over her Pussy.</p>
-<p>,Haa... Annoying...!"</p>
-<p>Sawayanagi Azuma took a shower with a very annoyed expression, changed her clothes, and went outside. Seari was sleeping, and the other two had disappeared somewhere, probably because their operation had recently ended. They'll come back when they run out of money...</p>
-<p>Sawayanagi Azuma rode her old Yamaha motorcycle and arrived at the office of Seryu Military Company, where she was the president.</p>
-<p>She had to stay in her seat in case there were any potential customers. She had to stay in her seat to get small requests, and even small requests would allow her to pay off the interest and cover her living expenses.</p>
-<p>Of course, even if she stayed in her seat like this, there would only be about two customers a week at most. And only one of them would actually give her a job.</p>
-<p>If there was no work, she could find work through a broker, but Sawayanagi Ryuta, who was like a foster father, said that it wasn't good to rely on brokers all the time and that she should continue to receive direct requests and build her reputation. Sawayanagi Azuma, who was greatly influenced by this, went to the office every day. If she went on a mission, Sawayanagi Sinya, who was the vice president, would stay in her seat.</p>
-<p>Knock knock knock!</p>
-<p>She heard the sound of someone knocking on the door, as if a customer was coming after a long time. Sawayanagi Azuma shouted brightly, "Come in!" and the door opened.</p>
-<p>The people who came in were two men in suits who looked like public officials. They looked around and approached Sawayanagi Azuma, handing her a document.</p>
-<p>,Are you Sawayanagi Azuma of Seryu Military Company?"</p>
-<p>,Yes."</p>
-<p>,This is an order to seize this office, warehouse, and everything inside if you don't pay the money by the day after tomorrow."</p>
-<p>,What? Tojima-ssi clearly said he would wait until next year..."</p>
-<p>Tojima, who Sawayanagi Azuma mentioned, was the person who held most of the debt shares of Seryu Military Company. Tojima clearly said that he would not take any action until next year if she faithfully paid the interest, but why this sudden bolt from the blue?</p>
-<p>,Sato Tojima-ssi sold all of his debt shares to Gomisawa Renya. This order is an order that Gomisawa Renya filed with the court."</p>
-<p>At the public official's explanation, Sawayanagi Azuma bit her lip. Gomisawa Renya was the man who created Black Tech after betraying Seryutai and leaving. He used to be the vice president when Sawayanagi Ryuta was alive, but he betrayed them as soon as Sawayanagi Ryuta died.</p>
-<p>,I understand. I'll pay it back somehow, so please leave now."</p>
-<p>,I'm telling you clearly, it's the day after tomorrow from today, Sawayanagi-ssi."</p>
-<p>The public officials left the office, and a cold air lingered in the office. She had a strange dream from the morning, and it was the worst day. Sawayanagi Azuma bit her lip with a serious expression and picked up her smartphone.</p>
-<p>_____</p>
-<p>This is a live-action illustration of Arisu and Sayaka requested by Troy-nim in the last episode of Part 1.</p>
-<p>Lovely Arisu! I wish it was a little more refreshing, but I guess my skills are still lacking ㅠㅠ</p>
-<p>I was touched that you still remembered Hanasaki Sayaka and requested it. I made it with the feeling of helping my parents' Izakaya, and I uploaded the second and third ones because the atmosphere was good ㅎㅎ</p>
+<p>"Now we have to protect ourselves. Looking at the situation, it seems likely that the culprit is among us...."</p>
+<p>Professor Homura Koga opened his mouth to everyone. Since the inn was a bit far from the village, it was unlikely that a villager had committed the murder. There was no reason to kill tourists who helped the village economy. And I hadn't seen any villagers inside the inn.</p>
+<p>"Everyone, tell me your alibis for what you were doing an hour and thirty minutes ago, about fifteen minutes after arriving at this inn."</p>
+<p>Professor Homura Koga said, looking around at everyone. In the end, the important thing was the alibi. If we could find out what everyone was doing an hour and thirty minutes before the person called Morisuke died, we could easily identify the culprit.</p>
+<p>"I'll start with myself, since I proposed it. I was in my room with Wano-gun, checking the schedule."</p>
+<p>"Yes, I was checking the schedule for this Chohten Island investigation with the professor. We each went to the bathroom once, but there wasn't enough time to commit murder."</p>
+<p>Professor Homura Koga and Wano Haruto had alibis. Next, the plain woman, Hijitani Saori, opened her mouth. She seemed a little flustered.</p>
+<p>"As soon as Uchidate-ssi entered the room, I went straight out, so there's no one to testify to my alibi, but I was in the room the whole time! Really!"</p>
+<p>Hijitani Saori insisted on her innocence. In fact, she said she was just in the room, but there was no way to prove it.</p>
+<p>"Hijitani-yang, wait, we'll move on to the next person. Uchidate-yang, where did you go right away?"</p>
+<p>"I was a little seasick, so I wanted to get some fresh air. I decided to unpack later and go straight out of the inn. When I left the inn, Taira Ryuta-ssi was just about to take a bike ride around the island, so I went with him."</p>
+<p>Uchidate Kanimi also mentioned me while giving her alibi. I nodded at her words.</p>
+<p>"As Uchidate-ssi said, we went around the village on a bike. It rained in the middle, so we came back a little early."</p>
+<p>"Did you go straight to driving?"</p>
+<p>"No, I organized my luggage a bit, so I left about fifteen minutes later?"</p>
+<p>I answered Wano Haruto's question obediently. Ah, if you think about it that way, I'm also included as a suspect. I guess the murder time overlaps with mine by about a minute, and Wano Haruto's forensic analysis isn't 100 percent accurate, so if you look at the murder time generously, both Uchidate Kanimi and I didn't have an alibi until we left to go around the village.</p>
+<p>"Of course, we wouldn't have committed murder, but at that time, my granddaughter and I were finishing up preparing lunch together."</p>
+<p>"Yes. I was setting the table for lunch with my grandmother."</p>
+<p>The innkeeper grandmother and Hamahata Konoka proved each other's alibis.</p>
+<p>"I was alone in my room too, but I'm really not the culprit!"</p>
+<p>Kimura Atsuhiro waved his hands and strongly appealed that it wasn't him. Looking at his expression, he really seemed wronged.</p>
+<p>"We came to help because there were guests today."</p>
+<p>"We came around after lunch, so it must have been after the murder."</p>
+<p>The two workers looked at each other and said. Hearing them, it was said that the time they came to this place was much later than the murder, so they were naturally excluded from the list of suspects.</p>
+<p>Hmm, so there are four people without alibis, including me? This is a bit awkward?</p>
+<p>"There are a total of four people without alibis, what should we do?"</p>
+<p>"We're not the police, so we can't keep them locked up.... How about we split into two groups and travel together?"</p>
+<p>Before I knew it, I felt like I would be included in those two groups.... I hate having people follow me around. Also, since it's related to the Daughter of the Abyss, I didn't know what might happen, so it was even more so.</p>
+<p>"I'm not originally part of the group, and I'm meeting the murdered person for the first time, so I have no grudge against him. That means there's no reason to kill him. I'm planning to visit the shrine for a while, but there's no reason for me to be treated like a murderer and travel with you."</p>
+<p>"We were going to the shrine anyway, so let's go together when we go to the shrine. I heard that you have a special room with a maid to serve you, so except for the shrine, you can be with the maid, right? The maid will tell you your alibi."</p>
+<p>Instead of pressing me, the professor appeased me appropriately. I didn't need to be on edge until the end, so I decided to go with them when they went to the shrine. Well, even if the Daughter of the Abyss caused those people to suffer, it wasn't my fault.</p>
+<p>Thinking about it, he was a terrible professor. One of his students died, but he said he was going to the shrine, so it seemed like he was going to investigate until the end. Rather, I felt like he liked the fact that the police weren't coming because of the weather. Of course, that's just my personal feeling.</p>
+<p>"Now that we're talking about it, let's go to the shrine now."</p>
+<p>Everyone nodded at the professor's words. Yeah, it would be nice to quickly look around the shrine and come down and relax in the private open-air bath.</p>
+<p>First, we decided to meet at the entrance of the inn in fifteen minutes. That means we should pack the necessary luggage and gather. I returned to my room and opened the sliding door connecting the open-air bath and the room. The surface of the open-air hot spring was creating countless concentric circles with the pouring raindrops. Seeing this, I wanted to have a bowl of makgeolli with green onion pancakes.... I was hungry because I only ate a normal portion for one person for lunch. I should ask them to make a lot for dinner, even if I have to pay extra.</p>
+<p>But it's raining so much, is this okay? I didn't prepare an umbrella or anything.... Should I just go up in the rain....</p>
+<p>Knock knock!</p>
+<p>When I was worrying about the rain, someone knocked on the door. When I said come in, Wano Haruto came in with a depressed expression and dark circles under his eyes. He was holding something made of transparent vinyl in his hand.</p>
+<p>"I thought you might not have an umbrella or raincoat, so I brought a raincoat."</p>
+<p>"Ah, thank you."</p>
+<p>"It's Morisuke's, so it should fit you well."</p>
+<p>Ah, the man named Morisuke died, so there was an extra raincoat. The man named Morisuke was a bit taller than average, but he was quite large and chubby, so it seemed to fit me well because I was wearing a large-sized raincoat.</p>
+<p>"Who do you think the culprit is?"</p>
+<p>Wano Haruto suddenly asked who the culprit was. Is he trying to test me, or is he asking because he knows I'm not the culprit?</p>
+<p>"Then are you asking because you know I'm not the culprit?"</p>
+<p>"As Taira-ssi said earlier, it's our first time meeting, and there's no reason to kill him. And decisively, the wound on Morisuke's head wasn't a downward strike, but a shape that was almost at a right angle, so someone taller than Morisuke can't be the culprit. At least Taira-ssi, who is taller than Morisuke, can't be the culprit."</p>
+<p>Even if it's a minor, the major is different. To deduce the height of the culprit from the shape of the wound. But I only saw that person named Morisuke lying down and lying in the coffin, so I don't remember his height exactly....</p>
+<p>"Is Morisuke-ssi the tallest in your group?"</p>
+<p>"Yes, he was big and the tallest. The person himself was gentle, though...."</p>
+<p>"Then why didn't you reveal it at the murder scene earlier?"</p>
+<p>"To make the culprit careless. Since there are many suspects, I wanted them to think that the probability of them getting caught was low. First of all, I apologize for that."</p>
+<p>Wano Haruto bowed politely. He bowed so much that I couldn't say anything, so I just said I understood and received the transparent vinyl raincoat.</p>
+<p>"I have a question. Are all the Kanto University members close?"</p>
+<p>"To be honest, I don't know them well. My professor was appointed to a foreign university, so I've only been with Professor Homura Koga for a semester.... I heard that Morisuke and Atsuhiro were under another professor two years ago, but that professor died due to some incident, so they went under Professor Homura Koga. The two female students are undergraduates who take my liberal arts class, and they said they were interested in folklore, so I brought them along as an experience and as assistants."</p>
+<p>Ah, I see. It didn't seem like all the members were very close. Come to think of it, when Morisuke died, everyone was shocked, but no one was sad.</p>
+<p>"It's time. Let's go out for now."</p>
+<p>"Yes."</p>
+<p>At Wano Haruto's words, I nodded, put on the raincoat, and headed to the entrance of the inn. Everyone was waiting for us under the roof of the entrance, avoiding the rain.</p>
+<p>"Taira-ssi is wearing a raincoat too."</p>
+<p>Kimura Atsuhiro asked, looking at me. When Wano Haruto said that I gave him Morisuke's raincoat, everyone was silent for a moment and nodded. It seemed like they didn't have anything to say because the name of the dead person came up.</p>
+<p>"Morisuke would also want us to finish the investigation. Let's think of it as Morisuke is also investigating with us and do our best."</p>
+<p>At Professor Homura Koga's words, everyone nodded heavily and departed for the shrine. The shrine wasn't far in a straight line, but it took a considerable amount of time because it was built near the top of the mountain.</p>
+<p>During that time, I had to keep listening to the words of the too-much talker, Professor Homura Koga. Since it was Chohten Island, most of the stories were about the unique customs of Chohten Island. It was surprisingly interesting, and some unique customs made me prick up my ears.</p>
+<p>"When a woman on Chohten Island's husband dies, she returns to her original surname. I haven't investigated it deeply yet, so I don't know the exact reason, but there is such a custom."</p>
+<p>"The people of Chohten Island each prepare their own coffin. When they die, they put the body in the prepared coffin and bury it. After 48 days, they take it out again, burn it, put the ashes in a box, and bury it in the family grave behind the house. Since it's a small island, if the coffin is buried whole, there won't be enough land later. So, if you go behind the house, you can see tombstones with names written all over them."</p>
+<p>"The sea goddess worshiped on Chohten Island is treated as an evil god on the neighboring Hachijo Island. According to the records of Hachijo Island, a document was discovered a few years ago stating that the island 200 ri (about 80 kilometers) to the west worships an evil god."</p>
+<p>These were the interesting stories, and the rest were peripheral or too deeply professional, so they didn't pique my interest. After walking for a while, Professor Homura Koga pointed to one place.</p>
+<p>"Look. The torii is also unique, right? It's not that there aren't black torii, but it's rare to see a torii that's so jet-black."</p>
+<p>As Professor Homura Koga said, a completely black torii that looked ominous was standing in front of the shrine. Passing through the torii and entering the shrine, a Shiba Inu mix dog was tied to a leash near the entrance, looking at us indifferently from inside its dog house. Usually, it would bark when strangers came, but it was strange that it was looking at us indifferently as if it had no interest at all.</p>
+<p>"Have you arrived?"</p>
+<p>"Yes, I'm Homura Koga, whom I contacted before."</p>
+<p>With a mysterious voice, a woman wearing a miko outfit came in front of us with an umbrella. She was wearing the commonly known miko outfit of a white top and red bottom, but strangely, she was wearing something similar to a jar on her face.</p>
+<p>"Please understand that the reason I can't reveal my face is because there is a tradition of not seeing the dirty things of the world until the ritual."</p>
+<p>She could wear a mask or an eye patch, but it's strange that she's wearing a jar like an octopus jar.</p>
+<p>--------</p>
+<p>List of suspects photos</p>
+<p>I made it too big, so I rotated it ㄷㄷ</p>
+<p>It took me 2 hours to make this ㄷㄷ The problem wasn't anything else, but most of the models didn't have grandmothers ㅠㅠ No matter how much I entered the grandmother prompt, if there was no data that learned grandmothers, only a lot of white-haired beauties came out, so it took a lot of time to find a model that supported grandmothers ㅋㅋㅋ So if you look closely, only the grandmother's drawing style is very different ㅎㅎ</p>
+<p>Example of not supporting grandmothers</p>
+<p>Since the granddaughter is pretty, let's just say it's a picture of the grandmother when she was young ㅎㅎ</p>

@@ -5,85 +5,86 @@ weight = 355
 chapter = 355
 +++
 
-<p>First, I'm hungry, so should I order something with Uber Eats? After finishing the call with Eve, quite a bit of time had passed, so I was searching for nearby restaurants to order food.</p>
-<p>Ttiring! Ttiring!</p>
-<p>While I was searching for restaurants, a ton of Line messages poured in, so I took a peek and saw that Konoe Akina had already created a group Line chat for the club. Seriously, why is she so diligent...? Let me eat in peace.</p>
-<p>Ryuta: Hold on, let me order food first....</p>
-<p>Konoe Akina: Ryuta-nim! Home-cooked food is healthier than delivery food. Should I bring some food I made to your place?</p>
-<p>Minamoto Risa: What are you saying! Going to his house?!</p>
-<p>Seizawa Shii: I haven't had dinner yet either, Ryuta-cchi, order some for me too! A karaage set meal!</p>
-<p>Urabe Konoka: If it's cooking, I'm confident too!</p>
-<p>Shido Tsubaki: For your information, I'm eating soba.</p>
-<p>Ryuta: You guys don't even know my address. Just a moment, talk amongst yourselves.</p>
-<p>It was only a brief moment, but it was chaotic. Three members of the special class were missing, so it was a group chat with a total of 10 people, so it was that noisy. Still, since 3 people are being left out, I should add them to the group chat later.</p>
-<p>I'll say Alik is joining multiple clubs.... Ah, I need to order food first. I was craving Japanese-style Chinese food today. It's a menu that doesn't come out often as school lunch at St. Francisco Girls' Academy, so I crave it from time to time.</p>
-<p>I'm pretty hungry, so I ordered a double portion of fried rice (chahan), a double portion of karaage set meal, a double portion of mapo tofu rice bowl, and gyoza as a side. The total is 4600 yen, including the delivery fee. Miyashi is quite expensive, so it couldn't be helped. I should order using the company card.</p>
-<p>After ordering delivery with Uber Eats and going back into the group chat, Konoe Akina and Minamoto Risa were explaining the mission they received from Taira Kanna today. Hmm, they're doing well on their own.</p>
-<p>Ryuta: Ordered.</p>
-<p>Seizawa Shii: What did you order?</p>
-<p>Ryuta: Double portion of chahan, double portion of karaage set meal, double portion of mapo tofu rice bowl, and Gyoza.</p>
-<p>Seizawa Shii: You really ordered a karaage set meal? Are you really telling me to come to your house? Ryuta-cchi so funny~!🤣</p>
-<p>Ryuta: What are you talking about? I ordered it because I wanted to eat it.</p>
-<p>Minamoto Risa: Let's stop talking about food and think about what we need to do to solve the mission.</p>
-<p>In fact, this mission was very easy. The student council's request was to find the person making the moaning sounds of a man and a woman in the corner of the auditorium, but if you think about it, it was a request to find a male teacher who is sleeping with students.</p>
-<p>If that's the case, whether he's the culprit in the auditorium or not, Kasaoka Kouki, Kasaoka Yuzuki's husband, is there, so we can pin it on this guy. According to the Taira Group's information, he's having affairs with the students he teaches as much as he wants.</p>
-<p>Shido Tsubaki: Speaking as the former head of the newspaper club, 20 percent of the male teachers attending the school are in unhealthy relationships with female students at the academy. If we throw one of them to the student council, wouldn't the request be over?</p>
-<p>Shido Tsubaki was thinking similarly to me. She's a student with quite a scary mindset? I need to be careful.</p>
-<p>Minamoto Risa: 20 percent? Disgusting!</p>
-<p>Otagi Yuka: It's not all of them, it's only 20 percent....</p>
-<p>Kujo Kina: I just came back from exercising, and you guys are doing something so fun? If it's a perverted teacher, I'll blow him away with a bang!</p>
-<p>Ryuta: Then let's vote. A is that we find the culprit ourselves. B is that we give one of the people on Shido-yang's list to the student council. Let's choose one of the two.</p>
-<p>I created a voting window with two options, A and B, and a miscellaneous option, and uploaded it. Actually, I'm a little lazy, so I hope most people choose B.</p>
-<p>But unlike my expectations, the students had a higher selection rate for A. The selection rate for miscellaneous was even higher than B.</p>
-<p>Kujo Kina: Since it's our club's first activity, let's not eat what others throw at us and do it ourselves!</p>
-<p>Otagi Yuka: I chose miscellaneous because I'm on the side of going with A, but if there are no more clues, going with B.</p>
-<p>Minamoto Risa: I'm B. But the slightly different point is that instead of one of the 20 percent, we hand over all of them to the student council.</p>
-<p>Shido Tsubaki: That's not possible. I have a good relationship with those 20 percent of teachers.</p>
-<p>What is a good relationship? I can only picture Shido Tsubaki threatening them and the teachers helping Shido Tsubaki with her school life.</p>
-<p>Minamoto Risa: Good relationship...? Don't tell me you're enjoying yourself with those 20 percent of teachers?</p>
-<p>...Minamoto Risa thought a little more violently than I did.</p>
-<p>Shido Tsubaki: There's no way! How lewd is your mind?!</p>
-<p>I kind of agree. Rather, hating this kind of lewd thing so much could mean that you're very interested in it. Minamoto Risa's reaction is so fastidious that she might be very interested in that side.</p>
-<p>Minamoto Risa: Lewd!? Isn't that too harsh of a word?????</p>
-<p>Seizawa Shii: Alright! Alright! Let's not fight, the vote is higher for A, so we're going with A, right Ryuta-cchi?</p>
-<p>Ryuta: Yeah, I guess so? Let's investigate ourselves, and if we can't, let's get help from Shido Tsubaki.</p>
-<p>I essentially accepted Otagi Yuka's opinion of going with A, but if there are no more clues, going with B, and wrapped up the situation. If I watched any longer, Minamoto Risa and Shido Tsubaki seemed like they would fight.</p>
-<p>Ding-dong!</p>
-<p>"Delivery!"</p>
-<p>The delivery came just in time. I happily received the food from the delivery person and set it on the table. And a selfie with the table full of food.</p>
-<p>Ryuta: Photo</p>
-<p>Ryuta: Sensei is going to eat now, so everyone come early tomorrow without being late.</p>
-<p>After that, a lot of Line messages came, but I was too busy eating to check them.</p>
+<p>"Heeuung♥ Hheut! Ryuta's cock...! Feels so gooood♥"</p>
+<p>"Yukiko's pussy also feels amazing...!"</p>
+<p>Yukiko wasn't just passively receiving my piston action. She sucked on my neck and nipples, whispering lewd words in my ear, doing everything she could to suck my semen into her womb as quickly as possible.</p>
+<p>The succubus's instincts and the crimson pillars of murderous intent swimming in my Black Maitreya semen and vaginal fluids were attacking each other to reach their peak first. As a result, their pleasure was soaring higher and higher.</p>
+<p>"Heok, heok...! Heok...! Yukiko...!"</p>
+<p>"Haeuuheut, heeung! Ryutaaaa♥ I love you, hheut! Feels so gooood! Heuaaaaaaang~!!"</p>
+<p>Like a train rushing towards its final destination, we shook our waists relentlessly, kissed, and whispered dirty talk, finally reaching our climax together.</p>
+<p>Chwaaaak! Chwak! Chwaaaak!</p>
+<p>Byuuuut! Byeut! Byuuuut!</p>
+<p>Along with Yukiko's grand squirt, a tremendous amount of semen was spewed from my cock, filling her womb to the brim. Yukiko's womb seemed to suck the semen in, kissing my glans and sucking up even the semen remaining in my urethra with a vacuum-like fellatio.</p>
+<p>Perhaps because she had ejaculated semen, a shining vulva appeared on the skin of Yukiko's lower abdomen where her womb was located. Yukiko's eyes shone pink, and her brown hair was gradually turning pink. Is she succubus-ifying because she accepted the semen?</p>
+<p>I pulled out my cock and watched Yukiko transform. Even though I had shot a ton of semen inside her pussy, no semen flowed out. It seemed that all the semen was contained in her womb and not coming out.</p>
+<p>Not only her hair color, but also horns and wings had appeared, transforming her into the succubus that most people imagine.</p>
+<p>"Ryuta...♥ Do I look pretty in this form too?"</p>
+<p>Yukiko, lying on the bed with a sensual expression and asking me that, was of course pretty. Her appearance stats were stats, and her charm stats were incredibly high, so it was natural that she was pretty. Becoming a succubus seemed to make her personality a little more cheerful, which was also kind of nice.</p>
+<p>"Yeah, you're pretty. That's why it's like this again."</p>
+<p>I grabbed my re-erected cock and showed it to Yukiko, saying that. Yukiko's eyes gleamed seductively when she saw my hard cock.</p>
+<p>"Then you can hug me again? Ryuta, put it in right away~☆"</p>
+<p>Seeing the clear, lewd vaginal fluids already flowing in streams, it was clear that the succubus's pussy was fully prepared to accept my cock again.</p>
+<p>"Okay. How about Yukiko does it on top this time?"</p>
+<p>"Ah, I like that! I'll do it on top♥"</p>
+<p>Yukiko excitedly accepted my suggestion, so I immediately lay down on the bed. Yukiko's succubus pussy slowly descended onto my stiff cock pointing towards the sky.</p>
+<p>Jjeugeok...!</p>
+<p>With the sound of my cock splitting through her moist pussy, it entered inside in an instant. It was definitely the same pussy as before, but the inside had a slightly more complex structure, and it was filled with thick vaginal fluids, making it a top-class, super-premium pussy that felt incredibly good.</p>
+<p>"I'll shake it... Ryuta can cum whenever he wants♥"</p>
+<p>At first, Yukiko gently caressed my cock with her vaginal walls, shaking her waist slowly, but soon she picked up the pace and began to move her waist up and down vigorously. An ordinary woman would quickly get tired and fall off, but Yukiko is a sex machine succubus. She didn't get tired after just a few minutes of cowgirl.</p>
+<p>After extracting semen from my cock five times and experiencing over ten orgasms herself, she finally stopped with a satisfied expression. I also saw the long-awaited translucent level-up window during my last, fifth ejaculation.</p>
+<p>LEVEL UP!</p>
+<p>Please select a trait.</p>
+<p>It's been a while since I leveled up. I was quite tired, so I decided to choose the trait later and lay down, hugging Yukiko, who had already returned to her human form.</p>
+<p>"Was I too excited? It seems like my personality changes a bit when my appearance changes."</p>
+<p>"I like that form too, because both are Yukiko-ssi."</p>
+<p>I kissed Yukiko's cheek as she blushed and spoke, embarrassed by her cheerful appearance as a succubus. Yukiko smiled happily at my answer and snuggled deeper into my arms.</p>
+<p>As expected of a succubus, her face was incredibly smooth after accepting my semen into her body. You could say her face was glowing? Not only her face, but her entire skin felt radiant.</p>
+<p>Ggrrr!</p>
+<p>It was already long past dinner time, so a loud noise came from my stomach, which had skipped dinner. Yukiko chuckled and looked at me.</p>
+<p>"You didn't even feed me and made me do hard labor? What do you want to eat?"</p>
+<p>"Yukiko-ssi, don't you want anything to eat?"</p>
+<p>At my question, Yukiko smiled seductively and rubbed her lower abdomen.</p>
+<p>"I'm already full♥"</p>
+<p>I see. Then shall we eat what I want to eat?</p>
+<p>"I want to eat gyudon with Yukiko-ssi for the first time in a while."</p>
+<p>It's a food that holds memories with Yukiko, so I wanted to eat it because I saw Yukiko for the first time in a while. I had intentionally not eaten it while I was at St. Francis Girls' Academy. Because there was no Matsuya, the gyudon franchise that Yukiko and I preferred, around St. Francis Girls' Academy.</p>
+<p>"Shall we?"</p>
+<p>"Yes, let's go out for a bit."</p>
+<p>Yukiko smiled when I said I wanted to eat gyudon because it was a food that held memories with me.</p>
+<p>"Hmm, but if I go around with you, there might be a problem with the mission...."</p>
+<p>Yukiko muttered to herself for a moment and changed her appearance. It seemed that she could do a half-succubus transformation, changing her hair color to pink without taking out her horns, wings, and tail. This is also refreshing.</p>
+<p>"This way, I can go outside as much as I want♥"</p>
+<p>Her face was still Yukiko's, but her hair was pink and her atmosphere was quite different, so strangers wouldn't recognize her as Yukiko.</p>
+<p>"Then let's get dressed and go out."</p>
+<p>"Okay~!"</p>
+<p>Wearing different clothes than when she came to the hotel, we enjoyed a Tokyo date for the first time in a while.</p>
 <p>###</p>
-<p>In the morning at St. Francisco Girls' Academy, the 3rd grade special class was in a small uproar because Saionji Diana, who had suddenly abandoned her wheelchair, appeared.</p>
-<p>"Saionji-yang, you can walk now? That's great."</p>
-<p>"You didn't say anything about the surgery in the club group chat yesterday?"</p>
-<p>"I've never fought someone with a cyber implant before, how about a match?"</p>
-<p>Konoe Akina and Otagi Yuka, who had brought Saionji Diana into the date experience-meditation club, congratulated her, and Kujo Kina, who knew about Saionji Diana's circumstances even though they had only met in class, also approached and requested a sparring match.</p>
-<p>"Thank you. For your concern."</p>
-<p>"Actually, I ran out of data.... I couldn't participate in the chat."</p>
-<p>"I'm a prosecutor, so if I fight you, you might die, so I won't spar."</p>
-<p>Saionji Diana sincerely answered each person. Of course, the reactions were all different. Konoe Akina, who gave ordinary congratulations and thanks, just moved on, and Otagi Yuka, as a young lady from a prestigious family, didn't understand the words "ran out of data and couldn't participate in the chat."</p>
-<p>"I can't just let that statement pass...?"</p>
-<p>Naturally, Kujo Kina had a slightly angry expression at the words that ignored her, but the atmosphere changed due to other students who came to school soon after, so she couldn't get angry anymore.</p>
-<p>"Diana-chan! You can walk now? Ryuta-cchi is amazing?"</p>
-<p>"This is...!"</p>
-<p>Seizawa Shii, who had heard the rough story from Minamoto Risa, smiled and clung to Saionji Diana, and Minamoto Risa was surprised by the cyber implant that was not visible at all from the outside.</p>
-<p>'The Minamoto Group doesn't have this kind of technology either.... I can't just ignore the underworld.'</p>
-<p>Minamoto Risa, as a member of the Minamoto Group's main family, knew about various new technologies, but Saionji Diana's cyber implant limbs were quite impressive. Above all, the fact that they could make it look like human skin was quite impressive.</p>
-<p>"This texture is scoop material...!"</p>
-<p>A few more students who came were surprised to see Saionji Diana, so Kujo Kina completely missed the timing to get angry and had no choice but to sit down, thinking that she would show them what's what someday.</p>
-<p>"Saionji-ssi, what model did you use for the cyber implant? This kind of flawless skin procedure doesn't seem to be on the market yet, did you receive a test product? Is there no problem moving even if you replace all four limbs? Do you know the exact specifications of the product? Also...."</p>
-<p>There was someone who showed particular interest in Saionji Diana, and it was Naruse Shiyo, a sickly girl who hadn't had much presence until now.</p>
-<p>Because she grew up so sickly, Naruse Shiyo's dream was to become a cyborg with most of her problematic body modified. So, she asked Saionji Diana, who had a cyber implant, various questions. But most of them were questions that Saionji Diana couldn't answer. It was a question related to the business of her benefactor and homeroom teacher, Yamashiro Ryuta, so she thought that if she answered, she might ruin it.</p>
-<p>"I don't know much. It's still a test model, so please understand that I can't answer the questions. If you're really curious, please send the questions via Line. I'll ask the side that did the surgery if it's okay to answer."</p>
-<p>"Yes, please...! Please ask that side."</p>
-<p>Saionji Diana couldn't resist Naruse Shiyo's sparkling eyes and said that she would ask the questions. After all, if Eve said it wasn't okay, it would be easier for Saionji Diana to answer, so she passed the responsibility to that side.</p>
-<p>"Okay, let's have morning assembly! Take your seats."</p>
-<p>Yamashiro Ryuta opened the classroom door and said. Yamashiro Ryuta glanced at Saionji Diana, nodded, and smiled.</p>
-<p>For Saionji Diana, Yamashiro Ryuta's few seconds of smile were better than all the congratulations she received from her classmates every morning.</p>
-<p>'Thank you, Sensei.'</p>
-<p>Saionji Diana greeted Yamashiro Ryuta in her heart and then sat down.</p>
-<p>----</p>
-<p>I'm Hamahata Konoka, currently Urabe Konoka.</p>
-<p>The ribbon is the point, hehe. I'm working hard to learn at the shrine, so you'll be able to see the miko outfit soon, hehe.</p>
+<p>"That's too bad, I thought you'd be here all weekend...."</p>
+<p>"Ryuta doesn't like clingy women, right? And the Human Resources Development Center is busy right now, and Ryuta has a lot to do since he came to Tokyo for the first time in a while, right?"</p>
+<p>I thought she would be with me all weekend, but Yukiko said she would return to the Human Resources Development Center after lunch on Saturday. Well, the new recruits for the second half of the year would be receiving training at the Human Resources Development Center right now, so Yukiko wouldn't be able to stay with me all Friday, Saturday, and Sunday as the head of the Human Resources Development Center.</p>
+<p>And I also had to check on companies like Hatake Investment Company, Seryu Military Company, and East Weapon while I was in Tokyo. Yukiko could now control her desires, so she knew I had work to do and made concessions.</p>
+<p>"If you miss me, I can now come to Ryuta's dreams...♥"</p>
+<p>I was curious if she could really come even though the distance was quite far, since she had marked my dreams. First of all, I have to say goodbye to Yukiko. Because I won't be able to see her for a while.</p>
+<p>"I don't think I can come next weekend because I have plans."</p>
+<p>"Okay, I can wait, Ryuta. Just don't do anything too reckless. I'll be really angry if you get hurt! Got it?"</p>
+<p>"Yes, Yukiko-ssi, please always be careful too."</p>
+<p>Yukiko tiptoed and kissed my lips lightly and left the hotel room. I tormented Yukiko all night yesterday, so the room is full of Yukiko's scent. I feel a little empty.</p>
+<p>"It would be good to do the things I've been putting off in times like this."</p>
+<p>I got up from my seat and muttered to myself. I left everything to everyone, but it's the owner's role to check these things, so it would be good to do it now that I have unexpected time.</p>
+<p>The first place to go is... where my secretary is.</p>
+<p>###</p>
+<p>"Whoa! What's a Sunbae who was playing around with JK (referring to Joshi Kōsei, high school girls) doing here?"</p>
+<p>"Be quiet, Sunbae."</p>
+<p>Mimata Chieri, who was in the East Weapon CEO's office, said that while making a fuss loud enough for the secretary outside to hear, so I raised my index finger to my lips and said that.</p>
+<p>I didn't know if Mimata Chieri would be at the company on the weekend, so I contacted her in advance, but she's still making a fuss like this, it was really a Mimata Chieri-like attitude.</p>
+<p>"I just came to see Sunbae and look around other places while I was in Tokyo."</p>
+<p>"Heeheung.... I'm Sunbae's secretary, so I'll hang out with you. But tell me the story of how the perverted Sunbae fucked a lot of girls at St. Francis Girls' Academy."</p>
+<p>I didn't fuck a lot. It's only about three people, but Mimata Chieri tends to overestimate me too much....</p>
+<p>"First, I'll get a report from East Weapon. I'm leaving everything to Sunbae-nim, so you can just tell me roughly."</p>
+<p>"There's nothing particularly new. There are always requests, the requests are being resolved well, and the market share has increased a little more, that's about it?"</p>
+<p>Mimata Chieri is from an agent background, but she has a talent for management, so she was handling East Weapon, which is one of the largest in Japan in terms of size, without difficulty.</p>
+<p>"Darim-jjang, who we had, is now already learning the third year of university. The professor in charge was also very surprised."</p>
+<p>Jeong Darim was also doing well as reported. She also had an aptitude and talent for it, so she was showing a genius-like talent. If this continues, she'll be able to do well in our plant research institute that we'll build someday.</p>
+<p>"You're doing well, Sunbae."</p>
+<p>"Ehehe! If I get my hands on it, this much is natural!"</p>
+<p>Mimata Chieri, who was elated and proud of my praise. She's actually doing well, so I should give her a bonus later.</p>

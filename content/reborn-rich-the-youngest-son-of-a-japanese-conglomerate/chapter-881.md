@@ -5,51 +5,81 @@ weight = 881
 chapter = 881
 +++
 
-<p>and are covering check please surroundings there your</p>
-<p>"You're going to the Home Economics Lab again today, right? Everyone, go home on your own.... See you tomorrow." Because there was only Morning assembly time to have a Conversation with the special class Students due to Valentine's Day Season, I chatted briefly, then finished the assembly and headed to the education preparation room.</p>
-<p>It was quite good that I had time to Study without worrying about the Kids because of the PMC certification Test next week. If there hadn't been a Valentine's Day preparation Event, I would absolutely not have been able to Study for the PMC certification Test at school. I would have had to go up to the 2nd floor club room and hang out with the special class troublemakers.</p>
-<p>After a long time, I focused and studied for two consecutive days in the education preparation room, even saving time by heating frozen Foodstuff in the microwave and eating it for lunch, studying until the afternoon.</p>
-<p>Although I could Study at Home, the Reason I studied within the academy was partly to increase concentration, but also to go home together with the Students who would receive Swords from Ichimonji Harugoro today.</p>
-<p>Knock, knock. When it was around two thirty, someone knocked on the door of the education preparation room. When I said, "Come in," the door drrrk opened.</p>
-<p>"Orabeoni!" When I checked who it was, it was Taira Kanna and Nakanoin Rina. It seemed Muko Neika hadn't come today. From the start, Muko Neika wasn't a cold Weapon User, and even when she went to Kofu last time, she said she just came to watch, so there was no Reason for her to come today.</p>
-<p>"Hello, Teacher-nim." "Yes, both of you have come. But...." I accepted Nakanoin Rina's greeting and waved my Hand. Suddenly, seeing Taira Kanna, something I was curious about came to mind.</p>
-<p>"By any chance, did you two also make chocolate in the Home Economics Lab?"</p>
-<p>"As the Student Council President, I have many things to finish. Unfortunately, I couldn't participate in the Valentine's Day Event." "I also had things to hand over to the Morals Committee, so I couldn't participate."</p>
-<p>Ah, I see. Somehow, Taira Kanna and Nakanoin Rina didn't seem to fit making chocolate among the Students, that's why I asked. By the way, it seems both of them came early because they didn't make chocolate with the Students.</p>
-<p>"While Orabeoni packs his Luggage, we will look around the education preparation room." This means "don't Study anymore, pack your Luggage," right? Anyway, the Students would come soon, so I packed my Luggage, listening to Taira Kanna's hrr-hm Humming as BGM.</p>
-<p>After packing all my Luggage, outside began to get noisy. It seemed making chocolate in the Home Economics Lab was over.</p>
-<p>"Today, I'm going too." "Me too~☆" Minamoto Lisa and Seizawa Shii entered the education preparation room, saying they were going too. And looking at Taira Kanna, they made a startled Expression. Of course, both of them would have known Taira Kanna was with us today, but it seemed they didn't expect her to already be in the education preparation room.</p>
-<p>By the way, neither of them are Swordsmen, so why do they want to see Ichimonji Harugoro? Minamoto Lisa said she had someone under her who uses cold Weapons, so it might be to meet him in advance, but Seizawa Shii is a Fist Technique practitioner, so there was no particular Reason to meet Ichimonji Harugoro. Of course, given Seizawa Shii's Personality, she probably just wants to be together, out of Intrigue and because her Friends are here.</p>
-<p>"Oh my, Lisa, Shii, you're late?" "We didn't make a specific appointment, so we're not late." "Kanna-cchi~! Long time no see~☆" Minamoto Lisa snapped back at Taira Kanna, who was needlessly trying to pick a Quarrel by saying they were late. Seizawa Shii pretended not to hear the word "late" and greeted her warmly. In fact, as Minamoto Lisa said, they hadn't set a specific time, but agreed to come to the education preparation room together after finishing to go home, so they weren't late.</p>
-<p>The appointment time to meet Ichimonji Harugoro was before Evening. I was thinking of treating the Students to dinner as a Reward for their hard Work after they received their Swords, so there was quite a lot of Leisure time.</p>
-<p>"The other Students are outside, right? Let's go out for now." "Yes." No matter how much Leisure time there was, I couldn't keep staying in the education preparation room, so I, having packed all my Luggage, came outside. In fact, until this Evening, I had to be with the Students and the old man Ichimonji, so there was no separate time to Study; I just needed to pack the Bag I brought when Going to Work as is.</p>
-<p>"Ryuta...!" "Teacher-nim, you're here?" "Teacher-ssi, you've worked hard." "Yes, everyone did well in Home Ec practice?" Perhaps because the entire grade was together in the chocolate making space, as I approached closer, there was a sweet Smell unique to chocolate. After greeting the Students briefly, I approached Shimokawabe Airen, who looked tired.</p>
-<p>"Shimokawabe seonsaengnim, you've worked very hard." "Yes...."</p>
-<p>Shimokawabe Airen, perhaps because she had been tormented by Students since yesterday, had slight Dark Circles under her Eyes. Since it was February, neither Winter nor Spring, she was wearing a short padded jacket and Jeans, and perhaps because of her Attire, she looked younger than usual.</p>
-<p>"First, get in the car." With these Members, if we crossed the school path, I thought we would receive a lot of attention from the Students, so when I went to Work today, I came in a van in advance. Minamoto Lisa and Taira Kanna go home together? Tomorrow, the St. Francis Girls' Academy Newspaper Department would immediately publish an exclusive Story. Of course, I hadn't expected Minamoto Lisa to join, but Taira Kanna alone was so eye-catching that I had decided since yesterday to take everyone in the car.</p>
-<p>Minamoto Lisa and Seizawa Shii newly joined, but Muko Neika didn't come, so the Seats somehow fit.</p>
-<p>As I opened the Driver's Seat door, Alik, like a quick squirrel, sat very quickly in the passenger seat with a shashak. Seeing electricity crackling in his Eyes, it seemed he had used Nerve Acceleration. Last time, when we went to order Swords, Taira Kanna sat in the passenger seat, so this time, it seemed he had firmly (?) prepared to not give up the Seat.</p>
-<p>"Alik, you kept your Seat this time...!" He was incredibly proud. I, finding that Appearance cute, smiled and stroked Alik's Head as I sat in the Driver's Seat.</p>
-<p>"Alexandra, you're fast." "Alik, fast." When Taira Kanna, looking at the passenger seat, said, smiling as if he was cute, Alik answered, placing both Hands on his Waist. Usually, when Alik is called Alexandra, Alik says, "I'm Alik," and demands correction, but seeing that he doesn't demand it from Taira Kanna, it seemed he had some different Emotion towards Taira Kanna.</p>
-<p>As everyone got in the car, I drove towards the Destination. The Destination was one of Joseodang's disguised Safe Houses, a small cafe in Miyashi alley. Since I had told them not to do Business today, inside the cafe, disguised as Clerks, there would only be one or two Joseodang Agents.</p>
-<p>Since we were going from St. Francis Girls' Academy into Miyashi, it didn't take much Time. I parked the car in the cafe Parking Lot, got out, and entered the cafe with a "Closed" sign. Everyone followed me into the cafe.</p>
-<p>"Since I rented out the whole place today, order whatever you want." Since Taira Kanna and Minamoto Lisa were also here, I didn't specifically introduce it as Joseodang's Safe House. It seemed both of them had some Awareness, but they didn't show it much.</p>
-<p>"Today, I don't really feel like having anything sweet." Perhaps because everyone kept eating a bite each while making chocolate, they didn't seem to crave anything sweet. Most ordered espresso or green tea-based Drinks without sugar, and only Taira Kanna and Nakanoin Rina, who didn't participate in today's chocolate making practice, ordered sweet Drinks. For reference, I ordered a Matcha Frappuccino.</p>
-<p>"Oh, right. That Anyaji plan is going well, right?" Seizawa Shii asked me, receiving her ordered Caffe Romano (Caffe Romano: Roman-style coffee with espresso and lemon).</p>
-<p>It seemed everyone here was asking about a common theme because they had agreed to respond together to the Anyaji attack.</p>
-<p>"Yes. Roughly 80? 85 percent? I've planned the Operation to that extent." There was no perfect Operation. No matter how much we had placed Athena Mannerheim and Kyoshiro on the Anyaji side to induce their actions, if Takakusaki Gengo suddenly changed his Mind one minute before the attack, the plan could go awry, so it was best to just make a big outline and adapt to the Situation.</p>
-<p>"Since the Enemies will come dispersed, we just need to form Groups according to the Enemy. If we deal with them quickly, we can also help other Groups, so let's talk it over well." Since the Anyaji Story had come up, I decided to have a Conversation with everyone here. We should discuss now whether each had a desired Opponent and who with whom would form a Group that would create synergy, because it would be easier to match the Opponent.</p>
-<p>"Is it okay if I don't help?" Minamoto Lisa asked, making a very apologetic Expression.</p>
-<p>"Lisa doesn't need to help. If Lisa helps, I have to withdraw because of the Gaze of the Surroundings, and if I help, Lisa also can't step forward, right? Only one of us can intervene in this Anyaji battle." It was as Taira Kanna said. Taira and Minamoto joining forces is not unheard of, but that is something only the Head of the Group or someone with a clear Successor structure could decide. It was not something Taira Kanna, who hasn't fully established her power yet, or Minamoto Lisa, who hasn't even decided what she will do in the Minamoto Group, could decide. If the two of them needlessly joined forces in battle, they would be treated as Bae-sinja by their respective Families, so one of them had to withdraw. Naturally, now, with Combatants in Miyashi, it was natural for Taira Kanna's side to exert power, so it was right for Taira Kanna to join.</p>
-<p>"Why don't you have Lisa-ttang's side? I'm here~☆ I'll do everything for Lisa-ttang's share, so don't be too disappointed, Lisa-ttang." "Shii...." When Seizawa Shii said she would Work hard for Minamoto Lisa's share, only then did Minamoto Lisa's apologetic Expression relax.</p>
-<p>So we continued to build the strategy for the upcoming Anyaji battle, giving our opinions to each other until the old man Ichimonji Harugoro came.</p>
-<p>Home Ec Teacher B-cut~!</p>
-<p>As I was making them, the Sweat wasn't great, so I changed the Sweat version to B-cut hehe.</p>
-<p>Requested by TheDreaming-nim: Shido Tsubaki being interviewed at a convention wearing a Chastity Belt, Shido Tsubaki being interviewed in a Reverse Bunny outfit with nipple patches~! Chastity Belt Tsubaki~!</p>
-<p>Reverse Bunny Tsubaki~!</p>
-<p>Requested by Gojoy-nim: Shido Tsubaki breast-covering, belly dancer~! Breast-covering~!</p>
+<p>and breast chapter check contains exposure please surroundings this your</p>
+<p>Otagi Yuka and Saionji Diana were heading to the Place where they had arranged to meet Taira Ryuta. Of course, they weren't actually meeting Taira Ryuta there; it was a Place they had leaked to Anyaji.</p>
+<p>"We have a tail."</p>
+<p>Otagi Yuka was driving the car, and Saionji Diana was checking the rear camera and side mirrors. Just as Saionji Diana had confirmed, a black sedan was tailing the compact car Otagi Yuka and Saionji Diana were in.</p>
+<p>"The Operation worked."</p>
+<p>Otagi Yuka also checked the rear camera screen and muttered. As expected, perhaps because they were martial artists by nature, Anyaji's car tailing was clumsy. Anyone could see they were chasing Otagi Yuka and Saionji Diana's vehicle.</p>
+<p>"Do they think we wouldn't notice? They're really bad at tailing."</p>
+<p>"They might think it doesn't matter if we notice."</p>
+<p>The two continued badmouthing the car behind them as they headed to the promised Place. The promised Place, leaked to Anyaji through Kyoshiro, was a secluded pension on the outskirts of Miyashi, and they had passed on Information that they would be having a graduation Party there, grilling meat.</p>
+<p>Even as the surrounding Scenery slowly changed from the city center to a landscape of forests and Mountains near Mount Fuji, the black sedan continued to follow Otagi Yuka and Saionji Diana's vehicle.</p>
+<p>Since the pension was in a secluded Place and it was around weekday lunchtime, there were no other vehicles around. Now, they were openly driving aggressively, getting so close that their cars almost collided.</p>
+<p>"They seem to know they've been caught."</p>
+<p>"Anyone who isn't an idiot would know. Ah, now they're pulling alongside."</p>
+<p>The black sedan crossed the center line, pulled alongside Otagi Yuka and Saionji Diana's vehicle, then rolled down its window. The Appearance of a bald, sunglasses-wearing man, looking just like a Yakuza, was revealed, and he opened his mouth to them.</p>
+<p>"If you don't want a car accident, follow us."</p>
+<p>"Alright, lead the way."</p>
+<p>When Otagi Yuka meekly replied that she understood, the Yakuza-like man seemed a little flustered. But soon, he drove ahead of Otagi Yuka's vehicle and began to lead them to a different Place than the pension.</p>
+<p>In fact, the two already knew where Anyaji was going. With Athena Mannerheim and Kyoshiro's Information collection, they knew almost all of Anyaji's Operation, so there was no fear.</p>
+<p>"They said they'd go somewhere else because there's an owner at the pension, for fear of reporting, right?"</p>
+<p>"Yeah. If we didn't follow, they were planning to deal with the pension owner and guests first as Plan B...."</p>
+<p>Anyaji's judgment was that there might be an owner and other guests at the pension, so they needed to take Saionji Diana and Otagi Yuka elsewhere. Of course, Taira Ryuta had rented the entire pension in case of an unforeseen Situation, so no people, neither guests nor owner, were present.</p>
+<p>After following the car ahead for a few minutes, a fairly wide empty lot appeared. The vehicle in front stopped at the Entrance of the empty lot. The man rolled down the window and waved his hand as if telling them to enter, but Otagi Yuka didn't obey and parked her car near the Entrance. Then, she got out of the Driver's Seat and walked towards the black sedan.</p>
+<p>Kwadeudeuk! Kuung!</p>
+<p>Otagi Yuka, who tore off the door and threw it, then grabbed the bald Yakuza-like man, who was watching with a surprised Expression, by the Collar, pulled him out, and lifted him into empty space.</p>
+<p>"Hey, who the fuck are you to be so rude?"</p>
+<p>"L-let go of me!?"</p>
+<p>The bald man shouted boldly, but Otagi Yuka ignored him and swung her fist.</p>
+<p>Peok!</p>
+<p>With one punch, his nose shattered, and blood splattered. With two punches, his head caved in the shape of a fist, and he lost his life.</p>
+<p>"Annoying bastard."</p>
+<p>Thud.</p>
+<p>Otagi Yuka threw the Yakuza-like man to the side of the car, then walked into the middle of the empty lot with Saionji Diana, who had been waiting.</p>
+<p>"Not very woman-like, her personality is fiery, isn't it?"</p>
+<p>From the shade of the forest next to the empty lot, an eccentric-looking Elderly Person and a brown-skinned Latin man walked out. Behind them, about ten Anyaji martial artists walked out, and their Appearance gave off a Sense of Incongruity that was hard to pinpoint.</p>
+<p>"Old man, what, are you from the 2020s? To make such discriminatory remarks against women in this day and age."</p>
+<p>"Kekeke. As I heard, her personality is extraordinary. It's been a long time since someone acted without Etiquette towards me, Mad Fist Kamishirato Manzo."</p>
+<p>The eccentric-looking Elderly Person was Mad Fist Kamishirato Manzo, who boasted outstanding Skill even in the Guardian Hall. An innately acquired Demonic person who had traveled the World and learned countless Sorcery, his strange Fist Technique and magic were so exceptional that Hojo Otoji, Anyaji's second-in-command and the most outstanding Jusul practitioner in Anyaji, would even concede a move to him.</p>
+<p>"Looks like a crazy old man, just like his name. Just looking at you, you're Anyaji, so there's not much need for Words between us, is there?"</p>
+<p>As Otagi Yuka drew her beloved Sword Golden Blood, Saionji Diana also drew the Famous sword En (Swallow) she had received from Ichimonji Harugoro. And she unfastened the holster on her thigh, making it so she could draw her pistol at any time.</p>
+<p>"Now that I see it, you anticipated our Attack? Who did you get the Information from?"</p>
+<p>Both were wearing cyber Suits and carrying exclusive weapons, so the sinister Kamishirato Manzo quickly grasped that Information had leaked. But to Kamishirato Manzo's question, Otagi Yuka snickered and opened her mouth.</p>
+<p>"Takakusaki Gengo told us, why?"</p>
+<p>"Kekeke, alright. A little later, I'll have to make you beg for your life."</p>
+<p>Kamishirato Manzo, who had been treated as an Adult in Anyaji for several years, could not win against Otagi Yuka's verbal sparring Skill, honed from fighting gangs and using slang in New York. With a reddened Face, he looked at the Latin man standing next to him.</p>
+<p>"This guy is someone I've put a lot of effort into. His name is Bernardo, and he's supposed to fight the woman with bangs covering her eyes."</p>
+<p>Bernardo, who had newly joined Anyaji as one of the Four Heavenly Kings, beckoned with his hand towards Saionji Diana. Even seeing the Gun hanging on Saionji Diana's thigh, he wore a confident Expression.</p>
+<p>This Confidence was only possible for Bernardo, who had fought against drug cartels with Guns for several years in the favelas of Brazil, the slums among slums.</p>
+<p>"...."</p>
+<p>Saionji Diana also, without a word, extended En and pointed it at Bernardo. Although it was quite a distance, Bernardo momentarily felt a chilling sensation as if Saionji Diana's katana stretched out and pierced his neck, but he growled and showed an even more aggressive Appearance.</p>
+<p>'He's a skilled person.'</p>
+<p>Kamishirato Manzo, watching him, realized that Saionji Diana's Skill was extraordinary, but he didn't think she could overcome Bernardo, his carefully cultivated experiment subject.</p>
+<p>"Are those hangers-on in the back joining the battle too?"</p>
+<p>Otagi Yuka said, looking at the Anyaji martial artists standing behind Kamishirato Manzo and Bernardo. In fact, the participation of the martial artists was rather a welcome thing for Otagi Yuka.</p>
+<p>Because she was a Vampire stronger against the weak, even if the enemy's minions were added, they would only become Otagi Yuka's instant potion blood pouches, or merely ingredients for various blood energy Jusul or Attacks.</p>
+<p>"Those guys just came to watch. Just watching a battle helps with development."</p>
+<p>Kamishirato Manzo waved his hand as if telling her not to interfere. Otagi Yuka wondered if they would just watch during the fight, but since she was confident she could turn them into living blood pouches at any time, even if they Ambushed, she nodded her Head as if she understood.</p>
+<p>"Well, our introductions are over, so let's begin."</p>
+<p>No sooner had Kamishirato Manzo finished saying 'let's begin' than Bernardo charged towards Saionji Diana. He charged on all fours like a Predator of the plains, and although the distance was quite far, perhaps due to his inhuman movements, he closed the distance at an incredible speed.</p>
+<p>Saionji Diana, without surprise, calmly swung her Sword. No matter how fast Bernardo was closing the distance, it wasn't a distance her Sword could reach, but Bernardo's shoulder was cut, and a stream of blood spurted up.</p>
+<p>Bernardo jumped back in surprise from the intangible Attack, but this time, it was Saionji Diana who closed the distance. With the tremendous output of her combat cyber implants, Saionji Diana closed the distance at a speed no less than Bernardo's, and her Sword was swung.</p>
+<p>Bernardo, with terrifying animalistic Instinct, moved intricately and dodged the Sword. It was truly a movement befitting the word 'animalistic'.</p>
+<p>Bernardo, having dodged Saionji Diana's Sword, spread his hand wide and swung it. Saionji Diana raised her Sword and blocked his hand.</p>
+<p>Kakang!</p>
+<p>Normally, if he had swung his hand with all his might at a Famous sword made by Ichimonji Harugoro, his hand would have been cut off, but Bernardo's hand was fine. This was because it wasn't his hand, but sharp Claws that looked about a span long that struck the Sword.</p>
+<p>Even after striking the master's Sword, there was no wound on Bernardo's Claws. It could not possibly be considered human.</p>
+<p>"Krrr-rrr-rrr!"</p>
+<p>'They said he learned some kind of divine possession magic from Kamishirato Manzo, so only his Face is human, the rest is no longer human.'</p>
+<p>Saionji Diana, predicting a difficult Match from Bernardo's animalistic Appearance, lowered her hand to her thigh and drew her pistol.</p>
+<p>TheDreaming-nim requested milking of Simyeonui ttal and Lisa~!</p>
+<p>Lisa~!</p>
+<p>The prompt you mentioned about putting Breast Milk in a container doesn't seem to work due to insufficient learning data hehe.</p>
+<p>Gojoy-nim requested Seizawa Shii belly dancer, Tape attire~!</p>
 <p>Belly dancer~!</p>
-<p>Requested by Albori-nim: Yuka Jeans+Long Boots+Ponytail~!</p>
-<p>As I was making them, I got a taste for changing shoes, so here's an illustration made by the writer hehe.</p>
-<p>Ugg Boots</p>
-<p>Kkan Yuka &amp; Deop Yuka Naoki hehe.</p>
+<p>Tape~!</p>
+<p>Neosblue-nim requested Alik Gunvolt's Unlimited Volt? The appearance of using a buff skill like that... didn't come out exactly, so I'll upload what I made in my own way hehe.</p>
+<p>In the case of skills from games, anime, or comics, unless they are incredibly famous (like an Energy Wave? Even the Shoryuken someone requested before wasn't learned ㅠㅠ), they are not learned hehe.</p>
+<p>Hwanbuljeoldaebulga-nim requested Home Teacher, Lisa-chan cheongsam~!</p>
+<p>Home Teacher~!</p>

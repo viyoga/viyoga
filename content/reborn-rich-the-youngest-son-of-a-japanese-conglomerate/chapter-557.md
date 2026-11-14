@@ -5,83 +5,69 @@ weight = 557
 chapter = 557
 +++
 
-<p>"Waa~!"</p>
-<p>As soon as I got out of the car in the parking lot right in front of the entrance, I could see the entrance to the amusement park. Since it was Sunday, there were quite a few cars in the parking lot. Still, due to the nature of Fuji-Q Highland, which has many thrill rides, there seemed to be fewer family customers than other amusement parks. The internet also said that it was an amusement park mainly visited by couples or people who enjoy thrills.</p>
-<p>"Ryuta-cchi! Do you like roller coasters?"</p>
-<p>"Yeah, I like them quite a bit."</p>
-<p>Now, after so many battles, my liver has grown so big that I probably won't feel any thrill from roller coasters, but since I came all the way here, I should enjoy it, so I answered Seizawa Shii's question. Seizawa Shii smiled, seemingly happy with my answer. She seemed to be thinking about riding something together later.</p>
-<p>Fuji-Q Highland was famous for having many roller coasters, as it was an amusement park created by a railway company. I could even see several roller coasters from the entrance.</p>
-<p>"Ah...!"</p>
-<p>It seemed that the ○ne-Punch Man collaboration event was not a lie, as there was a signboard at the entrance with the protagonist and several characters drawn on it, saying ○ne-Punch Man Collaboration! However, since it was a classic animation, it didn't seem to be heavily promoted, and there was only one signboard at the entrance.</p>
-<p>Minamoto Risa looked at the signboard for a moment and admired it, then looked around and met my eyes, who was also looking at it.</p>
-<p>"You... Take a picture of me."</p>
-<p>Minamoto Risa handed me her phone, seemingly embarrassed to ask her friends to take a picture with the signboard. I smiled and nodded. I took a picture of Minamoto Risa standing next to the signboard, making a V-sign and smiling.</p>
-<p>I felt a gap moe from Minamoto Risa, who was wearing a cardigan and a long skirt, an unlike-gal fashion, so I focused on Minamoto Risa and took pictures diligently. As a result, I didn't even realize that the signboard next to her wasn't in the picture.</p>
-<p>"Here..."</p>
-<p>"Thank you... No~! Why did you only take pictures of me?! You should have taken the signboard with me."</p>
-<p>Minamoto Risa gets angry after receiving my picture. I thought she would be satisfied since it turned out well, but since Minamoto Risa was a bit of an otaku, she got angry at me when she saw that the signboard wasn't in the picture. I had no choice but to open my mouth to make excuses.</p>
-<p>"You looked so pretty when you were smiling today. I was so focused on the screen that I forgot about the signboard for a moment. Give it back to me. I'll take it for you."</p>
-<p>"No way~!"</p>
-<p>Why is she smiling while saying no way? Minamoto Risa soon went to Seizawa Shii and asked her to take a picture. After all, a friend would take a better picture.</p>
-<p>Fuji-Q Highland was an amusement park without a separate admission fee, but I had to purchase a fast pass priority ticket to ride the rides right away without waiting, so I went to the ticket office and purchased fourteen fast pass priority tickets for the number of people.</p>
-<p>Since each ticket costs 15,000 yen, 210,000 yen flies away at once. In addition, I have to calculate snacks and meals separately in the middle, so if I were a normal teacher instead of me, the stripping that someone said before would have been an event that really stripped the salary.</p>
-<p>"Okay, let's get a fast pass ticket one by one and go in~!"</p>
-<p>"Yes~!"</p>
-<p>If 14 people go around together, they won't be able to ride what they want and it will be crowded, so we decided to gather in groups of two or three and walk around, and contact me when they need me. So the students who received the tickets went straight into the amusement park without waiting.</p>
-<p>Everyone received their tickets, and Alik grabbed my index finger as he received his ticket last. Alik had recovered some energy from sleeping in the car, and was now in a sparkling state.</p>
-<p>"Ryuta, let's go in with Alik today."</p>
-<p>"Shall we?"</p>
-<p>Alik grabbed my index finger and jumped excitedly as he entered the entrance of the amusement park. Then he saw Shimokawabe Airen and called her Moka-sabu~! When Shimokawabe Airen approached, saying, "Huh? What's wrong?" he grabbed Shimokawabe Airen's hand with the opposite hand that wasn't holding my index finger and opened his mouth.</p>
-<p>"Let's go together, Moka-sabu."</p>
-<p>"Our Alik, did you want to play with sabu?"</p>
-<p>"Yeah...!"</p>
-<p>Walking with Alik in between us felt like a couple holding their daughter's hand. Of course, Alik doesn't look that young, but his usual attitude is so innocent that I unconsciously put on a filter. Shimokawabe Airen seemed to be thinking similarly, and blushed slightly and looked at me.</p>
-<p>"It's embarrassing. With a friend's disciple..."</p>
-<p>Even if he is a friend's disciple, there is not a big age difference between Fujigasaki Rinka, who is actually my sabu, and me. Shimokawabe Airen is probably the same age as Fujigasaki Rinka, so there is only about a five-year age difference between her and me, but she seemed a little embarrassed by the age difference.</p>
-<p>"What's wrong with that? It's not like anyone is saying anything, we can just have fun today."</p>
-<p>"Is that so?"</p>
-<p>Shimokawabe Airen seemed relieved by my words. We went as Alik led us and stood in front of a roller coaster. We submitted our fast pass priority tickets and sat in the front seat of the roller coaster. Before sitting down, I saw a description of the roller coaster, and it said that it was the fastest roller coaster that was listed in the Guinness Book of World Records.</p>
-<p>The roller coaster started and we couldn't help but be surprised. It was because we didn't feel any thrill at all.</p>
-<p>It was definitely a roller coaster running at an incredible speed, but we couldn't scream like the other passengers in the back. Whether it was because all three of us were non-humans who had exceeded the limits of ordinary people, or whether a roller coaster running fast compared to the battles we had experienced so far couldn't surprise us, we sat in front of the roller coaster running indifferently, and when the roller coaster made a lap, we had no choice but to get off with indifferent expressions.</p>
-<p>"It was fun... Ryuta."</p>
-<p>Alik said it was fun even though there was clearly no screaming or excitement. It seemed that he was just happy to be riding with me and Shimokawabe Airen.</p>
-<p>"Then shall we ride something else?"</p>
-<p>I took Alik's hand again and walked around the amusement park with Shimokawabe Airen, wondering what to ride next. As we walked around, we often saw our classmates lining up or walking around, and among them, I saw a student who stood out. I saw Seizawa Shii being dragged around by Minamoto Risa, saying, "I don't like it, I don't like it." Then she found me and ran towards me as if asking for help, calling me Ryuta-cchi! happily.</p>
-<p>Seizawa Shii was wearing an oversized sweater with horizontal stripes of various colors, black pants, and boots, which suited her quite well. In the beginning, she seemed to like the Hime-gyaru style, but she seemed to like oversized clothes, as she did on our previous date.</p>
-<p>"Ryuta-cchi! Ride the rides with Risa-tan instead of me~! I don't want to keep riding the same one!"</p>
-<p>The ride that Minamoto Risa was trying to ride was called ○ne-Punch Man Collaboration 4D VR Coaster. Minamoto Risa was trying to ride it continuously because of her otaku heart, but Seizawa Shii seemed to hate it.</p>
-<p>"Okay. Then Seizawa can hang out with Alik and Shimokawabe-seonsaengnim instead of me."</p>
-<p>"Okay~!! Alik~☆ Play with me too!"</p>
-<p>I was also curious about what the 4D VR Coaster was, so I decided to ride it once with Minamoto Risa. Alik seemed quite disappointed when the member was replaced from me to Seizawa Shii, but when Seizawa Shii acted cute, saying, "Play with me," he nodded, saying, "Okay...!"</p>
-<p>"Is this fun?"</p>
-<p>"If you know... you can enjoy it quite a bit."</p>
-<p>Minamoto Risa, who had already entered otaku mode, answered my question excitedly. She repeated that it was very realistic, as if she didn't want to spoil the contents, so I became curious and took Minamoto Risa's hand and entered the square building.</p>
-<p>The inside of the building felt like a movie theater. Instead, the distance between the seats felt quite far, probably because the seats themselves moved, so they kept the distance so that they wouldn't bump into the person next to them. There was a helmet covering the eyes and nose on the seat, and I wore the helmet as Minamoto Risa did.</p>
-<p>Ooh...! As soon as I put on the helmet, I saw someone's back. When I turned the clock back to check the situation, it seemed that I was riding behind a hero named Suimen Rider on his bicycle.</p>
-<p>-This place is dangerous, so we have to evacuate quickly...! Hold on tight!</p>
-<p>Aha, it seemed that the setting was that I was riding on Suimen Rider's bicycle and running away. Soon, the Suimen Rider in front of me shouted, "Oooooh!" and when he pedaled the bicycle, the seat really moved and I felt like the bicycle was going out. Oh...! This is quite realistic?</p>
-<p>As the bicycle was running, when monsters attacked from the side, I felt a thumping sensation along with a feeling of being bounced off, and as the speed increased, in a situation where I could no longer avoid it, a psychic hero named Tats○ki used telekinesis to float our bodies in the bicycle and let us avoid it, and other heroes also appeared.</p>
-<p>In that way, we ran through the air with telekinesis, and the ride ended with the protagonist, Bald Cape, killing a giant monster in one shot.</p>
-<p>"Oh... That's really fun?"</p>
-<p>"Right?"</p>
-<p>When I took off my helmet and said that, Minamoto Risa excitedly agreed, saying, "Right, right?" Minamoto Risa seemed satisfied with riding it twice, and she didn't tell me to ride it one more time, as if she had no intention of doing a third round. She just looked at me carefully, as if she was hesitating whether to say something or not. I roughly knew what it was about.</p>
-<p>"You're curious about my telekinesis, right?"</p>
-<p>Since I used my telekinesis to win the two-legged race two days ago, Minamoto Risa couldn't help but be curious. Moreover, telekinesis came out directly in the ride just now, so she must have wanted to ask me.</p>
-<p>"Yeah... Can you float me with telekinesis like Tats○ki?"</p>
-<p>Ah, she had a very expectant look in her eyes. I wanted to tell Minamoto Risa that Risa, Tats○ki doesn't exist, but when I saw Minamoto Risa asking me with sparkling eyes, I couldn't bring myself to say that.</p>
-<p>In the end, I couldn't let her down, so I looked around. Even if telekinesis is a power that is not easily noticeable, floating a person is quite noticeable, so I was looking for a place where there were no people.</p>
-<p>"Let's go over there."</p>
-<p>I took Minamoto Risa behind the building of the 4D VR Coaster that I just came out of. After all, Fuji-Q Highland is an amusement park famous for its roller coasters, so the building on the 4D VR Coaster side, which collaborated with a classic animation, was the least crowded.</p>
-<p>"Okay, I'm going to do it. Don't be surprised."</p>
-<p>"Okay... Kyaa...!"</p>
-<p>Even though I told her not to be surprised, Minamoto Risa was surprised when her body floated up. Now, the proficiency level of telekinesis has also increased considerably, and the will, which is the main stat of telekinesis, is also high, so it was not very difficult to float a human being. Instead, to use telekinesis in battle with great power like Tats○ki, I needed a few more characteristics to assist telekinesis. If I'm lucky, related characteristics may come out at the next level up.</p>
-<p>For a while, I floated Minamoto Risa in the air and flew her around, then put her down on the ground. Minamoto Risa breathed heavily for a while, then looked at me and said.</p>
-<p>"Thank you."</p>
-<p>"Huh? For what?"</p>
-<p>I don't know what she's thankful for, but the smile that Minamoto Risa gave me was gentle.</p>
-<p>________________________</p>
-<p>Minamoto Risa B-cut!</p>
-<p>At first, I tried to see the creativity of Ai without entering the outfit, but Ai likes to be naked ㅎㅎㅎ It's not a water park, so it was rejected~!</p>
-<p>I liked it quite a bit, but it was rejected because my skin was too white~!</p>
-<p>Oversized rainbow sweater Seizawa Shii!</p>
-<p>If you look closely, it's quite a sexy outfit ㅎㅎㅎ</p>
+<p>Wearing the uniform of the school where I'm a teacher and saying, "Please hug me, Teacher," isn't that a bit too stimulating for me? Hearing Yukiko's words, I got excited and unknowingly approached her, starting to kiss her.</p>
+<p>Chup, chuheup, jjuubeop...! Jjueup♥</p>
+<p>Lifting my hand over her uniform and touching her chest, I grasped Yukiko's ample breasts fully. As I touched her breasts, Yukiko, while kissing, let out short moans intermittently, revealing her pleasure without hiding it.</p>
+<p>Jjeubeeup....</p>
+<p>Breaking the kiss for a moment, I pulled my lips away, and a lustful silver thread stretched out long and unbroken. Seeing her use honorifics while calling me "Teacher," I wondered if she wanted to do a role-playing scenario, so I whispered while still holding Yukiko's breasts.</p>
+<p>"Is it okay for a student to seduce a teacher with such a sexy body?"</p>
+<p>"I'm sorry, but when I see you, Teacher, my chest feels tight and strange.... I couldn't hold back anymore."</p>
+<p>She's good at acting. Yukiko's eyes were moist and dreamy, like a high school girl truly in love for the first time, with the feeling of a student in heat because she could be with her beloved teacher. Come to think of it, she made me wear a school uniform and do a role-playing scenario when we went to the beach villa before. Seeing her act like this then and now, it seemed Yukiko had a preference for these kinds of situational dramas or role-playing scenarios.</p>
+<p>Because Yukiko's appearance in the St. Francisco Girls' Academy uniform was quite unique, I didn't know how many times we would do it today, but I was thinking of having her wear the uniform for a while. I lowered one of the hands that was touching her breasts and stroked her thigh before placing it over her panties.</p>
+<p>Yukiko's panties were already so wet that they couldn't fulfill their purpose. Due to the damp and slippery vaginal fluids, they were completely stuck to her pussy, and the mounds and curves of her pussy were being transmitted to my fingertips. Like a blind person reading Braille, I felt Yukiko's entire pussy with my fingers. It was so soaked that I could picture its shape in my head without even looking at the pussy area.</p>
+<p>"Why are you so wet?"</p>
+<p>"Haa, Sir, Teacher's touch feels so good...♥"</p>
+<p>Judging by the way she flinched and trembled every time my touch grazed her, my hand must have felt good. I continued to rub the mound of her pussy over her panties, and due to the overflowing vaginal fluids, a *chyak chyak* sound seemed to be heard, and Yukiko couldn't hold back her pleasure and started to rotate her pelvis back and forth.</p>
+<p>"Haaeeuuut, heueueung...! Teacher's thick hands, heuhang...! It feels so good...♥"</p>
+<p>Not long after I touched around her pussy, Yukiko climaxed. As if she couldn't just stand there, her legs gave way, and she leaned against the desk behind her, trembling, which was very seductive. My dick, which had already been heavy since earlier, gained even more strength and pushed against my pants as if it were frustrated.</p>
+<p>"Heuuht, heueueung.... Now, haa, I'll do it for you♥"</p>
+<p>As expected of a succubus, she quickly overcame her climax and, with a seductive smile, lowered the zipper of my pants. As the dick, half-popped out of my underwear and dripping with pre-cum, was revealed with a *jiiik* sound, Yukiko feigned surprise.</p>
+<p>"Oh my♥ Sir, Teacher's.... it's big....!"</p>
+<p>Yukiko was surprised as if she was seeing it for the first time. At this point, it was almost method acting. She was completely immersed in the role of a student in love with her teacher. As Yukiko lowered my underwear following the zipper, my dick revealed its magnificent form in the special class classroom. Yukiko stared at my dick in a daze before kneeling in front of me as if possessed and starting to lick it.</p>
+<p>She started by licking it cautiously at first, but before I knew it, she was taking my massive cock into her mouth and even doing a deep throat, shoving it all the way down.</p>
+<p>"Jjubeuep, gueok, jjeup, chujeup, kkeuek, jjeeup...!"</p>
+<p>My throat was being poked, and she was gagging slightly, but she was still sucking my dick to the end, stimulating it by tightening and loosening her throat around my glans and shaft as if her throat were a living creature.</p>
+<p>"Keueuuht...! Feels good, I'm gonna cum...!"</p>
+<p>Because Yukiko had been teasing my dick so eagerly even before entering the classroom, I couldn't hold back for long and had no choice but to explode.</p>
+<p>Boo-ut, byu-ut! Byueeut!</p>
+<p>Yukiko swallowed my semen as I shot it, and as she pulled my dick out of her mouth, she narrowed her lips and sucked as much as possible, using an advanced technique to extract the semen from my urethra.</p>
+<p>"Aah~ It's delicious, Teacher♥"</p>
+<p>Yukiko, as if trying to get me to confirm that she had eaten everything, opened her mouth and showed it to me, causing my dick, which had just ejaculated, to revive.</p>
+<p>"Sit on the desk and spread your legs."</p>
+<p>At my words, Yukiko, without being told, took off her panties and straddled the desk. And she spread her legs, even slightly parting her pretty pussy with one hand.</p>
+<p>As Yukiko spread her legs, the sweet scent of Yukiko's unique female body filled the classroom. It was a scent that seduced and aroused men.</p>
+<p>I can't help it. It's time for a face-burial. I buried my face in Yukiko's pussy as it was and started licking it ravenously.</p>
+<p>"Haeueueheung! Teacher, heueung, if you lick like that...! Nooo♥"</p>
+<p>Yukiko said it as if she didn't want me to, but she was grabbing my head and pushing it further towards her pussy. I entrusted my head to Yukiko's touch and was licking and sucking the pussy in front of me. The more I licked, the more honey-like, sticky vaginal fluids gushed out of Yukiko's pussy, wetting my chin and the desk.</p>
+<p>"Haaheueueeuht!"</p>
+<p>Yukiko, who had climaxed once again, squeezed my head with her thighs, tilted her head back, and was immersed in pleasure. Of course, at the same time as her climax, she poured out a large amount of vaginal fluids, completely covering the area around my mouth. I licked around my lips with my tongue, tasting Yukiko's vaginal fluids.</p>
+<p>"Haa, haa, haa.... Teacher-nim♥ Now...."</p>
+<p>Yukiko, looking at me with eyes slightly blurred by her climax, pulled up her skirt and spread her legs as if telling me to put it in now. I didn't refuse that look and went between Yukiko's legs, aligning my dick with her pussy hole.</p>
+<p>"Haaht!"</p>
+<p>Yukiko, who had become sensitive due to her climax, fluttered with a small climax just from my dick touching her vaginal entrance. I slowly widened Yukiko's pussy, which was still a beautiful light pink color, with my glans and gradually inserted it into her squishy insides.</p>
+<p>"Teacher, haaht! It feels so good...! Teacher, haaht! How do you feel? My pu...ssy, heuheuung♥ Does it feel good?"</p>
+<p>"Yeah...! Yukiko's pussy feels good."</p>
+<p>At my words that it felt good, she wriggled even more, enveloping my dick with pleasure. I slowly moved my waist, starting a piston motion, overcoming the pressure of Yukiko's pussy, which was holding on tightly as if not wanting to let go.</p>
+<p>"Haaht, heueung...! Too, big, keueeot♥ Teacher's dick, haaht! It's strange. Haaht! The feeling....! Euheung, haaht!"</p>
+<p>With Yukiko's moans as a side dish, my excitement and the speed of my piston motion gradually increased. Yukiko grabbed the area below my waist and hugged me tightly, and even the soft feeling of her breasts being pressed against me, although the uniform was in between, was increasing my excitement.</p>
+<p>Yukiko's pussy had always felt good, but after she awakened as a succubus, it had become a pleasure zone almost to the level of an organ that exploited a man's semen, so even though I had just ejaculated, the feeling of ejaculation was coming again.</p>
+<p>I increased the speed of my waist movements to the point where it made a *cheolssuk, cheolssuk* sound and instinctively prepared to ejaculate in Yukiko's deepest part. Yukiko must have felt my ejaculation coming, as she wrapped her legs around the back of my hips, making it impossible to pull out.</p>
+<p>"Keueut, I'm gonna cum...!"</p>
+<p>"Heuuht! Inside, haa, give it to me inside...! Teacher's hot baby seed, euheung♥ Give it to me deep inside my pussy♥ Haaaaaang...!"</p>
+<p>At my declaration of ejaculation, Yukiko pulled her legs that had been wrapped around my back, allowing my dick to ejaculate in Yukiko's innermost part, and her pussy began to wriggle tremendously as if welcoming the arrival of the sperm.</p>
+<p>"I'm cumming!"</p>
+<p>"Please come, Teacher-niim...!"</p>
+<p>I also clung to Yukiko's inside as much as possible, hugging her and starting to spew semen. My dick was repeating expansion and contraction, repeatedly widening and narrowing Yukiko's pussy, and Yukiko's pussy was wriggling and accepting it as if not wanting to miss even a single drop of my semen.</p>
+<p>Byueeut! Bureut! Byureeut!</p>
+<p>Every time semen came out, Yukiko let out a hot breath in my ear. We were both exhausted, as if we had run at full speed. The sound of us both being sweaty and panting was echoing in the classroom.</p>
+<p>After hugging each other for a while, I massaged Yukiko's breasts and buttocks, which had both elasticity and softness, and then I pulled out my dick. Because my semen volume was so large, milky white semen flowed backwards and started to flow from Yukiko's pussy hole.</p>
+<p>Hmm, an excellent cream pie. I saved this scene in my memory and gave Yukiko a quick kiss.</p>
+<p>"Shall we go home now?"</p>
+<p>"Huh? This time...."</p>
+<p>Yukiko suddenly covered my eyes with her hand. When Yukiko removed her hand, it was the awakened Yukiko with pink hair this time. As she became a succubus St. Francisco female student with wings and horns, my dick perked up again.</p>
+<p>"Are we going to do it in this form?"</p>
+<p>"Then shall we try it in the club room this time?"</p>
+<p>Of course, there was no way I would refuse sex with Yukiko. At my words, Yukiko smiled, took my hand, and got up from her seat. That day, I enjoyed the bodies of three versions of Yukiko: normal Yukiko, awakened Yukiko, and Takinogawa Yukiko. Needless to say, all three versions of Yukiko were the best.</p>
+<p>----</p>
+<p>Yukiko B-cut!</p>
+<p>It's too annoying to put on the seaweed....</p>

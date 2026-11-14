@@ -5,95 +5,83 @@ weight = 640
 chapter = 640
 +++
 
-<p>"Let's do that."</p>
-<p>At Naruse Koyou's request, I readily nodded. There's no need to refuse when they offer more rewards. Besides, it's not a difficult task.</p>
-<p>"Thank you. The sealed items are located in the innermost part, so it would be best to choose what you want first."</p>
-<p>At Naruse Koyou's words, I nodded and began to examine the surrounding items again. There were quite a few historical artifacts, and some useful items came with demerits. A prime example is the white robe I'm looking at now.</p>
-<p>◆Haunted Shroud [Epic Equipment/Clothing]: The shroud worn by the executed famous poet ■■■. Wearing it inflicts a curse [Vitality Reduction]. There is a certain probability of poetic inspiration.</p>
-<p>└[Vitality Reduction]: Decreases Stamina and Resistance stats, makes you susceptible to diseases, and causes easy fatigue.</p>
-<p>Creativity +6</p>
-<p>It's a pretty good robe that raises the Creativity stat by 6, but since it's cursed, I decided to pass and look for something else. Besides, there's no one around me who needs Creativity stats or poetic inspiration.</p>
-<p>Oh.... This might be useful?</p>
-<p>◆Existence of Bodilessness [Unique Equipment/Accessory]: A charm used by the onmyoji Usudo Kimimasa, who lacked limbs. The more incomplete the body, the stronger the options are.</p>
-<p>If one limb is missing, the accuracy of all attacks increases.</p>
-<p>If two limbs are missing, the probability of inflicting status ailments such as bleeding and lacerations upon hitting an enemy increases.</p>
-<p>If three limbs are missing, all physical stats except appearance increase by 3.</p>
-<p>If four limbs are missing, the trait [Asura] is applied.</p>
-<p>└◇Asura [Unique Trait]: Two semi-transparent arms of Asura are added behind your back, and the skill [Asura Arms] is created. You can control them like your own limbs depending on your skill proficiency.</p>
-<p>"Crazy...."</p>
-<p>It had options that seemed like it was left for Saionji Diana to use. It looked like a necklace with a small Asura statue made of an unidentified black mineral, but its options were amazing. It's a necklace that can increase accuracy, inflict status ailments on opponents, increase raw stats, and even gain a trait.</p>
-<p>Of course, the condition of having no limbs was extremely strict, but in this era with cyber implants, it wasn't a very difficult condition.</p>
-<p>There were many people who lost their limbs in the Third World War, and most of them wore cyber implants.</p>
-<p>It had the condition of having no limbs, but it was an option that could be used by replacing the limbs with machines, so it was perfect for Saionji Diana.</p>
-<p>"This would be perfect for Saionji-ssi."</p>
-<p>"What are the options?"</p>
-<p>Saionji Diana asked about the options, so I paused slightly. I had to talk about Saionji Diana's disability to explain it, so I couldn't help but hesitate a little.</p>
-<p>"It's okay, please tell me."</p>
-<p>Saionji Diana saw my expression and guessed what it was about, so she told me with a reassuring expression, and I explained the options of the necklace with the somewhat unusual name, Existence of Bodilessness.</p>
-<p>"Ah...! The conditions are a bit much, but the options are amazing, right? I only have liquid storage, isn't that too much of a difference?"</p>
-<p>Otagi Yuka grumbled as if trying to change the atmosphere, saying that it was too different from her. Saionji Diana didn't seem displeased with my explanation. In fact, Otagi Yuka said that, but she didn't seem jealous. She probably knows how useful the liquid storage option is to her as a vampire.</p>
-<p>"It's amazing, seonsaengnim. Thank you for choosing it for me."</p>
-<p>After Saionji Diana's thank you, the treasure hunt continued. The atmosphere wasn't bad. There were many beautiful items, as befitting a treasure warehouse, and everyone asked me what the options were, so we walked around noisily.</p>
-<p>Urabe Konoka had an item exclusively for shrine maidens that increased divine power, so I chose it for her, and I chose an anklet that greatly increased movement speed, evasion rate, and judgment stats when fleeing as one of the three rewards given to me. I should give this to Arisu as a gift.</p>
-<p>I kept an eye out for these evasion items because Arisu, who is active as a phantom thief, shouldn't get caught. Then I went to the place where the swords were displayed, and among them, a Chinese-style sword caught my eye. The semi-transparent window that popped up told me the name and options, and it was a bit strange.</p>
-<p>"This is...?"</p>
-<p>◆Ha Ae-ryeong's Sword [Legacy Equipment/Sword]: A sword that crossed dimensions. A sword used by a martial artist named Ha Ae-ryeong from beyond the dimensions.</p>
-<p>●Cannot be destroyed below the Mythic grade.</p>
-<p>●Increases the efficiency and reduces the consumption of space-based techniques.</p>
-<p>●Increases the damage of swordsmanship.</p>
-<p>●Enhances cutting power.</p>
-<p>●Increases attack speed.</p>
-<p>It's a Legacy-grade sword, but the name is Ha Ae-ryeong's Sword.... The name had parts that overlapped with the kanji of Shimokawabe Airen.</p>
-<p>Considering that it crossed dimensions, the similar name, and the options for space-based techniques and swordsmanship, I began to imagine that Shimokawabe Airen from a parallel world might have the name Ha Ae-ryeong.</p>
-<p>Above all, the options were amazing, as befitting a Legacy-grade item. Each and every one of them was a custom option that Shimokawabe Airen could use.</p>
-<p>"May I recommend it to Shimokawabe seonsaengnim as well?"</p>
-<p>"I would be grateful if you did."</p>
-<p>At my words, Shimokawabe Airen curved her narrow eyes like a crescent moon and smiled. She was probably happy because she was worried about what to choose since there were so many swords on display, but she didn't have to worry because I, who had appraisal abilities, would choose for her.</p>
-<p>However, when I pointed to the Chinese-style sword right next to her, she looked a little puzzled.</p>
-<p>"I don't discriminate against weapons, but I mainly use Japanese swords. May I know why you recommend this sword?"</p>
-<p>"Actually, I know the sword that seonsaengnim uses, so I was just going to pass by, but first of all, the name is unique...."</p>
-<p>Everyone is surprised by my explanation. From the fact that it crossed dimensions, to the fact that the kanji of the name Ha Ae-ryeong overlaps a lot with Shimokawabe Airen, and even the options of this weapon. Everything was full of surprises.</p>
-<p>"It really is a weapon that seems like it's used by me in a parallel world, just like Yamashiro seonsaengnim thought. I'm intrigued. I'll take this one."</p>
-<p>"Certainly, this weapon is Chinese-style, but the era, place, and user were unknown. Now that I know it crossed dimensions, it makes sense."</p>
-<p>Shimokawabe Airen nodded, and Naruse Koyou also looked at the sword with wonder. Naruse Koyou himself is an onmyoji who deals with mysteries, so he didn't seem to doubt my words that it crossed dimensions.</p>
-<p>Now all that's left is.... Alik and my two choices. If that's all that's left, I'll find them quickly, right?</p>
-<p>"Let's keep looking."</p>
-<p>Just like I said I would find it quickly, Alik was able to find a useful piece of equipment right away. It was a scabbard.</p>
-<p>◆Scabbard Containing Lightning Storm [Unique Equipment/Scabbard]: Imbues the sword inserted into it with lightning damage and greatly amplifies the power of iaijutsu.</p>
-<p>The sword that Alik has, Clear Sky Thunderbolt, is a very good sword, but the scabbard was just a normal item. It seemed like it would be better to use it if he changed it to this scabbard.</p>
-<p>"Alik, you'll take what I recommend, right?"</p>
-<p>"Yeah, what Ryu-tta recommends.... Alik likes it."</p>
-<p>"Then let's go with this scabbard."</p>
-<p>"Yeah.... Alik likes the scabbard that Ryu-tta chose."</p>
-<p>Alik's absolute trust, without even asking what the options were, was both appreciated and heavy. I taught Alik's teacher, Shimokawabe Airen, the options of the scabbard instead of Alik.</p>
-<p>"I haven't taught him iaijutsu yet, but I'll have to teach him because of the scabbard."</p>
-<p>I wondered if Alik's training had increased because I chose the scabbard for him, but I brushed it off, thinking that getting stronger was a good thing. Alik enjoys training so much that he says he's playing, so I thought it would be okay.</p>
-<p>"Let's keep going."</p>
-<p>As we went deeper into the warehouse, I saw a ring with something very shiny in the middle, and when I checked it, it was a ring with starlight, which Han Yu-gyeong could use.</p>
-<p>It was a pretty good ring that reduced the consumption of star magic, increased damage, and had 1 point in all mental stats. I chose a gift for Arisu, so I thought I should choose a gift for Han Yu-gyeong, so I chose the ring.</p>
-<p>"Who are you going to give the ring to?"</p>
-<p>At Otagi Yuka's question, everyone perked up their ears. Hmm.... I have to answer well, right? The meaning of the ring is quite significant.</p>
-<p>"Well. I just chose it based on the options."</p>
-<p>"I see."</p>
-<p>It was a bit cowardly, but I glossed over it. As we were talking about the ring, I saw a door locked with chains.</p>
-<p>"This is the warehouse where the sealed items are. People are often possessed by the items, so please come in with your minds clear."</p>
-<p>Naruse Koyou firmly told everyone and then opened the door. The sound of the chains falling to the floor with a clatter and the ominous creaking sound accompanied the opening of the door.</p>
-<p>Behind the door was darkness like an abyss. The items that the Naruse family, which has existed since the Heian period, has sealed away.... I'm quite nervous, right?</p>
-<p>"Ah, it's dark, so I'll turn on the lights."</p>
-<p>When I pressed the button with a click, the lights turned on. Hmm.... It wasn't an abyss after all. I told them the options and sealing status of the items that Naruse Koyou pointed to.</p>
-<p>As expected of the Naruse family's sealed warehouse, most of the items were vicious. Curses were basic, and there was a box with a monster sealed inside that had killed thousands of people, a sword with more than a hundred ghosts attached to it, and a ring with a contagious curse of female infertility. If I had that ring, wouldn't humanity be destroyed? It's very dangerous.</p>
-<p>"Wow, it's scary. I understand why our family sealed it."</p>
-<p>Naruse Shiyo muttered after listening to my explanation. Naruse Koyou was listening to my explanation and writing it down in his notebook. He said he was thinking of creating a booklet explaining the items in the sealed area so that the data would never be lost again. Of course, he said that only the head of the family and high-ranking members would be able to see it so that others could not misuse it. He also asked us to keep what we saw and heard here a secret, so we nodded.</p>
-<p>"The last one is.... This item. A tuna fishing boat is said to have salvaged it from the Pacific Ocean a hundred years ago. They say that if you wear it, you'll go crazy and become something other than human."</p>
-<p>The last thing Naruse Koyou pointed to was a black breastplate armor, with tentacles wrapped around it as if an octopus was wrapped around the armor. Going crazy and changing the human form is the same as the side effects of something I know? Then this is....</p>
-<p>◆Armor of the Abyss [Unique Legacy Equipment/Armor]: An armor discovered and modified by the Master of the Abyss from a ship that sank in the sea's rage. Those who cannot withstand the abyss filled in this armor go crazy or become monsters with deformed bodies.</p>
-<p>Abyss +7 when equipped</p>
-<p>When defending against all attacks, the Abyss stat is added to the Resistance stat to calculate.</p>
-<p>The Abyss is watching you.</p>
-<p>: Sealing is useless.</p>
-<p>"My last choice is this armor."</p>
-<p>"...Yes? Are you sure?"</p>
-<p>Naruse Koyou was surprised by my words and asked again. Naruse Koyou knew the side effects, so he asked me several times if I was okay, but I had no choice but to nod. The side effects are scary, but how can I resist those options? Anyway, I'm going to ask Simyeonui ttal to combine it with the bracelet that transforms into Black Knight now, so I'll have to ask her to reduce the side effects when I ask.</p>
-<p>_____________</p>
-<p>Ha Ae-ryeong.</p>
-<p>A woman from the Murim world. She resembles someone we know.</p>
+<p>"But how did you two get here? Isn't it a bit dangerous?"</p>
+<p>It wasn't a question of, 'Why did you come here?' but rather, shouldn't the Director of the Tairaga Group's Human Resources Development Center and the President of Tairaga Foods not come to the house of the youngest son of the Tairaga family, who is on a secret infiltration mission?</p>
+<p>"We used various methods to get here, so don't worry. We weren't caught by anyone."</p>
+<p>"We came carefully too, so don't worry."</p>
+<p>Well, since Yukiko-nim is a master of illusion, I probably don't need to worry about them being caught by anyone. Since Yukiko-nim is a succubus who can deceive both human eyes and machine eyes, she probably wasn't caught on the way to my house. Besides, Nagumo Sian-ssi is also a master of the art of Hermit techniques, so she must have had some method.</p>
+<p>"You should have told me in advance. Then I would have bought something delicious on the way."</p>
+<p>"We bought the delicious stuff, so don't worry about food."</p>
+<p>"That's right, we came because we wanted to do something for you, Ryuta-gun, so don't be too disappointed."</p>
+<p>Hearing Yukiko-nim and Nagumo Sian-ssi's words, I looked towards the kitchen and saw a lot of stuff piled up. There were various ingredients along with something in a large styrofoam box, but I didn't know what it was. It seemed like they bought quite a lot, as if they really wanted to cook for me.</p>
+<p>"It's the first time you two are cooking together for me."</p>
+<p>"Hmm.... Is that so?"</p>
+<p>"When Nae-ssi and I were at the Human Resources Development Center, we took turns cooking, so you wouldn't have eaten a meal we made together."</p>
+<p>At my words, Yukiko-nim tilted her head, saying, 'Was it?' while Nagumo Sian-ssi nodded, saying, 'Ah, that's right.'</p>
+<p>It was a story from a short time when Ha Ju-yoon-ssi was having a hard time because of her divorce and Nae Fitzgerald-ssi was also at the Human Resources Development Center. When the mommies were together in the house within the Human Resources Development Center, they took turns cooking for me, but they never cooked together.</p>
+<p>Yukiko-nim was busy with her work as the Director of the Human Resources Development Center back then, and when one person was cooking, the other two were busy tasting my dick.</p>
+<p>For reference, I've tasted the cooking of all four mommies, including Ha Ju-yoon-ssi and Nae Fitzgerald-ssi, and Nagumo Sian-ssi was the best cook. As the president of Tairaga Foods, she had so much experience with 'food' that her sense of taste and cooking skills were outstanding. I heard that she ran a successful food company before being scouted by Taira Danjo-nim to take over Tairaga Foods.</p>
+<p>Next was Ha Ju-yoon-ssi. She raised Han Yu-gyeong-ssi without receiving support from the Shin-gang Group, so she had been cooking steadily, and her cooking skills were considerable. Moreover, she had extra points for being the only Korean food expert among the three.</p>
+<p>The remaining two were similar in skill, but neither Yukiko-nim nor Nae Fitzgerald-ssi were deeply knowledgeable about cooking. The slightly better one was Yukiko-nim, who came from a commoner background and had done a little more cooking.</p>
+<p>Nae Fitzgerald-ssi was born and raised in the Tairaga family and then married into a wealthy American family, so she didn't have many opportunities to cook, making her the worst cook among the four.</p>
+<p>Yukiko-nim had her special move, the pork ginger grill, which she had made for me, so I gave her a higher score.</p>
+<p>"But I already ate lunch."</p>
+<p>"Ah, that's for dinner. We ate lunch before coming."</p>
+<p>Ah, I see. Then the reason they came so early.... There's only one reason, right?</p>
+<p>As I expected, both of them got up and naturally started taking off their clothes, srrrk srrrk. It seemed like wanting to make dinner was just an excuse, and they came to replenish their yang energy.</p>
+<p>They were both wearing coats, so I thought they were just wearing them because they were cold, but inside the coats, they were wearing sexy costumes that would excite me. No, did they prepare this much even though it's not a special day?</p>
+<p>Yukiko-nim was wearing a sweater dress with a completely open back, a style that was once a popular meme for killing virgins, and Nagumo Sian-ssi was wearing a pink sexy nurse costume with a low-cut chest and a white bikini inside.</p>
+<p>"No, what am I supposed to do if you wear this from lunchtime?"</p>
+<p>Seeing the figures of the two lewd mommies, the front of my pants naturally bulged out. They saw my protruding crotch and giggled at each other. It seemed like they didn't expect the reaction to be so fast.</p>
+<p>"So, does it not suit me?"</p>
+<p>"No, it's a problem because it suits you both too well."</p>
+<p>At my answer, Yukiko-nim opened her mouth again with a bewitching expression. It suited them very well.</p>
+<p>Yukiko-nim, with an outfit that could kill any virgin and a body optimized for squeezing out a man's semen, and Nagumo Sian-ssi, a kind big-boobed nurse who seemed like she would take care of any lewd desire.... I couldn't say it didn't suit them even if it was a lie.</p>
+<p>"Should I wear this every day?"</p>
+<p>"I, I can't wear this every day."</p>
+<p>Unlike Yukiko-nim, who jokingly asked if she should wear it every day, Nagumo Sian-ssi was relatively shy, her face flushed red, and said that she couldn't wear it like this every day.</p>
+<p>"You both only wear this in front of me."</p>
+<p>I can't show this appearance to other guys. If another man sees this appearance by mistake, I will pluck out his eyes.</p>
+<p>"Hehe, do you want to monopolize us?"</p>
+<p>"I have no intention of showing this side of me.... to anyone else."</p>
+<p>"Yes. I want to monopolize everything. Your current appearance, your usual appearance, your disheveled appearance in bed, everything is mine."</p>
+<p>Both Yukiko-nim and Nagumo Sian-ssi seemed satisfied with my answer and approached me with seductive expressions.</p>
+<p>And they knelt down in front of me and started to unzip my pants.</p>
+<p>With a zzziiip sound, the appearance of my hard-on in my underwear, showing the curve of my dick, was revealed, and they tore off my underwear.</p>
+<p>"It hasn't been that long, but.... I still like Ryuta-gun's dick smell."</p>
+<p>"Even if I see it every day, I don't think I'll ever get tired of this sturdy and strong dick♥"</p>
+<p>They looked at my erect dick with ecstatic expressions, then slowly came up while licking both sides of the shaft with their tongues and started sucking my glans at the same time.</p>
+<p>"Keueut! It feels.... so good."</p>
+<p>The mommy duo's combined attack was incredibly powerful. Until now, it was mostly a rotation method of having sex with one person and then having sex with the next, but this time it was a simultaneous attack, so it felt different.</p>
+<p>They would suck my glans at the same time, or one would suck my glans while the other would lick the back tendon of my dick or my balls in a joint attack, and their teamwork was quite good. It was a joint fellatio that felt so good that my legs were trembling.</p>
+<p>"Eueut...! I think I'm going to cum."</p>
+<p>The feeling of ejaculation rushed up in an instant, and I groaned and said that I was going to cum. It was a much earlier feeling of ejaculation than usual. That meant their mouths felt that good. At my words, they opened their mouths as if telling me to cum quickly. I didn't hold back my ejaculation and shot semen on their faces as they were.</p>
+<p>Byu-ut~! Beut! Byu-ut!!</p>
+<p>Thick, cloudy liquid covered Yukiko-nim and Nagumo Sian-ssi's faces, painting their faces white. They both opened their mouths, but there was so much that while a lot went into their mouths, even more missed and was sprayed on their faces.</p>
+<p>"Heuheung...♥"</p>
+<p>"Such a waste...."</p>
+<p>They licked their faces covered in each other's semen and their necks and upper chests where the semen was dripping down, and started sucking my semen. Seeing that appearance, my dick couldn't help but skip the afterglow and become big again.</p>
+<p>"There must be baby juice left here too."</p>
+<p>Nagumo Sian-ssi looked at my erect dick and put her mouth to the urethral opening, starting to suck the semen remaining in my urethra as if sucking on a straw. Yukiko-nim, who was looking at my dick with regret for being late, raised her body and sucked on my nipples, then gradually went up to suck on my neck, and soon found my lips and started kissing.</p>
+<p>"Haeum~! Chwook, tsuup, chwup♥"</p>
+<p>I didn't know if it was the sound of kissing or the sound of sucking my dick, but the tsu-eup tsu-eup sound echoed through the room, and I started moving my hands too.</p>
+<p>I touched Yukiko-nim's back, which was completely bare, then lowered my hand to touch Yukiko-nim's magical butt, which was both soft and chewy, and touched Nagumo Sian-ssi's bikini breasts, which were exposed in the front, enjoying the softness.</p>
+<p>I felt incredibly good just from the touch of my hands. I didn't think there could be a more pleasant touch than this among the sensations I could feel with my hands.</p>
+<p>"Haeuh.... Haeut! It feels, haeut! strange, aahhang♥"</p>
+<p>"Tsu-eup, tsuup...! Haeut...! Not there♥"</p>
+<p>Whether my caresses felt as good as the sensations I was feeling, Nagumo Sian-ssi and Yukiko-nim's breathing became rougher, and their moans also started to get louder.</p>
+<p>After a long time of the three of us intertwining, licking, and sucking, we moved to the bedroom, which was perfect for sex.</p>
+<p>"First, leave your clothes on and just take off your panties."</p>
+<p>They went to the trouble of wearing sexy clothes, so I had to enjoy them enough. I was going to take off their clothes when they were completely soaked with fluids, semen, saliva, etc., and couldn't be used anymore.</p>
+<p>I wasn't such a rude man as to ignore their efforts in choosing clothes and immediately make them naked.</p>
+<p>"Hehehe.... Here."</p>
+<p>"It's embarrassing, but my panties are here too."</p>
+<p>They handed me their panties as if they had promised to. No, I only told them to take them off, not to give them to me. But since they're giving them to me, I have to accept them.</p>
+<p>I took their panties in each hand and smelled them one by one.</p>
+<p>Yukiko-nim, who is a succubus, had a sweet scent that was different from humans, and Nagumo Sian-ssi, who cleanses her body with Hermit techniques, had a refreshing scent. Of course, they both had very lewd smells, and they were spreading pheromones from their panties that made my dick even harder.</p>
+<p>"I can't stand it anymore, so both of you spread your legs."</p>
+<p>_______</p>
+<p>Yukiko in a virgin-killing sweater</p>
+<p>The back view is the best, hehe</p>
+<p>Nagumo Sian in a nurse costume.</p>
+<p>Strangely, her breasts get so much bigger when she wears this outfit, ddd</p>

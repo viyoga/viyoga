@@ -5,125 +5,55 @@ weight = 925
 chapter = 925
 +++
 
-<p>No matter how ominous the shrine felt, I couldn't just stand there and watch. Because I didn't know how much longer Genba Kiyohira could hold out, I had to rescue him quickly and eliminate Takakusaki Gengo, so I prepared to charge in immediately.</p>
-<p>****</p>
-<p>"Wait a moment!"</p>
-<p>****</p>
-<p>Just as I was about to head towards the shrine, someone stopped me. I turned my Head to look, and it was Urabe Konoka and Hangari Muneo Hanakame.</p>
-<p>****</p>
-<p>"What is it?"</p>
-<p>"Something feels strange."</p>
-<p>"Haa, haa.... That's right...! Something, haa, feels strange!"</p>
-<p>****</p>
-<p>Although Urabe Konoka was panting, haa-haa, out of Breath from climbing the Mountain, both of them ultimately meant that something felt strange.</p>
-<p>****</p>
-<p>Both Urabe Konoka and Hanakame possessed aptitude in Sorcery, but what set them apart from others was that they were priests who served a god. If Urabe Konoka and Hanakame alone felt something that Sakagami Rena or Otagi Yuka couldn't perceive, it probably meant there was something divine related to that shrine.</p>
-<p>****</p>
-<p>...Is it obvious since it's a shrine? Still, if two Shrine Maidens felt something strange, it meant some non-human, divine Existence was involved....</p>
-<p>****</p>
-<p>"Even so, we can't just stand by, can we?"</p>
-<p>****</p>
-<p>As I said, I couldn't just stand by with merely a strange Feeling. I didn't want to give Takakusaki Gengo any more time, and Genbaki-ssi would only become more and more Dangerous the longer we delayed.</p>
-<p>****</p>
-<p>"Then.... I will bestow a Blessing upon you."</p>
-<p>"For now, that's the only Method."</p>
-<p>****</p>
-<p>In the end, the only Method was to receive a Blessing. I received a Blessing from Urabe Konoka and Hanakame, and allowed others to receive a Blessing if they wished.</p>
-<p>****</p>
-<p>Of course, the Gwonmaeng people who came with the old man Yoda, being martial artists who trained themselves, did not believe in gods and thus did not receive a Blessing. Only some Students from St. Francis Special Class, who had learned of the existence of Outer Gods through me, received a Blessing.</p>
-<p>****</p>
-<p>Sabu Fujigasaki Rinka also used the Abyss, so she roughly knew of the existence of Outer Gods and received a Blessing, and the old man Yoda, Kujo Kina, and Nakasone Rishin also received a Blessing with Fujigasaki Rinka.</p>
-<p>****</p>
-<p>"Enough of these strange Acts, let's go quickly! If you're too scared to go, we'll go first!"</p>
-<p>****</p>
-<p>Perhaps a little Frustrating at the delay caused by receiving Blessings, the Gwonmaeng people began to take the lead. They were all people who held a grudge against Anyaji, and seeing them doing something else with the final Takakusaki Gengo right before their Eyes, they seemed to have become a little impatient.</p>
-<p>****</p>
-<p>Although they had come this far together, these were not people under me, and I couldn't Command them to leave or stay, so I sent the Gwonmaeng ahead first.</p>
-<p>****</p>
-<p>Fujigasaki Rinka and the old man Yoda were also affiliated with Gwonmaeng, so they joined the Gwonmaeng people with apologetic Expressions. Perhaps they intended to deal with Takakusaki Gengo first, out of camaraderie with the Gwonmaeng members and before we, who were still young, stepped forward.</p>
-<p>****</p>
-<p>The closer we got to the Cliff shrine, the stranger the Atmosphere became. Not only the black Torii we had just passed, but also the shrine, which looked like a shrine yet was carved out of a Cliff, making it quite unique....</p>
-<p>****</p>
-<p>When the Gwonmaeng people, forming the Vanguard, reached the front of the shrine, an Elderly Person with white hair and a white beard grown down to his Solar Plexus emerged from the shrine's Entrance. What kind of immortal grows a beard down to his Solar Plexus...? That Elderly Person with the unusual appearance was probably....</p>
-<p>****</p>
-<p>"That Person...?"</p>
-<p>"That's right. That Person is Guardian Hall Master Numagoori Kaneshige."</p>
-<p>****</p>
-<p>As I murmured, Athena Mannerheim nodded her Head and spoke. Since it was confirmed that the disappeared Guardian Hall Master was here, if we dealt with Numagoori Kaneshige and Takakusaki Gengo, who was presumed to be inside the shrine, Anyaji would be finished.</p>
-<p>****</p>
-<p>"This is a shrine that serves a god. Those who cause Commotion will not be Forgiven."</p>
-<p>****</p>
-<p>A shrine, so don't cause Commotion.... Compared to the Commotion Anyaji had caused so far, what we were doing now wouldn't even count as Commotion. Naturally, the Gwonmaeng people, who held a grudge against Anyaji, raged at his absurd Words and charged at Numagoori Kaneshige.</p>
-<p>****</p>
-<p>"!"</p>
-<p>****</p>
-<p>But Numagoori Kaneshige's response was something no one had expected. He merely glanced at the Gwonmaeng people charging at him, then slipped right into the shrine's interior.</p>
-<p>****</p>
-<p>Everyone followed Numagoori Kaneshige into the shrine. As expected, while the exterior was that of a shrine carved into a Cliff, the interior felt like a Cave.</p>
-<p>****</p>
-<p>"Ah...!"</p>
-<p>"This Smell...!"</p>
-<p>****</p>
-<p>As soon as we entered, an unpleasant Smell hit us. The Smell of Blood and something rotting. Most of those gathered here could be certain of what was rotting. It was the rotting of dead humans. They must have killed humans or used already dead Corpses to perform some evil sorcery.</p>
-<p>****</p>
-<p>Ominously flickering torches were hung, so even inside the Cave where sunlight couldn't reach, we could continue to move without anyone stumbling or falling.</p>
-<p>****</p>
-<p>Enduring the terrible Smell, we walked through the Passage, and soon a quite large open space appeared. It was an open space with an Area that looked a little wider than half a Soccer field. Again, torches were hung all along the walls, allowing us to see the appearance of the open space.</p>
-<p>****</p>
-<p>Directly in front of the Entrance, something like an Altar covered in bloodstains was erected, and Takakusaki Gengo was seated on a large Chair atop that Altar. Numagoori Kaneshige stood beside the Altar.</p>
-<p>****</p>
-<p>I quickly checked where Genba Kiyohira was, and Genbaki-ssi was roughly thrown into a Corner of the open space where Corpses were piled up. Being beneath the flickering torches, the shifting light made it impossible to tell if Genbaki-ssi was breathing or dead. And piles of Corpses, like the one Genbaki-ssi was on, were scattered throughout the open space. The Number of those Corpses alone must be immense, wouldn't it? How many people had they killed, for fuck's sake?</p>
-<p>****</p>
-<p>"You've arrived."</p>
-<p>****</p>
-<p>Takakusaki Gengo spoke as if he were right in front of us, but the Cave felt like it was reverberating.</p>
-<p>****</p>
-<p>"You are historical Witnesses. You will witness the birth of a god."</p>
-<p>****</p>
-<p>The birth of a god? What kind of nonsense was he suddenly spouting? I checked his Complexion, wondering if Takakusaki Gengo had been drinking Alcohol, but his Face was cast in deep shadow, as if the torchlight couldn't affect it.</p>
-<p>****</p>
-<p>Although I could tell it was Takakusaki Gengo from his Attire, physique, and Voice, his Appearance only amplified the ominousness.</p>
-<p>****</p>
-<p>"What utter nonsense! You're spouting all sorts of strange Words just to buy time!"</p>
-<p>"No need for questions or answers! Die!!"</p>
-<p>****</p>
-<p>Several of the Gwonmaeng Fist Technique Masters shouted, then charged at Takakusaki Gengo. I had heard that all the Gwonmaeng Fist Technique Masters deployed in this Anyaji Attack were highly skilled individuals, possessing at least 70-80% of the old man Yoda's Skill. This meant that no matter who Takakusaki Gengo was, he would have to block or evade this Attack.</p>
-<p>****</p>
-<p>"!"</p>
-<p>****</p>
-<p>But Takakusaki Gengo blocked the Gwonmaeng Fist Technique Masters' Attack in a way completely different from what I had imagined. He raised his Palm, stopping the Gwonmaeng Fist Technique Masters in empty space. It was like Telekinesis, but as a Telekinesis User, Takakusaki Gengo's Method was somehow different from Telekinesis.</p>
-<p>****</p>
-<p>"As the Guardian Hall Master said, those who cause Commotion in a shrine must be Punished."</p>
-<p>****</p>
-<p>Takakusaki Gengo quoted what Numagoori Kaneshige had said at the shrine's Entrance, then clenched the Palm he had extended.</p>
-<p>****</p>
-<p>Simultaneously, the Gwonmaeng Fist Technique Masters floating in empty space made agonizing Expressions. Because they merely writhed in empty space, showing only signs of suffering, I didn't know what kind of Attack he had launched. But soon, I understood what Takakusaki Gengo had done.</p>
-<p>****</p>
-<p>"Kkeuaaaaaa!"</p>
-<p>****</p>
-<p>Blood began to flow from every orifice of the Gwonmaeng Fist Technique Masters. They shed Tears of Blood from their Eyes, vomited Blood from their mouths, and the Gwonmaeng Fist Technique Masters, who had been screaming in agony, slumped lifelessly. And that Blood flew towards Takakusaki Gengo and began to be absorbed.</p>
-<p>****</p>
-<p>Is he a Vampire...? I glanced at Otagi Yuka, and Otagi Yuka also wore a confused Expression. Perhaps sensing my Gaze, Otagi Yuka also looked at me. And she shook her Head.</p>
-<p>****</p>
-<p>"No.... It wasn't the feeling of being controlled by a Vampire's unique Blood Domination. Something more sinister...."</p>
-<p>****</p>
-<p>As Otagi Yuka said, it wasn't a Vampire's Ability. The Gwonmaeng Fist Technique Masters who had been floating in empty space, not only lost Blood, but also rapidly shriveled, their life force being drained.</p>
-<p>****</p>
-<p>"This much is still not enough. I'll have to consume a little more."</p>
-<p>****</p>
-<p>Takakusaki Gengo spoke with a calm Attitude, as if his Meal was insufficient. Naturally, everyone was enraged by his Words. Even though he had shown an unknown Ability, everyone here was confident in their own Abilities.</p>
-<p>****</p>
-<p>"Crazy Bastard!"</p>
-<p>"Die!"</p>
-<p>****</p>
-<p>The Gwonmaeng Fist Technique Masters charged without heeding what had just happened, but as if repeating the exact same Scene, they were merely lifted into empty space and had all their life force drained. With the Situation like this, Fujigasaki Rinka could no longer stand by.</p>
-<p>****</p>
-<p>"Everyone, don't step forward! I will personally strike him dead!"</p>
-<p>****</p>
-<p>Fujigasaki Rinka shouted at the Gwonmaeng Fist Technique Masters to prevent further harm, then charged at Takakusaki Gengo alone.</p>
-<p>At that Moment, the torches flickered violently, sweeping away the shadows that obscured Takakusaki Gengo's Face. Takakusaki Gengo was grinning from ear to ear, watching Fujigasaki Rinka approach him.</p>
-<p>Gojoy-nim requested Nagumo Sian in underwear in a provocative pose~!</p>
-<p>Due to her huge breasts, she might look a bit bloated, but Sian Maman actually has a quite thin waist haha</p>
-<p>TheDreaming-nim requested Beach Diana Lich 1. Breast Morphing Running 2. Interview~!</p>
-<p>1.</p>
-<p>2.</p>
+<p>"Rieko-ssi, as Yuka's first vassal, inherited two of Yuka's traits as a benefit...."</p>
+<p>At first, Sei and Rieko wore expressions of 'What is this all about?', but soon they were listening intently to my words. 'There are Vampires, so there can also be people who see Status Windows,' they must have thought.</p>
+<p>When I explained that Sei and Rieko had inherited Golden Blood and Golden Malice from Otagi Yuka, Otagi Yuka was even more pleased.</p>
+<p>In truth, Golden Blood, which granted resistance to silver, seemed rather unassuming to an uninformed observer. One might have valued Danescu Blaga's combat sense, useful in battle, or Golden Authority, which boosts the Blood Energy Domination that is the Alpha and Omega of Vampires, more highly. However, Vampires, by their very racial nature, were already powerful even without these two traits.</p>
+<p>Because the harm from silver is so utterly fatal, if you observe high-level Vampire Players in games engaging in a desperate struggle to survive, you'll understand just how much of a cheat trait the seemingly plain Golden Blood truly is.</p>
+<p>Especially Otagi Yuka, a Young Lady from a prestigious Vampire Family, knew very well how dangerous silver was to Vampires. Because she understood the true value of her own Golden Blood trait, she was delighted when I told her that her first vassals, Sei and Rieko, had inherited it.</p>
+<p>"And their traits are still only two, because their level isn't high yet...."</p>
+<p>I then explained the two original traits, apart from those inherited from Otagi Yuka. In truth, originally, they should have possessed human traits, but just as Yukiko's traits largely changed when she awakened as a Succubus, most original traits are altered when one's Race changes.</p>
+<p>"They're exactly the right traits for an informant or investigator. Won't the Joseodang covet them?" "For now, let's wait and see a little more."</p>
+<p>Otagi Yuka also seemed to think that Sei and Rieko possessed a combination of traits well-suited for the Joseodang. In truth, they were only Level 4, and depending on how they were developed and what traits they acquired in the future, Sei and Rieko's path could still change.</p>
+<p>"Rieko, from now on, don't speak about the Golden Blood trait to anyone outside of those present here. It's incredibly powerful, but also a dangerous trait."</p>
+<p>Otagi Yuka firmly cautioned Sei and Rieko. Otagi Yuka, too, understood the immense impact Golden Blood would bring the moment she heard my explanation, which is why she urged and urged Sei and Rieko again.</p>
+<p>"Rather, because of Golden Blood, I won't be able to increase my vassals much."</p>
+<p>From the outset, a nascent Blood Clan had to be acutely aware of many things, thus they couldn't indiscriminately increase their vassals. While there was a route to recklessly pursue rapid growth and force a decisive match without regard for the SPF, the standard approach for Vampires, who move secretly at night, was to grow gradually, like spreading an epidemic, without the SPF, other Blood Clans, or the government ever knowing.</p>
+<p>Of course, while Otagi Yuka is a Vampire, I am not, so if Otagi Yuka were to say she would increase her vassals excessively, I intended to stop her. After all, there's no need to unnecessarily antagonize the SPF.</p>
+<p>Next after Sei and Rieko was Saionji Diana. Saionji Diana, too, seemed curious about her own status, her Eyes sparkling brightly through her Hair as she looked at me. 'Then, shall we check it out?'</p>
+<p>◆Name: Saionji Diana (West Garden Temple, Moon Goddess) Lv13</p>
+<p>Stats</p>
+<p>Body Power:6(+14) Agility:12(+15) Stamina:11 Resistance:5(+14) Recovery:5 Sensitive Nerves:12(+10) Appearance:15</p>
+<p>Mind Intelligence:6 Knowledge:6 Focus:8 Will:12 Creativity:4 Charm/Allure:14 Judgment:8(+6)</p>
+<p>Other Luck:3 Cyber Implant Battery:(Arm: 81%)(Legs: 79%)</p>
+<p>Skills</p>
+<p>◆Saionji Style (West Garden Temple Style) (Epic Swordsmanship Lv13) ◆Management (Special Skill Lv8) ◆Riding (Special Skill Lv6) ◆Accounting (General Skill Lv10) ◆Linguistics (General Skill Lv13) ◆Tea Ceremony (General Skill Lv8) ◆Wind Blade Art (Wind Blade Art) (Unique Swordsmanship Lv9) ◆Assassin's Firearm Combat Art (Rare+ Marksmanship Lv9) ◆Wind Reconnaissance (Epic Skill Lv4) ◆Machine Maintenance (Special Skill Lv3)</p>
+<p>Traits ◇Machine Modification-Arm Implant EVE Special Modification Model [Unique Modification] ◇Machine Modification-Leg Implant EVE Special Modification Model [Unique Modification] ◆Swordsmanship Genius [Growth-type Epic Trait] ◆Master's Sensation [Epic Trait] ◆Predator of the Battlefield [Epic Trait] ◆Dance of the Kamaitachi [Unique+ Trait] ◆Sword and Gun Stance [Unique Trait] ◆Wind Affinity [Unique Trait] ◆Modification Efficiency [Epic+ Trait]</p>
+<p>Her Level had gone up by 1, and when I checked her Stats, Recovery and Will had each increased by one. Looking at her Stats, it truly hit me: her Power Stat, combined with her cyber implants, was a whopping 20. That's why it seemed a bit dangerous when they were having sex.</p>
+<p>Unfortunately for Saionji Diana, because her cyber implants were destroyed in yesterday's first battle, she couldn't participate in the fight with Takakusaki Gengo. Thus, she didn't receive the Achievement effect that most people there were presumed to have gained, and her Luck remained at 3.</p>
+<p>How utterly unlucky she must be, that even the chance to raise her Luck through Achievements seemed to have eluded her. Seeing that pathetic number 3, it's a bit pitiful....</p>
+<p>As for her Skills, their levels had gradually increased. With Management, Accounting, and Linguistics Skills at a reasonably high level, it seemed she would be well-suited for secretarial work or even leading another team in the future.</p>
+<p>The newly acquired Skill was Machine Maintenance; it seemed she gained it from managing the cyber implants installed within her.</p>
+<p>Now that I'd reviewed all her Skills, it was time to check her Traits. As a new trait, she had gained Modification Efficiency, which had also appeared in my own Level-up trait choices this morning. Along with Modification Praise, it was one of the most coveted 'wannabe' traits for characters with cybernetic or biological modifications.</p>
+<p>◆Modification Efficiency [Epic+ Trait]: Adaptability to body modification increases. The connection of mechanical circuits or modified nerves becomes precise, greatly increasing the Agility Stat and Sensitive Nerves Stat gained through modification.</p>
+<p>Indeed, when I checked her Stats earlier, I subtly thought the Stat increase was higher than I remembered, and it seemed to be because she had gained Modification Efficiency. Moreover, her current cyber implants are for daily use, so when she uses combat cyber implants, her Stats will increase even more significantly.</p>
+<p>"She obtained quite good things this time."</p>
+<p>I explained the newly acquired traits to Saionji Diana. Although she hadn't gained the Achievement of Witnessing the Birth of a Transcendent, for someone with a Luck of 3, Saionji Diana was surprisingly adept at acquiring good traits.</p>
+<p>In the community before my Possession, there had been a heated debate about whether Luck influenced trait acquisition. Looking at Saionji Diana, it seemed Luck didn't apply, but then looking at Han Yu-gyeong, who was strung along with all sorts of cheat traits, it seemed to apply again. I, too, became curious about the Truth.</p>
+<p>After explaining the traits to Saionji Diana, a car horn blared outside, ppang-ppang! Wondering what was happening, I looked outside the window to see Konoe Akina getting out of the SUV we had ridden yesterday, smiling and waving at us.</p>
+<p>"Akina is here. Let's go out for now."</p>
+<p>Konoe Akina, as the length of the Konoe Family, doesn't work under me, but she is an inseparable Alliance. Having the powerful and prestigious Konoe Family as my Alliance is considerably helpful to my Work and status. Of course, there hasn't been any official announcement or action taken to declare this Alliance yet, but I'll have to reveal it someday.</p>
+<p>As I still held weak power within the Taira Family, I would have to carefully adjust the timing to reveal our Alliance.</p>
+<p>When I went outside, someone came running, do-do-do, and hugged me tightly. It was Alik. He seemed to have been hiding somewhere other than a window that showed the outside, just to surprise me.</p>
+<p>"Ryuta, good morning...!" "Good morning to you too, Alik. Akina, did you sleep well?" "Ufufut, yes, Ryuta-nim...♥"</p>
+<p>Stroking Alik's Head, I also greeted Konoe Akina, asking if she had slept well. Konoe Akina, showing a Smile full of Affection, nodded her Head.</p>
+<p>"I'll drive, so Ryuta-ssi, please check on their status." "I'll assist Sunbae from the passenger seat."</p>
+<p>When Otagi Yuka, who had also acted as the driver yesterday, said she would drive again, Sei and Rieko claimed the passenger seat. After all, since most of them would be strangers, being next to her own Clan Master, Otagi Yuka, seemed to be the most comfortable spot.</p>
+<p>"Okay. First, this is Sei and Rieko-ssi.... Hmm, saying they're Yuka's vassals would be complicated, so from today, they've decided to be with us." "Together...."</p>
+<p>Since it was their first meeting with Konoe Akina and Alik, I introduced Sei and Rieko. When I said they would be together, Sei and Rieko muttered something softly, but Konoe Akina exclaimed, "Oh my! Hello~!" and greeted them so brightly and loudly that I couldn't quite catch what Sei and Rieko had said.</p>
+<p>"I am Alik, and you are.... Echo."</p>
+<p>Indeed, true to Alik's usual self, he immediately gave Sei and Rieko a nickname at their first meeting. I had expected him to say 'Ekko,' but it was just 'Echo,' and I was a little disappointed without realizing it, though Sei and Rieko seemed to like the nickname 'Echo.'</p>
+<p>"Now, if you're done with greetings, get in for now. We can talk in the car."</p>
+<p>Before long, at Otagi Yuka's words, who had already boarded the Driver's Seat, everyone got into the car. And they immediately started to depart. Yesterday, because the matter was urgent, they had handled a few things at the hospital, but today, since they had decided to do various things at the Joseodang Safe House, they departed in a different direction from yesterday.</p>
+<p>"Earlier, when I saw you from outside the window, you seemed to be talking about something enjoyable. What were you talking about?" "Ah, I was checking everyone's status after the battle. I'm going to check both of your Status Windows even in the car, so who wants to go first?" Just then, Konoe Akina asked what I had been doing, so I told her I was checking Status Windows. At my question, "Who should I check the Status Window for first?", Konoe Akina and Alik looked at each other.</p>
+<p>Requested by TheDreaming-nim, Suzuki Chisami 1. Bus Stop Towel Scene 2. Bus Stop Diaper + Tape~! 1. Maybe because I used a lot of LoRA, I don't like the Drawing haha. With the triple input of covering with a towel (LoRA) + bus stop (LoRA) + phone camera (LoRA), it combined strangely with the art style LoRA, so I barely salvaged two images haha. Illustration made as a Prototype without LoRA haha. I used LoRA because I didn't like the bus stop and towel~! 2. Even after creating it without the towel LoRA and phone camera, it wasn't satisfactory, so it seems the bus stop LoRA was the problem ㄷㄷ</p>

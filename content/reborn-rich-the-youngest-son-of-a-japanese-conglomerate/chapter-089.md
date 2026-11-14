@@ -5,85 +5,88 @@ weight = 89
 chapter = 89
 +++
 
-<p>I effortlessly princess-carried Yukiko-ssi and went up to the second floor. Into the master bedroom on the second floor, Yukiko's room. Come to think of it, I've been in this house for quite a while, but this is my first time entering Yukiko's room.</p>
-<p>Opening the door revealed a room much larger than mine. The bed is huge too. It was wide enough for four people to lie down comfortably. I tossed Yukiko-ssi onto the bed.</p>
-<p>"Kyaa~!"</p>
-<p>Yukiko-ssi giggled with a small cry. Yukiko-ssi lay on the bed as is, seducing me with her bewitching eyes. There was no way I could resist Yukiko-ssi's seduction now.</p>
-<p>I went straight onto the bed and kissed Yukiko-ssi's forehead. Then I kissed between her eyebrows, her nose, and down to her lips, giving her a deep, adult kiss using my tongue.</p>
-<p>"Has any man ever been on this bed before?"</p>
-<p>".... No. You're the first man to come onto this bed."</p>
-<p>Hmm, so she didn't use it with Taira Saburo-ssi. Slightly satisfied, I went back to her lips and lightly sucked on Yukiko-ssi's deer-like long neck.</p>
-<p>"Haaang.... Not there. It'll leave a mark...."</p>
-<p>Saying it's not okay while hugging my back tightly, what's that about? Her voice was moist, possessing a magic that melts men.</p>
-<p>"I'm going to stamp you as mine now."</p>
-<p>"Heeung.... I've been your woman since we went to see the cherry blossoms that time.... Ryuta."</p>
-<p>Is she talking about when we went to see the cherry blossoms and kissed during the fireworks? To reward Yukiko-ssi for saying something so admirable, I went down from her neck to her chest. I tickled her areola with my tongue and lightly sucked on her nipples. Yukiko-ssi seemed to feel good, wriggling her body while letting out a plaintive moan.</p>
-<p>"Haaah-aahng.... It's ticklish...."</p>
-<p>After continuously attacking her chest, this time I moved my lips along her slightly exposed abs.</p>
-<p>As I lowered my lips little by little, I was able to reach her neatly trimmed pussy, as if she had gotten a Brazilian wax. I licked her plump labia majora, lightly touching her labia minora with my tongue, teasing her with tantalizing caresses.</p>
-<p>I wanted to slurp and suck to my heart's content, greedily lapping up the vaginal fluids gushing from Yukiko-ssi's pussy, but since the semen I had already shot out was still trickling out, I was using a frustratingly teasing method of foreplay.</p>
-<p>"Haaheung.... A little more... euung...."</p>
-<p>Yukiko-ssi seemed to be impatient because there were parts she wanted me to touch, but I wasn't touching them at all. She was pushing my head deeper into her pussy with her hands. I teased her for a few more minutes before suddenly licking her engorged and erect clitoris.</p>
-<p>"Hiaaang!!!"</p>
-<p>Whether it was because she was surprised by the sudden attack or because of the pleasure, Yukiko-ssi arched her back like a bow. I continued my offensive, sucking and touching her clitoris.</p>
-<p>"Haang! Haaheung! Too much...! Haaaang...! Put it in, Ryuta, huh? Put it in now! I can't take it anymore!"</p>
-<p>Unable to just watch Yukiko-ssi begging, I raised my head and looked into each other's eyes, inserting my Johnson as is. Perhaps because there was already lubricant from my semen, it went in more smoothly than the first time I thrust.</p>
-<p>"Haa....! I love this! Haaang!"</p>
-<p>Yukiko-ssi was ecstatic when I put it in. I started shaking my hips to make her feel even better. After shaking my hips for a few minutes, I decided to ask Yukiko-ssi for some seasoning to make the sex even more exciting.</p>
-<p>"Say something dirty, Yukiko."</p>
-<p>"Haaang...! I can't do thateee...."</p>
-<p>"If you don't say it, I won't shake my hips?"</p>
-<p>Yukiko-ssi protested that she couldn't do it at my sudden request, but when I drastically slowed down the speed of my piston, she put her lips to my ear and whispered obscene words.</p>
-<p>"Haaheung.... Does Mom's pussy taste good? Please thrust into Mom's pussy with Ryuta's banana...!"</p>
-<p>"Yes, Mother, your pussy tastes so good...!"</p>
-<p>She said it with a flushed face, but I could feel her vaginal fluids gushing out as if she was intoxicated by her own lewd story. As if to repay her, I vigorously thrust into Yukiko-ssi's pussy.</p>
-<p>"Haaheung! Haaang, Ryuta, eat me deliciously. It's a pussy prepared only for Ryuta...!"</p>
-<p>The combination of the intense piston movement and Yukiko-ssi's lewd story whispered in my ear quickly brought on the feeling of ejaculation.</p>
-<p>"Where should I put my semen?"</p>
-<p>"Haaheung! Put Ryuta's hot semen inside my pussy! Haaang!"</p>
-<p>As her moans grew louder, my hip movements became more intense. I pulled out to the middle of my glans and then pushed all the way in again with a long stroke, reciprocating big and fast, and Yukiko-ssi's eyes rolled back. Her whites were showing, and it seemed like she was reaching her climax.</p>
-<p>"I'm going, going, going, going! Haaaahng!!"</p>
-<p>"Eueueuk, I'm cumming!!"</p>
-<p>As my Johnson poured white liquid deep into her cervix, Yukiko-ssi seemed to have completely gone as well, her vaginal walls spasming wildly, contracting and releasing my Johnson.</p>
-<p>After our climaxes ended, I hugged Yukiko-ssi without pulling out my Johnson. Yukiko-ssi also hugged me and gave me a light bird kiss on my lips. The bird kiss soon turned into a deep French kiss, and the French kiss made my Johnson regain its strength inside Yukiko-ssi's pussy.</p>
-<p>"Eueung?? Again...?"</p>
-<p>Yukiko-ssi, feeling my Johnson growing vigorously inside her, asked me with wide eyes. I nodded and started moving my hips as is.</p>
-<p>"Haaang!! I just, I just cameee!! Let me rest a little, aahng!!"</p>
+<p>Mega Corp's Youngest Son Chapter 01. Bodyguard Betrayal Event.</p>
+<p>"The bodyguard Shin-gang Group will assign you is going to betray you."</p>
+<p>Jin Yong-tae told Han Yu-gyeong that the first time they met and while they were moving together. It was an unexpected remark. Because Han Yu-gyeong didn't have a bodyguard yet.</p>
+<p>Jin Yong-tae told Han Yu-gyeong about what would happen in the future, as if he were predicting the future. He told her that she would receive a considerable amount of money from her grandfather, Han Mun-gang, the Chairman of Shin-gang Group, as a reward for entering Korea University's Business Administration Department at the top of her class. Jin Yong-tae said that she should use some of that money to hire a bodyguard.</p>
+<p>At first, Han Yu-gyeong didn't believe it. Jin Yong-tae was a Korean-Japanese who didn't know the situation in Korea well, and he would know even less about the situation in Shin-gang Group. But after Jin Yong-tae returned to Japan, she was summoned to the Shin-gang Group's main family residence for a meal, and she witnessed Jin Yong-tae's prediction coming true with her own eyes.</p>
+<p>"Yu-gyeong-a, you've worked hard studying, so this grandpa will give you some pocket money. Guess how much the pocket money is."</p>
+<p>Han Mun-gang was an old man in his early 80s. He was a skinny old man with a sharp impression, and unlike most large corporations that had been passed down through generations, he was famous for creating Shin-gang Group himself.</p>
+<p>Before the war, he ran a small and medium-sized company called Shin-gang Precision with his older brother, Han Mun-shin, but it grew larger and larger as it began producing military supplies during the war. In the process, it became a mid-sized company during the war, and although his older brother, Han Mun-shin, was caught up in the war and died, Han Mun-gang did not waver and continued to run the company with determination.</p>
+<p>When the Republic of Korea was unified after the war, he was recognized for his contribution during the war and received factories and sites in North Korea at prices close to free, and his business grew larger and larger, and before he knew it, he was among the ranks of large corporations. Since then, thanks to Han Mun-gang's correct decisions at every critical event, Shin-gang Group has become one of the top 10 companies in Korea.</p>
+<p>"I think it's about 200 million won."</p>
+<p>Han Yu-gyeong touched the envelope Han Mun-gang gave her and answered. This was also because Jin Yong-tae told her that he would probably give her about 200 million won. In fact, Han Yu-gyeong had no idea how much Han Mun-gang would give her. He was her grandfather, but she had hardly ever met him because her parents were kicked out after they got married, so she didn't know Han Mun-gang well. As far as Han Yu-gyeong remembered, this was only her third meeting.</p>
+<p>"Why do you think so?"</p>
+<p>Han Mun-gang's eyes sharpened. Han Yu-gyeong realized in an instant that her answer was correct. Han Yu-gyeong was more amazed that Jin Yong-tae's prophetic story was coming true than happy that she had guessed the correct answer.</p>
+<p>"Just because. I thought that's how much money I would give if I were grandpa."</p>
+<p>"Hehehe, that's right. When doing business, it's important to think from the other person's perspective. Yu-gyeong has such a rare virtue."</p>
+<p>Han Mun-gang didn't say anything else, as if he was satisfied with Han Yu-gyeong's answer. Han Yu-gyeong put the envelope in her arms. The other relatives who were gathered didn't show any envious eyes or reactions, as if they thought 200 million won was just pocket change.</p>
+<p>"Yu-gyeong-a, congratulations."</p>
+<p>After the meal, Han Jun-yeong, the eldest grandson of Shin-gang Group, spoke to her. Han Yu-gyeong felt uncomfortable with Han Jun-yeong. His emotionless, reptile-like eyes and stiff smile, as if he had learned it, made it seem as if Han Jun-yeong was something other than human.</p>
+<p>"Thank you, Jun-yeong oppa."</p>
+<p>"Enjoy your college life for four years."</p>
+<p>Han Jun-yeong tapped Han Yu-gyeong's shoulder twice and left. Han Yu-gyeong couldn't leave yet. It was because her second great-uncle, Han Woo-min, called her. Han Woo-min was in charge of Shin-gang Security, one of Shin-gang Group's affiliates. Han Woo-min, who had several security personnel, said that he was planning to assign a bodyguard to Han Yu-gyeong according to Chairman Han Mun-gang's orders.</p>
+<p>Han Yu-gyeong felt strange. All of this was going according to what Jin Yong-tae had said. Then, the bodyguard's betrayal would surely come true as well.</p>
+<p>"Yu-gyeong-a, this guy here is Lee Sang-tae, who will be guarding you from tomorrow."</p>
+<p>"Hello, Agassi. Please take care of me."</p>
+<p>Han Woo-min introduced her to a man with a sharp impression who looked like a gangster. As soon as Han Yu-gyeong saw Lee Sang-tae, she realized it. This bodyguard was not someone she could trust. His thin, sharp eyes were looking at Han Yu-gyeong as if he were looking at prey.</p>
+<p>"I'll start guarding you from tomorrow, so go straight home today. Don't cause any trouble outside."</p>
+<p>"Okay. I'll be on my way then, Second Great-Uncle."</p>
+<p>Han Yu-gyeong politely greeted him and left. She had to find the bodyguard Jin Yong-tae told her about right away. She needed someone trustworthy, not someone like Lee Sang-tae, who she couldn't trust. Lee Sang-tae would be sticking with her from tomorrow, so today was her only chance.</p>
+<p>Han Yu-gyeong called a taxi and went to Seoul Station. And she went to where the homeless people were lying down. It had only been a little over 8 years since the end of the war, so Seoul Station was full of homeless people who had no home or property.</p>
+<p>There, Han Yu-gyeong found the homeless man Jin Yong-tae had told her about. A man named Dickson Scott, who was unusually white. Dickson Scott was a man in his early thirties who was dishonorably discharged at the end of the war after being falsely accused, and after that, he couldn't find a job and eventually became homeless in Korea.</p>
+<p>Han Yu-gyeong searched for the white homeless man for about ten minutes and finally saw a white man lying in a corner with hazy eyes.</p>
+<p>"Dickson Scott-ssi."</p>
+<p>"What...?"</p>
+<p>Dickson Scott looked up at Han Yu-gyeong's words. He was said to be white, but because of the grimy dirt and dusty brown hair, he looked no different from the homeless people next to him.</p>
+<p>"I want to hire you."</p>
+<p>"How do you know me and say you're going to hire me?"</p>
+<p>Dickson's Korean was fluent, probably because he had lived in Korea for a long time. Han Yu-gyeong answered exactly as Jin Yong-tae had told her.</p>
+<p>"That's not important. What's important is whether you have the will to get back on your feet."</p>
+<p>"I have the will. But why are you hiring me?"</p>
+<p>"Protect me from my bodyguard."</p>
+<p>Dickson, who guessed that Han Yu-gyeong had a story to tell, thought quietly for a moment. And he nodded and got up from his seat.</p>
+<p>"Give me three thousand dollars a month. And I want one million won as a down payment. If you do just that, I will protect you from the bodyguard you fear."</p>
+<p>"Okay. But I'll give you five times that amount as a down payment. You'll need to buy a suit and prepare a lot of things."</p>
+<p>"Okay. Let's go outside first."</p>
+<p>As soon as Han Yu-gyeong and Dickson started talking about money, the homeless people around them started to get up one by one, so the two hurried out of Seoul Station. Looking at him protecting Han Yu-gyeong while looking around, he seemed to be familiar with guarding.</p>
+<p>Han Yu-gyeong went to an ATM and withdrew money and gave it to Dickson along with a note with her contact information.</p>
+<p>"Please follow and watch me and my bodyguard from tomorrow. All the contact information is written on the note."</p>
+<p>"Okay. Thank you. For saving my life."</p>
+<p>"It's thanks to you choosing to get back on your feet."</p>
+<p>Han Yu-gyeong and Dickson parted ways in front of the ATM.</p>
+<p>The next day, Han Yu-gyeong couldn't help but be surprised to see Dickson. Dickson, who had washed up neatly, cut his hair, and put on glasses, looked like an English conversation instructor at a university. At this level, he wouldn't be suspected so much even within the university.</p>
+<p>And after the orientation, full-fledged college life began. Dickson diligently watched Han Yu-gyeong and Lee Sang-tae without getting caught. Dickson did a good job, but more than anything, Lee Sang-tae was negligent in his bodyguard duties, so Dickson was able to avoid getting caught.</p>
+<p>Time continued to pass, and it was one day right before the midterm exams. She got into the car that Lee Sang-tae was driving in front of her house, and she felt that Lee Sang-tae's eyes were stranger than ever.</p>
+<p>'Today is the day!'</p>
+<p>She was already in the car, so she couldn't run away. But Han Yu-gyeong calmly sent a text message to Dickson as promised.</p>
+<p>Dickson would chase after her. Because she had installed a tracking device on Han Yu-gyeong's phone. Until then, Han Yu-gyeong decided to act to make Lee Sang-tae feel at ease.</p>
+<p>"Um, Mister? This isn't the way, is it? Shouldn't we be turning off over there?"</p>
+<p>"Shut up."</p>
+<p>Lee Sang-tae, who had been polite until yesterday, was now spewing out harsh words as if he would no longer do so.</p>
+<p>"Shut up before I sell you off to a whorehouse!"</p>
+<p>The car was going to a more and more remote place. The car, which had been running for several hours, arrived at an abandoned school in Gyeonggi Province.</p>
+<p>"Move and you die!"</p>
+<p>Lee Sang-tae threatened Han Yu-gyeong with a knife and tied her hands with leather straps. At this point, Han Yu-gyeong became a little scared. What if Dickson doesn't come?</p>
+<p>"Come here!"</p>
+<p>The abandoned school seemed to be a place that Lee Sang-tae had prepared in advance. There was a mattress in a place like a gym warehouse, and there was nothing else. Han Yu-gyeong was thrown onto the mattress.</p>
+<p>"I've been barely holding back until now because I was horny. What do you think you are? Even if I try to look good to you, I've been in a bad mood more than once or twice because of your stiff attitude."</p>
+<p>She knew that Lee Sang-tae would betray her, so it seemed that Han Yu-gyeong's attitude had shown it implicitly. Lee Sang-tae wanted to get close to the beautiful Han Yu-gyeong, but he seemed to have been hurt by Han Yu-gyeong's cold attitude.</p>
+<p>"I kept thinking about it, and then I came up with a win-win strategy to fuck you, who I wanted to fuck so badly, and get money from your family? It's simple. You've heard of kidnapping, right?"</p>
+<p>Lee Sang-tae was muttering while taking off his clothes one by one, as if he had already lost his mind. It was absurd that the conclusion he had reached after much deliberation was just kidnapping.</p>
+<p>As Lee Sang-tae got closer and closer, Han Yu-gyeong's body trembled. If Dickson was just a little late, her body, which was only allowed to Jin Yong-tae, would be forcibly violated by Lee Sang-tae.</p>
+<p>"Now I'm going to take off those clothes for you...! Hehehe!"</p>
+<p>As Lee Sang-tae's hand touched Han Yu-gyeong's shoulder, Han Yu-gyeong turned her head and bit Lee Sang-tae's arm.</p>
+<p>"Kuaaaa!! You bitch!?"</p>
+<p>Lee Sang-tae screamed, covering his arm that was bleeding profusely. The moment Lee Sang-tae raised his hand to hit Han Yu-gyeong.</p>
+<p>Pyusuk!</p>
+<p>With the suppressed sound of a silencer, Lee Sang-tae collapsed. The Dickson she had been waiting for had finally arrived. Dickson hit Lee Sang-tae with an accurate shot.</p>
+<p>"Thank you for coming, Dickson."</p>
+<p>"It's my duty."</p>
+<p>Dickson said, putting the silenced pistol in his arms. Han Yu-gyeong stared at the silenced pistol for a moment. That pistol was the one Jin Yong-tae had gotten for her while they were traveling around Seoul together during their first meeting.</p>
+<p>"You can give this to him when you hire a bodyguard later."</p>
+<p>Jin Yong-tae's voice at that time seemed to be heard in her ears. Han Yu-gyeong made a promise. She would believe whatever Jin Yong-tae said and never doubt him.</p>
 <p>###</p>
-<p>After finishing our business two more times, Yukiko-ssi was lying down, using my arm as a pillow. I told Yukiko-ssi various stories, one of which was about Health Miracle stock.</p>
-<p>"I knew you were getting a lot of pocket money from Father-nim, but now I know why you kept saying you were short on money. You invested it all in Health Miracle stock, right?"</p>
-<p>The story about Health Miracle was making headlines all over the world right now because of its stock price, which had risen more than 300 times. Most people were investing money in Health Miracle stock. Yukiko-ssi was very surprised when I told her that I bought Health Miracle when it was less than a dollar.</p>
-<p>"So don't worry. If things go wrong, we can just live comfortably with this money. If Yukiko-ssi retires from the Human Resources Development Center, we can build a mansion where we don't have to care about what others think and live together."</p>
-<p>"You thought that far ahead?"</p>
-<p>Yukiko-ssi was looking at me with an expression as if she was impressed by my thoughts. Certainly, now that she had a man to support her, the precarious look she had in the Hiramotoga parking lot was gone. Then I can bring up the story I found out.</p>
-<p>"Yukiko-ssi, I heard a story recently...."</p>
-<p>I started by telling her about Team Leader Suzuki Chisami, and then about the head of the personnel department who was backing Suzuki Chisami, which I had heard from Mimata Chieri-ssi.</p>
-<p>"I didn't think Taira Jiro-ssi would have already extended his reach this far....."</p>
-<p>Yukiko-ssi listened to my story with a slightly serious expression and muttered.</p>
-<p>"Don't worry about it anymore. I'll take care of it."</p>
-<p>Yukiko-ssi hugged my face to her ample chest and spoke kindly. My face was buried in her chest, which was the epitome of softness, and Yukiko-ssi gently stroked the back of my head, making my body and mind incredibly comfortable. I felt so comfortable that my eyes closed on their own.</p>
-<p>"Sleep well, Ryuta."</p>
-<p>The soft words of Yukiko-ssi brushing against my ear were the last memory of this night.</p>
-<p>###</p>
-<p>Sunlight poured in through the window, and I woke up naturally because it was so bright. I stretched and got up. Next to me, Yukiko-ssi's naked body, shining in the pouring sunlight, looked even more beautiful.</p>
-<p>"You're awake?"</p>
-<p>Yukiko-ssi greeted me with a bashful smile. I also said good morning.</p>
-<p>"I'll be busy during the weekend because of the personnel department head issue we talked about in the early morning."</p>
-<p>"I had plans for the weekend too, but I was going to cancel them and spend time with Yukiko-ssi...."</p>
-<p>When I spoke as if I was complaining a little, Yukiko-ssi chuckled and pinched my cheek. Yukiko-ssi's eyes were warm, and even the hand that pinched my cheek felt affectionate.</p>
-<p>"Take care of your work on the weekend. We can always be together on weekday evenings."</p>
-<p>Yukiko-ssi, speaking in a tone as if she was soothing a whining child, got up from her seat and went into the shower room. It was a big deal that someone from another line was the head of the personnel department, an important department in the Human Resources Development Center that she was in charge of. She seemed to be trying to leave quickly because if she procrastinated, Yukiko-ssi could become a nominal director, that is, something similar to a figurehead.</p>
-<p>Soon, Yukiko-ssi came out of the shower and we talked while watching her dry her hair.</p>
-<p>"What's your plan?"</p>
-<p>"I have a few ideas."</p>
-<p>Yukiko-ssi said that she would go to the company and figure out all the personnel appointments the head of the personnel department had made over the next day or two, find out if Jiro-ssi's line was there, and find out who was trustworthy, and as soon as Monday came, she would get rid of the people Yukiko-ssi had identified and leave only the trustworthy people.</p>
-<p>Certainly, she'll be busy during the weekend if she wants to figure out all the personnel appointments the head of the personnel department has made over the past few years.</p>
-<p>"Should I help you?"</p>
-<p>"It's okay. My secretary is coming back today, so I can do it with her."</p>
-<p>Yukiko-ssi, who had dried her hair and put on a suit, kissed my forehead. By the way, she looks sexy in a suit too.</p>
-<p>"I don't know what your appointment is, but your prior engagements are important, so don't worry about me and have a good weekend."</p>
-<p>"Tell me anytime if you need my strength. Yukiko-ssi, you know my strength, right?"</p>
-<p>When I showed off my muscles while naked, Yukiko-ssi said, "Hey, what are you doing~!" while staring intently at my muscular body. She's still young, but liking muscles makes an ajumma an ajumma.</p>
-<p>"Then.... I'm staying out tonight."</p>
-<p>"Okay, see you Monday evening~!"</p>
-<p>Yukiko-ssi kissed me on the lips this time and left. It's only 7 o'clock, so should I sleep a little more? Ah, come to think of it, the sofa will be a mess, so I should clean that up before I sleep.</p>
+<p>"But suddenly there was a story about superpowers and a leopard appeared out of thin air, and you weren't surprised?"</p>
+<p>On her second trip to Korea, Jin Yong-tae suddenly asked Han Yu-gyeong. Han Yu-gyeong smiled and shook her head.</p>
+<p>"Because I believe everything you say, Yong-tae. So I wasn't that surprised."</p>

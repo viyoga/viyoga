@@ -5,78 +5,71 @@ weight = 473
 chapter = 473
 +++
 
-<p>Monday. Dragging my slightly tired body due to the time difference between the US and Japan, I went to St. Francisco Girls' Academy a little later than usual. Kurayamada Kirie, who had filled in as homeroom teacher for me on Friday, still looked at me provocatively with a glaring look. I gave a slight smile and waved my hand in greeting.</p>
-<p>,Long time no see."</p>
-<p>,You look more tired than someone who just went to a seminar?"</p>
-<p>,Because of the time difference. Was there anything special at the academy?"</p>
-<p>,Do you think I'm your informant? ...Nothing special happened."</p>
-<p>Kurayamada Kirie gave me a scolding look as if my question had dumbfounded her, but in the end, she answered it. She's the very definition of a tsundere... Kurayamada Kirie only likes having sex with me, so strictly speaking, she's not really a 'dere,' but her behavior is somewhat similar, so calling her a tsundere wouldn't be wrong.</p>
-<p>,Here's a souvenir from the trip."</p>
-<p>I nonchalantly took out one of the gifts I bought during my date with Arisu in Los Angeles and gave it to Kurayamada Kirie. Still, I had carefully wrapped it as a gift, so just looking at the gift box, you wouldn't be able to tell what was inside. Kurayamada Kirie, who had been staring at the gift box for a while, opened her mouth while looking at me.</p>
-<p>,Can I open it?"</p>
-<p>,Yeah. It's nothing special."</p>
-<p>She makes a slightly bewildered expression as if she hadn't expected a gift, and unwraps the box. What came out of the wrapping was a leather collar with a cat-shaped metal name tag attached. Kurayamada Kirie looked at me with a look that seemed to say, "What is this?" so I smiled and answered her question.</p>
-<p>,You told me to violate you outdoors. I was going to use it then."</p>
-<p>,Ah...!"</p>
-<p>Kurayamada Kirie nods as if she realized something at my answer. Her expression doesn't change much, but she seems strangely satisfied. It hasn't even been a month since she lost her virginity, and she's reacting like this.... She was a born sex maniac after all.</p>
-<p>,Your name is also written here."</p>
-<p>I even told her that Kirie (桐愛) was written on the small cat-shaped metal name tag. There were many shapes of name tags, but I chose this one because Kurayamada Kirie always glares at me like a cat. Kurayamada Kirie stroked the name tag a few times and then opened her mouth.</p>
-<p>,I'll use it well."</p>
-<p>,Yeah, but I'll be the one using it, actually."</p>
-<p>,...I guess so. Then use it well."</p>
-<p>Kurayamada Kirie thought about it for a while after my joke, and then agreed with a serious expression. I can't even joke around with her....</p>
-<p>,It's time, let's go to the morning assembly."</p>
-<p>I went to work a little late, and giving gifts made it time for the morning assembly quickly. It's exam period from today, so I have to give the kids strength. I packed the gift bundles I had prepared and walked down the hallway to the special class's classroom.</p>
-<p>,Long time no see."</p>
-<p>Actually, it hasn't been that long, I only haven't seen them for three days, Friday, Saturday, and Sunday, but I was happy to see them, so I greeted the female students of the special class as I entered.</p>
-<p>,Ryuta-chi! Was the seminar fun?"</p>
-<p>,I missed you, sensei!"</p>
-<p>,Ryuta...!"</p>
-<p>They reacted quite well, even though it had only been three days since I last saw them. It seemed like everyone had come to school without skipping because it was exam period. Naruse Shiyo and Uenozono Karen, who often skip school, were both there and sitting in their seats.</p>
-<p>,Of course the seminar wasn't fun, it was a seminar. I couldn't even spend personal time because I was buying the gifts you guys asked for."</p>
-<p>Of course, it was a lie that I couldn't spend personal time because I was buying gifts, but it was true that it took some time to choose gifts for over a dozen people.</p>
-<p>,Wow, you really bought gifts? Ryuta-chi is amazing~?"</p>
-<p>For reference, the gift Seizawa Shii chose was a handkerchief with the autograph of a Hollywood star. She probably thought hard to screw with me, but there were many Hollywood celebrities around me, so it was the easiest to get.</p>
-<p>,Yeah. It was hard to get, you little brat."</p>
-<p>The quite luxurious handkerchief was densely filled with the autographs of Dean Hoffman and the actresses from Arisu's filming studio who spent the night with me at the party.</p>
-<p>,You didn't just get any autograph, did you?"</p>
-<p>,Hey...! What do you take me for."</p>
-<p>Seizawa Shii gave me a suspicious look even after receiving the handkerchief, so I explained to her one by one which Hollywood actor each autograph belonged to.</p>
-<p>Actually, before I went to the US this time, there were many names I didn't know, but Seizawa Shii, as well as most of the students, knew the people who signed the autographs. Hmm.... They were all real stars. I didn't even know that and thought they were unknown actors.</p>
-<p>,Really? Are these genuine autographs?"</p>
-<p>,Of course. I don't lie about things like this."</p>
-<p>Seizawa Shii looked at the handkerchief I gave her with a slightly annoyed expression, wondering what to do with it now, and went to her seat. If I think about it differently, she chose a gift that was useless to her in order to screw with me, so I should think of it as her own fault and be happy about it.</p>
-<p>Except for Seizawa Shii, who chose a gift to mess with me, the rest of the students each chose what they wanted.</p>
-<p>Naruse Shiyo and Kujo Kina wanted T-shirts from UMC, the world's best fighting organization where Fujigasaki Rinka has reigned as the openweight champion for several years, so I bought them each a signature design of the player they wanted.</p>
-<p>It was natural for Kujo Kina to want a UMC T-shirt because she was training in mixed martial arts, but Naruse Shiyo chose a UMC T-shirt even though she was physically weak.</p>
-<p>She praised my Iron Claw before, showing that she likes professional wrestling, and she also wears death metal T-shirts, so it seems that she is physically weak, so she admires strength and that has led to her taste.</p>
-<p>,Reaper is the best after all...!"</p>
-<p>,What are you talking about...! Rick Troy, who destroys everything with his strength, is the best! Reaper, who scratches with his nails like a woman, is the worst."</p>
-<p>,Rick Troy is just a brainless idiot with only strength!"</p>
-<p>The two of them are having an argument that I don't understand at all after receiving the gifts from me. Wasn't Fujigasaki Rinka the best in UMC?</p>
-<p>,Aren't you both fans of Fujigasaki Rinka?"</p>
-<p>I was curious to know how high my master's status was, so I asked a question, but before the question was even finished, they turned their heads to look at me so quickly that I could hear the sound of it.</p>
-<p>,"Fujigasaki Rinka-nim is..."</p>
-<p>,She's a god!"</p>
-<p>,She's a god-isiyeo!"</p>
-<p>They were fighting so much just now, but they're so in sync.</p>
-<p>,To explain on behalf of Kina-ssi, she already has all of Rinka-nim's shirts, so she asked for a T-shirt of the player she supports as a sub."</p>
-<p>,That's right. I'm actually dissatisfied that Rinka-nim doesn't release T-shirts often!"</p>
-<p>There were fanatics of Fujigasaki Rinka here too. I'm glad it wasn't revealed that I was Fujigasaki Rinka's disciple.</p>
-<p>If it was revealed to these two that I was Fujigasaki Rinka's only disciple, it was obvious how much these two would torment me. They would ask me about Fujigasaki Rinka every day, ask me to bring her, or ask me to get her autograph.</p>
-<p>It's not strange at all that these two are fanatics, because Fujigasaki Rinka has been the champion for several years in the openweight class, where modified humans also compete, in the world's best fighting organization UMC, as a pure human without modification. Moreover, it's strange that Japan doesn't go crazy over the fact that the invincible champion is Japanese.</p>
-<p>Of course, she has temporarily given up her champion position to pursue Takakusaki Gengo of Anya-ji, the enemy of our school, so it is said that the current openweight class has entered an era of heroes vying for the vacant champion's throne.</p>
-<p>,...Anyway, thanks, sensei!"</p>
-<p>,I'll wear it well!"</p>
-<p>The two praised Fujigasaki Rinka for a long time and then went to their seats. I once again vowed not to tell those two that I was Fujigasaki Rinka's disciple and took out the next gift.</p>
-<p>What I took out was a water bottle made by a glass factory with a long history (even if it has a long history, it can't be compared to Europe). It is said that it uses special glass so it doesn't break easily, so you can carry it around, and it was the item that Otagi Yuka asked for.</p>
-<p>The vampire forces, including the Otagi family, carried blood in bottles that had been magically preserved in preparation for when they couldn't suck blood, but Otagi Yuka learned about the efficacy of my semen this time and asked me to get a high-quality glass bottle when I went to the US to carry emergency semen.</p>
-<p>,Thank you, sensei-ssi. I can put white milk in here♥"</p>
-<p>Otagi Yuka sent me a seductive look and slightly licked her lips with her tongue. The other students looked at Otagi Yuka with eyes that said, "A milk bottle as a travel gift?" but Otagi Yuka didn't care and went back to her seat with the glass bottle. Even sitting in her seat, she looked at me with a sexy look as if she was going to milk my milk right away.</p>
-<p>I was about to give the next gift when the bell rang to signal the end of the morning assembly. It seemed that telling Seizawa Shii the names of the people who signed the handkerchief one by one and listening to Naruse Shiyo and Kujo Kina's praise of Fujigasaki Rinka until the end took up a lot of time.</p>
-<p>,Ah, it's time. I'll give you the rest during the closing ceremony today, so do well on the exam! Don't be nervous!"</p>
-<p>,Ehhh...!"</p>
-<p>Everyone seemed disappointed that they were expecting to receive gifts, but it was cut off in the middle. But there's nothing I can do. I can't postpone the exam time for just our class because we're having a gift-giving ceremony.</p>
-<p>-----</p>
-<p>Naruse Shiyo SD!</p>
-<p>Cute!</p>
+<p>After the after-school meeting, Kurayamada Kirie went straight to the teachers' prep room. As Kurayamada Kirie was considered one of the few Toyotaka faction members in this school, acting headmaster Ishidera Kosuke immediately summoned her to the headmaster's office.</p>
+<p>Of course, as a result of me working my ass off in the 5th Warehouse, I was able to know about their meeting in advance because Kurayamada Kirie confessed this fact. I tormented Kurayamada Kirie a lot today because she didn't want to tell me about her meeting with the acting headmaster.</p>
+<p>So, with Kurayamada Kirie gone to the headmaster's office, I was the only one in the teachers' prep room. I left the door of the teachers' prep room open and waited for students to pass by.</p>
+<p>The selection for the gift date was limited to the top 6 students and those who had greatly improved their grades, so students who didn't fall into those categories were either going home or leaving the classroom to participate in club activities.</p>
+<p>,Alik! Urabe! Come to the teachers' prep room for a moment. Close the door when you come in."</p>
+<p>I called Alik and Urabe Konoka who were passing by. Alik, perhaps sulking because I didn't give her a gift, puffed up her cheeks and glared at me as she entered the teachers' prep room, while Urabe Konoka, seemingly not thinking much about the gift, just came in with a 'What's up?' expression.</p>
+<p>Uenozono Karen, who didn't come to school today, and Naruse Shiyo, who came but also didn't receive a gift, were students who didn't have much of a relationship with me, but I felt uneasy not giving gifts to Alik and Urabe Konoka, who had decided to continue working under me and was connected to Simyeonui ttal, so I called them separately.</p>
+<p>,Buu...."</p>
+<p>I know she's sulking, but it was so cute to see her puffing up her cheeks and looking at me. I smiled and pressed down on Alik's cheeks.</p>
+<p>,Alik, are you sulking?"</p>
+<p>,Ryuta, you're an idiot...!"</p>
+<p>Alik ran at me and started hitting my chest with both hands. Normally, I would laugh and say, "Ahaha, Alik, are you sulking?" but Alik was really sulking, so she was charging her hands with electricity and tapping my chest. It wasn't a physically strong hit, but the electricity was so intense that I could see blue electricity flowing over my chest. If it weren't for me, it would have been a series of attacks that could have caused a heart attack.</p>
+<p>How can you give someone an electric shock when they're still conscious, Alik-ah.... At Alik's excessive grumbling, I checked the closed door and opened my mouth with an awkward smile.</p>
+<p>,If I give a gift to Alik, who's at the bottom of the class, your classmates won't think it's fair, and they'll be jealous of Alik. Is that okay?"</p>
+<p>In fact, except for Konoe Akina and Otagi Yuka, I don't know much about Alik's situation, so if I give the impression that I'm taking too much care of her, the students will think it's unfair, and Alik will be hated.</p>
+<p>,No, Alik likes friends...."</p>
+<p>She probably means that she likes her friends, so she doesn't want them to be jealous of her.</p>
+<p>,But I know how hard Alik has worked, so I'll give you a gift secretly from your friends. Let's go shopping for a gift with Urabe this weekend."</p>
+<p>,Yes, Ryuta, I like it...!"</p>
+<p>,M-Me too?"</p>
+<p>Alik was very happy with my words, and Urabe asked me back as if she hadn't expected to receive a gift.</p>
+<p>,Both Alik and Urabe are transfers, so there are no comparable grades. So, if we start from 0 points, both of you have improved your grades a lot, so I'm giving you a gift."</p>
+<p>In fact, Urabe Konoka, though not as much as Alik, wasn't very prepared for studying either.</p>
+<p>According to my separate investigation, Urabe Konoka was attending a school with a low deviation value for a professor's daughter, and after her father died, she abandoned her studies for revenge and worked as an inn waitress on Cho-ohten Island until her revenge target arrived, so her current rank of 8th was incredibly good.</p>
+<p>I guessed that Urabe Konoka's intelligence stat had increased considerably as she became a priestess of Simyeonui ttal. If not, she would probably be bickering with Alik in the lower ranks.</p>
+<p>,Alik likes gifts...!"</p>
+<p>,Thank you for your concern, sensei."</p>
+<p>Both of them showed good reactions to my explanation. Alik felt like she had completely resolved her sulking, and Urabe Konoka seemed happy to receive a gift that she hadn't expected.</p>
+<p>,Talk to each other and tell me whether you'll meet on Saturday or Sunday.... You know to keep it a secret from your classmates, right?"</p>
+<p>,Yes."</p>
+<p>,Yeah, Alik will keep it a secret."</p>
+<p>I told them to keep it a secret and got up from my seat to pack my things. Both of them nodded to me as if they were confident in keeping secrets. It was time to go to the meeting soon.</p>
+<p>,Let's go out together now. I have to attend a meeting too. Alik will probably go to the Cheongsim Hall, and Urabe Konoka, are you going straight home?"</p>
+<p>,Yes, the other clubs are resuming today, but our Date Experience Club is scheduled to start tomorrow."</p>
+<p>Ah, that's right. Everyone in our class except Alik and Uenozono Karen was in the Date Experience Club. It'll be a mess on the second floor of the special class building again from tomorrow....</p>
+<p>,See you tomorrow. Talk to each other about when and how you'll meet and let me know in advance."</p>
+<p>After leaving the special class building, the three of us parted ways. I went to the faculty office building for the meeting, Alik went to the Cheongsim Hall, and Urabe Konoka headed home.</p>
+<p>Deureureuk!</p>
+<p>When I opened the meeting room door, most of the 3rd grade teachers were sitting there. They all looked at me with expressions that said, "Why are you so late?" I probably took longer than expected because I was talking to the students about the grade date, and then I talked to Alik and Urabe Konoka after the after-school meeting.</p>
+<p>,I'm sorry, my class is so eccentric.... The after-school meeting ended late."</p>
+<p>I passed the blame for my mistake onto the special class students with the still remaining notoriety of the special class as a shield. It was a little funny to see the teachers who were waiting for me accepting my excuse with a "That's right" attitude. How notorious is the special class?</p>
+<p>,Okay! Now that the midterm exams are over, we'll have a meeting today."</p>
+<p>Kasaoka Yuzuki, the head of the 3rd grade high school department, stood up from her seat. Since the meetings were held separately for each grade, the progress of the meeting was naturally led by the head of each grade.</p>
+<p>However, unusually, acting headmaster Ishidera Kosuke was sitting next to her at this 3rd grade teacher meeting, so Kasaoka Yuzuki glanced at Ishidera Kosuke from time to time.</p>
+<p>,First of all, the special class has become the best class in the 3rd grade in this exam. Congratulations, Yamashiro-sensei!"</p>
+<p>When it was said that the special class was the best class, all the teachers' eyes gathered. Most of them had expressions that said, "Was it that good?" It was an unbelievable reaction that the special class, which had been so notorious, had higher grades than the other classes in the 3rd grade.</p>
+<p>Clap clap clap clap clap!</p>
+<p>,Amazing~!"</p>
+<p>Ishidera Kosuke clapped and made a fuss in a frivolous and noisy manner. He was an acting headmaster, but his attitude was not something a headmaster should have. What's his ulterior motive?</p>
+<p>,I've heard rumors that Yamashiro-sensei is talented, but I didn't know he could raise the special class's grades to the best in the 3rd grade."</p>
+<p>Ishidera Kosuke is openly praising me. Is he just trying to bring me into the Toyotaka faction? Or does he have other ideas? I don't know.</p>
+<p>I should ask Kurayamada Kirie after the meeting. Ishidera Kosuke called her as soon as the after-school meeting was over, so she must have heard what his intentions were.</p>
+<p>After that, the meeting didn't have much content. There was talk about upcoming events and a request to prevent students from slacking off even after the exams were over.</p>
+<p>,Then the meeting is over. Yamashiro-sensei, you're the homeroom teacher of the best class, so you'll get a pretty big bonus this time."</p>
+<p>Oh, there was such a reward? Of course, I couldn't be happy with just a bonus because I had earned billions of won by going to the United States just a few weeks ago.</p>
+<p>When I got up from my seat after the meeting, Ishidera Kosuke came up to me with Kurayamada Kirie and opened his mouth.</p>
+<p>,Yamashiro-sensei. Can we talk in the headmaster's office for a moment?"</p>
+<p>,Sure."</p>
+<p>I thought it would be the right choice to talk to him at least once because I was curious about Ishidera Kosuke's ulterior motives. I followed Ishidera Kosuke. Kurayamada Kirie was following behind me as if it were natural.</p>
+<p>When we entered the headmaster's office, which still had traces of Daigo Terue, Ishidera Kosuke opened his mouth.</p>
+<p>,I have some ability. There are countless ways to kick out a teacher who just graduated from college."</p>
+<p>Is he starting with a threat out of the blue? Seeing that he mentioned that I had just graduated from college, it seems like he tried to investigate me, but he only thoroughly checked the information about Yamashiro Ryuta that the Taira Group had deliberately laid out for him to investigate. I didn't think that Ishidera Kosuke personally had more information power than the ninja Sakagami Rena, and it seemed like that thought was correct.</p>
+<p>,But I won't do that. I heard an interesting story about Yamashiro-sensei from Kurayamada-sensei here."</p>
+<p>What did Kurayamada Kirie say? I glanced at Kurayamada Kirie, but her expression was still unreadable. It was just her usual glaring look.</p>
+<p>,I heard that Yamashiro-sensei has almost taken control of the special class and is a talented person who can make the special class, which is a collection of troublemakers, the best class in the 3rd grade. Instead of attacking Yamashiro-sensei, I'll make another offer. Come to our Toyotaka faction. We're being pushed back now, but with the help of a few people, Toyotaka-nim will have all the power of this Daigo Educational Foundation in the future."</p>
+<p>Ishidera Kosuke had a confident expression. There were quite a few interesting points in Ishidera Kosuke's words just now. The people who are helping him and the certainty that the Toyotaka faction, which is currently being pushed back in the Daigo family power struggle, will win unconditionally.... It stimulated my interest.</p>
+<p>---Alik B-cut</p>
+<p>Kawaing</p>

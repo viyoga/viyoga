@@ -5,56 +5,89 @@ weight = 364
 chapter = 364
 +++
 
-<p>an erotic is please there view with The person standing in front of the front door was none other than Daigo Terue, the Headmaster of St. Francisco Girls' Academy. Daigo Terue was still standing, flawlessly dressed in a business Suit, waiting for me. But why is Daigo Terue at Oofuchi Erika's Home? I don't understand.</p>
-<p>"H-Headmaster-nim!?"</p>
-<p>"Please come in."</p>
-<p>Daigo Terue spoke calmly, but I felt a slight tremor in her Voice. I don't know exactly, but I guessed that Daigo Terue was probably looking after Oofuchi Erika.</p>
-<p>Suddenly, I remembered when I had a private meeting with Daigo Terue after fighting with Kasaoka Koki over the Misunderstanding that I was stealing French Students. At that time, I had talked about Hikikomori Students, and she had shown a slight flinching Reaction, which seemed to be because she was related to Oofuchi Erika. I don't know what Relationship she has with Oofuchi Erika, but it seemed she flinched because it was a Story related to herself.</p>
-<p>I entered the reception room of the house. Steaming coffee was prepared in the reception room, and at Daigo Terue's hand gesture to sit, I took a Seat.</p>
-<p>"I am not Erika's Parents. I am her Grandmother, that is, you could say I am Erika's guardian."</p>
-<p>"Ah, yes. I was surprised to find you here so suddenly."</p>
-<p>Ahh~! So she was her Grandmother.... Then, doesn't she have Parents? Oofuchi Erika didn't attend school and didn't go Outside so much that the Taira Group Information Team seemed to think there was no value in investigating her, so they didn't leave any special investigation data, and I didn't know much, but it seemed she didn't have Parents.</p>
-<p>"Oofuchi-yang's Parents...?"</p>
-<p>"Originally, Erika's Father raised her alone, but her Father died at a Young Age. About 3 years ago. Since then, I have been looking after Erika. Erika's Father was my friend since childhood."</p>
-<p>Ah, I see. I don't know what happened to her Mother, but she wasn't there originally, and her Father died around her 3rd year of middle school or 1st year of high school, so Daigo Terue, her Father's friend, was looking after her as her Grandmother.</p>
-<p>But Something was amiss. It was strange. She was a Student who hadn't attended for such a long Time that even the Taira Group Information Department didn't investigate her, but if Daigo Terue was her Grandmother, shouldn't she have taken action long ago? The Child hasn't been coming to school for almost 3 years, you know.</p>
-<p>"Looking at the record, she hasn't been attending school for almost 3 years, and it could become a Problem, but does even the school board know this fact?"</p>
-<p>Hmm, without realizing it, I ended up talking in a way that sounded slightly like a Threat. To Daigo Terue's ears, it might sound like I was saying I would inform the board of this fact. I just asked because I was curious about what was going on.</p>
-<p>"Keueut...!"</p>
-<p>"Ah, I'm not Threatening you."</p>
-<p>The Atmosphere was strange, so I said it wasn't a Threat, but did that make it sound even more like one...? At times like this, if I give a little Smile, the Atmosphere will soften, right?</p>
-<p>"Why didn't you send her to school for as long as 3 years?"</p>
-<p>Actually... Erika is a genius. Since she already knows everything, she doesn’t feel the need to go to school. Even when I tried to send her, she said she would rather take the High School Equivalency Examination and wouldn’t bother with anything meaningless, so I couldn’t insist any further. After all, a diploma from St. Francisco Girls' Academy is far better than the High School Equivalency Examination.</p>
-<p>So, when you told her to go to school, she threatened to take the equivalency exam instead so she wouldn't have to go, and that's why she didn't, right? And in Daigo Terue's case, rather than Oofuchi Erika getting the equivalency exam, getting a St. Francisco Girls' Academy diploma is better, so you said, 'Yes, rather stay at Home,' right?</p>
-<p>"In the end, aren't you keeping her in the Family out of the Headmaster-nim's Greed? If Oofuchi-yang had rather quickly taken the High School Equivalency Examination and gone to University early, it would have saved Oofuchi-yang's time, you know."</p>
-<p>As Daigo Terue said, if Oofuchi Erika is truly a Genius, even without the Business Card of St. Francisco Girls' Academy, she would quickly be able to distinguish herself. Daigo Terue is hiding Something from me. She was hiding Something to send Oofuchi Erika out into the World later, to keep her at St. Francisco Girls' Academy longer. I don't know what that Something is, though.</p>
-<p>"That was my short-sighted thought. At first, I couldn't believe that fact, and then I wanted my friend's Daughter to have an Ordinary school life."</p>
-<p>"It's a past Matter, so it can't be helped, but still, you shouldn't show favoritism to Students. Even in the class, some Students have Dissatisfaction. Like Minamoto-yang...."</p>
-<p>As soon as I brought up Minamoto Risa's name, Daigo Terue's pupil trembled. No matter how much the Daigo Family, owners of St. Francisco Girls' Academy, had a temporary Quarrel with Minamoto over Minamoto Risa's Matter, if it's this Matter, they will never be able to just let it go. Rather, compared to Oofuchi Erika, Minamoto Risa and Seizawa Shii received Discriminatory Treatment. Considering the Family's honor, they wouldn't be able to stay still, right? Of course, Minamoto Risa and Seizawa Shii are not informing their Family of this fact, but it's not something that can be trusted from only the Students' Words forever, so action had to be taken.</p>
-<p>"Can't it be resolved well?"</p>
-<p>"Well. It would depend on what (Oofuchi-yang) does, wouldn't it?"</p>
-<p>From now on, if she just attends well, Minamoto Risa or Seizawa Shii won't tell their Family. I also don't want St. Francisco Girls' Academy to be shaken by the Minamoto Family making a fuss, so...? Huh? Why are you taking off your Clothes?</p>
-<p>Daigo Terue had a childhood friend named Oofuchi Akihiro (大渕 晃紘), who was several years older than herself. The two of them were close since childhood, and from a certain Moment, they became Lovers. The two of them couldn't hold back and ended up having a Relationship when Daigo Terue was in her first year of High School. And she ended up with a pregnancy. The Daigo Family, which was a much more Prestigious Family than the Oofuchi Family, could not tolerate this Matter. They tried to abort the Child, but Daigo Terue caused a commotion several times, threatening to commit suicide, so she was able to protect the Child. Daigo Terue gave birth to the Child, and the Daigo Family handed the Child over to Oofuchi Akihiro on the Condition that they would cut off their Relationship with the Oofuchi Family in the future. That Child was exactly Oofuchi Erika. And about sixteen years later, Oofuchi Akihiro died from illness. Because it was an illness requiring quite expensive Treatment, the Oofuchi Family, which wasn't very well-off to begin with, ended up collapsing after consuming Oofuchi Akihiro's medical expenses. The only remaining Oofuchi was Oofuchi Erika. Daigo Terue couldn't stay still. Despite the opposition of her Family, Daigo Terue claimed to be Oofuchi Erika's Grandmother and helped her. She paid for the quite expensive tuition fees of St. Francisco Girls' Academy and even supported her Living Expenses. But Oofuchi Erika didn't go to school after her Father died. As Headmaster-nim, I had heard many Stories that Oofuchi Erika was a Genius who could enter University from middle school, but I didn't know she could abandon school so immediately. Daigo Terue ordered the Class Teacher to prevent any gossip about Oofuchi Erika, and when she became a 3rd year, she made her advance to the special class, but she didn't know that the former Class Teacher, who had overlooked Oofuchi Erika's absences, would be fired due to Sexual Assault. So she hastily found a new Class Teacher, but she didn't like that Class Teacher from the beginning. Far from a Teacher's Appearance, with blonde Hair, improperly Tanning skin, and even a Gaze that seemed to Lick his own Body, she felt no character worthy of being called an educator. She had expectations because he was said to be a Scion of the Yamashiro Family, which could be called relatively Prestigious, but he didn't seem to have such dignity. But for Daigo Terue, who had Something to hide, it was rather Fortunate that he wasn't a passionate Teacher.</p>
-<p>'Rather, it turned out well. If it's such a seemingly insincere man, he won't care much about Erika's Matter.'</p>
-<p>With this thought, she decided to entrust him with it only for this semester. If Erika graduates, from next semester, if she doesn't renew the contract, that would be it. However, she realized that thought was too complacent by the Phone Call she received yesterday.</p>
-<p>"Hello?"</p>
-<p>-Hello, I am Yamashiro Ryuta, who has newly become the Class Teacher of the 3rd-year special class."</p>
-<p>"Ah...."</p>
-<p>-As Mother-nim also knows well, Oofuchi-yang hasn't been continuously attending school."</p>
-<p>"That's right."</p>
-<p>-I'm planning to do a Home visit tomorrow, would that be alright?"</p>
-<p>"A H-Home visit?"</p>
-<p>-Yes, would that be alright? I have things to do by Friday."</p>
-<p>"Haa.... It can't be helped. I understand. The time is.... Let's make it 10 AM in the Morning."</p>
-<p>A sudden Home visit Decision. At St. Francisco Girls' Academy, where Young Ladies from Prestigious Families gathered, a Home visit was an Unusual Matter. Was he just doing a Home visit for a Student who continuously wasn't coming to school, or did he have another purpose? Daigo Terue ended up losing sleep. And the next Morning, saying she would be Going to Work late, she waited for Yamashiro Ryuta. Yamashiro Ryuta arrived precisely at the promised 10 o'clock. At first, seeing him, she seemed surprised, but then he soon bared his teeth.</p>
-<p>"Looking at the record, she hasn't been attending school for almost 3 years, and it could become a Problem, but does even the school board know this fact?"</p>
-<p>Daigo Terue's biggest weakness was exactly Oofuchi Erika. And some of the board, filled with members of the Daigo Family, knew that fact. All members of the board are tied together by the Daigo Family, but as an interest group involved in Education, their ultimate Goal is to become the Chairperson of the St. Francisco Education Foundation. Currently, Daigo Terue's Father was supporting her as Chairperson, but if this Matter became a Problem again, her Father might have to step down from the Chairperson position. Then, naturally, she herself would also have to step down from the Headmaster position, and as a result of that, a Problem could arise for Oofuchi Erika also. This man was pointing that out and making a Threat to Daigo Terue.</p>
-<p>"Ah, I'm not Threatening you."</p>
-<p>Even though he said it wasn't a Threat, his slyly smiling Appearance was so detestable that Daigo Terue even felt a subtle Fear towards Yamashiro Ryuta. As if trying to prove that it wasn't a Threat, while talking about Oofuchi Erika, this time he suddenly jabbed at her.</p>
-<p>"It's a past Matter, so it can't be helped, but still, you shouldn't show favoritism to Students. Even in the class, some Students have Dissatisfaction. Like Minamoto-yang...."</p>
-<p>The Minamoto Family was a Problem that even Daigo Terue couldn't just overlook. Actually, I don't know if Minamoto Risa has Dissatisfaction, but if Yamashiro Ryuta informs the Minamoto Family that Minamoto Risa is receiving Discriminatory Treatment, a big Problem will arise.</p>
-<p>"Can't it be resolved well?"</p>
-<p>"Well. It would depend on what (you) do, wouldn't it?"</p>
-<p>To Daigo Terue's Question, at Yamashiro Ryuta's Gaze, who also answered with a sly Smile, she soon had no choice but to resign herself. This person didn't come for Money or anything like that, but came aiming for me....</p>
-<p>'Alright, just this once. Let's think of it as being bitten by a Crazy dog....'</p>
-<p>Daigo Terue took off her Clothes.</p>
+<p>I told the guards to leave because I needed to have a private conversation on the phone, and then I called Daigo Terue. The guards looked at the two thug-like YouTubers still sitting there with a 'What about them?' expression, but they had no choice but to leave at my gesture to get out.</p>
+<p>-Yamashiro-sensei?</p>
+<p>Daigo Terue answered my call right away.</p>
+<p>"Hello, Director-nim. I'm calling because I have something to report."</p>
+<p>-What's wrong?</p>
+<p>"I brought the class to the department store because of the field trip this week, but there's been a problem."</p>
+<p>-A problem? Is it about Erika?</p>
+<p>As expected, the Director is human too, asking about her goddaughter, Oofuchi Erika, first. Even if she's the Director who has to treat the students of the academy fairly, it's only natural that she's more worried about someone close to her.</p>
+<p>"It's not about Oofuchi-yang...."</p>
+<p>I told Daigo Terue about what happened at the department store. And in addition to that, I also told her my opinion that someone seemed to be targeting the students of St. Francis Girls' Academy.</p>
+<p>-Certainly.... That could be the case. If it's within the academy, there's no problem responding, but outside of school, I guess the only thing we can do is contact each family and tell them to increase their personal security.</p>
+<p>Well, St. Francis Girls' Academy can't get involved in after-school matters, so it's right to leave it to each family.</p>
+<p>"Who could be targeting St. Francis Girls' Academy?"</p>
+<p>-At this level, there's a high possibility that it's the royal restorationists. Don't worry about it, Yamashiro-ssi. The academy will take care of it. And thank you for letting me know, Yamashiro-ssi.</p>
+<p>"I'd like the reward to be what you did at your house before."</p>
+<p>-Huh? No....</p>
+<p>I hung up without listening to Daigo Terue's answer. If it's the royal restorationists, there was Jinildang who caused a ruckus at the Cherry Blossom Gathering when I was attending the Human Resources Development Institute.</p>
+<p>After the Third World War, forces with military power went underground and became armed terrorist groups based on various ideologies, and the most popular thing for such suspicious Japanese groups was, of course, royal restoration. Of course, contrary to royal restoration, there were also extremists who wanted to kill all the people of the current Imperial family.</p>
+<p>Anyway, the royal restorationists regard the Minamoto or Taira, the highest Japanese families, as treacherous families reigning over the throne and consider them targets to be overthrown, and if you go a little further from there, there were also crazy bastards who wanted to wipe out all the remaining prestigious families and enthrone the Emperor to fill the empty seats themselves.</p>
+<p>The guys who messed with St. Francis Girls' Academy are probably the ones who attack even the prestigious families. Daigo Terue said she would take care of it, so it seemed like I didn't need to step in.</p>
+<p>"So.... What should I do with these guys?"</p>
+<p>I scanned the room. Fortunately, there were no CCTVs in the room. Since the guard left when I said I was going to interrogate them, there were only three people in the room: me and the two thugs.</p>
+<p>"Stand up and stand over there."</p>
+<p>"Kuh.... Damn it!"</p>
+<p>"Don't, don't bother me."</p>
+<p>The two thugs grumbled something, but eventually stood in the position I told them to. I immediately activated the magic circle and offered them as sacrifices to Simyeonui ttal. The shadow under them grew and opened its mouth, swallowing them before they could even scream.</p>
+<p>Looking at what they were doing, it seemed like they had committed a lot of bad deeds under the guise of hunting, so I thought it would be better to offer them as sacrifices, and I also sent them to Simyeonui ttal's side where no one could find them because I didn't know what they would say on YouTube.</p>
+<p>Then, using telekinesis, I broke the window of the room. Of course, there was a clanging sound of glass breaking, so the guards immediately opened the door and rushed into the room.</p>
+<p>"Wh, what's wrong?"</p>
+<p>"I was on the phone, and the two of them were talking, then they broke the window and ran away."</p>
+<p>"Huh? It's tempered glass...?"</p>
+<p>Ah, I didn't know it was tempered glass. That means my telekinetic ability has increased that much. Let's think positively. I decided to pretend I didn't know and play dumb.</p>
+<p>"It must be a defective product. I'll go back to my students now."</p>
+<p>Since the two they caught escaped, the guards will be scolded a lot or even fired. I don't care about the job situation of the two guards. They treated me like a criminal just now, so I just paid them back.</p>
+<p>When I returned to the underground food court, Minamoto Lisa's group was still eating the desserts I bought.</p>
+<p>"Is everyone okay?"</p>
+<p>"Nothing really big happened! Ryuta-jji came just as they were starting to hit on us."</p>
+<p>Seizawa Shii, who was happily eating pudding, answered as I pulled a chair next to her and sat down in the empty seat.</p>
+<p>"Sensei...! More than that, the Iron Claw was so cool!"</p>
+<p>Maybe because she's weak, Naruse Shiyo seemed to be a pro wrestling mania. Instead of thanking me for helping, she said the Iron Claw was cool.... If you look closely, she's not normal either.</p>
+<p>"Thank you. It was a little cool, Sensei."</p>
+<p>"Ooh~! Lisa-chan, you're so cute when you're embarrassed~☆"</p>
+<p>Minamoto Lisa blushed slightly and thanked me, and Seizawa Shii burst into laughter, breaking the atmosphere. Minamoto Lisa blushed even more and shouted, "Stop it!"</p>
+<p>"Um...."</p>
+<p>Finally, Urabe Konoka tugged at my sleeve. Wondering what it was, I moved closer, and Urabe Konoka whispered in my ear.</p>
+<p>Shinkaihime said that she accepted this offering and gave it as food to the jellyfish she is raising.</p>
+<p>Shinkaihime? She must be talking about the Daughter of the Deep Sea? Ah...! After that incident, she became a shaman of Choōden Island. Now she's the adopted daughter of another shrine. It seemed like she still had a connection with Simyeonui ttal.</p>
+<p>By the way, as soon as I sent the offering, it became jellyfish food.... That's really scary.</p>
+<p>"And she says the desserts in this department store look delicious."</p>
+<p>Of course, that means she wants me to offer them as sacrifices, right? But can the Daughter of the Deep Sea, who is in a completely different dimension, see the current situation? As if noticing my curiosity, Urabe Konoka whispered again.</p>
+<p>"She can see through my eyes. Shinkaihime-nim says your Korean class is fun."</p>
+<p>"Oh, really?"</p>
+<p>She can see through Urabe Konoka's eyes. It seemed like the connection was quite strong. As Urabe Konoka and I were whispering, Minamoto Lisa asked with a slightly sulky expression.</p>
+<p>"What are you two talking about?"</p>
+<p>"I was thanking him for solving the last incident and this one too."</p>
+<p>"I didn't solve it. Wano Haruto solved it all."</p>
+<p>"Apparently, that detective-nim got a clue from the story you told, Sensei."</p>
+<p>As Konoka and I were talking about things they couldn't understand, Seizawa Shii opened her mouth as if she couldn't stand the curiosity.</p>
+<p>"Really! What are you talking about? Tell us so we can understand too."</p>
+<p>"Um, it's about what happened before I was adopted into the Urabe family."</p>
+<p>Urabe Konoka began to tell everyone about what happened on Choōten Island. Orabe Konoka was quite a good storyteller. Everyone was listening with sparkling eyes to the exciting murder story, and in the meantime, I went around the food court and bought sweet things that Simyeonui ttal would like and offered them as sacrifices. Of course, I bought some for myself too.</p>
+<p>I guess this is enough to satisfy her? I took the food and sat back down. Urabe Konoka nodded slightly at me, so it seemed like Simyeonui ttal was satisfied.</p>
+<p>"Wano Haruto said at that time."</p>
+<p>Come to think of it, in this story.... She and her grandmother are the culprits. And she's happily telling the story. As expected, she seemed not normal because she was a special class student. Or maybe she was a little off because she was connected to Simyeonui ttal.</p>
+<p>"In the end, her grandmother did get her revenge."</p>
+<p>"Yes, after that, I was adopted into the Urabe family and came all the way here."</p>
+<p>Still, it seemed like she finished the story with her grandmother's revenge drama and the story of the detective who broke it and me who helped.</p>
+<p>"Really, just like Ryuta-jji said, you didn't really do anything, did you?"</p>
+<p>"The clue you mentioned, Sensei, was decisive. I was so surprised standing next to you."</p>
+<p>Of course, as the culprit, she would be surprised if I unknowingly talked about the clue.</p>
+<p>"But when is it your turn to choose swimsuits? Can you sit here so leisurely?"</p>
+<p>"Our group is the last one, so we have plenty of time."</p>
+<p>I see. If it's the last one, they can be this relaxed. They said they would be in the swimsuit store for forty minutes per team, so if there hadn't been an incident, they would have an hour and twenty minutes to spare. Even though there was a commotion just now, only about thirty minutes had passed in terms of time, so they still had plenty of time.</p>
+<p>"Aren't you buying clothes?"</p>
+<p>"We're going to buy them now."</p>
+<p>"Then go. I have to eat my snacks."</p>
+<p>I told her to go because she said she was going to buy clothes, but Minamoto Lisa hesitated and didn't get up. Why is she sitting still? With a slightly flushed face.</p>
+<p>"Why aren't you going?"</p>
+<p>"I don't know if something like that will happen again today.... Sensei has to go with us...."</p>
+<p>Maybe because of what happened just now, she seemed a little scared to go with just the girls. Minamoto Lisa, you're kind of cute today?</p>
+<p>---Blue Dragon Year Commemorative Blue Hair Character Dragon Girl Style Illustration!</p>
+<p>Chinese Dress Sawayanagi Azuma!</p>
+<p>Kimono Shido Tsubaki</p>
+<p>Hanbok-wearing Japanese idol Uenosono Karen</p>
+<p>Not related to the Year of the Blue Dragon, but a bunny girl of the home teacher requested by JeongChucky-nim.</p>
+<p>The year of the black rabbit is over, so she is wearing a white bunny girl suit ㅎㅎ</p>

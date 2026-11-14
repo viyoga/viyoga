@@ -5,73 +5,68 @@ weight = 989
 chapter = 989
 +++
 
-<p>and before chapter check contains erotic illustrations please surroundings this your</p>
-<p>Kiyohira opened his Eyes. With the beeping sound of a Machine, the surrounding Scenery, which looked like a combination of a Factory and an operating room, came into view.</p>
-<p>'Ah, I had surgery, didn't I?'</p>
-<p>As his hazy Mind awakened, he realized why he was in this Place. He had betrayed Anyaji to save his friend in the Anyaji war, and his Arm had been torn off by Takakusaki Gengo, so he underwent surgery to attach a new Arm.</p>
-<p>Kiyohira turned his Head and looked at his right arm. A Metal Arm, which hadn't been there before the Sleep anesthesia, was attached to his Shoulder. Moreover, he felt a Sensation in his Fingertips, as if the Woman named Eve, introduced by his friend Taira Ryuta, had done something. Kiyohira subtly wiggled his Fingers. His Fingers moved as he thought.</p>
-<p>"My Arm... it's back."</p>
-<p>Kiyohira subtly Smiled. In truth, though he didn't show it much, having his Arm torn off was a great Trauma for Kiyohira. It wasn't just cut off by something sharp; it was ripped from his Torso by immense Power, so the immense pain and fear were something those who hadn't experienced it could never know. Though he had endured such immense pain, seeing the sturdy new Arm attached to his right Shoulder, he felt his Trauma being somewhat treated.</p>
-<p>"Oh my...! You've come to your senses?"</p>
-<p>As Kiyohira looked at his new Steel Arm with eyes full of emotion, Eve opened the operating room door and entered.</p>
-<p>"As I told you beforehand, the Arm currently equipped is a combat Product, so please Test its output before the match."</p>
-<p>Right, there was a match...! UMC, having confirmed Kiyohira's Arm was severed, had asked about the next match Schedule, but Kiyohira had said it was fine as he would be equipped with a cyber implant. Now, with the first Defensive Battle fast approaching, he had to achieve Victory, if only for the Advertisement of the cyberware, which was a Condition of this cyber implant surgery Contract.</p>
-<p>"This time, there will be no losing. The challenger, Martinez, uses a cyber implant made by Guadalajara Mecha-Tech Company, a Mexico cyber implant Enterprise, but Guadalajara Mecha-Tech is far below our Level, so if Genba-ssi fights well, he will easily win."</p>
-<p>From the start, the challenger Martinez was not his Opponent. Furthermore, though it was Eve's perspective as the owner of the cyberware, if his own was superior to Martinez's cyber implant, he would easily win, just as Eve said.</p>
-<p>"Good. If this cyber implant is stronger than Martinez's, I can definitely win. My Skill itself is originally superior."</p>
-<p>Kiyohira nodded his Head, confidently convinced of Victory.</p>
-<p>The door with the Nameplate that read 'Talent Development Institute Director's office' felt somewhat unfamiliar, it had been that long. I knocked twice, then turned the Handle and opened the door.</p>
-<p>As the door opened, Taira Yukiko, standing in front of it, came into view. Yukiko, as if she already knew I was coming, had moved away from her office desk and was waiting by the door. Her Appearance, dressed in a beige Suit and black Stockings, had no Exposure at all, yet it subtly exuded sex appeal.</p>
-<p>"Ryuta...!"</p>
-<p>Taira Yukiko approached with her Arms open as if asking for a hug, and I hugged Taira Yukiko tightly. With the hug, as I deeply inhaled Yukiko's unique scent, I felt as if I had returned to my hometown. Of course, it wasn't the first time seeing her in a very long time. She had come to Miyashi a few times under the name Takinogawa, Sakagami Rena's Illusion Magic teacher, so it wasn't truly six months since I'd seen her, unlike Shinoe Misano or Suzuki Chisami whom I had just met. Still, it had been several months, so I was very glad and hugged Yukiko tightly.</p>
-<p>"Hmph...♥ But Ryuta."</p>
-<p>"Yes?"</p>
-<p>"Why does Ryuta reek of another female animal smell~?"</p>
-<p>Ah...! I clearly showered, but... could Shinoe Misano's or Suzuki Chisami's smell still be lingering...? Yukiko is a Succubus, so she might be sensing something humans cannot, and is convinced that I came from meeting other Women. Taira Yukiko, who was asking me a Question, was smiling, but the Blood Vessels on her forehead were bulging, indicating she was quite angry despite her Appearance. And the intensity of her hug around me grew stronger and stronger, to the point of being somewhat painful.</p>
-<p>"Well, Yukiko-ssi, I won't make Excuses, I'm Sorry...."</p>
-<p>There was no particular Excuse to make. I couldn't say that I wouldn't have Time to meet them if I met Taira Yukiko first, so I had no choice but to apologize without making Excuses.</p>
-<p>"You know I'm lenient about these things. Still, since you've come after several months, I wish you would prioritize me, Ryuta...!"</p>
-<p>Taira Yukiko's Words weren't wrong either. Taira Yukiko is the most important Woman at the Talent Development Institute, and seeking out Shinoe Misano or Suzuki Chisami first would certainly be enough to make Taira Yukiko feel disappointed.</p>
-<p>"I'm Sorry, Yukiko. Instead...."</p>
-<p>I took out a Gift Box from my pocket. I had just bought it because there was an Item suitable for Taira Yukiko while ordering for those going to the USA, but I didn't expect it to be used as a gift to appease Taira Yukiko.</p>
-<p>"Oh my...! Ryuta~♥ Is it a gift?"</p>
-<p>Taira Yukiko, seeing the Gift Box I offered, accepted the box as if she had never been angry. In fact, as Taira Yukiko had just said, she was incredibly lenient about such matters, so she probably wasn't that angry. She was probably just being flirtatious, wanting me to pay more attention to her in the future.</p>
-<p>"It's so beautiful, Ryuta...!"</p>
-<p>Inside the box I gave her was an accessory about the Size of a Bracelet, adorned with various Gems, making it look quite splendid. Yet, it wasn't so overly flashy as to appear Vulgar; it was an accessory that conveyed a sense of appropriate splendor.</p>
-<p>◆Mongma's Horn Ornament [Narrative+ Horn Ornament/ Bracelet]</p>
-<p>A horn ornament used by a Mongma. It could also be used as a Bracelet. If a human wears it, they receive no option Effects.</p>
-<p>●Special Stat Illusion's maximum value increases by 1, and its efficiency greatly increases.</p>
-<p>●Special Ability can be used.</p>
-<p>●Special Stat Illusion, Mind Stat Charm/Allure increases by 1.</p>
-<p>It wasn't a Succubus Queen's horn ornament, but a common Mongma's, so its Grade wasn't particularly high, but its options were quite good for Taira Yukiko to use. Uniquely, it had an uncommon stat maximum increase as an Item option, and even a useful Technology attached, making it a very useful Item.</p>
-<p>"...Since it has these options, you'll be able to use it usefully."</p>
-<p>At my Explanation, Taira Yukiko nodded her Head, then seemed to be in Worry for a moment. What was she worrying about?</p>
-<p>"I'll use it as a Bracelet rather than a horn ornament."</p>
-<p>Ah, she seemed to have been worrying about where to equip (?) it. There was no difference in options no matter where it was worn, so she could use it wherever she wanted. At Taira Yukiko's Words, I took the Mongma's horn ornament from the box and put it on Taira Yukiko's slender Wrist.</p>
-<p>"Heehee...♥ It's beautiful.... Thank you, Ryuta♥"</p>
-<p>Taira Yukiko looked at her Wrist, delighted, then kissed my Cheek. And as if she couldn't wait any longer, she opened the Talent Development Institute Director's office door. And she spoke to her secretary, Ikehara Koyuki.</p>
-<p>"My Son has come after a long time, so I'll be leaving early. Ikehara, you can also leave work as you see fit."</p>
-<p>"Understood, Director-nim."</p>
-<p>Having informed her secretary Ikehara Koyuki of her early leave, Taira Yukiko grabbed my Arm, left the office, and headed straight for her Home. Taira Yukiko's Home was within the Talent Development Institute grounds, so we arrived incredibly quickly.</p>
-<p>Deolkeong...!</p>
-<p>Taira Yukiko roughly opened the door and pulled my Arm, bringing me Inside the House. I had only parked the car in front of the house earlier and hadn't gone Inside, but seeing the interior of Yukiko's Home after such a long time, I found myself immersed in Impression. More importantly....</p>
-<p>"W-wait a moment...! Yukiko-ssi. Isn't the Housekeeper Aunt here?"</p>
-<p>Having the Housekeeper Aunt present while doing various things with Taira Yukiko would be a Failure, so I spoke to Yukiko, who was hugging me right from the Front Door.</p>
-<p>"It's fine. I told her to just make dinner for tonight and leave early...."</p>
-<p>"No...!"</p>
-<p>Even if she was told to leave early, it was still early since we arrived during Work hours. The Housekeeper Aunt might still be there. As if my Assumption was correct, a sound came from the Front Door, and the Housekeeper Aunt came down from the second floor, asking, "Who is it?" We quickly separated from each other, then greeted the Housekeeper Aunt who had come to the Front Door.</p>
-<p>"Long time no see."</p>
-<p>"Oh my...! Young Master, it's been a long time."</p>
-<p>"My Son came after a long time, so I took an early leave."</p>
-<p>I greeted her calmly, but Taira Yukiko spoke somewhat flustered, as if making an Excuse. Although it was an awkward Appearance to anyone, the Housekeeper Aunt didn't seem to suspect much.</p>
-<p>"But you haven't left early? I said you could leave work early today...."</p>
-<p>"Ah, I was going to clean the Young Master's Room on the second floor before leaving, since he was coming. I'm almost done."</p>
-<p>At Yukiko's Words, the Housekeeper Aunt said she would finish the cleaning quickly and went back up to the second floor. Once Inside the House, I was led to the restaurant, my Wrist held by Yukiko.</p>
-<p>"Shall we have some Tea?"</p>
-<p>"Sounds good."</p>
-<p>Until the Housekeeper Aunt finished cleaning, we sat at the Dining table, drinking Tea and chatting. Since the Taira Group's March Competition was coming soon, I asked Taira Yukiko a few things I was curious about, and Taira Yukiko explained them well. Anyway, since I had successfully completed my Mission, she said there was nothing to Worry about in this Competition. Indeed, I don't even have a company under my Responsibility yet, so there's nothing to be evaluated by Taira Danjo Grandpa except for my Missions.</p>
-<p>"I'll be leaving now. Dinner is in the refrigerator, so you can just heat it up and eat it.... The Young Master's Room has also been cleaned, so you can Sleep there like before."</p>
-<p>While we were talking, the Housekeeper Aunt seemed to have finished cleaning, spoke about dinner and my sleeping arrangements, and then left work. With the sound of the Front Door closing, Taira Yukiko, her Eyes reddened, rose from her Seat. Seeing Taira Yukiko's facial expression, completely in Heat, it seemed that even if the Housekeeper Aunt came back, she wouldn't be able to stop her now. I quietly followed Taira Yukiko to Yukiko's Room, which I hadn't visited in a long time.</p>
-<p>Gojoy-nim requested Shinoe Misano 1. Ryuta being welcomed. 2. Seduction in an empty office.</p>
+<p>a before breast chapter check exposure is please surroundings this with your</p>
+<p>The 14th floor of the Minamoto Media-Computer Technology Building.</p>
+<p>As of yesterday, Minamoto Risa joined Minamoto Media-Computer Technology as a Team Leader.</p>
+<p>It was quite common for a Blood relative of the Minamoto Family to join the Group as a Team Leader, so there wasn't much fuss about Minamoto Risa becoming a Team Leader. However, Minamoto Risa's Minamoto Group entrance exam results became quite a hot Topic.</p>
+<p>The Minamoto Blood relatives' unique Group entrance exam, where they personally invested to grow money, was quite famous within the Minamoto Group because it served as an indicator to gauge the Skill of the Minamoto Family's Blood relatives who would be joining as Team Leaders. Even if everyone acquiesced to the chaebol heirs coming in as parachutes, everyone still hoped that the person on that parachute would be an outstanding individual.</p>
+<p>In particular, the people at the company where the parachute Team Leader would join were Obsessed with the Minamoto Group entrance exam results, because if an incompetent Team Leader came, the company's Achievements would drop, and ultimately, everyone Affiliated with that company would suffer the loss.</p>
+<p>When the news spread that Minamoto Risa would be joining Minamoto Media-Computer Technology, the employees of Minamoto Media-Computer Technology cheered upon hearing the rumor that Minamoto Risa had passed the Minamoto Group entrance exam with incredible scores.</p>
+<p>Moreover, the Story that she didn't earn profits with the Family's help, but rather made hundreds of times the profit by selling club anthologies at a school festival, gave rise to the hopeful thought that the standing of Minamoto Media-Computer Technology, which was considered a backwater within the Minamoto Group, might rise.</p>
+<p>Thus, Minamoto Risa, who became a Team Leader with the immense Expectation of the employees, decided to create a publisher team to achieve results in a short period.</p>
+<p>Minamoto Risa's thought was that there was no need to develop games within Minamoto Media-Computer Technology; by preemptively acquiring and publishing external games that were destined for future success, quick Achievements could be made.</p>
+<p>As game Development was a long-term Project taking several years, creating a publisher team was the best Choice for Minamoto Risa, who desired quick Success, rather than developing games herself.</p>
+<p>Of course, being a publisher was not easy either. This is because a publisher is Responsible for managing everything necessary for game Service, excluding game Development. This included quite complex and numerous things such as game infrastructure construction, translation and localization, server management, promotion, Event planning, User management and analysis, game Market analysis, and operating System construction.</p>
+<p>Just as countless games fail because their operation holds them back despite being well-made, successful popularity can only be achieved when the game's fun and the publisher's Ability are well-balanced.</p>
+<p>Minamoto Risa also enjoyed classic Comics and, unlike other Young Ladies of prestigious families, occasionally had Intimate Experience playing games, so it wasn't an entirely unfamiliar Field. And with the outstanding individuals she had recruited by traveling around Japan, even being Held Back a Year and absenting herself from St. Francis Girls' Academy, gathered in Minamoto Risa's team, she was somewhat confident in their Success.</p>
+<p>And because Minamoto Risa had a List of upcoming hit games provided by Taira Ryuta, she wasn't even considering Failure.</p>
+<p>Minamoto Risa even had the thought of personally acquiring some of the companies that would create hit games, rather than Minamoto Media-Computer Technology doing so.</p>
+<p>「First, we need to find good games and sign contracts, right? Please give me a List of games that are about to be released but haven't found a publisher yet.」</p>
+<p>Minamoto Risa said, looking at the employees who were watching her. At her Words, the employees displayed various data on the Screen. As they were talented individuals, a List of game developers not only in Japan but also worldwide appeared on the Screen.</p>
+<p>Seeing the game Taira Ryuta had told her about on that Screen, Minamoto Risa smiled.</p>
+<p>「Damn it...!」</p>
+<p>Kwang!</p>
+<p>The Black Sage spat out a Curse and slammed his desk. He was expressing his frustrated Mood because the plan he had recently made was slowly distorting.</p>
+<p>There were several Reasons why he came to New York and cleaned up New York's Crime Syndicates as a fake Black Knight.</p>
+<p>The acquisition of the property and various illegal items held by the Crime Syndicates, and the Black Cape, the Organization led by the Black Sage himself, taking control of the New York Back Alley, which was left vacant after the fake Black Knight cleared out the illegal Back Alley organizations, were all secondary Reasons.</p>
+<p>The primary Reason was to obtain the forbidden book 'Omniscient Shard,' which was rumored to have flowed into the New York Back Alley.</p>
+<p>The Omniscient Shard was a legendary grimoire, famous as a book that granted desired Knowledge to Magicians or Sorcerers who had reached a certain Realm or higher.</p>
+<p>For Magicians and Sorcerers always thirsty for new Knowledge, it was an irreplaceable Treasure.</p>
+<p>The Reason this irreplaceable Book was called a forbidden book was that the standard for Magicians or Sorcerers who had reached 'a certain Realm or higher' was extremely high.</p>
+<p>If a Magician who did not meet the Omniscient Shard's criteria opened this Book, they would either go mad or their entire Body would explode. Thus, it was designated a forbidden book in the Middle Ages, and due to various Political confusions and Jeonjaeng, the Omniscient Shard wandered all over the World.</p>
+<p>As soon as he received Information that the Omniscient Shard, which all Magicians wished to see yet also feared to see, had flowed into the New York Back Alley, the Black Sage immediately moved to New York.</p>
+<p>However, the Black Sage, who only had Information that it had flowed into the New York Back Alley but didn't know exactly which Organization it had entered, after much Worry, devised a plan.</p>
+<p>If he used his Organization to search for the Omniscient Shard, it would likely be seen as an inter-organizational conflict, and the government would probably intervene. Since that would make things quite complicated, the Black Sage had to find another Method.</p>
+<p>As the Black Sage pondered Methods, he one day realized that the black Aura possessed by Soda Haruto, one of his collections, was similar to that of the Black Knight.</p>
+<p>Having confirmed this, the Black Sage made Soda Haruto into a fake Black Knight and began to cultivate favorable public opinion for vigilante activities, utilizing his Organization.</p>
+<p>Thus, the activities of the fake Black Knight began, and at first, it was good. However, the favorable public opinion for vigilante activities that he had intentionally cultivated ran wild, and strange Humans who engaged in vigilante activities like the Black Knight began to increase.</p>
+<p>At first, he ignored the vigilantes who merely dealt with thugs on the Street, but as the vigilante groups grew and even some Superhumans began vigilante activities, following the Black Knight, they started eliminating the Organizations that the Black Knight was supposed to handle, thereby obstructing the Black Sage's Purpose.</p>
+<p>When the fake Black Knight dealt with an illegal Organization, the Black Cape, the Black Sage's Organization, immediately moved in to search for the Omniscient Shard and simultaneously stole the property left by that Organization. However, when vigilante groups dealt with an Organization, the police arrived before the unprepared Black Cape, making it impossible to search for the Omniscient Shard.</p>
+<p>「Damn it...! What should I do?」</p>
+<p>The Black Sage, muttering Curses, soon slammed his desk once more. It meant something had occurred to him.</p>
+<p>「Right, if vigilantes are the Problem.... I'll just create a Villain group that attacks Heroes. Kilkilkil...! They'll have to pay the Price for bothering me.」</p>
+<p>The Black Sage laughed unpleasantly and began to devise an evil plan. This Time, too, he intended to use part of his collection.</p>
+<p>「Arisu.」</p>
+<p>As Arisu was busy packing her Luggage to return to Japan, the door opened. The person who entered Arisu's room was her Mother, Nae Fitzgerald.</p>
+<p>「Huh? What's wrong, Mom?」</p>
+<p>「It seems we'll have to postpone going to Japan a bit.」</p>
+<p>At Nae Fitzgerald's sudden Words, Arisu frowned. Tomorrow, the day after tomorrow, was their Airplane Reservation, yet she was telling her to postpone the trip to Japan? Did she say this knowing how much Arisu was looking forward to this trip to Japan?</p>
+<p>「No, it's an Airplane for the day after tomorrow.... What on earth is going on?」</p>
+<p>「There's a rumor that a valuable item has arrived in New York.」</p>
+<p>It's related to Phantom Thief François.... Arisu muttered to herself, then signaled Nae Fitzgerald to continue speaking.</p>
+<p>「It's a Book called the Omniscient Shard, and they say it's a very precious Book.」</p>
+<p>「A Book? Is it historically precious? Or is it inherently precious because it's made of Gold or something?」</p>
+<p>At the Words 'precious Book,' Arisu wore an Expression of Intrigue and asked for more details. Though they couldn't share it with anyone else, the Fitzgerald Phantom Thief Mother and daughter shared a certain Desire between just the two of them. It was the Obsession and Desire to steal precious things.</p>
+<p>It could be kleptomania, stealing items guarded by someone, or a Possessive Urge to own precious things, but the two Mother and daughter believed they were born with the innate nature of phantom thieves, slightly different from these two Emotions.</p>
+<p>「You could say both. It has historical Value... and since it's a grimoire, it has Value in itself.」</p>
+<p>At Nae Fitzgerald's Words, Arisu felt even more drawn in. Nae Fitzgerald, sensing her Daughter was still Worrying, decided to deliver the decisive blow.</p>
+<p>「This Work seems quite Dangerous. The Omniscient Shard has flowed into a Crime Syndicate, you see. I don't think I can do it alone, Mom.... But if my Daughter helps, we might be able to solve it.」</p>
+<p>Arisu chuckled at Nae Fitzgerald's Words. Her Mom's Appearance of exaggeration was amusing.</p>
+<p>Nae Fitzgerald was capable of escaping even when surrounded by hundreds of police officers. It seemed unlikely she would be caught by a mere New York Crime Syndicate. However, since there was always a 'what if,' Arisu reluctantly nodded her Head.</p>
+<p>「Alright. I'll postpone it for about one or two weeks, I guess....」</p>
+<p>「Once this Work is over, let's go to Tokyo together. We can meet Ryuta, too.... Huh? Ryuta is a Playboy, so we'll have to combine our strengths to capture him.」</p>
+<p>Nae Fitzgerald also knew how much Arisu wanted to see Taira Ryuta, so she spoke soothingly. She herself also wanted to see Taira Ryuta, so she decided to go to Japan once this Work was over.</p>
+<p>TheDreaming-nim requested Arcade Oofuchi Erika 1. Tied up state 2. Jumping with breasts jiggling~!</p>
 <p>1.</p>
 <p>2.</p>
+<p>Neosblue-nim requested Drop Kick Lena~!</p>

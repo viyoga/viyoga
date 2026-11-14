@@ -5,78 +5,59 @@ weight = 479
 chapter = 479
 +++
 
-<p>"The results are still unknown, but everyone worked hard during the exam period."</p>
-<p>Finally, the quite long midterm exams were over. At my words, all the students cheered as if they felt relieved that the exams were over. Surely, they all worked hard, so they must feel relieved.</p>
-<p>"Ryuta-jji, so are we having an exam party today?"</p>
-<p>Seizawa Shii said excitedly, standing up from her seat. Because the exam ending day was Friday, the students made plans to hang out together on the ending day, and because they had only studied for the past two weeks before the exam, doing study groups and whatnot, everyone wanted to have fun.</p>
-<p>"Since we decided to, we have to. But what are we going to do for fun?"</p>
-<p>Actually, we only made a promise to hang out after the exam, so we didn't decide what to do. If we hang out without any plans, we'll probably just eat and chat.</p>
-<p>"We have to decide now~! The exams are over, so everyone's free!"</p>
-<p>Seizawa Shii was right. The exams were all done, and it wasn't even lunchtime yet, so it seemed like we could decide by lunchtime.</p>
-<p>"Then, Minamoto and Shido, come out and talk to the kids and decide what to do today."</p>
-<p>In times like these, it was good for the teacher to step back and leave it to the class president and vice president. It was easier for me, and the students could make suggestions without worrying about what I thought.</p>
-<p>"Okay, everyone, tell us what you want to do one by one. And let's vote on the topics that come up to decide."</p>
-<p>Minamoto Risa came forward and made a reasonable suggestion. If the topic was chosen by vote, they wouldn't have much dissatisfaction even if their opinion wasn't adopted.</p>
-<p>At Minamoto Risa's words, several people raised their hands and talked about what they wanted to do.</p>
-<p>"I want to go to a karaoke!"</p>
-<p>"I want to go to a VR game room...!"</p>
-<p>"We need to move our bodies a bit! A new indoor tennis court opened on 1st Street, how about that?"</p>
-<p>Starting with the suggestions of Seizawa Shii, Oofuchi Erika, and Kujo Kina, all sorts of fun things began to pour out. Most of them were ordinary suggestions such as taking sticker pictures or shopping, but there were also strange suggestions such as going to a park where ghosts appear, suggested by Urabe Konoka, or a special class strongest sparring tournament, newly suggested by Kujo Kina.</p>
-<p>"How about a home party at Ryuta-jji's house?"</p>
-<p>Everyone became quiet at Seizawa Shii's sudden suggestion. No way.... Eh, no, right?</p>
-<p>"A home party, you say...?"</p>
-<p>"American style, where everyone brings something to eat, sets it all out, and eats and plays~!"</p>
-<p>No, why are we doing that American style thing at my house? Playing is fine, but cleaning up is a pain....</p>
-<p>"Okay, let's vote now. I'll send a voting window to the chat room, so choose two things you want to do."</p>
-<p>Minamoto Risa said, pressing something on her smartphone. Soon, a voting window was uploaded to the Line chat room where I, the vice homeroom teacher Kurayama-da, and Kirie were. There were so many suggestions that each person was given two votes.</p>
-<p>Then I have the right to vote too, right? First of all, I have to exclude the home party at my house and vote. Taking sticker pictures and.... Going on a gourmet tour would be nice.</p>
-<p>"Everyone's done voting, right? I'll reveal it."</p>
-<p>The voting ended so quickly that Minamoto Risa revealed the voting results. My ominous premonition was correct. A home party at Yamashiro-sensei's house was in first place with fourteen votes. Second place was taking sticker pictures. Wait a minute.... 14 votes means 13 people in the class, and the chat room includes me, Kurayama-da, and Kirie, so that means everyone except me voted for it?</p>
-<p>"It's decided, a home party. Yamashiro-ssi, what time is good for you today?"</p>
-<p>"You guys are guests, so I need to clean up in advance... Let's have a dinner party rather than lunch."</p>
-<p>I answered with a slightly dejected expression as if I couldn't help it. Then Seizawa Shii and Kujo Kina, the pranksters of our class, laughed and teased me.</p>
-<p>"Ryuta-jji could vote too, but it's 14 votes? Everyone except Ryuta-jji must have voted here! Ahahaha☆"</p>
-<p>"Karen-chan is going to Korea right away for idol activities, but she voted to go to the teacher's house? Kyahaha!"</p>
-<p>Come to think of it, that's right. Uenozono Karen sent me an official document saying that she was going to Korea today to work and wouldn't be able to come for a few days, but why did she choose our home party? Uenozono Karen opened her mouth as if to make an excuse, receiving my puzzled look.</p>
-<p>"Ehehe. It looked like it would be fun. I'll look at the pictures my friends take and upload."</p>
-<p>Uenozono Karen seemed to want to participate in this gathering, but because she couldn't attend due to her schedule, she seemed to be trying to be vicariously satisfied by looking at the pictures her classmates sent.</p>
-<p>Idols look glamorous on the outside, but it's a bit sad that they can't enjoy memories like these from their school days. I should tell the kids to send a lot of pictures.</p>
-<p>"Are we really bringing one dish per person in the American style? I'm really not preparing any food?"</p>
-<p>"We'll have a meeting among ourselves to decide what to bring, so Ryuta-jji should go home and clean~!"</p>
-<p>In the end, the special class female students kicked me out and said they were going to have a meeting, so I was kicked out of the class, and Kurayama-da Kirie remained in the special class classroom. It seemed like a consideration(?) for the homeowner to go and prepare in advance.</p>
-<p>Actually, cleaning wasn't that difficult because the robot vacuum cleaner did it. There were almost no lewd things that the students shouldn't see. In my case, I could satisfy my desires directly with women rather than looking at lewd magazines under the bed, which is common in Japanese subculture.</p>
-<p>...Ah! There's an egg vibrator that I used when I went on an outdoor walk with Kurayama-da Kirie. I should hide that. If I get caught, I could clearly see Seizawa Shii and Kujo Kina laughing and making a fuss, and Minamoto Risa looking at me with a contemptuous look. I prepared to leave work, thinking about what else I needed to hide.</p>
+<p>After the office was ventilated, and just as Oofuchi Erika and Shido Tsubaki were about to start their meeting, the McDoria hamburger that Oofuchi Erika had ordered arrived. Seeing it, Shido Tsubaki raised her glasses with a finger and frowned slightly, but didn't say anything to Oofuchi Erika.</p>
+<p>Oofuchi Erika couldn't say anything about such things, because Shido Tsubaki was a founding member of Search Eye, established under Shido Tsubaki's leadership, and she demonstrated outstanding ability in bringing back various information through VR Dive, so she was a little fond of her.</p>
+<p>,I didn't eat dinner because I was investigating... Should I order one for Tsubaki-chan too?</p>
+<p>,No, I already ate. But can I listen while you eat?</p>
+<p>At Shido Tsubaki's words, Oofuchi Erika nods, taking a big bite of her Large Mac with a waang. Then, she launched the document file containing the conversation between Daigo Terue and Yamashiro Ryuta that she had prepared in advance. Shido Tsubaki read the contents for a moment and then nodded.</p>
+<p>,So, behind the Toyotaka faction is Minamoto's fourth son, Minamoto Shigemune, and they might use force to seize control of the Daigo family?</p>
+<p>,Yeah, it's just a rumor, so we need to confirm it thoroughly.</p>
+<p>Oofuchi Erika answered, chewing on her hamburger, to Shido Tsubaki's question. She had thought it was just a power game within the family, but as she investigated, the scale of the matter grew larger and larger, and Shido Tsubaki began to worry about what to do.</p>
+<p>,Is it okay for me to ask about this?</p>
+<p>As the daughter of a giant newspaper company, Shido Tsubaki, who knew this industry well, pondered for a moment. The giant newspaper companies were already places that only produced articles that suited the tastes of giant corporations and the government, and the various newspaper companies owned by the Shido family were no different.</p>
+<p>With the Minamoto Group involved, even if it was just a school club activity, if Shido Tsubaki revealed this matter, the Shido family would definitely suffer the damage. If they incurred the displeasure of the Minamoto Group, one of Japan's two major powerhouses, even the Shido Group, famous for its media influence, would inevitably be hit hard.</p>
+<p>,What are you worried about? Is it because the Minamoto side is involved?</p>
+<p>,Yeah, sorry...</p>
+<p>This matter was also related to Daigo Terue, Oofuchi Erika's godmother, so she felt sorry for Oofuchi Erika for worrying about this matter. Oofuchi Erika shook her head and then put the remaining piece of hamburger into her mouth, opening her mouth.</p>
+<p>,We can just focus on Ishidera Kosuke, whom we were initially investigating, except for the fact that Minamoto is involved. We can say that we published the article without knowing that the Toyotaka faction and Minamoto had joined forces. Wouldn't that be okay?</p>
+<p>Shido Tsubaki nodded at Oofuchi Erika's reasonably clever words. That's right, there was no need to make all the information she knew into an article.</p>
+<p>The Shido family, and even the entire Daigo family, didn't fear the Toyotaka faction, a minor faction of the Daigo family, so if they removed the story about the Minamoto side and passed everything onto the Toyotaka faction and Ishidera Kosuke, it seemed like they could publish the article.</p>
+<p>If they didn't reveal the name of Minamoto, it would be ambiguous for the Minamoto Group to respond. If the Minamoto side got angry, it would be proving that the Minamoto Group was the entity using force, so if they didn't mention the name, they wouldn't show any reaction.</p>
+<p>,Yeah, that's a good idea. But if we publish it under the name of the newspaper club, it could cause trouble for the newspaper club, so let's publish the article anonymously and post it on the bulletin boards of each club.</p>
+<p>,Yeah, leave posting it on the club bulletin boards to me. I'll post it not only on general clubs but also on unauthorized clubs, so Tsubaki-chan, please write a delicious article.</p>
+<p>Fearing that newspaper club students would suffer disadvantages if they wrote an article targeting the current school director, Ishidera Kosuke, they decided to post it anonymously on the club bulletin boards as an internet article.</p>
+<p>Oofuchi Erika, who is excellent at VR Dive, would be able to post articles on each club without leaving any traces.</p>
+<p>,We still don't have enough sources, so we need to gather more detailed data and write the article. Erika, can you work hard over the weekend?</p>
+<p>,Yeah, this is no different from helping my mother, so I should work a little harder. And the Daigo family will pay for the information and the article.</p>
+<p>Search Eye, conceived by Shido Tsubaki, was a business that acted as an information broker and even published articles when something happened. It was structured to receive money from people who benefited from revealing the truth, and it wasn't a company that received money from those who hid the truth by doing bad things to hide the truth.</p>
+<p>It was conceived by Shido Tsubaki, a female student who still had a sense of justice in her adolescence, and Oofuchi Erika was adding her strength as an informant, but both were disappointed that Sakagami Rena, who used to hang out with them, didn't join this business.</p>
+<p>According to Sakagami Rena, she had a lord and couldn't do personal work? However, she said that she would accept information gathering in the form of a request.</p>
+<p>,Shall we request Sakagami Rena?</p>
+<p>,Okay, let's talk to her first.</p>
+<p>The two began to talk about making a request to Sakagami Rena for information gathering.</p>
 <p>###</p>
-<p>"Teacher~! I'll help you clean up!"</p>
-<p>Konoe Akina's voice was heard in front of the door outside the house. I, who was in the middle of organizing lewd tools, hid the lewd tools and then walked to the front door and opened it.</p>
-<p>Konoe Akina was wearing a fluttering long-sleeved shirt and beige skirt that suited autumn, and it looked quite good on her.</p>
-<p>"You came early?"</p>
-<p>"I'm here to help you clean!"</p>
-<p>I was sure they said they would bring something for the American-style home party, but Konoe Akina was empty-handed. Konoe Akina seemed to feel my gaze and opened her mouth with an attitude that said not to worry.</p>
-<p>"The delivery will come from home according to the meal time!"</p>
-<p>As expected, Konoe is the head of the family, so it seems like she even has a delivery service from home. Fortunately, it seemed like there wouldn't be any unfortunate events such as ordering food separately.</p>
-<p>"Konoe-sama, you're here?"</p>
-<p>"Konoe-ssi!"</p>
-<p>Sakagami Rena and Saionji Diana appeared behind me and greeted Konoe Akina. Konoe Akina was making an expression as if she had been caught off guard, and it seemed like she thought she would be alone with me.</p>
-<p>In fact, Sakagami Rena and Saionji Diana hadn't been here for long either. Both of them had only changed clothes after the meeting, so they arrived earlier than Konoe Akina, who had instructed the family members to cook.</p>
-<p>Saionji Diana was almost abandoned by her family, and Sakagami Rena had become independent from her family, serving me as her lord, so she said that she would make the food at our house.</p>
-<p>"Teacher, ah! Konoe-ssi, you're here too?"</p>
-<p>Urabe Konoka greets Konoe Akina behind her with a slightly embarrassed expression. It's a dinner party, why is everyone coming already? It's only 4 o'clock.</p>
-<p>"Let's not stand in the hallway, come in."</p>
-<p>I guided the two into the house, and Konoe Akina took out an apron to help with the cleaning, and Urabe Konoka pulled on my sleeve and whispered.</p>
-<p>"Can we talk alone for a moment?"</p>
-<p>"Okay, come this way."</p>
-<p>I took Urabe Konoka to the study that I mainly used to prepare exams. Urabe Konoka, who followed me, closed and locked the door herself, then took out a packaged box from her bag. There was also a letter attached, was it a return gift for the souvenirs from America? But why are they giving it secretly?</p>
-<p>"That, um.... I'm not giving it to you, but Shinkai Hime-nim is giving it to you as a gift."</p>
-<p>"Ah...!"</p>
-<p>It wasn't a return gift for the souvenirs. It seemed like Simyeonui ttal's gift was given with awareness of the surrounding eyes.</p>
-<p>"Thank you. Can I open it now?"</p>
-<p>"Ah, no! Please open it later...."</p>
-<p>When I asked, taking off the letter attached to the box, Urabe Konoka blushed and waved her head and hands. What on earth is it that makes her so embarrassed? I wanted to tease her even more, but the entrance was noisy again, so I put the gift box from Simyeonui ttal on the desk. I put the letter separately on an empty bookshelf in the study.</p>
-<p>Otagi Yuka, Alik, and Oofuchi Erika came to the house. Otagi Yuka, who had cut ties with her family on her own, bought instant food to microwave, but both Alik and Oofuchi Erika prepared food in quite luxurious containers.</p>
-<p>Alik is an adopted daughter of the Egawa family, who teaches cooking and tea ceremony to daughters of prestigious families, so it was understandable that the food was quite fancy. In the case of Oofuchi Erika, Daigo Terue had stepped down from the position of school director due to disciplinary action, so it seemed like she had worked quite hard to make the food.</p>
-<p>Sakagami Rena and Saionji Diana were cooking directly, and the remaining students were helping to clean the house. There were so many students helping that there was almost nothing for me to do.</p>
-<p>Time passed and one by one brought food, and at 6 p.m., Kurayama-da Kirie and Kijimoto Jurie, whom the students had called separately, arrived and the home party began.</p>
-<p>----</p>
-<p>Sakagami Rena made with Konoe Akina's exclusive model~!</p>
-<p>It's not bad ㅎㅎ</p>
+<p>Minamoto Risa stared at the man sitting in front of her with a stern expression. The man resembled Minamoto Risa to some extent, but his warm smile seemed different from Minamoto Risa's usual cold demeanor.</p>
+<p>The man was Minamoto Shigemune, the fourth son of the Minamoto family. He had suddenly barged into the Minamoto family's residence at St. Francisco Girls' Academy late in the evening and called for Minamoto Risa.</p>
+<p>,You should get your act together soon. You still have an appearance that doesn't suit the name of Minamoto.</p>
+<p>As soon as he saw her face, Minamoto Shigemune spewed out venom with that seemingly warm face. Minamoto Risa knew that this was the true nature of Minamoto Shigemune, who was said to be gentle for a Minamoto family man.</p>
+<p>Minamoto Shigemune had tormented Minamoto Risa since childhood, and not only Minamoto Risa but also those who were weaker and less powerful than him. There were countless victims of Minamoto Shigemune, including the family's servants, classmates, and lowerclassmen at school.</p>
+<p>Since he took charge of the Minamoto Group's education business as he got older, he had gained a reputation for being kind, but Minamoto Risa knew that all of this was fabricated information.</p>
+<p>Minamoto Shigemune's sadistic tendencies were still present, and rumors circulating in the Minamoto family said that Minamoto Shigemune killed someone every few months to calm down his sadism.</p>
+<p>,Since when have you cared about me? I'll do whatever I want with my appearance, so Shigemune-ssi, don't worry about me.</p>
+<p>Minamoto Risa frowned and answered Minamoto Shigemune. She was supposed to call him her older brother in name, but Minamoto Risa called Minamoto Shigemune's name as if he were a stranger.</p>
+<p>Minamoto Risa, who was an illegitimate child, had been discriminated against since childhood, so she didn't think of Minamoto Shigemune and her other siblings as family who shared her blood. So, instead of saying "older brother" or "older sister," she simply attached -ssi to their names. Minamoto Shigemune didn't show any particular reaction, as he was used to her calling him by his name.</p>
+<p>,Finally, the day has come for you to be of help to the family.</p>
+<p>Minamoto Risa snorted at Minamoto Shigemune's words. The Minamoto family was famous for not being close among siblings. Recently, the story of the Tairaga family's succession war had been the focus since Taira Saburo's death, but originally, the Minamoto family was famous for being a mess. The current Chairman, Minamoto Ushin, had also become Chairman by killing all his brothers and uncles, which had been a hot topic for a while.</p>
+<p>She didn't know what Minamoto Shigemune was going to say yet, but Minamoto Risa thought that this matter would probably only be beneficial to Minamoto Shigemune and would never be helpful to the family as a whole.</p>
+<p>,We've decided to support the Toyotaka faction of the Daigo family this time.</p>
+<p>Minamoto Shigemune opened his mouth quietly. Even Minamoto Risa, who was a delinquent, could understand what Minamoto Shigemune's story meant. When multiple successors are in contention and there is a succession battle, it is possible to borrow the power of other families, but in a situation where the successor is already determined, such as in the Daigo family, it was taboo for a completely unrelated family to lend its power. If this happened more often, it would be commonplace to change the head of another family by force.</p>
+<p>The Daigo family had not officially appointed a successor, but most people knew that Daigo Tadanori was the successor. This is because the Tadanori faction holds most of the real power.</p>
+<p>The current temporary school director, Ishidera Kosuke, is a member of the Toyotaka faction, but this is only temporary while Daigo Terue is suspended, and it does not mean that Daigo Toyotaka is the successor of the Daigo family.</p>
+<p>In the end, Minamoto Shigemune seemed to be planning to do something that was considered taboo. He was planning to pull down Daigo Tadanori, who was considered legitimate, push Daigo Toyotaka as the head of the Daigo family, and receive a portion of the Japanese women's education that the Daigo family monopolized.</p>
+<p>,There's nothing I can do, though?</p>
+<p>Minamoto Risa decided to feign incompetence in order to reject Minamoto Shigemune's proposal. However, Minamoto Shigemune opened his mouth with a bitter expression that didn't match his usual kind face.</p>
+<p>,I know that you have some influence at St. Francisco Girls' Academy. So don't refuse. If this is successful, I'll reward you. It won't be a bad thing for you either.</p>
+<p>,I'll think about it.</p>
+<p>Since she couldn't answer immediately, Minamoto Risa postponed her answer under the pretext of thinking about it. Minamoto Shigemune got up from his seat in a slightly angry manner, as if he didn't expect Minamoto Risa, an illegitimate child, to postpone his proposal.</p>
+<p>,Hmph...! You'll have to give me an answer quickly. Otherwise, you won't have a chance.</p>
+<p>Minamoto Shigemune, who had gotten up from his seat, left the residence. Minamoto Risa sat in her seat without paying any attention to Minamoto Shigemune's departure and began to think about this matter.</p>

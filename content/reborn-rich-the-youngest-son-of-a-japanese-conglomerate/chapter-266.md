@@ -5,81 +5,66 @@ weight = 266
 chapter = 266
 +++
 
-<p>The statue of Simyeonui ttal (Daughter of the Abyss) had become Simyeonui ttal (Daughter of the Abyss) before I knew it. Instead of a hard statue, soft breasts were before my eyes. As I sucked on a nipple and looked up at Simyeonui ttal (Daughter of the Abyss)'s face with a bewildered expression, unsure of how this happened, Simyeonui ttal (Daughter of the Abyss) smiled at me with a benevolent expression. Slightly startled by the sudden situation, I took a step back.</p>
-<p>-Huhu.... Only a fleeting moment.</p>
-<p>"Yes, but it's still nice to see you."</p>
-<p>I stared into Simyeonui ttal (Daughter of the Abyss)'s eyes for a long time. Then, suddenly curious, I asked.</p>
-<p>"How did I get here?"</p>
-<p>Certainly, this wasn't the bathroom where I was sucking on the statue. It was the deep sea where I had met Simyeonui ttal (Daughter of the Abyss) before, where those glowing jellyfish roamed. The difference was that before, Simyeonui ttal (Daughter of the Abyss) had been sitting on something like a throne, but now she stood up to greet me, seemingly happy to see me.</p>
-<p>-I briefly moved you using the connection to me linked to my statue that my partner obtained.</p>
-<p>Hmm, I don't understand? Simyeonui ttal (Daughter of the Abyss) chuckled softly at my puzzled expression after her explanation.</p>
-<p>-You're cute. My lover and partner.</p>
-<p>"You're still beautiful."</p>
-<p>-Huhu, come here.</p>
-<p>Simyeonui ttal (Daughter of the Abyss) stretched out her arms towards me with a benevolent expression like the sea, the mother of life. As if possessed, I approached Simyeonui ttal (Daughter of the Abyss), embraced her, and kissed her at the same time.</p>
-<p>I felt Simyeonui ttal (Daughter of the Abyss)'s perfect breasts being gently pressed together by the embrace, and I intertwined my tongue with Simyeonui ttal (Daughter of the Abyss)'s.</p>
-<p>The kiss with Simyeonui ttal (Daughter of the Abyss) was passionate, lewd, and clingy. It had been a while since I had met Simyeonui ttal (Daughter of the Abyss), so I passionately kissed her while touching her soft, squishy ass.</p>
-<p>Just touching her ass, which sank in and bounced back at the same time with a perfect texture, made my dick so hard that it couldn't get any bigger.</p>
-<p>-Huhu, your tentacle has become hard.</p>
-<p>"It's not a tentacle, it's a dick."</p>
-<p>Simyeonui ttal (Daughter of the Abyss) probably knows the word "dick," but she probably said "tentacle" because she wanted to tease me. Well, it's usually limp and tries to get into holes, so maybe the word "tentacle" isn't wrong?</p>
-<p>-Do you want to ravage my excited, sticky pussy with your dick? You wanted to hear such lewd stories, didn't you?</p>
-<p>"....Yes."</p>
-<p>When I answered obediently, Simyeonui ttal (Daughter of the Abyss) chuckled again, released the hug, lifted my body, and put my dick in her mouth. When I realized it, it seemed only my body had come over here, as I was naked. No, not completely naked. The Abyss Lord's combat gear, the bracelet-cum-armor I received from Simyeonui ttal (Daughter of the Abyss), was still on my wrist.</p>
-<p>"Keuheueut!"</p>
-<p>Simyeonui ttal (Daughter of the Abyss)'s mouth gave me pleasure like a drug. The inside of her mouth felt like hundreds of suckers were sucking on my dick, giving me so much pleasure that my back naturally arched.</p>
-<p>But Simyeonui ttal (Daughter of the Abyss) was holding my ass tightly, so I couldn't even run away, and I was having my dick eaten by Simyeonui ttal (Daughter of the Abyss) like a herbivore caught by a beast.</p>
-<p>I had my semen stolen by Simyeonui ttal (Daughter of the Abyss)'s mouth as if she was extracting it directly from my balls. Semen came out as if I was pissing, and I felt so much pleasure that my head turned white.</p>
-<p>-I practiced a little while you were gone. How do you feel?</p>
-<p>"Heoeok.... Heoeok.... If you practice any more, I might go crazy from too much pleasure?"</p>
-<p>-Huhu. Then this time, you'll make me go crazy, won't you?</p>
-<p>I felt so much pleasure that I was filled with the desire to repay Simyeonui ttal (Daughter of the Abyss). I spread Simyeonui ttal (Daughter of the Abyss)'s legs and brought my face to her pussy. As Simyeonui ttal (Daughter of the Abyss) said earlier, Simyeonui ttal (Daughter of the Abyss)'s pussy was indeed full of very sticky liquid.</p>
-<p>Like a butterfly seeking honey, I put my tongue to the flower and sucked and licked it wildly. The fluid that came out from the deepest part of Simyeonui ttal (Daughter of the Abyss) was truly sweet and addictive like honey. I forgot that I was even caressing her and continued to seek Simyeonui ttal (Daughter of the Abyss)'s honey.</p>
-<p>-Heueuht! It feels good, my partner...♥</p>
-<p>Simyeonui ttal (Daughter of the Abyss) moaned sweetly, seemingly enjoying it just from being sucked. Hearing that moan, I came to my senses and used all the bedroom techniques I had to ravage Simyeonui ttal (Daughter of the Abyss)'s pussy with my tongue and fingers.</p>
-<p>-Heuaht...! Ahheung♥ My partner...! It feels...♥ Haeueut!</p>
-<p>Simyeonui ttal (Daughter of the Abyss) wiggled her thighs and began to squeeze my head in the middle. It was quite pleasant to have my face squeezed by Simyeonui ttal (Daughter of the Abyss)'s soft thighs.</p>
-<p>As I continued to use the caressing techniques listed in the Heukmireuk Gong (Black Mireuk Manual) flamboyantly, Simyeonui ttal (Daughter of the Abyss)'s toes spread out and trembled. Judging from this reaction, it seemed she had reached orgasm. As she reached her climax, the strength in her thighs loosened, so I pulled my head out and inserted my tentacle.... no, my dick, into Simyeonui ttal (Daughter of the Abyss)'s sufficiently loosened pussy.</p>
-<p>"Keueut!"</p>
-<p>Simyeonui ttal (Daughter of the Abyss)'s pussy still felt good enough to make me groan involuntarily. Simyeonui ttal (Daughter of the Abyss)'s pussy, which wriggled inside and sucked, brought me pleasure that made my brain melt.</p>
-<p>-Heuheung♥ Your di.ck♥ still feels good, haaang...!</p>
-<p>"Your pussy is the same. It feels very good."</p>
-<p>-Only, heueut! A pussy just for you, aahang♥ Enjoy it to your heart's content, my partner...!</p>
-<p>"I don't think I can enjoy it to my heart's content because it feels so good?"</p>
-<p>Even though I had come so hard from what Simyeonui ttal (Daughter of the Abyss) had done with her mouth earlier that it felt like all the moisture in my body had been sucked out, the point of ejaculation quickly rose again. But Simyeonui ttal (Daughter of the Abyss) also seemed to enjoy my dick very much, and she was slowly reaching her climax even though she hadn't shaken her hips a few times.</p>
-<p>"Keueut...! Keut!"</p>
-<p>-Heueuheung...! My partner, I adore you♥ Heueut...! Plant your hot, white seed in my deeeep, heueut! place, ooooht♥</p>
-<p>Along with Simyeonui ttal (Daughter of the Abyss)'s declaration of love, I ejaculated intensely inside Simyeonui ttal (Daughter of the Abyss). Semen filled the inside of Simyeonui ttal (Daughter of the Abyss) like a volcano. Simyeonui ttal (Daughter of the Abyss)'s pussy was tightly closed as if not to miss my semen, not letting a single drop of semen flow out in this place full of water.</p>
-<p>Even after I pulled out my dick, the cloudy semen didn't come out. Maybe some external force was keeping my semen inside. As if noticing my gaze, Simyeonui ttal (Daughter of the Abyss) smiled slightly and opened her mouth.</p>
-<p>-Huhu, I can't let your precious seed out.</p>
-<p>"I can give you as much semen as you want."</p>
-<p>-Even if your essence is infinite, what is precious is precious. Especially to me.</p>
-<p>"Can I give you that precious thing again?"</p>
-<p>At my question, Simyeonui ttal (Daughter of the Abyss) spread her legs and opened her petals with both hands.</p>
-<p>-You can ejaculate into my pussy as much as you want. I can accept it until your world is destroyed.</p>
-<p>Because my dick was already erect again due to the irresistible pheromones emanating from Simyeonui ttal (Daughter of the Abyss), I parted Simyeonui ttal (Daughter of the Abyss)'s open pussy with my glans and dug inside.</p>
-<p>-Haeueuheung♥</p>
-<p>To feel pleasure and infinite love, we overlapped our bodies as if time was infinite. How much time had passed? Simyeonui ttal (Daughter of the Abyss) stroked my cheek and said.</p>
-<p>-Now is the time. No matter how much I lengthen the time, this is the limit for you now.</p>
-<p>Simyeonui ttal (Daughter of the Abyss)'s words seemed to be referring to slowing down my real-world time, just like when we first overlapped our bodies on the island last time. Even though we had been doing it for a long time, I still wanted to crave Simyeonui ttal (Daughter of the Abyss)'s body, but I could feel it too. It was time to go back. I wasn't an immortal being, so I could feel my body getting slightly strained.</p>
-<p>"I'll see you again, right?"</p>
-<p>-My brand is stamped on your soul, so even if you run away, you will never be able to escape me.</p>
-<p>Saying I can never escape, an ordinary person would be scared if you said it like that. Of course, I'm not an ordinary person, so I don't feel fear to this extent.</p>
-<p>-Ah, I will retrieve the statue you found. It's embarrassing that such a thing was circulating.</p>
-<p>"I was going to offer it as a tribute anyway."</p>
-<p>-I can't accept an object filled with my father's ulterior motives as a tribute. Think of it as retrieving what was originally mine.</p>
-<p>Judging from the way Simyeonui ttal (Daughter of the Abyss) spoke, it seemed that the very fact that the statue was out in the world was a bit embarrassing.</p>
-<p>Come to think of it, what kind of father makes a nude statue of his daughter just because she was born? Moreover, a statue that produces milk once every 100 years.... Even if it's the Abyss, which is difficult to understand by human standards, it was a bit strange.</p>
-<p>-Ah, lastly, the gloves woven from my hair and the armor I gave you this time are made to have synergy when worn together. In game terms, you could say it's a set of equipment exclusively for you. And as a reward for finding my statue this time and making me feel good....</p>
-<p>Simyeonui ttal (Daughter of the Abyss) took out the brooch that Arisu-ssi had bought at the antique store in New York and held it out to me.</p>
-<p>◆Grace of the Deep Sea [Unique Accessory]</p>
-<p>A brooch containing the energy of the deep sea. Abyss stat increases by 1, and luck greatly increases in the sea.</p>
-<p>When worn with the Abyss Lord's Combat Gear item made by Simyeonui ttal (Daughter of the Abyss), the Abyss stat additionally increases by 2, and all places where the item wearer is located are treated as 'sea'.</p>
-<p>When did she take the item from me and modify it? Amazing. I didn't even bring it out today....</p>
-<p>The Grace of the Deep Sea didn't change much in terms of general options, and the part about luck increasing changed to greatly increasing, but a set option was created. With the additional increase in Abyss and treating all places as the sea, it seemed she had created an option to constantly maintain the luck increase I originally had.</p>
-<p>"Thank you. I'll use it well."</p>
-<p>-When you go back, send me tributes mainly of sweet things.</p>
-<p>What, is this how we're parting ways, like asking for Melona ice cream when coming over? Simyeonui ttal (Daughter of the Abyss) smiled as if it was nothing in response to my thanks and asked for sweet things.</p>
-<p>Is Simyeonui ttal (Daughter of the Abyss) asking me to do this because the moment of parting with me feels like a fleeting moment to her? The image of Simyeonui ttal (Daughter of the Abyss) and the sea where jellyfish were swimming became blurred, and it began to overlap with the image of the bathroom where I was originally sitting.</p>
-<p>And before I knew it, I was back in my world. Instead of the statue I was originally holding, the Grace of the Deep Sea brooch that I had put in my carrier was in my hand.</p>
-<p>When I attached the brooch to the collar of the Hawaiian shirt I was wearing and got up from my seat, a semi-transparent window appeared in front of my eyes.</p>
+<p>,Ugh, I don't wanna...!'</p>
+<p>I clutched my throbbing head. Currently, I was preparing to cosplay as a teacher with the materials given to me by Taira Danjo's secretary, Fumimoto Takayuki. Since I hadn't studied at all until now, trying to study anew was giving me a throbbing headache.</p>
+<p>Right after returning from my leave at the Human Resources Development Center, I received an immediate business trip order, earning me glares from my colleagues who were busy preparing for the new recruits' training in the second half of the year, but what could I do? It was an order from Taira Danjo, the head of the Tairaga Group.</p>
+<p>Yukiko also knew the situation, so she said she would assign a few people to the Education Support Team 2, where I was. With Mimata Chieri resigning due to East Weapon and me being away on a disguised long-term business trip, there was definitely a need to replenish the staff in Education Support Team 2.</p>
+<p>Shinoe Misano said that it would lower morale if I prepared for the business trip (which was actually studying Korean language education) in front of the busy team members, so she told me to go to the empty office where we usually had our secret rendezvous and prepare alone. Thanks to this, I was able to study without worrying about my colleagues' gazes.</p>
+<p>If I were studying Korean language education, I would definitely receive gazes asking, "What are you doing?" so it was a good thing for me too. It was a bit lonely being alone, but there was no helping it.</p>
+<p>In between, the female employees who had relationships with me at the Human Resources Development Center came to covet my dick and left after satisfying their desires, but I could rest at that time, so it wasn't bad. It felt like a refreshing break from studying, making the sex even more special.</p>
+<p>The materials Fumimoto Takayuki had prepared were divided into several parts. The first was information about the Korean language class I had to teach, and the second was information about Saint Francisco Girls' Academy.</p>
+<p>There was a map of the building and the surrounding terrain, as well as a list of teachers. As expected of a school attended by the daughters of the highest class, it was very large and had many faculty members. It would be good to memorize the terrain, and I only needed to familiarize myself with a few teachers' information that I needed to contact. What good would it do to know about a middle school English teacher?</p>
+<p>The third was information about Miyashi, where Saint Francisco Girls' Academy was located. Miyashi itself was a city that revolved around Saint Francisco Academy and the wealthy upper class who had villas in Miyashi. Almost all citizens were engaged in work related to Saint Francisco Girls' Academy and the villas.</p>
+<p>In fact, considering the population and such, it should have been a town or village, but it became a city due to numerous lobbies. There is more government support coming into the city than into the town or village, so they must have lobbied to change it.</p>
+<p>Anyway, the information about Miyashi contained a lot of information about the locations of influential families' or entrepreneurs' villas and government offices.</p>
+<p>The last part was information about Minamoto Risa, who was the target of the operation. She was a 20-year-old high school student, and a photo was attached. She looked like a typical gyaru high school student with tanned skin and pinkish blonde hair.</p>
+<p>She had a very pretty face. It was a photo like an ID picture cut off around the chest, so I couldn't see her figure, but her face alone was pretty.</p>
+<p>Looking at the information past the photo, she was the daughter of Minamoto Misaki, whom Minamoto Ushin cherished the most. Because Minamoto Misaki died young, Minamoto Risa, who did not receive proper care from her mother, was said to be quite twisted.</p>
+<p>Well, even if she was twisted, it was only to the extent of going around in that gyaru style... If a friend or broker offered Minamoto Risa alcohol, cigarettes, men, or drugs, they would soon be found dead by Minamoto's killer.</p>
+<p>The reason for being held back a year... Truancy? It seemed she just didn't go to school, so she didn't have enough attendance days and was held back. Because of this, the relationship between the Minamoto Group and Saint Francisco Girls' Academy had deteriorated.</p>
+<p>Saint Francisco Girls' Academy refused the Minamoto Group's pressure to just let her graduate even if she didn't have enough attendance days, and it was said that the Tairaga family was behind this strong stance of Saint Francisco Girls' Academy.</p>
+<p>No matter how powerful the Minamoto family was, they couldn't recklessly do things as long as the Tairaga family was backing them, so Minamoto Risa was eventually held back and became a 20-year-old high school student.</p>
+<p>,Hmm... As expected, this kind of background information is more interesting than studying.'</p>
+<p>I muttered while folding the document containing Minamoto Risa's information. Preparing for class gave me a headache, but this kind of information sheet with minor secrets was fun, so it went down smoothly.</p>
+<p>Still, fortunately, I ate the panacea from the Daughter of the Abyss's statue, and my intelligence rose to 8, so after reading it a few times, the contents remained vividly in my head.</p>
+<p>And I was feeling the effects of intelligence that I hadn't felt in the game. It seemed that the skill proficiency of Shadow Domination and Shinkai Yatsude was increasing slightly faster.</p>
+<p>When my intelligence was low, I didn't understand and just repeated training, but now that my intelligence has increased and I understand, it seems to be working better?</p>
+<p>If I think about it, the characters with high intelligence in TMC or MegaCorp's Youngest Son seemed to have many skills and high proficiency levels.</p>
+<p>Also, the knowledge of the abyss, which had the greatest impact on the increase of 4 in knowledge, had significantly increased the proficiency of Shadow Domination and Shinkai Yatsude.</p>
+<p>As expected, there were no unnecessary stats. Still, because of the side effects of the Abyss stat, Will and Resistance stats were prioritized, so intelligence was still not the top priority.</p>
+<p>,Okay, shall I check Chapter 7 this time...?'</p>
+<p>I muttered, unfolding the book that summarized Korean language education again. The most fortunate thing about this preparation was that I didn't have to learn the entire three-year high school curriculum, but only the last semester of the third grade, which was the period I would be there.</p>
+<p>For reference, I was told to focus on tanning and dyeing my hair blonde when I showed my face at school before the semester started. It seemed like it was because if I did it now, more than three weeks in advance, Minamoto might find out.</p>
+<p>Click!</p>
+<p>As I was about to open the book to study, I heard the sound of the door opening, and Shinoe Misano appeared. You came before lunch earlier, you unsatisfied ajumma.</p>
+<p>Shinoe Misano answered as if to excuse herself at my gaze.</p>
+<p>,I won't be able to do it for six months, so I have to charge up in advance now....'</p>
+<p>Hmm, that makes sense. I also find studying women's bodies more interesting than studying Korean language education, so it was definitely tempting. I had reviewed Shinoe Misano's body several times, but it was still an interesting study, so I closed the book I was looking at.</p>
+<p>,We did it earlier, so shall we do a review? Suck it.'</p>
+<p>###</p>
+<p>-Checking ambient noise. Threat...Negative.</p>
+<p>'She' was inside a steel box. She had to be transported by plane to Tokyo while inside the box for some promise.</p>
+<p>Others would have felt bored during the long flight, but she didn't feel that way at all. She had only temporarily stopped operating to conserve energy.</p>
+<p>Tuk! A hole was pierced in the small container box, like a steel coffin, with a thud. And an arm came out of that hole. The arm turned the handle of the container, opened the door, and went back inside.</p>
+<p>Squeak-</p>
+<p>The door of the small container made an annoying squeaking sound as it opened, as if it hadn't been properly oiled.</p>
+<p>A woman was standing inside the container. She was wearing a black cyber suit that revealed her figure, but her face was unknown because she was wearing a helmet.</p>
+<p>,Scan... Check CCTV.'</p>
+<p>Since it was a warehouse where many luggage were gathered, CCTV cameras were naturally installed everywhere. The woman in the helmet and bodysuit reached out to the nearest CCTV camera. Then, the red light that flickered to indicate that the CCTV was operating went out.</p>
+<p>The helmet girl passed the turned-off CCTV, disabled the next CCTV, and continued to move. As if with mechanical movements, the helmet girl quickly left the airport warehouse and walked casually to the parking lot.</p>
+<p>After scanning hundreds of vehicles and motorcycles in a few seconds, the helmet girl approached the motorcycle that best suited her current appearance.</p>
+<p>,Connecting....'</p>
+<p>As she touched the control unit of the motorcycle and muttered, the engine soon turned on and started. The helmet girl naturally got on the motorcycle and left the airport as it was and disappeared.</p>
+<p>A little later, airport security came into the warehouse. There were two of them, and both had serious expressions.</p>
+<p>,The CCTV malfunctioned?'</p>
+<p>,Yes, the screen turned off in order and then turned back on, although it was only for less than 10 seconds.'</p>
+<p>It seemed that they had come to check the warehouse because of what the helmet girl had done earlier. The two guards checked the turned-off CCTV cameras one by one and went inside. The CCTV cameras turned off and on at different times as if someone was trying to get out of the warehouse, so the two guards were able to arrive at the place where this incident started.</p>
+<p>The guards confirmed that a container was empty with its door open. The two were surprised and picked up the walkie-talkie.</p>
+<p>,Incident T occurred! The item in container number T456329 has been stolen. Please check the CCTV around the airport!'</p>
+<p>The guards immediately reported to the situation room and searched around the container. They checked the hole in the container and the broken pieces, and in the meantime, the security chief arrived to check the situation.</p>
+<p>,Who is the original owner of the container?'</p>
+<p>,It's Energy-Link Industrial Company, as written here next to the container.'</p>
+<p>When the security chief asked the office worker next to him, the worker answered, sweating profusely. Certainly, Energy-Link Industrial Company was written in English next to the container.</p>
+<p>-----</p>
+<p>Target: Minamoto Risa</p>
+<p>I like gyarus~!!</p>

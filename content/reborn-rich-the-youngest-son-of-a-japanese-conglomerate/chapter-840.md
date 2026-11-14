@@ -5,100 +5,81 @@ weight = 840
 chapter = 840
 +++
 
-<p>「Hello.」</p>
-<p>Even though everyone's Gaze was focused on her, Urabe Konoka did not panic and came in with a soft Smile, offering a greeting.</p>
-<p>Today, instead of Miko clothing, she was wearing an orange Cardigan and a light Brown long Skirt that came down below her Knees. Unusually, she was wearing a cross necklace around her Neck like a Catholic, but she said that she wore the cross accessory as a Symbol of Lizhael, who had cross Donggong, not because she was Catholic.</p>
-<p>「Did the Story end well?」</p>
-<p>「Yeah, it just ended, and I was wondering if I should wait for you, Konoka-yang, and you just happened to come in.」</p>
-<p>At my Words, she said, 「Oh, really?」 and went to sit next to Athena Mannerheim. It seemed that she had already heard from Sakagami Rena during the Call what she had to do.</p>
-<p>「Do I just need to check if this Person has some kind of Jusul cast on them?」</p>
-<p>「Yeah, and if possible, can you Descend Lizhael and do it? I want to know exactly what the True Identity of the Power that Athena has is.」</p>
-<p>「Ah, I was going to do that too. Lizhael-nim was also curious.」</p>
-<p>It seemed that Lizhael was also curious about what the True Identity of the Power that Athena Mannerheim had was. She said that even if I didn't ask, she would Descend Urabe Konoka on her own.</p>
-<p>「Wait a Moment. Who the hell is Lizhael?」</p>
-<p>Athena Mannerheim raised her Hand and asked. Well, the Person who came to check if she had a Jusul cast on her was suddenly mentioning a Name she had never heard of and said that she would Descend, so she would be curious about what the Situation was.</p>
-<p>「Ah! I'm a Shrine Maiden. Lizhael-nim is the Name of the god I serve.」</p>
-<p>「The Name of the god that a Japanese Person Shrine Maiden serves is Lizhael...?」</p>
-<p>Urabe Konoka's Explanation made her even more puzzled. In fact, it was common for Japanese Shinto, which served many gods, to serve Foreign Country gods, but most of them were served by Japanizing their Names, so when she said that she served Lizhael, whose Name was Foreign Country, it felt like she was part of a Cult.</p>
-<p>「Wait a Moment. I'll Descend Lizhael-nim, so....」</p>
-<p>As if she was annoyed by the Explanation, Urabe Konoka stood up from her Seat and closed her Eyes. Suddenly, the air became heavy. I felt a huge Existence approaching.</p>
-<p>Otagi Yuka and Sakagami Rena were also looking at Urabe Konoka with very Intrigue Expressions because it was their first Time seeing Lizhael (although she was Descending into Urabe Konoka's Body).</p>
-<p>Paaht!</p>
-<p>When Urabe Konoka opened her Eyes, she had a cross-shaped Donggong engraved in them that humans could never have. Of course, since it was a Possession of her Body, there was no Change in her other Appearance. Her Eye Shape seemed to have changed a little. Athena Mannerheim also seemed to have withdrawn the last bit of Doubt she had when she saw Urabe Konoka's Donggong.</p>
-<p>「Ufufu, did my Partner fare well?」</p>
-<p>Urabe Konoka, no, Lizhael, slightly tugged at my Sleeve and greeted me.</p>
-<p>「Yeah, thanks to you. How's Liz?」</p>
-<p>「I'm remaking the Bracelet to give back to my Partner. It's almost finished, so just wait a little longer.」</p>
-<p>Ah, there was a Bracelet...? It was taking quite a long Time based on Lizhael's standards, so it seemed that she was putting quite a bit of effort into it. I'm quite Expectation about what Item will come out?</p>
-<p>「Hello, Lizhael-nim. I'm Otagi Yuka.」</p>
-<p>「Greetings, Lizhael-nim. I am Sakagami Rena, a Subordinate of the Lord!」</p>
-<p>「Nice to meet you, everyone. As you all know, I am Lizhael.」</p>
-<p>Otagi Yuka and Sakagami Rena also greeted Lizhael, and Lizhael also accepted their Greetings. And Lizhael turned her Body to Athena Mannerheim.</p>
-<p>「Hmm.... I see.」</p>
-<p>Lizhael muttered as she looked at Athena Mannerheim as if she knew something. And she immediately opened her Mouth and began to Explain Athena Mannerheim's Condition.</p>
-<p>「First of all, let me tell you about Athena Mannerheim's Condition. She has a memory Seal and a Disturbance Jusul cast on her. She sealed her memories with pure Jusul, not the Abyss. If she had cast the Jusul based on the Abyss, the Jusul would have been broken within a few Months because of the Aura that this Kid has....」</p>
-<p>It seemed that Athena Mannerheim's memories had a Jusul cast on them, as she had worried. The Person who had the Jusul cast on them felt something strange, so the Probability of it being cast was quite high, but it seemed quite shocking to hear it directly from Lizhael, who had Descended.</p>
-<p>「Is there really a Jusul cast on me?」</p>
-<p>「I do not speak falsehoods. If you want, I can undo the Jusul, but you may receive a big shock as the sealed memories are released. Is that okay?」</p>
-<p>「Yes, please release it. I want to know the Truth of that day.」</p>
-<p>Despite Lizhael's Warning, Athena Mannerheim nodded with a determined Expression.</p>
-<p>「If you're prepared....」</p>
-<p>Lizhael, who saw Athena Mannerheim's Expression, nodded and placed her Hand on Athena Mannerheim's Head.</p>
-<p>「äiti(mom)?」</p>
-<p>I called mom, but there was no answer.</p>
-<p>「isä(dad)?」</p>
-<p>I called dad, but there was no answer.</p>
-<p>What the young child found in her Parents' Room was the cold corpse of her Parents.</p>
-<p>And what she found in front of the corpse was a man with raised eyebrows, blood dripping from his fist, Takakusaki Gengo.</p>
-<p>Athena Mannerheim was confused and scared because of the faint backlight of the white night shining through the window, the blood flowing from her Parents' corpse, and the Blood Scent she smelled for the first Time.</p>
-<p>「Did you.... kill my mom and dad?」</p>
-<p>Takakusaki Gengo did not answer Athena Mannerheim's Question. He was just standing still, looking at Athena Mannerheim.</p>
-<p>「You saw something you shouldn't have seen. Sleep for a while.」</p>
-<p>Takakusaki Gengo stamped his index Finger, which had a black Aura swirling around it, on the forehead of young Athena Mannerheim. And Athena Mannerheim's Field of Vision darkened.</p>
-<p>A akmong that was almost similar to the akmong she had been having. But Athena Mannerheim knew that this was not a akmong, but the Truth.</p>
-<p>When she opened her Eyes again, there were several people looking at her. An Elderly Person with Dark Circles that came down to his Cheeks was smiling at her.</p>
-<p>「Keuheuheuh...! I'll erase your bad memories. If I touch you well, you'll become a good Kid. In just a Moment, you'll become Gengo's good Daughter.</p>
-<p>At that Time, she couldn't understand the Japanese Person language, but she could feel the unpleasant and ominous Atmosphere. Athena Mannerheim, who felt that he was trying to do Harm to her, struggled, but she couldn't stop the Elderly Person's rough Touch.</p>
-<p>When the Elderly Person's Touch reached her, Athena Mannerheim lost Consciousness again.</p>
-<p>When she opened her Eyes again, Takakusaki Gengo was standing in front of her. Takakusaki Gengo smiled as he looked at Athena Mannerheim.</p>
-<p>「From today onwards, your Name is Takakusaki Athena. I am Takakusaki Gengo, your Father.」</p>
-<p>From that day on, Athena Mannerheim became Takakusaki Gengo's Daughter, Takakusaki Athena.</p>
-<p>The Moment Lizhael put her Hand on her Head, something like black Smoke escaped from Athena Mannerheim's forehead. And Athena Mannerheim collapsed.</p>
-<p>Otagi Yuka, who was standing behind her, supported Athena Mannerheim so that she wouldn't roll on the Ground.</p>
-<p>「How long will she be Faint?」</p>
-<p>「She'll wake up soon.」</p>
-<p>Lizhael, who was not in a Danger Situation, smiled softly and sat down in her Seat in response to Otagi Yuka's Question.</p>
-<p>「If she were a Layperson, she would be Faint for a week due to the Shock of the Seal being released, but that Kid will wake up sooner than you think thanks to her trained Muin and her innate Ability.」</p>
-<p>As Lizhael said, as soon as Lizhael finished speaking, 「Eueum...!」 Athena Mannerheim opened her Eyes.</p>
-<p>「Ah...! Ah...! Nooooo!!」</p>
-<p>And she began to sob. When everyone looked at Lizhael as if asking what was going on, Lizhael opened her Mouth with a calm Attitude as if it was nothing.</p>
-<p>「Over Time, memories fade and the Pain that memories give also diminishes. But because of the Jusul of memory Seal, that Kid's memories feel like vivid memories that happened just a few seconds ago. From that Kid's perspective, she is feeling the same Pain as if she had lost her Parents a few Minutes ago.」</p>
-<p>Ah...! That's what it was. That's why she was crying like that. If she felt like she had lost both of her Parents a few Minutes ago, it was natural for her to cry like that. We watched Athena Mannerheim grieve with slightly pitiful Eyes.</p>
-<p>「...Thank you for waiting. And Lizhael-nim, thank you for restoring my memories.」</p>
-<p>Athena Mannerheim, who stopped crying and gathered her Emotions to some extent, thanked us and Lizhael with reddened Eyes.</p>
-<p>「Now that you seem to have gathered yourself a bit, I will Explain the Power that Athena Mannerheim has. The white Aura that Athena Mannerheim has is the Power of the Outer God, the Unfading White Light. However, it seems that the Power was received from the Existence that originated from the Unfading White Light, not the Unfading White Light itself, the White Night Light Dragon. It's a similar feeling to the Relationship between the Abyss and the Abyss' Daughter.」</p>
-<p>Aha, the White Night Light Dragon also seemed to be an Existence that originated from the Abyss, like the Abyss' Daughter in the past.</p>
-<p>So, to summarize, Athena Mannerheim received Power from an Existence called the White Night Light Dragon, and Takakusaki Gengo found out about it, so he killed her Parents and Kidnapping her.</p>
-<p>「I have never met an Existence called the White Night Light Dragon....」</p>
-<p>Athena Mannerheim said with a puzzled Expression. Athena Mannerheim seemed unable to believe that a Transcendental Being she had never met had given her Power.</p>
-<p>「I heard that the Mannerheim Family is a Noble Family. If so, there must be someone among your Ancestor who had a Relationship with the White Night Light Dragon, whether it was a contract or something. That's why some of their descendants are born with the Power of the White Light of the White Night Light Dragon.」</p>
-<p>It was a plausible Story. Athena Mannerheim also nodded as if she understood Lizhael's Words.</p>
-<p>「So, you're saying that I was born with this Power because of my Ancestor's contract or something, not because of me.」</p>
-<p>「I am not an omniscient Existence, so I am not sure. But I wouldn't be wrong.」</p>
-<p>Lizhael, who knew that her Work here was over, stood up from her Seat. And she approached me.</p>
-<p>「It seems that my Work here is over. It would be a Burden on Konoka to continue Descending, so I will return now. Partner, I will come back next Time to return your Bracelet.」</p>
-<p>Jjok.</p>
-<p>Lizhael lightly kissed my Lips and then closed her Eyes. When she opened her Eyes again, Urabe Konoka, who had the round Donggong of an ordinary Person, was standing there with a slightly reddened Face.</p>
-<p>「If you kiss me and disappear, everyone's Gaze will be focused on me, Lizhael-nim...!」</p>
-<p>Urabe Konoka muttered as if she was a little embarrassed by the Gaze that was focused on her because of the last Kiss.</p>
-<p>Urabe Konoka B-cut!</p>
-<p>The Eye Shape is different ㅎㅎ</p>
-<p>Naruse Shiyo belly dancer + breast Covering requested by Gojoy-nim!</p>
-<p>Starting with the belly dancer~!</p>
-<p>Breast Covering~!</p>
-<p>Liz, Lisa Pantyhose wearing breast Covering requested by seungj050-nim~!</p>
-<p>Starting with Lisa-ttang</p>
-<p>Liz</p>
-<p>Family Teacher Liz Pantyhose breast Covering requested by AbsolutelyNonRefundable-nim...!</p>
-<p>Family Teacher~!</p>
-<p>The old model doesn't listen well, so there aren't many that succeeded ㅠㅠ</p>
+<p>Shimokawabe Airen, who had approached Ichimonji Harugoro, with a shy Expression (it was the first Time I had seen such an Expression from her), took out several Swords from her Bag. Then, she held them out to Ichimonji Harugoro.</p>
+<p>"Please sign the Scabbard for me."</p>
+<p>"Oh...! These are my early creations...! And this one was given as a Gift to someone...! And this one was made as a limited edition...! How did you get your Hands on these?"</p>
+<p>Ichimonji Harugoro's Swords would command no small Price, yet she possessed so many... It wasn't for nothing that Shimokawabe Airen lived in the Cheongsim Hall building on the school grounds. It seemed she saved on rent to collect Swords.</p>
+<p>"I inherited some from my Master-nim. The early creations you mentioned, and the ones given as Gifts, my Master-nim passed down to me."</p>
+<p>Shimokawabe Airen's master, I heard from Kujo Kina's master, was probably named Haruka (温和). I didn't know her last name back then, but it might be revealed today.</p>
+<p>"Could your Master-nim possibly be Kagiya Haruka?"</p>
+<p>"Yes."</p>
+<p>It seemed there was some kind of relationship between Shimokawabe Airen's Master-nim, Kagiya Haruka, and Ichimonji Harugoro. Since he had given her Swords he made in his early days and another as a Gift, they must have been quite close.</p>
+<p>"As you know, Haruka and I were Neighborhood Friends since childhood. When Haruka said she wanted to become a Swordsman, I jumped into blacksmithing, vowing to make her Swords... After what happened to Haruka, I had no further reason to see her..."</p>
+<p>Ichimonji Harugoro suddenly spoke of a pure love Story between childhood friends, his Eyes turning wistful. As the Students remaining in the Blacksmith's workshop focused their Gaze on him, he cleared his throat, a little embarrassed, and mumbled his Words.</p>
+<p>"Well... you asked me to sign them, didn't you? Instead of a mere Sign, I will engrave my Seal into the Scabbard and inlay it with Gold."</p>
+<p>Inlay craft, you say...! Isn't that even more difficult than a mere Sign? It seemed he was giving special treatment to his childhood friend's Disciple.</p>
+<p>"What kind of Sword would you like me to make for you?"</p>
+<p>"Ah, that..."</p>
+<p>At Ichimonji Harugoro's Question, Shimokawabe Airen, like a skilled Swordsman, made various Demands. Ichimonji Harugoro listened to Shimokawabe Airen's Demands and simultaneously recorded them on his tablet.</p>
+<p>"You even make similar Requests to Haruka..."</p>
+<p>Ichimonji Harugoro rubbed his Nose, speaking as if touched again after hearing Shimokawabe Airen's Request. No, old man, don't get sentimental again.</p>
+<p>"You, come over here."</p>
+<p>After Shimokawabe Airen went to have her Body measurements taken, Ichimonji Harugoro, having regained his composure, called me over.</p>
+<p>"Ahem, ahem... Right, in what order should I proceed with the crafting?"</p>
+<p>"As I said, please prioritize those who will use them as their main Weapons, and put those who want Spare Swords later. It seems a Battle will break out within a month at the latest."</p>
+<p>According to Athena Mannerheim's Words that Anyaji was training martial artists with white Aura, it was obvious that Attacks against Fujigasaki Rinka and me would follow soon, so I wanted to Arm all the Students with proper Weapons.</p>
+<p>"I have many Swords, so please put me later in the order, and Alik needs to identify the traces on his Sword, right? Please move Alik's order forward."</p>
+<p>Shimokawabe Airen, having finished all her Body measurements, approached and spoke. That's right, Alik would benefit from finding the hidden traces on his Sword and gaining new Technology, so he should receive his Weapon first.</p>
+<p>"That's right. Please do so."</p>
+<p>"Heh heh, I was itching to get to Work anyway, as Mithril arrived yesterday. Of course, there was some Mithril that came for practice before that, but I used it to make about three practice Swords, so it's gone..."</p>
+<p>For reference, the practice Swords Ichimonji Harugoro had made beforehand were to be sold on the Black Market. He was selling them under the Name 'Mithril Zero Prototype,' or something... Since the ingredients had also arrived, I should ask how long it would take.</p>
+<p>"How long will it take?"</p>
+<p>"If it were just me, it would take quite some Time, but with my Disciples, newly hired Employees, and the many Machines you invested in and purchased, it won't take long to forge a single Sword. In fact, I Work on several Swords simultaneously... Excluding the Products I pay special attention to, it should be about a week."</p>
+<p>It seemed that the Anglerfish fit well, and thanks to the Disciples we hired and the various auxiliary Machines we purchased, the Time would be reduced. That was good. I had worried that Time might be too tight, but it seemed I didn't need to worry about that.</p>
+<p>"The Products you pay special attention to...?"</p>
+<p>"Of course, as a Blacksmith, I will pay attention to all of them, but I can't help but pay more attention to the Tairaga Daughter's Rapier and the Sword of Haruka's Disciple here."</p>
+<p>Ichimonji Harugoro answered my Question honestly. The Rapier Taira Kanna possessed was made by a tier-1 Western Sword maker, so his Rivalry would be ignited, and Shimokawabe Airen's Sword, being for the Disciple of his beloved(?) childhood friend, he would naturally put more effort into crafting it.</p>
+<p>I glanced at Shimokawabe Airen, and she seemed very happy that her Weapon would be crafted with such care.</p>
+<p>"Don't worry about the rest. I will put enough effort into them. And since those two Weapons are later in the order, don't worry that the others won't receive theirs."</p>
+<p>Taira Kanna had requested a Spare Weapon, which was a later priority, and Shimokawabe Airen had yielded her turn to Alik, so her crafting order was also later. It seemed he intended to put a lot of effort and Time into them anyway, as they were later in the crafting order and unrelated to immediate Battle. Well... I couldn't say anything about that.</p>
+<p>"Now, I'm going to be busy starting today, so you and your Disciple should leave."</p>
+<p>Ichimonji Harugoro issued an order to leave, as if he intended to start Work immediately. Since he was promising to make the requested Items quickly, we had no intention of lingering in the Blacksmith's workshop, so we left.</p>
+<p>"Ichimonji-ssi and Shimokawabe-sensei's Sabu-nim, were they close?"</p>
+<p>As I stepped out of the Blacksmith's building, I asked Shimokawabe Airen what I had been curious about.</p>
+<p>"I heard from my Sabu-nim that Master Ichimonji had a Jjak sarang for her. And that he gave her many Gifts..."</p>
+<p>"Ah...!"</p>
+<p>To act as if they were unfortunate Yeonin, when it was unrequited love... What an astonishing old man. To protect old man Ichimonji Harugoro's Dignity, I decided not to say anything more.</p>
+<p>When I contacted Saionji Diana and Muko Neika, who were in the firearms warehouse, they said they were coming out of the warehouse and heading this way.</p>
+<p>I waited for them in the Parking Lot after getting the Students into the car, and they both came carrying a lot of Luggage, as if they had picked out many Items. Beside them, Chief of Arms Shizuma Ichihara was walking along, wearing a proud Expression like a Grandfather who had given many Gifts to his Granddaughter.</p>
+<p>"There were quite a lot of intriguing Items, Teacher-nim~!"</p>
+<p>Seeing the usually calm Saionji Diana quite excited, it seemed she was very pleased with Shizuma Ichihara's Items.</p>
+<p>"That's right~! There's a lot of useful stuff here, Yamashiro ssaem!"</p>
+<p>Muko Neika also seemed very satisfied, gently stroking the duffel Bag slung over her Shoulder.</p>
+<p>"Heh heh, most of them are former Terror Items, but they'll be useful."</p>
+<p>Oh, right. This old man, though now a military supplies manager for a PMC, was a bad old man who supplied firearms and explosives to terrorist organizations just a few months ago, wasn't he? Still, he seemed pleased that the high school girls showed Interest in the various Items he had made.</p>
+<p>"Heh heh heh, you said you'd pay, didn't you? The Items the two of them picked out total 2.4 million yen, so please settle the payment."</p>
+<p>Or was he happy because of the Money he'd get from me...? By the way, what did the two of them spend 2.4 million yen on?</p>
+<p>"Shall we look at the Receipt first? You brought it, right?"</p>
+<p>"Of course, I prepared it. Take a look."</p>
+<p>I looked at the Receipt Shizuma Ichihara gave me. 20 high-impact Grenades each, 10 ankle mines each... 500 gaejo Ammunition rounds with high Penetration each, large-caliber shotgun Ammunition infused with Mithril powder and a pump-action shotgun that could use it, a heat-seeking Missile and a launcher... Looking at the Items listed on the Receipt, I even wondered if he had given them to us cheaply.</p>
+<p>"Didn't you give them to us cheaply?"</p>
+<p>"Heh heh, I had a Granddaughter who died long ago. Today, I was just reminded of her for a moment."</p>
+<p>It seemed to be a day for the Chungrangdae old men to get lost in Memory. Since I couldn't inflict financial loss on Chungrangdae, which was just starting out, I decided not to take a discount. Anyway, if there was a loss, I'd have to cover it, so it was better to pay now.</p>
+<p>"You're getting the Money from me, not them, so don't regret it later and take a lot."</p>
+<p>"Then give me exactly 3.72 million yen."</p>
+<p>As expected, he didn't refuse. I sent a Text Message to Jinmija Yeosa, redirecting the 3.72 million yen charge to Hatake Investment Company. They would deposit the Money within a few days.</p>
+<p>"3.72 million yen? Understood. I told Hatake to deposit the Money, so they'll deposit it."</p>
+<p>The Weapon crafting Request was done, and the Money Deal was done, so there was no Reason to stay here any longer. Kurayamada Kirie wasn't here anyway, so I should take the Kids to lunch.</p>
+<p>"Would you like to go to lunch with us?"</p>
+<p>"No, it's fine. Young people should eat together. I brought my Lunchbox."</p>
+<p>At my Proposal, Shizuma Ichihara waved his Hand and returned to his office. If he didn't want to eat, there was nothing I could do. I turned my Head to look at the Students and spoke.</p>
+<p>Torimotsuni (鳥もつ煮: braised chicken giblets in soy sauce) is famous in Kofu, so shall we have that for lunch?</p>
+<p>"Sounds good, Orabeoni~!"</p>
+<p>"I don't know what it is, but if Ryuta eats it, Alik will like it too...!"</p>
+<p>"Might as well give it a try."</p>
+<p>Everyone agreed and nodded their Heads at my Proposal, so I punched the restaurant I had looked up into the GPS and started the car.</p>
+<p>Empty-eyed Yandere Alik, requested by Iseibu-nim~!</p>
+<p>Felt a little weak? So I added eye shadow, hehe.</p>
+<p>「Ryuta tied to a Chair... Good. Alik and Ryuta, we'll be together for a Lifetime.」</p>
+<p>Home Ec Teacher B-cut~!</p>
+<p>Knee socks felt too childish, so I took them off, hehe.</p>

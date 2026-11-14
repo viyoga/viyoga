@@ -5,58 +5,54 @@ weight = 77
 chapter = 77
 +++
 
-<p>Asako Ukie was happy. Her family wasn't well-off enough for her to be carefree, so she wanted to get into a good company where she could earn as much money as possible. As a result of her efforts since she entered university, which she had pushed herself to attend, she was able to get accepted into the Taira Group, which rivaled Minamoto as the best in Japan.</p>
-<p>The moment she received the acceptance text, she hugged her mom, who was next to her, and cried. It was the first time she realized that tears could come from happiness.</p>
-<p>She hadn't even been able to date once while diligently preparing, like everyone else. She had rejected all the introductions, hunting, and temptations that had come her way countless times. Now that she had finally gotten into the good company she had been aiming for, she wanted to meet someone if there was a good connection.</p>
-<p>And then she entered the Human Resources Development Institute. Asako Ukie discovered a prince there.</p>
-<p>A handsome face with strong features, a confident expression and gestures, and a tall, sturdy build. Asako Ukie realized that the ideal type she didn't even know she had was exactly that kind of person.</p>
-<p>Could she meet him again? Asako Ukie knew it was unlikely. She had personally looked into the Human Resources Development Institute and found out that the people who had contact with the new trainees were the new employee training team. And the chances of the man Asako Ukie had fallen for being on the new employee training team were slim. This was because there were many other departments in the Human Resources Development Institute.</p>
-<p>She should have at least said something! Asako Ukie regretted it a little. If she happened to see him again, she would definitely get his LINE ID.</p>
-<p>,Hello, everyone in Group 74. I'm Taira Ryuta, the mentor for Group 74."</p>
-<p>A miracle happened. The prince had become her mentor. The other nine group members also all had bright expressions. When she looked at the mentors of the other groups, they were all tired-looking uncles and aunties. It seemed like the goddess of fortune was constantly following her.</p>
-<p>,Mentor-niim~! Are you Chairman-nim's grandson that the Chairman-nim mentioned?"</p>
-<p>,Hehe, I wonder?"</p>
-<p>,Mentor-nim, how old are you?"</p>
-<p>,Mentor-nim!"</p>
-<p>,Mentor-nim...!"</p>
-<p>The prince was already surrounded by the other group members. Asako Ukie felt something strange. The other groups were mixed with men and women, but this group only had women. And they were all beautiful women. Was it a coincidence? It must be a coincidence, right?</p>
-<p>But Asako Ukie didn't have time to think about other things. Asako Ukie's eyes were fixed on the prince surrounded by women. If she stayed still, she would lose the prince...!</p>
-<p>,Prin-, no, Mentor-nim!"</p>
-<p>Asako Ukie mustered her courage and headed towards Taira Ryuta, who was surrounded by women.</p>
-<p>###</p>
-<p>Was this what it felt like when a super handsome guy went to a girls' high school for teaching practice? He was finally free after being surrounded by women and receiving all sorts of questions. This was surprisingly tiring.</p>
-<p>He guided the group members to the cafeteria where the new trainees ate, as it was lunchtime, and headed to the staff cafeteria where Mimata Chieri was waiting.</p>
-<p>Mentors could use the cafeteria that the new trainees used together, but today he had a prior engagement to eat steak with Mimata Chieri, so I went to the staff cafeteria. The menu in the cafeteria was pollack roe pasta. Steak was definitely better than that.</p>
-<p>,Ah, Sunbae-gun!"</p>
-<p>,Sunbae-nim. I'm a little late. I was late because I was guiding the group members to the cafeteria."</p>
-<p>,That can't be helped. Still, since the entire training team went as mentors, the staff cafeteria is actually more spacious."</p>
-<p>Ah, that's right. It was the first day, so the mentors from the training team would all be eating with their group members in the cafeteria. We quickly received our steaks. As expected, I received a jumbo-sized steak that exceeded the special size given by the cafeteria ladies, and Mimata Chieri also seemed determined to eat a lot today, ordering a medium size instead of a small size.</p>
-<p>We both shouted, "Itadakimasu (いただきます: Bon appétit)," and started eating our steaks. As expected from a large company, they used high-quality beef. Still, it was different from the top-quality meat prepared by the housekeeper at home, but it was delicious. Eating the well-grilled meat along with the grilled asparagus and cube-shaped fried potatoes that came as garnish was both satisfying and delicious.</p>
-<p>,Hee, it's delicious."</p>
-<p>,It is. It's quite good."</p>
-<p>We initially focused on the steak, but as we slowly got full, we started chatting.</p>
-<p>,By the way, Sunbae-nim, have you ever been a mentor before?"</p>
-<p>,I've been here since the last term, but I guess because I'm the youngest, they didn't assign it to me. You seem to have a connection with the training team, so if you ask them, they'll tell you in detail."</p>
-<p>Come to think of it, Mimata Chieri had only been at the Human Resources Development Institute for a little over half a year, so there was no way she would know in detail. As Mimata Chieri said, it would be better to ask Kawaji Emiko later.</p>
-<p>After eating lunch, I stopped by the office and transferred all the necessary materials for work and the mentor work to the laptop I had bought in advance. I told Shinoe Misano that I would be working in the Group 74 meeting room today and then going home, and she said she understood.</p>
-<p>,Do that. Even if there's not much work right now, it might be a little tough later."</p>
-<p>,I said I would do it, so I have to try my best."</p>
-<p>Shinoe Misano's expression was bright. Her husband, who was on a long-term overseas business trip, was coming back next week. That's why she was abstaining from sex with me and had entered a state of abstinence.</p>
-<p>She thought that if she kept doing it with me, her pussy hole would get bigger and her husband might notice her affair, so she even had a 명기 (myung-gi) surgery at the hospital. I was curious about how tight it had become, but I decided to give her husband priority for the sake of morality.</p>
-<p>,I'll send you the work by email this week, so commute to and from the mentor meeting room."</p>
-<p>Shinoe Misano felt sorry for not being able to do enough for me, so she was overly nice to me, which was rather burdensome. I was also conscious of the eyes of the surrounding team members.</p>
-<p>She was telling me to commute to the mentor meeting room this week, but how much mentor work was there to do? Of course, I was happy, so I said thank you! and packed my laptop and bag and headed to the mentor meeting room.</p>
-<p>The mentor meeting room was like a club room in a university. It was a place where Group 74 could gather to plan group activities or receive help from the mentor for tasks during the training. The Human Resources Development Institute had a large site and many rooms left in the building, so each of the nearly 300 groups could receive a meeting room.</p>
-<p>Our Group 74's meeting room was specially located near the detached house where I lived, with no other meeting rooms around, at my request. So the assigned place was just a small office-like house, which was a building with office and accommodation facilities prepared for small teams when they came on business trips.</p>
-<p>It had the disadvantage of being a bit remote, but it was three or four times larger than the meeting rooms of other groups, so they would probably like it. It was closer to the women's dormitory than the building where the meeting rooms were gathered, so it was more convenient to go back and forth between the dormitory.</p>
-<p>Also, if they wanted to go anywhere, they could take my car parked nearby. Of course, I couldn't fit all 10 group members, but if I used someone who could drive among the group members and even used Taira Yukiko's car, we could go anywhere.</p>
-<p>I sent the location of our meeting room to the group chat and decided to have dinner and a simple get-together. Today was the first day, so there wasn't any particularly difficult training. Most of it was mental training, and some time was given for the group members to get to know each other.</p>
-<p>After lunch, it was mental training, so I was able to handle the remaining work on my laptop without much interruption. There wasn't much work, so it was over in 30 minutes.</p>
-<p>,It ended too quickly than I thought? Should I go grocery shopping at the mart in advance?"</p>
-<p>I muttered to myself, closed my laptop, and went outside. Then I went to the parking lot, drove my beloved car Chrysler, and headed to the mart, which was a ten-minute drive away. I bought bottled water and drinks to drink regularly, and simple snacks and ramen to eat.</p>
-<p>,Since we're having a get-together today, I should buy some alcohol too, right?"</p>
-<p>I bought several cans of alcohol of various types. I also bought retort foods that could be microwaved and dried snacks to use as side dishes. There's a freezer in the refrigerator, so let's buy some ice cream too....</p>
-<p>As I bought everything that came to mind, it came out to 50,000 yen, which was much more than the 40,000 yen that was supported as mentor support money. Did I buy too much? I had pocket money from Taira Danjo grandpa anyway, so this much was worth spending. And the long-awaited June, when Health Miracle would skyrocket, was not far away, so this amount of money was nothing.</p>
-<p>I got back in the car, drove back, parked the car in front of the office, and moved the luggage. Most of it was food, so most of it went into the refrigerator. Since it was an office created for accommodation, the second floor had a room where you could sleep and a shower room. The room was not a bed room but a tatami room where you spread out a blanket to sleep, and it was quite spacious. At least eight people could sleep if they slept well together, right?</p>
-<p>,It's good if it's spacious."</p>
-<p>Because many things could happen here in the future.</p>
+<p>Nadachi Tojo's house was close to Shinoe Misano's house. In other words, it was close to the Human Resources Development Center. It seemed that at least those at the team leader level and above lived in this neighborhood because it was easy to commute. Perhaps that's why the surrounding buildings seemed to be of a certain standard or higher.</p>
+<p>After driving around Nadachi Tojo's house once to get a feel for the area, I parked in a paid parking lot some distance away and got out. It was a weekday afternoon after lunch, so the streets were deserted.</p>
+<p>Nadachi Tojo's house was a two-story house. I, who had entered Nadachi Tojo's house, couldn't enter through the main gate, so after checking the surroundings, I climbed over the side fence and entered the yard.</p>
+<p>Sticking to the wall and expanding my senses as much as possible, I could sense only one person inside the house. It seems to be Nadachi Tojo's wife. The two kids must have gone to school... This makes things easy.</p>
+<p>I placed my hand on the first-floor window, closed my eyes, and began to concentrate. My shadow stretched out, climbed the wall, and was sucked under the window. The shadow passed under the window and went up the other side, reaching the lock.</p>
+<p>Chak! (onomatopoeia)</p>
+<p>The shadow exerted physical force and opened the window. I easily opened the window and entered the room. The room I entered had a bed, but it didn't seem to have many decorations or items, so it seemed to be a guest room. I neatly took off my shoes under the window and closed the window again.</p>
+<p>First, I need to take care of Nadachi Tojo's wife. Concentrating, I could roughly hear the sounds Nadachi Tojo's wife was making. She's in the living room right in front of me. I slowly turned the doorknob and opened the door. In front of the door, I could see Nadachi Tojo's wife watching TV in the living room. Nadachi Tojo's wife seemed so focused on the TV that she didn't notice me opening the door and coming out from behind.</p>
+<p>I took out the sleep spray, a legacy of former Team Leader Kurakake Kuma, from my pocket. I hadn't used it even once since taking it from Kurakake Kuma, so all four uses remained. I took a few more steps forward when Nadachi Tojo's wife suddenly got up and turned around. I sprayed the sleep spray directly into her face. Her eyes rolled back in an instant, and I gently caught her with telekinesis as she fell. I don't know why she got up, but her turning around allowed me to use the spray comfortably.</p>
+<p>"Let's put her in the bedroom for now."</p>
+<p>I laid Nadachi Tojo's wife in what appeared to be the couple's bedroom. She probably won't remember me. Shinoe Misano didn't grasp the situation until I explained it to her. The sleep spray seemed to have the effect of slightly blurring the situation at the time of spraying.</p>
+<p>Now, the remaining time is about an hour until the sleep spray wears off. I looked around the house and found the study that Nadachi Tojo used. There was a computer. I turned on the computer placed on the heavy wooden desk. Fortunately, it didn't require a password and the computer turned on. First, I copied all the important document files onto a storage device. It was said to be the next generation of USB based on my past life, and the capacity was enormous and the speed was fast.</p>
+<p>Then, I turned on the internet and went into the email. What a dumbass. He left automatic login on. I guess he didn't think someone like me would come all the way to his house. I checked the emails Nadachi Tojo had exchanged. Unfortunately, almost all of them were work emails. Surprisingly, the emails are clean?</p>
+<p>With a hopeful thought, I went into the recycle bin, which temporarily stores deleted emails, and found the data I wanted.</p>
+<p>Of course, it wasn't an email directly contacting Taira Jiro, but a conversation with someone below him, but the content was quite meaningful.</p>
+<p>Goodfriend ( [email protected] )</p>
+<p>I am sending you a list of people who share our views, so please make sure there’s a positive result in the upcoming personnel appointment. There will be a big reward for you too.</p>
+<p>Your good friend.</p>
+<p>Attachment ⇶ Promotion Target List.DOC ⇩</p>
+<p>I sent this email itself to myself. The guy who sent it is quite bold. Sending it with Taira Steel's email without using a temporary email, is he not even thinking about getting caught?</p>
+<p>Since I found concrete evidence, I didn't have any other expectations and just checked the emails stored in the recycle bin, and I found an unexpected email there.</p>
+<p>dngyrptEhrkwp ( [email protected] )</p>
+<p>Thank you. Please continue to provide regular reports as you have been doing.</p>
+<p>The recent operation you are conducting is impressive.</p>
+<p>Contacting Number 3 is an impressive choice. Trying to create discord with 5-1 may not be a major blow to TR, but these small operations add up to great results.</p>
+<p>Recently, the Chairman-nim has shown great interest in 5-1s1, so please provide continuous reports on 5-1s1. The activity funds have been transferred to a temporary account, so please check.</p>
+<p>What is this? What is Number 3, what is 5-1, and what is 5-1s1? First, I knew that this email was important evidence. I checked the email address that sent this email, but the email account had disappeared because it was a temporarily created email. Certainly, this seemed more thorough and suspicious than contacting Jiro. First, I'll send this to my email too...</p>
+<p>Ah, since it's a regular report, there might be something in the sent emails. But there weren't any particularly suspicious emails in the sent emails. Come to think of it, since the incoming emails are temporary emails that disappear over time, there's no way to reply to them. Then, they must be doing the regular reporting in another way.</p>
+<p>"Did I get everything I need?"</p>
+<p>I muttered to myself, erased all traces of my presence, and turned off the computer. Time has passed quite a bit while investigating. Concentrating my senses, Nadachi Tojo's wife didn't seem to have woken up yet. I went back to the guest room, put on my shoes, and quietly left the house. I locked the window again with my shadow, went to the parking lot, paid the parking fee in cash, and got in the car.</p>
+<p>It's a bit early to leave work already? I drove without thinking. And without realizing it, I went down the most familiar road in the neighborhood and stopped in front of a house.</p>
+<p>It was Shinoe Misano's house. Well, the only house I'm familiar with in this neighborhood is Shinoe Misano's house. I chuckled and was about to start the car again when the door of Shinoe Misano's house opened.</p>
+<p>Shinoe Misano should still be at the company, so is it her husband? Two people came out as the door opened. One was a man with glasses who seemed to be Shinoe Misano's husband, and the other was a woman. The moment I thought they were relatives, they shared a passionate kiss. Of course, it was a lustful kiss using tongues. The two finished kissing, said goodbye, and parted ways. The man went inside the house, and the woman got into the red car parked in front and drove away.</p>
+<p>After the two disappeared, I checked the black box. The angle was good, and the explicit scene from just now was recorded.</p>
+<p>I smiled as I transferred the recorded video data to my smartphone. I won't use it right away. If I show it to Shinoe Misano right away, Shinoe Misano will be sad. I didn't want Shinoe Misano to be sad. I should show it to her after planting some suspicion. That way, the shock will be less.</p>
+<p>This video is important, but the information I got from Nadachi Tojo's computer is more important. First, I received the promotion candidate file attached to the email sent by Taira Jiro's henchman that I found earlier. Surely, there must be people here that Taira Jiro secretly put into or recruited into the Human Resources Development Center.</p>
+<p>"Huh?"</p>
+<p>It's strange. A name that should be there was missing. The name of Suzuki Chisami, the deputy team leader of our Education Support Team 2, was not on the list. I checked it twice just in case, but it wasn't there.</p>
+<p>The date the email was received was only a week ago, and Suzuki Chisami had been at the Human Resources Development Center for over a month, but Suzuki Chisami's name, which should have been there, was missing. Is she not in Taira Jiro's line? Or is it that she can't be promoted right away because she hasn't been here long? What is it? Could it be that Suzuki Chisami is not in the Jiro line?</p>
+<p>I was a little confused. Surely, if Nadachi Tojo came directly and was such a pain in the ass to Shinoe Misano, her name should be there...</p>
+<p>If there's no evidence, there's nothing I can do. I'll have to ask Shinoe Misano directly about the situation at the time. I immediately turned on Line. I sent a Line message to Mimata Chieri instead of Shinoe Misano.</p>
+<p>Taira Ryuta: Sunbae-nim, are you in the Team Leader-nim's office right now?</p>
+<p>Mimata Chieri: No, she went out for external business.</p>
+<p>Hmm... If she's out on external business, I'll have to ask her tomorrow. I sent a thank you message to Mimata Chieri on Line and returned directly to the Human Resources Development Center. Since it was such a close residential area, I arrived home in less than five minutes. I got out of the car and called Yukiko as I entered the house. The information I obtained was so important that I couldn't wait for Yukiko to get off work.</p>
+<p>-Ryuta, what's wrong?</p>
+<p>"I've obtained definite information."</p>
+<p>-Really? Where did you get it? Are you hurt anywhere?</p>
+<p>"I'm not hurt anywhere. I'll tell you the details when we meet. Should I go to the Director's office?"</p>
+<p>-Would you? I have a little work left, so it would have to be evening if we met at home.</p>
+<p>"Yes, I'll go to the Director's office now."</p>
+<p>Come to think of it, it's my first time in the Director's office. I headed to the Director's office with a bit of excitement.</p>

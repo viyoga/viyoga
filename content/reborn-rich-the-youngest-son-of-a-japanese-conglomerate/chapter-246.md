@@ -5,63 +5,90 @@ weight = 246
 chapter = 246
 +++
 
-<p>The antique Shop Owner was a bald Black Person with a bushy beard braided into eight long dreadlocks. With his bald head and long, dreadlocked beard, he gave off a strange cephalopod-like Feeling, despite being a human.</p>
-<p>"Oh, hohoho! Welcome!" The Owner rose from the Counter, greeted us with a strange laugh, then sat back down.</p>
-<p>"Ryuta, shall we make a Bet? We each pick an Item here and see who picks the more valuable one." Arisu, who had been watching the Owner with me at the Entrance for a moment, turned around and asked me. Hmm, she probably had the Ability to discern the Value of Items. A very useful Ability for a thief. I wasn't a Detective or a private investigator, but having already learned that Arisu was a member of Phantom Thief François, my Thoughts naturally gravitated towards things related to that.</p>
-<p>"Huh? Shall we? If it's a Bet, what should we wager?"</p>
-<p>"Hmm, if I win, I get something Erotic from Ryuta, and if Ryuta wins, I do something for him, Heh."</p>
-<p>What, no matter who wins, it's Sex in the end. Not a bad Bet. Still, it's better to win a Bet, so if I pick the Item I had in mind to get from here, I should win.</p>
-<p>Leaving Arisu, who was already looking around, I focused on examining the Items here. There are quite a lot of Items? As I focused, translucent windows appeared everywhere. Hmm.... But even with many translucent windows appearing, there wasn't much that was useful. For example, if you look at a Bracelet like that one over there....</p>
-<p>◆L̵̢̟̦͑̑̀͠o̵̡̗͎̘̽̑͠h̴̘̀̈͜͠a̸̡̩̰͉̋̎͡l҉̧̛͉͗̏̄ą̵̝͛͊͠n̴͔̍͆͋͢͝t̴̢̫̦҇͊e҉̛̜̙̜̅͜'̸̳̑͜͞'s Bracelet [Unique Accessory - Curse]</p>
-<p>A Ring worn by L̵̢̟̦͑̑̀͠o̵̡̗͎̘̽̑͠h̴̘̀̈͜͠a̸̡̩̰͉̋̎͡l҉̧̛͉͗̏̄ą̵̝͛͊͠n̴͔̍͆͋͢͝t̴̢̫̦҇͊e҉̛̜̙̜̅͜'̸̳̑͜͞. Because it was too large to be considered a Ring, humans regarded it as a Bracelet. It increases Knowledge by 10 and allows one to know L̵̢̟̦͑̑̀͠o̵̡̗͎̘̽̑͠h̴̘̀̈͜͠a̸̡̩̰͉̋̎͡l҉̧̛͉͗̏̄ą̵̝͛͊͠n̴͔̍͆͋͢͝t̴̢̫̦҇͊e҉̛̜̙̜̅͜'̸̳̑͜͞'s secret Order.</p>
-<p>Each time the related Knowledge and Order are used, one Finger disappears. When all Fingers disappear, one is devoured by the Dimension where L̵̢̟̦͑̑̀͠o̵̡̗͎̘̽̑͠h̴̘̀̈͜͠a̸̡̩̰͉̋̎͡l҉̧̛͉͗̏̄ą̵̝͛͊͠n̴͔̍͆͋͢͝t̴̢̫̦҇͊e҉̛̜̙̜̅͜'̸̳̑͜͞ resides.</p>
-<p>In this way, they granted immense Abilities, but the Price was also immense. No matter how many there were, they couldn't be used due to their Side Effects.</p>
-<p>Still, this Necklace I intended to purchase with the Knowledge I gained from the game was a quite decent Item with no Side Effects. Although it was a single-use Item, it was useful. Especially for Arisu.</p>
-<p>◆Necklace of Smoke [Rare Consumable]</p>
-<p>The gray pearl of the Necklace was made by collecting smoke. When thrown, the pearl breaks, filling the surroundings with smoke, helping one to easily escape.</p>
-<p>The Necklace itself had a modest Feeling. A lustrous silver-gray pearl hung from a thin Gold chain. As the description stated, it was for escape. Even if Arisu were to get caught during her phantom thief activities, this would allow her to escape once.</p>
-<p>"This is what I chose." I held out the Necklace of Smoke to Arisu. Arisu was still looking around the Store. Seeing that she wasn't choosing the numerous high-grade but dangerous Items, it seemed Arisu's Ability was at a Level where she could comprehensively review such Dangers. I should check it later with the Glasses from the Ruins. I'm incredibly curious what Trait it is.</p>
-<p>"Hmm.... I'll take this." Arisu held out something like a Brooch with a slightly unconfident Attitude. It was a bronze Brooch shaped like octopus tentacles coiled together, which some might find a little grotesque.</p>
-<p>◆Grace of the Deep Sea [Unique Accessory] A Brooch containing the Aura of the deep sea. Abyss Stats increase by 1, and luck increases in the Sea.</p>
-<p>Oh, a Brooch that gives Stats and, though conditional, even increases the rarely obtained luck! It seems Arisu won this Bet. The increase in Abyss Stats means that if I wear this Brooch, my Stats would become Abyss 16, Resistance 16, Will 17, which is close to the Side Effect threshold for Abyss Stats, making it a bit awkward, but since Abyss isn't higher yet, I probably don't need to worry about Side Effects for now.</p>
-<p>"Arisu won. This looks much better."</p>
-<p>"How do you know that, Ryuta? What you chose looks good too?"</p>
-<p>Arisu and I talked about the Items we bought as we went to the Counter. We first placed the antiques we each chose on the Counter. The Shop Owner made a slightly surprised Expression as he looked at the Items on the Counter. The Shop Owner's Gaze seemed to say, 'How could they choose Items without Side Effects?' It looked a bit suspicious...?</p>
-<p>"How much are the Necklace and Brooch, respectively?"</p>
-<p>"Ohohoh! The Necklace is 550 Dollars, and the Brooch is.... 800 Dollars." Compared to their outward Appearance, they were expensive, but considering their Abilities, both were incredibly cheap. I nodded my Head and looked at Arisu.</p>
-<p>"Arisu won, didn't she?"</p>
-<p>"Yes♥ You have to definitely pay the Price of the Bet, right?"</p>
-<p>Anyway, no matter who won, it was Sex. Shaking my Waist diligently would be paying the Price for losing the Bet. Since I had already lost the Bet, I paid for both Items, including Arisu's, with my Card.</p>
-<p>"Ohohoh! Use them well!" Leaving behind the Owner's still strangely sounding Playful Laughter, we exited the antique store. And at the Entrance of the antique store, I put the Necklace I bought around Arisu's neck.</p>
-<p>"When in Danger, if you throw the pearl on this Necklace, smoke will spread, and you'll be able to escape."</p>
-<p>"You chose it to give to me?" Receiving the Necklace, Arisu's large green Eyes welled up as if she were touched. I expected her to ask how I knew it had such an Ability, but she didn't ask that, instead being purely moved.</p>
-<p>Arisu, who had been touching the Necklace for a while, also held out the Grace of the Deep Sea Brooch. If Arisu wore it, she would also gain Abyss Stats, and I didn't know what Side Effects there might be, so I was going to Force her to take it, but it worked out well. For some reason, Arisu seemed a little hesitant to give me the Brooch.</p>
-<p>"It looks a bit strange, but I'll give you this. Ryuta will need it."</p>
-<p>"Thank you, I like it." So she hesitated because of its strange Appearance. I also smiled and accepted the Brooch. Since there was no particular place to wear it right now, I just pinned the Brooch to the Waist of my Jeans. Then I asked Arisu about the next schedule.</p>
-<p>"Now, where's the next schedule?"</p>
-<p>"Hotel♥ Since I won the Bet, I have to get what's due."</p>
-<p>Huh? Weren't you going to give me a New York tour? Was it a New York Hotel tour...? Arisu went straight to the nearest Hotel. Somehow, giving her the Necklace seemed to have pressed her Heat/Rut Switch....</p>
-<p>Arisu arrived at the Hotel, immediately received the key to the Reserved Room, and silently pulled my Hand, getting into the elevator. What? When did she Reserve the Hotel Room? She probably made the Reservation today or yesterday in advance, sensing that doing it at Home with me would be awkward.</p>
-<p>Didn't she have any intention of touring New York in the first place? I gave her a slightly suspicious Gaze, but well, I lost the Bet.... A defeated general has no Words.</p>
-<p>Since we were already at the Hotel, I wanted to create a slightly passionate Feeling, so I started Kissing in the elevator, a situation sometimes seen in Movies, and continued into the Room. Arisu didn't seem to dislike my passionate Kissing, and she actively returned my Kisses.</p>
-<p>Kissing passionately rather than stickily, we entered the Room, still with our Lips pressed together, and began stripping each other's Clothes. With Arisu's Clothes reduced to just her underwear, I stopped Kissing and gently pushed her onto the Bed.</p>
-<p>Arisu sat on the Bed, gazing at me with slightly hazy Eyes. Her Appearance, dressed in white underwear with restrained splendor, truly gave the Feeling of a model. Perhaps because it was a Date after a long Time, she seemed to have put quite a lot of Thought into it. I took my Time admiring Arisu, who was gazing at me, and then stripped off my remaining panties. Then I climbed onto the Bed where Arisu was sitting.</p>
-<p>Perhaps because I approached with an Erection, the long, thick Shadow of my Dick fell across Arisu's white Face. Arisu, as if enchanted, lifted her Head to gaze at my cock. Being a model, her Legs were long, making her sitting Height small. The sight of her lifting her Head almost all the way back to look at my cock was, for some reason, incredibly Arousing.</p>
-<p>As my cock passed over her Nose, Arisu stuck out her Tongue and Licked the underside of my Erect penis. Moving my Waist and Tongue simultaneously felt quite good.</p>
-<p>"Do you like cock?"</p>
-<p>"Yeah, I loove it♥"</p>
-<p>Arisu, who had been talking with me, grabbed my cock as if she couldn't hold back any longer and began to suck it ravenously. In this Intimate Posture, I couldn't really give her Foreplay, so I just received the Fellatio as Arisu gave it.</p>
-<p>She must have practiced with bananas or branches, as Arisu's Fellatio Skill had significantly improved. After sucking for a while, Arisu spit out my cock and spread her Legs while sitting on the Bed. Because of her white underwear, her pussy was practically transparent from the vaginal fluid. To suck a pussy drenched in so much vaginal fluid? I couldn't resist. I almost wanted to make myself thirsty by jogging just for this. "Ryuta, make me feel good too♥"</p>
-<p>"Shall we do it together?"</p>
-<p>"Yes♥"</p>
-<p>We assumed the 69 sexual position, Licking each other's Genitals. Arisu was below, and I was above. It had been a long Time since Arisu's pussy. Come to think of it, I did meet 1/2 of Arisu's pussy last night.</p>
-<p>Thinking of Nae Fitzgerald, I immediately wanted to Thrust into Arisu's pussy.... I was curious about the Difference between Mother and daughter, so an Impulse to Thrust immediately arose, but there was no need to rush.</p>
-<p>It was important to slowly raise each other's Sensitivity. I pulled aside her panties and slowly Licked Arisu's pussy, which was a lighter pink due to less pigmentation, like a Slug moving.</p>
-<p>"Haaht! Haaht! It's been a long Time, Ryuta's Tongue...! It feels so good♥"</p>
-<p>Arisu was incredibly pleased, perhaps because she had been in Heat/Rut since earlier. I stubbornly continued to Lick Arisu's pussy with my Tongue. No, "rubbed with my Tongue" was a slightly more accurate Expression than "Licked."</p>
-<p>"Heueu...! Any more...! Heueut! I...! I'm going to cum!!"</p>
-<p>To cum with spurting squirts in just a few minutes, why have you become so weak, Arisu's pussy? My cock, which had already been in Arisu's mouth, was starting to get a little dejected because Arisu had spit it out and was only moaning, so it wasn't receiving any Fellatio. Well, Arisu's moaning sound was so arousing that it wouldn't truly get dejected, though.</p>
-<p>I moved my cock away from around Arisu's mouth, then gently placed it on Arisu's pussy. Her Body Flinched even though I only placed my cock, indicating she was still incredibly Sensitive. Although her panties hadn't been removed yet, and there was a thin cloth between her pussy and my cock, so much vaginal fluid was gushing from her pussy that the Feeling of the panties was almost imperceptible.</p>
-<p>Using Arisu's abundant vaginal fluid as Lubricant, I slid my cock over her panties, giving her pussy Foreplay. Hmm, this feels quite good too. Arisu also seemed to be enjoying it, continuously urging my cock.</p>
-<p>"Heueuung♥ Put it in...! Hurry...! Heueung!"</p>
-<p>As expected, stimulating her pussy brought a quick Reaction. I smiled at Arisu's continuous Pleading and pulled down her panties. It was finally Time to compare the Mother's and Daughter's pussies.</p>
+<p>Before going to watch Kazuhiro's game, I sparred with that Kiyohira bastard one more time, and of course, I won again. Fighting him, it seemed like our physical stats were similar, but I was pulling so much efficiency out of my physical stats with various traits that Kiyohira couldn't even be my opponent.</p>
+<p>This sparring match was supposed to help Kiyohira, but surprisingly, it helped me too. The reason was that after possessing this body, I had almost only used Shinkaiya Tsude for killing, as a murder weapon.</p>
+<p>I hadn't done anything like this sparring match in a while, so I didn't really know how to control my strength, but while sparring with Kiyohira, I had some kind of epiphany. My proficiency level, which hadn't risen much because it was a Myth-grade martial art, rose considerably after just two sparring matches.</p>
+<p>Unlike the first sparring match, Mimata Chieri-ssi and Arisu didn't watch, and did their own things, but Hanasaki Sayaka watched the second sparring match with sparkling eyes. She must really like martial arts.</p>
+<p>"Hanasaki-ssi, don't you do martial arts yourself?"</p>
+<p>"I've actually learned a little bit. When I said I wanted to learn from the president, he introduced me to a few martial artists."</p>
+<p>If it's the president, is it Taira Kokoro? Well, Hanasaki Sayaka is one of the top three actresses of her age in Japan, so it seems like he introduced her to a few people thinking he was teaching her self-defense.</p>
+<p>"Would you like to take a look? Yap! Yap!"</p>
+<p>Hanasaki Sayaka showed off a few poses and threw a straight punch, and surprisingly, there was power in her movements, and she was fast. It seemed like she was at least at the self-defense level.</p>
+<p>"You seem to have learned quite well."</p>
+<p>"Really? Hehe."</p>
+<p>Hanasaki Sayaka scratched the back of her head and smiled, as if she was embarrassed. Normally, I would have looked at her posture in more detail, but now wasn't the time. I said I was sweating and needed to go wash up, and returned to my room.</p>
+<p>I immediately checked the statue of the Daughter of the Abyss that I had placed on the bedside table next to the bed.</p>
+<p>(99.9995/100)</p>
+<p>Roughly calculating, there were about four hours left until the elixir came out of her chest, but I was worried that I might have made a mistake in my calculations and mistaken the time the elixir would come out while sparring, so I hurriedly returned to my room.</p>
+<p>Looking at the time, it seemed like the elixir would come out of the statue's chest around the time Kazuhiro's game started, after the first half, and around halftime and the start of the second half.</p>
+<p>In the end, I had to take the statue of the Daughter of the Abyss to the stadium... It was about 45 centimeters tall, so it wasn't a small size at all, and it was ambiguous to just take it to the stadium, and it was ambiguous to take it to the bathroom with me, it was full of ambiguities.</p>
+<p>I guess I'll just have to put it in a backpack and carry it on my back. I just need to check the gauge from time to time during the game. I can't help it if people around me look at me strangely. I have to put on an iron face. It's a whopping 8 in stats, after all. Stats were more important than a moment of embarrassment.</p>
+<p>I checked the time the elixir would come out and was about to go take a shower when my smartphone vibrated. I checked and it was Kazuhiro.</p>
+<p>Kazuhiro: Hyung-nim, I'm starting today! I'll show you a good performance, so look forward to it!</p>
+<p>Taira Ryuta: Yeah, if you do well, I'll buy you something delicious.</p>
+<p>It hasn't been long since he went to the United States, but he's starting in the local derby, that's pretty impressive. I replied to Kazuhiro's line to do well and went to take a shower.</p>
+<p>###</p>
+<p>After taking a shower, I couldn't rest for long and had to go outside right away. Dignity Health Sports Park, the home stadium of LA Andromeda, was a 40-minute drive from Fujigasaki Rinka's Malibu mansion, so I was planning to go early, park, do a little sightseeing around the area, and then enter the stadium.</p>
+<p>I put the statue of the Daughter of the Abyss in my bag and got into the Starcraft van that Kiyohira was driving. Like when I got in at the airport, it was the passenger seat next to Kiyohira.</p>
+<p>"What's that bag?"</p>
+<p>Kiyohira glanced at the bag I was holding precious and asked.</p>
+<p>"I need a place to put things if I'm going sightseeing and buying stuff."</p>
+<p>I said I brought it to put souvenirs I bought at the tourist attractions to vaguely gloss over it, and Kiyohira looked at me with a slightly strange expression.</p>
+<p>"A place to put things, isn't 'something to put in' a more appropriate word? As expected of a slutty guy, every single word is lewd...."</p>
+<p>"Don't talk nonsense."</p>
+<p>I admitted that my word choice had become a bit lewd because I had been living such a promiscuous life. I should be a little more careful in the future. Fortunately, the women were a little late in getting ready, so they hadn't gotten in yet, otherwise I would have lived with the nickname "slutty guy" throughout this trip.</p>
+<p>"Arisu is here and there are other people, so don't say strange nicknames like 'slutty guy'."</p>
+<p>"Okay."</p>
+<p>"But aren't you going to introduce your girlfriend to us?"</p>
+<p>Thinking about it, I remembered Kiyohira showing us pictures of his girlfriend when he came to Japan for a while, so I asked Kiyohira. At my question, Kiyohira made a bitter expression and shook his head.</p>
+<p>"We broke up."</p>
+<p>"Why?"</p>
+<p>"She lost... she lost weight...."</p>
+<p>That crazy bastard.... Kiyohira liked overweight women between chubby and fat, so he broke up with his girlfriend when she lost weight. He's got some weird fetishes.</p>
+<p>"A little late, right? Sorry."</p>
+<p>Arisu said as she opened the car door. Arisu was wearing a cool outfit with a tank top and denim shorts, and sunglasses, and Mimata Chieri-ssi was wearing jeans and a tight white t-shirt that accentuated her figure.</p>
+<p>Lastly, Hanasaki Sayaka wore a sundress and a large-brimmed hat to shield her from the sun. She was probably quite famous in Japan, so she wore a hat that could cover her face even if she lowered the brim a little.</p>
+<p>For reference, I wore a Hawaiian shirt and wide-legged shorts. It was the height of summer, so I had to wear something like this.</p>
+<p>Kiyohira was wearing a black t-shirt with a large logo of the gym he goes to and loose black long pants that were well-ventilated. Anyone could tell he was either a gym employee or a martial artist.</p>
+<p>"No, we didn't wait long."</p>
+<p>It was rather fortunate that they came late and didn't hear Kiyohira's slutty guy drivel. Since everyone was in the car, Kiyohira started the car. We headed towards the city center along the coastal road. It was definitely a different atmosphere from New York.</p>
+<p>Unlike New York, which was full of skyscrapers that pierced the sky, Los Angeles was quite impressive with its endless low-rise buildings.</p>
+<p>After driving for 40 minutes, we arrived at the Dignity Health Sports Park parking lot, our destination. We didn't have even an hour to sightsee, so we just walked around the stadium and entered the stadium.</p>
+<p>Kazuhiro had booked a very expensive VIP seat for us, so we were able to watch the game in a high indoor area with glass on all sides and air conditioning blasting, instead of the stands.</p>
+<p>There was also a buffet on the hallway side, and it was divided into partitions so that the people who came together could sit together, so it was quite convenient to watch. Most importantly, I liked that the bathroom was nearby.</p>
+<p>Kazuhiro booked a VIP seat for the rival team, not FCLA's home stadium, that bastard must have spent some money.</p>
+<p>I subtly opened my bag and checked the remaining time.</p>
+<p>(99.9997/100)</p>
+<p>Hmm, since it's 40 minutes before the game starts, I should be able to eat the elixir around the time the second half starts, just as I thought.</p>
+<p>As the players from both teams came out and moved around to warm up, small cheers began to erupt from the stands. Since as many as 60,000 people came to watch the game, celebrities were being shown on a large screen set up in one place in the stadium.</p>
+<p>"There, it's Kazuhiro!"</p>
+<p>Kiyohira pointed to one place with his finger, and when I looked closely, it was Kazuhiro, just as Kiyohira said. When he was playing in Tokyo, Kazuhiro was the only black person, so it was easy to find him, but here in the United States, there were quite a few black people on the team, so it was difficult to recognize him from afar, but Kiyohira found him.</p>
+<p>Soon after, the game started, and I brought a lot of food from the buffet in the hallway to leave a foreshadowing (?) that I would go to the bathroom in the second half.</p>
+<p>"We're going to have dinner after the game, why did you bring so much?"</p>
+<p>"I worked out earlier, so I need to recharge my energy."</p>
+<p>Kiyohira was surprised and asked when he saw the buffet food I had brought. Arisu and Hanasaki Sayaka, who didn't have much of an appetite, only brought simple drinks, and Mimata Chieri-ssi, who likes gourmet food, brought mostly foods that she doesn't often see in Japan.</p>
+<p>Since it was a derby match, the game was quite rough. Several players received yellow cards and were injured from the beginning.</p>
+<p>Kazuhiro, who started as a left winger, scored a goal in the fifteenth minute of the first half, beating three players. The cameraman cleverly captured the image of Kazuhiro scoring a goal and the coach of the US national soccer team applauding, and seeing the coach's satisfied expression, it seemed like he would be selected for the US national team.</p>
+<p>Kazuhiro gained momentum after scoring a goal, and ten minutes later, he made an assist, and right before the end of the first half, he scored his second goal with a long-range shot.</p>
+<p>That Kazuhiro bastard said he was going to score a hat trick today, he really might be able to do it?</p>
+<p>Of course, I kept checking the time through the gap in the bag that I had opened while watching the game.</p>
+<p>(99.9998/100)</p>
+<p>(99.9999/100)</p>
+<p>The first half ended with FCLA leading 3-2, and I deliberately stroked my stomach gently.</p>
+<p>"Ah, was there a problem with the salmon salad.... My stomach feels a little sore?"</p>
+<p>Mimata Chieri-ssi, who was eating buffet food next to me, reacted to my mumbling.</p>
+<p>"Go to the bathroom, Hubae-nim."</p>
+<p>"Should I?"</p>
+<p>I nodded at Mimata Chieri-ssi's words and stood up to go to the bathroom with my bag.</p>
+<p>"Why are you taking your bag?"</p>
+<p>"Uh, just...."</p>
+<p>I answered Arisu's question awkwardly and ran to the bathroom. It had been quite a while since it had reached 99.9999, so the elixir could come out at any time.</p>
+<p>I hurriedly entered the bathroom with a bang and sat down on the closed toilet lid, and took out the statue of the Daughter of the Abyss from my bag. It seems a little damp?</p>
+<p>(99.9999/100)</p>
+<p>(100/100)</p>
+<p>Nice! I came in just in time. A slightly fluorescent blue liquid formed at the ends of both nipples of the Daughter of the Abyss statue.</p>
+<p>I took turns sucking on both breasts of the statue so as not to spill a single drop.</p>
+<p>In an instant, the world turned dark, and before I knew it, I was sucking on the real Daughter of the Abyss's breasts.</p>
+<p>------Daughter of the Abyss-jjang~!</p>
+<p>Daughter of the Abyss-jjang wearing a swimsuit</p>
+<p>Daughter of the Abyss in a different art style</p>

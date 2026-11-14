@@ -5,75 +5,99 @@ weight = 291
 chapter = 291
 +++
 
-<p>"Since we didn't discuss anything beforehand, I have no idea what they'll ask for."</p>
-<p>Mimata Chieri opened her mouth as she looked at us. When I first acquired Energy-Link Industrial Company and contacted them, we only set a date and place to meet without any specific discussion, so I had no idea what the Energy-Link Industrial Company representative wanted.</p>
-<p>"Then, how about we just think about the bottom line for the amount of money or shares we can offer?"</p>
-<p>We all nodded at Han Yu-gyeong's suggestion to set our own limits in advance if we didn't know the other party's conditions.</p>
-<p>Mimata Chieri and Eve had looked into the prices of companies the size of Energy-Link Industrial Company when they were traded, so we could easily set the maximum amount of money we could offer.</p>
-<p>As we were deciding on the price, Eve closed her eyes for a moment, then opened them and spoke.</p>
-<p>"They're here, it seems. They just got on the elevator."</p>
-<p>Looking at the time, it was exactly 11 o'clock, the time we were supposed to meet the representative. They're punctual, huh? Soon after, the elevator doors opened and a person stepped out. It was a woman wearing a motorcycle helmet with horn-like protrusions and a tight black bodysuit.</p>
-<p>I could tell her gender because she was wearing a tight bodysuit that provocatively revealed her figure. She was a woman with a firm body and large breasts, and she looked quite fit.</p>
-<p>"Hello, I'm Taira Ryuta, the co-CEO of TG-Tech Industries."</p>
-<p>"I'm Han Yu-gyeong, the co-CEO of TG-Tech Industries."</p>
-<p>"I'm Eve, the CTO (Chief Technical Officer) of TG-Tech Industries!"</p>
-<p>We introduced ourselves and greeted each other. The helmet bodysuit woman still wasn't taking off her helmet. Something's a bit strange here...?</p>
-<p>"I am Lala Sinclair, the daughter of Caiden Sinclair, the founder of Energy-Link Industrial Company."</p>
-<p>I recognize a name here. Lala Sinclair, who is currently in front of me, was an unknown person, but Caiden Sinclair, the founder of Energy-Link Industrial Company, was called a dead genius psycho in the game.</p>
-<p>Before he died, he spread things like the steel wolves I saw in New York all over the world, causing damage to the surroundings. He must have released a lot of them, because they were even wandering around as regular field mobs in the game.</p>
-<p>But Caiden Sinclair, who did that, was already dead, and Lala Sinclair was a person I was seeing for the first time, so I had no idea what kind of person she was. Judging by the fact that she's not even taking off her helmet in front of us, she doesn't seem like an ordinary person....</p>
-<p>Lala Sinclair shook hands with me in turn, then with Han Yu-gyeong. And when she finally shook hands with Eve, I felt both of them flinch.</p>
-<p>"You are?"</p>
-<p>"Android?"</p>
-<p>The two of them took a step back, then took a fighting stance before approaching each other again and starting close combat. Surprisingly, both of them were skilled in martial arts, exchanging several blows in an instant, but Eve and Lala Sinclair couldn't hurt each other.</p>
-<p>Both of them were sturdy, so they didn't seem to be affected by the punches or kicks. After exchanging blows for a while, they both took a few steps back at the same time.</p>
-<p>What the hell, what's going on all of a sudden? Eve and Lala Sinclair were facing each other, fists raised. The ceiling of the Am-Sang Tokyo branch cracked open, and a machine gun appeared, aiming at Lala Sinclair, while Lala Sinclair pointed at Eve with her finger.</p>
-<p>Lala Sinclair's fingertip opened, aiming at Eve like a gun barrel. At this rate, even if the Am-Sang Tokyo branch was large, the surroundings would be a mess because of the bullets. Even if I'm okay because of regeneration, there was a chance that Han Yu-gyeong and Mimata Chieri would get hurt, so I subtly stepped forward, shielding them, and opened my mouth.</p>
-<p>"I don't know what's going on, but how about we talk first? If this continues, we'll have no choice but to side with Eve."</p>
-<p>When I said that to Lala Sinclair, she nodded and opened her mouth.</p>
-<p>"Positive. I was suddenly caught off guard by meeting an android."</p>
-<p>"I also thought someone had set a trap because the person we were going to trade with was an android."</p>
-<p>"Same here."</p>
-<p>Aha, Lala Sinclair was an android. It seems that androids don't get along well, although I don't know why.</p>
-<p>"We didn't set a trap. We're just really trying to buy the company to get the technology of Energy-Link Industrial Company."</p>
-<p>When Han Yu-gyeong said that we didn't set a trap, Lala Sinclair stared at Han Yu-gyeong's face for a long time. And then she nodded.</p>
-<p>"...Facial recognition result: True. It is determined that the statement that there is no trap is not a lie."</p>
-<p>Facial recognition can also detect lies? That's amazing! Well, it would be strange to judge it as a lie since Han Yu-gyeong's words are true.</p>
-<p>"That's right. I didn't know you were an android."</p>
-<p>"Understood. I will resolve the purpose of being here first."</p>
-<p>After hearing Eve's words, Lala Sinclair nodded and sat at the table for the contract. We all sat down in our respective seats as well.</p>
-<p>"First of all, I want to say this. Lala Sinclair is a creation of Energy-Link Industrial Company, but even if you acquire it, you cannot have ownership of Lala Sinclair. Lala Sinclair exists as Lala Sinclair and has no intention of becoming someone's property."</p>
-<p>It seemed like she was saying that even if she sold Energy-Link Industrial Company to us, she had no intention of selling her own rights. In short, it seemed like she wanted to separate Lala Sinclair from Energy-Link Industrial Company.</p>
-<p>"So... you're an android without an owner?"</p>
-<p>"I have no comment on that."</p>
-<p>At Eve's words, Lala Sinclair closed her mouth as if she wouldn't say anything more. An android without an owner... I wonder if Eve's words are true.</p>
-<p>"First, let's listen to her and separate all rights to 'Lala Sinclair' from Energy-Link Industrial Company."</p>
-<p>"Positive. Good. Then, let's talk about the conditions for buying Energy-Link Industrial Company."</p>
-<p>A negotiation with Lala Sinclair, without an inch of compromise, began. As expected of an AI android with excellent calculation skills, she made demands close to the bottom line we had set in advance. We were able to buy Energy-Link Industrial Company for ten million dollars and transferring 5 percent of TG Tech's shares.</p>
-<p>Originally, to buy a company with the technological capabilities of Energy-Link Industrial Company, we would have to pay much more, but Energy-Link Industrial Company was not that famous yet. It was only famous in the game, so I found out about it and bought it, but after Caiden Sinclair's death, it had almost no activity, so its value in the market was not great.</p>
-<p>And I also had a personal deal with Eve. Whether they had figured each other out by fighting, they negotiated to exchange technologies for creating android bodies.</p>
-<p>Lala Sinclair seemed to want Eve's technology for natural facial expressions and skin texture, and Eve wanted Lala Sinclair's technology for natural body movement.</p>
-<p>Now that I think about it, I think I felt something different when I shook hands with Lala Sinclair earlier. Lala Sinclair seemed a little faster when fighting.</p>
-<p>"Now that the contract is finished, can I ask you something I'm curious about? Why are androids wary of each other like you were just now?"</p>
-<p>"You know that the production of androids by private companies is very limited, right?"</p>
-<p>"Yes, it was so severe during the Third World War that each country placed great restrictions on it."</p>
-<p>During the Third World War, countless war crimes were committed at the end of the war because of AIs created solely for the purpose of killing.</p>
-<p>After that, each country signed the Ujjain Treaty, which was concluded in the Indian state of Ujjain, banning the production of war AIs and androids, and agreeing to destroy the war AIs and androids they currently possessed.</p>
-<p>In addition, new research was only allowed for academic purposes, and a treaty was signed banning the production of androids by private companies.</p>
-<p>"Nevertheless, governments and companies in each country have not stopped secretly creating androids. There used to be a lot of open source, so there was a lot of sharing, but over time, each company and country has different operating systems and systems, so androids feel that they are different from each other.</p>
-<p>And most of them are programmed with the command to destroy and seize other androids if they meet them in the programming stage, so when androids meet, a battle takes place."</p>
-<p>Ah, I see. This is happening because the environment for creating androids has become closed off. In the case of seizure orders, they must be trying to seize and find out what the other party is making because they don't know.</p>
-<p>"Judging by the fact that you stopped fighting, it seems that commands like destroy and seize were not programmed?"</p>
-<p>"I was made before the Third World War, so I don't have those commands."</p>
-<p>"My father, Caiden Sinclair, gave me considerable autonomy, so he didn't put in the obsessive code that I had to destroy and seize androids."</p>
-<p>I see. It's a coincidence and a relief. If even one of them had the code to destroy and seize programmed, they would have had to fight to the end.</p>
-<p>"We'll be meeting a lot in the future, so let's keep in touch."</p>
-<p>The deal was over and the small talk was over, so I shook hands with Lala Sinclair. Lala Sinclair gave us the position of technical advisor in exchange for receiving 5 percent of our TG Tech shares, so we will have many opportunities to contact her.</p>
-<p>"First of all, if you have any questions about the technology of Energy-Link Industrial Company, please contact me."</p>
-<p>At the same time as we signed, Lala Sinclair transferred all the data researched by Energy-Link Industrial Company, excluding her own data, so we had to review that data first.</p>
-<p>"Are you going back to the United States now?"</p>
-<p>"Negative. Since the place I was in was sold to you anyway, I'm going to stay in Japan for a while. I have a lot of money, so I can make even a small lab."</p>
-<p>I felt like I had brought a troublemaker to Japan for no reason, but I was glad that the deal went well.</p>
-<p>-------</p>
-<p>Lala Sinclair</p>
-<p>Her face will be revealed next time she appears, hehe.</p>
+<p>Nae Fitzgerald-ssi didn't use a regular airplane, but came on a private jet. The only business Nae Fitzgerald-ssi has is the luxury brand Légion, but that company is doing well, and she stole so many things that she had more than enough wealth to run a private plane.</p>
+<p>When I went to Haneda Airport, Nae Fitzgerald-ssi was already there. She was wearing simple jeans and a white shirt, and had a bag that looked like a golf bag on her back, which probably contained Cheongcheonbyeokryeok (thunderbolt) in it.</p>
+<p>"Ryuta~! I missed you!"</p>
+<p>A beautiful woman with lemon-colored bright blonde hair and light green beautiful eyes shouted at me and hugged me, and attention was quickly drawn, but the concentration of the busy crowd did not last long. They quickly took their eyes off us and went their way.</p>
+<p>"Have you been well?"</p>
+<p>"Yeah, I've been doing well~! I also got a few things~!"</p>
+<p>Seeing that there were no articles about the Phantom Thief François in the media, it seemed that the museums or collectors who had been robbed by Nae Fitzgerald-ssi had not reported it. In the case of museums, they wouldn't want to publicize that they had been robbed, and the collector probably had treasures stolen that they had obtained through illegal means. That's why there are no articles.</p>
+<p>"Shall we go to the hotel first?"</p>
+<p>"Yes."</p>
+<p>Since Ha Ju-yoon-ssi has also appeared in a recent hit American drama, she was a celebrity in Japan as well, so if I met her at the airport, it would be a big scandal, so we decided to meet at the hotel. So, I decided to go to the hotel with only Nae Fitzgerald-ssi. Of course, Ha Ju-yoon-ssi thought I was meeting her alone.</p>
+<p>We immediately left the airport and headed towards Chiba via the Tokyo Aqua-Line.</p>
+<p>"Hehe...! Driving along the Aqua-Line like this with Ryuta, it feels like a date, doesn't it?"</p>
+<p>"I guess it is a date. But right now, it's an undersea tunnel, so there's not much to see, right?"</p>
+<p>The Tokyo Bay Aqua-Line is an undersea tunnel for two-thirds of the way from Tokyo, and the rest is a road built on the sea, but now it's the beginning, not long after departing from the airport, so there's nothing to see inside the undersea tunnel.</p>
+<p>It was just a tunnel... The road just kept going, so it didn't feel like a date.</p>
+<p>"No~! It's dark and cozy."</p>
+<p>"I guess that's true."</p>
+<p>It's cozy because it's just the two of us in the car. Nae Fitzgerald-ssi subtly said this and put her hand on the middle of my pants.</p>
+<p>"Want me to make you feel good while you drive?"</p>
+<p>Is that "feeling good" a handjob or a blowjob...? I was curious, so I nodded. Nae Fitzgerald-ssi looked at me nodding and smiled strangely, then zipped down my pants.</p>
+<p>When I pulled down my underwear, my dick, which was fully erect and excited in this situation, came out.</p>
+<p>"Heum...! Ryuta's scent♥ The size, the scent, the hardness, I love it all...!"</p>
+<p>Nae Fitzgerald-ssi touched my dick for a while, appraising it, and then licked the urethra where Cowper's fluid was slowly leaking out.</p>
+<p>"It tastes good too. Haa...!"</p>
+<p>Nae Fitzgerald-ssi started sucking my 4-tool dick, which is good in size, smell, hardness, and taste. If you add stamina and recovery to that, it's a 6-tool all-around dick.</p>
+<p>Chuuup, jjeup, jjeuup! Chup!</p>
+<p>"Heueo...!"</p>
+<p>I had quite a bit of resistance to pleasure, so I was able to go straight without shaking the steering wheel. Still, it felt really good, which means Nae Fitzgerald-ssi's skills are that good.</p>
+<p>Gradually, the outside, which was still daytime, could be seen from the end of the tunnel. It was still the middle of the day because I went to the airport right after lunch.</p>
+<p>I had never imagined getting a blowjob from Nae Fitzgerald-ssi in the car in the middle of the day.</p>
+<p>"I'm going to cum, Nae-ssi!"</p>
+<p>As if she had controlled my ejaculation, semen gushed out at the same time as I came out of the tunnel.</p>
+<p>Buuk! Buuk! Buut!</p>
+<p>As I ejaculated to my heart's content into Nae Fitzgerald-ssi's mouth, Nae Fitzgerald-ssi's cheeks gradually swelled. My semen was quite large in volume, so it became that shape, and that appearance was quite hot.</p>
+<p>Jjuuuup!!</p>
+<p>"Beeeee...!"</p>
+<p>Nae Fitzgerald-ssi, who had sucked up even the semen remaining in my urethra until the end, showed me the white, cloudy liquid that was full in her mouth. And then she swallowed it whole.</p>
+<p>No, what am I supposed to do if you show me something so hot? I had to drive to the hotel with my dick still erect.</p>
+<p>The hotel was in Kisarazu City, Chiba Prefecture. It was close to the headquarters of the Taira Group, and the location was chosen to make it easy for Nagumo Sian-nim to come. It was a perfect place because you only had to cross the Aqua-Line after getting off at the airport.</p>
+<p>"I've reserved the penthouse of this hotel."</p>
+<p>All the women who come here are rich, so I had to at least match the level. It wasn't that expensive yet because it was an area where Neo Tokyo-related redevelopment was in progress. It will be very expensive once Neo Tokyo is completed next year. But it's not a burden for me.</p>
+<p>"Ha Ju-yoon-ssi will be here in about 30 minutes, right?"</p>
+<p>When I entered the room, Nae Fitzgerald-ssi sat on the long, luxurious sofa and opened her mouth.</p>
+<p>"I guess so?"</p>
+<p>Ha Ju-yoon-ssi was coming to the place around the time I had roughly arranged with her and Nae Fitzgerald-ssi, so Ha Ju-yoon-ssi would be here soon. I ordered wine, cheese, and fruit as snacks through room service in advance, and soon Ha Ju-yoon-ssi knocked on the door.</p>
+<p>"Yongtae-yaaaang♥"</p>
+<p>As soon as she came in, Ha Ju-yoon-ssi spread her arms and acted cute, hugging me. She was still a beauty who suited the title of an actress with slightly languid eyes and large breasts.</p>
+<p>"Have you been well?"</p>
+<p>"Yes, Noona. But...."</p>
+<p>I subtly showed Nae Fitzgerald-ssi to Ha Ju-yoon-ssi, who had not yet noticed her.</p>
+<p>"Ah...!"</p>
+<p>Ha Ju-yoon-ssi seemed a little embarrassed by the existence of another woman she hadn't expected.</p>
+<p>"Hello, I'm Nae Fitzgerald. I'm the president of Légion and Ryuta's aunt, and...."</p>
+<p>Nae Fitzgerald-ssi doesn't know Korean, so she greeted in Japanese. Ha Ju-yoon-ssi also had some experience in the Japanese entertainment industry when she was young, so she could speak Japanese to some extent.</p>
+<p>"And?"</p>
+<p>"I'm Ryuta's sex friend."</p>
+<p>Nae Fitzgerald-ssi immediately drops a bomb. What, the story is different! I was going to proceed with the story slowly, but she's telling it right away like this.</p>
+<p>"Yongtae-ya...?"</p>
+<p>"Please sit down, if I tell you the truth.... Nae-ssi here had a prior engagement...."</p>
+<p>First, I sat Ha Ju-yoon-ssi down, and then I roughly told her the story. Ha Ju-yoon-ssi listened to my story and shed tears from her languid and seductive eyes.</p>
+<p>"I got divorced and wanted to be comforted by Yongtae...."</p>
+<p>It seemed to be quite a shock to Ha Ju-yoon-ssi, who was having a hard time after the divorce. Nae Fitzgerald-ssi also seemed a little embarrassed when Ha Ju-yoon-ssi shed tears.</p>
+<p>"Noona...!"</p>
+<p>"Don't even call me Noona anymore! I'm really disappointed!!"</p>
+<p>It was Ha Ju-yoon-ssi who told me to call her Noona in the first place.... As I was a little embarrassed and didn't know what to do, Ha Ju-yoon-ssi soon stopped crying and smiled.</p>
+<p>"Hmph! Were you surprised? You surprised me too, so I surprised you too."</p>
+<p>Was crying just now acting? Amazing. It was really realistic acting. I guess she's not an actress for nothing....</p>
+<p>"I was really surprised."</p>
+<p>"Still, a double booking! I was disappointed at first. Even though I made the appointment later.... Ah, I haven't greeted you yet. You said you're Nae Fitzgerald-ssi? I'm actress Ha Ju-yoon."</p>
+<p>Ha Ju-yoon-ssi, who had been complaining to me, soon shook hands with Nae Fitzgerald-ssi and greeted her. And the two had a staring contest for a while.</p>
+<p>After staring at each other for a while, Nae Fitzgerald-ssi smiled and opened her mouth.</p>
+<p>"Anyway, we can't openly have Ryuta. If this continues, other young kids will try to hit on Ryuta, so how about we form an alliance?"</p>
+<p>"That makes sense. Okay, let's form an alliance...."</p>
+<p>I don't know what that staring contest was about. The two suddenly formed an alliance and started talking amicably. Wine and snacks had already arrived, so the two quickly clinked glasses and started talking.</p>
+<p>"What? So you got divorced? It's not like you're the wife of an Arab royal...."</p>
+<p>"I know! And even though I'm divorced, they're still trying to kill me through the media with the newspaper company that Shinkang Group has."</p>
+<p>The topic was Ha Ju-yoon-ssi's divorce, which was the hottest news recently. I didn't know, but even after the divorce, she was being attacked by the newspaper company that Shinkang Group owned. I should help a little later.</p>
+<p>"Besides, they made me take down the advertisement I was doing."</p>
+<p>"Ah, I see.... Then, would you like to advertise for our company?"</p>
+<p>"Advertiser-nim~!!"</p>
+<p>Nae Fitzgerald-ssi is also the president, so she can give advertisements. Besides, it's a luxury brand, so it will be of great help to Ha Ju-yoon-ssi's image.</p>
+<p>Well, I made Ha Ju-yoon-ssi on the same side as planned in advance, but I was being a little alienated because the two were talking. So, I let the two talk and I was looking at my phone.</p>
+<p>"Then...."</p>
+<p>"Yeah, we have to do it."</p>
+<p>The two nodded again and suddenly turned their heads to look at me. What were they talking about?</p>
+<p>"Yes?"</p>
+<p>"Since you made a double booking, Yongtae has to provide us with service, right?"</p>
+<p>"Yeah, you captivated us with that big dick! Ryuta has to take responsibility...!"</p>
+<p>Of course, I was willing to serve both of them, but it's too fast to have sex already when they haven't met for long.</p>
+<p>"More than that...."</p>
+<p>As I was about to open my mouth, Nae Fitzgerald-ssi hugged me and whispered quietly into my ear.</p>
+<p>"Ha Ju-yoon-ssi is accepting it with her head, but she hasn't accepted it with her heart yet. So, you have to captivate her heart with Ryuta's dick. Got it?"</p>
+<p>Ah, I see. It seemed that Ha Ju-yoon-ssi's acting was also somewhat involved in accepting Nae Fitzgerald-ssi's alliance proposal.</p>
+<p>----</p>
+<p>Nagumo Sian-nim's Dongtan look requested yesterday</p>
+<p>Hoo, good ㅎㅎㅎ</p>

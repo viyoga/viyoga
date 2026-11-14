@@ -5,82 +5,60 @@ weight = 982
 chapter = 982
 +++
 
-<p>and before chapter check contains content erotic please surroundings this your</p>
-<p>Otagi Yuka and Seizawa Shii were in a bickering Relationship with each other, so I hadn't expected them to come to my room together like this, but since both of them were leaving for the USA tomorrow, they were short on time, so it seemed they had decided to come together.</p>
-<p>"First, both of you, don't just stand at the door, will you come inside the room?"</p>
-<p>Both of them were hesitating at the entrance of my room, so I first let them come inside. Although they had come to find me, they seemed a little embarrassed.</p>
-<p>In Otagi Yuka's case, with Sakagami Rena or Saionji Diana, she had the Intimate Experience of multiple-on-one sex, but being naked with Seizawa Shii, with whom she usually bickered, seemed a little embarrassing, and Seizawa Shii, having only ever had sex with me alone, seemed to feel a Burden regarding two-on-one sex.</p>
-<p>Seizawa Shii, who had just suggested sex first, bravely came closer to me and sat on the bed, so I stroked Seizawa Shii's Head, then pulled her by the back of her Head and began to kiss her.</p>
-<p>Chu-u, Chuup...! Chuup...♥</p>
-<p>As I kissed and looked at Otagi Yuka, Otagi Yuka also sat on the bed on the opposite side of Seizawa Shii. Since my Lips were already occupied by Seizawa Shii, Otagi Yuka stuck out her long tongue and began to lick and suck my neck.</p>
-<p>Jjok♥, Chuup, Jjup Chuup...! Jjeubeup...!</p>
-<p>Whether it was the sound from the kiss or the sound from sucking my neck, an indistinguishable mix of lewd sounds echoed throughout my large room.</p>
-<p>After kissing Seizawa Shii for a while, when I pulled my Lips away, Otagi Yuka, as if competing, hastily grabbed my chin and turned my face towards her, then kissed me a little roughly, like a head-on lip collision.</p>
-<p>Seizawa Shii saw that and made a "Chit" sound, then began to lick my nipple. (Because I had a habit of only wearing comfortable shorts when sleeping at Home, I wasn't wearing a top to begin with.)</p>
-<p>"Haa...! Haa...! Haa...!"</p>
-<p>After each taking a turn to kiss, fairly completing their turns, the two met each other's Eyes, then moved quickly as if competing. Both had been wearing Clothes when they entered the room, but looking at each other, they competed to see who could undress faster, shedding their outer and underwear like snakes shedding skin.</p>
-<p>Seizawa Shii, having shed all her Clothes, jumped up and brought her pussy over my face, while Otagi Yuka settled herself on my torso, took both my hands, placing one hand on her pussy and the other on her breast.</p>
-<p>In the end, I was the busiest. With my tongue, I had to lick Seizawa Shii's pussy, and with both hands, I had to diligently caress Otagi Yuka's breasts and pussy.</p>
-<p>"Heueung...! Ryuta-cchi...! Your tongue feels so good, haaang♥"</p>
-<p>"Ryuta-ssi, haaht...! Scratch a little deeper inside...! Haaht! There it is, aah...!"</p>
-<p>The two moaned as if in chorus. Although I was a little busy, this was nothing. Feeling them compete over me, I became quite aroused, and even without any particular foreplay, the front of my shorts swelled.</p>
-<p>It might be a little different when felt with the tongue and fingers, but Seizawa Shii's and Otagi Yuka's pussies definitely felt different. Seizawa Shii, perhaps because she was a power-type, had a pussy that felt like it squeezed tightly, gripping my tongue even when I thrust it in, and Otagi Yuka, perhaps because she was a Vampire, had a sensation like a suction cup, sucking in my fingers.</p>
-<p>Comparing the sensations of their pussies was so enjoyable that as I frantically sucked and touched, the two of them almost simultaneously reached climax.</p>
-<p>"Haeuheheung...! Ryuta-cchi...♥ Ah, no, no! Licking, licking, no...! Haeueuht!"</p>
-<p>"Sensei-ssi...! If you stir so deep inside, euhng...! Haaht, I'll, euhng, cum...!"</p>
-<p>Seizawa Shii and Otagi Yuka soaked my face and hands with pussy juice, spurting out with "Pyut-pyut" sounds. The two couldn't sit straight on me and fell to the side, trembling and enjoying the Afterglow of orgasm, while I gently pushed them away, stood up, and then took off my pants and panties.</p>
-<p>If they had competed to take off my pants, they might have torn my pants and panties to rags, or competed over my one and only cock, potentially bending and breaking the corpus cavernosum of my cock, so for safety, I took them off myself. Of course, even if my cock were bent, I could recover it with my regenerative Ability, but I took them off beforehand because the pain would likely make my Erection subside.</p>
-<p>"Now I'll do it, Ryuta-cchi...!"</p>
-<p>"No, I'll make you feel good...!"</p>
-<p>Perhaps because they had just climaxed, the two approached me with slightly deranged expressions, and I felt a strange sensation, like my hair standing on end, so I unconsciously stepped back. Both of them had incredible Strength Stats, so I had to be careful.</p>
-<p>"Don't fight, okay? Make me feel good gently. I won't put it in for anyone who hurts me."</p>
-<p>When I threatened them with "No More Dick" if they hurt me, they seemed to regain a little sanity, nodded their Heads, and slowly approached my cock. They wore expressions that vowed to absolutely endure until climax, but I wondered how long they could truly last.</p>
-<p>And simultaneously, they grabbed the base of my cock and began to suck and lick it. If you were to ask how they could suck and lick it simultaneously when there was only one cock, I could only tell you it was possible because my cock was so large.</p>
-<p>Seizawa Shii and Otagi Yuka began to suck my cock, starting from the glans, so close that their noses almost touched, and as they sucked simultaneously from both sides, a pleasure like a vacuum cleaner sucking out my soul pierced my body, from Head to Feet, with a tingling sensation.</p>
-<p>Both of them, competing to make me feel good, skillfully moved their tongues and sucked my cock, so the feeling of ejaculation rose quite early.</p>
-<p>"Keueu...! I'm about to cum...!"</p>
-<p>At my words that I was about to cum, the two met each other's Eyes, then moved their mouths and tongues even more fiercely.</p>
-<p>"Eueeut...! I'm cumming!"</p>
-<p>Since no one had their mouth on my urethral opening when I ejaculated, an enormous amount of semen was sprayed onto Otagi Yuka's and Seizawa Shii's faces and the bed.</p>
-<p>The two licked the semen from each other's faces as if it were a waste, and that sight was so incredibly arousing that my Erection didn't subside, and my cock became hard as a stone again.</p>
-<p>After licking all the semen from each other's faces, Seizawa Shii and Otagi Yuka looked up at me with expressions full of Longing. Naturally, what they longed for was my cock to enter their pussies.</p>
-<p>At that sight, I fell into considerable Worry, because I didn't want to suffer later from the woman who was given second priority if I put it in someone first for no reason.</p>
-<p>Ah...! This is how it should be done.</p>
-<p>"Like this.... Lie down. Ah, like that. Uh, good...!"</p>
-<p>I had Otagi Yuka lie on the bottom and Seizawa Shii lie on top of her, creating a pussy sandwich Intimate Posture. The sight of two tightly closed pussies overlapping and pressing against each other gave off an incredibly provocative feeling.</p>
-<p>"Oh, what is this, Ryuta-cchi~! This posture is too erotic...!"</p>
-<p>"That's right, Ryuta-ssi, no matter how much of a Pervert you are, this is...!"</p>
-<p>The two were flustered, but I was quite satisfied. Because it was such an erotic Appearance that just looking at it made my cock feel like it would burst.</p>
-<p>"I'm going to put my cock between both your pussies and do sumata. And I'll put my cock into the one who endures climax first. Understood? The one who climaxes first will get my cock later."</p>
-<p>When I asked with an Expression that said, "This is fair, right?" the two looked at each other, then nodded their Heads with determined expressions, as if they couldn't lose. They wore expressions that vowed to absolutely endure until climax, but I wondered how long they could truly last.</p>
-<p>Between the pussy sandwich, already moist with each other's vaginal fluid, as I inserted my frankfurter sausage, both of them simultaneously let out moans.</p>
-<p>"Haeuhaaang...!"</p>
-<p>"Eueueut!"</p>
-<p>It wasn't climax, but the two felt pleasure close to it. Rubbing in this pussy sandwich Intimate Posture would also be quite stimulating. Because it rubbed the entire pussy, sweeping over the Clitoris with the protruding part of the glans, the sensation was different, but it was clear it would provide pleasure of similar intensity to insertion.</p>
-<p>I placed my hand on Seizawa Shii's buttocks, pressing down to increase the close contact between the two pussies and my cock, and began to thrust my waist.</p>
-<p>Lewd "Cheolpeok Cheolpeok" sounds echoed through the room, and along with them, Seizawa Shii's and Otagi Yuka's moans harmonized, tickling my Whispering Ear.</p>
-<p>Although there wasn't the same squirming, cock-stimulating sensation as when inserted into a pussy, this pussy sandwich sex also had its own unique pleasure. The slippery curves of the pussies were stimulating my cock.</p>
-<p>As I moved slowly, then increased speed, the transparent vaginal fluid turned into white foam, and both pussies began to heat up. I didn't know if it was due to frictional Heat or the Arousal they felt, but their pussies were getting warmer and warmer. Naturally, their moans also grew louder.</p>
-<p>"Haeuheheung...! Ryuta-cchi, the rubbing feels so good, haaang...!"</p>
-<p>"Sensei-ssi's cock...! Ryuta-ssi's cock, heueut♥ It feels good, euhng...!"</p>
-<p>Judging by their rising moans, the two were gradually ascending the stairs to climax. Although I personally had someone in mind, I wondered who would reach climax first as I rubbed my cock against both pussies.</p>
-<p>"Ryuta-cchi, I like it...! Aht, I like it, haaang...!"</p>
-<p>"Ryuta-ssi, heueut...! I'm sorry...! I can't hold on...! I'm cumming, haaht...♥"</p>
-<p>The one who went first was Otagi Yuka. Stat-wise, her Sensitive Nerves Stat was higher compared to Seizawa Shii, making her a Sensitive type, and she was so accustomed to my cock, coming to my house every two or three days for sex, saying it was to replenish her blood, that reaching climax had become a habit, like Pavlov's Dog, so I personally thought Otagi Yuka would go first.</p>
-<p>Seizawa Shii had only done it mostly in coin laundromats, so the Frequency was overwhelmingly less compared to Otagi Yuka. Because she was less developed in that regard, she could endure longer than Otagi Yuka. Of course, looking at her messed-up Expression, she was right on the verge.</p>
-<p>"Ehehe...! I won. Ryuta-cchi, your cock, now... inside Shii's♥ Put Ryuta's big one in♥"</p>
-<p>Winning the match, Seizawa Shii showed a double peace sign with both hands and demanded my cock.</p>
-<p>TheDreaming-nim requested Urabe Konoka's Park Exposure. 1. Herself 2. Liz Possession</p>
-<p>1.</p>
-<p>2.</p>
-<p>Gojoy-nim requested Ha Ju-yoon's Casual Attire and Underwear~!</p>
-<p>Casual Attire~!</p>
-<p>As expected of Han Yu-gyeong's mom, she's comfortably dressed in similar attire to Han Yu-gyeong at Home hehe.</p>
+<p>Outwardly, the non-factional group was a faction fiercely loyal to Taira Danjo. Within the Taira Group, where Taira Danjo held sway, it was also the largest faction, and the remaining factions, like the Ichiro faction or the Jiro faction, existed only with Taira Danjo's tacit consent.</p>
+<p>Of course, the people of the non-factional group were also making overtures to various Successors in anticipation of the time after Taira Danjo, but ultimately, it could be said that they were a faction currently showing loyalty only to Taira Danjo.</p>
+<p>Most of them were individuals whom Taira Danjo had recruited or who had followed him since the Successor War of his generation, so they were older than other factions, and there were many seasoned individuals who had experienced all sorts of hardships. They were people with whom it wouldn't be bad to become close, and Nagumo Sian also thought so, introducing me to everyone.</p>
+<p>「Nice to meet you. I'm Taira Ryuta.」</p>
+<p>「So, you're Saburo's Son...! It's unfortunate about what happened to your Father.」</p>
+<p>「Saburo was a decent Person, but his Son is even better-looking!」</p>
+<p>Among the non-factional group, those nearing retirement treated me comfortably. They had worked for the Taira Group for a long time and knew Taira Saburo, so they seemed to be looking at me with the Feeling of seeing a real Grandson.</p>
+<p>「I'm Kunitomi Fuminobu of Taira Precision. Could we talk about Business later?」</p>
+<p>「Perhaps, could we sign a contract with Hatake Mining?」</p>
+<p>Of course, the middle-aged figures treated me, a direct descendant of Taira, with unfailing respect. I didn't know if it was because they still had a long time to be in the Taira Group or because I possessed the Mithril mine.</p>
+<p>I greeted various figures from the non-factional group, but the most important figure was Shinonome Zen of Taira Electronics.</p>
+<p>He was a key figure who had served as an advisor since Taira Danjo's Successor War to become the Chairman of the Taira Group, and he was a man who had brought Taira Danjo to the pinnacle of the Taira Group with numerous strategies and had taken charge of Taira Electronics, steadily growing it. Despite being in his 70s, he was still showing his vigor by managing Taira Electronics well.</p>
+<p>「Hello, I'm Taira Ryuta.」</p>
+<p>「Hmm....」</p>
+<p>Shinonome Zen merely nodded slightly at my greeting and passed by me, heading elsewhere. It was as if he didn't even want to talk to me. Nagumo Sian, who was standing next to me, wore a slightly embarrassed Expression.</p>
+<p>「Well.... There's a Reason why the President of Taira Electronics is like that.」</p>
+<p>「A Reason? It's not that he's non-factional but supports another Successor, is it?」</p>
+<p>「That's not it. However, the President of Taira Electronics' Granddaughter was one of Saburo's key aides, but she became a cripple after Saburo died.... You're Saburo's Son, so he feels displeased.」</p>
+<p>No, he's displeased with me because of a Father I've never even met in life? Of course, blood is thicker than water, so if a precious Granddaughter becomes a cripple due to Taira Saburo's death, he naturally wouldn't feel good, but....</p>
+<p>「Who is this Woman who became a cripple?」</p>
+<p>Actually, I didn't know the details about Saburo's side, so I'm hearing this Story for the first time. Of course, I knew most of the former Saburo faction within the Group, but since she became a cripple, it seemed she had left the Taira Group. I didn't check up on the people who had left the Taira Group while preparing for this Competition, so it was natural that I didn't know.</p>
+<p>「Her name is Shinonome Mio. She was quite a young Woman, but her Grandfather, Shinonome Zen, was such a legendary strategist, and there were many rumors that Mio had inherited that Talent. So, quite a lot of Expectation was gathered on Mio as well. Her nickname was Yeouiju, to the extent that having that Woman could make you a Dragon. Both Ichiro and Jiro coveted that Woman, but Saburo died, and she left the Group and became a cripple, so it's quite unfortunate.」</p>
+<p>Shinonome Mio, huh.... She seems to have been quite a Talent. Both Taira Ichiro and Jiro coveted her, so it seems. Her nickname was Yeouiju, so doesn't that mean that with Yeouiju, you can leap up into the sky? Of course, Taira Saburo really went to heaven, but.... Although she became a cripple, I'm a bit curious about what kind of Person she is.</p>
+<p>「Many young people left the Group like that after Saburo-ssi died. Ryuta, be careful. Your Safety is no longer just your own. If you get hurt, the people around you will be in Danger.」</p>
+<p>Yukiko grabbed my hand and said. Actually, I had a tendency to act recklessly, trusting in my Stats and Regeneration and other defensive Traits. As Yukiko said, I should be careful from now on.</p>
+<p>「Ah, right. By the way, Grandfather entrusted Taira Food distribution to me, right? Exactly when will I officially become the Boss?」</p>
+<p>Looking at the Time, the Banquet was slowly ending, and the Competition would start soon, so I asked Nagumo Sian what I was curious about. Since she was the Boss of Taira Food, which was closest to Taira Food distribution, I thought she would know well.</p>
+<p>「Since it's the Chairman-nim's Words, you became the Boss the moment he said that. Of course, there are procedures like an inauguration ceremony left, but.... It's up to you, the Boss, to do that.」</p>
+<p>I see. First, I'll have to discuss whether to hold an inauguration ceremony with my people. Then, do I have to go to Taira Food right after the Competition ends?</p>
+<p>I winked at Mimata Chieri, who was standing behind me. It was a sign to arrange the schedule later, and Mimata Chieri nodded as if she understood. She's quick on the uptake, as always. As I was looking at Mimata Chieri and feeling pleased, a broadcast announcing the start of the Competition came on.</p>
+<p>Everyone hurriedly left the Banquet Hall and went to the Competition venue on the floor above, where an enormous oval table could be seen. Since most of the executives of the Taira Group were gathered, the table had to be large.</p>
+<p>I sat between Nagumo Sian and Yukiko, and this was where the non-factional people were gathered. I sat among the non-factional people as a way of subtly letting people know that I wouldn't be interfering in the Successor War.</p>
+<p>Of course, Yukiko and Nagumo Sian weren't non-factional but supported me, so although they didn't intend to interfere in the Successor War for now and would aim for an opportunity later, there was no need for other people to know that.</p>
+<p>And it would be laughable for others to see me, with only Taira Food distribution, making a Fuss about whether or not to wage a Successor War, so I decided not to make a big Fuss.</p>
+<p>As everyone sat down, Taira Danjo opened the door and entered. The difference from the Meal was that my Grandmother, Taira Shizuku, didn't attend the Competition.</p>
+<p>「Ahem...! Now, let's begin the Competition.」</p>
+<p>With Taira Danjo's Words, the Competition began.</p>
+<p>Sharing Stories about rewards and punishments for Achievements was similar to the Meal just now. But the difference was that all affiliate companies shared what they would be doing at the Group level in the future, which laid the Foundation for preventing inefficient work conflicts and promoting mutual cooperation within the massive Taira Group.</p>
+<p>「We will complete the Investment in Neo Tokyo by the second and third quarters of this year and do our utmost to ensure that the city can function fully. Do you understand?」</p>
+<p>It seemed that the Investment in Neo Tokyo, which was the Taira Group's key project, would be made until the third quarter of this year. Although it was a city that was running smoothly even now, it felt a bit weaker compared to Pyongyang, the technology city I had visited before, so it seemed they were thinking of Investing more in that area.</p>
+<p>「You know that the results shouldn't be lowered because of that, right?」</p>
+<p>It was quite a harsh Demand. He was telling them to do their utmost to normalize Neo Tokyo while also not allowing the results of the original Business to decline.... I, too, had become responsible for distributing Foodstuffs throughout Neo Tokyo, so I was gradually realizing that I had entered the upper echelons of the Taira Group.</p>
+<p>「Before ending the meeting, let's have the new affiliate company Presidents introduce themselves and then end.」</p>
+<p>Near the end of the meeting, Taira Danjo stood me, Taira Kanna, and one other man up from our Seats and began to introduce us one by one. He was a Westerner with light brown hair, and Mimata Chieri whispered to me that he was a professional manager working in the USA.</p>
+<p>「I'm Solomon Jenkins.」</p>
+<p>It wasn't a special Matter because the Taira Group was replacing the Presidents of some affiliate companies with professional managers. They were making Taira people out of them completely if they did well and replacing them if they weren't good, and that American would have to prove his Skill.</p>
+<p>「I'm Taira Kanna. I'll be in charge of the Taira Driving System from now on. I look forward to working with you.」</p>
+<p>After the American's introduction, Taira Kanna looked around the table and greeted everyone. Next to Taira Kanna were the former Saburo faction people and some former non-factional people, and they all enthusiastically applauded Taira Kanna's self-introduction.</p>
+<p>The former Saburo faction was deeply moved because they could secure their Survival and seek new hegemony centered on Taira Kanna before being pushed around by other Successor factions, and the former non-factional people were looking at Taira Kanna with pleased Expressions, as if saying that their young Granddaughter had grown up well.</p>
+<p>As the former youngest before I entered the Taira Family, Taira Kanna seemed to have successfully charmed some of the non-factional old men. Looking at their pleased Expressions, it felt like they were looking at their real Granddaughter.</p>
+<p>「I'm Taira Ryuta, who will be in charge of Taira Food distribution. I look forward to working with you.」</p>
+<p>I, too, gave a smooth greeting. I, too, received applause in my own way, and because I was sitting among the non-factional people, the people from each Successor group, who thought I wasn't their rival, applauded me well.</p>
+<p>「Let's end the Competition.」</p>
+<p>As the new affiliate company Presidents' greetings ended, Taira Danjo ended the Competition as he had said in advance. As the Competition ended, I finally felt like something had begun. Before the Competition, I was just an ordinary employee of the Taira Group, but now I had become the Boss of an affiliate company.</p>
+<p>Gojoy-nim requested Taira Kisa's casual clothes and underwear~!</p>
+<p>Casual clothes</p>
 <p>Underwear~!</p>
-<p>MidNightSKY-nim requested Tsukiyo and Alik's Battle of Nerves...! Since simultaneous requests for illustrations of two people are not accepted, I made them separately~!</p>
-<p>Alik~!!</p>
-<p>Tsukiyo~!</p>
-<p>Geom-eunkkaemuk-nim requested Hanako's Casual Clothes and Underwear~!</p>
-<p>Casual Clothes~!</p>
-<p>Underwear~!</p>
-<p>Kkiyot~!</p>

@@ -5,50 +5,57 @@ weight = 86
 chapter = 86
 +++
 
-<p>It was evening, past dinner time, when Taira Yukiko stepped into a social gathering. These kinds of high-society parties weren't really her thing, so she never attended them when Taira Saburo-nim was alive. But now that Taira Saburo-nim had passed away and her position in the family had weakened, she had to force herself to attend. She also had to attend these banquets to protect Taira Ryuta, who had newly become family.</p>
-<p>Because Taira Yukiko-ssi was the director of the Human Resources Development Center, a core institution of the Taira Group, Taira Ichiro-ssi, Jiro-ssi, and Kokoro-ssi had been frequently attacking Taira Yukiko-ssi in order to install their loyalists as the director of the Human Resources Development Center after Taira Saburo-nim's death.</p>
-<p>Today was the day of a party hosted by the Hiramotoga, a collateral branch of the Tairaga. Although the Tairaga was famous for its weak collateral branches, some of them still had some influence in the Taira Group. To keep the three heirs of the Tairaga in check, she had to borrow the power of these collateral families, even if it was just a little.</p>
-<p>The Hiramotoga was not just a collateral branch of the Tairaga, but a family that produced politicians with influence in Kamogawa City in southern Chiba.</p>
-<p>The Hiramotoga's banquet was attended by famous politicians from Chiba and Tokyo, as well as high-ranking members of the Tairaga and local dignitaries from Chiba, but none of the people from the three heirs of the Tairaga were there. Whether it was because of the unique arrogance of the Taira direct line that they didn't send anyone, or because they were too busy with other matters, it was good for Taira Yukiko-ssi.</p>
-<p>,Taira Yukiko-ssi~! Welcome to our Hiramotoga's banquet. I hope you enjoy yourself...!,</p>
-<p>Hiramoto Masujiro, the heir of the Hiramotoga who led the Hiramotoga's banquet, shook Taira Yukiko-ssi's hand and welcomed her. She didn't like the way Hiramoto Masujiro's hand caressed hers, but she forced a smile and accepted it.</p>
-<p>Hiramoto Masujiro was a man in his 50s with slightly dark red skin and a mustache. He was in good shape, and there were rumors that he had undergone body modification. His father, Hiramoto Nobuhira, was still actively serving as the head of the family despite being 88 years old, so he only held the position of heir. According to rumors, he was not satisfied with his position and had many complaints.</p>
-<p>Maybe that's why he was a problematic figure with endless scandals despite being in his 50s. Taira Yukiko-ssi didn't want to come to a banquet hosted by someone with a bad reputation, but recently she heard rumors that Hiramoto Masujiro had inherited shares of Taira Bio from the head of the family, Hiramoto Nobuhira, so she had to attend to confirm it. Taira Bio, along with Taira Robotics, was a holding company that controlled Taira's subsidiaries, so the value of Taira Bio's shares was beyond imagination for the heirs competing for the next owner of the Taira Group.</p>
-<p>The Hiramotoga's banquet was a kind of garden party, a gentle banquet where servers carried around drinks and snacks in a well-kept Japanese garden, and people chatted. Taira Yukiko-ssi picked up a wine glass from a passing server's tray and took a sip.</p>
-<p>,It's sake....,</p>
-<p>She thought it was white wine, but they were serving sake in wine glasses. Taira Yukiko-ssi, who didn't really enjoy alcohol, frowned after drinking sake, which was stronger than white wine, but the other people around her didn't care and were drinking it well.</p>
-<p>,Hello? I'm Takagi Iwazo, who runs Chiba's First Precision Engineering. Who is this beautiful lady...?,</p>
-<p>A slightly greasy-looking man in his early 40s approached Taira Yukiko-ssi. Whenever she came to a place like this, there were always many men who approached her with sinister intentions hidden, so Taira Yukiko-ssi introduced herself in a slightly dry manner. Seeing that he came to the Hiramotoga's banquet, he was a mid-sized company to some extent, but Chiba's First Precision Engineering couldn't compare to the Taira Group.</p>
-<p>,I'm Taira Yukiko-ssi, the director of the Human Resources Development Center of the Taira Group.,</p>
-<p>,Ah, the widow of the Tairaga...!,</p>
-<p>It seemed that his thoughts came out of his mouth without him realizing it. Taira Yukiko-ssi looked at Takagi Iwazo with a cold expression, left a word of apology, and went somewhere else.</p>
-<p>She felt Takagi Iwazo's lustful eyes flashing for a moment, so she left the place even faster. There were many incidents like this after Taira Saburo-nim died. The eyes of men who knew she was a widow were like hyenas preying on her body. Her adopted son, Taira Ryuta, sometimes looked at her with passionate eyes, but for some reason, Taira Ryuta's eyes were not repulsive, but rather made her feel like he needed her, which made her feel good. Taira Yukiko-ssi herself didn't know why she felt different from other people.</p>
-<p>She heard Takagi Iwazo's "I'm sorry...!" from behind, but Taira Yukiko-ssi disappeared into the crowd.</p>
-<p>Rather than continuing to receive these advances from unknown men, Taira Yukiko-ssi looked for Hiramoto Masujiro to achieve her goal as soon as possible. Hiramoto Masujiro was surrounded by guests, laughing and drinking.</p>
-<p>When Taira Yukiko-ssi approached, Hiramoto Masujiro was overjoyed and introduced her to the guests.</p>
-<p>,Hahaha, I'm so glad that Taira Yukiko-ssi, the daughter-in-law of the Taira Group, is gracing our banquet!,</p>
-<p>She was going to call him aside quietly to talk, but at this rate, she wouldn't be able to talk to him separately. Hiramoto Masujiro was using Taira Yukiko-ssi as a promotional tool for his banquet. Look, the daughter-in-law of the main Taira family came to the banquet I hosted! He was boasting to the surrounding guests.</p>
-<p>,I want to talk to you alone about business.,</p>
-<p>,Business? Oh, great~! Shall we go to the inner room then?,</p>
-<p>When Taira Yukiko-ssi told Hiramoto Masujiro-ssi, who couldn't stand the gazes of the guests, Hiramoto Masujiro-ssi led Taira Yukiko-ssi into the house.</p>
-<p>Now, tomorrow, rumors will spread that Taira Yukiko-ssi made some kind of proposal to Hiramoto Masujiro-ssi. If they're quick-witted, they'll know that it's to buy shares of Taira Bio, one of the two companies that control the Taira Group.</p>
-<p>,I can see why Taira Yukiko-ssi called me. Isn't it because of the 0.5 percent of Taira Bio shares that I have?,</p>
-<p>,Yes, I'll give you 1.5 times the price. Sell it to me.,</p>
-<p>,Hmm...!,</p>
-<p>At Taira Yukiko-ssi's proposal, Hiramoto Masujiro-ssi narrowed his eyes and stroked his chin.</p>
-<p>,That's not a very attractive offer. If the three heirs of the Taira Group start a full-fledged succession war, I think it will easily go up to 10 times the current price. Of course, Taira Yukiko-ssi wouldn't be able to give me that 10 times the price.,</p>
-<p>Hiramoto Masujiro-ssi was expressing his refusal, mentioning the Taira Group's succession dispute. He wasn't wrong, and if the succession dispute became fierce later, it seemed that it would be worth 10 times the current price that Taira Yukiko-ssi proposed, not 1.5 times.</p>
-<p>Taira Yukiko-ssi sighed at Hiramoto Masujiro-ssi's words. Seeing that, Hiramoto Masujiro-ssi smiled with a sly expression.</p>
-<p>,Then how about this? I won't sell the shares, but I'll become Taira Yukiko-ssi's friendly stake. I'll keep the ownership of the shares, but I'll let you wield these 0.5 percent of shares as you please until I sell them for a high price someday.,</p>
-<p>,What's the price?,</p>
-<p>Taira Yukiko-ssi didn't accept it right away. Such a sweet offer must require a big price. When Taira Yukiko-ssi asked for the price, Hiramoto Masujiro-ssi suddenly smiled lewdly and grabbed Taira Yukiko-ssi's hand.</p>
-<p>,Just one night, the two of us will enjoy ourselves alone. If you give me just one night, you'll be able to use my 0.5 percent of Taira Bio shares as you please.,</p>
-<p>Without listening any further, Taira Yukiko-ssi shook off Hiramoto Masujiro-ssi's hand and got up from her seat. And she glared at Hiramoto Masujiro-ssi.</p>
-<p>,You're going to regret making such a dirty proposal instead of just refusing.,</p>
-<p>,Regret? You're the one who's going to regret it. I was going to help a woman who lost her husband and was cut off from everything out of pity, but.... Don't regret it even if I sell the shares to Ichiro-ssi or Jiro-ssi. Widow.,</p>
-<p>Hiramoto Masujiro-ssi continued to speak without hesitation, thinking that the opportunity to hold Taira Yukiko-ssi was already gone. Taira Yukiko-ssi ignored his words and went outside.</p>
-<p>Taira Yukiko-ssi ignored the people who were whispering about her in the garden and left the Hiramotoga's mansion as it was. She stumbled and staggered as she hurried out of the mansion. Just as Taira Yukiko-ssi was about to fall, a thick, sturdy arm suddenly appeared and grabbed Taira Yukiko-ssi's body.</p>
-<p>,Yukiko-ssi, are you okay? You said it would take a long time....,</p>
-<p>It was Taira Ryuta. When Taira Yukiko-ssi saw Taira Ryuta's face, tears came out without her knowing.</p>
-<p>------------</p>
-<p>if What if it was a fun banquet?</p>
+<p>I left Han Yu-gyeong-ssi, who was surprised that she had four remaining superpowers, as is, and opened the next trait selection. I couldn't open all four remaining trait selections at once; I had to open them one by one. It seems that after level 6, I can't open them all at once because one of the traits or skills I've chosen so far appears as a related trait.</p>
+<p>Please select a trait</p>
+<p>①Saint of Fist Fighting ②Summoning Contract [Coordinates: 335%7#**56] ③Master of Net Dive</p>
+<p>Oh, is it because my luck is as high as 18? Pretty good traits came out. The Saint of Fist Fighting, the pinnacle of the fist fighting lineage that I wanted to come out so badly, did appear, but it wasn't a good choice to make considering Han Yu-gyeong-ssi's stat distribution. What a shame. Don't come out this time, come out to me next time.</p>
+<p>What's left are Summoning Contract and Master of Net Dive... Hmm, should I talk to Han Yu-gyeong-ssi and decide, rather than agonizing over it alone? It's Han Yu-gyeong-ssi's trait, so it's a bit much for me to choose alone. I put on my glasses and lay down next to Han Yu-gyeong-ssi again. Han Yu-gyeong-ssi leaned her head on my arm again as I gave her a pillow.</p>
+<p>"Explain it to me. What kind of method is it? How do you give superpowers and get four abilities again?"</p>
+<p>Han Yu-gyeong-ssi demanded an answer. So, I couldn't just say that this world is a game world... I needed to smooth out the story a bit to explain it. I thought for a moment and then opened my mouth.</p>
+<p>'There's a word called 'karma' (業), right?'</p>
+<p>"Yeah, you mean karma?"</p>
+<p>"It works similarly to experience points in a game. If you live your life diligently, that karma accumulates and one of your possibilities can awaken."</p>
+<p>"And you can see that and awaken that possibility?"</p>
+<p>"That's right."</p>
+<p>I roughly compared game experience and leveling up to karma. It's a similar concept, and Han Yu-gyeong-ssi, who is smart, understood my bullshit explanation perfectly.</p>
+<p>"There are choices, and it's your ability, so I thought it would be a bit much to choose on my own, so I was going to lie down and talk it over with you."</p>
+<p>"Ah, is that so? Hehe, then tell me about it."</p>
+<p>I explained the Summoning Contract and Master of Net Dive to Han Yu-gyeong-ssi, who snuggled further into my arms.</p>
+<p>Summoning Contract was like a guaranteed summon in a gacha game, not random like the previous summoning magic. If this were the game before possession, I would have searched the coordinates 335%7#**56 on a walkthrough site to see what would be summoned... With this, it was no different from regular summoning magic. You don't know what will come out. The only coordinates I memorized were for the two types of summons that were called the Supreme Beings. Of course, that 335%7#**56 was not the coordinates I memorized.</p>
+<p>Master of Net Dive was treated as a broken trait in TMC, the previous work of the youngest son of MegaCorp, but the youngest son of MegaCorp was still a prequel to TMC, where VR Net Dive was not yet popularized, so it wasn't that broken or essential.</p>
+<p>"Then I'll choose summoning."</p>
+<p>After pondering for a moment at my explanation, Han Yu-gyeong-ssi chose summoning.</p>
+<p>"Is there a reason you chose summoning?"</p>
+<p>"I thought about whether it could be obtained with money. Net divers can be hired with money even now, even if I don't learn the skill. But the summoned creatures you mentioned seem to come from a completely different dimension, so they can't be obtained with money, right?"</p>
+<p>Ah, I see. Han Yu-gyeong-ssi had a specific criterion. It seemed that the criterion was to choose the one that couldn't be obtained with money if it could be obtained with money.</p>
+<p>I sat Han Yu-gyeong-ssi in the middle of the bed and stepped back slightly, then pressed Summoning Contract [Coordinates: 335%7#**56] in the trait selection. Then the surrounding light disappeared and brightened again. In that fleeting moment, a jet-black panther, which I didn't know when it appeared, was sitting obediently in front of Han Yu-gyeong-ssi.</p>
+<p>Ah, those coordinates were the coordinates of the Shadow Panther. It wasn't the highest-grade summon, but it was quite useful. It could be put in the shadows and carried around anywhere, and its combat power was enough to beat about two humans who had undergone body modification. That's great. Dickson is there as a bodyguard, but it seemed like I could rely on that Shadow Panther in the final moments.</p>
+<p>"Kyaa! Cute!"</p>
+<p>It was a giant panther almost ten times the size of a cat, but Han Yu-gyeong-ssi was going crazy saying it was cute. Han Yu-gyeong-ssi rushed to hug it, but the Shadow Panther lightly floated its body to avoid her and came to me. Han Yu-gyeong-ssi is the owner, so why is it coming to me?</p>
+<p>The Shadow Panther spat out a piece of paper in front of me and then went back to Han Yu-gyeong-ssi. I picked up the paper with a puzzled expression.</p>
+<p>"What is it?"</p>
+<p>The paper said, Is the tribute not ready yet? Aha! It seemed that the Daughter of the Abyss had intervened again and twisted the trait selection. Well... It's a 'Shadow' Panther, so it must be under the influence of the Daughter of the Abyss. What should I give as a tribute? I was worried because I didn't know her taste. I should try giving her sundae soup as I thought at first, and if the reaction isn't good, I'll give her something else, right?</p>
+<p>"What are you going to name it?"</p>
+<p>"Nero!"</p>
+<p>I didn't think she was a '53er taking the name from an old song; it seemed like she took it from the name of the black cat in the eponymous children's song.</p>
+<p>The Shadow Panther had already become friendly with Han Yu-gyeong-ssi, rubbing its forehead against Han Yu-gyeong-ssi's arm to express its affection. Han Yu-gyeong-ssi also scratched the chin and stroked the nape of her new pet.</p>
+<p>"It's soft! It doesn't feel like just fur."</p>
+<p>I also approached and stroked the back of the Shadow Panther. It looked at me as if it was a bit annoyed, thinking that I wasn't an enemy, but it didn't show a hostile reaction. As Han Yu-gyeong-ssi said, it definitely felt different from animal fur when I touched it.</p>
+<p>"Do you know how to raise it?"</p>
+<p>"Yeah, Nero's information came in from the moment Yong-tae chose summoning. It's a strange feeling."</p>
+<p>Listening to Han Yu-gyeong-ssi's explanation, it was a Shadow Panther, an extreme upgrade of a cat that doesn't shed fur, solves bowel movements in the shadow world, and even has combat abilities. She said that I could use it as a ride in an emergency, so there was even a romance to become a Panther Rider.</p>
+<p>When Han Yu-gyeong-ssi told Nero to look around the house, it understood her words and wandered around on its own. Even if the door was closed, it went in and out through the shadows under the door. I've used a similar method to pick a window before, but it's still amazing to see it in person.</p>
+<p>The next trait wasn't very good, probably because a good trait came out just now. A completely useless Master of Cleaning came out, and the rest were a choice to obtain a random item instead of trait selection, and Master of Throwing came out, so I chose the most useful Master of Throwing. Throwing was a skill that was influenced by mental stats such as concentration and judgment rather than physical stats, so I chose it. Should I tell her to carry around throwing stars or throwing knives from now on...?</p>
+<p>By the way, thinking about Han Yu-gyeong-ssi riding a panther and throwing throwing knives was quite cool.</p>
+<p>For the remaining two traits, I chose the traits Majesty of the Monarch and Cold Reason, which matched Han Yu-gyeong-ssi's stats and situation quite well.</p>
+<p>Majesty of the Monarch is a charisma skill linked to the charm stat, which reduces the probability of subordinates' betrayal and makes subordinates listen well. It also applies to summoned beasts, so Nero will move more quickly. Also, since Han Yu-gyeong-ssi will eventually have to take over Shinkang Group, the more traits of this majesty lineage, the better.</p>
+<p>Right now, Nero and Dickson are the only ones who can be called subordinates, but the more subordinates Han Yu-gyeong-ssi has in the future, the more this trait will shine. It's a so-called late-game carry trait? But to see the light later, I'll have to gather subordinates little by little from now on.</p>
+<p>Cold Reason was a trait that allowed you to maintain reason in urgent situations, strong mental attacks, or when you were mentally shocked. It was better to have reason and solve the problem than to just stomp your feet in a desperate situation, so I chose Cold Reason.</p>
+<p>To test Cold Reason, we stayed still and then shouted "Wah!" to surprise Han Yu-gyeong-ssi, and also threw her into the air like a toss and catch, but she was definitely surprised, but she showed that she didn't lose her reason and recovered quickly. It could be a surprisingly good trait. It also defends against mental attacks to some extent. Han Yu-gyeong-ssi might be hypnotized and fall for Glasses Pig, so I have to prevent that situation.</p>
+<p>Of course, the Glasses Pig hypnotist was a joke, but hypnotists really existed, so it was good to defend against mental attacks. That's why I chose Cold Reason this time.</p>
+<p>"I have another question..."</p>
+<p>"What is it?"</p>
+<p>"I'm curious if I can maintain reason even when I reach orgasm."</p>
+<p>Han Yu-gyeong-ssi lay on the bed and gave me a seductive smile at my words.</p>
+<p>"Why don't we test it out?"</p>
+<p>I couldn't stand it at those words and rushed at Han Yu-gyeong-ssi. The result of the experiment was that Cold Reason doesn't apply when having sex. It was a result obtained after completely knocking out Han Yu-gyeong-ssi.</p>

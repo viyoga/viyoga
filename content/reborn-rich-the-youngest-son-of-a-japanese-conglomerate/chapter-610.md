@@ -5,79 +5,73 @@ weight = 610
 chapter = 610
 +++
 
-<p>Leaving the fallen researcher zombies behind and passing through the hangar, we came to a laboratory where various parts were being tested. There were cyber-implanted zombie researchers there, and as soon as they saw us, Saionji Diana shot them all down.</p>
-<p>"Good job."</p>
-<p>Cyber zombies could have gone wild upon seeing us and damaged the computer containing important data, so I gave Saionji Diana a thumbs up and said that.</p>
-<p>I plugged the UCT into the computer as soon as I saw it and hacked the data, and while I was hacking the data, Saionji Diana went past the lab and cleared the outside.</p>
-<p>Saionji Diana could handle both guns and swords and even had psychic powers, so I wasn't too worried. It would be nice to level up while catching cyber zombies at this opportunity.</p>
-<p>Click.</p>
-<p>"!"</p>
-<p>I pulled out the UCT after the hacking was finished and came out of the lab, and there was Saionji Diana in front of a mountain of nearly a hundred cyber zombie corpses. The sword in one hand was dripping with blood and oil, and the gun in the other hand had its barrel heated from continuous firing. Even if Saionji Diana is skilled, it must have been quite difficult to handle this much.</p>
-<p>"Why didn't you call me with that many?"</p>
-<p>"This much is just a warm-up, seonsaengnim."</p>
-<p>It seemed that there were guard rest areas and researcher rest areas right in front of the lab, so many cyber zombies came out. Class B must be waiting, so we ignored the corpses and quickly looked around the building. The basement had electricity and water facilities, so we roughly looked around and passed, and when we went upstairs, there was a security headquarters where the guards sat and watched CCTV, which we were looking for.</p>
-<p>"I'll look around while seonsaengnim looks around the security headquarters."</p>
-<p>Looking at the CCTV screen, Alik and Otagi Yuka, who had entered another building, were performing Musou against numerous zombies. They're doing well. Looking at the background, that building didn't seem to be a research building.</p>
-<p>I used the computer to delete the CCTV files that had been filmed so far, and destroyed the main body with my abyss-filled foot to destroy the storage device as well. Just in case, I destroyed all the electronic devices in the security headquarters and came out, and as expected, Saionji Diana, holding a blood-flowing sword, greeted me, having dealt with the surrounding cyber zombies. I think she would have leveled up with this much, so I should check it out after the graduation trip.</p>
-<p>"The 3rd floor seemed to be a conference room, and if you pass the security headquarters on the 2nd floor, there seems to be a higher-level laboratory. The iron door is tightly locked."</p>
-<p>Saionji Diana didn't have enough sword skill to cut through the iron door yet, so it seemed there was no way to open it. Following her guidance, we soon came across a sturdy iron door at the end of the second floor.</p>
-<p>Bang! Bang! Bang!</p>
-<p>After hitting it a few times with my abyss-filled fist, the door warped and soon the part with the lock was destroyed and the door opened. I thought it would open in one or two hits, but it lasted quite a while, so it must be a very important place.</p>
-<p>Inside, there was a computer screen doing numerous calculations, and a researcher was sitting in an office chair with numerous machines.</p>
-<p>Judging from the fact that he was cyber-implanted, there was a high probability that he was a cyber zombie, but he was not attacking us even though we broke the door and came in.</p>
-<p>As I approached slowly, he was not breathing, as if he was already dead. Looking closely, there was a medicine bottle next to him, so it seemed he had committed suicide.</p>
-<p>"Who is it?"</p>
-<p>"This person seems to be the director of the research center."</p>
-<p>Saionji Diana read the name tag and answered. I thought there wouldn't be a name tag because it was a secret research center, but there was. There was some kind of paper next to it, and it seemed to be the will of this research center director.</p>
-<p>"It roughly says that he is afraid of things changing. He is afraid that he will harm his family, and there is a story asking the company to take good care of his family. It seems that he found out that the virus was already in place while checking the cyber implant."</p>
-<p>Saionji Diana read the will and gave me a summary explanation.</p>
-<p>"I see. Rather than suddenly becoming a zombie, knowing in advance that you will become a zombie would be a more desperate situation."</p>
-<p>I muttered like that and connected the UCT to the computer in this secret lab. I felt sorry for this research center director, but I had to acquire the data.</p>
-<p>"We've got all the data on our side, so let's go down."</p>
-<p>I pulled out the UCT, spoke to Saionji Diana, and came outside. The 3rd floor was said to be a conference room, so there was no need to look at it separately. When I came outside, I saw Otagi Yuka and Alik with slightly tired expressions.</p>
-<p>"Our side was the company's dormitory building, so there were no research materials, only zombies swarming."</p>
-<p>"Was it?"</p>
-<p>I thought they just commuted, but it seems they ate and slept here. Otagi Yuka ran and drove the safari bus to the front of the cafeteria, and the Class B students got off.</p>
-<p>"Were there many zombies?"</p>
-<p>"Quite a few. So it took some time."</p>
-<p>Answering Muko Neika's question, I opened the cafeteria door.</p>
-<p>"Fortunately for us, it seems that the zombie incident broke out after the cooking was finished. No one touched the food. Class B friends, please help set up the buffet."</p>
-<p>I asked the Class B students to do it, thinking that it would be okay for them to set up the food since they had taken care of the zombies. Seeing our appearance, which was covered in blood and looked tired, the Class B students diligently set up the food without complaining. Actually, I wasn't that tired, but I was thinking of resting since there were many other students who could do the work.</p>
-<p>"Now you can put it on a plate and eat."</p>
-<p>After the meal preparation was finished, we took the plates and lined up. They were considerate of us, so we stood at the very front and scooped up the food, and the menu was rice, soy sauce-braised pork belly like Dongpo pork, and several other menus. It was a secret research center, but it looked quite delicious because it was a large company cafeteria.</p>
-<p>"I wonder if the rest of the special class kids are okay?"</p>
-<p>"Shimokawabe seonsaengnim is there, and Sakagami is there, and Naruse is there, so they'll be fine."</p>
-<p>Otagi Yuka spoke with a worried expression, so I answered that they would be fine. Actually, I was a little worried too, but we were being chased by the cyber zombie robot, which could be said to be the boss of this New Nanking City.</p>
-<p>"We were safe, so they'll be safe too."</p>
-<p>I ignored the rising worries and muttered to Otagi Yuka.</p>
+<p>I was so tired from overlapping bodies with Yukiko and having Nagumo Sian wake up and join in, getting my yang energy sucked out 2-on-1. If I were in perfect condition, it might have been okay, but I was even more exhausted after dealing with Seiryutai and the students of St. Francisco Girls' Academy all night the day before.</p>
+<p>Moreover, my partners were a succubus mama and a mama who was a master of bedroom arts, just awakened to sex and overflowing with sexual desire, so it felt like all the fluids in my body were being sucked out, leaving me like a dried-up rag. On the contrary, they both seemed to have smoother skin than before. Was my semen some kind of miracle youth elixir...?</p>
+<p>After the sticky and lewd, sloppy sex with the mamas, I gave Yukiko and Nagumo Sian simultaneous arm pillows and had pillow talk, during which I asked Nagumo Sian about her Taoist magic. Questions like how she learned it and what techniques she had, and Nagumo Sian, perhaps in a good mood after sex, answered well even though I was asking somewhat annoyingly.</p>
+<p>Nagumo Sian's family was said to be one of the families created when Taoist hermits who believed in ancient Taoism crossed over from China to Japan.</p>
+<p>The Nagumo family was one that continued the Taoist magic, a technique for becoming a divine immortal, but in modern times, that task has faded, and Nagumo Sian is said to be the only one currently carrying on the lineage of Taoist magic.</p>
+<p>In particular, Nagumo Sian had a talent for Taoist magic unlike others, so she learned it to a high level from a young age, and it is said that her aging stopped from that point on. Several people tried after seeing Nagumo Sian not aging, but they didn't succeed and quickly gave up.</p>
+<p>Also, what differentiates Taoist magic from other sorcery is that Taoist magic is a secret method for becoming a divine immortal, specializing in gathering energy through techniques like longevity techniques, alchemy, and bedroom arts, rather than causing any phenomena.</p>
+<p>Of course, since coming from China, there were many Taoist magic books in the family, and until now, while taking root and living in Japan, many Japanese-style sorcery books had also been collected, so she was learning various sorceries in addition to Taoist magic, and she taught Yukiko those that suited her. Yukiko, who had already surpassed the limits of humans, easily learned the sorcery and quickly became stronger.</p>
+<p>Yukiko and Nagumo Sian were both busy career women, so they couldn't spend the night together and had no choice but to talk while lying down for a while before parting in the evening.</p>
+<p>After a sad farewell with the mamas, I had to put the students I had brought to Tokyo in the car and return to Miyashi. I can't stay in Tokyo forever, so I should go back soon. I have things to do in Miyashi, too.</p>
+<p>,Our teacher-ssi looks more tired than usual from this vacation?"</p>
+<p>Otagi Yuka took the driver's seat instead and asked me with a smile. Thankfully, she said I looked too tired and took over the driving.</p>
+<p>,Yeah. Being a teacher is actually easier."</p>
+<p>Everyone laughs at my words. It seemed like a strange bond had formed because we had mixed bodies together. Only Urabe Konoka, who was the only virgin, felt like she was forcing a smile, but I should meet Urabe Konoka one-on-one next time so she can feel a sense of belonging too.</p>
+<p>,Can't you rest tomorrow either?"</p>
+<p>Konoe Akina asked with a worried expression, so I nodded.</p>
+<p>,I have work tomorrow too. I need to reassess your abilities, and Kujo Kina asked me to look at her martial arts, so I have to take a look... That's about it? It's less tiring work compared to the last two days."</p>
+<p>Because they had wiped out so many zombies in New Nanjing City, everyone's level must have increased by about 1 or 2. Even I, who am quite high level, had my level increase, so the students of St. Francisco Girls' Academy, who are relatively low level, must have had their levels increase as well.</p>
+<p>,Ah, I like having my abilities checked. It lets me know even what I can't figure out on my own."</p>
+<p>Everyone nodded at Otagi Yuka's words. There were traits that you could figure out how to use right away as soon as you got them, but there were also traits that you felt like you got something but had no idea what it was, so it was good because when I checked their abilities, they could better understand their own abilities, and if they knew them well, they could use them well.</p>
+<p>,I'm excited to see what abilities I've gained, Teacher."</p>
+<p>Saionji Diana said to me. Saionji Diana decided to go with a gun and sword style for her fighting style, so I hope she got a firearms trait. I'll find out tomorrow.</p>
+<p>,Did you get close to the people from Seiryutai?"</p>
+<p>,Yes, I heard a lot about my first meeting with you, Master, and there were many people with superpowers, so I got a lot of advice."</p>
+<p>If it's the first meeting, are they talking about when I said I would acquire Seiryu Military Company? It seemed like they had gotten quite close if they were talking about that.</p>
+<p>,The story of raiding that Blacktech company's lab to save the kidnapped Azuma-ssi was fun."</p>
+<p>,At the time, Azuma-ssi suddenly disappeared, so we charged in without thinking."</p>
+<p>I said, recalling the time. Then I thought about Gomisawa Renya, who was the head of Blacktech, and the reason Gomisawa Renya focused on Seiryutai was obvious. It was to research people with superpowers.</p>
+<p>Now that Blacktech has been acquired by the Kujo Group, and it has been revealed that there are people with superpowers due to the famine, Blacktech may be conducting research with the people with superpowers that the Kujo Group saved. Thinking about that, I should be a little careful about the Kujo Group too? I don't know what they gained from Blacktech's research.</p>
+<p>I should tell Joseodang, my subordinate intelligence organization, to start an investigation. Sakagami Rena, one of the leaders of Joseodang, is here.</p>
+<p>,Sakagami, use Joseodang to find out about Blacktech. Since it was acquired by Kujo, do it within a reasonable range."</p>
+<p>,If it's not Kujo headquarters but a subordinate research institute, I'll be able to get information."</p>
+<p>Sakagami Rena said as if it wasn't a difficult task. She's reliable as always. After that, various small talks continued, but I was so tired that I fell asleep using the small talk as a lullaby.</p>
 <p>###</p>
-<p>"Is this a zombie movie or a mecha movie?! Just do one!"</p>
-<p>Minamoto Risa opened the bus window and fired a pistol. The cyber zombie that was clinging to the bus while making a *kieee* sound was shot and fell off.</p>
-<p>Fifteen minutes ago, while waiting for Yamashiro Ryuta, who had entered the zoo, a crudely built giant robot suddenly appeared.</p>
-<p>"Wh-what is that?"</p>
-<p>The suddenly appearing robot was moving like a cyber zombie. The abnormal movements and convulsion-like feeling made it look like a greatly enlarged cyber zombie. The zombie robot was slowly approaching, destroying everything it stepped on.</p>
-<p>"G-get on the bus quickly!"</p>
-<p>At Kijimoto Jurie's shout, all the students got on the bus, and some who could drive drove the bus and departed from the parking lot.</p>
-<p>-Kieeee!</p>
-<p>The zombie's voice was heard from the audio device installed in the robot. Most people noticed it at that time. They were thinking that the person inside had become a zombie.</p>
-<p>The zombie robot crushed the vehicles in the parking lot and then started running after the running St. Francisco Girls' Academy bus.</p>
-<p>At the speed of the bus, it could shake off a bipedal robot, but now New Nanking City was in a state of zombie apocalypse. The roads were lined with stopped vehicles, and were full of cyber-implanted zombies faster than marathon runners.</p>
-<p>Naturally, the bus had no choice but to slow down, so it was difficult to shake off the running zombie robot.</p>
-<p>"I'll be out for a bit."</p>
-<p>Shimokawabe Airen opened the bus window with a sword in hand. Shimokawabe Airen, who came out of the bus, swung her sword on top of the bus.</p>
-<p>Woo-oong! Bang!</p>
-<p>The space distorted and a huge slash diagonally cut the upper body of the zombie robot.</p>
-<p>It was an attack of tremendous power, but the robot was fine. The barrier in front of the robot blocked Shimokawabe Airen's sword strike.</p>
-<p>Hooong hoong hoong!</p>
-<p>At that moment, the robot's shoulder opened and missiles were fired. Missiles fired at the bus. Shimokawabe Airen swung her sword and cut and blocked the missiles.</p>
-<p>"It seems that students can get caught up if I just fight."</p>
-<p>Shimokawabe Airen muttered and went back inside through the window. If she fought any longer, the students would get hurt even if she was safe.</p>
-<p>"I can't do it. It doesn't use weapons proactively because it's a zombie, but it seems to have an automatic counterattack function programmatically."</p>
-<p>"In the end, running away is the best option."</p>
-<p>Minamoto Risa said to Shimokawabe Airen's words. Seizawa Shii, who was driving, turned on the radio and told the current situation.</p>
-<p>"It seems best to shake off that robot zombie rather than fight it. So, the Class A bus at the very front, please speed up a bit!"</p>
-<p>-The road is very blocked, so it's impossible, but I'll try harder.</p>
-<p>Taira Kanna's answer was heard on Seizawa Shii's radio. Even in the meantime, the zombie robot was still running fiercely.</p>
-<p>_______</p>
-<p>Minamoto Risa-ttang</p>
-<p>Risa-ttang is also good hehehe</p>
+<p>South China Sea, Taiwan Island. SCSMC headquarters. There were two people in a room with a large screen and several computers.</p>
+<p>,We've finally succeeded in connecting to the satellite!"</p>
+<p>,I'm looking at the same screen as you. Now that we're connected, check what happened to our secret research lab."</p>
+<p>At the words of the executive in charge of research at SCSMC, Chairman Wang Chang of SCSMC said with an uneasy expression. The jamming waves that had been maintained for several days had weakened, allowing them to successfully connect to the satellite.</p>
+<p>After confirming that the virus in New Nanjing City only affected people with cyber implants, SCSMC had already given up on the idea that the people inside the lab were normal.</p>
+<p>Most of them had cyber implants, and those who didn't would have been torn apart by the cyber zombies, so the only ones left would be zombified researchers.</p>
+<p>What Wang Chang hoped was safe were not the researchers, but the data from the lab and the robots being developed as next-generation combat weapons.</p>
+<p>,Ch, Chairman...!"</p>
+<p>The executive, who was tapping away at the computer, called out to Wang Chang with a bewildered expression. Judging by his expression, it didn't seem like good news.</p>
+<p>,What's wrong?"</p>
+<p>,The data, all the data from the lab has disappeared..."</p>
+<p>,What?"</p>
+<p>Wang Chang frowned. The data doesn't have legs, so how could the data that was just sitting there disappear?</p>
+<p>,Check the CCTV."</p>
+<p>,The CCTV footage is also missing from the day the incident occurred. Probably..."</p>
+<p>The executive didn't say the words after "probably," but Wang Chang understood the meaning.</p>
+<p>,You're saying someone stole the data and deleted it. And even deleted the CCTV footage."</p>
+<p>,That seems to be the case."</p>
+<p>,Who could have stolen it...?"</p>
+<p>,I'm not sure, but wouldn't it be the North Chinese side that caused this zombie incident?"</p>
+<p>That was certainly the case. The zombie incident occurred, communications were cut off, and soon the data from the secret lab was stolen, so the culprit was naturally the Red Revolution Front, a North Chinese extremist terrorist group.</p>
+<p>,Or it could be North China itself. There are rumors that their government supports terrorist groups."</p>
+<p>,There's certainly no reason for a terrorist group to hack our data. It's highly likely that the North Chinese government or a company made the Red Revolution Front cause the incident and stole it in the meantime, Chairman."</p>
+<p>Wang Chang nodded heavily at the executive's words. And he opened his mouth, revealing a strange murderous intent in his eyes.</p>
+<p>,Actually, I was going to just let the New Nanjing thing go. Losing Phoenix Technology Company was a huge loss, but I was going to hold back because hitting the Red Revolution Front in North China would mean starting another war. But if they touched our secret lab, I have no choice but to wage war."</p>
+<p>,That's right. We have to find out who it is and repay them two or three times over."</p>
+<p>Wang Chang, who was talking about war because of the lab raid, was not normal either, but the executive, who agreed a hundred times over, saying it was the right thing to do, seemed to have a similar thought process.</p>
+<p>,Chairman, it seems that three of the prototypes in the hangar are safe."</p>
+<p>The executive, who was reviewing various data while talking to Wang Chang, said with a smile as he looked at the CCTV footage being transmitted in real time from the hangar. If there were prototypes, they could resume research at any time.</p>
+<p>,Is that the only good news? Good, let's put the war on hold for a while and go into New Nanjing as soon as possible to recover our prototypes."</p>
+<p>,New Nanjing itself is currently quarantined... Should we dispatch the black team first?"</p>
+<p>At the executive's question, Wang Chang smiled bitterly and opened his mouth.</p>
+<p>,No, we need to have the government lift the quarantine. Let's start liberating New Nanjing."</p>
+<p>__________________________</p>
+<p>New model practice.</p>
+<p>Something that doesn't seem like Alik lol. Recently, models have been learning Blue Archive, so rings often appear behind their heads ddd. What should I put in the negative so it doesn't come out? ddd</p>

@@ -5,72 +5,92 @@ weight = 1033
 chapter = 1033
 +++
 
-<p>As the Obsidian Syndicate and AmSang announced that they would put the Shard of Omniscience on the market, the world was abuzz.</p>
-<p>Some headed to New York to obtain the Geumseo that had only remained a legend, while others said that the Shard of Omniscience was just a scam. Still others hoped that the chaos caused by this Shard of Omniscience auction would not be too great.</p>
-<p>However, great greed calls for great chaos. The faces of those coming to New York to obtain the Shard of Omniscience were formidable.</p>
-<p>Magicians from Europe and the Middle East to obtain the knowledge contained in the Shard of Omniscience, tycoons who wanted to collect valuable Collections, Vampires who wanted to break the limits of their race, Vampire Hunters who wanted stronger power to catch those Vampires, and Priests who worshiped bizarre Gods.</p>
-<p>In addition, when those who had been watching showed unusual behavior by heading to New York at the same time, the eyes of the secret organizations of each surprised government also turned to New York, and soon each government also learned that the Geumseo called the Shard of Omniscience was in New York and dispatched agents.</p>
-<p>Those who were usually impossible to encounter at the same time all set foot in the city of New York. All for their own reasons, to get the Geumseo called the Shard of Omniscience into their hands.</p>
-<p>The same was true for the Obsidian Syndicate, which put the Shard of Omniscience up for auction.</p>
-<p>Right now, it was the magic faction of the Obsidian Syndicate, which had shrunk as much as it could and was barely maintaining its existence.</p>
-<p>The Obsidian Syndicate started as a union of witches and alchemists, but as the power balance of the Obsidian Syndicate tilted towards the alchemists, the Obsidian Syndicate became a criminal organization that dealt in drugs and restrictions, and as a result, the magic faction, the Descendant of the witches, one of the founding groups of the Obsidian Syndicate, was reduced in power, and over time, in the modern era, it was barely surviving.</p>
-<p>The few remaining magic factions of the Obsidian Syndicate were furious as soon as they heard the news that the alchemy faction had put the Shard of Omniscience up for auction.</p>
-<p>They were furious that they were trying to sell a precious Treasure that could grow the organization more than three times over for mere Money.</p>
-<p>「Those alchemy faction Bastards...! They must have gone crazy from handling drugs every day! How could they sell that precious book...?」</p>
-<p>「I know, right. What should we do with this precious thing...?」</p>
-<p>The three magic factions of the Obsidian Syndicate sat in a small cubicle, showing anger and frustration that they could not do anything about.</p>
-<p>「Um... shouldn't we run away before the auction? We don't have a Place in this organization anyway. If we only have the Shard of Omniscience, we can create several organizations like the Obsidian Syndicate.」</p>
-<p>When a young-looking man, who had been silent while listening to the two Sunbae's stories, spoke, the oldest Elderly Person of the magic faction shook his Head.</p>
-<p>「I heard that they handed over the book to the AmSang auction house today.」</p>
-<p>「Ah....」</p>
-<p>They could hide with items from the Obsidian Syndicate, but it was difficult to steal items from AmSang and impossible to escape, so they all sighed with disappointed Expressions.</p>
-<p>「Then, how about this? We steal the auctioned item.」</p>
-<p>「...There must be a truckload of people thinking the same thing as you? It's not something we three can do.」</p>
-<p>「We get the alchemy faction's cooperation in stealing the auctioned item. It will definitely be sold at a high price, so if we steal it and sell it again, we'll make twice as much Money, right? We borrow power with that Story to steal the Shard of Omniscience, and then we take the book again.」</p>
-<p>At the young magician's Words, the magician Elderly Person wore an Expression that said, 'Is this Bastard a genius?' The Obsidian Syndicate was not a very large local organization in New York on a global scale, but this auction was held in New York.</p>
-<p>Just as there is a saying that even a mutt eats half at home, the Obsidian Syndicate would be able to challenge the seizure of the Shard of Omniscience that would be held after this New York auction.</p>
-<p>Everyone would not have been able to bring many forces to the sudden auction. In that case, the Obsidian Syndicate, the best organization in New York, might be the most advantageous.</p>
-<p>「I should apply for an interview with Carmine Castello.」</p>
-<p>The magic faction's Elderly Person, Edric Holloway, rose from his Seat to propose this Operation to Carmine Castello, the Chief of the Obsidian Syndicate.</p>
-<p>Late at night. A suburban area of ​​Hidaka City, Saitama Prefecture.</p>
-<p>Sakagami Rena was hiding in the Shadows, looking at a building. The building Sakagami Rena was looking at was an abandoned school in Hidaka City.</p>
-<p>It was a high school that had been abandoned due to the devastation of the area due to the Third World War, but now it was a Place where Taira Gensuke was secretly gathering people from the Anyaji branch, Brainwashing them, and making them his Soldiers.</p>
-<p>The security here was terrible, to the point where even an Anyaji Administration employee, not an Anyaji Fist Technique practitioner, could escape. This was probably because this was a secret Place that could not be openly revealed, and Taira Gensuke's power in Japan was terrible.</p>
-<p>Therefore, Sakagami Rena easily infiltrated the abandoned school, moving between the Shadows. She had already figured out the routes of the Security Guards, when they moved, and where they checked, so Sakagami Rena's movements were unhindered.</p>
-<p>「Hamutaro, Ribbon-chan...! Find a Place similar to what I said earlier.」</p>
-<p>「Ppippit!」</p>
-<p>「Ppitt!」</p>
-<p>The Place Sakagami Rena was going to was not the Place where the Anyaji branch people were being Brainwashed, but the Place where information was processed.</p>
-<p>Those who stayed here were just employees of the Taira Bussan South America branch under Taira Gensuke, but they were targeting the Place where ordinary employees were because they could go up from below and check the contact info of higher-ranking officials connected to them and other things.</p>
-<p>This Place was unknown even to the Administration employee who had escaped from here, so she released the ferrets Hamutaro and Ribbon-chan, whom she was raising, to find it.</p>
-<p>The ferrets each split up and began to find their way. Of course, Sakagami Rena was not idle either and began to look around the classroom.</p>
-<p>The first floor was mostly classrooms that felt eerie and dirty, like any abandoned school. While Sakagami Rena was touring the first floor of the school, she received a Contact from the ferret who was looking around other Places such as the upper floor and the auditorium.</p>
-<p>「Is that Hamutaro?」</p>
-<p>Hamutaro was wearing a specially made harness, which had a location tracker and a button that could send a signal to the owner, so he could notify her that he had found it.</p>
-<p>Ribbon-chan was a Yogoe, and her soul was connected to Sakagami Rena, so she could communicate with Sakagami Rena.</p>
-<p>Since the ferret who found the Place Sakagami Rena was looking for this Time was Hamutaro, Sakagami Rena canceled the Summon of Ribbon-chan and headed to where Hamutaro was.</p>
-<p>「Kwik!」</p>
-<p>When Sakagami Rena approached, Hamutaro made a small sound and climbed up Sakamagami Rena's Leg and into Sakagami Rena's embrace.</p>
-<p>「I'll give you something delicious when we go out.」</p>
-<p>「Ppiitt...!」</p>
-<p>Sakagami Rena stroked the top of her Clothes where Hamutaro was, then lowered her waist and walked. The Place Hamutaro found was a small multipurpose room next to the faculty room, and when she raised a small Camera and checked it, she saw that there were computers and two Taira Bussan South America branch employees sitting inside.</p>
-<p>「....」</p>
-<p>Sakagami Rena opened the door very slightly. It was late at night, so both employees were nodding off, so they didn't notice even though the door was slightly open.</p>
-<p>Sakagami Rena put a tube containing Sleep Gas on the door side and began to spray Sleep Gas so that the two employees would fall into a deep Sleep. Sakagami Rena was wearing a tech Mask with a Gas Mask function, so she could easily work without being affected by the Sleep Gas.</p>
-<p>After spraying the Sleep Gas like that, Sakagami Rena entered the multipurpose room after a while. After pulling out the chair of the employee who was sleeping as if he had fainted, Sakagami Rena plugged the UCT containing the hacking program into the computer.</p>
-<p>While the hacking program was hacking various data, Sakagami Rena also planted hacking programs on the Smartphones that the employees were holding.</p>
-<p>「Now there's nothing to do here.」</p>
-<p>Sakagami Rena kindly returned the chair to its Place and left the multipurpose room. Then, she moved carefully and left the abandoned school.</p>
-<p>After leaving the abandoned school, Sakagami Rena created some distance and patted her chest to give food to Hamutaro, who had done a good job of finding the Taira Bussan South America branch employees today.</p>
-<p>「....」</p>
-<p>「Why isn't there a Reaction?」</p>
-<p>When Sakagami Rena took Hamutaro out of her embrace, Hamutaro, who was asleep, was limply held in her hand.</p>
-<p>「Ah, Sleep Gas...!」</p>
-<p>This had never happened before, but it seemed that he had stuck his Face out of Curiosity and smelled the Sleep Gas. Sakagami Rena shook her Head with an Absurd Expression and headed to where the vehicle she had been riding was.</p>
-<p>Since Hamutaro was a ferret of Bloodline specially made by the Sakagami Family for generations, Hamutaro would not be harmed by the Sleep Gas, but she thought that she should go to an animal hospital just in case, so she ran urgently.</p>
-<p>Arisu sending erotic gazes in her underwear, requested by Gojoy-nim, and Han Yu-gyeong recalling her first meeting with Ryuta~!</p>
-<p>Arisu~!</p>
-<p>Han Yu-gyeong~!</p>
-<p>I made it with the feeling of recalling with her Chin propped up, but the Atmosphere doesn't come out well ㄷㄷ</p>
-<p>Bonus cut from making Liz's naked body shirt a few days ago~!</p>
-<p>T-shirt Silhouette hehe. I didn't upload it because it didn't match the Request, but I liked it, so I'm uploading it today when there aren't many Requests hehe.</p>
+<p>-Shiyo-style Dragon Claw Flow: Hundred-Mile Dragon Flash.</p>
+<p>At that Moment, Maynard Rafael, feeling his Life in Danger, hastily raised his silver-plated Shield and hid behind it. When the white light swept past, he looked around to see that everyone else, except himself, had been cut in half and killed by the Sword Light.</p>
+<p>"Certainly, since it's an area-of-effect attack, it's weak against Defense. Next time...."</p>
+<p>The Demon Woman muttered, looking at the surviving Maynard Rafael. It was a remark that treated the SPF Vampire Hunter like an experimental subject for her own technique, but fortunately for Maynard Rafael, it was in Japanese, so he couldn't understand it.</p>
+<p>Although he didn't know the content of the story, its tone was conveyed, so Maynard Rafael gnashed his Teeth and opened his Mouth.</p>
+<p>"Don't show off with just that Skill! If Branch Manager-nim had been here.... You too would have fallen like us now."</p>
+<p>"But he isn't here, is he? An Assumption that isn't a fact is just a loser's lament."</p>
+<p>This time, the Demon Woman spoke in English so Maynard Rafael could understand. And as if to finish things, the Demon Woman, standing before Maynard Rafael, raised a Weapon that was neither a Spear nor a Sword.</p>
+<p>"Branch Manager-nim will avenge us! You Demon!"</p>
+<p>"I told you I'm not a Demon! I'm a Dragon! A Dragon!"</p>
+<p>Huung!</p>
+<p>Maynard Rafael's Words, "You Demon!", ultimately became his last testament. This was because those Words caused him to face the enraged Sword slash of the Demon Woman-no, Naruse Shiyo.</p>
+<p>Naruse Shiyo muttered, looking at Maynard Rafael's Head, which had fallen to the floor and was rolling, "And how can that so-called Branch Manager avenge you when he won't even know I killed you?"</p>
+<p>Kwaaaah! Peo-eong!</p>
+<p>"Kuaaak!"</p>
+<p>"S-Save me!"</p>
+<p>As we gradually approached the central area, where a Fragment of Omniscience was presumed to be, various loud noises and Screams assaulted our Ears. Indeed, the closer we got to the center of the battlefield, the fiercer the fighting became. There were far more collapsed Buildings than before, and even now, Buildings were continuously crumbling from explosions in real-time.</p>
+<p>"Still, I'm seeing some named monsters."</p>
+<p>As we approached the center, familiar faces appeared. Although this Fragment of Omniscience acquisition Event was something that didn't exist in the game, or that I didn't know about, it was still a considerably large Event, so there were a few familiar faces I had seen in the game.</p>
+<p>I saw the witch 'Golden Hat,' wearing a golden witch's hat, floating in the Sky, unleashing green Flames and slaughtering People, or the Blindfold Woman 'Madwoman of Rest,' dressed in a nurse's attire, wielding a chainsaw and killing People as if felling Trees.</p>
+<p>In the game, they were named characters that could be hired. All of them were at or above the level of the future Juuki (Gun Demon) Muko Neika, having completed their growth. If I get the Opportunity later, I should try to hire them too.</p>
+<p>"Yes?"</p>
+<p>At my muttering about seeing named monsters, Kurayamada Kirie asked what I meant, but I shrugged my Shoulders as if it were nothing and kept running.</p>
+<p>"!"</p>
+<p>As we were running between alleys, I suddenly felt an immense Killing Intent!</p>
+<p>Feeling the Killing Intent, I instantly embraced Kurayamada Kirie and simultaneously used a psychokinetic Reaction shield and Shadow Domination to deploy a Barrier.</p>
+<p>It was a technique I had recently learned while Training my Telekinesis; if I deployed Shadow Domination like a coating over the psychokinetic Reaction shield, my Defense increased by another 50 percent. Although the Mental Power consumption was greater, the Defense was considerable, so I often practiced using them simultaneously.</p>
+<p>Kwang! Kwang! Kwang!</p>
+<p>Although I was quite confident in my Defense, the Barrier burst with three loud noises. Even though it was a hastily deployed Barrier, to be destroyed by just three attacks, the Opponent's power seemed considerable.</p>
+<p>As the Barrier broke, a Voice came from the Sky above my Head, "It's been a while since someone withstood my Bullets three times~♪"</p>
+<p>It was a lively-sounding Woman's Voice. I raised my Head to look, and it was a familiar Face. Of course, it wasn't a Face I knew after Possession, but a Woman I had seen in the game.</p>
+<p>She was a Woman with a very flashy Hairstyle, blonde twin-tails dyed blue at the ends, and she was floating in the empty space above a ruined Building, holding a winged cyber Suit and a giant Gun, looking down at us.</p>
+<p>Tetsu Kagerou (鐵蜻蜓) - Why is she here...?</p>
+<p>Tetsu Kagerou was the leader of the Dragon Fly unit, one of Asakura's (朝倉) assassination units, a Japanese-American corporation that would later become one of the top 5 US megacorporations.</p>
+<p>Since the nickname Tetsu Kagerou itself meant 'Iron Dragonfly,' it seemed the unit was named after her.</p>
+<p>She was a very difficult opponent to deal with, flying around in a specially made winged cyber Suit and grinding opposing units with her specially made giant Gun.</p>
+<p>In TMC, she was evaluated as a mid-Boss almost as tricky as Alik, and she was a Character who could become a reliable Colleague if one chose an Alliance with Asakura.</p>
+<p>Shouldn't she be busy resolving matters for Asakura right now? I know Asakura isn't interested in magic or Sorcery, and focuses solely on Technology and science....</p>
+<p>"The auction is over, so how long are you going to keep wearing that Suit and Mask?"</p>
+<p>If I wore the Black Knight attire, I might unnecessarily draw aggro, or, though highly unlikely, I might be attacked by Superior's Behemoth and Whisper, who came looking for the Black Knight. So, I was wearing the Mask from the auction, with its Handle bent behind my Ears like Glasses.</p>
+<p>This Appearance didn't quite fit the current Fragment of Omniscience acquisition battle, which seemed to pique her Curiosity.</p>
+<p>"Well, it's to hide my True Identity. We're not going to participate in the Fragment of Omniscience acquisition battle, so could you let us pass? We're looking for someone."</p>
+<p>"That's a no-no~♪ I have a mission from my client, so no one can pass this way, regardless of whether they're after the Fragment of Omniscience~♩"</p>
+<p>As expected, it's not working. By the way, a client.... Is she referring to Asakura? Or does she have another client?</p>
+<p>Although I was quite curious, finding Grandmaster Soda Haruto is more important now, so I'll have to Breakthrough Tetsu Kagerou.</p>
+<p>Since Kurayamada Kirie can't engage in aerial combat, I, who can use Telekinetic Flight, will have to face her.</p>
+<p>"Kirie. While I deal with this Woman, go somewhere safe."</p>
+<p>"Yes. Since I can't engage in aerial combat, I'll wait...."</p>
+<p>Kurayamada Kirie bit her Lips with a frustrated Expression at my Words and ran to another Place. I immediately flew into the Sky and approached Tetsu Kagerou to prevent her from attacking Kurayamada Kirie.</p>
+<p>"Oh! A Superhuman? This will be fun~♬"</p>
+<p>Tetsu Kagerou looked at me, flying towards her, with an intrigued Expression and aimed her Gun. Because it was a dangerous firearm that had pierced my Barrier in just three shots, I flew in a complex Path, slowly approaching Tetsu Kagerou.</p>
+<p>Of course, Tetsu Kagerou didn't stay still either, flying rapidly and not allowing me to approach. It was amazing how she flew so well, as if she had Eyes in her Back, even while aiming her Gun at me and flying.</p>
+<p>Tang! Tang! Tang!</p>
+<p>With Tetsu Kagerou's Marksmanship, each Shot possessing power greater than a Big Dick sniper rifle, I also had to fly while evading to avoid being in a direct Line with her Muzzle, making it difficult to approach her.</p>
+<p>Then I had no choice but to use another Method. It seemed difficult to defeat a dragonfly with Flight in the Sky. I should go into long-range Mode too.</p>
+<p>I stopped chasing and, standing in empty space, thrust my Fist towards Tetsu Kagerou.</p>
+<p>-Creation Chaos Flow: Grand Cannon.</p>
+<p>A navy-blue Creation Chaos Energy flew towards Tetsu Kagerou like an Energy Cannon. Tetsu Kagerou moved with almost acrobatic Flight to evade the Grand Cannon I fired, but it was a useless Act.</p>
+<p>-Creation Chaos Flow: Energy Burst.</p>
+<p>Kwakwakwang!</p>
+<p>The fired Grand Cannon exploded. In Creation Chaos Flow, there was a technique to explode fired Energy bodies. It was the Creation Chaos Flow Energy Burst I just used. Because it was a technique that instantly turned a single-target Attack into an area-of-effect Attack, Tetsu Kagerou, who had been barely evading, was caught in the Energy Burst.</p>
+<p>Woong!</p>
+<p>With the sound of some Engine activating, a circular Structure of connected translucent hexagons blocked the Energy Burst's explosion. Even at this time, she's using a defensive field? What Technology is she using?</p>
+<p>"Shotgun Mode."</p>
+<p>Wiiing! Cheolkeok!</p>
+<p>As Tetsu Kagerou muttered, the Gun's shape changed simultaneously. That Gun is amazing, isn't it? What Technology was it made with? Seeing her call it 'Shotgun Mode,' it seems she intends to fire buckshot and perform an area-of-effect Attack, just like I did.</p>
+<p>Taang! Taang! Taang!</p>
+<p>Tetsu Kagerou fired the shotgun almost as if scattering it around. I deployed a psychokinetic Reaction shield to block the shotgun Ammunition. As expected, because it was buckshot, it didn't have the same Destructive Power as before. I easily blocked the Ammunition Tetsu Kagerou fired. But the Attack wasn't just that.</p>
+<p>Taang! Tang! Tatatang!</p>
+<p>As we were engaged in an offensive and defensive battle in the Sky, it seemed we had attracted the Gaze of not only Tetsu Kagerou but also snipers in the Surroundings. Gunfire poured in from directions other than Tetsu Kagerou.</p>
+<p>"Damn it!"</p>
+<p>As the Barrier shook, I let out a low Curse. It's getting more and more disadvantageous, isn't it? This seemed to be Tetsu Kagerou's area, as all the sniping was directed at me. And judging by the blue light flickering on the Barrier every time a gunshot exploded, they seemed to be firing with Mithril Bullets.</p>
+<p>Mithril Bullets had a debuff that suppressed regeneration, making them a very dangerous Attack for me, who has a high Dependency on regeneration.</p>
+<p>Just then, Kurayamada Kirie's Voice, like a savior, reached me. -I'll take care of the snipers.</p>
+<p>As a former terrorist, she would know exactly where snipers would hide. If I could just hold out a little longer, it seemed I could seize the advantage.</p>
+<p>________</p>
+<p>B-cut~! Tetsu Kagerou and Named Characters~!</p>
+<p>Starting with Tetsu Kagerou~!</p>
+<p>Golden Hat</p>
+<p>Actually, she's a Character I made before Hertha Vogel hehe.</p>
+<p>Madwoman of Rest~!</p>
+<p>Chomisaemeonji-nim requested Arm in arm Liz, Cat Pose Liz~!</p>
+<p>Arm in arm~!</p>
+<p>Nyan Nyan Pose~!</p>
+<p>Kkiyot~!</p>
+<p>Gojoy-nim requested Chapter 32 Taira Yukiko 1. Sitting next to the sofa and talking, 2. Surprised after being asked on a Date~!</p>
+<p>Since it's a Scene of watching and listening, I made her Expression somewhat close to emotionless~! Sitting right next to her, as requested, doesn't come out well; only the last Illustration came out ㄷㄷ.</p>
+<p>2.</p>
+<p>I worked on her Appearance, blushing and surprised hehe.</p>

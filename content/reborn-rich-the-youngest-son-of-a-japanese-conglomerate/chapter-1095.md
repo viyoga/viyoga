@@ -5,83 +5,82 @@ weight = 1095
 chapter = 1095
 +++
 
-<p>-Yes, Disciple-ya. What is it?</p>
-<p>A few rings sounded, and soon Sabu Fujigasaki Rinka answered the Phone Call. From her Voice, she sounded peaceful, so it seemed nothing had happened to Sajo-nim in the meantime.</p>
-<p>"Sabu, I'm planning to leave New York tomorrow and head to California, but is Sajo-nim in a condition to travel by Airplane?"</p>
-<p>-Hmm.... I don't think so. No matter how quickly he's recovering, it's only been two or three days since he was rescued.</p>
-<p>Certainly, even if Sajo was recovering quickly thanks to the Black Sage's gaejo, his Body Condition wasn't such that he could simply shake it off and get up in just a few days. In that case, I'll have to leave Fujigasaki Rinka in New York and we'll head to California on our own.</p>
-<p>"Then, it seems Sabu can stay with Sajo and then come straight to Japan."</p>
-<p>-That's what I'll have to do. Before you go to the Airport tomorrow, stop by the Hospital.</p>
-<p>"Understood."</p>
-<p>After the Call with Sabu ended, I went up to my Room. Since I have to take an Airplane tomorrow, I should start packing my Luggage.</p>
-<p>The next day, having packed all our Luggage, we departed in a vehicle, seen off by the Federal Superpower Management Bureau agents we had grown quite close to. We left quite early before the Airplane's scheduled Time, to meet Fujigasaki Rinka and Sajo Soda Haruto before heading to the Airport.</p>
-<p>For reference, the Gwonmaeng People had an earlier Airplane Time than us, so they stopped by the Hospital first. They are probably on an Airplane heading to Japan by now.</p>
-<p>"I've struggled for several weeks, but now that I'm about to leave, I feel a little sad."</p>
-<p>"Really?"</p>
-<p>Seizawa Shii said it with a hint of regret, so I asked, surprised. I thought she would be sick and tired of New York, having to roam around every night doing vigilante Work.</p>
-<p>"I guess I just grew fond of it, having been here for a while."</p>
-<p>"I want to go back to Japan quickly, I really hate New York."</p>
-<p>Otagi Yuka shook her Head at Seizawa Shii's Words about growing fond of it, saying she hated New York. Otagi Yuka didn't seem to have very good Emotions because her friend had died in New York. And this vigilante Work must have been tiring too.</p>
-<p>Normally, Seizawa Shii would have snapped back, asking why she was tackling her, but knowing Otagi Yuka's Story about her friend dying in New York, she just clicked her Tongue with a "Chi~!" and let it go.</p>
-<p>"I like New York because there's a lot of delicious food~!"</p>
-<p>Naruse Shiyo said. In fact, since it was the USA, they mostly ate greasy, salty, and heavy foods rather than delicious ones. As a half-Korean Person, I craved kimchi so much that I bought it separately at a Mart and stocked up. Now, kimchi has become very common even in the USA, so it was easy to get.</p>
-<p>Others consumed calories by roaming New York every night doing vigilante activities, but Naruse Shiyo, who came as the leader of the Jooseodang, had almost no Body changes despite continuously sitting.</p>
-<p>Naruse Shiyo, being a Half-Dragon, seemed to have a constitution that didn't gain much flesh even if she ate such food excessively. Of course, I am also considered a big eater, but this was unavoidable due to my Regeneration Trait. I wasn't eating because I wanted to, but because of my regenerative power, so anyway, I wasn't a big eater.</p>
-<p>"You can eat things like Haembeogeo or Pizza in Japan too!"</p>
-<p>"Still, the taste of the homeland is different...! Especially the Mars Burger I ate this time, it was really delicious~!"</p>
-<p>"Ah, that's right! That was delicious...! I hate New York, but Mars Burger was good."</p>
-<p>"Shiyo-ppippi, Mars Burger was delicious for me too! I wish they had it in Japan...!"</p>
-<p>Ah, Mars Burger...! It was a Franchise created by Mother Mars, in which I had a Share. Among the Haembeogeo I ate during this New York Travel, it was indeed the most delicious. It was a Franchise only in the USA, so it was a pity it wasn't in Japan.</p>
-<p>Huh?! Should I bring Mars Burger to Japan? I have a Share in Mother Mars and a logistics network through Taira Food distribution, so bringing Mars Burger to Japan shouldn't be a Problem.</p>
-<p>Moreover, if the taste is this good, it seems it could successfully settle in Japan. The Conditions are quite right for me, so it might be worth pursuing.</p>
-<p>I had thought about meeting a Mother Mars representative while I was in the USA, but since there was no particular Matter, I was going to let it pass, but now I should meet them this time.</p>
-<p>"Shiyo, Contact the Mother Mars representative and tell them I want to meet."</p>
-<p>"Yes? Suddenly?"</p>
-<p>"Because you all said Mars Burger was delicious, I'll ask them what they think about opening a Branch in Japan."</p>
-<p>At my Words, the three who had been chorusing about how delicious Mars Burger was looked at me with quite moved Gazes.</p>
-<p>"Teacher-nim...! To go that far for me...♥"</p>
-<p>"Ryuta-ssi...!"</p>
-<p>"Ryuta-jji, you're the best after all!"</p>
-<p>I just said it because I thought the Business would do well, but because they liked it, they seemed to see me as some kind of romanticist trying to bring a Haembeogeo Franchise to Japan for their sake. Well, it's not a bad Mistake for me, so I'll let them keep thinking that.</p>
-<p>As we talked about Haembeogeo, we arrived at the Hospital before we knew it. We got out of the car and headed to the Hospital Room where Sajo Soda Haruto was lying.</p>
-<p>"Oh, you're here?"</p>
-<p>Sabu was sitting next to Sajo, reading a Book, and when we arrived, she closed the Book and greeted us. When I saw what Book it was, it was a Book with कामसूत्र written on it.... What kind of Book is it? I don't even know what Language it is.</p>
-<p>Surprisingly, Fujigasaki Rinka had a deep knowledge of various Languages; she said she learned many Languages to read documents from various Countries while practicing martial arts alone after Sajo went missing.</p>
-<p>"How do you do?"</p>
-<p>I first greeted the lying Sajo, then gave Fujigasaki Rinka a Gaze of greeting.</p>
-<p>"So, you're leaving New York...?"</p>
-<p>"Yes. I have Business Work. I think I'll see you next in Japan."</p>
-<p>"Doing Business even in the USA at such a Young Age.... How commendable."</p>
-<p>Soda Haruto looked at me with a warm gaze, as if he were looking at his grandson. Since I’m a Sasun (師孫), in terms of lineage, a grandson-like relationship is indeed accurate.</p>
-<p>Since he raised and taught the young Fujigasaki Rinka, Sabu would be like a Daughter, and since I am Fujigasaki Rinka's Disciple, he seemed to truly see me with a Grandson-like Feeling.</p>
-<p>Of course, he looks at me with such a Gaze because he has no idea that his Grandson had Sex with his Sabu.... Naturally, I was not at fault. I merely sacrificed (?) my Body to save Sabu.</p>
-<p>"You said you're going to California, right? Then LA?"</p>
-<p>After the Conversation with Sajo ended, Sabu asked me as if she had been waiting.</p>
-<p>Actually, I didn't have any specific Work in LA. Moss Tactical, where I had Work, was in Lancaster, north of LA, and Pasadena, where Mother Mars, whom I just decided to meet, was located, was attached to the northeast of LA, so saying LA made no difference.</p>
-<p>"I do have Work near LA."</p>
-<p>"Then don't stay anywhere else, you can stay at our Home. Since all the Gwonmaeng People have gone to Japan, you can stay at our Home."</p>
-<p>Ah, so she asked because of accommodation. Fujigasaki Rinka, true to being the GOAT of the fighting world, was quite wealthy. She owned a large Mansion overlooking the Malibu Coast, and I had stayed there before.</p>
-<p>Even though all the Gwonmaeng People had left, there were Seryu Military Company People in our Party, so even though it was quite a large group, there was also an Annex, so it seemed we could all stay.</p>
-<p>"I'll do that. Thank you, Sabu."</p>
-<p>"It's nothing.... I'll Phone Call the Mansion caretaker, so you can use it comfortably."</p>
-<p>After the Conversation with Sabu ended, the others standing nearby each began to greet Sabu.</p>
-<p>"Rinka-ppippi, thank you for the map."</p>
-<p>"Well, you learned well. But how long are you going to call me Rinka-ppippi?"</p>
-<p>I didn't know, but Seizawa Shii seemed to be calling Fujigasaki Rinka "Rinka-ppippi". This one really likes changing People's names....</p>
-<p>I heard that she fought werewolves during the New Rochelle incident, and Fujigasaki Rinka's guidance was quite helpful.</p>
-<p>"See you in Japan, Rinka-nim."</p>
-<p>"I, I also thank you for your guidance."</p>
-<p>Otagi Yuka and Seiwa Rieko also greeted them. It seemed Seiwa Rieko was politely greeting them because Fujigasaki Rinka and Shimokawabe Airen had helped with Seiwa Rieko's basic Training, which she had to do almost from scratch.</p>
-<p>"Rinka-nim! Please sign here!"</p>
-<p>Naruse Shiyo spread out the Shirt she was wearing and requested a signature. Naruse Shiyo, along with Kujo Kina, was such a huge fan of Fujigasaki Rinka that she demanded a signature every time she saw Sabu's Face.</p>
-<p>"You ask me to sign every time you see me, don't you?"</p>
-<p>"My Goal is to Spamming all my belongings with Rinka-nim's signature!"</p>
-<p>Fujigasaki Rinka, not seeming to dislike Naruse Shiyo's antics, smiled and signed her Shirt.</p>
-<p>"Rinka. See you in Japan."</p>
-<p>"Understood, Airen."</p>
-<p>With Shimokawabe Airen, who was a friend, they exchanged a simple greeting, but unlike the simple greeting, their Gazes at each other were filled with Friendship.</p>
-<p>After Kurayamada Kirie and the Seryu Military Company People also greeted Fujigasaki Rinka, we left the Hospital and got back into the vehicle heading to the Airport. It was now Time to leave New York and go to California.</p>
-<p>Gojoy-nim requested Kurayamada Kirie's first appearance Scene, and Shinoe Misano raising her Glasses Scene~!</p>
-<p>Kirie~!</p>
+<p>and chapter check contains erotic please surroundings this your</p>
+<p>A few days ago.</p>
+<p>"Surely you don't really think Ichiro and Gensuke are anti-Taira members, do you?"</p>
+<p>Taira Danjo, who had heard Taira Jiro's accusation against Taira Ichiro and his son Taira Gensuke, looked at Taira Jiro with a Sharp gaze and spoke.</p>
+<p>Normally, Taira Jiro would subtly avoid his father's gaze, but this time, he met Taira Danjo's eyes head-on.</p>
+<p>"No matter what I think, it is a fact that they caused trouble in Neo Tokyo, where the Group and Father are most dedicated."</p>
+<p>"And you're subtly slipping in your Mithril incident there too?"</p>
+<p>Of course, Taira Jiro's words were not wrong. Causing trouble in Neo Tokyo, where the Group was concentrating its Capability, was an action showing they had no Awareness of being part of the Taira Group. But adding to that the matter of him losing Mithril was no different from revealing that he lacked the Capability for Revenge.</p>
+<p>"Of course, I know that speaking to Father like this is not right. But in my current state of mind, if I were to take Revenge for the lost Mithril, I fear I would become too brutal. My child has not been dead for long, and I do not wish for Ichiro-hyungnim to also experience the sorrow of losing a child."</p>
+<p>"You insolent bastard! Are you Threatening your own father?!"</p>
+<p>At Taira Jiro's words, Taira Danjo shouted. It was a Threat, or something similar, implying whether it was alright for him to kill Taira Gensuke, who had carried out the Mithril attack as Revenge. Taira Danjo, who had been angry for a while, let out a small Sigh and then opened his mouth again.</p>
+<p>"Since Kitsumasa's situation is like that, I will overlook that insolent behavior just this once. Although I will not accept your excessive claim that Ichiro and Gensuke are anti-Taira members, it is also true that that bastard Gensuke caused trouble in Neo Tokyo, so this time, I will scold him instead. So now, get the hell out and prepare for your son's funeral!"</p>
+<p>"Thank you, Father."</p>
+<p>Despite Taira Danjo's harsh words to get out, Taira Jiro bowed his Head respectfully, then rose from his Seat. Of course, Taira Jiro also knew well that his asserted anti-Taira member theory would not be accepted.</p>
+<p>That Taira Danjo took charge of this matter was important, as it meant he no longer had to worry about the Mithril attack. Only then could he concentrate on uncovering the True Identity of the Assassin who killed his son, and their Mastermind.</p>
+<p>Deureureuk.</p>
+<p>As Taira Jiro closed the Door and left, Taira Danjo, as if troubled, closed his Eyes and pressed his Temples.</p>
+<p>"Fumimoto."</p>
+<p>"Yes, Chairman-nim."</p>
+<p>After organizing his thoughts for a moment, Taira Danjo opened his Eyes and called his first secretary, Fumimoto Takayuki. At Taira Danjo's call, Fumimoto Takayuki immediately opened the Door and entered.</p>
+<p>"That Guy Gensuke returned to Brazil, didn't he?"</p>
+<p>"That is correct."</p>
+<p>At Taira Danjo's question, Fumimoto Takayuki nodded his Head. Taira Danjo also knew well that he could not call Taira Gensuke to the Chiba Taira Main family right now, because he had already received a Report a few days ago that Taira Gensuke had headed to Brazil.</p>
+<p>"In that case, the Father must pay the Price for his son's Mistake. Fumimoto, call Ichiro."</p>
+<p>Eating the in-flight meals that appeared intermittently and continuing to Sleep soundly, I was able to arrive in Japan before I knew it. Although I slept on the Airplane, I was able to fully compensate for the Sleep I lacked due to Sex, so I felt quite refreshed.</p>
+<p>After completing the entry procedure, as I entered the arrival hall, familiar Faces were waiting for me.</p>
+<p>"Ryuta...!"</p>
+<p>"Older Brother, I missed you!"</p>
+<p>Alik, who came running, flew into my Embrace like a flying squirrel, and Tsukiyo also ran over and clung to one of my Arms. Alik clung to me and wouldn't let go, and Tsukiyo, with her adorable Hands, made a Fist and playfully tapped my Forearm, whining that she missed me.</p>
+<p>Looking at the two with a Smile, Sakagami Rena, who approached me, smiled and bowed her Head to me.</p>
+<p>"You've worked hard in the USA, Liege."</p>
+<p>Being greeted by Alik, Tsukiyo, and Sakagami Rena, I finally felt the Realism of being back in Japan. I stroked Alik's and Tsukiyo's Heads and opened my mouth to Sakagami Rena.</p>
+<p>"I'm back. Let's go Home now."</p>
+<p>Returning to the mansion in Neo Tokyo, I intended to organize what I had gained from this trip to the USA and receive a Report on the situation in Japan.</p>
+<p>Taira Jiro, taking only his secretary Tateyama Genta, headed to the morgue in the Underground of Taira Hospital. Because the Corpse should not decompose before the funeral, the temperature was low starting from the corridor of the morgue.</p>
+<p>Cheolkkeok.</p>
+<p>As Tateyama Genta opened the morgue Door, Taira Jiro tidied his Appearance and entered the morgue.</p>
+<p>In the Middle of the morgue, there was an Iron coffin made of special Metal. It was a coffin that continuously supplied Cold energy and contained the Corpse of Taira Jiro's son, Taira Kitsumasa.</p>
+<p>"Oh, you've arrived...?"</p>
+<p>The morgue manager spoke, observing Taira Jiro's Awareness with his Face hardened. Taira Jiro nodded his Head without an Answer and approached the coffin. And he began to stroke the cold Iron coffin.</p>
+<p>"...."</p>
+<p>Taira Jiro's Gaze was deeply sunken, so it was impossible to know what he was thinking. The morgue manager and Tateyama Genta could only observe Taira Jiro's Awareness.</p>
+<p>Cheolkkeok!</p>
+<p>Thus, enveloped in Silence, the morgue Door was roughly opened. And a middle-aged woman entered, almost embracing the coffin, and began to wail.</p>
+<p>"Kitsumasaa!! My Son...!"</p>
+<p>It was Urata Rie, Taira Jiro's ex-wife and Taira Kitsumasa's biological mother. Urata Rie, after embracing the coffin and crying for a long Time, glared at Taira Jiro.</p>
+<p>"You! Because you unnecessarily sent my son overseas, this Child ended up like this... This is what he became!"</p>
+<p>"I only wanted to give my son an Opportunity."</p>
+<p>Even at Urata Rie's blaming Words, Taira Jiro answered coldly. Although his Mind was not undisturbed before his son's coffin, he didn't want to show weakness to his divorced ex-wife, so he spoke even more coldly.</p>
+<p>"Can I see my son's Face...?"</p>
+<p>Well... because the Shinigesho (funeral makeup) hasn’t been done yet...</p>
+<p>Shinigesho means makeup for the deceased, but more broadly, it also meant things like restoring the Acquaintance of someone who died in an Accident.</p>
+<p>Taira Kitsumasa's current state, having been hit by the Assassin's Bullet in his Forehead and Heart, was clearly a mess, so even the morgue manager, despite it being a Request from Taira Jiro, one of the Taira Group's Successors, gave a reluctant Answer.</p>
+<p>"That is why I want to see him. What kind of Wound my son suffered.... Only by knowing that can I take Revenge."</p>
+<p>"Understood...."</p>
+<p>At Taira Jiro's Words, the morgue manager began to open the coffin. As it was a specially made coffin, it only opened when a Password was pressed, and as the top of the coffin split open on both sides, white Cold energy like Fog surged up.</p>
+<p>Taira Jiro and Urata Rie were looking inside the white Cold energy Fog. As the manager pressed the Button to cut off the Cold energy supply, the white Fog disappeared, and Taira Kitsumasa's Appearance was revealed.</p>
+<p>"...."</p>
+<p>"Ki, Kitsumasa?!"</p>
+<p>The revealed Corpse of Kitsumasa was a mess. His Forehead was caved in as if pressed by a hydraulic Press, and his breast was also caved in, with all the ribs protecting his Heart crushed.</p>
+<p>"Kitsumasaaa!!!"</p>
+<p>Urata Rie fainted while calling her son's Name, but Taira Jiro didn't even glance that way. He was merely observing how his son had died with a cold Gaze.</p>
+<p>"It's the Skill of an Expert. Isn't it?"</p>
+<p>"That is correct. Not one, but both shots were fired at fatal Positions; it seems to be the work of a very high-level Assassin."</p>
+<p>"Time is needed to Handle my son's Face, so the funeral cannot be held immediately. Let's hold the funeral tomorrow."</p>
+<p>"Understood. You heard that, didn't you? You will have to complete the Shinigesho by tomorrow."</p>
+<p>At Taira Jiro's Words, Tateyama Genta spoke, looking at the morgue manager, who was looking at the fainted Urata Rie with a bewildered Expression; the morgue manager, startled, nodded his Head.</p>
+<p>"O-of course! I will prioritize it above all else...!"</p>
+<p>"I'll leave it to you."</p>
+<p>Taira Jiro took out a dozen 10,000-yen bills from his Wallet and handed them to the morgue manager, then came Outside the morgue.</p>
+<p>"I don't know who it is yet, but I will make them feel the same pain as I felt, no, even greater pain. Tateyama, Tracking them as quickly as possible."</p>
+<p>"Understood! I will definitely find the Assassin who made the Young Master like that."</p>
+<p>At Taira Jiro's Words, Tateyama Genta, with a firm Expression, nodded his Head and answered. His Expression showed a Determination to make the one who committed this Incident taste pain without fail.</p>
+<p>Requested by Gojoy-nim: Shinoe Misano seen from the passenger seat, Suzuki Chisami talking about Work~!</p>
 <p>Shinoe Misano~!</p>
-<p>Surprisingly, grabbing the Glasses works well hehe.</p>
+<p>Suzuki Chisami~!</p>
+<p>Requested by TheDreaming-nim: Eve in prison 1. Zero Two 2. Sitting and covering her groin~!</p>
+<p>1.</p>
+<p>2.</p>

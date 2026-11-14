@@ -5,93 +5,73 @@ weight = 1051
 chapter = 1051
 +++
 
-<p>"All the Vampires in this vicinity have been exterminated!"</p>
-<p>Allen Matthews, the New York Branch Manager of the SPF, a man in thick Knight Armor, raised his massive War Hammer and shouted.</p>
-<p>"Waaaaaah!!"</p>
-<p>Despite his old Age, Allen Matthews' New York Branch subordinates, who saw him leading the Vanguard, crushing Vampires with physical Abilities surpassing humans after undergoing various Body Modification procedures by the SPF, gazed at Allen Matthews with respectful Eyes and let out a Shout.</p>
-<p>Especially Squire Maynard Rafael, who had recently risen to prominence in the New York SPF, was a Vampire Hunter who revered Allen Matthews almost more than a Father. Maynard Rafael, who had lost his family to Vampires in childhood and was taken in by the SPF to walk the path of a Vampire Hunter, deeply admired Allen Matthews, who insisted that no Vampire should be left alive.</p>
-<p>Perhaps because of this, he had the nickname Squire, meaning Allen Matthews' retainer, as he fought in Knight attire.</p>
-<p>Last year, the Vampire Hunter unit, Jack Henderson's Party/Group, dispatched to Japan, went missing (presumed dead by the New York SPF), and the New York SPF's strength was significantly reduced, but with the rise of the prospect Maynard Rafael, he was now filling the void left by Jack Henderson's team quite well.</p>
-<p>"Are you going to look for the Fragment of Omniscience now, Branch Manager-nim?"</p>
-<p>"...."</p>
-<p>To Maynard Rafael's Question, Allen Matthews did not Answer, but raised his Hand. Then, he lifted his War Hammer and pointed to one side.</p>
-<p>"There's something over there. A non-human Existence is watching us."</p>
-<p>Allen Matthews, who hated Vampires and other non-human Existences more than anyone, had undergone magical Modification to his Eyes to discern non-human beings, so he knew at a glance that the one watching them now was not human.</p>
-<p>"I want to deal with it myself, but if I do, time will be delayed, and there's a Possibility of losing the Fragment of Omniscience. That non-human, Rafael, I'll leave to you."</p>
-<p>The Fragment of Omniscience was quite an important item for the SPF. To prevent Vampires, who called it the Book of Completion, from obtaining it, they believed it was best for the SPF to manage the Fragment of Omniscience. Also, since the SPF had Magicians, all Vampire Hunters operating in and around New York had gathered in New York. Besides the Vampires just dealt with, others would be Tracking the Fragment of Omniscience elsewhere, so there was no time to delay here.</p>
-<p>"Understood. I will deal with it and follow immediately."</p>
-<p>Maynard Rafael nodded his Head with a trustworthy Appearance, as if to say, 'Just leave it to me.' Allen Matthews, as if reassured, patted Maynard Rafael's Shoulder, then moved with his elite unit towards the direction the Fragment of Omniscience was heading, to join the battle for its acquisition.</p>
-<p>"Attention! The Goal is everything living Inside the House over there. Understood?"</p>
-<p>"Understood!"</p>
-<p>Maynard Rafael pointed to the House Allen Matthews had mentioned and shouted to the remaining SPF Vampire Hunters. Even if there was only one non-human and the rest were humans, they all had to be eliminated.</p>
-<p>Because infection might occur. From a Vampire's perspective, even if they appeared human, they could have become Vampires or Spawns controlled by Vampires, so the SPF usually made it a basic Rule to thoroughly examine humans close to Vampires.</p>
-<p>However, this was the New York Branch, controlled by hardliners. Ignoring the Rule to examine, the Branch's basic Action was to eliminate all humans in the same space as Vampires.</p>
-<p>The Vampire Hunters ran towards the front and Backdoor of the House, giving Hand Signals to each other.</p>
-<p>Their plan was to encircle and Attack from front and back, but that Method failed. The Vampire Hunters who were passing the Side of the House to go to the Backdoor were attacked as the Wall burst open.</p>
-<p>Kwaaaah!</p>
-<p>Perhaps not expecting a Hand to suddenly burst from the Wall, the Vampire Hunter was grabbed by the Neck like Prey caught by a Predator.</p>
-<p>"Sweep team! Fire at the spot where the Wall burst open!"</p>
-<p>At Maynard Rafael's Command, the sweep team showed a slightly flustered Expression.</p>
-<p>"But then Billy...!"</p>
-<p>The sweep team's Role was to deal with the large number of Spawns created by Vampires with concentrated machine gun fire, so if they fired, their captured fellow Vampire Hunter would also be riddled with Bullets.</p>
-<p>Even the hardline New York SPF knew the value of their colleagues, so they hesitated.</p>
-<p>"Do it if I tell you to!"</p>
-<p>When Maynard Rafael shouted, the sweep team squeezed their Eyes shut and began firing.</p>
-<p>Tututututung!!</p>
-<p>Flame erupted from the machine gun Muzzle, grinding the House itself to pieces. Naturally, the captured fellow Vampire Hunter became minced meat, dripping Blood, and it was thought that the non-human Existence who had grabbed the colleague was also either dead or close to a dying state.</p>
-<p>"I'm curious what it is. Bring it out!"</p>
-<p>All the Vampires had been dealt with, so it wouldn't be a Vampire. If it were a werewolf, it would have rushed out, unable to control its temper when the SPF unit approached. So Maynard Rafael was curious about what kind of Existence was hidden in this ruined House.</p>
-<p>"You bastards! I almost died! At least introduce yourselves before fighting!!"</p>
-<p>As the Vampire Hunters approached the House on Maynard Rafael's Command, someone burst out from within, along with a Shout and the Remains of the House exploding.</p>
-<p>"Japanese?!"</p>
-<p>Since the unknown Existence shouted in Japanese, not English, Maynard Rafael tilted his Head in puzzlement, then soon understood, assuming it was a Japanese faction dispatched to obtain a fragment of Omniscience.</p>
-<p>The unknown Existence, who burst out like a Bullet, swung a peculiar Weapon that was neither a Spear nor a Sword at the nearest Vampire Hunter.</p>
-<p>"Kwaaaah!"</p>
-<p>"Wings?!"</p>
-<p>Maynard Rafael wasn't particularly concerned about the Vampire Hunter, who was cut horizontally, spilling Internal Organs, and Screaming in Pleasurable Ache; he was more concerned about the unknown Existence flapping its Wings.</p>
-<p>The Existence hovering in the night Sky, flapping its Wings, was a humanoid Woman with Horns and Wings. Because of the Wings and Horns, she didn't initially catch the Eye, but she possessed a remarkably beautiful Appearance. However, her Gaze was shining intensely, as if enraged by the sudden machine gun Attack.</p>
-<p>"A Demon?"</p>
-<p>To Maynard Rafael, the Existence with both Horns and Wings similar to Bat Wings could only be a Demon at this moment.</p>
-<p>"A Demon?! How rude!"</p>
-<p>As if hearing Maynard Rafael's Words, the enraged Demon Woman shouted. Then, flying at incredible speed, she swept past the Vampire Hunter aiming a machine gun and severed his Neck.</p>
-<p>The severed Neck rolled away, and the Expression on it held no Emotion of surprise, as if he hadn't even realized he had died.</p>
-<p>"D-Damn it! Attack! Everyone, Attack!"</p>
-<p>At Maynard Rafael's Words, everyone fired at the Demon Woman, but it was difficult to hit her as she traversed the empty space at incredible speed.</p>
-<p>"Use the Sure-Hit Sorcery and silver bombs!"</p>
-<p>Maynard Rafael shouted, and he too, as he had commanded his subordinates, chanted the Sure-Hit spell with his Mouth while throwing a silver bomb into the empty space from his Embrace.</p>
-<p>Peong! Peong! Peong!</p>
-<p>The silver bombs thrown by Maynard Rafael and his subordinates exploded, scattering silver powder across the Sky. The glittering silver powder, reflected by the crescent moon, was as beautiful as the Milky Way.</p>
-<p>A silver bomb was a bomb that turned silver, a Panacea effective against unholy beings, into powder and spread it over a wide area with an explosion.</p>
-<p>"What?! Are you creating smoke for me to hide in?"</p>
-<p>However, the Demon Woman, speaking incomprehensible Japanese, instead hid her Body in the explosion's smoke at the center of where the silver bomb had burst. Then, she suddenly dived, grabbed one person, and soared into the Sky.</p>
-<p>"Kwaaaah!"</p>
-<p>The Vampire Hunter who soared into the Sky with the Demon Woman fell onto his comrade, becoming a bloody pulp. Naturally, the comrade crushed beneath him also died from compression. The one crushed by the fallen Vampire Hunter was from the sweep team, holding a machine gun.</p>
-<p>"Fire!"</p>
-<p>Maynard Rafael, having finished chanting all the Sure-Hit Sorcery, shouted, then he too aimed his Gun at the Sky and began firing.</p>
-<p>Tatatatang!</p>
-<p>When Vampires transformed into Blood fog or were difficult to hit with movement techniques, what Vampire Hunters used was precisely the Sure-Hit Sorcery.</p>
-<p>It was also the Sorcery most commonly learned by intermediate Vampire Hunters who could use basic Sorcery.</p>
-<p>Of course, despite its name 'Sure-Hit,' it wasn't a spell that guaranteed a hit in any Situation, but it significantly increased accuracy and even granted a slight Tracking Ability, so he thought it would be effective this time too.</p>
-<p>As the Vampire Hunters created a barrage of fire, Bullets began to hit the Demon Woman flying in the Sky. Of course, her speed made the accuracy terrible, but it was encouraging that she was still being hit a few times.</p>
-<p>Judging by her freely moving through the silver bomb's smoke, she didn't seem to suffer significant harm from silver, but she couldn't ignore the physical force of silver Bullets.</p>
-<p>"It stings!"</p>
-<p>The Demon Woman, who shouted in Japanese once more, fiercely swung a Weapon that was neither a Sword nor a Spear.</p>
-<p>-Shiyo-style Dragon Claw Flow: Hundred-Mile Dragon Flash.</p>
-<p>At that Moment, a white light erupted from the Weapon the Demon Woman wielded.</p>
-<p>Naruse Shiyo B-cut~!</p>
-<p>Honestly, to someone who doesn't know she's a Dragon-human, she really does look like a Demon hehehe.</p>
-<p>MidNightSKY-nim requested Waterbomb attire Shii Lisa~!</p>
-<p>Shii~!</p>
-<p>Lisa-ttang~!</p>
-<p>RefundNeverPossible-nim requested Crop Top + Pantyhose Lisa, Teacher Gajeong (Lisa's model) made from the original illustration.</p>
-<p>Lisa~!</p>
-<p>Teacher Gajeong~!</p>
-<p>Strangely, illustrations with only Pantyhose don't seem to come out ㄷㄷㄷ</p>
-<p>TheDreaming-nim requested Herta Vogel 1. Appearance stuck in the Wall 2. Breast being touched~!</p>
-<p>1.</p>
-<p>Since the Background is an Art Museum (prompted as Art Museum), her Hair Dyeing and paint appear on the Wall hehe.</p>
-<p>2.</p>
-<p>Chomisaemeonji-nim requested 1. Liz taking off her Top 2. Liz taking off her Bottoms~!</p>
-<p>1.</p>
-<p>2.</p>
-<p>Due to a Pantyhose Pussy error, I'm only uploading two images each~!</p>
+<p>Phantom Thief François, with the Book of All-Knowledge tucked under his Side, looked down with an arrogant air at the Fragment of All-Knowledge contenders outside the Building's window. And without a word, he turned his Body, entered the Building, and began to flee.</p>
+<p>"Chase him!" "The Fragment of All-Knowledge is mine!"</p>
+<p>Chasing Phantom Thief François, two of the Magicians brushed past Fujigasaki Rinka, entered the Building's broken window, and began to chase Phantom Thief François.</p>
+<p>"You cannot escape."</p>
+<p>Attacked by the Fragment of All-Knowledge contenders, his Robe torn in places, the Black Sage, as if regaining his senses, spoke softly and extended his staff towards the window where Phantom Thief François had fled.</p>
+<p>From the Black Sage's staff, where purple Flame flickered, purple fireballs began to be fired in rapid succession.</p>
+<p>Kwakwakwakwang!</p>
+<p>The fireballs that hit the Building began to destroy and collapse the Building. From inside the Building, the screams of several Magicians who had chased Phantom Thief François inside seemed to be heard.</p>
+<p>Kureureureu...!</p>
+<p>From the shock of the explosion, the only Building that stood tall in these Ruins began to collapse. Phantom Thief François, who had been in the Building just moments ago, seemed unlikely to be safe, but before the Building collapsed, Phantom Thief François broke the window on the opposite side and began to fly away.</p>
+<p>Because he was Phantom Thief François, who had stolen countless Treasures, he possessed a Treasure that granted him the Ability to fly in the sky.</p>
+<p>"Everyone, chase him!"</p>
+<p>Seeing Phantom Thief François flee, a Magician, now only one of about four remaining, shouted. Following the Magician's cry, the Magicians, the Lizardman Warlord, the Vampire Grand Duke, and even the SPF New York Branch Chief began to chase Phantom Thief François.</p>
+<p>The Black Sage, with an unhurried Expression, watched the Fragment of All-Knowledge contenders and Phantom Thief François disappear into the distance. The purple fireballs he had just used were a smokescreen, and while the Building was collapsing, the Black Sage had enveloped the Surroundings with a Barrier, using a spell to prevent escape.</p>
+<p>Even as everyone chased Phantom Thief François, Fujigasaki Rinka was watching only the Black Sage. The Black Sage, too, had a history of being caught off guard by ignoring Fujigasaki Rinka, so he couldn't move rashly.</p>
+<p>If both of them had been in perfect condition, the Black Sage would have been confident in easily defeating Fujigasaki Rinka in a fight, but having been distracted by the Fragment of All-Knowledge and allowed several attacks, he now had to be careful.</p>
+<p>Moreover, it wasn't just about winning the fight; he had to kill the remaining flies and claim the Fragment of All-Knowledge, so he had to fight while conserving his power.</p>
+<p>"Black Knight.... No, I'll tell you Soda Haruto's Position. Just leave."</p>
+<p>The Black Sage knew that Fujigasaki Rinka had come looking for the fake Black Knight, Soda Haruto, so he said he would tell her Soda Haruto's Position if she would just leave.</p>
+<p>Killing Fujigasaki Rinka was something he could do anytime if he obtained the Fragment of All-Knowledge, so the Black Sage had no intention of wasting power and time fighting Fujigasaki Rinka right now.</p>
+<p>"Soda Haruto is to the west of this Place. If you just go west from here, you will be able to meet your beloved Sabu."</p>
+<p>The Black Sage, without even waiting for Fujigasaki Rinka's Answer, immediately told her Soda Haruto's Position.</p>
+<p>Hearing the word "west" from the Black Sage, Fujigasaki Rinka smiled broadly. Her trustworthy Disciple was already there.</p>
+<p>With her Disciple's Skill, she would be able to capture her Sabu, who had been imprisoned for over a decade. Fujigasaki Rinka decided to entrust her Sabu to her Disciple, who had already headed west, and now chose to confront the Black Sage before her.</p>
+<p>"For Sabu's boksu, and to prevent your wicked self from obtaining the Fragment of All-Knowledge, I will kill you. Since I've found Sabu's Position, I can take my time now."</p>
+<p>Fujigasaki Rinka took the Opening Ceremony stance of Shinkaiyatsude and replied to the Black Sage's Proposal. The Black Sage was already strong, and if he even obtained the Fragment of All-Knowledge, she thought he would be unstoppable next time.</p>
+<p>Fujigasaki Rinka guessed the Black Sage's sinister Inner Thoughts and believed that the Black Sage, having obtained the Fragment of All-Knowledge, would surely seek boksu, so she decided to focus on eliminating the Black Sage rather than her Sabu.</p>
+<p>"Foolish one. Your Sabu could be harmed here." "Try it."</p>
+<p>No matter how quickly he used magic or jusul, doing so in a direct combat Situation like this would expose a huge Gap, so she dared him to try.</p>
+<p>"It seems I've been underestimated. Fujigasaki Rinka, O Fist Saint of Japan. I will show you a Death you have never seen before. And after killing all those flies, I will ascend to the sky...!"</p>
+<p>The Black Sage swung his staff and began to inject Energy into the Book of Lamentations.</p>
+<p>"Purple Flame Bullet (Ja-Yeomtan)."</p>
+<p>As the Black Sage muttered softly, purple fireballs began to erupt from his staff. It seemed the name of the purple fireballs he had used until now was Purple Flame Bullet.</p>
+<p>-Zeua....yeom....tan...!</p>
+<p>Simultaneously with a sound from the Book of Lamentations, as if it were speaking while weeping, Purple Flame Bullets also erupted from the Book of Lamentations.</p>
+<p>It was Lamentation Echo, one of the Book of Lamentations' Abilities. After filling the Book of Lamentations with Energy, if the Master uttered a spell, the Book of Lamentations had the Ability to repeat the Master's spell once more.</p>
+<p>No matter how powerful a spell the Book of Lamentations' Master used, by merely using the Energy injected into the Book of Lamentations, an additional spell could be cast.</p>
+<p>In an instant, so many Purple Flame Bullets that they dyed the sky purple floated in the empty space.</p>
+<p>"Burn until Death!"</p>
+<p>Simultaneously with the Black Sage's shout, thousands of Purple Flame Bullets were fired at Fujigasaki Rinka.</p>
+<p>Kwakwakwakwang!!</p>
+<p>The half-collapsed Building disappeared without a trace, and the northern part of New Rochelle, where thousands of Purple Flame Bullets had been fired, was riddled with countless craters, with even the trace of it once being a City now gone.</p>
+<p>Thanks to the Barrier deployed to prevent Phantom Thief François and the remaining Fragment of All-Knowledge contenders from escaping, the rest of the New Rochelle area suffered no harm, but this vicinity, as if hit by an intense Bombardment, saw about 80% of human civilization's creations completely vanish.</p>
+<p>By the explosion, to the extent that the moon was obscured, smoke and Dust surged upwards. The Black Sage, watching the smoke and Dust rise from the spot where Fujigasaki Rinka had been, smiled.</p>
+<p>Perhaps because the Purple Flame Bullet attacks were so heavily concentrated on Fujigasaki Rinka's position, everything in that vicinity melted and boiled like lava. At this level, even the world's strongest fighter would not have survived.</p>
+<p>"Haap!"</p>
+<p>But the Black Sage's thought was wrong. Fujigasaki Rinka appeared, parting the thick smoke. Of course, it wasn't as if she had suffered no harm at all; her cyber Suit was torn in places, and perhaps her helmet had shattered and flown off, as she wore nothing on her Head. As the helmet shattered, a wound appeared on her Face, and blood was flowing.</p>
+<p>Fujigasaki Rinka, without hesitation, thrust out a fist blazing with the Abyss.</p>
+<p>-Shinkaiyatsude (Deep Sea Eight Arms) Choksimpagong (Touching the Deep Sky Break: Deep Touch Sky Break).</p>
+<p>Before the Black Sage could even prepare, conical Abyss Energy poured out, sweeping over the Black Sage. The Choksimpagong fired by Fujigasaki Rinka not only swept over the Black Sage, but also directly struck the Barrier created by the Black Sage, causing cracks to appear in the Barrier.</p>
+<p>"That way!"</p>
+<p>Unable to escape due to the Barrier, excluding the Magicians who had been swept away and killed by the Black Sage's Purple Flame Bullet explosion, the surviving Phantom Thief François, Lizardman Warlord, Vampire Grand Duke, SPF New York Branch Chief, and one surviving Magician ran towards the cracked Barrier.</p>
+<p>"You cannot escape."</p>
+<p>Just as Fujigasaki Rinka had survived the Black Sage's Purple Flame Bullet barrage, the Black Sage also endured Fujigasaki Rinka's Choksimpagong and headed towards the Fragment of All-Knowledge contender.</p>
+<p>Of course, the Black Sage was not unharmed either. His jet-black Robe was almost in tatters, and his Legs, unprotected by the Robe, had been swept by Fujigasaki Rinka's Choksimpagong; his left was gone, and his right was tattered.</p>
+<p>Despite such a considerably fatal condition, the Black Sage used magic without faltering.</p>
+<p>"Purple Flame Line (Ja-yeom-seon)."</p>
+<p>-Zeua...yeom...seon...!</p>
+<p>The moment the Black Sage uttered the spell, a purple ray of light was fired. The purple ray half-vaporized the Vampire Grand Duke, who was transforming into blood fog and flying away, and heated and melted the SPF New York Branch Chief's thick gisa Armor.</p>
+<p>The Purple Flame Line ray, continuously To Performed by the Book of Lamentations, was fired at Fujigasaki Rinka, who was chasing the Black Sage.</p>
+<p>But Fujigasaki Rinka, who was not letting her guard down, dodged the Purple Flame Line with swift movements. However, because she moved quite significantly to avoid the ray, the distance between her and the Black Sage widened considerably.</p>
+<p>"This is the end...!"</p>
+<p>The Black Sage fired a Purple Flame Line at the remaining Fragment of All-Knowledge contender, the Lizardman Warlord, and the Purple Flame Line fired by the Book of Lamentations was shot at the Magician.</p>
+<p>"Kuaaaak!"</p>
+<p>Chaenggeurang!</p>
+<p>The Lizardman Warlord swiftly dodged, but because the magic was activated so close, his Arm and Torso on the side holding the trident were pierced, and he collapsed. The Magician couldn't even dodge and evaporated in the Heat of the Purple Flame Line.</p>
+<p>In an instant, watching two skilled individuals who had been chasing him die by the ray, Phantom Thief François couldn't help but be startled.</p>
+<p>The Black Sage extended his staff, aimed it at Phantom Thief François's Head, and opened his mouth.</p>
+<p>"If I blow off your Head, you won't be able to escape. Purple Flame Line...!" The Black Sage's staff glowed purple and a Purple Flame Line ray was fired at Phantom Thief François's Head.</p>
+<p>Fujigasaki Rinka B-cut~! Today, I'll upload them in a special collection style hehe. While trying to create one of these, I thought it would be good if there was blood on her Face, so I made it again hehe. Requested by TheDreaming-nim, Oofuchi Erika in the Auditorium 1. Hand Play. 2. Breast thrust. 1. 2. Requested by Gojoy-nim, Shinoe Misano 1. Spreading her Legs on the desk~! 2. Leaning on the desk, exhausted. 1. When I typed "wet panties," her Pussy was completely visible, so I excluded "wet panties"~! 2. I had expected her to be completely slumped against the desk, but this isn't bad either hehe.</p>

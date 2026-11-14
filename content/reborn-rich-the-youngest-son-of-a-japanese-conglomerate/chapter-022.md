@@ -5,49 +5,81 @@ weight = 22
 chapter = 22
 +++
 
-<p>"Do you think that's all? I know everything about you. Why do you think the Suit you're wearing right now fits you perfectly? Your close classmates, the trashy grades you've received all this time.... There's nothing I don't know about you!"</p>
-<p>No. Grandfather wouldn't know me. I'm not the Hata Ryuta Grandfather knows, but ■■■. I rebutted Taira Danjo's Words internally, but of course, I didn't voice them. Because if I were to say I had been Possession into a game world, it was clear that not just Taira Danjo, but even my mom, would immediately Hospitalize me in a Mental illness ward.</p>
-<p>But looking at the Story's content, it seemed Danjo Grandfather had surprisingly been watching me all along. Considering he knew about my school friends and grades. It's a little creepy, but this must be Taira Danjo's own way of showing Affection.</p>
-<p>"So, what do you want, Grandfather?"</p>
-<p>"From now on, you are Taira Ryuta. You were registered in Saburo's family register since you were born."</p>
-<p>Is that possible? That would mean I have two family registers. There were these two Statuses: Jin Yong-tae, son of Jinmija-ssi, and Taira Ryuta, son of Taira Saburo. Two passports too, then? Before I even had a chance to think about this Information, Taira Danjo continued speaking.</p>
-<p>"I've already contacted that small, dirty company you were going to, telling them you can't go. You were supposed to start Going to Work three weeks from now, right? From three weeks from now, you'll be Going to Work here."</p>
-<p>Saying, 'Yeah, you can't go to the company you were planning to~,' he casually tossed me an employee ID card. Picking it up, I read 'Taira Ryuta, Employee of Taira Group Talent Development Institute' written on the ID card. It was good that my Affiliation changed from a Small-to-Medium enterprise to a megacorp. Still, the fact that I start Going to Work three weeks later hasn't changed.</p>
-<p>"Your father Saburo has no property of his own. If you want to receive anything, you'd better Work hard."</p>
-<p>Ah.... To me, who had been excitedly expecting, 'What could the Legacy be?', it was a thunderclap. Taira Danjo Grandfather left, leaving only the employee ID card. Ah, Saburo-ssi, why did you pass away penniless without saving some Money beforehand?</p>
-<p>There was a bit of a commotion because of Grandfather, but soon a monk came to give a Kaimyo (posthumous Buddhist name), and all eyes turned to him.</p>
-<p>To briefly explain Kaimyo, it's a Buddhist name similar to a Dharma Name, and it's said that a deceased person needs a Buddhist name, a Kaimyo, to achieve Nirvana After Death. In Japan, when a funeral is held in the Buddhist style, a monk comes and bestows a Kaimyo. It's also said that the high Cost of Kaimyo has become a social Problem.... But for this Family/Household, Money is overflowing, so it's probably an irrelevant Story.</p>
-<p>Well, I wasn't interested in that, so I spent the time having a Conversation with my mother.</p>
-<p>According to my mother's Words, she had a brief Fate with my father, Taira Saburo, during their University days, dated for about a year, then broke up, and only later found out she was pregnant with me. On the contrary, Taira Saburo, upon hearing the news, said he would take Responsibility, but my mother refused. She said she disliked a Marriage without Love. Still, since I was half Saburo's child, she said she received Child Support from Saburo. That's how she was able to live without want.</p>
-<p>To my Question, 'Then why couldn't I go to University?', Jinmija-ssi said I had arbitrarily assumed we were a single-parent Family and that our Family/Household was poor.</p>
-<p>So, she said I hadn't even thought about University in the first place, and therefore hadn't Studied. No matter how much Mom said, 'Yong-tae, I have the Money to send you to University,' I didn't believe her.... This Jin Yong-tae bastard.... He was a fool. He should have just believed Mom when she spoke, instead of making his own Assumptions and not Studying.</p>
-<p>As I was talking with my mother, two middle-aged men approached us. One was small but had the sharp, intellectual feel of a man wearing Glasses, and the other was a large-sized man who felt like a modern samurai.</p>
-<p>"You must be Ryuta. I am your eldest paternal uncle, Taira Ichiro. And this is your second paternal uncle, Taira Jiro."</p>
-<p>"Hello."</p>
-<p>"You're handsome, I wonder who you take after."</p>
-<p>"Saburo also had a decent Face."</p>
-<p>The small, intellectual one was Taira Danjo's Eldest son, Ichiro, and the large-sized one was Jiro. Both praised my Face and acted friendly, but their Eyes watching me were cold. That was natural. The vast Empire that was the Taira Group could only be inherited by one Person. They had been pleased that the third son had died, but now that his bastard son had appeared, they certainly couldn't think well of it.</p>
-<p>"I have Words to say to your mother, so why don't you go over there and greet your Cousins?"</p>
-<p>In the direction Ichiro pointed, there were several young people. All of them seemed older than me. Since Taira Danjo had three sons and three Daughters, and Taira Saburo was the Youngest, there was a Possibility that I was the youngest in the Taira Family. If my Hypothesis was true, then I was also the Youngest son of a megacorp, just like in a drama or game title. I wondered if this was a coincidence.</p>
-<p>I approached my Cousins. The oldest one appeared to be in his early thirties, and most were in their mid-to-late twenties. There were also Mixed Blood individuals from Foreign Country, like me, which suggested Taira Danjo's philosophy was that as long as his own Blood flowed, it didn't matter if other Blood was mixed in. Of course, as an East Asian, my Mixed Blood didn't show at all, but among my Cousins, there were Caucasian Mixed Blood and Latin Mixed Blood individuals.</p>
-<p>"You're Ryuta? Since your father passed away, you must have the highest Succession Ranking among us here."</p>
-<p>"What are you talking about? Tabenobu-oppa (為宣) is the best. Do you think I don't know he inherited a small share from our eldest uncle?"</p>
-<p>They're showing an absurd sight, discussing Succession Ranking from the very first meeting. Even though the parent generation hasn't even inherited the Chairman position yet. For reference, Tabenobu, Ichiro's Eldest son, was at a Taira Group branch in the USA, so he couldn't come to the funeral.</p>
-<p>There's no need to discuss serious matters like succession in our first meeting. I am Yuuichi Taira (平 裕市), the eldest son of Jiro Taira.</p>
-<p>Here, Yuuichi, the oldest at thirty-something, introduced himself, and then everyone else began to introduce themselves. For reference, Taira Yuuichi, unlike the son of the large-sized Jiro, had a small Physique and gave off an academic vibe.</p>
-<p>The others also introduced themselves, but honestly, they weren't people I particularly cared about, so I just remembered their Names and moved on. It was also a bit dizzying that all their surnames were Taira, Taira, Taira.</p>
-<p>Excluding Taira Yuuichi, who introduced himself first, there were two people worth remembering. Of course, my criteria for remembering were their Appearance, specifically beautiful Women.</p>
-<p>The first was the woman who raised Tabenobu in the recent conversation, Taira Kisa (平 樹沙), the first child of Taira Kokoro (平 真心) and Taira Danjo's eldest daughter. She was pretty but seemed spirited, and it was said that she was doing well after launching her own clothing brand.</p>
-<p>While in Japan, women usually take their husband's surname upon Marriage, Taira Kokoro, Taira Kisa's mother and Taira Danjo's Eldest daughter, maintained the Taira surname instead of taking her husband's. Instead, her Nampyeon entered as a Son-in-law and took the Taira surname. Thus, gossips were speculating that Taira Kokoro harbored ambitions for the next Chairman position of the Taira Group.</p>
-<p>The second Woman I noticed was Arisu Fitzgerald, who was almost entirely Caucasian Mixed Blood.</p>
-<p>Arisu Fitzgerald, as her surname Fitzgerald suggested, was Caucasian Mixed Blood and seemed to have inherited much of her father's Blood, appearing completely Caucasian at first glance. She was a Woman with blonde Hair, green Pupils, and skin as white as snow. She said she worked as a model; her Height wasn't particularly tall, but her Mommae and Face were flawless. In a word, she was Pretty and had a good Figure. Perhaps because she was a model, she had a slightly slender, lean feel.</p>
-<p>Honestly, there wasn't much to say upon first meeting, and frankly, the Cousins gathered here didn't seem close to each other either. Because their respective fathers and mothers were rivals vying for the Head position of the Taira Group.</p>
-<p>Only Nae Fitzgerald, Arisu Fitzgerald's mother, was a Person who lived in a Foreign Country and didn't aim for the Chairman position, so everyone else merely exchanged fake Smiles, probing each other's weaknesses and strengths.</p>
-<p>Of course, several Conversations took place to find out about me, but perhaps they thought I, who hadn't even gone to University, was a useless bastard, so they didn't speak to me anymore. Only Arisu Fitzgerald, who had no Interest in the Taira Group's Successor, continued to speak to me.</p>
-<p>"You're quite handsome? You look like a Hallyu Idol."</p>
-<p>"You're Pretty too, Older Sister? You look like a Hollywood Actor."</p>
-<p>"Really? I do plan to Work in Hollywood someday."</p>
-<p>Arisu giggled at my cheesy Comment. Isn't she liking this too much? After talking, it turned out Arisu's father was a promising Businessman in the USA, operating a quite solid Enterprise, though not on the scale of a megacorp.</p>
-<p>And since she had lived mostly in the USA from the start, she said she had no Greed for the Taira Group. Recently, she said she was working as a model in Japan and spent most of her time there, so we exchanged Line Addresses and decided to have a Meal Outside.</p>
-<p>As I spent time talking with Arisu Fitzgerald, Taira Saburo's coffin, containing his body, arrived. In Japanese funerals, because of the custom of Tsuya (通夜), where people spend the night beside the coffin, the coffin was brought inside the family home.</p>
-<p>The relatives went to the large Room and took their Seats beside the Coffin. Although I disliked spending time so meaninglessly because of a father whose Face I didn't even know, he had provided Child Support until now, so I suppose I had to endure this much.</p>
+<p>I said I wouldn't let her sleep tonight, but I had to attend a written test class from tomorrow morning, so I did it one more time, hugged Hanako, and fell asleep on Hanako's bed.</p>
+<p>When I woke up, Hanako was looking at me, so I gave her a kiss and had a refreshing round of sex, then we went to the written class together.</p>
+<p>When I arrived at the classroom, Kagawa Umi and Kazuhiro were arm in arm, totally lovey-dovey. Judging by their condition, they must have gone all the way last night.</p>
+<p>"Hehe, Hyung-nim~!"</p>
+<p>"Hey, I slept outside because of you."</p>
+<p>"Hahaha, sorry, sorry! But thanks to Hyung-nim, I'm dating Umi-chan."</p>
+<p>Hmm, is he trying to two-time the girl he showed me a picture of a few days ago? Well, I don't need to interfere in other people's love lives.</p>
+<p>"Congratulations. You said you wanted a girlfriend so badly, and now you've got such a great girlfriend?"</p>
+<p>"Oh, thank you, Taira-san."</p>
+<p>Well, I can say that much. We followed Kagawa Umi and Hanako and sat in the front row. Like Edo University students, they sat in the front and focused intently on the instructor's words.</p>
+<p>Since we said we didn't know anything yesterday, I guess they're going to help us each one-on-one. After diligently listening to the written class and taking additional lessons from Hanako and Umi in between, I was able to learn quickly as if the difficulty of the first day was a lie.</p>
+<p>Lunch was different from yesterday, but it was another Japanese-style set meal. There was nowhere else to go to eat, so I ate roughly and separated from the women for a while to brush my teeth.</p>
+<p>"How many times did you do it yesterday?"</p>
+<p>Since they were already kissing and making a fuss when Hanako and I went out, I took it for granted that they did it and asked how many times they did it. Kazuhiro smiled and made a V with his hand. Twice? Same as me.</p>
+<p>"Did Hyung-nim do it with Gokado-san too?"</p>
+<p>"Hehe, maybe?"</p>
+<p>"Ah, really! I told you. Did you do it? You did, you did. Or not? Ah, I don't know."</p>
+<p>I didn't tell him to make Kazuhiro curious, and I finished brushing my teeth and went to the skills class. Kazuhiro kept bothering me, saying, "Did you do it? You did. Or not?" so I slapped the back of his head once with my palm.</p>
+<p>"Ow~! Shut up."</p>
+<p>"That hurts, Hyung-nim! But where did you sleep yesterday?"</p>
+<p>"I slept in Hanako-san's room."</p>
+<p>When I said that with a wink, Kazuhiro, who was rubbing the back of his head because it hurt, smiled brightly and said, "You did it~!" and asked me for a high five, so I gave him a high five.</p>
+<p>Clap!</p>
+<p>"Yeah~! Even if I don't get my driver's license this time, I'm getting something out of it. If I do it twice a day for five days, that's ten times, I'll make back all the money I spend on prostitutes, right?"</p>
+<p>"Don't think about weird things and start thinking about passing your driver's license."</p>
+<p>I said as I got into the car where Matoi Honami was waiting.</p>
+<p>###</p>
+<p>'What should I do? I messed up. I spent the night with another man. I have Toki-chan, and I still love Toki-chan, but I gave my body to Ryuta-gun.'</p>
+<p>Gokado Hanako blamed herself. It wasn't even like Taira Ryuta forced her. Even though it was just a story she told in a drunken fit, she was the one who asked Taira Ryuta for sex first. She even gave her body to him in the morning when she was completely sober.</p>
+<p>'But it felt so good. Completely different from Toki-chan....'</p>
+<p>"Hanako-chan! What are you thinking so hard about?"</p>
+<p>"No, Toki-chan had dinner and drinks with another woman yesterday. I'm worried about that...."</p>
+<p>"Really? Toki-chan is too much. You have such a pretty Hanako-chan."</p>
+<p>Kagawa Umi spoke to her, and Gokado Hanako, who couldn't tell her honestly, told Kagawa Umi what Honjo Tokiatsu had done yesterday.</p>
+<p>"Did you do it with Smith-san yesterday?"</p>
+<p>"Hehe, yeah! He's definitely different because he's mixed race. I almost fainted. But what did you do with Taira-san yesterday?"</p>
+<p>"I slept in Umi-chan's room, and Ryuta-gun slept in my room."</p>
+<p>"Hehe! Thank you. It would have been so awkward if Taira-san had come in while we were doing it."</p>
+<p>Seeing Kagawa Umi, who didn't suspect anything about her and Taira Ryuta, she felt a little guilty, but Toki was with another woman yesterday too.... Gokado Hanako was rationalizing herself.</p>
+<p>"Ah, there's the instructor. See you later at dinner, Hanako-chan!"</p>
+<p>Watching Kagawa Umi wave her hand and get into the taxi instructor's car, she found her instructor and got into the car. She was a little nervous during the lesson, but she was much better than yesterday, probably because she had been doing image training until she drank yesterday.</p>
+<p>"Like this...! That's right! You're much better than yesterday, Gokado-san. You turned much faster today than yesterday, so let's take a fifteen-minute break. Come to the starting point in fifteen minutes."</p>
+<p>The instructor dropped her off like yesterday and drove to the starting point himself. Gokado Hanako swallowed hard and headed to the secluded spot behind the building where Taira Ryuta and the female instructor had sex yesterday. And like yesterday, she began to peep at Taira Ryuta and the female instructor's car sex.</p>
+<p>"....Hngh....!"</p>
+<p>Unlike yesterday, she could hear the woman's moaning sounds, probably because the window was open. Today, they were facing each other and the woman was on top, and Gokado Hanako felt two emotions as she watched the female instructor's movements, which were moving up and down very lewdly. Jealousy and excitement coexisted.</p>
+<p>"Ah, I like this! It's so deep~!"</p>
+<p>"Do you like it that much?"</p>
+<p>"Yeah, much more than my husband! Haaah!! I like it so much, put it in more!"</p>
+<p>Is someone with a husband doing this? Gokado Hanako was shocked by the instructor's words, but she felt a sense of relief. She felt a strange sense of relief and superiority that the woman had betrayed her husband, but she was better than that. And she strongly wanted to take the dick that was piercing the female instructor's vulgar pussy and put it in her own precious hole.</p>
+<p>"Ugh...! I think I'm going to cum."</p>
+<p>"Inside, cum inside~!! I love the warm feeling so much."</p>
+<p>Taira Ryuta's semen was definitely warm, to the point where it felt slightly hot. When she had sex with Honjo Tokiatsu, she only twitched even when he said he was going to cum, and she didn't really feel the semen, but when something warm filled her inside, she felt so good that she automatically reached orgasm.</p>
+<p>'Ah, was yesterday a good day...?'</p>
+<p>Gokado Hanako folded her fingers and calculated her period date. It was a relief. It was a good day during the boot camp.</p>
+<p>'Why did I calculate the entire boot camp? I didn't plan on doing it anymore...?'</p>
+<p>Gokado Hanako hid her feelings and hurried back to the skills class, urging her feet, which were not easily detached. The two of them must have started again, because Gokado Hanako could hear the female instructor's moans in her ear.</p>
+<p>"Uh, uh! There, I like it there!"</p>
+<p>###</p>
+<p>Honjo Tokiatsu opened his eyes. He definitely remembered drinking with Yamana Mikuni at the bar yesterday.... He had memories of naked women in between. Could it be? Honjo Tokiatsu pulled back the blanket. Yamana Mikuni was sleeping naked with him.</p>
+<p>"Mikuni-chan...!"</p>
+<p>"Ugh.... Toki-chan."</p>
+<p>"Did we.... do it yesterday?"</p>
+<p>Yamana Mikuni gave a captivating smile to Honjo Tokiatsu's question. He had an erection because it was morning, and Yamana Mikuni's smile with her naked body made Honjo Tokiatsu's penis even harder. Yamana Mikuni's smile deepened as she saw that.</p>
+<p>###</p>
+<p>"Hyung-nim. There's something I want to ask you."</p>
+<p>Since it was dinner time after the skills class, there was no touch at the academy after that, so the four of them decided to eat out instead of eating at the academy. They had already made a reservation to prevent wasting time wondering where to eat.</p>
+<p>I had used too much protein yesterday and today, so I decided to eat meat to replenish my protein. So I went to a yakiniku restaurant. Everyone said okay when I said I would pay and followed me.</p>
+<p>"Five servings of ribs, two servings of beef tongue, two servings of loin, four bowls of rice, one sundubu jjigae, please. Ah! And one green grape Chamisul, please."</p>
+<p>"Yes~!"</p>
+<p>The yakiniku restaurant had a lot of Korean side dishes, so I ordered sundubu jjigae and saw green grape Chamisul on the menu, so I ordered one.</p>
+<p>"Order more if you want to eat something else."</p>
+<p>"I'm going to eat a lot of meat for the first time in a while? It feels like it's been a long time since I came to a yakiniku restaurant with Hyung-nim."</p>
+<p>When we were in school, Kazuhiro and I didn't have much money, so we often went to all-you-can-eat restaurants. Kazuhiro had a nostalgic look in his eyes as if he was filled with memories, then he said, "Ah~!" and opened his mouth with a slightly apologetic expression towards me.</p>
+<p>"Hyung-nim, I'm sorry, but can you switch rooms with Umi-chan?"</p>
+<p>As expected, a womanizer. He means he wants to have sex every day during the boot camp. I glanced at Kagawa Umi, who was blushing slightly, and nodded.</p>
+<p>"Okay. This Hyung-nim has to support your love life."</p>
+<p>"Kya~! Hyung-nim is the best!"</p>
+<p>It's more comfortable for me to be right next to Hanako's room anyway. Judging by the serious expression on her face as she talked on the phone outside the restaurant, it seemed like she would easily give in again today. I have to completely make her my onahole for the remaining four days. I have to widen Hanako's tight pussy to my size so that she won't feel anything even if her boyfriend puts his dick in it.</p>

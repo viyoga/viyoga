@@ -5,93 +5,107 @@ weight = 902
 chapter = 902
 +++
 
-<p>and breast chapter check contains exposure please surroundings this your</p>
-<p>Taang!</p>
-<p>This gunshot was not Saionji Diana's, who uses energy firearms. The one who fired the gun, in a situation where Bernardo's life was in danger, was one of Anyaji's martial artists, who was in a corner of the empty lot.</p>
-<p>'Just as I thought.'</p>
-<p>As expected, there was no way they brought Anyaji's martial artists for no reason. If they clashed directly at close range, they would only provide Hyeolgi to Otagi Yuka, so the purpose must be to hold a gun and keep them in check from afar. What was fortunate, at least, was that perhaps because they were not accustomed to using firearms, they did not hit Saionji Diana.</p>
-<p>Saionji Diana, instead of aiming at Bernardo, aimed at Anyaji's martial artists. As soon as she aimed the gun, they went into the forest and hid, like cockroaches disappearing under a refrigerator.</p>
-<p>"Tch!"</p>
-<p>Saionji Diana, displeased, put away the pistol she had aimed at Anyaji's martial artists. In that short time, Bernardo had recovered and was growling at Saionji Diana. His Size was almost over 2.5 meters, his mane and hair had grown further, and his pupils were completely slit vertically, so now he looked more like a monster than a human.</p>
-<p>"Kwaaaang!"</p>
-<p>With a mighty roar, Bernardo charged and pounced on Saionji Diana. Saionji Diana quickly fired her gun, but Bernardo dodged in empty space as if he had wings on his back. She wondered if he had gained Flight ability, being possessed by a Manticore, but there was no time for such questions.</p>
-<p>Kwaaang!</p>
-<p>Bernardo, with a massive forepaw that could no longer be called a hand, struck Saionji Diana. Saionji Diana defended by crossing her Arms in an X-shape. A loud whirring Engine sound erupted from the cyber implants in her Legs, preventing her from being flung away.</p>
-<p>Cheolkeong!</p>
-<p>Saionji Diana's left Shoulder opened, and small missiles were launched. Bernardo quickly moved his Body to the side, but these missiles were not direct fire, but guided missiles.</p>
-<p>Kwang! Kwang! Kwang!</p>
-<p>Although the missiles hit and an explosion occurred, Saionji Diana cut through the thick gray smoke of the explosion and plunged in. And she swung her Sword.</p>
-<p>Chwaak! Chwaak! Chwaaak!</p>
-<p>"Keuheoeong!"</p>
-<p>She plunged in instantly and swung her Sword three times. This time, there was no interference. Because Saionji Diana had exquisitely adjusted her direction, if Anyaji's martial artists were to shoot at her, they would all be blocked by Bernardo's massive Size.</p>
-<p>Swaeeaaek!</p>
-<p>Something shot through the smoke and came in, and Saionji Diana quickly retreated. She jumped backward using the propulsion devices on her Legs, and what attacked through the smoke was a type of snake, like a giant anaconda.</p>
-<p>'What is this?!'</p>
-<p>Saionji Diana, surprised, muttered to herself. But because she had to focus on the battle, without thinking further, while jumping backward, she scattered remote mines on the floor.</p>
-<p>As the smoke cleared, Bernardo was no longer there in the revealed spot. The Manticore, seen in various media, stood there. With Bernardo's Face, a lion's mane and a massive lion's Body, huge wings, and a tail with a snake's face and body, flicking its tongue as if alive... Bernardo had been completely consumed by Yogoe Possession Sorcery and became a Manticore.</p>
-<p>Although it became more difficult to deal with, what was fortunate, at least, was that from the recent missiles and Saionji Diana's Swordplay, it was scorched or bloodied in various places, so it was not in perfect condition.</p>
-<p>"Krrr-rrr-rrr...!"</p>
-<p>Peusyung! Peusyung! Peusyung!</p>
-<p>Saionji Diana opened fire without a word. But the Manticore dodged Saionji Diana's Marksmanship much more easily than when it was Bernardo. Every time it flapped its large, webbed wings, it flew several meters with a whoosh, making it difficult to hit easily.</p>
-<p>Dodging Saionji Diana's Marksmanship, the Manticore, hovering in empty space, descended from the sky like an eagle swooping down on its prey and pounced on Saionji Diana.</p>
-<p>'Danger...!'</p>
-<p>Unlike before, now its Claw length seemed almost 30 centimeters. Saionji Diana rolled her Body and barely dodged the Manticore's Attack.</p>
-<p>Just now, compared to when Bernardo was in human form, the combat Situation had changed. If it was a Situation where Bernardo barely dodged Saionji Diana's Marksmanship and occasionally counterattacked, this time, Saionji Diana was busy dodging the Manticore's aerial Attack.</p>
-<p>'I have to avoid aerial combat...!'</p>
-<p>Saionji Diana, while dodging the Manticore's dive Attack, muttered. Marksmanship alone was impossible, and with guided missiles all depleted, what method was there?</p>
-<p>"Kuaaaang!"</p>
-<p>"!"</p>
-<p>Once again, as she rolled her Body and dodged the Manticore's Attack, Saionji Diana thought of one method. It was to trust the Ability she had possessed since long ago!</p>
-<p>Towards the Manticore, which once again lifted its Body into empty space, Saionji Diana began to swing her Sword like Crazy.</p>
-<p>Hung-hung-hung-hung!</p>
-<p>Saionji Diana, who had the Dancing Trait of Kamaitachi even before installing cyber implants in her body and could unleash wind slash attacks, sent countless sharp sword winds flying toward the Manticore.</p>
-<p>One might ask what's different from a gun, which is also a ranged Attack, but if a gun's range is a point, Saionji Diana's Sword Wind is a line. Moreover, because it was a blade of wind with no visible form, it was much harder to dodge.</p>
-<p>Seukak!</p>
-<p>With a sharp sound, a part of one wing was severed. As a result, contrary to the gushing Vein of blood, the Manticore's Body began to fall. Of course, it frantically flapped its other wing, trying to prevent the fall, but only the falling speed was slightly reduced; the fall itself could not be stopped.</p>
-<p>"Keueoeong!"</p>
-<p>Peusyung! Peusyung! Peusyung!</p>
-<p>Saionji Diana fired her gun at the falling Manticore. Unlike before, she was able to hit most of her shots. Rather, the Manticore flapping its wings to prevent falling, which reduced its falling speed, made aiming easier.</p>
-<p>Kuung!</p>
-<p>Raising Dust, the Manticore fell. As if not to miss this Moment, Saionji Diana rushed towards the Manticore at incredible speed and swung her Sword.</p>
-<p>Syuung!</p>
-<p>"Kuaaaah!"</p>
-<p>She even cut off the remaining intact wing, and then, as if threatening, stood up and severed the snake-shaped Tail as well.</p>
-<p>Kwadeudeuk!</p>
-<p>"Damn it!"</p>
-<p>Was cutting off even the snake-shaped Tail Greed? Although she succeeded in severing it, the Elbow holding the Sword was bitten off by the Manticore. Sparks flew, and the sight of the mechanical Arm falling off with wires looked somewhat surreal.</p>
-<p>The Manticore threw Saionji Diana's Forearm, still holding the Sword, far away. Its Attitude was as if telling her not to even think about picking it up again.</p>
-<p>Although Saionji Diana lost one Arm, the Manticore's damage was even greater. Both wings were severed, its Tail was also cut, and its entire Body was scorched by energy firearms. But Saionji Diana had lost her biggest weapon. Now all that remained was the pistol in her hand and a few weapons hidden in her cyber implants.</p>
-<p>"Kheueueu...!"</p>
-<p>The Manticore also, as if knowing that Saionji Diana now had no suitable weapons except for her pistol, began to laugh with a vile Smile from Bernardo's Face amidst the lion's mane.</p>
-<p>Saionji Diana, with a resolute Expression, aimed her gun at the Manticore. Since becoming a Manticore, she had hit it several times, but it hadn't inflicted significant Damage. It seemed to have thick Leather and some kind of Jusul Defense. But since all she had left in her hand was the pistol, she had to do her best.</p>
-<p>'Ammunition... there's not much left. I have to settle this before then.'</p>
-<p>Saionji Diana bit her Lips. The Manticore, which had been watching Saionji Diana with a vile laugh for a long time, circled around Saionji Diana, then at some Moment, it kicked off the Ground and charged.</p>
-<p>Peusyung! Peusyung! Peusyung!</p>
-<p>Even since it was Bernardo, the Manticore was a Dosa at dodging Marksmanship. Although its Size had grown, because it was much more Agile than before, it dodged Saionji Diana's Marksmanship even more easily.</p>
-<p>From a certain Moment, Saionji Diana stopped firing. With the intention of unleashing everything at close range where it couldn't dodge, she was merely aiming at the Manticore. Even if it was energy Marksmanship that couldn't inflict great Damage, if it hit its Eye or mouth, it could surely take the Manticore's life.</p>
-<p>"Keuheoeong!"</p>
-<p>Roaring like a lion, the Manticore appeared in front, but as if knowing Saionji Diana's plan, without even looking, it immediately flung its Body to the Side.</p>
-<p>Passing by Saionji Diana's Side, the Manticore, having turned around, opened its mouth to bite this small female animal that had been tormenting it to death.</p>
-<p>But at that Moment, it realized something was strange. The distinctive Peusyung sound of energy firearms was not heard. It had clearly stood in front for a moment to draw fire, then turned behind Saionji Diana.</p>
-<p>Cheolkeok!</p>
-<p>At that Moment, Saionji Diana's thigh opened, and Something popped out. And she fully extended her Arm backward, showing a movement that a human could never do.</p>
-<p>As if it were in front of her, she grabbed what popped out from her thigh and stabbed the Manticore's Chin. Even though her Arm was completely twisted backward, it was a flexible movement as if it were in front. It was possible because it was a cyber implant, not a human Arm.</p>
-<p>Chwaaaak!</p>
-<p>As if water had been poured from a Bucket above, the Manticore's Blood gushed down. Saionji Diana, even as she was covered in all that Blood, without letting go of the Sword she held, continued to stab.</p>
-<p>The Sword, passing through the Manticore's Chin and mouth, pierced all the way to its Brain. The Manticore, which had trembled for a while, completely stopped breathing.</p>
-<p>Kung!</p>
-<p>The Manticore completely collapsed, and Saionji Diana drew her Sword. This short Sword also was the Sword Barracuda, made by the Master Ichimonji Harugoro. After the hand holding the katana was completely severed, Saionji Diana thought of this Operation and executed it, and succeeded.</p>
-<p>"Huu...!"</p>
-<p>Although she wanted to collapse right away, Saionji Diana looked towards her friend Otagi Yuka. Because if she was being pushed back, she would have to help.</p>
-<p>Let's revisit Barracuda's options at this point</p>
-<p>◆Barracuda (Barracuda)[Narrative Sword]</p>
-<p>A thin, short straight Sword made by the excellent Master Ichimonji Harugoro. Suitable for concealment somewhere. Made of pure Mithril, it is durable.</p>
-<p>●Powerful Durability.</p>
-<p>●Damage amplification on critical hit.</p>
-<p>●Increased critical hit Probability on first Impact after concealment.</p>
-<p>Requested by TheDreaming-nim: Karen naked performance, naked Interview</p>
-<p>Naked performance~!</p>
-<p>Interview~!</p>
-<p>Requested by Gojoy-nim: Cheon Harin belly dancer Tape attire~!</p>
-<p>Belly dancer~!</p>
-<p>Tape~!</p>
+<p>-Can you hear me clearly?</p>
+<p>"Yes, I can hear you clearly."</p>
+<p>Sawayanagi Azuma nodded, answering Rianna Holden, the operator's, Telepathy. On the opposite side of Taira Kanna's Group, who had crossed the west wall of the Anyaji headquarters, the Seryu Military Company members crossed the wall from the east.</p>
+<p>"Jinha and I will take the lead."</p>
+<p>Sawayanagi Tobe, who possessed Steelification Ability, and Choi Jin-ha, who possessed Petrification Ability, took the lead, with Sawayanagi Seari lightly following right behind them.</p>
+<p>-There's one Person behind the door on the right, so subdue them immediately.</p>
+<p>"Roger."</p>
+<p>At Rianna Holden's Words, Sawayanagi Tobe opened the door and entered, striking an Anyaji martial monk's Head, immediately rendering him combat-incapable.</p>
+<p>The Anyaji martial monk, struck with a Steelified Fist, Kwang!, trembled violently, then soon slumped. Being hit in the Head by a Steelified Ability User's Fist was no different from being hit by a giant hammer, so it would have been strange if he were unharmed.</p>
+<p>Silently, one by one, disposing of the Anyaji martial monks, the Seryu-tai agents headed towards the Place where the Guardian Hall Guardians were gathered.</p>
+<p>-You might have heard it earlier, but I'll say it again. We have reliable Information that the Guardians currently in the Anyaji headquarters are less skilled than the Guardians who went to Attack Miyashi. However, the one Person you must be careful of is the Guardian Hall Master.</p>
+<p>The Information regarding the skill of the Guardians remaining at the Anyaji headquarters was obtained from Athena Mannerheim, so its Trust Level was quite high.</p>
+<p>According to Athena Mannerheim, most of the Guardians remaining at the Anyaji headquarters were less skilled than those who participated in the Attack. However, she said that one Person, the Guardian Hall Master, possessed Abilities powerful enough to be among the top five in Anyaji.</p>
+<p>Therefore, they decided to face the Guardian Hall Master together with Taira Kanna's Group. Before that, the Seryu Military Company side first had to eliminate the two Guardians assigned to them.</p>
+<p>"We've arrived."</p>
+<p>"It's quite spacious. How are they using such a large plot of land in Tokyo? Even if it's Katsushika Ward."</p>
+<p>The Seryu-tai unit members, grumbling about the spacious Anyaji grounds, each took their Positions in front of the Building where the Guardians were. Sawayanagi Tobe and Choi Jin-ha, who had been leading until now, stood at the front, and Lee Du-yeong, who possessed regenerative Ability, also joined the front line.</p>
+<p>"Sniper team, I'm counting on you."</p>
+<p>-I've relayed the message.</p>
+<p>Sawayanagi Mikiyo, who performed long-range sniping for Seryu-tai, and Lee Du-yeong, an X-Ray Ability User, were waiting in a nearby Building, aiming at the Anyaji headquarters.</p>
+<p>Kwang! Kwang!</p>
+<p>Thanks to the silencer, the Bullets, fired without any noise, pierced through the wall. Even with a silencer, the sound of bullets piercing through a wall couldn't be eliminated. Lee Du-yeong, who possessed X-Ray Ability, informed Sawayanagi Mikiyo of the exact Position, so the sound of the wall breaking was heard twice.</p>
+<p>"Kuaaak!"</p>
+<p>"Keo-heok...!"</p>
+<p>Two Screams were heard, indicating accurate hits. Simultaneously with those Screams, the Seryu-tai unit members entered the Building. Because they had roughly confirmed the spots where the bullets had pierced the wall through sniping, they knew the Guardians' Positions.</p>
+<p>"Junichi, Hori, Mari, Jinha and I will take the first floor. The rest of you, under Sinya's Command, please take the second floor."</p>
+<p>Because it was a two-story Building, Sawayanagi Azuma divided the Group into two. The presumed locations of the Guardians were also conveniently divided into the first and second floors.</p>
+<p>Sawayanagi Azuma, Kiyona Hori, the Mari Sisters, Kitayama Junichi, and Choi Jin-ha decided to search the first floor, while the second floor was to be handled by Sawayanagi Sinya, the Vice President of Seryu Military Company, along with Sawayanagi Tobe, Sawayanagi Seari, Sawayanagi Shigeru, and Lee Du-yeong.</p>
+<p>Sawayanagi Azuma's group, who went to the first floor, soon encountered one of the Guardians. This Guardian wielded a rare weapon in Anyaji, where Fist Techniques were the focus, and he was holding a short, modified naginata (薙刀: Japanese single-edged spear). It seemed he had modified it because he often fought indoors.</p>
+<p>"Are you bastards the ones who fired the Guns?"</p>
+<p>"If I had to say, the ones who used Guns are outside, but they're part of the same Party/Group."</p>
+<p>The Guardian, who had been shot, furiously pointed with his naginata and spoke, but Sawayanagi Azuma answered calmly, as if she didn't care about such Anger.</p>
+<p>"Th-this...! Crazy bitch! Die!"</p>
+<p>The enraged Guardian charged with his short naginata. And he swung the naginata at immense speed. But no matter how powerful the strike, for Sawayanagi Azuma, who possessed Premonition Ability, it was 'already' an Experience.</p>
+<p>Sawayanagi Azuma dodged the Guardian's naginata with a flowing Attitude, like water. Naturally, Sawayanagi Azuma was not alone, so various Attacks poured down on the Guardian holding the naginata.</p>
+<p>Along with Kiyona Hori's pistol shots, Kiyona Mari's flames, Kitayama Junichi's dagger, and Choi Jin-ha's petrified fist-attacks that even an Anyaji Guardian would find difficult to withstand all at once-poured down.</p>
+<p>Furthermore, with sniping coming from unexpected situations, and Sawayanagi Azuma making exquisite Attacks as if she knew his mind, the Anyaji Guardian was in hell.</p>
+<p>The Anyaji Guardian struggled to survive, employing all sorts of sorcery, but all his actions were nullified by Sawayanagi Azuma, who had already Experienced everything, and a Bullet lodged in his Furrowed Brow, taking his Life.</p>
+<p>"The second floor team has probably succeeded by now too. Let's go."</p>
+<p>At Sawayanagi Azuma's Words, everyone nodded and exited the Room where they had battled the Anyaji Guardian, heading towards the main gate.</p>
+<p>"Oh? You guys finished too?"</p>
+<p>As they were going Outside, they met the second-floor team coming down the stairs, and indeed, just as Sawayanagi Azuma had said, they were in the process of dealing with the Guardian on the second floor and coming down.</p>
+<p>No matter that they were Anyaji Guardians, most of Seryu-tai were Superhumans, equipped with state-of-the-art Equipment with Taira Ryuta's support, making them an elite PMC. They couldn't be defeated alone. Since one Bullet is stronger than ten punches, it could be said that unless one was an extraordinary Superhuman, they couldn't contend with a formal PMC.</p>
+<p>"Now we need to go catch that Person called the Guardian Hall Master. What's the Result of that?"</p>
+<p>At Lee Du-yeong's Question, Sawayanagi Azuma shook her Head.</p>
+<p>"I don't know. I haven't seen it."</p>
+<p>Although Sawayanagi Azuma was a Premonition Ability User, that didn't mean she could know all futures. Sawayanagi Azuma's Premonition Ability consisted of two types: battle premonition, which had recently bloomed, and distant premonition, which fragmentarily showed the distant future.</p>
+<p>Battle premonition felt like experiencing the battle Situation in advance upon entering combat, and distant premonition was not about Sawayanagi Azuma being able to know what she wanted, but rather randomly seeing what Sawayanagi Azuma had personally Experienced in the future, so she couldn't know all futures.</p>
+<p>If she could know all futures, Sawayanagi Azuma would have become the Dominator of the World, but because of this randomness, she was satisfied with confirming the Safety of Seryu-tai's personnel. Moreover, the future could change depending on Sawayanagi Azuma's actions, which were based on her premonitions.</p>
+<p>"Still, I saw that everyone was safe, so don't Worry."</p>
+<p>At the Words that she couldn't confirm the battle with the Guardian Hall Master, everyone wore a slightly tense Expression, but Sawayanagi Azuma opened her mouth as if to tell them not to Worry.</p>
+<p>Because she had seen everyone gathered together for a meal a little further in the future than now, she was convinced that they would not die in today's battle. Such ordinary future scenes of daily life were quite important because they could reveal various Information, such as the life or death of colleagues.</p>
+<p>"Then that's Fortunate. Let's quickly deal with that Person called the Guardian Hall Master and go eat something delicious!"</p>
+<p>Sawayanagi Seari spoke as if it was Fortunate and happily took the lead. As they went to the rendezvous Place where they were to meet Taira Kanna's team and waited a little, Taira Kanna's team, who seemed to have similarly dealt with their Guardians, was seen approaching.</p>
+<p>"We're a little late. Have you been waiting long?"</p>
+<p>"No. We just arrived too. Let's depart."</p>
+<p>Taira Kanna and Sawayanagi Azuma exchanged no particular Conversation and went to the Corner of the Anyaji headquarters Building, where the Guardian Hall Master was indicated to be.</p>
+<p>That Building was shabby, like that of a monk. Considering that all the other Buildings on the grounds were luxurious Japanese-style Buildings, this shabby Building where the Guardian Hall Master supposedly resided was somewhat bizarre.</p>
+<p>There were religious Symbols placed or hung everywhere, so it wasn't without decorative Elements, but these Symbols were so grotesque and disgusting that it felt uncomfortable to step inside.</p>
+<p>"The Atmosphere is a bit...."</p>
+<p>"Yes, it's strange."</p>
+<p>Sawayanagi Azuma and Taira Kanna, feeling a slight discomfort, entered the Building. With a chilling kki-iik sound, the wooden door opened, revealing a dark interior.</p>
+<p>Chaltak.</p>
+<p>Immediately, the Seryu-tai unit members behind them turned on their flashlights, providing Lighting support, and the Appearance in the Darkness soon became visible.</p>
+<p>Inside the Building, a peculiar stench and the Smell of Dust mingled. It felt as if no one had been there for a long time, and indeed, there was no presence.</p>
+<p>Enduring the unpleasant Smell, they looked around the Building, only to find a Bedroom and a Restroom inside. Although it had seemed a bit narrow from the Outside, they hadn't thought it would be this much, and as if their suspicion wasn't wrong, Sawayanagi Seari, who controlled Wind, soon discovered a Secret Space.</p>
+<p>"There's a hidden door here!"</p>
+<p>Where Sawayanagi Seari pointed, there was a tiny Gap. Sawayanagi Sinya, an expert in Bombs and Trap disarming, approached closely, checked for traps, and opened the secret door.</p>
+<p>"There were no traps, as if it's a frequently used Passage."</p>
+<p>Sawayanagi Sinya, perhaps because Taira Kanna's team, who were Outsiders, was present, deliberately used respectful speech towards Sawayanagi Azuma while reporting. It seemed he thought it would be better to show a more disciplined Appearance, as there were other eyes watching (especially the eyes of wealthy individuals who could become their Customers), even though they would be more relaxed if it were just themselves.</p>
+<p>"I will take the lead."</p>
+<p>Sawayanagi Tobe, who had the strongest Defense in Seryu-tai, decided to take the lead. As Sawayanagi Tobe entered the Secret Space as the leader, the stench began to grow stronger.</p>
+<p>"Everyone, put on your Gas Masks."</p>
+<p>At Sawayanagi Azuma's Words, everyone began to operate their cyber Suits. Then, a mask covering their Noses, Mouths, and Chins popped out and was equipped. Taira Kanna, Nakanoin Rina, and Muko Neika also put on their Gas Masks and walked through the Secret Passage again.</p>
+<p>"This is...!"</p>
+<p>After passing through the Secret Passage, a small Room appeared, filled with dried Blood, rotting Flesh, and Skeletons, along with candlesticks holding melted candles and an Altar that seemed to have been used for offerings. Even Seryu-tai, who had been through countless Battlefields, couldn't help but be disgusted by such a sight. Everyone stood still, seemingly shocked, looking at the Room, then soon regained their composure.</p>
+<p>"Wasn't it a Cult, not a martial arts organization...?"</p>
+<p>"At least twenty Corpses, it seems...."</p>
+<p>Everyone held their flashlights and examined the Corpses or the Altar, but Sawayanagi Seari quietly shone her light on the wall. Because Sawayanagi Seari was the one with the most developed Sensation in Seryu-tai, it seemed she felt something on the wall.</p>
+<p>"What are you looking at?"</p>
+<p>"Look... at this."</p>
+<p>When Kiyona Mari asked, looking at Sawayanagi Seari, Sawayanagi Seari pointed to the wall she had been looking at.</p>
+<p>On the wall, '神様が来る！(God is coming!)' was written in blood. The letters seemed three-dimensional, as if they had been repeatedly painted over with blood.</p>
+<p>"This is...."</p>
+<p>"So that Person called the Guardian Hall Master isn't here."</p>
+<p>Everyone felt an ominous Feeling from the Story written in Blood, but Taira Kanna, perhaps feeling nothing particular, spoke about the Guardian Hall Master. Since they hadn't seen him even in the Secret Space, the conclusion that he didn't exist within this Building was valid.</p>
+<p>"Since there's no Goal, let's leave. If it feels unsettling, we can just burn down the Building itself."</p>
+<p>That was right. The Purpose of those present here was to deal with the Guardian Hall Master, not to investigate this ominous Place. At Taira Kanna's Words, everyone passed through the Secret Passage again and came Outside the Building.</p>
+<p>"Did everyone finish well~?"</p>
+<p>As everyone came Outside, Mimata Chieri was waiting outside the Building. Faint Screams were heard from here and there, indicating that the Anyaji Subjugation Operation seemed to be going well.</p>
+<p>"We couldn't find the Guardian Hall Master."</p>
+<p>When Sawayanagi Azuma shook her Head and spoke, Mimata Chieri wore a puzzled Expression.</p>
+<p>"Our employees who are dealing with the Anyaji martial monks also haven't reported anyone particularly strong. Could he have gone to a Convenience Store or something?"</p>
+<p>No one agreed with Mimata Chieri's Words. If they had gone inside the Building, they wouldn't have gotten the Feeling that a Person called the Guardian Hall Master would leisurely use a Convenience Store.</p>
+<p>"It seems he went somewhere else. He might have gone to Miyashi later."</p>
+<p>"Then I should Contact my junior-nim!"</p>
+<p>At Taira Kanna's Words, Mimata Chieri picked up the Phone. Since the Guardian Hall Master was said to be quite strong, she had to make Contact before Taira Ryuta's Plan went awry.</p>
+<p>Nagumo Sian's School Uniform and Swimsuit from her school days, requested by Gojoy-nim~!</p>
+<p>School Uniform first~!</p>
+<p>Swimsuit~!</p>
+<p>I Yeon-ju's Phone Booth Exposure, requested by TheDreaming-nim: 1. Breast Pressing 2. Masturbation</p>
+<p>1.</p>
+<p>2.</p>
+<p>Since the Place was limited and the poses were what they were, the Illustrations all turned out similar, so I'm only uploading two each, hehe.</p>

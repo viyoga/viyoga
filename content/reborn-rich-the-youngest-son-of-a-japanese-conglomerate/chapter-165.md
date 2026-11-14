@@ -5,72 +5,87 @@ weight = 165
 chapter = 165
 +++
 
-<p>There's a lewd illustration! Check your surroundings!</p>
-<p>The gothic lolita girls, Kiyona Mari and Kiyona Hori, had been steadily subscribing to fashion magazines, and they said they had been admiring Arisu ever since she gained attention in Milan. But the investor of the company they belonged to brought their idol, Arisu, so they couldn't help but make a fuss. As Arisu was being bothered by the Kiyona Mari and Hori sisters, I got up from my seat and opened my mouth.</p>
-<p>"Today, to celebrate Seryu Military Company nesting in a new building, and to get to know the new face, we'll have a company dinner. I, the investor, will pay, so don't worry about the money and eat as much as you want."</p>
-<p>"Waaah~!! Investor-nim, you're the best!"</p>
-<p>Sawayanagi Seari clung to me and smiled brightly. Her appearance was so cute that I unconsciously laughed "hahaha" and lifted Sawayanagi Seari up. Seari giggled and enjoyed being lifted by me. Hmm, now that I've lifted her, I realize, did I make a mistake? Actually, even though Sawayanagi Seari looks like she's in her mid-teens, she's older than me.</p>
-<p>Everyone was looking at me and Sawayanagi Seari with pleased expressions, so I put Sawayanagi Seari down on the floor with an awkward expression. Sawayanagi Seari whined, "Aang~!" as if wanting to float around a little more, but everyone's gazes were too much of a burden. I put on a serious face and opened my mouth while looking at the people of Seryutai.</p>
-<p>"Before we go to the company dinner, I have to let you know that I've found some work."</p>
-<p>The Seryutai members were happy again when I said I had found work. Isn't it better not to have work? When I looked at them with a slightly embarrassed expression, Sawayanagi Azuma opened her mouth.</p>
-<p>"Now that we've left the fixer district where we stayed for so long, everyone was worried that we wouldn't be able to find work and would be left behind."</p>
-<p>"There's no need to worry about that. This request is from Taira Foods, so it will be quite a career."</p>
-<p>For a PMC, the client whose request they carried out is a very important career, so this request could be said to be a significant opportunity for Seryu Military Company. Because they can get the title of taking on work from an affiliate of Japan's number one corporate group, Taira Group.</p>
-<p>"The request is from Taira Foods...."</p>
-<p>"Wow! We're doing a big company's request~!"</p>
-<p>"Taira Foods is where they make my favorite cup ramen...! We have to help no matter what!"</p>
-<p>Why is everyone so hyper today? Well, from Seryu Military Company's point of view, they probably haven't been able to do many big requests due to Black Tech's invisible interference and the shabby office, so I understand, but aren't they liking it too much?</p>
-<p>Mimata Chieri and I waited for the Seryu Military Company people to calm down, then told them that it was a job dealing with Kurotsuki-do, and explained that they would be working with East Weapon and PMCs separately hired by Taira Foods.</p>
-<p>"Then, make the contract with this phone number...."</p>
-<p>While Mimata Chieri was explaining the contract to Sawayanagi Azuma, the Seryu Military Company people started unfolding the map of Akita Prefecture and checking Taira Foods' factories and important facilities. Are they already in work mode? Dinner time is coming up soon?</p>
-<p>"They all seem like good people?"</p>
-<p>Arisu, who had been freed from the Kiyona Hori and Mari sisters, came to me and said.</p>
-<p>"Yeah, they're all decent people."</p>
-<p>The Seryutai people had many wounds due to their experiences as test subjects, debts, and difficult businesses, but none of them were completely twisted. It seemed that the secret to their success was that they all relied on each other and endured well despite the many hardships.</p>
-<p>"The previous president took in children who were orphaned because of the war, I heard."</p>
-<p>"Ah.... I see."</p>
-<p>I couldn't tell Arisu that all the Seryu Military Company people were from test subjects, but I guess it's okay to say this much. There's a drinking party later, so I'm telling her in advance in case I make a mistake while drunk. It would be a bit awkward if I asked what their parents do and the atmosphere turned sour.</p>
-<p>"But is Ryuta going to Akita Prefecture where that Taira Foods is too?"</p>
-<p>"Still, it's my first PMC contract, shouldn't I at least show my face?"</p>
-<p>Arisu asked me with a slightly worried expression. She seemed worried when I said I was going to the conflict area where the PMC request came from.</p>
-<p>"I'm okay. I'm just going to sign the contract."</p>
-<p>Actually, it would be okay to go to the battle, but I only said it was a contract to avoid worrying Arisu. Of course, depending on the situation in Akita, I might have to step in myself, but I didn't want to tell Arisu about that and worry her unnecessarily.</p>
-<p>"You have to be careful no matter what?"</p>
-<p>"Of course. Don't worry."</p>
-<p>I reassured the worried Arisu, and in the meantime, Sawayanagi Azuma approached with a bright expression, having finished the verbal contract with Taira Foods.</p>
-<p>"As expected of a big company, the conditions are good. I recently had a premonition dream of making a satisfactory contract.... Ah! Hehe, I like superstitions."</p>
-<p>Sawayanagi Azuma was flustered and glossed over the premonition dream story when she saw Arisu. She seemed relieved that she had won the contract. She almost revealed her abilities in front of someone she met for the first time today.</p>
-<p>"Then, since it's almost time, let's stop talking about work and go eat dinner. Is there anything you want to eat?"</p>
-<p>"Actually, I haven't been in this building for very long, so I don't know where the good restaurants are around here."</p>
-<p>At Sawayanagi Azuma's words, the Seryutai people all nodded. Well, they must be busy organizing their luggage, so where would they have time to find good restaurants? I looked at Mimata Chieri, who had been here the longest.</p>
-<p>"Hehehe! When it comes to good restaurants, it's me! You just decide what you want to eat!"</p>
-<p>As expected of Mimata Chieri, who enjoys gourmet food, she seemed to know all the good restaurants around. At Mimata Chieri's words, the Seryutai people started saying what they wanted to eat. Four wanted meat, three wanted sushi, one wanted pizza, and two wanted high-end Japanese set meals, but in the end, they decided on meat, which had the most votes.</p>
-<p>"Then shall we go?"</p>
-<p>We headed to the meat restaurant following Mimata Chieri's guidance. It was quite a large meat restaurant, similar to a Korean meat restaurant. Since there were 13 of us, we grabbed four tables and started eating.</p>
-<p>Arisu, Mimata Chieri, and Sawayanagi Azuma sat at the table where I was sitting. The remaining tables had three people each and grilled meat. Since I told them not to worry about money and order as much as they wanted, the tables were full of meat.</p>
-<p>Our table ordered alcohol, soju to be exact, as if trying to start running from the beginning. When the soju came in a bottle, Arisu poured soju into a soju glass and handed it to me.</p>
-<p>"Here, take a drink, Ryuta~"</p>
-<p>Arisu poured soju for me, poured some for herself, toasted, and drank the alcohol. Keueu....! This is quite strong? How many degrees is it? I took the side dishes that Mimata Chieri gave me and checked the alcohol content written on the soju bottle. Yeah, I knew it was strong. What, they ordered something that's thirty degrees?</p>
-<p>"This time, please take a drink from my glass too, junior!"</p>
-<p>This time, I took a drink of the soju that Mimata Chieri poured. And soon, Sawayanagi Azuma filled my glass.</p>
-<p>"In, Investor-nim~! You'll take my drink too, right?"</p>
-<p>I felt a bit tipsy because I drank two glasses in a row on an empty stomach, but I had already received two people's drinks, so it would be a bit difficult to refuse Sawayanagi Azuma's drink, so I said, "No, of course I have to," and received the drink.</p>
-<p>After that, I ate meat and everyone gave me alcohol one by one, so I drank alcohol at almost a 3-to-1 ratio. Still, it was a pleasant meal because the three of them kept feeding me side dishes and putting meat in my mouth. When I got up from my seat after the meal, I could definitely feel my body staggering, probably because I was drunk.</p>
-<p>I linked arms with Arisu and Mimata Chieri on both sides, and Sawayanagi Azuma pushed me from behind, heading to the bar, which was the second company dinner location. It felt like it had been a long time since I had been this drunk. No, is this the first time since I possessed this body?</p>
-<p>"Investor-nim! Please take care of us in the future."</p>
-<p>Starting with Sawayanagi Sinya, the vice president of Seryu Military Company, giving me alcohol, everyone came to my side one by one and poured alcohol for me. By the time it was Sawayanagi Seari's turn, I was already on the verge of losing my memory.</p>
-<p>But I couldn't refuse because everyone was saying hello and giving me alcohol, asking me to take care of them in the future, so I kept receiving alcohol.</p>
-<p>Everyone took turns giving me alcohol, so I drank high-alcohol-content drinks without a break, and before I knew it, I had lost my memory.</p>
-<p>###</p>
-<p>Haaang...!</p>
-<p>Aheung, haaeungeu....</p>
-<p>Ugh, what.... is that sound? My whole body was languid and I was very thirsty. I woke up from the shaking because someone seemed to be shaking my body from above. I didn't get up right away and thought about what was going on and where I was.</p>
-<p>Ah, that's right. It was a company dinner. So I drank alcohol and lost my mind. Judging by the fact that I was lying down, someone must have laid me down in a hotel or motel. But I realized that I strangely kept feeling good sensations in my penis.</p>
-<p>When I opened my eyes, Arisu was shaking her hips on top of me. Ah, I guess I came to a hotel with Arisu after the company dinner. Still, she could have waited for me to come to my senses. Shaking her hips alone, how impudent?</p>
-<p>But why is one of my hands touching something soft and pleasant? When I turned my head, Sawayanagi Azuma, with her disheveled blue hair, was trembling while making moaning sounds like "Hit, hiit!" every time I touched her chest. Judging by this reaction, it seemed like we had sex more than once.</p>
-<p>Just in case, when I turned my head to the other side, Mimata Chieri was watching Arisu riding me from above and masturbating her clit while saying, "Haaang! Our junior being taken advantage of while drunk is so good~!" The semen that I had already shot was thickly dripping from Mimata Chieri's pussy.</p>
-<p>What the hell is going on?</p>
-<p>----------1 Million Thanks Illustration------Chest Heart!</p>
-<p>Yukiko-mama's chest heart!</p>
-<p>Arisu's chest heart!</p>
-<p>Yu-gyeong's chest heart!</p>
+<p>There is explicit content and explicit illustrations. Please be mindful of your surroundings!</p>
+<p>"Chuuup, chuup!"</p>
+<p>We started kissing without either of us initiating. Ha Ju-yoon sucked and licked my tongue ravenously, like someone who hadn't eaten in a month. Maybe it was because she filmed kiss scenes often, but her kissing skills were amazing. No... come to think of it, you don't use your tongue at all when filming kiss scenes, so it seems she's just a good kisser in general.</p>
+<p>"Noona..."</p>
+<p>"Yong-tae-ya, I'm sorry. I can't hold back anymore."</p>
+<p>Ha Ju-yoon looked at me with hazy eyes and opened her mouth. I grabbed Ha Ju-yoon's breast over her clothes. Ha Ju-yoon's breasts were so soft, it was like touching marshmallows. As expected of someone with a daughter, Ha Ju-yoon's breasts felt full of maternal love. Ha Ju-yoon let out a hot sigh as I touched her breasts. And as she opened her mouth, she lowered her hand.</p>
+<p>"Haaahng... I'll do it for you too♥"</p>
+<p>Ha Ju-yoon also stroked my dick over my clothes. It seemed like it had been a while since she'd done it with her husband, as she trembled slightly while stroking my dick up and down. But with her experience as a married woman, her touch gradually became more skillful. Even though it was over clothes, it felt really good.</p>
+<p>"Noona...! It feels good."</p>
+<p>"Me too, it feels good too...!"</p>
+<p>Compared to Ha Ju-yoon's incredibly soft breasts, her nipples were as hard as they could possibly be. The contrast in texture was interesting. I fondled Ha Ju-yoon's breasts to my heart's content, gently rubbing her nipples with the palm of my hand, gauging Ha Ju-yoon's mood. Ha Ju-yoon twisted her body and called my name repeatedly.</p>
+<p>"Haaahng... Yong-tae-ya, Yong-tae-yaa...!"</p>
+<p>"Your nipples are really hard? Why are you so excited?"</p>
+<p>"Aish, I don't know♥"</p>
+<p>Ha Ju-yoon blushed and answered my question. I kissed Ha Ju-yoon because I found her adorable for blushing and answering like that, despite her age.</p>
+<p>Chuuup, chuu...! Chuuup, chuup...♥</p>
+<p>After a sticky and lewd kiss, we looked at each other and took off our clothes. We slowly took off our clothes, like a strip show for each other. Ha Ju-yoon's black clothes rustled as they fell to the floor, leaving her in just a bra and panties.</p>
+<p>Ha Ju-yoon's figure was toned from exercise, with firm abs, a slender waist, and firm thighs. It was firm but not overly muscular, making it a perfect figure to look at. To be so toned and have such big breasts was complete fraud.</p>
+<p>I also threw off my outer clothes and was only wearing my underwear. Ha Ju-yoon stared blankly at my dick, which was already standing tall as if it would burst through my underwear. It seemed like she was impressed by my size.</p>
+<p>"Yeah, what I saw wasn't wrong... This is it, this...!"</p>
+<p>As if possessed, Ha Ju-yoon knelt down in front of me and pulled down my underwear. As the underwear went down, my dick popped out with a 'taeng!' and hit Ha Ju-yoon's cheek. Ha Ju-yoon screamed 'Kyaaak' but her face was smiling.</p>
+<p>"Ahaha, what is this, a spring♥"</p>
+<p>Ha Ju-yoon looked at my dick for a moment and smiled, then put the head of my dick in her mouth. She sucked hard enough to cave in her cheeks, doing a vacuum fellatio. It felt really good. So this is the skill of a married woman.</p>
+<p>"Keueut...! Noona! It feels good."</p>
+<p>Ha Ju-yoon looks up at me and smiles with her eyes. Ooh, that seductive eye smile that makes my heart flutter and my dick hard on its own.</p>
+<p>Ha Ju-yoon continued to suck my dick as if her jaw didn't hurt. After sucking for about fifteen minutes, I slowly started to feel like I was going to cum.</p>
+<p>"I'm gonna cum, Noona, I'm gonna cum!"</p>
+<p>When I said I was going to cum, Ha Ju-yoon shook her head even harder and sucked my dick intensely. I suddenly felt an even greater pleasure and had an enormous orgasm. It was the first time I had such an orgasm from fellatio.</p>
+<p>Gush! Gush! Gush!</p>
+<p>Ha Ju-yoon's eyes widened as if she didn't know so much semen would come out, and semen flowed out of her mouth.</p>
+<p>"Cough! Cough! Our Yong-tae's semen comes out so much?"</p>
+<p>Ha Ju-yoon, who spat out my dick along with the semen, coughed and smiled at me. I pulled out a wet wipe and wiped around Ha Ju-yoon's mouth and wiped up the semen that had fallen on the floor.</p>
+<p>"Now I'll do it for you."</p>
+<p>I took off Ha Ju-yoon's remaining underwear. As I expected, her big, white, soft breasts and her smooth pussy, which had no hair because she had gotten a Brazilian wax, were revealed. I lowered my hand and gently rubbed the outer part of Ha Ju-yoon's pussy. It was already completely flooded, as if she had already gone once while sucking my dick. My hand became soaked with the vaginal fluid that had flowed down to her thighs.</p>
+<p>"Haaheung...! There's no need for more foreplay. Just... just put Yong-tae's dick in~!"</p>
+<p>Ha Ju-yoon wiggled her hips back and forth and begged me. Dew was dripping from Ha Ju-yoon's petals, which were already horny as could be, and Ha Ju-yoon's seductive eyes were already clouded with lust.</p>
+<p>I picked up Ha Ju-yoon and went to the bedroom. I threw Ha Ju-yoon onto the bed and climbed on top of Ha Ju-yoon's body. Ha Ju-yoon spread her legs wide as if welcoming me. I wiggled my waist slightly and rubbed Ha Ju-yoon's Clitoris with my glans.</p>
+<p>"Haaht! Haaht! Euuueung!!"</p>
+<p>Ha Ju-yoon, who was rubbing her Clitoris, one of the most sensitive areas, with her glans, rolled her eyes and was almost about to die. After rubbing her Clitoris with my glans for about two minutes, Ha Ju-yoon spread her toes wide and climaxed again.</p>
+<p>"Haaheung~! I'm going, I'm going, I'm goooing!"</p>
+<p>Vaginal fluid came out of her pussy like shooting a water gun, and my dick was coated in vaginal fluid even though I hadn't put it inside her pussy.</p>
+<p>"Haa.... Haa.... Haaheuh.... Now, now.... Put it in, Yong-tae-ya."</p>
+<p>As Ha Ju-yoon said, I grabbed my dick with my hand and aligned it with Ha Ju-yoon's vaginal opening. My thick glans widened Ha Ju-yoon's narrow pussy and slowly went inside.</p>
+<p>"Haaheuueehat! Big, Hieuuheeut!!"</p>
+<p>"Is it bigger than your husband's?"</p>
+<p>"Heueueut! Much, much bigger! No comparison!"</p>
+<p>Ha Ju-yoon seemed to be enduring the foreign sensation in her stomach as she continued to wriggle her waist. It seemed a little uncomfortable as a dick bigger than her husband's, which she had been receiving all her life, continued to widen her pussy. Ha Ju-yoon's pussy was soft, hot, and narrow. It was a very pleasant pussy.</p>
+<p>I continued to widen Ha Ju-yoon's pussy, which was tightening with just the right amount of pressure, and moved my waist.</p>
+<p>"Heueuheueut...! Euut, euheuht! Eungheueut...! It's weird, the feeling...! It hurts.... It feels, it feels good!"</p>
+<p>At first, she seemed to be in a little pain because of my big dick, but as she gradually got used to the size, Ha Ju-yoon seemed to feel more and more pleasure.</p>
+<p>"Does my dick feel better than your husband's?"</p>
+<p>"I don't even think about that person's anymore! Haaht! This is so long overdue....Eueung♥ The only dick I remember is Yong-tae's!"</p>
+<p>Ha Ju-yoon was good at answering even while rolling her eyes. How long has it been since she did it that she can't even remember? I had heard that Ha Ju-yoon's husband, Han Seong-jae, had been having an affair for a long time, so it seemed certain that their relationship was not good.</p>
+<p>"Heueueung, aht! Euheung! It feels good! Yong-tae-ya!"</p>
+<p>"Does your daughter's boyfriend's dick taste good?"</p>
+<p>I asked a little mischievously. Ha Ju-yoon's pussy tightened even more at my spiteful words. Does she get more excited by this kind of masochism? Ha Ju-yoon seemed to have a bit of a masochistic tendency.</p>
+<p>"Haaheueung, my daughter's boyfriend's dick tastes good!"</p>
+<p>"Aren't you sorry to Yu-gyeong-a!?"</p>
+<p>"Heueungat! Haaht! I'm sorry, I'm sorry for being such a lewd mom♥"</p>
+<p>She's definitely a lewd mom, judging by what she's doing now. I sucked Ha Ju-yoon's slender, white neck. I don't know why, but I wanted to leave my mark on Ha Ju-yoon. Did I want to leave a mark on this maso-mom that she was mine? Even I couldn't understand my actions. I was just raping Ha Ju-yoon as I pleased, doing whatever came to mind because my reason was almost gone due to desire.</p>
+<p>"Haaheueut! No, no.... If it shows on my neck, no~!"</p>
+<p>"You can just lie and say it's your husband."</p>
+<p>"Still.... Haaht! Yong-tae-yaa!"</p>
+<p>I moved my dick roughly so that Ha Ju-yoon couldn't say anything more. As I continued to stimulate her by hitting her cervix, Ha Ju-yoon, who had been resisting me sucking her neck until now, hugged my body tightly and trembled.</p>
+<p>"Heueueueu, heueut! It feels weird! Heuhaaheung!"</p>
+<p>"Your daughter is working hard, but her mom is spreading her legs like this and sucking on her daughter's boyfriend's dick and not letting go, isn't that disqualifying as a mom?"</p>
+<p>"Haaahng! Yu-gyeong-a, I'm sorry, I'm sorry...! But, it feels so, heut! Good...! You enjoying this alone is, heueut! So unfair...!"</p>
+<p>Ha Ju-yoon was apologizing to Han Yu-gyeong, but her pussy continued to squirm and crave my dick. Ha Ju-yoon sucked my lips as if telling me not to say anything more. We, with our upper and lower lips connected, overlapped each other's bodies like snakes coiling. I now slowly shook my waist and pushed my cervix firmly. Every time I stimulated her cervix, Ha Ju-yoon rolled her eyes and parted her kissing lips.</p>
+<p>After about an hour of sticky and lewd sex, with each other's saliva, sweat, and vaginal fluid mixed together, I gradually felt like I was going to cum.</p>
+<p>"Noona, I think I'm going to cum. Where do you want me to cum?"</p>
+<p>My preference was internal ejaculation, but if I cum inside her and Ha Ju-yoon gets pregnant, it would be a huge scandal. It would be impossible to get her pregnant now, unless I get settled later, so I asked Ha Ju-yoon.</p>
+<p>Ha Ju-yoon smiled at me and brought her lips to my ear.</p>
+<p>"I'm safe today. Let me hold Yong-tae's baby inside...!"</p>
+<p>You fucking bitch, you're making me so horny. I cursed inwardly at Ha Ju-yoon's seductive words and spurred on the piston movement even more.</p>
+<p>"Then I'll cum inside, I'm going to cum now, so receive it all with your pussy!"</p>
+<p>"Heueueut! Haaheueut! Inside, give it to me inside.... Receiving it inside is so, eungheueut! Long overdue♥"</p>
+<p>Well, it's been a long time since she's had sex with her husband, so internal ejaculation must be long overdue. I shook my waist even more vigorously at those words. It was to give Ha Ju-yoon the best climax.</p>
+<p>"Heueut! Heueueut! Yong-tae-ya, Yong-tae-yaa!"</p>
+<p>"Noona, I'm going to cum inside. Noona...!"</p>
+<p>"Give it to me inside. Inside...! Heueut! Joaaahng! I love you, I love you, honey...!"</p>
+<p>At the same time as Ha Ju-yoon's words 'honey', I attached my glans to her cervix and discharged my semen inside. As the hot semen filled her uterus, Ha Ju-yoon fluttered and reached a flamboyant climax.</p>
+<p>"Haaht, heueut! Euheung...!"</p>
+<p>Ha Ju-yoon seemed to be enjoying the afterglow of her climax, repeatedly uttering short moans.</p>
+<p>-----</p>

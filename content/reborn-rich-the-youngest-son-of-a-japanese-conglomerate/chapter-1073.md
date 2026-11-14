@@ -5,77 +5,65 @@ weight = 1073
 chapter = 1073
 +++
 
-<p>I, who was flying with Fujigasaki Rinka, soon met the Transport team and boarded a vehicle. Of course, going by psychokinetic Flight would be much faster, but I couldn't openly fly to a Hospital in New York, so there was no other way but to travel by vehicle.</p>
-<p>"How is Rinka-nim?"</p>
-<p>Kiyona Hori, who was holding the steering wheel, looked at us through the Rearview Mirror and asked. As she had a Specialty in driving, Kiyona Hori was the one who could drive the fastest and safest among the Transport team, which was why she had waited for me until the end.</p>
-<p>"Internal Injury.... I don't really know. She doesn't seem to be in critical condition."</p>
-<p>In response to Kiyona Hori's Question, I looked at Sabu Fujigasaki Rinka, who was unconscious, and said. Judging by her regular Breathing, she didn't seem to be seriously injured physically, but seeing her cough up Blood earlier, she must have suffered a significant Internal Injury.</p>
-<p>In fact, if I were to be considered a Martial Arts character who fights using Creation Chaos as an Energy source, I would be a Naegong character, but I didn't know much about Internal Injury at an Expert level. My regeneration Ability also treated Internal Injury, so I didn't pay much attention to it.</p>
-<p>First, I should go to the Hospital, get a detailed examination, and hear the full Story from the Doctor.</p>
-<p>However, if such Internal Injury continues, there is a risk of it becoming chronic, so I knew it had to be treated thoroughly this time. This was because even in games, there was a Dibeopeu called chronic Internal Injury. If not resolved quickly, sending them into battle would almost certainly result in Death, so it was important to treat it quickly before it became chronic.</p>
-<p>Having suffered a major Internal Injury in the previous battle against Takakusaki Gengo, and now getting hurt like this again after only a few months, could be considered a significant Danger Signal.</p>
-<p>Since we had a contract with the Federal Superpower Management Bureau and had completed a mission, we were heading to a place similar to a secret Hospital, called the Federal Secret Medical Hospital. If Fujigasaki Rinka, a Celebrity, went to a regular Hospital while unconscious, News would immediately break out starting tomorrow, so there was no other Choice but the Federal Secret Medical Hospital.</p>
-<p>Although it was a Hospital of considerable scale, with Expert Manpower for treating Superhumans and Ability Users, I was actually a little uneasy.</p>
-<p>To find out Sabu's Strength, I was a little worried they might conduct some kind of Human body Experiment. There was an uneasiness that they might do something beyond just examining skin tissue or Blood Samples.</p>
-<p>Still, since they carried the signboard of a superpower Treatment Expert, they would surely know that Sabu's Strength came from Martial Arts training, not superpowers, and since I would be watching with wide, vigilant Eyes, they wouldn't dare to use Sabu as an Experiment subject.</p>
-<p>If such a thing were to happen, even if it meant destroying the entire Hospital, I would have to save Sabu.</p>
-<p>"We've arrived."</p>
-<p>At Kiyona Hori's Words, I thanked her, then carried Sabu and got out. At the Hospital Entrance, our Members who had come to the USA were waiting.</p>
-<p>Kujo Kina and Seizawa Shii, who had briefly received guidance from Fujigasaki Rinka, and Sabu's friend Shimokawabe Airen, were waiting for me with particularly worried Expressions.</p>
-<p>"Teacher! Rinka-nim, are you badly hurt?!"</p>
-<p>"Rinka-tan!! Are you in a lot of pain?"</p>
-<p>Kujo Kina directly asked me about Fujigasaki Rinka's condition, and Seizawa Shii spoke directly to Fujigasaki Rinka, expressing worry. Her friend Shimokawabe Airen muttered "Rinka...." to herself, and gazed worriedly at her friend.</p>
-<p>"First, let's do the Hospital Registration Process."</p>
-<p>"I've already made arrangements, so you can go straight to the Hospital Room."</p>
-<p>Ah, the Registration Process was already completed. Naruse Shiyo seemed to have handled it in advance. I nodded and entered the Hospital.</p>
-<p>"Is this Fujigasaki Rinka, the patient?"</p>
-<p>Upon entering the Hospital, a Nurse was waiting for us. She pointed at Sabu, whom I was carrying, and asked, so I nodded.</p>
-<p>"Yes."</p>
-<p>"This way.... We'll conduct a detailed examination and inform you of The Situation."</p>
-<p>"Understood. Please take good care of her."</p>
-<p>I laid Fujigasaki Rinka on the wheeled bed, and sat on a nearby Chair. Naruse Shiyo followed the Nurse, making some Demands. I was quite grateful that she handled things so well on her own.</p>
-<p>"First... I'd like to receive a Report."</p>
-<p>"We've already reserved the Hospital conference room. Please follow me."</p>
-<p>At my Words, the Jooseodang agent said. My Party/Group and I followed the Jooseodang agent to the Hospital's conference room. Since it was Dawn, no one was using the conference room.</p>
-<p>"The conference room is clean."</p>
-<p>Upon entering the conference room, a Jooseodang agent, holding a long stick, nodded at me and said.</p>
-<p>I had wondered where the other Jooseodang agent had gone, as only one had been waiting at the Hospital Entrance, but it seemed the remaining Jooseodang agent had been checking for listening devices inside the conference room.</p>
-<p>Of course, if it were a regular Hospital, there wouldn't be much need to worry about listening devices, but since this isn't a regular Hospital, it's worth checking once.</p>
-<p>"First, I'll hear about Sajo-nim's condition."</p>
-<p>I said, sitting on a Chair. After all, the Purpose of coming to the USA was to rescue the fake Black Knight, Soda Haruto, so I needed to hear an Explanation of Sajo-nim's condition first. When I rescued him, he was almost at Famine levels of emaciation, but since he's in the Hospital now, I should hear the Doctor's opinion.</p>
-<p>"First, what we did first was Otagi-ssi and Naruse Team Leader-nim together identified the Jusul placed on Soda-ssi. This was because we judged that Soda-ssi might still be under the Black Sage's Jusul, just like the Black Sage's Subordinates we found during the last vigilante mission."</p>
-<p>That's right. While treating the Body is important, if he's magically connected to the Black Sage, Side Effects could appear at any Time, so it might be better to remove that first. It seemed Otagi Yuka and Naruse Shiyo, who have an aptitude for Jusul on our side, had confirmed it together.</p>
-<p>"We found the Jusul, but... the Black Sage's Level was very high, so there were considerable Problems in removing the Jusul. After Ryuta-nim and Fujigasaki-nim dealt with the Black Sage, the Jusul that had been placed disappeared, they said."</p>
-<p>Ah...! It seemed to be a Jusul that was dispelled if the caster died. It was probably magically linked to the Black Sage, and as the Black Sage died, the Jusul seemed to have been naturally dispelled. That Sabu and I dealt with the Black Sage, and the Jusul on Sajo-nim was dispelled, this is good News.</p>
-<p>I thought he would cast a malicious Jusul that would explode if he died.... It seemed the Black Sage probably didn't think he would die. It was Fortunate that the Black Sage was arrogant in this Sajo-nim Jusul Matter.</p>
-<p>"To Report on his physical Health, excluding the Jusul, the examining Doctor said he would need at least three months of rehabilitation and recuperation. He said there were no major illnesses or injuries, but he was in a considerably weakened state."</p>
-<p>Still, if it's just recuperation, that's Fortunate. I should try to get some Elixir for Sajo-nim.</p>
-<p>"It's Fortunate that there are no major illnesses or injuries. Next, I'd like to Request the harm Report."</p>
-<p>As far as I knew, I had heard there was no significant harm in the combat team apart from Fujigasaki Rinka, but I needed to confirm.</p>
-<p>"Excluding Fujigasaki-nim, there was no significant harm in the combat team. Of course, there were injuries like bruises or stab wounds, but that level of harm was within what was expected. The sniper team also suffered no harm."</p>
-<p>"What about the other teams?"</p>
-<p>"There are two Casualties in the Transport team...."</p>
-<p>Ah...! There were Casualties. Of course, I didn't think there would be no harm at all, but it was a bit regrettable that Casualties, which hadn't even occurred in the battle against An'yaji, appeared in this New Rochelle Incident, where there was no clear Enemy organization.</p>
-<p>Of course, there were the Black Sage and Behemoth, but the Black Sage targeted the Fragment of Omniscience, and Behemoth targeted me personally, so there was no opposing Group hostile to our collective, which is why I hadn't worried much about the Transport team, but this must mean that the New Rochelle Incident was that chaotic and intense.</p>
-<p>"The battle didn't take place at the harbor, which we had initially assumed, but rather in the north of New Rochelle, and Transport Team D was ambushed with Gunfire while moving. Although they were wearing cybersuits, they were hit by so much Gunfire that...."</p>
-<p>At the Jooseodang agent's Report, I nodded with a serious Expression. Although everyone participating in this trip to the USA was wearing top-grade cybersuits with bulletproof capabilities, if they kept getting hit, they would inevitably be penetrated. In the end, they were unfortunately attacked while moving due to a change in Points.</p>
-<p>"Who attacked?"</p>
-<p>"It's a gang affiliated with the Obsidian Syndicate."</p>
-<p>The largest gang Pabeol in New York right now was the Obsidian Syndicate. They had deployed 200 people at the harbor, and it seemed they had deployed many others elsewhere, aiming to seize the Fragment of Omniscience.</p>
-<p>"Any other special Matters besides the harm?"</p>
-<p>"It's not exactly harm, but Otagi-ssi consumed three Transfusion packs due to Blood loss, and she acquired some loot, they say. Otagi-ssi is currently waiting at the accommodation."</p>
-<p>If she had to consume Transfusion packs, it seemed she had engaged in a quite intense battle. Loot.... For now, I'll settle accounts for what was obtained later, and deal with other Matters first.</p>
-<p>"Please give me my phone."</p>
-<p>"Here it is."</p>
-<p>Because it could be damaged during battle, I had only carried an earpiece communicator, and left my phone at the Command post, so I received the phone from the Jooseodang agent. And immediately, I made a Phone Call to Diana Lich, the Deputy Director-General of the Federal Superpower Management Department.</p>
-<p>TheDreaming-nim requested Athena in The Cabin 1. Hands tied behind her back 2. Kneeling naked~!</p>
-<p>1.</p>
-<p>I don't know why her Ankles are also tied ㅎㅎ</p>
-<p>2.</p>
-<p>Chomisaemeonji-nim requested Liz in a miniskirt and Liz in a Military Uniform~!</p>
-<p>Miniskirt~!</p>
-<p>I only entered "miniskirt," but it came out looking like a Suit ㅎㅎ</p>
-<p>Miniskirt + Shirt</p>
-<p>Military Uniform~!</p>
-<p>Skirt VER.</p>
-<p>Pants VER.</p>
+<p>are illustrations</p>
+<p>We, who had learned of Taira Gensuke's Attack in advance, first made blocking the Attack a given, and thought about how we could turn this Situation most favorably to us.</p>
+<p>As we discussed, several opinions emerged. There was an opinion that we should launch a preemptive Attack first, and also an opinion to warn Gensuke in advance to prevent the Attack attempt itself.</p>
+<p>As a result of various opinions being exchanged, we reached the conclusion that the Taira Group needed to fall into Confusion.</p>
+<p>Currently, the Taira Group seemed to be in Confusion due to the struggle between successor groups, but that was not the case at all. Rather, with Taira Saburo's death, that Confusion had ceased. If things continued this way, Taira Ichiro, the one with the largest faction, would smoothly be confirmed as the Taira Group's Successor.</p>
+<p>Naturally, I and my people did not wish for such a boring future to come, and the other Successors would also agree with that.</p>
+<p>Therefore, we intended to use Taira Gensuke's current Attack to sow Confusion within the Taira Group.</p>
+<p>In fact, if I simply did nothing and only blocked the Attack, I had two paths. Assuming blocking the Attack was the default, there were two Choices: killing Taira Gensuke or letting him live.</p>
+<p>Killing Taira Gensuke would certainly result in becoming an Enemy of Taira Ichiro. No matter how cold-hearted Taira Ichiro was, since his own Son had been killed, there would be no Negotiation or anything at all.</p>
+<p>And the other Successors would also become wary of me. Even though he attacked me first, I killed Taira Gensuke, a Blood relative. They would think that I was someone who could kill them in the same way. Also, I would hear a scolding from Grandfather Danjo for killing my Cousin. Of course, Taira Kanna wouldn't be wary of me, but the Pabeol following Taira Kanna would be.</p>
+<p>If I let Taira Gensuke live, he would pay the Price to Grandfather for his rampage in Neo Tokyo. Then, the Relationship between Taira Gensuke and his Father, Taira Ichiro, wouldn't be hostile, but rather somewhat uncomfortable. And simply, Taira Ichiro would smoothly become the Successor a few years later.</p>
+<p>Neither was a conclusion that pleased me. If so, I decided to rather stir up Confusion in the Taira Group and completely change the Situation.</p>
+<p>Since Sakagami Rena had already Jamip and planted malicious Code on Taira Gensuke's side, we decided to use that to designate where Taira Gensuke would Attack.</p>
+<p>Of course, Taira Gensuke would make the Choice, but if we inserted the most attractive Choice among the options, I thought Taira Gensuke would naturally choose that.</p>
+<p>The Choice we secretly placed in Taira Gensuke's computer was an isolated Warehouse in Akita, where over a hundred tons of Mithril were stored.</p>
+<p>Naturally, Taira Gensuke would choose it, but that was our Trap. It was certainly an attractive Mithril Warehouse, but that Warehouse was not our Possession. That Warehouse was Taira Jiro's Warehouse, where Mithril was gathered before being transported to the Iron Smelting plant.</p>
+<p>It hadn't been long since Taira Jiro and I signed the Mithril supply Contract.</p>
+<p>Therefore, Taira Jiro's Warehouse at the Iron Smelting plant couldn't accommodate all the Mithril I supplied, and before building a new Iron Smelting plant Warehouse, a temporary Warehouse was built in Akita.</p>
+<p>Because Mithril was expensive, almost at the level of precious metals, Taira Jiro secretly built the Warehouse so that no one else could covet it. Of course, the Security Guards would be filled with skilled individuals, but I knew it wouldn't be enough to stop Enemies who came with determination.</p>
+<p>Over a hundred tons of Mithril held immense Value even for Taira Jiro, who was competing for the Taira Group's Succession. Naturally, he would investigate this matter, and soon it would be revealed that the Guy who caused this incident was Taira Gensuke.</p>
+<p>I couldn't know what kind of Reaction Taira Ichiro's side would show, but this incident would further widen the gap between Taira Ichiro and Taira Jiro.</p>
+<p>And the Succession competition, which had entered a temporary lull after Taira Saburo's After Death, would begin to intensify even further. Watching such an intensified Succession War, we would gradually gain advantages, build up our Power, or side with other Successors, thereby setting the Situation in our favor.</p>
+<p>And Taira Gensuke's Attack on our Mansion was also a very bad move. Although we had manipulated the Report a bit to state that the Address was Neo Tokyo but in such an isolated Place that it would be fine to Attack, Neo Tokyo was still Neo Tokyo. Being in Brazil, far from Japan, Taira Gensuke's misstep was not knowing how much the Taira Group valued Neo Tokyo.</p>
+<p>He would clearly receive a severe scolding from Grandfather Danjo and some Punishment. Because it was a foolish action that could ruin the Neo Tokyo Project, which the Group was focusing on.</p>
+<p>If I were Taira Gensuke, I would have gathered all my Troops and attacked the Mithril mine. Then it would have become very difficult.</p>
+<p>The Mithril mine has a Contract with East Weapon for Security Guard duties, but if something happened, since it was in Akita, which is not close, we couldn't quickly deploy our forces.</p>
+<p>Even if Taira Gensuke only grasped the mine's Security Guard Situation and committed Terror there, the Mithril mining operation would be delayed, and then we would have to pay compensation for not properly fulfilling the Mithril supply Contract.</p>
+<p>That was the greatest Harm Taira Gensuke could inflict on me with his Skill and influence. Well, since the deed was already done, it was now merely an Assumption that couldn't be realized.</p>
+<p>".... That's how it happened. As you both surely know, you mustn't tell this Story to anyone, alright?"</p>
+<p>"Ryuta, you're amazing...! You're like a Villain plotting a conspiracy!"</p>
+<p>"With this incident, Gensuke will be quite cornered. Well done. He needs to know that if he attacks our Ryuta, he'll get a good scolding."</p>
+<p>Arisu and my Aunt, who had heard my Explanation, spoke with relieved smiles. By the way, a Villain.... Although I approved it, it wasn't a conspiracy I plotted. For reference, this Operation was created by Tsukiyo and Asada Ei.</p>
+<p>"Aunt and Arisu, don't you have anything to say?"</p>
+<p>I subtly hinted, slowly trying to receive a Gift from Arisu and my Aunt. The two looked at each other, then took out a shopping bag with the Legion logo on it, which had been placed in a corner of the reception room, and handed it to me.</p>
+<p>"Ufufu...! It's a Gift, Ryuta"</p>
+<p>"Mom and I chose it together~!"</p>
+<p>What could the Gift they personally chose be? I checked the contents of the shopping bag with Expectation.</p>
+<p>A few hours ago.</p>
+<p>"Did I mishear because I'm not fully awake yet? Tell me again."</p>
+<p>Taira Jiro thought his Ears had deceived him at the Phone Call that came at Dawn. Over a hundred tons of Mithril completely stolen.... He must have definitely misheard.</p>
+<p>-The Warehouse in Akita.... It's been completely emptied. The Invaders killed the Security Guards and swept away all the Mithril.</p>
+<p>"Haa...!"</p>
+<p>Taira Jiro let out a Sigh as he performed a dry Wash Face. And immediately got out of bed.</p>
+<p>"First, I'll see you at the company. Call everyone. I'll hear exactly what happened and then decide on the next action."</p>
+<p>Taira Jiro nervously hung up the Phone Call, then shouted to call the Butler, and began to put on his suit.</p>
+<p>"W-What is the matter, sir?"</p>
+<p>"Prepare the Vehicle. I need to go to the company."</p>
+<p>"Understood...!"</p>
+<p>Taira Jiro, having ordered the Butler to prepare the Vehicle, began to fix his disheveled Hair from Sleep, looking into the Mirror with Eyes boiling with Anger. Rather, in the current Situation of being attacked, he couldn't show a disheveled Appearance. His Subordinates and Enemies would be watching him now, so he couldn't show any weakness-that was Taira Jiro's Thought.</p>
+<p>"The Mithril Factory was deliberately built in Akita. In that case, it's not Minamoto's side...."</p>
+<p>Although there were places where each faction was strong, in most regions of Japan, the Taira and Minamoto factions coexisted. However, there were also places where one faction completely dominated the entire region, such as Taira's Neo Tokyo or Minamoto's Nara Autonomous City.</p>
+<p>Akita was similar, with Taira's influence being overwhelming, due to Taira Foodstuff, which dominated Akita, and its Subordinate Enterprises. If Taira Foodstuff collapsed, Akita Prefecture and the Citizens and their families employed by Taira Foodstuff and its Subordinates would also be greatly shaken, so most Akita People sympathized with Taira.</p>
+<p>Taira Jiro, who was well aware of this Situation, to avoid being attacked by Minamoto, and trusting Nagumo Sian of Taira Foodstuff, who hadn't lent her Power to any other Successor faction, secretly built a Mithril Warehouse in Akita.</p>
+<p>The fact that the Mithril Warehouse was raided in such a Situation meant it wasn't Minamoto, and if it wasn't Minamoto, then the only ones left were Taira Ichiro, Taira Kokoro, and Taira Kanna, who were competing with him for Succession.</p>
+<p>Even if it wasn't the three Succession competitors themselves, someone beneath them, showing excessive Loyalty, must have done something.</p>
+<p>Of course, the faces of Nagumo Sian of Taira Foodstuff, who knew Akita's geography well, or that Guy Taira Ryuta of Hatake Mining, briefly came to mind, but it wasn't those two.</p>
+<p>Nagumo Sian was a neutral Person who didn't yet support any Successor, and that Guy Taira Ryuta was smart enough to know that if he committed such an act, Taira Jiro would use it as an excuse to swallow up the Mithril mine.</p>
+<p>"Eudeuk...! I don't know who it is yet, but. I will definitely make them pay the Price for stealing my Mithril."</p>
+<p>Taira Jiro muttered, grinding his Teeth. As he had spoken, he would make them pay dearly for daring to provoke him.</p>
+<p>Since there are no Illustrations, I'm uploading some 2.5D art style Characters I made before hehe. I trained an old model art style to create a LORA hehe.</p>
+<p>My Aunt</p>
+<p>Yukiko, who disguised herself as Rena Sabu.... I suddenly can't remember her name hehe.</p>

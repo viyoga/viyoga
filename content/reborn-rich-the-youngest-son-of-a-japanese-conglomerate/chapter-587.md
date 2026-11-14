@@ -5,68 +5,86 @@ weight = 587
 chapter = 587
 +++
 
-<p>The schedule in Korea was three nights and four days out of the five nights and six days of the graduation trip, but the last day of the three nights and four days was a schedule to go to Xin Nanjing City right away in the morning after waking up, so it felt like three nights and three days.</p>
-<p>After getting off the plane, we immediately took a limousine bus again and headed to the accommodation where we would stay for three days. Since I had so much luggage, we decided to drop it off at the hotel first and have lunch at the hotel restaurant.</p>
-<p>,Since it's a triple room, always travel in groups of three. The double rooms should travel in groups of four. Still, it's a foreign country, so you might not be able to communicate and get lost, so don't forget to contact me if anything happens."</p>
-<p>I said, standing on the running bus and looking at the document that divided the rooms by group. Still, as it was the last graduation trip with just our class, the students stayed in triple or double rooms instead of single rooms. Since our class had 13 students, the rooms were divided into three triple rooms and two double rooms. For reference, the two double room groups decided to travel together in groups of four. Of course, there won't be any major problems because bodyguards will be watching near where the students are traveling.</p>
-<p>For reference, the teachers also stayed in triple or double rooms, but if they paid personal money, they could upgrade to a single room, so of course I paid the extra fee and changed to a single room. I think I'll have to go out every night to see Han Yu-gyeong-ssi or Ha Ju-yoon-ssi, but I can't use a 2-3 person room where other teachers can know my movements. Besides, it's not like I'm sharing a room with beauties like Kijimoto Jurie-ssi or Shimokawabe Airen-ssi, and it's suffocating to be alone with a dark-skinned male teacher I'm not very close to.</p>
-<p>,Go to your rooms, then go to the hotel restaurant for lunch, and gather back at the bus boarding area by 2:30."</p>
-<p>,Okay, Ryuta-cchi!</p>
-<p>,Teacher, have lunch with us! Where are you eating?</p>
-<p>,I'm going to eat Chinese food.</p>
-<p>After getting off the bus, I watched the students go to their respective rooms, packed my luggage, and went to my room. I was quite hungry, so I threw my carrier in the hotel room and went straight down to the hotel restaurant.</p>
-<p>I wanted to eat Korean-style Chinese food that I hadn't been able to eat for a long time, so I chose the hotel's Chinese restaurant. There were restaurants with different themes on each floor, so there weren't many students from St. Francisco Girls' Academy. I ordered jjampong, jajangmyeon, and tangsuyuk and waited, and then our special class students came down.</p>
-<p>All the students in our class came to the Chinese restaurant. Even if I'm eating here, aren't they following me too much?</p>
-<p>,Teacher, you were here.</p>
-<p>,Ryuta-cchi~☆</p>
-<p>,Recommend something with a lot of protein, teach~!</p>
-<p>I asked, watching the students sit naturally around me with a commotion.</p>
-<p>,Are you all going to eat here?</p>
-<p>,We can eat at other restaurants in Japan. There aren't many places that sell Korean-style Chinese food.</p>
-<p>Konoe Akina-ssi answers my question. Well, Korean food is quite popular in Japan, but Korean-style Chinese food can only be seen in Koreatowns, so it will be quite new to the kids.</p>
-<p>,And Ryuta-cchi is a glutton, so he knows a lot about food.</p>
-<p>I eat about three servings every meal to maintain the regeneration properties and muscles that consume a lot of energy in my body, but a glutton.... I almost got pissed off for a moment, but I decided to think positively. That means they trust my taste that much.</p>
-<p>,Calling me a glutton is too harsh.</p>
-<p>,Pahahaha! If Ryuta-cchi isn't a glutton, there won't be many people in the world who can be called gluttons, right?</p>
-<p>Everyone laughs at Seizawa Shii-ssi's words. I was annoyed that everyone was laughing, but I didn't have anything to say, so I just changed the subject by recommending food.</p>
-<p>,If you like soup and spicy food, eat jjampong, otherwise eat jajangmyeon. For sides, order two tangsuyuk and two gganpunggi.</p>
-<p>I gave a recommendation with popular picks. Of course, there were things like bird's nest and shark fin at the high-end hotel Chinese restaurant, but what I wanted to eat was Korean-style Chinese food. It seems like the students want to eat something similar to what I'm eating, so I recommended jajangmyeon and jjampong as an either/or choice.</p>
-<p>The students each chose either jajangmyeon or jjampong according to my opinion. As expected, there were many Japanese people who couldn't eat spicy food well, so the ratio of jajangmyeon was high, but Seizawa Shii-ssi, Kujo Kina-ssi, and Otagi Yuka-ssi, who have adventurous personalities, ordered jjampong.</p>
-<p>Since I ordered first, my food came first, and when three bowls came in front of me, everyone looked at me and laughed, as if the glutton commotion from earlier came to mind. It felt like, ,You ordered that much and said you weren't a glutton?</p>
-<p>,Tch...!</p>
-<p>While I was slurping jjampong while saying ,tch', the female students' orders soon arrived, and everyone was busy eating new food. After eating jjampong, it wasn't that spicy, so it seemed like the students who ordered jjampong were eating well too.</p>
-<p>,Ryutta, ah...!</p>
-<p>As expected, Alik was the only one who took care of me. Alik picked up the gganpunggi that I didn't order and brought it to my mouth. When I opened my mouth and ate Alik's gganpunggi like a baby bird, Alik started eating jajangmyeon again with a proud expression. He looked quite cute eating with jajangmyeon on his face. It's distracting to eat, so I should wipe it off after the meal.</p>
-<p>,Have you decided what to wear for the next schedule?</p>
-<p>,I'm going to wear a Korean school uniform!</p>
-<p>,I brought my clothes in advance.</p>
-<p>The next schedule was to go to a Korean amusement park called Lotte World, and it was said that wearing Korean high school girl uniforms that were popular in the past was becoming popular again with the recent 12th Korean Wave, so the students in our class decided to wear Korean school uniforms.</p>
-<p>After finishing the meal, all the students returned to their accommodation. It was a fairly relaxed schedule, so there was still quite a bit of time left. The students will be using that time to put on the school uniforms they have prepared in advance.</p>
-<p>Of course, there were Korean school uniform rental shops near Lotte World, but the daughters of famous Japanese families were not allowed to wear rental school uniforms that others had worn. They all prepared newly purchased and made school uniforms. That's why the students had two large carriers. They said that there were many clothes and emergency medicines besides the school uniforms. I don't know if they're being extreme or thorough in their preparation, but it seemed like they had prepared a lot as much as they were sending them to a foreign country.</p>
-<p>,There's still about an hour left.... I should sleep a little.</p>
-<p>Like the students who went up to their accommodation, I went into my accommodation. While I'm in Seoul, I probably won't be able to sleep at night because of Han Yu-gyeong-ssi or Ha Ju-yoon-ssi, so I was thinking of sleeping in between now.</p>
-<p>###</p>
-<p>,Damn it!</p>
-<p>Bang!</p>
-<p>A large man with his hair slicked back smashed the desk and shouted loudly. The man with slicked-back hair had a rough impression with a knife scar on his face and was wearing a suit, but judging from the metallic color of his hands that were not covered by his clothes, he seemed to be doing a cyber implant.</p>
-<p>The man's name was Jeon Yong-cheol, and he was the boss of a violent organization called Yongcheol-pa, named after himself. Jeon Yong-cheol was from a special forces unit and started an organization in Gangnam with his juniors who were also from special forces units. With various combat experiences and cyber implants all over his body, rumors spread that there was no one to deal with him in the back alleys.</p>
-<p>The expansion of Yongcheol-pa's power was smooth. When a global giant organization called Black Moon Hall, which was in Korea, suddenly disappeared and a vacuum was created, Yongcheol-pa, which had seized Gangnam, was able to spread its power to various parts of Seoul based on its power and achieve considerable growth.</p>
-<p>However, when Yongcheol-pa ate up a large part of Seoul and tried to completely dominate Seoul, a new force entered Korea.</p>
-<p>It seemed to be a foreign organization, but it was disguised as a construction company. It was called Yonghwa Construction, and it was a mixture of Chinese, Japanese, and Koreans, and as a new force entering Seoul, friction continued to occur with Yongcheol-pa.</p>
-<p>If the friction was just simple violence, it wouldn't be a problem, but from some point on, deaths slowly started to occur. Of course, there weren't many people who officially died. Yongcheol-pa's members were disappearing. Jeon Yong-cheol thought that all these disappearances were murders.</p>
-<p>The reason he was angry while smashing the desk now was because of a report that one of Yongcheol-pa's middle managers had disappeared.</p>
-<p>,Hehehe.... Do I just look like a gangster? Do you think this Jeon Yong-cheol, who has experienced hellish wars, is going to die?</p>
-<p>Jeon Yong-cheol was muttering to himself with the whites of his eyes reddened. Jeon Yong-cheol, who was proud of being from the Marine Corps Special Reconnaissance and a participant in World War III, could not tolerate his organization being defeated by another organization, even if it was foreign.</p>
-<p>,We've been getting hit continuously.... But we're not just standing still.</p>
-<p>Jeon Yong-cheol continued to mutter. As Jeon Yong-cheol's muttering said, Yongcheol-pa was not just being hit. While enduring the loss of its members, it had been looking for the force behind Yonghwa Construction.</p>
-<p>As Jeon Yong-cheol expected, Yonghwa Construction had a backer. Vangaurd, the best security company in Korea, which had a slight conflict with Yongcheol-pa a few months ago, was the backer of Yonghwa Construction.</p>
-<p>No matter how much there was a conflict with Vangaurd before, it was unforgivable to touch them like this.</p>
-<p>,When those guys cut off our limbs, we hit Vangaurd's head....</p>
-<p>Jeon Yong-cheol opened his mouth, grinding his teeth. Jeon Yong-cheol looked at the documents spread out on the broken desk.</p>
-<p>The spread documents contained the name of Vangaurd's Chairman, Han Yu-gyeong-ssi, along with a photo and information such as where she lived.</p>
-<p>Jeon Yong-cheol took out his phone from his pocket and called Gil Jun-seok, the vice chairman of Yongcheol-pa.</p>
-<p>-Yes, Chairman-nim.</p>
-<p>,Prepare everything. We're hitting Vangaurd tonight. Yonghwa Construction is next.</p>
-<p>Jeon Yong-cheol opened his mouth with a murderous voice.</p>
-<p>---------</p>
-<p>Seizawa Shii Korean school uniform.</p>
+<p>"Where is the homeroom teacher of Class A?"</p>
+<p>The homeroom teacher of Class A was Matsunaga Yuzuki, formerly Kasaoka Yuzuki, with whom I had mixed bodies several times. Since Matsunaga Yuzuki was the head of the third-year students, she was in charge of Class A, the first class of the third grade, so I was worried that she might be hurt or dead, so I asked Taira Kanna.</p>
+<p>"She came to the parking lot with us. Is she okay?"</p>
+<p>That's a relief. Matsunaga Yuzuki must have had some sense, because she brought an emergency kit from the bus when she saw me asking Taira Kanna about her well-being. Seeing her bring the emergency kit, it seemed like there were injured students.</p>
+<p>"Yamashiro-sensei...!"</p>
+<p>Matsunaga Yuzuki ran towards me as if she was going to hug me, but she soon realized that she was in front of the students, and it was quite funny to see her pretending not to in front of me.</p>
+<p>"Are there any students who are injured or dead?"</p>
+<p>"There are injured students, but no dead students."</p>
+<p>That's a relief. Then, is Class B the only class whose whereabouts are still unknown?</p>
+<p>"Class C is also on our bus, and Kijimoto Jurie-sensei is also on board, so Kijimoto-sensei will take care of the injured students."</p>
+<p>"If we have the school nurse, there's nothing to worry about. Is the Disciplinary Committee Chairman safe?"</p>
+<p>"Yeah, she's a little tired, but she's not hurt. She's coming over there."</p>
+<p>Taira Kanna seemed very concerned about Nakanoin Rina, the Disciplinary Committee Chairman, because she was in her line. She'll probably be with Taira Kanna even after graduation, and she's quite a good talent. She has excellent leadership as the Disciplinary Committee Chairman, and she has some martial arts skills.</p>
+<p>"Are you hurt anywhere, Student Council Chairman?"</p>
+<p>"I'm not. First, have the Disciplinary Committee members of Class C put on the cyber suits that are loaded on the bus."</p>
+<p>"It's a shame we didn't bring weapons."</p>
+<p>"It can't be helped. It's not easy to bring weapons from another country across the border."</p>
+<p>Listening to them, it seemed that they brought the cyber suits but not the weapons. Then I have to step in. First, I need to turn off Uenozono Karen's GoPro.</p>
+<p>I don't think she'll upload this zombie situation in full version, but I couldn't show the students armed with guns to the person editing it. I could argue that the cyber suit is for defense, but there was no way to explain the gun. Why did a Japanese person bring a gun to South China? There was no good excuse.</p>
+<p>I opened the door of the safari bus that had arrived next to us and went inside.</p>
+<p>"Let's get off first. Class A is safe too."</p>
+<p>At my words, Class C, who was riding in the back, got off first. As the students in my class got off one after another, I grabbed the wrist of Uenozono Karen, who was holding the GoPro.</p>
+<p>"Karen. Can you turn off the GoPro for a moment?"</p>
+<p>"Yes...."</p>
+<p>Uenozono Karen turned off the GoPro obediently at my words, as if she didn't feel like a reporter who had to capture everything in the camera.</p>
+<p>"My class students, the Student Council Chairman, and the Disciplinary Committee Chairman, please come this way for a moment."</p>
+<p>I took the special class students, Taira Kanna, and Nakanoin Rina to the place where the special class bus was parked. There was no bus driver. It seemed that he had already been infected with the cyber zombie virus and left the bus.</p>
+<p>I opened the trunk door under the bus. It was full of black bags that I had moved from the hotel room right after lunch.</p>
+<p>"What is this?"</p>
+<p>At Minamoto Risa's question, I took out two bags. One bag contained three cyber suits each, and the other bag contained four unique-looking pistols each.</p>
+<p>"It's a weapon. Did you prepare it in advance, Onii-sama?"</p>
+<p>"Yeah, actually...."</p>
+<p>"I told you that my fortune-telling was bad."</p>
+<p>Naruse Shiyo answers Taira Kanna's question. The Naruse family, a family of exorcists, was famous for fortune-telling as well as shikigami, so Taira Kanna and Minamoto Risa nodded with a slightly bitter expression. In fact, Naruse Shiyo knew a little about shikigami, but she hadn't learned fortune-telling yet, but I made a deal with her to bring weapons.</p>
+<p>"Actually, it's superstition in a way, but I didn't say it because I thought you wouldn't enjoy the graduation trip if I said something that hadn't happened yet. I asked Amsang to prepare it. I thought it would be good if I didn't have to use it, but it finally happened."</p>
+<p>This was an excuse to Minamoto Risa and other special class students who I hadn't warned in advance. I told Taira Kanna in advance, but I explained it because special class students who didn't work under Minamoto Risa and me might feel sad or suspicious that I didn't warn them in advance.</p>
+<p>"Really? But please tell me if something like this is going to happen in the future. I'm the leader of the special class, so I feel like I have some responsibility for this class."</p>
+<p>Minamoto Risa had a considerable sense of responsibility, unlike her black gyaru appearance. She's the leader, but she doesn't have to take responsibility for this kind of situation.</p>
+<p>"Okay, I'll tell you in the future. And our class students, first take this bag and change into cyber suits in the bus. It will prevent you from getting hurt."</p>
+<p>"I can't choose the color, can I, Ryuta-cchi?"</p>
+<p>"Probably not?"</p>
+<p>"That's too bad."</p>
+<p>The cyber suit that the students received was a cyber suit that TG Tech was about to mass-produce. It wasn't intentional, but I could do a field test with this.</p>
+<p>"There are guns and other weapons, so take them appropriately."</p>
+<p>After the special class went up, I said to Taira Kanna and Nakanoin Rina.</p>
+<p>"The pistol is unique. TG Tech? It's a company I've never heard of...?"</p>
+<p>Nakanoin Rina said with an interesting expression, holding the pistol. This pistol was also an energy-based pistol that TG Tech was about to release, which was made by adding and improving various technologies to the energy-based rifle that I had obtained in the United States before.</p>
+<p>With just an energy pack, you can fire up to 150 shots, and since it's not a gunpowder-based firearm, it doesn't make noise, and its power is not inferior to ordinary firearms, so it has many advantages. Of course, there are some disadvantages, but they won't be very noticeable now.</p>
+<p>"It's a gun that will be released soon by a new company called TG Tech...."</p>
+<p>I briefly explained the gun. The two listened to my explanation with interest and stuck one gun each in their waist. They might become future customers, so I got excited and explained it in detail without realizing it.</p>
+<p>"Why do you know so much?"</p>
+<p>"I invested a little in that company."</p>
+<p>"Ah...! I understand, Onii-sama. I'll try it out and tell you my review."</p>
+<p>After finishing talking with Taira Kanna, I took out a long reinforced plastic box from the bus trunk. Inside, there were swords with a subtle dark blue light, and a couple of baseball bats. I took out one baseball bat and handed it to Nakanoin Rina.</p>
+<p>"It won't be as familiar as the jitte you used to use, but it'll be much better than the iron pipe you've been using so far."</p>
+<p>It wasn't a baseball bat made for playing baseball, but a blunt weapon made for killing, so it was heavy and coated with mithril, so it would be enough to dent the heads of cyber zombies.</p>
+<p>"I like it. Does TG Tech do custom orders? I want to order a new jitte."</p>
+<p>"Maybe? I'll ask when we get back to Japan safely."</p>
+<p>Probably by then, I'll be able to get complete knowledge of mithril alloys from the research lab I got from dismantling Yongcheol Faction during this graduation trip to Seoul, so I'll be able to make much stronger weapons or cyber armor than now.</p>
+<p>"Onii-sama, please give me a sword too."</p>
+<p>Come to think of it, Taira Kanna was definitely an excellent swordsman when I saw her fencing at the sports day. I handed her the box containing the swords, meaning she could take whatever weapon suited her.</p>
+<p>Taira Kanna took a long sword that wasn't as thin as a fencing sword, but still narrow. The two each took two bags containing pistols and were about to leave, but stopped for a moment. What are they trying to say?</p>
+<p>"Onii-sama, I don't know if I can ask you this favor, but.... Can you save the Class B friends who are left in the zoo?"</p>
+<p>"Please, Sensei."</p>
+<p>"Hmm.... Are they alive?"</p>
+<p>Taira Kanna and Nakanoin Rina seemed to be asking this because they knew my skills roughly. Of course, I'd like to save them if I could, but no matter how special St. Francisco Girls' Academy students are, they're just high school girls. I didn't think they could survive in this chaos.</p>
+<p>"Muko-yang is there, so they'll be alive."</p>
+<p>"Neika is there, so it'll be okay...."</p>
+<p>Muko Neika.... I got help from her when I was searching for the drug organization in St. Francisco Girls' Academy as the vice chairman of the Disciplinary Committee. Most of it was searching, so I didn't see her fighting, but both of them said that Muko Neika would be okay and believed in her, so it seemed that she was quite skilled.</p>
+<p>"Okay. I'll take the safari bus and go one more time."</p>
+<p>"Class B wasn't in the safari hall where the special class was, and Class C was the only one in the small animal hall, so Class B is probably in the aquarium hall."</p>
+<p>I nodded, and Nakanoin Rina told me where Class B might be. That's right. They weren't in the small animal hall, and we were the only ones in the safari hall, so the only place left was the aquarium hall.</p>
+<p>"I'll support you with a few people from Class A and Class C."</p>
+<p>"No, I'll take a few students from our class and come back quickly. Instead, please take care of the remaining students in our class."</p>
+<p>I refused the support because I could use my strength more fully if there were no other classes.</p>
+<p>"Okay."</p>
+<p>"I'll leave in 2 minutes."</p>
+<p>I finished speaking and got on the bus with the gun bag and the sword bag. I have to take care of not only the other class students but also our class students.</p>
+<p>"Take your weapons. Don't shoot your colleagues, shoot the zombies?"</p>
+<p>At the words to take weapons, everyone comes out and takes their weapons. Of course, Shimokawabe Airen, Alik, Otagi Yuka, and others who had learned martial arts took cold weapons, and the rest took firearms. Saionji Diana was the only one who took both a sword and a gun.</p>
+<p>-------------------------</p>
+<p>Muko Neika</p>
+<p>I'm uploading the illustration in case there are people who forgot because she appeared once, haha.</p>

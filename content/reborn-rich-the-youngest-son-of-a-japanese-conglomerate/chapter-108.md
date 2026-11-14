@@ -5,88 +5,63 @@ weight = 108
 chapter = 108
 +++
 
-<p>Mega Corp's Youngest Son Chapter 01. Bodyguard Betrayal Event.</p>
-<p>"The bodyguard Shin-gang Group will assign you is going to betray you."</p>
-<p>Jin Yong-tae told Han Yu-gyeong that the first time they met and while they were moving together. It was an unexpected remark. Because Han Yu-gyeong didn't have a bodyguard yet.</p>
-<p>Jin Yong-tae told Han Yu-gyeong about what would happen in the future, as if he were predicting the future. He told her that she would receive a considerable amount of money from her grandfather, Han Mun-gang, the Chairman of Shin-gang Group, as a reward for entering Korea University's Business Administration Department at the top of her class. Jin Yong-tae said that she should use some of that money to hire a bodyguard.</p>
-<p>At first, Han Yu-gyeong didn't believe it. Jin Yong-tae was a Korean-Japanese who didn't know the situation in Korea well, and he would know even less about the situation in Shin-gang Group. But after Jin Yong-tae returned to Japan, she was summoned to the Shin-gang Group's main family residence for a meal, and she witnessed Jin Yong-tae's prediction coming true with her own eyes.</p>
-<p>"Yu-gyeong-a, you've worked hard studying, so this grandpa will give you some pocket money. Guess how much the pocket money is."</p>
-<p>Han Mun-gang was an old man in his early 80s. He was a skinny old man with a sharp impression, and unlike most large corporations that had been passed down through generations, he was famous for creating Shin-gang Group himself.</p>
-<p>Before the war, he ran a small and medium-sized company called Shin-gang Precision with his older brother, Han Mun-shin, but it grew larger and larger as it began producing military supplies during the war. In the process, it became a mid-sized company during the war, and although his older brother, Han Mun-shin, was caught up in the war and died, Han Mun-gang did not waver and continued to run the company with determination.</p>
-<p>When the Republic of Korea was unified after the war, he was recognized for his contribution during the war and received factories and sites in North Korea at prices close to free, and his business grew larger and larger, and before he knew it, he was among the ranks of large corporations. Since then, thanks to Han Mun-gang's correct decisions at every critical event, Shin-gang Group has become one of the top 10 companies in Korea.</p>
-<p>"I think it's about 200 million won."</p>
-<p>Han Yu-gyeong touched the envelope Han Mun-gang gave her and answered. This was also because Jin Yong-tae told her that he would probably give her about 200 million won. In fact, Han Yu-gyeong had no idea how much Han Mun-gang would give her. He was her grandfather, but she had hardly ever met him because her parents were kicked out after they got married, so she didn't know Han Mun-gang well. As far as Han Yu-gyeong remembered, this was only her third meeting.</p>
-<p>"Why do you think so?"</p>
-<p>Han Mun-gang's eyes sharpened. Han Yu-gyeong realized in an instant that her answer was correct. Han Yu-gyeong was more amazed that Jin Yong-tae's prophetic story was coming true than happy that she had guessed the correct answer.</p>
-<p>"Just because. I thought that's how much money I would give if I were grandpa."</p>
-<p>"Hehehe, that's right. When doing business, it's important to think from the other person's perspective. Yu-gyeong has such a rare virtue."</p>
-<p>Han Mun-gang didn't say anything else, as if he was satisfied with Han Yu-gyeong's answer. Han Yu-gyeong put the envelope in her arms. The other relatives who were gathered didn't show any envious eyes or reactions, as if they thought 200 million won was just pocket change.</p>
-<p>"Yu-gyeong-a, congratulations."</p>
-<p>After the meal, Han Jun-yeong, the eldest grandson of Shin-gang Group, spoke to her. Han Yu-gyeong felt uncomfortable with Han Jun-yeong. His emotionless, reptile-like eyes and stiff smile, as if he had learned it, made it seem as if Han Jun-yeong was something other than human.</p>
-<p>"Thank you, Jun-yeong oppa."</p>
-<p>"Enjoy your college life for four years."</p>
-<p>Han Jun-yeong tapped Han Yu-gyeong's shoulder twice and left. Han Yu-gyeong couldn't leave yet. It was because her second great-uncle, Han Woo-min, called her. Han Woo-min was in charge of Shin-gang Security, one of Shin-gang Group's affiliates. Han Woo-min, who had several security personnel, said that he was planning to assign a bodyguard to Han Yu-gyeong according to Chairman Han Mun-gang's orders.</p>
-<p>Han Yu-gyeong felt strange. All of this was going according to what Jin Yong-tae had said. Then, the bodyguard's betrayal would surely come true as well.</p>
-<p>"Yu-gyeong-a, this guy here is Lee Sang-tae, who will be guarding you from tomorrow."</p>
-<p>"Hello, Agassi. Please take care of me."</p>
-<p>Han Woo-min introduced her to a man with a sharp impression who looked like a gangster. As soon as Han Yu-gyeong saw Lee Sang-tae, she realized it. This bodyguard was not someone she could trust. His thin, sharp eyes were looking at Han Yu-gyeong as if he were looking at prey.</p>
-<p>"I'll start guarding you from tomorrow, so go straight home today. Don't cause any trouble outside."</p>
-<p>"Okay. I'll be on my way then, Second Great-Uncle."</p>
-<p>Han Yu-gyeong politely greeted him and left. She had to find the bodyguard Jin Yong-tae told her about right away. She needed someone trustworthy, not someone like Lee Sang-tae, who she couldn't trust. Lee Sang-tae would be sticking with her from tomorrow, so today was her only chance.</p>
-<p>Han Yu-gyeong called a taxi and went to Seoul Station. And she went to where the homeless people were lying down. It had only been a little over 8 years since the end of the war, so Seoul Station was full of homeless people who had no home or property.</p>
-<p>There, Han Yu-gyeong found the homeless man Jin Yong-tae had told her about. A man named Dickson Scott, who was unusually white. Dickson Scott was a man in his early thirties who was dishonorably discharged at the end of the war after being falsely accused, and after that, he couldn't find a job and eventually became homeless in Korea.</p>
-<p>Han Yu-gyeong searched for the white homeless man for about ten minutes and finally saw a white man lying in a corner with hazy eyes.</p>
-<p>"Dickson Scott-ssi."</p>
-<p>"What...?"</p>
-<p>Dickson Scott looked up at Han Yu-gyeong's words. He was said to be white, but because of the grimy dirt and dusty brown hair, he looked no different from the homeless people next to him.</p>
-<p>"I want to hire you."</p>
-<p>"How do you know me and say you're going to hire me?"</p>
-<p>Dickson's Korean was fluent, probably because he had lived in Korea for a long time. Han Yu-gyeong answered exactly as Jin Yong-tae had told her.</p>
-<p>"That's not important. What's important is whether you have the will to get back on your feet."</p>
-<p>"I have the will. But why are you hiring me?"</p>
-<p>"Protect me from my bodyguard."</p>
-<p>Dickson, who guessed that Han Yu-gyeong had a story to tell, thought quietly for a moment. And he nodded and got up from his seat.</p>
-<p>"Give me three thousand dollars a month. And I want one million won as a down payment. If you do just that, I will protect you from the bodyguard you fear."</p>
-<p>"Okay. But I'll give you five times that amount as a down payment. You'll need to buy a suit and prepare a lot of things."</p>
-<p>"Okay. Let's go outside first."</p>
-<p>As soon as Han Yu-gyeong and Dickson started talking about money, the homeless people around them started to get up one by one, so the two hurried out of Seoul Station. Looking at him protecting Han Yu-gyeong while looking around, he seemed to be familiar with guarding.</p>
-<p>Han Yu-gyeong went to an ATM and withdrew money and gave it to Dickson along with a note with her contact information.</p>
-<p>"Please follow and watch me and my bodyguard from tomorrow. All the contact information is written on the note."</p>
-<p>"Okay. Thank you. For saving my life."</p>
-<p>"It's thanks to you choosing to get back on your feet."</p>
-<p>Han Yu-gyeong and Dickson parted ways in front of the ATM.</p>
-<p>The next day, Han Yu-gyeong couldn't help but be surprised to see Dickson. Dickson, who had washed up neatly, cut his hair, and put on glasses, looked like an English conversation instructor at a university. At this level, he wouldn't be suspected so much even within the university.</p>
-<p>And after the orientation, full-fledged college life began. Dickson diligently watched Han Yu-gyeong and Lee Sang-tae without getting caught. Dickson did a good job, but more than anything, Lee Sang-tae was negligent in his bodyguard duties, so Dickson was able to avoid getting caught.</p>
-<p>Time continued to pass, and it was one day right before the midterm exams. She got into the car that Lee Sang-tae was driving in front of her house, and she felt that Lee Sang-tae's eyes were stranger than ever.</p>
-<p>'Today is the day!'</p>
-<p>She was already in the car, so she couldn't run away. But Han Yu-gyeong calmly sent a text message to Dickson as promised.</p>
-<p>Dickson would chase after her. Because she had installed a tracking device on Han Yu-gyeong's phone. Until then, Han Yu-gyeong decided to act to make Lee Sang-tae feel at ease.</p>
-<p>"Um, Mister? This isn't the way, is it? Shouldn't we be turning off over there?"</p>
-<p>"Shut up."</p>
-<p>Lee Sang-tae, who had been polite until yesterday, was now spewing out harsh words as if he would no longer do so.</p>
-<p>"Shut up before I sell you off to a whorehouse!"</p>
-<p>The car was going to a more and more remote place. The car, which had been running for several hours, arrived at an abandoned school in Gyeonggi Province.</p>
-<p>"Move and you die!"</p>
-<p>Lee Sang-tae threatened Han Yu-gyeong with a knife and tied her hands with leather straps. At this point, Han Yu-gyeong became a little scared. What if Dickson doesn't come?</p>
-<p>"Come here!"</p>
-<p>The abandoned school seemed to be a place that Lee Sang-tae had prepared in advance. There was a mattress in a place like a gym warehouse, and there was nothing else. Han Yu-gyeong was thrown onto the mattress.</p>
-<p>"I've been barely holding back until now because I was horny. What do you think you are? Even if I try to look good to you, I've been in a bad mood more than once or twice because of your stiff attitude."</p>
-<p>She knew that Lee Sang-tae would betray her, so it seemed that Han Yu-gyeong's attitude had shown it implicitly. Lee Sang-tae wanted to get close to the beautiful Han Yu-gyeong, but he seemed to have been hurt by Han Yu-gyeong's cold attitude.</p>
-<p>"I kept thinking about it, and then I came up with a win-win strategy to fuck you, who I wanted to fuck so badly, and get money from your family? It's simple. You've heard of kidnapping, right?"</p>
-<p>Lee Sang-tae was muttering while taking off his clothes one by one, as if he had already lost his mind. It was absurd that the conclusion he had reached after much deliberation was just kidnapping.</p>
-<p>As Lee Sang-tae got closer and closer, Han Yu-gyeong's body trembled. If Dickson was just a little late, her body, which was only allowed to Jin Yong-tae, would be forcibly violated by Lee Sang-tae.</p>
-<p>"Now I'm going to take off those clothes for you...! Hehehe!"</p>
-<p>As Lee Sang-tae's hand touched Han Yu-gyeong's shoulder, Han Yu-gyeong turned her head and bit Lee Sang-tae's arm.</p>
-<p>"Kuaaaa!! You bitch!?"</p>
-<p>Lee Sang-tae screamed, covering his arm that was bleeding profusely. The moment Lee Sang-tae raised his hand to hit Han Yu-gyeong.</p>
-<p>Pyusuk!</p>
-<p>With the suppressed sound of a silencer, Lee Sang-tae collapsed. The Dickson she had been waiting for had finally arrived. Dickson hit Lee Sang-tae with an accurate shot.</p>
-<p>"Thank you for coming, Dickson."</p>
-<p>"It's my duty."</p>
-<p>Dickson said, putting the silenced pistol in his arms. Han Yu-gyeong stared at the silenced pistol for a moment. That pistol was the one Jin Yong-tae had gotten for her while they were traveling around Seoul together during their first meeting.</p>
-<p>"You can give this to him when you hire a bodyguard later."</p>
-<p>Jin Yong-tae's voice at that time seemed to be heard in her ears. Han Yu-gyeong made a promise. She would believe whatever Jin Yong-tae said and never doubt him.</p>
+<p>Mimata Chieri-ssi nodded after hearing my explanation. It wasn't like she was evaluating whether my plan was good or bad, but more like she was just accepting it as is and nodding. She really felt like an agent receiving a mission. Since Mimata Chieri-ssi was more on the receiving end of missions rather than creating them, she must be used to receiving these kinds of explanations.</p>
+<p>,I've made a big plan, but I don't know the field, so could Sunbae-nim create the detailed operation?</p>
+<p>Mimata Chieri-ssi readily nodded at my request. Mimata Chieri-ssi scribbled something on the whiteboard in the abandoned office building we had gathered in, thinking, and then opened her mouth.</p>
+<p>,First, I'm going to attach one of the Mumentai to Tochimura Kaminojo-ssi's side. We can't keep a close watch on him because we might get caught, but we'll only track the movements of Tochimura Kaminojo-ssi's vehicle. Another Mumentai will be on standby at the villa Sawasu Amika-ssi received. Then we can perfectly grasp the route we want.</p>
+<p>Since we're only going to kill one person anyway, we don't need a lot of force, so Mimata Chieri-ssi was making an operational plan to divide the Mumentai and grasp the target's route as much as possible.</p>
+<p>,But there's one thing to be careful about. This mission has a certain probability of being dangerous, Hubae-nim.</p>
+<p>,Just killing one person, though?</p>
+<p>I was about to proceed as is, but Mimata Chieri-ssi said she would tell me something to be careful about. If it goes according to plan, there shouldn't be any danger at all, but even though Tochimura Kaminojo-ssi is a guy who comes up with extreme schemes, according to the information in the documents, he has no force of his own at all. Even in the photos, he looked like a typical skinny, neurotic office worker, with no signs of having trained in martial arts.</p>
+<p>,Tochimura Kaminojo-ssi was the one who planned the attack you suffered, Hubae-nim, so Tochimura Kaminojo-ssi is a strategist, right?</p>
+<p>,That's right?</p>
+<p>,If so, Tochimura Kaminojo-ssi knows that in the small and large disputes between Minamoto and Taira up until now, if one side gets hit once, the other side will retaliate no matter what. Naturally, there's a high possibility that Tochimura Kaminojo-ssi will recognize the fact that he might be attacked.</p>
+<p>Ah! That's right. No matter how much we try to surprise him, if Tochimura Kaminojo-ssi anticipates it and prepares, we could be the ones who get hit instead. Mimata Chieri-ssi's point was valid. Then, with the naive plan we just prepared, other people could get hurt a lot, even if I'm okay.</p>
+<p>,If Tochimura Kaminojo-ssi counterattacks, how many troops do you think he'll prepare?</p>
+<p>,Well, since there are six of us... If he predicts our numbers, he'll probably prepare about ten to fifteen people.</p>
+<p>Hmm... We're outnumbered, and I can't ask Taira Danjo-ssi for additional troops. If I ask Taira Danjo-ssi, who will probably think of this situation as a test, for additional troops, he'll definitely give me a failing grade. When I think about it, I feel like I can handle about fifteen people... I've also been doing image training alone as a reflection on not handling the shooting incident properly.</p>
+<p>,Sunbae-nim, how many people can you handle in a head-on fight?</p>
+<p>,Me? I'm more of a guerrilla tactics style, so I don't fight head-on very well, but if I have all the equipment and I'm in a place I want, I can handle a certain number.</p>
+<p>Mimata Chieri-ssi seems to have decent combat skills too, so I need to make a plan to win with the two Mumentai and me and Mimata Chieri-ssi, excluding the two people taken out for route tracking... I thought it was an easy operation at first, but now that I think about the high probability that the opponent will prepare a counterattack, the situation has become a bit more difficult.</p>
+<p>,Then let's plan the attack with the worst in mind, assuming the opponent has 15 troops.</p>
+<p>,Okay.</p>
+<p>I was about to make a detailed plan, but Mimata Chieri-ssi twitches her lips as if she wants to say something.</p>
+<p>,What's wrong?</p>
+<p>,I was wondering if we should eat first and then make a plan, hehe.</p>
+<p>Looking at the time, it was already 11:50 AM, ten minutes before lunchtime. I thought it was a concept until now, but she was serious about eating. I thought it was a concept after learning about Mimata Chieri-ssi's identity, who whines because she can't eat two menus if she can't eat lunch with me, but she just likes to eat.</p>
+<p>,Lunch is...</p>
+<p>If I go around with these four Mumentai wearing cyberpunk helmets, I'll stand out... Should I pack it up and eat it?</p>
+<p>,Don't worry about the Mumentai. Okay~ Mumentai everyone! Let's eat and meet here in an hour and a half~!</p>
+<p>The four Mumentai nodded at Mimata Chieri-ssi's words, got into the van they came in, and disappeared somewhere. It's easier for us if we don't have to take care of their meals.</p>
+<p>,Then shall we go out too?</p>
+<p>,Yes~!</p>
+<p>We went outside. The place we were in was a commercial building owned by a Taira Group affiliate, and it was an empty building waiting to be demolished for reconstruction. It was in the center of Tokyo, so it was in a very good location because it was close to Tochimura Kaminojo-ssi's current tower mansion and Minamoto Trading Company. And because it was in the center of Tokyo, there were many restaurants, so it was good for eating.</p>
+<p>,I saw a place I liked while coming here!</p>
+<p>Mimata Chieri-ssi grabbed my sleeve and headed to a restaurant. It was a place that mainly served gyukatsu (beef cutlet), and we arrived at 11:56 AM, but it seemed to be a famous restaurant with about five people waiting. After 12 o'clock, office workers around us came out for lunch, and the line behind us quickly became long. Already fifteen teams were lined up behind us.</p>
+<p>,If Sunbae-nim had told me to eat a little later, we would have waited a long time.</p>
+<p>,I know. That's a relief, hehe!</p>
+<p>As we were talking, it was our turn, and we went into the store. Since we came to a gyukatsu restaurant, we both ordered the gyukatsu set meal (the restaurant only had gyukatsu set meals on the menu). I ordered four additional pieces of gyukatsu on top of that.</p>
+<p>,But it's a shame that there's only gyukatsu set meals here, so we can't order different menus and share them like usual.</p>
+<p>,Let's go to a place with a lot of menus next time.</p>
+<p>,Hehe, shall we? Enjoy your meal, Hubae-nim!</p>
+<p>We promised our next meal and ate lunch. As expected of a restaurant that people line up for, the taste of the gyukatsu was excellent. However, I ate a total of six pieces of gyukatsu, including the two pieces included in the gyukatsu set meal and the four additional pieces I ordered, and it was very greasy. It was a lunch where I really craved kimchi.</p>
 <p>###</p>
-<p>"But suddenly there was a story about superpowers and a leopard appeared out of thin air, and you weren't surprised?"</p>
-<p>On her second trip to Korea, Jin Yong-tae suddenly asked Han Yu-gyeong. Han Yu-gyeong smiled and shook her head.</p>
-<p>"Because I believe everything you say, Yong-tae. So I wasn't that surprised."</p>
+<p>First, after checking Sawasu Amika-ssi's most certain schedule, I found out that the filming of the drama she had been filming the day before yesterday had ended, and she was taking a break for a while. In addition, I obtained information from the manager that she would be going to the villa today. So, I urgently dispatched Mumentai to the villa.</p>
+<p>However, according to the Mumentai sent to monitor Tochimura Kaminojo-ssi, Tochimura Kaminojo-ssi didn't seem to have any intention of going to Nikko City, where the villa is located, today. He usually heads to the villa as soon as he gets off work at 6 o'clock, but it was much later than 6 o'clock now.</p>
+<p>Then, did Sawasu Amika-ssi just go for a vacation today? Still, just in case, I instructed the Mumentai to keep a close watch on the villa, and me, Mimata Chieri-ssi, and one Mumentai were waiting in the empty commercial building that we were using as headquarters. Since the current location of the commercial building was closer to Nikko City than the headquarters of Minamoto Trading Company, where Tochimura Kaminojo-ssi works, or Tochimura Kaminojo-ssi's tower mansion, if we got a call that Tochimura Kaminojo-ssi was moving, we could go out immediately and wait in advance.</p>
+<p>We took turns resting and receiving reports from the Mumentai who were monitoring the villa and the vehicle, and suddenly, around 9 PM, a report came in from the Mumentai who was monitoring Sawasu Amika-ssi's villa.</p>
+<p>-A vehicle is entering the villa.</p>
+<p>Even the taciturn Mumentai says at least the minimum amount of words. Until now, he had only been sending chats saying, ,No problems so far.. Filming was being broadcast in real time on the laptop we had installed. A car that appeared to be Sawasu Amika-ssi's car and a black foreign car entered in front of the villa, and a man got out of it. The Mumentai zoomed in sensitively the moment the man got out. He's competent.</p>
+<p>,Huh?</p>
+<p>The person who got out of the car was not Tochimura Kaminojo-ssi, Sawasu Amika-ssi's affair partner. It was Murakata Keiji, a rising actor who had been hitting on Arisu-ssi's friend Hanasaka Sayaka-ssi at TERT before and was dragged away by security. It wasn't a very good relationship, but it felt kind of nice to see him after a long time.</p>
+<p>As soon as Murakata Keiji-ssi got out, Sawasu Amika-ssi hugged him and gave him a deep kiss. Hmm... I'm a little embarrassed. If the Taira Group's information is not wrong, Sawasu Amika-ssi was definitely dating Tochimura Kaminojo-ssi. Tochimura Kaminojo-ssi even bought her a villa, so it must be a somewhat serious relationship. It was an affair, though. But seeing her kissing Murakata Keiji-ssi like that, it didn't seem like they were just ordinary friends either. Then is she two-timing? Amazing, Sawasu Amika-ssi...!</p>
+<p>Mimata Chieri-ssi was also surprised and watched the screen, saying, ,Sugoi...!,. Soon, the two of them went into the villa, and only one room in the villa was lit up, as if they were going to have a big event.</p>
+<p>,Ei, it's over for today...! Let's take turns resting one by one as we were doing until just now.</p>
+<p>At the moment when Sawasu Amika-ssi is already meeting another man, Tochimura Kaminojo-ssi will not be going to the villa today. Maybe they promised to meet tomorrow or the day after. Sawasu Amika-ssi met her two-timing partner Murakata Keiji-ssi before meeting Tochimura Kaminojo-ssi....</p>
+<p>-Tochimura Kaminojo-ssi is moving.</p>
+<p>He's probably just going home after work. Even when the Mumentai's report came, we were indifferent. But the situation immediately became interesting with the additional report.</p>
+<p>-He's heading towards Nikko. We need to leave now. I'll chase after him separately from behind.</p>
+<p>,Let's go quickly! Hubae-nim!</p>
+<p>Mimata Chieri-ssi started urging me with an expression as if she was waiting for the next episode of a makjang drama. Yeah, we can't miss this interesting situation. We prepared at an incredible speed and boarded the car we had prepared in advance. Even the speed at which the Mumentai prepared seemed to be 1.5 times faster than usual. This guy... you were curious too.</p>
+<p>Mumentai outfit. It's a fashion that seems to attract a lot of attention.</p>
+<p>In fact, the Mumentai are a unit specializing in night attacks. When working in the city during the day, they use a different unit.</p>

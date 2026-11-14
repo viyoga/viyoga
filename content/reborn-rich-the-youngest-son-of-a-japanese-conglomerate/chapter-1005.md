@@ -5,75 +5,78 @@ weight = 1005
 chapter = 1005
 +++
 
-<p>According to Jo Seodang's Characters Report on Taira Food distribution, there was no special A-Rank Talent in Taira Food distribution. Probably, if there had been special A-Rank Talent, they would have already been scouted away to other Affiliate Companies of the Taira Group before Jo Seodang investigated.</p>
-<p>Still, as it was a Taira Affiliate Company, there were quite a few employees who performed above average, and since Linxiang was next to me, it seemed like I could form a team with Linxiang as the leader and have them work.</p>
-<p>The people I gathered were young employees below the manager level, because I wanted young people who could think flexibly and had good stamina to accomplish many tasks, rather than those whose minds had already become rigid from much age and experience.</p>
-<p>Not only Taira Food distribution, but I also had quite a lot of other company work, so I would be away quite often. I was thinking of creating an Auto-Hunting System that could run well even if I was away for a while. I couldn't do everything well by myself, and due to my Stats and Traits, I was more of a Combatant rather than a businessman, so I had to make good use of my Subordinates.</p>
-<p>「Nice to meet you. I'm the newly appointed Boss, Taira Ryuta.」</p>
-<p>I looked at the people gathered from Taira Food distribution and introduced myself and greeted them with a slightly nervous Expression.</p>
-<p>All of them, being outstanding Characters within the company recommended by Jo Seodang, probably had a rough Guess of my Existence, but they were looking at me with an Expression mixed equally with Expectation and anxiety, as if asking, 'Why did the Boss call me as soon as he took office?' I calmly received their Gaze and continued the Story.</p>
-<p>「Before taking office as Boss, I did some preliminary investigations. And I learned that you all possess quite excellent qualities. So, gathering all of you, I'm thinking of forming a team. The team name is... let's call it the Strategic Planning Team.」</p>
-<p>Actually, at first, I was going to name it something like Secretary Team 1, but thinking about it, because this team's Work was significantly different from a secretary's, I named it the impressive-sounding Strategic Planning Team. I was planning to recruit the secretary team separately, not from Taira Food distribution.</p>
-<p>「Here, Linxiang will be the Team Leader of the Strategic Planning Team.」</p>
-<p>「Please take care of me. I am Linxiang, who will be your Team Leader from now on.」</p>
-<p>As I introduced Linxiang, she stepped forward, bowing her Head and greeting. The employees who were now Affiliated with the Strategic Planning Team looked at me and Linxiang as if asking, 'What is this?', and their Gaze was demanding a little more Explanation.</p>
-<p>「Um... what kind of Work does the Strategic Planning Team do?」</p>
-<p>One person, gathering courage, raised a Hand and asked me a Question. Right. I only said they would be Affiliated with the Strategic Planning Team, but I didn't say what kind of Work they would do.</p>
-<p>「Directly under the Boss, you will oversee the company's internal Work.」</p>
-<p>Instead of me, Linxiang gave the Answer to the Question.</p>
-<p>「Clearly, there will be a lot of Work and you'll be busy. Instead, everyone in the Strategic Planning Team will have their annual salary increased by 30 percent. If you come up with good ideas, a considerable bonus will also be paid, so please work hard.」</p>
-<p>This Time, when I told them what they could gain by joining the Strategic Planning Team, everyone's Expression changed to joyful ones. At the Words 'annual salary increase' and 'bonus,' they seemed to have forgotten the Condition that there would be a lot of Work and they would be busy. Well, since I said it, they won't complain.</p>
-<p>「Then, I'll give you your first Mission. Please prepare for my inauguration ceremony tomorrow.」</p>
-<p>As it was the first Mission, I gave them an easy one. It wasn't a grand inauguration ceremony, and it was just a broadcast within the company, so there was nothing difficult about it at all.</p>
-<p>「Let's stop here for today and leave work.」</p>
-<p>「Ryuta-nim, I will work overtime today.」</p>
-<p>After sending out the Strategic Planning Team, when I said I was leaving work, Linxiang declared she would work overtime. Of course, the Strategic Planning Team took on my Mission, but that seemed like it would end quickly.</p>
-<p>「Although I roughly looked at the data left by the former Boss, I want to check by going around each team if it matches reality and if there are any Problems in the company.」</p>
-<p>From the first day, she's trying to overdo it. Of course, Linxiang, being an android, wouldn't call this overdoing it. Still, it's easier to sort out these kinds of Work in the Early Stage, so I nodded my Head.</p>
-<p>「Don't do it for too long... there will be a company vehicle, so when you're done, ride that back.」</p>
-<p>「Understood, Ryuta-nim.」</p>
-<p>Like that, I left Linxiang at the company and again, riding in the vehicle driven by Saionji Diana, I left Taira Food distribution.</p>
-<p>「Father. Why didn't you tell me that bastard illegitimate child would receive an Affiliate Company?」</p>
-<p>After the grand meeting ended, at the meal, Taira Gensuke grumbled to his Father, Taira Ichiro.</p>
-<p>「That Guy must have laughed at me. That Guy, who is just a Branch Manager, boasted in front of himself, who would become an Affiliate Company Boss.」</p>
-<p>「Don't you know well that the South American Branch of Taira Bussan is much larger than Taira Food distribution? There's no need to pay attention to it.」</p>
-<p>Taira Ichiro said to Taira Gensuke, who was indifferently grumbling. Sitting next to him, Taira Camilla, who was eating, was just eating without a Word, as if she couldn't hear Taira Gensuke's grumbling. It could also be because Taira Gensuke often grumbled like this.</p>
-<p>「...And now, there's no Time to pay attention to your Cousin. The Problem is your youngest Aunt. Since Saburo died, most of the Saburo faction has attached themselves to her, so rather than your Cousin who only has one Food distribution, your Aunt Kanna is a much more Dangerous Existence.」</p>
-<p>Taira Ichiro was thinking that Taira Kanna was more Dangerous than Taira Ryuta. First, her power within the Group was incomparable, and even during her school life, seeing that she had succeeded in several Missions given by her Father, Taira Danjo, and proving that her Abilities in other areas were outstanding, not only her Management Ability, he considered her more Dangerous than Taira Ryuta.</p>
-<p>Of course, Taira Ryuta was not bad material either. He owned Hatake Investment Company, a recently successful Investment company, and under its umbrella, he also had a Mithril mine, and he had succeeded in Taira Danjo's Mission, so it seemed Taira Saburo had raised his Son well.</p>
-<p>Gensuke, that Guy, was not bad material either, but considering that Taira Ryuta had achieved this level of Achievement in just one year, it was inevitable that a natural comparison would be made.</p>
-<p>「Aren't you overestimating the youngest Aunt too much? She's just a Woman who just became an Adult.」</p>
-<p>「Don't underestimate a Woman, Gensuke. No matter who the Opponent is, it's best not to let your guard down.」</p>
-<p>At Taira Gensuke's Words, Taira Camilla interjected. Until now, as if she had no Interest, she had only eaten, but when her Son made careless Words and Actions, she interjected to correct him immediately.</p>
-<p>As Taira Camilla said, Taira Kanna was an Opponent one couldn't let their guard down against. After Taira Saburo died, Taira Ichiro tried to kill Taira Kanna to prevent the remaining Saburo faction from flocking to Taira Kanna.</p>
-<p>However, when the Existence of Taira Saburo's Son, Taira Ryuta, was revealed, Taira Ichiro judged that if he killed Taira Kanna, the Saburo faction would gather towards Taira Ryuta.</p>
-<p>So, he subtly leaked Taira Ryuta's Information to the Minamoto side and tried to kill him, but Taira Ryuta didn't die, so he canceled the plan to kill Taira Kanna.</p>
-<p>If he killed Taira Ryuta and Taira Kanna simultaneously, no matter that he was Taira Danjo's First Child and one of the strong Successors, he could suffer a great Failure from Taira Danjo, so he just let it go. But in the end, now, not the Saburo faction, but the Kanna faction was created.</p>
-<p>Although the Saburo faction was not entirely absorbed by Taira Kanna, Taira Kanna attracted several non-factional people and came to possess a power almost similar to the power Taira Saburo had.</p>
-<p>From Taira Ichiro's perspective, in this Situation, there was no Time to pay attention to Taira Ryuta. Furthermore, Taira Food distribution, which Taira Ryuta was in charge of, after Taira Food, had a deep Relationship with Taira Bussan, so Taira Ryuta would not dare to rebel against him.</p>
-<p>「By the way, what happened to the Mithril mine? How did such a Young punk come to possess a bonanza like the Mithril mine?」</p>
-<p>「From what I heard, the Taira Food Factory relocated, and he bought that land, and a mine was discovered there. He's lucky.」</p>
-<p>「jenjang...!」</p>
-<p>At Taira Ichiro's Explanation, Taira Gensuke quietly uttered a Curse. Taira Camilla, with a serious Expression, told him to watch his Words, but Taira Ichiro remained silent. He seemed to be lost in some Thought.</p>
-<p>「If Father has no Time to pay attention, should I try something?」</p>
-<p>「No, don't touch it. If you touch Hatake Mining, you'll be Stimulating Jiro, that Guy... It's not Time to have a Match with Jiro, that Guy, yet.」</p>
-<p>When Taira Gensuke, with a subtle Expression, spoke to Taira Ichiro, Taira Ichiro, with a serious Expression, shook his Head. Today, Taira Jiro's Praise of Taira Ryuta at the meal where everyone was watching had a hidden meaning: 'Don't touch Hatake Mining.'</p>
-<p>If Taira Gensuke needlessly touched Hatake Mining, Taira Jiro would not stand idly by, and a War between Taira Ichiro and Taira Jiro would begin. As Taira Gensuke was a radical who inflicted Terror on rival companies just to increase market share, if Taira Gensuke moved, it would never end as a small Matter, so it was clear that Taira Jiro would not stand idly by.</p>
-<p>Of course, Taira Ichiro was confident he could defeat Taira Jiro. But he couldn't prevent the Situation where Taira Kokoro and Taira Kanna were aiming for a windfall, so he was still postponing a one-on-one showdown with other Successor forces.</p>
-<p>「Tsk... Understood.」</p>
-<p>Taira Gensuke, without hiding his Dissatisfaction, nodded his Head.</p>
-<p>「Taira Food distribution will be Ryuta, that Guy's, Limit.」</p>
-<p>Taira Ichiro, looking at Taira Gensuke's Expression, chuckled and opened his mouth as if to soothe him.</p>
-<p>「What do you mean by that?」</p>
-<p>「It's the Problem with Taira Food distribution. Because of my Taira Bussan, he can't oppose my side, and since he trades Mithril with Jiro, that Guy, they won't fight. Also, since Taira Food distribution supplies to Kokoro's department store, it's not a Relationship worth fighting over either. And he won't be able to fight Kanna's side for Justification either... Ryuta, that Guy, will only watch the Successor War and won't gain any Advantage. Rather, Taira Food distribution, which he was put in charge of, has become his Shackles.」</p>
-<p>Having heard his Father's Explanation, Taira Gensuke smiled with Satisfaction and nodded his Head. If his Father's Words were true, Taira Ryuta, in charge of Taira Food distribution, caught in the middle, would have no choice but to watch his Father ascend to the Taira Throne.</p>
-<p>Taira Kanna and Taira Kokoro's surprised Appearance at the family meal, requested by Gojoy-nim~!</p>
-<p>Starting with Kanna</p>
-<p>Kanna wasn't surprised because she knew ㅎㅎ</p>
-<p>Kokoro~!</p>
-<p>Kokoro was truly surprised ㅎㅎ</p>
-<p>Linxiang and Linling showing Aegyo, requested by MidNightSKY-nim~!</p>
-<p>Linling~!</p>
-<p>I will only accept changing Expressions this Time~! You can request for several consecutive days, so please keep to the request count~!</p>
-<p>Secretary Chieri under the CEO's Office desk, requested by Inoega Doegopeun-nim~!</p>
-<p>Bonus~!</p>
+<p>Among the Information Eve passed on, besides the grimoire Information, there were quite ominous things, such as a sharp increase in the number of missing persons in New York recently, or the updates on the SNS account that promoted vigilante activities had stopped.</p>
+<p>I decided to skip the rest because they were either Information that would only be useful with various combinations from Jo Seodang or Information that would only be useful for Business, and first, I decided to hear about the situation so far from the American team who had come to the USA to find the fake Black Knight.</p>
+<p>'I heard the general Story yesterday, but I want to hear the current situation in detail.'</p>
+<p>'First, you know that we disguised ourselves as vigilantes and searched for the fake Black Knight since you were in Japan.... We're still patrolling at night, but it seems our Operation has failed.'</p>
+<p>Fujigasaki Rinka replied with a tired Expression. The Operation failed? What does that mean?</p>
+<p>'I didn't know it had failed until just now either. But after seeing the Information from that grimoire or whatever, I realized it had failed.'</p>
+<p>Fujigasaki Rinka was saying things I couldn't understand. What did she realize?</p>
+<p>'What did you realize?'</p>
+<p>'The Black Sage's Method.'</p>
+<p>Fujigasaki Rinka told the Story of what she had realized. As everyone here now knows, the Black Sage came to the USA to obtain the grimoire called the Shard of Omniscience.</p>
+<p>Rumor had it that the Shard of Omniscience had flowed into the New York Back Alley underworld. The Black Sage pondered how to obtain the Shard of Omniscience and soon found a Method. It was to use my Sabu's Sabu, Soda Haruto.</p>
+<p>He would dress Soda Haruto, who uses black Aura similar to the Black Knight, in the Black Knight Armor and fuck up the New York underworld organizations. And then find out where the Shard of Omniscience is.</p>
+<p>But there was something the Black Sage hadn't even predicted. It was that those inspired by the fake Black Knight's activities would step forward and start vigilante activities. Not just a few, but so many vigilantes began attacking the underworld that it became a trend.</p>
+<p>In the end, the vigilantes were taking care of the New York Back Alley underworld organizations that the Black Knight had to deal with, so the Black Sage's plan went awry.</p>
+<p>'I was wondering why the Black Knight suddenly stopped his activities, but it seems the Black Sage's plan went wrong, so he stopped the initial Operation. Or maybe he just stopped temporarily.'</p>
+<p>Fujigasaki Rinka said that he might have stopped temporarily and pointed to the Information that the vigilante SNS's updates had stopped.</p>
+<p>'He might eliminate the vigilantes who are interfering with his Work first and then the Black Knight might appear again.'</p>
+<p>'Then.... I don't think we need to chase the Black Knight.'</p>
+<p>Naruse Shiyo, who was looking at the data and listening to the Story, said.</p>
+<p>'If there really is an Existence that is killing vigilantes, then that Existence will eventually be connected to the Black Sage.... We can chase that side, right?'</p>
+<p>'Ah, that's right. If we go to the side where the Black Sage is, we'll eventually meet the fake Black Knight!'</p>
+<p>'In the end, it means we have to continue our patrol activities.'</p>
+<p>Kujo Kina said with a Sigh. The conclusion was that we had to continue doing what we had been doing. Everyone looked tired from going on patrol every night, so she seemed a little Frustrating that she had to continue doing it.</p>
+<p>'Since we have nothing to do except wait for Behemoth to appear, I'll help with the Sajo rescue day.'</p>
+<p>I don't know when Behemoth will appear, but he will arrive within two days at the latest. I couldn't just stay still during that Time, so I decided to help with my Sabu's Sabu rescue Operation.</p>
+<p>If I'm lucky, Famine might hear that the Black Knight has disappeared and call Behemoth and Whisper back again. Of course, that Possibility was very low.</p>
+<p>Given the personalities of Famine and Behemoth, if there is no Black Knight in New York, they will cause Terror to call out the Black Knight.</p>
+<p>Of course, my mission is to stop that Terror before it happens.... After completing the mission, I have to rip off the US government for a lot of Money.</p>
+<p>'Then let's do this. It seems meaningless to have more People patrolling anyway.... If there really are Guys attacking the vigilantes, let's create a standby team so we can help quickly.'</p>
+<p>It seems Fujigasaki Rinka is thinking of putting us in the standby team. She probably already has an optimized patrol route, so even if the number suddenly increases, it won't be helpful, so it seemed better to play a role in adding power when needed.</p>
+<p>'Okay. I'll help you from tonight.'</p>
+<p>I nodded my Head and decided to follow my Sabu's Proposal.</p>
+<p>A while ago.</p>
+<p>It is by no means easy to be called the best in the underworld in New York, which is called the Demonic mirror. New York, where numerous interests are intertwined and there are bizarre races, was a Place where even the famous Black Moon Group of China could not exert its Power and withdrew.</p>
+<p>Even in such a New York underworld, there was a Place that maintained the largest Power, namely the Obsidian Syndicate.</p>
+<p>The Obsidian Syndicate was an old Organization that was created not long after New York changed from New Amsterdam to New York.</p>
+<p>It was an Organization created by alchemists and those who had escaped the Salem witch hunts, and in the beginning, it was a kind of secret group of Magicians who dealt with various Mysteries that was the beginning of the Organization.</p>
+<p>Those who came to New York to escape the witch hunts hid in the shadows, thinking that there might be another witch hunt, and from then on, an Organization called the Obsidian Syndicate was created in the New York underworld.</p>
+<p>The Obsidian Syndicate steadily supplied Drugs and moonshine to New York with the Knowledge of the alchemists and grew its Power, and now, hundreds of years later, it had become the largest Power in the New York underworld.</p>
+<p>Now, the Obsidian Syndicate was exerting its Power to the extent that it had established a pharmaceutical company and was aiming for Business in the sun.</p>
+<p>As the Obsidian Syndicate reached out to various Businesses and pondered how to increase the productivity of Drugs, a Book wrapped in Chains arrived on the desk of Carmine Castello, the Master of the Syndicate Obsidian.</p>
+<p>'So, you received this Book as Drug Money?'</p>
+<p>Carmine Castello pointed to the Book bound in Chains and asked his buha. He said it was a Book he received from a Drug Addict from a Noble Family in Europe instead of Drug Money, and according to the Drug Addict, it was the most expensive item in the Family.</p>
+<p>'I felt something unusual from the Book. I brought it to you first to have it appraised.'</p>
+<p>The Obsidian Syndicate has almost lost its Mysteries except for alchemical Knowledge, but even an Executive had the Ability to feel the Value of the Book bound in those Chains. Carmine Castello also felt that the Book was unusual, so he did not scold him for receiving the item instead of Money.</p>
+<p>'First, we need to know what kind of item it is. Call Salvatore. Let's have him appraise it first.'</p>
+<p>'I understand, Boss.'</p>
+<p>Salvatore, whom Carmine Castello mentioned, was an appraiser. He was an appraiser who appraised items with Mysteries, not a general appraiser.</p>
+<p>All underworld organizations had affiliated appraisers because, given the nature of organizations with pickpockets, thieves, and robbers, they needed to know the Value of the items they stole or robbed in order to sell them properly.</p>
+<p>Salvatore was a White hair Elderly Person with half his Head shaved and wearing a monocle. Salvatore, who entered Carmine Castello's room, widened his Eyes when he saw the Book on the desk.</p>
+<p>'W, where did you get this?'</p>
+<p>'Do you know what it is?'</p>
+<p>'This is a grimoire...!'</p>
+<p>'A grimoire?'</p>
+<p>Carmine Castello smiled greatly at Salvatore's Words. As the root of the Obsidian Syndicate was a union of alchemists and Magicians, he knew what a grimoire was. And the Obsidian Syndicate had several grimoires.</p>
+<p>The reason why he says that there were grimoires in the past tense is because the Obsidian Syndicate sold off the grimoires whenever it was financially difficult. They all received high prices, which played a major role in helping the Obsidian Syndicate overcome the crisis each Time.</p>
+<p>And now another Magic Tome has fallen into the hands of the Obsidian Syndicate...! Carmine Castello thought that the heavens were helping the Obsidian Syndicate.</p>
+<p>'Moreover, this grimoire is one of the most valuable Magic Tomes. Named the Shard of Omniscience....'</p>
+<p>'The Shard of Omniscience? So how much is it worth?'</p>
+<p>'I can't put a Value on it. To those who really want it, it might be more expensive than the Mona Lisa.'</p>
+<p>More expensive than the Mona Lisa...! Carmine Castello, who heard Salvatore's opinion, wanted to kiss the buha who brought the grimoire instead of the Drug Money.</p>
+<p>'Good. Let's do this. Spread the rumor secretly. That the, what was it called? Yes, the Shard of Omniscience has appeared in New York. Don't talk about what we have, just spread the rumor that it has appeared in New York. That way, People who want this Book will come to New York. If they know we have it, they might attack us instead, so we must keep it a Secret, understand?'</p>
+<p>As Carmine Castello said, it was important to hide that this Shard of Omniscience was in the hands of the Obsidian Syndicate. All Magicians are Guys who are crazy somewhere, so they prioritize taking it away rather than paying properly.</p>
+<p>'I understand. But when enough People who want the Book gather...?'</p>
+<p>When the buha nodded as if he understood and asked about the next action, Carmine Castello opened his mouth with a deep Smile.</p>
+<p>'When I think enough Guys who want it have gathered, then we'll hold an auction...! We'll sell this Book and sweep up the Money.'</p>
+<p>Gojoy-nim requested Taira Kokoro and Kisa's Reaction when they first met Ryuta at the funeral.</p>
+<p>Taira Kisa</p>
+<p>Kisa is welcoming him with a feeling of, "Oh my, are you Ryuta?" hehe</p>
+<p>Taira Kokoro</p>
+<p>Kokoro is managing her Expression as one of the Taira Successors hehe</p>
+<p>Chomisaemeonji-nim requested Liz Mukbang Hamburger, wearing a transparent raincoat~!</p>
+<p>Hamburger Mukbang~!</p>
+<p>Wow, look at that size...! Of course, I'm talking about the burger, not the breast~!</p>
+<p>Transparent raincoat~!</p>

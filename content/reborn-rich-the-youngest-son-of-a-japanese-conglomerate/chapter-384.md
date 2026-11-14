@@ -5,79 +5,62 @@ weight = 384
 chapter = 384
 +++
 
-<p>I take back calling Minamoto Lisa cute when she asked me to hang out together 30 minutes ago. I'd forgotten, but going shopping at a department store with girls is incredibly annoying, boring, and exhausting. And with four of them, it's even worse. I'd say it's not just four times as hard, but four squared as hard?</p>
-<p>Well, watching each of the female students try on clothes that reflected their individual tastes was quite enjoyable, but the indecisive hesitation before choosing and the boring stories from the clerk giving compliments weren't fun, and neither was standing there awkwardly by myself.</p>
-<p>Besides, since the purpose of this department store's establishment was for the students of St. Francisco Girls' Academy, there weren't many men's clothes. There were some, but only enough to fill the assortment? So, the story was that there was almost nothing for me, a guy, to enjoy.</p>
-<p>,Tada~n! Ryuta-cchi, what do you think?"</p>
-<p>For a moment, exhausted, I was sitting blankly on a chair in the store when Seizawa Shii, wearing new clothes, squatted down in front of me and asked.</p>
-<p>"You can't tell what it looks like when you're squatting, stand up."</p>
-<p>"Okay, you have to give it a good look, okay?"</p>
-<p>At my words, Seizawa Shii was wearing a one-piece dress suitable for late summer, and it felt quite refreshing. The white background with pink patterns suited Seizawa Shii quite well.</p>
-<p>"Nice. It's refreshing and has a summer vibe."</p>
-<p>If you ask if it's a style for a high school student to wear, it's definitely not because the cleavage is too emphasized, but Seizawa Shii is an adult, so it seemed to suit her. No, if it were her, it might have suited her even if she wore it last year when she wasn't an adult.</p>
-<p>"Really? Then I'll decide on this!"</p>
-<p>Hmm, that's a relief. One of the four has finished choosing her clothes... Still, seeing her wear it, she seemed to have her own style. Naruse Shiyo, perhaps due to the reaction to her weak body, pursued a tough-looking fashion, wearing a black leather jacket with lots of studs that heavy metal rockers would wear, and I sent her back, saying it wasn't allowed since it was still summer.</p>
-<p>And Urabe Konoka seemed to wear a normal style, but rather, because of that style, she seemed to have choice paralysis and was confused about what clothes to choose.</p>
-<p>"Shii, help Urabe choose her clothes. She doesn't seem to know what to choose."</p>
-<p>"That sounds like fun?"</p>
-<p>Of course, it wasn't meant to be for fun, but Seizawa Shii, who was very excited at my words, went to Urabe Konoka. As Seizawa Shii went to Urabe Konoka, Naruse Shiyo approached me, looking slightly hesitant.</p>
-<p>"How is it now, it's not hot anymore, so it's okay to wear it, right?"</p>
-<p>Naruse Shiyo came to me this time wearing a death metal short-sleeved T-shirt with a skull on it and a denim skirt and asked. At this level, it would be felt as a fashion item and wouldn't stand out that much.</p>
-<p>Above all, I decided to be satisfied with just the fact that it wasn't a leather jacket because if Naruse Shiyo, who is physically weak, wore a leather jacket and sweated a lot, she would collapse from dehydration, and it would be my responsibility.</p>
-<p>"Yeah, this suits you too. It's cute."</p>
-<p>"Ehehe, really?"</p>
-<p>Naruse Shiyo, twisting her body and smiling at my compliment that she was cute, nodded her head cutely and immediately ran off to pay. The second one cleared.</p>
-<p>Urabe Konoka will be finished soon since Seizawa Shii is choosing her clothes, and Minamoto Lisa hasn't shown me the clothes she's changed into yet, whether she's embarrassed to get my evaluation of her clothes or whether she doesn't like them, so in fact, it'll be over if I just look at Urabe Konoka.</p>
-<p>"H-How is it?"</p>
-<p>Minamoto Lisa, whom I hadn't expected, was standing in front of me with a flushed face. Minamoto Lisa was wearing white pants that contrasted with her glossy tanned skin and a short-sleeved shirt with white frills that revealed her stomach.</p>
-<p>"It suits you well. It seems to match your skin tone."</p>
-<p>"T-That's good...!"</p>
-<p>I don't know what she meant by 'that's good,' but Minamoto Lisa seemed satisfied as well. She seemed to have bought quite a lot of clothes, with several shopping bags in her hands, and seeing this, I felt like she was the daughter of a chaebol family from a drama.</p>
-<p>Cold, haughty, pretty, likes luxury goods... Perfect. Except for the heavy tan.</p>
-<p>"I-I've chosen everything...!"</p>
-<p>As I was thinking about the stereotype of a chaebol's daughter, Urabe Konoka approached me, stuttering slightly. But her clothes were still her school uniform. Besides, she was holding far more shopping bags than Minamoto Lisa's. What, why did she buy so much without even trying it on?</p>
-<p>"You bought so much but didn't try it on? But why did it take so long?"</p>
-<p>At my question, Urabe Konoka looked slightly embarrassed and gestured for me to put my ear close.</p>
-<p>"Except for one set of clothes for me to wear, all of these clothes are for Shinkai Hime-nim. Shinkai Hime-nim took a long time choosing clothes."</p>
-<p>Ah, I see. Being able to share a god's vision is very annoying. But what excuse did she make to the others?</p>
-<p>"Did you say you were going to wear all these clothes?"</p>
-<p>"No, I said I was going to give them to my grandmother, who will be released on parole soon."</p>
-<p>I thought I saw a tight latex dress inside the shopping bag. Did the others believe that? When I glanced at Seizawa Shii, she was looking here with a very confused expression. As expected, when exposed to the abyss without proper protection, people become like this. As a priestess of the Daughter of the Abyss, she won't go any crazier than this, but she was already weird enough.</p>
-<p>"It's time. Then let's go choose swimsuits now."</p>
-<p>Minamoto Lisa looked at the time and said to the other three. Finally, freedom. I said there wouldn't be a swimsuit fashion show from the beginning, so surely they won't drag me to the swimsuit store, right?</p>
-<p>"We can go separately now, right?"</p>
-<p>"Ryuta-cchi~! Don't tell me you were bored hanging out with us?"</p>
-<p>"It was okay watching you guys try on clothes, but there aren't many men's clothes here, and the process of waiting is too boring. Normal guys have a hard time with this kind of thing."</p>
-<p>"Is that so? Next time I get a boyfriend, I'll buy the clothes first and do a fashion show separately."</p>
-<p>Seizawa Shii was somewhat convinced by my words. I don't know why the conclusion was a fashion show, but it seemed to have been conveyed well.</p>
-<p>"The swimsuit store is one floor up, right?"</p>
-<p>"Yeah! I haven't bought a swimsuit in a long time, so I'm quite excited!"</p>
-<p>I didn't want to be on this floor full of women's clothing either, so I walked with them to the escalator. The female students will go up, and I'll go down to the lower floor to find a place to rest.</p>
-<p>"Hey! Teacher~!"</p>
-<p>"Teacher-niim~!"</p>
-<p>The girls who had just bought swimsuits were Konoe Akina's group, and Konoe Akina, Kujo Kina, Otagi Yuka, and Sakagami Rena were coming down the escalator.</p>
-<p>"Ryuta-cchi chose our clothes, so tell him to choose yours too!"</p>
-<p>Seizawa Shii said to the female students of Konoe Akina's group as she rode up the escalator. You... didn't you just say you understood?</p>
-<p>When I looked at her with a betrayed expression, Seizawa Shii stuck out her tongue with a 'merong.'</p>
-<p>"It's a punishment for saying you were bored while being with a girl!"</p>
-<p>Hmm, I guess that was a mistake. Still, that's too much. I said I was so bored.</p>
-<p>"Kyahaha! We're done with swimsuits, so is it time for clothes now? Teacher, let's go quickly!"</p>
-<p>"I'm sorry, Teacher. But I'm jealous that Teacher is choosing clothes for them...!"</p>
-<p>"If Teacher-ssi wants to choose clothes for us, well, I can't help it."</p>
-<p>Except for the quiet masked girl Sakasami Rena, the others seemed to have completely decided that I would choose their clothes. Konoe Akina and Kujo Kina were holding my arms on either side, and Otagi Yuka was pushing me from behind, heading to the women's clothing store they had been eyeing.</p>
-<p>"Damn it!"</p>
-<p>Of course, being caught by refreshing female students wasn't unpleasant, but thinking about being bored for the rest of the time, I felt like I wouldn't want to see a department store for a while.</p>
-<p>###</p>
-<p>"Have you found out who's behind those YouTubers?"</p>
-<p>"I checked the email of Yama-Taro's Hunting Life, and as expected, the report about Miyashi was from a disposable email. According to their testimony, the email said that there was a school with rich female students and that if they caught just one, their lives would blossom."</p>
-<p>Daigo Terue was listening to information from the head of the information team that St. Francisco Girls' Academy operates independently. Because it can receive support from most of the prestigious families in Japan, it was an organization that demonstrated the best information power in Japan when problems arose with the safety of the female students.</p>
-<p>When we traced the IP address from which the disposable email was sent, we confirmed that it had been sent from an internet cafe in Fujinomiya City, which is near Miyashi.</p>
-<p>"So, did you find the guys who dared to target St. Francisco Girls' Academy?"</p>
-<p>At Daigo Terue's question, the head of the information team nodded. He only needed to say the results, but the head of the information team had a bad habit of saying everything, including the process. He was maintaining his position because of his excellent skills, but he wasn't the style that superiors liked.</p>
-<p>"To skip the middle part, it was a small to medium-sized terrorist group called the True Japan Emperor Group. The exact location is here."</p>
-<p>"I understand. I'll take care of the True Japan Emperor Group or whatever they're called, so you can go."</p>
-<p>As the head of the information team bowed politely and went outside, Daigo Terue picked up the phone. The sound of a signal was heard, and then the sound of someone answering the phone on the other end.</p>
-<p>"Shimokawabe, I have something to ask of you."</p>
-<p>----</p>
-<p>Clothes chosen by Naruse Shiyo.</p>
-<p>I thought there would be too many illustrations between the text, so I put the Naruse Shiyo cut at the end hehe</p>
+<p>,What brings you here at this late hour?</p>
+<p>Lara Sinclair-ssi asked me and Han Yu-gyeong-ssi, sounding puzzled. It was past midnight after having sex with Han Yu-gyeong-ssi for a while, so the visit was a bit late. Luckily, Lara Sinclair-ssi doesn't sleep much. If she were a typical researcher, it would be quite an annoying situation.</p>
+<p>,More importantly, when did you come over to Korea?</p>
+<p>I didn't answer Lara Sinclair-ssi's question and instead asked why she was in Korea to satisfy my curiosity first. Lara Sinclair-ssi tilted her head as if she didn't understand my question and asked me back.</p>
+<p>,Isn't it normal for the R&amp;D team leader of TG Tech to come to where TG Tech's headquarters is located? To answer your question, I came earlier this week after the research-factory site contract here was finalized.</p>
+<p>,Yong-tae-ssi was coming to Korea this week anyway, so I didn't tell you to surprise you.</p>
+<p>I see. I was definitely a bit surprised. It would be more advantageous for TG Tech if Lara Sinclair-ssi were in Korea. Since the android Eve is in Japan, it seemed like there should be one in Korea too to maintain balance. It would be good for Han Yu-gyeong-ssi to have an android to ask for help when needed.</p>
+<p>,To answer Lara-ssi's question, the reason I came all the way here at this late hour is because I have some interesting information.</p>
+<p>,Interesting information?</p>
+<p>Lara Sinclair-ssi showed curiosity at my words, and I told Lara Sinclair-ssi about the Shinseong Group's bio-experiments and the resulting mutant dog situation, just like I explained to Han Yu-gyeong-ssi.</p>
+<p>,Certainly, obtaining data from bio-experiments would help our research. However, our TG Tech is specialized in mechanical research. Both Eve and I are skilled in mechanical aspects, but not experts in biology. Of course, if we start deep learning related research and technology from now on, it would be different, but both Eve and I have developments we want to pursue, so it would be better to find a new researcher.</p>
+<p>She becomes very talkative when it comes to technology. Certainly, both Eve and Lara Sinclair-ssi are focused on mechanical technology. Well, I know a few researchers, so I can pass them on to Han Yu-gyeong-ssi.</p>
+<p>Since I've decided to grow TG Tech, I should introduce some good researchers. I need to look through the information I wrote down as soon as I possessed this body.</p>
+<p>,Although I can't help with biological research, I can still help collect samples.</p>
+<p>Lara Sinclair-ssi made something for a few minutes, then created three things that looked like guns with syringes attached. She's amazing, isn't she? Making them so quickly with a 3D printer and a few materials felt like watching a Mytube production video.</p>
+<p>,This is a sample collection gun that automatically sucks up blood and cytoplasm when you pull the trigger against the body. There are three, including the spare, so use them as you see fit.</p>
+<p>She even made spares, how kind. Lara Sinclair-ssi put the sample collection guns in a plastic bag and handed them to me. Since the container for collecting samples was a plastic container, it could break, so she even put in some sponge. Is it because she's an AI, or is Lara Sinclair-ssi's personality originally like that? She's very meticulous.</p>
+<p>,By the way, where are the escaped test subjects?</p>
+<p>,It's close by, near Bukhansan National Park.</p>
+<p>TG Tech's research-factory site was in the southwest of Uijeongbu, so if we left them alone, this area could also be attacked. So, we're taking care of it in advance.</p>
+<p>,Can I come along? I want to check their combat abilities directly.</p>
+<p>,Whose combat abilities?</p>
+<p>,I want to check the combat abilities of you, Taira Ryuta, Jin Yong-tae-ssi, Han Yu-gyeong-ssi, and the test subjects you're fighting. Since you two are co-CEOs, I want to check your combat power and stop you from fighting if your combat abilities are insufficient.</p>
+<p>In short, it means she's worried about us getting hurt since we're the bosses, so she's coming along. Lara Sinclair-ssi's combat abilities should be sufficient, so it's okay to go together.</p>
+<p>We drove the car we came in towards the foothills of Bukhansan in the south. We parked the car in a parking lot of a hiking trail that wasn't well maintained and got out.</p>
+<p>During the Third World War, the North Korean army, which has now disappeared, came down to Gangbuk in Seoul, and they buried numerous landmines in Bukhansan National Park. And even now, eight years after the war ended, it hasn't been maintained, so the nearby citizens have lost their hiking trails.</p>
+<p>Of course, all the landmines on the hiking trails have been removed, but it was still sparsely populated due to the perception that it was dangerous and because it was the base of feral dogs that had been abandoned by humans and become wild. Still, there were streetlights along the hiking trail, so we could see the path, but some were broken or not working, so we had to take out flashlights.</p>
+<p>,I'll take the lead.</p>
+<p>I decided to walk ahead since I have regenerative abilities and it's okay if I get hurt stepping on a landmine. Lara Sinclair-ssi, who doesn't know my abilities yet, tilted her head, but she was watching me walk from behind for now.</p>
+<p>Flying insects swarmed around the flashlight's light, and there was a rustling sound as the surrounding trees trembled. Since it was a mountain path, mosquitoes were attacking from all around.</p>
+<p>If bitten by a mosquito, it's itchy because of the mosquito's venom, but I'm immune to poison, so it doesn't matter much if a mosquito bites me. I was worried about Han Yu-gyeong-ssi, so I looked back and saw that Han Yu-gyeong-ssi was wearing an electric barrier that Lara Sinclair-ssi had created.</p>
+<p>,What is it?</p>
+<p>,There are many mosquitoes near the lab too because it's a mountain. So, I made this electric barrier because the researchers were having a hard time. Eventually, I plan to eradicate the mosquitoes in the area altogether, like Disneyland.</p>
+<p>Lara Sinclair-ssi is so caring.... She still has a blank expression, but if she thinks about the researchers this much, she will be able to receive the researchers' loyalty as the research team leader even though she hasn't been here long.</p>
+<p>,Woof!</p>
+<p>Shadow Leopard Nero and Saint Baek-gyeon White Bear came out to walk in preparation for battle, and White Bear barked, sensing something. Nero growled softly without warning.</p>
+<p>Paseuseuseu!</p>
+<p>The surrounding bushes shook violently, and the shadows of several four-legged animals jumped out. Each seemed to have a target, and they each rushed at our group. In the urgent situation, I counted the number of mutant dogs rushing at us, and it was exactly five, matching our number.</p>
+<p>Each mutant dog looked different. Something was synthesized, so one had an extra claw on its shoulder, or its teeth were very sharp, but the common thing was that they had no fur and were exposing their red bare skin, as if something was wrong. Fucking disgusting dogs. I need to take care of them quickly.</p>
+<p>The mutant dog that was targeting me immediately jumped up as if trying to aim for my neck and opened its mouth wide towards my neck. I grabbed the neck of the jumping dog with one hand.</p>
+<p>A commotion broke out in an instant. The sound of silenced gunshots, the crashing sounds of wrestling, and the barking of the mutant dogs that attacked us awakened the silence of the night.</p>
+<p>The mutant dog whose neck I was grabbing struggled madly to bite my wrist that was holding its neck. I pulled out the Abyss Blade from the palm of my hand and cut the dog's neck. The mutant dog's muscles were quite tough, so I couldn't break its neck bones even with my strength. So, I used the Abyss to cut its neck. No matter how strong it was, its neck was cut like tofu by the blade made of the Abyss.</p>
+<p>After dealing with the dog, I turned around and saw that Han Yu-gyeong-ssi had pierced through the mutant dog's body with star magic. Nero, similar to me, slashed the dog with shadow claws and then licked his claws with his tongue, and White Bear killed it by biting its neck like a dog.</p>
+<p>Only Lara Sinclair-ssi was still fighting, but it felt like she was collecting data on the mutant dogs, as she said she wanted to know their combat abilities before coming here, rather than Lara Sinclair-ssi being weak.</p>
+<p>,9mm pistol rounds can't do any damage.</p>
+<p>Lara Sinclair-ssi dodged the mutant dog's attack and fired her pistol, but the mutant dog didn't seem to care at all even though it was hit by the pistol rounds. If it's okay even with a pistol, it has considerable defense. So, my grip strength couldn't break its neck. Even though it was a typical mutant dog, it was quite a tough one.</p>
+<p>After checking its defense, Lara Sinclair-ssi put away her pistol and made a gun shape with her hand, aiming it at the dog. The tip of her index finger opened and a beam was fired, entering the mutant dog's open mouth and cooking its insides.</p>
+<p>,Combat data is still insufficient. The power difference between the pistol and Lara Sinclair-ssi's internal weapon is significant. I will use rifle rounds in the next battle.</p>
+<p>I don't know where she's taking it out from, but Lara Sinclair-ssi takes out a submachine gun from her researcher's coat. It's a submachine gun that's smaller than a regular rifle, but it also has a silencer on the barrel.</p>
+<p>,I will use 2040-NATO rounds in the next battle.</p>
+<p>,Let's collect samples first and then start again.</p>
+<p>I took out the syringe gun for tissue collection from the plastic bag and pulled the trigger against the mutant dog's body. I heard a whooshing sound as air escaped, and bodily fluids and blood were separated and filled the plastic cylinder. It was quite well made even though it was made in such a short time.</p>
+<p>,Let's start again.</p>
+<p>I put the collected samples back in the plastic bag and started again. Glancing at Han Yu-gyeong-ssi, she didn't seem too flustered. Han Yu-gyeong-ssi has done quite a lot of work while I was in Japan, so she must have some combat experience. She assassinated a member of the National Assembly and, from what I heard, she also contributed to some extent in the BS Group's succession war.</p>
+<p>Seuseuseuseu!</p>
+<p>After walking for a while, we came to an open space that seemed like a place to rest while hiking, and the surrounding branches and bushes began to shake extensively and violently, incomparably to before.</p>
+<p>-----</p>
+<p>New model Arisu practice.</p>
+<p>I am remaking the old model ㅎㅎ</p>

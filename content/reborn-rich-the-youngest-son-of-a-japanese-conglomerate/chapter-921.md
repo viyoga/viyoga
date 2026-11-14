@@ -5,107 +5,81 @@ weight = 921
 chapter = 921
 +++
 
-<p>-Can you hear me clearly?</p>
-<p>"Yes, I can hear you clearly."</p>
-<p>Sawayanagi Azuma nodded, answering Rianna Holden, the operator's, Telepathy. On the opposite side of Taira Kanna's Group, who had crossed the west wall of the Anyaji headquarters, the Seryu Military Company members crossed the wall from the east.</p>
-<p>"Jinha and I will take the lead."</p>
-<p>Sawayanagi Tobe, who possessed Steelification Ability, and Choi Jin-ha, who possessed Petrification Ability, took the lead, with Sawayanagi Seari lightly following right behind them.</p>
-<p>-There's one Person behind the door on the right, so subdue them immediately.</p>
-<p>"Roger."</p>
-<p>At Rianna Holden's Words, Sawayanagi Tobe opened the door and entered, striking an Anyaji martial monk's Head, immediately rendering him combat-incapable.</p>
-<p>The Anyaji martial monk, struck with a Steelified Fist, Kwang!, trembled violently, then soon slumped. Being hit in the Head by a Steelified Ability User's Fist was no different from being hit by a giant hammer, so it would have been strange if he were unharmed.</p>
-<p>Silently, one by one, disposing of the Anyaji martial monks, the Seryu-tai agents headed towards the Place where the Guardian Hall Guardians were gathered.</p>
-<p>-You might have heard it earlier, but I'll say it again. We have reliable Information that the Guardians currently in the Anyaji headquarters are less skilled than the Guardians who went to Attack Miyashi. However, the one Person you must be careful of is the Guardian Hall Master.</p>
-<p>The Information regarding the skill of the Guardians remaining at the Anyaji headquarters was obtained from Athena Mannerheim, so its Trust Level was quite high.</p>
-<p>According to Athena Mannerheim, most of the Guardians remaining at the Anyaji headquarters were less skilled than those who participated in the Attack. However, she said that one Person, the Guardian Hall Master, possessed Abilities powerful enough to be among the top five in Anyaji.</p>
-<p>Therefore, they decided to face the Guardian Hall Master together with Taira Kanna's Group. Before that, the Seryu Military Company side first had to eliminate the two Guardians assigned to them.</p>
-<p>"We've arrived."</p>
-<p>"It's quite spacious. How are they using such a large plot of land in Tokyo? Even if it's Katsushika Ward."</p>
-<p>The Seryu-tai unit members, grumbling about the spacious Anyaji grounds, each took their Positions in front of the Building where the Guardians were. Sawayanagi Tobe and Choi Jin-ha, who had been leading until now, stood at the front, and Lee Du-yeong, who possessed regenerative Ability, also joined the front line.</p>
-<p>"Sniper team, I'm counting on you."</p>
-<p>-I've relayed the message.</p>
-<p>Sawayanagi Mikiyo, who performed long-range sniping for Seryu-tai, and Lee Du-yeong, an X-Ray Ability User, were waiting in a nearby Building, aiming at the Anyaji headquarters.</p>
-<p>Kwang! Kwang!</p>
-<p>Thanks to the silencer, the Bullets, fired without any noise, pierced through the wall. Even with a silencer, the sound of bullets piercing through a wall couldn't be eliminated. Lee Du-yeong, who possessed X-Ray Ability, informed Sawayanagi Mikiyo of the exact Position, so the sound of the wall breaking was heard twice.</p>
-<p>"Kuaaak!"</p>
-<p>"Keo-heok...!"</p>
-<p>Two Screams were heard, indicating accurate hits. Simultaneously with those Screams, the Seryu-tai unit members entered the Building. Because they had roughly confirmed the spots where the bullets had pierced the wall through sniping, they knew the Guardians' Positions.</p>
-<p>"Junichi, Hori, Mari, Jinha and I will take the first floor. The rest of you, under Sinya's Command, please take the second floor."</p>
-<p>Because it was a two-story Building, Sawayanagi Azuma divided the Group into two. The presumed locations of the Guardians were also conveniently divided into the first and second floors.</p>
-<p>Sawayanagi Azuma, Kiyona Hori, the Mari Sisters, Kitayama Junichi, and Choi Jin-ha decided to search the first floor, while the second floor was to be handled by Sawayanagi Sinya, the Vice President of Seryu Military Company, along with Sawayanagi Tobe, Sawayanagi Seari, Sawayanagi Shigeru, and Lee Du-yeong.</p>
-<p>Sawayanagi Azuma's group, who went to the first floor, soon encountered one of the Guardians. This Guardian wielded a rare weapon in Anyaji, where Fist Techniques were the focus, and he was holding a short, modified naginata (薙刀: Japanese single-edged spear). It seemed he had modified it because he often fought indoors.</p>
-<p>"Are you bastards the ones who fired the Guns?"</p>
-<p>"If I had to say, the ones who used Guns are outside, but they're part of the same Party/Group."</p>
-<p>The Guardian, who had been shot, furiously pointed with his naginata and spoke, but Sawayanagi Azuma answered calmly, as if she didn't care about such Anger.</p>
-<p>"Th-this...! Crazy bitch! Die!"</p>
-<p>The enraged Guardian charged with his short naginata. And he swung the naginata at immense speed. But no matter how powerful the strike, for Sawayanagi Azuma, who possessed Premonition Ability, it was 'already' an Experience.</p>
-<p>Sawayanagi Azuma dodged the Guardian's naginata with a flowing Attitude, like water. Naturally, Sawayanagi Azuma was not alone, so various Attacks poured down on the Guardian holding the naginata.</p>
-<p>Along with Kiyona Hori's pistol shots, Kiyona Mari's flames, Kitayama Junichi's dagger, and Choi Jin-ha's petrified fist-attacks that even an Anyaji Guardian would find difficult to withstand all at once-poured down.</p>
-<p>Furthermore, with sniping coming from unexpected situations, and Sawayanagi Azuma making exquisite Attacks as if she knew his mind, the Anyaji Guardian was in hell.</p>
-<p>The Anyaji Guardian struggled to survive, employing all sorts of sorcery, but all his actions were nullified by Sawayanagi Azuma, who had already Experienced everything, and a Bullet lodged in his Furrowed Brow, taking his Life.</p>
-<p>"The second floor team has probably succeeded by now too. Let's go."</p>
-<p>At Sawayanagi Azuma's Words, everyone nodded and exited the Room where they had battled the Anyaji Guardian, heading towards the main gate.</p>
-<p>"Oh? You guys finished too?"</p>
-<p>As they were going Outside, they met the second-floor team coming down the stairs, and indeed, just as Sawayanagi Azuma had said, they were in the process of dealing with the Guardian on the second floor and coming down.</p>
-<p>No matter that they were Anyaji Guardians, most of Seryu-tai were Superhumans, equipped with state-of-the-art Equipment with Taira Ryuta's support, making them an elite PMC. They couldn't be defeated alone. Since one Bullet is stronger than ten punches, it could be said that unless one was an extraordinary Superhuman, they couldn't contend with a formal PMC.</p>
-<p>"Now we need to go catch that Person called the Guardian Hall Master. What's the Result of that?"</p>
-<p>At Lee Du-yeong's Question, Sawayanagi Azuma shook her Head.</p>
-<p>"I don't know. I haven't seen it."</p>
-<p>Although Sawayanagi Azuma was a Premonition Ability User, that didn't mean she could know all futures. Sawayanagi Azuma's Premonition Ability consisted of two types: battle premonition, which had recently bloomed, and distant premonition, which fragmentarily showed the distant future.</p>
-<p>Battle premonition felt like experiencing the battle Situation in advance upon entering combat, and distant premonition was not about Sawayanagi Azuma being able to know what she wanted, but rather randomly seeing what Sawayanagi Azuma had personally Experienced in the future, so she couldn't know all futures.</p>
-<p>If she could know all futures, Sawayanagi Azuma would have become the Dominator of the World, but because of this randomness, she was satisfied with confirming the Safety of Seryu-tai's personnel. Moreover, the future could change depending on Sawayanagi Azuma's actions, which were based on her premonitions.</p>
-<p>"Still, I saw that everyone was safe, so don't Worry."</p>
-<p>At the Words that she couldn't confirm the battle with the Guardian Hall Master, everyone wore a slightly tense Expression, but Sawayanagi Azuma opened her mouth as if to tell them not to Worry.</p>
-<p>Because she had seen everyone gathered together for a meal a little further in the future than now, she was convinced that they would not die in today's battle. Such ordinary future scenes of daily life were quite important because they could reveal various Information, such as the life or death of colleagues.</p>
-<p>"Then that's Fortunate. Let's quickly deal with that Person called the Guardian Hall Master and go eat something delicious!"</p>
-<p>Sawayanagi Seari spoke as if it was Fortunate and happily took the lead. As they went to the rendezvous Place where they were to meet Taira Kanna's team and waited a little, Taira Kanna's team, who seemed to have similarly dealt with their Guardians, was seen approaching.</p>
-<p>"We're a little late. Have you been waiting long?"</p>
-<p>"No. We just arrived too. Let's depart."</p>
-<p>Taira Kanna and Sawayanagi Azuma exchanged no particular Conversation and went to the Corner of the Anyaji headquarters Building, where the Guardian Hall Master was indicated to be.</p>
-<p>That Building was shabby, like that of a monk. Considering that all the other Buildings on the grounds were luxurious Japanese-style Buildings, this shabby Building where the Guardian Hall Master supposedly resided was somewhat bizarre.</p>
-<p>There were religious Symbols placed or hung everywhere, so it wasn't without decorative Elements, but these Symbols were so grotesque and disgusting that it felt uncomfortable to step inside.</p>
-<p>"The Atmosphere is a bit...."</p>
-<p>"Yes, it's strange."</p>
-<p>Sawayanagi Azuma and Taira Kanna, feeling a slight discomfort, entered the Building. With a chilling kki-iik sound, the wooden door opened, revealing a dark interior.</p>
-<p>Chaltak.</p>
-<p>Immediately, the Seryu-tai unit members behind them turned on their flashlights, providing Lighting support, and the Appearance in the Darkness soon became visible.</p>
-<p>Inside the Building, a peculiar stench and the Smell of Dust mingled. It felt as if no one had been there for a long time, and indeed, there was no presence.</p>
-<p>Enduring the unpleasant Smell, they looked around the Building, only to find a Bedroom and a Restroom inside. Although it had seemed a bit narrow from the Outside, they hadn't thought it would be this much, and as if their suspicion wasn't wrong, Sawayanagi Seari, who controlled Wind, soon discovered a Secret Space.</p>
-<p>"There's a hidden door here!"</p>
-<p>Where Sawayanagi Seari pointed, there was a tiny Gap. Sawayanagi Sinya, an expert in Bombs and Trap disarming, approached closely, checked for traps, and opened the secret door.</p>
-<p>"There were no traps, as if it's a frequently used Passage."</p>
-<p>Sawayanagi Sinya, perhaps because Taira Kanna's team, who were Outsiders, was present, deliberately used respectful speech towards Sawayanagi Azuma while reporting. It seemed he thought it would be better to show a more disciplined Appearance, as there were other eyes watching (especially the eyes of wealthy individuals who could become their Customers), even though they would be more relaxed if it were just themselves.</p>
-<p>"I will take the lead."</p>
-<p>Sawayanagi Tobe, who had the strongest Defense in Seryu-tai, decided to take the lead. As Sawayanagi Tobe entered the Secret Space as the leader, the stench began to grow stronger.</p>
-<p>"Everyone, put on your Gas Masks."</p>
-<p>At Sawayanagi Azuma's Words, everyone began to operate their cyber Suits. Then, a mask covering their Noses, Mouths, and Chins popped out and was equipped. Taira Kanna, Nakanoin Rina, and Muko Neika also put on their Gas Masks and walked through the Secret Passage again.</p>
-<p>"This is...!"</p>
-<p>After passing through the Secret Passage, a small Room appeared, filled with dried Blood, rotting Flesh, and Skeletons, along with candlesticks holding melted candles and an Altar that seemed to have been used for offerings. Even Seryu-tai, who had been through countless Battlefields, couldn't help but be disgusted by such a sight. Everyone stood still, seemingly shocked, looking at the Room, then soon regained their composure.</p>
-<p>"Wasn't it a Cult, not a martial arts organization...?"</p>
-<p>"At least twenty Corpses, it seems...."</p>
-<p>Everyone held their flashlights and examined the Corpses or the Altar, but Sawayanagi Seari quietly shone her light on the wall. Because Sawayanagi Seari was the one with the most developed Sensation in Seryu-tai, it seemed she felt something on the wall.</p>
-<p>"What are you looking at?"</p>
-<p>"Look... at this."</p>
-<p>When Kiyona Mari asked, looking at Sawayanagi Seari, Sawayanagi Seari pointed to the wall she had been looking at.</p>
-<p>On the wall, '神様が来る！(God is coming!)' was written in blood. The letters seemed three-dimensional, as if they had been repeatedly painted over with blood.</p>
-<p>"This is...."</p>
-<p>"So that Person called the Guardian Hall Master isn't here."</p>
-<p>Everyone felt an ominous Feeling from the Story written in Blood, but Taira Kanna, perhaps feeling nothing particular, spoke about the Guardian Hall Master. Since they hadn't seen him even in the Secret Space, the conclusion that he didn't exist within this Building was valid.</p>
-<p>"Since there's no Goal, let's leave. If it feels unsettling, we can just burn down the Building itself."</p>
-<p>That was right. The Purpose of those present here was to deal with the Guardian Hall Master, not to investigate this ominous Place. At Taira Kanna's Words, everyone passed through the Secret Passage again and came Outside the Building.</p>
-<p>"Did everyone finish well~?"</p>
-<p>As everyone came Outside, Mimata Chieri was waiting outside the Building. Faint Screams were heard from here and there, indicating that the Anyaji Subjugation Operation seemed to be going well.</p>
-<p>"We couldn't find the Guardian Hall Master."</p>
-<p>When Sawayanagi Azuma shook her Head and spoke, Mimata Chieri wore a puzzled Expression.</p>
-<p>"Our employees who are dealing with the Anyaji martial monks also haven't reported anyone particularly strong. Could he have gone to a Convenience Store or something?"</p>
-<p>No one agreed with Mimata Chieri's Words. If they had gone inside the Building, they wouldn't have gotten the Feeling that a Person called the Guardian Hall Master would leisurely use a Convenience Store.</p>
-<p>"It seems he went somewhere else. He might have gone to Miyashi later."</p>
-<p>"Then I should Contact my junior-nim!"</p>
-<p>At Taira Kanna's Words, Mimata Chieri picked up the Phone. Since the Guardian Hall Master was said to be quite strong, she had to make Contact before Taira Ryuta's Plan went awry.</p>
-<p>Nagumo Sian's School Uniform and Swimsuit from her school days, requested by Gojoy-nim~!</p>
-<p>School Uniform first~!</p>
-<p>Swimsuit~!</p>
-<p>I Yeon-ju's Phone Booth Exposure, requested by TheDreaming-nim: 1. Breast Pressing 2. Masturbation</p>
+<p>and chapter check contains erotic illustrations please surroundings this your</p>
+<p>"Hmm.... What should I do? Should I do them simultaneously?"</p>
+<p>At my Question, Saionji Diana and Sakagami Rena simultaneously shook their Heads again. Even while raising their hands simultaneously or shaking their heads simultaneously, they didn't seem to want to have Sex together.</p>
+<p>Normally, they often had 2-on-1 Sex, but thinking about why it was different today, it was a day they had struggled quite a bit, so for today, just the two of them seemed to want to be affectionate and cozy. Also, it was almost the last day in Miyashi.</p>
+<p>"Then, the two of you talk about who will go first. In the meantime, let's order some Dinner for delivery."</p>
+<p>I had finished Sex with Otagi Yuka, and since there were two more people left, I first decided to replenish my Calories with a Meal. Saionji Diana and Sakagami Rena also hadn't eaten Dinner, so even if we were to have Sex, I thought we should eat something first.</p>
+<p>"I'll order what I want, okay?"</p>
+<p>The two of them were talking with serious Expressions about who would go first with me, so they didn't seem to be thinking about choosing Dinner. Since they had worked hard today, I thought we should cut some meat, so I ordered Steak.</p>
+<p>While preparing the Wine, Drinks, and side dishes, the delivery arrived, so we immediately began our Meal.</p>
+<p>"Thank you, Teacher-ssi~!"</p>
+<p>"I will eat well, Master!"</p>
+<p>Although it was delivery, since it was ordered from a high-end Steak restaurant, the Steak was quite delicious. As expected of Miyashi, which has many wealthy people, there were many high-end Steak restaurants nearby.</p>
+<p>"So, what did you decide?"</p>
+<p>"Rena decided to go first."</p>
+<p>At my Question, Saionji Diana said. The two of them, after talking seriously, seemed to have finally made a Decision.</p>
+<p>"From now on, since I have to leave Miyashi, I'll soon be parting with my Parents, won't I? So today, I will first offer my Service to my Master and sleep at Home. The remaining Time, I decided to yield to Diana."</p>
+<p>Ah, I see. Sakagami Rena, unlike Saionji Diana, is close with her Family, so before leaving with me, she seemed to be planning to stay at her Parents' Home for a long Time. Of course, it was already past Dinner Time, and if she were to have Sex with me, tonight would be late, but she seemed to think sleeping at Home was important.</p>
+<p>Saionji Diana also seemed satisfied with this Consent, as she could have me exclusively until tomorrow Morning after Sakagami Rena leaves.</p>
+<p>Everyone was hungry and the Steak was quite delicious, so the Meal ended quickly. Saionji Diana decided to do the cleanup, and Sakagami Rena and I brushed our teeth and after showering together, went into the Bedroom.</p>
+<p>"Master-nim...."</p>
+<p>Instead of her normally reliable Attitude, Sakagami Rena clung to me, calling my name with a spoiled, clingy Attitude. While with Friends, she wasn't like that, but when we were alone, Sakagami Rena had always shown this spoiled Attitude, so I also hugged Sakagami Rena and stroked her Head.</p>
+<p>After showering, since she was naked, her moist skin clinging to me felt quite good.</p>
+<p>For a while, I, who had been stroking her Head, lifted Sakagami Rena in a Princess carry and carried her to the bed, setting her down. Even though I had only hugged her a little and stroked her Head, clear vaginal fluid was profusely flowing from Sakagami Rena's Pussy.</p>
+<p>"Master, I have already finished all preparations, so please come quickly...♥"</p>
+<p>Sakagami Rena, with her Legs spread, reached out her hand towards me. Indeed, even if we had a Mealtime in between, after watching Otagi Yuka's and my Sex and having a happy time, her Pussy would be sufficiently loosened. Even if I didn't bother with Foreplay, it meant she was in a state where immediate Insertion was possible.</p>
+<p>I sat between Sakagami Rena's Legs, holding my Cock, and began to rub my Cock on Sakagami Rena's Pussy.</p>
+<p>"Ah-heung...! Master-nim...♥"</p>
+<p>As if spreading her moist and sticky vaginal fluid with my Glans, I rubbed around Sakagami Rena's Pussy, and she looked at me with an incredibly anxious Expression. Because of that pleading Expression, wanting me to insert my Cock quickly, a slight Sadistic Urge rather arose, so instead of inserting my Cock, as if performing Sumata, I moved my Cock back and forth.</p>
+<p>"Hwaaang...! Master-nim, Master-nim...! If you rub like that, Rena, Haaht! I'll feel strange...! The inside is getting itchier and itchier, Master-nim...♥"</p>
+<p>As I rubbed my Cock, she twitched her Pelvis, and Sakagami Rena appealed to me with even more anxiety, but I didn't grant Sakagami Rena's Pleading and continued the pseudo-Sumata.</p>
+<p>"Master's Penis, Haaht...! Please put it inside...♥ In a place that can't be reached if it's not Master's Penis, Haaht! Please put it in...!"</p>
+<p>Now, Sakagami Rena was seriously asking me to put it inside, but this time too, I didn't grant it and continued to sway my hips. Sakagami Rena then made a determined Expression, and in the process of me swaying while doing pseudo-Sumata, when I pulled my hips back, she changed the angle of her Pelvis and lifted it so that when I moved my hips forward, it would be inserted automatically.</p>
+<p>Like a ninja, it was incredible agility. Sakagami Rena, because she was a Master of the ninja martial art, Bone Law, had a high understanding of Body movements, so in this short Time, she was able to induce my Insertion.</p>
+<p>"Haa-eut! You finally put it in...! Master's Heueut! Big Penis.... Touching the inside feels so good...♥"</p>
+<p>Although I didn't exactly put it in, since it turned out this way, I decided to make Sakagami Rena, who had struggled today, feel good. I thrust into the deepest part of Sakagami Rena's Pussy, stimulating the inside she had so desperately pleaded for.</p>
+<p>"Aha-eut...! This, it's dangerous, Master-nim...! Heueut, it feels so Haa-eung, too good...! It's dangerous♥ Haa-aa-aang!"</p>
+<p>As I thrust into her inside for about two minutes, saying it was dangerous, Sakagami Rena quickly reached Climax. Perhaps because she had warmed up with Masturbation earlier, she seemed to have reached Climax quickly. Sakagami Rena's narrow Pussy, not very large in Physique, narrowed even further at Climax and twitched as if craving my Semen, making me almost Ejaculate, but since I had already fired two rounds into Otagi Yuka, I was able to endure it.</p>
+<p>"Haa... Haa..., Master-nim, now Haaht! I will Service you from above."</p>
+<p>Still, like a ninja, her control over pleasure was excellent, so Sakagami Rena quickly regained her composure. This Time, saying she would offer Service, she laid me down and climbed on top. Perhaps because I had also struggled today, it seemed she meant she would make me feel good if I lay down.</p>
+<p>"Master's Size is big.... I don't know if it will all fit♥"</p>
+<p>Instead of immediate Insertion like I did, she placed it against her Lower Abdomen as if measuring the length of my Cock standing erect towards the sky, and said.</p>
+<p>"Heu-eung....! Master's hot Cock...! Rubbing it feels so good♥"</p>
+<p>As expected, instead of immediate Insertion, Sakagami Rena was tormenting me, moving her Pelvis exquisitely as if spreading vaginal fluid on my stiffly erect Cock.</p>
+<p>She seemed to want to receive a Request for Insertion by tormenting me, just as she had just experienced, but instead, as I gently swayed my hips, stimulating Sakagami Rena's Clitoris and its surrounding area, Sakagami Rena, unable to bear it, lifted her hips and began to insert my Cock.</p>
+<p>"Heu-eung, Master's Cock.... I can't bear it...!"</p>
+<p>As soon as my Cock entered, Sakagami Rena's Expression quickly crumbled. As if feeling the curves of my Cock, she slowly moved her hips up and down, then gradually began to increase her speed.</p>
+<p>"Haaht! Eung, Heueut! Master-nim, Haaht! It feels so good♥ Cock...! Haaht! Heueut...!"</p>
+<p>Her Body was light, and like a trained ninja, even in the Cowgirl sexual position, without showing much sign of fatigue, Sakagami Rena continued to sway her hips.</p>
+<p>I also felt quite good as Sakagami Rena moved, but since it was different from my usual rhythm of movement, it felt rather stimulating.</p>
+<p>Of course, I also didn't just lie there doing nothing; I touched Sakagami Rena's perfectly adequate breasts and stimulated her Nipples, making Sakagami Rena feel good.</p>
+<p>"Haaht, there, eu-heung...! If you touch there, Haaht, Rena will come quickly, Master-nim...♥"</p>
+<p>Every Time I touched her, she would Flinch, and her Hip Movements would slightly pause, which was amusing.</p>
+<p>"Heueut, Haa-eung! Master-nim...! Master-nim...! Heu-eung.... Together, together...! Haa-eut! I want to come...! Quickly, Haa-eung, please give me Master's baby seed...♥"</p>
+<p>Once again, perhaps feeling Climax approaching, Sakagami Rena was urging for my Semen.</p>
+<p>"I also feel like I'm about to come."</p>
+<p>"Haaht! Give it to me, quickly give it to me...! Master's Haaht hot Baby Juice...! Inside me, Haaht! Uh-eung...!"</p>
+<p>Sakagami Rena stopped her Hip Movements and completely collapsed onto my Cock. As she completely collapsed, my Cock, as if lifting her Cervix, went deep inside, and Sakagami Rena reached Climax.</p>
+<p>I also, as if being tightly squeezed by a hand, as Sakagami Rena's Intravaginal contracted, couldn't hold back my Ejaculation and immediately began to pour Semen into her Cervix.</p>
+<p>"Haa-aa-aang~! Master-nim...♥ Haaht! Inside my belly, Haaht! It's warm...!"</p>
+<p>Sakagami Rena, with her waist raised, trembling, feeling my Ejaculation, went through Climax multiple Times.</p>
+<p>After feeling Climax for a while, as if her strength was depleted, Sakagami Rena collapsed onto my Upper Body. I had Ejaculated once, but Sakagami Rena kept feeling Climax, and her Pussy contracted and twitched, stimulating my Cock embedded inside, so my Cock had no chance to go soft.</p>
+<p>I hugged Sakagami Rena, who was lying leaning on me, tightly and began to sway my hips.</p>
+<p>"Haaht.... Just a little, Haa-eung...! Rest, Master-nim...!"</p>
+<p>Sakagami Rena said, as if exhausted, but I showed no mercy.</p>
+<p>"Today, you said you'd go Home and sleep, didn't you? If it gets too late, it'll be a bit much, so let's do it quickly just one more Time, then I'll send you off."</p>
+<p>"Haaht.... I came, Master. Just a little more, Haa-eung...! Just a little, Master-nim!!"</p>
+<p>Sakagami Rena screamed loud enough to shake the Room, but there was no one to help her. Thus, Sakagami Rena, until she briefly lost consciousness, had no choice but to be relentlessly pounded.</p>
+<p>Today's B-cut!</p>
+<p>Actually, I made many Illustrations, but it's troublesome to put the seaweed, so I'm only uploading one B-cut haha.</p>
+<p>Requested by TheDreaming-nim: Kiyona Hori 1. A barely clothed Maid awkwardly smiling 2. A Maid serving with her breasts on a tray~!</p>
 <p>1.</p>
 <p>2.</p>
-<p>Since the Place was limited and the poses were what they were, the Illustrations all turned out similar, so I'm only uploading two each, hehe.</p>
+<p>"Not like that, please put your breasts completely on the tray~!"</p>
+<p>"Like this?"</p>
+<p>The last one is serving with food haha. Hori's model Figure is incredibly good. It seems worth researching haha.</p>
+<p>Requested by Gojoy-nim: The Illustration of Nagumo Sian inducing her to grab her buttocks or breasts was complex (the inducing part), so I just made it as the result, a tightly gripped Appearance~!</p>
+<p>Buttocks grab!</p>
+<p>Breast grab~!</p>

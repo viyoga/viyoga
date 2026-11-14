@@ -5,65 +5,80 @@ weight = 1092
 chapter = 1092
 +++
 
-<p>are illustrations</p>
-<p>We, who had learned of Taira Gensuke's Attack in advance, first made blocking the Attack a given, and thought about how we could turn this Situation most favorably to us.</p>
-<p>As we discussed, several opinions emerged. There was an opinion that we should launch a preemptive Attack first, and also an opinion to warn Gensuke in advance to prevent the Attack attempt itself.</p>
-<p>As a result of various opinions being exchanged, we reached the conclusion that the Taira Group needed to fall into Confusion.</p>
-<p>Currently, the Taira Group seemed to be in Confusion due to the struggle between successor groups, but that was not the case at all. Rather, with Taira Saburo's death, that Confusion had ceased. If things continued this way, Taira Ichiro, the one with the largest faction, would smoothly be confirmed as the Taira Group's Successor.</p>
-<p>Naturally, I and my people did not wish for such a boring future to come, and the other Successors would also agree with that.</p>
-<p>Therefore, we intended to use Taira Gensuke's current Attack to sow Confusion within the Taira Group.</p>
-<p>In fact, if I simply did nothing and only blocked the Attack, I had two paths. Assuming blocking the Attack was the default, there were two Choices: killing Taira Gensuke or letting him live.</p>
-<p>Killing Taira Gensuke would certainly result in becoming an Enemy of Taira Ichiro. No matter how cold-hearted Taira Ichiro was, since his own Son had been killed, there would be no Negotiation or anything at all.</p>
-<p>And the other Successors would also become wary of me. Even though he attacked me first, I killed Taira Gensuke, a Blood relative. They would think that I was someone who could kill them in the same way. Also, I would hear a scolding from Grandfather Danjo for killing my Cousin. Of course, Taira Kanna wouldn't be wary of me, but the Pabeol following Taira Kanna would be.</p>
-<p>If I let Taira Gensuke live, he would pay the Price to Grandfather for his rampage in Neo Tokyo. Then, the Relationship between Taira Gensuke and his Father, Taira Ichiro, wouldn't be hostile, but rather somewhat uncomfortable. And simply, Taira Ichiro would smoothly become the Successor a few years later.</p>
-<p>Neither was a conclusion that pleased me. If so, I decided to rather stir up Confusion in the Taira Group and completely change the Situation.</p>
-<p>Since Sakagami Rena had already Jamip and planted malicious Code on Taira Gensuke's side, we decided to use that to designate where Taira Gensuke would Attack.</p>
-<p>Of course, Taira Gensuke would make the Choice, but if we inserted the most attractive Choice among the options, I thought Taira Gensuke would naturally choose that.</p>
-<p>The Choice we secretly placed in Taira Gensuke's computer was an isolated Warehouse in Akita, where over a hundred tons of Mithril were stored.</p>
-<p>Naturally, Taira Gensuke would choose it, but that was our Trap. It was certainly an attractive Mithril Warehouse, but that Warehouse was not our Possession. That Warehouse was Taira Jiro's Warehouse, where Mithril was gathered before being transported to the Iron Smelting plant.</p>
-<p>It hadn't been long since Taira Jiro and I signed the Mithril supply Contract.</p>
-<p>Therefore, Taira Jiro's Warehouse at the Iron Smelting plant couldn't accommodate all the Mithril I supplied, and before building a new Iron Smelting plant Warehouse, a temporary Warehouse was built in Akita.</p>
-<p>Because Mithril was expensive, almost at the level of precious metals, Taira Jiro secretly built the Warehouse so that no one else could covet it. Of course, the Security Guards would be filled with skilled individuals, but I knew it wouldn't be enough to stop Enemies who came with determination.</p>
-<p>Over a hundred tons of Mithril held immense Value even for Taira Jiro, who was competing for the Taira Group's Succession. Naturally, he would investigate this matter, and soon it would be revealed that the Guy who caused this incident was Taira Gensuke.</p>
-<p>I couldn't know what kind of Reaction Taira Ichiro's side would show, but this incident would further widen the gap between Taira Ichiro and Taira Jiro.</p>
-<p>And the Succession competition, which had entered a temporary lull after Taira Saburo's After Death, would begin to intensify even further. Watching such an intensified Succession War, we would gradually gain advantages, build up our Power, or side with other Successors, thereby setting the Situation in our favor.</p>
-<p>And Taira Gensuke's Attack on our Mansion was also a very bad move. Although we had manipulated the Report a bit to state that the Address was Neo Tokyo but in such an isolated Place that it would be fine to Attack, Neo Tokyo was still Neo Tokyo. Being in Brazil, far from Japan, Taira Gensuke's misstep was not knowing how much the Taira Group valued Neo Tokyo.</p>
-<p>He would clearly receive a severe scolding from Grandfather Danjo and some Punishment. Because it was a foolish action that could ruin the Neo Tokyo Project, which the Group was focusing on.</p>
-<p>If I were Taira Gensuke, I would have gathered all my Troops and attacked the Mithril mine. Then it would have become very difficult.</p>
-<p>The Mithril mine has a Contract with East Weapon for Security Guard duties, but if something happened, since it was in Akita, which is not close, we couldn't quickly deploy our forces.</p>
-<p>Even if Taira Gensuke only grasped the mine's Security Guard Situation and committed Terror there, the Mithril mining operation would be delayed, and then we would have to pay compensation for not properly fulfilling the Mithril supply Contract.</p>
-<p>That was the greatest Harm Taira Gensuke could inflict on me with his Skill and influence. Well, since the deed was already done, it was now merely an Assumption that couldn't be realized.</p>
-<p>".... That's how it happened. As you both surely know, you mustn't tell this Story to anyone, alright?"</p>
-<p>"Ryuta, you're amazing...! You're like a Villain plotting a conspiracy!"</p>
-<p>"With this incident, Gensuke will be quite cornered. Well done. He needs to know that if he attacks our Ryuta, he'll get a good scolding."</p>
-<p>Arisu and my Aunt, who had heard my Explanation, spoke with relieved smiles. By the way, a Villain.... Although I approved it, it wasn't a conspiracy I plotted. For reference, this Operation was created by Tsukiyo and Asada Ei.</p>
-<p>"Aunt and Arisu, don't you have anything to say?"</p>
-<p>I subtly hinted, slowly trying to receive a Gift from Arisu and my Aunt. The two looked at each other, then took out a shopping bag with the Legion logo on it, which had been placed in a corner of the reception room, and handed it to me.</p>
-<p>"Ufufu...! It's a Gift, Ryuta"</p>
-<p>"Mom and I chose it together~!"</p>
-<p>What could the Gift they personally chose be? I checked the contents of the shopping bag with Expectation.</p>
-<p>A few hours ago.</p>
-<p>"Did I mishear because I'm not fully awake yet? Tell me again."</p>
-<p>Taira Jiro thought his Ears had deceived him at the Phone Call that came at Dawn. Over a hundred tons of Mithril completely stolen.... He must have definitely misheard.</p>
-<p>-The Warehouse in Akita.... It's been completely emptied. The Invaders killed the Security Guards and swept away all the Mithril.</p>
-<p>"Haa...!"</p>
-<p>Taira Jiro let out a Sigh as he performed a dry Wash Face. And immediately got out of bed.</p>
-<p>"First, I'll see you at the company. Call everyone. I'll hear exactly what happened and then decide on the next action."</p>
-<p>Taira Jiro nervously hung up the Phone Call, then shouted to call the Butler, and began to put on his suit.</p>
-<p>"W-What is the matter, sir?"</p>
-<p>"Prepare the Vehicle. I need to go to the company."</p>
-<p>"Understood...!"</p>
-<p>Taira Jiro, having ordered the Butler to prepare the Vehicle, began to fix his disheveled Hair from Sleep, looking into the Mirror with Eyes boiling with Anger. Rather, in the current Situation of being attacked, he couldn't show a disheveled Appearance. His Subordinates and Enemies would be watching him now, so he couldn't show any weakness-that was Taira Jiro's Thought.</p>
-<p>"The Mithril Factory was deliberately built in Akita. In that case, it's not Minamoto's side...."</p>
-<p>Although there were places where each faction was strong, in most regions of Japan, the Taira and Minamoto factions coexisted. However, there were also places where one faction completely dominated the entire region, such as Taira's Neo Tokyo or Minamoto's Nara Autonomous City.</p>
-<p>Akita was similar, with Taira's influence being overwhelming, due to Taira Foodstuff, which dominated Akita, and its Subordinate Enterprises. If Taira Foodstuff collapsed, Akita Prefecture and the Citizens and their families employed by Taira Foodstuff and its Subordinates would also be greatly shaken, so most Akita People sympathized with Taira.</p>
-<p>Taira Jiro, who was well aware of this Situation, to avoid being attacked by Minamoto, and trusting Nagumo Sian of Taira Foodstuff, who hadn't lent her Power to any other Successor faction, secretly built a Mithril Warehouse in Akita.</p>
-<p>The fact that the Mithril Warehouse was raided in such a Situation meant it wasn't Minamoto, and if it wasn't Minamoto, then the only ones left were Taira Ichiro, Taira Kokoro, and Taira Kanna, who were competing with him for Succession.</p>
-<p>Even if it wasn't the three Succession competitors themselves, someone beneath them, showing excessive Loyalty, must have done something.</p>
-<p>Of course, the faces of Nagumo Sian of Taira Foodstuff, who knew Akita's geography well, or that Guy Taira Ryuta of Hatake Mining, briefly came to mind, but it wasn't those two.</p>
-<p>Nagumo Sian was a neutral Person who didn't yet support any Successor, and that Guy Taira Ryuta was smart enough to know that if he committed such an act, Taira Jiro would use it as an excuse to swallow up the Mithril mine.</p>
-<p>"Eudeuk...! I don't know who it is yet, but. I will definitely make them pay the Price for stealing my Mithril."</p>
-<p>Taira Jiro muttered, grinding his Teeth. As he had spoken, he would make them pay dearly for daring to provoke him.</p>
-<p>Since there are no Illustrations, I'm uploading some 2.5D art style Characters I made before hehe. I trained an old model art style to create a LORA hehe.</p>
-<p>My Aunt</p>
-<p>Yukiko, who disguised herself as Rena Sabu.... I suddenly can't remember her name hehe.</p>
+<p>"Maya...?"</p>
+<p>I called Maya Reed, who was entering my room in a see-through babydoll attire, with a slightly puzzled expression.</p>
+<p>By now, having had quite a few similar experiences to the current situation, I knew well what it meant for Maya Reed to enter my room in that attire. She wanted to do it with me, I supposed. She had been in a bad mood just a moment ago, so why had her mind changed?</p>
+<p>I stopped packing my luggage, stood up from my seat, and stood before Maya Reed. A woman, having made an important decision, had entered the room, and I couldn't just keep packing my luggage and greet her half-heartedly.</p>
+<p>"Actually, at first, I didn't have any particular thoughts about you being the Black Knight."</p>
+<p>I lent my ear to Maya Reed's story, which sounded like a calm confession.</p>
+<p>"But with today's story at Mother Mars, I realized anew that you were there. Until now, just thinking about that incident was too difficult, so I forced myself not to think about it."</p>
+<p>Having lost her entire family in that incident caused by Famine, it was understandable. Everyone has various ways of dealing with trauma, but Maya Reed seemed to have acted by not thinking about it at all.</p>
+<p>"At first, I resented you. I thought, 'You saved Vivian Taylor, but why didn't you save my family?' Just as I did to you, I also resented God. Why my family of all people...? Every night, I resented God, and resented Him. But there was no answer."</p>
+<p>When I heard from Vivian Taylor that she was a survivor of the disaster caused by Famine, I worried if Maya Reed might think the same way as now. I had that worry, and just as I worried, she seemed to have resented me.</p>
+<p>Of course, with a gray aura like smoke, performing a massive area attack, it was a situation where Famine could not be stopped. Compared to that time, it's the same even now, having grown considerably.</p>
+<p>"But seeing Vivian Taylor's gratitude towards you, no, the Black Knight, I realized anew. The Black Knight, although not me, saved many people. Many people who would feel the same pain as me were reduced... That's what I thought."</p>
+<p>Maya Reed paused her story for a moment and looked at me. In Maya Reed's gaze, there was a strange heat. Actually, at that time, Famine was rampaging, and I thought I had to stop it, so I participated in the battle, but it wasn't for some grand purpose.</p>
+<p>"I didn't save the people there with some noble thought, as you think."</p>
+<p>Speaking of me like some saint, at Maya Reed's words, I felt unnecessarily embarrassed and said it wasn't like that, but Maya Reed didn't seem to be listening to me.</p>
+<p>"It's the same for me. To eliminate Famine, I entered Superior, but Famine was too strong, and I had to keep doing bad things I didn't want to. Every day, my soul sickened within Superior. Your act of pulling me out from such a Superior was like saving me."</p>
+<p>Actually, the one who forcibly pulled Maya Reed out was Kurayamada Kirie, who was her opponent in the New Rochelle Incident. Is Kurayamada Kirie my subordinate, so it's counted as something I did?</p>
+<p>Maya Reed, with slightly hazy eyes, stroked my cheek and opened her mouth.</p>
+<p>"I, who was saved, will speak on behalf of all the saved families. Boss, you are a hero. Thank you."</p>
+<p>Jjok.</p>
+<p>Calling me a hero and then directly smashing her lips against mine, that was Maya Reed. Somehow, because of her gaze, it felt a bit unsettling, like a fanatic kissing a cult leader, but since I was a man who didn't stop a woman who came to me, I accepted the kiss.</p>
+<p>Being a sexually open American, I thought she would be experienced, but Maya Reed's kiss felt awkward, like a woman without experience.</p>
+<p>But since I had been with countless inexperienced women, I skillfully began to lead, teasing Maya Reed's mouth with my tongue.</p>
+<p>"Heum...! Tteubeup, Chup, Chuup...! Haaheum...♥"</p>
+<p>Lacking skill in kissing, as if suffocating, Maya Reed intermittently exhaled hot breaths and swallowed. As our lips parted, as if her legs lost strength, she plopped and fell onto the bed.</p>
+<p>"Uh.... Since it's my first time, gently.... please do it."</p>
+<p>Maya Reed, with a full blush blooming on her face, looked at me and said. I thought her kiss was awkward, was it really her first time?</p>
+<p>"Being a beautiful woman, I thought other men wouldn't have let you go...?"</p>
+<p>"Of course, there were quite a few men who followed me, but.... Due to religious reasons, I was keeping my premarital purity. But my family died, and realizing there was no God, I abandoned my faith. Although I abandoned my faith, because of that, I'm fortunate that Boss took my first time."</p>
+<p>To my question, Maya Reed said she was originally a proponent of premarital purity. To say she's fortunate I took her first time, what a commendable thing to say.</p>
+<p>While taking off my clothes, I laid my body over Maya Reed, who was lying on the bed. And I fully caressed Maya Reed's breasts over the babydoll.</p>
+<p>Beneath the thin lace touch, the soft, squishy breasts of Maya Reed were felt. Breasts always feel good to touch, but Maya Reed's breasts had a particularly good touch.</p>
+<p>"Haa...."</p>
+<p>Perhaps because she was a sound Ability User, Maya Reed's small moans felt like whispers in my ear. Before that, I had memories of being overwhelmed during sex by Seizawa Shii or some others, so I worried if my eardrums might burst while doing it, but I thought it would be fine, and slowly, I stripped off Maya Reed's babydoll.</p>
+<p>Maya Reed's soft yet vibrant breasts were revealed, and her spotless, soft, and lustrous skin also was fully exposed.</p>
+<p>"Beautiful."</p>
+<p>To the anxious Maya Reed, who was showing her naked body to a man for the first time, I told her she was beautiful and slowly stroked her forearm. As I touched Maya Reed's soft and moderately squishy forearm, I moved my hand towards her breasts, which had erect nipples standing towards the sky, as if asking to be touched.</p>
+<p>"Aheueung...! Breasts, Heueung...♥ When you touch them, Heueut! I feel strange!"</p>
+<p>For the first time in her life (she probably masturbated, so it might not truly be the first time in her life), at the pleasure she felt, Maya Reed lost her mind. Not just her nipples, but even just touching her breasts had such good sensitivity, it was a pleasure to touch.</p>
+<p>"Heueung...! Boss's hand, Haaheung♥ It's hot...!"</p>
+<p>My semen is quite hot, but my other body temperature is normal.... Perhaps because I'm touching her, her heat rises, and that's how it feels. Despite Maya Reed saying it was hot, I paid no mind and continued to touch her breasts.</p>
+<p>"Haaht~! Eungheueut...! Boss, Haaht! Boss...!"</p>
+<p>The more I kept touching, her breath gradually quickened, and her moans grew louder. At the threshold of Maya Reed's climax, I pinched Maya Reed's nipples as if twisting them.</p>
+<p>"Hieueueut!!! It's strange, it's strange♥ Bossueut!!!"</p>
+<p>Almost simultaneously with that, Maya Reed reached her climax. Twisting her entire body, the light in her eyes blurred. She was a virgin, yet she came just from her breasts; she had considerable talent.</p>
+<p>"Haa...! Haa...! I want to do something for Boss too, what should I do?"</p>
+<p>For a while, enjoying the afterglow of orgasm, Maya Reed, with an active posture, asked me. Usually, for a virgin, fellatio isn't usually requested during her first experience. Of course, cock cleaning is usually requested after sex.</p>
+<p>Since she asked so actively, it seemed I could proceed a bit further. Indeed, having an inquisitive mind was an attitude befitting a law school student.</p>
+<p>"Then, suck it down there."</p>
+<p>I slightly spread my legs, lay down, and said. "Down there?" Maya Reed asked back and came between my legs.</p>
+<p>With quick awareness that "down there" meant my cock, Maya Reed grabbed my cock.</p>
+<p>"So, so hard and.... hot, Boss."</p>
+<p>Holding my pulsating large penis, Maya Reed's appearance, looking up with surprise, was different from her usual intellectual demeanor, making me feel a strong sense of gap moe.</p>
+<p>Maya Reed, as if touching a strange animal, touched my cock for a while, then, as if remembering I asked her to suck it, she lightly licked the tip of my cock.</p>
+<p>"Um.... Is this semen?"</p>
+<p>"No, this is pre-cum, a lubricating fluid that comes out when a man is aroused."</p>
+<p>"Then.... You're aroused because of me, Boss. Uhuhuhu...♥"</p>
+<p>When I said I was aroused, Maya Reed was somehow very proud. If my cock was erected this much, it was natural to be aroused. To Maya Reed, who doesn't even know such basic common sense, today I need to give her some intense sex education.</p>
+<p>"Then... I'll try it...!"</p>
+<p>Maya Reed looked at my cock for a moment, as if measuring its size, then, around "I'll try it," she swallowed my cock with her mouth and, with it in her mouth, mumbled.</p>
+<p>"Don't let your teeth touch... Yes, like that, if you use your tongue too, it feels good."</p>
+<p>As if asking if she was doing well, her appearance sucking my cock while looking up at me was very arousing, but I calmly taught Maya Reed fellatio. Maya Reed, according to my teaching, gradually began to suck my cock more skillfully.</p>
+<p>Indeed, just as I first felt, she was a friend with potential.</p>
+<p>"...."</p>
+<p>Maya Reed, for a moment, as if thinking something, then swallowed almost two-thirds of my cock and began to deep throat. I didn't even teach her, yet she applied it herself; it was amazing.</p>
+<p>"Ma, Maya?! Kreueut...! It feels good...."</p>
+<p>Perhaps because she was a voice Ability User, freely constricting and releasing my cock with her throat pussy felt the best among all the deep throats I'd experienced so far. My waist trembled involuntarily.</p>
+<p>Of course, as Maya Reed was also a beginner, my cock poked her throat, and tears welled up in her eyes, but still, without gagging, she was properly sucking my cock deeply.</p>
+<p>Maya Reed B-cut~!</p>
+<p>Ggyuus</p>
+<p>Christmas Cover Special~!</p>
+<p>Requested by Geomeunkkaemuk-nim: Han Yu-gyeong in an off-shoulder dress in a Christmas-themed room~!</p>
+<p>This year's Christmas cover winner is here~! I deliberated between #1 and #2 and decided on #2 hehe.</p>
+<p>Requested by TheDreaming-nim: Athena on a snowy park bench~!</p>
+<p>Although I also liked the Athena requested by TheDreaming-nim, the cover is important for attracting readers, so I chose Yu-gyeong, who has a bit more volume hehehe.</p>
+<p>Requested by Hwanbuljeoldaebulga-nim: Santa girl Lisa, the home economics teacher~!</p>
+<p>Unless it's made exceptionally well, it seems older models will be difficult to make into covers~! ㅠㅠ</p>

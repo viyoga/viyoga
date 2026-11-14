@@ -5,57 +5,65 @@ weight = 472
 chapter = 472
 +++
 
-<p>The scene became even more hectic after the battle. Diana Richie, who had been looking at the crater, picked up her phone and disappeared, saying she had to report to her superiors, while Manuel Murdock and the combat operatives were checking equipment and injuries of the personnel. Thanks to the enchantment with protective magic, their eyeballs didn't explode, but the blood vessels in their eyes had all burst, leaving dried traces of bloody tears, making them look somewhat eerie.</p>
-<p>Although one person was caught and killed by the Thousand Mouths, it was a successful operation because we were able to catch the serial killer. If I hadn't been there, they probably would have been annihilated...</p>
-<p>Come to think of it, something was a little strange. If I hadn't been there, this Thousand Mouths would have annihilated them and made a bigger name for itself, eventually showing up at the MegaCorp's youngest son or TMC, but I don't remember seeing the Thousand Mouths in the game.</p>
-<p>If it had continued to grow, it would have become as much of a headache for the United States as the famine. Could it be that reality is changing because of my actions? Or maybe if I hadn't come to the United States, they might have borrowed the power of another psychic to defeat the Thousand Mouths.</p>
-<p>I stopped thinking about this Thousand Mouths subjugation. Now that the job was done, there was no point in worrying about it. It was inevitable that the future would change because of my existence, so there was no need to worry about it. I was worried that it would change so much that the information I knew would be of no help at all, but it would still be useful to some extent.</p>
-<p>,Collect every single piece of flesh!</p>
-<p>As the barrier was lifted, several people who looked like researchers were collecting the remains (?) of the Thousand Mouths with their assistants. The remaining flesh and blood didn't have that strange energy, so it would be okay for the researchers to take it. There were pieces of flesh that looked like maggots or leeches, but the authority had disappeared, so they were just shaped like leeches or maggots, and when you looked closely, they were just ordinary human flesh.</p>
-<p>From the perspective of the Federal Psychic Management Department, it wasn't a perfect operation because they couldn't get the Thousand Mouths' corpse, but from my perspective, I sent the body imbued with the power of the Outer God to Simyeonui ttal, so I thought I would receive a large reward later, making it an operation that gave me considerable profit along with the reward I would receive from the Federal Psychic Management Department.</p>
-<p>,The reward is in this card. As we discussed before, you failed to capture it alive, so it's four million dollars. All the taxes and stuff are taken care of, so you can use it as much as you want.</p>
-<p>Diana Richie finished reporting to her superior on the phone and came to me, handing me a black card. 5.3 billion won for one battle... Not bad. I took the card that Diana Richie handed me.</p>
-<p>,Is there anything else to do?</p>
-<p>,Yes. All the CCTVs and filming equipment are damaged, so no one but us knows about the battle situation, so all the combat operatives have to testify, but Ryuta-ssi isn't one of our operatives, so you can just leave.</p>
-<p>I felt like she was trying to make things easier for me because I had been helping her since the famine. Since they had all seen me fighting anyway, there was no need for me to talk. I said goodbye to Diana Richie and the female driver and Manuel Murdock, whom I knew at least a little.</p>
-<p>The two of them, except for Diana Richie, looked at me strangely for some reason, but I thought they were surprised by my skills and left the scene. Before going out into the street, I went to an alley where there were no people, deactivated my armor, and walked away.</p>
-<p>The problem was that the clothes I was wearing inside the armor were a swimsuit. The problem was that I had only grabbed my bracelet in a hurry because I was wearing a swimsuit. It wasn't just a normal swimsuit, but a flashy swimsuit with a tiger drawn on it that Arisu had given me as a gift, so I ran as fast as I could. I heard one or two women on the street scream in surprise, but I pretended not to hear them and ran to the photo studio.</p>
+<p>After a few hours of rough sex, I took Kurayamada Kirie, who was wearing a dazed expression, back to the education preparation room. A proper special class report card had arrived via fax, showing not just the ranking chart, but also the students' scores for each subject, their average ranking, and their overall ranking. Also, on my desk, there were individual report cards with each student's name on them, as if someone had brought them while Kurayamada Kirie and I were away.</p>
+<p>I set aside the individual student report cards to hand out during the closing assembly and sat down to read the special class report card.</p>
+<p>First, I looked at Alik's scores, as I had been watching her with the most interest. She had been working hard, but if she didn't pass the minimum score of 40, she would have to take an additional exam, and if she still didn't meet the score, she would have to take additional classes.</p>
+<p>Even though it was an online lecture rather than an actual class, the programs these days are designed so you can't just upload a video and relax. This would drastically reduce Alik's swordsmanship training time, which is her main focus.</p>
+<p>From my perspective, Alik's academic ability didn't matter much since she was coming under my wing. To put it coldly, I needed Alik as Alexandra, the overwhelming mid-boss in the game, not as a smart high school girl. For now, it was better for her to focus on swordsmanship and ability training until her abilities fully blossomed.</p>
+<p>Let's see.... Alik was at the very bottom. Both in terms of ranking and attendance number since she transferred, she was at the bottom.</p>
+<p>Oh...! Most of her scores exceeded the failing mark of 40! Even her second foreign language, Korean, was 85, and English was 75. Seeing how well she did in foreign languages, she seemed to have a natural talent for languages. I don't know why she keeps calling me Ryuta, though. Unfortunately, she failed math with a score of 30, so she had to take an additional exam.</p>
+<p>Still, that's amazing, isn't it? Except for Korean, which she already knew, it was practically a no-base start. Even if the scores are low, exceeding the failing mark is a great achievement. Math couldn't be helped, though. But if it's just one subject, it shouldn't take up too much of her time. If necessary, I could ask Eve to hack the school server and change it to say she attended the online class.</p>
+<p>Wait...! If the subject is math.... There might be another way. I might be able to get through this easily? Of course, that was assuming it would succeed.</p>
+<p>Still, as a teacher, I needed to know if the other lower-ranked students had failing scores, so I checked the scores of Uenozono Karen, who was second to last, and Kujo Kina, who was third to last. I might be a bit more biased towards Alik out of the three, but I still had to check on the others since they were my students.</p>
+<p>Uenozono Karen's grades weren't good, as she often skipped school. Similar to Alik, her scores were low except for English and Korean, but she didn't fail any subjects. English and Korean were necessary for her entertainment activities, so her agency must have made her study, as her scores were quite high.</p>
+<p>Kujo Kina was third to last, but her scores were quite high. An average of 60 points...? I wondered if that was high, but it was a whopping 15 points higher than her last exam.</p>
+<p>If she had improved by 15 points, I would have thought, "Maybe I...?" but even with an average of 60 points, it was nowhere near enough to be in the top 6. Still, she must have had some expectations, which is why she caused a ruckus in front of the bulletin board where the report cards were posted earlier.</p>
+<p>After confirming that there were no other students besides Alik who needed to take additional exams, I looked at the report card again to see which students had improved the most since the last semester, besides the top 6. It seemed like most of them had improved because they worked hard. Of course, I couldn't give gifts to everyone.... I would have to give gifts only to those who had improved by an average of 10 points or more.</p>
+<p>"Kurayamada-sensei, snap out of it and get ready for the closing assembly."</p>
+<p>Kurayamada Kirie had been quite assertive during sex today, so when I turned off the Holy Pillar Effect, she was completely drained and dazed from the continuous orgasms.</p>
+<p>Still, she seemed aware that she was in front of the students, so she slapped her cheeks herself to snap out of it. I took Kurayamada Kirie, who had gotten up, and headed to the special class classroom.</p>
 <p>###</p>
-<p>Urabe Konoka, who was worshiping Shinkai Hime at a shrine before weekend lunch, felt a sudden change. The spiritual connection with Shinkai Hime, Simyeonui ttal, was becoming stronger.</p>
-<p>,It's getting stronger...!</p>
-<p>Because Urabe Konoka and Simyeonui ttal were connected, Urabe Konoka could easily feel Simyeonui ttal becoming stronger. Since the spiritual connection had become even stronger, Simyeonui ttal felt closer than ever.</p>
-<p>Emotions such as affection and gratitude for Taira Ryuta were pouring into Urabe Konoka like a flood from the spiritual connection with Simyeonui ttal. Judging from the emotions flowing in, it seemed that the reason why Simyeonui ttal had become stronger was thanks to Taira Ryuta.</p>
-<p>,I don't know if these feelings are Shinkai Hime-nim's or mine anymore....</p>
-<p>The emotions flowing in from Simyeonui ttal were so strong that her feelings for Taira Ryuta, who was just a guest at the inn and her homeroom teacher, were gradually changing positively without her knowing it. He was a very handsome homeroom teacher, but that alone wouldn't be enough to have the feelings she was feeling now.</p>
-<p>As Simyeonui ttal became stronger and the connection with Simyeonui ttal became stronger, the energy of Simyeonui naturally flowed into Urabe Konoka as well, strengthening Urabe Konoka's physical and mental abilities.</p>
-<p>It was a very powerful energy that would drive ordinary people crazy or deform their bodies, but for Urabe Konoka, the priestess of Simyeonui ttal, it was just a sacred energy without such side effects.</p>
-<p>When she was first chosen by Shinkai Hime to become a priestess, something similar happened, but after that, she never became stronger because of Simyeonui ttal, so becoming this strong made her feel omnipotent, like she could do anything.</p>
-<p>-My priestess.</p>
-<p>While Urabe Konoka was feeling omnipotent, she suddenly heard the voice of Simyeonui ttal in one side of her head.</p>
-<p>,Shinkai Hime-nim...!</p>
-<p>It was rare for Simyeonui ttal to speak directly. Among the gods worshiped by the Urabe family, the gods who had lost their divinity and were only worshiped traditionally, except for the gods who had divine power left and could show their authority, were very interested in the present world, but Simyeonui ttal was not very interested in the present world.</p>
-<p>She only borrowed Urabe Konoka's eyes to briefly see Taira Ryuta and felt the senses with Urabe Konoka when eating dessert. It was rare for her to speak like this.</p>
-<p>-Deliver this gift to my partner, Ryuta.</p>
-<p>Uuung...!</p>
-<p>With Simyeonui ttal's words, the space in front of Urabe Konoka distorted and something popped out and fell at Urabe Konoka's feet.</p>
-<p>,This is....</p>
-<p>Urabe Konoka picked up the object bestowed by Simyeonui ttal.</p>
-<p>###</p>
-<p>After the battle with the Thousand Mouths, I spent time with Arisu again. At night, I was invited to a Hollywood party hosted by Dion Hoffman, where I took pictures and drank with various celebrities, and spent a night of madness with three models and actors brought by Arisu and Arisu herself.</p>
-<p>Arisu had become close with Mimata Chieri, so she had become generous in this area, or perhaps it was because she was the daughter of Nae Fitzgerald, who encouraged her to meet other women, so last night she left, saying she would bring some nice women.</p>
-<p>And after a while, she brought a fairly famous actress and two unknown but beautiful models and enjoyed the night together. Of course, combined with my huge dick that was no less than a Westerner's, plus the experience and characteristics of having embraced countless women, the women went back and forth between reality and heaven several times during the night.</p>
-<p>The women who had spent a night of madness with me were quite clingy to me from the morning because of my sex skills and characteristics, but Arisu, in her position as a girlfriend, fought off the women who had spent the night and went on a date in downtown Los Angeles with me alone.</p>
-<p>What was a little strange was that she allowed sex but not dating. Usually, she wouldn't allow both, but if she had to allow one, wouldn't sex and dating be the opposite? But I thought Arisu, who allowed even one, was a bodhisattva and just enjoyed her body gratefully.</p>
-<p>Anyway, while dating Arisu, I spent time buying the wish lists that the students had sent me on Line. Since there were 13 students, the list of gifts to buy was quite long. Arisu tilted her head as she looked at the list.</p>
-<p>,Do you have to buy all of this?</p>
-<p>,The kids are pissed because I left during the exam period.</p>
-<p>Arisu was a little puzzled at first, but she seemed to reluctantly accept it when I said that I had left during the exam period to see her. Still, if I bought gifts for other women and didn't have anything for Arisu, she would be upset, so I chose the students' gifts together and secretly bought Arisu's necklace and gave it to her as a gift, and she was very happy.</p>
-<p>The necklace of smoke I gave Arisu a few months ago was a one-time item, so I gave her a necklace that she could continue to use as an accessory as a gift. It was a necklace with only decorative effects and no separate options, but it had several sparkling diamonds attached to it, so it was quite expensive. But it wasn't much compared to the money I made this weekend, so I could splurge.</p>
-<p>Giving her the necklace seemed to have pressed Arisu's arousal button again, and Arisu dragged me to a hotel in downtown Los Angeles with rough breaths and violated me. We had sex until the plane time was almost up and went to the airport.</p>
-<p>,Do the rest of the filming well.</p>
-<p>,Yeah, I'll finish quickly and go to Japan.</p>
-<p>I stroked Arisu's cheeks, who was slightly teary-eyed as if she was sad to say goodbye, and promised our next meeting. She said that there was about a month left of filming, so I would probably meet Arisu in Japan next time.</p>
-<p>I left Arisu behind and boarded the plane to Japan. Tomorrow was the exam period at St. Francis Girls' Academy.</p>
-<p>------</p>
-<p>Urabe Konoka</p>
-<p>Urabe Konoka can also use tentacles~! As the priestess of Simyeonui ttal, she has top-tier combat power among the students of St. Francis Girls' Academy.</p>
+<p>Saionji Diana was not in a good mood. It was because she didn't make it into the top 6 that her homeroom teacher, benefactor, and Yamashiro Ryuta-sensei, whom she had decided to serve for the rest of her life, was giving gifts to. Moreover, Saionji Diana's ranking was 7th, right after 6th place, so she was even more upset.</p>
+<p>'I should have tried a little harder...!'</p>
+<p>She was very disappointed in herself because it was only a difference of one rank. If she had just taken one more step...! She regretted that she might have been in the top 6 if she had studied even for thirty minutes more each day.</p>
+<p>Deureureuk!</p>
+<p>"Good work today!"</p>
+<p>"Ryuta-cchi~! Come quickly!"</p>
+<p>"Sensei, you worked hard too~!"</p>
+<p>While Saionji Diana was regretting, the classroom door opened and homeroom teacher Yamashiro Ryuta and vice homeroom teacher Kurayamada Kirie entered. When Yamashiro Ryuta greeted them, most of the students welcomed him. The students who were disappointed with their own grades and were feeling down, like Saionji Diana, were quiet, but no one seemed to care much.</p>
+<p>Yamashiro Ryuta, who was standing at the teacher's desk, began to take something out of a file. It was an envelope with a name written on it. It seemed to be the midterm exam report card.</p>
+<p>"This is your report card. The rankings have been released, but it shows what scores you received in which subjects, so analyze it well and work harder on your weak subjects and make the most of your strengths in the next exam, and your grades will be much better than this time."</p>
+<p>Yamashiro Ryuta handed out the report cards to the students and then returned to the teacher's desk. The fact that paper report cards were distributed to the students meant that electronic report cards had already been sent to their parents via email or LINE.</p>
+<p>However, because all the special class students' grades had improved, everyone except Minamoto Risa, who was behind Taira Kanna in grades, didn't seem to fear their parents' nagging.</p>
+<p>"Everyone is looking forward to the gifts for the top 6 and the students who have improved their grades a lot, right?"</p>
+<p>At Yamashiro Ryuta's words, the remaining students below 6th place, except for Alik, who had no previous exam records, looked at the teacher's desk with anticipation.</p>
+<p>Saionji Diana also raised her head from where she was lying on her desk. That's right, he definitely said he would give gifts to students who improved their grades a lot...! Then she had a chance too.</p>
+<p>"Everyone's grades have improved, so it was ambiguous to set a standard, but I decided to give gifts to students who improved by an average of 10 points or more."</p>
+<p>An average of 10 points? What was my last exam score? The students below 6th place, including Saionji Diana, were struggling to remember their previous scores.</p>
+<p>"I've already calculated the scores in advance, so you don't have to rack your brains and worry about how many points you've improved."</p>
+<p>Yamashiro Ryuta's imitation of the students, covering their heads and asking how many points they had improved, made some of the students laugh, but Saionji Diana was watching Yamashiro Ryuta's mouth, hoping that her name would be called.</p>
+<p>"First, Sakagami, who improved exactly 10 points, good job."</p>
+<p>Sakagami Rena, who was standing behind Saionji Diana, got up from her seat and bowed her head. Seeing this, the other students applauded.</p>
+<p>"Next is Kujo Kina, who improved by 15 points. It's not enough to be in the top 6, but still, good job."</p>
+<p>"As expected! Effort doesn't betray you! Just like my muscles...!"</p>
+<p>"Don't say weird things and sit down."</p>
+<p>"Yes~!"</p>
+<p>Kujo Kina, who had been excited and making a fuss, sat down in her seat with a strange answer at Yamashiro Ryuta's words, and the students who saw this all laughed. But Saionji Diana didn't laugh. Surely it wasn't over here? She was only waiting for Yamashiro Ryuta's mouth to open again.</p>
+<p>"Lastly, Saionji Diana, who improved her average score by a whopping 26 points. Good job."</p>
+<p>"Ah...!"</p>
+<p>Saionji Diana opened her mouth slightly. The special class classroom became slightly noisy at the mention that she had improved her score by 26 points. Saionji Diana had clearly been in a hospital bed for less than a year due to an accident. She had certainly taken the first semester final exam after returning to school, but she didn't remember how she took the exam very well. Her memories were fragmented.</p>
+<p>It was a terrible accident that almost cost her Palari, so she had a big impact on her head. Saionji Diana couldn't remember her grades properly because her memories were hazy until she received additional treatment during this summer vacation.</p>
+<p>To have improved by 26 points.... Even if it was because of the injury, the shock of losing her parents, and being in the hospital for nearly a year, her previous grades must have been very low.</p>
+<p>"A total of 9 people will receive gifts. If I give them to one person a day, it will take a week. What should I do? One person a day? Or two people?"</p>
+<p>The 9 students began to oppose the idea of two people a day. It seemed like they were all thinking, "How can I not receive a full day when I've earned this spot through hard study?"</p>
+<p>"It has to be one person~!"</p>
+<p>"It's a date, so it has to be one person a day, Ryuta-cchi!"</p>
+<p>"Uh-huh! I told you it's not a date~! We're just going together to buy a gift."</p>
+<p>It wasn't that I didn't understand Yamashiro Ryuta's position of absolutely denying that it was a date, but the female students' thoughts would be different.</p>
+<p>"Then, let's start from today. I have a teacher's meeting today because the grades came out, so I'll assume that we'll meet after that's over and I've prepared. Decide the order among yourselves and send me a personal LINE message with what time and where to meet. Closing assembly is over."</p>
+<p>Yamashiro Ryuta, who seemed busy with the meeting, organized his files and went outside. As the classroom door closed with a deureureuk, the class president, Minamoto Risa, stood at the teacher's desk.</p>
+<p>"Okay, let's decide the order now."</p>
+<p>Minamoto Risa opened her mouth.</p>
+<p>----</p>
+<p>Long time no see, Saionji Diana!</p>
+<p>She has a surprisingly good figure, hehe.</p>

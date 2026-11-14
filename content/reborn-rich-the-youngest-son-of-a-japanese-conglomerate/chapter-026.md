@@ -5,83 +5,69 @@ weight = 26
 chapter = 26
 +++
 
-<p>Getting off the bus that stopped at the Dong Seoul Terminal, I checked my status window and saw that my Willpower increased by 4 and Concentration by 1. Maybe it was because my stats went up, or maybe it was because I slept, but the shock of committing murder had subsided to some extent.</p>
-<p>Right, the guy had a gun. I had no choice in order to live. I repeated the words 'I had no choice' in my mind and walked around the terminal to find a motel first.</p>
-<p>There were many motels around the terminal, and then I heard a woman scream, 'Kyaa!' from an alley. What's going on? I peeked into the alley and saw two men threatening a woman with a knife. It wasn't that uncommon in Seoul in this world. Should I just pass by...?</p>
-<p>"!"</p>
-<p>I was about to pass by, but as the angle changed, I saw the woman's face. It was Han Yu-gyeong, the protagonist of MegaCorp's youngest son.</p>
-<p>Why are you there? You should still be in Incheon, the starting point...? I don't know why she came all the way here, but as a veteran player of this game, I couldn't let Han Yu-gyeong get hurt in a place like this. I slowly approached and struck the back of one of the thugs' necks with a hand blade. In movies and anime, they usually faint when you hit them there.</p>
-<p>However, whether it was because I hit him gently so he wouldn't die, the thug turned around, saying, "Ah, *ssibal*, what the hell?"</p>
-<p>"There's been more than one or two bastards who died trying to imitate a hero of justice."</p>
-<p>"Just because you're buff doesn't mean a knife won't go in, huh?"</p>
-<p>The two thugs threatened me with knives about a hand-span long. In situations like this, it's best to strike first! Surprisingly, the thugs had the same idea as me and rushed at me at the same time. I pushed away the knife of one of them, who was dangerously aiming for a vital spot, and grabbed his wrist and twisted it. It wasn't a technical twist like a martial arts master disarming a knife, but a twist of the wrist itself with tremendous physical ability. The thug grabbed his wobbling wrist and screamed.</p>
-<p>"Kuaaak!"</p>
-<p>The other one swung his knife at me, and I deliberately let him cut me slightly. Han Yu-gyeong saw the blood splatter and let out a small 'Kyaa!' The moment the thug raised his hand to cut again, I ducked my head and turned to the side, hitting his side. *Eudeuk!* I felt the feeling of ribs breaking with the sound. Again, turning in the opposite direction, another hit to the side!</p>
-<p>"Keoeok!"</p>
-<p>"If you repeat this, it becomes a Dempsey Roll."</p>
-<p>The thug who was holding his broken wrist abandoned his companion who was holding his side and ran away. What a disloyal bastard. I approached Han Yu-gyeong, who was trembling as if surprised, and reached out my hand, asking.</p>
-<p>"Are you alright?"</p>
-<p>Han Yu-gyeong, who took my hand and got up, opened her mouth with an expression as if she was more worried about me.</p>
-<p>"Ah.... Yes. Isn't your arm more dangerous than me?"</p>
-<p>I glanced at my arm. My left arm was torn, and the white shirt I had stolen from the security guard was stained red.</p>
-<p>"This much is nothing."</p>
-<p>"What do you mean nothing? You're bleeding so much!"</p>
-<p>Actually, the blood only came out when I was cut, soaking the shirt, but it had already been healed for a long time due to the regeneration effect. But from the looks of it, the shirt was stained with blood, so it would look like I was seriously injured. In fact, if it weren't for the damage reduction effect and regeneration of the Yeouiju, it could have been a serious injury. But I believed in the two abilities and deliberately got injured.</p>
-<p>"I'll go buy some medicine at the convenience store first! Please wait a moment."</p>
-<p>In fact, I deliberately let the knife graze me in order to put Han Yu-gyeong, the protagonist of this world, in debt. And I also felt a little sorry for Han Yu-gyeong.</p>
-<p>MegaCorp's Youngest Son is a globally huge hit game, a sequel to the previous work [The Mega Corporation (referred to as TMC)], depicting the past of TMC, that is, the era when MegaCorp was just emerging, just before the advent of cyberpunk. The protagonist is the youngest son of Shinkang Group, a top 10 conglomerate in Korea, and the game is about increasing the value of the company by achieving various achievements and solidifying his position in the company to become the Chairman.</p>
-<p>Contrary to the name MegaCorp's Youngest Son, the protagonist's gender can be freely chosen, but gamers said that starting as a woman is the beginning of Nightmare Mode.</p>
-<p>Han Mun-gang, the founder of Shinkang Group, is a person with an old-fashioned mindset that does not fit the current era, and he only thought of the daughters of the family as objects of arranged marriage. So, if you start as a woman, it is very difficult to raise Han Mun-gang's favorability, which is an important point, and the support from the family in the early stages was also very small.</p>
-<p>In addition, when starting as a woman, physical stats are lower than men, so they struggled even against early monsters, and if they were caught by thugs like now, Han Mun-gang's favorability would decrease along with the status ailment called trauma.</p>
-<p>Lastly, even if you clear the same quest, the rewards were less than for men. Even if you clear a very difficult quest, you only get the reward for clearing an intermediate quest based on men, so all the gamers said in unison that the woman button in the gender selection was the Nightmare difficulty button.</p>
-<p>So, usually, when playing as a female protagonist, you don't raise your grandfather's favorability and get promoted internally, but rather go the route of devouring the company by focusing on raising external forces. Of course, the latter is twice as difficult in terms of difficulty.</p>
-<p>After being lost in thought about the game for a few minutes, Han Yu-gyeong soon came with a bag full of things. Probably medicine.</p>
-<p>"I bought bandages and medicine here."</p>
-<p>"Ah, thank you."</p>
-<p>"No thanks. You got hurt trying to save me...."</p>
-<p>I couldn't wrap the bandage in the middle of the road. Besides, I couldn't do it even more because I had to take off my shirt to wrap the bandage.</p>
-<p>"Not in any other sense...."</p>
-<p>Han Yu-gyeong looks at the ground with her ears red.</p>
-<p>"Yes?"</p>
-<p>"Because you have to wrap the bandage.... Would you like to go over there?"</p>
-<p>The place that Han Yu-gyeong, whose face was red, pointed to was a motel. I saw a neon sign that said Motel Rose. I chuckled at Han Yu-gyeong's embarrassment and nodded.</p>
-<p>"Accommodation."</p>
-<p>Since I had to get a room anyway, I said accommodation, paid, and entered the elevator.</p>
-<p>"Um.... Accommodation is?"</p>
-<p>"Ah, I came to Seoul for sightseeing. It's late today, so I'm going to sleep here since I came here anyway."</p>
-<p>"Ah..."</p>
-<p>An awkward atmosphere lingered in the elevator.</p>
-<p>Ding! The elevator stopped with a sound and the door opened. Yu-gyeong-ssi and I walked down the hallway, keeping our distance, and entered the room.</p>
-<p>"First, take off your shirt."</p>
-<p>At Han Yu-gyeong's words, I took off my shirt. Looking at my arm, it seemed that the level of regeneration was low, so there was a small, thread-like scar that was not completely healed.</p>
-<p>Han Yu-gyeong brought a motel towel, wet it with water, and wiped my arm. She widened her eyes as if slightly surprised at the unexpectedly small wound.</p>
-<p>"The wound isn't that big?"</p>
-<p>"I told you. It's okay."</p>
-<p>Another awkward silence followed, but Han Yu-gyeong opened her mouth as if trying to break this awkward silence.</p>
-<p>"Come to think of it, I don't think I've properly introduced myself. I'm Han Yu-gyeong. Thank you for saving me."</p>
-<p>"I'm Jin Yong-tae. Um... just a passing tourist."</p>
-<p>Han Yu-gyeong made a face as if asking why a Korean person would go sightseeing in Seoul in response to my answer.</p>
-<p>"If you're a tourist...?"</p>
-<p>"Ah, I'm a Korean-Japanese. I'm going to join the company in about ten days, so I came to Korea for a trip before going to the company."</p>
-<p>I smiled and showed my employee ID. Han Yu-gyeong's expression became a little strange after seeing my employee ID. She had a suspicious expression.</p>
-<p>"You said your name was Jin Yong-tae, but it says Taira Ryuta? Did the Taira family find me?"</p>
-<p>At Han Yu-gyeong's slightly accusatory question, I answered with a troubled expression.</p>
-<p>"Ah.... I'm a.... illegitimate child. Originally, I grew up as Jin Yong-tae without even knowing my father, but recently I was recognized by the family and I'm going to join the company under that name."</p>
-<p>"Ah! I'm so sorry."</p>
-<p>In fact, the protagonist and her parents were not recognized by the family in the early stages, so Han Yu-gyeong was startled to hear that I was an illegitimate child. She felt a sense of kinship with a story similar to her own.</p>
-<p>"It's okay. Actually, it's not like I was treated badly for being an illegitimate child. I just found out a while ago that I had a father I didn't even know."</p>
-<p>"Still, I suspected you for no reason...."</p>
-<p>"May I ask why you were so suspicious?"</p>
-<p>This time, Han Yu-gyeong was embarrassed. Well, I wasn't actually embarrassed, but I pretended to be embarrassed, but Han Yu-gyeong seemed reluctant to reveal that she was from Shinkang Group.</p>
-<p>"It's similar for me. I'm not an illegitimate child, but I'm also a child from a family that was kicked out of a company."</p>
-<p>"Ah.... So you suspected that I approached you on purpose."</p>
-<p>I did approach her by chance, but it wasn't a deliberate and planned approach.</p>
-<p>"No matter how great the Taira Group is, there's no way they would know that Han Yu-gyeong-ssi would be attacked by thugs today."</p>
-<p>"Yes.... That's true. I think I was too delusional. And what use would I be anyway."</p>
-<p>I patted Han Yu-gyeong's suddenly drooping shoulder. I would have hugged her if we were a little closer.</p>
-<p>"Yu-gyeong-ssi, shouldn't you go home? Do you live nearby?"</p>
-<p>The time was 12:40 AM on Saturday, so it was time for the subway to stop running.</p>
-<p>"Ah!"</p>
-<p>Han Yu-gyeong is surprised to see the time. She probably doesn't have enough money to call a taxi to Incheon in the early stages.</p>
-<p>"Um.... I'm sorry.... Can I sleep here tonight?"</p>
-<p>Hell yeah.</p>
+<p>"By the way, are there any employees who actually live inside the Human Resources Development Center?"</p>
+<p>While moving, I decided to ask something I was curious about as an icebreaker. I had been wondering about it all along, but I couldn't ask on the phone back then.</p>
+<p>"There is."</p>
+<p>"How many people?"</p>
+<p>"If you include you, two?"</p>
+<p>"Surely that one person isn't my mother, is she?"</p>
+<p>Ei, surely not. Even though her husband died, she's still a daughter-in-law of a chaebol family, so she must have a separate house. Taira Yukiko's face darkened slightly at my question.</p>
+<p>"That's right. I sold the house I originally lived in with him. It was too... quiet, so I just got rid of it."</p>
+<p>"Ah... I see. So, does that mean my mother and I are neighbors?"</p>
+<p>Taira Yukiko smiled only then at my words, which I blurted out to prevent any more depressing stories from coming out. Yeah, I guess we are neighbors. I muttered. I need to change the subject before the atmosphere gets weird.</p>
+<p>"I got my driver's license this time."</p>
+<p>"Really? If you got your license, you'll buy a car, what are you going to buy?"</p>
+<p>I hadn't really thought about a car, but there was a reason why I mentioned getting my license. It was to ask about the Taira Group's discount program.</p>
+<p>"I haven't really thought about it. But since my surname is now Taira, I was thinking of buying a Taira car. Do direct descendants of the Chairman-nim get a discount on Taira cars?"</p>
+<p>Taira Yukiko looked at me with wide eyes, as if she didn't expect me to ask about a discount. It seemed like she didn't expect a chaebol family member to bother with a discount when buying just one car.</p>
+<p>"As far as I know, there's a 15 percent discount if you belong to the Taira Group, and a 20 percent discount if you belong to Taira Motors, but that's about it. I don't think there are any discounts just because you're the Chairman-nim's child."</p>
+<p>Still, being able to get even a 15 percent discount is a plus. I could save on housing expenses by living in the Human Resources Development Center this time, so I thought I could buy a decent car.</p>
+<p>"Then I should take a look at the Taira Motors catalog. I have to buy one that fits my budget."</p>
+<p>"I'll buy you one as a celebration of joining our company."</p>
+<p>"Huh? You will, Mother?"</p>
+<p>Yukiko-mamang...! She's even buying me a car, what a honey deal? Then I can save on housing and car costs, and with the remaining money, I should invest in some stocks that I know from my game knowledge are about to skyrocket.</p>
+<p>"As a mother, I can do this much."</p>
+<p>Well, she's not my real mother, but it felt a little strange to see her trying to be nice to me.</p>
+<p>"Thank you. Since it's Mother's gift, I won't refuse."</p>
+<p>Taira Yukiko looked proud at my words of gratitude. Hmm, her profile is pretty too. I searched online and it said she was 33 years old, still in her prime. She met Taira Saburo, who was a young university professor at the time when she was a sophomore, and got married. Is this some kind of professor-student romance?</p>
+<p>The Human Resources Development Center came into view around the time the car story ended. It was a huge site with something like a lawn field, many hotel-like rooms, and many other attached buildings.</p>
+<p>Taira Yukiko parked the car in front of a detached building behind the main building. The detached building was also a fairly luxurious-looking three-story house. Am I going to live here alone with Taira Yukiko?</p>
+<p>"Follow me."</p>
+<p>"Yes."</p>
+<p>I followed Taira Yukiko like a baby duckling following its mother duck. The first floor had a living room, a reception room, a dining room, and a laundry room.</p>
+<p>"The first floor is just for dining. You can watch TV in the living room, but there's also a TV in your room."</p>
+<p>I see. When I went to the second floor, the largest room at the innermost part was Taira Yukiko's room (she didn't open the door to show me, she just explained in front of the door that this was her room). Next to it was a study that Taira Yukiko used when working from home. And there was a bathroom, which had been Taira Yukiko's personal bathroom until now, but now that I was here, she said we should decide on a time to use it.</p>
+<p>And my room was closer to the stairs, and the room had an attached shower room and toilet. The room itself was also very large.</p>
+<p>"The third floor is for guest rooms and empty rooms."</p>
+<p>"You can put your laundry in the basket in front of the laundry room on the first floor. The housekeeper will do the laundry every day, and if you need anything or want to eat something, tell the housekeeper."</p>
+<p>A housekeeper... I've never actually seen one before. I've only seen them on TV, so it was amazing to see one in person. She said she went grocery shopping before preparing dinner. She said she asked for something delicious because I was coming.</p>
+<p>"It's amazing to see a housekeeper, I've only seen them on TV."</p>
+<p>"Is that so? Get used to it from now on. Oh, and I'll set the rules for this house. No guests, and if you're going to stay out, tell me in advance so I don't worry. There are only two, so you can keep them, right?"</p>
+<p>"I can keep that much."</p>
+<p>They weren't very difficult rules. Kazuhiro said he'd come over when his Hyung-nim got a house, but what can I do if it's not allowed? And it wasn't difficult to send a few lines on Line if I was going to stay out.</p>
+<p>"Okay, go to your room and unpack. Let's have dinner together."</p>
+<p>"Yes. Ah, I didn't say thank you. Thank you for taking me here by car."</p>
+<p>"It's nothing. Dinner is at six thirty, so come out on time."</p>
+<p>Taira Yukiko answered a little coldly and went into her room. Hmm, did I do something wrong? I brushed aside the unnecessary question and came into the room that was my room from today. The bed was huge, and there was even a computer installed on the desk. There was also a styler, and a few suits were hanging there that were tailored to my new size. How did she find out my clothing size? Does she have ninjas or something?</p>
+<p>It was easy to unpack because there were only clothes and toiletries. I finished unpacking in about fifteen minutes. Then there's nothing to do, should I play on the computer? I'm also curious about how good the computer is... I turned on the computer and it booted up almost immediately. The specs are... let's see, the CPU is an Intel 27th generation i9 and the graphics card is a G-Force 15090Ti. She set it up with completely top-of-the-line components.</p>
+<p>Of course, you can tell by the generation of the CPU and graphics card, but it was set in the future compared to before I was possessed. In the game, it was expressed as 20XX, so I looked up the date as soon as I was possessed, and it was now 2053. There was a third world war in the middle and several other incidents, but roughly skipping over them, the important points were that South Korea was unified, China was divided into three countries, and Japan could not amend its pacifist constitution even during the world war, so it could not become a country with an army.</p>
+<p>Instead, they created many private military companies (PMCs) and used the expedient method of the government indirectly owning those companies, which earned them criticism from Korea. Of course, our Taira Corporation also owned several PMCs, almost all of which were directly under the Chairman-nim. It was to prevent the Chairman's position from being taken by force. There was even a saying that if Taira Danjo-harabeoji passed on a PMC, that person would be the successor.</p>
+<p>"Still, virtual dive computers are popular these days, so it's a shame no matter how good the specs are."</p>
+<p>I was clicking around with the wireless mouse and watching YouTube when it was already dinner time. I should go down now. It was definitely a good house, and it was warm for a Japanese house, so I went down to the dining room wearing only a short-sleeved shirt and jeans.</p>
+<p>"Oh my, hello. Are you the new Doryeon-nim who just came?"</p>
+<p>"Ah, yes. Hello."</p>
+<p>This Ajumma must be the housekeeper. It would have been better if she was a pretty maid, but she was just a normal Ajumma in her late forties. I can't help it. Taira Yukiko was sitting at the table, so I pulled out a chair and sat down too. Dinner was roast chicken, salad, grilled salmon, and bread. It's Western style.</p>
+<p>"Eat well."</p>
+<p>"I will enjoy the meal."</p>
+<p>I moved the chicken leg and grilled salmon to my front plate and picked up a knife. Taira Yukiko smiled as she watched me.</p>
+<p>"Eat comfortably. You don't need to use a knife to eat chicken."</p>
+<p>"Yes."</p>
+<p>Yeah, what's with a knife when eating a chicken leg. I grabbed the leg with my hand and tore it apart heartily. Is the housekeeper Ajumma really good at cooking? The chicken skin was crispy and the meat was moist and delicious. The grilled salmon was also well-grilled and delicious, the salad was fresh, and the bread seemed to be made with ready-made ingredients, but it seemed to be from a high-end brand. It was very soft. When I put more on my front plate, Taira Yukiko looked at me with a satisfied look and opened her mouth.</p>
+<p>"It's good to see you eating well."</p>
+<p>"I have to eat to maintain this body."</p>
+<p>Taira Yukiko glanced over my body at my words. I gave strength when Taira Yukiko looked to subtly appeal my sexiness. Taira Yukiko coughed unnecessarily...! and drank water. Ajummas usually like muscular men, so Taira Yukiko will probably like it too.</p>
+<p>"Speaking of work, since you have the Taira surname, there is no possibility that you will be directly harassed or treated unfairly, but there is nothing I can do to help you. Your grandfather-nim hates that kind of thing, so you have to do well on your own. Instead, if you ask me what you're curious about, I can teach you about it."</p>
+<p>"I didn't expect Mother to help me like a child. I will solve it on my own."</p>
+<p>Not being bullied by a boss is a huge thing, but Taira Yukiko, who is a boss from the beginning, seemed sorry that she couldn't help. There was no need to be sorry. I never thought about having a comfortable company life from the beginning.</p>
+<p>If I didn't have the status window, I would have held my breath and lived my company life, but with the status window and various characteristics, I couldn't just be satisfied as the youngest member of the Taira family.</p>
+<p>I don't know why I fell into this world, but I have to either inherit it from Taira Danjo-harabeoji or take it with my own hands, or create a new megacorp with my own hands like the game protagonist. The first step was to get the Taira Group's Human Resources Development Center into my hands.</p>

@@ -1,0 +1,35 @@
++++
+title = "Chapter 399: Rewards"
+weight = 399
+[extra]
+chapter = 399
++++
+
+<p>"Men, Master Quinlan is ready to receive us now." Ronan announced.</p>
+<p>It had been a few hours since the woman's wailing ceased, and it seemed that the long-awaited rewarding session would be held. They worked themselves as hard as possible in the past month to receive whatever it was that they wanted.</p>
+<p>The slaves followed Ronan and Iselda who led the way to the biggest room in the building, its common area. There, seated on a lush sofa - they all knew he must've brought it over in that strange magical doorway of his - sat Quinlan. Behind him stood numerous existences. Most of them they already knew, that being his four lovers. Other than them were three more, a gorgeous elf, a pink-haired warrioress, and a black-haired man.</p>
+<p>Once the group of slightly over 27 slaves arrived - 20 laborers, 5 low-level combatants, as well as their managers; Ronan and Iselda - and stood in front of him, the master began.</p>
+<p>"Welcome. I'm pleased with the work you've done thus far, and after consulting with your two bosses, we've come to the decision that all of you deserve a reward."</p>
+<p>Hearing his declaration many men heaved a sigh of relief. No one knew if they were thought to have done enough.</p>
+<p>"First of all, let me introduce the three behind me you might be unfamiliar with. Seraphiel, my team's healer and ranger all in one. She'd saved us on numerous occasions already. Lyra, a tanker, and Cedric, a blademaster. This world is ruled by the strong, so I'm very proud to have such promising young talents in the ranks of the Ascendants."</p>
+<p>While the elf was being introduced she retained a poker face, only having a faint smirk. The other two slightly nodded their heads toward the group in greeting.</p>
+<p>"Moving on, a general reward each of you will be getting. Once the finishing touches have been done on this building, you will get beds and rooms. Furthermore, better food and drinks will be served, prepared by professionals. You've been living on preserved food, that is going to be changing right now. Come in, please."</p>
+<p>Two figures emerged. The men recognized them as the two maids who brought them food with the master's lovers back on that day.</p>
+<p>"Anna and Beatrice, my two cherished maids. They've been studying under an innkeeper, and now they're ready to assume their duties in my home. They will be cooking your meals, at least until I get specialized cooks."</p>
+<p>Their food will be prepared by these two young angels?! The men couldn't help but rejoice. Getting warm meals was already a big improvement, but if they were prepared by these girls, that would just make the food taste even better.</p>
+<p>Quinlan decided that it was time to bring the twins over. The pair were training fervently to fulfill their roles in his home, not tend to the inn of Robert. Thus, they've been wanting to be allowed to relocate, and he finally gave them the green light. The man in question would be losing his helping hands and Lucille was of course not going to return to replace them, so he needed to either do with what he got or hire new helpers. Their finances were not good at all, so maybe that wasn't possible, but it was not Quinlan's duty to help another man run a business.</p>
+<p>"With that out of the way, it's time for your individual rewards. Form four groups, from left to right, in this order; those that want to visit a loved one, those that want to visit a brothel, those that want to ask for specific meals or drinks, and those that have something else in mind."</p>
+<p>They did as told. Unsurprisingly, 15 of them went with the option that would bring them sexual relief. The third option was no longer very tantalizing if the two angels were going to cook for them. And, most of them had no home to return to or just didn't want to go back there. 8 chose to visit loved ones, and two went with the unspecified reward.</p>
+<p>"Great. Iselda, please take those eight with you and create a list of who and where they want to meet."</p>
+<p>"Yes, master." Iselda bowed and left, followed by a small group of beyond joyous men. Some of them have been slaves for years if not decades, so they were missing their loved ones greatly.</p>
+<p>"Alright, since no one wants specific food or drinks, let's go with with bigger group first. I'm sorry to say, but I'm penniless. Not the kind of penniless that rich nobles consider poor, which is to only have a couple dozen silver coins on hand, but the literal penniless kind, as in, I don't even have a bronze coin to my name. Therefore, I can't pay for your stay at such an establishment."</p>
+<p>His declaration surprised them all greatly, and this time not in the positive kind. Were they lied to? Did they work themselves until exhaustion every day for nothing? They were more than used to being lied to by masters - and even regular employers - in order to get them to work harder, but then skip out on their part of the promise. However, they felt that this man might be different than the rest, alas…</p>
+<p>Quinlan's nonchalant smile turned into a sinister grin. "You may come in."</p>
+<p>Discover exclusive tales on empire</p>
+<p>"M-m-master… Please…" A feminine voice cried.</p>
+<p>"Come in." This time he was no longer asking but commanding, and as a result they immediately heard the light stomping of bare feet against the floor.</p>
+<p>The sight that welcomed them was an otherworldly one. A busty, gorgeous redhead woman waddled into the room with teary eyes and a desperate expression. 𝑅ÂŊꝋ𝔟Ěs̩</p>
+<p>"This is Plump Fox, also known as Selene. She is my enemy, you might've heard her screams once or twice in the past few hours. She was my ally who used an extremely risky situation to shoot me in the back and make a run for it. I managed to survive being hit and enslaved her, but make no mistake. We were all very close to dying thanks to her treachery, and even with this favorable outcome, I had to suffer so greatly that I can't even begin to describe it. Just because in the end everything turned out great doesn't mean that she gets to be pardoned."</p>
+<p>"C-Cedric! Help me!" She begged amid tearful sobs, but the man only looked at his ex-fiance with a tired expression.</p>
+<p>"... You once told me that the winner takes all, right? We are the losers, Selene." The woman winced at not only his statement but the fact that he called her by name, not any endearing terms he always used, such as 'my love'.</p>
+<p>The master paid no heed to the conversation and decided to clear up the slaves' thoughts of him lying to them. "At first, I thought that being my obedient subordinate for the rest of her life, as well as getting roughed up whenever I was in a bad mood would be more than enough of a revenge, but then my beloved healer..." he said while gesturing to the elven woman standing behind him, "... requested I do more than that. So I came up with a plan to kill two birds with one stone.</p>

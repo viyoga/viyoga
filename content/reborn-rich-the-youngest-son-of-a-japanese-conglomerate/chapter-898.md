@@ -5,83 +5,86 @@ weight = 898
 chapter = 898
 +++
 
-<p>and breast chapter check contains exposure please surroundings this your</p>
-<p>"The Test Results can be checked online in a few days. Well done."</p>
-<p>At the words of the Test Supervisor, announcing the end of the Test, most of the PMC certification test applicants stood up from their seats. But some were sitting in their seats, opening their books to check the answers.</p>
-<p>Of course, I did not check the answers. I had already passed the last test, and this test's Difficulty was a little lower than the last, so I had a Premonition of passing even without checking separately.</p>
-<p>Of course, I would check, but I was planning to check the correct answers after today's showdown with Anyaji. Because of the schedule, I didn't have time to check the answers, and if I were to lose my life in today's fight with Anyaji, passing the test would be meaningless.</p>
-<p>Receiving my phone at the Testing Ground Entrance, I turned it on and headed to where I had parked my electric bike.</p>
-<p>"Huh? What...?"</p>
-<p>A Text Message had arrived from the side overseeing the information today, and it seemed several things had happened while I was taking the PMC certification test. Otagi Yuka had created a Vassal, and Nakasone Rishin joining Yoda old man and Kujo Kina's side were the new developments.</p>
-<p>"Creating a Vassal.... Is that okay?"</p>
-<p>Even Vampires could not create Vassals infinitely. Creating a Vassal permanently consumes Hyeolgi, the most important Stat for a Vampire (though the Hyeolgi Stat reduced by Blood Sucking can be recovered). I worried if that wouldn't be dangerous for today's battle.</p>
-<p>An experienced Vampire could create lower-class Vassals with almost no consumption of Hyeolgi, but since Otagi Yuka was new, there would be consumption of Hyeolgi. I was a little worried, but now that it was almost battle time, all I could do was finish my own battle as quickly as possible and go help.</p>
-<p>Of course, if Otagi Yuka had created a Vassal and successfully obtained the Blood Clan Lord Trait, her Combat power might not have dropped, but rather risen, so I still had to wait and see.</p>
-<p>In the case of Nakasone Rishin, the new participant in Yoda old man's Group, Kujo Kina informed that she had become capable enough to contend with Anyaji's general undefeated, so she was allowed to participate, which seemed okay. But it would be dangerous to contend with Anyaji's leadership, Four Heavenly Kings level or higher, but I thought Yoda old man would handle that well.</p>
-<p>The other sides were all proceeding according to plan, so I also rode my electric bike towards Miyashi. Since there were eyes watching me, Anyaji's side would also know my movements.</p>
-<p>"Fujigasaki Rinka's Disciple has just departed from Kofu City, they say."</p>
-<p>Anyaji's Administration employee, who had received a Phone Call, shouted to Takakusaki Gengo and some Guardians of the Guardian Hall sitting in the Command center.</p>
-<p>Although they had decided to launch a simultaneous Attack today, because they didn't know how the Situation would unfold, Takakusaki Gengo and some Guardians were on standby, checking the Situation from a Position where they could deploy at any time. Of course, what they were most concerned about was precisely the movements of Fujigasaki Rinka, who was called the Divine Fist within Japan.</p>
-<p>"Then, Rinka's Disciple can be attacked according to plan.... Are the others also moving?"</p>
-<p>"The side we sent the Letter of Challenge to will arrive soon, and the Faction of Fujigasaki Rinka's Disciples, Otagi Yuka and Saionji Diana, are preparing for the Attack. Since that side is also being watched, they will begin the Attack at the Points designated by our side."</p>
-<p>Everything was going well according to plan. But something felt uneasy. He couldn't know the True Identity of this anxiety, but Takakusaki Gengo thought the Cause of the anxiety was probably Fujigasaki Rinka.</p>
-<p>Before Fujigasaki Rinka entered the USA UMC, she had accidentally encountered Takakusaki Gengo and had a fight with fists.</p>
-<p>Takakusaki Gengo, who had experienced countless Asura battlefields, including the Third Great War, was 100 percent convinced of Victory in the Match against Fujigasaki Rinka, who was still a High School student.</p>
-<p>But that fight ended in a draw. Even though they fought a battle to the extent that the Surroundings were devastated, no Match was decided.</p>
-<p>The fight ended with both of them escaping before the police or army arrived due to reports from nearby residents, but that fight remained quite a shock for Takakusaki Gengo. No matter that Fujigasaki Rinka was the official Successor of Shinkaiyatsude, it was a defeat in a fight with merely a High School Girl.</p>
-<p>Of course, now he was confident. Because he was incomparably stronger now, having gained various Fist Techniques, Evil Arts, and secret techniques through Anyaji, Takakusaki Gengo concluded this anxiety was simply due to the draw in the Match a few years ago.</p>
-<p>So, Takakusaki Gengo and Anyaji put the most effort into Fujigasaki Rinka's side's plan in this Miyashi Attack plan. They trained White Light Fist Warriors who could neutralize the Abyss that Fujigasaki Rinka possessed, and Fujigasaki Rinka's Attack was also meticulously planned.</p>
-<p>"Fujigasaki Rinka's side?"</p>
-<p>"It's going well, they say."</p>
-<p>At the Answer that it was going well, Takakusaki Gengo relaxed his Taut Tension and leaned his Body completely on the Chair.</p>
-<p>"Right. We just need to watch the Situation."</p>
-<p>Now, they just needed to wait in the Command center and provide support according to the Situation. If things go well, today's Miyashi Attack could easily end even without Help from the Command center.</p>
-<p>Fujigasaki Rinka was riding in a car, heading towards Miyashi. The driver, assigned by Gwonmaeng, was glancing at Fujigasaki Rinka, who had her Legs propped up on the passenger seat dashboard, eating Umaibong and spilling powder.</p>
-<p>'It was good that I sided with Anyaji. For that kind of Woman to be the Divine Fist is absurd.'</p>
-<p>The driver was someone Anyaji had been persuading for several months, a hidden sword of Anyaji prepared for today. He was looking for an opportunity to drive Fujigasaki Rinka to the Place designated by Anyaji to Attack her.</p>
-<p>"Hey, the Road seems strange?"</p>
-<p>"If it's not Miyashi or Kofu, isn't the Vicinity of Mount Fuji all Countryside? That's why it's quiet."</p>
-<p>As Fujigasaki Rinka muttered, looking at the increasingly deserted surrounding Scenery, the startled driver roughly made an Excuse. The driver's Words weren't wrong; no matter how deserted it was, most of it was Countryside Scenery with Mount Fuji visible, so the Scenery outside the window was no different.</p>
-<p>"Really? Then it can't be helped."</p>
-<p>Fortunately for the driver, Fujigasaki Rinka just let it pass. Seeing her open a new Umaibong, she didn't seem to suspect anything.</p>
-<p>"What was your name again?"</p>
-<p>When about 3 minutes were left until arrival at the Position promised with Anyaji, Fujigasaki Rinka, having finished eating the Umaibong, asked while wiping her Hands with Wet Wipes.</p>
-<p>"I-Ichinomori Sadaoki is my name."</p>
-<p>"What school/style was it again?"</p>
-<p>Fujigasaki Rinka, who seemed to barely listen to the Answer after asking the name, this time asked about the school/style. Even if he was just a driver, his main profession was a member of Gwonmaeng. As a member of Gwonmaeng, a federation of numerous Japanese ancient martial arts organizations, Ichinomori Sadaoki also had an affiliated school/style.</p>
-<p>"It is Kyoshin Tomita-ryu."</p>
-<p>"Ah, right. Kyoshin Tomita-ryu.... There was a Child named Haruta, right?"</p>
-<p>"I think I've heard of him, but...."</p>
-<p>"He died at Anyaji's hands."</p>
-<p>With Fujigasaki Rinka's Words, the Atmosphere inside the car suddenly became strange. Ichinomori Sadaoki furtively turned his Eyes to look at Fujigasaki Rinka. But she was still wiping her Hands with Wet Wipes, smiling her usual Smile, and looking straight ahead.</p>
-<p>"Do you know Kanbee?"</p>
-<p>"Yes, he was my superior."</p>
-<p>"He also died in a fight with Anyaji, didn't he?"</p>
-<p>After Fujigasaki Rinka's Words, Silence lingered inside the car. Now, the remaining Time until arrival was 1 minute. Thinking that this uncomfortable Seat would end in 1 minute, Ichinomori Sadaoka felt a little Sweet Relief.</p>
-<p>"But you know what?"</p>
-<p>"Y-yes?"</p>
-<p>"Why did you join hands with Anyaji, who killed several Fellow Disciples of your school/style?"</p>
-<p>Looking to the side again, Fujigasaki Rinka was staring straight at Ichinomori Sadaoka. At her chilling Gaze, Ichinomori Sadaoka put his Feet on the break to make an Excuse.</p>
-<p>"No, keep driving. Not much left, is there?"</p>
-<p>'Caught!'</p>
-<p>With the Words not to stop, Fujigasaki Rinka grabbed Ichinomori Sadaoka's Neck. Ichinomori Sadaoka's Head was confused. Along with the thought, 'Where did the Information leak from?', he was engulfed in extreme anxiety and Fear because of the Despair-inducing thought that his Betrayal had been discovered by Japan's best Fist Technique practitioner. By the time Ichinomori Sadaoka's Back became damp with endlessly flowing Cold Sweat.</p>
+<p>Warning! There are illustrations with breast Exposure~! Please check your Surroundings before enjoying them!</p>
+<p>Having finished the PMC certification Test, I immediately rode my electric bike south from Kofu City towards Miyashi. To be precise about my Destination, it was a pension and barbecue Place on the outskirts of Miyashi, a location I had intentionally leaked to Anyaji. Because I had let it be known that I would meet Fujigasaki Rinka there, Anyaji personnel who would face me were probably waiting for me. Since I had already heard from Athena Mannerheim, if the personnel hadn't changed at the last Moment, I also knew who was waiting for me.</p>
+<p>My Sabu, instead of going to the pension I was heading to, would be moved to a strange Place by a driver who was a Spy for Anyaji, and I was a little worried if Sabu could really defeat the Enemies. The Opponents were those who used the Power of the White Night Dragon that shakes the Abyss, and three Guardians from the Guardian Temple, who could be called Anyaji's top fighting force. Of course, if it were Sabu Fujigasaki Rinka's pure Skill, there would be no Problem, but since the Opponent used Power that was the Affinity of the Abyss, I thought it would be quite a Problem.</p>
+<p>Despite my worries, Fujigasaki Rinka had loudly declared that she would be fine alone, so I had no choice but to send her alone.</p>
+<p>The other groups were also equally worrying. The reason I was less worried about them than Sabu's side was because I had assigned Kurayamada Kirie and Hangari Muneo Hanakame to them. For the groups without assistants, their fighting power was high compared to their scheduled Opponents, so the Possibility of Victory was high, and I didn't bother to assign assistants.</p>
+<p>Still, whether assistants were assigned or not, or whether our side's fighting power was strong, since a battle is something you don't know until you fight it yourself, I couldn't help but worry.</p>
+<p>I rode, filled with various worries, and as I worried about this and that, I was already approaching the pension I had prepared in advance. Soon, Sabu and my Students must have also started their battles.</p>
+<p>I had rented out the pension for the entire day, and had requested that the owner or Clerk not be present, so there would be no one at the pension except for the Anyaji personnel waiting for me.</p>
+<p>If the pension were damaged, I would just compensate with Money, and if I was lucky and the scheme I had prepared in advance succeeded, the pension would be fine.</p>
 <p>Kkiik.</p>
-<p>They arrived at the Destination. The Destination was an empty lot where no trace of people was visible.</p>
-<p>"Thanks for driving. When I go back, I'll go back on my own."</p>
-<p>"J-just a moment, s-sorry...!"</p>
-<p>Udeudeuk!</p>
-<p>At Fujigasaki Rinka's Killing Intent-filled Words, Ichinomori Sadaoka, who was about to make some Excuse, died with a broken Neck. Fujigasaki Rinka, with an Expression as if she had touched something dirty, took out Wet Wipes again and wiped her Hands. And came Outside.</p>
-<p>As she came Outside, Fist Technique practitioners wearing white Clothes were surrounding Fujigasaki Rinka. Fujigasaki Rinka looked at the Fist Technique practitioners one by one and opened her Mouth.</p>
-<p>"You guys are those strange White Light Fist Warriors, aren't you? My Disciple Guy made such a Fuss that I rather wanted to fight."</p>
-<p>"...."</p>
-<p>The White Light Fist Warriors did not Answer. They were only raising their white Aura, maintaining the Encirclement.</p>
-<p>"Standing still, what are you doing? Come at me."</p>
-<p>High School Days Rinka Master</p>
-<p>Her hair length was a bit shorter than now hehe</p>
-<p>Requested by Gojoy-nim: Athena belly dancer and Athena Tape attire~!</p>
-<p>Belly Dancer</p>
-<p>Tape Attire~!</p>
-<p>Requested by TheDreaming-nim: Aitana 1. Cute panties balls run, 2. Covering her groin and Charging</p>
-<p>1.</p>
-<p>2.</p>
-<p>Kkiyot~!</p>
+<p>After parking my electric bike in the empty lot in front of the pension, used as a Parking Lot, I slowly walked towards the pension. As I approached, several people were grilling meat at the barbecue area in front of the pension. I had sent the meat in advance, just in case Anyaji might be suspicious, and it seemed they were grilling and eating it.</p>
+<p>"The meat Owner has arrived."</p>
+<p>"That young Guy is Fujigasaki Rinka's Disciple?"</p>
+<p>"...Ryuta."</p>
+<p>"Long time no see."</p>
+<p>The ones waiting for me were that Guy Genba Kiyohira, his Sabu, Guardian Musashi Takuro of the Guardian Temple, another Guardian of the Guardian Temple, Kakishima Dekuro, and Athena Mannerheim.</p>
+<p>Although there were no ordinary Anyaji martial monks, with two Guardians and two Four Heavenly Kings, it could be said to be a considerable fighting force. As for Anyaji, since I was Fujigasaki Rinka's Disciple, they must have paid quite a bit of attention.</p>
+<p>"I thought there might be Guests, so I prepared plenty of meat. That worked out well."</p>
+<p>Jeobeok.</p>
+<p>As I took a step closer, making a Playful Jest, everyone stood up from their Seats. They were waiting for me, not Sabu Fujigasaki Rinka, and I wasn't surprised, so everyone except Athena Mannerheim, who knew the fact, seemed a little surprised.</p>
+<p>"No one move. I will face Fujigasaki Rinka's Disciple alone."</p>
+<p>Genba Kiyohira's Sabu, Musashi Takuro, stepped forward and said. Because I had killed Kaishu Kakan, Musashi Takuro's Disciple and former Four Heavenly Kings of Anyaji, it seemed he was stepping forward to take boksu.</p>
+<p>Kakishima Dekuro, also a Guardian, grumbled something quietly, but seeing him remain still, it seemed he wouldn't step forward.</p>
+<p>"Is it true that you killed Kaishu Kakan?"</p>
+<p>"It was a fair gyeoltue."</p>
+<p>Although he was affiliated with Anyaji, since he was a martial arts Sunbae, I answered with Etiquette. Actually, to be honest, it wasn't a fair gyeoltue.</p>
+<p>At the time, Anyaji had launched an Ambush, so it was a disadvantageous fight for our side. Since Anyaji would consider an Ambush a type of Tactics, I didn't bother to bring it up.</p>
+<p>"I will judge for myself if it was truly a fair gyeoltue!"</p>
+<p>At my Words, he suddenly shouted, and Musashi Takuro threw a fist at me. It was immense physical Ability. There was quite a distance between us, but he instantly closed the distance, and before I knew it, his fist was right before my Eyes.</p>
+<p>Huwooong!</p>
+<p>Because I had roughly anticipated that I might be Ambushed, I dodged Musashi Takuro's fist by bending my Body to the Side. Even though I dodged the fist, due to the immense Wind, my Sensitive Ear's skin tore slightly, and Blood burst out.</p>
+<p>This old man is incredibly strong. They said he was among the top five in Anyaji in terms of Skill, and it seemed that wasn't a lie.</p>
+<p>****</p>
+<p>-Creation Chaos Style Star Breaker.</p>
+<p>Of course, I couldn't just stand there and take it. With Star Breaker, a Martial Arts Form that unleashes Creation Chaos Gi into a fist, I tried to strike Musashi Takuro's Side.</p>
+<p>Musashi Takuro tried to swat away my Arm, but realizing it was difficult to block the immense Power contained in my Hand, he instead burrowed into my Embrace. Musashi Takuro, having naturally dodged my fist in this way, continued his Attack from within my Embrace.</p>
+<p>-Ever-Victorious Mountain Collapse Style (常勝崩山流) Mountain Collapse Lean (崩山靠).</p>
+<p>Musashi Takuro, having burrowed into my Embrace, used a leaning technique that struck with his back and Shoulder. Because the distance was so close, I couldn't dodge. His Shoulder struck my Solar Plexus, instantly taking my Breath away. Even as I was sent flying by the shock, I swung my Feet and struck Musashi Takuro's Shoulder.</p>
+<p>"Kueuk!"</p>
+<p>"Keok!"</p>
+<p>Simultaneously letting out moans of Pleasurable Ache, I was flung backward, and Musashi Takuro was also pushed back in the direction his Shoulder was struck.</p>
+<p>Although we exchanged blows for a short time, I could understand enough. He was indeed an Anyaji Guardian. He was not an Opponent to be taken lightly. Whether I took him lightly or not, the battle wasn't over. Because the Fighting spirit in Musashi Takuro's Eyes had not yet extinguished.</p>
+<p>"This much isn't enough to prove it!"</p>
+<p>Musashi Takuro, once again swinging his fist at me, this time, I also didn't dodge and swung my fist to meet his.</p>
+<p>Kuuuuung!</p>
+<p>As fist clashed with fist, with an immense shockwave, the repercussions spread like a Storm raging around us. The Trees planted around the pension swayed, and the pension window panes rattled as if they would shatter.</p>
+<p>Musashi Takuro and I didn't care about the repercussions, and relentlessly exchanged fists and Feet. All the pension window panes, which had barely withstood the shockwave from our fists clashing just now, shattered, and the surrounding Trees broke, fell, and became a mess.</p>
+<p>Musashi Takuro and I fought for quite a long time, and when battles are exchanged for such a long time, one naturally comes to know the Opponent.</p>
+<p>I could feel that Musashi Takuro was not a bad Person for someone affiliated with Anyaji who insisted on a fair Match, or that he was a Sabu who loved his Disciple.</p>
+<p>Musashi Takuro must have also felt a few things about me while exchanging fists with me. I couldn't know what he felt about me, as I didn't know Musashi Takuro's thoughts.</p>
+<p>Kung!</p>
+<p>After clashing fists, Musashi Takuro and I leaped backward. And this time, instead of immediately rushing in, we looked at each other. An Elderly Person with a slightly large Physique and Muscles. Musashi Takuro looked at me with a Gaze full of bewilderment, Anger, and Resentment, then soon opened his mouth.</p>
+<p>"Why aren't you using your full power?"</p>
+<p>"This is the Skill I displayed in the fight with Kaishu Kakan."</p>
+<p>In fact, I still wasn't using my full power. Because I intended to first prove to Musashi Takuro that it was a fair Match.</p>
+<p>"Alright. So, what you said was true, then?"</p>
+<p>To everyone else, it sounded like he was asking if my Match with Kaishu Kakan was fair, but that wasn't what Musashi Takuro was asking.</p>
+<p>"Wasn't there one more Person with me at the time? Ask that Person."</p>
+<p>At my Words, Musashi Takuro looked at Athena Mannerheim. Athena Mannerheim was also present during Anyaji's Attack on old man Kinui Tachio's Dojang.</p>
+<p>"Athena, is what this Guy says true? Kakan...."</p>
+<p>"Yes. It's a fact."</p>
+<p>To Musashi Takuro's Question, Athena Mannerheim answered with a resolute Attitude without hearing the entire Question. At Athena Mannerheim's Attitude, which showed she already knew about the Question, Musashi Takuro made an Expression as if he had realized something. And Musashi Takuro began his Silence, but Kakishima Dekuro, the Anyaji Guardian who had been silently listening to the Story, stepped forward as if Stifling.</p>
+<p>"Hey, Musashi. What Story are you two discussing? And honestly, what's the meaning of Kakan and that Disciple of Rinka fighting Fair and square? Kakan is already dead by that Guy's hand, you know. It seems better to just quickly deal with him and leave this Place."</p>
+<p>To Kakishima Dekuro's Question, Musashi Takuro turned his Body. He didn't just turn his Body; he used the rotational force from turning his Body to extend his fist with full power.</p>
+<p>Of course, Kakishima Dekuro, also an Anyaji Guardian, realized the Situation was Danger, and tried to dodge Musashi Takuro's fist, but Athena Mannerheim, who was behind him, grabbed his Shoulder, making it impossible to dodge.</p>
+<p>Kwaddeudeuk!</p>
+<p>"W-What... What the, Kueoheok...!"</p>
+<p>Musashi Takuro's fist shattered his breastbone, and burrowed almost up to his Elbow into Kakishima Dekuro's Body. Kakishima Dekuro, whose interior was completely pulverized, trembled, shedding Tears of Blood, then soon stopped moving. It was Kakishima Dekuro, who died without knowing why he had died.</p>
+<p>In the sudden Situation, Silence enveloped the pension Surroundings. Even I hadn't thought Musashi Takuro would kill Kakishima Dekuro immediately.</p>
+<p>Requested by MidNightSKY-nim, Kanna and Liz in Tape attire, imagining Ryuta pouncing on them~!</p>
+<p>Starting with Kanna~!</p>
+<p>After creating it, I thought, "Something's missing?" so I added a nosebleed here haha</p>
+<p>For some reason, Ryuta also appears with a nosebleed haha</p>
+<p>Liz~!</p>
+<p>Kkiyot!</p>
+<p>Requested by TheDreaming-nim, Kujo Kina's kick and phone Filming at the wrestling arena~!</p>
+<p>Kick~!</p>
+<p>As expected of a fighter, she kicks better than Kirie haha</p>
+<p>Phone camera~!</p>
+<p>Requested by ISaveI-nim, Nae and Jin Mija figure skating with their upper body Undressing + wearing only panties~!</p>
+<p>Starting with Madam Jin Mija~!</p>
+<p>Nae~!</p>
+<p>I didn't know how to do figure skating poses, so I just drew them generally ice skating haha</p>

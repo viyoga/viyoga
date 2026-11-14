@@ -5,66 +5,54 @@ weight = 429
 chapter = 429
 +++
 
-<p>"Huuheung...! Haa, haa... haa..."</p>
-<p>Watching Kasaoka Yuzuki lying down and panting with a very satisfied expression, I became afraid of myself. I'm more afraid of the ever-increasing number of women than of myself, who has a frightening python between my legs that makes sex so addictive, but so far, the women have been managing themselves well.</p>
-<p>In fact, Kasaoka Yuzuki was the only one who complained of such withdrawal symptoms(?). Yukiko had done that before, but Yukiko did it because of her succubus traits, and I thought Kasaoka Yuzuki was more like that because she worked as a delivery health worker and didn't do the real thing, but only provided service.</p>
-<p>Now that I've gotten my hands on her a lot, I don't want other men to touch her, and I was thinking of quitting the delivery health job.</p>
-<p>As if the time was up, Kasaoka Yuzuki's phone rang. It seemed like a call from the delivery health company.</p>
-<p>"Yes... I'll go out."</p>
-<p>Kasaoka Yuzuki, who answered the phone, got up with trembling legs. It seemed like it would take a while, so I went over and helped Kasaoka Yuzuki get dressed. Just like when she came back, I dressed her in leopard-print clothes, and she took out her panties from her bag and put them on. She must have taken off her panties before entering the room.</p>
-<p>"Goodbye."</p>
-<p>"Close your eyes."</p>
-<p>When I said goodbye, Kasaoka Yuzuki told me to close my eyes. When I closed my eyes, she lowered her mask and kissed me. She doesn't take off her mask during sex, so I guess she's doing it now because she can't kiss me.</p>
-<p>In fact, when she cleaned my dick earlier, she only raised her mask to cover her nose, so even people who didn't know Kasaoka Yuzuki would have noticed, but I was still pretending not to know.</p>
-<p>Chup, chubub...! Tsup, tsuup...♥</p>
-<p>For a while, an excessively lewd sound for a kiss filled the room, and after the kiss, I heard Kasaoka Yuzuki's voice saying that I could open my eyes now, and when I opened my eyes, Kasaoka Yuzuki was already wearing a mask.</p>
-<p>"I'll go now."</p>
-<p>"Wait a minute. Yuzu-ssi."</p>
-<p>"Yes?"</p>
-<p>Kasaoka Yuzuki stopped for a moment when I called her. She tilted her head and looked at me, wondering what was going on.</p>
-<p>"Don't misunderstand and don't be offended. How about quitting this job? Anyway, not all the money goes to Yuzuki-ssi, and if Yuzu-ssi is exclusively mine, I can give you more money. About two or three times as much."</p>
-<p>Anyway, I only call Kasaoka Yuzuki, so I thought it would be better to give the money to Kasaoka Yuzuki than to give money to the mask delivery service. It wouldn't be a loss for Kasaoka Yuzuki at all. It would be more time and money-wise to deal with me alone than to give handjobs or fellatio to several men.</p>
-<p>Kasaoka Yuzuki had a blank expression as if she hadn't expected my offer. But the phone rang again and she got a call urging her to come down, so I told her that I didn't mean to make a decision right away.</p>
-<p>"You don't have to answer right away, so think about it."</p>
-<p>"Ah, yes. I'll think about it. Thank you, I'll go now."</p>
-<p>After sending Kasaoka Yuzuki away, I took a shower, put on my clothes, and went back down to the basement where the Amsang branch was located. When I went down to the basement, Eve greeted me with a bright smile.</p>
-<p>"Thank you, Ryuta-nim! A lot of data has been collected!"</p>
-<p>As expected, Eve's true nature was Ai. I didn't know she would be so happy with data collection. I was curious about the results, so I decided to ask Eve about the data.</p>
-<p>"But is there anything different about me from other people?"</p>
-<p>"I haven't done a proper analysis yet, but the female body's reaction to Ryuta-nim's dick showed much higher neural activation than other people. I don't know exactly yet. Heehee."</p>
-<p>I see. It seemed like it was still too early to judge. Is there that much data? Enough for Eve, who boasts tremendous computing power, to take time? Eve noticed the question in my eyes and opened her mouth with a smile.</p>
-<p>"In other words, this is my 'hobby'. There are more important things to do. I'm developing new TG Tech products or allocating a lot of my computing power to the overall work of Amsang, so I'm not allocating much computing power to my 'hobby'."</p>
-<p>I see. Even Eve, who has such great abilities, is already doing so many calculations that she can't allocate much computing power to things like human reactions when having sex, which she can call her hobby.</p>
-<p>"Is that so? Well, you can't neglect your work by focusing on your hobbies."</p>
-<p>"Hehe, if you want to know the exact results, come visit again. And..."</p>
-<p>And? It seems like she wants something else from me... When I looked at her with curious eyes, Eve continued.</p>
-<p>"Ryuta-nim's reaction may be a unique reaction from the woman who came this time, so please use our Amsang love hotel with other women from time to time! Ryuta-nim is free for life. I'll listen to any service you want!"</p>
-<p>Ah, she only saw Kasaoka Yuzuki, so she wants to see the reactions of other women. But this area is so packed with love hotels that it's a bit overwhelming, you know.</p>
-<p>"Still, as a teacher, it's a bit much to frequent love hotels..."</p>
-<p>"Amsang controls all the CCTVs installed in this area, so you don't have to worry. If you wear a hat like you did today, there's little chance of being caught. Most of the students know that Amsang is here, so if you happen to meet them, you can just say that you went to Amsang. I'll testify that it's true."</p>
-<p>Eve's mouth spews out reasons why I can come here often, as if she had prepared in advance for my excuse. Most of them are valid, though. Since Eve wants it that much, I thought I could call Kijimoto Jurie or Daigo Terue to the love hotel once in a while.</p>
-<p>"Okay. I'll bring another woman and come a couple more times."</p>
-<p>"Ehehe, thank you, Ryuta-nim!"</p>
-<p>Oh, right! I almost just listened to Eve's request and went home. The reason I came to the Amsang Miya branch today was not only to visit Eve as promised, but also to get self-defense products that I could give to my women, such as Kijimoto Jurie and Daigo Terue, who lack the power to protect themselves in case of an emergency.</p>
-<p>"Ah, I have an idea. TG Tech's main focus is weapons for soldiers and experts."</p>
-<p>"That's right?"</p>
-<p>"What do you think about developing self-defense products to increase public awareness? I think self-defense products will sell better than firearms in Korea and Japan."</p>
-<p>Of course, our main trading partners are large targets such as large PMCs, security groups, and the armies of one country, but we can also sell self-defense products on the side. It's not a completely unrelated field, so we can apply the technology we get from developing self-defense products to our original major, and vice versa.</p>
-<p>"That's a good idea! We can share technology and we don't have to change the factory much. It's a good idea. Should we put it on the next regular agenda?"</p>
-<p>"Yes, we need to hear the opinions of Yu-gyeong and Lara Sinclair as well as me and Eve."</p>
-<p>In fact, our TG Tech is not producing self-defense products at all. We are selling bodyguard pets, which are guard steel artificial intelligence pets, in the shadows under a name other than TG Tech, and we are making a lot of profit.</p>
-<p>Chinese and Middle Eastern tycoons ordered items that were good for showing off, such as lions, tigers, and even elephants, while other regions ordered bodyguard pets that could hide their identity, such as dogs and cats, and perform the role of a final guard.</p>
-<p>Sometimes we get orders asking if we can sell items the size of hamsters so that they can be taken anywhere, but we refused because it was still impossible to miniaturize them to that extent. Also, there was an opinion that such a small size could be used for assassination beyond guarding, so it was decided not to sell ultra-small bodyguard pets.</p>
-<p>"Show me the Amsang catalog. Mainly self-defense products."</p>
-<p>"Are you going to do market research?"</p>
-<p>"There's that, and I'm going to give it as a gift to someone I'm worried about."</p>
-<p>Anyway, seeing Eve's reaction, I didn't think I could get self-defense products from Eve, so I asked Eve to bring up the Amsang catalog. Soon, a list of self-defense products appeared in hologram form in front of my eyes.</p>
-<p>Most of the self-defense products were things like three-stage batons or electric shockers that had to be carried separately. It can't be helped because the self-defense function deteriorates if it's too small, but I still didn't like it.</p>
-<p>Of course, these items are not ordinary self-defense products, but extremely powerful ones, as they are products that are sold separately at Amsang.</p>
-<p>"Most of them have to be carried separately. Like handbags or pouches."</p>
-<p>"That's right."</p>
-<p>"Since we have battery technology, how about making small electric shockers in the form of gloves or rings?"</p>
-<p>Since TG Tech originally had battery technology for making energy guns, Eve thought for a moment and nodded when I suggested it.</p>
-<p>"Since it's used in emergency situations anyway, if we reduce the usage to only 3-4 times... it might be possible. It's a matter to talk to Lara about."</p>
-<p>"Then let's talk about this issue together next time."</p>
-<p>After talking with Eve, I bought a few electric shockers that seemed appropriate. Even if I didn't like them, I thought I would feel better if I gave at least this to Kijimoto Jurie or Daigo Terue.</p>
+<p>First off, I don't know how many of them will show up, so I'd like to have a lot of us too... First, I was planning to meet Eve and Sakagami Rena, the two giants of the information world who I'm close with, to investigate the information. Eve can find almost anything in the internet space, and Sakagami Rena is such a specialist in gathering information that she even found out my identity that I was hiding, so she will be helpful.</p>
+<p>"Let's go to Eve first."</p>
+<p>I sent a LINE message to Sakagami Rena to meet at the Miyashi branch of the Dark Business and we decided to move too. Since the place is what it is, Otagi Yuka's St. Francisco Girls' Academy uniform stood out too much, so I gave Otagi Yuka a hoodie to wear.</p>
+<p>It was my size, so it was quite big for Otagi Yuka to wear, but the skirt of St. Francisco Girls' Academy, which was the bottom, didn't stand out that much, so it went well with the hoodie.</p>
+<p>I also put on the hat that I usually use when I go to the Dark Business branch and went outside. It's dark now because it's night, so if I wear a hat, they won't recognize me.</p>
+<p>Eve and Otagi Yuka have been quite close since New York, so Eve will not stand idly by and will help Otagi Yuka with this. Sakagami Rena thinks of me as her lord, so she will listen if I ask her...</p>
+<p>It would be easier to ask Mimata Chieri or Sawayanagi Azuma for troops, but if I go that route, my identity might be revealed, so it's impossible to use those troops, and Dang So-hwa, who has troops that won't be discovered, is currently establishing herself in the underworlds of Korea and Japan, so I couldn't call her.</p>
+<p>In the end, I have no choice but to gather the resources of St. Francisco Girls' Academy and fight. The battle time is Monday, so it's a bit difficult to use the students, so I had a lot of worries. I told them to study hard because it's exam period, and then go fight! It was a bit embarrassing to do that.</p>
+<p>Otagi Yuka is the person involved, so of course she can't attend, and I don't know Sakagami Rena's combat power yet, so let's have her focus on gathering information first. I'll have to talk to the rest of the students while watching the situation.</p>
+<p>"Hmm..."</p>
+<p>"Sensei-ssi, what are you thinking so hard about?"</p>
+<p>While heading to the love hotel district where the Dark Business branch is located, I was thinking about who to join the battle, and Otagi Yuka asked me.</p>
+<p>She seemed a little worried because I suddenly became silent. Otagi Yuka was looking at me with a serious expression.</p>
+<p>"I was thinking about how many people I should bring. I don't know how many vampire hunters SPF dispatched."</p>
+<p>"Would it be too much for just the two of us?"</p>
+<p>Otagi Yuka said to me as if she didn't want to cause trouble for other students. SPF boasts considerable compatibility with vampires, befitting the name of vampire hunters. SPF shoots silver bullets as standard, and even mithril-coated bullets in between.</p>
+<p>Silver bullets were naturally the opposite of vampires, and mithril-coated bullets left various debuffs as long as they hit, regardless of whether they were vampires or humans, and one of those debuffs was regeneration reduction, so I was a little dangerous too.</p>
+<p>Half of my defense came from regeneration, so I had to be careful of mithril-coated bullets. Of course, we might be able to win with just the two of us if things go well, but if we make even a small mistake, we'll be wiped out without much resistance.</p>
+<p>"It'll be dangerous with just the two of us. SPF are specialists in firearms."</p>
+<p>It wasn't for nothing that firearms were considered a staple for the youngest son of MegaCorp or TMC. Firearm traits are not that high in rank, so they are easy to hit, and if you equip only a gun, the damage and convenience from the beginning are incomparably better than martial arts or swordsmanship. If you just upgrade your equipment to high-end, you can continue to get stronger than leveling up. If you get stronger, leveling up naturally follows, so leveling up was easy too.</p>
+<p>However, there are almost no traits that exceed the epic grade, so the highest score was low, and since you continue to consume bullets, there were many enemies that ordinary bullets could not damage in the later stages, so it had the disadvantage of costing a lot of money, to the point where you could say you were hitting them with money.</p>
+<p>"Well... I've been educated a lot about SPF's response methods since I was young. I took classes from the elders of the family for a certain period of time every year, saying it was education for survival."</p>
+<p>Maybe Otagi Yuka knows SPF as well as I do. The family must have investigated SPF a lot since they are the opposite of them. As we walked, we talked about SPF with each other, and before we knew it, we arrived in front of the Dark Business branch.</p>
+<p>Otagi Yuka looked around with a slightly nervous expression and went inside. Looking at her very nervous expression, it was closer to checking whether SPF was watching this place than going into a love hotel as a student.</p>
+<p>Following Otagi Yuka, I went down to the basement and to the Dark Business branch, and Eve and Sakagami Rena were waiting.</p>
+<p>"Yuka~! Ryuta-ssi!"</p>
+<p>"Eve, heueuk...!"</p>
+<p>Eve greeted us with a bright expression as always. Otagi Yuka seemed to be crying again when she saw her close friend Eve, and she hugged Eve and started crying. I heard the story on the way here, and she said that the nanny who raised her since she was a baby died, so the shock must be quite severe. Eve stroked Otagi Yuka's head, who was burying her face in her big, soft breasts and crying, and comforted her.</p>
+<p>We decided to wait for a while until Otagi Yuka stopped crying. After a while, Otagi Yuka stopped crying and we told Eve and Sakagami Rena about what happened at the Otagi family's mansion and showed them the letter from SPF.</p>
+<p>Their reactions were quite interesting when they heard the story. Eve, who is an AI, got very angry, and Sakagami Rena, who is a human, was quietly thinking about something and didn't react much. Even when the story came out that Otagi Yuka was a vampire, Sakagami Rena didn't seem surprised or anything, as if she already knew. Since she is from a ninja family, she seemed to know about the Otagi family.</p>
+<p>"To make my friend Yuka cry! I can't forgive you! I'm going to cut off trade with the SPF New York branch and the Tokyo branch...!"</p>
+<p>Eve clenched her fists with both hands and said with a determined expression. After that, Sakagami Rena opened her mouth.</p>
+<p>"First of all, before we fight, we need to scout the geography of Onuta Shrine and gather information."</p>
+<p>It was definitely important to know the geography before fighting. Since SPF chose Onuta Shrine as the battle location, they may have set up various traps, so we couldn't do a sloppy reconnaissance either. Sakagami Rena decided to take charge of the reconnaissance of Onuta Shrine, and this time Eve opened her mouth.</p>
+<p>"First of all, we need to see the situation from the beginning. Miyashi, especially the CCTV around St. Francisco Girls' Academy, is under my control, so I'll check it out."</p>
+<p>When did you take control of the CCTV around the school again? Eve blinked her eyes for a moment as if she was reviewing the CCTV, and soon opened her eyes.</p>
+<p>"Yuka, are you okay with watching it?"</p>
+<p>"Yeah, I'm okay. I won't cry anymore."</p>
+<p>When Otagi Yuka said it was okay, a video appeared in the air as a hologram. It was a screen showing the Otagi family's mansion from afar and a screen showing the CCTV on the road where the Otagi family's mansion was located.</p>
+<p>Suddenly, a black van stopped on the quiet road. Only one person got out, a bald black man wearing sunglasses. He was carrying a Claymore on his back. A black swordsman vampire hunter wearing sunglasses... Is it Blade? Of course, this black man is bald, unlike Blade.</p>
+<p>The black vampire hunter swung his sword through the crack in the front door and cut off the lock. And went into the mansion. There were no CCTVs inside the mansion, so I couldn't see what happened, but I saw him coming out of the mansion in just 2 minutes.</p>
+<p>The black vampire hunter seemed to have killed people at an incredible speed and left a letter. He seemed to be quite skilled. And he came out of the mansion and got back into the black van that was waiting, and the black van disappeared onto the road.</p>
+<p>"I tried to track the van, but it seemed like they knew exactly where the CCTV was. It disappeared off the screen quickly, so I couldn't find it."</p>
+<p>"They must be getting help from the SPF Tokyo branch. They know even the location of these CCTVs."</p>
+<p>The letter alone was just my guess, but after checking the CCTV, it was clear that the SPF agents from the New York branch who came this time were receiving support from the Tokyo branch. But why are the Tokyo branch guys helping, even to the point of making enemies with the Otagi family?</p>
+<p>Does Taira Jiro know that I'm going to school? I'll have to contact the Taira Group's information team, who is helping me with my work, and ask them about this later.</p>
+<p>"But it's not like there's no result at all. As the van moved, I could see the inside of the car depending on the surrounding lights, and there were seven people in the van."</p>
+<p>Then that means there are at least 7 enemies. I don't know what the maximum is, but they probably didn't gather as many as 100 people.</p>
+<p>"I'll help you, but I don't think this will be enough. Sakagami-ssi has to scout and gather information, so she can't participate in the battle... My recommendation is to add Saionji Diana-ssi and add two or three more people so that we can at least match the minimum number."</p>
+<p>"I can fight too."</p>
+<p>If Saionji Diana joins, it would be quite helpful. Sakagami Rena also said that she would participate in the battle, so I should check her stats with the glasses from the ruins. If I want to match 7 people as Eve said, I'll have to call most of the people I know in Miyashi who have combat power... In that case, I need to find an excuse for the rest of us, including me, to leave early on Monday.</p>

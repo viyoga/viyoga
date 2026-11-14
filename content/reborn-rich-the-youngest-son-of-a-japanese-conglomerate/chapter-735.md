@@ -5,83 +5,84 @@ weight = 735
 chapter = 735
 +++
 
-<p>"So, did the negotiations go well?"</p>
-<p>James Fuller, the director of the Federal Supernatural Management Department, received a call from Diana Rich. He thought it would take quite a while, but it was faster than expected.</p>
-<p>-They surprisingly agreed to become American citizens easily to our proposal. However....</p>
-<p>"However?"</p>
-<p>If the negotiations went well, why would she say "however"? James Fuller tilted his head for a moment at Diana Rich's words.</p>
-<p>-They asked me to create a new identity instead of naturalization. So, I agreed with the deputy director's authority.</p>
-<p>James Fuller thought for a moment at Diana Rich's words. As the head of an organization, he had to think carefully about why the other party made such a proposal.</p>
-<p>"Is it to limit Black Knight's identity to the newly created American identity even if it's exposed? It's good for us because we can create that identity as we please, but...."</p>
-<p>He thought of several reasons why Jin Yong-tae requested a new identity instead of naturalization, but there was nothing that would be a big problem for the United States and the Supernatural Management Department.</p>
-<p>-I thought so too, so I agreed.</p>
-<p>"The CIA director will be happy. Creating a new identity is definitely more to their liking than naturalization. They give their agents dozens of new identities, so they'll be used to it."</p>
-<p>-Shall we finalize the contract then?</p>
-<p>"Yes. And let's talk once again about accepting our request that we talked about before."</p>
-<p>James Fuller finally agreed to the contract and told Diana Rich to remind him of the Federal Supernatural Management Department's request that the Federal Supernatural Management Department and Jin Yong-tae had initially discussed.</p>
-<p>-Understood. What should we do with the TG Tech equipment?</p>
-<p>"As a sign of friendship, sign a supply contract appropriately and come back."</p>
-<p>-Yes. I will finalize all the contracts, wrap up other business in Korea, and return.</p>
-<p>Diana Rich was planning to do work related to the Federal Supernatural Management Department while she was in Korea. Although the name is 'Federal' Supernatural Management Department, she often traveled around the world to recruit promising superhumans, deal with superhumans who could be a threat to the United States, or engage in diplomacy with superhuman organizations in other countries, so Diana Rich had a lot to do in Korea as well.</p>
-<p>"Okay, hang up the phone."</p>
-<p>James Fuller, who hung up the phone, was satisfied that things were going well. Of course, not everything was going well.</p>
-<p>The Famine-Created Superior Race Alliance and the revelation of superpowers led to terrorist groups hostile to the United States and the victorious countries of World War III massively recruiting superhumans, which became a problem. That's why he opposed the CIA director's opinion to antagonize Black Knight.</p>
-<p>He thought that there was no need to go out of his way to make Black Knight an enemy when he already had many enemies.</p>
-<p>"First, I need to tell everyone that the negotiations have been completed. Before Giovanni Wells does something strange."</p>
-<p>James Fuller called the CIA director by his full name and picked up his phone again.</p>
+<p>"Wait, just a minute! Who are you people?"</p>
+<p>The security guard of Shingang Life Insurance stopped Dickson and the Vanguard agents from entering the building and asked.</p>
+<p>From the guard's point of view, it was natural to stop them. He couldn't just let Dickson, a giant nearly 2 meters tall, and the Vanguard agents, who were wearing suits but had combat cyber implants plastered all over them, enter the Shingang Life Insurance building.</p>
+<p>"We are Han Yu-gyeong-daepyonim's bodyguards. Ah, I guess she's the president here."</p>
+<p>At Dickson's words, the guard paused for a moment. He was wondering if he should let the president's bodyguards in when he received a call from the radio telling him to let them in.</p>
+<p>-The people in the lobby right now are the new president's bodyguards, so send them up to the president's office.</p>
+<p>"Understood. The president's office is on the 7th floor. You can take the elevator up."</p>
+<p>"Thank you for the information."</p>
+<p>Dickson led the Vanguard agents past the guard and took the elevator up. The burly Dickson and the Vanguard agents armed with cyber implants felt very intimidating.</p>
+<p>Some of the Shingang Life Insurance employees in the lobby swallowed hard as they watched them. They had a feeling that something was going to happen at Shingang Life Insurance with the inauguration of the new president, Han Yu-gyeong.</p>
+<p>Ding!</p>
+<p>As the elevator arrived, Dickson and the rest of the Vanguard agents poured out, and Lee Baek-joon, Han Yu-gyeong's secretary at Shingang Life Insurance, looked at them in confusion.</p>
+<p>"They're the Shingang Life Insurance president's bodyguards, so you don't have to stop them."</p>
+<p>"Oh, okay...."</p>
+<p>After identifying himself to Lee Baek-joon, Dickson opened the door to the president's office. Han Yu-gyeong was sitting naturally, as if she had been the president of Shingang Life Insurance for a long time, reviewing the computer screen and documents.</p>
+<p>"Dickson, please check the president's office for surveillance cameras and bugs."</p>
+<p>"Yes, Daepyonim."</p>
+<p>At Han Yu-gyeong's words, Dickson and the Vanguard agents began to search the president's office. As Han Yu-gyeong said, a total of three cameras and four bugs were planted in the president's office.</p>
+<p>"To find so many listening devices in the president's office, I'll have to call the secretary."</p>
+<p>At Han Yu-gyeong's words, one of the Vanguard agents went out of the president's office and brought Lee Baek-joon in.</p>
+<p>"Lee Baek-joon-ssi, how long have you been the secretary of Shingang Life Insurance?"</p>
+<p>"Pardon?"</p>
+<p>Lee Baek-joon couldn't answer Han Yu-gyeong's question easily. In the first place, Lee Baek-joon was not the secretary of Shingang Life Insurance. He was an employee from the headquarters of the Shingang Group who came to monitor and coax Han Yu-gyeong to steal TG Tech's technology.</p>
+<p>"How long have you been the secretary of the Shingang Life Insurance president's office, Lee Baek-joon-ssi?"</p>
+<p>"Well, that's...."</p>
+<p>"Aren't you going to answer me?!"</p>
+<p>"Ugh!"</p>
+<p>The Vanguard agent standing next to him grabbed Lee Baek-joon's hair roughly, creating an atmosphere of fear.</p>
+<p>"Here it is. Lee Baek-joon has been working here since a year ago... it says here, but it's probably a fabricated document, right? I know you're someone the headquarters put here."</p>
+<p>'If you know, why are you asking, you crazy bitch....'</p>
+<p>Lee Baek-joon muttered inwardly at Han Yu-gyeong's conclusive words. He wasn't too scared because he thought this situation might happen. However, Lee Baek-joon's face couldn't help but turn pale at the words that came out of Han Yu-gyeong's beautiful lips next.</p>
+<p>"Your parents live in XX-gu XXX-dong.... Your younger sister is a student at Silla University, right? Your girlfriend is a nurse at Seongnyeong Hospital."</p>
+<p>Lee Baek-joon felt his back getting wet. How could she have investigated his surroundings in such a short time?</p>
+<p>Moreover, these words themselves were no different from a threat that she might do something to Lee Baek-joon's acquaintances. It gave him a sense of fear that the bodyguards with cyber implants around him might actually do something.</p>
+<p>"I won't fire you because you're someone my grandfather put here. And I won't hold you responsible for the bugs in the president's office. Instead, I'll have to adjust your position. I was looking through the organizational chart and saw that the deputy team leader position in the facilities management team is vacant. Go there. You'll get the same salary as the secretary, and if you get a call from your grandfather, tell me too, okay?"</p>
+<p>Han Yu-gyeong said with a smile. It was a beautiful sight that anyone would fall for, but Lee Baek-joon couldn't feel any excitement or anything similar at Han Yu-gyeong's appearance. He was just terrified of her appearance.</p>
+<p>"Yes, yes.... I understand."</p>
+<p>Lee Baek-joon nodded repeatedly as if he understood. Han Yu-gyeong was still smiling and pointed to the door.</p>
+<p>"I'll tell you in advance, go to the facilities management team now. Facilities Management Deputy Team Leader Lee Baek-joon-ssi."</p>
+<p>"Yes. I understand, President-nim...!"</p>
+<p>Lee Baek-joon greeted her and went outside. Dickson, who was watching Lee Baek-joon's back, opened his mouth.</p>
+<p>"Is it okay to leave him like that?"</p>
+<p>"What can he do in the facilities management team? Let's keep an eye on him for a while and deal with him if he does anything suspicious. Rather than that, I should call the audit team. There's a lot to get back from the former president."</p>
+<p>Han Yu-gyeong couldn't forgive the former president for leaving only a few documents for the handover and making a fool of her. It was no different from ignoring her because she was a young woman.</p>
+<p>"First, call the audit team and have a few people bring the former president back."</p>
+<p>"Yes, Daepyonim."</p>
+<p>At Han Yu-gyeong's command, Dickson bowed his head and answered. With Han Yu-gyeong's majesty, it seemed that Shingang Life Insurance would soon be completely in Han Yu-gyeong's grasp.</p>
 <p>###</p>
-<p>"Approval has been granted from above. Please give me a name as soon as possible."</p>
-<p>Diana Rich, who had been on the phone, told me that the story about creating a new identity had been approved.</p>
-<p>"Question. When you make a name, do you have to make a last name too?"</p>
-<p>"The last name.... That's not possible. To naturally make Yong-tae-ssi an American citizen, we have to work on the last name on our end."</p>
-<p>At Han Yu-gyeong's question, Diana Rich thought for a moment and shook her head. It seemed that she couldn't freely choose even the last name as she thought.</p>
-<p>"Until when do I have to make a name?"</p>
-<p>"I would appreciate it if you could decide on it right here."</p>
-<p>"Hmm...."</p>
-<p>At the words to make a name quickly, Han Yu-gyeong put her hand on her chin, frowned, and was thinking about my new American name. Although she was frowning, she was so pretty that even that look of worry was like a painting.</p>
-<p>"How about Dante?"</p>
-<p>Could it be that she matched it with Yong-tae Dante, using the prince's name? Or is it a name taken from a game? I tilted my head slightly when I heard the name Dante. Unlike me, who was tilting my head, Diana Rich smiled and nodded as if it was okay.</p>
-<p>"That's good. The name Dante is usually given to people born in the United States rather than naturalized.... Even if Yong-tae-ssi is Asian, suspicion will decrease."</p>
-<p>A name that people born in the United States give more often than people who immigrate to the United States.... Is there such a statistic? Certainly, even if I think about Koreans who went to the United States, the name Dante was rare.</p>
-<p>"Is Yong-tae okay with it too?"</p>
-<p>"Yeah. I like it."</p>
-<p>"Okay. Then let's sign the contract now."</p>
-<p>Diana Rich held out her hand to me. In the case of naturalization, it can be left in writing, but the condition of giving me a new identity was full of illegality, so it was not something to be left in writing. This case was a contract based on trust.</p>
-<p>Of course, it's not that I trust Diana Rich or the Federal Supernatural Management Department, but I wasn't too worried because I was going to make it clear that the United States would lose out if they antagonized me.</p>
-<p>I took Diana Rich's hand and shook it. I'm sure they'll do well.</p>
-<p>"Ah, and you mustn't forget the promise to take on our requests from time to time even if you receive a new identity."</p>
-<p>"Of course. I'll take on requests if you pay a fair price."</p>
-<p>"Good, then shall we look at the TG Tech products?"</p>
-<p>"I'll guide you!"</p>
-<p>At Diana Rich's words, Han Yu-gyeong showed enthusiasm and got up from her seat. Although the Federal Supernatural Management Department is not an exposed organization, if they supply to one of the US government agencies, the credibility of the product will increase rapidly, so she was taking a very active attitude.</p>
-<p>In fact, business was still going well. My own PMC, East Weapon, Seryu Military Company, and Kōtetsubutai all signed contracts with TG Tech to receive weapons. TG Tech will be able to further develop its products with the feedback it receives from the PMCs.</p>
-<p>For reference, Kōtetsubutai (鋼鉄部隊: Steel Unit), which I recently founded, interviewed and hired several people recommended by Asada Ei and Asada Fukushi, all of whom were former Self-Defense Force officers or non-commissioned officers.</p>
-<p>Of course, they looked a little suspicious when they heard that I, a young child, was the owner, but they seemed to understand after hearing something from Asada Ei and Asada Fukushi, who were from the intelligence unit. Of course, they may have understood because they liked the annual salary I offered.</p>
-<p>Kōtetsubutai, which has filled its executive ranks, was slowly recruiting general personnel. Even if the Japanese PMC industry is a red ocean, it was an opportunity for unemployed Japanese youths to find a job.</p>
-<p>Due to the widening polarization and the lack of jobs due to mechanized factories, many young people were entering the PMC industry.</p>
-<p>Of course, it takes some investment to train people without military experience, but PMC was a good business to make money in the chaotic situation after the end of World War II. It was an investment worth making to train new employees.</p>
-<p>The post-war security in Japan began to collapse, so there was quite a bit of work, and there were many cases of Japanese PMCs being hired worldwide.</p>
-<p>Of course, Japan, a war criminal country in World War II, was being criticized for exporting soldiers, but the Middle Eastern warlords and Central and South American gangs and governments that had to hire soldiers with money, and the governments of several countries that lacked the troops to suppress terrorists, were hiring Japanese PMCs regardless of the criticism.</p>
-<p>In such a situation, Kōtetsubutai's recruitment of new employees will go well. After the university and high school graduation ceremonies, young people who have not yet found jobs will pour into the job market, and Kōtetsubutai can pick out the guys who are suitable for PMCs among them.</p>
-<p>"What are TG Tech's customers?"</p>
-<p>"We supply guns to the civilian market in gun-allowed countries, Korean security companies, and Japanese PMCs."</p>
-<p>Diana Rich and Han Yu-gyeong were holding sample energy guns and talking. Diana Rich looked quite surprised. She seemed quite surprised by the specifications of our energy guns, which she heard from Han Yu-gyeong's explanation, and the finish was quite good.</p>
-<p>"Can I try live firing?"</p>
-<p>"Yes. The shooting range is in the basement."</p>
-<p>It was difficult to create a shooting range in the middle of Seoul, but TG Tech had secretly created a shooting range in the basement. Unlike other guns, there is no noise, so if only a few people keep their mouths shut, they won't get caught.</p>
-<p>After going to the basement and shooting, Diana Rich offered us a fairly generous contract. Of course, the Federal Supernatural Management Department was not such a large organization, so it was not a very profitable contract, but it was not a bad contract either.</p>
-<p>"It was a good contract."</p>
-<p>"Yes. I like the product a lot more than I thought."</p>
-<p>Han Yu-gyeong and Diana Rich wrote the contract, shook hands, and ended the contract. Before Diana Rich left, she turned her head and looked at me.</p>
-<p>"Yong-tae, no, Dante-ssi. Please take good care of me in the future."</p>
-<p>"The name is awkward."</p>
-<p>"You'll get used to it soon. Let's go now."</p>
-<p>Dante.... It doesn't stick at all. Yu-gyeong and I saw Diana Rich off. After Diana Rich left, Han Yu-gyeong hugged me.</p>
-<p>"Thanks to Yong-tae, we got a new contract?"</p>
-<p>"What do you mean thanks to me? It's thanks to Yu-gyeong working hard in Korea."</p>
-<p>We praised each other and hugged each other for a while before returning to the president's office. Han Yu-gyeong, who had returned to the president's office, had a slightly darker expression, which was a stark contrast to her attitude just now. She felt somewhat afraid and uncomfortable.</p>
-<p>"I'm worried. Will Yong-tae's mother like me?"</p>
-<p>Han Yu-gyeong was worried because my biological mother, Jinmija Yeosa, had decided to come to Korea for the New Year. It must be a little strange to meet her future mother-in-law for the first time.</p>
-<p>____</p>
-<p>Minamoto Lisa bikini + armpit pics requested by RefundAbsolutelyNotPossible-nim~!</p>
-<p>Kkiooot!</p>
+<p>Diana Reach, the deputy director of the Federal Superpower Management Agency, pressed her temples at the article published by the US Army Superpower Response-Support Unit.</p>
+<p>-US Army Superpower Response-Support Unit Director Cameron Broussard: "Black Knight is an American, and we can request cooperation in suppressing superpower terrorists at any time."</p>
+<p>Diana Reach, thinking that she didn't know why they were publishing such a statement that didn't even need to be made, turned on her computer in her hotel room to participate in the video conference.</p>
+<p>On the video conference screen, the faces of Federal Superpower Management Agency Director James Fuller and several staff members were visible.</p>
+<p>-Reach, report.</p>
+<p>At James Fuller's words, Diana Reach began to report on the operation in Korea.</p>
+<p>"I've secured a pretty useful psychic. And the company that's most enthusiastic about collecting psychics in Korea...."</p>
+<p>-Okay. Keep giving me follow-up reports on that....</p>
+<p>"What's the progress on Taira Ryuta's American identity? The US Army Superpower Response-Support Unit director published an article before it was even decided?"</p>
+<p>At Diana Reach's question, James Fuller shook his head as if he was also troubled.</p>
+<p>-I didn't know Cameron that bastard would publish such an article either. However, the issuance of Black Knight's identity is almost decided. We secretly contacted a few reliable families with Asian blood, and the Astor family gave a positive answer.</p>
+<p>"Astor? That's appropriate. Not too famous a family, not too prominent a family, and a reliable family."</p>
+<p>The Astor family was a military family with high loyalty to the United States, having participated in World War II and World War III. As far as Diana Reach knew, the second son had married a Korean woman twenty years ago, and they were probably planning to put Black Knight as his son.</p>
+<p>'Then is it Dante Astor?'</p>
+<p>Since the name was decided in advance as Dante, if it is confirmed that he will enter the Astor family, Taira Ryuta will receive a new name, Dante Astor.</p>
+<p>-Okay, the documents will be completely prepared in a few days, so you can go to Japan and hand over the citizenship card and passport to Black Knight.</p>
+<p>"Okay. I'll go to Japan after I'm done in Korea, so please send the passport to Japan."</p>
+<p>Since she was in Korea, she was planning to go around Japan and China to coax psychics or identify psychic organizations, so Black Knight's mission didn't conflict with Diana Reach's schedule.</p>
+<p>-Okay, I'll take care of it that way. Then let's move on to the next agenda.... Did you investigate Famine?</p>
+<p>-He was working hard recently, but he's been missing since about a month ago. Could he have gone on a year-end vacation?</p>
+<p>The next topic was Famine and Superior, a psychic supremacist group created by Famine. Famine was a brutal killer who killed tens of thousands of people in LA, but he was also the leader of Superior, an organization that gave psychics a sense of superiority.</p>
+<p>When psychics, inspired by Famine's radical ideology, gathered around Famine and the organization called Superior was formed, they weren't too worried. They thought that the rest of the psychics, except for Famine, were just mediocre.</p>
+<p>However, things changed when they started using their superpowers appropriately and causing terrorism. The North American continent and even Central and South America began to suffer from Superior's terrorism.</p>
+<p>But as in the report just now, Superior became quiet at the end of 2053. Other employees joked that it might be a year-end vacation, but Diana Reach didn't agree.</p>
+<p>"It could be a breather for a bigger operation than a vacation."</p>
+<p>-That's right. I think so too. We need to increase the surveillance personnel a little more.</p>
+<p>Jeils Fuller nodded as if agreeing with Diana Reach's claim and concluded that they would increase the surveillance personnel.</p>
+<p>______________</p>
+<p>This is Sinoe Misano's suit, underwear, and nude version illustration requested by Gojoy-nim~!</p>
+<p>First, the suit~!</p>
+<p>Underwear version~!</p>
+<p>Nude~!</p>
+<p>Kiyooot!</p>

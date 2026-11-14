@@ -5,76 +5,62 @@ weight = 1119
 chapter = 1119
 +++
 
-<p>"Next up are these items. These are the items I obtained during the New Rochelle Incident."</p>
-<p>Next was the turn for the items I looted from the corpses of the Vampire Grand Duke and the SPF New York Branch Manager. First, I should check the Sword I obtained from the SPF New York Branch Manager.</p>
-<p>The Sword had a simple, ordinary cross-shaped Design, but it sparkled with a silvery light even with the slightest Rhythmic Motion, looking incredibly splendid. Actually, I wanted to take even the unusual Armor the New York Branch Manager was wearing, but that Armor had half-melted from the Black Sage's attack, so I only took the Sword, I recall.</p>
-<p>◆The Indelible Sin[Legacy+ Weapon/Two-handed Sword]</p>
-<p>A weapon of execution against demi-humans, forged from Mount Sinai's ancient cross, the bones of a saint, consecrated silver, and Holy Water. Vampires, werewolves, and other demons in human form, if cut by this Sword, are said to suffer wounds that cannot be healed.</p>
-<p>●Grants 200% additional damage to demi-humans (demonic beasts in human form) and reduces their regeneration.</p>
-<p>●When striking a demi-human, applies the [Indelible Sin] stigma curse.</p>
-<p>●When striking a Vampire, freezes the Vampire's blood; when striking a Werewolf, adds piercing damage; when striking a Mongma, applies a [Silence] debuff.</p>
-<p>●When equipped, , , , buff spells are applied.</p>
-<p>●Prayer can be used.</p>
-<p>Since it was an Item that appeared several times in games, I knew its options, but for demi-humans like Vampires or Werewolves in human form, it was an option that would make them break out in Cold Sweat from fear.</p>
-<p>With increased base damage, regeneration nullification, stigma application on hit, additional custom debuffs for each Race, four buffs applied immediately upon equipping, and even the ability to use a Prayer, it could be called a decisive Weapon for battles against Vampires and Werewolves.</p>
-<p>"Ugh.... That's really scary."</p>
-<p>The danger of this Sword was evident as soon as I explained the options, as Otagi Yuka muttered that it was scary and moved to the back of the conference table, trying to get a little further away. For reference, the last option, Prayer, is also a type of spell, and it can be said to compensate for the shortcomings of existing spells that require various hand seals or concentration, making them impossible to combine with combat techniques.</p>
-<p>Since one can fight while muttering with their mouth, if one fights while reciting a Prayer, the magical Effect of the Prayer would be activated. Instead, because it doesn't use hand seals or mental concentration, its power is lowered, and the Prayer itself, which can be called a spell, has the disadvantage of becoming longer, but the advantage of being able to use a spell during physical combat was considerable.</p>
-<p>Of course, due to the nature of Prayers needing continuous recitation, instead of immediate magic like shooting Flames or causing explosions, they are mainly used for effects that show persistence, such as Aura, buffs, or debuffs.</p>
-<p>The Prayer , included in The Indelible Sin, gives the buff to oneself and nearby comrades, making the material of equipped Weapons treated as silver, and for Enemies who take great damage from silver, it gives the debuff, which deals greater damage when struck by a silver Weapon. It was a Prayer that generated an Aura containing both a buff and a debuff simultaneously.</p>
-<p>Honestly, I don't know where Destiny changed from, but the SPF New York Branch Manager and the Vampire Grand Duke were not individuals destined to die in this New Rochelle Incident. Perhaps my actions, in many ways, caused a Butterfly Effect, leading to the deaths of the New York Branch Manager and the Vampire Grand Duke in this Incident. I'll have to keep watching how The Situation changes.</p>
-<p>Anyway, this Sword would be an incredibly overpowered Item if I were a Vampire Hunter, but since I'm not, it seemed like a Weapon I wouldn't have much use for. If the Opponent isn't a demi-human, only the buff spell application upon equipping is useful; the rest are useless options, so there was no one to give it to, despite Otagi Yuka's fuss. And no one wanted to take it. Shimokawabe Airen, who collects Swords, might covet it, but Shimokawabe Airen did not participate in the Meeting.</p>
-<p>In Japan, there are only well-known vampire groups like the Otagi Family and the Hiren-gumi (緋蓮組) vampire organization in the underworld, so it wouldn’t be very useful. Although there are quite a few vampire forces overseas, there’s no need or reason to provoke them, so it seemed unlikely to be used much. I’ll either store it, put it up for a black market auction, or negotiate with the SPF to exchange it for an item they have in storage. After all, it’s an item with limited usefulness compared to its grade.</p>
-<p>Next were the Items left by the Vampire Grand Duke. The Vampire Grand Duke left several accessories, so I gained more from him than from the SPF New York Branch Manager. He dropped three Items: a Bracelet, a Ring, and an Earring, to the point where I actually felt a liking for the Vampire side.</p>
-<p>"Shall we look at the Bracelet first?"</p>
-<p>The Bracelet was an Item made of black Leather, with rose gold decorations mixed with gold and red colors. As it was the Vampire Grand Duke's possession, it looked quite splendid.</p>
-<p>◆Benedetto Human Skin Ornamental Bracelet[Unique+ Accessory/Bracelet]</p>
-<p>A Bracelet made by capturing, Torturing, cursing, and skinning Father Benedetto, one of the founders of the Silver Stake Alliance. It is said that the Vampires' Torture was so severe that they only obtained enough skin to make one pair of Bracelets. Vampires consider this Bracelet a Symbol of Victory.</p>
-<p>●For 10 minutes after Blood Sucking, Blood Domination increases by 25%.</p>
-<p>●Blood spells' power and range increase by 20%.</p>
-<p>●Blood Energy consumed for regeneration is reduced, and regeneration speed increases.</p>
-<p>●Prayer can be used.</p>
-<p>It's a black Leather Bracelet.... Is it made of human skin? The options themselves were perfect for a Vampire, so I passed the Bracelet to Otagi Yuka. Unlike The Indelible Sin, the SPF New York Branch Manager's Sword, which was selective about its target, this was an Item that enhanced the wearer's own Specs, so Otagi Yuka or Seiwa Rieko could use it.</p>
-<p>"Ugh.... Made of human skin? I'll have to give this to Rieko."</p>
-<p>Otagi Yuka said, 'Ugh...,' as she lightly held the Bracelet with her fingertips. Of course, she was probably giving it to Seiwa Rieko to compensate for her weaker Ability, but everyone laughed at Otagi Yuka's Words. Of course, if Seiwa Rieko had been present, she would have felt a Sense of Betrayal towards Otagi Yuka.</p>
-<p>"Next is the Earring...."</p>
-<p>After passing on the Benedetto Human Skin Ornamental Bracelet, I moved on to the next Item, the Earring. Seeing the translucent Item Description Window that appeared for the Earring, which had a very splendid red Gem attached, I couldn't help but frown.</p>
-<p>◆Isabella de Borja's Bloodstone Earring[Legacy Accessory/Earring][Damaged]</p>
-<p>The blood-red Earring of Isabella de Borja, a Saintess who fell to Corruption as a Vampire in medieval Vatican. Currently, it is Damaged and its Ability cannot be used.</p>
-<p>●Damaged and cannot be used.</p>
-<p>●Damaged and cannot be used.</p>
-<p>●Damaged and cannot be used.</p>
-<p>●Damaged and cannot be used.</p>
-<p>●Damaged and cannot be used.</p>
-<p>Oh, it was Damaged.... I don't know if the Vampire Grand Duke wore it despite it being Damaged because it was an Item of historical Value, or if it was Damaged during this New Rochelle Incident, but the Earring was a dud. Of course, it could be repaired, but Ability Users who could repair Legacy-Grade accessories were extremely rare. A few renowned individuals came to mind, but they were people who couldn't be hired with Money, so for now, I'll just store this and move on.</p>
-<p>"This is Damaged, so it has no options. I'll move on to the next one immediately."</p>
-<p>I immediately moved on to the last Item, the golden Ring. Even just by the amount of Gold, it seemed like it would be worth a considerable amount. It was an incredibly thick golden Ring, and it looked like a type of Signet Ring with a complex Pattern on its upper surface.</p>
-<p>◆Golden Blood Signet Ring[Legacy Accessory/Ring]</p>
-<p>The Signet Ring of the legendary Strigoi King, Dancescu Blaga. Documents sealed with this Signet Ring were said to carry the same authority as words spoken by Dancescu Blaga himself.</p>
-<p>○When equipped with Golden Blood, Blood Energy consumption is reduced by 40%.</p>
-<p>○When possessing the Golden Blood Trait, Blood Energy increases by 2, ignoring the maximum Blood Energy limit.</p>
-<p>○When possessing the Golden Authority Trait, if a Document is sealed with this Seal, only the designated Person can release the Seal.</p>
-<p>○Seal- Only the rightful Successor can release the Seal and uncover the secret of this Signet Ring.</p>
-<p>●Blood Sorcery and can be used without Blood Energy consumption.</p>
-<p>Oh...! It was an Item of Dancescu Blaga, the former Master of Otagi Yuka's Sword, Golden Blood. There were set Item options that Golden Blood Users could obtain, and options that could be obtained if one possessed the Trait. Otagi Yuka, as the leader of the Golden Blood Clan, could meet all the Conditions. Since she had Golden Blood and all the Traits the Ring required, she would be able to use it well.</p>
-<p>However, I don't know what the third option is. It seems there's some Secret to this Ring, and seeing that only the rightful Owner can obtain it, it seems Dancescu Blaga's Descendant or Otagi Yuka, who currently inherits the Trait, might be able to obtain something.</p>
-<p>The last option was a Crazy option that allowed two Blood Sorcery spells to be used without consumption. As Vampires always had to manage their Blood Energy, skills that consumed Blood Energy were powerful but carried a corresponding Risk. If Blood Arrow and Blood Spear could be used without Blood Energy consumption, it meant that at least somewhat weaker Enemies could be easily swept away. The Vampire Grand Duke must have worn this Signet Ring because of the last option, even though he knew the other options didn't apply to him.</p>
-<p>"Here."</p>
-<p>I held out the Ring to Otagi Yuka. This was Otagi Yuka's exclusive Item, no matter what anyone said, so I gave it to Otagi Yuka without asking anyone else's opinion.</p>
-<p>"This isn't that kind of Ring, so I won't put it on your Finger, okay?"</p>
-<p>When I said I was giving the Ring to Otagi Yuka, most of the Women present glared with Glaring Eyes, as if to say, 'Let's see how he gives it to her,' so I couldn't bring myself to put it on her Finger.</p>
-<p>"Ahahaha, what kind of Ring is that ? I get it, just give it to me."</p>
-<p>At my Words, Otagi Yuka chuckled, and held out her Hand as if asking me to place the Ring on her Palm. I placed the Ring on Otagi Yuka's Palm, as everyone (expected?).</p>
-<p>"Well then, the Item check is finished.... The Reward received as Money hasn't come in yet, so let's talk about that when it does."</p>
-<p>Currently, the Federal Superpower Management Bureau is very busy, and perhaps due to Settlement and tax issues, they said they would give the Money around next week, so the Meeting regarding what was obtained in the USA was concluded.</p>
-<p>"Then, everyone but Linling, you are dismissed."</p>
-<p>"I'll have the Meal ready, so finish quickly and come, Older Brother~!"</p>
-<p>"Ryuta-ssi, thank you for the Ring! Next time, put it on my Finger!"</p>
-<p>"Teacher-nim, I'll prepare a Ring that suits my mechanical Hand too!!"</p>
-<p>At the Words to leave, with only Linling remaining, the Subordinates left noisily, each saying One Word. I waved my Hand as if telling them to hurry and leave, and soon, only Linling and I remained in the conference room.</p>
-<p>After confirming everyone had left, I took out a universal connector from my pocket. It was the universal connector containing the data that Phantom Thief François had stolen from Taira's secret Laboratory, which I had received from Arisu.</p>
-<p>Otagi Yuka B-cut~!</p>
-<p>I didn't input a clothes prompt, just wanted to check the Intimate Posture, so she came out in this Attire kkeuk kkeuk kkeuk</p>
-<p>Requested by Gojoy-nim: Yukiko giving a speech on the podium~! Chapter 56 Remake Chieri~!</p>
-<p>Yukiko~!</p>
-<p>Chieri~!</p>
+<p>"Then, from when and where should I go to work?"</p>
+<p>As I was preparing to leave after finishing the meal, Aizawa Sora asked, and I thought deeply for a moment before opening my mouth.</p>
+<p>"Since you are taking care of Sato-ssi, I will give you enough time. As you have agreed to take charge of my personal legal team, you can go to work at Hatake Investment Company."</p>
+<p>Sato Koji's life was not much left, so I decided to give Aizawa Sora enough time. And anyway, Taira Food distribution, where I am the Boss, has its own legal team, so Aizawa Sora decided to form a legal team affiliated with Hatake Investment Company.</p>
+<p>Sato Koji recommended good people from his connections, and Aizawa Sora also said she would bring people she could work with, so creating the legal team seemed like it wouldn't be a big problem.</p>
+<p>"Then, I look forward to working with you from that time."</p>
+<p>"Yes, let's do well from now on."</p>
+<p>Aizawa Sora offered a handshake with a slight smile, so I took Aizawa Sora's hand and gave a greeting of "I look forward to working with you." As I was about to leave Sato Koji's home, something I was curious about suddenly came to mind, and I turned my head towards Aizawa Sora and looked at her.</p>
+<p>"Aizawa-ssi, what was written on Shinonome-ssi's letter of recommendation?"</p>
+<p>I was curious what was written on Shinonome Mio's letter of recommendation that made her agree to work under me without even worrying, so I asked the reason.</p>
+<p>"What Mio wrote was that my purpose and Ryuta-ssi's goal would align."</p>
+<p>I don't know what that means.... For now, it means what we both want is similar, right? Since she didn't seem inclined to tell me even if I asked more deeply, I replied, "Is that so? It will definitely be so," and left Sato Koji's home.</p>
+<p>For reference, Tosen Nobumichi said he wanted to talk a bit more with his old friend Sato Koji, whom he met after a long time, so he decided to stay overnight. Since Sato Koji's life is not much left, he probably thought there wouldn't be another opportunity to talk for so long.</p>
+<p>On the way back to Neo-Tokyo with Tsukiyo, I told her about the conversation I just had with Aizawa Sora.</p>
+<p>"Shinonome Mio is aware of Older Brother's ambition to become the Master of Taira. If so, you will eventually have to fight Taira Ichiro, and Aizawa Sora, whose husband was assassinated by Taira Ichiro's side, can achieve revenge if she helps Older Brother."</p>
+<p>Ah.... So that's what it meant, that Aizawa Sora's purpose and my goal would align. Well, it wasn't wrong. Whether it's Taira Jiro, Ichiro, or Kokoro, I'll have to have a match someday. Even Taira Kanna, too.</p>
+<p>"Was it that obvious?"</p>
+<p>My question was whether my intention was being revealed to the extent that Shinonome Mio, who was living in seclusion at home to the point of being treated as a Cripple, would notice.</p>
+<p>"Since she was Older Brother's father's strategist, she must be smart. Everyone is underestimating Older Brother, so they don't notice, but look at Older Brother's actions. He's expanding his power by starting new businesses, and if you look at him going around looking for talent, it's like the movement of a Lord expanding his power during China's Three Kingdoms period or Japan's Sengoku period."</p>
+<p>I see. Especially Shinonome Mio, without underestimating me, Taira Saburo's son, was looking directly at me, and since she herself was the target of talent acquisition, it seemed she quickly noticed my intention.</p>
+<p>Then.... Among the five people Goishihara Shoji recommended, two are acquired, and Shinonome Mio is still being attempted.</p>
+<p>Number 4, Abe Katsuji, who is affiliated with Taira Recycling, is on hold because he might have been influenced by Taira Jiro, and the last one, Arie Kurada, who is said to be Taira Saburo's research manager, is missing, so locating this person must come first. For now, all personnel who could be obtained from the recommendation list have been acquired.</p>
+<p>Of course, I need to check if Abe Katsuji really is Taira Jiro's suck-up, and I need to find Arie Kurada, but the two people who can be acquired right now seem to have been acquired.</p>
+<p>"Today's schedule is over, what's the next schedule?"</p>
+<p>"Did you forget? It's the start of Zenith Force's new employee open recruitment."</p>
+<p>Now that the acquisition of two legal professionals is complete, only the recruitment of combatants remains. This can also be called a form of talent acquisition.</p>
+<p>My new PMC, named Zenith Force, will begin recruitment tomorrow.</p>
+<p>I'm thinking of creating an assault team, centered around Athena Mannerheim and the Anyaji martial artists who completed combat training, a mechanical infantry team, centered around Saionji Diana and cyber-implant mechanical soldiers, and lastly, a team made up of superhumans. But for now, I haven't been able to decide who among the superhumans under me to appoint as Team Leader, so the superhuman team was still a worry.</p>
+<p>The Seryutai are excluded because they have strong bonds with each other, so they can't be taken away, and the other superhumans either have assigned tasks, or future plans, or have personalities unsuitable for a Team Leader, so there was no Ability User to appoint as Zenith Force's Team Leader.</p>
+<p>If this is the case, I'll have to look for another superhuman.... Still, I intended to recruit superhumans. Anyway, it didn't seem like enough superhumans would come to form a team by PMC standards, and I could keep them as support within the assault team and mechanical infantry team, and if I found talent suitable for a Team Leader, I could then form a full team.</p>
+<p>"Zenith Force and Mars Burger viral marketing, are they going well?"</p>
+<p>Because our faction includes AI Linling, Lara Sinclair, and Eve, promotion was no problem at all. The fact that TG Tech's energy guns were selling well was also entirely due to online promotion.</p>
+<p>So, this time, I entrusted the new recruitment for Zenith Force and the promotion for Mars Burger's entry into Japan to Linling and Lara Sinclair, and I asked if it was going well.</p>
+<p>"Mars Burger is actually a franchise that's really taking off in the USA, so they say there's no problem, but Zenith Force's side is difficult."</p>
+<p>At Tsukiyo's words, I nodded my head. Anyway, promoting a burger franchise that would take off even if left alone and promoting a new, unheard-of PMC definitely had a big difference in difficulty.</p>
+<p>Moreover, because the Master's name for the PMC is 'Taira' Ryuta, promotion must be done only to the extent that it doesn't become a threat to the uncles and aunts competing for succession, so the difficulty was much higher.</p>
+<p>"Well, this time Older Brother said he would prioritize recruiting people without limbs, so the Taira successors probably won't feel threatened...."</p>
+<p>Was she reading my thoughts? It was Tsukiyo who immediately said the successors wouldn't feel threatened. Because the assault team, made up of Anyaji remnants, was already complete, this new recruitment was scheduled to target disabled people who are cyber-implant recipients without limbs.</p>
+<p>Saionji Diana, traveling nationwide, scouted skilled individuals of squad leader level for the mechanical infantry team and had already appointed them before recruitment, but because general combatants were also needed, quite a few people were expected to be recruited this time.</p>
+<p>The viral team's goal was, even if the recruited individuals were disabled, to make Zenith Force not look weak, while also not being threatening enough to become a target for the Taira successor group or the Minamoto side, so subtly promoting it was an extremely difficult operation.</p>
+<p>"Even if it's difficult, it'll be okay, Older Brother, because there's Plan B!"</p>
+<p>Plan B was to rather package it as a charity business conducted by Taira III for disabled people. This side would underestimate Zenith Force's combat power, and its business viability as a PMC would be weakened, but considering the upcoming succession war or the fight with Minamoto, it was decided based on the judgment that it's better for them to underestimate us, even if Zenith Force's business viability is weakened.</p>
+<p>If the opponent underestimates us, a big opportunity will come once, so we might be able to use it in the future.</p>
+<p>"So tomorrow will be busy too. Because they're recruiting disabled people, even those without limbs, there are a huge number of applicants."</p>
+<p>8 years since World War III ended, and even after the war ended, small-scale conflicts continued, so more than one would think, there were many people who had lost one of their limbs. But a man with the surname Taira said he would recruit such people as PMC, so it was natural for people to flock.</p>
+<p>The government was almost ignoring those injured in the war, and since they had no limbs, they couldn't even do proper work. So although it was a company without the Taira name, since the company's Boss was Taira, countless people had applied with the thought that they could receive at least a basic salary.</p>
+<p>"If people flock, it's good for us. Because we can recruit that many talents."</p>
+<p>Zenith Force's new employee recruitment this time was about one hundred plus or minus twenty people. Since about one hundred fifty thousand people applied this time....</p>
+<p>"If we recruit the maximum of one hundred twenty people, it's 1,250 to 1, Older Brother."</p>
+<p>"Are you reading my thoughts, really?"</p>
+<p>Perhaps because she's an Outer God, Tsukiyo felt like she was reading my thoughts without hesitation. I wondered if this would be a problem, but seeing that there have been no particular problems so far, it seemed fine.</p>
+<p>"Older Brother is connected to me. It would be a problem for others, but for Older Brother, thoughts flow in naturally, so it's fine. And deliberately ignoring what is heard doesn't make sense either."</p>
+<p>"If it's okay, that's fortunate."</p>
+<p>Before, some causality problem arose, and I was worried because I was told that if I couldn't use my power properly or used it, I couldn't stay in this world anymore, but reading my thoughts seemed to be okay. But despite my relief, Tsukiyo, with a slightly serious expression, opened her mouth.</p>
+<p>"First, more than my story, the problem is elsewhere."</p>
+<p>The problem is elsewhere? Is there something I'm not thinking of?</p>
+<p>Requested by Gojoy-nim: Yukiko entering the social hall in Chapter 66 and Chapter 66 illustration remake~!</p>
+<p>Yukiko entering the social hall~!</p>
+<p>Chapter 66 illustration remake~!</p>

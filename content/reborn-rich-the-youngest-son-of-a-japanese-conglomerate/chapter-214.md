@@ -5,84 +5,58 @@ weight = 214
 chapter = 214
 +++
 
-<p>Contains explicit content + explicit illustrations. Watch your surroundings carefully!</p>
-<p>Nagumo Sian's pussy was tight like a virgin's, with a pressure that felt like it was pushing my dick away. Of course, it was also an incredibly pleasurable pussy. Moreover, even if I just slightly flicked my hips, her love juices would burst out with moans, making it seem like it was an incredibly sensitive pussy. In short, it was a top-tier pussy.</p>
-<p>I fondled Nagumo Sian's breasts with my hands, enjoying the soft and fluffy sensation, while simultaneously enjoying the stimulation from Nagumo Sian's virgin pussy with my dick. Yeah, is there any other paradise? This is paradise right here. Feeling such pleasant sensations with both my dick and hands at the same time made me feel the best.</p>
-<p>, "Heuaaang, haaeung...! Ryuta, hheung...! I feel, heeung, strangeee~♥"</p>
-<p>"It's not that you feel strange, it's that you feel good. Now, repeat after me. Ryuta's dick feels good."</p>
-<p>"Haeung...! Ryuta's dick, feels goooood, haaang!"</p>
-<p>"Sian-nunim's pussy feels good too."</p>
-<p>"Haeueut♥"</p>
-<p>The feeling of coloring Nagumo Sian with my colors one by one gave me a great sense of conquest. Even if Taira Danjo, the president of Taira Foods who controlled Akita and my father's mentor, came, the fact that the woman with whom he had a connection was not only a virgin but also did as I told her during sex doubled my excitement.</p>
-<p>"Haeut, haaeung, feels good, Ryuta's dick feels goood, haang♥"</p>
-<p>She was still repeating the lines I taught her, raising her own excitement. I was simply thrusting in various angles and depths, looking for Nagumo Sian's weak spot.</p>
-<p>"Heeunghat! Haeut! Ah, eunghut...! Hyaaaeung!"</p>
-<p>Ah, this was her weak spot. Stimulating slightly below her cervix made her twist her body and become so excited that the skin all over her body turned red. A lot of sticky love juice was coming out of her pussy, and the inside of her pussy was wriggling wildly, stimulating my dick.</p>
-<p>"Euheot, hheuek, heoeok...! Strange, stran, no, feels goood, good, Ryuta...! Heungheut! Hheueuunghut~!!!!"</p>
-<p>Nagumo Sian, who had reached her peak from the continuous weak spot attacks, rolled her eyes back, stretched her legs wide, and trembled all over. I hugged Nagumo Sian tightly and continued to shake my hips.</p>
-<p>"Euheok, I.... Heeung! I feel like I'm going to go crazy, stop, haaeung! Hheueu, hheung♥ Stop! Haeung! Heeung!"</p>
-<p>Nagumo Sian said to stop, hugging my back tightly and scratching my back with her fingernails. I don't know if pulling my butt with her calves means to stop or to continue.</p>
-<p>I am the type of person who believes in actions rather than words, so I continued to shake my hips. Perhaps because of that, Nagumo Sian seemed to be going increasingly crazy. The relentless pleasure seemed too much for Nagumo Sian, who was a virgin until 30 minutes ago, to handle.</p>
-<p>"Hheeut...! Oook! Heungheut! Haeut!"</p>
-<p>Before Nagumo Sian, who was only intermittently uttering death throes, completely lost her mind, I stopped the piston movement and left my dick inside Nagumo Sian's warm pussy as it was for a while, waiting for Nagumo Sian to get used to it.</p>
-<p>After waiting for a while, Nagumo Sian's heavy breathing calmed down and her rolled-back eyes returned to normal. I looked at Nagumo Sian affectionately and opened my mouth.</p>
-<p>"Are you okay now?"</p>
-<p>"Yeah, I thought I was going crazy a moment ago. I didn't know there was such pleasure before."</p>
-<p>"Then now, I'll move without stopping until I cum."</p>
-<p>"Aahng♥ Then I'll go crazy again soon...!"</p>
-<p>I ignored Nagumo Sian's words, which I didn't know whether were a refusal or an agreement, and moved my hips again. It was a fast and rough movement solely for the purpose of cumming.</p>
-<p>If I continued to be gentle because it was her first time, it seemed like it would take too long and put too much strain on Nagumo Sian, so I prioritized my own cumming and moved greatly.</p>
-<p>"Hheeut, feels good! Ryuta's dick, feels heut! so good♥"</p>
-<p>"I'll keep making you feel good."</p>
-<p>Nagumo Sian heated up again as if she had never calmed down. Love juice was still being produced due to the stimulation, and it didn't seem like it would dry out and hurt at this point.</p>
-<p>Since I had been thrusting into Nagumo Sian's virgin pussy, which had been an A-grade pussy that felt good from the beginning, I prioritized cumming and moved, and I quickly felt the urge to cum.</p>
-<p>"Nunim, I think I'm going to cum! Where should I cum?"</p>
-<p>"Heeung♥ Inside, give me your semen inside! Inside...!"</p>
-<p>Yeah, it's her first sex, so it's polite to ejaculate inside rather than outside. There would be no problem even if I ejaculated several times a day, but since I hadn't been able to do it for several days, a huge ejaculation was waiting.</p>
-<p>"Heuheuk! I'm cumming! Nunim!"</p>
-<p>"Hheueeung! Inside, inside, euheut! Something hot is coming in♥ Hheuhyaaahaat♥"</p>
-<p>Gush! Gush! Gush! Gush!</p>
-<p>Perhaps because it was a huge ejaculation, my vision turned white due to the pleasure. I filled her womb so full that the semen was about to flow back. Due to the exhaustion immediately after ejaculation, I collapsed on top of Nagumo Sian as if falling. Nagumo Sian also seemed very satisfied and hugged my collapsed body tightly.</p>
-<p>"Hheung♥ Heavy~."</p>
-<p>"Grab my neck once."</p>
-<p>"Euheung, I will~♥"</p>
-<p>As Nagumo Sian, who was acting cute while saying it was heavy, grabbed my neck, I also grabbed Nagumo Sian's waist and butt and flipped her over. Now I was lying down below and Nagumo Sian was lying on top of me. Of course, my dick was still inside Nagumo Sian's pussy.</p>
-<p>I stroked Nagumo Sian's hair and enjoyed the afterglow. Nagumo Sian also pressed her large breasts against my chest and gave me a massage (?).</p>
-<p>"Nunim, can I ask you something?"</p>
-<p>"Are you talking about me being a virgin?"</p>
-<p>As expected, she's quick-witted. There's a reason why she became a president as a woman. Moreover, she's been reigning for so long that she's called the godmother in Akita Prefecture, so her intuition and various abilities must be far superior to others.</p>
-<p>"I married into the Ishii family, who were large landowners in Akita Prefecture. However, the problem was that my husband didn't have much time left to live. The Ishii family gave money to my family and brought me in to get an heir before my husband died, and I was married off like that."</p>
-<p>Ah, a marriage to continue the lineage.... Even though it's the old days (considering my possession, it must be not too distant past), I was surprised that such a thing existed in modern times.</p>
-<p>"So? But you still have to have sex with your husband to get an heir."</p>
-<p>"That's right. I had to, but the problem was that my husband was too weak to even get his thing up."</p>
-<p>Ah, I see. How weak was he? He couldn't even get an erection.</p>
-<p>"Before a year had passed, my husband died, and I abandoned the Ishii surname and left the Ishii family in exchange for a considerable amount of money, not aiming for the inheritance. As I left, I changed my surname from Ishii back to my original surname, Nagumo."</p>
-<p>Ah, even if her husband died, it wasn't a divorce, so she would have rights to the Ishii family's property. Her in-laws must have been worried about that point and gave her some money to give up.</p>
-<p>This solved the question of why Nagumo Sian was still a virgin.</p>
-<p>The answer was that she met a weak husband who couldn't even get his dick up, and her husband died quickly, so she remained a virgin.</p>
-<p>"After that, the Ishii family adopted and raised a child from a distant relative, but I don't know what happened after that because I didn't care. I used the money I received from leaving the Ishii family to start a small food company called Kanmido (Sweet Shop) and grew it into a large company. When I grew Kanmido to a certain extent, your grandfather, Danjo-oraboni, came and took over Taira Foods."</p>
-<p>Amazing. It was like a novel, where a female president grew a company into a large one, and the chairman of a global company came to headhunt her.</p>
-<p>I heard that Nagumo Sian then met Taira Danjo's expectations and raised the market share, which had been far behind Minamoto Foods, to an equal level.</p>
-<p>"But...."</p>
-<p>"Yes?"</p>
-<p>"Hheeut, how long are you going to keep it in?"</p>
-<p>As we were talking, my dick became proud again because of Nagumo Sian's virgin pussy, which kept munching and sucking, and it seemed to be exciting Nagumo Sian again. In the end, we were exciting each other.</p>
-<p>"I'm going to keep it in until I cum again."</p>
-<p>"Eunghheeut! It's already late, I have to wake up and go to sleep♥ It shouldn't get this big, aahng♥"</p>
-<p>What's with shaking her butt while saying no? It's subtly stimulating, so my dick is getting harder and harder. I also flicked my hips slightly, exciting Nagumo Sian more and more.</p>
-<p>"If you don't want it, you can just get up and pull it out. If you pull my dick out of your pussy, I'll just go to sleep."</p>
-<p>"Heeung, pulling it out is easy...."</p>
-<p>Nagumo Sian raised her upper body, which had been lying on top of me, and slowly lifted her hips in a sumo squat position. However, as she lifted her hips, my glans naturally brushed against the inside of Nagumo Sian's narrow vagina, stimulating her, and she had no choice but to sit down again quickly.</p>
-<p>"Hyaaahng! If it feels this good, I can't take Ryuta's dick out forever, haang♥"</p>
-<p>"Are you going to give up with just one try? Try again."</p>
-<p>She couldn't even pull it out halfway a moment ago and sat down because of the pleasure, but this time, with a determined expression on my words, she lifted her hips again and started to pull my dick out of her pussy.</p>
-<p>"Heung, hheung.... Hheeut!"</p>
-<p>She endured her moans as much as possible and pulled it out almost to the glans, but when I lifted my hips sharply as if flicking them and thrust my dick deep into her pussy again, Nagumo Sian collapsed as it was.</p>
-<p>"Hheuaaang~! How can you do this?"</p>
-<p>"Let's just cum one more time and sleep refreshed?"</p>
-<p>"Okay. I'll quickly.... Eunghut! Squeeze out your semen♥"</p>
-<p>I explained that the movement I just made up and down was called cowgirl. As expected, Nagumo Sian was also an excellent student in sex, and after listening to my explanation, she was able to skillfully and lewdly shake her hips to exploit my semen.</p>
-<p>Of course, I didn't end it there and did it from behind and then did the missionary position again, knocking Nagumo Sian out completely after doing it three more times. It couldn't be helped because it had been a while. I had to discharge the overflowing semen I had collected for several days somewhere.</p>
-<p>------Unused illustrations.</p>
-<p>Nagumo Sian's breathtaking back view</p>
-<p>Comparison of drawing styles</p>
+<p>After the short Villa vacation with Yukiko ended, I, who had returned to the Talent Development Institute Home, just then, a Gun from the Black Market had arrived, so I immediately gave it to Yukiko as a gift. Yukiko opened the box and looked inside, then she was incredibly happy and jumped into my Arms.</p>
+<p>"With this, protect Yukiko-ssi's Body."</p>
+<p>"This is the first time I've received such a romantic gift...!"</p>
+<p>She likes it more than the ring I gave her on this trip? It seemed Yukiko's Character was gradually changing in a slightly strange way. In my mind, Yukiko felt like she had become a somewhat strange person: a Gun enthusiast who liked a smell fetish and enjoyed dressing me in a School Uniform.</p>
+<p>Well, she's pretty, has a good physique, likes me, and I like her too, so I don't really care that much. Isn't this kind of understanding true love?</p>
+<p>"When Ryuta goes to the USA, I'll have to build a Marksmanship range next to the Home in the meantime."</p>
+<p>Yukiko boldly declared that she would undertake Construction for Marksmanship during my last schedule of the vacation, the trip to the USA. Just how obsessed is she with Marksmanship?</p>
+<p>Well, there was quite a large plot of land next to the Home, and with today's technology, even if a Marksmanship range is built inside the Talent Development Institute, there won't be any noise outside. The Marksmanship she did during the vacation must have been incredibly fun. That's fortunate.</p>
+<p>Yukiko said she had to handle building the Marksmanship range and the Talent Development Institute's Work, and as soon as she returned from the Travel, she went to the CEO's Office, and I gathered the remaining Black Market Items and went into my Room.</p>
+<p>The things bought from the Seoul Black Market and Pyongyang Black Market were ancient books that could be called cultural assets and cyber implants that could be used as Weapons, so they had to take a slight detour to arrive, thus arriving later than the liquor and snacks that merely looked like fruit.</p>
+<p>I first checked the Secret Manuals I had bought in Seoul.</p>
+<p>◆Goksan Papung Sword Method (谷山波風劍法) [Unique Swordsmanship Secret Manual] A Swordsmanship created by a Swordsman from Goksan (Valley Mountain). That Swordsman later received the Title of Sword Master.</p>
+<p>A Sword Master from Goksan? I don't know what that means. Wondering where Goksan was, I searched for it, and it was the name of a region in North Hwanghae Province, an old North Korea area.</p>
+<p>Just in case it would appear if I searched, I searched for "Goksan Sword Master," and Cheok Jun-gyeong, famous as the "Sword Master of Goryeo" meme, appeared. Yes, this much is acceptable.</p>
+<p>The Secret Manual itself was good, but the regrettable thing was that there was no one around me who used Swordsmanship.</p>
+<p>The closest thing to Swordsmanship was Katayama Junichi of Seryutai practicing Dagger Swordsmanship, but Katayama Junichi's main was firearms, and Daggers were only a sub, so it would not be very useful for Katayama Junichi either.</p>
+<p>Oh, right! Come to think of it, Alexandra Smirnova used a Sword when she was a mid-Boss in the Game. Then it seemed I could have her learn this. I don't know what Swordsmanship Alexandra Smirnova used when she was a mid-Boss, but since the Goksan Papung Geombeop I bought from the Black Market is also a Unique-grade Swordsmanship, it wouldn't fall behind much.</p>
+<p>◆Palgeuk Seonhyeong Fist (八極仙形拳) [Legacy Fist Technique Secret Manual] A Fist Technique modeled after the forms of eight Immortals who reached the extreme. If one understands and unfolds all forms, it is said that one can reach the Realm of an Immortal.</p>
+<p>Ah~ It's not 'Palgeuk' Seonhyeong Fist derived from Palgukgwon, but 'Palgeukseonhyeong' Fist. Perhaps the Eight Immortals are the Eight Immortals of Taoism (道敎八仙) mentioned in China. It was a Legacy-grade Secret Manual, one level higher than the Goksan Papung Geombeop. Seeing that it says one can reach the Realm of an 'Immortal', it seemed to be a Fist Technique that could lead to the Realm of a Superhuman, transcending humans.</p>
+<p>Fortunately, there were many people to give the Fist Technique to. I could give it to Mimata Chieri, who seemed to have quite a Talent for Fist Technique, or to Kiyohira, who was constantly training to become stronger. I'll read it a bit and give it to the one who suits it better. Since it's in Chinese characters, it might take some Time to translate and read, but these days, translation programs are so good in quality that if I put my mind to it, I could translate it quickly.</p>
+<p>After organizing the Secret Manuals I bought in Seoul, the Centipede Spine SA-A091SGF and Prosthetic Eye R-Z001, as well as the Cyber Prosthetic Hand 40F-5044 and Cyber Prosthetic Leg 甲-092乙77 I got in Pyongyang, I was already familiar with their abilities, so there was no need to examine them individually. I just checked their names and forms to make sure they had arrived correctly and then put them back in the box. One day, there would be work for them.</p>
+<p>After checking all the Items that came from the Black Market, I lay down on the Bed and fell asleep. For 4 nights and 5 days, I had dealt with Yukiko during the day and Evening, and Tang So-hwa and Yang Seol-hui during the night and Dawn, so I had only slept for about two or three hours, and needed to get some Sleep.</p>
+<p>For several days before going to the USA, busy days continued. Most of it was due to Work related to the Mithril mine, I interviewed several mining Experts introduced by Shinone Misano at my Request, recruited two of them and sent them to Daisen-shi, Ehime Prefecture, where the mine was located, and to hire new laborers, I had to send Jinmija Yeosa, the head of Hatake Investment Company, along with the mining Experts.</p>
+<p>Besides the Mithril mine Work, I also prepared for the USA Travel and observed Seryutai's Training. Everyone looked grimy, perhaps because the Training was hard, but perhaps because the Meals were better than when they were under the Slave Trader, their emaciated Appearance had disappeared, and they had gained a little flesh.</p>
+<p>Especially Alexandra Smirnova, despite being 19 years old, past her growth spurt, seemed to have grown somewhat in a short period I hadn't seen her, once she received nutrition. Her Height had increased slightly, and her breasts had become fuller.</p>
+<p>Indeed, in the Game, she was a curvaceous Russian Older Sister, so there was quite a discrepancy with her cute Appearance from a while ago.</p>
+<p>Perhaps because I came and they received a day of Rest, all the Children welcomed me. When I asked what they wanted to eat, everyone had different Answers, so I just took them to a buffet, and they all ate well.</p>
+<p>As an Investor holding most of the Shares in Seryu Military Company, I received a Report from Sawayanagi Azuma, and at Konoe Akina's Request, when I asked about Sawayanagi Sinya, who was not present, she said the Work was not yet finished.</p>
+<p>I wonder how the Konoe Family's Head of family War will turn out. My introduction of Sawayanagi Sinya meant that I could also help militarily using Seryutai, but seeing that there was no particular Contact, it seemed that significant military force was not yet needed.</p>
+<p>After the buffet Meal, everyone gathered and had a heated Discussion about where to hold Seryutai's get-together. The 'hotel stay' faction, the 'Sea' faction, and the 'stream' faction were divided, but I had seen enough of the Sea during my Travel with Yukiko, and there were plenty of Hotels in Korea, so I sided with the stream faction.</p>
+<p>For some reason, when I sided with the stream faction, Sawayanagi Azuma and a few others who were part of the Sea faction switched to the stream faction, so in the end, the 1st Seryutai get-together was decided to be at the stream.</p>
+<p>After spending a day with Seryutai like that, I continued to prepare for my USA Travel along with Work.</p>
+<p>Oh, what happened to Tang So-hwa and Yang Seol-hui? They both immediately returned to Akita Prefecture, took the Prisoners of Kurotsukidoo, and seized all of Kurotsukidoo's Branches throughout Japan.</p>
+<p>And leaving Japan to Yang Seol-hui, Tang So-hwa alone went to Korea, where Kurotsukidoo's Northeast Asia Branch was located, and transferred all property, Buildings, land deeds, etc., into her own name. She was said to have completely brought all the still-intact Korean Kurotsukidoo troops into her own faction with powerful Charisma.</p>
+<p>Only a few days had passed, yet it was amazing how swiftly she acted to seize control of Kurotsukidoo's forces in Korea and Japan.</p>
+<p>According to Tang So-hwa, if it hadn't been resolved quickly, everything would have been absorbed by the newly arrived Branch Chief, so it was a race against Time to see who moved faster.</p>
+<p>While releasing Tang So-hwa and Yang Seol-hui, when I asked how much initial Money they needed, they said they could just take the Money from Kurotsukidoo's Northeast Asia Branch, and only requested a certain amount of operating funds, I didn't expect them to actually divert all of the Northeast Asia Branch's property to themselves.</p>
+<p>Anyway, since they both did well, I could prepare for the trip to the USA without needing to pay special attention to them. If I had been busy with other Work and also had to worry about Kurotsukidoo's Work, I would have had to handle tasks without any Rest, so it was fortunate.</p>
+<p>Nikolai Yang, the Vice-Head of the Black Moon Sect, as his name suggested, was of Russian Mixed Blood. He was a giant, reaching 215 centimeters, a muscular brown-haired Man with forearms as thick as a normal person's waist, his hair cut short and swept up. Unfitting for his Size and Impression, he wore Gold-Rimmed Glasses with thick lenses.</p>
+<p>Although he looked menacing, as if his fist would go out first in any Matter, he was a cautious strategist-style Man who didn't show his Emotions well and used his Brain first.</p>
+<p>"Tang So-hwa does not seem to be dead. I don't know if she escaped while being a Prisoner, or if she was hiding somewhere, recovered, and then reappeared, but she diverted all of our Group's Assets in Japan and Korea and killed the newly dispatched interim Branch Chief."</p>
+<p>Nikolai Yang's Appearance showed no change in Expression even at his subordinate's Report. Nikolai Yang tapped the desk with his large finger and thought for a Moment.</p>
+<p>Tang So-hwa had no backing, and many Enemies within the Black Moon Sect. Even if she returned after being captured as a Prisoner, she would have been Purged using this as an excuse. So it seemed she was making a last desperate struggle.</p>
+<p>Tuk-tuk-tuk.</p>
+<p>For a long Time, Nikolai Yang's regular tapping on the desk was heard. At a certain Moment, Nikolai Yang stopped his finger.</p>
+<p>"Where is the Execution Unit of the Shadowless Ghost now?"</p>
+<p>"They went to deal with the New York Branch Chief. It will probably take a week."</p>
+<p>Nikolai Yang, who had slowly nodded his Head at his subordinate's Answer, immediately opened his Mouth.</p>
+<p>"Then Tang So-hwa's life also has a week left. The Northeast Asia Branch's property can be brought back to us once Tang So-hwa dies."</p>
+<p>Although Nikolai Yang possessed military power among the top few in the Black Moon Sect, his Compatibility with Tang So-hwa, who used Poison, was not good. Therefore, he intended to entrust Tang So-hwa's disposal to the Shadowless Ghost, who had good Compatibility with Tang So-hwa and was originally tasked with eliminating internal Bae-sinja.</p>
+<p>"Understood. I will immediately Contact the Execution Unit."</p>
+<p>"Then let's move on to the next Matter."</p>
+<p>"Yes, the next Matter is about the New York Branch Chief, who was just mentioned...."</p>
+<p>Nikolai Yang, who decided to kill Tang So-hwa, the massive Branch Chief of the Northeast Asia Branch, as if clearing a Trash Can, immediately focused on the next Matter his subordinate spoke of. In Nikolai Yang's Mind, there was no longer any thought of Tang So-hwa. This was because Tang So-hwa was already a dead Person to Nikolai Yang.</p>
+<p>------ Han Yu-gyeong made in 2.8D! Live-action VER with the same prompt Live-action is difficult, perhaps because I don't work with it often ㅠㅠ</p>

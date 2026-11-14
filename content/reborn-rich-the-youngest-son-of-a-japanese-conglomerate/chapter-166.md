@@ -5,85 +5,87 @@ weight = 166
 chapter = 166
 +++
 
-<p>There are both lewd content and lewd images! Be mindful of your surroundings!</p>
-<p>"Haa, haa! Ryuta-hang...! I love it so much, I love you♥"</p>
-<p>Before I could even figure out what was going on, I was watching Arisu riding Ryuta, so to speak, moving her hips rhythmically as if she were on horseback. First, I need to punish(?) these three who drugged(?) me with my dick, and then ask them what's up.</p>
-<p>Arisu apparently learned horseback riding since she was young, and it showed in how skilled she was in the cowgirl position. She moved her hips so flexibly and rhythmically, just like riding a horse. If you added the sound of horse hooves as background music, some people might think it's a Western movie. Instead of attacking right away, I subtly amplified Arisu's pleasure by slightly lifting my hips as she moved up and down.</p>
-<p>"Haaah!! More, more good jyoaang!!"</p>
-<p>Pwit pwit!</p>
-<p>Arisu, seemingly having an orgasm, trembled in her thighs and pulled out my dick, at which point she shiofuki(しおふき)ed, spraying water all over my body. Hmm, warm. Now, it was time for me to step in.</p>
-<p>I raised my body, flipped her over, pinned Arisu underneath me, and inserted my dick into her pussy, which was still twitching from her orgasm. Arisu's pussy rubbed, licked, and sucked my dick like a living creature. Perhaps because my dick had cooled down while it was out, I felt a pleasant warmth inside Arisu.</p>
-<p>"Kyaaak! Ryuta, I just came...! Heuaaahaang!! Heuhaang!"</p>
-<p>"I heard that having multiple orgasms feels amazing."</p>
-<p>"Haeuuht!! I hate it♥"</p>
-<p>It felt even better than before, probably because I was inside Arisu's pussy, which was already contracting and relaxing from her orgasm. The inside of her pussy was already slippery with overflowing juices, making it easy to do piston movements.</p>
-<p>Arisu's white skin flushed pink with a pleasure that was on a different level than during the cowgirl position. It felt like orgasms were coming and going like waves. I guess having sex with Simyeonui ttal (Daughter of the Abyss) for countless hours on the island evolved my sex skills and traits, making it easier to elicit pleasure. I think this message popped up back then.</p>
-<p>Taira Ryuta's penis has been soaked in the virgin blood and juices of the abyssal being [Simyeonui ttal (Daughter of the Abyss)]. The trait Golden Pillar evolves.</p>
-<p>Due to prolonged exposure to special circumstances, the skill Golden Pillar Bedroom Arts evolves.</p>
-<p>I'm sure that message popped up, and when I checked it on the plane back, it had definitely changed. Because it was an evolution, the name itself had changed.</p>
-<p>◆Golden Pillar [Unique Legacy Trait] → Crimson Flesh Pillar Swimming in Juices [Legendary Trait]</p>
-<p>Taira Ryuta's tip has impudently violated the virginity of Simyeonui ttal (Daughter of the Abyss). His penis remains physically the same, but fundamentally, the achievement of violating the virginity of a transcendent being remains. Greatly amplifies the partner's pleasure during intercourse and elicits the partner's favor, obedience, and affection. You can gain experience during intercourse, and the proficiency of learned skills also increases slightly.</p>
-<p>As it changed from a Unique Legacy Trait to a Legendary Trait, in addition to the existing Golden Pillar's abilities of increasing favor and gaining experience, it gained pleasure amplification, obedience and affection increase, and a slight increase in the proficiency of learned skills. The name became strange, but that didn't matter at all considering the tremendous enhancement of the options.</p>
-<p>So, for example, doesn't that mean that even just having sex increases the proficiency of telekinesis? That's amazing.</p>
-<p>Next was the evolution of Golden Pillar Bedroom Arts, which was also amazing.</p>
-<p>◆Golden Pillar Bedroom Arts [Epic Skill] → Black Maitreya Gong [Unique Legacy Skill] Lv1</p>
-<p>A bedroom qigong practiced by the Yin-Yang Demon, a superhuman from another dimension. The pleasure felt by the partner is amplified, and you gain 1 free stat point for every 365 acts of intercourse.</p>
-<p>There was a condition of 365 sex acts, but 1 free stat point every time was an incredibly broken skill. But Black Maitreya Gong... I feel like I've heard that somewhere before.</p>
-<p>Oh, and for reference, the trait Simyeonui ttal (Daughter of the Abyss)'s Mark, which Simyeonui ttal (Daughter of the Abyss) bestowed instead of leveling up, was like this.</p>
-<p>◆Simyeonui ttal (Daughter of the Abyss)'s Mark [Unique Legacy Trait]</p>
-<p>A mark left by Simyeonui ttal (Daughter of the Abyss) on her partner. The maximum of the abyss increases by 3, and the penalty of the abyss decreases. Simyeonui ttal (Daughter of the Abyss) is constantly watching you. As long as you have the mark, you cannot escape Simyeonui ttal (Daughter of the Abyss).</p>
-<p>The content is a bit scary, but it didn't seem like a bad trait. Increasing the maximum is an ability that guarantees tremendous power in the late game, and it even had the option of reducing the abyss penalty that I was worried about, so even if the abyss becomes the dominant stat, there wouldn't be any major side effects, considering the penalty reduction I got from the achievement. Still, it's scary, so I'll raise my willpower as much as possible.</p>
-<p>Also, I gave the five free stat points I got from the achievement to the lowest of my physical abilities, agility, 2, strength and stamina, one each, and invested the remaining one in concentration, which was the lowest stat.</p>
-<p>Anyway, under the influence of the Crimson Flesh Pillar Swimming in Juices trait and the Black Maitreya Gong, Arisu was rolling her eyes and being swept away by the waves of ecstasy.</p>
-<p>"Hyaahheung...! Ryuta, Ryutaaang!"</p>
-<p>Arisu hugged my body tightly and crossed her legs behind my waist, sticking close to me. Thanks to Arisu's pussy twitching from the continuous climaxes, I quickly felt the urge to ejaculate and released it deep inside Arisu.</p>
-<p>Glug! Glug! Glug!!</p>
-<p>"Haeuht♥ I love you, I love you!"</p>
-<p>Arisu, receiving my semen while confessing her love, seemed to be getting even hornier, and it felt like even more semen was coming out. Arisu, who had been clinging to my body, couldn't overcome the pleasure and fell away. Seeing her lying on the bed, breathing heavily, made me feel quite proud. I told Arisu that I loved her too in her ear and gave her a light kiss.</p>
-<p>Feeling proud is one thing, but now I had to find the next woman to punish. I grabbed the arm of Sawayanagi Azuma, who seemed to have regained her senses while Arisu was being taken care of, and was sending me a look that was half fear and half anticipation.</p>
-<p>"In, Investor-nim, I've already done it three times?"</p>
-<p>"I don't remember, so just take it."</p>
-<p>Since she was one of the trio who drugged me, there was no gentle foreplay. Since it was already a pussy full of my semen, my semen would act as lubricant.</p>
-<p>"Here I go."</p>
-<p>"Hyaahng! D, Deep, Investor-niim!"</p>
-<p>"So, you don't like it?"</p>
-<p>"Haaang♥ I love it too much, haang!"</p>
-<p>She says she likes it, but she's just being petulant. Unlike the normal missionary position I did just now, this time I lifted Sawayanagi Azuma up in an ekiben(駅弁: standing fuck) position, making her face me, grabbing Sawayanagi-yang's thighs, and started moving her up and down like an onahole.</p>
-<p>"Heueuht! Angheueung, it feels, it feels good, Investor-nim! Haeueung! Haeung!"</p>
-<p>Sawayanagi Azuma wrapped her arms around my neck, supporting herself so that her upper body wouldn't fall backward. Perhaps because of that, Sawayanagi Azuma's moans stimulated my ears almost like ASMR, which was quite arousing.</p>
-<p>"Do you like it, Azuma?"</p>
-<p>"Haeuuht! Too, too good♥"</p>
-<p>I also whispered to Sawayanagi Azuma in her ear. As expected, Sawayanagi Azuma seemed to be enjoying it, as her pussy clamped down tightly and her moans grew even louder. I shook my arms even harder, stroking deeply. My glans, which had slipped out near the entrance, instantly plunged deep inside, striking Sawayanagi Azuma's uterus.</p>
-<p>"Heuat! Th, This! This, is too strong, strong, Investor-niim...!"</p>
-<p>Sawayanagi Azuma rolled her eyes and lost her mind as my glans rhythmically tapped her cervix. Sawayanagi Azuma tried to slow down the tempo, putting a lot of strength into her pussy, but no matter how much she squeezed her pussy, it slipped in easily because of my semen and the flowing juices inside Sawayanagi Azuma. It just made me feel better.</p>
-<p>The area around Sawayanagi Azuma's pussy was already covered with a hazy foam from the friction between my semen and Sawayanagi Azuma's juices.</p>
-<p>"Haeueung, I'm going to, heueut, come! Investor-niim!"</p>
-<p>"How do you want to come?"</p>
-<p>"I want to come while kissing, kishu, kishu, haang!"</p>
-<p>They say you should grant even the wishes of the dead, so there's no reason not to grant the wishes of someone going to heaven(?). I kissed Sawayanagi Azuma, fixed her in the air with my arms, and shook my hips with tremendous force. When I looked up while kissing, her pupils were once again rolling upwards, showing a lot of white.</p>
-<p>Perhaps because of the constant onslaught of pleasure, Sawayanagi Azuma, despite wanting a kiss, was just sticking out her tongue, so I teased her tongue a lot and simultaneously sprayed a lot of semen inside to replenish the lubricant.</p>
-<p>"Haeueuht....! I love you, Investor-nim...! Haeueueung♥"</p>
-<p>Sawayanagi Azuma, who was whispering her love confession into my ear while hugging me tightly, as if she was embarrassed to let others hear, then lost consciousness due to excessive orgasm. I put Azuma down next to Arisu and approached Mimata Chieri, who was sitting in a chair and continuing to masturbate her Clitoris. Mimata Chieri was sticking her tongue out and seemed to be a bit out of it.</p>
-<p>"This is Sunbae's doing, isn't it?"</p>
-<p>"Hee, hee.... Heeheueung♥ I don't know anything, Hubae-niim♥"</p>
-<p>I don't know how many times she's come while masturbating, but she seemed out of it because of the pleasure. There's a saying for times like this. That is, ikwaejaekwae(以快制快), which means to suppress pleasure with pleasure.</p>
-<p>I lowered my waist, spread her legs into an M shape, and inserted my dick straight into Mimata Chieri's pussy, who was still rubbing her Clitoris.</p>
-<p>"Keep rubbing your Clitoris."</p>
-<p>"Neee♥ Hubae-niim, dick jyoahang!! Haeueue, I'm going, I'm going, Hubae-niim!"</p>
-<p>She reached her climax as soon as I inserted my dick. As expected of Mimata Chieri, who has a netorare masochistic tendency, she seemed to have reached the verge of climax after watching me violate Arisu and Sawayanagi Azuma.</p>
-<p>Still, it would be a waste to punish Mimata Chieri, who seems to be the mastermind, with just one climax. I firmly told her to rub her Clitoris again and pinched her nipples hard while shaking my hips.</p>
-<p>"Heungahat! Hangeuht! Eut! It's weird, it's weird, Hubae-niim! It hurts, heueut! I like it, it hurts!"</p>
-<p>Ignoring Mimata Chieri, who didn't know what to do with the pain and pleasure coming at the same time, I pinched her nipples and continued to shake my hips. Mimata Chieri, who had been moaning haeung haeung, was now making moans closer to those of a beast, heueok, eoheok! Hmm, I think she'll break if I do any more... Should I stop here?</p>
-<p>I felt weak for no reason and decided to just finish by ejaculating inside her once. I did rough piston movements to ejaculate, regardless of rhythm.</p>
-<p>"Eoheok, eogeok, ueoeheot..! Heueut...! Stop, th...! Heueut! Sto..! Heueut!"</p>
-<p>"I'll cum and stop."</p>
-<p>"Heuaaang! Hurry, hurry and cum! Hubae-nim's hot and pleasant white juice, put it deep inside me♥"</p>
-<p>Mimata Chieri was saying a lot of arousing things, perhaps to make me cum as quickly as possible. It's arousing even when she says things like this. I guess I'm sensitive to these kinds of words. No, am I just sensitive to everything?</p>
-<p>In response to Mimata Chieri's words, who kept urging me to ejaculate, I put my pleasant white juice in the deepest part of her, as she said, in 3 minutes.</p>
-<p>"Sunbae, did you cum?"</p>
-<p>"Heungeueut! Hubae-nim, let's go one more time♥"</p>
-<p>Mimata Chieri's pussy greedily swallowed my semen, and I pulled my dick out as it was after finishing the juice injection. As soon as I pulled it out, the semen that had filled her vagina and uterus flowed out. Hmm, I always get turned on when I see cream pie.</p>
-<p>I went back to the bed. And I spread Arisu's legs, who was still breathing heavily.</p>
-<p>"Now, shall we start round 2?"</p>
-<p>"Haeuht! I hate it♥"</p>
-<p>I don't know if she hates it or likes it. But since I spread them, I can't stop.</p>
+<p>Ha Ju-yoon-ssi must have worked out quite a bit to manage her figure, because her stamina was considerable. Even after several climaxes, she quickly recovered and pounced on me. It was as if all the pent-up sexual desire had exploded, and I had to come three more times to satisfy her.</p>
+<p>"Heuung.... Actually, I wasn't drunk earlier?"</p>
+<p>"At the eel restaurant?"</p>
+<p>I smiled and asked back at Ha Ju-yoon's words. It was getting late, so I was putting on my clothes, leaving Ha Ju-yoon-ssi, who was lying naked on the bed. Ha Ju-yoon-ssi, with a languid expression from the orgasm, smiled and spoke to me.</p>
+<p>"Yeah, actually, my alcohol tolerance is five bottles."</p>
+<p>"Wow, I really thought you were drunk, your acting is amazing, Nuna?"</p>
+<p>"Hehet, I'm this good~."</p>
+<p>To be honest, I was a little suspicious because she wasn't staggering when she walked, but her actions themselves were those of a drunk person. Amazing? An actress is an actress, I guess. Ha Ju-yoon-ssi, who was very pleased with my compliment on her acting, was quite cute.</p>
+<p>"I won't be able to see you anymore? Because there's no reason to meet like a stand-in for acting today...."</p>
+<p>Ha Ju-yoon-ssi seemed very disappointed. I came to Korea to meet Han Yu-gyeong, so it would be strange to keep meeting her mother, Ha Ju-yoon-ssi.</p>
+<p>"It takes an hour to get to Japan. You can come if you want to see me."</p>
+<p>"Really? Then will you meet me if I go to Japan?"</p>
+<p>"Of course."</p>
+<p>Ha Ju-yoon-ssi, who was happy like a child at my words that I would meet her. I'm not the kind of person who stops a woman from coming to see me, so I could meet her anytime. Besides, if it's a charming woman like Ha Ju-yoon-ssi, she's welcome anytime.</p>
+<p>"I'll go now."</p>
+<p>I kissed Ha Ju-yoon-ssi on the forehead and left her house. I immediately caught a taxi and went to Han Yu-gyeong's house. Ha Ju-yoon's house and Han Yu-gyeong's house were quite far apart, so it took some time. I didn't get off right in front of Han Yu-gyeong's house, but I got off in the university district of Korea University.</p>
+<p>I had passionate sex with Ha Ju-yoon-ssi several times, so I was a little hungry, so I was thinking of getting takeout. Before entering the restaurant, I sent a KakaoTalk message to Han Yu-gyeong.</p>
+<p>Jin Yong-tae: I'm a little hungry, so I'm going to come out and get some takeout, is there anything you want to eat?</p>
+<p>Normally, Han Yu-gyeong would reply within 30 seconds, but she must be busy with negotiations, so she didn't reply right away. Or maybe it's taking her a little longer to think about what she wants to eat.</p>
+<p>Han Yu-gyeong: I want to eat spicy pork feet. With beer! I want to eat something spicy because I'm stressed ㅠㅠ</p>
+<p>Jin Yong-tae: I'll buy it and wait. Let's eat together😘</p>
+<p>Han Yu-gyeong: Okay okay! 😍 It looks like it'll be over soon today. But I think they're going to keep bothering us. They said the stolen items are about 20 billion won worth of data, and they want us to compensate 150 percent as stated in the contract? 30 billion won isn't just some dog's name....</p>
+<p>Jin Yong-tae: Let's talk about that when we meet. I'll wait until you come.</p>
+<p>Han Yu-gyeong: Okay~! I'll KakaoTalk you when I leave after I'm done😍</p>
+<p>I packed a large portion of spicy pork feet from the pork feet restaurant and also packed a chicken from a nearby chicken restaurant. I was going to eat the chicken while waiting for Han Yu-gyeong. I'm hungry now, and if I wait for Han Yu-gyeong, who I don't know when she'll be done, I'll have to hold my rumbling stomach, so I'll soothe it a little with a chicken.</p>
+<p>"Ah, right! She said she wanted to drink beer too?"</p>
+<p>I stopped by a convenience store and bought beer and ice cream. Ah, now that I think about it, I should have eaten the Häagen-Dazs at Ha Ju-yoon's house. I remembered giving offerings to the Daughter of the Abyss for the first time at the convenience store in this neighborhood, so I bought quite a lot, even for the Daughter of the Abyss. I went back to Han Yu-gyeong's house with a slightly heavy bag.</p>
+<p>I put the ice cream and beer, except for the offerings, in the refrigerator as they were, created a magic circle, and sent the ice cream and desserts to the Daughter of the Abyss. What came back with the offering was a piece of paper with a short message written on it.</p>
+<p>I will continue to accumulate merits. I miss the eternal time with you.</p>
+<p>Until now, she gave rewards right away when I gave offerings, but it seemed like she was accumulating merit points to give a bigger reward. Ooh, I was wondering what she would give as a reward later. She'll definitely give something pretty good, right?</p>
+<p>I put the note in my pocket and opened the chicken box. Mmm~! The smell of chicken was always good.</p>
+<p>And I turned on the big TV in the living room and connected it to my smartphone to turn on MiTube. There was a video uploaded on the sports information channel I subscribed to, and it was a breaking news about Kazuhiro.</p>
+<p>Breaking News! Kazuhiro Smith transfers to FC Los Angeles! Does he choose the US national team instead of the troubled Japanese national team?</p>
+<p>Ah, he finally decided to go to FCLA in the city where Kiyohira lives after thinking about it. Fujigasaki Rinka said she was in LA too, so I could meet them all at once when I go to the US later. The public sentiment in the comments that Kazuhiro might choose the US national team was half and half, but since he's American anyway and can't be selected for the current Japanese national team, the public opinion was evenly divided between those who said it's better to go to the US and those who cursed him as a traitor.</p>
+<p>But when I thought about it, I got a little angry. Why do I have to see my friend's news on MiTube? I got angry and turned on Line. Aha, Kazuhiro had already sent a Line message earlier. While I was having sex with Ha Ju-yoon-ssi, Kazuhiro's Line message came to the group chat room where Kiyohira and I were.</p>
+<p>Kazuhiro: I decided to go to LA!</p>
+<p>Kiyohira: Oh! As expected! LA is the best! The weather is nice too.</p>
+<p>Kazuhiro: Hyung-nim isn't reading it, so he must be having sex....</p>
+<p>Kiyohira: He's really a slut. I think he needs to go to a mental hospital for sex addiction.</p>
+<p>There wasn't much talk about the transfer, and there was only a lot of useless talk about me being a slut. Are they really crazy? I got annoyed and quickly tapped the keyboard on my smartphone.</p>
+<p>Taira Ryuta: Are you guys crazy? How can you make a normal person a slut?</p>
+<p>Kazuhiro: Hyung-nim, so what have you been doing all this time?</p>
+<p>Taira Ryuta: .... Had sex.</p>
+<p>Kiyohira: 🤣 As expected, a slut WWWWWWWWW</p>
+<p>Kazuhiro: Anyway, come to LA when you come to the US later. Kiyohira will buy you something delicious.</p>
+<p>Kiyohira: Why are you talking like you're doing me a favor when I'm the one buying?</p>
+<p>The two started bickering again about who would treat in LA. I ignored the Line where the two abnormal sex maniacs were arguing and turned on another YouTube channel. I turned on a video that I could watch while eating, something that I could laugh at lightly, and ate the chicken.</p>
+<p>"I'm home."</p>
+<p>Han Yu-gyeong came back when I had finished eating the chicken and watched about half of a movie on Ratflix. I got up and opened my arms, saying, "You worked hard," and Han Yu-gyeong ran to me and hugged me.</p>
+<p>"Heuung.... I'm tired."</p>
+<p>"Let's have a beer while eating spicy pork feet. And talk about work."</p>
+<p>"Let's do that, I'll change my clothes for a bit...."</p>
+<p>"No, don't change your clothes."</p>
+<p>I stopped Han Yu-gyeong, who was about to change her clothes first. It was because Han Yu-gyeong's career woman outfit was quite sexy, and I wanted to do it while she was wearing this outfit. Han Yu-gyeong, who didn't think about the reason at all, tilted her head and looked at me.</p>
+<p>"Huh? Why can't I change?"</p>
+<p>".... You look so sexy in that outfit."</p>
+<p>"Oh my♥ Was I that sexy?"</p>
+<p>Han Yu-gyeong giggled, kissed me on the cheek, and sat down on the dining table chair. Han Yu-gyeong sat down and immediately headed towards the refrigerator.</p>
+<p>"I need to take a sip of beer first."</p>
+<p>Han Yu-gyeong took out a beer from the refrigerator, gulping it down as if she was thirsty, and made a "Kheu~! " sound before sitting back down. I unpacked the spicy pork feet in the meantime.</p>
+<p>"Cheers~!"</p>
+<p>Han Yu-gyeong took out a beer for me too, so we toasted each other and drank the beer. After eating spicy pork feet and beer for a while, Han Yu-gyeong started talking about work.</p>
+<p>"Clearly, the contract stated that we would not be in charge of Area A, which is an important area, for security reasons, right? They said we shouldn't see the data in Area A. But the thief clearly passed through Area A to steal. But they're saying that it was our fault and trying to blame us. It's annoying."</p>
+<p>No matter how intelligent Han Yu-gyeong is, it was difficult to deal with them if they came out like that. Even though it was clearly the other party's fault, they said, "No, it's your fault." If they said that, there was no way to respond with logic, so it was understandable that Han Yu-gyeong was annoyed.</p>
+<p>"The problem is that you're too smart and nice, so you only respond in a textbook way. If it goes to negotiation or trial, Vanguard will end up being the one who gets hurt."</p>
+<p>"Then? Should I use unconventional methods?"</p>
+<p>"That's right. If words don't work...."</p>
+<p>"I'll have to use force."</p>
+<p>Han Yu-gyeong completed the sentence by taking my words. It seemed like she had completely grasped my intentions. Since it was true that a thief broke into Base Technology, which Han Yu-gyeong's Vanguard was in charge of guarding, their reputation would drop if they dragged out the negotiations.</p>
+<p>Due to the nature of security companies that protect lives, a drop in reputation was fatal, so it was better to resolve this matter as quickly as possible.</p>
+<p>"Actually, there's BS Group behind Base Technology. This time, they're trying to mess with you on purpose."</p>
+<p>"BS? Could it be.... Is it because of Park Sang-beom?"</p>
+<p>Park Sang-beom was one of the grandsons of BS Group, whom I had seen during my last trip to Korea, and was Han Yu-gyeong's Sunbae at Korea University. I remember that he kept hitting on Han Yu-gyeong, so I warned him not to mess around unless he wanted his spine to be folded in half by folding a coin.</p>
+<p>"The 'maybe' is actually true."</p>
+<p>"Ah, really...! I hate him so much."</p>
+<p>Han Yu-gyeong rarely made a contemptuous expression. According to the story, he kept hitting on her even though I came to Korea last time and certified her as my girlfriend.</p>
+<p>Hmm.... Should I kill him? I unintentionally felt murderous because he kept hitting on Han Yu-gyeong. Originally, he was a guy who should be killed by Han Yu-gyeong, but I was worried about what ripple effects there would be if I killed him.</p>
+<p>"Hoo...."</p>
+<p>Yeah, it's right for Han Yu-gyeong to kill him as the game dictates since he annoyed her. However, I should put some effort into targeting BS Group while I'm in Korea. So that Park Sang-beom can fall into hell quickly.</p>
+<p>Before that, I have to figure out what to do with Base Technology first. I started giving Han Yu-gyeong information about the attack on Base Technology.</p>
+<p>-----</p>
+<p>Mother and daughter illustration requested by Munyeom-nim!</p>
+<p>They're a good mother and daughter~!</p>
+<p>Other requested illustrations will be uploaded in tonight's continuous updates~!</p>

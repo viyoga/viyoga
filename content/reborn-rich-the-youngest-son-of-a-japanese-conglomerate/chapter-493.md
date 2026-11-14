@@ -5,82 +5,63 @@ weight = 493
 chapter = 493
 +++
 
-<p>"I'm just a rookie teacher who's been appointed for a little over a month. And I'm not really interested in the power struggles within the academy. But..."</p>
-<p>"But?"</p>
-<p>Ishidera Kosuke seems quite interested in my 'but.' He probably thinks I'm going to give a positive answer.</p>
-<p>"I have a relationship with Kurayamada-ssi, and if it benefits me, I might be able to help."</p>
-<p>I figured I wouldn't get an answer if I just straight up asked who was lending power to the Toyotaka faction, so I decided to pretend to join their faction first.</p>
-<p>I won't truly join the Toyotaka faction because of my relationship with Daigo Terue, but I figured I could only get information if I pretended to join.</p>
-<p>"Haha, good choice."</p>
-<p>His tone changed as soon as I said I'd join the faction. I can see why Daigo Terue hates this guy.</p>
-<p>"By the way, who is the person who's helping...?"</p>
-<p>"You're a newbie who just joined our faction, so I can't tell you right away. But I'll give you something in return for joining our faction. I promise that this year's bonus for the excellent class will be more than double last year's."</p>
-<p>Even though he's just the acting principal, it seems like he can do this much. To be honest, getting a big bonus isn't really a perk for me... Should I ask for something more since I joined the faction?</p>
-<p>"I enjoy exercising, so would it be okay if I used the exercise equipment in the fifth warehouse behind the special class building? Many of the special class friends also like to exercise, so I think we'll get closer if we use it together."</p>
-<p>"Is that so? You can use it as much as you want. The equipment might rust if we just leave it there, so I'll even put a container building behind the special class building. You can put the equipment inside and exercise."</p>
-<p>I didn't really have anything else to ask for, so I asked for the exercise equipment in the fifth warehouse that I had been eyeing for a while, and he readily agreed. Moving the exercise equipment doesn't cost any money anyway, and the container building is paid for by the academy's finances, so it seemed like he was doing it easily.</p>
-<p>"But... if anything happens in the special class, you have to tell me first. Understand?"</p>
-<p>"Of course."</p>
-<p>If anything happens in the special class... Why is he so obsessed with the special class? I had a lot of questions, but I didn't show it at all and answered with a big smile. Even though a verbal agreement is still an agreement, I had no intention of keeping it. I was planning to take as much as I could and then ditch him.</p>
-<p>"I'll be going now. What about Kurayamada-sensei...?"</p>
-<p>"Kurayamada-sensei will be leaving after talking a bit more."</p>
-<p>"Ah, okay."</p>
-<p>Kurayamada Kirie gave me a look that seemed to say she would give me information, so I nodded and went outside. As soon as I got out of the principal's office, my smartphone started vibrating, and I checked to see that I had a LINE message from Seizawa Shii.</p>
-<p>Shii-ttang☆: Let's start with a bang, so today is a date with me~! Come here by 4:30~!</p>
-<p>I thought I would have a date with Seizawa Shii in the middle or at the end, so I was quite surprised that she was the first one. Is it because of what Seizawa Shii said, "Let's start with a bang?"</p>
-<p>Yamashiro Ryuta: Okay. And it's not a date.</p>
-<p>Someone might attack me, so I have to keep saying it's not a date. I got a reply right away to my saying it's not a date.</p>
-<p>Shii-ttang☆: You're so shy~!</p>
-<p>She misunderstood that saying it's not a date means I'm shy. She's a strange one. But if it's 4:30, I don't have much time? I didn't have much time because of the pointless post-exam meeting and the conversation with Ishidera Kosuke. Why did she send the LINE message so close to the time?</p>
-<p>I hurried to leave work to make it to the date.</p>
+<p>Konoe Akina was in a good mood all day today. Because today was finally the day for her long-awaited date with her benefactor and teacher, Taira Ryuta.</p>
+<p>It had already been several months since Taira Ryuta saved her, and Konoe Akina had fallen in love with him at first sight.</p>
+<p>No woman could help but fall in love after seeing the light and silhouette through the bars of the slave trader's prison, his revealed face, and his reassuring smile.</p>
+<p>He was like the sun, dispelling at once the fear of being sold off and laid beneath some old rich man, and the dark anxiety that no one would come to save her.</p>
+<p>After that, in Taira's name, he helped her return to her family and even attached Wano Haruto and Sawayanagi Sinya-ssi to her, helping Konoe Akina become the head of the Konoe family.</p>
+<p>But that was it. She thought there would be no further connection after that. She would return to her unfinished high school life after being kidnapped, and since the Konoe family had no particular contact with Taira, she thought she would never meet Taira Ryuta again.</p>
+<p>But, like a fairytale without any probability, when Konoe Akina learned that Taira Ryuta had been appointed as her homeroom teacher under the name Yamashiro Ryuta, she offered her first prayer of thanks to God.</p>
+<p>In fact, even if Taira Ryuta became her homeroom teacher, nothing would really progress or anything, but she was still happy just to be in the same space.</p>
+<p>But an opportunity came quickly. The school had instructed the special class students, most of whom were not members of any clubs, to create a club. And Konoe Akina came up with an amazing idea.</p>
+<p>,Wouldn't I be able to get closer to the teacher if I created a dating club?',</p>
+<p>Since she was planning to entrust Taira Ryuta with the position of advisor if she created a club, Konoe Akina created a "Dating Experience Club." There was a confrontation with Minamoto Lisa, who created a strangely named "Meditation Club" in the middle, but in the end, the Dating Experience Club won, and most of the special class students joined the club created by Konoe Akina.</p>
+<p>Everything seemed to be going according to Konoe Akina's plan, but there was one problem. Because of the club she created, all of her special class friends had come to know about Taira Ryuta's charms. And although they didn't show it, they all seemed to have feelings for Taira Ryuta.</p>
+<p>It was impossible for Taira Ryuta not to be popular with his handsome looks, but it was still too much. Not only her special class friends, but the whole school was so popular that unofficial clubs were being formed.</p>
+<p>While Konoe Akina was secretly agonizing like that, Taira Ryuta came up with a strategy. He said he would buy a gift if they ranked within the top 6 in the class. He said they would pick out the gift together and even eat a meal, so it was no different from a date.</p>
+<p>Since she had already become the head of the family and didn't need to look good to anyone in the family or prove herself, Konoe Akina originally didn't plan to study hard during this school life. She was just going to study moderately and make a lot of memories with her friends and teachers.</p>
+<p>But because of the gift date that Taira Ryuta had offered, Konoe Akina had no choice but to study hard. Although it was a special class treated as a problem child class, the students were not that bad when you looked at them. She had to study hard to get into the top 6.</p>
+<p>Her head hurt because she had been studying hard for the first time in a while, but her efforts were not in vain, and she was able to get 4th place. After that, they decided on the order, but unlike Konoe Akina's desire to go on a date right away, she ended up being last. She felt a slight jealousy listening to her friends' dating experiences, but Konoe Akina was able to endure it because there were even students who didn't even have their turn.</p>
+<p>,Today is the day... with the teacher....',</p>
+<p>Konoe Akina was looking in the mirror and putting on makeup. It was essential to dress up before a date, so she couldn't meet him right away and had no choice but to meet him after some time after school. She couldn't show Taira Ryuta a shabby appearance, and she wanted to show him a prettier appearance, so she had no choice but to meet him after a little time.</p>
+<p>,Teacher, I'm looking forward to our date today♥',</p>
+<p>Konoe Akina's heart was full of hearts.</p>
 <p>###</p>
-<p>I decided to meet Seizawa Shii in front of the convenience store near Miyashi Prime Mall Department Store in Miyashi City. I wore a decent date look that wasn't too much, and when I went to the convenience store 5 minutes before the appointed time, Seizawa Shii had already arrived.</p>
-<p>"Ryuta-tchi!"</p>
-<p>Seizawa Shii waved at me. Seizawa Shii was wearing an oversized black sweater as a dress and white long boots.</p>
-<p>"I'm wearing shorts inside, so don't worry."</p>
-<p>Seizawa Shii lifted her sweater slightly and said as I kept looking at her clothes. As Seizawa Shii said, there were short shorts inside. Hmm, a little disappointing. It would have been a fun event if she had forgotten to wear shorts.</p>
-<p>"I wasn't looking at it like that. I just thought it looked good on you."</p>
-<p>"Ehehe, is that so? Ryuta-tchi, where should we go then?"</p>
-<p>"Huh? Where should we go? Weren't you coming to buy something you wanted, Seizawa?"</p>
-<p>Seizawa Shii clapped her hands and said, "Oh, right!" Is she really 6th in our class? Seizawa Shii put her hand on her chin and thought for a moment, then smiled brightly as if she had thought of something and started dragging me away.</p>
-<p>"Actually, I haven't decided what I want yet. Pick it out for me while we walk around together, Ryuta-tchi."</p>
-<p>Seizawa Shii dragged me to a department store with a lot of things. Maybe because of the unpleasant incident with the MiiTuber thing before, the department store seemed to have completely memorized the faces of the special class students now. The clerks bowed at a 90-degree angle to Seizawa Shii and me, and I stopped them from calling the department store manager.</p>
-<p>"I didn't come to see that fat bald old man, so let us be quiet, okay?"</p>
-<p>I thought it was a bit much to call the department store manager a fat bald old man, but the clerks didn't seem to care at all. Actually, the department store manager is a fat, bald middle-aged man, so what Seizawa Shii said about the fat bald old man wasn't wrong.</p>
-<p>"Let's go here first, Ryuta-tchi."</p>
-<p>Seizawa Shii dragged me to the Région cosmetics store on the first floor of the department store. It seemed like it was because Seizawa Shii didn't get the custom perfume gift from Région that the other friends got when I came back from America. She went straight to the Région store as if she had thought about it in advance, even though she told me she hadn't decided what she wanted.</p>
-<p>"You said you didn't have anything in mind... Did you think of something quickly?"</p>
-<p>"Ehehehehe, I wanted a custom perfume too! Ryuta-tchi didn't give me one~!"</p>
-<p>Seizawa Shii was acting spoiled in front of me, as if she was embarrassed that I had caught her. It's clearly Seizawa Shii's fault for asking for a Hollywood celebrity's autograph handkerchief to mess with me, but I don't know why it's becoming my fault.</p>
-<p>"Welcome~!"</p>
-<p>"Do you have custom perfume service?"</p>
-<p>A clerk came and greeted us as Seizawa Shii and I were talking in front of the store. When I asked about the custom perfume, the clerk nodded with a friendly smile.</p>
-<p>"Yes, it just came in recently. The reaction from the upper class in the United States was quite good, so the Japanese branch decided to bring it in as well. Miyashi will probably be the first place in Japan to get it."</p>
-<p>It's possible that it came to Japan quickly because I said that Nae Fitzgerald liked it. I remember Nae Fitzgerald saying, "Then we should bring it to Japan?" in response to my words.</p>
-<p>"I want to try it!"</p>
-<p>"Yes, please follow me this way."</p>
-<p>Seizawa Shii raised her hand excitedly, and the clerk took her to a place that looked like a sticker photo booth. Inside that machine, they scan your face and body, and then the AI combines a few perfumes for you to smell and decide on.</p>
-<p>"You have to take off all your clothes~!"</p>
-<p>Seizawa Shii peeked her face out from behind the curtain and said to me with a smile. Because they have to scan your body, there was a curtain that completely covered you, unlike the sticker photo booth where you can see your lower body.</p>
-<p>"Ryuta-tchi, come in for a second!"</p>
-<p>I waited for a while, and then I heard Seizawa Shii's shout. Of course, a man who hasn't experienced this might be flustered. That's because you take off your clothes and scan inside that machine, just like Seizawa Shii said.</p>
-<p>But I already knew the procedure because I had been through this situation with Arisu in America, so I went into the scanning machine without hesitation.</p>
-<p>As expected, Seizawa Shii was waiting for me with a playful expression. Of course, she was still wearing her clothes.</p>
-<p>"Ehehe, you weren't expecting me to be naked, were you?"</p>
-<p>"I told you I did it in America, right? The body scan is the first thing you do, so it's over right away."</p>
-<p>Arisu also pretended to be embarrassed and told me to come into the scanning machine, so I went in with some expectations, but she was wearing her clothes, so I wasn't flustered this time. Seizawa Shii looked quite disappointed when she saw my face, which wasn't flustered at all.</p>
-<p>"Aww, no fun."</p>
-<p>"I can't force myself to be surprised just to make you happy."</p>
-<p>"Tch... Just pick one of these."</p>
-<p>The AI doesn't just create one scent after scanning, but creates about three scents that would suit Seizawa Shii, so Seizawa Shii called me to pick one for her.</p>
-<p>All of the scents that the AI presented were sweet and refreshing, and they all suited Seizawa Shii. There were definitely differences, but they all suited her well.</p>
-<p>"They all suit you? Why don't you just buy all three as a set?"</p>
-<p>"Then it would be way over the 20,000 yen gift per person that Ryuta-tchi said, right?"</p>
-<p>Ah, is that why she asked me to pick just one, thinking about that? I felt quite touched that she was thinking about my financial situation, so I stroked Seizawa Shii's head.</p>
-<p>"Seizawa usually brightens up the class atmosphere, so I'll buy them all for you. But you can't tell the other kids, okay?"</p>
-<p>"Okay, I understand. Ryuta-tchi..."</p>
-<p>Seizawa Shii blushed and answered. They say that making secrets with each other makes you closer, so I was going to see if I would get closer to Seizawa Shii in the future.</p>
-<p>----</p>
-<p>Seizawa Shii Date Look B-cut</p>
-<p>I suddenly wanted to see an oversized sweater, so I matched it with wild long boots~!</p>
-<p>"Then goodbye~!"</p>
+<p>Kurayamada Kirie didn't think that the root of the earthquake that her father was looking for would be in the school's facilities or buildings. The document proving that the root existed was so old, and even if it had existed, she thought that even the traces of it would have disappeared by now.</p>
+<p>The document that her father saw, whose identity was unclear, stated that a god whose name had been erased had cut off the root of the earthquake and built a shrine-like building, so Kurayamada Kirie checked the architectural data before St. Francis Girls' Academy was built.</p>
+<p>Kurayamada Kirie confirmed from the data that there were no such buildings in the buildings of St. Francis Girls' Academy. However, there was an old shrine in the middle of the forest behind the school grounds of St. Francis Girls' Academy, and she was able to find data that the Daigo family repaired the shrine and currently uses it as the family shrine.</p>
+<p>She didn't really think that the root of the earthquake that her father had mentioned would be there, but she still had to look for it because it was her father's order.</p>
+<p>Kurayamada Kirie entered the forest path that led to the back of St. Francis Girls' Academy. In fact, this path was not unfamiliar to Kurayamada Kirie. The 5th physical education warehouse, which she mainly used when she had relations with Yamashiro Ryuta, was located near the entrance of the forest. So she was familiar with it because she saw this forest path almost every other day.</p>
+<p>Kurayamada Kirie's steps, who had trained to a considerable level, were fast. Kurayamada Kirie, who covered the distance that others would have to go in an hour in 20 minutes, gradually entered the forest.</p>
+<p>At the end of the forest path, she could see a shrine. Passing through the black torii gate and going inside, there were quite a few shrine buildings on the grounds. Kurayamada Kirie slowly walked around the shrine as if she were sightseeing. It was no different from an ordinary shrine, but there were no priests or shrine maidens.</p>
+<p>She heard that the management team of St. Francis Girls' Academy managed it once every two weeks, so it seemed that there was no one else managing it separately. The atmosphere of the quiet shrine in the forest was strange. It felt like there was something that stimulated people's anxiety.</p>
+<p>Going to the deepest part of the shrine, there was a collapsing stone structure with gold ropes tied around it. The collapsing stone structure looked like a tower, and it also looked like a Buddhist altar in a house that had been greatly expanded.</p>
+<p>,It's here...!',</p>
+<p>Kurayamada Kirie could tell instinctively. That the root of the earthquake that her father had mentioned was here. Because she felt an unknown presence and ominousness from the stone structure. She felt an ominous presence as if something was weighing on her chest.</p>
+<p>Kurayamada Kirie unconsciously approached the collapsed stone structure. At that moment, a sharp energy poured out from the gold ropes around the stone structure. Kurayamada Kirie felt threatened and jumped back. A small explosion erupted where Kurayamada Kirie was standing.</p>
+<p>,Dangerous...! Is it some kind of magic?',</p>
+<p>Kurayamada Kirie realized that she could no longer approach and picked up her phone.</p>
+<p>,...Father, I found something.',</p>
+<p>Kurayamada Kirie contacted her father, Kurayama Kazuma. Jinildang had someone who could undo this kind of magic. Soon, she would be able to find out the identity of this collapsed stone structure. Kurayamada Kirie didn't know. That she was also gradually becoming obsessed with this stone structure like her father.</p>
+<p>###</p>
+<p>Daigo Terue sensed an ominous undercurrent. She thought that the Toyotaka faction would do something since they had brought in Minamoto, but she didn't think they would act this quickly.</p>
+<p>Of course, Daigo Terue also knew that all of these sudden events had started with the SearchEye article, but she didn't know that her daughter, Oofuchi Erika, was involved in that SearchEye.</p>
+<p>That's why Daigo Terue entrusted her protection to the person with the most powerful force among the people she knew.</p>
+<p>It was Shimokawabe Airen, who was in charge of the home economics subject. Shimokawabe Airen, who was called, came to Daigo Terue's house with a sword.</p>
+<p>,Do you really think there will be an attack?',</p>
+<p>,It's inevitable given the flow of things. If I return to being the principal of St. Francis Girls' Academy, the Toyotaka faction will have no future.',</p>
+<p>Daigo Terue answered Shimokawabe Airen's question. Until now, she had just left the Toyotaka faction alone because there was no justification, but now it was different. No matter how much they were an opposing faction, there was no reason to forgive them for bringing in foreign forces. That's why, after the SearchEye's exposure, the Toyotaka faction felt a crisis and was certain to attack Daigo Terue.</p>
+<p>Because they had to seize the principal of St. Francis Girls' Academy, which was the core of the Daigo Educational Foundation, Daigo Terue had to disappear from this world as soon as possible before the Tadanori faction canceled the suspension and reinstated her from the Toyotaka faction's point of view. This was an event connected to the survival of the Toyotaka faction, so the attack was as good as decided.</p>
+<p>,I understand. If it's certain that there will be a battle, then it's okay for me to be here.',</p>
+<p>Shimokawabe Airen, who had recently been learning about swordsmanship anew while teaching Alik, wasn't too keen on this call from Daigo Terue, but since she liked actual combat more than anyone else, she had no reason to be dissatisfied if it was certain that there would be actual combat.</p>
+<p>The two were having tea time while having a casual conversation for a while. But at some point, killing intent swirled in Shimokawabe Airen's half-closed, languid eyes, and she grabbed the katana that had been placed next to the sofa.</p>
+<p>,Are they here?',</p>
+<p>,Yes. Stay here.',</p>
+<p>Shimokawabe Airen answered Daigo Terue's question and got up from her seat. Of course, she was holding the katana in her hand.</p>
+<p>Shimokawabe Airen took a few measures and then came out of the building. Several attackers, wearing ski masks with only holes for the eyes, like robbers, were approaching with silenced pistols.</p>
+<p>,They're like moths flying into a flame.',</p>
+<p>Pshoo! Pshoo! Pshoo!</p>
+<p>As if Shimokawabe Airen's words were a signal, the attackers all began to fire.</p>
+<p>---</p>
+<p>Horror picsㄷㄷㄷ</p>
+<p>It's hard to make mirror pics hehehe</p>

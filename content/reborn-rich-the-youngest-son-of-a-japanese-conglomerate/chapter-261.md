@@ -5,77 +5,76 @@ weight = 261
 chapter = 261
 +++
 
-<p>"This is a sculpture that a deep-sea fishing vessel pulled up from the middle of the Pacific Ocean! We don't know what era it's from, but isn't it amazing that it came from the middle of the Pacific?"</p>
-<p>To someone who doesn't know better, they might think it's just marine debris that was thrown away from the US or Japan, but it looked completely different to me.</p>
-<p>◆■̶̡̙͔̾̇͝■̵̢̛͖̪̦̐̆͌̓̔̚■̶̡̙͔̾̇͝■̸̧̛̞͙̠̈̅͌̉'s Sculpture [Legendary Relic]</p>
-<p>A sculpture made by ●̵●̵●̧̱̩̪̯͕●̸̨̛●̷̡̛̬̭̮̥͕̀̌, the father of ■̶̡̙͔̾̇͝■̵̢̛͖̪̦̐̆͌̓̔̚■̶̡̙͔̾̇͝■̸̧̛̞͙̠̈̅͌̉, to commemorate the birth of ■̶̡̙͔̾̇͝■̵̢̛͖̪̦̐̆͌̓̔̚■̶̡̙͔̾̇͝■̸̧̛̞͙̠̈̅͌̉.</p>
-<p>Once every 100 years, liquid forms at the tips of both breasts. The liquid that forms on the right tip is said to grant knowledge, and the liquid on the left tip is said to grant wisdom.</p>
-<p>(99.9958/100)</p>
-<p>Consuming the liquid from the right nipple increases Knowledge by 4, and consuming the liquid from the left nipple increases Intelligence by 4. Consuming both liquids additionally weakens the side effects of the Abyss and increases the efficiency of Abyss stats.</p>
-<p>Shit, what? I have to get that! It had a cooldown of 100 years, but it was an amazing elixir maker that raised stats by a whopping 8 in total. Moreover, the cooldown was almost fully charged.</p>
-<p>If the cooldown had 100 years left, I might have hesitated to buy it, but seeing the number 99.9945 made me anxious that liquid would soon be dripping from both nipples of the sculpture.</p>
-<p>Although they were Knowledge and Intelligence stats that I didn't really need, stats are always welcome. In particular, Knowledge stats can only be raised through learning, so being able to raise them with an elixir like this was an incredibly rare case.</p>
-<p>Besides, it's not just any sculpture, but it's listed as ■̶̡̙͔̾̇͝■̵̢̛͖̪̦̐̆͌̓̔̚■̶̡̙͔̾̇͝■̸̧̛̞͙̠̈̅͌̉, so it must be the Abyss's Daughter's sculpture. As the husband of the Abyss's Daughter in that world(?), I couldn't give my wife's(?) figure to someone else.</p>
-<p>"The starting price is 20,000 points!"</p>
-<p>That's so cheap? I immediately pressed the bid button on the tablet. Arisu and Nae Fitzgerald looked at my first bid with curiosity, but I kept my mind focused on the tablet to win the figure... I mean, the sculpture.</p>
-<p>"32,000 points, any higher? Then it's sold for 32,000 points, congratulations!"</p>
-<p>A few people bid out of curiosity, but even if they were rich, no one would buy an item salvaged from the sea for tens of thousands of dollars without knowing its origin. In the end, I was able to win the sculpture for 32,000 points.</p>
-<p>"Why did you buy something like that?"</p>
-<p>Mimata Chieri looked at me strangely and asked. The Fitzgerald mother and daughter didn't say anything, but they had expressions that said, "Why that thing?"</p>
-<p>"I just felt drawn to it."</p>
-<p>Since I couldn't say, "I actually had sex with the same otherworldy god as that sculpture...," I just brushed it off by saying I was drawn to it.</p>
-<p>"Well, you can use it as an interior decoration."</p>
-<p>Everyone nodded at Arisu's words. It's not an interior item, but I bought it for use as a sucking pacifier. After eating the elixir, I can give it back to the Abyss's Daughter as an offering. The next 100-year cooldown is too long.</p>
-<p>The next item came out, and after a few more items, I saw a bracelet. It looked like a bracelet made of rope woven with golden thread.</p>
-<p>◆Bracelet of Reverse Restraint [Epic Accessory]</p>
-<p>When restrained by a rope-type item, it can be reflected back to an opponent within 3 meters once a year.</p>
-<p>The activation phrase is Attachez-vous.</p>
-<p>Hmm, does that mean if I get tied up, it bounces back and ties up the opponent within 3 meters instead? The cooldown is 1 year? I gave Arisu the smoky necklace, so should I give that to Nae Fitzgerald as a gift?</p>
-<p>"I'll buy this and give it to Nae-ssi as a gift."</p>
-<p>"Oh, really?"</p>
-<p>I was going to give it as a gift, so I told her in advance so that the price wouldn't go up if we bid against each other. When I said I would give it as a gift, Nae smiled brightly and hugged me. And she kissed me on the cheek.</p>
-<p>Chup chup.</p>
-<p>Nae Fitzgerald's kisses went from her cheek to her ear and neck, gradually heading towards my erogenous zones. It was enough foreplay to anger my dick, who has anger management issues that flare up with the slightest touch.</p>
-<p>"Hehe, I'm not wearing panties."</p>
-<p>Nae Fitzgerald whispered to me, feeling my dick harden. I pressed the bid button on the tablet and said, "Do whatever you want, auntie," and she immediately lowered my zipper with a jiiiik sound.</p>
-<p>Nae Fitzgerald immediately took out my dick and lowered her waist as it sank into her warm pussy. I couldn't help but moan with pleasure at the pushing pressure unique to Nae Fitzgerald.</p>
-<p>"Keueut!"</p>
-<p>"Ryutaa-hat♥ Auntie's pussy feels good, right?"</p>
-<p>Nae Fitzgerald moved her waist smoothly and pleasantly, continuing to whisper lewd words in my ear. While I was swept away by pleasure, I looked at the tablet and pressed the bid button each time my lead was about to be taken away.</p>
-<p>"Ahhh!!"</p>
-<p>In the end, the Bracelet of Reverse Restraint was won along with Nae Fitzgerald's climax, and the price was 1.32 million points. It was expensive for a gold bracelet, but I had so many points that it didn't even show that I had spent that much.</p>
-<p>"Next is my turn, right?"</p>
-<p>Arisu waited as if she was lining up for the bathroom and sat on top of me, saying that. Since when did the underground auction become a sex event zone?</p>
-<p>While everyone was shaking their hips on top of me, I kept looking at the auction with eyes to see if there was anything useful. Then, a ruby earring in the shape of a cross with +1 Health and +1 Resistance appeared, so I bought it. It was won for 2 million points.</p>
-<p>Who should I give this to...? I've already given gifts to everyone here in New York, so I'll pass on that. I'll have to think about it a little.</p>
-<p>"Haaang♥ It feels so good! Let's go, let's gooot! Junior-niim!"</p>
-<p>Mimata Chieri, who had been watching others do it first before joining in, felt a climax and hugged me.</p>
-<p>"Everyone, stick out your butts and stand in front of me."</p>
-<p>I was about to cum because I had already sent three people. I shook it inside Nae Fitzgerald, who ran over first, and then I buuut and ejaculated once, blocking the ejaculation by grabbing my urethra with my hand. Then I ejaculated into Arisu, and finally, I ejaculated into Mimata Chieri as expected.</p>
-<p>Mimata Chieri, who was already in the middle of her climax, fluttered and rolled her eyes back when she received my semen. It was very satisfying to see the scene of white semen dripping from the three women's moon-like butts and pussies as I pulled out my dick.</p>
-<p>Hoo... I feel refreshed somehow. Ah, but the front of my pants was soaked with the three women's fluids, making it look like I had pissed myself.</p>
-<p>"I'm going to go to the bathroom."</p>
-<p>I went to the bathroom, rinsed the front of my pants with water, and dabbed it with a handkerchief. I'm screwed. I hope this doesn't leave a stain.... Just in case, I sent a text to Eve through the underground auction app.</p>
-<p>Ryuta: Do you happen to have a quick laundry service at the auction house?</p>
-<p>Eve: Of course! People tend to spill water often since it's a closed room. You need laundry service, right? An employee will be there shortly.</p>
-<p>That's a relief. They even have laundry service.... I went back to the room with my pants off.</p>
-<p>The three women, who had already satisfied their desires, were watching the auction with expressions of enlightenment. Soon, a female employee came in, gave me sweatpants to wear temporarily, and took my pants. She was startled when she saw the silhouette of a snake in my underwear, but I couldn't help it. I can't shrink it.</p>
-<p>The underground auction's service was fast, probably because this kind of thing happened often. I was able to receive my pants back in perfect condition before two auction items had passed.</p>
-<p>I gave the employee who brought my pants a tip and put on my pants. The auction, which had been going on, was coming to an end, and in the end, a tiara that a queen had used was put up for auction.</p>
-<p>Arisu and Nae Fitzgerald threw away their enlightened time and participated with expressions that said, "I must buy that!" but they didn't win in the end. It was won for a whopping 78 million points.</p>
-<p>"It was probably bought by someone from that royal family or country. It's not easy to win against them as an individual."</p>
-<p>Nae Fitzgerald hid her disappointed expression and moved on. But she couldn't leave the room right away because she had to receive the items she had bought.</p>
-<p>I sent the ruby earrings to Japan and decided to receive the Abyss's Daughter's sculpture and the Bracelet of Reverse Restraint right away. Nae Fitzgerald and Arisu decided to have the jewelry they bought delivered, so all I had to do was receive my items.</p>
-<p>Soon, the door opened and a burly male employee came in, gave me the sculpture and bracelet, and left. First, I put the Bracelet of Reverse Restraint on Nae Fitzgerald's right wrist. I explained the bracelet's ability to Nae Fitzgerald and told her the activation phrase.</p>
-<p>"Was the pearl necklace you gave me before something you could really use?"</p>
-<p>I smiled and nodded at Arisu's question. I think she just brushed off my words that smoke would come out if I threw it before.</p>
-<p>"The bracelet can be used once a year, and the necklace is disposable, so I'll buy you something else if you use the necklace."</p>
-<p>"Okay, thank you! Ryuta is the best♥"</p>
-<p>Arisu hugged me, and when I looked at Nae Fitzgerald, she was stroking the bracelet I had put on her with a blissful expression. Mimata Chieri wasn't disappointed at all because she had received several gifts since coming to New York.</p>
-<p>"I'll definitely bring you the Japanese sword you asked for."</p>
-<p>"Yes, I'll be waiting. Nae-ssi."</p>
-<p>Nae didn't hug me because Arisu was hugging me, but she kissed me on the cheek and said she would definitely bring me the unexpected disaster. We came out of the auction house and got into the limousine. It was time to go to LA.</p>
-<p>-----</p>
-<p>The Abyss's Daughter illustration is mentioned after a long time!</p>
-<p>The Abyss's Daughter with an elixir(?) coming out of her chest like a sculpture!</p>
-<p>I wanted to make it with a cute drawing style today, so I made it like this hehehe</p>
+<p>Before getting ready to go to the main family home, I first called Yukiko. If Yukiko comes home from work and I'm not here without saying anything, she'll worry, so I should tell her in advance.</p>
+<p>-Ryuta, what's wrong?</p>
+<p>After a moment of ringing, Yukiko's beautiful voice was heard. Judging from the sound of tapping around her, it seemed like she was typing while talking on the phone.</p>
+<p>"Yukiko-ssi, tonight, my grandfather called me to have dinner at the main family home."</p>
+<p>-Ah... Is there anything else?</p>
+<p>Yukiko asked with a voice full of worry, as if she was worried about me going to the Tairaga main family home alone. Yukiko, who had been tormented by Taira Danjo because she couldn't have children, was reluctant to go to the Tairaga main family home, so she was worried.</p>
+<p>"There's nothing really. Maybe he just contacted me to come by since I won't be around during the vacation? My grandmother really wants to see me, you know."</p>
+<p>In fact, it seemed like he was going to call me to give me the three missions I promised Taira Danjo when I got the PMC, but if I told Yukiko that story, she would worry, so I made up an excuse.</p>
+<p>-Okay. Should you contact me if you're late?</p>
+<p>"Yes, I will definitely contact you."</p>
+<p>After finishing the call with Yukiko, I took a shower, put on some neat clothes, and got in the car. While driving and listening to music on the way to the main family home, I wondered what Taira Danjo would order me to do.</p>
+<p>But no matter how much I thought about it, I couldn't figure out what Taira Danjo would order me to do. I can't know because I don't have any information about that old geezer in the first place. Danjo old geezer's personality is just a pain in the ass.</p>
+<p>After driving for about 30 to 40 minutes, I passed through the checkpoint gate guarded by security and parked the car in the large parking lot in front of the main family home and got out.</p>
+<p>I slowly walked through the main gate of the main family home and entered the main family home. Then I ran into Taira Ichiro, who was just about to leave the main family home.</p>
+<p>"Oh, Ryuta, what's going on?"</p>
+<p>A small, thin man with nervous eyes and glasses. This was all I knew about Taira Ichiro, but meeting him today made me think he might be a more frightening person.</p>
+<p>Even though he was smiling at me, Taira Ichiro had eyes like a cold-blooded reptile.</p>
+<p>"My grandmother said she wanted to see me."</p>
+<p>For some reason, I felt like I shouldn't say that Taira Danjo grandpa called me, so I made the excuse of my grandmother Taira Shizuku, who usually likes me.</p>
+<p>"Ah, because mother lost Saburo... She must have called you because you look like Saburo. Thank you for caring. She's a good person."</p>
+<p>He spoke in a kind tone, but the creepy reptile-like feeling still didn't disappear from Taira Ichiro.</p>
+<p>"You don't have to thank me, big uncle. I wanted to come, you know."</p>
+<p>"Hahaha! That's right. You don't have to thank me. But since this big uncle is in a good mood, I'll give you some pocket money."</p>
+<p>Taira Ichiro laughed heartily, took out his long wallet, and took out a few 10,000 yen bills for me. It was awkward to refuse, so I said thank you and received the bills.</p>
+<p>"Okay, have a good time."</p>
+<p>Taira Ichiro tapped my shoulder twice and left the main family home. Hmm, how many bills are there? One, two, three... Fifteen bills. 1.5 million won for nephew's pocket money... I don't know if it's a lot or a little. Because I'm not from a chaebol family.</p>
+<p>But what is this?</p>
+<p>As I was about to put the bills I received from Taira Ichiro into my wallet, there was something strange attached to the bills. Because of Taira Ichiro's unique strange atmosphere, I was unknowingly raising my senses, and that's why I was able to notice something strange.</p>
+<p>One of the bills Taira Ichiro gave me had a transparent film with a circuit similar to the color of the bill attached to one side of the bill. It was so small in the corner of the bill that it would be difficult for ordinary people to recognize, but I was not an ordinary person.</p>
+<p>Hmm, is it a bug? Taira Ichiro is amazing... He seemed to have given me a bill with a bug attached to check whether I was really meeting my grandmother or meeting Taira Danjo old geezer and to find out the contents.</p>
+<p>It was scary that Taira Ichiro was checking even his nephew like this, but since he didn't have any plans to meet me today, the fact that he always carries such bugs around was even more creepy.</p>
+<p>Patsutsu....</p>
+<p>I slightly raised the abyss and damaged the circuit attached to the transparent film. With this, it won't be bugged.</p>
+<p>I checked the bills one by one again and put them in my wallet after confirming that the rest were fine. I put my wallet in my arms and went a little further, and a servant saw me, bowed his head, and approached me.</p>
+<p>"Doryeon-nim, Shizuku-nim is waiting for you."</p>
+<p>It seemed like he meant to see my grandmother Taira Shizuku first since it wasn't dinner time yet. I obediently nodded and followed the servant to the reception room that Taira Shizuku mainly used.</p>
+<p>"Ryuta, is that you?"</p>
+<p>"Yes, grandmother. I'm glad you look healthy."</p>
+<p>Taira Shizuku, who was called grandmother, looked young, so it wasn't time to talk about her health yet, but I just said it out of courtesy. Grandmothers like this kind of thing.</p>
+<p>"I brought some wagashi that Ryuta likes, so eat it with tea."</p>
+<p>I don't really like wagashi... It's just that my grandmother fed me a lot. But I don't particularly dislike it, so I sat across from Taira Shizuku and ate wagashi with tea. Taira Shizuku really seemed to think I liked wagashi, so she brought out almost 2 kilograms of wagashi. If I eat all of this, I'll really get diabetes?</p>
+<p>"Oh~! I enjoyed the music video that Ryuta came out in."</p>
+<p>Ah...! Grandmother also saw it? My name didn't even come out and it was a music video that came out in Korea, so I thought she wouldn't know. That means Taira Danjo grandpa also knows, so I'll get an earful later.</p>
+<p>Taira Shizuku clapped her hands and ordered the servants to bring a large screen and held a music video viewing session with me. I felt it once before while watching it with the Seryutai people, but it was a very embarrassing experience.</p>
+<p>"Our grandson definitely looks better in person than on screen."</p>
+<p>Taira Shizuku, who watched the music video several times and clapped excitedly, even bought the album of the singer who sang the music video and got my autograph.</p>
+<p>"I'll cherish it, Ryuta!"</p>
+<p>I couldn't tell my grandmother, who was holding the album to her chest and being moved, to stop, so I just went along with it until it was dinner time and headed to the dining room with Taira Shizuku.</p>
+<p>###</p>
+<p>"Is the device well connected?"</p>
+<p>Taira Ichiro, who came out of the main family home and got into the limousine, asked the secretary sitting in the front seat.</p>
+<p>"Yes, judging from the sound now, it seems like he's counting the bills you gave him, Chairman."</p>
+<p>Taira Ichiro gave a slightly mocking smile at the secretary's words and the rustling sound of counting bills coming from the audio. He was just a bastard who received the excessive name of Taira without proper education in the first place. He's so excited to count just a few 10,000 yen bills... He doesn't suit the name of Taira at all.</p>
+<p>"Vulgar."</p>
+<p>"Huh?"</p>
+<p>As soon as Taira Ichiro finished speaking, the secretary made a flustered sound. The rustling sound disappeared and only a hissing sound was heard as if it wasn't connected.</p>
+<p>"What's wrong?"</p>
+<p>"Um, it seems like the youngest doryeon-nim touched the circuit while counting the bills. I can't hear anything."</p>
+<p>"He's not a delicate guy. I was going to listen to what he was saying to Shizuku, but oh well. Still, tell the development team to increase the stability a bit more. It shouldn't break down so easily."</p>
+<p>Taira Ichiro, who had been calling her mother just a moment ago, was now just calling Taira Shizuku by her name. Even with disgust.</p>
+<p>Due to the chaos before the war and the secret struggles during the war, Taira Shizuku was Taira Danjo's fourth wife.</p>
+<p>Taira Danjo immediately found a wife who would support him politically and economically every time his wife died, so Taira Ichiro, the child of the first dead wife, couldn't possibly like Taira Danjo's current wife, Taira Shizuku.</p>
+<p>"The Chairman never gives power to his wife, so there won't be anything particularly special."</p>
+<p>"Yes, it would be better to pay attention to my siblings than to pay attention to this."</p>
+<p>It would definitely be a much better choice to check Taira Kokoro and Taira Jiro, who are more ambitious siblings, than Taira Shizuku and Taira Ryuta, who have no real power. Except for Nae Fitzgerald, who has now become a member of another family, all of his siblings have the same ambition as him.</p>
+<p>"Still, Ryuta is the one who visits the main family the most among the grandchildren of his father, which pisses me off."</p>
+<p>"Shall I order the 'work'?"</p>
+<p>"No, Saburo also died suspiciously, and if even his son dies in less than a year, my father will be very angry. If we get caught, we'll be blamed for everything that happened before, so we don't need to step in now. I can solve Ryuta's problem when I become the Chairman."</p>
+<p>Taira Ichiro, who rejected the secretary's suggestion to do 'work' and gestured to start, looked at the main family home that was moving away.</p>
+<p>Right now, it looks like an impregnable fortress to anyone, but time was on his side. In just a few years, cracks will appear in every corner of that impregnable fortress and it will collapse, and the Tairaga main family home will become his. Only then will he be able to decide on the disposition of his father.</p>
+<p>"First, find out what Jiro is doing. He's entangled with the Minamoto side and is being scolded by his father and lying flat, but he's too quiet."</p>
+<p>"Yes, I understand. I'll find out right away!"</p>
+<p>To take over the Taira main family home, the first thing to do is to deal with his siblings who are aiming for the same throne as him. Taira Ichiro smiled coldly.</p>

@@ -5,75 +5,69 @@ weight = 590
 chapter = 590
 +++
 
-<p>Han Yu-gyeong-ssi, with a pleased expression, watched me eat the wild ginseng, matsutake mushroom, abalone samgyetang. She contacted Lee Yeon-ju-ssi, the vice president of Vanguard, and Yang Seol-hui-ssi of Yonghwa Construction to deal with the events at the eel rice bowl restaurant and devised a plan to eliminate the Yongcheol Faction.</p>
-<p>After hearing the plan, Han Yu-gyeong-ssi's side came to the same conclusion as the Yongcheol Faction. The conclusion was that they had to strike the head, Jeon Yong-cheol, and absorb the Yongcheol Faction. As expected, if a war breaks out like this, they'll have no choice but to capture the leader. Now that the Yongcheol Faction has messed with Han Yu-gyeong-ssi, they can't just sit still.</p>
-<p>, Yeah... Let's make the time 4 AM. It'll be harder to prepare than in the middle of the night. Until then... Yeah, do that."</p>
-<p>Han Yu-gyeong-ssi, who had been on the phone for a while, hung up. Her expression wasn't too serious, so it seemed like the conversation went well. Of course, even if Jeon Yong-cheol came from a special forces background, Han Yu-gyeong-ssi, who leads Vanguard, which is no different from a PMC, had no reason to fear the Yongcheol Faction.</p>
-<p>"Was it resolved well?"</p>
-<p>"Of course, it's not resolved until the Yongcheol Faction is eliminated, but I've set up a preparation plan."</p>
-<p>I don't know if it's okay for Han Yu-gyeong-ssi to be with me like this when a war with a violent organization is just around the corner, but she was still staring at me with seductive eyes as I tore apart a chicken leg. Han Yu-gyeong-ssi ordered two bowls for me, so it took some time to eat.</p>
-<p>"Are you done eating?"</p>
-<p>"Yeah, it's delicious."</p>
-<p>"Then there's a toothbrush and Yong-tae's underwear here, so brush your teeth, wash up, and come here♥"</p>
-<p>Han Yu-gyeong-ssi winks at me as she gives me a new toothbrush and a pair of underwear that's still in its packaging. I smile and take the toothbrush and underwear that Han Yu-gyeong-ssi prepared and head to the bathroom.</p>
-<p>After brushing my teeth, showering, and coming out to the living room wearing only the Calvin Klein underwear that Han Yu-gyeong-ssi gave me, Han Yu-gyeong-ssi was standing there with her back turned, wearing a black cheongsam with an open back.</p>
-<p>"Yu-gyeong-a, what's with this cheongsam?"</p>
-<p>"Huh? Ehehe. Since Yong-tae's graduation trip's next destination is China, I'm trying to build up your resistance to Chinese women..."</p>
-<p>So, she's wearing a cheongsam to keep me from falling for a Chinese woman? Even in China, I don't think there are people who wear such a sexy cheongsam in their daily lives. Still, it looked good.</p>
-<p>I massaged Han Yu-gyeong-ssi's buttocks, which were bulging out as if she was angry despite wearing the cheongsam, and hugged her from behind.</p>
-<p>"Liar... You just wore this outfit to make me horny because the topic of China came up, didn't you?"</p>
-<p>I whispered in Han Yu-gyeong-ssi's ear and stroked her glossy thighs, which were clearly exposed through the unique side slit of the cheongsam. As I said, the cheongsam that Han Yu-gyeong-ssi was wearing wasn't an ordinary cheongsam. It clung tightly to her body, revealing her figure, and the fabric was so thin that you could see the curve of her butt. It was a sexy outfit that anyone could tell was for sex.</p>
-<p>"I... I don't know♥"</p>
-<p>While saying she didn't know, she was flinching every time I stroked and touched her thighs, enjoying the touch. I lifted the back of the cheongsam's skirt, which was hanging down like a curtain, and touched her bare butt, heading deeper and deeper.</p>
-<p>"Haa... Yong-tae-yaa..."</p>
-<p>As my hand approached her pussy, the moisture became thicker and thicker, and Han Yu-gyeong-ssi's moans also became more and more intense.</p>
-<p>If Han Yu-gyeong-ssi wore this outfit with the intention of making me horny, as I just said, it was safe to say that she had completely achieved that intention.</p>
-<p>The front of the Calvin Klein underwear that I had just unwrapped and put on was bulging as if it would tear due to my erection, and the front was wet with the flowing pre-cum.</p>
-<p>"Haaheung...!"</p>
-<p>As my fingertips slightly brushed against the tip of Han Yu-gyeong-ssi's wet pussy, she staggered as if she was about to collapse and let out a moan. She had a small orgasm from touching her pussy and lost her strength.</p>
-<p>I grabbed Han Yu-gyeong-ssi's arms and turned her body to face me. Just like her back view, Han Yu-gyeong-ssi's front view was also stimulating. Her face was flushed from the small orgasm, and Han Yu-gyeong-ssi's nipples, which were pushing against the thin fabric of the cheongsam and sticking out a lot, were visible.</p>
-<p>"Yong-tae-yaa... Kiss me."</p>
-<p>At Han Yu-gyeong-ssi's request, I gladly kissed her. Han Yu-gyeong-ssi greedily explored my tongue as if she hadn't had water for three days. Perhaps because she was hugging me tightly, I could feel Han Yu-gyeong-ssi's soft breasts and hard, erect nipples through the single thin layer of fabric. Hmm, this is good.</p>
-<p>"Euheung, yeah, chuut! Ttseup, chueup! Tteuhp...♥"</p>
-<p>The sound of our lips sucking on each other echoed in the room, and as much as Han Yu-gyeong-ssi was hugging me, I also hugged her tightly and pressed my erect dick against her stomach so she could feel it better. Han Yu-gyeong-ssi hugged me even tighter, as if she could feel my dick.</p>
-<p>"Tteueuhp, haa...! Yong-tae's dick is hot. My underwear is uncomfortable. I'll have to loosen it."</p>
-<p>Han Yu-gyeong-ssi, who had been kissing me for a while, smiled and knelt in front of me. Is she talking to my dick? Honestly, my dick had been constantly erect and stretching my underwear, so it was true that it was uncomfortable, but I couldn't help but smile at Han Yu-gyeong-ssi's absurd words.</p>
-<p>Han Yu-gyeong-ssi, who was kneeling in front of me, took off my underwear. When she saw my huge dick dripping with pre-cum in front of her eyes, she stuck out her tongue and licked the back tendon of my dick as if she regretted the pre-cum dripping onto the floor, and at the same time, she started licking it.</p>
-<p>"Haa... Yong-tae's dick is delicious after a long time♥"</p>
-<p>Han Yu-gyeong-ssi, who was slightly impressed, gently tickled the area below my glans with her tongue and began to suck up the pre-cum that was dripping out.</p>
-<p>"Keueut...!"</p>
-<p>It was a technique that even I, who had gone through thick and thin, couldn't help but moan at. Han Yu-gyeong-ssi looked up at me and raised the pitch even more as she saw my expression moaning.</p>
-<p>She wasn't doing a deep throat that accepted it all the way to the back of my throat like others, but she was shaking her head quickly and briefly to target only the glans, which was my weak point, and began to extract my semen using a technique only for squeezing out semen. Seeing her only craving semen, Han Yu-gyeong-ssi felt even more like a succubus than Yukiko.</p>
-<p>"Keueu...! I'm cumming!"</p>
-<p>Byuuut! Beut! Buuut!</p>
-<p>My dick, which had been excited since earlier, couldn't stand Han Yu-gyeong-ssi's stimulation and released semen, and Han Yu-gyeong-ssi's cheeks instantly became full. Despite the huge amount of semen, Han Yu-gyeong-ssi began to swallow the semen, moving her Adam's apple up and down as if she wouldn't let a single drop spill.</p>
-<p>Tteueup...! Tteueup! Tteup!</p>
-<p>Han Yu-gyeong-ssi, who had been drinking my semen for a long time, sucked up even the small amount of semen remaining in my urethra and then opened her mouth to show me that there was nothing there. That appearance was so sexy that my dick, which had lost its erection, slightly reacted.</p>
-<p>"Ehehe...! Yong-tae's white baby juice is delicious."</p>
-<p>Since I have the Holy Pillar turned on, there's a stamina-boosting option attached to my semen, so she'll probably feel the effects. But the taste should be the same as regular semen. Looking at Han Yu-gyeong-ssi's expression, it seemed like she genuinely thought it was delicious.</p>
-<p>Moreover, the flames of Han Yu-gyeong-ssi's lust hadn't gone out yet. She had only served me and hadn't properly satisfied her own desires yet.</p>
-<p>Han Yu-gyeong-ssi sat on the sofa and spread her legs. Then, the skirt of the cheongsam fell down like a curtain, covering Han Yu-gyeong-ssi's crotch.</p>
-<p>Rather than sitting with her legs spread naked, this appearance looked much sexier. While seeing everything is good, there are times when seeing something partially hidden is more arousing.</p>
-<p>"Is there a place you want to see...?"</p>
-<p>"Yeah... I'm curious about the covered part."</p>
-<p>"Eunghuhu...! You can just look directly."</p>
-<p>Han Yu-gyeong-ssi spreads her legs even wider as if telling me to check directly. Because the skirt of the cheongsam wasn't moved even if she spread her legs, I became even more anxious.</p>
-<p>I sat on the sofa and approached Han Yu-gyeong-ssi and caressed the mound of her pussy over the cheongsam curtain. Because it was a thin fabric, the shape of Han Yu-gyeong-ssi's pussy and the feeling of moisture were well transmitted to my hand.</p>
-<p>"Heueueung...♥"</p>
-<p>Han Yu-gyeong-ssi twists her body with a nasal sound at my caress. With the other hand that wasn't touching her pussy, I caressed her protruding nipples and licked her ears and neck with my mouth.</p>
-<p>"Yong-tae-yaa..."</p>
-<p>"Yeah?"</p>
-<p>"Heut, now, haat! Heueung...! Put it in."</p>
-<p>"Yeah? What...?"</p>
-<p>Because I wanted Han Yu-gyeong-ssi to lift her skirt and beg on her own from the beginning, I pretended not to know and continued to caress her.</p>
-<p>"Haaat! Quickly... Yong-tae's dick, eunghut...♥ Put it in Yu-gyeong's hiit! Sexy pussy, pleaseeohot...!"</p>
-<p>Han Yu-gyeong-ssi couldn't stand it any longer as I continued to caress her, so she opened her mouth while lifting the cheongsam to the side. Han Yu-gyeong-ssi's pussy was already flooding with juices, and although it was usually tightly closed in a straight line, it was now gaping and seducing my dick.</p>
-<p>My dick had already escaped the post-cum clarity and was standing stiff and angry, so I didn't ignore Han Yu-gyeong-ssi's pleas and widened her vagina as I put my dick in.</p>
-<p>"Haaat! This is it, heut! Yong-tae's dickiit...! Haat, I love the feeling of being filled up♥"</p>
-<p>Han Yu-gyeong-ssi reached orgasm just by pushing my dick in. Of course, the pleasure must have been immense since my glans was scratching the inside of her vagina a lot. The inside of her vagina was writhing like crazy, tightening and loosening my dick. I ignored the movement of her pussy and started piston movements, moving my waist as it was.</p>
-<p>The sound of flesh hitting flesh and Han Yu-gyeong-ssi's moans filled the living room. Han Yu-gyeong-ssi scratched my back with her fingernails and resisted the onrushing pleasure, but it was a futile act.</p>
-<p>"Haat, haaheung! Yong-tae-yaaahaang...! It feels, heut! Strange...!"</p>
-<p>Han Yu-gyeong-ssi couldn't come to her senses from the constantly rushing orgasms and had no choice but to continue accepting my dick. I continued to move my waist to cum deep inside Han Yu-gyeong-ssi.</p>
-<p>______________</p>
-<p>Cheongsam B-cut!</p>
-<p>Sleeveless is good, but long sleeves are also good hehe</p>
+<p>New Nanjing City was where the research institute of SCSMC (South China Semiconductor Manufacturing Corporation), a mega-corporation in South China, was located. For reference, Phoenix Technology Company, which was the target of this cyber zombie virus, was also a subsidiary of SCSMC.</p>
+<p>The SCSMC research institute was producing and testing various prototypes of new technologies, and the thing chasing the students of St. Francis Girls' Academy was probably a new weapon called Project G.</p>
+<p>It was a giant robot that required a pilot with a full-body cyber implant, and it was a technology that allowed the giant robot connected through the cyber neural network of the cyber implant to move freely. If a robot the size of a building could move as freely as a human, its power would be considerable, so SCSMC was diligently developing it as a next-generation weapon.</p>
+<p>The cyber robot was just a giant armor, so there wasn't a big problem, but the problem was with the pilot. If the pilot controlling it was infected with the cyber zombie virus, the robot would also become a cyber zombie robot.</p>
+<p>Then it made sense. As it was a prototype, SCSMC's robot was equipped with numerous weapons under research, so even if Shimokawabe Airen fought, the students would inevitably be harmed. But telling them to run away first would make him anxious about the students' safety because there were regular cyber zombies... In the end, he must have chosen to run away together.</p>
+<p>I think I roughly know the whole story, so now I need to tell Taira Kanna where to meet up. We can't keep being scattered like this.</p>
+<p>"We'll find our way there, so let's meet at the hotel we were staying at."</p>
+<p>-Okay... *static* Be caref... *garbled*... *static*!</p>
+<p>I guess she's saying she understands and that I should be careful too? I turned off the radio and looked at Muko Neika and Saionji Diana, who were listening to the conversation with me.</p>
+<p>"As you heard, that's how the situation is. To meet up with the kids, we have to go to the hotel where we left our luggage."</p>
+<p>Actually, that was quite difficult. With all communications cut off, having to go to a hotel we've only been to once in New Nanjing City without a navigation system was by no means easy.</p>
+<p>Especially since the zoo was located on the outskirts of the city, going to a hotel in the downtown area would be even more difficult.</p>
+<p>By the way, the fact that the cyber zombie robot appeared here at the beginning of this incident meant that SCSMC's secret research institute was near the zoo.</p>
+<p>Many players in Mega Corp's youngest son thought about obtaining SCSMC's latest technology by taking advantage of this chaos, but no one was able to obtain the technology because they had only heard that SCSMC's research institute was in New Nanjing City, but they didn't know where it was.</p>
+<p>No one went near the zoo because there was nothing to gain, but the research institute was near the zoo. There are a lot of students right now, so I'm a little self-conscious, but I think I can at least check out places that look like research institutes while moving.</p>
+<p>"Wait a minute..."</p>
+<p>I went inside the Class B bus, which was dented in the middle after being stepped on by the cyber zombie robot. I went in hoping there might be a radio, and there was. Unfortunately, the trunk was also included on the side that was stepped on, so I couldn't get the cyber suit that would have been on the bus.</p>
+<p>"Let's get going."</p>
+<p>I threw the radio to Muko Neika, the representative of Class B. And instead of Otagi Yuka, who had been working hard driving, I took the wheel and drove off with the students. As I drove out of the parking lot, I saw cars parked in the middle of the road, and it seemed that the virus had become active while they were driving, causing them to leave their cars.</p>
+<p>I was avoiding the vehicles on the road and looking around to see if there was anything unusual, and I saw cyber zombies on the side of the road chasing after the moving car like crazy.</p>
+<p>While Saionji Diana was firing a few shots to shake off the cyber zombies that were sticking to us, I saw a factory with huge smoke coming out of it. It looked like a normal factory, but the large hole looked like something huge had come out of it. Oh, I think that's the place.</p>
+<p>"Is everyone a little hungry?"</p>
+<p>"I'm a little hungry. Are you hungry too, Sensei-ssi?"</p>
+<p>Otagi Yuka answered my question with a sense of humor. I'll have to give her plenty of pi (semen) as a reward later.</p>
+<p>In response to Otagi Yuka's answer, the students each said they were hungry too.</p>
+<p>"Factories in such remote areas usually don't have restaurants around, so they have cafeterias, right? How about we stop by there and see if there's anything to eat?"</p>
+<p>"That's right. There aren't really any convenience stores or anything to eat around here... And if we go into the downtown area instead of the outskirts of the city, we don't know how many zombies there will be... It might be more reasonable to find something to eat at a factory cafeteria in such a quiet place."</p>
+<p>This time, Muko Neika said it. I didn't think that far, but when Muko Neika said that, it made a lot of sense. Everyone agreed with Muko Neika's reasonable words, so we headed to the factory with the big hole in it.</p>
+<p>We didn't go completely into the factory, but left the car on the road about fifty meters away from the factory entrance.</p>
+<p>"First, I and the special class students will scout around, so Muko, please wait here and protect your classmates."</p>
+<p>"Okay. Please be careful too, Sensei-nim!"</p>
+<p>Even if this was SCSMC's secret research institute, I couldn't steal data while the Class B students were watching, so I kept my distance from the factory under the pretext of scouting.</p>
+<p>"Sensei-ssi, what were you thinking coming here?"</p>
+<p>"Ryutta, didn't we come here because of the cafeteria...?"</p>
+<p>At Otagi Yuka's question, Alik asked back with an innocent expression. Saionji Diana was holding a gun and looking around.</p>
+<p>"There's a possibility that this is SCSMC's secret research institute. If it's not a secret research institute, we'll just have a meal, and if it is SCSMC's secret research institute, we'll try to get some research data."</p>
+<p>"Is that so?"</p>
+<p>"I see."</p>
+<p>Everyone nodded at my words. I couldn't make the Class B students wait too long, so we decided to split into two groups, me and Saionji Diana, and Otagi Yuka and Alik, to search. I gave Otagi Yuka one of the hacking UCTs (Universal Connection Terminal) that I always carry around.</p>
+<p>I moved with Saionji Diana. Saionji Diana, who has a gun, is more compatible with me, who is not good at long-range attacks, so that's why I formed the group.</p>
+<p>"We'll go into the container building right in front of us, so Otagi and Alik, please take a look around that building over there."</p>
+<p>"Okay, Sensei-ssi. I'll shout loudly if anything happens."</p>
+<p>Saionji Diana and I went into a fairly large container building near the parking lot, and it was a cafeteria. It seemed that the infection broke out while they were preparing food for dinner soon, and the food looked pretty good, as expected of SCSMC's secret research institute. When Saionji Diana and I opened the door to the cafeteria and went inside, cyber zombies in chef uniforms that were wandering around rushed at us.</p>
+<p>We came out of the building first. I didn't want to ruin all the food by fighting inside the cafeteria. We easily defeated the cyber zombies that followed us out and went back into the cafeteria.</p>
+<p>There were no remaining zombies or dead civilians. As expected, it seemed that none of the chefs used VR devices, as cyber implants have become popular in New Nanjing City. Or maybe the civilians who used VR devices were eaten by the cyber zombies.</p>
+<p>"I don't know if it's fortunate, but it seems that all the cooking is done."</p>
+<p>"It's fortunate for us, Sensei-nim."</p>
+<p>"Yeah. Let's check the cafeteria first and then go somewhere else."</p>
+<p>After leaving the cafeteria, we headed to the building on the opposite side that Otagi and Alik's group went to. It was the building where smoke was rising from the big hole.</p>
+<p>"The smoke is bad, so just provide support from a distance."</p>
+<p>"Yes. Please be careful too, Sensei-nim."</p>
+<p>The smoke was bad, so I left Saionji Diana behind and covered my face with a telekinetic reaction shield to avoid inhaling the toxic smoke.</p>
+<p>When I went inside the building, I saw a cyber robot with a crude design mounted on a huge steel rack, so it seemed that it was SCSMC's secret research institute as expected.</p>
+<p>One of the racks had fallen over, and sparks were falling from a severed wire, burning flammable materials around it. It seemed that the robot pilot who was here had zombified and escaped. In the process, the wire connected to the robot was cut, scattering sparks around.</p>
+<p>Perhaps because of the smoke, cyber zombie mechanics and researchers were lying down, poisoned by the smoke. They were probably all dead. They couldn't help it since they kept inhaling toxic smoke.</p>
+<p>No matter how much they became like zombies, they were still humans who breathed through their respiratory system, and only a part of their brain was transformed, so they couldn't survive in a place full of smoke like this.</p>
+<p>I spread out a telekinetic reaction shield and surrounded the burning area. I was going to put out the fire by blocking the inflow of air. Fortunately, it wasn't a material that continued to burn even without air, so the fire went out shortly after I surrounded it with a telekinetic reaction shield.</p>
+<p>"Kieee!"</p>
+<p>As the smoke cleared a little, a few cyber zombies who were safe because they had cyber implants with self-purification devices in their lungs rushed at me. I swung my hand covered in the abyss and struck the zombie's neck. They'll just keep attacking their surroundings with only anger, so making them comfortable is helping them. I took care of two of the three, and Saionji Diana shot the remaining one accurately between the eyebrows and knocked it down.</p>
+<p>After the fire was extinguished and the smoke had completely cleared, I went inside the repair shop and plugged the hacking UCT into the computer, which was filled with data on the screen. The hacking UCT, which had been slowly flashing red, soon turned green. It meant that the hacking was complete and all the data had been collected.</p>
+<p>"Let's go to the next place."</p>
+<p>"Yes."</p>
+<p>Our first goal in this research institute is to collect important-looking data, and the second is to find the security headquarters and delete the CCTV videos stored there.</p>
+<p>I'm not yet at the point where I can antagonize SCSMC, a huge mega-corp in South China, so I had to erase our traces. As with most large corporations, CCTV footage and video files would normally be transmitted to the headquarters in real time, but fortunately, all communications are currently cut off, so they are not being sent to the headquarters and are only being stored in this security headquarters, so all I have to do is remove the storage device from the security headquarters.</p>
+<p>_______________</p>
+<p>In commemoration of being in a group with Saionji Diana, here's a Saionji Diana illustration hehe</p>

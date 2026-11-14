@@ -5,78 +5,75 @@ weight = 983
 chapter = 983
 +++
 
-<p>"Ehehehe...! I won. Ryuta-cchi, your cock, now... put it in♥"</p>
-<p>Seizawa Shii, who had won the pussy sandwich match, showed a victory peace sign with both hands and demanded my cock. When I nodded, she kicked Otagi Yuka, who was still trembling from the afterglow of climax, to the side, then patted the bed. Huh? Was she telling me to lie down?</p>
-<p>"Ryuta-cchi must be tired from thrusting your hips continuously, so I'll move on top of you~♥"</p>
-<p>It was probably less for my sake and more because she wanted to run wild on top of me, but since the cowgirl position wasn't bad, I lay down on the bed as Seizawa Shii suggested.</p>
-<p>"Heueung...♥ Ryuta-cchi's cock...! It's been so long, haaheung♥"</p>
-<p>Since I hadn't had celebratory sex (?) with Seizawa Shii after the battle with Anyaji, Seizawa Shii lost her mind at the sight of my cock. As I lay down, she deeply inhaled the scent of my cock, which stood proudly towards the sky, then made an orgasm face, as if she had smelled catnip, saying, 'This is it...!'</p>
-<p>Then she got up, came towards my pelvis, and slowly began to lower her hips. Slowly lowering her hips, she aligned her pussy with my cock and began to insert it.</p>
-<p>Seizawa Shii's tightly closed vaginal flesh was being widened by my glans as it was inserted.</p>
-<p>"Haaah-ha...! This is dangerous...! This feeling♥ It's been so long, heueuung, it feels so good, Ryuta-cchi...♥"</p>
-<p>Seizawa Shii fully sat on top of me, reaching the deepest part, then looked at me, smiled, trembled, and reached a small climax.</p>
-<p>I could feel the texture of Seizawa Shii's pussy, which had her unique powerful clench, and her cervix pressing against my glans. I also felt so good that I almost ejaculated the moment I inserted it.</p>
-<p>"Heueu-heueuung... Ryuta-cchi...! My, heueut, pussy feels good?"</p>
-<p>"Uh...! It's a top-grade pussy that clenches tightly."</p>
-<p>Perhaps satisfied with my answer, Seizawa Shii gave a deep smile and slowly began to move her hips. Seeing Seizawa Shii's breasts sway and her gradually being consumed by pleasure, my cock also began to harden even more inside Seizawa Shii.</p>
-<p>"Haaht! Inside, heueung, if you get so hard...! I can't move, Ryuta-cchi...♥"</p>
-<p>Even as she said she couldn't move, Seizawa Shii's movements grew even more intense. Could the bed withstand it? I worried, but perhaps because Butler Tosen Nobumichi had prepared a luxury item, the bed didn't suddenly collapse.</p>
-<p>Since Seizawa Shii usually had somewhat gentler sex unless it was in the laundry room, I wasn't worried about anything major breaking today.</p>
-<p>Cheolpeok! Cheolpeok...! Cheolpeok! Cheolpeok...! Cheolpeok!</p>
-<p>"Haaht! Heueung...! Haaht! Heuheung...! Haaheung!"</p>
-<p>Seizawa Shii, who was making slapping sounds and moans that had a strange rhythm, seemed to be nearing climax, and her already tight pussy began to contract even more.</p>
-<p>Only my cock could withstand this. If a 500ml plastic bottle were inserted into her pussy now, it would surely be crushed immensely.</p>
-<p>"Haaang, Ryuta-cchi...! I think I'm going to cum...! Haaht! Going to...! Ahaang...♥ I'm cumming...!"</p>
-<p>Seizawa Shii kept saying she was going to cum, then stuck out her tongue and reached climax. Considering she had already had plenty of pseudo-sex with the pussy sandwich, it was impressive that she had held on this long. I was just about to feel the sensation of ejaculation, so it was a little disappointing.</p>
-<p>Thud!</p>
-<p>Just as a beast waits for its prey to weaken, Otagi Yuka immediately pushed Seizawa Shii aside the moment she climaxed. It seemed to be revenge for being pushed away earlier. Then, with a flushed face, she looked at me with a shy expression and opened her mouth.</p>
-<p>"Now, it's my turn, Ryuta-ssi...♥ Come inside me...!"</p>
-<p>In contrast to Seizawa Shii, who had been in the cowgirl position, Otagi Yuka lay down, spreading her legs, revealing her pussy, and waiting for my cock. Was she telling me to taste a different flavor than Seizawa Shii?</p>
-<p>Although it had been some time since she had climaxed, Otagi Yuka's pussy was sufficiently moist, perhaps because she had been aroused watching Seizawa Shii and me have sex. And my cock was also coated with Seizawa Shii's vaginal fluid, so lubrication was ample. I grabbed Otagi Yuka's spread thighs and slowly thrust my waist.</p>
-<p>"Haaheuu...! Ryuta-ssi, I love your cock inside me, haaang♥"</p>
-<p>I, too, liked the feeling inside Otagi Yuka's pussy, which felt like it had countless suction cups. It felt as if it had evolved this way while using my semen as an energy source. Since semen hardly flows out even after creampie, these suction-cup-like protrusions inside must be absorbing the semen.</p>
-<p>"Haaht! Heueung...! Deeper...! Press deeper, Ryuta-ssi...♥"</p>
-<p>Otagi Yuka had just had a massive climax in the pussy sandwich position, but even now, she hadn't moved her hips much, yet her arousal level was visibly rising. Then I should amplify this arousal even more.</p>
-<p>I grabbed Otagi Yuka's wrists and pulled, thrusting my hips more flamboyantly and roughly. As my hip movement grew rougher, Otagi Yuka's moans also grew louder.</p>
-<p>"Heuheu...! Aheu...! Ryuta-ssi, haaheung...! Too hard...! If you do this, heuhaaht...! I can't bear it♥"</p>
-<p>As I vigorously thrust my hips, I felt someone sucking my neck with their lips. Of course, besides Otagi Yuka and me, who were having sex in this room, the only other person was Seizawa Shii, so the one sucking my neck was naturally Seizawa Shii.</p>
-<p>"Haaheung...! Shii, haaheueut...! That's cheating, ahaang...♥"</p>
-<p>Otagi Yuka said, looking at Seizawa Shii sucking my neck. But her voice was mixed with a coquettish moan due to the wave-like pleasure, making it utterly unconvincing.</p>
-<p>Seizawa Shii sucked my neck, then licked my back, moving downwards. Seizawa Shii's final destination was my buttocks and Balls.</p>
-<p>"Keueueut...!"</p>
-<p>As my anus and Balls were alternately sucked, the feeling of ejaculation surged. Since I had already felt some sensation of ejaculation when I was with Seizawa Shii, with the feeling of Otagi Yuka's pussy and Seizawa Shii's rear attack, semen began to rise rapidly. I released Otagi Yuka's wrists, then took longer strokes and began to thrust my hips quickly.</p>
-<p>Otagi Yuka also sensed what was coming, so she grabbed her thighs to stabilize her legs, which were trying to close due to pleasure, and enjoyed my piston movements.</p>
-<p>"Keueu, semen is coming up...!"</p>
-<p>At my declaration of ejaculation, Seizawa Shii lifted her face from my buttocks and pressed my buttocks tightly against Otagi Yuka. The moment Otagi Yuka's clitoris and my pubic bone completely adhered, ejaculation began to explode.</p>
-<p>Byuut! Byuut! Byuuut!!</p>
-<p>Otagi Yuka instantly climaxed at my ejaculation. She showed me a completely defenseless orgasm face, with her eyes rolled back, and her pussy inside squirmed intensely, sucking in my semen. Still, because it was semen that erupted from the explosive release of accumulated arousal from the pussy sandwich, the quantity was so immense that even Otagi Yuka's absorption pussy couldn't help but overflow with semen.</p>
-<p>Seizawa Shii, who had embraced me from behind during ejaculation, letting me feel the soft sensation of her breasts against my back, breathed out a 'Hoo' into my Whispering Ear and then spoke.</p>
-<p>"Now it's my turn, Ryuta-cchi?"</p>
-<p>Ah, she was the type with incredible sex stamina. With Seizawa Shii and even Otagi Yuka having such immense sex stamina, it seemed I wouldn't be sleeping tonight.</p>
-<p>Stomp, stomp, stomp...!</p>
-<p>Seiwa Rieko, who had been lying on the bed, got up. She had heard the footsteps of Otagi Yuka, her Clan Lord, who was in the next room, opening the door and going somewhere.</p>
-<p>'Where is she going at this hour?'</p>
-<p>Seiwa Rieko tilted her Head, waited for a moment, then slowly got out of bed. And carefully opened the door. Otagi Yuka had already passed Seiwa Rieko's door some time ago, so no one was there.</p>
-<p>But Seiwa Rieko had clearly heard the footsteps of where Otagi Yuka had gone. Seiwa Rieko carefully walked in the direction Otagi Yuka had taken.</p>
-<p>The place she followed the sound to was Taira Ryuta's room, the Host and owner of the largest room in this mansion. Light was spilling out of the room, as if the door wasn't closed.</p>
-<p>"First, will you come inside the room?"</p>
-<p>Seiwa Rieko was startled by Taira Ryuta's words, but soon realized that the words were not directed at her.</p>
-<p>They were directed at Otagi Yuka and Seizawa Shii, who were standing in front of the door. The two slowly approached Taira Ryuta, and the scene that followed came as an enormous shock to Seiwa Rieko.</p>
-<p>Two-on-one sex, no less...! It was an incredibly surprising event for Seiwa Rieko. And it wasn't a forced feeling, like what she had experienced. There was a subtle tension between Otagi Yuka and Seizawa Shii, but the expressions they made upon seeing Taira Ryuta's gigantic cock, wondering if it was even a man's cock, were those of ecstatic female animals.</p>
-<p>"...!"</p>
-<p>After that, Seiwa Rieko couldn't help but be surprised. To stack women like a sandwich and then insert a cock between them...! Such a thing, which Seiwa Rieko had never imagined, was happening in this room.</p>
-<p>It was clearly a scene of human reproduction that Seiwa Rieko abhorred, but the appearance of Otagi Yuka, whom she admired, looked incredibly happy.</p>
-<p>"...!"</p>
-<p>Seiwa Rieko slowly put her hand inside her pajama pants. Her groin was drenched with slippery liquid. This was the first time this had happened.</p>
-<p>'Why am I doing this...? I must leave immediately...!'</p>
-<p>Contrary to her thoughts, Seiwa Rieko couldn't stop peeping. To avoid being caught, she even used her Fogification to assimilate into the darkness and watched the trio's sex scene.</p>
-<p>Seiwa Rieko couldn't leave Taira Ryuta's doorway until the blue light of dawn appeared outside the window.</p>
-<p>Gojoy-nim requested Ha Ju-yoon's Breast Covering and Tape~!</p>
-<p>First, Tape~!</p>
-<p>Breast Covering~!</p>
-<p>Hwanbuljeoldaebulga-nim requested Hotpants, Sleeveless Crop Top, Belly button piercing Lisa, and Home Economics Teacher~!</p>
-<p>Home Economics Teacher~!</p>
-<p>MidNightSKY-nim requested Han Yu-gyeong and Ha Ju-yoon's Sexy Attire~!</p>
-<p>Ha Ju-yoon~!</p>
-<p>Han Yu-gyeong~!</p>
-<p>Neosblue-nim requested Maid Alik~!</p>
+<p>After the Taira Competition, I couldn't leave the Taira main family residence right away. Because I had been on a mission for a long Time, there were quite a few People who wanted to meet me, so I had to meet them all separately at the Taira main family residence before leaving.</p>
+<p>Besides me, there were quite a few People who came to the Competition who gathered in small groups of three or five to have a brief meeting or a tea Conversation before leaving.</p>
+<p>The Taira main family residence was larger than our mansion, which I could confidently say was quite spacious, so there were enough rooms for everyone who participated in the Competition to have a separate room. Because the Taira main family residence was responsible for Security, everyone could have Conversations without Worry.</p>
+<p>However, while others were having Conversations in private visiting rooms, I was enjoying tea with Korean traditional sweets in the Annex's garden with Grandmother Taira Shizuku.</p>
+<p>Ever since I entered the Taira Family and was subjected to Food Torture with Korean traditional sweets in the early stage, I was mistaken for liking Korean traditional sweets, so every Time I came to the Taira main family residence, I drank tea with Grandmother while eating Korean traditional sweets.</p>
+<p>Even now, Korean traditional sweets were stacked in front of me like a tower, like a pile of Okchundang, the candy placed on Korean ancestral rite tables. This alone seemed to weigh nearly 2 kilograms.</p>
+<p>It wasn't just Grandmother and I, but Yukiko and the secretaries were also with us as a party, so the Atmosphere was slightly different from when it was just Grandmother and I. It was just a little less friendly, you could say.</p>
+<p>I heard from Yukiko before that when Taira Saburo was alive, there was conflict between Grandmother and Yukiko because she couldn't produce a child to succeed him, and because of that, even now that Taira Saburo was dead, they were still somewhat awkward with each other.</p>
+<p>Looking at it that way, I knew that Yukiko also didn't have a good relationship with Taira Kanna (this was Taira Kanna's one-sided hatred because she was a brother-complex), and she also didn't have a good relationship with the other Siblings in the Taira Family who were fighting over the Successor position, so it could be said that although Yukiko belonged to Taira, she didn't have much friendship with the People on the Taira side.</p>
+<p>If I were a Person from the Minamoto side, I would have targeted Yukiko, who was a weak link while being a member of the Taira Family. Of course, now that I was in an inseparable Relationship with her, others wouldn't be able to pull any Tricks.</p>
+<p>「Ah, Ryuta. The photo card you sent me was the best gift.」</p>
+<p>Grandmother, who was drinking tea, suddenly opened her mouth as if she had remembered something. Photo card...? Ah, she seemed to be talking about the photo card that was given as a bonus in the Anthology I made at the St. Francisco Girls' Academy festival. I remembered sending the full set as a gift to Grandmother and several other People.</p>
+<p>「Photo card...? What is that?」</p>
+<p>Linxiang, who didn't know me at the Time of the festival, asked Grandmother, curious about what she was talking about. Grandmother asked the Maid to bring my photo card as if she was glad she had asked. It was a bit embarrassing as the Person in the photo card, like an Idol fan showing off their Goods.</p>
+<p>A little later, the Maid brought my photo card on a fancy tray made of some Velvet, along with a few frames. But what were those frames? I had never sent those as a gift to Grandmother.</p>
+<p>「Ryuta-nim, why didn't you tell me that there was such a Product? This is a revolutionary item...! I would like you to provide me with this 'photo card' item as a welfare item as well. With just this, Work efficiency will increase by about 215 percent.」</p>
+<p>Linxiang looked at the photo card, her Eyes sparkling, and requested the photo card while looking at me. Because the photo cards were sold out even though I had produced additional ones at the Time of the festival, I had to make new ones to provide to Linxiang.</p>
+<p>Because I had the photo files that I had taken at the Time of the festival, it wasn't difficult to make them, so I nodded. But why did having the photo card increase Work efficiency?</p>
+<p>「Ryuta-nim...! I will treasure it for life.」</p>
+<p>Linxiang seemed very happy and said that she would treasure the photo card for life, even though she hadn't received it yet.</p>
+<p>「Take a look at this too.」</p>
+<p>Grandmother, who had been watching Linxiang's Fuss with a mom Smile for a while, this Time held up a frame of unknown origin.</p>
+<p>「!?」</p>
+<p>It was a photo of my photo card enlarged and placed in a frame. It was almost poster-sized, but since the original was a photo 'card,' the Size wasn't very large, but it seemed to have been enlarged at least 10 Times. Still, seeing that the photo wasn't pixelated, it seemed to have used quite advanced upscaling technology.</p>
+<p>「You made it this big? That's amazing?」</p>
+<p>「First.... Sign here.」</p>
+<p>Grandmother, quite pleased with my Admiration, handed me a Pen. As I signed the frame that Grandmother had made in poster Size, she was really happy like an Idol fan who had received a signature on their cherished item.</p>
+<p>「Mother.... Can I get one too?」</p>
+<p>Yukiko couldn't stand it and asked Taira Shizuku for an enlarged photo card as well. But was there a need to have something enlarged from that small photo card? I had the original file. Besides, the original was taken with a top-of-the-line Camera, so it wouldn't be pixelated even if it was enlarged to the Size of a vehicle.</p>
+<p>「I have the original file, so I'll make it for you. Both of you.」</p>
+<p>「Really?」</p>
+<p>「Ryuta, really?」</p>
+<p>Both Yukiko and Grandmother welcomed me with bright Faces when I said I would make it with the original file. When I nodded, they were as happy as if they had found a Gold nugget.</p>
+<p>After spending Time with Grandmother for the first Time in a while, I decided to meet the Person who was waiting for me the next day. Yukiko also had Work at the Talent Development Institute, so she didn't come with me and said she would talk with Grandmother for a while before returning.</p>
+<p>「I'll come again next Time, Grandmother, Mother.」</p>
+<p>「Yes, now that the mission is over, come see this old woman's Face often.」</p>
+<p>「Be careful on your way back.」</p>
+<p>I greeted them and left the Annex's garden. While passing through the garden on the way to the private interview room, Mimata Chieri and Linxiang grabbed my Arm at the same Time.</p>
+<p>「Huh? What's wrong?」</p>
+<p>「You're giving me a poster too, right? Junior-nim?!」</p>
+<p>「I definitely want to receive it, Jinyongtae-nim.」</p>
+<p>Both of them called me by the name they originally used to call me, meaning that they were serious. It was just an enlarged photo card photo. Did they want it that much?</p>
+<p>「Yukiko.」</p>
+<p>「Mother....」</p>
+<p>Taira Shizuku and Yukiko called each other and remained silent for a while. The two, who were in a mother-in-law and daughter-in-law Relationship, were by no means in a Relationship that could be called close, even if it was just empty Words.</p>
+<p>Because Yukiko had clashed with Taira Shizuku countless Times over the fact that she couldn't get pregnant with Taira Saburo's child, they would never have met in such a private setting today if it hadn't been for Taira Ryuta being with them. But now that they had met like this, they had to have a Conversation.</p>
+<p>「Have you decided to support Ryuta?」</p>
+<p>Taira Shizuku, who hadn't attended the Competition but knew that Taira Ryuta and Taira Yukiko were sitting in the non-factional group together, asked.</p>
+<p>When Taira Saburo died and 70 percent of Taira Saburo's forces went to Taira Kanna, Taira Yukiko didn't join Taira Kanna and declared neutrality. As the Director of the Talent Development Institute, Yukiko had been working without supporting anyone, saying that neutrality was more important than any other position.</p>
+<p>But the sight of her walking around with Taira Ryuta today seemed to Taira Shizuku to be supporting Taira Ryuta. Others didn't feel it, but Taira Shizuku, who had experienced many things with Taira Danjo, could feel it.</p>
+<p>「I don't know what you're talking about, Mother.」</p>
+<p>Taira Yukiko said as if she didn't know anything. Now wasn't the Time for Taira Ryuta to reveal his own Power. So she denied Taira Shizuku's Words, which could be misunderstood as Taira Ryuta having Ambition.</p>
+<p>Even though it was a space where only Taira Yukiko and Taira Shizuku were present, secrets had to be kept from such small things in order for secrets not to leak.</p>
+<p>「I misspoke.」</p>
+<p>Taira Shizuku also realized that her Words could be misunderstood by someone and retracted her Words.</p>
+<p>「I just hope Ryuta is safe.」</p>
+<p>Taira Yukiko said to Taira Shizuku and drank all the tea left in her teacup. Because there was nothing more to say, she decided to end her meeting with Taira Shizuku today.</p>
+<p>Taira Yukiko, who had drunk all the tea, rose from her Seat. When Taira Yukiko slightly bowed her Head to Taira Shizuku, Taira Shizuku opened her mouth.</p>
+<p>「Take what the Maid gives you. It will be helpful to you.」</p>
+<p>Taira Shizuku said casually. She seemed to have prepared something to Help her Grandson Taira Ryuta, not Taira Yukiko.</p>
+<p>Taira Yukiko muttered, 'Thank you,' so softly that it was barely audible, and was about to leave the garden when a Maid held out a UCT (Universal Connection Terminal). There seemed to be some useful Information contained in this UCT.</p>
+<p>Even if she was the mistress of the Taira Family without much real Power, she would have something useful as long as she was the mistress of the Taira Family. Taira Yukiko hoped that the UCT she received from Taira Shizuku would be useful to Taira Ryuta, put the UCT in her pocket, and left the garden.</p>
+<p>Nagumo Sian wearing sexy lingerie and Kanna being happy, requested by MidNightSKY-nim~!</p>
+<p>Nagumo Sian~!</p>
+<p>Kanna~!</p>
+<p>Kisa covering her breasts and Tape, requested by Gojoy-nim~!</p>
+<p>Tape~!</p>
+<p>Breast covering~!</p>
+<p>Kijimoto Jurie Chapter 342 Remake requested by TheDreaming-nim 1. Raincoat 2. Naked body</p>
+<p>1.</p>
+<p>2.</p>
+<p>Lastly, with the phone taken away, haha.</p>

@@ -5,70 +5,105 @@ weight = 85
 chapter = 85
 +++
 
-<p>-I got a call offering to lend me money, so I just said, 'I have plenty of money!' and hung up.</p>
-<p>I was talking to Jinmija Yeosa-nim in the morning for the first time in a while. Why would someone call our Jinmija Yeosa-nim, who has so much money, to offer a loan? Did they just get lucky while cold-calling from a loan shark company?</p>
-<p>"Even if you don't have money, don't borrow from those places and tell your son. I have a lot of money now."</p>
-<p>I said, smiling as I watched my assets increase in real-time due to the stock market. I should realize the profits in about two or three weeks.</p>
-<p>-The inheritance I received from your father is still plenty, and I'm working too, so I don't need your money. Don't think about spending money, just think about saving it.</p>
-<p>Jinmija Yeosa-nim recently moved to a mansion with a bit better security. The house she lived in before wasn't bad, but I told her to go to a better place since it's unsettling for a woman to live alone. Then, she said okay and promptly moved out, that mom of mine.</p>
-<p>"I'm just saying it's better for your son to pay than to borrow from someone else and pay interest. I'm not saying I'll give you money when nothing's wrong."</p>
-<p>-Okay, I understand. I'll contact you if I don't have money, as you say. I have to go to work now, so I'll hang up.</p>
-<p>"Okay~."</p>
-<p>After hanging up, I grabbed my phone and left the room. The time was 8:40 AM, just the right time to go to work.</p>
-<p>I headed to the office, breathing in the refreshing morning air. It was the last week of the 74th group, so there wasn't much to do. Today was the day the mock stock investment results came out, right? I thought our group would probably be in first place since I recommended Health Miracle.</p>
-<p>The time I recommended it was the chance to get on the last train cheaply for Health Miracle, so I told them to actually invest if they trusted me. Everyone in the 74th group and most of the beauties from other groups I picked out early on invested about 200,000 to 300,000 yen. One of them, a woman from a well-off family, said she invested 1 million yen. They'll all become my informants later, and since I shared Health Miracle information and they made a lot of money, their loyalty to me will increase a bit more.</p>
-<p>Roughly, the current price is about $30 per share, so even the people who invested the minimum of 200,000 yen can make 30 times that. I told them it would go to at least $1000, so none of them would have sold yet.</p>
-<p>"Good morning!"</p>
-<p>I greeted the team members who arrived earlier and sat down at my desk. Team Leader Shinoe Misano had been absent since yesterday. Her husband was supposed to arrive a bit later, but he came yesterday, eleven days after the day he said he would, and she took three days of leave starting yesterday, I wonder what she's planning to do.</p>
-<p>"Taira Ryuta-ssi, what's the schedule for today?"</p>
-<p>Deputy Team Leader Suzuki Chisami asked me, clearly showing her dislike. Ever since I snitched to Shinoe Misano about her dumping a large amount of work on me last time, Suzuki Chisami had been openly showing her dislike for me. Thinking about it, she's really crazy. Who was the one who did wrong first?</p>
-<p>"Today, I have existing tasks, and after lunch, I have to go to observe the team-based mock stock investment results as a mentor."</p>
-<p>"Hmm... After the observation, I'll send you a few tasks by email, so finish those and go home."</p>
-<p>That's a bit troubling... I was planning to have a sex party with the winning team members after the observation. Annoying, should I provoke her a bit?</p>
-<p>"Hmm... I should call my mother and tell her I'll be a bit late today."</p>
-<p>"You...!"</p>
-<p>"What's wrong? I always have dinner with my mother. I'm just letting her know I'll be late in case she's waiting."</p>
-<p>I don't know what she's relying on to treat me like this, even if she's bullying me because I'm in Taira Jiro's line. Does she think Taira Jiro will protect her mistakes? He'll definitely cut her off like a lizard's tail and abandon her.</p>
-<p>"There won't be enough work to require overtime. So, there's no need to contact her."</p>
-<p>No, I'm telling you I'm going to have a sex party after the observation. Still, I didn't want to argue loudly, so I just nodded and sat down.</p>
-<p>"You're probably the only junior who talks back to the Deputy Team Leader."</p>
-<p>Mimata Chieri whispered in my ear as I sat down at my desk next to her. Mimata Chieri's expression was one of satisfaction.</p>
-<p>"Even if the Team Leader isn't here, is it okay to handle work so recklessly like that?"</p>
-<p>"As you know, she harasses her subordinates even when the Team Leader is here. Besides, there's a rumor that the head of the HR department at the Human Resources Development Institute is the Deputy Team Leader's backer. That's why the Team Leader can't treat her carelessly either."</p>
-<p>Oh! This is important information. Then, there's a high probability that the head of the HR department is in Jiro's line. I should ask Taira Yukiko later.</p>
-<p>"Shall we have lunch together for the first time in a while?"</p>
-<p>"Unfortunately, I can't today. I have outside work."</p>
-<p>Ah, that's right. Because I'm in charge of mentoring, Mimata Chieri was doing outside work for me during the training period. I feel a bit sorry.</p>
-<p>"It's because of me that you have outside work. I'm sorry, Sunbae-nim."</p>
-<p>"Hehe, the Team Leader gave me a corporate card for outside work, so it's a chance to eat something delicious, right?"</p>
-<p>"Still, I'm sorry, so I'll buy you a drink next time."</p>
-<p>I said I'd repay Mimata Chieri for her help sometime in the future and started my morning work.</p>
+<p>Jjilkkeoeok!</p>
+<p>,Haaht!'</p>
+<p>Making a lewd sound, my glans tears through Han Yu-gyeong's chewy pussy. We had already done enough foreplay with 69, so Han Yu-gyeong's pussy was full of wetness without any dry spots. I pushed my dick in as deeply as possible, rubbing my glans against Han Yu-gyeong's cervix.</p>
+<p>,Heueung....! Yong-tae-ya, I like it so much...!'</p>
+<p>Since I had been targeting her cervix since our first sex, Han Yu-gyeong's cervical os was already well-developed. So, every time I thrust, the reaction was immediate, making it fun to shake my hips.</p>
+<p>,Haeueung...♡ Eueueung...! Kiss, kiss me...!'</p>
+<p>I kissed Han Yu-gyeong, who was pulling my head and demanding a kiss. Han Yu-gyeong's tongue passionately intertwined with mine. The more I shook my hips, the more Han Yu-gyeong's tongue craved mine.</p>
+<p>Chyuup...! Chyureup....!</p>
+<p>Jjilkkeok...! Jjilkkeok...!</p>
+<p>For a while, we couldn't make any moaning sounds because we were constantly kissing, so only the wet, lewd sounds were heard even louder in Han Yu-gyeong's bedroom. The sound of our tongues intertwining and the sound of our dicks and pussies rubbing stimulated our ears.</p>
+<p>,Haa, haa....! Feels so good...! Yong-tae's dick feels so good...♥'</p>
+<p>,Let's try it on top this time.'</p>
+<p>I wasn't hurting or tired, but I wanted to see Han Yu-gyeong shaking on top of me, so I changed positions from missionary to cowgirl.</p>
+<p>I laid down, and Han Yu-gyeong grabbed my dick, aligned it with her pussy, and hooked my glans. Then, she slowly lowered her body and swallowed my dick. Seeing my dick being swallowed by Han Yu-gyeong's pussy made me excited too.</p>
+<p>It was a different feeling than when we were doing missionary. Han Yu-gyeong seemed to feel the same way, as she shuddered once when my dick filled her inside.</p>
+<p>,Haaang! It's so deep...!'</p>
+<p>Han Yu-gyeong, who had been moving slowly at first, soon began to move her hips skillfully. As Han Yu-gyeong moved her body, I could see her breasts shaking. Some study said that a man's lifespan increases just by looking at a woman's breasts, and I think I know why. It felt good to see her breasts bouncing lively. I don't know what it's good for, but it must be good for mental health.</p>
+<p>Han Yu-gyeong's movements became more and more intense as she got closer and closer to orgasm.</p>
+<p>,Haaang! Aaeueung! Heuht! Heung...! Eueheung!'</p>
+<p>Han Yu-gyeong closed her eyes and shook her hips intensely, feeling only my dick inside her. She was doing piston movements up and down, and shaking her hips back and forth, looking for another pleasure.</p>
+<p>Because Han Yu-gyeong moved so intensely, my dick naturally felt an enormous pleasure.</p>
+<p>,Keuek...!'</p>
+<p>When I let out a suppressed moan, Han Yu-gyeong opened her eyes and looked at me with a seductive smile. I was momentarily stunned by Han Yu-gyeong's smile. Because she looked so beautiful with that smile just now.</p>
+<p>,Yong-tae-ya, does it feel good? Does my pussy feel good?'</p>
+<p>,Yeah. It feels good...!'</p>
+<p>,Haeueaaang!!'</p>
+<p>Han Yu-gyeong was reaching a small climax because I said it felt good. If I feel good, does she feel good too? I bounced my hips to match the rhythm of Han Yu-gyeong, who continued to shake her hips even while feeling the climax.</p>
+<p>,Heuang♥ I think I'm going to cum...! Hold me, Yong-tae-ya, hold me!'</p>
+<p>Han Yu-gyeong's upper body leaned on me as it was, and I supported Han Yu-gyeong's pelvis, fixed it in the air, and continued to thrust my hips up, doing a reverse piston movement.</p>
+<p>Pang! Pang! Pang! Pang!!!</p>
+<p>It was such an intense piston movement that the wetness from Han Yu-gyeong's pussy soaked my lower abdomen.</p>
+<p>,Heueyaaang! Haaaeueung! I'm cumming♥'</p>
+<p>,Eueeup...! I'm cumming...!'</p>
+<p>Han Yu-gyeong's pussy swallowed my dick to the end. At the same time as the climax, each and every protrusion in her vagina wriggled as if demanding my semen, stimulating my dick. Because of that, I couldn't hold back either and started cumming deep inside Han Yu-gyeong's pussy.</p>
+<p>,Heueueung.... It's warm, I like the feeling of being filled.... I love you, Yong-tae-ya.'</p>
+<p>Han Yu-gyeong leaned on my body and whispered in my ear. I caressed Han Yu-gyeong's butt and answered that I did too.</p>
+<p>,Hehe.... Still hard?'</p>
+<p>Han Yu-gyeong's pussy tightened my dick slightly. Han Yu-gyeong's stamina was surprisingly good. Besides, it seemed like Han Yu-gyeong's sexual desire had been building up because we hadn't seen each other for a while.</p>
+<p>,Shall we try it from behind this time?'</p>
+<p>At my words, Han Yu-gyeong nodded with a slightly shy expression. When I pulled out my still hard dick, Han Yu-gyeong quickly turned her body. She stuck out her butt and bent her waist, skillfully showing a sexy doggy style position. That sight made my dick even harder.</p>
+<p>Foreplay was unnecessary. Because my semen, which was already full inside Han Yu-gyeong's pussy, would act as a lubricant.</p>
+<p>Pueuuuk!</p>
+<p>I pushed my dick in all at once.</p>
+<p>,Heueueeup!!! I like it so much, it feels like being pierced by a spear!'</p>
+<p>Along with Han Yu-gyeong's moan, a lewd heatwave swept through the bedroom again.</p>
 <p>###</p>
-<p>"Ah, hello. Education Team 1 Leader-nim. Thank you for taking care of our 74th group members yesterday."</p>
-<p>After lunch, I went to the auditorium to observe and greeted the Education Team 1 Leader, who welcomed me.</p>
-<p>"Haha, taking on one more group is nothing to me. So, did the Director enjoy Dijuniland well?"</p>
-<p>"Yes. She took a break for the first time in a while. Of course, I also told her about you, Team Leader-nim. I was able to escort my mother thanks to you taking on my group members."</p>
-<p>Taira Yukiko is ecstatic that I told her about the Education Team 1 Leader. I didn't actually tell her, but I should tell her later. It would be troublesome to make an enemy of the Education Team 1 Leader when I suspect that the head of the HR department is in Jiro's line.</p>
-<p>"By the way, your 74th group is in first place in this mock stock investment competition. How did you achieve a return of nearly 20,000 percent?"</p>
-<p>"Half of them invested in stocks they wanted, and half of them invested in stocks I recommended."</p>
-<p>"Haha, I didn't know you had a talent for investment. Do you happen to have any stocks you could tell me about?"</p>
-<p>"I just got lucky... I'll let you know if I find a good stock next time."</p>
-<p>There was no reason for me to recommend stocks to the Education Team Leader. I just said I'd tell him next time and moved on, but in that conversation, he said our 'group' was in first place, so that meant the individual in first place wasn't from our group.</p>
-<p>Who is it? The trainee with the best return in our group increased their capital by a whopping 230 times. In percentage terms, that's a whopping 23,000 percent. Health Miracle, which I taught them, was certainly a big part of it, but they didn't fail in other stock investments and succeeded, so they recorded a 23,000 percent return. Then how much did the person in first place earn? Of course, it's a mock investment, so they didn't actually earn it.</p>
-<p>"Do you happen to know who the individual investment first place is?"</p>
-<p>"Ah, it's Masato-gun from group 45 over there. That's him over there."</p>
-<p>Masato... I looked at the place the Education Team Leader pointed to, and it was a male trainee who looked like he had just graduated from college, like any other trainee. He was quite handsome, but looking closely with my excellent eye, I saw that his hair was a wig. Masato, this guy... He's young, so he probably doesn't have complete baldness, but probably hair loss?</p>
-<p>He became interested in hair loss treatment and learned about Health Miracle, so he seems to have gone all-in on Health Miracle and taken first place. The kids in our group invested half in stocks they wanted, so they couldn't beat Masato, who went all-in on Health Miracle.</p>
-<p>This time, there was no need to move chairs, and all the trainees were standing in the auditorium. The Education Team 1 Leader, who was standing next to me, was already on the stage.</p>
-<p>"The best group in this stock mock investment is... Group 74! Group 74 achieved an average return of 19,100 percent! Group 74 and the mentor of Group 74, please come up to the stage."</p>
-<p>Ah, the mentor has to go up too? When our return was announced, all the trainees were in an uproar. Is 19,100 percent even possible? That was the most common thing people were saying.</p>
-<p>"We will give each member of Group 74 a 100,000 yen gift certificate for Taira Electronics. The mentor of Group 74, Education Support Team 2's Taira Ryuta-gun... will receive everyone's applause."</p>
-<p>I was really expecting them to give me something too. To play such a prank... The trainees and mentors laughed and applauded, finding my disappointed expression funny. Still, it didn't feel too bad to receive applause. The group members all had bright faces because they each received gift certificates worth 100,000 yen.</p>
-<p>"Now, Group 74, please go down, and now we will announce the individual return winner..."</p>
-<p>As I went down from the stage, the members of Group 74 were all trying their best to cling to me, hugging me from behind with their arms around mine.</p>
-<p>"We received gift certificates thanks to you, Mentor-nim!!"</p>
-<p>"Thank you, Mentor-nim!"</p>
-<p>There were many eyes around, so I smiled and told them all to go back to their seats. They still didn't listen, so I said I'd have a celebration party after dinner tonight, and only then did they go back to their seats.</p>
-<p>"Don't forget your promise~!"</p>
-<p>"That's right! We were lonely because you weren't at Dijuniland yesterday, Mentor-nim!"</p>
-<p>Hmm, I'm sorry, but Taira Yukiko is much more important than you guys, so it couldn't be helped. I answered inwardly and returned to my seat. I'll have to repay them for not being able to lead them at Dijuniland yesterday with my body (?).</p>
+<p>,Hoo...!'</p>
+<p>,Haeum♥'</p>
+<p>I cummed inside Han Yu-gyeong as it was, and collapsed on Han Yu-gyeong in the missionary position.</p>
+<p>,It felt good, Yong-tae-ya♥'</p>
+<p>Han Yu-gyeong stroked my back, saying ,You did well~' with an expression that showed her favorability had increased as much as possible. It was clear that Han Yu-gyeong would be heavy if I kept being on top of her, so I rolled over and lay down next to Han Yu-gyeong. Accordingly, my dick naturally came out of Han Yu-gyeong's pussy. Because I had done it five times in a row, my dick was small after cumming.</p>
+<p>,Heehee, it came out♡ Now give me a pillow arm~.'</p>
+<p>Han Yu-gyeong laughed as if it was fun when my dick popped out. When I lay down silently and stretched out my arm, Han Yu-gyeong hugged me and leaned her head on my arm. I naturally caressed Han Yu-gyeong's breasts with my other arm. Hmm... soft things give a sense of stability after all.</p>
+<p>,Ah, you said you had something to do when you saw me back then. What is it?'</p>
+<p>Ah, right. I need to solve one of the purposes of coming here. I said, ,Just a moment,' and got up and took out something I had brought from my luggage.</p>
+<p>◆ Glasses of the Ruins [Rare Item 4/5]: You can check the target's abilities when you wear the glasses.</p>
+<p>It was the glasses I bought at the black market before. I put on the glasses and looked at Han Yu-gyeong. Han Yu-gyeong laughed when I looked at her wearing antique glasses.</p>
+<p>,You said you had something to do to show me wearing glasses? That's kind of cute.'</p>
+<p>I couldn't hear Han Yu-gyeong's story well because of the translucent window floating in front of my eyes. Because it was hard to believe.</p>
+<p>Name: Han Yu-gyeong Lv06</p>
+<p>Strength:2 Agility:3 Stamina:5 Resistance:2 Recovery:2 Nerve:3 Appearance:17</p>
+<p>Mental</p>
+<p>Intelligence:15 Knowledge:8 Concentration:11 Will:14 Creativity:11 Charm:17 Judgment:14</p>
+<p>Etc</p>
+<p>Luck:18</p>
+<p>◆Learning Lv11 [General Skill]: The frequency of knowledge increasing increases when learning.</p>
+<p>◆Intelligence of the Stars [Unique Trait]: Initial intelligence increases by 5 and the effect of intelligence increases. The limit of intelligence increases by 2.</p>
+<p>You can choose 5 traits.</p>
+<p>I wasn't surprised that her level was 6. The reason why she goes to college in the early game is to level up a little easier. If you take lectures at university, you can gain experience up to a certain level, so you had to study hard in university classes in the beginning. The reason why Han Yu-gyeong was level 6 was because she took classes very tightly to graduate early. What surprised me wasn't level 6, but Han Yu-gyeong's stats.</p>
+<p>Her physical abilities were low for level 6, but her mental abilities were unbelievably high instead. No matter how well the initial random stat distribution goes, it wouldn't be this much. It was a stat that you could only get by raising it to 20 without almost any elixirs or events. Is it because she's the main character? It wasn't this much when I raised her....</p>
+<p>,Yong-tae-ya?'</p>
+<p>Han Yu-gyeong called me with a slightly frightened expression. Ah, I think I was staring at the stat window too seriously.</p>
+<p>,Just a moment....'</p>
+<p>I pressed the trait part of the translucent window, just in case.</p>
+<p>Please select a trait</p>
+<p>①Mental Shield ②Master of Cooking ③Intermediate Elemental Resistance</p>
+<p>I could distribute traits! In the case of NPCs, traits are randomly distributed every few levels when they level up, but it seems that Han Yu-gyeong can choose traits every level up because she is a playable character. But is it because I'm wearing the Glasses of the Ruins, I can choose.</p>
+<p>,Yu-gyeong-a.'</p>
+<p>,Huh? Why?'</p>
+<p>When I called her name with a slightly serious expression, Han Yu-gyeong answered with a slightly nervous expression. I was going to lay some groundwork because Han Yu-gyeong might be surprised if I suddenly chose a trait. I think I can tell Han Yu-gyeong.</p>
+<p>,I'm actually a psychic.'</p>
+<p>,Huh? What are you talking about?'</p>
+<p>Instead of answering Han Yu-gyeong's question, I reached out and lifted one of the cosmetics in front of Han Yu-gyeong's dressing table with telekinesis. Han Yu-gyeong was stunned for a moment, then clapped her hands in amazement.</p>
+<p>,Huh? Is this real? Wow.... Amazing!'</p>
+<p>Han Yu-gyeong wasn't very surprised even by my telekinetic demonstration. It was like watching a magical trick. But she couldn't help but be surprised by my subsequent words.</p>
+<p>,And you can become a psychic too.'</p>
+<p>,What are you talking about?'</p>
+<p>,Just what it says.'</p>
+<p>I thought it would be better to make her feel it once than to give hundreds of explanations, so I chose one trait for her. I chose the most useful mental shield out of the three traits.</p>
+<p>◆Mental Shield [Epic Trait]: When you concentrate, you create a shield with a defense power of 120 percent of the average of your mental stats (15.4). The duration is the average of your mental stats in minutes (12 minutes).</p>
+<p>,....! Suddenly some knowledge came to mind. Like it's being engraved in my head....'</p>
+<p>,That's how it is.'</p>
+<p>Han Yu-gyeong concentrated for a moment and unfolded a mental shield. The mental shield was transparent, so it wasn't easy to see, but if you looked closely, you could feel that the shield was unfolded because there was a slight distortion where the mental shield was unfolded.</p>
+<p>I took out the Glasses of the Ruins and threw the remaining glasses case to Han Yu-gyeong. The glasses case was bounced off by the shield as it was. I didn't throw it hard, but it definitely works.</p>
+<p>,Waa! Amazing! Throw it one more time!'</p>
+<p>Han Yu-gyeong was excited as if she was riding a ride. I threw the glasses case a little harder. The glasses case bounced off by the shield again.</p>
+<p>,Now you'll be safe with this ability.'</p>
+<p>,Thank you. You gave me this ability because you were thinking of me?'</p>
+<p>When Han Yu-gyeong thanked me, I smiled playfully and shook my head.</p>
+<p>,Don't thank me.... There are still 4 more abilities left?'</p>
+<p>,Eueung?'</p>
+<p>Han Yu-gyeong's surprise was just beginning.</p>

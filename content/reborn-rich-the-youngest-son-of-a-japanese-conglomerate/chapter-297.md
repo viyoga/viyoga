@@ -5,70 +5,100 @@ weight = 297
 chapter = 297
 +++
 
-<p>After hearing the secret history of our school from Fujigasaki Rinka, I returned to the emcee's seat. It seemed to be a break time in the middle of the games, as everyone was sitting on benches set up next to the field, sweating and breathing heavily.</p>
-<p>,Ryuta-hubae-nim! Where have you been?</p>
-<p>,Ah, my master said she was bored and dragged me off for a sparring match.</p>
-<p>Mimata Chieri must have worked pretty hard too, as she wiped sweat with a towel and approached me to ask. Alik followed behind her, looking at me.</p>
-<p>,Ah, you went sparring. Did you win?</p>
-<p>,Ryuta, didn't you watch Alik's match...?</p>
-<p>Alik asked me with slightly teary eyes, as if he had heard that I had been sparring. Don't look at me with those eyes, Alik, it makes me weak.</p>
-<p>,Of course I lost. Alik, I won't look away in the second half, so don't be disappointed.</p>
-<p>,Okay....</p>
-<p>,Alik was incredibly active this time. He's very skilled at using his body.</p>
-<p>Hmm, he seemed disappointed that I was away when he was doing so well. Still, except for Jung Da-rim, everyone else is a veteran when it comes to using their bodies, and for Alik to be so active, he really is like Alexandra, the toughest mid-boss of the mega-corp's youngest son.</p>
-<p>I knew that Alik, as an electric ability user, had considerable physical abilities due to his ability to manipulate the body's electrical signals, but I didn't know he could already use that ability. I should wear the glasses from the ruins sometime and properly check Alik's abilities.</p>
-<p>Mimata Chieri and Alik returned to the volleyball court, and when I asked the futsal players what the score was, they told me it was tied 2-2. Seeing that it was tied, it seemed they had divided the teams fairly evenly.</p>
-<p>Both games were scheduled to have a thirty-minute first half, a ten-minute break, and a thirty-minute second half, so the second half started right away.</p>
-<p>Of course, it wasn't a national team soccer game, and there was no need to watch men sweating profusely, so I watched the women's volleyball game.</p>
-<p>The teams were Alik, Mimata Chieri, Konoe Akina, Jung Da-rim, and Lianna Holden's team versus the rest, and except for Lianna Holden, everyone on the former team was not affiliated with Seryu-tai, so the rest of the team was the Seryu-tai team.</p>
-<p>Everyone was capable, so the rallies continued. The volleyball game was quite interesting because there were diverse ability users.</p>
-<p>Alik, who could accelerate her nerves, Sawayanagi Seari, who could control the atmosphere, Sawayanagi Azuma, who could read the future, and Mimata Chieri, whose every movement was agile, stood out.</p>
-<p>The underperforming members were plant maniac Jung Da-rim, Lianna Holden, an operator who didn't have many opportunities to use her body, and Kiyona Mari, a fire ability user who was completely useless in volleyball. The rest were doing their part?</p>
-<p>Surprisingly, Konoe Akina, a lady of the manor, also did her part. I thought she was only good with her mystic eyes, but it seemed she had the physical abilities of a regular Seryu-tai agent.</p>
-<p>Since the friend's team had more underperforming members, they gradually started to be pushed back by the Seryu-tai team. It looked like Mimata Chieri and Alik were working hard to clean up Jung Da-rim and Lianna Holden's messes, but since the other side only had to cover Kiyona Mari's mistakes, the Seryu-tai team naturally became more dominant.</p>
-<p>No matter how hard Alik and Mimata Chieri fought, Sawayanagi Azuma's precognitive abilities and Sawayanagi Seari's wind abilities were too OP in volleyball. Thinking about it, even if we played futsal with 6v6 with the women's team and the men's team, the women's team would probably win....</p>
-<p>Before I knew it, thirty minutes had passed and the game was over. The winning team was the Seryu-tai team, and the futsal game ended 5-4. The winning teams were all excited, and the losing teams weren't too upset, except for a few who were genuinely aiming for injuries.</p>
-<p>Those guys who were aiming for injuries were the problem, though.</p>
-<p>,Ugh.... Meeting.... Meeting....</p>
-<p>Choi Jin-ha, who was on the losing team on the men's side, was lying down and continuously chanting the word "meeting," while Kim Young-chan and Lee Doo-young, who were on the winning team, were teasing Choi Jin-ha next to him.</p>
-<p>On the women's team, Alik was just staring blankly at the sky. The prize was just a cosmetics set, so why was she looking at the sky like that? Could it be because of the one-day date with me that Fujigasaki Rinka mentioned?</p>
-<p>The MVP who would get my one-day date ticket was to be decided by a vote within the winning team, so no matter how active Alik was, she would never be the MVP.</p>
-<p>Mimata Chieri approached the dazed Alik and whispered something in her ear, and she soon came to her senses and applauded the winning team.</p>
-<p>,The futsal winning team can choose between a meeting or 100,000 yen as promised and tell me... The volleyball winning team can take this cosmetics set. I'll check the MVP votes now and announce it.</p>
-<p>I grabbed the microphone and told them to take their rewards, and then I read the votes that the winning team had written on the slips of paper one by one. Most were divided between Sawayanagi Azuma and Sawayanagi Seari, but Sawayanagi Seari became the MVP by one vote.</p>
-<p>,The volleyball MVP is Sawayanagi Seari~!</p>
-<p>,Eh, eh... Me?</p>
-<p>Sawayanagi Seari approached me with a slightly embarrassed expression. She had a cute appearance like Alik, but their vibes were different.</p>
-<p>Alik felt like a cat silently rubbing its head against its owner's leg, while Sawayanagi Seari felt a bit more cheerful. A curious but slightly shy puppy feeling? Even though she was older than me....</p>
-<p>,The prize is a date with me, so if you want to, let's set a date, Seari-ssi.</p>
-<p>,Yes, hehe! I'll set it up.</p>
-<p>Since there was no actual prize for the MVP that Fujigasaki Rinka had spontaneously created, I shook hands with Sawayanagi Seari.</p>
-<p>,Okay, you've warmed up your bodies enough with exercise, so it's free time until dinner after you shower in the hot springs.</p>
-<p>After shouting "free time," I put down the microphone. Should I go to the hot springs too? It was a short sparring match, but I worked hard to get one over on Fujigasaki Rinka, so I sweated a little.</p>
-<p>I went to my room to get a change of clothes and then headed to the hot springs. I went into the entrance marked "Men's Bath," took off my clothes, put them in a basket, and then entered the hot springs. There were already a few people inside. When I checked their faces, I saw Sawayanagi Tobe, Lee Doo-young, and Kim Young-chan were inside.</p>
-<p>,Yongtae-hyung~! Oh, you're huge....</p>
-<p>,Are you a black guy with that size?</p>
-<p>,Hmm, Ryuta-gong.... Impressive.</p>
-<p>Everyone said something after looking at my Johnson, so I smiled slightly and took a shower before entering the hot springs.</p>
-<p>,Where's Young-chan?</p>
-<p>,He said he's showering in his room when other people aren't using the hot springs because of his X-ray vision.</p>
-<p>Ah, that's right. It might be a bit awkward if Kim Young-chan, who has X-ray vision, was there when the women were also showering in the hot springs. He's avoiding getting cursed at by himself, what a wise and pitiful guy. If I had X-ray vision, I would never say that I had that ability.</p>
-<p>Lee Doo-young, who also has regeneration abilities like me, asked me various things when I was next to him, mostly about exercise. He became a health maniac after his nutrition became sufficient and his regeneration abilities found their potential, and he seemed to have many questions about exercise methods.</p>
-<p>,Regenerators are naturally different from ordinary people. You have to increase the intensity and shorten the rest periods, but you have to eat more.</p>
-<p>I taught Lee Doo-young my own tips. Regenerators could raise their strength stat to 10 without investing stats, so they could save stats. From 10 onwards, it was so difficult that I thought it was almost impossible to raise stats through exercise, but with extreme training, it sometimes went up by 1.</p>
-<p>My strength stat rose rapidly due to elixirs and traits, so I didn't see the effects of exercise, but I didn't regret it.</p>
-<p>It would take a very long time to raise stats through exercise, so activity would slow down, and if it slowed down, leveling up would also slow down, and various problems would arise like dominoes, so I just used the fast method.</p>
-<p>,Ugh.... I'm going to go out now.</p>
-<p>,Yongtae-hyung, you're coming out early?</p>
-<p>,I didn't sweat much. I'm going to lie down and rest in my room rather than rest here.</p>
-<p>,Ah, I see. See you at dinner, hyung.</p>
-<p>,Farewell, Ryuta-gong.</p>
-<p>,See you later.</p>
-<p>I received everyone's greetings, rinsed my body with cold water, wiped my body with a towel, changed into comfortable clothes, and headed to my room. It was free time, so I was going to lie down in bed. I had been studying continuously, and I went to pick up Fujigasaki Rinka early this morning, so I was a little tired.</p>
-<p>,Hmm, is there anything new...?</p>
-<p>I picked up my phone and scrolled through Mitube. Then I saw a familiar face. Kazuhiro's face was on the thumbnail, so I clicked on it and saw that Kazuhiro had been selected for the US national team. Kazuhiro was giving an interview saying that he would comfort the Americans who were struggling with the LA disaster with his performance. It became even more of a hot topic because the next game with the US was a friendly match with Japan.</p>
-<p>,No, you should have told me in advance, why am I seeing it on Mitube News....</p>
-<p>I was writing a bunch of curses on Kazuhiro's Line when I heard someone knocking on the door.</p>
-<p>,Who is it?</p>
-<p>,Hey Pumpkin, it's me. Lianna.</p>
-<p>It was the first time since I had a relationship with Lianna Holden last time, so there must be a purpose for her coming to my room. That purpose is probably my body. I told Lianna Holden to come in.</p>
+<p>Everywhere I turned, it was skin. Soft, squishy breasts pressed against my face, and multiple hands caressed my erogenous zones.</p>
+<p>Lying down, I took turns tasting lips I couldn't identify, and my dick was swallowed by pussies I couldn't identify, spilling white fluid deep inside.</p>
+<p>Moans echoed in my ears as if in chorus, accompanied by the sound of flesh slapping against flesh, responding in kind-cheolssak cheolssak.</p>
+<p>It was a frenzy different from the one I had with the succubus Yukiko, and I enjoyed the four bodies to my heart's content.</p>
+<p>At first, it felt like I was just lying there, lending out my lips and dick, but in the mid and late stages, I moved my body as much as I wanted.</p>
+<p>"Haaah! Ryuta, does your aunt's pussy taste good? Eheung, I love Ryuta's bulging dick, aheung...! It's so delicious♥"</p>
+<p>I spent plenty of time with Nae Fitzgerald, hearing plenty of dirty talk too.</p>
+<p>"Ryutaa! Hold me, hold me tight♥"</p>
+<p>I held Ha Ju-yoon tight, who was having a hard time because of the divorce and the Shin Gang Group's machinations, and we had lovey-dovey sex too.</p>
+<p>"T-This position is new to me, but please be gentle..."</p>
+<p>I did ekiben (standing sex) with the mysterious woman Nagumo Sian, who didn't have much experience yet, and I deliberately made her say a lot of lewd things.</p>
+<p>"It was a little strange, but I'm glad I gave Ryuta his second first time..."</p>
+<p>"You'll be even happier from now on."</p>
+<p>"Nooo! If I do any more, I'll become strange...!"</p>
+<p>I tormented Yukiko, who suddenly turned into a succubus and surprised me. What was fascinating was that every time I ejaculated inside her, the womb tattoo glowed faintly, showing how much energy was charged. It's not like an in-vitro fertilization is a battery charge. Funny.</p>
+<p>I did one-on-one sessions separately, or sandwiched two bodies together like a pussy sandwich, did seuma-ta with three of them, and had a luxurious paizuri close to an emperor, with one person licking my ass, and enjoyed an amazing 5P.</p>
+<p>In the end, we skipped dinner and shook our hips until almost nine o'clock before we could all lie down on the bed and rest. I was also exhausted and collapsed on the bed, and the other women were lying down, tired. However, perhaps because they all received my yang energy, their skin was all smooth and firm.</p>
+<p>"I'm hungry, I exercised so much."</p>
+<p>"Me too. What should we eat?"</p>
+<p>Ha Ju-yoon also seemed hungry and said to me while stroking her stomach. Um, stroking her stomach after sex feels a little strange...!</p>
+<p>But it's nine o'clock, so there probably aren't any regular restaurants open....</p>
+<p>"First, let's compensate the hotel for breaking the lock and go eat at a suitable store on the way home."</p>
+<p>"I'm sorry.... I'll pay for it."</p>
+<p>When the story about the lock came up, Yukiko spoke in a slightly dejected voice. I stroked Yukiko's back as if to say it was okay, and got up from my seat, dangling my dick.</p>
+<p>"First of all, everyone smells like they just had sex! Let's wash up roughly and meet up."</p>
+<p>It was a penthouse with two showers, so I said as I entered one of the showers. Since everyone couldn't wash up, some of them stayed lying down, and I watched Yukiko, who seemed the most energetic, enter the other shower before I entered the shower.</p>
+<p>"Ehehe...!"</p>
+<p>I was just getting hit by the warm water when Ha Ju-yoon laughed and came into the shower to get hit by the water with me.</p>
+<p>"We can wash up faster if we wash together, right?"</p>
+<p>"Okay. Let's wash together."</p>
+<p>As we washed each other's bodies with soap, I became erect without realizing it, but I was also hungry and everyone was waiting, so I finished showering without having sex and returned to the room with my dick standing tall and proud.</p>
+<p>"What's wrong? Why is it standing up again?"</p>
+<p>"I'm just full of energy."</p>
+<p>Nae Fitzgerald asked with a smile, so I answered vaguely and put on my clothes. Everyone showered, and Nae Fitzgerald and Ha Ju-yoon, who were famous, put on hats and masks and left the hotel room.</p>
+<p>I told the counter about breaking the lock and settled it with money, then put everyone in the car and had dinner at a 24-hour family restaurant with few customers, and arrived at the Institute for Talent Development's house.</p>
+<p>It was already late, so the housekeeper ahjumma had left work.</p>
+<p>"I'll guide you."</p>
+<p>"Yukiko-ssi, your house is nice."</p>
+<p>"Did you sell the house you lived in before?"</p>
+<p>"Hmm, it's nice, this is my first time here...."</p>
+<p>There was a guest room on the third floor, so the three women followed Yukiko's guidance, chatting with each other as they went to the guest room, and I lay down on my bed and raised the translucent window that had appeared in front of my eyes after having sex with the succubus Yukiko earlier.</p>
+<p>Great Achievement! You have destroyed the hymen of the succubus, a being of darkness and dreams. You have acquired 3 free stats.</p>
+<p>Great Achievement! You have become the master of the succubus, a being of darkness and dreams. Damage received from beings of darkness and dreams below the succubus's level is halved.</p>
+<p>Oh! You get an achievement even if you do it with a succubus? After reading it carefully, it seemed that you only get recognized for the achievement if you destroy the succubus's hymen and become its master, rather than just doing it.</p>
+<p>Then it seems like a pretty difficult achievement.... Frankly, finding a virgin succubus didn't seem easy at all. The words virgin and succubus don't match at all.</p>
+<p>But since it's not the first reward, it seems that someone has taken the virginity of a succubus during human history. Amazing, I don't know who it is.</p>
+<p>Maybe Yukiko got an achievement too? As a woman who lost her virginity twice....</p>
+<p>I should put the 3 free stats I got from destroying the succubus's hymen into strength, agility, and stamina one by one. I've been investing stats in will and resistance to prevent the side effects of the abyss, so I've been thinking that my physical abilities are lacking, so I should invest a little now.</p>
+<p>When I raised my strength, agility, and stamina stats, I felt my muscles twitch and get a little bigger. It would be nice if they got bigger to a moderate extent, because it's burdensome if they get too big.</p>
+<p>There was a story in the game community that increasing strength efficiency reduces the size of the muscles. I've also taken care of my physical efficiency quite a bit, so I don't think it'll get bigger than a certain level.</p>
+<p>Strength is a bit noticeable in terms of bulk, but agility and stamina can only be known by moving the body directly, so I was a little disappointed from the perspective of someone who invested stats. It's night, so I can't go work out right now.</p>
+<p>I was feeling disappointed when I heard a knock and my door opened. I looked to see who it was, and the person who opened the door was Nagumo Sian.</p>
+<p>"Nuna?"</p>
+<p>"It seems that I'm leaving this house the fastest, so they gave me tonight."</p>
+<p>Ah, Nagumo Sian has to return to Akita because of Taira Foods, so she'll be leaving tomorrow or the day after, and Nae Fitzgerald and Ha Ju-yoon seem to be staying a little longer.</p>
+<p>"Come here."</p>
+<p>I smiled and patted the bed next to me where I was lying. Nagumo Sian also said excuse me and lay down, resting her head on my arm and lying on her side, looking at me. She took a deep breath, hmm, and smiled.</p>
+<p>"As expected, Ryuta's scent is all over the blanket?"</p>
+<p>"Eh, do I smell?"</p>
+<p>Since it's my bedding, it's bound to smell like me. Nagumo Sian shook her head at my question.</p>
+<p>"It's a good scent. It excites women...."</p>
+<p>In short, it means that my pheromones are exuding. I'm glad it's not a bad smell.</p>
+<p>"Wouldn't it be better to smell me directly than the blanket?"</p>
+<p>"You're naughty. If you say that, I can't stand it."</p>
+<p>"You came to my room because you didn't want to hold back, right?"</p>
+<p>"Hehe. That's right."</p>
+<p>Before I knew it, the atmosphere became strange and we lightly touched our lips.</p>
+<p>"I'm not going to let you sleep tonight."</p>
+<p>"I have to go back to Akita tomorrow, so please be considerate."</p>
+<p>As expected, she's a busy career woman. She has to go back tomorrow. Then I can't let her sleep even more.</p>
+<p>"Then I'm not going to let you sleep even more."</p>
+<p>"Hehe, is that how it's going to be?"</p>
+<p>Another kiss, and a kiss. Gradually our actions became more intense. Nagumo Sian looked at me and opened her mouth.</p>
+<p>"I love you, Ryuta."</p>
+<p>"Me too."</p>
+<p>###</p>
+<p>20 minutes ago.</p>
+<p>"This is the guest room."</p>
+<p>The guest room that Yukiko introduced was quite excellent. It wasn't as good as the hotel's penthouse earlier, but there were four rooms on the third floor that were guest rooms, so there was a room where everyone could sleep.</p>
+<p>"First, let's talk for a while while Ryuta isn't here."</p>
+<p>"Ha Ju-yoon-ssi and I have something to talk about."</p>
+<p>Ha Ju-yoon and Nae Fitzgerald grabbed the women who were about to scatter to their respective rooms and opened their mouths.</p>
+<p>"We were talking about forming a joint front since Ryuta will have a lot of women around him."</p>
+<p>"That makes sense."</p>
+<p>"If it's these three, I don't have any major objections either."</p>
+<p>Nagumo Sian and Yukiko nodded at Nae Fitzgerald's words. The intention to maintain a joint front was good, as they could be defeated individually by other women if they were alone.</p>
+<p>"We don't have much time, so let's talk about it in a group chat and decide on a name first?"</p>
+<p>"How about Mankai Karen Rengo (満開花連合: Full Bloom Flower Alliance)? Everyone is like a lady in full bloom..."</p>
+<p>Full Bloom Flower Alliance. Everyone nodded as if it wasn't bad. Now, the Full Bloom Flower Alliance will maintain a joint front and keep other women who approach Taira Ryuta in check.</p>
+<p>"First of all, let's talk about it later and decide on the order of who will sleep in Ryuta's room first."</p>
+<p>Only 1 minute after forming the alliance. The four women all glared at each other. They were all sending the look that I have to sleep with Ryuta today!</p>
+<p>"I'm from Korea...."</p>
+<p>"I'm from Europe to meet Ryuta...."</p>
+<p>"I'm the homeowner...."</p>
+<p>"I'm tomorrow...."</p>
+<p>They said the reasons why they had to sleep in Taira Ryuta's room and didn't give an inch. After a dozen minutes of discussion, Nagumo Sian, who was returning to Akita tomorrow, ended up sleeping in Taira Ryuta's room, but everyone had a common thought in their heads.</p>
+<p>'Full Bloom Flower Alliance.... Will it really work?'</p>

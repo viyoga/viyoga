@@ -5,108 +5,68 @@ weight = 676
 chapter = 676
 +++
 
-<p>"...."</p>
-<p>Dark night. Someone stood blankly in the yard outside Kinui Tatsuo's dojo. It was a slightly odd sight, muttering something incomprehensible even though there was no one in front of him, a bizarre spectacle.</p>
-<p>"Sempai?"</p>
-<p>Perhaps it was the muttering that drew her out; Kinui Tatsuo's disciple, Suzuki Kaho, came outside and spoke. As Suzuki Kaho said, the person muttering in the darkness was none other than Kinui Tatsuo's third disciple, Nakasone Rishin.</p>
-<p>When Suzuki Kaho approached to check, the sight of him muttering with unfocused eyes was quite eerie. Barefoot and in light pajamas, it was clear to anyone that he was not in his right mind.</p>
-<p>"It's cold, what are you doing? Let's go inside quickly, Sempai."</p>
-<p>"Like that, hmmm, end... Yes.... Tea...."</p>
-<p>Nakasone Rishin stood still and muttered, as if he couldn't hear Suzuki Kaho's words. When Suzuki Kaho grabbed Nakasone Rishin's sleeve and shook him, he finally startled and opened his eyes.</p>
-<p>"Uh, uh? Why am I here...?"</p>
-<p>There was no falsehood in his deeply surprised expression. He really seemed to have no idea why he was out here.</p>
-<p>"Sempai.... Don't do this outside, go inside and sleep."</p>
-<p>Suzuki Kaho thought Nakasone Rishin was sleepwalking. Currently, except for Kujo Kina, the remaining disciples were unfortunate people who had been kidnapped by Anya Territory and abused by their parents.</p>
-<p>She thought that such mental anguish could lead to sleepwalking, so she pulled Nakasone Rishin's sleeve and dragged him into the dojo.</p>
-<p>"Go to your room and sleep, Sempai."</p>
-<p>"Suzuki, thank you...."</p>
-<p>Nakasone Rishin patted Suzuki Kaho's shoulder once and staggered into his room. Suzuki Kaho watched the door Nakasone Rishin had entered for a while before going into her own room.</p>
-<p>And the night passed, and it became morning. Suzuki Kaho saw Nakasone Rishin sitting at the breakfast table. The dazed and bewildered look from the previous night had completely disappeared, and he seemed his usual calm self.</p>
-<p>"Rishin, today's the day."</p>
-<p>"Yes, Master-nim."</p>
-<p>Nakasone Rishin nodded at Kinui Tatsuo's words. Today was the day of the sparring match that Nakasone Rishin had requested with Yamashiro Ryuta.</p>
-<p>"It will be helpful not only to Rishin but also to you all, so watch the sparring carefully."</p>
-<p>"Okay, Master~!"</p>
-<p>"Yes!"</p>
-<p>Ageba Tsurumi, who had fallen for Yamashiro Ryuta's handsome looks, answered the master's words excitedly, and Sato Haruto, the youngest, seemed simply happy that someone was visiting the dojo.</p>
-<p>"...."</p>
-<p>Only Suzuki Kaho didn't answer, feeling something ominous. Although Suzuki Kaho didn't answer, everyone was busy eating breakfast and didn't pay attention.</p>
+<p>They looked like they were about to fight any second, but what they ended up doing after coming inside was a sex competition. Of course, the target of that competition was me, and although I don't know the exact details, it seemed like they were competing to see who could milk the other the most.</p>
+<p>Naturally, the sex competition between the two was won by me, not either of them. I already had a lot of documents to process before the TG Tech firearms were released, so I used all my sex skills to turn them into pleasure-soaked messes and threw them on the bed before getting back to work on the documents.</p>
+<p>,Huu.... I'm finally done."</p>
+<p>I skipped dinner after sex to work on the documents, so I was getting hungry. Since I couldn't eat dinner alone, I should call the two who were sprawled out on the bed, right?</p>
+<p>,Yuka~! Shii~! What do you want for dinner?"</p>
+<p>When I called, Otagi Yuka and Seizawa Shii came out, dressed in light clothes, as if they had come to their senses while I was working on the documents. They were both wearing my short-sleeved T-shirt and briefs, and that look was subtly sexy.</p>
+<p>,I want to eat something hearty like a donburi today. I'm hungry after sweating so much."</p>
+<p>,I'm a little cold, so I want to eat sundubu-jjigae (soft tofu stew)."</p>
+<p>Listening to the menu they wanted, it seemed like they both wanted to eat something hearty. I nodded and turned on the delivery app, ordering a large serving of katsudon (pork cutlet rice bowl) that Seizawa Shii had chosen, a double-large serving of gyudon (beef rice bowl) for me, and two sundubu-jjigae (soft tofu stew) set meals that Okagi Yuka wanted. Of course, I was going to eat one of the sundubu-jjigae (soft tofu stew) set meals.</p>
+<p>,So, why were you both sulking?"</p>
+<p>,Well...."</p>
+<p>This battle of nerves was actually because of Seizawa Shii, who was jealous of Otagi Yuka for having the key to my house. Of course, it hadn't been many days since I'd been with Shii, so I didn't have time to give her a key, and there was a lot of sensitive information in my house besides the fact that I was Taira, so I wasn't even thinking about giving Shii a key since I wasn't sure if she would be on my side yet.</p>
+<p>,Regardless of who I favor more, Yuka was given the key because she decided to work with me on a business even after graduation. Shii also knows this well, but security is important in these matters."</p>
+<p>,Is that so? Yuka decided to work with Ryuta-jji after graduation."</p>
+<p>Seizawa Shii looked a little relieved at my explanation. She didn't say anything like, 'I want to work with you after graduation too~!' to me, whether she was planning to continue as a freelance troubleshooter or if she had other ideas.</p>
+<p>I was rather relieved by that reaction, because I had some ideas about Seizawa Shii's future, so I was thinking of guiding her to go in a different direction rather than sticking with me. Her role as a freelance troubleshooter isn't bad as it is.</p>
+<p>,Sorry for being so cranky, Yuka-jjing."</p>
+<p>,No, it was understandable that you misunderstood. The problem is the teacher-ssi who's meeting women like an octopus."</p>
+<p>In the end, I became the troublemaker? We bickered for a while, but the food came soon after, so this topic quickly passed.</p>
+<p>,Everyone burned a lot of calories, so eat a lot."</p>
+<p>,Okay~! I'll enjoy the meal, Ryuta-jji!"</p>
+<p>,I drank a lot of teacher-ssi's milk, but I'll enjoy the sundubu-jjigae (soft tofu stew) too."</p>
+<p>Everyone was hungry, so we ate dinner making only clattering sounds. Seizawa Shii and Otagi Yuka exchanged each other's food as if they had never had a war of nerves, and had a friendly dinner.</p>
+<p>,Huu...! I'm finally full."</p>
+<p>,I enjoyed the meal, Ryuta-jji~!"</p>
+<p>,Sundubu (soft tofu) is always delicious."</p>
+<p>After finishing the meal and cleaning up, we looked at each other. The expressions that asked 'What should we do now?' gradually changed to eyes that looked at me stickily.</p>
+<p>,Ryuta-jji was too stormy earlier.... Now, be gentle."</p>
+<p>,Yeah. Don't do it half-assed just because you have a lot of work!"</p>
+<p>,It wasn't half-assed, I was actually doing it with all my might...."</p>
+<p>In the end, my grumbling was ignored, and I had no choice but to be dragged back to bed by Otagi Yuka and Seizawa Shii.</p>
 <p>###</p>
-<p>"Good work today.... There are no club activities today, so rest well at home over the weekend."</p>
-<p>It was dismissal time. Today, I and a few students, including Shimokawabe Airen, were planning to visit Yoda Grandpa's dojo with Kujo Kina, and Seizawa Shii also had a part-time job, and Minamoto Risa had work, so we decided to skip club activities.</p>
-<p>"See you next week, Ryuta-cchi!"</p>
-<p>Seizawa Shii rushed out of the classroom as if someone was chasing her, and the remaining students also prepared to leave with their bags.</p>
-<p>Otagi Yuka, Naruse Shiyo, Saionji Diana, and Sakagami Rena, who were going to Yoda Grandpa's dojo, were waiting for me to finish my work in the education preparation room, and Kujo Kina and Alik went to the Cheongsim Hall to pick up Shimokawabe Airen.</p>
-<p>I quickly finished the remaining work and took the students to the parking lot. I had rented a van that could carry several people in advance, so I was planning to take that to Yoda Grandpa's dojo.</p>
-<p>"Since we're visiting as guests, shouldn't we buy a gift?"</p>
-<p>I shook my head at Naruse Shiyo's question, as if it was okay. I had already bought a gift, so there was no need to buy another one.</p>
-<p>"I already bought it. That Yoda Grandpa likes Wagyu, so I bought it to eat together."</p>
-<p>I had put the Wagyu in the refrigerator in the education preparation room and put it in the trunk of the car before dismissal. Since it was December, it was nice that I didn't need an icebox. I had prepared the barbecue grill and everything, so it would be perfect to grill and eat in the yard in front of the dojo.</p>
-<p>While waiting in the car, Alik, Kujo Kina, and Shimokawabe Airen, who had gone to the Cheongsim Hall, arrived. I greeted Shimokawabe Airen as she got into the car and asked what I was curious about.</p>
-<p>"What did you decide to do with the Cheongsim Hall?"</p>
-<p>"We decided to have the students do autonomous training today."</p>
-<p>Ah, so instead of taking a break from the club like us, they just decided to do autonomous training. There were so many people missing on our side that we couldn't do club activities, but the Cheongsim Hall only had one advisor and one member missing, so they could definitely do club activities.</p>
-<p>"Let's go."</p>
-<p>"I've registered the dojo in the navigation, Teacher-nim."</p>
-<p>Since it was my first time going to Yoda Grandpa's dojo, Kujo Kina sat in the passenger seat and set up the navigation. I drove following the directions of the navigation.</p>
-<p>"It's quite far, isn't it?"</p>
-<p>"Yeah. Miyashi's land prices are high, and since we're only staying for a few months anyway, we built a house on the outskirts."</p>
-<p>Looking at the navigation, it was quite a distance, so when I asked, she said that since it was a place they would only live in for a few months, they had built a container building in a place with reasonably cheap land prices.</p>
-<p>"You can't even get delivery."</p>
-<p>"Master-nim has a light truck, so he uses that to buy and pack food."</p>
-<p>"Ah, is that so?"</p>
-<p>I talked to Kujo Kina about the dojo and headed to Yoda Grandpa's dojo on the outskirts of Miyashi. It was called a container building, but the exterior felt like a well-built country villa. You can make it like this too.</p>
-<p>The place that could be called a yard was very large, so I parked the car comfortably and got out. It looked like it could fit at least ten large cars, so there would be no parking worries here.</p>
-<p>"Hmm. Since Master-nim's car isn't here, he must have gone to buy something."</p>
-<p>"Ah, you said he had a light truck, right?"</p>
-<p>Since there was nothing parked in the yard except the car we came in, they seemed to think that Yoda Grandpa had gone somewhere.</p>
-<p>"Kaho! Tsurumi, Haruto! Your older sister has arrived!"</p>
-<p>At Kujo Kina's shout, the elementary schoolers I had seen at the festival came outside. In fact, Kujo Kina's disciples and Yoda Grandpa hadn't come to the special class building during the festival, so except for Alik and Shimokawabe Airen, whom I had seen at the Cheongsim Hall, everyone was a first-timer.</p>
-<p>"Kina Onee-chan!"</p>
-<p>"Uh-uh, you have to call me Older Master."</p>
-<p>The youngest, Sato Haruto, ran up to Kujo Kina and snuggled up to her, acting cute. The other disciples also approached Kujo Kina and clung to her or hugged her. I know she's the youngest of the Kujo family, but she seemed to be doing a good job as an older sister.</p>
-<p>"But where's Rishin?"</p>
-<p>"Ah, he said he's calming his mind in the dojo."</p>
-<p>"Really, is he serious?"</p>
-<p>Ageba Tsurumi answered Kujo Kina's question. Nakasone Rishin, who was my sparring partner today, seemed to be in the dojo.</p>
-<p>"Where's Master-nim?"</p>
-<p>"He said he couldn't have no car when guests come, so he went to buy a car."</p>
-<p>"Huh? No car? He bought a bunch of cars a few days ago, didn't he?"</p>
-<p>"When I looked today, they were gone."</p>
-<p>"Ah, more than that! Guests have arrived, so everyone say hello!"</p>
-<p>They were talking among themselves for a while, then Kujo Kina noticed us watching them and made them greet us. Still, they were cute kids who greeted me, Alik, and Shimokawabe Airen happily because they had seen us at the festival.</p>
-<p>They greeted the remaining students awkwardly, but everyone stroked their heads and welcomed them, as if they were charmed by Kujo Kina's young disciples, and the atmosphere softened.</p>
-<p>"When did Master-nim leave?"</p>
-<p>"About thirty minutes ago? It's been."</p>
-<p>"Then he'll be back soon. Let's go into the dojo first. Everyone, come in~!"</p>
-<p>We were guided inside the dojo. The dojo was so large that it was hard to believe it was a container building, and Kujo Kina explained it to us, as if she had noticed our surprise.</p>
-<p>"We stacked several containers to make it wide and then laid a wooden floor that's mainly used in dojos."</p>
-<p>"That's what it was?"</p>
-<p>"Amazing."</p>
-<p>Everyone was amazed and looked around in admiration. In the center of the dojo, Nakasone Rishin, dressed in a do-bok, was meditating with his eyes closed in a kneeling seiza position. I looked at him and opened my mouth.</p>
-<p>"I'll go put on my do-bok too."</p>
-<p>It wouldn't be polite to the opposing school to fight in teacher-only attire, so I said I would change into the do-bok I had brought.</p>
-<p>For reference, I had a new do-bok made. I had a do-bok that I wore when I was learning from Fujigasaki Rinka, but my body had grown so much that it couldn't be compared to then, so I had no choice but to have a new one made.</p>
-<p>"You can change over there, Teacher-nim!"</p>
-<p>I went to the changing room that Kujo Kina pointed to and was taking off my clothes to change into the do-bok when I heard a commotion outside. What's going on?</p>
+<p>Finally, Tuesday, the release date of TG Tech's firearms, arrived. Unusually, the release announcement was made at 12 AM on Tuesday, and sales began at 3 AM Korean and Japanese time, 2 PM New York time, and 11 AM Los Angeles time.</p>
+<p>Since the main sales location was the United States, it was adjusted to the time that consumers there wanted. Of course, the conditions after the war were quite relaxed, so firearms could be sold in Korea, but it was still difficult to gauge the public's reaction compared to the United States because they could only be sold to security companies or the military, not civilians.</p>
+<p>On the screen I'm looking at now, Han Yu-gyeong, who went to the United States, is holding a TG Tech gun and explaining it in fluent English.</p>
+<p>The image of a beautiful female career woman in a white shirt and pencil skirt holding a firearm was unbalanced and addictively eye-catching.</p>
+<p>Of course, the live chat room of MiTube was filled with chats from people who were half praising Han Yu-gyeong's beauty and half curious about TG Tech's firearms.</p>
+<p>,Finally today! Our TG Tech-made Oni Killer will be released!"</p>
+<p>It was nice to see her proceeding with ease because she had practiced a lot. She also answered various questions from the press naturally.</p>
+<p>They were all friendly reporters that we had paid money to, and we had simulated what questions would be asked in advance, so she was able to answer any question fluently without hesitation.</p>
+<p>After the reporters' Q&amp;A session, Lara Sinclair came out next. In reality, she is an AI android, but she was introduced as an American businesswoman and developer. This was to change the American prejudice that TG Tech is not a company from another country anyway.</p>
+<p>,TG Tech is a global company. It is a company created by people from various countries such as the United States, Korea, the United Kingdom, and Japan.... The basic technology for this energy gun came from my father's company, Energy-Link Industrial Company. My father always wanted the energy gun to become the standard weapon of the US military. We will continue to move forward so that our TG Tech energy gun can one day become the standard weapon of the US military."</p>
+<p>After Lara Sinclair's speech-like thing ended, the last thing was to play our official advertisement. It was a simple advertisement that only showed the appearance of a gun that was designed to be beautifully restrained and practical.</p>
+<p>Of course, there was also an advertisement that seemed to defend against attacks from other firearms companies that Arisu appeared in, but it was a bit much to release it at the official launch announcement.</p>
+<p>After the announcement ended, I immediately received a call from Han Yu-gyeong.</p>
+<p>-Yong-tae-yaa, I'm tired....</p>
+<p>I feel a little sorry when I think about how she must have worked hard for days without getting enough sleep to prepare for the release. Of course, I also processed some documents in Japan, but Han Yu-gyeong, Lara Sinclair, Eve, etc. must have had a much harder time than me, who was stuck here.</p>
+<p>,I'm sorry. I couldn't help much. But you did a great job with the presentation, right?"</p>
+<p>-No~! Yong-tae did everything he had to do. Were you watching the release announcement?</p>
+<p>,Of course. If I don't watch it, who will?"</p>
+<p>-Okay~! I feel energized when you say you watched it, Yong-tae. I'll hang up for now. Sales will start soon~!</p>
+<p>It took time to release the announcement, so sales will start in less than an hour. I can stay up for about a day, but the situation won't change if I don't sleep.... Should I go to sleep?</p>
+<p>I took my phone and lay down on the bed. I didn't fall asleep right away, and I was searching for TG Tech to read news articles, and most of the articles said that there were long lines at most American gun stores since yesterday to buy TG Tech's guns.</p>
+<p>It seemed like there were many people who wanted to try it because a new technology called an energy gun had come out. I felt pretty good that I could finish with good news before going to bed. Hmm.... Should I read one more article before going to bed? I wanted to keep reading these good news articles.</p>
+<p>As I am also the co-representative of TG Tech, I was curious about the current atmosphere and evaluation, so even after lying down to sleep, I kept refreshing the internet articles and looking at the phone screen.</p>
 <p>###</p>
-<p>Kinui Tatsuo was on his way back from a nearby mart to replenish the suddenly missing tea. It was Kinui Tatsuo's hobby to perform tea ceremonies, and since he couldn't have no tea when guests came, he had to go get some even though time was running out.</p>
-<p>It took a little time because he bought a few snacks that his cute disciples liked, but Kinui Tatsuo, a laid-back old man who thought it was okay to be a little late for the appointment, drove slowly without speeding.</p>
-<p>As befitting a dojo built on the outskirts of Miyashi, the surrounding houses disappeared, and he was driving on a road with fields in the background when something was standing at the entrance to the dojo.</p>
-<p>A black, large motorcycle and a woman wearing a motorcycle helmet were standing in the middle of the road, blocking traffic.</p>
-<p>Squeak!</p>
-<p>"I have an appointment and I'm late, so I'd appreciate it if you could move."</p>
-<p>Kinui Tatsuo didn't want to argue because he thought the guests would be waiting, so he spoke nicely.</p>
-<p>"Are you Kinui Tatsuo?"</p>
-<p>"...Where are you from?"</p>
-<p>Kinui Tatsuo thought that coming knowing his name was definitely not with good intentions. Thump, thump.... With ominous footsteps, the woman wearing the helmet approached.</p>
-<p>"I heard you kidnapped young children?"</p>
-<p>"You're from Anya Territory!!"</p>
-<p>Kwaaaang!!</p>
-<p>The helmeted woman swung her fist at the car as it was. As if there had been a major car accident, the light truck was severely dented, and at the same time, the driver's seat was pushed in. It was such a blow that the driver's seat and passenger seat disappeared. It was such a terrible sight that an ordinary person would have been crushed to death.</p>
-<p>"Did Anya Territory send you?"</p>
-<p>Kinui Tatsuo quickly escaped from the light truck and asked quietly. Anya Territory? The helmeted woman tilted her head.</p>
-<p>"Anya Territory? I was sent from Senya Children's Home?"</p>
-<p>Senya Children's Home was another name for Anya Territory, but Kinui Tatsuo didn't know that much. However, with the sharp intuition of a martial artist, he sensed that it was related to Anya Territory.</p>
-<p>"Senya Children's Home? Well, I don't care who sent you. I'll take revenge for my car...!"</p>
-<p>As Kinui Tatsuo said, it didn't matter who sent her from where. Right now, he was only thinking about avenging the light truck that had been with him for a long time.</p>
+<p>I must have fallen asleep while reading the articles, because when I opened my eyes, it was already morning. When I checked the time, it was a little after 6 AM. I must have slept for about four hours since I went to bed after 2 AM. I habitually turned on my phone screen.</p>
+<p>,What?"</p>
+<p>I had a lot of text messages. They were congratulatory messages from people who knew I was the representative of TG Tech, and when I checked what was going on, there was an article saying that all the supplies that I had prepared generously were sold out. When I looked at other articles, it seemed like they were selling well, with Europe and South America also being sold out or almost sold out. Of course, we didn't release a lot of supplies to Europe. I expected South America to sell well because there are so many gangs there.</p>
+<p>EVE: We didn't understand the needs of American gun enthusiasts well. We'll have to run the factory non-stop to meet the demand.</p>
+<p>Everyone seemed embarrassed because they didn't think that the initial supplies would be sold out with Eve. But it wasn't a bad feeling, it was a feeling of being embarrassed by unexpected luck.</p>
+<p>I think we produced almost a million units in total for all models. Since we are almost exclusively manufacturing everything without subcontracting, the profits from this firearms sale are expected to be considerable. The fact that all the prepared supplies are sold out seems to have a pretty good advertising effect.</p>
+<p>If Eve and Lara Sinclair hadn't created an automated factory, the current situation would have been very chaotic, but since there is a large automated factory, this sell-out situation will be temporary and we will soon be able to supply firearms to the world again.</p>
+<p>____</p>
+<p>Han Yu-gyeong in a suit after a long time!</p>

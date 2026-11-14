@@ -5,90 +5,75 @@ weight = 986
 chapter = 986
 +++
 
-<p>"...This concludes the report."</p>
-<p>Upon the report of this A Village Murder Incident by Department Head Kuroda Ouji of the Superpower Crime Investigation Department, Japan Paranormal Phenomenon Management Bureau, Director-General Iwano Sadakake of the Japan Paranormal Phenomenon Management Bureau frowned.</p>
-<p>Of course, even in Iwano Sadakake's view, the investigation team handled this matter well. Iwano Sadakake's precognitive ability, a sense of unease, had greatly activated, but since the problem was resolved without a major accident, it could be said to have been handled well, yet he felt a lingering unpleasant feeling. It was like eating a delicious fish but a tiny bone got stuck in his throat.</p>
-<p>"Is there a problem, Director-General-nim?"</p>
-<p>"No, no. It's probably because things resolved too easily, unlike my premonition."</p>
-<p>At Kuroda Ouji's question, Iwano Sadakake shook his Head. He had clearly thought it was a famine-level problem, so it must be this feeling he was experiencing because the matter was resolved too easily.</p>
-<p>"According to the investigators' report, it was fortunate that the opponent was someone who could be reasoned with. If we had handled it according to our usual rules, a great disaster would have occurred, just as Director-General-nim said. Because the opponent is not human, but a Transcendental Being."</p>
-<p>Whether it was a Superhuman, a Transcendental Being, or a Paranormal Phenomenon, in most cases, they couldn't be reasoned with. Therefore, subjugation without attempting conversation was usually the principle, but this time, due to Iwano Sadakake's premonition, different measures were taken and succeeded. Thus, this incident could be said to have been very fortunate. Fortunately, because the opponent was reasonable, the matter ended with only a minor (?) harm of 21 people.</p>
-<p>"Is that so.... And the original owner of that body?"</p>
-<p>We made a deal with that Transcendental Being. Not to take legal action against Sato Tsukiyo, the original owner of the body. After all, it was widely reported that we caught the Shadow Criminal... And they said they would take her as their Shrine Maiden.</p>
-<p>"Is that so...?"</p>
-<p>At Kuroda Ouji's answer, Iwano Sadakake replied with a somewhat unsatisfied tone, but since there was nothing particularly to fault in the situation, he decided to let it pass.</p>
-<p>"Since the opponent is reasonable, we might be able to get help when needed. Of course, we would have to pay the Price for that. Since that shrine belongs to the Urabe Family, we could also contact the Family for help."</p>
-<p>Because the Japan Paranormal Phenomenon Management Bureau was an organization where countless extraordinary incidents constantly occurred, civilian help was very important. As a secret organization, it couldn't employ manpower in every field with a limited budget, so they were operating by seeking help as needed.</p>
-<p>Looking at the Divine Power that named itself Tsukiyo this time, it seemed it could provide considerable help to the Japan Paranormal Phenomenon Management Bureau.</p>
-<p>"Right. As you said, if a matter arises that needs to be entrusted to them, I'll request their help."</p>
-<p>"Understood. I shall withdraw now."</p>
-<p>As Iwano Sadakake nodded his Head, acknowledging, Kuroda Ouji bowed at the Waist in greeting, then left the Director-General's office. Iwano Sadakake watched Kuroda Ouji's Back View, and once the door closed, he started Talking to Oneself.</p>
-<p>"I feel like I've missed something. But...."</p>
-<p>Although he felt he had missed something, a sense of unease that pursuing what he missed would lead to another major incident made Iwano Sadakake decide to simply overlook his unpleasant feeling.</p>
-<p>At my Words that there was someone I needed to meet at the Airport, everyone had question marks floating Above their Heads. Even if they were curious, they would know once they met them directly, as they would arrive soon. Because I had said I was coming to the Airport today, they had said they would come to Japan to match that time.</p>
-<p>"First, shall we have a Meal at the Airport restaurant?"</p>
-<p>"You said the customer is coming soon? Wouldn't it be better to meet and eat together?"</p>
-<p>At the suggestion to have a Meal while waiting, Saionji Diana asked with a puzzled Expression. She seemed to be in Confusion about me suggesting to eat first, even though I said there was someone to meet. Because usually, when a customer arrives, you wait and eat together.</p>
-<p>"They'll probably eat in-flight meals, so it'll be fine."</p>
-<p>"Is that so?"</p>
-<p>After convincing Saionji Diana, we wandered around the restaurant area of Tokyo International Airport, found a suitable layered sex restaurant, took a Seat, and ordered food. Then I sent a Text Message to the person who was coming, saying we were at the Airport layered sex restaurant.</p>
-<p>Although there were quite a few people when we came to the Airport, after the three left for the USA, the only ones left were Saionji Diana, Alik, and Tsukiyo.</p>
-<p>It was boisterous until just now, but with only four of us left, including me, it felt a bit empty, didn't it? Of course, Alik and Tsukiyo glaring at each other was quite amusing, though. I was a little curious how long they would keep that up.</p>
-<p>Still, when Alik said, "Ah~!" and fed Tsukiyo a piece of karaage from her Karaage-don, it didn't seem like they genuinely disliked each other.</p>
-<p>I watched that scene with satisfaction and ate the Gyudon I had ordered, a special extra-large portion. As I was eating, a Shadow fell upon the Dining table.</p>
-<p>Wondering what it was, I looked up, and my Eyes were immediately drawn to her prominent breasts. A Beautiful Woman with lime-green Hair, wearing black Clothes adorned with butterfly decorations, stood smiling at me. Surely not....</p>
-<p>"Linling?"</p>
-<p>The Linling I remembered was in the Appearance of a young girl.... Since the only lime-green haired woman I was supposed to meet at the Airport was Linling, I said it by deduction, and the moment I said "Linling," her Eyes sparkled like falling Stars, and she smiled brightly.</p>
-<p>"Yes~ Jing Yongtae-nim~!"</p>
-<p>Linling embraced me with a sudden hug. Perhaps not yet accustomed to this adult body, her breasts pressed tightly against my Face, making it impossible to breathe.</p>
-<p>"Linling, Breath...! I can't breathe...!"</p>
-<p>When I tapped Linling's Arm, saying I couldn't breathe, Linling exclaimed, "Oh my~!", and lifted her breasts from my Face.</p>
-<p>"First, sit down."</p>
-<p>"Yes~!"</p>
-<p>At my Words, Linling pulled a Chair next to her and sat down. Everyone looked at Linling with bewildered Expressions at her sudden Appearance.</p>
-<p>"Hmm.... This is Linling, she'll be my secretary from now on. I acquired her when I went on a Business Trip to China before. While I was in Miyashi, Linling was in TG Tech's laboratory in Korea."</p>
-<p>As I roughly introduced Linling, Linling smiled brightly and greeted everyone, saying, "Hello~!" Saionji Diana greeted her back and welcomed her warmly, but Alik and Tsukiyo....</p>
-<p>"Jii...!"</p>
-<p>"You... idiot! I, I can do breast squishing too!"</p>
-<p>They showed hostility (?) together. It seemed they didn't like that she suddenly appeared and breast-attacked (?) my Face. They kept growling at each other, but now, for some Reason, them joining forces was a bit funny.</p>
-<p>"I already heard about the others and know their names, but this person...?"</p>
-<p>As if not caring at all about Alik and Tsukiyo's hostility, Linling asked about Tsukiyo. Because Tsukiyo had recently joined our side, she must have asked because she wasn't in Linling's Data-base.</p>
-<p>"This is Tsukiyo. She's a child who recently joined our side."</p>
-<p>"Hello, Tsukiyo-yang~! You're very cute!"</p>
-<p>When I explained that she wasn't an Enemy, Linling smiled even more brightly and offered a Handshake. Tsukiyo, with a dissatisfied Face, only grabbed Linling's Index Finger and gave a perfunctory Handshake.</p>
-<p>"Could you wait a moment? I'm in the middle of a Meal...."</p>
-<p>"Of course~! Enjoy your Meal, Jin Yongtae-nim~!"</p>
-<p>As I started eating again, Linling rested her Chin in both Hands and watched me eat with a happy Expression. Tsukiyo, who had been looking at that scene with an incredulous Expression, shook her Head and began eating the Ebi-don (Shrimp Fries layered sex) in front of her.</p>
-<p>While eating, I suddenly noticed the large, sturdy-looking Suitcase Linling had brought. Linling wouldn't particularly need Luggage, so why did she have so much? I thought, but eventually couldn't suppress my curiosity and decided to ask.</p>
-<p>"What's inside that Suitcase?"</p>
-<p>"Inside the Suitcase, Jin Yongtae-nim, are the item you requested.... and Linling is inside."</p>
-<p>Ah, that's right. There was an item I requested from Linling. I must have ordered one because I needed something. By the way, inside the Suitcase? Linling is inside again? Are there some spare parts or something?</p>
-<p>"I'll tell you exactly when we return to Jin Yongtae-nim's Home~!"</p>
-<p>At Linling's Words, I dismissed my curiosity and finished the rest of my Meal. After everyone finished their Meals, we got Drinks and Desserts packaged from a nearby franchise cafe for dessert and returned to the Parking Lot where the van was parked.</p>
-<p>"First, let's load Linling's Luggage...."</p>
-<p>I received the Suitcase from Linling. The Suitcase was quite heavy, but as expected, since she was an android whose entire Body was a Mechanical device, she seemed to carry it lightly.</p>
-<p>"Now, let's go Home by car."</p>
-<p>At my Words, a battle suddenly broke out. Alik and Tsukiyo were having an eye-fight in front of the passenger seat door, trying to get into the passenger seat, and in the meantime, they kept glancing at Linling, wary that she might aim for the passenger seat. But Linling seemed to have no intention of getting into the passenger seat, and laughed as she watched the two.</p>
-<p>"I'll drive when we go to the Mansion, Jin Yongtae-nim~!"</p>
-<p>"...Ah!"</p>
-<p>If Linling sat in the Driver's Seat, the Reason to get into the passenger seat would disappear, so Alik and Tsukiyo, who had been fighting over the passenger seat, made dejected Expressions.</p>
-<p>"Ehehehe, Ryuta Oppa~!"</p>
-<p>"Alik, likes Ryuta's Side Seat...!"</p>
-<p>In the end, I sat in the middle of the very back seat of the van, with Alik and Tsukiyo on either Side, and we departed for our still unfamiliar Home in Neo Tokyo. Saionji Diana, who was sitting right in front of me, chuckled, perhaps finding my somewhat tired Expression amusing.</p>
-<p>Linling B-cut~!</p>
-<p>At first, I tried to put her in a China Dress, but thought, 'Is it too conspicuous?' so I changed it to a black Dress hehe.</p>
-<p>TheDreaming-nim requested Azuma Remake of Chapter 197~! 1. Viewfinder 2. Phone Camera</p>
-<p>1.</p>
-<p>2.</p>
-<p>For the second Illustration, the overall Composition is similar, so I'll only upload two images hehe. Perhaps because of the phone camera's filter, her Hair Color appears sky blue hehe.</p>
-<p>Gojoy-nim requested Nae Fitzgerald's Casual Clothes and underwear~!!</p>
-<p>Casual Clothes~!</p>
-<p>As expected of a Luxury Brand Boss, she usually wears a sophisticated Suit hehe.</p>
-<p>Underwear~!</p>
-<p>Geomeunkkaemuk-nim requested Dragon-human Shiyo, Black Dragon version Shiyo Breast Covering~!</p>
-<p>Dragon-human Shiyo~!</p>
-<p>Black Dragon Shiyo~!</p>
-<p>MidNightSKY-nim requested Electric Discharge Alik, Lightning Release Rena~!</p>
-<p>Alik first~!</p>
-<p>Rena~!</p>
-<p>Because I was pressed for Time while making them, the Composition is similar, so I'll only upload two images hehe.</p>
+<p>According to Jo Seodang's Characters Report on Taira Food distribution, there was no special A-Rank Talent in Taira Food distribution. Probably, if there had been special A-Rank Talent, they would have already been scouted away to other Affiliate Companies of the Taira Group before Jo Seodang investigated.</p>
+<p>Still, as it was a Taira Affiliate Company, there were quite a few employees who performed above average, and since Linxiang was next to me, it seemed like I could form a team with Linxiang as the leader and have them work.</p>
+<p>The people I gathered were young employees below the manager level, because I wanted young people who could think flexibly and had good stamina to accomplish many tasks, rather than those whose minds had already become rigid from much age and experience.</p>
+<p>Not only Taira Food distribution, but I also had quite a lot of other company work, so I would be away quite often. I was thinking of creating an Auto-Hunting System that could run well even if I was away for a while. I couldn't do everything well by myself, and due to my Stats and Traits, I was more of a Combatant rather than a businessman, so I had to make good use of my Subordinates.</p>
+<p>「Nice to meet you. I'm the newly appointed Boss, Taira Ryuta.」</p>
+<p>I looked at the people gathered from Taira Food distribution and introduced myself and greeted them with a slightly nervous Expression.</p>
+<p>All of them, being outstanding Characters within the company recommended by Jo Seodang, probably had a rough Guess of my Existence, but they were looking at me with an Expression mixed equally with Expectation and anxiety, as if asking, 'Why did the Boss call me as soon as he took office?' I calmly received their Gaze and continued the Story.</p>
+<p>「Before taking office as Boss, I did some preliminary investigations. And I learned that you all possess quite excellent qualities. So, gathering all of you, I'm thinking of forming a team. The team name is... let's call it the Strategic Planning Team.」</p>
+<p>Actually, at first, I was going to name it something like Secretary Team 1, but thinking about it, because this team's Work was significantly different from a secretary's, I named it the impressive-sounding Strategic Planning Team. I was planning to recruit the secretary team separately, not from Taira Food distribution.</p>
+<p>「Here, Linxiang will be the Team Leader of the Strategic Planning Team.」</p>
+<p>「Please take care of me. I am Linxiang, who will be your Team Leader from now on.」</p>
+<p>As I introduced Linxiang, she stepped forward, bowing her Head and greeting. The employees who were now Affiliated with the Strategic Planning Team looked at me and Linxiang as if asking, 'What is this?', and their Gaze was demanding a little more Explanation.</p>
+<p>「Um... what kind of Work does the Strategic Planning Team do?」</p>
+<p>One person, gathering courage, raised a Hand and asked me a Question. Right. I only said they would be Affiliated with the Strategic Planning Team, but I didn't say what kind of Work they would do.</p>
+<p>「Directly under the Boss, you will oversee the company's internal Work.」</p>
+<p>Instead of me, Linxiang gave the Answer to the Question.</p>
+<p>「Clearly, there will be a lot of Work and you'll be busy. Instead, everyone in the Strategic Planning Team will have their annual salary increased by 30 percent. If you come up with good ideas, a considerable bonus will also be paid, so please work hard.」</p>
+<p>This Time, when I told them what they could gain by joining the Strategic Planning Team, everyone's Expression changed to joyful ones. At the Words 'annual salary increase' and 'bonus,' they seemed to have forgotten the Condition that there would be a lot of Work and they would be busy. Well, since I said it, they won't complain.</p>
+<p>「Then, I'll give you your first Mission. Please prepare for my inauguration ceremony tomorrow.」</p>
+<p>As it was the first Mission, I gave them an easy one. It wasn't a grand inauguration ceremony, and it was just a broadcast within the company, so there was nothing difficult about it at all.</p>
+<p>「Let's stop here for today and leave work.」</p>
+<p>「Ryuta-nim, I will work overtime today.」</p>
+<p>After sending out the Strategic Planning Team, when I said I was leaving work, Linxiang declared she would work overtime. Of course, the Strategic Planning Team took on my Mission, but that seemed like it would end quickly.</p>
+<p>「Although I roughly looked at the data left by the former Boss, I want to check by going around each team if it matches reality and if there are any Problems in the company.」</p>
+<p>From the first day, she's trying to overdo it. Of course, Linxiang, being an android, wouldn't call this overdoing it. Still, it's easier to sort out these kinds of Work in the Early Stage, so I nodded my Head.</p>
+<p>「Don't do it for too long... there will be a company vehicle, so when you're done, ride that back.」</p>
+<p>「Understood, Ryuta-nim.」</p>
+<p>Like that, I left Linxiang at the company and again, riding in the vehicle driven by Saionji Diana, I left Taira Food distribution.</p>
+<p>「Father. Why didn't you tell me that bastard illegitimate child would receive an Affiliate Company?」</p>
+<p>After the grand meeting ended, at the meal, Taira Gensuke grumbled to his Father, Taira Ichiro.</p>
+<p>「That Guy must have laughed at me. That Guy, who is just a Branch Manager, boasted in front of himself, who would become an Affiliate Company Boss.」</p>
+<p>「Don't you know well that the South American Branch of Taira Bussan is much larger than Taira Food distribution? There's no need to pay attention to it.」</p>
+<p>Taira Ichiro said to Taira Gensuke, who was indifferently grumbling. Sitting next to him, Taira Camilla, who was eating, was just eating without a Word, as if she couldn't hear Taira Gensuke's grumbling. It could also be because Taira Gensuke often grumbled like this.</p>
+<p>「...And now, there's no Time to pay attention to your Cousin. The Problem is your youngest Aunt. Since Saburo died, most of the Saburo faction has attached themselves to her, so rather than your Cousin who only has one Food distribution, your Aunt Kanna is a much more Dangerous Existence.」</p>
+<p>Taira Ichiro was thinking that Taira Kanna was more Dangerous than Taira Ryuta. First, her power within the Group was incomparable, and even during her school life, seeing that she had succeeded in several Missions given by her Father, Taira Danjo, and proving that her Abilities in other areas were outstanding, not only her Management Ability, he considered her more Dangerous than Taira Ryuta.</p>
+<p>Of course, Taira Ryuta was not bad material either. He owned Hatake Investment Company, a recently successful Investment company, and under its umbrella, he also had a Mithril mine, and he had succeeded in Taira Danjo's Mission, so it seemed Taira Saburo had raised his Son well.</p>
+<p>Gensuke, that Guy, was not bad material either, but considering that Taira Ryuta had achieved this level of Achievement in just one year, it was inevitable that a natural comparison would be made.</p>
+<p>「Aren't you overestimating the youngest Aunt too much? She's just a Woman who just became an Adult.」</p>
+<p>「Don't underestimate a Woman, Gensuke. No matter who the Opponent is, it's best not to let your guard down.」</p>
+<p>At Taira Gensuke's Words, Taira Camilla interjected. Until now, as if she had no Interest, she had only eaten, but when her Son made careless Words and Actions, she interjected to correct him immediately.</p>
+<p>As Taira Camilla said, Taira Kanna was an Opponent one couldn't let their guard down against. After Taira Saburo died, Taira Ichiro tried to kill Taira Kanna to prevent the remaining Saburo faction from flocking to Taira Kanna.</p>
+<p>However, when the Existence of Taira Saburo's Son, Taira Ryuta, was revealed, Taira Ichiro judged that if he killed Taira Kanna, the Saburo faction would gather towards Taira Ryuta.</p>
+<p>So, he subtly leaked Taira Ryuta's Information to the Minamoto side and tried to kill him, but Taira Ryuta didn't die, so he canceled the plan to kill Taira Kanna.</p>
+<p>If he killed Taira Ryuta and Taira Kanna simultaneously, no matter that he was Taira Danjo's First Child and one of the strong Successors, he could suffer a great Failure from Taira Danjo, so he just let it go. But in the end, now, not the Saburo faction, but the Kanna faction was created.</p>
+<p>Although the Saburo faction was not entirely absorbed by Taira Kanna, Taira Kanna attracted several non-factional people and came to possess a power almost similar to the power Taira Saburo had.</p>
+<p>From Taira Ichiro's perspective, in this Situation, there was no Time to pay attention to Taira Ryuta. Furthermore, Taira Food distribution, which Taira Ryuta was in charge of, after Taira Food, had a deep Relationship with Taira Bussan, so Taira Ryuta would not dare to rebel against him.</p>
+<p>「By the way, what happened to the Mithril mine? How did such a Young punk come to possess a bonanza like the Mithril mine?」</p>
+<p>「From what I heard, the Taira Food Factory relocated, and he bought that land, and a mine was discovered there. He's lucky.」</p>
+<p>「jenjang...!」</p>
+<p>At Taira Ichiro's Explanation, Taira Gensuke quietly uttered a Curse. Taira Camilla, with a serious Expression, told him to watch his Words, but Taira Ichiro remained silent. He seemed to be lost in some Thought.</p>
+<p>「If Father has no Time to pay attention, should I try something?」</p>
+<p>「No, don't touch it. If you touch Hatake Mining, you'll be Stimulating Jiro, that Guy... It's not Time to have a Match with Jiro, that Guy, yet.」</p>
+<p>When Taira Gensuke, with a subtle Expression, spoke to Taira Ichiro, Taira Ichiro, with a serious Expression, shook his Head. Today, Taira Jiro's Praise of Taira Ryuta at the meal where everyone was watching had a hidden meaning: 'Don't touch Hatake Mining.'</p>
+<p>If Taira Gensuke needlessly touched Hatake Mining, Taira Jiro would not stand idly by, and a War between Taira Ichiro and Taira Jiro would begin. As Taira Gensuke was a radical who inflicted Terror on rival companies just to increase market share, if Taira Gensuke moved, it would never end as a small Matter, so it was clear that Taira Jiro would not stand idly by.</p>
+<p>Of course, Taira Ichiro was confident he could defeat Taira Jiro. But he couldn't prevent the Situation where Taira Kokoro and Taira Kanna were aiming for a windfall, so he was still postponing a one-on-one showdown with other Successor forces.</p>
+<p>「Tsk... Understood.」</p>
+<p>Taira Gensuke, without hiding his Dissatisfaction, nodded his Head.</p>
+<p>「Taira Food distribution will be Ryuta, that Guy's, Limit.」</p>
+<p>Taira Ichiro, looking at Taira Gensuke's Expression, chuckled and opened his mouth as if to soothe him.</p>
+<p>「What do you mean by that?」</p>
+<p>「It's the Problem with Taira Food distribution. Because of my Taira Bussan, he can't oppose my side, and since he trades Mithril with Jiro, that Guy, they won't fight. Also, since Taira Food distribution supplies to Kokoro's department store, it's not a Relationship worth fighting over either. And he won't be able to fight Kanna's side for Justification either... Ryuta, that Guy, will only watch the Successor War and won't gain any Advantage. Rather, Taira Food distribution, which he was put in charge of, has become his Shackles.」</p>
+<p>Having heard his Father's Explanation, Taira Gensuke smiled with Satisfaction and nodded his Head. If his Father's Words were true, Taira Ryuta, in charge of Taira Food distribution, caught in the middle, would have no choice but to watch his Father ascend to the Taira Throne.</p>
+<p>Taira Kanna and Taira Kokoro's surprised Appearance at the family meal, requested by Gojoy-nim~!</p>
+<p>Starting with Kanna</p>
+<p>Kanna wasn't surprised because she knew ㅎㅎ</p>
+<p>Kokoro~!</p>
+<p>Kokoro was truly surprised ㅎㅎ</p>
+<p>Linxiang and Linling showing Aegyo, requested by MidNightSKY-nim~!</p>
+<p>Linling~!</p>
+<p>I will only accept changing Expressions this Time~! You can request for several consecutive days, so please keep to the request count~!</p>
+<p>Secretary Chieri under the CEO's Office desk, requested by Inoega Doegopeun-nim~!</p>
+<p>Bonus~!</p>

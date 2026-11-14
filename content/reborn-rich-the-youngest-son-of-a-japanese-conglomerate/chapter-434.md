@@ -5,79 +5,68 @@ weight = 434
 chapter = 434
 +++
 
-<p>After the second period, I listened to Konoe Akina, Otagi Yuka, and Saionji Diana's stories, and it seemed that Kurayamda Kirie's Japanese classics class in the second period was nothing special.</p>
-<p>They said that the teacher in charge of Japanese classics came and showed Kurayamada Kirie how to teach, telling her to do well from now on.</p>
-<p>I thought she wasn't going to do anything special since it was her first day. And since it was her first day, I took her to the school cafeteria with Kijimoto Jurie and had lunch together.</p>
-<p>In fact, according to Saionji Diana's testimony, Kurayamada Kirie was also from St. Francisco Girls' Academy, so she could have eaten lunch on her own even if we didn't take her, but it would be a bit much to openly ostracize her, so we decided to have lunch together.</p>
-<p>After lunch, Kurayamada Kirie and I were in the education preparation room together all afternoon, and Kurayamada Kirie looked at me with that unique glaring look, as if she was smirking.</p>
-<p>She wasn't actually smirking, but I got that 'feeling', so I couldn't say anything, and I had to do my work while receiving uncomfortable glances.</p>
-<p>I had been comfortably alone all the time, and now I was in the same space with a new person who came to target me from another faction, so it was bound to be uncomfortable. Kurayamada Kirie was quite an attractive woman, but still, uncomfortable is uncomfortable.</p>
-<p>I quietly did my work until the end of class, and then took Kurayamada Kirie to the classroom again for the closing ceremony. The closing ceremony ended without any special events, and I opened my mouth to Kurayamada Kirie.</p>
-<p>,Kurayamada-ssi doesn't have any club advisor duties... If you don't have any remaining work, you can go home right away."</p>
-<p>"Yes, then I'll leave first."</p>
-<p>At my words that she could go home, Kurayamada Kirie bowed her head and left right away. Today is Friday, so I'll see her again in two days after the weekend.</p>
-<p>Then I should dig up some information about Kurayamada Kirie during the weekend. I can't keep being uncomfortable like this, so I have to either kick her out or make her my ally.</p>
-<p>"Ryuta...!"</p>
-<p>I was thinking about digging into Kurayamada Kirie when Alik was waiting for me at the entrance of the education preparation room.</p>
-<p>I heard that Kurayamada Kirie was from Cheongsim Hall, so I was going to go to Cheongsim Hall to find out more. I had promised to go with Alik, who goes to Cheongsim Hall every day after school, so Alik packed his bag and came straight to the education preparation room.</p>
-<p>"Shall we go?"</p>
-<p>"...Yeah!"</p>
-<p>Cheongsim Hall is only a 5-minute walk away, so it's not that far, but Alik seemed very happy to be going to Cheongsim Hall with me, and his face was flushed. Alik stood next to me, grabbed my sleeve, and walked with me.</p>
-<p>It would be something that could cause strange(?) rumors if it were another student, but Alik was like a cute mascot among the students of the special class, Cheongsim Hall, or the school, so it was okay.</p>
-<p>"Is Shimokawabe seonsaengnim teaching you well these days?"</p>
-<p>"Yeah, swordsmanship is fun...!"</p>
-<p>Alik waved his hands around, imitating the movements of swinging a sword, and smiled slightly. I should check Alik's stats with the glasses from the ruins sometime. I keep forgetting. I was curious if Alik had the same characteristics as the mid-boss in the game.</p>
-<p>Alik's level isn't high enough to be a mid-boss yet, so he doesn't have all the characteristics, but he definitely has good ones.</p>
-<p>As I was talking with Alik, I arrived at Cheongsim Hall before I knew it. When I arrived at Cheongsim Hall, some students who had arrived earlier greeted us.</p>
-<p>Alik was greeted because he was a member of the same club, and I was greeted because I occasionally visited Cheongsim Hall.</p>
-<p>"Yamashiro seonsaengnim, hello~!"</p>
-<p>The student who greeted me most cheerfully was Nishiike Neiko, the current vice-captain of Cheongsim Hall. She was the vice-captain when Saionji Diana was the captain, and she automatically became the captain when Saionji Diana lost her arms and legs in an accident and left Cheongsim Hall. According to Saionji Diana, Nishiike Neiko is a very skilled two-sword master, and she has skills comparable to Saionji Diana.</p>
-<p>Cheongsim Hall was a fairly large club with several members from each grade from middle school, so each grade had a captain, and the 3rd grade high school captain became the club captain of Cheongsim Hall. The captain of Cheongsim Hall next year will probably be the current 2nd grade high school captain.</p>
-<p>"Ryuta-gun, it's been a while."</p>
-<p>The inner door of Cheongsim Hall opened, and Shimokawabe Airen, wearing a dobok, came out and greeted me. I had contacted her in advance to let her know I was coming, so Shimokawabe Airen wasn't surprised and was waiting for me.</p>
-<p>"I have something to ask you."</p>
-<p>"Then come in. Everyone else, warm up on your own while the teachers talk."</p>
-<p>Following Shimokawabe Airen, I entered the reception room inside Cheongsim Hall. After sitting down, Shimokawabe Airen, being a home economics teacher, skillfully served tea and refreshments.</p>
-<p>"These are wagashi I made while teaching the students today. Please try them."</p>
-<p>"Ah, thank you."</p>
-<p>I had eaten quite a bit of wagashi at the Taira main family, so I had some knowledge of it. She was qualified to teach the young ladies of prestigious families. The wagashi and tea that Shimokawabe Airen brought out were quite delicious. After enjoying the tea and wagashi for a while, Shimokawabe Airen asked me what I came for.</p>
-<p>"But what did you want to ask me...?"</p>
-<p>"Today, a student teacher came to our class as a vice homeroom teacher..."</p>
-<p>Shimokawabe Airen knew that I was Taira Ryuta, so I didn't hide anything and told her what happened today. Shimokawabe Airen nodded after listening to me.</p>
-<p>"You came to get information about a teacher named Kurayamada Kirie. If she came as a student teacher now, she must be a senior in college... She must have been the captain of Cheongsim Hall 5 years ago. I wasn't here then, so I don't know much. Would you like to see a picture?"</p>
-<p>5 years ago, Shimokawabe Airen would have been a college student in terms of age, so she wouldn't have known Kurayamada Kirie then.</p>
-<p>"Yes, let's see a picture."</p>
-<p>"Here you go."</p>
-<p>What Shimokawabe Airen brought was a small laptop. The Cheongsim Hall internet site was on the screen, and I thought that a successful club would have its own site. It wouldn't be difficult to maintain the site with the club sponsorship money that comes in every year, so I heard that most of the clubs at St. Francisco Girls' Academy have their own websites.</p>
-<p>For reference, the Date Experience Club has a nearly 100% chance of ending with our generation, so I didn't think it was necessary to create a separate site, so I just didn't create one.</p>
-<p>The Cheongsim Hall website had introductions of past advisors and past captains, and of course, there were free bulletin boards and suggestion boards that you would expect to find. I came to see the introduction of past captains, so I immediately clicked on the past captains introduction board.</p>
-<p>After flipping through a few pages, I saw Kurayamada Kirie's appearance. She was wearing the St. Francisco Girls' Academy uniform and smiling faintly. She definitely looks very fresh because she's a high school student. Her hair is shorter than it is now, so the feeling is completely different.</p>
-<p>◆Kurayamada Kirie.</p>
-<p>2045 Koryu Swordsmanship Competition Excellence Award.</p>
-<p>2047 All-Japan Swordsmanship Competition Grand Prize.</p>
-<p>There wasn't much explanation. As expected of a Koryu martial arts club site, it only listed the martial arts she had learned and the awards she had won while attending St. Francisco Girls' Academy. But what happened in college that changed her impression so much? She was pure then, but now she feels like she's going to eat men alive.</p>
-<p>"There's not much information here. Shall I contact the former Cheongsim Hall advisor?"</p>
-<p>"No, I don't think what happened in high school will have an impact now."</p>
-<p>Looking at the picture of her smiling purely, I didn't think it was necessary to dig into Kurayamada Kirie's past. I didn't think she would have planned to do anything from high school, so I thought it would be a better choice to investigate the Kurayamada family now.</p>
-<p>"Is Alik doing well?"</p>
-<p>After finishing looking into Kurayamada Kirie, I asked about Alik as a matter of course. Shimokawabe Airen smiled as if she had been waiting for my question and answered.</p>
-<p>"Alik will be a really great swordsman. His skills are improving so quickly that he'll be the second strongest in Cheongsim Hall in a month or two."</p>
-<p>Second? Was there a student in Cheongsim Hall who could surpass Alik's amazing talent?</p>
-<p>"Who's the first?"</p>
-<p>I asked Shimokawabe Airen about the first in Cheongsim Hall with curiosity and a desire for talent. Shimokawabe Airen looked at me with narrow eyes and smiled, then pointed to herself.</p>
-<p>"If you're talking about the second in Cheongsim Hall, then the first is me."</p>
-<p>"Ah...!"</p>
-<p>It was a pun. In the end, it was Shimokawabe Airen's prediction that there would be no student in Cheongsim Hall who could follow Alik in a month or two. No matter how talented Alik is, he won't be able to catch up with Shimokawabe Airen in a short amount of time.</p>
-<p>"The other students are also working hard to not be caught up by Alik, so Alik's arrival has made the atmosphere very good."</p>
-<p>"I'm glad he's adapting well. I'll be going now. It's not polite to sit here for too long."</p>
-<p>I saw Kurayamada Kirie's past appearance and knew that Alik was doing well, so I didn't think it would be a good idea to sit here any longer and interfere with Shimokawabe Airen's guidance of the students, so I got up from my seat.</p>
-<p>"I heard that Ryuta-gun is sponsoring Alik to learn swordsmanship. What are you planning to use Alik for that you were looking for a swordsmanship teacher?"</p>
-<p>Shimokawabe Airen looked at me, who was standing awkwardly, with deep eyes and asked. I was going to answer with a lie, but I decided to answer truthfully after seeing Shimokawabe Airen's eyes, which seemed to see through everything.</p>
-<p>"It's to use Alik as my sword in the upcoming battles."</p>
-<p>"Those battles will be very rough, right?"</p>
-<p>"Probably."</p>
-<p>I thought she was asking because she was worried about Alik, but strangely, Shimokawabe Airen had a very satisfied expression at my answer. Shouldn't she be angry if her disciple is put in danger? Shimokawabe Airen smiled at my puzzled look and opened her mouth.</p>
-<p>"Swordsmen need real combat. Alik is a blessed friend."</p>
-<p>She said he was blessed because he could experience real combat... As expected, the future Three Swordsmen thought differently from ordinary people.</p>
-<p>--</p>
-<p>Kurayamada Kirie Uniform B-cut</p>
+<p>It felt like a long time since I had a dream. Yukiko appeared in the dream, and we talked about this and that, and then our eyes met, and we had passionate Sex. I had such an Erotic dream.</p>
+<p>「Hh-eok!」</p>
+<p>Feeling like I was about to Ejaculate, I quickly woke up. Fortunately, I had an Erection in the morning, but I hadn't soiled my Panties. Since the Possession, I haven't been without a Woman, and even yesterday, I Ejaculated into Kirie Kurayamada's Body several times, so a Wet dream makes no sense.... A Wet dream (Dream Semen)? Could it be that Yukiko really came and went?</p>
+<p>After waking up, while I was still dazed, the Phone I had placed by my Head vibrated and a LINE message arrived.</p>
+<p>「-Yukiko: It was good because it's been a long time♥」</p>
+<p>Ahh.... It wasn't a normal, dictionary-definition Wet dream, but truly a Wet dream where I released Vital Energy to a Succubus in a dream. I replied to Yukiko, saying, 'I enjoyed it too,' and got up from my Seat. Even though it was a dream, it felt truly good.</p>
+<p>I took a Shower with cold Water to awaken my hazy Mind and thought about today's schedule. Alik and Shimokawabe Airen would gather, and once the final check was done, it would be over. I didn't know how long that final check would take, but it wouldn't take too long. As it was the day before the Battle, the idea was to give them ample Rest.</p>
+<p>Since there was no need to travel in multiple cars, I picked up Alik, Shimokawabe Airen, and Saionji Diana, whom I had arranged to meet, and decided to go to the Warehouse.</p>
+<p>Out of Consideration for Shimokawa Airen, who lived in Cheongsim-gwan within St. Francisco Girls' Academy, everyone said they would wait at the School entrance, so I drove my Car to the School entrance. I arrived a little early, and Saionji Diana and Shimokawabe Airen were standing in front of the School. Alik didn't seem to have arrived yet.</p>
+<p>「Get in.」</p>
+<p>When I lowered the Window and spoke, Shimokawabe Airen got in the back seat and Saionji Diana got in the Passenger seat.</p>
+<p>「Good morning.」</p>
+<p>「It's been a long time, Ryuta-gun.」</p>
+<p>「Hello, Teacher-nim.」</p>
+<p>As everyone was Greeting, from the Road, as if not fully awake, Alik was seen walking with half-closed Eyes. When I lightly honked the horn, Alik came running, odo-do, and got in the Car. He ran with half-closed Eyes, so I worried he might fall, but such a thing didn't happen.</p>
+<p>「Sabubu, Ryutta, Aena, hello....」</p>
+<p>Still half-asleep, Alik's Appearance, rubbing his Eyes and Greeting, was incredibly Cute. Shimokawabe Airen, who was called Sabubu, as if Alik was Cute, was stroking his Head.</p>
+<p>「Everyone's in, so I'll depart now.」</p>
+<p>It took about 30 minutes from the School entrance to the Warehouse. Perhaps because it was a Weekend morning, the traffic wasn't bad, so it was faster than expected. Driving while listening to music, I parked the Car in the Warehouse Parking Lot and everyone got out. Inside the Warehouse, Otagi Yuka, the Party Concerned in the matter, and Eve, who must not have left the Warehouse since yesterday, were there. Sakagami Rena and Konoe Akina didn't seem to have arrived yet.</p>
+<p>「Konoe-ssi will be here soon, and Sakagami-ssi went last night to disarm the landmines that SPF had set up at the Shrine. Still, since she went at Dawn, she'll be back soon.」</p>
+<p>Eve, even before I asked, told me about the two who weren't there. To be moving since Dawn, Sakagami Rena must be suffering the most.</p>
+<p>「Then let's wait until everyone arrives.」</p>
+<p>Konoe Akina seemed like she would arrive soon, and since Sakagami Rena also went towards the Shrine at Dawn, she would be back soon.</p>
+<p>「Thank you for your Help, Teacher-nim.」</p>
+<p>As I sat there, Otagi Yuka politely Greeted Shimokawabe Airen. In fact, I and the other Students had a Justification to help because I was their Class Teacher or they were Friends, but Shimokawabe Airen, apart from Home Economics class, had no significant contact, so it was unexpected Help for Otagi Yuka.</p>
+<p>Of course, a big Reason was that I understood Shimokawabe Airen's desire for Actual combat and asked her for Help, but Otagi Yuka wouldn't know that, so she would think it was sudden Help.</p>
+<p>「No, when a Student is in Danger, it's natural for a Teacher to help.」</p>
+<p>In reality, she just wanted to cut people; it's quite hypocritical. As I listened to Shimokawabe Airen's Words and evaluated her internally, Konoe Akina and Sakagami Rena arrived at the Warehouse.</p>
+<p>「Sorry for being late~!」</p>
+<p>「I have completed my Mission and returned, Liege.」</p>
+<p>Since it was still early Morning, they weren't that late. After exchanging Greetings and saying 'good Work,' everyone's Gaze now turned to Eve. Eve had been continuously collecting Information online since yesterday, and they were curious if there was any new Information.</p>
+<p>「Overnight, I obtained one piece of Information. It's not precise, but the Troops seem considerable. They don't seem to have entered Miyashi yet, but if I make a Conjecture based on a few Calls I hijacked, it seems to be over a hundred people.」</p>
+<p>At the mention of 'over a hundred people,' everyone fell silent. Surely, SPF wouldn't all be 100 people, and some would be other Troops commanded by Taira Jiro, but the Number 'one hundred' carried a certain Pressure.</p>
+<p>As for us, with Konoe Akina excluded from here, there are 6 to 7 people here. To face a hundred people, each person would have to kill 15.</p>
+<p>But the Pressure of the Numbers was just Pressure, and looking at the individuals among us, even if the Opponent numbered over 100, there was I, and Shimokawabe Airen, one of the future Three Swordsmen, Alik, the infamous mid-Boss from the Megacorp Youngest Son, Otagi Yuka, who fought me equally in New York, was also there, and Saionji Diana and Eve, who were no less capable, were present.</p>
+<p>What remained was Sakagami Rena, and I would decide whether or not to include her in the Battle today after checking her Stats, so even excluding Sakagami Rena for now, our Members were formidable.</p>
+<p>「Even a hundred people, no, even two hundred people, I think we'll win?」</p>
+<p>「It's true that we'll win, but we should aim to minimize our Harm as much as possible.」</p>
+<p>When I spoke with Confidence, Otagi Yuka, as if burdened by the thought of her Friends getting hurt or dying while helping her, spoke in a way that suggested minimizing Harm.</p>
+<p>「What should I do, Liege?」</p>
+<p>「Just a moment....」</p>
+<p>Sakagami Rena looked at me with a Gaze that wanted to help, so I fumbled in my Pocket and took out the Ruins' Glasses. In fact, if Sakagami Rena was a Ninja specialized only in Cheopbo or Information, participating in Battle would be close to suicide, so to avoid Harm, I absolutely had to check her Information.</p>
+<p>「What is that?」</p>
+<p>「Ah, this is Ryuta-nim's Ruins' Glasses that he's sweeping up from the black market, isn't it?」</p>
+<p>「Ruins' Glasses? That's unique.」</p>
+<p>When I suddenly took out Glasses of a unique Appearance, everyone's Gaze was focused.</p>
+<p>「This is a Relic that can tell you the Opponent's Ability in Numbers.」</p>
+<p>Everyone's Gaze was focused, so I had no choice but to Answer. Naturally, they wouldn't have thought such a Game-like Item existed, so they looked at me with distrustful Gazes. I ignored those Gazes, put on the Ruins' Glasses, and looked at Sakagami Rena.</p>
+<p>◆Name: Sakagami Rena (坂上 令梛) Lv10</p>
+<p>Power:4 Agility:15 Stamina:8 Resistance:4 Recovery:4 Sensitive Nerves:15 Appearance:15</p>
+<p>Intelligence:7 Knowledge:6 Concentration:8 Will:9 Creativity:2 Charm/Allure:12 Judgment:14</p>
+<p>Luck:8 Magic Power:12</p>
+<p>◆Sakagami-ryu Ninjutsu (坂上流 忍術) (Narrative+ Ninjutsu Lv14) ◆Koppō Koto-ryu (Bone Method Tiger Defeat Style) (Narrative + Fist Technique Lv9) ◆Sakagami-ryu Bedroom Arts (坂上流 房中術) (Narrative Bedroom Arts Lv5) ◆Linguistics (General Skill Lv11) ◆Marksmanship (General Skill Lv8) ◆Investigation (General Skill Lv15)</p>
+<p>◇Bloodline - Sakagami (血統-坂上) [Unique Bloodline]: According to the Sakagami Ninja bloodline passed down through generations, the skill coefficient inherited from the Sakagami Family (坂上家) is increased by 1.3 times. Grants the special stat, Magic Power.</p>
+<p>◆Owl's Eye[Rare+ Trait]: Can see through Darkness and can see far distances when concentrating the Mind.</p>
+<p>◆Ninjutsu Genius[Growth-type Narrative Trait]: Can easily learn Ninjutsu. Depending on Effort, the Trait can change to Master of Ninjutsu/Adult/Superhuman.</p>
+<p>◆Night Stalker[Narrative Trait]: Can conceal one's presence. Reduces the Probability of being detected when concealed. Critical hit Probability significantly increases during Ambush.</p>
+<p>◆Detective's Eye[Rare+ Trait]: Concentration, Judgment, and Luck increase when investigating something. The Probability of discovering new facts during investigation increases.</p>
+<p>◆Talent for Dunjutsu (遁術) [Unique+ Trait]: A talent for learning Dunjutsu, which is a part of Ninjutsu. Increases the efficiency of Dunjutsu and reduces Magic Power consumption. Increases Magic Power by 3 and maximum Magic Power by 2.</p>
+<p>「...Quite good, isn't it?」 Her Body Stats gave the impression of an Assassin-type, with high Agility and Sensitive Nerves, and surprisingly, her Mental Stats showed high Judgment, making her a Style that wouldn't make Mistakes during Battle or Cheopbo Missions.</p>
+<p>Her Skills, especially Ninjutsu, which could be called an all-purpose Skill, were quite high, and it seemed she hadn't neglected her Training, as almost all her Skill Levels were high. The absence of Skills like Cheopbo or Concealment was because all of them were included in Ninjutsu. That's why it was difficult to raise Ninjutsu Skill Levels, but perhaps because of her Ninjutsu Genius Trait and having gone on so many Missions that she was Held Back a Year, her Ninjutsu Level was high.</p>
+<p>As for her Traits, she had Traits that were a proper mix of Cheopbo and Battle. She had Owl's Eye, which Mimata Chieri possessed, and Ninjutsu Genius, the Ninjutsu version of Swordsmanship Genius that Saionji Diana possessed.</p>
+<p>Above all, the Talent for Dunjutsu was an essential Trait for raising a Ninja to a high-ranking Ninja, and this Talent for Dunjutsu was necessary to use Ninjutsu-related Magic. Depending on whether one had the Talent for Dunjutsu or not, it determined whether a late-game Ninja Character was used merely as an Intelligence agent or mobilized for Battle.</p>
+<p>Lastly, a Bloodline is something attached to the Descendants of Families who have continuously pursued a single path, like Ninja Families or Samurai Families, and this acts as a Trait +1, so if you recruit a Character with a Bloodline, you could see the Effect of having one more Trait even at the same Level. That means the Sakagami Family is a historically distinguished Ninja Family.</p>
+<p>Sleepy Alik</p>

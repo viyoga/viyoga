@@ -5,78 +5,80 @@ weight = 1021
 chapter = 1021
 +++
 
-<p>Perhaps because I came under the name Dante Aster, an American citizen, my Registration Process at the Airport finished quickly, allowing me to be the first to come Outside.</p>
-<p>The rest of the Party had Luggage, so I decided to go first. This was because Diana Leach said she couldn't wait long due to her schedule.</p>
-<p>As I went to the promised Place as pre-arranged, several black sedans were waiting for me. Following the guidance of a Federal Superpower Management Department employee, I got into the car parked at the very front, and Federal Superpower Management Department Deputy Director Diana Leach was inside. As I sat next to Diana Leach, the vehicle smoothly departed.</p>
-<p>"Dante-ssi, did you arrive without any inconvenience?"</p>
-<p>"There was no inconvenience in coming. However, I also have a schedule, so being told to come without a Reason will be the last Time."</p>
-<p>As soon as I met her, I gave Diana Leach a piece of my mind. Well, I also had Cyberware Work and the fake Black Knight Matter, so I came for both, but the Federal Superpower Management Department might mistake that I would quietly come next Time, so I had to say something.</p>
-<p>"I regret that. The East Asia Liaison Officer seems to have made a Mistake. I severely rebuked and fired him through Discipline, so such a thing won't happen again."</p>
-<p>Hmm.... Should I just let it go since she's going this far? Hearing that Story, something suddenly made me curious, so I decided to ask Diana Leach something.</p>
-<p>"But if someone is fired through Discipline, what happens to the Organization's Secrets?"</p>
-<p>I asked because I thought that if someone was fired through Discipline, they might harbor a Grudge and recklessly expose the Federal Superpower Management Department's Secrets. The Exposure of the Federal Superpower Management Department's Secrets was also related to me being Black Knight, so I asked out of curiosity. Such a mishap shouldn't happen, so I had to ask in advance to understand.</p>
-<p>"It's an internal Matter, so I shouldn't actually tell you, but since we made a Mistake, I'll tell you. Since our Organization has many Sensitive Secrets, we perform memory erasure on the fired employee before processing their retirement. We give a generous retirement allowance commensurate with the memory erasure."</p>
-<p>Memory erasure, really.... The government seems worse than The MegaCorporation? Actually, in the future MegaCorporation era, they process retirement due to Death, which only requires one Bullet, rather than costly memory erasure.</p>
-<p>"For now, I'll let this one slide out of respect for your Face, Diana-ssi."</p>
-<p>Since I don't intend to antagonize the Federal Superpower Management Department yet, I decided to let it go this Time. If she understood my Warning, she wouldn't call me recklessly in the future.</p>
-<p>"Thank you for understanding. Now, let's talk about Work."</p>
-<p>Diana Leach immediately took out her tablet. Seeing that she was trying to talk about Work without any small talk, it seemed quite urgent. Being Mixed Blood and having dark Skin, I hadn't noticed, but looking closely, her Dark Circles were quite prominent, and her Eyes were bloodshot. She must really have a lot of Work.</p>
-<p>"Is the Work urgent?"</p>
-<p>"Ah, this Work isn't urgent, but the Situation in the USA is unusual right now. Various superpower terrorist groups are rampant, and the laws regarding them are insufficient, so we are short-staffed. I have to entrust this New York Matter to Dante-nim and go do other Work."</p>
-<p>Ah, I see. It seemed she had other Work besides New York's, and because she was busy, she had to quickly hand it over to me and leave.</p>
-<p>"First, these are the photos of Behemoth and Whisper, so to speak."</p>
-<p>Two photos appeared on the tablet screen, with Information flowing below them. First, Behemoth was a Person I knew. Since he had that Appearance even in The MegaCorporation era, my thoughts weren't wrong.</p>
-<p>His name was Jacob Sterling, and he was a middle Boss-level figure in Superior, led by Famine. He was a huge White Person with short, swept-up blonde Hair and blue Eyes, and he had an annoying Ability where his defense and power increased the more he was hit.</p>
-<p>By the way, if he still has this Appearance, does he not Age? Or did he eat some youth-preserving fruit? Or perhaps the Trait itself has an immortality option....</p>
-<p>However, as I mentioned before, Whisper was an unfamiliar Person. There was no Person named Whisper among Superior's Executives in the future timeline, so she probably died before the sequel era arrived. Or she left Superior.</p>
-<p>Judging by her very slender Figure, she appeared to be a Woman, but even the Federal Superpower Management Department seemed unable to obtain a bare face Photo of her. She was wearing a steel Mask that covered her Face, so it seemed impossible to recognize her.</p>
-<p>"How can we recognize this Woman named Whisper?"</p>
-<p>"It will be easy to recognize her. She continuously wears the Mask in this Photo."</p>
-<p>"Ah...!"</p>
-<p>If she wears a Mask, it would be easier to find her, wouldn't it? If she's wearing a steel Mask, she'll definitely stand out. Should I first acknowledge this and then find out Information about this Woman named Whisper?</p>
-<p>As expected of someone affiliated with the superpower supremacist group Superior, this Woman also had superpowers. A Voice that gives various debuffs? True to a Villain named Whisper, meaning 'to whisper', she seemed to be a superpower user who could produce some Effect with her Voice.</p>
-<p>Voice-based superpowers were quite difficult to deal with because their range was wide and they were hard to avoid. Moreover, there was Information that she was good with Guns, so she could act as both a debuffer and a ranged attacker, making her quite difficult to deal with.</p>
-<p>By the way, their Party seemed well-composed. Behemoth, who was responsible for tanking and the Vanguard, and Whisper, who was a formidable ranged debuffer and ranged support with her Voice, seemed to have a very good combination.</p>
-<p>"Thank you for the Information."</p>
-<p>"You're welcome. I'll attach all the Information in an email so you can see it."</p>
-<p>As I, who had confirmed the Information, nodded my Head, Diana Leach operated her tablet and sent an email.</p>
-<p>"What is their Position right now?"</p>
-<p>"I don't know their exact Position. Superior's location is in the southern USA, so they are either on their way to New York or have just arrived. Both of them have such unique appearances that they can't take an Airplane."</p>
-<p>That means we still have Time to prepare. But I naturally got into the car, so where are we going? Well, it's probably our accommodation and a Safe House where some Federal Superpower Management Department agents are, but I was still curious where we were going.</p>
-<p>"But where are we going?"</p>
-<p>"New York's base camp. You'll like it. We've just arrived, so let's get out."</p>
-<p>As I got out of the car, I saw a brick building about 5 floors high. It looked like a typical apartment at first glance, but perhaps the entire 5 floors were the Federal Superpower Management Department's Safe House.</p>
-<p>"Is this it?"</p>
-<p>As I asked with an Expression that implied, 'What is there to like?', Diana Leach chuckled, "Uhoot."</p>
-<p>"Yes. If you go inside, you'll like it."</p>
-<p>I entered the main gate of the red brick building as Diana Leach said. Upon opening the door and entering, there was a Security Guard room at the 1st floor Entrance, and rooms were divided like an apartment, but Diana told me to go to the 2nd floor.</p>
-<p>As I walked up the stairs to the 2nd floor, there was a fairly spacious Lobby-like Place. Rather than a Lobby.... It felt like an Adults' Playground? There was a long sofa, a large screen, a table tennis court, and even a bar displaying Alcohol.</p>
-<p>"Huh? Ryuta-jji?!"</p>
-<p>The first to greet me was Seizawa Shii, who was holding a table tennis paddle. At Seizawa Shii's shout, Seizawa Shii's table tennis opponent turned around, and it was Otagi Yuka.</p>
-<p>"Ryuta-ssi~! You came quickly?"</p>
-<p>I had told them I was going to the USA, but why were these Kids in the Federal Superpower Management Department's Safe House? As I looked puzzled, Diana Leach smiled and said.</p>
-<p>"Since you are a Party anyway, there was no need to host you separately, so we brought you to our Safe House."</p>
-<p>The Federal Superpower Management Department also seemed to have considered Sabu Fujigasaki Rinka's side. Indeed, everyone except the Gwonmaeng People, Kujo Kina's side, and Genbaki Priest were under my influence, so it was more comfortable for them to be together.</p>
-<p>"Thank you for your consideration."</p>
-<p>"You're welcome. Our employees have set up a camp in Room 103 on the 1st floor, so you can get Information there.... I have to go now. Problems have arisen in other cities too. Our employees will soon bring Dante-nim's Party here."</p>
-<p>As she was in charge of superpower incidents across the USA, she seemed very busy. Diana Leach shook my Hand and hurriedly took the elevator. Seeing the elevator go up to the upper floor, it seemed she was taking a Helicopter or something.</p>
-<p>"What about the other Kids? And what's Dante?"</p>
-<p>Seizawa Shii, who was listening nearby, asked curiously.</p>
-<p>"Dante is my American name. The US government gave me an American Identification Card. Since I have American Status, my entry Registration Process finished quickly, so I came here quickly."</p>
-<p>"Is that so? Dante? I like Ryuta better...!"</p>
-<p>"I also think Ryuta-ssi is better than Dante-ssi."</p>
-<p>"Just call me Ryuta. It's not like anyone is watching."</p>
-<p>Everyone had called me Ryuta for a long Time, so the American name Dante didn't seem to appeal to them. Since I didn't care what they called me, I told them to call me whatever they wanted, then looked around.</p>
-<p>"Why is it so quiet? What about the rest of the People?"</p>
-<p>It was strangely quiet, so I looked around, and there were no Gwonmaeng People, Genbaki, or Fujigasaki Rinka in the building.</p>
-<p>"It's late, so everyone went to Work. Back Alley search."</p>
-<p>"Ah. I see."</p>
-<p>Coming to New York by Airplane late at night from Japan, it was quite late in New York too. I couldn't calculate the Time difference well, but since it was late, everyone seemed to be roaming the Back Alleys to meet Black Knight.</p>
-<p>"What about you two?"</p>
-<p>"Today is our day off... rather, we're resting a bit because we haven't had any Achievements."</p>
-<p>"I worked hard, but today is a Rest day to specifically let Rieko rest."</p>
-<p>They were roaming the night streets of New York every night, but it would be a bit tiresome if there were no particular Achievements. Otagi Yuka came here to train Seiwa Rieko, so it seemed she had worked hard and given Seiwa Rieko a day of Rest.</p>
-<p>Gojoy-nim requested Funeral Yukiko Kimono and normal version~!</p>
-<p>Kimono</p>
-<p>Normal</p>
-<p>Kkiyot.... The illustration requested by Chomisaemeonji-nim couldn't be generated because the AI program suddenly broke down.... I will upload it as soon as it's fixed ㅠㅠ</p>
+<p>In fact, there was no reason for me to come to the auction house. It was something that could have been handled by simply sending anyone to check, but there was still a reason I participated.</p>
+<p>The first was to immediately make decisions and resolve the Situation if anything were to happen at the auction house, and the second was precisely because of the auction itself.</p>
+<p>Everyone would probably be saving their Money for the fragment of omniscience, so I thought I could buy the remaining auction items a little cheaper than usual. No matter that the fragment of omniscience was the main item, I was convinced that rare items would appear because it was an AmSang auction, which wasn't held often.</p>
+<p>When Fujigasaki Rinka Sabu's party went to the USA, I gave Gifts to those Members, but I hadn't given Gifts to the remaining Members who were in Japan at that time, so I had to prepare Gifts for them. And since good items might appear, I intended to participate in the auction, killing two birds with one stone.</p>
+<p>Previously, the large bounty I earned after capturing Gaoshang (高翔), the Head of the Red Revolution Front, had all been withdrawn and diversified into various investments, significantly reducing my AmSang Points. However, profits from the Robot Pet were steadily coming in as AmSang Points, and I had deposited a certain amount of money to participate in this auction, so I had enough funds to take part.</p>
+<p>-The item to adorn the beginning of the auction is precisely...!</p>
+<p>As soon as Eve's Words ended, a spotlight shone in the middle of the auction house, revealing the item. It was a thick, ancient book.</p>
+<p>Surely not.... The fragment of omniscience wouldn't appear from the very beginning, would it?</p>
+<p>-A Grimoire....</p>
+<p>Along with the word "Grimoire," I heard an Auditory Hallucination as if everyone was listening to Liz's Explanation and swallowing their saliva.</p>
+<p>-It is the Grimoire, Aetherbound Chronicle!</p>
+<p>It wasn't the fragment of omniscience. Just needlessly making people's hearts tense.</p>
+<p>A Grimoire wasn't originally an item worthy of adorning the first slot in an auction. However, almost all those participating in this auction were collectors of magic-related items or similar goods, so it seemed they had brought out many magic-related items.</p>
+<p>I focused through the window on the Grimoire, Aetherbound Chronicle, that had appeared in the auction house. Then, a translucent Info Window appeared before my Eyes.</p>
+<p>◆Grimoire - Aetherbound Chronicle [Unique Grimoire / Magic tool]</p>
+<p>A Grimoire written by an unknown sage, containing the history and flow of magic, and several spells personally created by the unknown sage lie dormant within.</p>
+<p>●Upon thorough reading: Knowledge+1, 10% decrease in all magic consumption, 10% increase in magic power.</p>
+<p>●When possessed: 10% decrease in all magic activation speed, 10% decrease in all magic consumption.</p>
+<p>●Spells , first of the tongue , , can be acquired.</p>
+<p>Oh...! I wondered if it was only a Grimoire in name, but it was a genuine Magic Tome. Especially in magic, Aether is an Attribute symbolizing non-Attribute, so its versatility was excellent.</p>
+<p>Perhaps because it had the name Aether, it came with quite good options that affected all magic, and if both the thorough reading and possession options were combined, a sorcerer could achieve significantly high efficiency.</p>
+<p>However, because it was a kind of history book containing the history and flow of magic, the number of spells included in the book was not many compared to its Thickness, to be called a Grimoire.</p>
+<p>Even low-grade Grimoires of similar Thickness usually include five spells, so four spells seemed a bit few, but since it was a unique-grade Magic Tome, the Power of the spells probably wouldn't be bad.</p>
+<p>Thinking it would be good to give to Han Yu-gyeong, I immediately participated in the bidding.</p>
+<p>-400,000 Points! Any more? Yes, 450,000 Points!! No 500,000 Points?!</p>
+<p>As expected, perhaps because of the item called the fragment of truth, the bidding Price didn't rise particularly quickly, even though it was the first item. Even so, those who thought this Grimoire was not ordinary persistently followed.</p>
+<p>However, the bidders here were either those who had to save Money because they needed to participate in the fragment of truth auction, or small fry like me who had given up on the fragment of truth and were aiming for other items, so they couldn't spend a lot of Money.</p>
+<p>So, the Aetherbound Chronicle was won at 1,320,000 Points, which I had bid. For a unique-grade Grimoire, 1.8 billion Korean Won was quite a cheap purchase.</p>
+<p>-1,320,000 Points! Sold! The winning auction item will be delivered to your cabin after the auction ends!</p>
+<p>In fact, since the only ways to obtain Grimoires were through auctions, antique shops, or inheritance, their Prices weren't particularly fixed.</p>
+<p>However, as just mentioned, the Methods of obtaining them were limited, and the competition among Magicians and sorcerers was very intense, so that unfixed Price was not easy. Thus, buying it for 1,300,000 Points could be said to be a very cheap acquisition.</p>
+<p>"Did you participate in the auction from the very first item?"</p>
+<p>"Yes, originally, the first auction usually has quite good items. But today, because of the fragment of truth, I didn't think many People would spend Money on the first auction, so I bought it. Kirie too, and the others too, if there's anything you want, tell me. I'll buy one for each of you."</p>
+<p>When Kurayamada Kirie asked, I explained the Reason, and when I said I would even buy an item for each of them, the Atmosphere became heated.</p>
+<p>The first auction was a Grimoire, which was outside their Interest, so they were just looking around the Room or ordering drinks via Room Service, but now that I said I would buy for them, they were intently watching the Screen.</p>
+<p>-The second item is precisely this~!</p>
+<p>The second item was a necklace. It was a necklace from a Victorian-era Noble family, and in this auction, a minority of general collectors competitively participated and it was sold at a quite high Price.</p>
+<p>As the third and fourth items passed, and the sixth item appeared, Sawayanagi Azuma raised her Hand.</p>
+<p>"I like that item, Investor-nim!"</p>
+<p>The item Sawayanagi Azuma chose was a necklace with a miniature hourglass attached, and the sand inside the hourglass was finely crafted Gold powder.</p>
+<p>Even without that, I was already thinking of recommending it to Sawayanagi Azuma after seeing the options, but Sawayanagi Azuma also seemed to have felt something special about it.</p>
+<p>◆Necklace Containing Time [Narrative+ Accessory / Necklace]</p>
+<p>A necklace made in an ancient desert Kingdom. The Authority of time is imbued within. However, if worn by a Person without related Abilities, there is no Effect.</p>
+<p>Time (0/3600)</p>
+<p>●Stores 10 seconds of time daily. By consuming the stored time, the wearer's time-based Ability can be Forcibly activated.</p>
+<p>●Once every Third Day, by flipping the hourglass, could be used.</p>
+<p>Considering its Narrative grade, it was a bit regrettable that it only had two options, but both of those options were overpowered.</p>
+<p>Time-based Abilities mostly couldn't be used by the User as intended, but the possibility of Forced activation meant that Sawayanagi Azuma could activate precognition at her desired Timing.</p>
+<p>The second, Time Field, was an overpowered Ability that could deploy a field spanning 10 meters around the caster. Inside that field, the caster could move at normal speed, but Enemies who entered it would experience slowed time.</p>
+<p>Although it could only be used once every Third Day, this option could also be said to be very good because it could change the Battle Situation while the Time Field was active.</p>
+<p>Even Sawayanagi Azuma, who didn't know the options, seemed to have asked me to buy the Necklace Containing Time, perhaps because something about it Stimulated her.</p>
+<p>"I understand. I'll bid."</p>
+<p>To others, it was just a Gold necklace with a slightly unique Design, so it could be purchased at the quite cheap Price of 100,000 Points.</p>
+<p>To collectors, it had no particular history Value, and it seemed there were no Ability Users among Magicians or sorcerers who could discern the "time" option, so many People didn't bid.</p>
+<p>"Thank you! Investor-nim!"</p>
+<p>As soon as the necklace was sold, Sawayanagi Azuma hopped and jumped, delighted like a Child. Won't she be even happier when I tell her the options later?</p>
+<p>Among the auction items I bought some of and let the rest pass, there was also a quite welcome item: an Order ticket to custom-order a Sword from Ichimonji, the premium sword company created in collaboration by Hatake Investment Company and Blacksmith Ichimonji Harugoro.</p>
+<p>Ichimonji too was gradually gaining Fame as it appeared several times in AmSang's auctions, and because of that, its Business was doing quite well.</p>
+<p>In this auction, it was sold for a whopping 300,000 Dollars, and it seemed to have gained quite a few Points in the Aspect that the orderer could make custom Orders as they wished.</p>
+<p>"I wish you'd buy this for me."</p>
+<p>This time, Kurayamada Kirie spoke. This auction item was just a Bracelet made by stringing together radiant black Orbs in a Rectangle shape, and as expected, like the necklace Sawayanagi Azuma chose just now, it was a perfectly fitting item for Kurayamada Kirie.</p>
+<p>◆Bracelet Embodying Space [Narrative+ Accessory / Bracelet]</p>
+<p>A bracelet made in an ancient desert Kingdom. The Authority of space is imbued within. However, if worn by a Person without related Abilities, there is no Effect.</p>
+<p>●If one possesses a Space Ability, the Effect of that Ability is enhanced by 0.5 Stage.</p>
+<p>●Once a week, is activated, limited to Ambush or unblockable attacks.</p>
+<p>As expected, like Sawayanagi Azuma's, it was an item from an ancient desert Kingdom. Probably, a grave robber had looted an item from a certain set of Ruins and handed it over to AmSang to sell.</p>
+<p>As time and space Abilities are precious Abilities often bound together, it wasn't strange that two items from the same Ruins appeared together in the auction.</p>
+<p>As expected, like the necklace, the options were few, but its Ability was quite good. The first option, 0.5 Stage enhancement, meant, for example, raising a Narrative Ability to a Narrative+ Ability. In Kurayamada Kirie's case, since she has Subspace Ability, if that Ability were enhanced, the Size of the Subspace would increase, or additional Effects would be attached to that space.</p>
+<p>The second option was a very useful option for Survival: Space Refraction was an Ability that made hitting attacks miss. As an option that allowed one to evade a potentially fatal blow at least once a week, it could be said to be a very good option for Kurayamada Kirie, whose Specialty was Melee Combat.</p>
+<p>Lianna Holden Auction Attendance Dress B-cut~! Originally, I made it with a Concept similar to Rabbit Jessica, but since the Dress Design was similar to other Characters, I rather changed it to a Dress without Exposure haha.</p>
+<p>Chomisaemeonji-nim requested Egyptian Queen Liz, Liz wearing Armor~!</p>
+<p>Egypt~!</p>
+<p>Armor~!</p>
+<p>Gojoy-nim requested in Chapter 23 flashback: 1. Arisu delighted after hearing Praise, and 2. Arisu grinning with the Imagination of giving birth to a Child.</p>
+<p>1.</p>
+<p>2.</p>
+<p>Illustrations creating such subtle differences as "delighted" / "grinning" are difficult to express with AI, and the Composition is limited, so I only uploaded two sheets each.</p>

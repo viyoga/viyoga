@@ -5,93 +5,77 @@ weight = 338
 chapter = 338
 +++
 
-<p>In truth, the 100,000 yen was just an excuse. An unmanageable debt had ballooned, eventually forcing Kasaoka Yuzuki to consider delivery health, but right now, she wasn't thinking about the weight of that debt.</p>
-<p>'I want to embrace this cock...!'</p>
-<p>Kasaoka Yuzuki wasn't sure if it was because Yamashiro Ryuta had been whispering hypnotically in her ear that he wanted to keep putting it in, or because the massive hard-on below was driving her crazy with friction, but she wanted to take Yamashiro Ryuta's cock into her pussy.</p>
-<p>However, she couldn't easily ask him to put it in because of what she had said earlier. So, she kept holding back until Yamashiro Ryuta offered 100,000 yen as payment for the real deal, and she thought, "Perfect!" and spread her legs.</p>
-<p>The moment Yamashiro Ryuta's glans touched Kasaoka Yuzuki's pussy lips, the thought of the 100,000 yen vanished from her mind.</p>
-<p>Suddenly, Yamashiro Ryuta's appearance caught her eye. He was incredibly muscular. The definition and size of his muscles, made even more prominent by his tanned brown skin, exuded immense masculinity, and he also possessed strikingly handsome features that seemed almost out of place on such a body. Until now, she hadn't thought he was her type, but Yamashiro Ryuta was a man who transcended preferences.</p>
-<p>"I'm going in, Yuzuki-ssi."</p>
-<p>Yamashiro Ryuta said those words and slowly began to push his cock forward. Her pussy, which hadn't accepted a man for nearly a year after being scammed in an investment scheme, rejoiced at the intrusion of a male, yet simultaneously struggled to accommodate a cock that was far larger than Kasaoka Kouki's, which it had been accustomed to, and tried to push it back.</p>
-<p>Her pussy lips stretched to their limit, and his glans scraped against the inside of her pussy as it gradually entered.</p>
-<p>'I-I can't breathe...!'</p>
-<p>Her groin felt full and constricted, and a sensation that was both pleasure and pain filled her entire body.</p>
-<p>"Haa, hng...! Hwooah! Ooh!"</p>
-<p>A clumsy moan escaped Kasaoka Yuzuki's lips against her will, and her whole body trembled, growing hotter as if her body temperature was rising.</p>
-<p>Kung!</p>
-<p>The glans, which had been slowly widening the inside of her pussy as it advanced, bumped against her cervix. In reality, such a sound wouldn't have occurred, but Kasaoka Yuzuki clearly heard a "kung" sound in her head, as if lightning had struck.</p>
-<p>Although a considerable portion of his cock's base was still outside, she had completely accepted Yamashiro Ryuta's cock into her body. Since his cock was filling Kasaoka Yuzuki's pussy, it was indeed a complete acceptance.</p>
-<p>"Hoo-uhk...!"</p>
-<p>It was different. She had never felt that her husband's cock was lacking, but now she could realize it. She knew so little. She realized that the cock she was currently embracing and her husband's cock were incomparable.</p>
-<p>Her husband's, or rather, the cocks of the men she had met while doing delivery health, and Yamashiro Ryuta's were as different as a child and an adult.</p>
-<p>"Does it feel good?"</p>
-<p>"Close your eyes, Yamashiro-ssi."</p>
-<p>When Yamashiro Ryuta's pleasant baritone tickled her ear, Kasaoka Yuzuki told Yamashiro Ryuta to close his eyes, then pulled her mask up to reveal her lips. She reached out, wrapped her arms around the back of Yamashiro Ryuta's neck, pulled his head towards her, and kissed him.</p>
-<p>Chup, tsu-up, tsohk...! Tsup!</p>
-<p>With her mouth and pussy connected simultaneously, Yamashiro Yuta and she were more closely connected than ever before. Yamashiro Ryuta felt closer than a friend, a parent, or even her husband.</p>
-<p>Yamashiro Ryuta slowly began to sway his hips, as if he had been holding back to allow her to get used to it. As soon as his cock started moving in and out, she was engulfed in a wave of immense pleasure that made it impossible to stay conscious. She barely managed to regain her senses and pull down her mask to cover her face, but she couldn't suppress her moans.</p>
-<p>"Haa, hng, hoo-aht! Haa-uhk, eu-hut, ooh-hot! Ooh...!"</p>
-<p>Once Yamashiro Ryuta's piston-like movements began, Kasaoka Yuzuki was no longer capable of even comparing it to other cocks, as she had just been doing. It was closer to saying that she couldn't think at all. She was simply accepting the waves of pleasure that crashed over her.</p>
-<p>She produced so much vaginal fluid that she was surprised, and the sound of flesh colliding grew increasingly wet and louder. At the same time, Kasaoka Yuzuki's clumsy moans also grew louder.</p>
-<p>"Ooh! Hoo-huh! Haa, hng...!"</p>
-<p>"Yuzuki-ssi's pussy feels so good."</p>
-<p>Yamashiro Ryuta's words reassured Kasaoka Yuzuki, and the pleasure she felt began to intensify. Of course, Yamashiro Ryuta's cock felt so good that she was losing her mind, but she had been worried about whether she could give him as much pleasure in return.</p>
-<p>Her self-esteem had been quite low since her husband hadn't touched her for almost a year, so when Yamashiro Ryuta said it felt good, it felt as if some kind of shackle that had been binding her was being released.</p>
-<p>###</p>
-<p>"Haa, good...! Yamashiro-ssi's cock also feels so goood...!"</p>
-<p>Ever since I told Kasaoka Yuzuki that her pussy felt good, Kasaoka Yuzuki suddenly seemed to awaken and began to cling to me, actively expressing her feelings.</p>
-<p>I don't know what's going on, but it must be a good thing, right? I had been edging for a long time, and Kasaoka Yuzuki's pussy felt so good, so I was slowly getting close to cumming, but when Kasaoka Yuzuki's reaction became even more lewd, I was literally on the verge of exploding.</p>
-<p>"Yuzuki-ssi's pussy feels so good that I'm going to cum...! Inside, I want to cum inside, Yuzuki-ssi!"</p>
-<p>"Haa-ahng, inside, insiiide, no, haa-uh! Noooo♥"</p>
-<p>No, does "no" mean yes or no? If you confuse me, I'll have no choice but to choose the option that feels good to me.</p>
-<p>"I'm cumming, Yuzuki-ssi! Please receive my semen inside you!"</p>
-<p>"Noooo♥"</p>
-<p>I pushed my cock as far as possible into Kasaoka Yuzuki's depths, pressed firmly against her cervix, and began to ejaculate. My cock swelled and shrank repeatedly, spewing out semen.</p>
-<p>Buuk! Buut! Byureureut!!</p>
-<p>"Haa-euuh! It's hot, it feels so good♥ If you cum inside, ooh-hot! I shouldn't.... This, haa-uh! Feels so goood...!"</p>
-<p>Perhaps because it was her first time having semen inside her in a long time, a tremendous amount of semen came out. It wasn't enough to fill her uterus; my semen was flowing back and lewdly soaking her pussy.</p>
-<p>When I pulled out my cock, a huge amount of semen gushed out of her pussy, staining the sheets of my bed, and when I checked the time, the 180 minutes I had booked hadn't passed yet. There's still an hour left. I can do it one more time.</p>
-<p>Kasaoka Yuzuki was lying down like a frog turned inside out, shuddering.</p>
-<p>"Yuzuki-ssi, there's still time left, so let's do it one more time."</p>
-<p>At my words, Kasaoka Yuzuki's eyes widened in surprise. "Already?" she must be thinking. Usually, men experience "post-nut clarity," but in my case, I had held back for too long to experience it now.</p>
-<p>"W-wait a moment...!"</p>
-<p>"Hehehe, I'll give you another 100,000 yen...."</p>
-<p>Kasaoka Yuzuki trembled like a herbivore caught by a predator.</p>
-<p>###</p>
-<p>"Chairman-nim, I have a report for you. This is the current status of the slush fund given to Ryuta-doryeonim. It's the money doryeonim spent up to this Saturday."</p>
-<p>Gocho Kikuhito, the eighth secretary of Taira Danjo, who oversees the St. Francisco Girls' Academy mission, politely handed the documents to Taira Danjo. Taira Danjo hmm'd and began to read the documents.</p>
-<p>"Most of it is convenience stores and restaurants. I see a coin laundry too.... But what is this 'mask delivery'? A rather large amount has been withdrawn twice."</p>
-<p>At Taira Danjo's question, Gocho Kikuhito hesitated and opened his mouth.</p>
-<p>"That is.... It's a type of prostitution business called delivery health."</p>
-<p>"You imbecile!!"</p>
-<p>At Gocho Kikuhito's answer, Taira Danjo's face turned red and he began to get angry.</p>
-<p>"I gave him the card to use for the mission...! And he's using it to buy women? Unacceptable. Kikuhito, bring me the phone!"</p>
-<p>Taira Danjo's roar echoed through the room.</p>
-<p>###</p>
-<p>After the steamy sex with Kasaoka Yuzuki ended, Kasaoka Yuzuki staggered back with trembling legs, and I took the sheets and clothes that Kasaoka Yuzuki had soiled to a nearby coin laundry.</p>
-<p>I thought there wouldn't be any coin laundries in a rich neighborhood because everyone has employees, but there were a few nearby because some parents who strongly raise their children from a young age told them to try living alone in Miyashi, which is a relatively safe city.</p>
-<p>I put the laundry in the washing machine and waited, looking at my phone. Oh, the national team soccer match between the United States and Japan is in a few days. Kazuhiro, who naturally chose the US national team, was getting a lot of attention.</p>
-<p>Recently, Kazuhiro had been exploding with potential, scoring in 10 consecutive games, so the Japanese national team coach who didn't pick Kazuhiro was getting a lot of flak.</p>
-<p>As I was sitting and reading the articles, I saw some girls who looked like students entering the laundromat to do their laundry. Since I didn't recognize any of them, they probably weren't seniors. I had roughly memorized the faces of the senior girls by now, so even if I hadn't talked to them, I could recognize their faces.</p>
-<p>I could feel the students' gazes on me as they noticed a strange man sitting in the laundromat. Geez, it's tiring to be handsome.</p>
-<p>"Oh! It's Ryuta-jji sensei!"</p>
-<p>Seizawa Shii came into the laundromat with a laundry basket full of clothes and shouted. She's energetic as always. The students in the laundromat whispered, "He's a teacher?"</p>
-<p>She wasn't always wearing her himegyaru style clothes; right now, she was wearing a plain black t-shirt and dolphin shorts. Hmm, dolphin shorts are nice.... Honestly, Seizawa Shii looked much better in those than in the princess dresses she usually wears.</p>
-<p>"Hey, Seizawa. Do you live around here?"</p>
-<p>"Yeah! Ryuta-jji sensei too?"</p>
-<p>Around here, huh. Since she's from a prestigious family, they probably provided her with a house without worrying about money. Still, it was quite surprising. Even though she's a delinquent girl, the Seizawa family is very prestigious, so it seemed like Seizawa Shii was living alone if she was coming to a coin laundry.</p>
-<p>"Yeah. Oh, it's done...!"</p>
-<p>I put the clothes and sheets in the laundry basket and looked at Seizawa Shii, asking if she was living alone. I was expecting her to be living alone, but it would be better to ask for sure.</p>
-<p>"Yeah! My family is laissez-faire."</p>
-<p>According to Seizawa Shii's information, the Seizawa family paid a lot of attention to the son who would inherit the family business, but didn't pay much attention to their daughter, who was considered an outsider after marriage, but I didn't know they were this laissez-faire.</p>
-<p>Ddiririri~!</p>
-<p>I was talking to Seizawa Shii when my phone rang, and the four letters "Danjo Grandpa" were written on the screen.</p>
-<p>"Okay, do your laundry diligently and come to school on Monday without skipping."</p>
-<p>"Okay, Ryuta-jji!"</p>
-<p>"Add 'sensei'!"</p>
-<p>"Ehh~! We've become friends~!!"</p>
-<p>I said goodbye to Seizawa Shii to answer the phone and left the laundromat to answer it. As soon as I answered, an incredibly loud shout rang in my ears.</p>
-<p>-You bastard! You're using the corporate card I gave you to buy women? Are you out of your mind?</p>
-<p>I wish this grandpa would be a little more laissez-faire.</p>
-<p>----</p>
-<p>This is Seizawa Shii made with the model I merged. The model is made quite well, so I'm satisfied hehe.</p>
+<p>After school, everyone except Alik, who was heading straight to the Cheongsim Hall to practice martial arts, and Saionji Diana, who said she was going to Cheongsim Hall today to thank Shimokawabe Airen-nim for her support request to me, headed to the club room.</p>
+<p>Of course, idol Uesonozo Karen, who was absent, and hikikomori Oofuchi Erika, whom I had never seen because she hadn't come to school yet, didn't come. It was a given that these two wouldn't come, so no students complained separately. In the first place, neither of them were club members.</p>
+<p>,It's big for 10 club members, isn't it?</p>
+<p>,The school's clubs originally accept students from junior high to high school, so there are more members than in a class. In fact, this size of club room is small scale.</p>
+<p>Konoe Akina, who became the president of the Date Experience-Meditation Club, said admiringly as she looked around the club, and I answered.</p>
+<p>Looking around, Seizawa Shii was wandering around the club room as if she was amazed, and the rest of the students were sitting in chairs at the long table.</p>
+<p>,Shii, sit down.</p>
+<p>,Neee~☆Lisa-tan!</p>
+<p>When Seizawa Shii sat down at Minamoto Lisa's words, I stood up and looked at everyone.</p>
+<p>,As you all know, I'm Yamashiro Ryuta, your homeroom teacher and club advisor. I'll let you do whatever you want with the club, and if you need anything, feel free to contact me. Decide on club rules by discussing them with each other, and don't stay up too late.</p>
+<p>Like a club advisor, I said that I wouldn't get too involved. I was too lazy to set detailed rules like club rules, and I thought that Konoe Akina and Otagi Yuka, the club president and vice president who secretly volunteered to be my helpers, would lead the club subtly as I wanted, so I thought it would be fine even if I didn't interfere directly.</p>
+<p>,As you all know, this is Konoe Akina, a classmate and club president. Please take care of me for the rest of the semester.</p>
+<p>,I'm Vice President Lisa, let's get along.</p>
+<p>When the president and vice president greeted each other, all the other female students applauded.</p>
+<p>,Actually, the name is Date Experience Club, but it's a club for friends to freely hang out, like going to cafes or theaters.</p>
+<p>,Why are you leaving out the meditation club?</p>
+<p>,Lisa-yang just named the meditation club, right?</p>
+<p>,No, I'm definitely going to do it, meditation!</p>
+<p>Konoe Akina and Minamoto Lisa, who had become a little closer after meeting separately after the student council's work yesterday, were comfortably bickering.</p>
+<p>,So, it's a club where you can hang out freely? Nice!</p>
+<p>Konoe Akina nods and answers Kujo Kina's words.</p>
+<p>,Yes, you can usually go home early or hang out with other friends, but let's set a day for club members to act together. When you go out, the advisor-sensei will accompany you as a bodyguard and as a boyfriend to match the club's name.</p>
+<p>This wasn't discussed. But it was manageable because it wasn't every day, but a few times a week. Everyone introduced me as a boyfriend, so they looked at me, and the gaze was really burdensome.</p>
+<p>,Before that.</p>
+<p>Minamoto Lisa opened her mouth after Konoe Akina finished speaking.</p>
+<p>,Since our special class is different from ordinary students, the student council has set a few conditions.</p>
+<p>Minamoto Lisa told the students the three conditions set by the student council. Everyone had heard it in the group line chat room, but it seemed like she was making it official by saying it out loud one more time.</p>
+<p>,So, we have to solve the auditorium moaning incident first.</p>
+<p>,If that's the case, I've been recording the area around the auditorium today. From before lunch to now.</p>
+<p>I added to Minamoto Lisa's words and told them that I had recorded the video. Since it's automatic recording, it's still recording now.</p>
+<p>,That's interesting! Shall we watch the recorded video?</p>
+<p>Muscle fighting girl Kujo Kina turned on the TV in the club room with excitement. I went to the mart in the afternoon and bought and installed the TV.</p>
+<p>,If you split the screen and run this file... Okay, done.</p>
+<p>Scenes of the auditorium area that I and Eve installed began to appear on the four screens. Of course, the culprit wouldn't appear right away, so it was just a boring landscape painting with no change.</p>
+<p>,Let's speed it up to 2x, no, 4x.</p>
+<p>Shido Tsubaki, who seems to know this well as a former newspaper editor, skillfully operated the remote control.</p>
+<p>,President, I know this kind of work better, so can I take command?</p>
+<p>,Yeah, sure! It's better for us to solve it quickly.</p>
+<p>At Shido Tsubaki's question, Konoe Akina made eye contact with Minamoto Lisa for a moment and then nodded and answered. As soon as Shido Tsubaki's permission was granted, she switched to newspaper editor mode in an instant and began giving instructions to each person.</p>
+<p>,Sakagami Rena, Hamahata Konoka, Naruse Shiyo, Kujo Kina, please keep watching the four divided screens. You can watch one screen each.</p>
+<p>,The rest of you, I'd like you to organize the clues you've obtained. I'd like you to check if there are any teachers on the list of teachers without alibis obtained from the student council that overlap with the teachers of the 3rd and 2nd year high school students and clubs that use the 3rd auditorium.</p>
+<p>,I'll contact the newspaper club to gather information.</p>
+<p>Shido Tsubaki quickly divides tasks among the students. Amazing, she can organize it so quickly.</p>
+<p>But Shido Tsubaki didn't call the newspaper club and looked at me. What is it? Does she have something to ask me to do?</p>
+<p>,Sensei... Please supply the students here with ice cream.</p>
+<p>Yeah, she just wanted to eat something sweet. I didn't have anything else to do, so I went to the education preparation room, took out ice cream and pudding from the refrigerator, put them in a plastic bag, and went up.</p>
+<p>,Look at this! This!</p>
+<p>While I was on the first floor for a while, Kujo Kina was making a fuss as if she had found something, and everyone was looking at the screen that Kujo Kina was pointing at.</p>
+<p>I'm curious about everything. I also approached and looked at the screen where Kujo Kina pointed. On the screen, a blurry brown-skinned man and a female student were seen walking somewhere. That somewhere was a secluded corner that the hidden camera wasn't capturing, which sparked everyone's curiosity.</p>
+<p>,Ah, that's not me.</p>
+<p>I said in embarrassment. Of course, I thought I would be suspected because of my brown skin.</p>
+<p>,Of course not. The hairstyle is different. That side has completely short hair, and sensei has blonde and somewhat long hair.</p>
+<p>Shido Tsubaki took out an ice cream from the plastic bag and answered. Shido Tsubaki said that I wasn't the culprit, and if those two are there, it's important where they go and how long they stay. They might come with a student to take something out quickly.</p>
+<p>,Kujo, what time did that brown teacher and female student go?</p>
+<p>,It was boring, so I sped it up to 32x. So... the time is now.</p>
+<p>At Kujo Kina's answer, all the female students shuddered. Everyone probably thought this. If we go to the auditorium now, can we see sex in real life? Everyone must be quite curious since they're all virgins.</p>
+<p>,Let's go right away! It's best to catch them in the act!</p>
+<p>,Kujo-ssi is right. Unless we're police, the best way to catch a criminal is to catch them in the act.</p>
+<p>However, Kujo Kina and Shido Tsubaki seemed more excited about catching the culprit. The rest just nodded unconsciously. However, only Minamoto Lisa, who had already seen a former homeroom teacher raping a student, didn't look good.</p>
+<p>,Shall we go then...?</p>
+<p>At my words, everyone gets up in a rush. And 10 people, including me, ran towards the auditorium together. A live broadcast of sex between a teacher and a student, no one would want to miss it. I was curious too.</p>
+<p>Of course, I'm curious, but if they get caught, that teacher won't be safe either. Whether they did it because they liked each other, threatened, or forced, they attacked a young lady from a prestigious family. If it's not someone like me, the result will be social annihilation.</p>
+<p>I picked up Naruse Shiyo, who was having a hard time running and panting, and ran. It was time for everyone to go home or do club activities in the club room, so there were hardly any students who saw us running.</p>
+<p>,Se, Sensei-niim...!</p>
+<p>,You're having a hard time. I'll have Kujo carry you when we come back. Just bear with it.</p>
+<p>,Y-yes...</p>
+<p>Naruse Shiyo answered in a barely audible voice at my words. I ran without falling behind and arrived at the 3rd auditorium. As the students got closer to the crime scene(?), their running speed naturally decreased, and when they arrived at the auditorium, they stopped and didn't even make a small voice.</p>
+<p>,If we make a fuss, they might notice in advance and run away. Let's be quiet and approach.</p>
+<p>Minamoto Lisa, who had already raided the scene(?) once, lowered her voice and said, and everyone nodded quietly.</p>
+<p>Everyone muffled their footsteps and headed towards the warehouse building outside the auditorium where the brown-skinned teacher and student had gone.</p>
+<p>I didn't know when I installed the camera, but the warehouse wasn't attached to the school wall, and there was some space for people to be. In the direction where the two disappeared, there was that space, and as we got closer, we could hear watery sounds and the moans of a man and a woman.</p>
+<p>-----</p>
+<p>Frail Girl Naruse Shiyo</p>
+<p>I tried to make it look frail, but I'm not sure if it feels right.</p>

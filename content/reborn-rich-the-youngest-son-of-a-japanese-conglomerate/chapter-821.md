@@ -5,86 +5,100 @@ weight = 821
 chapter = 821
 +++
 
-<p>'You, I understand now. It's difficult for me alone to accept all of your lust. It's okay for you to meet other Women, so please stop now....'</p>
-<p>Minamoto Risa, soaked in sweat, vaginal fluid, and semen all over her Body, opened her Mouth on the bed with an Expression as if begging to be saved.</p>
-<p>Naturally, I had somewhat intended this Reaction. If the Young Lady of the Minamoto Family told me what to do or not do about meeting Women, it seemed like it would become very tiring in Japan, so I didn't turn on the Holy Shaft Trait and did it six times.</p>
-<p>Minamoto Risa, who wasn't a perverted iron woman like Seizawa Shii, was naturally exhausted and could only fall off from the repeated Pleasure. And she probably felt why I met so many Women. I opened my Mouth with a Smile that Minamoto Risa would find creepy.</p>
-<p>'Still.... We have to do it one more time.'</p>
-<p>If I sent Minamoto Risa back like this, she would be completely sick and ruin the Test that would be held from tomorrow. Since Minamoto Risa wanted to go to Edo University, the school Test was also important. So, the last time, I had to turn on the Holy Shaft and have sex to help her recover.</p>
-<p>'You, wait, I said I understood...! It's okay to do it with other Women, so... wait, wait, waaaaait!!'</p>
-<p>I ignored Minamoto Risa's Scream, stiffened my Large Penis, and slowly approached the bed.</p>
-<p>One day before, in front of the special class building of St. Francis Girls' academy.</p>
-<p>'Agassi. The Chairman is looking for you.'</p>
-<p>An Elderly Person with Glasses, looking meticulous, bowed his Head to Saionji Diana. It was the butler whom she hadn't met in a long time. Saionji Diana couldn't say anything for a while after seeing the butler bowing to her.</p>
-<p>He looked meticulous, but in fact, he was a very kind butler who had served Saionji Diana's Family since she was a child. And he was the very Person who gave Saionji Diana the greatest Sense of Betrayal.</p>
-<p>When Saionji Diana's Father, Saionji Tomiaki, died in a car accident and Saionji Diana's uncle, Saionji Fusato, the second Son of the Saionji Family, became the Successor of the Saionji Family, Hamanoi Hirotatsu, that Elderly butler, was the first to distance himself as if Saionji Diana had become a plague.</p>
-<p>Saionji Diana will never forget the Words 'Agassi, don't come to me again' that Hamanoi Hirotatsu said to her.</p>
-<p>'Teacher....'</p>
-<p>'Go. It would be good to sort out what to do this time.'</p>
-<p>When Saionji Diana looked at her sponsor and Liege, Taira Ryuta, and asked, Taira Ryuta opened his Mouth with a kind Smile. Yes, before graduating, she had to come to a conclusion with her Family somehow.</p>
-<p>In fact, she should have made a Decision right after her Parents died and she was abandoned by her Family. She had been putting it off due to the shock of losing her Parents and Limbs, but now it was Time to see her Grandfather and uncle and make a Decision.</p>
-<p>Saionji Diana nodded with a determined Expression, greeted Taira Ryuta, and then got into the limousine prepared by the Saionji Family.</p>
-<p>The Saionji Family had been doing banking since the Meiji Era. Saionji Bank, which uses the Family name as it is, is also a large bank that ranks 6th among Japanese banks.</p>
-<p>Saionji Shigetsune, Saionji Diana's Grandfather and the current Chairman of the Saionji Financial Group, was a very inhuman Person.</p>
-<p>As soon as his first Son died, he immediately made his second Son the Successor and cut off support for his first Son's Daughter, so he could be said to be a cold-blooded Person who doesn't invest in things that are considered unnecessary.</p>
-<p>Since the second Son had already become the Successor, Saionji Diana, who had lost her Limbs, was abandoned because he thought she was no longer useful.</p>
-<p>'The Chairman is very pleased with this Achievement.'</p>
-<p>'....'</p>
-<p>Saionji Diana didn't open her Mouth even at the Elderly butler's Words. However, she was thinking that the incident of catching Kotowazuki was surprisingly impactful.</p>
-<p>Miyashi, where St. Francis Girls' academy, where Young Ladies of prestigious Families attend, is located, is a slightly enclosed city, so the Atmosphere was different from other regions of Japan, so she didn't know the Feelings of the Japanese people towards the serial Killer Kotowazuki well.</p>
-<p>Of course, if the Young Lady of a parent company had contributed to catching that Kotowazuki, the advertisement Effect would be enormous. That's why the Minamoto Group was the first to take the lead and publish an article.</p>
-<p>Saionji Shigetsune also thought that this incident would bring quite a lot to the Saionji Financial Group. That's why he called Saionji Diana, whom he had almost abandoned.</p>
-<p>The Saionji Family's mansion was close to St. Francis Girls' academy, so they arrived quickly. But the Atmosphere was different. Unlike before the resort Travel, when there was one Maid for minimal Management, there were many people.</p>
-<p>Many servants and Maids were busily moving around, just like the mansion before her Father and Mother died.</p>
-<p>'Does she have value...? Or....'</p>
-<p>Saionji Diana thought to herself and entered the mansion. And she headed to the office where her Grandfather Saionji Shigetsune would be waiting.</p>
-<p>The Elderly butler Hamanoi Hirotatsu just followed Saionji Diana silently, as his Words were ignored.</p>
-<p>Knock knock.</p>
-<p>Saionji Diana stood in front of the office and knocked. Then, soon, a Familiar voice was heard.</p>
-<p>'Come in.'</p>
-<p>When she opened the Door and went inside, Saionji Shigetsune was reading a Report with Glasses on. She thought her uncle Saionji Fusato would be there too, but he probably didn't want to see his Nephew's Face, so he didn't come to the mansion in Miyashi.</p>
-<p>'....'</p>
-<p>As Saionji Diana stood blankly and only looked, Saionji Shigetsune raised his Glasses and stared at Saionji Diana blankly.</p>
-<p>'Aren't you going to greet your Grandfather?'</p>
-<p>'Well. Can I call someone who abandoned his child and Granddaughter a Grandfather?'</p>
-<p>Saionji Diana answered Saionji Shigetsune's Words quietly but sharply.</p>
-<p>'Well, thinking is free.'</p>
-<p>Saionji Shigetsune was calm even though he was insulted by his Granddaughter, who said that he wasn't even a Grandfather.</p>
-<p>The fact that he couldn't feel any Emotion about the insult he had suffered was a typical Scene that showed why Saionji Diana thought her Grandfather had no human Emotions.</p>
-<p>'Anyway, you did well this time. Thanks to you, our Performance is expected to increase until next month and the month after next.'</p>
-<p>'What's coming back to me? I don't need the Maids or servants who fill the mansion. Graduation is only a month away, and even if they work for me, that doesn't seem like a Reward.'</p>
-<p>Saionji Diana said with an indifferent Expression, just like her Grandfather, at Saionji Shigetsune's Praise.</p>
-<p>'You did that to survive the serial Killer, so what are you asking me for?'</p>
-<p>'Okay. Then I'll call a reporter I know and do an Interview saying that I, the Young Lady of the Saionji Bank Group, was actually abandoned by my Family and haven't received any support for the past year. Will the expected increase in Performance next month and the month after next still be the same? Rather, it seems like we'll be labeled as a bank that doesn't take care of its Family and has no blood or Tears.'</p>
-<p>Saionji Diana said the Threat she had thought of in the limousine coming to the mansion. Saionji Shigetsune frowned slightly at Saionji Diana's Threat.</p>
-<p>Even Saionji Shigetsune, who doesn't feel any insult, felt a Threat. If he couldn't even feel a Threat, he wouldn't have become the Chairman of the Saionji Financial Group and an excellent Manager.</p>
-<p>'You've grown a lot.'</p>
-<p>'You didn't raise me, Grandfather.'</p>
-<p>'Okay, what do you want?'</p>
-<p>Saionji Shigetsune asked what she wanted as if he had lost to Saionji Diana's sharp Reaction.</p>
-<p>'I want to receive my fair share.'</p>
-<p>At Saionji Diana's Words, 'fair share,' Saionji Shigetsune muttered for a moment, 'fair share....' The Words 'fair share' that Saionji Diana said could be interpreted in various ways. Saionji Shigetsune decided to speak firmly to prevent future conflicts.</p>
-<p>'If it's about the Successor Story, it's already over.'</p>
-<p>'Who wanted to be the Successor of the Saionji Group? I want to inherit the shares and property that my Father had. This is naturally what I should receive, and please handle the inheritance tax as compensation for this incident.'</p>
-<p>The property of Saionji Tomiaki, Saionji Diana's Father, who had firmly held the position of Successor until a year ago, was by no means small.</p>
-<p>However, Saionji Shigetsune, who had taken everything away because he didn't want to hand over the group's property to Saionji Diana, who was not an Adult and was no longer the Successor, after her Parents died at the same time, pondered for a moment.</p>
-<p>In fact, it was property that he could give or not give, but he was comparing that property with the profits he would gain from this Kotowazuki incident and the damage caused by Saionji Diana's Exposure.</p>
-<p>'...Giving it is more profitable.'</p>
-<p>Saionji Shigetsune, who compared the profits like an emotionless computer, opened his Mouth.</p>
-<p>'There's a Condition.'</p>
-<p>'What Condition?'</p>
-<p>'The Condition is that you don't expose it like the Threat you made.'</p>
-<p>'Okay. At least for six months, I won't make any Remarks about the Saionji Group.'</p>
-<p>Saionji Diana twisted Saionji Shigetsune's Condition. She added a period to it. Saionji Shigetsune was thinking of preventing Saionji Diana from threatening him at any time due to Family matters, but since a period was added, he would have to be careful about her actions after six months.</p>
-<p>'Okay, I'll return the Legacy you'll receive on the Condition that you keep your Mouth shut for six months.'</p>
-<p>'Okay, it was a good deal. Shigetsune-ssi.'</p>
-<p>Saionji Diana smiled and insulted Saionji Shigetsune until the end. Saionji Diana immediately went outside as if she didn't want to be in the same Place with her Grandfather, who had abandoned his Granddaughter.</p>
-<p>'....'</p>
-<p>Saionji Shigetsune looked at the Door where his Granddaughter had left. She's a gutsy girl, Saionji Shigetsune thought.</p>
-<p>He didn't know if she had changed after being abandoned by her Family or if it was a disposition she had from the beginning, but he found it quite interesting to see his Granddaughter's new Appearance.</p>
-<p>'I may have made the wrong Choice.'</p>
-<p>Saionji Shigetsune muttered incomprehensible Words and started looking at the Report again.</p>
-<p>This is an illustration of Jinmija Yeosa wearing light sky blue lingerie doing a Footjob requested by IsebeuI-nim~!</p>
-<p>I was surprised that the last illustration came out well even though it was a very complicated Scene ㅎㅎ</p>
-<p>Liz in a military officer's Attire requested by seungj050-nim~!</p>
-<p>Kkiyoot~!</p>
+<p>「Hello.」</p>
+<p>Even though everyone's Gaze was focused on her, Urabe Konoka did not panic and came in with a soft Smile, offering a greeting.</p>
+<p>Today, instead of Miko clothing, she was wearing an orange Cardigan and a light Brown long Skirt that came down below her Knees. Unusually, she was wearing a cross necklace around her Neck like a Catholic, but she said that she wore the cross accessory as a Symbol of Lizhael, who had cross Donggong, not because she was Catholic.</p>
+<p>「Did the Story end well?」</p>
+<p>「Yeah, it just ended, and I was wondering if I should wait for you, Konoka-yang, and you just happened to come in.」</p>
+<p>At my Words, she said, 「Oh, really?」 and went to sit next to Athena Mannerheim. It seemed that she had already heard from Sakagami Rena during the Call what she had to do.</p>
+<p>「Do I just need to check if this Person has some kind of Jusul cast on them?」</p>
+<p>「Yeah, and if possible, can you Descend Lizhael and do it? I want to know exactly what the True Identity of the Power that Athena has is.」</p>
+<p>「Ah, I was going to do that too. Lizhael-nim was also curious.」</p>
+<p>It seemed that Lizhael was also curious about what the True Identity of the Power that Athena Mannerheim had was. She said that even if I didn't ask, she would Descend Urabe Konoka on her own.</p>
+<p>「Wait a Moment. Who the hell is Lizhael?」</p>
+<p>Athena Mannerheim raised her Hand and asked. Well, the Person who came to check if she had a Jusul cast on her was suddenly mentioning a Name she had never heard of and said that she would Descend, so she would be curious about what the Situation was.</p>
+<p>「Ah! I'm a Shrine Maiden. Lizhael-nim is the Name of the god I serve.」</p>
+<p>「The Name of the god that a Japanese Person Shrine Maiden serves is Lizhael...?」</p>
+<p>Urabe Konoka's Explanation made her even more puzzled. In fact, it was common for Japanese Shinto, which served many gods, to serve Foreign Country gods, but most of them were served by Japanizing their Names, so when she said that she served Lizhael, whose Name was Foreign Country, it felt like she was part of a Cult.</p>
+<p>「Wait a Moment. I'll Descend Lizhael-nim, so....」</p>
+<p>As if she was annoyed by the Explanation, Urabe Konoka stood up from her Seat and closed her Eyes. Suddenly, the air became heavy. I felt a huge Existence approaching.</p>
+<p>Otagi Yuka and Sakagami Rena were also looking at Urabe Konoka with very Intrigue Expressions because it was their first Time seeing Lizhael (although she was Descending into Urabe Konoka's Body).</p>
+<p>Paaht!</p>
+<p>When Urabe Konoka opened her Eyes, she had a cross-shaped Donggong engraved in them that humans could never have. Of course, since it was a Possession of her Body, there was no Change in her other Appearance. Her Eye Shape seemed to have changed a little. Athena Mannerheim also seemed to have withdrawn the last bit of Doubt she had when she saw Urabe Konoka's Donggong.</p>
+<p>「Ufufu, did my Partner fare well?」</p>
+<p>Urabe Konoka, no, Lizhael, slightly tugged at my Sleeve and greeted me.</p>
+<p>「Yeah, thanks to you. How's Liz?」</p>
+<p>「I'm remaking the Bracelet to give back to my Partner. It's almost finished, so just wait a little longer.」</p>
+<p>Ah, there was a Bracelet...? It was taking quite a long Time based on Lizhael's standards, so it seemed that she was putting quite a bit of effort into it. I'm quite Expectation about what Item will come out?</p>
+<p>「Hello, Lizhael-nim. I'm Otagi Yuka.」</p>
+<p>「Greetings, Lizhael-nim. I am Sakagami Rena, a Subordinate of the Lord!」</p>
+<p>「Nice to meet you, everyone. As you all know, I am Lizhael.」</p>
+<p>Otagi Yuka and Sakagami Rena also greeted Lizhael, and Lizhael also accepted their Greetings. And Lizhael turned her Body to Athena Mannerheim.</p>
+<p>「Hmm.... I see.」</p>
+<p>Lizhael muttered as she looked at Athena Mannerheim as if she knew something. And she immediately opened her Mouth and began to Explain Athena Mannerheim's Condition.</p>
+<p>「First of all, let me tell you about Athena Mannerheim's Condition. She has a memory Seal and a Disturbance Jusul cast on her. She sealed her memories with pure Jusul, not the Abyss. If she had cast the Jusul based on the Abyss, the Jusul would have been broken within a few Months because of the Aura that this Kid has....」</p>
+<p>It seemed that Athena Mannerheim's memories had a Jusul cast on them, as she had worried. The Person who had the Jusul cast on them felt something strange, so the Probability of it being cast was quite high, but it seemed quite shocking to hear it directly from Lizhael, who had Descended.</p>
+<p>「Is there really a Jusul cast on me?」</p>
+<p>「I do not speak falsehoods. If you want, I can undo the Jusul, but you may receive a big shock as the sealed memories are released. Is that okay?」</p>
+<p>「Yes, please release it. I want to know the Truth of that day.」</p>
+<p>Despite Lizhael's Warning, Athena Mannerheim nodded with a determined Expression.</p>
+<p>「If you're prepared....」</p>
+<p>Lizhael, who saw Athena Mannerheim's Expression, nodded and placed her Hand on Athena Mannerheim's Head.</p>
+<p>「äiti(mom)?」</p>
+<p>I called mom, but there was no answer.</p>
+<p>「isä(dad)?」</p>
+<p>I called dad, but there was no answer.</p>
+<p>What the young child found in her Parents' Room was the cold corpse of her Parents.</p>
+<p>And what she found in front of the corpse was a man with raised eyebrows, blood dripping from his fist, Takakusaki Gengo.</p>
+<p>Athena Mannerheim was confused and scared because of the faint backlight of the white night shining through the window, the blood flowing from her Parents' corpse, and the Blood Scent she smelled for the first Time.</p>
+<p>「Did you.... kill my mom and dad?」</p>
+<p>Takakusaki Gengo did not answer Athena Mannerheim's Question. He was just standing still, looking at Athena Mannerheim.</p>
+<p>「You saw something you shouldn't have seen. Sleep for a while.」</p>
+<p>Takakusaki Gengo stamped his index Finger, which had a black Aura swirling around it, on the forehead of young Athena Mannerheim. And Athena Mannerheim's Field of Vision darkened.</p>
+<p>A akmong that was almost similar to the akmong she had been having. But Athena Mannerheim knew that this was not a akmong, but the Truth.</p>
+<p>When she opened her Eyes again, there were several people looking at her. An Elderly Person with Dark Circles that came down to his Cheeks was smiling at her.</p>
+<p>「Keuheuheuh...! I'll erase your bad memories. If I touch you well, you'll become a good Kid. In just a Moment, you'll become Gengo's good Daughter.</p>
+<p>At that Time, she couldn't understand the Japanese Person language, but she could feel the unpleasant and ominous Atmosphere. Athena Mannerheim, who felt that he was trying to do Harm to her, struggled, but she couldn't stop the Elderly Person's rough Touch.</p>
+<p>When the Elderly Person's Touch reached her, Athena Mannerheim lost Consciousness again.</p>
+<p>When she opened her Eyes again, Takakusaki Gengo was standing in front of her. Takakusaki Gengo smiled as he looked at Athena Mannerheim.</p>
+<p>「From today onwards, your Name is Takakusaki Athena. I am Takakusaki Gengo, your Father.」</p>
+<p>From that day on, Athena Mannerheim became Takakusaki Gengo's Daughter, Takakusaki Athena.</p>
+<p>The Moment Lizhael put her Hand on her Head, something like black Smoke escaped from Athena Mannerheim's forehead. And Athena Mannerheim collapsed.</p>
+<p>Otagi Yuka, who was standing behind her, supported Athena Mannerheim so that she wouldn't roll on the Ground.</p>
+<p>「How long will she be Faint?」</p>
+<p>「She'll wake up soon.」</p>
+<p>Lizhael, who was not in a Danger Situation, smiled softly and sat down in her Seat in response to Otagi Yuka's Question.</p>
+<p>「If she were a Layperson, she would be Faint for a week due to the Shock of the Seal being released, but that Kid will wake up sooner than you think thanks to her trained Muin and her innate Ability.」</p>
+<p>As Lizhael said, as soon as Lizhael finished speaking, 「Eueum...!」 Athena Mannerheim opened her Eyes.</p>
+<p>「Ah...! Ah...! Nooooo!!」</p>
+<p>And she began to sob. When everyone looked at Lizhael as if asking what was going on, Lizhael opened her Mouth with a calm Attitude as if it was nothing.</p>
+<p>「Over Time, memories fade and the Pain that memories give also diminishes. But because of the Jusul of memory Seal, that Kid's memories feel like vivid memories that happened just a few seconds ago. From that Kid's perspective, she is feeling the same Pain as if she had lost her Parents a few Minutes ago.」</p>
+<p>Ah...! That's what it was. That's why she was crying like that. If she felt like she had lost both of her Parents a few Minutes ago, it was natural for her to cry like that. We watched Athena Mannerheim grieve with slightly pitiful Eyes.</p>
+<p>「...Thank you for waiting. And Lizhael-nim, thank you for restoring my memories.」</p>
+<p>Athena Mannerheim, who stopped crying and gathered her Emotions to some extent, thanked us and Lizhael with reddened Eyes.</p>
+<p>「Now that you seem to have gathered yourself a bit, I will Explain the Power that Athena Mannerheim has. The white Aura that Athena Mannerheim has is the Power of the Outer God, the Unfading White Light. However, it seems that the Power was received from the Existence that originated from the Unfading White Light, not the Unfading White Light itself, the White Night Light Dragon. It's a similar feeling to the Relationship between the Abyss and the Abyss' Daughter.」</p>
+<p>Aha, the White Night Light Dragon also seemed to be an Existence that originated from the Abyss, like the Abyss' Daughter in the past.</p>
+<p>So, to summarize, Athena Mannerheim received Power from an Existence called the White Night Light Dragon, and Takakusaki Gengo found out about it, so he killed her Parents and Kidnapping her.</p>
+<p>「I have never met an Existence called the White Night Light Dragon....」</p>
+<p>Athena Mannerheim said with a puzzled Expression. Athena Mannerheim seemed unable to believe that a Transcendental Being she had never met had given her Power.</p>
+<p>「I heard that the Mannerheim Family is a Noble Family. If so, there must be someone among your Ancestor who had a Relationship with the White Night Light Dragon, whether it was a contract or something. That's why some of their descendants are born with the Power of the White Light of the White Night Light Dragon.」</p>
+<p>It was a plausible Story. Athena Mannerheim also nodded as if she understood Lizhael's Words.</p>
+<p>「So, you're saying that I was born with this Power because of my Ancestor's contract or something, not because of me.」</p>
+<p>「I am not an omniscient Existence, so I am not sure. But I wouldn't be wrong.」</p>
+<p>Lizhael, who knew that her Work here was over, stood up from her Seat. And she approached me.</p>
+<p>「It seems that my Work here is over. It would be a Burden on Konoka to continue Descending, so I will return now. Partner, I will come back next Time to return your Bracelet.」</p>
+<p>Jjok.</p>
+<p>Lizhael lightly kissed my Lips and then closed her Eyes. When she opened her Eyes again, Urabe Konoka, who had the round Donggong of an ordinary Person, was standing there with a slightly reddened Face.</p>
+<p>「If you kiss me and disappear, everyone's Gaze will be focused on me, Lizhael-nim...!」</p>
+<p>Urabe Konoka muttered as if she was a little embarrassed by the Gaze that was focused on her because of the last Kiss.</p>
+<p>Urabe Konoka B-cut!</p>
+<p>The Eye Shape is different ㅎㅎ</p>
+<p>Naruse Shiyo belly dancer + breast Covering requested by Gojoy-nim!</p>
+<p>Starting with the belly dancer~!</p>
+<p>Breast Covering~!</p>
+<p>Liz, Lisa Pantyhose wearing breast Covering requested by seungj050-nim~!</p>
+<p>Starting with Lisa-ttang</p>
+<p>Liz</p>
+<p>Family Teacher Liz Pantyhose breast Covering requested by AbsolutelyNonRefundable-nim...!</p>
+<p>Family Teacher~!</p>
+<p>The old model doesn't listen well, so there aren't many that succeeded ㅠㅠ</p>

@@ -5,84 +5,94 @@ weight = 456
 chapter = 456
 +++
 
-<p>Otagi Yuka took out the golden sword she stole from the New York Museum and pointed it at Malik Lieberman. Seeing Malik Lieberman, the image of her nanny collapsing flashed through her mind. Her anger grew, and Otagi Yuka's pupils inside the helmet split vertically, beginning to glow dangerously.</p>
-<p>"Eum...!"</p>
-<p>Malik Lieberman also quietly drew the claymore he had been carrying on his back. The claymore, made by reforging silver and mithril together, reflected a dangerous light. It was a famous sword that had beheaded countless vampires.</p>
-<p>"Did you use that sword to kill my nanny...!"</p>
-<p>"Nanny? I don't know about that. I only killed a few parasites who betrayed humans by siding with vampires."</p>
-<p>Otagi Yuka's anger exploded at Malik Lieberman's words calling her dead nanny a parasite. As her blood boiled, the blade of the golden sword was dyed blood-red and turned crimson. And she disappeared as if teleporting, appearing diagonally behind Malik Lieberman.</p>
-<p>Kwaang!!</p>
-<p>Malik Lieberman, who blocked the sword swung by Otagi Yuka with his claymore, couldn't withstand the tremendous force and was thrown into the Shinto shrine building, smashing through the shrine's doors and furnishings.</p>
-<p>'That's a tremendous power. It seems like taking care of her now is the right choice after all.'</p>
-<p>Malik Lieberman didn't go outside but instead entered the Shinto shrine building. When Otagi Yuka entered the shrine to chase Malik Lieberman, the silver bomb that Malik Lieberman had set up at the entrance exploded.</p>
-<p>"Kyaaak!"</p>
-<p>Fortunately for Otagi Yuka, the cyber suit and helmet she was wearing prevented the silver fragments from piercing her body. However, the suit sustained considerable damage from being caught in the explosion.</p>
-<p>Shyuk shyuk shyuk shyuk!</p>
-<p>Malik Lieberman, holding a crossbow at the end of the long corridor, shot crossbow bolts at Otagi Yuka. Naturally, the tips of the crossbow bolts were silver. Using some kind of technique, the crossbow bolts were as fast as bullets, making them difficult to dodge.</p>
-<p>Otagi Yuka raised her golden sword, covering her body as much as possible, and advanced towards Malik Lieberman. While advancing, a crossbow bolt hit her shoulder armor, damaging it, but she was able to get closer.</p>
-<p>"Die!"</p>
-<p>Swinging the sword with one hand and using the other hand to attack by scratching with blood-infused fingernails, Malik Lieberman also began to feel dizzy.</p>
-<p>"Keuek!"</p>
-<p>Otagi Yuka's blood energy grazed Malik Lieberman's shoulder, and blood flowed. When fighting vampires with the power to control blood, one had to be extremely careful about bleeding. This was because one could be defeated by their own blood.</p>
-<p>However, the SPF's vampire hunters had magically treated mercury elixirs, so they had contaminated blood that vampires couldn't use. Rather, if vampires used the blood of vampire hunters, the contaminated blood would mix with the vampire's blood energy, causing fatal damage to the vampire. Therefore, after the mercury elixir appeared, vampire hunters could escape the fear of bleeding.</p>
-<p>"I never intended to use your dirty blood in the first place!"</p>
-<p>"I don't know who's calling who dirty. You're nothing more than a trivial creature, no different from mosquitoes or bats!"</p>
-<p>The two cursed at each other and swung their swords.</p>
-<p>Kwaaaang!!</p>
-<p>The shockwave exploded as sword and sword collided. The hanging scrolls in the shrine's corridor were torn, and the old pottery and sculptures that were decorated were broken and smashed, but Otagi Yuka and Malik Lieberman continued to clash their swords as if comparing each other's strength.</p>
-<p>One would think that Otagi Yuka, as a vampire, would be physically stronger, but Malik Lieberman had also undergone several biological modifications, so there wasn't a big difference.</p>
-<p>Rather, since Malik Lieberman had a silver and mithril alloy claymore that devoured blood energy, Otagi Yuka would be at a disadvantage in a prolonged battle because her blood energy would be burned away. Of course, unlike vampires who have regenerative abilities, Malik Lieberman had no regenerative abilities, so he was not in a very advantageous situation, as cuts and bruises appeared every time they clashed swords.</p>
-<p>"Dieee!"</p>
-<p>"You're the one who's going to die!"</p>
-<p>Continuing to clash swords as if showing off their strength was Malik Lieberman's trap. When Otagi Yuka swung her sword, Malik Lieberman jumped back at an incredible speed. And he took out two Micro Uzis from his pocket and began to shower Otagi Yuka with silver bullets. But Otagi Yuka swung her golden sword as if she had expected it.</p>
-<p>Akagamikiba Style (赤神牙式: Red God Fang Style) Chiyahankyō (千矢反鏡: Thousand Arrow Reflecting Mirror)</p>
-<p>Otagi Yuka swung the golden sword so fast that it looked like a disc. As the name Chiyahankyō, a mirror that reflects a thousand arrows, suggests, the golden mirror-like swordsmanship deflected the silver bullets back at Malik Lieberman.</p>
-<p>Seeing Otagi Yuka deflect the silver bullets, Malik Lieberman hid behind the claymore, which had a wide blade surface. The sound of ting ting ting was heard as the silver bullets bounced off the claymore, and silver bullets were embedded in the parts that he couldn't hide behind the sword. Malik Lieberman groaned and endured the reflected silver bullets.</p>
-<p>"Haaap!"</p>
-<p>Otagi Yuka thought that now, while Malik Lieberman was defending against the bullets, was her chance to defeat Malik Lieberman. So she jumped in and raised her sword to the sky to swing the golden sword. As she brought the sword down, something invisible caught on the golden sword with a thud. At that moment, Malik Lieberman, hiding behind the claymore, had a triumphant smile on his face.</p>
-<p>'Was all of this planned...?'</p>
-<p>Looking closely at the golden sword, she saw that the blade was caught on a mithril wire. She cut the mithril wire with her vampire strength, but Malik Lieberman was already aiming a shotgun at Otagi Yuka. This meant that he had prepared a wire trap in advance to induce the current situation.</p>
-<p>Taang!! Taang!! Taang!! Taang!!</p>
-<p>Malik Lieberman fired a Browning Auto-5 semi-automatic shotgun, which could be loaded with up to four rounds, in rapid succession. It was an old model made a little after World War II, a relic-like weapon, but the weapon, which had been blessed by priests and imbued with magic by the SPF headquarters' magicians, became a ferocious weapon that could grind vampires to dust, unlike its old appearance.</p>
-<p>"She was a difficult opponent...."</p>
-<p>Perhaps because there was no air movement indoors, the gun smoke was still thick. Malik Lieberman put the gun in his pocket and put the claymore in the scabbard on his back. And he went forward, cutting through the gun smoke. It was a very relaxed attitude, but no matter how powerful a vampire was, no one had ever survived being hit by four shots from a shotgun nicknamed Bat Killer. As Malik Lieberman went forward, he saw a figure collapsed in his eyes. But the figure looked strange. It was as if someone had taken off their clothes....</p>
-<p>"I would have been in big trouble if Eve-ssi hadn't included the emergency escape function...."</p>
-<p>The sound was heard almost whispering in her ear. When Malik Lieberman turned his head to look, Otagi Yuka, covered in blood in her school uniform, was standing there, having taken off her helmet and cyber suit.</p>
-<p>Otagi Yuka used the emergency escape function, which was created in case the cyber suit caught fire that was difficult to extinguish or toxic substances flowed in, to avoid the silver buckshot fired by Malik Lieberman. Of course, she couldn't avoid all the buckshot, so she was covered in blood, but she was able to save her life.</p>
-<p>"Let's end this now."</p>
-<p>Otagi Yuka, risking injury so that Malik Lieberman couldn't counterattack, began to manipulate Malik Lieberman's contaminated blood to open his wounds.</p>
-<p>"Kuaaaa!! If, if you do this, you'll die too! Is that okay with you?!"</p>
-<p>"I don't care...!"</p>
-<p>As if Malik Lieberman's words were not a lie, Otagi Yuka's blood energy was burning silver due to Malik Lieberman's blood contaminated with mercury elixir. But Otagi Yuka attacked Malik Lieberman with his own blood, as if she didn't care as long as she could get revenge.</p>
-<p>"Keueok...! Keok!"</p>
-<p>Malik Lieberman died on the spot, unable to withstand the massive bleeding. Otagi Yuka stared at Malik Lieberman's corpse with cold eyes for a while, then collapsed herself.</p>
+<p>"Did you do well on the exam?"</p>
+<p>"Ah! Why did you make it so difficult, Ryuta-jji~!"</p>
+<p>"Isn't the second foreign language exam today?"</p>
+<p>"Oh, right, hehe."</p>
+<p>Seizawa Shii said something strange for no reason, so I scolded her. The second foreign language exams, including Korean, were on Wednesday. She's probably just messing with me because she wants to play around.</p>
+<p>"It's the second time taking the exam, so I can't do badly. Actually, I did pretty well!?"</p>
+<p>There were a few students taking the same exam because there were some students who had repeated a year, including Minamoto Risa and Seizawa Shii. Seeing Seizawa Shii's words and Minamoto Risa's calm expression, it seemed like they did pretty well on the exam.</p>
+<p>"It was difficult, but it was okay."</p>
+<p>"Ryutta.... Alik, the exam was hard."</p>
+<p>Except for a few, including Alik, it seemed like the grades on the first day weren't too bad. Perhaps because they continued the study group, most of their expressions weren't bad. I didn't expect Alik to get excellent grades either. I just hoped he would get a grade that wouldn't get him stuck in an additional exam.</p>
+<p>"Okay, let's finish the gift-giving time that was interrupted this morning and go home."</p>
+<p>Both the students who hadn't received gifts and the students who had already received gifts had expectant expressions. Even if they had already received a gift, they were curious about what the other female students would receive, so they couldn't possibly look bored.</p>
+<p>First, I took out the gift for former hikikomori Oofuchi Erika. It was a pretty big box, and inside the box was one of the things in the category of VR Equipment.</p>
+<p>VR Equipment, as the name suggests, was equipment that could be used together during VR dives. Because the VR environment was so diverse, many devices came out to match it, and what I chose was a gun-shaped VR Equipment. It was said to give the feeling of real shooting when playing VR-FPS games.</p>
+<p>"Thank you, Fa... I mean, Teacher!"</p>
+<p>Oofuchi Erika received the box and bowed to me. But she keeps trying to call me Fa... and then calls me Teacher.... Surely Fa isn't Dad, right? If that's right, why is she calling me Dad?</p>
+<p>Next was Shido Tsubaki. Shido Tsubaki, as a former newspaper editor, wanted a versatile recording pen that could be used on smartphones, paper, and holograms, so I gave that to her as a gift.</p>
+<p>"Thank you, Teacher."</p>
+<p>Shido Tsubaki received the versatile recording pen, sending the probing eyes of a reporter that she hadn't withdrawn from behind her glasses from the beginning. She bowed politely, but she was sending a scary look that said she would write an article about me someday.</p>
+<p>The next in line was Urabe Konoka, and Urabe Konoka didn't exactly send a line asking me to buy her something, but as a shrine maiden who serves the Daughter of the Abyss, I couldn't be negligent.</p>
+<p>So I bought the Légion custom perfume that I had given to Eve. I thought that having a scent custom-made for oneself had something that resonated with women's hearts. Arisu and Eve both had good reactions, so it would be a good gift.</p>
+<p>"For reference, I bought the newly released custom perfume from Légion for the kids who didn't ask me to buy them anything."</p>
+<p>As I gave Urabe Konoka the perfume box, Seizawa Shii asked me what custom perfume was.</p>
+<p>"It's a custom perfume where you visit in person, have your appearance scanned, or show a photo, and Ai manufactures a perfume that suits that appearance."</p>
+<p>"Ah! I should have asked for perfume instead of a useless autographed handkerchief~!"</p>
+<p>Seizawa Shii wore a tearful expression, holding a handkerchief with autographs from several Hollywood stars. It's her own fault for choosing a strange gift to torment me. Seizawa Shii had eyes like an abandoned cat, but I didn't feel much sympathy.</p>
+<p>"I'll use it well, Teacher."</p>
+<p>Urabe Konoka took the perfume with a fairly satisfied expression. Minamoto Risa, the young lady of the Minamoto family, seemed awkward to ask for a gift, and Uenozono Karen and Konoe Akina, who didn't even know there was a gift request because they were absent, didn't choose separate gifts, so they received perfume like Urabe Konoka.</p>
+<p>"...Thank you."</p>
+<p>Minamoto Risa quietly said to me after receiving the gift. Minamoto Risa, a cool beauty, doesn't really show her feelings, but I knew because I kept watching her as my target. Right now, Minamoto Risa was happy to receive the gift. Good. If I raise her favorability little by little like this, I will be able to succeed in the mission.</p>
+<p>Uenozono Karen and Konoe Akina were also very satisfied with the gifts. Konoe Akina, who had been openly showing that she liked me, naturally liked it, and Uenozono Karen seemed happy that she was receiving a gift because she hadn't sent a gift line.</p>
+<p>"The rest, Alik, Sakagami, and Saionji, come out together."</p>
+<p>Alik, Sakagami Rena, and Saionji Diana came out with very expectant expressions. These three were students who could be said to be under me, so along with the accessories ordered from Eve, the perfume that had a good reaction just now was in the gift box.</p>
+<p>The other students might be jealous if they knew, so on the surface, they were only receiving accessories.</p>
+<p>"All three of you asked me to choose accessories, so I chose bracelets."</p>
+<p>The bracelets had a fairly stylish and simple design. It was just an item with a function that sends coordinates to my phone when the bracelet's button is pressed in an emergency, a gift containing the message that I will help you anytime.</p>
+<p>All three of them were very satisfied because I had told them about the bracelets and the perfume. It seemed like they felt very good about being treated specially, receiving two gifts when others received one.</p>
+<p>"Bracelet? Ah, I should have gotten something other than a handkerchief...!"</p>
+<p>Seizawa Shii blamed her choice and stomped her feet.</p>
 <p>###</p>
-<p>St. Francisco Academy for Girls.</p>
-<p>Disciplinary Committee Chairman Nakanoin Rina received a call from Taira Kanna in the morning. In the student council president's office, Nakanoin Rina heard an unbelievable story.</p>
-<p>St. Francisco Academy for Girls had been bombed a few times during the World War, but otherwise, it had rarely been attacked by other forces. But now, information had come in that St. Francisco Academy for Girls was going to be attacked.</p>
-<p>"What is the source of that information?"</p>
-<p>"I can't tell you that. First, inform the disciplinary committee members and have them take a defensive posture."</p>
-<p>At Taira Kanna's words, Nakanoin Rina ordered a defensive posture in the contact network that the disciplinary committee members were watching. Taira Kanna spoke as if she was sure, but nothing special happened until lunchtime. But at some point, gunshots began to be heard in the distance.</p>
-<p>"It seems like Chairman-nim's words are correct."</p>
-<p>"I guess so.... There's no way Jiro-oraboni would pass up this opportunity."</p>
-<p>After "I guess so," the words were too quiet for Nakanoin Rina to hear. The door to the student council president's office, where only the two of them were, burst open. But there was no one behind the door.</p>
-<p>'I can't see them, but someone's there...!'</p>
-<p>Nakanoin Rina pulled a jitte from her waist. Her sharp senses detected something, even though she couldn't see it.</p>
-<p>"Hide behind the pillar, Chairman!"</p>
-<p>Nakanoin Rina shouted at Taira Kanna. At that moment, flames erupted in the empty air.</p>
-<p>'A gun!'</p>
-<p>Nakanoin Rina rolled to avoid the gunfire and then threw a smoke grenade from her pocket. The smoke grenade exploded with a bang, filling the student council president's office with smoke.</p>
-<p>Nakanoin Rina stood still, holding the jitte and blending into the smoke. Nakanoin Rina could see the smoke flowing. It was definitely a human figure. Perhaps panicked by the sudden smoke grenade, they were turning their heads this way and that. Nakanoin Rina, like a ghost, cut through the smoke and approached the human figure, striking them with the jitte.</p>
-<p>Kwadeuk!</p>
-<p>Because it was a jitte with considerable weight, she heard the sound of a head breaking and blood splattering. After that, she heard the sound of someone collapsing. Nakanoin Rina struck the fallen person once more with the jitte as a confirmation kill, then looked at Taira Kanna.</p>
-<p>"It seems like they used some kind of spell. I can't see the enemies."</p>
-<p>"There should be thermal vision goggles in the disciplinary committee equipment warehouse. With those, you should be able to identify and deal with the attackers."</p>
-<p>At Taira Kanna's words, Nakanoin Rina replied. It was just a high school disciplinary committee, but the St. Francisco Academy for Girls' disciplinary committee equipment warehouse had equipment comparable to military supplies. The disciplinary committee members usually carried batons, but in an emergency, they became a terrifying mercenary unit equipped with formidable equipment.</p>
-<p>"Gather all the disciplinary committee members to the warehouse and eliminate all the attackers."</p>
-<p>"Understood. I will eliminate them all as you say, Chairman-nim."</p>
-<p>Nakanoin Rina summoned all the disciplinary committee members to eliminate the attackers.</p>
-<p>-----</p>
-<p>Bloody Yuka B-cut!</p>
-<p>Failed because it doesn't feel like a shrine at all lol</p>
-<p>Failed because it doesn't feel like a shrine and the background outside the window doesn't match either haha</p>
-<p>Yuka, not bloody!</p>
+<p>Seong Francisco Girls' Academy, where clubs are more active than any other school, had something called unapproved clubs.</p>
+<p>Unapproved clubs were clubs that couldn't get permission to establish a club at the academy because their purpose of establishment and the activities they do in the club didn't match the school's ideology, and students gathered to do activities on their own.</p>
+<p>The representative unapproved club of Seong Francisco Girls' Academy was Kurokumo (Black Spider), a secret(?) society black magic club that boasted a long history, and most of the other unapproved clubs were personal fan clubs.</p>
+<p>The recently rising unapproved clubs were the Yamashiro Ryuta-nim Appreciation Society and a strange club called Prince of the Prison.</p>
+<p>Both were fan clubs of Yamashiro Ryuta, who was appointed to Seong Francisco Girls' Academy from the second semester of this year. There was quite a commotion when Yamashiro Ryuta first came to the school.</p>
+<p>The reason was, of course, because Yamashiro Ryuta was handsome. His bleached blonde hair and brown skin gave off a decadent feeling, and he was tall and had a good body, so he was a young male teacher with nothing to fault.</p>
+<p>The adolescent students were enthusiastic about the handsome male teacher, and naturally, many fan clubs sprang up. Small fan clubs merged, and eventually, they were established as the Yamashiro Ryuta-nim Appreciation Society and the Prince of the Prison.</p>
+<p>The Yamashiro Ryuta-nim Appreciation Society was, as the name suggests, a club that quietly appreciated Yamashiro Ryuta. Yamashiro Ryuta, the homeroom teacher of the special class, was in the special class all day, so he couldn't often do the appreciation that was the purpose of the club.</p>
+<p>So it turned into a hidden camera club that took pictures of Yamashiro Ryuta coming out of the special class building during Korean class or lunchtime when he came to the cafeteria and uploaded them to the club's website.</p>
+<p>But no matter how much it was a hidden camera, quite a lot of high-quality photos were uploaded, so the number of visits to the Yamashiro Ryuta Appreciation Society's website was considerable. Every day, a number far exceeding the number of members of the club was visiting the website. It was a fairly permissive website that didn't only allow members to enter.</p>
+<p>The female student who was looking at the posts in the dark room right now was not a member of the Yamashiro Ryuta Appreciation Society either.</p>
+<p>●Post number 100545. ●Writer: Kyuryikkung.</p>
+<p>●Title: The teacher who came as a test proctor today!</p>
+<p>It's the first time I've seen him this close, and he's so handsome! I'm glad I bought a silent small camera in advance. There were people taking pictures with their smartphones openly, but isn't that too immoral?</p>
+<p>●Sasami: Ryuta-nim came in as a test proctor today, too, but I ruined the test because I was looking at his face...(ఠ ̥̆ ఠ)</p>
+<p>●Hoyoriri: Our club's virtue is to appreciate quietly, but it's vulgar to hold up smartphones like that!</p>
+<p>└●Tsubattang: So you're not going to accept the photos they upload? WWW</p>
+<p>The female student who was reading the post snorted. There was not much difference between students who took pictures openly and students who took pictures secretly. They were miserable women who dared to covet her Ryuta-oraboni without knowing their place.</p>
+<p>She reviled the posters who uploaded the photos, but she didn't forget to move her finger to click on the photo of Yamashiro Ryuta, press save as another name, and put it in her secret photo album.</p>
+<p>The female student who closed the Yamashiro Ryuta Appreciation Society site then accessed a site called Prince of the Prison. Unlike the Yamashiro Ryuta Appreciation Society, which was almost half-public, the Prince of the Prison site could only be accessed with a referral code, so it had a strong feeling of a secret elite group.</p>
+<p>The Prince of the Prison site was not accessible to non-members, but the female student was not a member of the Prince of the Prison. Because the power she had in the academy was absolute, she could get dozens or hundreds of referral codes for unapproved clubs like the Prince of the Prison if she wanted.</p>
+<p>The Prince of the Prison was a club that saw Yamashiro Ryuta as a pitiful person trapped in a prison called the special class and conspired about how to get him out of the special class. Of course, sharing photos was basic, just like the Yamashiro Ryuta Appreciation Society.</p>
+<p>The Prince of the Prison site was also becoming active because of Yamashiro Ryuta, who was the test proctor today.</p>
+<p>◆ Free the Prince...!</p>
+<p>If you feel more desire to release him after seeing him in person, give a push WWW</p>
+<p>Comments(6)</p>
+<p>└These photos should go to my photo album!</p>
+<p>└We need to get him out of prison quickly and give all the students the welfare of the Prince's face.</p>
+<p>└A picture of the Prime Minister giving a thumbs up.</p>
+<p>└Why doesn't he come to our class? Why doesn't he come to our class? Why doesn't he come to our class? Why doesn't he come to our class? Why doesn't he come to our class? Why doesn't he come to our class? Why doesn't he come to our class?</p>
+<p>└He's my dad, so no one can covet him!</p>
+<p>└Then you're my daughter? WWWW</p>
+<p>Because it was a group that even plotted school terrorism to get her Ryuta-oraboni out of the special class, the female student who was looking at the monitor right now was trying to shut down the Prince of the Prison site and arrest(?) the club's leadership. But she failed because they had considerable technical skills and were close to a cell organization, so she couldn't even find out who the leadership was.</p>
+<p>Knock knock!</p>
+<p>The sound of knocking came from outside the door, and the door opened. The person who came in saw the dark room and turned on the light. When the light was turned on, the figure of a girl looking at the computer was visible, and the girl was Taira Kanna, the student council president of Seong Francisco Girls' Academy.</p>
+<p>"Young lady, you'll hurt your eyes if you do this, so please keep the lights on."</p>
+<p>"I understand. You came because of the meal, right?"</p>
+<p>"Yes, dinner is ready."</p>
+<p>"I understand."</p>
+<p>Before turning off the computer, Taira Kanna saved the photo that was uploaded on the last post she saw and turned off the computer.</p>
+<p>'Ryuta-oraboni, I'm sorry. The photo came out too well.'</p>
+<p>Taira Kanna left the room, saying an apology that wasn't very sincere in her heart.</p>
+<p>----</p>
+<p>April Fool's Day commemorative characters made in different styles! Thank you for watching it as a parallel world ㅎㅎ</p>
+<p>Yukiko in a parallel world!</p>
+<p>Eve in a parallel world!</p>
+<p>Alik in a parallel world!</p>
+<p>Home Ec Teacher in a parallel world</p>
+<p>Han Yu-gyeong in a parallel world!</p>
+<p>Otagi Yuka in a parallel world!</p>
+<p>Taira Kanna in a parallel world.</p>

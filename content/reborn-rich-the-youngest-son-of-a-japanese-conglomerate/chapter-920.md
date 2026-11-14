@@ -5,88 +5,71 @@ weight = 920
 chapter = 920
 +++
 
-<p>Taira Kanna, Nakanoin Rina, and Muko Neika decided to move together, acting as an elite execution unit to eliminate Guardians of the Guardian Hall and high-ranking Anyaji martial monks.</p>
-<p>And Mimata Chieri's East Weapon would act as an occupation unit, pushing in many PMC troops to suppress the numerous Anyaji martial monks, while Sawayanagi Azuma's Seiryu Military Company would act as a Guardian Hall execution unit, just like Taira Kanna's group.</p>
-<p>"By the way, a PMC Boss being a Woman, can we trust that? Since both are Women, I feel like Korean Language Teacher-nim's Intention is somehow present-im."</p>
-<p>Muko Neika, who had infiltrated by crossing the west wall of the Anyaji headquarters, said to Taira Kanna, holding a pistol with a silencer. Taira Kanna and Nakanoin Rina, who had crossed the wall with her, looked at Muko Neika with an Absurd Expression.</p>
-<p>"We're all Women too."</p>
-<p>"Ah, right. Then it seems it'll be fine-im."</p>
-<p>At Nakanoin Rina's Words, Muko Neika made an 'Is that so?' Expression, nodding her Head, and simultaneously fired her pistol. The latest model silencer, made at the Taira War Laboratory, fired a Bullet with only a tiny Pyut! sound.</p>
-<p>An Anyaji martial monk, unluckily passing by, was shot and collapsed. The Bullet, fired without even aiming, had accurately struck his Furrowed Brow. Nakanoin Rina quickly ran and embraced the Anyaji martial monk to prevent him from making noise as he fell.</p>
-<p>"You should speak before you shoot, so I can prepare."</p>
-<p>"Sorry-im."</p>
-<p>At Nakanoin Rina's blunt Words, Muko Neika, with a completely unconcerned Attitude, said she was sorry. Having worked together for a long period in the Public Morals Committee, Nakanoin Rina was accustomed to Muko Neika's Attitude. So, Nakanoin Rina also, as if nothing had happened, laid down the Anyaji martial monk and moved to complete her Mission.</p>
-<p>"There it is."</p>
-<p>Taira Kanna, standing in front of the building marked on her phone navigation, murmured. According to the informant within Anyaji, two Guardians of the Guardian Hall resided inside that building.</p>
-<p>"Do as planned, Neika."</p>
-<p>"Understood-im!"</p>
-<p>Muko Neika, nodding her Head at Taira Kanna's Words, fired a grenade from a grenade launcher at the Entrance as Nakanoin Rina ran to open it. Pong Pong, she fired several rounds, but what Muko Neika shot was not a typical explosive grenade, but a smoke grenade emitting deadly toxic smoke.</p>
-<p>As several smoke grenades entered the building, Nakanoin Rina closed the door again and stood beside Taira Kanna. Taira Kanna did not necessarily consider this battle a fight of Skill against Skill.</p>
-<p>Since they were in the position of Ambush, the purpose was to inflict the most fatal Attack possible on the Opponent by utilizing the advantage of the Ambush. That's why they used deadly toxic substances without any hesitation, as they did now.</p>
-<p>After a short wait, the inside of the building became noisy. It was a special toxic smoke grenade that continuously emitted toxic smoke, not just once, so opening the windows was useless.</p>
-<p>Kwaaang! Kwang!</p>
-<p>One person broke through the door and came out, and another burst through a window. The thorough Taira Kanna did not miss it. Before the one who burst from the window could even touch the Ground-</p>
-<p>Chwaak!</p>
-<p>"Kuaaak!"</p>
-<p>She cut him.</p>
-<p>Still, perhaps the name of Anyaji Guardian was not merely earned by Age, for even in such a Situation, the Anyaji Guardian managed to avoid Taira Kanna's rapier and prevent losing his life in a single strike.</p>
-<p>"Who are you! Keo-eok!"</p>
-<p>The rapier swung as if even the time to Answer the question "Who are you?" was precious. The tip of the rapier, moving in a complex Orbit, aimed for his Neck this time, like a venomous snake striking. The Anyaji Guardian hastily raised his Arm to block the tip of Taira Kanna's Sword.</p>
-<p>"You're quite tenacious."</p>
-<p>"Th-this...! If it weren't for this strange smoke...."</p>
-<p>As the Opponent endured longer than Taira Kanna expected, she spoke of his tenacity, somewhat as a compliment. The Anyaji Guardian, taking it as an Insult, blamed the Poison with a resentful Attitude. Even now, after inhaling a few breaths of the smoke filling the building, his Body felt as if it were in the water, unable to move properly, and a Pleasurable Ache spread throughout his entire Body.</p>
-<p>"Even without the smoke, you are no match for me."</p>
-<p>A resolute Way of Speaking, as if stating an unchangeable Law. When Taira Kanna objectively judged, if she were to face that Anyaji Guardian without Poison or Ambush, she could achieve Victory within ten minutes.</p>
-<p>However, since there were several other Missions now, she used various Tools to shorten the Time. After all, if she was going to win anyway, it was better to win quickly.</p>
-<p>Taira Kanna, who had been gazing at her Opponent for a moment, began to move at an immense speed that was difficult for the Eyes to follow. The Anyaji Guardian forcibly moved his Body, which was difficult to move due to the Poison, and took a defensive posture. But that defensive posture was utterly useless.</p>
-<p>Puk! Puk! Puk! Puk! Puk!</p>
-<p>Taira Kanna's Attack was incredibly fast, but there was no sound of even the Wind being cut. The only sound heard was something piercing flesh. Taira Kanna, like a snake, evaded the Anyaji Guardian's Defense and plunged her rapier into his fatal vital points.</p>
-<p>"...!"</p>
-<p>The Anyaji Guardian, whose five vital points were instantly pierced, said nothing. Taira Kanna looked at his Appearance and silently withdrew her rapier. Her judgment was that since he had already drawn his last Breath, there was no need for further action.</p>
-<p>Nakanoin Rina, like her Liege Taira Kanna, also held the Jitte Kabutomushi no Kado, received from Ichimonji Harugoro, and swung it towards the Anyaji Guardian who had burst through the main gate.</p>
-<p>Huu-ung!</p>
-<p>The heavy Kabutomushi no Kado swung, leaving a black afterimage, and before it struck the Anyaji Guardian's Head, the Anyaji Guardian regained his senses and twisted his Body as much as possible.</p>
-<p>Pyut!</p>
-<p>Simultaneously, the suppressed sound of Marksmanship from the silencer. Almost at the same time as the Marksmanship noise, a Bullet lodged in the Anyaji Guardian's Shoulder. Muko Neika had anticipated the Opponent's Evasion and was already aiming.</p>
-<p>Yet, he had not avoided the Jitte that Nakanoin Rina was swinging. With a Puh-eok! sound of flesh being struck, the Anyaji Guardian let out a Scream. This was because the Jitte, which could be called an Iron Club, had struck the opposite Shoulder from where the Bullet had hit.</p>
-<p>"Kuaaak!"</p>
-<p>Despite the Anyaji Guardian's Scream, Nakanoin Rina and Muko Neika, the two former Public Morals Committee Duo, did not stop. Perhaps because they had worked together for several years, their attacks flowed as naturally as water.</p>
-<p>With Nakanoin Rina attacking and Muko Neika providing Marksmanship at various points, even an Anyaji Guardian could not Counterattack.</p>
-<p>Even though the Anyaji Guardian was small and frail for a martial artist, Muko Neika did not miss, hitting every shot with perfect accuracy. Although he tried his best to evade and only took glancing blows, it seemed that if this continued, he would be shot in a fatal spot and collapse.</p>
-<p>Of course, the biggest reason for his current defensive stance was the Poison. He didn't know what the effect was, but even when he thought he needed to move, his Reaction speed was different from usual. He felt his Reaction speed was slower by a few tenths of a second than usual.</p>
-<p>A few tenths of a second might not seem like much, but at that Level, even if Nakanoin Rina's Skill was far lower than the Anyaji Guardian's, they could fight on par. And with Muko Neika's covering fire, a Situation where they couldn't lose even if they wanted to was unfolding.</p>
-<p>Still, perhaps due to the reputation of being an Anyaji Guardian, he did his best even in a constantly losing Situation. Since there were only two Opponents, he had Hope that if he could somehow deal with these two, he could survive. Perhaps because of this, he moved his Fists and Feet even more desperately, blocking Nakanoin Rina's Jitte and trying his best not to enter Muko Neika's firing range.</p>
-<p>"You cowardly bastards!"</p>
-<p>"It doesn't seem as cowardly as kidnapping and Brainwashing children-im~!"</p>
-<p>Pyut!</p>
-<p>Muko Neika fired a shot while simultaneously rebutting the Opponent's accusation of cowardice. Nakanoin Rina ducked her Upper Body perfectly, allowing the Bullet to strike the Anyaji Guardian's Body.</p>
-<p>He had deliberately placed Nakanoin Rina between Muko Neika and himself to avoid being shot, but since this had happened several times during their previous battles, the two, with excellent Breathing, were able to thrust Bullets into the Anyaji Guardian's Body.</p>
-<p>Nakanoin Rina approached the Anyaji Guardian, who was kneeling from the Bullet wound. To finish him off, she raised the Jitte Kabutomushi no Kado high above her Head. The Anyaji Guardian seized this moment when Nakanoin Rina's Movement became larger.</p>
-<p>"If you shoot, we'll both get hit, so go ahead and try!"</p>
-<p>The Anyaji Guardian, almost embracing Nakanoin Rina and entering her Embrace, shouted at Muko Neika with a sneering Playful Laughter.</p>
-<p>"Do you know that a rhinoceros beetle also has a small horn?"</p>
-<p>Nakanoin Rina asked a sudden Question to the Anyaji Guardian who was in her Embrace. Since she was using such a long and massive Jitte, it wasn't a Situation where she could swing it now that the Opponent was so close, but the Jitte had an L-shaped Guard. Ichimonji Harugoro had made this protruding Guard sharp enough to be used as a Weapon, so Nakanoin Rina called this Jitte's Guard the rhinoceros beetle's small horn.</p>
-<p>"...?"</p>
-<p>As the Anyaji Guardian looked up, wondering what she meant, Nakanoin Rina was holding the Jitte in a reverse grip. And with that, she powerfully brought her Arm down as if plunging the Jitte into the Floor.</p>
-<p>Kwadeudeudeuk!</p>
-<p>The rhinoceros beetle's small horn pierced the Anyaji Guardian's Skull and went halfway in. Naturally, no one could survive with their Skull pierced, so Nakanoin Rina and Muko Neika both tasted Victory.</p>
-<p>900th Chapter Celebration: 1st, 2nd, 3rd Place!</p>
-<p>1st Place!</p>
-<p>Nagumo Sian! I never expected Mama to take 1st place, but she's an overwhelming winner haha</p>
-<p>2nd Place!</p>
-<p>Lizhael-im~! I expected Liz to be in the rankings haha</p>
-<p>3rd Place!</p>
-<p>3rd place is Nae Fitzgerald! I thought it was unexpected, but actually, the 3rd place cutoff was 11 votes, so one person consistently voted, and another added one vote, making her 3rd haha</p>
-<p>Joint 4th place is Minamoto Lisa and Mimata Chieri haha It's a shame, if both had just one more vote, they could have been 3rd haha</p>
-<p>Joint 5th place is School Nurse Kijimoto Jurie and Han Yu-gyeong haha</p>
-<p>6th place is Home Ec Teacher!</p>
-<p>7th place is Yukiko!</p>
-<p>Joint 8th place! Alik! Seizawa Shii! Actually, I thought Alik would be in the rankings, so this is unexpected haha</p>
-<p>9th place! Taira Kanna!</p>
-<p>Joint 10th place! Eve and Athena haha</p>
-<p>For 1st to 3rd place, I've uploaded Illustrations in the Fan Art section on the Novelpia main screen haha</p>
-<p>You can download them on a computer, and also on your phone by accessing through a browser instead of the App haha If you wish, you can download Illustrations of your beloved characters!</p>
-<p>I've created both horizontally long (desktop wallpaper size) and vertically long Illustrations for your convenient Usage!! Thank you to all the Readers-nim who participated in the vote! And thank you to the Readers-nim who supported me for 900 chapters, even if you didn't vote!</p>
-<p>Requested by MidNightSKY-nim: Arisu and Nae gazing at the night sky~!</p>
-<p>Arisu first~!</p>
-<p>Nae~!</p>
+<p>and chapter check contains erotic illustrations please surroundings this your</p>
+<p>"Chyu-eup...! Chyu-up♥ Jjeu-eup...! Jjyu-heup...!"</p>
+<p>Otagi Yuka, who had satisfied all my curiosity, began to suck my cock, making lewd sounds.</p>
+<p>Otagi Yuka, number one in fellatio frequency since her possession, who had frequently consumed my semen instead of blood, used her skilled tongue play and appropriate oral pressure to suck my cock. My semi-erect cock quickly filled with blood and became as hard as flint.</p>
+<p>Otagi Yuka, as if pleased with the hardened state of my cock, looked up at me and gave an Eye Smile. And as if urging me to give her semen quickly, she shook her head back and forth and began to suck my cock even more intensely.</p>
+<p>"Kheu-euh...."</p>
+<p>"Feewsh good?"</p>
+<p>Otagi Yuka's mouth felt so good that I let out a moan without realizing it. Otagi Yuka, with my cock still in her mouth, asked, "Feels good?", so I nodded my head. When I said it felt good, Otagi Yuka became even more excited.</p>
+<p>The sharp Fangs unique to vampires brushing lightly now and then, giving goosebump-inducing pleasure intermittently, was also a benefit of Otagi Yuka's special fellatio.</p>
+<p>"Kheu-eueut...! I'm cumming!"</p>
+<p>Unable to withstand Otagi Yuka's persistent mouth attack for over ten minutes, my cock ejaculated semen into Otagi Yuka's mouth. Gulping and gurgling, as my cock, which had continuously spurted semen, quieted down, Otagi Yuka, as if it were a waste, sucked and drank the remaining semen from my urethra. Perhaps because of the urethra cleaning, my cock, which was starting to go soft, hardened again.</p>
+<p>"Beh~♥"</p>
+<p>After spitting out my cock, Otagi Yuka opened her mouth and showed the semen remaining on her tongue. Because my ejaculate volume was so large, even though she had swallowed it down her throat with gulping sounds during ejaculation, there was still quite a lot of semen left in her mouth.</p>
+<p>"Haaah.... I feel like I can live now."</p>
+<p>As she consumed my semen, Otagi Yuka's slightly hasty and irritable attitude from moments ago disappeared. Because a lack of vital energy would make her lose her Fading Reason, Otagi Yuka had urgently sucked my cock, and I, too, had not held back and immediately ejaculated semen into her mouth.</p>
+<p>"Are you okay now?"</p>
+<p>"No, not yet~♥ Since you've filled my upper mouth, now fill my lower mouth too♥"</p>
+<p>Otagi Yuka, as if one serving of my semen wasn't enough, placed her hands on the Front Door, looked at me, swayed her buttocks enticingly, and seduced me. Perhaps because she had vigorously shaken her Head while performing Fellatio, her Bangs had fallen, which felt a bit new.</p>
+<p>At her seductive Appearance, I began to touch Otagi Yuka's panties, which were now full of Steamy Moisture. Because a lot of vaginal fluid had flowed out, Otagi Yuka's panties clung tightly with a sticky feeling and moisture, revealing the outline of her pussy.</p>
+<p>"Haa-euh-heung...! Teacher-ssi, your fingers feel good, haaang♥"</p>
+<p>She said she would call me Ryuta-ssi instead of Teacher-ssi, but when she got Aroused, Otagi Yuka called me by the familiar Address. For a while, I violated Otagi Yuka's pussy over her panties, then pulled down her panties.</p>
+<p>As I pulled down her panties, along with a strong Female Animal Smell, between her panties and pussy, the sight of a glistening Silken Strand of vaginal fluid stretching out and then breaking was extremely erotic.</p>
+<p>Otagi Yuka's Pink pussy, as if seducing me, was gaping open and profusely leaking vaginal fluid. Although I wanted to torment Otagi Yuka's pussy with my fingers a little longer, since her vassals were waiting at Home, I decided to insert my cock immediately.</p>
+<p>"Haaht!"</p>
+<p>As I gently inserted my glans into Otagi Yuka's Pussy Hole, the feeling of it biting down was so incredibly good that I shallowly thrust my hips, just enough for my glans to move slightly back and forth.</p>
+<p>"Heung, haang, Teacher-ssi...! Heueut! Inside too, Ryuta-ssi's, haaang♥, big cock, heueut! Thrust it in, paang-paang!"</p>
+<p>As I thrust shallowly, Otagi Yuka whined, as if wanting to feel pleasure in a deeper place. If she whined so desperately, I had no choice but to grant it. I grabbed Otagi Yuka's slender waist and thrust my cock into the deepest part of her Intravaginal.</p>
+<p>"Haa-aa-aaang!!!"</p>
+<p>Even though I had only pressed a little inside, Otagi Yuka writhed in pleasure. As if she had already reached Climax, she threw her Head back and rolled her Eyes upwards. Her Intravaginal also twitched in response, signaling that she had reached Climax.</p>
+<p>Still, I didn't go easy on her, grabbed Otagi Yuka's hair, and continued to thrust my hips.</p>
+<p>Cheol-sseok! Cheol-sseok!</p>
+<p>"Heu-euh-heung...! It feels, haaht! Strange, Ryuta-ssi...! Ryuta-ssi's cock...! It feels so, heung...! Good, haaang♥"</p>
+<p>Vaginal fluid splashed all over my Lower Abdomen, and along with the steamy slapping sound of flesh, Otagi Yuka's moans followed.</p>
+<p>Parting Otagi Yuka's delightfully twitching and tightening vaginal flesh, as I rhythmically thrust my hips, Otagi Yuka was moaning loud enough to shake the house.</p>
+<p>"Haa-euh-heung...! It feels good, haaang...! Ryuta-ssi, heueut! Cock! Haaht, keep, haa-euh-heung...! Putting it in! Inside, haaht, with Teacher-ssi's, haaht, rub it♥ Mix it all up♥"</p>
+<p>Otagi Yuka was completely lost in Sex after a long time. In fact, she had held back quite a bit. While preparing for the Anyaji attack, she had barely had Sex, only performing Fellatio mechanically to consume vital energy. Occasionally, she had given Handjobs to store it in bottles, but she hadn't had Sex. She was also very busy with preparations, and since the opponent was a formidable opponent, the Atmosphere wasn't right for it either.</p>
+<p>Of course, I was the same. My infinite Virility could not be released with just Fellatio or Handjobs. As I entered a Female Body after a long time, my cock swelled hard, as if it would burst at any moment.</p>
+<p>"Haaht! Heueut! Haaht...! Ryuta-ssi...! Now, haa-heung♥, cum inside...! If you keep going, I feel like I'll go crazy...!"</p>
+<p>Otagi Yuka said, looking back pitifully. Actually, I was curious what would happen if she went crazy, and wanted to thrust into Otagi Yuka's pussy more, but I, too, had reached my Limit. I could feel the semen rising.</p>
+<p>"Uh...! Alright. I'll cum inside."</p>
+<p>"Haa-euh-heung...! Ryuta-ssi's baby seed, haaht! Cum a lot inside...!"</p>
+<p>Cheol-sseok! Cheol-sseok! Cheol-sseok!</p>
+<p>I, taking Otagi Yuka's moans as Support, further increased the speed of my piston thrusts. Moving while scraping Otagi Yuka's rough vaginal opening with my glans, it doubled the pleasure we gave each other.</p>
+<p>Peo-eok! Peo-eok! Peo-eok!</p>
+<p>Beyond mere slapping sounds, now making sounds as if hitting with a Blunt Weapon, I thrust my hips.</p>
+<p>"Kheu-eueut! I'm cumming...!"</p>
+<p>"Heu-aa-aa-hang...! Inside, inside...! Cum insideee♥"</p>
+<p>I tightly gripped Otagi Yuka's buttocks, pressing my hips as close to her pussy as possible, and began to Ejaculate semen into the deepest place.</p>
+<p>Bhyu-ut! Bhyu-ut! Bhyu-u-ut!</p>
+<p>"Haa-aang, Ryuta-ssi's hot milk, euh-eut! It's coming, it's coming, I'm cumminggg...!"</p>
+<p>Otagi Yuka trembled her Legs and reached Climax. As her Legs gave out and she was about to collapse, my cock, still embedded in her pussy, supported her. When the Weight of a Woman was suddenly added, I felt a dull Pain in my cock, but the Pain disappeared as it seemed to Regenerate quickly. If it were a normal Person, they would probably have been rushed to the Hospital with a fractured corpus cavernosum.</p>
+<p>I, while enjoying the Afterplay, with my cock still inserted, hugged Otagi Yuka from behind, touched her soft breasts, and waited for Otagi Yuka to enjoy the Afterglow of Orgasm.</p>
+<p>Otagi Yuka, with Eyes blurred by pleasure, turned around and kissed me. Chyu-eup, Chyu-up, Jjeu-eup, the sounds of us sharing Saliva echoed lewdly throughout the Family. Although my cock had hardened again from the Kiss, Otagi Yuka smiled and gently pushed me away.</p>
+<p>"Today, it's not just me, there are other Women waiting, aren't there?"</p>
+<p>Ah, that's right. Now that I think about it, Otagi Yuka and I weren't the only ones who came Home. Saionji Diana and Sakagami Rena had also come with us. When I turned my Head to look, both of them were watching Otagi Yuka's and my Sex, while touching their own pussies.</p>
+<p>It's not like some augmented reality Porn or anything.... Actually, this is Otagi Yuka's fault for suddenly stripping my Pants and sucking my cock.</p>
+<p>As I pulled my cock out of Otagi Yuka's pussy, her pussy gaped open as if disappointed. If it were normal People, they would probably gush out my semen, but Otagi Yuka's pussy and uterus are specialized in absorbing my semen, so no matter how much semen I ejaculated, it didn't flow out.</p>
+<p>"I'll visit with my vassals tomorrow."</p>
+<p>Otagi Yuka threw her panties that had fallen on the floor, skillfully landing them in my distant Laundry Basket, and said. Her panties, discarded at the Front Door, were thoroughly soaked with vaginal fluid, so it would probably feel a bit uncomfortable to put them on again. And she put on her Pants with No Panties.</p>
+<p>"That, her name... Ah, Seiwa Rieko, are you going to make her work under me too?"</p>
+<p>"Of course. She's my vassal. Since I Work for you, she'll also offer her labor to you for me. She also has to earn her keep."</p>
+<p>Indeed.... Her keep isn't just any ordinary keep. Since a Vampire's vassal is also a Vampire, they will need Blood. I don't know if they have a Trait like Otagi Yuka's, treating semen as Blood, but if not, since they would need to consistently consume Blood, their Food Expenses would be much higher than normal People's.</p>
+<p>"Haaah.... It was so good after a long time. See you tomorrow, Ryuta-ssi."</p>
+<p>Otagi Yuka, with her characteristic cheerful Smile, after kissing my Cheek, went straight out through the Front Door. Having Sex at the Front Door, means you can leave immediately afterwards.... I, after seeing Otagi Yuka off, turned around and looked at the two Masturbating Monsters.</p>
+<p>"So.... Who's next?"</p>
+<p>At my Words, Saionji Diana and Sakagami Rena simultaneously raised their hands.</p>
+<p>Today's Sex Scene B-cuts!</p>
+<p>Kkiyot!</p>

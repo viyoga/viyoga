@@ -5,82 +5,95 @@ weight = 123
 chapter = 123
 +++
 
-<p>I took Yukiko to my room instead of her usual room. There wasn't a big reason; I just wanted to have sex in a new atmosphere instead of Yukiko's room every day.</p>
-<p>"Oh, here?"</p>
-<p>"It's my room."</p>
-<p>Of course, Yukiko probably didn't ask because she didn't know. She just seemed surprised because she was going somewhere different than she expected.</p>
-<p>"Yukiko, you're the first woman to come to my room."</p>
-<p>In fact, the housekeeper ajumma comes in to clean every day, but I can't ruin the mood, so I decided to give Yukiko the title of the first woman to enter my room. Since it was promised from the first day that guests were forbidden, Yukiko had to be the first guest, excluding the housekeeper ajumma.</p>
-<p>"Heehee♥"</p>
-<p>Yukiko seemed very satisfied with what I said. I laid the smiling Yukiko on the bed. Yukiko was wearing pink dolphin shorts and a white T-shirt, and she looked very sexy. Before having a relationship with me, she wore modest clothes even at home, but now she wears such bold clothes.</p>
-<p>I don't know if this was her style before I came, or if she wore this style of clothing to stimulate my lust, but it was a very desirable outfit. Moreover, I could clearly see her nipple marks in the middle of her breasts, as if she wasn't wearing a bra under her white T-shirt.</p>
-<p>I slowly took off my pants as if I were doing a strip show, and Yukiko looked at me with hot eyes that seemed to pierce through my pants.</p>
-<p>"Ah...!"</p>
-<p>When my dick, which had been pressed down by my underwear, bounced up as soon as I took off my underwear and looked at the sky, Yukiko unknowingly exclaimed.</p>
-<p>"How do you want me to do it?"</p>
-<p>"I want to smell it a lot...! And I want to suck it with my mouth...♥"</p>
-<p>As expected, smelling it seemed to be the priority because of her smell fetish. I slowly approached and put my dick on Yukiko's face. When the heavy lump of meat went over her nose, Yukiko trembled as if she had slightly climaxed.</p>
-<p>"Heueum.... Ryuta's smell, I like it so much...!"</p>
-<p>While watching Yukiko suck and kiss my dick, I reached out and touched Yukiko's nipples over her clothes. Her already hardened nipples were sticking out as if they were about to pierce through her clothes, so I touched them as they seemed to be protesting to be touched.</p>
-<p>"Ahaaaang...! If you touch me like that, I can't concentrate♥"</p>
-<p>Yukiko, who was sucking my dick, briefly spat it out and spoke while slightly glaring at me.</p>
-<p>"But you feel good, right?"</p>
-<p>"...Yeah."</p>
-<p>"Keep sucking."</p>
-<p>Yukiko swallowed my dick as I said. From the first time, she sucked so well that I asked Yukiko how she had such skills. Yukiko refused to answer for a long time, but when I asked if she had practiced with another man, she took out a dildo hidden in her room and said that she had bought a dildo similar in size to mine and practiced. And she hit me with that big dildo, saying how could I talk about sucking another man's thing, and she went wild, so as a sign of repentance, I had to make up for it with my body as much as possible that night.</p>
-<p>I savored Yukiko's fellatio and continued to caress Yukiko's breasts. Yukiko wasn't satisfied with just her breasts, so she lowered her hand and started touching her pussy while performing fellatio. Yukiko's breath felt on my lower abdomen became increasingly hot, and Yukiko's tongue technique also became increasingly rough.</p>
-<p>The delicate technique was also pleasant, but as it gradually changed to tongue movements only for milking, I put strength in my buttocks and semen was slowly rising.</p>
-<p>"It's coming out, mother...!"</p>
-<p>I grabbed Yukiko's head and put my dick as deep as possible into her throat. Yukiko widened her mouth and expanded her throat to accept my dick easily. When there was not even an inch of gap between my lower abdomen and Yukiko's mouth, my dick swelled up and began to ejaculate semen.</p>
-<p>Glug! Glug!</p>
-<p>"Did it feel good?"</p>
-<p>After pulling out my dick, which had been ejaculating semen for a while, Yukiko asked with a tearful expression while smiling.</p>
-<p>"Yes, it was very good. This time, I'll do it for you."</p>
-<p>I answered and took off Yukiko's dolphin pants. Because of my nipple caresses and Yukiko's self-pleasure, it already smelled like a ripe, sexy pussy. The panties under the dolphin pants were already soaked and couldn't serve as underwear at all.</p>
-<p>I put my tongue on the underwear that was wet and see-through.</p>
-<p>"Aang♥ My panties are getting wet~."</p>
-<p>"What are you talking about? Your panties are already wet enough."</p>
-<p>Yukiko was saying that I made them wet because she was embarrassed that they were wet because of her vaginal fluid. I was a little resentful, so I took off Yukiko's panties as well. And I touched her pussy with my hand and showed her the vaginal fluid stretching like a thread in front of Yukiko's eyes.</p>
-<p>"Your panties are wet because of this sexy liquid coming out of Yukiko's pussy, not because of me."</p>
-<p>"Haeung...! That's Ryuta's saliva that you licked. It's not mine♥"</p>
-<p>I opened my mouth with a stern expression to Yukiko, who kept denying that it was her vaginal fluid.</p>
-<p>"If you keep lying, I won't give you this?"</p>
-<p>When I pointed at my dick and said that, Yukiko wiggled her waist seductively while lying down and sent me a desperate look.</p>
-<p>"Heueung..... Actually, it's my vaginal fluid! Ryuta's big dick is so tempting that my pussy couldn't help but drool♥ Haeueung...! Stop teasing me and quickly put Ryuta's tempting big dick in...!"</p>
-<p>As Yukiko ordered, I shoved my dick into her drooling pussy. It had only been two days since I put it in, but Yukiko's pussy welcomed my dick by twitching her pussy flesh.</p>
-<p>"Heueut! It feels so good!"</p>
-<p>Yukiko was writhing in pleasure that kept coming like waves, and I kept moving my waist back and forth in a constant rhythm, regardless of Yukiko's writhing.</p>
-<p>"Kyaeuheung, haeuht, ahang! It's strange, I'm strange, Ryuta♥"</p>
-<p>I wanted to see Yukiko, who was becoming more and more sexy every time I shook my waist, so I kept shaking my waist. In the meantime, Yukiko spread her toes wide and came several times. She was a very sensitive body.</p>
-<p>"Yukiko's pussy is mine...!"</p>
-<p>"Heueung♥ That's right, everything about Yukiko is Ryuta's, so ahaang...! Haeueut!"</p>
-<p>With Yukiko's declaration, my ejaculation and Yukiko's climax came together. Semen spurted out of my dick with a gurgling sound and filled Yukiko's uterus, and Yukiko also crossed her legs behind my waist and kept my dick tied in her pussy while she was ejaculating.</p>
-<p>"Yukiko is Ryuta's, so I can't live without Ryuta anymore. So don't do anything dangerous...."</p>
-<p>Today's shooting seemed to be a bigger shock to Yukiko than I thought. I whispered in her ear that I wasn't in danger and hugged Yukiko tightly.</p>
+<p>The drinking party was enjoyable. For the first time, Sawayanagi Azuma drank and ate her fill of alcohol and snacks without worrying about Seryu-tai or the price. The man named Hata Ryuta-ssi, being perceptive, took the initiative to order more snacks and drinks when they were running low.</p>
+<p>Without even realizing it, she kept glancing at Hata Ryuta-ssi. It was only natural. Since such (?) visions kept appearing, it would be a lie if she didn't keep looking at Hata Ryuta-ssi.</p>
+<p>The first thing she noticed was his handsome face. Next was the well-trained physique that could be felt even through his suit.</p>
+<p>Seeing that he was trying to jump into the PMC industry, was he a former soldier? Or maybe a secret agent? Sawayanagi Azuma speculated about Hata Ryuta-ssi, but unless she asked him directly, she couldn't know the answer.</p>
+<p>,Alright! I have to ask him directly! It's important to know each other for the sake of future business directions....'</p>
+<p>Sawayanagi Azuma made a certain resolution and got up from her seat. But as soon as she stood up, she became embarrassed to talk to him alone. She also felt like she needed to pee for some reason....</p>
+<p>,Okay, I'll go to the bathroom and ask him...!'</p>
+<p>The izakaya, which she frequented, was a small shop, so the bathroom was outside the store. Sawayanagi Azuma entered the bathroom with slightly staggering steps. While she was doing her business in the bathroom, she heard a slight rustling sound from outside.</p>
+<p>Sawayanagi Azuma thought it was just another drunk customer trying to go to the bathroom. But when Sawayanagi Azuma came out, it was already too late when five men standing in front of the bathroom rushed at her. Having even prepared a sleeping pill, her eyes closed the moment they put a handkerchief to her nose.</p>
+<p>,I should have asked him sooner.....'</p>
+<p>How long had it been since her vision went dark? When she regained consciousness, she was inside a glass tube filled with water. Just like in her precognitive dream, she was watching herself from a third-person perspective in the air. Outside the glass tube, researchers were chatting.</p>
+<p>,We can't get the desired results in this state."</p>
+<p>,Do we have no choice but to use the solution we got from Professor Matteo?"</p>
+<p>,We have to use it. If we don't get results, we'll have to go to the 5th floor too...."</p>
+<p>The researchers shuddered as if they didn't want to go to the 5th floor no matter what, and took out something called the solution they received from Professor Matteo. It was a greenish-yellow liquid, and it was in a cylindrical container. When the researcher inserted it into a round hole next to the glass tube, the greenish-yellow liquid began to mix with the liquid in the glass tube.</p>
+<p>Instantly, she felt a pain as if someone was tearing her between her eyebrows, and suddenly Sawayanagi Azuma's appearance began to change. Originally, her hair was black with a slight blue tint, but the black color gradually disappeared and her hair was turning blue.</p>
+<p>Accordingly, she also felt her precognitive power becoming stronger. However, the precognitive power that had been strengthened by unorthodox means, not by normal means, made Sawayanagi Azuma's head dizzy.</p>
+<p>It showed her battle scenes from several years in the future, as well as various places such as deserts, seas, valleys, and mountain peaks. Even at the same time, scenes of the future divided according to numerous possibilities were projected simultaneously.</p>
+<p>She could no longer see the form of the laboratory. She was caught up in some future situation.</p>
+<p>It was an image of herself and Hata Ryuta going on a trip somewhere. An image of them eating lobster while looking at the sea from a villa with emerald waters, splashing water at each other and playing, and even a scene of them kissing against the backdrop of the sunset... It was like a dream.</p>
+<p>Of course, even the scene of them overlapping each other that came after that scene was a vivid vision where she could directly feel the pleasure. When the sex was over, she would return to the first trip. And after a day, another intense sex....</p>
+<p>At some point, noise started to creep into the vision, and her senses became a little clearer. When she opened her eyes, she saw the face of Hata Ryuta-ssi, who had been mingling with her body until just now. After that, she also began to see the surrounding scenery. She could even see the expressions of her colleagues who were looking at her with worried expressions.</p>
+<p>Ah, I'm back to reality...!</p>
+<p>,B, but there were definitely five men...."</p>
+<p>,Don't worry. We joined forces and rescued you...! Heup!"</p>
+<p>Her head recognized that she had returned to reality, but her body was doing what she had been doing all this time. When she saw Hata Ryuta-ssi's lips, she unknowingly stole Hata Ryuta-ssi's lips.</p>
 <p>###</p>
-<p>Monday morning, I headed to the Taira family's main house early. The original appointment was a lunch appointment with Taira Danjo-sama, but my grandmother, Taira Shizuku, said she wanted to see me, so I left a little early.</p>
-<p>Come to think of it, it was my first time going to the main house alone. Yukiko didn't go to the main house with me today because she had some important work to do. And I'm not a child, so I can't take Yukiko with me every time I go to the main house.</p>
-<p>When I arrived at the main house, Taira Shizuku ran out and greeted me with a hug.</p>
-<p>"Kanna also went to school and it was lonely, but I'm glad to see our grandson's face!"</p>
-<p>Taira Kanna, whom Taira Shizuku mentioned, was my aunt, a high school student who was one year younger than me. I had only seen her two or three times, but I heard that she attended a girls' school that daughters of prestigious families attend. That school was in Yamanashi Prefecture, which was far away. So I heard that she lives in a villa there, so she doesn't meet her mother, Taira Shizuku, often.</p>
-<p>"It's been a while, Grandma."</p>
-<p>"Don't say it's been a while anymore and come often."</p>
-<p>"Yes."</p>
-<p>Taira Shizuku seemed disappointed that I didn't come often. I can't help it, though. I have work at the Human Resources Development Institute, and I have to meet women, so how busy am I?</p>
-<p>"Shall we give our grandson, who has come after a long time, a toy gift?"</p>
-<p>No, how old am I to play with toys? Just as I was about to say something to Taira Shizuku, Taira Shizuku began to take out small statues made of gold.</p>
-<p>I will come to the main house often in the future. Grandma.</p>
-<p>I quickly changed my attitude and decided to come to the main house often in the future. After receiving the golden statue as a gift, I drank tea with Taira Shizuku in the Japanese garden. After listening to Taira Shizuku's story, the golden statue I received was Taira Saburo's keepsake. I heard that he received it as a gift when he was young.</p>
-<p>It was a little sad. Seeing the grandmother treating her grandson, whom she had never seen because her son died at a young age, like her son, I couldn't help but feel pity as a human being. I should treat her a little better.</p>
-<p>Kazuhiro and Kiyohira call me an emoji and call me Lu Bu, the epitome of an unfilial son, but I don't know why they say that when there is someone like me who respects adults. I've already decided to treat Taira Shizuku better now.</p>
-<p>Taira Shizuku is also a grandmother, so she said that I was very thin and brought a lot of tea and snacks. She brought out almost 1 kilogram of Wagashi, and it was clear that I would get diabetes if I ate all of this.</p>
-<p>"You're too thin. You have to eat a lot."</p>
-<p>"Yes...."</p>
-<p>Leaving behind the time with Taira Shizuku, who kept telling me to eat more even though my mouth was already full of Wagashi, I started a private meeting with Taira Danjo.</p>
-<p>----</p>
-<p>I wonder if you're curious about other colored dolphin pants....</p>
-<p>I don't know why, but when I made them without specifying a color, green dolphin pants came out the most.</p>
-<p>Gray dolphin pants that came out only once</p>
-<p>Navy pants that are a little loose to be called dolphin pants.</p>
-<p>Black dolphin pants that I liked but the fingers were ruined</p>
-<p>In fact, the biggest problem was that dolphins kept appearing when I entered dolphin pants ㅋㅋㅋ</p>
+<p>,I'm, I'm sorry."</p>
+<p>I put down Sawayanagi Azuma, who was startled as if she had suddenly come to her senses and took her lips off mine, and Sawayanagi Azuma excused herself by saying that the researchers had injected some hallucinogens into the glass tube.</p>
+<p>After hearing Sawayanagi Azuma's excuse, we escaped as quickly as possible. Except for the time Mimata Chieri went down for a while to check if there were any witnesses on the 6th floor, we did our best to run to the ground.</p>
+<p>,Did you save Azuma? Come quickly~!!"</p>
+<p>Kiyona Hori was waiting in the old transport vehicle that we had taken, probably after taking Sawayanagi Sinya to the hospital. We once again entrusted the driving to Kiyona Hori and got into the transport vehicle. Kiyona Hori returned to the office of Seryu-tai Military Company with her neat driving skills.</p>
+<p>Sawayanagi Sinya was waiting in the office. His face was still pale, as if he were still feeling the aftereffects of the bleeding. Seeing that sight, Kiyona Mari shouted.</p>
+<p>,Sinya! Is it okay for you to come out of the hospital like this?"</p>
+<p>,I went to the hospital because of excessive bleeding, but I got a blood transfusion and I'm fine now."</p>
+<p>Looking at his face color, he doesn't look fine at all.... Still, he must be out because he had his gunshot wound stitched up.</p>
+<p>,First of all, it's late at night, so let's get some sleep and talk about it tomorrow. And Sinya, make sure to go back to the hospital."</p>
+<p>Sawayanagi Azuma opened her mouth. It's a bit much since she was kidnapped, but she had the charisma of a president. Sawayanagi Sinya flinched at Sawayanagi Azuma's words and answered, ,Okay....'</p>
+<p>,Before that, I should say thank you. To everyone.... Thank you."</p>
+<p>Sawayanagi Azuma bowed deeply. After receiving Sawayanagi Azuma's greeting, we were recommended a decent hotel nearby and decided to stay at the hotel tonight.</p>
+<p>,I have to interpret this, so junior, please sleep."</p>
+<p>Mimata Chieri threw and caught the hacking USB in front of me and went into the next room. Ah, I was going to do it once and go to sleep because I was full of adrenaline from the fight just now. If Mimata Chieri is busy, there's nothing I can do. First, I'll wash up roughly and enjoy the famous Hussa's entertainment, but I heard someone knocking on the door.</p>
+<p>When I opened the door, Sawayanagi Azuma was standing there.</p>
+<p>,Please come in."</p>
+<p>I couldn't keep her standing in front of the door, so I let Sawayanagi Azuma in.</p>
+<p>,We're in a contractual relationship, so I think we should be honest with each other. Hata Ryuta, or rather, Taira Ryuta-ssi. Please tell me honestly."</p>
+<p>,I was actually going to tell you. Before something like this happened today. The fact that I introduced myself as Hata Ryuta is not a lie...."</p>
+<p>I told Sawayanagi Azuma about how I came to have the surname Taira. To tell this story, I naturally had to talk about how I was an illegitimate child. When the story of me being an illegitimate child came out, Sawayanagi Azuma listened to the story with tears in her eyes.</p>
+<p>,Then.... Since we said we should be honest with each other, shall we hear Azuma-ssi's story too?"</p>
+<p>,Okay, actually...."</p>
+<p>Sawayanagi Azuma's story was interesting. The story of the people of Seryu Military Company, who were war orphans and test subjects of an unknown laboratory, and Black Tech, which ranked 15th in the Japanese PMC rankings using data from the laboratory, was interesting.</p>
+<p>,I, I actually have precognitive abilities."</p>
+<p>,Precognition? That's amazing? Then did you know that we would acquire Seryu Military Company?"</p>
+<p>,Yes.... Actually...."</p>
+<p>Her face turns very red as she tries to say something. And she closes her eyes tightly and suddenly shouts loudly.</p>
+<p>,We were in a relationship in the future...!"</p>
+<p>Oh!</p>
+<p>,Then...?"</p>
+<p>,Actually, I don't know when we started having a relationship. But in the future I saw, we were constantly, that.... Sex, sex....ing."</p>
+<p>,Ah...."</p>
+<p>Ah, so that's why she kissed me earlier? Because she was confused between the vision and reality? The atmosphere becomes strange. Sawayanagi Azuma was looking at me with hazy eyes, and I was also looking at Sawayanagi Azuma with a flushed face.</p>
+<p>,Since the future is already set for us to have sex, I thought, why not start now, so I came to find you."</p>
+<p>,Azuma-ssi, won't you regret it?"</p>
+<p>,Ye, yes!"</p>
+<p>Hmm.... She feels a little broken because of something she suffered in the laboratory. I was already horny for sex, so I gave Sawayanagi Azuma a light peck on the lips. Sawayanagi Azuma naturally opens her lips without even realizing it.</p>
+<p>Thinking about it, she had a lot of sex with me in the future, so even though her body is a virgin, she naturally remembers it because of her precognition? A skilled virgin.... Suddenly, I'm getting turned on?</p>
+<p>I kissed Sawayanagi Azuma, who was waiting with her mouth open. I don't know if it was her first kiss, but Sawayanagi Azuma's tongue was strangely familiar and led my tongue.</p>
+<p>Chup...♥ Chuu♥ Jjuup...! Chup♡</p>
+<p>,Phew...! In reality, it's my, my first kiss...!"</p>
+<p>,Did you do it a lot in the future?"</p>
+<p>,A lot♥"</p>
+<p>We started kissing again with those words as a signal. While kissing lewdly, which could not be seen as a second kiss, we naturally took off each other's clothes.</p>
+<p>I pinched the pink fruit that was on top of her moderately sized, pretty breasts and massaged her firm thighs, and Sawayanagi Azuma also stroked my dick over my panties, stimulating it.</p>
+<p>,Ah, aahng...♥ It feels good, much more than I felt in my vision...."</p>
+<p>,It's going to feel even better in the future."</p>
+<p>Already, my dick was nodding and dripping with precum due to the excitement from the battle earlier and the exciting situation of being with an experienced virgin.</p>
+<p>Sawayanagi Azuma, who was watching that 모습, set up and spread her legs in an M shape, showing me her secret area. Sawayanagi Azuma's pussy and its surroundings were also very wet.</p>
+<p>She spread her pussy with one hand and looked at me with seductive eyes.</p>
+<p>,Come, Investor-nim♥ Please invest Investor-nim's white liquid in my pussy♥"</p>
+<p>As if possessed, I approached Sawayanagi Azuma and pushed my dick into the gap of the pussy that Sawayanagi Azuma had spread open.</p>
+<p>,Hyaeuht!"</p>
+<p>As expected of a virgin, I felt something like a membrane when I pushed it in. Sawayanagi Azuma was enduring the pain of destruction well, as expected of the president of a PMC.</p>
+<p>Sawayanagi Azuma's pussy, which had her hymen broken, was a very pleasant pussy. It was basically trained, so the surrounding muscles tightened every time she exerted force, and the pussy itself was a good pussy. In addition, the fact that she honestly felt the pleasure she was feeling gave me a sense of conquest from the perspective of the one pounding.</p>
+<p>,Heueat~! This, this is the feeling...! It's much better than when I felt it in my vision, haaang♥"</p>
+<p>Sawayanagi Azuma reached her climax in an instant. I was still fine, so this time I turned my body and started pounding from behind. Sawayanagi Azuma reached her climax several times and lost and regained consciousness due to my tireless hip movements like a machine.</p>
+<p>Buut! Buut! Buut!</p>
+<p>Because the excitement was so strong, semen poured out as if it would fill Sawayanagi Azuma's pussy in an instant.</p>
+<p>Even after ejaculating once, I continued to shake with my still firm dick inside her pussy. My hot semen became lubricant as it was, stimulating Sawayanagi Azuma's sensitivity.</p>
+<p>,Haeueeang! It's warm, it's strange! Haht, haeueung! I love you~♥ Investor-nim! Investor-niiim~!!"</p>
+<p>Hoo...! After finishing my third ejaculation, I opened the window to get some fresh air. At that moment, I made eye contact with Mimata Chieri, who was hanging on the window and masturbating. The moment our eyes met, Mimata Chieri sprayed me with her vaginal fluid and went.</p>
+<p>,Haaaaaa! I think I'm a pervert♥ I'm so excited when my junior is with another woman!!"</p>
+<p>Mimata Chieri has a netorare fetish.... Did I unknowingly send two women away today?</p>

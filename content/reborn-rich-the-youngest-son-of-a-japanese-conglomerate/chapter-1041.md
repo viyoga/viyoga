@@ -5,86 +5,76 @@ weight = 1041
 chapter = 1041
 +++
 
-<p>The Bracelet, materialized from space, was successfully bid on for about 130,000 Points. Perhaps because it had no particular historical background, unlike the necklace containing time, it could be purchased relatively cheaply.</p>
-<p>Of course, it might also be because of the Fragment of Truth, but the biggest Reason is probably the lack of related Abilities. After all, to similar Attributes, one is instinctively drawn, just as Sawayanagi Azuma and Kurayamada Kirie desired them even without knowing their Abilities.</p>
-<p>"Ah, why can't I find anything I like?"</p>
-<p>Lianna Holden, still unable to choose what she wanted, said with an anxious Expression.</p>
-<p>In fact, Telepathy-related Items, though not as rare as those of time or space, were still uncommon, so they might not appear in this auction.</p>
-<p>As the auction order continuously flowed, and I purchased a few more Items, a slightly unusual Item appeared.</p>
-<p>It was an Item that felt like a Machine worn on the Head, probably....</p>
-<p>-This is a prototype Mind amplifier that was being manufactured by a certain Enterprise~! It's research that was halted a few months ago, and it seems that Item was leaked! The starting Price will be 100,000 Points!</p>
-<p>With Eve's Explanation, the auction began. It wasn't a strange Item, as such prototypes or leaked technology under Development often came up for auction at AmSang.</p>
-<p>However, such Items were an all-or-nothing Gamble, and usually such leaks occurred when a Project was halted or canceled, as Eve just explained, or when research funding was cut.</p>
-<p>For that Reason, leaked technology usually lacked marketability, had severe Side Effects, or often, better technology was developed faster, so even if purchased, it often resulted in a loss. An Enterprise isn't stupid, that's why they halted the Project. But sometimes Jackpot technology might be dormant, so it was often purchased with a feeling of gambling.</p>
-<p>◆Mind Amplifier N003-01 [Rare+ Armor/Helmet]</p>
-<p>A prototype developed by the community tech company OmniCom. It embarked on the Development of a new System to connect human minds, replacing VR Dive, but after receiving failing evaluations for various Side Effects and marketability, the Mind amplifier Project was canceled, leaving only the prototype.</p>
-<p>●Mind Wave Amplification Technology: While worn, all Mind Stats increase by 1. However, it places a strong burden on the Brain.</p>
-<p>●Connects the minds of those wearing Mind Amplifier N003-01. As a Side Effect, it deals 6.75% Mind Damage every hour.</p>
-<p>●Telepathy-related Abilities increase by one grade. As a Side Effect, dizziness occurs.</p>
-<p>Good? Without any particular Expectation, I looked at the Info Window, and quite meaningful Technology seemed to be included.</p>
-<p>OmniCom seemed to have attempted to create a new System connecting minds instead of the VR Dive System, but they seemed not to have noticed the third option, Telepathy Ability increase.</p>
-<p>Of course, although all were Technologies with Side Effects, if slightly modified, it seemed it could be applied to Superhumans without Side Effects.</p>
-<p>I immediately bid in the auction. I pressed the button and bid on the Price that had risen to 200,000 Points, but immediately the Price surpassed 200,000 and quickly rose to 300,000. I intermittently pressed the bid button and raised the Price, but as expected, the Enterprise's undisclosed prototype was a popular Item.</p>
-<p>Before I knew it, the Price surpassed 1,000,000 Points, and now, those participating in the bidding were only me and one unknown Person.</p>
-<p>Unfortunately, AmSang's auction, perhaps for competition, did not allow bidding 300,000 to 1,000,000 at once.</p>
-<p>It was a System where, according to the bidding standard set by Eve, the auctioneer, one would press the bid button and alternate with the Opponent to raise the value. Of course, whenever a certain Price point was reached, Eve would also change the Price that rose per bid.</p>
-<p>Even now, for the Mind amplifier, when the starting Price was 100,000 Points, bids were made in increments of 10,000 Points, and when it reached 500,000, it was adjusted so that each bid increased by 50,000.</p>
-<p>Usually, for these prototype-type gacha(?), 1,000,000 was the limit, so I thought they would drop out, but regrettably, even after surpassing 1,000,000, they didn't give up and followed up to 1,500,000, so I barely managed to win the bid for 1,600,000 Points.</p>
-<p>"Honey, is that Machine that valuable?"</p>
-<p>Lianna Holden, not even knowing it was good for her, asked why I was buying something so expensive.</p>
-<p>"That Machine is good for you."</p>
-<p>"Huh? What do you mean?"</p>
-<p>"Well...."</p>
-<p>I roughly explained the Mind amplifier's Abilities to Lianna Holden.</p>
-<p>"It enhances Telepathy?! Then is this my Gift?"</p>
-<p>"This Item itself has many Side Effects, so if I research it and an improved version comes out, I'll give it to you as a Gift."</p>
-<p>"As expected, Honey! I love you!!"</p>
-<p>When I said I'd give it as a Gift, Lianna Holden rejoiced, hugged me, and kissed my cheek. Perhaps because I bought it for 1,500,000 Points, it felt like she was happy because of the Price....</p>
-<p>"Investor-nim. Then do you also know my necklace's Abilities?"</p>
-<p>"Shall I explain?"</p>
-<p>"Yes!"</p>
-<p>"Explain my Bracelet too."</p>
-<p>Every time an auction Item appeared, I subtly checked it, and explained to Sawayanagi Azuma and Kurayamada Kirie the Abilities of the Items I purchased as Gifts today.</p>
-<p>Having heard the Explanation, both Sawayanagi Azuma and Kurayamada Kirie rejoiced, knowing that the Item they chose was a very excellent Item.</p>
-<p>As I was explaining like that, before I knew it, the long-awaited last auction Item, the Fragment of Omniscience's Turn came.</p>
-<p>-Everyone, have you been waiting long? According to rumor, most of today's Customers gathered to see this Item! It is none other than the legendary forbidden book and grimoire....</p>
-<p>With Eve's Words, the auction house instantly darkened. And as it brightened again, placed on red Velvet, sealed with Chains, the grimoire, the Fragment of Omniscience, revealed its Appearance.</p>
-<p>-It's the Fragment of Omniscience!!</p>
-<p>◆Fragment of Omniscience [Legendary+ Grimoire/Magic Tool]</p>
-<p>Sealed.</p>
-<p>I wondered what kind of options it had to cause such a commotion, so I checked the options, but other than the name and grade, no other Information could be known due to the Seal.</p>
-<p>Perhaps the Chains wrapping the Fragment of Omniscience seemed to be a Bongingu, and whether this Bongingu itself was an excellent Item, it was well sealing the Legendary+ grade grimoire.</p>
-<p>Of course, the Seal was not complete, so perhaps due to the magic power emanating from the Fragment of Omniscience, Sawayanagi Azuma, Kurayamada Kirie, and Lianna Holden, none of whom were Magicians or Jusul-users, all changed to hazy Gazes, and began to mumble, 'I must buy that book...!'</p>
-<p>As for me, my Will Stats surpassed 20, and I was a superhuman man in terms of Will, so even while feeling the magic power emanating from the Fragment of Omniscience, I could remain unaffected, but the others seemed not to be.</p>
-<p>"I can't let them be enchanted like this, so...."</p>
-<p>Chu-eup...! Cheup! Jjeu-beup...!</p>
-<p>"Haa.... What is this, Honey?"</p>
-<p>"Heueu-heung♥ Investor-nim!?"</p>
-<p>"Haa-eum... Chu-beup♥ You?"</p>
-<p>Kissing the three in Turn and teasing them a little with my tongue, only then did they seem to come to their senses, all widening their Eyes and looking at me.</p>
-<p>Fortunate. If they hadn't come to their senses like this, I was thinking of making them come to their senses with Sex. With a Battle ahead, I could avoid wasting Virility.</p>
-<p>Of course, the three who received kisses were making Expressions of slight regret because things didn't progress further.</p>
-<p>-The auction for the Fragment of Omniscience will start from 3,000,000 Points! The bidding increment is 200,000 Points! Everyone, please bid~!</p>
-<p>Unlike other Items starting from 100,000, it was a starting Price of a different Dimension. Of course, if someone were to sell that book for 3,000,000 Dollars, all the Magicians in the World would line up.</p>
-<p>I wouldn't buy it, but in this auction that would be talked about for ages, wanting to place the meaning of having participated, I pressed the bid button.</p>
-<p>I pressed it quite immediately, but the Price had already surpassed 5,000,000 Points.</p>
-<p>-Having surpassed 5,000,000 Points, we will raise the bid by 500,000 Points per increment~!</p>
-<p>If it's 500,000 Points per increment, every time the button is pressed, it means the Price goes up by 700 million Korean Won? It's surprisingly astonishing.</p>
-<p>Separately from my astonishment, the Price of the Fragment of Omniscience rose steeply. In fact, Magicians were a wealthy lot, but I didn't know it would be this much. Of course, various secret organizations or even governments of various countries were aiming for it, so the Price must be rising steeply.</p>
-<p>It instantly hit 8,000,000, and instantly hit 10,000,000 Points. Even after hitting 10,000,000, the speed at which the Price rose remained unchanged. Just by looking at the numbers changing, one could feel the Madness.</p>
-<p>"The Surroundings...! Are going crazy!"</p>
-<p>Lianna Holden, who could use Telepathy, her Face turned pale. When I asked what was wrong, Lianna Holden said that even though she wasn't using her Telepathy Ability, from both rooms next to us, desires were pouring into Lianna Holden's Mind. Those desires felt like they had surpassed a certain Limit. Everyone, with uneasy Expressions, looked at the Fragment of Omniscience, which had already surpassed 30,000,000 Points.</p>
-<p>Requested by MidNightSKY-nim: Pouting Shii and Tsundere Lisa~!</p>
-<p>Shii~!</p>
-<p>Lisa-ttang~!</p>
-<p>Requested by Gojoy-nim: Chapter 24 Taira Yukiko 1. Scene welcoming the protagonist and 2. Scene sitting at the Dining table for a meal</p>
-<p>1.</p>
-<p>2.</p>
-<p>Requested by TheDreaming-nim: Sakagami Shiine being interviewed 1. Hot spring 2. Ryokan</p>
-<p>1.</p>
-<p>2.</p>
-<p>The ryokan doesn't give off the right feeling haha.</p>
-<p>Requested by Chomisaemeonji-nim: Drunken Liz, Liz wrapped in tentacles~!</p>
-<p>Drunken Liz~!</p>
-<p>Tentacle Liz~!</p>
-<p>Actually, tentacles as pretty(?) as on the Cover don't come out well haha.</p>
+<p>As I ran towards the west, which I was in charge of, surprisingly, the fake Black Knight, that is, my Sajo, was here.</p>
+<p>The fake Black Knight was mechanically crushing approaching enemies with Shinkaiyatsude, and it was clear at a glance that he was a formidable Skill user. Especially to my eyes, having trained Shinkaiyatsude for several years, I could tell at a glance that Sajo's Realm was considerable.</p>
+<p>However, during Sajo's prime, Shinkaiyatsude was not the best in Japan.</p>
+<p>After Sajo left, Fujigasaki Rinka, who became an Adult, showed the dignity of Shinkaiyatsude and became the best in the World, so in terms of Talent itself, Fujigasaki Rinka could be said to be above Sajo Soda Haruto.</p>
+<p>And I, who had received numerous privileges and grown until now, was confident that I could overcome and rescue the poor Sajo, who had been Confinement by the Black Sage before my eyes and unable to properly Train for over a decade.</p>
+<p>"I've found the Target. Teams with Leisure, please support this way."</p>
+<p>I first reported finding Sajo to Command.</p>
+<p>Since so many people were involved in the Fragment of All-Knowledge scramble, I wasn't sure if our team guarding the Points would have Leisure, but if I received Help, I could quickly Kidnapping Sajo and escape, so reporting was the priority.</p>
+<p>-Chiik.... The field teams, excluding the sniper team, seem to be mostly in battle right now. Rescue support will come from the Transport team, and the sniper team has also begun to move.</p>
+<p>The Answer came from Command. As I expected, most seemed to be in battle. In the end, I'll have to rescue Sajo alone. The Transport team is for transporting Sajo, and the sniper team won't be of much Help in the rescue.</p>
+<p>"Okay, I'll try to attempt the rescue alone for now."</p>
+<p>After speaking to Command, I approached Soda Haruto, who was blocking a Heupyeolgui trying to turn into blood fog with the Abyss, and then splitting and killing it with his Hand Blade.</p>
+<p>Soda Haruto was probably under some mental restriction by the Black Sage.</p>
+<p>Because I saw two under the Black Sage die just by speaking a certain keyword when I caught them recently, the Black Sage must have placed several restrictions on my Sajo as well.</p>
+<p>Since the period of Confinement was so long, he might even be Brainwashing.</p>
+<p>So, although I used the word "rescue," I was thinking there was almost certainly over a 90 percent Probability that I would have to use force to Neutralization Soda Haruto and take him by Force.</p>
+<p>It's a pleasure to meet you for the first time. I am your grand-disciple.</p>
+<p>Approaching Soda Haruto, who was killing a Heupyeolgui, I first offered a polite greeting. Of course, since there were quite a few Sensitive Ears listening nearby, I didn't reveal my name.</p>
+<p>-Sa... son...?</p>
+<p>A phlegmy Voice was heard from between the black Helmet. Although he said "sason," it didn't feel like he understood the meaning within it. It was merely similar to an animalistic Feeling reacting to external Stimulation.</p>
+<p>As I expected, Soda Haruto was either Crazy, or his mind was Subjugation by the Black Sage, preventing him from making proper judgments. In times like these, I wish my predictions were wrong.</p>
+<p>"T-two Black Knights?!"</p>
+<p>The voices of the Heupyeolgui and underworld gangs nearby, shouting in surprise, were heard. Their surprise was natural. After all, Black Knight was a Celebrity in New York right now.</p>
+<p>He was already famous for stopping the famine, and he was the one who ushered in the current era of vigilantes in New York, so it would be a lie to say he wasn't famous.</p>
+<p>"Keo-eok!"</p>
+<p>Whether the words "Two Black Knights?" had Stimulated Soda Haruto, the neck of the gang member who spoke was grabbed by Soda Haruto.</p>
+<p>As the Fragment of All-Knowledge scramble was close, even though he was a Combatant wearing quite high-grade equipment, he couldn't react at all, his neck was grabbed, and it broke instantly. Hmm.... If I had been close, I would have been attacked immediately, wouldn't I?</p>
+<p>First, I decided to deal with the Guys around from a distance. It was a judgment that I should clear out any Guys who might interfere with the Sajo rescue (?) jakjeon in advance.</p>
+<p>"Haap!"</p>
+<p>To avoid stimulating Sajo and making him Attack me while I was close, I first began to Attack the Guys on the outskirts of this Street.</p>
+<p>Feeling the power enhanced by the Black Knight Armor, and infusing it with Genesis Chaos, I struck with my fist, whether it was a Heupyeolgui or a fully armed gang member, I could equally punch a hole in their breast, creating a donut ring.</p>
+<p>Whether he was Stimulated by my movements, or if he was Stimulated by those moving in surprise as the newly appeared Black Knight attacked indiscriminately, I didn't know, but Soda Haruto was also quickly clearing the Surroundings.</p>
+<p>-Krrr!</p>
+<p>Seeing Sajo send Killing Intent my way with Fading Reason eyes, it was certainly not that they were clearing the Surroundings by mutual unspoken Consent.</p>
+<p>I was doing it to rescue Sajo by force, and Sajo was clearing the Surroundings in anticipation of a battle with an Opponent who seemed to be the strongest Enemy.</p>
+<p>"Crazy Black Knight Bastards...! Retreat! Retreat!!"</p>
+<p>Heupyeolgui shouting "Retreat!" and turning into blood fog. In fact, while it was easy to catch fleeing gangs, it was difficult to catch Heupyeolgui once they turned into fog and fled, so I began to explode Genesis Chaos Energy, prioritizing attacks on the Heupyeolgui that had become fog, catching and killing them.</p>
+<p>One might ask why Attack fleeing enemies, but I couldn't release the Information that there was a fake Black Knight.</p>
+<p>Sajo was also a fake Black Knight, and the US government or the injured parties might demand Responsibility for the jit committed under the Black Sage, so I was completely blocking this Information from leaking out.</p>
+<p>And I didn't want to show these Heupyeolgui and gang members the sight of me beating my Sabu's Sabu (Master's Master).</p>
+<p>"Kuaaaak!"</p>
+<p>After punching a hole in the breast of the last remaining gang member, I stood before Soda Haruto.</p>
+<p>"I am Fujigasaki Rinka's Disciple, Taira Ryuta. Can you hear my Words?"</p>
+<p>Now that there was no one listening, I revealed my True Identity to Soda Haruto and asked.</p>
+<p>-Rin, ka...?</p>
+<p>As expected of a Disciple, there was a Reaction to Fujigasaki Rinka's name. But that Reaction was fleeting, and he still sent Killing Intent my way with hostile Gaze.</p>
+<p>"Huu...."</p>
+<p>I let out a slight Sigh. There's no Help for it. I ended up having to punch him without even proper Introductions with my Sabu.</p>
+<p>Still, to separate him from the Black Sage, this was the only Method, so I had to use force. He was quite a difficult Opponent for me.</p>
+<p>As he was the Sajo I had desperately searched for over the past few weeks, I couldn't Attack him strongly enough to kill him, and just by watching him fight for a moment, I saw what the Black Sage had done, his physical Ability seemed immense.</p>
+<p>Instead, perhaps because he had been confined for a long Time, it was good news that some parts of Shinkaiyatsude's movements seemed a little unstable. Knowing all of Shinkaiyatsude's Martial Arts Forms, I would be able to exploit those flaws.</p>
+<p>"Haat!"</p>
+<p>Since the Situation had come to this, rather than observing Etiquette, making him regain his senses faster would be what both Sabu and Sajo would wish for, so I launched a preemptive Attack.</p>
+<p>Since I didn't know the defense of the fake Black Knight Armor, rather than using destructive Genesis Chaos Martial Arts Forms, I used a basic straight punch with my fist wrapped in Genesis Chaos Energy.</p>
+<p>Huuung!</p>
+<p>Even a basic straight punch, was the very thing that the recently annihilated Heupyeolgui and gang members couldn't withstand even a single blow from.</p>
+<p>Soda Haruto naturally deflected my straight punch, aimed at his Solar Plexus, with the Back of his Hand. Even though he had been captured by Anyaji and the Black Sage for over a decade and lost his Freedom, the Method of responding to Fist Technique still seemed to remain in his Body.</p>
+<p>This is quite admirable, isn't it? However, admiration only has meaning if Sajo is in his right mind, so I continued the Offensive without holding back my hand.</p>
+<p>-Shinkaiyatsude (深海八手) Kuroyamamota (黑山靠: Black Mountain Lean)</p>
+<p>I opened the fist of the deflected straight punch, grabbed Sajo's Arm, which was pushing me away, and pulled. And then I used Shinkaiyatsude Kuroyamamota, a Technique that strikes with the Shoulder.</p>
+<p>Kung!</p>
+<p>Although the Abyss, which is the foundation of Shinkaiyatsude, was absent, the Destructive Power of a Technique used by my large Body, even wearing Armor, could not be absent.</p>
+<p>-Black, Mountain Lean...!? Kuaaaah!</p>
+<p>He seemed surprised when his Opponent suddenly used Shinkaiyatsude. But the Anger of being attacked rose, blowing away the Doubt that had just briefly surfaced.</p>
+<p>As if Sajo also intended to fight seriously, the Abyss bloomed between the gaps of Sajo's fake Black Knight Armor.</p>
+<p>-Shinkaiyatsude (Deep Sea Sea Urchin) Shokushujin (Tentacle Blade) -Shinkaiyatsude (Deep Sea Eight-Hand) Kakekushi (Shadow Skewer)</p>
+<p>Sabu's Counterattack was, as expected, a Shinkaiyatsude Martial Arts Form. Following Shokushujin, which attacked with a Hand Blade, he simultaneously used Kakekushi, which drew sharp Abyss Spears from his own Shadow.</p>
+<p>It was quite a difficult simultaneous attack, moving my body and the Abyss separately. I dodged the Shadow Skewer, and at the same time, blocked Sajo's hand blade attack with the Shinkaiyatsude martial arts form, Shoten'isshoku (昇天一触: Ascension One Touch), by kicking upwards. Then I immediately delivered a spinning back kick to Sajo's chest.</p>
+<p>No matter how difficult the Martial Arts Form combination the Opponent used, he was now merely an Opponent without Fading Reason, using techniques ingrained in his Body.</p>
+<p>It would be different if he used a Martial Art I didn't know at all, but the Opponent was using the same Martial Art as me, Shinkaiyatsude. It was unthinkable for me to be defeated when I knew all the Martial Arts Forms so well.</p>
+<p>"Now I roughly understand the Armor's defense, Sajo. Please wait a moment. I will rescue you from the Black Sage's demonic beast."</p>
+<p>Having finished all my judgments, I took the Opening Ceremony stance of Genesis Chaos Style and spoke towards the rising Sajo.</p>
+<p>Character with a symbol as background requested by Neosblue-nim~! Ryuta was selected~! I chose the butterfly, the symbol of the Tairaga family, but it was difficult to create because actual butterflies and decorations appeared in addition to the background haha. The Last one is a Tiger haha. I'm quite satisfied with the Result, but I won't accept similar requests in the future. The hit rate is too low due to issues with the background coming forward, so I have to keep checking the Illustrations while writing the Novel. Liz requested by Chomisaemeonji-nim, 1. Stuck in a wall, 2. Touching her breasts~! 1. The Last one looks somewhat like a breast mousepad haha. 2. Misano Shinoe requested by Gojoy-nim for Chapter 38, 1. Explaining. 2. Misano Shinoe happily watching Ryuta eat~! 1. 2. Illustration #2 came out with a similar Composition, so I added one failed image and uploaded 3 images haha. Hanakame breast Exposure Illustration requested by Chea Yun-nim~!</p>

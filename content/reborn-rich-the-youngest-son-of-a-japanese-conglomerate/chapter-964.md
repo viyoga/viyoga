@@ -5,85 +5,78 @@ weight = 964
 chapter = 964
 +++
 
-<p>'Are you sure you're okay, Sabu?'</p>
-<p>I asked Fujigasaki Rinka, who was wearing her own Clothes instead of the Hospital gown she had been preparing to leave in. After various tests, there were no problems with her Body other than a few bruises, but I couldn't help but worry since the Abyss sucked out by Takakusaki Gengo was still a problem. She could get seriously hurt if she met an unexpected Strong Person in the USA.</p>
-<p>'Don't worry too much. I'm not going to the USA right away, and I'll go after preparing thoroughly.'</p>
-<p>Fujigasaki Rinka chuckled at my worried Words, slung her Bag over her Shoulder, and said. Then, she looked at Shimokawabe Airen, who was lying next to her.</p>
-<p>'Airen, I'm going now. Get well soon.'</p>
-<p>'Yeah, Ryuta-ssi supported my Chiryo here, so I'll get better soon. Don't worry about me, Rinka, you be careful.'</p>
-<p>Shimokawabe Airen also seemed worried about Fujigasaki Rinka. Even though her Body wasn't in good condition, she was worried about Fujigasaki Rinka.</p>
-<p>I heard that Kijimoto Jurie came yesterday to give her Chiryo and today gave her an unknown Injection, so I hope it helped.</p>
-<p>'I told you not to worry. You're both just full of worry...!'</p>
-<p>She was being testy, but she didn't seem to dislike being worried about, as she slightly raised the Corner of the Mouth and headed out of the Hospital Room. Fujigasaki Rinka and Shimokawabe Airen looked at each other and exchanged a look that only Friends could, then went outside.</p>
-<p>'I'll visit often, Shimokawabe seonsaengnim.'</p>
-<p>'Yes. Please take care of Rinka until she leaves the country.'</p>
-<p>I greeted Shimokawabe Airen and followed Fujigasaki Rinka out of the Hospital Room. There were a few more People outside the Hospital Room besides Fujigasaki Rinka: Yoda old man, Kujo Kina, Genbaki guy, and Genbaki guy's Sabu, Musashi Takuro.</p>
-<p>Yoda old man and Musashi Takuro were glaring at each other and growling, but well, it seemed unavoidable since Musashi Takuro was from Anyaji.</p>
-<p>'What are you looking at, Yoda?'</p>
-<p>'Yoda?! A big guy like you is growling so well...!'</p>
-<p>'What? Should we stop growling and just take action? Huh!?'</p>
-<p>'That's good~! I can beat you up since you're a Michinkae!'</p>
-<p>The two looked like they were about to fight at any moment, but their Disciples, Genbaki and Kujo Kina, seemed to have already given up since this had happened a few times. Since the two of them didn't care much, I, who could be said to be an outsider, couldn't step in, so I took a step closer to Genbaki and opened my mouth.</p>
-<p>'Genbaki, are you leaving with your Sabu too?'</p>
-<p>I asked because Genbaki Kiyohira was also wearing his own Clothes and carrying a Bag like Fujigasaki Rinka.</p>
-<p>'Yeah, the Chiryo for my injured Arm is over anyway, and the only thing left is the cyber implant transplant, but I'm getting that in the USA, so there's no need to be cooped up in the Hospital.'</p>
-<p>He was a sturdy Guy, and thanks to the advancement of medical Technology, his recovery was quite fast. Or maybe Genbaki guy was forcing it even though he hadn't fully recovered. Fortunately, it didn't seem to be the latter, as Genbaki guy's Sabu, Musashi Takuro, was just arguing with Yoda old man and didn't seem too worried.</p>
-<p>For reference, Eve had been working at an incredible speed on Sunday and had already completed the establishment of Adam Cyberware, a cyber implant company. Of course, since cyber implants weren't common items, a few more qualifications were needed for the procedure and sale, so it would take more time, but it would probably be well taken care of by the time Genbaki guy went to the USA.</p>
-<p>I hope it goes well. If the procedure goes well, it'll be good for Genbaki guy, and I've invested quite a bit and have a lot of Share, so I'll be able to make a lot of Money if the company does well.</p>
-<p>'By the way, Kujo, are you sure you're okay? I can take care of Sabu....'</p>
-<p>Kujo Kina, who had decided to go to the USA with Fujigasaki Rinka this time, had stepped up to take care of her, so I had agreed. Since we were going to the USA together anyway, we could make plans together while being together, so I thought it wouldn't be bad for Kujo Kina and Sabu to be together.</p>
-<p>'I, I, I'm okay, seonsaeng...! I, I, I'm fine...!'</p>
-<p>Kujo Kina was a huge fan of Fujigasaki Rinka, so when she said she was taking her to her House, she was trembling all over with Tension and Expectation. She was almost out of her Mind, so I wondered if she would be okay.</p>
-<p>'First, I'll take her to, to our Mansion... and I'm going to move to Tokyo around tomorrow, but before that, I'm going to get all the autographs on Rinka-ttang's stuff....'</p>
-<p>All she was thinking about was getting autographs on Fujigasaki Rinka's Goods besides the Soda Haruto rescue jakjeon, who was my Sajo.... I couldn't help it. She was such a fan that she wouldn't be able to come to her senses until she got the autographs.</p>
-<p>'Okay, take care of the autographs yourself.... Please take good care of our Sabu.'</p>
-<p>'Leave it to me, seonsaeng~!'</p>
-<p>Still, she seemed to have calmed down a bit now, as she made her usual cheerful Expression and patted her chest, saying to trust her. Kina-yang.... Could you please stop hitting your chest like that? It's making them jiggle, so I can't help but look.</p>
-<p>'It's a Nuisance to talk in the Hospital corridor, so let's stop and go down. You two old men, stop it too and let's go.'</p>
-<p>At Fujigasaki Rinka's Words, Musashi Takuro old man and Yoda old man, who were almost nose-to-nose and growling, stopped their staring contest with a 'Heung~!'. As expected, if you have the authority of a Sabu, you can halt a fight between those two Old Monsters with just a single word.</p>
-<p>We took the elevator down to the underground Parking Lot. There was a limousine prepared by Kujo Kina. According to Kujo Kina, this was nothing for her Hero, Fujigasaki Rinka.</p>
-<p>'Sabu, be careful and I'll see you when you leave.'</p>
-<p>'Okay. You said your seonsaeng Work is over? What are you going to do now?'</p>
-<p>Oh~! As I greeted Fujigasaki Rinka, who was getting into the limousine, Fujigasaki Rinka asked what I was going to do.</p>
-<p>'I have a lot of things to do. I have company Work right away, so I'm as busy as Sabu.'</p>
-<p>'Yeah, you're coming to see me off at the Airport, right?'</p>
-<p>'That's why I said I'll see you when you leave.'</p>
-<p>'I see. Then I'll see you then, Disciple.'</p>
-<p>Fujigasaki Rinka waved her hand out the window and left. I watched her go and took out my phone. It was true that I had company work that I had told Fujigasaki Rinka about. First, I need to take care of the Hatake Investment company work. There’s quite an urgent matter. I immediately called Jinmija Yeosa, who was in charge of Hatake Investment Company.</p>
-<p>'Mom, is Work going well?'</p>
-<p>Black cybersuit troops infiltrated the middle of Tokyo's streets in the Evening. It was a street in Tokyo with a lot of foot traffic, but the People in black cybersuits relied on the Darkness and entered a building without being noticed by anyone.</p>
-<p>-CCTV on the Entrance side.</p>
-<p>-Confirmed.</p>
-<p>The People in black cybersuits, who were talking through the communication devices attached to their cybersuit helmets, neutralized the CCTV at the building Entrance with hacking from the VR diver.</p>
-<p>The VR diver, who had been standing in place for a moment with his Hand on his Temple, made a Circle with his fingers and gave an okay Sign, then entered the building with swift and quick Movements.</p>
-<p>-It's strange. There's no one in the Entrance security office.</p>
-<p>-I'll inform the situation room and find out.</p>
-<p>There was no Security Guard who should have been in the security office on the 1st floor Entrance of the building. The leader of the black cybersuit group, who thought it was strange, informed the situation room to find out, while the rest were aiming their Guns at each Passage and waiting.</p>
-<p>-The situation room also couldn't figure out anything about the Security Guard. D-First, hack the security office CCTV data and figure out the situation.</p>
-<p>Whether the VR diver's code name was D-First, the leader of the cybersuit group said, and the VR diver who had just neutralized the CCTV entered the security office. D-First, who checked the CCTV data in the security office, tilted his Head. It was because there was no CCTV data left anywhere.</p>
-<p>-There's no data. It seems like they deleted all the CCTV footage data.</p>
-<p>At D-First's Words, the leader nodded and pointed to the stairs with a gesture. It was a Signal to start. After all, the security office in this building wasn't the main Target. It was just a preemptive Subjugation point to deal with the original Target.</p>
-<p>The black cybersuit group, who climbed the stairs without a single Footsteps, entered the office located on the 2nd floor. The name Hatake Investment company was written on the Door of the office.</p>
-<p>Clink!</p>
-<p>The leading black cybersuit agent, who opened the Door, looked around the inside of the office as if he was flustered. There was nothing there. Hatake Yoshiko, the CEO of Hatake Investment company, who Cheopbo had said would be here, wasn't there, and all the office furniture had disappeared except for one desk in the middle of the empty office.</p>
-<p>It was a situation that the black cybersuit invaders, who had checked the office Photos in advance, couldn't help but be flustered by.</p>
-<p>-There's nothing in the office...!</p>
-<p>-Isn't the Target there either?</p>
-<p>-There's no Target, no furniture, and no one except for one desk.</p>
-<p>The leader asked again at the Report of the black cybersuit agent who had entered first, but the leading agent said that there was nothing except for the desk.</p>
-<p>-Enter for now.</p>
-<p>In preparation for a possible Counterattack, only the leading agent was sent in first, but since they received a Report that there was nothing, the black cybersuit invaders had to check the Scene, so they entered Hatake Investment company's office.</p>
-<p>As the leading agent had said, there was nothing in the office except for the desk in the middle.</p>
-<p>-D-First, transmit the current situation.</p>
-<p>-Yes.</p>
-<p>VR diver D-First started filming the inside of the office with the Camera attached to his helmet to transmit the current situation to the situation room.</p>
-<p>-There's something on the desk!</p>
-<p>Since the first thing they checked was the desk, which was the only item in the office, it was a file folder placed on the desk.</p>
-<p>At the Report of the black cybersuit agent, the leader slowly walked over and checked the file folder. Nothing was written on the outside of the file folder, so he slowly opened the file folder.</p>
-<p>-...!</p>
-<p>On the very first page of the file folder was a Photo of themselves in black cybersuits climbing the stairs. The leader of the black cybersuit agent couldn't help but be surprised when he saw that Photo.</p>
-<p>TheDreaming-nim requested 1. Oofuchi Erika leaning against a vending machine 2. Oofuchi Erika crawling on all fours~!</p>
-<p>1.</p>
-<p>2.</p>
-<p>Neosblue-nim requested Full Armor Full Weapon Alik~!</p>
-<p>Actually, I haven't seen the Gundam you mentioned, so ㅎㅎ I don't know if this is the right feeling ㅎㅎ</p>
+<p>"Ehehehe...! I won. Ryuta-cchi, your cock, now... put it in♥"</p>
+<p>Seizawa Shii, who had won the pussy sandwich match, showed a victory peace sign with both hands and demanded my cock. When I nodded, she kicked Otagi Yuka, who was still trembling from the afterglow of climax, to the side, then patted the bed. Huh? Was she telling me to lie down?</p>
+<p>"Ryuta-cchi must be tired from thrusting your hips continuously, so I'll move on top of you~♥"</p>
+<p>It was probably less for my sake and more because she wanted to run wild on top of me, but since the cowgirl position wasn't bad, I lay down on the bed as Seizawa Shii suggested.</p>
+<p>"Heueung...♥ Ryuta-cchi's cock...! It's been so long, haaheung♥"</p>
+<p>Since I hadn't had celebratory sex (?) with Seizawa Shii after the battle with Anyaji, Seizawa Shii lost her mind at the sight of my cock. As I lay down, she deeply inhaled the scent of my cock, which stood proudly towards the sky, then made an orgasm face, as if she had smelled catnip, saying, 'This is it...!'</p>
+<p>Then she got up, came towards my pelvis, and slowly began to lower her hips. Slowly lowering her hips, she aligned her pussy with my cock and began to insert it.</p>
+<p>Seizawa Shii's tightly closed vaginal flesh was being widened by my glans as it was inserted.</p>
+<p>"Haaah-ha...! This is dangerous...! This feeling♥ It's been so long, heueuung, it feels so good, Ryuta-cchi...♥"</p>
+<p>Seizawa Shii fully sat on top of me, reaching the deepest part, then looked at me, smiled, trembled, and reached a small climax.</p>
+<p>I could feel the texture of Seizawa Shii's pussy, which had her unique powerful clench, and her cervix pressing against my glans. I also felt so good that I almost ejaculated the moment I inserted it.</p>
+<p>"Heueu-heueuung... Ryuta-cchi...! My, heueut, pussy feels good?"</p>
+<p>"Uh...! It's a top-grade pussy that clenches tightly."</p>
+<p>Perhaps satisfied with my answer, Seizawa Shii gave a deep smile and slowly began to move her hips. Seeing Seizawa Shii's breasts sway and her gradually being consumed by pleasure, my cock also began to harden even more inside Seizawa Shii.</p>
+<p>"Haaht! Inside, heueung, if you get so hard...! I can't move, Ryuta-cchi...♥"</p>
+<p>Even as she said she couldn't move, Seizawa Shii's movements grew even more intense. Could the bed withstand it? I worried, but perhaps because Butler Tosen Nobumichi had prepared a luxury item, the bed didn't suddenly collapse.</p>
+<p>Since Seizawa Shii usually had somewhat gentler sex unless it was in the laundry room, I wasn't worried about anything major breaking today.</p>
+<p>Cheolpeok! Cheolpeok...! Cheolpeok! Cheolpeok...! Cheolpeok!</p>
+<p>"Haaht! Heueung...! Haaht! Heuheung...! Haaheung!"</p>
+<p>Seizawa Shii, who was making slapping sounds and moans that had a strange rhythm, seemed to be nearing climax, and her already tight pussy began to contract even more.</p>
+<p>Only my cock could withstand this. If a 500ml plastic bottle were inserted into her pussy now, it would surely be crushed immensely.</p>
+<p>"Haaang, Ryuta-cchi...! I think I'm going to cum...! Haaht! Going to...! Ahaang...♥ I'm cumming...!"</p>
+<p>Seizawa Shii kept saying she was going to cum, then stuck out her tongue and reached climax. Considering she had already had plenty of pseudo-sex with the pussy sandwich, it was impressive that she had held on this long. I was just about to feel the sensation of ejaculation, so it was a little disappointing.</p>
+<p>Thud!</p>
+<p>Just as a beast waits for its prey to weaken, Otagi Yuka immediately pushed Seizawa Shii aside the moment she climaxed. It seemed to be revenge for being pushed away earlier. Then, with a flushed face, she looked at me with a shy expression and opened her mouth.</p>
+<p>"Now, it's my turn, Ryuta-ssi...♥ Come inside me...!"</p>
+<p>In contrast to Seizawa Shii, who had been in the cowgirl position, Otagi Yuka lay down, spreading her legs, revealing her pussy, and waiting for my cock. Was she telling me to taste a different flavor than Seizawa Shii?</p>
+<p>Although it had been some time since she had climaxed, Otagi Yuka's pussy was sufficiently moist, perhaps because she had been aroused watching Seizawa Shii and me have sex. And my cock was also coated with Seizawa Shii's vaginal fluid, so lubrication was ample. I grabbed Otagi Yuka's spread thighs and slowly thrust my waist.</p>
+<p>"Haaheuu...! Ryuta-ssi, I love your cock inside me, haaang♥"</p>
+<p>I, too, liked the feeling inside Otagi Yuka's pussy, which felt like it had countless suction cups. It felt as if it had evolved this way while using my semen as an energy source. Since semen hardly flows out even after creampie, these suction-cup-like protrusions inside must be absorbing the semen.</p>
+<p>"Haaht! Heueung...! Deeper...! Press deeper, Ryuta-ssi...♥"</p>
+<p>Otagi Yuka had just had a massive climax in the pussy sandwich position, but even now, she hadn't moved her hips much, yet her arousal level was visibly rising. Then I should amplify this arousal even more.</p>
+<p>I grabbed Otagi Yuka's wrists and pulled, thrusting my hips more flamboyantly and roughly. As my hip movement grew rougher, Otagi Yuka's moans also grew louder.</p>
+<p>"Heuheu...! Aheu...! Ryuta-ssi, haaheung...! Too hard...! If you do this, heuhaaht...! I can't bear it♥"</p>
+<p>As I vigorously thrust my hips, I felt someone sucking my neck with their lips. Of course, besides Otagi Yuka and me, who were having sex in this room, the only other person was Seizawa Shii, so the one sucking my neck was naturally Seizawa Shii.</p>
+<p>"Haaheung...! Shii, haaheueut...! That's cheating, ahaang...♥"</p>
+<p>Otagi Yuka said, looking at Seizawa Shii sucking my neck. But her voice was mixed with a coquettish moan due to the wave-like pleasure, making it utterly unconvincing.</p>
+<p>Seizawa Shii sucked my neck, then licked my back, moving downwards. Seizawa Shii's final destination was my buttocks and Balls.</p>
+<p>"Keueueut...!"</p>
+<p>As my anus and Balls were alternately sucked, the feeling of ejaculation surged. Since I had already felt some sensation of ejaculation when I was with Seizawa Shii, with the feeling of Otagi Yuka's pussy and Seizawa Shii's rear attack, semen began to rise rapidly. I released Otagi Yuka's wrists, then took longer strokes and began to thrust my hips quickly.</p>
+<p>Otagi Yuka also sensed what was coming, so she grabbed her thighs to stabilize her legs, which were trying to close due to pleasure, and enjoyed my piston movements.</p>
+<p>"Keueu, semen is coming up...!"</p>
+<p>At my declaration of ejaculation, Seizawa Shii lifted her face from my buttocks and pressed my buttocks tightly against Otagi Yuka. The moment Otagi Yuka's clitoris and my pubic bone completely adhered, ejaculation began to explode.</p>
+<p>Byuut! Byuut! Byuuut!!</p>
+<p>Otagi Yuka instantly climaxed at my ejaculation. She showed me a completely defenseless orgasm face, with her eyes rolled back, and her pussy inside squirmed intensely, sucking in my semen. Still, because it was semen that erupted from the explosive release of accumulated arousal from the pussy sandwich, the quantity was so immense that even Otagi Yuka's absorption pussy couldn't help but overflow with semen.</p>
+<p>Seizawa Shii, who had embraced me from behind during ejaculation, letting me feel the soft sensation of her breasts against my back, breathed out a 'Hoo' into my Whispering Ear and then spoke.</p>
+<p>"Now it's my turn, Ryuta-cchi?"</p>
+<p>Ah, she was the type with incredible sex stamina. With Seizawa Shii and even Otagi Yuka having such immense sex stamina, it seemed I wouldn't be sleeping tonight.</p>
+<p>Stomp, stomp, stomp...!</p>
+<p>Seiwa Rieko, who had been lying on the bed, got up. She had heard the footsteps of Otagi Yuka, her Clan Lord, who was in the next room, opening the door and going somewhere.</p>
+<p>'Where is she going at this hour?'</p>
+<p>Seiwa Rieko tilted her Head, waited for a moment, then slowly got out of bed. And carefully opened the door. Otagi Yuka had already passed Seiwa Rieko's door some time ago, so no one was there.</p>
+<p>But Seiwa Rieko had clearly heard the footsteps of where Otagi Yuka had gone. Seiwa Rieko carefully walked in the direction Otagi Yuka had taken.</p>
+<p>The place she followed the sound to was Taira Ryuta's room, the Host and owner of the largest room in this mansion. Light was spilling out of the room, as if the door wasn't closed.</p>
+<p>"First, will you come inside the room?"</p>
+<p>Seiwa Rieko was startled by Taira Ryuta's words, but soon realized that the words were not directed at her.</p>
+<p>They were directed at Otagi Yuka and Seizawa Shii, who were standing in front of the door. The two slowly approached Taira Ryuta, and the scene that followed came as an enormous shock to Seiwa Rieko.</p>
+<p>Two-on-one sex, no less...! It was an incredibly surprising event for Seiwa Rieko. And it wasn't a forced feeling, like what she had experienced. There was a subtle tension between Otagi Yuka and Seizawa Shii, but the expressions they made upon seeing Taira Ryuta's gigantic cock, wondering if it was even a man's cock, were those of ecstatic female animals.</p>
+<p>"...!"</p>
+<p>After that, Seiwa Rieko couldn't help but be surprised. To stack women like a sandwich and then insert a cock between them...! Such a thing, which Seiwa Rieko had never imagined, was happening in this room.</p>
+<p>It was clearly a scene of human reproduction that Seiwa Rieko abhorred, but the appearance of Otagi Yuka, whom she admired, looked incredibly happy.</p>
+<p>"...!"</p>
+<p>Seiwa Rieko slowly put her hand inside her pajama pants. Her groin was drenched with slippery liquid. This was the first time this had happened.</p>
+<p>'Why am I doing this...? I must leave immediately...!'</p>
+<p>Contrary to her thoughts, Seiwa Rieko couldn't stop peeping. To avoid being caught, she even used her Fogification to assimilate into the darkness and watched the trio's sex scene.</p>
+<p>Seiwa Rieko couldn't leave Taira Ryuta's doorway until the blue light of dawn appeared outside the window.</p>
+<p>Gojoy-nim requested Ha Ju-yoon's Breast Covering and Tape~!</p>
+<p>First, Tape~!</p>
+<p>Breast Covering~!</p>
+<p>Hwanbuljeoldaebulga-nim requested Hotpants, Sleeveless Crop Top, Belly button piercing Lisa, and Home Economics Teacher~!</p>
+<p>Home Economics Teacher~!</p>
+<p>MidNightSKY-nim requested Han Yu-gyeong and Ha Ju-yoon's Sexy Attire~!</p>
+<p>Ha Ju-yoon~!</p>
+<p>Han Yu-gyeong~!</p>
+<p>Neosblue-nim requested Maid Alik~!</p>

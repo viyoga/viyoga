@@ -1,0 +1,37 @@
++++
+title = "Chapter 665: Hidden Plots"
+weight = 665
+[extra]
+chapter = 665
++++
+
+<p>"W-wait, I'll talk. No need for torture…"</p>
+<p>"Aww… Are you certain, little rabbit?" Rajah asked, more than happy to spend a few minutes of his life watching her go through excruciating torment. The rabbitkin entourage sitting behind Gorruk seemed to be sweating bullets while trembling from head to toe, the aura of these bloodthirsty apex predators using as rabbits in their analogies didn't sit too well with their mental well-being.</p>
+<p>"Yes…" she replied with a slow, weak bob of her head. The realization she wasn't going to be alive for much longer was visibly sinking into her heart, and it scared her.</p>
+<p>"Excuse me," I spoke up suddenly. "I suggest we send a detachment to get her slave army. As they were left without instructions by their master due to Miss Raika knocking her out, they must be standing next to her giant army of the dead. We should get to them before the lionkin or her other allies do."</p>
+<p>I emphasized the words of her name to let everyone here know we, as in members of the Vesper Consortium, were the ones who got them the necromancer. I was here to accomplish my mission of making a deal with these leaders, after all.</p>
+<p>As for the slaves in question, the necromancer had tens of thousands of undead under her command, but a smaller slave regiment made up of various beastkin was hers as well. They acted as fuel for her army, serving until they died, at which point they would be assimilated into the undead forces, giving her the ability to use her pawns twice. Or so I assumed, alongside the knowledgeable Vex.</p>
+<p>"We…? You're speaking as if you were one of us!" Silver hissed hatefully.</p>
+<p>"The Grim Reaper might not be one of us, but a warrior who displayed honor, bravery, and expertise during a lawful duel has my respect, no matter the race," Gorruk replied with his deep, rumbling voice that echoed across the room, making the old fox flinch. Vargis was naturally on my side after trusting me with his beloved daughter, while Skarn and Rajah didn't seem to think too positively or negatively of me, they were neutral. As such, he was the only one to spite me.</p>
+<p>It made sense to me that they would not have their fellow beastkin's back, after all, these people were warring against each other until the lionkin allied themselves to the Covenant of Eternity, disrupting the balance of the Beastman Confederation and forcing them to work together. A stranger who had done no wrong against them was much easier to get along with than a man who was, directly and indirectly, responsible for killing their sons and daughters as well as their soldiers and citizens.</p>
+<p>"A sensible notion," Vargis nodded before looking at the four leaders. "If you agree to leave the task to me, I'll send an army to get them. The battle took place on my borders, my soldiers are the closest."</p>
+<p>The three apex beastkin nodded their acceptance while Silver scoffed, "Tch! Fine, do whatever you want… But if you dare kill my people!"</p>
+<p>Ignoring his threats, Vargis glanced at one of the ceremonial guards standing next to the necromancer. "We'll take it from here. You go gather an army of the swiftest 3,000, Darius. Find Sova the Windbreaker, she should be in the palace, recuperating from exhaustion. Make your way with her guidance to the resistance base Kargrim set up, and bring the survivors here alongside the enslaved beastkin. Don't do anything to the undead for now. Attacking them would likely result in their activation and consequent retaliation, even without their master's command."</p>
+<p>Hearing the name of the bearkin warrior who led the resistance army, Gorruk's features darkened. Kargrim must've been a stalwart ally of his for a long time. Losing him was akin to losing a brother.</p>
+<p>According to Vex, while I was busy plowing Kitsara in the skies, Gorruk found her and asked for a description of Kargrim's final moments. I hope she could properly relay the image of him and the other beastkin charging at the undead horde fearlessly.</p>
+<p>"Yes, Chieftain," Darius replied with a bow and exited the room.</p>
+<p>"Start singing," Gorruk instructed with a tone that told everyone here he couldn't wait for the moment the necromancer had outlived her usefulness and thus could be dealt with.</p>
+<p>My earlier assessment of her not having long to live might end up false, for it looked like she would be kept alive for years if the decision was left up to the bearkin.</p>
+<p>A shudder traveled alongside the woman's spine as tears swelled in her eyes. She struggled to say anything, but when the second prince reached for a plier and attached it to her teeth, she quickly found her voice.</p>
+<p>"My name is Mirabelle… I'm a lieutenant of the Covenant of Eternity, making me one of their top enforcers. As someone who failed to turn into an undead, my fate was to be the guard dog of the undead leadership who call themselves the Covenant." РÃNοβЕS̩</p>
+<p>"What is that organization of yours doing in our lands?" Vargis asked.</p>
+<p>"... We made a deal with the Alliance of Elvardia. By creating chaos in the beastkin lands, they can gather an army of a size we've never seen before. Humans struggle to invade their lands due to the forests full of elven sentries that border the two nations.</p>
+<p>The beastkin, on the other hand, can invade them from their border through terrain that is free of forests. By having you fight among yourselves instead of attacking Elvardia, they were allowed to reduce their patrols and spend more resources on drafting an army of legend."</p>
+<p>"Is this why that bastard instructed us to herd the greenskins into human lands?" Skarn growled with hatred. Up until now, the beastkin acted lawfully on the surface, which meant they had to obey the word of the current leader, Leohtar Sunfang, until they could defeat him in the annual competition for the title. They only fought back under the table, using rogue resistance forces.</p>
+<p>Things would change now though, as the words uttered by this woman and her mere existence were more than enough to denounce Leohtar and openly rebel.</p>
+<p>And it was finally confirmed that the beastkin were behind the greenskin invasion of the Greenvale lands. I must give it to them—they were right to send them there.</p>
+<p>Alastair Greenvale doesn't seem to be bothered by their presence as the monsters have been rampaging in his territories with little human resistance. His solution was to make patrols around the cities and their direct surroundings while leaving faraway villages to their own devices.</p>
+<p>As for how the land could function without food farmed by the abandoned villages? Greenvale and the Ravensade duchies were frontier lands, and they bordered the two hostile nations. Growing food has never been their concern because the remaining three duchies as well as the Central Region have been responsible for providing them with food and other resources, even human ones.</p>
+<p>I believe Alastair just shrugged his shoulders and thought the others would send serfs to repopulate his villages once the greenskins were expelled or exterminated.</p>
+<p>"Yes… The invasion will require backup from the dukes as well as King Alexios. If they don't react in time, we'll occupy the Ravenshade duchy in the span of a few days."</p>
+<p>"We, huh?" Vex mused, noting how the necromancer's words made it seem like the Covenant was leaving the shadows.</p>

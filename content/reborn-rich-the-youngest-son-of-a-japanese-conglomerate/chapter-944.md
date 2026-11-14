@@ -5,55 +5,83 @@ weight = 944
 chapter = 944
 +++
 
-<p>"Rieko-ssi, as Yuka's first vassal, inherited two of Yuka's traits as a benefit...."</p>
-<p>At first, Sei and Rieko wore expressions of 'What is this all about?', but soon they were listening intently to my words. 'There are Vampires, so there can also be people who see Status Windows,' they must have thought.</p>
-<p>When I explained that Sei and Rieko had inherited Golden Blood and Golden Malice from Otagi Yuka, Otagi Yuka was even more pleased.</p>
-<p>In truth, Golden Blood, which granted resistance to silver, seemed rather unassuming to an uninformed observer. One might have valued Danescu Blaga's combat sense, useful in battle, or Golden Authority, which boosts the Blood Energy Domination that is the Alpha and Omega of Vampires, more highly. However, Vampires, by their very racial nature, were already powerful even without these two traits.</p>
-<p>Because the harm from silver is so utterly fatal, if you observe high-level Vampire Players in games engaging in a desperate struggle to survive, you'll understand just how much of a cheat trait the seemingly plain Golden Blood truly is.</p>
-<p>Especially Otagi Yuka, a Young Lady from a prestigious Vampire Family, knew very well how dangerous silver was to Vampires. Because she understood the true value of her own Golden Blood trait, she was delighted when I told her that her first vassals, Sei and Rieko, had inherited it.</p>
-<p>"And their traits are still only two, because their level isn't high yet...."</p>
-<p>I then explained the two original traits, apart from those inherited from Otagi Yuka. In truth, originally, they should have possessed human traits, but just as Yukiko's traits largely changed when she awakened as a Succubus, most original traits are altered when one's Race changes.</p>
-<p>"They're exactly the right traits for an informant or investigator. Won't the Joseodang covet them?" "For now, let's wait and see a little more."</p>
-<p>Otagi Yuka also seemed to think that Sei and Rieko possessed a combination of traits well-suited for the Joseodang. In truth, they were only Level 4, and depending on how they were developed and what traits they acquired in the future, Sei and Rieko's path could still change.</p>
-<p>"Rieko, from now on, don't speak about the Golden Blood trait to anyone outside of those present here. It's incredibly powerful, but also a dangerous trait."</p>
-<p>Otagi Yuka firmly cautioned Sei and Rieko. Otagi Yuka, too, understood the immense impact Golden Blood would bring the moment she heard my explanation, which is why she urged and urged Sei and Rieko again.</p>
-<p>"Rather, because of Golden Blood, I won't be able to increase my vassals much."</p>
-<p>From the outset, a nascent Blood Clan had to be acutely aware of many things, thus they couldn't indiscriminately increase their vassals. While there was a route to recklessly pursue rapid growth and force a decisive match without regard for the SPF, the standard approach for Vampires, who move secretly at night, was to grow gradually, like spreading an epidemic, without the SPF, other Blood Clans, or the government ever knowing.</p>
-<p>Of course, while Otagi Yuka is a Vampire, I am not, so if Otagi Yuka were to say she would increase her vassals excessively, I intended to stop her. After all, there's no need to unnecessarily antagonize the SPF.</p>
-<p>Next after Sei and Rieko was Saionji Diana. Saionji Diana, too, seemed curious about her own status, her Eyes sparkling brightly through her Hair as she looked at me. 'Then, shall we check it out?'</p>
-<p>◆Name: Saionji Diana (West Garden Temple, Moon Goddess) Lv13</p>
-<p>Stats</p>
-<p>Body Power:6(+14) Agility:12(+15) Stamina:11 Resistance:5(+14) Recovery:5 Sensitive Nerves:12(+10) Appearance:15</p>
-<p>Mind Intelligence:6 Knowledge:6 Focus:8 Will:12 Creativity:4 Charm/Allure:14 Judgment:8(+6)</p>
-<p>Other Luck:3 Cyber Implant Battery:(Arm: 81%)(Legs: 79%)</p>
-<p>Skills</p>
-<p>◆Saionji Style (West Garden Temple Style) (Epic Swordsmanship Lv13) ◆Management (Special Skill Lv8) ◆Riding (Special Skill Lv6) ◆Accounting (General Skill Lv10) ◆Linguistics (General Skill Lv13) ◆Tea Ceremony (General Skill Lv8) ◆Wind Blade Art (Wind Blade Art) (Unique Swordsmanship Lv9) ◆Assassin's Firearm Combat Art (Rare+ Marksmanship Lv9) ◆Wind Reconnaissance (Epic Skill Lv4) ◆Machine Maintenance (Special Skill Lv3)</p>
-<p>Traits ◇Machine Modification-Arm Implant EVE Special Modification Model [Unique Modification] ◇Machine Modification-Leg Implant EVE Special Modification Model [Unique Modification] ◆Swordsmanship Genius [Growth-type Epic Trait] ◆Master's Sensation [Epic Trait] ◆Predator of the Battlefield [Epic Trait] ◆Dance of the Kamaitachi [Unique+ Trait] ◆Sword and Gun Stance [Unique Trait] ◆Wind Affinity [Unique Trait] ◆Modification Efficiency [Epic+ Trait]</p>
-<p>Her Level had gone up by 1, and when I checked her Stats, Recovery and Will had each increased by one. Looking at her Stats, it truly hit me: her Power Stat, combined with her cyber implants, was a whopping 20. That's why it seemed a bit dangerous when they were having sex.</p>
-<p>Unfortunately for Saionji Diana, because her cyber implants were destroyed in yesterday's first battle, she couldn't participate in the fight with Takakusaki Gengo. Thus, she didn't receive the Achievement effect that most people there were presumed to have gained, and her Luck remained at 3.</p>
-<p>How utterly unlucky she must be, that even the chance to raise her Luck through Achievements seemed to have eluded her. Seeing that pathetic number 3, it's a bit pitiful....</p>
-<p>As for her Skills, their levels had gradually increased. With Management, Accounting, and Linguistics Skills at a reasonably high level, it seemed she would be well-suited for secretarial work or even leading another team in the future.</p>
-<p>The newly acquired Skill was Machine Maintenance; it seemed she gained it from managing the cyber implants installed within her.</p>
-<p>Now that I'd reviewed all her Skills, it was time to check her Traits. As a new trait, she had gained Modification Efficiency, which had also appeared in my own Level-up trait choices this morning. Along with Modification Praise, it was one of the most coveted 'wannabe' traits for characters with cybernetic or biological modifications.</p>
-<p>◆Modification Efficiency [Epic+ Trait]: Adaptability to body modification increases. The connection of mechanical circuits or modified nerves becomes precise, greatly increasing the Agility Stat and Sensitive Nerves Stat gained through modification.</p>
-<p>Indeed, when I checked her Stats earlier, I subtly thought the Stat increase was higher than I remembered, and it seemed to be because she had gained Modification Efficiency. Moreover, her current cyber implants are for daily use, so when she uses combat cyber implants, her Stats will increase even more significantly.</p>
-<p>"She obtained quite good things this time."</p>
-<p>I explained the newly acquired traits to Saionji Diana. Although she hadn't gained the Achievement of Witnessing the Birth of a Transcendent, for someone with a Luck of 3, Saionji Diana was surprisingly adept at acquiring good traits.</p>
-<p>In the community before my Possession, there had been a heated debate about whether Luck influenced trait acquisition. Looking at Saionji Diana, it seemed Luck didn't apply, but then looking at Han Yu-gyeong, who was strung along with all sorts of cheat traits, it seemed to apply again. I, too, became curious about the Truth.</p>
-<p>After explaining the traits to Saionji Diana, a car horn blared outside, ppang-ppang! Wondering what was happening, I looked outside the window to see Konoe Akina getting out of the SUV we had ridden yesterday, smiling and waving at us.</p>
-<p>"Akina is here. Let's go out for now."</p>
-<p>Konoe Akina, as the length of the Konoe Family, doesn't work under me, but she is an inseparable Alliance. Having the powerful and prestigious Konoe Family as my Alliance is considerably helpful to my Work and status. Of course, there hasn't been any official announcement or action taken to declare this Alliance yet, but I'll have to reveal it someday.</p>
-<p>As I still held weak power within the Taira Family, I would have to carefully adjust the timing to reveal our Alliance.</p>
-<p>When I went outside, someone came running, do-do-do, and hugged me tightly. It was Alik. He seemed to have been hiding somewhere other than a window that showed the outside, just to surprise me.</p>
-<p>"Ryuta, good morning...!" "Good morning to you too, Alik. Akina, did you sleep well?" "Ufufut, yes, Ryuta-nim...♥"</p>
-<p>Stroking Alik's Head, I also greeted Konoe Akina, asking if she had slept well. Konoe Akina, showing a Smile full of Affection, nodded her Head.</p>
-<p>"I'll drive, so Ryuta-ssi, please check on their status." "I'll assist Sunbae from the passenger seat."</p>
-<p>When Otagi Yuka, who had also acted as the driver yesterday, said she would drive again, Sei and Rieko claimed the passenger seat. After all, since most of them would be strangers, being next to her own Clan Master, Otagi Yuka, seemed to be the most comfortable spot.</p>
-<p>"Okay. First, this is Sei and Rieko-ssi.... Hmm, saying they're Yuka's vassals would be complicated, so from today, they've decided to be with us." "Together...."</p>
-<p>Since it was their first meeting with Konoe Akina and Alik, I introduced Sei and Rieko. When I said they would be together, Sei and Rieko muttered something softly, but Konoe Akina exclaimed, "Oh my! Hello~!" and greeted them so brightly and loudly that I couldn't quite catch what Sei and Rieko had said.</p>
-<p>"I am Alik, and you are.... Echo."</p>
-<p>Indeed, true to Alik's usual self, he immediately gave Sei and Rieko a nickname at their first meeting. I had expected him to say 'Ekko,' but it was just 'Echo,' and I was a little disappointed without realizing it, though Sei and Rieko seemed to like the nickname 'Echo.'</p>
-<p>"Now, if you're done with greetings, get in for now. We can talk in the car."</p>
-<p>Before long, at Otagi Yuka's words, who had already boarded the Driver's Seat, everyone got into the car. And they immediately started to depart. Yesterday, because the matter was urgent, they had handled a few things at the hospital, but today, since they had decided to do various things at the Joseodang Safe House, they departed in a different direction from yesterday.</p>
-<p>"Earlier, when I saw you from outside the window, you seemed to be talking about something enjoyable. What were you talking about?" "Ah, I was checking everyone's status after the battle. I'm going to check both of your Status Windows even in the car, so who wants to go first?" Just then, Konoe Akina asked what I had been doing, so I told her I was checking Status Windows. At my question, "Who should I check the Status Window for first?", Konoe Akina and Alik looked at each other.</p>
-<p>Requested by TheDreaming-nim, Suzuki Chisami 1. Bus Stop Towel Scene 2. Bus Stop Diaper + Tape~! 1. Maybe because I used a lot of LoRA, I don't like the Drawing haha. With the triple input of covering with a towel (LoRA) + bus stop (LoRA) + phone camera (LoRA), it combined strangely with the art style LoRA, so I barely salvaged two images haha. Illustration made as a Prototype without LoRA haha. I used LoRA because I didn't like the bus stop and towel~! 2. Even after creating it without the towel LoRA and phone camera, it wasn't satisfactory, so it seems the bus stop LoRA was the problem ㄷㄷ</p>
+<p>'Somehow, I thought so.'</p>
+<p>Daigo Terue nodded, saying she had expected it, after hearing my confession about my True Identity. This wasn't the reaction I had anticipated. I thought she would be angry because of my infiltration, which could have caused significant harm to the Daigo Family.</p>
+<p>'The Yamashiro Family isn't large or powerful, but it's still a prestigious Family, so the forces that can place someone in such a Family can be counted on one hand. Minamoto Lisa is in the Special Class, so I cautiously thought it might be the Tairaga.... I carefully considered it.'</p>
+<p>Impressive. Of course, Oofuchi Erika had voiced her suspicions about my existence, and she only found out belatedly, but aside from Seizawa Shii, who knew Taira Saburo's face, no one even guessed before I spoke. As Daigo Terue, who had watched the power struggles of prestigious Families unfold in the small world of St. Francis Girls' Academy for a long time, she sharply discerned the truth.</p>
+<p>The reason she could figure out what even some of the Minamoto or Taira couldn't might be because the survival of her Family was at stake for Daigo Terue, making her more sensitive.</p>
+<p>'Since it was because of the Family's mission, I won't apologize.'</p>
+<p>'The Family's mission.... That's right. Someone bound to the Family can't help it....'</p>
+<p>She said she wouldn't apologize for deceiving me, but Daigo Terue nodded as if understanding, instead.</p>
+<p>Daigo Terue herself was also a figure in the upper echelons of the massive Daigo Family, so she knew what a Family mission meant. Because nowadays, people of prestigious Families can take on any dirty mission if they attach the reason 'for the sake of the Family'. Deceiving someone about your identity and getting a job is nothing compared to that.</p>
+<p>'Having a relationship with the Director-nim wasn't because of the mission.'</p>
+<p>'I know that.'</p>
+<p>Daigo Terue smiled at my Words. It was a statement that I didn't seduce her because of the mission, but considering that Daigo Terue misunderstood and we ended up having sex on her own accord, anyone could tell it wasn't because of the mission.</p>
+<p>'I know you're not that kind of person because I've mixed Bodies with you. And since you're no longer a Teacher at our academy, don't call me Director anymore. Just call me Terue.'</p>
+<p>Seeing her ask me to call her by her name, it seemed she wouldn't make an Issue of me hiding my True Identity and getting a job as a Teacher at St. Francis Girls' Academy anymore.</p>
+<p>'Terue....'</p>
+<p>'Yes...!'</p>
+<p>I approached Daigo Terue and called her name. Then, I reached out and grabbed Daigo Terue's necktie, pulling her towards me.</p>
+<p>Daigo Terue moved as I pulled, like a resigned prey caught by a sanyangkkun. As Daigo Terue's face came closer, I started a rough kiss as if I would devour her.</p>
+<p>Jjeub, chwueub! Jjeup, jjok...!</p>
+<p>After kissing for a while, I parted my Lips and looked at Daigo Terue. Then, I opened my mouth as is.</p>
+<p>'Get on the desk and spread your Legs.'</p>
+<p>'Uh-huh...♥'</p>
+<p>Daigo Terue went straight onto her dignified desk and spread her Legs as is. She was wearing pantyhose under her skirt, but she wasn't wearing panties inside the pantyhose. Her aroused pussy was glistening right under the semi-transparent stockings.</p>
+<p>'Were you not wearing panties because you wanted to do it with me?'</p>
+<p>'Because today is the last day at the academy.... I was hoping, just in case....'</p>
+<p>Daigo Terue spoke casually when she was aroused, so I could tell she was quite excited now from her glistening pussy and way of speaking. I had had relationships with other Teachers a few times, but I had never done it with Daigo Terue at the academy. We mostly did it at home.</p>
+<p>'Whether I'm Yamashiro or Taira, you're mine. Got it?'</p>
+<p>'Yes, my Body is yours... hurry♥ Uh-huh?'</p>
+<p>Daigo Terue seemed quite impatient, perhaps because she had a schedule in the afternoon. I hadn't shown it because of my hidden True Identity, but I was planning to violate Daigo Terue in the Director's office to make up for the slight sense of betrayal and the Affection Level that might have dropped, but I didn't know Daigo Terue was thinking the same thing.</p>
+<p>'That, I had the Director's office renovated during the winter vacation.'</p>
+<p>'Huh?'</p>
+<p>'Soundproofing...♥'</p>
+<p>I wondered why she was suddenly talking about construction, but it seemed it was soundproofing. She must have thought she might have sex with me in the Director's office, so she had soundproofing done to prevent the sound from leaking out.</p>
+<p>'You pervert bitch...!'</p>
+<p>'Haaaaaang!'</p>
+<p>I degraded Daigo Terue and touched her soaking wet pussy. I could feel the curves of her pussy under the sensation of the stockings.</p>
+<p>Daigo Terue let out a scream-like moan that sounded like she was fainting, as if she liked being touched over her pantyhose. Whether it was true that she had soundproofing done, no one came to the Director's office to ask what was going on after hearing this loud moaning sound.</p>
+<p>Tututuk!</p>
+<p>Daigo Terue and I both had schedules in the afternoon, so I immediately tore the pussy part of her pantyhose to insert myself. Daigo Terue also hastily reached out and lowered the zipper of my Pants. When my Erect penis popped out as if bouncing up, Daigo Terue wore an Expression of joy.</p>
+<p>'I'll put it in right away.'</p>
+<p>'Uh-huh♥ Come on...!'</p>
+<p>As my glans entered, widening Daigo Terue's lustful Jilgu, which was spewing sticky vaginal fluid, Daigo Terue threw her Head back and reached Climax. She must have been feeling a lot of excitement since she came dressed like this, and my cock put the finishing touch on it, so she couldn't hold back anymore.</p>
+<p>But I didn't have time to consider Daigo Terue's circumstances. I shook my waist violently, not caring whether Daigo Terue was reaching Climax or not.</p>
+<p>'Haaaaaang...! If you do it that roughly...!'</p>
+<p>'Feels good, right?'</p>
+<p>Daigo Terue shook her Head and nodded again at my Words. Was it a feeling that it was too strong of a Stimulation, but she didn't hate it? Of course, even if Daigo Terue said she hated it, I wouldn't have cared and continued to shake my waist. Because there hasn't been a woman who truly hated it so far.</p>
+<p>Due to my violent piston Movements, the fixtures on the desk rattled, and things that were easy to fall, like pens, fell off. But because we were in the middle of violent sex, neither of us cared about it. We were focused on the feeling of each other's Genitals felt from our Genitals.</p>
+<p>'I'm going to cum inside, so catch it without spilling.'</p>
+<p>'Haeuheueung! I'll catch it! I'll catch your pregnancy juices♥ in my uterus...! Cum a lot for me~!'</p>
+<p>As I felt the feeling of Ejaculation rising, I shook my waist even more violently. After grabbing and fixing Daigo Terue's shins, I violently Stimulated Daigo Terue's erogenous zones, including her cervix.</p>
+<p>'Haeueut♥ I'm going, I'm going, I'm going, I'm cumming...!'</p>
+<p>When Daigo Terue reached Climax with her Eyes showing a lot of white due to the more violent Movements, I thrust my cock all the way inside and started Ejaculating. As my cock repeated expansion and contraction and shot out semen, Daigo Terue groaned and reached Climax once again.</p>
+<p>No, she was reaching Climax every time I shot out semen, clearly engraving what a multi-orgasm is into her pussy.</p>
+<p>'Hoo...!'</p>
+<p>After ending Ejaculation, I separated our Bodies that had been closely attached and pulled out my cock, and Daigo Terue shuddered again and reached Climax because of the cock that was scraping her intravaginal as it came out.</p>
+<p>My Number of Sexual Encounters had been very high for the past two days, so the Semen volume wasn't as high as I thought it would be. Of course, by my standards, 'not much' meant it was enough to wet the desk considerably.</p>
+<p>I pulled out a tissue from the tissue box on the desk and wiped Daigo Terue's pussy. It would be a disgrace if she went around with semen dripping from her pussy during her schedule today, so I, who had injected semen directly into her pussy, was providing after-service.</p>
+<p>'Haeuheueung♥ If you wipe me so gently...! Heuaaaat!'</p>
+<p>As expected, Daigo Terue reached a small Climax once again when I wiped her pussy, and she sputtered out vaginal fluid, but she quickly came to her senses and tidied her Appearance.</p>
+<p>'Haa, haa, haa....! I've calmed down a bit now. Thank you for wiping me, Ryuta-ssi.'</p>
+<p>Daigo Terue was breathing a bit heavily, but she smiled brightly and thanked me with her usual cool Appearance. Then, as if she suddenly remembered something, she went 'Ah!' and looked at me.</p>
+<p>'By the way, Ryuta-ssi, are you from a collateral branch? I've never heard of the name Ryuta among the people of the Tairaga.'</p>
+<p>'I'm not from a collateral branch, but I'm from an Illegitimate son. My father was the deceased Taira Saburo.'</p>
+<p>'Ah...!'</p>
+<p>The atmosphere suddenly became strange when the name of the deceased Taira Saburo came out, but I roughly explained the Situation to Daigo Terue and said it was okay.</p>
+<p>'I'm not treated as an Illegitimate son now, so you can think of me as being from the direct Lineage instead of a collateral branch.'</p>
+<p>'Is that so? To think I would have a relationship with someone from the Taira direct Lineage...!'</p>
+<p>Daigo Terue wore an ecstatic Expression after hearing my Answer. Perhaps because she's the Director of St. Francis Girls' Academy, which teaches the daughters of prestigious Families, she seemed to have a prestigious Family fetish.</p>
+<p>'Still, sex that's done so quickly isn't formal sex, got it? Stop by my house before you return to the Family.'</p>
+<p>'I understand.'</p>
+<p>I nodded at her Words to stop by her house. I couldn't be satisfied with just this one short time either. When I nodded, Daigo Terue pulled my necktie this time. And she started whispering in my ear.</p>
+<p>'I'll have Oyakodon prepared and wait♥'</p>
+<p>Daigo Terue, who had offended my sensitive ears with a voice full of lustful aura, chuckled and started gathering her documents.</p>
+<p>She probably means she'll be waiting with Oofuchi Erika, right? What an incorrigible mom...!</p>
+<p>Ryuta the farmer, requested by Inoehgadoegopeun-nim~!</p>
+<p>Lisa, dazed with semen all over her, and Taira Kanna, gone wild after S&amp;M Play, requested by MidNightSKY-nim~!</p>
+<p>Lisa</p>
+<p>Lisa isn't dazed~! Hehe</p>
+<p>Kanna~!</p>
+<p>I don't really know about S&amp;M Play, so I just had her wear Leather clothes and added some Whip marks hehe.</p>

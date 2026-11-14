@@ -5,78 +5,66 @@ weight = 980
 chapter = 980
 +++
 
-<p>before breast chapter check contains exposure please surroundings this your</p>
-<p>"Ryuta-nim, have a good trip."</p>
-<p>Receiving Butler Tosen Nobumichi's greeting, we boarded the van we had arrived in and headed towards the Hatake Investment Company Building.</p>
-<p>Just as it had taken fifteen minutes to get to our Home from the Hatake Investment Company Building, it also took fifteen minutes to go from the mansion to the Hatake Investment Company Building.</p>
-<p>"Boss-nim...! It's an honor to meet you!"</p>
-<p>Entering the Hatake Investment Company Building's Underground Parking Lot required passing through the Security Office. The Security Guards were currently former Prisoners from Anyaji, hired as Security Guards before my PMC license came out, and since they all knew my face as their Boss, they greeted me respectfully as soon as they saw me and raised the parking barrier.</p>
-<p>The reason why the Security Guards, former Prisoners from Anyaji, treated me respectfully, despite me being the one who brought down Anyaji, was because they didn't realize I was the one who had brought them down. Instead, they thought of me as the Young Master of the Tairaga Family who had taken them in when Anyaji fell and they had nowhere to go, so it felt like they were treating a benefactor well.</p>
-<p>"Oh~! Ryuta-cchi Boss-nim~!"</p>
-<p>Ignoring Seizawa Shii's surprised reaction, expressed in a teasing tone (I was a little worried Seizawa Shii might give Jinmija Yeosa a nickname), I parked the car in the Underground Parking Lot, got out, and headed to the elevator with everyone.</p>
-<p>"The lower floors will be used by my PMC, and the middle layer will be used as offices by Joseodang or our smaller companies. And the Upper Layer will be used by Hatake Investment Company and its Affiliate Companies."</p>
-<p>"Then are we going straight to Hatake Investment Company? Mother is there too, right?"</p>
-<p>Seizawa Shii's question made me understand why all the Women had followed me to Hatake Investment Company. It must have been to make an Impression on Jinmija Yeosa, my Mother.</p>
-<p>Of course, Shimokawabe Airen, who still had no Relationship with me, must have come for a different Reason. Most of them seemed to have come to make an Impression on Jinmija Yeosa.</p>
-<p>"Yes, probably?"</p>
-<p>I replied, pressing the elevator button for the floor where Hatake Investment Company's CEO office was located. I felt a sense of buoyancy as the elevator ascended, and with a Dding! sound, the door opened.</p>
-<p>The exterior of the Building was deliberately designed without any particular Individuality, but the interior Design was quite sophisticated. Since it wasn't my Work Place but Jinmija Yeosa's, I had left the interior Design to her, and it seemed to have turned out quite well.</p>
-<p>"The CEO-nim is waiting, Boss-nim."</p>
-<p>Since I had contacted them in advance to say I was coming, the secretary wasn't surprised to see me and immediately guided me to Jinmija Yeosa's office. However, she glanced at the Women around me, making a slight questioning Expression, as if wondering, 'Who are these people?'</p>
-<p>"Son."</p>
-<p>Jinmija Yeosa also seemed quite surprised when so many people suddenly entered, but she quickly hid her surprise, called my name, and smiled. In fact, some of them weren't meeting Jinmija Yeosa for the first time.</p>
-<p>Because we had held several video conferences, Alik, Naruse Shiyo, Otagi Yuka, Saionji Diana, and others were already acquainted with each other.</p>
-<p>"This is Seizawa Shii, a student I taught...."</p>
-<p>"Mother, you're so beautiful~! You look more like Ryuta-cchi's Older Sister than his Mother~!!"</p>
-<p>As soon as I started the introduction, Seizawa Shii fussed (I was a bit uneasy that Seizawa Shii might give Jinmija Yeosa a nickname), and everyone else, not to be outdone, rushed to Jinmija Yeosa, asking about the secret to her youthful looks and the secret to her Skin Texture, trying to build goodwill.</p>
-<p>Jinmija Yeosa seemed a little Embarrassed, but like the strong Woman she was, who wouldn't be intimidated by Taira Jiro, she smiled and accepted the questions and stories from Seizawa Shii and the other troublemakers. But why was Shimokawabe Airen mixed in there? Was she truly curious about my mom's youthful appearance?</p>
-<p>"Everyone, please take good care of my inadequate son."</p>
-<p>"Don't worry, just trust me, Mother~!"</p>
-<p>"Ryuta Oppa, please leave him to me~!"</p>
-<p>"Ryuta, Alik will protect... you."</p>
-<p>Somehow, the Atmosphere felt like 'please take good care of my son,' which was a bit Embarrassing, and everyone saying 'leave him to me' made it feel like we were at an auction house. Soon, the secretary brought coffee and tea, and we sipped them slowly as we began our Conversation.</p>
-<p>"How do you like the new Building?"</p>
-<p>After the commotion settled down, I asked Jinmija Yeosa for her Impression of the new Building.</p>
-<p>"How do I like it...? It's great. The old office was in an old commercial Building, so both the heating and insulation were bad. The water pressure was also weak."</p>
-<p>Indeed... Since she was going to move to Neo Tokyo anyway, she hadn't leased an expensive office, but it seemed to have been quite inconvenient. Jinmija Yeosa seemed extremely satisfied.</p>
-<p>"No unusual occurrences, right?"</p>
-<p>"No. In fact, after that Incident, it's been so quiet it makes me uneasy. Nothing else has happened."</p>
-<p>The Incident Jinmija Yeosa referred to was the attack on Hatake Investment Company's old office by Taira Jiro's side. I didn't know if they were surprised by the strength of our counterattack, which made it seem like everyone had disappeared, or if they were planning something else, but nothing else had happened yet. Joseodang had ascertained that they were busy preparing for the upcoming March Competition. I put down my empty coffee cup and spoke.</p>
-<p>"Then I'll be going. Today is the first day, so I just came to look around."</p>
-<p>Since it was the first day and Jinmija Yeosa was handling Hatake Investment Company's Work well, there was no need for me to interfere, so I decided to leave quickly. I also had to visit other offices.</p>
-<p>"Alright. I can't stop my son, whom I haven't seen in a long time, from leaving less than fifteen minutes after coming to the office."</p>
-<p>"Mom is busy too."</p>
-<p>Jinmija Yeosa grumbled a bit when I said I was leaving, but as the busy CEO of Hatake Investment Company, she soon waved her hand as if telling me to go. I said my greeting and went outside, having to wait outside the office while the other Women took their turns saying goodbye to Jinmija Yeosa.</p>
-<p>After leaving the Hatake Investment Company CEO office, I went to the office of a company called A Tech on the middle layer. A Tech was not a real Enterprise but a shell company established by Joseodang, and Sakagami Rena and Asada Ei were waiting there.</p>
-<p>"Liege-nim...!"</p>
-<p>"Ryuta-nim."</p>
-<p>An unexpected guest was also waiting here: Athena Mannerheim, whom I had thought would be in the PMC office on the floor below. This meant I wouldn't need to visit the PMC office, my next destination.</p>
-<p>"Did you have a good trip to Finland?"</p>
-<p>"Yes. Thank you for understanding."</p>
-<p>It was Athena Mannerheim, who had gone to Finland, where her Parents' Grave was, immediately after the war against Anyaji ended. Athena Mannerheim's Gaze towards me was full of goodwill, as if grateful for my support with Airplane fare and other things.</p>
-<p>"By the way, who is this Lady?"</p>
-<p>Athena Mannerheim felt Tsukiyo's persistent Gaze on her and asked me. Tsukiyo seemed displeased with the white light Aura flowing within Athena's Body.</p>
-<p>Naturally, since Tsukiyo was filled with an Aura similar to the Abyss, she wouldn't look favorably upon Athena Mannerheim, who possessed the opposing Attribute of white light.</p>
-<p>"This is Tsukiyo."</p>
-<p>After the Anyaji war, Athena Mannerheim had made Introductions with everyone, so I only needed to introduce Tsukiyo, the new face, without needing to introduce anyone else.</p>
-<p>"Tsukiyo-ssi. I'm Athena Mannerheim."</p>
-<p>"You inherited the blood of the Light Dragon. Since you are a comrade who follows Ryuta Oppa... let's get along."</p>
-<p>Athena Mannerheim wore an Expression as if wondering what this Woman had just said, but Tsukiyo, as if she had fulfilled her duty by greeting, ignored Athena Mannerheim and bickered with Alik while clinging to my arm, calling me Oppa.</p>
-<p>"How are the trainees?"</p>
-<p>Before the Atmosphere became strange, I asked Athena Mannerheim. I couldn't keep calling them Prisoners from Anyaji forever, so for now, I was calling them trainees. Thirty of them were undergoing basic training, borrowing East Weapon's training center, and the remaining thirty were working as Security Guards in this Building.</p>
-<p>Once the first batch of trainees finished their training, the current Security Guards would begin their training as the second batch of trainees.</p>
-<p>"They are all confident in physical combat and do well, but it's true that their Repulsion towards firearms hasn't disappeared yet."</p>
-<p>The trainees from Anyaji were martial artists who didn't use any weapons, so they seemed to have a Repulsion towards firearms, which could kill a person with a flick of a finger. I had a somewhat optimistic thought that it would resolve itself with time. Still, I should give them a stern warning.</p>
-<p>"Tell them they need to become proficient if they want to get their Salary. Otherwise, they need to have a superpower that surpasses firearms."</p>
-<p>"Understood. I will definitely raise them into excellent agents."</p>
-<p>I gave Athena Mannerheim words of caution. Athena Mannerheim nodded her Head in understanding at my words and replied in a trustworthy Way of Speaking.</p>
-<p>Gojoy-nim requested Han Yu-gyeong's Belly Dancer and Tape attire~!</p>
-<p>First, Belly Dancer~!</p>
+<p>"Then.... let's rest for a bit and see each other at the Competition."</p>
+<p>The family breakfast concluded with me. Taira Danjo and Taira Shizuku left first, and as I rose from my Seat to leave the restaurant, I felt a presence approaching me. When I saw who it was, it was Taira Gensuke.</p>
+<p>"Hey, Ryuta~! Congratulations!"</p>
+<p>While congratulating me, his smiling Expression was a bit awkward. Although he himself was a Branch Manager, with me, the youngest, getting a President's title, he didn't seem to be in a very good Mood. Of course, the Taira Logistics South American Branch might be large in scale, but there's still a difference between a Branch Manager and a President, you see.</p>
+<p>"I didn't know I'd receive this much of a Reward for the mission either. Thank you for the congratulations, Gensuke-hyungnim."</p>
+<p>"Alright.... See you later at the Banquet."</p>
+<p>I deployed the 'I don't know anything' Operation. I pretended to be bewildered, with the Feeling of 'I didn't know Grandfather would give me such a position.'</p>
+<p>"Youngest, congratulations~!"</p>
+<p>"Thank you, Nunim."</p>
+<p>Perhaps because Taira Kisa had her own Business, she offered sincere congratulations and went Outside.</p>
+<p>"Let's go Outside too, Mother."</p>
+<p>"Yes, let's go."</p>
+<p>At my Words, Yukiko also rose from her Seat and exited the restaurant with me. Outside the restaurant, Mimata Chieri and Linxiang were waiting for us.</p>
+<p>"Ryuta-nim~! Did you enjoy your Meal? The Taira Family also provided us with a Meal."</p>
+<p>"Ryuta-nim, I went hungry."</p>
+<p>Perhaps because the Meal was quite satisfying, Mimata Chieri was stroking her Belly and smiling, while Linxiang, who couldn't eat as an android, naturally said she went hungry. An obvious fact doesn't necessarily need to be reported, you know.</p>
+<p>"The Meal was delicious, but eating while talking about Work was a bit uncomfortable. But what about Diana?"</p>
+<p>"She has to guard the Car~! Someone might install something in the Car, you see."</p>
+<p>"During Mealtime, I guarded the Car instead of Saionji Diana-yang."</p>
+<p>Saionji Diana, who came along in the role of driver, seemed to be waiting in the Car. Even so, it's the Taira main family residence, so I wondered if anyone would do anything to the Car, but it seemed she was guarding it just in case. Hearing Linxiang's Words, it seemed she hadn't gone hungry, which was fortunate.</p>
+<p>"Don't just stand here, let's go to the Banquet Hall first. All the Upper Layer people of the Taira Group are gathered there, you see."</p>
+<p>At Mimata Chieri's Words, we moved to another location. As she said, there was no need to talk at the restaurant Entrance. For now, today's Purpose is to let the Upper Layer of the Taira Group know that there is a Person named Taira Ryuta. I'll have to move around quite busily.</p>
+<p>The Banquet Hall was not far from the restaurant. There were many People there, from Presidents of Taira Affiliate Companies to Group Executives, and even representatives of partner companies that weren't part of the Taira Group, giving it the Feeling of a Noble family's Banquet I had seen somewhere. Of course, everyone was wearing Suits or Kimonos instead of splendid Dresses or Noble male Attire, so the Atmosphere was a bit different, you see.</p>
+<p>"First, I'll introduce you to trustworthy People...!"</p>
+<p>Yukiko pulled me along, telling me to just trust her. The People Yukiko introduced me to were from the deceased Taira Saburo's faction, and while they welcomed me, they were also a bit awkward.</p>
+<p>Perhaps it was because they didn't follow me but took Taira Kanna's Faction. Since Taira Kanna was revealing her ambition, it was natural for those who had followed Taira Saburo to go under Taira Kanna for their own Survival. In fact, from their perspective, I was an illegitimate child with no Faction, you see. So I wasn't particularly disappointed or upset.</p>
+<p>"Please take good care of me."</p>
+<p>I didn't make complex Greetings, just saying 'Please take good care of me,' and focused on getting to know the Opponent's Faces first and making my Face known.</p>
+<p>If I only met People from the Saburo Faction, I might be suspected again, so this time I should meet some People from other Successor Factions too.</p>
+<p>For introductions to other Successor Factions as well, I received Yukiko's Help. As the Director of the Talent Development Institute, connected to almost all of the Taira Group, and as Taira Yukiko, who no longer needed to be so wary since Taira Saburo had died, she was welcomed by most.</p>
+<p>"I've heard a lot about Hatake Mining...! Oh, by any chance, could you supply us with Mithril...?"</p>
+<p>Especially the People from Taira Jiro's side welcomed me, and most of them were from the steel industry, so it seemed to be because of the Mithril mine I possessed. Of course, at the Meal earlier, because Taira Jiro had treated me unusually favorably, that Influence might also be at play.</p>
+<p>Thinking about it now, after attacking Hatake Investment Company and realizing they couldn't do anything by Force, it seemed they sent me a Signal to be friendly. Hearing the Story earlier, they said they achieved quite a significant Achievement because of Mithril, so they must have thought there was no need to provoke a stable Mithril supplier like Hatake Investment Company, and since I had almost no Faction within the Group, they probably didn't think I would have a big Influence in the Succession War.</p>
+<p>It wasn't a bad Reaction, and it would be good if I could sell a lot of Mithril, so I took Business Cards from a few People who asked me to sell them Mithril.</p>
+<p>The People from Taira Kokoro's side were mostly from entertainment, Attire, Cosmetics, or department stores, giving a slightly glamorous Feeling, and because I was connected to them through Taira Food distribution, and also thanks to my Appearance, there were quite a few favorable Reactions.</p>
+<p>Of course, unlike the People from Taira Jiro's side, they didn't covet my Mithril, but they had a lot of Interest in Hatake Investment Company. They asked me to recommend Investments or recommended promising companies they knew, so for the Proposals that seemed good, I told them to talk to Ms. Jin Mija and passed the buck to Mom.</p>
+<p>The People from Taira Ichiro's side didn't particularly welcome me, but because Taira Ichiro's Taira Bussan and my Taira Food distribution were connected, they didn't largely ignore me.</p>
+<p>In fact, Taira Bussan, which had its own delivery Yutong network, could create its own logistics even without Taira Food distribution. Therefore, in the Relationship with Taira Food distribution, Taira Bussan could be said to be the 'gap' (superior) and Taira Food distribution the 'eul' (Subordinate).</p>
+<p>Of course, if Taira Bussan ignored Taira Food distribution and handled food Yutong independently, it would be making one neutral Affiliate Company an Enemy, and would also have to invest in purchasing hundreds of refrigerated Cars and securing several cold warehouses, so Taira Bussan, asserting its status, was exploiting Taira Food distribution by giving it minimal Money.</p>
+<p>The next Turn was the non-factional group that didn't follow any of the Successor Factions. In other Words, it was the Faction that could be called Taira Danjo's Faction, and now, with Taira Danjo still strong, the non-factional group was precisely the one with the largest numbers. Of course, some might secretly be shaking Hands with other Successors through some back channels, but what they outwardly claimed was that they only followed the Chairman-nim.</p>
+<p>"Grandmother-nim."</p>
+<p>Nagumo Sian was precisely one of the People affiliated with the non-factional group. She was a pivotal figure, handpicked by Taira Danjo, who transformed the industry's lower-ranked Taira Food into a top 1-2 company, and a mysterious Person who, despite clearly being an old soul, looked only in her 20s, possessing a considerable standing within the Taira Group.</p>
+<p>Of course, now, she was a Woman who subtly supported me, only outwardly appearing non-factional, you see.</p>
+<p>As I greeted her, Nagumo Sian, who had been standing with a slightly bored Expression, smiled, making her Eyes crescent-shaped.</p>
+<p>"Ryuta.... It's been a long time."</p>
+<p>Because she hadn't seen me for a long Period due to missions, Nagumo Sian welcomed me greatly. Of course, she had met me occasionally during missions, so if you count that, it hadn't been that long, but she still seemed happy to see me.</p>
+<p>"Sabu-nim~! Hello!"</p>
+<p>Mimata Chieri also saw Nagumo Sian, greeted her, and called her Sabu. Since Nagumo Sian was a hidden Master who had practiced the immortal arts (仙術) passed down through generations, she said that she had helped Mimata Chieri learn the Eight Extremities Immortal Form Fist, a Fist Technique infused with the immortal arts that she had received from me.</p>
+<p>"Have you been well all this time?"</p>
+<p>"How could I have been well? Ryuta hasn't visited me...."</p>
+<p>At my Question, Nagumo Sian spoke with a slight whine. With an awkward Expression, I said, 'Aww~ you know I was on a mission,' and let her know it wasn't my Mistake. Everything, that Taira Danjo, who gave me the mission, was the bad one, I should push that narrative.</p>
+<p>Taira Yukiko, who was listening nearby, also tilted her Head at my Words, 'Is that so?'</p>
+<p>"This time, having taken charge of Taira Food distribution, I've been going around greeting People from the Group."</p>
+<p>"Then you should have come to me first~!"</p>
+<p>At my Words, Nagumo Sian spoke with a slight scolding tone. In fact, as Nagumo Sian said, since the name of the company I was in charge of was Taira 'Food' distribution, it could be said to be closer to Taira Food than any other company.</p>
+<p>"I have the Personality of saving the most delicious things for last. Meeting Grandmother-nim is the most enjoyable thing, so I saved it until the end."</p>
+<p>In fact, I had just been wandering around thoughtlessly as Taira Yukiko introduced me, but Nagumo Sian seemed pleased with my Answer, and gently pinched my Cheek.</p>
+<p>"Alright, since you've come to our side, I should introduce you to the non-factional People. Come this way."</p>
+<p>This time, I followed Nagumo Sian and headed to the Place where the non-factional People were gathered.</p>
+<p>Nagumo Sian B-cut after a long time~!</p>
+<p>Gojoy-nim requested Camilla's Tape and Breast-covering~!</p>
 <p>Tape~!</p>
-<p>TheDreaming-nim requested Chapter 129 Ghost 1. Masturbation 2. Seongbul</p>
-<p>1.</p>
-<p>2.</p>
-<p>MidNightSKY-nim requested Ryuta shooting Creation Chaos Beam and Sakagami Rena using Wind Release~!</p>
-<p>I mixed in Lora, but it doesn't feel like Creation Chaos haha</p>
-<p>Wind Release Rena</p>
-<p>Kki-wyeot...!</p>
+<p>Breast-covering~!</p>

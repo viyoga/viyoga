@@ -5,81 +5,82 @@ weight = 706
 chapter = 706
 +++
 
-<p>As Christmas approached, the atmosphere in the neighborhood was gradually changing. Actually, there had been such an atmosphere gradually since the end-of-term ceremony, but as the weather became colder, Christmas trees and decorations adorned every corner of the street, and the Christmas atmosphere was gradually escalating.</p>
-<p>I enjoyed that atmosphere and did quite a lot of work before my Christmas Eve date with Minamoto Risa.</p>
-<p>I finished up the TG Tech paperwork and submitted the 3rd semester Korean exam questions, and even reviewed the resumes of the executive candidates for my PMC recommended by Asada Ei and Asada Fukushi.</p>
-<p>And in between, I spent time with Otagi Yuka, Sakagami Rena, Urabe Konoka, Saionji Diana, and Seizawa Shii, who visited my house, spending the night with them in bed.</p>
-<p>Of course, not all the bed visitors were able to go on a Christmas date with me, so they grumbled a bit, but I silenced those grumbles with the thick, long truncheon between my legs.</p>
-<p>-♪~ ♬~ ♩~ ♪~</p>
-<p>On Christmas Eve morning, I listened to carols and drove to the place I had promised to meet Minamoto Risa.</p>
-<p>The meeting place was in Miyashi's downtown area, away from the Minamoto residence. It was rush hour, so there were a lot of people, but because Minamoto Risa was such a beauty, I could spot her even before I parked the car.</p>
-<p>She was standing there wearing a fancy coat made of real animal fur that the heiresses of conglomerates would wear (well, she really is a conglomerate heiress), and it suited her usual haughty appearance so well.</p>
-<p>,Merry Christmas! You're not late, are you?"</p>
-<p>,Of course I'm not late. I can't let you wait too long in the cold."</p>
-<p>I parked the car and rolled down the window, and Minamoto Risa greeted me with a Christmas greeting and a slight eye smile. She was wearing a coat, but her lower body was in a short skirt and stockings, so it would have been quite cold if she had waited for a long time.</p>
-<p>,Get in."</p>
-<p>,Okay~!"</p>
-<p>I was driving a different rented sports car, not the one I usually drive. The Minamoto Group would know my car as the homeroom teacher's, and the date could be canceled by the Minamoto Group before it even started, so I rented a car to prevent them from tracking me right away.</p>
-<p>Of course, if the Minamoto Group wanted to track me, they could, but they wouldn't be able to react quickly enough to interfere with the date. If I want to date Minamoto Risa, I have to put up with this much.</p>
-<p>,You changed your car?"</p>
-<p>Minamoto Risa opened the car door and said as she got into the passenger seat. The scent of Minamoto Risa's frequently used perfume and Minamoto Risa's unique pheromones filled the car, stimulating a man's instincts.</p>
-<p>,I rented it. In case the Minamoto Group tries to interfere with our date."</p>
-<p>,Ahahaha! You didn't want to be disturbed on a date with me?"</p>
-<p>Minamoto Risa laughed loudly as if my answer was funny. I listened to Minamoto Risa's laughter and started the car.</p>
-<p>,Don't worry too much about our family. I talked about it well at the meeting on the last day of school."</p>
-<p>I'm curious about exactly what she said at the dinner on the last day of school. I've talked about this topic before, but I didn't go into detail, so I was curious about what was said at the dinner.</p>
-<p>,Exactly how did you talk about it?"</p>
-<p>,Yeah, I talked about it well this time, so the family decided to stop meddling in my marriage."</p>
-<p>Hmm, that's a bit unexpected. A prestigious family like the Minamoto doesn't see marriage as the result of love between a man and a woman, but as a political union between families, so they don't give up arranged marriages easily.</p>
-<p>The Seizawa family, who don't interfere if they don't receive anything from the family, is a very unusual case, and usually prestigious families mainly have arranged marriages. Moreover, Minamoto Ushin was a fool for his youngest daughter, even recognized by the Taira intelligence team. But he said he wouldn't care about marriage? Hard to believe....</p>
-<p>,Your father allowed that? The guy who tried to get me fired for holding your shoulder a bit during our three-legged race at the sports day?"</p>
-<p>,Yeah, I guess he realized something from this incident."</p>
-<p>Minamoto Risa said nonchalantly. It would be believable if Minamoto Ushin said it himself. Sugawara Chohei, who was the marriage candidate this time, was such a mess that he might have changed his mind.</p>
-<p>,By the way, do you like sports cars? Seeing that your original car and the car you rented this time are both sports cars."</p>
-<p>,Actually, there's no car I particularly prefer. My original car was provided by the family, and I got this car now because I'm dating you, so I wanted to block any interference and get a car that's suitable for a date."</p>
-<p>,Heeh.... Is that so?"</p>
-<p>Minamoto Risa seemed quite pleased when I said I rented it to go on a date with her. I glanced sideways as she crossed her legs in the passenger seat, and she smiled like a little devil.</p>
-<p>,If you cross your legs like that, any man will look...."</p>
-<p>,I didn't say anything?"</p>
-<p>When I said that as an excuse, Minamoto Risa crossed her legs in the opposite direction again as if it was fun. I pretended not to see while looking at the road on purpose, but this time she put her feet on the car dashboard and started messing with my view like a nuisance passenger.</p>
-<p>A quick glance.</p>
-<p>When I couldn't stand it and looked at Minamoto Risa's legs, she laughed as if she had done it.</p>
-<p>I seemed to have become a bit more comfortable. When I was first appointed at the beginning of the semester, she was wary of men because of the previous homeroom teacher, and even had a bit of a misandrist feeling. Now she's developed to the point where she can play such lewd pranks, so I was deeply moved.</p>
-<p>,Are you a pervert?"</p>
-<p>,Any man is bound to become a pervert in front of pretty legs."</p>
-<p>,Hehe, so you're saying my legs are pretty? You're good at saying nice things."</p>
-<p>Minamoto Risa, perhaps embarrassed by my answer, lowered her legs again, contrary to what she said. The atmosphere subsided for a moment, and she was looking out the window.</p>
-<p>The scenery outside was quite good, and driving on the road with Mount Fuji in the background didn't make the two-hour distance feel that long.</p>
-<p>,Oh...? It's snowing."</p>
-<p>When we were about fifteen minutes away from Tokyo, it started to snow from the sky.</p>
-<p>At first, small snowflakes like sleet scattered sparsely, but before I knew it, quite large snowflakes were falling like pouring down. It wasn't a blizzard, but it was about the size of large snowflakes, and if it got worse from here, it would interfere with the date.</p>
-<p>,It's snowing quite a bit.... Are we not going to be able to do the date we planned today?"</p>
-<p>,I know. The weather forecast said it would snow, but only a little."</p>
-<p>It was rare for any weather agency in any country to work properly. Our plan included walking around downtown Tokyo quite a bit, but with this much snow, it would be better not to go outside.</p>
-<p>,But let's try to do a few things we planned to do first. If it doesn't work out, we can take a taxi and rest at the hotel."</p>
-<p>,Okay...."</p>
-<p>Minamoto Risa answered quietly, perhaps shrinking back a little at the word hotel.</p>
-<p>Minamoto Risa was planning to go to the Minamoto main house by plane early tomorrow morning to spend Christmas with her family, so I had booked a hotel, but the fact that she was staying at a hotel meant that she was thinking about it a little, so I was wondering if it was today?</p>
-<p>,But it's a white Christmas, so the atmosphere is good."</p>
-<p>,Yeah, it's nice to see the snow piled up on the Christmas decorations."</p>
-<p>The streets of Tokyo were decorated splendidly for Christmas, so it was even more enjoyable to watch as it snowed. We drove along the decorated streets and decided to park the car at the 5-star hotel we had booked in advance.</p>
-<p>,Let's park in the hotel parking lot first...."</p>
-<p>We parked the car in the parking lot of the hotel we had booked and got out. Actually, Christmas dates were good to do at night because of the various lights and events, so I decided to indulge in Minamoto Risa's hobbies now in the morning and afternoon when the sun was out.</p>
-<p>,Ugh, I'm nervous...."</p>
-<p>You're the only one who gets nervous about going to Akihabara, you know?</p>
-<p>I was planning to look around the classic anime and manga stores in Akihabara with Minamoto Risa.</p>
-<p>Even though it was classic anime, it varied depending on the era, but Minamoto Risa and I had in common that we liked works from the 2010s to the 2020s.</p>
-<p>Of course, I was just looking at how the works I watched in the pre-possession era ended, but for Minamoto Risa, who didn't have any friends to share her hobbies with, even a light fan like me was qualified as a hobby companion.</p>
-<p>Minamoto Risa was thinking of sweeping up all kinds of goods there. Of course, she had a lot of money, so I decided to play the role of Minamoto Risa's brake.</p>
-<p>Minamoto Risa told me to stop her if she felt like she was going on a rampage, so I can stop her with peace of mind.</p>
-<p>,But it's natural to be excited because it's the first time."</p>
-<p>,The first time? You said you often hang out in Tokyo?"</p>
-<p>,Shii doesn't have any hobbies in this area, so I didn't want to force her to hang out with me, and I was a bit hesitant to go alone...."</p>
-<p>I understand why she's a little nervous if it's her first time. I nodded as if I understood Minamoto Risa's excuse and took Minamoto Risa's hand.</p>
-<p>When I came out of the parking lot, the snow had subsided compared to before. Fortunately, it wasn't enough to interfere with the date.</p>
-<p>,Then shall we go enjoy our Christmas date?"</p>
-<p>,Okay...."</p>
-<p>Minamoto Risa blushed and answered shyly when I held her hand and said it was a date. She looked so cute that I almost hugged her tightly without realizing it.</p>
-<p>_____________</p>
-<p>Minamoto Risa B-cut!</p>
-<p>Kkyoooot!</p>
+<p>"They say the entrance is over there."</p>
+<p>While heading towards where I Yeon-ju was pointing, the Red Revolution Front terrorists blocked us from time to time, but they couldn't stop the rescue team that was well-prepared.</p>
+<p>I used psychokinesis to help my comrades avoid injuries as we advanced, and a few of the agents who didn't realize I was a psychic looked at me in surprise.</p>
+<p>Recently, Vanguard had also recruited a few psychics, and according to Han Yu-gyeong-ssi, they were currently undergoing basic training. They were showing pro-psychic moves and laying the groundwork for creating a psychic unit in Korea.</p>
+<p>In the first place, except for two or three giant corporations that had psychic units, Vanguard was the most actively recruiting in Korea, and Vanguard had an advantage because I had passed on a list of good psychics to Han Yu-gyeong-ssi.</p>
+<p>Of course, since the psychic famine had happened less than half a year ago, there was still some reluctance towards psychics, so many hidden psychics were not coming out.</p>
+<p>I think we'll be able to recruit more from next year, though. I was watching the atmosphere at that time because it was important.</p>
+<p>"It seems to be here."</p>
+<p>I Yeon-ju said, looking at the destroyed door of the largest-looking building. Did Lara Sinclair destroy the door when she entered?</p>
+<p>"Since there are no other troops outside, it seems that everyone has gone inside the lab to chase the research team."</p>
+<p>We took care of about a hundred people while coming to the entrance of the lab building, but in North China, which prides itself on its large population, the Red Revolution Front, a terrorist group, was also famous for its large numbers, so a hundred or so was not a large force.</p>
+<p>"Let's break in too."</p>
+<p>"I'll set up landmines near the entrance. That way, we can prevent being attacked from the front and back."</p>
+<p>At my suggestion to go inside, I Yeon-ju said she would set up landmines and had the Vanguard agents bury landmines near the entrance.</p>
+<p>"These landmines send a one-way radio wave to us at the same time as the explosion, so we won't be ambushed from behind."</p>
+<p>Even if there was no internet or satellite communication, the walkie-talkie could be used, so there was no problem receiving the signal from the landmines.</p>
+<p>"Let's go in now."</p>
+<p>At I Yeon-ju's words, I took the lead again. If I tanked at the very front, the damage to the group would not be great even if we encountered the enemy, so I volunteered to take the lead.</p>
+<p>"Hmm... the road splits here."</p>
+<p>I Yeon-ju muttered, looking at the stairs leading to the basement and the stairs leading to the second floor. From the outside, it looked like a large building with about 5 floors above ground, so I could tell how much it was above ground, but I couldn't tell how deep the basement was.</p>
+<p>But having played the game, I knew that the basement was about 20 floors deep. So people who played the Red Revolution Front headquarters episode sometimes called this lab building an underground labyrinth.</p>
+<p>Because you have to keep going deeper. Especially when there is no information, posts like 'Where is the last floor?' often appeared in the community.</p>
+<p>"Let's do this. Let's divide the team in half, quickly look around the odd and even floors above ground as quickly as possible, and then go down to the basement together."</p>
+<p>Whether it was the enemy or Lara Sinclair's group, they probably weren't above ground, but it was still important to check.</p>
+<p>"Okay. Let's divide into my team and Yong-tae-nim's team."</p>
+<p>We quickly divided into teams and received a walkie-talkie. Because the sound of the walkie-talkie could alert the enemy, we decided to make a whoosh sound first when contacting each other. We decided to wait if there was no answer, and if there was an answer, we would talk to each other, and I went up to the second floor.</p>
+<p>Since we had already gone around the first floor together, my team would take the even floors, 2nd and 4th, and I Yeon-ju's team would take the odd floors, 3rd and 5th.</p>
+<p>"Who is it? Keu-ak!"</p>
+<p>"Kuai tao!"</p>
+<p>I quickly moved around the area I was in charge of, taking out the enemies that appeared from time to time. I don't know what they're saying because I don't know Chinese, but judging from their reactions, it's probably something like 'Who is it?' or 'Run away!'</p>
+<p>"Y-you're amazing...!"</p>
+<p>"It's nothing."</p>
+<p>One of the Vanguard rescue team members said in admiration as I broke the heads of each enemy wearing an old-fashioned combat helmet with my fists without using a gun. I couldn't see his expression because he was wearing a combat helmet, but judging from his voice, he seemed very impressed.</p>
+<p>-Whoosh, whoosh</p>
+<p>Just as we had quickly searched all the areas we were in charge of, I heard the sound of wind from the walkie-talkie. I thought we had searched quickly, but I Yeon-ju's team searched even faster?</p>
+<p>"We have finished the search. There were some enemies, but Lara Sinclair's group was not there."</p>
+<p>-We neither. Then let's meet at the entrance to the basement.</p>
+<p>A little later, we met at the entrance to the basement. I told I Yeon-ju about the few battles on the even floors and that there was no trace of Lara Sinclair.</p>
+<p>"We also had one or two battles, but we were able to subdue them easily because they didn't expect our intrusion. The 5th floor is connected to the helipad, so there weren't many rooms, so we were able to finish the search quickly."</p>
+<p>I was wondering how they were faster than me, but there weren't many rooms to search on the 5th floor. Still, judging from the fast combat speed and the fact that I didn't hear any gunshots, it seemed that they had taken out the enemy before they could react by using silent nail guns and TG Tech's guns.</p>
+<p>"Let's install a beacon at this entrance. Since we can't install landmines, we'll use a method of giving a signal when someone passes by."</p>
+<p>It seemed like they were just installing a beacon because installing something similar to a landmine could lead to it being buried in the basement.</p>
+<p>After installing the beacon, we quickly went down to the basement.</p>
+<p>"Shi di ren!"</p>
+<p>"Sha le ta."</p>
+<p>As soon as we entered the basement, soldiers from the Red Revolution Front, whom we hadn't seen much of on the ground, began to pour out.</p>
+<p>As expected of a terrorist group, it felt like they preferred the basement to the ground. If they were in a building above ground and turned on the lights at night, it would let people know that there were people in this abandoned research facility, so they must be in the basement.</p>
+<p>We didn't kill all the enemies we met, but we kept one or two alive and interrogated them about where Lara Sinclair's group was, but the enemies didn't know the exact location either.</p>
+<p>"Well... that's a relief, actually. Knowing the location would mean that Lara-ssi is in danger."</p>
+<p>I Yeon-ju confiscated a walkie-talkie from a Red Revolution Front terrorist and handed it to an agent who could speak Chinese. If they had the enemy's walkie-talkie, they would know what was going on.</p>
+<p>As we were annihilating each floor and came down to about the 3rd floor, we heard a sound from the Red Revolution Front's walkie-talkie.</p>
+<p>Each floor was large, so it took quite a while, but it was a welcome call that we could get some information.</p>
+<p>-Di ren zai di xia shi wu ceng!</p>
+<p>"What are they saying?"</p>
+<p>"They say the enemy is on the 15th floor underground."</p>
+<p>The agent who could speak Chinese answered with an urgent expression when I asked. The fact that the floor was specified seemed to mean that Lara Sinclair's location had been discovered after all.</p>
+<p>"It seems like Lara-ssi's location has been discovered, so let's go down as quickly as possible!"</p>
+<p>I Yeon-ju also shouted urgently. We were on the 3rd floor underground, so we had to go down a whopping 12 floors underground. And the enemies who heard the radio would be coming on the way... Would we be able to make it in time?</p>
+<p>The elevator was already going down at a fast speed, and if we took the elevator, they would attack us with a bomb, so we chose the stairs.</p>
+<p>When we went to the stairs leading to the next floor, we saw the Red Revolution Front troops who couldn't take the elevator going down with a tatatatak sound.</p>
+<p>"It won't be easy...?"</p>
+<p>I Yeon-ju said with a serious expression because of the large number of troops. I thought for a moment and then opened my mouth.</p>
+<p>"There's one way."</p>
+<p>"What way is it?"</p>
+<p>At I Yeon-ju's question, I pointed to the space between the stair railing and the stair railing.</p>
+<p>"If I jump this way, I can go straight down to the 15th floor."</p>
+<p>At my words, everyone except I Yeon-ju looked at me with a 'what are you talking about?' look, but I Yeon-ju, who knew my skills well, thought for a moment and then nodded.</p>
+<p>"Then Yong-tae-nim, please go down first and save Lara Sinclair-ssi. We'll go down from behind while reducing the number of enemies."</p>
+<p>"Okay. I'll see you soon."</p>
+<p>After getting I Yeon-ju's consent, I immediately jumped over the stair railing. Of course, I fell down due to gravity, and I started counting the floors in my head to avoid making a mistake in the falling floor.</p>
+<p>4th floor... 5th floor... 6th floor....</p>
+<p>Of course, I was falling at a tremendous speed due to gravitational acceleration, and each floor was passing by quickly, but since I was already beyond human perception, I was counting the floors well without making a mistake.</p>
+<p>13th floor... 14th floor... 15th floor! Got it!</p>
+<p>Kwajijik!</p>
+<p>I grabbed the railing on the 15th floor. The aluminum railing was bent as if it would break under my weight, but I floated my body with psychokinesis to prevent the railing from breaking.</p>
+<p>Before jumping over the railing on the 15th floor and entering the entrance on the 15th floor, I quickly looked at the Red Revolution Front enemies who were coming down. All of the Red Revolution Front terrorists were wearing combat helmets like old military helmets instead of combat helmets that covered their entire heads like us, so I could see their expressions.</p>
+<p>They seemed to be feeling a bit of fear at the sight of my huge figure suddenly falling from the sky. I need to turn this slight fear into despair.</p>
+<p>______</p>
+<p>SD Shii!</p>

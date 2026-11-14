@@ -5,86 +5,91 @@ weight = 38
 chapter = 38
 +++
 
-<p>"No, miss! You need to step on the brake. That's it. If you press it too hard..."</p>
-<p>Thump! The car lurched to a stop because she braked too hard, and the instructor sighed slightly, looking at Gokado Hanako.</p>
-<p>"I'll take the car back to the starting point, so let's take a ten-minute break. Come back to the starting point in ten minutes."</p>
-<p>"Yes."</p>
-<p>Gokado Hanako had never had trouble learning anything until now, but driving felt a little difficult. She enjoys exercising and isn't clumsy, so why is this happening? Gokado Hanako walked around, reviewing what she had learned from the instructor in her head for a short while. Then, without realizing it, she ended up behind a secluded building.</p>
-<p>'Huh? There's a car?'</p>
-<p>Why is there a car in a place like this? Gokado Hanako thought, quietly approaching the car. The car was shaking in a steady rhythm, and as she got closer, she could see a man's toned back muscles, spinal erectors that looked to be about a hand's breadth wide, and buttocks that looked as hard as pebbles shaking back and forth.</p>
-<p>Looking down a little, she saw a huge, snake-like cock stretching a woman's pussy to its limit, moving back and forth.</p>
-<p>'Ah! So there were dicks that big, Tokiatsu-chan's wasn't that big...'</p>
-<p>Gokado Hanako inadvertently compared him to her boyfriend, Honjo Tokiatsu. What would it feel like to be penetrated by such a huge cock? Shaking her head at the thought, she wondered who was secretly having sex in this secluded place and took a closer look, only to find that the man was Taira Ryuta, who had saved her earlier.</p>
-<p>"Oh my!"</p>
-<p>Gokado Hanako, making a sound without realizing it, covered her mouth with her hand and slipped away. It was almost ten minutes, as the instructor had said. Gokado Hanako returned to the starting point in a bit of a daze.</p>
+<p>Hmm.... It felt wrong to keep thrusting against Arisu-ssi after she fainted and fell asleep, so I put my pants back on. It's only 10:30, so I can't sleep yet. I heard there's a cocktail bar on the 100th floor, two levels down, where you can enjoy the night view while drinking, so I got dressed and went down. I sent Arisu-ssi a LINE message saying I was going for a drink, just in case she got worried.</p>
+<p>I don't know much about cocktails, but I like a refreshing and sweet mojito, so I ordered one and drank it while looking at the Tokyo night view. Luckily, the Tokyo Tower was on my side, so it was even more spectacular.</p>
+<p>"Did you come alone?"</p>
+<p>A brown-haired woman in a revealing red dress, like she'd just come from some event, spoke to me. Her breasts are quite large. Must be a C cup. It's my first time being hit on by a woman. Is this the power of my face?</p>
+<p>"If you're talking about TERT, then no. If you're talking about this cocktail bar, then yes."</p>
+<p>"Hmm.... What about your partner who came with you?"</p>
+<p>"She's sleeping soundly. I came down for a drink before going to bed."</p>
+<p>She subtly stroked my shoulder while asking, so I answered honestly.</p>
+<p>I'll keep you company while you have a drink. I'm Hoshino Riho.</p>
+<p>"Hoshino Riho?"</p>
+<p>Hoshino Riho was one of the top actresses in her thirties in Japan. She was an actress with excellent acting skills that crossed between sexiness and innocence, and had a lot of hit movies. That kind of person is talking to me, who's just sitting here? I didn't look closely at her face because of her clothes, but when I looked at her face, it was Hoshino Riho.</p>
+<p>"Ah, I'm sorry. I'm Taira Ryuta."</p>
+<p>"Taira?"</p>
+<p>This time, Hoshino Riho was surprised. It was natural for her to be surprised since this TERT is owned by Taira Entertainment.</p>
+<p>"Um.... Just think of me as the youngest nephew of Taira Kokoro-gomo. I've only seen her face twice, though."</p>
+<p>"Hehe.... Is that so?"</p>
+<p>Before I knew it, Hoshino Riho was sitting next to me, taking a sip of a red cocktail with a cherry in it.</p>
+<p>"Do you know? You smell so good?"</p>
+<p>"I don't really wear perfume?"</p>
+<p>Well, I did drink the Eternal Perfume, but I didn't spray it, so it's not a lie. Arisu-ssi didn't say anything, so I thought there was no special smell and only my charm stat went up, but is it smelling now because it's being digested, maybe?</p>
+<p>"It's my natural scent."</p>
+<p>When I rolled up my sleeve and held out my arm, Hoshino Riho inhaled deeply, like someone inhaling drugs. It's a bit erotic?</p>
+<p>"I guess so. Perfume is usually sprayed on the wrist, but it's naturally coming from your forearm."</p>
+<p>"It's good if it smells good."</p>
+<p>"I smell like perfume."</p>
+<p>She held out her neck as if telling me to smell it, just like I did. Hmm.... Is she testing me? I buried my nose in Hoshino Riho's neck, like she did, and inhaled the woman's scent as much as I could. The pheromone scent of a woman, the scent of perfume, even a slight smell of sweat.... It was a scent that excited men a lot.</p>
+<p>Arisu-ssi fainted in the middle of it, so I couldn't even come and came out awkwardly, so I got aroused by the stimulus of the smell without even realizing it. And it was really hard.</p>
+<p>"You must use good perfume."</p>
+<p>"I guess so. Seeing how it got like this...!"</p>
+<p>Hoshino Riho answered my question and secretly reached down to grab my Johnson. And she flinches when she feels my size. And then she smiles bashfully. Is this acting? Hoshino Riho's expression was so seductive that my dick got even harder.</p>
+<p>"I can see why your partner is sleeping soundly."</p>
+<p>Hoshino Riho drank all the remaining cocktail. She picked up the stem of the remaining cherry, bit it with her lips, and removed the stem. Then she grabbed my face with both hands and passed the cherry into my mouth. It's my first cherry kiss. I didn't refuse and accepted Hoshino Riho's kiss. It was definitely sweet with Hoshino Riho because of the cherry.</p>
+<p>"Hoo.... Since you took my cherry, you have to grant me a favor."</p>
+<p>She put it in my mouth herself, but look at this girl? I was dumbfounded and laughed, asking what the favor was.</p>
+<p>"You have to have another drink in my room."</p>
+<p>"Does this cocktail bar do takeout?"</p>
+<p>"Of course."</p>
+<p>Hoshino Riho grabbed my wrist with a gentle hand and pulled me up. Hoshino Riho ordered a Manhattan from the bartender, and I also took out a mojito. A red cocktail with a cherry in it.... This is Manhattan. She put the Manhattan in a plastic cup with a lid, and soon the mojito came out in the same plastic cup.</p>
+<p>Hoshino Riho's room was on the 107th floor, higher than the 102nd floor where Arisu-ssi and I were staying. It looked better because it was higher. The room was number 2. As soon as she entered the room, Hoshino Riho seemed to have forgotten about having a drink in the room, put aside the cocktail, and started kissing me.</p>
+<p>I tore off her clothes. As expected of a top actress, Hoshino Riho's body was good. It wasn't a model body like Arisu-ssi, but it was a well-maintained body. Her breasts were big and her face was beautiful, so any man would drool over her.</p>
+<p>When I bit her light brown nipples and tickled them with my tongue, she threw her head back, saying, "Kyaaheung!" Her sensitivity is good.</p>
+<p>Hoshino Riho spread her long legs in an M shape as if showing off her pussy. I lowered myself slightly and looked at her pussy. It was worth showing off. It was a moist, pink pussy that looked young for a woman in her 30s. The scent wasn't bad, and it tasted good when I licked it with my tongue.</p>
+<p>As I continued to lick her with my tongue and caress her Clitoris with my hand, she writhed in pleasure.</p>
+<p>"Haaeeunge~! You're so good! Haaheung!"</p>
+<p>I caressed her appropriately and pushed my red, erect dick into her pussy. Hoshino Riho was looking at my dick piercing her pussy with eyes full of fear and anticipation.</p>
+<p>"I've never seen a size like this before...! Haaeeueup!"</p>
+<p>She hugged me and scratched my back with her nails, making a suffocating moan. It was a little prickly, but it would be healed by regeneration.</p>
+<p>"How is it? Do you like it?"</p>
+<p>"Ah, it hurts haaaang! It hurts but I like it, Ryuta-sang's big dick is delicious!"</p>
+<p>She said it hurt, then she said it was delicious, so I didn't know what to say, so I just thrust it in as I pleased, and she was dying of pleasure.</p>
+<p>"Haaang! I think I'm going to come!"</p>
+<p>"I think I'm going to come out soon too, where should I cum?"</p>
+<p>"Haaang! I have a loop, cum inside~!"</p>
+<p>A loop is a contraceptive device inserted into the uterus. How often does she do it usually? Enough to have a loop in place. Well, I'm thankful for the vaginal ejaculation. It gives me a feeling of conquering a woman.</p>
+<p>Bueok! Bueok!</p>
+<p>I don't know how many times I've ejaculated today, but it was still a powerful ejaculation. Hoshino Riho, who was trembling in ecstasy, stroked her lower abdomen and said.</p>
+<p>"Haaang! Good! It's warm...."</p>
+<p>When I lay down next to her and touched her breasts, she whined.</p>
+<p>"Haaang! Don't excite me if you're not going to do it again~!"</p>
+<p>"I'm going to do it again?"</p>
+<p>Hoshino Riho's eyes widened at the words that I was going to do it again. After that, I made Hoshino Riho faint too.</p>
 <p>###</p>
-<p>After doing it with Matoi Honami two more times and driving back, it was 5 o'clock, just as the lecture was ending. I exchanged glances with Matoi Honami subtly, got out of the car, and went to Kazuhiro, who was waiting for me.</p>
-<p>"Hyung-nim, didn't you have a break? I didn't see you?"</p>
-<p>"Our break times must have been different. How was driving? Was it manageable?"</p>
-<p>At my question, Kazuhiro smiled refreshingly and nodded.</p>
-<p>"You know I'm good at using my body. The instructor praised me for learning quickly."</p>
-<p>"You just need to study hard for the written test."</p>
-<p>"That's right. Dinner is from 6 o'clock, so let's work out a bit before going in. I'm drinking tonight, so I'll feel better if I exercise a little."</p>
-<p>Just as we were about to leave the practice area to go to the gym, we saw Gokado Hanako and Kagawa Umi. Kazuhiro must have seen them too, as he waved his hand, saying, "Umi-chan~!"</p>
-<p>"Kazuhiro-chan. Where are you going?"</p>
-<p>"I'm going to exercise for a bit because I have to drink with Umi-chan tonight."</p>
-<p>Leaving the two to talk, I looked at Gokado Hanako, whose face was extremely red, and she couldn't look me in the eye. What's wrong?</p>
-<p>"Hanako-chan, are you not feeling well? Your face is red?"</p>
-<p>When I touched her forehead with my hand, it was quite hot. However, Gokado Hanako shook her head as if to say she wasn't sick.</p>
-<p>"I'm not sick... Uh, uh! I made a lot of mistakes, so I'm just a little angry at myself, that's why I'm red!"</p>
-<p>She's the competitive type. That's probably how she got into Edo University. After talking for a bit, we arrived at the training camp academy's gym.</p>
-<p>"See you around seven-thirty after dinner, Umi-chan~!"</p>
-<p>"Okay~ Kazuhiro-chan, do your best with your workout!"</p>
-<p>"Enjoy your dinner!"</p>
-<p>"Ah, bye!"</p>
-<p>We said our goodbyes and entered the gym. As expected, it wasn't a proper gym, just a few exercise machines brought in. Still, there's plenty to do with this much. Kazuhiro seemed to be thinking the same thing as me, looking around the gym.</p>
-<p>"Let's warm up a bit first."</p>
-<p>"Hyung-nim, did you know I've been learning yoga lately? I'll teach you."</p>
-<p>It seemed like the first workout would be yoga.</p>
-<p>###</p>
-<p>After finishing the workout, I went to my room, took a shower, and changed my clothes. I was hungry because I had been working out until dinner time.</p>
-<p>"Hyung-nim, let's go eat quickly."</p>
-<p>"I'm hungry too. We should go out for a bit after eating to buy alcohol and snacks, right?"</p>
-<p>We talked about what kind of alcohol to buy as we headed to the cafeteria. I was a beer or highball guy, but Kazuhiro said he wanted to drink wine, influenced by his father, who was a U.S. military officer stationed in Japan. Do they sell wine at convenience stores? I've never bought it before, so I don't know.</p>
-<p>"Dinner is tonkatsu."</p>
-<p>"Does that mean we're supposed to pass the driver's license test after eating tonkatsu?"</p>
-<p>We devoured the tonkatsu and headed straight to the convenience store outside the academy. Other students seemed to be thinking about having a drink like us, picking out alcohol and snacks. I grabbed some beer and highballs, and also added a few cans of Chu-Hi that girls might like. Kazuhiro picked out two bottles of red wine and was choosing snacks.</p>
-<p>"Just eat it with cheese."</p>
-<p>I threw three packs of cheese with six slices each into the shopping basket, along with three bags of Jagabee potato chips for me and some snacks and sweet desserts that the girls would like. Ah, and if I get some mixed fruit that's conveniently packaged, we can eat it as a fruit platter.</p>
-<p>"I'll pay today."</p>
-<p>Kazuhiro, who had just graduated from high school and joined the team, couldn't have much money, so I said I would pay. Kazuhiro looked at me and seemed to think the same thing, asking, "Hyung-nim, you didn't get any inheritance from your dad, did you?"</p>
-<p>"Mom got a little and shared it. You can buy next time if you do well."</p>
-<p>"Then you won't have to buy alcohol except for now, Hyung-nim? Because I'm going to keep doing well."</p>
-<p>His confidence was good to see. I paid for the alcohol, snacks, and desserts I had chosen, and the amount was quite a lot when I put them in a bag. Kazuhiro seemed reassured just by looking at it, chuckling as he looked at the bag. For a guy like this to say he's abstaining from alcohol, even the birds passing by would laugh.</p>
-<p>I came into the room and put the alcohol in the refrigerator, and Kazuhiro, saying something incomprehensible about how the tannins need to be released, opened the wine in advance and spread out the snacks on the folding table that was set up in the corner. Kagawa Umi and Gokado Hanako came. Still, they had the sense not to come empty-handed, bringing snacks to eat.</p>
-<p>"Umi-chan~! Sit here."</p>
-<p>"Wow~! Kazuhiro-chan, you prepared so much?"</p>
-<p>"Ryuta hyung-nim is buying today. Hyung-nim is going to work for a big company, you know."</p>
-<p>Kazuhiro said, trying to boost me up. There's no need to say it, but I appreciate it if he does. If I'm thought of as a high school graduate with no job, I'll be too inferior to the two in front of me, so I need at least the title of "future employee of a large company."</p>
-<p>"A big company? Where are you going to work?"</p>
-<p>Gokado Hanako asked me, seemingly curious. Her face wasn't red like before. Did she get over being angry at herself?</p>
-<p>"It's a big company, but I'm embarrassed to say it because I didn't get in through my own efforts."</p>
-<p>"Still, tell me, Ryuta-gun."</p>
-<p>Gokado Hanako asked, clinging to me slightly. Kazuhiro, seeing that, smiled and opened his mouth.</p>
-<p>"Ei, hyung-nim, the answer is in your name."</p>
-<p>"Taira Ryuta... Taira!? You're going to join the Taira Group?"</p>
-<p>Not only Gokado Hanako but even Kagawa Umi looked at me with "Ooh~!" eyes. Since they're both Edo University students, they could both join the Taira Group if they put in a little effort, so it's not so much that I joined the Taira Group that's making them say "Ooh~!" but rather my last name, Taira. It was like, "Oh, he's royalty?"</p>
-<p>"Let's have a drink first and then talk. What does everyone want to drink?"</p>
-<p>"I'll have Chu-Hi~!!"</p>
-<p>"I'll have beer."</p>
-<p>Kagawa Umi wanted Chu-Hi, and Gokado Hanako wanted beer.</p>
-<p>"For a successful driver's license!"</p>
-<p>"""Cheers!"""</p>
-<p>Kazuhiro started, and we clashed our glasses, saying "Cheers!" After drinking the first glass, we slowly started drinking, and the conversation gradually increased.</p>
-<p>At first, it was about the Taira Group that we had just been talking about, but if I said, "I'm the youngest grandson of the Taira Group's chairman," it would seem like I was bragging too much, so I just said that I was a distant relative and somehow managed to get in. Then the topic changed to the wine that Kazuhiro was drinking.</p>
-<p>"Kazuhiro drinks fancy alcohol, unlike what you'd expect?"</p>
-<p>"Yeah, he looks like he'd be drinking sweet potato soju by the bottle."</p>
-<p>"Kya haha~! Sweet potato soju by the bottle!"</p>
-<p>Gokado Hanako was a woman who laughed a lot when she was drunk. She would laugh even at my small jokes, to the point where I would feel embarrassed. Soon, the story of why Kazuhiro became a wine enthusiast flowed from his mouth.</p>
-<p>"My grandfather was French, but he immigrated to the United States, and my father became a U.S. military officer and came to Japan. My grandfather enjoyed wine, so my father enjoyed wine, and I was influenced by that and started enjoying wine too."</p>
-<p>"Ah~! Your grandfather was French. Where in France did he live?"</p>
-<p>"He said he lived in Paris."</p>
-<p>"Ah.... I really want to go to Paris!"</p>
-<p>"Shall we go together next time, just the two of us?"</p>
-<p>For some reason, Japanese women liked Paris, France, very much. Maybe there's a romance that we don't know about. But I know Kazuhiro's family history, and Kazuhiro's grandfather was from Jamaica, which has nothing to do with France. Wine is just something his American father liked.</p>
-<p>Kazuhiro smirked and winked at me when he saw me looking at him in disbelief. That crazy bastard, he's manipulating his grandfather's hometown for a woman.</p>
+<p>I came back to the room with Arisu-ssi and slept soundly until 9 am. Arisu-ssi also woke up with a refreshed expression, stretching. We ordered breakfast as room service and ate it, and then Arisu-ssi and I had a morning workout and morning sex.</p>
+<p>"Kazuhiro's game is at 3 o'clock, so we can have lunch around 1 o'clock and go."</p>
+<p>I warmed up in the bathtub and came out to lie on the bed. Arisu-ssi said she wanted to eat pizza, so we went to TERT's Western restaurant and ate American-style combination pizza and cola. She said it was Arisu-ssi's soul food. Rather, she couldn't eat pizza often because she was rich. Her parents didn't order pizza often because they thought pizza was low-class food.</p>
+<p>Well, before I possessed this body, pizza was expensive in Korea, so I ate it when there were huge discount events or from cost-effective brands like Pizza Friends. Looking at Taira Ryuta's life, pizza was very expensive in Japan too, so he couldn't eat it often. It seems like a considerable price to pay since L-size is over 3,000 yen in Japan.</p>
+<p>After eating pizza, we left TERT and headed to Ajinomoto Stadium, the home stadium of Tokyo FC. Ajinomoto Stadium was far west of downtown Tokyo, but fortunately, it wasn't too crowded because it was Sunday. On the way, I checked Tokyo FC's starting lineup on my smartphone, and Kazuhiro was not in the starting lineup and was on the bench. But Kazuhiro was confident that he would definitely play, so he would come out as a substitute.</p>
+<p>When I arrived and showed the ticket that Kazuhiro sent me, I was able to get a seat in a good spot called the player's family seat.</p>
+<p>"Oh, Taira-sang?"</p>
+<p>I wondered who was pretending to know me, but it was Kagawa Umi, Kazuhiro's current girlfriend. I greeted Kagawa Umi and introduced Arisu-ssi to her.</p>
+<p>"Oh my, your girlfriend is so pretty~!"</p>
+<p>"Hehe! Thank you. Kagawa-ssi is also pretty~."</p>
+<p>Arisu-ssi was saying things she didn't mean in response to Kagawa Umi's compliment. I let them talk and watched the game. The opposing team was Kashiwa Reysol, a team from Chiba. Taira family's roots are in Chiba, so should I support Kashiwa Reysol? Or should I support Tokyo FC since I'm from Tokyo? I was worried, but I decided to support Tokyo FC because my friend was there.</p>
+<p>"I used to play soccer for a while in high school."</p>
+<p>"Really? Do you have a picture of you in a uniform?"</p>
+<p>"I want to see it too~!"</p>
+<p>Arisu-ssi searched her phone and showed me a picture of young Arisu-ssi wearing a soccer uniform and making a V sign. She looked about 10 years old. She's so cute.</p>
+<p>"You were cute at this time too."</p>
+<p>"Hee~ You're cute!"</p>
+<p>"Hehe, don't flatter me too much~."</p>
+<p>To talk a little about the soccer scene of this era, the United States was emerging as a new powerhouse. The rankings with baseball were reversed, and it rose to third place after American football and basketball. The Latino population was increasing, and they were investing actively because they showed good results in the recent World Cup.</p>
+<p>"Ah, the second half is starting!"</p>
+<p>Kazuhiro didn't come out, so I watched the game comfortably while talking, and the second half started. After a while, in the 10th minute of the second half, Kazuhiro finally came out. The score was 0-0 for both teams, so the coach seemed to be expecting the unexpectedness of the rookie striker Kazuhiro.</p>
+<p>Kazuhiro, who hadn't caught the ball for a while and was running like he was jogging, finally caught the ball in the 37th minute of the second half. Kazuhiro dribbled to the side at a fast pace with the elasticity of a rubber ball. The full-back, who was behind in the speed competition, fell back in an instant. Kazuhiro entered the corner of the penalty box and rushed diagonally towards the goal. He was playing the textbook inside forward play.</p>
+<p>He easily avoided the defender's sharp tackle with a side step to stop Kazuhiro at all costs and immediately shot. Bang~! Kazuhiro was shooting with a sound. The first shot quickly passed under the goalkeeper's arm and became the first goal. The ball rotated as if tearing the net with a chwareureuk sound.</p>
+<p>-Smith Kazuhiro...! Goal! It's a goal! Kkieeeeek!</p>
+<p>The announcer was also excited and celebrated Kazuhiro's goal with a scream. Arisu-ssi's reaction was just "Wow~! It's a goal!", but Kagawa Umi burst into tears when she saw Kazuhiro's goal scene. They met after he became a soccer player, but anyone who saw it would think she had been supporting soccer throughout his school days.</p>
+<p>In the end, Tokyo FC won 1-0, and Kazuhiro was able to become the MVP.</p>

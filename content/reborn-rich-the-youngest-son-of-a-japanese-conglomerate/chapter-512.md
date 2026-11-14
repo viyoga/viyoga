@@ -5,63 +5,73 @@ weight = 512
 chapter = 512
 +++
 
-<p>Konoe Akina was in a good mood all day today. Because today was finally the day for her long-awaited date with her benefactor and teacher, Taira Ryuta.</p>
-<p>It had already been several months since Taira Ryuta saved her, and Konoe Akina had fallen in love with him at first sight.</p>
-<p>No woman could help but fall in love after seeing the light and silhouette through the bars of the slave trader's prison, his revealed face, and his reassuring smile.</p>
-<p>He was like the sun, dispelling at once the fear of being sold off and laid beneath some old rich man, and the dark anxiety that no one would come to save her.</p>
-<p>After that, in Taira's name, he helped her return to her family and even attached Wano Haruto and Sawayanagi Sinya-ssi to her, helping Konoe Akina become the head of the Konoe family.</p>
-<p>But that was it. She thought there would be no further connection after that. She would return to her unfinished high school life after being kidnapped, and since the Konoe family had no particular contact with Taira, she thought she would never meet Taira Ryuta again.</p>
-<p>But, like a fairytale without any probability, when Konoe Akina learned that Taira Ryuta had been appointed as her homeroom teacher under the name Yamashiro Ryuta, she offered her first prayer of thanks to God.</p>
-<p>In fact, even if Taira Ryuta became her homeroom teacher, nothing would really progress or anything, but she was still happy just to be in the same space.</p>
-<p>But an opportunity came quickly. The school had instructed the special class students, most of whom were not members of any clubs, to create a club. And Konoe Akina came up with an amazing idea.</p>
-<p>,Wouldn't I be able to get closer to the teacher if I created a dating club?',</p>
-<p>Since she was planning to entrust Taira Ryuta with the position of advisor if she created a club, Konoe Akina created a "Dating Experience Club." There was a confrontation with Minamoto Lisa, who created a strangely named "Meditation Club" in the middle, but in the end, the Dating Experience Club won, and most of the special class students joined the club created by Konoe Akina.</p>
-<p>Everything seemed to be going according to Konoe Akina's plan, but there was one problem. Because of the club she created, all of her special class friends had come to know about Taira Ryuta's charms. And although they didn't show it, they all seemed to have feelings for Taira Ryuta.</p>
-<p>It was impossible for Taira Ryuta not to be popular with his handsome looks, but it was still too much. Not only her special class friends, but the whole school was so popular that unofficial clubs were being formed.</p>
-<p>While Konoe Akina was secretly agonizing like that, Taira Ryuta came up with a strategy. He said he would buy a gift if they ranked within the top 6 in the class. He said they would pick out the gift together and even eat a meal, so it was no different from a date.</p>
-<p>Since she had already become the head of the family and didn't need to look good to anyone in the family or prove herself, Konoe Akina originally didn't plan to study hard during this school life. She was just going to study moderately and make a lot of memories with her friends and teachers.</p>
-<p>But because of the gift date that Taira Ryuta had offered, Konoe Akina had no choice but to study hard. Although it was a special class treated as a problem child class, the students were not that bad when you looked at them. She had to study hard to get into the top 6.</p>
-<p>Her head hurt because she had been studying hard for the first time in a while, but her efforts were not in vain, and she was able to get 4th place. After that, they decided on the order, but unlike Konoe Akina's desire to go on a date right away, she ended up being last. She felt a slight jealousy listening to her friends' dating experiences, but Konoe Akina was able to endure it because there were even students who didn't even have their turn.</p>
-<p>,Today is the day... with the teacher....',</p>
-<p>Konoe Akina was looking in the mirror and putting on makeup. It was essential to dress up before a date, so she couldn't meet him right away and had no choice but to meet him after some time after school. She couldn't show Taira Ryuta a shabby appearance, and she wanted to show him a prettier appearance, so she had no choice but to meet him after a little time.</p>
-<p>,Teacher, I'm looking forward to our date today♥',</p>
-<p>Konoe Akina's heart was full of hearts.</p>
-<p>###</p>
-<p>Kurayamada Kirie didn't think that the root of the earthquake that her father was looking for would be in the school's facilities or buildings. The document proving that the root existed was so old, and even if it had existed, she thought that even the traces of it would have disappeared by now.</p>
-<p>The document that her father saw, whose identity was unclear, stated that a god whose name had been erased had cut off the root of the earthquake and built a shrine-like building, so Kurayamada Kirie checked the architectural data before St. Francis Girls' Academy was built.</p>
-<p>Kurayamada Kirie confirmed from the data that there were no such buildings in the buildings of St. Francis Girls' Academy. However, there was an old shrine in the middle of the forest behind the school grounds of St. Francis Girls' Academy, and she was able to find data that the Daigo family repaired the shrine and currently uses it as the family shrine.</p>
-<p>She didn't really think that the root of the earthquake that her father had mentioned would be there, but she still had to look for it because it was her father's order.</p>
-<p>Kurayamada Kirie entered the forest path that led to the back of St. Francis Girls' Academy. In fact, this path was not unfamiliar to Kurayamada Kirie. The 5th physical education warehouse, which she mainly used when she had relations with Yamashiro Ryuta, was located near the entrance of the forest. So she was familiar with it because she saw this forest path almost every other day.</p>
-<p>Kurayamada Kirie's steps, who had trained to a considerable level, were fast. Kurayamada Kirie, who covered the distance that others would have to go in an hour in 20 minutes, gradually entered the forest.</p>
-<p>At the end of the forest path, she could see a shrine. Passing through the black torii gate and going inside, there were quite a few shrine buildings on the grounds. Kurayamada Kirie slowly walked around the shrine as if she were sightseeing. It was no different from an ordinary shrine, but there were no priests or shrine maidens.</p>
-<p>She heard that the management team of St. Francis Girls' Academy managed it once every two weeks, so it seemed that there was no one else managing it separately. The atmosphere of the quiet shrine in the forest was strange. It felt like there was something that stimulated people's anxiety.</p>
-<p>Going to the deepest part of the shrine, there was a collapsing stone structure with gold ropes tied around it. The collapsing stone structure looked like a tower, and it also looked like a Buddhist altar in a house that had been greatly expanded.</p>
-<p>,It's here...!',</p>
-<p>Kurayamada Kirie could tell instinctively. That the root of the earthquake that her father had mentioned was here. Because she felt an unknown presence and ominousness from the stone structure. She felt an ominous presence as if something was weighing on her chest.</p>
-<p>Kurayamada Kirie unconsciously approached the collapsed stone structure. At that moment, a sharp energy poured out from the gold ropes around the stone structure. Kurayamada Kirie felt threatened and jumped back. A small explosion erupted where Kurayamada Kirie was standing.</p>
-<p>,Dangerous...! Is it some kind of magic?',</p>
-<p>Kurayamada Kirie realized that she could no longer approach and picked up her phone.</p>
-<p>,...Father, I found something.',</p>
-<p>Kurayamada Kirie contacted her father, Kurayama Kazuma. Jinildang had someone who could undo this kind of magic. Soon, she would be able to find out the identity of this collapsed stone structure. Kurayamada Kirie didn't know. That she was also gradually becoming obsessed with this stone structure like her father.</p>
-<p>###</p>
-<p>Daigo Terue sensed an ominous undercurrent. She thought that the Toyotaka faction would do something since they had brought in Minamoto, but she didn't think they would act this quickly.</p>
-<p>Of course, Daigo Terue also knew that all of these sudden events had started with the SearchEye article, but she didn't know that her daughter, Oofuchi Erika, was involved in that SearchEye.</p>
-<p>That's why Daigo Terue entrusted her protection to the person with the most powerful force among the people she knew.</p>
-<p>It was Shimokawabe Airen, who was in charge of the home economics subject. Shimokawabe Airen, who was called, came to Daigo Terue's house with a sword.</p>
-<p>,Do you really think there will be an attack?',</p>
-<p>,It's inevitable given the flow of things. If I return to being the principal of St. Francis Girls' Academy, the Toyotaka faction will have no future.',</p>
-<p>Daigo Terue answered Shimokawabe Airen's question. Until now, she had just left the Toyotaka faction alone because there was no justification, but now it was different. No matter how much they were an opposing faction, there was no reason to forgive them for bringing in foreign forces. That's why, after the SearchEye's exposure, the Toyotaka faction felt a crisis and was certain to attack Daigo Terue.</p>
-<p>Because they had to seize the principal of St. Francis Girls' Academy, which was the core of the Daigo Educational Foundation, Daigo Terue had to disappear from this world as soon as possible before the Tadanori faction canceled the suspension and reinstated her from the Toyotaka faction's point of view. This was an event connected to the survival of the Toyotaka faction, so the attack was as good as decided.</p>
-<p>,I understand. If it's certain that there will be a battle, then it's okay for me to be here.',</p>
-<p>Shimokawabe Airen, who had recently been learning about swordsmanship anew while teaching Alik, wasn't too keen on this call from Daigo Terue, but since she liked actual combat more than anyone else, she had no reason to be dissatisfied if it was certain that there would be actual combat.</p>
-<p>The two were having tea time while having a casual conversation for a while. But at some point, killing intent swirled in Shimokawabe Airen's half-closed, languid eyes, and she grabbed the katana that had been placed next to the sofa.</p>
-<p>,Are they here?',</p>
-<p>,Yes. Stay here.',</p>
-<p>Shimokawabe Airen answered Daigo Terue's question and got up from her seat. Of course, she was holding the katana in her hand.</p>
-<p>Shimokawabe Airen took a few measures and then came out of the building. Several attackers, wearing ski masks with only holes for the eyes, like robbers, were approaching with silenced pistols.</p>
-<p>,They're like moths flying into a flame.',</p>
-<p>Pshoo! Pshoo! Pshoo!</p>
-<p>As if Shimokawabe Airen's words were a signal, the attackers all began to fire.</p>
-<p>---</p>
-<p>Horror picsㄷㄷㄷ</p>
-<p>It's hard to make mirror pics hehehe</p>
+<p>After being thoroughly squeezed as repayment for the scroll gift to Sakagami Rena, Sakagami Rena, still trembling from the aftereffects of sex, excitedly took the scroll and returned home as soon as she recovered. She took the scroll because I agreed to lend it to her until she completely mastered the two spells.</p>
+<p>,The second spell is quite difficult, so I think I need a teacher. I recently met someone incredibly strong in illusion magic."</p>
+<p>Someone incredibly strong in illusion magic... I'm a bit curious. But Sakagami Rena, before I could even ask, happily skipped out of the house with light steps. I also had remaining schedules, so I couldn't just rest. A meeting was waiting to discuss Kurayamda Kirie and the PMC she would establish, and to decide how much support to provide.</p>
+<p>Still, since it was an important contract involving the creation of a new PMC, I thought it would be nice to have a great dinner together, so this time I ordered high-end hotel food to be delivered to my house. It wasn't listed on the delivery app, but there was nothing money couldn't buy. After specifying the desired delivery time, I changed my clothes.</p>
+<p>As I said, it was an important contract, so I couldn't keep wearing my pajamas with the cute bear face pattern all over them. I put on clothes that were somewhat formal, like a suit.</p>
+<p>Since we weren't in the relationship of homeroom teacher and assistant homeroom teacher or sex partners who matched bodies, I had to show a somewhat respectful appearance. It was to show respect for Kurayamda Kirie, who would become the president of the PMC.</p>
+<p>Of course, Kurayamda Kirie might prefer being my sex partner, but I had to look after the remaining members of Jinildang. Although most of them were heinous terrorists, less than human, they could still be useful as knives I could wield.</p>
+<p>For example... when doing dirty work that I couldn't use East Weapon or Seryu Military Company for.</p>
+<p>After waiting a bit, the intercom rang, signaling that Kurayamda Kirie had arrived.</p>
+<p>,Come in."</p>
+<p>Speaking through the intercom and opening the door, Kurayamda Kirie, dressed in a neat suit, entered.</p>
+<p>,It's been a while."</p>
+<p>,It hasn't been that long since you quit the academy. It's not enough to say it's been a while. Sit down first."</p>
+<p>I brought out the coffee I had prepared in advance and sat across from Kurayamda Kirie. Kurayamda Kirie received the coffee and took a sip.</p>
+<p>,First, I want to know the troop strength and equipment status of the PMC that Kurayamda-ssi will establish. I need to know that to determine how much to invest."</p>
+<p>,The equipment status is in this document."</p>
+<p>Kurayamda Kirie took out a document from her briefcase and showed it to me. Hmm... the number of guns and bullets, and various equipment were written in detail. Of course, since it was a terrorist organization, there was no uniformity in equipment. Most PMCs standardized their equipment, but some allowed their members to customize their guns according to their preferences, so it didn't seem like a big problem.</p>
+<p>Some of the old equipment... needs to be replaced, and tactical vehicles need to be purchased. Looking at the documents, I roughly estimated the equipment costs.</p>
+<p>,And the personnel?"</p>
+<p>,About 200 people."</p>
+<p>Oh...! That's quite a lot. Jinildang wasn't called the best terrorist organization in Kanto for nothing. With 200 armed PMC personnel, it was perfect for establishing a foothold in the industry.</p>
+<p>Actually, Seryu Military Company had a slightly smaller number of people, and East Weapon was such a famous and large PMC that I wanted to own a mid-sized PMC as well. The world is truly unpredictable, with Jinildang coming under my control like this.</p>
+<p>,You don't have a base of operations right now, do you?"</p>
+<p>,I can't tell you that."</p>
+<p>Well... since they're still a terrorist organization, they can't tell me. The contract isn't over yet, and I might betray them after suddenly finding out their location.</p>
+<p>,Then, considering tactical vehicles, outdated equipment, personnel... and a headquarters building in Neo Tokyo... I'll invest about two billion yen first."</p>
+<p>,...Two billion yen?"</p>
+<p>Kurayamda Kirie was surprised and asked back at my words. Of course, two billion yen is definitely not a small amount, but to continuously maintain 200 combatants, this level of investment was necessary. Fortunately, in the PMC business, most combatants' base salaries weren't high, and they were paid allowances per operation, so there wouldn't be a large initial expenditure. Of course, the more operations they did, the more profit the company would make, so if I could rotate just one-third of the 200 people, I could quickly avoid losses.</p>
+<p>,Considering 200 people, additional equipment, and rent in Neo Tokyo, two billion yen will be tight, right?"</p>
+<p>Actually, I had several buildings in Neo Tokyo that I could let them use for free, but there was no need to give everything away from the start. Kurayamda Kirie also needed some sense of lack to work hard.</p>
+<p>,I didn't really expect much from the investment. Is it Taira's money, not yours?"</p>
+<p>Ah, that's right. Kurayamda Kirie thought I was like a secretly dispatched agent from Taira. I shook my head at Kurayamda Kirie's question.</p>
+<p>,No, I have a lot of money. You may or may not know, but I invested in Health Miracle before they created Forest. I made a lot of money from that."</p>
+<p>,Really?!"</p>
+<p>The stock rise of Health Miracle, which created the hair loss treatment Forest, was such a hot topic that even ordinary people knew about it. Kurayamda Kirie nodded at my words, understanding that was why I had so much money. I made a lot of money with Health Miracle, but now that money is constantly being rolled over, so I had much more capital than back then.</p>
+<p>,Then the shares..."</p>
+<p>,Our side also has about 200 million yen in capital... so if you calculate it, you have 89 percent."</p>
+<p>,Since I'm trusting your side and the personnel are coming, I'll give you about 3 percent in Kurayamda-ssi's name."</p>
+<p>In any case, Kurayamda Kirie, who would have the qualifications, was important, so I decided to give Kurayamda Kirie additional shares. After all, even if you have shares, it's difficult to manage a PMC without qualifications, so I had to treat Kurayamda Kirie well. Should I get a PMC license too? It would have been impossible before, but now that my intelligence has increased a bit, it seemed doable.</p>
+<p>,Thank you. And there are quite a few people with skills other than combatants..."</p>
+<p>,You'll be the president, so do as you please. But what kind of skills?"</p>
+<p>,There are people who repair guns and make bombs. There's also a swordsmith."</p>
+<p>A bomb maker... that's quite a high-level talent. By the way, the swordsmith seems to have been hired for Kurayamda Kirie, who is a swordsman. If he's a good person, I think it would be good to have him work for our side, which has many swordsmen.</p>
+<p>,What's the swordsmith's name?"</p>
+<p>,Ichimonji Harugoro-ssi."</p>
+<p>I was slightly surprised at Kurayamda Kirie's answer. Why is such a big name coming out of Jinildang? Ichimonji Harugoro is a world-renowned swordsmith. I had relied on him a lot in the game when I took the weapon skill tree. It was a bit of a hassle because I had to go from Korea to Japan to make a request, but now that I'm in Japan, that disadvantage is practically gone.</p>
+<p>He wasn't a craftsman who could make end-game items, but he could make top-quality items. Alik and Otagi Yuka both had good swords, but I thought I needed a sword that I could use comfortably, so I definitely wanted to hire him.</p>
+<p>,Actually, Ichimonji-harabeoji isn't exactly affiliated with Jinildang. We're just lending him the space."</p>
+<p>,Is that so? Then continue to maintain a good relationship. We also have quite a few people who handle swords."</p>
+<p>,Of course. We're originally close, so there's no reason for our relationship to suddenly worsen."</p>
+<p>After telling her to discuss the details with Mimata Chieri after the Ichimonji Harugoro story, the conversation roughly ended. Mimata Chieri has been managing East Weapon for several months now, so she will give Kurayamda Kirie appropriate advice. After the conversation ended, it was dinner time, and a hotel course meal was delivered in a luxurious bento box format.</p>
+<p>,The contract is roughly over, so let's have a pleasant meal."</p>
+<p>I poured red wine for Kurayamda Kirie and started the meal. Kurayamda Kirie, thinking the contract went well, was taking the wine as I gave it to her with a flushed expression. Kurayamda Kirie, with her face already red, looked at me and opened her mouth. She had a slightly troubled expression.</p>
+<p>,What's wrong?"</p>
+<p>,Th, that's..."</p>
+<p>Kurayamda Kirie couldn't answer my question and hesitated, stammering. If she's like this, I can't just pass it over because I'm curious.</p>
+<p>,Tell me. I don't know what's going on, but I might be able to help?"</p>
+<p>,Have you changed anything since that battle?"</p>
+<p>That battle probably refers to when I fought Kurayamda Kirie's father, who had turned into the Avatar of the Sunken One, right? Well, other than gaining achievements and leveling up, nothing much has changed... Could it be because of the level up?</p>
+<p>Kurayamda Kirie must have also participated in that battle, so she would have shared the experience points and gained a trait if she leveled up. She might have gained a slightly embarrassing trait, so she might be a little surprised.</p>
+<p>,Has something changed?"</p>
+<p>Kurayamda Kirie nodded with her face still red at my question. What has changed? Nothing seems to have changed just by looking at her.</p>
+<p>,Th, that's... I think I've been cursed by my father."</p>
+<p>,A curse?"</p>
+<p>I was getting a little frustrated listening to Kurayamda Kirie's incomprehensible story, but I still listened with patience.</p>
+<p>,My father left the family after receiving the wolf curse that has been passed down through the family for generations. Every full moon, he would turn into a wolf, lose his reason, and attack the people around him. I avoided that curse, but after this battle..."</p>
+<p>Kurayamda Kirie stopped talking and seemed to be giving strength. Suddenly, wolf ears popped up above Kurayamda Kirie's head with a poying sound.</p>
+<p>,Huh...?"</p>
+<p>,Look. I've been cursed by my father...!"</p>
+<p>Kurayamda Kirie, who suddenly became a wolf-person woman, blushed and shouted as if she was embarrassed.</p>

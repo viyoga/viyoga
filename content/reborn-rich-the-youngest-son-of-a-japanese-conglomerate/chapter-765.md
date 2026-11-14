@@ -5,94 +5,95 @@ weight = 765
 chapter = 765
 +++
 
-<p>"If this situation continues, I'll definitely start to hate it. Before I start hating Kanna, how about we talk and find some common ground?"</p>
-<p>"...."</p>
-<p>I thought about it for a bit and then answered. There's no helping it. I'd been accommodating Taira Kanna's actions to some extent until now, but if she doesn't accept it now that a day has passed, I'll have to try to escape, even if it means crushing my hands and feet.</p>
-<p>No matter how sturdy the building is, there must be some kind of loophole. I'll do my best to escape.</p>
-<p>Taira Kanna was silent for a moment at my words. Did it get through? Or did her yandere tendencies get worse? I watched Taira Kanna's expression to see what she was thinking, and she soon opened her mouth.</p>
-<p>"Okay, let's talk. But..."</p>
-<p>Did it work out? That 'but' is a bit concerning. Still, Taira Kanna is smart and has good judgment, so she seemed to realize that I was serious just now.</p>
-<p>"But?"</p>
-<p>"Shouldn't we finish what we were doing first?"</p>
-<p>Jjilgeok...!</p>
-<p>What Taira Kanna meant by 'what we were doing' was, of course, sex. Taira Kanna was slightly moving her waist with a bewitching expression that captivates men.</p>
-<p>"Then... just once?"</p>
-<p>I couldn't negotiate while I was still hard, so I nodded for now. Taira Kanna's smile deepened at my permission.</p>
-<p>It's definitely not that I gave in to sexual desire. I'm just trying to give Taira Kanna a carrot for accepting the conversation.</p>
-<p>###</p>
-<p>The homeroom teacher rescue squad students couldn't directly search the restaurant Kiyoshikiyoshi. The students weren't police officers, and the restaurant was so famous that it was difficult to even make a reservation, so there was no easy way to get in under the guise of eating a meal.</p>
-<p>"Urabe Konoka is working as an operator at the Investigation Unit, so she'll be checking the surrounding CCTV footage from there."</p>
-<p>Urabe Konoka, who doesn't have any special combat abilities, said that instead of joining the investigation team, she would analyze various data at the Investigation Unit as an operator.</p>
-<p>"I'll sneak in for a bit."</p>
-<p>Sakagami Rena went into a family restaurant near Kiyoshikiyoshi, told her gathered friends, and went outside. Sakagami Rena, a ninja, was the only intelligence talent among the students gathered here who could secretly infiltrate.</p>
-<p>The remaining students decided to wait for the CCTV analysis results analyzed by the Investigation Unit and the information Sakagami Rena gathered.</p>
-<p>"I'm hungry because I didn't eat lunch, so let's order something while we wait. We need to be full if we're going to fight."</p>
-<p>Everyone nodded at Saionji Diana's words and called the waiter to order one or two items each.</p>
-<p>"Didn't any of you eat lunch?"</p>
-<p>"We didn't have enough time because we were investigating during lunch break."</p>
-<p>Seizawa Shii asked in admiration and with a somewhat apologetic expression. She felt a bit guilty that her friends had skipped meals and were running around to rescue their homeroom teacher while she didn't know. Seizawa Shii also liked a man named Yamashiro Ryuta, so she felt guilty that she couldn't help in rescuing him.</p>
-<p>"I need to order too! I'm going to use all my strength rescuing Ryuta-jji, so I need to eat!"</p>
-<p>Seizawa Shii deliberately spoke energetically, trying to change the mood, and started making a fuss about ordering food.</p>
-<p>"I'll order ham cutlet and Cajun salad!"</p>
-<p>After Seizawa Shii finished ordering, the late lunch started coming out one by one, and everyone started eating. Everyone ate quietly, probably because they were hungry from skipping lunch.</p>
-<p>"I wonder if Ryuta-jji is eating? I'd feel bad if that glutton was starving..."</p>
-<p>"Ryuta likes this..."</p>
-<p>Seizawa Shii and Alik muttered with slightly gloomy expressions while eating.</p>
-<p>"Let's make sure to feed Sensei all his favorite things until he's full when we rescue him safely."</p>
-<p>While Konoe Akina was comforting a few gloomy friends, Sakagami Rena, who had infiltrated Kiyoshikiyoshi, entered the family restaurant.</p>
-<p>"Rena, we ordered some for you too. Let's talk while you eat."</p>
-<p>Saionji Diana said, handing her a sandwich that she could eat easily, and Sakagami Rena smiled slightly as if to say thank you.</p>
-<p>"First of all, there were no special traces in Kiyoshikiyoshi. It's a store often used by Miyashi's high-ranking officials, so the CCTV was only on the cashier and parking lot side, so I secretly hacked it and sent it to the Investigation Unit."</p>
-<p>Sakagami Rena told her friends while eating the sandwich. As they were eating and waiting for the results of the CCTV investigation, Urabe Konoka contacted them as if their wait had paid off.</p>
-<p>It wasn't a phone call, but a video call to the tablet Konoe Akina was holding, in order to tell them the story along with the data.</p>
-<p>-I've roughly investigated the surrounding CCTV and the CCTV of Kiyoshikiyoshi's store. First of all, Sensei and Taira Kanna were captured entering the restaurant.</p>
-<p>A video was displayed. Yamashiro Ryuta's welcome appearance and Taira Kanna entering the restaurant entrance were shown, even though it was only one day ago.</p>
-<p>-But strangely, they weren't captured leaving. They weren't captured getting out of the parking lot either, so it's likely that they knew the location of the CCTV, parked somewhere else, and moved Sensei to the back door or something.</p>
-<p>"So, instead of a battle, they incapacitated Lord with something like a sleeping pill, anesthetic, or poison? There were no traces of anything broken inside Kiyoshikiyoshi, after all."</p>
-<p>With Urabe Konoka's explanation, everyone got one step closer to the truth of Yamashiro Ryuta's kidnapping. Everyone breathed a sigh of relief that he wasn't captured injured after losing in a battle that everyone was worried about.</p>
-<p>-Here's the bad news. I don't know what kind of car they came in, so there's no car to track with CCTV. If I had more time, I would check the CCTV of the entire Miyashi, but I didn't have that much time.</p>
-<p>Since the video of the car wasn't captured in the parking lot and they disappeared without a trace from the restaurant, there was no way to check what kind of car they were in, so the plan to track them with CCTV fell apart.</p>
-<p>"What do we do now?"</p>
-<p>Sakagami Rena smiled as if it was okay at Naruse Shiyo's question. Sakagami Rena, who knew that Taira Kanna and Taira Ryuta were the same Taira, seemed somewhat relieved that she wouldn't kill him.</p>
-<p>"Then we'll go to Plan B."</p>
-<p>"You had a Plan B too? You prepared a lot in a short amount of time."</p>
-<p>Seizawa Shii said in surprise at Sakagami Rena's words of Plan B. She seemed a bit surprised that there was even a Plan B in the rescue plan that only used a few tens of minutes of lunch break and break time.</p>
-<p>"Let's get out of the store first."</p>
-<p>At Sakagami Rena's words, everyone got up and left the family restaurant. In the parking lot of the family restaurant, Sakagami Rena took out a small weasel with an orange pattern on a white background from her arms.</p>
-<p>"Hamtaro! It's Lord's scent. Follow it!"</p>
-<p>Sakagami Rena took out the underpants Taira Ryuta wore, which she had brought at some point, and held it in front of Hamtaro's nose. Hamtaro started sniffing in front of the underpants, twitching his nose.</p>
-<p>"Ah, Hamtaro was here! He's still cute."</p>
-<p>Everyone wasn't surprised because it was Hamtaro that she showed to her classmates during the graduation trip. However, they were thinking that since it was difficult to track with the latest technology, they were now using a somewhat primitive tracking method using animals.</p>
-<p>"Jji!"</p>
-<p>Hamtaro jumped out of Sakagami Rena's arms as if he understood and ran at a fairly fast speed.</p>
-<p>"Shouldn't we chase after him right away?"</p>
-<p>"I put a tracking device on Hamtaro's leash, so we can follow him comfortably by car."</p>
-<p>The students got into the van parked in the family restaurant parking lot. Seizawa Shii was in charge of driving, and Sakagami Rena, who had turned on Hamtaro's tracking screen on the tablet, was sitting in the passenger seat.</p>
-<p>"Let's go to that road first."</p>
-<p>"Okay. I'll go slowly."</p>
-<p>When Sakagami Rena pointed to one side of the road, Seizawa Shii started the engine and started driving. As expected of Hamtaro, who was half-spirit or something, he was moving away from the original family restaurant at a tremendous speed.</p>
-<p>"Still, it's a relief that it's not an area where mansions are gathered around St. Francisco Girls' Academy."</p>
-<p>"If we had a rescue operation there, Taira Kanna and us would all be in trouble..."</p>
-<p>The van carrying the homeroom teacher rescue squad was moving, making their own reasoning while looking at the location Hamtaro was running.</p>
-<p>As the rescue squad students thought, no matter how much of a Taira Taira Kanna was, she wouldn't have made a private prison in the middle of a prestigious family's mansion.</p>
-<p>It seemed that Hamtaro was finding his way well to a corner of Miyashi.</p>
-<p>"Ah! He stopped...!"</p>
-<p>The road they were running on was no longer an asphalt road, but a bumpy mountain road. However, the wheel tracks were clear as if vehicles had been constantly coming and going.</p>
-<p>"Let's get off in the middle and walk."</p>
-<p>Since they had to check the building where Taira Ryuta was being held to decide whether to go head-on or sneak in, they chose to walk rather than continue riding in the van, which could be easily spotted.</p>
-<p>"We can park over there."</p>
-<p>Seizawa Shii parked the car on one side of an empty lot where the road widened a bit. The homeroom teacher rescue squad students quickly got off and started quietly going up the mountain road.</p>
-<p>"Jji!"</p>
-<p>As they were going up the mountain road, the weasel Hamtaro called out to his owner. Because he was a well-trained weasel, Hamtaro didn't recklessly barge into the building just because he smelled it.</p>
-<p>"Good job, Hamtaro."</p>
-<p>Sakagami Rena took out water and feed from her pocket and fed Hamtaro, and looked at the building in the empty lot in the middle of the forest.</p>
-<p>It was a rectangular concrete building. It was a dry and solid-looking building without any decorations or nameplates, but she became convinced that her Lord Taira Ryuta was inside. That's because her heart started beating without her knowing. Perhaps something like a bond of fate connected to Taira Ryuta was reacting.</p>
-<p>"That's definitely it."</p>
-<p>"Yeah. Ryuta is there."</p>
-<p>"Ryuta-jji is really hard to find. It's like some kind of princess-saving game."</p>
-<p>Like Sakagami Rena's conviction, the others seemed to feel that Taira Ryuta was in that building.</p>
-<p>______</p>
-<p>New model Otagi Yuka leather jacket + jeans~!</p>
-<p>Covered Yuka</p>
-<p>Exposed Yuka</p>
-<p>Which Yuka do you like better, covered VS exposed? Hehe</p>
+<p>For a Date with Minamoto Risa after a long time, we decided to wander around Miyashi city and play as usual. Actually, because the Date was decided just the day before, there was no time to specially make a Date plan, so for today's Date, we decided to just try something Impromptu. As I stood in front of the Convenience Store near Miyashi Department Store, which we often used as a meeting Place, Minamoto Risa got out of a Taxi. Because today was Saturday, she was wearing casual Clothes instead of her School Uniform, and it suited her quite well.</p>
+<p>Normally she wore St. Francis Girls' Academy School Uniform, and on Dates, she wore Miyashi Municipal High School School Uniform, so Minamoto Risa's casual Clothes gave a fresh Feeling.</p>
+<p>"Have you waited long?"</p>
+<p>"No, I just arrived too."</p>
+<p>Actually, I had waited for about ten minutes, but I spoke as if I hadn't waited. Even after seeing my Feigned Ignorance Expression, Minamoto Risa tilted her Head, then raised her Hand and touched my Earlobe. By checking the temperature of my ear, it seemed she was trying to confirm directly how long I had waited.</p>
+<p>"Your ear is so cold? Sorry, because it's a Date after a long time, I dressed up a bit...."</p>
+<p>"No, Lisa didn't even arrive late for the appointment; I just came a little early, so don't say Sorry."</p>
+<p>"Hmm.... I understand. Shall we go then?"</p>
+<p>When I told her not to say Sorry, Minamoto Risa gave a small Smile, then linked her Arm in arm with mine. We headed towards the inner part of Miyashi city.</p>
+<p>The Stores and commercial areas around the Department Store were high-end and expensive Places targeting St. Francis Girls' Academy Students, so there was a chance we might be recognized (of course, I wore Sunglasses and a Mask for my own Disguise.) We went into the inner part of the city, which was used by ordinary Miyashi Citizens or Miyashi Municipal High School Students.</p>
+<p>"Oh? Shall we go there once?"</p>
+<p>While walking down the Road, Minamoto Risa pointed to the General Store, Donkey Donkey, whose mascot was a penguin. Because Donkey Donkey was a cluttered General Store that pursued low prices, it seemed unlikely that Minamoto Risa, a Young Lady of the Minamoto family, would have visited it often.</p>
+<p>"Have you ever come here?"</p>
+<p>"When I lived alone with Mom, I came a few times with Mom. But after entering the Minamoto family, I haven't been."</p>
+<p>According to the Information I obtained, Minamoto Risa, who lived alone with her Mom, entered the Minamoto Main family in her early Elementary School years, so it seemed almost ten years had passed. That's a bit sad...? I should quickly change the Topic of Conversation.</p>
+<p>"How about we each buy a Gift for each other here?"</p>
+<p>"Shall we? It feels exciting...!"</p>
+<p>Perhaps because it was her first time coming since childhood, Minamoto Risa was excited with an innocent Expression, as if she had returned to her innocent childhood.</p>
+<p>We decided to meet in front of the Counter in fifteen minutes and explore the Store separately. I walked, casually scanning the interior of Donkey Donkey, then headed towards the corner where last year's Christmas Event items were on sale.</p>
+<p>"Oh...!"</p>
+<p>Cat Headband.... I should make her wear this. Although Minamoto Risa didn't usually wear things like this unless it was a ○-Punch Man costume, I vowed to somehow coax her into even doing cat-like poses, and put the Cat Headband into my shopping basket.</p>
+<p>"Oh?!"</p>
+<p>After getting one Item, I was about to just pass by the Christmas Event item corner, but one object caught my Eye. Event underwear with a Cat-shaped Hole was brazenly displayed!</p>
+<p>As soon as I chose the Cat Headband, Cat Hole underwear appeared...! This was definitely a Divine Revelation from God to make Minamoto Risa wear a full Cat set!</p>
+<p>I immediately put the Cat underwear into the shopping basket. This, even if I said it was a Gift, she probably wouldn't wear it. First, so that Minamoto Risa wouldn't focus on the underwear, I decided to go to the cash register first and buy it.</p>
+<p>Beep beep!</p>
+<p>"Including the Bag, it's three thousand five hundred forty yen."</p>
+<p>"Here's my Card."</p>
+<p>As I stood still without leaving after completing the payment, I felt the Part-timer subtly glance at me, thinking, 'What's up with this Bastard?' But as I stood there without paying much attention, Minamoto Risa, who had chosen her Gift, approached.</p>
+<p>"Oh, you already paid, dear?"</p>
+<p>"Yes. I found exactly what I wanted."</p>
+<p>Minamoto Risa looked at me, who had come quickly, with a puzzled Expression. The Donkey Donkey Part-timer, seeing the beautiful Minamoto Risa, as if remembering the items I had bought, was sending me a Gaze full of envy.</p>
+<p>"First, I'll pay."</p>
+<p>What Minamoto Risa bought was something like Medicine in a small box. What is it? What did she buy? Is this a Gift?</p>
+<p>"When shall we exchange Gifts?"</p>
+<p>"Hmm.... After lunch?"</p>
+<p>When I asked her as we left Donkey Donkey, she said to exchange Gifts after lunch. Just then, it was slowly becoming lunchtime, so we headed to a ramen shop that looked decent on the Road.</p>
+<p>"One extra-large Tonkotsu with triple chashu, one regular Shoyu, and one Maekju each, please."</p>
+<p>Because Minamoto Risa was 21 years old this year, there was no Problem at all with her drinking Maekju. Although there was no legal Problem with Minamoto Risa drinking Alcohol, as a result of seeing her drunk in Seoul during last year's Graduation trip, it seemed she had a habit of crying when she drank Alcohol, so today I planned to let her drink only about one Glass of Maekju.</p>
+<p>"Shall we toast?"</p>
+<p>"Yes...!"</p>
+<p>When the Alcohol and ramen arrived, I proposed a toast to Minamoto Risa. We clinked our Glasses and drank Maekju with Swallowing Sound.</p>
+<p>"Khh...!"</p>
+<p>"So refreshing...!"</p>
+<p>Minamoto Risa and I drank Maekju and ate ramen. Drinking the cool Maekju and eating the warm ramen made my Body feel pleasantly relaxed and I felt good. While also having Conversation, we, who had happily enjoyed ramen and Maekju, decided to exchange the Gifts we had bought at Donkey Donkey.</p>
+<p>Of course, I had no Intention of giving her the Cat underwear here. What with the Eyes of the people around us, you know.</p>
+<p>"Here."</p>
+<p>As I held out the Cat Headband, Minamoto Risa made an Expression like, 'What is this~?' along with a slightly relieved Expression. She had said there was nothing she liked at Donkey Donkey, so the Cat ear Headband I chose seemed to be the better option.</p>
+<p>"You want me to wear this?"</p>
+<p>"Later."</p>
+<p>"...Byeontae."</p>
+<p>If she saw the true Byeontae Clothes, the Cat underwear, she'd probably want to take back what she just said about me being a Byeontae. Still, her Reaction wasn't bad, so it was a Sweet Relief. Minamoto Risa gave me that small box she had. When I saw what it was, it was a Digestion aid. As I looked at her with the exact same 'What is this?' Expression Minamoto Risa had just made, Minamoto Risa blushed shyly and said.</p>
+<p>"Not really.... There was nothing I particularly liked, and since you're a glutton, so you don't get a stomachache...."</p>
+<p>Hmm, still, it's a Gift she gave me out of consideration, so I should accept it happily, right? The true Gift I can receive later by making her wear the Cat underwear.</p>
+<p>Since the meal had just finished, I took out one Digestion aid, the Gift Minamoto Risa gave me, and drank it with Water.</p>
+<p>"We've exchanged Gifts, now how about we each grant one Wish?"</p>
+<p>For the buildup to make her wear the Cat underwear, I decided to set a trap of 'granting each other's Wishes.' Also, if we grant each other such things, we can also spend the Date without getting bored, so it could be called killing two Birds with one Stone.</p>
+<p>"Wish?"</p>
+<p>"Yes, as long as it's not too excessive, I'll grant it."</p>
+<p>At my Words, Minamoto Risa's Eyes sparkled. It seemed she had a Wish to make.</p>
+<p>"Although I was the one who suggested granting Wishes, actually, I don't have any particular Wish right now. You go first, Lisa."</p>
+<p>"Then I'll really go first, okay? I.... Let me Experience superpowers again."</p>
+<p>No matter how much of a ○-Punch Man fan she is, just how much does she like superpowers? Still, it's not difficult, so I nodded my Head.</p>
+<p>"But in what way...?"</p>
+<p>"Not by carrying me and flying, I want to walk in empty space by myself."</p>
+<p>"I understand. First, we need to go to a Place where there are few people."</p>
+<p>We left the ramen shop, took a Taxi, and came to Minobucho Park, a park in the old Sigaji before Miyashi became Miyashi. This park was on a dilapidated Street, and there was a rumor that ghosts appeared, so there were few people. Before, there were so few people that I had even made Kirie Kurayamada take a naked Outdoor Sex walk. Of course, no ghosts had actually appeared, though.</p>
+<p>Even though it was Saturday afternoon, it was eerie, and indeed, there were no people.</p>
+<p>"Now, I'm going to float you in empty space, so don't be surprised."</p>
+<p>"Yes...!"</p>
+<p>I concentrated my Mind and floated Minamoto Risa in empty space. My Telekinesis Proficiency had increased tremendously to the point where I could even block incoming Bullets, so now, floating a single Person was as easy as eating porridge.</p>
+<p>"Try walking."</p>
+<p>I told Minamoto Risa to try walking in empty space, then, by changing direction according to Minamoto Risa's Muscles' Rhythmic Motion, I tried to give her the Feeling of truly walking.</p>
+<p>"I, I really feel like I'm walking in empty space...!"</p>
+<p>Seeing her so purely happy made me feel a bit proud too. Minamoto Risa moved her Legs without rest, and as I subtly grasped Minamoto Risa's Rhythmic Motion and adjusted my Telekinesis, I realized this was quite a good task for building Proficiency. While also controlling my Power, I had to use Telekinesis to match Minamoto Risa's Rhythmic Motion; because it was a complex task, I was simultaneously on a Date and undergoing Training.</p>
+<p>"Uheoeok!!"</p>
+<p>As I was concentrating like that, an unexpected Accident occurred: I ran into a pedestrian who was crossing the park. Of course, although it was a little late, I used Shadow Domination to cover my Face and Minamoto Risa's Face with Shadows.</p>
+<p>Still, fortunately (?), the pedestrian, seeing Minamoto Risa with a black Face floating in empty space, seemed to think she was a ghost, and screamed in terror and ran away. We saw that and laughed loudly, but from the pedestrian's perspective, it must have seemed like a ghost was laughing at them, so it must have been even scarier.</p>
+<p>"Shall we stop here?"</p>
+<p>"Yes. Was it fun?"</p>
+<p>Perhaps because she had been walking in empty space for almost two hours, Minamoto Risa was sweating despite the cold Winter. I wiped Minamoto Risa's Sweat and asked, Minamoto Risa nodded her Head with an excited Expression.</p>
+<p>"Yes, it was incredibly fun. I truly feel like I've become a Superhuman...!"</p>
+<p>Like that, we took a Taxi again and returned to Miyashi city. Inside the Taxi, Minamoto Risa, who had been quietly leaning against my Embrace, gently tugged my ear.</p>
+<p>"Hmm?"</p>
+<p>"I.... Actually, I bought two Gifts."</p>
+<p>Minamoto Risa, so the Taxi driver wouldn't hear, whispered into my Whispering Ear. Pleasantly, my Earlobe tickled. She didn't just buy that Digestion aid? As I looked at her with a curious Expression, Minamoto Risa took out one more small box.</p>
+<p>Thinking it was another Digestion aid, I looked closely, but it wasn't a Digestion aid.</p>
+<p>-Birth Control Pill</p>
+<p>"You, you can cum inside me to your heart's content today♥"</p>
+<p>Lisa b-cut!</p>
+<p>Lunar New Year Commemoration Yuka Hanbok!</p>
+<p>Kkiyoot!!</p>

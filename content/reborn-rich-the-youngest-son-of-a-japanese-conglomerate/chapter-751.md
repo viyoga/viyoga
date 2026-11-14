@@ -5,88 +5,51 @@ weight = 751
 chapter = 751
 +++
 
-<p>"Did you all have a good end of the year and New Year's?"</p>
-<p>As I spoke, looking around at the students, they each seemed to have many stories they had been saving up, raising their hands to speak. Of course, some, including Urabe Konoka, who had spent the New Year with me, didn't have any stories to tell me and sat with interesting expressions to listen to their friends' stories.</p>
-<p>"Everyone looks like they had a good time. Let's talk about the details after the opening ceremony."</p>
-<p>The opening ceremony was in a little while, and that would be the end of the school schedule for today. It seemed like I could talk to the special class girls after it was over.</p>
-<p>As we chatted about trivial things for a while, it was soon time for the opening ceremony to begin, so I turned on the TV screen, and Taira Kanna was standing on the platform. As Taira Kanna appeared on the screen, Seizawa Shii said, "It's Kanna-jjang~!" and Minamoto Risa clicked her tongue softly.</p>
-<p>"I am Taira Kanna, the student council Chairman of St. Francis Girls' Academy. Did you all have a good vacation?"</p>
-<p>Taira Kanna seemed quite happy, though she was as usual. She sent me a New Year's text saying she had become an adult and so on. Is she happy to be an adult?</p>
-<p>Taira Kanna had been taking courses from a prestigious British university since she was in the high school division of St. Francis Girls' Academy, and she went to England during vacations to take actual classes and earn credits.</p>
-<p>I knew that she would start working for the Taira Group, almost getting a university degree along with her high school diploma. Graduating from both high school and university at the same time, she's truly a genius in this regard.</p>
-<p>In addition, more than two-thirds of the factions in the Taira Group that followed Taira Saburo were supporting Taira Kanna, so when Taira Kanna graduated from St. Francis Girls' Academy and started working for the Taira Group, she would emerge as the leader of a new successor faction.</p>
-<p>"This semester, the last of the academic year, begins today. There is one exam left, so please do your best so that you do not regret it. Thank you."</p>
-<p>After finishing her short speech, Taira Kanna handed the microphone to Daigo Terue, the headmaster of the academy.</p>
-<p>"As the student council Chairman said, this is the last semester of the academic year. Students, please all focus on your studies...."</p>
-<p>Daigo Terue's speech began. Since there wasn't really anything of substance in it, I checked my phone for a moment. My phone had vibrated when Taira Kanna was giving her speech.</p>
-<p>Huh? It's Han Yu-gyeong. What's wrong?</p>
-<p>-Han Yu-gyeong: My grandfather called me to go to the Shinkang Group headquarters. I think they'll be talking about the branch office I asked for before. If possible, I'll try to take on the insurance company I mentioned before.</p>
-<p>The story of entrusting a Shinkang Group branch office came up, and there was no word for a while, so I thought it was just going to pass, but it seemed like something was being decided today.</p>
-<p>-Jin Yong-tae: Don't be nervous. Even if you can't do the insurance company, we have Plan B or Plan C that we thought of, so it'll be okay.</p>
-<p>-Han Yu-gyeong: Okay~! Are you working now? Hang in there! I miss you, my Yong-tae♥</p>
-<p>"Ryuta-jji~! What are you doing not paying attention?"</p>
-<p>I was getting nagged for chatting instead of listening to the speech. It's a bit humiliating to be told off by Seizawa Shii, who failed a grade because she skipped class?</p>
-<p>"Sorry, sorry, I had a message, so I checked it for a moment."</p>
-<p>I quickly replied that I missed her too and put my phone in my pocket. It's Han Yu-gyeong's first time getting involved in Shinkang Group matters, so I'm a little worried, but I'm sure she'll do well on her own.</p>
-<p>Looking at the TV screen, the opening ceremony was already over. I saw the screen showing Daigo Terue finishing her speech with "That's all."</p>
-<p>"The opening ceremony is over.... Anyone going straight home?"</p>
-<p>"Me~!"</p>
-<p>Uenozono Karen raised her hand. It seemed like she was going straight home because she could do something on a day like today when we finished early. I nodded and told her to have a good day.</p>
-<p>"Uenozono is going straight home.... It's been a while, so the teacher will treat you to something delicious. We can talk in the clubroom for a bit and then have lunch, right?"</p>
-<p>"Waa~!"</p>
-<p>"Ryuta-jji, you've become generous?"</p>
-<p>"I've always been generous. Everyone, go up first. I'll go up after doing some work for about ten minutes."</p>
-<p>Since there were a few things I had to do on the first day of the semester, I sent the students to the clubroom first, and I came to the education preparation room. I received the documents that came by fax, checked them, quickly processed the work, and sent the Korean exam that I had prepared during the vacation by email.</p>
-<p>"You...."</p>
-<p>I was about to press send on the email when I heard Minamoto Risa's voice from behind. Minamoto Risa's tan had faded quite a bit, probably because she had only been studying during the vacation. Hmm, this look is nice too.</p>
-<p>"Risa, weren't you in the clubroom?"</p>
-<p>"You didn't come up, so I said I'd check and came down."</p>
-<p>"I'm all done now."</p>
-<p>Looking at the time, it was a little later than I had said. I said I'd finish quickly, but it took 20 minutes.</p>
-<p>"I missed you, you."</p>
-<p>As I got up with an embarrassed expression, Minamoto Risa hugged me. When Minamoto Risa's scent tickled my nose after a long time, my dick unconsciously twitched and reacted.</p>
-<p>"Pervert...♥"</p>
-<p>Minamoto Risa, who had hugged me tightly, felt the great presence of my twitching dick in her abdomen and glared at me. She glared, but she didn't seem to dislike it at all.</p>
-<p>"Wouldn't it be weirder if I didn't react when Risa hugged me? My sexual desire would be twisted in a strange way."</p>
-<p>"Ahaha, what's that~!"</p>
-<p>Minamoto Risa laughed while hugging me, finding my words funny. Minamoto Risa, who had been hugging me for a while, let go of me, saying, "Okay, I'm charged up!" I couldn't hug her forever because there were special class students waiting.</p>
-<p>Minamoto Risa and I went up to the clubroom together. By the way, it's been a while since I've been in the clubroom.</p>
-<p>"Did you wait long? I had more work than I thought.... Uh, what's this?"</p>
-<p>As I apologized and opened the door to the clubroom, I smelled an unpleasant odor. Wondering what was going on, I saw the special class students covering their noses and taking things out of the refrigerator.</p>
-<p>"Some of the food in the refrigerator has gone bad. Even though we put it in the refrigerator, it must have been left unattended during the vacation."</p>
-<p>Ah, that's right. Even though the winter vacation is short and we put it in the refrigerator, food that is easily spoiled would have spoiled enough in two weeks.</p>
-<p>"Let's clean the refrigerator first rather than talking about what we did during the vacation."</p>
-<p>"We thought so too, so we're taking out the spoiled things now. Ah, who put the raw fish in here?!"</p>
-<p>Seizawa Shii, who lives alone and is surprisingly good at taking care of herself, was leading the refrigerator cleaning. By the way, the person who put the raw fish in was Kujo Kina. She put it in to replenish protein but forgot about it, and now it was completely spoiled.</p>
-<p>I also put on gloves and took out all the food in the refrigerator. Most of the things in the freezer were ice cream or chicken breasts that Kujo Kina had put in, so they probably hadn't spoiled yet.</p>
-<p>"I've contacted the school's environmental facilities management. They'll be here to collect it soon. They said the refrigerator smells, so they're bringing detergent too."</p>
-<p>Konoe Akina put her phone in her pocket and said. They were taking care of the cleaning on their own without me having to help.</p>
-<p>The environmental management team came, collected the spoiled food in bags, cleaned the inside of the refrigerator, and sprayed deodorant in the clubroom, and only then did the foul odor in the clubroom disappear.</p>
-<p>###</p>
-<p>Gangnam, Shinkang Group headquarters building.</p>
-<p>Han Yu-gyeong was sitting at the conference table with several executives. At the head of the table sat Han Mun-gang, the Chairman of Shinkang Group.</p>
-<p>"The executives here have all gathered to see you, Yu-gyeong. Because today is the day you become the president of a new branch office."</p>
-<p>No one objected to Han Mun-gang's words. Even if she was the Chairman's blood relative, it was crossing the line for a young woman of only twenty years old to become the president, but Han Yu-gyeong was a manager who had proven herself.</p>
-<p>Han Yu-gyeong was the co-CEO of TG Tech, which had made a name for itself worldwide.</p>
-<p>"Can I choose the branch office I will be responsible for?"</p>
-<p>"Can you do it where there is a position? Secretary Kang, what branch offices can Yu-gyeong take on right now?"</p>
-<p>In response to Han Yu-gyeong's question, Han Mun-gang casually asked his secretary, Kang Yu-chan, who was standing behind him. Kang Yu-chan handed out the prepared documents to Han Mun-gang, Han Yu-gyeong, and the other executives.</p>
-<p>"The affiliates that Miss Han Yu-gyeong can take on are Shinkang Electronics Service, Shinkang I Net, Shinkang IT Tech, Shinkang System Logics, Shinkang Life Insurance, Shinkang Thunders Baseball Team, and Hwaseong Shinkang Soccer Team."</p>
-<p>None of them were core affiliates of the Shinkang Group. Even though Han Yu-gyeong had succeeded with TG Tech, they couldn't immediately entrust her with core affiliates of the Shinkang Group such as Shinkang Defense, a defense industry, or trading.</p>
-<p>Han Yu-gyeong thought about each of the affiliates that Kang Yu-chan had mentioned. Even though Shinkang Life Insurance, which she had thought about in advance, was on the list, she had to make a decision about the rest of the list.</p>
-<p>She immediately passed on Shinkang Electronics Service, which was in charge of AS and after-sales service, not Shinkang Electronics. Shinkang I Net was also a company that managed the internal wiring network of the Shinkang Group, so it wasn't very useful.</p>
-<p>Shinkang System Logics was a company that provided various consultations within the Shinkang Group, which could have an impact on the entire group, but it wasn't a company that could generate much revenue. And it didn't seem like Han Yu-gyeong's advice would be heeded by other affiliates of the Shinkang Group.</p>
-<p>She excluded the Shinkang Thunders Baseball Team and the Hwaseong Shinkang Soccer Team as soon as she heard them. The Shinkang Group's sports teams were always in last place or just above it, and even if Han Yu-gyeong was appointed as president and they won the championship, it wouldn't be considered a significant achievement because there was no interest in the group.</p>
-<p>What remained was Shinkang Life Insurance and Shinkang IT Tech, which could be said to be quite solid, but Han Yu-gyeong decided to become the president of Shinkang Life Insurance, as she had discussed with Jin Yong-tae in advance. She felt like Shinkang IT Tech, which seemed like the best on the list, was a trap.</p>
-<p>"If my grandfather allows it, I would like to take on Shinkang Life Insurance."</p>
-<p>"Hmm, is that so?"</p>
-<p>Han Mun-gang asked back as if he was surprised. Han Mun-gang had thought that Han Yu-gyeong would choose Shinkang IT Tech. He had put Shinkang IT Tech on the list because of the plot against TG Tech, and when that went awry, his expression briefly hardened, but since he had already given Han Yu-gyeong the right to choose, Han Mun-gang had no choice but to nod.</p>
-<p>"Okay, take good care of Shinkang Life Insurance and grow it."</p>
-<p>"Yes, I won't disappoint you, grandfather."</p>
-<p>Han Mun-gang and Han Yu-gyeong shook hands and exchanged words of blessing, and the executives of the Shinkang Group applauded and congratulated them.</p>
-<p>Everyone had a smiling expression, no matter what they were thinking, but only Han Yu-gyeong's father, Han Seong-jae, was clapping with a vacant expression, looking at his daughter, who had become president before him.</p>
-<p>_____</p>
-<p>New cover B-cut! I changed it to another cover right after Christmas ㅎㅎ</p>
-<p>She was definitely wearing clothes, but her raw boob popped out, so it was rejected.</p>
-<p>It felt like milk was suddenly coming out, so it was rejected ㅎㅎ</p>
-<p>Just B-cuts!</p>
+<p>Uwooong-! The sword Taira Kanna swung made a sound like a swarm of bees crying out. Alik instinctively felt the danger if he defended against this sword strike.</p>
+<p>Alik trusted his instinct and dodged without clashing swords. As he bent his waist and rolled once on the floor, the sword narrowly grazed past him. From the immense pressure still felt even after the sword passed, his entire body felt tingling. Alik wondered if he could truly defeat this Ryuta thief. But Alik shook his Head to erase the negative thoughts and swung his sword.</p>
+<p>"Ryuta...! Give him back!" "You're cute!" Alik's sword, flowing with lightning, and Taira Kanna's rapier, humming like the buzzing wings of a hornet, clashed.</p>
+<p>Kukwakwa! It was an immense shockwave, hard to believe it was just swords clashing. Alik's lightning strike and Taira Kanna's strange vibration clashed against each other, emitting a shockwave strong enough to make hair flutter.</p>
+<p>Alik and Taira Kanna, who had retreated a few steps due to the shockwave, took up their battle stances again. As is typical of rapier swordsmanship, Taira Kanna aimed the tip of her sword at her opponent, but Alik was different.</p>
+<p>Seueuk. Alik put his sword back into its scabbard and gripped the handle as if to draw it at any moment, glaring at Taira Kanna.</p>
+<p>"Interesting, is that Iaijutsu?" "...." Alik gave no answer to Taira Kanna's question. His attitude simply conveyed his focus on the next attack.</p>
+<p>As lightning sparked around Alik's body and energy seemed to gather in his sword, Taira Kanna, perhaps having given up on hearing Alik's answer, thrust her sword at Alik.</p>
+<p>Taira Kanna's thrust, fired as if shortening the space between them. It was a simple thrust, not a technique from any martial art, but its perfection seemed exceptionally high.</p>
+<p>At that moment, Alik's sword was drawn from its scabbard with a flash of lightning and swung.</p>
+<p>-Lightning Dragon Leaping from its Nest (Выпрыгивающий из гнезда Молния дракона) What burst from Alik's scabbard was not a blade made of iron. It was a colossal lightning energy in the shape of a Dragon.</p>
+<p>Taira Kanna seemed momentarily surprised by Alik's incredible Iaijutsu, but soon continued thrusting her sword with a calm demeanor.</p>
+<p>Beonjjeok! Lightning exploded, and a dazzling light illuminated the underground space. As the light lingered in the underground and then vanished, the scene was revealed: it was Alik who had fallen. Of course, Taira Kanna, who had blocked Alik's Iaijutsu, also had blood on her mouth, but she appeared relatively unharmed.</p>
+<p>"Is that a technique you've only recently started learning? Its perfection seems to be lacking. You should focus more on perfection than on the power of the technique, Alexandra. Especially in actual combat like this, even a small gap created by a lack of perfection can become a fatal weakness." Taira Kanna was kindly giving instructions as if she were a teacher/master. But contrary to her kind demeanor, she was slowly approaching Alik with a chilling Gaze to finish him off. The fallen Alik weakly mumbled, "Ryuta...."</p>
+<p>Tang! But Alik was not alone.</p>
+<p>To help Alik, Saionji Diana's gunfire and Sakagami Rena fired Katon, and Otagi Yuka and Seizawa Shii rushed in.</p>
+<p>"A combined attack, huh.... That's a good choice." Taira Kanna deflected the bullets with her thin rapier and spread her Palm to scatter the Katon.</p>
+<p>Jjeong! Seizawa Shii's strike, possessing immense power, made the sword that had deflected the bullets spin and blocked it with a roar.</p>
+<p>Just as Taira Kanna was about to dodge Otagi Yuka's final strike, Konoe Akina's Mystical eye momentarily halted Taira Kanna's movements. In the end, Taira Kanna could not avoid Otagi Yuka's strike.</p>
+<p>Kwaaaang! An explosion of blood-red Blood Energy. The atmosphere trembled due to the pressure from the explosion. Because it was a strike given with utmost effort, Otagi Yuka's Gaze, having consumed a lot of Blood Energy, became slightly hazy.</p>
+<p>Jjakjjakjjakjjak! Clapping sounds were heard from within the blood-red smoke. And soon, Taira Kanna walked out, parting the blood-red smoke. Of course, Taira Kanna's Appearance was not unharmed. The St. Francisco Girls' Academy School Uniform was torn, and there were quite large-looking wounds here and there, but those wounds were recovering visibly fast. It was a phenomenon that could be called regeneration.</p>
+<p>"Even regeneration...? Are you a monster?" Otagi Yuka asked, looking at Taira Kanna's Appearance. When Otagi Yuka, a Vampire, asked, "Are you a monster?", Taira Kanna chuckled.</p>
+<p>"Orabeoni also regenerates, doesn't he? Is Orabeoni also a monster?" "Of course, Teacher-ssi is also a monster. Our monster." To Taira Kanna's question, implying that if she was a monster, Taira Ryuta was also a monster, Otagi Yuka acquiesced, but added the affectionate Words, "Our monster."</p>
+<p>"Our monster, huh...! Those are good Words. But you all haven't met my standards. Prepare yourselves." Taira Kanna seemed pleased with Otagi Yuka's answer, but soon changed her Expression to a cold one and raised her sword again.</p>
+<p>At Taira Kanna's Killing Intent-filled Appearance, all the Students, except for the fallen Alik and Otagi Yuka whose Combat power had sharply decreased, hardened their Expressions and picked up their respective weapons.</p>
+<p>It was then. With Kung! Kung! sounds, the ceiling suddenly burst open.</p>
+<p>Kuwooong! The one who fell from the first Underground floor was Naruse Shiyo, who had undergone Half-Dragon transformation. Naruse Shiyo glared at Taira Kanna with Dragon Eyes whose pupils were split, snarling as she drew the nagamaki from her back.</p>
+<p>Taira Kanna seemed to assess the Skill of the suddenly appearing Naruse Shiyo, staring for a moment before nodding her Head.</p>
+<p>"Including Shiyo-ssi, it's a narrow pass. Then I'll be taking my leave now. Orabeoni will be in that room. And please tell him I've accepted the proposal." After pointing to one side room, Taira Kanna naturally walked past the Class Teacher Rescue Squad Students.</p>
+<p>At Taira Kanna's Words, Naruse Shiyo, who hadn't understood the Situation, with a slightly dumbfounded Expression, asked, "Huh? Is it over?" and looked around at her Friends.</p>
+<p>"Rina, take care of the Disciplinary Committee members." "Yes, Chairman-nim...." Nakanoin Rina, who had been defeated by Otagi Yuka, had a poor Expression. Taira Kanna patted Nakanoin Rina's Shoulder, saying, "I'll make you stronger," and began to attend to the fallen Disciplinary Committee members.</p>
+<p>As if the fierce battle just now had never happened, her Attitude was as if she had no Interest at all in the Class Teacher Rescue Squad Students.</p>
+<p>The Class Teacher Rescue Squad Students, who had been standing blankly for a moment wondering what was going on, attended to the fallen Alik and Otagi Yuka, whose mind was wavering due to her decreased Satiety, and headed towards the door Taira Kanna had pointed to.</p>
+<p>"I don't know if it's Fortunate or Regrettable that I didn't get to play a big role...." Seizawa Shii mumbled that, but she knew it was Fortunate because if Naruse Shiyo hadn't appeared at the right time, she would have been seriously injured or dead. Even in her own thoughts, the Probability of winning against Taira Kanna, even if she fought to her heart's content, seemed very low.</p>
+<p>"The door is open." It had only been one day since they hadn't seen their Class Teacher, but it felt as if they hadn't seen him for more than half a month. The Students Gulp-opened the door to see their beloved Class Teacher.</p>
+<p>"Wait a minute~! When that Test you mentioned is over, I'll be meeting the Kids from our class, but I'm naked right now, you know? Would you give me any Clothes?" "They're in that drawer over there, so feel free to wear whatever you like, Orabeoni." As Taira Kanna heartlessly left me tied up as I was to meet the Students from our class, I hastily used Shadow Domination to prevent the door from closing.</p>
+<p>Because it was a System that locked immediately if the door closed, in case the Students failed, I used Shadow Domination to prevent the door from closing so I could escape on my own power.</p>
+<p>"Seueup.... Hu...!" No matter how I thought about it, I couldn't meet the Students while naked and tied spread-eagle. I had my dignity as a teacher, after all. I took a deep Breath, then forcefully slammed my hand onto the bed frame, crushing my right hand.</p>
+<p>Kwadeudeuk! "Kkeueueu! Damn it...!" I endured the pain and quickly pulled out my crushed hand before it could regenerate. Having freed my other hand and both my Legs in this manner, I lay back on the bed, rested while waiting for regeneration, then headed towards the drawer Taira Kanna had mentioned.</p>
+<p>Although it had only been one day, it felt good to be able to move on my own. Satisfied with the Sensation of the floor against the Soles of my Feet, I opened the drawer.</p>
+<p>"...!" No, I did ask for any Clothes, but this is a bit much..... What appeared when I opened the drawer were Costume Clothes. It seemed Taira Kanna intended to wear them when she was with me, but how could I wear these?</p>
+<p>The most innocuous item was the School Uniform of Miyashi Municipal High School, a neighboring High School in Miyashi, but it seemed too small for my Body.</p>
+<p>"Huwoo...!" I sighed for a moment, then quickly pulled out Clothes to check if there were any that would fit my Size.</p>
+<p>"Is this all...?" After rummaging for a few minutes, what I finally found was the Princess Peach Costume from the ○rio game. As it was a voluminous Princess Dress, its length reached my Thighs, and being made of stretchy Material, it seemed I could Force-stretch the rest to wear it.</p>
+<p>"Kkeueung...!" As I struggled to stretch and put on the Clothes, I felt like some perverted sexual fetish wrestler. Still, escaping was the priority. Just as I finally approached the door to escape this dreadful room, the door swung wide open.</p>
+<p>"Ah...!" """"....!"""" My Eyes met with the Students from our class who had come to retrieve me. Naturally, everyone looked at the attire I was wearing, and Seizawa Shii was the first to open her mouth upon seeing my Appearance.</p>
+<p>"What is this, not even a Princess Peach, Ryuta-jji!"</p>
+<p>Iaijutsu Alik B-cut...! The good thing about the new model is that the weapons look a bit more natural haha Of course, you have to generate a lot more illustrations than other illustrators to get one you like. Kkiyot!! New Model Alik</p>

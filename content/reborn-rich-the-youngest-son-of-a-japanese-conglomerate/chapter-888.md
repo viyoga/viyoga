@@ -5,63 +5,75 @@ weight = 888
 chapter = 888
 +++
 
-<p>are breast exposure please there view with</p>
-<p>"Something is strange."</p>
-<p>Takakusaki Gengo muttered. Takakusaki Gengo, who had fought countless Battles, possessed a Beast-like Sixth Sense. His Beast-like Sixth Sense gave him a Feeling that something was going awry in the upcoming fight with Fujigasaki Rinka and her Disciple, Kinui Tachio, Shimokawabe Airen, and others, which was to take place the day after tomorrow.</p>
-<p>"What is strange?"</p>
-<p>Hojo Otoji, Anyaji's second-in-command, who stood beside Takakusaki Gengo, pushed up his Glasses and asked Takakusaki Gengo, but Takakusaki Gengo shook his Head.</p>
-<p>"Well.... I don't know what's strange."</p>
-<p>"Perhaps it's because various Large Corporations are coming into Miyashi for St. Francis Girls' Academy's Graduation ceremony tomorrow? But the day after tomorrow is not a special day, so all the Large Corporations that came in will have left, and there will be no one to interfere with our Work."</p>
-<p>No matter how peerless a Master of Fist Technique Takakusaki Gengo was, the Large Corporations dominating Japan had Enemies that rivaled or surpassed him. Hojo Otoji subtly suggested that Takakusaki Gengo's Sensitive Nerves might be due to that.</p>
-<p>"Yes, that could be."</p>
-<p>"In fact, the only People to be wary of in tomorrow's Battle are Fujigasaki Rinka, old man Kinui Tachio, and Shimokawabe Airen, aren't they? With so many Masters arrayed in our Anyaji, the Possibility of losing is almost nil. Fujigasaki Rinka's Disciple and the remaining individuals who could be called Enemies can all be seen as mere Children, so there's no need to worry much about them."</p>
-<p>Hojo Otoji spoke with Confidence. Although Anyaji was not Japan's strongest faction, he felt no great Taut Tension about this Battle because he had the Conviction that the Possibility of losing against such Enemies was almost non-existent.</p>
-<p>Of course, this time they were facing Fujigasaki Rinka, who could be called Anyaji's greatest Opponent, but Anyaji also had Confidence in facing Fujigasaki Rinka because they had cultivated Fist Technique practitioners called White Light Fist Technique practitioners, who could boast extreme Compatibility/Affinity against Fujigasaki Rinka, by researching Takakusaki Athena's white Aura.</p>
-<p>"It's good to see you so confident. Otoji, I can trust you, right?"</p>
-<p>"Of course. With this Operation, there will be no Enemies in the Miyashi area capable of opposing Anyaji. Since Fujigasaki Rinka will also be gone, those Guys from the Fist Alliance will naturally try to come under our Subordinate."</p>
-<p>"We'll see about that. No matter how confident you are, it's better to focus on the Miyashi fight right before your Eyes rather than on future Matters."</p>
-<p>Takakusaki Gengo, who had instilled a sense of caution in the overly confident Hojo Otoji, thought about his Sixth Sense, which was faintly ringing a Bell of warning.</p>
-<p>Takakusaki Gengo, after a moment of thought, reached a Conclusion. There was no Problem. He thought that this level of uneasy Sensation before a Battle was natural. After all, his Opponent was Fujigasaki Rinka, Anyaji's and his own greatest Opponent.</p>
-<p>Valentine's Day, when I received many chocolates, had also passed. Besides the special class where I was the Class Teacher, I had received chocolates from St. Francis Girls' Academy Students and Teachers, Miyashi City High School Students, Miyashi's Career Women, and even my Lovers whom I couldn't meet due to my Mission, so of course, I couldn't eat them all.</p>
-<p>There were some, like Minamoto Lisa, Seizawa Shii, and Taira Kanna, that were too precious to eat, so I just left them, and since the quantity was so immense, for my Health, I decided to put all the chocolates in the refrigerator and eat them gradually over several months.</p>
-<p>After such a hectic Valentine's Day, we finally gathered on Sunday to conduct the last check on the Match against Anyaji, which would take place on Tuesday.</p>
-<p>There was no new content; it was a Time for a final check of what we had continuously discussed in Meetings. Of course, since it was an undertaking by People, and we didn't know what Variables might arise, we decided to Contact each other and respond organically according to The Situation.</p>
-<p>After finishing the Preparation for the Anyaji affair and roughly completing my Study for the PMC Test on the same day, Sunday had already passed.</p>
-<p>Finally, the day of St. Francis Girls' Academy's last schedule, the Graduation ceremony, dawned.</p>
-<p>St. Francis Girls' Academy's Graduation ceremony was, of course, one of the most important schedules from the academy's perspective. This year was especially important because among the graduating Students were Taira and Minamoto.</p>
-<p>As Minamoto Lisa, who should have graduated last year, was Held Back a Year, this year's Graduation ceremony became a major Event where the Young Lady of the Tairaga Family and the Young Lady of the Minamoto Family graduated simultaneously.</p>
-<p>Naturally, as it was their Daughters' Graduation ceremony, Taira Danjo and Minamoto Ushin attended, and at the appearance of these two Giants of Japan's business world, numerous famous Characters from political, business, and noble families expressed their Intention to attend St. Francis Girls' Academy's Graduation ceremony.</p>
-<p>So many People expressed their Intention to participate that St. Francis Girls' Academy only allowed current Students, graduating Students' families, or related individuals to attend, which prevented Miyashi and St. Francis Girls' Academy from becoming Commotion.</p>
-<p>In fact, the Graduation ceremony itself wasn't long enough for any Lobbying, and if People needlessly swarmed Taira Danjo and Minamoto Ushin, causing an Accident, or if those two ill-tempered old men got angry, St. Francis Girls' Academy would have to take Responsibility. So, allowing only family and close relatives was a wise Measure.</p>
-<p>I woke up early in the Morning and, for the first Time in a while, put on a Suit. Old man Taira Danjo and Minamoto Ushin would be watching me as their Daughters' Class Teacher, and many Parents would also be present, so I couldn't wear a tracksuit like at the Sports Festival.</p>
-<p>"Hmm, that Guy is handsome...!"</p>
-<p>While tying my Necktie, I looked in the Mirror, admired my Beauty (?) for a moment, then casually styled my Hair, picked up my document Bag, and stepped Outside the House.</p>
-<p>"The Weather is nice too."</p>
-<p>Even though today was Graduation, my Mission wasn't entirely over. To finish the Work of Yamashiro Ryuta, the Korean language Teacher and special class Class Teacher at St. Francis Girls' Academy, some Paperwork was needed after the Graduation ceremony.</p>
-<p>At most, it was a Matter of a few days, and since Minamoto Lisa, the Target of my Mission, was graduating, it was effectively true that my Work ended today.</p>
-<p>Taira Danjo had Contacted me yesterday, saying he wanted to see me today, so I probably had to Report on my Mission today.</p>
-<p>In fact, this had been quite a Worry for a while. After I Resolved to be with Minamoto Lisa, I cast aside such Worries, but surely, old man Taira Danjo would get incredibly angry when he heard my Story.</p>
-<p>As I walked, lost in various Thoughts, I soon arrived at St. Francis Girls' Academy's main gate. Having commuted this Route for the past few months, it had become second nature to my Body.</p>
-<p>Since it wasn't yet Time for Students to arrive, I passed through the quiet main gate, greeting the Security Guard as I entered.</p>
-<p>"You're working hard."</p>
-<p>"Just one more day of hardship, Yamashiro seonsaengnim~!"</p>
-<p>Because they were Security Guards whom I had slipped some Money each month to ask for Convenience, their Expressions towards me were always friendly. Of course, a slight regret that they wouldn't receive anything from next month remained in their Expressions, but that couldn't be helped. At that Time, I wouldn't even be a Teacher at St. Francis Girls' Academy, so there would be no Reason to slip them Money.</p>
-<p>Passing the main gate, I exchanged greetings with the Students who had arrived early at School and headed towards the special class building. Thinking that today was effectively the Last day, I felt a little sentimental.</p>
-<p>I had only been appointed since September, barely six months, yet I felt this Mood.... Was it because I had aged a year that female Hormones were coming out? No, that wasn't it. It must be because so many things had happened at St. Francis Girls' Academy.</p>
-<p>In front of the special class building stood a Filming team I hadn't seen before. It was Uenozono Karen's MyTube vlog team, whom I had seen once during the Sports Festival, and they had Contacted me last week to request Filming cooperation.</p>
-<p>Today, they were scheduled to Film a Video of the special class graduating Students, including Uenozono Karen, and I understood that their agency had specifically Requested it because Videos of the special class, which always had many Beautiful Women, were very popular. I wondered if Taira Kokoro would also come today. If possible, I should try to talk to Taira Kokoro today.</p>
-<p>"Hello."</p>
-<p>I greeted the vlog Filming team, entered the special class building, passed through the familiar corridor, and opened the equally familiar education preparation room door. As I came, I noticed that there was no presence in the Infirmary Opposite Side the education preparation room.</p>
-<p>Kijimoto Jurie didn't seem to have Gone to Work yet. In fact, no one would know if the Infirmary Teacher didn't come to the Graduation ceremony, so she didn't have to, but Kijimoto Jurie was very close with Naruse Shiyo, who had a weak Body, and although she didn't have an official title, she played a significant Role as the special class assistant Class Teacher, so she was close with the Students and would therefore participate in today's Graduation ceremony.</p>
-<p>I sat in the education preparation room for a moment, doing the remaining Paperwork, and soon heard the sounds of Students arriving at School. I glanced at the Clock on the desk, roughly finished the Paperwork, picked up the tablet that served as the Attendance Book, and left the education preparation room.</p>
-<p>Outside, a Filming team was waiting, perhaps to capture the Last Morning Jorye. Among the Filming team, I saw Taira Kokoro, a Beautiful Woman who looked strict. I gave a slight eye-greeting, passed the Camera, and opened the special class door.</p>
-<p>Requested by Gojoy-nim: Muko Neika's casual attire and underwear~!</p>
-<p>Casual Attire~!</p>
-<p>A cyber Suit that could be called casual attire because she does a lot of Missions haha</p>
-<p>Her real casual attire is a white T-shirt + Jeans + pistol holster haha</p>
-<p>Underwear~!</p>
-<p>Muko Neika can't give up her holster even in her underwear haha</p>
-<p>Requested by TheDreaming-nim: Han Yu-gyeong 1. Pressing her breast against the Glass inside a Phone Call booth. 2. Holding her breast and a phone Camera Situation!</p>
-<p>1.</p>
-<p>2.</p>
-<p>I don't know why, but the T-back isn't appearing ㄷㄷ</p>
+<p>"Shameless bastard. You Hypnotized me, and now you invite me to Anyaji? Isn't that a truly Conscienceless action?" Seizawa Shii spat her Words at Funayama Seigo, but Funayama Seigo, with an Expression that said 'What's wrong with that?', pushed up his Glasses.</p>
+<p>"If you join our Anyaji, we will adequately compensate you for that. Our Organization treats its gang members so well that for outsiders, we can only offer an Apology."</p>
+<p>Naturally, it was Bullshit. Moreover, contrary to his Words, he didn't even properly Apologize. Seizawa Shii, after those Words, gave up on receiving an Apology from Funayama Seigo. Then, all that remained was to smash Funayama Seigo's Face with her Fists.</p>
+<p>Kwaaang!</p>
+<p>With just a kick of her Feet, a tremendous roar erupted, and as she closed the distance with Funayama Seigo, Seizawa Shii attempted a Superman Punch, extending her Fist straight out.</p>
+<p>Funayama Seigo hastily raised his Hand to block Seizawa Shii's Fist, but he couldn't block Seizawa Shii's Fist, which possessed Super Strength, without taking any Harm.</p>
+<p>"Kueuk!"</p>
+<p>Funayama Seigo's Hand, which had blocked Seizawa Shii's Fist, was pushed back, striking his nose and causing a gush of nosebleed. He needed to reset his broken nosebone, but Seizawa Shii's Attack didn't end. Seizawa Shii, after opening her Fist, grabbed Funayama Seigo's Wrist, which had been holding her Fist, and performed an over-the-shoulder throw.</p>
+<p>Kuung!</p>
+<p>Funayama Seigo crashed into the Ground, and the playground's sand shot up.</p>
+<p>"Keuheok!"</p>
+<p>Although Funayama Seigo had managed to perform a breakfall in that Moment, he was slammed onto the floor with such force that he felt the wrenching pain of his Internal Organs rattling.</p>
+<p>"I would be grateful if you would release my Hand...!"</p>
+<p>Funayama Seigo quickly formed hand seals with the Hand not caught by Seizawa Shii, and unleashed a Kotodama (Word Spirit) that confused the mind. It was a basic mental Attack, but having faced her before, he thought it would work because Seizawa Shii's Mental Defense was low compared to her martial arts Skill and physical Ability.</p>
+<p>"You know I get angry at that Hypnosis-like thing, and you still use it openly?"</p>
+<p>Killing Intent, as if Flames were erupting, blazed from Seizawa Shii's Eyes. Seeing that, Funayama Seigo thought, 'It's not working? This is getting difficult,' and slowly began to move his Body. He pulled Seizawa Shii's Arm, which was holding his Wrist, and climbed onto her. Then, moving like a snake, he got behind Seizawa Shii and began to twist her Elbow.</p>
+<p>Funayama Seigo was a Fist Technique practitioner of the ground-fighting style, favoring grappling techniques in Jujutsu. While chokes, joint locks, and pins are difficult techniques to use against top-tier martial artists who employ various Energy Manipulations, the fact that he held a seat among Anyaji's Four Heavenly Kings with such techniques meant that Funayama Seigo's ground techniques had reached a high Realm.</p>
+<p>Especially against Fighters who relied on brute strength like Seizawa Shii, he had almost never suffered Defeat, so in this Miyashi Attack, Funayama Seigo wanted to face Seizawa Shii once again. He thought he could easily win and thus easily achieve merit.</p>
+<p>In fact, he was confident he could finish her with mental Sorcery and hadn't expected it to come to a physical fight, but Funayama Seigo was confident he could defeat Seizawa Shii even in a physical fight. The position of an Anyaji Four Heavenly King could not be attained by Sorcery alone.</p>
+<p>"It might not hurt now, but if I just apply a little more...!"</p>
+<p>Udu-duk...!</p>
+<p>As Funayama Seigo applied force, an ominous sound came from Seizawa Shii's Elbow. Just as Funayama Seigo said, it seemed that if he applied a little more force, a serious Problem would occur in her Elbow.</p>
+<p>"Bullshit! I'm flexible, you know?"</p>
+<p>Seizawa Shii shouted and rotated her Shoulder and Arm. Seizawa Shii, too, hadn't been idle while waiting for this day.</p>
+<p>As if preparing for Funayama Seigo's mental Attack, she had heard about Funayama Seigo's combat style from Athena Mannerheim, and had sought out Jujutsu practitioners and Jiu-Jitsu athletes who used ground techniques, undergoing quite rigorous Training.</p>
+<p>Of course, a Layperson wouldn't have been able to learn much in such a short time, but Seizawa Shii, with her outstanding Talent, absorbed various Teachings quickly, like a sponge.</p>
+<p>Naturally, because the absolute time was short, Seizawa Shii hadn't reached the point where she could primarily use ground-fighting techniques, but she was capable enough to defend against her Opponent's techniques. Just as Seizawa Shii herself had said, she was quite flexible, so she could escape from techniques that an ordinary Person wouldn't be able to escape from, relatively easily.</p>
+<p>"I didn't know you were confident in Jujutsu too!"</p>
+<p>Of course, Funayama Seigo was not one to simply watch Seizawa Shii try to escape his choke. He moved back and forth according to Seizawa Shii's movements, and in different positions, he was choking or twisting Seizawa Shii's various joints.</p>
+<p>"Byeontae bastard! Get off me, you pervert!!"</p>
+<p>Seizawa Shii, too, moved incessantly as she had learned, shouting at Funayama Seigo. In truth, Seizawa Shii preferred striking battles where she could smash her Opponents, so even though she had practiced beforehand, this Situation was not particularly enjoyable.</p>
+<p>In the same orphanage playground, Genpaku, who was tearing up the playground with immense power, and Sakagami Rena, who was moving dazzlingly, throwing Surigeom, or using flashy Ninjutsu, were engaged in a splendid and fierce battle. In contrast, Seizawa Shii and Funayama Seigo's battle was a sweaty, ground-based swamp fight.</p>
+<p>"Aaaah! Let go!"</p>
+<p>"Huhuhu! If you agree to join Anyaji, I'll let you go."</p>
+<p>In fact, Funayama Seigo was at Leisure. Because he didn't think Genpaku would lose to Sakagami Rena, he was leisurely waiting for Seizawa Shii to become completely exhausted.</p>
+<p>No matter how much Seizawa Shii displayed unexpected ground Skill, it was a pathetic Skill compared to his own, honed over a lifetime of Training, so even the seemingly evenly matched fight now was Funayama Seigo's Intention.</p>
+<p>But that was Funayama Seigo's blunder.</p>
+<p>The two, who had been engaged in a muddy fight for a long time, one trying to escape the ground and the other preventing it, heard a Swaeeaaek sound of wind cutting through the air.</p>
+<p>Just then, because they were in a Position looking up at the sky, Seizawa Shii and Funayama Seigo could spot the Arrow flying from the rooftop of the adjacent building.</p>
+<p>Deep Thrust! With a chilling sound, the Arrow pierced Genpaku's massive Body.</p>
+<p>"Kueuaaaaaaah!!"</p>
+<p>Genpaku, as if feeling agonizing pain from what seemed to be no ordinary Arrow. Funayama Seigo was flustered by the sudden Situation. He had clearly heard from the information broker Kyoshiro that there would be no Support forces other than Seizawa Shii and Sakagami Rena, hadn't he? Seizawa Shii didn't miss the Gap in Funayama Seigo's fluster.</p>
+<p>Seizawa Shii, escaping from Funayama Seigo's Embrace like a loach, brushed off the sand, then looked at Funayama Seigo with an Expression that said, 'Now you're dead.'</p>
+<p>"I was going to beat you to Death by myself, but now it's 2-on-1, no... 3-on-1, isn't it?"</p>
+<p>Seizawa Shii glanced at Sakagami Rena, who was delivering the final blow to Genpaku, and spoke. Though she hated to admit it, Seizawa Shii was still not confident she could defeat Funayama Seigo. Even if she attacked with striking techniques, Funayama Seigo would grab her attacking Arm or Legs and cling to her again.</p>
+<p>However, Sakagami Rena and Urabe Konoka, who could perform ranged Attacks, had a favorable Compatibility/Affinity against Funayama Seigo, who had to cling and engage in Melee Combat.</p>
+<p>"Well.... I didn't expect Guardian Genpaku to fall to that ninja, but it's still too early to guarantee Victory."</p>
+<p>As Funayama Seigo raised his Hand, Anyaji monks in splendid robes appeared from somewhere. Among them, alongside the Anyaji monks Seizawa Shii knew, came individuals in somewhat different attire; unlike the Anyaji monks in simple robes resembling Martial Arts Uniforms, these wore quite ornate Kasaya (Buddhist robes).</p>
+<p>There were about twenty monks, and a considerable number, about fifteen, of monks in ornate Kasaya.</p>
+<p>Allow me to introduce them. You probably already know our Anyaji monks... These are the Anyaji Esoteric Monks (密法僧), under my direct supervision and that of my Sabu-nim.</p>
+<p>The Esoteric Monks were members of Anyaji who practiced esoteric magic, using wicked Sorcery, and were subordinate to Hojo Otoji and Funayama Seigo.</p>
+<p>Originally, their main Role was combat support for the Anyaji monks, but in Anyaji, which revered martial arts, Esoteric Monks who used Sorcery did not hold a particularly high Status. However, when Hojo Otoji, who was favorable to Sorcery, became Anyaji's second-in-command, they became something akin to Hojo Otoji's direct unit.</p>
+<p>After that, instead of combat support, they performed tasks such as casting Curses on dangerous Enemies, or Brainwashing the children of kidnapped Japanese high-ranking officials.</p>
+<p>"Since it has come to this, I have no Choice but to give up on Seizawa-ssi. Regrettably, since I have lost one Guardian, I, too, have no Choice but to take your life."</p>
+<p>Funayama Seigo snapped his Fingers as if he had no Choice. Then, the Anyaji Esoteric Monks began chanting an ominous Order.</p>
+<p>The Anyaji Esoteric Monks focused their mental Attacks on Seizawa Shii, but thanks to various Training sessions to increase her Mental Power, and a mental Protection Talisman located in the Cleavage of her cyber Suit, she was able to withstand the Esoteric Monks' mental Attacks.</p>
+<p>"Ah, and some of the monks who came with me, go to the rooftop from where the Arrow flew and kill the one who shot it."</p>
+<p>Funayama Seigo, as if he had just remembered, Commanded the Anyaji monks who had appeared with the Esoteric Monks. Five Anyaji monks, after bowing in response to Funayama Seigo's Command, ran towards the Entrance of the abandoned orphanage.</p>
+<p>Kwaaang!</p>
+<p>The five monks who were running were caught in the explosion that occurred at the Entrance of the abandoned orphanage and died. Because it was a considerably large explosion that would be difficult for an ordinary Person to withstand, even the highly trained Anyaji monks could not stop the Touch of Death.</p>
+<p>Requested by DoubleBarrelShotgun-nim: Wedding Dress Liz~!</p>
+<p>Kkiyoooot~!!</p>
+<p>Requested by Gojoy-nim: Succubus Yukiko Belly Dancer and Tape Attire~!</p>
+<p>Belly Dancer~!</p>
+<p>Tape~!</p>
+<p>Requested by ISaveI-nim: Angewomon Cosplay Konoka~! Naruto Ninja Attire Lena~!`</p>
+<p>Konoka first~!</p>
+<p>Lena~!</p>
+<p>I wondered if this fit the Naruto vibe, so I tried a different Style hehe.</p>
+<p>Kkiyot~!!</p>
+<p>Requested by MidNightSKY-nim: Child Linling looking at the night sky~!!</p>
+<p>Her Expression is blank, but she's floating because she's in a good Mood hehe.</p>

@@ -5,63 +5,102 @@ weight = 818
 chapter = 818
 +++
 
-<p>"...?"</p>
-<p>Minamoto Risa, for a moment, tilted her Head as if she hadn't understood my Words. When the Word 'Taira,' which she had never even considered while looking at me until now, came out, she seemed to flinch for a moment.</p>
-<p>"You, will you say that again?"</p>
-<p>"I'm actually Taira Ryuta. Hmm... to be more precise, I was originally Hata Ryuta, but I became Taira Ryuta early last year."</p>
-<p>Minamoto Risa wore an Expression of even greater incomprehension at my Words. Had I omitted too much in the middle? Chewing over my Words again, I realized anyone would find it hard to understand.</p>
-<p>"I don't know of a Family named Hata in the Taira collateral line... Were you adopted? And why did you change your name?"</p>
-<p>Minamoto Risa, with a confused Expression, asked me various things. She seemed to think I was a child of the Hata Family, a Taira collateral line, who was then adopted.</p>
-<p>"First, to explain in detail, until early last year, I was Hata Ryuta. I grew up as a Zainichi Korean without a Father. But one day, men in suits took me to the Taira Main family. There, the funeral of a man named Taira Saburo was being held. And that man was my Dad. Like you, Lisa, I was also a bastard child."</p>
-<p>Minamoto Risa's Eyes, listening to my Story, began to tremble greatly when she heard that I, too, was a bastard child. Because Minamoto Risa knew the Life of a bastard child well, the angry Gaze she had for me not revealing I was Taira Ryuta seemed to soften slightly. Since there was a common ground (?) of both being bastard children, the embarrassment and anger she felt at the sudden information seemed to ease a little.</p>
-<p>"I also heard the Story that the deceased Taira Saburo's non-existent Son suddenly appeared. That... was you."</p>
-<p>Since Seizawa Shii also knew the Story of me, Taira Saburo's non-existent Son, suddenly appearing, I thought Minamoto Risa would also know that fact. When I attended the Talent Development Institute, I had been attacked by gunmen hired by the Minamoto side, so it was natural that the Minamoto side couldn't not know of my Existence.</p>
-<p>"Then you, why did you come to St. Francis Girls' Academy?"</p>
-<p>"Actually, I didn't come because I wanted to. In fact, I was originally a Layperson, so I didn't even know much about the Existence of St. Francis Girls' Academy..."</p>
-<p>At Minamoto Risa's Question, I calmly told her that I came because of a Command from Grandfather Taira Danjo.</p>
-<p>"Surely your Grandfather didn't send you to our academy because of me? Did Taira Danjo tell you to seduce me...?"</p>
-<p>"Yes."</p>
-<p>Minamoto Risa asked, her Eyes welling up with Tears. My Words seemed to have been quite a shock. If you hear that someone you like came because of a Mission concerning you, the shock is naturally immense. Although I answered "Yes," I quickly opened my Mouth again, thinking that Misunderstandings would accumulate if I remained silent.</p>
-<p>"It's true I came under my Grandfather's Command, but I didn't seduce you because of that Command. Since when was I a Taira that I would unconditionally think I had to complete a Mission?"</p>
-<p>"Then what is it...?"</p>
-<p>Of course, Taira Danjo's Mission was partly a Reason, but Minamoto Risa capturing my Heart was an even bigger factor. And for this Mission, I had been thinking for a long time that I would conclude it in a different way than by telling Taira Danjo and handing over Photos of Minamoto Risa. Given Taira Danjo's Personality, if I completed the Mission as instructed and handed over Photos of Minamoto Risa lying on a bed, he would immediately 'tea-bag' Minamoto Ushin, and if that happened, no matter how much Minamoto Ushin cherished Minamoto Risa as his Daughter, she would be finished in the group. At the very least, she might be expelled from Minamoto, but she could also lose her Life, like in an honor killing in Islamic countries or India. Still, she was a Woman with whom I had shared my Body and Affection; I couldn't let things end like this.</p>
-<p>"Just because I like you. Because I couldn't just leave a delicate girl who pretends to be strong."</p>
-<p>"...."</p>
-<p>At my Words, Minamoto Risa just bowed her Head without answering. Minamoto Risa, who had maintained Silence for a while, raised her Face and looked at me with slightly reddened Eyes.</p>
-<p>"Seeing how easily you answered about Marriage earlier, you must have some kind of Plan, right?"</p>
-<p>Was she talking about the Marriage I readily nodded to earlier, when she said she should be the first to marry?</p>
-<p>"I have a Plan I've thought of."</p>
-<p>I opened my Mouth confidently, not avoiding Minamoto Risa's Eyes.</p>
-<p>Minamoto Risa had only come today to hear about Yamashiro Ryuta's-no, Taira Ryuta's-womanizing and to discuss that she would be the first among those Women to marry. However, she had never in her wildest Dreams guessed that Taira Ryuta was actually the Black Knight for whom she secretly harbored fan affection, or that the Class Teacher she knew as Yamashiro Ryuta was a Taira, the sworn Enemy of Minamoto, or that Taira Ryuta had actually come to St. Francis Girls' Academy to seduce her. At first, Tears flowed at the thought of Betrayal, but Taira Ryuta was calm. While his actions were indeed not good, he didn't seem to consider it Betrayal, which was almost baffling. If it were Minamoto Risa's usual Personality, she would have immediately stormed out, excuses or no, but knowing that Taira Ryuta was a bastard child like herself and had no great Affection for the Taira, similar to her own feelings for Minamoto, she decided to listen further. Of course, a bigger Reason was that even after hearing this Story of Betrayal, her Love for Taira Ryuta had not disappeared. When she had clearly said she would be the first to marry, Taira Ryuta had nodded without a moment's Worry, but she couldn't understand how the Taira and Minamoto, sworn Enemies, could possibly marry.</p>
-<p>"Seeing how easily you answered about Marriage earlier, you must have some kind of Plan, right?"</p>
-<p>"I have a Plan I've thought of."</p>
-<p>His Answer, looking straight into her Eyes, seemed incredibly confident. Minamoto Risa thought, 'Let's hear it,' but as she listened to Taira Ryuta's Story, she couldn't help but gape in astonishment. Taira Ryuta's Story was that he and she would each become the Chairman of Taira and Minamoto. And then he spoke of something almost impossible for anyone to imagine: marrying and becoming Japan's sole Mega Corporation.</p>
-<p>"You, are you serious?"</p>
-<p>"There's no Law saying you or I can't become Chairman, is there? Although it hasn't even been a year since I became a Taira, I'm preparing well... And you, Lisa, surely you have something you're preparing for too, don't you?"</p>
-<p>Minamoto Risa also had a few Businesses she was preparing for as she entered the Minamoto Group. She also had a faction she was secretly cultivating, but unlike Taira Ryuta, she had never dared to think of herself becoming the Chairman of the colossal Minamoto Empire. And to unite those two colossal Empires through Marriage... Taira Ryuta's preposterous, grand Vision made her own plans seem paltry.</p>
-<p>"And you can deal with my Enemies, and I can eliminate yours, Lisa. Each of us would gain merit in our respective Families for eliminating a person in a key position of the rival Family."</p>
-<p>At first, she thought it was a preposterous action, but listening to Taira Ryuta's Story, it sounded quite plausible.</p>
-<p>"No matter how much the Taira and Minamoto groups are sworn Enemies, they can still cooperate business-wise where possible, so the growth of the companies you manage within the group won't be difficult."</p>
-<p>That was true. Even the Taira and Minamoto, sworn Enemies vying for supremacy in Japan, cooperated to a certain extent in Business. If they kept fighting without cooperation, they could be overtaken by Japan's 3rd and 4th ranked groups, Kujo or Tachibana, so the Taira and Minamoto were in a relationship of cooperation even while fighting. Of course, it wasn't frequent cooperation like a typical company; rather, if they searched for partners and found that only Taira or Minamoto possessed the Technology, goods, or Manpower, they would reluctantly cooperate. Seeing Minamoto Risa deep in Worry, Taira Ryuta opened his Mouth as if delivering a decisive blow.</p>
-<p>"Above all, this is the only Method for us to marry."</p>
-<p>At Taira Ryuta's final Words, Minamoto Risa felt the last vestiges of her Sense of Betrayal disappear.</p>
-<p>"Above all, this is the only Method for us to marry."</p>
-<p>At my Words, Minamoto Risa sprang to her Feet. And she grabbed my Arm. There was still quite a lot left to talk about...? The discussion about confirming each other's factions and how we could cooperate in the future remained. More than anything, I was curious about the companies and factions Minamoto Risa possessed. Minamoto Risa, holding my Arm, looked at me with a slightly glaring Expression and opened her Mouth.</p>
-<p>"You, I hate you."</p>
-<p>"Sorry."</p>
-<p>"Are you just going to say you like me, you Love me, with Words?"</p>
-<p>Ah, I realized what Minamoto Risa wanted from me. She wanted me to confirm my feelings and ease Minamoto Risa's current anxious Mood with my Body. No matter how curious I was about the next content, I first had to soothe Minamoto Risa's Mood with my Body.</p>
-<p>"Let's go to the Bedroom."</p>
-<p>"Hmph...! Who said I'd... with you?"</p>
-<p>No, who was it that grabbed my Arm and stood up first... Of course, I knew her current grumbling was just unnecessary pouting.</p>
-<p>"Kyaak~!"</p>
-<p>I lifted the grumbling Minamoto Risa in a Princess carry and headed for the Bedroom. I needed to completely apologize with my Body and turn Minamoto Risa back into 'love-love mode.'</p>
-<p>JeongChucky-nim requested Polar Bear Alik~!</p>
-<p>Alik: I haven't ridden a polar bear.</p>
-<p>Gojoy-nim requested Lianna Holden's Belly Dancer, Breast-covering~!</p>
-<p>Belly Dancer first~!</p>
-<p>Breast-covering</p>
-<p>Today, it's not listening to me and not covering the groin area ㄷㄷ</p>
-<p>seungj050-nim requested Liz's Jeans, Underwear Rear View</p>
-<p>Jeans~!</p>
+<p>-KITA! It went in! Genba Kiyohira's fist lands squarely on the opponent's chin! A new hope that sinks the No. 3 in the open weight class rankings, Genba Kiyohira!!</p>
+<p>It was late at night, and I was watching Genba Kiyohira's match video without even turning on the lights. I watched from the point when he moved from his original weight class, welterweight, to the open weight class, and I could see Genba Kiyohira's style gradually changing as the matches went on.</p>
+<p>From a mixed martial arts style that combined his original style of Judo with kickboxing, he was gradually changing to a style that felt like an ancient martial art.</p>
+<p>Genba Kiyohira had definitely changed. In a short period of a few months, he had changed from a UMC fighter to an ancient martial arts fist fighter.</p>
+<p>That was also Anya's martial arts. It didn't seem to be the martial arts of the Shinkai Yatsude Foundation, but I could smell the Anya fist fighters I had seen so far in his movements.</p>
+<p>'Come to think of it....'</p>
+<p>It's only been a short time, less than half a year, since I parted ways with Genbaki before entering St. Francis Girls' academy.</p>
+<p>Unlike ordinary fighters with long match intervals, he has matches almost once a month, and in a few months of not paying attention, he is already on the verge of becoming the open weight class champion.</p>
+<p>I feel proud and bitter at the same time. Since he is a guy that Anya approached, he must have talent. And seeing him become the open weight class champion in a few months, that must be even more so.</p>
+<p>I felt a little complicated thinking that if I had paid a little more attention, Genbaki wouldn't have learned Anya's martial arts.</p>
+<p>The important thing is whether Anya knew that Genba Kiyohira was my friend when he approached him.</p>
+<p>Genba Kiyohira boasted several times in interviews that he received posture correction from Fujigasaki Rinka when he was a child, so Anya would have known that he was friends with Rinka Sabu and approached him.</p>
+<p>'Still.... I don't know.'</p>
+<p>After all.... I'll have to look into this matter separately. No matter how much I think about it alone, I won't be able to make a proper judgment because of my personal friendship with Genbaki.</p>
+<p>'It's almost time to sleep.'</p>
+<p>I looked at the clock. It was already past 10 o'clock. Then I should contact the Kids taking the University Entrance Common Test tomorrow and tell them to do well, and then I should lie down too.</p>
+<p>Minamoto Risa went to bed a little earlier than usual to wake up in the best Condition for tomorrow's test.</p>
+<p>But because it was a Time she didn't usually sleep, she couldn't fall asleep. She also felt like something was missing.</p>
+<p>Wiiing~!</p>
+<p>The phone placed by her bedside rang, and when she checked, it was her class Teacher, Taira Ryuta. Considering what he had hidden from her so far, she hated him very much, but he was a man she couldn't hate.</p>
+<p>He was an illegitimate child like herself, and a pitiful man who had lived without even knowing the existence of his Father, but also a man with great ambition to take the Taira Group into his hands in the future.</p>
+<p>A Taira, yet a man who doesn't let go of Minamoto, herself. Taira Ryuta was such a man.</p>
+<p>Minamoto Risa smiled slightly as she looked at the name Teacher on her phone, and then answered the phone.</p>
+<p>'Yes, what's wrong?'</p>
+<p>-I called to cheer you on before you go to bed because you have a test tomorrow. I'll be busy preparing this and that in the morning, so I'm trying to do it in advance.</p>
+<p>Is he even thinking about my schedule for tomorrow morning? Minamoto Risa realized why she couldn't fall asleep until just now, and why she felt like something was missing.</p>
+<p>It was because she lacked the ingredients of this blonde, tanned man. This week, she was supervising the exams, so she couldn't even see Taira Ryuta's Face properly except for the morning assembly and the closing assembly, so she couldn't help but feel empty.</p>
+<p>'So how are you going to cheer me on?'</p>
+<p>-Huh? I'm just going to say good luck~! I can't wear a cheerleader outfit and dance here.</p>
+<p>Taira Ryuta answered Minamoto Risa's question with a bewildered Voice. Minamoto Risa laughed, imagining even that Expression naturally.</p>
+<p>'Then cheer me on quickly.'</p>
+<p>-Risa, good luck. You've done well so far, so you'll be able to do well on both tests tomorrow and the day after.</p>
+<p>I could feel sincerity in his cheering. Minamoto Risa felt relieved after hearing Taira Ryuta's Voice, and she could feel herself getting sleepy little by little.</p>
+<p>'Thank you, I'll go to sleep now.'</p>
+<p>-Okay, you have to prepare early tomorrow, so go to sleep quickly. Then do well on the test and let's meet on Monday.</p>
+<p>'Uh-huh, thank you.... Bogosipeo, you.'</p>
+<p>Minamoto Risa hung up the phone. What did I say at the end? It was a test cheering phone call, but suddenly I miss you.... I guess the words in my heart came out because I was sleepy.</p>
+<p>Wiiing~!</p>
+<p>The phone rang again. It was Taira Ryuta's Line. Minamoto Risa turned on Line and checked Taira Ryuta's message.</p>
+<p>-Teacher: Photo</p>
+<p>-Teacher: If you wanted to see me, why didn't you say so? WW</p>
+<p>The photo was a selfie of Taira Ryuta lying on the bed and smiling cheesily. Minamoto Risa laughed again as she looked at the photo. And she kissed the phone screen and put the phone back on the bedside table.</p>
+<p>I felt at ease. I felt like I could sleep comfortably tonight.</p>
+<p>'Good night to you too.'</p>
+<p>Minamoto Risa murmured and fell asleep.</p>
+<p>"Number 25, the answer is 4."</p>
+<p>"4? Alik, that's wrong."</p>
+<p>Naruse Shiyo and Alik were at the Naruse Family's mansion, with Naruse Shiyo calling out the answers and Alik marking them, marking the test they had taken today.</p>
+<p>Today was the last day of the test, so Naruse Shiyo and Alik, who had become best Friends after learning from the same Sabu, were having fun, and as the last schedule, they were matching the answers to the test they had taken today.</p>
+<p>The reason why they made matching the test answers the last schedule was because they thought they wouldn't be able to have fun if the test scores weren't good.</p>
+<p>Today's test had Japanese classics and math, which were Alik's weakest subjects, so I was a little anxious.</p>
+<p>"Alik, 43 points...!"</p>
+<p>Alik handed over the Japanese classics test paper with his unique expressionless Face. 43 points was not a high score, but it was an excellent(?) score that exceeded the retest cut-off of 40 points.</p>
+<p>The home Teacher Shimokawabe Airen, who could be said to be a Sabu, personally liked Japanese classics, so he picked up a few things while training, and it seemed that it had an effect.</p>
+<p>"Kyaaak~! Congratulations, Alik!"</p>
+<p>Naruse Shiyo hugged Alik tightly and congratulated him on avoiding the retest. But there was still the math subject, which could be said to be the final Boss.</p>
+<p>Math was a subject that could be more difficult than Japanese classics. Alik was constantly getting used to Japanese itself by constantly interacting with his Friends, so it was okay, but math was so lacking in basics that there was no sign of improvement.</p>
+<p>In addition, the scope of this math test was only a collection of units that Alik had particularly difficulty with, so I was even more afraid of the result.</p>
+<p>Gulp...!</p>
+<p>The two swallowed their saliva with tense expressions. After looking at each other for a while, Alik nodded, and Naruse Shiyo began to call out the answers to the test.</p>
+<p>"Number 1, the answer is number 3."</p>
+<p>"Alik, that's wrong."</p>
+<p>Alik was starting off spectacularly wrong from the easiest first question.</p>
+<p>"Number 2, the answer is number 5."</p>
+<p>"Alik, you're wrong again."</p>
+<p>"Number 3 is number 1."</p>
+<p>"Alik, you got it right...!"</p>
+<p>They repeated getting it wrong and wrong and right, and before they knew it, it was the last question, number 25.</p>
+<p>"The last number 25 is.... number 2."</p>
+<p>"Alik, that's wrong."</p>
+<p>Alik got even the last question wrong. He started calculating his score by flipping through the test papers.</p>
+<p>"How many points? Alik...?"</p>
+<p>Naruse Shiyo had been listening to Alik getting it right or wrong, so she had a rough idea of how many points he had, but Naruse Shiyo didn't give up hope and asked Alik.</p>
+<p>"Alik.... 24 points...."</p>
+<p>Alik answered with a sullen Expression. In the end, he didn't exceed 40 points and was selected for the retest. Of course, the answer that Naruse Shiyo called out might have been wrong, so I'll have to see the exact score, but Naruse Shiyo knew very well that he couldn't go from 24 points to 40 points.</p>
+<p>"I can't do that. We have to study on the weekend, Alik. I'll help you."</p>
+<p>"Alik, I wanted to go play...."</p>
+<p>Alik was frustrated by Naruse Shiyo's words to study during the weekend. Of course, his Expression was no different from his usual expressionless Face, but Naruse Shiyo, who was often with him, knew that Alik was frustrated.</p>
+<p>"If you can't even take the additional test, Alik has to repeat a year. Then can you go to academy without Ryuta Teacher and without us?"</p>
+<p>"If I repeat a year, Ryuta won't be there...?"</p>
+<p>Naruse Shiyo told Alik that if he repeated a year, Alik would have to go to academy alone one more Time to motivate him.</p>
+<p>But Alik, who had already lost a lot of Confidence, thought that he would be repeating a year anyway, and was even more frustrated by the fact that he would have to go to academy without Taira Ryuta.</p>
+<p>"H-Hang in there. Alik...! I'll gather all the Friends who are good at studying and help you, so you can do it!"</p>
+<p>"Alik, can I do it...?"</p>
+<p>"Of course~!"</p>
+<p>In fact, the Friends who are really good at studying will be going to take the Japanese university entrance exam, the University Entrance Common Test, during the weekend, but I was thinking of asking Konoe Akina and a few others who have the best grades for help.</p>
+<p>"Thank you, Shiyo. Alik, I'll try hard...!"</p>
+<p>Naruse Shiyo stroked Alik's Head as if she was relieved when Alik clenched his fists with both hands and regained his Will. And she opened her Mouth with an Expression full of Will.</p>
+<p>"Alik, I'll definitely make you pass."</p>
+<p>Naruse Shiyo was willing to plot something with her class Teacher, Taira Ryuta, if studying didn't work out. She was determined to help Alik graduate even if she stole the test paper in advance.</p>
+<p>Today's B-cut SD Alik~!</p>
+<p>A version of the additional point Teacher Geomhu, requested by seungj050-nim, holding a Sword arrogantly~!</p>
+<p>Kujo Kina's casual clothes and underwear, requested by Gojoy-nim~!</p>
+<p>She usually wears leggings and a white T-shirt ㅎㅎ</p>
+<p>A cut of her school uniform too!</p>
 <p>Underwear~!</p>
+<p>You know why Kotowazuki is scared, right? ㅎㅎ</p>
+<p>Ram쥐Thunder Alik, requested by Rascul-nim.</p>
+<p>It's cute ㅎㅎ</p>

@@ -5,116 +5,96 @@ weight = 156
 chapter = 156
 +++
 
-<p>This episode contains a suggestive illustration!!</p>
-<p>As I walked closer, I could see the clear figure of the person standing there. It was Wano Haruto, wearing a raincoat. Wano Haruto seemed to be deep in thought as he quietly looked at the tombstone.</p>
-<p>I looked at the tombstone too. Many names were written on it. Most of them were probably the names of dead people.</p>
-<p>Ueshima Kosaku</p>
-<p>Ueshima Kanu</p>
-<p>Nita Tsuko</p>
-<p>Ueshima Tomolun</p>
-<p>Okata Kajitsu</p>
-<p>Misuka MoriMi</p>
-<p>Ueshima Nijiki</p>
-<p>.</p>
-<p>.</p>
-<p>.</p>
-<p>There were many names written on the tombstone, and it seemed to be the family grave prepared in the house that Professor Honmura Koga had mentioned. By the way, it seems that the surname of these inn owners is originally Ueshima. People with different surnames seem to be wives who changed their surnames after their husbands died....</p>
-<p>,Isn't it amazing that all the families are gathered in one land like this? Certainly, Choohten Island seems to be an island worth investigating from a folklore perspective."</p>
-<p>,Is that so? I don't know much about folklore...."</p>
-<p>It was amazing to keep burying bone powder in one land like this, but this kind of burial system was not entirely absent. I think there was a similar burial method in Korean history that I learned in high school before possession, but I don't remember exactly. Was it Dongye or Okjeo? I don't remember exactly.</p>
-<p>,I know that there is a similar burial system in one of the ancient Korean peninsula countries...."</p>
-<p>,Ah, is that so? I should look into it."</p>
-<p>Wano Haruto seemed very happy to have a new learning opportunity. He seemed to like academic learning itself. He's a completely different personality from me.</p>
-<p>,Where is Professor Honmura-nim?"</p>
-<p>,He went to the hot springs. I like to wash alone, so I'm going to go to the hot springs later."</p>
-<p>Ah, the sound of the hot spring earlier was Professor Honmura Koga. I wanted to wash my ears because I thought I had heard the sound of a middle-aged man taking a hot bath for nothing.</p>
-<p>,I'll be on my way."</p>
-<p>,I'll have to look at this interesting tombstone a little more."</p>
-<p>There was nothing more to see in other people's family graves, so I said goodbye to Wano Haruto and left the family grave. After walking a little, I turned right again and saw my private open-air bath. But I couldn't go any further. The next room also had a luxury room, so there was an open-air bath, and a bamboo wall was built, and further to the right was a slight cliff, and below it was the sea.</p>
-<p>I went back again. I met Wano Haruto again, but I smiled awkwardly and passed by, saying that the road was blocked. I saw the bamboo wall of the communal hot spring again, and after turning left a few times, I came to the entrance of the guest room building. Uchidate Kanimi was leaning against the entrance, and when she saw me, she waved her hand, saying, "Martial artist-nim~!"</p>
-<p>,Yes, hello. I wish you would just call me Taira-ssi instead of martial artist-nim."</p>
-<p>,Martial artist-nim is cool.... Ah! But have you seen the professor by any chance?"</p>
-<p>Uchidate Kanimi seemed to be looking for Professor Honmura Koga. According to Wano Haruto, he said he was enjoying a hot spring bath, so he was either in the hot spring.... Since I didn't hear the sound of water when I came, he might be in the room.</p>
-<p>,I think Honmura-ssi is in the hot springs."</p>
-<p>,Ah, no~! Professor Wano-nim."</p>
-<p>Ah, that's right. Uchidate Kanimi and Hijitani Saori said they were taking Wano Haruto's lecture. Wano Haruto's age is not a formal professor, but he said he was in the doctoral program, so he seemed to be giving some lectures as a master's student.</p>
-<p>,If it's Wano-ssi, he's in the family grave of this inn behind the guest room."</p>
-<p>,Family grave? It's raining and dark and a little scary.... I'll just wait here until he comes back."</p>
-<p>,He said he would stay a little longer, so he'll be here soon."</p>
-<p>I shook off the water from the umbrella and went into the room. I'll give it back directly. I put it in the hallway for nothing, so someone might take it, so I shook off as much water as possible from the umbrella and brought it into the room.</p>
-<p>The room had been cleaned neatly by Hamahata Konoka, and even the bedding was laid out. The dehumidifying function was turned on with the air conditioner, so the room was comfortable even though it had been raining all day.</p>
-<p>I lay down on the bed and turned on my phone, and I had a KakaoTalk from Han Yu-gyeong.</p>
-<p>Han Yu-gyeong: How's your island trip? Is it fun?</p>
-<p>Jin Yong-tae: It's been raining since lunch, so I just enjoyed the hot springs.</p>
-<p>In fact, there was also a murder case, but I didn't say it because I was worried for nothing. It would be an interesting story to tell when we meet later. In fact, I didn't tell you about the story in Jukai Forest, so you'll be thrilled to hear both.</p>
-<p>Han Yu-gyeong: That's a shame~. But I want to go to the hot springs with Yong-tae too♥</p>
-<p>Jin Yong-tae: We'll meet in a week, so please be patient😘</p>
-<p>Han Yu-gyeong: A week is too long~! I miss Yong-tae😡</p>
-<p>Jin Yong-tae: Then shall we take selfies and send them to each other now? Hehe</p>
-<p>Han Yu-gyeong: Yeah, yeah! I like it😍</p>
-<p>Han Yu-gyeong often took pictures and sent them to me, so there were quite a few pictures of Han Yu-gyeong in my photo album, but new pictures were always welcome.</p>
-<p>I opened the door so that I could see the open-air bath and took a picture at an angle that looked moderately handsome. Hmm, being handsome was the best after all. Even if I take a picture roughly, the picture comes out so well.</p>
-<p>Jin Yong-tae: Photo</p>
-<p>Han Yu-gyeong: Ehehe.... Our Yong-tae is handsome. I miss you more when I see the picture ㅠㅠ.</p>
-<p>Jin Yong-tae: Why doesn't Yu-gyeong send me a picture?</p>
-<p>Han Yu-gyeong: No! I have to look pretty, so I keep taking pictures.</p>
-<p>She seemed to be taking pictures for a long time to look pretty to me. I just took one shot and sent it, was I a little lacking in sincerity? I waited for about 10 minutes and KakaoTalk rang.</p>
-<p>Han Yu-gyeong: Photo</p>
-<p>It was a picture that had nothing to throw away, with a ponytail, no top, and a short pink skirt and stockings.</p>
-<p>Jin Yong-tae: No! If you send me such an exciting picture, how am I supposed to spend this long night!?</p>
-<p>Han Yu-gyeong: Hehehe♥ Are you excited?</p>
-<p>Jin Yong-tae: Of course.</p>
-<p>Han Yu-gyeong: Then send me a picture of Yong-tae's excited there♥</p>
-<p>Is she going to use it as a wank material? I took a picture of my hard-on after seeing Han Yu-gyeong's sexy picture and sent it to her.</p>
-<p>Jin Yong-tae: Photo</p>
-<p>Han Yu-gyeong: I can endure it until next week with this 🥰 I love you Yong-tae!</p>
-<p>Jin Yong-tae: I love you too♥</p>
-<p>I've been on KakaoTalk for quite a while. It was already 8:35. Then, before going to bed, should I go into the hot springs one more time, take one out with Han Yu-gyeong's picture, and sleep well?</p>
-<p>,Kyaaaaak!!!"</p>
-<p>I was thinking of going into the hot springs again when I heard someone scream. This scream was Hamahata Konoka's voice. Could it be another murder?</p>
-<p>I ran to where the scream came from. The source of the scream was a regular guest room. I was in a special room a little far away, so everyone was gathered at the source of the scream when I arrived.</p>
-<p>,What's going on?"</p>
-<p>When I asked, Professor Honmura Koga opened his mouth with a dark expression.</p>
-<p>,It's another murder. This time...."</p>
-<p>When I looked inside the room, Kimura Atsuhiro was dead with a knife stuck in his back. Next to him, Wano Haruto was wearing gloves and examining the body again.</p>
-<p>,It seems that he hasn't died long this time. It hasn't been 30 minutes."</p>
-<p>Hmm.... Who the hell is it...?</p>
-<p>,First of all, let's talk about what you were doing within 30 minutes and your alibi again. There was someone who didn't have an alibi in the lunch incident, so if there is no alibi this time, the probability of being the culprit is high."</p>
-<p>Professor Honmura Koga suggested checking the alibi again. That damn alibi.... Ah! Will the picture I took with the open-air bath in the background help with the alibi?</p>
-<p>,I'll say it first. I was having a video conference with other professors until just now. I'll bring my laptop and show you."</p>
-<p>Professor Honmura Koga went into his room and brought out his unfolded laptop. On the laptop screen, several people were looking at us with cameras.</p>
-<p>-Certainly, Professor Honmura was having a video conference with us. Except for the time he went to the bathroom for a while, he was with us all the time.</p>
-<p>One of the professors on the laptop screen said.</p>
-<p>,How long did you use the bathroom?"</p>
-<p>Wano Haruto asked. Professor Honmura Koga seemed a little embarrassed, but soon opened his mouth.</p>
-<p>,I had a stomachache, so I used the bathroom for a long time. About 10 minutes.... But that was 50 minutes ago. It was before the murder happened."</p>
-<p>As expected, Professor Honmura Koga seemed to have a stomachache because he took a hot bath right after dinner. The professors in the laptop also told me that it was 50 minutes ago.</p>
-<p>,Let's hear the story of Hamahata-yang, the first discoverer."</p>
-<p>Yes, since the person who screamed was Hamahata Konoka, she can talk as the first discoverer.</p>
-<p>,I cleaned Taira Ryuta-nim's room and brought dinner to Kimura-nim, who hadn't eaten yet. And I went back to the kitchen and did the dishes with my grandmother, and when it was time to clean up the meal, I went to Kimura-nim's room, and that's when Kimura-nim was bleeding and collapsed.... That's when I screamed."</p>
-<p>,When did you bring the meal?"</p>
-<p>,I remember bringing it about an hour ago."</p>
-<p>It meant that Kimura Atsuhiro was alive until an hour ago. But this fact didn't tell me anything.</p>
-<p>,I don't have an alibi. I was organizing data on my laptop in my room, but I can't prove my alibi with this."</p>
-<p>Wano Haruto confessed that he couldn't prove his alibi himself. Does he have confidence that he is not the culprit because he had an alibi at lunch?</p>
-<p>,I was doing the dishes with my granddaughter. We had a lot of guests for the first time in a long time, so we kept cooking and doing the dishes. My granddaughter was with me all the time except when she went to give food and clean up the dishes."</p>
-<p>,That's right, my grandmother was always in the kitchen."</p>
-<p>The inn owner grandmother had an alibi. Hamahata Konoka also had an alibi. It's a bit suspicious that she's the first witness, though.</p>
-<p>,I.... I..... Hoooook!"</p>
-<p>When we looked at Hijitani Saori next to the inn owner grandmother, Hijitani Saori started to cry. What is it...? Ah, thinking about what happened earlier, there was a high probability that she was dating the victim, Kimura Atsuhiro.</p>
-<p>,I was actually dating Kimura-ssi. Kimura-ssi didn't eat, so I decided to have dinner and meet Kimura-ssi at the entrance of the guest room building at 8:30, but he didn't come out until 35 minutes. But after hearing Hamahata Konoka-ssi's scream, I went and Kimura-ssi was dead.... Hoooook...!"</p>
-<p>,Don't cry for now and tell me your alibi."</p>
-<p>Even though Hijitani Saori was crying, Professor Honmura Koga coldly told her to talk about her alibi first. I'm feeling it again, but he was really a professor without blood or tears.</p>
-<p>,I was with Uchidate-ssi, who uses the same room, and went to the entrance at 8:10 in advance."</p>
-<p>,Yes. Hijitani-ssi left with me at exactly 8:07."</p>
-<p>In the end, it meant that she didn't have an alibi from 8:07. She could have left at 8:07, killed Kimura Atsuhiro, and stood at the entrance.</p>
-<p>,I stayed in my room after Hijitani-ssi left. Of course, there is no way to prove it. But I didn't know that Hijitani-ssi was going to leave, so it's not a situation where I can do something planned."</p>
-<p>In the end, Uchidate Kanimi didn't have an alibi either. After all, Uchidate Kanimi's alibi disappeared because Hijitani Saori left, so it was a little excusable. If she was the culprit, she would have had to leave her seat first to carry out the work.</p>
-<p>,Hamahata Konoka-ssi, was Hijitani-yang at the entrance when you went to clean up the food?"</p>
-<p>,Yes, she seemed to be checking the time constantly, and it seemed like she was waiting for someone."</p>
-<p>Hamahata Konoka answered Wano Haruto's question faithfully. Anyway, before that, it meant that she was waiting at the entrance before Hamahata Konoka discovered the body.</p>
-<p>Am I the only one left now? Thinking about it, I could perfectly prove my alibi.</p>
-<p>,I was alone in my room. Hijitani Saori-ssi will prove that I was alone in my room all the time."</p>
-<p>Everyone looked at Hijitani Saori at my words.</p>
-<p>-------</p>
-<p>The countless pictures Han Yu-gyeong took before sending her selfie</p>
+<p>There are no explicit illustrations, but there is explicit content, please be mindful of your surroundings!!</p>
+<p>After stopping the attack on the research lab, I finished my two days of service to Seryu Military Company and headed straight to Akita City. Of course, it was called service, but I didn't work for free. Sawayanagi Azuma-ssi said that she would combine the point-based rewards and divide them by N. It's not a lot of money for me now, but if I invest it elsewhere, I can earn several times that amount, so the more money, the better.</p>
+<p>The reason for going to Akita City was because I planned to sleep in Akita City and then go to Korea from Akita Airport. I thought it would be better to sleep near the airport because if I slept in Yurihonjo City, I might be late going to the airport in the morning.</p>
+<p>Of course, it wasn't a direct flight from Akita to Korea, but a route that went to Haneda Airport in Tokyo and then to Incheon Airport. Akita Airport itself was mostly domestic flights, so I couldn't help it.</p>
+<p>Going from Yurihonjo City to Akita City was easy. Mimata Chieri-ssi sent a driver, so I could sit in the back seat and comfortably look at my phone. It wasn't a PMC vehicle, but a regular vehicle, so there was no attack from Kurotsuki-doo.</p>
+<p>"Sunbae-nim, you worked hard for a day and a night."</p>
+<p>"Well, it wasn't that difficult."</p>
+<p>When I arrived at the accommodation, Mimata Chieri-ssi greeted me. The accommodation was a luxury hotel in Akita City. Mimata Chieri-ssi must have done quite a bit of fighting as well, as there was a faint smell of gunpowder along with Mimata Chieri-ssi's unique refreshing scent. I shrugged my shoulders and told her that it was nothing special, although I struggled a bit against the sunglasses guy.</p>
+<p>"It's late, so let's go into the room first."</p>
+<p>"Okay."</p>
+<p>Between the lab battle, the post-battle cleanup, and the travel time to Akita City, it was already close to bedtime. I went into the room that Mimata Chieri-ssi had booked. Mimata Chieri-ssi also came into the room with me as if it were natural.</p>
+<p>"Ah, but I heard that the group of attackers that Sunbae-nim caught escaped."</p>
+<p>"What?"</p>
+<p>I made them incapacitated enough and used prototype handcuffs that sealed the abilities of the ability users when transporting them, but they still escaped?</p>
+<p>"Can you explain in detail?"</p>
+<p>"It seems like there was outside help. The troops transporting them were annihilated and all the attacker prisoners disappeared. According to the black box, they were attacked. But...."</p>
+<p>"But?"</p>
+<p>Ah, why are you stopping in the middle of your sentence, making me curious?</p>
+<p>"What's a little strange is that not many people know that Nagumo Sian-nim sent reinforcements to the research lab. And even fewer people know that the attacker prisoners are being transferred to Daisen City."</p>
+<p>"You're saying information leaked from the inside."</p>
+<p>"Yes."</p>
+<p>If this is the case, one of two things is true. Either there is a traitor among the higher-ups at Taira Foods, or the research lab has been under constant surveillance.... If they were going to attack the transport and take the attackers, it would have been more stable to join us when we were fighting in the lab, so I'm leaning more towards the former.</p>
+<p>"Sunbae-nim and East Weapon should also be careful during operations, as information may be leaking from Taira Foods."</p>
+<p>"Of course, hehe. Our mission is just to protect, so it's easy."</p>
+<p>The current war situation is that the west, Akita City, and the east, Semboku City, are the defense lines, the north is under the influence of Kurotsuki-doo, and the south, except for Yurihonjo City, is under the influence of Taira Foods.</p>
+<p>Looking at this war situation, if Seryu Military Company completely recaptures Yurihonjo City, they will gain considerable merit. Of course, if East Weapon successfully defends Akita City, they will be doing their part.</p>
+<p>"Let's stop talking about work and take a shower?"</p>
+<p>"Yes, shall we shower together?"</p>
+<p>I hugged Mimata Chieri-ssi, who was actively appealing, and went to the bathroom. Sensibly, there was warm water in the bathtub. It was a luxury suite room, so the bathtub was quite large.</p>
+<p>We took a quick shower first and then got into the bathtub. The bathtub was large, but I sat down first and Mimata Chieri-ssi sat on top of me.</p>
+<p>Mimata Chieri was a bit heavier than I expected, considering her slender figure, but it seemed to be due to the bio-modifications. Her muscle density is much higher than it appears, so she feels heavier than she looks. Of course, it wasn’t heavy at all for me, since I have high muscle strength.</p>
+<p>"Hehe, I filled the tub with warm water in advance, I did a good job, right?"</p>
+<p>"Yes, it feels good."</p>
+<p>I said, stroking Mimata Chieri-ssi's hair, which was wet from the shower. Mimata Chieri-ssi quietly accepted my head pats like a cat being scratched on the chin by a human. My hand, which had been stroking her hair for a while, came down from Mimata Chieri-ssi's head to Mimata Chieri-ssi's shoulder.</p>
+<p>Mimata Chieri-ssi's shoulder was smooth. After stroking her shoulder a few times, I grabbed her moderately sized breasts, which were half submerged in the water.</p>
+<p>"Heu...! I think I'm a little sensitive because I killed someone today."</p>
+<p>Maybe she means that her senses are sensitive because she was concentrating on fighting? I slightly pinched Mimata Chieri-ssi's nipples, who was saying something a little creepy. Well, I also release adrenaline when I fight, so I always have sex that day, so it wasn't wrong.</p>
+<p>"Hyaa! Joa, I like it, Sunbae-nim!"</p>
+<p>She liked it even though I pinched it hard enough to hurt a little, so Mimata Chieri-ssi was definitely M-leaning. I fondled Mimata Chieri-ssi's breasts to my heart's content in the water, then passed my hand over her slender and firm waist and touched Mimata Chieri-ssi's pussy, which I was now used to.</p>
+<p>"Hyaeut! Haa♥"</p>
+<p>Jjwak, jjwak!</p>
+<p>I put my lips on the back of Mimata Chieri-ssi's neck and sucked, leaving a kiss mark. It's the back of the neck where the hair comes down, so even if there is a kiss mark, it won't be noticed unless Mimata Chieri-ssi deliberately reveals it.</p>
+<p>"Hyaang~! If you make that kind of mark, it'll be revealed that I'm Sunbae-nim's♥"</p>
+<p>"So you don't like it?"</p>
+<p>"Heueut! I like it, I like it...!"</p>
+<p>Mimata Chieri-ssi couldn't come to her senses with the three-point caress of her breasts, pussy, and neck. Then she turned her head back and sucked on my lips that were sucking on her neck.</p>
+<p>Chyuup♥chyubeup! Chyuuueup♥</p>
+<p>I concentrated on the kiss, feeling Mimata Chieri-ssi's hot breath. It was a kiss full of sticky feelings. We kissed for almost ten minutes. The sound of each other's lips sucking was filling the bathroom.</p>
+<p>"Stand up for a moment."</p>
+<p>At my words, Mimata Chieri-ssi stood up without asking why. As she stood up with a chwaaak sound, Mimata Chieri-ssi's butt was slightly above my field of vision.</p>
+<p>"Spread your legs and stick your butt out towards me."</p>
+<p>As Mimata Chieri-ssi spread her legs and bent her waist slightly to stick her butt out towards me as I ordered, Mimata Chieri-ssi's cute pussy was right in front of my face. I stuck out my tongue long and licked Mimata Chieri-ssi's pussy, neolreum neolreum.</p>
+<p>"Heueut!! Sunbae-nim's haljjak haljjak is so good♥"</p>
+<p>I caressed Mimata Chieri-ssi's pussy, sticking my tongue into and licking Mimata Chieri-ssi's vulva. Mimata Chieri-ssi couldn't stand it and fell into the water with a cheombeong sound in less than three minutes, making a hyaang sound. It seems that she couldn't stand because her legs lost strength after she came.</p>
+<p>"Haa, haa, haa.... This time, I'll do it for you."</p>
+<p>Mimata Chieri-ssi, who was savoring the afterglow of the climax, turned her body and knelt in front of me, then bit my dick, which was proudly sticking its head out of the water. She took a deep breath through her nose with a heuep sound, then put my dick deep into her throat.</p>
+<p>That meant that Mimata Chieri-ssi put her face into the water that was filling the bathtub. Then I should name this underwater fellatio.</p>
+<p>"Euheot...!"</p>
+<p>This felt pretty good. When Mimata Chieri-ssi was sitting on top of me earlier, she stimulated me enough by rubbing my dick with her soft butt while being caressed, so I quickly felt like I was going to cum.</p>
+<p>I didn't try to hold back and started cumming into Mimata Chieri-ssi's throat. Mimata Chieri-ssi's underwater fellatio felt good, but I was also worried that she would be in the water for too long and wouldn't be able to breathe, so I consciously cummed quickly.</p>
+<p>Cheombeong!</p>
+<p>Mimata Chieri-ssi, who raised her head from the water, opened her mouth with a wet face.</p>
+<p>"Bee~!"</p>
+<p>Because the amount of semen was so large, a considerable amount of semen remained in her mouth even though I cummed in her throat. Mimata Chieri-ssi was showing it. She rolled the semen around with her tongue, then closed her mouth and showed the performance of swallowing it.</p>
+<p>This was quite a sight, so my dick didn't lose its strength and continued to stand stiffly like a peak rising from the water.</p>
+<p>"Stand up again."</p>
+<p>"Yes."</p>
+<p>Mimata Chieri-ssi, who was looking at my erect dick with a lewd expression, stood up again as I said. And she looked at me like a dog waiting for the next command.</p>
+<p>"Aim well and sit down."</p>
+<p>"♥"</p>
+<p>Mimata Chieri-ssi looked at me and slowly bent her knees. As expected of an assassin, she seemed to be good at aiming(?). On the first try, Mimata Chieri-ssi's pussy and my glans kissed. It was quite romantic to slowly lower myself and watch my dick slowly being eaten by Mimata Chieri-ssi's pussy.</p>
+<p>"Heueut...! It's so full, Sunbae-nim♥"</p>
+<p>"I feel good that you're holding me tight, Sunbae-nim."</p>
+<p>"Heueut, kiss me."</p>
+<p>We were in a face-to-face position, so we kissed and hugged each other as Mimata Chieri-ssi shook her waist.</p>
+<p>Cheombeong, cheombeong!</p>
+<p>At first, Mimata Chieri-ssi showed a subtle and teasing waist movement while kissing, but soon she shook her waist so violently that the water in the bathtub overflowed. I also raised my waist to match the rhythm.</p>
+<p>"Heung, haa! Haeueup! I like it, keueot! I like it when you scratch there!"</p>
+<p>Mimata Chieri-ssi was showing off her flashy waist movements, shaking it up and down, then back and forth, left and right.</p>
+<p>Mimata Chieri-ssi didn't get tired and continued to shake her waist, feeling the climax several times for almost thirty minutes. I had already cummed once, so I didn't feel like cumming easily, but after thirty minutes of flashy stimulation, my dick swelled and was ready to release semen.</p>
+<p>"Eut! I think I'm going to cum soon, Sunbae-nim."</p>
+<p>"Give it to me inside, give me a lot inside. Give me Sunbae-nim's hot baby juice♥"</p>
+<p>What is baby juice again? But I liked it because it was hot. It felt like I was cumming even more because she was telling me these lewd stories.</p>
+<p>"Keueuk, I'm cumming!"</p>
+<p>"Haeueut!! Me too, I'm going too! Heueung! Sunbae-niim!!"</p>
+<p>Byureut byureut!!</p>
+<p>At the same time as I cummed, Mimata Chieri-ssi put my dick all the way to the end of her pussy and sat down, hugging me. The semen that filled her vagina and uterus leaked out, turning the color of the bath water cloudy. It's a bit much to keep staying in the semen bath, so I should get up soon.</p>
+<p>"Heueueu...!"</p>
+<p>I picked up Mimata Chieri-ssi, who was making strange breathing sounds with her eyes rolled back as if she had felt an incredible climax, rinsed her roughly with lukewarm water, rinsed myself with water, wiped myself roughly, and took Mimata Chieri-ssi to the bed in a princess carry.</p>
+<p>The night was still long. Of course, I had to go to Korea tomorrow and Mimata Chieri-ssi had to fight, so I didn't intend to overdo it. I was only thinking of doing it one or two more times?</p>
+<p>-----</p>
+<p>I received illustration requests for the 150th episode anniversary, but only one person applied, but it couldn't be implemented with Ai illustrations ㅠㅠ This is a collection of Mimata Chieri-ssi's real-life illustrations for the 150th episode anniversary that I decided on my own! I made it by changing only the model with the same prompt.</p>
+<p>The ones that are attached are the same model, and the ones that are spaced apart are different models. Which illustration do you like?</p>

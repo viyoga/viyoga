@@ -5,78 +5,74 @@ weight = 686
 chapter = 686
 +++
 
-<p>,A... I, is that Ryuta-jji's dick?!"</p>
-<p>Seizawa Shii's face was shadowed as she stuttered, looking at my hideous, gigantic anaconda standing tall. Well, it's understandable to be surprised seeing this for the first time (?). It's a size unseen in the East, and even in the West, there are hardly any dicks this big. Because it's a dick that combines both size and hardness.</p>
-<p>Seizawa Shii, who was momentarily surprised, soon changed to an expression full of curiosity and began to carefully touch my dick. It wasn't so much for foreplay, but more like she was touching it out of curiosity for a dick she was seeing for the first time.</p>
-<p>,H-hot.... The texture is different from what I imagined, Ryuta-jji..... The front is a bit hard but also soft?"</p>
-<p>Seizawa Shii was analyzing my dick while fondling it. It's not like she's doing research or anything. Rather than stopping Seizawa Shii's actions, I let her touch it as much as she wanted. It's better for her to touch it with curiosity than to be afraid of it. Seizawa Shii touched it for a while, then looked up at me with an, Ah, that's right! expression.</p>
-<p>,Ah, right! I was going to make Ryuta-jji feel good. What should I do now?"</p>
-<p>,Hold it like this and move it up and down."</p>
-<p>,L-like this?"</p>
-<p>When I told Seizawa Shii how to give a handjob, she started stroking my dick with slightly awkward movements.</p>
-<p>But the awkward movements were only temporary. She kept moving her hand while looking at my face to gauge my reaction.</p>
-<p>She started moving rhythmically, checking the parts where my reaction was good. At some point, she was toying with my dick, sometimes applying pressure and sometimes releasing it. As expected of a famous fixer, her hand sensitivity seemed extraordinary. Her physical abilities were good, and these sensory aspects seemed decent too.</p>
-<p>,Keuh...!"</p>
-<p>,Here? Do you like it here? Ufufu☆ Ryuta-jji's dick twitching is super dangerous♥"</p>
-<p>When I started moaning, she made her usual gyaru smile and shook my dick hard enough to make a chap chap sound, asking if I liked it here. She seemed to be enjoying the fact that I was feeling pleasure from her every touch.</p>
-<p>,Kyaa, what's this coming out of Ryuta-jji's dick hole?"</p>
-<p>Seizawa Shii screamed in surprise as the Cowper's fluid oozed out due to the stimulation. Then, she took a bit of the Cowper's fluid with her finger and rubbed it.</p>
-<p>,Didn't you learn about it in sex education? That's Cowper's fluid."</p>
-<p>,Ah, is that it? It's slippery and feels weird~☆"</p>
-<p>Seizawa Shii was delighted when I explained it to her. She had a proud expression, as if she had succeeded in something, as a direct phenomenon showing my arousal occurred. She seemed happy that she had given me pleasure herself.</p>
-<p>,Now, suck it with your mouth instead of your hand."</p>
-<p>,W-with my mouth? Isn't it too big? Ryuta-jji's dick is bigger than uncut futomaki (太巻き: Japanese-style kimbap)?"</p>
-<p>It's the first time I've heard someone call a dick futomaki. Actually, my dick is quite big to put in the mouth for the first time having sex. Should I receive fellatio next time...?</p>
-<p>,Then let's do the mouth thing next time."</p>
-<p>,No, it's not that I don't want to do it.... Ahem....!"</p>
-<p>When I said that fellatio was okay, Seizawa Shii, perhaps curious herself, first bit the glans. And since she had already learned how to give a handjob from me, she started moving her head up and down, applying what she learned.</p>
-<p>Seizawa Shii wasn't bad at studying either, but she was an honor student who could apply what she learned in sex without being taught. But no matter how good a student is, they will make basic mistakes if they don't learn. I urgently stopped Seizawa Shii.</p>
-<p>,W-wait a minute! You have to make sure your teeth don't touch...!"</p>
-<p>Seizawa Shii stopped shaking her head when I urgently said that because her canines were touching as she moved up and down. Actually, my resistance stat is so high that my dick wouldn't get hurt unless Seizawa Shii tried to bite it on purpose, but since my dick is so sensitive, it would be quite painful if her teeth touched it during fellatio.</p>
-<p>If she had done it a little more, I would have lost my erection from the pain. That would have been embarrassing. Seizawa Shii would definitely ask, Ryuta-jji, why did your dick get smaller and softer?</p>
-<p>,Aahssuh? Ianay."</p>
-<p>Seizawa Shii looked up at me with my dick in her mouth. She probably said, Did it hurt? Sorry.</p>
-<p>,It's okay. I should have told you in advance."</p>
-<p>When I said it was okay, she moved her head back and forth again with my dick in her mouth. This time, she moved her head carefully so that her teeth wouldn't touch. As expected, it was her first time, so saliva was dripping from her mouth, soaking her breasts and bra.</p>
-<p>Still, it felt pretty good because, apart from the awkward movements, she moved her tongue around in my mouth as if tasting it, and I could feel that ticklish pleasure.</p>
-<p>,That's enough."</p>
-<p>I stroked Seizawa Shii's hair and enjoyed her mouth for a while before lifting her up.</p>
-<p>It felt good, but I couldn't reach climax in a short time with just this. And I couldn't just keep asking Seizawa Shii for fellatio indefinitely.</p>
-<p>,Phew...! My jaw hurts, Ryuta-jji."</p>
-<p>,It's because you're not used to it yet."</p>
-<p>,Did it feel good?"</p>
-<p>,Yeah, it felt good, Shii."</p>
-<p>When I stroked Seizawa Shii's hair and praised her, she smiled happily, asking, Really? Seeing her happy with such an innocent expression, it was more arousing because it contrasted with the lewd appearance of her sucking my dick just now.</p>
-<p>,T-then, are we going to do that, that.... now?"</p>
-<p>When my eyes changed, Seizawa Shii swallowed hard and asked. Without answering, I took a step closer to Seizawa Shii.</p>
-<p>As I approached, Seizawa Shii tried to step back according to her virgin instincts, but she smiled at me and instead came closer to me.</p>
-<p>I slowly touched Seizawa Shii's shoulders and started taking off Seizawa Shii's underwear. First, I took off Seizawa Shii's bra, which was full of saliva from the fellatio, and then I took off her panties, which were already soaked and no longer functioning as underwear, leaving Seizawa Shii naked without a single thread on her body.</p>
-<p>I took a step back and looked at Seizawa Shii's naked body. Seizawa Shii slightly covered her Pussy with her arms, but subtly gathered her breasts to emphasize them, smiling and looking at me.</p>
-<p>Looking at it like this, it's another mystery. She's strong enough to crush a light truck, but she's not muscular. Looking at it like this, she just has a somewhat firm body. I wonder what the source of her strength is.</p>
-<p>Looking at her pose, she seemed quite confident in her breasts. Of course, as Seizawa Shii was confident, they were quite beautiful breasts. Not too big, just the right size, large white breasts. They were the kind of breasts that someone with no patience would touch without realizing it.</p>
-<p>,Haaang...! Ryuta-jjii~ I'll be surprised if you touch me suddenly♥"</p>
-<p>That impatient person was me. Seizawa Shii's elastic and bouncy breasts gave a different feeling than touching them over her bra. Perhaps because it was bare skin, the sense of closeness was better, making the feeling of touching them even better?</p>
-<p>,Shii's breasts are so pretty that I touched them without realizing it."</p>
-<p>,Ufufu, were they so pretty that you couldn't resist?"</p>
-<p>Seizawa Shii laughed out loud, happy with my compliment about her breasts. I nodded, fondling her breasts once again.</p>
-<p>,Yeah."</p>
-<p>,Heuh, Ryuta-jji, you're a pervert."</p>
-<p>,All men are perverts."</p>
-<p>,I-is that so? Haa...♥"</p>
-<p>It was a playful conversation, but as I thought that sex was approaching soon, Seizawa Shii's breathing became increasingly sticky, and my dick was dripping Cowper's fluid and its rigidity was increasing.</p>
-<p>I took a step closer and hugged Seizawa Shii, kissing her. When my fully erect dick pressed firmly against Seizawa Shii's stomach, I could feel Seizawa Shii flinching with a surprised moan.</p>
-<p>Chup, chubub, tsuup.... smooch....!</p>
-<p>,Haa... haa, haa.... Ryuta-jji's dick.... is big and hot."</p>
-<p>Seizawa Shii, who was breathing heavily after parting her lips, evaluated my dick, which had been pressing firmly against her stomach. Since her excitement level had already reached its peak, it was bound to be hot.</p>
-<p>My dick is already hotter than others, but Seizawa Shii, who is having her first experience, doesn't know that, so she's surprised with an expression that says, How can it be this hot?</p>
-<p>,Ryuta-jjii...."</p>
-<p>Seizawa Shii looked at me with an expression that said she didn't know what to do. She's a virgin, but she probably knows everything. She knows that in order to get rid of this anxious feeling, she needs to accept my dick into herself.</p>
-<p>,Then now...."</p>
-<p>Seizawa Shii nodded at my gaze, which asked, Shall we do it?</p>
-<p>,Put your hands over there and bend your back."</p>
-<p>If possible, I wanted her first experience to be missionary style, but this wasn't a bedroom with a place to lie down. It was just a coin laundry with only a chair.</p>
-<p>If I wasn't going to do deulbak from the first experience, then the only answer here was doggy style. Of course, there's also standing position, but that's a bit uncomfortable because the heights don't match... after all, the only thing left is doggy style.</p>
-<p>__________</p>
-<p>Seizawa Shii Frontal Nude B-Cut!</p>
-<p>A picture where everything is appropriately covered ㅎㅎ</p>
-<p>Why is there one more hand...?</p>
+<p>The cafe that Asada Ei and the students went to was quite excellent. Asada Ei said she had checked it out beforehand, and the drinks were delicious, the desserts were delicious, and even the atmosphere was great.</p>
+<p>For about an hour, we enjoyed pleasant conversation while eating our desired drinks and desserts. Asada Ei, true to her Snow Woman persona, ordered cold drinks and ice cream for dessert, lamenting that she couldn't eat warm food anymore, and Alik still put some of what he ordered into my mouth, omyom-nyom-nyom, while eating his dessert.</p>
+<p>Unexpectedly, Asada Ei was quite a cheerful person, contrary to her cold impression; perhaps it was because she had some experience in society, but she seemed a bit more skilled at dealing with people. She smoothly eased the slightly awkward time with students who weren't very close.</p>
+<p>,It was fun, Ryuta-nim. I hope we can have this kind of time again next time.</p>
+<p>,Contact me anytime. I can always have a conversation with you.</p>
+<p>I parted ways with Asada Ei and went to St. Francisco Girls' Academy mansion street with the students. Everyone had houses nearby, so they naturally split up.</p>
+<p>,Ei-ssi was unexpectedly a fun person.</p>
+<p>,Yeah, I met her often because of the Joseodang work, and even though her expression and atmosphere are cold, she was quite fun.</p>
+<p>Naruse Shiyo nodded in agreement with Otagi Yuka's words. She became one of the three executives of the Joseodang, overseeing the instructors sent by the Naruse family and leading the agents who used shikigami techniques, so it seemed she often met with Asada Ei because of that.</p>
+<p>,Ah, this is the fork in the road. Sensei, Alik and I are going on a mission from tomorrow, so I won't see you during the vacation. Have a great vacation...!</p>
+<p>,Ryuta, bye bye.</p>
+<p>Naruse Shiyo made a gloomy Pepe the Frog-like expression and greeted me, and Alik hugged me lightly, then looked up at me and greeted me.</p>
+<p>I stroked Alik's head and gave Naruse Shiyo a light hug, telling her to have a good time, and Naruse Shiyo reacted as if she was broken, saying, Eh, eh?</p>
+<p>,Don't mess with innocent kids for no reason, Sensei-ssi.</p>
+<p>,You want a hug too?</p>
+<p>,No.... I like it.</p>
+<p>I hugged Otagi Yuka, who was grumbling at the broken Naruse Shiyo, and she became quiet. Otagi Yuka is surprisingly the jealous type. I hugged Otagi Yuka and looked to the side, and I couldn't help but chuckle at Saionji Diana, who was already waiting with her arms open.</p>
+<p>I couldn't refuse when she made such an expectant expression. I opened my arms and hugged Saionji Diana tightly. Saionji Diana hugged me tightly, saying, Ehehe♥. After holding Saionji Diana for a while, we returned to our respective homes.</p>
+<p>Otagi Yuka looked like Saionji Diana wanted to come to my house, but I had a lot of pending work, so I refused today.</p>
+<p>The new TG Tech firearms were still gaining popularity to the point of causing a social phenomenon, and now not only the civilian sector but also PMCs and government forces were placing orders for performance testing.</p>
+<p>Of course, there were quite a few documents that required my signature as a co-representative, so I thought I would be quite busy for the next few days.</p>
+<p>After returning home and signing documents for about two hours, my phone vibrated and started ringing.</p>
+<p>Who is it? I checked and it was Nae Fitzgerald's husband, Oliver Fitzgerald. What's going on?</p>
+<p>,I'm on the phone.</p>
+<p>-Long time no see, nephew.</p>
+<p>He was still a hearty man. Listening to his voice, it didn't seem like he knew I was having a relationship with Nae Fitzgerald.... It seemed like he had a purpose for calling.</p>
+<p>,Yes, Uncle, have you been well too?</p>
+<p>-I've been well. I'm calling about the acquisition of the Korean company I mentioned before.</p>
+<p>Ah, that's right. Oliver Fitzgerald's company, Theron, asked me for help in acquiring a Korean company called Isis.</p>
+<p>,Isis, that company?</p>
+<p>-Yes. I'm going to Korea soon, and I wanted to get some of the help you promised. I heard that Isis is in quite a bit of trouble.</p>
+<p>What exactly did I promise? I quickly checked the memo I had made about business matters during the call to confirm. Ah, that's right. It was help in acquiring Isis on their behalf and then transferring the company or transferring the technology.</p>
+<p>It's a bit of a hassle, but I unintentionally mistook Nae Fitzgerald for Arisu and did NTL, so I decided to help with the company's work as an apology for that. There's no excuse for continuing to have a relationship after that, but what can I do? It's my dick's fault for being so great.</p>
+<p>,Of course. But I'm going to Korea after Christmas.</p>
+<p>In fact, the date I'm going to Korea is Christmas Day, but that day is reserved for Han Yu-gyeong, so I said it would be after Christmas.</p>
+<p>-Ah, that's fine. I have to spend Christmas with my family too.... Anyway, your company has to make the contract, but the brokerage company we set up in the middle set the date after Christmas, so you can come then and talk to Isis.</p>
+<p>Isis's situation was difficult, so it seemed they were trying to make an appointment urgently through a brokerage company and call me before they were sold to another company.</p>
+<p>,What should we do with the method after purchasing Isis? Should we hand over the company? Or should we only transfer the technology?</p>
+<p>-What we need are Isis's cooling technology and engineers, so I'd like you to acquire Isis and then transfer Isis back to us.</p>
+<p>That was definitely easier. Because we only need to change the shares. If we only transfer the technology, I have to clean up the remaining Isis employees on my side, so it's good that I don't have to do that.</p>
+<p>-I'm so busy and if I suddenly appear in Korea, someone might suspect, so Nae will go to this negotiation with you. You can work while thinking about playing with your aunt.</p>
+<p>Listening to this story, it feels like Nae Fitzgerald, not Oliver Fitzgerald, said she would go to Korea herself. It's about time for Nae Fitzgerald's married woman pussy to be itching. I should have fun playing with my aunt as my uncle said.</p>
+<p>,Of course. I'll take good care of Nae-gomo.</p>
+<p>-Okay, I'm counting on you. I'll send you the detailed schedule by email, so contact your aunt.</p>
+<p>After ending the call with Oliver Fitzgerald, I immediately called Nae Fitzgerald.</p>
+<p>-The phone is currently turned off....</p>
+<p>The phone is turned off? Nae Fitzgerald always answers my calls right away. Moreover, the fact that Nae Fitzgerald, who is also a businesswoman, has her phone turned off means she is doing Phantom Thief François work.</p>
+<p>What the hell is she stealing? I'm curious for no reason....</p>
+<p>Thinking of Phantom Thief François, something suddenly came to mind.</p>
+<p>The psychokinetic who is suspected to be under Ichiro and the research lab that the psychokinetic attacked, Phantom Thief François who took something from that research lab...!</p>
+<p>I had forgotten about it because there were several events in a row after that, but I realized that I needed to find out what Phantom Thief François took at that time. I can meet Nae Fitzgerald in person when I acquire Isis and ask her.</p>
+<p>I finished the paperwork I was doing and checked the schedule that came by email. The acquisition negotiation is at 4 pm on the 27th. If the negotiation breaks down here. Re-negotiation at 4 pm the next day was written.</p>
+<p>As I remember, Theron was a company that made engines for Mars-bound spaceships, and they were trying to acquire Isis to obtain Isis's cooling technology to solve the engine's defect, which is heat generation.</p>
+<p>Isis said it was difficult, so I didn't think the negotiation would be difficult. I'll think of it as putting Theron in debt and work hard.</p>
+<p>Theron has Nae Fitzgerald and Arisu, so they were likely to become my friendly forces. Of course, this is on the condition that Oliver Fitzgerald doesn't catch me having sex with Nae Fitzgerald, but I didn't think that Nae Fitzgerald, who is so thorough that she continues to do Phantom Thief François activities, would ever get caught in a relationship with me.</p>
+<p>Then I should help Theron, a potential future ally. Deciding to help Theron, I immediately contacted Han Yu-gyeong and told her about the current situation.</p>
+<p>-Then it would be good to investigate Isis?</p>
+<p>,Yeah. I was going to be with Yu-gyeong until the end of the year, but I'm sorry that I have to leave in the middle because of the contract.</p>
+<p>Since it's a schedule in Korea anyway, I'm telling her the schedule in advance and asking her to investigate Isis. I was actually planning to be together during the year-end and New Year holidays, but I feel sorry that I have to leave for a day or two.</p>
+<p>-It's not difficult to investigate. I might have to leave because I'm busy with work too, but are you sure you're coming on Christmas, Yongtae?</p>
+<p>,Yeah. We decided to spend Christmas together. I'm sorry I can't spend Christmas Eve together.</p>
+<p>I was going to spend Christmas Eve with Minamoto Risa, so I couldn't spend it with Han Yu-gyeong. Instead, I was able to spend Christmas Day together, so I decided to go to Korea on a Christmas Eve night flight or a Christmas morning flight.</p>
+<p>-Yeah~♥ I miss Yongtae. I'm looking forward to our Christmas date!</p>
+<p>,Yeah, I'm really looking forward to it. Actually, I don't need a special date schedule, I only need Yu-gyeong, so don't prepare too much.</p>
+<p>It had become like an unwritten rule that Han Yu-gyeong makes the date course when I go to Korea, and I make the date course when Han Yu-gyeong comes to Japan, so Han Yu-gyeong will make this Christmas date.</p>
+<p>,I'll be in Korea until a few days before school starts, so I can see you for a long time this time.</p>
+<p>-I'm so happy about that, hehe...! I have to be with Yongtae for a long time, so it would be good if the Theron negotiation ends in one day, right?</p>
+<p>Han Yu-gyeong seemed to be really looking forward to it because I was planning to stay in Korea for more than ten days until the end of the vacation next year. Of course, I was also really looking forward to being with Han Yu-gyeong for a long time after a long time.</p>
+<p>______</p>
+<p>Hug me Diana</p>
+<p>Just a slightly made Nae Fitzgerald</p>

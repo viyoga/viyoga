@@ -5,81 +5,78 @@ weight = 1082
 chapter = 1082
 +++
 
-<p>When she first arrived at the hotel and heard her Disciple Taira Ryuta's words that she had to engage in Sexual Intercourse with him for treatment, she thought, 'Is this Disciple insane?'</p>
-<p>But soon, seeing her Disciple's serious Expression, she realized his Words were Sincerity.</p>
-<p>Healing wounds with Sex was something she had never heard of, but listening to her Disciple's Explanation, he said he would treat her with a principle similar to a type of Sexual Act called Bedroom Arts.</p>
-<p>In truth, even after hearing it, she couldn't understand, but Fujigasaki Rinka also knew well that her current Situation was quite serious.</p>
-<p>Because it was her own Body, and with Fujigasaki Rinka's Skill, which had already reached a Realm, she could relatively accurately diagnose her own wounds.</p>
-<p>In her Simsang, there was a large vessel containing the Abyss, and consuming the Abyss meant using the Abyss contained within that vessel.</p>
-<p>Under no circumstances had that vessel ever shrunk, but in the fight with the Outer God-transformed Takakusaki Gengo, when the Abyss was taken from her, a situation occurred where a part of the vessel was torn away along with it.</p>
-<p>The reduction in the total amount of Abyss was serious, but the torn vessel was cracked, and if there wasn't enough rest, she also knew that her Internal Injury would continuously worsen.</p>
-<p>But she couldn't just rest quietly. Because she had found the trace of her Sabu, who had been missing for a long period.</p>
-<p>Even though Fujigasaki Rinka knew it was too much, she headed to the USA to find her Sabu. In truth, there wasn't a big problem in the USA either. Because she could sufficiently fight Back Alley gangsters to an extent that she wouldn't sustain Internal Injury.</p>
-<p>But fighting the Black Sage who kidnapped her Sabu became a big problem. The Black Sage was a powerful Enemy she had never fought before, and if the Black Sage hadn't been blinded by the forbidden book, the Fragment of Omniscience, even she, in her normal state, wouldn't have been able to win.</p>
-<p>Even in that battle, if it hadn't been for her Disciple who burst in at the climax of the battle, she would have died right there by the Black Sage's hand.</p>
-<p>Thinking that, that guy, her Disciple, suddenly felt reliable.</p>
-<p>In her Eyes, that Boy, who was like a child at their first meeting, had somehow, without her realizing it, changed into a reliable and trustworthy Man.</p>
-<p>He had become dependable, such a good Man that even she, his Sabu, felt her heart pound.</p>
-<p>Perhaps that's why she was initially disappointed by Taira Ryuta's Proposal. Because she had misunderstood that he was merely coveting her Body under the pretext of her Sabu's condition.</p>
-<p>But in that Disciple guy's Gaze and Words, there was full of worry for her.</p>
-<p>Of course, behind the worry, an undeniable Expectation for Sexual Act was reflected, but if that hadn't been there, Fujigasaki Rinka would have been very disappointed.</p>
-<p>If he had only had Sex out of worry for his Sabu, it would have meant she had no Charm as a Woman at all.</p>
-<p>She wanted to nod her Head right away, but nodding her Head and spreading her Legs as soon as her Disciple proposed treatment Sex was somehow embarrassing and Embarrassed.</p>
-<p>Fujigasaki Rinka refused treatment Sex and quoted her previous Words that she would do it with the Man who defeated her.</p>
-<p>Saying something she herself couldn't understand, that since Taira Ryuta killed the Black Sage she was fighting, it was no different from winning against her, she permitted Sex with Taira Ryuta.</p>
-<p>Just like that, her Disciple's hand cupped her breast.</p>
-<p>A Man's hand touching her for the first time. She wondered if Sex would feel good, but as her Disciple's hand touched her breast, Fujigasaki Rinka felt as if electricity surged through her.</p>
-<p>Her Sensitive Body, trained to react to any Attack from an opponent, became an enormous weakness for Sex.</p>
-<p>"Haaht...!"</p>
-<p>She was making Embarrassed moaning sounds she didn't even recognize, but Fujigasaki Rinka, caught in the pleasure washing over her like a Wave, didn't even notice the high Voice of an Aroused Woman escaping her lips.</p>
-<p>With the pleasure spreading throughout her entire Body, Fujigasaki Rinka couldn't keep her mind straight. If it weren't for her Mental Power, trained through thousands of battles until now, she would have gone mad long ago.</p>
-<p>"I'm going to put it in now, Sabu...!"</p>
-<p>Along with Taira Ryuta's Words, her Disciple's Large Penis gradually burrowed into her down there. Having pierced through the Hymen that guarded her deepest part, her Disciple's penis had already filled her down there.</p>
-<p>It was a strange Feeling. The sensation of something enormous, not her own, entering her Lower Cauldron-uncomfortable yet pleasurable, forcibly stretching her inside with a pleasure incomparable to before. But Fujigasaki Rinka forcibly sank into her Simsang.</p>
-<p>She was curious if her Disciple's treatment Act was truly healing her Internal Injury.</p>
-<p>Before Fujigasaki Rinka, who had closed her Eyes, her vessel was visible. A vessel cracked and torn at the top. A precarious vessel that seemed like it would shatter into pieces if she pushed herself a little more.</p>
-<p>With her Disciple's Rhythmic Motion, her Disciple's Aura imbued her vessel, and she felt the cracks being mended. Of course, it wasn't an Internal Injury that could be easily healed with a few Piston Motions, but it was important that her Disciple's Words were not a lie.</p>
-<p>Fujigasaki Rinka opened her Eyes again. Having confirmed her Disciple's Sincerity, it was now her turn to enjoy this new Intimate Experience.</p>
-<p>Opening her Eyes, she saw her Disciple's handsome Face. And simultaneously, the pleasure felt in her Lower Cauldron began to wash over her like a Wave.</p>
-<p>"Haaang!!!"</p>
-<p>After I performed insertion, Sabu, who had been closing her Eyes for a moment, opened her Eyes and suddenly began to let out a loud moaning sound.</p>
-<p>Was she closing her Eyes to endure the pain of her Hymen being pierced? Or was she closing her Eyes to get used to my enormous Size? I made a few conjectures, but since I couldn't know without entering Sabu's Head, I decided to focus on the present.</p>
-<p>Sabu's tightly clenching pussy felt incredibly good. It clenched so tightly that it was slightly painful with each moan, but her vaginal fluid sufficiently coated my cock, allowing for smooth Rhythmic Thrusts even when her pussy gripped my cock tightly.</p>
-<p>Sabu, who had closed and then opened her Eyes, as if she had undergone an awakening, abandoned her shy Attitude from moments ago and began to enjoy Sex with me.</p>
-<p>From merely awkwardly receiving, she began to hug me tightly or adjust her waist angle, attempting things even in missionary position, which is difficult for a Woman to initiate.</p>
-<p>As Sabu was the pinnacle of Martial Arts, her Body control could also be said to be the best, so as Sabu adjusted herself even slightly, my movements became more comfortable, and the pleasure felt in my cock also increased.</p>
-<p>"Ha-eung, Heueuuhang...! This, Heueung! This♥ how is it...?"</p>
-<p>"Kueu, it's good, Keut...! Sabu!"</p>
-<p>Sabu's Appearance, moving slightly and observing my Reaction, was like engaging in a reconnaissance battle. To treat Sex like a battle, it was truly Sabu-like.</p>
-<p>Of course, I didn't think badly of Woman-led Sex and enjoyed it, but now was different. Giving the Initiative to a Virgin was a matter of wounded Pride for me, a Baekjeonnoljang of Sex, so I decided to push Sabu a little harder.</p>
-<p>I grabbed one of Sabu's wrists and pulled her, and thrust my waist even more roughly.</p>
-<p>"Haaang, Heueung...! If you, Haaht! do it so roughlyyy...♡"</p>
-<p>Sabu began to raise her moans at my sudden Attack. Along with the smacking sounds of flesh colliding, Sabu's moaning sounds blended together, creating a sound like Music.</p>
-<p>After having Sex while holding Sabu's wrist for a while, I released her wrist and grabbed Sabu's breasts with both hands, thrusting my waist. As I stimulated her nipples and pussy simultaneously, Sabu lost her mind, reveling in the pleasure.</p>
-<p>"Heueuuhut! It feels, Eueuheung...! My Lower Cauldron, Hyaeuhut! is throbbinggg...! It feels good, Haaang♥"</p>
-<p>Of course, as I moved roughly and quickly, it was natural for me to also be captivated by the intensified pleasure.</p>
-<p>Along with the Forbidden Pleasure of doing it with Sabu, Sabu's top-tier pussy, which clenched incredibly tightly, and Sabu's moans stimulating my Sensitive Ear, various elements combined, and the feeling of ejaculation rapidly approached.</p>
-<p>Normally, I would have taken a breath by slowing the Tempo or changing the sexual position here, but instead, I began to accelerate my Hip Movements even more.</p>
-<p>Because the primary Goal was Sabu's Internal Injury treatment, it was to perform Creampie, which has the strongest Effect from the Sacred Pillar.</p>
-<p>Cheolsseok! Cheolsseok! Cheolsseok! Cheolsseok!</p>
-<p>"Heuaaang! If you, Haaht! thrust so hard, Heueung...! Haaht! I'll go crazy, Eungheut♥ I'll be ruineddd!!"</p>
-<p>As flesh collided strongly, vaginal fluid, Sweat, and saliva splattered everywhere. The feeling of ejaculation surged, and now I was almost on the verge of Ejaculation.</p>
-<p>"Sabu, I'm going to cum inside...!"</p>
-<p>"Haaht! Insideee...! Heueuuhang♥ Nooo! Haaht!"</p>
-<p>It was Sabu, saying no while spreading her Legs even wider. Was she telling me to do it? Or not to? Of course, Creampie was essential for Sabu's treatment, so I would do it no matter how much Sabu refused.</p>
-<p>I released the hand that was touching her breast and this time, grabbed Sabu's waist. Then, pulling Sabu's Body closer, I pressed my cock as tightly as possible. It was to Ejaculate into Sabu's deepest part.</p>
-<p>"I'm cumming! Sabu, I'm cumming inside...!"</p>
-<p>Byuut! Byuuut! Byuuut!!</p>
-<p>"Haaaaaang!!! Hot, Heueut! cum...! Haaht! fill me up insideee♥"</p>
-<p>As I began to Ejaculate, Sabu also reached Climax simultaneously. She felt so good that she stuck out her tongue and rolled her Eyes back, her Body trembling, truly feeling the Climax.</p>
-<p>Sex B-cut~!</p>
-<p>Young Ryuta, as Sabu imagined him hehe</p>
-<p>He was a handsome Little One even when he was young hehe</p>
-<p>Bonus</p>
-<p>Ryuta around 9th grade to 10th grade~!</p>
-<p>MidNightSKY-nim requested Rinka-sabu whose Face turned red thinking of her Disciple, and Ryuta surprised when the river split from a punch~!</p>
-<p>Sabu~!</p>
-<p>Ryuta~!</p>
-<p>Gojoy-nim requested Chapter 42, Simyeonui ttal's first Appearance. Han Yu-gyeong secretly watching the Situation</p>
-<p>Simyeonui ttal.</p>
-<p>Han Yu-gyeong~!</p>
+<p>"Hoo...!"</p>
+<p>Shimokawabe Airen exhaled and put away her Wooden Sword. Although she had swung her Sword a few times, she somehow couldn't concentrate indoors.</p>
+<p>It was because of her friend Fujigasaki Rinka's Matter.</p>
+<p>Fujigasaki Rinka, who had suddenly collapsed, pale. Even to her, The Situation was quite bad, and since the Hospital also said there was no particular Treatment method, Shimokawabe Airen could only fret over her friend's Internal Injury.</p>
+<p>But when Fujigasaki Rinka's Disciple, Taira Ryuta, suddenly stepped forward and said, 'I must treat Master/teacher-nim,' then took Fujigasaki Rinka and disappeared, Shimokawabe Airen fell into question/doubt.</p>
+<p>How could Taira Ryuta treat a friend whom even the Hospital couldn't treat?</p>
+<p>And why did some, including Otagi Yuka, feel Sweet Relief upon seeing Taira Ryuta take Fujigasaki Rinka? Such questions/doubts lingered in Shimokawabe Airen's Head.</p>
+<p>At first, she decided to wait, thinking that her Disciple Taira Ryuta would not Harm Fujigasaki Rinka, but when the two did not return until late night, Shimokawabe Airen went to find Otagi Yuka.</p>
+<p>"What kind of Treatment is taking so long?"</p>
+<p>At Shimokawabe Airen's Question, Otagi Yuka made an Embarrassed Expression. She made an Expression as if wondering whether to say it, but seeing Shimokawabe Airen ask with such a worried Expression, she let out a Sigh and opened her mouth.</p>
+<p>"Ryuta-ssi has a special superpower. One that can only treat Women...."</p>
+<p>At Otagi Yuka's Answer, Shimokawabe Airen nodded her Head. At this point, with countless superpowers appearing, it wasn't strange to have an Ability that only treated Women.</p>
+<p>Having heard Otagi Yuka's Explanation and feeling Sweet Relief, Shimokawabe Airen went to Sleep. When a refreshed Fujigasaki Rinka and a slightly tired Taira Ryuta returned the next Morning, Shimokawabe Airen was also happy.</p>
+<p>"Are you feeling better? Last night, I asked out of worry, and Ryuta-ssi only treats Women...."</p>
+<p>When Shimokawabe Airen asked the Question without much thought while alone with Fujigasaki Rinka, Fujigasaki Rinka's Face turned red. But soon, she grinned and looked at Shimokawabe Airen.</p>
+<p>"Ah...! You heard last night. Well.... There must be Members on Ryuta's side who received that Treatment too. It was my first Intimate Experience, but it felt much better than I thought! Ahaha! Don't think too strangely of it, Airen."</p>
+<p>At Shimokawabe Airen's Question, Fujigasaki Rinka made a slightly Embarrassed Expression, then answered with an Attitude as if there was nothing to be done if she already knew and asked.</p>
+<p>At Fujigasaki Rinka's Answer, Shimokawabe Airen tilted her Head. She was clearly talking about Treatment yesterday, but the Answer seemed to be missing the point.</p>
+<p>"You're talking about receiving Treatment, right?"</p>
+<p>"Yes. It felt so good that I almost reached a higher Realm without realizing it. Towards the end, I felt like I was achieving Enlightenment...."</p>
+<p>Something was strange again. Why did the Treatment feel good? Moreover, for Shimokawabe Airen, who had been somewhat stagnant as a teacher, the Words about almost reaching a higher Realm were intriguing enough to make her Ears perk up.</p>
+<p>"A Realm rises with Treatment?"</p>
+<p>"Well.... It's a bit of an exaggeration, but putting aside the Body's recovery, the pleasant Feeling during Treatment completely relieved my Stress~! And then I thought, 'Ah, my Worry is meaningless,' and gained a little Enlightenment."</p>
+<p>To completely relieve Stress and even gain Enlightenment, what kind of Treatment could Taira Ryuta's possibly be to produce such an Effect? Shimokawabe Airen's Intrigue grew.</p>
+<p>"What exactly is the Treatment method? What gives it such Efficacy?"</p>
+<p>"Ah...! You didn't know the Method?"</p>
+<p>At Shimokawabe Airen's Question, Fujigasaki Rinka asked back as if she had realized something. Only then did Fujigasaki Rinka also realize that there had been a subtle Hidden Cleft in their Conversation until now.</p>
+<p>Since she had already said this much, and couldn't lie to her friend, Fujigasaki Rinka let out a small Sigh and opened her mouth.</p>
+<p>"The fact is...."</p>
+<p>At Fujigasaki Rinka's Explanation, Shimokawabe Airen couldn't help but open her mouth in shock.</p>
+<p>After that, the action that Fujigasaki Rinka and Taira Ryuta had taken became something akin to anguish for Shimokawabe Airen. That's why she put away her Sword without even swinging it a few times.</p>
+<p>"Shall I go for a walk for a while...?"</p>
+<p>Shimokawabe Airen decided to walk around her Surroundings to clear her complex Mood. Shimokawabe Airen left Fujigasaki Rinka's Mansion, leaving her Wooden Sword behind.</p>
+<p>All the Mansions in these Surroundings were built on Cliffs overlooking the beach. The nearby Hill had well-maintained Roads for Athleticism, so Shimokawabe Airen decided to clear her Head by jogging.</p>
+<p>"Haa...! Haa...! Haa...!"</p>
+<p>Shimokawabe Airen had intended to run lightly, but she ran at a speed that made her Breath catch without realizing it. Having arrived at the highest Place on the Hill, Shimokawabe Airen gazed at the wide-open Malibu coast.</p>
+<p>"!"</p>
+<p>Fujigasaki Rinka's Mansion came into Shimokawabe Airen's Field of Vision as she was healing while looking at the Scene of Malibu Beach. Since Shimokawabe Airen had good Eyesight, Fujigasaki Rinka's Mansion was clearly visible, and especially Taira Ryuta, lying on a sunbed with the second-floor window wide open, taking Rest, caught her Eye.</p>
+<p>"Uh...?!"</p>
+<p>Shimokawabe Airen, who had been watching Taira Ryuta looking at his phone for a while, was surprised to see the Kiyona Mari Hori Sisters suddenly enter the room, and couldn't help but let out a sound of "uh."</p>
+<p>'Why are they wearing Maid Clothes?'</p>
+<p>Seeing the two Sisters wearing Maid Clothes, Shimokawabe Airen felt a question/doubt. Of course, she knew that the two Sisters ran a Maid Cafe as a side job besides being PMC Mercenaries, but there was no Reason for them to suddenly be wearing Maid Clothes.</p>
+<p>And then she was surprised once more: when Taira Ryuta had his Back turned, looking for something, the two Sisters suddenly took off their Maid Clothes, didn't they? They didn't just take off their Maid Clothes, but also their underwear, so the two Sisters simultaneously became Nasin, and Shimokawabe Airen couldn't help but be surprised.</p>
+<p>When Taira Ryuta, who had been looking for something, turned his Body and was surprised to see the two Sisters' Nasin, Shimokawabe Airen felt Sweet Relief, thinking that she wasn't the strange one after all.</p>
+<p>But she was surprised again by their next action: Taira Ryuta and Kiyona Mari had started Sex.</p>
+<p>Of course, she had a Premonition from the moment the two Sisters took off their Clothes, so she wasn't greatly surprised, but she thought anyone would be surprised to see the older sister, Kiyona Hori, lying on a sunbed, appreciating the Scene.</p>
+<p>"For an older sister to appreciate her younger sibling's Sex while Masturbating...."</p>
+<p>Every single Word she had just uttered was a cultural shock in itself for Shimokawabe Airen.</p>
+<p>Regardless of Shimokawabe Airen's surprise, the Sex between the Kiyona Sisters and Taira Ryuta continued.</p>
+<p>"Haa...!"</p>
+<p>Unknowingly watching the Erotic Scene of the three, her mouth kept drying, and her Breath, which shouldn't have been labored long after running, gradually became shallow.</p>
+<p>And she felt her Lower Cauldron gradually growing Heat. And at the same time, she remembered the Story she had heard from the Intimate Experience-d (?) Fujigasaki Rinka.</p>
+<p>-Honestly, at first I said it was for Treatment, but when my down there got hot and it felt completely good, I regretted all the Time I hadn't done it~!</p>
+<p>To regret all the Time she hadn't done it...! Shimokawabe Airen found herself wondering, 'What on earth was it like?'</p>
+<p>"!"</p>
+<p>Such Intrigue was momentary, as Shimokawabe Airen was surprised again: the door to Taira Ryuta's room was slowly opening.</p>
+<p>Naturally, two of the three in the room, who should have noticed, were engrossed in Sex, and one was lying on a sunbed Masturbating, so they didn't notice the door slowly opening.</p>
+<p>'W-what is it...? Is it an Attack?'</p>
+<p>Shimokawabe Airen was flustered by the slowly opening door, but when the door opened to a certain extent and nothing else happened, she became curious.</p>
+<p>Shimokawabe Airen put a little more power into her Eyes, because Shimokawabe Airen's Eyes had the Ability to see through anything that distorted space.</p>
+<p>As she put power into her Eyes, a figure became visible through the door: it was Seiwa Rieko. Judging by the diligent movement of the Hand placed on her groin, she seemed to be Masturbating while watching the Sex of the three.</p>
+<p>'To come watch Sex as if she had been waiting for it.... P-Pervert?!'</p>
+<p>Shimokawabe Airen treated Seiwa Rieko as a Byeontae, but she herself was unaware that she was also watching the Sex with Intrigue from the moment it began.</p>
+<p>Thus, Shimokawabe Airen was voyeuristically watching Ryuta and the Kiyona Sisters' Sex with Intrigue. After it became Kiyona Hori's Turn, and finally, after watching Kiyona Mari and Hori having Sex together, the Party/Group's vehicle that had gone surfing was seen returning along the Road.</p>
+<p>"Whew...! I should go down too."</p>
+<p>Shimokawabe Airen wiped her Fingers with the Handkerchief she had brought, then ran back towards Fujigasaki Rinka's Mansion. Shimokawabe Airen's Face, as she ran towards her friend's Mansion, was somehow refreshed and invigorated. Just as Fujigasaki Rinka had said, it felt like her Stress had completely melted away. Shimokawabe Airen, returning, was captivated by one thought.</p>
+<p>'If doing it alone feels this good, then how good would it be to actually do it?'</p>
+<p>Airen Running~!</p>
+<p>It didn't quite capture the Malibu Cliff coast feeling I imagined, so it was eliminated hehe.</p>
+<p>Airen Surprised!</p>
+<p>Airen appreciating with an Erotic Expression hehe.</p>
+<p>Chieri and Misano at the shelter in Chapter 49, requested by Gojoy-nim, but....</p>
+<p>In that Scene, they were sitting next to an ambulance, not a shelter, so I only put an ambulance in the background hehe. I didn't know what to prompt for a shelter.</p>
+<p>Chieri~!</p>
+<p>Shinoe Misano~!</p>

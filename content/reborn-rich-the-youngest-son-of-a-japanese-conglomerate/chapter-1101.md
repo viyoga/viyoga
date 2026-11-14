@@ -5,78 +5,89 @@ weight = 1101
 chapter = 1101
 +++
 
-<p>"Hoo...!"</p>
-<p>Shimokawabe Airen exhaled and put away her Wooden Sword. Although she had swung her Sword a few times, she somehow couldn't concentrate indoors.</p>
-<p>It was because of her friend Fujigasaki Rinka's Matter.</p>
-<p>Fujigasaki Rinka, who had suddenly collapsed, pale. Even to her, The Situation was quite bad, and since the Hospital also said there was no particular Treatment method, Shimokawabe Airen could only fret over her friend's Internal Injury.</p>
-<p>But when Fujigasaki Rinka's Disciple, Taira Ryuta, suddenly stepped forward and said, 'I must treat Master/teacher-nim,' then took Fujigasaki Rinka and disappeared, Shimokawabe Airen fell into question/doubt.</p>
-<p>How could Taira Ryuta treat a friend whom even the Hospital couldn't treat?</p>
-<p>And why did some, including Otagi Yuka, feel Sweet Relief upon seeing Taira Ryuta take Fujigasaki Rinka? Such questions/doubts lingered in Shimokawabe Airen's Head.</p>
-<p>At first, she decided to wait, thinking that her Disciple Taira Ryuta would not Harm Fujigasaki Rinka, but when the two did not return until late night, Shimokawabe Airen went to find Otagi Yuka.</p>
-<p>"What kind of Treatment is taking so long?"</p>
-<p>At Shimokawabe Airen's Question, Otagi Yuka made an Embarrassed Expression. She made an Expression as if wondering whether to say it, but seeing Shimokawabe Airen ask with such a worried Expression, she let out a Sigh and opened her mouth.</p>
-<p>"Ryuta-ssi has a special superpower. One that can only treat Women...."</p>
-<p>At Otagi Yuka's Answer, Shimokawabe Airen nodded her Head. At this point, with countless superpowers appearing, it wasn't strange to have an Ability that only treated Women.</p>
-<p>Having heard Otagi Yuka's Explanation and feeling Sweet Relief, Shimokawabe Airen went to Sleep. When a refreshed Fujigasaki Rinka and a slightly tired Taira Ryuta returned the next Morning, Shimokawabe Airen was also happy.</p>
-<p>"Are you feeling better? Last night, I asked out of worry, and Ryuta-ssi only treats Women...."</p>
-<p>When Shimokawabe Airen asked the Question without much thought while alone with Fujigasaki Rinka, Fujigasaki Rinka's Face turned red. But soon, she grinned and looked at Shimokawabe Airen.</p>
-<p>"Ah...! You heard last night. Well.... There must be Members on Ryuta's side who received that Treatment too. It was my first Intimate Experience, but it felt much better than I thought! Ahaha! Don't think too strangely of it, Airen."</p>
-<p>At Shimokawabe Airen's Question, Fujigasaki Rinka made a slightly Embarrassed Expression, then answered with an Attitude as if there was nothing to be done if she already knew and asked.</p>
-<p>At Fujigasaki Rinka's Answer, Shimokawabe Airen tilted her Head. She was clearly talking about Treatment yesterday, but the Answer seemed to be missing the point.</p>
-<p>"You're talking about receiving Treatment, right?"</p>
-<p>"Yes. It felt so good that I almost reached a higher Realm without realizing it. Towards the end, I felt like I was achieving Enlightenment...."</p>
-<p>Something was strange again. Why did the Treatment feel good? Moreover, for Shimokawabe Airen, who had been somewhat stagnant as a teacher, the Words about almost reaching a higher Realm were intriguing enough to make her Ears perk up.</p>
-<p>"A Realm rises with Treatment?"</p>
-<p>"Well.... It's a bit of an exaggeration, but putting aside the Body's recovery, the pleasant Feeling during Treatment completely relieved my Stress~! And then I thought, 'Ah, my Worry is meaningless,' and gained a little Enlightenment."</p>
-<p>To completely relieve Stress and even gain Enlightenment, what kind of Treatment could Taira Ryuta's possibly be to produce such an Effect? Shimokawabe Airen's Intrigue grew.</p>
-<p>"What exactly is the Treatment method? What gives it such Efficacy?"</p>
-<p>"Ah...! You didn't know the Method?"</p>
-<p>At Shimokawabe Airen's Question, Fujigasaki Rinka asked back as if she had realized something. Only then did Fujigasaki Rinka also realize that there had been a subtle Hidden Cleft in their Conversation until now.</p>
-<p>Since she had already said this much, and couldn't lie to her friend, Fujigasaki Rinka let out a small Sigh and opened her mouth.</p>
-<p>"The fact is...."</p>
-<p>At Fujigasaki Rinka's Explanation, Shimokawabe Airen couldn't help but open her mouth in shock.</p>
-<p>After that, the action that Fujigasaki Rinka and Taira Ryuta had taken became something akin to anguish for Shimokawabe Airen. That's why she put away her Sword without even swinging it a few times.</p>
-<p>"Shall I go for a walk for a while...?"</p>
-<p>Shimokawabe Airen decided to walk around her Surroundings to clear her complex Mood. Shimokawabe Airen left Fujigasaki Rinka's Mansion, leaving her Wooden Sword behind.</p>
-<p>All the Mansions in these Surroundings were built on Cliffs overlooking the beach. The nearby Hill had well-maintained Roads for Athleticism, so Shimokawabe Airen decided to clear her Head by jogging.</p>
-<p>"Haa...! Haa...! Haa...!"</p>
-<p>Shimokawabe Airen had intended to run lightly, but she ran at a speed that made her Breath catch without realizing it. Having arrived at the highest Place on the Hill, Shimokawabe Airen gazed at the wide-open Malibu coast.</p>
-<p>"!"</p>
-<p>Fujigasaki Rinka's Mansion came into Shimokawabe Airen's Field of Vision as she was healing while looking at the Scene of Malibu Beach. Since Shimokawabe Airen had good Eyesight, Fujigasaki Rinka's Mansion was clearly visible, and especially Taira Ryuta, lying on a sunbed with the second-floor window wide open, taking Rest, caught her Eye.</p>
-<p>"Uh...?!"</p>
-<p>Shimokawabe Airen, who had been watching Taira Ryuta looking at his phone for a while, was surprised to see the Kiyona Mari Hori Sisters suddenly enter the room, and couldn't help but let out a sound of "uh."</p>
-<p>'Why are they wearing Maid Clothes?'</p>
-<p>Seeing the two Sisters wearing Maid Clothes, Shimokawabe Airen felt a question/doubt. Of course, she knew that the two Sisters ran a Maid Cafe as a side job besides being PMC Mercenaries, but there was no Reason for them to suddenly be wearing Maid Clothes.</p>
-<p>And then she was surprised once more: when Taira Ryuta had his Back turned, looking for something, the two Sisters suddenly took off their Maid Clothes, didn't they? They didn't just take off their Maid Clothes, but also their underwear, so the two Sisters simultaneously became Nasin, and Shimokawabe Airen couldn't help but be surprised.</p>
-<p>When Taira Ryuta, who had been looking for something, turned his Body and was surprised to see the two Sisters' Nasin, Shimokawabe Airen felt Sweet Relief, thinking that she wasn't the strange one after all.</p>
-<p>But she was surprised again by their next action: Taira Ryuta and Kiyona Mari had started Sex.</p>
-<p>Of course, she had a Premonition from the moment the two Sisters took off their Clothes, so she wasn't greatly surprised, but she thought anyone would be surprised to see the older sister, Kiyona Hori, lying on a sunbed, appreciating the Scene.</p>
-<p>"For an older sister to appreciate her younger sibling's Sex while Masturbating...."</p>
-<p>Every single Word she had just uttered was a cultural shock in itself for Shimokawabe Airen.</p>
-<p>Regardless of Shimokawabe Airen's surprise, the Sex between the Kiyona Sisters and Taira Ryuta continued.</p>
-<p>"Haa...!"</p>
-<p>Unknowingly watching the Erotic Scene of the three, her mouth kept drying, and her Breath, which shouldn't have been labored long after running, gradually became shallow.</p>
-<p>And she felt her Lower Cauldron gradually growing Heat. And at the same time, she remembered the Story she had heard from the Intimate Experience-d (?) Fujigasaki Rinka.</p>
-<p>-Honestly, at first I said it was for Treatment, but when my down there got hot and it felt completely good, I regretted all the Time I hadn't done it~!</p>
-<p>To regret all the Time she hadn't done it...! Shimokawabe Airen found herself wondering, 'What on earth was it like?'</p>
-<p>"!"</p>
-<p>Such Intrigue was momentary, as Shimokawabe Airen was surprised again: the door to Taira Ryuta's room was slowly opening.</p>
-<p>Naturally, two of the three in the room, who should have noticed, were engrossed in Sex, and one was lying on a sunbed Masturbating, so they didn't notice the door slowly opening.</p>
-<p>'W-what is it...? Is it an Attack?'</p>
-<p>Shimokawabe Airen was flustered by the slowly opening door, but when the door opened to a certain extent and nothing else happened, she became curious.</p>
-<p>Shimokawabe Airen put a little more power into her Eyes, because Shimokawabe Airen's Eyes had the Ability to see through anything that distorted space.</p>
-<p>As she put power into her Eyes, a figure became visible through the door: it was Seiwa Rieko. Judging by the diligent movement of the Hand placed on her groin, she seemed to be Masturbating while watching the Sex of the three.</p>
-<p>'To come watch Sex as if she had been waiting for it.... P-Pervert?!'</p>
-<p>Shimokawabe Airen treated Seiwa Rieko as a Byeontae, but she herself was unaware that she was also watching the Sex with Intrigue from the moment it began.</p>
-<p>Thus, Shimokawabe Airen was voyeuristically watching Ryuta and the Kiyona Sisters' Sex with Intrigue. After it became Kiyona Hori's Turn, and finally, after watching Kiyona Mari and Hori having Sex together, the Party/Group's vehicle that had gone surfing was seen returning along the Road.</p>
-<p>"Whew...! I should go down too."</p>
-<p>Shimokawabe Airen wiped her Fingers with the Handkerchief she had brought, then ran back towards Fujigasaki Rinka's Mansion. Shimokawabe Airen's Face, as she ran towards her friend's Mansion, was somehow refreshed and invigorated. Just as Fujigasaki Rinka had said, it felt like her Stress had completely melted away. Shimokawabe Airen, returning, was captivated by one thought.</p>
-<p>'If doing it alone feels this good, then how good would it be to actually do it?'</p>
-<p>Airen Running~!</p>
-<p>It didn't quite capture the Malibu Cliff coast feeling I imagined, so it was eliminated hehe.</p>
-<p>Airen Surprised!</p>
-<p>Airen appreciating with an Erotic Expression hehe.</p>
-<p>Chieri and Misano at the shelter in Chapter 49, requested by Gojoy-nim, but....</p>
-<p>In that Scene, they were sitting next to an ambulance, not a shelter, so I only put an ambulance in the background hehe. I didn't know what to prompt for a shelter.</p>
-<p>Chieri~!</p>
-<p>Shinoe Misano~!</p>
+<p>and chapter check contains erotic please surroundings this your</p>
+<p>"This...?"</p>
+<p>Linling, who received the Universal Connection Terminal, tilted her Head as if asking what it was, and looked at me.</p>
+<p>"That, you see. A year ago...."</p>
+<p>I told Linling about what happened last year during the attack on the Taira Laboratory, how Phantom Thief Francois stole data, and explained how I fortunately obtained that data in the USA this time.</p>
+<p>"Ah...! So that happened? Then, in the end, the data inside this is from Taira Headquarters, isn't it?"</p>
+<p>"Yes. That's why I sent everyone out. Of course, I trust everyone, but they might inadvertently let something slip."</p>
+<p>If I were caught with data from Taira Robotics and Taira Bio, which can be called Taira's headquarters, Grandpa Taira Danjo-nim would scold me severely (and it might not end with just a scolding). So, maintaining security was important.</p>
+<p>Arisu-nim also had a bad premonition, so she didn't open the file and instead gave it to me as a gift, meaning there was a high probability that something was inside. Even if it was just a premonition, the premonition of Phantom Thief Francois, the world's best thief, was something supernatural and trustworthy.</p>
+<p>"Then, let's go Underground and check. There might be a location tracking program or a virus."</p>
+<p>Indeed, if I opened the data file, a malicious program that transmits the address might be installed, so following Linling's words, we headed to the mansion's Underground. In the mansion's Underground, there was a room filled with old laptops and tablets that looked like they were used in the 2040s.</p>
+<p>"These are devices blocked from performing any communication functions. It's a place created to check sensitive data or data suspected of containing fatal viruses when they occasionally come in."</p>
+<p>I see. Many of the Underground facilities were built at Linling's request, so I didn't know such a place existed.</p>
+<p>Linling plugged the Universal Connection Terminal into an old laptop, then opened the data. After tapping the keyboard a few times, she nodded her Head.</p>
+<p>"As expected, the moment I opened the data, a program to track the opponent was hidden inside. I'll remove this first."</p>
+<p>Linling, like a hacker in a movie, typed on the keyboard at an incredible speed, deleting the tracking program hidden within the data.</p>
+<p>"It's done~! The tracking program and some phrases in the data were combined, so it took a little time to delete them. You waited a long time, Yongtae-nim?"</p>
+<p>Actually, I thought it ended quickly even now. By Linling's standards, it seemed to have taken time.</p>
+<p>Thinking about it, for Linling, a high-level artificial intelligence, one of the few in the world, to take not just a few seconds but several minutes, it shows how incredible the security of the data in the Taira Laboratory was. Of course, if she had been directly connected to Linling, she would have removed the tracking program faster, but just now, she had to type commands directly on the keyboard, so that might have also taken more time.</p>
+<p>"So, what kind of data is it?"</p>
+<p>At my question, Linling displayed several screens. Something like a complex paper or document was visible, but naturally, I, lacking in learning, couldn't understand the meaning of the screens Linling displayed.</p>
+<p>"Hmm, it contains about two types of content. One is a flight Suit blueprint, and the other is...."</p>
+<p>Flight Suit? Speaking of flight Suits, the winged Suit used by Tetsuya Ayame of 'Tetsu Kakerou' came to mind. Come to think of it, it's a flight Suit that hasn't been officially developed or released yet, so how is Tetsuya Ayame using a flight Suit?</p>
+<p>Until now, I hadn't thought much about it. It was because of my game knowledge that 'Tetsu Kakerou' was affiliated with Asakura. I had thought it was probably a Suit made with Asakura's technology, but thinking about it, since she still has a flight Suit even now, unrelated to Asakura, Taira Saburo, whom she was previously affiliated with, must have provided this technology. Then, the flight Suit technology must have been obtained from this research data and blueprint.</p>
+<p>Asakura probably received the flight Suit from Tetsuya Ayame, and developed it through reverse engineering.</p>
+<p>How did Taira Saburo obtain this technology? Did he receive it from Grandpa Taira Danjo-nim? Or did he steal the technology? Could Taira Saburo's sudden Death be related to this? Could it be that Mothwing abandoning his name and going to the USA as Moth Tactical wasn't because of other successors, but....</p>
+<p>Listening to Linling's story, doubts I hadn't thought of until now swirled in my Head.</p>
+<p>"Yongtae-nim?"</p>
+<p>"Ah, sorry, what did you say?"</p>
+<p>After hearing about the flight Suit blueprint, I was momentarily confused, so I didn't hear Linling's subsequent words.</p>
+<p>"Besides the flight Suit blueprint, what else is there?"</p>
+<p>"This... is actually data that can't be described. It's as if the text in the document was intentionally divided into three parts...."</p>
+<p>Divided the text in the document into three parts? What does that mean?</p>
+<p>"Could you explain it a little more simply?"</p>
+<p>"Hmm.... For example, let's say there's the phrase, 'Jin Yongtae-nim, I love you.' Then, if this sentence is divided into three, in this document, it's written like 'Jin■■-nim■■-rang■■,' so the content is unknown. Judging by the sentence structure, it's definitely some kind of research data, but it seems they intentionally used a program to split sentences for security."</p>
+<p>The example 'Jin Yongtae-nim, I love you' was a little cheesy, but I generally understood. It meant they intentionally split the document into three for security, right? And it could be reassembled or divided again with some kind of program.</p>
+<p>"Is it data that anticipates our methods of security being breached?"</p>
+<p>"Probably. Although the flight Suit's value is immense, seeing that this side has even stricter security, it's clear that this divided document is more important data."</p>
+<p>Indeed, the unknown divided document seemed to be more important data. However, for now, it was just a useless string of characters.</p>
+<p>"Then it's useless?"</p>
+<p>"For now, yes. If we had just one more of the divided documents, we might be able to infer all the content, but for now, it's an unusable document."</p>
+<p>I nodded my Head at Linling's words. First, what should I do with this flight Suit blueprint? Seeing that Asakura openly used it, it seems there wouldn't be a big problem. Of course, it might not be a problem because Asakura is a megacorp of that caliber, so I was a little worried.</p>
+<p>"Linling. What should we do with the flight Suit data?"</p>
+<p>"Why don't we send it to the TG Tech Laboratory and have them redesign it to be more efficient? So no one would think it was stolen."</p>
+<p>Linling's words were right. If we have such technology, we can't just let it sit idle. Technology falls behind the more it's left unused. I nodded my Head, and decided to send the data to the TG Tech Laboratory as per Linling's proposal.</p>
+<p>A few days ago.</p>
+<p>Taira Yuuichi was sitting formally in front of Taira Danjo-nim.</p>
+<p>"Hmm...! You resemble your father, with a good Size. I knew you were already big, but perhaps because you've been in the USA, you seem even bigger."</p>
+<p>Taira Danjo-nim said, looking at the large Taira Yuuichi. Unlike Taira Ichiro, who gave a slightly small impression, Taira Jiro was large. Taira Yuuichi resembled his father, Taira Jiro, and was a man who gave the impression of a large warrior.</p>
+<p>From Taira Yuuichi's perspective, who didn't have a good relationship with his father, the words that he resembled Taira Jiro were not particularly welcome, but since they were the words of Taira Danjo-nim, Chairman of the Taira Group and head of the Tairaga, he merely nodded his Head.</p>
+<p>"So, you want to return to Japan?"</p>
+<p>"That's right. I have already submitted my resignation to the Taira-Asakura Shipyard."</p>
+<p>At Taira Yuuichi's words, Taira Danjo-nim looked at Taira Yuuichi with a displeased gaze.</p>
+<p>"If you're returning without any achievements, the only position for you will be a Branch manager, which is the limit your father can give."</p>
+<p>"I am not without achievements."</p>
+<p>At Taira Danjo-nim's words, Taira Yuuichi said firmly. In fact, as the person in charge of the Asakura-Taira Shipyard, there weren't many achievements he could gain.</p>
+<p>The only achievements gained from the shipyard were securing orders for ships and building them well, but those were achievements for the shipyard, not for Taira.</p>
+<p>However, even under Taira Danjo-nim's gaze full of doubt, Taira Yuuichi was confident.</p>
+<p>"Alright, let's see these achievements of yours."</p>
+<p>"Here they are."</p>
+<p>At Taira Danjo-nim's words to see his achievements, Taira Yuuichi held out the Universal Connection Terminal.</p>
+<p>"Hoo...! Fumimoto."</p>
+<p>At Taira Danjo-nim's call, Taira Danjo-nim's first secretary, Fumimoto Takayuki, entered.</p>
+<p>"Please prepare something to view this data."</p>
+<p>"Here it is."</p>
+<p>At Taira Danjo-nim's words, Fumimoto Takayuki took out a tablet from his Embrace and said. It was a foldable tablet, and after unfolding it a few times, a quite large screen appeared.</p>
+<p>"Let's see...."</p>
+<p>Taira Danjo-nim skillfully connected the Universal Connection Terminal to the tablet, then checked the data inside.</p>
+<p>"This is...."</p>
+<p>Taira Danjo-nim muttered, looking at the screen.</p>
+<p>"It's Asakura Seikou's engine blueprint."</p>
+<p>Taira Yuuichi said confidently. Having been in charge of Asakura-Taira Shipbuilding for several years, Taira Yuuichi had been stealing Asakura Seikou's technology.</p>
+<p>Asakura already had sufficient technology, and after the Third World War, it had acquired all of China's shipbuilding, automobile, and airplane technology, so the value of the engine technology he had stolen would certainly not be small.</p>
+<p>"You are not without achievements."</p>
+<p>"Thank you."</p>
+<p>At Taira Danjo-nim's satisfied reaction, Taira Yuuichi bowed his Head. Of course, Taira also had excellent engine technology, but it couldn't be said that there was nothing to gain from looking at other companies' engine data.</p>
+<p>With Taira Yuuichi having stolen Asakura's engine blueprint, Taira's engine technology would undoubtedly advance to some extent.</p>
+<p>"Alright, tell me the position you desire."</p>
+<p>At words that were no different from permission to give him a high position, Taira Yuuichi smiled. And to demand what he had decided upon after talking with Taira Jiro, he opened his mouth.</p>
+<p>"The position I desire is...."</p>
+<p>Requested by TheDreaming-nim: 1. Asada Ei in a snowy alley 2. Naruse Shiyo at a snowy school swimming pool~!</p>
+<p>1.</p>
+<p>It wasn't specifically designated, but the pattern is quite pretty hehe.</p>
+<p>2.</p>
+<p>Just a B-cut~!</p>
+<p>The second illustration was one I made after mistakenly thinking Shiyo was Tsukiyo, then realized she wasn't hehe.</p>

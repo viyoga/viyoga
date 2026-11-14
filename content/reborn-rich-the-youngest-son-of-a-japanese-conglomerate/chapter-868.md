@@ -5,16 +5,111 @@ weight = 868
 chapter = 868
 +++
 
-<p>"Are you the broker known as K?" Takakusaki Gengo asked, looking at the man standing before him. The informant and broker K, despite his flashy ash-blonde dyed hair, was a rather ordinary-looking man. Compared to his plain appearance, his relaxed Attitude seemed special. Seeing that he wasn't bothered even when surrounded by Anyaji's formidable Martial artists, he seemed to have a very bold Personality. "Yes. Athena told me there are so many informants named K that I'm thinking of changing my designation to Kyoshiro (Mad Death). Please call me Kyoshiro from now on." Having heard from Athena that there were several informants and brokers using the letter K, he decided to use his nickname, Kyoshiro. It was because he couldn't stand being similar to others, just like his flashy hair. "Alright, Kyoshiro. The information that you've established a connection with St. Francis Girls' Academy is true, isn't it?" "Yes. I've become Seizawa-ssi's broker. I was lucky. To become the broker for that Ogre...!" Takakusaki Gengo initially wondered if it was a counter-intelligence operation, but seeing his delight at becoming the broker for the famous Ogre of the underworld, Seizawa Shii, there seemed to be no falsehood in his words. "But there's no harm to the Ogre, right? That side is a one-time deal, but we need to go a long way with the Ogre." "Of course. The ones we're targeting aren't the Ogre, but the Ogre's Class Teacher, Yamashiro Ryuta." In fact, besides Yamashiro Ryuta, they also planned to collect information on Kujo Kina to find the whereabouts of Kinui Tachio, who had stolen their Disciple, but they didn't mention it now, as Kyoshiro might back out if the name 'Kujo' came up. They intended to obtain information on Kujo Kina once Kyoshiro was more deeply involved with them. "I'll cooperate as much as you want, as long as it's not said that the information came from my side." "Of course. Only I and Hojo Otoji here know that information leaked from your side, so don't Worry." Takakusaki Gengo pointed to Hojo Otoji, Anyaji's second-in-command, who was standing next to him, and told him not to Worry. "You may go now." "Um.... The Money?" "I'll send it through Athena. The Amount will be as agreed." "Then I'll send the information through Athena as well. Farewell...!" Once the discussion about Money was over, Kyoshiro bowed his Head with a smiling Expression and left. Takakusaki Gengo watched Kyoshiro's retreating Back View and opened his Mouth. "Can he be trusted?" "He's a bastard with nothing but Money in his Head. That's precisely why we can trust him, as long as we keep paying him." Hojo Otoji answered Takakusaki Gengo's almost mumbled question. Having met brokers several times through Anyaji's Work, Hojo Otoji knew their Attributes well. They claimed trust and loyalty as their primary virtues, but in reality, their greatest virtue was Money. They were not the kind of people who kept promises or loyalty. However, he believed that as long as Anyaji paid them, they wouldn't betray them. "I'll entrust this Matter to Athena." "Are you sure? Athena's Attitude has been a little strange lately." It was Takakusaki Athena who had brought Kyoshiro to Anyaji in the first place, so it was appropriate for her to handle Kyoshiro, but something bothered Hojo Otoji. Takakusaki Athena's Attitude had been somewhat strange recently. Takakusaki Athena, who always had a relaxed Attitude, as if she were floating on a cloud, now had a hardened Expression, and her usual relaxed demeanor was hard to find. "Her Jusul seems to have wavered a bit. A few days ago, she spoke to me about her Parents' enemy." "...! Then shouldn't we do something?" At the mention of the Jusul wavering, Hojo Otoji's Eyes also wavered. The Existence who had cast the Jusul on Takakusaki Athena was quite a formidable one. He was an old man who had briefly been part of Anyaji but soon left to seek another truth. Afterward, the old man became world-renowned in the underworld for a certain incident, and his nickname was the Black Sage (Black Sage). Hojo Otoji also remembered significantly improving his Skill in Jusul by learning a lot from the Black Sage. So, Hojo Otoji was flustered when he heard that the Jusul cast by such a Black Sage had wavered. "No, it's a high-level Jusul, so it won't break from just a temporary wavering. It's not a Jusul that would easily break unless an Outer God intervened. You know about that old man too, so you don't need to Worry further." When Takakusaki Gengo spoke firmly, Hojo Otoji could only nod his Head. As Takakusaki Gengo said, knowing about the Black Sage, he believed that the Jusul cast on Takakusaki Athena would never be undone, no matter what happened. "Then I'll proceed assuming there's no problem with the broker." "How are Kiyohira and Bernardo?" After the discussion about the informant ended, Takakusaki Gengo then asked about Kiyohira and Bernardo, who had newly become Four Heavenly Kings. "Both are doing well. We're sending them to Dojangs of the Fist Alliance that oppose us, or to Dojangs and sects under Anyaji that show signs of rebellion, for Actual combat Training." Hojo Otoji's words were 'Actual combat Training,' but it actually meant attacking subordinate Dojangs that didn't listen and hostile Dojangs of Anyaji. "However.... Kiyohira hardly uses Assassin's Technique (Killing Hand). Bernardo, who has killed people without hesitation while dealing with cartels, can be considered superior in this regard. Ultimately, he's from a sports-oriented Martial Arts background, so it will take some Time to fix that habit." "Time will take care of it. old man Musashi likes him, so let's keep an Eye on him a bit longer." Takakusaki Gengo said, as if it were no big deal, in response to Hojo Otoji's Report. No matter how noble a sportsman he was, if he was involved with Anyaji, he would gradually be tainted. He might hesitate to kill now, but Takakusaki Gengo knew that Kiyohira would use Assassin's Technique without hesitation in just a few months. Since he had created Anyaji and its Atmosphere, he had no doubt that Kiyohira would also become an excellent Murderer.</p>
-<p>The second day of career counseling. The Student to be counseled today was Sakagami Rena. Today, during the morning assembly, I had again asked for volunteers for counseling, and Sakagami Rena was the first to raise her Hand. Seeing her different Attitude from usual, it seemed she had something to say. "Liege/Master." "Yes, Rena. Sit on the Opposite Side." As I waited in the Counseling Room, Sakagami Rena entered with a slight bow of her Head. I had Sakagami Rena sit down and, just like yesterday, we had a formal discussion about her career path. Naturally, Sakagami Rena's goal was to advance to St. Francis Women's University, and her next goal was to help me unify the world (?), so the career counseling ended quickly. "Do you have something to say?" "Rather than something I have to say.... Here." In response to my question, Sakagami Rena held out an Envelope. On the Envelope, a short Text was written: 'To Yamashiro Ryuta-nim.' "This is...?" "My Father sent it to Teacher-nim." Ah, Sakagami Rena's Father.... I scanned the student record book I had, checking the section where Sakagami Rena's Parents were listed. -Father: Sakagami Ginshiro (Silver Will). Mother: Sakagami Shiine (Poem Clothes Peace). So, Sakagami Rena's Father's name was Ginshiro, and her Mother's name was Shiine. Graduation is approaching, and I didn't even know my Students' Parents' names; I should have paid more attention. "First, I'll check the letter. Do you know the content?" "No. I was only asked to deliver it." Even if Sakagami Rena was one of the three Executives of Jo Seodang, my information team, she wasn't at the level to read my letters beforehand. I tore open the Envelope and took out the letter. -To Yamashiro Ryuta-nim.</p>
-<p>It is early Spring, still chilly, but the Aura of Spring is slowly spreading. In the Garden, the Garden trees that have endured Winter are sprouting small green buds.</p>
-<p>As Rena's Class Teacher, you have worked hard for the past half-year, and as her Parent, I always offer my gratitude. I pray to Buddha that Teacher-nim always remains in good Health.</p>
-<p>I serve my Liege/Master and live happily, finding joy in seeing my Daughter mature day by day.</p>
-<p>I apologize for sending this through my Daughter by letter, though these are words I should convey in person.</p>
-<p>As a Father with a Daughter, I wish to meet my Daughter's Liege/Master before she graduates from High School.</p>
-<p>Please let me know any convenient Date, and the Sakagami family will prepare traditional food and await your visit.</p>
-<p>I know you are busy with the end of the semester, but I apologize for making such an unreasonable Request.</p>
-<p>Please convey your Answer to our invitation through Rena.</p>
-<p>Always wishing for Teacher-nim's Health, I conclude this letter.</p>
-<p>-From Sakagami Ginshiro, Father of Sakagami Rena, respectfully. It was a very polite letter. In a word, the content was an invitation to meet the man whom his Daughter would serve as Liege/Master for the rest of her life. He must want to confirm what kind of man I am. No matter how independent his Daughter is and serves a Liege/Master, as a Parent, he would naturally be concerned. I showed the letter to Sakagami Rena. Sakagami Rena, who took and read the letter, blushed slightly. "I apologize for the sudden invitation, Teacher-nim." "No. It's proper Etiquette for me to greet them, but so many things happened during school life that I couldn't. Could you tell them that I will visit on whatever Date is convenient?" "Understood, Teacher-nim." At my Words, Sakagami Rena bowed her Waist in greeting and left. Seeing her take out her phone as she left, it seemed she intended to call Home immediately.</p>
-<p>Requested by Hwanbuljeoldaebulga-nim, Home Economics Teacher Lisa in Pantyhose + white Bra + armpit image~! Starting with Lisa-ttang~! No matter how much I tried to take them off, she wouldn't take off her Pants haha. Home Economics Teacher-nim~! Requested by MidNightSKY-nim, Alik looking at the night sky and Ryuta shooting an Energy Wave! Starting with Alik~! Ryuta shooting an Energy Wave is... something that didn't turn out well, so I'll replace it with a Scene of him gathering Energy before shooting an Energy Wave haha. Bonus: Ryuta in just a Martial Arts Uniform haha.</p>
+<p>Next, the Female Student who took out a box was Naruse Shiyo. Seeing her carefully carry the box so it wouldn't shake, it seemed she had made a chocolate with many decorative elements.</p>
+<p>"Teacher-nim~! What I prepared is...!"</p>
+<p>What Naruse Shiyo took out of the box was a cute deformed Dragon-shaped chocolate. Perhaps using food coloring, it was made with green and blue to resemble Dragon skin, and its Size was quite large for a chocolate, almost the Size of a Forearm. It seemed she had made a Dragon-shaped chocolate symbolizing herself as a Half-Dragon.</p>
+<p>"It's a Fairy Dragon-shaped chocolate."</p>
+<p>I thought she had just made an SD version of a Dragon, but is there such a thing as a Fairy Dragon? Still, it was a cuter chocolate gift than the Eyeball chocolate Konoe Akina had just given me as a gift, which was Fortunate.</p>
+<p>"I also put fruit jam inside, so you have to eat it right away, Teacher-nim."</p>
+<p>Naruse Shiyo ominously said that it had fruit inside, just like Konoe Akina's. It's a cute Dragon shape, so it's a bit of a waste to cut and eat it.</p>
+<p>"I'll cut it for you."</p>
+<p>Naruse Shiyo took out a Plastic Sword shaped like a Dragon Slayer from some comic book from the box. It seemed she had prepared this separately, but did she mean to slice even a chocolate Dragon with a Dragon Slayer? Minamoto Lisa, a classic comic enthusiast, was seen with sparkling Eyes as she looked at the Dragon Slayer miniature Sword.</p>
+<p>Seogeok seogeok.</p>
+<p>The Fairy Dragon chocolate's Neck was sliced with a somewhat Goosebumps-inducing sound. If you think about it, isn't this quite cruel? Naruse Shiyo herself is a Half-Dragon, yet she's slicing up a Dragon.</p>
+<p>"Huh?"</p>
+<p>I didn't notice at first, but the cross-section was a bit strange. It seemed to show the flesh part, probably made of Pink chocolate with strawberries, and marbling (?) made of white chocolate. And every time the Fairy Dragon's Neck was cut, jam made from a red-fleshed fruit spurted out like Blood.</p>
+<p>"Now. Please try it~!"</p>
+<p>Naruse Shiyo, having brought a Plate at some point, offered me a slice of the cut chocolate. It was a chocolate shaped like bloody raw pork Neck meat. Even the other special class Students around made Expressions of Astonishment upon seeing what was on the Plate.</p>
+<p>"Uh, I'll eat it well."</p>
+<p>Having already eaten Konoe Akina's Eyeball, I had no choice but to eat Naruse Shiyo's raw meat (?) chocolate. I picked up the Pink chocolate, smeared with sticky red jam, with a fork and put it in my mouth. The jam dripping down felt like Blood, but as I Forcibly ate it, it was indeed chocolate-flavored.</p>
+<p>These red, Blood-like things were cherry jam. The combination of cherry jam and Pink chocolate with berries wasn't bad. It was actually delicious. But it looked so much like raw meat on the outside.... I needed Courage to eat it again.</p>
+<p>"Hmm, it's delicious?"</p>
+<p>"Uh-hehe, isn't it good?"</p>
+<p>When I said it was delicious, Naruse Shiyo twisted her Body and rejoiced. As expected, the other Students also took a bite to Taste it, and left reviews saying it was somewhat difficult to look at, but quite edible.</p>
+<p>"Next is my chocolate, Liege/Master!"</p>
+<p>Next in order was Sakagami Rena. Sakagami Rena also brought a rather large box, looking uneasy, and like Naruse Shiyo, she seemed careful not to let it shake.</p>
+<p>"What I made is... my loyalty, thinking of my Liege/Master~!"</p>
+<p>When she opened the box with a 'Ta-da!', a Heart lay inside. It wasn't a Heart-shaped chocolate, but a real Heart, throbbing and beating.</p>
+<p>"Th-this, is this really a Valentine's Day gift? It's not chocolate."</p>
+<p>"It is chocolate!"</p>
+<p>Sakagami Rena insisted it was chocolate, but seeing a Heart throbbing and beating right before my Eyes, I couldn't believe it.</p>
+<p>"I have a human Heart-shaped mold at Home, so I made chocolate with it, and the valves, aorta, and vena cava were made of Jelly."</p>
+<p>No matter if it's a ninja Family, why do they have a human Heart-shaped mold? And why is the Heart beating when she said it was made of chocolate...?</p>
+<p>"Ehehe, it feels Real, doesn't it, Liege/Master?"</p>
+<p>"It feels too Real, so I can't eat it...."</p>
+<p>"That's because I cast Illusion Magic on the chocolate that represents my loyalty!"</p>
+<p>Why cast Illusion Magic on a Valentine's chocolate.... So, this throbbing and beating Heart right before my Eyes is due to Illusion Magic, right?</p>
+<p>Glancing at the other Students, seeing them looking at Sakagami Rena with Expressions of disbelief, it seemed the beating Heart was visible to the Students' Eyes as well.</p>
+<p>"Quickly, please eat my loyalty, Liege/Master!"</p>
+<p>"Hurry~!" Sakagami Rena pushed the throbbing Heart right in front of my Nose. Still, it was a gift, and I didn't want to show too much reluctance, so I took the Heart in my Hand and bit into it with a kwadeuk .</p>
+<p>Fortunately, it didn't seem to be Illusion Magic that deceived my Tongue's Touch or Taste, and it tasted like ordinary delicious chocolate. However, even now, when I looked with my Eyes, it appeared as if I had taken a bite out of a Heart. It was still throbbing and beating, so to the surrounding special class Students, it would look like a Scene of me chewing and eating a real Heart.</p>
+<p>"Haa.... My Liege/Master... my loyalty... You ate it...!"</p>
+<p>Sakagami Rena had a 'pyong-gan' (captivated) Expression as she watched me with the Heart-shaped chocolate. I don't know why she was like this, but if she was happy, that's what mattered.</p>
+<p>I finished eating the Heart chocolate and waited for the next Turn. Even if I tried to just leave it, it kept throbbing and beating, stealing my Gaze, so I decided it was better to eat it and finished it all.</p>
+<p>"Next is me."</p>
+<p>This time, Saionji Diana stepped forward. What Saionji Diana took out was a teddy bear-shaped chocolate sitting in a wheelchair. It was a very cute Appearance, but like when Saionji Diana used to ride in a wheelchair, the teddy bear had no Limbs.</p>
+<p>"Me, no, please eat the teddy bear. The wheelchair is not for eating."</p>
+<p>"...."</p>
+<p>So, she meant for me to eat the physically incomplete teddy bear that represented Saionji Diana herself, right? I wondered why these Students were like this, but realizing that these Troublemakers belonged to the special class, a collection of problem Students from St. Francis Girls' Academy, I had no choice but to accept it as the special class Class Teacher.</p>
+<p>"Then I'll eat it."</p>
+<p>The teddy bear had an Appearance made of mocha chocolate with coffee, and since biting the Head directly was difficult, I bit the Belly, and inside, there was a long, coiled Jelly, like a 'Wang Kkumteuli' (a Korean gummy worm candy), seemingly representing Internal Organs. It was shocking content enough, but still better than the previous chocolates, so I could eat it deliciously.</p>
+<p>Now, only Alik remained. Oofuchi Erika had said she would come around lunch, and Urabe Konoka also said she would give hers later, so in the current Situation, only Alik could be said to be left.</p>
+<p>Alik was wearing a maid uniform, having changed at some point. And like the other Students, she approached me, carrying Plates instead of a box. It seemed she had prepared not just one, but two Plates.</p>
+<p>"Ryuta, Alik prepared Maid Cafe Omelet Rice."</p>
+<p>What Alik brought was Omelet Rice. On top of a beautifully made egg omelet shaped like a rugby ball, was a cute Omelet Rice with 'Ryuta, thank you ♡' written in ketchup.</p>
+<p>Because my mouth was incredibly sweet from the continuous chocolate Tasting, to the point where I wondered if I'd get diabetes, the Omelet Rice Alik prepared, though not fitting for Valentine's Day, felt like an Oasis in the middle of a desert.</p>
+<p>"I'll eat well, Alik."</p>
+<p>"You can't eat yet, Ryuta Master-nim...!"</p>
+<p>As I picked up my Spoon to scoop and eat the Omelet Rice, Alik grabbed my Hand with incredible speed.</p>
+<p>"Huh? Why...?"</p>
+<p>"I didn't do the 'make it delicious' Order...."</p>
+<p>Aha...! Now I understood. What Alik had prepared wasn't just Omelet Rice. Since it was Maid Cafe Omelet Rice, it needed a 'make it delicious' Order...!</p>
+<p>"Then, will you do the 'make it delicious' Order?"</p>
+<p>"Yes...!"</p>
+<p>Alik, motivated by my request, made a heart with both hands, and while saying 'Oishikunare (おいしくなれ)' to the omelet rice, she emitted electricity.</p>
+<p>"Ryuta, it's delicious now...!"</p>
+<p>No, why the electricity...? I hid my bewildered Expression as much as possible and stroked Alik's Head.</p>
+<p>"Thank you. I'll eat well, Alik."</p>
+<p>"Yes. Eat deliciously, Ryuta...."</p>
+<p>I scooped the Omelet Rice with a Spoon and put it in my mouth. Perhaps due to the electricity just now, it had a slightly burnt, smoky Taste, but it was delicious. Rather, the smoky Taste acted as a Kick, giving it a distinctive feel compared to ordinary Omelet Rice.</p>
+<p>"It's delicious, Alik!"</p>
+<p>I quickly emptied one Bowl and showed the empty Vessel to Alik, smiling. But Alik still had another Bowl of Omelet Rice in her Hands. Did she prepare two Bowls because I eat a lot?</p>
+<p>"Ryuta, Alik prepared Maid Cafe Omelet Rice as Dessert."</p>
+<p>What? Dessert...? Receiving the new Plate, I knew. This was Alik's Valentine's Day chocolate gift.</p>
+<p>A sweet chocolate Smell came from this Omelet Rice Plate. Alik had made Omelet Rice-shaped chocolate.</p>
+<p>The yellow part of the omelet was banana chocolate made with milk chocolate and banana flavor, and the cute red writing 'Alik ♡ Ryuta' on top was made of raspberry chocolate, not ketchup.</p>
+<p>"Alik will feed you."</p>
+<p>Alik gently scooped the Omelet Rice chocolate she made with a Spoon, and put the Spoon into my mouth, so I took a bite with an 'ang'. Still, perhaps because I had just eaten the real Omelet Rice that could be called a Meal, it was quite delicious.</p>
+<p>"Alik, both Omelet Rices were delicious."</p>
+<p>"Really...?"</p>
+<p>"Yes."</p>
+<p>Perhaps satisfied with my Answer, she showed a faint Smile. With this, I had eaten all the chocolates prepared by the Students. Though I hadn't eaten Oofuchi Erika's and Urabe Konoka's yet. Somehow, what those two were preparing also felt a bit scary.</p>
+<p>"So.... Who's first place?"</p>
+<p>It was Seizawa Shii who immediately asked an awkward Question.</p>
+<p>"Since I haven't eaten Oofuchi's or Urabe's yet, I can't assign a Ranking."</p>
+<p>I made an Excuse about Oofuchi Erika and Urabe Konoka, who hadn't arrived yet, and refused to assign a Ranking.</p>
+<p>"You make good Excuses. Tch, alright. We're going back, so eat all my chocolate too."</p>
+<p>"I'll make it again next year, so don't not eat it because it's too precious; eat it, you."</p>
+<p>I hadn't eaten Seizawa Shii's and Minamoto Lisa's chocolates because they were too precious to eat, but they told me to eat them, saying they'd make them again next year. However, I had no intention of eating them right away. Since I had received so many chocolates, and eating them all in one day seemed unhealthy, I decided to put them in the refrigerator and eat them little by little.</p>
+<p>After sending off the Students who had rushed in like that, Deliveries arrived one after another. Chocolates sent by Han Yu-gyeong, Arisu, Yukiko, Chieri, Ha Ju-yoon, Nagumo Sian, Nae Fitzgerald, and others arrived one after another.</p>
+<p>I didn't eat them, but I read the Letters and checked the chocolate shapes, and fortunately, there were no chocolates as bizarre as those from this special class of Troublemakers.</p>
+<p>I sent a Text Message to everyone saying I had received the chocolates well, and started Studying for the PMC certification Test again.</p>
+<p>Before I knew it, lunchtime passed (I skipped lunch because I had eaten chocolate and Omelet Rice). The Doorbell rang again. Since Oofuchi Erika was supposed to arrive around this Time, I opened the Door without asking who it was.</p>
+<p>"Hello, Yamashiro Teacher-nim."</p>
+<p>"Hello, Teacher-nim~!"</p>
+<p>It wasn't just Oofuchi Erika who came. She was with Oofuchi Erika's mom, Daigo Terue.</p>
+<p>"Welcome."</p>
+<p>I ushered the Mother and daughter into the Home. The Mother and daughter, looking busy, handed me a box, and when I opened it, there was a hen-shaped chocolate and a Chick-shaped chocolate inside, all at once.</p>
+<p>"Yamashiro Teacher-nim, don't you want to eat Oyakodon♥ rather than chocolate?"</p>
+<p>"We made it together with Mom, so please eat both♥"</p>
+<p>Listening to their seductive Expressions and Words, it was clear that this Pervert Mother and daughter didn't come to feed me chocolate, but to eat me.</p>
+<p>"Let's go to the Bedroom and eat."</p>
+<p>Since I had eaten a lot of chocolate today, and needed to burn some calories, I dragged the two Pervert Mother and daughter into my Bedroom.</p>
+<p>Urabe Konoka's and Lizhael's chocolate gifts were already uploaded in Chapter 780, Side story 3, hehe.</p>
+<p>Alik B-cut!</p>
+<p>Requested by Gojoy-nim: Nakanoin Rina's belly dancer and breast-covering~!</p>
+<p>Belly dancer~!</p>
+<p>Breast-covering~!</p>
+<p>Requested by TheDreaming-nim: Gokado Hanako's park fountain outdoor exposure A-cut B-cut~!</p>
+<p>A-cut~!</p>
+<p>B-cut~!</p>

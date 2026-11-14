@@ -5,84 +5,96 @@ weight = 752
 chapter = 752
 +++
 
-<p>We sat huddled together in the clubroom after cleaning the refrigerator. It took a while to clean not only the refrigerator but also the dust that had settled in the clubroom during the vacation, so it was almost lunchtime. Since I was treating for lunch, I turned on the delivery app and ordered each person's desired food.</p>
-<p>"So, four burger sets from Jetria, five burger sets from Mac, and three chicken sets from Korea Fried Chicken, right?"</p>
-<p>"Yep~!"</p>
-<p>The special class female students wanted franchise burgers or chicken, which are junk food(?), probably because they only ate fancy food at their parents' homes during the vacation. When they were at school, they were free to eat whatever they wanted because they could go to franchises with their friends, but when they returned to their parents' homes, they only ate neat food every time, so they seemed to crave stimulating food.</p>
-<p>I added one set each of what I would eat from Jetria, Mac, and Korea Fried Chicken and completed the order.</p>
-<p>"First, let me tell you about what happened during the vacation. I was in Japan for a while and then went to Korea."</p>
-<p>"Eh? Is that it?"</p>
-<p>Seizawa Shii asked if that was the end with a slightly disappointed expression at my story. There were actually many stories, but most of them were things I couldn't talk about because I had a big obstacle called a disguised identity.</p>
-<p>The ISIS acquisition and the events at the Jeonrang Research Institute would definitely be interesting, but I didn't want to take risks just for the sake of interest. The ISIS acquisition was a story that could reveal my identity, and the Jeonrang Research Institute's work was no different from confessing that I am the Black Knight, so I just said that nothing special happened.</p>
-<p>"Yeah, this homeroom teacher had a boring vacation. I had to do the paperwork for your graduation and submit the final exam questions, so there were no special events."</p>
-<p>"Then I guess I'll have to liven up the atmosphere."</p>
-<p>The next person to step up after my story was Kujo Kina.</p>
-<p>Kujo Kina's story was quite interesting. It was about going on a training camp to warm Okinawa with her master, Old Man Yoda, and his disciples. She said that she left because Anya-ji might attack if she stayed in Miyashi.</p>
-<p>She told stories of challenging various martial arts dojos in Okinawa and being bitten by a snake while training in the forest.</p>
-<p>"Is the snake bite okay?"</p>
-<p>"Of course! I had to go to the hospital for a bit, but... Isn't this scar cool? Kyahaha!"</p>
-<p>Kujo Kina laughed heartily and slightly lifted her skirt, spreading her legs to show the snake fang scars with two dots on the inside of her thigh. No... Rather than cool, it looks quite sexy because of the location?</p>
-<p>"Kina! How can you spread your legs like that in front of a man!"</p>
-<p>Minamoto Risa, who was sitting next to me, covered my eyes and started nagging. After Minamoto Risa's nagging time ended, Minamoto Risa, who had already opened her mouth, started her story.</p>
-<p>"I'm aiming for Edodai, so I only studied during the vacation. I've decided to work on university life and the Minamoto Group at the same time after graduation, so I'll be quite busy from next year. If you need any help with business, tell me. Since we have a connection, I'll help if I can."</p>
-<p>Minamoto Risa's vacation was also nothing special, but the fact that she would participate in the Minamoto Group's work right after graduation was quite interesting, so some students shone their eyes and asked questions.</p>
-<p>"Then which branch are you starting to work at?"</p>
-<p>"If you need information, please tell me. My newspaper company will be doing its job by then, so I can help."</p>
-<p>"Lisa, if you have any difficulties, tell me anytime. I'll help if I can."</p>
-<p>Minamoto Risa smiled at her friends' support. But I'm wondering when she's going to let go of my eyes.</p>
-<p>"Minamoto, can you let go of my eyes now?"</p>
-<p>"Ah! I'm sorry, Ryuta-ssi."</p>
-<p>She was surprised at my words and removed her hand. It was a shame that Minamoto Risa's scent brushed past my nose and disappeared, but I have to listen to the next story.</p>
-<p>Next were Otagi Yuka and Sakagami Rena, Saionji Diana and Urabe Konoka, but I thought there wouldn't be much to talk about since they were members who stayed in Miyashi, but there was something to talk about.</p>
-<p>"Hehe... We stayed in Miyashi, so nothing special happened, but there was one event that our friends might be interested in! That is..."</p>
-<p>What Otagi Yuka was talking about was that I went to Hatsumode, the New Year's shrine visit, with her.</p>
-<p>All four of them took out photos taken with me at the shrine and started showing off, and everyone except Shido Tsubaki was booing, saying, "Why don't you take pictures with us?" Even Alik gave a thumbs down and booed, which was quite shocking.</p>
-<p>"Alik... Even you?"</p>
-<p>I said it as if I were Caesar saying, "Et tu, Brute?" but the booing didn't stop.</p>
-<p>After waiting for the booing to stop, fortunately, the food I ordered arrived one by one, and I was able to shut the mouths of the special class troublemakers who were saying, "Woo~!"</p>
-<p>"It's not Hatsumode, but we can just go to the shrine together separately."</p>
-<p>"Ryuta, Alik also has a pretty furisode."</p>
-<p>"Okay, shall we go take pictures together wearing pretty furisodes?"</p>
-<p>"Okay...!"</p>
-<p>First of all, I was able to turn around Alik's mood, who was in a good mood after eating stimulating franchise food for the first time in a while. It was still cute to see her eating Jetria burgers with her small mouth, omyomnyom.</p>
-<p>"Let's go together if the rest of you can go during the week. This is our last semester, so we have to take pictures of our special class troublemakers in furisodes."</p>
-<p>At my words, everyone nodded while eating lunch as if they had never booed. They nodded so calmly that I thought they were all just trying to tease me as a joke. It was difficult for me, a man, to guess the hearts of high school girls. I should eat lunch too.</p>
-<p>The story, which was temporarily suspended to eat lunch, continued after lunch. Konoe Akina said that she was busy acting as the head of the Konoe family during the vacation and couldn't do anything, and Oofuchi Erika went to the United States and talked about studying chemistry and biology, which she was interested in.</p>
-<p>The most interesting story so far was Seizawa Shii, who worked as a fixer in Tokyo. The story of catching a serial kidnapper was so interesting that it made me sweat. Seizawa Shii revealed her side job to her friends after the Anya-ji attack because she thought that her friends might become future clients as she was about to graduate.</p>
-<p>"...At that time, I confirmed the scene where they were trying to hand over the children to the gang."</p>
-<p>"So, what happened?"</p>
-<p>"Of course, I quietly rode my bike and chased after them. I thought I could find out where the kidnapped children were gathered if I followed the gang...."</p>
-<p>Everyone listened to the story with great interest. Some people brought popcorn from somewhere and ate it while listening.</p>
-<p>"...So the kids went back to their parents. It was really hard, you know?"</p>
-<p>"Wow! Amazing, Shii!"</p>
-<p>"Shii had the most interesting vacation."</p>
-<p>Now the remaining students were Shido Tsubaki, Alik, and Naruse Shiyo. Among them, Shido Tsubaki stepped up first.</p>
-<p>"I'll talk first. I participated in a humanities seminar hosted by Kanto University. It was just a seminar, but several university students and professors majoring in humanities and a few high school students who would enter Kanto University gathered and spent a few days in a pension. It was an event to present each other's research and promote friendship. But...."</p>
-<p>"But?"</p>
-<p>Perhaps because she was a prospective journalist, Shido Tsubaki's story seemed to have the power to focus people's attention. Everyone waited for Shido Tsubaki's next story. The story that followed Shido Tsubaki was quite shocking.</p>
-<p>"A murder occurred at that seminar."</p>
-<p>"Huh...! Really?"</p>
-<p>Shido Tsubaki's story was quite shocking. It was an amazing incident in which as many as four people died at the Kanto University seminar, and the culprit was revealed by a detective who was taking a folklore doctorate at Kanto University. By the way, Kanto University's folklore doctoral course....</p>
-<p>"Is that detective Wano Haruto by any chance?"</p>
-<p>"Ah, that's right!"</p>
-<p>How amazing. To have a name I know come out here. The person who found the culprit by reasoning on Chooten Island was Wano Haruto. That culprit was Urabe Konoka's grandmother, though.</p>
-<p>"Ah! That person revealed the truth about my father's death."</p>
-<p>Konoe Akina said as if she knew. Wano Haruto, whom I introduced, revealed that the uncle who was the acting head of the Konoe family at the time was the murderer of Konoe Akina's father. After that, Konoe Akina was able to become the head of the Konoe family.</p>
-<p>"Wano Haruto? Should we ask him to investigate something on our side too?"</p>
-<p>"He seems to be a pretty great detective, but why isn't his name known?"</p>
-<p>The name Wano Haruto was etched in the minds of the special class female students with a few stories. Even if only a few of them make a request, he will make a lot of money. Wano Haruto's detective business will be quite active.</p>
-<p>"Then only we are left. The previous two stories were so great that our story might be a bit boring."</p>
-<p>Naruse Shiyo and Alik seemed quite burdened because Seizawa Shii and Shido Tsubaki's stories were so impressive.</p>
-<p>"We started training in the mountains where Shimokawabe-sabunim's main house is located. Then one day, Sabunim told us to go somewhere."</p>
-<p>"Moka-sabu suddenly told us to follow him."</p>
-<p>Naruse Shiyo told the story, and Alik added interjections from behind, and the story progressed.</p>
-<p>"The place we went to was deep in the mountains. There was a monster there."</p>
-<p>"Huh? A monster?"</p>
-<p>When the genre suddenly changed, the rest of the students, except for those who had actually seen monsters, each had question marks on their faces. They had expressions that said, "What's with the monster story in an era where cyberpunk is one step ahead?"</p>
-<p>"Sabu said that something had been ruining the nearby rice paddies recently, so we followed him, and there was a monster there."</p>
-<p>"It was really there. Kidnap? Ah, a monster...!"</p>
-<p>It was a ridiculous story to anyone who didn't know, but the students who had participated in the Naruse Shiyo rescue operation with me knew that this story was true. The rest of them also said, "Really?" as Naruse Shiyo and Alik spoke together, and they began to listen to their story with concentration.</p>
-<p>______</p>
-<p>Saionji Diana with her breasts supported, requested by RefundAbsolutelyImpossible-nim!</p>
-<p>Saionji Diana's armpit pride~!</p>
-<p>I don't know why, but the one-piece swimsuit makes her figure look better, hehe.</p>
+<p>"Ryuta, is she a Princess...?"</p>
+<p>I couldn't say a word to Alik's innocent question. I couldn't tell her that I had been fucked by Taira Kanna, especially with Alik and Naruse Shiyo, both virgins, present.</p>
+<p>Of course, Princess Peach is a princess, so it's true that I was wearing a princess dress, but I couldn't say that I wore it because I wanted to.</p>
+<p>"No way...?"</p>
+<p>Everyone except Alik seemed to have guessed something, looking at the bed, handcuffs, and shackles in the middle of the room. Even Naruse Shiyo, a virgin, was blushing as she stared at me.</p>
+<p>"You didn't have any clothes, Sensei-ssi...!"</p>
+<p>"Kanna-cchi is too much! No matter how much you like our Ryuta-cchi, how could you do this?! T-t-to do that , there's a proper order besides kidnapping! Like a confession... or a yobai (night crawl)!"</p>
+<p>Otagi Yuka looked at me with a slightly pitiful gaze, her expression saying, 'you got fucked, didn't you?', while Seizawa Shii was seething with anger at Taira Kanna for assaulting me. By the way, Shii, are you really okay with yobai too?</p>
+<p>"These costumes...?"</p>
+<p>Sakagami Rena looked at me with empty eyes, staring at the pile of cosplay sets I had haphazardly thrown around while searching for clothes to wear. Her expression asked, 'What on earth happened here?'</p>
+<p>"No, don't misunderstand. I didn't want to go out naked, so I rummaged through them and just put on whatever fit my size."</p>
+<p>"Oh, really? You just rummaged through them here? Uh... but this, this outfit is too erotic, isn't it?"</p>
+<p>At my words, Seizawa Shii, who had less intimate experience, blushed deeply and picked up an erotic costume with her index finger and thumb. It was more like something made of netting than actual clothes, so even I thought it was quite lewd.</p>
+<p>...But why is she secretly putting that 'too erotic' outfit into her back pocket? Come to think of it, each of the rescue team students was picking up a costume.</p>
+<p>Even Naruse Shiyo and Alik were gathering clothes, but Alik, instead of an erotic cosplay, chose a Cinderella-style light blue princess dress, saying, "Alik wants to wear a princess dress with Ryuta too...!"</p>
+<p>"Shall we go out first?"</p>
+<p>"Liege-nim, please come up slowly. It's a bit difficult to go to where the car is in that attire..."</p>
+<p>Sakagami Rena, who had already picked out an outfit, said to me. Hmm, did they park the car far away...? I nodded, acknowledging her words for now.</p>
+<p>Sakagami Rena said something to the rest of my rescue team students, then began to leave the room, leaving only Otagi Yuka behind.</p>
+<p>"Hmph...! I'll let it slide this time!"</p>
+<p>Seizawa Shii huffed and left, and Alik also whined, "Alik, Alik wants to be with Ryuta...!" but Saionji Diana and Konoe Akina each took an arm and carried her out.</p>
+<p>"Sensei-ssi...!"</p>
+<p>Otagi Yuka's gaze was already deeply clouded. It seemed like the madness caused by her blood craving was about to activate, as her satiety was dropping. The students knew this and had cleared the room beforehand.</p>
+<p>"Are you okay?"</p>
+<p>Otagi Yuka didn't answer my question. She staggered towards me and burrowed her head beneath my skirt. Naturally, since I was naked and wearing the Princess Peach dress without underwear, Otagi Yuka beneath my skirt immediately buried her nose into my cock and, with a "Seuheup-ha~!", greedily inhaled the scent (?) of my cock.</p>
+<p>Since it was my first time wearing a skirt, the sensation of a person's head entering inside my skirt was quite peculiar. It's a bit hard to explain in words.</p>
+<p>After sniffing the scent of my cock inside my skirt for a long time, Otagi Yuka now began to lick my balls with her tongue.</p>
+<p>My fading reason was slowly disappearing, and it felt like she instinctively knew that the semen she needed to ingest was pooling in my balls.</p>
+<p>"You'll get semen if you lick the shaft, not just the balls."</p>
+<p>At my words, Otagi Yuka, who had been licking my balls for a while, began to lick the tendon at the back of my shaft. Otagi Yuka's tongue play after so long sent shivers of pleasure through me.</p>
+<p>"Eumpeuh-heup...!"</p>
+<p>Otagi Yuka, who had been licking my cock for a long time, now made strange sounds and bit my cock. The cock that had been nestled in Taira Kanna's pussy just tens of minutes ago was now being sucked deep inside Otagi Yuka's mouth.</p>
+<p>"Jjeubeup...! Jjeup, Jjueup! Chup, Chyueup...! Chyubeup♥"</p>
+<p>Otagi Yuka's bulging head, visible beneath my skirt, moved violently, urging my semen out. Naturally, the erotic sounds of saliva and pre-cum rubbing together inside her mouth spilled out from beneath my skirt, and those sounds further accelerated my ejaculation.</p>
+<p>"Yuka...!"</p>
+<p>Given Otagi Yuka's state, it wasn't the time to hold back my ejaculation, so I immediately called Otagi Yuka's name and began to ejaculate.</p>
+<p>Otagi Yuka, too, must have felt the signs of my ejaculation, as she took my cock deep into her throat, deep-throating it as she began to swallow the gushing semen directly down her throat.</p>
+<p>Byuut! Byuut! Byuut!</p>
+<p>"Keueueut...!"</p>
+<p>"Jjeup...! Jjeup...!"</p>
+<p>After taking all of my semen, Otagi Yuka, as if regretting any waste, inserted her tongue into my urethral opening, squeezing out every last drop of semen remaining in my urethra.</p>
+<p>"Haa, haa, haa.... Are you feeling a little better?"</p>
+<p>I asked, looking at Otagi Yuka as she emerged from beneath my skirt. In truth, Otagi Yuka's status effect, on the verge of falling into frenzy, wouldn't fully recover with just one round, but it seemed like the immediate crisis had been averted.</p>
+<p>"Sensei-ssi's semen is so yummyy♥ Just a little... can't I have just a little more?"</p>
+<p>Otagi Yuka's eyes were already glazed over. Before, her gaze had been deeply clouded as she fought off the surging madness, but now, it was simply the face of a woman craving semen.</p>
+<p>I couldn't let her go to the students in this state. If she clung to me in the car, whining for "just a little more," it would be bad for Otagi Yuka's reputation, so I felt I had to resolve it now.</p>
+<p>I checked the time. Since the fellatio had just ended quickly, even if we did it one more time, the rescue team students wouldn't have to wait too long.</p>
+<p>"Let's do it quickly."</p>
+<p>I helped Otagi Yuka up to ejaculate as quickly as possible. I pulled Otagi Yuka's jeans down only to her buttocks, then aligned my glans with Otagi Yuka's pussy, which was already gaping and dripping vaginal fluid like urine, desperate for my cock.</p>
+<p>Anyway, according to Otagi Yuka's traits, it didn't matter if she drank my semen from her upper mouth or her lower mouth, so I intended to move vigorously from behind to maximize my ejaculation. I also wanted to move myself, having been tied up and taken by Taira Kanna until now.</p>
+<p>"Haa-euh-haaang...! This is ittt!"</p>
+<p>The inside of Otagi Yuka's pussy began to greedily writhe, stimulating my cock. It was pleasure, yes, but more than that, it was her pussy's movement, solely for the purpose of sexually draining my semen.</p>
+<p>"Heueung, put it in, Sensei-ssi! Sensei-ssi's Haaang, fresh semen♥ A pervert Vampire's Haaheung♥ Fill my pussy to the brim, Heueut! Fill it up...!"</p>
+<p>Cheolsseok! Cheolsseok! Cheolsseok!</p>
+<p>"Haaang...! Sensei-ssiiit! It feels so gooddd...! Haaht! It's so Heueut...! Yummyyyy♥"</p>
+<p>My pubic bone and Otagi Yuka's buttocks collided, filling the room with wet, slapping sounds. Although we were moving vigorously solely for ejaculation, not for mutual sexual enjoyment, Otagi Yuka seemed to find even that pleasurable, as her intravaginal muscles writhed, bringing her to continuous orgasms.</p>
+<p>To provide even greater stimulation, I swayed my hips and spanked Otagi Yuka's large buttocks with a slapping sound. I was stimulating Otagi Yuka, leaving hand marks but not causing too much pain.</p>
+<p>"Haa-euh-heung...! Euh-heung!"</p>
+<p>Each time my hand struck her buttocks, Otagi Yuka shivered and let out moaning sounds. Her pussy also writhed, gripping my cock even more fiercely in rhythm with my hand's movements.</p>
+<p>The elasticity of Otagi Yuka's buttocks and the sight of my handprints being etched onto her seemingly pale, pure white buttocks greatly heightened my own excitement/arousal.</p>
+<p>"Does my cock taste good?"</p>
+<p>"Heueung, it's Haaht♥ incomparably deliciousss!"</p>
+<p>Incomparably delicious, she said. It was a gourmet cock that even I found myself fearing. With Otagi Yuka's moans, vigorous movements, and the sensation of spanking, even though I had just ejaculated, the feeling of ejaculation quickly rose again.</p>
+<p>"I'm going to cum...!"</p>
+<p>"Haaht, Haa-euh-heut! Deepest inside...! Haa-euh-heung! Sensei-ssi's Haaht! Put your delicious white sauce in meee♥"</p>
+<p>At her words to cum deep inside, I pressed my pubic bone against Otagi Yuka's buttocks as much as possible, buried my glans in her deepest part, and began to pour out my semen.</p>
+<p>Buuut! Buuuut! Ulkeok! Ulkeok!</p>
+<p>My cock expanded to its fullest, stretching and contracting Otagi Yuka's pussy as it began to pour semen into her uterus. Her normally still cervix was gaping, stimulating my glans as it accepted the semen.</p>
+<p>Perhaps because it had become half an ingestion organ while absorbing semen, Otagi Yuka's cervix occasionally displayed pleasurable movements.</p>
+<p>"Haa, haa, haa...!"</p>
+<p>After a round of vigorous hip thrusts, I leaned my upper body against Otagi Yuka's back and held her from behind until the ejaculation was completely finished.</p>
+<p>Jjeubeup.</p>
+<p>After the ejaculation was complete and I pulled my cock out of her pussy, Otagi Yuka naturally knelt before me, licking the semen coating the shaft of my penis and sucking out the remaining semen from my urethra, cleaning my cock.</p>
+<p>"Are you feeling better now?"</p>
+<p>"Yes.... I'm sorry."</p>
+<p>"No, it felt good."</p>
+<p>Otagi Yuka apologized with her head bowed, perhaps feeling sorry for losing her reason during my kidnapping, but for me, it was just two rounds of sex, so I told her it was fine and gave her a kiss.</p>
+<p>"Shall we go up now?"</p>
+<p>"...Yes."</p>
+<p>I pulled down my skirt, which had been hiked up to my waist, and told Otagi Yuka, who was pulling her jeans back up, that we should go. Holding Otagi Yuka's hand, we walked, and it wasn't long before we reached the ground level.</p>
+<p>In truth, I hadn't realized I was underground until then, so I was a little surprised to find myself on the second basement floor. Surely, they didn't build this secret building just to kidnap me, did they?</p>
+<p>"Sensei-ssi, you're barefoot, so if you walk like this, your feet will get dirty. I'll carry you."</p>
+<p>The ground outside the building was a dirt path, so Otagi Yuka lifted me up. Otagi Yuka, carrying me in a princess, no, a prince carry, ran at high speed towards where the car was parked.</p>
+<p>"Oh, seriously! Ryuta-cchi, are you Princess Peach being rescued by ○rio?"</p>
+<p>Seizawa Shii, who was waiting for me outside the car, commented when she saw me being carried, and hearing that, Alik asked, "Are you a Princess, Ryuta?" But when I showed my bare feet and explained it was to keep them from getting dirty, everyone agreed.</p>
+<p>"Let's go back. It was only one day of being kidnapped, but it feels like it's been an incredibly long time."</p>
+<p>"Indeed. It feels like almost 20 days have passed."</p>
+<p>Sakagami Rena smiled and replied to my words, then started the car. Although it had only been a day, the events were so bewildering that it felt much longer.</p>
+<p>Here's the illustration of Kkan-Yuka showing off her bikini armpits + breast support, requested by Hwanbuljeoldae-bulga-nim!</p>
+<p>Breast support</p>
+<p>While making these, I thought, 'Oh? Since it's a swimsuit anyway, what if I made her a bit wet?' So I added the WET prompt, hehe.</p>
+<p>Perhaps because she's wet, Kkan-Yuka isn't coming out well ㅠㅠ</p>
+<p>But if I keep making them until she appears, she eventually does, hehe Kkiyot~!</p>

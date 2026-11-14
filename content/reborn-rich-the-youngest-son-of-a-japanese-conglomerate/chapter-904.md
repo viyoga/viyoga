@@ -5,88 +5,56 @@ weight = 904
 chapter = 904
 +++
 
-<p>"I'll take care of these bastards, Teacher-nim." The voice came from atop a tree where Kamishirato Manzo's Experiments were gathered. Kamishirato Manzo's Experiments looked up with tense Expressions.</p>
-<p>On the tree stood the Hime-cut female Swordsman Kurayamada Kirie, holding her Oodachi (Great Sword) Kazuma (Peaceful Horse), which reached 3 meters.</p>
-<p>"Vice Class Teacher-nim~!"</p>
-<p>Otagi Yuka, seeing her former Vice Class Teacher Kurayamada Kirie who had suddenly appeared, called out with a smile. Although she had never personally seen her Skill, she had heard from Taira Ryuta that Kirie was quite a skilled individual, so she would surely be able to defeat Kamishirato Manzo's Experiments who had been bothering her like gnats.</p>
-<p>"Heup!" With a short, sharp battle cry, Kurayamada Kirie dropped from the tree and swung her Oodachi Kazuma like a storm.</p>
-<p>Branches, Leaves, even the necks of the Experiments-anything caught by Kazuma's blade was instantly severed. Even after landing, she cut down the Experiments who were still alive, swiftly ending the battle. Then, towards Otagi Yuka, she smiled sweetly and opened her Mouth.</p>
-<p>"Yuka, it's a gift."</p>
-<p>Kurayamada Kirie, saying it was a gift, began to throw the Corpses of Kamishirato Manzo's Experiments she had killed. Anyone else would question why Corpses were gifts, but for Otagi Yuka, who had been fighting an evenly matched battle with Kamishirato Manzo, it was a greater gift than anything else.</p>
-<p>"Thank you, Teacher-nim~!"</p>
-<p>Otagi Yuka, smiling, expressed her gratitude to Kurayamada Kirie, then aimed her Sword at Kamishirato Manzo.</p>
-<p>"Since you received Help from your Experiments, I too may as well receive some Help from your Experiments' Blood, right?"</p>
-<p>"For a Vampire, you talk too much!"</p>
-<p>"No further discussion!"</p>
-<p>Otagi Yuka no longer wanted to exchange Words with Kamishirato Manzo. Just as she had suffered, unexpected things could also be happening in other battlefields. She felt she needed to deal with Kamishirato Manzo as quickly as possible and go Help her Friends and comrades.</p>
-<p>"Just as you said, I'll show you the Race difference."</p>
-<p>-Otagi-ryu Blood Energy Sorcery (愛宕流 血気 呪術) Blood Thousand Darts (血千鏢).</p>
-<p>As Otagi Yuka chanted a spell with hand seals, one headless Experiment's Corpse burst apart, and countless Blood Darts were shot at Kamishirato Manzo.</p>
-<p>"Keueut!" Kamishirato Manzo was wearing bone Armor, so he didn't take proper Damage, but the Blood, which had been as hard as Darts, had somehow turned into a Liquid and seeped into his bone Armor.</p>
-<p>"Is this all you've got? Even without mere Experiments, I have countless methods...!"</p>
-<p>-Otagi-ryu Blood Energy Sorcery (Atago Style Blood Energy Sorcery) Blood Explosion.</p>
-<p>As if she didn't want to hear Kamishirato Manzo's screaming Words, Otagi Yuka immediately activated a linked Sorcery following the Blood Thousand Darts. She exploded the Blood that had seeped into the bone Armor with a Blood Explosion.</p>
-<p>"Kwaaaah!" The bone Armor burst apart, and Kamishirato Manzo's flesh, caught in the Blood Explosion, also burst apart.</p>
-<p>Otagi Yuka, with the Blood flowing from another Corpse, replenished the Blood Energy consumed by the Sorcery she had just used and prepared her next Attack.</p>
-<p>This was precisely the Reason why Kamishirato Manzo, who possessed outstanding Skill, had only ordered his Experiments to perform long-range suppression from a distance.</p>
-<p>Because she was a Vampire who used enemies with a difference in Skill as both her Blood Energy pouch and Attack ingredients, if only the right conditions were met, she could truly achieve unparalleled feats among countless Enemies.</p>
-<p>"Damn it...! I didn't want to use this method! This is all your fault! I will tear you to death in dozens of pieces and make you Regret having forced me to make this Choice...!"</p>
-<p>Kamishirato Manzo, who was wounded and retreating, shouted as if spitting out Words. And he began to chant a spell, the eeriness of which was incomparable to when he had just summoned the bone Armor.</p>
-<p>Naturally, Otagi Yuka was not one to simply watch. She burst another Corpse, creating and shooting a Blood Spear. But around Kamishirato Manzo, who was chanting the spell, an ominous dark purple shield appeared, blocking the Blood Spear.</p>
-<p>'It's high-level Sorcery...!'</p>
-<p>High-level Sorcery, as it required a lot of Preparation Time, often involved creating a force field or shield when using the spell, and now Kamishirato Manzo also seemed to be using such a high-level spell.</p>
-<p>Even so, she couldn't just stand by. Otagi Yuka continuously drew Blood from Corpses and began her Attack, while Kurayamada Kirie, who had joined by now, began Marksmanship from empty space with a medium-sized Energy Gun. Saionji Diana, who had also dealt with Bernardo and joined them, also fired at Kamishirato Manzo, holding a pistol.</p>
-<p>Kuung! The shield burst apart, and what was revealed was not Kamishirato Manzo. It was a monster clumped together with countless tentacles. There were several gigantic pupils between the tentacles, and those gigantic pupils were filled with Hatred and Anger. Seeing all of that Appearance, a somewhat dazed Feeling came over them.</p>
-<p>"Everyone, snap out of it!" Kurayamada Kirie urgently shouted. By now, pointed wolf ears had popped out above Kurayamada Kirie's Head; to exert her full Power, she seemed to have drawn out the power of her Bloodline.</p>
-<p>At Kurayamada Kirie's shout, Otagi Yuka and Saionji Diana also regained their senses. Otagi Yuka, raising her Blood Energy to its maximum, aimed her Golden Blood at the monster, and Saionji Diana put away her pistol, which had completely run out of Energy, and picked up the Famous sword En that Ichimonji had made for her.</p>
-<p>Chwaaaah! The monster's Attack came without warning. As if a spring was unfolding, tentacles shot out with immense speed. Being linear movements, everyone easily dodged and attacked the tentacles, but the tentacles were covered in a thick, unpleasant slime, which was reducing physical Damage.</p>
-<p>-Geuwoeoeoeo! This time, swinging its extended tentacles, the monster launched a sweeping Attack. Otagi Yuka unfolded her mist transformation, easily dodging it, and Saionji Diana jumped high with the thrusters on her leg cybernetic implant, then dodged.</p>
-<p>Kurayamada Kirie, using her long Sword, embedded it in the Ground, then jumped over it like a pole vaulter, and because her Oodachi was so long, it created a distance from which she could Attack the Main body.</p>
-<p>"Hap!" It was a powerful strike, but as expected, the Main body was also covered in a thick slime, presumed to be similar to that on the tentacles, so the Attack didn't land properly. But Kurayamada Kirie could confirm that the pupils swimming between the tentacles hid inwards when she attacked.</p>
-<p>"The pupils in the Main body seem to be the weakness!"</p>
-<p>At Kurayamada Kirie's shout, everyone approached closer to the monster's Main body. Approaching close to the monster meant getting closer to the pupils, which were predicted to be its weakness, but it also meant it would become harder to block the monster's suddenly protruding tentacles.</p>
-<p>They began to fight at a distance where they could inflict critical hits on each other. The monster had three pupils in total, and there were three opponents for the monster. Victory or defeat would be decided depending on who eliminated all three.</p>
-<p>-Geuooooo...! Dodging the suddenly protruding tentacles, Otagi Yuka stabbed one pupil. The monster began to writhe madly as if salt had been sprinkled on a pile of earthworms. Indeed, just as Kurayamada Kirie had said, the pupils were its weakness.</p>
-<p>Kwaaang! But as the monster writhed, Otagi Yuka was pierced and flung away by a tentacle it struck out convulsively. But Kurayamada Kirie felt that now was, on the contrary, an Opportunity.</p>
-<p>The monster, like a newborn animal, couldn't properly control its tentacles. Because it only moved one tentacle at a time, now that it had attacked Otagi Yuka, she thought she had to inflict another critical hit. Kurayamada Kirie drew back her Sword and took a stance.</p>
-<p>Divine Heaven Sword Form Style (神天劍形流) - Kirie Style (桐愛式) Black Wolf Flash (黑狼閃).</p>
-<p>Black Aura, a powerful horizontal slash, as if to cleave Heaven and Earth. No matter how much the monster was reducing physical force with slime, Kurayamada Kirie's Sword Kazuma was a Magic Sword made from the Claws of her Father, Kurayama Kazuma, who had become an Avatar of an Outer God. At Kurayamada Kirie's sincere strike, the tentacles split apart as if thickets were severed, and one of the pupils within also burst.</p>
-<p>"Haa, haa... Sorry, I'll step out for a moment...!" Kurayamada Kirie, who had consumed an enormous amount of Energy with this slash, temporarily withdrew from the Battle formation. Although it would be good to Help Saionji Diana, who was left alone, in her current state, it was obvious she would only be a hindrance. Her judgment was that it would be better to recover as quickly as possible and then Help.</p>
-<p>Saionji Diana continued to watch the last remaining pupil of the monster. She sheathed the Katana on her back. And in the opposite thigh cybernetic implant, where Barracuda was not, she opened the cybernetic implant on her opposite thigh and took out the remaining small throwing Bombs. Four in total. She wondered if she could kill this monster with these, but she had no Choice but to do it.</p>
-<p>Swaeeeeeek! As if to blow off Saionji Diana's Head, a tentacle shot out. Saionji Diana calmly dodged diagonally to the side, then threw one Bomb.</p>
-<p>Kwaaang! Perhaps because it was a Bomb with suppressed explosive Power so that the thrower wouldn't get caught, it didn't seem to inflict much Damage on the monster. Saionji Diana bit her Lips. Can I overcome this monster? As Saionji Diana was briefly engulfed in Despair, a welcome Voice was heard.</p>
-<p>"When I give the signal, throw all the remaining Bombs!"</p>
-<p>Glancing to the side, Otagi Yuka held a gigantic Blood drop in empty space. Otagi Yuka, who had been hit by a tentacle and flung away, had gathered all the Blood from the remaining Experiment Corpses. The gigantic Blood drop slowly fell onto the tentacle monster.</p>
-<p>Seeing the monster completely drenched in Blood, Otagi Yuka wore her usual mischievous smile.</p>
-<p>-Otagi-ryu Blood Energy Sorcery (Atago Style Blood Energy Sorcery) Blood Explosion.</p>
-<p>Kwakwakwakwang! Pii-! Along with an immense loud noise, a noisy ringing in her Sensitive Ear was heard. The Blood that had seeped between the tentacles exploded, revealing the pupils. Because of the ringing sound, she couldn't hear what Otagi Yuka was saying, but Saionji Diana knew that now was the time to finish this monster.</p>
-<p>Saionji Diana, like a skilled pitcher, threw the small Bombs. As the tentacles slowly regenerated, wrapping around the pupils, she saw the Bombs accurately entering the space between them. Otagi Yuka, confirming that, grabbed Saionji Diana's Shoulder and pulled their Bodies back.</p>
-<p>Kwaaang! Even if they were throwing Bombs with reduced explosive Power, when three exploded at once, the aftermath was considerable. Otagi Yuka and Saionji Diana, who were pulling their Bodies back, were caught in the aftermath and flung away.</p>
-<p>"Now all that's left is only Swords."</p>
-<p>"I also have almost completely consumed my Blood Energy."</p>
-<p>The two, muttering to each other, struggled to get up from their Seats. And they waited for the explosion's smoke to subside. Kurayamada Kirie also, having seemingly recovered her stamina, joined them, holding her Sword.</p>
-<p>"Let's go." As the smoke cleared, Kurayamada Kirie said. The two nodded, then pushed through the smoke and headed towards the Place where the monster was.</p>
-<p>All that remained was only a few slightly writhing tentacles.</p>
-<p>"Because it's ominous, it would be good to burn it." Kurayamada Kirie, from who knows where, took out a gasoline can and poured it over the tentacles. Then Saionji Diana lit it with the thrusters on her Feet.</p>
-<p>The three, without a Word, watched the tentacles shrivel in the Heat. This was because there was an uneasy Feeling that the tentacles might move at any moment. But such a thing did not happen, and they were able to burn all the tentacles.</p>
-<p>"Huu.... I clearly heard it was a fight with a Fist Technique practitioner, but I don't know what kind of monster popped out."</p>
-<p>"Thank you, Teacher-nim."</p>
-<p>"Thank you."</p>
-<p>When Kurayamada Kirie finished speaking, Otagi Yuka and Saionji Diana politely greeted her. If Kurayamada Kirie hadn't joined midway, this fight would surely have ended in Defeat. Taira Ryuta had said there were Support forces, but they hadn't known those Support forces would be Kurayamada Kirie.</p>
-<p>"Because I'm affiliated with a PMC, I can't openly step forward in Miyashi. Can I leave the rest to you two?"</p>
-<p>At Kurayamada Kirie's Words, both Otagi Yuka and Saionji Diana nodded their Heads. As Kurayamada Kirie said, PMCs couldn't arbitrarily enter Miyashi.</p>
-<p>Because it was a Villa City for the wealthy and an academy City for Young Ladies of prestigious families, only PMCs hired by St. Francis Girls' Academy or those hired by the Miyashi police department could operate.</p>
-<p>"Yes, please leave the next task to us."</p>
-<p>"Just as Teacher-nim helped, I'll Help our other comrades too."</p>
-<p>"Alright. See you later~!"</p>
-<p>Kurayamada Kirie put her Oodachi into empty space, then waved her hand towards the two and disappeared into the forest she had come from. Otagi Yuka and Saionji Diana looked at each other's Faces, then patted each other's Shoulders as if to say they had worked hard, and walked towards the car they had ridden to get here.</p>
-<p>Kurayamada Kirie B-cut~!</p>
-<p>Requested by TheDreaming-nim, Cross Binding Nakanoin Rina 1. Filming Screen 2. Phone Camera</p>
+<p>20 years ago.</p>
+<p>Takakusaki Gengo watched his Father die before his Eyes.</p>
+<p>His Father, whom he thought was the strongest in the World, was defeated in a fight with an unknown Person, and he witnessed it in real-time at that Scene.</p>
+<p>Although his Opponent was not a fellow Martial artist, but rather a Magician like those seen in movies, comics, or novels, it was the first time his Father had been so powerlessly defeated. His Father's Appearance, unable to land even a single Fist on that Face, left Takakusaki Gengo with a deep, indelible humiliation.</p>
+<p>「Is this the Skill of one of Japan's best? Does the Martial art of a human, made of Blood and flesh, ultimately have a Limit?」</p>
+<p>The Opponent who killed his Father, the Magician, muttered as he looked at Takakusaki Gengo's dying Father, as if disappointed. Those Words pierced deep into Takakusaki Gengo's Mind, becoming an unhealable wound.</p>
+<p>And the last Words spoken while looking at Takakusaki Gengo also became Words Takakusaki Gengo would never forget in his Life.</p>
+<p>「If you believe the Power your Father showed is not the end of Martial art, come to me anytime. I will give you a chance for boksu.」</p>
+<p>The Magician who killed his Father left a contact info and disappeared with those Words. Takakusaki Gengo told no one about the Person who killed his Father. He merely announced at the funeral that his Father had died in a Duel.</p>
+<p>Takakusaki Gengo, who was not yet an Seongin, became the adopted Son of Soda Haruto, the current successor of Shinkai Yatsude, who was his Father's best friend and rival.</p>
+<p>Soda Haruto willingly accepted his friend's Son as his own. Although he didn't change his surname, he truly treated him like a Son. Although he didn't teach him Shinkai Yatsude, he often gave advice during Takakusaki Gengo's Training and sometimes became his Duel opponent.</p>
+<p>As his Father's rival, the Shinkai Yatsude that Soda Haruto had mastered was strong. To Takakusaki Gengo, Shinkai Yatsude seemed less like a Fist Technique and more like the Ability of that Magician.</p>
+<p>As he trained relentlessly, when he thought his father's martial art, Tetsue Shintoryu (鐵重 神道流), wouldn't be enough against that magician, the strange power of Shinkai Yatsude caught Takakusaki Gengo's eye.</p>
+<p>Takakusaki Gengo wanted to be taught Shinkai Yatsude by Soda Haruto, but Shinkai Yatsude was a one-line transmission Martial art, and Soda Haruto had a young Disciple.</p>
+<p>「Gengo, are you my Older Brother now?」</p>
+<p>Takakusaki Gengo, who still had some humanity left at the time, couldn't bring himself to think of killing the young Fujigasaki Rinka, whom he had known since before, and becoming the Disciple himself. He merely stroked Fujigasaki Rinka's Head, who was looking at him with an Innocent Expression.</p>
+<p>Thus, Takakusaki Gengo temporarily set aside his desire for Shinkai Yatsude, but at the Words of Serihara Tamijiro, a mutual friend of his deceased Father and adoptive Father Soda Haruto, he began to burn with desire again.</p>
+<p>No, perhaps he hadn't set aside his desire from the beginning. Takakusaki Gengo's desire for Power might have merely remained like a small ember, only to be rekindled by the Words of encouragement from the Side.</p>
+<p>- You know that your current Martial art alone is not enough for boksu, don't you? If you can't learn it directly, why not steal it and learn it?</p>
+<p>Hearing those Words, Takakusaki Gengo, using the excuse of gratitude for being taken in when he had nowhere to go, began to take charge of the Dojang's cleaning from that day on. Under the excuse of cleaning the Dojang every day, he secretly installed Cameras here and there, filming Shinkai Yatsude's Intimate Posture and Soda Haruto's Teaching to learn them.</p>
+<p>As Fujigasaki Rinka was a beginner who had only recently started learning Shinkai Yatsude, Takakusaki Gengo was fortunately able to learn Shinkai Yatsude almost from the Early Stage.</p>
+<p>Reducing his Sleep every day and staying alone in the Dojang until late to master Shinkai Yatsude was an extremely arduous Work. But Takakusaki Gengo, intoxicated by new Power, didn't feel the hardship and stole Shinkai Yatsude for several years without being caught.</p>
+<p>After several years passed, Takakusaki Gengo had mastered all of Shinkai Yatsude. He was 25 years of Age then.</p>
+<p>Of course, he hadn't mastered all the essence of Shinkai Yatsude, but he had reached a Level where Soda Haruto's Teaching was no longer necessary. It was a Time for him to train alone, contemplate himself, and build his Power through Actual combat.</p>
+<p>Thus, he had successfully deceived Soda Haruto for several years, but eventually, a long Tail gets stepped on. By chance, he was caught by Soda Haruto having mastered Shinkai Yatsude, but Serihara Tamijiro, who had told Takakusaki Gengo that there was also a Method of stealing Shinkai Yatsude, was also present.</p>
+<p>Serihara Tamijiro, who had always felt jiltu towards his friend Soda Haruto's Skill and character, willingly lent his Power to Takakusaki Gengo. Thus, Soda Haruto was betrayed by his adopted Son and close friend, disappearing and leaving behind 14-year-old Fujigasaki Rinka.</p>
+<p>Serihara Tamijiro confined Soda Haruto and Tortured him to obtain the Shinkai Yatsude he also coveted, while Takakusaki Gengo began to fuse Shinkai Yatsude with his Father's Martial art, Tetsue Shintoryu.</p>
+<p>But Takakusaki Gengo, still feeling something lacking, collected various ancient Martial arts and Jusul, striving to create a new Martial art. The standard, of course, was a Martial art powerful enough to kill the Magician who killed his Father.</p>
+<p>What was created as a result was Takakusaki Gengo's ultimate technique, Mumatsu Anya (無末暗夜). It meant 'endless dark night,' but secretly, it suggested that it was formed by blending various martial arts, much like countless colors combine to create a murky black.</p>
+<p>While he was completing Mumatsu Anya and wandering the country, obsessed with the perfection of Martial art, he coincidentally met Fujigasaki Rinka, who was a high school Student.</p>
+<p>Because rumors had spread in the Martial arts world that Takakusaki Gengo had mastered a suspicious Martial art using black Aura under the name 'Kwonma,' Fujigasaki Rinka already believed Takakusaki Gengo had stolen Shinkai Yatsude.</p>
+<p>「Takakusaki Gengo! How could you repay such a Favor with such Betrayal? To steal a Martial art, that's everything to a Martial artist!」</p>
+<p>Fujigasaki Rinka was truly filled with anger, but she didn't consider that Takakusaki Gengo was responsible for Sabu Soda Haruto's disappearance.</p>
+<p>At the time of Soda Haruto's disappearance, she didn't think Takakusaki Gengo's Skill was enough to defeat his Sabu, and even if he had stolen a Martial art, she couldn't imagine Takakusaki Gengo would harm his adoptive Father, Soda Haruto.</p>
+<p>Therefore, Fujigasaki Rinka believed her Sabu had disappeared for some other Reason. The Reason they met that day was that rumors circulated about the Place being a secluded Training spot favored by Fist Technique practitioners, and she went there hoping to meet her Sabu, but it was Takakusaki Gengo who was actually Training at that Place. Fujigasaki Rinka, who had suffered mentally after her Sabu's disappearance, exploded with accumulated anger.</p>
+<p>The battle eventually ensued. Takakusaki Gengo, who had created and endlessly developed Mumatsu Anya, was underestimating Fujigasaki Rinka, who was merely a high school Student. At that time, he was in his late twenties, the prime Age for a Martial artist, and he was convinced that Fujigasaki Rinka, a Woman and a high school Student, was no match for him.</p>
+<p>But that dismissive thought proved to be a Mistake less than a minute after the fight began.</p>
+<p>With her excellent combat Sense, Power that overcame the physical Limits of being a Woman, and techniques close to perfection, he understood why Soda Haruto had taken Fujigasaki Rinka as his Disciple instead of him.</p>
+<p>Despite being merely a high school Student, she possessed Skill comparable to his own. Fujigasaki Rinka had already surpassed Sabu Soda Haruto.</p>
+<p>The two, who fought to the point where the surrounding Scenery was completely shattered, could not reach a Showdown and stopped fighting with the arrival of the police, and that fight became an Opportunity for Takakusaki Gengo to realize that he shouldn't continue as he was.</p>
+<p>After the battle with Fujigasaki Rinka, Takakusaki Gengo obsessively reviewed countless data and discovered that the Power of Shinkai Yatsude came from a being called an Oeisin, and he also learned that there were other beings with such Power in the World.</p>
+<p>「This is it!」</p>
+<p>Takakusaki Gengo thought. The Power to avenge his Father, the Power to defeat that Magician! That was this Oeisin Existence.</p>
+<p>By now, the boksu for his Father had become a blurry Situation, but Takakusaki Gengo was always chasing Power due to the influence of that Incident.</p>
+<p>The Magician who killed his Father had already become Takakusaki Gengo's Goal in Life. His Father's Face was no longer a memory, but he remembered the Face of the Magician who killed his Father with such clarity.</p>
+<p>Now that he had discovered a new source of Power, the Oeisin, he became engrossed in the thought that if he made that Power his own, he could reach the Realm of the Magician he had seen.</p>
+<p>Young Rinka Sabu B-cut!</p>
+<p>I don't know why tiny Ryuta keeps appearing hehehe</p>
+<p>High school Sabu B-cut~!</p>
+<p>Toilet Byeontae Chieri, requested by TheDreaming-nim~! Tied with batjul, 1. Blindfold VER. 2. Sobbing with M-Shape Legs~!</p>
 <p>1.</p>
 <p>2.</p>
-<p>Perhaps due to the nature of the cross Illustrations, mostly similar Scenes came out, so I only uploaded two images each~!</p>
-<p>Requested by Gojoy-nim, Belly Dancer and Tape Yukiko~!</p>
-<p>Belly Dancer~!</p>
-<p>Tape Yukiko~!</p>
-<p>Requested by Neosblue-nim, Blood Knight Yuka~!</p>
-<p>They're cool, hehe.</p>
+<p>M-Shape Legs are surprisingly difficult to achieve hehe. I've been struggling with them for a while and wondering what prompt to use, but trying it today, it seems I still can't get a satisfactory Intimate Posture hehe.</p>

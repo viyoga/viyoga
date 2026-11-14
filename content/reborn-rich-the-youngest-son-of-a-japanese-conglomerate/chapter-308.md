@@ -5,99 +5,98 @@ weight = 308
 chapter = 308
 +++
 
-<p>While kissing Yukiko, I busily moved my hands, pulling down both shoulder straps to expose her breasts. Yukiko's plump, large breasts and pink nipples were revealed, seducing me, so I continued kissing her, flicking and stimulating her nipples.</p>
-<p>,Chup, Heuuut! Chup chup...! Haaat! Jjook, smack!</p>
-<p>Yukiko's appearance, groaning intermittently even while kissing, was incredibly hot. A man, being the animal he is, is naturally more drawn to a woman who reacts like this to his caresses.</p>
-<p>"Did you wear this on purpose?"</p>
-<p>Suddenly curious while kissing, I stopped and asked Yukiko. She usually dresses casually at home, but not to this extent, so I was curious since she was being more provocative today. She was even swaying her hips in front of me on purpose, trying to seduce me.</p>
-<p>"Just.... Since we won't be seeing each other for a while, I wanted to excite Ryuta...."</p>
-<p>Ah, that's what it was. It seemed she was paying a little more attention to me than usual because of going to St. Francis Girls' Academy.</p>
-<p>"It's because Yukiko wore something so sexy that I got like this."</p>
-<p>I said, placing Yukiko's hand on my stiff, erect cock above my pants. Yukiko quietly murmured that it worked, giving me a seductive smile as she stroked my dick.</p>
-<p>Even though it was just a small caress, Yukiko's hand movements were stimulating my pleasure nerves. It was just a little touch, but it felt so good that my dick twitched.</p>
-<p>As expected, it seemed like these effects were happening because the succubus's physical traits were gradually blossoming. Right now, it's still bearable, but I was a little afraid that later on, she would become a real succubus and milk my Semen like milking a cow. But if I think about it, I also have many sex-related traits, so that probably won't happen.</p>
-<p>"Feels good, Ryuta?"</p>
-<p>Yukiko asked as her hand, which was stroking over my clothes, moved faster and faster. Of course, it felt good, so I nodded.</p>
-<p>I couldn't be the only one feeling good, so I started touching Yukiko's Pussy too.</p>
-<p>"Haaat, Ryuta...♥"</p>
-<p>We were masturbating each other with our hands, and without realizing it, we became naked, overlapping our bodies and hugging each other, starting to kiss anywhere our lips could reach, like lips, cheeks, ears, and necks.</p>
-<p>Without inserting it directly into her already soaked Pussy, I was lifting it over her Pussy and shaking my waist in a way similar to smata. It was a movement where it would slip right into Yukiko's Pussy with just a slight misstep, but my precise waist movements showed the optimal movement to give Yukiko pleasure without inserting it, making her impatient.</p>
-<p>"Haaaeueeeut, Ryutaaang♥ Don't be so mean, Heuung!"</p>
-<p>"How would you like me to do it?"</p>
-<p>When I asked, she hugged me tightly with both arms, put her lips to my ear, and started whispering.</p>
-<p>"I want you to put Ryuta's perverted huge cock inside me and shake it as violently as you want, filling my womb with thick, white liquid♥"</p>
-<p>"Keueut!"</p>
-<p>She bit my earlobe at the end, making me groan without realizing it. I couldn't stand Yukiko's seductive charm any longer, so I slightly changed the angle of my waist movements and pushed my dick into Yukiko's Pussy.</p>
-<p>"Haaat! As expected, Ryuta's, Heuat! Is huge...!"</p>
-<p>Yukiko's Pussy was in good condition whenever I inserted it. As if welcoming my dick, the protrusions inside her Pussy wriggled and wrapped around my dick, giving me pleasure. It was a Pussy that felt good just by inserting it.</p>
-<p>Of course, it feels even better when I move. I shook my waist violently as Yukiko wanted, just like she whispered to me.</p>
-<p>"Eheuheung, this is it. I can feel Ryuta's huge cock moving inside me....♥"</p>
-<p>Yukiko's room became more lewd than anywhere else, with the lewd sounds of flesh colliding with each other, covered in each other's fluids and sweat, combined with sucking sounds and moans.</p>
-<p>"Heuuut, Euut! Haaaeueut...!"</p>
-<p>I shook my waist to the rhythm, using Yukiko's moans as music. We hugged each other tightly while shaking our waists, and it felt so good to have Yukiko's breasts pressed against my body like hotteok.</p>
-<p>While shaking my waist, I suddenly saw the Dongtan milf-look long dress that Yukiko had thrown aside.</p>
-<p>"Was the dress you wore today expensive?"</p>
-<p>"Heuung, I don't know...."</p>
-<p>Well, how expensive could this dress be? I pulled out my dick. Yukiko looked at me with a puzzled expression, but I told her to pick up the clothes that were lying on the floor and wear them.</p>
-<p>"Why?"</p>
-<p>"Just put it on."</p>
-<p>Yukiko put on the dress as I told her.</p>
-<p>"Turn around."</p>
-<p>Yukiko's appearance after turning around was magnificent. Her waist was thin and her hips were wide, so I thought I should never let her wear this dress outside.</p>
-<p>I had Yukiko put her hands on the bed, making her assume a doggy position, and then tore the Pussy part of the dress.</p>
-<p>Tutuk!</p>
-<p>"Kyaak, Ryuta?"</p>
-<p>"This dress was so sexy that I wanted to do it with you wearing it since earlier."</p>
-<p>It was a bit uncomfortable to do it with the long dress on, so I had to tear the Pussy part to do it with her wearing it. I inserted my dick again as it was. Yukiko tilted her head back and groaned because the feeling of entering was different from the missionary position.</p>
-<p>She had such a great body that she looked good whether she was lying down or standing up, but I couldn't miss this appearance either. Her thin waist, huge hips, and firm ass were so amazing that I couldn't shake it properly unless my dick was super huge.</p>
-<p>In short, Yukiko was my dick-only, lewd, raw onahole.</p>
-<p>"Haaat...! This position is weird, I feel like I'm going to cum soon, Ryuta!"</p>
-<p>"I think I'm going to cum soon too. Let's go together, Yukiko."</p>
-<p>"Heuung, Haaat! Heuheuung...! I'll hold back, so quickly fill me with Ryuta's hot dick milk...♥"</p>
-<p>As Yukiko craved my Semen, her Pussy was also squeezing and releasing my dick at the same time, urging me to ejaculate. I was already on the verge of cumming because of the Dongtan milf-look doggy style, and Yukiko's Pussy stimulation made my Semen explode.</p>
-<p>Gush! Gush! Gush!</p>
-<p>"Haeueeung! Something hot, Heuung, inside me.... Full...♥"</p>
-<p>"Haa, haa, haa...."</p>
-<p>Yukiko was still leaning her upper body against the bed in the same doggy position, with a satisfied expression on her face.</p>
-<p>I pulled out my dick and looked at Yukiko's appearance. The Pussy and ass area under the gray dress were soaked, giving off a very hot feeling.</p>
-<p>"I'm sorry. I guess we have to throw away the dress. I'll buy you a sexier dress next time."</p>
-<p>"You're planning to throw that dress away like this too, right?"</p>
-<p>Yukiko pouted and glared at me when I said I would buy her a dress, but there was a subtle expectation in her eyes.</p>
-<p>"It's because Yukiko is too sexy, so I can't help it."</p>
-<p>"Heuheuung, I got so excited because of that that Ryuta's Semen came out again."</p>
-<p>She's surprisingly weak to my casual speech. It seemed like my Semen inside her came out because her Pussy was twitching because of my words.</p>
-<p>I took off her clothes again, then I lay down and called Yukiko.</p>
-<p>"Since the Semen came out because of Yukiko's fault, fill it up yourself."</p>
-<p>I was saying this while lying down and making my dick stand up, so in other words, I meant for her to do cowgirl and extract my Semen on her own.</p>
-<p>"Don't regret it even if you die dry♥"</p>
-<p>It was Yukiko who was approaching me with eerie words. My imagination must be playing tricks on me, right, that Yukiko's pink eyes were shining?</p>
-<p>###</p>
-<p>Egawa Shiho was a woman from the Egawa family, who had been in charge of etiquette and housekeeping education for daughters of prestigious families since the past.</p>
-<p>Not only the children of prestigious families but also those who served the prestigious families from the closest proximity were receiving education from Egawa Shiho and doing their jobs admirably in their respective positions.</p>
-<p>Today was the time to be introduced to a disciple who would be receiving her first education, and a servant of the house brought a girl. The difference from usual was that the girl who would be receiving her teachings was not Japanese.</p>
-<p>"The one who will be receiving education today is this girl."</p>
-<p>"Hello? I'm Alexandra Smirnova."</p>
-<p>Egawa Shiho looked at the girl in front of her who gave a greeting as if she had memorized it. Light beige hair, slightly indifferent golden eyes, and a very beautiful face.... She was a child who came to study various things in order to serve the youngest of the Taira family.</p>
-<p>'Cu, cute!'</p>
-<p>Egawa Shiho almost hugged the girl in front of her without realizing it.</p>
-<p>"I am Egawa Shiho, who will be teaching you. I look forward to working with you, Alexandra."</p>
-<p>Alexandra Smirnova simply nodded in response to Egawa Shiho's greeting. She stared at Egawa Shiho for a moment and opened her mouth.</p>
-<p>"Teacher, Alik."</p>
-<p>"Yes, what did you say?"</p>
-<p>"Call me Alik instead of Alexandra."</p>
-<p>Alexandra, no, Alik, was allowing a nickname, perhaps because she liked Egawa Shiho. Already, Egawa Shiho's cuteness was beyond her patience, and Egawa Shiho hugged Alik without realizing it.</p>
-<p>"Why, why are you so cute?"</p>
-<p>"Teacher, Alik is suffocating...."</p>
-<p>Egawa Shiho, realizing her disgraceful behavior at Alik's words, released Alik. Fortunately for Egawa Shiho, the servant who brought Alik had already left the room, so the only ones who saw this disgraceful behavior were Egawa Shiho and Alik.</p>
-<p>"I'm sorry. You were too cute, so I...!"</p>
-<p>"Alik cute?"</p>
-<p>"Yes~! Very cute!!"</p>
-<p>Egawa Shiho looked at Alik, who was still expressionless even after hearing that she was cute. If Taira Ryuta had seen it, he would have thought, 'Hmm, she seems happy to be praised!' and patted her head, but Egawa Shiho, who was meeting her for the first time, didn't have enough experience to notice Alik's subtle changes in expression yet.</p>
-<p>"What does Alik want to learn?"</p>
-<p>Egawa Shiho regained her composure and asked Alik again. All the students had fields they wanted to learn. There were various fields such as cleaning, cooking, and tea ceremony, so Egawa Shiho's educational philosophy was to teach mainly the fields they wanted. This was because focusing on the areas they were interested in, while only doing the usual amount in the areas they were not interested in, would increase educational efficiency even more.</p>
-<p>"This...."</p>
-<p>Alik showed Egawa Shiho a photo. Egawa Shiho looked at the photo Alik showed her. It was a photo of Alik wearing a maid outfit and holding a long broom.</p>
-<p>"Alik, want to be a maid...."</p>
-<p>"Cu, cute!"</p>
-<p>Egawa Shiho couldn't hold back and gave Alik a second hug.</p>
-<p>-----Yukiko made with a different model!</p>
+<p>Before starting, for those who are hazy about Konoe Akina and Otagi Yuka, I will upload the illustrations first.</p>
+<p>Otagi Yuka: The vampire I met in New York</p>
+<p>Konoe Akina: The owner of the Mystic Eyes whom the protagonist saved from the slave trader</p>
+<p>------------</p>
+<p>"Let's have a good high school life together."</p>
+<p>I finished my first greeting and opened the attendance book. Roughly counting, there were about 11 students' names written in the attendance book, but only about seven students were sitting.</p>
+<p>"Since it's our first meeting today, I'll call the roll to get familiar with your faces. Number 1, Seizawa Shii."</p>
+<p>"Neee~☆"</p>
+<p>When I called her name, a female student with brightly dyed hair and white skin in a shiro-gyaru style raised her hand. She wasn't wearing a school uniform but a fancy pink lolita-style dress. With fair skin and flamboyant blonde hair, and a B-cup chest, she was quite a beauty. Actually, if she wasn't wearing a uniform, I wouldn't know she was a student.</p>
+<p>"Seizawa-yang, please wear your uniform at least when you come to school."</p>
+<p>"Neee~!"</p>
+<p>She's good at answering. For your information, this Seizawa Shii is the daughter of the Seizawa family, a political family that has produced prime ministers in the Japanese political world, and she's also a partner in delinquency with Minamoto Lisa, who I'm targeting.</p>
+<p>"Number 2, Saionji Diana."</p>
+<p>"...Yes..."</p>
+<p>This time, it was a girl sitting in a wheelchair instead of a chair. Diana... The pronunciation was kindly written as でぃあな above the kanji. Is this one of those unusual names? Still, Diana is a pretty decent name. It's a bit surprising that the kanji is 月女神 (Moon Goddess), though. She's pretty, but she looks a bit gloomy. You could say her face has a lot of shadows? She was a beauty who stirred a man's protective instincts, giving the impression that she had a lot on her mind.</p>
+<p>Judging by the fact that she's sitting in a wheelchair, it seems like she has trouble with her legs, but when I looked closely, her arms were prosthetic too. All four limbs are impaired... She deserved to be in the special class. There's mechanical modification for kids like this, but it seems like only her right arm has been modified. Is her family poor, or is there some kind of taboo against modification...?</p>
+<p>"Number 3, Otagi Yuka."</p>
+<p>"Yes, Sensei."</p>
+<p>Otagi Yuka raised her hand with a refreshing, cheerful smile like a cool guy. There were so many unique people in this class that Otagi Yuka's red hair and golden eyes weren't that noticeable. She was wearing her uniform properly, too.</p>
+<p>"Number 4, Minamoto Lisa."</p>
+<p>"Yes."</p>
+<p>My target, Minamoto Lisa, answered briefly with a 'yes,' seemingly not very interested in me. Her pinkish blonde hair, tanned smooth brown skin, and large eyes were quite beautiful. Unlike Seizawa Shii, who she hangs out with, she was wearing her uniform properly.</p>
+<p>Still, if I'm a new homeroom teacher, she should be a little interested, but I had a feeling that it would be difficult to capture her.</p>
+<p>"Number 5, Shido Tsubaki."</p>
+<p>There was no answer. Because there was a photo in the attendance book, I checked the students' faces against Shido Tsubaki's photo, but it seemed like she didn't come to school today. After Shido Tsubaki, there were quite a few students who didn't come to school often.</p>
+<p>"Number 7, Sakagami Rena."</p>
+<p>"Yeees..."</p>
+<p>What's with her again? She was wearing a fox mask that you can only see at Japanese festivals. What's even funnier is that no one seems to care about this. It seems like she always goes around like that. I shouldn't care either.</p>
+<p>"Number 9, Konoe Akina."</p>
+<p>"Yes! Nice to meet you, Sensei!"</p>
+<p>Konoe Akina answered with a smile like Otagi Yuka, as if they had planned it together. Her Mystic Eyes, red eyes, were smiling at me. It's a little creepy, but I can't talk about it here with the students around.</p>
+<p>"Number 10, Uenosono Karen."</p>
+<p>There was no answer this time either. But looking at the photo in the attendance book, I think I've seen her somewhere... Ah! There was a member named Karen among the idol members who are gaining popularity recently, and she looks exactly like this student. She probably came to the special class because she can't attend often due to her entertainment activities.</p>
+<p>"Last, Number 12, Naruse Shiyo."</p>
+<p>"Yes, cough...! Cough!"</p>
+<p>Judging by the fact that she's coughing while answering, she's a weak student. She looked weak too. Even though it's summer, she was shivering like a newborn puppy. She's weak, so she'll probably skip school often. This girl, Naruse Shiyo, was a fragile-looking girl who evoked a man's protective instincts, just like Saionji Diana earlier. Judging by the fact that she keeps coughing, does she have a problem with her respiratory system?</p>
+<p>"Now that I've called the roll, ask me if you have any questions."</p>
+<p>"Sensei, do you have a girlfriend?"</p>
+<p>As soon as I said to ask questions, Seizawa Shii raises her hand and asks first. Hmm, I don't have a girlfriend. I have female friends, though.</p>
+<p>"Unfortunately, no."</p>
+<p>"Sensei, you're handsome, so I'll nominate myself as your girlfriend~!"</p>
+<p>Geez, she's so precocious. It's probably not serious, but I shook my head because of what the headmaster said at the beginning, and I shouldn't hit on female students openly. The previous homeroom teacher was also kicked out due to a woman problem led by Minamoto Lisa, so I have to be careful.</p>
+<p>"I'm a teacher, and you're a student. So, no."</p>
+<p>"Ehhh! Sensei, are you impotent?"</p>
+<p>"That's harsh."</p>
+<p>Impotent? She's too hyperactive, that's the problem... Thinking about it, I don't have any women to meet on weekdays, so my balls are probably getting heavier and heavier. It's been a week since I smelled a woman's scent, so it's a bit dangerous, but I'm not at the point where I'm openly touching students yet.</p>
+<p>"Sensei, have you ever been to America?"</p>
+<p>This time, it was Otagi Yuka's question. Maybe she's asking indirectly because I met Otagi Yuka in New York.</p>
+<p>"America? I've been there, to New York."</p>
+<p>There was no reason to lie, so I readily admitted it. Even if I admit it, it doesn't mean the other students know my identity.</p>
+<p>"Is that so?"</p>
+<p>Otagi Yuka nodded and smiled, seemingly satisfied with my answer. Following that, Konoe Akina raised her hand as if competing.</p>
+<p>"What subject do you teach, Sensei?"</p>
+<p>Ah, come to think of it, I didn't explain what subject I teach.</p>
+<p>"I'm teaching Korean as a second foreign language."</p>
+<p>"Hehe, I see."</p>
+<p>The course registration should be over already, but is there something like a course correction like in college? I got a little creeped out and decided to end the question time soon. After all, the opening ceremony will start soon.</p>
+<p>Oh, before that, I have something to ask too.</p>
+<p>"Are there any students taking Korean class here?"</p>
+<p>As expected, no one raised their hand or answered. That's a little disappointing? This means I won't have much contact with Minamoto Lisa. I'll only have contact during the morning assembly and the end-of-day meeting, so it seems difficult to work on her. Still, it's for a few months, so there will be opportunities.</p>
+<p>"Okay, no more questions. We have to start the opening ceremony now, so I'll turn on the TV."</p>
+<p>I turned on the TV. On the TV screen, the headmaster Daigo Terue was standing on the podium. How can her chest stick out like that even when she's wearing a suit? Still a sexy MILF.</p>
+<p>"A new semester has begun..."</p>
+<p>While the headmaster was giving her speech, I roughly flipped through the attendance book. Counting, five out of 12 people are absent. It's rough from the first day.</p>
+<p>"...I hope everyone has a semester without regrets, that's all."</p>
+<p>The headmaster's speech ended quickly. I turned off the TV and turned the paper with the printed instructions to download the textbook files onto the tablet, which is the next thing to do. They should know enough since it's the second semester of the third grade. Still, I have to do it because they told me to.</p>
+<p>"You've downloaded textbook files a lot, right? Just follow what's written on the printout."</p>
+<p>Fortunately, everyone skillfully downloaded the textbook files to their tablets without me having to do it. The next schedule is... introducing each other, but there's no need to do that.</p>
+<p>"Today's schedule is over, so everyone can go home now. Good job."</p>
+<p>Most of them get up in a rush at my words. Some students were happy that it ended quickly, and some were annoyed that they came to school for this. It's understandable to be annoyed since they're being sent home an hour after coming to school. I would be happy, though.</p>
+<p>"Lisa-ttang~! I missed you~☆"</p>
+<p>Seizawa Shii hung on Minamoto Lisa's back and joked around, and Minamoto Lisa said 'stop it' and released Seizawa Shii's hand, but Seizawa Shii continued to cling to Minamoto Lisa. As expected of a gyaru duo, they're close.</p>
+<p>Konoe Akina and Otagi Yuka continued to stay in their seats until the other students left. They probably want to talk to me about what's going on, but they both didn't know that the other knew me, so they were just standing still.</p>
+<p>I found that funny, so I smiled slightly and said to them.</p>
+<p>"Both of you, follow me to the education preparation room."</p>
+<p>I took the attendance book and left the classroom. When I opened the door to the education preparation room right next door, both Otagi Yuka and Konoe Akina followed me in like chicks following a mother hen.</p>
+<p>"..."</p>
+<p>"..."</p>
+<p>"Both of you know my identity, so you can say whatever you want."</p>
+<p>At my words, they both looked at each other and seemed surprised. And at the same time, they poured out their questions to me.</p>
+<p>"Ryuta-nim! What's going on?"</p>
+<p>"Taira-ssi! Suddenly a teacher, and you even changed your name!"</p>
+<p>Of course they're curious. The person they know as Taira Ryuta has become their homeroom teacher with the name Yamashiro Ryuta. Of course, I didn't expect it at all either, but I didn't intend to tell them exactly what my mission was. I'll just have to say that I have a mission from my family.</p>
+<p>"I came to this academy because I received a mission from my family. It's a mission similar to an infiltration, so I changed my name too."</p>
+<p>"I see, is there anything I can help you with?"</p>
+<p>"I received a favor in New York, so I'll definitely help you, just tell me!"</p>
+<p>It would be quite nice if they both helped me. They can find out the atmosphere while I'm not there. They can also bring me information circulating in the classroom, and I can subtly manipulate public opinion using them. They're quite a good card.</p>
+<p>"It would be nice if you helped me. I don't have anything to ask for help with yet, but I'll tell you if I need it."</p>
+<p>"Okay. I didn't know Ryuta-ssi would be my teacher."</p>
+<p>"Me neither, I didn't know Ryuta-nim would be my teacher."</p>
+<p>"What teacher, when I'm not even taking the Korean class?"</p>
+<p>"Even if you don't learn it, you're still our homeroom teacher."</p>
+<p>"That's true."</p>
+<p>They got along well. They're probably the same age, so they probably know each other. St. Francisco Girls' Academy has middle school and high school, so they might have a long relationship.</p>
+<p>Anyway, the important thing is that I was exposed to two people as soon as I started today, but at the same time, I gained two helpers. I had a pretty good feeling. It seemed like things would go well in the future.</p>

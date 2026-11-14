@@ -5,81 +5,77 @@ weight = 242
 chapter = 242
 +++
 
-<p>I skillfully flicked my tongue and sucked on Mimata Chieri-sunbae's moist, red petals. Mimata Chieri-sunbae's pussy seemed to welcome my tongue, spewing out honey, and I greedily lapped up that honey. As Mimata Chieri-sunbae began to writhe in pleasure, I gripped her ass tightly to prevent her from escaping the excessive pleasure, pressing my mouth even closer to Mimata Chieri-sunbae's pussy.</p>
-<p>"Huuheung...! Hubae-niim♥ Feeling, jyahyeo...!"</p>
-<p>Her blood circulation quickened due to excitement, and her whole body was dyed pink as if she was completely drunk, and Chieri-sunbae's tongue was twisting.</p>
-<p>She couldn't stand properly on the table and was staggering, but I was already holding her ass tightly, so she couldn't fall even if she wanted to.</p>
-<p>"Heuuht! Hubae-niim! Too strong...! I think I'm gonna get weird♥"</p>
-<p>Even when she tried to pull her ass away from the excessive pleasure, I was holding her tightly so she couldn't move, and she had to keep receiving my tongue attack, so Mimata Chieri-sunbae said it was too strong and reached her climax, firing a water gun at my face while making a pfft pfft sound. I could feel her thighs trembling through my cheeks. She came pretty spectacularly.</p>
-<p>A lot of it splattered on my face, so I wiped my face on the baby doll that Mimata Chieri-sunbae was still wearing. Then, I grabbed Mimata Chieri-sunbae's thin waist, lifted her up, and put her down on the floor from the table.</p>
-<p>"Now, Sunbae-nim, put your hands up."</p>
-<p>"Hooray~! Like this, Hubae-nim?"</p>
-<p>I made Mimata Chieri-sunbae put her hands up and shout hooray, then I took off her baby doll. And I held her in a princess carry.</p>
-<p>"Ahaha~! Hubae-nim, jyoayo."</p>
-<p>Mimata Chieri-sunbae's drunken antics were quite cute. She kept kissing my cheeks and lips, saying she liked me. I know that Mimata Chieri-sunbae's alcohol tolerance is quite high, but it seemed that the Elixir of Power was making people drunk quickly because it was an elixir.</p>
-<p>I can't ask this drunk person to give me a blowjob, so I should make today Sunbae-nim's happy service day for Mimata Chieri-sunbae.</p>
-<p>I changed the position of Mimata Chieri-sunbae, who I had been holding in a princess carry, so that she was facing me and hugging me. If I just lower my body like this, I'll be getting laid right away.</p>
-<p>"Heheut...!?"</p>
-<p>I slowly lowered Mimata Chieri-sunbae's light body, aligning her pussy hole with my dick. From there, I slightly released the strength of my arms holding Mimata Chieri-sunbae, and as Mimata Chieri-sunbae's body went down due to gravity, my dick was gradually entering deeper into Mimata Chieri-sunbae's drunken pussy.</p>
-<p>"Hueuu...! Hubae-niim, I feel weird. My body is going down♥"</p>
-<p>Of course it's going down because I'm letting go. Mimata Chieri-sunbae's closed pussy was expanding due to my dick, reaching the deepest part.</p>
-<p>"Eungheuhheut! Haaht! It feels strange, Hubae-nim...!"</p>
-<p>"I like it too."</p>
-<p>I grabbed Mimata Chieri-sunbae's waist and moved her up and down like an onahole, heightening each other's pleasure. Whether it was because of the Elixir of Power or just because she was drunk, Mimata Chieri-sunbae's inside was hot and sticky, so I felt really good too.</p>
-<p>"Ah, eungh, heuuht! Hueung...! Hubae, niim♥ It feels weird, something, something's coming...!"</p>
-<p>"I think I'm gonna cum too!"</p>
-<p>How many minutes did I move while holding Mimata Chieri-sunbae's waist? The inside of Mimata Chieri-sunbae's pussy was shaking and biting my dick tightly. Feeling a sudden pleasure from my dick, I pressed Mimata Chieri-sunbae's waist down tightly, attached my glans to her cervix, and started cumming.</p>
-<p>"Heuuht...! Hot, feels good, Ryuta-niim.... I love you, hueung♥ I love you, Hubae-niim...!"</p>
-<p>For a while, I hugged Mimata Chieri-sunbae tightly and buuut buuut, cumming in Chieri-sunbae's deepest part. While I was cumming, Mimata Chieri-sunbae kissed me, and as we were connected up and down while kissing, I felt an indescribable sense of fulfillment.</p>
-<p>"Sunbae-nim, did you feel good? Huh?"</p>
-<p>When I finished kissing and looked at Mimata Chieri-sunbae, she was asleep, perhaps because of being drunk and having an enormous climax. Was the kiss we just had unconscious? It was quite a passionate kiss, amazing, huh?</p>
-<p>But if she's asleep, there's nothing I can do. I laid Mimata Chieri-sunbae down on my bed. If I did it recklessly while she was asleep, the Elixir of Power might not be absorbed and all leak out as vaginal fluid or sweat, so I should at least show this much consideration. Then I'll have to release my remaining passion (?) on Arisu.</p>
-<p>But where was Arisu's room?</p>
-<p>###</p>
-<p>A few hours ago, the Metropolitan Museum of Art.</p>
-<p>Arisu Fitzgerald and Nae Fitzgerald attended the exhibition together. Today was the day to start the exhibition of world armor and cold weapons, so Nae Fitzgerald and Arisu Fitzgerald came to the museum together as representatives of the Fitzgerald family, which donated related items to the museum.</p>
-<p>Nae Fitzgerald, a prominent figure in New York, even went on stage to give a congratulatory speech. Nae Fitzgerald's goddess-like appearance in a body-hugging black dress was so beautiful that she stole everyone's attention.</p>
-<p>Nae Fitzgerald finished her congratulatory speech and stood next to Arisu Fitzgerald, who was standing in a corner below the stage, wearing a blue, sophisticated dress, holding her handbag in one hand and her mother's handbag in the other, which she had taken up to give the congratulatory speech.</p>
-<p>Arisu's expression seemed slightly dissatisfied and sulky, even though her mother had just given a congratulatory speech.</p>
-<p>"Did you check the infiltration and escape routes while I was giving the congratulatory speech?"</p>
-<p>"It's not my first time at the Metropolitan Museum, Mom. Just do what we did before."</p>
-<p>When Nae Fitzgerald, who had come down from the stage, asked, Arisu Fitzgerald answered with a slightly indifferent expression.</p>
-<p>"Tsk~! You're just sulking because I wouldn't let you play with Ryuta, right?"</p>
-<p>"It's been a long time since I've seen you 'officially', Mom, but how can you take me to a 'job' right away like this?"</p>
-<p>"You can call this a mother-daughter date?"</p>
-<p>At Nae Fitzgerald's words, Arisu Fitzgerald opened her mouth with a slightly relieved expression, saying "Chee."</p>
-<p>"I don't think Route A, which we used when we infiltrated twice, will work anymore. They've welded that side shut."</p>
-<p>"Then we can go with Plan B. That side is okay, right?"</p>
-<p>"Yeah, they wouldn't even think of that side."</p>
-<p>The two mothers and daughters started to slowly look around the exhibits, saying things that others couldn't understand.</p>
-<p>"Is there anything good?"</p>
-<p>"Well, there are quite a few shiny things. They must all be historically significant items."</p>
-<p>Arisu Fitzgerald was using her innate 'Eyes of Gruagach' to find good items among the exhibits in the museum.</p>
-<p>"Ah, that!"</p>
-<p>Arisu Fitzgerald said, pointing to one of the exhibited items. What Arisu Fitzgerald pointed to was a large sword made of gold alloy.</p>
-<p>"Hmm, that sword.... It's like a relic found in ruins, but we don't even know what era it's from, so it doesn't have much archaeological or historical value, does it? The color is gold, but it's not real gold either."</p>
-<p>Arisu Fitzgerald saw the true value of an item with her Eyes of Gruagach, while Nae Fitzgerald evaluated items with her accumulated knowledge and information.</p>
-<p>"Then that means it's a relic with power?"</p>
-<p>"Maybe? We'll have to get it and experiment...."</p>
-<p>Relics with power were words created by the two of them, referring to relics with some kind of special power, as the name suggests. The two mothers and daughters continued to talk and walk around the museum.</p>
-<p>"Oh? That's shining a lot too!"</p>
-<p>"That's not particularly valuable either...."</p>
-<p>This time, what Arisu Fitzgerald pointed to was not a weapon or armor, but a surcoat worn over armor in the Middle Ages. There were surcoats with ornate family crests or crosses embroidered on them next to it, but this surcoat was jet black without any patterns.</p>
-<p>"Then this must be a relic with power too."</p>
-<p>Arisu Fitzgerald chose five items while going around the museum, but in Nae Fitzgerald's view, they were all just items displayed to fill the numbers and were not that precious.</p>
-<p>"It's quite unusual that all five of the ones you chose are relics with power?"</p>
-<p>"Isn't it because New York is a Demon Metropolis, just like Mom said before? They naturally flow in."</p>
-<p>Nae Fitzgerald nodded at Arisu Fitzgerald's words. Whether it was because the land had been strange since ancient times, various strange things gathered in New York, so it was called a Demon Metropolis by those who knew the fact.</p>
-<p>"All five of the ones you chose are small items for Phantom Thief Françoise to steal, so it would be perfect to steal the Lion King's Three Lions Crest Shield as well."</p>
-<p>"Shh! Mom! How can you say that out loud here!"</p>
-<p>At Nae Fitzgerald's sudden words, Arisu Fitzgerald raised her index finger and blocked Nae Fitzgerald's mouth. According to Nae Fitzgerald's words, Nae Fitzgerald or Arisu Fitzgerald seemed to be the famous Phantom Thief Françoise. Or maybe it was both of them.</p>
-<p>"There's no one here. Do you think I would have talked if there was someone listening?"</p>
-<p>"Still, you have to be careful."</p>
-<p>Even though Arisu Fitzgerald was her daughter, she scolded Nae Fitzgerald like a mother nagging her immature daughter, and Nae Fitzgerald puffed out her cheeks as if she didn't want to listen.</p>
-<p>"It's our first collaboration in a while, so stop nagging and let's go out and make a plan."</p>
-<p>"Sigh, okay."</p>
-<p>The two talked like ordinary mothers and daughters again and went out of the Metropolitan Museum. The inside of the museum was very quiet, like the calm before the storm, as if predicting what would happen in the future.</p>
-<p>------Unused cuts</p>
-<p>Arisu</p>
-<p>Nae</p>
-<p>Auntie~! I'm dying!!</p>
+<p>"This is a sculpture that a deep-sea fishing vessel pulled up from the middle of the Pacific Ocean! We don't know what era it's from, but isn't it amazing that it came from the middle of the Pacific?"</p>
+<p>To someone who doesn't know better, they might think it's just marine debris that was thrown away from the US or Japan, but it looked completely different to me.</p>
+<p>◆■̶̡̙͔̾̇͝■̵̢̛͖̪̦̐̆͌̓̔̚■̶̡̙͔̾̇͝■̸̧̛̞͙̠̈̅͌̉'s Sculpture [Legendary Relic]</p>
+<p>A sculpture made by ●̵●̵●̧̱̩̪̯͕●̸̨̛●̷̡̛̬̭̮̥͕̀̌, the father of ■̶̡̙͔̾̇͝■̵̢̛͖̪̦̐̆͌̓̔̚■̶̡̙͔̾̇͝■̸̧̛̞͙̠̈̅͌̉, to commemorate the birth of ■̶̡̙͔̾̇͝■̵̢̛͖̪̦̐̆͌̓̔̚■̶̡̙͔̾̇͝■̸̧̛̞͙̠̈̅͌̉.</p>
+<p>Once every 100 years, liquid forms at the tips of both breasts. The liquid that forms on the right tip is said to grant knowledge, and the liquid on the left tip is said to grant wisdom.</p>
+<p>(99.9958/100)</p>
+<p>Consuming the liquid from the right nipple increases Knowledge by 4, and consuming the liquid from the left nipple increases Intelligence by 4. Consuming both liquids additionally weakens the side effects of the Abyss and increases the efficiency of Abyss stats.</p>
+<p>Shit, what? I have to get that! It had a cooldown of 100 years, but it was an amazing elixir maker that raised stats by a whopping 8 in total. Moreover, the cooldown was almost fully charged.</p>
+<p>If the cooldown had 100 years left, I might have hesitated to buy it, but seeing the number 99.9945 made me anxious that liquid would soon be dripping from both nipples of the sculpture.</p>
+<p>Although they were Knowledge and Intelligence stats that I didn't really need, stats are always welcome. In particular, Knowledge stats can only be raised through learning, so being able to raise them with an elixir like this was an incredibly rare case.</p>
+<p>Besides, it's not just any sculpture, but it's listed as ■̶̡̙͔̾̇͝■̵̢̛͖̪̦̐̆͌̓̔̚■̶̡̙͔̾̇͝■̸̧̛̞͙̠̈̅͌̉, so it must be the Abyss's Daughter's sculpture. As the husband of the Abyss's Daughter in that world(?), I couldn't give my wife's(?) figure to someone else.</p>
+<p>"The starting price is 20,000 points!"</p>
+<p>That's so cheap? I immediately pressed the bid button on the tablet. Arisu and Nae Fitzgerald looked at my first bid with curiosity, but I kept my mind focused on the tablet to win the figure... I mean, the sculpture.</p>
+<p>"32,000 points, any higher? Then it's sold for 32,000 points, congratulations!"</p>
+<p>A few people bid out of curiosity, but even if they were rich, no one would buy an item salvaged from the sea for tens of thousands of dollars without knowing its origin. In the end, I was able to win the sculpture for 32,000 points.</p>
+<p>"Why did you buy something like that?"</p>
+<p>Mimata Chieri looked at me strangely and asked. The Fitzgerald mother and daughter didn't say anything, but they had expressions that said, "Why that thing?"</p>
+<p>"I just felt drawn to it."</p>
+<p>Since I couldn't say, "I actually had sex with the same otherworldy god as that sculpture...," I just brushed it off by saying I was drawn to it.</p>
+<p>"Well, you can use it as an interior decoration."</p>
+<p>Everyone nodded at Arisu's words. It's not an interior item, but I bought it for use as a sucking pacifier. After eating the elixir, I can give it back to the Abyss's Daughter as an offering. The next 100-year cooldown is too long.</p>
+<p>The next item came out, and after a few more items, I saw a bracelet. It looked like a bracelet made of rope woven with golden thread.</p>
+<p>◆Bracelet of Reverse Restraint [Epic Accessory]</p>
+<p>When restrained by a rope-type item, it can be reflected back to an opponent within 3 meters once a year.</p>
+<p>The activation phrase is Attachez-vous.</p>
+<p>Hmm, does that mean if I get tied up, it bounces back and ties up the opponent within 3 meters instead? The cooldown is 1 year? I gave Arisu the smoky necklace, so should I give that to Nae Fitzgerald as a gift?</p>
+<p>"I'll buy this and give it to Nae-ssi as a gift."</p>
+<p>"Oh, really?"</p>
+<p>I was going to give it as a gift, so I told her in advance so that the price wouldn't go up if we bid against each other. When I said I would give it as a gift, Nae smiled brightly and hugged me. And she kissed me on the cheek.</p>
+<p>Chup chup.</p>
+<p>Nae Fitzgerald's kisses went from her cheek to her ear and neck, gradually heading towards my erogenous zones. It was enough foreplay to anger my dick, who has anger management issues that flare up with the slightest touch.</p>
+<p>"Hehe, I'm not wearing panties."</p>
+<p>Nae Fitzgerald whispered to me, feeling my dick harden. I pressed the bid button on the tablet and said, "Do whatever you want, auntie," and she immediately lowered my zipper with a jiiiik sound.</p>
+<p>Nae Fitzgerald immediately took out my dick and lowered her waist as it sank into her warm pussy. I couldn't help but moan with pleasure at the pushing pressure unique to Nae Fitzgerald.</p>
+<p>"Keueut!"</p>
+<p>"Ryutaa-hat♥ Auntie's pussy feels good, right?"</p>
+<p>Nae Fitzgerald moved her waist smoothly and pleasantly, continuing to whisper lewd words in my ear. While I was swept away by pleasure, I looked at the tablet and pressed the bid button each time my lead was about to be taken away.</p>
+<p>"Ahhh!!"</p>
+<p>In the end, the Bracelet of Reverse Restraint was won along with Nae Fitzgerald's climax, and the price was 1.32 million points. It was expensive for a gold bracelet, but I had so many points that it didn't even show that I had spent that much.</p>
+<p>"Next is my turn, right?"</p>
+<p>Arisu waited as if she was lining up for the bathroom and sat on top of me, saying that. Since when did the underground auction become a sex event zone?</p>
+<p>While everyone was shaking their hips on top of me, I kept looking at the auction with eyes to see if there was anything useful. Then, a ruby earring in the shape of a cross with +1 Health and +1 Resistance appeared, so I bought it. It was won for 2 million points.</p>
+<p>Who should I give this to...? I've already given gifts to everyone here in New York, so I'll pass on that. I'll have to think about it a little.</p>
+<p>"Haaang♥ It feels so good! Let's go, let's gooot! Junior-niim!"</p>
+<p>Mimata Chieri, who had been watching others do it first before joining in, felt a climax and hugged me.</p>
+<p>"Everyone, stick out your butts and stand in front of me."</p>
+<p>I was about to cum because I had already sent three people. I shook it inside Nae Fitzgerald, who ran over first, and then I buuut and ejaculated once, blocking the ejaculation by grabbing my urethra with my hand. Then I ejaculated into Arisu, and finally, I ejaculated into Mimata Chieri as expected.</p>
+<p>Mimata Chieri, who was already in the middle of her climax, fluttered and rolled her eyes back when she received my semen. It was very satisfying to see the scene of white semen dripping from the three women's moon-like butts and pussies as I pulled out my dick.</p>
+<p>Hoo... I feel refreshed somehow. Ah, but the front of my pants was soaked with the three women's fluids, making it look like I had pissed myself.</p>
+<p>"I'm going to go to the bathroom."</p>
+<p>I went to the bathroom, rinsed the front of my pants with water, and dabbed it with a handkerchief. I'm screwed. I hope this doesn't leave a stain.... Just in case, I sent a text to Eve through the underground auction app.</p>
+<p>Ryuta: Do you happen to have a quick laundry service at the auction house?</p>
+<p>Eve: Of course! People tend to spill water often since it's a closed room. You need laundry service, right? An employee will be there shortly.</p>
+<p>That's a relief. They even have laundry service.... I went back to the room with my pants off.</p>
+<p>The three women, who had already satisfied their desires, were watching the auction with expressions of enlightenment. Soon, a female employee came in, gave me sweatpants to wear temporarily, and took my pants. She was startled when she saw the silhouette of a snake in my underwear, but I couldn't help it. I can't shrink it.</p>
+<p>The underground auction's service was fast, probably because this kind of thing happened often. I was able to receive my pants back in perfect condition before two auction items had passed.</p>
+<p>I gave the employee who brought my pants a tip and put on my pants. The auction, which had been going on, was coming to an end, and in the end, a tiara that a queen had used was put up for auction.</p>
+<p>Arisu and Nae Fitzgerald threw away their enlightened time and participated with expressions that said, "I must buy that!" but they didn't win in the end. It was won for a whopping 78 million points.</p>
+<p>"It was probably bought by someone from that royal family or country. It's not easy to win against them as an individual."</p>
+<p>Nae Fitzgerald hid her disappointed expression and moved on. But she couldn't leave the room right away because she had to receive the items she had bought.</p>
+<p>I sent the ruby earrings to Japan and decided to receive the Abyss's Daughter's sculpture and the Bracelet of Reverse Restraint right away. Nae Fitzgerald and Arisu decided to have the jewelry they bought delivered, so all I had to do was receive my items.</p>
+<p>Soon, the door opened and a burly male employee came in, gave me the sculpture and bracelet, and left. First, I put the Bracelet of Reverse Restraint on Nae Fitzgerald's right wrist. I explained the bracelet's ability to Nae Fitzgerald and told her the activation phrase.</p>
+<p>"Was the pearl necklace you gave me before something you could really use?"</p>
+<p>I smiled and nodded at Arisu's question. I think she just brushed off my words that smoke would come out if I threw it before.</p>
+<p>"The bracelet can be used once a year, and the necklace is disposable, so I'll buy you something else if you use the necklace."</p>
+<p>"Okay, thank you! Ryuta is the best♥"</p>
+<p>Arisu hugged me, and when I looked at Nae Fitzgerald, she was stroking the bracelet I had put on her with a blissful expression. Mimata Chieri wasn't disappointed at all because she had received several gifts since coming to New York.</p>
+<p>"I'll definitely bring you the Japanese sword you asked for."</p>
+<p>"Yes, I'll be waiting. Nae-ssi."</p>
+<p>Nae didn't hug me because Arisu was hugging me, but she kissed me on the cheek and said she would definitely bring me the unexpected disaster. We came out of the auction house and got into the limousine. It was time to go to LA.</p>
+<p>-----</p>
+<p>The Abyss's Daughter illustration is mentioned after a long time!</p>
+<p>The Abyss's Daughter with an elixir(?) coming out of her chest like a sculpture!</p>
+<p>I wanted to make it with a cute drawing style today, so I made it like this hehehe</p>

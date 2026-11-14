@@ -5,88 +5,53 @@ weight = 1046
 chapter = 1046
 +++
 
-<p>"Ah, there they are...!"</p>
-<p>As the Heupyeolgui unit melted into the Darkness and disappeared, Lianna Holden, as if pointing at a passing dog, very easily aimed a submachine gun to one side and fired.</p>
-<p>Tatatatang!</p>
-<p>Along with the muzzle flash, Blood splattered in the empty space. Of course, I was also concentrating this time and could feel where the Enemies were moving, but I didn't know Lianna Holden would find the concealed Heupyeolgui so easily.</p>
-<p>"Kwaaaah! Die!!"</p>
-<p>Tatatatang! Tang! Tatatatang!</p>
-<p>The Heupyeolgui unit, which reappeared, perhaps feeling that Concealment was useless, began a reckless volley of Marksmanship. Although they were hit by the gun Lianna Holden fired, perhaps because it wasn't a silver Bullet, they recovered quickly.</p>
-<p>We had already hidden behind the alley or a large iron Trash Can, a Dumpster, so we could avoid the Heupyeolgui's gunfire.</p>
-<p>Although I could have just stood there, trusting the psychokinetic Reaction shield, this also consumes Mental Power, so hiding was a better Choice. I needed to conserve Mental Power to use more of my Power when recapturing Sajo.</p>
-<p>"How did you find them?"</p>
-<p>Hearing the Tangtangtang! of gunshots, I asked Lianna Holden. I was curious how she found the concealed Heupyeolgui so easily.</p>
-<p>"Well.... Since I'm a Telepathy Ability User, even if I can't read thoughts, I can naturally feel the mental waves that Person is thinking. No matter how well they hide."</p>
-<p>Oh, Telepathy has such a function.... It's a complete Concealment Character Counter, isn't it? Usually, Telepathy-specialized Characters are not Combat Class, so I didn't know about this Ability from using them as Operators. Lianna Holden is also an Operator, after all.</p>
-<p>"Stop the Chatter and take this."</p>
-<p>Kurayamada Kirie handed a Magazine each to Lianna Holden and Sawayanagi Azuma.</p>
-<p>"What is it?"</p>
-<p>"It's a Magazine filled with silver Bullets. I brought one each just in case, and it turned out well."</p>
-<p>Perhaps because she had Subspace, she seemed to have packed items to prepare for various situations. Kurayamada Kirie put the Sword she was using into Subspace, and took out a glittering Sword that appeared to be coated with silver.</p>
-<p>As expected, every time I see Subspace, I envy it. Being able to change Equipment depending on The Situation was a huge advantage. It was like being able to become an all-rounder Character. However, spatial Traits rarely appear, so unless one is incredibly lucky, they don't manifest, so I could only continue to envy it.</p>
-<p>"When this Marksmanship ends, we Counterattack immediately."</p>
-<p>The Heupyeolgui's Ammunition wouldn't be infinite, and there would be time to change Magazines, so I suggested we Counterattack when the Marksmanship ended. Everyone nodded their Heads, and a few seconds later, the noise of the Marksmanship ceased, so I was the first to deploy a shield and burst out.</p>
-<p>"Huh?!"</p>
-<p>As if they had guessed we would burst out, I saw the chattering leader of the Heupyeolgui unit aiming what looked like an anti-tank Missile. Since guns weren't working, they must have intended to blow us up entirely.</p>
-<p>I quickly stretched out my Hand, and used Telekinesis to lift the Missile launcher aimed at us upwards. Simultaneously, the Missile was fired.</p>
-<p>Kwaaaang!</p>
-<p>With a tremendous roar, the Missile hit the Building. The Remains of the Building fell, raising Dust.</p>
-<p>Explosions, collision sounds, and the noise of something collapsing were already loudly occurring in various places throughout the New Rochelle area, so a slightly damaged Building was no big deal.</p>
-<p>"Hmph! A Superhuman, were you? We absolutely cannot let a human variant steal the Book of Completion!"</p>
-<p>"I told you I'm not aiming for your so-called Book of Completion!"</p>
-<p>I charged, feeling Frustrated by the Heupyeolgui unit leader's Words. The moment I charged, Sawayanagi Azuma and Lianna Holden provided covering Marksmanship, and Kurayamada Kirie also began running behind me, holding her Sword.</p>
-<p>It was then.</p>
-<p>From behind the Heupyeolgui unit, with the sound of energy Guns firing, woong! woong!, several individuals began to attack the Heupyeolgui unit. I didn't know who they were, but if they were helping, I should gladly accept it.</p>
-<p>I ran towards the unsightly Heupyeolgui unit leader, and delivered a Creation Chaos Style: Star Shatter to his Face. As his Head was struck by a fist condensed with destructive Energy, his Head itself exploded, scattering brain matter and Blood around.</p>
-<p>Even if they were Heupyeolgui who could regenerate with just Blood, if the harm was enough to make their Head explode and disappear, they wouldn't be able to survive even if a swimming pool's worth of Blood was poured on them.</p>
-<p>Kurayamada Kirie also vertically split the Heupyeolgui who appeared to be a subordinate leader next to the Heupyeolgui leader. The cut surface burned black by the silver Sword, and the sight of it writhing in Pleasurable Ache and turning to ash showed just how vulnerable Heupyeolgui are to silver.</p>
-<p>While we hunted four or five Heupyeolgui, those who ambushed from the rear also swept away the remaining Heupyeolgui, and before long, no living Heupyeolgui existed in this alley.</p>
-<p>Jeobeok jeobeok.</p>
-<p>Those who ambushed the Heupyeolgui approached us through the dark alley Passage. The ones who appeared were three individuals armed with cyber suits and our TG Tech energy Guns, and the slender-figured Combatant leading the way removed their helmet.</p>
-<p>"Huh?! Seari."</p>
-<p>"Investor-nim~!"</p>
-<p>The Face revealed after removing the helmet was Sawayanagi Seari, with pointed ears. I thought her Figure looked familiar, and it turned out to be someone I knew.</p>
-<p>Sawayanagi Seari giggled, ran to me, and hugged me.</p>
-<p>The remaining cyber suit Combatants were Sawayanagi Shigeru, a Speedster Ability User, and Lee Du-yeong, who possessed regeneration Ability. Both bowed their Heads slightly and gave me a greeting, so I also bowed my Head and returned the greeting.</p>
-<p>"Seari, how are you here?"</p>
-<p>Sawayanagi Azuma asked, looking curious.</p>
-<p>"Well.... As the battlefield moved north, our Points also changed. Our team was in charge of this Surroundings, but we overlapped with a pack of Heupyeolgui and were fighting them. We got pushed back a bit while fighting and were running away, then came to this alley because of the loud noise, and since Investor-nim's Party/Group was here, we helped you."</p>
-<p>Because so many people were gathered, even these outskirts Points seemed to have fierce competition to secure a spot. By the way, pushed back, you say.... Sawayanagi Seari has Elf Traits, so her Combat power is considerable, so it seems the number of Enemies was quite large.</p>
-<p>"Are the Heupyeolgui that strong?"</p>
-<p>I asked, looking puzzled. Besides Sawayanagi Seari, Lee Du-yeong and Sawayanagi Shigeru are also Ability Users, so they don't seem like a team that would easily flee. Are the Heupyeolgui that strong? Even if Heupyeolgui are an overpowered Race, it was still a bit puzzling.</p>
-<p>"Their Combat power is usually at the level of a PMC Soldier, but the Heupyeolgui clan gathered here has Concealment as a Trait, so they're a bit tricky to deal with...!"</p>
-<p>Ah, so it was indeed difficult to deal with them because of Concealment.</p>
-<p>"Ah! There's no time for this! The Heupyeolgui will flock here. We'll handle this place, so Investor-nim, please quickly rescue Sajo-nim!"</p>
-<p>Although Sawayanagi Seari was making a Fuss, telling us to go first, saying the Heupyeolgui would soon rush in, I was thinking about the Heupyeolgui's Concealment Ability.</p>
-<p>Tricky to deal with because of Concealment, huh.... There's a Method. Sawayanagi Azuma and I looked at each other, then nodded our Heads. We both had the same thought, didn't we? Sawayanagi Azuma stepped forward and opened her mouth.</p>
-<p>"Anyway, we have to keep moving towards the center.... I'll provide Lianna to your team as support. Because Lianna can easily find Enemies in Concealment."</p>
-<p>"I'm confident I can find them no matter where they hide, so leave it to me~!"</p>
-<p>Originally, Lianna Holden's Role was not a Combatant but an Operator, so if she went with us towards the Fragment of Omniscience, where tiered battles would be frequent, she could suffer great harm.</p>
-<p>Lianna Holden also knew well that it would be of greatest Help to fight the Heupyeolgui here, then go to the mobile Command post and play the Operator Role, so she stepped forward, saying to leave it to her.</p>
-<p>"Ah, Lianna was here...! If Lianna is with us, we can clear out all the Heupyeolgui."</p>
-<p>Sawayanagi Seari nodded her Head, saying that Lianna Holden was trustworthy. She seemed to think that if Lianna Holden could break through the Heupyeolgui's Concealment, they could definitely win.</p>
-<p>"If the Heupyeolgui are dealt with, could you please take Holden to the Command post?"</p>
-<p>"Of course~! Lianna's Operation will be of Help to Investor-nim!"</p>
-<p>At my Request, Sawayanagi Seari nodded her Head greatly and answered. Seeing her immediately talk about the Operator, she seemed to have accurately grasped my Intention.</p>
-<p>As we talked, I felt a presence approaching. Sawayanagi Seari's Expression, which had been smiling brightly, turned serious, and she soon put her helmet back on.</p>
-<p>"Now, the Heupyeolgui will gradually flock here. Investor-nim's Party/Group, please quickly pursue the Black Knight!"</p>
-<p>"I'll leave the rear to you."</p>
-<p>At Sawayanagi Seari's Words, I said I would leave the rear to her, then grabbed Sawayanagi Azuma and Kurayamada Kirie by their waists and leaped onto the Building.</p>
-<p>As we climbed onto the Building's rooftop, the purple sky with a crescent moon and the night streets of New Rochelle were visible. Of course, the Appearance was not a pleasant sight. This was because explosions were occurring here and there, and intact Buildings were collapsing with a rumble.</p>
-<p>I didn't know who would take Responsibility for this Mess, but it wouldn't be me, so I flew over the Buildings towards North Avenue in New Rochelle with Telekinetic Flight.</p>
-<p>Seari B-cut~!</p>
-<p>She originally wears a teal-colored cyber suit, but since her True Identity shouldn't be revealed, she fights in a black cyber suit in New York haha.</p>
-<p>RefundNeverPossible-nim requested: Teacher Gajeong and Lisa-ttang doing the Zero Two dance in a bikini with nipples slightly visible, with a shy Expression~!</p>
-<p>Lisa-ttang~!</p>
-<p>When I used the See-Through prompt, strange Clothes came out instead of a bikini, so I just used a prompt for nipples to protrude~!</p>
-<p>Teacher Gajeong~!</p>
-<p>MidNightSKY-nim requested: Shii awkwardly showing Aegyo, Shii feeling shy after showing Aegyo~!</p>
-<p>Aegyo~!</p>
-<p>Bukku</p>
-<p>Gojoy-nim requested: Shinoe Misano 1. Surprised Expression upon realizing the protagonist is Taira, and 2. Aroused Expression thinking of the protagonist in bed~!</p>
-<p>1.</p>
-<p>2.</p>
-<p>Chomisaemeonji-nim requested: Mira Liz, Ribbon Liz~!</p>
-<p>Mira~!</p>
-<p>Ribbon~!</p>
-<p>There isn't much difference except for the Color hehehe.</p>
+<p>I, who had dealt with Behemoth, decided to express my gratitude to the unknown person who had greatly contributed to the victory by slowing Behemoth in the end. As I approached closer, the Helper was the person I had met before fighting Behemoth.</p>
+<p>"Whisper...?!"</p>
+<p>The Helper Kurayamada Kirie brought before me was none other than Whisper. Perhaps because she had fought Kurayamada Kirie, the speaker on her Shoulder was completely torn off, and her helmet seemed to be forcibly reattached, but it was definitely the Whisper I had just seen. Come to think of it, an Ability User capable of slowing an opponent with just her Voice could only be Whisper in this vicinity.</p>
+<p>What I was curious about was how Kurayamada Kirie had persuaded Whisper. Surely, they were fighting when they parted ways? And she was on Behemoth's side.</p>
+<p>"H-how could you... defeat Behemoth with your bare Fists...?!"</p>
+<p>Whisper also seemed surprised to see me. Of course, Whisper herself had betrayed Behemoth and helped me, but it seemed she couldn't believe that I had beaten Behemoth to death with my Fists. Indeed, Behemoth was that formidable. I too would have been defeated if not for Enlightenment and help.</p>
+<p>"What happened?"</p>
+<p>First, instead of Whisper, who was flustered and disoriented, I looked at Kurayamada Kirie standing next to me and asked.</p>
+<p>"It was all because of Sawayanagi Azuma-ssi's precognition. Ah, she's coming over there now." "Hm?"</p>
+<p>At my question, Kurayamada Kirie spoke of Sawayanagi Azuma. Looking where Kurayamada Kirie pointed, Sawayanagi Azuma, with various Guns including a shotgun slung over her, was seen coming towards us.</p>
+<p>Since Sawayanagi Azuma had parted ways before Kurayamada Kirie, it made sense chronologically to meet her after Kurayamada Kirie. The story of precognition Kurayamada Kirie mentioned, I thought I could hear it from Sawayanagi Azuma, the precognitive Ability User herself.</p>
+<p>"Investor-nim~! You won after all...!" "You too, Azuma-ssi."</p>
+<p>Sawayanagi Azuma had told us to go first, saying she would deal with the giant thorny vine Monster. Aside from a bit of soot on her cyber Suit, seeing that she was unharmed, it seemed she had won without much difficulty.</p>
+<p>"First, I'd like you to explain about the precognition." "As Investor-nim knows, I precognize in the form of prophetic dreams. Normally, I just precognize scene by scene of the future, but in battle missions, at critical junctures concerning my Safety or my comrades' Safety, I sometimes dream one single dream for several days."</p>
+<p>Up to this point, this was the story of Sawayanagi Azuma's precognition that I roughly knew. While doing PMC work where lives hung in the balance, the fact that none of the Seryu Military Company Members had died could all be attributed to Sawayanagi Azuma's precognition.</p>
+<p>"To explain a bit more in detail, although they are repeated prophetic dreams, their content changes. While dreaming, when I take different actions in the same Situation, I continuously dream of how the future changes. I then look at those dreams and choose the most suitable action." Ah.... I hadn't known the detailed content of her precognitive Ability until now, but hearing it, I realized that Sawayanagi Azuma's prophetic dreams were a considerably cheating Ability. Although it's mostly limited to combat situations, being able to advance the future several Regression cycles in advance means there is no Failure in battle.</p>
+<p>"Today was the same. If Kurayamada-ssi and Investor-nim had attacked Whisper together, Behemoth would have joined, making things harder, and if Kurayamada-ssi hadn't persuaded Whisper, Investor-nim would have been the one defeated in the end."</p>
+<p>Only now did I understand why Sawayanagi Azuma had said, 'Kirie-ssi, do you remember what I said?' when she parted ways with the Party. It seemed the two had joined forces without my knowledge to save my life. Perhaps if I had known, the future would have changed again, so they hadn't told me.</p>
+<p>"Thank you, Azuma-ssi." "Ehehe...! It's something I naturally had to do. If I were in Danger, Investor-nim would help me too, wouldn't you?" "Of course."</p>
+<p>Now that I roughly understood how things had unfolded, I should have a brief talk with Whisper. Since it was still a battlefield, there wasn't time for a long conversation.</p>
+<p>As I approached Whisper, Kurayamada Kirie explained beside me. "Actually, Whisper joined Superior to kill Famine."</p>
+<p>Aha, now the Situation seemed to roughly fall into place. I had been curious why Whisper helped me, and why I, who knew the game's content, didn't know the name Whisper. Perhaps at some point in the future, Whisper attacked Famine and was killed in a Counterattack, or her True Identity was exposed and she was eliminated by Famine. If not, she might have lost her life meaninglessly while on a Superior mission. In that case, joining our side would be the best Choice for Whisper. At the very least, she wouldn't lose her life. And though not now, I intended to have a Match with Famine someday, so while it would take time, the opportunity for Revenge wouldn't disappear either.</p>
+<p>"Whisper-ssi. Thank you. Thanks to you, I was able to defeat Behemoth."</p>
+<p>First, since Whisper had helped me, I expressed my gratitude. Whisper, only then shaking off her surprise at me having killed Behemoth, accepted the greeting.</p>
+<p>"W-well, it was for a deal, so it's fine."</p>
+<p>Of course, after Kurayamada Kirie defeated Whisper by force, she must have half-Coerced her into persuasion, but Whisper must have agreed because she also desired something. Since she wanted to kill Famine, she probably desired something related to that.</p>
+<p>"For now, let's talk about the details a bit later. The Place isn't suitable, and I need to take care of the last colleague."</p>
+<p>Genbaki and Musashi Takuro must have taken Sajo to the Command center, so our people guarding the Points were probably in the process of Withdrawal. However, seeing that there was no Contact from Master Fujigasaki Rinka's side, it seemed she had gotten into some kind of Quarrel at the center of the All-Knowing Fragment scramble. She had clearly said she would join immediately if Sajo was found, but seeing no reply, it seemed she didn't even have time to make Contact.</p>
+<p>"For now, I should go towards Master. Everyone, Retreat."</p>
+<p>Since I had psychokinetic Flight, a Transport team wasn't necessary. I could just fly and Retreat as quickly as possible, which would be much faster than a Transport team running through alleys on bikes.</p>
+<p>"...Investor-nim, please be careful. This is Point W. Everyone, withdraw."</p>
+<p>Sawayanagi Azuma nodded, and began issuing the Withdrawal Order to everyone over the radio.</p>
+<p>"Please tell me Master's approximate Position."</p>
+<p>I requested Master's Position from the Command center. Since I had saved my Master's Master, it was now my Turn to save my Master.</p>
+<p>"I'll pass through the central area and head North. You check the West." "Alright. We'll look around the West and if there's nothing, we'll join you." "Good. The first one to find something reports to the Command center, and everyone joins there, understood?" "Yes, Master."</p>
+<p>Fujigasaki Rinka, who had briefly encountered Taira Ryuta, had her Disciple scout the West, and headed towards the center of the All-Knowing Fragment scramble, where the most intense battle was currently taking place. Kureureung!! The closer she got to the center of the All-Knowing Fragment scramble, the sky rumbled and Lightning struck, and shockwaves from the clash of powers were collapsing Buildings.</p>
+<p>"It's a good thing I came alone."</p>
+<p>Fujigasaki Rinka muttered as she watched Buildings Collapse and Remains tumble down. Of course, her Disciple had grown considerably in a year, but she couldn't make him patrol such a Danger area for his Master, whose Face he didn't even know. The Disciple would willingly step into Danger to save Sajo, but there was a limit to Danger, and she, as the Master, felt more at ease going to such a dangerous Place herself.</p>
+<p>-Kyaaaak!</p>
+<p>Suddenly, Something that burst out, breaking through the Concrete floor, attacked Fujigasaki Rinka. Fujigasaki Rinka, without surprise, calmly swung her Hand.</p>
+<p>-Shinkai Yatsude (Deep Sea Eight Hands) Isshokuga Imanshi (One Touch Becomes Ten Thousand Branches)</p>
+<p>Like the name of the martial arts form, which means "One Tentacle becomes Ten Thousand Branches (一触化万支)," a dark surge of energy burst from Fujigasaki Rinka's fist, splitting like tree branches and piercing through the monsters that had broken through the floor and sprung out, all at once.</p>
+<p>"Ugh.... What is that?!"</p>
+<p>Fujigasaki Rinka frowned, looking at the fallen creatures. The Monsters killed by Fujigasaki Rinka's single strike were reptilian humans. They were Lizardmen living in the New York Underground, a demi-human race similar to werewolves.</p>
+<p>Possessing Body abilities similar to werewolves, they were Monsters difficult for ordinary humans to contend with, but once they encountered Fujigasaki Rinka, they were merely small fry to be dealt with in a single Martial Arts Form.</p>
+<p>Fujigasaki Rinka leaped over the Lizardmen's Corpses and continued running. The closer she approached the center, the Buildings had already all collapsed, giving it a flat, plain-like feel, making it easy for Fujigasaki Rinka to find her Master, who was wearing a fake Black Knight attire.</p>
+<p>Because she didn't have to wander through Buildings and Buildings, alleys and alleys. As she ran, looking around the Surroundings, she saw those fighting over the All-Knowing Fragment at the center.</p>
+<p>"It's certainly Fortunate I didn't send my Disciple here...!"</p>
+<p>A Vampire profusely spraying immense Blood, a Vampire Hunter in thick Armor wielding a greatsword, unusual Magicians in robes and hoods wildly casting magic, a Lizardman wielding a Spear adorned with flashy Gold ornaments, and even a werewolf with a flowing silver Mane.... Each one was a Strong Person with whom Fujigasaki Rinka, who prided herself on being the best, would find it difficult to guarantee Victory.</p>
+<p>Chomisaemeonji-nim requested Liz sniper Shot, Magician Liz~! Magician Liz~! She feels like a Black Wizard hehe. Sniper Shot Bonus~! Liz suddenly appeared as two people, so I'm uploading it as a bonus hehe</p>

@@ -5,74 +5,68 @@ weight = 960
 chapter = 960
 +++
 
-<p>and breast chapter check contains exposure please surroundings this your</p>
-<p>After finishing that noisy Outdoor Play walk, Hanakame and I came back inside. The thrilling, precarious feeling of almost getting caught could be said to be the charm of Outdoor sex, but a Security Guard shining a flashlight nearby felt more urgent than thrilling, so I didn't want to experience it again.</p>
-<p>Next time I have Outdoor sex, a quiet park or a secluded alley like last time would be good.</p>
-<p>"Hanakame-ssi, are you packing your Luggage?"</p>
-<p>Once inside, we drank tea with sweet pudding to replenish calories after Sex. Now that the battle with Anyaji was over, the most important Issue was moving house, so I asked if she was packing her Luggage, just as I had asked Urabe Konoka.</p>
-<p>"I have quite a lot of Luggage, so it's actually convenient."</p>
-<p>"What?"</p>
-<p>Hanakame said something strange. Convenient because she has a lot of Luggage? Shouldn't less Luggage be more convenient?</p>
-<p>"I have many items for Jusul and things brought from the Shrine on Chooten Island, so I've put them all in a Container warehouse. It's convenient because I can just move the whole thing. Of course, I have to pack basic Clothes and personal possessions separately, but there aren't many of those, so they're easy to pack."</p>
-<p>Ah, so she meant that since she had so much Luggage, she put it all in a Container warehouse, and she could just move it as is. That would indeed reduce the time spent packing. Since Hanakame usually wears Miko clothing, she probably doesn't have many Clothes, and as a Shrine Maiden serving a god, she doesn't seem to have much personal Luggage either.</p>
-<p>"My Husband will be the busiest. After all, you have to make all the Decisions."</p>
-<p>"No, executing the Decisions is more tiring than making them. My subordinates are the ones who suffer, you know."</p>
-<p>Hanakame might be saying that out of worry for me, but in fact, I wasn't that busy. Even if I make the Decisions, there's a lot of Work for my subordinates to handle.</p>
-<p>Especially since I don't yet have a bureaucratic team to be my Hands and Legs, the Information team, Joseodang, is struggling in that Role, but I plan to create a team that will plan future Work and Support me. There are many Talents in this area in Large Corporations, so if I get a branch from Danjo-harabe, I plan to recruit from there.</p>
-<p>After that, I spent some time chatting and then got up. It was time to head Home. On my way out, I peeked into Urabe Konoka's Room and saw her lying spread-eagled, fast asleep with a deeply satisfied Expression. I chuckled at the sight and closed the Door.</p>
-<p>"Konoka is asleep."</p>
-<p>"Ufufufu, it must be her first Sexual Intercourse in a long time, so she must be relaxed. Well then... please be careful on your way, Husband-nim."</p>
-<p>With Hanakame's farewell, I descended the Shrine stairs and headed towards the electric bike I had parked.</p>
-<p>"Jurie seonsaengnim... are you alright?"</p>
-<p>Shimokawabe Airen removed her Bandage and opened her mouth, looking at Kijimoto Jurie seonsaengnim, who was examining the affected area with a crazed Expression.</p>
-<p>Shimokawabe Airen was slightly surprised by Kijimoto Jurie's Appearance, which was completely different from her usual harmless and gentle demeanor.</p>
-<p>Shimokawabe Airen was quite surprised by the Information that Kijimoto Jurie seonsaengnim was an Assassin.</p>
-<p>In fact, before hearing the Story, she didn't even know that Kijimoto Jurie was affiliated with the problem solvers of St. Francis Girls' Academy. This was because when many personnel were needed, the Daigo Family's direct PMC would step in, and individual problem solvers like Shimokawabe Airen were tasked with dealing with individuals or small groups, so they didn't often encounter each other on missions.</p>
-<p>Especially since Kijimoto Jurie's Style was to Assassinate with Poison rather than a trained Body, Shimokawabe Airen had never noticed anything particularly strange about Kijimoto Jurie's Body before.</p>
-<p>Shimokawabe Airen was quite surprised to hear that in this battle against Anyaji, Kijimoto Jurie had killed over thirty of Anyaji's Support unit with Poison.</p>
-<p>"...."</p>
-<p>So focused was she that Kijimoto Jurie seemed not to have heard Shimokawabe Airen's Question, still examining the affected area with her crazed Expression.</p>
-<p>For reference, Fujigasaki Rinka, who shared the Hospital Room, was absent, planning with the Members who were going to the USA with her in the Lounge, leaving Kijimoto Jurie and Shimokawabe Airen alone.</p>
-<p>She saw her friend's urgent Expression, which was rare to see, but Shimokawabe Airen could understand it, thinking that she herself would make such an Expression if she heard that her Sabu, who had been missing, had been found.</p>
-<p>Lying still and showing her wound was quite tedious, so Shimokawabe Airen grabbed the Rimokon and turned on the TV.</p>
-<p>On the TV Screen, an article about the Black Knight who appeared in New York was being broadcast.</p>
-<p>-The Black Knight, who has reappeared, is capturing criminals in New York. There are pros and cons regarding this....</p>
-<p>Shimokawabe Airen knew that the Black Knight in New York was a fake. This was because she knew that Taira Ryuta was the Black Knight. She had seen him fight in the Black Knight Armor at the end of the Takakusaki battle, and her Sabu, Fujigasaki Rinka, had confirmed it was true.</p>
-<p>Moreover, after seeing that News, Fujigasaki Rinka learned that her Sabu was in New York, USA. The self-proclaimed Black Knight's fighting Appearance was captured by citizens' Cameras, and numerous Videos of it were uploaded to SNS. Fujigasaki Rinka saw this and realized that the fake Black Knight was both an Abyss User and a Shinkaiyatsude Training practitioner.</p>
-<p>There were only two people on Earth who used both Abyss and Shinkaiyatsude simultaneously. Originally there were three, but Taira Ryuta abandoned the Abyss and forged his own path, leaving only Fujigasaki Rinka and her missing Sabu, Soda Haruto.</p>
-<p>Therefore, Fujigasaki Rinka was convinced that the fake Black Knight was her Sabu, Soda Haruto. That's why she was rushing her discharge and preparing for her trip to the USA.</p>
-<p>In fact, in Shimokawabe Airen's view, Fujigasaki Rinka had not fully recovered. Even if her Body was intact, she had lost a significant portion of the Abyss, one of the foundations that made up Fujigasaki Rinka, to Takakusaki Gengo, so her current Situation could be said to be quite incomplete.</p>
-<p>Although Taira Ryuta, her Disciple, knew this and had assigned several people to her, as a friend, she couldn't help but worry.</p>
-<p>While worrying, she also thought that she herself would have prepared just as hastily as Fujigasaki Rinka, so she couldn't say anything to her friend.</p>
-<p>"It seems my research into Jusul Poison since last semester has paid off!"</p>
-<p>Kijimoto Jurie opened her mouth, wearing her usual gentle Expression instead of the crazed one from moments ago.</p>
-<p>"Can it be Treated?"</p>
-<p>"Yes. Of course, it won't be a 'yap!' recovery like in a game, but it should be possible to reduce the full recovery period from 5 weeks to 3 or 4 weeks."</p>
-<p>Shimokawabe Airen was satisfied with that. She had only been in the Hospital for a day, but not being able to move her Body made her restless.</p>
-<p>She wanted to wield her Sword right now, but she couldn't because the Doctor had told her that Athletics were strictly forbidden.</p>
-<p>"For now, I've only finished the examination for today, so I'll bring the Medicine tomorrow."</p>
-<p>Kijimoto Jurie said, re-wrapping the Bandage around Shimokawabe Airen's affected area. Although it was a shame that Treatment couldn't start immediately, Shimokawabe Airen nodded her Head.</p>
-<p>"Oh my, look at that. It's scary.... They say eighteen people were killed!"</p>
-<p>The News Screen was broadcasting a report on the Village A Murder Incident, the next story after the fake Black Knight. Kijimoto Jurie spoke as if scared while wrapping the Bandage, but Shimokawabe Airen was dumbfounded by her Appearance.</p>
-<p>This was because she thought it wasn't a Story for Kijimoto Jurie, who had killed over thirty of Anyaji's Support unit yesterday, to tell.</p>
-<p>"Indeed. It's scary."</p>
-<p>Contrary to her thoughts, Shimokawabe Airen judged that it was not good to point this out to the Doctor treating her, so she agreed with Kijimoto Jurie's Words and nodded her Head.</p>
-<p>In fact, for Shimokawabe Airen, it was less scary and more quite an intriguing Incident. Having already seen the Murdered Corpses circulating on the Internet, Shimokawabe Airen was convinced that the Killer was no Normal Person.</p>
-<p>The Appearance of people split in half, with sunken breasts, or pierced Furrowed Brows, indicated that the opponent possessed immense Super Strength, and the Appearance of limbs severed by something told her that the Killer possessed superpowers. As a Kendo Expert, looking at the severed Limbs' cross-sections, it was clear they were not cut by a Sword.</p>
-<p>"The World is getting more dangerous. Shimokawabe seonsaengnim, you're pretty, so be careful!"</p>
-<p>It felt a bit strange for her to be told to be careful, knowing her Skill to some extent, but since she had excluded Kijimoto Jurie from the realm of Normal People ever since seeing her crazed Expression earlier, Shimokawabe Airen said 'Thank you for your worry' and bowed her Head.</p>
-<p>"Well then, see you tomorrow~!"</p>
-<p>"Yes, please go carefully."</p>
-<p>With a 'Deureureuk' sound, the Door closed, and after Kijimoto Jurie left, Shimokawabe Airen picked up her phone and looked at the Corpses from the Village A Murder Incident once more.</p>
-<p>And seeing the traces left on those Corpses, Shimokawabe Airen created a virtual Enemy, closed her Eyes, and began to fight that virtual Enemy.</p>
-<p>Since the Doctor had told her not to move her Body but hadn't told her not to engage in virtual battles, Shimokawabe Airen relentlessly simulated a battle in her Head against the imaginary Killer of the Village A Murder Incident.</p>
-<p>Requested by TheDreaming-nim: Shimokawabe Mikiyo Interview in the swimming pool 1. Lower Body hidden by water Situation 2. Hands covering Situation~!</p>
-<p>1.</p>
-<p>Her Appearance is like she's reaching out her Hand saying 'Give me the Camera' haha.</p>
-<p>2.</p>
-<p>Since it was about covering with Hands, I changed it to a Scene where she's almost lying down but standing haha.</p>
-<p>Requested by MidNightSKY-nim: Alik singing and dancing in a Talent Show Conversation, Ryuta in extreme rage seeing the bed Shii broke~!</p>
-<p>Alik~!</p>
-<p>For a Talent Show, the Stage feels quite grand haha.</p>
-<p>Enraged Ryuta~!</p>
-<p>It seems the broken bed wasn't part of the Learning haha.</p>
+<p>The path leading to Lizhael's Shrine was created with the feeling of a short Walking Path. Going up the Hill behind the mansion, it was a short path connected to the Shrine's rear entrance. Our mansion was directly attached to a not-so-high Hill, making it a convenient distance for travel.</p>
+<p>The Shrine's main gate, or Entrance, was located on the opposite side of our mansion, and on the side connected to our mansion, accommodation was built, so in case there were any visitors to the Shrine, security was maintained to the extent of ensuring our mansion's minimal privacy. Of course, those potential visitors were also expected to be almost non-existent.</p>
+<p>Since Lizhael was not a God who needed faith, there was no intention to promote anything. Although there was a thought to promote if something was needed later, it wasn't now.</p>
+<p>One might say that ensuring minimal privacy was too complacent, but since this Shrine itself was under Lizhael's Influence, if someone were to Jamip into the Shrine to Surveillance or infiltrate our mansion, they would inevitably face an extremely harsh fate. It was a similar principle to not needing to put a complex maze in a Dungeon guarded by a dragon.</p>
+<p>In fact, Naruse Shiyo, who was a real (half) dragon, also lived here, you see.</p>
+<p>As I climbed the stairs with various random thoughts, I soon saw the Shrine's rear entrance. Opening the red lacquered door, the Appearance of the Shrine was visible. Hmm, this side was also properly constructed.</p>
+<p>"Ryuta-nim~!"</p>
+<p>"Sensei-nim!"</p>
+<p>"...!"</p>
+<p>Because I had informed them of my visit via Text Message in advance, when I opened the Shrine's rear entrance, Urabe Konoka and Hanakame, dressed in Miko clothing, were waiting for me. And there was one more person; a beautiful girl with navy pigtails was standing, looking at me.</p>
+<p>She was also wearing Miko clothing, like Urabe Konoka and Hanakame, and it seemed the Reason Urabe Konoka and Hanakame had gone to Tokyo in advance yesterday was probably because of that girl. On the surface, she was just a beautiful girl.... but I felt a very familiar dark Aura from her.</p>
+<p>"And this person...?"</p>
+<p>At my Question, the girl with navy pigtails stepped forward. Although it was our first meeting, the girl's Eyes were filled with Affection for me. It felt somewhat familiar. Because of the Aura I felt from the girl and the familiar way she looked at me, the girl didn't feel like a stranger.</p>
+<p>"I'm Tsukiyo. Oppa."</p>
+<p>The beautiful girl with navy pigtails, Tsukiyo, introduced herself while looking at me. For reference, she didn't say "Oppa" in Japanese, but in Korean.</p>
+<p>"I'm Taira Ryuta. Nice to meet you."</p>
+<p>Since the other person had greeted me, I also introduced myself and greeted her. Since she called me Oppa, it seemed fine to speak to her casually. But no matter how much I thought about it while greeting her, I had never heard the name Tsukiyo before. Tsukiyo (月夜), meaning 'Moon Night'... It was a very pretty name, but not a common one.</p>
+<p>"Are you happy to see me?"</p>
+<p>Although it was just a greeting of "Nice to meet you," Tsukiyo's Eyes sparkled with joy upon hearing my "Nice to meet you." She suddenly sprang out and ran over, rubbing her cheek wildly against the Back of my Hand.</p>
+<p>"Hmm.... Could you give me an Explanation?"</p>
+<p>"Well...."</p>
+<p>When I asked for an Explanation, looking at Tsukiyo rubbing her cheek against my Hand, Urabe Konoka began to explain Tsukiyo with an Expression that seemed to ask how to explain this.</p>
+<p>Urabe Konoka's Explanation was quite a shock. In other words, this Tsukiyo here was a God born from the shell that remained when Lizhael shed the shell of Simyeonui ttal and underwent Ascension. That's why an Aura very similar to the Abyss was felt from Tsukiyo.</p>
+<p>Lizhael not only from the Abyss, but also from some offerings imbued with the Divinity I had dedicated, had left behind things she didn't need, and these had mixed, creating an Aura similar to the Abyss but somehow different.</p>
+<p>What surprised me next was that this delicate-looking Tsukiyo was the culprit behind the recently topical A-village Mass Murder Incident. It was said that she had carried out Revenge for the Physical Body that was currently in Tsukiyo's Appearance, and because of this, she had become entangled with Japanese government organizations, but they said the details would be explained later. For now, they said not to worry, as it had been resolved well with the government.</p>
+<p>In fact, once I learned her True Identity, my Taut Tension eased, and I came to understand the Affection Tsukiyo had for me. It seemed she was born with the Memories of Simyeonui ttal, and thus inherently possessed Love for me.</p>
+<p>"First, shall we all go eat a Meal?"</p>
+<p>"Me, delicious food~!"</p>
+<p>Tsukiyo reacted quickly to my word "Meal." Did she like Meals because she liked my offerings...? For now, with Tsukiyo still rubbing her cheek against my Hand, I left the Shrine with Urabe Konoka and Hanakame and headed back to the mansion.</p>
+<p>We decided to have the Meal in the restaurant on the first floor of the main building, and since it was the first Meal on the first day at the mansion, everyone decided to gather and eat together. From then on, there would be no need to come all the way to the main building; they said arrangements would be made so everyone could eat in the restaurant of the building they were staying in.</p>
+<p>Anyway, currently, the only people living outside the main building were Shimokawabe Airen, Kijimoto Jurie, and the Shrine Maidens, so most people would probably meet in the main building's restaurant.</p>
+<p>As I opened the restaurant door and entered, everyone was waiting for us. It seemed quite a lot of Time had passed, more than I thought, while listening to Tsukiyo's Story.</p>
+<p>"Ryuta...!"</p>
+<p>Seeing Tsukiyo clinging to my Hand, Alik came running over and clung to my other Arm. I sat down, with Alik and Tsukiyo clinging to both my Hands.</p>
+<p>"Who's this cutie?"</p>
+<p>Otagi Yuka asked, looking at Tsukiyo. Since Otagi Yuka also had a history of bringing a new Friend named Seiwa Rieko, it seemed she intended to help introduce the newly joined Tsukiyo to everyone.</p>
+<p>Since Otagi Yuka had also somewhat annoyingly introduced Seiwa Rieko to our people while taking her around, it seemed she was introducing her now, when so many people were gathered.</p>
+<p>For reference, Seiwa Rieko had not joined this Morning, saying she had something to discuss with her Parents, but she was scheduled to come to the mansion this Evening after finishing that matter. Anyway, since she would be leaving for the USA tomorrow with Otagi Yuka and Seizawa Shii for a Mission to find my Grandmaster, a separate room was not assigned; she was allocated to a guest room. A formal room assignment would be made upon her return from the USA.</p>
+<p>"She's our Newcomer~! Since we're the only ones left at the Shrine, we wanted a few more people."</p>
+<p>Urabe Konoka answered the Question instead. She explained it exactly as she had said on the way down. Thinking there was no need to specifically explain Tsukiyo as a God, she replaced it with the Explanation that she was a Shrine Newcomer. And the statement that she was a Shrine Newcomer wasn't a lie, either.</p>
+<p>"Hello everyone~! I'm Tsukiyo, who absolutely loves Ryuta Oppa~!"</p>
+<p>While rubbing her cheek against my Hand, she seemed to have heard everything, and Tsukiyo introduced herself to everyone. Whether "Tsukiyo, who absolutely loves Ryuta Oppa" was an appropriate self-introduction, I didn't know, but everyone seemed to nod in understanding with an Expression that another eccentric had arrived.</p>
+<p>As the commotion caused by Tsukiyo subsided, after a short wait, the Maids brought out the food, and all the dishes looked excellent. I didn't know who Butler Tosen Nobumichi had heard what from, but the amount of food on the Plate in front of me was certainly very generous.</p>
+<p>"Let's all get along well, and please help me a lot in the future."</p>
+<p>""Yes~!""</p>
+<p>"Got it, Ryuta-cchi!!"</p>
+<p>"Ryuta, Alik will help...!"</p>
+<p>"Ryuta Oppa, can I eat the food?"</p>
+<p>"I will help Sensei-nim...!"</p>
+<p>"I will turn everyone who bothers Ryuta Sensei-nim into taxidermied specimens."</p>
+<p>Still, since it was the first Meal eaten at the mansion, I thought I'd say a word, so when I spoke, meaning "please take care of me in the future," everyone answered according to their Individuality. Although most answered with "Yes" or "Got it."</p>
+<p>And when the Meal began, as expected of a chef brought by a Butler recommended by the Tairaga's Mistress, their Skill was extraordinary.</p>
+<p>Alik ate his Meal, his Eyes sparkling as he watched the Maids in maid uniforms moving around, munching away, and Tsukiyo continuously exclaimed "Delicious~!" eating with an Expression of deep emotion with every bite.</p>
+<p>The rest of the people also seemed to be eating with Satisfaction. Kijimoto Jurie was eating, wondering what ingredients were in the food, and Otagi Yuka was served a very red Wine (?).</p>
+<p>Seizawa Shii and Naruse Shiyo, who were physical fighters like me, also seemed satisfied with the food, gobbling it down, and Saionji Diana, Urabe Konoka, and Hanakame also wore Smiles on their Mouths, seemingly satisfied with the Meal.</p>
+<p>Shimokawabe Airen, still a patient, was served a patient's Meal, and despite it being a patient's Meal, she was eating quite well.</p>
+<p>After finishing such a satisfying Meal, and even devouring a very satisfying Dessert, we gave a thumbs-up to Butler Tosen Nobumichi, who was in charge of the housework. Since we had such a satisfying Meal, I should enjoy the Lingering Feeling, rest a little, and then continue with the next schedule.</p>
+<p>The next schedule was to tour the Hatake Investment Company building that I had seen while coming to the Neo Tokyo mansion today. Since not everyone necessarily needed to go, I opened my mouth, looking around while sitting at the Siktak.</p>
+<p>"I'm planning to go to the Hatake Investment Company building that I saw on the way here. Who wants to come?"</p>
+<p>Everyone raised their Hands at my Question. I had expected a few to opt out, but it was quite unexpected that everyone said they would go together.</p>
+<p>Gojoy-nim requested Han Yu-gyeong's Casual Clothes and In Underwear Attire</p>
+<p>First, Casual Clothes~!</p>
+<p>She wears comfortable Clothes when relaxing at Home or taking her summoned beasts for a walk, hehe.</p>
+<p>But when she works, she wears a business Suit, hehe.]</p>
+<p>Underwear~!</p>

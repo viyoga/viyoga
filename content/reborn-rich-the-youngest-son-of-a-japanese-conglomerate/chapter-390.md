@@ -5,82 +5,75 @@ weight = 390
 chapter = 390
 +++
 
-<p>"Did you cum as soon as I put it in? You seemed incredibly starved."</p>
-<p>"Haaah, ungh...♥"</p>
-<p>Kijimoto Jurie, showing her ass to me after cumming as soon as I put it in, instinctively wiggling her butt. Her throbbing pussy from the orgasm felt so good.</p>
-<p>As expected of the school nurse, her pussy had a gentle feel, making me want to tease and torment her for some reason. It was a gentle, masochistic pussy.</p>
-<p>"Then I'll move."</p>
-<p>"No way... If you move more here, hngh♥ I'll become strange♥"</p>
-<p>She kept wiggling on top, which was unsatisfying, so I grabbed Kijimoto Jurie's waist to move myself. Kijimoto Jurie whined that she would become strange if I moved.</p>
-<p>She says no with her mouth, but her pussy is squeezing tightly, feeling good. I don't know if she's saying no or yes.</p>
-<p>I guess it's better to follow the will of her pussy rather than her mouth. I grabbed Kijimoto Jurie's body with my strength and started moving her up and down. As expected, following the will of her pussy was the right answer, as Kijimoto Jurie started making sweet moaning sounds.</p>
-<p>"Hyaa, haaang♥ At this rate...! I'll become Ryuta-nim's, hng! Onahole!"</p>
-<p>Kijimoto Jurie, who was quite demure until recently, knows the word "onahole." I wondered what she's been watching lately.</p>
-<p>"How's the taste of my dick? You were a virgin until recently, yet you're dripping wet like this. Jurie-ssi, were you a pervert?"</p>
-<p>"Hmph...! I'm not a pervert, haaang♥"</p>
-<p>I teased her a bit, and she said she wasn't a pervert while enjoying it immensely? I continued to grab and move Kijimoto Jurie's body like an onahole, whispering "pervert" in her ear. Her ears would turn red and twitch every time, which was quite amusing.</p>
-<p>"Haa, haa, ungh! I'm not a masochistic pervert, haang♥"</p>
-<p>I shook my arms to the rhythm of Kijimoto Jurie's moans and the faint sound of waves outside. I'm getting tired of this position, so I should change to another one. I turned Kijimoto Jurie's body around and switched from a rear-facing position to a face-to-face position.</p>
-<p>"Heeung...! Ryuta-nim♥"</p>
-<p>She says she's not a masochist, but her honorific changed from Ryuta-ssi to Ryuta-nim. Kijimoto Jurie looked at my face with blurred eyes, put her hands around my neck, pulled me in, and started kissing my lips.</p>
-<p>Chuub, chwib, chuuub! Tzzwib...! Tzzb♥</p>
-<p>Kijimoto Jurie, moving her hips on her own and making lewd noises, was kissing me passionately. I pinched and caressed her nipples protruding from her slingshot swimsuit. I pinched them hard enough to hurt a little, and her pussy squeezed and contracted as much as I pinched, which was quite fun and felt good.</p>
-<p>"Haaht! It hurts, but it feels good... Ryuta-nim!"</p>
-<p>"Where does it hurt but feel good?"</p>
-<p>"Haaah, ungh♥ Jurie's protruding nipples!"</p>
-<p>Enjoying Kijimoto Jurie's reactions like this, I grabbed her slender waist and shook my arms until I gradually felt the urge to cum.</p>
-<p>"Jurie, I'm going to cum inside."</p>
-<p>"Heeung...! Inside, inside is no good♥"</p>
-<p>I always carry emergency contraception pills as well as regular birth control pills, so I always cum inside, regardless of whether the woman refuses or not.</p>
-<p>Sometimes I want to see Semen on their face, so I shoot it on their face, but cumming inside gives me a tremendous sense of conquest.</p>
-<p>Buut! But! Byuut!</p>
-<p>"No way~! Hng, it feels good...! Ryuta-nim's baby juice feels good, haang...♥"</p>
-<p>Kijimoto Jurie, making contradictory statements, saying she didn't like it but then saying it felt good as I cum with tremendous force. But her eyes are rolling back and she's drooling, so I guess I should assume she likes it.</p>
-<p>###</p>
-<p>Of course, I couldn't be satisfied with just one round of sex, so Kijimoto Jurie had to receive my Semen in her uterus three more times. There was so much Semen that I started to worry if the birth control pills would even work, so I stopped having sex, put my arm around Kijimoto Jurie, and started chatting.</p>
-<p>"What did you talk about in that girls' talk?"</p>
-<p>"Ah, girls' talk? When I talked there, Ryuta-ssi, you were very popular, you know? There were a few students who said they liked someone who started with Ya and ended with Ta. I don't know who it is, but there was one student who said they liked someone who started with Ta and ended with Ta..."</p>
-<p>Right now, my name at school is Yamashiro Ryuta, so the only person who starts with Ya and ends with Ta is me. Besides, if it starts with Ta and ends with Ta, that's also me. Because it's Taira Ryuta...</p>
-<p>By the way, who's the girl who said it starts and ends with Ta? It won't expose my identity, but isn't that too careless?</p>
-<p>"I'm curious."</p>
-<p>"But I don't know either. We talked anonymously in VR girls' talk."</p>
-<p>Is it fortunate that it's anonymous? But if it's anonymous, all sorts of stories must have come out, right? After that, Kijimoto Jurie told me a lot of stories that people listening wouldn't know, but there were a lot of stories about me.</p>
-<p>What I did with Daigo Terue, Seizawa Shii hanging my Semen-stained sheets at the laundromat, the story of a man who started with Ya and ended with Ta wearing jeans and his dick silhouette was amazing... Hmm, I didn't know it would become such a hot topic. I should be careful with my actions in the future.</p>
-<p>"I guess the homeroom teacher is a handsome male teacher, so they're interested. You're not touching the students, are you?"</p>
-<p>Kijimoto Jurie asked me with a slightly worried expression. Of course, the only person I'm going to actively seduce is Minamoto Risa, who is the reason I came to St. Francisco Girls' Academy. I don't plan to actively seduce anyone else. Half of them are minors, so I have to be careful.</p>
-<p>"I'm not interested in minors."</p>
-<p>"Ah, is that so...?"</p>
-<p>Kijimoto Jurie said "is that so" and then looked at me with a look of realization. There are quite a few female students in the class who are not minors, so she must be surprised.</p>
-<p>"Ryuta-sensei, no, right? You're joking, right?"</p>
-<p>"About what?"</p>
-<p>I asked back with an innocent expression, "What's wrong?" and Kijimoto Jurie couldn't say anything with a flustered expression.</p>
-<p>"I'm kidding. I'm hungry, should we eat something?"</p>
-<p>"Okay!"</p>
-<p>Kijimoto Jurie quickly relaxed her flustered expression at my words that I was joking and answered with a smile. Well, things that seem like jokes sometimes happen in reality.</p>
-<p>###</p>
-<p>-Everyone, please get up and come out onto the deck. You can see Kojima (小島), the island owned by Risa-ojousama. Please enjoy the view before disembarking from the cruise.</p>
-<p>Ah, is it already morning? I woke up to the broadcast and checked the time, and it was 7:30 AM.</p>
-<p>Kijimoto Jurie had gone back to her room after having sex and eating late-night snacks together yesterday, so I was alone in the cabin. If we came out of the same room in the morning, uncontrollable rumors would spread, so I had to be careful.</p>
-<p>I got out of bed, stretched, washed my face roughly, and went up to the deck. There was a breakfast buffet set up on the deck, and an island was visible in the distance.</p>
-<p>Hmm, are we supposed to eat while watching the island arrive in real time? I yawned with messy hair, grabbed a plate, and started scooping up food.</p>
-<p>As expected of a breakfast buffet, there weren't any fancy menus, so I piled up scrambled eggs, bacon, and pancakes, and grabbed soup and orange juice before sitting down.</p>
-<p>As I was sitting at the table, blankly admiring the sea, Seizawa Shii, Minamoto Risa, Kujo Kina, and their group came out to the deck. Then the three of them approached the sea and shouted.</p>
-<p>"It's the sea~☆"</p>
-<p>As expected, someone has to say "Umi da--!!" to get the feeling of being at the sea. Minamoto Risa and her group, who had been looking at the sea and the island we would soon be disembarking on, scooped up some food from the breakfast buffet and sat down in front of me.</p>
-<p>"Ahaha! Ryuta-cchi, what's with your hair?"</p>
-<p>"Sensei, how's your physical condition? You can spar today, right?"</p>
-<p>Seizawa Shii laughed loudly at my messy hair, and Kujo Kina was worried about my physical condition as her sparring partner. Minamoto Risa was elegantly pouring milk into her cereal and eating it. Even a chaebol heiress eats cereal for breakfast.</p>
-<p>"My hair is like that because I haven't washed it yet, and I can spar even now."</p>
-<p>For reference, Seizawa Shii's meal was a pancake with lots of fruit, and Kujo Kina's was scrambled eggs, bacon, and pancakes like mine, but she didn't pour as much syrup on her pancakes as I did.</p>
-<p>Soon after, the students came up with sleepy eyes, scooped up food, and were quietly eating while looking at the sea and the island.</p>
-<p>The island slowly came into view, and I could clearly see its details. There was a large villa on the island, a small forest, and a white sandy beach that looked fairly wide. It was called Kojima, which means 'small island,' but it was spacious enough for the special class female students and me to play on.</p>
-<p>As I was observing the island, a manager ahjussi with a bowler hat and mustache approached the table.</p>
-<p>"You will disembark on Kojima in thirty minutes after finishing your meal. Please prepare to disembark during those thirty minutes."</p>
-<p>That means eat, wash up, and pack your bags well for thirty minutes. After the cruise manager ahjussi finished speaking, Minamoto Risa stood up and opened her mouth.</p>
-<p>"While you're preparing, change into your swimsuits. We'll be swimming and playing at the beach in the morning."</p>
-<p>"Ryuta-cchi! Look forward to it~☆"</p>
-<p>I don't know what she wants me to look forward to, but I feel a little better thinking about seeing the swimsuits of all the students in the class. Then I should wash up and get off the ship in my swimsuit. Should I go down and prepare?</p>
+<p>After we thoroughly ripped off BS Defender and framed Park Young-beom for Park Il-soo's actions, even killing him, Han Yu-gyeong and I moved quite busily.</p>
+<p>We threatened Park Il-man, whose forces were annihilated and had no power left, to get what Vanguard should have originally received, had meetings with researchers to study the samples obtained from Shinseong Group's laboratory, and helped with the test firing of the energy gun TG-EL-0001 research that Lara Sinclair had suddenly dropped out of. From Friday afternoon to Sunday afternoon, we moved non-stop.</p>
+<p>Han Yu-gyeong was even doing the final negotiations with the BS Group on Sunday, which was her birthday.</p>
+<p>Meanwhile, I rented a hotel penthouse and was decorating the room with some of Vanguard's personnel to prepare a surprise party.</p>
+<p>,Please put the balloons over there.</p>
+<p>In particular, Lee Yeon-ju, the vice president of Vanguard, was working hard. Perhaps because she was close to the president, Han Yu-gyeong, she took the initiative to give instructions to her subordinates.</p>
+<p>Lee Yeon-ju is a fairly charismatic woman with short black hair who usually wears sunglasses, and she was the daughter of the president of Vanguard, the best security company in Korea, excluding large corporations' own security companies.</p>
+<p>In the past, Lee Yeon-ju's father had a rare incurable disease that cost a fortune to treat, so he put the company up for sale to earn the treatment costs. Just in time, Han Yu-gyeong, who had made a huge fortune by investing in Health Miracle, which developed a hair loss treatment, acquired Vanguard and appointed Lee Yeon-ju, who knew Vanguard well, as vice president.</p>
+<p>Thanks to that money, Lee Yeon-ju was able to treat her father and did not have to leave Vanguard, so she was extremely loyal to Han Yu-gyeong. She followed Han Yu-gyeong without a shred of doubt, enough to carry out even cold-blooded orders such as dealing with Park Young-beom, a member of the BS Group, without hesitation.</p>
+<p>This surprise party was also planned by Lee Yeon-ju. I was just going to give a gift and provide Han Yu-gyeong with sex service all day, but I couldn't show any displeasure at the idea of having a birthday party for my girlfriend.</p>
+<p>Like Mimata Chieri, Lee Yeon-ju also had a significant physical ability due to bio-modification and was an expert in firearms and explosives, so if she was given just one gun, she was skilled enough to take out a platoon-sized regular unit on her own. She looked slender on the outside, but her stats themselves would be quite high due to the modification.</p>
+<p>She knew that Han Yu-gyeong had made money thanks to me and acquired Vanguard, so she treated me well in her own way, and it seemed that her evaluation of me had risen slightly after learning that I had attracted and dealt with 160 BS Defender agents this time.</p>
+<p>,Jin Yong-tae-ssi, did you prepare a gift for the president?</p>
+<p>,Yes. I prepared a bracelet. What about you, Yeon-ju-ssi?</p>
+<p>I showed the packaged box slightly and asked Lee Yeon-ju, and Lee Yeon-ju showed me a box packaged in black. Her clothes are all black, she really likes black. Today is Han Yu-gyeong's birthday party, so she wasn't wearing sunglasses, but she was wearing all black, from black shorts to a black t-shirt, black jacket, and black shoes. It was a bit gloomy, but it suited her well in its own way.</p>
+<p>,My gift is a throwing knife set.</p>
+<p>Throwing knives as a birthday present... Even if Han Yu-gyeong has the throwing master trait, I wonder if she'll like receiving a knife as a birthday present.</p>
+<p>,Hello~!</p>
+<p>While we were busy decorating the party room, Son Na-ri, a close friend of Han Yu-gyeong, and several female students came into the hotel room, greeting us. It's comfortable because there are no male friends. With Han Yu-gyeong's appearance, there would be platonic lovers who claim to be her friends, but it seemed that Han Yu-gyeong was handling it well on her own.</p>
+<p>,Hello.</p>
+<p>,Ah! Yu-gyeong's boyfriend~!</p>
+<p>Since Son Na-ri and I had seen each other's faces, we greeted each other and were introduced to the rest of the friends. Most of them were very curious to meet Han Yu-gyeong's boyfriend, whom they had only heard rumors about, and they also greeted Lee Yeon-ju.</p>
+<p>,You're the president's friend. How do you do?</p>
+<p>It was not uncommon for students to start businesses while attending Korea University, the best university in Korea, but it was rare for someone like Han Yu-gyeong to become the president of a large company from her freshman year, so attention was focused on Lee Yeon-ju as well.</p>
+<p>Still, perhaps because female college students came, the preparations were completed quickly. The preparations were just blowing up a few balloons and changing the lighting.</p>
+<p>If Han Yu-gyeong's mother, Ha Ju-yoon, attended here, the atmosphere would completely explode, but Ha Ju-yoon was in the United States filming the next season of the mid that she had filmed.</p>
+<p>After the divorce, she was almost in trouble due to Shin Kang Group's scheme, but she was able to recover with the help of Nae Fitzgerald. It was a big turning point that Nae Fitzgerald appointed her as the East Asia ambassador for her luxury brand, Legion, and even advertised for her.</p>
+<p>Han Yu-gyeong had been quite worried before, but she said that she was less worried because Ha Ju-yoon quickly recovered. She said that she had met Nae Fitzgerald, who had come to Korea, but I was a little worried about what Nae Fitzgerald would say, but it seemed that she didn't say anything in particular.</p>
+<p>,She's coming up now!</p>
+<p>Lee Yeon-ju said to everyone after looking at her phone. I prepared the cake, the others held the firecrackers, and Son Na-ri held the camera and waited.</p>
+<p>The door clicks open, and Whitey, Han Yu-gyeong, and Dickson enter.</p>
+<p>Pop!</p>
+<p>,,,,Happy birthday!</p>
+<p>With the sound of firecrackers exploding around her, I held out the cake to Han Yu-gyeong, who was widening her eyes, and said happy birthday.</p>
+<p>,T, Thank you...!</p>
+<p>Perhaps because all her close friends came, Han Yu-gyeong seemed quite touched. Han Yu-gyeong, who received the cake with slightly teary eyes, smiled bashfully, so I smiled a little mischievously, put the whipped cream from the cake on my index finger, and then applied it to Han Yu-gyeong's cheek. Han Yu-gyeong also smiled and applied the cream from the cake to my nose.</p>
+<p>Soon after, a catering buffet and alcohol came in, creating a party atmosphere. Before we started the party, we made a call to have a video call with Ha Ju-yoon. Ha Ju-yoon must have been waiting for the call, as she answered right away, wearing a slightly low-cut dress and jeans.</p>
+<p>,Ah, Mom~! It's too low-cut!</p>
+<p>Han Yu-gyeong nagged, but Han Yu-gyeong's friends behind her took her side, saying, ,You're pretty, Mother~!</p>
+<p>,Oh my, this is nothing in America~! Yong-tae also came to the birthday party? Then I should have gone too~♥</p>
+<p>,I know, right? It's a shame I can't see you, Noona.</p>
+<p>When I called Ha Ju-yoon ,Noona, as I usually do, Han Yu-gyeong glared at me, but everyone laughed at my title, so she couldn't get angry.</p>
+<p>,I always feel good when I hear the word ,Noona,? Yu-gyeong-a, don't get too angry~! You know I told Yong-tae to call me ,Noona.?</p>
+<p>,Sigh.... I understand. I won't say anything. How's life in America, Mom?</p>
+<p>The two mothers and daughters talked for quite a long time, as if they had so much to say. Just as we were getting bored, Ha Ju-yoon finished the conversation with a sense of humor.</p>
+<p>,The kids will be bored waiting for us to finish our call. I'll just give the gifts and hang up~!</p>
+<p>As soon as Ha Ju-yoon finished speaking, Lee Yeon-ju gave Han Yu-gyeong a gift. It seemed that Ha Ju-yoon had sent the gift to Lee Yeon-ju in advance. Inside the box was a wallet from Legion, a luxury brand that is Nae Fitzgerald's company and for which Ha Ju-yoon is the East Asia ambassador.</p>
+<p>,Thank you, Mom!</p>
+<p>,I've filled it with some money, so use it well.</p>
+<p>A wallet + money gift is quite something, huh? Having given the gift, Ha Ju-yoon winked at me and flirted with me before finally ending the call, as if to say that was enough.</p>
+<p>,Yong-tae! Call me when you come to America. Let's go on a date with Noona~!</p>
+<p>,Mom!!</p>
+<p>Han Yu-gyeong screamed, but the call had already ended. Everyone laughed at the sitcom-like situation, but no one would know that I actually had a relationship with Ha Ju-yoon.</p>
+<p>After hanging up, we first had a meal and talked. Whitey was also eating the feed that Han Yu-gyeong poured for him in one corner, and he was getting a lot of love from the female college students.</p>
+<p>During the meal, the sound of footsteps was heard from outside, and then the door opened and Lara Sinclair entered.</p>
+<p>,Happy birthday, Han Yu-gyeong.</p>
+<p>Lara Sinclair handed Han Yu-gyeong the TG-EL-0001, which had a slightly different design, as a birthday present. Lee Yeon-ju gives a knife and Lara Sinclair gives a gun, is this right?</p>
+<p>,It's the improved version, TG-EL-0002.</p>
+<p>She's already improved it. Giving that as a birthday present to Han Yu-gyeong, it seemed like a thoughtful gift in its own way. It seemed that she had done quite a few experiments to match Han Yu-gyeong's birthday.</p>
+<p>,What is it?</p>
+<p>,Is it a water gun?</p>
+<p>Han Yu-gyeong's friends showed curiosity and looked at the gun. It looked like an SF gun, so it seemed that none of them thought it was a real gun.</p>
+<p>,Don't touch it. It's a gun made in the new laboratory I built....</p>
+<p>,Ah! Really??</p>
+<p>When she said it was a real gun, everyone looked at Lara Sinclair in surprise. Of course, Lara Sinclair was just standing there expressionlessly as usual.</p>
+<p>,Did you give a new research result as a gift?</p>
+<p>,Positive. I worked hard to make it by today.</p>
+<p>Everyone seemed to be more or less convinced when she said that she gave a new research result as a gift, not the gun itself. Fortunately, the gun's battery pack was removed, so there was no need to worry about someone shooting it while drunk during the party.</p>
+<p>,It seems like everyone is giving gifts, so shall we have a gift-giving ceremony?</p>
+<p>Son Na-ri looked around and opened her mouth to make up for the slightly awkward atmosphere caused by the gun.</p>
 <p>----</p>
-<p>Swimsuit Students PART1</p>
-<p>Shido Tsubaki's swimsuit with denim bottoms.</p>
-<p>Oofuchi Erika's high-cut competitive swimsuit.</p>
+<p>Lee Yeon-ju</p>

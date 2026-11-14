@@ -5,86 +5,79 @@ weight = 712
 chapter = 712
 +++
 
-<p>Minamoto Risa got off the plane. At Nara Autonomous City Airport, a rather tall, short-haired woman in a suit was waiting for Minamoto Risa.</p>
-<p>"Ojou-sama, you've arrived?"</p>
-<p>"Yeah, Tamaho, have you been well?"</p>
-<p>The tall woman was Inazaki Tamaho, who was privately two years senior to Minamoto Risa, but was a martial arts-oriented woman who had sworn loyalty to Minamoto Risa since St. Francisco Girls' Academy.</p>
-<p>The reason why most of the students at St. Francisco Girls' Academy were afraid of Minamoto Risa was not only because Minamoto Risa was a delinquent who often skipped school or because of Minamoto's background, but also because of the way she treated several scary Sunbae like Inazaki Tamaho as subordinates.</p>
-<p>Of course, as Taira Kanna began to actively work and the two emerged as rivals, the fear of Minamoto Risa decreased a lot, but the high school students at St. Francisco Girls' Academy who still had memories of Minamoto Risa from a few years ago were still afraid of Minamoto Risa.</p>
-<p>"Yes. I've been well too, and the work at the PMC is going smoothly. The PMC kids are also very eager to see Ojou-sama's face. It's been quite a while since they've seen you."</p>
-<p>"Since there's a family gathering today, let's plan to see them tomorrow or the day after. Tell Sunami to join us that day too."</p>
-<p>"Yes. I'll make sure to tell Iide."</p>
-<p>The person Minamoto Risa and Inazaki Tamaho were talking about was a woman named Iide Sunami, who was acting as Minamoto Risa's strategist.</p>
-<p>Like Inazaki Tamaho, she was two years senior to Minamoto Risa, and she was a Sunbae who, while being a Minamoto herself, saw Minamoto Risa with deep anger towards the Minamoto family and advised her to become the Chairman of the Minamoto Group.</p>
-<p>When Minamoto Risa aimed to become the Chairman of the Minamoto Group as Iide Sunami said, Iide Sunami swore loyalty to Minamoto Risa and introduced her friend Inazaki Tamaho and several other outstanding people.</p>
-<p>It was mostly thanks to Inazaki Tamaho's introduction that Minamoto Risa brought in talented Sunbae as subordinates.</p>
-<p>"Let's get in the car first."</p>
-<p>"Okay."</p>
-<p>When Inazaki Tamaho opened the door of the boxy limousine, Minamoto Risa naturally got into the car. The driver was also an agent belonging to the PMC operated by Inazaki Tamaho, so he bowed to Minamoto Risa and started smoothly.</p>
-<p>"Tamaho, you should be spending Christmas with your family, I'm sorry."</p>
-<p>"Ojou-sama knows very well that I've cut ties with my family, doesn't she?"</p>
-<p>Since Inazaki Tamaho was also from St. Francisco Girls' Academy, she was a young lady from a prestigious family, so she couldn't avoid the family's interference.</p>
-<p>However, since she had sworn loyalty to Minamoto Risa, she couldn't be involved in family matters, so she cut ties with her family and was doing her best as Minamoto Risa's force.</p>
-<p>"We should have hired some psychic agents for our PMC too."</p>
-<p>"Ah, is it because of that arrogant Sugawara Chohei incident?"</p>
-<p>When there was talk of marriage with Sugawara Chohei, Minamoto Risa had several discussions with her subordinates, including Inazaki Tamaho, but she couldn't find a way to eliminate Sugawara Chohei without it looking like murder, so she was very worried.</p>
-<p>Inazaki Tamaho only knew that Minamoto Risa had hired some psychic to handle the job, but she couldn't know the identity of that psychic.</p>
-<p>"That too, but I think it will be quite useful for future strategies."</p>
-<p>"Who on earth is the psychic Ojou-sama asked to do that job? It really looked like an accident, though?"</p>
-<p>"I can't tell you that. I promised to keep it a secret."</p>
-<p>"Is it a man?"</p>
-<p>Inazaki Tamaho asked, looking at Minamoto Risa's seemingly happy smile. She had been serving Minamoto Risa for several years, and it was the first time she had seen her looking so happy, so Inazaki Tamaho was quite surprised.</p>
-<p>"It's a secret, I said."</p>
-<p>"Understood."</p>
-<p>Inazaki Tamaho nodded, thinking that she had a story to tell Iide Sunami. The lord's love life was an important matter.</p>
-<p>"Can you stop making that weird 'Our daughter has grown up' face?"</p>
-<p>"I'm sorry, Ojou-sama. I didn't realize...."</p>
-<p>When Minamoto Risa spoke with one cheek puffed out, Inazaki Tamaho, who had barely maintained her poker face, turned her head and covered her face. It was to hide the motherly smile that was unconsciously forming.</p>
-<p>'I don't know who you are, but thank you. You've shown me that Ojou-sama has that kind of expression too.'</p>
-<p>Inazaki Tamaho expressed her gratitude inwardly to the psychic man whose face she didn't even know. She didn't know who he was, but she was planning to treat him well next time they met. As long as he wasn't a competitor for Minamoto Risa's succession or someone from the Taira family.</p>
+<p>After completing the rescue mission, we immediately boarded a plane and left North China. Just in case, I had booked flights for each time slot in advance, so we were able to go to Datong City and board a plane right away.</p>
+<p>Of course, North China was in an uproar due to the sudden explosion of the research lab. They quickly started investigating, wondering if it was South China's revenge for the New Nanjing Cyber Zombie incident, but we were already on a plane heading to Korea.</p>
+<p>Sitting on the plane, I was checking the news to see how North China was reacting.</p>
+<p>-Datong Level 2 Police Inspector Qian Lian stated, "The explosive material in the old company's lab exploded. It is not a South China terrorist group."...</p>
+<p>"Rather, the research lab building flew away, so our traces would have disappeared."</p>
+<p>"Positive. The explosion was quite large, so there is no possibility that our traces remain."</p>
+<p>After reading the article, I talked to Lara Sinclair, who was sitting next to me. As Lara Sinclair said, the Jeonrang Research Institute exploded in a chain reaction, and the entire wide site exploded. Fortunately, we were escaping in a vehicle, so we weren't caught up in it, but if we had delayed any longer, we would have all suffered considerable damage from the explosion.</p>
+<p>"I request a detailed explanation of the discovery of the android on the 21st floor underground."</p>
+<p>"Ah, that's..."</p>
+<p>I thought I should tell Lara Sinclair, one of the executives of TG Tech, about Linling's existence, so I brought it up while waiting at the airport. Now that the flight to Korea had safely departed and there was no reason to be chased by the North Chinese army, it seemed that Lara Sinclair was asking for my explanation. At Lara Sinclair's request, I began to explain what happened on the 21st floor.</p>
+<p>"...That's what happened."</p>
+<p>"An AI that lost its master... And you became the master."</p>
+<p>Lara Sinclair spoke as if she was slightly displeased with my explanation. In fact, Lara Sinclair was an AI who became the master herself after her creator father died, so she seemed displeased with Linling's actions.</p>
+<p>"Be careful, Ryuta. An AI that has lost its master may become obsessed with its new master."</p>
+<p>Listening to her, it seemed that she wasn't displeased with Linling's attitude, but just worried about her actions. Obsessed? Looking at Linling's actions, I don't know about that...</p>
+<p>"First of all, I'll have to go back to Korea and meet the AI named Linling and talk to her."</p>
+<p>"Sure. Yu-gyeong and Eve will be curious too."</p>
+<p>I said, eating the in-flight meal brought out by the Chinese airline. Lara Sinclair, who didn't need to eat, watched me eating the in-flight meal with relish and offered me hers.</p>
+<p>Certainly, I had hurriedly left for China last night and hadn't slept, and fought until dawn and morning, so I was a little tired. Looking around, the other agents and researchers were asleep. I should get some sleep too. There are two hours left until arrival.</p>
 <p>###</p>
-<p>When I opened my eyes, I was already in Korea. I thought I wasn't tired, but since I only got to sleep for an hour, I fell asleep as soon as I sat down.</p>
-<p>Since I didn't have any special luggage, I got off the plane right away and headed to the airport parking lot where Han Yu-gyeong was waiting. I wonder if Dickson will be there as a driver and bodyguard again today?</p>
-<p>"Eugh...!"</p>
-<p>Korea was definitely much colder than Japan. Moreover, it was snowing quite a bit in Korea, so it felt even colder, and I unconsciously groaned.</p>
-<p>After walking a bit, I saw Dickson, a large white bodyguard, and Han Yu-gyeong waving her hand after spotting me near the parking lot entrance. It seemed like she had come out a little so I wouldn't have trouble finding her.</p>
-<p>"Yong-tae-yaaaa~!"</p>
-<p>Han Yu-gyeong was wearing a beige coat and a turtleneck sweater, and despite it being winter, she was wearing a short black skirt as if she wasn't cold at all. Her legs were bare without stockings, so she looked very cold, but she was jumping up and down as if she was very happy to see me.</p>
-<p>Seeing her nose turn red as she greeted me, as if she had been waiting for me for quite a while, it felt like a dog seeing its owner after a long time.</p>
-<p>"Yu-gyeong-a~! Aren't you cold? It's cold, wait inside the car."</p>
-<p>When I took Han Yu-gyeong's cold hands and blew on them, Han Yu-gyeong said she was okay and hugged me, sniffing me as if she was going to absorb my essence. Then we headed towards where Han Yu-gyeong's car was parked.</p>
-<p>"It's been a while, Mr. Jin."</p>
-<p>"Yes. Dickson, have you been well too?"</p>
-<p>"Of course. It's cold, please get in quickly."</p>
-<p>We got into the warm car that had the heater turned on in advance. It was quite cold even though I had only walked a little after coming out of the airport.</p>
-<p>"I'm sorry for making you come to work on Christmas because of me, Dickson."</p>
-<p>"Ah, it's okay. I only came out for a little while in the morning. My boyfriend is probably sleeping."</p>
-<p>She didn't have a boyfriend before, but it seemed like she made one in the meantime. As expected, I feel relieved leaving Han Yu-gyeong to a gay man. Since she even has a boyfriend, there's no need to worry about him targeting me(?). From what Dickson said, it seemed like he was just dropping me off at Han Yu-gyeong's house from the airport and then going straight home.</p>
-<p>"What did you do on Christmas Eve?"</p>
-<p>"I just worked since you weren't here. It seemed like you were working too? I heard you found a prototype that a Chinese company was using?"</p>
-<p>It hadn't been long since TG Tech had revealed the energy gun to the world, and it was a very busy time because it was so popular. Moreover, I had found the energy gauntlet Jeonsugap made by the closed Chinese company Jeonrang from the Akihabara excavation yesterday, which added to the work, so it must have been quite busy.</p>
-<p>"Yeah, I got it by chance, so I sent it over on Eve."</p>
-<p>"Lara really liked it, though?"</p>
-<p>"Lara has something similar to an obsession with energy weapons. She'll think it's good if she can see other companies' weapons and develop ours too."</p>
-<p>Lara Sinclair, who is in charge of the technology side of TG Tech, has the primary goal of making the guns we produce the standard weapon of the US military, so she is always looking for ways to develop them.</p>
-<p>It was only natural that Lara Sinclair was very happy when I discovered Jeonsugap this time.</p>
-<p>Of course, there is a difference of more than 10 years between Jeonsugap and our energy gun, so our energy gun is superior, but the technology used in Jeonsugap must have also used technology that TG Tech can accept.</p>
-<p>"But where are we going?"</p>
-<p>"Dickson will take us to my house first. Let's eat breakfast at my house first and think about what to do."</p>
-<p>I think she couldn't say it in front of Dickson, but it seems like it's not 'what to do' but 'let's roll around naked in bed'.</p>
-<p>"It's been a while since I've eaten a meal made by Yu-gyeong. It'll be delicious."</p>
-<p>Of course, I said that looking at Han Yu-gyeong, meaning she'll be delicious. I haven't eaten many dishes made by Han Yu-gyeong, but her cooking skills aren't that great. Of course, she has high learning skills and intelligence, so she would learn quickly if she learned, but she's too busy to have time to learn to cook.</p>
-<p>"Oh, geez...!"</p>
-<p>Han Yu-gyeong, who accurately understood what I meant, hit my arm in embarrassment. Dickson was watching our sweet and affectionate interaction and smiling like a dad.</p>
-<p>I would have felt a little sorry if Dickson was single, but since he has a boyfriend, I guess he'll understand this much affection.</p>
-<p>Squeak.</p>
-<p>"Have a Merry Christmas, Chairman, Mr. Jin."</p>
-<p>"Dickson, have a good time with your boyfriend too."</p>
-<p>"I'll give you a bonus for driving us today, so look forward to it, Dickson."</p>
-<p>Han Yu-gyeong and I, who got off in front of Han Yu-gyeong's house, said goodbye to Dickson and went into Han Yu-gyeong's apartment, heading up to the floor where she lives. Han Yu-gyeong was repeatedly pressing the close button, tapping it quickly, as if she was in a hurry.</p>
-<p>"Calm down, I'm not running away."</p>
-<p>"It's been a while since we met. I can't calm down...."</p>
-<p>Han Yu-gyeong grabbed my hand and put it on her chest. Her heart was really pounding and beating like crazy.</p>
-<p>______</p>
-<p>Han Yu-gyeong B-cut!</p>
-<p>Kiyot!</p>
+<p>After returning to Korea, Lara Sinclair and I headed to the Amsang Seoul branch, not the TG Tech headquarters.</p>
+<p>For reference, I Yeon-ju went to Vanguard to comfort and reward the Vanguard agents who had suffered. There were agents who died during the mission, so it was necessary to comfort the agents well. Han Yu-gyeong, the president of Vanguard, also said that she would comfort the agents, as acknowledging their hard work and rewarding them well would make them willing to take on dangerous missions later.</p>
+<p>While Han Yu-gyeong was away, I talked to Eve about receiving the reward money offered by Amsang.</p>
+<p>"Ryuta-nim~! You're back safe! Are you hurt... anywhere?"</p>
+<p>As soon as I entered the Amsang Seoul branch, Eve scanned me and greeted me with a relieved expression. I regenerate immediately after being injured, so there's no way I'd still be hurt, but I guess she's showing how worried she was.</p>
+<p>Eve hugged me and said she was glad. Originally, I wouldn't feel the touch because she's a hologram, but seeing her hugging me tightly, it seemed that Eve's main body had come to Korea from the Miyashi branch. When did she come?</p>
+<p>"Oh? You came with your main body?"</p>
+<p>"Of course! If something happened to Ryuta-nim and Lara, I came from Japan to step in~!"</p>
+<p>Eve stepping in would be quite scary... I became slightly frightened by Eve's words. I was afraid of what would happen if an android who handles Amsang's power exerted all of her strength.</p>
+<p>"Yu-gyeong hasn't come yet, so let's do personal things first."</p>
+<p>"Huh? What is it?"</p>
+<p>I handed Eve the camera I had installed on my body during the battle with Gao Xiang and the camera I had installed on the 20th floor.</p>
+<p>"It's a video of me capturing and killing Gao Xiang of the Red Revolution Front, who caused the New Nanjing Cyber Zombie incident."</p>
+<p>"Ah! That? Let me check it out for a moment."</p>
+<p>Eve received the camera I handed her and connected it to the computer at the Amsang branch. In fact, the battle video itself wasn't long. It was about fifteen minutes long, but it was still very intense, so Eve watched the scene with a fascinated expression.</p>
+<p>"With this, you'll be able to receive the bounty placed on Amsang. But I think we need to do some editing. I'll take care of cutting out some scenes that could reveal our identities."</p>
+<p>In order to receive the bounty on Amsang, you had to prove that you had captured the wanted criminal, just like in the old days when you proved it with the head of the wanted criminal. Of course, I knew that, so I had prepared a camera that could record videos in advance.</p>
+<p>"This video will be shown to the people who put the bounty on Amsang, so it will definitely be leaked all over the world. Are you okay with that?"</p>
+<p>Placing a bounty on someone in Amsang meant that they wanted to see that Bastard die, so Amsang provided the person who placed the bounty with a photo or video of the target's death.</p>
+<p>In the end, everyone who placed a bounty could see the Red Revolution Front leader Gao Xiang dying at my hands. But it didn't matter. Eve said she would edit out any scenes that could reveal my identity, and Black Knight was a disguise to prevent attention from being drawn directly to Jin Yong-tae or Taira Ryuta, so it was okay.</p>
+<p>"Black Knight is already a celebrity, so it's okay."</p>
+<p>"Okay. Please wait a moment."</p>
+<p>When I said it was okay, Eve told me to wait and closed her eyes for a moment. She must be editing at an incredible speed.</p>
+<p>"It's done."</p>
+<p>Wiiing!</p>
+<p>At the same time as Eve's words, my phone vibrated and a notification window popped up from the Amsang app. It was a notification that 1,308,220,177 points had been deposited. It seemed that they had paid the bounty immediately without delay.</p>
+<p>Since 1 dollar is 1 point, it was a huge amount. At this rate, I wouldn't have to worry about money for a while, would I?</p>
+<p>"Amsang took about 5 percent as a commission. Ryuta-nim is a special VIP, so we reduced the original commission of 10 percent to 5 percent."</p>
+<p>Since the bounty was so large, even 5 percent would be a huge brokerage fee. But if I think about it differently, there's no way so much bounty would be placed if it wasn't for Amsang, so I could afford this much brokerage commission.</p>
+<p>"I received so much, so I don't mind the commission. Ah, and..."</p>
+<p>I paused for a moment and looked at Lara Sinclair.</p>
+<p>"I'm thinking of giving some of my bounty to Lara Sinclair and I Yeon-ju-ssi. They were helpful in the battle, so how about a few percent? Still, they participated in the battle with Gao Xiang."</p>
+<p>"Negative, you don't have to give me any. You came to rescue me, so I can't receive that money."</p>
+<p>At my words, Lara Sinclair shook her head and refused the money. I nodded at her words that she couldn't receive the money because I had come to save her.</p>
+<p>"Then... I recommend giving about 100,000 points to the people who went down to the 20th floor with you. They found out about Ryuta-nim's identity, so you have to shut their mouths with this much. I Yeon-ju-ssi... should receive about 2 million points."</p>
+<p>"Okay. Let's give I Yeon-ju-ssi 2 million... no, about 3 million points, and give the rest about 100,000 points."</p>
+<p>While we were talking about the distribution of the bounty, the door opened and Han Yu-gyeong entered the Amsang Seoul branch.</p>
+<p>"Yong-tae-ya~!!!"</p>
+<p>"Did it end well?"</p>
+<p>I stroked Han Yu-gyeong's head as she ran up to me and hugged me. Han Yu-gyeong nodded with her face buried in my arms.</p>
+<p>"Yeah, Yeon-ju decided to inform the bereaved families."</p>
+<p>Since there were six victims, it would be quite difficult for I Yeon-ju to visit each family. Still, as the practical leader of Vanguard, it was necessary for I Yeon-ju to directly inform the families.</p>
+<p>"Let's put aside the gloomy stories for a moment... I heard you got something unusual from the Jeonrang Research Institute?"</p>
+<p>"This."</p>
+<p>As Han Yu-gyeong said, shaking it off, I picked up the metal bag I had put aside.</p>
+<p>"Ah! Could it be...?"</p>
+<p>"Yes, Linling's core and data disk are in here."</p>
+<p>When I put the bag on the desk, Eve opened the bag. Eve gently stroked Linling's core and carefully took out the core and memory disk.</p>
+<p>"Can I wake up the child named Linling?"</p>
+<p>"Of course. We practically went all the way to China to save her."</p>
+<p>In fact, we went all the way to North China for the knowledge of the energy weapon that Linling possessed, so we had no choice but to reveal Linling here, where the executives of TG Tech were gathered.</p>
+<p>"Yes, just a moment."</p>
+<p>Eve plugged Linling's core and data disk into the hub. For a moment, I heard the sound of the core starting up, and Linling's appearance appeared on the hologram machine installed in the Amsang branch.</p>
+<p>__________</p>
+<p>SD Eve requested by Moomnyeom-nim~!</p>
+<p>Kawaiineyo~♥ I was worried about the pink bridge, but it turned out well ㅎㅎ</p>

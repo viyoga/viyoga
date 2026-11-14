@@ -5,83 +5,64 @@ weight = 40
 chapter = 40
 +++
 
-<p>Since I was already sitting on the bed, I figured it was a good opportunity and pushed Hanako Gokado's shoulders, causing her to flop right down. Then, she looked at me with eyes full of anticipation.</p>
-<p>,I want to kiss."</p>
-<p>,Okay, kiss me♥"</p>
-<p>I'll give her a kiss that's sweeter and more thrilling than her current boyfriend's. While kissing, I tickled the back of her upper teeth with my tongue to excite her. Hanako Gokado seemed to enjoy it, clinging to me even more and concentrating on the kiss, making *jjwakjjwak* sounds.</p>
-<p>,Aheum...! Kiss is so good...♥"</p>
-<p>Earlier, the anger about her boyfriend drinking with another woman had sobered me up a bit, but now I was getting drunk again, and my tongue was twisting. Of course, getting excited would speed up blood circulation and make the alcohol circulate faster.</p>
-<p>*Jjwak, jjwak!*</p>
-<p>After a few more kisses, I took off my top first. Hanako Gokado looked at my toned upper body as if she was possessed and put her hand on my chest. Like most guys, I unconsciously tensed the chest muscle that Hanako was touching.</p>
-<p>,It's hard...!"</p>
-<p>Suddenly, she started kneading my chest like rice cake dough, then sucked and licked my nipples with her lips. It wasn't a huge pleasure, but it was subtly satisfying mentally. I let her suck on my chest and took off Hanako Gokado's clothes one by one.</p>
-<p>After taking off all her clothes over a few minutes, her figure was quite good. A firm body that looked like she worked out, and with some breasts, it was a body that any man would only like, with no dislikes. As her clothes came off, Hanako Gokado seemed to feel a chill, took her mouth off my chest, and covered her breasts with both arms.</p>
-<p>,I'm cold, hug me, Ryuta-gun."</p>
-<p>,Okay, come here."</p>
-<p>I hugged Hanako Gokado tightly. Since I couldn't touch her breasts or pussy while hugging, my hand naturally went to her butt. It was a firm, perky butt, definitely showing she worked out quite a bit. Looking at Hanako's figure piece by piece, her butt was the most luxurious part. As I massaged her butt to my heart's content, her breathing gradually became rough, as if her butt was also an erogenous zone.</p>
-<p>,Haa, haaang...! Not the butt... haang!"</p>
-<p>It was a man's instinct to want to touch it more when she said not to. Even though she told me to stop, I kept touching it, and her white skin gradually turned pink, probably because she was getting excited. Now that her body was warm enough, it would be okay not to hug her anymore.</p>
-<p>I broke the hug and kissed her, touching her breasts with my left hand and stroking her whole body with my right hand, looking for Hanako Gokado's special erogenous points that weren't direct erogenous zones like her breasts or pussy. Surprisingly, the soft inner arm connecting the armpit was an erogenous zone; when I stroked it once, I felt her toes stretch out as if she was getting an electric shock.</p>
-<p>,Heuehe...! I, I feel weird...."</p>
-<p>,Do you feel weird? Is it good?"</p>
-<p>,Eueuhang.... I don't know, I like it... I feel heuhang~! Good. Feels good...!"</p>
-<p>Should I check the sensitivity of her nipples this time? I bit her breast like Hanako Gokado did to me earlier. Her breasts seemed to be a good erogenous zone, as she reacted immediately.</p>
-<p>,Hyaang!"</p>
-<p>It was a slightly strange moan, but there was definitely a reaction.</p>
-<p>,Heuhyaang... Hiang....!"</p>
-<p>After persistently harassing her breasts, when she got used to the stimulation, I licked her armpits and inner arms, and Hanako Gokado felt another small orgasm.</p>
-<p>,Do I give better foreplay than your boyfriend?"</p>
-<p>,I don't know. Toki-jjang doesn't give me foreplay this long... Heuang...!"</p>
-<p>He only gave her fifteen minutes of foreplay...? This boyfriend named Toki-jjang must lack a sense of service for his girlfriend. I moved down slightly and took off Hanako Gokado's pink panties. It was a small pussy with no hair.</p>
-<p>This looks like it'll be super tight? It was a very narrow and small pussy.</p>
-<p>,Did you shave your hair?"</p>
-<p>,Heueung... I don't usually grow much hair down there."</p>
-<p>I see. Hanako Gokado flinched, probably feeling my breath on her pussy. The smell was good. It was the smell of a pussy full of pheromones that stimulated a man's sexual desire. I put my index and middle fingers on her labia and spread them in a V shape, and the vaginal fluid that had been blocked by the small hole gushed out. It was a slightly viscous and sticky fluid.</p>
-<p>I grabbed Hanako Gokado's calves, raised her legs in an M shape, buried my face in her pussy, and drank greedily like someone who hadn't had water for days.</p>
-<p>,Hyeot! Hyaahang! It's weird, Ryuta-gun! I feel strange!!"</p>
-<p>The more I sucked, the more fluid came out, so it really felt like I was quenching my thirst. I kept my face in the same position on her pussy and rotated my body 180 degrees around her pussy as an axis, presenting my dick in front of Hanako Gokado's face. Hanako Gokado also seemed to have been waiting for my dick, looking at it with a blissful expression, saying, "Haaa!" and immediately putting it in her mouth.</p>
-<p>*Ppeukjjup ppeukjjuup!*</p>
-<p>The sound was quite stimulating, probably because she was sucking and moving strongly. She's quite good at sucking? I can't lose! In the 69 position, we sucked each other's genitals and swallowed the fluids coming from each other's bodies. Hanako Gokado kept sucking the pre-cum dripping from my dick, and I licked the vaginal fluid that kept gushing out like an inexhaustible spring in the mountains.</p>
-<p>How long had it been? It seemed like about ten minutes had passed. I didn't even realize time was passing as I ecstatically sucked her vaginal fluid before taking my face away. Hanako Gokado also spat out my dick and looked at my face. Our hearts were connected.</p>
-<p>,Put it in now."</p>
-<p>,I'll put it in now."</p>
-<p>We said it almost simultaneously. And we smiled at each other, looking at each other. The mental satisfaction of our hearts being connected heightened the pleasure even more. I turned my body back and kissed Hanako's lips, aiming my glans at Hanako's small pussy hole.</p>
-<p>,Put it in! Ryuta-jjang! Widen my pussy all the way with Ryuta-gun's big thing, like you did with the instructor earlier!"</p>
-<p>Hmm, she must have been quite impressed with my sex with the practical instructor, Honami Matoi.</p>
-<p>,I'll make you feel even better."</p>
-<p>,Eueung. Put it in now, Ryuta-gun."</p>
-<p>Since I had already aligned my glans with the hole, it would go in with just a little force. Hanako's pussy was definitely narrow and small. Still, her vaginal fluid was overflowing like a flood, so my dick was gradually entering, expanding her pussy. Hanako was making strange moans, "Eohuk! Heohuk!" with her eyes rolling back, not knowing if it was pain or pleasure.</p>
-<p>When my glans finally touched Hanako's cervix, she flailed like a fish caught on a harpoon. This is the first time I've seen someone with such a sensitive cervix?</p>
-<p>,Heuaaahang! I've never felt like this before! Haang!"</p>
-<p>Hmm, her boyfriend must not have been able to target her cervix. I kept my dick fully inside her pussy and stimulated her cervix in a circular motion, rotating my hips.</p>
-<p>,Haang! Aang! Good! Aah!"</p>
-<p>,Did your boyfriend do this too?"</p>
-<p>,No, it's the first time, haang! Haang! Hang! Hiyang!"</p>
-<p>It would be nice to keep stimulating her cervix like this and let her taste orgasm hell, but I need to feel good too. I pulled my waist back as much as possible, pulling my dick out of her pussy up to half of my glans. Hanako looked at me, wondering what was happening, as her lower body suddenly felt empty. I smiled and thrust my dick back in.</p>
-<p>,Hyaak!"</p>
-<p>Hanako tilted her head back and cried out in pleasure as her glans, like a siege weapon destroying the castle gate, pounded her cervix hard. As I kept going back and forth like that, her face completely melted.</p>
-<p>I also felt my orgasm slowly rising, so I gradually increased the speed of my piston movement. Hanako was on the verge of losing consciousness from the continuous orgasms.</p>
-<p>*Peokeok! Peok, peoeok! Peok!*</p>
-<p>,Kiss, kiss! Ahang! I feel like I'm going to disappear! Kiss me, Ryuta-gun!"</p>
-<p>As I kissed Hanako, who was begging for a kiss, she suddenly wrapped her legs around my waist. This action of Hanako's brought the orgasm that had been slowly rising almost to the very end.</p>
-<p>,Where should I cum?"</p>
-<p>I was a gentleman, so I always gave women the choice between internal and external ejaculation. Hanako shook her head with a face distorted by pleasure.</p>
-<p>,Not inside! Haang! Outside, cum outside!"</p>
-<p>Then loosen your legs, you bitch.</p>
-<p>,Loosen your legs!"</p>
-<p>,Heueeang! Haaaang! Ahang!"</p>
-<p>Hanako was clinging to me even more, not listening to what I said. Then I can't help it. I have no choice but to inject it inside as is.</p>
-<p>,Eueueuk! I'm cumming!"</p>
-<p>,Cum, cum! Haaaahang!!"</p>
-<p>I ejaculated deep inside Hanako's pussy, who had been begging for external ejaculation earlier. My dick was contracting and expanding repeatedly, drawing the semen from my balls into her pussy.</p>
-<p>,Heuheung... It's warm."</p>
-<p>After obtaining the special Golden Pillar trait, my semen volume became larger and warmer than others. Was it so that she could feel it properly during internal ejaculation? I hugged Hanako as is, with my dick still inside her pussy. I was a little tired, and I read somewhere (probably in a magazine in the army before I was possessed) that women hate it when men go to smoke right after cumming?</p>
-<p>I was hugging her when Hanako suddenly started sobbing. Was it because of guilt towards her boyfriend? It's a little annoying. I need to erase her feelings for that Toki-jjang or Tokki-jjang or whatever his name is, that premature ejaculator boyfriend.</p>
-<p>My limp dick became hard again, as if it was the first time.</p>
-<p>,Hukhuk...! Huh? What is it, Ryuta-gun? Weren't you only going to do it once?"</p>
-<p>,If you're as attractive as Hanako, I can do it several times in one night."</p>
-<p>I started the piston movement again as is. Her pussy was drier than before, but it was full of the semen I had ejaculated magnificently, so lubrication was no problem.</p>
-<p>,Kyaak! W, wait a minute!"</p>
-<p>,Hehehe, I won't let you sleep tonight!"</p>
-<p>,Kyaak!"</p>
-<p>After a little time passed, her screams turned into excited moans.</p>
+<p>The next day, another new day began. I woke up, got ready in 10 minutes, and arrived at the company in 5 minutes. I didn't realize how great a perk it was to have the company so close when I commuted before my possession. Being able to sleep until 8:30 was a Blessing.</p>
+<p>"Hello!" I started today's Work with a refreshing greeting. Still, after almost a week, I was slowly getting used to the Work. Though, as the Youngest of the team, I still had more chores to do.</p>
+<p>One peculiar thing that happened today was that Shinoe Misano appointed me as the person in charge of external work support. Of course, Shinoe Misano was the main person in charge.</p>
+<p>Shinoe Misano's Justification to the team members was that my surname is 'Taira', which would give the Opponent a little more trust, but of course, she must have appointed me because she wanted to take me out every time she went outside and fuck my Dick. She's so Lewd, how did she manage not to cheat when her Husband went overseas? It was truly a mystery.</p>
+<p>Still, unlike Shinoe Misano's Heuksim, there was no external schedule today, so I could have lunch with Mimata Chieri. Mimata Chieri ordered a medium-sized udon, considering she would exchange some with me, and I was still having a large Size. For reference, the Menu I chose was mentaiko cream pasta. Today was a noodle day.</p>
+<p>Since many people, like Mimata Chieri and me, exchanged small portions, side Plates were prepared so we could easily swap food.</p>
+<p>"Hehe! I was really disappointed that Junior-gun wasn't there for lunch yesterday. Steak and kaisendon came out, and I absolutely love both of them, you know?"</p>
+<p>"So, what did you choose?"</p>
+<p>"Kaisendon~! Steak felt a bit too heavy for lunch."</p>
+<p>The Menu yesterday was good, indeed. Of course, I also had eel donburi, which was no less delicious.</p>
+<p>"I had eel donburi for lunch yesterday."</p>
+<p>"Wow, that sounds delicious! Still, we had the same kind of donburi, didn't we?"</p>
+<p>Kaisendon (Seafood Donburi) is seafood donburi, so it's indeed a donburi, just like eel donburi.</p>
+<p>"Then, shall we go for Steak next time?"</p>
+<p>"Sounds great~! Since I'm your Sunbae, I'll introduce you to the most delicious Steak restaurant in this Neighborhood!"</p>
+<p>"This Neighborhood is new to me, so I didn't know any good restaurants. Thank you, Senior-nim!"</p>
+<p>After lunch, I made a promise with Mimata Chieri to have a Meal sometime, and as I was back to Work, Shinoe Misano called me. She told me to follow her, saying she was going to look for some data, and when I went, it was a secluded office-like Place that no one seemed to use. I could use this Place later, too?</p>
+<p>I went in first, and Shinoe Misano followed, ttal-ggak the Door shut. Shinoe Misano sat on the desk with a seductive Expression, lifting her Suit skirt, and there were no panties underneath. Her Pussy was already glistening with anticipation for office Sex, making Foreplay seem unnecessary.</p>
+<p>Pulling down my Pants, I approached and immediately plunged my Cock into her glistening, Byeontae Pussy. The moment my Cock entered, Shinoe Misano let out a tumultuous moan.</p>
+<p>"Haaahng!!"</p>
+<p>"I'll kiss you, so be quiet."</p>
+<p>Fearing our Whispers of Pleasure might be heard, I covered Shinoe Misano's mouth with mine. As I kissed her and Thrust, she was so pleased she nearly died.</p>
+<p>I drove the audacious, No panties-wearing Shinoe Misano to exhaustion with continuous Climaxes. I waited until Shinoe Misano regained her strength, then returned to the office, and before long, leaving work time arrived again.</p>
+<p>Was it because there was Sex time in between that Time flew by so fast? It was super easy. Mimata Chieri said that when the Newcomer training approaches, it gets incredibly busy, so I should enjoy it to the fullest before then.</p>
+<p>After leaving work, as I walked Home, a Line came in. Checking it, it was Taira Yukiko.</p>
+<p>Taira Yukiko: Come to the Parking Lot behind.</p>
+<p>Taira Ryuta: Understood, Mother.</p>
+<p>By the way, why a Parking Lot? Ah! Come to think of it, Taira Yukiko said the vehicle she ordered would arrive around today. I headed to the Parking Lot behind the Annex with an expectant Expression.</p>
+<p>Taira Yukiko was leaning against a vehicle, waiting for me. And when she saw me, she smiled and threw something. I caught it and checked; it was a Key. Nowadays, Keys aren't used much, but some hybrid vehicles still used Keys.</p>
+<p>They said it was used to activate the internal combustion engine with a Key to escape when the vehicle's System was Neutralized by an EMP Attack. Most such vehicles were military vehicles, though....</p>
+<p>Looking closely, it was a dark blue SUV, seemingly modeled after military vehicles like General Motors' Hummer or Stellantis' Jeep from before my possession, full of a macho feel. With its angular, massive feel, it was the kind of vehicle that made you feel like if there was an accident, the Opponent would die, but I would be perfectly fine. I like it?</p>
+<p>"Safety is always paramount for a car. This car is a civilian version of a vehicle Taira Motors supplied to the Self-Defense Forces for military use, so even if there's an accident, you'll be fine."</p>
+<p>Ah! Taira Yukiko's Husband and my Father, Taira Saburo, died in a dump truck accident. That must be why she chose this car for me. From Taira Yukiko's Expression, which held sadness, I felt a pang of sympathy.</p>
+<p>"It seems so. It looks incredibly sturdy; even if a Tank came, I wouldn't get hurt, Mother?"</p>
+<p>I replied brightly for no particular reason and walked around the car, stroking it. Below the taillight, 'chrysalis' was embossed in Gold, and this 'chrysalis' was the car's name. The pronunciation was probably 'chrysalis'. I liked the rear part too. It certainly looked very sturdy.</p>
+<p>After circling the car, I was in front of Taira Yukiko. I gave Taira Yukiko a hug. And I said, "Thank you, Mother," and immediately released the hug. It wasn't that I had any Heuksim; I simply wanted to Comfort her.</p>
+<p>"Oh, oh, yes. Drive well and safely."</p>
+<p>She seemed a little flustered, but Taira Yukiko replied with a Smile, as if she felt my gratitude.</p>
+<p>"First, let's have Evening and then look at the car. The car won't run away."</p>
+<p>As I showed no Expression of leaving the car, Taira Yukiko grabbed my sleeve and headed Home. I guess I was too excited about getting a new car.</p>
+<p>When I entered Home, the Housekeeper had already prepared Evening. Today was hamburg Steak. The Housekeeper, now knowing my Meal portions, served four thick hamburg Steaks with four sunny-side-up eggs on top.</p>
+<p>It was delicious, as expected. The combination of premium wagyu, fresh orange-hued egg yolks, and demi-glace sauce was so delicious that the separately prepared rice seemed to go down endlessly.</p>
+<p>"Mother, I'll go for a spin in the car and be back~!"</p>
+<p>"Drive carefully~!"</p>
+<p>After finishing my Meal, I ran to the Parking Lot. Since I got a new car, I had to drive it. I started the engine using the smart Key attached to the analog Key. They said if I linked this smart Key with my phone, I wouldn't need to carry the Key. I should leave the Key in the car and just carry my phone.</p>
+<p>Before starting, I sat down and authenticated the smart Key with my phone, so now I could do everything with my phone, as long as there wasn't an EMP Attack. But surely, no one would launch an EMP Attack on me?</p>
+<p>I turned on the engine and started driving. It definitely felt heavy, like a military vehicle. I was excited for the first time in a while and drove around Yotsukaido City.</p>
+<p>Of course, since I don't know the geography of Yotsukaido City well, saying I drove around it was an exaggeration; it's more accurate to say I drove wherever my heart desired and then navigated back to Taira Talent Development Institute.</p>
+<p>Although I did drive at the driving academy, I had Sex with the instructor more during driving lessons, so I didn't really feel like I had driven much. So this drive felt like it was after a very long time.</p>
+<p>I returned to the Talent Development Institute, parked, and came Home. Taira Yukiko must have finished bathing by now, right? To avoid making the Mistake of forgetting my underwear again, I grabbed my underwear, Shorts, and a T-shirt to wear at Home, and entered the Bathroom.</p>
+<p>"Kyaak!"</p>
+<p>In the Bathroom, Taira Yukiko had finished bathing and was getting dressed. Unconsciously, I stood frozen, staring at Taira Yukiko's semi-naked body. She was beautiful. Her white Skin and explosive Figure combined to create a Body that any man would be mesmerized by.</p>
+<p>"Ah, uh.... I'm sorry, Mother."</p>
+<p>"Don't just say you're sorry, hurry and get out!!"</p>
+<p>"Ah, yes. I'm sorry."</p>
+<p>Taira Yukiko's Body was white and smooth, as if painted with Milk. I also caught a glimpse of her Breasts, which were a pleasing Pink. Well, she was still 33, in her prime. She probably managed herself as well as any Celebrity, which is why she could maintain that level of Appearance and Skin. Nowadays, anti-aging Technology has advanced, so there were many Celebrities who maintained their Appearance even in their 50s.</p>
+<p>After standing in front of the Bathroom for a while, Taira Yukiko came out. I bowed my Head once more and apologized. As I kept apologizing, Taira Yukiko seemed to calm down.</p>
+<p>"No, it's fine. I must have bathed for too long without realizing it. Still, please be careful."</p>
+<p>"Yes. I'm sorry."</p>
+<p>"Huhu, don't blame yourself too much, I'm fine."</p>
+<p>To be honest, I'm not really sorry. In fact, I'd even like to see it again sometime.</p>

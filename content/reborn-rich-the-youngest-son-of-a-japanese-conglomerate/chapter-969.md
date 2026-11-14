@@ -5,43 +5,88 @@ weight = 969
 chapter = 969
 +++
 
-<p>This level of unease was the first time since before going on a Business Trip to the USA last summer. At that time, due to that unease, he had postponed the Business Trip, and it was then that the Famine first appeared in LA, where Iwanu Sadakake had intended to go. To that very Arena, which Iwanu Sadakake, a Soccer fan, had planned to visit while in the USA. If he hadn't postponed the Business Trip, Iwanu Sadakake could have been one of the tens of thousands of victims.</p>
-<p>'If this goes wrong, it's a situation where at least a Famine-level great disaster could happen in Japan...!'</p>
-<p>A Famine-level monster being unleashed in the Middle of Tokyo, causing a great disaster, must not occur. As if the strength had left his Legs, Iwanu Sadakake slumped back into his Seat and began to read this Incident File once more.</p>
-<p>'First, the Cause, is it because of this Woman named Sato Tsukiyo?'</p>
-<p>Of course, Sato Tsukiyo might not be the culprit. She could have been unfairly identified as the culprit based solely on circumstantial evidence. Since the culprit possessed the Ability to Neutralization CCTV, there was almost no way for ordinary police to know who the culprit was, so the police had no choice but to focus on circumstantial evidence. Looking at the data left behind by the Irimachi Aura, Iwanu Sadakake, who had been thinking for a moment, picked up the Phone as if his Resolve had hardened. And called somewhere.</p>
-<p>"Kuroda. Gather the aces and have them take on the Incident being sent from the police station now. Don't try to catch the culprit yet; first, figure out who the culprit is and how dangerous they are. It's a Director-General's Command. You must not try to catch the culprit without fully understanding them. Understood?"</p>
-<p>Iwanu Sadakake contacted Kuroda Ouji, the Club President of the Superpower Crime Investigation Department of the Japan Paranormal Phenomenon Management Bureau, and earnestly urged him to be careful while investigating.</p>
-<p>-Has your Premonition been activated? As expected of an Investigator Club President, Kuroda Ouji was guessing The Situation, seeing Iwanu Sadakake's Attitude. Because he knew of Iwanu Sadakake's Premonition, which boasted considerable accuracy, Kuroda Ouji asked in a very serious and grave Way of Speaking.</p>
-<p>"Yes. If things go wrong, a Famine-level great disaster could occur."</p>
-<p>At the mention of "Famine-level", Kuroda Ouji kept Silence for a moment. As the Famine appeared in the World, killing tens of thousands, Paranormal Phenomenon management organizations around the World began to use the term "Famine-level" for the highest crisis Stage. The term "Famine-level" was that heavy.</p>
-<p>-Famine-level, you say.... Understood. I will start with the investigation. That will be all....</p>
-<p>Kuroda Ouji said he understood, then hung up the Phone. His Mind, having heard the term "Famine-level", would also be complicated. But he had a Premonition that it would be dangerous if he didn't say this beforehand, so he had made it clear in advance.</p>
-<p>"Famine-level, you say.... Understood. I will start with the investigation. That will be all...."</p>
-<p>Clink.</p>
-<p>"Damn it...!"</p>
-<p>Kuroda Ouji, who had hung up the Phone, muttered a low Curse. Although he had handled many Superhuman crime Incidents in Japan until now, it was the first time Director-General Iwanu had declared something "Famine-level". Of course, if things went well, it could be resolved without a Battle. Just because someone possessed Famine-level Abilities didn't mean that Opponent was a Crazy Murderer psychopath like the Famine. They might even be reasonable.</p>
-<p>"Hoo...!"</p>
-<p>Kuroda Ouji sighed. But soon, he became serious again. This was no time for Sighs. As Director-General Iwanu had said, he needed to form a team composed only of aces.</p>
-<p>Kuroda Ouji, with his own criteria, selected and called several Investigators. In the meantime, data from the police station was delivered to Kuroda Ouji. Kuroda Ouji skimmed through the data while waiting for the Investigators. He hadn't even read a few Lines when he realized that the Incident he was assigned was the recently Topic A-village Incident.</p>
-<p>"Club President Kuroda-nim, did you call for us?" "I have responded to the call." "...." "I'm here~!"</p>
-<p>The four Investigators selected by Kuroda Ouji arrived. A rather large-sized Man with a Soldier-like haircut, a Woman in Miko clothing, a Man in ninja attire, and a cheerful-looking Woman in a Suit. As expected of Investigators from the Japan Paranormal Phenomenon Management Bureau, all of them possessed at least one Ability.</p>
-<p>"You all know about the A-village Incident, right?" "Is it our Incident?" "This is a hugely Topic Incident, isn't it?!" "Yes. However, the Director-General said that it could be a Famine-level Incident, so do not provoke the culprit, and an additional Command has come in to identify the culprit."</p>
-<p>At Kuroda Ouji's Words, everyone fell silent. Probably, including Kuroda Ouji, the thought that flashed through everyone's Mind was the same. "We stepped in poop".... While everyone was thinking similar thoughts, Kuroda Ouji opened his mouth again.</p>
-<p>"As I said, if you don't provoke the culprit, a Battle won't occur. So don't be too Taut Tension; first, everyone look at the data."</p>
-<p>Everyone took out their respective phones or tablets and began to read the data.</p>
-<p>"Super Strength, and...." "I'm not sure what the Ability that Neutralization CCTV is. There are so many candidates."</p>
-<p>Still, as expected of excellent Investigators, they began to deduce about the culprit from the data.</p>
-<p>"First, the police side saw Sato Tsukiyo as the Suspect, but once Superpowers are involved, it's meaningless. We will start the investigation from a zero base."</p>
-<p>At Kuroda Ouji's Words, all the Investigators nodded their Heads. If a Superhuman was involved, the police investigation could be Mockery/Debasement as much as they wanted.</p>
-<p>"First, we should check the Corpse." "While going around the Village, checking for any traces of Jusul that might exist, and investigating this Incident should not be forgotten." "Then, let's divide into two Groups first. Seido and Mojitsuki will check the Corpse, and the other two, Kahei and Motomachi, will conduct an inquiry in the Village."</p>
-<p>The Shrine Maiden called Seido and the Ninja called Mojitsuki nodded their Heads, saying they understood. Unlike the short-haired Man called Kahei, who also nodded with the Corpse Group, the Suit-wearing Woman called Motomachi grumbled, "I want to see the Corpse too."</p>
-<p>"Motomachi, stop. If you want to see the Corpse, find your own Time to do so." "Tch.... Understood."</p>
-<p>When Kuroda Ouji spoke sternly, Motomachi reluctantly agreed. Looking at the Investigators standing silently before him, Kuroda Ouji opened his mouth again.</p>
-<p>"What are you doing? Get up quickly and start Work!" "I'll be going. Club President-nim." "...." "I will deploy." "Yay~!"</p>
-<p>The four Investigators answered according to their Individuality and left the office. Kuroda Ouji, seeing the backs of the Investigators leaving the office, shouted loudly.</p>
-<p>"If there are any special matters, report them immediately! Once you identify the culprit, instead of catching them, return and report first. Don't provoke them unnecessarily!"</p>
-<p>Kuroda Ouji once again urged the Investigators about the Warning. Although he believed the Investigators he chose would do well, the unease remained due to Director-General Iwanu's Warning.</p>
-<p>"Quite busy."</p>
-<p>I, who woke up early in the Morning, grumbled slightly. Because there were many things to do and Luggage to pack before going to Neo Tokyo, I had no Time to rest. This was the same for all the Students and teachers who had decided to follow me, excluding myself. There was a lot of Luggage, and having lived in Miyashi for a long Time, they had to say their Greetings to close people, so they were also busy. Among them, if I were to pick the busiest people, there were Naruse Shiyo and Otagi Yuka. Looking at Naruse Shiyo first, her Work was doubled because she was packing Shimokawabe Airen's Luggage, who was in bed, on her behalf. Alik, who was also a Disciple, was already in Neo Tokyo, so Shiyo had to pack the Luggage alone. While packing Shimokawabe Airen's Luggage alone, she eventually called the Naruse family Servants. Otagi Yuka had to pack two sets of Luggage, one for the USA and one for Neo Tokyo, so she was having a quite busy Time. Seizawa Shii, who was going to the USA with her, first sent all her Luggage to Neo Tokyo (I had rented a fixer's office for her) and decided to go to the USA comfortably with her Maenmom. Her principle was to buy necessary things in the USA. Actually, since I had only lived here for 6 months, I didn't have much Luggage, so packing wasn't difficult, but along with various Paperwork, the Women remaining in Miyashi or the Women who would be separated from me for a while, had quite a few appointments, so I spent a quite busy Time going from Home to Home for Sex. Today, I had two appointments. In the Morning, it wasn't a Sex appointment, but there was an interview requested by Asada Ei, and in the Evening, there was an Oyakodon dinner appointment with Daigo Terue and Oofuchi Erika. Of course, it wasn't a Meal appointment to eat Oyakodon.... It was the Mother-Daughter Don appointment everyone was guessing. I, who had finished preparing for my Outing, rode an electric bike and headed to the Place Asada Ei had told me about. Because my Mission in Miyashi was over, a considerable number of Safe Houses within Miyashi, which had been maintained quite extensively with the Jo-seo-dang, were being reduced. They said the contract for the office where they often held Meetings had ended, and the Place Asada Ei sent me to this Time was somewhere I had never been before. I had thought there might be Safe Houses I didn't know about, but this was.... not a commercial office building, but a Mansion. Well, there's no Law that a Safe House can only be an office. A Place like a Mansion can also be used as a Safe House, because all you need to do is make the Neighbors perceive you as an Ordinary Person. Kki-ik...! It wasn't too far from the Home I lived in, so after parking the bike in the Mansion Parking Lot Asada Ei had mentioned, I locked it and got off. Then I took out my phone. "12th floor, room 1201, huh..." As it was a Mansion in Miyashi, the Facility looked quite good. Hearing that only two households lived on each floor of this spacious Mansion, I truly felt that this Neighborhood was a wealthy one. Perhaps, instead of large Prestigious Families who couldn't own Mansions, the Young Lady-s of typical Prestigious Families attending St. Francis Girls' Academy seemed to live here. Even just entering the Mansion, the Security Guard blocked me, taking some Time. Of course, Asada Ei had told them in advance that there would be a visitor, so it took less Time than I expected. I took the elevator and pressed the 12th floor button. Without anyone getting on in between, the elevator quickly went up to the 12th floor. Tting~dong! I, who got off the elevator, pressed the Doorbell of room 1201. As if waiting, the Door opened with a Clink. "Ei-ssi, uh...!" Because of the Appearance revealed when the Door opened, I couldn't help but be speechless for a moment.</p>
-<p>Requested by MidNightSKY-nim, Shii-chan seductively tempting~! Liz eating delicious food~! Shii first~! While making erotic poses, I suddenly thought of a banana, so I made the last image hehehe Liz~! breast pudding haha The last one is a banana~! Requested by Hwanbuljeoldaebulga-nim, old version Lisa Home Economics teacher, Zero Two~! Lisa first~! Home Economics teacher~! Requested by ISaveI-nim, Phantom Thief Mother and daughter couldn't just drape the Gown over their Shoulders, so I just had them wear the Gown hehe Nae first~! Arisu~!</p>
+<p>and before chapter check contains erotic illustrations please surroundings this your</p>
+<p>Behind the main building of the Neo Tokyo mansion, there was a Gym. Because there were several martial artists, including me, in the mansion, a Gym was built so they could train regardless of the weather. Of course, if the weather was good, an Outdoor training ground was also built below the Back mountain so they could train outdoors.</p>
+<p>After installing Linling's core on the 11th Underground floor, I headed to the Gym to teach Tsukiyo Shinkaiyatsude.</p>
+<p>The others who had gone to the Airport together went to their respective spaces to rest or do their things, so only Tsukiyo and I were in the Gym.</p>
+<p>"I love being alone with Ryuta Oppa♥"</p>
+<p>Naturally, since Shinkaiyatsude is a martial art of single-line transmission, never to be taught outside, it was natural for it to be just the two of us when teaching it.</p>
+<p>Of course, my Sabu Fujigasaki Rinka could watch me teach, but since Fujigasaki Rinka was currently in the USA, only Tsukiyo and I were in this Gym.</p>
+<p>"Shinkaiyatsude was created by a person named Sato Gen...."</p>
+<p>I first explained the history of Shinkaiyatsude to Tsukiyo. As I explained everything to Tsukiyo, from how Sato Gen obtained the martial art to the principle of single-line transmission, Tsukiyo listened with shining Eyes, as if intrigued.</p>
+<p>"So, the first generation of Shinkaiyatsude created the martial art after seeing Dad?"</p>
+<p>Calling the Abyss 'Dad'.... The word 'Dad' really doesn't suit it, does it? Of course, since the first generation, Sato Gen, created the martial art after seeing the Abyss, Tsukiyo's words were correct. Come to think of it, Tsukiyo is a child born from what Lizhael left behind, so I was curious if the Abyss would recognize Tsukiyo as its Daughter. This seems like a sensitive theme, so it's probably better not to ask.</p>
+<p>"For now, let's stop talking about the history of Shinkaiyatsude.... I'll show you the basic posture first."</p>
+<p>I slowly took a posture. In fact, the basic posture wasn't particularly a secret technique. It was just a slight variation of basic postures seen in martial arts like Japanese Aikido, so it wouldn't be difficult and would be easy to follow. Of course, if one hadn't trained at all, kicks might be difficult, but wouldn't Tsukiyo do well?</p>
+<p>"Now, just try to follow once."</p>
+<p>I briefly showed a few postures and told Tsukiyo to follow, but contrary to my expectation, her posture was very awkward. Huh? Why can't she do better than this?</p>
+<p>"Why can't you follow?"</p>
+<p>"I understand it in my Head, but my body doesn't seem to follow."</p>
+<p>Her body can't follow? I heard she was using the body of a woman named Sato Tsukiyo, so is it because that woman's body hasn't been trained at all...? But Tsukiyo's words didn't quite make sense to me. Because I had seen something in the News.</p>
+<p>"I saw in the News that you pierced a person's skull with a single finger?"</p>
+<p>"That was with the help of Authority. When I try to move without Authority, it doesn't go as I think."</p>
+<p>Since it's better not to use Authority if possible, I couldn't tell Tsukiyo to use Authority to perform the posture. And if she used Authority, it probably wouldn't become ingrained in her body. In that case, the first thing to do is physical training.</p>
+<p>"First, let's go to the Gym instead of the Gym. We need to start with physical training."</p>
+<p>Right next to the Gym, there was a Gym equipped with various high-end instruments for physical training, and it seemed we should start with physical training there.</p>
+<p>"First.... let's start with simple things."</p>
+<p>As expected, with a body that hadn't been trained at all, she struggled quite a bit even with small weights, but Tsukiyo's Abyss-like power seemed to also have regenerative abilities, so her recovery was quick, and it seemed that progress in physical training could be made rapidly.</p>
+<p>Although it hadn't been long since I saw Tsukiyo, I thought her Appetite was quite vigorous, and it seemed to be because of her regenerative abilities.</p>
+<p>"Do ten sets of what I just showed you, then rest today."</p>
+<p>"Ten sets? That's too many, Oppaa~!"</p>
+<p>Normally, I would have her do about five sets, but since I knew she had regeneration, I had her do double the usual and came Outside. In fact, ten sets weren't too many for someone with regenerative abilities. Besides going to the Airport today, I had other schedules, so I couldn't stay with Tsukiyo continuously.</p>
+<p>While supervising Tsukiyo's exercise, I also lifted some equipment, so I took a Shower to wash off the Sweat, changed into a Suit, and then got into the vehicle I used to drive during my Talent Development Institute days, which was parked at the mansion.</p>
+<p>Today, I planned to visit the Talent Development Institute. After coming to Neo Tokyo, I had many busy things to do so I couldn't go right away, but I couldn't delay any longer. Since I didn't know what would happen if Yukiko got upset, I had to meet her today.</p>
+<p>"I'll probably be back Home tomorrow."</p>
+<p>"Understood, Ryuta Young Master. Have a good trip."</p>
+<p>After telling Butler Tosen Nobumichi that I would probably return tomorrow, I started the vehicle. Yotsukaido City, Chiba Prefecture, where Neo Tokyo and the Taira Talent Development Institute are located, took about 40 minutes by vehicle.</p>
+<p>I had often visited the Talent Development Institute from Tokyo, but since it was my first time going from Neo Tokyo, unfamiliar scenery appeared, so it didn't feel like the road to the Talent Development Institute. Of course, once I entered Yotsukaido City, familiar street scenes appeared, making me feel like I had returned after six months.</p>
+<p>"What is the purpose of your visit?"</p>
+<p>The Talent Development Institute Security Guard stopped my vehicle and asked, so I showed him the employee ID card I used during my Talent Development Institute days.</p>
+<p>"My Business Trip is over. I'd like to see my team members before returning."</p>
+<p>"Ah, is that so?"</p>
+<p>The Security Guard listened to my story and looked at my employee ID card, then, perhaps seeing the surname Taira, he was suddenly surprised and, with an exaggerated feeling, politely returned the ID card, then straightened his posture and opened the door for me. As long as "Taira Ryuta" was written on the employee ID card, it was an unavoidable situation.</p>
+<p>Having returned to the Talent Development Institute after a long time, I parked my car in front of Taira Yukiko's house within the Talent Development Institute, which was my old designated spot, and got out.</p>
+<p>Where should I go first? I pondered whether to go to the Director's office where Taira Yukiko was, or to Education Support Team 2 where I used to work.</p>
+<p>It didn't particularly matter where I went, but if I went to Yukiko first, she probably wouldn't let me go, so I headed to Education Support Team 2 first.</p>
+<p>"Long time no see~!"</p>
+<p>Entering the Education Support Team 2 office, I greeted them and gave the employees the gifts I had brought in advance. Since my colleagues thought I had gone on a Business Trip to the Hokkaido Branch, I had prepared Hokkaido specialty sets in advance and distributed them as gifts.</p>
+<p>There were quite a few team members I was seeing for the first time, and it seemed there were some people to fill the void left by Mimata Chieri, who had retired to take on the role of President of East Weapon, and my sudden Business Trip to the Branch.</p>
+<p>"Team Leader-nim."</p>
+<p>As I gave a gift and greeted Team Leader Shinoe Misano, a married woman with glasses whom I hadn't seen in a long time, Shinoe Misano's Eyes widened, as if she hadn't expected my visit. Still, like a Team Leader, she soon calmed her surprise, smiled, and opened her mouth.</p>
+<p>"Ryuta-ssi. Did your Business Trip end well?"</p>
+<p>"Yes, the Work ended well. I received a Vacation for a while after the Business Trip, but I thought it was my Duty to give my greetings, so I came to visit."</p>
+<p>As I spoke while giving her the gift set, Shinoe Misano said, "Oh my, thank you," and accepted it. After giving Shinoe Misano an eye-greeting, I also gave a gift set and greeted Suzuki Chisami, who was sitting in the sub-Team Leader's seat.</p>
+<p>"Long time no see, Sub-Team Leader-nim."</p>
+<p>"Yes, long time no see, Ryuta-ssi."</p>
+<p>Although it was a little awkward after a long time, after exchanging greetings and distributing all the gifts to the remaining team members, Shinoe Misano, who seemed to have been waiting for the gift presentation to finish, called me.</p>
+<p>"I need to receive your Business Trip Report.... Ryuta-ssi, would you follow me?"</p>
+<p>A Business Trip Report.... She must want a body report, not a Business Trip Report. Since I had no reason to refuse, I nodded my Head, and Suzuki Chisami also stood up from her seat, saying she would come along.</p>
+<p>"I'm also curious about the Work at the Hokkaido Branch...!"</p>
+<p>In the end, I was caught by the Team Leader and Sub-Team Leader of Education Support Team 2 and dragged to an empty office in a secluded Place. I had told them that I had to go on a secret mission for the group, so in fact, there was no need to give these two a Business Trip Report.</p>
+<p>Kung!</p>
+<p>As soon as the door closed roughly, Shinoe Misano and Suzuki Chisami simultaneously began to take off their Clothes. Huh?! Were they sharing their sex with me...? It was six months ago, so I don't remember.</p>
+<p>"While waiting for you, I had drinks with the Sub-Team Leader a few times."</p>
+<p>Shinoe Misano's words seemed to imply that they had learned about their relationship with me while drinking Alcohol. I am curious about what stories they told while drinking.</p>
+<p>"So, quickly take off your Pants."</p>
+<p>This time, it was Suzuki Chisami's words. Saying to take off my Pants instead of just my Clothes felt even more like Heat. I knew it would come to this, but aren't they too intensely in Heat? Under their urging, I had no choice but to take off my Pants.</p>
+<p>Since it's come to this, I need to satisfy them quickly. Because I also have a schedule later.</p>
+<p>30 minutes later.</p>
+<p>"Heueuheuung...!"</p>
+<p>"Heuhaaheung...! No more~!"</p>
+<p>With my cock, continuously trained by St. Francisco Female Students and various other Women, Shinoe Misano and Suzuki Chisami had no choice but to surrender quickly. If Taira Yukiko hadn't been waiting, I would have played with them a little longer, but since Taira Yukiko was waiting, I did my best to use Bedroom Arts to bring them to Climax as quickly as possible.</p>
+<p>"First, both of you, compose yourselves and put on your Clothes."</p>
+<p>"Nehee...."</p>
+<p>"Heueuung...!"</p>
+<p>Since they couldn't compose themselves, I helped them put on their Clothes. In the early stage of dressing, as soon as my hands touched them, they shot out vaginal fluid with 'pew-pew' sounds and reached an additional Climax, but after that, they calmed down, and with my help, they were able to put on their Clothes quickly.</p>
+<p>"For now, I'll go to the Director-nim. I'll visit often, so don't be too disappointed."</p>
+<p>I greeted them. Shinoe Misano and Suzuki Chisami made a somewhat regrettable Expression when I left too quickly, but they greeted me with an Expression that said, 'It can't be helped.'</p>
+<p>Instead of going straight to the Talent Development Institute Director's office, I stopped by the Shower Room in the Talent Development Institute Gym. Still, it was a long-awaited meeting, and I couldn't go smelling strongly of Women. After finishing my Shower and drying my Head, I arrived at the Talent Development Institute Director's office to find Yukiko's secretary, Ikehara Koyuki, whom I hadn't seen in a long time.</p>
+<p>"Hello, Ikehara-ssi. Is Director-nim here?"</p>
+<p>"Long time no see, Ryuta-nim. Director-nim is waiting in her office."</p>
+<p>Because I had told her I was coming today, Taira Yukiko seemed to be waiting. Anticipating what had just happened with Shinoe Misano and Suzuki Chisami, I arrived at the Talent Development Institute a little early, so I wasn't late for my meeting with Taira Yukiko.</p>
+<p>TheDreaming-nim requested Randoseru Hanakame 1. Dance in the Village 2. Pressing breasts in a Phone Booth.</p>
+<p>1.</p>
+<p>2.</p>
+<p>Neosblue-nim requested SD Hanakame and SD Asada Ei</p>
+<p>Hanakame first~!</p>
+<p>Asada Ei~!</p>

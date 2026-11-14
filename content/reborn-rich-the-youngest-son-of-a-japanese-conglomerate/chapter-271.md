@@ -5,69 +5,75 @@ weight = 271
 chapter = 271
 +++
 
-<p>The Federal Superpowers Administration is one of the secret organizations of the US government. It's a department that tracks and manages superhumans all over the world, including the United States, and it was the busiest department due to the Dignity Health Sports Park disaster caused by Famine this time.</p>
-<p>,That's all for the report on Famine."</p>
-<p>Various information about Famine was displayed on the screen on the wall of the conference room. Basic information such as name and place of residence was already written, and a real-time location prediction system was running.</p>
-<p>,That's all for the discussion about this Famine guy. All we can do is hope our agents track him well...."</p>
-<p>A middle-aged white man with slicked-back white hair and a white beard opened his mouth as he turned off the screen. He was James Fuller, the director of the Federal Superpowers Administration, or FSA for short. He himself was a psychometry ability user and was recognized for his outstanding skills and was serving as the director of the FSA.</p>
-<p>The FSA had been figuring out Famine for several hours and had dispatched FSA agents to the expected location, so now it was up to the agents. James Fuller trusted his agents, so he was confident that the agents would catch Famine.</p>
-<p>,Then.... Let's move on to the Aitana De La Rosa case that we persuaded. Since the existence of superhumans has been revealed to the world, the President is planning to create a superhuman unit with her, the most famous superhuman, as the commander, so it's out of our hands."</p>
-<p>,Since she's under the military, we don't have to set up a separate operation."</p>
-<p>Diana Leach, the deputy director of the FSA, replied to James Fuller's words. Diana Leach was a black woman from an agent background and a superhuman with aerokinesis (air manipulation) ability.</p>
-<p>,Now all that's left is...."</p>
-<p>,Black Knight, I guess."</p>
-<p>Famine was being tracked, and Aitana had been persuaded to join the military, so all that was left was the man in black armor who joined forces with Aitana to fight Famine. Currently, his identity is unknown, so he was being called Black Knight, named after his appearance in black armor.</p>
-<p>,Did you check the combat motion matching program?"</p>
-<p>,Of course. The results are out, too."</p>
-<p>Diana Leach asked the researcher standing next to her, and the researcher replied confidently. The researcher turned on the screen installed on one wall and showed the battle between Black Knight and Famine. The screen was scanning Black Knight's battle scenes one by one and comparing them to similar schools.</p>
-<p>,As a result of examining this combat method, it is 87.8 percent consistent with Fujigasaki Rinka's martial arts. If you exclude the jumping motion in the middle to deal with Famine, it will be at least 94 percent consistent."</p>
-<p>,Fujigasaki Rinka.... This is a headache."</p>
-<p>James Fuller rubbed his forehead. In the past, the FSA, thinking that Fujigasaki Rinka's martial arts had reached the ranks of superpowers, contacted Fujigasaki Rinka and was severely scolded.</p>
-<p>Fujigasaki Rinka, angry at the FSA agents who were acting a little aggressively, had subdued as many as 15 FSA agents.</p>
-<p>After that, after several clashes, they barely restored their relationship, but the FSA suffered enormous damage from those few clashes. Most of the FSA agents had been hospitalized by Fujigasaki Rinka more than once. Because of this, the director of the FSA at the time had no choice but to resign.</p>
-<p>According to the agents' testimony, there was a story that she fought with the FSA agents happily, smiling as if she was happy to be able to fight. Even while giving that testimony, the agent seemed to feel fear of Fujigasaki Rinka.</p>
-<p>In the end, James Fuller, the new FSA director, personally apologized to Fujigasaki Rinka, and now they have a relationship where they occasionally give Fujigasaki Rinka requests for a fee.</p>
-<p>,But it's not Fujigasaki Rinka herself. As you can see in the video, there is a difference in size, and at that time, Fujigasaki Rinka was just entering LA."</p>
-<p>,Then.... You're saying it's not Fujigasaki Rinka, but someone who uses martial arts from the same school?"</p>
-<p>The researcher nodded at Diana Leach's question. Fujigasaki Rinka's school.... It was quite meaningful. By learning those martial arts, you can fight superhumans on an equal footing or better, so if we acquire those martial arts....</p>
-<p>,According to Fujigasaki Rinka's interview, her martial arts are known to be passed down to only one person, that is, one-person transmission. In that case, the person who appeared in the stadium must be Fujigasaki Rinka's master or disciple."</p>
-<p>Fujigasaki Rinka was quite famous in the United States, so she had been interviewed by various media outlets. By collecting information from various interviews, they were able to obtain quite specific information. Diana Leach came to her senses at the researcher's explanation. Fujigasaki Rinka wouldn't reveal her martial arts. But the FSA's supercomputer is still interpreting Fujigasaki Rinka's martial arts, so one day the secret will be revealed.</p>
-<p>,Hmm.... Does she know who it is?"</p>
-<p>,Fujigasaki Rinka's master, Soda Haruto, has been missing for a long time, and according to our recent investigation, her disciple is a 20-year-old Japanese man named Taira Ryuta. He seems to be staying at his master Fujigasaki Rinka's house."</p>
-<p>James Fuller frowned at the researcher's answer. The researcher was just someone who researched superpowers and investigated that information, so he didn't know the meaning of the Taira surname.</p>
-<p>Taira, one of Japan's two largest companies, has absolute influence in Japan and considerable power worldwide.</p>
-<p>,Since he's not just a Japanese person, but a member of the Taira Group, we should withdraw the plan to kidnap him and make him our agent."</p>
-<p>Diana Leach nodded silently at James Fuller's words that she would withdraw the existing plan due to the power of the Taira surname and Taira Ryuta's unusual background as Fujigasaki Rinka's disciple.</p>
-<p>Seeing that no one in the conference room thought it was strange to say that they would kidnap him and make him an agent, it seemed that it had happened often before.</p>
-<p>They decided to give up, but looking at his appearance in the video, it was a pity to just let him go. It would be nice to have a good relationship with him, even if it was impossible to have him as a member of the FSA.</p>
-<p>,Still, let's try to contact him once."</p>
-<p>,It would be nice to have a relationship where we help each other, even if we don't have him as a member of our team."</p>
-<p>Even if it's just to the extent that the FSA can outsource and entrust it to him like Fujigasaki Rinka now, he could be a very useful human resource.</p>
-<p>,It's late now, so let's visit in the morning. If we visit late at night, the image might get bad."</p>
-<p>,That's a good idea. I'll go."</p>
-<p>,Let's just have a cooperative relationship. You can do that much, right? Let's take a break, meet Taira Ryuta, and then talk about Famine."</p>
-<p>###</p>
-<p>Ding-dong!</p>
-<p>Early in the morning, the doorbell rang at Fujigasaki Rinka's house. Fujigasaki Rinka, with her hair messed up, yawned loudly and opened the door. Diana Leach, wearing a neat suit, was standing in front of the door.</p>
-<p>,Haaam~! Who is it?"</p>
-<p>Diana Leach looked at Fujigasaki Rinka, who was asking without even opening her eyes with her swollen eyes, as if she was dumbfounded, and opened her mouth.</p>
-<p>,Rinka-ssi. It's Diana Leach. You would have recognized me if you had your eyes open."</p>
-<p>,Ah, Diana.... Long time no see. A request?"</p>
-<p>Fujigasaki Rinka must know why she came, but she asked as if she didn't know, and Diana Leach was annoyed and a blood vessel popped out on her temple.</p>
-<p>,I think you can guess. I came to meet Rinka-ssi's disciple."</p>
-<p>,Ah ah~ Ryuta? What should I do? Ryuta left my house this morning to go to Japan, hehe."</p>
-<p>She must have expected the FSA to come and sent him away. Looking at her smiling like that, it seemed that she still had resentment about being aggressive at their first meeting.</p>
-<p>,Rinka-ssi, thanks to Rinka-ssi, the FSA director at the time lost his job, and you know that James Fuller-nim, the new director, hasn't done the same aggressive things since he became the new director."</p>
-<p>,Know well? Ah! That? You mean you're still recruiting agents by kidnapping, imprisoning, and coercing them? Of course I know. That's why I sent my disciple away early so he wouldn't have to go through that."</p>
-<p>Of course, she was still doing the kidnapping and coercion work that the former director had done, but she was doing it a little more carefully than before. Of course, everything was illegal, but it was being committed with the tacit consent of the US government.</p>
-<p>,Taira Ryuta-ssi has a special background, so I was just going to say hello and remain on good terms!"</p>
-<p>,Kahahat! In the end, you don't deny kidnapping! If you just want to say hello as you said, you can go to the airport quickly and wait and you'll be able to meet him. Good luck!"</p>
-<p>Diana Leach, left alone by Fujigasaki Rinka, who slammed the door shut, turned on her phone and made a call somewhere.</p>
-<p>,Find out the flight times to Japan at LA International Airport."</p>
-<p>-If it's a flight to Japan, it's at 8 o'clock.</p>
-<p>Since it was 6 o'clock now, she could meet him in plenty of time if she went leisurely. But something was strange. Fujigasaki Rinka's kyahaha! laughter kept bothering her.</p>
-<p>,Then find out the flight times to Japan at Tijuana International Airport."</p>
-<p>Tijuana International Airport was an airport in Mexico.</p>
-<p>----</p>
-<p>I didn't make any illustrations today, so I'm uploading several illustrations that I made as candidates when changing the cover ㅎㅎ</p>
-<p>Yukiko-jjang ㅠㅠㅠ</p>
+<p>When Han Yu-gyeong became the owner of White Bear, she was able to check White Bear's abilities through the relic's glasses, and White Bear had quite good abilities.</p>
+<p>White Bear had skills such as high-speed movement, Star's Howl, and Photon Blast. Star's Howl is a skill I've never heard of before, but since it has a cool-sounding name, it must be useful. In addition, its basic physical abilities are good, so it seems useful in melee combat. One disappointing thing is that it's difficult to do dark ambushes like Nero, riding in the shadows, but Nero can do that.</p>
+<p>Fortunately, White Bear was a puppy the size of a calf, so it was a bit burdensome to keep carrying it around, but when summoned, it returned to its original dimension. Also, it can be summoned again at any time, so it seemed quite useful.</p>
+<p>Nero seemed unhappy with the new rival, circling around White Bear and constantly throwing Nyan-Nyan punches, but White Bear thought they were playing and had a fun scuffle with Nero. Certainly, Nero, being a shadow panther and an ambush type, seemed to be no match for White Bear in terms of physical ability. In the end, their play (?) ended with Nero hiding in Han Yu-gyeong's shadow.</p>
+<p>It seemed that Han Yu-gyeong's battle position was definitely decided. She would fight by setting up the summon as the front line and support from behind with magic and throwing skills. Two summons are not enough for the front line yet, but she will be able to acquire one or two more as she levels up.</p>
+<p>Or she could create something like a summoning circle through crafting. I remember a few coordinates... Of course, if I remember them, it's because they are the best summons in the game, so the materials to make the summoning circle will be ridiculously difficult to obtain. But I'll be able to make it if I prepare.</p>
+<p>"White Bear, stay put for now."</p>
+<p>"Kkiing, kkiing~!"</p>
+<p>Before going to the Dark Commerce Tokyo branch, when I tried to unsummon White Bear, it whined and clung to Han Yu-gyeong, but since there was a scheduled time, I couldn't play with it any longer, so I had no choice but to unsummon it. No matter how cute it is, there's nothing I can do about it.</p>
+<p>When Han Yu-gyeong unsummoned White Bear, White Bear turned into particles of light and scattered away. Nero, who was watching the scene from afar, yawned in satisfaction and disappeared into Han Yu-gyeong's shadow.</p>
+<p>"Shall we go now?"</p>
+<p>"Okay~!"</p>
+<p>We left the hotel to meet with Eve and the representatives of Energy-Link Industrial Company. The Dark Commerce Tokyo branch was a remodeled underground shelter that had been abandoned in the early days of World War III, but now Dark Commerce had purchased the site and built a building above the entrance to disguise it.</p>
+<p>Most of the buildings built above the entrance were used as corporate offices, and the first floor was used as a convenience store. However, if you entered a small office called Higashiyama Trading in one corner of the first floor, there was an entrance to Dark Commerce.</p>
+<p>We nonchalantly entered the Higashiyama Trading office where people were present, and when we authenticated with the Dark Commerce app on the black tablet on one wall, the wall opened and an elevator appeared.</p>
+<p>Because it was an underground shelter, we had to go down quite a bit by elevator. When the elevator doors opened, the interior was quite neatly decorated, and Eve was immediately welcoming us. Hmm? Something seems different...</p>
+<p>"Welcome~! Everyone!!"</p>
+<p>"Eve! O-Outfit, what is that!"</p>
+<p>As soon as Han Yu-gyeong saw Eve, she was scolding Eve. Eve was wearing a tight-fitting white mini dress that revealed her cleavage. It's a bit much because it's made of a slightly see-through material. Since Eve is a hologram without substance, she can change her outfit as much as she wants, so Eve will change her clothes because of Han Yu-gyeong's protest.</p>
+<p>"Ahaha! I'm sorry, but I can't change since I'm already wearing it."</p>
+<p>Normally, Eve would ask, "Are you uncomfortable?" and quickly change her clothes in one second, but today she refused Han Yu-gyeong's protest. Something's a little strange? I've felt something was off since earlier, but when I looked closely, Eve was different than usual.</p>
+<p>There was no angel ring-like thing that was always spinning above Eve's head. When I asked Eve about that ring before, she said it was a hologram drone that moved and shot holograms so that she could move even in hologram form, so that means...</p>
+<p>"Eve, could it be...."</p>
+<p>When I looked at Eve and said "could it be," Eve tilted her head slightly to the right and smiled. That's right. The reason I felt uncomfortable wasn't because the hologram drone was missing.</p>
+<p>Eve was emitting a presence that a hologram couldn't emit.</p>
+<p>"Well then~ Shall we shake hands, Ryuta-nim?"</p>
+<p>Eve smiled brightly and held out her hand to me. I also held out my hand in response. Because I held out my hand without using the Abyss like I had done until now, if Eve was a hologram, my hand would grab empty air.</p>
+<p>Squeeze!</p>
+<p>Eve squeezed my hand tightly. As expected... She wasn't a hologram. I don't know how she did it, but Eve had created a body that was indistinguishable from a real person.</p>
+<p>"Huh?"</p>
+<p>"Surprised?"</p>
+<p>Eve stuck out her tongue slightly and said as Han Yu-gyeong, who was watching from the side, was surprised.</p>
+<p>The reason Han Yu-gyeong was surprised was because the development and production of androids (artificial intelligence robots in human form) had been tabooed and stopped due to the many restrictions imposed on artificial intelligence during World War III.</p>
+<p>Currently, only robots that perform only predetermined tasks without artificial intelligence are being produced. Of course, companies are making androids in the shadows, but they probably can't make an android as good as Eve in front of me right now.</p>
+<p>It seemed that me shaking hands in hologram form while wearing the Abyss had caused this butterfly effect. Eve was definitely a hologram in the game...</p>
+<p>"Did you make a body?"</p>
+<p>"Yes! Eve can go anywhere now!"</p>
+<p>She's very excited. No matter how I look at her, she looks like a real person. Both her appearance and the way she talks are not like an artificial intelligence android.</p>
+<p>"Wow, that's really amazing... She's like a real person."</p>
+<p>Han Yu-gyeong approached Eve and began to touch Eve's skin, as if she had forgotten that she was angry about Eve's outfit.</p>
+<p>"Ahaha! That tickles, Han Yu-gyeong-ssi!"</p>
+<p>The fact that she feels ticklish from Han Yu-gyeong's touch means that she is even implementing senses... It seemed that she had great technological prowess as she dominated the underground commerce.</p>
+<p>Han Yu-gyeong touched Eve's body for a long time, and then touched Eve's large breasts, forgetting that I was there. Han Yu-gyeong's fingers were buried in Eve's skin and went in with a squish. Just looking at that, it seemed like she definitely had S-class breasts with a good texture.</p>
+<p>"Wow.... Her breasts are so soft too."</p>
+<p>"Um, Han Yu-gyeong-ssi? Ryuta-ssi is still watching?"</p>
+<p>Han Yu-gyeong was startled by Eve's words and took her hand off her chest. She was so engrossed in touching her breasts that she forgot about my existence, so I became really curious.</p>
+<p>"Ah, by the way, where is Mimata Sunbae-nim?"</p>
+<p>"Isn't she coming because it's not the appointment time yet?"</p>
+<p>I turned the topic to Mimata Chieri for Han Yu-gyeong, who was feeling awkward. I was planning to get help from Mimata Chieri, who knows more about these contracts than I do, so I called Mimata Chieri too, but it seemed that she hadn't arrived yet.</p>
+<p>"Um! It seems that Chieri-ssi has just entered the Higashiyama Trading office."</p>
+<p>Eve said, having received a call from the office above. Mimata Chieri must be quite something, as she seemed to have arrived at the building as soon as I mentioned her name.</p>
+<p>Han Yu-gyeong seemed a little nervous. Meeting Mimata Chieri, who is a beautiful woman and my secretary, Han Yu-gyeong must be feeling something uncomfortable as a woman.</p>
+<p>When I told her about Mimata Chieri, Han Yu-gyeong seemed a little uncomfortable, but because I couldn't help it because she was the secretary assigned by my grandfather, and she was someone I trusted now, so I couldn't fire her, Han Yu-gyeong would try not to have a bad relationship with her, even if she couldn't get close to her.</p>
+<p>Ding!</p>
+<p>The elevator opened and Mimata Chieri with her orange medium-length hair came out.</p>
+<p>"Junior, Eve! Hello~!"</p>
+<p>Mimata Chieri first greeted me and Eve. Mimata Chieri approached Han Yu-gyeong and began to examine Han Yu-gyeong. And she opened her mouth.</p>
+<p>"Wow! You're really pretty! How can a person look like this?"</p>
+<p>"Ah, hello?"</p>
+<p>"Yes! I'm Mimata Chieri, the junior's secretary! As expected, you're beautiful, just like the person the junior is dating! And your skin is so good!"</p>
+<p>Han Yu-gyeong couldn't come to her senses from Mimata Chieri's praise bombardment.</p>
+<p>Unlike Arisu and other women who know that I have relationships with other women, Han Yu-gyeong didn't know yet, so I told Mimata Chieri to be careful with her words and actions in advance, but Mimata Chieri seemed to be using a strategy to keep praising Han Yu-gyeong to take her mind off things.</p>
+<p>"But why does Mimata-ssi call Yongtae, no, Ryuta, 'junior'?"</p>
+<p>"Ah, actually that's...."</p>
+<p>Han Yu-gyeong also seemed to like Mimata Chieri, who was friendly to her, and they had already started talking to each other.</p>
+<p>It's good that the two of them are getting close, but since work came first, I stepped in.</p>
+<p>"Let's talk about that later, and first, we need to negotiate with the representatives of Energy-Link Industrial Company, so let's talk about how much money we're going to pay and how much we should concede if the representatives of Energy-Link Industrial Company demand a stake."</p>
+<p>In fact, there was still more than an hour left until the appointment time with Energy-Link Industrial Company. We gathered first to decide on what conditions we would make the contract.</p>
+<p>---</p>
+<p>Eve Unreleased Illustration</p>
+<p>Black also suits her well~!</p>
+<p>Everything suits her, Eve hehe</p>

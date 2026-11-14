@@ -5,85 +5,80 @@ weight = 897
 chapter = 897
 +++
 
-<p>"Kazuhiroya...."</p>
-<p>Kinui Tachio offered incense at the Buddhist altar of his dead Disciple, Takane Kazuhiro, calling his Disciple's name. The Disciple he had raised like a son had died at Anyaji's hands.</p>
-<p>The one who killed Takane Kazuhiro was Funayama Seigo, one of Anyaji's Four Heavenly Kings, but Funayama Seigo only finished him off; the one who incapacitated Takane Kazuhiro and Tortured him was Anyaji's second-in-command, Hojo Otoji.</p>
-<p>-Your Disciple endured quite well. Even though I touched him quite sincerely, he didn't reveal your whereabouts. So I had my Disciple finish him off. -Hojo Otoji</p>
-<p>This was Hojo Otoji's Note, placed on Takane Kazuhiro's Corpse. From then on, Kinui Tachio began to sharpen the blade of Revenge.</p>
-<p>With the battle against Anyaji, once again entangled in an ill-fated relationship, before him, Kinui Tachio yielded Funayama Seigo to Seizawa Shii to capture Hojo Otoji. After all, Funayama Seigo was merely the Role of a Sword, and the one who wielded that Sword was Hojo Otoji.</p>
-<p>Today was the day to settle the grudge. Hojo Otoji, as if to provoke Anger, attached a Photo of the dead Takane Kazuhiro's Corpse and sent a Duel challenge, and Kinui Tachio had no intention of avoiding that Duel.</p>
-<p>"Sabu~! Are you greeting Senior Brother?"</p>
-<p>Kujo Kina, wearing a hearty Smile, entered the room with the Buddhist altar where Takane Kazuhiro was enshrined and asked. Then, without waiting for an Answer, she came next to Kinui Tachio, closed her Eyes and pressed her Palms together in prayer.</p>
-<p>"Senior Brother, in this Fight, please watch over Sabu so he doesn't get hurt~!"</p>
-<p>Even though it was a Senior Brother she had never even seen his Face, it was Kujo Kina, boldly pleading for Sabu's protection. Kinui Tachio, looking at such a Kujo Kina, wore a reassuring Expression.</p>
-<p>At first, as the Youngest of the renowned Kujo Family, a chaebol family, he had a Prejudice that she might be arrogant, but she was a hearty and thoughtful Child.</p>
-<p>"Let's go now."</p>
-<p>"Osu!"</p>
-<p>Kinui Tachio, taking Kujo Kina, headed towards where the other Disciples were. It was the Training ground in the back garden of the Kujo Family's mansion, where young Disciples, Sato Haruto, Ageba Tsurumi, and Suzuki Kaho, were throwing Fists, following Nakasone Rishin's posture.</p>
-<p>"Rishin, you're doing well."</p>
-<p>Nakasone Rishin, during the last Anyaji Attack, had been affected by Jusul and unknowingly passed Information to Anyaji, and since then, she had frantically dedicated herself to Training.</p>
-<p>All the Disciples kidnapped by Anyaji had outstanding Talent, so Nakasone Rishin's dedication to Training was yielding results. Even Kujo Kina, who had a long history of Fighting Training, showed a growth rate that made her Flinch.</p>
-<p>Of course, Kujo Kina also possessed outstanding Talent, and was so sincere in martial arts that she was said to have Training as a Hobby, so Kujo Kina also developed, and the Gap in Level did not significantly decrease, but it was a fact that Nakasone Rishin had somehow risen to a Level where she could contend with Anyaji's undefeated.</p>
-<p>"Sabu-nim, I repeat, I also wish to participate in the battle."</p>
-<p>However, the problem was that her Skill had actually improved.</p>
-<p>Originally, only Kinui Tachio and Kujo Kina were supposed to participate in the battle against Anyaji, but Nakasone Rishin, having gained Confidence, also expressed her intention to participate.</p>
-<p>Nakasone Rishin also had suffered so much at Anyaji's hands, that he couldn't simply oppose her.</p>
-<p>Driven Crazy by Anyaji, abandoned by her Family, confined to a Mental illness hospital, kidnapped and Brainwashed by Anyaji in the Mental illness hospital, becoming Anyaji's Disciple, then rescued by Fujigasaki Rinka and Gwonmaeng, becoming Kinui Tachio's Disciple, and even passing on Information with the Jusul that still remained, it was natural for Nakasone Rishin to burn with Hatred towards Anyaji.</p>
-<p>"Teacher Ryuta said he would dispatch personnel to help us, so let's let her participate, Sabu? He also said Actual combat experience is important, didn't he?"</p>
-<p>"Hmm...."</p>
-<p>Even Kujo Kina added her opinion in favor of allowing Nakasone Rishin to participate, and Kinui Tachio stroked his Chin, lost in Worry. Then soon, he nodded his Head, considering her participation.</p>
-<p>"Alright, Actual combat is important, and it's also important that you, Rishin, can handle one person. I will allow your participation this time."</p>
-<p>As Kinui Tachio allowed Nakasone Rishin's participation, Nakasone Rishin immediately bowed her Waist, expressing her gratitude to Sabu.</p>
-<p>"There isn't much time left until departure, so Rishin, prepare quickly."</p>
-<p>"Understood, Sabu-nim! Thank you, Senior Sister, for taking my Side."</p>
-<p>At the Words to prepare, she bowed to Sabu Kinui Tachio once again, and after bowing to Kujo Kina, who had taken her Side, Nakasone Rishin ran to her Room to prepare for battle.</p>
-<p>Despite being only one year apart in age, and just one day apart in the order of initiation, Nakasone Rishin carefully taught Etiquette to Kujo Kina, addressing her as Senior Sister (師姐: a woman initiated before oneself). Kujo Kina, looking at Nakasone Rishin's back, opened her mouth.</p>
-<p>"By the way, Sabu, are you all prepared?"</p>
-<p>"For me, I only need my Body, so there's nothing to prepare. Are you all prepared?"</p>
-<p>"I'm also a Fist Technique practitioner, so I only need my Body."</p>
-<p>While the two Disciples were talking, Nakasone Rishin, having finished her preparations, ran over. As if she had worried they might leave without her, when she saw Sabu and Senior Sister waiting for her, she smiled brightly.</p>
-<p>"Are you all prepared?"</p>
-<p>"Yes. I thought the Martial Arts Uniform would attract too much Gaze, so I changed into other comfortable attire."</p>
-<p>Until just now, she had been wearing her Martial Arts Uniform, but now that she was prepared, she was wearing a tracksuit. Kujo Kina also was not wearing a Martial Arts Uniform, but Jeans and a Leather jacket, and only Kinui Tachio was wearing a Martial Arts Uniform.</p>
-<p>"Alright, then everyone, let's go settle the grudges we each hold against Anyaji."</p>
-<p>Kinui Tachio nodded his Head, and walked ahead. And they set off towards the Position Hojo Otoji had designated for the Duel.</p>
-<p>Taira Mansion.</p>
-<p>The rest, busy preparing for the Fight with Anyaji, were relaxed, unlike the combat Group. Taira Kanna was enjoying tea time with Nakanoin Rina and Muko Neika, who would be participating today.</p>
-<p>"Kanna, is it alright to enjoy such Leisure?"</p>
-<p>"We have different Missions."</p>
-<p>As Nakanoin Rina asked with a slightly worried Expression, Taira Kanna, who had been sitting in a luxurious Chair drinking tea, put down her Teacup and wore a relaxed Smile, as if telling her not to Worry.</p>
-<p>"That's right. Everyone has different Operation times, so there's no need to be anxious, Committee Chair."</p>
-<p>Beside her, Muko Neika, who was heartily dipping Cookies in jam and cream, agreed with Taira Kanna's Words.</p>
-<p>Although Muko Neika seemed to have no thoughts, as she was called Juuki (Gun Demon) and had performed countless Missions, Muko Neika's Words were probably not far off. However, Nakanoin Rina realized there was one thing wrong with those Words.</p>
-<p>"Since I've Graduated now, could you please stop calling me Committee Chair?"</p>
-<p>Nakanoin Rina, the Discipline Committee Chair of St. Francis Girls' Academy, disappeared upon Graduation. Now, she was just the Layperson Nakanoin Rina.</p>
-<p>"The Word 'Committee Chair' is stuck in my Mouth.... By the way, Ch- no, Kanna, couldn't you give Rina-ssi a position with 'Committee Chair' in its name?"</p>
-<p>"Just because it's stuck in your Mouth, do I have to attach 'Committee Chair' to her position?"</p>
-<p>At the sight of the two bickering, Taira Kanna found herself laughing without realizing it.</p>
-<p>"Ahaha, for now, I'm not in a Position to bestow anything. I'm Sorry, Neika. Try calling her Rina instead of Committee Chair."</p>
-<p>"Ri, Ri, Rina...?! It won't work. I like the Address 'Committee Chair'. Calling her Ri, Rina... is awkward."</p>
-<p>At Taira Kanna's Proposal, Muko Neika called her Rina very awkwardly, but it was indeed awkward.</p>
-<p>"Hmph.... Alright. I'll just think of 'Committee Chair' as my nickname. Just call me Committee Chair."</p>
-<p>Nakanoin Rina, as if she couldn't help it, accepted Muko Neika calling her Committee Chair.</p>
-<p>"Really? I can call you Committee Chair? Rina-ssi is the best after all!"</p>
-<p>"You just now called me Rina-ssi so casually!"</p>
-<p>While drinking tea, Taira Kanna, who had been watching Nakanoin Rina and Muko Neika bickering for a long time, checked the Clock on the Wall.</p>
-<p>"Now, slowly prepare. We should also get to Work."</p>
-<p>"If we prepare from now, it seems it will be just right."</p>
-<p>Muko Neika, who had a lot to prepare, after hearing Taira Kanna's Words, checked the Clock, nodded her Head, and went Outside.</p>
-<p>"I have been prepared since earlier."</p>
-<p>She had already been wearing a cyber Suit under her Clothes, and the giant Jitte Nakanoin Rina used was also placed right next to her, so Nakanoin Rina had nothing else to prepare.</p>
-<p>"By now, some must have already started the Battle."</p>
-<p>Taira Kanna said, continuously looking at the Clock. Taira Kanna's Group was assigned the Role of departing a little later, so she thought there would be a Group that had already started the Battle by now.</p>
-<p>"We can't lose either. To finish this Work cleanly, I'll also go prepare."</p>
-<p>Taira Kanna also stood up from her Seat. To finish this Work cleanly, as Taira Kanna was thinking of receiving abundant Love from her beloved Orabeoni, she prepared thoroughly.</p>
-<p>"Today, the name Anyaji will disappear from the World."</p>
-<p>Taira Kanna muttered quietly, and headed towards the Room where her combat Equipment was.</p>
-<p>Kanna Tea Time B-cut~!</p>
-<p>Requested by Gojoy-nim: Athena's usual attire and underwear~!</p>
-<p>Starting with usual attire~!</p>
-<p>Underwear~!</p>
-<p>Requested by TheDreaming-nim: 1. Cheon Harin in a Forest, Lake outdoor exposure 2. Cheon Harin attacking a person holding a phone camera, in the same background as 1~!</p>
-<p>1.</p>
-<p>2.</p>
-<p>The Last one is a Scene of snatching the phone haha</p>
+<p>At a similar time, the Reserve Unit 2 Team Office.</p>
+<p>Reserve Unit 2 Team Leader Izawa Atsumu (伊沢 厚六) was not very interested in fame, unlike Reserve Unit 1 Team Leader Saimura Tatsushi.</p>
+<p>Of course, Izawa Atsumu also knew that the Attack team would never ask for Help, and being a martial artist who disliked troublesome things, he thought this mission suited him perfectly.</p>
+<p>Anyway, there was no need to go out for support, and it was just a matter of waiting, so it was perfect for Izawa Atsumu, who hated troublesome things.</p>
+<p>So, after telling his team members to wake him if they received Contact, Izawa Atsumu unfolded a cot and had been lying asleep in a corner of the office since Morning.</p>
+<p>Whoosh!</p>
+<p>"W-What is this?!"</p>
+<p>Izawa Atsumu, who had been deeply immersed in sweet Sleep for a long time, was suddenly drenched in water, and had no choice but to wake up with a start.</p>
+<p>"What the hell is going on?!"</p>
+<p>"The sprinkler suddenly burst!"</p>
+<p>At Izawa Atsumu's Question, one of the Reserve Unit team members, also thoroughly soaked, spoke with a flustered Expression. At first, he thought his team members were playing a Prank on him, but seeing everyone in the office looking like drowned Mice, it seemed it was no Prank.</p>
+<p>"Did someone smoke a Cigarette under the sprinkler or something?"</p>
+<p>"No, sir...!"</p>
+<p>At Izawa Atsumu's Words, a Reserve Unit team member, also with a flustered Expression, replied. Water continued to pour from the sprinkler, and the administrative employees were in a frenzy trying to keep the computers from getting wet. In fact, as most of Anyaji were martial artists, there was no one smoking a Cigarette as Izawa Atsumu had suggested.</p>
+<p>Then, as white smoke entered through the Gap at the bottom of the office Entrance door, thinking the building was on Fire, Izawa Atsumu shouted.</p>
+<p>"One person go out and check if there's a Fire, then go to the Management Room or Facility Room!"</p>
+<p>"There's no Fire, so there's no need for that."</p>
+<p>Kki-ik.</p>
+<p>At Izawa Atsumu's shout, someone outside the door replied, opened the office door, and entered. A woman with white hair and pale Skin, wearing a unique Cyber Suit, entered the office along with the white smoke.</p>
+<p>"W-Who are you?!"</p>
+<p>Seeing the suddenly malfunctioning sprinkler and the white smoke that clearly wasn't a natural phenomenon, it seemed this white-haired woman who had just entered had caused something. Her Attire, not ordinary clothing, but a Cyber Suit with various Devices, was extremely suspicious.</p>
+<p>"You won't know even if I tell you, but since you asked a Question, I'll tell you. I am Asada Ei, Team Leader of Investigation Bureau Team 1."</p>
+<p>Asada Ei, who had left the Investigation Bureau General Situation Room to achieve merit, arriving at Reserve Unit 2, was all part of the Plan.</p>
+<p>For Asada Ei, the only Executive in the General Situation Room, to leave her post was a bit risky, but because Taira Ryuta, whom Asada Ei served, strongly desired to completely eradicate Anyaji as of today, Asada Ei had to take Responsibility for at least Reserve Unit 1.</p>
+<p>Due to the special Place called Miyashi, other forces like PMCs could not be deployed, so it was even Information Team Leader Asada Ei's Turn.</p>
+<p>Until the Last, they weighed Kijimoto Jurie against Reserve Unit 1 and 2, but unlike Reserve Unit 1, the office building had sprinklers installed, and because Reserve Unit 2 Team Leader Izawa Atsumu, who found everything troublesome, was asleep, there was a prediction that he might not even consume the Poison Kijimoto Jurie had prepared. Due to this, it was decided that Kijimoto Jurie would handle Team 1 and Asada Ei would handle Team 2.</p>
+<p>"Investigation Bureau? What's that?"</p>
+<p>As Asada Ei had said, Izawa Atsumu didn't know even after hearing it. In fact, not only Izawa Atsumu but the entire Anyaji didn't know the name 'Investigation Bureau'. Because they relied on external forces without proper Information power, it was a Situation where they had made a complacent Attack Plan.</p>
+<p>"You don't need to know. I have no intention of letting anyone here live anyway."</p>
+<p>"To say you can kill all of us alone, you must be a Crazy bitch!"</p>
+<p>Suddenly, Izawa Atsumu noticed that the white smoke that had been rising since earlier was around him. And he realized this white smoke was not smoke from a Fire.</p>
+<p>It was a fog like the white vapor from dry Ice. Izawa Atsumu felt his Body, drenched by the sprinkler, rapidly freezing.</p>
+<p>Wondering what was happening, even when he looked behind the door Asada Ei had opened and entered through, he saw no Machine emitting Cold energy anywhere. Then he realized something.</p>
+<p>This terrible Cold energy was coming from Asada Ei, who was from an unheard-of organization called the Investigation Bureau.</p>
+<p>"Everyone, kill this Woman! This bitch is emitting Cold energy!"</p>
+<p>Izawa Atsumu shouted and thrust out his fist. But Izawa Atsumu's fist, famous for being quite powerful within Anyaji, became incredibly slow, perhaps due to the Cold energy. Asada Ei, as if on a walk, dodged Izawa Atsumu's fist, then stretched her Hand towards the door.</p>
+<p>-Ei-ryu (氷流) Ice Flow Art (氷結術) Snowflake Diagram (雪花表).</p>
+<p>From Asada Ei's Hand, a palm-sized snowflake crystal formed, then shot out like a shuriken. And it embedded itself in the Body of an administrative employee fleeing the Cold energy. The administrative employee let out a Kueuk moaning sound, then soon collapsed, bleeding.</p>
+<p>"No one can leave."</p>
+<p>Asada Ei, at the same time as finishing her Words that no one could leave, stretched out her Hand again towards the Anyaji martial monks attempting to Attack her.</p>
+<p>-Ei-ryu (氷流) Ice Flow Art (氷結術) Ice Freezing Technique (氷柱生) Ice Pillar Creation.</p>
+<p>From the bodies of the soaked Anyaji martial monks, sharp icicles instantly formed, then pierced their comrades next to them.</p>
+<p>"Kuaaak!"</p>
+<p>The Anyaji martial monks, whose bodies were pierced by the sharp icicles, screamed in sharp, cold Pleasurable Ache, but Asada Ei didn't care. This was because she had to block other attacks aimed at her.</p>
+<p>-Ei-ryu (氷流) Ice Flow Art (氷結術) Ice Wall (氷壁).</p>
+<p>Instantly, the Moisture in the Cold energy fog condensed, becoming a thin Ice Wall that blocked the attacks against Asada Ei. And as the Ice Wall burst, the Anyaji martial monks who had attacked turned completely white as if covered in frost.</p>
+<p>"This bitch!"</p>
+<p>"Isn't it getting harder to move now?"</p>
+<p>Watching his Subordinates fall one by one, Izawa Atsumu, extremely enraged, disregarded his freezing Body and lunged forward.</p>
+<p>-Ei-ryu (氷流) Ice Flow Technique (氷結術) Silver Plate Journey (銀盤行路).</p>
+<p>Izawa Atsumu's Attack this time was a powerful Attack made with his best effort, so Asada Ei chose Evasion instead of Defense. Instantly freezing the Floor, she moved with immense speed, dodging as if sliding, Asada Ei created an Ice blade at her fingertips and, as she passed, severed the necks of the increasingly freezing Anyaji martial monks.</p>
+<p>"Th-This!"</p>
+<p>Izawa Atsumu, having lost his Fading Reason in anger, began to charge wildly. He threw office desks and fixtures that blocked his path as he charged, but his Feet were pierced by the Ice spikes Asada Ei had laid on the Floor.</p>
+<p>Even during that time, Asada Ei, like a figure skater on a silver rink, freely moved around the office, throwing Snow Flower Tables or cutting Enemies with Ice blades, slaughtering the Anyaji martial monks.</p>
+<p>In a short Time, Asada Ei, who had slaughtered everyone in the office except Izawa Atsumu, slid forward again towards Izawa Atsumu. As if his recent rampage was a lie, Izawa Atsumu's Gaze was completely clouded.</p>
+<p>"There's a lot to improve on in the future. Even with the Help of the sprinklers, it still takes Time to Neutralize a high-Level Opponent."</p>
+<p>Asada Ei, after hearing from Taira Ryuta that she was of the Seolnyeo Bloodline, searched her Mother's Family, who had given her that Bloodline, obtained an Ice Freezing Sorcery Scroll, and underwent Training. Asada Ei, who had combined original sorcery with modern Knowledge in her own way, created a new Ice Freezing Sorcery style called Ei-ryu Ice Freezing Art.</p>
+<p>However, because she hadn't experienced proper Actual combat, she had ventured out alone for this Anyaji Reserve Unit Attack.</p>
+<p>Of course, because the Investigation Bureau combat unit had come along nearby, if the battle didn't unfold as Asada Ei expected, she had intended to deploy them immediately, but with the Help of the pre-set sprinklers, she was able to grasp the advantages and disadvantages of Ei-ryu Ice Freezing Art in her own way, while simultaneously eliminating the Enemies.</p>
+<p>"Thank you for providing various Data. Information is always important, you see."</p>
+<p>Speaking like a Team Leader of an Information unit, Asada Ei threw a Snow Flower Table at Izawa Atsumu's Furrowed Brow. Izawa Atsumu, whose body temperature had already dropped and whose Mind was hazy, lost his Life to Asada Ei's single blow.</p>
+<p>"Haa...."</p>
+<p>Asada Ei began to absorb the surrounding Cold energy again. Then, the Appearance of the office, which had been obscured by the Cold energy fog, was revealed. As if that was the Signal, the waiting Investigation Bureau combat unit members entered.</p>
+<p>"Please take care of the aftermath."</p>
+<p>Asada Ei spoke to the entire unit and left the office. No matter that they were a combat unit, since they were affiliated with the Investigation Bureau, they could handle the aftermath skillfully.</p>
+<p>Asada Ei immediately picked up the phone and made Contact with the General Situation Room. Even though she was a Team Leader, since she was out in the Scene, she had to make a Report.</p>
+<p>"Reserve Unit 2 Attack completed."</p>
+<p>At Asada Ei's Words, someone on the other end of the Phone Call said something. No one but Asada Ei could hear the content clearly, but the tone heard from the phone seemed very urgent.</p>
+<p>"Team A? Understood. I'll return as quickly as possible."</p>
+<p>Asada Ei, who hastily hung up the phone, shouted to the combat unit, who were still tidying up, "I'll go first!" and began to descend the stairs in a hurry. Asada Ei, who had remained almost expressionless even in battle, now wore a very urgent and anxious Expression. This was because the member of Team A was none other than her superior and savior, Taira Ryuta.</p>
+<p>Asada Ei B-cut!</p>
+<p>Requested by TheDreaming-nim, Kirie participating in a naked body Fighting competition~!</p>
+<p>Kick~!</p>
+<p>Phone camera version~!</p>
+<p>Since it's a wrestling ring prompt, she automatically wears shoes and knee pads haha.</p>
+<p>Requested by MidNightSKY-nim, Liz researching Attire to Seduce Ryuta~! The bikini with an open bottom needed seaweed attached, so I just made it a regular bikini haha.</p>
+<p>Kkiyot haha</p>

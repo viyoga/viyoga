@@ -5,67 +5,70 @@ weight = 572
 chapter = 572
 +++
 
-<p>Returning to reality, a translucent window floated before my eyes. It seemed there was some kind of achievement for my actions in the Inner World.</p>
-<p>Great achievement! A legendary being, the Black Dragon's Mind, has been destroyed, wiping out its existence! You have gained the Dragon Slayer trait (龍殺) and your Will stat has increased by 1!</p>
-<p>Oh...! This counted as an achievement too? And an achievement that grants a Trait is quite valuable. Shall I check the Trait?</p>
-<p>◆Dragon Slayer (龍殺) [Legacy Trait]: A trait obtained by someone who has slain a dragon. When attacking, it deals critical damage to dragons and increases Strength, Will, and Concentration stats and their maximum values by 1.</p>
-<p>Reading it, it seemed that the Dragon Slayer Trait was automatically acquired upon killing a Dragon, and the Reward for slaying the Black Dragon was a 1-point increase in the Will Stat. The Dragon Slayer Trait's grade was quite high, Legacy-grade, but it was an Ability of little use in the modern era, where one rarely encounters Dragons. I had never encountered a Dragon in a game, and I met one for the first time here, but it seemed unlikely I would meet one again.</p>
-<p>Of course, it increased Strength, Will, and Concentration Stats by one each and raised their limits, making it valuable purely for the Stats, but the Ability itself was inferior to the coolness of its name.</p>
-<p>Another regrettable point was that my level didn't increase, perhaps because I only incapacitated Naruse Hirohide's summoned beast instead of killing it, and only dealt with the Black Dragon's Mind, not its complete form. If I had killed them all, I probably would have gained at least one level, which was quite regrettable.</p>
-<p>Still, I should find significance in the fact that my Will, one of my main Stats, increased by 2, making it the first to reach the human limit of 20.</p>
-<p>"Please prepare the Plan B Jusul circle."</p>
-<p>"Yes, Teacher-nim...!"</p>
-<p>After a moment of thought, I came to my senses, hearing the voice of Takinogawa, Yukiko's transformation, along with the busy sounds of preparing the Jusul circle. Plan B was probably the method for absorbing the Dragon's Physical Body.</p>
-<p>"Ryuta...."</p>
-<p>"Teacher-nim, you're not hurt, are you?"</p>
-<p>Alik and Saionji Diana, who knew nothing of Jusul, approached and asked me. I nodded my Head. My Body wouldn't be hurt. I hadn't been hurt fighting the Black Dragon, so I was fine. Suddenly, my right Index Finger, which I had overexerted using the Shinkaiyatsude Martial Arts Form to defeat the Black Dragon, throbbed.</p>
-<p>So this affects Reality too.... I flexed and unflexed my throbbing Index Finger as I stood up. However, whether it was due to the Regeneration Trait or my Will reaching 20, the pain quickly disappeared.</p>
-<p>"No, I'm not hurt. We were fighting in the Mind in the first place, so my Body couldn't get hurt."</p>
-<p>I smiled and said, so the Kids wouldn't worry unnecessarily. Only then did Saionji Diana and Alik smile, as if Sweet Relief had washed over them at my Answer.</p>
-<p>"Ryuta, Alik is hungry."</p>
-<p>No sooner had Alik finished speaking than a rumbling sound came from Alik's belly. She must be hungry after moving so intensely. Since Alik's Body wasn't very large, she seemed to get hungry quickly when moving intensely. Thinking about it, the reason Alik, who was originally the secret weapon of the First Group, was a voluptuous Russia Older Sister might have been because the First Group had forcibly performed Body Modification for Energy storage.</p>
-<p>"Just bear with it a little. Let's eat together with everyone."</p>
-<p>"Yes, I understand. Alik will endure a little."</p>
-<p>I stroked Alik's Head to soothe her and asked Saionji Diana how much time had passed.</p>
-<p>"About... ten minutes? I think it's passed."</p>
-<p>Ah, I felt like I had been there much longer than that. It seemed the time ratio between the Inner World and Reality was indeed different.</p>
-<p>That meant Naruse Shiyo had been subjected to Bullying by the Black Dragon for quite a long time. Although she had only been absent for three days, it would have been several times longer in the Inner World. Or perhaps the Black Dragon had been tormenting her even before that. Suddenly, Yukiko's Words in the Inner World came to mind.</p>
-<p>-Seeing the Appearance of her Inner World like this, it seems Naruse Shiyo, that child, lived a quite difficult and lonely Life.</p>
-<p>Indeed, as Yukiko said, Naruse Shiyo's Inner World being solitary and lonely seemed to be due to this pain. I suddenly wondered what my Inner World was like, but surely it wasn't some perverted area filled with countless Woman Body Sculptures, right?</p>
-<p>Naruse Shiyo's fusion ritual with the Dragon took place inside the Seal building. Peeking through the window, I saw Jusul being activated, and Naruse Shiyo's Body tearing open, with black scales attached to red flesh pouring out from the torn places.</p>
-<p>"Ah...!"</p>
-<p>Startled, I tried to enter the building, but Otagi Yuka, who had approached unnoticed, shook her Head and grabbed my Wrist.</p>
-<p>"Look again, Teacher-ssi."</p>
-<p>At Otagi Yuka's Words, I looked at the window again. The flesh that had emerged from Naruse Shiyo's Body was now enveloping her like a cocoon. It seemed some kind of fusion was happening inside.</p>
-<p>"I think I'll have to watch over her for another day or two. It's all done now, so everyone, please rest at Home."</p>
-<p>Yukiko's transformation, Takinogawa, came out of the building and told everyone to rest. It was true that Naruse Shiyo wasn't in a normal state yet, so she would need to be watched for a while. I had hoped to talk with Yukiko after a long time. But it was getting late, so I should head back.</p>
-<p>"First, let's all go back. I'm hungry, shall we get some late-night snacks?"</p>
-<p>"Yes, Alik wants, Tteokbokki...!"</p>
-<p>"I like KFC, Teacher-nim."</p>
-<p>"Liege, I will assist Teacher-nim here."</p>
-<p>Except for Sakagami Rena, who remained to help Yukiko, we decided to return to Our Home first. If we ordered late-night snacks now, the food would probably arrive shortly after we got Home, so we ordered the menus we each wanted.</p>
-<p>For reference, the menu I chose was Tonkotsu Ramen. A hot bowl of Tonkotsu Ramen with a refreshing Maekju would completely relieve today's fatigue.</p>
-<p>Naruse Family Head's Hall. After Naruse Hirohide had Fainted, the elders were preparing a Jusul circle. The next Family Head, Naruse Ginji, had also died at the hands of his younger sibling, Naruse Koyou, leaving only Naruse Koyou as the one to inherit Naruse Hirohide's Shikigami.</p>
-<p>Since Naruse Koyou had promised to improve the treatment of the elders and collateral families, the council of elders decided to fully support him. In particular, the support of Naruse Suminao, Naruse Koyou's grandfather in the council of elders, was decisive.</p>
-<p>His Grandson, Naruse Koyou, had been forcibly taken from him under the pretext of adoption by Naruse Hirohide, and his Life had felt meaningless, but he couldn't believe such an opportunity had arisen. That's why when Naruse Koyou came seeking his power, he had acted more actively than anyone else.</p>
-<p>And now, watching the Scene of Naruse Hirohide's Shikigami being transferred one by one to Naruse Koyou's Body, his eyes welled up.</p>
-<p>"Oh no...!"</p>
-<p>The elder who was in Command of the Jusul suddenly let out a cry of lament. Naruse Suminao, startled, approached the elder.</p>
-<p>"W-what's wrong? Has a Problem arisen?"</p>
-<p>He asked urgently, wondering if his Grandson, Naruse Koyou, was in Danger, but the elder shook his Head as if to say no.</p>
-<p>"While fighting the former Family Head and the Mercenaries that child Koyou brought, several Shikigami died, and their contracts disappeared. From the Family's perspective, it's quite regrettable."</p>
-<p>"That's fine. Filling the Shikigami is not easy, but it's something that can be done."</p>
-<p>Still, Torako (金虎子) and Takugio (狸王), which the previous Family Head owned, were quite symbolic.</p>
-<p>The elder smacked his lips regretfully. The golden Tiger Torako and the Bake-danuki King Takugio were Shikigami frequently used by Naruse Hirohide and were quite famous, which was why the elder felt regret.</p>
-<p>"It seems they also tried to save the Yogoe, so the battle must have been quite fierce."</p>
-<p>"It couldn't be helped... Ah! Ootakemaru's contract disappeared too!! This is serious!"</p>
-<p>Ootakemaru was the strongest Shikigami Naruse Hirohide had. With even that contract gone, the Naruse Family's power would diminish for a while until they could find a replacement Yogoe.</p>
-<p>Since there were other Onmyoji Families besides Naruse, they would quickly notice the Naruse Family's weakness. The elder looked at Naruse Koyou, who was lying down and receiving the contract Succession, with a slightly worried Expression.</p>
-<p>He worried whether this young new Family Head could overcome it well, but if they could borrow the power of those Mercenaries who defeated the former Family Head again, the Naruse Family would not be in Danger.</p>
-<p>On the roof of the Family Head's Hall, a Woman was watching that Scene. It was a pink-haired Woman riding the golden Tiger Torako, which was said to have disappeared.</p>
-<p>"Please consider the Shikigami I obtained as the Price for saving my daughter."</p>
-<p>Takinogawa, no, Taira Yukiko, muttered to herself, though no one heard her. Taira Yukiko had snatched the contracts of three of the Naruse Family Head's Shikigami as the Price for saving Naruse Shiyo.</p>
-<p>If Naruse Hirohide had been conscious, it would have been impossible, but since Naruse Hirohide had lost his Mind and the elders had set up a Jusul circle to transfer the contracts, she was able to seize the contracts without difficulty.</p>
-<p>"Shall I go back to Shiyo? Heung Heung~♬"</p>
-<p>Taira Yukiko, humming leisurely, disappeared riding the golden Tiger Torako.</p>
-<p>Awakening Yukiko after a long time.</p>
+<p>We were endlessly entwined, bodies overlapping, until almost three in the morning. When the alarm rang, we hurriedly got ready. Even after hours of non-stop sex, Han Yu-gyeong didn't seem tired at all. In fact, her face was so radiant, I wondered if she'd gotten a facial.</p>
+<p>Of course, it's partly due to the Sacred Pillar trait, but the stress relief from sex probably helps too, which is why she has such a serene expression. Right now, Han Yu-gyeong is preparing to go out with an almost Buddha-like face.</p>
+<p>,I think I can forgive Jeon Yong-cheol right now."</p>
+<p>She said with a sparkling smile, which was the complete opposite of her action of inserting throwing knives into the large-capacity dagger sheath around her waist, but that just shows how refreshed she feels.</p>
+<p>,But you're not going to forgive him, are you."</p>
+<p>,No, I won't. Because he interfered with my date with Yong-tae. I can never forgive him. And it was Yong-tae who made me feel good, not Jeon Yong-cheol, right?"</p>
+<p>As expected, she's resolute. Han Yu-gyeong was right. What made Han Yu-gyeong feel happy was me, not the attacking Jeon Yong-cheol. Han Yu-gyeong finished preparing by putting on a long coat that looked like leather on the outside but was made of a bulletproof new material. As expected, because of her great proportions, the long coat suited her very well. As for me, all I needed was a helmet to hide my identity, and my equipment was taken care of.</p>
+<p>,Shall we go down?"</p>
+<p>,Yeah, let's take care of it quickly and get some sleep."</p>
+<p>Han Yu-gyeong and I left the apartment and immediately got into the car that Dickson drove up in. He said that because there was a high possibility of a gunfight, he brought a stolen car instead of the usual one. There's no need to get caught by the police for no reason.</p>
+<p>We drove through the dawn streets and arrived at one of the slum areas scattered throughout Seoul. Even South Korea, which used to boast considerable public safety, had seen its security deteriorate after the Third World War, and these slums began to appear everywhere.</p>
+<p>The alley where I first met Han Yu-gyeong was one of those slums. It felt like a long time ago, but it was only about 10 months ago. Time really flies when you think about it like that.</p>
+<p>,What are you thinking about?"</p>
+<p>,Ah, this place feels similar to the alley where we first met... I was thinking about our first meeting."</p>
+<p>,Yong-tae-yaa...♥"</p>
+<p>Just as we were about to enter love mode again, someone knocked on the car window. A beautiful girl with gray pigtails, Yang Seol-hui, was standing outside the car with a sniper rifle on her shoulder, looking at us.</p>
+<p>,...Shall we get out?"</p>
+<p>,U-uh, yeah."</p>
+<p>We got out of the car, feeling a bit awkward for a moment.</p>
+<p>,Long time no see, Ryuta-nim. President-nim, good morning?"</p>
+<p>,Yeah. Long time no see, Seol-hui."</p>
+<p>,Seol-hui-ssi, you came quickly, huh?"</p>
+<p>After exchanging greetings for a moment, we went inside an old shopping center and began discussing the operation with Vanguard Vice President I Yeon-ju, who was sitting there.</p>
+<p>,First of all, the club where Jeon Yong-cheol is located is one kilometer away from our current position. If we hit Jeon Yong-cheol's club, the Yong-cheol faction's bases all over Seoul will come to support this place."</p>
+<p>I Yeon-ju said, pointing to a map. From the window of the office we were in, we could see the neon-lit club. Certainly, if the main base is attacked, the branches will send troops to help. They know better than anyone that if the head is cut off, they will be defeated one by one.</p>
+<p>,The Yong-cheol faction is probably watching our troop movements too. That's why only a small number of elites came here without being detected. The troops trying to support the Yong-cheol faction's main base will be dealt with by our original troops in a series of ambushes."</p>
+<p>Ah, so we, as a small elite force, attack the Yong-cheol faction's main base, and our remaining troops ambush the enemy troops coming to support them, cutting them off one by one. Everyone nodded at I Yeon-ju's words, but I had one question.</p>
+<p>,Wouldn't it be a problem to have such a big fight in Seoul?"</p>
+<p>I asked, sounding a bit worried. I had also experienced a war-like fight with Kurotsuki-doo in Japan, but that happened in Akita Prefecture, which has a small population and is far from the attention of the media and the government. But the current situation is a gang war in the middle of Seoul, so I was worried it might be politically dangerous.</p>
+<p>,I've already discussed that with the Mayor of Seoul and the Chief of the Seoul Metropolitan Police Agency. If we succeed in catching the Yong-cheol faction, there will be an article about a large-scale crackdown on criminal organizations tomorrow. They can build up their achievements without any effort, and we can fight without interference from the public authorities, so there won't be any pressure from the police or political circles."</p>
+<p>I Yeon-ju said confidently. If it's been discussed in advance, there's no problem. Now that the discussion is over, all that's left is to take action. I put on the cyber suit and helmet that I Yeon-ju had prepared for me.</p>
+<p>I just need to hide my identity, so I didn't need any other equipment. That's why I didn't equip myself with a pistol or a knife.</p>
+<p>,I'll go to the sniping point first."</p>
+<p>Yang Seol-hui saluted me with her sniper rifle on her shoulder and went outside. Yang Seol-hui, who has the X-ray vision trait, would be able to snipe enemies no matter where they are, so she was very threatening.</p>
+<p>,First, I and the Vanguard Black Team will enter first. President-nim and Yong-tae-nim, please take a few members of the Black Team and hit them from behind."</p>
+<p>I Yeon-ju knows Han Yu-gyeong's and my abilities well, so she didn't say, ,It's dangerous, so just watch," but clearly assigned us our roles. It seemed that if Vanguard attacked from the front, the leaders of the Yong-cheol faction might escape through the back door, so she was having us infiltrate from behind.</p>
+<p>,Let's go."</p>
+<p>At I Yeon-ju's words, the Vanguard Black Team, wearing black techwear and carrying silenced rifles, set off first, and we followed behind them.</p>
+<p>,President-nim, please be careful not to get hurt."</p>
+<p>,Yeon-ju-ssi, you too."</p>
+<p>I Yeon-ju and Han Yu-gyeong wished each other well and entered the club building where Jeon Yong-cheol was. In the alley where the back door of the club was located, there were a few people who looked like homeless people sitting there, and the Vanguard Black Team shot and killed all the homeless people sitting there. But they're just homeless people, isn't killing them a bit too much?</p>
+<p>,They're not homeless people, they're human alarms that inform the Yong-cheol faction of attacks. They receive leftover food waste from the club and report any suspicious people who come."</p>
+<p>As if reading my thoughts, the man who seemed to be the leader of the Vanguard Black Team explained to us without me even asking. When I gently brushed back the fallen homeless man's head, I could see that there was a communication device with earphones and a microphone attached to his ear, hidden under his dirty, long hair.</p>
+<p>The back door wasn't locked. When I opened the door, I could see the kitchen right away. There weren't many kitchen staff. It was already late, and it was a weekday, so there probably weren't many customers.</p>
+<p>The Vanguard Black Team member standing at the front fires a taser at the kitchen staff. The kitchen staff, hit by the taser's electrodes, roll their eyes back, tremble, and soon collapse. They kill the homeless and stun the staff with tasers... I don't understand the criteria. Is it based on whether they immediately contact the enemy forces?</p>
+<p>Two Vanguard Black Team members stay behind to tie up the fallen kitchen staff and guard the kitchen, and we continue inside.</p>
+<p>As we left the kitchen, purple and red lights dazzled our vision, and gunshots could be heard between the loud music. We all have silencers on, so it must be the Yong-cheol faction. After passing through the hallway leading from the kitchen to the hall, everyone in the club was pointing guns at the Vanguard Black Team. Not only gangsters in suits, but also people who looked like ordinary customers were taking out guns and aiming.</p>
+<p>,I knew you guys would come, so I disguised them as customers in advance."</p>
+<p>A man with a scar on his face and slicked-back hair, Jeon Yong-cheol, was looking at I Yeon-ju with a triumphant expression. He didn't seem to know that we were behind him yet. He was meticulous in knowing that there would be an attack and disguising troops as club customers in advance, but he didn't properly block the back, only placing homeless people with communication devices, so I don't know if this is thorough or sloppy.</p>
+<p>,Did you plan this from before the attack?"</p>
+<p>,Yes. I knew the attack would fail. I knew you guys would retaliate soon, so I set a trap here."</p>
+<p>Jeon Yong-cheol confidently answered I Yeon-ju's question, but I Yeon-ju was relaxed. Surrounded by numerous Yong-cheol faction troops, she certainly didn't have the face of someone who had fallen into a trap.</p>
+<p>,I certainly didn't consider what you said. Because..."</p>
+<p>I Yeon-ju stopped talking for a moment.</p>
+<p>,...There was no future where we would lose in any situation."</p>
+<p>Kwaang!</p>
+<p>As soon as I Yeon-ju finished speaking, the wall burst open. Yang Seol-hui broke through the wall and began sniping. At the same time, the Vanguard Black Team members also scattered, hid behind cover, and began firing.</p>
+<p>,Let's go too."</p>
+<p>At Han Yu-gyeong's words, we fired and attacked the Yong-cheol faction from behind. Jeon Yong-cheol and the Yong-cheol faction's executives are startled by the sudden attack from behind.</p>
+<p>,I planted informants in the back...!"</p>
+<p>Seeing how surprised they were, I could tell that killing the homeless informants in the back alley as soon as we saw them was the right thing to do.</p>
+<p>I had some aversion to killing the homeless without hesitation, but I realized that I was too soft. This incident made me realize that I haven't yet equipped myself with the sensibilities of the megacorp era.</p>
+<p>That doesn't mean I have to become more cruel than I am now, but I need to act a little more thoroughly. I steeled my resolve and reached out my fist, smashing the head of the Yong-cheol faction thug standing closest to me.</p>
+<p>__________</p>
+<p>Taira Kanna's school uniform</p>
+<p>Disciplinary Committee Chairman's school uniform~!</p>
+<p>I made it a while ago, but I forgot to upload it, so I'm uploading it now hehe</p>

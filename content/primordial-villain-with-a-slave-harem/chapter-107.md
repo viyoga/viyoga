@@ -1,0 +1,30 @@
++++
+title = "Chapter 107: Blossom greets Quinlan Junior!"
+weight = 107
+[extra]
+chapter = 107
++++
+
+<p>Blossom kneels before me, her head bowed so low that it rests atop her arms, which are folded under her forehead on the ground. The soft candlelight glows against her golden skin, highlighting the delicate curve of her back as she sinks further into the kowtow.</p>
+<p>Her naked breasts press against the floor, the smooth skin catching the light, and with each breath, they jiggle slightly, in a soft, borderline hypnotic motion.</p>
+<p>Her entire existence is the embodiment of subservience. Every line of her body speaks of devotion, from the arch of her back to the way her thighs press together. Blossom is offering herself completely, with an earnestness that's both humbling and exhilarating at the same time.</p>
+<p>"Master," she begins, her voice soft yet filled with emotion. "Blossom is grateful for the chance to serve you." The sincerity in her words touches something deep within me. I might've told her to do this, but she is clearly not just playing along; she really feels as she says.</p>
+<p>I sit back in the chair, letting my gaze linger on her form for an entire minute as I savor the sight I've been wanting to experience for as long as I can remember before speaking. "Raise your head, Blossom. Greet me properly."</p>
+<p>There's a slight pause as she processes my command, and then she moves. Still on her knees, she begins to crawl towards me, her hands and knees making soft sounds against the floor. The motion is slow, deliberate, as every inch of her body is engaged in this act of pure submission. Her beautiful behind sways tantalizingly with each movement, a sensual rhythm that draws my eyes like a magnet.</p>
+<p>Her hips undulate, the curve of her waist accentuated by the way she arches her back, the sight is honestly almost too much for me to bear. Her ponytail swings gently alongside her movements, adding to the allure in a subtle way. There's an art to the way she moves, a deliberate seduction in the way her body flows, her every movement designed to please, to entice.</p>
+<p>If I didn't know any better I would say that she has been thoroughly trained before, but I'm sure that's not the case. She is just this good naturally. It might be something like a mating call to her brain, so it somehow tells her how to bring the man of her choosing to the absolute brink.</p>
+<p>Perhaps this is what millions of years of female dog-kin evolution has led to, but I like to think that Blossom is just special.</p>
+<p>Which she most certainly is.</p>
+<p>She's close now, her warm breath gently swaying against my skin. She then finally stops, with her face being mere inches away from my fully erect shaft.</p>
+<p>Blossom pauses, her eyes widening slightly as she takes in the sight before her. There's a mix of awe and reverence in her expression, as if she's seeing something sacred. For a few seconds, she simply stares, her gaze tracing my shaft in a trance.</p>
+<p>Then, remembering my instructions, she breaks into a bright, innocent smile as she eyes my lower head. "Blossom greets Quinlan Junior!" she shouts and with that she leans forward, her lips parting slightly as she lands a soft, affectionate smooch on my tip.</p>
+<p>The sensation sends a jolt of pleasure through me, almost to the point where I release my first load. Now that would've been rather embarrassing, though I know for certain that Blossom wouldn't make fun of me for it.</p>
+<p>Her lips are so incredibly warm and tender… I can't help but marvel at the sight of her- this beautiful, devoted girl, willing to go to any lengths to fulfill my perverted wishes is someone I'm certain I don't deserve. However, it's not like I will just send her away because I feel this way, therefore the only thing I can do is to protect and make her happy to the best of my ability.</p>
+<p>Once she is done with her greeting kiss, Blossom looks up at me expectantly; this is as far as my second request went, so now she is eagerly awaiting my next command. I feel that I must take a moment to be able to fully appreciate this absolutely amazing woman.</p>
+<p>What she had just done could be considered the most humiliating moment in one's life, however, this bombshell not only doesn't look humiliated, she isn't even embarrassed. She just looks happy. Happy to be of use, happy to serve. I now realize how true her previous statement was; she really is happy so long as I am.</p>
+<p>"Wonderful job, Blossom. You've fulfilled one of my oldest fantasies better than I could've ever imagined."</p>
+<p>She smiles cheerfully and her tail begins to rapidly sway from side to side. "Blossom is so glad! Thank you, Master!" And she even thanks me… My heart might just stop from how much I love this girl.</p>
+<p>I lean forward to stroke her hair a few times, after which I comfortably slant back. "Well, enough foreplay for one day I say. We can't just play out all my fantasies in one session. Let's get on with the main meal. For now, just get accustomed to my precious lance as you prefer. I'm giving you free reign for the time being, so do whatever feels natural, just remember to keep your sharp teeth away."</p>
+<p>Blossom nods eagerly, her eyes shining with a mix of determination and curiosity. Her hands, soft and trembling with excitement, gently reach out to take hold of me. I can feel her warmth even before she touches me, a comforting sensation that sets my nerves on fire.</p>
+<p>With a careful touch, she begins to explore, her fingers tracing the contours of my skin with a feather-light delicacy. Her curiosity is palpable, each movement deliberate and filled with a sense of discovery. She treats my rod like a rare treasure, something to be admired and appreciated.</p>
+<p>I watch as she leans in closer, her nose twitching while she takes in my scent. Her expression is one of pure fascination, as if she's learning the essence of me through this intimate connection. Her eyes flutter closed for a moment, savoring the moment, before they open again, filled with a newfound confidence.</p>

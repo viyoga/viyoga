@@ -5,87 +5,78 @@ weight = 160
 chapter = 160
 +++
 
-<p>Holding a lamp and leaving the cave, Hangari Muneo and the palanquin bearers were waiting at the entrance.</p>
-<p>"How much time has passed?"</p>
-<p>"About an hour has passed."</p>
-<p>"This is what you call 'a moment'."</p>
-<p>Hangari Muneo nodded slightly at my words. It seemed she knew quite a bit. I got back into the palanquin and returned to the shrine. The torches were still burning, and the villagers were dancing to the beat of drums coming from somewhere. The rain was gradually stopping, and the raindrops were weakening.</p>
-<p>It seemed that this ritual felt like a festival to the village. As I watched with interest, Hangari Muneo began to speak.</p>
-<p>"After the ritual, an unusually large number of fish are caught in this area for a while. It's one of the reasons why people living in this village don't leave this island. They make a lot of money just by fishing."</p>
-<p>Ah, it seemed that the Daughter of the Abyss gave them a blessing similar to a blessing after performing the ritual. Could it be that she takes good care of these villagers because they are believers of the Daughter of the Abyss?</p>
-<p>"They donate some of the money they earn to the shrine. They need to perform the ritual next year to have another period of abundant catch."</p>
-<p>Hmm, I see. It was a bit strange that the site was excessively large for a shrine that wasn't that famous, but it seemed that it was receiving considerable donations from the entire village. I passed the dancing villagers and headed back to the room where I had dressed up earlier to change my clothes.</p>
-<p>This time, I took off my clothes without any helpers and put on my clothes that were neatly folded in one corner. What should I do with the clothes I took off? Let's just hang them up roughly and leave. I put on the raincoat I had worn again and left the room.</p>
-<p>Hangari Muneo was still waiting outside.</p>
-<p>"I didn't know what to do with the clothes I wore, so I just hung them up roughly."</p>
-<p>"You don't have to worry about it. What are you going to do? Are you going to enjoy the after-ritual party? Or are you just going to go back?"</p>
-<p>Hmm, there wasn't really anything to do even if I went, but I didn't want to dance here. I suddenly became curious about something else and opened my mouth.</p>
-<p>"Are the Kantou University people still at the shrine?"</p>
-<p>"Yes. Some are enjoying the after-ritual party, and some are looking at the digitized data of our shrine."</p>
-<p>"Ah, is that so? I'm a bit tired because of what happened during 'a moment', so I'll go down first."</p>
-<p>Hangari Muneo, who was laughing quietly at my words, took something out of her pocket and gave it to me. It was a small wooden box.</p>
-<p>"ShinKaihime-nim gave it to you."</p>
-<p>The Daughter of the Abyss gave it to me? She didn't mention a gift to me, is it like a surprise gift? When I opened the box and checked, there was something like a bead inside.</p>
-<p>◆Mermaid's Tears [Legendary Elixir]: Can increase the grade of one evolvable trait. It is unknown whether it is really tears shed by a mermaid.</p>
-<p>Oh! To give me Mermaid's Tears here...! It was one of the few ways to go from Adult of ㅇㅇ to Superman, so getting it like this was a total jackpot. Or I could upgrade other special traits.</p>
-<p>There was a small note under the Mermaid's Tears, so I took it out and read it.</p>
-<p>-Come to think of it, I didn't pay the price for the god and the unique soul. I hope you understand as a partner even if this is not enough.</p>
-<p>I was very satisfied, but it seemed that the Daughter of the Abyss thought it was not enough. Is she going to give me something else as a service later? I closed the box again, put it in my pocket, and went back to the inn with a refreshing feeling. It was a trip where I gained a lot. The ship will come tomorrow and I will go back, but I gained so much in a short time.</p>
-<p>I returned to the inn with light steps. It was quiet as if no one was at the inn. I went into my room and threw off my clothes. I had taken a bath before coming, but it felt like a long time ago since I had been mingling with the Daughter of the Abyss for a moment of eternity. I might be busy tomorrow when I go home and not be able to take a hot spring bath, so I should do it one more time now.</p>
+<p>There are explicit contents and illustrations! Please check your surroundings.</p>
+<p>,I,I'll touch your boobs...."</p>
+<p>,Please touch them as much as you want, Teacher...!"</p>
+<p>Even in this exciting situation, I was doing a great job of acting like a virgin engineering student, trembling as I placed my hand on Han Yu-gyeong's chest.</p>
+<p>I savored the texture of the school uniform shirt, the feel of the bra underneath, and the soft, squishy, yet paradoxically firm feeling of her breasts. As expected, it always feels good to touch a woman's breasts. Han Yu-gyeong's breath grew hotter and hotter, as if she liked being touched.</p>
+<p>,Haa.... Teacher, it feels so good."</p>
+<p>,I love touching Yu-gyeong's boobs too."</p>
+<p>Both of us were breathing heavily, focusing only on her breasts. In that situation, our excitement grew more and more. Han Yu-gyeong's nipples were bulging out, pushing against her bra and shirt, and my dick was dripping with precum. Ah, I just changed my underwear.... I'll have to change again.</p>
+<p>,Heung-eueut...! Teacher, haa...! Teacher, there, touch me there♥"</p>
+<p>,There, there? Where are you talking about?"</p>
+<p>,Eueung~! Yu-gyeong's pussy♥"</p>
+<p>,Ah!! Ugh, okay."</p>
+<p>I lifted Han Yu-gyeong's school uniform skirt and looked at her pussy. Oh...! She wasn't wearing panties, but since the stockings were pantyhose, Han Yu-gyeong's pretty pussy was glistening with love juice, pressed against the pantyhose. The sight was incredibly erotic, and as soon as I lifted her skirt, the hot, womanly scent made my dick, which I thought couldn't get any harder, feel like it was about to explode.</p>
+<p>I stroked Han Yu-gyeong's pussy with my fingers. I liked the slightly rough feel of the stockings and the slippery feeling of the love juice. Han Yu-gyeong started moaning, twisting her body as if she felt good. Women's bodies are often compared to musical instruments, and I think that's true. Han Yu-gyeong's moans changed depending on how my fingers moved.</p>
+<p>,Heung, eueueung! Haa...!! Good, it feels different from before."</p>
+<p>Of course, it would feel different from when I clumsily touched her with my big toe. I couldn't stand it anymore, so I threw away the engineering nerd concept and boldly tore Han Yu-gyeong's pantyhose.</p>
+<p>Tututuk!</p>
+<p>With the sound of tearing, Han Yu-gyeong's pink pussy was revealed. It was only a single layer of pantyhose, but it felt good to see the real thing. I kissed Han Yu-gyeong's pussy as it was.</p>
+<p>,Haeuaaang!!! I love being sucked!"</p>
+<p>While sucking Han Yu-gyeong's pussy with my mouth, I quickly took off my pants. As soon as I took off my underwear, my freed dick bounced up with a tting! Han Yu-gyeong also spewed out even more love juice as she looked at my nodding dick. As I gulped down that love juice and continued to lick, Han Yu-gyeong opened her mouth with a desperate look, as if she was getting impatient.</p>
+<p>,Eueung...♥ Put it in now, Teacher...."</p>
+<p>Ah, are we still acting? I had stopped acting since I tore the stockings. I was doing foreplay boldly because I was uncomfortable playing the role of a virgin engineering student, which I clearly was. As Han Yu-gyeong requested, I put my dick against her pussy and slowly inserted it.</p>
+<p>,Haeueung! Teacher's dick is so big...."</p>
+<p>I slowly inserted my dick to fully feel Han Yu-gyeong's pussy after two months. As I slowly moved forward, feeling the inside of Han Yu-gyeong little by little, like a snail crawling, Han Yu-gyeong dug her nails into my back and moaned loudly. She seemed to be feeling tremendous pleasure from the feeling of her insides being widened by my dick after a long time.</p>
+<p>,Heua, euheu...eut! Eu, eueheung...! Yong-tae-ya, it's weird, heueung! It feels like it's gotten bigger♥"</p>
+<p>It's not that I've gotten bigger, but it seems like Han Yu-gyeong's insides have gotten tighter because she hasn't had sex in a while. Until we're completely settled down, we'll be having sex after a long time every time we meet, so I liked the fact that I could feel Han Yu-gyeong's tight, narrow pussy every time we met.</p>
+<p>,It seems like Yu-gyeong's pussy has gotten tighter because we haven't done it in a while?"</p>
+<p>,Haeung! That's right, I only rubbed the outside when I masturbated because I was worried that Yong-tae would feel it was loose next time we met! Only Yong-tae's thing can enter my insides...! Haa!"</p>
+<p>Oh shit, if you say such a sexy thing, I'll cum quickly...! Besides, we're having sex while still wearing our school uniforms, so the excitement is even greater. The excitement of satisfying both sight and hearing at the same time, that's what was raising my excitement even more.</p>
+<p>The glans, which had been slowly advancing, finally entered the end of Han Yu-gyeong's vagina, the cervix. As the cervix and glans kissed, Han Yu-gyeong tilted her head back.</p>
+<p>,Heueut! Hyaa! I'm going to cum!"</p>
+<p>Han Yu-gyeong lightly reached her climax after I had only inserted it all the way once. I started piston movements, moving my waist, without giving Han Yu-gyeong a chance to feel the afterglow of her climax.</p>
+<p>,Heuat, hat! Hang! Haeung! I, I just came, so, so♥ Haeheueung!"</p>
+<p>,I'm going to make you a mess today."</p>
+<p>Thrusting into Han Yu-gyeong's pussy, which was twitching inside from her climax, brought me tremendous pleasure as well. Han Yu-gyeong also noticed that I was feeling tremendous pleasure, and while enduring the pleasure, she made a sexy expression and whispered sexy words into my ear while hugging me.</p>
+<p>,Heueut...! Yong-tae-ya, high schooler, heueung♥ Fucking her...! Do you like it?"</p>
+<p>,Yeah, I like it. Yu-gyeong's pussy is so delicious."</p>
+<p>,Eueung♥ Keep.... Keep eating it, Yong-tae-ya, haa!"</p>
+<p>When I said it was delicious, she wrapped her legs around my waist, as if trying to feel my dick even deeper, and told me to keep eating. Come to think of it, I don't know when Han Yu-gyeong stopped acting, but she kept calling me Yong-tae.</p>
+<p>,Heueut, deep, good...! I think I'm going to cum again!</p>
+<p>,I think I'm going to cum soon too."</p>
+<p>Perhaps because of the continuous multi-orgasms, the inside of Han Yu-gyeong's pussy kept twitching, and I could feel the semen rising more and more due to the pleasure I was feeling throughout my dick.</p>
+<p>,Eueheung! Heueut! Put the hot thing inside, Yong-tae's hot seed♥"</p>
+<p>,Eueut! I'm cumming...!"</p>
+<p>,Haeueut!! Kkyahaaang!"</p>
+<p>Ulkkeok! Ulkkeok! Ulkkeok!</p>
+<p>I pressed my waist as far inside as possible and started ejaculating deep inside Han Yu-gyeong, and Han Yu-gyeong also tightened the legs that were wrapped around my waist even more to guide it all the way inside.</p>
+<p>,Heueue.... It's hot, haa! I like you, Yong-tae-ya. I love you... euheup!"</p>
+<p>I blocked Han Yu-gyeong's mouth, who kept saying she loved me, with my mouth and tormented her up and down at the same time. I gave her a kiss that mixed our tongues lewdly above, and injected hot semen below, causing her pupils to roll upwards and flip over.</p>
+<p>I thought she had completely gone, but it was a bit surprising that she was still tangling her tongue with mine. Well, I'm also feeling a tremendous climax from ejaculation while kissing, so is it the same?</p>
+<p>I kept my dick inside until the long ejaculation was over, then pulled it out. Perhaps because the glans scratched Han Yu-gyeong's vaginal flesh as it came out, she fluttered and trembled.</p>
+<p>I took a step back and looked at Han Yu-gyeong's appearance. She was wearing a disheveled school uniform shirt, her skirt was pulled up to her waist, and thick semen was constantly flowing from her pussy, which was revealed by her torn pantyhose.</p>
+<p>,Hoo...!"</p>
+<p>It was a sight I had created, but it was incredibly exciting. My dick, which had been in a semi-hard state, regained its strength at Han Yu-gyeong's sexy appearance. This time, I started tearing the stockings with my fingertips in between. As expected, the appearance and feel are different from when only the pussy part is torn. After tearing all the stockings, I put my dick against Han Yu-gyeong's pussy again.</p>
+<p>,I'm going to put it in."</p>
+<p>,Yong-tae-ya, wait! Haeueueut!!"</p>
+<p>Han Yu-gyeong seemed to want to rest for a while since she had cum so quickly, but I couldn't see that appearance in my already excited eyes.</p>
 <p>###</p>
-<p>I seemed to have fallen asleep in the tub. I woke up because the hot spring was a little cold and I heard some commotion outside. I got up from the bath, roughly showered with cold water, and went outside. Kantou University people, the innkeeper grandmother, and Hamahata Konoka were standing outside, wearing yukatas provided by the inn.</p>
-<p>"What's going on?"</p>
-<p>As I spoke, entering the group, Wano Haruto, who already had a gloomy expression, opened his mouth with an even gloomier expression.</p>
-<p>"When we were returning after the festival, Professor Hommura, who was walking in the front, fell and rolled down almost 20 meters. We rushed over, but he was already dead."</p>
-<p>Hmm, this somehow feels like murder, not an accidental fall.... I already thought it was strange that Professor Hommura Kouga was not in the Kantou University group.</p>
-<p>"Is it murder after all?"</p>
-<p>"Yes."</p>
-<p>Wano Haruto answered firmly. Judging from his confident answer, it seemed that he had found something out.</p>
-<p>"Actually, I was going to gather everyone and reveal the truth when we returned after the festival today, but I didn't expect another victim to appear in the middle."</p>
-<p>Well, Professor Hommura Kouga, who had been annoying me, died, but he hadn't done me any wrong to deserve death, so I felt a little sorry.</p>
-<p>"If you're revealing the truth, does that mean you've found out who the culprit is?"</p>
-<p>"Yes."</p>
-<p>Oh, what is it? He's like a complete detective. Wano Haruto stroked his chin for a moment and then opened his mouth.</p>
-<p>"The dead are Makiuchi Morisuke, Kimura Atsuhiro, and Professor Hommura Kouga. They have one thing in common."</p>
-<p>A common point? I don't know at all.... Maybe it's because I'm not a Kantou University person, but it seemed like a common point I didn't know at all. I waited for Wano Haruto to continue, wondering what that common point was.</p>
-<p>"Makiuchi Morisuke and Kimura Atsuhiro were under one professor. When that professor died, they went under Professor Hommura Kouga, who was a friend of that professor. So, they have that professor in common."</p>
-<p>Ah, that's right. Wano Haruto seemed to have told me that story. How is that relationship related to the current murder?</p>
-<p>"That professor is Professor Ueshima Kosaku. He is the name of the professor who was researching this Chou-ten Island first, and...."</p>
-<p>Why does he keep cutting off his words so frustratingly? Wano Haruto turned his body slightly and turned his gaze towards the innkeeper grandmother.</p>
-<p>"He is the son of Hamahata Motoko here."</p>
-<p>Everyone was surprised and couldn't say anything. The innkeeper grandmother, Hamahata Motoko, also couldn't say anything with a stiff face.</p>
-<p>"But is this murder case related to the fact that the owner grandmother here is the mother of that Ueshima professor?"</p>
-<p>Everyone was silent, so I opened my mouth and asked. Wano Haruto nodded.</p>
-<p>"Why was Professor Hommura Kouga investigating this Chou-ten Island? When I searched for papers on my phone, I found a paper that Professor Hommura Kouga uploaded 2 years and 6 months ago. . Before that, he had been writing completely different papers, but suddenly he wrote a paper about the Izu Islands, that is, this island. Look at the co-authors."</p>
-<p>Wano Haruto showed everyone the paper titled Consideration of the Independent Culture of the Izu Islands from the paper site. Responsible author Hommura Kouga, co-authors Makiuchi Morisuke, Kimura Atsuhiro.... Oh, weren't these two said to be under Professor Ueshima?</p>
-<p>"Then...."</p>
-<p>"Yes, they stole Professor Ueshima Kosaku's paper and posted it first. Because of that, Professor Ueshima Kosaku committed suicide. Because of the betrayal he suffered from his friends and disciples, and the sense of loss from having his paper, which was like his child, taken away."</p>
-<p>They're very bad people. In the end, Wano Haruto's words meant that the innkeeper grandmother killed the three for revenge.</p>
-<p>"If that's true, it's a good enough reason to kill, but isn't this just circumstantial evidence? Shouldn't there be evidence for all three murders?"</p>
-<p>"First, we need to look at the first case. Makiuchi Morisuke died in the women's bath. Why did he go into the women's bath? He wouldn't have gone in to wash himself. Because it's a women's bath. Someone must have asked him to go. For example, they asked him to hold something...."</p>
-<p>Wano Haruto now looked at Hamahata Konoka. Hamahata Konoka bit her lip slightly at that gaze.</p>
-<p>"If he was holding something with both hands and looking at one person, he wouldn't be able to see the person holding the stone behind him and would be helplessly attacked. This is that stone."</p>
-<p>Wano Haruto took out a stone in a transparent plastic bag.</p>
-<p>"It was easy to hide the stone. You just had to throw it on the edge of the tub. Thank you to Uchidate-ssi for helping me find the stone."</p>
-<p>Uchidate Kanimi blushed and smiled at Wano Haruto's words. Hmm.... Uchidate Kanimi seemed to like Wano Haruto. But why did she ask me to give her a ride on the bike?</p>
-<p>"And thank you to Taira-ssi for giving me a hint about the accomplice."</p>
-<p>Did I say that? Ah! I had an argument with Professor Hommura Kouga and said that if there was an accomplice, the alibi wouldn't mean anything, and Wano Haruto seemed to have realized something after hearing those words.</p>
-<p>"If Hamahata Motoko-ssi and Hamahata Konoka-ssi are accomplices, then the alibi is completely meaningless. And the key to the second case is Kimura, who died without any signs of resistance. This is because he used sleeping pills. He gave him food with sleeping pills, and then came back under the pretext of cleaning up the food, stabbed Kimura's back while he was asleep, and if he screamed, it would be easy to kill him."</p>
-<p>Ah, there were sleeping pills. Of course, to prove this hypothesis, you would have to dissect Kimura Atsuhiro's body and do a medical examination. It was certainly a plausible reasoning.</p>
-<p>"The last murder also used drugs. We were constantly given food because we were inn guests, so it was an environment where we could easily give them drugs. Since the two of you knew when the festival would end, you could have easily predicted the time we would go down and given Professor Hommura the drug. In order to hide the fact that he was given the drug to make it look like an accidental fall, you would have exquisitely adjusted the time of giving the drug. Is there anything wrong with what I said?"</p>
-<p>The innkeeper grandmother shook her head at Wano Haruto's question. That must mean everyone agrees.</p>
-<p>"One thing is wrong. My granddaughter Konoka didn't participate in this. I did it all alone."</p>
-<p>"Grandmother...! No, I helped to avenge my father too! To punish those who betrayed my father."</p>
-<p>Until the end, she insisted that it was her sole crime for the sake of her granddaughter, but the remaining three members of Kantou University could not accept it because it was a reasoning that only made sense if she was an accomplice.</p>
-<p>"The two of you will have to stay in this room. We will take turns guarding you from the outside. Taira-ssi, would you like to help too?"</p>
-<p>"Sure, why not."</p>
-<p>We put the innkeeper grandmother and Hamahata Konoka into one room, and we decided to take turns guarding them in pairs until the police arrived. Now that the rain has stopped, the police will come right away tomorrow morning.</p>
-<p>Hijitani Saori and I became a team, and Wano Haruto and Uchidate Kanimi became a team. Since it was already 11 o'clock, we decided to guard for 3 hours each. I had just woken up from a nap, so I said I would guard first. I hadn't talked much with Hijitani Saori, so it was awkward, so I quietly looked at my phone and 3 hours passed.</p>
-<p>When I exchanged with the second guard team and went into the room to sleep and woke up, the police had already arrived. But for some reason, the grandmother was still in the room, but Hamahata Konoka was nowhere to be seen, whether she had soared into the sky or sunk into the ground.</p>
-<p>The police searched the entire village, but they could not find Hamahata Konoka. The shrine remained, but the police ignored the shrine as if it didn't exist. We boarded the ship that had brought us with the police and set off for Hachijo Island again.</p>
-<p>"I was so curious, so I asked Uchidate Kanimi, who had a slightly apologetic expression on her face, "I thought you liked Wano-ssi, but why did you ask me to give you a ride on the bike?"</p>
-<p>"It was a jealousy-inducing tactic, but I guess it didn't work, I'm sorry, Martial Artist-nim...!"</p>
-<p>That's what it was. No matter how handsome you are, you can't immediately make a woman who is already in love fall in love with you. I smiled and said, "I hope it goes well," and went to the innkeeper grandmother who was tied up in the corner of the cabin.</p>
-<p>"Did Hamahata-yang perhaps.... go to ShinKaihime?"</p>
-<p>"As expected of the son-in-law. That's right. Konoka will probably become the next Muneo.... Where would our poison have been? The princess gave it all to us."</p>
-<p>Ah, in the end, the Daughter of the Abyss was behind this murder case. My short but very long trip to Chou-ten Island ended like this.</p>
+<p>,Haa...."</p>
+<p>Ha Ju-yoon was masturbating with her hand inside her jeans in the car parked in the parking lot of Han Yu-gyeong's apartment complex. Because the car was an entertainer-style vehicle that couldn't be seen from the outside at all, Ha Ju-yoon masturbated to her heart's content. No one would see her, and she was the only one in the car.</p>
+<p>,Eueheung.... It's the first time I've seen something so big."</p>
+<p>Her relationship with her husband, Han Seong-jae, had broken down since Han Yu-gyeong was in middle school, and they were only a couple in appearance, with no affection between them at all.</p>
+<p>Han Seong-jae, who was 10 years older than Ha Ju-yoon when they got married, kept the beautiful actress Ha Ju-yoon like a trophy wife, and Ha Ju-yoon was also image-making herself as the wife of a chaebol family, so neither of them divorced. They had a win-win relationship that only maintained its form.</p>
+<p>According to the information Ha Ju-yoon had, Han Seong-jae had been changing women almost every day since returning to the Shin-gang Group.</p>
+<p>In comparison, Ha Ju-yoon hadn't met any men separately because she didn't have that much natural sexual desire and there weren't many men who pleased her.</p>
+<p>But Jin Yong-tae, Han Yu-gyeong's boyfriend whom she met today, was perfect for Ha Ju-yoon. He was handsome, tall, and had a good physique. And unlike young people these days, he was polite. And he entered a large Japanese company at a young age, so he seemed different from the children of chaebol families who only occupy high positions with their bloodline.</p>
+<p>So, without realizing it, she recommended him for the male lead role in the music video that had been canceled due to the drug case. It seemed like she wanted to be with him more.</p>
+<p>When she first recommended the protagonist, the director showed an unpleasant expression, but fortunately, he gave permission after showing him the picture, so she was able to meet him again under the pretext of filming.</p>
+<p>And the most decisive thing was that when she saw Jin Yong-tae's thing, a big thing that couldn't be seen as Korean, Ha Ju-yoon's pussy got wet enough to show through her jeans. Of course, she didn't go out right away and get caught by Jin Yong-tae and Han Yu-gyeong, but it was a shocking event for Ha Ju-yoon, who didn't have much sexual desire.</p>
+<p>Ha Ju-yoon, who had returned to her car in the parking lot, put her hand inside her jeans and started masturbating. She thought it would be difficult to even drive if she couldn't cool down this hot heat.</p>
+<p>,Haaang! Yu-gyeong-a, I'm sorry! I guess Mom has similar tastes to her daughter! Ung, heueut!! Just today, just today I'll masturbate while thinking about Yong-tae, so please forgive me...!"</p>
+<p>Ha Ju-yoon continued to apologize to Han Yu-gyeong while rubbing her pussy.</p>
+<p>-------</p>
+<p>After school uniform sex, Han Yu-gyeong seduced Jin Yong-tae while wearing only pantyhose.</p>
+<p>Ha Ju-yoon in a denim-on-denim fashion, hehe.</p>

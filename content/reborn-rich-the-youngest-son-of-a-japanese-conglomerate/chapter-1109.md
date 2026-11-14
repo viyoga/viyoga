@@ -5,88 +5,79 @@ weight = 1109
 chapter = 1109
 +++
 
-<p>"It's been a long time, Mr. Taira."</p>
-<p>Vivian Taylor greeted me with a faint Smile. She looked a little tired, as if the Vice President's Work was exhausting, probably because she hadn't been Vice President for long.</p>
-<p>"Yes, it's been a long time. You've been promoted, haven't you?"</p>
-<p>"Recently, my Uncle, no, the Boss-nim, said he wanted to focus on Technology Development, so he entrusted all the troublesome tasks to me along with the Vice President position."</p>
-<p>Liam Taylor, the first Boss of Mother Mars, was more of a Researcher than a Manager, so it seemed the tasks a Manager had to do were bothersome to him.</p>
-<p>Vivian Taylor spoke to me as if complaining, seemingly annoyed that Liam Taylor was enjoying a happy company life by pushing all the troublesome tasks onto his clever Niece, Vivian Taylor, and focusing on Technology Development, which he loved.</p>
-<p>"Still, becoming Vice President from secretary is a huge Promotion, isn't it? Congratulations."</p>
-<p>"You're welcome. I also heard that Taira-ssi became the Boss of Taira Food distribution. Congratulations."</p>
-<p>Vivian Taylor's side seemed to know my Information, as she congratulated me on becoming the Boss of Taira Yutong.</p>
-<p>"You look a little tired. I also became a Boss, and my Work increased, so I was quite busy."</p>
-<p>"I tried my best not to show it, but it seems I can't hide it. My Uncle focuses on Development, so I ended up doing tasks that aren't even Vice President duties, and my Work has increased significantly."</p>
-<p>Hearing that Liam Taylor had even entrusted his own Work to her, I certainly understood Vivian Taylor's complaints to me.</p>
-<p>"Still, experiencing the Boss's Work in advance now will be a great Help. I also created a few small companies before taking over Taira Yutong."</p>
-<p>For a while, we talked about the difficulties and experiences of us newbie Managers. It was good to break the ice this way rather than getting straight to the point.</p>
-<p>I also heard quite a few helpful Tips. Vivian Taylor must have felt the same.</p>
-<p>"By the way, what did you want to see me about?"</p>
-<p>Vivian Taylor, perhaps thinking we had sufficiently broken the ice through Conversation, asked the Reason she had wanted to meet me.</p>
-<p>"I was in New York until a few days ago...."</p>
-<p>"You were in New York until recently? You weren't harmed during the New Rochelle Incident, were you?"</p>
-<p>At the mention of New York, Vivian Taylor was slightly surprised, interrupting me to ask if I was alright.</p>
-<p>Indeed, this New Rochelle Incident, along with the LA Dignity Health Sports Park Incident caused by the famine, was the most damaging Incident in the USA since the Third World War, so she seemed quite surprised.</p>
-<p>Since I said I was in New York during the New Rochelle Incident, she seemed to be worrying if I had been harmed.</p>
-<p>"Thanks to your worry, I wasn't hurt anywhere. In fact, I was probably one of the People who witnessed the New Rochelle Incident most closely."</p>
-<p>"Oh, really?"</p>
-<p>"I participated in an auction hosted by Am Sang...."</p>
-<p>I adapted The Situation slightly to match the US government's claims, excluding my participation in the battle, and told Vivian Taylor the Story.</p>
-<p>As the Story of someone who had directly experienced the New Rochelle Incident, Vivian Taylor listened with considerable Intrigue. When I spoke of fighting the Obsidian Syndicate gang waiting at the port, her breast seemed to grow hot, as she even took off the Coat draped over her Shoulder and hung it beside her.</p>
-<p>"Rumor has it that Black Knight was present during the New Rochelle Incident. Is that true?"</p>
-<p>Seeing her ask with sparkling Eyes, she seemed to have considerable Interest in Black Knight. I didn't expect Vivian Taylor to be so intrigued, even if Americans do love heroes.</p>
-<p>"I only encountered the Obsidian Syndicate gang at the port, but I heard that Black Knight fought against the Superhuman invited by the Obsidian Syndicate gangs from Superior."</p>
-<p>"Really?"</p>
-<p>Seeing her excitedly ask again at the Story of Black Knight's presence, she really seems to be a fan of Black Knight, doesn't she?</p>
-<p>"Do you like Black Knight?"</p>
-<p>"Of course. I was at that Soccer field last year. I owe my life to Black Knight."</p>
-<p>Vivian Taylor was also at Dignity Health Sports Park? That was something I didn't know.</p>
-<p>If she was at Dignity Health Sports Park, where the famine indiscriminately killed People even in the original work, it means she survived there and became the Boss of Mother Mars.... Then wouldn't she have been fine even without Black Knight?</p>
-<p>Or, in a timeline where Black Knight wasn't present, she might have survived thanks to Aitana.</p>
-<p>"Actually, I was also at Dignity Health Sports Park at that time."</p>
-<p>"Ah.... You experienced such an Incident last year, and again this year.... You have bad luck. It's regrettable that you, a Foreigner, experience such things every time you come to the USA."</p>
-<p>Vivian Taylor looked at me pitifully. Having experienced all the major Incidents that occurred on US soil after the Third World War, and as a Foreigner, not an American, getting caught up in such things every time I came to the USA, it was unavoidable for her to think I was pitiful.</p>
-<p>"Still, since I survived both Incidents, it seems my bad luck is quite strong."</p>
-<p>"Is that so...? Ah, where were we? I apologize for interrupting you."</p>
-<p>Vivian Taylor, realizing only now that she had interrupted me, offered her Apology.</p>
-<p>She hadn't interrupted with malice, and I had also learned the rather good Information that Vivian Taylor was a fan of Black Knight during our Conversation, so it wasn't bad. I smiled as if to say it was fine.</p>
-<p>"It's fine. I also had nowhere to tell this special experience. And where were we?... I was talking about being in New York recently."</p>
-<p>"Then, would you like to continue your Story?"</p>
-<p>"I ate a Mars Burger in New York recently, and it was the most delicious thing I've eaten in the USA this time."</p>
-<p>"Is that so? Mars Burger is a Business I conceived and oversaw, so it makes me feel good to hear it was the most delicious thing you've eaten in the USA."</p>
-<p>I didn't know Mars Burger was Vivian Taylor's idea. But I quickly understood.</p>
-<p>As the future owner of one of the top five megacorps, her Business Talent is outstanding, so she would surely be able to make Mars Burger a Success.</p>
-<p>"Not only me, but all my colleagues also said it was delicious, to the point of saying they wished it were available in Japan. That's when I thought, since I also have Taira Food distribution, there's no Reason I couldn't bring the Mars Burger Franchise to Japan."</p>
-<p>"Ah...."</p>
-<p>Vivian Taylor finally grasped the core of my Story. My Words ultimately meant I wanted to bring Mars Burger chains to Japan, which was not a bad Proposal from Mother Mars's perspective. Diversifying Business was something Mother Mars also desired.</p>
-<p>With me having a distribution network and the backing of Taira, the Possibility of Success was even higher. Anyone who wasn't a fool could tell that my Business Proposal was extremely good.</p>
-<p>Especially for such overseas Franchise businesses, the headquarters only needed to supply the sauces and various Products to Japan, and without having to do any complicated Work, they could just sit back and receive Product sales revenue and Royalty payments. It was an extremely profitable business, as long as my side didn't screw it up and ruin the brand Image in Japan.</p>
-<p>"I hadn't yet thought about expanding Mars Burger overseas.... But if Mr. Taira has a distribution network, venturing Outside wouldn't be a bad idea."</p>
-<p>As expected, Vivian Taylor also realized that the Japan Entry Business was a very good Proposal, and she nodded her Head with a bright Expression.</p>
-<p>"Mr. Taira is not just anyone; he's a major shareholder of our Mother Mars, so if we work together, we can succeed in Japan too."</p>
-<p>"Indeed, finding a trustworthy partner like me overseas would be extremely difficult."</p>
-<p>At my seemingly self-praising Words, Vivian Taylor nodded her Head as if in agreement.</p>
-<p>"Mr. Taira is indeed a trustworthy Business partner. As the Value of our Mother Mars increased, people calling themselves Investors started meddling unnecessarily. Mr. Taira held a 7 percent Share and yet made no Demands."</p>
-<p>In fact, from an Investor's perspective, they might have something to say if the company was going wrong, but Vivian Taylor seemed irritated that people were meddling in various ways even though the company was doing well.</p>
-<p>Of course, I was on a mission at St. Francisco Girls' Academy, so I couldn't pay attention, and I knew how big Mother Mars would become in the future, which is why I remained silent.</p>
-<p>"I simply believed Mother Mars was heading down the Righteous Way."</p>
-<p>"Thank you for saying that. Then, shall we discuss the contract?"</p>
-<p>After that, we adjusted a few points, and the remaining matters were left for the working-level staff to discuss, thus concluding the discussion about Mars Burger's Japan Entry Business.</p>
-<p>Perhaps because of my Share, or because the discussion went well just now, Vivian Taylor offered a contract with quite generous Conditions.</p>
-<p>"It was a good deal."</p>
-<p>Vivian Taylor offered a Handshake with a Smile. I clasped Vivian Taylor's Hand, smiling back.</p>
-<p>"Ah, by the way.... What was that photocard you sent me?"</p>
-<p>A photocard? Ah...! I had accidentally sent the photocard released during the St. Francisco Girls' Academy festival to Vivian Taylor. Naturally, Vivian Taylor, having received it, would be puzzled. Wondering why this Person had sent it to her.</p>
-<p>"Actually, it was a photocard made for a certain mission, and my Grandmother and Mother liked it, so I sent it, but my secretary mistakenly included Vivian-ssi's Address when sending it."</p>
-<p>"Oh, really? Ahahaha...! It was your secretary's Mistake then. I pondered for a long time why you sent me this Photo."</p>
-<p>My Explanation seemed amusing to her, as Vivian Taylor showed a laughing Appearance that was unimaginable from the cold demeanor she had when we first met today.</p>
-<p>"Since you've already received it, I'll send you more if I take Photos again."</p>
-<p>Of course, I had no intention of making another photocard, but I said it with a Prankish Expression.</p>
-<p>"Yes, please do send them."</p>
-<p>Vivian Taylor also seemed to realize that my Prankish Expression wasn't Sincerity, as she laughed and nodded her Head.</p>
-<p>Thus, we continued our Conversation amicably until the end, successfully concluding this contract with Mother Mars.</p>
-<p>Vivian Taylor left the reception room, saying she had Work to handle in the Vice President's Office, and we, guided once again by Anjali Patel, the Indian-American employee who had first guided us on our visit, returned to the Parking Lot where our vehicle was parked.</p>
-<p>Vivian Taylor Handshake Request B-cut~!</p>
-<p>Requested by Gojoy-nim: Yukiko reading a newspaper and Arisu greeting Ryuta after he's leaving work, Chapter 53 Remake~!</p>
-<p>Yukiko~!</p>
-<p>Arisu~!</p>
-<p>Making her Hairstyle similar to Chapter 53 makes her feel less like Arisu, hehe.</p>
+<p>"An apology cannot be merely in Words, can it?"</p>
+<p>Taira Ichiro continued speaking, as if the apology wasn't ending there.</p>
+<p>"It's hardly compensation for the Mistake, but you're well aware of the repercussions of Yuuichi becoming the Boss of Taira International Resource Development this time, aren't you?"</p>
+<p>I nodded my Head at Taira Ichiro's Words.</p>
+<p>Taira Ichiro's Words meant, 「I suffered Damage, but you also suffered secondary Damage, didn't you?」 After all, with Taira Yuuichi becoming the Boss of Taira International Resource Development, Taira Jiro had seized the Initiative over Mithril sales.</p>
+<p>"Our side will also enter into a Mithril deal with Hatake Mining. You were probably thinking of increasing your business partners because of this Incident anyway, so it should be a good thing."</p>
+<p>It was unexpected. I hadn't thought Taira Ichiro would request a Mithril deal from me.</p>
+<p>As expected of Taira Ichiro. Not even a day after Taira Yuuichi was announced as the Boss of Taira International Resource Development, he had extended a Hand to my side.</p>
+<p>In fact, even if Taira International Resource Development was taken away, a company like Taira Bussan would likely have no difficulty acquiring common Steel or Metals. The Problem lay with Rare Metals like Mithril, tungsten, and titanium.</p>
+<p>If he joined Hands with me, Mithril among the Rare Metals would be resolved, and it would appear as if he was embracing me, a Victim of the mansion attack incident, so it was a choice with no disadvantages for Taira Ichiro. For my part, I wouldn't have to endure Pressure from Taira Jiro, so it didn't seem like a bad choice either.</p>
+<p>"I'll consider it positively for now. However, that doesn't mean I've forgiven Gensuke."</p>
+<p>But even the best-looking choice can't be without its disadvantages, so I didn't accept immediately and replied that I would think about it. Taira Ichiro's Intention would be well considered by my Staff Officers.</p>
+<p>"Alright. We'll talk about that Gensuke guy again when he returns to Japan, and of course, it's a sudden Proposal, so you can think about it, but we also need to respond quickly to this Matter, so we can't give you too much Time."</p>
+<p>"I'll give you an Answer without delay."</p>
+<p>After hearing my Answer, Taira Ichiro patted my Shoulder and headed elsewhere. Seeing that only Taira Jiro's side was guarding the Hall, and the rest were freely moving around, I decided to do one of the things I had planned to do here.</p>
+<p>I subtly rose from my Seat and approached Nagumo Sian, who was sitting outside with the non-affiliated Taira Group Executives.</p>
+<p>"Grandmother-nim."</p>
+<p>"Ryuta, what is it?"</p>
+<p>"I have something I'd like to tell you privately...."</p>
+<p>The thing I had to do was to give Nagumo Sian a Gift. There was no need to give a Gift where many Eyes were watching, so I intended to call Nagumo Sian aside.</p>
+<p>"Then... shall we talk privately? Excuse me for a moment."</p>
+<p>Nagumo Sian, roughly sensing the meaning of my Words, greeted the non-affiliated Executives around her and rose from her Seat.</p>
+<p>As it was a gathering of Executives, most of whom were middle-aged or older men, when the Beautiful Woman Nagumo Sian, with her youthful Appearance, rose from her Seat, they wore Expressions of deep regret.</p>
+<p>Even the few rare female Executives, no matter how well-maintained they were, couldn't compare to Nagumo Sian, so they felt regret when Nagumo Sian left her Seat.</p>
+<p>Of course, given Nagumo Sian's status and position within the Taira Group, no one would Molest or try to seduce her, but seeing them lick their Lips and look regretful as they watched Nagumo Sian, I couldn't help but feel a little Frustrating.</p>
+<p>"What is it that you called me aside for?"</p>
+<p>Nagumo Sian, who followed me into an empty Room, swept back her Hair and asked me with a slightly expectant Expression. Once we were alone, I grasped Nagumo Sian's Chin and gave her a Kiss.</p>
+<p>At first, Nagumo Sian kept her Lips sealed, mindful that we were in the Taira Main family, but soon she parted her Lips and accepted my Tongue.</p>
+<p>"Eung... Jjeueup, Jjeup, Jjeubeup...♥"</p>
+<p>After kissing for a while, I couldn't continue in the Taira Main family where there were many Eyes to see and Sensitive Ears to hear, so I pulled our intertwined Lips apart and looked at Nagumo Sian.</p>
+<p>I lightly Ipmatchum her forehead, which was gazing at me with a slightly hazy Expression, then took out a bamboo slip from the Bag I was holding.</p>
+<p>It was the Manryeongjuhae I had received from Arisu and Nae Fitzgerald in the USA.</p>
+<p>"What is this?"</p>
+<p>◆Manryeongjuhae (Spell of All Spirits Release) [Unique Seonsul Book / Magic Tool]</p>
+<p>A bamboo slip recording ancient Seonsul that controls ten thousand souls. Cannot be read without Qualification.</p>
+<p>○Cannot be read by one who has not mastered Seonsul.</p>
+<p>●Upon first thorough reading, all Seonsul Levels increase by 1. Seonsul activation speed increases by 10%.</p>
+<p>●When possessed, Damage and Seonsul Effect against Yogoe, Spirits, and Ghost Spirits increase by 30%, and Damage and Seonsul Effect from Yogoe, Spirits, and Ghost Spirits decrease by 20%.</p>
+<p>●Acquirable Seonsul: monster byeonsin form , spirit eye gaesi , underworld pamyeol soul , dead sokbak spirit , soul mundap , spirit chujeok .</p>
+<p>"This is something I got in the USA called Manryeongjuhae...."</p>
+<p>I read out the options from the translucent window that appeared before my Eyes, informing Nagumo Sian about the Manryeongjuhae. Nagumo Sian, upon hearing about the Manryeongjuhae, hugged me gratefully.</p>
+<p>"Thank you for the Gift. But isn't it too much to just end it with a Kiss?"</p>
+<p>Nagumo Sian, holding the Manryeongjuhae carefully, gave me a sultry gaze. Nagumo Sian also knew why I had stopped after just a Kiss, but she seemed regretful that it had been cut short.</p>
+<p>"I couldn't help it. Next Time, I'll make it up to you twice over for today's share."</p>
+<p>"Alright, I'll be waiting with Expectation."</p>
+<p>At my Words that I couldn't help it, Nagumo Sian smiled and nodded her Head. Staying alone in one Room for too long could also arouse suspicion, so I took a short walk and had a Conversation with Nagumo Sian.</p>
+<p>After talking with Nagumo Sian, I returned to my Seat, and no particular Event occurred during the Tsuya, as I stayed up all night guarding the deceased.</p>
+<p>As dawn broke again, the next step after the Tsuya was the Farewell Ceremony, where monks chanted Buddhist scriptures and mourners prayed for the repose of the deceased's soul and burned incense.</p>
+<p>The next step was cremation, and before going to the crematorium, there was a sequence of placing Flowers on the Corpse. I also placed a single Flower on Taira Kitsumasa's Corpse, and looking at his Face, the gunshot wound was no longer visible due to makeup and restoration work.</p>
+<p>For reference, at my Father Taira Saburo's funeral, the Corpse was severely damaged due to a traffic accident, so this step was skipped, and the Corpse was immediately cremated.</p>
+<p>As it was the Last chance to see her Son before cremation, Urita Rie wailed terribly as she placed Flowers on Taira Kitsumasa's Corpse, and even the seemingly strong Taira Jiro was seen subtly wiping his Eyes.</p>
+<p>The funeral ended with the cremation completed and Taira Kitsumasa being interred in the Taira Family cemetery.</p>
+<p>While Taira Kitsumasa's funeral was in full swing in Japan, Taira Gensuke, who had instigated Taira Kitsumasa's Death, was engaged in a battle.</p>
+<p>Tutututu!!</p>
+<p>"Shoot! Shoot! Push forward!!"</p>
+<p>Wearing a top-tier cyber Suit, Taira Gensuke fired his Gun, massacring the residents of a favela called Sapopemba in São Paulo.</p>
+<p>Sapopemba was a favela where a rival gang to the one supporting Taira Gensuke resided, and it was also a Place where Taira Gensuke had acquired redevelopment Rights. However, innocent people also lived there besides the gang, so he had left it untouched without starting Development.</p>
+<p>But when Taira Gensuke's support from headquarters was cut off due to his Mistake, Taira Gensuke gathered his troops and began to Ambush and clean out the favela. He massacred everyone, including gang members, women, and children, and even planned to explode the favela buildings to completely demolish them.</p>
+<p>Taira Gensuke was able to carry out such deeds freely because he had sold a portion of the Mithril he had stolen from Taira Jiro and generously bribed the police and politicians.</p>
+<p>Tang!</p>
+<p>Taira Gensuke, who had put a red hole in the forehead of a woman wailing while holding the Corpse of a child who appeared to be about six years old, began to shout at his Subordinates.</p>
+<p>"Kill them all! They're just Guys under the Irmandade do Chumbo anyway! If we don't kill them, we'll just be in Danger!"</p>
+<p>Irmandade do Chumbo was the name of the rival gang to the Red Infantry, the gang that followed Taira Gensuke.</p>
+<p>The favelas, the slums of Brazil, and the gangs that dominated them were in a symbiotic relationship, so Taira Gensuke's shout was not wrong. Of course, even so, such a massacre was by no means a justifiable Act.</p>
+<p>Hearing Taira Gensuke's Words, the Red Infantry and the PMC brought by Taira Gensuke poured out even more Ammunition, sweeping away the people of the favela.</p>
+<p>Taira Gensuke put his Gun back in its holster, took out a Cigarette, and inhaled the smoke as he watched his Subordinates massacre the people of the favela.</p>
+<p>"Huu... After clearing this Place and building Mansions to sell, how much do you think it will yield?"</p>
+<p>Taira Gensuke asked the man standing next to him. It was Lucas Kobayashi, the secretary Taira Gensuke had hired in Brazil.</p>
+<p>Originally from Little Tokyo in Liberdade, São Paulo, he was a man skilled in Japanese, English, and Portuguese, and adept at devising cunning Schemes.</p>
+<p>"Considering the Money given to politicians and the police, the Money given to the Subordinates, and construction costs, we should be able to receive about double the Investment cost."</p>
+<p>"Good. Proceed well. Even if I can't go to Japan, I need to show everyone that I can still grow, so I can't end it with just this Place. Bring up the plans that were put on hold again, Lucas."</p>
+<p>Taira Gensuke, who had been banned from returning to Japan by Taira Ichiro, began to move more boldly for his Survival and future power.</p>
+<p>He keenly felt that if he didn't want to fall behind Taira Ryuta, Taira Yuuichi, or his half-brother Taira Tabenobu, who mocked him, he had no choice but to work even harder in Brazil.</p>
+<p>Yukiko Remake for Chapter 62 requested by Gojoy-nim~!</p>
+<p>1.</p>
+<p>2.</p>

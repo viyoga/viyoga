@@ -5,63 +5,84 @@ weight = 404
 chapter = 404
 +++
 
-<p>"Be careful! There are a lot of them!"</p>
-<p>With my senses as an adult, I realized that what was shaking the surrounding bushes was a pack of mutated stray dogs. My senses detected that there were almost a hundred mutated stray dogs, so I warned everyone.</p>
-<p>Han Yu-gyeong protected herself with a mental shield and cast the buff magic, Starlight Tempering, on all of us. It was a very useful buff that added magical additional damage to attacks.</p>
-<p>It was so effective on firearms that in the game, if you found a character who had mastered Star Magic (there were no Star Magic-wielding characters among the named NPCs), you would recruit them to use as a support character.</p>
-<p>Of course, Lara Sinclair was also holding a submachine gun in both hands, preparing for battle, and Nero and White Bear were growling, guarding the surroundings.</p>
-<p>"I'll attack first!"</p>
-<p>They were using a clever tactic for stray dogs, constantly rustling in the bushes to lower our mental strength and concentration, but we weren't the type to get tired of that, so instead of waiting boringly, I decided to open the battle myself first.</p>
-<p>Shinkai Yatsude (深海八手) One Touch Turns Into Ten Thousand Branches (一触化万支: One tentacle becomes ten thousand branches.)</p>
-<p>As I stretched out my hand filled with the abyss, the abyss sparkling with starlight split into over a thousand pieces and began to smash the trees and bushes in front of me. Of course, the bodies of the mutated stray dogs that were caught together were also ground up, turning the front into scorched earth. Thanks to Han Yu-gyeong's Starlight Tempering buff, the power became even greater than I thought.</p>
-<p>Before the aftermath of my attack subsided, Nero and White Bear rushed at the mutated stray dogs, and I and Lara Sinclair followed behind them. Han Yu-gyeong, who was in charge of supporting and attacking from the rear, ran from the very back.</p>
-<p>"Keong!"</p>
-<p>If they were normal stray dogs, they would have run away after being attacked by me just now, but these guys were mutated stray dogs. Their aggressiveness was no joke, so even after seeing me turn the surroundings into scorched earth, they didn't run away and rushed at the group.</p>
-<p>I punched the rushing mutated stray dog's mouth with a Shinkai Yatsude technique and detonated the energy of the abyss from the inside, causing it to explode. Nero was slicing mutated stray dogs with his cat punch (with claws nearly 30 centimeters long), and White Bear was moving at an incredible speed, biting the dogs' necks before they could even react. As I remember, one of White Bear's abilities was high-speed movement, and it seemed like he was using that ability now.</p>
-<p>While I and the two animals were active in the front, Han Yu-gyeong was constantly shooting starlight from the rear, making fist-sized holes in the dogs' bodies, and Lara Sinclair was firing steady bursts with the submachine guns in both hands. Perhaps because she was an android, she was perfectly suppressing the recoil. Thanks to the Starlight Tempering buff, Lara Sinclair's bullets were able to kill one mutated stray dog with each shot.</p>
-<p>"What was that technique just now?"</p>
-<p>"Who are you asking?"</p>
-<p>I didn't know who Lara Sinclair's shout was directed at, so I created a shadow spear and pierced the head of a mutated stray dog, asking Lara Sinclair in return.</p>
-<p>"I'm asking both of you! The 2040-NATO rounds have become incredibly powerful because of the shining technique that Han Yu-gyeong-ssi used, so I can't measure their true power! And I've never heard of a human causing such widespread destruction with a fist!"</p>
-<p>Ah, I guess she would be curious. But there was no time to answer in detail. Even now, several mutated stray dogs were simultaneously opening their mouths wide and jumping to bite my neck. Of course, I wouldn't die because I have regeneration, but even with regeneration, it still hurts. There was no need to offer my neck on purpose.</p>
-<p>"I'll explain later since we're in the middle of a battle!"</p>
-<p>I grabbed the neck of the mutated stray dog that was sticking its mouth out in front of me and swung it like a club, knocking away the other two. I used the mutated stray dog I was holding as a club until it disintegrated, smashing the heads of the remaining mutated stray dogs.</p>
-<p>"Hoo...."</p>
-<p>All the mutated stray dogs were annihilated, and I threw away the corpse of the mutated stray dog, leaving only its head and some of its spinal bones.</p>
-<p>"Let's go down for now."</p>
-<p>Lara Sinclair and Han Yu-gyeong, who were in the rear, were relatively okay, but I was too covered in blood, so we decided to go down for now. Nero and White Bear were able to return to the shadows or temporarily become spirits to cleanly shake off the blood, so they were still fluffy.</p>
-<p>Back at the research lab site, we took some time for personal maintenance and gathered in one place. Since there were shower facilities and spare clothes in the research building, I washed up, changed my clothes, and went to where everyone was gathered. Han Yu-gyeong's hair was also damp, as if she had washed up. When I came in, she told me I had worked hard and told me to sit down, so I sat down.</p>
-<p>"I roughly explained it to Lara-ssi. That we are the recently talked about psychics."</p>
-<p>Ah, then it's easier because I don't have to explain it. Since Han Yu-gyeong is more intelligent, she probably explained it well to Lara Sinclair.</p>
-<p>"But doesn't Lara-ssi know about the existence of psychics? When I think about it, the gun I got from the abandoned Energy-Link Industries factory in the United States was compatible with psychic powers, right?"</p>
-<p>The gun I got from the abandoned Energy-Link Industries factory is officially called EL-0001, and its nickname in the game is EL1. This gun was a next-generation rifle that Energy-Link Industrial Company pushed as the standard U.S. military rifle during the Third World War.</p>
-<p>EL1 looks like a futuristic gun from a science fiction movie, but it wasn't a gun that fired bullets like it looked. It was a rifle that fired energy bullets with a battery pack. When a psychic grabbed it and infused it with energy, it fired energy bullets related to their respective characteristics, so I thought Lara Sinclair knew about psychic powers.</p>
-<p>"Of course, I know that there are psychics because of the LA incident where the famine appeared, but this is the first time I've heard that there are items among our products that are compatible with psychic powers. Can you tell me the name of that gun?"</p>
-<p>"It's EL-0001. They say it was made with the goal of being the U.S. military's next-generation rifle during the Third World War. It wasn't ultimately selected, though."</p>
-<p>At my words, Lara Sinclair started blinking her eyes as if she was looking up information for a moment. And then she opened her mouth.</p>
-<p>"EL-0001 is being prepared for mass production by TG Tech under the name TG-EL-0001. According to my father's data, it seems that the psychic power compatibility was an unintended ability since it was aimed at being the U.S. military's next-generation rifle."</p>
-<p>I see. I thought it was an intended ability. So it's an ability that was manifested by chance. Well, since the goal was to be the U.S. military's next-generation rifle, there was no need to add a psychic power compatibility function.</p>
-<p>"There's a sample of TG-EL-0001, so why don't you show me how it works? Follow me, there's a prototype lab."</p>
-<p>"Okay. We need to check if it might not work because it's been changed to a mass-produced model."</p>
-<p>The reason TG Tech brought in the EL-0001 was to preemptively occupy the market as a weapon exclusively for psychics, so I told Eve not to change the circuit design if possible, but I don't know if that was followed.</p>
-<p>"Can I use that EL-0001 gun too?"</p>
-<p>"If Yu-gyeong uses it, wouldn't it shoot out starlight like you used earlier?"</p>
-<p>As I followed Lara Sinclair, Han Yu-gyeong asked if she could use it too because she was curious, so I nodded and answered.</p>
-<p>The place I followed Lara Sinclair to was quite large. Since what TG Tech mainly produced were military supplies, it was a very sturdily built place. It was a sufficient place to see the performance of firearms.</p>
-<p>"This is the mass-produced prototype, TG-EL-0001. Check it out."</p>
-<p>TG-EL-0001 still has the shape of a futuristic gun from a science fiction movie, but it has a shape that is a little closer to a general gun than EL-0001. I received the TG-EL-0001, infused it with the abyss, and fired it at the target. A tentacle-like black energy was shot out, shattering the target into pieces.</p>
-<p>Fortunately, it seemed that the ability to be compatible with psychic powers had not disappeared while making it a mass-produced model. Lara Sinclair seemed surprised by the fired tentacle and stopped for a moment before opening her mouth.</p>
-<p>"It was true that it's compatible with psychic powers."</p>
-<p>"Me too! I want to shoot it too!"</p>
-<p>Han Yu-gyeong also took the gun and fired it. A starlight projectile, like the one she fired at the mutated stray dogs earlier, flew towards the target.</p>
-<p>"Ah! It works! Does it consume less mental energy than when I just use it?"</p>
-<p>"Since there's a battery pack, it seems to help with energy consumption."</p>
-<p>When a non-psychic uses it, the structure was to shoot energy bullets with the electricity in the battery pack, so it seemed that the battery pack reduced the psychic's energy consumption.</p>
-<p>"It seems that the battery pack consumption is also reduced because of the psychic's energy."</p>
-<p>Lara Sinclair was telling me the amount of remaining battery, as if she had attached a device that could measure something to the gun. Psychics could also save their own energy, but it seemed that the more energy a psychic put in, the less the battery pack was consumed, so it seemed like a gun that was really suitable for psychics to use.</p>
-<p>"Well, I'll give you both a gun, so keep firing it. We might be able to find out what the principle is and how to improve it."</p>
-<p>We received one more TG-EL-0001 and had to keep shooting until Lara Sinclair was satisfied. Han Yu-gyeong got tired first and started firing normal energy bullets instead of starlight at some point, and I was able to continue firing tentacles until I used up the battery pack, probably because my abyss stats were so high.</p>
+<p>"What I want to do is..."</p>
+<p>Naruse Shiyo-ssi paused for a moment. Perhaps because of that, everyone was focused, staring only at Naruse Shiyo-ssi's mouth.</p>
+<p>"What I want to do with you, sensei-nim, is assist you with your workout. If we were in a relationship, I could help with things like that, right?"</p>
+<p>"Since there are things like home gyms... it's definitely possible."</p>
+<p>There might not be a home gym in this clubroom, but bodyweight exercises are possible... Naruse Shiyo-ssi is physically weak, so she probably suggested muscle training because she likes things that are 'strong,' like pro wrestling or death metal.</p>
+<p>"Alright! What exercise should we start with? We don't have equipment, so it'll have to be mostly bodyweight exercises."</p>
+<p>"Hmm... then please start with push-ups."</p>
+<p>Push-ups are easy enough. I immediately got down on the floor and started doing push-ups.</p>
+<p>"Haa... look at that tricep...!"</p>
+<p>Naruse Shiyo-ssi watched my muscles twitch with each push-up, panting and pressing down on them.</p>
+<p>"So firm, sensei-nim...!"</p>
+<p>"Haa...♥ Look at those veins...!"</p>
+<p>It sounds incredibly lewd if you only listen to the sounds, but Naruse Shiyo-ssi was seriously admiring my muscle quality. Of course, all the other students were just swallowing hard as they watched my twitching arm muscles.</p>
+<p>"Nineteen... twenty... By the way, Naruse, how many should I do?"</p>
+<p>"Just a little more, sensei-nim♥"</p>
+<p>I can keep doing push-ups without rest, but if this is supposed to be a home date, it feels a bit different. Only after Naruse Shiyo-ssi took pictures and videos of me working out was I able to finish the push-ups. I think I did almost two thousand. If the homeroom teacher was a normal male teacher instead of me, he would have collapsed immediately.</p>
+<p>"Then, please do sit-ups now!"</p>
+<p>Naruse Shiyo-ssi said, sitting on my instep and holding my calves tightly. Naruse Shiyo-ssi is so light that her body might lift up when I do sit-ups. I'll have to focus on engaging my core as much as possible.</p>
+<p>As I started doing sit-ups, Naruse Shiyo-ssi's face came closer. Well, since I'm bringing my face to my knees while doing sit-ups, you could say I'm getting closer to Naruse Shiyo-ssi.</p>
+<p>Naturally, Naruse Shiyo-ssi's face turned red, probably because she was embarrassed by my face getting so close. Unlike the push-ups, which she made me do for a long time, she quickly stopped the sit-ups.</p>
+<p>"S-sit-ups are enough now! Next is... squats."</p>
+<p>After sit-ups, she ordered me to do squats, but there wasn't much to see since I was wearing long pants. The fabric around my thighs bulged as if it would burst, but that alone wasn't enough eye candy. In the end, we only did about twenty squats before stopping.</p>
+<p>"Thank you for indulging my whims, sensei-nim."</p>
+<p>"No problem, it's good to exercise."</p>
+<p>To be honest, bodyweight exercises don't really do anything for me, but it was a fun experience in its own way. No one has ever watched me so intently while I exercised before.</p>
+<p>"Next, it's my turn."</p>
+<p>Next up was Saionji Diana-ssi. What Saionji Diana-ssi wanted wasn't that difficult.</p>
+<p>It was to help design the katana that Saionji Diana-ssi would use next. Even though it's called design, it wasn't anything professional. Saionji Diana-ssi would ask for my preferences, and I would answer, and she would just write it down in a notebook.</p>
+<p>Since Diana (the Moon Goddess) is also the name of the moon goddess, how about using the moon as a symbol? The pattern could be circular or crescent-shaped...</p>
+<p>"G-goddess...?"</p>
+<p>I don't really know anything about katanas, so I was just giving her a few design motifs, but Saionji Diana-ssi seemed flustered by my saying she was a goddess.</p>
+<p>She keeps her bangs long enough to cover both eyes, but looking at her facial features, nose, mouth, and jawline, she definitely isn't ugly. No, she's very pretty. She could be called a goddess.</p>
+<p>All the kids in our class are beauties, and Saionji Diana-ssi is hiding her face with her bangs, so it's not obvious, but if she went to a normal school, she would be called the school's idol and be the object of admiration.</p>
+<p>I didn't have any more advice to give about the sword's design, so it ended quickly. Nevertheless, Saionji Diana-ssi seemed very satisfied. Now there are only two left. Minamoto Risa-ssi and Shido Tsubaki-ssi. Both are a bit awkward, but I can't do it for one and not the other, so I have to do it.</p>
+<p>"I'll go last, so Minamoto-ssi, please go first."</p>
+<p>"Really? There's nothing I particularly want to do... Ah! I've got it!"</p>
+<p>When Shido Tsubaki-ssi yielded her turn, Minamoto Risa-ssi came up with something. Her expression was strange, a complex expression that seemed both triumphant and frustrated.</p>
+<p>"What I want to do on a home date with my boyfriend is... meditation!"</p>
+<p>...Minamoto Risa-ssi doesn't seem to have given up her attachment to the Date Experience - Meditation Club. When I registered as the homeroom teacher and advisor, I just wrote down Date Experience Club, so that seems to still be on her mind.</p>
+<p>"Kya haha! Risa-tan, you still have the Meditation Club in your heart? So funny!"</p>
+<p>"Ahaha! Minamoto-ssi is probably the only one who meditates on a home date with her boyfriend, right?"</p>
+<p>Seizawa Shii-ssi and Otagi Yuka-ssi laughed at Minamoto Risa-ssi's words, gently teasing her. Minamoto Risa-ssi's eyebrows furrowed at their laughter.</p>
+<p>"Shut up, both of you. What's with all the talking when I said I wanted to do it."</p>
+<p>Minamoto Risa-ssi scolded them and then looked at me.</p>
+<p>"Since they won't be quiet even if I meditate here, I'll do it next time."</p>
+<p>"Do as you please."</p>
+<p>Minamoto Risa-ssi's words meant she was postponing it to the next time altogether. She realized that she would be ridiculed even if she meditated right now, so she seemed to be just skipping it.</p>
+<p>"My turn came quickly."</p>
+<p>It was the last turn, Shido Tsubaki-ssi's turn. Shido Tsubaki-ssi looked at me with a mischievous expression.</p>
+<p>"What I want to do for our home date is interview you, sensei-nim."</p>
+<p>"Interview?"</p>
+<p>An interview... It seems like she just wants to do what she wants under the guise of a home date. Shido Tsubaki-ssi saw my suspicious expression and shook her hand as if to say that wasn't the case at all.</p>
+<p>"It's not because I was the head of the newspaper club that I want to interview you, sensei-nim... Look at this."</p>
+<p>Shido Tsubaki-ssi turned her laptop around to show me the screen. 'Couple Interviews are a Hot Topic Lately! You Can Learn About Your Partner's Tastes and Habits.' An article like that was displayed. Ah, this was trending? It seemed to be popular these days to interview each other and get to know each other better.</p>
+<p>"Okay. Let's do it."</p>
+<p>Once the couple interview that Shido Tsubaki-ssi suggested was over, today's club activities would be over, so I sat across from Shido Tsubaki-ssi with the intention of getting it over with quickly. As expected, the other students seemed interested in my interview, sitting around and watching with fascinated expressions.</p>
+<p>"How tall are you and how much do you weigh?"</p>
+<p>"I'm in the late 180s for height, and I don't know my weight because I haven't measured it recently."</p>
+<p>"What's your favorite food?"</p>
+<p>"I don't really have any preferences, but I do like meat."</p>
+<p>"How old were you when you had your first time?"</p>
+<p>"Hey."</p>
+<p>I had a slightly bad feeling from the moment she asked about my height and weight, but isn't this the kind of question they ask AV actors at the beginning of AV videos? And if it's an interview for couples to learn about each other's tastes, they would do it in the early stages of dating, but who asks about the age of their first time in the early stages of a relationship? We might end up fighting if we do this.</p>
+<p>"Just kidding. Actually, the third question was, 'What's your favorite movie genre?'"</p>
+<p>"You surprised me. There's no way I could answer something like 'first time.' I like action movies that are easy to enjoy. I don't dislike other genres that much, but I don't like movies that are too long and boring."</p>
+<p>For reference, Taira Ryuta's memory of his first time was in the third year of middle school. He was a handsome guy, so he probably got rid of his virginity very easily.</p>
+<p>The interview continued. Most of the questions were about preferences or certain situations, but Shido Tsubaki-ssi's pranks, like asking about my first time, continued intermittently. Still, I didn't get caught up in it and successfully completed the interview.</p>
+<p>"Hee, Ryuta-jji likes meat..."</p>
+<p>"As expected of a Korean teacher, he likes Korean food..."</p>
+<p>"Kyahaha! I like action movies too, so sensei-nim and I have the same taste!"</p>
+<p>The reaction to the interview from the students in the class was quite good. Many of the kids seemed to want to know about me, so they listened quite attentively throughout the interview, so there wasn't even any noise interrupting the interview.</p>
+<p>"That's it for today. Completing the first task will be tomorrow, I guess."</p>
+<p>"Yes. Tomorrow is just watching a movie, so it won't be difficult, sensei-nim."</p>
+<p>Konoe Akina-ssi replied to my words with a tone that suggested she had worked hard. In fact, contrary to what Konoe Akina-ssi said, the experience of watching Ratflix with a lover seemed like it would be quite difficult.</p>
+<p>While watching a movie, the female students would take turns sitting next to me for 10 minutes each, and I would have to endure my vigorous Johnson reacting to the scent and breath of the nearby female students, so it seemed like it would be a mentally and physically difficult time.</p>
+<p>Moreover, some people, including Seizawa Shii-ssi, would definitely be targeting me and playing pranks, and if I got an erection, they would definitely make a huge fuss to make fun of me. If we were alone, they wouldn't be able to say anything because of their virginity...</p>
+<p>Wait, that's right! There was no need to force myself to suppress an erection in a place with so many people. Now that I think about it, there was a good way.</p>
+<p>"Konoe, there's something I want to talk about regarding tomorrow's Ratflix viewing experience..."</p>
 <p>----</p>
-<p>Sleek and sexy squint-eyed home teacher requested by JeongChucky-nim</p>
-<p>Ruins treasure hunter home teacher</p>
-<p>Home teacher in her childhood wearing a gothic lolita Kimono.</p>
+<p>Saionji Diana-ssi in Hanbok for the New Year!</p>
+<p>Kkiooot! Please also check out the Gyaru duo Hanbok posted in the announcement~!!</p>

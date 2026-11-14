@@ -5,34 +5,92 @@ weight = 803
 chapter = 803
 +++
 
-<p>Seizawa Shii's sudden Impulsive Action was because there was a schedule she had been looking forward to for a week, but it was canceled due to the appearance of a Killer and the weather. There was a quite famous Pizza place near Shiga Kogen, and Seizawa Shii had been making a fuss about wanting to go there for days before departure. It was famous for its fresh cheese and the Pizza place's special tomato sauce, to the extent that people would even visit Nagano from Tokyo just to eat that Pizza.</p>
-<p>"Today's schedule was my Turn...!" Kwang! The luxurious-looking Ebony table shattered, and all the University Students looked at Seizawa Shii in surprise. Some tried to break the shattered Ebony Sculpture, but when it didn't break easily, they looked at Seizawa Shii with even more astonished Expressions.</p>
-<p>In fact, it was because of the snowstorm that they couldn't go to their original scheduled Place, but Seizawa Shii's Anger was taken out on the pitiful (?) serial Killer. "Me too, what was that name, Cocoa? I'd rather she Attack us. Then I can legally beat people up~!" Kujo Kina said, swinging her Fists as if shadow boxing. In fact, apart from me, the most threatening-looking Person at St. Francis's Girls' Academy was the Muscle girl, Kujo Kina.</p>
-<p>Because, excluding Kujo Kina, everyone else had the Appearance of delicate girls. From a Layperson's perspective, Kujo Kina, with her Muscles, was swinging her Fists so fast they were almost invisible, so she would look incredibly Awe-inspiring. "It's Kotowazuki, not Cocoa, Kina." "Ah~ was it? Kyahaha! I can forget a Killer's nickname, can't I~!" Shido Tsubaki corrected Kujo Kina, who had confused the serial Killer's name, but Kujo Kina just laughed, saying it was fine.</p>
-<p>"Everyone, don't worry." The next Person to speak was Saionji Diana. "I obtained a personal PMC Combatant license during the last Winter vacation." A personal PMC Combatant license was a qualification that allowed one to work as a PMC freelancer, not for a PMC Enterprise. It was an extremely Difficulty Test because it allowed individuals to possess Guns, (Of course, the PMC establishment and ownership license I obtained was even harder.) but Saionji Diana seemed to have no Problem acquiring it.</p>
-<p>"Oh, you got a license?" "Yeah, since I wasn't going to my Main family anyway, I studied during that Time and got it. So...." After saying "So...", Saionji Diana pulled a pistol from her Thigh. We remained still, but the University Students took a step back at the sight of the pistol. Anyone could tell it wasn't a Toy Gun.</p>
-<p>"Even if a serial Killer comes, I can put a Gun Hole in them." Ah...! Now I understood why they were acting this way. Since I was certain there was no serial Killer in our class, the culprit must be one of the University Students. Seizawa Shii seemed genuinely angry about not being able to go to the Pizza place today, but Kujo Kina and Saionji Diana had issued a Warning to the as-yet-unidentified serial Killer. A Warning that if they messed with our special class, they could die.</p>
-<p>"Since the table is shattered, let's move to the next table." "Ehehe, Sorry...☆" At my Words, Seizawa Shii gave an awkward smile, as if embarrassed. We all moved to new Seats.</p>
-<p>"First, as we worried, the culprit seems to be Inside here. Considering that we searched the entire Resort and found no one else." At my Words, everyone quietly and heavily nodded their Heads. It was inevitable for the Atmosphere to become heavy, knowing that a Friend they knew, right next to them, could be the culprit.</p>
-<p>"First, could you tell us when Tanaka Norio-ssi was last seen?" Unfortunately, no one here had the Ability to determine the Time of Death, so I asked, thinking we would have to check alibis based on when the deceased Tanaka Norio was last seen.</p>
-<p>"Perhaps... I think I saw him last. I fell asleep while drinking, then woke up around one AM, and everyone was there. And three o'clock? Around then, I woke up needing to piss, and Norio wasn't there. I just thought he might have gone for a walk or something and went back to Sleep. Did anyone else see Norio at a different Time?" The Club President of the International Politics Discussion Club, who had visited our room, said this. And he asked the rest of his club Friends for confirmation, but everyone shook their Heads.</p>
-<p>"Yesterday, I fell into an unusually deep Sleep. I drank a lot of Beer, so I thought I'd wake up quickly because of Urine, but I slept soundly until Morning." In fact, sleeping soundly was understandable. Their Bodies, exhausted from continuous skiing and snowboarding, would have completely absorbed the Alcohol, so falling asleep as if fainting was natural. Still, it would be good to check, as there might have been Sumyeonje in the Alcohol.</p>
-<p>"The spot where the University Students were drinking yesterday wasn't cleaned up...." As I muttered, Sakagami Rena said, "I'll go and check!" and went Outside like Lightning. And after waiting for about a minute, she came back with a Bottle of Beer that was about a third full.</p>
-<p>"Look at this." At the bottom of the Beer, there was a fine white Powder. Anyone could see it was Beer containing ingredients other than barley and Alcohol. Sakagami Rena, an Expert in such matters, could probably confirm the exact ingredients, but it didn't seem necessary.</p>
-<p>"That was easy. So, isn't the one who prepared this Beer the culprit?" Seizawa Shii said simply. The Alcohol provided at the VIP Resort was quite expensive, so the University Students must have brought their own. In that case, the one who prepared the Alcohol beforehand had a high Possibility of being the culprit.</p>
-<p>"...The one who prepared the Alcohol was the deceased Tanaka Norio." "Eh...? Then how did they do it?" At the Club President's Words, Seizawa Shii tilted her Head. There was certainly a Question/doubt. If the Person who prepared the Alcohol was dead....</p>
-<p>"...Then the Person who invited us to this VIP Resort! That Person must be the culprit!" Seizawa Shii opened her Mouth again. Whether she was trying to make up for her recent logical Mistake or if her problem-solving Instinct was kicking in, she seemed very proactive. Certainly, for Murder, a VIP Resort with relatively few customers and clerks was ideal. If someone invited them here, the Probability of that person being the culprit would be high.</p>
-<p>"The fact is.... The Person who invited us, saying they got VIP Resort accommodation Tickets, was also the deceased Tanaka Norio." It was the deceased Tanaka Norio who invited them this Time too.... Unfortunately, Seizawa Shii's deduction was a miss again.</p>
-<p>"By the way, why do you think the culprit is on our side?! If we were all asleep, drugged with Sumyeonje, then the Probability of the culprit being on that side is higher, isn't it?" The Female College Student burst out in anger, seeing us act as if we were certain the culprit was among them.</p>
-<p>"Then, if someone died Inside your room, how would we have gotten a Key, opened the Door, gone in, killed just one Person, and thrown them out the Window?!" "...Since all the employees are dead, you could have gotten Keys from the employees!" Shido Tsubaki, getting angry while listening to the Female College Student's Words, stood up and had an argument with the Female Student, and ultimately, the Attempt to logically find the Killer came to nothing.</p>
-<p>The Male Students also tried to stop the Female College Student who was arguing with Shido Tsubaki, but ultimately, seeing our Attitude that the Killer was among them, they seemed a bit Frustrating. "The Atmosphere has become overheated, so let's just be careful with each other. In the end, it's best to Surveillance each other to prevent the culprit from moving and wait until the police arrive." "Then we'll go back to our rooms." We remained in the Auditorium to talk a bit more, and the University Students went up to their rooms.</p>
-<p>"By the way, aren't you Conan or Kindaichi, Teacher-nim? Considering how Incidents always happen whenever we Travel, like on our Island before, and during the Graduation trip...." As the University Students left the classroom, Urabe Konoka looked at me and said with a smile. Conan or Kindaichi...! In fact, on Cho-oten Island, where the first Murder happened during a trip, Urabe Konoka herself was the culprit.</p>
-<p>"Right...! Since Ryuta-cchi doesn't have a grade-schooler's Body, Kindaichi suits him better than Conan!" "How can you treat someone as if they have such an unlucky Destiny, with a Killer following them everywhere they go...!" Seizawa Shii treated me like Kindaichi, so I protested, but everyone just went "Woo~!" and ignored my protest.</p>
-<p>"The Class Teacher isn't Kindaichi." "Lisa...!" Minamoto Risa stepped forward and shielded me, saying I wasn't Kindaichi. I looked at Minamoto Risa with a slightly touched Expression.</p>
-<p>"You're not as smart as Kindaichi, so the detective Role doesn't suit you." "Kyahaha~! Then let's call Teacher-nim the not-so-smart Kindaichi~!" She didn't come out to shield me, but to hit me with a shield. And "not-so-smart Kindaichi"? Isn't that a bit too harsh?</p>
-<p>"Enough with the Pranks.... Who among those University Students do you think is the culprit?" I put on a serious Expression and asked the Students, looking around, to end the "Ryuta = not-so-smart Kindaichi" theory here.</p>
-<p>"Ryuta-cchi, do you think there's no culprit among us? As the Female College Student just said, there could be a culprit among us." When I asked who the culprit among the University Students was without a shred of doubt, Seizawa Shii, on the contrary, asked me a Question.</p>
-<p>"Of course. Although I haven't been your Class Teacher for a very long Time, if there was a Student in the special class who had human hunting as a Hobby, I, as their Class Teacher, would have already noticed." At my Words, the troublemakers of the special class seemed quite touched. No matter how much they trusted each other, if an Incident with an unknown culprit occurred, they might suspect each other, but since I didn't doubt them even one percent, they seemed touched by that blind Belief.</p>
-<p>Random Attire Eve and Underwear Eve requested by Gojoy-nim~! Random Attire hehe</p>
-<p>Underwear Eve~!</p>
-<p>Actually, a Belly Dancer was also requested, but due to the limitations of the old model, it didn't come out, so I'll try making Eve with the new model today and upload the Belly Dancer version next Time hehehe</p>
+<p>ASSISTANT: # Chapter 76. I'm Actually Taira Ryuta.</p>
+<p>After having Sex non-stop since the Morning, lunchtime had passed before we knew it, so Minamoto Lisa and I had to eat a late lunch.</p>
+<p>We were both very hungry due to the enormous calorie consumption, so we decided to heat up the Food we had eaten at the club room last night, packed up, and brought with us, as we didn't want to waste Time waiting for delivery.</p>
+<p>,Isn't this what we ordered and ate yesterday?',</p>
+<p>,You saw me packing it up yesterday. No matter how much of a big eater I am, even if the Students order their portions together with mine, it's still over a dozen servings, and I can't eat all that.,</p>
+<p>I said, turning on the oven to heat up the pizza and bucket of Chikin I had brought from yesterday. I opened the refrigerator to get something to drink while waiting, as I had been spewing all sorts of liquid from my Body during Sex.</p>
+<p>,You're going to drink something?,</p>
+<p>,Yeah. I'm really thirsty.,</p>
+<p>,I'll give you a sports Drink.,</p>
+<p>We decided to drink sports Drinks as if we were Athletes who had finished an intense workout. As such, six consecutive rounds of Sex were intense, so sports Drinks were the most suitable beverage for us. While waiting for the oven to heat up the pizza and Chikin, we decided to have a Conversation for a while.</p>
+<p>,Who in our class knows that you're a Taira?,</p>
+<p>,The Kids who decided to follow me... Shii knew, though?,</p>
+<p>,I kind of expected the Kids around you to know... I didn't know Shii knew?,</p>
+<p>Minamoto Lisa, who was making a somewhat complicated Expression because Seizawa Shii hadn't told her that I was Taira, even though the Students who had decided to follow me knew my True Identity.</p>
+<p>No matter how close Seizawa Shii was to Minamoto Lisa, revealing my True Identity and interfering with the Taira's affairs was quite dangerous. And because Seizawa Shii liked me, she wouldn't want to ruin the Mission I was in charge of either.</p>
+<p>Minamoto Lisa seemed to understand the Situation and knew that, but it seemed she couldn't help but feel a little hurt.</p>
+<p>,Did you tell Shii yourself?,</p>
+<p>,No, she said she saw my Face and thought, ,Where have I seen him before...?, and then Taira Saburo's Face came to Mind.,</p>
+<p>,Hmm.... I don't know if you look alike because I've never actually seen Taira Saburo-ssi before?,</p>
+<p>,I've never actually seen him either.,</p>
+<p>At my Words, Minamoto Lisa suddenly became somber. Perhaps thinking she had made a slip of the Tongue, she was looking at me, saying ,Sorry...,.</p>
+<p>,Don't make that Face. The only thing I heard about Taira Saburo was that he was my Father at the funeral, so I don't have any Affection for Taira Saburo, nor am I sad about his Death.,</p>
+<p>,I guess so. If you found out that fact at the funeral, he's practically no different from a stranger. You must have had a hard Time.,</p>
+<p>Minamoto Lisa was suddenly looking at me with great pity, hugging me and comforting me. She must have been comparing it to her own Situation.</p>
+<p>Minamoto Lisa was a bastard child, but unlike me, she met her Father, Minamoto Ushin, often and was loved, so she must have felt sorry for me, who didn't even know my Father's Face.</p>
+<p>,Well, when I was young, I was a Zainichi Korean and didn't have a dad, so I was bullied a lot... But after learning Fist Technique, I was fine.,</p>
+<p>After I started learning Fist Technique, Fujigasaki Rinka, who was a scary eonni, went around threatening to kill anyone who bullied my Disciple, so the Bullying quickly stopped.</p>
+<p>When I had learned Fist Technique to some extent, I beat up Genbaki and Sumikazu, notorious Thugs, and then reformed them and made them my Friends, so a strange Rumor spread, and no one dared to touch me either.</p>
+<p>When I thought about it, Danjo-halbae told me that Taira Saburo had knelt down and asked Fujigasaki Rinka to teach me, so that was the only direct Help that that man had given me.</p>
+<p>Thinking about that, I was grateful to Taira Saburo for meeting Sabu Fujigasaki Rinka, learning Fist Technique, and making Friends. Of course, I didn't have any Affection for him because I had never talked to him directly or met him.</p>
+<p>,Wait. As far as I know, Taira Saburo's Son is twenty-one years old this year.... Are you the same Age as me?,</p>
+<p>,Yeah, we're Friends.,</p>
+<p>Minamoto Lisa, who had been listening to my Story quietly, looked at me in Astonishment as if she had realized something. It seemed she suddenly remembered my Age as she listened to the Story.</p>
+<p>,You looked older because of your Size.... How did you deceive us?,</p>
+<p>,My subject is Korean language. It's easier for a Korean Person half to teach Korean language than a Japanese Person. Usually, there isn't much Face difference in the early twenties, so I forced it. I said, ,I'm a twenty-four-year-old college graduate, you know.,,</p>
+<p>Actually, my Attitude must have been more significant than my appearance. I thought of myself as a real Teacher and acted accordingly, so Minamoto Lisa wouldn't have felt anything strange.</p>
+<p>,You're hateful, you....,</p>
+<p>,I was sincerely acting like a Teacher. I really want all of our class Students to do well.,</p>
+<p>I was sincere. After spending a few months as the Class Teacher of the special class troublemakers, I really started to feel the Emotions that a Class Teacher feels. Of course, it's a disqualification as a Class Teacher to have Sex with the Students in the class, but....</p>
+<p>Ding!</p>
+<p>Just then, the oven finished, so I took out the pizza and Chikin and moved them to the Siktak. I took out Kola from the refrigerator and poured a glass for each of us.</p>
+<p>,I'll eat well.,</p>
+<p>,Yeah, you must have been tired, so eat a lot.,</p>
+<p>We were silent for a while as we ate. We were both hungry, so we were focusing on the Food.</p>
+<p>,Hoo...! I feel like I'm alive now.,</p>
+<p>,I don't usually eat this much either.... I'm full.,</p>
+<p>I also had a pretty satisfying meal, and Minamoto Lisa ate more lunch than usual. Her slightly bulging belly was kind of cute. Now that we had finished eating, it was Time to talk about Business.</p>
+<p>,First, I'll give you a rough overview of the Businesses I own. Four PMCs, one investment company, one mining company belonging to that investment company, one construction company each in Korea and Japan, and.... There's TG Tech. To be exact, TG Tech is a co-representative, though.,</p>
+<p>Minamoto Lisa's Donggong widened at my Story. She probably hadn't expected me to have such a large force. It wasn't a force that a bastard child who had just entered the Taira group last year could create.</p>
+<p>,You were the owner of TG Tech?,</p>
+<p>,Well....,</p>
+<p>When I shrugged my Shoulders at Minamoto Lisa's Question, making a gesture as if to say that was right, she seemed very shocked. She couldn't even imagine that I was the owner of TG Tech, a company that was currently rising in popularity.</p>
+<p>,Amazing, you.... You can't acquire cutting-edge Technology in a year. How did you do it?,</p>
+<p>,I acquired the Technology by acquiring companies with the Technology I wanted.,</p>
+<p>The current TG Tech was a combination of Lara Sinclair's Energy-Link Industrial Company and several laboratories with valuable Technology in the game, as well as several Technology companies that BS Group in Korea had aggressively acquired as it collapsed.</p>
+<p>After that, the Mithril Technology laboratory owned by the Yongcheol faction and the now-defunct Chinese military company Jeonrang were added, so it wasn't at a Level where they would be lacking in Technology anywhere.</p>
+<p>Without settling for that, they were constantly focusing on research, so TG Tech's potential for Development was endless.</p>
+<p>,It must have cost a lot of Money to acquire those companies, how did you do it?,</p>
+<p>,In the beginning, I made a lot of Money from Stock. I bought the Stock of Forest, a pharmaceutical company that developed hair loss Medicine, cheaply and sold it at a very high price, and I invested in various places and made a lot of profit. And I also earned quite a bit of Bounty Money, like I did yesterday.,</p>
+<p>In fact, the profit I made from Forest was enormous, and I used that profit to easily and quickly increase Money with the jisik I knew, so the Bounty Money was just a side income, but the Bounty Money I earned from catching Gao Xiang of the Red Revolution Front was so enormous that the Bounty Money accounted for a fairly large proportion of my property. Of course, it doesn't come close to the investment assets that have been built up over the past few months, though.</p>
+<p>,What are the investment company you mentioned and the mining company owned by that investment company?,</p>
+<p>,You can guess that if you know my original surname.,</p>
+<p>Because I created the Hatake Investment Company based on my original surname, Hata, Minamoto Lisa would be able to figure out my company quickly.</p>
+<p>Hatake Investment Company had a Mithril mine company that was known to have enormous reserves, and it was also making several aggressive investments, so its name was being mentioned in the Japanese Business world, so I thought Minamoto Lisa would know about it too.</p>
+<p>,You're the owner of Hatake Investment Company?,</p>
+<p>As expected, Minamoto Lisa quickly figured out that I was the owner of Hatake Investment Company. When I nodded, Minamoto Lisa looked at me as if I was amazing.</p>
+<p>,Amazing, you.... You look much sexier now than you did earlier.,</p>
+<p>Does she have some kind of fetish for outstanding managers? Minamoto Lisa's Gaze deepened as she listened to my Business Story. Then, her Expression suddenly changed to a gloomy one, and I thought I knew why.</p>
+<p>,What's wrong?,</p>
+<p>I was guessing the Reason, but I still had to find out exactly, so I looked at Minamoto Lisa and asked.</p>
+<p>,No, it's just.... I look too pathetic. I only have two PMCs and one investment company.,</p>
+<p>As expected, the Reason I thought was right. Compared to me, who was a similar Age, she couldn't help but feel pathetic.</p>
+<p>But isn't Minamoto Lisa amazing considering her Age? I had jisik of the future and Luck was on my side, so I achieved this much, but Minamoto Lisa obtained her current power without that.</p>
+<p>On top of that, Minamoto Lisa, who had half-siblings and a stepmother, wouldn't have been able to properly utilize Minamoto, the biggest advantage she had.</p>
+<p>,Now that we know what Cards we each have, it's important how we Develop them in the future. Don't just think about what you have now. You're going to graduate and work and study at the same Time, right? Think about how you're going to Develop it from then on.,</p>
+<p>I gave her my own advice, but Minamoto Lisa's depression didn't go away easily. I can't help it. I'll have to cheer her up a bit.</p>
+<p>,I'll tell you about an investment opportunity. Invest the Kotowazuki Bounty Money and the Funds from the investment company you have this Time.,</p>
+<p>I told Minamoto Lisa about a company that I hadn't invested in because of its ambiguous Rate of Return based on my standards. Of course, because it was based on my standards, the profit that Minamoto Lisa would get would never be small.</p>
+<p>,Is it okay for you to tell me this?,</p>
+<p>,It's not difficult for me to tell you this much.,</p>
+<p>,Thank you, you...!,</p>
+<p>Minamoto Lisa hugged me tightly at my Words. I was very worried before meeting Minamoto Lisa today, but I was glad that it worked out well. In the end, Minamoto Lisa didn't turn her back on me after hearing that I was Taira, so it could be said that it was a Success.</p>
+<p>Gojoy-nim requested Dang So-hwa's belly dancer, breast covering~!</p>
+<p>Belly dancer~!</p>
+<p>Breast covering!</p>
+<p>seungj050-nim requested Liz's Footjob posture with both Feet, Yukiko Spanking~!</p>
+<p>Liz</p>
+<p>Yukiko~!</p>
+<p>Kkiyooot~!</p>

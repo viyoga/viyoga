@@ -5,93 +5,87 @@ weight = 662
 chapter = 662
 +++
 
-<p>There were quite a few footsteps heading this way. Surely, they wouldn't all be rushing to the special class building the moment the festival started, right...?</p>
-<p>Deureureuk!</p>
-<p>,Give me a club anthology!</p>
-<p>,Me too! Give me A! Give me A!</p>
-<p>,I was here first, so give it to me first!</p>
-<p>I was wrong. It seemed like a mob of female students had rushed here as soon as the festival started.</p>
-<p>,Everyone, calm down and form a line!</p>
-<p>Minamoto Risa gathered her hands and shouted loudly. Whether it was because of Minamoto Risa's charisma or the Minamoto Group behind her, the female students quietly began to line up. Soon, as a neat line formed, the Date Experience Club began selling their club anthologies, and the student who had arrived first, wearing a happy expression, opened her mouth.</p>
-<p>,First, give me 40 copies of anthology A and five copies of B.</p>
-<p>,Would you like a paper bag too? It's 80 yen, but....</p>
-<p>,Yes, please.</p>
-<p>Huh? 40 copies?? Why is she buying so many? Judging by her saying "first," it seemed like she would come back to buy more if she couldn't collect the whole set. Since each book gives five photo cards, 40 books would give her 200 cards, so she was probably planning to trade with those. She was probably planning to make two or three sets for viewing and keeping, like someone had said. And she was subtly charging quite a high price for the paper bag without the student noticing.</p>
-<p>For reference, anthology A was the anthology that came with my photo card as a bonus, and anthology B was the anthology that came with Uenozono Karen's photo card.</p>
-<p>,Ah, Yamashiro-sensei...!</p>
-<p>,Hi?</p>
-<p>,Y-yes....</p>
-<p>While I was putting twenty-five club anthologies into a bag, a student noticed me organizing the books and greeted me quietly, so I greeted her back. The student who received my greeting blushed furiously and lowered her head. She's so shy.</p>
-<p>,It's 1,200 yen per book, so forty-five books plus the paper bag is 54,080 yen in total.</p>
-<p>1,200 yen per club anthology? It's expensive for a thin club anthology, but it wasn't an unreasonable price since the bonus was a hologram photo and the other four photos were also made with quite a bit of effort.</p>
-<p>,Here you go.</p>
-<p>As expected of a rich school, she handed over 54,000 yen without hesitation. Of course, she handed over a card, but there was no way she would be short on money.</p>
-<p>,The 2nd floor is crowded because of the line, so please check your cards and exchange them at the 1st floor cafe.</p>
-<p>,Yes, then goodbye....</p>
-<p>As Minamoto Risa had planned, the student who bought the anthology hugged the paper bag tightly and went down to the 1st floor, as if she understood. The next female student similarly bought 40 copies of anthology A, which contained my photo card, and four copies of anthology B, which contained Uenozono Karen's.</p>
-<p>,It's 52,880 yen.</p>
-<p>,Here you go, thank you!</p>
-<p>With just two customers, they had already exceeded 100,000 yen in sales. In terms of time, it hadn't even been 2 minutes since the festival started. This is crazy? Looking at the rapidly increasing sales, I could see why entertainment agencies do business like this.</p>
-<p>The club anthologies were selling out almost as soon as I took them out of the box and displayed them, so I had to keep taking books out of the box without a break. Anthology A, which came with my photo card as a bonus, was selling out in batches of 40 to 60 copies, so no matter how quickly I took them out, I didn't have a moment to rest.</p>
-<p>,I understand why 40 copies of anthology A are selling, but why are only four or five copies of anthology B selling? Shouldn't they buy at least 20 sets to collect the whole set?</p>
-<p>,Maybe it's because the profits from anthology B are being donated, so they're buying a few copies with good intentions?</p>
-<p>Konoe Akina, who was helping me from the side, answered my muttering. Is that so...? It was fortunate that Uenozono Karen was helping with the cafe serving on the 1st floor. It would be heartbreaking for her to see 20 copies of mine being sold while hers were selling far less.</p>
-<p>,The anthologies with Karen-chan's photo cards as a bonus will probably start selling after some time. Seriph's fans have to come to our school, after all.</p>
-<p>That's right. The customers coming in the beginning were St. Francisco Girls' Academy students who had prepared in advance and rushed straight to the special class building, and Uenozono Karen's fans were coming from other places, so it was inevitable that today, being a weekday, would be a bit of a slow starter.</p>
-<p>Of course, idol fans might line up in front of the school a day in advance, but Miyashi-sensei prioritizes the safety of St. Francisco Girls' Academy students above all else.</p>
-<p>The police wouldn't have stood by and watched unknown idol otaku line up in front of the school, and as I had expected, I didn't see anyone lining up when I went to work in the morning.</p>
-<p>I gradually became more accustomed to displaying the books and became faster, so it wasn't like they were selling out as soon as I displayed them anymore. After all, there was time spent calculating and exchanging money, so my display speed, which was gradually picking up, couldn't be beaten.</p>
-<p>,I'm done displaying them. What should I do now?</p>
-<p>,Well, there's nothing much to help with here.... Go to the 1st floor cafe and ask if they need anything.</p>
-<p>In fact, if you just divide the anthologies into A and B and display them, all you have to do is sell them to the customers, so there wasn't much else to do. However, there was the disadvantage that the line was so long that you had to work non-stop.</p>
-<p>On the contrary, the cafe, which was there for additional profit, was more likely to be busier. They had to sell things like coffee and tea, and also put out desserts.</p>
-<p>,Okay.</p>
-<p>I left the club room and went down the stairs, and there were quite a few female students lined up. They were giving me burdensome looks, and it was even more burdensome to think that most of these girls were going to buy the anthology with my photo card as a bonus.</p>
-<p>For reference, by the time I left the club room, we had recorded sales of over 1.5 million yen. Since they were selling 60,000 to 90,000 yen per person, the money was increasing rapidly.</p>
-<p>,Oh?! It's Kintae Yang-sensei!</p>
-<p>When I went down to the 1st floor, I saw people who seemed to be Uenozono Karen's fans here and there, and they pointed at me, calling me Kintae Yang-sensei, so I smiled awkwardly and waved my hand. It seemed like my nickname had completely solidified as Kintae Yang-sensei in Seriph's fandom.</p>
-<p>As I passed through the hallway again and went to the 1st floor, I saw female students rustling and opening photo card packs. There were students who were frustrated, saying, "Ah! It's a duplicate again!" and students who were happy, saying, "Ah! I didn't have this one!" As I watched them experience joy and sorrow, I headed towards Kijimoto Jurie, who was wearing an apron.</p>
-<p>,Kijimoto-sensei, is there anything you need?</p>
-<p>,It's still early, so not really. I prepared well yesterday.</p>
-<p>Then there won't be anything I need to do for a while?</p>
-<p>,Hey, Minamoto. I have nothing to do?</p>
-<p>-I'll send one person down, so go enjoy the festival. It would be noisy if we met in the classroom and left, so meet me behind the special class building, at the physical training room building, and leave from there.</p>
-<p>Doesn't she get jealous even if I go on a date with someone else? She's so confidently saying she'll send one person down. As Minamoto Risa said, I left the special class building and headed to the physical training room building.</p>
-<p>Even while I was on the phone, customers continued to enter the cafe. Everyone had expressions of anticipation, wondering what would come out of the card packs, and I felt a little sorry for distributing real-life gacha. Of course, the students who were buying the club anthologies didn't look burdened at all.</p>
-<p>,D-Dad... no, Sensei!</p>
-<p>I already knew who it was from the moment she said "Dad," but the female student who was going to go on a date with me for the first time was Oofuchi Erika.</p>
-<p>,How did you decide the order?</p>
-<p>,We decided by lottery!</p>
-<p>Ah, I see. It seemed like they had decided by lottery because it would be too advantageous for the skilled ones if they did rock-paper-scissors.</p>
-<p>,Shall we go then? Where do you want to go first?</p>
-<p>,Since we only got about 30 minutes per student, we can't look around much.... I want to go here.</p>
-<p>Oofuchi Erika opened the festival pamphlet to my question and pointed to one. When I looked, it said "VR Game Experience Club," and below it, it said "Club-Made Game Experience Event." That's amazing. They even make games.</p>
-<p>,If I hadn't joined the Date Experience Club, I would have joined here.</p>
-<p>,Ah, that definitely suits you. You're talented at VR dive and good at games too.</p>
-<p>,Ehehe....</p>
-<p>After talking for a while, we headed to the VR Game Experience Club as Oofuchi Erika wanted. The VR Game Experience Club was using one of the club buildings behind the 2nd grade building, and since this was a remote special class building, it took about 5 minutes to get there.</p>
-<p>The atmosphere of the school was definitely different from our building. The special class building felt like it was only targeting me or Uenozono Karen's individual fans, but the other classes had a really festive, bustling atmosphere.</p>
-<p>Of course, it hadn't been long since it started, so there was still a chaotic atmosphere, but this atmosphere would soon be organized. The St. Francisco Girls' Academy festival was said to be of high quality because it wasn't a festival centered around classes where it was the first time they were working together, but rather around clubs with a lot of experience. Of course, what was more important than that experience was the money that the female students put in.</p>
-<p>,Ah, that's it!</p>
-<p>The building with a slightly cybernetic design seemed to be the VR Game Experience Club. The VR Game Experience Club was quite deserted compared to our Date Experience Club, so we received everyone's attention when we appeared.</p>
-<p>,Ah...! You're Yamashiro-sensei, right?</p>
-<p>,Yeah, hi?</p>
-<p>I didn't know I was such a celebrity. Everyone flocked to me and greeted me. I told them to please enjoy the game and sat down in a seat with Oofuchi Erika and tried playing the game.</p>
-<p>It was 500 yen per experience, and I paid for Oofuchi Erika's as well.</p>
-<p>The game was of such high quality that it was hard to believe that the students had made it, and it was a VR-FPS shooting game that Oofuchi Erika liked.</p>
-<p>Oofuchi Erika broke the record, while I was riddled with bullets from the enemies and got a game over.</p>
-<p>When I took off the VR goggles, the VR Game Experience Club flocked to Oofuchi Erika and praised her, saying "Sugoi!" as if they had never flocked to me.</p>
-<p>,Here's your game record card. If you register it in the app, you'll get an alarm if someone breaks Oofuchi-ssi's record.</p>
-<p>It seemed like they had put some thought into increasing sales by making them compete with each other. Oofuchi Erika, hearing the news that the alarm would go off, made a firm determination to protect her throne until the festival.</p>
-<p>,Ah... it's already time.</p>
-<p>,Time goes by fast because it's a game.</p>
-<p>Oofuchi Erika's date time was already over. Of course, there would be another opportunity tomorrow, but I comforted Oofuchi Erika, who was very disappointed, and bought drinks from the festival stalls on the way and drank them together as we returned.</p>
-<p>Oofuchi Erika went to the cafe, saying it was her turn to take care of it, and I went up to the 2nd floor. The line was still long, and there seemed to be more people who looked like fans of Uenozono Karen, who was a famous idol after all.</p>
-<p>Well.... There's no way I can beat Uenozono Karen with this kind of fan merchandise sales.</p>
-<p>,Minamoto, how much have you sold?</p>
-<p>I entered the sales area and asked Minamoto Risa. Then Minamoto Risa opened her mouth with a dumbfounded expression.</p>
-<p>,Yours are all sold out.</p>
-<p>,Huh?</p>
-<p>As far as I knew, we produced 20,000 copies of the club anthology with my photo card in it. It's already all sold out?!</p>
-<p>___________</p>
-<p>Oofuchi Erika!</p>
+<p>Following the road in front of the dojo a bit, I saw Otagi Yuka and a few others standing there. Funayama Seigo and Takakusaki Athena, the remaining Four Heavenly Kings of the Anya Order, weren't there; it seemed they knew the situation had turned unfavorable and retreated.</p>
+<p>But... who's that helmet girl wearing only underwear? That hair color and figure look kind of familiar...? As I approached, a familiar voice came from the helmet.</p>
+<p>,Ryuta-cchi?</p>
+<p>,Seizawa? Is that Seizawa?</p>
+<p>It was definitely Seizawa Shii's voice. Seizawa Shii seemed surprised by my sudden appearance, but I still didn't know what was going on.</p>
+<p>,Master...! Master, are you okay?</p>
+<p>,Master? Does it hurt a lot?</p>
+<p>Old Man Yoda also didn't look to be in good shape. All the disciples gathered around Old Man Yoda, asking if he was alright.</p>
+<p>,First, let's deal with the truck... It would be best to go inside and talk, My Lord.</p>
+<p>,Yeah, let's all go inside for now. It's cold, so it's better to talk inside.</p>
+<p>Sakagami Rena said, looking at Old Man Yoda's wrecked mini-truck. I lifted the mini-truck, its front completely crushed, and threw it into the dojo's front yard before returning to the dojo. The others helped Seizawa Shii and Old Man Yoda, who weren't in good condition, inside.</p>
+<p>,Haa...</p>
+<p>Kujo Kina sighed slightly upon seeing the state of the dojo. The dojo was a mess. There were several corpses, and the dojo's floor and walls vividly showed signs of battle. It seemed she was upset that the dojo, which hadn't been built long ago, had become such a mess.</p>
+<p>,First, let's take care of the corpses and tie up the unconscious Anya Order goons before we start. Seizawa and Kinui-ssi, who look like they're not feeling well, should rest for a bit.</p>
+<p>Since the dojo was the only place where everyone could sit down and talk, we started cleaning it up first. Before starting the cleanup, I called Urabe Konoka because there was something I needed her to check.</p>
+<p>Urabe Konoka's Urabe family shrine wasn't that far away, so she said she'd arrive soon. In the meantime, we tidied up the dojo.</p>
+<p>,We need to figure out the situation accurately first.</p>
+<p>After cleaning up the dojo, Urabe Konoka, who had rushed over in a car, arrived, and we started sorting out the situation. Sakagami Rena was good at organizing information, so I told her to take the lead.</p>
+<p>,Let's sort out the situation first, Sakagami, can you organize things a bit?</p>
+<p>,Yes, My Lord. Then, we need to find out why Nakasone Rishin-ssi is like that. Nakasone-ssi?</p>
+<p>Sakagami Rena asked Nakasone Rishin first, as he was awake after I splashed water on him after he fainted during our sparring match.</p>
+<p>Most people thought that the dojo's location and information about my visit had all leaked to the Anya Order through Nakasone Rishin.</p>
+<p>,To be honest... I don't really know. But I did notice that I was wandering around every night like a sleepwalker. I just thought it was sleepwalking, so I didn't tell my master because I was worried he would worry... If I had told my master, things wouldn't have turned out this way. I'm sorry.</p>
+<p>Nakasone Rishin bowed his head and apologized. Hearing about sleepwalking, it seemed that whatever curse or spell Nakasone Rishin was under activated at night.</p>
+<p>,Urabe? Can you check?</p>
+<p>,I'm sure when I checked before, all the aura of the abyss had disappeared... Um, excuse me, but could you take off your dojo uniform top?</p>
+<p>At Urabe Konoka's request, Nakasone Rishin took off his dojo uniform top. Urabe Konoka circled around Nakasone Rishin, checking him, and then said, ,Ah! It's here, pointing to one spot.</p>
+<p>The spot Urabe Konoka pointed to was between Nakasone Rishin's latissimus dorsi and armpit, a place that was difficult for him to check himself. When I looked at the spot Urabe pointed to, there really was a pattern like octopus suckers, like heat rash.</p>
+<p>,This is definitely a curse from the abyss... Why didn't I notice? There's definitely someone in the Anya Order who's much more skilled in curses than I am.</p>
+<p>In fact, Urabe Konoka was also a priestess of Simyeonui ttal, but she hadn't been a priestess for very long, so she wasn't very skilled in spells or curses yet. Still, she was Simyeonui ttal's cherished priestess, so her skills were improving quickly, and the future looked promising.</p>
+<p>,There are several names for it, but it's most often called Puppet Suction Cups, a type of black magic. It's a spell that sends information to the caster at a designated time every day... It seems to be a bit modified.</p>
+<p>,It must be modified. He consumed his life force to greatly increase his physical abilities and attack me. If I hadn't knocked him out quickly, he would have exhausted all his life force and died, right?</p>
+<p>At my words, Nakasone Rishin, Old Man Yoda, and his disciples were all surprised. It seemed they were bowing and thanking me because I had saved the disciple from almost dying.</p>
+<p>,Thank you. I'm incurring another debt like this.</p>
+<p>,Thank you, Sunbae-nim.</p>
+<p>Old Man Yoda bowed, and Nakasone Rishin, the person involved, also bowed. By the way, Sunbae? Is it like a martial arts senior or something?</p>
+<p>,Let's do all the greetings after we're done sorting things out. Urabe, what do you think about the curse?</p>
+<p>,Um... dispelling it shouldn't be difficult. There are so many functions in the curse that the part that interferes with dispelling the spell seems weak. That's probably why they hid the curse in a place that's hard to see.</p>
+<p>It's fortunate that dispelling it is easy. Well, the area between the latissimus dorsi and armpit is difficult to check even for oneself, and it's not a part of the body that one would show to others, so it wouldn't be easily detected.</p>
+<p>,Just in case, check Kujo and the other kids who were kidnapped by the Anya Order as well.</p>
+<p>,I'll listen to the whole story and do it last. I need to know why Shii is here first.</p>
+<p>I asked her to check the others who had been kidnapped by the Anya Order as well. Kujo Kina looked at Seizawa Shii and refused to examine her immediately.</p>
+<p>I nodded in understanding and glanced at Urabe Konoka. Urabe Konoka nodded and took Old Man Yoda's disciples to the changing room.</p>
+<p>,Seizawa, can you explain why you came here?</p>
+<p>Seizawa Shii took off her helmet and was wearing the oversized sweatshirt I had brought. Wearing the sweatshirt that I, a large guy, wore, it felt like a dress. Seizawa Shii had worn oversized styles before, so it didn't feel awkward or anything.</p>
+<p>,Yeah... I'm doing a job that you could call a... troubleshooter. Have you heard of Ogre?</p>
+<p>Ogre? Ogre was the name of a pretty famous assassin and mercenary... Could it be? Was it Seizawa Shii? The part-time job she said she was doing was assassination... That was an excessively surprising fact.</p>
+<p>,You were Ogre?</p>
+<p>Sakagami Rena, who would know people in the same industry better than anyone, asked Seizawa Shii in surprise.</p>
+<p>,Yeah. I don't do jobs that don't meet my standards. The people I've dealt with so far have been serial killers or people who have committed corruption and harmed others.</p>
+<p>,Then why did you attack our Master?</p>
+<p>While Seizawa Shii was explaining, Kujo Kina asked sharply. It seemed she had become a bit sharp because Yoda-yeonggam had been injured by Seizawa Shii's attack.</p>
+<p>,Kujo, shouldn't we listen to the whole explanation first?</p>
+<p>,Hmph... I understand, Sensei.</p>
+<p>Kujo Kina calmed down, and when I gestured for Seizawa Shii to speak again, she opened her mouth again.</p>
+<p>,There was an agent I trusted, and I got a call from him. He said there was someone who had kidnapped a child... The plan was for me to attack the kidnapper while the client found the kidnapped child.</p>
+<p>,Kidnapper...! Our Master is not a kidnapper! Rather, those Anya Order guys kidnapped my disciples...</p>
+<p>Kujo Kina flared up again at the word kidnapper. It seemed she was angry that the Anya Order was framing her master as a kidnapper.</p>
+<p>,I know that now too. I'm sorry. I don't know why I trusted their words so much.</p>
+<p>,Kujo, stop it. Your friend's judgment was clouded by the Anya Order's magic. Maybe that agent was also affected by the Anya Order's magic.</p>
+<p>Seizawa Shii apologized, and Yoda-yeonggam, who had been harmed, even defended Seizawa Shii as a victim of the Anya Order, so Kujo Kina finally calmed down.</p>
+<p>With Seizawa Shii's story finished, the situation was roughly clear. Nakasone Rishin was leaking information to the Anya Order, and the Anya Order, thinking that the Four Heavenly Kings alone wouldn't be enough, hired Seizawa Shii, an assassin famous under the name Ogre.</p>
+<p>I hadn't seen Seizawa Shii's stats, so I couldn't be sure, but if she could hold her own against Yoda-yeonggam, she seemed to have pretty impressive physical stats.</p>
+<p>Instead, her mental stats seemed a bit low, so her judgment was impaired by the Anya Order's magic, and she accepted the request quickly without looking into it in detail. The next situation is as I know it.</p>
+<p>,So, to summarize, that old man's disciple was affected by a spell and leaked all the information, and the Anya Order guys tricked and hired a famous mercenary named Ogre, and that mercenary's identity was Shii-jjang?</p>
+<p>Otagi Yuka, who had been listening to the whole story, gave a clear summary.</p>
+<p>,They won't attack today, but since the dojo's location has been revealed, let's check for curses, dispel them, and then temporarily move our residence to a hotel.</p>
+<p>,No, it's okay. I'll just have to bring you to our mansion.</p>
+<p>Kujo Kina shook her head at my words. If it's the Kujo family's mansion, there's no need to worry. Since the Anya Order had lost two of its Four Heavenly Kings, their forces were significantly depleted, so they wouldn't launch an immediate attack.</p>
+<p>,Then let's dispel the curse and go quickly.</p>
+<p>,I'll go back first.</p>
+<p>Seizawa Shii staggered to her feet at my words. It seemed she was uncomfortable staying together because she was the perpetrator.</p>
+<p>,Grandpa, I'm sorry. I'll compensate you for the truck.</p>
+<p>,Hehehe... If you say you'll compensate me, there's no problem. Let's just say we had a fierce sparring match.</p>
+<p>Old Man Yoda spoke as if to say it was okay at Seizawa Shii's apology. Then he glared at me subtly. Seriously... How does he know what I'm thinking so well? Is he really a telepath?</p>
+<p>,Ryuta-cchi, I'll wash your clothes and return them. Thanks for lending them to me.</p>
+<p>,Are you okay? Can you go back alone?</p>
+<p>,Yeah, I can go alone. See you on Monday, Ryuta-cchi.</p>
+<p>Seizawa Shii waved her hand and went out of the dojo. Of course, given the situation, she wasn't making her usual playful gyaru expression. The sliding door closed with a click, and soon Yoda-yeonggam opened his mouth.</p>
+<p>,She must have been quite shocked, so it's best to leave her alone for now. She seemed confused knowing that someone else had controlled her mind.</p>
+<p>She seemed quite apologetic, but Seizawa Shii also seemed to have been quite shocked. These kinds of mental attacks have quite a few aftereffects. It makes you unable to trust yourself. I should comfort her a bit when I see her next time.</p>
+<p>_________</p>
+<p>Shii not smiling.</p>
+<p>Shii-ddang definitely looks prettier when she's smiling</p>

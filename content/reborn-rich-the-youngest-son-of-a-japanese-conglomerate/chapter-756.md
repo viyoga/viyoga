@@ -5,93 +5,81 @@ weight = 756
 chapter = 756
 +++
 
-<p>Kim Jae-wook, the audit team leader of Shinkang Life Insurance, wore a very nervous expression. It was because of a summons from Han Yu-gyeong, the granddaughter of the Chairman of Shinkang Group, who became the president of Shinkang Life Insurance as a parachute appointment.</p>
-<p>"What I would like to ask the audit team is if there are any audit records of former President Lee Taek-joon."</p>
-<p>He felt like what was coming had arrived. As Kim Jae-wook was the audit team leader who audited the entire Shinkang Life Insurance, he was well aware of the irregularities of former President Lee Taek-joon, who had been in office until recently.</p>
-<p>In order for Kim Jae-wook to survive, he should have gone to the president's office with evidence of the former president's embezzlement or illegal activities as soon as the new president took office.</p>
-<p>However, Kim Jae-wook's big misstep was hesitating because the new president was only a 21-year-old female college student. This was because the president directly looking for him gave the impression that he was trying to cover up the former president's wrongdoings.</p>
-<p>"I have it. H-Here is the data about him, President-nim...!"</p>
-<p>Kim Jae-wook handed over the UCT (Universal Connection Terminal) containing the data. And at the same time, he opened his mouth again to make excuses.</p>
-<p>"As it is the former president's wrongdoing, I was collecting data. If I reported it elsewhere, something big might happen...."</p>
-<p>"I understand. I won't fire you or hold you responsible, so be quiet."</p>
-<p>The new president, Han Yu-gyeong, coldly cut off Kim Jae-wook's words. Kim Jae-wook sighed in relief at those words. And after connecting the UCT to the computer and skimming through it, he nodded.</p>
-<p>"Heueung... He really made a killing, didn't he...? Good. I think this is enough."</p>
-<p>What's enough? Kim Jae-wook felt a great sense of unease at Han Yu-gyeong's words. Soon, Kim Jae-wook realized the identity of that unease.</p>
-<p>"Only the audit team leader and deputy team leader remain, and the rest can go back."</p>
-<p>The audit team that was called together left the president's office, leaving only Deputy Team Leader Bang Ju-hye and Team Leader Kim Jae-wook. Now, in the president's office, there were only Han Yu-gyeong's bodyguards standing like statues at parade rest, Kim Jae-wook and Bang Ju-hye, and the president, Han Yu-gyeong.</p>
-<p>"Do you know why I left the audit team leader and deputy team leader behind?"</p>
-<p>"I-I don't know."</p>
-<p>"I don't know...."</p>
-<p>Han Yu-gyeong continued to speak as if she didn't expect an answer in the first place.</p>
-<p>"It's because the audit team is the only department here at Shinkang Life Insurance that has the authority to clean up the inside. What I want is...."</p>
-<p>Han Yu-gyeong, who was speaking softly, looked at the two members of the audit team. Her eyes were so cold that Kim Jae-wook felt like a mouse in front of a snake.</p>
-<p>"To completely grasp this Shinkang Life Insurance in my hands. It means that I don't want the employees that my uncles have planted in Shinkang Life Insurance to be here. Do you understand?"</p>
-<p>Han Yu-gyeong was different from the presidents of Shinkang Life Insurance who had just passed through like now. Han Yu-gyeong wanted to make this Shinkang Life Insurance completely her own. Her mindset was different from the former presidents who received a salary, embezzled the company's money, and comfortably stayed before being transferred elsewhere.</p>
-<p>"Yes! Of course, according to the President-nim's wishes...."</p>
-<p>"Of course, you won't properly follow what I, a child, tell you to do. First, I will show you an example."</p>
-<p>Han Yu-gyeong cut off Kim Jae-wook's words and said. An example? What is she talking about? When the audit team leader and deputy team leader had questions, the door opened.</p>
-<p>Former President Lee Taek-joon, who should have left the company, was dragged in by a huge white man. The huge white man sat Lee Taek-joon, who was limply slumped as if he had been anesthetized, in a chair and fixed his body with cable ties and duct tape as if water was flowing.</p>
-<p>Seeing that, Han Yu-gyeong got up from her seat and sat on the heavy desk in the president's office. She was now in a position to look down at Lee Taek-joon, who was sitting down, from close range.</p>
-<p>"Wake him up."</p>
-<p>"Yes."</p>
-<p>At Han Yu-gyeong's words, the huge white man gave Lee Taek-joon an electric injection. Whether that injection was effective or not, Lee Taek-joon quickly opened his eyes.</p>
-<p>"W-What is this...!"</p>
-<p>"I'm sorry. I'm an inexperienced college student, so I brought the former president here because I have something to ask."</p>
-<p>Lee Taek-joon rolled his eyes at Han Yu-gyeong's words. He seemed to be figuring out what was going on.</p>
-<p>"Ahahaha...! I think I took the handover too lightly. May I know what the question is?"</p>
-<p>Lee Taek-joon answered with a sly expression and tone, but he felt his back getting wet. It was natural to be nervous when he woke up from unconsciousness and found himself tied to a chair with huge men around him.</p>
-<p>"First of all, I have about three or four questions to ask. First, did the former president install the bugging device in the president's office?"</p>
-<p>When Han Yu-gyeong spoke while holding a small camera and microphone in her hand, the two members of the audit team swallowed hard.</p>
-<p>"N-No, I didn't do it...! I only heard that the President-nim was taking office at Shinkang Life Insurance an hour or two ago. There wasn't even time to install it!"</p>
-<p>That was true. It hadn't been a few hours since Han Yu-gyeong chose to go to Shinkang Life Insurance. There wasn't enough time to install a bugging device hidden in a secret place, and it seemed unlikely that a president would install a bugging device in his own room, so it seemed true that Lee Taek-joon hadn't installed the bugging device.</p>
-<p>"Then where would they have installed the bugging device?"</p>
-<p>"W-Well.... Wouldn't it be Han Byeong-jae and Han Woo-min, who are competing with President Han Gyeong-jae for the succession?"</p>
-<p>That was certainly true as well. Since Shinkang Life Insurance was headed by Lee Taek-joon, who was in the Han Gyeong-jae line, it was highly likely that Han Gyeong-jae's opponents had installed the bugging device.</p>
-<p>"Is that so. Thank you for your opinion. Then, here's the second question. What did you think of me to try to complete the handover with just a few documents?"</p>
-<p>Han Yu-gyeong's second question was difficult to answer. This was because both Han Yu-gyeong and Lee Taek-joon knew the meaning contained in those few handover documents.</p>
-<p>"I'll make it easier for you to answer. You'll be able to answer the next question well too."</p>
-<p>Wiiiiiing!</p>
-<p>One of the Vanguard agents approached Lee Taek-joon, who was fixed to the chair, with an electric drill.</p>
-<p>"Kuaaaaaak!"</p>
-<p>Blood splattered on his right arm, and at the same time, Lee Taek-joon's scream echoed. One person drilled a hole in his arm with an electric drill, and another person next to him injected a hemostatic agent to stop the bleeding. There were many stories to hear, so Lee Taek-joon couldn't die from excessive bleeding now.</p>
-<p>"Don't worry. In this day and age, having a cyber implant on your arms and legs isn't a flaw."</p>
-<p>Han Yu-gyeong's words were a threat. It was a threat that she would make not only his arms but also his legs unusable.</p>
-<p>"Now, answer me? What did you think of me?"</p>
-<p>"I-I'm sorry...! I'm sorry! I just thought you were a college student who didn't know anything...!"</p>
-<p>Han Yu-gyeong smiled at Lee Taek-joon's answer.</p>
-<p>"I understand. Since you've answered, let's move on to the next question. This time, it's a question about embezzlement."</p>
-<p>Wiiiiiing....!</p>
-<p>At the same time as Han Yu-gyeong's words, the blade of the electric drill began to rotate threateningly. The head and deputy head of the audit team, who were watching the scene, were terrified. Even the female deputy head involuntarily peed herself.</p>
-<p>The two members of the audit team almost simultaneously recalled what Han Yu-gyeong had said.</p>
-<p>-Of course, you won't properly follow what I, a child, tell you to do. First, I will show you an example.</p>
-<p>It was a strong warning that if they didn't do what they were told, they could end up like this.</p>
-<p>####</p>
-<p>Everyone only drank one can of beer, so only one person was drunk. The only person who was drunk was Saionji Diana. Wow, she's really weak with alcohol....</p>
-<p>"Heueungeu, Teacher-niim...!"</p>
-<p>Saionji Diana's face was red as she clung to my arm and made heueungeu noises, and seeing that, Alik clung to my other arm.</p>
-<p>"I want to hug Ryuta's arm too...!"</p>
-<p>As expected of a Russian girl, Alik, who had become a hot body before I knew it, hugged my arm tightly, and I felt her soft breasts pressing against me. Of course, I also felt Saionji Diana's breasts pressing against my other arm, so I felt twice as good.</p>
-<p>"Alik, you've grown up so much...."</p>
-<p>When I first met her, she was skinny because she couldn't get enough to eat under the slave trader, but now she's a well-developed high school girl, so I felt a sense of pride.</p>
-<p>"Yes, Alik is an adult."</p>
-<p>As I was looking at Alik with pride, the students who had heard the explanation from Urabe Konoka looked at me.</p>
-<p>"The black energy that the teacher used is a power received from God?"</p>
-<p>"Well, yeah. It's a bit different from the God we know, though. Maybe it's similar to a transcendent being from another world?"</p>
-<p>In fact, Simyeon or (although I've never actually seen them) Simyeonui ttal didn't match the image of God that we think of as God.</p>
-<p>"Anyway, be careful until my power comes back because of those circumstances."</p>
-<p>"Surely Teacher-ssi won't get kidnapped just because you've gotten a little weaker, right?"</p>
-<p>Otaki Yuka said playfully after hearing my words.</p>
-<p>"I'm not an important person, who would try to kidnap me?"</p>
-<p>If it were Jin Yong-tae or Taira Ryuta, there might be a reason to kidnap me, but now I was just a Korean teacher, the second foreign language at St. Francis Girls' Academy. I could say that there was no reason for anyone to kidnap me.</p>
-<p>###</p>
-<p>"Uhehehe.... Older brother....!"</p>
-<p>In a dark room, a woman's voice is heard, and eyes that shine eerily like wild animals illuminate the darkness.</p>
-<p>"Just be patient. I.... I can be patient too, so older brother can be patient too, right?"</p>
-<p>The woman, who was muttering incomprehensible things, tapped something. And the screen of her smartphone turned on, revealing the woman's face in the darkness.</p>
-<p>The face revealed by the cold light of the smartphone was Taira Kanna. Her empty eyes and melted expression created an atmosphere of madness.</p>
-<p>_____________</p>
-<p>Illustration of Han Yu-gyeong and Ha Ju-yoon's mother and daughter in belly dancer outfits requested by MidNightSKY-nim~!</p>
-<p>Starting with the mother, Ha Ju-yoon~!</p>
-<p>I thought it would be quite difficult to create Ha Ju-yoon with the new model, but it turns out it can be done hehe</p>
-<p>Daughter Han Yu-gyeong!</p>
-<p>Kiyoot!</p>
+<p>"I didn't open or check Orabeoni's phone, so don't worry."</p>
+<p>"Well.... I guess so."</p>
+<p>Taira Kanna handed me the phone, speaking as if to reassure me. As a result of asking Eve, she said my phone hadn't been turned on even once since I was kidnapped, so she wouldn't have checked it.</p>
+<p>For a yandere, Taira Kanna's action of not searching through my phone was puzzling, but it seemed to stem from her confidence that she could find out my traces anytime.</p>
+<p>"I've charged it, so you can use it right away."</p>
+<p>"Ah, thank you for that."</p>
+<p>Actually, technology is so good these days that you can use a phone for several days on a single charge, but I'm still grateful for her charging it like this.</p>
+<p>"Then.... Shall we talk a bit about what we'll do going forward?"</p>
+<p>"Good."</p>
+<p>At Taira Kanna's words, I sat on the chair opposite her. First, since we decided to form an alliance that isn't quite an alliance, it would be good to discuss what we'll do in the big picture.</p>
+<p>"Actually, within the Taira Group, the only ones on my side are the Talent Development Center, so even if we talk now, there's nothing we can do."</p>
+<p>"If this matter succeeds, you'll receive an affiliate company from Father.... And with Hatake Investment Company outside the company, it's not small in terms of power, is it?"</p>
+<p>She seemed to know about Hatake Investment Company, at least, but she didn't seem to know about TG Tech yet. As expected, no matter that Taira Kanna is the Taira Group's fourth successor, she's still a Student, and overseas information is not something she can easily access. So even if she had been watching me, she wouldn't easily know.</p>
+<p>Other uncles and aunts who aren't watching me would know even less about me.</p>
+<p>"First, my strategy is basically to lie low and bide my time. Since my power isn't great, it would be good to be careful."</p>
+<p>"Is that possible? It seems it's already known as the fourth power."</p>
+<p>Now that it was revealed that about two-thirds of the forces that followed Taira Saburo had joined Taira Kanna, she was in a situation where she couldn't quietly build her power.</p>
+<p>"After Graduation, I'll say I'm entering Father's direct command instead of immediately participating in the succession structure."</p>
+<p>It meant she would immediately enter Taira Danjo's shadow. Then, attacking Taira Kanna's forces would be attacking Taira Danjo's forces, so it was an excellent countermeasure.</p>
+<p>But if she didn't make a succession declaration, she couldn't actively gather forces, and it seemed she had a separate thought about that.</p>
+<p>"In Orabeoni's case, actually, within the group, you're such a small force that you can't even make a succession declaration, so I think it would be better to declare neutrality."</p>
+<p>A small force that can't even make a succession declaration, she says.... Her words are harsh.</p>
+<p>Actually, the declaration of neutrality was something I had talked about with Mimata Chieri or Yukiko. Although we hadn't decided yet, it was one of the various directions we had considered.</p>
+<p>"Well.... Our side will take care of it."</p>
+<p>"Right now, Orabeoni's weapon is Hatake Mining, of Hatake Investment Company, so it will be good to negotiate with Jiro Orabeoni."</p>
+<p>Taira Jiro, who is in charge of Taira Steel, will naturally want cooperation with Hatake Mining, which possesses a Mithril mine. Of course, he would want to swallow all of Hatake Mining whole, but even for Taira Jiro, there was no method. It wouldn't work by force, and legally, our Possession is certain.</p>
+<p>Actually, even before, contact had come from Hatake Investment Company regarding the Mithril supply matter, but at that time, whether it was just a feeler or because they knew it would be difficult to swallow our company whole, it couldn't proceed and had fizzled out.</p>
+<p>Taira Kanna's words were likely an instruction to receive various advantageous prices while making a Mithril supply Contract with Taira Jiro. This was also something I had thought of, and recently, contact had come from Hatake Investment Company, so I was worrying.</p>
+<p>"However, Jiro Orabeoni is a cunning Person compared to his Appearance, so it would be good to be careful."</p>
+<p>As Taira Kanna said, Taira Jiro outwardly was a large man with a slightly fierce, warrior-like Face, but because he was someone who enjoyed sinister schemes, such as moving the Silver Stake Alliance to Attack St. Francisco Girls' Academy to achieve his own profit, I definitely had to be careful.</p>
+<p>"I was already having that thought."</p>
+<p>"Is that so? Then the Story I prepared today is already over.... So, how about a conversation of bodies?"</p>
+<p>At my answer, Taira Kanna subtly raised her skirt, seducing me. Taira Kanna's white thigh, visible beneath her skirt, was quite a turn-on, but I shook my Head.</p>
+<p>"If we do it now, how would I know when the Student Council Kids might come in? Let's do it next time, in a Place where we're just the two of us."</p>
+<p>"Fufu.... It's good that there's a next time, Orabeoni♡"</p>
+<p>No matter how much Taira Kanna had sent the Student Council Students away, I didn't want to thrust my waist in a Situation where I didn't know when they might come in. But despite my refusal, Taira Kanna fixated on the words "next time," and with a yandere Expression, she touched her cheeks with both hands and smiled.</p>
+<p>"Th-that's right. I'll leave for today."</p>
+<p>"Yes. Go, Orabeoni~♡"</p>
+<p>Receiving Taira Kanna's greeting, I came out of the Student Council Room and turned on my phone. A huge number of text messages and missed calls had come in. Most were from special class Students or Han Yu-gyeong, Arisu, Mimata Chieri, etc., but among them, an unfamiliar text message had arrived.</p>
+<p>-Ryuta, it's your second eldest uncle, Jiro. I'd like to meet and talk.</p>
+<p>As if what I had talked about with Taira Kanna coincided, Taira Jiro's text message had arrived. Phone calls had also come several times, but naturally, I, who had been kidnapped, couldn't answer, so they had gone to missed calls.</p>
+<p>"This Person is no gentleman either."</p>
+<p>I looked at my phone and muttered, then made a Phone Call to Taira Jiro. Still, he's one of the Taira Group's successors and an uncle, so I couldn't completely ignore him.</p>
+<p>Of course, as the content of the text message suggested, I had no thought of meeting Taira Jiro now. Because if I showed this Appearance, with my Tanning and blonde hair, it was clear he would realize where I was currently performing my mission.</p>
+<p>In Taira Jiro's office, as the phone rang, Taira Jiro checked his phone screen and frowned. On the phone screen, the name Taira Ryuta was displayed.</p>
+<p>"Insolent bastard. He ignored my Phone Call, and only now he's calling me...."</p>
+<p>Taira Jiro, who had been quietly cursing Taira Ryuta, smiled as if he had never done so and answered Taira Ryuta's Phone Call.</p>
+<p>"Nephew-nim~! I waited a lot for your Phone Call!"</p>
+<p>-I apologize. I had my phone turned off due to a mission.</p>
+<p>He wanted to say something about his Contact being daringly ignored, but if a mission was used as an excuse, even Taira Jiro could do nothing. Because the one who gave that mission was none other than his Father, Taira Danjo.</p>
+<p>Even Taira Jiro, who feared nothing in the World, couldn't argue about the mission because he feared his Father, Taira Danjo.</p>
+<p>"If it's a mission, there's nothing to be done~! How about meeting with this uncle after a long time and talking?"</p>
+<p>-I apologize, but could I know what matter it is about?</p>
+<p>'Insolent bastard. If I say let's meet, you should just meet....'</p>
+<p>Taira Jiro, while cursing Taira Ryuta internally, opened his mouth as if nothing was wrong and stated the Reason he wanted to meet this time.</p>
+<p>"I want to make a Mithril supply Contract with Hatake Mining, which you possess."</p>
+<p>-Ah, I see. But because of the mission, I don't think I can meet Uncle directly. You can contact Hata Yoshiko-ssi, the CEO of Hatake Investment Company, and discuss the contract. Because of the mission, I've delegated all Decisions regarding Hatake Investment Company to the CEO.</p>
+<p>'If it's Hata Yoshiko, she's that Ryuta bastard's Mother. She seems to have started a company with Saburo's Legacy.... Deceiving a Woman who only did housework is no Work at all. This contract matter will pass easily.'</p>
+<p>Taira Jiro was subtly ignoring Hata Yoshiko, who was a former housewife, so he thought it was rather good. He resolved to make such an unfair Contract that the insolent nephew bastard would beg him to cancel it.</p>
+<p>"Okay, if it's because of a mission, there's nothing to be done. Then the Contract can proceed with Hata Yoshiko-ssi, right?"</p>
+<p>-Of course. She's the CEO I trust and entrusted.</p>
+<p>At Taira Ryuta's Answer, Taira Jiro gave a sneering Smile. With this, even if Taira Ryuta claims the Contract is unfair, this Call will immediately be the evidence.</p>
+<p>"Okay, then Contact me when the mission ends. This uncle will buy you something delicious."</p>
+<p>-I understand, I'll contact you when the mission ends.</p>
+<p>"Okay, I'll hang up now."</p>
+<p>At the same time he hung up the Phone Call, Taira Jiro erased his Smile. Taira Jiro wiggled his finger, calling his secretary, Tateyama Genta.</p>
+<p>"Did you call me, Boss-nim?"</p>
+<p>"Soon we'll be making a Contract with Hatake Mining, so find out how to make it most profitable for our side."</p>
+<p>"I understand. If you give me two days, I will create and bring the optimal Contract conditions."</p>
+<p>Tateyama Genta bowed his Head and answered confidently.</p>
+<p>"Hatake Investment Company's CEO is a former housewife who knows nothing, so you'll be able to easily handle her. Give it a good try."</p>
+<p>"I understand, Boss-nim!"</p>
+<p>At Taira Jiro's Words, Tateyama Genta answered with an even more confident Attitude. Recently, Mithril was gradually becoming more expensive, but with this Contract, Taira Steel seemed like it could gain enormous profit.</p>
+<p>MidNightSKY-nim requested the Gyaru-fication Illustration of Taira Kanna!</p>
+<p>Strangely, the Gyaru feeling comes out better in the Miyashiro Municipal High School uniform than in the St. Francisco Girls' Academy uniform, hehehe.</p>
+<p>Hwanbuljeoldae-bulga-nim requested the leopard bikini and micro bikini~!</p>
+<p>Micro Bikini</p>
+<p>I typed "micro bikini," but I don't know if it's that micro, hehe.</p>

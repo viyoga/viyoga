@@ -5,65 +5,68 @@ weight = 555
 chapter = 555
 +++
 
-<p>On Saturday, I went to the hospital where Asada Ei, the daughter of Asada Fukushi, the former caretaker of St. Francisco Girls' Academy, was staying. It was the only large hospital in Miyashi and was run by the Otagi family.</p>
-<p>Since I had spent from yesterday evening until this morning with Otagi Yuka, Saionji Diana, and Sakagami Rena, I came to Miyashi Otagi Hospital with them for a light date and to check on Asada Ei's condition.</p>
-<p>,It's been a while. I used to get blood here before I cut ties with the family,"</p>
-<p>Otagi Yuka opened her mouth with a slightly nostalgic expression. Ah, that's right. As a vampire, Otagi Yuka ate meals with the other girls, but she still needed blood to continue living. I was wondering how she was getting blood in Miyashi, far from her family, but she was getting it from this hospital.</p>
-<p>Since I had contacted Asada Fukushi in advance to let him know we were visiting, we were quickly guided to the hospital room.</p>
-<p>When I opened the door, a cold air greeted us. It felt like it was almost 0 degrees Celsius? The weather was in full autumn, but the room was very cold. In the middle of the hospital's VIP room, on a bed with various devices attached, a woman was lying with her eyes closed. She was a woman around the age of a college student with pale blue-tinged white hair, and she was frowning as if in pain and had a tube inserted in her mouth.</p>
-<p>,What exactly are your daughter's symptoms?"</p>
-<p>,I don't know the exact diagnosis, but it's a temperature allergy. If the temperature rises above a certain point, she loses consciousness and complains of severe side effects, so she can't handle it."</p>
-<p>Asada Fukushi, who was touching his daughter's cheek with a worried expression, answered my question. A temperature allergy... From what I heard, it seemed like high temperatures above a certain level were fatal.</p>
-<p>I wondered if it was some kind of status ailment, so I put on the glasses from the ruins and looked at Asada Ei.</p>
-<p>◆Name: Asada Ei (浅田 永) Lv8</p>
-<p>Strength: 6 Agility: 10 Stamina: 9(-2) Resistance: 8(-2) Recovery: 5 Nerves: 10 Appearance: 14</p>
-<p>Intelligence: 8 Knowledge: 10 Concentration: 8(-2) Willpower: 8(-2) Creativity: 7 Charm: 12 Judgment: 8</p>
-<p>Luck: 7 Cold Resistance: 1</p>
-<p>◆Information Manipulation (Rare Skill Lv9): Can manipulate information through various schemes.</p>
-<p>◆Information Gathering (Rare Skill Lv8): The ability to obtain desired information.</p>
-<p>◆Shooting (Common Skill Lv10): Fires with a ranged weapon. Accuracy increases as the level increases.</p>
-<p>◆Language - English (Common Skill LV9)</p>
-<p>◆Trap Installation and Disarming (Rare Skill Lv8): Installs and disarms traps, snares, and mines. The higher the skill level, the faster the installation and disarming speed without being caught by the opponent.</p>
-<p>◆Trap Detection (Rare Skill Lv5): Detects the presence of traps in the surrounding area.</p>
-<p>◆Owl's Eyes [Rare+ Trait]: Can see through the darkness and can see far away by concentrating.</p>
-<p>◆Stealthy Movement [Rare Trait]: Moves without being noticed by people around you. Footstep sounds are reduced, and movement speed is increased. The darker it is, the more you blend into the environment, and the lower the chance of being detected.</p>
-<p>◆Inquisitor's Sense [Epic+ Trait]: Can instinctively detect the opponent's lies. If you discern the opponent's lie, all physical stats increase by 1 during combat with that opponent. The maximum value of Judgment and Concentration stats increases by 1.</p>
-<p>◆Master of Trap Installation: Becomes a master at installing traps.</p>
-<p>◇Snow Woman's Bloodline [Legacy Bloodline]: Gains the special stat 'Cold Resistance'. Can increase the Cold Resistance stat by absorbing surrounding cold air, and the higher the maximum Cold Resistance, the better you can withstand the heat. The maximum value of the Cold Resistance stat increases by 5, and in cold places, 50 to 80 percent of the Cold Resistance stat is added to all physical stats depending on the temperature.</p>
-<p>However, in hot places, Stamina, Resistance, Willpower, and Concentration stats are reduced by 2 to 6 depending on the temperature. This debuff is indicated as [High Temperature]. If the [High Temperature] debuff persists for a long time, you will faint.</p>
-<p>These aren't the stats of an ordinary woman? There are so many people around with flashy stats that these stats seem a bit low, but they were still good enough to be used as troops in a game. Is it because her father is in the intelligence unit? Or did she become a soldier following her father?</p>
-<p>,Did you serve in the Self-Defense Forces like Asada-ssi?"</p>
-<p>,Yes, she was in the same intelligence unit as I was. She didn't work for many years, but she suddenly collapsed and was discharged seven years ago."</p>
-<p>Seven years ago was probably when the World War ended and Asada Fukushi started manufacturing drugs. After reading all the status windows in detail, it seemed that the last trait, the Snow Woman's Bloodline, was the problem. The disadvantage was that she would get debuffs if the temperature was high, but if she could gather cold resistance, it was a conditional cheat trait that could greatly increase her raw stats. However, since she didn't know that, she would have continued living her life, and in the middle of summer, it would have been fatal, so she would have collapsed.</p>
-<p>However, the problem with Asada Ei was that she had hardly gathered any cold resistance, so her Cold Resistance stat was only 1. The solution seemed simple. She just needed to absorb cold resistance to increase her Cold Resistance stat.</p>
-<p>And I wanted Asada Ei to wake up as soon as possible. I had been thinking about my own intelligence team since yesterday, and some of Asada Ei's skills and traits seemed perfect for being an informant.</p>
-<p>By the way, a Snow Woman... It seemed that either Asada Fukushi or his wife had inherited the Snow Woman's Bloodline. Among Asada Ei's traits, there were no particularly interesting traits except for the Snow Woman's Bloodline, but if she fully awakened the Snow Woman's Bloodline, her traits might change like when Yukiko fully awakened as a succubus. This was a point of anticipation. If I do it well, she could become incredibly strong?</p>
-<p>,Um, how is my daughter?"</p>
-<p>As I was silently looking at Asada Ei, Asada Fukushi looked at me with a worried expression and asked for my opinion. I opened my mouth with a reassuring smile.</p>
-<p>,I think I can cure her for now."</p>
-<p>,Really, really?!"</p>
-<p>Asada Fukushi was very happy at my words. He had been selling drugs for years just to keep his daughter alive, so he couldn't help but be happy when I said I could cure her.</p>
-<p>,But what kind of treatment...?"</p>
-<p>,Do you know about cryotherapy?"</p>
-<p>Cryotherapy is a hypothermic freezing therapy that some athletes do after a game, but in Asada Ei's case, she needed to absorb cold resistance almost all day long, not just for a short time like after a game. In fact, it would be fine to leave this bed as it is in a freezer, but since her father was listening, I couldn't say, 'Your daughter can get better if you put her in a freezer.' So I used the more luxurious term cryotherapy.</p>
-<p>I can ask Eve to do this. Eve loves observing things like superpowers, so if I ask her with a reward, she will gladly accept.</p>
-<p>,I see."</p>
-<p>,If the treatment doesn't work, I'll send her back here and pay for the medical expenses, so don't worry too much."</p>
-<p>He still seemed a bit suspicious, as if he couldn't completely believe my words, so I reassured him and contacted Eve. When I talked to her through the dark web chat, she said that the Miyashi branch happened to have a cryotherapy machine and a freezer, and that she would send a freezer truck soon.</p>
-<p>,You'll probably see your daughter get better in a few days."</p>
-<p>,Thank you...!"</p>
-<p>Asada Fukushi bowed to me repeatedly, feeling like something was being resolved. Asada Ei's problem would be solved with this, and there was nothing more for me to do here.</p>
-<p>,Have you contacted Kurayamada-ssi?"</p>
-<p>,Yes, I'm scheduled to meet him tomorrow. I'm not going to the PMC alone, but my subordinates will be going with me, so we're going to greet him all at once."</p>
-<p>While waiting for the freezer truck, I asked about the new PMC that Kurayamada Kirie would be establishing, and Asada Fukushi answered me as much as he knew. In fact, he didn't know much, because we were scheduled to meet formally tomorrow. In fact, Asada Fukushi had only been caught by me recently. He was caught on the night before the sports day, and yesterday was the sports day, so it had only been two days.</p>
-<p>While we were going through the discharge procedures, the dark web deliverymen who had received Eve's orders arrived. The hospital was flustered when they heard that a patient who paid tens of millions of yen every year was being discharged, but the situation was quickly resolved when Otagi Yuka stepped in.</p>
-<p>,Just go home and rest, and you'll be contacted in a few days."</p>
-<p>,Thank you so much...!"</p>
-<p>I said goodbye to Asada Fukushi, who was packing his things after Asada Ei left, and went out of the hospital. Otagi Yuka seemed displeased that she had helped a drug dealer, and she was sulking.</p>
-<p>,You don't have to forgive him."</p>
-<p>,I hate that I want to forgive him because it's for his daughter."</p>
-<p>So that's how she felt. Otagi Yuka seemed to have mixed feelings because she had lost a friend because of drugs.</p>
-<p>,If it were our family, they would have abandoned him right away. Seeing this makes me hate my family even more."</p>
-<p>Saionji Diana, who had been abandoned by her family after her limbs were cut off, also seemed to feel strange.</p>
-<p>,My lord, how about pizza for lunch? I want to eat Tomino Pizza after a long time."</p>
-<p>Sakagami Rena didn't have any particular thoughts. She was just hungry.</p>
+<p>The day after I decided to meet with Yukiko, I was sitting in the education preparation room when I received a call from Naruse Shiyo's father, Naruse Koyou.</p>
+<p>-Yamashiro-sensei, this is Naruse Koyou.</p>
+<p>"Are you feeling a bit better? I heard you were taking it easy...."</p>
+<p>-Ah, I'm not quite up to going out yet, but... I'm getting better.</p>
+<p>If you're not up to going out, doesn't that mean you're not okay? Hearing Sakagami Rena's story, it seems that inheriting a contract itself puts a huge strain on the body. He inherited not just one, but dozens, so it must be incredibly tough.</p>
+<p>"Is Naruse-yang okay?"</p>
+<p>-Yes, she just came out of her cocoon. Thank you. You stopped my father's rampage and even saved Shiyo, I am in your debt beyond repayment.</p>
+<p>"Well... I just thought I had to help since a student was in danger."</p>
+<p>Of course, I didn't receive any compensation, but it's not like I gained nothing. I killed the Black Dragon, obtained the Dragon Slayer trait, and even gained a Willpower stat as an achievement, so I obtained things that money can't buy.</p>
+<p>-I would like to formally express my gratitude, would you come to our mansion after school today? Normally, I should be the one visiting you, but I haven't recovered enough to be active outside yet.</p>
+<p>Is this a formal invitation? They might be trying to give me some kind of reward. There was no reason to refuse, so I said I would.</p>
+<p>After ending the call, I thought about what kind of reward I could receive. The easiest thing to receive would be money, but money didn't really appeal to me.</p>
+<p>Since I already know the future to some extent, I've invested money in various places where big things will happen, so I won't have any problems because of money. Of course, I've invested almost all of my assets without any spare money, so it might be a problem if I suddenly need a large sum of money, but I can just borrow money from the bank then. If it's really tough, I can exchange the quite a lot of Dark Merchant points I've accumulated, so there's no problem.</p>
+<p>Since it was almost lunchtime, I should call Sakagami Rena, who is knowledgeable about information on these prestigious families, and hear what the Naruse family can give me.</p>
+<p>I sent a Line message to Sakagami Rena and then started studying for the PMC certification. I had looked at it after club activities yesterday and came home, but as the exam date approached, I became a little anxious.</p>
+<p>This time, the preparation period is actually short, so I'm studying with the mindset of taking it as a test, but I can't help but have expectations. By the way, Kurayamda Kirie must be studying for the PMC exam too, right? Her personality is a bit like that, but she's a smart woman from a prestigious university, so she'll do well on her own.</p>
+<p>While studying for the certification, an alert popped up saying that a work email had arrived, so I checked it and it turned out to be Kurayamda Kirie, who I was just thinking about, who had sent the email. Kurayamda Kirie is not a pushover either.</p>
+<p>The email said that the number of people participating in the PMC had been decided, and thanked me for sending Asada Fukushi and his subordinates that I had sent. And she said that she had picked out some expected questions while preparing for the PMC certification exam and sent them to me as an attachment.</p>
+<p>I'm glad that Asada Fukushi and his subordinates seem to be quite useful. Still, Kurayamda Kirie thanks me for each and every one of these things, and it seems that her loyalty has increased a bit since she became a wolf woman. She usually treats me well, but she's a bit prickly, so there was a bit of a tsundere flavor to it. She's kind in emails, but she might act tsundere when we meet in person again. I kind of want to see her, and I'll be able to see her on the exam day.</p>
+<p>I spent time printing out and solving the expected questions that Kurayamda Kirie sent, and before I knew it, it was lunchtime. As soon as the bell rang to announce lunch, Sakagami Rena, who had seen the Line message, opened the door to the education preparation room and came to find me.</p>
+<p>"My lord, you called me about the Naruse family?"</p>
+<p>"Yeah. I decided to go after school. I think they're going to give me a reward, but I'm curious about what I can get from the Naruse family."</p>
+<p>At my words, Sakagami Rena began to think for a moment. After thinking for a while, Sakagami Rena opened her mouth with a slightly troubled expression. Judging from her expression, it seemed like there wasn't anything special.</p>
+<p>"Well... the Naruse family can give you shikigami, but my lord is not a sorcerer, so you won't be able to handle them...."</p>
+<p>I quite like shikigami, but I don't know the conditions of the contract well, and I heard that if a shikigami dies, the sorcerer also suffers considerable damage, so it's not very appealing. I also have another way to obtain summons, so I should pass on the shikigami. Seeing my expression, Sakagami Rena seemed to know that I didn't like shikigami, so she asked another question.</p>
+<p>"My lord has a lot of money, so money wouldn't be very appealing, right?"</p>
+<p>"Well... if there's nothing else to receive, money wouldn't be bad...."</p>
+<p>When I subtly hinted that money wasn't very appealing, Sakagami Rena fell into thought again. But soon, she clapped her hands as if she had thought of something.</p>
+<p>"Ah! Then how about this?"</p>
+<p>Sakagami Rena told me what I could receive from the Naruse family. What Sakagami Rena told me was quite satisfactory information.</p>
+<p>###</p>
+<p>After school, I first returned home. When I said that I couldn't participate in the club today, the students who didn't know the situation booed, but when I said that I was going to see the operated Naruse Shiyo, they acknowledged that it couldn't be helped.</p>
+<p>Still, since it's an official home visit, I should change my clothes and take the car. It would look a bit cheap if I walked or took a folding bike.</p>
+<p>I drove the car towards the Naruse mansion on the hill. Just two days ago, I had to sneak in at night, but now I'm going with an invitation, so it seems that the biggest thing is that the head of the family has changed. Since I practically installed the head of the family, they have no choice but to be friendly to me.</p>
+<p>"Welcome."</p>
+<p>After receiving greetings from the guards and passing through the main gate, I got out of the car and an old man who appeared to be a butler bowed to me. Following the butler's guidance, I went to the reception room where guests were entertained, and Naruse Koyou in a wheelchair, Takinogawa Yukiko in Yukiko's transformation, and Naruse Shiyo were sitting.</p>
+<p>"Benefactor, I apologize for not being able to greet you standing up."</p>
+<p>"Ah, if you're not feeling well, it can't be helped. Is Shiyo okay?"</p>
+<p>Naruse Koyou apologized to me while sitting in the wheelchair. Seeing him sitting in the wheelchair, it seemed that it would take a considerable amount of time to fully recover. Naruse Shiyo greeted me with, "Sensei~!", and Takinogawa Yukiko smiled and nodded slightly.</p>
+<p>I could tell that Naruse Shiyo had fused with the dragon due to the scales on her shoulders and the horns on her head, but she didn't have wings or a tail like Yukiko showed in the mental world at that time.</p>
+<p>"I should have noticed when I saw the Black Dragon in Naruse's form, but it seems that their assimilation rate was quite high. Now, that has become a blessing, and Shiyo is able to control her appearance well. She will probably be able to maintain her human form in two days."</p>
+<p>Takinogawa Yukiko explained, noticing that I was looking at Naruse Shiyo with a puzzled expression. Although her appearance is different now, it felt a bit strange to hear Yukiko speak to me in polite language.</p>
+<p>"Ah, is that so? That's a relief."</p>
+<p>"I heard that Shiyo would have been in danger if it weren't for Takinogawa-ssi. The family wants to repay you, but you keep refusing, saying that you did it because you were promised compensation from Yamashiro-sensei, so we are very embarrassed."</p>
+<p>Naruse Koyou was anxious to give a reward to the benefactor who saved his daughter. Seeing such Naruse Koyou, Takinogawa Yukiko smiled and passed the ball to me.</p>
+<p>"If that's the case, then please give additional compensation to Yamashiro-sensei, since Yamashiro-sensei is the reason I saved Shiyo in the first place."</p>
+<p>"I already owe Yamashiro-sensei an unpayable debt, so how can I incur another debt like this...."</p>
+<p>As expected, it was Yukiko. Seeing her telling me to give me more compensation without thinking about herself, my heart warmed without me realizing it. Soon, food is served, perhaps because I am sitting down.</p>
+<p>"It's a bit early, but I heard that you have an appointment with Takinogawa-ssi. There's not much prepared, but I would appreciate it if you enjoyed it."</p>
+<p>Ah, it seems that Takinogawa Yukiko had already told them that I had an appointment with her. That's good. I was worried about how to get out of here if I kept getting treated like this.</p>
+<p>While the food was being prepared, I looked at Naruse Shiyo and opened my mouth.</p>
+<p>"Shiyo, your classmates are very worried about you, so come to school soon."</p>
+<p>"Everyone was worried? I thought they wouldn't worry since I'm often absent...."</p>
+<p>"Everyone was worried. It's common for you to be absent, but you didn't say anything even when I sent you a Line message, and it's the first time you've been absent for several days in a row, even though there was a weekend in between."</p>
+<p>Naruse Shiyo had a complex expression that contained gratitude and joy for her friends' concern for her, and apology for causing concern at my words.</p>
+<p>"I lied and said you had surgery, but try to come to school as soon as possible."</p>
+<p>"Okay, Sensei! I'll show the kids how healthy I am~!"</p>
+<p>While I was talking with Naruse Shiyo, all the food was prepared, and contrary to Naruse Koyou's words that there wasn't much prepared, the meal was a feast. It was a Japanese-style meal, and as expected of the Naruse family, which had been trading with the West since the modern era, they seemed to specialize in Western-style fusion cuisine arranged in a Japanese style rather than completely Japanese cuisine. The taste was quite good, so I was able to enjoy the meal.</p>
+<p>"Excuse me, but I would like to have a private conversation with Yamashiro-sensei for a moment."</p>
+<p>"It's okay. I think she'll be back tomorrow, so I'll check on Shiyo's condition."</p>
+<p>After the meal, Naruse Koyou asked Takinogawa Yukiko for her understanding in vacating the seat and moved to a small reception room where he could have a private conversation with me.</p>
+<p>Now I can finally talk about the reward. It was a bit difficult to ask for this and that while the student Naruse Shiyo was listening.</p>
+<p>------------</p>
+<p>Street View High School Girl - San Francisco version, which was briefly popular as a meme around May</p>
+<p>Originally, there should be 3 people, but due to the nature of AI, if I make it 3 people, it mixes the eye color and hair color, so I just made it 2 people hehe</p>

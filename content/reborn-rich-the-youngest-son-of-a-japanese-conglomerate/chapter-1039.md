@@ -5,82 +5,55 @@ weight = 1039
 chapter = 1039
 +++
 
-<p>"Kyahaha! Teacher, did you see? I told you I'd get through~!"</p>
-<p>Kujo Kina climbed the stairs, beaming with triumph. She had clearly argued with the employee and Forced her way up, but since she had passed, she seemed to be in a good Mood.</p>
-<p>I gave Kujo Kina a perfunctory "Fortunate for you," then looked around. As expected, being a super-large Cruise ship, it didn't feel cramped at all, and the Interior was quite lavish. It definitely felt like a lot of Money had been spent, wouldn't you say?</p>
-<p>"Rather than going straight to the cabin, let's look around a bit."</p>
-<p>Since the combat team needed time to prepare or secure their Points in advance, we had arrived with a little Leisure, so we decided not to go straight to our cabin but to look around various parts of the Cruise.</p>
-<p>AmSang had informed us that while the time to arrive at the Cruise was 12 o'clock, the auction would only begin once the Cruise reached the middle of the Sea, so we had some time.</p>
-<p>They said we could enjoy performances or eat Alcohol and snacks in the Banquet Hall for about an hour, so we decided to go there first and check the Faces of the attendees.</p>
-<p>Since it wasn't a formal auction but one held by AmSang, there were almost no People who would openly reveal their Status. So, most were holding Lorgnette Masks with Handles or wearing Masks directly.</p>
-<p>We were all holding Lorgnette Masks with Handles, covering our Faces. It was a bit annoying to hold them in our Hands, but since we could just toss them aside once we entered the auction room/cabin, we chose Masks with Handles.</p>
-<p>Of course, those who didn't care about their Image were not wearing Masks, but were enjoying themselves boisterously, drinking the high-quality Alcohol prepared in the Banquet Hall.</p>
-<p>"Oh? That Person is... an Actor famous for Drugs problems in Hollywood. He's not even wearing a Mask."</p>
-<p>Lianna Holden said, pointing to a man drinking Alcohol with a Woman on each Side. A Hollywood Actor... I felt like I'd seen him somewhere before. It was strange to see a famous Actor openly revealing his Face at an illegal auction house, but since he wasn't a Main Character we needed to watch, we ignored him and decided to look around a bit more.</p>
-<p>"Teacher! This Canapé is delicious, try it~!"</p>
-<p>Kujo Kina recommended a dish carried on a round tray. Unlike her muscular Appearance, Kujo Kina had a certain appreciation for dishes, so I decided to try the Canapé Kujo Kina recommended.</p>
-<p>"If the Canapé is that delicious, I'll try...!"</p>
-<p>"Kyaak...!"</p>
-<p>As I turned to eat the Canapé, my Body bumped into a Woman next to me. I quickly caught the Woman as she was about to fall.</p>
-<p>"Ah, I apologize. Are you alright?"</p>
-<p>"I'm fine...! I apologize as well."</p>
-<p>The Woman I bumped into had short hair mixed with Brown and orange hues, and judging by her Velvet Dress, she seemed to have come to participate in the auction. Instead of a Mask, she wore a Lace Blindfold, and even with her Eyes covered, she looked quite like a Beauty. Her Mommae was also quite good. Feeling a firm Sensation in my Hand as I caught her to prevent her from falling, it seemed she exercised frequently.</p>
-<p>"You're not hurt anywhere, are you?"</p>
-<p>"No, no. I'm perfectly fine."</p>
-<p>In Answer to my Question, the Blindfolded Woman slightly spread her Arms, showing her unharmed Body, said she was fine, and gave a faint Smile. Well, if she's fine, that's Fortunate.</p>
-<p>"Then, if you'll excuse me...."</p>
-<p>In fact, there was nothing more to say, so the Blindfolded Woman slightly bowed her Head and headed elsewhere. By the time I went towards Kujo Kina, the employee holding the round tray with Canapés was already gone.</p>
-<p>"Teacher~! What's with you, clumsily bumping into People?"</p>
-<p>"No, I didn't feel any presence at all, it was like...!"</p>
-<p>Ah!? No matter how dull I might be, if someone was close enough to bump into, I would have definitely felt something, but I felt nothing from that Woman until we collided. It was as if the area around her was a silent zone where no Whispers of Pleasure could be heard.</p>
-<p>Could she have had some kind of Ability...? I quickly looked in the direction the Woman had disappeared, but the Blindfolded Woman was already gone amidst the Crowd.</p>
-<p>"What's wrong, Investor-nim?"</p>
-<p>"No, it's nothing. It just occurred to me again that this is a dangerous Place...."</p>
-<p>I waved my Hand and Answered Sawayanagi Azuma's Question. Today's AmSang auction was a dangerous Place. The Person I just bumped into in passing was a Superhuman? Just how many Ability Users are there?</p>
-<p>"Are there any People you particularly know around here?"</p>
-<p>"No, besides that Hollywood Actor earlier, I don't know anyone."</p>
-<p>"I don't either."</p>
-<p>In fact, it was natural that the Members who came with me, not being Information specialists, couldn't recognize anyone. Superhumans or Magicians don't go around proclaiming, 'I have Abilities,' after all.</p>
-<p>After wandering around the Banquet Hall for a while, we headed to our cabin, Special room number 8, without gaining any particular Information other than the Woman I bumped into being a Superhuman.</p>
-<p>For reference, Kujo Kina's team was in a regular room, perhaps because they secured their tickets late. Kujo Kina whined, saying, "I want to go to the special room too," but that couldn't be done. We parted ways with Kujo Kina's team and arrived at Special room number 8.</p>
-<p>"Is this... where the auction will be held?"</p>
-<p>"It's amazing...! Honey, look here!"</p>
-<p>Excluding Kurayamada Kirie, who was from a Young Lady background and a former sujang of a Terror organization, and thus familiar with AmSang, Sawayanagi Azuma and Lianna Holden excitedly looked around various Places like puppies on a walk.</p>
-<p>The cabin had a window on one Side where the auction house could be seen, and next to it, a Screen where detailed visuals of the Auction Items could be viewed. There was also a Machine that looked like a Rimokon with buttons to participate in the auction and raise bids.</p>
-<p>Of course, typical auctions are not conducted this way. In AmSang's case, it's illegal, and some of AmSang's Customers are rough People, so they might suddenly barge in during the auction, which is why they hold Screen auctions like this.</p>
-<p>Ttok-ttok!</p>
-<p>While we were looking around the cabin, we heard someone knocking on the door.</p>
-<p>"Yes."</p>
-<p>When I Answered as the representative, the door opened. Eve was standing at the door, smiling and waving her Hand. Eve was wearing the same Clothes as the employees moving around, and they suited her quite well.</p>
-<p>"Ryuta-nim~! And hello everyone~!"</p>
-<p>It was Eve, still giving her refreshing greeting. Come to think of it, I haven't been to many AmSang auctions, but in the previous auction, Eve had provided guidance via hologram.</p>
-<p>"Eve, aren't you guiding today?"</p>
-<p>"Yes~! Today's auction is a bit special, so I thought real employees would be better than a hologram like me. You can't Subjugation People who go wild as a hologram, can you?"</p>
-<p>Before, Eve had spoken as if there was no worry of an Attack at all, but seeing The Situation, it seemed she had made Preparations, as it wasn't a Situation to be completely at Sweet Relief. According to Eve's Words, all the employees here seemed to possess some kind of force.</p>
-<p>"Perhaps the sales of Guns will increase a bit in the next TG Tech settlement. We ordered quite a large quantity of TG Tech's Energy Guns for this auction."</p>
-<p>As expected, Eve's company love is strong. To care about the sales volume of TG Tech, in which she has a Share, and arm the employees, no less. Looking at the employees, there seemed to be at least over two hundred of them. Of course, TG Tech Guns are still selling well since their release, but such a large Order at once will definitely be a Help.</p>
-<p>Even inside a Cruise ship filled with Superhumans and Magicians, it would be difficult to defeat such a large number of armed individuals. If even One Shot hits without a Survival Trait or Technology, one's life would be in Danger.</p>
-<p>Of course, if all Superhumans and Magicians were to cause a ruckus, AmSang would find it difficult to stop them, but since not all of them would cause trouble, it seemed they could hold them back.</p>
-<p>Most of us expected that almost no one would cause a commotion during the auction, as various groups would attempt to seize the Items after the AmSang auction concluded.</p>
-<p>"Even with all these Preparations, I hope nothing happens during the auction."</p>
-<p>"Indeed. Thank you for your worry, Ryuta-nim~!"</p>
-<p>Along with Eve's Words of thanks for my worry, a deep Buuung! sound of a ship's Beat was heard. The ship was slowly starting to sway, indicating it was departing after the 12 o'clock auction entry time had passed.</p>
-<p>"The ship is departing now~! The auction will begin shortly, so please enjoy yourselves to the fullest~!"</p>
-<p>Eve left us with Words to enjoy ourselves and closed the door, disappearing. As soon as the ship departed, the Screen lit up, and Advertisements for AmSang's Items began to play, among which was the Robot Pet, a Project Eve and I had worked on together.</p>
-<p>This too had gained immense popularity among the wealthy, significantly contributing to my property. Especially, it seemed many wealthy individuals had assigned small Animal-shaped Robots to their Children as bodyguards and Pets, making the sales of small Animals overwhelmingly high.</p>
-<p>After about fifteen minutes, the Advertisements ended, and the auctioneer Eve appeared. Looking at the window, I could indeed see Eve's Appearance.</p>
-<p>-Have you all been waiting long? This is AmSang's first auction held on the Sea, so you are all decorating a Scene in history together~! Now, let the auction begin~!</p>
-<p>With Eve's Words, the Auction Items began to appear. The AmSang auction, for which we had prepared for several days, was now beginning.</p>
-<p>Requested by Cho-mise-meonji-nim: Liz wearing Kujo Kina's Dress, and Liz wearing Seiwa Rieko's Dress~!</p>
-<p>Kina Dress~!</p>
-<p>Seiwa Rieko's Dress was created with prompts only, not lora, so it's a bit inconsistent~!</p>
-<p>Requested by TheDreaming-nim: Kujo Kina Masturbation at a shrine 1. Arousal 2. Tearful Expression~!</p>
-<p>1.</p>
-<p>2.</p>
-<p>The Hand has an Error, but this is the only Illustration with the Gi-roof background fully shown, so I'm uploading it haha.</p>
-<p>Requested by MidNightSKY-nim: Tsukiyo and Alik eating Haembeogeo~!</p>
-<p>Tsukiyo~!</p>
-<p>Alik~!</p>
-<p>Requested by Gojoy-nim: Chapter 23 Gokado Hanako saying goodbye and Chapter 24 Arisu reminiscing about meeting Ryuta</p>
-<p>Hanako</p>
-<p>Arisu</p>
+<p>"...Ah!"</p>
+<p>Seeing the approaching blade, Whisper, who had closed her eyes, intuiting Death, opened them when she felt no Pain. The blade that had pierced the helmet had stopped precariously in front of Whisper's Furrowed Brow. It was positioned so precariously close to the blade that if it had come in a few more millimeters, it would have wounded her Furrowed Brow.</p>
+<p>jjeo-jeok...!</p>
+<p>Whether it was because Whisper let out a small 'Ah' sound or because of the sword strike, the helmet split in half with a jjeo-jeok sound. The helmet disappeared, and instead of a Field of Vision through a visor, a normal Field of Vision came into view. Of course, what was seen first was Kurayamada Kirie, retracting her Sword before her eyes.</p>
+<p>"Now we can have a Conversation."</p>
+<p>Kurayamada Kirie muttered as she retracted her Sword. Conversation? What kind of Conversation was this suddenly...? Whisper was bewildered, but since her life had been saved, she decided to listen to the Story.</p>
+<p>"Th-that's right.... What Story are you trying to tell?"</p>
+<p>At Whisper's Question, Kurayamada Kirie grinned and opened her Mouth.</p>
+<p>"Headhunting." "Headhunting...?"</p>
+<p>Surely it wasn't about cutting off heads and collecting them; it seemed to mean she was trying to recruit her. Kurayamada Kirie smiled as if she knew everything and looked at Whisper.</p>
+<p>"You, you want Revenge on Famine, don't you?"</p>
+<p>Even if there was a precognitive Ability User, how did she know everything...? It was a Secret she hadn't told anyone until now.... Whisper, with a flustered Expression, looked at Kurayamada Kirie.</p>
+<p>-Hooo.... Black Knight found. I will transmit the estimated Position.</p>
+<p>"Ha, was it really true...?"</p>
+<p>Behemoth, Jacob Sterling, who received Whisper's radio message, muttered as if surprised. Whisper insisted that Black Knight would definitely appear at a strange Auction, so he was reluctantly looking around, but he hadn't thought Black Knight would come here. He thought Whisper, bored waiting for Black Knight's appearance, had made an Excuse to participate when an Event like an auction, which only Women would like, occurred. Why would Black Knight participate in such an Auction? Behemoth had expected Black Knight would absolutely not show up at this Auction.</p>
+<p>If Black Knight didn't appear in this Auction commotion as Behemoth expected, he intended to scold Whisper and use this as an Excuse to carry out this Mission as he pleased, so he had quietly followed along. But as Whisper had expected, when Black Knight really appeared, he felt a little regretful. He had planned to wreak havoc, destroying all of New York until Black Knight appeared, but because Black Knight appeared here, he couldn't show New York Behemoth's Power and thought it was a great waste.</p>
+<p>Still, a Mission was a Mission, so Behemoth checked the map Program Whisper had sent. It seemed to have been found somewhere in the northwest of New Rochelle. Although the distance was a bit far, if Behemoth ran at full speed, it would be quick. Perhaps the Reason Whisper herself didn't directly chase Black Knight was because she had gotten into some kind of Quarrel during this Auction commotion. But Whisper's Situation was none of Behemoth's concern. The ganbu of Superior, true to a superpower supremacist terrorist group, thought their own Abilities were supreme, except for Famine, so they weren't particularly close to each other.</p>
+<p>"Keu-heu-heu-heu, Black Knight, huh.... I wonder how strong he'll be, I have high Expectations!"</p>
+<p>Behemoth, who had been laughing lowly for a while, started running towards the Position Whisper had indicated. Buildings flashed past quickly, faster than the speed of a car. After running for about five minutes like that, Behemoth, who arrived at the Position Whisper had indicated, opened his eyes wide.</p>
+<p>"Th-that, what is that...?!"</p>
+<p>A Scene that was utterly incomprehensible was reflected in Behemoth's Field of Vision. Behemoth, who saw that Appearance, muttered lowly.</p>
+<p>"Two Black Knights...?!"</p>
+<p>"Kwaaahhh!!" "Uwaaah! S-save me!!"</p>
+<p>Shimokawabe Airen, due to the Injury she sustained in the Anyaji battle, as if trying to loosen her stiff Body from not being able to move for a long Time, was moving, slaughtering every Enemy she encountered, unlike Taira Ryuta's Party/Group who only fought Enemies at their Points. Considering Shimokawabe Airen's Skill, she had been assigned Points close to the center of the All-Knowledge Fragment struggle, so in many battles, her Opponents were strong, and she was quite satisfied.</p>
+<p>"Michinnyeon...!" "Why in the world are you killing us?!"</p>
+<p>This Time, her Opponents were Magicians. Whether it was due to the magic power of the All-Knowledge Fragment, they had fallen into Madness and were attacking everything around them, but as they died one by one under Shimokawabe Airen's blade, they seemed to have regained their senses and were asking why she was attacking them.</p>
+<p>"It's the same as you. Just as you attack your Surroundings without Reason, I don't really have a Reason either. If I had to give a Reason, it's because there's an Opponent worth fighting in front of me?"</p>
+<p>As Shimokawabe Airen spoke, opening her narrow eyes, the Magicians had no rebuttal either. Because the Road around them was already full of Corpses they had killed. And upon hearing the Reason she finally gave, they realized this Woman was an unreasonable battle maniac.</p>
+<p>"Now that we've also come to our senses...! If we do well, we can win! Everyone, cast your Orders!!"</p>
+<p>The battle with Shimokawabe Airen, a Magician who realized it was an unavoidable Destiny, shouted. Everyone who heard that sound each formed hand seals and cast Orders, unleashing various magic at Shimokawabe Airen.</p>
+<p>-Kashimaki Ichishin-ryu (Kashima Demon One God Way) Kuukanzenmaku (Space Absolute Curtain)</p>
+<p>Shimokawabe Airen, around herself, moved her Sword in a circle as if Drawing. Following Shimokawabe Airen's Sword Path, space split, and a sword curtain was created, blocking the Attacks coming towards Shimokawabe Airen. The numerous magic spells pouring down on Shimokawabe Airen were sucked into another space by the Kuukanzenmaku that Shimokawabe Airen had deployed.</p>
+<p>After Shimokawabe Airen blocked all the Magician's magic, she immediately Charged. She lightly swung her Sword, obliquely cutting down one person's Upper Body, and like flowing Water, she raised her Sword against the next Opponent, also obliquely cutting their Body. Before the blood Vein that gushed from the two Magicians could even touch the Ground, Shimokawabe Airen moved towards the next Magician.</p>
+<p>After accurately stabbing the lungs of one person standing in front, killing them instantly, the blade moved intricately as if Dancing in an instant and cut off the Fingers of the Magician who was forming hand seals. And she flicked the severed Fingers with her Sword at the Magicians who were casting Orders in the rear. The Magicians who were casting Orders, when severed Fingers suddenly flew towards them, were surprised and had no choice but to stop their Orders.</p>
+<p>Shimokawabe Airen, who displayed incredible skill that could only be called a circus act, ignored the Magician whose Fingers she had cut off and passed by, then began to cut down the Magicians in the rear. As the sword light illuminated the alley a few Times and passed, the necks of the Magicians were severed, flew through the empty space for a moment, and rolled on the Ground due to Gravity.</p>
+<p>When all the Magicians except for the one with severed Fingers fell, Silence briefly hung in the alley. What broke the Silence was Shimokawabe Airen's Footsteps.</p>
+<p>jeo-beok, jeo-beok, jeo-beok...!</p>
+<p>As the Footsteps drew closer, the Magician with severed Fingers felt like he would die of Fear. Why was he not killed and just left alone? It couldn't possibly be to kill all the other Magicians and spare only him.</p>
+<p>"Why, why...! Are you not killing me?" "I will kill you. While giving you pain."</p>
+<p>At the Magician's Question, squeezed out with his last bit of courage, Shimokawabe Airen said curtly. It's not that she wasn't killing him. It was just that she wanted to kill him while inflicting pain, so she had spared him for a moment. When Shimokawabe Airen clearly conveyed that meaning, the Magician felt more curiosity than Fear.</p>
+<p>"Why, why in the world?!" "You called me a Michinnyeon."</p>
+<p>At the Question from the Magician who had lost his Fingers, Shimokawabe Airen said calmly. Just for that Reason...? Really, for that Reason, she would cut off all his Fingers and finally kill him painfully? The Magician who had lost his Fingers was dumbfounded. More than anything, the Words "Michinnyeon" were....</p>
+<p>"Th-those Words.... that Guy next to me said them...."</p>
+<p>The Magician who had lost his Fingers pointed with his eyes at the Magician next to him who had died instantly from a lung stab and said, gesturing with his eyes. He wanted to point with his Fingers, but they had already all been cut off by Shimokawabe Airen, so he couldn't point with his Fingers.</p>
+<p>Shimokawabe Airen maintained Silence for a moment, then swung her Sword at high speed, instantly severing the neck of the Magician who had lost his Fingers, then she put her Sword into its Scabbard. As if nothing had happened, her Attitude was calm.</p>
+<p>"To the Points I'm in charge of.... About 250 meters left. A battle or two will probably break out in between."</p>
+<p>As if truly nothing had happened, Shimokawabe Airen was muttering, looking at the map on her phone. Then, with a sharp Expression, she put away her phone and drew her Sword again.</p>
+<p>Ping! Ku-gu-gu-gung!!!</p>
+<p>From the Building next door, a strange sound was heard, then it suddenly began to tilt and started to collapse towards Shimokawabe Airen. Shimokawabe Airen used the Kuukanzenmaku she had just used again, and at the same Time, swung her Sword so fast it was invisible, beginning to cut down the collapsing Building. No matter how much Kuukanzenmaku transferred Attacks coming at her to another Dimension, it couldn't transfer large objects like Buildings.</p>
+<p>Kwa-kwa-kwang!!</p>
+<p>With a tremendous roar, the Building collapsed, and Shimokawabe Airen stood unharmed on the Remains of the fallen Building. And she was glaring at one side, because the Existence that had cut down the Building was standing there. On the crossroads of the Road, that Black Person holding a greatsword was the Man who had cut down the Building with a single Sword strike.</p>
+<p>Home Ec Teacher B-cuts hehe Requested by Chomisaemeonji-nim, Liz in gym Pants with an underboob crop top, Liz in a hoodie with Dolphin Shorts~! Underboob Liz~! Hoodie Dolphin Liz~! The dolphin that hadn't appeared after changing to the new model finally appeared...! kkeuk kkeuk kkeuk For some Reason, it has Liz's cross-shaped pupils hehe</p>

@@ -5,103 +5,86 @@ weight = 832
 chapter = 832
 +++
 
-<p>'Everyone worked hard for a week.'</p>
-<p>On the long-awaited Friday, after all the exams were over, I said to the Students while giving the closing remarks.</p>
-<p>In fact, saying they worked hard was more for myself than for the Students. I was the one who worked hard supervising the exams. Because every hour, I was subjected to hidden camera filming, requests for autographs, or tricks like dropping erasers on purpose and asking me to pick them up. Being too talented is tiring.</p>
-<p>Except for a few special class Kids, they were going to University no matter how they did on the exam (of course, they had to pass the failing grade...), so they didn't feel like they were doing their best on the last exam.</p>
-<p>'Worked hard~☆ I liked that I finished early during the exam period~! Ryuta-jji also liked that he left work earlier than usual, right?'</p>
-<p>'Kyahaha! I also finished early this Time, so I went to the amusement park with my Priests~!'</p>
-<p>Seizawa Shii and Kujo Kina, who were far from studying, said they liked the exam period because they finished early, and were rather disappointed that the exam period was over.</p>
-<p>Those two are really carefree. Kujo Kina even went to the amusement park during the week.... In some ways, it could be said that she was very impressive. No matter what, it was an exam with a cut-off score, but she was boldly going to the amusement park during the week.... It seemed that even Kujo Kina, who wasn't interested in studying, was confident that she would definitely pass the cut-off.</p>
-<p>'Kujo, you might have to take an additional exam if you keep that up?'</p>
-<p>'Kyahaha! This Body is faithful in class, so I'll definitely pass the cut-off~!'</p>
-<p>At my Words, Kujo Kina laughed kyahaha as if she was confident. Passing the cut-off isn't something to be proud of. She's a really persistent Guy. But she seemed to be working hard in class, surprisingly.</p>
-<p>'I was tired~!'</p>
-<p>'I'm glad the exam period is over quickly~!'</p>
-<p>Of course, the special class wasn't just full of Monsters like Seizawa Shii and Kujo Kina, so most Students said they were tired of the exam week.</p>
-<p>However, the special class's top Students, Minamoto Risa, Oofuchi Erika, and Shido Tsubaki, didn't care about the school's regular exams and were just waiting for the Japanese version of the University Entrance Common Test, which was waiting for them this Weekend.</p>
-<p>In fact, this exam would be like a mock exam for those Kids. Especially for Minamoto Risa, who was aiming for Edoda, it would feel like adjusting her Condition.</p>
-<p>Shido Tsubaki and Oofuchi Erika were aiming for Kwantung University, which wasn't as good as Edoda, but was still a prestigious school, and the Shido Family owned some Shares. Kwantung University was considered a prestigious University in Japan because it was funded by several famous Families.</p>
-<p>Of course, because Shido Tsubaki, the daughter of the Shido Family, who owned Shares, and her best friend Oofuchi Erika were almost guaranteed admission, they still had to get a certain score on the University Entrance Common Test.</p>
-<p>When I thought about it, my Yamashiro Ryuta's Status was also made up as a graduate of Kwantung University, so if Shido Tsubaki and Oofuchi Erika passed Kwantung University, I could say they were my juniors.</p>
-<p>I glanced at the Student I was most worried about. It was Alik. He had no basics, and especially the two subjects that Alik couldn't do at all, Japanese classics and math, were a Problem. He barely passed the cut-off on the last exam, so I was worried about how he did on this exam.</p>
-<p>He seemed to have focused on Swordsmanship Training quite a bit, but he didn't seem to have focused on studying. But he was sitting with the same expressionless Face as usual, so I didn't know if he did well or not.</p>
-<p>Of course, if it was me, the Alik Expression-Reading Master, I could tell what he was thinking right now.</p>
-<p>I looked at Alik's Face. Alik also felt my Gaze and looked at me with a jii...! Hmm, I don't know if he did well or not. It just seemed like he wanted to eat Pizza right now. I'll have to check Alik's grades separately later.</p>
-<p>'Anyway, the exam is over today, and there are also Students taking the University Entrance Common Test tomorrow, so I'll finish the closing remarks right away.'</p>
-<p>'Good work, Ryuta-jji~!'</p>
-<p>'Thank you for your hard Work~!'</p>
-<p>'Kyahaha~! Should we eat something delicious to celebrate finishing the exam?'</p>
-<p>As I finished the closing remarks, most of them got up from their Seats, greeted me, and left the Classroom. Sakagami Rena, Otagi Yuka, and other Students who had decided to follow me were also on Vacation today. This was because I had an appointment with Daigo Terue, the Headmaster of St. Francis Girls' academy, today, so I didn't have Time to meet with the Students.</p>
-<p>'Shido, Oofuchi.'</p>
-<p>I called out to Shido Tsubaki and Oofuchi Erika, who were about to leave the Classroom. I threw each of them a Gift Box.</p>
-<p>'This is Korean taffy, and I'm giving it to you as a meaning to pass the exam. In Korea, there's a tradition similar to giving taffy as a gift during important exams. Do well tomorrow, both of you.'</p>
-<p>'Thank you, Teacher!'</p>
-<p>'Yes, ah...Teacher~!'</p>
-<p>The two received the Gift Boxes containing taffy and left the Classroom happily. The last one left in the Classroom was Minamoto Risa, who was still packing her Bag. Seeing her checking if her Friends had left, it seemed like she was preparing to leave slowly on purpose.</p>
-<p>'Are you, did you prepare a gift for me too?'</p>
-<p>'Of course.'</p>
-<p>At Minamoto Risa's Question, I took out a Gift Box and shook it. Minamoto Risa, who had finished packing her Bag, came to the Podium and received my gift.</p>
-<p>'Can I open it?'</p>
-<p>'I gave you the gift, so it's yours now. Do whatever you want.'</p>
-<p>At Minamoto Risa's Question, I nodded. Minamoto Risa opened the Box and took out one of the taffies, which were wrapped in chocolate Size, and put it in her Mouth. And she chewed it for a while, then smiled.</p>
-<p>'It's sweet.'</p>
-<p>'I ordered the highest quality, so it'll be delicious. Originally, it's a bit hard, but I chose a soft, candy-like one...!'</p>
-<p>At Minamoto Risa's Praise, I was bragging about the taffy I had ordered separately when I was attacked. Minamoto Risa suddenly kissed me.</p>
-<p>'Eungh...! Jjop, chueu...! Jjop♥'</p>
-<p>Because someone could have entered the Classroom, the kiss wasn't long. But because of the taffy, the kiss with Minamoto Risa was very sweet.</p>
-<p>'With this, I can take the exam with full power for two days♥'</p>
-<p>Minamoto Risa was saying as if my kiss was a charge. And full power.... It was a Word choice worthy of a Shonen manga maniac.</p>
-<p>'Bye-bye, see you next week~!'</p>
-<p>Minamoto Risa smiled at me once, then said bye-bye, waved her Hand, and left the Classroom.</p>
-<p>'Yeah, bye-bye.'</p>
-<p>I also waved my Hand, took the tablet for faculty, and left the Classroom. I watched Minamoto Risa's Back View running down the corridor for a while, then headed to the Education Preparation Room. The appointment with Daigo Terue was from the afternoon, so I could go Home, have lunch, and prepare.</p>
-<p>'See you at the Testing Ground tomorrow.'</p>
-<p>'Yeah!'</p>
-<p>Shido Tsubaki and Oofuchi Erika parted ways at the school gate. Oofuchi Erika watched Shido Tsubaki's Back View moving away, then ran towards Home. This was because she had received a message from the black market that the Delivery had arrived.</p>
-<p>She knew that Oofuchi Erika's Mother, Daigo Terue, would be leaving work around 2 p.m., but because she didn't know what might happen, she was thinking of running as fast as possible to get the Delivery.</p>
-<p>'Haa, haa, haa... It's here...!'</p>
-<p>Oofuchi Erika, who arrived in front of her Home, said while catching her Breath and opening the Delivery Box in front of her Home. Inside the Delivery Box was a small cardboard Box. Oofuchi Erika took the Box and went Inside the House.</p>
-<p>Oofuchi Erika, who threw her Bag down, opened the Box right away. Inside the Box was a not-so-large 80ml transparent Plastic spray bottle. Inside the spray bottle, a transparent liquid was sloshing around.</p>
-<p>'It arrived properly.'</p>
-<p>Oofuchi Erika smiled as she took the Plastic spray bottle.</p>
-<p>'Heuheung~♪'</p>
-<p>Daigo Terue hummed as she headed Home. Today, she had a Dinner Appointment with Teacher Yamashiro Ryuta after a long Time.</p>
-<p>Of course, for Daigo Terue, it wasn't a Dinner Appointment, but the main thing was to meet around 3 p.m. before Dinner and have an intense Body Conversation.</p>
-<p>Her daughter, Oofuchi Erika, said that she would be doing the final review with Shido Tsubaki's Family until late in the evening for the University Entrance Common Test tomorrow, so there was nothing to stop Daigo Terue and Yamashiro Ryuta's Physical Communication.</p>
-<p>'I'm back...!'</p>
-<p>Daigo Terue, who usually greeted cheerfully when she came Home, froze for a moment when she saw Oofuchi Erika's Shoes neatly placed.</p>
-<p>'She definitely said she was going to study at Shido-yang's House...?'</p>
-<p>It was different from what she expected. The House should have been empty by now. Daigo Terue was curious as to why Oofuchi Erika hadn't gone to her friend's House to study.</p>
-<p>'Mom, are you here?'</p>
-<p>Oofuchi Erika's Voice came from the kitchen.</p>
-<p>'Y-yes. I'm here...!'</p>
-<p>Daigo Terue answered Oofuchi Erika's Words, took off her high heels, and came Inside the House. When she came Inside the House, Oofuchi Erika was smiling and came out of the kitchen with Coffee on a tray.</p>
-<p>'You worked hard during the exam period. Here, your favorite Coffee, Mom.'</p>
-<p>'Yeah, thank you.... But didn't you say you were going to Shido-yang's House?'</p>
-<p>Daigo Terue, receiving the Coffee that Oofuchi Erika gave her, asked in a casual Attitude so that Oofuchi Erika wouldn't feel awkward.</p>
-<p>'I'm going to Tsubaki-jjang's House now. I'm just giving Mom Coffee.'</p>
-<p>That was fortunate. If she had continued to be there, she wouldn't have been able to have a Physical Conversation with Yamashiro Ryuta. Daigo Terue answered, 'Is that so?' and drank the Coffee in one gulp.</p>
-<p>'It tastes different than usual...?'</p>
-<p>'I changed the Coffee beans.'</p>
-<p>'Ah, is that so...?'</p>
-<p>For a Moment, her Vision became slightly blurry. Oofuchi Erika came to Daigo Terue, supported Daigo Terue, and received the Coffee cup.</p>
-<p>'I've been searching the internet for quite a long Time.'</p>
-<p>What was this Child saying? Daigo Terue looked at her daughter Oofuchi Erika, who was smiling in her blurring Field of Vision.</p>
-<p>'Wh-what did you search for...?'</p>
-<p>'Sleeping pills that have no Side Effects and work quickly. Today, I soaked the Coffee beans in those sleeping pills. So the taste will be a little different.'</p>
-<p>Why sleeping pills for me...? Daigo Terue couldn't solve the Question. This was because her Mind was gradually blurring.</p>
-<p>'You'll understand when you wake up. Because this is the only Method for Mom and me to be happy....'</p>
-<p>Those were the last Words of her daughter that Daigo Terue heard before she lost Consciousness.</p>
-<p>Oofuchi Erika B-cut~!</p>
-<p>Requested by Gojoy-nim: Uenozono Karen's usual Attire and Underwear~!</p>
-<p>Her usual Attire is her School Uniform and Idol Clothes ㅎㅎ</p>
-<p>Underwear~!</p>
-<p>It's been a long Time since I've done a Karen Illustration, so I forgot, but her breast Size is set to Large ㅎㅎ</p>
-<p>seungj050-nim requested a Footjob Illustration of Lena and the Home Economics Teacher~!</p>
-<p>Lena</p>
-<p>Home Economics Teacher</p>
-<p>AbsolutelyNonRefundable-nim requested Risa's sleeveless Jeans Armpit &amp; Top Lifting~!</p>
-<p>Starting with the Armpit cut~!</p>
-<p>Top Lifting.... created a bizarre Illustration where there's another Top inside the Top ㄷㄷ</p>
-<p>The only Success...</p>
+<p>With confident steps, Alik returned to the club room, carrying the result of passing the additional Test. As the club room door opened, everyone looked at Alik.</p>
+<p>"Alik~! Did you do well?"</p>
+<p>"Of course, you passed, right?"</p>
+<p>"Our cute Alik, don't get Held Back a Year~!"</p>
+<p>Rushing over, the special class troublemakers asked Alik; they seemed genuinely curious about Alik's result. Since they were constantly lounging around in the club room, it seemed they needed other stimulating stories.</p>
+<p>Alik, who had been staring at his friends for a while with a 'jii' sound, made a V-sign with both hands, showing a Double Peace sign, and everyone rushed over, lifted Alik, and began to toss him in the air.</p>
+<p>"Alik, you did well~!"</p>
+<p>"Congratulations~!"</p>
+<p>It wasn't like he passed a big Test; it was just an additional Test. It wasn't like he won a competition, and I wondered if it was enough to toss him in the air like this, but his friends must care for Alik that much.</p>
+<p>"So, with how many Points did you pass?"</p>
+<p>Naruse Shiyo asked, as if curious. I was curious too. I knew he passed the additional Test, but I hadn't asked with how many Points.</p>
+<p>"Alik, he got seventy-three Points."</p>
+<p>"Oh...!"</p>
+<p>Actually, having received the Test problems in advance from Matsunaga Yuzuki, seventy-three Points seemed a bit low, but it would be strange for a student who scored twenty-something Points on the previous Test to suddenly get a perfect score, so Konoe Akina, who was helping Alik study, seemed to have adjusted it a bit. When I subtly glanced at Konoe Akina, Konoe Akina smiled and nodded, as if confirming my thoughts.</p>
+<p>"Alik, I'm getting dizzy...!"</p>
+<p>Anyway, how long are they going to keep tossing Alik around and playing? In the end, tossing Alik in the air continued until Alik's face turned blue from dizziness.</p>
+<p>In the dark gymnasium, Genba Kiyohira sat alone.</p>
+<p>"It's tomorrow...."</p>
+<p>Genba Kiyohira muttered, looking at the wall. What Genba Kiyohira was looking at was the UMC Unlimited Class Champion Match poster stuck on the gymnasium wall. The poster, showing the current Champion Hunter Herrera and himself, Genba Kiyohira, facing each other, was affixed, announcing tomorrow's Date.</p>
+<p>Genba Kiyohira recalled his first meeting with Takakusaki Gengo, the Master of Anyaji, who was known as the Demonic Fist (魔拳) in the martial arts world.</p>
+<p>Several months ago, after suffering a crushing Defeat in his original Weight class, welterweight, he was in the player's waiting room, blaming himself.</p>
+<p>At the advice of his friend, Taira Ryuta, the problem was that he had collected and learned Fist Technique books from a place called Am-sang. Due to the sudden Style change, he ended up in a half-baked Situation, becoming weaker than before.</p>
+<p>While he was blaming himself alone, suddenly the door opened and a man entered.</p>
+<p>The man who entered had eyebrows raised, and hair like a lion's Mane; he was a man with a fierce Impression. He was wearing a tight black turtleneck and dark gray Suit Pants, and pointed shoes; he looked like a Yakuza.</p>
+<p>"What are you...!"</p>
+<p>He was already Frustrating from losing the Match, and a Yakuza-like guy burst in, so Genba Kiyohira, filled with anger to the brim, tried to shout in irritation. But the shout Genba Kiyohira tried to let out couldn't quite escape his mouth.</p>
+<p>If he were just a Yakuza, Genba Kiyohira could have easily handled him, but this man was no mere Yakuza.</p>
+<p>How large and deeply contoured his Muscles were, even though he was wearing a fairly thick turtleneck, the shadows of his Muscles were visible, and an overwhelming presence, even greater than his Muscles, was suppressing Genba Kiyohira.</p>
+<p>"You're quite resilient."</p>
+<p>As if quite satisfied, the man smiled, looking at Genba Kiyohira.</p>
+<p>"Get up. Let's have a go."</p>
+<p>"Wh-what are you talking about?! I just finished a Match."</p>
+<p>Genba Kiyohira, who had just come from a fierce mixed Martial Arts Match, found the man's Words absurd. But rather, the man seemed to find Genba Kiyohira's Words even more absurd.</p>
+<p>"I know the Reason you lost this Match."</p>
+<p>Saying incomprehensible Words, the man pulled his large Fist behind his Shoulder. In that Moment, Genba Kiyohira felt 'I'm going to die!', a sensation that made all the Hair on his Body stand on end. Without realizing it, he pushed the Chair he was sitting on forward and simultaneously leaped backward.</p>
+<p>KwAAANG!</p>
+<p>With a roar as if a Bomb had exploded, the Chair burst into pieces. The man who smashed the Chair did not stop. Before Genba Kiyohira could even feel Sweet Relief, the second Impact exploded.</p>
+<p>Genba Kiyohira instinctively tilted his Neck to the Side. With a 'hoo-ung!' sound of cutting through the Wind, the flesh of his Sensitive Ear burst open, and Blood gushed out.</p>
+<p>KwAANG!</p>
+<p>This Time, the player's locker was miserably crumpled. He couldn't keep dodging. Genba Kiyohira, as he was, aimed a hook at the man's Side, exposed as he swung his Fist.</p>
+<p>Kuung!</p>
+<p>"Keueut!"</p>
+<p>It felt as if he had struck an iron Shaft. Even though it was a full-power Impact, the man didn't even let out a single moan. Rather, Genba Kiyohira, who had struck the man, let out a moan of Pleasurable Ache.</p>
+<p>But Genba Kiyohira did not give up. Despite the throbbing Pleasurable Ache in his Fists, he began to continuously use the combinations he had learned so far.</p>
+<p>The man neither dodged nor blocked Genba Kiyohira's Fists. Like the Sea receiving the Wind, he received all of Genba Kiyohira's Fists.</p>
+<p>And intermittently, he threw Fists of immense power, making Genba Kiyohira's heart drop. Under the Threat to his life, Genba Kiyohira, whose Sensation was heightened to the extreme, dodged all of the man's Fists by a hair's breadth.</p>
+<p>"Heok, heok, heok...!"</p>
+<p>"Are you done?"</p>
+<p>"Ah, it's not over yet!"</p>
+<p>Genba Kiyohira's heart was pounding 'kung-kwang kung-kwang' as if it would burst, and he was gasping for Breath like in a high-altitude area lacking Oxygen, but at the man's Words asking if he was done, he unconsciously swung his Feet.</p>
+<p>Kwajik!</p>
+<p>Even though Genba Kiyohira's Foot accurately struck his Temple, the man was unharmed.</p>
+<p>"Now you know why you lost today's Match, right?"</p>
+<p>The man, who had received all of Genba Kiyohira's Impact, asked Genba Kiyohira. Genba Kiyohira, at the man's Question, could only nod his Head.</p>
+<p>He had clearly said he did his best in the recent Match, but he still had enough Stamina to fight this man to this extent. The newly learned Martial Arts were not the Problem. Due to self-doubt, he couldn't give his full power, and not giving his full power was the biggest Reason for his Defeat.</p>
+<p>"Wh-who are you?"</p>
+<p>At Genba Kiyohira's Question, the man slowly pulled his mouth towards his cheekbones and smiled. It was a smile full of ominousness, but Genba Kiyohira was looking at this man with wonder.</p>
+<p>"I am Takakusaki Gengo, the Master of Anyaji. I am the man who will make you the UMC Unlimited Class Champion."</p>
+<p>Takakusaki Gengo! Genba Kiyohira knew this man. The name of Fujigasaki Rinka's arch-nemesis, the Fist Saint of this era, was Takakusaki Gengo.</p>
+<p>The Yakuza-like man, Takakusaki Gengo, who had finished his introduction, raised his Fist.</p>
+<p>"Since I've taken your hits so far, you should take one hit from me, too, right?"</p>
+<p>"W-w-wait...!"</p>
+<p>At Takakusaki Gengo's Words, Genba Kiyohira stammered and took a defensive Posture, but he couldn't block the missile-like Fist flying towards him.</p>
+<p>KwAAANG!</p>
+<p>A tremendous roar. Genba Kiyohira had thought that he had been good enough to dodge the Fists by a hair's breadth. But it wasn't so. Takakusaki Gengo had only thrown Fists that he could dodge by a hair's breadth. This Fist now was not an Impact that Genba Kiyohira dared to React to.</p>
+<p>"KwAAAHHH!"</p>
+<p>A Pleasurable Ache as if his entire Body was being completely disassembled! Genba Kiyohira felt as if the Abdomen he had been struck by Takakusaki Gengo had disappeared. Rather, the Abdomen that was struck by the Fist didn't hurt, but a tearing Pleasurable Ache, like a Ripple spreading, continued throughout his entire Body.</p>
+<p>"Keueoheok...!"</p>
+<p>Vomiting what was inside, Genba Kiyohira looked at Takakusaki Gengo.</p>
+<p>"Wh-why on earth did you come looking for me?"</p>
+<p>"There are several Reasons, but I couldn't stand by and watch a guy waste his Talent. If you only find the right Road, just as I said, you can become the UMC Unlimited Class Champion."</p>
+<p>UMC Unlimited Class Champion.... Hearing those Words, Genba Kiyohira's Eyes became hazy. For the past several years, the throne that was only allowed to Fujigasaki Rinka. Did that mean he could sit there? It was a Position he wanted more than anyone, but knowing the Limit of his Talent, Genba Kiyohira had been aiming for the relatively smaller goal of welterweight Champion.</p>
+<p>"The right Road, you say?"</p>
+<p>"Yes, you cannot reach the peak with such childish Play like mixed Martial Arts. What you must learn is this."</p>
+<p>At Genba Kiyohira's Question, Takakusaki Gengo clenched his Fist, as if to show him directly. In that Moment, Genba Kiyohira rubbed his Eyes, wondering if he had seen wrong. Takakusaki Gengo's Fist was tinged with a dark Aura.</p>
+<p>As Takakusaki Gengo swung his Fist towards the scattered Chair, without even a single sound, the Chair was pulverized, leaving no Powder behind.</p>
+<p>"!"</p>
+<p>"Will you follow me? I will lead you to the peak."</p>
+<p>To Genba Kiyohira, who wore a surprised Expression, it was Takakusaki Gengo extending his Hand. The peak.... It sounded incredibly sweet. So Genba Kiyohira unconsciously nodded his Head.</p>
+<p>Requested by Iseibu-nim~! Nae and Nagumo Sian in the front door with a ladle + naked body Apron~!</p>
+<p>Starting with Nagumo Sian~!</p>
+<p>Nae Fitzgerald~!</p>
+<p>Kkiyoooot~!</p>

@@ -5,91 +5,97 @@ weight = 159
 chapter = 159
 +++
 
-<p>Contains explicit content and explicit illustrations! Please be mindful of your surroundings!</p>
-<p>"First, please take off my clothes."</p>
-<p>The Daughter of the Abyss was almost naked, while I was wearing hakama and a haori, so I had to take off my clothes. Still, since it was my first time with the Daughter of the Abyss, I wanted her to take off my clothes for me.</p>
-<p>-I will. May I do it my way?</p>
-<p>The Daughter of the Abyss replied with a slightly playful smile. In an instant, tentacles emerged from the dark, jellyfish-free space and began to undress me. I never thought I'd have my clothes taken off by tentacles. It was an unimaginable experience. The tentacles controlled by the Daughter of the Abyss removed my clothes delicately and swiftly. At this rate, it could do more precise work than hands, couldn't it?</p>
-<p>I also took off the cloth that the Daughter of the Abyss was wearing, which wasn't covering much. Now we were both completely naked. Ever since I first entered this room and saw the Daughter of the Abyss, my dick had been painfully erect.</p>
-<p>Since this was an underwater-like environment, I thought we could try various difficult positions. We stood facing each other and kissed. Then I licked the long neck of the Daughter of the Abyss. At first, she seemed ticklish and said, Ahaha, that tickles , but as I kept licking, she gradually became aroused, twisting her body as if she didn't know what to do.</p>
-<p>-Euhut...! It feels good, my partner...!</p>
-<p>My lips slid down from her neck to her large breasts, heading for the nipples in the center. As I rolled her nipples with my tongue, they hardened, already half-erect.</p>
-<p>-Heuht, no matter how much, heueung♥ you suck...! Milk doesn't come out♥</p>
-<p>For some reason, I was turned on by the Daughter of the Abyss saying that milk wasn't coming out, so I sucked her breasts and stimulated her nipples even harder. Each time, the Daughter of the Abyss trembled, making the person caressing her feel rewarded.</p>
-<p>After being buried in the Daughter of the Abyss's breasts for a while, my lips slid down again, passing over her firm and slender abdomen, heading for her pussy that no one had ever seen.</p>
-<p>As I ran my tongue over the slit, the Daughter of the Abyss shuddered as if she had been electrocuted.</p>
-<p>-Eueung, it feels.... It feels strange. Heartrending.</p>
-<p>Listening to the Daughter of the Abyss's comments, I delved into her pussy with my tongue, and her cute labia minora poked out. As I licked her labia minora, vaginal opening, and Clitoris in turn, she seemed to exceed the standard of pleasure she had experienced until now, reaching her climax with "Ooh, eungooh!"</p>
-<p>As the Daughter of the Abyss reached her climax, something hazy came out of her pussy, blurring the surroundings. But it quickly normalized as it blended into the surrounding water.</p>
-<p>The Daughter of the Abyss enjoyed her climax for a moment, then pulled my body up and showered me with kisses.</p>
-<p>-You are lovely, my partner. I can feel my love for you welling up.</p>
-<p>The Daughter of the Abyss looked at me with eyes that regarded me as something incredibly precious. I felt something warm in my heart from that gaze.</p>
-<p>-Now it's my turn.</p>
-<p>The tentacle hair of the Daughter of the Abyss rose up and bound my limbs. And made me spread my body in a large (大) shape. No, you said love was welling up, so what is this? I was a little embarrassed, but I decided to watch what the Daughter of the Abyss was doing. Curiosity was greater than embarrassment. I wasn't scared because I didn't think the Daughter of the Abyss would harm me after coming this far.</p>
-<p>The remaining tentacles crawled around, finding and stimulating my erogenous zones, and the Daughter of the Abyss took my dick into her mouth. This virgin goddess, who had been searching for a man worthy of her for thousands of years, unexpectedly had excellent fellatio skills.</p>
-<p>"Heueok!"</p>
-<p>Being caressed all over my body and having my dick sucked, I couldn't help but cum in less than ten minutes. It was truly a skill that deserved the saying that my soul was being sucked out.</p>
-<p>-It's rich...! Delicious, my partner.</p>
-<p>The Daughter of the Abyss licked her lips with her tongue and looked at me with seductive eyes. It was as if she was telling me to hurry up and do the next step.</p>
-<p>"Come here."</p>
-<p>I said to the Daughter of the Abyss, opening my arms. The Daughter of the Abyss hugged me without a word. I lifted one of her legs and thrust my dick into the slightly opened gap. As my glans went in halfway, I felt something pushing my dick away.</p>
-<p>It was her hymen. Would the Daughter of the Abyss, this transcendent being, feel pain if her hymen was torn? I was curious about that. I put strength into my hips and waist and kept digging into the pussy of the Daughter of the Abyss to tear her hymen.</p>
-<p>But unlike before, the hymen of the Daughter of the Abyss was not easily torn. It even felt like the pussy of the Daughter of the Abyss was resisting, preventing the dick of a mortal from daring to violate her. The more it was like this, the more I burned. I kept moving my waist back and forth, and on the tenth attack, I tore the hymen of the Daughter of the Abyss.</p>
-<p>At that moment, blue blood gushed out from the pussy of the Daughter of the Abyss. But since the water itself was the deep blue color of the deep sea, it quickly mixed into the surroundings.</p>
-<p>-You are the first human to wound me, my partner.</p>
-<p>As expected, since she was different from humans, the Daughter of the Abyss didn't seem to be in any pain at all. She was just looking at me and smiling. I kissed the Daughter of the Abyss and slowly started moving my waist back and forth.</p>
-<p>The pussy of the Daughter of the Abyss was like a suction cup. It felt like there were suction cups inside her pussy that stimulated my glans and shaft in every spot. It gave me such pleasure that I felt like I would put strength into my butt and drip white fluid at any moment.</p>
-<p>The vaginal fluids of the Daughter of the Abyss were very thick. It was as if such thick vaginal fluids were produced to prevent them from being washed away by the surrounding water during sex. Because the concentration was so thick, the sense of closeness was very high. No matter how I shook my waist, it felt like her pussy was always tightly gripping my dick.</p>
-<p>-Heueut♥ Ahahng...! Heueuung! I love you, my partner....! Haahng♥</p>
-<p>I was glad that the Daughter of the Abyss seemed to be feeling good too, not just me. I became even more invigorated and looked for the Daughter of the Abyss's weak point. But the inside of the Daughter of the Abyss's pussy was all erogenous zones, and she showed a good reaction no matter where I poked. Of course, I also felt good no matter where I poked in the Daughter of the Abyss's pussy.</p>
-<p>-Heuang, heuaht, does it feel good, my partner? Euhuheut...!</p>
-<p>"Yes, I feel like I'm about to cum."</p>
-<p>-Then, haahng! Cum in my deepest, eunghut♥ place. I feel like I'm going to go too!</p>
-<p>"Yes, I'll release my semen in the deepest part!"</p>
-<p>I shook my waist even more violently. The Daughter of the Abyss showed an even more intense reaction to the more violent waist movements. Her moans became louder, and she clung to me even more, not just with one leg, but with both legs wrapped around my waist, crossing her feet in an X and hanging on to me.</p>
-<p>I grabbed the upper part of the Daughter of the Abyss's pelvis like an onahole and shook her up and down.</p>
-<p>-Heungeueut! Euhut!! I'm going, my partner! I'm going♥</p>
-<p>"I'm going too, heueut!! Keuk!"</p>
-<p>As I felt the semen coming up, I put my dick as far inside as possible and pushed the cervix with my glans, ejaculating.</p>
-<p>Boo-euk! Boo-euk! Boo-euk!</p>
-<p>My dick expanded as much as possible and powerfully discharged semen, hitting the Daughter of the Abyss's uterus. It felt like the most powerful ejaculation I had ever had.</p>
-<p>-Heueuahahat!</p>
-<p>The Daughter of the Abyss, along with my ejaculation, arched her back while hanging on to me and tilted her head back, reaching a magnificent climax.</p>
-<p>Jjo-ok! Jjo-op! Jjo-ok!</p>
-<p>Was there some kind of stimulant in the Daughter of the Abyss's saliva? When we kissed, my limp dick started to get angry again.</p>
-<p>-Let's keep going, my partner♥</p>
-<p>After that, I had dozens and hundreds of positions and sex that humans couldn't do with the Daughter of the Abyss. I buried my face in the Daughter of the Abyss's soft breasts and shook my waist, and I entrusted my body to the tentacles controlled by the Daughter of the Abyss, making a mess of her pussy like a dildo.</p>
-<p>I wasn't hungry and I wasn't sleepy. When I ate something like a potion that the Daughter of the Abyss poured into my mouth, I didn't get tired at all and could shake my waist like a machine.</p>
-<p>How long had it been? It felt like hundreds and thousands of hours had passed. When I came to my senses after only having sex mindlessly, the Daughter of the Abyss was looking at me with a benevolent expression.</p>
-<p>-It's time to go now.</p>
-<p>"How much time has passed?"</p>
-<p>-Eternity here is a moment there, and a moment here is eternity there. Not much time will have passed.</p>
-<p>"When can I see you again?"</p>
-<p>When I asked the Daughter of the Abyss, feeling regretful, she smiled.</p>
-<p>-As I said just now, you will be able to meet me after a moment of time has passed.</p>
-<p>The Daughter of the Abyss gave me a final kiss. I closed my eyes and focused on the kiss. And when I opened my eyes, I was in the underground cave of the shrine.</p>
-<p>The lamp that Hangari Muneo had left was still burning brightly. At least, it didn't seem like enough time had passed for all the oil in the lamp to run out.</p>
-<p>Suddenly, what Hangari Muneo said came to my mind.</p>
-<p>-You can stay here for 'a little while' and then come back.</p>
-<p>A little while. It seemed like this was the story that Hangari Muneo was talking about.</p>
-<p>Someone might have thought it was a dream, but the semi-transparent window floating flamboyantly in front of me was telling me that the intercourse with the Daughter of the Abyss, which felt like an eternity just now, was not a dream.</p>
-<p>Mythical Achievement! You have wounded the divine body of the abyssal being [Daughter of the Abyss]. Penetration effect of 10 percent is added to all attack actions. Limit level increases by 1.</p>
-<p>Mythical Achievement! You have destroyed the hymen of the abyssal being [Daughter of the Abyss]! Acquire 5 free stats.</p>
-<p>Legendary Achievement! You have become the partner of the abyssal being [Daughter of the Abyss]! Abyss stat increases by 4, abyss stat efficiency increases, and abyss stat penalty weakens.</p>
-<p>Great Achievement! Your whole body is soaked in the vaginal fluids of the abyssal being [Daughter of the Abyss]. Charm stat increases by 2.</p>
-<p>Great Achievement! Your whole body is soaked in the virgin blood of the abyssal being [Daughter of the Abyss]. Resistance stat increases by 3.</p>
-<p>■■■/ Jin Yongtae/ Taira Ryuta's genitals are soaked in the virgin blood and vaginal fluids of the abyssal being [Daughter of the Abyss]. Trait Golden Pillar evolves.</p>
-<p>Due to prolonged exposure to special circumstances, the skill Golden Pillar Bedroom Arts evolves.</p>
-<p>LEVEL UP!</p>
-<p>Please select a trait.</p>
-<p>Cancelled. The abyssal being [Daughter of the Abyss] bestows a dedicated trait to her partner.</p>
-<p>Acquired the trait Mark of the Daughter of the Abyss.</p>
-<p>How could I think it was a dream in this situation? I leveled up not long ago, but I had sex enough to level up again, so how much did I do? I probably had sex so much that I was sure I had gained some experience even after leveling up.</p>
+<p>There is explicit content! Please be mindful of your surroundings while reading!</p>
+<p>"Don't get mad, just keep doing what you were doing."</p>
+<p>"Okay, Ha-eum...!"</p>
+<p>At my words, Han Yu-gyeong resumed sucking and rolling my balls in her mouth like before. My stiff cock was still hard (it got even harder feeling Ha Ju-yoon's gaze), so Han Yu-gyeong didn't need to warm it up.</p>
+<p>Han Yu-gyeong also sensed that, and after sucking my balls for a bit, she started licking the shaft with her tongue. Han Yu-gyeong opened her mouth while licking the protruding dick tip below.</p>
+<p>"Hngh...! *Tchuuup*, hard and hot."</p>
+<p>I found Han Yu-gyeong, who was commenting while diligently licking, so cute that I decided to return the favor. I put my foot between the thighs of Han Yu-gyeong, who was kneeling and diligently licking me, and started rubbing her pussy with my big toe. She was wearing panties, so I couldn't directly touch her pussy, but I could feel the sensation of her pussy almost perfectly with my toe because of the already present wetness.</p>
+<p>"Haaahng~!! Aandeae, if you do thiiis, hngh! I can't concentrate on sucking Yong-tae's dick~♥"</p>
+<p>Han Yu-gyeong was acting spoiled, as if giving was more important than receiving. That sight made her even more endearing, so I tormented her pussy even more with my toe.</p>
+<p>"Haaht! Haaahng♥ Hnghht...! Feels, hnghht! Gooood, Yong-tae-aaahng♥"</p>
+<p>Han Yu-gyeong's pussy, already as excited as it could be, was dripping wetness through her panties. As I continued to rub on the increasingly slippery panties, Han Yu-gyeong started making an increasingly desperate expression. Han Yu-gyeong quickly reached her climax from my dazzling toe play.</p>
+<p>"Hnghht...! Haaahng! I think I'm gonna cum!!"</p>
+<p>As I kept rubbing her pussy, wetness splattered onto the floor, and Han Yu-gyeong, as if her strength had left her legs, stuck her butt to the ground.</p>
+<p>"Haaah, haaht.... I, I came. Yong-tae, that's too much. I was going to do it for you!"</p>
+<p>"Hahaha, you can do it now, right?"</p>
+<p>I laughed because her complaining after cumming was cute. Han Yu-gyeong nodded at my words and opened her mouth.</p>
+<p>"When we do it now, no foreplay, okay?"</p>
+<p>"Okay. I'll stay still."</p>
+<p>Han Yu-gyeong now opened her mouth wide and swallowed my glans. She sucked on my glans and licked hard with her tongue without rest, which was no ordinary skill. She didn't have this level of skill before, so it seemed like she had practiced with something like a banana. As expected, kids who are good at studying thoroughly do their preparation and review.</p>
+<p>"Keuhht! Feels good."</p>
+<p>I unknowingly moved my butt along with Han Yu-gyeong's sucking and said that, and Han Yu-gyeong, satisfied, made her eyes into crescents and smiled even while sucking my dick. That eye smile is so damn sexy. I got even hornier looking at that face.</p>
+<p>*Tchup tchup tchup tchup*!</p>
+<p>Seeing that I was enjoying it, she got even more excited and sucked my dick greedily, shaking her face back and forth. I couldn't overcome Han Yu-gyeong's skill and felt semen rising from my balls.</p>
+<p>"Heoeok, I'm cumming, keuehk...!"</p>
+<p>*Buuk! Buuk! Buuk*!</p>
+<p>My dick throbbed powerfully and shot out semen, and Han Yu-gyeong moved her Adam's apple, *gulp gulp*, and took in all that semen. The amount was quite a lot, so it was quite admirable that she drank it all.</p>
+<p>"Hehe, I ate it all, did I do well?"</p>
+<p>"Doesn't it taste bad?"</p>
+<p>"I've never eaten anyone else's, so I don't know what Yong-tae's tastes like, but I thought it was okay?"</p>
+<p>Han Yu-gyeong, who said another completely admirable thing that she had never eaten anyone else's, got up from her seat and headed to the bathroom.</p>
+<p>"Let's shower and then do it next."</p>
+<p>"Should we? I sweated a little too...."</p>
+<p>I mostly rode in the car while coming, but the weather itself was hot, so I had sweated to some extent when I was outside for a short time. If I hadn't come yet, I would have done it right away without showering, but since I had just come, I had some reason left, so I decided to shower.</p>
+<p>"I'll shower first."</p>
+<p>"Huh? I was going to shower together...."</p>
+<p>Han Yu-gyeong said she would shower first, so I appealed that I wanted to shower together with a slightly whiny tone, but Han Yu-gyeong spoke with an expression like a big sister scolding her younger sibling.</p>
+<p>"It's because I have something prepared. I'll shower first, and I have something to prepare while Yong-tae showers."</p>
+<p>Ah, she has something like an event prepared. Han Yu-gyeong, seeing me finally understanding, gave me kisses on both cheeks and entered the shower room. While Han Yu-gyeong was showering, I was sitting on the sofa looking at my phone when I received a KakaoTalk message from Ha Ju-yoon, whose number I had just exchanged.</p>
+<p>Ha Ju-yoon: Come to this address tomorrow. I originally rented the set for filming today and tomorrow, but I can't use it for one day because of this drug case, so tomorrow's schedule will be a bit tight, but if you do well, I'll give you a reward.</p>
+<p>It was finally decided for tomorrow. Shouldn't I ask Han Yu-gyeong about this? Ha Ju-yoon was a bit my-pace. Anyway, I agreed to help for one day, so I just need to help tomorrow, right? But what's the reward? Is she going to buy me something delicious?</p>
+<p>The singer we were filming the music video for was Ahn Ha-yeon, a ballad singer, and when I searched her up, her album release date was 5 days away. But they're filming the music video today and tomorrow? Isn't that too late? I got curious and sent a KakaoTalk to Ha Ju-yoon.</p>
+<p>Jin Yong-tae: If you film it tomorrow, will the music video come out right away? When I searched it up, the album release is 5 days away? Isn't that making it too late?</p>
+<p>Ha Ju-yoon: Hehe, cute? These days, AI editing technology is so advanced that once you film the video, it comes out right away on the same day?</p>
+<p>Ah, that's what it was? I felt anew that this place was more futuristic than the world I originally lived in. It wasn't that far into the future, but still, things that were far from my common sense were happening from time to time.</p>
+<p>Moreover, information like AI video editing wasn't even in the original game, so it was fascinating and fun. While I was talking with Ha Ju-yoon, the bathroom door opened. I finished the KakaoTalk and looked at Han Yu-gyeong.</p>
+<p>"I'm done showering. Yong-tae-ya~! Now Yong-tae shower too!"</p>
+<p>"Okay, I'll shower."</p>
+<p>Han Yu-gyeong came out with a large towel wrapped around her body and a towel wrapped around her head and spoke to me. I went to the room where I had put my suitcase, grabbed my underwear, and headed to the bathroom.</p>
+<p>*Swaaaaa*!</p>
+<p>While getting hit by the water pouring from the showerhead, I wondered what Han Yu-gyeong had prepared. She probably prepared something like sexy lingerie.... I was subtly looking forward to it. If I washed up too quickly and went out because of my anticipation, Han Yu-gyeong wouldn't have enough time to prepare, so I washed up slowly and came outside.</p>
+<p>"Yu-gyeong-a...."</p>
+<p>Han Yu-gyeong was standing in front of me with a slightly flushed face. Han Yu-gyeong was wearing a school uniform. A white shirt, a tie, a black skirt, black stockings, and even shoes, she was waiting for me in that state. The atmosphere was different from the Japanese school uniforms I usually saw on the street, so I got even more excited.</p>
+<p>"It's the school uniform I wore when I was in high school...."</p>
+<p>You sly bitch...! She's determined to completely deplete my semen. I couldn't hold back and rushed at Han Yu-gyeong. Han Yu-gyeong slightly avoided my touch and asked me with a sly smile.</p>
+<p>"Hehe, do you like it?"</p>
+<p>"Yeah, it's super sexy and pretty!"</p>
+<p>"Really? I'm happy."</p>
+<p>Han Yu-gyeong, like a skilled bullfighter, teased me even more by talking to me as I rushed at her head-on.</p>
+<p>"Since I'm wearing this anyway.... Should we do a short role-play?"</p>
+<p>Is she talking about role-playing? Han Yu-gyeong will obviously be the student, so what should I do?</p>
+<p>"What should I do?"</p>
+<p>"Hmm.... Yong-tae, be my tutor. Until I was in high school, my family was poor, so I couldn't go to academies or have private tutoring. I want Yong-tae to be my first tutor♥"</p>
+<p>Did she develop a strange fetish because she was poor during her school days? Or does she just like role-playing? I don't know, but I nodded and decided to become Han Yu-gyeong's first and last tutor. It's funny when I think about it. Me, with an intelligence stat of 4, teaching Han Yu-gyeong, who has an intelligence of 15.</p>
+<p>I put on my clothes, grabbed some notes, and went to the room where Han Yu-gyeong was waiting. Han Yu-gyeong smiled and greeted me when I entered.</p>
+<p>"Hello, *ssaem*! You're a bit late today?"</p>
+<p>"Uh-huh, sorry, the bus was late...."</p>
+<p>I took on the role of a tutor who is a college student with no immunity to girls, with a different image than usual. I sat next to Han Yu-gyeong and looked at the test paper in front of her. Hmm.... I don't understand anything. As expected, taking on the role of a tutor doesn't make me smarter, so to my eyes, the white was paper and the black was just letters.</p>
+<p>"I finished my homework, *seonsaengnim*. Please take a look."</p>
+<p>"Yeah, Yu, Yu-gyeong probably got everything right. You did well...."</p>
+<p>I tried my best to embody a nerdy engineering student, trembling my hands and stroking Han Yu-gyeong's hair. Han Yu-gyeong made a moan, as if she felt good without realizing it when I stroked her hair.</p>
+<p>"Haaht!!"</p>
+<p>"Wh, what's wrong?"</p>
+<p>"No! Your touch feels so good...."</p>
+<p>"Ah! Sorry.... Did I touch you for too long?"</p>
+<p>Unexpectedly, I seemed to be good at acting while doing role-playing. Han Yu-gyeong was also good at acting because she was the daughter of the actress Ha Ju-yoon, and it's funny to evaluate myself, but I didn't seem bad either.</p>
+<p>"Then please look at me solving this problem."</p>
+<p>"Okay, try solving it...."</p>
+<p>There were solutions and answers in the notes I brought, so I could tell whether what Han Yu-gyeong was solving was correct or incorrect. When did she prepare all this? Ah, right! Han Yu-gyeong is tutoring, so she used that material.</p>
+<p>"Yeah, this one is good. This one is wrong.... 95 points! Your skills are improving? Good job, Yu-gyeong-a."</p>
+<p>"Hehe, it's all because of what *seonsaengnim* promised."</p>
+<p>"The promise I made?"</p>
+<p>Han Yu-gyeong was puffing out her cheeks and making a sulky expression when I asked back. She looked like a real prim high school student, so I almost kissed her without realizing it. This is subtly arousing.... My dick was already sticking out of my pants to the point where it was noticeable, so it was a bit embarrassing.</p>
+<p>"No~! *Ssaem* said that if I get over 90 points on the monthly test, you'd grant me one wish~!"</p>
+<p>"Ah, right. I said that, didn't I? Wh, what's your wish?"</p>
+<p>Han Yu-gyeong got up at my question, walked to the door, and locked it. Then she went to the bed and lay down as she was. And while lying down, she opened her mouth with a seductive smile.</p>
+<p>"Please make me a woman, *Seon*. *saeng*. *nim*♥"</p>
+<p>You're already a fucking hot woman.... I don't need to say that out loud. I approached Han Yu-gyeong while acting until the end.</p>
 <p>--------</p>
-<p>Illustration of the Daughter of the Abyss.</p>
-<p>A sitting pose worked on with a different model than the previous episode.</p>
-<p>Equipped with fluorescent nipple patches.</p>
-<p>Daughter of the Abyss with suction cup nipple patches.</p>
-<p>Mermaid-like Daughter of the Abyss.</p>
-<p>Tight dress Daughter of the Abyss.</p>
-<p>Black dress Daughter of the Abyss.</p>
+<p>Han Yu-gyeong's school uniform pictures that were made but rejected</p>
+<p>Originally, I made the bare legs first.</p>
+<p>Hoo, bare legs are good too.</p>
+<p>I also made a version with a school uniform jacket, but since it was summer....</p>
+<p>There is also an illustration with a jacket in the black stockings version, but it was rejected for the same reason.</p>
+<p>Rejected because the bed was too small. White socks on top of black stockings were also pretty good ㅎㅎ</p>

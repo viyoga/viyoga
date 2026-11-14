@@ -5,93 +5,78 @@ weight = 206
 chapter = 206
 +++
 
-<p>-Fufu, I'll look forward to your request. I wonder what kind of request it will be....</p>
-<p>At Nagumo Sian's playful words, I also smiled slightly. I wondered if Nagumo Sian would still be smiling or be flustered when she received my request. Anyway, I should tell her about calling the Seryu-tai kids, which was the purpose of the call. Because I can't delay any longer.</p>
-<p>"Ah, and I'd like Seryu Military Company to support the Kakunodate attack."</p>
-<p>-They already departed when I spoke with the East Weapon representative earlier. It's a short distance, so they'll arrive soon.</p>
-<p>They're leaving right away; their agility is impressive. Maybe Sawayanagi Azuma's precognitive abilities allowed her to prepare in advance. No, seeing that they left immediately, it seems she's indeed coming here using her precognition.</p>
-<p>I want to ask Sawayanagi Azuma when this war will end. If the war doesn't end soon, Yukiko will get sulky because we can't go out and play, and it'll be hard to appease her.</p>
-<p>"Then I'll contact you again with good news."</p>
-<p>-Okay, just don't get hurt. We'll also respond based on the situation, so let's keep each other informed if anything comes up.</p>
-<p>"Yes, be careful not to get hurt too, Nuna-nim."</p>
-<p>After ending the call with Nagumo Sian, I took off my clothes to put on the cyber suit that Mimata Chieri brought. Mimata Chieri was visually licking my body like a lecherous old man. This won't do. I need to establish discipline on the bed later.</p>
-<p>"They said the Seryu-tai side left right away?"</p>
-<p>"Kakunodate and Daisen are much closer than Akita City, so they'll arrive in twenty-five minutes."</p>
-<p>Then I should prepare quickly and leave in thirty minutes.</p>
-<p>"Did you tell the East Weapon soldiers to prepare?"</p>
-<p>"Yes, I told them when I took Sunbae-nim's cyber suit earlier."</p>
-<p>Then I can leave right away without needing to gather them separately. I was about to take off all my clothes and put on the cyber suit when Mimata Chieri subtly approached me. Her expression was strange and she seemed to be craving something.</p>
-<p>"Sunbae-niim...."</p>
-<p>"There are only twenty minutes left? There's no time for that...."</p>
-<p>Could she possibly be suggesting sex with only twenty minutes left? Mimata Chieri chuckled at my words.</p>
-<p>"Do you think I'm such a pervert that I'd suggest doing it even in this situation?"</p>
-<p>"Well...!"</p>
-<p>"Ah, Sunbae-nim!"</p>
-<p>Mimata Chieri shouted, about to yell because I couldn't answer immediately. Seeing her wronged expression, it didn't seem like she approached me for anything lewd.</p>
-<p>"Then what's the matter?"</p>
-<p>"Do you know that Sunbae-nim has become a huge star now?"</p>
-<p>"Huh? What am I...!"</p>
-<p>Ah, right. I filmed a music video. The news even reached Japan.... Seeing Mimata Chieri's slyly teasing expression, it seemed she definitely watched the music video. I opened my mouth to make excuses in a hurry.</p>
-<p>"A friend's mother is an actress, and the other actor got arrested for drugs, so I was urgently asked to fill in; I couldn't help it."</p>
-<p>"So, did you kiss your friend's mother?"</p>
-<p>I did more than kiss. Of course, there was no need to tell Mimata Chieri every detail, so I didn't say anything. Mimata Chieri's face was already red, seemingly very excited that I kissed Ha Ju-yoon.</p>
-<p>"Hey, Sunbae-nim."</p>
-<p>"Heeuung.... Friend's mom...♥ Sunbae-nim is a pervert♥"</p>
-<p>"Hey, it was just filming, okay?"</p>
-<p>She didn't seem to be listening to me anymore, so I sighed and put on the cyber suit. It was the same suit I wore before, so it fit perfectly. I decided to put on the helmet later and turned on the tablet PC that Mimata Chieri handed me with the suit to review the data until the Seryu-tai people arrived.</p>
-<p>The map showed the Kakunodate area. Since they'll probably be monitoring the road from the building near the post office, Kakunodate is a town in the Senboku area, not a city, so it's a place where low buildings continue along the road. There were only one- or two-story buildings, so it seemed difficult for Kurotsukido to monitor from afar.</p>
-<p>Still, since all the troops from Akita City are being deployed, it'll be impossible not to get caught. Anyone would notice if numerous transport vehicles drove in a row with their lights on late at night.</p>
-<p>"Sunbae-nim, they said the Seryu-tai people have arrived."</p>
-<p>"They came quickly?"</p>
-<p>I was studying the terrain while looking at the tablet PC when Mimata Chieri, who had regained her senses, received a call from a soldier at the base entrance and told me.</p>
-<p>Only fifteen minutes have passed; how fast did they drive? As I put the tablet down and stood up, the tent door opened and Sawayanagi Azuma entered. Sawayanagi Azuma saw me, ran over, and hugged me. It's been a while since I hugged a woman, so Johnson is trying to react a bit.</p>
-<p>"Investor-nim! I missed you~!"</p>
-<p>"Azuma-ssi, have you been well?"</p>
-<p>Was it a bit much to ask if she's been well? She must have only been fighting for the past six days while I was gone. Whether my worries were unfounded, Sawayanagi Azuma nodded with a bright expression.</p>
-<p>"Yes! The president of Taira Foods praised us for doing well~! We also recaptured Yurihonjo City and defended well when the enemies attacked Daisen City."</p>
-<p>Well, they recaptured a city and carried out several missions with only 10 people, so they couldn't help but receive a good evaluation. Certainly, if this war ends in victory, both Seryu Military Company and East Weapon will gain quite a bit.</p>
-<p>"If this operation is successful, you'll receive an even better evaluation. And...."</p>
-<p>"And?"</p>
-<p>"If you succeed in this operation within two days, I'll grant you one request. Of course, something I can do."</p>
-<p>"R-really?"</p>
-<p>When I said I'd grant her a request, Sawayanagi Azuma's eyes lit up and she asked again. Seeing that, Mimata Chieri ran over to my side, dododo.</p>
-<p>"Sunbae-nim! What about me?"</p>
-<p>"Giving Sunbae-nim a request ticket is a bit scary, though?"</p>
-<p>"Sunbae-nim!!"</p>
-<p>"Just kidding. I'll grant Sunbae-nim a request too. Keep in mind, it's a request ticket if you succeed within two days."</p>
-<p>"Yes~!"</p>
-<p>"Two days should be enough."</p>
-<p>At my words of two days, Mimata Chieri excitedly raised her hand and answered, and Sawayanagi Azuma closed her eyes for a moment and said it seemed enough. She probably confirmed it with her precognition; does that mean it'll be decided within two days? Then that's good for me since my schedule won't be delayed.</p>
-<p>Well, Sawayanagi Azuma probably won't make a big request, and Mimata Chieri will probably ask me to show her how I have sex with other women. The two of them were already distracted by the request ticket I mentioned, pulling my arm and telling me to leave quickly.</p>
-<p>"Tobe-ssi and I will be at the forefront. The remaining Seryu-tai members can deal with the enemies using their respective strengths. If East Weapon attacks when Tobe-ssi and I create chaos at the front, you'll be able to win even if you're outnumbered."</p>
-<p>"Then Sunbae-nim will have to ride in the same transport vehicle as the Seryu-tai side?"</p>
-<p>"I have to go with Tobe-ssi, so I have to go together."</p>
-<p>It was convenient in many ways to be with Seryu-tai since I needed to draw aggro at the front with Tobe, who has the steelification ability. Mimata Chieri seemed disappointed that we hadn't spent much time together since I returned from Korea, but it couldn't be helped.</p>
-<p>"I understand. Don't get hurt, Sunbae-nim!"</p>
-<p>"Sunbae-nim, you're the one who shouldn't get hurt."</p>
-<p>After a brief farewell, Mimata Chieri went to command East Weapon, and I boarded the transport vehicle that the Seryu-tai people were in. It was originally a vehicle that was divided into two cars, but it was a large armored vehicle that could accommodate everyone, probably newly received.</p>
-<p>"We received it as payment instead of money for the lab mission back then. The armor is really good, it can carry a lot of people, and it can carry a lot of luggage, so it's great."</p>
-<p>Ah, the lab recapture mission was a mission commissioned by Taira headquarters, so they were able to receive compensation right away.</p>
-<p>"Investor-nim!"</p>
-<p>"Did you come to help us?"</p>
-<p>"We saw it! The music video Investor-nim was in!"</p>
-<p>"Oh! Movie Star!"</p>
-<p>Ah.... The music video must have already spread to Japan. Only Sawayanagi Tobe and Sawayanagi Sinya, who didn't seem very interested in music videos, didn't seem to know, and most of them seemed to know that I was in the music video.</p>
-<p>I watched it when the music video first came out and haven't seen it since; how much of a hit was it? After greeting everyone, I sat in an empty seat. Everyone boarded the vehicle and we departed for our destination, Kakunodate. I spoke to Sawayanagi Azuma, who was sitting across from me.</p>
-<p>"Does Seryu Military Company not accept new recruits?"</p>
-<p>"New recruits?"</p>
-<p>"Yes, during my trip to Korea this time...."</p>
-<p>I told them about the children I bought in Kraskino. Everyone perked up their ears and listened to my story, and when I asked if it would be okay to have about four talented boys and girls join Seryu Military Company, everyone agreed.</p>
-<p>Since the people of Seryu Military Company are much more familiar with ability users than ordinary people, they seemed to agree right away.</p>
-<p>"They're not from the same experimental background as us, but they've all gone through difficult times, so we'll take good care of them."</p>
-<p>"What kind of abilities do they all have?"</p>
-<p>When Sawayanagi Azuma nodded, saying she would take good care of them, Sawayanagi Seari, who was sitting next to her, asked me with curiosity.</p>
-<p>"One has the ability to change their body like Tobe-ssi, but that kid can change their body into rock."</p>
-<p>"Hmm...!"</p>
-<p>Sawayanagi Tobe snorted, seemingly a bit excited that a junior with a similar position to him was appearing. The more tanks there are, the more stable the team is, so if they train well, it would be good for Seryu Military Company as well.</p>
-<p>"One is a regeneration ability user, and one has clairvoyance. The last one is an electricity ability user."</p>
-<p>Everyone I mentioned had decent abilities, so the Seryu-tai people all had welcoming expressions. In fact, they're the kind of people who would smile and accept them even if their abilities weren't great, so they were probably just happy to welcome a new family member.</p>
-<p>If I keep picking up (?) ability users like this, Seryu-tai might become the best PMC in Japan. I really hope that happens. It would be a very gratifying thing as an investor.</p>
-<p>----</p>
-<p>Kakunodate Location</p>
-<p>It's a crucial strategic point in the current war situation!</p>
+<p>After I gave Yukiko the ring, she completely turned into a dere-dere character and stuck to me like glue. Smiling brightly while sitting on my lap was the default.</p>
+<p>"Hehe...!"</p>
+<p>Tch!</p>
+<p>She looked at the ring with an inscrutable smile, then hugged me and kissed me on the cheek.</p>
+<p>"I smell like meat, so I'm going to wash up."</p>
+<p>"Then let's wash together. I'll scrub you♥"</p>
+<p>I couldn't keep holding Yukiko outside, so I got up to wash and said we should wash together even when washing. We went into the bathroom together, and she kept hugging me in the tub, not wanting to let go.</p>
+<p>And while scrubbing her, she grabbed my dick from behind with her soapy hands and gave me a handjob. The soft feeling of Yukiko's big breasts pressing against my back, combined with her slippery, foamy hands stroking my dick up and down, was truly paradise.</p>
+<p>Because the situation was so pleasant, I couldn't resist and soon shot my semen forward like a water gun. Seeing me shoot, Yukiko gave me a motherly smile and said, "You feel refreshed, don't you? Good job. Good job," while patting my head (nadenade: stroking).</p>
+<p>"Now that I'm all clean, hug me in bed♥"</p>
+<p>Of course, after washing up, we went to the bedroom and had sex led by Yukiko. Yukiko, having received the ring and awakened(?), craved me with tremendous passion and love. I poured my semen into Yukiko's vagina and uterus until it overflowed, and even though I marked her face and body with my semen to show that she was mine, she still wanted my dick.</p>
+<p>"Haaah! No more...!"</p>
+<p>"I'm gonna cum, Yukiko-ssi!"</p>
+<p>"Hyaaah! Haaang!"</p>
+<p>But no matter how much we tried to continue, stamina is finite. Yukiko eventually fainted from the continuous orgasms. I checked on Yukiko, worried that something might be wrong, but she was breathing evenly and sound asleep.</p>
+<p>I straightened Yukiko's position, covered her with a blanket, and quietly got out of bed to wash myself. My whole body was covered in vaginal fluids and semen, so I took a shower, got dressed, packed the necessary items, and went outside. I started having sex at 9 PM, and it was already 2 AM. The moon was in the night sky, and only the sound of waves crashing on the quiet sandy beach could be heard.</p>
+<p>I walked towards my destination, feeling the lukewarm breeze of the summer dawn sea. My destination was the seemingly very solid concrete building at the end of the beach that I had seen during a walk with Yukiko before lunch. I slowly walked and stood at the entrance of the concrete building.</p>
+<p>"Let's see...."</p>
+<p>The door opened with a password. As the coast was owned by the Taira family, this place was also owned by the Taira family. It was a building created for doing various secret things while on vacation, and the inside was structured similarly to a prison.</p>
+<p>Mimata Chieri told me about this place and lent it to me to use during this trip with Yukiko.</p>
+<p>BEEP BEEP BEEP!</p>
+<p>I entered the password, opened the unlocked steel door, and entered the building. The inside of the building was dark. I pressed the button next to the door to turn on the lights and went down the stairs.</p>
+<p>Going down, there was a room for interrogation, and leaving the interrogation room, there were four rooms made of iron bars. Dang Sohwa and Yang Seol-hui were in two of those rooms, respectively. What I had ordered Ryuta to do was to bring Dang Sohwa and Yang Seol-hui to this building. He did a great job. It seemed that the steel box that contained Dang Sohwa had been recovered. Mimata Chieri probably asked for it back.</p>
+<p>Perhaps because the lights were on, the two of them were looking at me. Yang Seol-hui was looking at me with a blank expression, not knowing what she was thinking, and Dang Sohwa was glaring at me with an expression that showed she wasn't intimidated at all.</p>
+<p>"You! You're the guy who defeated me!"</p>
+<p>"Yeah."</p>
+<p>"If you won, why are you imprisoning me instead of killing me? I won't be swayed by persuasion, so just kill me!"</p>
+<p>Is she some kind of knight captured by orcs? 'Kuh, kill me!' and all that. I ignored Dang Sohwa's words and put a loaf of bread in each of Yang Seol-hui and Dang Sohwa's cells. I hadn't been providing them with much food, so I brought bread in case they starved to death. There was a sink with a faucet on the wall, so they could drink enough water, so bread should be enough.</p>
+<p>"Let's talk after you eat first. You're both hungry, right?"</p>
+<p>Dang Sohwa held the bread and glared at me, but when she noticed Yang Seol-hui looking at her before eating the bread, she said, "Tch!" and tore open the bread bag and put it in her mouth.</p>
+<p>"Since we're going to die anyway, it's better to eat before we die. Seol-hui, you eat too!"</p>
+<p>"Yes, Captain...."</p>
+<p>At Dang Sohwa's words, Yang Seol-hui kept tearing small pieces of bread and eating them with a vacant expression. It was a somewhat contrasting scene compared to Dang Sohwa, who was eating large chunks at a time. I waited for both of them to finish eating before speaking.</p>
+<p>"You don't need to be loyal to Kurotsuki, do you? Why don't you just come under me instead of throwing your lives away in vain?"</p>
+<p>I don't know how loyal Dang Sohwa is to the Black Moon Society, but that loyalty probably isn't high enough to risk her life.</p>
+<p>"I have no loyalty to the Black Moon Society (黑月堂). I just wanted to take the Black Moon Society into my own hands.... Now that I've been defeated by you like this, my dream is over. So kill me."</p>
+<p>Ah, it seemed that Dang Sohwa wanted to overthrow the Black Moon Society, which was ruled by the Ha and Yang families, and become the new boss. Even if I let her go, Dang Sohwa, who doesn't have the backing of the Ha and Yang families, would never be able to become the head of the Black Moon Society with such a big label of defeat.</p>
+<p>Thinking about it, even in the game, Dang Sohwa would disappear from the Black Moon Society after a certain point, or she would become the head of the Black Moon Society with a very slim chance. So that's what it was. If Dang Sohwa's coup failed, Dang Sohwa would die and disappear, and if it succeeded, she would become the boss of the Black Moon Society.</p>
+<p>Dang Sohwa's success in the coup is only about once in 100 times, but it was quite impressive that she succeeded even with such a low probability without any foundation.</p>
+<p>"So you're saying kill you?"</p>
+<p>"Yeah."</p>
+<p>"I don't want to."</p>
+<p>"Even if you forcibly make me your subordinate, I will poison and kill everyone around you! Can you still just let me go without killing me?"</p>
+<p>Dang Sohwa frowned like a demon and shouted at my refusal. It's quite a scary threat....</p>
+<p>I guess I have to make her completely obey me. I silently approached Dang Sohwa and opened the iron bars.</p>
+<p>As expected, a kick flew at me immediately. Dang Sohwa's kick was weak because I had barely fed her for a few days to weaken her. There was an aura of poison energy at the tip of her foot, but poison was meaningless to me, and the kick was so weak that I just had to dodge it.</p>
+<p>I ducked my head and dug deeper inside to avoid Dang Sohwa's kick, and Dang Sohwa, as if she had been waiting for it, gathered green energy on her index finger and stabbed towards my face. As expected of Dang Sohwa, who took the position of head of the Northeast Asia branch of the Black Moon Society by force, she seemed to have anticipated that I would dodge and used this combination technique.</p>
+<p>Dang Sohwa's finger technique was aimed at the most vulnerable part, the eyes, but I had already closed my eyes at that moment, filling my eyelids with the abyss, so I was able to deflect Dang Sohwa's finger.</p>
+<p>"As expected of the man who beat me! You're pretty good!"</p>
+<p>Dang Sohwa hadn't healed her internal injuries well and hadn't eaten much, so she was weak, but she was very excited that I had blocked her trick well. It was a reaction worthy of a battle maniac.</p>
+<p>I had no intention of assaulting Dang Sohwa. I just wanted to make her my loyal subordinate. I reached out and tore off Dang Sohwa's clothes, which were almost like a bikini.</p>
+<p>"Y-you! What are you doing?"</p>
+<p>"I'm going to make you listen to me."</p>
+<p>"What kind of woman listens just because you take off her clothes!!"</p>
+<p>That's true. But water (vaginal fluids) always knows the answer. I approached Dang Sohwa, pinned her down by force, and started fondling her breasts. Dang Sohwa screamed loudly, probably feeling quite humiliated by being subdued and having her breasts fondled.</p>
+<p>"Kuh! Just kill me!"</p>
+<p>"Kill you? I'll make you feel good."</p>
+<p>I replied like a villain to Dang Sohwa, who was saying the same thing as a captured knight again, and this time I grabbed Dang Sohwa's protruding nipples.</p>
+<p>"Stop it! Don't touch the Captain!"</p>
+<p>Yang Seol-hui, who was diagonally across to the right, shouted at me for harassing Dang Sohwa, but I wasn't going to stop just because I heard that.</p>
+<p>Rather, I grabbed Dang Sohwa's jaw and pulled it, as if to show Yang Seol-hui, and kissed Dang Sohwa. Dang Sohwa struggled and tried to bite my tongue, but she couldn't achieve her goal because I was holding her jaw tightly, and her mouth was violated by my tongue.</p>
+<p>"Is this your first kiss? Your reaction is a bit stiff?"</p>
+<p>"Kuh! You were holding my jaw! I was going to show you my skills if you weren't holding it."</p>
+<p>She was going to cut off my tongue if I wasn't holding her jaw, but she's good at talking. I continued to fondle Dang Sohwa's breasts, and this time I sucked on them, ttsup ttsup.</p>
+<p>Perhaps because she had mastered poison techniques, Dang Sohwa's sweat tasted slightly different. A faint herbal smell? Or maybe she's deliberately using poison techniques to kill me and is giving off poisonous sweat.</p>
+<p>"Your sweat tastes different? Are you using poison?"</p>
+<p>"Yeah, if you keep sucking on my body, your stomach will melt! You better stop?"</p>
+<p>Nope, no way. It's just sweat with a unique taste to me. Since it tastes like herbal medicine, maybe it's good for my body because of the placebo effect?</p>
+<p>"Then let's see if I die first or if you feel pleasure first."</p>
+<p>I continued to lick and suck on sensitive parts such as her breasts, nipples, earlobes, and neck to stimulate Dang Sohwa, and Dang Sohwa concentrated and used poison techniques to produce poisonous sweat. But as her body gradually warmed up and it became difficult to concentrate, her sweat gradually began to taste normal.</p>
+<p>"Heuht...!"</p>
+<p>I gave a bitter smile as I saw Dang Sohwa widening her eyes and biting her lip, surprised by her own moan.</p>
+<p>"It seems like I won?"</p>
+<p>"Kuh! I didn't bet anything anyway, so I have nothing to give you!"</p>
+<p>Dang Sohwa shouted with a flushed face at my words. Well, it doesn't matter if she doesn't bet anything. She will dedicate everything to me during this trip.</p>

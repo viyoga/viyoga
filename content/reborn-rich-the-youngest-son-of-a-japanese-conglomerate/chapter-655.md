@@ -5,93 +5,79 @@ weight = 655
 chapter = 655
 +++
 
-<p>After sharing sexual intimacy with Simyeonui ttal, who had possessed Urabe Konoka's body three times since morning, it was almost lunchtime. After the sex, I asked Simyeonui ttal what I had been curious about.</p>
-<p>"But you said you'd been watching me for the past few days. Why were you so quiet?"</p>
-<p>"Fufu, I thought I should at least give my priestess some space to think about her own ego. If I had descended while she was struggling like that, it would have only increased her confusion. It was best to stay still."</p>
-<p>Ah, she was staying still to give Urabe Konoka time to sort out her own feelings. Our Simyeon Mama is quite the generous god, after all.</p>
-<p>"This child saw your face at the inn on the island and fell in lo... Ah, you told me not to say that? Understood. My priestess."</p>
-<p>It seemed Urabe Konoka, deep down, was embarrassed and trying to stop Simyeonui ttal. But I already heard everything, you know? She was already smitten with me - that's new information.</p>
-<p>"I've lost several priestesses because of my overwhelming spirit, so I'm always careful. You and my priestess don't need to worry. It's inevitable that you'll be influenced by me, but if you have a firm grasp on yourself, there won't be any major problems."</p>
-<p>Simyeonui ttal has been served by countless priestesses for countless years, so she seems to have accumulated a lot of know-how. She said there wouldn't be any problems, so I guess I don't need to worry too much.</p>
-<p>"Thanks to that waiting, I was able to see my partner and priestess doing it, so I guess you could say I'm lucky."</p>
-<p>"I-is that so?"</p>
-<p>It didn't seem like Simyeonui ttal had any feelings of jealousy. Or does she just not consider humans worthy of jealousy? Anyway, she said she was lucky to see me doing it, so I wondered if Simyeonui ttal also had voyeuristic tendencies. She'd get along really well with Mimata Chieri-ssi, wouldn't she?</p>
-<p>"Partner. Thanks to you giving me the Avatar of the Sunken One, I was able to take another step forward. Thanks to that, I can help you even more than before. I'll grant you any wish you have."</p>
-<p>Even if you suddenly tell me to say what I want, there's nothing in particular... Ah, there is one thing. I should ask about the armor I got from the Naruse family. I was going to ask her to combine it with the bracelet on my wrist since I can't wear armor twice.</p>
-<p>"I recently obtained armor with the Simyeon attribute. I'd like you to combine it with this bracelet."</p>
-<p>"I can do that much for you easily. Ask for something else."</p>
-<p>Another request... Even if Simyeonui ttal has become stronger, she wouldn't be able to grant a wish like killing Taira Ichiro and Jiro and making me the master of Taira. Simyeonui ttal had told me before that doing such a thing, which would have a huge impact on this world, would give other transcendent beings a chance to intervene. If that happened, the world could be destroyed in an instant, so I had to make a reasonable request.</p>
-<p>What kind of useful request wouldn't have too much of an impact on the world...? Hmm, or should I try to reduce something that makes me uncomfortable rather than getting something beneficial?</p>
-<p>"Then... can you reduce the side effects of Simyeon?"</p>
-<p>Simyeon is an incredibly destructive force, but if the Simyeon stat exceeds the Will or Resistance stat, there are major side effects that transform the mind and body. In fact, my Will and Resistance have always been higher than Simyeon, so I've never felt any side effects, but I've always had a fear of not being myself.</p>
-<p>"Hmm, that request... I can only do something about one of the side effects, either mental or physical. The transformation of the mind and body by Simyeon is like a law, so even with my current power, I can't solve both."</p>
-<p>Ah, I see. It's quite scary that being changed by Simyeon is like a law of nature. So, which should I choose, mental or physical...?</p>
-<p>After a moment of deliberation, I made a decision.</p>
-<p>"Make it mental."</p>
-<p>I chose mental because my Resistance stat was already at its limit break, so I had plenty of leeway. I was also more afraid of mental transformation than physical transformation.</p>
-<p>"Okay. It might hurt a little, but bear with it."</p>
-<p>At the same time as Simyeonui ttal's words, my vision went dark. And when I opened my eyes, I saw the face of Simyeonui ttal in the form of Urabe Konoka, smiling as if to say it was all done.</p>
-<p>"It doesn't hurt at all?"</p>
-<p>She said it might hurt a little, but it didn't hurt at all. Was Simyeonui ttal trying to scare me? Simyeonui ttal just smiled slyly at my question.</p>
-<p>"Now, let's go see the armor you mentioned."</p>
-<p>"Shall we?"</p>
-<p>At Simyeonui ttal's words, I changed my clothes and grabbed my phone...? Huh? Why is it already 4 PM? I didn't understand. I did have morning sex with Simyeonui ttal, but we were talking before lunchtime. So why is it 4 PM?</p>
-<p>"I knocked you out for a while because you were in so much pain, so don't be surprised."</p>
-<p>"Oh, really?"</p>
-<p>Simyeonui ttal explained when I was confused. She said I was in so much pain that I almost harmed myself several times, so she knocked me out until the work (?) was finished.</p>
-<p>My Resistance stat, which has a pain-reducing effect, has broken through its limit, and my Will stat, which allows me to endure even when it hurts, is also very high, but if I was hurting myself to that extent, how much did it hurt? It seemed that the little pain Simyeonui ttal was talking about was synonymous with so much pain that it was like attempting suicide by human standards.</p>
-<p>"You might be confused, but let's go out first. I heard they want us to vacate by 5 PM, even though I extended the time."</p>
-<p>Ah, that's right. Originally, we were supposed to check out after lunch, but we stayed until 4 PM, so I had to pay an extra fee. I left the inn room, paid the extra fee at the counter, and got in the car.</p>
-<p>"Are you still confused, partner?"</p>
-<p>"Actually, I was just surprised that so much time had passed when I blinked, so I'm not that confused. I was a little surprised in the inn room, but I don't remember being in pain, so I don't feel confused or anything."</p>
-<p>I was just surprised that hours had passed when I blinked. It wasn't like I was thinking, "Who am I? Where am I?" Simyeonui ttal had carefully (?) knocked me out, so I didn't have any pain anywhere.</p>
-<p>"Fufu, that's good then. Now, let's check your changed abilities."</p>
-<p>Simyeonui ttal knows that I have the ability to see the status window, so she must be telling me to look directly and see how it has changed.</p>
-<p>I turned on the status window and carefully checked my stats. At first, it seemed like nothing had changed, but when I looked closely, one of my traits had changed slightly.</p>
-<p>◆Simyeonui ttal's Brand [Unique Legacy+ Trait]</p>
-<p>A brand left by Simyeonui ttal on her partner. The maximum Simyeon stat increases by 3, you become immune to Simyeon's mental transformation, and the penalty for physical transformation is weakened. Simyeonui ttal is constantly watching you. As long as you have the brand, you cannot escape Simyeonui ttal.</p>
-<p>Simyeonui ttal's Brand was an existing trait, but it was upgraded from Unique Legacy grade to Unique Legacy Plus grade, and I gained immunity to mental transformation. Originally, the description was "weakened Simyeon penalty," but it seems that the description was changed to "weakened physical transformation penalty" as the mental side became immune.</p>
-<p>Hmm, good. It seemed like I could invest a little more in Simyeon now. Of course, I'll also raise my Will stat as much as I use telekinesis, but it was nice that I didn't have to match Will and Simyeon, so there was less to worry about.</p>
-<p>"Then I'll go home."</p>
-<p>"Let's do that. Before that, let's stop by the convenience store...."</p>
-<p>"And buy some sweets?"</p>
-<p>Simyeonui ttal's face flushed as if she was a little embarrassed to be getting sweets. That gap is cute after all. I drove to the convenience store in the middle and bought about 30,000 yen worth of sweets such as ice cream, bread, candy, and jelly. Simyeonui ttal looked very satisfied because I said I would send them all to where Simyeonui ttal is with the tribute magic circle later.</p>
-<p>I returned to my house, opened the box sealed by the Naruse family's onmyoji, and showed her the armor entangled in tentacles. Simyeonui ttal put her hand on her chin and looked at it seriously.</p>
-<p>"This wasn't made by my influence. It's more like my father's side...."</p>
-<p>Ah, it's not Simyeonui ttal's. If Simyeon made it, it wouldn't be impossible to combine it with my bracelet, would it?</p>
-<p>"But it's still a Simyeon item, so I can combine it. Give me the bracelet I gave you."</p>
-<p>I took off the bracelet that I had been wearing without ever taking it off and handed it to Simyeonui ttal. The part where I wore the bracelet was white because it hadn't been tanned.</p>
-<p>"Fufu.... I see you've been wearing it well♥"</p>
-<p>"Who gave it to me? I've been wearing it without taking it off."</p>
-<p>Simyeonui ttal, who had absorbed the Avatar of the Sunken One and become stronger, combined the armor and bracelet into one in an instant. Was she really that strong?</p>
-<p>"Fufu.... Didn't I say earlier that I could do this much easily? I can do this much for my partner anytime."</p>
-<p>"I'll keep wearing it without taking it off again."</p>
-<p>The bracelet's design had changed slightly, and there was a subtle engraving of cephalopod tentacles coiling around it. As I was looking at it closely, the options appeared in front of me, so I checked how it had changed.</p>
-<p>◆Simyeon Husband's Combat Equipment [Legendary Armor]</p>
-<p>Equipment in the form of a bracelet made with love by Simyeonui ttal. When a certain amount of Simyeon is infused, it transforms into black armor that covers the entire body. It was made by reforging the armor worn by the Death Knight and the Simyeon armor with Simyeon pressure.</p>
-<p>It has powerful defense and additional performance for Simyeon.</p>
-<p>When wearing armor</p>
-<p>●Very powerful defense.</p>
-<p>●When defending against all attacks, the Simyeon stat is added to the Resistance stat for calculation.</p>
-<p>●The efficiency of the Simyeon stat is greatly increased, and the coefficient of Simyeon-based skills is increased.</p>
-<p>●Simyeon+8 Strength+5 Agility+5 Nerve+5</p>
-<p>●Immune to Simyeon stat physical transformation side effects while wearing armor.</p>
-<p>Oh...! It didn't change much, but the defense description changed, and more stats were added. Like the trait earlier, the original option was immunity to Simyeon side effects while wearing armor, but now that I'm already immune to mental side effects, there was no need to have immunity to mental side effects, so it seems like they only made it immune to physical transformation side effects and increased the other options. Of course, there were no options when it was equipped in bracelet form without transforming into armor like before, but this was still quite good.</p>
-<p>"I'll really use it well."</p>
-<p>"Fufu, it's about time to wake up Urabe, so let's eat something sweet for the last time."</p>
-<p>"Shall we? What do you want to eat?"</p>
-<p>While eating the sweets I bought at the convenience store, I shared stories with Simyeonui ttal that I hadn't been able to share.</p>
-<p>"It's about time I returned my body to my priestess. I have something to say before I go back."</p>
-<p>"What is it?"</p>
-<p>"Send me three sets of your photo cards too, partner."</p>
-<p>"Ah...."</p>
-<p>She said she had been watching quietly for a few days, so she must have known about the photo cards that were included with the club's magazine. At Simyeonui ttal's request, I smiled awkwardly and nodded.</p>
-<p>"Yes. I'll send them to you first."</p>
-<p>"Fufufu♥ I should send one set to my father."</p>
-<p>Simyeonui ttal is sending my photo card set to Simyeon...? My daughter's partner? He's going to jump out of the Pacific Ocean and cover Japan with a tsunami, isn't he? That's pretty scary.</p>
-<p>"That's a little scary. Can't you not do that?"</p>
-<p>"Fufufu♥ I'm just kidding."</p>
-<p>When I asked her to refrain from making such jokes, Simyeonui ttal didn't answer and returned her body to Urabe Konoka and returned to Simyeon. Is she going to keep making dad jokes?</p>
-<p>____</p>
-<p>Simyeonui ttal SD after a long time</p>
-<p>I don't think I've ever had her wear the St. Francis Girls' Academy uniform before, so I had her wear it hehehe</p>
+<p>,Haaam~! What's the topic of today's meeting?</p>
+<p>Takakusaki Athena, dressed in light clothing, stretched and yawned as she sat at the round table.</p>
+<p>"You're late. Punctuality is a basic human virtue."</p>
+<p>The large, red-haired man, Kaishu Kakan, scolded the slightly late Takakusaki Athena.</p>
+<p>"Kakan, stop it. It's not like Athena-nim will listen no matter what you say."</p>
+<p>The pale-skinned, white-haired man, Kokubo Shiratsu, said with a sneer. Kokubo Shiratsu and Takakusaki Athena seemed to have a bad relationship, glaring at each other and growling.</p>
+<p>"Don't call me by my first name as you please, Kokubo. It gives me the creeps."</p>
+<p>"Well, your last name is the same as our master's, so I can't help it. I want to curse you out, but if I say your last name, it feels like I'm cursing out our master."</p>
+<p>Kukuku...! As the auras of the two Anya Organization's Four Heavenly Kings clashed, the air trembled and the objects in the room began to shake.</p>
+<p>"Stop it...!"</p>
+<p>The last of the Four Heavenly Kings, Funayama Seigo, said, dissipating their energy. Funayama Seigo, a slit-eyed glasses-wearing man with a friendly smile, still possessed the skills befitting one of the Anya Organization's Four Heavenly Kings.</p>
+<p>"It's fine if you two fight, but let's finish the meeting first."</p>
+<p>"Hmph.... Kokubo, watch yourself."</p>
+<p>"You're the one who shouldn't be late."</p>
+<p>Even after being told to prioritize the meeting over their squabble, the two continued to bicker, so Funayama Seigo sighed softly and ignored their argument before opening his mouth.</p>
+<p>"First, our 'sucker' gave us good information. The fact that there's a disciple of Kamiken (God Fist) at St. Francisco Girls' Academy."</p>
+<p>Kamiken referred to Fujigasaki Rinka, the best martial artist in Japan. Of course, the Four Heavenly Kings gathered here did not think of Fujigasaki Rinka as the best martial artist in Japan, but rather considered their master, Takakusaki Gengo, to be the best martial artist.</p>
+<p>"We can inflict the pain of losing a disciple on Kamiken."</p>
+<p>Kokubo Shiratsu muttered at Funayama Seigo's words. If there was an outstanding martial artist who opposed them, one of the Anya Organization's methods was to kill those close to that martial artist to inflict pain.</p>
+<p>"I don't like it. Whether it's Kamiken or someone else, shouldn't we just crush them head-on? I don't really like harassing people around them."</p>
+<p>Takakusaki Athena pouted and voiced her opposition. Takakusaki Athena had been wandering all over Japan under the pretext of traveling because she didn't like the Anya Organization's method of doing anything for victory.</p>
+<p>"Doing anything for victory is the belief of our master, and all of us."</p>
+<p>Kaishu Kakan said quietly. Even Kaishu Kakan, who silently trained himself and was sincere about the martial arts themselves, was saying this because their views on victory all came from their master, Takakusaki Gengo. Because the Anya Organization followed Takakusaki Gengo almost like fanatics, Takakusaki Athena remained silent. She knew that even if she spoke, their thoughts would not change.</p>
+<p>"If we talk about that, it'll get long again, so let's skip it. According to the 'sucker', they'll be visiting Kinui Tachio's dojo this Friday. We were going to deal with Kinui Tachio anyway, and Kinui Tachio was trying to get back our disciples that he accepted, so it's a good opportunity to solve several problems at once."</p>
+<p>"What are the skills of that Kamiken disciple? How much force should we send?"</p>
+<p>Kaishu Kakan asked at Funayama Seigo's words. The skills of Kamiken's disciple were an important issue. It was a situation where a second Kamiken could emerge.</p>
+<p>"Why are you even asking that? If it's a young Kamiken disciple, they must be a student, so even if they've mastered Shinkaiyatsude, we can beat them with our pinky finger."</p>
+<p>Kokubo Shiratsu said with a nonchalant expression, picking his ear. Shinkaiyatsude, the martial art of Kamiken's school, was not so shallow that a mere high school student could grasp its essence. The Anya Organization also knew this well, as they were also learning a martial art derived from Shinkaiyatsude.</p>
+<p>"They're not a student."</p>
+<p>Funayama Seigo said at Kokubo Shiratsu's words. Everyone looked at Funayama Seigo with expressions that said, What are you talking about? Weren't we told that Kamiken's disciple is at St. Francisco Girls' Academy?</p>
+<p>"Kamiken's disciple is a teacher at St. Francisco Girls' Academy."</p>
+<p>"A teacher? Even if they're a young teacher, they must be at least twenty-four years old, so there's not much age difference with Kamiken, is there? How did they become a disciple?"</p>
+<p>It was an incomprehensible matter. They didn't know when they had a grown-up disciple, or what the disciple's skills were, so the other three, except for Funayama Seigo, seemed confused.</p>
+<p>"Their name is Yamashiro Ryuta. They've been a Korean language teacher at St. Francisco Girls' Academy since September of this year. It's presumed that this Yamashiro Ryuta is the one who eliminated Kujo Kina's Rampage Factor, which we had marked."</p>
+<p>"If they can eliminate the Rampage Factor, then they must have some skill."</p>
+<p>Kokubo Shiratsu, who had been picking his ear and speaking nonchalantly until just now, was now speaking with a serious expression. Being able to eliminate the Rampage Factor meant that they could properly handle the Abyss, so they were not to be underestimated.</p>
+<p>"There's one problem."</p>
+<p>"Besides the fact that Kamiken's disciple is quite useful, is there any other bad news?"</p>
+<p>"Shimokawabe Airen-ssi will also be visiting that day."</p>
+<p>Everyone fell silent for a moment at Funayama Seigo's words. Shimokawabe Airen-ssi didn't have a title like Kamiken, but she was famous as a skilled martial artist, so they became quiet for a moment.</p>
+<p>"Hmm.... Our current forces are ambiguous. Neither Kinui Tachio nor Shimokawabe Airen-ssi are opponents to be underestimated. And there's even Kamiken's disciple, whose skills we don't know yet."</p>
+<p>Kaishu Kakan said with a cautious attitude. Of course, the four Anya Organization's Four Heavenly Kings could somehow handle it. However, Kaishu Kakan was of the opinion that there should be no damage in battle, so he took a cautious approach as the opponent's forces were not easy to deal with.</p>
+<p>"If you're worried, we can just increase our forces."</p>
+<p>Kokubo Shiratsu said to Kaishu Kakan and Funayama Seigo as if telling them not to worry.</p>
+<p>"The two Guardians and our master are busy right now and can't help us, so can we increase our forces? The Anya Organization's general martial monks won't be of any help."</p>
+<p>"Even if our master and the Guardians can't help us, we can borrow strength from outside. We have experts affiliated with the dojos we've merged with, and if necessary, we can hire mercenaries."</p>
+<p>Kokubo Shiratsu said as if it were simple, in response to Kaishu Kakan's expression of difficulty. Certainly, there were experts from martial arts schools that the Anya Organization secretly controlled, and they could hire mercenaries with the money they had collected from various illegal activities.</p>
+<p>"I'm against mercenaries who use guns. Don't forget that our Anya Organization is a martial arts group, Shiratsu."</p>
+<p>"Hehe.... There are quite a few mercenaries who don't use guns. I heard that there's an assassin in Miyashi who only kills people with his bare hands, so we can borrow their strength. If we try them out and like them, we can recruit them to our side."</p>
+<p>"If they don't use guns, I won't object."</p>
+<p>Kaishu Kakan nodded at Kokubo Shiratsu's words. He had taken it to mean that they would hire a martial artist. Killing people with bare hands. Isn't that what martial arts are?</p>
+<p>###</p>
+<p>Dark night. After school, Seizawa Shii had dinner with Minamoto Lisa and opened her mouth excitedly on the way back.</p>
+<p>"It's been a while since we went to a ski resort together, hasn't it, Lisa-tan?"</p>
+<p>"We went together in middle school, so it's been a few years."</p>
+<p>Today's club activity was a discussion about which ski resort to go to. Seizawa Shii wanted to go to a place like Jungfrau in Switzerland if possible, but due to the short schedule and the fact that all the special class students had some trauma from their recent graduation trip, it was decided to go to a ski resort in Japan.</p>
+<p>"Actually, I didn't think it would take this long to choose a ski resort."</p>
+<p>"It couldn't be helped because everyone wanted to eat different local foods."</p>
+<p>There were ski resorts in each region of Japan, but each region had its own specialty foods, so it took quite a while to choose one. After several discussions, it was decided to go to a ski resort in Nagano Shiga Kogen.</p>
+<p>It was decided based on the opinions that there were hot springs nearby and that they wanted to eat Sanzoku-yaki (Nagano Prefecture's fried chicken dish) or horse meat sashimi.</p>
+<p>"Shii...."</p>
+<p>Minamoto Lisa opened her mouth cautiously. She had something to ask Seizawa Shii. Minamoto Lisa knew the true nature of what Seizawa Shii called her part-time job.</p>
+<p>Seizawa Shii had told her that she was working as a troubleshooter and assassin under the alias Ogre. Because Seizawa Shii had her own principles even while doing such work, she wasn't too worried that her friend would change.</p>
+<p>What Minamoto Lisa was about to ask Seizawa Shii was an assassination request to kill someone, and she was wondering if it was okay to ask her best friend, Seizawa Shii, to do this.</p>
+<p>But because it was an important matter to her, she decided to ask Seizawa Shii, whom she trusted the most, and called out to Seizawa Shii.</p>
+<p>"Huh? Ah! Just a moment...."</p>
+<p>Seizawa Shii reacted to Minamoto Lisa's call, then saw her vibrating phone, showed her palm, and answered the phone.</p>
+<p>"Yes. So, you want me to take care of the person who kidnapped the child? Please send me the details by email. I'll check the email and decide whether to take the job. Yes, yes. Okay, I understand."</p>
+<p>From the sound of it, it seemed to be a request. Seizawa Shii hung up the phone and put it in her pocket, saying, Ah, sorry, sorry.</p>
+<p>"So, Lisa-tan, what did you want to say to me?"</p>
+<p>"It's nothing. Was that a work call?"</p>
+<p>"Yeah, I have to rescue some kids on Friday."</p>
+<p>Is that so? Minamoto Lisa replied, pretending to be calm, and repeated to herself that there was still a lot of time left.</p>
+<p>___________________</p>
+<p>Athena B-cut!</p>
+<p>I made it several times because the stretching didn't come out well hehehe</p>

@@ -5,82 +5,83 @@ weight = 115
 chapter = 115
 +++
 
-<p>"The hotel made a mistake and only booked one room. They said there are no rooms left, so I just came in for now."</p>
-<p>At my words, Suzuki Chisami staggered and got up from the bed, coming towards me. Her expression was full of displeasure, which didn't bode well.</p>
-<p>"You can't even handle something like this...! The only thing you were born with is that great bloodline, shouldn't you at least be good at booking hotels?"</p>
-<p>Suzuki Chisami poked my chest with her index finger and started to berate me in a shrill voice. Did she not just hear me? I said it was the hotel's fault, not mine! It seemed she was so drunk that she was interpreting my words in her head the way she wanted to hear them.</p>
-<p>After being poked in the solar plexus a few times with her finger-gun, I started to get annoyed. I wasn't in my usual state either, having drunk enough with my colleagues to make them pass out for a while, so my reason for suppressing myself was weakened.</p>
-<p>Tak!</p>
-<p>I grabbed Suzuki Chisami's wrist as she tried to poke me again. Suzuki Chisami glared at me with a 'what do you think you're doing?' look. I also stared back at Suzuki Chisami with a 'so what?' look.</p>
-<p>"Stop it. You'll regret it if you go any further."</p>
-<p>That was the limit of my reason. I didn't know how I would explode if Suzuki Chisami provoked me one more time. Suzuki Chisami shook off my hand and poked my chest with her index finger once more. And with a queen-like smile, she said to me.</p>
-<p>"How are you going to make me regret it? You're just an employee... Kyaak!"</p>
-<p>I pushed Suzuki Chisami straight onto the bed. Already drunk, Suzuki Chisami fell weakly onto the bed. Suzuki Chisami glared at me as she lay there. Even in that hateful glare, there was a primal fear of being alone in a room with a man.</p>
-<p>"I told you you'd regret it, didn't I?"</p>
-<p>"Let go of me! I'll kill you!"</p>
-<p>I grabbed Suzuki Chisami's chin. Suzuki Chisami desperately struggled, hitting and pinching me. Because of Suzuki Chisami's desperate movements despite being drunk, we ended up tangled together on the bed.</p>
-<p>As I blocked Suzuki Chisami's pinching and hitting, we somehow ended up in a very lewd position. Of course, if I pinched and hit her, Suzuki Chisami would die instantly, so I only blocked her to avoid causing a fatal accident. Perhaps it was because of the adrenaline from the fight, or perhaps she was excited from hitting me, but Suzuki Chisami's nipples were erect even through her shirt and bra.</p>
-<p>Me? I was, of course, fucking hard too. If a healthy man spent almost twenty minutes rubbing bodies with a woman on a bed, it was only natural for him to get an erection, even if he had no feelings for her.</p>
-<p>Suzuki Chisami continued to struggle, unaware that she was excited. "Let go! Let go!" she kept moving, and I suppressed her with my body to stop her from making a fuss. Then, Suzuki Chisami, who luckily freed one arm, slapped me on the cheek.</p>
-<p>This bitch...! My reason momentarily snapped. When I came to my senses, I was tearing Suzuki Chisami's hymen with my dick and roughly power-piston-ing her.</p>
-<p>"Ah, no~!! Don't, I hate it, I hate it! Get off!"</p>
-<p>"What do you mean no? You fucking bitch!"</p>
-<p>Suzuki Chisami was saying "Dame dame!" in Japanese, and I was cursing in Korean while moving my hips.</p>
-<p>Suzuki Chisami's clothes were already torn and stripped off, revealing only her glossy brown skin. Perhaps it was because we were already having sex, but Suzuki Chisami's brown skin looked very sexy.</p>
-<p>"You, you...! I'll make you pay for this!"</p>
-<p>"I'll make you take those words back before the day is over."</p>
-<p>"Shut up, I'll never take them back, aahng! Ung... Eup!"</p>
-<p>Suzuki Chisami seemed surprised by the moan coming from her own mouth. Until just now, she had been burning with anger towards me due to the pain of her hymen being broken, but now that I could feel the fluids slowly coming out of her pussy, I sensed that pleasure was gradually rising.</p>
-<p>Suzuki Chisami's pussy was getting hotter and hotter. The temperature inside Suzuki Chisami's vagina, which I felt from my dick, was gradually rising. Unlike when I forcibly tore her hymen, Suzuki Chisami's pussy was chewing on my dick and responding to my hip movements. As expected, her body was honest, unlike her mouth.</p>
-<p>"Ooh-hot...! Ung, eungeuht!!"</p>
-<p>As a virgin, Suzuki Chisami had no tolerance for pleasure. She tried to suppress her moans, but perhaps because of that, she made somewhat comical moaning sounds.</p>
-<p>"Oook...! Don't do it.... Heuek! Ung... Hut!"</p>
-<p>The "Don't do it!" from before was different, a weak "Don't do it...." I couldn't feel any will to break free from me at all.</p>
-<p>"Apologize, you bitch! Apologize!"</p>
-<p>"N-no way! What do I have to apologize for! To you... I won't lose to the likes of you!"</p>
-<p>"Is that so? Then I'll do this!"</p>
-<p>Peok! Peok! Peok! Peok!</p>
-<p>I changed my position to the so-called mating press position, the flexed position, and moved my hips as roughly as possible, strongly pressing on Suzuki Chisami's uterus.</p>
-<p>"Heueeut~ Ooh-oht! Never, heueup...! Eunghut...! Never ever♥ will I do it!"</p>
-<p>Suzuki Chisami was surprisingly resilient. But my sex stamina was strong enough to handle more than ten people, and the night was still long.</p>
-<p>"Eueuk.... I'm cumming!"</p>
-<p>"No, no, no...! Not insideee~!! Hia-eu-eung!!"</p>
-<p>As befitting the name mating press, I sprayed my Semen into Suzuki Chisami's uterus in the deepest position. Semen was discharged with a gurgling sound, and Suzuki Chisami shuddered each time, accepting the Semen of the man she hated.</p>
-<p>"Is it.... over now? Then let me go now!"</p>
-<p>"Who said it's over?"</p>
-<p>After staring blankly at the ceiling after the internal ejaculation, I bound both of Suzuki Chisami's hands, which were trying to push me away, with one hand and started moving my dick, which was still stuck in Suzuki Chisami's Pussy, again.</p>
-<p>"Heueung...! Men are supposed to be done after cumming once...! Hya-euht! Why is it still hardeeht?"</p>
-<p>Yeah, not me. The movement became even smoother because of the Semen filling Suzuki Chisami's insides. Perhaps that's why Suzuki Chisami's moans sounded sweeter than the first time.</p>
-<p>"Heueung...! Eunghut! Heueut! Heueheung!"</p>
-<p>"Do you feel like apologizing now?"</p>
-<p>"Heueeeung never...! Never will I apologiizeaahng...! I won't do it♥"</p>
-<p>I covered Suzuki Chisami's mouth with my mouth to stop her from saying any more bad words that she would never apologize. If I gave her pleasure from above and below, she would become more obedient. At first, Suzuki Chisami was surprised when I kissed her and tried to bite me, but when I moved my hips violently, she lost her strength and couldn't do that either. Thanks to that, my tongue was able to caress Suzuki Chisami's mouth as much as I wanted.</p>
-<p>"Eung.... Chup, chu-up...! Heueut...! I hate it, kiss-I hate it...! Chu-up...!"</p>
-<p>Seeing Suzuki Chisami sucking my tongue as much as she wanted while saying she hated it with her mouth, I realized that her capture was not far off. I started developing Suzuki Chisami's entire body with kisses on her lips, persistent caresses on her breasts with my hands, and piston movements with rhythm below.</p>
-<p>"Heueeung! Heung, I hate it.... I'm strange, ha-eut!! I hate it! I hate changing strangelyyoo...!"</p>
-<p>Suzuki Chisami also seemed to realize that her body was gradually succumbing to pleasure. And exactly four hours later.</p>
-<p>"Heehee♥ I'm sorry! Ooo-heung! I'm sorrry, Chisami is going to break down like thiseeot!!"</p>
-<p>Suzuki Chisami, who was covered in Semen not only in her Pussy but all over her body, was already a slave to the pleasure I gave her. She had fainted from pleasure for three hours and I had forcibly woken her up three times, and after only replenishing her with water in between and continuing to touch her entire body including her Pussy, she had suddenly turned into an obedient puppy.</p>
-<p>"Clean my dick with your mouth."</p>
-<p>"Yeees♥ Haup...! Oop, oo-heup!"</p>
-<p>Until four hours ago, Suzuki Chisami was a virgin, so everything was still awkward except for being taken. Even now, she was doing fellatio instead of cleaning my dick, and even the fellatio was extremely awkward. Still, this awkwardness had its own charm.</p>
-<p>"That's enough. Now sit next to me."</p>
-<p>"Yeehee."</p>
-<p>"Are you mine now? Got it?"</p>
-<p>"That's...!"</p>
-<p>She didn't answer immediately, as if she hadn't completely surrendered to the depths of her heart yet. I grabbed Suzuki Chisami's breast. I touched her elastic breast and flicked her nipple.</p>
-<p>"Ha-eut!"</p>
-<p>"This nipple too...."</p>
-<p>And then I lowered my hand and rubbed her clitoris.</p>
-<p>"Eung, heueut!"</p>
-<p>"This Pussy too...."</p>
-<p>And then I grabbed Suzuki Chisami's cheeks with both hands and started kissing her. Suzuki Chisami passionately mixed her tongue with mine, the complete opposite of trying to bite my tongue earlier.</p>
-<p>"Chu-up♥ Chu-beup chup, oo-heup...!"</p>
-<p>I took my lips off and looked straight into Suzuki Chisami's eyes.</p>
-<p>"And you are mine too."</p>
-<p>"Yeehee.... I am Ryuta-nim's."</p>
-<p>Suzuki Chisami answered with a dazed look and a happy smile.</p>
-<p>------------</p>
-<p>Suzuki Chisami before getting drunk and picking a fight with the protagonist</p>
-<p>Suzuki Chisami whose clothes were torn by Ryuta who lost his mind.</p>
-<p>Suzuki Chisami after training completion</p>
+<p>,Kyaa~! What?"</p>
+<p>Mimata Chieri, who was covering her chest and screaming slightly, seemingly surprised by the sudden psychokinetic nipple attack, asked back as if she didn't understand.</p>
+<p>,I knew there were espers... I didn't know Sunbae-nim had psychic powers."</p>
+<p>,Have you seen other espers besides me, Sunbae-nim?"</p>
+<p>,Hmm... three? One was a target, and two were TAIRA agents."</p>
+<p>Ah, I see. Since Mimata Chieri is an agent, she must have many opportunities to meet espers. By the way, three people, I wonder what their abilities are?</p>
+<p>,What were the abilities of those three?"</p>
+<p>,One of the TAIRA agents was a telekinetic like you, Sunbae-nim, and I don't know the details of the other, but I think it was a physical psychic ability. The target was an esper who could erase his appearance and presence, and I dealt with him after he was caught stealing information from the TAIRA Group with that ability."</p>
+<p>I see. Should I meet that telekinetic esper later and learn some know-how? I don't know if they'll meet me, though.</p>
+<p>,Anyway, what does Sunbae-nim being an esper have to do with Seryu Military Company?"</p>
+<p>,More than half of the 10 people at Seryu Military Company are espers. Even if Seryu Military Company's debt of 135 million is added to the acquisition funds, it's still a profitable contract."</p>
+<p>Mimata Chieri nodded brightly at my words. Even a weak psychic ability can be used in countless tactical ways depending on how it's used, and above all, psychic agents are not resources that can be cultivated just because you want to. Espers themselves were rare, and combat agents with psychic abilities were even rarer, so hiring costs were quite high.</p>
+<p>Of course, since it's the early days of espers appearing, the market price hasn't been formed yet, so Seryu Military Company is experiencing management difficulties, but soon an incident will occur and the existence of espers will be known to the world, and Seryu Military Company's financial situation will improve as well.</p>
+<p>,Ah, I see! Then that changes things. How much is the budget you're thinking of?"</p>
+<p>,Originally, I was thinking about 5 billion yen... But looking at the state of the office, I can set it much lower."</p>
+<p>,With 5 billion yen, you could buy ten of these small businesses, you know?"</p>
+<p>I didn't know they were operating in such a shabby place either. Seeing this shabby two-story office, I could understand why Seryu Military Company was cost-effective for the youngest son of a mega-corp. He probably just wanted to make a lot of money by doing multiple cheap jobs and escape from that office. Since I've prepared 5 billion anyway, I should invest the remaining money after the acquisition.</p>
+<p>,First, find out the market price for acquiring a PMC of this size."</p>
+<p>,I already did."</p>
+<p>When she saw me, she started opposing me, so I thought she only did basic research and didn't research the acquisition amount, but it seemed like she did all that and then opposed me. Mimata Chieri clicked a few things on her laptop and displayed a document on the screen. The acquisition cost of a small PMC with about 10 people was written, and after roughly checking it, it was about 600 million yen. However, other PMCs that were recently traded included things like transportation vehicles that they received when they were affiliated with the Japanese government, even if they were small businesses with about 10 people. In my opinion, Seryu Military Company doesn't seem to have expensive equipment like transportation vehicles, so I thought I could acquire it for about 70 percent of the price.</p>
+<p>,Find out what situation Seryu Military Company is in and how we should solve it if we acquire it, Sunbae."</p>
+<p>,Now?"</p>
+<p>Looking at the time, it was around 11:40. Is it lunchtime, so she's asking, "Now?"</p>
+<p>,Shall we have lunch together first?"</p>
+<p>,No way~!"</p>
+<p>Mimata Chieri was puffing out her cheeks and putting her hands on her hips with a dissatisfied expression. Hmm, I have no idea why she's doing that?</p>
+<p>,Don't get angry, and explain it to me, Sunbae?"</p>
+<p>,If you pinched my chest with telekinesis, you have to take responsibility~! Do it more!"</p>
+<p>Ah...! Is it time for some erotic stuff rather than food? I smiled and used telekinesis to undo Mimata Chieri's shirt buttons. Undoing buttons consumes quite a bit of mental energy, surprisingly. Now that it's come to this, it's telekinesis proficiency training today!</p>
+<p>,Shall we go to the bedroom?"</p>
+<p>I used telekinesis to undo all the buttons on Mimata Chieri's shirt, took it off, and asked her after leaving her in just her bra. Mimata Chieri was moving her lips as if she was about to say something, so I asked her, and she blushed and answered in a small voice.</p>
+<p>,Please carry me to the bed in a princess carry..."</p>
+<p>Ah, so cute. I picked up Mimata Chieri in a princess carry, left the conference room, and headed to the bedroom. When we arrived at the bed, we took off each other's clothes. Mimata Chieri, who had quickly become naked, lay on the bed and reached out her hands to me.</p>
+<p>,Please hug me quickly, Sunbae-nim."</p>
+<p>###</p>
+<p>,Haaah~!! Unghh♥ I like it! I like it!!"</p>
+<p>There is something called a lucid dream. Sawayanagi Azuma realized that the current situation was a dream. It was impossible for her, who was still a virgin, to make such vulgar and sweet moans.</p>
+<p>It was definitely not reality that she was sticking out her tongue and drooling while accepting the man's huge thing. And if this wasn't a dream, she wouldn't be able to see herself as a third party watching.</p>
+<p>,I love you, I love you, Pussy, I love you!!"</p>
+<p>Sawayanagi Azuma thought that if there was a vulgar love confession contest, she would have received the grand prize immediately. Suddenly, Sawayanagi Azuma wanted to see the man who had made her like that.</p>
+<p>Instead of looking at herself sticking out her tongue vulgarly, she looked at the man shaking his waist above her.</p>
+<p>First, what came into Sawayanagi Azuma's view was the man's muscular body. In fact, Sawayanagi Azuma liked the delicate pretty boy style, but she didn't dislike such a muscular body either.</p>
+<p>Next was the face, he was handsome. He wasn't the pretty boy type that Sawayanagi Azuma usually liked, but he had a handsome face that everyone would like. He was a handsome man that anyone on the street would say was handsome.</p>
+<p>,How is it, the new house?"</p>
+<p>,Haaang, I like the investor-nim more than the house, haa!!"</p>
+<p>A new house? Sawayanagi Azuma looked around. It wasn't her usual room. Even though it was just a room, it seemed to be half the size of the house where she, Seari, and three other women from Seryutai were living. Then how big is the house?</p>
+<p>And an investor? Is this person the one who's helping Seryutai? Sawayanagi Azuma's head became complicated. She was confused whether this dream was just a random dream or a prophetic dream.</p>
+<p>When she first realized she was dreaming, she thought it was a random dream because there was no way she would be so vulgar, but considering her recent prophetic dreams, there was a possibility that this dream was also a prophetic dream.</p>
+<p>,Go, go, go! Haa!!"</p>
+<p>Before she knew it, her dream self was reaching her climax, rolling her eyes and trembling. Seeing that, she felt complicated. If it was a scene of them kissing happily, she could have had a pleasant dream, but she resented her ability for showing such a stimulating scene to a virgin.</p>
+<p>,One more time, please do it one more time...! Investor-nim!"</p>
+<p>,Then shall we do it from behind this time?"</p>
+<p>,I like it♥"</p>
+<p>She couldn't watch anymore. Once was enough, but she wasn't satisfied and wanted to do it again, that wasn't the attitude she would take. Yes, this dream is just a random dream...! Sawayanagi Azuma thought that this dream could never be a prophetic dream. She had to wake up now.</p>
+<p>Sawayanagi Azuma opened her eyes. Fortunately, she was no longer looking at herself from a third-person perspective. She saw a familiar ceiling. She got up and looked around, and saw her small room. Was it because of the large room she saw in her dream? Her current room looked very small.</p>
+<p>!"</p>
+<p>She was about to get up completely since she was awake, but her lower body was wet. Sawayanagi Azuma reached down and touched her lower body. A sticky liquid was smeared all over her Pussy.</p>
+<p>,Haa... Annoying...!"</p>
+<p>Sawayanagi Azuma took a shower with a very annoyed expression, changed her clothes, and went outside. Seari was sleeping, and the other two had disappeared somewhere, probably because their operation had recently ended. They'll come back when they run out of money...</p>
+<p>Sawayanagi Azuma rode her old Yamaha motorcycle and arrived at the office of Seryu Military Company, where she was the president.</p>
+<p>She had to stay in her seat in case there were any potential customers. She had to stay in her seat to get small requests, and even small requests would allow her to pay off the interest and cover her living expenses.</p>
+<p>Of course, even if she stayed in her seat like this, there would only be about two customers a week at most. And only one of them would actually give her a job.</p>
+<p>If there was no work, she could find work through a broker, but Sawayanagi Ryuta, who was like a foster father, said that it wasn't good to rely on brokers all the time and that she should continue to receive direct requests and build her reputation. Sawayanagi Azuma, who was greatly influenced by this, went to the office every day. If she went on a mission, Sawayanagi Sinya, who was the vice president, would stay in her seat.</p>
+<p>Knock knock knock!</p>
+<p>She heard the sound of someone knocking on the door, as if a customer was coming after a long time. Sawayanagi Azuma shouted brightly, "Come in!" and the door opened.</p>
+<p>The people who came in were two men in suits who looked like public officials. They looked around and approached Sawayanagi Azuma, handing her a document.</p>
+<p>,Are you Sawayanagi Azuma of Seryu Military Company?"</p>
+<p>,Yes."</p>
+<p>,This is an order to seize this office, warehouse, and everything inside if you don't pay the money by the day after tomorrow."</p>
+<p>,What? Tojima-ssi clearly said he would wait until next year..."</p>
+<p>Tojima, who Sawayanagi Azuma mentioned, was the person who held most of the debt shares of Seryu Military Company. Tojima clearly said that he would not take any action until next year if she faithfully paid the interest, but why this sudden bolt from the blue?</p>
+<p>,Sato Tojima-ssi sold all of his debt shares to Gomisawa Renya. This order is an order that Gomisawa Renya filed with the court."</p>
+<p>At the public official's explanation, Sawayanagi Azuma bit her lip. Gomisawa Renya was the man who created Black Tech after betraying Seryutai and leaving. He used to be the vice president when Sawayanagi Ryuta was alive, but he betrayed them as soon as Sawayanagi Ryuta died.</p>
+<p>,I understand. I'll pay it back somehow, so please leave now."</p>
+<p>,I'm telling you clearly, it's the day after tomorrow from today, Sawayanagi-ssi."</p>
+<p>The public officials left the office, and a cold air lingered in the office. She had a strange dream from the morning, and it was the worst day. Sawayanagi Azuma bit her lip with a serious expression and picked up her smartphone.</p>
+<p>_____</p>
+<p>This is a live-action illustration of Arisu and Sayaka requested by Troy-nim in the last episode of Part 1.</p>
+<p>Lovely Arisu! I wish it was a little more refreshing, but I guess my skills are still lacking ㅠㅠ</p>
+<p>I was touched that you still remembered Hanasaki Sayaka and requested it. I made it with the feeling of helping my parents' Izakaya, and I uploaded the second and third ones because the atmosphere was good ㅎㅎ</p>

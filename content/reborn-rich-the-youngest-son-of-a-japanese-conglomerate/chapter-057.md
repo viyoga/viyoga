@@ -5,91 +5,72 @@ weight = 57
 chapter = 57
 +++
 
-<p>Hmm.... It felt wrong to keep thrusting against Arisu-ssi after she fainted and fell asleep, so I put my pants back on. It's only 10:30, so I can't sleep yet. I heard there's a cocktail bar on the 100th floor, two levels down, where you can enjoy the night view while drinking, so I got dressed and went down. I sent Arisu-ssi a LINE message saying I was going for a drink, just in case she got worried.</p>
-<p>I don't know much about cocktails, but I like a refreshing and sweet mojito, so I ordered one and drank it while looking at the Tokyo night view. Luckily, the Tokyo Tower was on my side, so it was even more spectacular.</p>
-<p>"Did you come alone?"</p>
-<p>A brown-haired woman in a revealing red dress, like she'd just come from some event, spoke to me. Her breasts are quite large. Must be a C cup. It's my first time being hit on by a woman. Is this the power of my face?</p>
-<p>"If you're talking about TERT, then no. If you're talking about this cocktail bar, then yes."</p>
-<p>"Hmm.... What about your partner who came with you?"</p>
-<p>"She's sleeping soundly. I came down for a drink before going to bed."</p>
-<p>She subtly stroked my shoulder while asking, so I answered honestly.</p>
-<p>I'll keep you company while you have a drink. I'm Hoshino Riho.</p>
-<p>"Hoshino Riho?"</p>
-<p>Hoshino Riho was one of the top actresses in her thirties in Japan. She was an actress with excellent acting skills that crossed between sexiness and innocence, and had a lot of hit movies. That kind of person is talking to me, who's just sitting here? I didn't look closely at her face because of her clothes, but when I looked at her face, it was Hoshino Riho.</p>
-<p>"Ah, I'm sorry. I'm Taira Ryuta."</p>
-<p>"Taira?"</p>
-<p>This time, Hoshino Riho was surprised. It was natural for her to be surprised since this TERT is owned by Taira Entertainment.</p>
-<p>"Um.... Just think of me as the youngest nephew of Taira Kokoro-gomo. I've only seen her face twice, though."</p>
-<p>"Hehe.... Is that so?"</p>
-<p>Before I knew it, Hoshino Riho was sitting next to me, taking a sip of a red cocktail with a cherry in it.</p>
-<p>"Do you know? You smell so good?"</p>
-<p>"I don't really wear perfume?"</p>
-<p>Well, I did drink the Eternal Perfume, but I didn't spray it, so it's not a lie. Arisu-ssi didn't say anything, so I thought there was no special smell and only my charm stat went up, but is it smelling now because it's being digested, maybe?</p>
-<p>"It's my natural scent."</p>
-<p>When I rolled up my sleeve and held out my arm, Hoshino Riho inhaled deeply, like someone inhaling drugs. It's a bit erotic?</p>
-<p>"I guess so. Perfume is usually sprayed on the wrist, but it's naturally coming from your forearm."</p>
-<p>"It's good if it smells good."</p>
-<p>"I smell like perfume."</p>
-<p>She held out her neck as if telling me to smell it, just like I did. Hmm.... Is she testing me? I buried my nose in Hoshino Riho's neck, like she did, and inhaled the woman's scent as much as I could. The pheromone scent of a woman, the scent of perfume, even a slight smell of sweat.... It was a scent that excited men a lot.</p>
-<p>Arisu-ssi fainted in the middle of it, so I couldn't even come and came out awkwardly, so I got aroused by the stimulus of the smell without even realizing it. And it was really hard.</p>
-<p>"You must use good perfume."</p>
-<p>"I guess so. Seeing how it got like this...!"</p>
-<p>Hoshino Riho answered my question and secretly reached down to grab my Johnson. And she flinches when she feels my size. And then she smiles bashfully. Is this acting? Hoshino Riho's expression was so seductive that my dick got even harder.</p>
-<p>"I can see why your partner is sleeping soundly."</p>
-<p>Hoshino Riho drank all the remaining cocktail. She picked up the stem of the remaining cherry, bit it with her lips, and removed the stem. Then she grabbed my face with both hands and passed the cherry into my mouth. It's my first cherry kiss. I didn't refuse and accepted Hoshino Riho's kiss. It was definitely sweet with Hoshino Riho because of the cherry.</p>
-<p>"Hoo.... Since you took my cherry, you have to grant me a favor."</p>
-<p>She put it in my mouth herself, but look at this girl? I was dumbfounded and laughed, asking what the favor was.</p>
-<p>"You have to have another drink in my room."</p>
-<p>"Does this cocktail bar do takeout?"</p>
-<p>"Of course."</p>
-<p>Hoshino Riho grabbed my wrist with a gentle hand and pulled me up. Hoshino Riho ordered a Manhattan from the bartender, and I also took out a mojito. A red cocktail with a cherry in it.... This is Manhattan. She put the Manhattan in a plastic cup with a lid, and soon the mojito came out in the same plastic cup.</p>
-<p>Hoshino Riho's room was on the 107th floor, higher than the 102nd floor where Arisu-ssi and I were staying. It looked better because it was higher. The room was number 2. As soon as she entered the room, Hoshino Riho seemed to have forgotten about having a drink in the room, put aside the cocktail, and started kissing me.</p>
-<p>I tore off her clothes. As expected of a top actress, Hoshino Riho's body was good. It wasn't a model body like Arisu-ssi, but it was a well-maintained body. Her breasts were big and her face was beautiful, so any man would drool over her.</p>
-<p>When I bit her light brown nipples and tickled them with my tongue, she threw her head back, saying, "Kyaaheung!" Her sensitivity is good.</p>
-<p>Hoshino Riho spread her long legs in an M shape as if showing off her pussy. I lowered myself slightly and looked at her pussy. It was worth showing off. It was a moist, pink pussy that looked young for a woman in her 30s. The scent wasn't bad, and it tasted good when I licked it with my tongue.</p>
-<p>As I continued to lick her with my tongue and caress her Clitoris with my hand, she writhed in pleasure.</p>
-<p>"Haaeeunge~! You're so good! Haaheung!"</p>
-<p>I caressed her appropriately and pushed my red, erect dick into her pussy. Hoshino Riho was looking at my dick piercing her pussy with eyes full of fear and anticipation.</p>
-<p>"I've never seen a size like this before...! Haaeeueup!"</p>
-<p>She hugged me and scratched my back with her nails, making a suffocating moan. It was a little prickly, but it would be healed by regeneration.</p>
-<p>"How is it? Do you like it?"</p>
-<p>"Ah, it hurts haaaang! It hurts but I like it, Ryuta-sang's big dick is delicious!"</p>
-<p>She said it hurt, then she said it was delicious, so I didn't know what to say, so I just thrust it in as I pleased, and she was dying of pleasure.</p>
-<p>"Haaang! I think I'm going to come!"</p>
-<p>"I think I'm going to come out soon too, where should I cum?"</p>
-<p>"Haaang! I have a loop, cum inside~!"</p>
-<p>A loop is a contraceptive device inserted into the uterus. How often does she do it usually? Enough to have a loop in place. Well, I'm thankful for the vaginal ejaculation. It gives me a feeling of conquering a woman.</p>
-<p>Bueok! Bueok!</p>
-<p>I don't know how many times I've ejaculated today, but it was still a powerful ejaculation. Hoshino Riho, who was trembling in ecstasy, stroked her lower abdomen and said.</p>
-<p>"Haaang! Good! It's warm...."</p>
-<p>When I lay down next to her and touched her breasts, she whined.</p>
-<p>"Haaang! Don't excite me if you're not going to do it again~!"</p>
-<p>"I'm going to do it again?"</p>
-<p>Hoshino Riho's eyes widened at the words that I was going to do it again. After that, I made Hoshino Riho faint too.</p>
-<p>###</p>
-<p>I came back to the room with Arisu-ssi and slept soundly until 9 am. Arisu-ssi also woke up with a refreshed expression, stretching. We ordered breakfast as room service and ate it, and then Arisu-ssi and I had a morning workout and morning sex.</p>
-<p>"Kazuhiro's game is at 3 o'clock, so we can have lunch around 1 o'clock and go."</p>
-<p>I warmed up in the bathtub and came out to lie on the bed. Arisu-ssi said she wanted to eat pizza, so we went to TERT's Western restaurant and ate American-style combination pizza and cola. She said it was Arisu-ssi's soul food. Rather, she couldn't eat pizza often because she was rich. Her parents didn't order pizza often because they thought pizza was low-class food.</p>
-<p>Well, before I possessed this body, pizza was expensive in Korea, so I ate it when there were huge discount events or from cost-effective brands like Pizza Friends. Looking at Taira Ryuta's life, pizza was very expensive in Japan too, so he couldn't eat it often. It seems like a considerable price to pay since L-size is over 3,000 yen in Japan.</p>
-<p>After eating pizza, we left TERT and headed to Ajinomoto Stadium, the home stadium of Tokyo FC. Ajinomoto Stadium was far west of downtown Tokyo, but fortunately, it wasn't too crowded because it was Sunday. On the way, I checked Tokyo FC's starting lineup on my smartphone, and Kazuhiro was not in the starting lineup and was on the bench. But Kazuhiro was confident that he would definitely play, so he would come out as a substitute.</p>
-<p>When I arrived and showed the ticket that Kazuhiro sent me, I was able to get a seat in a good spot called the player's family seat.</p>
-<p>"Oh, Taira-sang?"</p>
-<p>I wondered who was pretending to know me, but it was Kagawa Umi, Kazuhiro's current girlfriend. I greeted Kagawa Umi and introduced Arisu-ssi to her.</p>
-<p>"Oh my, your girlfriend is so pretty~!"</p>
-<p>"Hehe! Thank you. Kagawa-ssi is also pretty~."</p>
-<p>Arisu-ssi was saying things she didn't mean in response to Kagawa Umi's compliment. I let them talk and watched the game. The opposing team was Kashiwa Reysol, a team from Chiba. Taira family's roots are in Chiba, so should I support Kashiwa Reysol? Or should I support Tokyo FC since I'm from Tokyo? I was worried, but I decided to support Tokyo FC because my friend was there.</p>
-<p>"I used to play soccer for a while in high school."</p>
-<p>"Really? Do you have a picture of you in a uniform?"</p>
-<p>"I want to see it too~!"</p>
-<p>Arisu-ssi searched her phone and showed me a picture of young Arisu-ssi wearing a soccer uniform and making a V sign. She looked about 10 years old. She's so cute.</p>
-<p>"You were cute at this time too."</p>
-<p>"Hee~ You're cute!"</p>
-<p>"Hehe, don't flatter me too much~."</p>
-<p>To talk a little about the soccer scene of this era, the United States was emerging as a new powerhouse. The rankings with baseball were reversed, and it rose to third place after American football and basketball. The Latino population was increasing, and they were investing actively because they showed good results in the recent World Cup.</p>
-<p>"Ah, the second half is starting!"</p>
-<p>Kazuhiro didn't come out, so I watched the game comfortably while talking, and the second half started. After a while, in the 10th minute of the second half, Kazuhiro finally came out. The score was 0-0 for both teams, so the coach seemed to be expecting the unexpectedness of the rookie striker Kazuhiro.</p>
-<p>Kazuhiro, who hadn't caught the ball for a while and was running like he was jogging, finally caught the ball in the 37th minute of the second half. Kazuhiro dribbled to the side at a fast pace with the elasticity of a rubber ball. The full-back, who was behind in the speed competition, fell back in an instant. Kazuhiro entered the corner of the penalty box and rushed diagonally towards the goal. He was playing the textbook inside forward play.</p>
-<p>He easily avoided the defender's sharp tackle with a side step to stop Kazuhiro at all costs and immediately shot. Bang~! Kazuhiro was shooting with a sound. The first shot quickly passed under the goalkeeper's arm and became the first goal. The ball rotated as if tearing the net with a chwareureuk sound.</p>
-<p>-Smith Kazuhiro...! Goal! It's a goal! Kkieeeeek!</p>
-<p>The announcer was also excited and celebrated Kazuhiro's goal with a scream. Arisu-ssi's reaction was just "Wow~! It's a goal!", but Kagawa Umi burst into tears when she saw Kazuhiro's goal scene. They met after he became a soccer player, but anyone who saw it would think she had been supporting soccer throughout his school days.</p>
-<p>In the end, Tokyo FC won 1-0, and Kazuhiro was able to become the MVP.</p>
+<p>"Welcome to the number one Taira Group in Japan!"</p>
+<p>A famous A-list MC from Taira Entertainment was holding the microphone as the host. The new employees were like, "Heeeh~!" and seemed to think that the Taira Group was the best after all, probably because they were seeing a celebrity who only appeared on TV.</p>
+<p>In fact, that MC ajosshi is also a Taira Group employee, so of course he would come if they told him to. He belongs to Taira Entertainment, after all. He gets paid much more than a regular employee, but he's in a similar position in that they both get a monthly salary. In Japan, except for a few, celebrities are on a salary system, so the company takes a bigger cut.</p>
+<p>"Now, we will begin the event with a congratulatory speech from the Chairman of the Taira Group, Taira Danjo-nim!"</p>
+<p>With the MC's words, Taira Danjo-harabeoji, with his white hair flowing down, came up to the podium wearing a suit. Maybe it's because I only saw him at the main house, but I've only ever seen him wearing a men's Kimono, so this is my first time seeing him in a suit. As expected of the Chairman of a group competing for the top spot in Japan, he looked good in a suit too. He had a certain gravitas about him.</p>
+<p>"Hey brats, welcome to the number one group in Japan."</p>
+<p>It was an absurd speech, but all the trainees cheered.</p>
+<p>"This Human Resources Development Institute is an excellent place. The group puts a lot of effort into training new recruits. How much effort, you ask? Enough that my own grandson is attending this place."</p>
+<p>The trainees didn't know who he was, but everyone in the staff seats behind the trainees turned their heads to look at me. They were looking at me with eyes that said, "Ah, this bastard is the Chairman's direct line?" Ah, Taira Danjo-harabeoji, you're needlessly selling me to raise the credibility of the Human Resources Development Institute to the trainees. As expected, he's a heartless old man. The attention was uncomfortable, but I couldn't just get up and leave, so it was a bit awkward.</p>
+<p>"I won't make it long. You've come to the best group, so receive the best training and achieve the best results in your respective positions. That's all!"</p>
+<p>Clapping! Clapping! Clapping! Clapping!</p>
+<p>The ending was smooth. Taira Danjo-harabeoji went down from the podium, and the MC came up again.</p>
+<p>"That was a very good speech, wasn't it? Next up..."</p>
+<p>As the MC was introducing the next speaker, a burly man wearing sunglasses approached me. It looked like a bodyguard escorting Taira Danjo-harabeoji?</p>
+<p>"Doryeon-nim, the Chairman is calling for you."</p>
+<p>My guess was right. It's uncomfortable to stay here, so I should follow him right away.</p>
+<p>"Where should I go?"</p>
+<p>"Please follow me."</p>
+<p>As I followed the sunglasses-wearing burly man, I glanced at the podium, and Taira Yukiko was going up to the podium. Since she's the Director of the Human Resources Development Institute, she'll probably give a speech second to the Chairman. Looking at the male trainees, their eyes were sparkling as they looked at Taira Yukiko. Well, it would be nice to see a woman who's prettier than a celebrity as the Director. But I felt a little strange. I didn't like the way the men were looking at her.</p>
+<p>Following the burly sunglasses man, we arrived at the place where the Taira Motors limousine was parked. As I approached, the door opened, and Taira Danjo-harabeoji's voice could be heard from inside.</p>
+<p>"Get in for now."</p>
+<p>I got into the limousine as Taira Danjo told me to. It felt like this was a higher-class limousine than the one I took to Saburo's funeral before, as the space felt wider. Taira Danjo was rolling a thick cigar in the back seat and smoking it. But is it really a cigar? It doesn't smell like tobacco? It smelled like burning some kind of dried herb.</p>
+<p>"From now on, don't show your regenerative abilities in front of people."</p>
+<p>"Huh?"</p>
+<p>The first thing he said as soon as I got in was regenerative abilities? What is he talking about? How does Harabeoji know about the secret of my regenerative abilities? Did he receive a report about the Jinildang terrorist attack back then?</p>
+<p>"Do you really not understand? Or are you pretending not to understand?"</p>
+<p>"Are you saying that I can use it when there's no one around?"</p>
+<p>"Yes, that's good enough."</p>
+<p>"Did you call me just to say that? There's also phone calls and texts for that kind of thing."</p>
+<p>Ttak!</p>
+<p>At my grumbling, Taira Danjo-harabeoji flicked his finger on my forehead with the hand opposite to the one holding the cigar. Ouch! That really hurts! How is an old man with so much age so strong?</p>
+<p>"Tsk tsk! You fool! I called you because you were here anyway. Do you think I should take the time to contact you separately, you bastard?"</p>
+<p>"Aigo.... You're still going strong. And a grandfather can contact his grandson, you know."</p>
+<p>I rubbed my forehead and said at Taira Danjo's scolding. In fact, I quickly recovered thanks to the effects of regeneration, but I had to pretend to be in pain out of courtesy (?).</p>
+<p>"Anyway, don't tell your uncles or aunts that you have a special ability. And especially don't tell the Minamoto side!"</p>
+<p>It seemed like the reason why Taira Danjo-harabeoji gave me a warning was because he was worried I would die. Taira-harabeoji seemed to think that if the three successors and the rival group found out that I had regenerative abilities, I would be in danger.</p>
+<p>"Thank you."</p>
+<p>"Hmph, get out now. I'm busy because I have to go to my next schedule."</p>
+<p>"Ah, you're busy. Have a good day, Grandfather."</p>
+<p>Tuk!</p>
+<p>As I said goodbye and was about to get off, he threw something onto my lap. It was a fairly thick white envelope. I looked at Taira Danjo-harabeoji with a "What is it?" look.</p>
+<p>"Ahem, it's pocket money, you rascal."</p>
+<p>"Thank you, Grandfather! I'll buy something delicious to eat."</p>
+<p>I took the white envelope and smiled as I greeted Taira Danjo-harabeoji. Grandfather is the best after all. The limousine carrying Taira Danjo-harabeoji disappeared without answering my thanks. When I opened the white envelope, there were 50 ten thousand yen bills inside. 500,000 yen... Do the Taira people have no sense of money?</p>
+<p>With nothing to do, I returned to the auditorium, and it seemed that the admission ceremony was over. The new trainees were forming small groups and heading to their respective rooms. Each room was for one person, but members of the same group were placed near each other. Naturally, men and women were assigned to different buildings, but members of the same gender group were assigned rooms close to one another.</p>
+<p>Heeh~ Handsome guy....</p>
+<p>Some of the new trainees saw me and whispered to each other. Hmm, is this the life of a handsome man? It was a new feeling because I hadn't felt it before the possession. I ignored the whispering and entered the auditorium. As expected, most of the staff were clearing the chairs.</p>
+<p>"I'll help too!"</p>
+<p>I ran over and helped clear the chairs. The staff were awkward because of what had just happened, but I thought it was better to have a reputation for working hard than being arrogant, so I had to work hard. Clearing chairs was nothing to me, who had excellent physical abilities.</p>
+<p>"Ah, Ryuta-gun. You're here! Where did you go?"</p>
+<p>Mimata Chieri asked as she struggled to carry a chair. It seemed that the high-end wooden chairs, not plastic ones, were too heavy for Mimata Chieri to carry. I took Mimata Chieri's chair and said.</p>
+<p>"I just had a normal conversation with my grandfather. How's company life? That kind of thing."</p>
+<p>"Ah, to Ryuta-gun, the Chairman is no different from any other normal grandfather?"</p>
+<p>"Well... he's a bit eccentric, though."</p>
+<p>After moving the chairs a few times while talking with Mimata Chieri, the auditorium was quickly emptied. Maybe it was because all the staff who had been watching the event from the back came to help, but it ended much faster than when we were arranging the chairs.</p>
+<p>Our Education Support Team 2, which had returned to the office, was enjoying a rare moment of leisure. Shinoe Misano was also enjoying her coffee, and Suzuki Chisami, who had been nagging the team members during the preparation period, was also quiet.</p>
+<p>Mimata Chieri looked at me with a bright expression.</p>
+<p>"I heard that steak is coming out today because it's the first day of training! It'll be about this thick, right?"</p>
+<p>As expected, Mimata Chieri was excited when she talked about food. I also said, "That sounds delicious, I'm looking forward to it," and we talked about lunch today.</p>
+<p>"Taira Ryuta-gun. Education Team 1 has requested support. Would you like to do it?"</p>
+<p>As I was talking with Mimata Chieri, Shinoe Misano received a phone call and asked me. As expected, the call came! What I had worked on through Kawaji Emiko was exactly this.</p>
+<p>"Yes, I will."</p>
+<p>"If you do this kind of support, you'll be busy, but you'll get more salary."</p>
+<p>Of course, I wasn't doing it for the salary. This matter had a greater meaning.</p>
+<p>"What Taira Ryuta-gun will do is... be a mentor for New Trainee Group 74."</p>
+<p>New trainees usually have about ten people in a group, and one member of the education team becomes a mentor, and the group members become mentees. Even if all the Education Teams 1, 2, and 3 were to take on mentors, there were over 3,000 new employees this time, so there were nearly 300 groups, so it was not enough for the education team alone to be mentors. Therefore, the Education Support Team or other departments would receive mentors.</p>
+<p>Mentors provide tips and know-how about company life, participate in events where mentors are needed, and guide them, so there was quite a lot to do. Everyone has their own work, so they don't like being told to be mentors, but I thought differently.</p>
+<p>As someone who wanted to take over the Taira Group, I needed to gather employees who could give me information from each subsidiary, and what caught my eye was this mentor system. So, I had Kawaji Emiko create Group 74 and put me in it.</p>
+<p>Group 74 was a group that gathered new recruits who were excellent in appearance and academics, and who all belonged to key subsidiaries of the Taira Group.</p>

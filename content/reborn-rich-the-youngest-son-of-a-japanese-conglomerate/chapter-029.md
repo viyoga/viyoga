@@ -5,88 +5,65 @@ weight = 29
 chapter = 29
 +++
 
-<p>Of course, when I returned to Japan, I had to face my surprised mom's face.</p>
-<p>"Son, what happened? You've gotten taller and more handsome..."</p>
-<p>Well, it was natural for her to be surprised that her son, after visiting Korea, had grown nearly ten centimeters taller and become more handsome. On top of that, my body had become incredibly buff with muscles, which really flustered her.</p>
-<p>"I went mountain climbing in Korea and dug up and ate wild ginseng."</p>
-<p>It was an absurd excuse to anyone, but saying that this world is a game and I obtained and ate items from the game would immediately land me in a mental hospital, so I had no choice but to make even an absurd excuse.</p>
-<p>"Aigoo! I told you not to pick up and eat just anything, didn't I?"</p>
-<p>Paak! Paak!</p>
-<p>My mom hits my back really hard. No matter how much my physical stats increase, Mom's hand stings.</p>
-<p>"But what to do? I have to go to the main family house tomorrow to pay respects to your father, but your suit won't fit."</p>
-<p>"Knowing that would happen, I had one made in Korea."</p>
-<p>In Japan, there was a custom of paying respects on the seventh, thirty-fifth, and forty-ninth days after the funeral, so I had to go to the Tairaga main house again tomorrow. I didn't think I'd have time to get a suit made in Japan, so I just had one made in Korea. For reference, I bought two suits, including one to wear to the company. Han Yu-gyeong chose them for me, so I liked the designs.</p>
-<p>"I'm not going, so keep that in mind."</p>
-<p>"Mom, you're not going?"</p>
-<p>"Yeah. He's your father. He wasn't my husband, and the woman who's his wife would be annoyed if I showed my face, and I think I've done my duty by going to the funeral."</p>
-<p>That's true. They weren't married, and Mom was a single mother, so it was right to see her going to the funeral as fulfilling her obligation. But I was going because I was blood-related.</p>
-<p>"Will those burly guys come to pick me up tomorrow too? I don't know the address well."</p>
-<p>"They know you don't have a car, so wouldn't they come to pick you up?"</p>
-<p>It's always good to be sure, so I sent a text message to the number I received from Grandpa Taira Danjo's secretary last time.</p>
-<p>-&gt; Will there be people coming to pick me up tomorrow like the last funeral?</p>
-<p>&lt;- Yes. The time is 10 a.m.</p>
-<p>-&gt; Thank you for letting me know.</p>
-<p>Hmm, they're coming to pick me up at 10 a.m., so they're coming early.</p>
-<p>"They said they're coming to pick me up at 10 a.m. tomorrow."</p>
-<p>"Mom will be at work and not here then? Have a good trip."</p>
-<p>It's a bit much to go alone, but I guess I can suffer for a day.</p>
+<p>There was a small pharmaceutical company listed on NASDAQ called Health Miracle. This Health Miracle was a stock that only those in the know knew about for making money early on for MegaCorp's youngest son. Until May, it fluctuated between $0.8 and $1.1 per share, but if you consistently bought it from the beginning, it would eventually rise to a whopping $1100.</p>
+<p>It was because of a drug that Health Miracle made, and the drug's name was Forest. Surprisingly, Forest was a hair loss treatment. Because a drug that reliably treated hair loss, something no country or company had succeeded in doing, came out, the stock price soared.</p>
+<p>I lay in bed and started buying shares of Health Miracle with my brokerage app. Since I was living in the detached building of the Human Resources Development Institute anyway, I saved on housing costs, and Taira Yukiko-ssi said she would buy me a car, so I had some spare cash. About... 10 million yen?</p>
+<p>Since the price would be flat until May anyway, I decided to buy it slowly in installments. If I dumped all 10 million yen today, the price would go up, and I wouldn't be able to buy as much as the price increased. Well, it wouldn't go up much with just 10 million yen, but I should still buy it while controlling it so it doesn't rise as much as possible. If I buy 200,000 or 300,000 yen worth each day, my holdings will steadily increase. Besides, I also have a salary, so I should dump all my salary into Health Miracle too.</p>
+<p>As it was the first day, I bought 500,000 yen worth of Health Miracle today.</p>
+<p>"Hmm... Should I tell Han Yu-gyeong-ssi about this?"</p>
+<p>MegaCorp's youngest son was very short on money in the beginning. The Shin-gang Group Chairman did throw him 600 million won for graduating at the top of Korea University, but that was for men; women get 200 million won. 600 million won looks like a lot of money, but after buying a car, a motorcycle, a gun, hiring a bodyguard, lobbying, and running ads, it was far from enough.</p>
+<p>But what about 200 million won, a third of that money? If you play as a woman, you had to play as a cheapskate, buying only the bare necessities. Even though she was a child of a chaebol family, she had to eat meals at the lowest possible cost.</p>
+<p>"Yeah, let's tell her. I know a lot of other honey tips too."</p>
+<p>As soon as I made up my mind, I called Han Yu-gyeong-ssi. As if she had been waiting for my call, she answered as soon as the first ringtone sounded.</p>
+<p>-Yong-tae-ya!</p>
+<p>Her voice was full of joy. Hmm, her voice is pretty too.</p>
+<p>"Yeah, Yu-gyeong-a. Is the OT preparation going well?"</p>
+<p>-Actually, there's not much to prepare, so I've been sitting and studying.</p>
+<p>Studying because she has nothing to do, she really is a woman who graduated at the top of Korea's best university. I couldn't check Han Yu-gyeong's stats, but her knowledge, which can't be raised by leveling up, seemed incredibly high.</p>
+<p>"Did I interrupt your studying?"</p>
+<p>-No~! I was just doing it because I had nothing to do. But what's up with the call?</p>
+<p>"I just wanted to hear your voice, and I called for that reason too."</p>
+<p>-Really? Hehet. I'm glad I heard your voice too.</p>
+<p>How sweet, I never imagined that a super pretty college girl would like me this much.</p>
+<p>"Ah, you said your grandfather gave you money for graduating at the top a few days ago, right? What are you going to use it for?"</p>
+<p>I asked Han Yu-gyeong-ssi as if I had suddenly thought of it. Han Yu-gyeong-ssi answered my question without suspicion.</p>
+<p>-Um, my grandfather gave me 200 million won, and I invested 100 million won in stocks and hired a bodyguard for three months with 10 million won as you said. I bought a house, a car, and other things with the remaining 90 million won, so I have about 30 million won left.</p>
+<p>Since an event where the bodyguard attached by the Shin-gang Group Chairman betrays her happens at the beginning of the semester, she had to hire a private bodyguard if her combat power was weak. I told Han Yu-gyeong-ssi to prepare for that by hiring a bodyguard separately for three months.</p>
+<p>"Then, would you like to invest about 10 million won of the remaining 30 million won in a stock I recommend? You'll be able to make quite a bit of money around summer vacation."</p>
+<p>-Really? I'll invest unconditionally if you recommend it.</p>
+<p>Isn't she trusting me too blindly? It was a bit burdensome, but it's good because I can save time persuading her to invest in stocks out of the blue.</p>
+<p>"Put about 10 million won into Health Miracle on NASDAQ. I'll let you know when to sell later."</p>
+<p>-Okay, just a moment.... Done!</p>
+<p>"Did you buy it?"</p>
+<p>-Yeah! I put in 30 million won!</p>
+<p>I clearly told her to put in only 10 million won, but Han Yu-gyeong-ssi, as if listening to me was proving her loyalty, put in all the money she had. It's such a penny stock that the stock graph fluctuates quite a bit even though she only bought 30 million won worth of shares.</p>
+<p>"I told you to put in only 10 million won. What are you going to do about living expenses?"</p>
+<p>-I can get it from my parents. They'll give me an allowance since I helped them return to the family anyway.</p>
+<p>How cool. Well, even in the game, if you really didn't have money, you could talk to your parents and get money. Now that the stock recommendation, which was the original goal, was over, I talked about this and that with Han Yu-gyeong-ssi. The OT was said to be in Chuncheon for three days, Friday, Saturday, and Sunday.</p>
+<p>-Yong-tae-ya, I miss you.</p>
+<p>"Then come visit me the week after next. Come on Friday's flight and play like the OT from Friday to Sunday."</p>
+<p>I wanted to see Han Yu-gyeong-ssi too. Anyway, this week is Han Yu-gyeong's college OT, and I had a company dinner on Friday and a date with Arisu from Saturday evening to Sunday. Looking at it like this, I'm a really busy guy?</p>
+<p>-Really? Will you meet me if I go to Japan?</p>
+<p>"Of course~! Why wouldn't I meet you."</p>
+<p>-Heu-heung, okay. Then see you the week after next Friday~!</p>
+<p>"Okay, let's hang up now. You go back to studying, and I'll review the work I learned today."</p>
+<p>Actually, there wasn't much work I learned today, but I just decided to hang up because I had to pee.</p>
+<p>-Okay, let's talk again next time!</p>
+<p>After hanging up and going to the bathroom, a KakaoTalk message from Han Yu-gyeong-ssi had arrived.</p>
+<p>Fighting! And she sent me a picture of herself lifting up the black t-shirt she was wearing and exposing her breasts. Oh shit, I really feel energized.</p>
 <p>###</p>
-<p>"Please get in, Doryeon-nim."</p>
-<p>Was it because I became a member of the Tairaga family at the last funeral? Today, they didn't forcibly grab my arms and put me in the car like last time. Although, even if they tried to do that now, I could stop them with my strength. The black suit guys, I could tell they weren't poker-faced, because I could feel them flinching and being surprised when they saw the changed me.</p>
-<p>On the way to the Taira main house in the back seat of the Taira Motors limousine, I sent a Line message to Arisu Fitzgerald, who I was somewhat close to.</p>
-<p>Taira Ryuta: Arisu, are you coming to the Taira main house for the memorial service this time?</p>
-<p>Arisu Fitzgerald: Yeah, I'm going now ((≡^ꀾ^≡)). My mom and dad are going with me too. You haven't met my mom and dad before, right?</p>
-<p>Taira Ryuta: Yeah. I'm meeting them for the first time. What are they like?</p>
-<p>Arisu Fitzgerald: They're both good people ฅʕ•̫͡•ʔฅ.</p>
-<p>Taira Ryuta: The emoticon is cute WWW</p>
-<p>Arisu Fitzgerald: Hehe, really? ლ(´ڡ`ლ)</p>
-<p>While chatting with Arisu Fitzgerald on Line, I arrived at the main house before I knew it. I didn't even realize how time was passing because I was even chatting with Han Yu-gyeong on KakaoTalk in between. For reference, Han Yu-gyeong was also called to the Shinkang Group's main house today. There were no replies after that. She's probably talking with her family.</p>
-<p>I got out of the limousine and went inside the main house. There were people gathered inside, including Taira Danjo's eldest son, Taira Ichiro, and Taira Jiro. There was also a cold-looking man in his mid-thirties with a thin build, tall stature, and gold-rimmed glasses, whom I hadn't seen before. That man seemed to be Taira Ichiro's eldest son, Taira Tabenobu. And there was Taira Ichiro's second son, Taira Gensuke, a Hispanic blond man with tan skin, and Taira Jiro's children were nowhere to be seen.</p>
-<p>And there was a middle-aged woman I hadn't seen before, who was probably Taira Danjo's second child and eldest daughter, Taira Kokoro. She was a skinny, neurotic, pretty middle-aged woman, and her skin was very good, probably because she had received a lot of skin treatments. I knew she was quite old, but she looked almost in her early 30s. Next to her were Taira Kokoro's children, Taira Kisawa and Taira Akio.</p>
-<p>"Hello?"</p>
-<p>As a matter of courtesy, I went to where the Tairaga family members were gathered and greeted them. Everyone except Taira Tabenobu and Taira Kokoro, who hadn't seen me at the funeral, were surprised.</p>
-<p>"Ryuta? You seem to have grown a lot taller in a week...?"</p>
-<p>"I went on a trip to Korea and ate medicinal herbs in the mountains, and this is what happened."</p>
-<p>"Medicinal herbs? Hmm..."</p>
-<p>He looked like he was thinking, 'Did he get some kind of body modification?' but well, I said I ate medicinal herbs and became like this, so there's nothing he can say. And about 70 percent of the story about eating medicinal herbs and growing like this is true anyway.</p>
-<p>"You're Saburo's son, Ryuta? I'm your aunt, Taira Kokoro."</p>
-<p>Taira Kokoro came in front of me and looked me up and down as she spoke.</p>
-<p>"Hello, Aunt."</p>
-<p>"Hehe, you're handsome? Contact me if you want to be an entertainer. Modeling is good too."</p>
-<p>When I politely greeted her, Taira Kokoro handed me her business card. The business card read "Taira Entertainment President Taira Kokoro." As expected of the daughter of the president of Japan's top entertainment company, she was worthy of being the daughter of the Taira Group Chairman.</p>
-<p>"Sister, a model? Ryuta is scheduled to enter the Human Resources Development Institute starting next week by his father's order."</p>
-<p>When Taira Jiro said that, Taira Kokoro snorted!</p>
-<p>"Father wouldn't care whether Ryuta enters the Human Resources Development Institute or our Taira Entertainment, would he?"</p>
-<p>"That's just your opinion, Sister."</p>
-<p>The two are having a staring contest. I heard from Mom as a precaution that Taira Ichiro and Taira Kokoro's mother and Taira Jiro's mother were different, so they didn't get along, and it seemed like they really didn't get along.</p>
-<p>"Hahaha, it's always like this, so shall I introduce myself? I'm Taira Tabenobu. I'm the eldest grandson of the Tairaga."</p>
-<p>Taira Tabenobu held out his hand to shake. I also took his hand and greeted him.</p>
-<p>"I'm Taira Ryuta."</p>
-<p>"So you're Saburo's nephew. You're really handsome. You look a bit like him too."</p>
-<p>I've only seen Taira Saburo's face in his portrait, but he was somewhat handsome. Still, I thought I looked more like my mom, but to the Tairaga relatives, it seemed like I resembled Taira Saburo.</p>
-<p>After greeting Taira Tabenobu, I greeted the rest of my cousins. Everyone asked me what happened that made me grow so tall. When I said I ate medicinal herbs like before, no one seemed to believe me.</p>
-<p>Soon, the door of the main house opened and a white family appeared. It was the Fitzgerald family. Oliver Fitzgerald, who appeared to be Arisu Fitzgerald's father, and Nae Fitzgerald, a white mixed-race person who looked to be in her early thirties at most, were seen.</p>
-<p>She was a Western-looking woman with hair lighter than Arisu's and lime-colored eyes, and she looked almost in her late 20s. How much of a youthful family is the Taira family, really?</p>
-<p>By the way, Arisu Fitzgerald almost looked white, but it turned out that it was because Nae Fitzgerald was half white. Then I could understand why Arisu Fitzgerald, who only had a quarter of Japanese blood, looked white.</p>
-<p>Except for the current wife, Taira Danjo's wives all died early, so he must have gotten a Western grandmother in the middle.</p>
-<p>Alex Fitzgerald, Arisu Fitzgerald's older brother, was also standing next to Arisu, whether he had returned home for the memorial service.</p>
-<p>The Fitzgerald family all greeted and approached me. I bowed first.</p>
-<p>"Hello, I'm Taira Ryuta."</p>
-<p>"We've heard a lot about you from Arisu. Ryuta, you're really handsome?"</p>
-<p>"I heard you're joining the Taira Group this time?"</p>
-<p>I greeted Nae Fitzgerald and Oliver Fitzgerald, and also greeted Alex Fitzgerald. Alex Fitzgerald was a college student with a sturdy build of around 170 centimeters tall, and he was said to be a promising college league American football player. He couldn't come to the funeral because he had an important game.</p>
-<p>"Arisu."</p>
-<p>"Ryuta."</p>
-<p>Arisu Fitzgerald and I briefly greeted each other by just calling each other's names. We agreed to meet tomorrow on Line, so there was no need for long words.</p>
-<p>"Thank you for coming to pay respects to my husband."</p>
-<p>My father Taira Saburo's wife, Taira Yukiko, was greeting the relatives. She still had an amazing figure. She was wearing a tight-fitting black Kimono for the funeral, but to have such a curvy figure like that.</p>
-<p>She was slowly greeting from the highest rank down, and soon she came to me.</p>
-<p>"Ryuta... Thank you for coming."</p>
-<p>"Of course I had to come."</p>
-<p>Taira Yukiko was sending me a strange look, as if seeing me reminded her of her husband Saburo. It was a look mixed with sadness, anger, affection, and longing.</p>
-<p>"Um... what should I call you?"</p>
-<p>"Oh, call me Mother."</p>
-<p>Actually, since she's my father's wife, it's right to call her Mother. But I have a mom. Hmm... Mom is Mom, and Mother is Taira Yukiko, I guess.</p>
-<p>"Okay, Mother."</p>
-<p>"Heeuk...!"</p>
-<p>Taira Yukiko was tearing up as if she was overwhelmed by the word "Mother." Hmm... I shouldn't be like this, but seeing Taira Yukiko tearing up made my lower body throb for no reason.</p>
+<p>"Baka! Baka yarou!"</p>
+<p>Kurakake Kuma cursed. He couldn't forgive the impudent newbie. He must be acting up because he trusts the Taira name, but the Taira name is only meaningful when it's the direct line. Kurakake Kuma, who had memorized the family tree from Taira Danjo-sama, didn't see the name Taira Ryuta. Of course, he wasn't intimidated because he knew the newbie was from a collateral line.</p>
+<p>The Taira family is a place that only works for the Chairman, so even Ichiro, the eldest son of the direct line, hasn't properly established himself yet. But a collateral line? He might be able to get into the company through a parachute, but that's it. The Taira family is a place that treats collateral lines more carelessly than any other family. There are hardly any collateral lines left because they like purges so much. If he and a collateral line fight, everyone with a higher position than him will take his side.</p>
+<p>"You stupid bitch, wagging your tail because you're horny just because a slightly handsome guy came...!"</p>
+<p>Mimata Chieri-ssi and Shinoe Misano-ssi were just helping the newbie adapt, but in Kurakake Kuma's eyes, they just seemed to be wagging their tails at the newly arrived handsome Taira family collateral line.</p>
+<p>In fact, Kurakake Kuma was a section chief at Taira Trading, which was one or two levels higher than the Human Resources Development Institute. Kurakake Kuma, who had been good at studying since he was a child but was gloomy and ugly, suffered from women avoiding him. Kurakake Kuma, who had been good at studying from the beginning, entered a leading domestic university and joined the Taira Group, expecting to meet women if he entered a large company.</p>
+<p>But Kurakake Kuma's daily life didn't change. Despite Kurakake Kuma's efforts, women didn't look at him. But one day, Kurakake Kuma discovered a book. It was a manga about a company superior with similar conditions to himself threatening the wife of a subordinate to have a relationship.</p>
+<p>Kurakake Kuma, who saw that manga, gained enlightenment as if lightning had struck his crown. I can have a woman if I do this...! Kurakake Kuma was thirty-nine years old at that time.</p>
+<p>From the beginning, he raped his superior's wife and even took pictures to threaten to tell his superior, making his superior's wife his sex partner, and Kurakake Kuma, who felt that this method worked, continued to assign tasks that were easy to make mistakes to his juniors, causing damage to the company, and then raped his juniors' wives under the pretext of covering it up.</p>
+<p>But if the tail is long, it will be caught. When Kurakake Kuma became a section chief, the incident finally broke out. Fortunately, it wasn't his superior's wife that was caught, but his affair with his junior's wife was exposed. He had to pay about 10 million yen to his junior legally, and he couldn't meet the sex partners he had made up until now because he was worried that other company colleagues would notice.</p>
+<p>In Japanese society, which values face, this kind of thing would require him to submit his resignation immediately, but Kurakake Kuma was an animal who didn't know anything about face. Kurakake Kuma, who continued to endure in that position, was eventually demoted to the Human Resources Development Institute.</p>
+<p>When he was demoted, he was threatened by his superior, who knew that he had slept with his wife, that if he played with his dick recklessly there, he would hire a yakuza to kill him, and he was quiet for two months. But there was no way that Kurakake Kuma, who had a strong sexual desire, could endure with just threats. Just as he was about to start acting, Taira Ryuta, a newbie, joined the company.</p>
+<p>For two months, he had been intimidating his subordinates with his age and the position of deputy team leader, gradually creating a favorable atmosphere for himself, but the arrival of Taira Ryuta created a slight crack.</p>
+<p>"Heh heh.... Yeah, he's just a new employee. A new employee's influence can't stop me."</p>
+<p>Kurakake Kuma rather took the arrival of the newbie as an opportunity and decided to carry out a major event at this company dinner. The target is....</p>

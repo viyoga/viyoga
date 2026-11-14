@@ -5,86 +5,63 @@ weight = 1096
 chapter = 1096
 +++
 
-<p>Minamoto Media-Computer Technology Building, 14th floor. Minamoto Risa's Publishing Team office.</p>
-<p>Minamoto Risa was frantically busy. Once the game to be published was decided and the contract was finalized, she had a mountain of things to do.</p>
-<p>When one of the games Taira Ryuta had told her about had its contract with the publisher go awry and the project was shaking, Minamoto Risa stepped in and secured the contract with that game company.</p>
-<p>If the game succeeded as Taira Ryuta had guaranteed, it would be an incredibly lucky Situation. For the publisher contract to go awry just before its release, no less.</p>
-<p>Moreover, due to the game company's difficult Situation, she was even able to receive some Share and make an Investment. If the game succeeded, she would not only achieve Achievement at Minamoto Media-Computer Technology but also reap enormous profits personally.</p>
-<p>With the game's release approaching, Minamoto Risa was so busy balancing company Work with her Studies at Edo University that she begrudged the Time to eat or Sleep.</p>
-<p>"Tell them to rewrite this marketing Report. The Target age group is wrong. And... the localization team should thoroughly review it to prevent any translation problems...."</p>
-<p>"General Team Leader-nim."</p>
-<p>While Minamoto Risa was giving various Commands to her subordinates, her secretary approached and called Minamoto Risa.</p>
-<p>"What is it?"</p>
-<p>"A guest from the Main family has arrived."</p>
-<p>At the secretary's Words, Minamoto Risa's slightly Frustrating Expression, wondering why she was called when she was busy, changed. The Main family? The Main family meant that a Direct Lineage member of the Minamoto Family had visited.</p>
-<p>Was there any reason for someone from the Main family to visit her? Minamoto Ushin, who cared for Minamoto Risa, came to mind first, but Minamoto Risa soon shook her Head.</p>
-<p>Minamoto Ushin was a Person who clearly distinguished between public and private matters. For the Chairman of the Minamoto Group to personally visit the office where his youngest Daughter was a Team Leader could send a wrong Message.</p>
-<p>Rather, knowing that Minamoto Risa would struggle because of Minamoto Ushin's visit, Minamoto Ushin would never visit Minamoto Risa's office, which had yet to achieve any Achievement. Then who on earth had come? Minamoto Risa was Frustrating with her secretary for only saying it was a guest from the Main family and not reporting properly.</p>
-<p>"Who from the Main family has come?"</p>
-<p>"It is Minamoto Katsue-nim."</p>
-<p>"In the future, please report properly who from the Main family has arrived."</p>
-<p>"Yes, I apologize...."</p>
-<p>Minamoto Risa reprimanded the secretary for not reporting properly and told her to call Minamoto Katsue. She hadn't been in charge of the team for long, and recently, as she started another Business, she had been focusing her subordinates, whom she had recruited in High School, on that new Business, so other forces had pushed into that Gap.</p>
-<p>Because of this Situation, as obstacles arose in her Work, Minamoto Risa was slightly Frustrating.</p>
-<p>Seeing that she had sent Iide Sunami, her strategist and secretary, to the new business, and had subtly placed Manaka Yuka in the now-vacant secretary position—a person who was obstructing her work—it meant that one of Minamoto's blood relatives or a prestigious family connected to that bloodline was keeping Minamoto Risa in check.</p>
-<p>Minamoto Risa was even thinking of outright killing Manaka Yuka if she did anything else to displease her, though she didn't know who the Mastermind was.</p>
-<p>"Risa, it's been a long Time."</p>
-<p>Just as Minamoto Risa was cultivating her Intent to Kill towards her secretary, a Voice was heard. It was a peculiar Voice that simultaneously conveyed languor and Confidence. Minamoto Risa looked at the Woman in front of her with a smiling Expression and greeted her.</p>
-<p>"It's truly been a long Time, Katsue eonni."</p>
-<p>Minamoto Katsue was a Beautiful Woman with a flamboyant aura. Her wavy Hair, along with the Minamoto family's characteristic pink blonde, gave her a luxurious yet flamboyant Impression, and her confident Gaze seemed to support her outstanding Skill.</p>
-<p>Minamoto Katsue, who had been in charge of the Europe Branch General Manager position until a few days ago, abandoned that position without Regret and returned to Japan.</p>
-<p>Rumors were circulating in the Public that Minamoto Katsue's return to Japan finally signaled the intensification of the Succession competition.</p>
-<p>Even if the position of Europe Branch General Manager was significant, being in Domestic Japan was more advantageous for the Succession competition due to the long distance.</p>
-<p>"I heard that things have been faltering over there since eonni left the Europe Branch General Manager position."</p>
-<p>"Isn't it natural for an Organization to shake when Talent like me leaves? And though he's not as good as me, Taira Kitsumasa is not someone to be underestimated, so it must be quite difficult. That Kitsumasa guy is someone who would run wild as soon as I left."</p>
-<p>Even at Minamoto Risa's perfunctory Words, Minamoto Katsue calmly praised herself. Actually, Minamoto Risa was a little dumbfounded.</p>
-<p>Because there was a considerable Age gap between Minamoto Katsue, Taira Ushin's second child and Eldest daughter, and Minamoto Risa, the Youngest, they had almost no contact.</p>
-<p>Unlike her other Siblings who had tormented her since childhood, Minamoto Katsue was someone she hadn't had occasion to meet, so she didn't harbor much ill will, but she also had nothing particular to say when they did meet.</p>
-<p>"So... why did you come?"</p>
-<p>"Oh, you! Why do you think I came? I just came to observe as your eonni. Wouldn't you like it if your eonni supported you?"</p>
-<p>To Minamoto Risa's direct Question, which could be considered rude, Minamoto Katsue replied with a smile. You'd like my Support, she says... Minamoto Risa was a little dumbfounded. It was as if her Attitude was saying, 'It's an Honor, isn't it?'</p>
-<p>Minamoto Risa had already heard rumors about Minamoto Katsue. It was said that her self-love was so strong that she hadn't married even at her current, not-so-young Age.</p>
-<p>The rumor that she hadn't married because no Man measured up to her was famous within the Minamoto Group.</p>
-<p>Minamoto Risa saw the true nature of that rumor and couldn't help but agree with its content. Though she didn't overtly boast about how amazing she was, every single one of her actions was filled with self-love.</p>
-<p>Uuung...!</p>
-<p>While exchanging such casual Words with Minamoto Katsue, her phone rang. It was the sound coming from Minamoto Katsue's phone.</p>
-<p>Minamoto Katsue looked at her phone and made a complex Expression. Frowning, then slightly smiling, it seemed as if something had happened.</p>
-<p>"See? I told you, without me, the Taut Tension loosens, and this is what happens."</p>
-<p>Minamoto Katsue showed her phone Screen to Minamoto Risa.</p>
-<p>Laszlo Horvath, an Assassin who had come to London, UK, on an Assassination mission for Taira Kitsumasa, the Director of Standard London Holdings, was facing considerable Difficulty.</p>
-<p>At first, he thought it would be easy, seeing that the Assassination Target was an East Asian, but surprisingly, the Assassination Difficulty was high. Further investigation revealed that he was a Blood relative of Japan's top Chaebol Family, so bodyguards were always vigilant around him, and his residence was also a Mansion famous for its security in London.</p>
-<p>His movements were always in a high-performance, bulletproof vehicle, leaving Laszlo Horvath no Gap to intervene.</p>
-<p>However, after observing Taira Kitsumasa for several days, Laszlo Horvath was able to find a few Gaps. No, rather than finding Gaps, the very subtle flaws had gradually widened into Gaps as Taira Kitsumasa became increasingly careless.</p>
-<p>He heard that the female Europe Branch Manager of a rival company had returned to her Home country, so the reason to be careful had disappeared.</p>
-<p>'Good....'</p>
-<p>Laszlo Horvath smiled. Of course, even now, while he was off guard, there were no Gaps for amateur assassins, but Laszlo Horvath had the Skill to deliver the Grim Reaper's Kiss precisely into the ever-widening Gap.</p>
-<p>Laszlo Horvath had considered something a Gap even before Taira Kitsumasa became careless.</p>
-<p>Taira Kitsumasa was spending money lavishly and enjoying himself at a Club every few days. Despite this, several skilled individuals were assigned as Guards, and he never drank Alcohol until he was completely drunk, making an Attack difficult, but today was different.</p>
-<p>No matter how late it was, Taira Kitsumasa usually returned Home before 12 AM, but today he was still lingering at the Club even though it was past 4 AM.</p>
-<p>Laszlo Horvath could clearly see the concentration of Taira Kitsumasa's Guards around the Club diminishing as Time passed.</p>
-<p>Buuung...!</p>
-<p>'It'll be soon...!'</p>
-<p>A stately sedan was seen stopping on the Road near the Club's Entrance. Laszlo Horvath, watching from the opposite Building, smiled.</p>
-<p>After observing for several days, that vehicle was the one Taira Kitsumasa always rode in. This meant Taira Kitsumasa would be coming out soon.</p>
-<p>The Club's door opened, and Taira Kitsumasa was seen emerging, with his arm around a Woman wearing an almost Exposure Dress. A Guard rushed over, but Taira Kitsumasa stumbled and pushed the Guard away.</p>
-<p>Normally, the Guard would have covered him with a bulletproof umbrella and put him in the car, but not at this Moment when Taira Kitsumasa pushed the Guard away.</p>
-<p>"Good-bye."</p>
-<p>Tang! Tang!</p>
-<p>Laszlo Horvath bid Taira Kitsumasa farewell and pulled the trigger twice. The first shot aimed for the Heart, the second for the Head.</p>
-<p>Blood splattered as Taira Kitsumasa collapsed. Laszlo Horvath, having confirmed his final collapsing Appearance, put his sniper rifle into his Bag and began to leave the opposite Building.</p>
-<p>Laszlo Horvath would not know what kind of Aftermath his small Act of pulling the trigger would bring to Japan, across the Sea.</p>
-<p>Minamoto Katsue B-cut~!</p>
-<p>In the early stages of creation, she had green pupils hehe.</p>
-<p>Shii and Lisa recalling a night with Ryuta, requested by MidNightSKY-nim~!</p>
-<p>Shii~!</p>
-<p>I'm not sure what the shirt swimsuit in the middle is hehe.</p>
-<p>Lisa~!</p>
-<p>Gokado Hanako on Stage, requested by TheDreaming-nim: 1. Hand Play 2. Zero Two</p>
+<p>「Investor-nim~! Don't forget our promise to go to the auction together~!」</p>
+<p>「I haven't forgotten. Let's go together next time.」</p>
+<p>Sawayanagi Seari waved her hand and said. The rest of the Seryu Military Company people also waved their hands at me and got into the vehicle, and Kurayamada Kirie also left words saying, 「see you next time,」 and got on her bike.</p>
+<p>Because the personnel affiliated with Seryu Military Company in Tokyo and Kurayamada Kirie, affiliated with the Chungrang Dae in Kofu City, were going in different directions, they decided to part ways at the airport. The rest of the Kids living in my mansion rode in the car together towards Neo Tokyo.</p>
+<p>「Ryutaa...!」</p>
+<p>「Older Brother~! You know, this time I, Shinkaiyatsude....」</p>
+<p>On the way, Alik and Tsukiyo took seats on either side of me and were expressing their joy at seeing me after a long time, each in their own way.</p>
+<p>Alik was clinging to me, rubbing her soft cheek against me while saying, 「Ryutaa,」 and Tsukiyo was chattering away, telling me even the smallest things that had happened while I was gone, as if she had so much to say.</p>
+<p>Receiving so much affection from the two, I entered the mansion in Neo Tokyo and immediately gathered the people to hold a Meeting.</p>
+<p>Having returned from the USA, there was a need to organize what had been gained in the USA, and also to receive a detailed Report on the current The Situation in Japan.</p>
+<p>Of course, since it wasn't a large-scale Meeting, only the necessary personnel were called, the rest were given Rest, and those far away decided to participate in the Meeting via video call.</p>
+<p>「Thank you all for protecting our forces while I was away.」</p>
+<p>First, I greeted those who had been in Japan. Even in Japan, they had prevented the attack caused by Taira Gensuke's Impulsive Action, and especially the Mithril warehouse attack incident by Taira Jiro was something we had cleverly manipulated Taira Gensuke's side to cause, so they must have suffered considerably due to various jakjeon and keeping Secrets.</p>
+<p>「First, I'll receive the Report on Japan's Work.」</p>
+<p>At my Words that I would receive the Report on Japan's Work first, Asada Ei stood up from her seat. Since Asada Ei was in charge of various Information, she was suitable as the reporter.</p>
+<p>「First, I will Report again on Taira Gensuke's attack incident. As you know....」</p>
+<p>As expected, the Report on the Work caused by Taira Gensuke came first. The Report was exactly as I knew it, except for some minor details, but there was one unresolved question.</p>
+<p>「Why on earth did he decide to antagonize us? Because I became the Affiliate Company Boss before Taira Gensuke, who is a Branch manager? Is that a Reason?」</p>
+<p>Even if my promotion was faster than Taira Gensuke's, would that be a Reason to antagonize me? In fact, though he's called a Branch manager, if he's the South American Branch manager of Taira Bussan, it's much larger in scale than Taira Food distribution.</p>
+<p>He wasn't just a Neighborhood Branch manager in Japan; being a South American Branch manager meant he was in charge of a Daeryuk. It could by no means be called a small force. Especially since his mother, Taira Camilla's Family, was not small, Taira Gensuke was doing quite well in Brazil, yet he attacked me just because of Taira Food distribution? It didn't make much sense.</p>
+<p>「Combining the Information gathered from various places, Taira Gensuke is said to have a rough and hasty Personality in his action, but he is not without judgment. Seeing him act so hastily, I wonder if someone wasn't fanning the flames from behind the scenes.」</p>
+<p>Who could have fanned the flames...? Of course, this was also Asada Ei's Hypothesis, so Taira Gensuke might have just acted Impulsively on his own.</p>
+<p>「How about we create a Hypothesis like this, Older Brother?」</p>
+<p>Tsukiyo, who had been listening quietly, opened her mouth. Huh? Did she think of something?</p>
+<p>「What's Taira's current Incident? Taira Gensuke attacking Taira Jiro's Mithril warehouse and our mansion, and Taira Kitsumasa's Assassination. What if Taira Gensuke committed all of this? Since these events happened around the same time, Taira Gensuke could be involved in Taira Kitsumasa's Death, couldn't he?」</p>
+<p>Tsukiyo said, raising her Index Finger with an Expression that asked, 「What do you think?,」 but merely similar timing wasn't enough to conclude that Taira Gensuke was involved in Taira Kitsumasa's Assassination Incident.</p>
+<p>「That seems like a bit of a stretch?」</p>
+<p>「That's why it's a Hypothesis. Listen. If we combine what Ei-ssi said, it seems Taira Kitsumasa instigated Taira Gensuke. Since Taira Gensuke also has judgment, he noticed that Taira Kitsumasa was instigating him. Could it be that he hired an assassin out of Frustrating?」</p>
+<p>Hired an assassin out of Frustrating? Could there be such a good-for-nothing Bastard? As I stared in Absurd, Tsukiyo shrugged her Shoulder, saying, 「Well, it's just a Hypothesis.」</p>
+<p>Although it was a difficult Hypothesis to accept, Tsukiyo's judgment that Taira Gensuke had even committed Taira Kitsumasa's Assassination was a new Sight. Anyway, Taira Jiro's side would be desperately searching for Taira Kitsumasa's assassin and their Mastermind, so we just needed to keep our Sensitive Ear open. It wouldn't be too late to decide what to do after the assassin and their Mastermind were revealed.</p>
+<p>Of course, the question of why Taira Gensuke was antagonizing me, which I was curious about, remained unresolved, but now the Reason was no longer important. Only the fact that we had to take revenge for the Attack on us someday was important.</p>
+<p>「The next Report is about the aftermath of this Incident. Taira Jiro combined the Mithril warehouse attack Incident he suffered and the mansion attack Incident we suffered, and reported them to Chairman Taira Danjo-nim.」</p>
+<p>I heard this in the USA. He reported Taira Ichiro and Taira Gensuke as anti-Taira individuals. I was curious about Chairman Taira Danjo's Reaction, and I'll hear it here.</p>
+<p>「Naturally, Taira Jiro's accusation that they were anti-Taira individuals did not pass, but since it was a fact that Taira Gensuke caused significant harm to the Neo Tokyo Project being promoted at the group level, Chairman Taira Danjo-nim called Taira Ichiro and reportedly took quite strong measures」</p>
+<p>「Quite strong? What kind of measures?」</p>
+<p>「They reduced headquarters support for Taira Bussan, recovered two Affiliate Company, and announced they would dispatch their own audit team.」</p>
+<p>Whoa.... Normally, this would just be a Matter of succession rivalry, but Taira Gensuke attacked our mansion in Neo Tokyo, causing Taira Ichiro to suffer considerable damage. Taira Gensuke must have been severely scolded by his dad, Taira Ichiro? This is a bit satisfying. Still, being scolded by his own dad seems a little insufficient....</p>
+<p>「Did Gensuke receive any separate Discipline?」</p>
+<p>「Taira Gensuke is ultimately a Branch manager affiliated with Taira Bussan, so the reduction of headquarters support for Taira Bussan can be considered a Punishment for Taira Gensuke. The Taira Bussan South American Branch will probably have to conduct its Business this year and next year without any support. If they fail to achieve Achievement, they will have to step down from the Branch manager Seat.」</p>
+<p>Ah, that's right. The reduction in support was ultimately a Discipline for Taira Gensuke. It was a disciplinary measure that essentially said, 「Go ahead and try to do well without support. If you can't, I'll even take away your Branch manager Seat.」</p>
+<p>Could Taira Gensuke really succeed without headquarters support? I didn't know much about Taira Gensuke's Business acumen, so I had questions. Rather, this was both a Punishment and an opportunity for Taira Gensuke. If he succeeded without headquarters support, it would prove his Ability.</p>
+<p>Asada Ei, having finished her Report, sat down, and this time Linling stood up from her seat. As an android, she wouldn't need Paper, but her Appearance holding Report Paper in her company attire was quite Cute. Linling opened her mouth, looking at the Paper.</p>
+<p>「This time, I will Report the Results of the mansion attack Incident!」</p>
+<p>Mansion attack Incident? Wasn't that Report already finished? As I made a puzzled Expression, Linling smiled sweetly with a Cute Expression and continued her Story.</p>
+<p>「The total Amount of damage is 1,203,000 yen, mostly for Structure damaged during battle....」</p>
+<p>Ah, so this was the Report. Yes, this Report also needs to be done. Although Taira Gensuke, that Guy, was splendidly repelled, there wasn't absolutely no harm because a battle had occurred. Since it was already known that we had been attacked by Taira Gensuke, I would have to make Taira Bussan compensate for this Money. Naturally, the Perpetrator should compensate for the damage Amount, so even if it wasn't a large sum of Money, we didn't need to bear that damage Amount.</p>
+<p>「Charge Taira Bussan ten times that damage Amount.... No, about fifty times.」</p>
+<p>Even ten times 1.2 million yen is only 12 million yen, so we should get fifty times. If our side claimed such harm, Taira Bussan had no Method to deal with the current The Situation. If they argued about this for no reason, I would go to Taira Danjo after Taira Jiro and say something, so they would know it's more profitable to just give what's asked.</p>
+<p>「Hmm.... I'll try charging one hundred times the damage Amount~!」</p>
+<p>Linling is even worse than me. Not fifty times, but a hundred times.... Still, about 120 million yen is like pocket change for Taira Bussan, so it's doable.</p>
+<p>「The next Report will be about profits, not losses!」</p>
+<p>Profits? Did we gain something? Of course, this Incident made the relationship between Taira Jiro and Taira Ichiro more hostile, but other than that, there doesn't seem to be anything specific....</p>
+<p>Linling B-cut~!</p>
+<p>After deliberating with the second Illustration, I decided on the Illustration in the main text as the Illustration hehehe.</p>
+<p>Requested by Gojoy-nim: Chapter 55 Yukiko 1. Happy Expression watching Ryuta eat well 2. Chapter 55 Illustration Remake~!</p>
 <p>1.</p>
 <p>2.</p>
-<p>Sajo's recovered Appearance, requested by Geomeunkkaemuk-nim~!</p>
-<p>I tried to convey the feeling of pale Skin from being constantly confined + a Body that has recovered physically but not mentally hehe.</p>
-<p>Homeroom Teacher performing Battōjutsu on a car, and Ryuta driving, requested by JeongChucky-nim~!</p>
-<p>Homeroom Teacher~!</p>
-<p>I had to create the Battōjutsu horizontally for it to come out properly hehe. Only two images of her properly on the car are the limit hehe. Most of them, like the last one, just have her Legs raised~!</p>
-<p>Ryuta~!</p>
+<p>Requested by Geomeunkkaemuk-nim: Alik in heart-patterned pajamas~!</p>
+<p>Ppuu!</p>
+<p>Alik came with various types of pillows, asking to Sleep together hehe.</p>

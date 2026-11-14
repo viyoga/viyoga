@@ -5,76 +5,71 @@ weight = 533
 chapter = 533
 +++
 
-<p>I picked up Kirie Kurayamada, who was begging for sex, and headed to the bedroom. Kirie Kurayamada clung to me quietly, like a little puppy.</p>
-<p>"Kyaa!"</p>
-<p>I threw Kirie Kurayamada onto the bed and took off my clothes, becoming naked. Kirie Kurayamada smiled slightly, scanning my body from head to toe with a 'kyaa' sound. As expected, even in her incomplete werewolf form, her instincts seemed to be heightened. Well, it's a bit cumbersome to say "incomplete werewolf form" every time, so from now on, I should just call it beastification.</p>
-<p>I raised my erect dick and placed it right on Kirie Kurayamada's face. Kirie Kurayamada, with a very lewd expression, kept my dick on her face, sniffing it and sticking out her tongue to lick it.</p>
-<p>"Euhng, it smells weird...! My lower area is throbbing...♥"</p>
-<p>Kirie Kurayamada, with her heightened sense of smell due to beastification, deeply inhaled the scent of my dick while diligently moving her tongue, licking my shaft and balls. Every time Kirie Kurayamada's agile tongue licked my dick, I felt a tingling sensation in my pelvis, which felt quite good.</p>
-<p>Of course, I wasn't just receiving service. I was undressing Kirie Kurayamada, who was mindlessly absorbed in my dick.</p>
-<p>Whether it was instinct or awareness, I don't know, but every time I took off her clothes, she would lift her hands or legs, making it easier for me to undress her.</p>
-<p>After finishing undressing Kirie Kurayamada, I scratched Kirie Kurayamada's dog ears while she was licking my dick, and lifted her toes, rubbing her pussy with my big toe.</p>
-<p>"Heueuunghht!"</p>
-<p>As expected, her senses were heightened due to beastification, and she moaned as if she was feeling immense pleasure even from just my toe. My big toe began to get soaked in Kirie Kurayamada's wetness.</p>
-<p>"Get on your hands and knees."</p>
-<p>I spoke commandingly to Kirie Kurayamada, who was still licking my dick. Kirie Kurayamada silently got on her hands and knees, then lifted her hips and wiggled them, appearing to seduce me.</p>
-<p>Her slender waist, wide hips, and plump ass seemed to seduce any man, and my already hard dick became so erect that it hurt, and her pussy was dripping wet, as if begging for my dick right away.</p>
-<p>I grabbed Kirie Kurayamada's slender waist and thrust my dick into her dripping pussy. Without even holding my dick with my hand, I just pushed my waist, and my dick entered her pussy as if being sucked in.</p>
-<p>"Heueeuht, i-it, haaht! It's inside...!"</p>
-<p>"Keueut!"</p>
-<p>Kirie Kurayamada and I groaned simultaneously. Kirie Kurayamada's pussy was different than usual. It had become a tighter, wriggling perverted pussy.</p>
-<p>The sound of my lower abdomen and ass colliding echoed, and Kirie Kurayamada's moans grew louder.</p>
-<p>"Haaeng, haaht! It feels like, heueut! I'm being pierced through...♥"</p>
-<p>As Kirie Kurayamada climbed each step of her climax, I stopped moving. And I pressed down on her with my body, which was heavier than Kirie Kurayamada's.</p>
-<p>There's something called rodeo sex in humor. It's when you're doing doggy style with a woman, and after inserting, you say another woman's name in her ear and hold on. I stopped to do something similar to Kirie Kurayamada now.</p>
-<p>Kirie Kurayamada, suddenly noticing that I had stopped, turned around while my dick was still inside her and looked at me.</p>
-<p>"Heueeung, what is it? Move..."</p>
-<p>"Were you curious about why I have so much money?"</p>
-<p>"Haa, haa, haa.... Why all of a sudden...?"</p>
-<p>"My real name isn't Ryuta Yamashiro, it's Ryuta Taira. The youngest of the Taira."</p>
-<p>Of course, Kirie Kurayamada wouldn't make a fuss just because I revealed that I was Ryuta Taira. There was something else that would make Kirie Kurayamada make a fuss.</p>
-<p>"My mother is Korean. I'm half Korean."</p>
-<p>Eventually, Kirie Kurayamada would properly learn my identity. If Kirie Kurayamada already thought of the new PMC she was creating as my force, and then found out that I was a Zainichi Korean, I didn't know what she would do, so I was telling her in advance now. No matter how much she abandoned Jinildang's beliefs, I didn't know if she could forget what she had been thinking all along, but I was going to try to persuade her with my body this time.</p>
-<p>"Haeueeuht! T-that...! You were Zainichi (在日)? Take it out quickly...!"</p>
-<p>As expected, Kirie Kurayamada began to struggle. Because her physical stats had increased due to beastification, it really felt like I was doing rodeo, but I didn't give in and hugged Kirie Kurayamada's neck, pressing down with my body and starting to shake my waist.</p>
-<p>"What does nationality matter? Just think about the man who makes your pussy feel good."</p>
-<p>I began to indoctrinate Kirie Kurayamada by exerting the Black Miroku Art to the fullest. Of course, I didn't activate the Holy Pillar, and I began to completely soak Kirie Kurayamada in pleasure.</p>
-<p>Of course, it was difficult to change Kirie Kurayamada's thoughts, which had been brainwashed by her father, Kazuma Kurayama, since childhood. But if I soaked her pussy in pleasure like giving her drugs all weekend, she would gradually become indoctrinated.</p>
-<p>Kirie Kurayamada, who had been thrashing around like a wild horse, eventually began to respond to my piston movements, and after a little more time, she actively moaned. The semen that had been shot out countless times created bubbles and flowed backward, changing Kirie Kurayamada's mind.</p>
-<p>I wasn't just having sex, but I also strongly asserted, "Accept my superior Korean dick!" and sometimes I would ask, "Are you going to betray me, who gives you pleasure, saying that there's no need to uphold such twisted beliefs?" whispering sweet words in her ear.</p>
-<p>On Sunday evening, Kirie Kurayamada, who had finally been soaked in sex for 24 hours, surrendered to me.</p>
-<p>"Haeueeung, Ryuta-nim's K-dick is the best, aah♥"</p>
-<p>Kirie Kurayamada had completely lost her mind. Did I go too far? Now she had completely changed to being docile and didn't even bring up the Emperor's 'E' word.</p>
-<p>"Hoo...! Aren't you hungry?"</p>
-<p>"I'm starving."</p>
-<p>It felt like my stomach was sticking to my back because I had been having sex for almost 24 hours. If I had just had sex, my dick and pussy would have been rubbed raw and hurt a lot, but I activated the Holy Pillar in between, and because I have regeneration, there were no sore spots. I was just extremely tired and hungry.</p>
-<p>I wasn't thirsty because I had picked up Kirie Kurayamada and went to the kitchen to drink water while thrusting, and I replenished Kirie Kurayamada's hydration with kisses.</p>
-<p>"What do you want to eat?"</p>
-<p>"Please order soft tofu stew and cheese spicy chicken♥"</p>
-<p>Kirie Kurayama, who now orders Korean food. The indoctrination was successful.</p>
-<p>###</p>
-<p>Rena Sakagami left Ryuta Taira's house and immediately headed to Chiba with the scroll. It was to meet the most outstanding illusionist she knew.</p>
-<p>The person Rena Sakagami went to see was Yukiko Taira, the director of the Taira Group's Human Resources Development Center. She had contacted her in advance and met her, but Yukiko Taira was a very beautiful woman, but she looked different from Rena Sakagami's memory. First of all, the biggest difference was her hair color. Before, it was definitely pink, and she had horns and wings, but now she was a seemingly innocent beauty with brown hair.</p>
-<p>"Uh.... I'm sure your hair was pink before...?"</p>
-<p>"Heueung, hair color can change as much as you want, you know?"</p>
-<p>When Yukiko Taira swept her hair up, it turned blonde and then returned to normal brown hair. Rena Sakagami was surprised by the sight.</p>
-<p>'It's an illusion...! Amazing!'</p>
-<p>Rena Sakagami admired inwardly, thinking that this woman was the only one who could teach her illusion, and handed the scroll to Yukiko Taira.</p>
-<p>"That.... The lord lent it to me, but the contents are difficult. It's a scroll containing concealment techniques, but I don't know much about illusion."</p>
-<p>"Oh, really? Is that child doing well?"</p>
-<p>"I think he's doing well?"</p>
-<p>Even if she was a stepmother, Rena Sakagami couldn't tell Yukiko Taira that Ryuta Taira was currently living like a male lion with many lionesses, so she just glossed over it by saying he was doing well.</p>
-<p>"I'm glad he's doing well."</p>
-<p>Yukiko Taira smiled and took the scroll. It was a scroll whose hidden meaning could only be seen by those skilled in concealment techniques, but Yukiko Taira, a powerful dream demon (夢魔) who had collected many dreams, had the ability to penetrate the illusion placed on the Unique-grade item and understand its meaning. Yukiko Taira quickly realized what was making it hard for Rena Sakagami to learn the illusion. One of the two techniques recorded was concealment, but the illusion was from a different lineage than conveyance.</p>
-<p>"The illusion here isn't concealment. The problem was approaching it with concealment."</p>
-<p>"Ah...! It wasn't concealment?"</p>
-<p>Yukiko Taira, who quickly grasped the problem with the illusion, kindly explained it to Rena Sakagami. And she snapped her fingers as if to demonstrate.</p>
-<p>Snap!</p>
-<p>With the sound of her fingers snapping, Yukiko Taira's figure split. The three Yukikos smiled and opened their mouths.</p>
-<p>"Thank you." "I was also able to" "learn a new technique."</p>
-<p>When the three of them opened their mouths at the same time, a buzzing sound was heard, but it was clearly heard as if it was etched in my mind.</p>
-<p>"I'll teach you this illusion, so please take good care of my son in the future."</p>
-<p>Yukiko Taira, who had merged back into one, said with a benevolent smile.</p>
-<p>----</p>
-<p>Kirie Kurayamada B-cut!</p>
-<p>The point of this episode's lewd illustration is the sexy spinal erectors, hehe.</p>
+<p>After the three-legged race, the remaining events were the class relay race and, for the Red and White Team competition, the equestrian battle. Both were highlight events that could decorate the finale of any athletic meet.</p>
+<p>I wondered which event would be the final one for St. Francisco Girls' Academy, so I checked the pamphlet and, as expected, it was the equestrian battle. Thinking about it, the equestrian battle, with its group combat nature, probably had a higher risk of injury than the relay race, so they likely did the less risky relay race first and the equestrian battle last. Since it's the last event, even if students get hurt, they can go straight to the hospital without affecting any subsequent schedule.</p>
+<p>,To think that right after the three-legged race, which is also a running event, we have the relay race... The person who planned the schedule really has a twisted sense of humor."</p>
+<p>Minamoto Risa muttered as the announcement to prepare for the relay race came on. It was true that this athletic meet's schedule was quite hardcore. It's not like it's the Olympics... Archery, dodgeball, three-legged race, relay race, lacrosse, fencing, equestrianism, and even the equestrian battle, that's eight events?</p>
+<p>Minamoto Risa was originally a relay race runner, but since she overdid it in the three-legged race just now, Saionji Diana decided to run instead. Saionji Diana did have a cyber implant, but it wasn't obvious just by looking, so the thought was that as long as she didn't run too fast, she wouldn't get caught.</p>
+<p>,We're the top class anyway, so don't push yourselves too hard."</p>
+<p>Since we had already won all the previous class competition events, I said to the students. Even if we didn't win the relay race, our class would still be the top class. However, Minamoto Risa seemed to have a different idea than me and tried to boost my motivation in front of the students.</p>
+<p>,If we win this relay race too, we'll be the first top class in St. Francisco Girls' Academy history to win every event. Let's all decorate a page in history."</p>
+<p>St. Francisco Girls' Academy's history was by no means short. The Daigo family took over a mission school founded by the missionary Francisco (later canonized as Saint Francisco), so it had a considerably long history. The athletic meet was the 137th, but there were many times when the athletic meet was canceled due to events like the World War or major earthquakes, so it had a history of nearly 160 years.</p>
+<p>But in 160 years, there hasn't been a class that has won in every event? That's more impressive than I thought? At Minamoto Risa's words, everyone's morale blazed with the thought that they could become a page in the history of St. Francisco Girls' Academy.</p>
+<p>,Ryuta-cchi! With such a complacent attitude, you can't aim for the world!"</p>
+<p>,That's right, sensei! I want to remain as a scene in St. Francisco's history with you!"</p>
+<p>As a result, somehow I was the one being scolded. I just hoped that everyone wouldn't fall while running because they were too motivated.</p>
+<p>After the students all left, the only ones remaining were Naruse Shiyo, Minamoto Risa, Shido Tsubaki, and I. Fortunately, Naruse Shiyo seemed to be in pretty good condition today.</p>
+<p>,I wanted to participate in at least one event..."</p>
+<p>Naruse Shiyo muttered with a slightly lonely expression. It seemed like she had mixed feelings about just watching the matches today. It must feel like her classmates are achieving something, but she's not a part of it.</p>
+<p>,Then you can participate in the equestrian battle."</p>
+<p>Minamoto Risa tossed out at Naruse Shiyo's words. The equestrian battle would be quite intense, so I was about to stop her, thinking it might be too much for Naruse Shiyo, but Minamoto Risa continued before that.</p>
+<p>,You can be the rider. If the horses are well-fighting kids like Kujo Kina, there won't be much chance of getting hurt."</p>
+<p>Ah... Is that so? In the equestrian battle, there's the role of the horse and the role of the rider who rides on it, so the rider role might be less physically demanding. Of course, the rider also needs combat ability, but as Minamoto Risa said, if the students acting as the horses below take on more of the burden, it might be possible to make up for Naruse Shiyo's lack of combat ability.</p>
+<p>,Sensei-nim..."</p>
+<p>Naruse Shiyo was sending me pleading eyes, wanting to participate. Unable to resist the sparkling eyes, I had no choice but to nod.</p>
+<p>,But you have to give up if you feel like it's too much during the match, okay?"</p>
+<p>,I understand."</p>
+<p>Naruse Shiyo nodded with an excited expression. I should be the one to decide which students will be the horses to support Naruse Shiyo. In the equestrian battle, one team consists of one rider and three horses, so our class could make three teams. With Saionji Diana and Otagi Yuka, and one person supporting from behind, they would probably do well.</p>
+<p>,So, let's decide on Naruse's team like this..."</p>
+<p>,Aren't you putting Kujo Kina in?"</p>
+<p>It was Minamoto Risa who raised a question about the team I had made. But Saionji Diana and Otagi Yuka are stronger than Kujo Kina.</p>
+<p>,I'm trying to create a team that can win even if Naruse drops out."</p>
+<p>,Hmm, that could work too."</p>
+<p>Minamoto Risa, who nodded at my hastily made excuse, was now worrying about forming the remaining two teams. The Red and White Team competition didn't really matter whether we won or lost, but she seemed to want to win anyway.</p>
+<p>While we were forming the teams, the relay race ended.</p>
+<p>,,,,Ah...!""""</p>
+<p>Minamoto Risa, Naruse Shiyo, and I simultaneously let out a "Ah!" We were so busy forming the equestrian battle teams that we didn't watch the match. If the relay race runners found out we didn't watch, they would definitely sulk. Shido Tsubaki, who was sitting next to us, smiled and told us that we had won.</p>
+<p>,We won? Then I'll have to gloss over it somehow."</p>
+<p>,What are you going to do, Ryuta-cchi?"</p>
+<p>,No, it's nothing. Congratulations on winning the relay race!"</p>
+<p>,Right? I created a half-lap difference, you know!"</p>
+<p>Whether my acting worked or not, Seizawa Shii said with a smug grin. I unintentionally said, "Yeah, good job," but Seizawa Shii pounced on me with a "Gotcha!" expression.</p>
+<p>,You didn't watch the match, did you!? You should have watched when it was my turn to run~☆"</p>
+<p>,Sensei~! You didn't watch the match? Isn't that too much?"</p>
+<p>,Sensei-ssi, that's too much! I can't even defend you on this one."</p>
+<p>,Ahahaha...! Sorry, I was busy planning the next match."</p>
+<p>As Seizawa Shii scolded and yelled at me, the other students also added a word each with disappointed expressions. Even though I made excuses, it didn't seem like they were going to let it go. Minamoto Risa, unable to watch the students' nagging any longer, made an excuse for me instead.</p>
+<p>,Ah, it's because of me. My calf hurt from overdoing it in the three-legged race, so Naruse had to run instead. So I was so focused on forming a team that could win that I didn't watch the match."</p>
+<p>,Risa-tan, are you okay?"</p>
+<p>,Your calf? Was it the one that was tied up?"</p>
+<p>,Should I give you a massage or something?"</p>
+<p>As expected, they seemed to let it go since she said she was in pain. Seeing everyone worried, Minamoto Risa, who was cold to men and me, was quite loved by her classmates. She was doing a good job as the class representative.</p>
+<p>,It's okay, it's just muscle shock from running too fast. The newly formed teams are..."</p>
+<p>Minamoto Risa quickly announced the equestrian battle teams. I called Saionji Diana and Otagi Yuka and asked them to take good care of Naruse Shiyo.</p>
+<p>-The Red and White Team equestrian battle will begin soon, please proceed to the arena.</p>
+<p>The announcement signaling the preparation for the final match rang out. Since the equestrian battle was a match that almost all students participated in, the schoolyard was swarming with students. Everyone was wearing the red and white hats of their respective teams, but apparently, they switched to hats from headbands a dozen years ago because there were too many accidents.</p>
+<p>The captain of the Red Team was, as expected, the student council Chairman Taira Kanna. The captain of the White Team was the Public Morals Committee Chairman Nakanoin Rina, who had a confident expression on her face.</p>
+<p>Our class's students were in charge of the left wing, and when the screen showed Uenozono Karen, one of the riders, wearing a red hat, the students who couldn't participate in the equestrian battle cheered. I didn't know until now, but Uenozono Karen was quite popular...</p>
+<p>-Ready... Beeep!</p>
+<p>After the "ready" signal that I had heard so many times today, the teams of four formed horses and advanced towards each other's territories.</p>
+<p>The most noticeable after the start was Kujo Kina's team, with Alik riding piggyback. Usually, two people hold the rider's legs and one person supports from behind to create the horse, but Kujo Kina put Alik on top of her and had the other two support Alik from behind, creating an unconventional horse.</p>
+<p>Kujo Kina ran towards the White Team's formation at an incredible speed, like a warhorse carrying a vanguard. Of course, she didn't care about her allies following her and charged alone, so she was bound to be surrounded by the White Team. But the rider on Kujo was Alik. Like a cat dodging a snake's strike, he dodged the hands trying to snatch his hat with incredible reflexes, and when he counterattacked, Alik's hands invariably held a white hat.</p>
+<p>The next thing I saw was Naruse Shiyo's team, which I was worried about. Of course, it was a team with the overpowered horse combo of Saionji Diana and Otagi Yuka, so they were making the most of that advantage. Like an out-boxer, the horses would automatically step back when the opponent reached out, and they would push in at the timing when the opponent withdrew their hand, allowing Naruse Shiyo to take off the hat just by reaching out.</p>
+<p>Naruse Shiyo was weak, but she surprisingly had a good sense of touch, so she was able to eat the meals that the horses prepared for her. It seemed like it had been a long time since she had a match like this, so she seemed quite happy. Even though it was an athletic meet match, it must have been a very long time since she had played with her friends like this.</p>
+<p>Of course, the White Team, which strangely included most of the Public Morals Committee members, also fought quite well, but the Red Team was able to win thanks to the strength of Kujo Kina and Alik's team, Naruse Shiyo's overpowered horse team, and the iron wall-like Captain Taira Kanna's team.</p>
+<p>Fortunately, despite the quite intense equestrian battle, no students were injured, and finally, all the events of the athletic meet were over.</p>
+<p>_________________</p>
+<p>Naruse Shiyo's athletic meet outfit~!</p>
+<p>I don't know what the greasy-eyed dolphin next to her is ㅋㅋㅋㅋ</p>
+<p>Why is she glaring from the window ㅋㅋㅋㅋ</p>
+<p>Naruse Shiyo wearing an equestrian battle hat.</p>

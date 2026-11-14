@@ -5,94 +5,83 @@ weight = 720
 chapter = 720
 +++
 
-<p>"Teacher, please give me the sex education I couldn't get before♥"</p>
-<p>Han Yu-gyeong tried to do a role-playing situation wearing a school uniform, and now Ha Ju-yoon, Han Yu-gyeong's mother, is also calling me 'teacher' and trying to do a role-playing situation right away.</p>
-<p>They didn't even plan it together, but is it like mother like daughter? The clothes they chose and the actions they did while wearing them were so similar that it was almost creepy. But if I don't accept it, it'll be awkward, so I have to play along nonchalantly.</p>
-<p>"Where did I leave off...?"</p>
-<p>"Aww.... You were going to teach me how to kiss first♥"</p>
-<p>She's being too proactive for a student, isn't she? If she leads the story this way, I have no choice but to follow, so I was like, 'Is that so?' and gave Ha Ju-yoon a bird kiss.</p>
-<p>*Tch*.</p>
-<p>"Like this kiss?"</p>
-<p>"Noooo.... A more explicit and sticky adult kiss, Teacher~"</p>
-<p>"The teacher doesn't know what kind of kiss Ju-yoon student is talking about?"</p>
-<p>When I pretended not to know Ha Ju-yoon's explicit request, Ha Ju-yoon matched her lips to mine, put her tongue in my mouth, and started kissing explicitly on her own.</p>
-<p>"Like thiiis, *tchuuup*, *tchup*, like thiiiis.... *Tchoooch tchuup*...! Like this kiss♥"</p>
-<p>Ha Ju-yoon was trying to teach me instead, making kisses that made anyone who heard them feel explicit. Even though she's cosplaying as a student, it seems like her lewd instincts inevitably come out when she's frustrated because she's a former married woman.</p>
-<p>I kissed and caressed Ha Ju-yoon's body, and it was like her whole body was an erogenous zone, so wherever I touched, the reaction was good.</p>
-<p>Every time I touched her, she flinched or made a nasal sound like *heuung* while kissing, so it was fun to touch her.</p>
-<p>"Haa.... Teacher~! Now, *heu-eut*...! Let's move on to the next step♥"</p>
-<p>The difference between Ha Ju-yoon and Han Yu-gyeong is that unlike Han Yu-gyeong, who throws away the role-playing situation with just a little stimulation, she doesn't forget her role and keeps going. Even in this, her attitude as a top actress stood out.</p>
-<p>"The next step must be here, right?"</p>
-<p>"Haaang, yees...! There, *heu-eut*! That's the neeeext...! Step♥"</p>
-<p>I touched Ha Ju-yoon's big breasts greatly over her school uniform, and judging from the fact that I could clearly feel Ha Ju-yoon's nipples in my palm, it seemed like she wasn't wearing a bra.</p>
-<p>Touching the soft, motherly huge breasts that changed shape as I touched them felt good for my mental health. It was like I felt relieved.</p>
-<p>I also felt conflicting feelings of relief and excitement, but it felt even more addictive, especially because of Ha Ju-yoon's explicit reaction.</p>
-<p>"Haa-eu-heu...! I like it when Teacher's big hands touch me, *heo-eot*...! I loooove it♥"</p>
-<p>"I also like the feel of Ha Ju-yoon student's big breasts."</p>
-<p>"You feel good about my breasts, *heu-eut*! feel? Then, *heu-eut*...! Touch them more, Teacher...!"</p>
-<p>She kept asking me to touch them, so I touched them until she reached her climax with just her breasts, and Ha Ju-yoon was about to collapse with her legs giving out, making moans like *hya-eu-eu-eut*!</p>
-<p>"Haa, haa.... Haa, Teacher. That felt good...♥ Now, I'll do it for you. Sit on the bed."</p>
-<p>Ha Ju-yoon sat me on the bed and started taking off my pants. She was so impatient that she took off my pants and underwear at the same time, and her eyes sparkled as she looked at my dick that bounced up with a *taeng*.</p>
-<p>"Haa.... Yong-tae's dick, it's been a while.... Yong-tae's dick smell, *haa-eut*.... I like it so much...."</p>
-<p>"Noona, did you decide to stop acting now?"</p>
-<p>When I looked at Ha Ju-yoon, who was burying her nose in my dick and smelling it, her eyes were already in the shape of hearts, so it seemed like she had thrown away everything, including acting.</p>
-<p>"Seeing Yong-tae's dick, *haa-eut*, my lower abdomen is *kyuungkyuung*, so *heu-eung*♥ I can't think of anything...!"</p>
-<p>"You said you'd make me feel good?"</p>
-<p>"Ah, did I?"</p>
-<p>At my words, Ha Ju-yoon, who took off the Francisco Girls' Academy uniform top, stuck out her holy tongue, licked my dick to wet it with saliva, and then put my dick in her huge breasts. It seemed like she was going to give me a titjob.</p>
-<p>"I'll make you feel really good?"</p>
-<p>Ha Ju-yoon pressed her breasts on both sides to make them stick to my dick, and then put the dick that was sticking out without being hidden above her breasts in her mouth.</p>
-<p>*Tzgeuk, tzgeuk, tzgeuk,*</p>
-<p>Along with the explicit sound of her breasts and dick rubbing together, the sound of Ha Ju-yoon sucking on my dick, *tzzup, tzzup*, mixed in, giving me pleasure to the point where my butt was shaking.</p>
-<p>The feeling of her soft breasts, the feeling of her tongue targeting all my weak spots, and the feeling of a vacuum fellatio all combined, making it seem like Ha Ju-yoon was a succubus trying to extract my semen.</p>
-<p>"Keu-eu-eut...! Noona, that feels good...!"</p>
-<p>"I'ww make you feew even bettew♥"</p>
-<p>I don't know what she's saying because she has my dick in her mouth, but judging from the fact that she's shaking her breasts faster and the vacuum fellatio feeling is getting stronger, it seemed like she said she'd make me feel even better.</p>
-<p>"Eueuk...! I'm gonna cum, Noona!"</p>
-<p>I quickly felt like I was going to cum from Ha Ju-yoon's titjob vacuum fellatio attack, so I didn't hold back and cummed in Ha Ju-yoon's mouth as it was.</p>
-<p>*Byuuut! Byuuut! Byuuut! Byeut!*</p>
-<p>My semen always boasted an enormous amount of ejaculation, so Ha Ju-yoon, who was doing fellatio after a long time, couldn't eat all the semen and spat out about half of it.</p>
-<p>"Cough...! Aish! There's too much, Yong-tae-ah...!"</p>
-<p>The spat out semen fell on her breasts as they were, covering Ha Ju-yoon's breasts.</p>
-<p>"The lubricant has been replenished?"</p>
-<p>Ha Ju-yoon laughed at the semen sprayed on her breasts and started titjob again. The semen that had been pooling in my urethra came out due to the pressure of her breasts, adding more lubricant and making it an even more slippery titjob.</p>
-<p>Because of the new stimulation, my dick didn't deflate and was able to maintain its hardness.</p>
-<p>"What are you doing?"</p>
-<p>While Ha Ju-yoon was looking up at me and continuing to do titjob, a voice came from the entrance of the room. When I turned my head, Nae Fitzgerald, who had bought a lot of things from the convenience store, was looking at us with a displeased expression.</p>
-<p>Could it be that she's angry because she came because of the contract, but I didn't care about the contract and was having sex?</p>
-<p>"Ju-yoon~! How could you do this? You were going to do it with me when Ryuta came, right?"</p>
-<p>That wasn't it. Looking at Nae Fitzgerald's eyes, which were already burning with lust, it seemed like she wasn't even thinking about the contract in her head.</p>
-<p>"Nae didn't come for so long, so I was just enjoying some foreplay."</p>
-<p>I had already cummed a lot, so it was a bit much to call it foreplay, but Ha Ju-yoon used her acting skills to say it with a really wronged expression.</p>
-<p>"The smell of semen is already filling the room! What do you mean just foreplay?"</p>
-<p>"Ahaha.... Was that a bit of a stretch?"</p>
-<p>I and Ha Ju-yoon didn't notice it, but it seemed like the smell of my semen was already wafting in the bedroom. Ha Ju-yoon looked embarrassed when she saw Nae Fitzgerald putting her hands on her hips as if she was sulking and turning her head away.</p>
-<p>"I'm sorry. Instead.... I'll let you lick this."</p>
-<p>Ha Ju-yoon said, pointing to her chest while not stopping the titjob.</p>
-<p>I don't know if 'this' that Ha Ju-yoon said refers to my semen covering Ha Ju-yoon's breasts or my dick that was sticking out above Ha Ju-yoon's breasts, but Nae Fitzgerald, who heard those words, hesitated for a moment and then approached with an unavoidable attitude.</p>
-<p>"I'm only letting you off the hook this once?"</p>
-<p>Nae Fitzgerald, who said she'd let her off the hook, started licking my semen that was pooling on Ha Ju-yoon's breasts. When I thought that 'this' that Ha Ju-yoon said was semen, Nae Fitzgerald, who had licked all the semen, put my glans in her mouth.</p>
-<p>Seeing her lick both the semen and my dick, it seemed like 'this' that Ha Ju-yoon said referred to everything on her breasts.</p>
-<p>Naturally, Nae Fitzgerald, who was sucking on my dick, was in charge of fellatio, and Ha Ju-yoon was in charge of titjob, but in reality, it was no different from Ha Ju-yoon doing fellatio while doing titjob, but as they each focused on their assigned task(?), I started to feel a different kind of pleasure than before.</p>
-<p>*Tzgeok tzgeok tzgeok!*</p>
-<p>*Tchuup, tchuup-tchuup-tchuup! Tzzeub...!*</p>
-<p>"Keu-eu-eut...! That feels good."</p>
-<p>The explicit air in the bedroom, where the sound of breasts and dick rubbing together, the sound of my glans being sucked, and my moans were mixed, gradually became thicker.</p>
-<p>It was embarrassing that I had just cummed, but the sincere skills of the current married woman and the former married woman made me feel like I was going to cum again.</p>
-<p>"I think I'm gonna cum!"</p>
-<p>At my words, Ha Ju-yoon and Nae Fitzgerald simultaneously raised the pitch of their titjob and fellatio as if telling me to cum quickly.</p>
-<p>*Tzgeok!Tzgeok!Tzgeok!Tzgeok!*</p>
-<p>*Tchuup!Tchuup!Tzzeup!Tzzeub!*</p>
-<p>Naturally, I had no choice but to lift my waist and cum from the even stronger pleasure that felt like they were trying to extract my semen.</p>
-<p>*Byuuut! Byuuut! Byuuut! Byuuut!*</p>
-<p>Nae Fitzgerald swallowed my semen that was gushing out to the end. Unlike Ha Ju-yoon, who couldn't swallow all the semen, she seemed to have prepared in advance and swallowed the semen every time my dick expanded and I cummed.</p>
-<p>"Haa.... Haa.... Haa...."</p>
-<p>I was just sitting still and receiving service, but I felt like I had sprinted at full speed because I had cummed twice in a row.</p>
-<p>"You both received it in your mouths once, so that's enough, right?"</p>
-<p>"Yeah, it's delicious to eat Ryuta's semen after a long time? Ehehe♥"</p>
-<p>Nae Fitzgerald smiled and answered at Ha Ju-yoon's words. It seemed like she had already gotten over her sulking.</p>
-<p>The two started taking off their clothes in front of me with expressions that said, 'Shall we start in earnest now?'</p>
-<p>Ha Ju-yoon had already taken off her top while doing titjob, but she slowly took off her skirt as if she was trying to make me impatient (she was wearing no panties), and Nae Fitzgerald was in a hurry, so she took off her clothes in an instant, so the speed at which the two took off their clothes was similar.</p>
-<p>And they both stood in front of me, slightly spread their legs, and spread their pussies with their hands.</p>
-<p>"Who do you want to eat first?"</p>
-<p>Seeing that they said the same thing at the same time, it seemed like they had prepared in advance. But I was really worried. Who should I do it with first?</p>
+<p>Nara Prefecture, Nara Autonomous City, Minamoto Main Family Residence.</p>
+<p>Breakfast at the Minamoto household was quiet. Unlike the Taira family, who had many guests and only ate with family, using the meal to evaluate the past year, the Minamoto family ate with people sent from Japan's prestigious families, who had been famous since ancient times. Everyone was careful and ate quietly.</p>
+<p>The Minamoto family had to show dignity as the hosts, and the guests, as members of prestigious families, couldn't afford to make mistakes at the Minamoto residence.</p>
+<p>,It's suffocating.'</p>
+<p>Minamoto Risa didn't like this oppressive atmosphere. But since it only happened once a year, she quietly endured the New Year's meal.</p>
+<p>Eating quietly like this made her miss the noisy meals with her special class friends, her homeroom teacher, and Yamashiro Ryuta.</p>
+<p>,What are they up to?'</p>
+<p>She heard that Yamashiro Ryuta was in Korea right now. She wanted to go see Yamashiro Ryuta right away, but she couldn't due to practical reasons. It was because of New Year's gatherings like today and the upcoming entrance exam studies.</p>
+<p>,I miss him....'</p>
+<p>Minamoto Risa missed Yamashiro Ryuta, but she was inexplicably angry. She was sure that her homeroom teacher, who only had a decent face and body, wouldn't miss her as much as she missed him.</p>
+<p>,Since we've finished eating, let's have some refreshments.'</p>
+<p>As Minamoto Ushin put down his chopsticks, the meal was quickly cleared away, and tea and traditional sweets were placed on the table. The meal was quiet, but the refreshment time was a bit more relaxed, and the sound of conversations gradually began to be heard.</p>
+<p>,Have you heard about the recent stories of espers? According to intelligence from the American branch, there's information that the Black Knight is American.'</p>
+<p>Minamoto Kazumasa, the eldest son of Minamoto Ushin, who is in charge of the Minamoto Group's American headquarters, took a sip of tea and opened his mouth. As he was in the American branch, Minamoto Kazumasa was well-informed about American intelligence.</p>
+<p>,Wasn't he originally American? His first appearance was in America too....'</p>
+<p>,Didn't he appear in North China this time? Because of that, Taiwan is claiming that the Black Knight is Taiwanese, so it seems the American intelligence agency leaked the information.'</p>
+<p>One of the guests from a prestigious family tilted his head and spoke, and Minamoto Kazumasa added an explanation. Minamoto Risa was also drinking tea and listening intently to the story because she felt a sense of déjà vu after watching the recent Black Knight video.</p>
+<p>,He has the same telekinetic ability as him?'</p>
+<p>The Black Knight had a similar physique to Yamashiro Ryuta and even had telekinetic abilities, so she suspected that they might be the same person, but Minamoto Risa knew that Yamashiro Ryuta was in Korea, so she thought it couldn't be.</p>
+<p>,As you can see in the video, the Black Knight is incredibly strong. I think we should create an esper unit too.'</p>
+<p>,Danjo-yeonggam will like that. He's the one who's collected the most espers in Japan.'</p>
+<p>The Minamoto Group invested more in cyber implant mechanical soldiers, which could consistently demonstrate combat power with technology, rather than mutants like espers, so they had fewer espers than the Taira Group.</p>
+<p>,We can catch up too. I'll look for American, Mexican, or South American espers from the American branch.'</p>
+<p>Minamoto Kazumasa confidently said that the gap with Taira could be narrowed quickly. Most of his siblings knew this side of Minamoto Kazumasa. When Minamoto Kazumasa was this confident, everything was perfect.</p>
+<p>Judging from his confident attitude now, he must have already gathered a considerable number of espers. Listening to the story, it was clear that he had gathered a considerable number of espers not only in America but also in Central and South America before bringing up the topic.</p>
+<p>,Alright, do a good job. We can't keep falling behind Danjo-yeonggam in this field.'</p>
+<p>,I'll look into it too.'</p>
+<p>,I'll check the European branch, Father.'</p>
+<p>Everyone started saying that they would gather espers, as if trying to get into Minamoto Ushin's good graces. They had been going back and forth with Taira in various fields, but the Minamoto family had always been lagging behind Taira in the esper field.</p>
+<p>Rumor has it that the Kujo Corporation, which ranks 3rd or 4th in Japan, has also been researching the abilities of espers for a long time, so if Minamoto joins in, the competition for espers is likely to intensify further.</p>
+<p>Minamoto Risa was quietly eating tea and sweets, but she found the sight of her siblings competing to secure espers for Minamoto Ushin disgusting.</p>
+<p>It was like disgusting bugs swarming around a sweet candy. Of course, the reason Minamoto Risa hated that sight was because she also had to do the same thing to succeed within the Minamoto Group.</p>
+<p>,Let's stay still on the esper side.'</p>
+<p>Minamoto Risa judged that the power of espers lay in their unpredictability. Even if she recruited espers, she didn't plan to inform Minamoto Ushin or her half-siblings. She might use those espers as knives to stab her half-siblings someday.</p>
+<p>,Next....'</p>
+<p>Most of the people sitting here weren't interested in Minamoto Risa's opinion, so they quickly moved on to the next agenda. Minamoto Risa wanted to stay quiet, but she couldn't because the next topic itself was about Minamoto Risa, who had just become an adult.</p>
+<p>,Our Risa passed the Minamoto Group's test in high school. She'll be working at the Minamoto Group from this year. Risa, you should greet the guests here too. They're the ones who will help you in the future.'</p>
+<p>At Minamoto Ushin's words, everyone looked at Minamoto Risa. Most of the guests of the Minamoto family were high-ranking officials from prestigious families, so it was a good opportunity to introduce Minamoto Risa.</p>
+<p>Minamoto Risa also knew it was a good opportunity, so she stood up from her seat and bowed.</p>
+<p>,I'm Risa, the youngest of the Minamoto family. I look forward to working with you.'</p>
+<p>At Minamoto Risa's greeting, the guests gave words of blessing and applauded. Of course, all the prominent aristocratic families gathered here would have successors they supported, but they didn't think Minamoto Risa would affect the succession structure, so they were all sincerely giving her words of blessing.</p>
+<p>Moreover, in front of Minamoto Ushin, even her half-siblings were clapping with fake smiles. They didn't seem to think of Minamoto Risa as an enemy at all. Minamoto Risa, who was smart, also felt that atmosphere.</p>
+<p>,Just you wait, see who's laughing later. I'll surprise you all.'</p>
+<p>,Thank you for your kind words. I'll do my best in the future.'</p>
+<p>Minamoto Risa hid her feelings and, at the same time, gave thanks for the blessings with a natural smile.</p>
+<p>###</p>
+<p>Incheon Metropolitan City, Shinkang Group Han Family Main Residence. Shinkang House (新强屋).</p>
+<p>Shinkang House, where Han Mun-gang, the head of the Shinkang Group, resides, was bustling with visits from Shinkang Group executives and the Shinkang Group's owner family for the New Year.</p>
+<p>,Last year, our Shinkang Group did quite well. It was good that the BS Group suddenly collapsed and our ranking in the business world rose, and it was even better that we were able to snatch some lucrative businesses from the failed BS Group.'</p>
+<p>Han Mun-gang talked about the BS Group's collapse incident that happened this year. Various opinions were divided, but it was thought that the BS Group's collapse was caused by the BS Group's factions fiercely engaging in a succession war with each other.</p>
+<p>Most of the people here thought so too. Except for Han Yu-gyeong herself, no one thought that the BS Group's collapse was caused by Han Yu-gyeong.</p>
+<p>It all started with Park Sang-beom, the grandson of the BS Group, who kept bothering Han Yu-gyeong, and the incident grew bigger and bigger, eventually leading to the collapse of the large corporation BS Group. In that situation, Han Yu-gyeong gained enormous profits through the BS Group's secret research labs and various investments.</p>
+<p>,But on the other hand, think about how the BS Group, which had a higher ranking in the business world than us, disappeared without a trace in just a few months. Our Shinkang can become like that at any time if we're not careful. That's why I'm saying this firmly here.'</p>
+<p>Han Mun-gang stood up from his seat and looked at each person sitting at the table. He looked at his children, Shinkang Group executives, grandchildren, and granddaughters once and opened his mouth.</p>
+<p>,I will not allow armed conflict in the succession dispute in our Shinkang Group. The only thing I consider important in the succession dispute is performance! Only those who show outstanding performance in business will get closer to my successor position.'</p>
+<p>It was a determination not to follow in the footsteps of the BS Group, which failed due to a war between successors. In fact, Han Mun-gang's words were not fair.</p>
+<p>For Han Yu-gyeong, who is a woman and doesn't have a specific position in the Shinkang Group, or Han Seong-jae, Han Yu-gyeong's father, who hasn't been back to the Shinkang Group for long and has almost no power within the group, the words to produce results were meaningless and empty.</p>
+<p>,By the way, Yu-gyeong-a, you're twenty-one years old now, so shouldn't you start looking for a marriage partner? Having a family rather than work is a woman's true joy.'</p>
+<p>During the meal, Lee Woo-hee, the wife of Han Kyung-jae, Han Mun-gang's third son, opened her mouth while looking at Han Yu-gyeong. Han Yu-gyeong was dumbfounded by those words.</p>
+<p>She knew that Han Kyung-jae and Lee Woo-hee got married in their late twenties, but telling her, who is twenty-one years old, to find a marriage partner was completely out of touch with the times and her intentions were transparent. It was a way of saying to put TG Tech up for sale to another family.</p>
+<p>,Should I? My husband's side would be very happy. They can have a wife who is the president of TG Tech with just one marriage.'</p>
+<p>When Han Yu-gyeong answered with a smile, Lee Woo-hee couldn't say anything. Everyone understood the meaning of Han Yu-gyeong's words. It meant that if they forced her to marry, she would take TG Tech as part of her dowry. If Han Yu-gyeong left with TG Tech, the Shinkang Group would only be doing good for others, so no one could say anything to Han Yu-gyeong's words.</p>
+<p>Han Yu-gyeong answered with a smile, but she was quite annoyed. People who didn't give even 1% of help to TG Tech were not just trying to put a spoon on the bowl, but trying to take the bowl away entirely, so she couldn't help but be annoyed.</p>
+<p>,Everyone, stop it. Yu-gyeong's TG Tech was raised separately without our help, so don't think of it as something you've entrusted.'</p>
+<p>,Father! Still....'</p>
+<p>As Han Kyung-ga tried to open his mouth, Han Mun-gang raised his hand as if telling him to stop.</p>
+<p>,If we consider TG Tech as a company of our Shinkang Group, Yu-gyeong would be the person with the highest performance in 2053, would that be okay?'</p>
+<p>,Ah.... I understand.'</p>
+<p>She was watching to see if her grandfather would help her for once, but if he recognized TG Tech as part of the Shinkang Group, it seemed like he was stopping his children because it would lead to the result of Han Yu-gyeong being the closest to the successor, according to the words he said about selecting a successor.</p>
+<p>,Yu-gyeong-a.'</p>
+<p>,Yes, Grandfather.'</p>
+<p>,Aren't you busy with your school life and the company you founded?'</p>
+<p>,It's okay, it's manageable.'</p>
+<p>Han Yu-gyeong shook her head and answered that she was okay because she thought he would make a suggestion like her uncle before, asking if she was too busy and should entrust the company work to someone else. But Han Mun-gang made a completely different proposal than Han Yu-gyeong expected.</p>
+<p>Is that so? Then that's good. If you have the capacity, take charge of one of the Shinkang Group's affiliates. You're a Han, so you're qualified. You're also the top student at Korea University, who has made our family's excellence known.</p>
+<p>Everyone gathered at the meal, including Han Yu-gyeong, was surprised by Han Mun-gang's proposal. This was because there was no president of an affiliate in Han Yu-gyeong's rank except for Han Gi-wook, the son of Han Byung-jae, Han Mun-gang's first son.</p>
+<p>The rest were at most executives of affiliates, but they had not received a proposal to become the president of an affiliate from the start like Han Yu-gyeong. Even Han Seong-jae, Han Yu-gyeong's father, had not yet taken charge of an affiliate.</p>
+<p>______</p>
+<p>Dancer Lisa-ssi requested by RefundAbsolutelyNotAllowed-nim!</p>
+<p>I couldn't move on to the requested Home Economics Teacher because I was trying out various dancer outfits hehehe. I'll postpone the Home Economics Teacher to tomorrow~!!</p>

@@ -5,69 +5,83 @@ weight = 1066
 chapter = 1066
 +++
 
-<p>In northern New Rochelle, where the fierce Fragment of Omniscience struggle was taking place, all those gathered here were revealing their ugly Greed for the Fragment of Omniscience, but most were individuals who had reached a great Realm.</p>
-<p>Even while battling the Opponent in front of them, each was on edge, not knowing who else might snatch the Fragment of Omniscience. Even while fighting, they were preparing to Attack anyone who reached for the Fragment of Omniscience at any time, so they were not fighting with full power. Perhaps because of that, the current standoff situation was not ending quickly and was in a sluggish, protracted state.</p>
-<p>In the midst of that, as Fujigasaki Rinka, who had reached a similar Realm as themselves, entered this area where the Fragment of Omniscience struggle was taking place, they couldn't help but show an uncomfortable Expression. Because no one wanted another competitor appearing.</p>
-<p>"Hmph!"</p>
-<p>Fujigasaki Rinka scoffed at those fighting the Opponents in front of them, even while they overtly glared at her, and looked around. Since she wasn't aiming for the Fragment of Omniscience anyway, if she didn't get close, she wouldn't be attacked, and her purpose was only her Sabu, Soda Haruto, so there was no need to fight them.</p>
-<p>Fujigasaki Rinka's Sabu, the Black Knight, whom she was searching for, was not seen in this vicinity. However, some who appeared to be Subordinates of those currently fighting were seen supporting their Chiefs.</p>
-<p>Magicians, the Vampire clan, Werewolf and Lizardman packs, and the rest, whose True Identities were unknown, were keeping each other in check and watching their Chiefs' battles.</p>
-<p>"Hey, have you perhaps seen the Black Knight?"</p>
-<p>Fujigasaki Rinka went and asked the Magicians, who seemed the most likely to be reasoned with. It seemed better to get even a small clue rather than just passing them by and heading north.</p>
-<p>"I don't know. The Black Knight hasn't come this way."</p>
-<p>As Fujigasaki Rinka approached, the tense Magicians seemed to feel Relief, seeing that Fujigasaki Rinka seemed to have no Interest in the Fragment of Omniscience. As if trying to send her away quickly, they repeatedly answered that he wasn't here.</p>
-<p>Fujigasaki Rinka made a Regrettable Expression at the Magician's "I don't know" Answer. If so, the Black Knight would be either in the north, which she had to pass through the center to reach, or in the west, where her Disciple, Ryuta-nyeoseok, had gone.</p>
-<p>-Black Knight...?</p>
-<p>Not long after the Magician said he didn't know, a Voice was heard from empty space. After that, suddenly, the empty space tore open, and someone wearing a Black Robe and hood slowly emerged from the torn space.</p>
-<p>"?!"</p>
-<p>The pitch-black Black Robe and the staff burning with ominous purple Fire, several infamous eyeball-shaped monsters called Psy-Gores flying around as if guarding him-the Appearance was identical to that of the Black Sage, as Fujigasaki Rinka had heard when Torturing Serihara Tamajiro, her Sabu's old friend who had betrayed her Sabu.</p>
-<p>Not just his Appearance, but also an Atmosphere that seemed to absorb all surrounding sounds, and a massive Aura that seemed to move like Myeonggyeongjisu, yet was invisible-Fujigasaki Rinka felt Taut Tension and opened her mouth.</p>
-<p>"You are the Black Sage...?"</p>
-<p>Inside the Black Sage's hood, nothing was visible except two burning Gazes. It was an Appearance as if there were only two burning Orbs in a black space. As Fujigasaki Rinka immediately recognized his True Identity, the Black Sage's Eyes burned even more fiercely, as if with Intrigue.</p>
-<p>"That's right. I am the Black Sage. You... I see."</p>
-<p>The Black Sage immediately seemed to realize Fujigasaki Rinka's True Identity and nodded his Head.</p>
-<p>"Indeed, you are Soda Haruto's Disciple. I feel the same Aura. I was watching how long those idiots would fight, but while waiting, luckily, the best Collection came to me on its own Feet."</p>
-<p>The Black Sage gazed at Fujigasaki Rinka with a greedy Gaze. The idiots the Black Sage spoke of seemed to refer to the others fighting over the Fragment of Omniscience.</p>
-<p>"It's dragged on long enough, it's about time to end it. I will take both the Fragment of Omniscience and the best Collection."</p>
-<p>The Black Sage raised the Hand holding his staff and pointed at the Moon. Along with an ominous purple current, a 'woooong' sound wave, as if causing motion sickness, spread around, and the shape of the crescent moon began to change.</p>
-<p>The ends of the crescent moon gradually lengthened, and before long, both ends joined. Now, the crescent moon no longer hung in the Sky. A ring-shaped Moon hung in the night sky, as if a lunar eclipse had occurred.</p>
-<p>The moment the ring-shaped Moon cast an ominous blue Light upon the entire Earth, the Werewolves, Lizardmen, and Vampires began to run Crazy. That ominous ring-shaped Moon seemed to be Stimulating the primal instincts of the seeds of Darkness.</p>
-<p>Fujigasaki Rinka was surprised by the Black Sage's Ability, which could almost be called Authority. To change the shape of the Moon...! Of course, it was a magical Effect, so the Moon hadn't truly changed, but the mere act of exerting that Ability over such a wide range was an incredible feat.</p>
-<p>"Kuaaaah! What the hell is that Crazy Magician?!"</p>
-<p>As his Blood relatives went Crazy due to the Black Sage's suddenly appearing Ability, the Vampire Grand Duke, who was fighting the SPF New York Branch Chief, a Vampire Hunter in Knight attire, screamed.</p>
-<p>The Vampire Grand Duke, who was both a powerful Vampire and a Magician, had a strong Mental barrier, so he didn't move according to Instinct like his Blood relatives, but he knew that The Situation was turning strange.</p>
-<p>Especially seeing the Gaze of the Werewolf Chief, the leader of the fiercely primal Werewolves, gradually changing, he became convinced that the Balance that had been maintained by mutual checking and Awareness until now would be broken.</p>
-<p>"Keuhheong!!"</p>
-<p>The Werewolf Chief, who was fighting the Magicians, extended his Claws and wildly swung them, wounding several Magicians. Then turned his Body and began to climb the only intact Building in this vicinity, where the Fragment of Omniscience had fallen along with a carpet.</p>
-<p>"Kill that wolf Bastard first!!"</p>
-<p>"We cannot let those other bastards get their Hands on the Fragment of Omniscience!!"</p>
-<p>The Magicians began to cast Magic at the Werewolf, who was climbing 2-3 floors with each leap, and the SPF New York Branch Chief abandoned the Vampire Grand Duke he was fighting and began to run and climb the exterior Wall of the Building, following the Werewolf.</p>
-<p>Only the Lizardman Warlord, who had maintained his composure even amidst the Black Sage's Moon Magic, was the only one glaring at the Black Sage, his Trident aimed at him.</p>
-<p>"You're a Cowardly Guy who preys on Opportunity from within the veil of Darkness...! A Coward like you will never show your Face before the Sun!!"</p>
-<p>The Lizardman Warlord, with a hissing Tongue sound, began to Curse the Black Sage.</p>
-<p>"To the Eyes of a reptile, it might seem Cowardly, but this is called wisdom."</p>
-<p>The Black Sage spoke as if unfazed by the Lizardman Warlord's Curse. It wasn't just anyone speaking, so the Lizardman Warlord's Words truly had the Effect of a Curse, but the Lizardman Warlord's Curse had no Effect on the Black Sage.</p>
-<p>Because The Situation, which had been sluggish, was already changing according to the Black Sage's Intention, he didn't seem to be in a bad Mood despite the Curse.</p>
-<p>"Hehe, do you have Time to worry about me?"</p>
-<p>As the Black Sage said, the Werewolf Chief approached the rooftop of the Building, and the SPF New York Branch Chief closely pursued him. The Vampire Grand Duke and the Magicians also flew through empty space towards the Building's rooftop to stop the Werewolf.</p>
-<p>The Lizardman Warlord, who had tried to keep the Black Sage in check but had neglected the Fragment of Omniscience, realized that he was already too late.</p>
-<p>"Since things have come to this, I will kill you and offer you as an Offering to the Gods!"</p>
-<p>At the thought of being left behind in the Fragment of Omniscience struggle, the Lizardman Warlord's Anger exploded. Fujigasaki Rinka watched his Appearance and clenched her Fist.</p>
-<p>No matter that her Plan was to only find the fake Black Knight and retreat, in The Situation where the Mastermind behind her Sabu's Kidnapping had revealed himself, she couldn't ignore him and leave.</p>
-<p>And with Fujigasaki Rinka's sharp Premonition, because she had a thought close to a Conviction that if she left the Black Sage alone now, she would Regret it greatly later, she solidified her Resolve to Attack the Black Sage together with the Lizardman Warlord when he attacked.</p>
-<p>"Normally, a calm Lizardman wouldn't Attack me... but the power of the Sorcery seems to have been too strong...."</p>
-<p>Watching the Lizardman Warlord charging at him with a Trident, the Black Sage muttered. But as if not troubled at all, the Eyes glowing with inner Light within his hood narrowed thinly, taking on an Appearance as if smiling.</p>
-<p>"I will fight you however you wish, but not now. Because I, too, am aiming for that Fragment of Omniscience."</p>
-<p>As the Black Sage waved his staff, his Appearance gradually became transparent and then vanished. The Lizardman Warlord's thrown Trident sliced through empty space in Emptiness.</p>
-<p>The vanished Black Sage reappeared 20 meters in the air. He seemed to have used short-range teleportation. The Black Sage repeatedly used short-range teleportation, heading towards the rooftop of the Building where the Fragment of Omniscience was.</p>
-<p>The Lizardman Warlord and Fujigasaki Rinka also ran after the Black Sage. Because the thought that they absolutely must not hand over the Fragment of Omniscience to the Black Sage was strong.</p>
-<p>Fujigasaki Rinka created footholds of the Abyss in empty space and stepped on them, soaring into the Sky, while the Lizardman belatedly began to climb the Building's Wall.</p>
-<p>Gojoy-nim requested Shinoe Misano 1. taking off her Bra, 2. Seduction wearing only Panties~!</p>
+<p>Due to Fujigasaki Rinka's Contact, I headed straight to the Hospital. When I arrived at the Hospital Room, Fujigasaki Rinka, Old Man Yoda, the Gwonmaeng People, and Genbaki's Sabu, Musashi Takuro, were surrounding the bed.</p>
+<p>「Disciple, you've come?」</p>
+<p>「Yes.」</p>
+<p>As Fujigasaki Rinka, who noticed my Appearance, greeted me, the Gwonmaeng People made way for us. It seemed they didn't want to disturb the meeting between Sajo and his Grand-Disciple. Sajo Soda Haruto, who was definitely better than yesterday, was lying on the Hospital bed.</p>
+<p>He now definitely looked like the aged Sabu in the Photo that Fujigasaki Rinka had shown me. Of course, he seemed like he needed to gain a little more weight.</p>
+<p>「How do you do? I am Taira Ryuta.」</p>
+<p>I greeted Sajo. Sajo Soda Haruto looked at me with a benevolent Expression and reached out his hand to pat my Shoulder.</p>
+<p>「You saved me, right? Vaguely.... I remember. Thank you for saving me.」</p>
+<p>I thought he wouldn't remember fighting me because he was almost out of his mind when Sajo and I fought, but it seemed he vaguely remembered.</p>
+<p>「Amazing. At that Age....」</p>
+<p>Soda Haruto seemed to recognize my Skill and was quite impressed. This World has a lot of Monsters, but it's not common to have this much Skill at my Age.</p>
+<p>「I'm glad you're getting better. I was very worried.」</p>
+<p>I felt Embarrassed to keep receiving Praise, so I spoke about Soda Haruto's improved Health.</p>
+<p>「I was originally destined to die, but Rinka and you took care of the Black Sage, so I lived.」</p>
+<p>The Black Sage had a small number of buha who willingly followed him and a Collection of items he had kidnapped from around the World, and Soda Haruto was said to be included in that Collection.</p>
+<p>Ahead of this Fragment of Omniscience battle, the Black Sage cast an enhancement spell on his Collection and cursed them to fight by burning their HP, and that curse was why Soda Haruto was emaciated to the point of starvation.</p>
+<p>Perhaps the Black Sage intended to sacrifice all of his Collection to obtain the Fragment of Omniscience. He probably thought that if he obtained the Book of Omniscience and reached the Realm of Transcendence, he could obtain similar Collections at any time.</p>
+<p>If we hadn't taken care of the Black Sage, Sajo would have burned all of his HP and died from the remaining curse.</p>
+<p>Ironically, it seemed that Soda Haruto's recovery was speeding up thanks to the enhancement spell that the Black Sage had cast. It was like giving Medicine after causing the illness.</p>
+<p>「Haruto, I'm Sorry....」</p>
+<p>When Soda Haruto and my Story was briefly interrupted, Musashi Takuro bowed his Head to Soda Haruto.</p>
+<p>Musashi Takuro didn't know about Soda Haruto's kidnapping and being handed over to the Black Sage, but he was apologizing for contributing to antagonizing me and Fujigasaki Rinka as a member of Anyaji.</p>
+<p>In fact, Musashi Takuro was also Genba Kiyohira's Sabu, and he helped us in the middle, so I just let it go, but Soda Haruto might not have Forgiven Musashi Takuro because the Fist Technique master he was close to tried to oppress his Disciple.</p>
+<p>「The fact that you're here means that my Disciple and Grand-Disciple have acknowledged you. Then I won't say anything either. You even helped save me this time, so we can offset that and move on, right?」</p>
+<p>Soda Haruto replied to Musashi Takuro's Apology with an aloof Attitude. Musashi Takuro seemed moved by Soda Haruto's magnanimous Words and couldn't Answer.</p>
+<p>「I heard that your Disciple is the UMC Champion who succeeded my Disciple? Bring your Disciple with you next time.」</p>
+<p>「I understand. I'll bring Kiyohira with me next time.」</p>
+<p>That's how the awkward Apology and Forgiveness time passed, and the Conversation between Fujigasaki Rinka, Sajo, and I continued, and I learned a new fact here.</p>
+<p>「I searched for Sabu for a long time after he disappeared. The police also said they didn't know.... and I thought Sabu was caught up in a war. So, I thought I had to become famous to find Sabu, so I decided to challenge the UMC.」</p>
+<p>Ah, I see. I suddenly remembered when Fujigasaki Rinka, who was teaching me well, said she was going to the USA, and I wondered what was going on. Fujigasaki Rinka had entered the UMC to find her Sabu.</p>
+<p>I found out the Reason today. Entering the UMC to find her missing Sabu.... It could be said that it was very Sabu-like.</p>
+<p>At the time, the Japanese Actual combat fighting World had a rather negative View of Fujigasaki Rinka's UMC challenge, but Fujigasaki Rinka didn't give in to that View.</p>
+<p>She became the UMC openweight Champion so that her Sabu could see her wherever he was, and she removed the negative View towards her.</p>
+<p>After talking for a while like that, I left the Hospital again. It was because my Aunt had contacted me to have dinner. Fujigasaki Rinka said she would stay at the Hospital until Sajo recovered to some extent.</p>
+<p>Seeing Sajo getting better, it seemed like he would be in Condition to take a Airplane tomorrow or the day after tomorrow. If Sajo's Condition doesn't suddenly change, it seems like the Schedule will be roughly right.</p>
+<p>I took the vehicle that Naruse Shiyo had prepared and headed straight to the Fitzgerald Mansion on the outskirts of New York.</p>
+<p>Everyone else except me was resting or at the Safe House to carry out the various missions I had ordered, so I was the only one heading to the Fitzgerald Mansion.</p>
+<p>As I was driving, I saw a magnificent Mansion. It had been quite a while since I had been here too. I remember having Sex with my Aunt because I mistook her for Arisu the most.</p>
+<p>I got out of the vehicle and went inside the house with the butler's guidance, and my uncle, Oliver Fitzgerald, was in the reception room looking at documents.</p>
+<p>「Nephew! Welcome! You said you had something to discuss with me?」</p>
+<p>Oliver Fitzgerald welcomed me very much, perhaps because he owed me a debt for the Isis matter. I heard that Taron's name value and stock price were soaring because I took over Isis and it was able to become a company that successfully received Investment for the Mars exploration Mission.</p>
+<p>「Yes. I heard that Taron is developing engine miniaturization Technology.」</p>
+<p>Taron was a company that made engines for spaceships and aircraft. The Technology to make large engines had been proven as a Mars development Investment company, so now they were trying to miniaturize it and apply it to various places.</p>
+<p>「That's right. The development results are quite good. We're ready to commercialize small engines at any time.」</p>
+<p>「We also want to use small engines, so I was wondering if we could use Taron's patents. Of course, I'll pay the patent fee.」</p>
+<p>Our TG Tech also needed small engines for the next Project, the Power Armor production, so I came this time to use some of Taron's patents.</p>
+<p>The Goal was to create a small engine using Taron's patents and then create our own engine that doesn't require patents in the future.</p>
+<p>「There's no Problem as long as you pay the patent fee. Of course, I can give you a little discount because it's between you and me....」</p>
+<p>Oliver Fitzgerald nodded and showed a positive Reaction. Other companies would have shown a Sensitive Reaction, but Taron and TG Tech had different Fields, such as spaceships, aircraft, firearms, and military supplies, so they showed a positive Reaction. Also, there's the friendly relationship between me and Taron.</p>
+<p>「Are the Isis researchers doing well?」</p>
+<p>I asked about it while talking about Business because I had made employment security a Condition when I handed over Isis to Taron.</p>
+<p>「That's right. They're now working hard under the name of Taron Engine Cooling Technology Research Institute, which is under Taron.」</p>
+<p>I was relieved that everyone was doing well. Cooling Technology is important for engines and all Mechanical device, so it didn't seem like they would be suddenly laid off or have nothing to do.</p>
+<p>「By the way, I heard that you became the Boss of Taira Food distribution this time?」</p>
+<p>「Yes. I was Lucky enough to succeed in Grandfather's Mission.」</p>
+<p>「Amazing! A Boss at your Age....! I was just chasing after Women while going to University at that time....」</p>
+<p>Oliver Fitzgerald looked at me as if he was proud. Then, as if he remembered something, he clapped his hands and opened his mouth to me.</p>
+<p>「Ah, there's a test flight unit in Japan that uses our engines on the US military side. How about you distribute Foodstuff to that side? I can fully build a bridge for you.」</p>
+<p>I came because of the engine Technology patent, but he's even raising the Performance of Taira Food distribution? It suddenly looked like Santa hats were being placed on top of Oliver Fitzgerald's Head. He's not Santa Claus, but he's giving out gifts like crazy.</p>
+<p>「Then I'm grateful.」</p>
+<p>「Contact me when you go to Japan. I'll connect you with the Person in charge at that time.」</p>
+<p>「Thank you, Uncle.」</p>
+<p>I greeted him politely. I thought it would take a long time with some tug-of-war over the patent rights, but I didn't expect it to end so quickly. I was glad that my Uncle was a generous and cool Person.</p>
+<p>「Is the Business Story roughly over now?」</p>
+<p>「Yes, that's right. In fact, this kind of Story can be done by the working-level people, but I came because I wanted to see my Uncle and Aunt.」</p>
+<p>「Haha! How nice would it be if our Son was like you? That guy is so taciturn. He's a football player now, so he doesn't come Home often.」</p>
+<p>In fact, when I said that I came because I wanted to see my Uncle and Aunt, he praised me by comparing me to my Cousin, Alex Fitzgerald. He treated me kindly even though it was our first meeting, so I didn't see it that way, but it seems he was quite a taciturn man at Home.</p>
+<p>「Just rest for a while. Your Aunt and Cousin are working in the Legion, so they seem to be busy every day. I don't see them often either, but they said they would have dinner together for the first time in a long time because you're coming. Thanks to you, I can see my Wife and Daughter for the first time in a long time!」</p>
+<p>Nae Fitzgerald and Arisu were in a relationship made up of the Secret of being Phantom Thief Francois, and Oliver Fitzgerald, who was a Husband and Father, was pushed to the back because they had been together for a long time to participate in this Fragment of Omniscience battle.</p>
+<p>Of course, Oliver Fitzgerald was also so busy with the Mars development Business that he couldn't meet them more often. Their Schedules probably didn't match well.</p>
+<p>「I still have Work left, so rest for a while! I'll have someone guide you to your Room!」</p>
+<p>Oliver Fitzgerald took the documents and headed to the study, and I was guided by the maid and arrived at an empty room.</p>
+<p>First, I need to tell TG Tech that the patent rights have been roughly agreed upon, and I also need to tell Linxiang that we might be able to supply to the US military unit in Japan.</p>
+<p>I lay down on the bed and waited for Nae Fitzgerald and Arisu to come while telling the story on my phone.</p>
+<p>TheDreaming requested Rinka Sabu 1. Hot spring 2. Mountain trail kick~!</p>
 <p>1.</p>
 <p>2.</p>
-<p>After creating them, I realized she was wearing Panties where her Pussy was visible, so I'm only uploading 2 images haha.</p>
-<p>TheDreaming-nim requested Herta Vogel 1. white Liquid on her Body 2. Text on her Body</p>
+<p>Gojoy requested Han Yu-gyeong 1. Covering her breast 2. Sleeping after Yas~!</p>
 <p>1.</p>
-<p>tally mark,</p>
-<p>writing on body,</p>
-<p>body writing</p>
+<p>2.</p>

@@ -5,82 +5,72 @@ weight = 1014
 chapter = 1014
 +++
 
-<p>a and before chapter check content erotic is please surroundings this with your</p>
-<p>While Taira Ryuta and Nagumo Sian were entwined, Taira Yukiko met Tosen Nobumichi.</p>
-<p>Even though he was an Elderly Person, she met him working energetically; seeing him talking with the Gardeners outside the mansion even at a late hour, Yukiko approached him.</p>
-<p>"Butler-nim."</p>
-<p>"Yukiko-nim."</p>
-<p>They were old acquaintances. Tosen Nobumichi was Taira Saburo's Butler, and Taira Yukiko was Taira Saburo's Wife, so it was natural. However, they weren't particularly close, because after Taira Saburo and Taira Yukiko married and lived in a top-tier mansion, Tosen Nobumichi remained by Taira Saburo's side as an advisor instead of a Butler. Since Taira Yukiko was dedicated to her Work at the Talent Development Center, they didn't have much contact.</p>
-<p>"But Yukiko-nim, what brings you here...?"</p>
-<p>"I'd like to speak with you alone."</p>
-<p>Tosen Nobumichi, who had worn a puzzled Expression at Taira Yukiko seeking him out, at Yukiko's Words that she wanted to speak alone, waved his Hand as if telling the Gardeners to leave.</p>
-<p>"Now, please tell me your business."</p>
-<p>Seeing all the Gardeners disappear, Tosen Nobumichi told Taira Yukiko to state her business.</p>
-<p>"Recently, I heard something. The Story that Saburo-ssi left another Will...."</p>
-<p>At Yukiko's Words, Tosen Nobumichi's Expression hardened.</p>
-<p>"That has nothing to do with Yukiko-nim. Even if Yukiko-nim is Saburo-nim's Wife."</p>
-<p>Tosen Nobumichi spoke with a resolute Expression. But no matter how resolute Tosen Nobumichi was, Taira Yukiko did not give up.</p>
-<p>"I'm not asking to force something on the people who followed Saburo-ssi. I'm just curious about the content of the Will...."</p>
-<p>Yukiko was quite shocked by the existence of another Will implied in the data she received from Taira Shizuku. And to confirm the content of that Will, she sought out Tosen Nobumichi.</p>
-<p>As stated in the data, the Saburo faction members who followed Taira Saburo either went under Taira Kanna, with whom Yukiko had a bad relationship, or moved their affiliation to the neutral unaffiliated faction, and the rest left the Taira Group, so it could be said that the only person Yukiko could ask was Tosen Nobumichi, who was Taira Ryuta's Butler.</p>
-<p>"Hmph.... It seems like something Madam Shizuku did. Since that seems to be the only Route for Yukiko-nim to know about the existence of that Will. I understand. I'll tell you the content."</p>
-<p>Tosen Nobumichi let out a small Sigh, then nodded his Head.</p>
-<p>"At the time, Yukiko-nim probably also vaguely knew, but the Offensive from the Successors against Saburo-nim was becoming very severe. Saburo-nim realized then that he might die."</p>
-<p>Taira Saburo was an outstanding individual. After declaring his entry into the succession competition, he began to push forward terrifyingly, causing all the succession competitors to be vigilant of Taira Saburo.</p>
-<p>The three succession competitors, excluding Taira Saburo, implicitly agreed to first crush Taira Saburo and eliminate him from the Taira succession. Thus, Taira Saburo was receiving concentrated Attacks from the three Successors.</p>
-<p>Of course, that Situation was also orchestrated by Taira Saburo. It was to create an Image of an overwhelming succession competitor, attacked simultaneously by the three Successors. Through that Image, claiming the trend was already decided, he intended to absorb the unaffiliated faction, which could be called the largest faction in the Taira Group.</p>
-<p>However, the other Successors also had Awareness of Taira Saburo's plan, and they tried to prevent Taira Saburo from taking the unaffiliated faction by any Method.</p>
-<p>From then on, not political Attacks, but Attacks using direct force began, and the Taira Successors began a bloody fight among themselves.</p>
-<p>Taira Saburo also began to think that he might die at that time.</p>
-<p>"At that time, Taira Saburo-nim distributed Wills to his buha. Rather than a Will, it was a final survival document. It was a kind of guideline on what actions his buha should take for their own Survival if he were to die."</p>
-<p>As Tosen Nobumichi said, though it was called a Will, it could actually be called a final Command given to his buha. Taira Saburo, thinking that the Well-Being of his buha who followed him would be in Danger if he were to die, issued an Order in the name of a Will.</p>
-<p>"The content of the Will differed for each Person. There were instructions to go under Agassi Kanna, and also instructions to join the unaffiliated faction. Saburo-nim wrote the Will to suit the Situation of each of his buha."</p>
-<p>"Then.... What about those who left the Taira Family...?"</p>
-<p>Yukiko asked about the 10 percent of Saburo's faction who had left the Taira Family, which she had been curious about.</p>
-<p>What kind of People were they, and why did they have to leave the Taira Family? Also, why did Taira Shizuku tell her to look for the 10 percent who left the Taira Family?</p>
-<p>"You know well that the Taira Successors engaged in a fierce, bloody fight. Those who left the Taira Group are individuals who caused such harm to the three current succession competitors that they absolutely cannot be tolerated. Conversely, they are People who rendered great service to Taira Saburo-nim. If they had remained in the Taira Group, they would all have been murdered by the other Successors. Isn't the fate of deeply loyal warriors who lost their Liege/Master obvious? That's why Taira Saburo-nim left them a portion of his property and ordered them to leave the Group."</p>
-<p>Taira Yukiko nodded her Head, indicating she understood Tosen Nobumichi's Words. Those who left were meritorious retainers who had rendered great service in the succession War. Their achievements were such that the other Successors could not tolerate them, so Taira Saburo wanted them to survive and told them to leave the Taira Family.</p>
-<p>"Saburo-ssi was that kind of Person...."</p>
-<p>Taira Yukiko replied with a bitter Expression. Although her curiosity about the Information Taira Shizuku had given her was resolved, she couldn't help but feel a bitter taste in her mouth.</p>
-<p>Taira Saburo did not want his Wife to get involved in the succession War. That's why Taira Yukiko still didn't know the full truth, even a year after Taira Saburo's death.</p>
-<p>And if Tosen Nobumichi's Story was true, then the People Taira Saburo truly worried about were his buha, so she couldn't help but feel bitter in her mouth.</p>
-<p>"By the way, what was written in the Will you received, Butler-nim?"</p>
-<p>Yukiko asked Tosen Nobumichi one last Question. Seeing that Tosen Nobumichi had not left the Group, he must not have received a Will telling him to leave, and seeing that he was currently Taira Ryuta's Butler, he hadn't joined the unaffiliated faction nor gone under Taira Kanna, so she asked out of curiosity.</p>
-<p>"A slightly different Will came to me. To return to Shizuku-nim...."</p>
-<p>"Is that so."</p>
-<p>At Tosen Nobumichi's answer, Taira Yukiko nodded her head with an expression of understanding. Since Tosen Nobumichi had originally been a butler that Taira Shizuku had kept since her days as Kabasawa Shizuku (椛澤 滴玖), it was natural for him to return to Taira Shizuku's side.</p>
-<p>"Thank you for the Story. I'll look around the mansion a bit before going in."</p>
-<p>"Be careful as it gets dark, Yukiko-nim."</p>
-<p>Thus, they finished their Conversation and parted ways. Yukiko decided to take a walk to clear her complex Mind. Yukiko wandered aimlessly along the paths created in Taira Ryuta's mansion, when she saw something peculiar.</p>
-<p>Someone was clinging to the window on the wall of the main building where Taira Ryuta was staying. Yukiko, whose night vision was bright due to her Succubus Trait, could tell at a glance who the clinging Person was.</p>
-<p>"What are you doing, Chieri-ssi?"</p>
-<p>The Person clinging there was Mimata Chieri. At Taira Yukiko's Question, Mimata Chieri, whose Face was deeply flushed, turned her Head towards Yukiko.</p>
-<p>"Ehehe.... Ju-just watching?"</p>
-<p>Mimata Chieri's flushed Face and thinking about what Taira Ryuta and Nagumo Sian were doing Inside Room, it was clear what Mimata Chieri was doing. And because she roughly knew Mimata Chieri's sexual preference, Taira Yukiko let out a small Sigh and chuckled slightly at the same time.</p>
-<p>"Well then.... Keep enjoying yourself."</p>
-<p>Taira Yukiko waved her Hand at Mimata Chieri, then moved her Footsteps again. Perhaps because she had laughed in bewilderment at Mimata Chieri's eccentric behavior, the suffocating Feeling had somewhat disappeared. Taira Yukiko, whose thoughts were somewhat organized, returned to her assigned room, lay on the bed, and sought Sleep.</p>
-<p>"Haaah-euh-heung! Junior-nim! I'm sooorryyyy♥"</p>
-<p>Mimata Chieri was moaning sound loud enough to make the room tremble. She had been caught again watching Nagumo Sian and me having sex.</p>
-<p>Nagumo Sian had returned to her own room to avoid Misunderstandings in the morning, and I was punishing the Voyeurism Netorare maniac with my yukbong.</p>
-<p>"What's with your pussy twitching while you're saying sorry, Sunbae?!"</p>
-<p>"Th-that's because! Junior-nim showed me such a scene, haaah-aang♥"</p>
-<p>"I didn't show you, you watched it yourself!"</p>
-<p>My Discipline/Training was useless on this Byeontae Precious child. It felt like she liked it more the more I scolded her? Still, I couldn't stop punishing her. Because the feeling of ejaculation came quickly.</p>
-<p>"As Punishment, I'm going to fill you up inside, so you can't spill a single drop, okay?"</p>
-<p>"Haaah-euh-heung! Junior-nim, heung! There's too much baby fluid, heung♥ It's impossibleeeeee!!"</p>
-<p>"That's why it's Punishment!"</p>
-<p>Byuurut! Byurut! Byuuut!</p>
-<p>I poured my semen generously into Mimata Chieri's pussy, who was struggling and saying it was impossible. Simultaneously with my Ejaculation, Mimata Chieri rolled her Eyes back and reached Climax.</p>
-<p>"Don't cling to the wall anymore."</p>
-<p>"Hee-euh-heung...♥"</p>
-<p>Mimata Chieri, who had already reached her maximum Climax, couldn't Answer my Words. I shook my Head with an Expression of helplessness.</p>
-<p>Nagumo Sian, requested by Gojoy-nim: 1. Scene of her lying in bed covered with Entwined Sheets after sex, 2. Appearance in a Martial Arts Uniform.</p>
-<p>1.</p>
-<p>For some reason, images of her covering herself properly with the Entwined Sheets don't come out well ㄷㄷ.</p>
-<p>2.</p>
-<p>Requested by MidNightSKY-nim: Lisa, happy that the publishing game hit the Jackpot, and Ryuta, who received Contact from Lisa and is happy together with her~!</p>
-<p>Starting with Lisa~!</p>
-<p>If you look closely, her Eyes are shaped like the Yen symbol (￥) hehe.</p>
-<p>Ryuta~!</p>
-<p>VER. heard the Story via Text Message.</p>
-<p>Receiving a Phone Call doesn't come out very well ㄷㄷ.</p>
+<p>As the Obsidian Syndicate and AmSang announced that they would put the Shard of Omniscience on the market, the world was abuzz.</p>
+<p>Some headed to New York to obtain the Geumseo that had only remained a legend, while others said that the Shard of Omniscience was just a scam. Still others hoped that the chaos caused by this Shard of Omniscience auction would not be too great.</p>
+<p>However, great greed calls for great chaos. The faces of those coming to New York to obtain the Shard of Omniscience were formidable.</p>
+<p>Magicians from Europe and the Middle East to obtain the knowledge contained in the Shard of Omniscience, tycoons who wanted to collect valuable Collections, Vampires who wanted to break the limits of their race, Vampire Hunters who wanted stronger power to catch those Vampires, and Priests who worshiped bizarre Gods.</p>
+<p>In addition, when those who had been watching showed unusual behavior by heading to New York at the same time, the eyes of the secret organizations of each surprised government also turned to New York, and soon each government also learned that the Geumseo called the Shard of Omniscience was in New York and dispatched agents.</p>
+<p>Those who were usually impossible to encounter at the same time all set foot in the city of New York. All for their own reasons, to get the Geumseo called the Shard of Omniscience into their hands.</p>
+<p>The same was true for the Obsidian Syndicate, which put the Shard of Omniscience up for auction.</p>
+<p>Right now, it was the magic faction of the Obsidian Syndicate, which had shrunk as much as it could and was barely maintaining its existence.</p>
+<p>The Obsidian Syndicate started as a union of witches and alchemists, but as the power balance of the Obsidian Syndicate tilted towards the alchemists, the Obsidian Syndicate became a criminal organization that dealt in drugs and restrictions, and as a result, the magic faction, the Descendant of the witches, one of the founding groups of the Obsidian Syndicate, was reduced in power, and over time, in the modern era, it was barely surviving.</p>
+<p>The few remaining magic factions of the Obsidian Syndicate were furious as soon as they heard the news that the alchemy faction had put the Shard of Omniscience up for auction.</p>
+<p>They were furious that they were trying to sell a precious Treasure that could grow the organization more than three times over for mere Money.</p>
+<p>「Those alchemy faction Bastards...! They must have gone crazy from handling drugs every day! How could they sell that precious book...?」</p>
+<p>「I know, right. What should we do with this precious thing...?」</p>
+<p>The three magic factions of the Obsidian Syndicate sat in a small cubicle, showing anger and frustration that they could not do anything about.</p>
+<p>「Um... shouldn't we run away before the auction? We don't have a Place in this organization anyway. If we only have the Shard of Omniscience, we can create several organizations like the Obsidian Syndicate.」</p>
+<p>When a young-looking man, who had been silent while listening to the two Sunbae's stories, spoke, the oldest Elderly Person of the magic faction shook his Head.</p>
+<p>「I heard that they handed over the book to the AmSang auction house today.」</p>
+<p>「Ah....」</p>
+<p>They could hide with items from the Obsidian Syndicate, but it was difficult to steal items from AmSang and impossible to escape, so they all sighed with disappointed Expressions.</p>
+<p>「Then, how about this? We steal the auctioned item.」</p>
+<p>「...There must be a truckload of people thinking the same thing as you? It's not something we three can do.」</p>
+<p>「We get the alchemy faction's cooperation in stealing the auctioned item. It will definitely be sold at a high price, so if we steal it and sell it again, we'll make twice as much Money, right? We borrow power with that Story to steal the Shard of Omniscience, and then we take the book again.」</p>
+<p>At the young magician's Words, the magician Elderly Person wore an Expression that said, 'Is this Bastard a genius?' The Obsidian Syndicate was not a very large local organization in New York on a global scale, but this auction was held in New York.</p>
+<p>Just as there is a saying that even a mutt eats half at home, the Obsidian Syndicate would be able to challenge the seizure of the Shard of Omniscience that would be held after this New York auction.</p>
+<p>Everyone would not have been able to bring many forces to the sudden auction. In that case, the Obsidian Syndicate, the best organization in New York, might be the most advantageous.</p>
+<p>「I should apply for an interview with Carmine Castello.」</p>
+<p>The magic faction's Elderly Person, Edric Holloway, rose from his Seat to propose this Operation to Carmine Castello, the Chief of the Obsidian Syndicate.</p>
+<p>Late at night. A suburban area of ​​Hidaka City, Saitama Prefecture.</p>
+<p>Sakagami Rena was hiding in the Shadows, looking at a building. The building Sakagami Rena was looking at was an abandoned school in Hidaka City.</p>
+<p>It was a high school that had been abandoned due to the devastation of the area due to the Third World War, but now it was a Place where Taira Gensuke was secretly gathering people from the Anyaji branch, Brainwashing them, and making them his Soldiers.</p>
+<p>The security here was terrible, to the point where even an Anyaji Administration employee, not an Anyaji Fist Technique practitioner, could escape. This was probably because this was a secret Place that could not be openly revealed, and Taira Gensuke's power in Japan was terrible.</p>
+<p>Therefore, Sakagami Rena easily infiltrated the abandoned school, moving between the Shadows. She had already figured out the routes of the Security Guards, when they moved, and where they checked, so Sakagami Rena's movements were unhindered.</p>
+<p>「Hamutaro, Ribbon-chan...! Find a Place similar to what I said earlier.」</p>
+<p>「Ppippit!」</p>
+<p>「Ppitt!」</p>
+<p>The Place Sakagami Rena was going to was not the Place where the Anyaji branch people were being Brainwashed, but the Place where information was processed.</p>
+<p>Those who stayed here were just employees of the Taira Bussan South America branch under Taira Gensuke, but they were targeting the Place where ordinary employees were because they could go up from below and check the contact info of higher-ranking officials connected to them and other things.</p>
+<p>This Place was unknown even to the Administration employee who had escaped from here, so she released the ferrets Hamutaro and Ribbon-chan, whom she was raising, to find it.</p>
+<p>The ferrets each split up and began to find their way. Of course, Sakagami Rena was not idle either and began to look around the classroom.</p>
+<p>The first floor was mostly classrooms that felt eerie and dirty, like any abandoned school. While Sakagami Rena was touring the first floor of the school, she received a Contact from the ferret who was looking around other Places such as the upper floor and the auditorium.</p>
+<p>「Is that Hamutaro?」</p>
+<p>Hamutaro was wearing a specially made harness, which had a location tracker and a button that could send a signal to the owner, so he could notify her that he had found it.</p>
+<p>Ribbon-chan was a Yogoe, and her soul was connected to Sakagami Rena, so she could communicate with Sakagami Rena.</p>
+<p>Since the ferret who found the Place Sakagami Rena was looking for this Time was Hamutaro, Sakagami Rena canceled the Summon of Ribbon-chan and headed to where Hamutaro was.</p>
+<p>「Kwik!」</p>
+<p>When Sakagami Rena approached, Hamutaro made a small sound and climbed up Sakamagami Rena's Leg and into Sakagami Rena's embrace.</p>
+<p>「I'll give you something delicious when we go out.」</p>
+<p>「Ppiitt...!」</p>
+<p>Sakagami Rena stroked the top of her Clothes where Hamutaro was, then lowered her waist and walked. The Place Hamutaro found was a small multipurpose room next to the faculty room, and when she raised a small Camera and checked it, she saw that there were computers and two Taira Bussan South America branch employees sitting inside.</p>
+<p>「....」</p>
+<p>Sakagami Rena opened the door very slightly. It was late at night, so both employees were nodding off, so they didn't notice even though the door was slightly open.</p>
+<p>Sakagami Rena put a tube containing Sleep Gas on the door side and began to spray Sleep Gas so that the two employees would fall into a deep Sleep. Sakagami Rena was wearing a tech Mask with a Gas Mask function, so she could easily work without being affected by the Sleep Gas.</p>
+<p>After spraying the Sleep Gas like that, Sakagami Rena entered the multipurpose room after a while. After pulling out the chair of the employee who was sleeping as if he had fainted, Sakagami Rena plugged the UCT containing the hacking program into the computer.</p>
+<p>While the hacking program was hacking various data, Sakagami Rena also planted hacking programs on the Smartphones that the employees were holding.</p>
+<p>「Now there's nothing to do here.」</p>
+<p>Sakagami Rena kindly returned the chair to its Place and left the multipurpose room. Then, she moved carefully and left the abandoned school.</p>
+<p>After leaving the abandoned school, Sakagami Rena created some distance and patted her chest to give food to Hamutaro, who had done a good job of finding the Taira Bussan South America branch employees today.</p>
+<p>「....」</p>
+<p>「Why isn't there a Reaction?」</p>
+<p>When Sakagami Rena took Hamutaro out of her embrace, Hamutaro, who was asleep, was limply held in her hand.</p>
+<p>「Ah, Sleep Gas...!」</p>
+<p>This had never happened before, but it seemed that he had stuck his Face out of Curiosity and smelled the Sleep Gas. Sakagami Rena shook her Head with an Absurd Expression and headed to where the vehicle she had been riding was.</p>
+<p>Since Hamutaro was a ferret of Bloodline specially made by the Sakagami Family for generations, Hamutaro would not be harmed by the Sleep Gas, but she thought that she should go to an animal hospital just in case, so she ran urgently.</p>
+<p>Arisu sending erotic gazes in her underwear, requested by Gojoy-nim, and Han Yu-gyeong recalling her first meeting with Ryuta~!</p>
+<p>Arisu~!</p>
+<p>Han Yu-gyeong~!</p>
+<p>I made it with the feeling of recalling with her Chin propped up, but the Atmosphere doesn't come out well ㄷㄷ</p>
+<p>Bonus cut from making Liz's naked body shirt a few days ago~!</p>
+<p>T-shirt Silhouette hehe. I didn't upload it because it didn't match the Request, but I liked it, so I'm uploading it today when there aren't many Requests hehe.</p>

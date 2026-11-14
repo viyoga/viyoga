@@ -5,74 +5,73 @@ weight = 378
 chapter = 378
 +++
 
-<p>Returning to Miyashi, I swung my fist around inside the house to test the new sensation from the Saint of Fist skill. Until now, I had been swinging my fists without any aptitude for fist fighting, so this was a new experience.</p>
-<p>With this feeling, I felt like I could quickly raise the Shin'kaiyatsude skill level, which had been rising so slowly. I could already feel that my understanding of several stances of Shin'kaiyatsude had increased considerably.</p>
-<p>It was a Myth-grade technique, and I didn't have any fist-fighting related skills, so it was rising incredibly slowly, which was quite frustrating. Fortunately, thanks to the Saint of Fist skill appearing in this level up, it seemed like I would gain momentum in raising the skill level.</p>
-<p>,"I kind of want to fight someone too...."</p>
-<p>I wanted to do some sparring, but it was Sunday dinner time, so there weren't many people to fight. It's too late today, and tomorrow I have to take the kids shopping, and Tuesday through Thursday is the picnic, and then from Friday, I have a schedule in Korea. So, it looks like it will have to be next week?</p>
-<p>Taira Ryuta: I'm sorry to contact you on the weekend, but would it be possible to receive martial arts instruction sometime next week?</p>
-<p>Shimokawabe Airen is friends with my master, Fujigasaki Rinka, so I was being a bit more polite. I couldn't just ask her to fight me right away.</p>
-<p>Home seonsaengnim: Can't you do it right now?</p>
-<p>Shimokawabe Airen is asking to fight right now. I didn't expect Shimokawabe Airen to suggest fighting right away like this.</p>
-<p>Taira Ryuta: I wanted to receive instruction right away, but I thought it was too late and impolite.</p>
-<p>Home seonsaengnim: For a warrior, a desire for improvement is more important than politeness. Come to the Cheongshim Hall now. Instead, I haven't had dinner yet, so buy me a meal after the sparring.</p>
-<p>Taira Ryuta: I can buy you a hundred meals.</p>
-<p>Isn't this going too well? I sent a message saying it would take about 5 minutes if I left now, packed a few things, and went outside.</p>
-<p>###</p>
-<p>Saionji Diana went to the Amsang branch today to work part-time. It was a part-time job where she experimented with how her superpowers changed when she exchanged parts of her cyber-implanted limbs that Eve had suggested.</p>
-<p>If the replaced part was good, she would just leave it as is, and if she replaced it and the ability didn't activate, she would replace it with a part that did activate, and if it broke down, it would be repaired unconditionally, so it was a part-time job that only had benefits for Saionji Diana without any drawbacks. The part-time pay was also quite good, so recently, she raised her phone plan, which used to be the cheapest, by two levels.</p>
-<p>,"Only this company's parts are compatible with the A8 area that I experimented with today. I need to check this company's circuits. It may not be intentional, but I need to find out why the superpowers are compatible."</p>
-<p>Eve told Saionji Diana about the parts and returned the arm parts to their original state. This was because most of the parts she had replaced today were not compatible with her superpowers.</p>
-<p>,"Thank you for your hard work~! I'll deposit your part-time pay right away."</p>
-<p>As she said that, her phone rang. It was probably the part-time pay she got from Eve. At first, she had been surprised that the pay came right after she spoke, but now that she knew Eve was an android, it didn't surprise her anymore.</p>
-<p>,"Thank you."</p>
-<p>,"What are you thanking me for, Saionji-ssi is providing us with data and receiving fair part-time pay, so it's a win-win for both of us~!"</p>
-<p>Saionji Diana smiled slightly at Eve's words and got up from her seat.</p>
-<p>,"The next part-time job.... I don't think I can come this week because of the picnic, so it will probably be next week."</p>
-<p>,"Yes, I'll check my schedule for next week and contact you."</p>
-<p>Saionji Diana, who came out of the Amsang branch, hurriedly left the love hotel district. This part-time job was all good, but she was a little embarrassed because the location of the Amsang branch was in a place where love hotels were gathered. It would be quite difficult to explain if she met someone she knew.</p>
-<p>,'Should I do some exercise?'</p>
-<p>Saionji Diana decided to exercise since she was out. You might say that even if she runs, her cyber-implanted limbs are moving, so it won't be exercise, but still, her pelvis and left shoulder were Saionji Diana's own muscles and bones, so running was somewhat effective.</p>
-<p>She had to increase and maintain her lung capacity in this way so that she wouldn't get tired even if she made strenuous movements, so she had been running often since the surgery and stabilization.</p>
-<p>When Saionji Diana decided to run and was running around the school, she saw a familiar man. A handsome man with blonde hair and brown tanned skin. It was her benefactor, Yamashiro Ryuta seonsaengnim. He said he had an appointment in Tokyo on the weekend, so it seemed like he had returned today.</p>
-<p>,'Did he leave his luggage at school...?'</p>
-<p>Saionji Diana unknowingly started running after Yamashiro Ryuta.</p>
-<p>###</p>
-<p>I ran from home to the Cheongshim Hall to warm up properly before the sparring. Running for only 5 minutes didn't really loosen my body, but it was better than nothing.</p>
-<p>When I arrived in front of the Cheongshim Hall, Shimokawabe Airen was outside the Cheongshim Hall, as if she had been waiting for me.</p>
-<p>,"Hello, Shimokawabe seonsaengnim."</p>
-<p>,"You've arrived, Ryuta-gun."</p>
-<p>Shimokawabe Airen was wearing a white dobok top, a thick black belly band, and black pants, which was the Cheongshim Hall's club uniform. It's the first time I've seen her wearing a dobok, but it suits her quite well.</p>
-<p>,"Come in."</p>
-<p>,"Excuse me."</p>
-<p>I took off my shoes at the entrance and went inside the Cheongshim Hall. At Shimokawabe Airen's words to sit down first, I sat facing her. It seemed like we were going to talk before the sparring. If it were Fujigasaki Rinka, she would have used her fists right away without saying a word.</p>
-<p>,"But why do you suddenly want to spar?"</p>
-<p>,"Ah.... I had some kind of enlightenment. I want to try it out in a real fight, but Shimokawabe seonsaengnim is the only one around who I can spar with...."</p>
-<p>I couldn't talk about my skill, so I explained it as a sudden enlightenment. Shimokawabe Airen nodded at my explanation. She seemed to be thinking for a moment before opening her mouth.</p>
-<p>,"There aren't many opponents to spar with around here. The advisor of The Fist is the only one who is worth fighting.... But I'm a bit uncomfortable with him."</p>
-<p>It seemed like she didn't have a good relationship with the advisor of The Fist, the mixed martial arts club that was a rival to the Cheongshim Hall. I only knew that Kujo Kina caused an accident at The Fist and was suspended from school. If Shimokawabe Airen, one of the Three Sword Masters, said that he was an opponent worth fighting, then he must be quite skilled. Should I ask him to fight me sometime....</p>
-<p>,"If you've had an enlightenment, you must be itching to test it out. First, I need to know Ryuta-gun's skills, so can you tell me to what extent you've reached? Because I wield a sword, I can seriously injure my opponent if I fight against other martial arts that don't wear protective gear."</p>
-<p>Indeed, even a wooden sword would be a more dangerous weapon than anything else if it were held by Shimokawabe Airen. She didn't want to hurt her friend's disciple while sparring, so she seemed to want to know my level.</p>
-<p>Actually, I don't care if I get hurt because of my regeneration skill. I've been shot with so many bullets that my regeneration skill level was the highest. Maybe even if my limbs were cut off, they would grow back in a day.</p>
-<p>But how do I explain my level...? I need to use something as a reference point. The people I've fought so far have been gangsters, security guards from research labs, or monsters, so it's ambiguous to explain. It's not like my fights are recorded on video.... Ah! Come to think of it, I had one video of me.</p>
-<p>,"Have you seen the video of the recent LA incident?"</p>
-<p>,"Of course I've seen it, it was such a big deal.... Could it be...?"</p>
-<p>Of course, Shimokawabe Airen, as a martial artist, had the eye to know that the Dark Knight's fighting style in the video resembled that of her friend, Fujigasaki Rinka.</p>
-<p>Actually, I jumped around so much to fight the famine in the air at that time that it wasn't very noticeable, but she seemed to have realized something along with my words. And she seemed very surprised.</p>
-<p>,"Were you the Black Knight?"</p>
-<p>,"Yes. The armor has the effect of correcting combat abilities, so you can think of me as being about 20 percent weaker than what you saw in the video."</p>
-<p>Or not? I got the Saint of Fist skill, so.... I should be stronger than that time. Hmm, I don't know. Shimokawabe Airen thought for a moment at my words and then nodded as she opened her mouth.</p>
-<p>,"If Ryuta-gun is at that level, then we can't both fight at full power. The Cheongshim Hall might be destroyed."</p>
-<p>The Cheongshim Hall was an old-fashioned Japanese wooden building that had been built for a long time, so it was clear that it would not be able to withstand Shimokawabe Airen's or my full power and would collapse.</p>
-<p>,"Ryuta-gun will not use the unique energy of Shin'kaiyatsude, and I will use a wooden sword instead of a real sword. That should be okay for the building."</p>
-<p>,"Okay."</p>
-<p>It wasn't a bad condition. I came here to test the Saint of Fist skill from the beginning, so if I didn't use the Abyss, I would be able to concentrate more on fist fighting.</p>
-<p>,"Then shall we warm up first and then start?"</p>
-<p>,"Yes."</p>
-<p>We quietly started warming up before the sparring. We stretched to avoid injuries from sudden movements, and Shimokawabe Airen, who had finished stretching, brought a wooden sword. Actually, a real sword wouldn't be bad because of my regeneration. If I used a real sword, the building could be damaged, so I can't help it.</p>
-<p>,"Shall we start?"</p>
-<p>,"I look forward to working with you."</p>
-<p>I politely greeted Shimokawabe Airen and made a fist and took a fighting stance. Shimokawabe Airen also greeted me and then pointed her sword at me.</p>
-<p>----</p>
-<p>Saionji Diana after a long time</p>
-<p>Hoo...!</p>
+<p>After spending a delightful night with Kijimoto Jurie, I woke up refreshed and enjoyed the breakfast buffet just like yesterday. Kijimoto Jurie had passed out from the marathon sex that lasted from last night until this morning, so I had to secretly move her to her room in the early morning.</p>
+<p>Sakagami Rena, who was sitting across from me, seemed to be looking at me strangely, but Sakagami Rena is originally a weird mask girl, so it must just be my imagination. We haven't had any interactions other than the conversation we had yesterday morning, so there's no reason for her to be glaring at me strangely.</p>
+<p>Sakagami Rena seemed to have taken my advice to some extent, as she was wearing a normal black mask that you can buy at any pharmacy or convenience store instead of that weird mask. I remember the female teachers complaining a lot when she came to class wearing that scary mask that looked like it was from a Japanese puppet show, but with this, no one will say anything.</p>
+<p>"Naruse, are you feeling okay today?"</p>
+<p>"Yes! I'm okay, Sensei-nim!"</p>
+<p>Naruse Shiyo, who had been examined by Kijimoto Jurie yesterday because she wasn't feeling well, seemed to be feeling better today. For some reason, Naruse Shiyo seemed to be following me more closely after the sparring with Kujo Kina yesterday.</p>
+<p>Combining the stories so far, Naruse Shiyo was into a bit extreme things like martial arts or death metal because she wasn't feeling well. So, she seemed to be following me more since I had completely defeated Kujo Kina yesterday. It must have been quite impressive to knock down the school's tyrant in one blow.</p>
+<p>"Alright! If you're done eating, pack your things and get on the helicopter~! We'll be leaving in thirty minutes."</p>
+<p>Minamoto Risa clapped her hands and spoke to the students in the class. At Minamoto Risa's words, everyone went back into the villa to pack their belongings. Everyone finished preparing and lined up at the helipad to board one by one.</p>
+<p>"Ah, it's the school!"</p>
+<p>Otagi Yuka, who was looking out the window after more than an hour on the helicopter, shouted. It had been quite a while since we left the island, so it was time to arrive at the school. The helicopter landed, and all the students got off. It was called a picnic, but it was a 2-night, 3-day trip, so it was fun, but there must have been some fatigue.</p>
+<p>Returning to Miyashi, which could be called everyone's home, there were quite a few students stretching or yawning as if fatigue was rushing in.</p>
+<p>"Everyone, did you have fun on the picnic?"</p>
+<p>"Yeah! It was great, Ryuta-cchi~☆"</p>
+<p>"Kyahaha! The sparring was fun and enjoyable, Sensei!"</p>
+<p>"It was fun, Sensei-nim!"</p>
+<p>I'm glad everyone was satisfied. Now, if I have the closing ceremony and send the kids home, my school work for this week is over. Even though there were other things waiting for me.</p>
+<p>"Okay, I'll have the closing ceremony. Sensei won't be at school from tomorrow until Monday, so Kijimoto Sensei-nim will be temporarily taking on the role of homeroom teacher."</p>
+<p>"Ehh? Ryuta-cchi, of all people! You're going on vacation after enjoying the picnic to the fullest?"</p>
+<p>"Uuu~! Sensei baka!"</p>
+<p>The students booed at my words. I did take a vacation, but I couldn't help it. I had things to take care of in Korea, and it was Han Yu-gyeong's birthday, so I had to celebrate it, so I had put in for a vacation before the picnic.</p>
+<p>Fortunately, I was a second foreign language teacher with classes only on Tuesdays and Wednesdays, and even though I was the homeroom teacher of the special class, Kijimoto Jurie, who was the assistant homeroom teacher, was there, so the vacation was not rejected and was approved. I also have a relationship with the headmaster, Daigo Terue, so even if I take a vacation in the future, it's unlikely to be rejected unless there's something special.</p>
+<p>"Anyway, if you have any problems, talk to Kijimoto Sensei-nim, the class president, and the vice president, and everyone worked hard during the picnic. That's all, dismissed!"</p>
+<p>Seizawa Shii was leading the booing with excitement, so I quickly finished the closing ceremony.</p>
+<p>"Kijimoto Sensei-nim, please take care of these guys."</p>
+<p>"Uuu~! These guys, uuu~!"</p>
+<p>"Uuu~! Such a Ryuta-cchi is the homeroom teacher of these guys, uuu~☆"</p>
+<p>No, what am I supposed to do if you even tackle this.... Kijimoto Jurie smiled at the sight and nodded.</p>
+<p>"I'll take good care of the students, so please go and do your schedule to your heart's content."</p>
+<p>At Kijimoto Jurie's words, the students rushed to her, saying, "Jurie-chan~!". In the first place, Kijimoto Jurie had been acting as the homeroom teacher until the previous homeroom teacher was arrested for an unsavory incident and I became the homeroom teacher, so she must be close to everyone. Well, the kids who came to the special class from the second semester will be a bit awkward.</p>
+<p>"Minamoto, Shido, both of you worked hard as class president and vice president during the picnic."</p>
+<p>"I'm not going to be class president next time. It's tiring."</p>
+<p>"Well, Minamoto-ssi took care of everything this time, so I didn't have much to do."</p>
+<p>Before returning home, I called Minamoto Risa and Shido Tsubaki separately and told them that they had worked hard during the picnic.</p>
+<p>Minamoto seemed embarrassed and said that she wouldn't be class president next time, but won't she not have a chance to be class president after graduating this time?</p>
+<p>Shido Tsubaki gave all the credit to Minamoto Risa as if it was nothing. She must have worked quite hard planning and doing things, but she seemed to think it was really nothing.</p>
+<p>After the slight commotion caused by my vacation ended, I returned home and immediately packed my bags. In the first place, I had packed my bags for Korea together when I packed my picnic bags a few days ago, so there was nothing else to pack separately.</p>
+<p>I put my carrier in the trunk of the car and headed to the love hotel district of Miyashi, not the airport first. I don't know why there's a street full of love hotels in Miyashi, a resort city for the rich, but.... My destination isn't a love hotel, but the Miyashi branch of the Dark Merchant Guild, so there's no need to be so curious.</p>
+<p>"Ryuta-nim~! Welcome~!"</p>
+<p>I parked my car in the love hotel parking lot and went down to the basement, and Eve was waiting for me as expected. She was wearing quite revealing clothes again today, with a shirt that showed off her cleavage and a shiny black latex skirt.</p>
+<p>"Eve, your outfit is amazing today too."</p>
+<p>"Ah, this.... I ordered the wrong size for the top."</p>
+<p>Eve answered my question with a slightly dejected expression. Eve in Miyashi isn't a hologram, so she orders her clothes separately. Hmm.... I learned something new.</p>
+<p>"Um, has the item I ordered been delivered?"</p>
+<p>I came to the Miyashi Dark Merchant Guild branch because I had ordered something in advance as a birthday present for Han Yu-gyeong last week. I could have had it delivered to my house, but I was away for the picnic, so the Dark Merchant Guild branch was the perfect place to store expensive items. I sent it to the Dark Merchant Guild branch instead of my house.</p>
+<p>"Yes, it's here~!"</p>
+<p>Eve handed me a box as soon as I asked, as if she had prepared it in advance. I received the box and opened it right away. Inside the box was a bracelet. When I concentrated a little, a translucent window appeared, showing the item's information.</p>
+<p>◆Star Cluster Bracelet [Unique Bracelet]</p>
+<p>A bracelet made of ore containing starlight. If worn by the rightful owner, they can possess the power of starlight.</p>
+<p>○Only the owner of  can enjoy the item options.</p>
+<p>●Star light aura is activated when worn.</p>
+<p>└Star light aura: Magic damage is amplified, and magic damage is added upon attack.</p>
+<p>●All mental stats increase by 1.</p>
+<p>●You can use the skill . It can be used up to five times in a row and is charged once per hour. (5/5)</p>
+<p>└Meteor Strike: You can blink to a distance within 100 meters.</p>
+<p>The Star Cluster Bracelet was one of the best items for a character who took the Star Magic tree. Each option was crazy, and the aura that strengthened not only herself but also her companions was perfect for Han Yu-gyeong, who had summons.</p>
+<p>And mental all-stats +1 was just a reliable option like a hearty rice soup. Especially for Han Yu-gyeong, who was a magic and summon-oriented character, it was an even better option. Since there were many stats to use in the mental stat area, mental all-stats +1 was almost the same as leveling up 3 times.</p>
+<p>Finally, there was a skill attached to it, which was called Meteor Strike. Meteor Strike was a short-range teleportation skill, which is why it was called the best Star Magic item. Like blink-type skills, it could be the best if used well. It depends on the skill of the person using it, but Han Yu-gyeong would use it well.</p>
+<p>"It's a gift for Han Yu-gyeong-ssi, right?"</p>
+<p>"Yes, it's her birthday soon."</p>
+<p>When I checked the bracelet and repackaged it, Eve asked, and I nodded. Eve also smiled and handed me a box.</p>
+<p>"This is my gift~! It's Yu-gyeong-ssi's gift, so Ryuta-nim shouldn't open it first~!"</p>
+<p>"Ah, yes. I'll deliver it without opening it."</p>
+<p>I received the box that Eve gave me and took it. It's not that heavy, so I don't know what it is. Is it light clothes or a handkerchief?</p>
+<p>"I'll go now. I have a flight to catch."</p>
+<p>"Yes~! You can't forget that you said you'd come to play next week, okay?"</p>
+<p>"Yes, I remember because I said it."</p>
+<p>I don't know what she wants to play with me, but I owe Eve quite a bit, so I can at least come to play. I said goodbye to Eve once again and went outside.</p>
+<p>-----</p>
+<p>Eve</p>

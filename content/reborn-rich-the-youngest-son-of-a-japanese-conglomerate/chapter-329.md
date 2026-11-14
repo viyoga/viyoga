@@ -5,79 +5,84 @@ weight = 329
 chapter = 329
 +++
 
-<p>Just before Konoe Akina and Otagi Yuka entered Starbucks to talk, Minamoto Risa and Seizawa Shii were having hamburgers for lunch at a hamburger chain called Z-ria near St. Francis Girls' Academy, talking about what had happened during vacation.</p>
-<p>"Ahahaha! Super funny~! Something like that happened in Hawaii?"</p>
-<p>Seizawa Shii laughed, holding her belly, at Minamoto Risa's story. In fact, for an ordinary person, it wasn't particularly funny, but because Seizawa Shii's reaction was so good, Minamoto Risa couldn't help but let out a snicker. Seizawa Shii, who had been laughing heartily, stopped and brought up a new topic. It was about the new Class Teacher who had been assigned this semester.</p>
-<p>"Risa, but isn't the Class Teacher super ikemen (handsome)? After always seeing only old mister teachers, seeing the Class Teacher is super dangerous, I'm telling you~!"</p>
-<p>"Well...."</p>
-<p>When Seizawa Shii talked about Yamashiro Ryuta, who had newly been assigned as Class Teacher this time, Minamoto Risa replied as if she wasn't very interested.</p>
-<p>A few months ago, after witnessing her previous Class Teacher, Nomata Shigemichi, commit Sexual Assault against Seiwa Rieko, a student in the same special class, Minamoto Risa was experiencing mild distrust of humans.</p>
-<p>Naturally, the successor Class Teacher, merely by being handsome, could not melt Minamoto Risa's cold heart.</p>
-<p>"Still, I want to take the class.... Shall we change our class? Anyway, the French class we're taking, we can already do to some extent, right?"</p>
-<p>"I don't particularly want to change it."</p>
-<p>Even at Seizawa Shii's subtle words, Minamoto Risa shook her Head as if she had no interest in changing classes. In fact, both of them had received gifted Education from a young age, so they could speak most foreign languages. So, while they didn't have much regret about the French class they were currently taking, there was no particular need to change it to Korean language.</p>
-<p>Taira Ryuta didn't know this, but in fact, St. Francis Girls' Academy, while being an educational institution, was also a social gathering place for the daughters of prestigious families, so for the first week of the semester, elective classes, excluding compulsory ones, could be changed. This was to allow the Female Students to match their classes with each other.</p>
-<p>"Ugh~! I want to see him in the ikemen Teacher's class, I'm telling you~!"</p>
-<p>"Then change it by yourself."</p>
-<p>"But! I want to take the Korean language class with Risa!"</p>
-<p>As Seizawa Shii, displaying all sorts of Aegyo, clung to Minamoto Risa, Minamoto Risa sighed and nodded her Head.</p>
-<p>"Phew.... Well, both of us are good at French anyway. Alright, let's change it."</p>
-<p>"Really? Risa is the best~!"</p>
-<p>Seizawa Shii knew that Minamoto Risa was weak to someone she was close to clinging to her like this, so she used the cunning method of clinging until the end.</p>
-<p>"Tsk, only the best when it's convenient, huh?"</p>
-<p>"Nooo~! You're always the best. But...."</p>
-<p>Minamoto Risa and Seizawa Shii quickly moved on to another topic and started chatting.</p>
-<p>Minamoto Group Chairman's Direct Business Strategy Headquarters.</p>
-<p>Numerous men in Suits were looking at monitors and typing on keyboards without rest. This was a direct Department immediately below Minamoto Ushin and a Department that collected all Information on the Minamoto Group and the World, and despite being a Department, it held immense Power, more than a single Affiliate Company within the Group.</p>
-<p>The Business Strategy Headquarters Manager was Minamoto Ushin's third Son, Minamoto Youken, and he was currently the child most favored by Minamoto Ushin. He was handsome and always smiling, earning him the nickname 'Smiling Prince of the Minamoto Family,' and his Ability was as good as his handsome Face.</p>
-<p>"Headquarters Manager-nim, a new Class Teacher has arrived at the school the youngest Agassi attends, they say. Shall we investigate?"</p>
-<p>The Team Leader of Information Team 3, which collected Information on individuals approaching the Minamoto Family, approached Minamoto Youken and asked. Minamoto Youken slightly furrowed his brow, but quickly changed to a smiling Expression so much that the other person couldn't notice the furrowed brow.</p>
-<p>Minamoto Youken did not like Minamoto Risa. Not only did his Father marry a Commoner from who-knows-where, but seeing him cherish that Daughter, Minamoto Risa, similarly to himself, or perhaps even more, Minamoto Youken was secretly building up Hatred for Minamoto Risa.</p>
-<p>But Minamoto Youken did not reveal such Inner Thoughts. After all, Minamoto Risa was already receiving immense Jealousy from his other Siblings. His stance was that there was no need to dirty his own Hands.</p>
-<p>'We're short on Manpower as it is, do we really need to investigate the Class Teacher too?'</p>
-<p>While he was having such Worries, another Team Leader came rushing in, out of Breath.</p>
-<p>"Headquarters Manager-nim...! We've received Intelligence that the Taira side is trying to do Something at our power plant in Gunma."</p>
-<p>This is it! Minamoto Youken smiled an even deeper Smile. Matters related to the Taira Group, without wasting Manpower on a mere teacher, were matters with sufficient Justification to assign other Work.</p>
-<p>"Then we'll need to allocate more personnel to that side. Team Leader 3-nim, rather than investigating a mere school teacher, if you help Team 1 to uncover the Taira side's conspiracy, your Performance will be even better. As for the investigation into my younger sibling's Class Teacher, just ask St. Francis Academy. As they've always done, they'll give us the basic personal Information they have."</p>
-<p>"Understood."</p>
-<p>"Team 1, along with Team 3, investigate the Taira side's conspiracy."</p>
-<p>"Yes, Headquarters Manager-nim!"</p>
-<p>As the two Team Leaders bowed their Heads and left the Headquarters Manager's Room, Minamoto Youken sank his Body into the plush Headquarters Manager's Chair.</p>
-<p>'He's just a teacher, after all; what big trouble could there be?'</p>
-<p>Minamoto Youken didn't know it, but this decision was an incredibly complacent one.</p>
-<p>"Haaam~! Good morning."</p>
-<p>"Yes, keep up the good Work!"</p>
-<p>I yawned and greeted the Security Guard, Kozaki Koji. Kozaki Koji also smiled, gave me a playful salute, and passed through the school gate.</p>
-<p>Ah, today I have to stop by the 3rd-year Head Teacher's Office next to the faculty office before I go. Not the students who originally registered for the class, but there were newly registered students for the Korean language class, so I had to get the list of Korean language class students from Kasaoka Yuzuki, the 3rd-year Head Teacher.</p>
-<p>Although she had thrown quite a Hysteria at me yesterday, because I hadn't had Sex for a week and my Balls were full of Semen, heavy and throbbing, I was incredibly lenient towards women right now, so I didn't pay it much mind.</p>
-<p>Seeing Kasaoka Yuzuki's voluptuous Figure, I just hoped I wouldn't get an Erection, you know. I walked towards the building where the faculty office was, lost in pointless thoughts.</p>
-<p>Passing the faculty office and looking through the window, since I had arrived a few minutes before the teachers' Going to Work time of 7:30 AM, the teachers were all sitting at their desks, preparing for their classes. I knocked on the door of the 3rd-year Head Teacher's Office next to the faculty office.</p>
-<p>"This is Yamashiro Ryuta."</p>
-<p>"Come in."</p>
-<p>As I entered the 3rd-year Head Teacher's Office, Kasaoka Yuzuki, with Hair of a strange Color, like a mix of gray and brown, and a voluptuous Figure, and a male teacher with brown curly Hair and a short beard, were standing there. Huh? Who is that man?</p>
-<p>"You're too late."</p>
-<p>"The Going to Work time hasn't even ended yet?"</p>
-<p>Kasaoka Yuzuki spoke in a reproaching tone, so I confidently replied that I wasn't late. The time was still around 7:28 AM. Since the Going to Work time hadn't passed yet, I wasn't late.</p>
-<p>"Hey, Teacher Yamashiro, shouldn't you consider those who are waiting? You should come a little earlier to pick up the data so we can do our Work too."</p>
-<p>The man standing behind said. I had met teachers of other subjects during the week before the semester started, but that man was a stranger to me.</p>
-<p>"But who might you be...?"</p>
-<p>"I'm Kasaoka Koki, in charge of the French class! Just like you, I'm a second foreign language teacher."</p>
-<p>Ah, hearing the man's name, it felt like the puzzle was slowly starting to solve itself. Kasaoka Yuzuki and Kasaoka Koki, sharing the same Kasaoka surname, must be a Couple or Family.</p>
-<p>But yesterday, by Phone Call, several students canceled their original second foreign language and contacted us saying they would change to Korean language class, so Kasaoka Koki, who teaches French, ended up suffering a loss.</p>
-<p>St. Francis Girls' Academy, in the case of second foreign language teachers, unlike compulsory subject teachers, felt more like contract workers than full-time employees. The reason Kasaoka Yuzuki threw a Hysteria at me yesterday was because the Salary they received varied depending on how many students they taught. Kasaoka Koki probably suffered a loss in student numbers.</p>
-<p>"I see. I am Yamashiro Ryuta, in charge of the Korean language class and the Class Teacher of the 3rd-year special class."</p>
-<p>With a Face that showed no knowledge whatsoever, I calmly introduced myself. Although Korean language was popular among Young Women due to the influence of Hallyu, due to the influence of prestigious Family parents, few students chose Korean language. So, I heard it would be easygoing, but I actually hoped not many would come.</p>
-<p>"Since there's no Time, I'd like to receive the list of students taking the Korean language class."</p>
-<p>I don't know why I had to come in person to get the list in 2053, but I didn't feel like arguing right now. I merely kept glancing at Kasaoka Yuzuki's Cleavage, which was pushing against her Shirt Buttons. I should Masturbate after Work today. Since I hadn't been able to for a week, even I found it hard to control where my Eyes wandered.</p>
-<p>"You, you, you! Where are you looking?"</p>
-<p>Kasaoka Koki seemed to have noticed where my gaze was directed and shouted. I feigned ignorance and opened my mouth as if I didn't know.</p>
-<p>"Of course, I'm looking at her Face. Isn't it Etiquette to look into someone's Eyes when having a Conversation?"</p>
-<p>Of course, it was a lie, but since I said it confidently, Kasaoka Koki couldn't say anything more and stopped talking. Since both of them had quieted down, I opened my mouth to ask what I was curious about.</p>
-<p>"Both of you have the same surname. Are you a Couple? Or Siblings?"</p>
-<p>"Siblings?! We are a Couple!"</p>
-<p>A Couple, huh.... So that's how it was. Kasaoka Yuzuki's Hysteria yesterday was revealed to be a Hysteria thrown because her Husband's Salary had decreased. From a housewife's perspective, her Living Expenses had decreased because of me, so it was understandable to be Frustrating. Strictly speaking, it wasn't because of me, but because of the students who changed classes.</p>
-<p>"Here's the list of students taking the Korean language class. Take it."</p>
-<p>Kasaoka Yuzuki, as if she didn't want to talk anymore, handed me a document Bag. Hmph, to have to come all the way here and play mind games just to get a document Bag with a few pages. It's a bit Frustrating. But looking at those breasts, my irritation quickly fades.</p>
-<p>"I'll be going now."</p>
-<p>I took the document Bag and left the 3rd-year Head Teacher's Office. As I left, immediately from inside the office, I heard the sound of them talking to each other.</p>
-<p>Seizawa Shii Prototype Went to school in this outfit on the first day kkeuk kkeuk kkeuk School Uniform version Since there isn't a model that perfectly captures the feeling yet, I tried creating Seizawa Shii as a prototype haha</p>
+<p>"Here is a list of students at St. Francisco Girls' Academy who are not currently in any clubs."</p>
+<p>On Monday night, before Minamoto Risa went to bed, Miyashi's secretary, Mekaru Tatsuko, who was taking care of Minamoto Risa, gave her a report titled [St. Francisco Girls' Academy Unaffiliated Members Investigation].</p>
+<p>Minamoto Risa went to school a little early the next morning to look over the documents with Seizawa Shii and discuss them. At Seizawa Shii's cute request to walk to school together for the first time in a while, they met near her house and were walking to school, enjoying the morning air together.</p>
+<p>"Haa~am! Mornings are always tough."</p>
+<p>Seizawa Shii, who had low blood pressure, was weak in the mornings. She kept yawning, but as she walked, she gradually woke up and became her usual energetic self.</p>
+<p>"I didn't eat breakfast, so I'm hungry~! Risa-tan, did you eat breakfast?"</p>
+<p>"You know I don't eat breakfast."</p>
+<p>"Still, let's stop by the convenience store."</p>
+<p>Seizawa Shii insisted, so they stopped by the convenience store. Seizawa Shii bought quite a few snacks, and Minamoto Risa bought one calorie bar and one vitamin drink.</p>
+<p>"Mmm, so delicious~! Risa-tan, want a bite?"</p>
+<p>"No, one calorie bar is enough for me."</p>
+<p>Seizawa Shii held out a sandwich, but Minamoto Risa shook her head. As they chatted and walked, they soon saw the school gate.</p>
+<p>"I think this is the first time I've come to school this early."</p>
+<p>"I know, right? But even if we can't come to school early, we've left early a lot."</p>
+<p>"Ahaha~! I don't think anyone can beat our record for leaving early, you know?"</p>
+<p>As they were talking nonsense and passing the security guard at the entrance, they suddenly saw the school bulletin board with various club advertisements. There were several recruitment posters, and one of them caught their eye.</p>
+<p>"What's that...?"</p>
+<p>"That's right! That... dating club, was it?"</p>
+<p>It was a poster with Otagi Yuka wearing a suit and asking if you would like to go on a date...? It seemed to be quite well made. Otagi Yuka's expression was natural, and the wording of the poster was easy to read.</p>
+<p>"Ehh? It's so well made? It's like a movie poster."</p>
+<p>"Should we have made a poster too...?"</p>
+<p>Minamoto Risa muttered for a moment but shook her head. The poster was the opposite of what she had planned this time. Even if they recruited unspecified students from the entire school, they were all already in clubs. They were not the students who were not in any club, which was necessary to create a new club.</p>
+<p>Even if they gathered a lot of such unspecified students, it would not have any impact on the competition. It was the right way to target each and every person who had not joined a club, like herself.</p>
+<p>"Let's hurry to the classroom and have a meeting! I don't want to fall behind like this~!"</p>
+<p>"Shall we walk a little faster?"</p>
+<p>The two hurried their steps and entered the classroom. As they passed the Educational Preparation Room, they heard a clattering sound from inside, but Minamoto Risa and Seizawa Shii were already impatient due to their competitive spirit, so they didn't pay attention to it.</p>
+<p>The two sat down and read the report given by Mekaru Tatsuko. As they read the report, their expressions changed slightly seriously.</p>
+<p>"Hee...! This is super dangerous. There aren't many people who haven't joined a club like this?"</p>
+<p>"I know. In the high school division, there are four people from other grades, and our class is the only one in the third year."</p>
+<p>Seizawa Shii and Minamoto Risa read the documents given by Mekaru Tatsuko and wore worried expressions. There were fewer people who had not joined a club than they had thought.</p>
+<p>'Is that why the homeroom teacher said he would combine the two teams?'</p>
+<p>The reason why Yamashiro Ryuta said that the losing team would be absorbed into the winning team seemed to be because there were not many students who had not registered for a club. If they made a mistake, there was a possibility that both teams would not have enough members to create a club, so he must have made them absorb each other so that they could create a club.</p>
+<p>"First, let's try to attract two freshmen and two sophomores to our club."</p>
+<p>"Fufu, younger people are easier to handle~☆"</p>
+<p>At Minamoto Risa's words, Seizawa Shii smiled refreshingly and nodded. From the beginning, the investigation excluded the junior high school division and only included the high school division. There was also the issue of investigation time, and they felt a little guilty about including the junior high school division in the club they created to make it easier for them to attend school.</p>
+<p>Minamoto Risa thought that if she had known there would be so few, she should have investigated the junior high school division as well, but it was already too late. Rather than regretting it, it was time to do her best to get the people listed in the current report to join the club.</p>
+<p>"Since Mekaru Tatsuko's report also includes the timetables of other grades and the average commuting time, shouldn't we be able to get at least two people to join before class starts?"</p>
+<p>"You even investigated the commuting time? Mekaru-chan is amazing?"</p>
+<p>"Yeah, according to this, we can go now. Looking here, the first and second year sisters didn't join a club? If we do well, we can get two people to join at the same time. Let's go!"</p>
+<p>At Minamoto Risa's words, Seizawa Shii was impressed by the information-gathering ability to find out the students' commuting times. And following Minamoto Risa's lead, they headed to the second-year classroom.</p>
+<p>The slightly noisy second-year building became quiet after Minamoto Risa and Seizawa Shii appeared.</p>
+<p>It was only natural that all the second-year students' attention was focused on the heiress of Japan's top Minamoto Group and the heiress of the politically prominent Seizawa family walking together in the second-year hallway. Moreover, since the two were famous troublemakers at St. Francisco Girls' Academy, there was more fear than curiosity in the focused gazes.</p>
+<p>Deureureuk!</p>
+<p>Minamoto Risa and Seizawa Shii enter after boldly opening the door to Class B of the second year.</p>
+<p>"Kimoto Inori! Where are you?"</p>
+<p>"M-Me?"</p>
+<p>At Seizawa Shii's shout, a plainly dressed, bespectacled female student raised her hand slightly trembling. Minamoto Risa and Seizawa Shii quickly approached Kimono Inori.</p>
+<p>"You don't belong to any club, have you decided to join another club?"</p>
+<p>"Well, that's... I've actually decided to study abroad. So, I withdrew in advance so as not to cause trouble for the club I was in."</p>
+<p>"Your younger sister, Kimoto Kono too?"</p>
+<p>"Yes..."</p>
+<p>At Kimoto Inori's answer, the number of students other than the third year who could be signed up as club members at once was reduced from four to two. Minamoto Risa and Seizawa Shii wore slightly disappointed expressions.</p>
+<p>"Since we came all the way here, let's ask the remaining two."</p>
+<p>"Yeah, we can't go back to the class empty-handed!"</p>
+<p>The two renewed their determination and headed to where the other students who had not joined a club were.</p>
+<p>###</p>
+<p>"Hoo..."</p>
+<p>Today was quite a busy day. The refrigerator I ordered was delivered and moved to the Educational Preparation Room, and it was quite noisy from the morning as I was installing it, so Kijimoto Jurie, the school nurse in the infirmary across the hall, even visited.</p>
+<p>After installing the refrigerator, I went out of the school in the morning and bought a lot of ice cream, pudding drinks, and frozen food that I could eat for meals, and I felt relieved.</p>
+<p>The last class on Tuesday, the second foreign language Korean class, was packed with students because the female students had changed classes a lot.</p>
+<p>There were so many students that it was chaotic. There were three types of students: the gloomy types who secretly took pictures while admiring my face, the slightly more active types who raised their hands and asked questions to try to have a conversation with me, and the three types of students who were really interested in Korean and studied hard.</p>
+<p>It's so tiring when there are so many students. Even though it was only a 50-minute class, I was exhausted and slowly walked to the building where the third-year special class was. Of course, the special class kids in my class didn't leave me alone.</p>
+<p>"Sensei, let's go together~!" They surrounded me like guards and walked to the class while chatting. I returned to the classroom with the students and immediately started the closing assembly.</p>
+<p>"Everyone worked hard today, right? I told you yesterday that the deadline for joining a club is Friday... Ah, since the two teams in our class are going to create a club, you can join them."</p>
+<p>When I talked about creating a club, the reactions of the two teams were different. Minamoto Risa and Seizawa Shii of the Meditation Club didn't look good, and Konoe Akina and Otagi Yuka of the Date Experience Club looked good because they had signed up a few members.</p>
+<p>Tomorrow's closing assembly was the deadline for the club member recruitment competition, so the victory was leaning more towards Konoe Akina and Otagi Yuka of the Date Experience Club.</p>
+<p>"That's all for the closing assembly, see you tomorrow."</p>
+<p>I sent a look to Saionji Diana as I finished the closing assembly. It would be strange for a female student and a teacher to go home together, so I had told her in advance where to meet yesterday.</p>
+<p>I packed a few materials in the Educational Preparation Room, left work, changed my clothes, put on a hat, and wore a mask. I had to wear at least a disguise because I might run into other students while walking around.</p>
+<p>Then I went out into the street and went to the place I had promised to meet Saionji Diana, and Saionji Diana, wearing casual clothes, was sitting in a wheelchair waiting. She's pretty fast?</p>
+<p>"You're here...?"</p>
+<p>"Yeah, shall we go?"</p>
+<p>"Yes."</p>
+<p>I pushed Saionji Diana's wheelchair and walked along the GPS on the Dark Business app. Since we met roughly in the middle between my house and the Dark Business Miyashi Branch, we could arrive in about five minutes.</p>
+<p>But there was a slight problem. The place we were going was a love hotel district. Moreover, the building disguised by the Dark Business was also in the basement of a love hotel building.</p>
+<p>I was pushing the wheelchair, so I couldn't see Saionji Diana's face, but Saionji Diana's ears were red, as if she was a little embarrassed.</p>
+<p>"It's right over there. As you know, the Dark Business is..."</p>
+<p>"I, I know too."</p>
+<p>She's the heiress of the Saionji family, so she seems to know about the Dark Business. That's a relief. If she didn't know, I would have become a shameless person who took her to a love hotel while saying I would fix her legs.</p>
+<p>"Huh?"</p>
+<p>I heard a voice I had heard somewhere and looked up, and Minamoto Risa was standing there with a surprised expression. After the surprised expression, she changed to an expression as if she was looking at a shameless teacher taking an uncomfortable student to a love hotel. She's misunderstanding a lot, this is a big problem.</p>

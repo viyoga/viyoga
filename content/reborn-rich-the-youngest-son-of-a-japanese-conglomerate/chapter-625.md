@@ -5,76 +5,70 @@ weight = 625
 chapter = 625
 +++
 
-<p>Of course, there was a reason why the women of the group were feeding me so much stamina-boosting food. After the rather enjoyable get-together ended and we were about to part ways, I was grabbed by the women and dragged somewhere.</p>
-<p>However, Urabe Konoka, who I hadn't done it with yet, left me with the words that she wanted her first time to be one-on-one. But is this her trying to seduce me? Doesn't it mean she wants to do it with me alone?</p>
-<p>The place I was dragged to was the floor right above the one we rented for the get-together, a fairly large room with a double king-size bed, where several chairs were placed around the bed as if for someone to watch(?). But when did they rent this room too?</p>
-<p>,I rented this place together when I rented the get-together venue today."</p>
-<p>Sawayanagi Azuma said with a somewhat scary smile.</p>
-<p>,No one will come here until tomorrow morning...."</p>
-<p>Like zombies, the women were surrounding me and slowly approaching. I definitely escaped Shinamgyeong City, but when did I get surrounded by sexy zombies who were already undressed?</p>
-<p>The women, already horny and zombified(?), were all reaching out to me and taking off my clothes. As I mindlessly entrusted my body to the women's hands, I soon found myself naked.</p>
-<p>,Everyone yielded the first time to me because I'm the president."</p>
-<p>Sawayanagi Azuma said to me as she climbed onto the bed first. Sawayanagi Azuma, also with the help of the Seryu Military Company employees, was already not wearing any clothes. It seemed like they quickly took off her clothes to tell her to hurry up and pass on the next turn, but Sawayanagi Azuma didn't seem to mind.</p>
-<p>Rather than that, it seemed like she was in a hurry to cool down the heat of her horny body right now. Even though I hadn't done anything, she was dripping sticky liquid from her pussy.</p>
-<p>,I'll generously apply my natural lotion to Investor-nim's big, lewd cock♥"</p>
-<p>Sawayanagi Azuma, who climbed on top of me and seductively shook her waist on top of my cock, was coating my cock with her dripping vaginal fluid.</p>
-<p>My cock, coated in Sawayanagi Azuma's vaginal fluid, shone as if it had been oiled. Sawayanagi Azuma's pussy, already fully intending to have sex, gently sat on top of my cock, which had become sticky and slippery enough to insert into a woman who wasn't ready for sex.</p>
-<p>,Haaah...!"</p>
-<p>Sawayanagi Azuma made a sweet moan even though she only placed it on top without inserting it. She was moving her waist back and forth, stimulating her vaginal opening and Clitoris with my glans.</p>
-<p>,Hmph, haah! As expected! Eheung, it's different from fingers! Haah!"</p>
-<p>Sawayanagi Azuma said that just rubbing her glans at the entrance felt much better than her usual masturbation. It seemed like she usually masturbated by stimulating the outside instead of inserting it.</p>
-<p>,Hey! Azuma-chan, there's a line behind you, so hurry up."</p>
-<p>,Hehyaaaa!"</p>
-<p>Rihanna Holden grabbed Sawayanagi Azuma's shoulders, who was playing at the entrance, and pressed down hard. Naturally, my cock rapidly widened Sawayanagi Azuma's vagina, which had become narrow from not doing it for a while, and went all the way to the front of her cervix.</p>
-<p>Sawayanagi Azuma was trembling and showing the whites of her eyes from the sudden intense pleasure, so I had no choice but to proceed with the sex afterward. I grabbed Sawayanagi Azuma, who was impaled on my cock, and stood up on the bed.</p>
-<p>And as if showing it to the audience(?), I started piston movements on Sawayanagi Azuma in an ekiben position, lifting her up.</p>
-<p>,Heuht, eunghut! Haah...! Eueuheung!"</p>
-<p>,The junction is visible, so it's so lewd...!"</p>
-<p>,Was that big thing inside my body until now...?"</p>
-<p>,Sensei-nim...♥"</p>
-<p>Everyone had different reactions to my standing fuck performance(?). Some women were looking intently like scholars, while others were newly surprised by my size, and some women were excited by my and Sawayanagi Azuma's sex and were touching their own vulvas.</p>
-<p>,Haaheut...! What is this, heueuheung♡! Haah! The position, haah! Is embarrassing, eunghheut, Investor-nim...♥"</p>
-<p>Sawayanagi Azuma, who had fainted for a moment and regained consciousness, was surprised to find herself the main character of a sex performance and clung to me.</p>
-<p>,Azuma will be watching others do it later anyway."</p>
-<p>,Heueung...! That's, haah! But...!"</p>
-<p>,It's necessary for the president to provide such service to the employees."</p>
-<p>I still bounced and shook my waist as if showing it to those around me, and Sawayanagi Azuma moaned and buried her face in my chest. Then she started sucking on my neck, collarbone, and upper chest.</p>
-<p>Tsu-eup, tsu-eup! Jjoo-ok...!</p>
-<p>Sawayanagi Azuma was sucking so hard that an ordinary person would have a purple bruise, but for me, who has regeneration ability, it was a wound that would disappear in less than a second. But the feeling when she sucked was quite good.</p>
-<p>,Investor-nim...♥ Lay me down on the bed, haah....! It's embarrassing, heuaaht♥ I want to do it lying down.... Heueut, I want to do it lying down...!"</p>
-<p>I originally wanted to torment her more, but since it was our first time in a while, I decided to listen to her opinion. I stopped the piston movement and grabbed Sawayanagi Azuma's armpits and lifted her up.</p>
-<p>Sawayanagi Azuma's chewy pussy flesh came along as if trying not to let go of my cock, but soon it couldn't hold on and my cock came out, and Sawayanagi Azuma's pussy, perhaps because it had accepted my big cock, was gaping and not closing again.</p>
-<p>When I laid Sawayanagi Azuma on the bed, she smiled seductively and pulled my hand. She must be telling me to put it back in.</p>
-<p>I didn't refuse and spread Sawayanagi Azuma's legs and put my cock back into her pussy. I wanted to tease her a little more, but since there were many people waiting behind me, I decided not to waste time.</p>
-<p>Since I was already being thoroughly fucked by me, I enjoyed the sensation of her pussy, which had loosened up enough, and continued to shake my waist. Sawayanagi Azuma's skin was turning pink and she was rising towards climax again.</p>
-<p>,Haah...! I think I'm going to cum, Investor-nim...!"</p>
-<p>,Hold on a little longer. I think I'm about to come too."</p>
-<p>Because Sawayanagi Azuma's pussy, which had become narrow after a long time, felt good, I also felt like I was about to cum soon.</p>
-<p>Cheolpeok! Cheolpeok! Cheolpeok!</p>
-<p>The sound of hitting water with the palm of your hand continued to echo, and I felt Semen coming up from my balls, so I continued to shake my waist violently and pressed myself against Sawayanai Azuma's crotch at the moment of climax.</p>
-<p>,Keut, I'm cumming...!"</p>
-<p>,Heueut! Investor-nim's white milk♥ Eheung! Put it in my haah! Baby room! Haeueueut!!"</p>
-<p>Byuut! Byuut! Byuu...!</p>
-<p>While I was cumming, I suddenly remembered that Sawayanagi Azuma had coated my cock with vaginal fluid, so I pulled out my cock and poured white Semen on her lower abdomen.</p>
-<p>,Heueuheung...! It's warm♥"</p>
-<p>Sawayanagi Azuma smiled with eyes blurred by pleasure, rubbing her lower abdomen. Seeing that, my cock started to harden again.</p>
-<p>,Eh! Ryuta-nim's cock is big again♥"</p>
-<p>Sawayanagi Seari said with a smile. It seemed like the next one was Sawayanagi Seari. Before I knew it, Sawayanagi Azuma was cleared away by the women who were watching the sex, and Sawayanagi Seari knelt in front of me naked and grabbed my cock. And she licked the glans slightly with her tongue and tilted her head.</p>
-<p>,Hmm, is this Azuma-chan's taste...?"</p>
-<p>,Haa, haa, haa.... Seari, can you not say such things because it's embarrassing?"</p>
-<p>Sawayanagi Seari, who spoke innocently, said, "Ah! Sorry," to Sawayanagi Azuma, then smiled seductively and bit my cock hard. Even though it was a cock mixed with Sawayanagi Azuma's vaginal fluid and my Semen, Sawayanagi Seari didn't seem to mind and started sucking my cock as if cleaning it.</p>
-<p>The Semen remaining in my urethra was sucked into Sawayanagi Seari's mouth. My cock, which was already hard, became as hard as chert from the pleasure of being sucked on for Semen. I couldn't just be on the receiving end, so I flipped Sawayanagi Seari over from the position of sucking on my cock and started sucking on her pussy.</p>
-<p>It was a standing 69 or plus 69 position, a 69 position done standing up. It was a position that could not be attempted without tremendous strength, where the man holds the woman upside down, but since I had that tremendous strength, I tried it by lifting Sawayanagi Seari.</p>
-<p>Sawayanagi Seari was surprised by the sudden change in position and bit my cock slightly, but this was okay. My resistance stat had exceeded 20, so my defense had greatly increased, so it wouldn't matter even if an ordinary person kicked my cock hard. A slight bite from surprise is just ticklish.</p>
-<p>I tapped her Clitoris with my tongue as if greeting Sawayanagi Seari's pussy, which I hadn't seen in a while, and licked her pussy overall, and Sawayanagi Seari's erotic fragrance wafted out. Perhaps because she was an elf, it was a refreshing yet lewd contrasting scent, and it was quite addictive. So I buried my face in Sawayanagi Seari's pussy and started licking it greedily.</p>
-<p>,Tsu-eup, heueut! Jjoo-ok...! Haah! Tsup, tsu-beup, heuaahang♥"</p>
-<p>I was impressed that Sawayanagi Seari was constantly moaning from the pleasure of having her pussy licked, but she didn't let go of my cock until the end and kept sucking.</p>
-<p>Actually, I hadn't done it that much with Sawayanagi Seari, so I couldn't say she was good at sucking, but I could say I liked her effort. I should give such a good child a reward. A reward that allows her to do whatever position she wants right away.</p>
-<p>I put Sawayanagi Seari down again, smiled and looked at her, and opened my mouth.</p>
-<p>,Seari, is there a position you want to do when we do it?"</p>
-<p>At my question, Sawayanagi Seari thought for a moment, then clapped her hands as if she had remembered something.</p>
-<p>_________________________</p>
-<p>Azuma B-cut!</p>
-<p>I made it with a new model hehehe</p>
-<p>Seari kneeling in front of Yongtae!</p>
-<p>Kkiyot!</p>
+<p>Ding-dong....!</p>
+<p>The bell rang from the morning, so I opened the door and saw two men in black suits holding a wooden box covered in amulets. The men saw me, bowed their heads with the box in their hands, and greeted me.</p>
+<p>"Good morning, Yamashiro Ryuta-nim. We are from the Naruse family."</p>
+<p>"Ah.... This is?"</p>
+<p>"Yes, it is."</p>
+<p>It seemed they brought the Abyss Armor that I had chosen from the Naruse family's treasure vault. I could just take the other accessories, swords, and scabbards, but they said that the Abyss Armor was a cursed item, so it couldn't be transported by helicopter. They said they would deliver it safely themselves, and they brought it today.</p>
+<p>"We heard that you've been busy lately and we wouldn't know when you'd be off work after you go to work, so we apologize for intruding in the morning."</p>
+<p>"Ah, no. Thank you for accommodating my schedule."</p>
+<p>I asked the Naruse family when they would deliver it, and since my work schedule has been erratic lately, I said that I wouldn't be able to receive it in person unless it was before work, so they really delivered it right before I went to work. The two men in suits who handed me the box bowed politely once again and disappeared in the black sedan that was parked in front of my house.</p>
+<p>I took the box into the house and placed it on the table in the living room. It's not something I need right away, and there's no need to open the box right now. After all, Simyeonui ttal hasn't returned yet. It seemed to be taking a little longer than what Simyeonui ttal said.</p>
+<p>I was thinking that absorbing the Avatar of the Sunken One must be delayed, but I couldn't help but worry. It doesn't make sense for me, a mortal, to worry about Simyeonui ttal, who is an immortal Outer God, but not everything in the world goes according to reason. Worrying is worrying.</p>
+<p>First, I'll open the box when Simyeonui ttal returns and ask her to synthesize it with the bracelet.... It was time to go to work now. I had just finished brushing my teeth and received the box, so all I had to do was change my clothes and I was ready to go to work.</p>
+<p>For reference, Matsunaga Yuzuki got up around 5 a.m. and went home. Even though I used the Sacred Pillar, she was pierced by me until dawn and woke up after only 3 hours of sleep, what great stamina.</p>
+<p>After finishing my preparations for work, I headed to school, feeling the increasingly chilly morning air. It was almost winter weather, so I could see students wearing their coats to school.</p>
+<p>St. Francisco Girls' Academy only had long-sleeved white shirts with blue bow ties and blue skirts for the spring and autumn uniforms, and there was no winter uniform, so they just wore the spring and autumn uniforms with the coats they wanted.</p>
+<p>Considering that there are places that have detailed regulations on skirt length and shoe types, St. Francisco Girls' Academy had relatively free dress regulations for a prestigious girls' academy.</p>
+<p>According to what I heard from Matsunaga Yuzuki, there was a behind-the-scenes story that the winter uniform was not specifically decided so that each family could dress their young ladies warmly. At the parents' meeting, they took the position that they would dress their daughters warmly and that they shouldn't be told what to do by the school rules. So, the academy didn't bother to set a winter uniform.</p>
+<p>Speaking of uniforms, I suddenly remembered that Seizawa Shii wore Hime Lolita-style clothes on my first day of work. She's much more human now. But she still wears the uniform.</p>
+<p>"Huh?"</p>
+<p>I glanced at the place next to the school gate where the St. Francisco Newspaper was piled up, and I thought I saw my name, so I took a step back to check.</p>
+<p>The St. Francisco Newspaper was a club newspaper made by the newspaper club every three or four days and placed in front of the school gate for the students and faculty of St. Francisco Girls' Academy to take as much as they wanted. I didn't think my name would be there, but.... My name and picture were plastered there.</p>
+<p>Breaking News! Date Experience Club to Release Anthology at Festival.... Bonus is a Photo Card of Date Experience Club Advisor Yamashiro Ryuta (23)!</p>
+<p>What? Do they even report on what's coming out at club festivals? Is this newsworthy? And how did they know this fact?</p>
+<p>I wasn't brazen enough to open and read the newspaper in front of the school gate with my picture plastered on the front page, so I took the newspaper and headed to the education preparation room.</p>
+<p>I entered the education preparation room and checked the fax first rather than the newspaper. Hmm, there wasn't anything in particular to report. Just a story about how there are many students staying at school until late because of festival preparations, but they should go home by at least 8 o'clock?</p>
+<p>After checking the fax, I sat down and opened the newspaper. I need to check what kind of content they're using to put out breaking news.</p>
+<p>-One of the most talked-about topics at the upcoming St. Francisco Girls' Academy festival, the Seongsan Festival (聖山祭:Seezansai), will be the new club, the Date Experience Club.</p>
+<p>There has been steady interest in what the Date Experience Club, with its provocative name, will showcase at this festival, and this reporter's coverage has revealed the truth.</p>
+<p>What the Date Experience Club will showcase at the festival is an anthology. According to a reliable source, it contains a wealth of information on the date courses that the Date Experience Club has experienced during the last semester, as well as recommended outfits and movie genres for dates.</p>
+<p>Although it was an anthology full of information and data, it could not be denied that it was a slightly disappointing and small result for a club that is currently the center of attention at St. Francisco Girls' Academy.</p>
+<p>The reporter's disappointment led the informant to reluctantly provide new information, and I couldn't help but be surprised when I heard this information.</p>
+<p>That is, the bonus for the Date Experience Club's anthology is a photo card of Yamashiro Ryuta (23), the Date Experience Club's advisor.</p>
+<p>Yamashiro Ryuta-sensei, who has been ranked #1 in the St. Francisco Girls' Academy popularity poll from September to November, surpassing Kasaoka Koki-sensei (French), who was ranked #1 for the entire last semester in a poll conducted by this magazine during the first semester, has a very attractive photo card....</p>
+<p>There was almost nothing new in the article that I didn't already know. By the way, isn't this an advertisement article? They made me want to buy our club's anthology so badly?</p>
+<p>The 'reliable source' in the article was definitely Shido Tsubaki, the former head of the newspaper club.</p>
+<p>What I didn't know from the article was that the St. Francisco Newspaper was conducting its own popularity poll at St. Francisco Girls' Academy. I didn't know that I had been ranked #1 in the popularity poll for three consecutive months. It was also surprising that Kasaoka Koki was ranked #1 for the entire last semester.</p>
+<p>At this point, I don't have to worry about what I was worried about yesterday, that the club's anthology wouldn't sell much. When I asked the kids who were left in the club room yesterday what they were doing, they said they were doing some viral marketing, and I think they were talking about things like this newspaper article.</p>
+<p>Ttiriri...!</p>
+<p>As I was thinking while looking at the newspaper article, it was time to start the morning assembly. I had forgotten about the assembly time a few times when I was studying for my PMC certification, so I set an alarm, but I almost forgot about it again today. I'm glad I set the alarm. I took the newspaper and headed to the special class classroom.</p>
+<p>Creak!</p>
+<p>"What is this, embarrassing."</p>
+<p>I said as I opened the classroom door and held up the newspaper. The students giggle as they look at my picture in the newspaper.</p>
+<p>"You told me to go home early yesterday because you were going to do something like this?"</p>
+<p>"Ryuta-cchi, you're sharp?"</p>
+<p>"Alik saw Ryuta's news too...! Ryuta's picture is out...!"</p>
+<p>Seizawa Shii and the other students looked like they had been caught at my words, and Alik, who didn't know anything, picked up the newspaper with a slightly excited expression. He seemed a little excited that someone he knew was in the news.</p>
+<p>I was wondering if I should tell him that it's not a big news story, just a school newspaper, but I didn't think it was necessary to break Alik's innocence, so I just let it go.</p>
+<p>"Today's announcement is that the students are staying at school for a long time because of festival preparations, so they should go home by at least 8 o'clock. Let's not overdo it too much.... I know you guys won't listen even if I tell you not to overdo it, so I'll just say this."</p>
+<p>Everyone focuses on my mouth, not knowing what I'm going to say next. I smiled and opened my mouth.</p>
+<p>"It's your last festival as high school students, so do whatever you want, you special class hooligans."</p>
+<p>"Hooligans is too harsh, isn't it, Ryuta-cchi?"</p>
+<p>"It's not wrong, though."</p>
+<p>"Honestly, it's because we're a problem child class...."</p>
+<p>Only Seizawa Shii said it was too harsh at my words, but the others were like, 'Well, that's right,' and didn't really object to my word hooligans. It's even scarier that they admit it like that.</p>
+<p>"So...."</p>
+<p>"You're telling us to keep being hooligans from today, aren't you?"</p>
+<p>"I was just saying it, so forget about the hooligan stuff."</p>
+<p>Minamoto Risa and Kujo Kina said with a grim smile, so I had no choice but to wave my hands and brush it off as a joke. One is a professional absentee and the other is a bully, so there's no need to provoke them. When I waved my hands and asked them not to be hooligans, the students laughed again.</p>
+<p>"That's all for today's announcements. If you have any suggestions or other things you want to say to the teacher, send me a line or come to the education preparation room.... See you at the end-of-day assembly."</p>
+<p>"Goodbye, Ryuta-cchi!"</p>
+<p>"See you later, Sensei~!"</p>
+<p>"Ryuta, bye...!"</p>
+<p>I turned away from the students' greetings and returned to the education preparation room. I checked my smartphone to see if there were any messages, and Urabe Konoka had contacted me.</p>
+<p>-Urabe Konoka: Sensei, I'd like to apply for counseling.</p>
+<p>Hmm.... What's wrong? Is it about Simyeonui ttal? I don't know what's going on until I hear it, so I sent a line to Urabe Konoka saying that I'll see her in the counseling room during lunch break.</p>
+<p>___________________</p>
+<p>Chuseok if you give me Urabe Konoka in Hanbok~!</p>

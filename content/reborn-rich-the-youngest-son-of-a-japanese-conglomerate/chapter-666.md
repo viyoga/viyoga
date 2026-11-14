@@ -5,92 +5,83 @@ weight = 666
 chapter = 666
 +++
 
-<p>"Who's ordering so much, I wondered, and it's Yamashiro-sensei."</p>
-<p>Because I ordered so much, Shimokawabe Airen couldn't carry all the dishes herself, and club members from the Blue Heart Hall, also wearing Japanese-style maid outfits, brought out the food together. Anyway, now Shimokawabe Airen was naturally accepting that I'm a glutton.</p>
-<p>"Ooh...!"</p>
-<p>Since Shimokawabe Airen usually favors Kimonos, I thought it would be similar to usual, but I was wrong. It was just a simple maid headdress and apron, but the feeling was different. Maid outfits are always the right choice...!</p>
-<p>Shimokawabe Airen, wearing a Japanese-style maid outfit a little shorter than Alik's, put the food down in front of me and smiled faintly, as if telling me to enjoy it.</p>
-<p>"It suits you really well, but the skirt seems a bit short?"</p>
-<p>"I cut the skirt because I'm not training enough due to the festival, so I'm trying to do squats in between."</p>
-<p>Cutting the skirt to train... She really is a training maniac. Actually, combat maniac is a more fitting term, but she trains hard to facilitate combat, so she naturally became a training maniac.</p>
-<p>"She trains not only her lower body but also her upper body, and the wok that the master uses weighs a whopping 6 kilograms."</p>
-<p>Nishiike Neiko said, chiming in from the side. A wok that weighs that much? If you add the food inside, the weight will increase even more, so how can she flip the wok? It seems too harsh to handle the constantly pouring orders.</p>
-<p>"Swordsmen need strong wrists, so the weight of the wok is also part of the training. Of course, it will be busy from the evening, so she will use a regular wok then..."</p>
-<p>Does that mean the more you use it, the stronger your wrist becomes? It's an absurd theory to apply to ordinary people, but this world has a strange power called characteristics, so I couldn't guarantee it.</p>
-<p>"First, try the food I brought. Actually, the tea and sweets are old Japanese style, but the meals are made with Chinese style or fried foods to go well with alcohol."</p>
-<p>"But is it okay to sell alcohol at the school festival?"</p>
-<p>I tilted my head and asked at Shimokawabe Airen's explanation. Isn't alcohol not allowed?</p>
-<p>"Of course it's not allowed, but we can't stop guests from bringing it. The Blue Heart Hall graduates are alcoholics."</p>
-<p>Ah, so there was such a method. They check with metal detectors at the entrance, but alcohol is not metal, so you can bring as much as you want.</p>
-<p>"And the alcohol that the graduates kept last year is in the back warehouse of the Blue Heart Hall."</p>
-<p>Nishiike Neiko said again, chiming in. No, they're not keeping it from last year, they're trying to sell alcohol. Of course, they can't sell alcohol, so they'll change the name to storage fee and sell it.</p>
-<p>"If it's kept for a year, you'll get a storage fee, right?"</p>
-<p>"Hehe, of course. Miyashi's land is expensive, so the storage fee is also expensive?"</p>
-<p>I understood why the Blue Heart Hall does better business at night, and why they didn't set up shop in a popular location like the main stadium, but instead made a store near the Blue Heart Hall building in the middle of the forest after hearing the story just now.</p>
-<p>At first, I thought it was because they were martial artists and didn't care if they didn't sell much because they were clean, but these martial artists were selling moonshine without the school's knowledge.</p>
-<p>"Would Yamashiro-sensei like a drink that you kept last year?"</p>
-<p>Nishiike Neiko asked me, making a gesture of drinking alcohol. And I've only been to school for less than half a year, and she's talking about alcohol that I kept last year... How serious are they about the moonshine concept?</p>
-<p>"So, how much is the storage fee?"</p>
-<p>"1 hop (180ml) is provided, and it's from 1,000 yen to 4,000 yen depending on the type of alcohol."</p>
-<p>It's super expensive here too. If alcoholics eat it with snacks, it will cost tens of thousands of yen? Of course, I, the advisor of the Date Experience Club, who sells 40 copies of the club magazine, shouldn't be saying this. We could say we're worse.</p>
-<p>"Give me a glass with a good scent."</p>
-<p>Someone might see me ordering alcohol and ask if a teacher can drink alcohol at this time, but I don't get drunk because of my regeneration ability. I'm just ordering a drink to help the Blue Heart Hall's sales.</p>
-<p>Before the alcohol came out, Naruse Shiyo, Alik, and I tasted the food we ordered. In the first place, Shimokawabe Airen, who is in charge of teaching cooking to the daughters of prestigious families, had first-class cooking skills, so I had no doubts about the taste.</p>
-<p>I had certain expectations for Shimokawabe Airen's food, but this dish was more delicious than expected. In particular, the vegetables were well cooked. Everything was cooked evenly according to the intention, which was good.</p>
-<p>"It's delicious as expected."</p>
-<p>"Moka-sabu cooks well."</p>
-<p>"Sabu-nim, I'm impressed! I think you're better than the head chef of the Naruse family."</p>
-<p>Everyone's expressions were different, but the common thing was praise for Shimokawabe Airen's cooking skills.</p>
-<p>Shimokawabe Airen had heard a lot of praise for her cooking, so she just said humbly, "Hehe, please eat a lot," to our praise.</p>
-<p>"Yamashiro-sensei's kept sake has arrived."</p>
-<p>Nishiike Neiko brought the sake, which was poured in the mokkiri style, with the sake cup in a cypress wood box.</p>
-<p>"The scent is really good?"</p>
-<p>"Because you kept it."</p>
-<p>When I picked up the glass and smelled it, Nishiike Neiko said nonchalantly. Nishiike Neiko's acting was amazing. Anyone who saw it would think that I really came to the festival last year and kept the alcohol.</p>
-<p>Eating the food with the alcohol made it even more delicious. A feeling of lifting each other up? Alik, me, and Naruse Shiyo finished our meal with satisfaction.</p>
-<p>Alik sat on a chair at the entrance of the store to play the mascot role again, and Naruse Shiyo and I returned to the special class building.</p>
-<p>"Next, go play with Diana."</p>
-<p>Minamoto Risa sent me out again as soon as I arrived. This was a really hard schedule with no time to rest. Of course, I couldn't show any signs of being tired while looking at Saionji Diana's expectant expression, so I asked Saionji Diana where she wanted to go.</p>
-<p>"Saionji, where do you want to go?"</p>
-<p>"I'm a member of the Blue Heart Hall, so I want to check if the Blue Heart Hall has prepared well for the festival."</p>
-<p>Ah, I just went there... Saionji Diana had an expression behind her hidden hair that said, "You don't want to go?", so I said, "No, let's go!" and had no choice but to go back to the Blue Heart Hall's tea house together.</p>
-<p>Of course, the rest of the Blue Heart Hall people, except for Alik, looked at me like a playboy when they saw me bringing another woman back so quickly.</p>
-<p>###</p>
-<p>"Ah~! Annoying!"</p>
-<p>There was a woman with a backpack who had just gotten off at Miyashi Station. The woman who said it was annoying while getting off didn't leave the station right away and sat on a bench that was prepared.</p>
-<p>"Originally, I should be eating Sanzokuyaki (Nagano Prefecture's fried chicken dish) in Nagano. Miyashi only has famous prestigious girls' schools and rich people's villas... I don't like it, really."</p>
-<p>It was a woman grumbling as if something had gone wrong with her plan. The woman had hair between light white and silver, and looked to be in her early twenties.</p>
-<p>She was an amazing beauty who would stand out no matter where she went, but the people who got off the train were just passing by as if they couldn't see this woman with light hair.</p>
-<p>"Seigo is really annoying. Why did he make me come all the way here?"</p>
-<p>She grumbled again as if the person named Seigo had called this woman who was going to Nagano to Miyashi.</p>
-<p>"First, I need to book a place to stay. I don't want to sleep with sweaty men..."</p>
-<p>The woman with light hair muttered and started looking for accommodation on her smartphone. But for some reason today, it wasn't easy to make a reservation.</p>
-<p>"Aish~! Why are all the reservations full?"</p>
-<p>A poster attached to a train station pillar suddenly caught the woman's eye as she nervously messed up her hair and shouted.</p>
-<p>St. Francisco Girls' Academy Festival 2053 12/4- 12/5! Enjoy it together!</p>
-<p>Now I understood. Guests from other places were making reservations at accommodations because of the festival.</p>
-<p>"Nothing really works out."</p>
-<p>She messed up her hair again with an annoyed gesture, but her glossy, good hair quickly returned to its place.</p>
-<p>"I was wondering when you would come down, but you were still sitting on the bench."</p>
-<p>A heavy voice was heard. The girl with light hair looked up in the direction of the voice with a sullen expression. There stood a man with red hair who looked over 2 meters tall.</p>
-<p>"Kakan, did you come to pick me up?"</p>
-<p>If a giant over 2 meters tall was standing close without a sound, ordinary women would be very surprised, but it seemed that they knew each other because she called his name and spoke.</p>
-<p>"I have no choice because the master asked me to take care of you."</p>
-<p>"Ah~ I don't want to sleep with men...!"</p>
-<p>"I'll give you a private room, so don't worry."</p>
-<p>Kakan said bluntly as if appeasing his disobedient niece. The woman with light hair got up from her seat with an unavoidable expression.</p>
-<p>"In the first place, the time we were supposed to meet was not today, but much later. Why did you call me in advance?"</p>
-<p>"The master will tell you that."</p>
-<p>At Kakan's answer, the woman with light hair opened her mouth with a slightly brighter expression.</p>
-<p>"Is my father in Miyashi?"</p>
-<p>"The master will tell you that too."</p>
-<p>"Ayu, geez! Are you a robot or what?"</p>
-<p>The woman with light hair made a sullen expression again. Kakan looked at the woman for a moment and turned around as if telling her to follow him.</p>
-<p>The woman with light hair sighed and followed Kakan. The woman with light hair easily caught up with Kakan's steps, who was walking quickly, and started chattering next to him.</p>
-<p>"If you have time, can I go to the St. Francisco whatchamacallit Girls' Academy festival tomorrow?"</p>
-<p>"The master will tell you that too."</p>
-<p>"Ah, seriously~! Don't joke around!"</p>
-<p>With the woman's annoyed voice as the last sound, no one was left in Miyashi Station except for the station staff.</p>
-<p>__________________</p>
-<p>Home Teacher B-cut!</p>
-<p>The skirt is short, ddd</p>
+<p>Seizawa Shii's eyes, when she told me she liked me, were unwavering. We'd kissed and had some playful, suggestive moments before, but this was almost the first time Seizawa Shii had said it so seriously.</p>
+<p>I pondered how to respond, then opened my mouth.</p>
+<p>"I like you too, Shii, but...."</p>
+<p>"It's about the other girls, isn't it?"</p>
+<p>Huh? Did she know? I hadn't really shown it to Seizawa Shii.</p>
+<p>"I'm a woman too, you know. When I see you and the other special class girls exchanging glances or feel the atmosphere, I instinctively know what's going on, even if I don't want to."</p>
+<p>I didn't realize that. She knew about my relationships with the other female students in the special class just from the atmosphere... Does that mean the others know too? Or is Seizawa Shii just sensitive? I need to look into this later.</p>
+<p>"But for now, just look at me."</p>
+<p>"Okay. I'll only look at you."</p>
+<p>As I nodded and gazed intently at her, Seizawa Shii smiled faintly and hugged me again. Then, she started giving me light, pecking kisses.</p>
+<p>Chuk, chuk, chuuk, chuuk...! Ttsup...! Tsup! Ttsup...!</p>
+<p>The light bird kisses soon turned into deep, sensual kisses, exchanging each other's saliva, and the suggestive sounds of kissing could be heard intermittently, even over the sound of the washing machine.</p>
+<p>"Ryuta-jji, your lips are delicious...♥"</p>
+<p>Seizawa Shii said to me with hazy eyes. It was the first time I'd heard someone say my lips were delicious.</p>
+<p>"Really? What do they taste like?"</p>
+<p>"Obviously, they taste like Ryuta-jji~! Why are you asking about the taste so shyly?"</p>
+<p>I was genuinely curious, though. Seizawa Shii stared at me for a while, then grew quiet, her face flushed as she hugged me tightly.</p>
+<p>"Why are you so quiet?"</p>
+<p>"Idiot, it's my first time, so I don't know what to do next."</p>
+<p>Seizawa Shii, who had been exciting me like a little devil in the club room or here in the laundromat, was now hugging me quietly like a deer caught by a hunter.</p>
+<p>Seeing her behavior in contrast to her usual attitude made me even more excited. The sight of the white gyaru, who pretended to be suggestive, being still and unsure made me, as a man, want to dye her with my colors.</p>
+<p>"Then...."</p>
+<p>I stood Seizawa Shii up, still in my arms, and then I stood and took off my clothes. Seizawa Shii shrieked at the sudden striptease and covered her eyes, but of course, she was thoroughly enjoying my naked body through her fingers.</p>
+<p>Of course, I didn't take everything off, leaving one pair of underwear on. Naturally, I was planning to have Seizawa Shii take them off herself.</p>
+<p>"Ryuta-jji, you have a great body...♥"</p>
+<p>Seeing my body, which could be described as the epitome of a man, Seizawa Shii unconsciously stroked my chest. I unconsciously tensed my chest at Seizawa Shii's touch, and she laughed, "Ahaha." I awkwardly said it was a man's instinct.</p>
+<p>I approached the laughing Seizawa Shii and took off her clothes as well. The difference from when I took off my clothes was that I took them off slowly, like acclimating a fish to water, so that the virgin Seizawa Shii wouldn't be surprised.</p>
+<p>First, I slowly unzipped the loose black hoodie jacket that Seizawa Shii was wearing, and then I slowly took off the short-sleeved T-shirt and denim shorts underneath.</p>
+<p>All that was left was her underwear, which wasn't the kind she would normally wear for comfort, but rather luxurious underwear with ribbons and frills.</p>
+<p>"I run into you at the laundromat every time, so I thought I might run into Ryuta-jji today too...."</p>
+<p>Seizawa Shii said, fidgeting with her fingers as if embarrassed. In fact, wearing matching underwear like this was no different from saying, "I'm ready for sex," so she must have been embarrassed.</p>
+<p>"It suits you, you're beautiful, Shii."</p>
+<p>"Really?"</p>
+<p>I complimented her to make Seizawa Shii feel less embarrassed and took a step closer to kiss her. Unlike the kiss just now, our bodies were nearly naked, wearing only underwear, so the feeling of closeness was even greater.</p>
+<p>I could feel the sensation of Seizawa Shii's body temperature rising with excitement, and Seizawa Shii must have been feeling my body temperature as well.</p>
+<p>I kissed her and slowly stroked Seizawa Shii's back, then grabbed her butt.</p>
+<p>I could feel Seizawa Shii pausing for a moment as I touched her firm yet soft butt, but she soon pressed even closer to me and kissed me passionately.</p>
+<p>Ttsup, ttsureup...!</p>
+<p>"Haeueung, it's weird, Ryuta-jji. You're such a pervert. Why does it feel so good when you touch my butt?"</p>
+<p>Seizawa Shii said, pulling away from my lips, as if curious. Of course, my touch, honed by countless women, couldn't help but feel good. With experience, as well as the assistance of traits and skills, she could be called a stone woman if she didn't feel good.</p>
+<p>"Am I the pervert? Or are you the pervert?"</p>
+<p>"Uuung.... Both? Ehehe...."</p>
+<p>She's honest. It seems she's not calling only me a pervert. To reward such an honest Seizawa Shii, I moved my hand from her butt to her chest to give her even greater pleasure.</p>
+<p>As my hand brushed against her skin and moved up to her chest, Seizawa Shii flinched as if she felt good, but when I started touching her chest over her bra, she was slightly surprised and trembled, making a small "Hyaat...!" sound.</p>
+<p>Seizawa Shii was quite busty. I already knew she had big breasts because she usually left a few buttons undone, showing her cleavage, but it was a new experience to fondle the white gyaru's snow-white breasts that I had only seen with my eyes.</p>
+<p>"Hyaeueung...! Ryuta-jji, it's, it's weird.... My breasts, heeut, are tingling, tingling...♥"</p>
+<p>I continued to touch Seizawa Shii's breasts despite her saying it was weird. Seizawa Shii's breasts, befitting her physical abilities, were lively breasts that felt more elastic than soft.</p>
+<p>It could be said that they were blessed breasts that didn't sag despite being large. As I continued to knead them like dough, her nipples began to assert their presence, pushing up against her bra.</p>
+<p>"Heungeueut...! This, haeueut! Ryuta-jji...!"</p>
+<p>When I pinched the small nipples protruding over her bra, Seizawa Shii tilted her head back and expressed her pleasure greatly.</p>
+<p>"Heueueu.... It feels good, Ryuta-jji♥ Wait...! Are you going to touch them more? Haeut!"</p>
+<p>"Is it my fault that Shii's breasts feel so good?"</p>
+<p>In fact, my purpose was to properly teach the virgin Seizawa Shii about pleasure, but I blamed Seizawa Shii's breasts and continued to knead them like dough.</p>
+<p>"Hyaeut, haang~!"</p>
+<p>After guiding her to a light climax twice with her breasts, I lowered my hand. I stroked her firm abs for a while, then touched the area around her thighs, not her pussy, to prevent Seizawa Shii from being suddenly surprised.</p>
+<p>As I brushed against her pussy and touched her thighs and the surrounding area, the moisture gradually increased.</p>
+<p>"Haeueueung.... Something, heeut! It's stuffy, like my chest is blocked, Ryuta-jji...."</p>
+<p>Although she had no experience, Seizawa Shii's body would instinctively know. That there was a place that felt better than her thighs. Since her fluids were already flowing, she would feel a frustrating sensation, like being bitten by a mosquito but not being able to scratch it.</p>
+<p>"Where would you like me to touch you?"</p>
+<p>"Heeut, I don't know...."</p>
+<p>"Tell me quickly, Shii."</p>
+<p>As I whispered in Seizawa Shii's ear in a low, deep voice, Seizawa Shii, with a melted expression, opened her mouth.</p>
+<p>"A little more....♥ Inside, touch Shii's precious place with Ryuta's thick fingers...."</p>
+<p>It's the first time she's called me just Ryuta instead of Ryuta-jji. I could have teased her a little more, but I decided to grant Seizawa Shii's request in honor of her first time calling me Ryuta. I raised my hand from her thigh to her panties and stroked her already moist pussy area.</p>
+<p>"Hyaaat...! Heeut, too strong...♥ It feels so.... Heueung, haeut...!"</p>
+<p>Seizawa Shii's reaction was very strong to just a light stroke. Seizawa Shii's thighs were trembling, and she was about to fall, so she put her arms around my neck to support herself. Seizawa Shii's rough breaths and moans tickled my earlobes.</p>
+<p>If she's reacting this much to just a stroke, it seems like she has considerable sensitivity? If the reaction is this good, it feels great for the person who's caressing her. I continued to touch Seizawa Shii's pussy, watching her become soaked in pleasure.</p>
+<p>"Ryuta-jji, haeut! I'm scared...! Something's coming. Haeut! It's coming... it's coming, it's coming, it's coming...!"</p>
+<p>Seizawa Shii had a big orgasm after I had only touched her for a few minutes. It's a little funny that she said "it's coming" instead of "I'm going."</p>
+<p>The hand that wasn't touching her pussy was holding Seizawa Shii tightly to support her so she wouldn't fall. Otherwise, she would have already fallen on the laundromat floor.</p>
+<p>"Haa... haa... haa....♥"</p>
+<p>Seizawa Shii, who had only been making panting sounds, soon regained her senses and faced me again, looking at me with loving eyes, then lightly touched my lips.</p>
+<p>"I want to make Ryuta-jji feel good too. What should I do?"</p>
+<p>It seemed that Seizawa Shii also wanted to do something for me. I told her to take off my underwear first. Seizawa Shii swallowed hard and looked at my underwear, which was already bulging out in front in an embarrassing way.</p>
+<p>"Ryuta-jji, you, you didn't put something in your underwear, did you?"</p>
+<p>"The only thing in my underwear is my dick."</p>
+<p>"D, dick...."</p>
+<p>Seizawa Shii's voice was mixed with a virgin's unique sense of fear, anticipation, and excitement. Seizawa Shii stared at my bulging underwear for a while, then swallowed hard as if she had made up her mind and grabbed the waistband of my underwear and pulled it down quickly.</p>
+<p>____</p>
+<p>Seizawa Shii Underwear B-cut!</p>

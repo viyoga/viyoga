@@ -5,64 +5,89 @@ weight = 1062
 chapter = 1062
 +++
 
-<p>Shuuuuu!</p>
-<p>Behemoth shot towards me like a Bullet. Seeing his Size, nearly 2 meters 50 centimeters tall, he seemed to have already gained a lot of Energy in this vicinity.</p>
-<p>Behemoth possessed an annoying Ability that stored attacks inflicted upon him as Energy, increasing his power and defense. In addition, though he had no other special Abilities, his Size grew larger, making it easy to tell as his power and defense increased.</p>
-<p>Therefore, seeing him now as a considerable giant, I could realize that he had gathered Buffs while coming this way.</p>
-<p>Rather, when I primarily used Shinkaiyatsude, he would have been an easy Opponent to deal with since I could ignore defense and destroy the interior, but now that I primarily use Creation Chaos Flow, he was quite an annoying Opponent.</p>
-<p>The more he fought, his defense and power increased, so it was important to deliver burst damage output in the early stage of battle before his defense became sufficiently high. But as Behemoth came to me after passing through the Fragment of Omniscience struggle, he seemed to have gained quite a few Buffs from other Opponents, and his Size had grown larger, which was a bit awkward.</p>
-<p>First, I had no choice but to evade. Due to long confinement and abuse, Sajo was weakened to the extreme, and if I fought while 'equipping' him (?), Sajo's life would be in danger.</p>
-<p>Even from the aftermath of battle alone, Sajo could die, so until support arrived, rather than directly clashing, I decided to fight primarily by evasion, and carrying Sajo, I dodged sideways.</p>
-<p>Kwakwakwakwa!!</p>
-<p>Behemoth stopped, digging the Ground like an excavator. And he grinned, tearing his Mouth to the point where his molars were visible.</p>
-<p>"Until now, were you watching us?"</p>
-<p>"Kkeuhheuhheuh, my purpose is the elimination of the Black Knight, so I waited for only the real one to remain among the two Black Knights."</p>
-<p>To buy a little time, I spoke to him, and Behemoth answered as if he had no intention of fighting immediately. By the way, Behemoth coming to New York was for the elimination of the Black Knight....</p>
-<p>Of course, I had probably expected that, but to obtain the Fragment of Omniscience, Sajo, the fake Black Knight, under the Black Sage's command, ran wild in New York, and Famine, seeing that, commanded Behemoth to eliminate the Black Knight.</p>
-<p>And the Federal Superpower Management Bureau, seeing Behemoth's movements, requested my help, so ultimately, my meeting with Behemoth, as the real Black Knight, made me feel a certain inevitable Destiny.</p>
-<p>When Behemoth began to move to eliminate the Black Knight, I was in Japan, unaware of this Situation, so I wondered if Behemoth and I were ultimately destined to meet and fight.</p>
-<p>By the way, I felt a Sense of Incongruity because his appearance was too identical to Behemoth's appearance decades later in the future. After all, Behemoth was not the youngest son of Megacorp, but a character from TMC, which is chronologically in the future.</p>
-<p>He belongs to Superior, a superhuman group that doesn't care about anti-aging at all. Or does the Energy generated from being hit somehow interfere with metabolism and prevent aging? The Seriyu Military Company Kids, who are former Experiment Subjects, would be astonished to hear this, but I wanted to capture him and experiment on him.</p>
-<p>"I also came to eliminate you."</p>
-<p>"Hoo...? Then the Black Knight who was originally running wild in New York wasn't the real one, you mean?"</p>
-<p>To immediately catch the meaning from my short words, Behemoth was quite intelligent compared to his combat style of fighting with Size, power, and defense as his main assets. Of course, since he had already seen Sajo and me fighting, it wasn't information of great significance.</p>
-<p>"Let's stop the Conversation here. If I eliminate you, it won't matter much anyway."</p>
-<p>As if Behemoth had nothing more to say, he ended the Conversation and suddenly, in an Ambush, charged at me. A Charge like a cannonball. I again embraced Sajo and dodged sideways. But perhaps because he had seen me dodge sideways once before, he passed my side, extending his Arm, and attacked me.</p>
-<p>Kuung!</p>
-<p>My Armor shook, and I felt considerable Pleasurable Ache. Since he had already seen me holding Sajo and dodging, even if I were to put Sajo down and fight, the cunning Behemoth would have realized that Sajo was my weakness, so it would be difficult to guarantee Sajo's Safety.</p>
-<p>"Khahaha! What's so precious about a fake Black Knight that you run around carrying him like that?! By continuously dodging sideways, you won't be able to block my attacks, will you?"</p>
-<p>As expected, Behemoth seemed to have realized that Sajo was my weakness, talking about Sajo as he charged again. Of course, I knew it would become increasingly difficult to stop Behemoth if things continued like this. Even if he body-slammed himself into a wall, that also gave Energy to Behemoth, so even if I dodged his attacks, Behemoth would continuously receive Buffs, growing stronger and faster, and eventually, I would be caught.</p>
-<p>Moreover, Behemoth's combat style was not limited to body-slams. As a former Soldier, Behemoth, a Master of various martial arts, focused on gathering shock Energy with simple body-slams in the early stage of battle, but as Energy accumulated, he displayed techniques with complex patterns, so it was important to deal with him in the early stage. Of course, even in the early stage, he was strong enough, so the Difficulty was not low.</p>
-<p>Huuuuung... Kwang! Huuuuung... Kwaang!</p>
-<p>Dodging and Behemoth crashing into Structures, after repeating this several times, I felt his speed gradually increasing. I could also feel it by the sound; the roar of impact seemed to be getting louder and louder.</p>
-<p>"You evade well, Black Knight, like a Rat. Rather, instead of Black Knight for your name, how about changing it to Black Rat?"</p>
-<p>Behemoth did Provocation, calling me a Rat or Black Rat, but his Provocation Skill itself didn't seem very good. Of course, the current Situation of only dodging was quite irritating, but my worry for Sajo was greater, so I didn't get angry.</p>
-<p>Thus, after repeating the unreasonable and irritating act of only dodging the Opponent's attacks several times, just as I was starting to think it was getting too much, finally, an Opportunity came to me.</p>
-<p>A Bullet struck Behemoth's Shoulder, and a delayed 'Ta-ang' Marksmanship sound was heard. Due to his continuous self-Energy generation, his defense was high, so the Bullet didn't fully embed itself, but seeing the flash of blue light, it seemed to have been fired with a Mithril Bullet. Even if Mithril Bullets couldn't inflict great harm, they continuously left Dibeopeu, so even if his defense and power increased after being hit by Mithril Bullets, it was a favorable Situation for me. Perhaps the use of these expensive Mithril Bullets must have been from the sniper team to help me.</p>
-<p>"This way!"</p>
-<p>The sniper team's arrival meant that the transport team had also arrived. Although he was wearing a cybersuit and a Helmet, hearing his Voice, it was Kiyohira-gun. Perhaps the Person riding a bike alongside him was Genbaki's Sabu, Musashi Takuro.</p>
-<p>I don't know why Kiyohira-gun, who should have been in the Hospital, was here, but I threw Sajo to Kiyohira-gun.</p>
-<p>"He's Sajo-nim, so catch him carefully!"</p>
-<p>Given the Situation, I had no choice but to throw him. If I went to deliver him, I might have been body-slammed by Behemoth. After throwing him, I had to keep Behemoth in check. I spoke to Behemoth to distract him from Kiyohira-gun.</p>
-<p>"Now you're dead."</p>
-<p>"Tsk, attacking an Opponent who can't even show defiance was quite fun, you know. Still, I'll be able to know the real Black Knight's power."</p>
-<p>Behemoth didn't seem too disappointed. That meant he was confident in his own power. However, he didn't seem to fully grasp the current Situation.</p>
-<p>Ta-ang! Ta-ang!</p>
-<p>Continuously, Mithril Bullets were embedding themselves in Behemoth's Body. Sawayanagi Mikiyo and Kim Young-chan, the snipers in charge of this Operation, both seemed to have come here, as the two snipers were taking turns sniping. After being hit once or twice, he didn't seem to notice, but as the Dibeopeu from the Mithril Bullets slowly began to accumulate, Behemoth realized that something was wrong.</p>
-<p>"Was this what you aimed for?! Black Knight!! It's useless!"</p>
-<p>This time, instead of charging as before, he moved in a zigzag pattern and came running at me. If he stuck close to me, the snipers wouldn't be able to shoot, so he seemed to be trying to engage in an ultra-close-quarters Match. I subtly looked at Kiyohira-gun, who was riding away on a bike, and shouted at Behemoth.</p>
-<p>"I don't have any Luggage now! You seem to think I'll be scared if you get close, but I'm not afraid of the likes of you."</p>
-<p>I spoke to Behemoth, and at the same time, pulled my fist back, then thrust it at Behemoth's approaching Face.</p>
-<p>-Creation Chaos Flow (Creation Chaos Stream) Paseong (Star Shatter).</p>
-<p>Kwaaaang!</p>
-<p>As soon as I punched Behemoth's Face, starry, indigo-colored Energy, matching the current sky, flowed, exploded, and swallowed Behemoth.</p>
-<p>"Kkeueueuheuk! This much cannot make me kneel...! With your attack, I've become stronger!!"</p>
-<p>His proudly swept-up blonde hair was a mess, and his Face was greatly swollen, but his defense, gained from continuous collisions, seemed to be working well, as his Head wasn't crushed by a single punch from me. Just now, with my Paseong, his defense must have increased even further. Indeed, it was quite an annoying Ability.</p>
-<p>However, I didn't think I would lose. Behemoth was a mid-Boss boasting tremendous power and defense, but since he had no regeneration or recovery skills, ultimately, no matter how small the damage, I could continuously stack it to kill him.</p>
-<p>Of course, I would have to evade Behemoth's attacks well. Since his power increased along with his defense, as time passed, allowing even a single blow would become dangerous. Ultimately, for me, while evading Behemoth's attacks as much as possible, there was no other way but to accumulate continuously decreasing damage on Behemoth to win. I don't get hit, and I hit the Opponent. If I only followed this most basic rule of combat, I would be able to win. Of course, keeping that basic rule is the hardest thing to do.</p>
-<p>Gojoy-nim requested Shinoe Misano, 1. Wearing only a Bra and taking off her Skirt~! 2. Standing in only underwear and Pantyhose~!</p>
+<p>"Kkeut! Hurry and do it...!"</p>
+<p>Sabu said, turning her Head and looking to the Side while lying down. She spoke like a captured gisa, but the current Situation, where Sabu was giving sex as a Reward, didn't match her Way of Speaking at all.</p>
+<p>"Uh.... Sabu."</p>
+<p>"Uh?"</p>
+<p>"I can't do it if you cross your Legs...?"</p>
+<p>She had said 'Hurry and do it' as if Determined, but she had crossed her Legs as if to Defend, so I told Sabu to uncross them. It felt like her Words said 'do it,' but her Body said 'don't.'</p>
+<p>I could have first targeted her breasts or other parts and let her naturally relax, but Sabu's Taut Tension Appearance was amusing, so I deliberately spoke to tease her a little more.</p>
+<p>"J-just do it! You're a Slut-man, so even if I, I Defend, you can do it yourself...!"</p>
+<p>Sabu was screaming out of unnecessary embarrassment. In truth, if Sabu set her mind to Defending, I wouldn't be able to touch even a single finger, but I nodded my Head as if I understood and reached out my Hand to cup Sabu's breasts.</p>
+<p>Her breasts, neither too big nor too small, a perfect Size, filled my Hand.</p>
+<p>As expected of a Fighting Class GOAT, her breasts were trembling yet elastic, possessing a top-tier Touch. Of course, as Sabu was of the Physical Class, her breasts had a higher proportion of elasticity, but the Touch of them pushing against my Hand was so good that I felt I wouldn't tire of touching them.</p>
+<p>"Haaht...!"</p>
+<p>It was as expected, her sensitivity was excellent. Just by cupping her breasts, moaning sounds were naturally escaping her lips.</p>
+<p>"Heueut, Heueuung...! Is touching my breasts a Chiryo, Heueuung... is that it, Haaang...?"</p>
+<p>"You said it wasn't Chiryo, but a Reward for winning, right?"</p>
+<p>When I asked about Chiryo, saying 'This isn't Chiryo sex, is it?', Fujigasaki Rinka said 'Ah, right' and closed her mouth again.</p>
+<p>"Foreplay is needed for sex. And this Act of touching breasts can also be said to be included in sex."</p>
+<p>"Heueu-heung...♥ Is that, Heueut...! Erotic, Haaang...?"</p>
+<p>"Yes. So, please fully enjoy my Touch."</p>
+<p>As I touched her breasts, Fujigasaki Rinka's nipples gradually stiffened, and I felt them pushing against my Palm. I gathered my fingers and lightly pinched Fujigasaki Rinka's nipples over her Bra.</p>
+<p>"Haa-haang!!! That's the spot...!"</p>
+<p>The moment I touched her nipples, Fujigasaki Rinka thrashed as if an electric current had passed through her. Glancing down below, I saw her crossed Legs had already uncrossed and were spread defenselessly, and the pink part of her Pussy in her panties was wet, staining it a darker gray.</p>
+<p>I, too, was considerably Aroused by this Situation. Seeing Sabu, who had taught me since childhood, so disheveled before me, the Forbidden Pleasure was immense.</p>
+<p>My cock was so Erection that it seemed to pierce the front of my Pants, truly bulging out like a Tent.</p>
+<p>For a while, I touched Fujigasaki Rinka's breasts, enjoying their Touch and Sabu's Reaction, then slowly began to take off my Clothes.</p>
+<p>In truth, I wanted to torment Sabu a little more, but my cock, pushing against my Pants, was suffering more, so I decided to take off my Clothes first and proceed.</p>
+<p>"Haa.... Haa.... Haa...!"</p>
+<p>Sabu was watching me take off my Clothes with hazy, dazed Eyes. With the sound of a zipper unzipping, my cock, hidden by my panties, sprang out.</p>
+<p>Earlier, I thought I was Aroused by seeing Sabu's Pussy wet, but it was the same for me. It was even worse; the glans part of the boxer briefs I was wearing was also soaked with pre-cum, a complete Eongmangjinchang.</p>
+<p>I had intended to keep my panties on, but it wouldn't work. I took off all my panties and became Naked. Naked, I grinned at Sabu.</p>
+<p>"Did you enjoy your Disciple's strip show?"</p>
+<p>"Idiot, how is just taking off Clothes a strip show?"</p>
+<p>Sabu also laughed and Answered my playful Question. You're telling me a Person's Pussy gets that wet just from watching someone take off their Clothes?</p>
+<p>Earlier, only the interlocked part of her Pussy was wet, but now almost the entire thing was soaked, completely revealing the outline of her Pussy; seeing this, it seemed I couldn't say she didn't enjoy my strip show.</p>
+<p>Still, since it was our first sex, I didn't intend to tease her unnecessarily and make the Atmosphere strange. I reached my Hand under Fujigasaki Rinka's lying back and unfastened her Bra Hook. Then, I took off her Bra.</p>
+<p>Sabu's breasts, with cute pink nipples standing erect, were revealed before my Eyes. Seeing the beautiful pink nipples, tempting as if asking to be licked, I couldn't resist and bit her nipple.</p>
+<p>"Euh-heung...! Ryuta-aat...! W-what are you, Haaht! doing, Haaang...♥"</p>
+<p>Fujigasaki Rinka asked what I was doing when I suddenly bit her nipple. To ask what I was doing by sucking her nipple, she clearly lacked Intimate Experience.</p>
+<p>"Heueuung! Even if you, Haaht! suck it like that...! No milk will, Heueut! come from my breast...♡ Haaang...♥"</p>
+<p>Jjeup...!</p>
+<p>Listening to Sabu's moans, I pulled my mouth away from her nipple. Both nipples were standing stiffly, pointing towards the sky in pleasure, but one was glistening with my saliva, looking incredibly Erotic.</p>
+<p>I touched Sabu's breasts again. I was about to take off her panties immediately, but I changed my mind, thinking I should experience the Sonmat of her Bare Breasts again, as I had only sucked them and not touched them.</p>
+<p>Indeed, no matter how advanced Bras became, touching Bare Breasts felt much better. Not only was the Touch better than touching over a Bra, but the Feeling of flesh against flesh was also superior. It was a pleasantly clinging Feeling, perhaps?</p>
+<p>"Haa-heung...! How long will you, Heueuung...♥ just touch my breasts, Haaang...?"</p>
+<p>As I began touching her breasts again, Fujigasaki Rinka looked into my Eyes and asked, unlike when I touched her over her Bra.</p>
+<p>"Is it wrong that Sabu's breasts feel so good?"</p>
+<p>"My, Heueuung, breasts, Heueuk! Feel good, Haaang...?"</p>
+<p>She likes it when I say they feel good. Everyone is susceptible to Praise, but Sabu seemed even more so.</p>
+<p>"Of course. They're incredibly addictive, Erotic breasts. They feel so good I can't let go."</p>
+<p>As I whispered softly, Fujigasaki Rinka reached a small Climax, exclaiming Haaht...! Thinking it was about time, I slowly lowered my Hand. Passing below her breasts, I touched her firm Abdominal Muscles as if giving a Massage.</p>
+<p>Passing over her slightly protruding Lower Cauldron, I began to touch Fujigasaki Rinka's Pussy over her panties, which were too wet to do their job. This, Sabu's Pussy...!</p>
+<p>"Heueuung...! Not there, Heueut! Nooo...."</p>
+<p>Just moments ago, she asked how long I would only touch her breasts, but now that I touched her Pussy, she said no. She tried to close her Legs due to the Thrilling Fear unique to Virginity, but I held one leg with my leg and fixed the other thigh with the Hand not touching her Pussy, forcing her Legs open.</p>
+<p>"Heueuung...! Haaht!"</p>
+<p>As I touched her Pussy over her wet panties, I could feel the outline of her Pussy almost as if touching her bare flesh. In truth, since it was a tightly closed, straight-line Pussy, there wasn't much of an outline, but just touching the slightly plump Pussy brought immense mental Satisfaction.</p>
+<p>Perhaps due to the Forbidden Pleasure of being on the verge of violating Sabu, pre-cum was dripping from my urethral opening.</p>
+<p>"Haaang! Haaht! That place, Heueuung! It's strangeee...!"</p>
+<p>Fujigasaki Rinka's Pussy had a different kind of softness than her breasts, and her Appearance, feeling even more sensitive than her nipples, held a magic power that made me want to keep tormenting her.</p>
+<p>"Sabu, I'm going to start."</p>
+<p>Normally, I would have tormented her more, but right now, treating Sabu's Internal Injury was the priority, and above all, I needed to calm my continuously Erection cock, so I pulled aside Sabu's panties and pushed my cock forward.</p>
+<p>But I didn't insert it immediately. I rubbed my cock up and down over her Pussy as if performing Sumata.</p>
+<p>"Haa-heueuung...! If you, Heueut! rub it like that...!"</p>
+<p>"It feels good, doesn't it?"</p>
+<p>"Heueut.... Uh, it feels.... good. Haaht! Down there...! It feels good...!"</p>
+<p>Sabu Answered my Question honestly. Touching her Pussy seemed to make her feel good, putting her in a state where she was half in Climax and speaking honestly as I asked.</p>
+<p>"Now I'm going to put it in, Sabu...!"</p>
+<p>"I'm Determined...! So, Haaht♥ come inside me."</p>
+<p>Hearing Sabu's Determination, I held my cock and aligned it with Sabu's Jilgu. Her Pussy was sufficiently loosened from being touched over her panties and rubbed with my cock.</p>
+<p>"Keueut...!"</p>
+<p>I only inserted the tip of my glans, but the Pressure was considerable. Because Sabu's entire Body was trained, her Vaginal Pressure was no joke.</p>
+<p>"Haa-heueuung...!"</p>
+<p>This time, I pulled my waist back slightly, then almost fully inserted my glans. Then, I felt something like a membrane blocking the Entry of my cock.</p>
+<p>As I thought, her Hymen was blocking the Invasion of my cock. I pulled my waist back again, and this time, I pushed hard.</p>
+<p>"Hwaaa-aat...!"</p>
+<p>With a tearing, ripping Feeling, my cock tore through Fujigasaki Rinka's Hymen and entered inside. Sabu let out a moan that seemed to express both pleasure and pain simultaneously.</p>
+<p>Having fought countless battles, Sabu was accustomed to pain, so she didn't show any signs of hurting.</p>
+<p>"Inside, Heueut...! Ryuta's, that cock.... Heueuung♥ Is it all the way in?"</p>
+<p>Sabu looked at me and asked. In truth, due to the Size of my cock, it wasn't all the way in, but I nodded my Head.</p>
+<p>"Now I'll start moving, Sabu."</p>
+<p>I looked down at Sabu and began to thrust my waist.</p>
+<p>Rinka-tan B-cut~!</p>
+<p>chea yun-nim requested Sabu in a Bikini~!</p>
+<p>TheDreaming-nim requested Tsukiyo at an amusement park 1. Carousel 2. Interview</p>
 <p>1.</p>
+<p>Surprisingly, the carousel roller or carousel didn't appear immediately, so I had to do some prompt farming, hehe.</p>
 <p>2.</p>
-<p>After a long time, I was drawn to 2.5D, so I created these Illustrations hehe</p>
-<p>I created them exactly as Shinoe Misano's prompt hehe</p>
-<p>Just changing hair Color hehe</p>

@@ -5,84 +5,70 @@ weight = 211
 chapter = 211
 +++
 
-<p>There are illustrations of swimsuits. Please be mindful of your surroundings while viewing!</p>
-<p>After taking the Kurotsukido remnants as prisoners, I took off the pants of a fallen DTMS soldier and put them on. Hmm.... It's a bit tight in the middle. It was quite uncomfortable because it was a form-fitting combat suit.</p>
-<p>"Investor-nim~!"</p>
-<p>Before I knew it, a Seryu Group transport vehicle was parked at the school entrance, and the Seryu Group people were running towards me. Well, Sawayanagi Azuma had already seen me naked, so she didn't care, but the women blushed when they saw me, and the men looked at me with a mixture of awe and jealousy at my size. Hmm, I'm getting a little cocky without realizing it.</p>
-<p>"Are you okay?"</p>
-<p>"Yes. My cyber suit completely melted, but I wasn't hurt."</p>
-<p>While I was answering Sawayanagi Azuma's question, the rest of the Seryu Group were tying up the surrendered Kurotsukido. Yeah, we can't just leave them alone because they surrendered, we have to tie them up.</p>
-<p>"What should we do with Tang Xiaohua?"</p>
-<p>"We need to put her to sleep for a long time, so we should give her a sedative."</p>
-<p>Sawayanagi Azuma asked, looking at the unconscious Tang Xiaohua with a worried expression. Even taking her as a prisoner was a problem. Her poison could melt cyber suits, so handcuffs or ropes wouldn't work, and I was the only one who could withstand the poison, so it was quite a problem.</p>
-<p>Should I have just killed her? I was thinking of trying to persuade her... Tang Xiaohua was so OP when fighting against multiple opponents, so I was quite tempted.</p>
-<p>"We should put her in a sealed underground building for now. I'll interrogate her."</p>
-<p>No matter how poisonous she is, she won't be able to melt a concrete building. After recovering the drone, Rianna Holden, who arrived late, gave me a syringe. Maybe because she saw my snake while directly controlling the drone, Rianna Holden couldn't even look at my face and handed me the syringe with a bright red face.</p>
-<p>"H-Here's the sedative!"</p>
-<p>I took the sedative and injected it into the vein of Tang Xiaohua's bare arm, where her cyber suit had been blown away by my attack earlier.</p>
-<p>"We used this when we captured prisoners, so she'll probably sleep for more than a day, Investor-nim."</p>
-<p>Do they just use sedatives if they're too lazy to tie them up? Or do they use sedatives if they have abilities that make handcuffs or ropes useless, like Tang Xiaohua? It's probably the latter. They wouldn't use expensive drugs just because they're lazy, right?</p>
-<p>Tang Xiaohua might sleep even longer because she suffered internal injuries from my continuous penetration attacks during the fight earlier. Surely the internal injuries and the sedative won't combine to kill her, right? Still, she's a notorious mid-boss, so she won't die. Her vitality must be quite tough.</p>
-<p>"Sunbae-nim!"</p>
-<p>Mimata Chieri, who was leading East Weapon and slowly coming behind us, had finally arrived and was waving her hand and running towards me.</p>
-<p>"Oh! This person is...! Tang Xiaohua was really here. Is Akita Prefecture such an important place that the Northeast Asia branch manager of Kurotsukido came?"</p>
-<p>"It was amazing! Everyone was impressed by how Investor-nim fought and defeated the notorious Tang Xiaohua in a one-on-one battle!"</p>
-<p>Mimata Chieri was surprised to see Tang Xiaohua, who was unconscious and collapsed, and Sawayanagi Azuma boasted to Mimata Chieri about seeing the fight between me and Tang Xiaohua, as if she was showing off the stage of her favorite singer.</p>
-<p>"Please don't let the video taken by the drone go outside. I don't want to publicly announce that I'm a psychic yet. I was wearing a helmet, but there might be people who suspect me because of my body shape."</p>
-<p>I had been wearing the cyber suit and helmet the whole time, and the drone only filmed the Seryu Group, so there was no chance of being caught by allies, and all the cyber suits melted while fighting Tang Xiaohua, but only the outer part of the helmet melted, so my face wasn't revealed.</p>
-<p>So, I told Sawayanagi Azuma that no one would know my identity if the Seryu Group or Mimata Chieri kept their mouths shut. Mimata Chieri obviously knows my situation, so she won't spread rumors that I caught Tang Xiaohua.</p>
-<p>"Of course, we're hiding that we're psychics, so we won't reveal Investor-nim's abilities."</p>
-<p>"But I'm curious about the fighting scene, so please send it to me so I can watch it!"</p>
-<p>Mimata Chieri also has a hidden battle maniac side, so she asked Sawayanagi Azuma to send her the video. I think she's going to make fun of me a lot later for fighting naked after watching the video....</p>
-<p>"Sunbae-nim, where can we put Tang Xiaohua? I'm worried that she'll harm the people around her with her poison if she wakes up, so I want to put her in a slightly sealed space."</p>
-<p>"Ah! I bought something good from that app that Hubae-nim introduced me to."</p>
-<p>I knew that Mimata Chieri had been using the black market occasionally since she took over East Weapon, so what did she buy? Oh, by the way, I became a Plus member during my trip to Korea and had a few more invitation tickets, so I told Han Yu-gyeong about the black market. Han Yu-gyeong would use it well.</p>
-<p>"What did you buy?"</p>
-<p>"Just a moment...."</p>
-<p>Mimata Chieri ordered something to be brought over the radio, and soon East Weapon soldiers brought a large metal container like a coffin. The metal box was large enough for a large person to lie down with a little room to spare.</p>
-<p>"It's a box made very sturdy to hold ability users. It's also very resistant to corrosion, so it'll be okay even if Tang Xiaohua uses poison."</p>
-<p>Oh, it's a relief that we have something like this. But why did she buy something like this?</p>
-<p>"But why did you buy it?"</p>
-<p>"I thought I might use it someday, and it was 50 percent off, hehe."</p>
-<p>I can't resist a half-price sale. Everything on the black market isn't cheap. It seemed like she made an impulse purchase because it was on sale. Mimata Chieri manipulated the box to open it, and I put Tang Xiaohua inside. The coffin closed, and Mimata Chieri gestured, and East Weapon soldiers loaded the box into the vehicle.</p>
-<p>"Nagumo Sian-nim told us to return now. East Weapon should be stationed half in Akita City and half in Senboku City because Kurotsukido remnants left in the north of Akita Prefecture might come down, and she told only Mimata-ssi to come."</p>
-<p>Sawayanagi Azuma told us the contents of the call, probably because she had a conversation with Nagumo Sian while Mimata Chieri and I were putting Tang Xiaohua in the box. Yeah, reporting is the most important thing. Especially since it's a victory report.</p>
-<p>"Well, since DTMS has been annihilated, our East Weapon has to take charge of both Akita City and Senboku City. I'll contact the vice president for a moment, so Hubae-nim, please get dressed. East Weapon will bring the clothes."</p>
-<p>While Mimata Chieri was calling to give instructions to the vice president, East Weapon soldiers brought clothes neatly packed in a shopping bag. I left the school, took off the pants I had taken from the corpse and the helmet that wasn't working properly because it had melted behind the car, and changed my clothes. And I got straight into the vehicle. I didn't need to reveal my face since I had taken off my helmet, so I had to get in right away.</p>
-<p>I picked up my phone that I had left in the car. I checked to see if anyone had contacted me, and someone had sent me a Line message. It was a message from Konoe Akina, who I thought would only come in the afternoon.</p>
-<p>Konoe Akina: Ryuta-nim, I bought a phone because there was a place selling them late at night. Are you doing well with your mission? I hope you are safe.</p>
-<p>I thought she would only be able to get a phone in the afternoon, but it seemed like she found a place selling them at night and bought it now. She sent the Line message three hours ago, so she was probably asleep now. But I had to reply now. I often forgot to do it later, so I usually replied right away, even if it was late.</p>
-<p>Taira Ryuta: Konoe-ssi, things are going well, so I think I'll be able to go back tomorrow or the day after. Please take good care of the kids in the meantime. I'm counting on you.</p>
-<p>Konoe Akina: I'm glad things are going well. I'll take good care of the children until I meet Ryuta-nim again.</p>
-<p>Taira Ryuta: There's a lot of money on the card, so don't worry about money and use it as much as you want.</p>
-<p>Konoe Akina: I understand. I'll live comfortably so Ryuta-nim doesn't have to worry.</p>
-<p>As expected of the daughter of a prestigious family, even her tone in Line seemed different from others. After finishing the Line conversation with Konoe Akina and putting my phone in my pocket, the Seryu Group people started getting into the car one by one. And Mimata Chieri also got in. What's going on? Shouldn't we be riding separately? When I sent her a questioning look, Mimata Chieri smiled brightly and opened her mouth.</p>
-<p>"I decided to ride in this car and go together! I'm going to watch Hubae-nim's video while we go!"</p>
-<p>"What about Tang Xiaohua?"</p>
-<p>"The vehicle with my and Hubae-nim's luggage will follow behind. The box with Tang Xiaohua is also in that car."</p>
-<p>Then it's okay. I had to keep Tang Xiaohua with me because if I left her in a place where I wasn't there and she caused a ruckus, there would be no one to stop her.</p>
-<p>"Okay, let's go."</p>
-<p>This time, Sawayanagi Sinya, the vice president of Seryu Military Company, decided to drive instead of Kiyona Hori. Kiyona Hori and Kiyona Mari came to the back because Kiyona Hori couldn't see my battle scene taken by the drone while she was driving, and Sawayanagi Sinya and Sawayanagi Tobe got in the driver's seat and the passenger seat.</p>
-<p>The transport vehicle we were in departed for Daisen, the main base of Taira Foods, where Nagumo Sian was, and Rianna Holden played my battle scene. The video started from the scene before Tang Xiaohua annihilated DTMS.</p>
-<p>Ah, it's a bit embarrassing.... Suddenly, I felt a gaze and turned around, and the clairvoyant sniper we had tied up and thrown in the corner was looking at me. She seemed to have something to say, so I took off her gag, and she opened her mouth to me. Now that I see her, she has a pretty cute appearance. Big eyes and gray twin tails. She had an appearance that would be quite in demand.</p>
-<p>"Did you kill the boss?"</p>
-<p>"No."</p>
-<p>The clairvoyant sniper had a look of relief and something similar on her face at my words.</p>
-<p>"Are you the person who wants to be my new master?"</p>
-<p>"If you follow me, I'll be your master."</p>
-<p>"I follow the person the boss follows."</p>
-<p>Hmm.... In the end, I have to persuade Tang Xiaohua to have this clairvoyant sniper under my command. I asked the clairvoyant sniper what I was curious about. But she's good at Japanese. First of all, I can't keep calling her a clairvoyant sniper, so I have to ask her name first.</p>
-<p>"What's your name?"</p>
-<p>"It's Yang Xuexi. I have nothing more to say."</p>
-<p>Wait.... If she's a Yang, that's one of the surnames of the two families that founded the Black Moon Society? She's a surname that can be said to be the royal family of the Black Moon Society, but she's just calling the branch manager boss, boss and following her.... Is she a collateral line that was pushed out of power? There were many things I wanted to ask, but she closed her mouth tightly like a clam, as if she wouldn't say anything more, so I put the gag back in her mouth and returned to my seat.</p>
-<p>When I returned to my seat, the scene of me naked strangling Tang Xiaohua was on the screen. When I glanced at Yang Xuexi, her eyes were wide open as if she was surprised by the explicit scene. Or maybe she was surprised that the boss, who she thought was invincible, was defeated.</p>
-<p>"Wow, that was really good!"</p>
-<p>Mimata Chieri was making a fuss, and the Kiyona Hori and Mari sisters, who saw me naked for the first time, blushed, and Sawayanagi Seari and sniper Sawayanagi Mikiyo, who were in charge of cuteness in the Seryu Group, had interesting expressions even though they had seen it once. They both look very young, but they're adults, so I can't tell them not to watch it....</p>
-<p>For reference, Sawayanagi Shigeru, the speed ability user, who was one of the two men who didn't ride in the driver's seat and the passenger seat, was dozing off, probably because he was exhausted after catching Yang Xuexi earlier.</p>
-<p>Katayama Junichi, who is most interested in close combat in the Seryu Group, was excited as if he had seen a great martial arts video. He was looking at me with hot eyes that seemed like he would call me master right away. I don't know if I should be grateful that he looked at the martial arts instead of my Johnson, but it was definitely burdensome.</p>
-<p>"Now! Next, we'll watch the music video that Hubae-nim filmed in Korea this time!"</p>
-<p>"Waaaaah!"</p>
-<p>I should have ridden in the car that was following behind instead of this car.... I almost died of embarrassment because I kept watching videos related to me until I arrived in Daisen City.</p>
-<p>--------</p>
-<p>Yang Xuexi</p>
-<p>Xuexi... Her name is pretty.</p>
+<p>"Kuh-euh, hng! I will never give in, euuung♥! If I get the chance... haaht! I'll kill you anytime, hng♥!"</p>
+<p>While saying that she would kill me and resisting with all her might, Dang So-hwa experienced two or three orgasms, and her reaction changed a bit.</p>
+<p>"Haa-euuht♥ Now, now, hyaaht! No more...! Hng, eungh-euuht♥"</p>
+<p>After giving her about three more orgasms here, her eyes rolled back, and she became completely dazed.</p>
+<p>"Hng♥ Dick, dick...! Joah♥"</p>
+<p>Now she had completely become a dick-parrot, only chanting "Dick joah♥." Seeing her standing there with trembling legs, dripping a mixture of white semen and vaginal fluids onto the floor, looking at me with glazed eyes, I felt somewhat proud. It was proof that I could turn the murderous glares from the beginning into this.</p>
+<p>It seems like the complete taming will be done by tomorrow or the day after, but to make good use of Dang So-hwa and Yang Seol-hui, I need to control them well so they don't become sex addicts. It seems to be working too well for my liking.</p>
+<p>...Looking at her now, it seems a bit late, but it will work out somehow.</p>
+<p>"Okay, this time, I'll feed it to you directly."</p>
+<p>Because I had ejaculated so much inside her pussy today, I was worried about pregnancy, so I put a birth control pill directly into her mouth, and I transferred the water from my mouth to hers.</p>
+<p>Dang So-hwa swallowed the birth control pill and then clung to me, desperately begging for a kiss, her tongue intertwined with mine. Because it was a kiss with mineral water in my mouth, the wetter, stickier, and more lewd sounds stimulated my ears.</p>
+<p>Chwaap, chyap, chuuup, chup, chup♥</p>
+<p>As we exchanged saliva and intertwined our tongues, my limp snake, which had been deflated by so much ejaculation, stiffened again, raising its head proudly and looking around for prey.</p>
+<p>But no matter how pitifully she clung to me, it was impossible to do more with Dang So-hwa. Even though her pussy was well-lubricated with her vaginal fluids and my semen, the mound of her pussy was flushed red, so doing more now would cause injury. Then there's only one person left here.</p>
+<p>I finished the kiss with Dang So-hwa, left some bread in Dang So-hwa's cage, locked it, and then entered Yang Seol-hui's cage.</p>
+<p>Yang Seol-hui, who had fainted from the excessively intense experience for a first time, had already woken up and was watching me and Dang So-hwa having sex, squirming and masturbating.</p>
+<p>"Did you loosen up your pussy well?"</p>
+<p>"Nehee♥"</p>
+<p>It seemed that Yang Seol-hui had also become submissive, watching Dang So-hwa being conquered in real time. Or maybe she was just unable to think properly due to continuous masturbation.</p>
+<p>"Please put it in my pussy like Daejang-nim♥"</p>
+<p>Unbelievably, Yang Seol-hui, who was a virgin until a few hours ago, started to seduce me, spreading her pussy wide open. As a gentleman, I couldn't refuse a lady's seduction. I grabbed my fully erect dick in one hand and slowly approached Yang Seol-hwa. As I approached, Yang Seol-hwa's face was filled with joy.</p>
+<p>###</p>
+<p>The morning schedule on the third day at the villa was the same as usual, swimming, but it changed to visiting the shooting range because Yukiko got interested in shooting. Making her enjoy shooting was my intention from the start, so it was something to welcome. The gun I ordered in the middle will arrive around the day after tomorrow, so I couldn't help but smile like a dad when I thought about how much Yukiko would like receiving a surprise gift.</p>
+<p>"It seems to be getting more and more fun!"</p>
+<p>"I feel so proud that I introduced it to you if you enjoy it that much."</p>
+<p>She seemed to be enjoying it because she definitely had talent. I didn't find it that fun. I didn't show it much, so Yukiko didn't notice.</p>
+<p>After shooting, we returned to the villa and ate lunch prepared by the villa staff. Today, a clear seafood hot pot was served, so even though I didn't drink yesterday, I ate it refreshingly as if I were curing a hangover. After eating all the seafood, I added udon noodles and ate it, and I was quite full.</p>
+<p>When we finished lunch, Elder Fukami approached and asked.</p>
+<p>"What would you like for dinner tonight?"</p>
+<p>It seemed like he was asking because we had been eating dinner separately almost every time since we came to this villa.</p>
+<p>"We're going to eat out for dinner, so you don't need to come separately and prepare it."</p>
+<p>"Ah, I see. Is there anything about the meals we prepared that you didn't like...?"</p>
+<p>Elder Fukami asked with a worried expression at the words that we were going to eat out again. It seemed that the villa staff couldn't help but worry since we kept eating dinner separately, having cereal for breakfast, and only eating lunch.</p>
+<p>If we, the royal family of the Taira Group, were not satisfied, there was no need to use the current villa staff, so it was directly related to the issue of stable employment.</p>
+<p>"No. I'm very satisfied, but I came to the villa not only for vacation but also for sightseeing, so I can't eat dinner because I'm traveling around. I also eat simply for breakfast."</p>
+<p>Elder Fukami had a relieved expression at my answer. He must have been even more anxious because he was in a position to take responsibility for two more people, not just himself.</p>
+<p>From our perspective, we couldn't openly date, so we had to eat one meal outside because we scheduled a date every day during the vacation.</p>
+<p>"I'll eat dinner at the villa tomorrow, so please make it really delicious."</p>
+<p>"I understand. I will do my best to ensure you have a satisfying meal."</p>
+<p>Elder Fukami and Hashima Ajumma, satisfied with my answer, started to clear the table, so we got up from our seats. The schedule planned after yesterday's shooting was to go to a ranch 40 minutes away by car.</p>
+<p>It was a schedule planned by Yukiko, saying that as a member of the Taira family, she should know how to ride a horse as a cultural refinement. It was a time when the world was past World War III, but riding a horse was an essential refinement... It was a deplorable thing.</p>
+<p>After finishing lunch and taking a short break, we took the car to the ranch. After traveling for 40 minutes and getting out, the sweltering summer weather greeted me, compared to the air-conditioned car.</p>
+<p>From next year, I should spend the summer in Hokkaido or a cool place abroad. The summer weather in Japan seemed harder than in Korea. Of course, I was mostly indoors with strong air conditioning, but when there was an outdoor schedule like today, sweat dripped down.</p>
+<p>I registered for the beginner course and learned basic horsemanship, starting from getting on the horse, and Yukiko was good enough to ride a horse and run around, so she was riding a horse and running.</p>
+<p>Because this body's hardware is so good, I got the hang of it after learning for more than an hour or two, and I was able to ride a horse to some extent. After I learned to ride a horse to some extent, we had the experience of feeding cows, alpacas, sheep, and goats at the ranch in a date-like atmosphere.</p>
+<p>After petting and playing with the animals for a while, we ordered cream pasta and cream stew made with cheese and milk from the ranch at the store and restaurant in the ranch. Hmm, it felt more delicious because I met the cows and sheep that directly produce the cheese and cream raw materials.</p>
+<p>And then we stopped by a small souvenir shop next to it and bought things to commemorate each of us.</p>
+<p>The souvenir shop had dolls of the animals on the ranch and things like cheese and cream sauce made here. And for some reason, among the souvenirs, there was a set of a swimsuit with a cow pattern and a headband with cow horns being sold in one corner, so I bought it as if possessed. It seemed to suit Yukiko, who has big breasts, quite well.</p>
+<p>Yukiko bought a piece of cheese and an alpaca doll because she liked the cheese, and I didn't buy anything except for the cow set. Of course, Yukiko saw the cow set I bought and said, "Aicham!" blushing and slapping my arm, but I didn't regret it. Yukiko will definitely wear the cow swimsuit set.</p>
+<p>"Shall we go back now?"</p>
+<p>"Yes. It was fun today."</p>
+<p>"Hehe, me too♥"</p>
+<p>She looked very happy to have something similar to a date like this, after only having secret meetings at the Human Resources Development Center house every day. Because it was summer, the sun was setting late, so it was still bright even though we had dinner. It was only when we arrived at the villa that the sun was slowly setting into the sea.</p>
+<p>"We couldn't swim today, so shall we swim for a bit?"</p>
+<p>I nodded at Yukiko's words. We couldn't swim if it got too dark, but it was bright enough to swim for about thirty minutes now.</p>
+<p>Yukiko, excited at my nod, went up to the second floor to change into her swimsuit. She probably wanted to show me her swimsuits in the many luggage more than swimming.</p>
+<p>This time, it was a white gold bikini, the opposite of yesterday's gold black bikini. There was a cloth that slightly covered one thigh, so it looked a bit more modest than yesterday, but Yukiko's body itself was an explosive body far from modest, so it just looked sexy.</p>
+<p>I quickly threw off my clothes and put on my trunk swimsuit and walked along the beach with Yukiko holding hands. The sun was setting faster than we thought, so it seemed like we couldn't swim in the sea.</p>
+<p>"Let's just take a walk on the beach and swim in the pool in front of the villa."</p>
+<p>"I guess so. The sunset is already setting, so it will be dark soon if we wait a little longer."</p>
+<p>I looked at Yukiko while talking, and it was quite a picture. She was beautiful when she was wearing her swimsuit for the first time, but seeing Yukiko's appearance against the backdrop of the sunset sea made her look even prettier.</p>
+<p>Not to mention her appearance in a swimsuit, the gold decoration on her head also gave off a dazzling light as it collided with the sunset, further amplifying Yukiko's charm. I, who had been admiring Yukiko's appearance for a while, opened my mouth.</p>
+<p>"Yukiko-ssi, you look even prettier today."</p>
+<p>"Really?"</p>
+<p>"Yeah, pretty."</p>
+<p>Yukiko, who was happy, covering both cheeks with her hands, looked very attractive with her face blushing, whether it was because of the sunset or because she was embarrassed.</p>
+<p>We walked along the beach in silence until the sun had completely set. We didn't say anything with our mouths, but we exchanged many feelings in our tightly held hands.</p>

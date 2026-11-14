@@ -5,63 +5,76 @@ weight = 64
 chapter = 64
 +++
 
-<p>"What the hell did you do at the Prime Hotel? How did you kill four people with your bare hands?"</p>
-<p>The Prime Hotel was the name of the hotel where Han Yu-gyeong and I stayed. I had a feeling he'd know; as soon as we were alone, Taira Danjo-halbae asked me. He's an old geezer who even knows my underwear size, so he must have found out somehow. Strangely, he didn't seem that surprised that I killed people.</p>
-<p>"Don't you know I've been learning martial arts?"</p>
-<p>"Hmm, of course, I know you've been learning martial arts. I also know that your master is the UMC champion. Your father knelt before your master and asked her to train you because his son was being bullied."</p>
-<p>I thought Halbae had assigned Fujigasaki Rinka-sensei to me, but it wasn't. Taira Saburo must have assigned her. Still, it seems even as a father, he couldn't stand his son being bullied.</p>
-<p>"Anyway, I caught four robbers with those martial arts."</p>
-<p>"Hmm... are those martial arts that strong? That aside, about you stubbornly blaming the hotel..."</p>
-<p>Is he talking about how I unconditionally blamed the hotel for the intruders?</p>
-<p>"Well done. A Tairaga man should never bow his head easily."</p>
-<p>Yeah, I knew Halbae would say that. Halbae's words were never to bow one's head 'easily.' Not 'never bow,' but 'don't bow easily.' He's the kind of grandfather who would tell you to bow as much as you want if there's a big profit to be made. After all, the essence of the Tairaga family is that they're a merchant family chasing profits.</p>
-<p>"I will never bow my head easily."</p>
-<p>"Good. And you seem to be meeting quite a few women these days, so make sure something like that doesn't happen again. I won't say anything about you screwing around with this woman and that woman, but don't go making babies outside."</p>
-<p>How much does this Halbae know? Did he really unleash ninjas around me? I need to take a good look around next time.</p>
-<p>"I understand."</p>
-<p>"Take this."</p>
-<p>Taira Danjo-halbae threw me a business card. Unusually, there was no name, just a number. What is this? Does it mean something?</p>
-<p>"If you ever need to dispose of a body like this time, call this number. Don't leave it to the hotel or some other weird company, call here no matter what, understand?"</p>
-<p>"I understand, grandfather."</p>
-<p>"Then let's go have lunch."</p>
-<p>When I answered seriously, Taira Danjo-halbae nodded in satisfaction and led the way to the restaurant.</p>
-<p>Lunch was sushi. And we ate sushi made right in front of our eyes by chefs who were called in directly. As expected of craftsmen, everything was delicious. Knowing my appetite in advance, the other chefs were covering two people, but the chef in front of me was marking only me and making sushi like a machine.</p>
-<p>I'm not a fool, so I didn't eat until I burst. I put down my chopsticks moderately, similar to Taira Danjo-halabeoji. I ate three times as much as Danjo-halabeoji ate one, so the artisan in front of me was very busy, though.</p>
-<p>"Thanks for coming today. Let's see each other in two weeks."</p>
-<p>In two weeks, it will be the 49th day since Taira Saburo died, so it seemed like he was saying let's meet then. Yukiko and I said goodbye to Taira Danjo-halbae, Taira Shizuku-halmae, and Taira Kanna and got into the car to return.</p>
-<p>###</p>
-<p>Returning to my home at the Human Resources Development Institute, I lay in bed and looked at the translucent window. Actually, I should have looked at it yesterday after sending Yu-gyeong away, but I was exhausted from the battle and sex, so I came home and passed out.</p>
-<p>Today, the next day, I had to wake up in the morning and go to the main house, and only now could I check the translucent window that had appeared yesterday.</p>
-<p>You have met a being of the Abyss, increasing your Abyss stat by 3.</p>
-<p>You have been taught a forbidden technique that no one in this world knows by a being of the Abyss.</p>
-<p>Acquired skill [Shadow Domination].</p>
-<p>You have acquired the first favorability from the being of the Abyss [Daughter of the Abyss]. Abyss stat increased by 2. The Golden Pillar trait is slightly enhanced.</p>
-<p>Acquire the Daughter of the Abyss's Mark trait.</p>
-<p>First of all, the Abyss stat increased by a total of 5, making it 9. Now there's only a difference of 5 from the Will of 14. I need to manage it a bit. I've checked the stats, so let's check the new skill, Shadow Domination.</p>
-<p>◆Shadow Domination [Unique Legendary Skill]</p>
-<p>A technique that manipulates shadows using the Abyss. Jin Yong-tae/Taira Ryuta/■■■ acquired this skill from the Daughter of the Abyss when they fell into the space of the Abyss.</p>
-<p>It grants physical force to shadows and can be freely manipulated using the Abyss.</p>
-<p>It's a legendary skill. I wasn't lacking in skills. Shinkayatsude is a mythical martial art, and Shadow Domination is a legendary skill, so I had no reason to be inferior in terms of skill level. And when I checked because the Golden Pillar was said to be slightly enhanced, a sentence had been added.</p>
-<p>The Golden Pillar's experience gain and the increase in the other party's favorability also affect beings of a different shape.</p>
-<p>It seemed like this enhancement was all due to kissing the Daughter of the Abyss. Since it said that I had acquired the first favorability from the Daughter of the Abyss, it seemed that the Golden Pillar was working properly. Since kissing is also considered a part of sexual activity, the favorability increased slightly.</p>
-<p>Next is the trait. The Daughter of the Abyss's Mark... I couldn't grasp what kind of trait it was just by the name.</p>
-<p>◆Daughter of the Abyss's Mark [Unique Trait]</p>
-<p>The indelible lip mark of the Daughter of the Abyss has been imprinted on your soul. The Daughter of the Abyss can now track you whenever she wants. By receiving a mark from someone with supreme status, you gain absolute resistance to soul bodies of middle and low status. Soul bodies of middle and low status fear and avoid you.</p>
-<p>First of all, the effects are that the Daughter of the Abyss can track me, and in addition to soul bodies below the intermediate level fearing and avoiding me, I gain absolute resistance. Soul bodies are commonly referred to as ghosts and spirits.</p>
-<p>Ghosts and spirits are monsters that occasionally appear even in Mega Corp's youngest son, and they were quite annoying because they were monsters that couldn't be caught just by investing in physical strength. The defense coefficient for calculating the attack of a soul body was calculated using the Will, which is a mental stat, rather than the armor you were wearing, so physical-oriented users who didn't invest in Will had a hard time.</p>
-<p>However, from the moment I obtained the Daughter of the Abyss's Mark, I gained absolute resistance to attacks from soul bodies below the intermediate level, so it was much easier. However, it wasn't all advantages. Looking at the last sentence, 'Soul bodies below the intermediate level fear and avoid you,' it could be seen that from the moment I obtained this Daughter of the Abyss's Mark, the spiritist path was gone. Since it wasn't a fantasy world, the job of spiritist could be learned very rarely.</p>
-<p>I roughly checked what I got from the Daughter of the Abyss, and next it was time to do a trait gacha with the level up I got from killing the intruder. Before that, I put 2 stats into Strength. Now my Strength stat was 10. It was the maximum strength that an ordinary person could have. Now that I'm level 6, one of the three things that come out will definitely be related to the skills or traits I've learned so far. Shall we check what came up?</p>
-<p>Please select a trait</p>
-<p>①Regeneration Trait Level Up ②High-Speed Driving ③Shooting Expert</p>
-<p>The regeneration trait leveled up to 5 this time while getting shot a lot. But since it's still an early level, there was no need to choose it. At least the regeneration level should be around 15 to be worth taking, but it was a waste to use a trait that gives one level here. High-speed driving or shooting expert were traits that I didn't need to take. I didn't choose them because I was afraid that if I took them for nothing, I would cry blood if traits related to driving or shooting, which are not my main skills, came up later.</p>
-<p>You can change the trait that can be selected by leveling up to a random trait of a higher grade with the [Potential Enhancement] option of the item [Wish-Fulfilling Jewel]. Would you like to change it?</p>
-<p>I'll change it no matter what! As I shouted in my heart, the previous traits disappeared and new traits were revealed.</p>
-<p>Please select a trait</p>
-<p>①Shadow Weapon Shaping ②Psychokinesis ③Linguistic Knowledge</p>
-<p>Looking at the name, Shadow Weapon Shaping seemed to be the ability to create weapons with shadows. It seemed that Shadow Weapon Shaping, a related trait, appeared because I took Shadow Domination. Let's pass on it because it's an unnecessary ability for me, a martial artist.</p>
-<p>I liked the other two, but first of all, Psychokinesis was a skill proportional to the Will stat that I invested the most in, so it was a trait that I had wanted to get for a long time.</p>
-<p>Linguistic knowledge was the oo knowledge series that sometimes came up when leveling up and selecting traits. It was a good trait that raised the knowledge stat, which only rises when reading books or learning, and also conveyed related knowledge. If I chose linguistic knowledge, I could easily learn the language of that country when I go to the United States or other countries later.</p>
-<p>In the end, what I chose was psychokinesis. I chose psychokinesis, which I couldn't get even if I tried hard usually, because I could just study harder and learn other languages without traits.</p>
-<p>◆Psychokinesis [Epic Trait]</p>
-<p>You can move objects or inflict damage using mental power. Psychokinesis is also created in the skill slot. The power of psychokinesis is proportional to the skill level and Will stat.</p>
-<p>The explanation was simple. But it was one of the most useful traits. It was a trait that was affected by proficiency. That's why I had to practice usually. I focused my mind on the pen placed in front of the computer. The pen twitched and reacted to my psychokinesis. I can't do more than twitch yet, but it will get better.</p>
+<p>It was only natural that I, a Korean who got possessed, had never been to Disneyland, but Jin Yong-tae had lived in Edogawa Ward, near Tokyo Disneyland, and hadn't been to Disneyland until he was 20. Looking through Jin Yong-tae's memories, I found that he had a chance to go to Disneyland on a school picnic in high school, but he had a bad case of gastroenteritis that day, so while others were having fun riding the rides, he was riding the toilet at home.</p>
+<p>So I was a little happy. Taira Yukiko was also watching me with a pleased smile.</p>
+<p>,You look like you're expecting it. Is this your first time at Disneyland?</p>
+<p>,Yes, I've had a few chances to go, but I just never went for some reason.</p>
+<p>Actually, it was only once. I didn't want to talk about the gastroenteritis, so I just glossed over it. The best thing to do in this situation is to change the subject.</p>
+<p>,When was the last time you went to Disneyland, Yukiko-ssi?</p>
+<p>,Me? I went with Saburo-ssi when I was in college....</p>
+<p>I made a mistake. Did I step on a landmine? Taira Yukiko seemed a little depressed. I didn't want this kind of atmosphere.</p>
+<p>,I'll make you feel better today than you did then.</p>
+<p>,Will you?</p>
+<p>Taira Yukiko gives a sad smile. Do I have to bring up the gastroenteritis story?</p>
+<p>,Actually, I could have gone on a school picnic in high school. My high school was close to Disneyland.</p>
+<p>,Oh, really? Then why didn't you go?</p>
+<p>Taira Yukiko had forgotten about being depressed just a moment ago and was listening to me with great interest.</p>
+<p>,Actually.... I ate something wrong the day before and got gastroenteritis. So I didn't go because I thought I might have an accident while riding the rides.</p>
+<p>,Ah.... Hohoho! So that's why you didn't go?</p>
+<p>,Yes, so you have to guide me well today, Yukiko-ssi.</p>
+<p>,Trust me! I'll only take you to fun places.</p>
+<p>Taira Yukiko's mood improved, and we talked happily while driving, and soon arrived at Disneyland. I parked the car in the parking area and entered Disneyland. A free pass is 10,000 yen. Is that 200,000 won for two people? Taira Yukiko, my mama, coolly paid for it, so I just checked how much it was.</p>
+<p>The first place we saw was the Global Bazaar, which was a four-way plaza with a glass ceiling. There weren't many people in the first zone, and it was quiet.</p>
+<p>,This is where they sell souvenirs and desserts. It's the entrance, but it's also the exit, so it's more crowded at closing time.</p>
+<p>Ah, so it's a place to buy souvenirs when you leave. It was definitely quiet. We decided to buy souvenirs later when we left and passed through the Global Bazaar to the Adventure World area.</p>
+<p>,This is fun. Let's ride this!</p>
+<p>What Taira Yukiko-josa said to ride was Pirates of the Caribbean, a dark ride where you ride a boat and watch pirates playing in the Caribbean Sea in the 16th century.</p>
+<p>It definitely felt more realistic because the times had passed a little more. The ghosts were made to fly using holograms, which was amazing. Taira Yukiko hugged me every time a ghost appeared, whether she was doing it on purpose or not. Every time she hugged me, I could smell Taira Yukiko's unique sweet scent, which made it hard to stay rational, but I endured it because we weren't the only ones on the boat.</p>
+<p>The next place we went was Western Street, an attraction created with a Western theme. We went to a place called Western Street Shooting Gallery, which was a store that gave you a sheriff's badge if you shot a target. A free pass was useless here, and it cost 500 yen to try once.</p>
+<p>,Yukiko-ssi, try shooting first.</p>
+<p>,Okay, here's 500 yen.</p>
+<p>Taira Yukiko took the long gun from the Western movie and started shooting at the target with a serious expression. Her shooting skills were surprisingly good. Do the two soft masses on her chest have the effect of absorbing the recoil of the shot? Of course, the guns used at the Western Street Shooting Gallery are toy guns with no recoil.</p>
+<p>Taira Yukiko hit all 10 shots and proudly received a silver sheriff's badge.</p>
+<p>,Yukiko-ssi, you're a really good shot?</p>
+<p>,Yeah, clay shooting is my hobby, so I'm good at shooting.</p>
+<p>Clay shooting was her hobby, which was new information. I also paid 500 yen and shot. Maybe it's because my body's performance is good, but I also hit the targets as I shot, and when I saw a mouse moving in the middle and hit it, I hit the rest of them all and got a gold sheriff's badge.</p>
+<p>,Wow! How do you get a gold badge?</p>
+<p>,There's a mouse running around in the middle, and you get it if you hit that mouse.</p>
+<p>,I want to do it again!</p>
+<p>Taira Yukiko paid another 500 yen and went into the shooting range. Seeing this, she seemed to have a strong competitive spirit. She came out quickly and proudly showed me her gold badge with a smile.</p>
+<p>,So does that mean we have couple badges?</p>
+<p>,Oh, you...!</p>
+<p>Taira Yukiko slapped my arm. But there was no strength in the hand that hit my arm, so it didn't hurt at all.</p>
+<p>After the Western Street Shooting Gallery, we went to Mega Thunder Mountain. It was a ride that explored a gold mine on a runaway train without a driver in an abandoned mine cursed by God, and it was said to be one of the few thrill rides in Disneyland.</p>
+<p>,Kyaaaa! This is fun!!</p>
+<p>Taira Yukiko didn't seem to be afraid of this kind of thing, and she screamed and enjoyed it. I wasn't particularly scared either, so I enjoyed exploring the gold mine. I'm past the point of being scared of these kinds of rides. I've even fought in a park where bullets were flying.</p>
+<p>,Next is here~!</p>
+<p>I'm glad that her depressed mood from earlier has completely disappeared. I was led by Taira Yukiko to Splash Mountain, a flume ride, which was said to be a ride that only exists in Tokyo Disneyland, which is not in other Disneylands.</p>
+<p>Originally, they all existed, but Splash Mountain was a ride based on Disney's old movie Song of the South, which denigrated black slaves, so it was removed from all other Disneylands. It is said that it only remains in Tokyo Disneyland, but in fact, the ownership of Tokyo Disneyland is not with Disney, but with Keisei Electric Railway, a Japanese railway company, so it cannot be removed. In other words, Tokyo Disneyland was like a franchise store where Keisei Electric Railway's subsidiary bought a license and operated it.</p>
+<p>,Is it okay if you get a little wet?</p>
+<p>,Yes, but.... Are you okay with getting wet, Yukiko-ssi?</p>
+<p>,I'm okay too.</p>
+<p>It was obvious that we would get wet because of the nature of the flume ride, and the problem was that Taira Yukiko's clothes were white inside her cardigan. This would make her underwear see-through.... I like it, but I didn't want other people to see Taira Yukiko's bare skin.</p>
+<p>,I can cover it with a cardigan.</p>
+<p>Taira Yukiko brought up the cardigan story casually, as if she understood my concerns. She said she was okay with it, so what could I say? We waited in line and boarded. It was a typical flume ride where you ride a boat that sways in the water flowing with the theme of the past, and then comes down from a high position, cutting through the water.</p>
+<p>Chwaaaa! Is more water pouring down than I thought? I glanced at Taira Yukiko and, as I had feared, her white clothes were soaked with water, making her bare skin visible. Fortunately, she was wearing white underwear to match her clothes, so her underwear wasn't explicitly exposed.</p>
+<p>We got off the ride and decided to sit on a nearby bench until our wet clothes dried. There were many people like us, so there were many benches near Splash Mountain, so we were able to sit down easily.</p>
+<p>,Are you hungry? Should I buy you a churro?</p>
+<p>,I'm a little hungry because it's past lunchtime.</p>
+<p>,Wait a little bit.</p>
+<p>I went to the nearest Fantasyland and bought Mickey waffles, churros, and drinks, and returned to the bench. While I was away for that short period of time, there were men hitting on Taira Yukiko. What are these guys doing at Disneyland?</p>
+<p>One was a greasy man with slicked-back hair and a mustache, and the other was a tanned man with dull gold-colored hair who gave me the prejudice that he would say, "Uhyo~! Getto daze!"</p>
+<p>,Why don't you play with us...?</p>
+<p>,We'll make it fun~!</p>
+<p>,My boyfriend will be here soon, so please leave.</p>
+<p>Ooh~! She said boyfriend.... Taira Yukiko is definitely still in her early thirties, and she is receiving more expensive and cutting-edge care than celebrities before the possession, so she looks like she is in her early to mid-twenties on the outside. It would be a little strange for someone with that kind of appearance to say that her son will be here soon.</p>
+<p>,Excuse me, but do you have business with my girlfriend?</p>
+<p>,What? Ah, I'm sorry.</p>
+<p>,Oh, you really have a boyfriend.... Excuse me.</p>
+<p>When I asked in a voice full of murderous intent, their faces turned white, and they kept saying Sumimasen and backed away. As the two men who were hitting on her disappeared, I smiled and sat next to Taira Yukiko.</p>
+<p>,Here! Her boyfriend is here.</p>
+<p>,I didn't think they would believe me if I said I was waiting for my son....</p>
+<p>Taira Yukiko's face was red at my boyfriend's statement, and she was looking at the ground and fidgeting with her fingers.</p>
+<p>,Here, have a churro.</p>
+<p>I put a churro in her mouth, and I took a bite of the churro while watching Taira Yukiko eating the churro little by little while watching my expression. Hmm, it had a cinnamon scent and was sweet and delicious because it was sprinkled with sugar.</p>
+<p>Taira Yukiko was also hungry, so she quickly finished the churro, so we shared a waffle that was stamped in the shape of Mickey Mouse's face. The waffle with maple syrup was sweet.</p>

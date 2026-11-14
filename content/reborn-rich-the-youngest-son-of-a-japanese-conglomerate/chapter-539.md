@@ -5,82 +5,95 @@ weight = 539
 chapter = 539
 +++
 
-<p>I went up to the clubroom and sat down, and the students started setting out all the stuff they'd ordered on the large rectangular table. There was a lot of food, including fast food like pizza, chicken, and hamburgers, as well as some Japanese-style Chinese dishes and even sushi. It's not even a party, but there's so much....</p>
-<p>Someone must have contacted Alik, because Alik, along with the Home Economics teacher, Shimokawabe Airen seonsaengnim, and the head of the Cheongsim Hall, Nishiike Neiko, came to our clubroom. Alik and Nishiike Neiko were wearing their school uniforms, and Shimokawabe Airen was wearing a black apron. Seeing that they were all carrying something in their aprons, it looked like they had cooked something themselves? Shimokawabe Airen, being a Home Economics teacher, had made some food with Alik and Nishiike Neiko, and it looked like we were going to have dinner together with the food we had ordered.</p>
-<p>,Hello. Shimokawabe seonsaengnim."</p>
-<p>,Yes, excuse me."</p>
-<p>,Alik's here too, Ryuta."</p>
-<p>,Excuse me!"</p>
-<p>After greeting the Cheongsim Hall people and sitting back down, the table was so full of food that it was overflowing. Even if we have guests, did we really have to order this much? It was almost like food torture.</p>
-<p>,It's enough for almost twenty people to eat?"</p>
-<p>,Ryuta-cchi eats a lot, though."</p>
-<p>Even if I eat a lot, there's no way I can eat all of this. I should pack some to take home if there's any left. I can eat it for breakfast tomorrow.</p>
-<p>,Alik is a classmate, so I invited him to have dinner with us."</p>
-<p>Konoe Akina explains to me why Alik came. It happened to be the time when Cheongsim Hall was finishing up, so Shimokawabe Airen and the head, Nishiike Neiko, also joined us.</p>
-<p>,The club ends around dinner time, and Alik and I usually train until late at night before going home. So, I asked the teacher to join us."</p>
-<p>I nodded at Nishiike Neiko's explanation. Alik trains until late every night... That's amazing. With that much effort, it's understandable that his swordsmanship skills are improving so quickly.</p>
-<p>Alik quickly sits down next to me and hands me a fairly large airtight container.</p>
-<p>,Ryuta, eat...."</p>
-<p>Did Alik make this himself? When I opened the airtight container, it was full of amazing shrimp tempura that looked like it was made by a professional Japanese chef. Each piece of tempura was huge, as if it was made with huge tiger prawns. At what size do you start calling this a lobster?</p>
-<p>,Did Alik make this?"</p>
-<p>Nod nod.</p>
-<p>Alik nods with an expectant look on his face at my question. I pick up the tail of the shrimp tempura, looking at Alik's expectant expression. It felt quite heavy, probably because the shrimp was so big.</p>
-<p>,Here's soy sauce."</p>
-<p>I dipped the shrimp in the soy sauce that Alik handed me in a small dish. And then I put it straight into my mouth. The head and shell had been removed, so I could eat it right away without worrying about anything.</p>
-<p>The scent of soy sauce wafts through my nose, and the tempura layer crumbles in my teeth with a *basasak* sound, and soon I feel the plump shrimp meat touching the end of my teeth. As I chew on the elastic shrimp meat, the sweetness of the shrimp spreads throughout my mouth. It was excellent shrimp tempura.</p>
-<p>,It was so delicious."</p>
-<p>I smiled and stroked Alik's head, who was watching me eat with great interest. Alik puffed out his nose as if he had accomplished something, closed his eyes slightly, and enjoyed my touch.</p>
-<p>,I made a bisque sauce (a sauce made with broth made from the shells of shrimp, crayfish, or crab) with the shrimp heads and made pasta. Yamashiro seonsaengnim, please try it."</p>
-<p>This time, Shimokawabe Airen handed me a plate of pasta mixed with orange sauce.</p>
-<p>,I'll enjoy it."</p>
-<p>The rich flavor from the shrimp heads and the exquisitely cooked pasta went well together, making it a very delicious pasta. Oh...! This is delicious too. I haven't had bisque sauce very often, but this is what it's like. As expected of a Home Economics teacher, her cooking skills were considerable.</p>
-<p>,It's delicious! Shimokawabe seonsaengnim."</p>
-<p>At my vivid reaction, Shimokawabe Airen smiled, her thinly opened eyes curving like crescent moons.</p>
-<p>I wondered if Nishiike Neiko had made food for me too, so I glanced at her while eating the pasta and shrimp tempura, but Nishiike Neiko was chatting with her friend Saionji Diana and enjoying her meal.</p>
-<p>Saionji Diana was the head of the Cheongsim Hall before the accident, and Nishiike Neiko was the vice-head, so they must be close. I guess I was being too self-conscious.</p>
-<p>After that, we had a pleasant meal. The food we ordered was delicious, and the food the Cheongsim Hall members made was also delicious (for reference, Nishiike Neiko made okonomiyaki. It was delicious too.). I overate quite a bit, but since the students had ordered so much food, Alik packed all the leftovers into the airtight containers he had brought.</p>
-<p>Most of the students had chefs cooking for them at home, so only I, Saionji Diana, and Otagi Yuka packed food. For reference, Otagi Yuka, being a vampire, ate like a normal human, only needing blood from time to time. Of course, she didn't need to suck blood now because she was getting it from my semen.</p>
-<p>,We'll do this again tomorrow, so get some rest today."</p>
-<p>,Okay~! I'm off, Ryuta-cchi!"</p>
-<p>,Goodbye, seonsaengnim~!"</p>
-<p>The students finished cleaning up and went home. I stayed behind to talk to Shimokawabe Airen about the drugs, and Alik was sitting next to me, looking at me with an innocent expression.</p>
-<p>,Ryuta, go with Alik."</p>
-<p>,Okay. Let's talk to Shimokawabe seonsaengnim for a bit before we go."</p>
-<p>,Okay."</p>
-<p>Nishiike Neiko took the airtight containers and dishes that the Cheongsim Hall members had brought, and Shimokawabe Airen sat across from me, ready to listen to what I had to say.</p>
-<p>,I received a request from the student council this time, and the content was quite shocking. Recently...."</p>
-<p>I told Shimokawabe Airen about the Z-MAX drug case. Shimokawabe Airen listened to my story with a serious expression and then opened her mouth.</p>
-<p>,If it's related to the academy, it's a very serious matter. Actually, I'm only in the Cheongsim Hall and the Home Economics practice room... I don't know much. But I'll look into it separately."</p>
-<p>I was guessing that Shimokawabe Airen was one of the hidden knives of Saint Francisco Girls' Academy, so she probably had an informant somewhere. Maybe that informant is Daigo Terue, so there might not be much information, but it's still important to check in various places.</p>
-<p>,And this story is...."</p>
-<p>,It's a secret, right? I know."</p>
-<p>Shimokawabe Airen put her index finger to her lips with a *shh* expression. That look was so seductive that my heart skipped a beat for a moment, but I didn't show it much and got up from my seat.</p>
-<p>,I'll be going now."</p>
-<p>,Moka sabu.... Can I go home early today?"</p>
-<p>So he calls her Moka sabu. Since Alik likes to give nicknames, it seemed like he had given his sabu, Shimokawabe Airen, the nickname Moka. Shimokawabe Airen nodded as if she couldn't help it.</p>
-<p>,You've worked hard so far, so go with Yamashiro seonsaengnim."</p>
-<p>,Okay...!"</p>
-<p>I greeted Shimokawabe Airen and took Alik home from school. Of course, we didn't go straight home, but stopped by a cafe and had a sweet drink while spending some time talking with Alik for the first time in a while. We didn't talk about anything special, but it felt like it was healing.</p>
+<p>After giving Minamoto Lisa a Tats○ki telekinetic service, I started walking around with Minamoto Lisa to see if there were any rides we could ride together. But....</p>
+<p>,Actually, I'm not good at riding scary rides."</p>
+<p>Minamoto Lisa, unexpectedly, couldn't ride roller coasters and other such rides. So, when the idea of going to Fuji-Q Highland came up, she only agreed because of the ○-Punch Man collaboration? Amazing. That's some serious loyalty.</p>
+<p>So, we went to the shooting game where you shoot and match dolls, which wasn't scary, and it turned out that if you hit a certain number of dolls, they would give you a ○-Punch Man character doll that they were currently collaborating with, so Minamoto Lisa's eyes sparkled.</p>
+<p>,I'll try! I've done clay shooting when I was young, so I'm confident."</p>
+<p>Yukiko's shooting level was also high with clay shooting, but what about Minamoto Lisa? I watched Minamoto Lisa's doll shooting with anticipation, but Minamoto Lisa, as she said, only did it when she was young, so she wasn't very good. She only knocked down two dolls.</p>
+<p>,Ah...! It's not working out. You, um... use your ability to get it for me."</p>
+<p>Minamoto Lisa is now confidently asking me to use telekinesis to get it for her. Seeing her blushing and embarrassed, it seemed like she knew it was an unreasonable request. But seeing her asking, it seemed like she really wanted it. Actually, I've shot guns quite a bit, so I don't think I need to use telekinesis.</p>
+<p>,I'll just try it first."</p>
+<p>I aimed the shooting gun and fired. With a ttak sound, the bullet hit the doll, but the doll didn't fall. This.... They're determined to take people's money. How much did they weaken the power of the bullets?</p>
+<p>I have no choice. The bullets given for 1000 yen are 10, and to receive the ○-Punch Man character doll prize that Minamoto Lisa wants, I have to hit 9 bullets. Since I just failed, I have 9 bullets left, and now I can't afford to make a single mistake.</p>
+<p>I carefully aim and hit the doll. As long as I hit it somehow, it didn't matter. I can make it teeter and fall to the ground with telekinesis. Of course, since telekinesis is an intangible power, it wasn't very obvious that I was using telekinesis.</p>
+<p>,9 hits! It's a Tats○ki doll! Congratulations~!"</p>
+<p>,Here's your present!"</p>
+<p>The part-timers handed me a pretty big Tats○ki doll and congratulated me. I gave the Tats○ki doll to Minamoto Lisa. Minamoto Lisa hugged the doll, which was half her size, tightly and then looked at me.</p>
+<p>,I'm sorry, but the 10-bullet prize too...."</p>
+<p>Minamoto Lisa said, looking very cautious. The 9-bullet prize was a Tats○ki doll, and the 10-bullet prize was a giant doll of the ○-Punch Man protagonist, Bald Cape. Hmm, it's definitely a doll that an otaku would want.</p>
+<p>,Okay. I'll get you the Bald Cape too."</p>
+<p>,Thank you...."</p>
+<p>Minamoto Lisa seemed very touched, but I could do this much for the sake of Minamoto Lisa's favorability, who was my target.</p>
+<p>,Ah! Jugun-nim!"</p>
+<p>,Sensei-nim."</p>
+<p>,Fath, no, Sensei-niim!"</p>
+<p>I was aiming again when I heard a voice calling me from behind. I hit one bullet and turned around to see Sakagami Rena, Shido Tsubaki, and Oofuchi Erika, who had been walking around with me, finding me and coming towards me.</p>
+<p>,Are you having fun?"</p>
+<p>,Yes~!"</p>
+<p>,It was quite fun."</p>
+<p>,Sakagami-ssi wasn't scared of the roller coaster at all, so it wasn't fun to watch."</p>
+<p>Everyone seemed to be having fun. It's just that Sakagami Rena didn't seem to feel any fear on the roller coaster, just like the roller coaster members I rode with earlier. Is it natural since she's a ninja who does a lot of harsh training? I talked with the students who came up to me for a while and then focused on the doll shooting again, and this time I was able to hit all 10 bullets with the help of subtle telekinesis.</p>
+<p>,Congratulations! 10 bullets! The highest score! Here's the giant Bald Cape doll~!"</p>
+<p>It's almost the size of a person, so I don't know how she's going to carry it around, but I handed the giant Bald Cape doll to Minamoto Lisa. Minamoto Lisa hugged the giant Bald Cape doll tightly as if she were treating it like a treasure.</p>
+<p>,Wow~! Ryuta-chi! Get me one too, a doll~!"</p>
+<p>,Ryuta...! Alik wants you to get one too."</p>
+<p>It seemed like all the kids in our class had gathered and were watching me shoot. They were all clamoring for me to get them dolls too. It seemed like it would take a lot of time to get dolls for all twelve of them, so I pointed to the souvenir shop next to the doll shooting range.</p>
+<p>,Let's choose at the souvenir shop. There might be something that suits your taste other than dolls."</p>
+<p>In fact, most of the dolls other than the collaboration products were common dolls that could be picked up at a neighborhood claw machine, so everyone agreed that they would rather choose directly at the souvenir shop. Not everyone is a fan of classic animation like Minamoto Lisa, so there was no reaction to the collaboration dolls.</p>
+<p>,Shii, let's put this in the car together."</p>
+<p>,Shall we? By the way, it's huge, isn't it?"</p>
+<p>Minamoto Lisa seemed to have a hard time holding the two big dolls, so she suggested to Seizawa Shii that they go to the parking lot together, and Seizawa Shii nodded happily. Then she looked at me and shouted.</p>
+<p>,Ryuta-chi~! I'm going to the parking lot, so pick out something that suits me~!"</p>
+<p>If it suits me, does she mean something to wear among the souvenirs? I didn't have time to think any more and was grabbed by the special class students and went to the souvenir shop.</p>
+<p>Fuji-Q Highland has a lot of souvenirs that resemble Mount Fuji, as the name Fuji of Mount Fuji is attached to the name. There were dolls that resembled Mount Fuji with white snow on top and blue below, and there were also Fuji-shaped foods with white chocolate on top and cookies below, and there were also many cat ear headbands and balloons that could be used at the amusement park, which had nothing to do with Mount Fuji, and of course, there were also collaboration products that Minamoto Lisa would go crazy for.</p>
+<p>The students scattered to choose their own souvenirs, and I, as a teacher who participated together, chose souvenirs that would suit Shimokawabe Airen and Kijimoto Jurie, who didn't choose their own souvenirs.</p>
+<p>I gave Kijimoto Jurie a cat ear headband as a gift, even though it didn't have much to do with her.</p>
+<p>,This is...?"</p>
+<p>,Wear this and see you at my house tonight."</p>
+<p>She seemed to be getting very excited with her face turning red at my whispering words, so I was very satisfied.</p>
+<p>I gave Shimokawabe Airen, an inspector, a keychain and paper knife (a knife that can neatly open letter envelopes) made of a small, finger-sized Japanese sword as a gift.</p>
+<p>,Oh my, you didn't have to give me anything...."</p>
+<p>,But it's a souvenir for coming to play."</p>
+<p>,Thank you, Yamashiro-sensei."</p>
+<p>As expected of an inspector, Shimokawabe Airen seemed satisfied with my gift. Then, shall I choose mine now...? I looked around to see if there was anything delicious, and there was a special product corner that gathered local specialties from the Mount Fuji area, so I went there.</p>
+<p>,Ryuta-chi~! Did you pick out mine?"</p>
+<p>I was busy choosing various ingredients when I heard Seizawa Shii's voice. Ah.... I forgot. I gave Seizawa Shii a packaged wasabi root that I happened to be holding.</p>
+<p>,What is this, Ryuta-chi? So funny~☆ Did you just pick it out and give it to me?"</p>
+<p>Seizawa Shii, like a generous gyaru, forgave me for forgetting. Instead, she took me around and showed me what shopping hell is.</p>
 <p>###</p>
-<p>The investigation into the drug Z-MAX yielded no results for two days after the first day. Certainly, it seemed that the students' clumsy investigation had no effect, as it hadn't been caught by the police for several years for no reason. We did find out a few things, but we couldn't find any useful and reliable clues.</p>
-<p>The biggest achievement was finding out the chat program that the drug dealers were using. It was a chat program from Europe that was famous for its good security, but even if we found out about it, we couldn't make any further progress.</p>
-<p>Finding out about the chat program was quite easy. Oofuchi Erika had been wandering around the dark web and found it on Tuesday. But the drug dealers were so careful that they had set up a lot of procedures, and they said that they weren't doing any deals right now because the police had recently taken their drugs, so we were just twiddling our thumbs.</p>
-<p>We also didn't make any progress in reconnaissance, and no matter how much we wandered around every corner of the academy, we couldn't find anyone who looked suspicious.</p>
-<p>Instead, the two-legged race practice with Minamoto Lisa was going smoothly. Minamoto Lisa had become so comfortable with me holding her waist that she didn't mind at all, and her running speed was also very fast. She was fast enough to be confident of winning first place, but even so, Minamoto Lisa didn't stop practicing. Even though she's the biggest troublemaker gyaru in Saint Francisco Girls' Academy, she's quite the hard worker.</p>
-<p>Naturally, since a man and a woman were constantly together, they became quite close, and the somewhat cold attitude she had shown until now had disappeared a lot. She still called me 'you', though.</p>
-<p>,Aaaargh! This is so frustrating!"</p>
-<p>After school, the day before the sports day, Kujo Kina shouted in the clubroom. We had decided that the methods we had used so far weren't working, so we didn't go on reconnaissance and gathered together to think of other methods.</p>
-<p>,Everyone's frustrated, but still, let's think about who the culprit might be."</p>
-<p>When Minamoto Lisa said that, Naruse Shiyo raised her hand. She seemed to have thought of something, and she looked quite confident.</p>
-<p>,I was watching an old American drama yesterday, and there was something that I could apply to our academy's situation...."</p>
-<p>,Tell us."</p>
-<p>Everyone didn't seem to have much expectation, but Naruse Shiyo seemed certain.</p>
-<p>,The fact that there's been a drug business near the academy for several years and there's no suspicious person even when we do reconnaissance means that the person is someone who wouldn't be awkward even if they were on the academy grounds."</p>
-<p>That was certainly true. The fact that the newspaper from the Saint Francisco Girls' Academy newspaper club came out of the newspaper that the drugs were wrapped in was an undeniable story.</p>
-<p>,So, someone who's not suspicious, but someone who's naturally in the academy... The culprit must be one of the teachers! Especially the chemistry teacher is suspicious!"</p>
-<p>Naruse Shiyo slammed the desk and said. She looked like a detective. But Naruse Shiyo, you.... You watched Breaking Bad, didn't you?</p>
-<p>--------------------</p>
-<p>The Home Economics teacher saying *shh*!</p>
-<p>I tried making it with a different model than usual.</p>
-<p>This is the usual model hehe</p>
-<p>The *shh* pose doesn't come out well hehehe</p>
+<p>-Look at that figure. No one is looking for you.</p>
+<p>In a dark place with nothing, Naruse Shiyo was watching her homeroom teacher, Yamashiro Ryuta, and her friends go to the amusement park.</p>
+<p>,Th, this is all an illusion! Who are you? Get out of my head!"</p>
+<p>After participating in the sports day as a rider in the equestrian battle, Naruse Shiyo returned home and collapsed immediately. And when she came to her senses, she was in a dark place with nothing. No one explained it to her, but she knew that this dark place was in Naruse Shiyo's own mind.</p>
+<p>Not long after waking up in the darkness, a voice began to be heard. At first, it was a gentle voice asking if she didn't want to be comfortable, but when Naruse Shiyo, who felt the malice hidden in that gentleness, ignored it, it gradually became rough.</p>
+<p>Now, she was showing her classmates having fun at the amusement park and constantly whispering bad things like, "You're a completely useless person, so give me your body," or "Just end your life."</p>
+<p>-It's not an illusion. I swear on my existence. Do you want to keep watching them having fun without you?</p>
+<p>,It's better to have fun when you're playing. I don't want them to worry about me or care about me there either."</p>
+<p>Naruse Shiyo was fine. She had already accepted her weakness since she was young. She didn't want her friends to worry about her even in such a fun place, so she wasn't hurt by the scenes that the unidentified voice showed her.</p>
+<p>-Keuheuhe, you said you were okay, but I can feel you caring about that man. How is it? Seeing him with another woman...?</p>
+<p>The screen that the voice showed was showing her homeroom teacher, Yamashiro Ryuta, being dragged around by Seizawa Shii and looking at things.</p>
+<p>-Ryuta-chi! How about this? Ah, should I get that one instead?</p>
+<p>-Why bother asking if you're not going to listen to the answer?</p>
+<p>The two of them bickering looked very good together. As she watched the cheerful and refreshing Seizawa Shii and the handsome and reliable Yamashiro Ryuta, she felt jealousy without realizing it.</p>
+<p>,No! It's just admiration...!"</p>
+<p>Naruse Shiyo shouted as if denying her ugly heart. But the voice in the darkness knew Naruse Shiyo's heart better than anyone else.</p>
+<p>Suddenly, one side became a little brighter. She could see someone approaching Naruse Shiyo. Hair covering half of her face, a slender body, and eyes full of dark circles.... The only difference was that her hair color was a dark black, but she looked just like Naruse Shiyo herself.</p>
+<p>-I know your heart well. Because I am you. So....</p>
+<p>The black Naruse Shiyo took another step closer.</p>
+<p>-Give me</p>
+<p>One more step.</p>
+<p>-Your body</p>
+<p>Now she was almost right in front of her. Naruse Shiyo was sensing that if the black Naruse Shiyo came completely in front of her, she would completely lose herself. At that time, she heard her name coming out of the screen that was still showing Yamashiro Ryuta.</p>
+<p>-This is pretty. Should I give it to Shiyo-ppuyo as a gift?</p>
+<p>-Ah, I was thinking the same thing. I picked it out earlier. I'm going to give it to her as a gift since she couldn't come today.</p>
+<p>Hearing the two of them, she couldn't help but cry. Her teacher and friend hadn't forgotten her. As Naruse Shiyo smiled, the black Naruse Shiyo frowned.</p>
+<p>-It's a failure today. But you will gradually not be able to reject me.</p>
+<p>The black Naruse Shiyo stepped back and soon disappeared into the darkness.</p>
+<p>__________</p>
+<p>Shido Tsubaki Amusement Park Fashion~!</p>
+<p>The suspenders and brown pants are the point~!</p>
+<p>Urabe Konoka~!!</p>
+<p>It's a light and airy style, hehe.</p>
+<p>Black Naruse Shiyo.</p>
+<p>Black hair suits her too, hehe.</p>

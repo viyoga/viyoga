@@ -5,65 +5,70 @@ weight = 1078
 chapter = 1078
 +++
 
-<p>"Yes, has the plan been fully formulated?"</p>
-<p>Taira Gensuke looked around at the employees of the Taira Corporation South American Branch, who were his direct subordinates, and asked. After deciding to attack his arrogant younger cousin, Taira Ryuta, Taira Gensuke immediately summoned his core Staff Officers and buha affiliated with the Taira Corporation South American Branch.</p>
-<p>Because they were the Staff Officers who had proposed the radical scheme of Terror to increase Taira Corporation's market share in South America, they possessed a Tendency that perfectly matched Taira Gensuke's rough nature.</p>
-<p>Thus, after hearing that the Staff Officers, who had been planning for several days, had completed the plan, Taira Gensuke appeared before his henchmen to receive their Report.</p>
-<p>"First, we cannot attack Young Master Ryuta's companies located within Neo Tokyo: Taira Food distribution and Hatake Investment Company."</p>
-<p>"I know that. No matter how careful we are, Grandfather will know it was our jit. Then I'm finished."</p>
-<p>No matter how radical Taira Gensuke was, he never considered causing an accident in Neo Tokyo, even if he didn't care about Tokyo itself.</p>
-<p>Neo Tokyo was a massive Project that the Taira Group was focusing on. This year, Neo Tokyo had to demonstrate that it was running smoothly, so that public opinion would form, thinking, "Ah, it would be acceptable to entrust self-governance to the Taira Group."</p>
-<p>Although the autonomous city Bill/Legislation, where a corporation governs a city, had already passed, the power of public opinion was still needed for a while to maintain the idea that a corporate city was not strange but rather ordinary common sense. Thus, a battle could not be fought in the middle of Neo Tokyo.</p>
-<p>If he caused an accident here, no matter that Taira Gensuke was the son of Taira Ichiro, Taira Danjo's Eldest son, he would not be safe. Rather, his Father Taira Ichiro might voluntarily cast him out first for causing the accident. Taira Ichiro was a cold-hearted enough man to abandon his son.</p>
-<p>"Then the Goal is divided into two places: Hatake Mining in Akita and Young Master Ryuta's mansion."</p>
-<p>"Hatake Mining is obvious, but isn't that Ryuta guy's Home also in Neo Tokyo?"</p>
-<p>At Taira Gensuke's Words, one of the Staff Officers displayed an image on the Screen. It was an aerial Photo taken around Taira Ryuta's mansion, and while its Address was within Neo Tokyo, it was clear that there were no other buildings around the vast mansion.</p>
-<p>The only thing around the mansion was a shrine on the Back mountain, but for Taira Gensuke, who didn't believe in gods, it merely looked like another Infiltration Passage into Taira Ryuta's mansion.</p>
-<p>"Even if it's Neo Tokyo, at this level, we can attack without anyone knowing, Young Master-nim."</p>
-<p>"Certainly...! There's nothing around here. They said he built a large mansion in Neo Tokyo, so I thought it was quite something, but he built it in such an empty field? Perhaps because he's a bastard, he built his Home in a countryside corner. The land price wouldn't be very expensive either."</p>
-<p>Taira Gensuke scoffed at Taira Ryuta, who had built a mansion in an isolated Place, and looked at the aerial Photo. A secluded Place with only a mansion; certainly, if it was here, even if the Address was Neo Tokyo, it seemed possible to attack without rumors spreading. Then, even Grandfather wouldn't notice.</p>
-<p>"Yes, the mansion side is enough for now. Hatake Mining, are we attacking the mine directly?"</p>
-<p>Taira Gensuke, who had already decided to attack Taira Ryuta's mansion, this time asked about Hatake Mining, which could be called the main attack Goal.</p>
-<p>"That is not it. If Taira Ryuta falls, shouldn't Gensuke-nim seize the mine? If possible, it would be good if the mine is intact. Also, the Defense around the Mithril mine is thorough."</p>
-<p>"Hehe...! If the mine becomes mine, I'll have a lot to receive from Uncle Jiro. Then where are you going to attack?"</p>
-<p>At his subordinate's Words, Taira Gensuke, who laughed as if the Mithril mine had immediately become his, asked about the attack Point. Ultimately, the mine was what could deal decisive harm, but he was curious where they would attack if not the mine.</p>
-<p>"We found a warehouse where the mined Mithril is stored separately. That side has less Defense, and the collected Mithril is a massive amount, so simultaneously attacking that Place and seizing the Mithril will deal enormous harm."</p>
-<p>The Staff Officers found a suspicious warehouse among the data collected by the Intelligence agents under Taira Gensuke.</p>
-<p>Upon investigation, it was a warehouse filled with Mithril, and they judged that attacking the warehouse where the already mined Mithril was collected was much better than attacking the mine directly, so they reported the attack Plan to Taira Gensuke.</p>
-<p>They thought that if they could seize the mined Mithril simultaneously with the attack, they could sell it for enormous profit, which was better than directly attacking the mine.</p>
-<p>"Good, the plan has been fully formulated. Now we need to organize our troops."</p>
-<p>"First, we are gathering personnel from the mercenaries brought from Brazil and unregistered PMCs within Japan. An'yaji Combatants are also present."</p>
-<p>The plan was all set, but the Combatants had not all been recruited yet. Although there were mercenaries brought from Brazil and An'yaji Combatants, they needed to supplement personnel a little more, so they were looking for unregistered PMC mercenaries.</p>
-<p>Although Japan was overflowing with numerous PMCs, when there was a need to openly reveal and use force, they often used unregistered mercenaries. Because this matter was similar, Taira Gensuke's Staff Officers were seeking unregistered PMC mercenaries.</p>
-<p>"Good.... I'll take care of attacking that Ryuta guy's mansion. If I take some An'yaji Combatants, it'll be enough. I must see the surprised Face of that bastard guy directly during the attack."</p>
-<p>Taira Gensuke didn't have even a shred of a thought that he could fail. That Ryuta guy's Size is good, but he's a bastard who grew up in an Ordinary Home until he was 20.</p>
-<p>He had no thought of losing to that guy who had lived a peaceful daily life, unlike himself, who had received harsh Training from Takakusaki Gengo from a young age. Although Ryuta seemed to have some power, Taira Gensuke thought it wouldn't be as good as the troops he had gathered, so he was only thinking about how miserably he would torment Taira Ryuta in this attack.</p>
-<p>"Let's carry out the Operation two days later, at night."</p>
-<p>"Understood. We will make Preparations until then."</p>
-<p>Taira Gensuke nodded his Head and rose from his Seat. A Smile unconsciously formed on his Face as he thought of threatening that Ryuta guy to gain Hatake Mining. Of course, he wanted to seize even Taira Food distribution, but since that was a company Grandfather personally bestowed, Taira Gensuke thought, "I should be satisfied with Hatake Mining."</p>
-<p>"Ryuta, I'll wait and see how long you'll arrogantly laugh in front of me."</p>
-<p>In fact, Taira Ryuta had never arrogantly laughed in front of Taira Gensuke. Because Taira Gensuke was full of Delusion, he thought that way, and when his other cousins, Taira Yuuichi and Kitsumasa, incited him, he didn't refuse and thought of killing Taira Ryuta.</p>
-<p>UK, Ashford International railway station. A man got off the Eurostar, which makes round trips through the Channel Tunnel connecting France and the UK.</p>
-<p>He was an Ordinary-looking white man with a Chevron mustache covering the space between his Nose and upper Lips, wearing a hat and sunglasses.</p>
-<p>"Excuse me, let's see your Bag."</p>
-<p>Perhaps because he seemed suspicious getting off the train carrying a heavy-looking Boston Bag, the police stopped the mustachioed man.</p>
-<p>After World War III, due to the exacerbated refugee problem and the numerous terrorists seeking Revenge for the war, there were many police throughout the UK, especially at Ashford Station, and they would conduct a stop-and-frisk if anyone looked even a little suspicious.</p>
-<p>"There's nothing special."</p>
-<p>The mustachioed man opened and showed his Bag, saying. As the man said, inside the Bag were only Clothes and toiletries; there were no other items.</p>
-<p>"For what Purpose have you visited the UK?"</p>
-<p>"It's a family visit. My Older Sister lives here."</p>
-<p>At the mustachioed man's Answer, the police, perhaps thinking there were no suspicious points, nodded his Head.</p>
-<p>"Excuse me. I hope you have a pleasant time."</p>
-<p>"Yes, thank you for your Work."</p>
-<p>Having parted with the police, the mustachioed man headed to the Train Station Parking Lot. There, a car was parked for the mustachioed man. It was an Ordinary-looking Vauxhall hatchback vehicle, a common vehicle that didn't attract anyone's Gaze, as many of them were still driving on the Road even now.</p>
-<p>The mustachioed man opened the vehicle's door, sat in the Driver's Seat, then threw the Boston Bag onto the passenger seat. The Destination was London.</p>
-<p>In fact, he could have stayed on the train he rode until Ashford and continued to London, but then the fact that he got off in London would be registered in the computer system. So, the mustachioed man got off at Ashford Station and intended to head to London by vehicle.</p>
-<p>While driving, the mustachioed man took out his phone. Because he was a man who had undergone several biological Modifications, he could do several tasks simultaneously while driving. On the phone, along with a Photo of a certain East Asian man, his personal information was recorded.</p>
-<p>"The Goal is Taira Kitsumasa, Director of Standard London Holdings...."</p>
-<p>For a while, the mustachioed man watched the East Asian man's Face reflected on the phone Screen, then, as if he had memorized everything, he threw his phone onto the passenger seat and pressed the car's accelerator, increasing his speed.</p>
-<p>"It won't be difficult."</p>
-<p>The mustachioed man was an Assassin who had come to the UK after receiving a Request. His Goal was Taira Kitsumasa, Taira Jiro's second son.</p>
-<p>Because there was no Illustration made, here's Liz in a WWII Military Uniform, made a few days ago by request. UK Military VER.</p>
-<p>USA Military VER.</p>
-<p>German Military VER.</p>
-<p>I liked the German military version, so I tried making it into a Cover hehe.</p>
+<p>"It seems it could be dangerous, Shoji."</p>
+<p>Taira Saburo, who was looking at documents, suddenly said something out of the blue to Koishihara Shoji. Danger, he said. What kind of danger was he talking about?</p>
+<p>Koishihara Shoji, standing next to Taira Saburo and looking at his phone, glared at Taira Saburo as if he had started again.</p>
+<p>"What are you suddenly talking about?"</p>
+<p>Taira Saburo sometimes, like now, said things Koishihara Shoji couldn't understand.</p>
+<p>Shinonome Mio, Taira Saburo's strategist, and Hosen Jinto, the Security Leader, understood those words well and conversed with each other, but the aggressive assault leader Koishihara Shoji couldn't understand Taira Saburo's vague words. Moreover, since neither Shinonome Mio nor Hosen Jinto were present now, Koishihara Shoji eventually asked Taira Saburo what he meant.</p>
+<p>"The current Situation, you see. Our plan seems to have been too hasty."</p>
+<p>"Are you saying the current Situation is dangerous?"</p>
+<p>At Taira Saburo's words about danger, Koishihara Shoji's eyes gleamed sharply.</p>
+<p>"Yes."</p>
+<p>"Then tell me who these guys are that are causing danger. I'll go kill all those bastards."</p>
+<p>If Hosen Jinto, the Security Leader, was a Shield, Koishihara Shoji, the PMC Leader under Taira Saburo's name, was a Sword.</p>
+<p>Following Taira Saburo's Commands, Koishihara Shoji, who had blindly killed Enemies, was thinking that this time too, he just needed to kill the guys who were endangering them. If he killed the guys causing danger, wouldn't the danger naturally disappear?</p>
+<p>"It seems difficult to change the Situation, Shoji. Take this."</p>
+<p>Shaking his Head at his Subordinate's Answer, Taira Saburo handed a universal connector to Koishihara Shoji.</p>
+<p>"This is...."</p>
+<p>"Check it later with your PMC team members. It will contain guidelines on what to do in an emergency."</p>
+<p>That was the last time Koishihara Shoji spoke personally with Taira Saburo. Because Taira Saburo immediately gave him a Mission.</p>
+<p>In fact, after saying it was dangerous and then immediately giving a Mission, Koishihara Shoji thought Taira Saburo was making a Joke. Because there was no Reason for someone who said it was dangerous to give a Mission.</p>
+<p>When he returned to the PMC after completing the Mission, Koishihara Shoji heard the News of Taira Saburo's car accident. Only then was Koishihara Shoji able to confirm Taira Saburo's will, which was inside the universal connector Taira Saburo had given him.</p>
+<p>Following Taira Saburo's last wishes, Koishihara Shoji, who had come to the USA, opened his eyes. And he let out a scoffing laugh, as if in disbelief.</p>
+<p>"You still disturb my Mind, Liege."</p>
+<p>Perhaps because Tetsu Kagerou, who had returned from a Mission, had told him about meeting Taira Saburo's Son, he saw his Liege's last Appearance in a Dream after a long Time.</p>
+<p>Although it was a Dream, seeing Taira Saburo after a year was both welcoming and nostalgic.</p>
+<p>"Since you allowed me to meet my Liege after a long Time.... I'll consider any Proposal you make positively."</p>
+<p>Koishihara Shoji muttered, thinking of Taira Ryuta, whom he had promised to meet soon. Of course, he had no intention of following everything Taira Ryuta proposed. Especially things like 'come under my command.' Even if he was the Liege's Son, he was a completely different Person from the Liege.</p>
+<p>Since he was someone who had never seen his Father's Face while growing up, he had no intention of following him just because of Blood Kin. It was the same as Koishihara Shoji and his team members not following Taira Kanna.</p>
+<p>Since it wasn't the Warring States period, no matter how close a Blood Kin someone was, if they were a completely different Person from the one they had pledged Loyalty to, they would not pledge Loyalty.</p>
+<p>In that respect, Taira Saburo and Taira Kanna were completely different people. Taira Ryuta, whom he had promised to meet this time, also was only a Son in name, and likely hadn't inherited any of Taira Saburo's character or virtues.</p>
+<p>Koishihara Shoji couldn't pledge Loyalty, but if it wasn't a Command to follow him, he had the generous thought that he could grant a few Requests. As a Repayment for allowing him to see Taira Saburo's Appearance after a long Time.</p>
+<p>"What?! What's this now...?"</p>
+<p>After getting off the Airplane, I, who was going to Sabu's Mansion in Malibu by car, couldn't help but scream involuntarily after looking at my phone.</p>
+<p>Because Asada Ei and Taira Yukiko, among others, had brought News that my Cousin, Taira Kitsumasa, had been Assassinated in the UK.</p>
+<p>As if the Taira Group's already chaotic Situation, with my Mansion and Taira Jiro's Mithril warehouse having been attacked, wasn't enough, the death of Taira Kitsumasa was like pouring Gasoline on a raging Fire.</p>
+<p>Especially Taira Jiro, following the Mithril warehouse Attack, had fallen into a Situation where he even lost his Son. He would never stay still. No matter who the culprit was, he would surely seek Revenge.</p>
+<p>"Kitsumasa's Assassination, you say... What do you think?"</p>
+<p>"Hmm.... I don't know what will happen. Given Taira Jiro's Personality, he definitely won't stay still. Rather, such a huge Event has occurred that we have no Data at all...."</p>
+<p>Naruse Shiyo thought for a moment at my Question, then answered. As Naruse Shiyo said, even if various Data had been collected, there was no Data on what happened when Taira Jiro's child died, so no one knew how the Situation would unfold.</p>
+<p>"We'll just have to respond according to the Situation. For now, tell the Jooseodang side to keep monitoring the Situation."</p>
+<p>"Understood, Teacher-nim. But what about the funeral...?"</p>
+<p>Oh, that's right. Since Taira Kitsumasa died, there will be a funeral. Because of the pre-arranged meeting, I have to stay in LA for at least three days. It seems I won't be able to attend the funeral due to Time constraints?</p>
+<p>"What's the schedule?"</p>
+<p>"First, they have to bring the Corpse from the UK to Japan by special Airplane, so it seems it will take some Time. The Jooseodang will inform us once the funeral schedule is set."</p>
+<p>"If it fits our schedule, let's attend. Still, we have a Business appointment already made, so we'll have to see."</p>
+<p>Since Taira Kitsumasa's Corpse was in the UK for now, it seemed the funeral wouldn't be held immediately. And even at my Father Taira Saburo's funeral, several Cousins who were in other Countries didn't attend, so it seemed I didn't need to force myself to attend either.</p>
+<p>Of course, the Situation was different from Taira Saburo's funeral, so it would be better to attend if I could.</p>
+<p>Like the proverb, "If a prime minister's dog dies, you offer condolences, but if the prime minister dies, you don't," Taira Saburo's Death was like a prime minister dying, and Taira Kitsumasa's Death was like a prime minister's Son dying, so the Situation was a bit different.</p>
+<p>With Taira Saburo's Death, the Saburo Pabeol among the Succession factions had been Disbanded (though they would regroup a year later to become the Kanna Pabeol). But now, with Taira Jiro still strong, and his Son having died, it was expected that there would be far more guests than at Taira Saburo's funeral.</p>
+<p>By the way, of course, since it happened in the UK, it would be difficult to get Information. But who committed this Act? Surely Taira Gensuke wouldn't have orchestrated this after the Attack in Japan... Did Taira Ichiro or Taira Kokoro do it? Or Kanna?</p>
+<p>Of course, it might not be the Taira side, but the Minamoto side, or perhaps something went wrong in the UK, and someone we don't know shot and killed him.</p>
+<p>For now, we also need to collect Information. We need to know who killed Taira Kitsumasa and with what Intention, so that we can respond accordingly.</p>
+<p>"I don't know how the Situation will unfold, but let's all rest comfortably and then return to Japan."</p>
+<p>I said, looking at the Malibu Beach in the distance.</p>
+<p>Because there had been many things, from vigilante Work in New York to the New Rochelle incident, everyone must have accumulated Physical and Mental fatigue, knowingly or unknowingly.</p>
+<p>Even though a major Event like Taira Kitsumasa's Death had occurred, I decided to give my Subordinates Rest.</p>
+<p>"You're returning to LA after a long Time, right?"</p>
+<p>I asked Maya Reed, who was looking at Malibu Beach with complex eyes. Maya Reed had also decided to rest at Fujigasaki Rinka's Mansion this time and then return to law school.</p>
+<p>This time, upon leaving Superior, she had Surrendered to our side, but there was still some awkwardness remaining. So, to get closer this time, we decided to spend a few days together at Sabu's Mansion. For that Reason, I was also intentionally speaking casually.</p>
+<p>"Yes, actually, since I no longer have family, there was no Reason to return."</p>
+<p>Since she was Maya Reed, who had lost all her family, I should treat her well. So she can consider us family. Looking at her Abilities, she's a Talent no one would want to lose.</p>
+<p>The car stopped. We were welcomed by the Mansion caretaker and were guided to our respective rooms. Perhaps because there were quite a lot of people, we decided to use Fujigasaki Rinka's Annex as well. Because Fujigasaki Rinka was someone who occasionally provided rooms to her Japanese Martial Arts juniors when they came to the USA for Training, there were quite a few rooms in the Annex, so there was no Situation where multiple people had to share a room.</p>
+<p>Alik and Tsukiyo pouting, requested by MidNightSKY-nim~!</p>
+<p>Alik~!</p>
+<p>Tsukiyo~!</p>
+<p>Lisa without Gyaru vibes, requested by Meokguja-nim~!</p>
+<p>Her current Appearance is slightly darker because her Tanning hasn't completely faded. I couldn't precisely adjust the skin tone, so it came out a bit too pale hehe.</p>
+<p>I guess she'll be a pale Lisa when she meets Ryuta next time hehe.</p>

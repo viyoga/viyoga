@@ -5,86 +5,84 @@ weight = 294
 chapter = 294
 +++
 
-<p>"...That's what happened."</p>
-<p>I told Fujigasaki Rinka about buying Alik and the trainees from the slave traders. Fujigasaki Rinka listened to the story with a serious expression, nodding, and then hugged Alik, who was clinging to my arm.</p>
-<p>"Kyaa, so cute~!"</p>
-<p>"Ugh..."</p>
-<p>Fujigasaki Rinka rubbed her cheek against Alik's and hugged him tightly. Alik frowned as if uncomfortable, but still didn't push Fujigasaki Rinka away and remained still.</p>
-<p>It seemed like he was staying still even though he was uncomfortable because he knew Fujigasaki Rinka was my acquaintance.</p>
-<p>"Ah! Investor-nim! Why did you come all the way to the training center when you could have waited at the pension?"</p>
-<p>Sawayanagi Azuma finished her speech and approached me. She had prepared to go to the pension in advance, as she was somewhat dressed up. However, she was wearing the same green field jacket that Alik was wearing, giving off the feeling that she belonged to the PMC.</p>
-<p>"I thought there might not be enough cars, so I came to help. This person here is my master, Fujigasaki-ssi."</p>
-<p>"Ah, could it be? *The* Fujigasaki-ssi?"</p>
-<p>When I introduced Fujigasaki Rinka, who was still rubbing her cheek against Alik's, Sawayanagi Azuma asked me in surprise. She looked far from dignified enough to be called the world's best fighter, but Sawayanagi Azuma seemed very surprised.</p>
-<p>"You can see for yourself, can't you?"</p>
-<p>"It's my first time seeing such a celebrity in person!"</p>
-<p>It was natural for Sawayanagi Azuma to be surprised. Before my possession, it would be like going to hang out with a friend, and that friend brings Lionel Messi, saying he's my soccer coach.</p>
-<p>However, Sawayanagi Azuma didn't seem to be a fan of Fujigasaki Rinka, so she didn't make a big fuss. She was just surprised to meet a celebrity? Just that much of a reaction.</p>
-<p>"Our disciple invested, I hear?"</p>
-<p>"Yes. It's practically a takeover, but Investor-nim doesn't have the qualifications, so I'm taking responsibility as the CEO instead."</p>
-<p>"I see. This guy is quite a pushover, so please take good care of him."</p>
-<p>Hmm, I don't think I'm a pushover, though. While Sawayanagi Azuma and Fujigasaki Rinka were talking, Alik escaped from Fujigasaki Rinka's arms and hid behind me.</p>
-<p>"Aww! The cutie ran away!"</p>
-<p>"Alik, you're not a cutie. Alik is Alik."</p>
-<p>Leaving Fujigasaki Rinka and Alik bickering behind, Sawayanagi Azuma and Sawayanagi Mikiyo went to get their cars, and in front of us, the trainees who had completed all the training were standing and looking at Fujigasaki Rinka.</p>
-<p>All the trainees had gone through harsh childhoods where things like TVs were luxuries, and they had been sold by their parents to slave traders, so they knew who Fujigasaki Rinka was, but they weren't fans.</p>
-<p>The two executives of Seryu Thai brought the cars, but Sawayanagi Azuma's car was a regular sedan, while Sawayanagi Mikiyo brought a small compact car, so it was clear that if I hadn't come, they would have had to squeeze in with a lot of people.</p>
-<p>It was the last day, so the trunks were full of luggage because they were taking their belongings out of the training center, and they had to put luggage in the passenger area as well, so it would have been even tighter.</p>
-<p>"I'll take Dalim and Alik in my car."</p>
-<p>"Okay, see you at the pension, Investor-nim!"</p>
-<p>Since I had to take responsibility for both of them after the training center life was over, I decided to take them in my car.</p>
-<p>I was planning to send Jung Dalim to university in the form of a donation admission after she finished training. Since she has related characteristics, if she has knowledge learned at university, she will definitely be able to produce good results.</p>
-<p>Alik will be entrusted to Mimata Chieri to take agent lessons. In addition, Mimata Chieri said that she would have him take lessons from a prestigious family that used to be servants of the historic Japanese imperial family, so Alik will be able to become the maid he wants to be.</p>
-<p>I put the three of them in the car and headed to the booked pension. Alik sat in the passenger seat next to me as if fleeing from Fujigasaki Rinka, and Jung Dalim and Fujigasaki Rinka sat in the back seat.</p>
-<p>Fujigasaki Rinka stretched Jung Dalim's cheek and said. Jung Dalim was still entrusting her cheek to Fujigasaki Rinka with a detached expression. As expected, it was a reaction typical of Jung Dalim, who loses interest in anything that isn't a plant.</p>
-<p>"She's cute too?"</p>
-<p>"Master, why do you suddenly like cute things so much?"</p>
-<p>I don't think she used to be like this. The Fujigasaki Rinka I remember was a passionate girl who only knew martial arts, so she's a bit different from now.</p>
-<p>"When you're in nature, you don't see cute things very well. Especially, the more you master Shinkai Yatsude, the more small animals run away from me."</p>
-<p>Certainly, mastering the abyss increases the sense of intimidation. The enemies you face are also terrified. Small animals would feel that dangerous feeling even more strongly. She said she was happy because it was the first time in a long time that she had seen vivid (?) cute things.</p>
-<p>"I think it's over there."</p>
-<p>I pointed to a building that looked like a fairly large Western-style mansion, typical of pensions. There was a path leading down to the valley, and there were several cars parked, so it didn't seem like we were the first to arrive.</p>
-<p>"Welcome, you must be the Seryu Military Company people?"</p>
-<p>When we got out of the car, an elderly couple who seemed to be the owners greeted us. Unlike Korean pensions, where you play and eat on your own, Japanese pensions have a Western-style exterior but feel like hot spring inns.</p>
-<p>I had heard in advance that this pension also had a hot spring bath.</p>
-<p>"Have the other people who made reservations arrived?"</p>
-<p>"Not everyone has arrived, but many have."</p>
-<p>I see. While we were getting out and asking the owners of the pension, the rest of the people who were at the training center also arrived and got out of the cars.</p>
-<p>"Those who arrived earlier are waiting in the common dining room."</p>
-<p>The time we promised to meet was 11 o'clock, so it was getting close to mealtime. We followed the owners to a place called the common dining room, which had several tables and could accommodate up to 30 people, but since the gathering for this outing was about 20 people, it would be quite spacious.</p>
-<p>It seemed that the people who hadn't arrived yet, as the owners had said earlier, were the people from the training center who hadn't arrived yet, because the number of people was just right when we arrived.</p>
-<p>Only one unexpected person had come: Konoe Akina, who was fighting with her uncle to become the head of the Konoe family.</p>
-<p>Since Konoe Akina had been rescued along with the Seryu Thai trainees, it wasn't like there was no connection at all.</p>
-<p>The trainees seemed happy to see Konoe Akina, and they each went up to greet her. Konoe Akina greeted the trainees, who could be called slave trader comrades(?), and also smiled at me. I also nodded slightly at Konoe Akina.</p>
-<p>I took Fujigasaki Rinka to the place where the Seryu Thai people were gathered. I had to introduce Fujigasaki Rinka since she was an uninvited guest. I had told them in advance that my master was coming, but it was polite to say hello.</p>
-<p>"This person who came with me is my master, Fujigasaki Rinka."</p>
-<p>"Kyahaha, nice to meet you."</p>
-<p>As expected, everyone who was introduced was momentarily silent. They seemed flustered because she was such a celebrity.</p>
-<p>"I, I'm a f, fan...!"</p>
-<p>Katayama Junichi, a martial arts enthusiast within Seryu Thai, stuttered and greeted Fujigasaki Rinka. Starting with Katayama Junichi's greeting, the Seryu Thai people rushed at Fujigasaki Rinka, making requests such as "I'm a fan" and "Can I take a picture with you?"</p>
-<p>Since she came without being invited, she had to do this much fan service. I left Fujigasaki Rinka, who was giving me a look that said "help me," and went to Mimata Chieri.</p>
-<p>"Sunbae-nim, you came early? I thought you might be late because of the East Weapon business."</p>
-<p>"Hehe. I'm the president, so I left it to my subordinate."</p>
-<p>While watching Mimata Chieri munch on the pre-meal bread that seemed to have come out in advance and speaking nonchalantly, I wondered if I could really trust this woman with East Weapon.</p>
-<p>But unlike her seemingly easygoing appearance, Mimata Chieri was meticulous, so I thought she must have taken care of everything she had to do and came, and I sat diagonally across from Mimata Chieri.</p>
-<p>"As Hubae-nim said, I've completed the arrangements for Jung Dalim's school. But to enter university with a donation admission, she needs a high school diploma, so I decided to enroll her as a 3rd year, 2nd semester student under a false identity."</p>
-<p>"That school isn't by any chance St. Francis Girls' School, is it?"</p>
-<p>I asked, just in case Jung Dalim would be entering as a 3rd year student that I would be in charge of, and Mimata Chieri shook her head.</p>
-<p>"Ahaha, it would be fun if that were the case, but only girls from truly prestigious families can go there. The minimum is the adopted child of a prestigious family. I couldn't find someone from a prestigious family to be her adoptive parent in this short amount of time."</p>
-<p>Well, if Mimata Chieri's capabilities were enough to get her admitted, it couldn't be the best prestigious girls' school in Japan.</p>
-<p>"I've already bought a small site for the research lab in Chiba. I'm going to ask Jung Dalim-yang what kind of building she wants and build it."</p>
-<p>Since the research lab had been taken care of, there was nothing in particular to worry about. Alik had already been discussed.</p>
-<p>"Benefactor!"</p>
-<p>"It's Konoe-ssi. How have you been?"</p>
-<p>It was Konoe Akina, still calling me her benefactor. It seemed like she had finished greeting the trainees after a long time and had come to greet me.</p>
-<p>"I've been doing well thanks to the people you introduced me to, Benefactor."</p>
-<p>"So...?"</p>
-<p>"Yes, I'm now the head of the Konoe family. My mother will be the acting head until I graduate from school, though."</p>
-<p>It seemed like Konoe Akina had won the battle for the head of the Konoe family. Amazing. To oust her uncle, who had been solidifying his position for a year.</p>
-<p>"Can I sit here?"</p>
-<p>When Konoe Akina pointed to the seat across from me and asked, I nodded. It was just a meal, so she could sit anywhere.</p>
-<p>"Sit wherever you want."</p>
-<p>"Alik is here..."</p>
-<p>When Konoe Akina sat in the seat across from me, Alik took a seat next to me. From afar, Sawayanagi Azuma and Lianna Holden were looking at the seats around me with regretful eyes.</p>
-<p>----</p>
-<p>Unreleased Konoe Akina illustration</p>
+<p>Nagumo Sian-nim was wearing a flowery dress with a bright, light yellow background, not the Kimono, Traditional Japanese garment she usually wears, and it suited her just as well. It's quite short, did she come to the hotel wearing this? Impressive.</p>
+<p>"Y-you came quickly?"</p>
+<p>"Yes, the meeting ended early, so I came early."</p>
+<p>Nagumo Sian-nim had a serene expression that didn't reveal what she was thinking. Inside, I was thinking, 'What should I do?' but I pretended to be calm and sat at the table. As soon as I sat down, Nagumo Sian-nim poured me wine.</p>
+<p>"I was having a drink and talking while waiting for you, Ryuta, so you have a drink too."</p>
+<p>I put the wine glass that Nagumo Sian-nim poured to my lips and poured it all down my throat. While I was drinking the wine, my mind was spinning at an incredible speed. What should I do? Should I apologize first? Or should I keep pretending I don't know and keep talking...?</p>
+<p>But I should apologize as a matter of human decency, right? I made a double booking, after all....</p>
+<p>"Nuna-nim, I'm sorr...."</p>
+<p>"It's okay, it's okay."</p>
+<p>I was about to say sorry, but Nagumo Sian-nim said it was okay before I could even finish. My eyes widened without me realizing it at the unexpected reaction.</p>
+<p>"When you taught me about first time, when I felt you were more skilled than your age, I knew I wasn't the only one."</p>
+<p>Looking into Nagumo Sian-nim's eyes, which were a combination of maternal love and the love of a lover, made me feel guilty for no reason.</p>
+<p>"Don't look at me like that. I've lived a long life and realized that there are many forms of love."</p>
+<p>I could see why Nagumo Sian-nim was called the godmother and loved in the Akita area. If you hate such a benevolent, big-boobed mama, you have a problem with your character.</p>
+<p>Surprisingly, Nagumo Sian-nim, who I thought would be the most difficult, was working out well. You never know what will happen in life.</p>
+<p>"Now, come here."</p>
+<p>Nagumo Sian-nim opens her arms. I got up from my seat and hugged Nagumo Sian-nim. I felt Nagumo Sian-nim's soft chest and smelled Nagumo Sian-nim's scent, which I had forgotten. A nostalgic, good scent. A subtle, lewd scent that makes you hard just by smelling it.</p>
+<p>"Kiss me...."</p>
+<p>Was she still anxious? I kissed Nagumo Sian-nim, who was begging me for a kiss. Nagumo Sian-nim, who only has experience with me, accepted my tongue with an awkward tongue movement that was both pitiful and awkward.</p>
+<p>Tzup, chup, chu-up...!</p>
+<p>But instinctively, she started using her tongue more skillfully. I close my eyes and enjoy the kiss, then take my lips off and look at me.</p>
+<p>"But women sometimes need to be shown love like this. Do you understand?"</p>
+<p>"Yes."</p>
+<p>"I heard from the two of them that you hugged both of them while waiting for me. Hug me too."</p>
+<p>At Nagumo Sian-nim's words, I glanced at Nae Fitzgerald and Ha Ju-yoon. It hasn't been long since I washed, but they're already talking about it, their mouths are so light.</p>
+<p>"I've known Nae since she was young, so she couldn't refuse what I asked."</p>
+<p>Ah, I see. I should ask Fitzgerald Nae what she was like when she was young later. I untied the waist tie on Nagumo Sian-nim's yellow dress.</p>
+<p>With a rustling sound, Nagumo Sian-nim's underwear was revealed. She was wearing simple but high-quality black underwear that suited Nagumo Sian-nim.</p>
+<p>Her figure is still good.... Her appearance and figure don't match her age at all, so it doesn't feel real. I actually wonder if she's from another race.</p>
+<p>Maybe some characteristic was manifested like Sawayanagi Seari, who has the characteristics of a fairy's body. I should check it out later with the glasses from the ruins.</p>
+<p>"Nuna-nim, you're still beautiful. It's a bit much to do it on the table...."</p>
+<p>"They all said they did it on the sofa, so let's do it on the sofa too."</p>
+<p>I was going to go to the bed, but I can't help it. I feel a little sorry for the cleaning lady, but I paid a lot for the room, so this cleaning fee must be included.</p>
+<p>I picked up Nagumo Sian-nim in a princess carry and took her to the sofa.</p>
+<p>"Hehe, it's like I'm a princess."</p>
+<p>"You're like a princess to me."</p>
+<p>I mixed in some cheesy lines that Nagumo Sian-nim would like, took her to the sofa, and immediately took off her panties and bra. Nagumo Sian-nim must have been excited, her pink nipples were standing up looking at the sky.</p>
+<p>I kissed her again and massaged Nagumo Sian-nim's breasts. Her breasts were a perfect mix of softness and elasticity that filled my hands.</p>
+<p>"Eung, it still feels ha-eum...! Good touch, Ryuta...."</p>
+<p>"Nuna-nim's breasts still feel good too."</p>
+<p>This time, I sat Nagumo Sian-nim facing me on my lap in a face-to-face position and started sucking on both of her nipples.</p>
+<p>"Heu-eut, it feels.... strange♥"</p>
+<p>"Nuna-nim's nipples.... are delicious."</p>
+<p>"Heueong, like that, haa-aang!! Even if you suck, heu-heung! Nothing comes out♥"</p>
+<p>Nagumo Sian-nim tilted her head back and was lost in pleasure as I greedily sucked on her nipples. I felt my dick getting hard and my glans rubbing against her pussy, which made me feel even better. Of course, I also felt good feeling the wet and soft female genitals on my glans.</p>
+<p>"Haa-euheung! The bottom is also eu-eung! Rubbing, heu-heung, it's getting strange, Ryuta! Haa-eut eu-heung! Oheut!"</p>
+<p>Nagumo Sian-nim was slowly and gradually putting her glans down, turning her waist seductively, as if she wanted to put her dick inside. It's probably an instinctive action, not intentional.</p>
+<p>"Haa-eut! No way...! Heu-heut! If I put my dick in, my pussy, heu-eung! It's getting wider...!"</p>
+<p>Nagumo Sian-nim's pussy, which was close to being a virgin, was being opened by my glans and slowly accepting my dick. And in proportion to accepting it, her moans gradually got louder.</p>
+<p>Puwook!</p>
+<p>As soon as my dick went all the way in, Nagumo Sian-nim's eyes rolled up and she immediately reached her climax. As expected, it was still a tight and pleasant pussy. It was so tight that it put a lot of pressure on my big dick, so Nagumo Sian-nim must have felt a lot of pressure on her lower abdomen.</p>
+<p>"Eung, heu-eut! Strange...! The inside, ha-heut♥ Ryuta's dick, oheok! I can feel it...!"</p>
+<p>"I like Nuna-nim's pussy too."</p>
+<p>It felt like it was being squeezed out because it was so tight, but it was a very pleasant pussy. Unlike Nagumo Sian-nim, who has a lot of social experience, it was a completely inexperienced, natural pussy, so the contrasting feeling stimulated my pleasure even more.</p>
+<p>After shaking my waist in a face-to-face position for a while, I felt my dick getting bigger and bigger as I felt the urge to cum.</p>
+<p>"Heuhyaa-at...! If it gets bigger so suddenly! From the inside, no way!"</p>
+<p>"I'm not doing it on purpose! Keut! It's not! It's because Nuna-nim's pussy feels so good that I feel like I'm going to cum...!"</p>
+<p>I grabbed Nagumo Sian-nim's thin waist with both hands and shook her up and down as if I was shaking an onahole.</p>
+<p>I could see Nagumo Sian-nim's tight pussy following me as if it didn't want to let go of my dick, and I could also see it going in deeper again, which added to the visual excitement. As I felt the urge to cum more and more, I lowered my hands that were holding her waist and pressed Nagumo Sian-nim's body tightly against mine and poured hot Semen, Semen inside.</p>
+<p>"Hyyaa-aang!!"</p>
+<p>At the same time as Nagumo Sian-nim screamed in pleasure, the door opened with a bang!</p>
+<p>What is it? When I looked, Yukiko was standing there with her pink eyes shining. Shining eyes wasn't just an exaggeration, they were actually shining.</p>
+<p>###</p>
+<p>I don't know when it started, but Taira Yukiko realized that she was different. She felt it when she mixed bodies with Taira Ryuta, who was nominally her stepson.</p>
+<p>Unlike Taira Saburo, who felt unwell when he had sex with her, Taira Ryuta didn't get tired at all even after having sex. Taira Ryuta's steel-like stamina, big dick, and skills instantly captured Taira Yukiko's heart.</p>
+<p>And at the same time, she felt her body constantly changing. Every time she mixed bodies with Taira Ryuta, she gradually became stronger, her senses became sharper, and her sexual desire also became stronger.</p>
+<p>The biggest problem was her senses. She could control them at other times, but when she had sex with Taira Ryuta, her senses became so sharp that she could distinguish the smell of other women who had been with Taira Ryuta from Taira Ryuta's smell.</p>
+<p>That's when she started to realize that she wasn't a normal person. To think that she was getting stronger through sex.... It was an embarrassing ability that she couldn't reveal to anyone.</p>
+<p>Recently, while sucking Taira Ryuta's dick on the weekends, she was able to find out the number of women he had been with recently, and she couldn't help but be shocked even though she had already guessed it to some extent.</p>
+<p>To think that he had sex with five girls during the weekend.... Should I say he's amazing, or should I say he's an unparalleled Casanova....</p>
+<p>Whether something was wrong with her head along with the changes in her body, she wasn't that shocked. In her head, she thought, 'He was my Taira Ryuta, but he's meeting other women!' but in her heart, she didn't feel that way.</p>
+<p>She felt like she could accept Taira Ryuta no matter what woman he met or what perversion he had.</p>
+<p>"Yukiko-ssi, I have an appointment on Tuesday, so can I leave early?"</p>
+<p>At that moment, Yukiko felt, 'This is it!' Taira Ryuta was definitely going to meet another woman. Yukiko allowed Taira Ryuta's request and then installed a GPS in Taira Ryuta's car.</p>
+<p>And the long-awaited Tuesday.</p>
+<p>Of course, Taira Yukiko, the head of the Human Resources Development Center, was also attending the Taira Group's regular meeting.</p>
+<p>After the meeting that felt like forever, she had a private meeting with Taira Danjo for a while and then opened her phone and opened the GPS app. Taira Ryuta's car was surprisingly close.</p>
+<p>Of course, that place was a hotel. Taira Yukiko drove there as it was. She didn't have a plan of what to do when she got there. Her head was dizzy.</p>
+<p>Her head, which was turbidly mixed with anger, anticipation, and affection, was only thinking of chasing Taira Ryuta.</p>
+<p>-----</p>
+<p>Nagumo Sian-nim underwear illustration.</p>

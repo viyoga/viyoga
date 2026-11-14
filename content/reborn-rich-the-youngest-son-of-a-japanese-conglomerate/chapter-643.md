@@ -5,71 +5,93 @@ weight = 643
 chapter = 643
 +++
 
-<p>"Haa... Haa... I've been waiting so long for this moment with you."</p>
-<p>Matsunaga Yuzuki, breathing heavily, hugged me naked. I liked the soft sensation of her breasts pressing against me as she hugged me. Today, while I was on my way home from work, I ran into Matsunaga Yuzuki, who was also on her way home, and we had dinner together. It had been a while since I held Matsunaga Yuzuki in my house.</p>
-<p>Maybe it was because it had been a while since I had sex with Matsunaga Yuzuki, but we had a very intense time. I had already come three times, and Matsunaga Yuzuki had experienced countless orgasms. Now was a time for a break and pillow talk.</p>
-<p>"Things have been busy. I heard you went to your family home during this vacation, Yuzuki-ssi? Then we wouldn't have been able to meet anyway."</p>
-<p>Matsunaga Yuzuki said it as if she had been waiting a long time, but she wasn't in Miyashi during this week-long vacation. I heard she went down to her family home to rest for a while.</p>
-<p>Actually, it's amazing how mentally strong our students are that they didn't get particularly shocked. This cyber zombie incident could have been traumatic for someone. If I didn't have powers, I would have been very surprised.</p>
-<p>"Yes, I formally told my parents about the divorce and tried to recover from the shock during the graduation trip."</p>
-<p>Ah, right. It hasn't been long since Matsunaga Yuzuki got divorced, has it? Informing her parents about the divorce is a big deal, so Matsunaga Yuzuki had quite a big event during her vacation.</p>
-<p>"Your parents must have been very worried?"</p>
-<p>"Of course. The place where their daughter went on a graduation trip as a teacher turned into a zombie movie situation."</p>
-<p>Well, it's natural for parents to worry. Jinmija Yeosa also cried when I talked to her before going to the airport. She's usually such a strong ajumma that I didn't think she would cry, but in the end, a mother is a mother. She must have been very worried about her child being caught up in a big event and possibly dying. I also felt a lump in my throat at Jinmija Yeosa's crying.</p>
-<p>"Is the property division finished?"</p>
-<p>Matsunaga Yuzuki nodded at my question. Actually, it should be seen as debt division rather than property division. The only property is a mansion near St. Francisco Girls' Academy, and that mansion was also purchased with debt. It must have been a negotiation where they were telling each other to take on more debt.</p>
-<p>I was waiting for the debt division to be completed because I had decided to pay off the debt, and it seems like it's finally over.</p>
-<p>"Send me the documents. I'll take care of it by tomorrow."</p>
-<p>It's too late now, so I can't do bank work and can't take care of it right away. I heard that her ex-husband, Kasaoka Koki, said he wouldn't divorce her unless she gave up the house and took on a lot of debt, so Matsunaga Yuzuki divorced with a very foolish ratio.</p>
-<p>But Matsunaga Yuzuki had me to pay off her debt, and when I personally looked into Kasaoka Koki, he had personal debts in addition to the couple's debt. He'll soon be fired from his job as a teacher at St. Francisco Girls' Academy, so only an ominous future remains for him.</p>
-<p>"I'll find you a house, so get out of that mansion. It's not good to live together when he's no longer your husband."</p>
-<p>"I'm busy during the semester, so I'll move during the vacation."</p>
-<p>Well, she's the head of the grade, so she must be busy. She wouldn't have time to prepare for the move during the semester. I nodded as if I understood.</p>
-<p>"Our school festival is done by clubs, right?"</p>
-<p>"Yes, we encourage most students to join clubs, so it's done by clubs rather than classes."</p>
-<p>I see. Then, as the homeroom teacher of the special class, I don't have anything to prepare. Since I'm participating as the advisor of the Date Experience Club anyway, I'm suffering the same, but it's fortunate that I don't have to do anything as the special class and don't have to work doubly.</p>
-<p>"The festival will be a little more crowded than the sports day because even the middle school students participate."</p>
-<p>St. Francisco Girls' Academy had both middle and high schools, so there were quite a few clubs. During the festival, all the clubs boast about their activities for the year or set up cafes, restaurants, and shops to earn club activity fees, so the St. Francisco Girls' Academy festival was a winter specialty of Miyashi.</p>
-<p>"I'm in charge of the 3rd grade, so I'm not an advisor for any clubs, so I'm not that busy preparing for the festival, but Yamashiro-sensei is also doing advisor activities, so you must be busy."</p>
-<p>"The kids are doing the preparations. Rather, I was busy taking pictures until the graduation trip, but I'm fine now."</p>
-<p>I said as if I was okay, but Matsunaga Yuzuki had a slightly puzzled expression.</p>
-<p>"Pictures? I heard the Date Experience Club is publishing a collection... ."</p>
-<p>Ah... She already knew that they were publishing a collection. She seemed to have a puzzled expression because the story of the pictures suddenly came up.</p>
-<p>"Ah, they say they're giving away my photo card as a bonus when you buy the collection."</p>
-<p>"Ah~ The Date Experience Club is determined?"</p>
-<p>"I'm not a celebrity, so I don't know if it will sell well if they include my picture as a bonus."</p>
-<p>When I said as if I was a little worried, Matsunaga Yuzuki laughed as if she was dumbfounded.</p>
-<p>"Sensei, you don't know your popularity in this school. You can't compare it to celebrities. Your popularity."</p>
-<p>Does "can't compare" mean I'm more popular than celebrities? Or less? When I looked at her with an expression that I wanted more explanation, Matsunaga Yuzuki smiled and opened her mouth again.</p>
-<p>"Celebrities are just beings outside the screen, but you can actually see Sensei. On top of that, you're not a peer but an older, handsome male teacher, so it's perfect for adolescent girls to fall into lovesickness."</p>
-<p>"Am I that popular? I haven't really felt it... ."</p>
-<p>Actually, I'm only in the special class building, so I don't have many opportunities to meet other students, so I didn't realize it. Of course, I knew that many students from other second foreign language classes had decreased because of my Korean class, but I didn't feel the popularity that Matsunaga Yuzuki was talking about.</p>
-<p>The special class building has a forbidden feeling, so students tend to avoid it, and you might not notice it, but thanks to Sensei, our school cafeteria's lunch sales have doubled compared to the first semester. Students who used to bring their own lunch or skip meals for dieting have started visiting the cafeteria during lunch to see Sensei.</p>
-<p>The school cafeteria wasn't originally crowded? I didn't know that. I thought it was originally doing well because it was crowded every day. Then I can expect a certain amount of sales for the club collection. I was worried because it would be a bit much if my picture was a bonus and it didn't sell at all.</p>
-<p>"Yuzuki-ssi must be happy. You're enjoying me as much as you want, whom the students want so much."</p>
-<p>"Not as much as I want. It's still not enough."</p>
-<p>When I said "must be happy" in a slightly playful voice, Matsunaga Yuzuki said it wasn't enough yet and lowered her hand to grab my Johnson.</p>
-<p>"I'll give you a free pass today, so enjoy it as much as you want, Yuzuki-ssi."</p>
-<p>"When we're doing it, please call me just Yuzuki instead of -ssi, Sensei♥"</p>
-<p>Seeing her eyes full of hearts, it seemed like she was going to completely suck up my yang energy today like a succubus. I have to do my best to serve her today so that she doesn't become sexually frustrated for a while.</p>
-<p>"Spread your legs, Yuzuki."</p>
-<p>"Neehee...♥"</p>
-<p>When I spoke informally and told her to spread her legs, Matsunaga Yuzuki spread her legs with a completely melting expression.</p>
-<p>###</p>
-<p>"I don't know."</p>
-<p>Urabe Konoka muttered while lying on the bed. She couldn't figure out her feelings for her homeroom teacher, Yamashiro Ryuta, no, Taira Ryuta.</p>
-<p>Her first meeting with Taira Ryuta was just as a guest at the inn where she and her grandmother worked. Of course, she had to pay a little attention because he was staying in an expensive private house and had to be served, but the period when Taira Ryuta stayed at the inn was when Professor Honmura Koga, the enemy of her father, and his party were also at the inn.</p>
-<p>She was so full of thoughts of killing them that she couldn't pay much attention to Taira Ryuta. She just remembered thinking he was handsome. In the end, she was able to succeed in her revenge.</p>
-<p>There was an excellent detective among the inn guests, and it was revealed that she and her grandmother were the culprits, but she was chosen as a miko of Shinkai Hime, Simyeonui ttal, and was hidden in the shrine, so she was able to avoid being caught by the police and escape.</p>
-<p>But the problem was from then on. The problem was that she shared Simyeonui ttal's feelings for Taira Ryuta as she became a miko of Simyeonui ttal.</p>
-<p>Infinite love for Taira Ryuta. That deep, sea-like love moved even Urabe Konoka's emotions.</p>
-<p>So Urabe Konoka didn't know whether the feelings she felt when looking at Taira Ryuta were her own feelings or whether her feelings had changed as she assimilated with Simyeonui ttal.</p>
-<p>"What if these feelings are false...? And what if I'm not me anymore... ."</p>
-<p>Urabe Konoka's worries were not only about her affection for Taira Ryuta but also about her own ego. She was afraid that the girl named Urabe Konoka would disappear and become just a puppet doll moving according to the emotions of Simyeonui ttal.</p>
-<p>When she went to Tokyo a few days ago, she also wanted to be hugged by Taira Ryuta like her friends. But she couldn't because of the unknown fear of whether the feelings Urabe Konoka felt were true or false.</p>
-<p>While she was worrying about that, she felt the connection with Simyeonui ttal, which had been faint since yesterday, was getting stronger and stronger. Until then, she was focused on devouring the avatars of other Outer Gods, so she was only minimally connected, but looking at the current situation, it seemed like Simyeonui ttal would return within a few days.</p>
-<p>"I have to figure out my feelings exactly before Hime-nim returns."</p>
-<p>Urabe Konoka muttered, stroking the blue jade necklace hanging around her neck without realizing it. It was the necklace that Taira Ryuta had chosen for her from the Naruse family treasure vault this time.</p>
-<p>_________</p>
-<p>Chuseok Special Halloween Naruse Edition Nurse Shiyo.</p>
-<p>Kkiooot!</p>
+<p>There were quite a few footsteps heading this way. Surely, they wouldn't all be rushing to the special class building the moment the festival started, right...?</p>
+<p>Deureureuk!</p>
+<p>,Give me a club anthology!</p>
+<p>,Me too! Give me A! Give me A!</p>
+<p>,I was here first, so give it to me first!</p>
+<p>I was wrong. It seemed like a mob of female students had rushed here as soon as the festival started.</p>
+<p>,Everyone, calm down and form a line!</p>
+<p>Minamoto Risa gathered her hands and shouted loudly. Whether it was because of Minamoto Risa's charisma or the Minamoto Group behind her, the female students quietly began to line up. Soon, as a neat line formed, the Date Experience Club began selling their club anthologies, and the student who had arrived first, wearing a happy expression, opened her mouth.</p>
+<p>,First, give me 40 copies of anthology A and five copies of B.</p>
+<p>,Would you like a paper bag too? It's 80 yen, but....</p>
+<p>,Yes, please.</p>
+<p>Huh? 40 copies?? Why is she buying so many? Judging by her saying "first," it seemed like she would come back to buy more if she couldn't collect the whole set. Since each book gives five photo cards, 40 books would give her 200 cards, so she was probably planning to trade with those. She was probably planning to make two or three sets for viewing and keeping, like someone had said. And she was subtly charging quite a high price for the paper bag without the student noticing.</p>
+<p>For reference, anthology A was the anthology that came with my photo card as a bonus, and anthology B was the anthology that came with Uenozono Karen's photo card.</p>
+<p>,Ah, Yamashiro-sensei...!</p>
+<p>,Hi?</p>
+<p>,Y-yes....</p>
+<p>While I was putting twenty-five club anthologies into a bag, a student noticed me organizing the books and greeted me quietly, so I greeted her back. The student who received my greeting blushed furiously and lowered her head. She's so shy.</p>
+<p>,It's 1,200 yen per book, so forty-five books plus the paper bag is 54,080 yen in total.</p>
+<p>1,200 yen per club anthology? It's expensive for a thin club anthology, but it wasn't an unreasonable price since the bonus was a hologram photo and the other four photos were also made with quite a bit of effort.</p>
+<p>,Here you go.</p>
+<p>As expected of a rich school, she handed over 54,000 yen without hesitation. Of course, she handed over a card, but there was no way she would be short on money.</p>
+<p>,The 2nd floor is crowded because of the line, so please check your cards and exchange them at the 1st floor cafe.</p>
+<p>,Yes, then goodbye....</p>
+<p>As Minamoto Risa had planned, the student who bought the anthology hugged the paper bag tightly and went down to the 1st floor, as if she understood. The next female student similarly bought 40 copies of anthology A, which contained my photo card, and four copies of anthology B, which contained Uenozono Karen's.</p>
+<p>,It's 52,880 yen.</p>
+<p>,Here you go, thank you!</p>
+<p>With just two customers, they had already exceeded 100,000 yen in sales. In terms of time, it hadn't even been 2 minutes since the festival started. This is crazy? Looking at the rapidly increasing sales, I could see why entertainment agencies do business like this.</p>
+<p>The club anthologies were selling out almost as soon as I took them out of the box and displayed them, so I had to keep taking books out of the box without a break. Anthology A, which came with my photo card as a bonus, was selling out in batches of 40 to 60 copies, so no matter how quickly I took them out, I didn't have a moment to rest.</p>
+<p>,I understand why 40 copies of anthology A are selling, but why are only four or five copies of anthology B selling? Shouldn't they buy at least 20 sets to collect the whole set?</p>
+<p>,Maybe it's because the profits from anthology B are being donated, so they're buying a few copies with good intentions?</p>
+<p>Konoe Akina, who was helping me from the side, answered my muttering. Is that so...? It was fortunate that Uenozono Karen was helping with the cafe serving on the 1st floor. It would be heartbreaking for her to see 20 copies of mine being sold while hers were selling far less.</p>
+<p>,The anthologies with Karen-chan's photo cards as a bonus will probably start selling after some time. Seriph's fans have to come to our school, after all.</p>
+<p>That's right. The customers coming in the beginning were St. Francisco Girls' Academy students who had prepared in advance and rushed straight to the special class building, and Uenozono Karen's fans were coming from other places, so it was inevitable that today, being a weekday, would be a bit of a slow starter.</p>
+<p>Of course, idol fans might line up in front of the school a day in advance, but Miyashi-sensei prioritizes the safety of St. Francisco Girls' Academy students above all else.</p>
+<p>The police wouldn't have stood by and watched unknown idol otaku line up in front of the school, and as I had expected, I didn't see anyone lining up when I went to work in the morning.</p>
+<p>I gradually became more accustomed to displaying the books and became faster, so it wasn't like they were selling out as soon as I displayed them anymore. After all, there was time spent calculating and exchanging money, so my display speed, which was gradually picking up, couldn't be beaten.</p>
+<p>,I'm done displaying them. What should I do now?</p>
+<p>,Well, there's nothing much to help with here.... Go to the 1st floor cafe and ask if they need anything.</p>
+<p>In fact, if you just divide the anthologies into A and B and display them, all you have to do is sell them to the customers, so there wasn't much else to do. However, there was the disadvantage that the line was so long that you had to work non-stop.</p>
+<p>On the contrary, the cafe, which was there for additional profit, was more likely to be busier. They had to sell things like coffee and tea, and also put out desserts.</p>
+<p>,Okay.</p>
+<p>I left the club room and went down the stairs, and there were quite a few female students lined up. They were giving me burdensome looks, and it was even more burdensome to think that most of these girls were going to buy the anthology with my photo card as a bonus.</p>
+<p>For reference, by the time I left the club room, we had recorded sales of over 1.5 million yen. Since they were selling 60,000 to 90,000 yen per person, the money was increasing rapidly.</p>
+<p>,Oh?! It's Kintae Yang-sensei!</p>
+<p>When I went down to the 1st floor, I saw people who seemed to be Uenozono Karen's fans here and there, and they pointed at me, calling me Kintae Yang-sensei, so I smiled awkwardly and waved my hand. It seemed like my nickname had completely solidified as Kintae Yang-sensei in Seriph's fandom.</p>
+<p>As I passed through the hallway again and went to the 1st floor, I saw female students rustling and opening photo card packs. There were students who were frustrated, saying, "Ah! It's a duplicate again!" and students who were happy, saying, "Ah! I didn't have this one!" As I watched them experience joy and sorrow, I headed towards Kijimoto Jurie, who was wearing an apron.</p>
+<p>,Kijimoto-sensei, is there anything you need?</p>
+<p>,It's still early, so not really. I prepared well yesterday.</p>
+<p>Then there won't be anything I need to do for a while?</p>
+<p>,Hey, Minamoto. I have nothing to do?</p>
+<p>-I'll send one person down, so go enjoy the festival. It would be noisy if we met in the classroom and left, so meet me behind the special class building, at the physical training room building, and leave from there.</p>
+<p>Doesn't she get jealous even if I go on a date with someone else? She's so confidently saying she'll send one person down. As Minamoto Risa said, I left the special class building and headed to the physical training room building.</p>
+<p>Even while I was on the phone, customers continued to enter the cafe. Everyone had expressions of anticipation, wondering what would come out of the card packs, and I felt a little sorry for distributing real-life gacha. Of course, the students who were buying the club anthologies didn't look burdened at all.</p>
+<p>,D-Dad... no, Sensei!</p>
+<p>I already knew who it was from the moment she said "Dad," but the female student who was going to go on a date with me for the first time was Oofuchi Erika.</p>
+<p>,How did you decide the order?</p>
+<p>,We decided by lottery!</p>
+<p>Ah, I see. It seemed like they had decided by lottery because it would be too advantageous for the skilled ones if they did rock-paper-scissors.</p>
+<p>,Shall we go then? Where do you want to go first?</p>
+<p>,Since we only got about 30 minutes per student, we can't look around much.... I want to go here.</p>
+<p>Oofuchi Erika opened the festival pamphlet to my question and pointed to one. When I looked, it said "VR Game Experience Club," and below it, it said "Club-Made Game Experience Event." That's amazing. They even make games.</p>
+<p>,If I hadn't joined the Date Experience Club, I would have joined here.</p>
+<p>,Ah, that definitely suits you. You're talented at VR dive and good at games too.</p>
+<p>,Ehehe....</p>
+<p>After talking for a while, we headed to the VR Game Experience Club as Oofuchi Erika wanted. The VR Game Experience Club was using one of the club buildings behind the 2nd grade building, and since this was a remote special class building, it took about 5 minutes to get there.</p>
+<p>The atmosphere of the school was definitely different from our building. The special class building felt like it was only targeting me or Uenozono Karen's individual fans, but the other classes had a really festive, bustling atmosphere.</p>
+<p>Of course, it hadn't been long since it started, so there was still a chaotic atmosphere, but this atmosphere would soon be organized. The St. Francisco Girls' Academy festival was said to be of high quality because it wasn't a festival centered around classes where it was the first time they were working together, but rather around clubs with a lot of experience. Of course, what was more important than that experience was the money that the female students put in.</p>
+<p>,Ah, that's it!</p>
+<p>The building with a slightly cybernetic design seemed to be the VR Game Experience Club. The VR Game Experience Club was quite deserted compared to our Date Experience Club, so we received everyone's attention when we appeared.</p>
+<p>,Ah...! You're Yamashiro-sensei, right?</p>
+<p>,Yeah, hi?</p>
+<p>I didn't know I was such a celebrity. Everyone flocked to me and greeted me. I told them to please enjoy the game and sat down in a seat with Oofuchi Erika and tried playing the game.</p>
+<p>It was 500 yen per experience, and I paid for Oofuchi Erika's as well.</p>
+<p>The game was of such high quality that it was hard to believe that the students had made it, and it was a VR-FPS shooting game that Oofuchi Erika liked.</p>
+<p>Oofuchi Erika broke the record, while I was riddled with bullets from the enemies and got a game over.</p>
+<p>When I took off the VR goggles, the VR Game Experience Club flocked to Oofuchi Erika and praised her, saying "Sugoi!" as if they had never flocked to me.</p>
+<p>,Here's your game record card. If you register it in the app, you'll get an alarm if someone breaks Oofuchi-ssi's record.</p>
+<p>It seemed like they had put some thought into increasing sales by making them compete with each other. Oofuchi Erika, hearing the news that the alarm would go off, made a firm determination to protect her throne until the festival.</p>
+<p>,Ah... it's already time.</p>
+<p>,Time goes by fast because it's a game.</p>
+<p>Oofuchi Erika's date time was already over. Of course, there would be another opportunity tomorrow, but I comforted Oofuchi Erika, who was very disappointed, and bought drinks from the festival stalls on the way and drank them together as we returned.</p>
+<p>Oofuchi Erika went to the cafe, saying it was her turn to take care of it, and I went up to the 2nd floor. The line was still long, and there seemed to be more people who looked like fans of Uenozono Karen, who was a famous idol after all.</p>
+<p>Well.... There's no way I can beat Uenozono Karen with this kind of fan merchandise sales.</p>
+<p>,Minamoto, how much have you sold?</p>
+<p>I entered the sales area and asked Minamoto Risa. Then Minamoto Risa opened her mouth with a dumbfounded expression.</p>
+<p>,Yours are all sold out.</p>
+<p>,Huh?</p>
+<p>As far as I knew, we produced 20,000 copies of the club anthology with my photo card in it. It's already all sold out?!</p>
+<p>___________</p>
+<p>Oofuchi Erika!</p>
